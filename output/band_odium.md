@@ -8,6 +8,20 @@ russian industrial/black
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.11.2002 news Вторая всероссийская конференция по вопросам Death и Black
+
+<p>7 декабря 2002 г. (суббота), 18:30</p>
+<p>Клуб Relax</p>
+<P>Отличный звук и свет. Брутально рубят: <BR> <A HREF="http://rossomahaar.musica.mustdie.ru/">Rossomahaar</A> (black/death),<br><A HREF="http://musica.mustdie.ru/ru/band/atra_mustum/">Atra Mustum</A> (sympho black/death),<br> <A HREF="http://musica.mustdie.ru/ru/band/by_autumn_embraced/">By Autumn Embraced</A> (sympho black/death),<br> <A HREF="http://wishmaster.musica.mustdie.ru/">Wishmaster</A> (melodic black/death).</p></>
+<p>В перерывах атмосферное наполнение: Alpha Scorpii (ethereal darkwave), Odium (industrial/black).</p>
+<P>ВХОД: <BR> По карте CORONACH Club: бесплатно; <BR> По одному приглашению:<BR> - вдвоём: по 90 рублей;<BR> - без друга (подруги): 100 рублей; <BR> С флаерами: 100 рублей; <BR> без приглашения и без флаера: 140 рублей;<BR> Приглашения можно получить в клубе Relax. <BR> Флаер можно скачать <A HREF="http://coronach.nm.ru/fl/FLAYER-7-12-2002-RELAX.png">здесь</A>.</>
+<P> Клуб Relax: Москва, м.Каховская/м.Севастопольская, от метро: 5 минут пешком / 1 минута бегом, ул. Большая Юшуньская, д.1а гостиница "Севастополь", корпус 6.</>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

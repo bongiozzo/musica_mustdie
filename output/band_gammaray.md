@@ -796,6 +796,1056 @@ European (on CD and digital editions) bonus track:
 * C группой "Freedom Call" Nils Neumann (keyboards)
 * C группой "Powerworld" Nils Neumann (keyboards)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новый альбом GAMMA RAY "PowerPlant" выйдет 29 марта.</p>
+
+Автор: Vit Belov
+
+### 12.02.1999 news 
+
+<p>На фото вы можете увидеть кавер нового альбома GAMMA RAY. Известно, что на альбоме будет кавер песни RAINBOW "Long Live Rock?N?Roll".</p>
+
+Автор: Vit Belov
+
+### 16.02.1999 news 
+
+<p>Барабанщик Helloween Ули Кюш, объявил состав музыкантов, которые примут участии на организованном им проекте "Tribute to Rainbow". На проекте засветятся Ральф Шипперс из Primal Fear, члены Helloween Маркус Гроскопф, Михаэль Вейкат, Анди Дерис, Роланд Грапов. А также клавишники Фредди Донберг(Rough Silk), Аксел Маттенрок(Punch), бассисты Йенс Бекер (Grave Digger), Уве Вессел (ex-Gamma Ray) и гитарист Хеньо Рихтер (Gamma Ray).</p>
+
+Автор: Vit Belov
+
+### 28.02.1999 news &quot;It&#39;s a Sin&quot; от Gamma Ray
+
+<P>Cтало известно, что на новом еще не вышедшем альбоме Gamma Ray присутствует рок-версия песни It's A Sin группы Pet Shop Boys(!!!)</P>
+Автор: Vit Belov
+
+### 01.05.1999 reviews 
+
+<p>Это уже шестой альбом Кая Хансена и его сотоварищей. Отличный альбом. Образец того, как надо сочинять и играть музыку. На сей раз Кай дал волю своим товарищам. В результате, он сочинил всего половину материала альбома. Зато мы получили довольно разнообразный альбом, как всегда, энергичный, техничный и супермелодичный. Нельзя сказать, что этот альбом лучше предыдущего, но он и не хуже. Во-всяком случае, гораздо свежее, поэтому интереснее слушается. После услышанного на альбоме. хочется со стопроцентной уверенностью отметить, что в мире нет ещё пока команды лучше GAMMA RAY (я имею в виду, в мире speed-power metal, не более). Весь материал альбома представляет большой интерес, но особенно хочется отметить ковер-версию песни группы PET SHOP BOYS "IT'S A SIN". В исполнении GAMMA RAY эта песня - просто супершлягер. Хотя она мне нравилась и десять лет назад, но теперь - просто супер! В общем, от души хочется порадоваться за успехи этой группы, которая не поддаётся новомодным музыкальным течениям, а продолжает играть используя собственный, однажды найденный индивидуальный стиль, постепенно расширяя его горизонты.</p>
+
+Автор: Dimas
+
+### 08.05.1999 news 
+
+<p>Gamma Ray выпустили свой новый альбом "Powerplant" и штурмуют чарты по всему миру. Например, в Чехии группа добралась до 60 места. Ну и продолжая лазарет, у Кая Хансена проблемы с горлом. Из-за этого группа отменила два концерта в Германии. Но большо не одно шоу не пострадает, так как группа усилено ищет помошника на ближайшие концерты. Рассматривается три кандидатуры: вокалисты Edguy и Steel Prophet, а также вокалист сайд-проекта барабанщика Gamma Ray Дэна Циммермана Freedom.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>Gamma Ray вернулись из очень успешного тура по Японии. После этого тур приостановился, так как в конце июля у Кая Хансена и его жены Габи родился ребёнок. Тур продолжится в сентябре в Швеции и Греции.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Кай Хансен написал две новые песни для альбома лучших песен Gamma Ray, который выйдет в этом году. Ходят слухи, что на новом студийном альбоме Gamma Ray одну песню исполнит Михаэль Киске.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>"Blast From The Past" - так будет называться новый альбом лучших вещей Gamma Ray, релиз которого намечен июнь.</p>
+
+Автор: Vit Belov
+
+### 12.03.2001 news Новый сингл Gamma Ray
+
+<p> Gamma Ray закончили запись и микширование песен, которые выйдут на сингле, предваряющем выход нового полноформатника. Мастеринг будет завершен к 12 марта. Сингл имеет название "Heaven or Hell" и в него войдут следующие треки: "Solid", Heaven or Hell", "Illuminates" (возможный вариант "Illuminati") и "Angel of Death" (кавер-версия песни Thin Lizzy, записанная исключительно для сингла). Обложкой на этот раз займется француз Herve Monjeaud. Релиз сингла намечен на конец мая-начало июня. А пока группа продолжила запись своего нового альбома, после того как из гастрольного тура Freedom Call вернулся Daniel Zimmermann.</p>
+
+Автор: Helloween
+
+### 14.03.2001 news Kai Hansen уходит...
+
+<p>Kai Hansen 17 мая уходит из IRON SAVIOR. Судя по опубликованному пресс-релизу, это вызвано конфликтом в расписании между GAMMA RAY и Iron Savior. Как сказал Кai: " Иногда очень трудно разделить дружбу от работы, хотя это и необходимо. Продолжающийся конфликт между командами может разрушить наши отношения. Мы больше не хотим ждать и рисковать." Таким образом участие Hansen в проекте завершается одновременно с окончанием Dark Assault Tour 2001.</p>
+
+Автор: Yermola
+
+### 14.03.2001 news IRON SAVIOR - Kai Quits...
+
+<p>Kai Hansen will leave IRON SAVIOR on May 17th 2001. No, no... we did not quarrel, did not threw things at each other and there was no bloodshed either. We still like each other very much. And as we don't want our friendship to be destroyed we have decided to take this unpopular though necessary step. Iron Savior's debut album of 1997 was THE opportunity for Kai and Piet to do what they had wanted to do for a long time: to make music together. But this did not always meet with the different wishes and ideas. During the last year, conflicts between GAMMA RAY and Iron Savior concerning the time schedules occurred time and again. This became really hard for the rest of the band - they had to go on tour three times without the second guitarist, and Kai, too, did not feel alright about this. All in all we came to the conclusion that Kai's double role led to conflicts in both bands. A personal comment by Kai and Piet explains it: "Sometimes it is difficult to separate friendship from business affairs as it is necessary. The constant Gamma Ray/Iron Savior conflict could damage our friendship. We are no longer willing to take that risk." Therefore Iron Savior will dismiss Kai at the end of the Dark Assault Tour 2001 with all pomp and glory. Kai will be part of the whole tour ending on May 17th in Hamburg. Rumour has it that Piesel is only a substitute for a short time, but this is not the case as Iron Savior will also play with three guitars in the future. It is not easy to find a worthy successor, but they already have a lot of ideas. More of that on May 17th.</p>
+
+Автор: Yermola
+
+### 12.04.2001 news Очередной выброс гамма излучения
+
+<p> Последние новости из лагеря бундесвера! GAMMA RAY запланировали на 10 сентября релиз своего новейшего альбома под названием "No World Order"!!!!!! Наверное мы услышим что-то сверхестественное и оригинальное:-)))</p>
+
+Автор: Helloween
+
+### 16.07.2001 news No World Order ...
+
+<p>Фаши... ой! Германцы из "GAMMA RAY" пытаются установить "новый порядок". Уже опубликован полный трек-лист: 01. Induction (Hansen) 0:59 02. Dethrone Tyranny (Zimmermann) 4:14 03. The Heart Of The Unicorn (Hansen) 4:46 04. Heaven Or Hell (Hansen) 4:16 05. New World Order (Hansen) 5:00 06. Damn The Machine (Zimmermann) 5:28 07. Solid (Hansen) 4:24 08. Fire Below (Hansen) 5:34 09. Follow Me (Richter) 4:43 10. Eagle (Hansen) 6:04 11. Lake Of Tears (Richter) 6:51 Общее время звучания - 52 минуты 24 секунды.</p>
+
+Автор: Yermola
+
+### 16.07.2001 news No World Order ...
+
+<p>Germany’s GAMMA RAY have announced the full track listing for their upcoming No World Order opus, which is due to emerge through Metal-Is Records in Europe on Monday, September 10th. The song titles, songwriting credits and running times are as follows: 01. Induction (Hansen) 0:59 02. Dethrone Tyranny (Zimmermann) 4:14 03. The Heart Of The Unicorn (Hansen) 4:46 04. Heaven Or Hell (Hansen) 4:16 05. New World Order (Hansen) 5:00 06. Damn The Machine (Zimmermann) 5:28 07. Solid (Hansen) 4:24 08. Fire Below (Hansen) 5:34 09. Follow Me (Richter) 4:43 10. Eagle (Hansen) 6:04 11. Lake Of Tears (Richter) 6:51. The total playing time of the album is 52 minutes 24 seconds. In other GAMMA RAY news, the band have now announced the concert dates for Japan, which are due to take place during November. The details are as follows: Nov. 10 - Tokyo, JAP @ On Air East<br> <br> Nov. 11 - Tokyo, JAP @ On Air East<br> <br> Nov. 13 – Nagoya, JAP @ Bottomline<br> <br> Nov. 14 – Osaka, JAP @ Big Cat<br><br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 14.09.2001 reviews Нет в мире порядка!
+
+<p>Нет в мире порядка! Значит ему требуется новый мировой порядок, но более или менее без правил и положений. Это и будет новый мировой порядок. Такова основная мысль альбома. Лидеры немецкого power-metal представляют нашему вниманию новейший замечательный материал, красивый и мелодичный, жесткий и прямолинейный. Gamma Ray совершенно не изменяют своему стилю. Хотя наряду со своими коронными немецкими фишками частенько используют фишки присущие например Iron Maiden или Judas Priest. Именно поэтому, здесь совершенно неправомерно говорить о том, что группа занимается самоплагиатом. Да, здесь встречаются риффы и соло напоминающие старый материал группы, но Gamma Ray заметно пытается отрешиться от чисто европейского звучания. Вследствие того, что материал в группе пишется всеми музыкантами, он получился интересным и разнообразным. Особенно потрясает своей душевностью и красотой эпическая баллада "Lake Of Tears". Крутые гитарные рефрены, мощная и скоростная музыка, невероятная мелодика, ну и, конечно, своеобразный вокал маэстро Хансена, который заметно разнообразил свою манеру пения. Все это присутствует на "No World Order!" в полном объеме, как и всегда. Так что, я думаю, вы вряд ли будете разочарованы этим великолепным альбомом.</p>
+
+Автор: Dimas
+
+### 16.09.2001 reviews Кай Хансен вернулся! С новым порядком!
+
+<p> После Powerplant все думали, что Кай Хансен исписался, что ему пора на пенсию, и что на группе Gamma Ray можно ставить крест. Ан нет. Все вышло с точностью до наоборот. Gamma Ray вернулся! С убойнейшим альбомом! Кай снова подтверждает свой статус лидера power metal. На альбоме No World Order! мы слышим классический Gamma Ray с Каем за микрофонной стойкой. Новый материал ничуть не уступает Land Of The Free. Небольшой налет классического хэви пошел группе только на пользу. No World Order! слушается на одном дыхании, плохих песен нет. Есть хиты и просто хорошие вещи. Dethrone Tyranny и Heaven Or Hell несомненно лучшие песни! Heaven Or Hell немного напоминает.... хэлловиновский I Wan't Out. Завершает альбом очень красивая баллада - Lake Of Tears - на мой взгляд написанная в несколько необычной манере для Gamma Ray, но при этом очень удачная.</p>
+<p> Очень радует тот факт, что сегодня, во временя засилья второсортного пауэр-метал, ветеранам стиля удается оставаться на высоте!</p>
+
+Автор: Vic Thor
+
+### 16.11.2001 news Bang Your Head Festival...
+
+<p>Вот список артистов уже подтвердивших свое участие в фестивале "Bang Your Head", который пройдет в Балингене (Германия) с 28 по 29 июня 2002: <BR><BR> GAMMA RAY <BR> MAGNUM <BR> SYMPHONY X <BR> TITAN FORCE (с участием фронтмэна JAG PANZER - Harry Conklin) <BR> RHAPSODY <BR> NEVERMORE <BR> OVERKILL <BR> VANDEN PLAS <BR> JAG PANZER <BR> TANKARD <BR> PARADOX <BR> IRON SAVIOR <BR> RAWHEAD REXX <BR> S.A. ADAMS <BR> RIVAL</p>
+
+Автор: Yermola
+
+### 27.02.2002 news Фестиваль PROGPOWER USA III ...
+
+<p>Объявлены даты и участники американского фестиваля PROGPOWER USA III. В этом году шоу пройдет с 15 по 16 ноября. Уже подтвердили свое участие BLIND GUARDIAN, ANGRA, GAMMA RAY, THRESHOLD. Для многих европейских участников это будет первым концертом на американской земле. "Мы с огромным энтузиазмом смотрим на то, чтобы впервые сыграть в США..." - сказал вокалист "BLIND GUARDIAN" - Hansi Kursch. “Мы чувствуем большую гордость быть хэдлайнерами на одном из прекраснейших американских фестивалей....". Kai Hansen (GAMMA RAY) добавил: "Мы собираемся показать американским металхэдам кое-что другое из Германии чем шнитцель и кислая капуста...". Двухдневные билеты будут стоить всего по 80 бумажек с портретами мертвых американских президентов...</p>
+
+Автор: Yermola
+
+### 27.02.2002 news BLIND GUARDIAN, GAMMA RAY, ANGRA confirmed For PROGPOWER USA III....
+
+<p>ATLANTA - ProgPower USA III, Atlanta's third annual progressive and power metal festival, has been announced for Friday, November 15 and Saturday, November 16 at Earthlink Live. <BR><BR> Confirmed bands include a number of artists making their first US appearances, including Germany's BLIND GUARDIAN, Brazil's ANGRA, Germany's GAMMA RAY, and the UK's THRESHOLD. <BR><BR> “With great enthusiasm we are looking forward to our first US appearance ever,” said BLIND GUARDIAN vocalist Hansi Kursch. “We really feel privileged and greatly honored to headline one of the finest and best US Metal Festivals. This festival will be our first opportunity to present us as one of the most intense and exciting metal bands around in these days.”<BR><BR> Added GAMMA RAY's Kai Hansen: “We're absolutely looking forward to playing the US for the first time and bringing the American metalheads something different from Germany other than Schnitzel and Sauerkraut. We're expecting to have a ball with a lot of people that are ready to rock and have a good time singing, screaming, raising hands and shirts (girls only) and banging brains out.”<BR><BR> Sweden's PAIN OF SALVATION, fresh off of an opening spot on the DREAM THEATER European tour, will be making their third trip to the States. Germany's EDGUY will also be returning to the U.S. for the second time. America's own READING ZERO, the only independent band on the roster, has secured one of the opening slots. Three roster spots are still to be confirmed over the coming weeks.<BR><BR> “I'm thrilled with this year's lineup, as I truly believe it is the best roster for progressive and power metal ever assembled in the U.S.,” said the event's organizer, Glenn Harveston.<BR><BR> Tickets will go on sale July 1 via all TicketMaster outlets. Only 850 two-day passes will be available to the public at a cost of $80 each. <BR><BR> ProgPower USA, an international affiliate of ProgPower Europe located in the Netherlands, was created to attract the top names in both the progressive and power metal genres. The first event was held at a small bar in Lansing, Ill., in February 2001 and featured the first U.S. appearance of PAIN OF SALVATION. The 350-capacity show sold out three months in advance. Due to popular demand, a second event was held in November 2001 and featured the most unique progressive and power metal roster in the States to date (SYMPHONY X, KAMELOT, ARK, EVERGREY, ANGEL DUST, SPIRAL ARCHITECT, plus others). The attendance increased in size to 750 with a crowd coming from 38 states and 15 countries.<BR><BR> ProgPower USA has various promotional opportunities for vendors, labels, and bands in the metal market. For more information and full details visit www.progpower.com.<BR><BR> ProgPower USA III is sponsored by Guitar Center in Marietta, Ga.</p>
+
+Автор: Yermola
+
+### 27.04.2002 news Henjo Rihter отказал Helloween
+
+<p>После продолжительных переговоров с лидером Helloween Michael Weikath гитарист Gamma Ray Henjo Rihter отказался перейти в его группу на замену Roland Grapow. Своё будущее он связывает с командой Kai Hansen. Также Gamma Ray объявили даты своих концертов в Европе этим летом. Стоит отметить три итальянских концерта вместе с Motorhead.</p>
+
+Автор: Vit Belov
+
+### 27.04.2002 news GAMMA RAY&#39;s HENJO RICHTER rejects HELLOWEEN
+
+<p>GAMMA RAY guitarist Henjo Richter will not be accepting HELLOWEEN's offer to join the latter band as a replacement for the departed Roland Grapow, according to GAMMA RAY's record label Sanctuary/Metal-Is Records.<BR> As you may recall, Richter had been holding discussions with HELLOWEEN mainman Michael Weikath about joining the latter act, but has now apparently decided to stay with Kai Hansen and co., much to the relief of GAMMA RAY fans everywhere. <BR> In other news, GAMMA RAY have lined up the following dates during the coming months:<BR> Jun. 07 - Sцlvesborg, SWE @ Sweden Rock Festival<BR> Jun. 18 - Rome, ITA @ Valle Giulia (w/MOTЦRHEAD)<BR> Jun. 19 - Turin, ITA @ Palastampa (w/MOTЦRHEAD)<BR> Jun. 20 - Venice, ITA @ Marcon Sport Area (w/MOTЦRHEAD)<BR> Jun. 28 - Balingen, GER @ Bang Your Head<BR> Jul 13 - Lorca, Spain Spain Lorca Lorca Rock<BR> Jul. 31 - Budapest, HUN @ Sziget Festival<BR> Aug. 01 - Zvolen, SK @ Sport's Hall<BR> Aug. 03 - Pratteln, SWI @ Z7 Metal Days<BR> Aug. 31 – Derby, UK @ Assembly Rooms (Bloodstock)<BR> Nov. 16 - Atlanta, GA @ ProgPower Festival</p>
+
+Автор: Vit Belov
+
+### 27.08.2002 news Новости от GAMMA RAY
+
+<p>Немецкие музыканты GAMMA RAY в октябре-ноябре отправляются в The Skeletons In the Closet Tour 2002 на основе которого будет записан новый концертный альбом группы. Название альбома будет то же самое, что и у тура. Выпуск его планируется в марте 2003 года. Вероятно, это даже будет двойной альбом. Сэт-лист тура составляется по голосованию на официальном сайте группы.</p>
+
+Автор: Dimas
+
+### 24.11.2002 news Malevolent Creation выступят на Wacken Open Air 2003
+
+<p>Malevolent Creation анонсировали своё участие в легендарном фестивале Wacken Open Air в 2003 году. Уже известно, что наряду с ними будут участвовать Iced Earth, Stratovarius, Nile, Gamma Ray и Dark Angel. После выхода восьмого студийного альбома группа планирует отправится в массивный тур, в том числе по Штатам вместе с Cannibal Corpse.</p>
+
+Автор: Vit Belov
+
+### 06.04.2003 news По техническим причинам...
+
+<p>GAMMA RAY перенесли дату релиза своего двойного концертника "Skeletons In the Closet" с мая на 25 августа. Объясняет это группа неожиданно возникшими техническими проблемами при микшировании альбома, в результате которых были утеряна некоторая аудиоинформация. <BR> Группа приносит извинения всем своим почитателям и обещает решить все технические проблемы в самый кратчайший срок.</p>
+
+Автор: Dimas
+
+### 18.07.2003 news Трэк-лист концертника GAMMA RAY
+
+<p>Стал известен окончательный трэк-лист концертного альбома германской группы GAMMA RAY "Skeletons In The Closet", который выйдет 25 августа на Metal-Is/Sanctuary Records. В альбом войдут:</p>
+<p> CD 1:</p>
+<p> 1. Welcome (1:06) <BR> 2. Gardens Of The Sinner (5:48) <BR> 3. Rich And Famous (5:13) <BR> 4. All Of The Damned (5:00) <BR> 5. No Return (4:13) <BR> 6. Armageddon (9:24) <BR> 7. Heavy Metal Universe (7:43)<BR> 8. One With The World (4:51) <BR> 9. Dan's Solo (5:21)</p>
+<p> CD 2:</p>
+<p> 1. Razorblade Sigh (4:59) <BR> 2. Heart Of The Unicorn (4:42) <BR> 3. Last Before The Storm (4:38) <BR> 4. Victim Of Fate (7:00) <BR> 5. Rising Star/Shine On (7:53) <BR> 6. The Silence (6:43) <BR> 7. Heaven Or Hell (4:17) <BR> 8. Guardians Of Mankind (5:22) <BR> 9. New World Order (8:23)</p>
+<p> Напомню, что материал альбома был записан в ходе одноименного прошлогоднего европейского тура группы. Альбом прошел микширование и мастеринг в собственной студии Кая Хансена им самим при помощи Дирка Шляхтера. Издание выйдет на двух компакт-дисках с тридцатидвухстраничным буклетом. Японское издание, которое выйдет 21 августа на JVC будет содержать бонус-трэк "I Want Out" (HELLOWEEN), который также был записан в ходе тура.</p>
+
+Автор: Dimas
+
+### 21.09.2003 reviews Не заводит!!!
+
+<P>Немцы GAMMA RAY пошли по годами проторенной дороге. Пусть они и велики в своём стиле, но никому не позволено так захламлять рынок. Второй концертник за 10 с небольшим&nbsp;лет - это много. Это очень много. Не надо забывать, что на десятилетний юбилей Kai Hansen издал ещё и сборник на 2CD, где что-то переиграл, что-то перепел, но не написал ничего нового. Новое ему, вообще, не очень хорошо удаётся. И если на новых&nbsp;CD&nbsp;фанаты найдут что-то новое, пусть не в мелодиях, так в аранжировках, то в концертном исполнение ничего подобного Вам не заполучить. Опять на 2CD, более 100 минут звучания, но совершенно без энергетики. Я никогда не был на концерте GAMMA RAY и не имею каких-то стойких ассоциаций с той или иной песней, поэтому мне ЭТО слушать совсем неинтересно. Как я думаю, будет неинтересно всем нашим согражданам, которые тоже были лишены возможности лицезреть немцев на сцене. Всё сыграно замечательно и профессионально, но очень пластмассово и без огонька. Когда надо погромче, когда надо потише, когда надо с надрывом даже, но всё точно, как на альбомах. Ухмыляющиеся лица участников коллектива, и такое грустно-задумчивое Кая: "<B>Что отдали Ваши денежки? Ну и слава Богу, можно отдохнуть где-нибудь с женой и ребёнком.</B>"</P>
+<P>Диск предоставлен магазином B2-100 в ТВЦ РУБИН</P>
+<CENTER>&gt;<IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 03.10.2003 news Iron Maiden and Gamma Ray in Europe
+
+Oct. 19 – Debrecen, HUN - Phoenix Hall <BR>Oct. 21 – Banska, SLO - Bystrica Sports Hall <BR>Oct. 22 – Prague, CZE - T-Mobile Arena <BR>Oct. 24 – Munich, GER - Olympiahalle <BR>Oct. 25 – Stuttgart, GER - Schleyerhalle <BR>Oct. 27 – Milan, ITA - Filaforum <BR>Oct. 28 – Firenze, ITA - Palasport <BR>Oct. 30 – Zurich, SWI - Hallenstadion <BR>Nov. 01 – Barcelona, SPA - Pavello Olympic Badolona <BR>Nov. 02 – Madrid, SPA - Palacio Vistalegre
+Автор: Vit Belov
+
+### 15.03.2004 news Kai Hansen и Hansi Kursch на новом альбоме ANGRA
+
+<P>Из неподтверждённых источников стало известно, что в записи нового альбома <B>ANGRA</B> приняли участие <B>Kai Hansen (GAMMA RAY)</B> и <B>Hansi Kursch (BLIND GUARDIAN).</B> Новый альбом бразильцев выходит в мае.</P>
+Автор: Vit Belov
+
+### 10.08.2004 news HELLOWEEN на SPV
+
+<P>По информации <B>Darkside.RU HELLOWEEN</B> заключили сделку с <B>SPV</B>&nbsp;и, соответственно, покинули <B>Nuclear Blast</B>.&nbsp;</P>
+<P>Из других новостей,&nbsp;в минувший уикэнд, один из создателей&nbsp;немецкой группы <B>HELLOWEEN</B> и ее бывший гитарист&nbsp;<B>Kai Hansen</B> (<B>GAMMA RAY</B>) устроил сюрприз всем поклонникам коллектива, выйдя на сцену во время выступления <B>HELLOWEEN</B> на <B>Wacken Open Air</B> и отыграв с ними две песни <B>"How Many Tears"</B>&nbsp;и <B>"Future World"</B>. </P>
+Автор: Vit Belov
+
+### 17.03.2005 news Новый альбом GAMMA RAY
+
+<P>Новый альбом немецких металлеров <STRONG>GAMMA RAY</STRONG> имеет рабочее название <STRONG>"Majestic"</STRONG>. Релиз запланирован на сентябрь 2005 года.</P>
+Автор: Dimas
+
+### 29.06.2005 news Новый альбом GAMMA RAY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>GAMMA RAY "Majestic"</STRONG> выходит 26 сентября на <STRONG>Sanctuary</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>My Temple</B> (4:57)<BR>02. <B>Fight</B> (3:24)<BR>03. <B>Strange World</B> (5:03)<BR>04. <B>Hell Is Thy Home</B> (4:46)<BR>05. <B>Blood Religion</B> (6:53)<BR>06. <B>Condemned To Hell</B> (4:56)<BR>07. <B>Spiritual Dictator</B> (5:38)<BR>08. <B>Majesty</B> (6:23)<BR>09. <B>How Long</B> (4:06)<BR>10. <B>Revelation</B> (8:30)</P>
+Автор: Vit Belov
+
+### 29.06.2005 news GAMMA RAY&#39;s new album
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>New album of <STRONG>GAMMA RAY "Majestic"</STRONG> will hit the stores on 26th of september. Track-list:</FONT></P>
+<P>01. <B>My Temple</B> (4:57)<BR>02. <B>Fight</B> (3:24)<BR>03. <B>Strange World</B> (5:03)<BR>04. <B>Hell Is Thy Home</B> (4:46)<BR>05. <B>Blood Religion</B> (6:53)<BR>06. <B>Condemned To Hell</B> (4:56)<BR>07. <B>Spiritual Dictator</B> (5:38)<BR>08. <B>Majesty</B> (6:23)<BR>09. <B>How Long</B> (4:06)<BR>10. <B>Revelation</B> (8:30)</P>
+Автор: Vit Belov
+
+### 13.09.2005 reviews Музыканты всех стран, утяжеляйтесь.
+
+<P>Очередное творение Кая Хансена сотоварищи. Музыка с каждым альбомом Гамма Рэй все меньше и меньше напоминает Хелловин, стены которого когда-то покинул Кай, чтобы собрать собственный коллектив. </P>
+<P>Что можно сказать о Majestic? Начнем с того, что пластинка получилась более скоростная и жесткая, чем предыдущая работа, что уже само по себе не может не радовать. Жесточайшие риффы ураганом обваливаются на слушателя, гитарные пассажи напоминают торнадо, сметающее все на своем пути. Последнее время я наблюдаю тенденцию к утяжелению репертуара коллективами, работающими в жанре power metal.</P>
+<P>Это можно было заметить на новом альбоме Эдгай, теперь вот и Гамма Рэй туда же.</P>
+<P>Стилистически команда сейчас скорее напоминает Iced Earth. В музыке переодически встречаются трэшевые элементы, не обошлось и без конкретных Judas Priest – овских ноток. Особенно они слышны в композициях Hell Is Thy Home и Condemned Hell .</P>
+<P>На мой скромный взгляд, пластинка более чем удалась. Majestic наверняка придется по вкусу не только старым фэнам группы, но и запросто сможет привлечь новых поклонников под знамена Gamma Ray.</P>
+<P>Все бы очень хорошо, если бы не одна ложка дегтя. В композициях на промо диске имеются помехи, напоминающие глушилки западных радиостанций в советское время. Я, конечно, понимаю – борьба с пиратством, и все такое, правильное дело, вот только слушать слегка обламывает. Ну что ж, подождем официального релиза.</P>
+Автор: Fucker
+
+### 28.10.2005 reviews Неискренний качественный power-metal
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Что происходит сейчас с <STRONG>GAMMA RAY</STRONG>? Этим вопросом задавались их поклонники последние несколько лет. После странного альбома 2001 года, на котором<STRONG> Kai Hansen</STRONG> вдоволь наэксплуатировал свой предыдущий хитовый материал, был выпущен концертник, больше похожий на студийник, а теперь...</FONT></P>
+<P>Многие хвалят "<STRONG>Majestic</STRONG>", вон, например, коллега <STRONG>Fucker</STRONG>. Да, видно, что <STRONG>KAI HANSEN</STRONG> попытался внести свежую струю в звучание группы. Альбом немного более тяжёлый. Именно так. "Немного более тяжёлый". И старых поклонников не отпугнёт и в пресс-релизе позволит хоть что-то написать. В качестве "<STRONG>Majestic</STRONG>" тоже не откажешь, даже смешно об этом упоминать. Альбом стандартен для <STRONG>GAMMA RAY</STRONG>. Все поклонники должны его купить и на том точка.</P>
+<P>P.S.: Мне же всё это показалось настолько вымученным, что прямо не по себе. Раньше подобное проходило, а сейчас даже кажется как-то неискренне всё это. Просто надо было писать альбом, его и записали. Ну и что, что не родилось не одной хитовой мелодии, просто включим наш стандартный "хансеновский" шарм, и все завизжат от удовольствия. И действительно визжат! Мне же кажется, что нестандартнейший новый <STRONG>STRATOVARIUS</STRONG> много лучше. Самое главное он более искренний и интересный. А <STRONG>GAMMA RAY</STRONG> мы, конечно же, на полочку поставим.</P>
+Автор: Vit Belov
+
+### 30.11.2005 articles GAMMA RAY в Москве и Санкт-Петербурге, пресс-релиз
+
+<P>Gamma Ray</P>
+<P>Москва: 27 января, УСЗ Дружба (Лужники)</P>
+<P>Санкт-Петербург: 28 января, ЛДМ</P>
+<P>Gamma Ray по праву называют одной из лучших групп современной металлической сцены. Фирменный саунд Gamma Ray – это мелодичный и претенциозный power metal в сочетании с позитивной и, в то же время, вызывающей лирикой, потрясающим гитарным звучанием и колоритным вокалом. Осенью 2005 года состоялся релиз нового альбома Gamma Ray “Majestic”. В рамках грандиозного мирового турне в поддержку нового альбома Gamma Ray впервые выступят в России. Концерты легендарной power metal группы состоятся 27 января в Москве и 28 января в Санкт-Петербурге. </P>
+<P>В 1989 году Кай Хансен (Kai Hansen) ушел из Helloween и основал группу Gamma Ray, которая довольно быстро добилась признания во всем мире. Дебютному альбому Gamma Ray “Heading for Tomorrow” (1990) сопутствовал бешеный успех. Только в Европе было продано 180000 экземпляров альбома. Мировое турне произвело фурор, особенно в Японии, и живым доказательством этому служит видео “Heading for the East”, записанное во время шоу в Токио.</P>
+<P>Несмотря на пессимизм и депрессивную лирику, следующий альбом “Sigh No More” (1991) был не менее успешным, чем&nbsp; его предшественник, и разошелся тиражом в 150000 пластинок. “Insanity & Genius” (1993) стал блестящим образцом взрывного speed metal. Концепция альбома “Land of the Free” (1995) представляла собой сочетание претенциозности “Heading for Tomorrow” c агрессивностью и напором Helloween в “Walls of Jericho”. Пространственный LP “Somewhere Out In Space” (1997) по звучанию напоминал концертные записи. После двух лет, проведенных в турах, группа выпустила гениальный альбом “Powerplant”, в котором саунд Gamma Ray стал более быстрым и тяжелым, не потеряв при этом своей мелодичности. </P>
+<P>Реинкарнация классических хитов Gamma Ray воплотилась в сборнике “Blast from the Past”, изданному к 10-летнему юбилею команды. Группа вернулась в студию и заново переписала свою старую классику, подарив ей новое, более современное звучание. В 2001 году Gamma Ray вновь оказались на вершине бушующей волны heavy metal, выпустив альбом “No World Order”и концертную пластинку “Skeleton in the Closet”, которую до сих пор считают самой лучшей концертной записью группы. Эти альбомы были высоко оценены международными музыкальными изданиями и вызвали единогласное восхищение публики.</P>
+<P>Gamma Ray всегда посвящали гастролям много времени, даря своим поклонникам сотни великолепных незабываемых шоу. Этим летом группа выступила на фестивалях Bang Your Head, Tuska и Monsters Of Rock, продемонстрировав публике, что они живы больше, чем когда бы то ни было. А 23 сентября 2005 года состоялся релиз долгожданного нового альбома Gamma Ray&nbsp; “Majestic”, который был записан в гамбургской Hansen Studio. Альбом состоит из 11 потрясающих треков, представляющих фирменное звучание группы от начала их музыкальной карьеры до сегодняшних дней.</P>
+<P>&nbsp;“Мы уверены, что долгое ожидание не было напрасным, и каждый из вас будет вознагражден за него этим альбомом, который действительно превзошел все наши ожидания”, - говорят музыканты.&nbsp; В конце ноября начинается масштабный тур, включающий&nbsp; Majestic American Tour, Majestic Japanese Tour и Majestic European Tour, в рамках которого Gamma Ray наконец выступят в России.</P>
+<P>Состав группы:</P>
+<P>Kai Hansen – гитара, вокал<BR>Henjo Richter - гитара<BR>Dirk Schl&#228;chter - бас<BR>Daniel Zimmermann - ударные</P>
+<P>Дискография:</P>
+<P>&#61558;&nbsp;Heading for Tomorrow – 1990<BR>&#61558;&nbsp;EP Heaven can wait – 1990<BR>&#61558;&nbsp;Sigh No More – 1991<BR>&#61558;&nbsp;Insanity and Genius – 1993<BR>&#61558;&nbsp;The Power of Metal (live) - 1993<BR>&#61558;&nbsp;Land of the Free – 1995<BR>&#61558;&nbsp;EP Silent Miracles – 1995<BR>&#61558;&nbsp;Alive’95 (live) – 1996<BR>&#61558;&nbsp;EP Valley of the Kings – 1997<BR>&#61558;&nbsp;Somewhere Out in Space – 1997<BR>&#61558;&nbsp;Powerplant –1999<BR>&#61558;&nbsp;Blast from the Past – 2000 <BR>&#61558;&nbsp;No World Order – 2001<BR>&#61558;&nbsp;Skeleton in the Closet (live) – 2002<BR>&#61558;&nbsp;Majestic – 2005</P>
+<P>Официальный сайт:</P>
+<P><A href="http://gamma-ray.com/">http://Gamma-Ray.com/</A><BR>&nbsp;<BR>Билеты:<BR>Москва –&nbsp; от 880 рублей, Санкт-Петербург – от 750 рублей.</P>
+Автор: Vit Belov
+
+### 20.01.2006 news Гитарист GAMMA RAY упал
+
+<P>Гитарист <STRONG>GAMMA RAY Henjo Richter</STRONG> упал с лестницы во время путешествия на пароме из Хельсинки в Стокгольм. В настоящее время <STRONG>Henjo</STRONG> находится дома в Гамбурге, где проходит курс реабилитации. Место гитариста во время текущего тура занял финн <STRONG>Kasperi Heikkinen</STRONG>&nbsp;из финской кавер-группы <STRONG>GUARDIANS OF MANKIND. </STRONG>В <STRONG>GAMMA RAY</STRONG> уже есть музыкант этого коллектива, клавишник <STRONG>Eero Kaukomies</STRONG>.</P>
+<P>Предположительно, <STRONG>Richter</STRONG> поправится к концерту в Москве.</P>
+Автор: Vit Belov
+
+### 30.01.2006 articles Концерт GAMMA RAY в Москве, 27.01.2006
+
+<DIV class=pna align=justify>Начну с «разогрева», пожалуй. Всего пару слов, больше уделять - смысла нет.<BR>В качестве открывающей выступление грандов группы, на сцене в который раз объявились московские “Blind-Guardian-oriented” power-металлисты SHADOW HOST. Надо отметить, что данная заслуженная (1993) формация успешно «разогревала» САМИХ «Гвардейцев» (уж не знаю, какой кровью им это удалось в 2002-м), STRATOVARIUS, GRAVE DIGGER, EDGUY, EDENBRIDGE, NIGHTWISH (!!), постоянно участвует в различных рок-фестивалях и вообще довольно известна в соответствующих кругах. Надо полагать, не только московских. Тем не менее, блистать у них ну никак не получается. Слабейшее место группы – крайне вторичный общий концепт и потрясающе безликая музыка. <BR><BR>Если первое понятно и простительно (создать оригинальный вариант чего бы то ни было всегда сложно, особенно в сегодняшнем поле российского power metal), то второе у меня лично вызывает крайнее неприятие и отторжение. Такое ощущение, словно безусловный сравнительный профессионализм Алексея Арзамазова и компании является предметом старательного глума со стороны самих музыкантов – почти все мелодии просты, заезжены и безлики. Положение несколько исправляет недавно вышедший альбом “Curse Of The Angeleye”, представляющий весьма разнообразные и запоминающиеся мелодии. <BR><BR>Но «живые» выступления группы вгоняют в безмерную тоску своей монотонностью и давящим на ранимую душу средним темпом, помноженным на штампованные рифы в смеси с крайне неоригинальной манерой пения, в общем неплохого, нового вокалиста.<BR>Разогревали нас около 45 минут, вызывая приступы зевоты. Партер всё это время стоял перед сценой как вкопанный и пораженный молнией, не шелохнувшись и практически не издав ни звука. Для рок-концерта, согласитесь, это весьма печальный факт (за исключением особых случаев, когда играют свои наиболее фееричные композиции, допустим, RUSH или SIEGES EVEN). <BR>В общем, разогрев был в целом неудачным, и российская группа удалялась со сцены под весьма неодобрительное шебуршание зрителей.<BR>
+<DIV class=pna align=justify>А потом, после небольшого технического перерыва, вышли ОНИ. Зал буквально взорвался.<BR><BR>Зазвучало вступление (“Welcome”, с первого альбома “Heading For Tomorrow”, 1990), в ходе которого со всех сторон на сцену просочились музыканты, начиная с барабанщика Дэна Цимермана (Dan Zimmermann) и заканчивая самим маэстро Каем Хансеном (Kai Hansen). Последний, к слову, приложил руку к созданию легендарных HELLOWEEN и отметился в ряде потрясающих групп и проектов (BLIND GUARDIAN, IRON SAVIOR, HEAVENLY, AVANTASIA и др.). GAMMA RAY же является полностью и только его детищем, румяным и зрелым, вскормленным после ухода из HELLOWEEN (1989) отборными heavy- и speed-металлическими блюдами.<BR><BR>Вступление, по истечении менее чем минуты, сменилось необычайно насыщенной вещью “Gardens Of The Sinner” (1999, альбом “Powerplant”), написанной по мотивам самого яркого новозаветного эпизода – Апокалипсиса из Откровения Иоанна. Стал заметен контраст между работой российских и немецких техников (и заодно между уровнем аппаратуры). GAMMA RAY звучали более свежо и профессионально во всех отношениях. Зал испустил мощный энергетический импульс одобрения.<BR>После религиозного (антирелигиозного?) гимна зазвучала “Heaven Can Wait” с дебютного же диска, по энергетике сравнимая с одноименной вещью IRON MAIDEN (1986, альбом “Somewhere In Time”, мой любимый у этой группы) и приведшая зал в полный восторг, граничащий с очень полным восторгом. Народ заметно оживился. Хансен корчил рожи и жонглировал своим незабываемым вокалом который, как казалось, не изменился со времен хэллоуиновского “Walls Of Jericho” (1985). Возможно, стал более мягче и глубже, что само по себе невероятно для рокера в возрасте. Но чертовски приятно для его слушателей. Гитара Хансена тоже держалась на недосягаемой для многих power-металлистов высоте. <BR>Пожалуй, на этой песне впервые стала заметна работа сессионного участника группы – финна Kasperi Heikkinen из финской кавер-группы GUARDIANS OF MANKIND. «Представляете! – кричал в перерывах между песнями Кай – Этот парень из финской кавер-группы GAMMA RAY!» Молодой финн смущенно улыбался и играл, удвоив усилия, как сущий дьявол, безупречно сливаясь в музыкальном потоке со всей группой. Материал он знал превосходно и на пресс-конференции (о ней я уже писал ниже) смотрелся как явный член коллектива (да-да, камрады; у вас на буклетах его автографы, а не повредившего руку Рихтера). Чтобы финн, тем не менее, полностью влился в состав, музыканты «Гаммы» решили не использовать на концерте сэмплы, а взять с собой его коллегу по группе – клавишника Eero Kaukomies. Который так же был неотделим от коллектива.<BR><BR>Затем последовали три вещи с нового альбома “Majesty” (2005), который мне пока послушать не довелось – “My Temple”, “Fight”, “Blood Religion” – почему я их и не смог оценить по достоинству. Вроде вещи неплохие, их надо слушать в домашних условиях. <BR>Затем же началось нечто невообразимое.<BR><BR>Прежде всего, GAMMA RAY решили ограничиться всего тремя песнями с нового альбома и порадовать нас своим классическим материалом. Откровенно говоря, для меня это стало сюрпризом, так как я ожидал непременной «раскрутки» нового стаффа группы. Не тут-то было. Зазвучало до боли знакомое вступление на ударных, и…<BR><BR><BR>…Моя любимая вещь у этой группы, мой внутренний гимн и фаворит на все времена – “One With The World”, песня со второго альбома (1991, «Sigh No More”) – звучала прямо со сцены передо мной. Вот здесь и я стал частью концерта:<BR><BR>When I'm one with the world<BR>I am one with my mind<BR>Forget all the fury there's no need to cry<BR>There's a place we all go, salvation to find<BR>There's freedom to come<BR>When I'm one with the world and my mind.<BR><BR>Мои ощущения описывать не стану – дело в данном случае второстепенное. Скажу лишь, что они были крайне положительными. Я получил массу удовольствия от исполнения этой вещи практически в том же виде, в каком она увидела свет на пластинке почти 15 лет назад. Песню пел весь зал, включая меня.<BR><BR>Далее последовала озорная и мэйнстримовая “Heavy Metal Universe” (1999, "Powerplant"), очередной гимн во славу тяжелой музыки. Зал фонтанировал энергией, музыканты были в полном восторге и улыбались во всю ширь своих большей частью арийских физиономий.<BR>Песня перешла в зубодробительное соло Дэна Цимермана, который вполне профессионально разрядил обстановку и дал отдохнуть уставшим глоткам пары тясяч рокеров. Это было жизненно необходимо перед следующей композицией.<BR><BR><BR>“Beyond The Black Hole” с полуконцептуального альбома “Somewhere Out In Space” (1997) взорвала и без того неспокойную атмосферу зала. Здесь стала по-настоящему заметной игра здоровенного бас-гитариста Дирка Шлэхтера (Dirk Schlachter), который сурово улыбался залу и жонглировал тяжелыми грудными мышцами, с безумной скоростью перебирая струны и гуляя по ладам своего инструмента. Ритм-секция безумствовала, Кай, казалось, едва поспевал за ней. Песня звучала сурово и призывно, заставляя многих вспомнить замечательный во всех отношениях 1997-й год.<BR><BR>Затем была относительно новая “New World Order” (с альбома “No World Order!”, 2001), повествующая о всепланетном заговоре илюминатов (фактически масонов) против населения современной Земли. Атмосфера концерта создалась потрясающая.<BR><BR>Лирическое вступление к следующей композиции подсказало слушателям, что на очереди “The Silence” с дебютного альбома. Её знали и любили многие почитатели творчества Хансена, поэтому зал не остался равнодушным и в этот раз. Перед сценой и на трибунах УСЗ «Дружба» загорелись маленькие огоньки карманных зажигалок. После этого зазвучали всеми любимые звуки вступления к альбому “Land Of The Free” (1995). То начиналась песня “Rebellion In Dreamland”, плавно после середины (спустя примерно 6 минут от начала) переходящая в саму “Land Of The Free”. <BR><BR>Надо отметить, что альбом “Land Of The Free” в дискографии GAMMA RAY примечателен фактом ухода годом ранее из команды вокалиста Ральфа Шиперса (Ralf Scheepers), который решился попытать счастья на вакантной должности у самих JUDAS PRIEST, правда безуспешно. Позднее он объявился в формации PRIMAL FEAR, организованной заслуженным немецким рокером Мэтом Синнером (Mat Sinner). Место же вокалиста в GAMMA RAY занял сам Хансен, в том же 1994 году.<BR><BR><BR>Итак, песни с этого бессмертного произведения были встречены публикой весьма благосклонно. После этого удачного перфоманса группа было раскланялась и удалилась со сцены, но не тут-то было!<BR><BR>Мы с вами, дорогие читатели отчетов и почитатели рок-музыки знаем, конечно же, что все (или почти все) выходы «на бис» запланированы менеджментом группы в связи с временем аренды зала, состоянием музыкантов и прочими факторами. Поэтому никто не удивился, когда GAMMA RAY объявились на сцене вновь и вновь «взялись за старое». А именно за исполнение прекраснейшей песни “Valley Of The Kings” с почти уже классического альбома группы “Somewhere Out In Space” (1997, как я уже говорил). Эта вещь любима многими, включая вашего покорного слугу. Зал пел и аплодировал без устали, музыканты хитро переглянулись и сыграли заглавную вещь с упомянутого альбома. <BR>Зал неистовствовал. Выход «на бис» закончился завершением песни “Rebellion In Dreamland” (которая, как мы помним, плавно перетекла в “Land Of The Free”, так и не окончившись). Включили легкое освещение, группа удалилась со сцены, некоторые почитатели рок-музыки тоже начали расходиться… Однако основная масса не желала окончания праздника и продолжала упрямо скандировать, громко хлопая в ладоши: “Ga-mma-Ray!! Ga-mma-Ray!!”<BR><BR>По совести говоря, дорогие читатели, в такой ситуации из-за кулис не вышел бы только абсолютно бессердечный человек. И музыканты, не будучи людьми черствыми, вновь почтили сцену своим присутствием.<BR><BR><BR>Уже успевший снять промокшую кожаную жилетку Дирк Шлэхтер, блестящий от пота Кай Хансен, суровый Дэн Цимерман и устало улыбающиеся финны были встречены оглушительным ревом зала. “Мы сыграем для вас ещё немного! – прокричал Кай в микрофон – Эта песня... о свободе!» Последующее объяснение потонуло в радостном едином выкрике и шквале аплодисментов. Группа заиграла легендарный боевик, написанный Каем ещё для HELLOWEEN в 1985 году – “Ride The Sky”:<BR><BR>Ride the Sky!!! - пел зал вслед за Хансеном – <BR>Ride the Sky!!!<BR>Give me wings to fly <BR>Ride the sky!!!<BR><BR><BR>Не успев окончиться, песня перешла в ещё один хэллоуиновский легендарный боевик, одну из лучших песен за всю историю группы – гимн всех оптимистически настроенных и просто дружелюбных людей, “Future World” (HELLOWEEN 1987, альбом “Keeper Of The Seven Keys, pt. I”). Зал в едином порыве, заставив стражей закона, охраняющих мероприятие, недоуменно сбиться в группы, пел:<BR><BR>’Cause we all live<BR>In future world!<BR>A world that’s full of love!<BR>Our future life<BR>Will be glorious<BR>Come with me, future world!!!<BR><BR><BR>Вслед за предыдущей, эта композиция также незадолго до завершения плавно перетекла в мою любимую (на этот раз у HELLOWEEN) песню “I Want Out” (1988, альбом “Keeper Of The Seven Keys, pt. II”). Вещь звучала неотличимо от оригинала, зал вслед за группой пропевал с детства знакомые многим строки:<BR><BR>I want out - to live my life alone<BR>I want out - leave me be<BR>I want out - to do things on my own<BR>I want out - to live my life and to be free!!<BR><BR><BR>Концерт закончился. «Мы первый раз были в России – кричал Кай нам – Мы ни разу не видели такого приема и не ждали его здесь! Спасибо всем вам! Мы обязательно приедем вновь!»<BR><BR><BR>Музыканты становятся рядом и кланяются публике. Их лица светятся счастьем – их любят и помнят, они нужны и оценены. Мы тоже счастливы и расходимся по домам. <BR><BR><BR>Очень теплый зимний вечер над Лужниками словно согрет невидимыми гамма-лучами, исходящими от каждого, кому удалось сегодня увидеть замечательную немецкую группу GAMMA RAY.<BR><BR><BR><BR>27.01.2006.<BR></DIV></DIV>
+Автор: Vlad
+
+### 07.04.2006 news GAMMA RAY снимут DVD
+
+<P><STRONG>GAMMA RAY</STRONG> снимут материал для выходящего в сентябре двойного DVD 6 мая на концерте в Монреале. Релиз станет первым видео для данного состава группы.</P>
+Автор: Vit Belov
+
+### 08.08.2006 news Планы GAMMA RAY
+
+<P>Немецкий коллектив&nbsp;<STRONG>GAMMA RAY</STRONG> объявил, что их новый альбом будет называться&nbsp;<STRONG>"Land of the Free Part II"</STRONG> и увидит свет в конце 2007 года. Альбом будет концептуальным продолжением работы 1995&nbsp;года <B>"Land of the Free"</B>.<BR>До этого, <B>GAMMA RAY</B>&nbsp;планирует выпустить свой новый двд&nbsp;<B>"Hell Yeah! The Awesome Foursome (And The Finnish Keyboarder Who Didn't Want To Wear His Donald Duck Costume) Live in Montreal"</B>. Туда войдут многокамерные съемки канадского шоу группы от 6 мая 2006 года, со множеством бонус-материалов, документальной историей группы, закулисными съемками и видеоклипами. </P>
+Автор: Dimas
+
+### 21.03.2007 articles Международный рок-фестиваль «EXTREME POWER» в Киеве: пресс-релиз.
+
+<P>РЕЗЮМЕ.</P>
+<P>Название: Международный рок-фестиваль «EXTREME POWER».<BR>Дата проведения фестиваля: 15 апреля 2007 года.<BR>Место проведения: Киевский Дворец Спорта<BR>Зрители фестиваля: более 8 000 человек<BR>Возраст аудитории:&nbsp; от 14 до 50 лет <BR>Доход: средний и выше среднего<BR>География фестиваля: Украина и ближнее зарубежье (Россия, Беларусь, Молдова)</P>
+<P>Хедлайнеры фестиваля:</P>
+<P>- GAMMA RAY (Германия)</P>
+<P>О команде:&nbsp; Монстры&nbsp; мировой рок сцены немецкая группа Gamma Ray (проект основателя Helloween и одного из лучших гитаристов мира, Кая Хансена) более 15 лет является ведущим представителем своего стиля музыки. В свое время команда была&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; образована участниками группы «Helloween». В январе 2007 года Gamma Ray впервые доехали до Москвы, где собрали на своем концерте около 20 000 человек , и вот спустя несколько месяцев, в апреле , украинские поклонники «Gamma Ray» также&nbsp; впервые смогут увидеть своими&nbsp; глазами легенду мирового рока которая завоевала сердца миллионов слушателей по всему земному шару.</P>
+<P>Дискография: <BR>1990 - "Heading For Tomorrow" <BR>1991 - "Sign No More" <BR>1993 - "Insanity And Genius"&nbsp; <BR>1995 - "Land Of The Free"&nbsp; <BR>1996 - "Alive 95"&nbsp; <BR>1997 - "Somewhere Out In Space"&nbsp; <BR>1999 - "Powerplant" <BR>2000&nbsp; - "Blast From The Past"<BR>2001 - "No World Order!" <BR>2003 - "Skeletons In The Closet" <BR>2005 - "Majestic" </P>
+<P>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>&nbsp;</P>
+<P>- HATEBREED (CША) </P>
+<P>О команде: Команда из Нью-Хэвена(США) "Hatebreed" образовалась в конце 1993 года, кто тогда знал что через 10 лет после своего существования эти ребята будут диктовать стиль в коровой музыке во все мире, а именно так и случилось. На сегодня группа&nbsp; "Hatebreed" является хедлайнерами многих <BR>фестивалей по всему миру, в прошлом году они были главной командой на самом масштабном и престижном фестивале “OzzFest”, команды на который выбирает сам Оззи Озборн.<BR>Более 1 млн. проданных дисков, а в 2006 году альбом "Hatebreed", «Supremacy», занял 17 место в штатовских чартах. Ребята даже сумели поучаствовать саундтреком к голливудском екшену «ХХХ-2».<BR>Конечно приезд такой команды в Киев вызвал ажиотаж среди всех любителей «хардкор» музыки, и учитывая то , что в апреле будет первый концерт группы на территории СНГ, фанаты&nbsp; "Hatebreed" из Москвы, Минска также спешат в столицу Украины. </P>
+<P>Дискография: <BR>1995 - HATEBREED / NEGLECT split 7" <BR>1995 - HATEBREED / INTEGRITY split 7" <BR>1996 - Under the Knife 7"EP <BR>1997 - Satisfaction is the Death of Desire <BR>2002 - Perseverance <BR>2003 - The Rise of Brutality <BR>2006 - Supremacy </P>
+<P>А также на фестивале : </P>
+<P>- SINISTER (Голландия), легенда Европейского масштаба, команда основана в 1988 году.</P>
+<P>- DARK FUNERAL (Швеция), Всемирно известное имя, одна из лучших команд в стиле “black metal”.</P>
+<P>- FLESHGORE (Украина), лидеры экстремальной сцены СНГ, более 100 концертов и фестивалей в 17 странах, <BR>всемирная дистрибуция, единственная группа на территории СНГ сумевшая прорваться в Европу.</P>
+<P>&nbsp;</P>
+<P><BR>ОРГАНИЗАТОР: Рекламное агентство&nbsp; «Лаборатория рекламы» </P>
+<P>Контакты:<BR>Официальный сайт фестиваля: <A href="http://www.extremepowerfestival.com/">http://www.extremepowerfestival.com</A><BR>Адрес электронной почты : <A href="mailto:info@extremepowerfestival.com">info@extremepowerfestival.com</A></P>
+<P>Телефоны: + 38 044 531 61 71<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; + 38 067 230 86 32<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; + 38 050 386 18 70</P>
+Автор: Vit Belov
+
+### 25.09.2007 news Новый альбом GAMMA RAY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В ближайшем будущем выходит новый альбом<STRONG> GAMMA RAY</STRONG> <STRONG>"Land of the Free Part II". </STRONG>Стал известен трэк-лист пластинки:</FONT></P>
+<P>01. <B>Rising Again</B> (0:28)<BR>02. <B>To Mother Earth</B> (5:09)<BR>03. <B>Empress 6:22, Rain</B> (5:20)<BR>04. <B>Into The Storm</B> (3:45)<BR>05. <B>When The World</B> (5:43)<BR>06. <B>From The Ashes</B> (5:30)<BR>07. <B>Leaving Hell</B> (4:20)<BR>08. <B>Real World</B> (5:44)<BR>09. <B>Hear Me Calling</B> (6:45)<BR>10. <B>Opportunity</B> (7:15)<BR>11. <B>Insurrection</B> (11:30)</P>
+Автор: Vit Belov
+
+### 26.09.2007 news GAMMA RAY на SPV
+
+<P><STRONG><IMG height=396 alt="" hspace=0 src="/images/news_rus/2007.09/11900.jpg" width=400 align=right border=5>GAMMA RAY</STRONG> подписали контракт с <STRONG>SPV</STRONG> на выпуск нового альбома "<STRONG>Land Of The Free II</STRONG>". Пластинка выйдет 19 ноября.</P>
+<P>Эта новость означает, что новая работа знаменитых немцев в России&nbsp;вновь увидит свет на <STRONG>Союзе</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.11.2007 news HELLOWEEN и GAMMA RAY стартовали в Будапеште
+
+<P>В пятницу 16 ноября в Будапеште стартовал широко разрекламированный совместный тур <STRONG>HELLOWEEN</STRONG> и <STRONG>GAMMA RAY</STRONG> <STRONG>"Hellish Rock '07-08". </STRONG>Изданию<STRONG> Blabbermouth</STRONG> стали известны сэт-листы выступлений групп: </P>
+<P><STRONG><IMG height=285 alt="Hansen, Weikath, Deris на одной сцене" hspace=0 src="/images/news_rus/2007.11/11980.jpg" width=383 align=right border=5>GAMMA RAY</STRONG>:<BR>01. <B>Intro: Welcome</B><BR>02. <B>Heaven Can Wait</B> <BR>03. <B>New World Order</B> <BR>04. <B>Land Of The Free</B> <BR>05. <B>Fight</B> <BR>06. <B>Into The Storm</B> <BR>07. <B>Real World</B> <BR>08. <B>Rebellion In Dreamland</B> <BR>09. <B>Heavy Metal Universe</B> <BR>10. <B>The Silence</B> <BR>11. <B>Ride The Sky</B> <BR>12. <B>Valley Of The Kings</B> <BR>Encore: <BR>13. <B>Send Me A Sign</B><BR><BR><B>HELLOWEEN</B>: <BR>01. <B>Halloween</B><BR>02. <B>Sole Survivor</B><BR>03. <B>March Of Time</B><BR>04. <B>As Long As I Fall</B><BR>05. <B>Eagle Fly Free</B><BR>06. <B>Paint A New World</B><BR>07. <B>A Tale That Wasn't Right</B><BR>08. <B>Drum Solo</B><BR>09. <B>The Bells Of The Seven Hells</B><BR>10. <B>We Burn</B><BR>11. <B>King For A 1000 Years</B><BR>12. <B>Dr. Stein</B><BR>13. Medley: <B>I Can</B> / <B>Where The Rain Grows</B> / <B>Perfect Gentleman</B> / <B>Power</B> / <B>If I Could Fly</B> / <B>Steel Tormentor</B> / <B>Keeper Of The Seven Keys</B><BR>14. <B>Future World</B> (with GAMMA RAY)<BR>15. <B>I Want Out</B> (with GAMMA RAY)</P>
+Автор: Vit Belov
+
+### 03.12.2007 reviews «Великое возвращение» от GAMMA RAY
+
+<P>Есть такой термин в НХЛ (национальная хоккейная лига) – «великое возвращение» (что-то такое). Это когда команда проигрывает, например, 0-4, а затем сравнивает счёт и даже выходит вперёд. Немцы GAMMA RAY со своим новым альбомом “Land Of The Free II” совершили именно такое «великое возвращение».</P>
+<P>В этом веке альбомы группы были на редкость неудачными. И если “No World Order” рьяные поклонники группы ещё могли «переварить», то последний “Majestic” вышел настолько занудным, что многие поставили на GAMMA RAY крест. Мол, повторяется старик Кай, не может ничего выдать, задор потерял. А уж когда коллектив заявил, что запишет сиквел своего популярнейшего альбома “Land Of The Free” 1995-го года, мы, послушав уже «третьего кипера», совсем заскучали. И вот на тебе…</P>
+<P>В отличие от группы-побратима HELLOWEEN, GAMMA RAY подошли к идее продолжения более творчески. Кай Хансен попытался восстановить дух и концепцию той пластинки. Где-то даже он восстановил и мелодику, постоянные соляки, ураганный темп, не мешающий мелодизму, мелодические заимствования из классики музыки. Например, в этот раз группа обыграла нашу «народную» песню «Полюшко, поле». Альбом слушается на одном дыхании. Именно подобный материал и ждали фэны GAMMA RAY все эти годы.</P>
+<P>В чём причина произошедшего? Мне кажется, power-metal губит излишняя самоуверенность и неудовлетворённость музыкантов его играющих. С возрастом у людей возрастают амбиции, им надоедает делать что-то одно, а на полноценный сайд-проект ни сил, ни времени не хватает. Вот и вносят в музыку основной группы весь тот, по большому счёту, мусор, который скапливается в голове во время длительных туровых переездов. Например, на неплохом альбоме “Somewhere Out In Space” Кай Хансен достал всех со своими космическими изысканиями и постоянными пересечениями с первым альбомом IRON SAVIOR. Помнится, я “Powerplant” невзлюбил. Теперь-то я понимаю, что это было только начало конца. На “Majestic” GAMMA RAY и вовсе пустились во все тяжкие, полностью отказавшись от «избитых», с их точки зрения, мелодических решений. Я не верю, что такие композиторы, как Кай Хансен, не могут сочинить кучу хитов на один альбом в два года. Легко. Пускай, звучит новый альбом не очень оригинально, но он реально нравится, а что ещё надо. Всё-таки power-metal – это не progressive-metal, и мы хотим получать от него именно такое весёлое настроение.</P>
+<P>GAMMA RAY сделали реальную заявку на звание «лучший power-metal альбом года». Пускай, это лишь подтвердит мысли о застое в стиле, как таковом. Спросите любого фэна power-metal, что он предпочтёт такой застой или невнятное движение куда-то вперёд.</P>
+Автор: Vit Belov
+
+### 03.12.2007 reviews Кай Хансен наносит ответный удар... мимо ворот
+
+<P>Новое творение Кая Хансена сотоварищи, то бишь группы Gamma Ray, можно расценивать двояко. Если мы для себя решим, что альбомы ни этот коллектив, ни такие исполнители, как Iron Maiden, Helloween или Running Wild, ранее не выпускали, то можно поставить "Land Of The Free II" довольно высокий балл. Если мы всё же будем учитывать творения упомянутых команд, то слишком хорошая оценка группе тут не светит. Можно, конечно же, утверждать, что у Хансена такое особенное чувство юмора и что вся пластинка это большой и веселый стёб над всем жанром спид- и пауэр-метала в общем и над вышеназванными ВИА в частности, но от того, что тут и там проскальзывают целые цитаты других артистов (или же себя, любимых), всё равно никуда не деться (и даже нашу "Полюшко-поле" не забыли!). Вероятно, Кай был немало оскорблен,&nbsp;что его бывшие коллеги по Helloween столь вольно обошлись с названием своей предыдущей пластинки (речь, конечно же, о "Keeper Of The Seven Keys III - The Legacy"), и удалился вымучивать обиду. Вымучить удалось на целых 65 минут (ох, многовато это все-таки для пауэрного альбома!), и Gamma Ray, думаю, сознательно не стали "умрачнять" своё звучание, а постарались написать песни в как можно более позитивном ключе; что, кстати, прозвучало сильным контрастом с последней работой Helloween "Gambling With The Devil". Впрочем, Хансен не тот человек, который будет сильно заморачиваться по поводу каких-то там цитат и заимствований, будь то Iron Maiden или те же Helloween. Знать ничего не знаю, ведать ничего не ведаю, что пришло в голову, то и сочинил - таков, вероятно, сегодняшний девиз Кая. Если же мы будем сравнивать - что, по понятным причинам, практически неминуемо - новые альбомы Gamma Ray и Helloween, то лично я отдаю предпочтение "тыквоголовым" уже хотя бы потому, что они решили не выезжать на старых штампах и вновь не боятся экспериментировать со своим саундом. Вполне могу предположить, что любителям "более классического" Хелловина такое не очень по душе, да и "Land Of The Free II" по тем же причинам им будет ближе. Кто же все-таки жаждет хоть какой-то свежей струи в музыке ВИА под управлением Кая Хансена, тот может совершенно спокойно сэкономить часок и не слушать данный альбом. Чего бы не хотел Кай сказать этой работой, по-моему мнению, его ответный удар скорее в духе футболистов сборной России, то бишь мимо ворот.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.01.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке
+
+<P>Мы возвращаем "в эфир" нашу рубрику TOP продаж. Её спонсором является магазин "<STRONG>Metal&Progressive</STRONG>" (B2-074 в торговом центре "<STRONG>Горбушкин Двор</STRONG>" на метро Багратионовская). В рейтинг попадают альбомы,&nbsp;лидеры&nbsp;продаж за последние два месяца. Сегодня представляем ноябрь и декабрь прошедшего года. Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=686 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 193pt; mso-width-source: userset; mso-width-alt: 9398" width=257>
+<COL style="WIDTH: 226pt; mso-width-source: userset; mso-width-alt: 11008" width=301>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17 x:num><FONT face="Times New Roman" size=2>1</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257 x:str="HELLOWEEN "><FONT size=2><STRONG><FONT face="Times New Roman">HELLOWEEN<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2><STRONG>GAMBLING WITH THE DEVIL</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>2</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>GAMMA RAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LAND OF THE FREE 2</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>3</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭПИДЕМИЯ</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭЛЬФИЙСКАЯ РУКОПИСЬ 2</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>4</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>TARJA TURUNEN</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>MY WINTER STORM</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>5</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NIGHTWISH</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DARK PASSION PLAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>6</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DIARY OF DREAMS</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEKROLOG 43</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>7</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PRIMAL FEAR</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEW RELIGION</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>8</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>EXODUS</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>THE ATROCITY EXHIBITION</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>9</FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PAIN</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PSALMS OF EXTINCTION</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>10</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LOST IN SPACE pt.1</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>11</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AT VANCE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VII</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>12</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMPIRE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CHASING SHADOWS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>13</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.2</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>14</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>АРКОНА</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ОТ СЕРДЦА К НЕБУ</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>15</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>XANDRIA</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SALOME<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>THE SEVENTH VEIL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>16</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>17</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAKRA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>INFECTED</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>18</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ-1</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>19</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>20</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SAMSAS TRAUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLIGES HERZ - DAS SCHWERT DEINER SONNE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>21</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUBWAY TO SALLY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>BASTARD</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>22</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KRUIZ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>23</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>DARKTHRONE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>F.O.A.D.</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>24</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SVARTSOT</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HEAVENS SAGA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>25</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EPICA</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE DIVINE CONSPIRACY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>26</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>AXEL RUDI PELL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2>DIAMONDS UNLOCKED</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>27</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARADISE LOST</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN REQUIEM</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>28</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>OVERKILL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IMMORTALIS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>29</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RIDE THE SKY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW PROTECTION</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>30</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VESANIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISTRACTIVE KILLUSIONS</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>31</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SYBREED</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ANTARES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>32</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KORPIKLAANI</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TERVASKANTO</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>33</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAMAN</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="IMMORTAL  "><FONT size=2><FONT face="Times New Roman">IMMORTAL<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>34</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JADED HEART</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SINISTER MIND</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>35</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>36</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>37</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SOILWORK</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWORN TO A GREAT DIVIDE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>38</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MAYHEM</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ORDO AD CHAO</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>39</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MARDUK</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ROM 5:12</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>40</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARY HUGHES</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VERITAS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>41</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>HANOI ROCKS</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>STREET POETRY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>42</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>U.D.O.</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MASTERCUTOR</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>43</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>RAINTIME</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>FLIES & LIES</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>44</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ONSLAUGHT</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KILLING PEACE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>45</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLRAISER</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>WE'LL BURY YOU</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>46</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GAINA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СНОВА ТВОЙ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>47</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MACBETH</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUPERANGELIC HATE BRINGER</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>48</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIMMU BORGIR</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN SORTE DIABOLI</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>49</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СЕРГЕЙ МАВРИН</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MADE IN ПИТЕР [DVD]</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>50</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JORDAN RUDESS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ROAD HOME</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 18.01.2008 news GAMMA RAY отсняли ещё одно шоу
+
+<P>Во время концерта в рамках <STRONG>Hellish Tour</STRONG> в Барселоне были отсняты выступления всех трёх групп, участвующих в туре, <STRONG>AXXIS</STRONG>, <STRONG>GAMMA RAY</STRONG> и <STRONG>HELLOWEEN</STRONG>. Как будут использоваться съёмки <STRONG>HELLOWEEN</STRONG> и <STRONG>AXXIS</STRONG>, пока не известно. Выступление<STRONG> GAMMA RAY</STRONG> войдёт на их долгожданный DVD <STRONG>"Hell Yeah! The Awesome Foursome (And The Finnish Keyboarder Who Didn't Want To Wear His Donald Duck Costume) Live in Montreal". </STRONG>Также на этот DVD попадёт концерт<STRONG> GAMMA RAY</STRONG> в Монреале 6 мая 2006 года.</P>
+Автор: Vit Belov
+
+### 22.01.2008 news Вокалист METALIUM выступил с GAMMA RAY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист/гитарист <STRONG>GAMMA RAY Kai Hansen</STRONG> заболел гриппом во время тура группы в Испании. Врачи запретили <STRONG>Kai </STRONG>петь и на выручку поспешил старый друг знаменитого музыканта вокалист <STRONG>METALIUM Henning Basse</STRONG>. Видео "<STRONG>Heaven Can Wait</STRONG>" с концерта в Люго можно посмотреть ниже.</FONT></P>
+<P><center><object width="425" height="373"><param name="movie" value="http://www.youtube.com/v/qzkedmWUhQk&rel=1&border=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/qzkedmWUhQk&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></object></center></P>
+Автор: Vit Belov
+
+### 04.02.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В эфире "голосование деньгами" за декабрь-январь. <FONT color=#ddd9d0>Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</FONT></FONT></P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=686 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 193pt; mso-width-source: userset; mso-width-alt: 9398" width=257>
+<COL style="WIDTH: 226pt; mso-width-source: userset; mso-width-alt: 11008" width=301>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17><FONT face="Times New Roman" size=2><STRONG>1 (4)</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>TARJA TURUNEN</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2><STRONG>MY WINTER STORM</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>2 (NEW)</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>THE SCARECROW</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>3 (2)</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>GAMMA RAY</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LAND OF THE FREE 2</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>4 (5)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NIGHTWISH</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DARK PASSION PLAY</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>5 (18)</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>КРУИЗ</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>КРУИЗ-1</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>6 (17)</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>SHAKRA</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>INFECTED</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>7 (NEW)</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ANDRE MATOS</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>TIME YO BE FREE</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>8 (1)</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257 x:str="HELLOWEEN "><FONT size=2><STRONG><FONT face="Times New Roman">HELLOWEEN<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>GAMBLING WITH THE DEVIL</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>9 (3)</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭПИДЕМИЯ</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭЛЬФИЙСКАЯ РУКОПИСЬ 2</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>10 (34)</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>JADED HEART</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>SINISTER MIND</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>11 (23)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>DARKTHRONE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>F.O.A.D.</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>12 (33)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAMAN</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="IMMORTAL  "><FONT size=2><FONT face="Times New Roman">IMMORTAL<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>13 (22)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KRUIZ</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>14 (7)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PRIMAL FEAR</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW RELIGION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>15 (12)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMPIRE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CHASING SHADOWS</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>16 (10)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.1</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>17 (30)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VESANIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISTRACTIVE KILLUSIONS</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>18 (37)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SOILWORK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWORN TO A GREAT DIVIDE +1 bonus track</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>19 (13)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.2</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>20 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CODEX, THE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CODEX, THE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>21 (19)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>22 (35)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>23 (40)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARY HUGHES (solo TEN)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VERITAS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>24 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISARMONIA MUNDI</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MIND TRICKS</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>25 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>POODLES, THE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWEET TRADE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>26 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ROB ROCK</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARDEN OF CHAOS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>27 (NEW)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>SIEGES EVEN</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARAMOUNT</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>28 (47)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MACBETH</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUPERANGELIC HATE BRINGER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>29 (25)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EPICA</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE DIVINE CONSPIRACY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>30 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LONDON AFTER MIDNIGHT</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VIOLENT ACTS OF BEAUTY</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>31 (48)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIMMU BORGIR</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN SORTE DIABOLI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>32 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DEBAUCHERY</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>BACK IN BLOOD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>33 (8)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EXODUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ATROCITY EXHIBITION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>34 (28)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>OVERKILL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IMMORTALIS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>35 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="VENDETTA "><FONT size=2><FONT face="Times New Roman">VENDETTA<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TYRANY OF MINORITY</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>36 (29)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RIDE THE SKY (feat. Gamma Ray, Helloween, Masterpaln ex-members)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW PROTECTION +1 bonus track</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>37 (6)</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIARY OF DREAMS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEKROLOG 43</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>38 (46)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GAINA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СНОВА ТВОЙ</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>39 (27)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARADISE LOST</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN REQUIEM</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>40 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>АРКОНА</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ОТ СЕРДЦА К НЕБУ</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>41 (NEW)</FONT></TD>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NORTHER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NO WAY BACK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>42 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ASP</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DER SCHWARZE SCHMETTERLING</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>43 (16)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>44 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SEAR BLISS</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ARCANE ODYSSEY</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>45 (9)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PAIN</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PSALMS OF EXTINCTION</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>46 (Re)</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>UNIA</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>47 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>AXEL RUDI PELL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIAMONDS UNLOCKED</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>48 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>WINDS (feat. Mayhem, Khold members)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PROMINENCE AND DEMISE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>49 (32)</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KORPIKLAANI</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TERVASKANTO</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>50 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MIND'S EYE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>A GENTLEMAN'S HURRICANE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 31.05.2008 news HELLOWEEN и GAMMA RAY выступят в России вместе
+
+<P><STRONG>HELLOWEEN</STRONG> и <STRONG>GAMMA RAY</STRONG> анонсировали три&nbsp;даты в России:</P>
+<P>Sep. 06 - Санкт-Петербург -&nbsp;ДК Ленсовета&nbsp;<BR>Sep. 07 - Москва - Б1<BR>Sep. 09 - Краснодар - Олимпийский</P>
+Автор: Vit Belov
+
+### 09.08.2008 news Helloween &amp; Gamma Ray. Б1 MAXIMUM.
+
+<P><IMG height=200 alt="" hspace=0 src="/images/shows_rus/2008.09/12659.jpg" width=400 align=left border=5>Концертные агентства</P>
+<P>PROMO END & SPIKA</P>
+<P>представляют:</P>
+<P>8 сентября<BR>- Helloween & Gamma Ray. Б1 MAXIMUM. </P>
+<P><BR>HELLOWEEN и GAMMA RAY – две легенды немецкого металла, рожденные в восьмидесятые годы прошлого века c легкой руки Кая Хансена. HELLOWEEN, так быстро ставшие звездами первой величины и законодателями мод, достаточно быстро стали некомфортны своему создателю: уже через несколько лет Хансен ушел из группы, чтобы начать все с нуля в новом коллективе под названием GAMMA RAY. Эти две банды вот уже много лет то явно, то скрыто соперничают между собой, удивляя поклонников порой гениальными, а иногда и не очень удачными альбомами. За свою историю бывали периоды и дружбы, и «холодной» войны: то GAMMA RAY милостиво делилась на время Хеньо Рихтером, то HELLOWEEN трудоустраивало отчисленного Куша, то Хансен во всеуслышание объявлял, что ему нет никакого дела до современного HELLOWEEN и он даже ни разу и не слышал, что они играют с тех пор, как он покинул группу... </P>
+<P>К счастью, со временем многие проблемы сглаживаются. Сейчас HELLOWEEN и GAMMA RAY – это коллективы с общей историей и схожей музыкой. Одиночные несмелые сообщения на интернет-форумах от поклонников, делящихся мечтами о том, чтобы увидеть обе группы на одной сцене вместе, переросли в оживленную дискуссию. В результате оба коллектива объединились, для того, чтобы отправиться в совместный большой тур - HELLISH ROCK TOUR 2007 – 2008, в ходе которого зрители разных стран смогли не только за один вечер увидеть на одной сцене оба коллектива, но и оценить совместное выступление музыкантов. </P>
+<P>И вот наконец HELLISH ROCK TOUR докатился и до Москвы! 8 сентября в клубе Б1 MAXIMUM HELLOWEEN и GAMMA RAY устроят настоящее европейское шоу для всех поклонников хэви-металл!</P>
+<P>Официальный сайт HELLOWEEN: <A href="http://www.helloween.org/">http://www.helloween.org/</A></P>
+<P>Сайт клуба: <A href="http://www.b1club.ru/">http://www.b1club.ru/</A>&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 19.09.2008 news Подробности о DVD GAMMA RAY
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.09/12855.jpg" width=400 align=right border=5>GAMMA RAY</STRONG> выпускают долгожданное DVD <STRONG>"Hell Yeah! The Awesome Foursome (And The Finnish Keyboarder Who Didn't Want To Wear His Donald Duck Costume) Live in Montreal" </STRONG>27 октября на <STRONG>SPV</STRONG>. На диск попадёт концерт в Монреале, отснятый 6 мая 2006 года в Монреале и множество других материалов. Трэк-лист:</P>
+<P>DVD 1 – Montreal Show 2006 <BR itxtvisited="1">01. <B itxtvisited="1">Welcome</B><BR itxtvisited="1">02. <B itxtvisited="1">Gardens Of The Sinner</B> <BR itxtvisited="1">03. <B itxtvisited="1">New World Order</B> <BR itxtvisited="1">04. <B itxtvisited="1">Man On A Mission</B> <BR itxtvisited="1">05. <B itxtvisited="1">Fight</B> <BR itxtvisited="1">06. <B itxtvisited="1">Blood Religion</B> <BR itxtvisited="1">07. <B itxtvisited="1">Heavy Metal Universe</B> <BR itxtvisited="1">08. <B itxtvisited="1">Dreamhealer</B> <BR itxtvisited="1">09. <B itxtvisited="1">The Heart Of The Unicorn</B> <BR itxtvisited="1">10. <B itxtvisited="1">Fairytale</B> <BR itxtvisited="1">11. <B itxtvisited="1">The Silence</B> <BR itxtvisited="1">12. <B itxtvisited="1">Beyond The Blackhole</B> <BR itxtvisited="1">13. <B itxtvisited="1">Valley Of The Kings</B><BR itxtvisited="1">14. <B itxtvisited="1">Somewhere Out In Space</B> <BR itxtvisited="1">15. <B itxtvisited="1">Land Of The Free</B> <BR itxtvisited="1">16. <B itxtvisited="1">Rebellion In Dreamland</B> <BR itxtvisited="1">17. <B itxtvisited="1">I Want Out</B> <BR itxtvisited="1">18. <B itxtvisited="1">Send Me A Sign</B> <BR itxtvisited="1"><BR itxtvisited="1">DVD 2 <BR itxtvisited="1">Road Movie: <BR itxtvisited="1">* Documentary from the Northamerican Tour <BR itxtvisited="1">Video Clips: <BR itxtvisited="1">* <B itxtvisited="1">Space Eater</B> <BR itxtvisited="1">* <B itxtvisited="1">One With The World</B> <BR itxtvisited="1">* <B itxtvisited="1">Gamma Ray</B> <BR itxtvisited="1">* <B itxtvisited="1">Rebellion In Dreamland</B> <BR itxtvisited="1">* <B itxtvisited="1">Send Me A Sign</B> <BR itxtvisited="1">* <B itxtvisited="1">Heavy Metal Universe</B> <BR itxtvisited="1">* <B itxtvisited="1">Eagle</B> <BR itxtvisited="1">* <B itxtvisited="1">Into The Storm</B> <BR itxtvisited="1">Live At Wacken Open Air 2003 <BR itxtvisited="1">* <B itxtvisited="1">One With The World</B> <BR itxtvisited="1">* <B itxtvisited="1">Last Before The Storm</B> <BR itxtvisited="1">Live At Wacken Open Air 2006 <BR itxtvisited="1">* <B itxtvisited="1">Rebellion In Dreamland</B> <BR itxtvisited="1">* <B itxtvisited="1">Heavy Metal Universe</B> <BR itxtvisited="1">* <B itxtvisited="1">Somewhere Out In Space</B> <BR itxtvisited="1">Historay: Over the years private movies, backstage scenes and live performances <BR itxtvisited="1">Unplugged: <B itxtvisited="1">Kai</B> and <B itxtvisited="1">Henjo</B> unplugged in Japan <BR itxtvisited="1"><BR itxtvisited="1">DVD 3 (Bonus, only Europe) <BR itxtvisited="1">Four songs from <B itxtvisited="1">"Land Of The Free II"</B> recorded live in Barcelona during the <B itxtvisited="1">"Hellish Rock"</B> tour with <B itxtvisited="1">HELLOWEEN</B> in January 2008:<BR itxtvisited="1">01. <B itxtvisited="1">Into The Storm</B> <BR itxtvisited="1">02. <B itxtvisited="1">Empress</B> <BR itxtvisited="1">03. <B itxtvisited="1">From The Ashes</B> <BR itxtvisited="1">04. <B itxtvisited="1">Real World</B> <BR itxtvisited="1">Plus Backstage scenes, soundchecks, etc... </P>
+Автор: Vit Belov
+
+### 27.01.2009 reviews Покоряя Америку впервые в качестве хэдлайнеров
+
+<P>Кстати, полное название третьего концертного альбома&nbsp;гамбургских паверщиков Gamma Ray дополняется строкой "and the Finnish keyboarder who didn't want to wear his Donald Duck costume". Дело тут в том, что в ходе турне по Северной Америке (кстати, первом там для группы в качестве хэдлайнера) финский клавишник Eero Kaukomies из хельсинской&nbsp;кавер-группы "геморроя" Guardians Of Mankind сопровождал немцев всю дорогу (и даже что-то там отыграл на концерте), а гитарист&nbsp;Henjo Richter посчитал, что походка финна очень напоминает оную у утки, после чего немцы решили запихать его на монреальском концерте в костюм Доналда Дака, чему, однако, тот отчаянно сопротивлялся и так и не согласился на подобное. Рассматриваемый же концерт был записан 6 мая 2006 года в Монреале в ходе тура "Majestic". Есть также DVD с этим концертом, но о его содержании тут распространяться не буду. Gamma Ray отыграли концерт по полной, что называется, программе. На двойном аудиодиске представлены 18 номеров с практически всех альбомов группы, кроме "Insanity And Genius". Любопытно, что с последнего на тот момент релиза немцев "Majestic" взято всего две вещи, большинство же композиций с альбомов "Land Of The Free" и "Somewhere Out In Space", в чем, впрочем, ничего удивительного нет, классика есть классика. Этот концетртный двойник добит еще четырьмя треками с выступления группы 15 января 2008 года в Барселоне, все из которых взяты с альбома "Land Of The Free II". Ну, и на канадском концерте также сыграна хелловинская 'I Want Out', куда ж без нее. Не могу сказать, что этот альбом произвел на меня сильное впечатление. Прежде всего, не очень удачно записан вокал Кая Хансена, местами слишком тихо, на мой взгляд, от чего он получился каким-то жидковатым. Ударные тоже звучат несколько плоско и "пластмассово". Но вот гитарная работа - как и запись самих инструментов - хороша, тут ничего не скажешь. Бас, правда, тоже не особо слышен. Лично мне была более интересна вторая часть; может быть, потому что "Somewhere Out In Space" это, пожалуй, единственный альбом группы, который мне нравится полностью. В общем же и целом - обычный концерт обычной павер-группы. Фанаты, разумеется, считают по-другому, но на то они и фанаты. Необходимо отметить, что предыдущие концертники Gamma Ray, "Skeletons In The Closet" и "Alive '95" (оба тоже двойные), материал "Hell Yeah..." повторяют лишь частично в смысле сет-листа, так что новый двойник можно приобретать и не ради одной-двух песен.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 25.03.2009 reviews DVD, которое вышло слишком поздно, чтобы быть кому-то нужным
+
+<P>Первый DVD GAMMA RAY сразу выделился на общем фоне своим забавным названием «Hell Yeah!!! The Awesome Foursome and the Finnish Keyboarder who didn’t want to wear his Donald Duck Сostume – Live In Montreal». Этот релиз планировался к выходу уже довольно давно. Дата релиза постоянно сдвигалась, и в итоге альбом появился тогда, когда уже прошло достаточно времени, чтобы забыть в каком туре всё это происходило. GAMMA RAY в Монреале выступили в 2006 году, в туре в поддержку своего предыдущего альбома “Majestic”. С тех пор много воды утекло, изменился и сам курс GAMMA RAY.</P>
+<P>Гораздо логичнее выглядел бы релиз концертного DVD с нынешним материалом. Во-первых, группа резко вернулась к старой манере сочинения музыки на своём сиквеле “Land Of The free II”. Во-вторых, нынешний тур в компании HELLOWEEN действительно стал событием на мировой тяжёлой сцене. “Majestic” же стал чуть ли не слабейшим релизом GAMMA RAY, и закреплять его успех концертником не выглядит логичным решением. Видимо, поэтому группа столько мучилась с этим релизом, были дела поважнее. Наконец-то “Hell Yeah” вышел. Здесь представлен материал, с которым GR впервые побывали в нашей стране, концерт тогда прошёл в УСЗ «Дружба». Это можно было бы считать хорошей приманкой для покупателя, но немцы уже побывали у нас во второй раз… Ну, это я повторяюсь. С&nbsp; чего начать? Начну с того, что удовольствия мне получить не удалось. При этом проблемы проявились буквально сразу и со всех сторон. Не порадовало видео, которое пестрит всеми возможными эффектами. Картинка в картинке, сепия, какие-то кислотные цвета, постоянная смена камер. Либо операторам не удалось снять качественный материал, либо режиссёр решил проявить себя в полной мере. Есть у меня претензии и к звуку. Быть может, это как-то связано с телевизором, но на обычном стерео немного странное сведение. Вокал задвинут достаточно далеко, и создаётся полное впечатление концертного присутствия. Присутствия на концерте с не очень качественным звуком. В «Дружбе», помнится, он тоже был не слишком качественный. Продолжает серию неприятностей сэт-лист. Об этом я уже говорил выше, но предположу, что многие захотят промотать эпики с альбома 2004 года. И последнее, но самое главное. Сама группа не произвела должного впечатления. Хотя Kai Hansen несколько раз говорил, что снимается DVD, и они выдают «по полной», особой энергетики от самого господина Hansen не исходило. Его улыбки и натужный смех выдавали в нём не очень хорошего актёра. Остальные музыканты, как показалось, действительно получали удовольствие от происходящего, но не Kai. В итоге получился DVD-концерт, который не нужен, похоже, никому. С другой стороны, такого масштабного издания от GAMMA RAY ещё не выходило, поэтому приобретать его всем фэнам группы просто необходимо. Хотя бы можно получить представление о том, где группа сейчас находится. Вернее, находилась в 2006 году.</P>
+<P>На втором DVD можно посмотреть 8 видеоклипов, концертные ролики с Wacken в 2003 и 2006 годах, а так же документальные кадры “Historay”. Мне особо понравились выступления в Афинах и в Японии. В Афинах Kai Hansen прыгал с балкона вперёд ногами на публику, будучи изрядно пьяным, а в Японии с группой пела караоке местная девушка. Забавные кадры, которые скрасили общее неприятное впечатление от этого DVD.</P>
+Автор: Vit Belov
+
+### 13.12.2009 news GAMMA RAY в январе
+
+<P>Новый альбом <STRONG>GAMMA RAY</STRONG> <STRONG>"To The Metal" </STRONG>выходит 29 января на <STRONG>earMUSIC</STRONG>/<B>Edel</B>. Группа записала 12 вещей для этого альбома, две из которых будут доступны только на его лимитированных версиях. Трэк-лист:</P>
+<P>01. <B>Rise</B><BR>02. <B>Deadlands</B><BR>03. <B>Mother Angel</B><BR>04. <B>No Need To Cry</B><BR>05. <B>Empathy</B><BR>06. <B>To The Metal</B><BR>07. <B>All You Need To Know</B><BR>08. <B>Time To Live</B><BR>09. <B>Shine Forever</B><BR>10. <B>Breaking Away</B></P>
+Автор: Vit Belov
+
+### 19.12.2009 news Michael Kiske споёт на новом GAMMA RAY
+
+<P>Новость, которую сообщил фан-клуб бывшего певца<STRONG> HELLOWEEN Michael Kiske</STRONG>, могла бы стать сенсацией. <STRONG>Kai Hansen</STRONG> и <STRONG>Michael Kiske</STRONG> снова будут работать вместе. Но это звучит слишком пафосно, так как господин <STRONG>Kiske</STRONG> всего лишь записал "бек" для припева одной песни на новом альбоме <STRONG>GAMMA RAY "To The Metal"</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.01.2010 news Новая песня GAMMA RAY
+
+<P>Новая работа <STRONG>GAMMA RAY "To The Metal"</STRONG> выходит 29 января на <STRONG>earMUSIC</STRONG>/<B>Edel</B>. Заглавная песня с этого альбома доступна для прослушивания на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/gammaraytothemetal">http://www.myspace.com/gammaraytothemetal</A></P>
+Автор: Vit Belov
+
+### 18.01.2010 news Новое видео GAMMA RAY
+
+<P>Видео на заглавный трэк с нового альбома <STRONG>GAMMA RAY</STRONG> <STRONG>"To The Metal" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER><FONT face=Verdana color=#999999 size=1><BR><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=102273384">To The Metal! (videoclip)</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=102273384,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=102273384,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT><BR><A href="http://profile.myspace.com/index.cfm?fuseaction=user.viewprofile&friendid=516766421">GAMMA RAY - TO THE METAL!</A> | <A href="http://music.myspace.com/index.cfm?fuseaction=videos">MySpace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.02.2010 reviews Kai Hansen примеряет маски
+
+<P>Kai Hansen является одной из ключевых фигур на очень сильной немецкой heavy metal сцене. С этим никто не посмеет спорить, GAMMA RAY и HELLOWEEN – эти имена являются символами целого направления в тяжёлой музыке. </P>
+<P>Думаю, никто не станет спорить и с тем утверждением, что лучшие дни вышеуказанных групп довольно давно прошли. И если работы начала и середины 90-х ещё можно сравнивать, то пластинке в новом веке уже не вызывают того трепета и скорее покупаются из уважения к былым заслугам этих персонажей. На предыдущей работе GAMMA RAY вернулись в свои золотые денёчки, “Land Of The Free 2” стал как бы экскурсией в те времена. Цитаты из собственного творчества, оголтелый юношеский задор, ничто не напоминало тот усталый и вымученный GAMMA RAY, к которому мы уже стали привыкать. Безусловно, всё это были только маски, но артист должен переодеваться, как кто-то сказал ранее. Перебрав маски, спрятанные в шкафу, Kai Hansen решил на своём новом альбоме “To The Metal” примерить совсем необычную. Маску зрелого, мрачного и опытного человека, который когда-то строил рожицы своим поклонникам с буклетов собственных альбомов, но теперь всё знает и даже как-то «посерел» от этого знания. Но даже в таком виде этот персонаж продолжает верить в heavy metal братство… В общем, продолжает мочить на своей гитаре power metal. Начинается альбом соответствующе. Медленный замогильный рифф, мрачный низкий вокал, утяжелённый саунд. Вокал, вообще, отдельная тема. Все мы знаем пение Kai Hansen, высокое, даже где-то раздражающее. Здесь это оружие применяется только в крайних случаях, время сантиментов прошло, певец разве что не рычит. К сожалению или к счастью, из-за этого антуража постоянно торчат уши старого доброго GAMMA RAY. Утяжелённые куплеты сменяются разухабистыми припевами, как в песне “Time To Live”, которую смело можно ставить в один ряд с классикой группы. Даже кажется, что мы уже слышали этот трэк с другим текстом на одном из предыдущих альбомов. Ещё одной неизбывной тенденцией пластинок GAMMA RAY является любовь Kai Hansen к тяжёлой музыке. При сочинении материала для “To The Metal” он слушал много чужих песен, и это отразилась в его творчестве. Все песни, представленные на этом альбоме, являются как бы сборником всего лучшего, что было в тяжёлой музыке до этого. И если хит “Time To Live” – это GAMMA RAY, то большинство остальных песен – это дань уважения другим не менее важным коллективам. Недаром этот альбом назван “To The Metal”, а заглавный трэк что-то вроде гимна, который мог бы сочинить MANOWAR.</P>
+<P>Приятно всё-таки, когда заслуженные музыканты придумывают что-то новое для своих альбомов. Совсем приятно, когда они придумывают новую музыку, но всего и сразу требовать мы не станем. “To The Metal” отличается от своих предшественников, и это главное. Согласитесь, здорово встретиться со своим старым товарищем и спросить его: «А ты слушал новый GAMMA RAY?» Спросить не просто из вежливости, а даже с некоторым смыслом.</P>
+Автор: Vit Belov
+
+### 17.03.2010 news Henjo Richter прооперирован
+
+<P><IMG height=330 alt="" hspace=0 src="/images/news_rus/2010.03/16422.jpg" width=220 align=left border=5>Гитарист <STRONG>GAMMA RAY Henjo Richter</STRONG> прооперирован вчера. У музыканта диагностировано отслоение сетчатки глаза от сосудистой оболочки.</P>
+<P>Несколько концертов немцев перенесены на более поздний срок.&nbsp;</P>
+Автор: Vit Belov
+
+### 23.08.2010 news Альбом-посвящение группам HELLOWEEN и GAMMA RAY
+
+<P>Лейбл <STRONG>Epicus</STRONG> планирует до конца 2010 года выпустить альбом-посвящение группам<STRONG> HELLOWEEN</STRONG> и<STRONG> GAMMA RAY</STRONG>. Диск получил название <STRONG>"HelloRay - A Tribute To Helloween & Gamma Ray"</STRONG>. Согласно пресс-релизу альбома, это проект созданный группами, которые являются поклонниками и были вдохновлены музыкой этих двух пионеров мелодичного power metal.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17074.jpg" width=300 height=300>Трек лист:</P>
+<P>01. <B itxtvisited="1">Tribute To The Past</B> (GAMMA RAY) - <STRONG>GUARDIANS OF MANKIND</STRONG><BR itxtvisited="1">02. <B itxtvisited="1">Warrior</B> (HELLOWEEN) - <STRONG>GAIA EPICUS<BR itxtvisited="1"></STRONG>03. <B itxtvisited="1">The Spirit</B> (GAMMA RAY) - <STRONG>PARALLAX</STRONG><BR itxtvisited="1">04. <B itxtvisited="1">Mr. Torture</B> (HELLOWEEN) - <STRONG>AILLION</STRONG><BR itxtvisited="1">05. <B itxtvisited="1">Anywhere In The Galaxy</B> (GAMMA RAY) - <STRONG>OPERA MAGNA</STRONG><BR itxtvisited="1">06. <B itxtvisited="1">Ain't Got Nothin' Better</B> (HELLOWEEN) - <STRONG>KICK HUNTER</STRONG><BR itxtvisited="1">07. <B itxtvisited="1">Last Before The Storm</B> (GAMMA RAY) - <STRONG>SONEM</STRONG><BR itxtvisited="1">08. <B itxtvisited="1">Where The Rain Grows</B> (HELLOWEEN) - <STRONG>ARMORY</STRONG><BR itxtvisited="1">09. <B itxtvisited="1">A Tale That Wasn't Right</B> (HELLOWEEN) - <STRONG>DRACHEN</STRONG><BR itxtvisited="1">10. <B itxtvisited="1">Lust For Life</B> (GAMMA RAY) - <STRONG>MIDAS FATE</STRONG><BR itxtvisited="1">11. <B itxtvisited="1">Just A Little Sign</B> (HELLOWEEN) - <STRONG>RAMPART</STRONG><BR itxtvisited="1">12. <B itxtvisited="1">Leaving Hell</B> (GAMMA RAY) - <STRONG>ROTTEN</STRONG><BR itxtvisited="1">13. <B itxtvisited="1">Judas</B> (HELLOWEEN) - <STRONG>5TH ELEMENT<BR itxtvisited="1"></STRONG>14. <B itxtvisited="1">Heaven Or Hell</B> (GAMMA RAY) - <STRONG>BURN UNIVERSE<BR itxtvisited="1"></STRONG>15. <B itxtvisited="1">Before The War</B> (HELLOWEEN) - <STRONG>ILUNGARA</STRONG><BR itxtvisited="1">16. <B itxtvisited="1">Land Of The Free</B> (GAMMA RAY) - <STRONG>DEIMOS</STRONG></P>
+<P>Больше информации на сайте лейбла: <A href="http://www.epicusrecords.com/">www.epicusrecords.com</A> </P>
+Автор: Headcrusher
+
+### 21.02.2011 news GAMMA RAY выпустят ещё один концертник
+
+<P><STRONG>GAMMA RAY</STRONG> объявили о планах выпуска нового концертного альбома. Специально для этого группа подготовит специальный сэт, в который войдут песни, которые группа редко исполняла в живую, а так же акустические версии известных композиций немцев. Будущий альбом получил название <STRONG>'Skeletons And Majesties'.</STRONG></P>
+<P>Подробности последуют.</P>
+<P><center><IMG height=403 src="/images/news_rus/2011.02/18696.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 16.03.2011 news Kai Hansen будет работать с Michael Kiske
+
+<P>Гитарист и лидер<STRONG> GAMMA RAY Kai Hansen</STRONG> вновь будет играть в одной группе с <STRONG>Michael Kiske</STRONG>, с которым работал на классических альбомах <STRONG>HELLOWEEN</STRONG> в конце 80-х годов. Музыкант присоединился к новому проекту <STRONG>UNISONIC</STRONG> с <STRONG>Michael Kiske</STRONG> "на вокале". Кроме этих двух классиков немецкого метала в работе над дебютом <STRONG>UNISONIC</STRONG> принимают участие басист <STRONG>Dennis Ward,</STRONG>&nbsp;барабанщик <B>Kosta Zafiriou</B>&nbsp;из <STRONG>PINK CREAM 69</STRONG>, а так же гитарист <STRONG>Mandy Meyer (ASIA, KROKUS, GOTTHARD).</STRONG></P>
+<P>Демо очень не плохой песни <STRONG>"Souls Alive" </STRONG>можно послушать ниже. Кстати, выступление в прошлом июне вместе с <STRONG>UNISONIC </STRONG>стало первым для Michael Kiske за прошедшие 17 лет.</P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=70658948&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=70658948&pid=3289385714124923521" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.03.2011 news Акустический альбом GAMMA RAY оказался миньоном
+
+<P>Ранее анонсированный акустический альбом <STRONG>GAMMA RAY</STRONG> <STRONG>"Skeletons & Majesties" </STRONG>выйдет в маяе текущего года. Мини-альбом будет содержать 7 треков. Первые два - концертные версии <STRONG>"Hold Your Ground"</STRONG> (с дебюта <STRONG>"Heading For Tomorrow") </STRONG>и <STRONG>"Brothers"</STRONG> (с альбома <B>"Insanity And Genius"</B>). Это песни, которые<STRONG> GAMMA RAY</STRONG> редко исполняют на своих шоу. Вторые два трека - это концертные акустические версии классики <STRONG>"Send Me A Sign"</STRONG> (альбом <B>"Powerplant"</B>)&nbsp;и <B>"Rebellion In Dreamland"</B> (альбом <B>"Land Of The Free"</B>). И в качестве бонуса немецкая группа предложит ещё три композиции: <STRONG>"Wannabees", </STRONG>которая выходила только на лимитированном сингле к последнему альбому "To The Metal!", расширенную версию <STRONG>"Brothers" </STRONG>и караоке-версию <STRONG>"Rebellion In Dreamland".</STRONG></P>
+<P><STRONG><center><IMG height=428 src="/images/news_rus/2011.03/18947.jpg" width=475 border=0></STRONG></P>
+Автор: Vit Belov
+
+### 03.09.2012 news GAMMA RAY расстались с Dan Zimmerman
+
+<P><STRONG>GAMMA RAY</STRONG> прекратили сотрудничество с барабанщиком <STRONG>Dan Zimmerman. </STRONG>Уже объявлено имя нового музыканта коллектива <STRONG>Michael Ehre</STRONG> (<B>LOVE.MIGHT.KILL</B>, <B>FIREWIND</B>, <B>ULI JON ROTH</B>, <B>METALIUM</B>). Ниже можно увидеть видео, на котором музыканты представляют нового участника.</P>
+<P><STRONG>Kai Hansen</STRONG> сообщил, что Danny сам покинул группу, и это стало неприятным сюрпризом для <STRONG>GAMMA RAY</STRONG>. К счастью, коллектив быстро нашёл ему квалифицированную замену.</P>
+<P>45-летний <STRONG>Dan Zimmerman </STRONG>играл в группе с 1997 года и записал с ней шесть студийных альбомов. Кроме этого, музыкант играл в <STRONG>IRON SAVIOR</STRONG> и <STRONG>FREEDOM CALL</STRONG>, последних он тоже оставил совсем недавно. В настоящее время Dan числится барабанщиком немецкой thrash-metal банды<STRONG> JUSTICE</STRONG>.</P>
+<P>На счету нового барабанщика GAMMA RAY <STRONG>Michael Ehre</STRONG> (<B>LOVE.MIGHT.KILL</B>, <B>FIREWIND</B>, <B>ULI JON ROTH</B>, <B>METALIUM</B>) несколько заметных студийных работ в тяжёлом метале. Он записывал альбомы <STRONG>METALIUM </STRONG>(с 3 по 8), в<STRONG> FIREWIND</STRONG> он сыграл лишь одну вещь на альбоме 2010 года "<STRONG>Days Of Defiance</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/qjnE2lUp9l4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 04.10.2012 news GAMMA RAY: концертный релиз &quot;Skeletons &amp; Majesties Live&quot;
+
+<P><STRONG>GAMMA RAY</STRONG> выпускают релиз, получивший название <STRONG>"Skeletons & Majesties Live"</STRONG>. Данный продукт жизнедеятельности группы выйдет в трёх форматах: 2 CD, Blu-ray и DVD. Форматы DVD и Blu-ray будут также включать в себя дополнительные бонус треки, съёмки вне сцены,&nbsp;редкие архивные материалы и интервью с группой. </P>
+<P>Основной концертный материал был снят и записан во время выступления группы в клубе <STRONG>"Z7"</STRONG> города Pratteln (Швейцария, 29 апреля 2012).&nbsp;</P>
+<P>Дата выхода: 30 ноября 2012 на лейбле <STRONG>earMUSIC / Edel</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.10/24878.jpg" width=504 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 04.02.2013 news GAMMA RAY выпускают новый EP &quot;Master Of Confusion&quot;
+
+<P>Немецкие металлисты <STRONG>GAMMA RAY</STRONG> готовят к выпуску новый EP,&nbsp;названный&nbsp;<STRONG>"Master Of Confusion"</STRONG>.&nbsp;Диск выйдет 15 марта на&nbsp;<STRONG>EarMUSIC</STRONG>. На самом деле, этот миньон будет длиться 60 минут и включать в себя 2 новые песни, два кавера (на группы <STRONG>HOLOCAUST</STRONG> и&nbsp;<STRONG>SWEET</STRONG>) и шесть концертных треков.</P>
+<P>Также, позже&nbsp;в этом году,&nbsp;группа обещает выпустить свой новый полноформатник.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25400.jpg" width=600 height=398>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 12.02.2013 news GAMMA RAY: обложка EP &quot;Master Of Confusion&quot;
+
+<P><STRONG>GAMMA RAY</STRONG> опубликовали обложку своего EP <STRONG>"Master Of Confusion"</STRONG>. Автор: <STRONG>Herve Monjeaud</STRONG> (<A href="http://www.hervemonjeaud.com/">www.hervemonjeaud.com</A>). Дата выхода диска 15 марта на&nbsp;<STRONG>EarMUSIC</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25424.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 29.03.2013 news U.D.O.: обложка, трек-лист альбома &quot;Steelhammer&quot; и другие новости
+
+<P>Группа&nbsp;<STRONG>U.D.O.</STRONG> представила обложку своего нового полноформатника, названного <STRONG>"Steelhammer"</STRONG>, который выйдет 24 мая в Европе и 21 мая в С.Ш.А. на лейбле <STRONG>AFM</STRONG>.</P>
+<P><STRONG>Udo Dirkschneider</STRONG> о пластинке:</P>
+<P><EM>"Наш новый альбом&nbsp;<STRONG>"Steelhammer"</STRONG> -&nbsp;настоящий&nbsp;стенобитный таран. Вот почему мы выбрали для него такую обложку. Она наилучшим образом отражает, что<STRONG> U.D.O.</STRONG>, это настоящий Heavy Metal! <STRONG>U.D.O.</STRONG> вернулся!"</EM></P>
+<P>Помимо издания на компакт дисках, <STRONG><EM>"</EM>Steelhammer"</STRONG> также будет выпущен на чёрном и прозрачном винилах. Издание на прозрачном виниле выйдет в количестве 250 штук и будет продаваться только через интерент магазин лейбла <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Кроме всего прочего, в конце января 2013, в группе <STRONG>U.D.O.</STRONG> произошли очередные изменения в составе - её покинул гитарист <STRONG>Igor Gionola</STRONG>, являвшийся бессменным участником коллектива на протяжении почти 15 лет. Ему на смену пришёл&nbsp;финский гитарист <STRONG>Kasperi Heikkinen</STRONG> (родился 4 августа&nbsp;1980),&nbsp;действующая единица&nbsp;финских групп <STRONG>MERGING FLARE</STRONG>, <STRONG>CONQUEST</STRONG>. Помимо этого, <STRONG>Kasperi</STRONG> гастролировал и&nbsp;записал 4 альбома с&nbsp;symphonic metal коллективом <STRONG>AMBERIAN DAWN</STRONG>&nbsp;и 2 диска с&nbsp;&nbsp;progressive death metal&nbsp;бандой&nbsp;<STRONG>ELENIUM</STRONG>. Также гитарист известен по своей работе в финских&nbsp;tribute-коллективах: <STRONG>VICARS OF HELL</STRONG> (Judas Priest), <STRONG>MACDETH</STRONG> (Megadeth) и&nbsp;<STRONG>GUARDIANS OF MANKIND</STRONG> (Gamma Ray). Благодаря участию в последнем, <STRONG>Kasperi</STRONG> даже посчастливилось попасть в качестве временной замены Хеньё Рихтера (<STRONG>Henjo Richter</STRONG>) в <STRONG>GAMMA RAY</STRONG>. Именно с <STRONG>Kasperi</STRONG> в составе, группа под управлением Кая Хансена (<STRONG>Kai Hansen</STRONG>)&nbsp;дала свои первые выступление в России, которые прошли 27 января и 28 января 2006 года в Москве и&nbsp;Санкт-Петербурге, соответственно. </P>
+<P>Трек-лист: 01. <STRONG>Steelhammer</STRONG> | 02. <STRONG>A Cry Of A Nation</STRONG> | 03. <STRONG>Metal Machine</STRONG> | 04. <STRONG>Basta Ya</STRONG> | 05. <STRONG>Heavy Rain</STRONG> | 06. <STRONG>Devil's Bite</STRONG> | 07. <STRONG>Death Ride</STRONG> | 08. <STRONG>King Of Mean</STRONG> | 09. <STRONG>Time Keeper</STRONG> | 10. <STRONG>Never Cross My Way</STRONG> | 11. <STRONG>Take My Medicine</STRONG> | 12. <STRONG>Shadows Come Alive</STRONG> <EM>(digi pack bonus track)</EM> | 13. <STRONG>Stay True</STRONG> | 14. <STRONG>When Love Becomes A Lie</STRONG> | 15. <STRONG>Book Of Faith</STRONG></P>
+<P>Состав группы<STRONG> U.D.O. </STRONG>сейчас выглядит следующим образом: <STRONG>Udo Dirkschneider</STRONG> (вокал), <STRONG>Andrey Smirnov</STRONG> (гитара), <STRONG>Kasperi Heikkinen</STRONG> (гитара), <STRONG>Fitty Wienhold</STRONG> (бас),<STRONG> Francesco Jovino</STRONG> (барабаны).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.03/25578.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 16.02.2014 news GAMMA RAY: альбом &quot;Empire Of The Undead&quot; выходит 28 марта
+
+<P>28 марта заслуженные немецкие металлисты <STRONG>GAMMA RAY</STRONG> выпускают свой 11 студийный альбом. Диск, получивший название <STRONG>"Empire Of The Undead"</STRONG>, будет выпущен на лейбле<STRONG> earMusic</STRONG>. </P>
+<P>Альбом выйдет сразу в нескольких форматах: на обычном CD, в диджипаке (включающем CD и DVD), на виниле и в цифровом виде. Ниже можно посмотреть оформление вышеперечисленных физических носителей.</P>
+<P>Трек-лист обычного CD:</P>
+<P>01. <STRONG>Avalon</STRONG> | 02. <STRONG>Hellbent</STRONG> | 03. <STRONG>Pale Rider</STRONG> | 04. <STRONG>Born To Fly</STRONG> | 05. <STRONG>Master Of Confusion</STRONG> | 06.<STRONG> Empire Of The Undead</STRONG> | 07. <STRONG>Time For Deliverance</STRONG> | 08. <STRONG>Demonseed</STRONG> | 09. <STRONG>Seven</STRONG> | 10. <STRONG>I Will Return</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.02/26659.jpg" width=642 height=238> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 01.03.2014 news Новая музыка GAMMA RAY
+
+<P>Новый альбом <STRONG>GAMMA RAY "Empire Of The Undead"</STRONG> выходит в конце марта. Трек с этого альбома<STRONG>&nbsp;'Hellbent'</STRONG> можно услышать ниже.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/KJ2E_8V7-5w?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.04.2014 news GAMMA RAY и STORMWARRIOR в России
+
+<P><STRONG>GAMMA RAY</STRONG><BR>25 лет группе! Новые песни + старые хиты<BR>Специальный гость - <STRONG>STORMWARRIO</STRONG>R (Германия)</P>
+<P>24 апреля 2014 - Санкт-Петербург (Зал Ожидания)<BR>25 апреля 2014 - Москва (Volta)</P>
+<P>Билеты: <A href="http://go2show.biz/">http://go2show.biz</A></P>
+<P>Годы идут,а GAMMA RAY по-прежнему считается одной из лучших групп современной метал-сцены. А сколько лет-то прошло?.. Вот и не поверите - 25! Самое время, чтобы GAMMA RAY порадовали нас своим фирменным мелодичным power metal вкупе с позитивной лирикой, не забыв при этом добавить новых ноток. Так и будет! В год своего 25-летия легендарная power metal группа GAMMA RAY возвращается в Россию с концертами в Москве и Санкт-Петербурге! Теперь в рамках полноценных выступлений она сможет "отчитаться" перед нами не только хитами из своего богатого творческого багажа, но и представить песни с новейшего альбома "Empire Of The Undead".</P>
+<P>Кто старое помянет... тот определенно знает истоки. А истоки GAMMA RAY - в такой "глыбе" метал-сцены, как Helloween. Именно эту группу Кай Хансен покинул в конце 80-х, чтобы основать новый коллектив, получивший название с одной стороны полезного, но в то же время опасного по своему воздействию гамма-луча (gamma ray). Как и луч, который обладает удивительной проникающей способностью, группа GAMMA RAY достаточно быстро добилась признания во всем мире и по сей день держит планку качества на высочайшем уровне.</P>
+<P>Предыдущий студийный альбом GAMMA RAY "To The Metal!" (2010) был великолепно принят критикой и поклонниками, и наглядно продемонстрировал, что группа находится в отличной музыкальной форме. Поэтому релиз нового студийника "Empire Of The Undead" - прекрасный повод отпраздновать с GAMMA RAY 25-летие творческой деятельности. А как хорошо можно отпраздновать на концертах GAMMA RAY... это мы узнаем уже очень скоро - в апреле 2014-го!</P>
+<P><A href="http://www.youtube.com/watch?v=EMxXm-1zmwM">http://www.youtube.com/watch?v=EMxXm-1zmwM</A><BR><A href="http://www.youtube.com/watch?v=hmMh9kmtKYM">http://www.youtube.com/watch?v=hmMh9kmtKYM</A></P>
+<P><STRONG>Новый альбом STORMWARRIOR "Thunder & Steele" издан лэйблом Escapemind.ru при поддержке MUSICA Production (mp.musica.mustdie.ru)</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26833.jpg" width=502 height=633> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.11.2016 news Michael Kiske и Kai Hansen вернулись в HELLOWEEN
+
+<p><strong>HELLOWEEN</strong> анонсировали "<strong>Pumpkins United World Tour 2017/2018</strong>", в котором к коллективу присоединятся классические участники гитарист/вокалист <strong>Kai Hansen</strong> и вокалист<strong> Michael Kiske</strong>. В то же время в группе остаются и певец<strong> Andi Deris</strong> и гитарист <strong>Sascha Gerstner</strong>. </p><p>Легко догадаться, что группа в новом составе ударит классикой power metal. Стартует супертур 28 октября следующего года в бразильском Сан-Паулу.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Zg9ZOyDfYIA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Gamma Ray'ю каюк! Слыхали?!

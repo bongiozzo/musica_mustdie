@@ -65,6 +65,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2001 news Холокост продолжается...
+
+<p>Возрожденная легенда NWOBHM - "HOLOCAUST" выложили в своем разделе на сайте <a href="http://artists.mp3s.com/artists/247/nwobhm_holocaust.html">mp3.com</a> - четыре совершенно новые вещи. Вы можете скачать: 01. Fundamentalist 02. Leper's Progress 03. Victory? 04. I Smash the Void</p>
+
+Автор: Yermola
+
+### 25.07.2001 news HOLOCAUST have made several ...
+
+<p>Reunited NWOBHM legends HOLOCAUST have made several new tracks available for download via their page at <a href="http://artists.mp3s.com/artists/247/nwobhm_holocaust.html"> mp3.com</a>. You may download or stream the following cuts: 01. Fundamentalist 02. Leper's Progress 03. Victory? 04. I Smash the Void. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

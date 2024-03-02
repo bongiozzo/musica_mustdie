@@ -104,6 +104,91 @@ Chris Reifert - Vocal Atrocities, Skin Abuse, Spitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.09.2000 news Новый диск группы Abscess
+
+<P>Новый диск группы Abscess "Tormented" выйдет в октябре на Listenable Records. Ещё альбом выйдет ограниченным тиражом (300 экземпляров) на виниле с дополнительными, ранее не издававшимися трэками.</P>
+Автор: Nybras
+
+### 08.12.2000 news &quot;Замученные тяжелой неволей.....&quot;
+
+<P>Bay Area маньяки "ABSCESS" поведали миру о завершении записи очередного нетленного творения "Tormented". Процесс нажимания на кнопочки проходил в культовой DIFFERENT FUR STUDIOS (где писались, например, "AUTOPSY"). Состав команды силен как никогда: Chris Reifert (ex-AUTOPSY/DEATH), Danny Corralles (ex-AUTOPSY) и Clint Bower (ex-HEXX).</P>
+Автор: Yermola
+
+### 05.09.2002 news Сквозь смертельные удары...
+
+<p>"ABSCESS" имеющие в своем составе культового барабанщика — Chris Reifert (ex-DEATH/AUTOPSY), Clint Bower (гитара/вокал, ex-HEXX), Danny Coralles (гитара, ex-AUTOPSY) и Joe Allen (басс, ex-VON) — 23-го сентября выпускают новый альбом "Through the Cracks of Death". После при поддержке лэйбла Peaceville Records пройдет Европейский тур.</p>
+
+Автор: Yermola
+
+### 05.09.2002 news ABSCESS To Release New CD, Tour Europe ...
+
+<p>ABSCESS—consisting of Chris Reifert (drums/vocals, ex-DEATH/AUTOPSY), Clint Bower (guitar/vocals, ex-HEXX), Danny Coralles (guitar, ex-AUTOPSY), and Joe Allen (bass, ex-VON)—will issue their new album, entitled Through the Cracks of Death, on September 23rd via Peaceville Records. A European tour is likely to follow a short time later.</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR><BR> + конкурс от HATE и Moral Insanity Prods [email: moralinsanity@tut.by]<BR><BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 02.09.2003 news Будет выпущен концертник AUTOPSY
+
+<p>Necroharmonic Records сообщила о планах по выпуску концертника легендарных AUTOPSY 'Dead As Fuck'. На том же лэйбле выйдет сборник ABSCESS (участвуют Chris Reifert (drums/vocals, ex-DEATH/AUTOPSY), Clint Bower (guitar/vocals, ex-HEXX), Danny Coralles (guitar, ex-AUTOPSY) и Joe Allen (bass, ex-VON)) "Thirst for Blood... Hunger for Flesh".</p>
+
+Автор: Vit Belov
+
+### 05.02.2005 reviews Мумифицированный дэт - метал
+
+<P>Коллектив Abscess в особом представлении не нуждается. Музыканты группы ранее работали в таких командах, как Autopsy и Hexx, а драммер/вокалист Крис Рейферт успел отличиться даже с таким громким проектом, как Death. Но, видно, слава и успехи былых лет&nbsp; не принесли этой банде выгодных контрактов с крупными лейблами, и как следствие, нормального бюджета на запись альбома. На мой взгляд, саунд на&nbsp; Damned And Mummified можно было бы нарулить и получше - уж очень все сыровато звучит. Хотя, может быть в этом фишка, этакий дух андеграунда, присущий большинству релизов наших российских команд. Музыка группы представляет собой неторопливый дэт&nbsp; с легким налетом психоделии, абсолютно лишенный скоростного месилова. Вязкие, тягучие, прямо- таки блэксаббатовские риффы; среднетемповые, размеренные партии ударных. По духу пластинка напоминает последний релиз Pungent Stench и частично опусы Закка Вайлда в его "Обществе Черного Лейбла". И вроде бы все нормально, но как-то не цепляет. Очень пресно и монотонно, нет ярких моментов. Может быть поклонникам&nbsp; и понравится, но я для себя не нашел ничего интересного даже после многократных прослушиваний.</P>
+Автор: Fucker
+
+### 09.01.2007 news Новый альбом ABSCESS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ABSCESS</STRONG> <STRONG>"Horrorhammer" </STRONG>выходит в марте на <STRONG>Tyrant Syndicate Productions, </STRONG>лэйбле <STRONG>Nocturno Culto</STRONG> из <STRONG>DARKTHRONE</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Drink The Filth</B><BR>02. <B>New Diseases</B><BR>03. <B>Poison Messiah</B> <BR>04. <B>Another Private Hell</B> <BR>05. <B>Exterminate</B> <BR>06. <B>When Witches Burn</B> <BR>07. <B>Four Grey Walls</B> <BR>08. <B>Beneath A Blood Red Sun</B> <BR>09. <B>Horrorhammer</B> <BR>10. <B>Hellhole</B> <BR>11. <B>March Of The Plague</B><BR>12. <B>The Eternal Pyre</B></P>
+<P>Одну песню с этой пластинке можно послушать здесь:<STRONG> </STRONG><A href="http://www.myspace.com/abscessfreaks">http://www.myspace.com/abscessfreaks</A></P>
+Автор: Vit Belov
+
+### 06.12.2007 reviews Плюя на современные тренды
+
+<P>Если вы думаете, что американский ВИА Abscess под руководством Криса Райферта, который барабанил на первом альбоме великих Death, а позже основал группу Autopsy (которая приказала долго жить в 1995-ом), решил заиграть готику, пауэр или прогрессив на своем новом альбоме "Horrorhammer", то вы нуждаетесь в психиатре еще больше, чем участники этого скромного коллектива. Пятый по счету полноформатник группы вышел на лейбле Tyrant Syndicate (и, соответственно, на Peaceville Records), которым заведуют еще более скромные товарищи Fenriz и Nocturno Culto из культовой норвежской блэк-банды Darkthrone. Но нет нет, Abscess блэк играть не стали. Они нарезают всё ту же мерзейшую смесь грайнда и дэта старой школы, а на "Horrorhammer" их явно потянуло на панко-крастовые дела (послушайте хотя бы 'Another Private Hell'). Звук далёк от совершенства, он грязный и сырой, как будто пластинку записывали не в студии, а в гараже, где стоят старые родительские раздолбанные автомобили. Песни Abscess также раздолбайские (вот оно, влияние панка-то!) и смогут усладить слух лишь ярых поклонников коллектива или же подобной музыки вообще. Короткие, но лихо закрученные гитарные соло резко выделяются на общем фоне глухо-сырого саунда и только подчеркивают контраст. Но какого чёрта, ведь энергия прёт из всех щелей, и даже одноименная с названием альбома инструменталка (подумать только!) пришлась как нельзя в кассу. Abscess хороши тем, что плевать хотели на современные тренды и нарезают то, что у них получается. Возможно, "Horrorhammer" является как раз одним из тех альбомом, которых так не хватает на экстремальной сцене: сырым, грязным и донельзя "трушным".</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 28.10.2009 news ABSCESS закончили запись
+
+<P><STRONG>ABSCESS</STRONG> закончили запись своего восьмого альбома <STRONG>"Dawn Of Inhumanity"</STRONG>. Пластинка вновь выйдет на лэйбле<STRONG> Nocturno Culto</STRONG> из <STRONG>DARKTHRONE</STRONG> <STRONG>Tyrant Syndicate Productions. </STRONG>Музыканты обещают, что фэны <STRONG>ABSCESS </STRONG>не будут разочарованы.</P>
+Автор: Vit Belov
+
+### 24.01.2010 news Обложка нового ABSCESS
+
+<P>Новый альбом <STRONG>ABSCESS "Dawn Of Inhumanity" </STRONG>выходит 15 марта на <STRONG>Tyrant Syndicate Productions. </STRONG>Опубликована обложка этого релиза.</P>
+<P><center><IMG height=398 src="/images/news_rus/2010.01/16058.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 04.06.2010 news ABSCESS превратился в AUTOPSY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа барабанщика и вокалиста<STRONG> Chris Reifert ABSCESS</STRONG> закончила своё существование. Причиной распада стал уход гитариста <STRONG>Clint Bower, </STRONG>без которого, по словам барабанщика, <STRONG>ABSCESS</STRONG> не могут существовать. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Между тем, <STRONG>Chris Reifert</STRONG> объявил о реактивации <STRONG>AUTOPSY</STRONG> в следующем составе: на гитарах <STRONG>Eric Cutler</STRONG> и <STRONG>Danny Coralles, </STRONG>на басу <STRONG>Joe Trevisano</STRONG> (бывший <STRONG>Joe Allen</STRONG> из <STRONG>ABSCESS) </STRONG>и, естественно, сам <STRONG>Reifert</STRONG>. Группа уже работает над новыми EP и альбомом, а также над документальным DVD, которые выйдут на <STRONG>Peaceville Records</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом<STRONG> ABSCESS</STRONG> <STRONG>"Dawn Of Inhumanity" </STRONG>вышел 15 марта на <STRONG>Tyrant Syndicate Productions</STRONG>, лэйбле гитариста/вокалиста <STRONG>DARKTHRONE Nocturno Culto</STRONG>. В России эта пластинка пока не выходила.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом <STRONG>AUTOPSY "Shitfun"</STRONG> вышел 12 сентября 1995 года на<STRONG> Peaceville Records</STRONG>, в России его переизданием занимался <STRONG>Союз</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 13.01.2011 news Дебютник ABSCESS на виниле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18165.jpg" width=300 height=257>Лейбл <STRONG>Horror Pain Gore Death Productions</STRONG> анонсировал издание дебютного альбома группы <B itxtvisited="1">ABSCESS</B> на виниле. Диск <STRONG>"Seminal Vampires And Maggot Men" </STRONG>(1996) будет впервые издан в формате пластинки количеством&nbsp;в 500 экземпляров. В издание, так же, войдёт магнит, нашивка и постер. <BR itxtvisited="1"><BR itxtvisited="1">Предварительный заказ на диск можно сделать по адресу: <A href="http://hpgd.comoj.com/store/hpgd029.html">http://hpgd.comoj.com/store/hpgd029.html</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -44,6 +44,9 @@ Hard Rock / AOR
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### ROCK STARS SHOW с участием легенд классики рока: Graham Bonnet, Phil Soussan, Scott Warren и др.

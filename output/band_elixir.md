@@ -36,6 +36,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.03.2013 news Умер Clive Burr
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25529.jpg" width=310 height=399>12 марта, в возрасте 56 лет,&nbsp;ушёл из жизни барабанщик&nbsp;<STRONG>Clive Burr</STRONG>. Он долгое время страдал от Рассеяного склероза <EM>(серьёзное прогрессирующее заболевание с многочисленными очагами поражений центральной нервной системы)</EM>&nbsp;и умер во сне, находясь у себя дома.</P>
+<P><STRONG>Clive</STRONG> записал&nbsp;барабаны на&nbsp;трёх первых альбомах <STRONG>IRON MAIDEN</STRONG>, к которым присоеденился в 1979 году.</P>
+<P>А также был участником <STRONG>SAMSON</STRONG>, <STRONG>TRUST</STRONG>, <STRONG>ELIXIR</STRONG>, <STRONG>PRAYING MANTIS</STRONG> и <STRONG>GOGMAGOG</STRONG>. </P>
+<P><STRONG>Steve Harris</STRONG>: <EM>"Это ужасная новость. <STRONG>Clive</STRONG> был нашим&nbsp;старым другом. Он был прекрасным человеком и удивительным барабанщиком, который&nbsp;внёс неоценимый вклад&nbsp;в <STRONG>MAIDEN</STRONG>, на ранних годах существования&nbsp;группы.&nbsp;Сегодня очень печальный день для каждого из нас и для всех его близких. Наши соболезнования его жене <STRONG>Mimi</STRONG> и всей его семье."</EM></P>
+<P><STRONG>Bruce Dickinson</STRONG>:<EM> "Первый раз я встретил Клайва в тот момент, когда он покинул <STRONG>SAMSON</STRONG> и присоеденился к <STRONG>IRON MAIDEN</STRONG>.&nbsp;Он был клёвым парнем и человеком, который&nbsp;жил на полную катушку. Даже в самые тяжёлые дни его болезни, Клайв никогда не терял своего чувства юмора.&nbsp;Сегодня очень печальный день и все наши мысли с <STRONG>Mimi</STRONG>&nbsp;и его родными."</EM></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

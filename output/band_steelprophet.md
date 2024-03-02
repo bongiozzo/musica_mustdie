@@ -134,6 +134,371 @@ Engineered by Steve Kachinsky Recorded and mixed at Morrison Streetiwong Place S
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.03.1999 reviews 
+
+<p>Эта группа существует уже довольно давно. К сожалению, это первая работа коллектива, которая попала ко мне в руки. "Это же Iron Maiden!", - была первая моя реакция. Действительно, продолжительное прослушивание не изменило моего мнения. Сошлюсь на статью Тиамата Брюсе Дикинсоне "More maiden than Maiden". Мне кажется, что к этой группе это определение подходит даже лучше, чем к самому Дикинсону. Если бы Iron Maiden упорно не боялись менять своё звучание в сторону современных аналогов, они были бы похожи на Steel Prophet. Вокал на рецензируемой пластинке на некоторых композициях просто убивает своей похожестью на голос Брюса, а музыка по строению похожа на Maidenовскую. Это не значит, конечно же, что всё, что можно услышать на "dark hallucinations" целиком и полностью содрано с классиков жанра. Некоторые участки нельзя даже и сравнить, быть может потому, что звук более тяжёлый. Ну что ж, нам только остаётся ждать нового альбома возродённой "Железной Девы" и сравнивать его, потом, с работой Steel Prophet.</p>
+
+Автор: Dimas
+
+### 08.05.1999 news 
+
+<p>Gamma Ray выпустили свой новый альбом "Powerplant" и штурмуют чарты по всему миру. Например, в Чехии группа добралась до 60 места. Ну и продолжая лазарет, у Кая Хансена проблемы с горлом. Из-за этого группа отменила два концерта в Германии. Но большо не одно шоу не пострадает, так как группа усилено ищет помошника на ближайшие концерты. Рассматривается три кандидатуры: вокалисты Edguy и Steel Prophet, а также вокалист сайд-проекта барабанщика Gamma Ray Дэна Циммермана Freedom.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Steel Prophet покинул барабанщик Пэт Маграт. Его заменил Кевин Кафферти.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Steel Prophet вошли в студию для записи новой пластинки с возможным названием "Messiah". Продюсировать работу будет Джим Моррис.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Steel Prophet записали новый альбом, который увидит свет весной. Тем временем группа ищет нового барабанщика.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Steel Prophet записали новый альбом, который увидит свет весной. Тем временем группа ищет нового барабанщика.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Новый альбом Steel Prophet "Messiah" выйдет 24 января.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 reviews 
+
+<p>Ветераны немецкой сцены только в прошлом году обратили на себя внимание, перейдя под крыло Nuclear Blast и выпустив альбом под названием "Dark Hallucinations". Успех этого альбома видимо придал группе сил и духа. И вот они снова радуют нас своим новым альбомом, который способен вывести группу в лидеры. На альбоме звучит быстрый бескомпромиссный и жёсткий speed-metal в чистом его виде в духе первых альбомов ARTILLERY и BLIND GUARDIAN. Чрезвычайно мелодичный, набитый хитами до отказа. Альбом сразу захватывает слушателя и до его конца просто невозможно отвлечься на что-нибудь другое. Быстро, мощно, тяжело, мелодично и завораживающе. Рекомендую.</p>
+
+Автор: Dimas
+
+### 13.06.2000 news В Steel Prophet изменение состава.
+
+<p>В Steel Prophet изменение состава. Новыми членами коллектива стали гитарист Jim Williams и барабанщик Karl Rosqvist. Группа планирует записать новую пластинку, которая выйдет в январе 2001. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news In Steel Prophet a change of the line-up
+
+<p>In Steel Prophet a change of the line-up. By the new members of collective of steel guitarist Jim Williams and drummer Karl Rosqvist. The group plans to note a new plate, which will leave in January 2001. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 30.04.2003 news Новый вокалист STEEL PROPHET
+
+<p>Новым вокалистом группы STEEL PROPHET стал Nadir D'Priest (ex-LONDON, D'PRIEST). Он заменил Rick Mythiasin'а покинувшего группу в июле прошлого года из-за музыкальных и персональных разногласий и вляющегося ныне вокалистом TARAXACUM. Группа считает, что вокал Надира идеально подходит под музыку группы.</p>
+
+Автор: Dimas
+
+### 28.02.2004 news STEEL PROPHET заключили контракт
+
+<P><B>STEEL PROPHET</B> заключили контракт с <B>Massacre Records</B> на выпуск нового альбома. Кроме этого, группу покинул барабанщик <B>Karl</B>, который хочет уделить больше внимания своей другой группе <B>Disciples</B>.</P>
+Автор: Vit Belov
+
+### 14.05.2004 news Новый tribute to Black Sabbath
+
+<P><B>Cleopatra Records</B> выпускает новый tribute to <B>BLACK SABBATH</B>. Трэк-лист:</P>
+<P><IMG height=217 alt="" hspace=0 src="/images/news_rus/2004.05/6513.jpg" width=216 align="right" border=5>01. <B>ICED EARTH</B> - "Black Sabbath"<BR>02. <B>PRIMAL FEAR</B> - "Die Young"<BR>03. <B>JAG PANZER</B> - "Children Of The Sea"<BR>04. <B>RACER X</B> - "Children Of The Grave"<BR>05. <B>LYNCH/NEIL</B> - "Paranoid"<BR>06. <B>ICARUS WITCH</B> - "Falling Off The Edge Of The World"<BR>07. <B>FOREVER SAY DIE!</B> - "Sabbath Bloody Sabbath"<BR>08. <B>ORDER OF NINE</B> - "Disturbing The Priest"<BR>09. <B>STEEL PROPHET</B> - "Neon Knights"<BR>10. <B>AGENT STEEL</B> - "Hole In The Sky"<BR>11. <B>DOFKA</B> - "N.I.B."<BR>12. <B>TWISTED TOWER DIRE</B> - "Glory Ride"<BR>13. <B>OCTOBER 31</B> - "Danger Zone"<BR></P>
+Автор: Vit Belov
+
+### 06.10.2004 reviews Неприятное преображение
+
+<P><EM><STRONG>STEEL PROPHET</STRONG> вспыхнули и погасли. Выпустив несколько хороших альбомов для <STRONG>Nuclear Blast</STRONG>, группа оповестила о себе мир, но долго продержаться на высоком уровне им не удалось.</EM></P>
+<P>Группу покинул вокалист, также ребят "попросили" с <STRONG>Nuclear Blast</STRONG>. Единственным светлым пятнышком стал контракт с <STRONG>Massacre</STRONG>, на котором <STRONG>STEEL PROPHET</STRONG> и выпустили рецензируемый альбом '<STRONG>Beware</STRONG>'. Ничего радостного поклонникам группы я сообщить не могу.</P>
+<P>Во-первых, новый вокалист. Он не дотягивает до уровня своего предшественника. Если предыдущий певец заслуживал сравнения с <STRONG>Bruce Dickinson</STRONG>, что, согласитесь, уже неплохо, то новый парень со звучной фамилией <STRONG>D'Priest</STRONG> не может похвастаться даже такими рекомендациями. Попытки завуалировать его плохое пение разнообразными хорами и сменой тембра оказались неудачными. Быть может это случилось потому, что бюджет записи не очень высок. Продюсированием занялись гитарист <STRONG>STEEL PROPHET Kachinsky</STRONG> и новый фронтмэн <STRONG>D'Priest</STRONG>. Им удалось создать запись по качеству уступающую даже средненьким power-metal группам. Печально. Ещё один недостаток - это топорная лирика. Например, в одной из песен вокалист горлопанит: "<EM>Yes, I am</EM>", чуть ли не целую минуту. Хочется ему сказать: "Да, мы поняли, что это ты, поняли!"</P>
+<P>Нельзя сказать, что '<STRONG>Beware</STRONG>' такой уж пустой. Есть несколько неплохих мелодий,&nbsp;средних баллад, но ведь когда-то <STRONG>STEEL PROPHET</STRONG> заслуживали чуть ли не высшей оценки. Из хорошего клона <STRONG>IRON MAIDEN&nbsp;</STRONG>группа превратились в подпольную power-metal&nbsp;команду с плохой записью и слабым вокалистом, каковых очень много. Неприятное преображение.&nbsp;</P>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">ART-MUSIC</A></P>
+Автор: Vit Belov
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 22.01.2012 news STEEL PROPHET продолжают работу
+
+<P><IMG height=445 alt="" hspace=0 src="/images/news_rus/2012.01/22720.jpg" width=475 align=right border=0>Американские heavy-metal'исты <STRONG>STEEL PROPHET</STRONG> продолжают работу над долгожданным новым альбомом. Вот названия некоторых песен:</P>
+<P>*<STRONG> Funeral For Art</STRONG><BR>* <STRONG>Tree Of Knowledge<BR></STRONG>* <STRONG>When I Remake The World (A Key Flaw)<BR></STRONG>* <STRONG>Aliens<BR></STRONG>* <STRONG>Spaceships And Richard M. Nixon<BR></STRONG>* <STRONG>Through Time And Space</STRONG><BR><STRONG>*</STRONG> <STRONG>666 Is Everywhere</STRONG></P>
+Автор: Vit Belov
+
+### 22.03.2014 news Новый альбом STEEL PROPHET
+
+<P>Спустя 10 лет после релиза последнего альбома<STRONG> STEEL PROPHET "Beware"</STRONG> группа подготовила новую концептуальную работу "<STRONG>Omniscient</STRONG>". Альбом выйдет в конце июня/начале июля. Подробности последуют.</P>
+<P>Обложку, на которой изображено "древо знаний", создал немецкий художник <STRONG>Timo Wurz</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26765.png" width=410 height=410></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Steel prophet

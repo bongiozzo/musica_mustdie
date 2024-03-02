@@ -150,6 +150,117 @@ Mark Greenwell - bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Bal-Sagoth заняты записью своего четвёртого альбома. Группа пока что выбирает лэйбл, который удостоится чести выпустить новый релиз группы. Существует два претендента: Nuclear Blast и Cacophonous.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Bal-Sagoth заключили контракт с Nuclear Blast на три альбома и вошли в студию для записи долгожданного четвёртого альбома. Новый альбом выйдет в сентябре.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Bal Sagoth закончили запись своего четвёртого альбома под названием "The Power Cosmic". Альбом длится 41 минуту и выйдет на Nuclear Blast в конце лета.</p>
+
+Автор: Vit Belov
+
+### 23.08.1999 news 
+
+<p>Как уже сообщалось, Bal Sagoth закончили запись нового альбома "The Power Cosmic". Дата его выхода уточняется. Известно, что кавер-арт для пластинки выполнил Мартин Хэнфорд. Также он занимается разрисовкой новых маек и балахонов совместно с человеком по имени Разаматаз.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Новый альбом Bal-Sagoth "The Power Cosmic" выйдет 11 октября. Ещё одной новостью является то, что их клавишник Джонни Маудлинг принял участие в записи нового альбома My Dying Bride. А в My Dying Bride вновь появиться скрипач Мартин Пауэлл.</p>
+
+Автор: Vit Belov
+
+### 26.08.2000 news Bal-Sagoth закончили работу над своим очередным альбомом
+
+<p> Практически закончена запись пятого студийным альбома группы Bal-Sagoth. Так же как и предыдущий альбом ("The Power Cosmic"), новый диск опять выйдет на Nuclear Blast. Вскоре группа планирует приступить к записи следующего, шестого, диска, который появится в продаже ориентировочно весной 2001-го года.</p>
+
+Автор: Nybras
+
+### 26.08.2000 news Bal-Sagoth has finished writing latest studio opus
+
+<p> The writing of the much anticipated fifth BAL-SAGOTH album is nearing completion. The band intend to record the saga's next episode in the autumn, for a spring 2001 release. Like the band's fourth album (The Power Cosmic), the forthcoming fifth opus will once again be available on Nuclear Blast. The celebrated "Hyperborean Empire" saga reaches its third and final chapter on the new album, as events within the besieged and benighted kingdom of Hyperborea culminate in a pulse-pounding and cataclysmic climax of unparalleled proportions. <br>This news from Renegade2K.</p>
+
+Автор: Nybras
+
+### 28.02.2001 news Bal-Sagoth: возвращение королей.
+
+<p> Бессмертные держатели трона True Britanic Battle Metal, могущественные Bal-Sagoth, возвратились с ошеломляющим новым альбомом. Пятый разящий грозовой разряд молнии, опус Bal-Sagoth под названием "Atlantis Ascendant", являет собой мрачное путешествие в сказочный мир фантазий Bal-Sagoth, в долину тайны и воображения, сверкающего удивления и чистейшего первородного ужаса. Невероятно таинственные сюжетные линии повествования разворачиваются на фоне захватывающих оркестровых перспектив и потрясающего симфонического black metal. Трек-лист этого нового щедевра: 1. "The Epsilon Exordium", 2. "Atlantis Ascendant", 3. "Draconis Albionensis", 4. "Star-Maps Of The Ancient Cosmographers", 5. "The Ghosts Of Angkor Wat", 6. "The Splendour Of A Thousand Swords Gleaming Beneath The Blazon Of The Hyperborean Empire (Part: III)", 7. "The Dreamer In The Catacombs Of Ur", 8. "In Search Of The Lost Cities Of Antarctica", 9. "The Chronicle Of Shadows", 10. "Six Keys To The Onyx Pyramid". Дата официального релиза - 2 апреля 2001 года.</p>
+
+Автор: Morsus
+
+### 28.02.2001 news Bal-Sagoth: The return of the kings.
+
+<p> The immortal lords of True Britanic Battle Metal, the mighty Bal-Sagoth, have returned with a stunning new album. Bal-Sagoth's fifth thunderous metal onslaught is the opus known as "Atlantis Ascendant", and is embodies a darkly wonderous voyage into the celebrated fantasy universe of Bal-Sagoth, a place of mystery and imagination, of coruscating wonder and pure primal horror. The elaborate occult-fantasy tales of the intricately woven Bal-Sagoth canon and their stunning story-arcs are set against the backdrop of incredible orchestral vistas and symphonic black metal soundscapes unrivalled in the field of extreme music. Tracklisting:1. "The Epsilon Exordium", 2. "Atlantis Ascendant", 3. "Draconis Albionensis", 4. "Star-Maps Of The Ancient Cosmographers", 5. "The Ghosts Of Angkor Wat", 6. "The Splendour Of A Thousand Swords Gleaming Beneath The Blazon Of The Hyperborean Empire (Part: III)", 7. "The Dreamer In The Catacombs Of Ur", 8. "In Search Of The Lost Cities Of Antarctica", 9. "The Chronicle Of Shadows", 10. "Six Keys To The Onyx Pyramid". Release date: April 2nd 2001.</p>
+
+Автор: Morsus
+
+### 07.05.2001 reviews Вечная слава Гиперборейцам!
+
+<p>Вечная слава Гиперборейцам! Наконец-то нам выпадает возможность ознакомиться с новейшим светлым и фэнтезийным материалом британской команды. Темный, грубый, злой и мощный металл, но вместе с тем - бесшумный. Множество клавишных и духовых вместе с речитативным вокалом переходящим в гроулинг и скриминг. Смесь black и death metal с немногочисленными элементами power metal. Очень уникальная музыка, сочетающая в себе воинственно-агрессивный настрой и романтические настроения. Пятый альбом группы недалеко ушел от своего предшественника, но радует он неимоверно. Группа по-прежнему остается верна своим корням и традициям не поддаваясь ни на один из коммерческих экспериментов. Величественная пафосная и волшебная музыка с неописуемыми симфоническими пассажами. Холодная эпическая атмосфера. Этот альбом действительно надо прослушивать перед боем для вдохновения и придания сил. Снова нам описывается бесподобная фантастическая история в радужных тонах на фоне бесподобной разудалой музыки. Непередаваемые чувства заполняют разум и тело при прослушивании сего почти что шедевра! Безумно интересно! Послушайте, и вы ничуть не пожалеете!</p>
+
+Автор: Dimas
+
+### 14.03.2002 news Bal-Sagoth: Episode VI
+
+<p>Work on the sixth Bal-Sagoth album is now underway. The successor to 2001's phenomenally successful "Atlantis Ascendant" will be far darker and more intense than anything that has come before, hearkening back in many ways to the barbaric early days of the band's work. The band plan to begin recording the sixth album in the late summer or early autumn of 2002. The cover art will once again be painted by the renowned Games Workshop fantasy artist Martin Hanford.</p>
+
+Автор: Morsus
+
+### 14.03.2002 news Bal-Sagoth: Эпизод VI
+
+<p>Работа над шестым альбомом Bal-Sagoth перешла в практическую стадию. Преемник прошлогоднего "Atlantis Ascendant" будет более мрачным и интенсивным по сравнению с прежними альбомами и в некотором роде взглядом назад, в ранние варварские годы жизни коллектива. Запись планируется начать в последних днях лета либо ранней осенью 2002 года. Обложку и в этот раз будет рисовать известный мастер фэнтэзи-графики Мартин Ханфорд.</p>
+
+Автор: Morsus
+
+### 22.10.2003 news BAL-SAGOTH:  Все ожидания фанатов не будут напрасными...
+
+<IMG height=300 alt="" hspace=0 src="/images/news_rus/2003.10/5187.jpg" width=200 align="left" border=0>Британская Barbarian-Metall группа <B>BAL-SAGOTH</B> не торопится с выпуском своего нового, шестого по счёту альбома+ Но&nbsp; все ожидания фанатов не будут напрасными . По словам музыкантов группы, им не хочется торопиться и делать всё кое как. Альбом обещает быть ещё более эпическим, и как всегда отправит нас в путешествие по загадочным мирам <B>BAL-SAGOTH</B>.<BR><BR>Запись альбома состоится ближайшей зимой, а релиз на Nuclear Blast намечен весной 2004 года+ А сейчас два известных фентези-художника&nbsp;&nbsp; <B>Мартин Ханфорд (Martin Hanford)</B> и <B>Самуэль Сантос (Samuel Santos)</B>, под бдительным контролем музыкантов группы завершают работу над обложкой.<BR>
+Автор: AngelFire
+
+### 01.05.2004 news BAL-SAGOTH начинают запись
+
+<P>Несмотря на оптимистические заявления о скором выходе шестого альбома, <B>BAL-SAGOTH</B> только сейчас заканчивают написание песен для новой пластинки. Группа войдёт в студию в скором времени, а сам альбом выйдет только в конце года.</P>
+<P>Из других новостей, группу покинул барабанщик <B>Dave Mackintosh, </B>чтобы сконцентрироваться на своих других музыкальных проектах.</P>
+Автор: Vit Belov
+
+### 26.01.2005 news Новый альбом BAL-SAGOTH - долгострой?
+
+<P><STRONG>BAL-SAGOTH</STRONG> всё ещё продолжают сочинять песни, а окончательная запись теперь намечена на весну. Стало известно, что пластинка будет длиться 60-70 минут. Выход пластинки теперь запланирован на июль через <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.01.2005 news BAL-SAGOTH - continue to work
+
+<P>Writing and preliminary recording of the sixth <STRONG>BAL-SAGOTH</STRONG> album is proceeding concurrently, with the final completion date scheduled for the spring. The running time of the sixth album will be somewhere around 60 to 70 minutes.&nbsp;A release through <STRONG>Nuclear Blast</STRONG> is currently scheduled for July 2005.</P>
+Автор: Vit Belov
+
+### 17.12.2005 news BAL-SAGOTH назвали альбом
+
+<P>Долгожданный новый альбом <STRONG>BAL-SAGOTH</STRONG> будет называться <STRONG>"The Chthonic Chronicles" </STRONG>и выйдет в начале года на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Sixth Adulation of His Chthonic Majesty</B><BR>02. <B>Invocations Beyond The Outer-World Night</B> <BR>03. <B>Six Score and Ten Oblations to a Malefic Avatar</B> <BR>04. <B>The Obsidian Crown Unbound</B> <BR>05. <B>The Fallen Kingdoms of the Abyssal Plain</B> <BR>06. <B>Shackled to the Trilithon of Kutulu</B> <BR>07. <B>The Hammer of the Emperor</B> <BR>08. <B>Unfettering the Hoary Sentinels of Karnak</B> <BR>09. <B>To Storm the Cyclopean Gates of Byzantium</B> <BR>10. <B>Arcana Antediluvia</B> <BR>11. <B>Beneath the Crimson Vaults Of Cydonia</B> <BR>12. <B>Return to Hatheg-Kla</B> </P>
+Автор: Vit Belov
+
+### 24.04.2006 reviews Последняя песня BAL-SAGOTH’а?..
+
+<P>Для общего образования: BAL-SAGOTH – английская формация, образованная вокалистом Байроном Робертсом в начале 90-х (в 93-м вышло первое демо), “The Chtonic Chronicles” – уже шестой альбом группы, продолжающий концепцию фантастической Вселенной, придуманной Байроном и Ко. Стиль – пардон, за тавтологию, - разнородный стилистический микс, который сами музыканты именуют Darkly Baroque Occult Fantasy Metal. Во как!.. Если попроще – мелодичный black metal с доминирующей клавишной составляющей и мелодикой а ля «Конан-Варвар». Еще – группа славится длиннющими названиями своих композиций (типа “Six Score And Ten Oblations To A Malefic Avatar” – и это еще скромненько). Ну, и, на мой взгляд – BAL-SAGOTH является одной из самых оригинальных английский групп.</P>
+<P>Несмотря на весьма теплое отношение к этому замечательному коллективу, поначалу “The Chtonic Chronicles” меня совершенно не впечатлил. Какой-то бессвязный и дюже замороченный хаос… да уж, гениальный “Battle Magic” (1997) им точно не переплюнуть. Однако, прогнав альбом несколько раз сначала в плейере, а потом в центре, я изменил свое мнение касательно «Хтонических хроник». </P>
+<P>Да, «Хроники» - однозначно самый сложный и, возможно, излишне перенасыщенный аранжировками альбом группы. Но скучать при прослушивании оного явно не придется – скоростные фрагменты сменяются медленными симфоническими пассажами, чистоголосые помпезные декламации – в меру злобным скримингом, агрессивные гитарные риффы – богатыми оркестровыми партиями. В принципе, здесь все то же самое, что и на пяти предыдущих релизах группы (“Battle Magic” – все равно лучший!), но… Мой вердикт – крепкая, интересная, но несколько затянутая и вымученная работа.</P>
+<P>Да, и еще один нюанс, касающийся группы. Если верить последним интервью с Байроном, BAL-SAGOTH останавливает свою деятельность – по крайней мере, в такой форме, как музыкальные альбомы…</P>
+<P>Диск предоставлен Irond</P>
+Автор: Dr. Grandma
+
+
 ## Обсуждения
 
 ### BAL-SAGOTH RETURNS!

@@ -16,6 +16,37 @@ true-black-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.08.2000 reviews Black-metal каким он должен быть
+
+<p>Black-metal каким он должен быть. Третий альбом группы не несет собой ничего нового. Все тот же стандартный black-metal в духе Marduk с убойными риффами, гортанно-шипящим вокалом и постоянной бласт-битовой атакой. Типичное рубилово с тематикой о темных силах. Но все сделано очень качественно и профессионально. музыканты пытаются разнообразить свою музыку необычными риффами, что выгодно отличает их от других команд играющих подобную музыку. Группа несколько злоупотребляет фишками от Marduk, но в целом альбом производит очень неплохое впечатление. Любители же true-black-metal будут беспредельно счастливы при прослушивании этого альбома.</p>
+
+Автор: Dimas
+
+### 15.08.2000 reviews Black-metal With what he should be
+
+<p>Black-metal With what he should be. The third album of group does not bear by itself anything new. All same standard black-metal in spirit Marduk with killing rhythms, low-sibilian tvoice and constan tblast-bit attack. Representative headbang with subjects about dark forces. But all is made very much qualitatively and professionally. The musicians attempt разнообразить the music exotic rhythms, that is expedient distinguishes them from other commands playing similar music. The group misuses by chesspieces from a little Marduk, but as a whole album makes a very quite good impression. The fans true-black-metal will is boundless are happy at listening this album.</p>
+
+Автор: Dimas
+
+### 19.09.2003 news THY PRIMORDIAL работают над новой пластинкой
+
+<p>THY PRIMORDIAL работают над новым альбомом "Pestilence Upon Mankind". Группа закончила работу в студии и опубликовала заявление: "Это без сомнения наш лучший альбом. Он быстрее,тяжелее, более сложный и звучит лучше, чем предыдущие наши работы." CD, записанный в Abyss Studio с Tommy Tagtgren выйдет в конце года.</p>
+<p>&nbsp;</p>
+Автор: Vit Belov
+
+### 16.10.2003 news Primordial in Romania
+
+<B>Primordial</B> (Ireland)*<BR>Negura Bunget (Romania)*<BR>May Result (Serbia)<BR>Psycho Symphony (Romania)<BR><BR>Saturday November 15 2003, 19:00<BR>Timisoara, Sport Hall Nr. 2<BR>ticket: 8,5 EU <BR><BR>* Part of <B>Storming the East</B> tour!<BR><BR>More infos on the bands performing at:<BR><A href="http://www.primordialweb.tk/"><U>www.primordialweb.tk</U></A><BR><A href="http://www.negurabunget.com/"><U>www.negurabunget.com</U></A><BR><A href="http://www.mayresult.com/"><U>www.mayresult.com</U></A><BR>
+Автор: Vit Belov
+
+### 21.11.2005 news THY PRIMORDIAL  больше нет
+
+Шведская black metal формация <STRONG>THY PRIMORDIAL</STRONG> распалась, как гласит информация на их официальном сайте.
+Автор: Dimas
+
+
 ## Обсуждения
 
 

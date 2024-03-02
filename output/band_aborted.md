@@ -216,6 +216,162 @@ Disc 2 - Termination Redux
 
 * C группой "Yyrkoon" 
 
+## Публикации
+
+### 07.10.2003 news ABORTED готовят мини-альбом
+
+Бельгийские горе-дэт металлеры <B>ABORTED</B>&nbsp;войдут в феврале 2004 года&nbsp;в датскую <B>Hansen Studios,</B> где с продюсером <B>Jacob Hansen</B> (<B>RAUNCHY</B>, <B>ILLDISPOSED</B>, <B>INVOCATOR</B>, <B>HATESPHERE</B>) запишут свой новый мини-альбом <B>"Bloodfix"</B>. Он будет содержать три новые песни, переработку <B>"The Sanctification Of Fornication" </B>и пока неизвестную кавер-композицию. Также, диск будет содержать видеоклип <B>"Meticulous Invagination"</B> и несколько концертных композиций в видеоформате. Выход запланирован на апрель 2004 года через <B>Listenable Records</B>.
+Автор: Dimas
+
+### 02.03.2004 news ABORTED расстались с барабанщиком
+
+<P><B>ABORTED</B> расстались со своим барабанщиком <B>Frank</B>'ом. В тур вместе с CANNIBAL CORPSE в составе группы поедет <B>Dirk Verbeuren (SCARVE, SOILWORK).</B></P>
+Автор: Vit Belov
+
+### 02.03.2004 news ABORTED Part Ways With Drummer
+
+Belgian gory death metallers <B>ABORTED</B> have parted ways with longtime drummer <B>Frank</B>. "The reason of the break up with <B>Frank</B> is mainly due to musical reasons," the band write on their web site. "He is a great guy and we wish him the best of luck in his further musical & non musical career." Replacing <B>Frank</B> for the upcoming tour with <B>CANNIBAL CORPSE</B> will be <B>Dirk Verbeuren</B> from the French band <B>SCARVE</B> (also currently in <B>SOILWORK</B>).
+Автор: Vit Belov
+
+### 09.04.2004 news DEATHMETAL.BE fest part 2
+
+... will take place Saturday <B>8th of May </B>in JH de Tap, Kuurne (B) 
+<P>&nbsp;&nbsp;Line-up :<BR>&nbsp; GOJIRA&nbsp;(FR),&nbsp; ABORTED,&nbsp;&nbsp;GRONIBARD&nbsp;(FR),&nbsp; WELKIN,&nbsp; SUHRIM,&nbsp; LEPTOTRICHIA<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <A href="http://fest2.deathmetal.be/"><U>http://fest2.deathmetal.be</U><BR></A></P>
+Автор: Vit Belov
+
+### 25.11.2004 news ABORTED готовы к записи
+
+<P><STRONG>ABORTED</STRONG> войдут в студию для записи своей четвёртой пластинки <STRONG>'The Archaic Abattoir'</STRONG>. Продюсером альбома выступит <STRONG>Tue Madsen</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.11.2004 news ABORTED are reafy to record
+
+<P>Belgian gorehounds <STRONG>ABORTED</STRONG>&nbsp;are about to enter the studio for their 4th fullength album, tentatively entitled <STRONG>'The Archaic Abattoir'</STRONG>. This December with producer <STRONG>Tue Madsen</STRONG> (<STRONG>THE HAUNTED, MNEMIC,&nbsp;ILLDISPOSED</STRONG>). Among a re-worked version of <STRONG>'Gestated Rabidity'</STRONG> (off the haematobic EP), other songtitles passed around are <STRONG>'The Inertia'</STRONG>, <STRONG>'A Cold Logistic Slaughter'</STRONG>, <STRONG>'The Archaic Abattoir'</STRONG>,<STRONG> 'Parturient Homicidal Craving' </STRONG>and more to come along a concept story. <STRONG>ABORTED</STRONG> are also touring with <STRONG>IMMOLATION</STRONG> in Feb / March 2005! </P>
+Автор: Vit Belov
+
+### 09.01.2005 news Новый альбом ABORTED готов
+
+<P>Новый альбом <STRONG>ABORTED 'The Archaic Abattoir'</STRONG> уже готов. Гостевое участие на нём приняли: <STRONG>Bo</STRONG> (<STRONG>ILLDISPOSED</STRONG>), <STRONG>Michael</STRONG> (<STRONG>MNEMIC</STRONG>) , <STRONG>Jacob</STRONG> (<STRONG>HATESPHERE</STRONG>). Трэк-лист:</P>
+<P>1. <STRONG>Dead Wreckoning</STRONG><BR>2. <STRONG>Blood Fixing The Bled<BR></STRONG>3. <STRONG>Gestated Rabidity</STRONG><BR>4. <STRONG>Hecatomb<BR></STRONG>5. <STRONG>The Gangrenous Epitaph</STRONG><BR>6. <STRONG>The Inertia<BR></STRONG>7. <STRONG>A Cold Logistic Slaughter<BR></STRONG>8. <STRONG>Voracious Haemoglobinic Syndrome<BR></STRONG>9.<STRONG> Threading On Vermillion Deception</STRONG><BR>10. <STRONG>Descend To Extirpation</STRONG></P>
+Автор: Vit Belov
+
+### 11.02.2005 news Новые песни ABORTED и MORS PRINCIPIUM EST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Listenable Records</STRONG> выложили для ознакомления песни с новейших альбомов <STRONG>ABORTED</STRONG> и <STRONG>MORS PRINCIPIUM EST</STRONG>. Вы млжете их послушать в нашем разделе MP3.</FONT></P>
+Автор: Vit Belov
+
+### 16.05.2005 news ABORTED лишились гитариста
+
+<P>Гитарист <B>Bart</B> покинул <B>ABORTED</B>, из-за того что решил организовать новую группу с другим музыкальным направлением. <B>ABORTED</B> не отменили концерты и отыграли их в этот уик-энд, как квартет. В ближайшее время будет найдена замена.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 21.06.2005 news ABORTED назвали имя нового гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=134 alt="" hspace=0 src="/images/news_rus/2005.06/8840.jpg" width=200 align=left border=5>Новым гитаристом <STRONG>ABORTED</STRONG>, вместо ушедшего <STRONG>Bart</STRONG>, стал <STRONG>Stephane Souteyrand</STRONG> из группы <STRONG>YYRKOON</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я был фэном группы уже несколько лет с выхода альбома "Goremageddon". Это большая честь для меня присоединиться к <STRONG>ABORTED</STRONG>. Сделаю всё от меня зависящее, чтобы стать хорошим хирургом</EM>", - пишет музыкант на официальном сайте группы.</FONT></P>
+Автор: Vit Belov
+
+### 27.07.2005 reviews Скотобойня ждет нас…
+
+<P>Существует определенная группа меломанов и журналистов, которые привыкли считать эту группу последователями великих Carcass. Я думаю, такие люди есть, в том числе и среди поклонников Aborted. Конечно, на то есть определенные основания – это и характерное «низкое» звучание, и медицинская тематика оформления и текстов, и определенное мелодическое сходство. Лично я считаю, что бельгийцы пошли дальше, и со своим новым альбомом The Archaic Abattoir возносят жанр на новый уровень. </P>
+<P>Весь материал слушается на одном дыхании и в нем очень большое количество «качевых» фишек. Выделить отдельно какую-либо песню достаточно сложно, они очень хороши, ведь все музыканты постарались на славу: здесь нет ни одной лишней ноты, ни одного лишнего слова. Особого внимания заслуживает работа барабанщика Жиля – он играет очень технично и по-настоящему со вкусом. Звуковая составляющая реализована на высшем уровне - все звучит просто шикарно.</P>
+<P>Что касается оформления, то и тут не к чему придраться - очень стильно: грязно серо-зеленые цвета, заброшенная скотобойня на обложке, всевозможные интерьеры этого помещения, в том числе кухня с варящимися блюдами, туалет с журналом Playcorpse за 2003 год, всяческие комнаты со старыми хирургическими инструментами, баночками с заспиртованными частями тел, отрубленная голова в ведре, ну и, конечно же, главный хозяин скотофермы в хирургическом костюме с бензопилой в руках. Таким образом, разглядывание буклета приятно скрашивает и оживляет прослушивание этого замечательного альбома. </P>
+<P>В итоге вас ждет увлекательный&nbsp; сильный альбом, оставляющий далеко позади всяческих поляков. </P>
+Автор: Bizarre
+
+### 10.08.2005 news ABORTED подписались на  CENTURY MEDIA RECORDS
+
+<P>Один из крупнейших металлических лейблов <STRONG>Century Media Records</STRONG> анонсировал подписание мирового соглашения на выпуск новых альбомов бельгийской death grind&nbsp;metal формации&nbsp;<B>ABORTED</B>. Сами музыканты считают это событие огромным шагом вперед в их карьере и вскоре приступят к сочинению нового материала.<BR></P>
+Автор: Dimas
+
+### 07.09.2005 news ABORTED видео
+
+<P>Видеоклип <STRONG>ABORTED</STRONG> с последнего альбома <STRONG>'The Archaic Abattoir'</STRONG> на песню "<STRONG>Dead Wreckoning</STRONG>" можно посмотреть здесь: <A href="http://deimos.curious.be/~AbortedRoot/news.php">http://deimos.curious.be/~AbortedRoot/news.php</A>#</P>
+Автор: Vit Belov
+
+### 07.09.2005 news Video ABORTED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>New video of <STRONG>ABORTED</STRONG> for "<STRONG>Dead Wreckoning</STRONG>" from the new album "<STRONG>The Archaic Abbattoir</STRONG>" can be dowloaded here:&nbsp;<A href="http://deimos.curious.be/~AbortedRoot/news.php">http://deimos.curious.be/~AbortedRoot/news.php</A>#</FONT></P>
+Автор: Vit Belov
+
+### 05.04.2006 reviews Брутальный бельгийский залп
+
+<P>Четвертый полноформатник бельгийских мясников Aborted призван заткнуть рот всем тем, кто упорно рассуждает об угасании такого жанра, так дэт-метал. На очень "приятно" оформленном "The Archaic Abattoir" вас ждет встреча с весьма брутальным материалом, в который сей квинтет умудрился впихнуть не только мощнейшие и устрашающие риффы, но и даже мелодичные ходы! Органичное сочетание гроула и скриминга (кстати, на альбоме три приглашенных вокалиста - Bo Summer (Illdisposed), Michael Bogballe (Mnemic), Jacob Bredahl (Hatesphere)) только добавляет плюсов данной работе. При первом прослушивании пластинка мне показалась несколько однообразной, но повторные показали, что я ошибался. Интересные риффы, сумасшедшая работа барабанщика, нестандартные гитарные соло, всё это делает работу бельгийцев весьма примечательным релизом. Всегда приятно, когда группы, работающие в таком, казалось бы, консервативном жанре (а отталкиваются Aborted, как ни крути, от американского брутального варианта дэт-метала), не стоят на месте и не переигрывают тупо одно и тоже из альбома в альбом.&nbsp; Сложно сказать, войдут ли они с "The Archaic Abbatoir" в высшую мировую лигу дэта, но можно с уверенностью утверждать, что на фоне многих других брутальных релизов данная пластинка смотрится более чем достойно.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 31.08.2006 news DVD от ABORTED
+
+<P><IMG height=297 alt="" hspace=10 src="/images/news_rus/2006.08/10663.jpg" width=200 align=left border=0>В октябре на <STRONG>Listenable records</STRONG> выходит долгожданный двд бельгийской группы <STRONG>ABORTED</STRONG> под названием <STRONG>"The Auricular Chronicles". </STRONG>В него войдут съемки с парижского&nbsp;выступления коллектива, заснятого тринадцатью камерами. Над звуком поработал&nbsp;<B>Tue Madsen</B> (<B>HALFORD</B>, <B>KATAKLYSM</B>). На двд также&nbsp;будут видеоклипы, закулисные съемки, фрагменты с других&nbsp;концертов команды, интервью с музыкантами и их поклонниками.<BR>Также стало известно название нового альбома <STRONG>ABORTED</STRONG>&nbsp;- <B>"Slaughter & Apparatus: A Methodical Overture"</B>. Его выход ожидается в начале 2007 года на все том же <B>Listenable</B>. Среди известных названий песен <B>"The Chondrin Enigma"</B>, <B>"Prolific Murder Contrivance"</B>, <B>"Archetype: Malice And Scorn"</B>, <B>"Avenious"</B>&nbsp;и <B>"The Spaying Seance"</B>. Гостевое участие в его записи примут <B>Jeff Walker</B> (<B>CARCASS</B>)&nbsp;и <B>Barney Greenway</B> (<B>NAPALM DEATH</B>). </P>
+Автор: Dimas
+
+### 23.10.2006 news ABORTED теряют музыкантов в ходе работы над новым альбомом
+
+<DIV class=regular>
+<P>Бельгийские дэтстеры <B>ABORTED</B> лишились своей ритм-секции в виде ударника <B>Gilles Delecroix</B> и басиста <B>Olivia Scemama</B> (ex-<B>NO RETURN</B>, <B>BALROG</B>). Новым басистом коллектива стал <B>Peter Goemaere</B> (<STRONG>EMETH</STRONG>). В данный момент, музыканты продолжают работу над своим новым альбомом "<B>Slaughter & Apparatus: A Methodical Overture"</B> с продюсером <B>Tue Madsen</B> в датской студии <B>Antfarm</B>. Партии ударных для него запишет <B>Dave Haley</B> (<STRONG>PSYCROPTIC</STRONG>). На концертах же, роль ударника пока будет исполнять <B>Etienne Galo</B> (<STRONG>NEGATIVA</STRONG>). 
+<P>Постоянный ударник пока ищется. Всем желающим присылать свои предложения на aborted@telenet.be или <A href="mailto:avernusstudios@gmail.com">avernusstudios@gmail.com</A>.<BR>Релиз выйдет на <B>Century Media Records</B> в середине февраля 2007 года. Гостевое участие в его записи примут <B>Jeff Walker</B> (<B>CARCASS</B>), <B>Jacob Bredahl</B> (<B>HATESPHERE</B>)&nbsp;и <B>Henrik Jacobsen</B> (<B>HATESPHERE</B>). Трек-лист альбома: <BR><BR>1. <B>The Chondrin Enigma</B><BR>2. <B>A Methodical Overture</B><BR>3. <B>Avenious</B><BR>4. <B>The Spaying Seance</B><BR>5. <B>And Carnage Basked In Its Ebullience</B><BR>6. <B>The Foul Nucleus Of Resurrection</B><BR>7. <B>Archetype</B><BR>8. <B>Ingenuity In Genocide</B><BR>9. <B>Odious Emanation</B><BR>10. <B>Prolific Murder Contrivance</B><BR>11. <B>Underneath Rorulent Soil</B><BR><BR>Кроме этих одиннадцати треков, группа запишет для лимитированных изданий два кавер-трека: "<B>Slaughtered"</B> (<STRONG>PANTERA</STRONG>)&nbsp;и <B>'Surprise! You're Dead'</B> (<STRONG>FAITH NO MORE</STRONG>). </P>
+<DIV class=regular>Первый официальный двд группы под названием "<B>The Auricular Chronicles"</B> выйдет 30 октября на <B>Listenable Records</B>.</DIV></DIV>
+Автор: Dimas
+
+### 17.01.2007 news Дата релиза нового ABORTED
+
+<P>Новый альбом <STRONG>ABORTED</STRONG> "<STRONG>Slaughter & Apparatus: A Methodical Overture" </STRONG>выйдет 19 февраля на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.04.2007 reviews Не слушайте музыку слишком громко!
+
+<P>Пару месяцев назад ко мне пришла посылка с новейшим DVD ABORTED "The Auricular Chronicles" - аккуратный стеклянный кейс, очень качественное стильное оформление.&nbsp;&nbsp; После титров выпускающего лейбла Listenable загружается чудное анимированное меню, выдержанное в стиле, перекликающемся с оформлением последнего альбома, дополненное&nbsp; мрачной, я бы даже сказал жутковатой фоновой музыкой. Меню предлагает нам концерт&nbsp; группы в Париже, несколько клипов, 3 видео бутлега и интервью с музыкантами.&nbsp;&nbsp; Главным достоинством этого DVD является шоу, записанное в&nbsp; клубе "La Loco" в Париже, с теперь уже ушедшими из группы барабанщиком и басисткой. Этот концерт содержит песни альбома "Archaic Abattoir" вперемешку с более старыми материалами. Программа выстроена очень мощно, четко, никаких заминок, боевики идут одни за другим, музыканты выкладываются до седьмого пота, профессионально работают с залом (Особо привлекает внимание Оливия, которая даст фору многим мужчинам -басистам!), ну а публика в свою очередь отрывается и рукоплещет по полной! Единственный минус - слишком резко меняются кадры во время некоторых особо быстрых моментов, но в целом это не мешает просмотру. <BR>Из 3 оставшихся видео - два записаны в клубах, а один на фестивале Waken. Группа здесь представляет&nbsp; те же песни, что и&nbsp; в Париже. Съемка сделана в разное время, и мы&nbsp; видим разные составы ABORTED. Кроме того, в клубах видео&nbsp; снималось на непрофессиональном оборудовании, и звучание не подвергалось студийной доработке. Лично я выделил бы съемку с Waken, как самую интересную из этих трех бутлегов. <BR>Клипы представлены старым роликом "про врача" - "Meticulous Invagination"&nbsp; и тремя роликами на песни с "Archaic Abattoir", один из которых - нарезка кадров с этого же DVD.<BR>Ну и на последок можно посмотреть интервью, в котором музыканты рассказывают о своих интересах, планах, и сменах состава. Рассказ перемежается редкими съемками с репетиций и концертов. <BR>&nbsp; <BR>Резюме: высочайшая по качеству работа.&nbsp; 9/10</P>
+<P>P.s.&nbsp; Кровоточащие уши в руках на обложке предупреждают&nbsp; - не слушайте музыку слишком громко!</P>
+Автор: Bizarre
+
+### 07.05.2008 news Новые песни ABORTED
+
+<P><STRONG>ABORTED</STRONG> выложили две новых песни с будущего альбома <STRONG>"Strychnine.213" </STRONG>на своей <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/abortedmetal">http://www.myspace.com/abortedmetal</A></P>
+Автор: Vit Belov
+
+### 25.06.2011 news ABAORTED начали работу
+
+<P>Бельгийцы<STRONG> ABORTED </STRONG>начали работу над&nbsp;своим седьмым&nbsp;альбомом, который должен выйти в этом году на <STRONG>Century Media</STRONG>. Пластинка станет дебютом для нового барабанщика коллектива<STRONG> Ken Bedene (ABIGAIL WILLIAMS).</STRONG> Альбом получил название "<STRONG>Global Flatline</STRONG>". Ниже можно посмотреть студийный репортаж о записи барабанов.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/aTeAnM7yj9k?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/aTeAnM7yj9k?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.07.2011 news ABORTED объявили гостей
+
+<P><STRONG>Keijo Niinimaa</STRONG> (<B>ROTTEN SOUND</B>)&nbsp;и <B>Julien Truchan</B> (<B>BENIGHTED</B>) поучаствуют в записи новой пластинки гриндеров <STRONG>ABORTED</STRONG> <STRONG>"Global Flatline". </STRONG>Альбом сейчас записывается в <STRONG>Hansen Studios</STRONG> продюсером<STRONG> Jacob Hansen</STRONG> (<STRONG>INVOCATOR</STRONG>, <STRONG>HATESPHERE</STRONG>, <STRONG>VOLBEAT</STRONG>). CD должен выйти на <STRONG>Century Media</STRONG> до конца года.</P>
+<P>Ниже можно посмотреть первый студио-репорт.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/aTeAnM7yj9k?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/aTeAnM7yj9k?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.01.2012 news Новый клип ABORTED
+
+<P>Новое видео <STRONG>ABORTED</STRONG> на песню "<STRONG>The Origin Of Desease</STRONG>" можно посмотреть ниже. Трек взят с нового альбома бельгийских брутальщиков "<STRONG>Global Flatline</STRONG>", который выйдет 23 января.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/2_7ZDTU6Em0?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 20.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; анонсирует новых участников
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22713.png" width=300 height=165>Фестиваль&nbsp;&nbsp;<STRONG>BRUTAL ASSAULT</STRONG> опубликовал имена ещё нескольких участников, которые выступят на его сцене в 2012 году. Ими стали американцы<STRONG> DARKEST HOUR</STRONG>, бельгийские дет/грайндеры <STRONG>ABORTED</STRONG> и американские метал-панки <STRONG>TOXIC HOLOCAUST</STRONG>.</P>
+<P>А так же, ВИА <STRONG>SIX FEET UNDER</STRONG> под руководством Криса Барнса (<STRONG>Chris Barnes</STRONG>), легенды хардкора из Нью Йорка <STRONG>SICK OF IT ALL</STRONG> и титаны грайнкора из американского штата Вирджиния <STRONG>PIG DESTROYER</STRONG>.</P>
+Автор: Headcrusher
+
+### 15.02.2013 news ABORTED: видео на песню &quot;Expurgation Euphoria&quot; 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бельгийцы <STRONG>ABORTED</STRONG> опубликовали видео на песню <STRONG>"Expurgation Euphoria"</STRONG>. Увидеть его можно ниже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек <STRONG>"Expurgation Euphoria"</STRONG> вошёл на&nbsp;последний альбом <STRONG>ABORTED</STRONG>&nbsp;<STRONG>"Global Flatline"</STRONG>.</FONT> 
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/F3Njje_lyk4?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -24,6 +24,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.09.2010 news Bill Steer стал вторым гитаристом в возрождённых ANGEL WITCH
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17295.jpg" width=200 height=300>Гитарист <STRONG>Bill Steer</STRONG> (<B itxtvisited="1">CARCASS</B>, <B itxtvisited="1">FIREBIRD</B>, <B itxtvisited="1">NAPALM DEATH</B>) влился в состав реформированных&nbsp;легенд Новой Волны Британсокго Хэви Метал, группу <B itxtvisited="1">ANGEL WITCH</B>, в качестве второго гитариста. <BR itxtvisited="1"><BR itxtvisited="1">Состав <STRONG>ANGEL WITCH</STRONG> на сегодняшний день:<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">Kevin Heybourne</B> - гитара, вокал<BR itxtvisited="1"><B itxtvisited="1">Andrew Prestiedge</B> - барабаны<BR itxtvisited="1"><B itxtvisited="1">Will Palmer</B> - бас<BR itxtvisited="1"><B itxtvisited="1">Bill Steer</B> - гитара</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

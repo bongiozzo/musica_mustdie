@@ -154,6 +154,192 @@ Recorded At SystemTwo / Brooklyn, NY.
 * C группой "Danzig" Johnny Kelly
 * C группой "Seventh Void" Johnny Kelly
 
+## Публикации
+
+### 21.04.1999 news 
+
+<p>Новый альбом Type O Negative выйдет в августе этого года и будет называться "World Coming Down".</p>
+
+Автор: Vit Belov
+
+### 08.06.1999 news 
+
+<p>"Наш следующий альбом "World Coming Down" будет попыткой возврата нашей немного утраченной популярности",-говорит Питер Стил из Type O'Negative. Альбом появится в магазинах в середине августа.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>Лидер Type O'Negative Питер Стил объединился с Тони Йоми для записи своего сольного альбома. Другими участниками будут Фил Ансельмо, Роб Хэлфорд, Брайен Мэй и Генри Роллинс.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 reviews Очень мрачный и медленный альбом
+
+<P>Очень мрачный и медленный альбом TYPE O' NEGATIVE. Пожалуй у Peter'а Steele'а нет причин распускать группу, о чем он постоянно твердил ранее. Атмосфера TYPE O' NEGATIVE присутствует в каждой композиции, и над всем этим витает вокал Peter'а Steele'а. Правда 74 минуты это длинновато. Минут бы 60 и это был бы суперальбом.</P>
+Автор: Alexey Pitirimov
+
+### 31.08.2000 news Type O Negative выпускают сборник своих лучших вещей
+
+<p> По данным с официального сайта группы Type O Negative, недавно закончились приготовления к выпуску нового диска "Best Of collection, The Least Worst Of Type O Negative". Этот сборник будет содержать следующие трэки: 'Unsuccessfully Coping With The Natural Beauty Of Infidelity', 'Christian Woman', 'Black No. 1', 'Love You To Death', 'Everything Dies', '12 Black Rainbows', 'Black Sabbath' и ранее не изданные вещи 'Stay Out Of My Dreams', 'It's Never Enough' и 'Hey Pete' (studio version). Диск выйдет на Roadrunner 31-го октября.</p>
+
+Автор: Nybras
+
+### 11.04.2001 news Нецивилизованные BIOHAZARD ....
+
+<p>BIOHAZARD до сих пор ищут лэйбл для реализации в Америке нового СД "Uncivilization". В Европе альбом выходит 25 июня на SPV / Steamhammer Records. Среди гостей на диске отметились Phil Anselmo ("PANTERA"), Peter Steele ("TYPE O NEGATIVE"), Igor Cavalera и Derrick Green ("SEPULTURA"), и участники HATEBREED, NAUGHTY BY NATURE и CYPRESS HILL. По обещаниям группы альбом являет возвращение к хард-коровым корням.</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Uncivilization .....
+
+<p>BIOHAZARD are still in negotiations with several US labels for the release of the group’s forthcoming Uncivilization CD, which is scheduled to be issued in Europe through SPV / Steamhammer Records on June 25th. The album, which features guest appearances from PANTERA’s Phil Anselmo, TYPE O NEGATIVE’s Peter Steele, SEPULTURA’s Igor Cavalera and Derrick Green, members of HATEBREED, NAUGHTY BY NATURE and CYPRESS HILL, is reportedly the group’s most diverse effort to date, with several of the tracks marking a return to the group’s hardcore roots while others are said to be unlike anything the band had ever done before.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news Подробности о Uncivilization - BIOHAZARD.....
+
+<p>BIOHAZARD договорились с Sanctuary Records о дистрибуции "Uncivilization" в Северной Америке. Выход альбома запланирован на Июль. Похоже,что при записи в качестве "гостей" собралась "веселенькая" компания: Сепультурцы Andreas Kisser и Derrick Green отметились на треке "Trap", драммер Igor Cavalera присутствует на "Gone", Phil Anselmo ("PANTERA") поет на HFFK (Hate, Fuck, Fight, Kill - гы-гы...), Sen Dog ("CYPRESS HILL") - рэп на "Last Man Standing", также в ряде треков бэк и лид вокалы исполнены членами HATEBREED и Peter Steele ("TYPE O NEGATIVE"). Трек-лист: 01. Unified 02. Population Control 03. HFFK 04. Last Man Standing 05. Getaway 06. Gone 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news BIOHAZARD&#39;s forthcoming Uncivilization CD....
+
+<p>As previously reported, BIOHAZARD's forthcoming Uncivilization CD — due for release in Europe on June 25th through SPV/Steamhammer Records — is turning out to be a guest-heavy affair, with SEPULTURA's Andreas Kisser and Derrick Green appearing on a track called "Trap", SEPULTURA drummer Igor Cavalera playing percussion on the song "Gone", PANTERA's Phil Anselmo screaming his way through "HFFK (Hate, F.ck, Fight, Kill)", CYPRESS HILL's Sen Dog rapping on "Last Man Standing", and HATEBREED members contributing backing and lead vocals to various cuts on the CD (TYPE O NEGATIVE's Peter Steele also appears on an as-yet-unspecified track). BIOHAZARD have just returned from their recent South American jaunt, where they reportedly premiered new material to a great reaction from the group's rabid Latin American fans: "South America was awesome, we had a great time," guitarist Billy Graziadei told Metal Hammer. "It's so incredible to be able to tour countries like Chile where I can donate my precious digital camcorder to such financially handicapped people." Uncivilization has yet to receive an official US release date, but reports indicate that an announcement will be made shortly regarding BIOHAZARD's much-rumored signing with Sanctuary Records for the North American territory, with the album likely to be made available domestically through the label sometime in July. Uncivilization is tentatively scheduled to include the following tracks: 01. Unified 02. Population Control 03. HFFK (Hate, F.ck, Fight, Kill) (feat. PANTERA's Phil Anselmo) 04. Last Man Standing (feat. CYPRESS HILL's Sen Dog) 05. Getaway 06. Gone (feat. SEPULTURA's Igor Cavalera) 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap (feat. SEPULTURA's Andreas Kisser). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.05.2001 news TYPE O NEGATIVE .....
+
+<p>TYPE O NEGATIVE у себя на базе в Бруклине активно репетируют и сочиняют новый материал для еще не названного нового творения. По словам барабанщика Johnny Kelly: "Мы надеемся попасть в студию (Systems II Studios) еще до начала лета. Процесс проходит очень хорошо. Питер Стил каждую неделю приносит по клевой песне..."</p>
+
+Автор: Yermola
+
+### 03.05.2001 news TYPE O NEGATIVE are reportedly writing.....
+
+<p>TYPE O NEGATIVE are reportedly "writing, re-writing, tweaking, and rehearsing new material" in their home base of Brooklyn, New York. According to drummer Johnny Kelly, "We're in the writing stage of the new CD. We should be starting demos within the next few weeks. We're hoping to be in Systems II Studios (in Brooklyn) by the beginning of the summer. The writing is going well, [frontman] Peter [Steele] came up with a pretty cool song this week." TYPE O NEGATIVE's as-yet-untitled forthcoming effort is tentatively due for release at the end of the year. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.09.2001 news TYPE O NEGATIVE have confirmed ten headlining shows ....
+
+<p>TYPE OE NEGATIVE have confirmed ten headlining shows as part of their annual Halloween jaunt beginning October 24th. The dates are as follows: <br> Oct. 24 – Palladium - Worcester, MA <br> Oct. 25 - Lupo's - Providence, RI <br> Oct. 26 - Birchill - Old Bridge, NJ <br> Oct. 27 - Chance - Poughkeepsie, NY <br> Oct. 28 - L'Amour - Brooklyn, NY <br> Oct. 30 - Crocodile - Rock Allentown, PA <br> Oct. 31 - Trocadero - Philadelphia, PA <br> Nov. 01 - Northern - Lights Albany, NY <br> Nov. 02 - Toad's Place - New Haven, CT <br> Nov. 03 - Metropol - Pittsburgh, PA <br> TYPE O NEGATIVE are currently demoing songs for their next studio album, which is scheduled to emerge in early 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.03.2002 news Release Dates
+
+<p>The official web site of Roadrunner Records has posted September 16th as the tentative release date for MACHINE HEAD's forthcoming live CD, entitled MACHINE HEAD: Live At Brixton, October 28th as the tentative release date for TYPE O NEGATIVE's long-awaited and as-yet-untitled new studio album, and July 29th as the tentative release date for the previously-unavailable, Ross Robinson-produced album from FEAR FACTORY, entitled Concrete, which was originally recorded back in 1991.</p>
+
+Автор: Dimas
+
+### 26.03.2002 news Новости  от Roadrunner Records
+
+<p>На официальном сайте Roadrunner Records объявлены даты выхода новых альбомов.<BR> 16 сентября 2002 года выходит концертный альбом MACHINE HEAD "MACHINE HEAD: Live At Brixton"<BR> 28 октября 2002 года выйдет давно ожидаемый новый студийный альбом TYPE O NEGATIVE пока еще не имеющий окончательного названия<BR> 29 июля 2002 года выйдет ранее неиздаваемый альбом FEAR FACTORY "Concrete", записанный группой еще в 1991 году.</p>
+
+Автор: Dimas
+
+### 12.05.2002 news TYPE O NEGATIVE news
+
+<p>TYPE O NEGATIVE's recently-completed nine-song demo for their upcoming, as-yet-untitled studio album, which is tentatively due to be released through Roadrunner Records on October 29th, contains the following track listing (all working titles)</p>
+<p> 01. Nettie (4:58) <BR> 02. I Like Girls (2:49) <BR> 03. Valentine's Day (5:07) <BR> 04. I Need Love (7:03) <BR> 05. Anesthesia (5:39) <BR> 06. Why Won't You Love Me (7:11)<BR> 07. (no title) (7:05) <BR> 08. Above All Things (4:06) <BR> 09. Life Is Killing Me (9:06)</p>
+<p> In other news, a high-quality 43-second clip of TYPE O NEGATIVE's cover of DEEP PURPLE's "Highway Star", taken from the upcoming NASCAR-sponsored Crank It Up compilation (due through MCA Records on May 21st), can be downloaded from <A HREF="http://64.224.95.119/sounds/ton_hstar_clip.mp3">this location</A></p>
+
+Автор: Dimas
+
+### 12.05.2002 news TYPE O NEGATIVE записали демо
+
+<p>TYPE O NEGATIVE завершили запись девятипесенного демо для своего нового, пока не имеющего названия альбома, который должен выйти 29 октября 2002 года на Roadrunner Records. Демо содержит следующие вещи:</p>
+<p> 01. Nettie (4:58) <BR> 02. I Like Girls (2:49)<BR> 03. Valentine's Day (5:07) <BR> 04. I Need Love (7:03) <BR> 05. Anesthesia (5:39) <BR> 06. Why Won't You Love Me (7:11) <BR> 07. (no title) (7:05) <BR> 08. Above All Things (4:06) <BR> 09. Life Is Killing Me (9:06)</p>
+<p> Также стала доступна 43-х секундная версия клипа группы на песню DEEP PURPLE's "Highway Star". Желающие могут скачать ее по <A HREF="http://64.224.95.119/sounds/ton_hstar_clip.mp3">этому адресу</A>.</p>
+
+Автор: Dimas
+
+### 02.07.2002 news &quot;Fight&quot;  - заглавный трек с нового альбома Доро...
+
+<p>"Fight" - заглавный трек с нового альбома Доро, который выйдет 19 августа - станет персональным гимном мировой чемпионки по женскому боксу - немки Regina Halmich. Под эту песню Регина выйдет 17 августа на ринг защищать свой чемпионский титул. Доро записала свой новый альбом в студии Soundmine Recording Studio в Пенсильвании и эта работа будет более сырой, жесткой и энергичной, по сравнению с ее предыдущими дисками. В записи и написании песен помогали и принимали участие: Russ Ballard ("God Gave Rock'n Roll To You"), Jean Beauvoir (Kiss, Plasmatics). Песня "Descent" исполнена дуэтом с Pete Steele (Type O' Negative). <BR><BR> Треклист нового альбома:<BR><BR> "Fight"<BR> "Always Live To Win"<BR> "Descent"<BR> "Salvaje"<BR> "Undying"<BR> "Legends Never Die"<BR> "Rock Before You Bleed"<BR> "Sister Darkness"<BR> "Wild Heart"<BR> "Fight By Your Side"<BR> "Chained"<BR> "Hoffnung"<BR> Digi-Pack Bonus-Track: "Song For Me" (acoustic version)</p>
+
+Автор: Yermola
+
+### 07.01.2003 news TYPE O NEGATIVE To Begin Mixing New Album ...
+
+<p>TYPE O NEGATIVE are scheduled to begin mixing their new album, titled "The Dream Is Dead", next week for an April release through Roadrunner Records. <BR><BR> Among the working songtitles being considered for inclusion on the upcoming CD are "Nettie", "I Like Girls", "Valentine's Day", "I Need Love", "Anesthesia", "Why Won't You Love Me", "Above All Things", and "Life Is Killing Me". <BR><BR> As was the case with the group's previous efforts, "The Dream Is Dead" was recorded at Brooklyn, New York's Systems 2 studios and was produced by keyboardist Josh Silver.</p>
+
+Автор: Yermola
+
+### 19.03.2003 news TYPE O NEGATIVE меняют название альбома
+
+<p>TYPE O NEGATIVE официально сменили название своего нового альбома с "The Dream Is Dead" на "Life is Killing Me". Напомню, что выход альбома ожидается в июне 2003 года на Roadrunner Records.</p>
+
+Автор: Dimas
+
+### 19.11.2003 news Type&#39;O&#39;Negative, Cradle Of Filth and Moonspell in North America
+
+11/13 Albany, NY (no Type O Negative)<BR>11/14 Worcester, MA <BR>11/15 Asbury Park, NJ <BR>11/17 Columbus, OH <BR>11/18 Grand Rapids, MI <BR>11/20 Milwaukee, WI <BR>11/21 Cleveland, OH <BR>11/22 Chicago, IL <BR>11/24 Minneapolis, MN <BR>11/25 St. Louis, MO <BR>11/26 Oklahoma City, OK <BR>11/28 Ft. Worth, TX <BR>11/29 San Antonio, TX <BR>12/01 Phoenix, AZ <BR>12/02 Los Angeles, CA <BR>12/03 Las Vegas, NV <BR>12/05 San Francisco, CA <BR>12/06 Portland, OR <BR>12/07 Seattle, WA <BR>12/09 Colorado Springs, CO <BR>12/11 Des Moines, IA <BR>12/12 Detroit, MI <BR>12/13 Pittsburgh, PA <BR>12/15 Washington DC <BR>12/16 Philadelphia, PA <BR>12/17 Hartford, CT (no Type O Negative)<BR>12/18 Montreal, QUE (no Type O Negative)
+Автор: Vit Belov
+
+### 18.06.2004 news TYPE O NEGATIVE на SPV
+
+<B>TYPE O NEGATIVE </B>заключили сделку на выпуск нескольких альбомов с независимым мейджором <B>SPV</B>.
+Автор: Vit Belov
+
+### 16.05.2005 news Умер ли Peter Steele?
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2005.05/8461.jpg" width=400 align="right" border=5>Официальный сайт TYPE 'O NEGATIVE опубликовал следующую картинку (см. справа). Больше ничего на этом сайте сейчас нет. Недвусмысленный намёк на смерть лидера коллектива. Ранее сообщалось о проблемах Peter Steele со здоровьем. Правда, 14 мая BLABBERMOUTH сообщил, что это чёрный юмор от группы.</P>
+Автор: Vit Belov
+
+### 26.07.2006 news Новая серия сборников от Roadrunner Records
+
+<P>11 сентября на <B>Roadrunner Records</B> будет&nbsp;реализована новая серия альбомов. Она представляет собой сборники лучших вещей от лучших коллективов лейбла. Первыми в этой серии отметились <B>FEAR FACTORY</B>, <B>SEPULTURA</B>&nbsp;и <B>TYPE O NEGATIVE</B>. Предлагаем вашему вниманию трек-листы этих сборников:<BR><BR><B>SEPULTURA</B> – "The Best Of"<BR>1. <B>Troops Of Doom</B><BR>2. <B>Beneath The Remains</B><BR>3. <B>Inner Self</B><BR>4. <B>Arise</B><BR>5. <B>Dead Embryonic Cells</B><BR>6. <B>Desperate Cry</B><BR>7. <B>Refuse/Resist</B><BR>8. <B>Territory</B><BR>9. <B>Slave New World</B><BR>10. <B>Biotech Is Godzilla</B><BR>11. <B>Roots Bloody Roots</B><BR>12. <B>Attitude</B><BR>13. <B>Ratamahatta</B><BR><BR><B>TYPE O NEGATIVE</B> - "The Best Of"<BR>1. <B>Unsuccessfully Coping With The Natural Beauty Of Infidelity</B><BR>2. <B>Christian Woman</B><BR>3. <B>Black No. 1</B><BR>4. <B>Too Late: Frozen</B><BR>5. <B>Love You To Death</B><BR>6. <B>My Girlfriend's Girlfriend</B><BR>7. <B>Cinnamon Girl</B><BR>8. <B>Everyone I Love Is Dead</B><BR>9. <B>Everything Dies</B><BR>10. <B>Highway Star</B><BR>11. <B>I Don't Wanna Be Me</B><BR>12. <B>Life Is Killing Me</B><BR><BR><B>FEAR FACTORY</B> - "The Best Of"<BR>1. <B>Martyr</B><BR>2. <B>Scapegoat</B><BR>3. <B>Scumgrief</B><BR>4. <B>Demanufacture</B><BR>5. <B>Self-Bias Resistor</B><BR>6. <B>Zero Signal</B><BR>7. <B>Replica</B><BR>8. <B>Shock</B><BR>9. <B>Edgecrusher</B><BR>10. <B>Resurrection</B><BR>11. <B>Cars</B><BR>12. <B>Linchpin</B> </P>
+Автор: Dimas
+
+### 09.11.2006 news TYPE O NEGATIVE &quot;Снова мертвый&quot;
+
+<P>Новый альбом мрачных американских парней из<STRONG>&nbsp;TYPE O NEGATIVE</STRONG> будет называться <B>"Dead Again".</B>&nbsp;Ориентировочная дата релиза через&nbsp;<STRONG>SPV Records </STRONG>намечена на февраль 2007 года.&nbsp;</P>
+Автор: Dimas
+
+### 06.01.2007 news Новый альбом TYPE O NEGATIVE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2007.01/11139.jpg" width=300 align=right border=5>Новый альбом <STRONG>TYPE O NEGATIVE "Dead Again"</STRONG> выходит 19 марта на <STRONG>SPV</STRONG>. Пластинка будет длиться 77 минут, на неё войдут следующие песни:</FONT></P>
+<P>1. <STRONG>Dead Again<BR></STRONG>2. <STRONG>Tripping a Blind Man</STRONG><BR>3. <STRONG>The Profits of Doom<BR></STRONG>4. <STRONG>September Sun<BR></STRONG>5. <STRONG>Halloween in Heaven</STRONG><BR>6. <STRONG>These Three Things<BR></STRONG>7. <STRONG>She Burned Me Down<BR></STRONG>8. <STRONG>Some Stupid Tomorrow<BR></STRONG>9. <STRONG>An Ode to Locksmiths<BR></STRONG>10. <STRONG>Hail and Farewell to Britain</STRONG></P>
+<P>Особого упоминания заслуживает обложка пластинки.</P>
+Автор: Vit Belov
+
+### 16.12.2007 reviews Снова умерший, чтобы возродиться, или рожденный вновь, чтобы умереть?
+
+<P>Говорят, что лидер американской команды Type O Negative Peter Steele был несколько расстроен, когда узнал, что среди читателей журнала Playgirl,&nbsp;для&nbsp;которого&nbsp;он в 1995-ом году&nbsp;сфотографировался в чем мать родила, продемонстировав при этом свое недюжинное мужское достоинство в полный, так сказать, рост, всего лишь 23% женщин. Говорят, что и Григорий Распутин, которому выпала посмертная честь украсить обложку нового альбома упомянутой группы под названием "Dead Again", тоже был не промах в делах любовных. Есть ли тут какая-то связь, или просто Питер решил в очередной раз продемонстрировать интерес к нашей многострадальной стране (тем более, что название и группы и альбома изображены так называемой лжекириллицей), или же это тонкий намёк на то, что, по легенде, Гришку-то убивали-убивали, да насилу убили, столь он оказался живуч, а, может быть, что-то есть такое в лирике к альбому (с которой я, честно говоря, не знакомился) - в принципе, не так и важно. Намного интереснее, что же удалось сотворить на этот раз Стилу сотоварищи, ибо нового релиза фанатам пришлось ждать аж четыре года, а предыдущая работа группы "Life Is Killng Me" 2003-го года не была, мягко говоря, воспринята с особым восторгом. Да и Стил еще реанимировал свою старую кроссовер-команду Carnivore, которая выступила в Вакене в 2006-ом, так что некоторые поклонники коллектива начали теряться в догадках, что это всё значит. Многие критики восторженно стали называть "Dead Again" возвращением к корням и сравнивать альбом с лучшими творениями Type O Negative, но, думается, это всё-таки слишком поспешные выводы. Скорее, можно отметить, что на "Dead Again" намешано всё, что было в творчестве этого коллектива, но то, что таковой замес длится аж 78 минут, вряд ли можно расценивать как положительный элемент. Здесь есть и привычные блэксаббатоподобные тягучие риффы, и панковские дела (привет Carnivore), и отсылы к битловскому наследию, и элементы поп-музыки. В четвертой по счету вещи, 'September Sun', слышны выкрики Стила на заднем плане "Elizabeth!!!" - именно так звали бывшую подругу Питера, которую он упоминал в "сеньксах" на некоторых более ранних альбомах. В 'Halloween In Heaven' лидеру группы помогает Tara Vanflower из дарк-вейв-формации Lycia. В общем же "Dead Again" оставляет впечатление какого-то не совсем целостного произведения. Наряду с весьма сильными вещами попадается совершенный проходняк, и эта вот неровность материала - учитывая и общую продолжительность пластинки - пожалуй, главный минус новой работы "негативщиков". Порой даже совершенно непонятно, в каком жанре играет группа, но в плюс это в данном случае не поставить. Видимо, Type O Negative уже вряд ли смогут переплюнуть свои давние работы, хотя "Dead Again" оказался, пожалуй, самым успешным их релизом в коммерческом плане, заняв 27-е место в биллбордовских чартах. Альбом предполагается переиздать с DVD, и он также вышел в разных вариантах, в том числе с буклетом, разворачивающимся в форме креста с головой Распутина наверху, с бонус-диском (где можно услышать пять концертных вещей) и даже с напульсником. Окажется ли эта пластинка своеобразным воскрешением группы, или же, наоборот, станет началом конца Type O Negative - покажет время, а пока я бы порекомендовал сначала повнимательнее послушать песни с "Dead Again", прежде чем выкладывать свои кровные за эту работу.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 07.04.2008 reviews Как правильно ковать железо
+
+<P>В наше время не так часто случается, что только что выпущенный альбом переиздают буквально на следующий год, да и еще во всяческих нестандартных вариантах. Обычно если это и делают, то уж&nbsp;сразу. Так что случай с Type O Negative можно, скорее, назвать исключением, тем более в век не очень уж большой популярности тяжелых коллективов (я не имею в виду, естественно, всякие поделки в духе эмо-кора и ню-метала и прочего барахла). Однако последний опус группы под названием "Dead Again" (что с Гришкой Распутиным на обложке) оказался настолько популярным (он взлетел аж на 27-е место в чарте Биллборда), что музыканты, или их менеджмент, или и те и другие, решили ковать железо, пока оно горячо. Менее чем через год после выхода "Dead Again" в "обычном" виде, он появился на прилавках магазинов в еще двух форматах: как дигипак с бонусным DVD (обложка поменяла цвет с зеленого на красный) и как тройной красный винил в сопровождении футболки, того же бонусного DVD&nbsp;и 12-истраничного буклета. Таким образом, фанатам Type O Negative пришлось выкладывать денежки второй раз. Впрочем, коллекционерам так и так нужны все варианты, поэтому по финансовому вопросу страдают больше всех, как всегда, они. Рассматриваемый бонусный DVD включает в себя четыре песни в концертном исполнении с фестиваля в Вакене в 2007-ом году, два видеоклипа ('The Profits Of Doom'&nbsp;и 'September Sun'), а также 15 минут интервью. Нужно ли вам - если вы не фанат Type O Negative - такое драгоценное дополнение за дополнительные деньги - решайте сами.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 14.05.2009 news Roadrunner переиздали &quot;Bloody Kisses&quot;
+
+<P>5 мая на<STRONG> Roadrunner</STRONG> был переиздан классический альбом <STRONG>TYPE O NEGATIVE "Bloody Kisses"</STRONG>. На первый диск попал альбом 1993 года, а на второй колекция ремиксов, каверов и песня <STRONG>"Suspended In Dusk"</STRONG>, которая была доступна только на лимитированной версии альбома. Трэк-лист:</P>
+<P>CD 1 :<BR>01. <STRONG>Machine Screw<BR></STRONG>02. <STRONG>Christian Woman<BR></STRONG>03. <STRONG>Black No1 (Little Miss Scare-All)<BR></STRONG>04. <STRONG>Fay Wray, Come Out To Play<BR></STRONG>05. <STRONG>Kill All The White People</STRONG><BR>06. <STRONG>Summer Breeze<BR></STRONG>07. <STRONG>Set Me On Fire</STRONG><BR>08. <STRONG>Dark Side Of The Womb</STRONG><BR>09. <STRONG>We Hate Everyone</STRONG><BR>10. <STRONG>Bloody Kisses (A Death In The Family)<BR></STRONG>11. <STRONG>3.O.I.F.<BR></STRONG>12. <STRONG>Too Late:Frozen</STRONG><BR>13. <STRONG>Blood & Fire</STRONG><BR>14. <STRONG>Can't Lose You</STRONG></P>
+<P>CD 2 :<BR>01. <STRONG>Suspended In Dusk</STRONG><BR>02. <STRONG>Black Sabbath</STRONG><BR>03. <STRONG>Black Sabbath (From The Satanic Perspective)<BR></STRONG>04. <STRONG>Christian Woman </STRONG>(Edit)<BR>05. <STRONG>Christian Woman</STRONG> (Butt-Kissing Sell-Out Version)<BR>06. <STRONG>Black #1</STRONG> (Edit)<BR>07. <STRONG>Blood & Fire</STRONG> (Out Of The Ashes Remix)<BR>08. <STRONG>Summer Breeze</STRONG> (Rick Rubin Mix) </P>
+Автор: Vit Belov
+
+### 16.04.2010 news Умер Peter Steele (4 января 1962 - 14 апреля 2010).
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.04/16546.jpg" width=200 height=300>14 апреля, в возрасте 48 лет, скончался&nbsp;<STRONG>Peter Steele</STRONG> (настоящее имя -&nbsp;<STRONG>Petrus T. Ratajczyk</STRONG>)&nbsp;&nbsp;лидер и вокалист <STRONG>TYPE O' NEGATIVE</STRONG>.&nbsp;Причина смерти - сердечная недостаточность. В середине 80-х,&nbsp;<STRONG>Peter</STRONG> прославился, как фронтмэн скандальной&nbsp;thrash/crossover&nbsp;группы <STRONG>CARNIVORE</STRONG>.</P>
+<P>Стоит отменить, что в 2005 году на сайте группы <STRONG>TYPE O' NEGATIVE</STRONG> было опубликовано сообщение о смерти <STRONG>Peter</STRONG>'а, но&nbsp;как выяснилось позже, данное объявление было совеобразным чёрным юмором музыканта.</P>
+Автор: Headcrusher
+
+### 16.04.2010 news Peter Steele (04.01.1962 – 14.04.2010)
+
+<P><IMG border=0 hspace=20 alt="" align=left src="/images/news_rus/2010.04/16547.jpg" width=250 height=250>Печальные новости пришли из Америки... 14 апреля 2010 года скончался <STRONG>Peter Steele</STRONG> (настоящее имя Peter Ratajczyk) - лидер известной группы <STRONG>TYPE O NEGATIVE</STRONG>. В середине 80-х,&nbsp;<STRONG>Peter</STRONG> прославился, как фронтмэн скандальной&nbsp;thrash/crossover&nbsp;группы <STRONG>CARNIVORE</STRONG>.</P>
+<P>Причиной смерти 48-летнего&nbsp;музыканта называют сердечную недостаточность.</P>
+<P>Эту информацию уже подтвердили другие участники коллектива и их менеджер.</P>
+<P>Официальное заявление о смерти Питера с комментариями музыкантов и его семейства можно прочитать на&nbsp;<A href="http://www.typeonegative.net/index.php">сайте группы</A></P>
+<P>Покойся с миром...</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### лучший Type O Negative

@@ -8,6 +8,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2011 news Новое видео ALIASES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Британцы <STRONG>ALIASES</STRONG> готовят к выходу свой дебютный альбом "<STRONG>Safer Than Reality</STRONG>". Пластинка выйдет 15 августа на <STRONG>Basick Records</STRONG>. Ниже можно посмотреть дебютный видео-клип коллектива на песню с этого альбома "<STRONG>What's Left For Us?</STRONG>". Режиссёром ролика выступил режиссёр<STRONG> Benjamin Cappelletti</STRONG>, для которого работа с<STRONG> ALIASES</STRONG> стала первой работой для тяжёлой группы. Трек-лист альбома:</FONT></P>
+<P>1. <STRONG>What’s Left for Us?<BR></STRONG>2. <STRONG>The Reality Of Beliefs</STRONG><BR>3. <STRONG>We Never Should Have Met<BR></STRONG>4. <STRONG>Refraction</STRONG><BR>5. <STRONG>All That Glitters Is Gold<BR></STRONG>6. <STRONG>While I Drown<BR></STRONG>7. <STRONG>The Beginning Has No End<BR></STRONG>8. <STRONG>Sirens</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=26352471cfea6b0df0a4" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

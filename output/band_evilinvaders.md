@@ -49,6 +49,34 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.09.2016 news Новый клип EVIL INVADERS
+
+<p>Бельгийская speed thrash metal группа <strong>EVIL INVADERS</strong> выпустила видео-клип на песню "<strong>Raising Hell</strong>". Трек попадёт на четырёхпесенный EP "<strong>In For The Kill</strong>", который выйдет на следующей неделе на <strong>Napalm Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/yG-Go0J1E34" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.09.2016 news New video by EVIL INVADERS
+
+<p>Belgian thrash speed metal band <strong>EVIL INVADERS</strong> has released a video clip for the song "<strong>Raising Hell</strong>". The track will be on a four-song EP "<strong>In For The Kill</strong>" which will be released next week on<strong> Napalm Records.</strong></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/yG-Go0J1E34" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.11.2016 news EVIL INVADERS выступили в Москве (фото)
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Бельгийская speed thrash metal команда <strong>EVIL INVADERS</strong> выступила в московском клубе <strong>"Лес"</strong> 20 ноября. Фото можно посмотреть в нашей галерее: <a href="/ru/galleries/1/1807/">http://musica.mustdie.ru/ru/galleries/1/1807/</a></font></p><p><center><img width="600" height="400" src="/images/news_rus/2016.11/30195.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 30.07.2017 news EVIL INVADERS: детали альбома &quot;Feed Me Violence&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бельгийские&nbsp;спид-металлисты <STRONG>EVIL INVADERS</STRONG> выпускают свой новый альбом</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG> "Feed Me Violence"</STRONG>. Случится это 29 сентября на&nbsp;<STRONG>Napalm Records</STRONG>. </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор обложки <STRONG>Mario</STRONG> <STRONG>Lopez</STRONG>. </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предзаказ пластинки доступен по ссылке: <A href="http://smarturl.it/FeedMeViolence">http://smarturl.it/FeedMeViolence</A>&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Треклист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Mental Penitentiary<BR></STRONG>2.<STRONG> As Life Slowly Fades<BR></STRONG>3. <STRONG>Suspended Reanimation<BR></STRONG>4. <STRONG>Broken Dreams In Isolation<BR></STRONG>5. <STRONG>Feed Me Violence<BR></STRONG>6. <STRONG>Oblivion</STRONG><BR>7. <STRONG>Shades Of Solitude<BR></STRONG>8. <STRONG>Anger Within<BR></STRONG>9. <STRONG>Among The Depths Of Sanity</STRONG></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.07/30673.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

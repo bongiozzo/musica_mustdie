@@ -53,6 +53,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.07.2011 news ABHOR на Moribund Records
+
+<P>Итальянские black-metal'исты <STRONG>ABHOR</STRONG> заключили контракт с <STRONG>Moribund Records</STRONG>. Новый альбом эзотериков "<STRONG>Ab Luna Lucenti, Ab Noctua Protecti</STRONG>" выйдет 27 сентября. Новая работа станет пятой за шестнадцать лет существования коллектива.</P>
+<P>Дополнительная информация: <A href="http://www.legioneocculta.com/">http://www.legioneocculta.com/</A></P>
+<P><center><IMG height=177 src="/images/news_rus/2011.07/20151.jpg" width=320 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

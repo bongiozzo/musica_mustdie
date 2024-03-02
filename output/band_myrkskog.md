@@ -26,6 +26,52 @@
 * C группой "Zyklon" Destructhor
 * C группой "Zyklon" Secthodamon
 
+## Публикации
+
+### 21.07.2000 reviews Гремучая смесь из black, death, thrash и industrial убойнейшей силы.
+
+<p>Гремучая смесь из black, death, thrash и industrial убойнейшей силы. Кажется, норвежцы дружно решили догнать и перегнать новый сатириконовский "Rebel Extravaganza", и вслед за Gorgoroth и Gehenna мы получили по мозгам еще и от Myrkskog. В альбоме сильно чувствуются влияния Slayer, ранних Satyricon и других классиков extreme metal (последний термин, кстати, очень подходит для определения данной мешанины). Но, несмотря на это, "Deathmachine" имеет свой собственный и, должен заметить, довольно интересный стиль. Поражает количество ударов в секунду, выдаваемых на-гора ударником группы (видимо, решил посоревноватся с Marduk), замечательны могучесть гитарных риффов и общий саунд альбома, но финальный трэк, представляющий собой смесь industrial с электронной музыкой вроде techno меня несколько удивил. Рекомендовано всем любителям чего-нибудь поэкстремальней.</p>
+
+Автор: Phantom Lord
+
+### 28.10.2001 news Жизнь червей на виниле...
+
+<p>Норвежцы "ZYKLON", имеющие в своем составе учатсников EMPEROR - Zamoth (гитара) и Trym (барабаны), и участника "MYRKSKOG" гитариста Destructhor, в ноябре выпускают виниловую версию своего последнего альбома "World ov Worms" на голландской Displeased Records. Из других новостей, "циклоновская" версия “Dominate” от "MORBID ANGEL" войдет на трибьютный альбом онных выходящий через Hellspawn Records в январе...</p>
+
+Автор: Yermola
+
+### 12.12.2001 news Myrkskog сочиняют новые песни
+
+<p>Myrkskog сочиняют песни для своего следующего студийного альбома. Запись, по всей видимости, состоится в марте 2002 года. Летом альбом должен появиться на свет.</p>
+
+Автор: Morsus
+
+### 12.12.2001 news Myrkskog are writing new songs
+
+<p>Myrkskog are writing new songs for their new studio album. The album will probably be recorded on March and will see the light of day on summer 2002.</p>
+
+Автор: Morsus
+
+### 13.09.2002 news Second studio album from Norway’s’ MYRKSKOG....
+
+<p>Second studio album from Norway’s’ MYRKSKOG, who are fast becoming THE most talked about extreme metal combo on the planet after their debut “ Death Machine” grabbed and smashed everyone’s attention. Two years plus on the band have turned in one of the most highly charged and powerful heavy death/extreme metal releases in the history of extreme music.<BR><BR> From the opening salvo of “Domain Of The Superior” to “Over The Gore” the sheer speed and power of the music has to be heard to be believed, with some of the fastest and most brutal drumming ever laid down in a recording studio. With a full European Tour confirmed with Relapse favorites NILE, the time has come for MYRKSKOG to take the extreme metal crown.<BR><BR> Myrkskog tour dates:<BR><BR> NIILE - SINISTER - NO RETURN - MYRKSKOG – EKTOMORF<BR><BR> 02.10.2002. UK LONDON / MEAN FIDDLER *<BR> 03.10.2002. UK PLYMOUTH / JONGLEURS *<BR> 04.10.2002.IRL DUBLIN / EAMON DORANS *<BR> 05.10.2002. UK BRADFORD / RIO *<BR> 06.10.2002. UK MILTON KEYNES - PITZ *<BR> 08.10.2002. FR PARIS / LA LOCOMOTIVE<BR> 09.10.2002. FR AMNEVILLE / AFTER CLUB<BR> 10.10.2002. D ESSEN / ZECHE CARL<BR> 11.10.2002. NL ROTTERDAM / BAROEG<BR> 12.10.2002. BL VOSSELAAR / BIEBOB<BR> 13.10.2002. NL DEN BOSCH / WILLEM II<BR> 15.10.2002. FR MARSEILLE / MIRABEAU<BR> 16.10.2002. FR PERPIGNAN / CROCK-MORE<BR> 17.10.2002. SP IRUN / TUNK<BR> 18.10.2002. SP BARCELONA / LA CAPSA<BR> 19.10.2002. SP MADRID / RITMO & COMPAS<BR> 20.10.2002. SP MURCIA / GAMMA<BR> 21.10.2002. FR TRAVEL DAY<BR> 22.10.2002.ITA CESENA / VIDIA<BR> 23.10.2002.CH PRATELLN / Z7<BR> 24.10.2002. A VIENNA / ARENA<BR> 25.10.2002. CZ BRNO / BABYLON<BR> 26.10.2002. PL KATOWICHE / MYSTIC FESTIVAL<BR> 27.10.2002. D ZWICKAU / ALARM<BR> 28.10.2002. D BERLIN / KNAACK<BR> 29.10.2002. D HAMBURG / MARKTHALLE<BR> * ONLY NILE – SINISTER<BR><BR> In the US, Superior Massacre is slated for release September 17. Already it is causing quite a stir. Radio stations are anticipating this record as fans. "A heaving and devastating portrayal, filled with surging and crushing power that is destined to obliterate all in its path through this massive death metal pilgrimage…” says Brave Words & Bloody Knuckles! Watch out for this album may just slap you in the face if you’re not careful!</p>
+
+Автор: Yermola
+
+### 25.11.2002 reviews Second effort from Norway’s finest death-black metal combo
+
+<p>Second effort from Norway’s finest death / black metal combo (read – MYRKSKOG) had been made available lately. GOOD. Candlelight haven’t even attempted inking a licensing deal with any Russia’s record company. BAD. Because “Superior Massacre” deserves to be officially licensed for Russia. Unfortunately, it won’t be sold over here even UNofficially. At least, that’s my opinion. Once again, BAD. Why? Well, MYRKSKOG may be reckoned to this new wave of so-called Norway’s modern death / black metal movement, and these guys are perfect at playing this kind of music. Relentless and in-your-face. Brutal and masterly sophisticated. I only wish they could execute LIVE drums – 100% live, y’know. For “Superior Massacre” doesn’t have it live at full part (at least, I hear it this way)… A pity, indeed – since MYRKSKOG’s drummer strikes as one of the best in the scene. I can’t cavil at anything else, though. Almost perfect album brought forth by one of Norway’s most stunning bands.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.08.2003 news Новости от Moonfog
+
+<p>Лейбл Moonfog заключил контракт с новой группой - DISIPLIN. Говорят, что это проект некого General K, участника группы MYRKSKOG, который покинул группу в 2000 году. "Наша музыка основана на блэк-металле старой школы, смешанным с thrash и death metal." У группы уже есть официальный сайт (www.disiplin.net), а полное интервью с участниками группы можно прочитать на официальном сайте Moonfog (www.moonfog.com).</p>
+<P> Также Moonfog сообщает, что группы DODHEIMSGARD и GEHENNA уже начали запись новых альбомов. KHOLD готовятся к записи, а новая группа DISIPLIN войдет в студию для записи своего дебютного альбома в августе.</p>
+
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

@@ -251,6 +251,483 @@ Nordstrцm and Henrik Udd.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.11.2001 reviews Свеженький французский кошмар
+
+<p>Свеженький французский кошмар. В последнее время, вероятно, во Франции вспыхнула волна пауэромании. Уже в этом году вышло несколько неплохих альбомчиков - Dyslesia и Heavenly, например. И вот, свой новый пятый альбом (за двадцатилетнюю карьеру) выпустила и самая старейшая французская группа Nightmare. Довольно необычный sympho-power-speed metal. Классический грубый и мощный power-вокал, жесткие риффы, скоростные гитарные перестрелки, клавишные пассажи, все вроде стандартно и напоминает смесь Grave Digger и Helloween с симфоническими наворотами в духе Rhapsody. Но в качестве продюсера с группой работал Terje Refsnes, заимевший огромный опыт со многими группами, но в то же время все они играли музыку отличную от Nightmare, более экстремальную чем мелодичный хэви-метал. Он самолично записал к альбому все партии клавишных и все оркестровые аранжировки. Не знаю уж, его ли это идея или группы, но при записи также был задействован оперный хор из пяти человек (3 женских и 2 мужских вокала), подобный звучащему на записях Tristania. Хор присутствует во всех песнях, выполняя роль вокала в припевах. Это изюминка альбома. Без нее, на мой взгляд, альбом не был бы так интересен. Хотя, не буду излишне категоричен, и без этого здесь есть что послушать: грамотные сочные чудесные соло, правильное чередование быстрых песен с медленными, двойные барабаны, эпическая атмосфера, множество влияний хэви-металла восьмидесятых. Надеюсь, у этой группы будет время еще сказать свое веское слово и поддержать реноме всех французов на европейской металлической сцене.</p>
+
+Автор: Dimas
+
+### 22.01.2002 reviews Fresh French nightmare
+
+<p>Fresh French nightmare. Recently, probably, in France a wave of love of power broke up. Last year has released a little quite good albums - Dyslesia and Heavenly, for example. And, the new fifth album (for twenty years' career) was released by the oldest French band - Nightmare. Rather unusual sympho-power-speed metal. Classical rough and powerful vocal, rigid riffes, high-speed guitar, keyboard passages, everything's like standardly and also reminds a mix of Grave Digger and Helloween with symphonic in spirit Rhapsody. But Terje Refsnes worked with group in quality of producer , whom have huge experience with many groups, but at the same time all of them played music distinct from Nightmare, more extreme than melodious heavy-metal. He has written down to an album all parties of keyboard and all orchestral arranges. I do not know, is this him idea or group's, but at record opera chorus from five men (3 female and 2 man's vocals), similar sounding on records Tristania also was involved. The chorus is present at all songs, carrying out a role of vocal in refrains. It is a highlight of an album. Without it, on my sight, the album would not be so interesting. Though, I shall not be too much categorical, and without it here is what to listen: competent juicy wonderful solos, correct alternation of fast songs with slow, double drums, epic atmosphere, set of influences of heavy-metal of eightieth. I hope, at this group the time will tell still weighty word and to support renome of all French on the European metal stage.</p>
+
+Автор: Dimas
+
+### 30.09.2002 news Новости от Nightmare
+
+<p>После обилия концертов весной-летом 2002 года, когда группа выступила на фестивалях New Jersey Metal MeltDown Fest в США, Rock Machina в Испании, Skeleton Bash в Австрии и Wacken Open Air в Германии, Nightmare работают над новым альбомом для Napalm Records вместе с Terje Refnes. Пластинка увидит свет в конце весны 2003 года.</p>
+
+Автор: Vit Belov
+
+### 30.09.2002 news Nightmare News
+
+<p>NIGHTMARE, after the summer fest tour 2002 ( Rock Machina Fest 2002 in Spain ( with Savatage, Bruce Dickinson, Angra, Annihilator...etc) The Skeleton Bash fest in Austria and finally the Cult Festival Wacken Open Air 2002 ( for the second time, a premiere for a french heavy metal band). Actually, NIGHTMARE are currently working on their next album, always at Napalm Records and recorded at the Sound Suite Studio with Terje " Terry " Refnes and out for the end of spring 2003.</p>
+
+Автор: Vit Belov
+
+### 28.02.2003 news Nightmare News
+
+<p><IMG SRC="/images/news/2003.02/3906.jpg" ALT="pho" width=250 height=168 hspace="15" vspace="5" border="1" align="right">France's heavy metal fame NIGHTMARE, are hard at work on the recordings of their new album, and will enter once again Soundsuite studio next Monday to join forces with Norwegian producer Terje Refsnes ( Tristania, Sirenia... )... The album will be mastered at Finnvox by Mika Jussila ( Nightwish, Stratovarius, Children Of Bodom... ) and is due to be released worldwide in September through Napalm Records / SPV.</p>
+<p> The follow-up to 2001's highly acclaimed Cosmovision, is a concept-album of 12 songs featuring 4 chapters... The album is entitled Silent Room and according to vocalist / frontman, Jo Amore... " The new material is heavier and darker with a different approach when it comes to vocals and guitars, compared to Cosmovision... "... <br> Some of the new songs are : <br> " Virtual Drama " <br> " Strange Connection "<br> " Mind Matrix Schizophrenia " <br> " The Death Toll" <br> " A Piece Of Paradise " <br> " Paranormal Magnitude "</p>
+
+Автор: Vit Belov
+
+### 24.07.2003 news Новый альбом NIGHTMARE
+
+<p>Французские power металлисты NIGHTMARE выпускают 13 октября на Napalm Records свой чеивертый альбом под названием "Silent Room". Это будет концептуальный альбом, состоящий из пяти частей. Он был записан в Soundsuite Studio с продюсером Terje Refsnes (TRISTANIA, SIRENIA), а микшировался в Finnvox studio под руководством Mika Jussila (NIGHTWISH, STRATOVARIUS). Трэк-лист выглядит следующим образом:</p>
+<p> Chapter I (The Awakening) <BR> 1. Paranormal Magnitude <BR> 2. The Rise Of A Child <BR> Chapter II (The Game) <BR> 3. Strange Connection <BR> 4. Travel In The Spheres Of Dreams <BR> 5. Shades In The Night <BR> 6. Silent Room <BR> Chapter III (The Cure) <BR> 7. Mind Matrix Schizophrenia <BR> 8. A Piece Of Paradise <BR> Chapter IV (The Decadence) <BR> 9. Virtual Freedom <BR> 10. Sniper In The Playground <BR> 11. The Death Toll <BR> Chapter V (Epilogue) <BR> 12. Prisoner Of The System <BR> 13. Ship Of Fools (VICIOUS RUMORS cover)</p>
+
+Автор: Dimas
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 31.01.2004 reviews Не играйте в ролевые игры
+
+<DIV>Редкая heavy-power группа на <B>NAPALM records</B>&nbsp;(если не единственная). Французы <B>NIGHTMARE</B> декларируются, как одна из старейших тяжёлых групп в своей стране. Профессионализма им не занимать.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>На новом альбоме группа представила нашему вниманию историю о мальчике, которого "засосало" в интернет, и он проводит там всё свое время, играя в некую ролевую игру. Концепция подробно изложена в буклете, поэтому зацикливаться на ней не станем. Главной отличительной особенностью пластинки можно назвать симфонические&nbsp;вкрапления&nbsp;в исполнении хора. Продюсером альбома выступил&nbsp;<B>T. Refnes</B>, который работал с <B>TRISTANIA</B>, например.&nbsp;Вот хоры - точно оттуда.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Если же сравнивать&nbsp;<B>'Silent Room'</B> с конкретными группами, то на ум приходят <B>SAVATAGE</B> середины 90-х, правда, в сравнении с ними, <B>NIGHTMARE</B> не&nbsp;хватает торжественности.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Неплохая попытка выпустить очень интересный альбом. Очень интересным его назвать нельзя, но просто интересным вполне</DIV>
+Автор: Vit Belov
+
+### 03.08.2004 news NIGHTMARE ушли с Napalm Records
+
+Французские пауэр металисты <B>NIGHTMARE</B> расстались с <B>Napalm Records </B>и в настоящее время ищут контракт с другим лейблом.
+Автор: Дофф
+
+### 30.03.2005 news NIGHTMARE На Reagin Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Французы-ветераны <STRONG>NIGHTMARE</STRONG> заключили контракт с <STRONG>Regain Records</STRONG>. Напомним, что группа до этого выпускалась на <STRONG>Napalm</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 18.05.2005 news NIGHTMARE  в студии!
+
+<P>Французские power металлисты <STRONG>NIGHTMARE</STRONG> вошли в студию <STRONG>SOUNDSUITE</STRONG> для записи нового альбома <STRONG>"The Dominion Gate". </STRONG>В качестве гостей на записи будут присутствовать&nbsp;музыканты <STRONG>AFTER FOREVER</STRONG>&nbsp;и<STRONG>&nbsp;Ricky Marx</STRONG>&nbsp;<STRONG>(Ex-PRETTY MAIDS).</STRONG></P>
+<P>Примерный треклист будущего альбома: </P>
+<P>1. <STRONG>The Dominion Gate<BR></STRONG>2. <STRONG>K-141<BR></STRONG>3.<STRONG> Secret Rules<BR></STRONG>4. <STRONG>The Watchtower<BR></STRONG>5. <STRONG>Temple Of Tears<BR></STRONG>6.<STRONG> Circle Of The Dark<BR></STRONG>7.<STRONG> Before And After...</STRONG></P>
+<P><A href="http://www.nightmare-metal.com">http://www.nightmare-metal.com</A></P>
+Автор: Bizarre
+
+### 16.09.2005 news Дата релиза NIGHTMARE
+
+<P>Новый альбом <STRONG>NIGHTMARE "The Dominion Gate"</STRONG> выйдет 7 ноября на <STRONG>Regain</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.05.2009 news NIGHTMARE на AFM
+
+<P>Французские ветераны <STRONG>NIGHTMARE</STRONG> заключили контракт с<STRONG> AFM</STRONG>. В настоящее время группа записывает свой седьмой альбом "<STRONG>Insurrection</STRONG>" в студии <STRONG>Peek</STRONG> с <STRONG>Patrick Liotard</STRONG> и в студии <STRONG>Indiscreet </STRONG>с <STRONG>Achim Kohler</STRONG> (<STRONG>PRIMAL FEAR, EDGUY, MASTERPLAN</STRONG>).</P>
+Автор: Vit Belov
+
+### 10.02.2010 reviews Французов не загнать в жёсткие рамки
+
+<P>Старейшая французская тяжёлая команда NIGHTMARE стала известна в наших краях после релиза в 2001 году на Napalm Records своего «ре-юнион» альбома “Cosmovision”. Не знаю, как этот коллектив попал на австрийский лэйбл. Ни «до», ни «после» эта контора не была замечена в особой любви к power-progressive-metal.</P>
+<P>NIGHTMARE стали исключением не только для Napalm Records. До недавнего времени их пластинки выходили на шведском Regain Records, который, вообще, специализируется на black-metal. Теперь NIGHTMARE нашли более подходящее пристанище – немецкий лэйбл AFM. Нестандартностью отличается не только издательская судьба в французов, но и их музыка, что намного важнее. Не зацикливаясь в каких-то определённых рамках, группа старается сочинять интересную музыку и интересно её подавать. Новая работа представляет NIGHTMARE во всей красе. Концептуальное звучание, артистический вокал, певец использует все тона своего голоса, от рыка до высочайшего фальцета. Музыкально NIGHTMARE распространяют своё творчество от «олд-скульного» thrash-metal до не менее «олдскульного» heavy-metal через прозрачность звучания классического progressive-heavy-metal в духе SAVATAGE. </P>
+<P>Творчество этой группы самобытно и интересно. Невозможно определять её стиль однозначно, но это только добавляет ей вистов. Любителям хорошей музыки, замешанной на power и progressive.</P>
+Автор: Vit Belov
+
+### 28.01.2011 news Первый DVD NIGHTMARE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.01/18340.jpg" width=400 align=right border=0>Первое концертное DVD французов<STRONG> NIGHTMARE</STRONG> <STRONG>"One Night Of Insurrection" </STRONG>выходит 25 февраля на<STRONG> AFM</STRONG>. Материал был отснят в Гренобле на специальном юбилейном шоу группы, посвящённом 30-летней годовщине <STRONG>NIGHTMARE</STRONG>. Трэк-лист:</FONT></P>
+<P>DVD track listing:<BR>01. <B>Intro</B><BR>02. <B>Eternal Winter</B><BR>03. <B>White Wicked Demon</B><BR>04. <B>Heretic</B><BR>05. <B>Legions Of The Rising Sun</B><BR>06. <B>Secret Rules</B><BR>07. <B>Queen Of Love And Pain</B><BR>08. <B>Three Miles Island</B><BR>09. <B>Hallucinations</B><BR>10. <B>The Wind Of Sin</B><BR>11. <B>Target For Revenge</B><BR>12. <B>The Gospel Of Judas</B><BR>13. <B>Mind Matrix Schizophrenia</B><BR>14. <B>The Watchtower</B><BR>15. <B>Power Of The Universe</B><BR>16. <B>Lord Of The Sky</B><BR>17. <B>Trust A Crowd</B><BR><BR>Bonus:<BR>* Summer Blast in Tel-Aviv, Israel<BR><BR>CD track listing:<BR>01. <B>Intro</B><BR>02. <B>Eternal Winter</B><BR>03. <B>White Wicked Demon</B><BR>04. <B>Heretic</B><BR>05. <B>Legions Of The Rising Sun</B><BR>06. <B>Secret Rules</B><BR>07. <B>Queen Of Love And Pain</B><BR>08. <B>Three Miles Island</B><BR>09. <B>Cosmovision</B><BR>10. <B>The Wind Of Sin</B><BR>11. <B>Target For Revenge</B><BR>12. <B>The Gospel Of Judas</B><BR>13. <B>The Watchtower</B></P>
+Автор: Vit Belov
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 19.09.2016 news Обложка и трек-лист нового альбома NIGHTMARE
+
+<p>Французская heavy metal группа<strong> NIGHTMARE</strong> готовится выпустить студийный альбом „<strong>Dead Sun</strong>“ в обновленном составе. Материал увидит свет 25 ноября на <strong>AFM Records</strong>. А в следующую пятницу, 23 сентября, уже можно будет посмотреть новый видеоклип „<strong>Ikarus</strong>“.</p><p>Аранжировками занимался давний партнер и продюсер группы<strong> Patrick Liotard</strong>, группа записывалась в студии <strong>Sandlane</strong> в Нидерландах с продюсером <strong>Joost Van Den Broek</strong> (The Gentle Storm, Epica) и в <strong>Noise Factory Studio</strong> в Бельгии с <strong>Gerald Jans</strong>. Обложку „<strong>Dead Sun</strong>“ нарисовал <strong>Julien Spreutels</strong> (Epysode).</p><p>Трек-лист:<br>01. Infected<br>02. Of Sleepless mind<br>03. Tangled In The Roots<br>04. Red Marble & Gold<br>05. Ikarus<br>06. Indifference<br>07. Dead Sun<br>08. Seeds Of Agony<br>09. Inner Sanctum<br>10. Serpentine<br>11. Starry Skies Gone Black</p><p>Новые музыканты Nightmare: певица <strong>Maggy Luyten</strong> и барабанщик<strong> Olivier Casula</strong> - дебютировали в составе группы на фестивале Hellfest в июне этого года.</p><p>Текущий состав NIGHTMARE:<br>Maggy Luyten - вокал<br>Yves Campion - бас и вокал<br>Franck Milleliri - гитара<br>Matt Asselberghs - гитара и вокал<br>Olivier Casula – ударные</p><p><center><img width="600" height="600" src="/images/news_rus/2016.09/29980.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.09.2016 news NIGHTMARE revealed cover-artwork, track-list and releasedate for their new album
+
+<p>French power progressive metal band <strong>NIGHTMARE</strong> will release new album<strong> "Dead Sun</strong>" on November, 25 via <strong>AFM Records</strong>. The effort was recorded with renewed line-up. NIGHTMARE added to their ranks female singer <strong>Maggy Luyten</strong> and drummer <strong>Olivier Casula</strong>.</p><p>The CD was arranged by permanent producer of the band<strong> Patrick Liotard</strong>. Recording sessions was in <strong>Sandlane Studios</strong> in Netherlands with engineer <strong>Joost Van Den Broek</strong> and in<strong> Noise Factory Studio</strong> in Belgium with<strong> Gerald Jans</strong>. Cover artwork was painted by <strong>Julien Spreutels</strong>.</p><p>Track-list:</p><p>01. Infected<br>02. Of Sleepless mind<br>03. Tangled In The Roots<br>04. Red Marble & Gold<br>05. Ikarus<br>06. Indifference<br>07. Dead Sun<br>08. Seeds Of Agony<br>09. Inner Sanctum<br>10. Serpentine<br>11. Starry Skies Gone Black</p><p><center><img width="600" height="600" src="/images/news_rus/2016.09/29980.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 23.09.2016 news Новый клип NIGHTMARE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый видео-клип <strong>NIGHTMARE</strong> на песню "<strong>Ikarus</strong>" можно посмотреть ниже. Новый диск ансамбля "<strong>Dead Sun</strong>" выйдет 25 ноября на<strong> AFM Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-0Y8knz7Ri0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 23.09.2016 news NIGHTMARE released new video
+
+<p>New video clip of<strong> NIGHTMARE</strong> for the song "<strong>Ikarus</strong>" can be viewed below. New album of the band "<strong>Dead Sun</strong>" will be released on November 25 via <strong>AFM Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-0Y8knz7Ri0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 05.11.2016 news Новый клип NIGHTMARE
+
+<p>Французы<strong> NIGHTMARE</strong> выпускают новый альбом "<strong>Dead Sun</strong>" 25 ноября на<strong> AFM Records</strong>. Новое видео на песню с этой работы "<strong>Serpentine</strong>" можно посмотреть ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/gV1VSTpbkO4" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 05.11.2016 news NIGHTMARE released new video
+
+<p>The French <strong>NIGHTMARE</strong> will release new album "<strong>Dead Sun</strong>" on November 25 via<strong> AFM Records</strong>. New video for the song from this work "<strong>Serpentine</strong>" can be viewed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/gV1VSTpbkO4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

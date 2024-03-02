@@ -45,6 +45,43 @@ German Power Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.06.2001 news Замена гитариста в ANGEL DUST .....
+
+<p>"ANGEL DUST" официально расстались с гитаристом Bernd Aufermann. Причиной явились "непреодолимые личные разногласия...". Замена найдена в лице Ritchie Wilkison, который уже выступал с группой во время американских гастролей. Из других новостей "ANGEL DUST" арендовали студию (с 21 августа) для записи нового альбома с рабочим названием "Of Human Bondage". Уволенный Aufermann собирается сфокусироваться на своем сольном проекте "SHINING".</p>
+
+Автор: Yermola
+
+### 07.06.2001 news Germany&#39;s ANGEL DUST have officially parted ways ...
+
+<p>Germany's ANGEL DUST have officially parted ways with guitarist Bernd Aufermann due to "unbridgeable personality differences" that have made further collaborations "impossible". ANGEL DUST have replaced Aufermann with Ritchie Wilkison, who was most recently performing with the group during their US live dates. ANGEL DUST is tentatively scheduled to enter the studio on August 21st to begin recording their new album, provisionally titled Of Human Bondage. Meanwhile, Aufermann is said to be focusing his energies on a brand new project named SHINING. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 09.02.2005 news ANGEL DUST планируют новый альбом
+
+<P><STRONG>ANGEL DUST</STRONG> обещают выпустить новый альбом до конца 2005 года. Никаких более конкретных планов пока нет.</P>
+Автор: Vit Belov
+
+### 01.11.2005 news Новый вокалист ANGEL DUST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ANGEL DUST</STRONG> заменили вокалиста. Вместо ушедшего<STRONG> Dirk Thurisch</STRONG> за микрофооной стойкой теперь будет <STRONG>Carsten Kaiser</STRONG> (ex-<STRONG>EVERFLOW</STRONG>). Соответственно коллектив был вынужден задержать запись новой пластинки. Теперь студийное время заьронированно на март.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

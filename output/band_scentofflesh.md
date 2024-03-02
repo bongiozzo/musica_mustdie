@@ -49,6 +49,39 @@ Niko Ahokas - Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.03.2003 reviews Невменяемые звуки из зыбких пучин
+
+<p>"Roaring Depths of Insanity" - дебютный альбом брутальной финской команды. Материал группы несколько несвойственен для местной сцены. SCENT OF FLESH играют довольно агрессивный death metal с сыроватым мощным звуком и некоторыми мелодичными вставками. Лирика группы рассказывает о смерти и безумии. Музыка группы построена по американской схеме брутального death metal, лишь изредка проглядывается влияние шведского death metal. Музыкантам хорошо удалось сочетать и сбалансировать зверскую ритмику и техничную брутальность с интересными мелодиями и акустическими лиричными проигрышами. Очень неплохой основной гроулинг, к которому иногда подсоединяется второй, и вместе они образуют демонический дуэт напоминающий вокальные партии у DEICIDE. Тем более, следует учитывать то, что это дебют группы. Именно микширование двух ведущих death metal школ заметно выделяет материал группы из кучи подобных. Этот альбом будет интересен как любителям брутала, так и тем, кто любит мелодичный death metal.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 08.08.2003 news SCENT OF FLESH в студии
+
+<p>Финские дэтстеры SCENT OF FLESH начнут в сентябре, в Music Bros Studios, запись своего второго альбома под названием "Valor in Hatred". Релиз ожидается в конце 2003 года через Black Lotus Records.</p>
+
+Автор: Dimas
+
+### 19.09.2003 news SCENT OF FLESH начинают запись
+
+SCENT OF FLESH начинают запись новой пластинки "Valor In Hatred" в сентябре.&nbsp;Пластинка будет записана в Music Bros studios&nbsp;и выйдет в декабре.&nbsp;
+Автор: Vit Belov
+
+### 11.05.2004 news Scent Of Flesh записали альбом
+
+<P>Финские death-metal'исты <B>SCENT OF FLESH</B> записали свой второй альбом <B>"Valor In Hatred". </B>Трэк-лист:</P>
+<P><IMG height=227 alt="" hspace=0 src="/images/news_rus/2004.05/6491.jpg" width=230 align="right" border=0>01. <B>Valor in Hatred</B><BR>02. <B>Art of Beheading</B><BR>03. <B>Circle of Dark Beliefs</B><BR>04. <B>Visions of Death</B><BR>05. <B>Descent to Dark Clarity</B><BR>06. <B>Unleashed be the Ungodly</B><BR>07. <B>Suicidal Cannibalism</B><BR>08. <B>The Last Awakening</B><BR></P>
+<P>Песню <B>Art Of Beheading</B> Вы можете скачать на нашем сайте.</P>
+Автор: Vit Belov
+
+### 17.01.2007 news Третий альбом SCENT OF FLESH
+
+<P>Финские дэтстеры&nbsp;<B>SCENT OF FLESH</B>&nbsp;подготовили к изданию свой новый альбом под названием&nbsp;<B>"Deform in Torture"</B>, выход которого ожидается 21 февраля на <B>Firebox Records</B>. Трек-лист альбома:<BR><BR><IMG height=250 alt="" hspace=10 src="/images/news_rus/2007.01/11194.jpg" width=250 align=left border=0>1. <B>Living But Stillborn</B> <BR>2. <B>At the Stake of Mercy</B><BR>3. <B>Deform in Torture</B><BR>4. <B>Last Act of Power</B><BR>5. <B>Relentless Hands</B><BR>6. <B>Delusions of Deity</B><BR>7. <B>One Holy Truth</B><BR>8. <B>Our Own Archnemesis</B> <BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

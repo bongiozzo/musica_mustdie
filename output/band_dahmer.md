@@ -8,6 +8,9 @@ serial-killer crusty grindcore from Canada
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

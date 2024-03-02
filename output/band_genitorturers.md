@@ -37,6 +37,15 @@ Recorded At Wolf's Head Studios, Altamonte Springs, FL
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.11.2009 news GENITORTURES на Season Of Mist
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.11/15466.jpg" width=400 align=left border=5>Группа <STRONG>GENITORTURES</STRONG>, в которой на басу играет фронтмэн <STRONG>MORBID ANGEL</STRONG> <STRONG>David "Evil D" Vincent</STRONG>, подписала контракт с <STRONG>Season Of Mist</STRONG>. Новый альбом <STRONG>"Blackheart Revolution" </STRONG>выйдет в Европе 18 января. В США пластинка доступна уже с 3 ноября этого года. </P>
+<P>Согласно пресс-релизу, музыка группы состоит из агресивного рока, механического метала и "подземного" электрик попа. &nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

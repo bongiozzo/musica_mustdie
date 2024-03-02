@@ -32,6 +32,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.06.2013 news JEX THOTH: подробности второго альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>15 июня&nbsp;американская&nbsp;психоделическая&nbsp;рок&nbsp;банда <STRONG>JEX THOTH</STRONG> выпускает свой второй полноформатник <STRONG>"Blood Moon Rise" </STRONG>на лейбле <STRONG>I Hate </STRONG>(<A href="http://www.ihate.se/">www.ihate.se</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист альбома:</FONT></P>
+<P>1. <STRONG>To Bury</STRONG> | 2. <STRONG>The Places You Walk</STRONG> | 3.<STRONG> The Divide</STRONG> | 4. <STRONG>Into&nbsp;A Sleep</STRONG>&nbsp;| 5. <STRONG>And The River Ran Dry (instrumental)</STRONG> | 6. <STRONG>Keep Your Weeds</STRONG> | 7. <STRONG>Ehj&#228;</STRONG> | 8. <STRONG>The Four of Us Are Dying</STRONG> | 9. <STRONG>Psyar</STRONG></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню<STRONG> "Keep Your Weeds"</STRONG> можно послушать по ссылке: <A href="http://youtu.be/SYB2yrOPG8c">http://youtu.be/SYB2yrOPG8c</A></FONT>&nbsp;</P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.06/25783.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

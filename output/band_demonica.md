@@ -24,6 +24,17 @@
 * C группой "Denner / Shermann" Hank Shermann (guitar)
 * C группой "Denner / Shermann" Marc Grabowski (bass)
 
+## Публикации
+
+### 24.01.2010 news Участники MERCYFUL FATE, FORBIDDEN и DEFIANCE в новом проекте
+
+<P><STRONG><IMG height=399 alt="" hspace=5 src="/images/news_rus/2010.01/16057.jpg" width=300 align=right vspace=5 border=0>DEMONICA - </STRONG>это новый проект включающий в себя<STRONG> </STRONG>гитариста<STRONG> Hank Shermann</STRONG> (<STRONG>MERCYFUL FATE</STRONG>). Дебютный альбом, получивший название <STRONG>"Demonstrous"</STRONG>, выйдет в свет 26 февраля на <B itxtvisited="1">Massacre Records</B>. Запись диска происходила в&nbsp;студиях С.Ш.А. и Дании и была смикширована в студии&nbsp;<B itxtvisited="1">Flatline Audio</B>&nbsp; города Denver (Colorado) с <B itxtvisited="1">Dave Otero</B> (<B itxtvisited="1">CEPHALIC CARNAGE</B>, <B itxtvisited="1">MARTRIDEN</B>, <B itxtvisited="1">COBALT</B>).</P>
+<P>Первый трек с <STRONG>"Demonstrous"</STRONG>, под названием <STRONG>"Demon Class"</STRONG>,&nbsp;&nbsp;можно прослушать&nbsp;на Myspace&nbsp;странице&nbsp;группы:</P>
+<P><A href="http://www.myspace.com/demonicaofficial">http://www.myspace.com/demonicaofficial</A>.</P>
+<P><STRONG>DEMONICA</STRONG> это:<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">Hank Shermann</B> (<STRONG>MERCYFUL FATE)</STRONG> - гитара<BR itxtvisited="1"><B itxtvisited="1">Craig Locicero</B> (<STRONG>FORBIDDEN</STRONG>) - гитара<BR itxtvisited="1"><B itxtvisited="1">Klaus "Hyr" Hansen</B> (<STRONG>BATTALION</STRONG>, <STRONG>TRAUMA CENTER</STRONG>) - вокал<BR itxtvisited="1"><B itxtvisited="1">Mark Hernandez</B> (<STRONG>FORBIDDEN</STRONG>, <STRONG>HEATHEN</STRONG>, <STRONG>DEFIANCE</STRONG>, <STRONG>VIO-LENCE</STRONG>) – барабаны<BR itxtvisited="1"><B itxtvisited="1">Marc Grabowski</B> (<STRONG>CORRUPTION</STRONG>) - бас</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -101,6 +101,16 @@ Recorded At Chicago Trax
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.10.2011 news Новый альбом CIANIDE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=500 alt="" hspace=0 src="/images/news_rus/2011.10/21478.jpg" width=500 align=right border=0>Шестой альбом легендарных американских детстеров<STRONG> CIANIDE "Gods Of Death"</STRONG> вышел в этом году на<STRONG> Hells Headbangers Records</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Desecration Storm</STRONG><BR>2. <STRONG>Forsaken Doom<BR></STRONG>3. <STRONG>Rising of the Beast<BR></STRONG>4.<STRONG> Dead and Rotting</STRONG><BR>5. <STRONG>Idolator<BR></STRONG>6. <STRONG>Terrorstrikes</STRONG><BR>7. <STRONG>The One True Death<BR></STRONG>8. <STRONG>Contained and Controlled</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/cianidekills">http://www.myspace.com/cianidekills</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

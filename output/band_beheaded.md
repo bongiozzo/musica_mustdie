@@ -37,6 +37,21 @@ death metal band from Malta
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2002 reviews Мальта – это вам не Мозамбик
+
+<p>Мальтийский дэт? А что, собственно, в этом удивительного? Мальта – это вам всё-таки не Мозамбик, а вполне цивилизованная европейская страна. Какая же цивилизованная европейская страна без своих героев дэт-металла?.. И герои себя долго ждать не заставили. Имя им – BEHEADED, и играют они самый настоящий brutal death, без всяких там компромиссов. В наши дни повального увлечения гетеборгскими соплями не часто доводится усладить свой слух таким качественным мясом. А в том, что это именно МЯСО, сомневаться не приходиться. Выберите любую из десяти представленных на диске песен, нажмите кнопочку play, и вы быстренько поймёте, что означает выражение "попасть в мясорубку". Об оригинальности говорить не приходится, но похвальное разнообразие музыкального полотна и очевидное стремление обрести собственное лицо выгодно отличают BEHEADED от сонма подобных им команд.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 28.11.2002 reviews Wanna know how it feels like whilst being chopped in a meatgrinder?
+
+<p>Malta’s death metal? Come on, are you really surprised? What’s so strange in it? At least, Malta isn’t some godforsaken Mozambique, but a civilized European State. And have you ever seen any civilized European State going anywhere if there’s no death metal star? Well, the ‘star’ hadn’t made us await it for centuries. It goes by the name “Beheaded”, and uncompromising death metal is the music it delivers. Nowadays, when a plague once beget in Gothenborg goes further on, it’s not so common to face a band offering THAT relentless DM. And no one of sound mind would ever doubt it’s 100% death metal. Pick up any of the ten songs this CD is coming with, and you’ll immediately figure out what a living flesh feels like, whilst being chopped in a meatgrinder. There’s not much to say about BEHEADED’s originality as there’s not much of it featured herein, however enviably diversified musical canvas and undeniable craving for standing against the background of typicality would doubtlessly make any DM freak check this band out.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.10.2011 news Новое видео STRIDER
+
+<P>Новый клип итальянской thrash-metal банды<STRONG> STRIDER</STRONG> на заглавную песню с нового альбома "<STRONG>Chimera</STRONG>" можно посмотреть ниже. Это второй альбом коллектива, дебют группы "<STRONG>Gearheart</STRONG>" вышел в 2007 году.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/3zvtcN_DJJ4?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/3zvtcN_DJJ4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

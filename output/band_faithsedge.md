@@ -39,6 +39,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.06.2016 reviews Американская музыка с итальянским лицом
+
+<p>Третий альбом американской команды FAITHSEDGE “Restoration” выходит 24 июня на Scarlet Records. Группа образована американцем итальянского происхождения певцом и автором песен&nbsp; Giancarlo Floridia. Ему удалось привлечь в FAITHSEDGE сильный состав известных музыкантов: басист STRYPER Tim Gaines, барабанщик MR.BIG Matt Starr и бывший гитарист DOKKEN Alex De Rosso. На клавишах играет не менее известный итальянец Alessandro Del Vecchio (HARDLINE, REVOLUTION SAINTS). Утверждается, что музыканты существуют как единая группа, а не как проект, где каждый записывается сам по себе.</p><p>Не будем подвергать сомнению это утверждение, но при прослушивании «Restoration” сразу становится понятно, кто в группе заказывает музыку. Лидер-вокалист здесь везде. Его голос не умолкает ни на минуту, а остальные музыканты делают так, что обозреваемый альбом звучит фирменно. Действительно, реализация пластинки на самом высоком уровне, иногда слышен AOR, иногда melodic metal, иногда melodic hard rock. Альбом звучит очень по-американски, настолько, что кажется, это было главной целью FAITHSEDGE.</p><p>Средняя работа, несколько вымученная, но сделанная по правильным лекалам. Вряд ли FAITHSEDGE станут откровением для поклонников рока и метала, но коллекционеры могут остаться довольными.</p>
+Автор: Vit Belov
+
+### 14.06.2016 reviews American music with an Italian face
+
+<p>The third album of the American band FAITHSEDGE “Restoration” will be out on 24 June via Scarlet Records. The group was formed by Americans of Italian origin singer and songwriter Giancarlo Floridia. He managed to attract to FAITHSEDGE strong team of famous musicians: bassist Tim Gaines of STRYPER, drummer Matt Starr of MR.BIG and former DOKKEN guitarist Alex De Rosso. Famous Italian keyboardist Alessandro Del Vecchio (HARDLINE, REVOLUTION SAINTS) also plays in the group. It is argued that musicians exist as a real group, not as a project, where everyone is recorded by itself.</p><p>Not going to question this statement, but when listening to "Restoration" once it becomes clear who in the group calls the tune. The lead singer is everywhere. His voice does not stop for a minute and the rest of the band make the album sounds brand. Indeed, the realisation of the CD at the highest level, sometimes you can hear AOR, sometimes melodic metal, sometimes melodic hard rock. The album sounds very American, so much so that I think it was the main purpose of FAITHSEDGE.</p><p>The average work somewhat labored, but done for the right patterns. Hardly FAITHSEDGE will be a revelation for fans of rock and metal, but collectors can be satisfied.</p>
+Автор: Vit Belov
+
+### 01.07.2016 news Новый клип FAITHSEDGE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Видео-клип американской melodic heavy metal банды <strong>FAITHSEDGE</strong> на песню "<strong>Faith And Chris</strong>" можно посмотреть ниже. Третий альбом группы "<strong>Restoration</strong>" только что вышел <strong>на Scarlet Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Рецензию на этот альбом можно прочитать <a href="/ru/band/faithsedge/21908/#reviews">здесь</a>.</font></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/2MFQFjUVoNM" frameborder="0" allowfullscreen=""></iframe><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<p></p></center>
+Автор: Vit Belov
+
+### 01.07.2016 news FAITHSEDGE: New video
+
+<p>Video clip of American melodic heavy metal band <strong>FAITHSEDGE</strong> on the song "<strong>Faith And Chris</strong>" can be viewed below. The band's third album "<strong>Restoration</strong>" just came out on <strong>Scarlet Records</strong>.</p><p>A review of this album can be read <a href="/en/band/faithsedge/21908/#reviews">here</a>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/2MFQFjUVoNM" frameborder="0" allowfullscreen=""></iframe><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

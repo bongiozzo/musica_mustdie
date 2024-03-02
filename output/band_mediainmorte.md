@@ -33,6 +33,9 @@ Recorded & Mixed At Delta Studio, Wilster
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

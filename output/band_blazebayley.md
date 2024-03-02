@@ -77,6 +77,57 @@ Larry Paterson - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.11.2011 news Первый совместный тур бывших вокалистов IRON MAIDEN
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.11/22109.jpg" width=500 height=340> 
+<P></P>
+<P>В февраля 2012 года, Россию, с совместными концертами, посетят&nbsp;два бывших вокалиста <STRONG>IRON MAIDEN</STRONG> -&nbsp;<STRONG>Paul DiAnno</STRONG> и <STRONG>Blaze Bayley</STRONG>.</P>
+<P><U>Даты тура</U>:</P>
+<P>22 февраля - <STRONG>Санкт-Петербург</STRONG>, "Орландина" (<A href="http://www.orlandina.ru/">www.orlandina.ru</A>)<BR>23 февраля - <STRONG>Ставрополь</STRONG>, "Мажор"<BR>24 февраля - <STRONG>Ростов-на-Дону</STRONG>, ДК "Ростсельмаш"<BR>25 февраля - <STRONG>Краснодар</STRONG>, "Мавзолей"<BR>26 февраля - <STRONG>Москва</STRONG>, "План Б" (<A href="http://www.planbclub.ru/">www.planbclub.ru</A>)<BR>+ ещё два города</P>
+<P>В состав их&nbsp;аккомпанирующей группы войдут:</P>
+<P><STRONG>Андрей Смирнов</STRONG> (<STRONG>EVERLOST</STRONG>, ex-<STRONG>МАСТЕР</STRONG>) - гитара<BR><STRONG>Илья Мамонтов</STRONG> (<STRONG>ЭПИДЕМИЯ</STRONG>) - гитара<BR><STRONG>Николай Коршунов</STRONG> (<STRONG>КРЕМАТОРИЙ</STRONG>, ex-<STRONG>АРТЕРИЯ</STRONG>) - бас<BR><STRONG>Андрей Ищенко</STRONG> (<STRONG>ASHEN LIGHT</STRONG>, ex-<STRONG>CATHARSIS</STRONG>) - ударные</P></CENTER>
+Автор: Headcrusher
+
+### 28.12.2011 news Blaze - король метала!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист<STRONG> IRON MAIDEN Blaze Bayley</STRONG> объявил название своего нового сольного альбома. Пластинка, которая должна быть записана к весне, будет носить имя "<STRONG>The King Of Metal</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>26 февраля <STRONG>Blaze</STRONG> приедет в Москву вместе с другим бывшим вокалистом <STRONG>IRON MAIDEN Paul DiAnno</STRONG> и даст концерт в клубе<STRONG> Plan B</STRONG>.</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2011.12/22400.jpg" width=367 height=245></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.03.2012 news BLAZE BAYLEY: информация о заказе альбома &quot;The King Of Metal&quot; и обложка
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом Блейза Бейли (<STRONG>Blaze Bayley</STRONG>)&nbsp;<STRONG>"The King Of Metal"</STRONG> доступен для предварительного заказа через официальный сайт артиста по адресу: <A href="http://www.blazebayley.net/webshop/the-king-of-metal.html">http://www.blazebayley.net/webshop/the-king-of-metal.html</A></FONT></P>
+<P>Диск будет выпущен на собственном лейбле Блейза уже 8 марта.</P>
+<P>Ниже можно увидеть обложку альбома.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.03/23198.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.08.2015 news Blaze Bayley предлагает поговорить
+
+<P>Бывший вокалист <STRONG>IRON MAIDEN</STRONG> задумал выпустить в марте будущего года новый восьмой альбом в своей сольной дискографии. Музыкант рассчитывает, что работа станет лучшей на его творческом пути для этого Blaze сочинит концептуальную историю в жанре Sci-Fi. Уже 1-го сентября каждый фэн сможет сделать предзаказ пока не существующего альбома. Зачем? А затем, что певец обещает эксклюзивные привилегии всем вложившимся в его творчество. </P>
+<P>Каждый оплативший путёвку, будет получать эксклюзивные "апдейты" о процессе записи пластинки и сочинения концептуальной истории, а так же получит в день релиза специальный журнал и DVD с making of. Но главное, каждый месяц по несколько часов Blaze Bayley будет общаться с фэнами и рассказывать об альбоме. Соблазнились? После 1-го сентября шлите денюжку сюда: <A href="http://www.facebook.com/officialblazebayley">http://www.facebook.com/officialblazebayley</A>&nbsp;</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.08/28252.jpg" width=450 height=300></P>
+Автор: Vit Belov
+
+### 21.06.2016 news Новый клип Blaze Bayley
+
+<p>Новый ролик бывшего вокалиста<strong> Blaze&nbsp;Bayley</strong> на песню "<strong>Calling You Home</strong>" можно посмотреть ниже. Трек взят с последнего сольного альбома певца "<strong>Infinite Entanglement</strong>", который вышел в марте.</p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/HN9za8ZICYo?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 21.06.2016 news New video of Blaze Bayley
+
+<p>New video of the former singer of<strong> IRON MAIDEN Blaze Bayley</strong> on the song "<strong>Calling You Home</strong>" can be viewed below. The track is taken from the last solo album of the singer "<strong>Infinite Entanglement</strong>", which was released in March.</p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/HN9za8ZICYo?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ###  	 Paul DiAnno + Blaze Bayley (ex-IRON MAIDEN) в Москве (17 ноября)

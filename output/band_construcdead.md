@@ -76,6 +76,67 @@ Model On Front Cover: Lucky Mangarda
 * C группой "Terror 2000" Erik Thyselius (drummer)
 * C группой "Carnal Forge" Johan Magnusson
 
+## Публикации
+
+### 08.02.2003 reviews Очень даже неплохой SMDM
+
+<p>Типичный представитель данной школы. На альбоме Вы не услышите чего-то сверхинтересного, хороший такой забой, с мелодичными соло и типичным для melodic death вокалом. С другой стороны никаких соплей и экспериментов, что очень сильно радует. Музыканты этой группы поиграли до этого во многих командах, но так или иначе они были связаны со шведским дэтом, что гарантирует качество продукта. Можно посоветовать всем любителям жанра, правда Ablaze My Sorrow мне понравился больше.</p>
+
+Автор: Vit Belov
+
+### 21.03.2003 reviews Very good Swedish Melodic Death Metal
+
+<p>Typical representative of this school. There is not something superinteresting on this album. Good drive with melodic solo and typical for melodic death-metal vocal. On other side there are no complains and expirements. That's very good. Musicians of this band played in many bands before CONSTRUCDEAD, but all this bands played swedish death-metal. Quality of this product is guarantied. I can advise to all fans of genre. But ABLAZE MY SORROW is more interesting.</p>
+
+Автор: Vit Belov
+
+### 18.09.2003 news Новый альбом CONSTRUCDEAD выйдет в январе
+
+CONSTRUCDEAD назначили дату выхода своего нового альбома 'Violadead' на январь. Пластинка выйдет через Sound Pollution Records. CD был записан в Queenstreet Recording с продюсером Richard Larsson. Будут доступны как digipack, так и обычная версия альбома.
+Автор: Vit Belov
+
+### 12.08.2004 news Новый басист CONSTRUCDEAD
+
+<P><IMG height=225 alt="Johan Magnusson" hspace=0 src="/images/news_rus/2004.08/6916.jpg" width=300 align="right" border=5>Новым басистом <B>CONSTRUCDEAD</B> стал <B>Johan Magnusson</B> (ex-гитарист <B>CARNAL FORGE</B>).</P>
+<P>"<I>Группа начинает репетировать новый материал и планирует войти в студию в начале 2005 года для записи нового альбома</I>". </P>
+Автор: Vit Belov
+
+### 10.08.2005 news Новости от CONSTRUCDEAD
+
+<P>Шведская группа <STRONG>CONSTRUCDEAD </STRONG>готовит к выпуску в конце 2005 года через <STRONG>Sound Pollution Records </STRONG>свой третий альбом <STRONG>"The Grand Machinery".</STRONG> Альбом был записан в<STRONG> Fear And Loathing Studio</STRONG> (<STRONG>CLAWFINGER,</STRONG> <STRONG>MESHUGGAH</STRONG>) с продюсером <STRONG>Jocke Skog</STRONG> (<STRONG>CLAWFINGER</STRONG>). Это дебют для новых музыкантов коллектива: вокалиста <STRONG>Jens Broman</STRONG> (<B>HATELIGHT</B>, <B>THE DEFACED</B>) и басиста <B>Viktor Hemgren</B> (<B>LUCIEN</B>, ex-<B>MAZE OF TORMENT</B>). Трек-лист альбома:</P>
+<P><STRONG><IMG height=250 alt="" hspace=15 src="/images/news_rus/2005.08/9083.jpg" width=269 align=left border=0>1. Grand Machinery <BR>2. A Coc In The Machinery <BR>3. The Lustfull (<A href="/samples/c/construcdead/2005_1620.mp3">mp3</A>)<BR>4. In A Moment Of Sobriety <BR>5. 8 Inches Of Flesh <BR>6. The Cynical revolution <BR>7. Treachery <BR>8. The Eye Of Revelation <BR>9. Pater Noster <BR>10. Rusty Amour <BR>11. Forever Cin <BR>12. Hatelist</STRONG></P>
+Автор: Dimas
+
+### 08.02.2007 reviews Типично, стандартно, малоинтересно
+
+<P>Вторая работа шведской группы состоящей из музыкантов прошедших хорошую школу в разных melodic death и thrash коллективах. Слушаешь альбом и ловишь себя на мысли, что здесь все очень даже неплохо. Множество хороших мелодичных риффов. Хороший вокал, как чистый, так и брутальный. Хороший подход к сочинению песен. Хорошее попадание в струю модной на 2004 год музыки. Хорошая такая смесь <STRONG>SOILWORK</STRONG> и <STRONG>TERROR 2000</STRONG>. При этом, уже и здесь заметна&nbsp;сильная тяга к американским коровым делам. Однако, несмотря на все это, музыкантов хочется обвинить в самом главном - отсутствии какой бы то ни было фантазии. Их риффы хороши, но совершенно неоригинальны. Их мелодии красивы, но при этом смекаешь, что где то уже это слышал. Их песни слушаются без скуки, но как уже заезженная любимая пластинка. Уж не знаю, повлияло ли на все это то, что продюсированием занимался гитарист <STRONG>SOILWORK Peter Witchers</STRONG>, который также принял гостевое участие в записи альбома еще с двумя участниками <STRONG>SOILWORK - Henry Ranta</STRONG> и<STRONG> Bjorn Strid</STRONG>. Уже только после прослушивания целого альбома, отлично понимаешь, что второе прослушивание состоится очень нескоро, несмотря на то, что альбом представляет собой качественный и модный продукт. При этом, интерес он представляет ровно лишь на первое прослушивание. С каждым последующим разом, впечатление от него только будет портиться...</P>
+<P>Диск предоставлен компанией <STRONG>MYSTIC EMPIRE</STRONG></P>
+Автор: Dimas
+
+### 05.12.2007 news CONSTRUCDEAD выложили новый трэк
+
+<P>Шведская death-thrash группа<STRONG> CONSTRUCDEAD</STRONG> выложила на своей<STRONG> MySpace</STRONG> страничке трэк "<STRONG>My Haven</STRONG>" со своего четвёртого альбома, выходящего в начале следующего года. Вот названия некоторых других вещей, ожидаемых на этом CD: <STRONG>"Cataclysm"</STRONG>, <B>"Transfixed"</B>, <B>"Tragic Kingdom"</B>, <B>"A Godess Breaches Through Me"</B>, <B>"Spiritual Shift"</B>, <B>"The One Beside Me"</B>&nbsp;и <B>"No Exit"</B>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/construcdead">http://www.myspace.com/construcdead</A></P>
+Автор: Vit Belov
+
+### 19.05.2008 news CONSTRUCDEAD назвали альбом
+
+<P>Четвёртый альбом <STRONG>CONSTRUCDEAD</STRONG> будет называться "<STRONG>Endless Echo</STRONG>" и выйдет уже в этом году. Трэк-лист:</P>
+<P>01. <B>Sedated Morning</B><BR>02. <B>My Haven</B><BR>03. <B>Endless Echoes</B><BR>04. <B>A Godess Breaches Through Me</B><BR>05. <B>Disfigured Beauty</B><BR>06. <B>Mephisto</B><BR>07. <B>No Exit</B><BR>08. <B>Transfixed</B><BR>09. <B>Tragic Kingdom</B><BR>10. <B>Spriritual Shift</B><BR>11. <B>The One Beside Me</B><BR>12. <B>Cataclysm</B><BR>13. <B>A Dark Wave</B></P>
+<P>Уже после записи альбома группа взяла нового барабанщика. Им стал музыкант <STRONG>FACEDOWN</STRONG> <STRONG>Chris</STRONG> <B>Barkensjo.</B></P>
+Автор: Vit Belov
+
+### 12.01.2009 news Новый альбом CONSTRUCDEAD
+
+<P><IMG height=199 alt="" hspace=0 src="/images/news_rus/2009.01/13345.jpg" width=300 align=right border=5>В апреле на <STRONG>Black Lodge</STRONG> выходит новый альбом <STRONG>CONSTRUCDEAD</STRONG> <STRONG>"Endless Echo". </STRONG></P>
+<P><FONT color=#ffffff>"<EM>Нам кажется, новый альбом будет содержать что-то для каждого. Основной материал быстрый и&nbsp;тяжёлый, но есть и мелодичные куски</EM>", - рассказывает группа.</FONT></P>
+<P><FONT color=#ffffff>Трэк-лист:</FONT></P>
+<P>01. <B>Sedated Morning</B><BR>02. <B>My Haven</B><BR>03. <B>Endless Echoes</B><BR>04. <B>A Godess Breaches Through Me</B><BR>05. <B>Disfigured Beauty</B><BR>06. <B>Mephisto</B><BR>07. <B>No Exit</B><BR>08. <B>Transfixed</B><BR>09. <B>Tragic Kingdom</B><BR>10. <B>Spriritual Shift</B><BR>11. <B>The One Beside Me</B><BR>12. <B>Cataclysm</B><BR>13. <B>A Dark Wave</B></P>
+<P>Песню "<STRONG>Mephisto</STRONG>" можно послушать на <STRONG>MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/construcdead">http://www.myspace.com/construcdead</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

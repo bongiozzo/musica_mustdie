@@ -8,6 +8,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.01.2008 news Дебютный альбом RUTHLESS ORDER
+
+<P><IMG height=375 alt="" hspace=0 src="/images/news_rus/2008.01/12185.jpg" width=375 align=left border=5>12 января на лейбле Metal Hearts (<A href="http://www.metalhearts.ru/">http://www.metalhearts.ru/</A>) вышел дебютный альбом московской progressive heavy/melodic death metal группы <STRONG>RUTHLESS ORDER "Genes of Isolation</STRONG>". Альбом был записан на стуии <STRONG>Faust Rec</STRONG>., сведён и отмастерингован на <STRONG>CDM-Studio Лазарем</STRONG> (<STRONG>Rossomahaar, Аркона</STRONG>). Трэклист: <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>1. <STRONG>Desire for Submission <BR></STRONG>2. <STRONG>Are You Afraid of Judas?</STRONG> <BR>3. <STRONG>Cross the Bridge of Misery <BR></STRONG>4. <STRONG>The Verse of Burning Walls</STRONG> <BR>5. <STRONG>Memories of the Lost Wisdom</STRONG> <BR>6. <STRONG>Era of Estrangement</STRONG> <BR>7. <STRONG>Sad Girl <BR></STRONG>8. <STRONG>Silent Night</STRONG></P>
+<P>Официальный сайт группы – <A href="http://www.ruthless.ru/">www.ruthless.ru</A><BR>Myspace - <A href="http://www.myspace.com/ruthlessorder">http://www.myspace.com/ruthlessorder</A> - Здесь можно послушать несколько песен с альбома.</P>
+Автор: Vit Belov
+
+### 19.05.2010 news Второй альбом RUTHLESS ORDER
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.05/16737.jpg" width=400 align=right border=5>14 мая на лейбле <STRONG>Grailight Productions</STRONG> вышел второй альбом московской Progressive Melodic Death/Heavy Metal группы <STRONG>RUTHLESS ORDER "Awakened Witnesses of Nascence"</STRONG>. </P>
+<P>Пресс-релиз: "<EM>Основываясь на мощном наследии классического hard rock и metal, музыканты вплели в ткань своих композиций современный драйв и густоту звука, а также инструментальные и вокальные приемы и темы, характерные для melodic-death. Группе сложно подобрать сравнение и проще перечислить те стили, которые в той или иной форме воплощены в их музыке: хард-рок, блюз, хэви-метал, дэт-метал, металкор, блэк-метал – но все эти стили смешаны со вкусом и безукоризненным чувством музыкальности. И динамика композиций альбома, безусловно, приятная своей живостью и выразительностью, заставляет думать, что музыкальное повествование, составляющее суть альбома, ведется от лица единого, слаженного, но экзальтированного и эмоционального существа, Человека, вновь возрождающегося после физической и нравственной гибели</EM>". </P>
+<P>Сведение и мастеринг произведены на <STRONG>Mindcrusher Labs Studio Русланом Масленниковым</STRONG> (<STRONG>MELANCHOLY</STRONG>). Трэк-лист: </P>
+<P>1. <STRONG>Blind King of the World</STRONG> <BR>2. <STRONG>Murk Imperative of Creation</STRONG> <BR>3. <STRONG>Dead Souls' Rock</STRONG> <BR>4. <STRONG>Lonely Ness to See</STRONG> <BR>5. <STRONG>New Vision of the Afterdeath</STRONG> <BR>6. <STRONG>Shadowrain </STRONG><BR>7.<STRONG> We Miss the Hell</STRONG> <BR>8. <STRONG>Silent Night <BR></STRONG>9. <STRONG>Era of Estrangement</STRONG> </P>
+<P><A href="http://www.myspace.com/ruthlessorderband">www.myspace.com/ruthlessorderband</A> <BR><A href="http://www.myspace.com/grailight">www.myspace.com/grailight</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

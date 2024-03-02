@@ -573,6 +573,849 @@ Disc 2 (DVD)
 * C группой "Fullforce" Anders Johansson (drums)
 * C группой "Malmsteen, Yngwie" Anders Johansson (drums)
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Прошлогодний дебютник этих ребят (выходцев из death-metal) "Glory To The Brave" оказал на меня большое влияние. Лично я считаю тот альбом лучшим power-speed релизом 1997 года. Но после того как я на одном дыхании прослушал новый альбом этих музыкантов, у меня довольно долго было чувство оторванности от реального мира. Я не мог подобрать слова, чтобы охарактеризовать этот альбом, но зато во мне клокотал целый поток торжественных чувств готовых разорвать меня на массу мелких кусочков. Альбом - просто чума! Глупо рассказывать о нём, его надо слушать, причём неоднократно. Хотя, если подходить к этому альбому с трезвым рассудком, то нужно отметить. что на новом альбоме HammerFall вы не услышите ничего нового по сравнению с первым альбомом. Всё та же энергия бьющая ключом, припевы в стиле Stratovarius, хоровые распевы в духе Blind Guardian, Accept'оподобные риффы. Сценарий альбома построен по тому же принципу, что и у дебютного альбома (череда быстрых боевиков разбавлена двумя вещицами балладного характера в середине и в конце альбома). Но несмотря на это, HammerFall rules. Я, конечно, пока ещё не слышал только что вышедший альбом Stratovarius, но на сегодняшний день я считаю , "Legacy Of Kings" - лучший heavy-альбом года.</p>
+
+Автор: Dimas
+
+### 11.04.1999 news 
+
+<p>Labyrinth сменили вокалиста. Нового певца зовут Морби, и он известен по группам Domine и Sabotage. Этот человек сейчас работает на гастролях вместе с Hammerfall. Новый миньон Labyrinth выйдет в июне. На нём будет кавер на песню Sanctuary "Die For My Sins" и несколько концертных записей. Также группа выступит на знаменитогм фестивале Dynamo.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Hammerfall покинул барабанщик Патрик Рофлинг. Как обычно сообщается, что группа и Патрик остались друзьями. Заменой на ближайшие фестивали стал Андерс Йохансон.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Hammerfall готовит к выпуску мини-альбом каверов "I Want Out". Несложно догадаться, что на нём будет одноимённая песня Helloween, также песня той же группы "At The End Of The Rainbow" и ещё несколько вещей. Также группа намерена в августе выпустить мультимедийное видео "Glory To The Brave" и ещё один видеофильм о самих себе.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>Hammerfall сядут в студию для записи нового альбома в феврале и ищут сейчас продюсера.</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Hammerfall начнут запись нового альбома первого мая. В студии они будут работать с продюсером Михаэлем Вагенером. Иохим Канс сказал, что группа хочет выяснить, как их музыка будет звучать при работе с известным продюсером.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Hammerfall решили свой третий альбом не продюсировать самостоятельно, как делали это в прошлом, а нанять для этого отдельного человека. Им оказался некто Michael Wagener. Hammerfall решили свой третий альбом не продюсировать самостоятельно, как делали это в прошлом, а нанять для этого отдельного человека. Им оказался некто Michael Wagener.</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 news Hammerfall в студии.
+
+<p>Hammerfall находятся сейчас в студии в Нэшвилле, США, где микшируют свой новый альбом "Renegade" под предводительством продюсера Michael Wagener. На альбоме будут песни: "A Legend Reborn", "Keep The Flame Burning", "Always will Be". Альбом выйдет 9 октября, а сингл будет доступен уже к концу августа.</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 news Studio-session by Hammerfall
+
+<p>HammerFall are in Nashville/USA to mix their new album 'Renegade' will producer legend Michael Wagener in the Wireworld Studios. The record is titled "Renegade", and here are some song titles: "A Legend Reborn", "Keep The Flame Burning", "Renegade" & "Always Will Be". The album will be released on October 9th, but there will be a single available by the end of August the titletrack "Renegade"</p>
+
+Автор: Vit Belov
+
+### 27.07.2000 news Новый альбом Hammerfall
+
+<p> По данным официального сайта группы Hammerfall, третий альбом группы "Renegade" появится в продаже с 9-го октября. Трэк-лист альбома: 'A Legend Reborn', 'Renegade', 'Templars Of Steel', 'The Way Of The Warrior', 'Living In Victory', 'Destined For Glory', 'Keep The Flame Burning', 'The Champion', 'Always Will Be '.</p>
+<p></p>
+
+Автор: Nybras
+
+### 18.09.2000 reviews Новый сокрушительный удар падающего молота
+
+<p>Новый сокрушительный удар падающего молота. Материал шведов в свойственной группе манере. Но надо подметить несколько нюансов. Не осталось прежнего задора, былой душевности. "Renegade" несколько монотонен и явно не дотягивает по хитовости до первых двух альбомов. Есть очень хорошие песни, с хоровым припевом, блестящими соло, тяжелыми гитарами, настоящим power-саундом. Если бы это был альбом новичков, я бы поставил ему очень высокую оценку. Но для своего уровня, группа записала, прямо скажем, худший альбом. Не такие запоминающиеся, как ранее, песни. Баллада вообще никакая. Неплохой инструментал. Немного вымученный альбом. Душевнее надо подходить к делу, а не механически. Надо, чтобы музыка цепляла. Очень жаль такую хорошую группу, но у них еще достаточно времени, чтобы все исправит и реабилитироваться в наших глазах. Несмотря на такое критичное настроение, я все равно считаю альбом довольно удачным и заслуживающим какого-никакого внимания.</p>
+
+Автор: Dimas
+
+### 02.12.2000 news Hammerfall закончили работу над  новым видеоклипом
+
+<p> Hammerfall закончили работу над видеоклипом, который выходит вместе с новым, трехтрэковым синглом "Always Will Be" в начале января. Группа также готовится к мировому турне "World Crusade Tour".</p>
+
+Автор: Nybras
+
+### 24.10.2001 news HAMMERFALL have sold gold
+
+<p>The swedish power metal band HAMMERFALL have sold gold in Sweden. Wich means that the band have sold over 40000 copys of their latest album Renegade.</p>
+
+Автор: Vic Thor
+
+### 24.10.2001 news HAMMERFALL получили &quot;золото&quot;
+
+<p>Шведская пауэр-метал группа HAMMERFALL получила "золото" в Швеции - было продано 40000 копий их последнего альбома Renegade.</p>
+
+Автор: Vic Thor
+
+### 19.11.2001 news HAMMERFALL will receive a gold album ...
+
+<p>The Swedish band will receive a gold album in early November for 'Renegade', as the disc exceeded 40,000 sold in their homeland ...</p>
+
+Автор: Yermola
+
+### 19.11.2001 news Ренегад становится золотым...
+
+<p>Альбому шведов "HAMMERFALL" - 'Renegade' на родине присвоен статус "золота" по достижении числа продаж в 40 000 копий...</p>
+
+Автор: Yermola
+
+### 21.03.2002 news Hammerfall are starting work on their next album
+
+<p>Hammerfall are about to start work on new album with producer Charlie Bauernfiend. The album will be recorded in Germany, Holland and Spain beginning in late April. The band are also putting together a new DVD/VHS video called "The Templar Renegade Crusades".</p>
+
+Автор: Morsus
+
+### 21.03.2002 news Hammerfall начинают работу над следующим альбомом
+
+<p>Hammerfall в конце апреля собираются начать работу над новым альбомом совместно с продюсером Чарли Бауэрнфиндом. Альбом будет записан в нескольких студиях в Германии, Голландии и Испании. Группа также готовит к выходу новое DVD/VHS видео "The Templar Renegade Crusades".</p>
+
+Автор: Morsus
+
+### 25.05.2002 news Super Project
+
+<p>Ex-HELLOWEEN members Michael Kiske (vocals) and Roland Grapow (guitar), HAMMERFALL bassist Magnus Rosйn, ANGRA guitarist Kiko Loureiro, PRIMAL FEAR/SINNER bassist Mat Sinner, PRIMAL FEAR vocalist Ralf Scheepers, and THOTEN drummer Marco Barzo are among the musicians scheduled to appear on the forthcoming solo project of THOTEN frontman Renato Tribuzy, dubbed EXECUTION. No further details are available at this time</p>
+
+Автор: Dimas
+
+### 25.05.2002 news Новый супер-проект EXECUTION
+
+<p>EXECUTION - новый супер-проект лидера группы THOTEN Renato Tribuzy. В записи приняли участие Michael Kiske (vocals) и Roland Grapow (guitar) (ex-HELLOWEEN), Magnus Rosun (bass) (HAMMERFALL), Kiko Loureiro (guitar) (ANGRA), Mat Sinner (bass) (PRIMAL FEAR/SINNER), Ralf Scheepers (vocal) (PRIMAL FEAR) и другие известные музыканты. В скором времени ждите альбом EXECUTION.</p>
+
+Автор: Dimas
+
+### 12.06.2002 news Веб-камера HAMMERFALL ...
+
+<p>Понаблюдать за процессом записи четвертого альбома шведов "HAMMERFALL" вы сможете, нажав на следующую <A HREF="http://www.hammerfall.net/webcam.html/">ссылку.... </A>Веб-камера установлена в студии вокалиста "HELLOWEEN" -Andy Deris'а - Mi Sueno в Испании. Сейчас команда записывает гитарные треки...</p>
+
+Автор: Yermola
+
+### 10.07.2002 news HammerFall are currently finishing up rhythm guitar tracks ...
+
+<p>Sweden's HammerFall are currently finishing up rhythm guitar tracks and vocals for their as-yet-untitled fourth full-length studio album at Mi Sueno Studios (Helloween singer Andy Deris' studio) in Tenerife, Spain. According to guitarist Oscar Dronjak, “working with producer Charlie Bauernfeind is a true joy, as his ability to create the atmosphere the band needs to perform their best is incredible.” <BR><BR> Ten songs are being recorded for the album and will include the following: “Trailblazers,” “Riders of the Storm,” “Hearts on Fire,” “The Unforgiving Blade,” “Hero's Return,” “Angel of Mercy” (Chastain cover), “On the Edge of Honour,” “Crimson Thunder,” and “Lore of the Arcane.” <BR><BR> Also, a webcam has been installed in the studio with images updated every minute. Check it out to get an idea of what is going on in the studio. The studio webcam is on between 5:00 AM to 9:00 PM EST and can be found on the band’s webpage.</p>
+
+Автор: Yermola
+
+### 20.09.2002 news DIO&#x2F;HAMMERFALL: Tentative Dates Announced ...
+
+<p>The initial/tentative dates for the forthcoming DIO/HAMMERFALL North American tour have been leaked. They are as follows: <BR> <BR> Nov. 06 - Vancouver, BC @ TBA<BR> Nov. 07 - Tacoma, WA @ Temple Theatre<BR> Nov. 08 - TBA @ TBA<BR> Nov. 09 - Portland, OR @ Crystal Ballroom<BR> Nov. 10 - Eugene, OR @ TBA<BR> Nov. 12 - San Fransisco, CA @ Fillmore<BR> Nov. 14 - Los Angeles, CA @ Universal Amphitheatre<BR> Nov. 15 - Anaheim, CA @ House Of Blues<BR> Nov. 16 - TBA @ TBA<BR> Nov. 17 - San Diego, CA @ 4th & B<BR> Nov. 19 - Albuquerque, NM @ TBA<BR> Nov. 20 - El Paso, TX @ TBA<BR> Nov. 22 - Austin, TX @ TBA<BR> Nov. 23 - Dallas, TX @ Canyon Club<BR> Nov. 24 - New Orleans, LA @ House Of Blues<BR> Nov. 25 - Atlanta, GA @ The Masquerade<BR> Nov. 27 - St. Louis, MO @ TBA<BR> Nov. 29 - TBA @ TBA<BR> Dec. 01 - Chicago, IL @ House Of Blues<BR> Dec. 03 - Louisville, KY @ Jillian's<BR> Dec. 05 - Auburn Hills, MI @ Palace of Auburn Hills<BR> Dec. 06 - TBA @ TBA<BR> Dec. 07 - TBA @ TBA<BR> Dec. 10 - Buffalo, NY @ TBA<BR> Dec. 11 - Albany, NY @ TBA<BR> Dec. 13 - New York, NY @ Roseland<BR> Dec. 14 - Worcester, MA @ The Palladium<BR> Dec. 15 - Hartford, CT @ Webster Theatre</p>
+
+Автор: Yermola
+
+### 30.10.2002 articles Новинки лицензионного рынка (29.10 - 03.11)
+
+<p>На этой неделе затишье в двух конторах Art Music Group и Soyuz, поэтому обратимся к оставшимся трём лэйблам.<br> Cd-Maximum добавляют очередную порцию underground metal. Альбом 2001 года финской группы Alghazanath “Osiris - Typhon Unmasked” являет собой малоизвестный мелодичный black-metal. В пресс-релизе советуют обратить внимание на «старомодную игру музыкантов, которая проявляется при более тщательном прослушивании». Далее Dominium “Psycho Path Fever” – группа относит себя к progressive-metal, но критики отмечают, что это heavy metal с death-metal вокалом. И третья новинка, о которой нам стало известно к данному моменту довольно известная группа Love Lies Bleeding со свежим релизом, который может порадовать всех любителей мелодичного black’а.<br> Fono продолжают окучивать свой новый контракт с Century Media, но почему-то выходят старые альбомы. Senteced “Amok” 1995 года выпуска и Iced Earth “Something Wicked This Way Comes” 1999 года в рекомендациях не нуждаются. Новый альбом brutal-death формации Dies Irae, в которой можно встретить участников Vader для любителей данного стиля. Также как и новый альбом старой heavy metal группы Riot.<br> Единственная металл-бомба этой недели вновь вышла на Irond. Новый альбом шведов Hammerfall порадует по крайней мере тем, что группа не отходит от своих истоков (хит недели). Альтернативная музыка на Nuclear Blast, скорее всего, продаётся везде кроме России. Группа с названием Prime Sth вряд ли будет пользоваться популярностью. Dominion III представляют «шедевр электронной апокалиптической музыки», играют участники Antichrisis и Dargaard. Проект Sieben представляет собой neo folk от скрипача Мэтта Хоудена, который засветился во множестве проектов. И напоследок Black Heaven, в котором участники Mantus «радуют» нас электронно-танцевальными экспериментами.<br> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 01.11.2002 reviews Грянет темно-красный гром и мечта станет явью
+
+<p>Четвертый альбом шведской команды, на удивление, оказался очень приятной и пикантной штучкой. Рецензируя предыдущий альбом группы, я отмечал его вымученность и отсутствие душевности и задора. Так вот, HAMMERFALL-2002 - это такой же крепкий и качественный материал, как и первые два альбома группы. Не будь на первом альбоме одной из моих любимейших композиций "Glory To The Brave", я бы назвал новый альбом группы лучшим. Количество среднетемповых композиций и скоростных боевиков примерно равное, плюс к ним душевная баллада "Dreams Come True" и красивый инструментал "In Memoriam". Также присутствует кавер David T. Chastain'a "Angel Of Mercy" и потрясающий бонус-трэк, являющийся кавером классической композиции Ингви Мальмстина "Rising Force". Чумовой и энергичный heavy power metal с припевами в стиле STRATOVARIUS, хоровыми распевками в духе BLIND GUARDIAN и ACCEPT'оподобными риффами. Ничего нового, HAMMERFALL как HAMMERFALL, но тяжелый подавляющий звук привлекает внимание, а мелодии цепляют и проникают в подсознание. Разрушительные риффы, сильные мелодии, гармоничные хоралы, ну и, конечно же , не обошлось без столь модной на сегодняшний день оркестрово-симфонической партитуры. Вокал Канса стал несколько выше, и вместе с тем, немного писклявым (в хорошем смысле слова). Броские песни и тяжелый звук привлекут внимание очень многих любителей тяжелой музыки. Альбом из разряда рекомендуемых к обязательному прослушиванию.</p>
+
+Автор: Dimas
+
+### 27.02.2003 news Новости от NARNIA
+
+<p>14 апреля 2003 года на Nuclear Blast Records планируется четвертый релиз шведских неоклассических металлеров NARNIA. Альбом будет называться "The Great Fall". В качестве гостей на альбоме засветились ударник HAMMERFALL Anders Johansson и вокалист SAVIOUR MACHINE Eric Clayton.</p>
+
+Автор: Dimas
+
+### 15.05.2003 news HAMMERFALL планируют концертник
+
+<p>В планах шведской группы HAMMERFALL - выпуск осенью концертного альбома на Nuclear Blast Records. Запись альбома будет проходить во время южноамериканского тура группы в конце мая.</p>
+
+Автор: Dimas
+
+### 15.09.2003 news Концертник от HAMMERFALL
+
+<P>Шведы <B>HAMMERFALL </B>готовят к выпуску 20 ноября на <B>Nuclear Blast </B>концертный CD/DVD под названием <B>"One Crimson Night". </B>Он будет содержать материал записанный 20 февраля 2003 года на гиге в Гетеборге. На DVD также будет представлен документальный фильм о ходе тура группы. Трэк-лист выглядит следующим образом:</P>
+<P>1. Lore Of The Arcane<BR>2. Riders Of The Storm <BR>3. Heeding The Call <BR>4. Stone Cold <BR>5. Hero's Return <BR>6. Legacy Of Kings <BR>7. Bass Solo: Magnus Ros&#233;n <BR>8. At The End Of The Rainbow <BR>9. The Way Of The Warrior <BR>10. The Unforgiving Blade <BR>11. Glory To The Brave <BR>12. Guitar Solo: Stefan Elmgren <BR>13. Let The Hammer Fall <BR>14. Renegade <BR>15. Steel Meets Steel <BR>16. Crimson Thunder <BR>17. Templars Of Steel <BR>18. Hearts On Fire <BR>19. Hammerfall<BR></P>
+Автор: Dimas
+
+### 22.09.2003 news HAMMERFALL have confirmed the track listing ...
+
+Swedish melodic metallers HAMMERFALL have confirmed the track listing for their upcoming live CD/DVD, One Crimson Night, due out next year. <br>
+<br>
+
+The CD/DVD will contain the entire concert from Lisebergshallen in G&ouml;theborg, Sweden on February 20, 2003, while the DVD will also include an "On The Road" documentary from the European part of The Crimson Crusades, as well as the gold-album ceremony held on stage in G&ouml;theborg. "We decided to edit the celebration out on the CD, as it features only talk and needs the video to make sense," guitarist Oscar Dronjak writes on the band's website. "On the other hand, we put three bonus tracks recorded in South America in May on the CD, to make that release special as well. Because of this, the releases have slightly varied cover artwork, though given the same title."<br><br>
+
+The track listing for "One Crimson Night" is as follows:<br><br>
+
+01. Lore Of The Arcane<br>
+02. Riders Of The Storm <br>
+03. Heeding The Call <br>
+04. Stone Cold <br>
+05. Hero's Return <br>
+06. Legacy Of Kings <br>
+07. Bass Solo: Magnus Ros&eacute;n <br>
+08. At The End Of The Rainbow <br>
+09. The Way Of The Warrior <br>
+10. The Unforgiving Blade <br>
+11. Glory To The Brave <br>
+12. Guitar Solo: Stefan Elmgren <br>
+13. Let The Hammer Fall <br>
+14. Renegade <br>
+15. Steel Meets Steel <br>
+16. Crimson Thunder <br>
+17. Templars Of Steel <br>
+18. Hearts On Fire <br>
+19. Hammerfall<br><br>
+
+With regards to the progress of his rehabilitation from the accident he suffered in early August, Oscar writes, "the rehabilitation is going really well, I have regained much of the mobility in the arm already. I have virtually no strength, and the bone is still healing inside, but the grim outlook the doctor gave me last time seems to have been a worst-case scenario, just like I hoped. The jury's still out on the pain, though, as it still hurts a bit. I see the physiotherapist once a week, and she is pleased with the progress. Therefore I am, too!"
+Автор: Yermola
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 14.01.2004 news Сольник вокалиста HAMMERFALL
+
+<P>Вокалист <B>HAMMERFALL Joacim Cans</B> подписал контракт с <B>Sanctuary Records (Noise Records)</B>&nbsp;на выпуск своего дебютного сольного альбома "<B>Beyond The Gates</B>".&nbsp;При записи ему помогали&nbsp;<B>Matt Sinner (Sinner), Metal Mike Chlasciak (Halford), Stefan Elmgren (Hammerfall)&nbsp;</B>и<B> Mark Zonder (Fates Warning)</B>. Альбом выйдет 26 апреля 2004 года.</P>
+Автор: Dimas
+
+### 01.03.2004 news Подробности о сольном альбоме Joachim Cans
+
+<P><B>Joachim Cans (HAMMERFALL)</B> назвал свою группу оригинально <B>CANS</B>. К выпуску на <B>Noise Records</B> 19 апреля подготовлен его дебютный альбом <B>"Beyond The Gates". </B>В записи пластинки&nbsp;в <B>Studio Fredman</B> приняли участие <B>Mat Sinner, Metal Mike Chlastiak (ex-Halford), Stefan Elmgren (Hammerfall), Mark Zonder (Fates Warning).</B> Также известны приглашённые музыканты (см. ниже). Трэк-лист: <br><br>
+
+<IMG SRC="/images/news_rus/2004.03/6129.jpg" height="200" width="200" hspace="15" vspace="5" border="1" align="right">
+
+01. <B>Fields of Yesterday</B> (Cans/Elmgren) <BR>02. <B>Soul Collector</B> (Cans/Chlasciak) <BR>03. <B>Red Light</B> (Cans/Milianowicz) <BR>04. <B>Back to Hell</B> (Cans/Chlasciak) <BR>05. <B>Beyond the Gates</B> (Cans/Chastain) <BR>06. <B>The Key</B> (Cans/Milianowicz) <BR>07. <B>Garden of Evil</B> (Cans/Milianowicz) <BR>08. <B>Merciless</B> (Cans/Sinner/Wolter) <BR>09. <B>Silent Cries</B> (Cans/Elmgren) <BR>10. <B>Dreams</B> (Cans/Sinner/Nauman) <BR>11. <B>Signs</B> (Cans/King) <BR>12. <B>Forever Ends</B> (Waters/Murphy)<BR><BR>Special guest appearances:<BR><BR><B>Gus G</B> - Lead Guitar on Beyond the Gates <BR><B>Danny Gill</B> - Lead Guitar on Dreams <BR><B>Oscar Dronjak</B> - Backing Vocals <BR><B>Mats Rendlert</B> - Backing Vocals <BR><B>Joacim "Lill" Lundberg</B> - Backing Vocals <BR><B>Jonatan Nordstr&#246;m</B> - Backing Vocals <BR><B>Hilda Lerme</B> - Backing Vocals <BR><B>Jenny Gustafsson</B> - Backing Vocals </P>
+Автор: Vit Belov
+
+### 20.08.2004 news Новый альбом HAMMERFALL
+
+<P>В стане шведских пауэрщиков <STRONG>HAMMERFALL</STRONG> некоторое время было затишье: авария на мотоцикле <STRONG>Oscar'a Dronjak'a</STRONG>, сольные альбомы <STRONG>Joacim'a Cans'а</STRONG> и <STRONG>Magnus'a Rosen'a</STRONG>... Но вот теперь шведские крестоносцы решили полностью сконцентрироваться именно над <STRONG>HAMMERFALL</STRONG>! Для записей найдено спокойное местечко где-то в центре Дании, где группа проведет сентябрь и октябрь в компании с известнейшим продюсером <STRONG>Charlie Bauerfeind</STRONG>'ом. Релиз запланирован на 07 марта 2005 года, а до этого будет выпущен сингл в январе. Названия некоторых вещей: <STRONG>'The Templar Fire', 'Born To Rule', 'Fury Of The Wild'</STRONG>. Гитарист <STRONG>Oscar Dronjak</STRONG> утверждает, что своей новой пластинкой <STRONG>HAMMERFALL</STRONG> легко превзойдет все свои предыдущие альбомы.</P>
+<P><FONT face="Verdana, Arial, Helvetica, sans-serif" size=2></FONT>&nbsp;</P>
+Автор: Ixtiandr
+
+### 29.11.2004 news Hammerfall завершили запись своего нового альбома
+
+<P>У нового лонгплея шведских пауэрщиков&nbsp;<STRONG>HAMMERFALL</STRONG> пока еще нет названия, но запись альбома уже полностью завершена! Он выйдет в марте следующего года, а фэнов&nbsp;31 января ждет легкая подготовка - выход сингла под названием "<STRONG>Blood Bound</STRONG>".</P>
+Автор: Ixtiandr
+
+### 08.12.2004 news HAMMERFALL назвали новый альбом
+
+<P>Новый альбом <STRONG>HAMMERFALL </STRONG>будет называться “<STRONG>Chapter V: Unbent, Unbowed, Unbroken</STRONG>” и выйдет 7 марта. Трэк-лист:</P>
+<P>01. <STRONG>Secrets<BR></STRONG>02. <STRONG>Blood Bound<BR></STRONG>03. <STRONG>Fury Of The Wild<BR></STRONG>04. <STRONG>Hammer Of Justice<BR></STRONG>05. <STRONG>Never, Ever<BR></STRONG>06. <STRONG>Born To Rule<BR></STRONG>07. <STRONG>The Templar Flame<BR></STRONG>08. <STRONG>Imperial<BR></STRONG>09. <STRONG>Take The Black</STRONG><BR>10. <STRONG>Knights Of The 21st Century &nbsp;</STRONG></P>
+Автор: Vit Belov
+
+### 16.12.2004 news Cronos будет на новом альбоме HAMMERFALL
+
+<P><STRONG>HAMMERFALL</STRONG> записали новый альбом “<STRONG>Chapter V: Unbent, Unbowed, Unbroken</STRONG>”, как уже сообщалось на нашем сайте. Стало известно, что гостем на этой пластинке будет <STRONG>Cronos (VENOM)</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.01.2005 news Клип HAMMERFALL on-line
+
+<P>Видео-клип <STRONG>HAMMERFALL</STRONG> на новую песню <STRONG>'Blood Bound'</STRONG> можно посмотреть здесь: <A href="http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51">http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51</A></P>
+<P>Также стала известна одна из групп, которая поедет с <STRONG>HAMMERFALL</STRONG> в ближайший тур - это <STRONG>LORDI</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.01.2005 news HAMMERFALL video on-line
+
+<P><STRONG>HAMMERFALL</STRONG>'s new video <STRONG>'Blood Bound'</STRONG>&nbsp;is available on-line here: <A href="http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51">http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51</A></P>
+<P>Also It's known, that one of supporting act in <STRONG>HAMMERFALL</STRONG> Europian tour will be <STRONG>LORDI</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.05.2005 reviews Пятая глава. Проходняк-порожняк?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятая глава в истории HAMMERFALL получилась проходной. Нет, любителям power-metal читать эту книгу ещё интересно, но вот тем, кто не зацикливается на стиле, уже начинает надоедать. 10 крутых песен на новом альбоме шведов можно слушать вечно, или не слушать вовсе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Перед&nbsp;релизом "Chapter V" вышел, как обычно, сингл "Blood Bound". Среди поклонников power-metal прокатился очередной слух, что новая работа HAMMERFALL будет лучшей за всю их историю. "Blood Bound" не лучшая вещь на альбоме, она и не худшая. Она обычная... Все трэки построены по одной схеме. "Байкерский" рифф в куплете, хор в припеве, великолепное (хорошее) соло.&nbsp;Так в своё время поступали панки. Будем считать, что HAMMERFALL использовали фишку панков.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Главное, что мне бросилось в глаза, это заметное упрощение материала. Мелодии принесены в жертву драйву, и HAMMERFALL уже можно осторожно рекомендовать любителям PRIMAL FEAR или CANS (:)), например. Я думаю, что это не в коем случае не отпугнёт поклонников от группы, вот только альбом вышел каким-то пустым. Зацепиться не за что.</FONT></P>
+Автор: Vit Belov
+
+### 08.06.2005 news Басист HAMMERFALL чуть не умер
+
+<P>Басист <STRONG>HAMMERFALL Magnus Rosen</STRONG> чуть не умер от ореха кейшью, который он скушал в самолёте, который летел в Чили.&nbsp;У него случился аллергический шок, но никто в самолёте бразильской авиакомпании не смог ему помочь. </P>
+<P>К счастью, всё завершилось хорошо, и <STRONG>Rosen</STRONG> порлучил свою порцию лекарства.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 21.09.2005 news HAMMERFALL уже планируют новый альбом
+
+<P>В марте следующего года <STRONG>HAMMERFALL</STRONG> начнут запись нового альбома в студии <STRONG>Charlie Bauerfeind</STRONG>. Пластинка выйдет в октябре того же года.</P>
+Автор: Vit Belov
+
+### 19.12.2005 news Лучшие металл-альбомы 2005 года
+
+<P>Стали известны номинанты шведской премии <B>Grammy</B> в категории "best metal album". Ими стали следующие альбомы: <STRONG>OPETH</STRONG> <B>"Ghost Reveries", </B><B>CANDLEMASS</B> <B>"Candlemass"</B>, <B>HAMMERFALL</B> <B>"Chapter V: Unbent, Unbowed, Unbroken"</B>, <B>HARDCORE SUPERSTAR</B> <STRONG>"Hardcore Superstar"</STRONG>&nbsp;и&nbsp;<B>MESHUGGAH</B> <B>"Catch Thirty Three".</B>&nbsp;</P>
+Автор: Dimas
+
+### 19.01.2006 news HAMMERFALL готовятся к Олимпиаде
+
+<P><STRONG><IMG height=255 alt="" hspace=0 src="/images/news_rus/2006.01/9939.jpg" width=340 align=left border=5>HAMMERFALL</STRONG> записали видео в поддержку женской сборной Швеции по кёрлингу. Девушек вдохновляет на победу песня "<STRONG>Hearts On Fire</STRONG>". <STRONG>Oscar Dronjak</STRONG> на официальном сайте <STRONG>HAMMERFALL</STRONG> пожелал девушкам успехов в завоевании золота в Турине.</P>
+Автор: Vit Belov
+
+### 08.02.2006 news CANDLEMASS выиграли приз
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CANDLEMASS</STRONG> выиграли шведскую Grammy, как лучшая hard-rock команда. В своей номинации легендарные думстеры опередили <STRONG>HAMMERFALL</STRONG>, <B>HARDCORE SUPERSTAR</B>, <B>MESHUGGAH</B>&nbsp;и <STRONG>OPETH.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В номинации "Лучшее музыкальное DVD" были номинированы <STRONG>EVERGREY</STRONG>, но они проиграли<STRONG> ABBA</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 28.02.2006 news HAMMERFALL выходит в октябре
+
+<P>Новый альбом <STRONG>HAMMERFALL </STRONG>выйдет в конце октября. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 18.05.2006 news HAMMERFALL: известны названия некоторых новых песен
+
+<P>На новый альбом <STRONG>HAMMERFALL</STRONG> войдут около 10-ти песен. Названия некоторых из них: <STRONG>'Dark Wings, Dark Words', 'Carved In Stone', 'Titan', 'Shadow Empire', 'Threshold', 'Rebel Inside'</STRONG>. Группа комментирует: "<EM>Музыка будет очень разнообразной, мелодии на диск попадут как шестилетней давности, так и абсолютно свежие. И хотя материал еще полностью не готов, но мы думаем, что это будет действительно очень сильный альбом</EM> ."<BR></P>
+Автор: mcallen
+
+### 25.07.2006 news Падение нового молота
+
+<P>Шведский коллектив <B>HAMMERFALL</B> готовит к выпуску свой новый альбом под названием <B>"Threshold". </B>Он поступит в продажу 23 октября через&nbsp;<B>Nuclear Blast Records</B>. В него войдут следующие вещи:<BR><BR>1. <B>Threshold</B><BR>2. <B>The Fire Burns Forever</B><BR>3. <B>Rebel Inside</B><BR>4. <B>Natural High</B><BR>5. <B>Dark Wings, Dark Words</B><BR>6. <B>Howlin' With The 'Pac</B><BR>7. <B>Shadow Empire</B><BR>8. <B>Carved In Stone</B><BR>9. <B>Reign Of The Hammer</B><BR>10. <B>Genocide</B><BR>11. <B>Titan</B><BR><BR>Уже сейчас, музыканты предоставили возможность своим поклонникам увидеть клип на совершенно новую песню <STRONG>"The Fire Burns Forever".</STRONG> Скачать его можно<STRONG> </STRONG><A href="http://www.youtube.com/watch?v=GpM7-Fcsd58">здесь</A>.</P>
+Автор: Dimas
+
+### 19.11.2006 articles Оля Романова: за и против - ARCANE GRAIL презентовали дебют - HAMMERFALL не интересуются Евровидением, а THUNDERSTONE интересуются - Rock TV выгнал Сатанизм из эфира - OZZY благословил Iommi и Dio на HEAVEN AND HELL
+
+<P><EM><IMG height=448 alt="" hspace=0 src="/images/articles_rus/2006.11/10904.jpg" width=200 align=left border=5>Оля Романова: за и против</EM></P>
+<P>В прошлое воскресенье в клубе ИКРА на Курской прошла презентация нового альбома Ольги Романовой, именующей себя Dark Princess, “Stop My Heart”. Поддержка малоизвестной итальянской команды DOMINA NOCTIS не помогла артистке собрать хоть сколько-нибудь значительную аудиторию. По билетам концерт посетило около 40 человек. Ольга Романова и этот концерт – тема для очень большой статьи. Попробуем разобраться…</P>
+<P>Я не случайно назвал госпожу Романову Олей в подзаголовке. Это не из-за моей излишней фамильярности, и не из-за попытки унизить певицу. Девушка производит именно такое впечатление. На Ольгу она не тянет, а уж тем более не тянет на Dark Princess. Молоденькая учительница математики, коей она и является, которая совсем неплохо поёт, но почему-то решила, что может стать в России готической принцессой. Безусловно, у нас нет собственной готической принцессы, но всё же не надо нас за лохов считать. При этом весь негатив наваливается после посещений живых выступлений Dark Princess, и если вы пока не попали на её выступление, не ходите, слушайте записи и не портите себе впечатления. Ведь записи Dark Princess очень неплохи, и об этом я писал в рецензии на альбом Ольги. Рыжая (уже перекрасится пора давно), худая, немодно румяная, совсем непластичная, с куцым концертным опытом. Ольга по-прежнему прячется за своих молодых музыкантов и не понимает, что ей надо делать. Даже на уровне начинающих музыкантов из DOMINA NOCTIS она выглядит бледно.</P>
+<P>А тем временем, складывается впечатление,&nbsp;кто-то осваивает немаленькие деньги мужа госпожи Романовой. Рекламой её альбома пестрят все журналы, концерт активно рекламируется, Ольга смотрит на нас со стен гаражей и с плафонов эскалаторов в метро. Лэйбл заявляет о великих продажах дебютной работы, а на концерты никто не ходит. Правда в Питере, говорят, было 150 человек, а вот концерт в Туле отменили, якобы, Dark Princess не понравилась площадка. Причина проста. Металлистов не так просто надуть, о чём тоже говорили много раз. Можно надуть любителя АРИИ или КИПЕЛОВА, разместив везде рекламу новых русскоязычных heavy-power’щиков, но впарить англоязычный gothic-metal альбом с женским вокалом не так просто. «Тёмными принцессами» так просто не становятся. Деньги тут совсем не главное. Нужно поиграть по клубам, набраться опыта. Здесь вам не «Фабрика звёзд». При этом я даже не заикаюсь об окупаемости проекта, здесь даже речь об этом не идёт. Этого не случится никогда! Также хочу развеять все надежды госпожи Романовой. Популярной на Западе она не станет, на концерт в Италии придут ещё меньшее количество фэнов, чем в Москве. Что может организовать DOMINA NOCTIS, которая была настолько рада «на шару» побывать в Москве, что готова пообещать, что угодно? Как и во многих других областях бизнеса, здесь кто-то осваивает чужие бабки. Хватит уже вкладывать деньги и пудрить всем мозги. Работайте с тем, что есть.</P>
+<P>Каков вывод? Вывод таков. Не открою вам глаза, если скажу, что металлическая музыка не является тем полигоном для бизнеса, на котором можно реально заколачивать деньги. Все успехи локальны и не имеют ничего общего с долгосрочным и стабильным заработком. Скупать рекламу в известных журналах можно только для локальной популярности, к заработкам это никогда не приведёт. Товар, который предлагают металлисты не ликвиден, рынок не эластичен. В настоящее время появляются предпосылки к тому, чтобы обычный фэн тяжёлой музыки подумал, что heavy приобретает повышенную популярность. Это не что иное, как PR-акция, такая же, как реклама Ольги Романовой. Ничего плохого в этом, кстати, нет. Просто хочется разрушить иллюзии бизнесменов от музыки, которые тоже захотят вкладывать огромные деньги в металл.</P>
+<P>Что же ЗА? А ЗА – отличная музыка от Михаила Гуза, вокал Ольги, она уделала Edera из DOMINA NOCTIS. Не надо нам только ничего показывать. Лучше быть загадочной студийной принцессой… И ради Бога, перекрасьте волосы. Боюсь только, уже поздно и комедийный имидж рыжеволосой «Тёмной принцессы» обретён Романовой навсегда.</P>
+<P><EM><IMG height=402 alt="" hspace=0 src="/images/articles_rus/2006.11/10905.jpg" width=200 align=right border=5>ARCANE GRAIL презентовали дебют</EM></P>
+<P>Ещё одно шоу, которое я посетил на неделе, было презентацией нового альбома москвичей ARCANE GRAIL “Mysteries Of Ancient Charnel”, вышедшего на MUSICA Production в августе. Народа на ARCANE GRAIL, SPAINT, STIGMATIC CHORUS и др. пришло побольше, чем на Романову, но не слишком. «Релакс» посетило, по моим прикидкам, около 100 человек. Хочется поговорить о выступлениях SPAINT и героев вечера. Во-первых, SPAINT (ex-WEEDS IN VOGUE). Группа сменила название, вслед за сменой музыкального направления. Mike и друзья решили двинуться в сторону более современного звучания. Качовые риффы, мелодика, эмоциональный вокал вперемешку со скримингом. Шоу от SPAINT очень энергично. Их выступление позволит оторваться даже самым скованным и трезвым. Мои рекомендации. Интересно же то, что на записи музыка SPAINT таких эмоций не вызывает. Почему так происходит? Схожие проблемы есть у нескольких отечественных коллективов, включая MELANCHOLY. После концерта появляется дикий восторг, запись же вызывает&nbsp;несколько другие чувства. При этом группы записываются в не самых худших студиях. Ещё одним сходством этих коллективов являются попытки играть в более модном «МТИВИшном» ключе. Энергия же в студии растворяется и должной популярностью у покупателей CD ребята не получают.</P>
+<P>У ARCANE GRAIL другие проблемы. Я бы сказал обратные проблемы. Студийное звучание коллектива приближается к мировым стандартам, а на концерте&nbsp;группа звучит слишком сложно для восприятия. Вернее музыка ARCANE GRAIL слишком сложная для восприятия звукорежиссёром. Оттенки, слышные на записи, теряются в стенах «Релакса». И зачастую рядовому слушателю, незнакомому с оригинальным CD, непонятно, что, вообще, происходит. Как сочетаются женский и мужской вокалы, например? Где клавишные, а где гитара? Кстати, отмечу две вещи: великолепный мужской вокал и артистизм певицы, платье которой хоть и не вышло из под швейной машинки личного дизайнера, как у Ольги Романовой, сидит не в пример лучше, а поведение на сцене более раскованное. Может в Arcane Grail поёт Dark Princess? Нет, воздержимся от столь громких титулов. Там поёт просто Натали.</P>
+<P><EM><IMG height=194 alt="" hspace=0 src="/images/articles_rus/2006.11/10906.jpg" width=112 align=left border=5>HAMMERFALL не интересуются Евровидением, а THUNDERSTONE интересуются</EM></P>
+<P>Вернёмся к зарубежным событиям. Совсем недавно увидел свет новый альбом шведов HAMMERFALL “Threshold”. Новый альбом группы должен продолжить победную поступь коллектива по всему миру. Материал пластинки не оставляет никаких сомнений, что фанаты группы получат то, что искали. Стабильное положение HAMMERFALL в табели о рангах современного power-metal позволяет группе осваивать новые рынки, выпускать синглы, снимать видеоклипы. Клип с нового альбома на песню “Natural High” группа снимала с новыми людьми. Впервые с 2000 года HAMMERFALL сменили режиссёра. Забавно, что новой Меккой для видео от металлистов становится Сербия, где и был снят ролик. Кстати, там же свои видеоклипы будет снимать и SIRENIA. “Лирически песня рассказывает о вампирах», - показывает певец Joacim Cans. «Мы попросили ребят снять нам ролик, где сюжет развивается рука об руку с текстом песни. Мы хотели иметь что-то похожее на «Блэйд»». После победы LORDI на Евровидении в прессе государств северной Европы стали появляться слухи об участии тех или иных металлических групп в конкурсе будущего года. Подобные же слухи коснулись HAMMERFALL. «Это не правда. Подобная информация появилась только в разделе слухов одной из шведских газет. Интересно, что, увидев в Интернете эту информацию, боссы нашего лэйбла Nuclear Blast предложили нам участвовать в отборе. Мы всё равно отказались. Во-первых, мы не хотим исполнять чужую песню (странно, LORDI играли свою, прим. авт.), и не видим, кто бы мог написать нам её», - опровергает «утку» Cans. Подобные проблемы не взволновали другую группу из конюшни Nuclear Blast, THUNDERSTONE из Финляндии, которые вошли в число 12 претендентов на представление Финляндии в финале Евровидения, который пройдёт в Хельсинки в 2007 году. Названия песен, которые будут исполняться конкурсантами, будут названы в январе 2007 года, а сам отбор пройдёт в феврале.</P>
+<P><EM>Rock TV выгнал Сатанизм из эфира</EM></P>
+<P>Итальянский кабельный канал Rock TV закрыл программу “Extreme Metal” и уволил её ведущего Aleister, который является гитаристом ANCIENT. Это произ<IMG height=400 alt="" hspace=0 src="/images/articles_rus/2006.11/10907.jpg" width=300 align=right border=5>ошло после того, как один из гостей передачи ответил на вопрос, посланный в эфир телезрителем. Зритель спрашивал, являются оккультные символы, которые использует музыкант только элементами шоу, или он использует их с каким-то подтекстом. Неназванный гость передачи ответил, что это не шоу, он всегда на своих альбомах рассказывает о Сатанизме и не желает скрывать этого. В течение 24 часов Aleister был уволен со всех должностей на Rock TV. Ведущий приглашал в шоу underground группы, которые не имели доступа на телевидение. Он успел показать 14 коллективов, остальные, видимо, так на телевидение не попадут. Вот так вот:) Нам-то эти проблемы не ведомы.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P><EM>OZZY благословил Iommi и Dio на HEAVEN AND HELL</EM> </P>
+<P>Совсем недавно американские СМИ сообщили о воссоединении Tony Iommi и Dio в группе под названием HEAVEN AND HELL. В группу также войдут Geezer Butler и Bill Ward. Уже объявлено, что группа выступит на фестивале Monsters of Rock в Великобритании. Dio подтвердил эту информацию в интервью Classic Rock: «Кроме концерта на фестивале, мы дадим несколько других шоу в США и Великобритании. Ozzy благословил нас на этот проект. Он очень очень особенная личность. Он один из создателей heavy-metal музыки. Он заслуживает мощнейших аплодисментов. Он великолепный человек, и я желаю ему всего наилучшего. Надеюсь, он и Шарон очень очень счастливы». Ronnie провёл в Англии несколько дней, сочиняя новые песни с Iommi, которые войдут на грядущий сборник “Black Sabbath: The Dio Years”. Позже в 2007 BLACK SABBATH объединятся в классическом составе: Osbourne, Iommi, Butler и Ward. Фэнов ждёт новый тур и новый альбом, первый в таком составе с 1978 года.&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>На следующей неделе: интервью с гитаристом Doug Aldrich, вокалистами Mark “Barney” Greenway, Jon Oliva, Johnny Hedlund, а также Yngwie Malmsteen.</P>
+Автор: Vit Belov
+
+### 02.05.2007 news В HAMMERFALL вернулся басист
+
+<P>Новым старым басистом <STRONG>HAMMERFALL</STRONG> стал <STRONG>Fredrik Larsson</STRONG>. Он сменил на этом посту&nbsp;<STRONG>Magnus Rosen</STRONG>. <STRONG>Fredrik</STRONG> уже был в составе шведов, с которыми записывал дебют "<STRONG>Glory To The Brave</STRONG>".</P>
+Автор: Vit Belov
+
+### 04.10.2007 news HAMMERFALL выпускают сборник
+
+<P>12 октября на <STRONG>Nuclear Blast</STRONG> выходит двухдисковая коллекция <STRONG>HAMMERFALL</STRONG> <STRONG>"Steel Meets Steel - Ten Years of Glory". </STRONG>Наряду с лучшими вещами шведов на пластинку попадут три новых композиции <STRONG>"Last Man Standing"</STRONG>, <B>"Restless Soul"</B>&nbsp;и <B>"HammerFall v2.0.07"</B>. Трэк-лист:</P>
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.10/11918.jpg" width=400 align=right border=5>Disc 1:<BR>01. <B>The Abyss</B><BR>02. <B>Last Man Standing</B><BR>03. <B>Hammerfall v2.0.07</B><BR>04. <B>The Dragon Lies Bleeding</B><BR>05. <B>Steel Meets Steel</B><BR>06. <B>Glory To The Brave</B><BR>07. <B>Heeding The Call</B><BR>08. <B>At The End Of The Rainbow</B><BR>09. <B>Legacy Of Kings</B><BR>10. <B>Let The Hammer Fall</B> (Live)<BR>11. <B>Templars Of Steel</B><BR>12. <B>Renegade</B><BR>13. <B>Always Will Be</B><BR>14. <B>Keep The Flame Burning</B><BR>15. <B>Riders Of The Storm</B><BR><BR>Disc 2:<BR>01. <B>Hearts On Fire</B><BR>02. <B>Crimson Thunder</B><BR>03. <B>Hero's Return</B><BR>04. <B>Blood Bound</B><BR>05. <B>Secrets</B><BR>06. <B>Fury Of The Wild</B><BR>07. <B>Never, Ever</B><BR>08. <B>Threshold</B><BR>09. <B>Natural High</B><BR>10. <B>Dark Wings, Dark Words</B><BR>11. <B>The Fire Burns Forever</B><BR>12. <B>Restless Soul</B><BR>13. <B>The Metal Age</B> (Live Musikens Hus, G&#246;teborg, 1998)<BR>14. <B>Stone Cold</B> (Live Musikens Hus, G&#246;teborg, 1998)<BR>15. <B>Hammerfall v2.0.07</B> MPEG video (rough mix version)</P>
+Автор: Vit Belov
+
+### 03.04.2008 news Stefan Elmgren покинул HAMMERFALL
+
+<P>Гитарист <STRONG>Stefan Elmgren</STRONG> покинул <STRONG>HAMMERFALL</STRONG> в связи с переходом на другую работу. <STRONG>Stefan </STRONG>теперь станет пилотом самолёта.</P>
+Автор: Vit Belov
+
+### 22.04.2008 news Новый гитарист HAMMERFALL
+
+<P>Новым гитаристом шведского коллектива&nbsp;<B>HAMMERFALL</B> стал&nbsp;<B>Pontus Norgren</B> (<B>THE POODLES</B>, <B>TALISMAN</B>, <B>GREAT KING RAT</B>). Он заменил ушедшего совсем недавно <B>Stefan Elmgren</B>, решившего заняться карьерой воздушного пилота.</P>
+<P>В ближайших планах группы выпуск 27 июня двд под названием <STRONG>"Rebels With A Cause - Unruly, Unrestrained, Uninhibited"</STRONG> и альбома под названием <STRONG>"Masterpieces",</STRONG> куда войдут только кавер-версии различных&nbsp;рок-исполнителей от <STRONG>HAMMERFALL.</STRONG>&nbsp;Трек-лист релиза:</P>
+<P>1. <B>Child of the Damned</B> (WARLORD)<BR>2. <B>Ravenlord</B> (STORMWITCH)<BR>3. <B>Eternal Dark</B> (PICTURE)<BR>4. <B>Back to Back</B> (PRETTY MAIDS)<BR>5. <B>I Want Out</B> (HELLOWEEN)<BR>6. <B>Man on the Silver Mountain</B> (RAINBOW)<BR>7. <B>Head Over Heels</B> (ACCEPT)<BR>8. <B>Run With the Devil</B> (HEAVY LOAD)<BR>9. <B>We're Gonna Make It</B> (TWISTED SISTER)<BR>10. <B>Breaking the Law</B> (JUDAS PRIEST)<BR>11. <B>Angel of Mercy</B> (CHASTAIN) <BR>12. <B>Rising Force</B> (YNGWIE J. MALMSTEEN'S RISING FORCE)<BR>13. <B>Detroit Rock City</B> (KISS)<BR>14. <B>Crazy Nights</B> (LOUDNESS)<BR>15. <B>N&#228;r Vindarna Viskar Mitt Namn</B> (ROGER PONTARE)<BR>16. <B>Flight of the Warrior</B> (RIOT)<BR>17. <B>Youth Gone Wild</B> (SKID ROW)<BR>18. <B>Aphasia</B> (EUROPE) <BR></P>
+Автор: Dimas
+
+### 19.05.2008 news Два новых релиза от HAMMERFALL
+
+<P>27 июня <STRONG>HAMMERFALL</STRONG> выпустят два новых релиза. Первым станет DVD <STRONG>"Rebels With A Cause - Unruly, Unrestrained, Uninhibited". </STRONG>Пластинка станет продолжением двух предыдущих DVD-релизов группы с различными концертными записями и интервью. Также свет увидит сборник всех каверов, которые <STRONG>HAMMERFALL</STRONG> записали за всю свою карьеру, <STRONG>"Masterpieces"</STRONG> .Трэк-лист:</P>
+<P>01. <B>Child of the Damned</B> (WARLORD)<BR>02. <B>Ravenlord</B> (STORMWITCH)<BR>03. <B>Eternal Dark</B> (PICTURE)<BR>04. <B>Back to Back</B> (PRETTY MAIDS)<BR>05. <B>I Want Out</B> (HELLOWEEN)<BR>06. <B>Man on the Silver Mountain</B> (RAINBOW)<BR>07. <B>Head Over Heels</B> (ACCEPT)<BR>08. <B>Run With the Devil</B> (HEAVY LOAD)<BR>09. <B>We're Gonna Make It</B> (TWISTED SISTER)<BR>10. <B>Breaking the Law</B> (JUDAS PRIEST)<BR>11. <B>Angel of Mercy</B> (CHASTAIN) <BR>12. <B>Rising Force</B> (YNGWIE J. MALMSTEEN'S RISING FORCE)<BR>13. <B>Detroit Rock City</B> (KISS)<BR>14. <B>Crazy Nights</B> (LOUDNESS)<BR>15. <B>N&#228;r Vindarna Viskar Mitt Namn</B> (ROGER PONTARE)<BR>16. <B>Flight of the Warrior</B> (RIOT)<BR>17. <B>Youth Gone Wild</B> (SKID ROW)<BR>18. <B>Aphasia</B> (EUROPE)</P>
+Автор: Vit Belov
+
+### 14.07.2008 reviews У группы HAMMERFALL какой-то юбилей
+
+<P>Шведская группа HAMMERFALL начала праздновать. Сначала хотел сказать, своё десятилетие. Посчитал на пальцах и понял, что этот юбилей наверняка уже прошёл. В прошлом году свет увидел двойной сборник HAMMERFALL, изданный у нас Irond в «шикарном» диги-паке, а&nbsp; этим летом уже вышел сборник каверов, и выйдет сборное DVD, составленное из старых и новых видеоматериалов.</P>
+<P>“Masterpieces”, а именно так называется диск с 18 каверами, вышел в России на этой неделе. Если кто-то думает, что группа HAMMERFALL записала много эксклюзивного материала для этого сборника чужих вещей, он ошибается. Для этого релиза было специально подготовлено лишь три песни за авторством RIOT, SKID ROW и EUROPE. Остальные кавер-версии, так или иначе, выходили на регулярных пластинках шведов. Конечно, совсем «занулять» значение этой работы не стоит. Большинство трэков выходили, как бонуса и синглы, и не были доступны широкому слушателю. Теперь коллекционеры HAMMERFALL могут получить их в отдельном красивом релизе. Добавлю немного информации для размышления. В работе над некоторыми песнями приняли участие приглашённые музыканты. Например, Kai Hansen и UDO, а песню JUDAS PRIEST “Breaking The Law”, кавер на которую исполняют все, кому не лень (авторские платить что ли не надо?), музыканты исполнили, поменявшись местами. Весело, конечно, но гитарист Oscar Dronjak петь совсем не умеет.</P>
+<P>Альбом исключительно для коллекционеров и любителей сборников лучших хитов heavy-metal. HAMMERFALL на протяжении всей своей карьеры достаточно аккуратно перепевали свои любимые песни. Никаких метаний, экспериментов или извращений. Всё близко к оригиналу и бережно. Кому-то это понравится, кому-то нет… Мне, если вас интересует моё личное мнение, скорее нет.</P>
+Автор: Vit Belov
+
+### 19.09.2008 news HAMMERFALL продолжают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>HAMMERFALL </STRONG>войдут в студию <STRONG>Sonic Train</STRONG> к продюсеру <STRONG>Andy LaRocque</STRONG> для записи нового альбома, который выйдет в феврале 2009 года. </FONT></P>
+Автор: Vit Belov
+
+### 22.11.2008 news Новый альбом HAMMERFALL
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.11/13047.jpg" width=400 align=right border=5>20 февраля на <STRONG>Nuclear Blast</STRONG> выходит новый альбом <STRONG>HAMMERFALL</STRONG> <STRONG>"No Sacrifice, No Victory". </STRONG>Пластинка была записана с продюсером <STRONG>Andy La Rocque. </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Any Means Necessary</B><BR itxtvisited="1">02. <B itxtvisited="1">Life Is Now</B><BR itxtvisited="1">03. <B itxtvisited="1">Punish And Enslave</B><BR itxtvisited="1">04. <B itxtvisited="1">Legion</B><BR itxtvisited="1">05. <B itxtvisited="1">Between Two Worlds</B><BR itxtvisited="1">06. <B itxtvisited="1">Hallowed Be My Name</B><BR itxtvisited="1">07. <B itxtvisited="1">Something For The Ages</B><BR itxtvisited="1">08. <B itxtvisited="1">No Sacrifice, No Victory</B><BR itxtvisited="1">09. <B itxtvisited="1">Bring The Hammer Down</B><BR itxtvisited="1">10. <B itxtvisited="1">One Of A Kind</B><BR itxtvisited="1">11. <B itxtvisited="1">My Sharona</B> (THE KNACK cover)</P>
+Автор: Vit Belov
+
+### 19.01.2009 news Новое видео HAMMERFALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> HAMMERFALL</STRONG> <STRONG>"No Sacrifice, No Victory" </STRONG>выходит на <STRONG>Nuclear Blast</STRONG> в феврале. Видео на песню с этого альбома&nbsp;<STRONG>"Any Means Necessary"</STRONG> можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/o3GoLHGjeZc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/o3GoLHGjeZc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.01.2009 news Joacim Cans: &quot;Это лучший альбом HAMMERFALL&quot;.
+
+<P><IMG height=223 alt="" hspace=0 src="/images/news_rus/2009.01/13410.jpg" width=300 align=left border=5>Певец <STRONG>Joacim Cans</STRONG> из <STRONG>HAMMERFALL</STRONG> рассказал о новом альбоме группы <STRONG>"No Sacrifice, No Victory"</STRONG>, выходящем в феврале на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>"<EM>Я думаю, это лучший наш альбом на сегодняшний день. Это 100-процентный HAMMERFALL, но с современными веяниями. Я мог бы сравнить&nbsp;эту работу с "Glory to The Brave", но&nbsp;с некоторыми добавками, связанными с новыми музыкантами. Эта пластинка удовлетворяет нас&nbsp;наиболее сильно. Обычно после записи альбома обращаешься к его песням и находишь некоторые, которые не очень нравятся. Здесь же нам нравится абсолютно всё</EM>". &nbsp;</P>
+Автор: Vit Belov
+
+### 04.02.2009 news Вокалист CLOUDSCAPE работает с &#39;бывшими&#39; из HAMMERFALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Певец <STRONG>CLOUDSCAPE</STRONG> <STRONG>Mike Andersson</STRONG> организовал новый проект вместе с бывшими участниками <STRONG>HAMMERFALL</STRONG> <STRONG>Magnus Rosen</STRONG> и <STRONG>Stefan Elmgren</STRONG>. Название новой группы не сообщается.</FONT></P>
+Автор: Vit Belov
+
+### 23.02.2009 news HAMMERFALL на Popcircus
+
+<P><STRONG>HAMMERFALL</STRONG> отыграли несколько песен на шведской телепередаче<STRONG> Popcircus</STRONG>. Кадры с новой песней "<STRONG>Any Means Necessary</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/DKZyQWkUU2g&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/DKZyQWkUU2g&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.02.2009 reviews Музыка от фэнов и для фэнов
+
+<P>Шведы HAMMERFALL являются лидерами европейского power-metal. При этом лидерами не только по статусу, но и по духу. Они не только заслужили свою популярность годами «тяжелейшего» труда, но им действительно нравится то, что они делают. Им нравится heavy-metal, им нравится power-metal… Они отдают должное всем, кто был до них, и вдохновляют на творчество всех, кто будет после них.</P>
+<P>Забавно, но столь сильная любовь к этому стилю музыки часто вызывает странные реакции. Уже после пары лет запилов люди начинают смотреть на тебя косо, думать, что ты не в себе и возмущаться, сколько можно играть одно и тоже. Проходит ещё какое-то время, и, поняв, что ничего уже с этой группой не поделать, все начинают воспринимать её такой, какая она есть. Все эти рассуждения никак не относятся к преданным фанатам описываемой группы, коих у тех же HAMMERFALL предостаточно. Новая работа шведов “No Sacrifice, No Victory” символизирует эту монументальность в полной мере. На протяжении последних нескольких альбомов их музыка не претерпевает каких-либо даже минимальных изменений, но это уже не раздражает, а наоборот радует. При покупке альбома ты всегда знаешь, что получишь. Несколько мелодичных боевиков, душещипательную балладу (в этот раз есть церковный орган), и классический heavy-metal наполнитель с нужным ритмом и качественнейшим исполнением. Отмечу ещё обязательные хоровые подпевки, стилизованные под классический хор. Очень торжественно и предельно ‘true’.</P>
+<P>Мне понравился новый альбом шведов. Вот так просто, без изысков понравился. Я с удовольствием посвятил ему три четверти часа и посвящу их ещё не раз. Очень здорово среди всех неприятных сюрпризов, которые всегда готовит нам современная тяжёлая музыка, наткнуться на островок качества и стабильности. </P>
+Автор: Vit Belov
+
+### 03.03.2009 news HAMMERFALL: Лучший старт в Германии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>HAMMERFALL</STRONG> <STRONG>"No Sacrifice, No Victory" </STRONG>стартовал в Германии с седьмого места. Это лучший результат группы в истории.</FONT></P>
+Автор: Vit Belov
+
+### 05.03.2009 news HAMMERFALL покоряют Европу
+
+<P>Появились данные о позициях в чартах нового альбома <STRONG>HAMMERFALL</STRONG> <STRONG>"No Sacrifice, No Victory" </STRONG>в национальных чартах в Европе.</P>
+<P>#2 - Sweden<BR itxtvisited="1">#7 - Germany<BR itxtvisited="1">#20 - Switzerland<BR itxtvisited="1">#21 - UK (Indie Albums chart)<BR itxtvisited="1">#25 - Austria<BR itxtvisited="1">#46 - Norway<BR itxtvisited="1">#95 - France</P>
+Автор: Vit Belov
+
+### 21.03.2009 news HAMMERFALL добыли золото
+
+<P>Новый альбом<STRONG> HAMMERFALL</STRONG> <STRONG>"No Sacrifice, No Victory" </STRONG>стал золотым в Швеции. Для этого понадобилось продать 20000 пластинок. Интересно, что за последние семь лет уровень продажи для золотого статуса в Швеции был снижен с 40000 до 20000 копий.</P>
+Автор: Vit Belov
+
+### 02.04.2009 news Продажи HAMMERFALL в США
+
+<P>В первую неделю продажи нового альбома<STRONG> HAMMERFALL</STRONG> <STRONG>"No Sacrifice, No Victory" </STRONG>в США&nbsp;реализовано 1400 копий. Это не позволило группе попасть в чарт<STRONG> Billboard</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.04.2009 news HAMMERFALL отдохнули в Вене
+
+<P><IMG height=297 alt="" hspace=0 src="/images/news_rus/2009.04/13966.jpg" width=400 align=left border=5>По сообщению шведского издания <STRONG>The Local</STRONG>, во время текущего европейского тура <STRONG>HAMMERFALL</STRONG> здорово повеселились в венском отеле Фюрстенхоф. Группа просто-таки разгромила номер. Барабанщик<STRONG> Anders Johansson</STRONG> рассказал, что после некоторого количества пива гитарист <STRONG>Oscar Dronjak</STRONG> решил продемонстрировать новые приёмы тэквандо. Ну, вы знаете, как это бывает.</P>
+Автор: Vit Belov
+
+### 02.11.2009 news REVOLUTION RENAISSNCE нашли басиста
+
+<P>К группе <STRONG>REVOLUTION RENAISANCE</STRONG> гитариста <STRONG>Timo Tolkki</STRONG> присоединился басист <STRONG>Magnus Rosen.</STRONG></P>
+Автор: Vit Belov
+
+### 14.11.2010 news HAMMERFALL готовятся к записи
+
+<P>В ближайшие две недели<STRONG> HAMMERFALL</STRONG> войдут в студию для записи альбома. Гитарист <STRONG>Oscar Dronjak </STRONG>обещает некоторые нововведения в музыке группы. Альбом будет более тяжёлым и менее прямолинейным, чем предшественники. </P>
+<P><STRONG>HAMMERFALL</STRONG> поменяют продюсера с новым альбомом. Место <STRONG>Charlie Bauerfeind </STRONG>займёт <STRONG>James Michael</STRONG> (<STRONG>MOTLEY CRUE, SCORPIONS, MEAT LOAF</STRONG>). Альбом выйдет 20 мая на<STRONG> Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.11.2010 news Magnus Rosen сыграл с оркестром
+
+<P>Шведский басист <STRONG>Magnus Rosen</STRONG> (<B itxtvisited="1">REVOLUTION RENAISSANCE</B>, <B itxtvisited="1">HAMMERFALL</B>, <B itxtvisited="1">X-WORLD/5</B>, <B itxtvisited="1">FULLFORCE</B>) подготовил к выпуску сольный альбом&nbsp; <B itxtvisited="1">"Past Future"</B>. На нём музыкант записался вмест с Гётеборгским симфоническим оркестром. Сообщается, что это первый альбом, созданный специально для бас-гитары и симфонического оркестра. На пластинке представлено 12 трэков, среди которых собственные вещи <STRONG>Magnus</STRONG>, а также интерпритации Баха и <STRONG>Jimi Hendrix</STRONG>.</P>
+<P><center><IMG height=397 src="/images/news_rus/2010.11/17621.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 16.03.2011 news Новый альбом HAMMERFALL
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.03/18878.jpg" width=450 align=right border=0>20 мая на <STRONG>Nuclear Blast</STRONG> выходит новый альбом <STRONG>HAMMERFALL</STRONG> <STRONG>"Infected". </STRONG>Большая часть альбома была записана в собственной студии группы, а на окончательной стадии шведам помогал продюсер <STRONG>James Michael</STRONG> (<B>MOTLEY CRUE</B>, <B>SCORPIONS</B>, <B>MEAT LOAF</B>). Лимитированное издание пластинки будет включать бонусный DVD с пятью видео-треками. Трек-лист:</P>
+<P>01. <B>Patient Zero</B><BR>02. <B>Bang Your Head</B><BR>03. <B>One More Time</B><BR>04. <B>The Outlaw</B><BR>05. <B>Send Me A Sign</B><BR>06. <B>Dia De Los Muertos</B><BR>07. <B>I Refuse</B><BR>08. <B>666 - The Enemy Within</B><BR>09. <B>Immortalized</B><BR>10. <B>Let's Get It On</B><BR>11. <B>Redemption</B></P>
+Автор: Vit Belov
+
+### 12.05.2011 news Новый клип HAMMERFALL
+
+<P>Новый ролик <STRONG>HAMMERFALL</STRONG> на песню <STRONG>"One More Time" </STRONG>можно посмотреть ниже. Режиссёром клипа выступил <STRONG>Patric Ullaeus. </STRONG>Песня попадёт на новый альбом шведской группы <STRONG>"Infected", </STRONG>который выйдет 20 мая на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/3i7H1--JxVw" frameBorder=0 width=480 height=303 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.05.2011 news Новый клип HAMMERFALL
+
+<P>Новый ролик <STRONG>HAMMERFALL</STRONG> на песню <STRONG>"Send Me The Sign (Live In Studio)" </STRONG>с новейшего альбома "<STRONG>Infected</STRONG>", который вышел 20 мая на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/BYPii7w6f88?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/BYPii7w6f88?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.05.2011 news HAMMERFALL попали в чарты
+
+<P>Новый альбом<STRONG> HAMMERFALL "Infected"</STRONG>, который выходит в России на следующей неделе, уже добрался в чартах Швеции до второго места, уступив только <STRONG>LADY GAGA</STRONG>. Альбом вышел в Европе 20 мая на<STRONG>&nbsp;Nuclear Blast</STRONG>.</P>
+<P><center><IMG height=417 src="/images/news_rus/2011.05/19538.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 10.06.2011 reviews HAMMERFALL способны на эксперимент
+
+<P>Я думаю, немало людей, которые не слишком следят за мировой power-metal сценой, удивятся, если я скажу, что шведская группа HAMMERFALL способна на развитие и неординарное творчество. Кто-то совершенно справедливо заметит, что шведской группе HAMMERFALL развитие не только не свойственно, но и вредно, так как в стиле, которого они придерживаются, ценятся не развитие и оригинальность, а драйв и напористость. Всё это верно, и по этой причине новейшая работа HAMMERFALL “Infected” будет вызывать у металистов очень разнообразную реакцию, от негативной до сдержано положительной.</P>
+<P>Обозреваемая пластинка шведов повествует о жизненном цикле зомби. Дело заключается не только в не слишком стандартной для группы концепции, музыканты отказались от всадников с молотами, но и в звучании альбома. Резкий и неприятный «саунд» с первых аккордов вгоняет в ступор, кажется, что неживые люди уже под твоим окном, и это вовсе не смешно или любопытно, а ужасно и касается каждого. При этом HAMMERFALL сохранили свой мелодизм, и голос Joachim Cans по-прежнему столь же чист и благозвучен. Кроме этого, само построение песен вызывает беспокойство, иногда кажется, что риффы и соло специально перемешаны местами для угнетения сознания слушающего. Безусловно, “Infected” не вызывает того приятного впечатления, как предшественник “No Sacrifice, No Victory”. Похоже, с позапрошлогодним альбомом HAMMERFALL достигли всего, что можно в своём жанре, и теперь попытаются завоевать любовь поклонников менее тривиальным способом.</P>
+<P>И это у них не получится. Я знаю этих «типчиков», поклонников HAMMERFALL. Они будут плеваться, а в конце концов выкинут этот диск в мусорное ведро. Не нужны им подобные эксперименты, им нужны мелодии, которые на “Infected”, к сожалению, часто прячутся за звуковыми изысками.</P>
+Автор: Vit Belov
+
+### 09.12.2013 news HAMMERFALL возвращаются
+
+<P>После годичного перерыва шведы <STRONG>HAMMERFALL</STRONG> возвращаются к активной творческой деятельности. Группа планирует выпустить новый студийный альбом в августе 2014 года. Коллектив вновь будет работать со своим первым продюсером <STRONG>Fredrik Nordstrom</STRONG>, обложку нарисует<STRONG> Andreas Marschall</STRONG>, работавший с <STRONG>HAMMERFALL</STRONG> над первыми тремя альбомами.</P>
+<P>Возвращение к корням?</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.12/26409.jpg" width=600 height=356> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.06.2014 news HAMMERFALL выпускают диск &quot;(r)Evolution&quot; в конце августа
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская группа <STRONG>HAMMERFALL</STRONG> возвращается с новым альбомом! Диск получил название <STRONG>"(r)Evolution" </STRONG>и выйдет 29 августа</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;(Швеция: 27 августа, Англия: 01 сентября, США: 02 сентября) на лейбле <STRONG>Nuclear Blast</STRONG>!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>18 июля группа представит первый сингл с альбома. Им станет гимноподобная песня <STRONG>"Bushido"</STRONG>. На японском языке слово&nbsp;"bushido" означает "путь воина".&nbsp;Помимо цифровой версии, &nbsp;сингл также будет доступен&nbsp;на виниле.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор&nbsp;обложки: <STRONG>Andreas Marschall</STRONG> (<A href="http://marschall-arts.com/">http://marschall-arts.com</A>)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Hector's Hymn</STRONG> | 02. <STRONG>(r)Evolution</STRONG> | 03. <STRONG>Bushido</STRONG> | 04. <STRONG>Live Life Loud</STRONG> | 05. <STRONG>Ex Inferis</STRONG> | 06. <STRONG>We Won't Back Down</STRONG> | 07. <STRONG>Winter Is Coming</STRONG> |&nbsp;08. <STRONG>Origins</STRONG> | 09. <STRONG>Tainted Metal</STRONG> | 10. <STRONG>Evil Incarnate</STRONG> | 11. <STRONG>Wildfire</STRONG></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27039.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 11.10.2014 news HAMMERFALL поменяли состав
+
+<P>Шведы <STRONG>HAMMERFALL</STRONG> сообщили о замене басиста и барабанщика. Барабанщик-ветеран<STRONG> Anders Johansson</STRONG> решил покинуть группу после 15 лет участия, основной причиной называется усталость музыканта после 40 лет в музыкальном бизнесе. На его замену вызван<STRONG> David Wallin</STRONG> из<STRONG> PAIN</STRONG>. Также группу покинул басист <STRONG>Fredrik Larsson</STRONG>, у которого в декабре родится второй ребёнок, что помешает ему активно участвовать в концертной деятельности HAMMERFALL. В качестве его замены будет использован бывший гитарист коллектива <STRONG>Stefan Elmgren</STRONG>, и это, пожалуй, главная новость.</P>
+<P>Последний альбом <STRONG>HAMMERFALL "(r)evolition"</STRONG> вышел в конце августа на <STRONG>Nuclear Blast</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.10/27379.jpg" width=296 height=197><IMG border=0 src="/images/news_rus/2014.10/27380.jpg" width=292 height=194></P>
+Автор: Vit Belov
+
+### 12.08.2016 news HAMMERFALL опубликовали обложку и трек лист
+
+<p>Новый альбом <strong>HAMMERFALL "Built To Last" </strong>выйдет 4 ноября на <strong>Napalm Records</strong>. Релиз станет первым для группы на этом лэйбле. </p><p>Обложку и трек лист CD можно посмотреть ниже:</p><p>“Bring It!”<br>“Hammer High”<br>“The Sacred Vow”<br>“Dethrone And Defy”<br>“Twilight Princess”<br>“Stormbreaker”<br>“Built To Last”<br>“The Star Of Home”<br>“New Breed”<br>“Second To None”</p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29795.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 12.08.2016 news HAMMERFALL to release tenth album
+
+<p><strong>HAMMERFALL</strong>'s new album, "<strong>Built To Last</strong>" will be released November 4 on<strong> Napalm Records</strong>. The release will be the first for the band on this label. </p><p>The artwork and track list of CD can be viewed below:</p><p>“Bring It!”<br>“Hammer High”<br>“The Sacred Vow”<br>“Dethrone And Defy”<br>“Twilight Princess”<br>“Stormbreaker”<br>“Built To Last”<br>“The Star Of Home”<br>“New Breed”<br>“Second To None”</p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29795.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 26.08.2016 news Первая песня с десятого альбома HAMMERFALL
+
+<p>"<strong>The Sacred Vow</strong>" - первый сингл с выходящего 4 ноября нового альбома <strong>HAMMERFALL "Built To Last"</strong> можно послушать ниже. </p><p>"<em>Выбрать трек для первого сингла было нелегко, так как у нас было несколько подходящих для этого вещей. "The Sacred Vow" - классическая вещь для HAMMERFALL, представляющая весь альбом. Скорость, напор, энергия и цепляющий припев, передающий дух heavy metal</em>", - сообщила группа.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/7EBB26EXopg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news First single from the tenth album of HAMMERFALL
+
+<p>"<strong>The Sacred Vow</strong>" - the first single from coming new <strong>HAMMERFALL</strong> album "<strong>Built To Last</strong>" can be streamed below.</p><p>“<em>Choosing a track for this was not easy, as we had several suitable songs. But "The Sacred Vow” is a pretty classic HammerFall tune and very representative of the album as a whole: speed, power, energy and with a catchy chorus that oozes of heavy metal spirit</em>." the band comments.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/7EBB26EXopg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 24.09.2016 news HAMMERFALL выпустили клип на песню &quot;Hammer High&quot;
+
+<p>Шведская power metal команда<strong> HAMMERFALL</strong> выпустила новое видео на песню<strong> "Hammer High"</strong>. Трек войдёт в дебют музыкантов на новом лэйбле <strong>Napalm Records</strong>. "<strong>Built To Last</strong>" выходит 4 ноября.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/sqYzI8vMG_0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 24.09.2016 news HAMMERFALL released new clip &quot;Hammer High&quot;
+
+<p>Swedish power metal band<strong> HAMMERFALL</strong> has released a new video for the song "<strong>Hammer High</strong>". The track will be included in the debut of musicians on the new label <strong>Napalm Records</strong>. "<strong>Built To Last</strong>" comes out November 4th.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/sqYzI8vMG_0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.11.2016 reviews Для людей в непритязательной позиции
+
+<p>Всякая музыка рано или поздно становится ретро. Шведские power-metal'исты HAMMERFALL изначально планировали играть ретро, даже ещё будучи молодыми людьми. По этой причине некоторое количество экспериментов, которые коллектив планировал использовать в своей музыке, быстро загнали HAMMERFALL на обочину. Вершиной группы в творческом смысле стал альбом «Infected” 2011 года, после которого шведы были вынуждены уйти в отпуск, чтобы преданных фэнов перестало трясти от страха и негодования. Теперь HAMMERFALL отчаянно очищаются от ереси, их новая работа «Built To Last” продолжает дело, начатое на «(r)Evolution”.</p><p>Теперь любые нововведения отчаянно вымарываются из песен HAMMERFALL. Музыканты ориентируются даже не на средний период своего творчества, а на ранние пару альбомов, стараясь ни в чём не обижать своего слушателя. Весь новый альбом состоит из сплошных хитов a-la HAMMERFALL, включаешь любой трек и понимаешь, что слушаешь. Кому-то не нужен этот экскурс в прошлое, но основной потребитель этой музыки будет очень доволен. С этим альбомом шведы перешли на новый для себя лэйбл Napalm Records, но следовать принципу «новое начало — новая музыка» они не стали. Издатель получил предсказуемо великолепный альбом в жанре power metal.</p><p>Не уверен, что фон, сопровождающий «Built To Last”, будет в целом позитивным. Отклики уже сейчас появляются очень прохладные. Другой вопрос, что высказываются обычно критически настроенные граждане, а преданные поклонники давно устаревшего стиля power metal не вдаются в излишние подробности. Они просто слушают раз за разом, день за днём песни про молотки и силу, свободу и землю свободы, и пребывают в детском восторге. Если кому-то из читающих эти строки удастся встать на эту непритязательную позицию, новый альбом HAMMERFALL пройдёт на ура. Мне, кстати, это сделать удалось.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Кто-нибудь покупал IROND'овский Hammerfall?

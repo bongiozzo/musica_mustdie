@@ -47,6 +47,9 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### Uncle Acid and the Deadbeats (UK), Purson (UK), The Machine (Hol) | Москва, 1 февраля 2014 года

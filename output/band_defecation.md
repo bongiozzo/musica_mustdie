@@ -59,6 +59,21 @@ Artwork layout by Jorge C.Nariznis and Mitch.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.02.2003 reviews Всё сделал Митч Харрис
+
+<p>Второй альбом за 14 лет этого "легендарного" "коллектива". Не много ли кавычек? Коллектива уже нет, всё нарезает Митч Харрис (Napalm Death)... О легендарности Defecation можно было бы поразмышлять в том случае, если бы кроме этой самой легендарности этот диск был бы чем-то интересен. Жалкая пародия на brutal death-metal, которая недостойна этих самых рассуждений. Не надо быть большим знатоком стиля, чтобы понять, что любая малоизвестная brutal-death банда из Индонезии или, скажем, из Белоруссии представит более качественный и интересный материал.</p>
+
+Автор: Vit Belov
+
+### 14.05.2003 reviews Everything is made by Mitch Harris
+
+<p>Second album in 14 years history of this "legendary" "band". How much inverted commas here? Band is already not exist, Mitch Harris (NAPALM DEATH) do everything. I could discuss legendary of DEFECATION, if CD would be interesting something except it. Pitiful parody on brutal death-metal, which is not worthy to this discussings. Yon may not be expert in this style, but you can understand that any brutal death band from Indonesia or Belorus would perform much more quality material.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

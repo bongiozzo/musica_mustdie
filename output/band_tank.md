@@ -48,6 +48,53 @@ NWOBHM
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.06.2001 news Танки грязи не боятся...
+
+<p>Легенда NWOBHM - "TANK" записывают новый альбом названный "Still At War", на который войдут: 01. Conspiracy Of Hate 02. The Blood's Still On Their Hands 03. Return Of The Filthhounds 04. The World Awaits 05. Light The Fire (Watch Em Burn) 06. When The Hunter Becomes The Hunted 07. Seeing Double 08. The Fear Inside 09. T.G.N.I.D. 10. And Then We Heard The Thunder (new version) 11. In The Last Hours Before Dawn (new version) 12. Still At War</p>
+
+Автор: Yermola
+
+### 04.06.2001 news TANK are still hard at work ...
+
+<p>Long-running UK rock legends TANK are still hard at work on their new album, entitled Still At War, which is tentatively due to be released in the fall. The full track listing for Still At War is as follows: 01. Conspiracy Of Hate 02. The Blood's Still On Their Hands 03. Return Of The Filthhounds 04. The World Awaits 05. Light The Fire (Watch Em Burn) 06. When The Hunter Becomes The Hunted 07. Seeing Double 08. The Fear Inside 09. T.G.N.I.D. 10. And Then We Heard The Thunder (new version) 11. In The Last Hours Before Dawn (new version) 12. Still At War. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.07.2002 news TANK&#39;s album &quot;Still at War&quot; will hit the stores on August 7th...
+
+<p>Long-awaited TANK's album "Still at War" will hit the stores in Japan on August 7th, the label at this time is SPIRITUAL BEAST. By the way, the Japanese release will have two bonus tracks. Track listing: 'Conspiracy Of Hate', 'The Blood's Still On Their Hands', 'Return Of The Filthhounds', 'The World Awaits', 'Light The Fire (Watch 'Em Burn)', 'When The Hunter Becomes The Hunted', 'Seeing Double', 'The Fear Inside', 'T.G.N.I.D.', 'And Then We Heard The Thunder' (new version), 'In The Last Hours Before Dawn' (new version) and 'Still At War'. <BR> <BR> <A HREF="http://www.angelfire.com/dc/tank">http://www.angelfire.com/dc/tank</A></p>
+
+Автор: Yermola
+
+### 14.08.2011 news Doogie White: трек-лист и обложка сольного альбома
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20575.jpg" width=400 height=360>Как уже ранее сообщалась, лейбл<STRONG> Metal Mind Productions</STRONG> этой осенью выпускает сольный альбом Дуги Вайта&nbsp;(<B>Doogie White</B>), получивший название <B>"As Yet Untitled"</B>. В сети появились обложка и трек-лист диска. </P>
+<P>Трек-лист:<BR><BR>01. <B>Come Taste The Band</B><BR>02. <B>Time Machine</B><BR>03. <B>Dreams Lie Down And Die</B><BR>04. <B>Lonely</B><BR>05. <B>Land Of The Deceiver</B><BR>06. <B>Secret Jesus</B><BR>07. <B>Sea Of Emotion</B> <BR>08. <B>Catz Got Yer Tongue</B> <BR>09. <B>Living On The Cheap</B> <BR>10. <B>Times Like These</B><BR><BR>Шотландский вокалист впервые&nbsp;попал под пристальное внимание музыкального мира после того, как&nbsp;сам <B>Ritchie Blackmore</B> попросил его стать певцом в реформированных <B>RAINBOW</B>. Вместе они записали один альбом — <STRONG>"Stranger In Us All" </STRONG>(1995). После этого <STRONG>Doogie</STRONG>&nbsp; встал микрофонную стойку&nbsp;в группе Ингви Мальмстина (<B>Yngwie Malmsteen</B>) на целых шесть с половиной лет: записал два альбома и гастролировал по всему миру. Он, так же, записал четыре альбома и гастролировал в составе <B>CORNERSTONE</B>. А на сегодняшний день он является вокалистом&nbsp;легендарной британской группы&nbsp;<B>TANK</B>.</P>
+Автор: Headcrusher
+
+### 23.06.2016 news Новое видео TANK
+
+<p>Новый клип британской heavy metal команды <strong>TANK </strong>на песню "<strong>Make A Little Time</strong>" можно посмотреть ниже. Трек взят с альбома 2015 года "<strong>Valley Of Tears</strong>", вышедшего на <strong>Metal Mind</strong>.</p><p><center><iframe width="640" height="360" src="https://player.vimeo.com/video/171552805" frameborder="0" allowfullscreen="" mozallowfullscreen="" webkitallowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 23.06.2016 news TANK: New video
+
+The new video from British heavy metal band<strong> TANK</strong> for the song "<strong>Make A Little Time</strong>" can be viewed below. The track is taken from the album of '2015 <strong>"Valley Of Tears</strong>", released on <strong>Metal Mind</strong>.<p><center><iframe width="640" height="360" src="https://player.vimeo.com/video/171552805" frameborder="0" allowfullscreen="" webkitallowfullscreen="" mozallowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 04.11.2016 news Новое видео TANK
+
+<p>Новый клип<strong> TANK</strong> на заглавную песню с последнего альбома "<strong>Valley Of Tears</strong>" можно посмотреть ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/XbSkkH50dYI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.11.2016 news New clip by TANK
+
+<p><strong>TANK</strong>'s new video for the title track from their latest album "<strong>Valley Of Tears</strong>" can be viewed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/XbSkkH50dYI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

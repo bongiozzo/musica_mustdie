@@ -249,6 +249,718 @@ Recorded and mixed at Heavenshore Studio, Stockholm, Sweden
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.03.2001 news Новый альбом BATHORY...
+
+<p>Шведские блэк-металл пионеры BATHORY передвинули дату выхода долгожданного нового диска "Destroyer Of Worlds" на 30 июня. По поводу релиза Куортон сообщил: "Новый альбом не будет чем то похожим на "Blood On Ice". Это будет концептуальное творение. Часть лирики будет касаться эпических вещей, кое-что будет об оккультизме..."</p>
+
+Автор: Yermola
+
+### 27.03.2001 news Destroyer Of Worlds...
+
+<p>The legendary Swedish black metal pioneers BATHORY have once again pushed back the release date for their long-awaited new CD, tentatively titled Destroyer Of Worlds, to June 30th. Regarding the album’s direction, mainman Quorthon recently commented, “It's really a challenge not to repeat yourself. On the other hand, the BATHORY fans would probably want just [a continuation of what I did before]. An album that follows the line of what BATHORY has done in the past. The problem is that the BATHORY fan base [cannot agree on what they want to hear from the band]. On one hand, you have the dark occult and semi-satanic [fans], and on the other, you have the sword wielding epic and semi-Viking ones. You will have a great problem satisfying both camps with one album. What we have decided to do is to write material that would a little bit of both; delivering power and brutality, epic and doom, big drums and thrashing guitars etc. In time we'll see if we have been successful in doing just that. [But] the new album won't be a anything like [1996’s] Blood On Ice (the last proper BATHORY studio album) at all. At least it won't be a concept album. Some of the lyrics on the new album could be taken for epic stuff, some could be regarded as occult while others are up to date sort of. I have a track written about aerial combat, another one is about a cult, a third is about religion etc.”</p>
+
+Автор: Yermola
+
+### 05.06.2001 news Разрушитель Миров....
+
+<p>"BATHORY" опубликовали трек лист "Разрушителя миров" (Destroyer Of Worlds): 01. Destroyer of Worlds 02. Crown of Thorns 03. Liberty & Justice 04. Death from Above 05. Kill Kill Kill 06. Obsculum Infame 07. Insecticide 08. Day of Wrath 09. White Bones 10. Bleeding 11. Paranoica 12. Symbolisimus 13. Fire Birth 14. 109</p>
+
+Автор: Yermola
+
+### 05.06.2001 news BATHORY&#39;s forthcoming Destroyer Of Worlds opus ....
+
+<p>BATHORY mainman Quorthon recently spoke to the Spanish metal magazine Hell Awaits about the status of the group's long-awaited Destroyer Of Worlds album. According to Quorthon, the reason for the delay in the album's release is simply that "there is no point in going into a studio to record an album if you don't have anything to say, really, no matter how many letters and e-mails you may receive per day from people who more or less beg you on their knees for a new album. If I was a BATHORY fan, I would rather wait a few years on a new BATHORY album that turns out to be a great album, than to have a less good album at once. There hasn't been a new BATHORY album for quite some time, and of course, there is always a reason for that. One important reason is that BATHORY has covered so many sounds and styles over the years, we first of all had to take certain precautions not to duplicate anything we have done before. Yet, we, of course, still want to maintain that specific BATHORY atmosphere. When people get to hear Destroyer of Worlds at the end of this summer, we want people to be able to say 'This is BATHORY!!'. and yet we want to be able to break some new ground as far as the sound and style is concerned. Half of our fan base enjoys the brutal death metal part of our history, the other half enjoys the epic Nordic style. In order to both please as many BATHORY fans as possible and satisfy ourselves as musicians, we would rather have waited some time before doing Destroyer of Worlds than instantly putting something out on the market we really wouldn't love to death six months later." On the subject of the new album's recording, Quorthon had the following to say: "We haven't begun recording yet. We'll begin this summer and hopefully have the album ready for release at the end of the summer. I have so much material written but as for now I do not know how many or which tracks will eventually end up on the final album." ATHORY's forthcoming Destroyer Of Worlds opus is tentatively set to include the following tracks: 01. Destroyer of Worlds 02. Crown of Thorns 03. Liberty & Justice 04. Death from Above 05. Kill Kill Kill 06. Obsculum Infame 07. Insecticide 08. Day of Wrath 09. White Bones 10. Bleeding 11. Paranoica 12. Symbolisimus 13. Fire Birth 14. 109 Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.09.2001 news Destroyer Of Worlds...
+
+<p>Утверждена окончательная дата выхода "Destroyer Of Worlds" от "BATHORY". В Европе он выйдет 8-го октября и в штатах - 23-го октября. Финальный трек лист альбома выглядит следующим образом: 01. Lake OF Fire (5:43) 02. Destroyer Of Worlds (4:51) 03. Ode (6:22) 04. Bleeding (3:53) 05. Pestilence (6:50) 06. 109 (3:35) 07. Death From Above (4:34) 08. Krom (2:50) 09. Liberty & Justice (3:50) 10. Kill Kill Kill (3:09) 11. Suden Death (3:19) 12. White Bones (8:32) 13. Day Of Wrath (8:11). Общее время звучания - 66:01...</p>
+
+Автор: Yermola
+
+### 18.09.2001 news BATHORY will be releasing their latest opus...
+
+<p>BATHORY will be releasing their latest opus, entitled Destroyer Of Worlds, on October 8th in Europe and October 23rd in the US. The full track listing and running times for the songs included on the effort are as follows: <br> 01. Lake OF Fire (5:43) <br> 02. Destroyer Of Worlds (4:51) <br> 03. Ode (6:22) <br> 04. Bleeding (3:53) <br> 05. Pestilence (6:50) <br> 06. 109 (3:35) <br> 07. Death From Above (4:34) <br> 08. Krom (2:50) <br> 09. Liberty & Justice (3:50) <br> 10. Kill Kill Kill (3:09) <br> 11. Suden Death (3:19) <br> 12. White Bones (8:32) <br> 13. Day Of Wrath (8:11)<br> The total running time for the Quorthon-produced effort is 66:01. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.04.2002 news Bathory снова в студии
+
+<p>Прячьтесь все, кто может. Похоже, что в лесу сдохло нечто совершенно невообразимое. Не успел выйти альбом легендарных шведов "Destroyer Of Worlds", как Квортон опять (!!!!) собирается в студию, чтобы записать новый материал, который, по его словам, станет ну ОЧЕНЬ большим сюрпризом для всех. На альбоме мы сможем наблюдать (ушами) новую инкарнацию Bathory XXI века, и по задумке она должна всех поразить, как гремучая змея тушканчика. Никакого примитивизма, присущего Destroyer Of Worlds, как сказал Квортон, не будет. Что ж, ждать осталось недолго. Вот и ждем.</p>
+
+Автор: Blackvdaergl
+
+### 10.04.2002 reviews Ряса рясой, а штаны надевать надо.
+
+<p> Не понимаю, зачем Квортон решил сделать Destroyer Of Worlds именно таким! Если бы он собирался покончить с Bathory и оставить фэнам что-нибудь, что можно было бы вставить в кассетник и, прослезившись, с умилением вспоминать старые добрые времена, когда Квортон запирался у себя в гараже и среди куч разнообразнейшего металлоломного дерьма записывал очередной шедевр, кишащий откровенностью и мизантропией, это стало бы замечательным подарком для всех блэкарей. Но это не прощальное послание и не подведение итогов. Это - полноформатный альбом Bathory. Что меня (и не только) конечно же, с одной стороны, обрадовало: значит Bathory загибаться не собирается, что не может не радовать. А с другой: ждал я отнюдь не этого. Вместо дозы классического (и легендарного) блэка на альбоме имеется в наличии множество стилей: блэк, дэз и даже элементы хэви. В общем все, что когда-либо играли Bathory. Первые 3 трека &ndash; это действительно блэк, тот самый, что некогда радовал нас с пластинки Hammerheart. Но дальше начинается ТААКОЕ! Нечто дэзовое, со срывающимися вокалами и трэшевым гитарным пилиловом. Тоже неплохо, но блэк меня больше обрадовал бы. Уж больно все примитивно. Концепции тоже не наблюдается: самолеты, мотоциклы, бомбардировка Хиросимы и прочий shit. Cловом, в лирике тоже ничего особо выдающегося нет. А обидно... </p>
+<p> В общем, имеем мы нечто призванное ублажить фэнов как ранних, так и поздних Bathory, но в итоге все скорее останутся недовольными. Легенда легендой, а хочется уже чего-то оригинального и техничного. Но слушать можно: все-таки альбомы Bathory на дороге не валяются. </p>
+
+Автор: Blackvdaergl
+
+### 28.09.2002 news BATHORY готовит к выпуску два новых альбома
+
+<p>Легендарные шведские black metal пионеры BATHORY готовят к выпуску в ближайшее время сразу два альбома. 18 ноября 2002 года выйдет "Nordland Part I", а в январе 2003 года выйдет "Nordland Part II". Оба альбома выйдут на Black Mark.</p>
+
+Автор: Dimas
+
+### 11.11.2002 reviews Destroyer of former reputation
+
+<p>I guess, “destroyer of former reputation” might have turned out to be a better title. I was quite sure this CD won’t be a milestone, however nor was I thinking it would be such a miserable failure! It’s incredibly sad to say, however I wish Quorthon quitted playing music right after “Blood On Ice” was made available worldwide. “Destroyer Of Worlds” starts with “Lake Of Fire”, pseudo-viking theme… executed in a way below horrible. The title song is basically the same, although a bit – only a bit! – more comprehensible. Other tracks off “Destroyer Of Worlds” vary from viking-punk to thrash-punk; this sort of garbage, you see. As if “Requiem” and “Blood On Ice” both were ABSOLUTELY worthless efforts and mixed into one… well, perhaps it would sound like this. Much more than just a disappointment… >:-(</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 23.12.2002 news Bathory re-released their albums on LPs
+
+<p>Black Mark Production will re-release classic albums of Bathory on LPs. Six albums 'Bathory', 'The Return of the Darkness and Evil', 'Under the Sign of the Black Mark', 'Blood Fire Death', 'Hammerheart' and 'Twilight of the Gods' released in celebrate of 20th Anniversary.</p>
+
+Автор: Vit Belov
+
+### 11.02.2003 news Nordland II
+
+<p>Новый альбом BATHORY под названием "Nordland II" будет выпущен 31 марта и 28 апреля в Северной Америке через Black Mark Records. Альбом будет выпущен в виде стандартного CD и двойного винила. Также, Black Mark Records решила переиздать первые шесть альбомов группы в виде пластиночных винилов. И произойдет это 24 февраля 2003 года.</p>
+
+Автор: Dimas
+
+### 28.03.2003 news BATHORY: &#39;Nordland II&#39; Track Listing Revealed ...
+
+<p>BATHORY's new album, "Nordland II", will be released on March 31 in Europe and April 29 in North America through Black Mark Records. <BR><BR> The complete track listing for the CD is as follows:<BR><BR> 01. Fanfare<BR> 02. Blooded Shore<BR> 03. Sea Wolf<BR> 04. Vinland<BR> 05. The Land<BR> 06. Death And Resurrection Of A Northern Son<BR> 07. The Messenger<BR> 08. Flash Of The Silverhammer<BR> 09. The Wheel Of Sun</p>
+
+Автор: Yermola
+
+### 28.03.2003 news Трек лист нового альбома BATHORY...
+
+<p>"BATHORY" опубликовали трек лист своего нового альбома "Nordland II" который выходит 31 марта в Европе и 29 апреля в США через Black Mark Records. <BR> <BR> На альбоме будут:<BR><BR> 01. Fanfare<BR> 02. Blooded Shore<BR> 03. Sea Wolf<BR> 04. Vinland<BR> 05. The Land<BR> 06. Death And Resurrection Of A Northern Son<BR> 07. The Messenger<BR> 08. Flash Of The Silverhammer<BR> 09. The Wheel Of Sun</p>
+
+Автор: Yermola
+
+### 14.07.2003 reviews Возвращение разрушителя миров
+
+<P>БАБАХ!!! И Квортон снова ударяет по металлической сцене своим огромным молотом. И все вздрагивают от его мощи! Это еще один армагеддон, пришедший с северных земель вечной тьмы и холода. Так взрыдайте же, жалкие людишки, вам не остановить эту адскую силу и не смейте встать у нее на пути! Совершенно гигантская мощь риффов поражает своей колоссальной атмосферой разрушения. Изумительное сочетание спокойствия акустической гитары и голоса с невообразимой мощью электро-гитар и ударных сливаются вместе и образуют настоящий ураган страстей и агрессии. Послушайте сами "Destroyer Of Worlds" и "Pestilence" и скажите, разве это не настоящий блэк-метал восьмидесятых? Квортон возвращается к своим корням, и теперь он успешно добивается в музыке того, чего хотели добиться в древние времена Venom. Это не хэви-метал и это не трэш, это та самая вершина блэка, которую хотели достичь те же Venom, тот же Квортон в начале своего творчества. Не смотря на то, что прошло двадцать лет, Квортон этой вершины все же достиг, но сейчас black metal превратился совершенно в другое и, слушая 'Destroyer Of Worlds', вы о нем ничего не узнаете.</P>
+Автор: Darkfall
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 09.06.2004 news Умер Quorthon (BATHORY)
+
+<P><B>QUORTHON</B> - лидер и основатель <B>BATHORY</B>, скончался в возрасте 39 лет в понедельник 7 июня. Он был найден в своей квартире. Причина смерти: проблемы с сердцем. R.I.P.</P>
+Автор: Vit Belov
+
+### 19.06.2004 articles Хроника: Счастливые мгновения из жизни Rob Halford – Chris Poland не присоединялся к MEGADETH – Улица имени AC&#x2F;DC – Charlie Benante хочет в предвыборный штаб – Некролог Quorthon – Скупой Glenn Benton и жадная Metalysee
+
+<P><I>Счастливые мгновения из жизни </I><B><I>Rob </I><I>Halford </I></B><I>– </I><B><I>Chris </I><I>Poland </I></B><I>не присоединялся к </I><B><I>MEGADETH </I></B><I>– Улица имени </I><B><I>AC/</I><I>DC </I></B><I>– </I><B><I>Charlie Benante </I></B><I>хочет в предвыборный штаб – Некролог </I><B><I>Quorthon</I></B><I> – Скупой </I><B><I>Glenn Benton </I></B><I>и жадная </I><B><I>Metalysee</I></B><I></I></P>
+<P>Одним из самых значимых событий за последнее время в metal-музыке стало воссоединение <B>JUDAS PRIEST</B>с <B>Rob Halford</B>. В интервью журналу <B>Revolver Rob </B>поделился своими мыслями по поводу этого события. «<I>В 1997 году, когда вышел ‘</I><B><I>Jugulator</I></B><I>’ я подумал, что шансов на воссоединение у нас не осталось. Они выпустили альбом с </I><B><I>Tim </I><I>Owens</I></B><I>, поехали в тур… Я никогда не рассказывал об этом, но ещё во время записи первого альбома </I><B><I>FIGHT</I></B><I> я подумывал о возвращении в </I><B><I>JUDAS </I><I>PRIEST</I></B><I>, я связался с одним человеком, близким к группе, но получил отказ. Мне тогда показалось, что моими бывшими коллегами владело чувство обиды</I>», - рассказывает <B>Rob</B>. Также <B>Halford </B>описал сам момент возрождения группы в классическом составе: «<B><I>Sony</I></B><I> собралась выпустить коллекцию </I><B><I>JUDAS </I><I>PRIEST</I></B><I> на четырёх дисках ‘</I><B><I>Metalogy</I></B><I>’, и мы все вместе собрались, чтобы отобрать песни для этих дисков. Мы сидели на моей кухне, и когда основное дело было кончено, мы посмотрели друг другу в глаза и сказали: «Ну, что Вы думаете о </I><I>re-</I><I>union?». Мы решили, что если это не случится сейчас, это не случится никогда. Все разъехались в разных направлениях, а я сидел дома и повторял: «Я снова в группе! Я снова в группе!»</I>». За всей этой мелодраматической историей заметна тень <B>Sony Music</B>, которым очень выгодно воссоединения «бедного» <B>Halford </B>со своим друзьями-врагами. Альбом будет записан осенью, а в настоящее время группа даёт свои первые концерты в обновлённом составе. Вот сэт-лист одного из них в Ганновере:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2004.06/6633.jpg" width=300 align="right" border=0>01. <B>Hellion</B><SPAN><BR>02. <B>Electric Eye</B> <BR>03. <B>Metal Gods</B> <BR>04. <B>Heading Out to the Highway</B> <BR>05. <B>The Ripper</B> <BR>06. <B>Touch of Evil</B> <BR>07. <B>The Sentinel</B> <BR>08. <B>Turbo Lover</B> <BR>09. <B>Victim of Changes</B> <BR>10. <B>Diamonds and Rust</B> <BR>11. <B>Breaking the Law</B> <BR>12. <B>Beyond the Realms of Death</B> <BR>13. <B>The Green Manalishi (With the Two Pronged Crown)</B><BR>14. <B>Painkiller</B> <BR>Encore:<BR>15. <B>Hell Bent For Leather</B> <BR>16. <B>Living After Midnight</B> <BR>17. <B>United</B> <BR>18. <B>You Got Another Thing Coming</B> </SPAN></P>
+<P><B>MEGADETH </B>записали новую пластинку. В записи <B>Dave Mustain </B>помогал его бывший коллега по группе <B>Chris Poland</B>, который дал на прошлой неделе интервью<B> <SPAN><A href="http://dallasmusicguide.com/" target=_blank><SPAN style="COLOR: #ffffff">Dallas Music Guide</SPAN></A></SPAN></B>, в котором рассказал немного об этой свой работе. «<B><I>Dave</I></B><I> позвонил мне и попросил записать соло для своей новой работы, которая должна была стать либо новым альбомом </I><B><I>MEGADETH</I></B><I>, либо сольной пластинкой </I><B><I>Dave </I><I></I><I>Mustain</I></B><I><SPAN>. Одной из основных причин моего согласия стала наличие за барабанной стойкой <B>Vinnie Colaiuta, </B>фэном которого я являюсь долгое время</SPAN></I>». Также <B>Chris </B>сообщил, что не собирается присоединяться к <B>MEGADETH </B>на постоянной основе, так как в настоящее время он предпочитает играть другой сорт музыки. Вот как <B>Poland </B>описывает будущий альбом <B>MEGADETH</B><SPAN>: «<I>Новая пластинка – это смесь </I></SPAN><B><I>Rust </I><I></I><I>In </I><I></I><I>Peace</I></B><I> и </I><B><I>Peace </I><I></I><I>Sells</I></B><I>… Также есть некоторые черты первого альбома. Многие песни необходимо слушать несколько раз, так как врубиться в них с первого раза тяжеловато. Гитарные партии очень сложные, я не могу вспомнить, что я играл на этом альбоме, для каждой песни собственное сложное соло. Вы можете ожидать нечто подобное, но каждый составит своё мнение после прослушивания этого альбома</I>».</P>
+<P>Почётная, и одновременно забавная, новость пришла из Австралии. По сообщению <B>CNN</B>, власти города Мельбурн собираются переименовать одну из улиц города <B>Corporation Lane </B><SPAN>в (угадайте!!!) <B>AC/DC Lane. </B>«<I>Они, возможно, самая успешная австралийская группа</I>», - говорят в мэрии города. «<I>Рок’н’ролл сообщество города ищет возможность воздать должное группе. Тем более, один из клипов </I></SPAN><I>AC/</I><I>DC<B>"</B></I><B><I>It'</I><I>s </I><I>A </I><I>Long </I><I>Way </I><I>to </I><I>the </I><I>Top"</I></B><I> снимался на улицах Мельбурна</I>», - заканчивают своё выступление государственные деятели. <B>CNN </B>напоминает, что улица имени <B>AC/DC </B>уже есть в Мадриде.</P>
+<P>Бывшие thrash-metal’исты <B>ANTHRAX </B>продолжают привлекать к себе внимание общественности разнообразными высказываниями в прессе. В интервью своему немецкому фэн-клубу все другие заявления, включая мнение музыкантов о новом-старом басисте <B>ANTHRAX Joey Vera</B>, затмили очередные «предвыборные заявления». <B>Charlie Benante</B>: «<I>Я с самого первого дня ненавидел самою мысль, что </I><B><I>Bush</I></B><I> будет нашим президентом. Подобные чувства вселили действия, которые он и его группа идиотов производили. Я американец и горжусь этим, но одна мысль не даёт мне покоя: «Что думают о нас люди со всего мира, если мы выбрали себе такого президента?» Мы не такие, как он!!! Я за мир во всём мире и буду бороться за это</I>». Не иначе, как дела в группе идут не очень хорошо, и <B>Charlie </B>захотел подработать на стороне в предвыборном штабе <B>John Kerry</B>. </P>
+<P>7 июня скончался <B>Thomas "Quorthon" Forsberg </B>лидер и один из основателей <B>BATHORY</B>. У него просто остановилось сердце на сороковом году жизни после многолетней борьбы с сердечным недугом. Таковы скудные подробности случившегося. Многие известные музыканты выступили с заявлением по поводу кончины <B>Thomas</B><SPAN>. Одним из них стал <B>Jonas </B></SPAN><B>Akerlund, </B>который основал <B>BATHORY </B>вместе с <B>Quorthon </B>в начале 80-х, а затем успешно занимался клипмейкерством. Среди исполнителей, работавших с ним, <B>METALLICA, Madonna </B>и <B>U2</B><SPAN>. «<I>Это так грустно. Он мог столько ещё всего написать</I>», - говорит </SPAN><B>Jonas</B>. “<B><I>BATHORY</I></B><I> появились на сцене очень рано, и многие коллективы вдохновлялись песнями </I><B><I>Quorthon</I></B><I>. Парни из </I><B><I>METALLICA</I></B><I> и многие другие группы рассказывали мне, что слушали </I><B><I>BATHORY</I></B><I>. </I><B><I>Quorthon</I></B><I> имел культовый статус. Его не интересовало, что слушают люди, он просто сочинял музыку</I>». Ещё один «некролог» пришёл из Норвегии. <B>Satyr (SATYRICON):</B><SPAN> «<I>Услышать о смерти было очень грустно, ему было всего 39 лет… </I></SPAN><B><I>BATHORY</I></B><I> оказали огромное влияние на меня и </I><B><I>Frost</I></B><I>, когда мы основывали </I><B><I>SATYRICON</I></B><I><SPAN>. Первый кавер, который записала наша группа, был <B>'Born For Burning'. </B>Не многие люди встречались с </SPAN></I><B><I>Quorthon</I></B><I><SPAN>, он был замкнут и не являлся частью норвежской металл-сцены. Мы разговаривали с ним по телефону несколько раз в середине 90-х, и я рад даже такому общению с этой культовой фигурой. В первый раз мы говорили три часа, и я нашёл его очень дружелюбным и приветливым человеком. Наш режиссер клипов <B>Jonas </B></SPAN></I><B><I>A</I><I>kerlund </I></B><I>рассказывал много интересного о своей работе с </I><B><I>Quorthon</I></B><I> над первым альбомом </I><B><I>BATHORY</I><I>. </I></B><I>Спасибо за всё, что ты сделал для музыки, </I><B><I>Quorthon</I></B><I>! Все, зажгите 13 свечей и включите альбом </I><B><I>BATHORY</I></B><I>, чтобы помянуть короля</I>». R.I.P.</P>
+<P>После такой грустной темы надо немного разрядиться, и на этот случай у меня припасена история «<B>DEICIDE и Metalysee Booking Agency</B>». Напомню, что, именно, <B>Metalysee </B>были одним из организаторов приезда в Россию группы <B>MARDUK</B>, отсутствие которой на сцене ДК им. Горбунова повлекло за собой беспорядки среди фэнов и фактическое разорение Эджен Price и его лэйбла <B>Metalagen</B>. Совсем недавно <B>DEICIDE </B>отменили своё турне по Европе. Такое случается, но <B>Metalysee </B><SPAN>не дали спустить это дело на тормозах и выступили с обличительным заявлением. «<I>Вчера, 8 июня, </I></SPAN><B><I>DEICIDE </I><I></I></B><I>скоропостижно отменили свой европейский тур. В этот день они должны были играть в Лондоне, но вместо этого группа ожидала рейса в США в аэропорту Хитроу. Все проблемы начались за неделю до этого, когда </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> потребовал значительного увеличения гонорара за каждое шоу, в противном случае </I><B><I>DEICIDE</I></B><I> отказывались выступать. Мы были вынуждены принять их условия, так как не могли отменить этот тур. Однако 8 июня группа потребовала ещё больших денег. Дошло до того, что они просили двойного увеличения первоначальной суммы. Мы не стали выполнять эти просьбы. Наряду с финансовыми разногласиями </I><B><I>DEICIDE</I></B><I> не понравились условия транспортировки, в автобусе был сломан кондиционер. В конце концов, группа развернулась и улетела домой, оставив три группы, участвующих с ними в трассе, агентов, промоутеров и, конечно же, обманутых зрителей</I>». Ответ <B>Glenn Benton </B><SPAN>не заставил себя ждать: «<I>Во-первых, мы прервали своё сотрудничество с </I></SPAN><B><I>Metalysee</I></B><I> много лет назад, из-за ущемления прав групп, практикуемых на этой фирме. Сейчас мы вновь связались с этой конторой, считая, что многое должно измениться, например, трансферы. Замечу, что мы требовали всего 400 долларов за шоу. Но когда поняли, что за эти деньги нам придётся провести 4 недели в автобусе вместе с ещё 20 людьми, немного расстроились. Теперь автобус… Мы провели ночь на стоянке, дожидаясь его. </I><B><I>Johan</I></B><I> (босс </I><B><I>Metalysee</I></B><I>) врал нам, что он сломался, что неудивительно, когда пытаешься сэкономить на всём, чтобы заработать побольше, не считаясь с удобствами музыкантов. Автобус показался, опоздав на 7 с половиной часов… И у него не было кондиционера. Он не был сломан, его просто не было. Дохлые жучки повсюду, неубранные за прошлой группой помои. В контракте был указан «хороший автобус», этот не был таковым. Это же опасно для здоровья. Я вернулся домой с лёгочной инфекцией. После нескольких часов езды мы все были больны, запах моноксида углерода доконал нас. Я уже говорил </I><B><I>Johan</I></B><I>, что мы не можем путешествовать на подобных автобусах. Поверьте, нам не доставляет удовольствия отменять тур. Дал бы нам другой автобус или хотя бы почистил этот! А так, нам пришлось истратить 5000 долларов своих личных денег, чтобы вернуться домой, и ночевать на полу в аэропорту</I>». <B>Metalysee </B><SPAN>немедленно ответили на эти заявления: «<I>То, что сказал этот парень, может сказать только идиот. Мы работаем с лучшими </I></SPAN><I>black</I><I>-</I><I>death</I><I><SPAN> коллективами и никогда не кидаем своих партнёров. Касаемо транспорта, мы работаем только с лучшим перевозчиком в Европе <B>Starline-De Wit-Gaanon. </B>Мы все просто счастливы, что отделались от </SPAN></I><B><I>DEICIDE</I></B><I>. Многие локальные промоутеры больше не будут работать с этой группой. Посмотрим, какое ещё агентство обеспечит все требования </I><B><I>DEICIDE</I></B><I>: перелёт, трансфер, бэклайн и многое другое. </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> самый отвратительный тип, с которым я работал. Желаю ему, всего наилучшего</I>». Начитавшись подобных заявлений, к схватке присоединился бывший гитарист <B>HADES Dan Lorenzo</B><SPAN>: “<I>Никогда бы не подумал, что поддержу </I></SPAN><B><I>Glenn </I><I></I><I>Benton</I></B><I>. Но, прочитав его заявление, я вспомнил то, о чём редко рассказывал. Одной из главных причин распада </I><B><I>HADES</I></B><I> сразу после европейского тура 1989 года была работа </I><B><I>Metalysee</I></B><I>. У нас было огромное количество народу в автобусе, который был рассчитан всего на 8 человек. Мы не могли никому высказать претензии, так как </I><B><I>Johan</I><I></I></B><I>просто исчез. После 10 дней мучений мы уже решили не продолжать </I><B><I>HADES</I></B><I>, но всё-таки доиграли тур, чтобы не кидать наших фэнов</I>». Многие группы были переломаны под колёсами этого автобуса, который носится по Европе битком набитый отбросами и black-death коллективами. Кстати, теперь понятно, почему <B>MARDUK </B><SPAN>не приехали. Видимо, они были настолько измотаны подобными переездами, что просто не смогли справиться ещё и с нашими неурядицами. Для полноты картины приведу здесь высказывания <B>Евгения Аксёнова (</B></SPAN><B>Metalagen)</B> о несостоявшихся концертах <B>MARDUK</B>: «<I>Я, как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством <B>Metalysee</B>. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали <B>Pro-Pain & Co</B>. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт <B>Marduk & Co</B>. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае, сейчас я просто ничего не соображаю, но <B>Metalagen</B> больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего</I>». </P>
+Автор: Vit Belov
+
+### 08.02.2012 news Новый tribute to BATHORY
+
+<P><IMG height=471 alt="" hspace=0 src="/images/news_rus/2012.02/22997.jpg" width=400 align=right border=0>Лэйбл<STRONG> Godreah Records</STRONG> готовит к изданию Tribute to <STRONG>BATHORY "Voices Of Valhalla"</STRONG>. На диске объединят свои усилия:</P>
+<P><STRONG>TAAKE<BR>NINE COVENS<BR>OLD CORPSE ROAD<BR>FOLKVANG<BR>THE MEADS OF ASPHODEL<BR>EASTERN FRONT<BR>GODS TOWER<BR>SKYFORGER<BR>SIGH<BR>NOKTURNAL MORTUM<BR>MAEL M&#211;RDHA<BR>DARKEST ERA<BR>ANCIENT ASCENDANT<BR>VRANI VOLOSA<BR>THRONE OF KATARSIS<BR>RAVENS CREED<BR>BLOODSHED WALHALLA<BR>FOLKVANG<BR>DRACONIS INFERNUM<BR>THORNIUM<BR>HELL SWORD</STRONG></P>
+<P>В качестве бонуса на диск будет добавлено аудио-интервью с <STRONG>Quorthon</STRONG>, записанное в 1996 году.</P>
+<P>Издание будет доступно в нашем магазине в мае.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Bathory

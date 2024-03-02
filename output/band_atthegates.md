@@ -275,6 +275,284 @@ the band playing in locations around the globe from 1991 - 2008.
 
 * C группой "Haunted, The" 
 
+## Публикации
+
+### 19.03.2001 news Сенсация!!! Новый вокалист THE CROWN
+
+<p> Новым вокалистом THE CROWN вместо ушедшего Johan Lindstrand стал никто иной, как TOMAS LINDBERG, бывший фронтмэн AT THE GATES. "Магнус позвонил мне, когда Johan решил уходить, и сказал что я единственный выбор" - говорит сам Томас. Подробности на сайте www.thecrownonline.com</p>
+
+Автор: Vic Thor
+
+### 19.03.2001 news Sensation!!! THE CROWN&#39;s new singer!!!
+
+<p> A sensational new transfer has taken place in the line-up of the Swedes, because the new vocalist is none other than TOMAS LINDBERG, former frontman of AT THE GATES!!! "Magnus called me up when Johan decided to quit and he basically said that I was the only option" - speaks Tomas. For more details - www.thecrownonline.com</p>
+
+Автор: Vic Thor
+
+### 27.03.2001 news Реформация DISINCARNATE...
+
+<p>Участник супер-проектов TESTAMENT / DEATH / OBITUARY - гитарист Джэймс Мэрфи совместно с вокалистом Tomas Lindberg (AT THE GATES / THE CROWN) возродили проект DISINCARNATE. Оригинальный вокалист Bryan Cegon исполнит только партии бэк-вокала при записи. Мэрфи пришлось переехать во Флориду из Калифорнии где он работал с демо SKINLAB и несколькими проектами Shrapnel Records.</p>
+
+Автор: Yermola
+
+### 27.03.2001 news DISINCARNATE reformed...
+
+<p>Further to the news item that was posted here about the whereabouts of former TESTAMENT / DEATH / OBITUARY guitarist James Murphy, it now appears that he is in fact still attempting to enlist former AT THE GATES and current THE CROWN vocalist Tomas Lindberg to sing on the upcoming CD from the reformed DISINCARNATE, while former DISINCARNATE vocalist Bryan Cegon will reportedly only be contributing backing vocals during the album’s recording. Murphy has recently relocated to Florida after a lengthy stint in the California, where he tried his hand at production work, having worked on an early SKINLAB demo and several Shrapnel Records projects.</p>
+
+Автор: Yermola
+
+### 14.04.2002 articles О концерте The CROWN + интервью с Томасом Линдбергом и другими музыкантами
+
+<p><IMG SRC="/images/articles_rus/2002.04/2619.jpg" ALT="poster" width="257" height="396" vspace="5" align="left"/> Хочу сказать, что первоначально ехать на этот концерт я не планировал, хотелось конечно, но дело в том что у нас началась пора звездных шоу, и почти каждую неделю будут выступать легенды мировой металлической музыки. Но, слушая в машине новый альбом the CROWN, я поймал себя на мысли &ndash; а почему бы и нет? Играют они в небольшом клубе, вокалист у них &ndash; сам Томас Линдберг &ndash; легенда шведского мелодик-дэта, да и где еще мне предоставится возможность поговорить с ним и расспросить о делах насущных? Поэтому был проведен опрос мастдайцев, собраны вопросы и я поехал на концерт. Вместе с the CROWN должны были играть две американские команды &ndash; All That Remains и Darkest Hour. Когда я зашел в клуб, шоу только начиналось и на сцене рубила локальная команда &ndash; слушать я их не стал и сразу направился на выполнение "Мастдайского домашнего задания". Как принято здесь на концертах в Штатах, музыканты САМИ продают свои диски и свою атрибутику и подойдя к стенду the CROWN я обнаружил рыжего барабанщика, пожирающего хот-дог. На роже у него было написано что он финн. И поприветствовав сего чувака словами "Perkele Satana" я представился и начал разговор. Звали этого фина Janne Saarenpaa &ndash; короче Яша.</p>
+<p>rjh &ndash; "Привет Яша, как тебе здесь?"</p>
+<p>Яша &ndash; "Да я в первый раз участвую в таком туре, вчера мы играли в Чикаго и я, пока мы ехали в Миннеаполис, всю дорогу проспал в автобусе"</p>
+<p>rjh &ndash; "Где тебе нравится больше играть, в Америке или Европе?"</p>
+<p>Яша &ndash; "Для меня нет большой разницы, потому что барабаны - это моя религия. Я уже 12 лет барабаню и любой концерт независимо от того где он проходит для меня как праздник."</p>
+<p>rjh &ndash; "The CROWN твоя первая серьезная команда? В ней играют два фина и три шведа. Как вы общаетесь?"</p>
+<p>Яша &ndash; "Да, the CROWN это мой дебют в большой музыке. Я знаю финский, шведский и английский, внутри команды мы говорим по-шведски, а с гитаристом Марко &ndash; на финском"</p>
+<p>Тут он позвал Марко и пролепетал ему что-то финское и забавное. Тот подошел и сел рядом.</p>
+<p>rjh &ndash; "Ты знаешь, в Америке не так то много народу ходит на концерты, а вот неделю назад когда в Москве играли Finntroll & Impaled Nazarene народу было несравнимо больше?"</p>
+<p>Яша &ndash; "Конечно знаю, так как вокалист Fintrolla &ndash; мой хороший друг и мы с ним созваниваемся очень часто, он и рассказал мне, что в России фэны очень тепло их приняли. Так же я хорошо знаю Микку Люттинена &ndash; но он очень занятой человек и участвует в куче проектов. Может когда нибудь удастся и с ним поиграть, кто знает?"</p>
+<p>rjh &ndash; "Кто твой любимый барабанщик и какая марка барабанов лучшая на твой взгляд?"</p>
+<p>Яша &ndash; "Пит Сандовалл из Морбидов, это просто образец брутального барабанщика, еще очень нравится работа рук Джина Хогланда и Пола Бостафа а так же Томми Ли, а из барабанов предпочитаю ТАМА с железом Sabian".</p>
+<p>Дальше на мои вопросы отвечал еще один горячий финский парень &ndash; гитарист Марко.</p>
+<p>rjh &ndash; "Был ли ты раньше в Штатах и нравится ли тебе местная публика?"</p>
+<p>Марко &ndash; "Был один раз, когда the CROWN два года назад ездили в свой первый американский тур, публика очень нравится, но нас везде принимают очень хорошо"</p>
+<p>rjh &ndash; "Играли ли вы на больших фестивалях типа Вакена или Динамо?"</p>
+<p>Марко &ndash; "Пока еще нет, но летом the CROWN должен играть на большом фестивале в Германии, думаю это должно быть круто,так как на больших фестах ты знакомишься с интересными людьми и музыкантами, новой публикой и т.д."</p>
+<p>rjh &ndash; "На чем ты играешь, какое оборудование используешь?"</p>
+<p>Марко &ndash; "Гитара B.C.Rich Mockingbird 84-го года с датчиками ЕМГ81/85, на нем играю уже много лет и никогда ни на что не поменяю и ламповая голова с кабинетом Peavey. А так как в вашем гребаном клубе нет Peavey придется играть на том что дают, на гребаном Marshalle".</p>
+<p>rjh &ndash; "Как ты относишься к возможным концертам в России, знаешь ли какие наши команды?"</p>
+<p>Марко &ndash; "Поиграть у вас было бы клёво, но у нас на этот счет ничего не запланировано. Из ваших команд не знаю никого и никогда не слышал."</p>
+<p>На этом концерте я употреблял мексиканское пиво CORONA EXTRA и допив свою бутылку спросил Марко, где этот позер Линдберг? "Да вон он сидит" &ndash; ответил Марко, и я увидел за столиком с бутылкой дерьмового американского Budweisera в бейсболке и футболке VOI VOD короткостриженного рыжего черта &ndash; Линдберга в окружении американских фэнов. Офигев от такой херни, я подошел к нему и внаглую прервал их разговор. "Эй чувак, я типа русский, и у меня к тебе есть куча вопросов от меня лично и от моих друзей &ndash; мастдайцев из России". Он посмотрел на меня и сказал &ndash; "ОК &ndash; сейчас я подойду к тебе, где ты будешь?", на что был получен ответ &ndash; "Я сейчас куплю себе еще бутылочку Короны и буду разговаривать с другими вашими музыкантами возле твоего стенда, где ты продаешь свои новые диски, которые нормальные фэны уже давно наизусть знают, благодаря Интернету и таким людям как Граф Ди Митриус."</p>
+<p>Купил я пиво и присел за столик с крауновцами, подходили какие то фэны и думали что я их музыкант, на что я вежливо отправлял их к финнам. Ну вот и Линдберг подошел с новой бутылкой Budweisera. Я сказал ему, кто я такой и почему я вообще здесь, сразу же были сделаны исторические фотографии и я начал задавать вопросы.</p>
+<p>rjh &ndash; "Ты известный человек в мире метал-музыки, чем она для тебя является?"</p>
+<p>Линдберг &ndash; "Я уже давно работаю в этой сфере, и митал для меня &ndash; это вся моя жизнь и представить себя вне ее я не могу. Это как наркотик &ndash; попробовав один раз, не можешь остановиться."</p>
+<p>rjh &ndash; "Был ли ты когда нибудь в России и республиках СНГ? Как относишься к возможным выступлениям там?"</p>
+<p>Линдберг &ndash; "У вас никогда не был и даже не представляю что это такое, но я знаю что многие команды играют у вас и остаются довольны. Еще знаю что у вас есть очень много настоящих метал-фэнов. Из стран Восточной Европы я был в Чехии и Польше с At The Gates &ndash; мне очень понравилась местная публика и особенно девушки. Девушки из Восточной Европы самые красивые в мире."</p>
+<p>rjh &ndash; "А хули ты думал, чувак? Естественно самые красивые в мире. А кого из наших групп ты знаешь (вопрос графа Ди Митриуса)?"</p>
+<p>Линдберг &ndash; "Никого не знаю, так как не могу послушать их диски и они не выступают в Европе и США, но не сомневаюсь, что у вас есть много талантливых команд, надеюсь что они выступают вместе с западными командами, которые к вам приезжают?"</p>
+<p>rjh &ndash; "Да выступают, но испытывают большие финансовые проблемы, почти все музыканты работают, чтобы заработать денег на музыку и не имеют времени отлучиться с основной работы на гастроли".</p>
+<p>Линдберг &ndash; "Ну, в Швеции, да и почти во всем мире такая же ситуация, только самые известные метал-музыканты могут позволить себе не думать ни о чем кроме музыки, и наша группа the CROWN не исключение, все деньги полученные от продажи предыдущих альбомов уходят на оплату студий, туров, то есть вкладываются в следующие проекты, с At the Gates ситуация была точно такой же, ни один из альбомов не принес нам денег."</p>
+<p>rjh &ndash; "Когда At the Gates воссоединятся?! (вопрос Scar'a)?"</p>
+<p>Линдберг &ndash; "Никогда. Воссоединения At the Gates не будет. Мы до сих пор очень хорошие друзья, но сейчас заняты другими проектами &ndash; the Haunted и the Crown &ndash; мы часто встречаемся, но речи о том, чтобы опять работать вместе не идет &ndash; At the Gates остался в прошлом."</p>
+<p>rjh &ndash; "Раз уж речь зашла об At the Gates, какой на твой взгляд ваш лучший альбом? (вопрос Tornado)".</p>
+<p>Линдберг &ndash; "With Fear I Kiss The Burning Darkness, 1993 года. Вообще я люблю все наши альбомы, но этот лучший."</p>
+<p>rjh &ndash; "А что означают фразы "кингдом факин ган" и "уиз фир ай кисс зе бурнинг даркнесс"? (вопрос задал volos)".</p>
+<p>Линдберг &ndash; "With Fear I Kiss The Burning Darkness &ndash; это когда человек стоит перед чем-то неизвестным и долго не может на что то решиться, а потом все таки решается и делает это, а "кингдом факин ган" &ndash; да я уже и не помню почему мне захотелось спеть именно это:)))"</p>
+<p>rjh &ndash; "Кто оказал на тебя наибольшее влияние в формировании вокального стиля, манеры пения? (вопрос Ruslana)".</p>
+<p>Линдберг &ndash; "В первую очередь &ndash; это вокалист POSSESSED Jeff Beccera. Всегда восхищался его вокалом и манерой пения, и вообще альбом POSSESSED "Seven Churches" 1986 года является моим самым любимым альбомом."</p>
+<p>rjh &ndash; "Твое отношение к the Haunted, нравится ли тебе то что они делают? (вопрос Ruslana)". </p>
+<p> Линдберг &ndash; "Не просто нравится а ОЧЕНЬ НРАВИТСЯ, отличная команда, в которой играют мои друзья, гитаристы At the Gates, и не смотря на то, что стиль в котором работают the Haunted и the Crown очень похож и мы как бы конкуренты, мне очень нравится то, что они делают и пускай у них все будет ОК."</p>
+<p>rjh &ndash; "Твое отношение к Дэну Свано, собираешься ли ты с ним работать? Нравится ли тебе его творчество? (вопрос графа Ди Митриуса)"</p>
+<p>Линдберг &ndash; "Работать с ним я не собираюсь. Вообще Дэн очень замкнутый человек. Он очень хороший музыкант, мультиинструменталист, но мне не нравится то, что он ударяется в электронные эксперименты в последнее время. То что он cделал с Edge of Sanity на первых трех альбомах нравится мне гораздо больше, чем его работы с Найнтингейл и сольный альбом. Я вообще не люблю электронщину и клавиши в метале и не хочу слушать весь этот бред. Метал должен быть мощным, а разные эксперименты со звуком мне не в кайф."</p>
+<p>rjh &ndash; "Lock up &ndash; машина для зарабатывания бабла или тру андеграундный проект? (вопрос Scarа)?"</p>
+<p>Линдберг &ndash; "Деньги здесь совсем не причем, странно что ты задал такой вопрос. Просто если At the Gates и the Crown &ndash; MUSIC for SOUL, то Lock Up &ndash; MUSIC for FUN, и я и Пинтадо с Эмбури и Баркером относимся к Lock Up как к приколу &ndash; нравится нам такая легкая, не заставляющая думать музыка :)"</p>
+<p>rjh &ndash; "Я знаю что ты пел с израильской группой Betrayer, расскажи как это было? Собираешься ли сделать с ними еще что нибудь (вопрос графа Ди Митриуса)?"</p>
+<p>Линдберг &ndash; "Ты даже такой момент из моей биографии знаешь :) (удивление). Я был в Израиле неделю по приглашения моих очень хороших друзей, и на концерте пел вместе с группой Betrayer &ndash; они очень веселые и доброжелательные ребята и у меня остались самые благоприятные впечатления о той поездке, это было очень весело, но не надо относится к тому концерту серьезно &ndash; они попросили &ndash; я попел :) Мне это было в кайф."</p>
+<p>После этого мы взяли еще по пиву и я задал свой вопрос, относительно алкогольных напитков.</p>
+<p>rjh &ndash; "Томас, вот ты швед, скажи мне, только честно, что лучше "Абсолют" или "Финляндия»?" </p>
+<p> Линдберг &ndash; "Хоть я и швед, но признаю, что "Финляндия" действительно лучше (смеется), а вообще любимая водка у меня "Смирнофф", а у тебя?"</p>
+<p>rjh &ndash; "Гжелка" и "Финляндия"</p>
+<p>Линдберг &ndash; "А вообще я знаю что русские пьют водку в чистом виде, но я предпочитаю СКРЮДРАЙВЕР &ndash; коктейль &ndash; водка с апельсиновым соком. "Смирнофф" с апельсиновым соком мой фаворит среди напитков на все времена!"</p>
+<p>rjh &ndash; "Я еще раз задам тебе, шведу,такой некорректный вопрос (еле сдерживая смех) &ndash; что ты знаешь о таком месте, как Полтава? (вопрос Scarа)?"</p>
+<p>Линдберг (удивленно) &ndash; "Вообще-то &ndash; это что-то из истории."</p>
+<p>И тогда мне пришлось в двух словах рассказать ему, что же произошло в восемнадцатом веке под Полтавой, как Петр Первый заставил капитулировать Карла 12-го, но перевел все в шутку. Оказывается во всем мире люди изучают историю так, как им выгодно, и в любой стране историки пытаются умалчивать позорные факты из биографии. После этого вопроса мы пошли закупаться очередной порцией Короны и Линдберг познакомил меня со вторым гитаристом the CROWN &ndash; шведом Маркусом. Тут между нами состоялся интересный диалог, смысл которого будет очень хорошо понятен нашим любителям тяжелой музыки. Дело в том что альбом the CROWN вышел в США именно в тот день когда состоялся этот концерт &ndash; 9 апреля.</p>
+<p>rjh &ndash; "Привет Маркус, ваш новый альбом у меня есть &ndash; мне очень понравилось."</p>
+<p>Маркус &ndash; "Слышал? Ты что, купил его здесь и уже успел послушать?"</p>
+<p>rjh &ndash; "Да нет вообще-то."</p>
+<p>Маркус &ndash; "А, я понял, ты купил его в музыкальном магазине?"</p>
+<p>rjh &ndash; "Да нет, знаешь, что такое интернет?"</p>
+<p>Маркус &ndash; "Ну конечно, ты наверно заказал его через интернет?"</p>
+<p>rjh &ndash; "Да нет, я уже с января имею его в своей коллекции."</p>
+<p>Ничего не понимает... Растерянность... Удивление...</p>
+<p>Бедный Маркус:) К сожалению он и не подозревает, что благодаря таким людям, как Граф Ди Митриус, русскоязычные любители тяжелой музыки имеют возможность слушать альбомы задолго до их премьеры.</p>
+<p>rjh &ndash; "Я конечно понимаю что ты теряешь бабки, но пойми, что если в Швеции или в Америке отдать 15 баков за фирменный диск &ndash; это нормально, то в России и СНГ это непозволительная роскошь."</p>
+<p>Дальше идет краткое изложение предмета.</p>
+<p>Маркус &ndash; "Я все понимаю, если бы сам был в такой ситуации делал бы точно так же:)"</p>
+<p>Кстати, Маркус уже был в Миннеаполисе во время прошлогоднего осеннего тура the Haunted, в который он ездил сессионным гитаристом. Мы еще немного поговорили и пошли смотреть концерт.</p>
+<p>В основной части первыми выступали американцы ALL THAT REMAINS из Бостона, штат Массачусетс. Что про них можно сказать? Американский вариант Children of Bodom, только вокалист свободный, короткостриженный, с явно хардкоровой манерой пения. А инструментальная группа &ndash; один в один Children of Bodom &ndash; гитаристы с Jackson RR, все волосатые, светлые, и музыка очень похожа на финов &ndash; мелодичный хэви-блэк-дэт, с гитарными трелями и соляками в две гитары, даже строение песен похожа на Детей. Вот только клавиш нет. Отыграли они свою программу очень весело и задорно. Видно что ребята очень профессионально владеют инструментами. Соляки красивые, но все же уступают Алекси Лайховским. Мне очень понравилось &ndash; буду следить за их творчеством дальше.</p>
+<p>Следующими выступали еще одни америкоты Darkest Hour. Эти ребята делают на сцене небольшое шоу, смотрятся очень живо и интересно, да и музыка у них представляет собой своеобразный коктейль &ndash; основа &ndash; это мелодик дэт, к которому примешаны и блэк и хардкор и трэш и даже панк, даже незнаю как это назвать. Что то похожее есть у Die Apocaliptischen Reier но все равно по другому слушается. Слишком разнородно как то. Но интересных фишек в их музыке немало. У меня как у любителя строгих канонов жанра осталось неоднозначное впечатление &ndash; ребята желают угодить всем, и это не очень хорошо получается, хотя любителям экспериментов такая музыка придется по душе.</p>
+<p>Ну и после них вышли хэдлайнеры &ndash; the CROWN.</p>
+<p>Концерт начался с клавишного интро к новому альбому Crowned In Terror и одноименной песней. Народ очень живо воспринял музыку и начал рубится, кстати попытки некоторых личностей организовать в зале слэм к успеху не привели. Линдберг работал как автомат и в перерывах между песнями прикладывался к бутылке с Будвайзером. Кстати на сцене он очень прикольно закатывает глаза во время пения:))) Следующей вещью была Under The Whip так же с нового альбома. Потом Линдберг объявил старые песни the Poison и Deathexplotion. Они ни чем не уступают новым. Тот же напор, энергия и Эт Зе Гейтовский вокал, хотя мелодичности по сравнению с привратниками поубавилось, зато агрессии гораздо больше. Потом была исполнена медленная и качевая вещь World Below - под которую наступил апогей концерта. Стали рубиться просто все находящиеся в зале ...70 человек. Вы не удивляйтесь &ndash; зажравшиеся американцы ходят только на модные группы, но эти 70 человек были настоящими фэнами, которые пришли послушать именно музыку, которые прекрасно знают кто такие Линдберг и the Crown. Затем сыграли песни The Speed Of Darkness и Death Metal Holocaust. Затем несколько песен со старых и нового (Out For Blood, I Am Hell) альбомов вперемешку и завершили часовое выступление песней Satanist. Что можно сказать подводя итог этому концерту. Профессионально, агрессивно и задорно. С большим желанием. Но... всё же немного жаль, что нет больше такой группы, как At the Gates.</p>
+
+Автор: rjh
+
+### 24.05.2002 news Убийца Душ II
+
+<p>Родители мелодик-дэта AT THE GATES решили переиздать классику 1995 года - альбом "Slaughter Of The Soul". Это произойдет летом через Earache Records. Будут добавлены следующие треки: <BR><BR> 01. Legion (SLAUGHTERLORD cover) <BR> 02. The Dying (from the original album sessions) <BR> 03. Unto Others (demo version) <BR> 04. Nausea (demo version) <BR> 05. Captor of Sin (SLAYER cover) <BR> 06. Blister Verklighet (NO SECURITY cover, previously unreleased)</p>
+
+Автор: Yermola
+
+### 24.05.2002 news AT THE GATES Classic To Be Reissued With Bonus Tracks ....
+
+<p>The long out-of-print AT THE GATES classic, 1995's Slaughter Of The Soul, will be reissued through Earache Records this summer, complete with six bonus tracks. The bonus cuts are as follows: <BR><BR> 01. Legion (SLAUGHTERLORD cover) <BR> 02. The Dying (from the original album sessions) <BR> 03. Unto Others (demo version) <BR> 04. Nausea (demo version) <BR> 05. Captor of Sin (SLAYER cover) <BR> 06. Blister Verklighet (NO SECURITY cover, previously unreleased)<BR></p>
+
+Автор: Yermola
+
+### 05.06.2002 news Из THE CROWN ушел вокалист...
+
+<p>Разошлись пути-дорожки у шведов "THE CROWN" и вокалиста Tomas Lindberg (ex-AT THE GATES). Причиной, как обычно, названы персональные несоответствия. Линдберг был с THE CROWN с марта 2001, когда он заменил уставшего от гастрольной жизни Johan Lindstrand. Томас пел на н аиболее известном диске "Crowned In Terror" (вышел в Апреле на Metal Blade Records). Последнее шоу с его участием прошло 31 мая в Стокгольме, совместно с THE HAUNTED и NECROPHOBIC....</p>
+
+Автор: Yermola
+
+### 05.06.2002 news THE CROWN Part Ways With TOMAS LINDBERG ...
+
+<p>Sweden's THE CROWN have parted ways with vocalist Tomas Lindberg (ex-AT THE GATES) due to personal differences. A message on the group's official web site states simply that "any questions to this statement will be answered with 'no comment'." <BR> <BR> Lindberg joined THE CROWN in March 2001 as the replacement for Johan Lindstrand, who left the group due to his dislike for the touring lifestyle. Tomas appeared on THE CROWN's most recent CD, Crowned In Terror, which was released through Metal Blade Records in April.<BR> <BR> THE CROWN's last show with Lindberg took place last Friday, May 31st, at The Shrine in Stockholm, where the group shared the stage with THE HAUNTED and NECROPHOBIC. It is not presently clear if the band will go ahead with their next scheduled live appearance, which is due to take place at the Tuska Metal Festival in Helsinki, Finland on July 13th.</p>
+
+Автор: Yermola
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 17.03.2005 articles Adrian Erlandsson (CRADLE OF FILTH, ex-AT THE GATES): &quot;Re-union AT THE GATES состоится&quot;.
+
+<P><IMG height=300 alt="" hspace=0 src="/images/articles_rus/2005.03/8139.jpg" width=400 align=left border=5>В своём недавнем интервью Tartarean Desire барабанщик Adrian Erlandsson из CRADLE OF FILTH рассказал о новом басисте коллектива, о своём европейском турне, а также о возможном re-union AT THE GATES.</P>
+<P>О re-union AT THE GATES<BR>Adrian: «Раньше это было, вообще, невозможно. Я живу в Англии, и вот недавно здесь выступали THE HAUNTED и NIGHTRAGE играли вместе с ARCH ENEMY. Я встретился и с Tompa (Tomas Lindberg), и с близнецами (Anders и Jonas Bjorler), и мы решили, что мы объединимся на несколько концертов в ближайшем будущем, когда все смогут выкроить время».</P>
+<P>Об Ozzfest 2003<BR>Adrian: «Хммм, это туровый фестиваль… Это означает, что в это время нет никаких саундчеков. Просто выходишь на сцену и играешь. Мы выступали в три часа по полудню. Стояла ужасная жара. Но несомненным плюсом стало приобретение нами новых фэнов в США. С другой стороны, не так много народа смотрят на тебя в середине дня. В любом случае, я не хотел бы повторить подобное. Довольно тяжело не быть дома 10 недель».</P>
+<P>О переменах в составе CRADLE OF FILTH<BR>Adrian: «Мне не нравятся перемены в составе. Dave Pybus, наш басист, должен был бы остаться, но ему надоело ездить в тур. Он говорил, что уходит на некоторое время, но если он не справляется с турами, он не сможет быть в группе. У Cradle было множество смен состава, каждый раз это происходило из-за того, что люди были не готовы посвятить группе всё своё время. Я думаю, Ozzfest как раз и надломил Dave, но ему потребовался год, чтобы понять, что его энергия кончилась. Мы провели 24 недели вдали от дома и дали 107 концертов, и если у тебя не остаётся никакого желания играть музыку, ты должен уйти. Наш новый туровый басист является другом девушки, большой подруги моей жены. Он работает учителем гитары в Колчестерском гитарном институте. До этого он играл только в пабах в различных кавер-группах, но блестяще подошёл для отведённой роли. Ему было немного сложновато на сцене, это связано с костюмами и гримом. Когда мы играли в Бельгии перед 2000 фэнов, он немного струхнул, но музыкант он стабильный. Пока мы ждём, вернётся ли Dave, а дальше посмотрим».</P>
+<P>О DVD<BR>Adrian: «Мы собираемся снять DVD 3 апреля в Париже. Пластинка выйдет в октябре. У нас накопилось множество видео «за сценой» со времени релиза нашего последнего DVD. Сейчас мы записываем всё, что происходит во время тура, на цифровую камеру, а потом решим, что включать в DVD».</P>
+Автор: Vit Belov
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 19.07.2006 news Earache переиздают альбом AT THE GATES &quot;Slaughter Of The Soul&quot; в новом формате
+
+<P>Лейбл <B>Earache</B> сделал подарок всем фанатам <B>Томаса Линдберга</B> и группы <B>AT THE GATES</B>. Альбом <B>"Slaughter Of The Soul"</B>, вышедший в 1995-ом году, переиздан в формате dual disc. Кроме собственно аудио-диска к нему приложен DVD <B>"Making Of Slaughter Of The Soul"</B> продолжительностью 35 минут, где вокалист <B>Томас Линдберг</B>, гитарист <B>Мартин Ларссон</B> и продюсер <B>Фредерик Нордстрем</B> рассказывают, как создавался этот легендарный альбом. Создал всё это дело режиссер <B>Патрик Уллаеус</B> (<B>DIMMU BORGIR, LACUNA COIL</B>). Также на DVD включено промо-видео <B>'Blinded By Fear'</B>.</P>
+Автор: Ixtiandr
+
+### 22.10.2007 news AT THE GATES тоже возвращаются
+
+<P>Гитарист <STRONG>THE HAUNTED</STRONG> <STRONG>Anders Bjorler</STRONG> сообщил о воссоединении <STRONG>AT THE GATES</STRONG> на несколько шоу в будущем году, среди которых <STRONG>Wacken Open Air</STRONG> в Германии и <STRONG>Ruisrock</STRONG> в Финляндии. Состав группы будет такой:</P>
+<P><STRONG>Tomas Lindberg</STRONG> (DISFEAR, THE CROWN, LOCKUP) - vocals <BR><B>Anders Bj&#246;rler</B> (THE HAUNTED) - guitar<BR><B>Martin Larsson</B> - guitar<BR><B>Jonas Bj&#246;rler</B> (THE HAUNTED) - bass<BR><B>Adrian Erlandsson</B> (NEMHAIN, BRUJERIA, CRADLE OF FILTH) - drums</P>
+Автор: Vit Belov
+
+### 19.11.2007 news Anders Bjorler (AT THE GATES): Нового альбома не будет
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>AT THE GATES/THE HAUNTED Anders Bjorler</STRONG> в интервью греческому зину <STRONG>Metalzone.gr </STRONG>рассказал о планах <STRONG>AT THE GATES</STRONG>. Музыкант отметил, что надеется на выпуск DVD <STRONG>AT THE GATES</STRONG>, которое станет отличным финалом этого возвращения. Нового&nbsp;же студийного альбома группа записывать, по его словам, не собирается.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 15.01.2008 news AT THE GATES переиздают классику
+
+<P>10 марта в Европе появится в продаже переиздание классического альбома <STRONG>AT THE GATES</STRONG> <STRONG>"Slaughter of the Soul".</STRONG> Релиз будет дополнен 6 бонус-трэками, документальным фильмом и DVD с записью концерта 30 декабря 1995 года в Кракове. Сэт-лист концерта:</P>
+<P>01. <B>Terminal Spirit Disease</B><BR>02. <B>Cold</B> <BR>03. <B>The Swarm</B> <BR>04. <B>Blinded By Fear</B> <BR>05. <B>Nausea</B> <BR>06. <B>Forever Blind</B> <BR>07. <B>Need</B> <BR>08. <B>Kingdom Gone</B> </P>
+Автор: Vit Belov
+
+### 14.05.2008 news AT THE GATES отыграли первое шоу
+
+<P>8 мая в Осаке, Япония AT THE GATES отыграли первый концерт за 12 лет. Вот сэт-лист выступления:</P>
+<P>01. <B>Slaughter of the Soul</B><BR>02. <B>Cold</B><BR>03. <B>Under a Serpent Sun</B><BR>04. <B>The Swarm</B><BR>05. <B>Terminal Spirit Disease</B><BR>06. <B>Suicide Nation</B><BR>07. <B>Raped By the Light of Christ</B><BR>08. <B>Windows</B><BR>09. <B>World of Lies</B><BR>10. <B>The Burning Darkness</B><BR>11. <B>The Beautiful Wound</B><BR>12. <B>All Life Ends</B><BR>13. <B>Need</B><BR>-------------<BR>14. <B>Blinded By Fear</B><BR>15. <B>Kingdom Gone</B></P>
+Автор: Vit Belov
+
+### 08.02.2009 news AT THE GATES готовят DVD
+
+<P><STRONG>AT THE GATES&nbsp;</STRONG>заканчивают работу над новым DVD. Группа ищет материал из 90-х. "<EM>Если у вас есть какой-нибудь бутлег, несанкционированная запись нашего концерта, нам нужен оригинал. Расскажите всем о том, что мы ищем</EM>", - просит группа на своём официальном сайте.</P>
+Автор: Vit Belov
+
+### 25.11.2009 news AT THE GATES выпускают DVD
+
+<P>22 февраля 2010 года на<STRONG> Earache Records</STRONG> выйдет тройное DVD реформированных<STRONG> AT THE GATES "The Flames Of The End".</STRONG>&nbsp;Нам обещают 40-страничный буклет и 6-панельный digi-pack. </P>
+<P>На первый диск попал&nbsp;2-часовой документальный фильм, режиссёром которого выступил гитарист группы&nbsp;<STRONG>Anders Bjorler</STRONG>.&nbsp;На втором диске вы найдёте 75-минутный концерт, снятый&nbsp;на <STRONG>Wacken 2008</STRONG>.&nbsp;И на третьем диске будут архивные концертные записи с 1991 года до наших дней.</P>
+<P>Трэйлер релиза можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/b15yaPYNDRU&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/b15yaPYNDRU&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 15.01.2010 news Подробности DVD AT THE GATES
+
+<P><IMG height=483 alt="" hspace=0 src="/images/news_rus/2010.01/15963.jpg" width=350 align=right border=5>22 февраля на <STRONG>Earache Records</STRONG> выходит 3-дисковый DVD AT THE GATES <STRONG>"The Flames Of The End". </STRONG>С этим релизом группа отмечает свой ре-юнион тур, состоявшийся в недавнем прошлом. Трэк-лист:</P>
+<P>Disc 1: <B>"Under A Serpent Sun - The Story of At The Gates"</B><BR>A brand new documentary with a running time of over two hours, detailing the band's entire career with exclusive interviews and footage, filmed and directed by<BR>guitarist <B>Anders Bj&#246;rler</B>.<BR>01. <B>Introduction & Opening Titles</B><BR>02. <B>Reunion: From Vision to Reality</B><BR>03. <B>The Early Years Part 1: From Nursery Rhymes to Death Metal</B><BR>04. <B>The Early Years Part 2: The Schillerska / Billdal Connection</B><BR>05. <B>The Early Years Part 3: The Grotesque / At the Gates Transition</B><BR>06. <B>The Early Years Part 4: Creativity Unbound</B><BR>07. <B>Gardens of Grief</B><BR>08. <B>The Red in the Sky is Ours</B><BR>09. <B>Reunion: Sweden Rock 2008</B><BR>10. <B>With Fear I Kiss the Burning Darkness</B><BR>11. <B>Exit Alf - Enter Martin</B><BR>12. <B>Reunion: Graspop 2008</B><BR>13. <B>Terminal Spirit Disease</B><BR>14. <B>Reunion: Ruis Rock 2008</B><BR>15. <B>Slaughter of the Soul</B><BR>16. <B>Reunion: America re-visited</B><BR>17. <B>Reunion: San Antonio, TX 2008</B><BR>18. <B>Exit Anders</B><BR>19. <B>Reunion: Bloodstock 2008</B><BR>20. <B>Reunion: The Past is Alive</B><BR>21. <B>Beyond the Gates</B><BR>22. <B>Credits</B><BR>23. <B>Interview with Tomas in Chicago 1996</B> (Deleted Scenes)<BR>24. <B>Adrian, The Prankster</B> (Deleted Scenes)<BR>25. <B>The Tokyo Experience</B> (Deleted Scenes)<BR>26. <B>Elvis Has Left the Building</B> (Deleted Scenes)<BR>27. <B>European Mini-Tour with Therion 1992</B> (Deleted Scenes)<BR>28. <B>Gods of Metal, Italy 2008</B> (Deleted Scenes)<BR>29. <B>Tompa cleaning out the trailer</B> (Deleted Scenes)<BR>30. <B>Kingdom Gone</B> (Music Video)<BR>31. <B>The Burning Darkness</B> (Music Video)<BR>32. <B>Terminal Spirit Disease</B> (Music Video)<BR>33. <B>Blinded By Fear</B> (Music Video)<BR><BR>Disc 2: <B>"Purgatory Unleashed - Live at Wacken"</B><BR>A 75-minute live set from the band's reunion set at the <B>Wacken Open air</B> festival in 2008 in front of 100,000 people — professionally shot with multiple cameras with sound mixed by Tue Madsen)<BR>01. <B>Intro</B> (backstage)<BR>02. <B>Slaughter of the Soul</B><BR>03. <B>Cold</B><BR>04. <B>Terminal Spirit Disease</B><BR>05. <B>Raped By the Light of Christ</B><BR>06. <B>Under A Serpent Sun</B><BR>07. <B>Windows</B><BR>08. <B>World Of Lies</B><BR>09. <B>The Burning Darkness</B><BR>10. <B>The Swarm</B><BR>11. <B>Forever Blind</B><BR>12. <B>Nausea</B><BR>13. <B>The Beautiful Wound</B><BR>14. <B>Unto Others</B><BR>15. <B>All Life Ends</B><BR>16. <B>Need</B><BR>17. <B>Blinded By Fear</B><BR>18. <B>Suicide Nation</B><BR>19. <B>Kingdom Gone</B><BR><BR>Disc 3: <B>"Only the Dead Are Smiling"</B><BR>26 rare and archive live performances of the band playing in locations around the globe from 1991 to 2008.<BR>01. <B>Slaughter of the Soul</B> (Wetlands, New York, USA March 7, 1996)<BR>02. <B>Cold</B> (Wetlands, New York, USA March 7, 1996)<BR>03. <B>The Swarm</B> (Wetlands, New York, USA March 7, 1996)<BR>04. <B>Blinded by Fear</B> (Thirsty Whale, Rivergrove, IL, USA, March 10, 1996)<BR>05. <B>Suicide Nation</B> (Thirsty Whale, Rivergrove, IL, USA, March 10, 1996)<BR>06. <B>Under a Serpent Sun</B> (Thirsty Whale, Rivergrove, IL, USA, March 10, 1996)<BR>07. <B>Suicide Nation</B> (Ruisrock, Turku, Finland, July 4, 2008)<BR>08. <B>Raped by the Light of Christ</B> (Ruisrock, Turku, Finland, July 4, 2008)<BR>09. <B>Windows</B> (Ruisrock, Turku, Finland, July 4, 2008)<BR>10. <B>World of Lies</B> (Ruisrock, Turku, Finland, July 4, 2008)<BR>11. <B>Nausea</B> (Ruisrock, Turku, Finland, July 4, 2008)<BR>12. <B>Slaughter of the Soul</B> (Graspop Metal Meeting, Dessel, Belgium, June 29, 2008)<BR>13. <B>Cold</B> (Graspop Metal Meeting, Dessel, Belgium, June 29, 2008)<BR>14. <B>Terminal Spirit Disease</B> (Graspop Metal Meeting, Dessel, Belgium, June 29, 2008)<BR>15. <B>The Beautiful Wound</B> (Graspop Metal Meeting, Dessel, Belgium, June 29, 2008)<BR>16. <B>The Burning Darkness</B> (Witchwood, Manchester UK, February 5, 1996)<BR>17. <B>Through Gardens of Grief</B> (Factory, Eskilstuna, Sweden, April 20, 1991)<BR>18. <B>All Life Ends</B> (Factory, Eskilstuna, Sweden, April 20, 1991)<BR>19. <B>City of Screaming Statues</B> (Factory, Eskilstuna, Sweden, April 20, 1991)<BR>20. <B>Slaughter of the Soul</B> (Studio Coast, Tokyo, Japan, May 11, 2008)<BR>21. <B>Cold</B> (Studio Coast, Tokyo, Japan, May 11, 2008)<BR>22. <B>Under a Serpent Sun</B> (Studio Coast, Tokyo, Japan, May 11, 2008)<BR>23. <B>Slaughter of the Soul</B> (Irving Plaza, New York, USA, July 9, 2008)<BR>24. <B>Need</B> (The Abyss, Houston, TX, USA, March 17, 1996)<BR>25. <B>Neverwhere</B> (Gagarin 205, Athens, Greece, September 21, 2008)<BR>26. <B>Kingdom Gone</B> (Gagarin 205, Athens, Greece, September 21, 2008)</P>
+Автор: Vit Belov
+
+### 17.08.2011 news Фотографии с фестиваля &quot;TUSKA OPEN AIR&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20609.jpg" width=212 height=282>С 22 по 24 июля в городе Хельсинки,&nbsp;Финляндия, прошёл 14 по счёту фестиваль <STRONG>"Tuska Open Air"</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За эти три дня&nbsp;в нём приняло участие&nbsp;более 50 металических&nbsp;групп со всего света, вот только несколько имён: <STRONG>AMON AMARTH</STRONG>, <STRONG>TURISAS</STRONG>, <STRONG>BLIND GUARDIAN</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>MORBID ANGEL</STRONG>, <STRONG>AT THE GATES</STRONG>.</FONT></P>
+<P>Фотографии некоторых из участников фестиваля можно посмотреть в галерее нашего сайта по адресу: </P>
+<P><A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></P>
+<P>Автор всех фотографий: Анна Ходакова</P>
+<P>Сайт фестиваля <STRONG>"Tuska Open Air"</STRONG>: <A href="http://www.tuska-festival.fi/">www.tuska-festival.fi</A></P>
+Автор: Headcrusher
+
+### 28.05.2013 news Anders Bjorler (AT THE GATES, THE HAUNTED) закончил работу над сольным альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG border=0 src="/images/news_rus/2013.05/25752.jpg" width=620 height=302></FONT> 
+<P></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <FONT color=#ddd9d0><STRONG>Anders Bj&#246;rler</STRONG></FONT> (<STRONG>AT THE GATES</STRONG>, ex-<STRONG>THE HAUNTED</STRONG>)&nbsp;закончил работу&nbsp;над своим первым сольным альбомом, который получил название <STRONG>"Antikythera"</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Состав, принявший участие в&nbsp;записи диска, выглядит следующим образом:</FONT></P>
+<P><STRONG>Anders Bj&#246;rler</STRONG> - гитары, клавиши, меллотрон, синтезатор&nbsp;Moog<BR><STRONG>Morgan &#197;gren</STRONG> - барабаны, перкуссия (<STRONG>FREDRIK THORDENTAL'S SPECIAL DEFECTS</STRONG>, <STRONG>MATS & MORGAN BAND</STRONG>, <STRONG>KAIPA</STRONG>)<BR><STRONG>Dick L&#246;vgren</STRONG> - бас (<STRONG>MESHUGGAH</STRONG>)<BR><STRONG>Carl Svensson</STRONG> - дополнительные электро и акустические гитары<BR><STRONG>Peter Wiberg</STRONG> - пианино</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также возможно участие специальных гостей, имена которых пока держутся в тайне.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск планируется к выходу в этом году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальный сайт артиста: <A href="http://www.andersbjorler.com/">www.andersbjorler.com</A> </FONT></P></CENTER>
+Автор: Headcrusher
+
+### 28.08.2013 news Anders Bjorler: обложка альбома &quot;Antikythera&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Для просмотра стала доступна обложка сольного альбома Андерса Бьёлера (<STRONG>Anders Bj&#246;rler</STRONG>, <A href="http://www.andersbjorler.com/">www.andersbjorler.com</A>). Её авторство принадлежит румынскому художнику по имени<STRONG> Costin Chioreanu</STRONG> (<A href="http://twilight13media.com/">http://twilight13media.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск, получивший название <STRONG>"Antikythera"</STRONG>, выходит 6 ноября на лейбле <STRONG>Razzia Notes </STRONG>(<A href="http://www.razziarecords.se/">www.razziarecords.se</A>).</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.08/26120.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 27.01.2014 news AT THE GATES выпустят свой новый альбом осенью 2014
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легендарный шведский death metal коллектив <STRONG>AT THE GATES</STRONG> анонсировал выпуск нового альбома осенью этого года. Пластинка получила название <STRONG>"At War With Reality"</STRONG> и выйдет на лейбле <STRONG>Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"At War With Reality"</STRONG> станет первым студийным альбомом <STRONG>AT THE GATES</STRONG> с 1995 года, когда в ноябре месяце шведы выпустили свой эпохальный диск под названием&nbsp;<STRONG>"Slaughter Of The Soul"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG border=0 src="/images/news_rus/2014.01/26553.jpg" width=650 height=287></FONT>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 21.08.2014 news AT THE GATES: обложка альбома &quot;At War With Reality&quot; и даты выхода
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские первооткрыватели мелодичного death metal, группа <STRONG>AT THE GATES</STRONG>, опубликовали обложку своего нового альбома под названием <STRONG>"At War With Reality"</STRONG>. Её автор - <STRONG>Costin Chioreanu</STRONG> (<A href="http://www.twilight13media.com/">www.twilight13media.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Anders</STRONG>, гитарист и основной автор музыки&nbsp;<STRONG>AT THE GATES</STRONG>,&nbsp;рассказывает: <EM>"Я связался с Костином&nbsp;несколько лет назад.&nbsp;И тут же был впечатлён его тёмным и оригинальным стилем [рисования].&nbsp;Он поработал над несколькими дизайнами для футболок AT THE GATES, а также для оформления моего инструментального проекта. Мы довольно скоро поняли, что его стиль прекрасно подойдёт нашей музыке и концепции."</EM></FONT></P>
+<P><STRONG>"At War With Reality"</STRONG> выйдет 27 октября 2014 года в Европе и на следующий день в Северной Америке на лейбле <STRONG>Century Media</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27220.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 24.09.2014 news AT THE GATES: премьера песни
+
+<P>Отцы шведского мелодичного death metal, группа <STRONG>AT THE GATES</STRONG>, представили заглавный трек, с выходящего в скором времени, альбома <STRONG>"At War With Reality"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/aoJYZITMZAI" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 20.11.2014 news AT THE GATES: видеоклип &quot;Heroes And Tombs&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AT THE GATES</STRONG> презентовали видеоклип на песню <STRONG>"Heroes And Tombs"</STRONG>. Автор видео - <STRONG>Costin Chioreanu</STRONG> (<A href="http://twilight13media.com/">http://twilight13media.com</A>).</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/ctXRhv90Gz8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 21.03.2015 reviews Мушкетёры, 20 лет спустя
+
+<P>Все люди, воспитывавшие музыкальный вкус на melodic death-metal 90-х годов, ждали релиза этого альбома. AT THE GATES даже в те времена повального музыкального пиршества выделялись одновременно и мелодичностью, и тяжестью. Их заключительный в XX веке альбом "Slaughter Of The Soul" так и остался непревзойдённым шедевром стиля, который необходим каждому поклоннику тяжёлой музыки. Именно так должны уходить герои, выпуская лучший в своей истории альбом.</P>
+<P>Даже героям свойственно возвращаться. Многим из них следовало оставаться мёртвыми, так как превзойти былые заслуги, как правило, не получается. В последние несколько лет повадились возвращаться группы, которые мы уже и не ждали услышать. AT THE GATES одни из них. Что ж, бегом в магазин или на торрент, качаем, сравниваем. Процесс сравнения, безусловно, любопытен, но имеет мало отношения к наслаждению музыкой, как таковой. «Три Мушкетёра» вернулись 20 лет спустя и поразили всех своей пенсионерской прытью (особенно, в отечественной экранизации). Нечто подобное сотворили AT THE GATES, их альбом очень качественен и где-то даже хорош, но от него за версту несёт утерянными надеждами и разочарованием в жизни. А это самое страшное. Когда вместо задорного, агрессивного мессива, вы получаете меланхоличные и седые, как волосы Боярского, мелодии. Не поймите неправильно, никаких чистых вокалов или, не дай Бог, готики здесь нет, но настроение утеряно. Думается, навсегда.</P>
+<P>Хороший альбом в жанре шведского death-metal. Мы стареем, музыканты стареют вместе с нами. Возможно, чьё-то настроение совпадёт с упадничеством современного AT THE GATES, но... Врубай, "Slaughter of the Soul"!</P>
+Автор: Vit Belov
+
+### 02.09.2015 news Новое видео AT THE GATES
+
+<P><STRONG>AT THE GATES</STRONG> продолжают промоутировать свой альбом-возвращение "<STRONG>At War With Reality</STRONG>", вышедший в конце прошлого года на <STRONG>Century Media</STRONG>. Группа опубликовала новое видео на песню&nbsp; “<STRONG>The Book Of Sand (The Abomination)</STRONG>”.</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/I6cMVf1cXPU" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 10.03.2017 news AT THE GATES потеряли гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2017.03/30404.jpg" width=400 height=510>Гитарист <STRONG>Anders Bj&#246;rler</STRONG><EM> (на фото)</EM> покинул ряды шведского death metal коллектива <STRONG>AT THE GATES</STRONG>. Тем временем, оставшиеся участники коллектива начинают работу над новым студийным альбомом группы, который обещают выупстить в начале 2018 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний диск <STRONG>AT THE GATES "At War With Reality"</STRONG> вышел в 2014 году на лейбле <STRONG>Century Media</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Earache Extreme Metal Racing

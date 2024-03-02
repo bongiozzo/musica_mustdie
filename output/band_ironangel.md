@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2016 news Два альбома IRON ANGEL будут переизданы на High Roller
+
+<p>Немецкий лэйбл <strong>High Roller</strong> переиздаст два классических альбома speed power metal группы <strong>IRON ANGEL "Hellish Crossfire"</strong> (1985) и <strong>"Winds Of War"</strong> (1986) 7 октября. </p><p>Трек листы:</p><p>"Hellish Crossfire" (1985)</p><p>01 The Metallian<br>02 Sinner<br>03 Black Mass<br>04 The Church Of The Last Souls<br>05 Hunter In Chains<br>06 Rush Of Power<br>07 Legions Of Evil<br>08 Wife Of The Devil<br>09 Nightmare<br>10 Heavy-Metal-Soldiers</p><p>"Winds Of War" (1986)</p><p>01 Winds Of War<br>02 Metalstorm<br>03 Son Of A Bitch<br>04 Vicious<br>05 Born To Rock<br>06 Fight For Your Life<br>07 Stronger Than Steel<br>08 Sea Of Flames<br>09 Creatures Of Destruction<br>10 Back To The Silence</p><p>&nbsp;<center><img width="400" height="400" src="/images/news/2016.08/29763.jpg" border="0"><p></p><p><center><img width="400" height="400" src="/images/news/2016.08/29764.jpg" border="0"><p></p></center></center>
+Автор: Vit Belov
+
+### 08.08.2016 news Two classic albums of IRON ANGEL will be re-released on High Roller
+
+<p>German label <strong>High Roller</strong> re-release two classic albums of speed power metal band<strong> IRON ANGEL "Hellish Crossfire"</strong> (1985) and<strong> "Winds Of War"</strong> (1986) on 7 Oct.</p><p>Track lists:</p><p>"Hellish Crossfire" (1985)</p><p>01 The Metallian<br>02 Sinner<br>03 Black Mass<br>04 The Church Of The Last Souls<br>05 Hunter In Chains<br>06 Rush Of Power<br>07 Legions Of Evil<br>08 Wife Of The Devil<br>09 Nightmare<br>10 Heavy-Metal-Soldiers</p><p>"Winds Of War" (1986)</p><p>01 Winds Of War<br>02 Metalstorm<br>03 Son Of A Bitch<br>04 Vicious<br>05 Born To Rock<br>06 Fight For Your Life<br>07 Stronger Than Steel<br>08 Sea Of Flames<br>09 Creatures Of Destruction<br>10 Back To The Silence</p><p>&nbsp;<center><img width="400" height="400" src="/images/news/2016.08/29763.jpg" border="0"></p><p><center><img width="400" height="400" src="/images/news/2016.08/29764.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

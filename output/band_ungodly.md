@@ -14,6 +14,34 @@ Hate Celebration
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.03.2004 news UNGODLY to record promo-CD
+
+<SPAN>
+<P><IMG height=113 alt="" hspace="15" vspace="5" src="/images/news/2004.03/6201.jpg" width=170 align="right" border=0>The band <B>Ungodly</B> from Bahia/Brazil is recording its promotional cd since Friday 03/05/04 at "<B>Estudio Groove</B>" (Salvador/BA/Brazil) called "<B>Hate Celebration</B>". The great former-drummer of Headhunter DC, Thiago Nogueira was charged to produce this CD. He is a skilful musician and he has been producing too many artists in Bahia regularly. "<B>Hate Celebration</B>" is going to be released probably in April 30 exactly at the first Krisiun appearance in Bahia - together Headhunter DC. </P>
+<P>For more info please visit : <SPAN><A href="http://www.ungodly.com.br/"><SPAN><U>www.ungodly.com.br</U></SPAN></A></SPAN> - <SPAN><A href="mailto:Jaime@metalvox.com.br"><SPAN><U>Jaime@metalvox.com.br</U></SPAN></A></SPAN></P></SPAN>
+Автор: Vit Belov
+
+### 28.08.2004 reviews True борцы со всеми новшествами в death-metal
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Коллектив бразильских борцов с христианством, но ещё больше они ненавидят позёров, которым просто-таки предлагают smash the face.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>UNGODLY</STRONG> представляют изрядно запылившуюся музыку. Начало-середина 90-х - вот клондайк для подобного творчества. Иногда это называют ещё old-school death. Тогда дэтом называли всё, что угодно с рычащим вокалом. Щедро разбавляли музыку thrash и doom-metal самого экстремального образца. <STRONG>UNGODLY</STRONG> пошли дальше, они добавили клавиши, которые подошли бы где-нибудь в sympho-black. (прямо чувствую, как это окно закрывают ортодоксы).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Замес получается очень неплохой, тяжёлый такой... Будь сейчас 1992 год напророчил бы <STRONG>UNGODLY</STRONG> мировой успех, но, к сожалению, прошёл уже десяток лет и под три песни с этого EP Вы можете только поностальгировать о работах <STRONG>BENEDICTION</STRONG> или <STRONG>SEPULTURA</STRONG> (золотого периода), например.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё одной отличительной чертой <STRONG>'Hate Celebration'</STRONG> можно назвать чёткую антихристианскую направленность. Кстати, подобные вещи тоже отсылают нас, пусть не в такое далёкое, но тоже в прошлое. Мочи позёров!!! Этот лозунг у <STRONG>UNGODLY</STRONG> всё ещё в ходу. Что ж, если назвать позёрами всех, кто двигал музыку после 1995 года, <STRONG>UNGODLY</STRONG> самое true.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа очень сильно вложилась в этот EP. Digi-pack, майки... Не знаю, как в Бразилии, а у нас это им вряд ли поможет.</FONT></P>
+Автор: Vit Belov
+
+### 29.08.2004 reviews True fighters with all innovations in death-metal
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Group of Brazilian fighters with Christianity, but they hate posers more, UNGODLY offer to just smash their face. </EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>UNGODLY</STRONG> present fair dusted music. Begining-middle of 90s is Clondike for such works. Sometimes it is named as "old school death-metal'. We named death-metal everything with growling at that time. Then musicians diluted music with thrash and doom metal of the most extremal way liberally. <STRONG>UNGODLY</STRONG> go further, they added keys, suitable to sympho-black, for example. (I just feel, how this window is closed by true-fans of death-metal).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Mix&nbsp;ensues&nbsp;not bad. So heavy... In 1992 I'd predicted world famous to <STRONG>UNGODLY</STRONG>. But unfortunatly about ten years&nbsp;already gone and you only can recall old works&nbsp;of <STRONG>BENEDICTION</STRONG> or<STRONG> SEPULTURA</STRONG>, listening to three songs from this album.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>One more distinctive feature of <STRONG>'Hate Celebration'</STRONG></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;is clear anticlerical direction. By the way this feature also send us in the past, though and not so far. Kill posers!!! <STRONG>UNGODLY</STRONG> still use&nbsp;this slogan. If we name posers everybody, who move heavy music after 1995, <STRONG>UNGODLY</STRONG> would&nbsp;be most true.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>The band put in this CD very strong. Digi-pack, T-shirts... I don't know situation in Brazil, but It will not help here.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -67,6 +67,83 @@ Inseminated by the beast
 * C группой "Evergrey" Michael Hеkansson
 * C группой "Feared Creation" Anders Sjцholm (vocal)
 
+## Публикации
+
+### 18.11.2000 news The Forsaken выпускают дебютный альбом
+
+<p> Шведы The Forsaken 22-го января выпускают свой дебютный альбом "Manifest Of Hate". По сообщениям их лейбла, это будет шведский дэт "агрессивный, как At The Gates, техничный как Arch Enemy и мрачный как Morbid Angel".</p>
+
+Автор: Nybras
+
+### 04.03.2001 reviews Шведский манифест ненависти
+
+<p>Шведский манифест ненависти. Пятерка парней под руководством Tommy Tagtgren'а нарулила в известной студии Abyss экстремально-смертельный альбом выпущенный на Century Media. Очень тяжелая, очень знергичная музыка одновременно напоминающая At The Gates, Arch Enemy и Morbid Angel. Очень выразительный вокалист постоянно переходящий с гроулинга на скриминг и обратно. Все записано качественно, техника музыкантов на высоте. Вот хоть и говорят, что шведский death-metal погибает, но все время находятся новые команды, которые вновь заставляют говорить об этом стиле современной хорошей тяжелой музыки. The Forsaken - последние герои на сегодняшний день. Быстрый мелодичный материал группы выдерживает сравнения с грандами. Примечательные риффы, простые мелодии захватывают слушателя и невольно хочется начать трясти башкой в их такт. Кавалькада озадачивающих риффов поддерживаемая грамотной ритм-секцией. Дебютный альбом высокого класса. Внушительная порция смертельного металла, однако до звания шедевра ему чего-то не хватает...</p>
+
+Автор: Dimas
+
+### 13.03.2001 reviews The Swedish manifest of hate
+
+<p>The Swedish manifest of hate. Quintuple guys under a management Tommy Tagtgren'а recording in known studio Abyss an extreme - fatal album exhausted on Century Media. Very high-gravity, very much fast music simultaneously recalling At The Gates, Arch Enemy and Morbid Angel. Very expressive voiceman permanently passing with grawling on screaming and back. All is recorded qualitatively, engineering of the musicians at the altitude. Though speak, that Swedish death-metal perishes, but all time there are new commands, which one again cause to speak about this style of modern good high-gravity music. The Forsaken - last heroes for today. The fast melodious stuff of group maintains matchings with grands. Remarkable riffs, the simple tunes seize the listener and it would be desirable to begin to head bang in their clock tick involuntarily. Kaleidoscope puzzling riffs bolstered by a competent rhythm - section. A debut album of the high class. The imposing portion of fatal metal, however up to a rank of a masterpiece does not suffice him something...</p>
+
+Автор: Dimas
+
+### 12.10.2001 news The Forsaken лишились басиста
+
+<p>Басист Майкл Хеканссон решил распрощаться с The Forsaken и полностью сконцентрироваться на работе с другой своей группой Evergrey. The Forsaken ищут сейчас подходящую замену. В декабре группа собирается в Abyss Studio записывать новый альбом, запланированный к выходу на начало 2002 года.</p>
+
+Автор: Morsus
+
+### 12.10.2001 news The Forsaken have parted ways with bassist
+
+<p>The band's bassist, Michael Hеkansson, decided to leave the band on good terms in order to concentrate on his other band, Evergrey. The Forsaken are currently looking for a suitable replacement. The band will enter Abyss Studio in December to record their new full-length album that is due out early 2002.</p>
+
+Автор: Morsus
+
+### 05.02.2002 news Искусства истребления...
+
+<p>Шведские дэтстеры "The Forsaken" завершили работу над вторым диском названным "Arts Of Desolation" для Century Media Records. "Мы очень довольны и продюссированием и материалом сейчас хотели бы услышать рецензии от журналов и радио-станций..." - комментирует барабанщик Nicke Grabowski. Трек-лист: <BR><BR> "Incubator" <BR> "The Hatebreed" <BR> "Human Chapter X" <BR> "Dethroned" <BR> "Embedded Insanity" <BR> "The Second Manifest" <BR> "Injected Terror" <BR> "Cold Flesh Colony" <BR> "Scars" <BR> "Mental Degeneration" <BR><BR> Во время записи также были записаны два невошедших в альбом трека "Creeping Death" (Metallica) и "Spirit in Black" (Slayer) которые будут использованы в качестве бонус-треков для японского релиза. Из других новостей команда до сих пор не нашла замену басс-гитаристу Michael Hakansson, ушедшему в Сентябре в Evergrey.</p>
+
+Автор: Yermola
+
+### 03.05.2003 news THE FORSAKEN начинают работу над третьим альбомом
+
+<p>Шведская группа THE FORSAKEN вошла в Studio Abyss с продюссером Tommy Tagtgren для записи своего третьего альбома который будет называться "Traces Of The Past". В альбом войдет двенадцать трэков. Релиз запланирован на конец лета 2003 года через Century Media Records.</p>
+
+Автор: Dimas
+
+### 15.10.2003 news Новый альбом THE FORSAKEN
+
+<P>17 ноября 2003 года на <B>Century Media Records</B> выходит&nbsp;третий альбом шведских мелодичных и техничных дэтстеров <B>THE FORSAKEN</B> под названием <B>"Traces Of The Past". </B>Альбом был записан в <B>Studio Abyss</B> с продюсером <B>Tommy Tagtgren.&nbsp;</B>На альбоме дебютировал новый басист группы&nbsp;<B>Stefan Berg. </B>Окончательный трэк-лист:</P>
+<P><IMG height=253 alt="" hspace=15 src="/images/news_rus/2003.10/5072.jpg" width=250 align="left" border=0>1. A Time To Die<BR>2. One More Kill<BR>3. Acid With Acid – Piece By Piece<BR>4. Glitches Will Tell<BR>5. Traces Of The Past<BR>6. Serpent&#180;s Tounge<BR>7. God Of Demise<BR>8. Massive Machinery<BR>9. The Empire<BR>10. First Weapon Of Choice (<A href="/samples/f/forsaken_the/2003_51.mp3">mp3</A>)<BR>11. Blackened (METALLICA cover)<BR></P>
+Автор: Dimas
+
+### 05.04.2004 news Ещё одна новая группа
+
+<P>Новая группа, созданная известными музыкантами называется <B>FEARED CREATION</B>. Участвуют:</P>
+<P><B>Anders Sj&#246;holm</B> (<B>THE FORSAKEN</B>) - Vocals<BR><B>Calle F&#228;ldt</B> (<B>DERANGED</B>) - Lead Guitar<BR><B>John Huldt</B> - Lead Guitar<BR><B>Magnus Gillberg</B> (<B>MISTELTEIN</B>) - Bass<BR><B>Sebastian Westberg</B> - Drums </P>
+<P>Коллектив обсуждает контракты с известными лэйблами, а музыкальным направлением&nbsp; <B>FEARED CREATION</B> станет thrash.</P>
+Автор: Vit Belov
+
+### 24.11.2011 news THE FORSAKEN на Massacre Records
+
+<P>Шведская death-metal группа<STRONG> THE FORSAKEN</STRONG> подписала контракт с <STRONG>Massacre Records</STRONG>. Четвёртый альбом коллектива, который будет сведён в <STRONG>Fascination Street Studios, </STRONG>выйдет весной будущего года. Предыдущие три альбома музыкантов вышли на <STRONG>Century Media</STRONG>.</P>
+<P><center><IMG height=317 src="/images/news_rus/2011.11/22094.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 22.05.2012 news Новый альбом THE FORSAKEN
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.05/24000.jpg" width=475 align=right border=0>Шведские death-metal'исты <STRONG>THE FORSAKEN</STRONG> выпустят новый альбом <STRONG>"Beyond Redemption" </STRONG>29 июня на <STRONG>Massacre Records</STRONG>. Работа была сведена в <STRONG>Fascination Street Studios. </STRONG>В составе коллектива появился бывший участник <STRONG>DERANGED</STRONG> <STRONG>Calle Faldt. </STRONG>Трек-лист:</P>
+<P>01. <B>Beyond Redemption</B><BR>02. <B>Only Hell Remains</B><BR>03. <B>Foul Messianic Grace</B><BR>04. <B>No Dawn Awaits</B><BR>05. <B>There Is No God</B><BR>06. <B>As We Burn</B><BR>07. <B>Reap As We Have Sown</B><BR>08. <B>The Light Divine</B><BR>09. <B>Force Fed Repentance</B><BR>10. <B>Blessed With Wrath</B></P>
+Автор: Vit Belov
+
+### 17.12.2012 reviews Неожиданный претендент на звание «альбом года в death-metal»
+
+<P>Всегда приятно открывать что-то новое и интересное там, где этого совсем не ждёшь. Выход на лицензии нового альбома “Beyond Redemption” шведской банды THE FORSAKEN казался событием обыденным и малоинтересным, но на поверку оказалось, что перед нами чуть ли не лучший альбом в «позитивном» death-metal в этом году.</P>
+<P>THE FORSAKEN образовались в 1997 году под именем SEPTIC BREED. После нескольких смен состава и перемены имени группа записала демо в Abyss Studio и подписалась на Century Media. Выпустив три альбома, по релизу в год с 2001-го по 2003-ий, коллектив впал в спячку. К активной деятельности ребята вернулись лишь в прошлом году, когда был подписан контракт с Massacre Records и начата запись обозреваемой работы. Диск сражает наповал уже своей одноимённой «открывашкой» “Beyond Redemption”. Мощная и тяжёлая музыка, в которой соединяются мелодизм и драйв отсылает слушателя во времена, когда шведский melodic death ещё мог называться metal, а названия metalcore никто не придумывал. Во времена, когда последние альбомы AT THE GATES и CARCASS казались преступно мелодичными, а IN FLAMES и DARK TRANQUILLITY предавали анафеме за чистый вокал. Именно тогда новый альбом THE FORSAKEN могли назвать melodic death-metal, а не сейчас, когда их станешь сравнивать скорее с DISMEMBER и HYPOCRISY, но не IN FLAMES и SOILWORK. THE FORSAKEN удалось, как никому другому в последнее время, соединить в своём творчестве всё, за что любят тяжёлую музыку, не взирая на стилевые ограничения. Этот альбом должен одинаково понравиться всем фэнам, признающим музыку в жанре от thrash до death-metal. </P>
+<P>Великолепное возвращение, которое должно привлечь внимание к старому творчеству коллектива. Я уже с этой минуты начинаю разыскивать предыдущие альбомы THE FORSAKEN и готовлю себя к встрече с прекрасным.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

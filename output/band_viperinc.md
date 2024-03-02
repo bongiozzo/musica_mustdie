@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.10.2008 news VIPER INC. выложили EP
+
+<P>Московская modern melodic death metal группа <STRONG>VIPER INC.</STRONG> выложила в сеть своё официальное EP, под названием "<STRONG>Водопад Времен</STRONG>". В записи принимали участие вокалисты групп С<STRONG>ЛОТ, Deform, Arcane Grail, Идол</STRONG>. </P>
+<P>Трэклист: <BR>1. <STRONG>Интро (Отче наш) <BR></STRONG>2. <STRONG>Я - Бог</STRONG> (feat. Вова Идол [ИДОЛ]) <BR>3. <STRONG>Водопад Времен</STRONG> (feat. Nookie [СЛОТ]) <BR>4. <STRONG>На Краю Зимы</STRONG> (feat. Деформатор [DEFORM]) <BR>5. <STRONG>What Will Be After</STRONG> (feat. Demether [ARCANE GRAIL]) <BR>6. <STRONG>Под Чьим клеймом Душа?</STRONG> (feat. Nookie [СЛОТ]) </P>
+<P>+Bonus Track: <BR>7. <STRONG>Who's TM On My Soul</STRONG> (feat. Dante [PREY OF GODS]) </P>
+<P>*Гитары/электроника во всех песнях - <STRONG>Олег Изотов</STRONG> [AnJ, Trinity, BloodyВосток] <BR>На ударных - <STRONG>Андрей Ищенко</STRONG>. </P>
+<P>EP можно скачать по следующей ссылке: <A href="http://ifolder.ru/8445429">http://ifolder.ru/8445429</A> </P>
+<P><A href="http://www.myspace.com/viperofficial">http://www.myspace.com/viperofficial</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

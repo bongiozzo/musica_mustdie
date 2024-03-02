@@ -13,6 +13,25 @@ ex-BLACK COUNTESS
 
 * C группой "Black Countess" Ilya
 
+## Публикации
+
+### 04.07.2011 news Дебютный альбом SPLAV
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.07/19874.jpg" width=300 align=right border=0>Лэйбл <STRONG>Metalism Records</STRONG> издал дебютный альбом "<STRONG>Сверхновая</STRONG>" знаменитой группы <STRONG>SPLAV</STRONG>, которая является проектом лидера vampiric erotic sympho-black проекта <STRONG>BLACK COUNTESS Ильи</STRONG> и независимой певицы <STRONG>Marie</STRONG>. Вот как описывает лэйбл своё новое приобретение: "<EM>Хэви-готик-метал с чистым женским вокалом, запоминающимися мелодиями и присущими BLACK COUNTESS атмосферными партиями клавишных</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На обложке представлена знаменитая модель<STRONG> Aria Giovanni</STRONG>, с которой работали и <STRONG>BLACK COUNTESS</STRONG> на своём последнем альбоме.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Важные ссылки:</FONT></P>
+<P><A href="http://vkontakte.ru/splav.modern.gothic.metal">http://vkontakte.ru/splav.modern.gothic.metal</A> <BR><A href="http://www.myspace.com/splav.modern.gothic.metal">http://www.myspace.com/splav.modern.gothic.metal</A></P>
+Автор: Vit Belov
+
+### 04.07.2011 news SPLAV have released debut album through Metalism Records
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news/2011.07/19875.jpg" width=300 align=right border=0>Russian heavy-gothic-metal band<STRONG> SPLAV</STRONG> have just released their debut album "<STRONG>Supernova</STRONG>" via <STRONG>Metalism Records</STRONG>.<STRONG> SPLAV</STRONG> are new side-project of erotic-vampiric-sympho-black band <STRONG>BLACK COUNTESS'</STRONG> mastermind <STRONG>Ilya</STRONG> with young fimale singer<STRONG> Marie</STRONG>. "<EM>Heavy-gothic metal with crystal clear female vocal with memorable melodies known&nbsp;in music of BLACK COUNTESS</EM>", - said label in press-statement.</P>
+<P><STRONG>SPLAV </STRONG>collaborated with nu-model <STRONG>Aria Giovanni</STRONG> for cover-art of this CD. <STRONG>Ilya </STRONG>had worked with <STRONG>Aria</STRONG> already for latest CD of <STRONG>BLACK COUNTESS</STRONG>&nbsp;released in&nbsp;2007's "<STRONG>Feetish</STRONG>". Track-list:</P>
+<P>1. <STRONG>Go Forward!</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>2. <STRONG>Of Bygone Love</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>3. <STRONG>Virgin and Serpent</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>4. <STRONG>Peer into My window</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>5. <STRONG>Subconsciousness&nbsp;</STRONG>&nbsp;&nbsp;&nbsp;&nbsp; <BR>6. <STRONG>Souls on Fire</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>7. <STRONG>Absent City</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>8. <STRONG>Supernova&nbsp;</STRONG> </P>
+<P><STRONG>MySpace </STRONG>Link: <A href="http://www.myspace.com/splav.modern.gothic.metal">http://www.myspace.com/splav.modern.gothic.metal</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### SPLAV (Modern Gothic Metal) Проект музыкантов BLACK COUNTESS, Marie

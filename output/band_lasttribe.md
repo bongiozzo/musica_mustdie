@@ -63,6 +63,311 @@ Blessed by the Dark (Only Japan)
 * C группой "Starbreaker" Magnus Karlsson
 * C группой "Codex, The" Magnus Karlsson (guitar)
 
+## Публикации
+
+### 30.05.2002 reviews Танец ведьмы из последнего племени
+
+<p>Второй альбом шведской команды. Очень неплохой progressive-melodic metal с неоклассическими чертами, напоминающий одновременно DREAM THEATER и LABYRINTH. Очень много клавишных и необузданных гитарных соло. Альбом полон ярких мелодий и чувств. Он довольно разнообразен и уравновешен. Прогрессивный металл сменяется мелодичными hard-rock вставками, а иногда проходами а-ля Malmsteen. Гитары звучат тяжело и мощно на фоне клавишных переливов, неплохая вокальная работа. Невообразимое неоклассическое гитарное колдовство, смешанное с мелодичными хорами и progressive metal высшего качества. Даже не знаю, что еще сказать... Если вам нравятся такие группы, как VANDEN PLAS, DREAM THEATER или QUEENSRYCHE, то ни в коем случае не пропустите этот альбом. Особенно рекомендую "Wash Your Sins Away" и "Wake Up The World", ну и еще красивый инструментал "Adagir".</p>
+<p> Диск выпущен по лицензии компанией <B>CD-MAXIMUM</B></p>
+
+Автор: Dimas
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 23.05.2004 reviews Опять без короны
+
+<P>Странно, почему группа Last Tribe известна у нас только знатокам и настоящим ценителям действительно хорошей музыки? Ведь все на месте у коллектива. Прекрасный вокалист Кикард Бенгтссон, который заливается соловьем ничем не хуже Брюса, Великого, Дикинсона. И голос присутствует, и эмоциональность на высоте, да и диапазон не маленький. Гитарист, Магнус, Отец Основатель, Карлссон, техникаигры которого вряд ли хуже, чем у Ингви, Великолепного, Малмстина. Игры на гитаре, естественно. На клавишах Магнус играет лучше Супербыстрого Маэстро, факт бесспорный. Да и своими безумными соло, в отличие от Малмстина, Магнус не досаждает слушателю. Меру знает. А уж какой в команде ударник… Джэйми Салазар, участник небезызвестного, а уж скорее культового коллектива TheFlowerKings. Такой корифей сидит за ударной установкой далеко не в каждой команде, что на слуху у любого металиста. Да прямо скажем, далеки барабанщики всяких Эдгаев и Фридомколлов от уровня Салазара. Да и не один диск в багаже у шведов. «Ритуал» 2001 и «Пляски Ведьмы» 2002го. Один лучше другого. </P>
+<P>И вот, в качестве подарка своим европейским слушателям на Новый год (японцы получили его несколько раньше, да еще и с бонусом), «последнеплеменные» выпускают свою лучшую, надеюсь на данный момент, работу - “The Uncrowned”. Композиторский талант Магнуса раскрылся в полной мере и в результате получился диск без проходных, пускай даже и суперсложных, песен. Играют музыканты всю ту же, как некоторые считают, не оригинальную версию мелодичного помпезного хэви с элементами, подчеркиваю, элементами прог-метала. Так, чтоб не слишком загружать мозги фэнов. Только тупые или упертые (скорее всего любители чистого прога и старого арт-рока) люди могут признать в них клон DreamTheater. Соглашусь, что некоторая схожесть в подходе к написанию МЕЛОДИЙ есть, особенно это слышится в великолепной балладе “Sacrifice”, но музыка то совершенно другая! А на оригинальность… да плевать, когда присутствуют такие хуковые песни.</P>
+<P>Итог. Альбом в двадцатке лучших. Прошлого года. Обязательный «мастхэв». Любителям оригинальности и экспериментов держаться подальше.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+### 23.09.2004 news Lande и Allen объединились в проекте
+
+<P>Два знаменитых певца <STRONG>Jorn Lande (MASTERPLAN)</STRONG> и <STRONG>Russel Allen (SYMPHONY X)</STRONG> объеденились для записи пластинки под вывеской <STRONG>LANDE/ALLEN</STRONG>. Известно также, что на гитаре в их проекте будет играть <STRONG>Magnus Karlsson</STRONG> (<B>LAST TRIBE</B>).&nbsp;Другая информация пока не сообщается.</P>
+Автор: Vit Belov
+
+### 19.01.2005 news STARBREAKER - новое приобретение Frontiers
+
+<P><STRONG>STARBREAKER</STRONG> - новая супер-группа, в которой объединили свои усилия вокалист <STRONG>TNT Tony Harnell</STRONG> и гитарист <STRONG>LAST TRIBE Magnus Karlsson</STRONG>. Дебютный альбом коллектива '<STRONG>Starbreaker</STRONG>' выйдет 21 марта на <STRONG>Frontiers</STRONG>. Обещается самая тяжёлая и агрессивная работа с участием этого певца.</P>
+Автор: Vit Belov
+
+### 01.08.2007 news Magnus Karlsson порвёт всех
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор альбомов <STRONG>ALLEN/LANDE</STRONG>, <STRONG>LAST TRIBE</STRONG> и <STRONG>STARBREAKER</STRONG> гитарист <STRONG>Magnus Karlsson</STRONG> пишет свою новую работу. На этот раз исполнять его хиты будет бывший фронтмэн <STRONG>Yngwie Malmsteen Mark Boals</STRONG>.&nbsp;Эта рабта будет более тяжёлой, чем последние пластинки от Магнуса.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также мультиинструменталист изучает кельтскую&nbsp;музыку, чтобы написать материал для шестого сольника вокалиста <STRONG>MAGNUM Bob Catley</STRONG>.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 20.09.2007 news Ещё один Magnus Karlsson
+
+<P>9 ноября на <STRONG>Frontiers </STRONG>выходит новый альбом группы <STRONG>THE CODEX</STRONG>. Это очередной проект <STRONG>Magnus Karlsson</STRONG> (<STRONG>ALLEN/LANDE, Toby O'Hora, LAST TRIBE</STRONG>). На этот раз вокалистом будет <STRONG>Mark Boals</STRONG>. Трэк-лист:</P>
+<P>01. <B>Beyond The Dark</B><BR>02. <B>Raise Your Hands</B><BR>03. <B>Toxic Kiss</B><BR>04. <B>Bring Down The Moon</B><BR>05. <B>Running Out Of Hate</B><BR>06. <B>Dream Makers</B><BR>07. <B>Whole Again</B><BR>08. <B>Mistress Of Death</B><BR>09. <B>Mystery</B><BR>10. <B>Prisoner</B><BR>11. <B>You Can Have It All</B><BR>12. <B>Garden Of Grief</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -173,6 +173,223 @@ Mix and mastering by Dan Swano
 
 * C группой "Manitou" 
 
+## Публикации
+
+### 18.03.2004 reviews Еще одна сенсация из Финляндии
+
+<P>Совершенный melodic death&nbsp;metal. Именно таким, он мне и представляется в идеале. Достаточно мелодичным, быстрым, но главное, жестким и тяжелым. Без всяких модных нововведений и клавишных соплей. В духе ранних DARK TRANQUILLITY, IN FLAMES и SOILWORK, иногда даже отдает AT THE GATES'ом.&nbsp;Это великолепный дебютный альбом многообещающей финской группы, записанный в Sonic Pump, а смикшированный на Finnvox. Но по нему можно смело делать выводы о высоком профессионализме музыкантов, их&nbsp;сильной технической подготовке и композиторских талантах. Еще прошлогодний мини-альбом OMNIUM GATHERUM поставил на уши музыкальную общественность. Первый полнометражник с блеском подтверждает сенсационность группы. В музыке этого коллектива комбинируется разрушающая брутальная энергетика с изысканной мелодичностью, красота музыкального материала с фантастическими усложнеными структурами. Сколько бы вы ее ни слушали, она долго не надоест, а будет литься бальзамом на раны тем, кто уже отчаялся послушать что-то новенькое и при этом, по их мнению, достойное. На мой взгляд, это лучший melodic death релиз 2003 года. Ни больше, ни меньше. И больше добавить к этому нечего, потому, как все сказано. </P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Dimas
+
+### 28.08.2004 news OMNIUM GATHERUM на Nuclear Blast
+
+<P>Финский melodic death-metal коллектив <STRONG>OMNIUM GATHERUM</STRONG> подписал контракт с <STRONG>Nuclear Blast</STRONG>. Второй альбом группы <STRONG>"Years In Waste" </STRONG>выйдет 9 ноября. CD был записан в <STRONG>Sonic Pump studios</STRONG> в Хельсинки с продюсером <STRONG>Nino Laurenne</STRONG>. Мастеринг пройдёт в <STRONG>Finnvox</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Fall Went Right Through Here</B><BR>02. <B>Misanthropic (Let the Crown Fall)</B><BR>03. <B>Bereavement</B><BR>04. <B>No Moon & No Queen</B><BR>05. <B>Gravesilence</B><BR>06. <B>It's a Long Night</B><BR>07. <B>The Nolan's Fati</B><BR>08. <B>Black Seas Cry</B><BR>09. <B>More Withering</B><BR>10. <B>Auguries Gone</B><BR></P>
+Автор: Vit Belov
+
+### 02.06.2005 reviews Старые песни о главном…
+
+<P>Однако, снова шведский мелодичный death metal. Однако, опять из Финляндии. Однако, не новички – собрались юкки аж в 1996 году. Однако, это третий их официальный релиз (были еще ЕР с альбомом и куча всяких демок). Однако…</P>
+<P>Однако, как оказалось, не все так просто. Могло бы быть много проще. Очевидно, прекрасно зная, что стандартной мелодичной дэтухой сейчас мало кого удивишь (ну, может быть, разве что каких-нибудь отсталых бушменов?.. но про них в буклете вроде как ничего не сказано), OMNIUM GATHERUM решили максимально разнообразить свою музыку. Ну, не стоит, конечно, обольщаться по поводу «максимально», но кое-какие нововведения имеют место быть. Умело, варьируя напористые, скоростные проходы с более мелодичными и замедленными, музыканты создают разнообразную (в рамках стиля, разумеется) и впечатляющую картинку. Ну, и исполнительский уровень у них что надо, многим на зависть. Однозначно удалась мелодика – из-за изрядно навороченной структуры композиций она получилась хоть и несколько сложноватой, но весьма интересной. Отменно выверен саунд – в меру плотный, приглаженный, без модной нынче в мелодик-дэтовых кругах ню-метальщины с гудящими басами. То, что надо. Ах, да, пара слов про вокальные изыски…. Ну, думаю, что хриплым гавкающим ревом сейчас мало кого удивишь – а здесь именно такой. И вот над ним, на мой взгляд, стоило поработать более тщательно – сюда подошел бы более глубокий и брутальный гроул.</P>
+<P>Никаких оригинальностей и неповторимостей здесь нет. И быть не может. И не стоит изучать диск под микроскопом. Ни к чему это. Но, покупая “Years In Waste”, знайте – вы становитесь обладателем настоящего качественного финского продукта. Однако, мне понравилось.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Dr. Grandma
+
+### 04.05.2006 news Потери OMNIUM GATHERUM
+
+<P>Финские мелодик дэтстеры <STRONG>OMNIUM GATHERUM</STRONG> расстались со своим вокалистом <B>Antti Filppu</B>. Имя нового вокалиста пока держится в секрете, но обещается сюрприз. Кроме того, <B>OMNIUM GATHERUM</B>&nbsp; расстались и&nbsp;со своим прежним лейблом <STRONG>Nuclear Blast.</STRONG> Сейчас, музыканты работают над своим новым альбомом, который должен стать лучшим в их карьере. Вместе с этим, идёт и поиск нового лейбла.&nbsp;</P>
+Автор: Dimas
+
+### 19.10.2006 news OMNIUM GATHERUM теперь на CANDLELIGHT RECORDS
+
+<P>Финские мелодик дэтстеры <STRONG>OMNIUM GATHERUM</STRONG> в очередной раз сменили лейбл. Их третий альбом под названием <STRONG>"Stuck Here On Snakes Way"</STRONG> выйдет на<STRONG> Candlelight Records.</STRONG> Его запись начнется в ноябре в стенах<STRONG> Southeast Studios</STRONG> с продюсером <STRONG>Teemu Aalto.</STRONG>&nbsp;Выход альбома ожидается весной 2007 года.&nbsp;</P>
+Автор: Dimas
+
+### 09.01.2007 news Новый альбом OMNIUM GATHERUM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>OMNIUM GATHERUM</STRONG> <FONT color=#ddd9d0><STRONG>"Stuck Here On Snakes Way" </STRONG>выходит 2 апреля на <STRONG>Candlelight</STRONG>. Трэк-лист:</FONT></FONT></P>
+<P>01. <STRONG>The Snake And The Way</STRONG><BR>02. <STRONG>Into Sea<BR></STRONG>03. <STRONG>Dysnomia<BR></STRONG>04. <STRONG>A-Part Of God</STRONG><BR>05. <STRONG>Undertaker<BR></STRONG>06. <STRONG>Bastard-O<BR></STRONG>07. <STRONG>The Third Flame</STRONG><BR>08. <STRONG>Just Signs</STRONG><BR>09. <STRONG>Truth<BR></STRONG>10. <STRONG>Drudgery<BR></STRONG>11. <STRONG>In Sane World</STRONG><BR>12. <STRONG>Spiritual</STRONG></P>
+Автор: Vit Belov
+
+### 29.05.2008 reviews Талантливые неожиданные повороты
+
+<P>А вот и финны, которым на Nuclear Blast не повезло. Видимо, вышедший в Германии альбом этой группы, несмотря на все старания лэйбла, остался незамеченным основной массой фэнов металлической музыки. Думается, OMNIUM GATHERUM не держат на «металлического мэйджора» зла. Та пластинка дала группе толчок, и теперь финны под крылом не менее заслуженного английского лэйбла Candlelight.</P>
+<P>И в данном случае мне всё ясно. Понятно, почему OG не продал миллион пластинок по всему свету. Их материал нельзя причислить ни к одному из существующих стилей тяжёлой музыки. Вернее так. Их можно запросто причислить к melodic-death-metal, но их melodic death-metal слишком нестандартный, чтобы приглянуться всем. Финны черпают отовсюду. Здесь и черты мелодичного брутального death от HYPOCRISY или GOREFEST, и достаточно стандартные мелодичные риффы от DARK TRANQUILLITY или раннего SENTENCED, например. Несмотря на рваную структуру материала, я советую присмотреться к этой группе повнимательней. Пускай это субъективно, но “Stuck Here On Snakes Way” мне понравился. Его интересно слушать, он здорово записан, музыка веселит своими неожиданными поворотами. Вы спросите, почему какие-то неожиданные повороты «веселят», а какие-то «удручают»? У меня нет ответа. Быть, может это то, что некоторые называют талант.</P>
+<P>Финская группа OMNIUM GATHERUM заслуживает внимания. Советую всем любителям melodic death-metal, которые хотя бы иногда жалуются на застой в своём любимом стиле.</P>
+Автор: Vit Belov
+
+### 02.06.2008 news OMNIUM GATHERUM закончили запись
+
+<P>Финны <STRONG>OMNIUM GATHERUM</STRONG> закончили запись четвёртого альбома <STRONG>"The Redshift</STRONG>". Пластинка была записана в двух студиях: <STRONG>Sound Supreme Studios</STRONG>&nbsp;<STRONG>и SouthEastSounds,</STRONG>&nbsp;а сведением занимался великий<STRONG> Dan Swano</STRONG> в студии <STRONG>Unisound</STRONG>. Трэк-лист:</P>
+<P>01. <B>Nail</B><BR>02. <B>A Shadowkey</B><BR>03. <B>Chameleon Skin</B><BR>04. <B>No Breaking Point</B><BR>05. <B>The Return</B><BR>06. <B>Shapes And Shades</B><BR>07. <B>The Redshifter</B><BR>08. <B>Greeneyes</B><BR>09. <B>The Second Flame</B><BR>10. <B>Song For December</B><BR>11. <B>Distant Light Highway</B> </P>
+Автор: Vit Belov
+
+### 05.01.2011 news Новое видео OMNIUM GATHERUM
+
+<P>Новое видео<STRONG> OMNIUM GATHERUM</STRONG> на песню <STRONG>"Soul Journeys" </STRONG>можно посмотреть ниже. Эта песня попадёт на пятый альбом финнов <STRONG>"New World Shadows"</STRONG>, который выйдет 7 февраля на <STRONG>Lifeforce Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/42qbzF_ektM?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/42qbzF_ektM?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.02.2016 news OMNIUM GATHERUM на MUSICA&#x2F;Escapemind.ru
+
+<P><SPAN class=tit3>EPD 16.10 OMNIUM GATHERUM “Grey Heavens” (Escapemind.ru / Musica / Lifeforce)</SPAN></P>
+<P>-melodic death doom metal; Новый седьмой альбом финской melodic death doom metal команды. Отличный подарок любителям раннего IN FLAMES, AMORPHIS, GHOST BRIGADE и INSOMNIUM. Альбомы коллектива уже выходили в России по лицензии. Первые два альбома <STRONG>«Spirits And August Lights”</STRONG> и «<STRONG>Years In Waste</STRONG>” выходили на Irond по лицензии Nuclear Blast и уже распроданы. Третий альбом финнов «<STRONG>Stuck here On Snakes Way</STRONG>” выходил на <STRONG>Mazzar </STRONG>по лицензии<STRONG> Candlelight</STRONG> и доступен в нашем каталоге. И вот <STRONG>OMNIUM GATHERUM</STRONG> возвращается в Россию с новым альбомом. Великолепная работа, мелодичный материал в среднем темпе. Группа гастролировала в России в 2009 году.</P>
+<P>Оптовым покупателям <A href="mailto:musica2005@yandex.ru">musica2005@yandex.ru</A></P>
+<P>Розничная продажа Escapemind.ru и магазин «Musica” B2-230 в ТЦ «Горбушкин Двор», метро Багратионовская</P>
+<P>Трек-лист:</P>
+<P><STRONG>1. The Pit&nbsp; 04:34&nbsp;&nbsp;&nbsp; <BR>2. Skyline&nbsp; 04:30&nbsp;&nbsp;&nbsp; <BR>3. Frontiers&nbsp; 05:09&nbsp;&nbsp;&nbsp; <BR>4. Majesty and Silence&nbsp; 08:36&nbsp;&nbsp;&nbsp; <BR>5. Rejuvenate!&nbsp; 05:28&nbsp;&nbsp;&nbsp; <BR>6. Foundation&nbsp; 05:49&nbsp;&nbsp;&nbsp; <BR>7. The Great Liberation&nbsp; 05:15&nbsp;&nbsp;&nbsp; <BR>8. Ophidian Sunrise&nbsp; 06:13&nbsp;&nbsp;&nbsp; <BR>9. These Grey Heavens&nbsp; 04:25 <BR>10. Storm Front&nbsp; 06:13</STRONG>&nbsp; </P>
+<P>Видео-клип «Frontiers”:</P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/ubmuUiozKyo" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>Песня «Skyline”:</P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/4SIo0VA2lFQ" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+### 22.09.2016 news OMNIUM GATHERUM едут к нам
+
+<h1>OMNIUM GATHERUM выступят в Москве и Санкт-Петербурге.</h1><p>Финская melodic death metal команда <strong>OMNIUM GATHERUM</strong> выступит в России в поддержку последнего альбома "<strong>Grey Heavens</strong>". Концерты состоятся 24 сентября в московском клубе "<strong>Театр</strong>" и 25 сентября в клубе "<strong>Opera</strong>" в Санкт-Петербурге.</p><p>Лицензионное издание альбома OMNIUM GATHERUM было выпущено лэйблом <strong>Escapemind.ru</strong> при поддержке <strong>MUSICA.mustdie.ru</strong> Вы можете приобрести диски финнов по привлекательной цене здесь: <a href="http://escapemind.ru/goods/OMNIUM-GATHERUM-Stuck-Here-on-Snakes-Way-Grey-Heavens-2CD-Pack">http://escapemind.ru/goods/OMNIUM-GATHERUM-Stuck-Here-on-Snakes-Way-Grey-Heavens-2CD-Pack</a></p><p>Два лицензионных диска всего за 400 рублей! Любителям INSOMNIUM, BE'LAKOR и AMORPHIS!</p><p><center><img width="400" height="562" src="/images/news_rus/2016.09/29990.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 25.09.2016 articles OMNIUM GATHERUM в Москве: В борьбе с отвратительным звуком
+
+
+<p style="margin-bottom: 0cm;"><em></em><center><img width="300" height="261" src="/images/articles_rus/2016.09/30017.jpg" border="0">&nbsp;</p><p style="margin-bottom: 0cm;"><em>Финская <span lang="en-US">melodic
+death metal </span><span lang="ru-RU">команда </span><span lang="en-US">OMNIUM
+GATHERUM </span><span lang="ru-RU">приезжает в Россию
+не в первый раз. В прошлый свой приезд
+группе не удалось собрать внушительной
+аудитории, но, видимо, организаторы
+концерта из </span><span lang="en-US">Spika </span><span lang="ru-RU">большие
+фэны мелодета, они рискнули ещё раз. </span>В
+этот раз в России запланировано два
+концерта, вчера, 24 сентября <span lang="en-US">OG
+</span></em><span lang="ru-RU"><em>выступили в московском
+клубе «Театр», а сегодня коллектив ждут
+в питерском клубе «Опера».</em> </span></p><p style="margin-bottom: 0cm;"><span lang="ru-RU"></span><span lang="ru-RU">Концерт в
+Москве открывали </span><span lang="en-US">melodic
+death metal'</span><span lang="ru-RU">исты из Рязани
+</span><span lang="en-US">SYMPULS-E. </span><span lang="ru-RU">В их
+активе целых два студийных альбома, но
+в нашей стране о них практически ничего
+не известно. Дело в том, что дебютную
+работу «Разрушая преграды» группа
+издала своими силами, а последний на
+сегодня альбом «</span><span lang="en-US">Solarstorm”
+</span><span lang="ru-RU">издал американский </span><span lang="en-US">UG
+</span><span lang="ru-RU">лэйбл </span><span lang="en-US">Metallic
+Media, </span><span lang="ru-RU">который естественно
+не очень заинтересован в раскрутке
+коллектива в России. Отечественные
+лэйблы почти ничего не делают для групп,
+а уж американцам ничего сделать вообще
+невозможно. «</span><span lang="en-US">Solarstorm”
+</span><span lang="ru-RU">получил неплохую дистрибуцию
+по всему миру, </span><span lang="en-US">Metallic Media
+</span><span lang="ru-RU">активно участвуют в
+системе андеграундного трейда, и купить
+этот диск в России по приемлемой цене
+не представляет никакой сложности.
+Отличительной особенностью </span><span lang="en-US">SYMPULS-E
+</span><span lang="ru-RU">были девушки-вокалистки.
+Альбомы также были записаны с женским
+брутальным вокалом, к сожалению, у ребят
+что-то не сложилось и теперь у микрофона
+парень — Вячеслав Власкин, к девушке
+внимания было бы больше. К сожалению,
+ничего конкретного о выступлении
+рязанцев в субботу сказать нельзя.
+Слышно, что этот материал должен быть
+</span><span lang="en-US">melodic death metal, </span><span lang="ru-RU">но
+звук на прошедшем концерте был удручающим.
+Был слышен только ритмический рисунок
+и скрим, какие музыкальные задумки или
+творческие новации предлагают </span><span lang="en-US">SYMPULS-E
+</span><span lang="ru-RU">понять было невозможно.
+Отметим для себя, что в Рязани появилась
+</span><span lang="en-US">melodic death metal </span><span lang="ru-RU">команда,
+наследница известных в своё время
+</span><span lang="en-US">HATECRAFT, </span><span lang="ru-RU">но
+повременим с выводами.</span></p>
+<p style="margin-bottom: 0cm;"><span lang="ru-RU">К моменту
+выхода на сцену </span><span lang="en-US">OMNIUM
+GATHERUM </span><span lang="ru-RU">подтянулись последние
+поклонники архаичного </span><span lang="en-US">melodic
+death metal, </span><span lang="ru-RU">их в этот вечер в
+Москве оказалось не очень много. Зал
+был заполнен едва ли наполовину, но
+присутствующие в зале практически в
+полном составе знали, на какую банду
+они пришли и завелись с полоборота.
+Финнов встретили очень тепло, не смотря
+на то, что звук так и остался очень
+плохим, надежды на то, что его строили
+специально под </span><span lang="en-US">OMNIUM GATHERUM
+</span><span lang="ru-RU">расстаяли как дым. Видимо,
+клуб «Театр» просто не приспособлен
+для групп, в которых больше трёх
+музыкантов. Зарубежные гости подошли
+к настройке очень практично. Поняв, что
+всё здесь звучать не будет, </span><span lang="en-US">OG
+</span><span lang="ru-RU">просто оставили самое
+важное для их музыки, вокал, соло-гитару
+и барабан. Клавишника, ритм-гитариста,
+басиста и подпевки было просто не слышно.
+Особенно забавно было наблюдать
+клавишника </span><span lang="en-US">Aapo Koivisto, </span><span lang="ru-RU">который
+активно работал головой, поднимая
+настроение публики, но своего инструмента
+касался лишь изредка, а все клавишные
+партии, которые до нас доносились, были
+заранее им запрограммированы. </span><span lang="en-US">OMNIUM
+GATHERUM </span><span lang="ru-RU">отдали должное как
+новому, так и старому материалу, мне
+показалось, что публика теплее принимала
+новые песни с вышедшего в этом году
+альбома «</span><span lang="en-US">Grey Heavens” (Lifeforce
+Records/Escapemind.ru). </span><span lang="ru-RU">Особенный
+кайф фанаты поймали во время исполнения
+хита «</span><span lang="en-US">Skyline”, </span><span lang="ru-RU">удачно
+скопированного </span><span lang="en-US">OG </span><span lang="ru-RU">с
+творчества </span><span lang="en-US">AMORPHIS. </span></p><p style="margin-bottom: 0cm;"><span lang="en-US"></span><span lang="en-US">Melodic death metal
+</span><span lang="ru-RU">финской школы популярен
+у наших любителей тяжеляка, но то ли
+этот стиль не является приоритетом для
+концертного прослушивания, то ли обилие
+концертов не оставило финнам шансов на
+успех, но шоу </span><span lang="en-US">OMNIUM GATHERUM </span><span lang="ru-RU">в
+Москве вновь не прошло при аншлаге. К
+профессиональным качествам музыкантов
+претензий не может быть никаких, и
+посетившие шоу остались довольны их
+выступлением, но, видимо, статуса финнов
+недостаточно для успешных соло-концертов
+за рубежами родной страны. </span></p><p style="margin-bottom: 0cm;"><span lang="ru-RU"></span><strong><span lang="ru-RU">Приобретайте
+диски </span><span lang="en-US">OMNIUM GATHERUM </span><span lang="ru-RU">в
+магазине </span><span lang="en-US">Escapemind.ru,
+</span><span lang="ru-RU">официального издателя
+нового альбома группы «</span><span lang="en-US">Grey
+Heavens”:
+http://escapemind.ru/goods/OMNIUM-GATHERUM-Stuck-Here-on-Snakes-Way-Grey-Heavens-2CD-Pack</span></strong></p>
+Автор: Vit Belov
+
+### 19.10.2016 news OMNIUM GATHERUM на Century Media
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Финны<strong> OMNIUM GATHERUM</strong> подписали контракт с <strong>Century Media</strong>. Предыдущий альбом "<strong>Grey Heavens</strong>" также выходил на этом лэйбле на США. Теперь CENTURY MEDIA приобрели исключительные права.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности о новом альбоме последуют.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Лучшая цена на лицензионную версию последнего альбома группы на сайте производителя Escapemind.ru: <a href="http://escapemind.ru/goods/OMNIUM-GATHERUM-Grey-Heavens">http://escapemind.ru/goods/OMNIUM-GATHERUM-Grey-Heavens</a></font></p><p><center><img width="500" height="301" src="/images/news_rus/2016.10/30106.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.10.2016 news OMNIUM GATHERUM – sign deal with Century Media Records!
+
+<p>Finnish melodic death metal act OMNIUM GATHERUM has just signed a deal with Century Media Records! After already having signed the band with their latest album “Grey Heavens” for North America, Century Media Records is now going global and will release the upcoming albums worldwide!<br>&nbsp;<br>Guitarist Markus Vanhala: "We're very loud and proud to announce Omnium Gatherum signing to one of the leading legends in metal, Century Media Records! Last years have been really good for OG and joining CM tour de force is a natural next step on our path to limelight and glorification. I've known Jens and the good staff of CM many years and I know they're hardworking, honest and very nice people to hang out, so we're very much looking forward to this shiny partnership! We wanna send out our biggest thanks and respect also to Mr. Stefan Lьdicke and Lifeforce Records for saving us back then and doing a really good job for the band many previous years. May the force be with us all & many good evil things to follow!"<br>&nbsp;<br>Jens Prьter, Head of A&R: “It’s already 7 years ago when we first met at legendary show in my 'live living room', the Turock Club in Essen, Germany. Swallow The Sun, Insomnium and Omnium Gatherum was the dream package for every fan of dark metal! We stayed in contact over all the years and I’m really happy that we now can complete the trio of this very remarkable night. The last Omnium Gatherum album 'Grey Heavens' turned out to be a high point of their almost 20 year long career and we all know that the band will continue to grow. I want to thank my friend and OG founding member Markus Vanhala for the trust in Century Media and I would also like to thank Stefan Lьdicke from Lifeforce Records for the great work on the last 3 albums!”<br>&nbsp;<br>OMNIUM GATHERUM are going to embark on North American tour in November this year. See below for the exact dates. <br>&nbsp;<br>OMNIUM GATHERUM live <br>06.11.2016 Charlotte, NC (USA) – The Fillmore*<br>07.11.2016 Silver Spring, MD (USA) – The Fillmore*<br>08.11.2016 Clifton Park, NY (USA) – Upstate Concert Hall*<br>09.11.2016 Philadelphia, PA (USA) – The Troca<br>10.11.2016 Providence, RI (USA) – Firehouse 13**<br>11.11.2016 Sayreville, NJ (USA) – Starland Ballroom*<br>12.11.2016 Hartford, CT (USA) – Webster Theater*<br>13.11.2016 Montreal, QC (CAN) – Club Soda*<br>14.11.2016 Ottawa, ON (CAN) – Mavericks*<br>15.11.2016 Quebec, QC (CAN) – Le Cercle**<br>16.11.2016 Kitchener, ON (CAN) – Dallas*<br>17.11.2016 Columbus, OH (USA) – Park Street Saloon*<br>18.11.2016 Westland, MI (USA) – Token Lounge*<br>19.11.2016 Pittsburgh, PA (USA) – Altar Bar*<br>20.11.2016 Cleveland, OH (USA) – Agora Ballroom**<br>21.11.2016 Milwaukee, WI (USA) – The Rave*<br>22.11.2016 Minneapolis, MN (USA) – Mill City Nights*<br>24.11.2016 Regina, SK (CAN) – The Exchange*<br>25.11.2016 Calgary, AB (CAN) – Dickens*<br>26.11.2016 Edmonton, AB (CAN) – Starlite Room*<br>28.11.2016 Vancouver, BC (CAN) – The Venue*<br>29.11.2016 Seattle, WA (USA) – El Corazon*<br>30.11.2016 Portland, OR (USA) – Hawthorne Theatre*<br>02.12.2016 San Francisco, CA (USA) – Slim’s*<br>03.12.2016 San Diego, CA (USA) – Brick by Brick*<br>04.12.2016 Anaheim, CA (USA) – The Grove*<br>05.12.2016 Tempe, AZ (USA) – Club Red*<br>06.12.2016 El Paso, TX (USA) – Tricky Falls*<br>08.12.2016 Englewood, CO – Gothic Theater*<br>09.12.2016 Lawrence, KS (USA) – Granada*<br>10.12.2016 Dallas, TX (USA) – Trees*<br>11.12.2016 McAllen, TX (USA) – Cine el Rey*<br>12.12.2016 Austin, TX (USA) – Dirty Dog Bar**<br>13.12.2016 San Antonio, TX (USA) – Alamo Music Hall*<br>14.12.2016 Houston, TX (USA) – Scout Bar*<br>16.12.2016 Lake Buena Vista, FL (USA) – House of Blues*<br>17.12.2016 Atlanta, GA (USA) – The Masquerade*<br>* With Sonata Arctica, Leaves Eyes<br>** Leaves’ Eyes</p><p><center><p><center><img width="500" height="301" src="/images/news_rus/2016.10/30106.jpg" border="0"><p></p></center></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

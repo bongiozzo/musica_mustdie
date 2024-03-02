@@ -26,6 +26,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.07.2016 news Третий альбом шведов STILLA
+
+<p>Шведская black metal группа<strong> STILLA</strong> выпускает третий альбом "<strong>Skuggflock</strong>" 19 августа на <strong>Bindrune/Nordvis</strong>. Группа предлагает меланхоличный и агрессивный материал. Ниже можно услышать трек с альбома "<strong>Varens Sista Onskan</strong>".</p><p>Трек лист:</p><p>1. Irrfдrd<br>2. Vеrens sista цnskan<br>3. Skuggflock<br>4. Till den som skall komma<br>5. I tystnad vilar sjдlen<br>6. Av maran riden<br>7. Ett inre helvete - ett yttre helvete</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.07/29532.jpg" border="0"></p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/aswYjQX9JT0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 05.07.2016 news STILLA - Skuggflock set to release in via Bindrune Recordings&#x2F;Nordvis Productions
+
+<p>Skuggflock (Shadowpack). The third offering. Stilla returns with yet another monumental recording that reeks of aggressive, beautiful and melancholic metal. After two years of silence Stilla now slightly moves out from the shadows and once again we get the opportunity to experience the very typical rugged Stilla sound we first heard on their 2013 album Till stilla falla. Here blended with inspiration and emotions not far away from what the prog-rockers Goblin achieved with D. Argento in the 70's. </p><p>Stilla has always created their own unique style of Scandinavian Black Metal where the sound more then seldom travels into the nostalgic 90's mid era. /react-text</p><p>And Skuggflock is definitely not an exception...</p><p>Track list:</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.07/29532.jpg" border="0"><p></p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/aswYjQX9JT0" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

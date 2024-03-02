@@ -146,6 +146,654 @@ Recorded between March and June 2009.
 * C группой "Blood Stained Dusk" Pest (vocal)
 * C группой "Obtained Enslavement" Pest (vocal)
 
+## Публикации
+
+### 19.03.1999 news 
+
+<p>Gorgoroth решили войти в студию для записи нового альбома "Incipit Sathanas" в июне. Барабанщиком на этой работе будет Аббат из Immortal. Также на альбоме засветится клавишник Enslaved Ивар.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Совершил самоубийство ещё один музыкант. На этот раз это Грим (Эрик). Он известен по участию в группах Borknagar, Gorgoroth, Immortal, Ancient. Новости из лагеря Borknagar^ Ник Бэйкер не будет записывать с ними новый альбом, а уедет в Англию, где сконцентрируется на работе в Dimmu Borgir и Lock Up.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Gorgoroth закончили запись нового опуса "Incipit Sathanas". Он выйдет в 2000 году.</p>
+
+Автор: Vit Belov
+
+### 25.04.2001 reviews И что только деньги делают с людьми...
+
+<P>Прямо даже не знаю что сказать-то о новом альбоме ГОРГОРОТА - огульно (хоть и вполне заслуженно!) ругать его язык не поворачивается из уважения к былым релизам, а найти в новом диске хоть что-то мало-мальски хорошее ну просто никак не получается при всем желании.</P>
+<P>Продавшихся групп история знает немало (хотя Металлику пока еще никто не переплюнул!), но чтобы уж вот так вот... Даже после насквозь коммерческого, но еще вполне слушабельного "Дестроера" новый "Инсипит Сэйтан" выглядит просто как шлюха на панели. У меня просто в голове не укладывается, как можно суметь (или хотя бы попытаться!) на одном коротеньком альбоме охватить столько различных стилей, сколько на нем треков.</P>
+<P>Связавшись с мажорным лейблом Ньюклеа Бластом классическая и далеко не слабая ТРУ-блэковая группа не только потеряла свое лицо, но и в угоду своим коммерческим интересам готова играть за деньги вообще все что угодно, лишь бы заплатили (как стоящему на улице пенсионеру с гармошкой крутой пахан в золотых цепях и перстнях бросает червонец, чтобы тот сыграл "Мурку").</P>
+<P>Можно, конечно, долго спорить, НО _!!!_ (уверен, что блэкстеры со мной как один согласятся): амурно-танцевальный любовный медляк When love rages wild in my heart (последний трек), про то, что "любовь бушует в моем сердце" может сам по себе не так уж и плох, но какому идиоту пришло в голову пихать ЭТО на ТРУ-БЛЭКовый альбом!!! Такие извращения никак не являются расширением границ стиля БЛЭКа, а только откровенным его опошлением, впрочем как и эротическо-любовные страдания лирической балладе Unchain my heart!!! (что она вообще делает на ТРУ-БЛЭКовом диске!?), ну а верхом маразма во всей этой бестолковой каше является предпоследний трек Will to power сыгранный в стиле ИНДАСТРИАЛ !!!</P>
+<P>Если честно, давно я так не смеялся, хотя, на самом деле, хочется плакать... Мне кажется что не просто так после перехода на мажрный лейбл Грим (Эрик) покончил жизнь самоубийством - я сам был готов утопиться в унитазе еле дослушав до конца всю эту пакость, и с трудом веря, что это - ГОРГОРОТ !!!</P>
+<P>Итого, данный альбом годится исключительно для любителей песен АББА в исполнении ХЕЛОВИНЪ, хотя, справедливости ради, честно заслуживает свои 3 из 10 - очко за интересную и здорово оформленную обложку плюс по очку за первые два замечательные трека, сыгранные в лучших традициях старого, доброго, любимого и уважаемого ГОРГОРОТА. Вечная ему ПАМЯТЬ...</P>
+Автор: Alexey Pitirimov
+
+### 10.05.2001 news Новости из Норвегии
+
+<p> Новости из Норвегии. В сентябре группа Gorgoroth отправится в студию, чтобы записать следующий, после "Incipit Satan", альбом.</p>
+
+Автор: Nybras
+
+### 07.12.2001 news GORGOROTH news...
+
+<p>Besides a few live shows the band played in Mexico and Colombia in September and October, they are keeping busy planning, writing and rehearsing for the next album. The band plans to enter the studio early next year to record the follow-up to 2000's highly acclaimed, Incipit Sathanas.</p>
+
+Автор: Yermola
+
+### 28.08.2002 news Gorgoroth начали работу над новым альбомом....
+
+<p>Gorgoroth начали работу над новым альбомом. На CD будут 8 песен, и Ghaal собирается дописать свой вокал, когда выйдет из тюрьмы (приблизительно в декабре). Из других новостей, группу покинул Tormentor, и Gorgoroth используют сессионного музыканта на концертах.</p>
+
+Автор: Yermola
+
+### 28.08.2002 news Gorgoroth have started working ...
+
+<p>Gorgoroth have started working on their new studio album. There are 8 songs finished and Ghaal is expected to add his vocals when he is allowed to from prison, probably in December. In other band news Tormentor is no longer with them and they will use a session member for their live shows.</p>
+
+Автор: Yermola
+
+### 09.02.2003 news В сотрудничестве с Сатаной
+
+<p>Норвежская black metal формация GORGOROTH завершила мастеринг своего нового творения под названием "Twilight of the Idols (In Conspiracy with Satan)". Выпуск альбома планируется в мае 2003 года на Nuclear Blast Records. В альбом войдут следующие вещи:</p>
+<p> 1. Procreating Satan <BR> 2. Proclaiming Mercy (Damaging Instinct of Man) <BR> 3. Exit Through Carved Stones<BR> 4. Teethgrinding <BR> 5. Forces of Satan Storms <BR> 6. Blod Og Minne <BR> 7. Of Ice and Movement <BR> 8. Domine in tua Laetavitur Rex</p>
+
+Автор: Dimas
+
+### 27.08.2003 news Будет снят фильм о норвежской black-metal сцене
+
+<p>SATYRICON, DARKTHRONE и GORGOROTH станут героями документального фильма о Норвежской black-metal сцене. Съёмки пройдут на одном из фестевалей в Норвегии в конце этой недели. Подробности последуют...</p>
+
+Автор: Vit Belov
+
+### 18.10.2003 news GORGOROTH vocalist will head to court
+
+<B>GORGOROTH'</B>s <B>Gaahl</B> is heading to court the 20. October. He is accused for unordinary vile use of violence. <B>Gaahl</B> risk a 6 years sentence if he get condemn, the outcome of the court trial will be annonced in a couple of weeks.
+Автор: Vit Belov
+
+### 18.10.2003 news Gaahl предстанет перед судом
+
+Вокалист <B>GORGOROTH Gaahl</B> предстанет перед судом 20 октября. Он обвиняется в "особотяжком применении насилия". В случае признания его вины ему грозит заключение сроком до 6 лет.
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 20.12.2003 news Новости от GORGOROTH
+
+<P>У <B>GORGOROTH</B> теперь новый официальный веб-сайт - <B><A href="http://www.gorgoroth.org/" target=_self>http://www.gorgoroth.org/</A></B>! На нем можно найти уйму различной полезной информации о группе: mp3-файлы, новости, форум, биографии и множество новых фотографий каждого участника группы. Этот сайт регулярно обновляется и хоть раз на него стоит зайти!</P>
+<P>Также стало известно, что группа работает над DVD со съемками с концертных выступлений. Материал будет записан в Кракове (Польша). Еще на этом диске должны быть интервью с участниками квартета и масса другого материала.</P>
+Автор: Darkfall
+
+### 30.12.2003 news Концертное DVD GORGOROTH
+
+<P><SPAN class=issuetitle>Известная блэк-металл команда <B>GORGOROTH</B> планиркет выпустить концертное DVD. Запись будет сделана на концерте 1 февраля в Кракове (Польша). Если есть желающие засветиться на записи или просто попасть на концерт, то у вас ещё есть время.</SPAN></P>
+Автор: Uneral
+
+### 22.04.2004 news Gorgoroth заменили барабанщика
+
+<B>GORGOROTH</B> покинул барабанщик <B>Kvitrafn </B>по персональным мотивам. Замена ему уже названа - это знаменитый <B>Frost</B> (<B>SATYRICON</B>, <B>1349</B>). Из других сообщений, группа покинула <B>Nuclear Blast</B> и ведёт переговоры с другими лэйблами.
+Автор: Vit Belov
+
+### 05.05.2004 news Вокалист GORGOROTH получил срок
+
+<P><IMG height=364 alt="" hspace=0 src="/images/news_rus/2004.05/6474.jpg" width=235 align="left" border=5>К 18 месяцам тюрьмы был приговорён вокалист <B>GORGOROTH Gaahl</B>. Напомним, что он обвинялся в применении насилия, а уже на суде к этому было добавлено обвинение в "ритуальном насилии". Кроме того, <B>Gaahl</B> вынужден будет заплатить компенсацию пострадавшему, в сумме где-то 15000 долларов.</P>
+<P>Из других новостей, <B>Frost </B>не будет новым барабанщиком <B>GORGOROTH</B>, как сообщалось ранее. Он слишком занят в своих основных группах: <B>1349</B> и <B>SATYRICON</B>. <B>GORGOROTH</B> продолжают поиск нового музыканта.</P>
+Автор: Vit Belov
+
+### 10.08.2004 news GORGOROTH написали песни для нового альбома
+
+<P><B>GORGOROTH</B> написали песни для нового альбома <B>"Ad Majorem Sathanas Gloriam" </B>и близки к заключению договора с <B>Season Of Mist</B>. В этом месяце группа будет прослушивать барабанщиков для своего осеннего тура по Европе.</P>
+Автор: Vit Belov
+
+### 04.01.2005 news GORGOROTH начинают запись
+
+<P><STRONG>GORGOROTH</STRONG> начинают запись нового альбома "<STRONG>Ad Majorem Sathanas Gloriam</STRONG>" 5 января. Будет записано 8 песен. Подробности не сообщаются.</P>
+Автор: Vit Belov
+
+### 31.01.2005 news GORGOROTH переиздадут свою классику
+
+<P>На <STRONG>Season Of Mist</STRONG> в ближайшее время будут переизданы альбомы <STRONG>GORGOROTH </STRONG>'<STRONG>Pentagram</STRONG>', '<STRONG>Antichrist</STRONG>' и '<STRONG>Under</STRONG> <STRONG>The Sign Of Hell</STRONG>'. 17 февраля ремастированные записи увидят свет в digi-pack издании.</P>
+Автор: Vit Belov
+
+### 31.01.2005 news GORGOROTH to re-issue their &#39;classics&#39;
+
+<P><STRONG>GORGOROTH</STRONG>&nbsp;re-release of their 'anthem cult classics' "<STRONG>Pentagram</STRONG>", "<STRONG>Antichrist</STRONG>", and "<STRONG>Under The Sign Of Hell</STRONG>". Remastered and Repackaged in Deluxe Digipak, these albums previously available as imports document <STRONG>GORGOROTH</STRONG>'s formative years. Scheduled release dates through <STRONG>Season Of Mist</STRONG>&nbsp;slated for February 17th.</P>
+Автор: Vit Belov
+
+### 02.02.2005 news GORGOROTH to sign with Regain
+
+<P><STRONG>GORGOROTH</STRONG> sign deal with <STRONG>Regain Records</STRONG>. New album of the band "<STRONG>Ad Majorem Sathanas Gloriam</STRONG>" will release in 2005.</P>
+Автор: Vit Belov
+
+### 02.02.2005 news GORGOROTH подписали соглашение с Regain Records
+
+<P><STRONG>GORGOROTH</STRONG> подписали контракт на выпуск нового альбма "<STRONG>Ad Majorem Sathanas Gloriam</STRONG>" с <STRONG>Regain Records</STRONG>. Пластинка увидит свет когда-то в 2005.</P>
+Автор: Vit Belov
+
+### 16.11.2005 news Стал известен райдер GORGOROTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В распоряжении <STRONG>BLABBERMOUTH.NET </STRONG>оказался райдер норвежских тру-блэкеров <STRONG>GORGOROTH</STRONG> во время их текущего тура с<STRONG> 1349</STRONG>. Кроме достаточного количества выпивки, специально указано, что коллективу требуются розовая туалетная бумага (экстра-мягкая) и презервативы с клубничным вкусом. Бей позёров!!!</FONT></P>
+Автор: Vit Belov
+
+### 29.05.2006 news Новый альбом GORGOROTH уже на подходе
+
+<P>Новый альбом <STRONG>GORGOROTH</STRONG> <STRONG>"Ad Majorem Sathanas Gloriam"</STRONG> будет выпущен в Европе 19 июня на лейбле <STRONG>Regain Records</STRONG>, в Америке же он выйдет 25 июля на <STRONG>Candlelight Records</STRONG>. Микшировал материал гитарист группы <STRONG>Infernus</STRONG> (наст. имя - <STRONG>Roger Tiegs</STRONG>) в студии <STRONG>Cutting Room</STRONG> (Stockholm, Sweden).&nbsp; </P>
+<P>"<STRONG>Ad Majorem Sathanas Gloriam</STRONG>" трек-лист:<BR>01. <STRONG>Wound upon Wound</STRONG><BR>02. <STRONG>Carving a Giant</STRONG><BR>03. <STRONG>God Seed (Twilight of tha Idols)<BR></STRONG>04. <STRONG>Sign of an Open Eye<BR></STRONG>05. <STRONG>White Seed<BR></STRONG>06. <STRONG>Exit<BR></STRONG>07. <STRONG>Untamed Forces<BR></STRONG>08. <STRONG>Prosperity and Beauty</STRONG></P>
+Автор: mcallen
+
+### 28.06.2006 news GORGOROTH расстались с басистом
+
+<P>Норвежские&nbsp;чернушники&nbsp;<B>GORGOROTH</B> расстались со своим басистом и сограйтером <STRONG>King ov Hell</STRONG>, который имел в последнее время определенные несогласия с идеологическими аспектами коллектива. Напомним, что последний альбом коллектива <B>"Ad Majorem Sathanas Gloriam"</B>&nbsp;поступил в продажу с 19 июня через <STRONG>Regain Records.</STRONG> Следующий свой альбом, музыканты планируют выпустить поздней осенью 2007 года,&nbsp;чтобы отметить&nbsp;им свое пятнадцатилетие.</P>
+Автор: Dimas
+
+### 08.01.2007 news Gaahl на свободе
+
+<P>В этом месяце из тюрьмы был освобождён вокалист <STRONG>GORGOROTH Gaahl</STRONG>. Музыкант находился в заточении с весны 2006 года по обвинению в "ритуальном насилии".</P>
+Автор: Vit Belov
+
+### 22.10.2007 news Проблемы в GORGOROTH
+
+<P>Вокалист&nbsp;<STRONG>Gaahl</STRONG> и басист <STRONG>King ov Hell&nbsp;</STRONG>сообщили об увольнении из&nbsp;<STRONG>GORGOROTH</STRONG>&nbsp;гитариста<STRONG> Infernus</STRONG>.&nbsp;Группа поедет в тур вместе с новым гитаристом. В то же время сам<STRONG> Infernus</STRONG> заявляет, что будет отстаивать в суде свои права на имя<STRONG> GORGOROTH</STRONG>.&nbsp; </P>
+Автор: Vit Belov
+
+### 26.10.2007 news Hellhammer в GORGOROTH
+
+<P>Барабанщик <STRONG>Hellhammer</STRONG> (<STRONG>DIMMU BORGIR, MAYHEM</STRONG>) присоединится к <STRONG>GORGOROTH</STRONG> в начале 2008 года. Присоединится он к версии <STRONG>GORGOROTH</STRONG> от <STRONG>Gaahl</STRONG>, который спорит сейчас с бывшим гитаристом <STRONG>Infernus</STRONG>, из-за названия группы.</P>
+Автор: Vit Belov
+
+### 16.12.2007 news Infernus прав в GORGOROTH
+
+<P><STRONG>Regain Records</STRONG> неожиданно признали правоту гитариста <STRONG>Infernus</STRONG>, уволенного из <STRONG>GORGOROTH</STRONG> около месяца назад, в его споре с вокалистом <STRONG>Ghaal</STRONG>. </P>
+<P>"<EM>Regain Records наконец-то приняли решение, касающееся споров вокруг имени GORGOROTH", -</EM> сообщает лэйбл.<EM>&nbsp;"Regain Records&nbsp;продолжит сотрудничество с группой, возглавляемой&nbsp;оригинальным членом коллектива Infernus и новым составом, который он наберёт. Этот новый состав будет объявлен Infernus&nbsp;через новый официальный сайт группы </EM><A href="http://www.gorgoroth.info/"><EM>www.gorgoroth.info</EM></A><EM>. Regain Records признаёт Infernus единственным&nbsp;и полноправным владельцем прав на имя группы, логотип и торговую марку и готово предпринять любые легальные шаги по предотвращению использования этих прав третьими лицами</EM>". &nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 20.12.2007 news King и Gaahl наносят ответный удар
+
+<P>Страсти вокруг названия <STRONG>GORGOROTH</STRONG> продолжают накаляться. Басист <STRONG>King Ov Hell</STRONG> и вокалист<STRONG> Gaahl</STRONG> объявили, что норвежское патентное бюро подтвердило их права на название <STRONG>GORGOROTH</STRONG>, и претензии третьей стороны являются безосновательными. <STRONG>GORGOROTH</STRONG> покидают <STRONG>Regain Records</STRONG>, который поддержал использование названия <STRONG>GORGOROTH</STRONG>&nbsp;гитаристом<STRONG> Infernus</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 27.12.2007 news А Infernus назвал состав
+
+<P>Несмотря на продолжающиеся дрязги вокруг имени<STRONG> GORGOROTH</STRONG> со своими бывшими коллегами, гитарист<STRONG> Infernus</STRONG> назвал двух музыкантов, которые составят ему компанию при записи нового альбома <STRONG>'Quantos Possund ad Satanitatem Trahunt'</STRONG>. Ими стали&nbsp;<STRONG>Tomas Asklund</STRONG> (<B>DISSECTION</B>)&nbsp;и <B>Frank Watkins</B> (<B>OBITUARY</B>). Пластинка будет записана летом.</P>
+Автор: Vit Belov
+
+### 12.03.2008 news В GORGOROTH продолжается свара
+
+<P>Гитарист<STRONG> Infernus</STRONG> продолжает активные действия по оспариванию решения норвежского патентного бюро, по которому права на название <STRONG>GORGOROTH</STRONG> принадлежат его бывшим партнёрам <STRONG>Ghaal</STRONG> и <STRONG>King ov Hell</STRONG>. По предположениям гитариста, дело будет передано в суд в июне.</P>
+Автор: Vit Belov
+
+### 29.07.2008 news Продажа DVD GORGOROTH должна быть остановлена
+
+<P>Члены <STRONG>GORGOROTH Ghaal</STRONG> и <STRONG>King</STRONG> выиграли дело у <STRONG>Regain Records</STRONG> и добились остановки продажи DVD <STRONG>GORGOROTH</STRONG> <STRONG>'Live in Greighallen', </STRONG>который вышел в июне. Основной причиной волнения музыкантов стало то, что гитарист<STRONG> Infernus</STRONG>, их бывший коллега, переписал басовые партии<STRONG> King</STRONG> для этого релиза. Соответственно в составе группы <STRONG>GORGOROTH</STRONG> не осталось <STRONG>King Ov Hell</STRONG>.</P>
+<P>Интересно, а как на DVD выглядит официально заявленный и гитаристом, и басистом <STRONG>Infernus</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.08.2008 news Infernus продолжает тяжбу
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>GORGOROTH Infernus</STRONG> продолжает оспаривать права своих бывших коллег певца <STRONG>Ghaal</STRONG> и басиста <STRONG>King Ov Hell</STRONG> на название группы. Музыкант готовится к записи новой пластинки <STRONG>'Quantos Possunt ad Satanitatem Trahunt'</STRONG> и<STRONG>&nbsp;</STRONG>ждёт решения суда по своему делу.</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR></P></FONT>
+Автор: Vit Belov
+
+### 24.08.2008 news GORGOROTH войдут в студию
+
+<P><STRONG>GORGOROTH</STRONG>, ведомые <STRONG>Ghaal</STRONG>, войдут в студию 25 августа для записи новых песен. В составе коллектива, кроме <STRONG>Ghaal</STRONG> и <STRONG>King</STRONG>, знаменитый барабанщик <STRONG>Frost</STRONG>, а также гитаристы<STRONG> Teloch</STRONG> и<STRONG> Ice Dale</STRONG>.</P>
+Автор: Vit Belov
+
+### 30.08.2008 news DRAMA и RAGOR поддержат GORGOROTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Российские Black-metal группы <STRONG>DRAMA</STRONG> и<STRONG> RAGOR</STRONG> выступят 20 октября&nbsp;в Санкт-Петербурге вместе с норвежцами <STRONG>GORGOROTH</STRONG> в рамках их визита в Россию.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей. <STRONG>DRAMA </STRONG>выложили на своей<STRONG> MySpace</STRONG> страничке концертное видео с концерта в Минске. Питерцы исполняют песню "<STRONG>Assault by Chaos Hysteria</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/dramastorm">http://www.myspace.com/dramastorm</A> </FONT></P>
+Автор: Vit Belov
+
+### 30.08.2008 news DRAMA and RAGOR to support GORGOROTH
+
+<P>Russian Black-metal bands <STRONG>RAGOR</STRONG> and <STRONG>DRAMA </STRONG>to support <STRONG>GORGOROTH</STRONG> in St. Petersburg, Russia on 20th of October. <STRONG>GORGOROTH</STRONG> will play two shows in Moscow and St. Petersburg in October.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>In other news, <STRONG>DRAMA</STRONG> have posted new live-video "<STRONG>Assault by Chaos Hysteria</STRONG>"&nbsp;from Minsk, Belarus&nbsp;on their <STRONG>MySpace</STRONG> page.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Link: </FONT><A href="http://www.myspace.com/dramastorm">http://www.myspace.com/dramastorm</A> </P>
+Автор: Vit Belov
+
+### 19.09.2008 news Tormentor присоединился к Infernus
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший участник <STRONG>GORGOROTH</STRONG> гитарист <STRONG>Tormentor </STRONG>присоединился к бывшему коллеге гитаристу<STRONG> Infernus</STRONG> в его версии норвежской группы. Теперь альтернативный <STRONG>GORGOROTH</STRONG> выглядит так: <STRONG>Infernus</STRONG> (гитара), <STRONG>Tormentor</STRONG> (гитара), <STRONG>Tomas Asklund</STRONG> (барабаны, ex-<STRONG>DISSECTION</STRONG>) и <STRONG>Frank Watkins </STRONG>(бас, <STRONG>OBITUARY</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 18.10.2008 news Впервые в России: GORGOROTH!
+
+<CENTER><IMG height=283 alt="" hspace=0 src="/images/shows_rus/2008.08/12660.jpg" width=400 align=right border=5> </CENTER>
+<P>
+<CENTER>&nbsp;</CENTER>
+<CENTER><FONT color=#ddd9d0>Gorgoroth норвежская блэк-металическая группа, основанная в 1992 году. В своё время Gorgoroth пытались включать в свою музыку элементы нойза и индастриала, но в отличие от многих других представителей "второй волны" блэк-метала в итоге группа осталась верна своему первоначальному стилю. Название "Gorgoroth" взято из романа Толкина "Властелин колец": Горгорот это необитаемое плато в Мордоре.</FONT></CENTER>
+<CENTER><FONT color=#ddd9d0>В конце 2007 года в группе произошёл раскол. Основатель Gorgoroth гитарист Инфернус (настоящее имя Роджер Тиегс)<BR>с одной стороны и бас-гитарист Кинг ов Хелл (настоящее имя Том Като Виснес) и вокалист Гаал (настоящее имя Кристиан Эспедал) с другой заявили о своих правах на имя группы. Патентное бюро Норвегии вынесло решение в пользу Кинг ов Хелл и Гаала. Инфернус планирует обжаловать это решение.</FONT></CENTER>
+<CENTER><FONT color=#ddd9d0>Группа никогда не публиковала свои тексты, но по названиям песен можно судить, что основным мотивом является сатанизм. Сами музыканты неоднократно говорили, что в их творчестве музыка вторична, а ключевую роль играет антихристианская направленность песен. Кроме этого, Gorgoroth получили скандальную известность благодаря различным<BR>инцидентам и нескольким уголовным делам, в которых фигурировали участники группы.</FONT></CENTER>
+<CENTER><FONT color=#ddd9d0>При поддержке: группа SINFUL(Москва, sympho-black metal) - одна из самых активных групп на метал-сцене России имеет в своём активе два релиза, благодаря регулярной гастрольной деятельности и участия в турах METAL SPIRIT RESURRECTION (<A href="http://www.metalspirit.ru/">www.metalspirit.ru</A>) коллектив успел выступить более, чем в полусотне городах стран СНГ. Сегодняшний SINFUL наглядно и музыкально даёт понять, что команда не собирается сдавать свои позиции и продолжает развиваться, привнося в свою музыку новые элементы.</FONT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 05.12.2008 news Pest вернулся к Infernus
+
+<P>Версия <STRONG>GORGOROTH</STRONG> от <STRONG>Infernus</STRONG> назвала имя нового вокалиста. Им стал <STRONG>Pest</STRONG>, который вернулся в<STRONG> GORGOROTH</STRONG> после 11 лет отсутствия.</P>
+Автор: Vit Belov
+
+### 30.12.2008 news Gaahl: &quot;Если бы не мы, GORGOROTH был бы уже мёртв&quot;.
+
+<P><IMG height=353 alt="" hspace=0 src="/images/news_rus/2008.12/13256.jpg" width=250 align=right border=5>В интервью голландскому <STRONG>FaceCulture </STRONG>вокалист <STRONG>GOROGOROTH Gaahl</STRONG> рассказал о своих мыслях по поводу предстоящего судебного слушания о судьбе названия <STRONG>GORGOROTH</STRONG>:</P>
+<P>"<EM>Я и King (басист GORGOROTH) определяли существование GORGOROTH в последние восемь лет. Если бы не наша деятельность, GORGOROTH давно бы был мёртв и похоронен. Я не общался с Infernus после распада группы, мы никогда не были особенно близки. Мы живём в разных мирах, у него слишком много идолов, и это стояло между нами</EM>".</P>
+<P>Суд состоится в январе. Напомним, что и та, и та сторона процесса уже сформировали полноценные группы и начали запись новых альбомов.</P>
+Автор: Vit Belov
+
+### 31.12.2008 news Gaahl работает над WARDRUNA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=419 alt="" hspace=0 src="/images/news_rus/2008.12/13260.jpg" width=300 align=right border=5>Вокалист <STRONG>GORGOROTH</STRONG> занят не только тяжбой с бывшим коллегой <STRONG>Infernus</STRONG> за название коллектива. Он участвует в новом проекте <STRONG>WARDRUNA</STRONG> вместе с <STRONG>Einar "Kvitrafn" Selvik</STRONG> (<B itxtvisited="1">JOTUNSPOR</B>, <B itxtvisited="1">GORGOROTH</B>). Дебютный альбом дуэта <STRONG>"Runaljod - Gap Var Ginnunga" </STRONG>уже шесть лет в работе. Музыканты планируют трилогию, посвящённую немецким рунам. Чётко определить стиль этого творения никому не удаётся. Некоторые называют <STRONG>WARDRUNA</STRONG> смесью ambient, folk и world music. Группа использует и необычные народные инструменты. Каждый из трёх альбомов будет содержать по восемь рун. Вот руны, входящие на первый альбом:</FONT></P>
+<P>* <B itxtvisited="1">Hagal</B><BR itxtvisited="1">* <B itxtvisited="1">Bjarkan</B><BR itxtvisited="1">* <B itxtvisited="1">Thurs</B><BR itxtvisited="1">* <B itxtvisited="1">Jara</B><BR itxtvisited="1">* <B itxtvisited="1">Laukr</B><BR itxtvisited="1">* <B itxtvisited="1">Kauna</B><BR itxtvisited="1">* <B itxtvisited="1">Algir</B><BR itxtvisited="1">* <B itxtvisited="1">Dagr</B></P>
+Автор: Vit Belov
+
+### 25.01.2009 news Бельгийский художник вдохновился GORGOROTH
+
+<P>Бельгийский художник <STRONG>Peter Lathouwers</STRONG>&nbsp;вдохновился <STRONG>GORGOROTH </STRONG>и нарисовал <STRONG>King Ov Hell</STRONG> и <STRONG>Gaahl</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>GOROGOROTH - одна из самых злых групп на свете, и это естественно, что я обратился к их творчеству</EM>", - рассказывает мастер.</FONT></P>
+<P>
+<CENTER><IMG height=612 src="/images/news_rus/2009.01/13444.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.01.2009 news GORGOROTH: &quot;Суд начался!&quot;
+
+<P>Вчера в суде в Осло начали рассматривать дело о правах на имя<STRONG> GORGOROTH</STRONG>. Решение по этому делу будет принято когда-то в феврале.</P>
+Автор: Vit Belov
+
+### 04.02.2009 news Суд по делу GORGOROTH продолжается
+
+<P>В конце января стартовало судебное слушание по иску гитариста <STRONG>GORGOROTH Infernus</STRONG> к басисту той же группы <STRONG>King Ov Hell</STRONG>. <STRONG>Infernus</STRONG> обвинил "<EM>шестого басиста в истории GORGOROTH</EM>" в том, что он за его спиной зарегистрировал товарный знак<STRONG> GORGOROTH</STRONG> на себя в сентябре прошлого года. В то время, как <STRONG>Infernus</STRONG> пользуется этим именем с 1992 года. Вот список свидетелей, заслушанных в зале суда:</P>
+<P>* <B>Torgrim Oyre</B> (бывший член&nbsp;GORGOROTH, букинг-менеджер Hole In The Sky Festival) <BR>* <B>Anders Odden</B> (ex-CELTIC FROST, CADAVER INC.)<BR>* <B>Tormentor</B> (бывший член&nbsp;GORGOROTH, сейчас участник состава&nbsp;Infernus)<BR>* <B>Espen Solheim Rohne</B> (норвежский дистрибутор&nbsp;Indie Distribution,&nbsp;занимает сторону&nbsp;Gaahl&nbsp;и King Ov Hell)<BR>* <B>Per Gyllenback</B> (Regain Records,&nbsp;занимает сторону&nbsp;Infernus)<BR>* <B>Asbjorn Slettemark</B> (норвежский журнал&nbsp;Faro Journalen) <BR>* <B>Gro Narvestad</B> (Inferno Festival)</P>
+Автор: Vit Belov
+
+### 12.03.2009 news Ghaal и King ov Hell смирились
+
+<P>Норвежский суд вынес свой вердикт по делу <STRONG>GORGOROTH</STRONG>. Судья принял решение, что правами на название обладает основатель группы<STRONG> Infernus</STRONG>. Вокалист <STRONG>Ghaal </STRONG>и басист <STRONG>King ov Hell</STRONG> признали своё поражение и заявили, что продолжат музыкальную деятельность под другим флагом.</P>
+Автор: Vit Belov
+
+### 24.03.2009 news Gaahl и King ov Hell назвались GOD SEED
+
+<P>Недавно закончилась тяжба между членами<STRONG> GORGOROTH</STRONG> за товарный знак. Название<STRONG> GORGOROTH</STRONG> отошло к <STRONG>Infernus</STRONG>, а <STRONG>Gaahl </STRONG>и <STRONG>King Ov Hell</STRONG> теперь готовят материал под ироничным названием <STRONG>GOD SEED</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.07.2009 news GORGOROTH закончили запись
+
+<P><STRONG>GORGOROTH</STRONG> в новом составе закончили запись нового альбома <STRONG>"Quantos Possunt ad Satanitatem Trahunt"</STRONG>, который выйдет 21 октября на <STRONG>Regain Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Introibo ad Alatare Satanas</B><BR>02. <B>Aneuthanasia</B><BR>03. <B>Building a Man</B><BR>04. <B>Prayer</B><BR>05. <B>Rebirth</B><BR>06. <B>Cleansing Fire</B><BR>07. <B>New Breed</B><BR>08. <B>Human Sacrifice</B><BR>09. <B>Satan-Prometheus</B></P>
+Автор: Vit Belov
+
+### 17.08.2009 news Gaahl не стал работать без &#39;GORGOROTH&#39;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проигравшие тяжбу за название <STRONG>GORGOROTH</STRONG> вокалист<STRONG> Gaahl</STRONG> и басист <STRONG>King</STRONG>, которые создали новый проект <STRONG>GOD SEED</STRONG>, объявили о прекращении его существования. Дело в том, что<STRONG> Gaahl</STRONG> решил завязать с тяжёлой музыкой. Теперь <STRONG>GOD SEED</STRONG> заморожен до лучших времён.</FONT></P>
+Автор: Vit Belov
+
+### 20.08.2009 news Новый альбом GORGOROTH
+
+<P><IMG height=384 alt="" hspace=0 src="/images/news_rus/2009.08/14901.jpg" width=376 align=right border=5>21 октября на<STRONG> Regain Records</STRONG> выходит новый альбом<STRONG> GORGOROTH</STRONG> <STRONG>"Quantos Possunt ad Satanitatem Trahunt". </STRONG>Трэк-лист:</P>
+<P>01. <B>Aneuthanasia</B> <BR>02. <B>Prayer</B> <BR>03. <B>Rebirth</B> <BR>04. <B>Building a Man</B> <BR>05. <B>New Breed</B> <BR>06. <B>Cleansing Fire</B> <BR>07. <B>Human Sacrifice</B> <BR>08. <B>Satan-Prometheus</B> <BR>09. <B>Introibo ad Alatare Satanas</B></P>
+Автор: Vit Belov
+
+### 22.10.2009 news King Ov Hell организовал группу
+
+<P><IMG height=281 alt="" hspace=0 src="/images/news_rus/2009.10/15339.jpg" width=300 align=left border=5>После того как эпатажный вокалист <STRONG>Gaahl</STRONG> объявил о завершении карьеры в тяжёлой музыке его напарник по<STRONG> GOD SEED</STRONG> (ex-<STRONG>GORGOROTH</STRONG>) басист <STRONG>King</STRONG> объявил о создании новой группы, в которой будут использованы песни, сочинённые для его версии <STRONG>GORGOROTH</STRONG>. <STRONG>OV HELL</STRONG> - так будет называться эта группа. И поможет ему в претворении этих планов в жизнь вокалист <STRONG>DIMMU BORGIR Shagrath</STRONG>!!! Кроме этого в составе известнейший барабанщик <STRONG>Frost</STRONG> (<STRONG>1349, SATYRICON</STRONG>), гитаристы <STRONG>Ice Dale</STRONG> (<STRONG>ENSLAVED, I, AUDREY HORNE, TRINACRIA, DEMONAZ</STRONG>) и <STRONG>Teloch</STRONG> (<STRONG>NIDINGR, GOD SEED, 1349, UMORAL</STRONG>). Дебютный альбом выйдет в следующем году на <STRONG>Indie Recordings</STRONG>, но две новые вещи можно послушать уже сейчас на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/ovhell">http://www.myspace.com/ovhell</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 30.11.2009 news OV HELL назвали альбом
+
+<P>Новый проект бывшего басиста <STRONG>GORGOROTH King Ov Hell</STRONG> и вокалиста<STRONG> DIMMU BORGIR Shagrath OV HELL</STRONG> опубликовал трэк-лист дебютного альбома <STRONG>"The Underworld Regime"</STRONG>, который выйдет в феврале на <STRONG>Indie Recordings</STRONG>:</P>
+<P>01. <B>Devil's Harlot</B><BR>02. <B>Post Modern Sadist</B><BR>03. <B>Invoker</B><BR>04. <B>Perpetual Night</B><BR>05. <B>Ghosting</B><BR>06. <B>Acts of Sin</B><BR>07. <B>Krigsatte Faner</B><BR>08. <B>Hill Norge</B></P>
+Автор: Vit Belov
+
+### 04.02.2010 news Gaahl - &quot;гей года&quot;
+
+<P>Бывший вокалист <STRONG>GORGOROTH Gaahl</STRONG> назван "геем года" на церемонии вручения наград <STRONG>Bergen Gay Galla. </STRONG>Музыкант, получивший самую престижную премию этого события, в своей благодарственной речи сообщил: "<EM>Эта награда не только для меня, эта награда может помочь другим людям на той же сцене, что и я</EM>".</P>
+Автор: Vit Belov
+
+### 17.03.2010 reviews Infernus провалился
+
+<P>Норвежский GORGOROTH, о котором очень много писали последние несколько лет, наконец выпустил новый альбом. Основатель коллектива гитарист Infernus отсудил свои права на название у вокалиста Gaahl и басиста King Ov Hell и выпустил новый альбом. В состав были возвращёны вокалист Pest и гитарист Tormentor и с ними Infernus реализовал свои задумки.</P>
+<P>Новая пластинка GORGOROTH выполнена в старом духе. В настолько старом, что даже удивительно слышать в XXI веке. Среднетемповый black-metal в традициях 90-х годов. Ни в коем случае не хочу бросать камни в сторону ‘true’ звучания, но у GORGOROTH есть для нас ещё что-то мелодичное,&nbsp; рождённое сомнительной соло-гитарой. Альбом несомненно впечатляет. Он не тяжёлый по нынешним меркам, он не суровый, не мрачный, не забойный… Он никакой. Могу вспомнить массу молодых UG black-metal команд, у которых нет сложностей с передачей нужной атмосферы и первородной злобы, которую Infernus похоже истратил на разборки с бывшими коллегами, которые пытались украсть у него GORGOROTH.</P>
+<P>Безусловно, "Quantos Possunt ad Satanitatem Trahunt" – это альбом GORGOROTH. Это black-metal, это true black-metal, но с музыкальной точки зрения эта пластинка не имеет практически никакой ценности.</P>
+Автор: Vit Belov
+
+### 09.10.2010 news GORGOROTH переписывают третий альбом
+
+<P>Норвежцы <STRONG>GORGOROTH</STRONG> находятся в студии своего барабанщика <STRONG>Tomas Asklund Monolith Studio, </STRONG>где заканчивают работу над перезаписыванием своего третьего альбома <STRONG>'Under The Sign Of Hell'</STRONG>. Альбом вышел в оригинале в 1997 году, но в 2011 мы услышим его новую версию.</P>
+<P>Также музыканты работают и над новым материалом, который оформится в альбом и также выйдет в 2011 году. Обе работы увидят свет на <STRONG>Regain Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.11.2011 news Gaahl снимется в кино
+
+<P>Гей 2009 года в Норвегии и бывший вокалист <STRONG>GORGOROTH Gaahl</STRONG> снимется в новом фильме <STRONG>Flukt</STRONG> (Побег). Действие картины разворачивается в 1363 году. </P>
+<P>Режиссёром фильма станет <STRONG>Роар Утхауг</STRONG>, на счету которого такие хиты, как <STRONG>Остаться в Живых</STRONG> и <STRONG>Волшебное Серебро</STRONG>. Главную женскую роль сыграет <STRONG>Ингрид Болсай Бердал</STRONG>.</P>
+<P>"<STRONG>Flukt</STRONG>" должен выйти в сентябре будущего года.</P>
+<P><center><IMG height=380 src="/images/news_rus/2011.11/21975.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 29.01.2012 news Dani Filth работает с гитаристом ANTHRAX и бывшим басистом GORGOROTH
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2012.01/22846.jpg" width=400 align=right border=0>TEMPLE OF THE BLACK MOON</STRONG> - так называется новый проект, в состав которого входят вокалист <STRONG>Dani Filth (CRADLE OF FILTH)</STRONG>, гитарист <STRONG>Rob Caggiano (ANTHRAX)</STRONG>, басист<STRONG> Tom Cato Visnes</STRONG> (aka King Ov Hell; <STRONG>OV HELL, GOD SEED, GORGOROTH</STRONG>), барабанщик <STRONG>John Tempesta (THE CULT, ex-WHITE ZOMBIE)</STRONG> и гитарист <STRONG>Arve "Ice Dale" Isdal (ENSLAVED)</STRONG>. Музыканты поработали над материалом в Норвегии и дали интервью на радио, где представили новый материал.</P>
+<P>Вот названия некоторых песен: <STRONG>'Beautifully Perverse', 'Into The Void', 'Don't Call Up What You Can't Put Down', 'Infernal Desire Machine', 'Alchemy, Myself And I', 'Dark Eyes For Trouble', 'C.N.T (All That's Missing Is You)', 'Persephone', 'Last Of The Vampire Playboys', 'Another Dead Thing Between Us'</STRONG> и<STRONG> 'Catch'</STRONG>.</P>
+<P>Группа находится в стадии переговоров по контракту с лэйблом. Подробности последуют.</P>
+<P>Послушать отрывок передачи можно здесь: <A href="http://p3.no/pyro/the-first-interview-ever-with-temple-of-the-black-moon/">http://p3.no/pyro/the-first-interview-ever-with-temple-of-the-black-moon/</A></P>
+Автор: Vit Belov
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

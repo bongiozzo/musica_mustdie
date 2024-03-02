@@ -80,6 +80,20 @@ Stockholm, Sweden.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2009 news DESULTORY возвращаются
+
+<P>Шведские death-metal'исты<STRONG> DESULTORY</STRONG> объявили о своём возвращении через 13 лет после последнего альбома. Группа заключила контракт с <STRONG>Pulverised Records</STRONG>. </P>
+Автор: Vit Belov
+
+### 01.09.2010 news DESULTORY &quot;считают свои шрамы&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17137.jpg" width=344 height=323>Возобновившие свою деятельность шведские дес металлисты <STRONG>DESULTORY</STRONG> закончили работу над новым диском. Это будет первый альбом после&nbsp;14 лет молчания. Диск <STRONG>"Counting Our Scars"</STRONG> выйдет в конце 2010 года на<STRONG> Pulverised Records</STRONG>. Последователь альбома <STRONG>"Swallow The Snake" (1996)</STRONG>, был записан в <STRONG>Necromorbus Studio</STRONG> (<STRONG>WATAIN</STRONG>, <STRONG>NOMINON</STRONG>, <STRONG>FUNERAL MIST</STRONG>, <STRONG>MORK GRYNING</STRONG>)&nbsp;в городе&nbsp;Alvik (Швеция) с продюсером <STRONG>Tore Stjerna</STRONG>.</P>
+<P><U>Трек лист <STRONG>"Counting Our Scars"</STRONG></U>:<BR itxtvisited="1">01. <B itxtvisited="1">In A Cage</B><BR itxtvisited="1">02. <B itxtvisited="1">Counting Our Scars</B><BR itxtvisited="1">03. <B itxtvisited="1">Ready To Bleed</B><BR itxtvisited="1">04. <B itxtvisited="1">This Broken Halo</B><BR itxtvisited="1">05. <B itxtvisited="1">The Moment Is Gone</B><BR itxtvisited="1">06. <B itxtvisited="1">Uneven Numbers</B><BR itxtvisited="1">07. <B itxtvisited="1">Dead Ends</B><BR itxtvisited="1">08. <B itxtvisited="1">Leeching Life</B><BR itxtvisited="1">09. <B itxtvisited="1">A Crippling Heritage</B></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

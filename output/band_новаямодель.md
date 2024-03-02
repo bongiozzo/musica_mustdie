@@ -27,6 +27,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.03.2010 news Видео от НОВАЯ МОДЕЛЬ
+
+<P>Новый клип группы <STRONG>НОВАЯ МОДЕЛЬ</STRONG> на песню "<STRONG>Мы умрём красивыми</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ZPPOhnDZT5U&hl=ru_RU&fs=1&"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ZPPOhnDZT5U&hl=ru_RU&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

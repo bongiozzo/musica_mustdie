@@ -24,6 +24,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2016 news ETHS premiere video clip
+
+<p><strong>ETHS</strong> are now premiering the first video outtake from the French modern metal stars' latest full-length <strong>'Ankaa</strong>'. The clip for "<strong>Nihil Sine Causa</strong>" featuring former <strong>ARKAN</strong> singer <strong>Sarah Layssac</strong> and<strong> Jon Howard</strong> from <strong>THREAT SIGNAL</strong> is streaming below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/uTbTqtvsG3I" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.09.2016 news Новый клип ETHS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип французов<strong> ETHS</strong> на песню "<strong>Nihil Sine Causa</strong>" можно посмотреть ниже. В записи этой песни и съёмок клипа приняли участие бывшая вокалистка группы<strong> ARKAN Sarah Layssac</strong> и вокалист <strong>THREAT SIGNAL Jon Howard</strong>. Трек взят с последнего альбома коллектива "<strong>Ankaa</strong>", который вышел на<strong> Season Of Mist</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Также объявлено, что ETHS приедут с концертами в Россию. 8 декабря группа выступит в Санкт-Петербурге, а 9 декабря в Москве.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/uTbTqtvsG3I" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

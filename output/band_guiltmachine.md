@@ -9,6 +9,15 @@ Arjen Lucassen project
 
 * C группой "Ayreon" Arjen Lucassen 
 
+## Публикации
+
+### 15.05.2009 news Новый проект Arjen Lucassen
+
+<P><STRONG>Arjen Lucassen</STRONG> из <STRONG>AYREON</STRONG> подписал контракт с <STRONG>Mascot Records</STRONG> на выпуск дебютного альбома своего нового проекта <STRONG>GUILT MACHINE</STRONG>. Музыка этой группы будет варьироваться от мрачного и тяжёлого до атмосферного и меланхоличного. Пластинка выйдет в этом году. Состав группы:</P>
+<P><STRONG>Arjen Lucassen</STRONG>: instruments, backing vocals<BR><B>Jasper Steverlinck</B> (ARID): vocals<BR><B>Chris Maitland</B> (ex-PORCUPINE TREE): drums<BR><B>Lori Linstruth</B> (ex-STREAM OF PASSION): lead guitar</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

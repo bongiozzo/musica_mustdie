@@ -52,6 +52,36 @@ Per Wiberg - Keyboards
 * C группой "Candlemass" 
 * C группой "The Project Hate MCMXCIX" 
 
+## Публикации
+
+### 26.07.2006 news Новый KRUX не за горами
+
+<P>20 октября на <STRONG>GMR Music</STRONG> выйдет второй альбом шведского коллектива <B>KRUX</B>, в состав которого входят басист <B>CANDLEMASS</B> <B>Leif Edling</B>, бывший вокалист <B>YNGWIE MALMSTEEN</B> и нынешний в <STRONG>AT VANCE</STRONG> и <STRONG>THERION</STRONG> <B>Mats Leven</B>, бывший ударник <B>ENTOMBED</B> и <STRONG>UNANIMATED Peter Stjarnvind</STRONG>, гитарист <B>Jorgen Sandstrom</B> (<B>THE PROJECT HATE</B>, ex-<B>ENTOMBED</B>/<B>GRAVE</B>) и гитарист&nbsp;<B>ARCH ENEMY</B> <B>Fredrik Akesson</B>. Альбом с лаконичным названием <B>"II" </B>был записан в шведской <B>Studioland</B> studio. Трек-лист издания:<BR><BR>1. <B>Devil Sun</B><BR>2. <B>Serpent</B><BR>3. <B>Sea of Doom</B><BR>4. <B>Lex Lucifero</B><BR>5. <B>Pirates of the Black Hand</B><BR>6. <B>Depressive Strokes of Indigo</B><BR>7. <B>Too Close to Evil</B><BR>8. <B>The Big Empty</B><BR></P>
+Автор: Dimas
+
+### 05.02.2009 news KRUX могут выпустить DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская группа <STRONG>KRUX</STRONG>, в которой участвуют басист&nbsp;<STRONG>CANDLEMASS</STRONG>&nbsp;<B>Leif Edling</B>,&nbsp;вокалист <B>Mats Leven</B>, бывший барабанщик <B>ENTOMBED</B>&nbsp;<B>Peter Stjarnvind</B>,&nbsp;гитарист <STRONG>THE PROJECT HATE</STRONG>&nbsp;<B>Jorgen Sandstrom</B>&nbsp;и гитарист <B>OPETH</B> <STRONG>Fredrik &#197;kesson, </STRONG>дала два концерта в конце января. Запись альбома планируется в конце этого года, но до этого <STRONG>KRUX </STRONG>могут выпустить эксклюзивное DVD для продажи на своём сайте.</FONT></P>
+Автор: Vit Belov
+
+### 01.09.2009 news Соло альбом Mats Leven
+
+<P><STRONG>Mats Levеn</STRONG>,&nbsp;вокалист известный своим участием в&nbsp;<STRONG>KRUX</STRONG>, <STRONG>THERION&nbsp;</STRONG>и&nbsp;<STRONG>YNGWIE MALMSTEEN</STRONG>, в настоящее время записывает демо для своего сольного альбома. </P>
+<P><EM>"В данный момент я работаю над&nbsp;12 - 14&nbsp;вещами.&nbsp;Я собираюсь&nbsp;написать 20 - 25 песен, прежде чем начну запись альбома."</EM> -&nbsp;говорит <STRONG>Mats</STRONG>.</P>
+Автор: Headcrusher
+
+### 29.02.2016 news Leif Edling запустил новый проект
+
+<P><SPAN><SPAN><STRONG>Leif Edling</STRONG>, мегамозг и бас-гитарист, стоящий за такими проектами, как <STRONG>CANDLEMASS</STRONG>, <STRONG>AVATARIUM</STRONG>, <STRONG>KRUX</STRONG> и&nbsp;<STRONG>ABSTRAKT ALGEBRA</STRONG>, запустил в начале февраля новый проект под названием <STRONG>THE DOOMSDAY KINGDOM</STRONG>.</SPAN></SPAN></P>
+<P><SPAN><SPAN>Гитаристом и продюсером нового детища был&nbsp;назначен <STRONG>Marcus Judell</STRONG>, соратник <STRONG>Лейфа</STRONG> по группе <STRONG>AVATARIUM</STRONG>.</SPAN></SPAN></P>
+<P><SPAN><SPAN>Следить за развитием&nbsp;проекта&nbsp;<STRONG>THE DOOMSDAY KINGDOM</STRONG> можно на фейсбуке и официальном сайте: </SPAN></SPAN></P>
+<P><SPAN><SPAN><A href="http://www.facebook.com/The-Doomsday-Kingdom-1158432850841410/">http://www.facebook.com/The-Doomsday-Kingdom-1158432850841410/</A><BR><A href="http://www.doomsdaykingdom.se/">http://www.doomsdaykingdom.se</A></SPAN></SPAN></P>
+<P><SPAN><SPAN>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28909.jpg" width=600 height=287></SPAN></SPAN> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

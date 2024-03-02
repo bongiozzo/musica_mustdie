@@ -152,6 +152,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.03.2001 news Демонические новости...
+
+<p>Выход нового творения DEMON'ов - "Spaced Out Monkey" - запланированный на 26 апреля отложен на неизвестный срок. Из хороших новостей - переиздание ремастерированных версий первых трех альбомов Night Of The Demon, The Unexpected Guest и The Plague. Первые 3000 копий The Plague будут содержать бонус в виде еще одного СД (!) с первоначальным миксом альбома.</p>
+
+Автор: Yermola
+
+### 21.03.2001 news DEMON&#39;s new CD
+
+<p>DEMON's new CD Spaced Out Monkey that was bound for release April 26th will be delayed due to circumstances out of our control. New release date will be confirmed later. We will release re-mastered versions of the three first albums Night Of The Demon, The Unexpected Guest & The Plague before the summer. The first 3,000 copies of The Plague will contain a bonus CD with the whole album in a different first mix. The other two albums will have bonus tracks as well.</p>
+
+Автор: Yermola
+
+### 25.05.2004 news DEMON выпускают новый альбом
+
+Британские hard-rock ветераны<B> DEMON</B> выпускают новый альбом <B>"Better The Devil You Know" </B>4 октября на <B>Record Heaven</B>.
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Demonaz's hands

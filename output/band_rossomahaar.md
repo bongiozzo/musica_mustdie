@@ -145,6 +145,982 @@ bonus tracks:
 * C группой "Katar" Kniaz
 * C группой "Аркона" Kniaz
 
+## Публикации
+
+### 25.07.2001 news Первый сборник MUSICA
+
+<p>Вышел в свет первый сборник металлических команд из стран бывшего СНГ - MUSICA. На нём Вы найдёте такие команды, как Seducer's Embrace, Absurd, Lead Weight, Samhain, Rossomahaar, Elisium и многие другие. Более 70 минут интересной музыки. Сборник целиком и полностью поддержан нашим сайтом. По вопросам приобритения оптом и в розницу: vbelov@online.ru</p>
+
+Автор: Vit Belov
+
+### 04.11.2001 news Суперакция с участием супергрупп
+
+<p><span style="background:#4d0000">18 ноября 2001 года</span> в воскресенье в ДК 40 лет Октября (ныне - клуб "Эстакада") <I>Brutal DJ Productions</I> представляет суперакцию посвященную съемкам metal-телешоу "Затмение". Принимают участие супергруппы <B>SATARIAL</B>, <B>BUTTERFLY TEMPLE</B>, <B>ROSSOMAHAAR</B>, <B>MERLIN</B>, <B>ДЕМОНЫ</B> и <B>STIGMATIC CHORUS</B>. Цена билета в предварительной продаже - 100 рублей, в день концерта - 150 рублей. Билеты продаются в кассе клуба и в рок-магазинах. Проезд: метро "Рязанский проспект", далее автобусами 169, 143, 29, 160, 725 или троллейбусом 63 до остановки "Стахановская ул.". Начало концерта в 17:30.</p>
+<P> Ожидаются суперзвук, суперсвет и пиво по 30 рублей! Также на концерте будет происходить продажа лицензионных CD от <I>Irond Records</I> по льготным ценам.</>
+
+Автор: Dimas
+
+### 23.11.2001 articles MUSICA - сборник рок-андерграунда СНГ
+
+<p>Самое главное достоинство этого диска (и, на мой взгляд, причина заиметь таковой в свою фонотеку) – это возможность поставить диагноз металлическому андерграунду едва ли не всего СНГ. На сборнике представлено пятнадцать команд, занимающихся литьем железа самых разных видов - и, о чудо, среди таковых есть даже три казахстанские группы: FORREST GUMP, LEAD WEIGHT, REQUIEM. <BR><BR> Отделять зерна от плевел в подобных солянках – дело почти бессмысленное: собственно, на то и сборник, чтобы каждый сам смог выбрать фаворитов. Но раз уж пластинка в руках – грех не посудачить о содержимом. <BR><BR> В первую очередь бросается в глаза разница в качестве звука у разных команд – кто-то вложил в запись серьезные деньги и даже имеет нормально записанный студийный альбом (HOSTILE BREED, ROSSOMAHAAR), А КТО-ТО ЛИШЬ НА ПОЛПУТИ К ЭТОМУ. Также диск дает понять, что шведский мелодичный death metal правит умами современного андерграунда: более половины групп копируют стандарты стиля. Все бы ничего, да только звучат они вторично и даже третично, и к тому же трудно отличить их даже друг от друга. По той же причине HOSTILE BREED, последователи американцев BIOHAZARD, и FORREST GUMP со своими фольклорными мотивами выглядят белыми воронами. <BR><BR> Теперь о лучших треках диска. Неплохо звучат ROSSOMAHAAR (не пугайтесь, это всего лишь россомаха) и VORTEX – первые показали, что и блэк-метал при умелом обращении можно превратить в хорошую музыку, а вторые просто хорошо и приятно процитировали немцев HELLOWEEN, GAMMA RAY и целый батальон прочих команд, причем сделали это внятно, динамично, без занудства и слепого поклонения. Но безусловные жемчужины – лишь в завершении диска: москвичи ABSURD и наши земляки FORREST GUMP. ABSURD, в отличие от прочих поклонников шведского варианта дэс-метал, смогли не потонуть в сопливых мелодиях и выковать настоящее злобное и сверкающее железо, каким оно и должно быть. Ну а FORREST GUMP в связке со скрипкой Жамили Серкебаевой, лучше один раз услышать – инструментал того стоит. <BR><BR> Пожалуй вот такой финал и оправдывает название сборника – MUSICA. Все прочее – скорее пища для размышлений. Но, надо заметить, пища неплохая.</p>
+
+Автор: Tornado
+
+### 30.11.2001 news Другие концерты в Р-клубе
+
+<p>Кроме отдельно анонсируемых концертов которые состоятся в декабре в Р-клубе, следует отметить следующие выступления:<BR> 7 декабря - DISTEMPER<BR> 10 декабря - MISTERIA, SINFUL, AGASFER, FLASHBOMB и SERMON<BR> 12 декабря - SATARIAL<BR> 16 декабря - ROSSOMAHAAR, MIDGARD и OBSESSION<BR> 21 декабря - ЛЕГИОН<BR> 23 декабря - ELISIUM, ПИЛИГРИМ и САНТА-МАРИЯ<BR> 27 декабря - ЧЕРНЫЙ КОФЕ<BR> 30 декабря - МАСТЕР<BR> Клуб работает ежедневно с 18 до 24 часов. Проезд: м.Шаболовская, далее трамваем 26 до остановки "Духовской переулок" или м.Тульская, далее пешком. Адрес: 4-й Рощинский проезд, дом 19.</p>
+
+Автор: Dimas
+
+### 24.01.2002 news Tribute to Rammstein
+
+<p>Future Sounds of Moscow представляет:</p>
+<P> 10 февраля 2002 в клубе "Точка" состоится презентация российского сборника "Tribute to Rammstein". В концерте примут участие группы <I>M.C.D.ead, Satarial, Rossomahaar, Х, Клочья, Нахема</I>. На концерте будут продаваться майки, посвященные этому мероприятию, а также сам сборник.<BR> Стоимость билетов в предварительной продаже - 100 рублей, в день концерта - 150 рублей.<BR> Адрес клуба: Звенигородское шоссе, д.4 (м. "Улица 1905 года")</>
+
+Автор: Dimas
+
+### 01.02.2002 news Последние новости из клана HOSTILE BREED
+
+<p>В настоящее время московская группа занимается, в основном, концертной деятельностью и поиском контракта с западным лэйблом. Вот некоторые из ближайших выступлений группы: <BR> 8 февраля в Р-клубе пройдет сольное выступление группы МАСТЕР в котором HOSTILE BREED примут участие как специальные гости.<BR> 10 февраля состоится единственный концерт HOSTILE BREED в городе Ярославль. Место выступления пока уточняется.<BR> 3 марта в Р-клубе - презентация нового альбома группы ROSSOMAHAAR. Специальный гость - HOSTILE BREED. Открывает концерт - NECROST.<BR> <A HREF="http:/hostilebreed.musica.mustdie.ru">Информация о группе</A></p>
+
+Автор: Dimas
+
+### 29.05.2002 reviews Исследование внешнего мира
+
+<p>Второй альбом московской группы ROSSOMAHAAR - большой шаг вперед по сравнению с дебютом группы "Imperium Tenebrarum". На сегодняшний день, ROSSOMAHAAR - реально лучший black metal акт России. Хотя, не стоит спешить с классификацией стиля группы, для black metal эта музыка слишком мелодична, скорее это экстремальнейшая версия melodic death metal. В то же время музыка изобилует острыми бритвенными риффами и органичной клавишной атмосферой, что навевает мысли об отношении группы к sympho-black metal. Но для этого, музыка группы чересчур техничная и ломаная. А с позиций бескомпромиссности, скоростей и злости музыки, а также мизантропических настроений в целом, эту музыку можно смело причислить к true-black metal. Вокал же представляет собой нечто среднее между скримингом и гроулингом. Мне все это напомнило смесь DISSECTION, OPHTHALAMIA и DIMMU BORGIR. Но, давайте не будем думать и гадать о стилистике группы, так как она вне всяких стилевых рамок. Это просто классная музыка, заряжающая энергией и оставляющая после прослушивания позитивные настроения. Все трое участников группы очень техничны и превосходно справляются со своими обязанностями. Высококлассный материал пересводился не один раз. В результате Лазарю удалось добиться отличного и качественного звука. Безусловно, обращает на себя внимание тяжелая инструментальная версия "Священной войны" на музыку Александрова. Last Episode потеряли очень выгодного клиента...</p>
+
+Автор: Dimas
+
+### 12.06.2002 reviews Research of the external world
+
+<p>The second album of the Moscow band ROSSOMAHAAR - large step forward in comparison with a debut of group "Imperium Tenebrarum". For today, ROSSOMAHAAR - really best black metal act of Russia. Though, it is not necessary to hasten with classification of style of group, for black metal this music is too melodious, it is the most extreme version melodic death metal. At the same time music abounds sharp shaving riffes and organic keyboard atmosphere, that casts ideas on the relation of group to sympho-black metal. But for this purpose, music of group too technic and broken. And from positions of uncompomisingness, speeds and rage of music, and also misanthropic moods as a whole, this music can safely be ranked to true-black metal. Vocal represents something average between screaming and growling. All this has reminded me a mix of DISSECTION, OPHTHALAMIA and DIMMU BORGIR. But, let's not think and to guess about stylistics of group, as it outside of any style frameworks. It is simply class music charging by energy and leaving after listening positive moods. All three participants of group very much technic and excellently consult with the duties. A high quality material remixed not once. In result Lazar was possible to achieve an excellent and qualitative sound. Certainly, pays on itself attention the heavy instrumental version of "Sacred war" on music Aleksandrov. Last Episode have lost the very favourable client...</p>
+
+Автор: Vit Belov
+
+### 12.08.2002 news Сборник Hellfire-5 окончательно укомплектован
+
+<p>В виду большой длительности (2,5 часа) сборник выйдет в двух частях. <BR> Приблизительное время реализации: сентябрь-октябрь 2002 г.</p>
+<P> Трэк-лист:</>
+<P> Часть первая: "Russian Black Metal"</>
+<P> 1. ROSSOMAHAAR "Praising The Departure Of Spiritual Strength" (г. Москва) <BR> 2. CRYSTAL ABYSS "First Born Snow" (г. Москва) <BR> 3. WEEDS IN VOGUE "Witchcunt" (г. Москва) <BR> 4. MIND ECLIPSE "Martyr Of The Sky"(г. Ярославль) <BR> 5. STIGMATIC CHORUS "Казнь Изгнанницы" (г.Москва) <BR> 6. PAGAN REIGN "Смерть - Дар богов" (г. Тверь) <BR> 7. ASHEN LIGHT "Бесноватая" (г. Москва) <BR> 8. GROM "Hatred" (г.Щелково) <BR> 9. THERM.EYE.FLAME "Waking The Creatures" (г.Сочи) <BR> 10. DEVIL-MAY-CORE "Call Me When I Die" (г. Мичуринск) <BR> 11. RADIGOST "Year3000" (г. Зеленоград) <BR> 12. FUNERAL POETRY "Очи Мора" (г. Москва) <BR> 13. ENSHADE "Out Of Life" (г. Новосибирск) <BR> 14. KATAR "Paradigma Digitized" (г. Москва)</>
+<P> Часть вторая: "Slavonic Power"</>
+<P> 1. ROSSOMAHAAR "Crescent Moon (The Final Celebration)" (г. Москва ) <BR> 2. ATOL NERAT "Doors Of Perception" (г. Пермь) <BR> 3. MIND ECLIPSE "We Are Not Messiahs" (г. Ярославль) <BR> 4. THERM.EYE.FLAME "Threshold" (г.Сочи) <BR> 5. DEVIL-MAY-CORE "Darkness" (г. Мичуринск) <BR> 6. ENSHADE "Crying Soul" (г. Новосибирск) <BR> 7. FUNERAL POETRY (г. Москва ) <BR> 8. CAPITOLIUM "The Will And The Order" (г. Львов) <BR> 9. BLUT FORMICARIUM "Black Metal" (г. Москва ) <BR> 10. GOLDPREAK "Ушанаванне залатому Ярылу" (г. Витебск) <BR> 11. MARTIAL ART "Perverted Goat Messiah" (г. Ярославль)</>
+<P> Bonus track: ROSSOMAHAAR "Sacred War"</>
+
+Автор: Kai Mathias Stalhammar
+
+### 26.08.2002 news MassaBrutto Radioshow #101, 23 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. ROSSOMAHAAR - Imperium Tenebrarum (More Hate Prods)<BR> 2. GRENOUER - Confident (More Hate Prods)<BR> 3. OBTEST - Svarbiausias Musis (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> +++ Quiz action from OBTEST band and Fatal Ecstasy Prods. Sponsored by Fatal Ecstasy Prods [fatalecstasy@tut.by]<BR> 4. IMPRUDENCE - Sadness (band)<BR> 5. DAMNED ICON - Nospheratou (band)<BR> 6. HERETIC - Strakh (band)<BR> 7. PERIALNYJE KONDILOMY - Zalet Cherez Rot (band)<BR> 8. PERIALNYJE KONDILOMY - Samoiznasilovanie (band)<BR> 9. COD - Hungry For Flight (band)<BR> 10. T.H.R.O.N. - Twist The Knife (Slowly) [by NAPALM DEATH] (Musickness/MetalAgen)</p>
+
+Автор: Yermola
+
+### 26.08.2002 news MassaBrutto Radioshow #101, 23 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. ROSSOMAHAAR - Imperium Tenebrarum (More Hate Prods)<BR> 2. GRENOUER - Confident (More Hate Prods)<BR> 3. OBTEST - Svarbiausias Musis (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> +++ Quiz action from OBTEST band and Fatal Ecstasy Prods. Sponsored by Fatal Ecstasy Prods <BR> 4. IMPRUDENCE - Sadness (band)<BR> 5. DAMNED ICON - Nospheratou (band)<BR> 6. HERETIC - Strakh (band)<BR> 7. PERIALNYJE KONDILOMY - Zalet Cherez Rot (band)<BR> 8. PERIALNYJE KONDILOMY - Samoiznasilovanie (band)<BR> 9. COD - Hungry For Flight (band)<BR> 10. T.H.R.O.N. - Twist The Knife (Slowly) [by NAPALM DEATH] (Musickness/MetalAgen)<BR></p>
+
+Автор: Yermola
+
+### 03.09.2002 news Концерты Rossomahaar
+
+<p>Rossomahaar возобновляет концертную деятельность:<BR> 20.09 (пятница) - Могилев: Rossomahaar, Asguard + support <BR> 21.09 (суббота) - Витебск: Rossomahaar, Asguard, V.E.L.D. + support <BR> 22.09 (воскресенье) - Минск: Massa Brutto Fest - Rossomahaar, Asguard, Evthanazia + support <BR> 05.10 (суббота) - Рязань: Rossomahar, Seducer Embrace + support</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>В ближайшее время украинская компания ODIUM MUSIC выпускает Death/Black компиляцию "IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". Трек-лист: <BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>Hails Brothers In Metal! <BR><BR> Soon we'll release our longawaited compilation IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". So be ready for the catching breath Death/Black Metal Assault! Dense, Intense, Technical and Melodic... Here is a track-list:<BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+### 12.09.2002 news MassaBrutto Radioshow #107, 13 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ROSSOMAHAAR - The Spectral Prophecy (More Hate Prods)<BR> 2. DARK DELIGHT - Murder For The Sake Of Life (band)<BR> 3. EVTHANAZIA - To Lose The Mind (Funeral Pyre Prods)<BR> 4. V.E.L.D. - Church Of Lies (band)<BR> 5. INFESTUM - Сеча (Battle Hymn Recs)<BR> 6. PERIALNЫE KONDILOMЫ - Синдром Скрытого Полового Члена (band)<BR> 7. VESTIBULUM - Monumentum Durum Millibus (band)<BR> 8. IMPRUDENCE - Gloom (band)<BR> 9. WEEPING TWILIGHT - У Замку (band)<BR> 10. AMBASSADOR 21 - Fuck All Systems (Invasion Wreck Chords)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 13.09.2002 news MassaBrutto Radioshow #107, 13 Sep 2002.
+
+<p>Playlist:<BR><BR> 1. ROSSOMAHAAR - The Spectral Prophecy (More Hate Prods)<BR> 2. DARK DELIGHT - Murder For The Sake Of Life (band)<BR> 3. EVTHANAZIA - To Lose The Mind (Funeral Pyre Prods)<BR> 4. V.E.L.D. - Church Of Lies (band)<BR> 5. INFESTUM - Сеча (Battle Hymn Recs)<BR> 6. PERIALNЫE KONDILOMЫ - Синдром Скрытого Полового Члена (band)<BR> 7. VESTIBULUM - Monumentum Durum Millibus (band)<BR> 8. IMPRUDENCE - Gloom (band)<BR> 9. WEEPING TWILIGHT - У Замку (band)<BR> 10. AMBASSADOR 21 - Fuck All Systems (Invasion Wreck Chords)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 20.09.2002 news MassaBrutto Radioshow #109, 20 Sep 2002.
+
+<p>Гость программы: Денис Голин из коллектива WEEPING TWILIGHT (Минск, Беларусь) [email: twilight@tut.by]<BR><BR> Playlist:<BR><BR> 1. SHITFUN - No Admittance (DeathBell Prods)<BR> 2. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 3. WEEPING TWILIGHT - Грэх (band)<BR> 4. WEEPING TWILIGHT - Калыханка (band)<BR> 5. EVTHANAZIA - Fear Of The Future (Fatal Ecstasy Prods)<BR> 6. ROSSOMAHAAR - Sacred War (band)<BR><BR> + телефонное мини-интервью с Лазарем из ROSSOMAHAAR (Москва, Россия) [email: rossomahaar@mtu-net.ru]<BR><BR> 7. ROSSOMAHAAR - Me, The Misanthrope (band)<BR> 8. HERETIC - Страх (band)<BR> 9. SUFFERER - Полач (DeathBell Prods)<BR> 10. GRENOUER - Stabbed By Touch (Blacksmith Prods/More Hate Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 20.09.2002 news MassaBrutto Radioshow #109, 20 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. SHITFUN - No Admittance (DeathBell Prods)<BR> 2. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 3. WEEPING TWILIGHT - Грэх (band)<BR> 4. WEEPING TWILIGHT - Калыханка (band)<BR> 5. EVTHANAZIA - Fear Of The Future (Fatal Ecstasy Prods)<BR> 6. ROSSOMAHAAR - Sacred War (band)<BR> 7. ROSSOMAHAAR - Me, The Misanthrope (band)<BR> 8. HERETIC - Страх (band)<BR> 9. SUFFERER - Полач (DeathBell Prods)<BR> 10. GRENOUER - Stabbed By Touch (Blacksmith Prods/More Hate Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 20.10.2002 news Презентация песен мертвецов
+
+<p>26-го октября 2002 года MORE HATE PRODUCTIONS представляет презентацию нового альбома "Песни мертвых" группы <B>ASHEN LIGHT</B>.</p>
+<p> Помимо самих виновников торжества в концерте примут участие группы:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3299.JPG" ALT="pho" width=285 height=205 hspace="15" vspace="5" border="1" align="left"> - <B>ROSSOMAHAAR</B><BR> - <B>BUTTERFLY TEMPLE</B><BR> - <B>CRYSTAL ABYSS</B><BR> - <B>CAVANDISH </B>(г.Тула).</p>
+<p> Начало концерта в 18:00. <BR> Вход по флаеру 100 рублей, без - 110 рублей. <BR> Первые посетители концерта получат в подарок CD с альбомом.</p>
+<p> Концерт состоится в московском клубе "Р-клуб" (4-й Рощинский проезд, д. 19). <BR> Проезд до станции метро "Тульская", далее 5 минут пешком или до станции метро "Шаболовская", далее на трамвае №26 до остановки "Духовской переулок".</p>
+<p> Поддержка презентации осуществляется BLACK ORACLE PRODUCTIONS, MUSICA.MUSTDIE.RU, METALKINGS.RU и шоу радио "Эхо Москвы", посвященным тяжелой музыке, "Хранитель Снов" (каждую неделю с 1 до 6 утра в ночь со среды на четверг на чаcтоте УКВ 73,82МГц и 91,2FM).</p>
+
+Автор: Dimas
+
+### 12.11.2002 news BLACKMETAL party
+
+<p>В субботу 7 декабря 2002 года в клубе RELAX состоится BLACKMETAL акция PORTAE INFERNI с участием групп ROSSOMAHAAR, ATRA MUSTUM, WISHMASTER, BY AUTUMN EMBRACED. <BR> Начало концерта в 18:00<BR> Адрес клуба: м.Каховская/м.Севастопольская, 5 минут от метро пешком/ 1 минута бегом, ул. Большая Юшуньская,д.1а, гостиница Севастопольская, корпус 6</p>
+
+Автор: Dimas
+
+### 18.11.2002 news HELLFIRE - 5
+
+<p><IMG SRC="/images/news_rus/2002.11/3402.jpg" ALT="pho" width=224 height=250 hspace="15" vspace="5" border="1" align="left">В пятницу 22 ноября в клубе ЭСТАКАДА состоится презентация black metal сборника HELLFIRE vol. 5. В акции примут участие группы <I><B>ROSSOMAHAAR, CRYSTAL ABYSS, RADIGOST, GROM, MIND ECLIPSE, STIGMATIC CHORUS, WEEDS IN VOGUE, BLUT FORMICARIUM</B></I>. <BR> Начало концерта в 18:00. <BR> Цена билета в предварительной продаже - 100 рублей.<BR> В день концерта - 150 рублей, по флаеру - 120 рублей.<BR> Билеты продаются в кассе клуба, рок-галерее "Зиг-Заг" и рок-магазине "У дяди Бори".<BR> Адрес клуба: Рязанский проспект, д. 39, ДК 40-летия Октября <BR> Проезд: м. Марксистская, далее авт. 51, тролл. 63 или м.такси 63, или м. Рязанский проспект, далее авт. 169, 143, 29, 160, 725, тролл. 63, или м. Текстильщики, далее авт. 29, 160, 725, тролл. 63 или м.такси 63 до остановки "Ул. Стахановская" <BR> Информационная поддержка - MUSICA.MUSTDIE.RU</p>
+
+Автор: Dimas
+
+### 29.11.2002 news Вторая всероссийская конференция по вопросам Death и Black
+
+<p>7 декабря 2002 г. (суббота), 18:30</p>
+<p>Клуб Relax</p>
+<P>Отличный звук и свет. Брутально рубят: <BR> <A HREF="http://rossomahaar.musica.mustdie.ru/">Rossomahaar</A> (black/death),<br><A HREF="http://musica.mustdie.ru/ru/band/atra_mustum/">Atra Mustum</A> (sympho black/death),<br> <A HREF="http://musica.mustdie.ru/ru/band/by_autumn_embraced/">By Autumn Embraced</A> (sympho black/death),<br> <A HREF="http://wishmaster.musica.mustdie.ru/">Wishmaster</A> (melodic black/death).</p></>
+<p>В перерывах атмосферное наполнение: Alpha Scorpii (ethereal darkwave), Odium (industrial/black).</p>
+<P>ВХОД: <BR> По карте CORONACH Club: бесплатно; <BR> По одному приглашению:<BR> - вдвоём: по 90 рублей;<BR> - без друга (подруги): 100 рублей; <BR> С флаерами: 100 рублей; <BR> без приглашения и без флаера: 140 рублей;<BR> Приглашения можно получить в клубе Relax. <BR> Флаер можно скачать <A HREF="http://coronach.nm.ru/fl/FLAYER-7-12-2002-RELAX.png">здесь</A>.</>
+<P> Клуб Relax: Москва, м.Каховская/м.Севастопольская, от метро: 5 минут пешком / 1 минута бегом, ул. Большая Юшуньская, д.1а гостиница "Севастополь", корпус 6.</>
+
+Автор: Vit Belov
+
+### 25.12.2002 news True and Evil New Year 2003
+
+<p><IMG SRC="/images/news_rus/2002.12/3489.gif" ALT="True And Evil" width="250" height="150" vspace="5" align="right">В понедельник 30 декабря 2002 в 17:00 Coronach Records & клуб Relax представляют: <BR> True and Evil New Year 2003 <BR> Серия Pornae Inferni. Акт 2</p>
+<p> Самая брутальная и самая последняя BLACKMETAL акция в 2002 году посвящена основателям направления winter black - группе FOREST STREAM<BR> Специальные гости - ROSSOMAHAAR<BR> При мощном разогреве групп Balfor, Буффонада, Sinful, Nergal, Despair, Omnicide</p>
+<p> ВХОД: <BR> По карте CORONACH Club: бесплатно<BR> По приглашению или флаеру:<BR> - если ты парень: 100 рублей<BR> - если ты девушка: 70 рублей<BR> - если не знаешь, кто ты: 110 рублей<BR> без приглашения и без флаера: 120 рублей<BR> Приглашения можно найти в рок-магазинах.<BR> Флаер можно распечатать с <A HREF="http://coronach.com/action.php">этой странички</A><br> Также его можно заказать по почте: info@coronach.com <BR> Следите за новостями: http://coronach.com/</p>
+<p> Адрес клуба Relax: Москва, м.Каховская/м.Севастопольская, от метро: 5 минут пешком / 1 минута бегом, ул. Большая Юшуньская, д.1а, гостиница "Севастополь", корпус 6.</p>
+
+Автор: Dimas
+
+### 14.02.2003 news MORDOR FEST
+
+<p><IMG SRC="/images/news_rus/2003.02/3815.jpg" ALT="pho" width=222 height=250 hspace="15" vspace="5" border="1" align="left">8 марта (суббота) 2003 года в клубе "Эстакада" состоится <U><B>MORDOR FEST</B></U> с участием групп <I><B>ROSSOMAHAAR, HOSTILE BREED, ARKONA, DESPAIR </B></I>и гостей из Санкт-Петербурга <I><B>AMBER</B></I>. <BR> Начало концерта в <B>17 </B>часов.<BR> Цена билета в предварительной продаже - <B>140 </B>рублей, в день концерта - <B>160 </B>рублей по флаеру, вход для девушек - <B>100 </B>рублей.<BR> Билеты продаются в кассе клуба, рок-галерее "Зиг-Заг" и рок-магазине "У дяди Бори".<BR> Адрес клуба: Рязанский проспект, д. 39, ДК 40-летия Октября.<BR> Проезд: м. Марксистская, далее авт. 51, тролл. 63 или м.такси 63, или м. Рязанский проспект, далее авт. 169, 143, 29, 160, 725, тролл. 63, или м. Текстильщики, далее авт. 29, 160, 725, тролл. 63 или м.такси 63 до остановки "Ул. Стахановская".<BR> Информационная поддержка - <B>MUSICA.MUSTDIE.RU </B></p>
+
+Автор: Dimas
+
+### 06.03.2003 news Новое поколение людей
+
+<p>Записан новый альбом группы DER GERWELT "Human Breed". Это проект в котором приняли участие Alex Duke (TALES OF DARK NORD), Lazar (ROSSOMAHAAR) и Yanardakh (ROSSOMAHAAR). Альбом записан на CDM records studio и содержит 6 трэков на 40 минут. Вся лирика написана Кай Матиасом Сталхаммером. В альбом вошли следующие вещи:</p>
+<p> 1. Shred of Me I Cannot Reach <BR> 2. Newborn World As We Know It<BR> 3. Into Mayhem <BR> 4. A Bleeding Path <BR> 5. Dreaming With The Dead <BR> 6. Human Breed (Ripped Open to a New Reality)</p>
+
+Автор: Dimas
+
+### 06.03.2003 news Новости от ROSSOMAHAAR
+
+<p>Московская группа ROSSOMAHAAR в середине апреля планирует засесть в пенаты студии CDM records для записи своего новейшего третьего альбома “Somni Regnum”. В альбом войдут следующие вещи:</p>
+<p> 01. Elemental Architecture <BR> 02. Blind Eye And Muted Mind <BR> 03. The Fragile Shades Of Grey <BR> 04. Mijn Leven Voor U (Spiritual Resonance) <BR> 05. 216 <BR> 06. Bloodred Utopia <BR> 07. We Crawl (Into The Depths Bewitched) <BR> 08. What’s Your Universe Built Upon <BR> 09. … Unto The Dimensional Complexity</p>
+<p> В записи альбома также примут участие оркестр духовых инструментов, а также аккордеонист. Ожидается тотальное безумие в лучших традициях группы.</p>
+
+Автор: Dimas
+
+### 14.04.2003 news Новости MORE HATE Productions
+
+<p>25 марта 2003 года на More Hate Productions вышел новый диск MIND ECLIPSE "Chaos Chronicles" ярославской блек-металл капеллы. Диск содержит 8 песен отличного, качественного black death metal. Этот альбом еще до реализации его на компакт диске получил отличные рецензии:<BR> - M-Magazine 9/10<BR> - Metal Kings 4/5 <BR> - Musica Mustdie 8/10<BR> - Fatal Forum 9/10 <BR> С этими рецензиями вы можете ознакомиться на сайте группы. Мы лишь присоединяемся к этим отзывам и рады представить вам современный образец Российского black metal движения!</p>
+<p> 30 апреля 2003 группа MIND ECLIPSE примет участие в музыкальном фестивале "SOUNDS FROM THE UNDERCROFT" в Софии (Болгария). Также участвуют: TUMULUS (Россия), KOROZY, DARKMOON RISING (Болгария) и др. группы.</p>
+<p> Другие концерты MIND ECLIPSE:<BR> 18 апреля 2003 - С.-Петербург, клуб "Карфекс" Российский Death Metal фестиваль "БЕЗ НАРКОЗА" участвуют: MORTEM (Москва), РОГАТЫЕ ТРУПОЕДЫ (Москва), MORRAH (С.-Петербург). <BR> 22 апреля 2003 - Ярославль, клуб "Партизан" Презентация нового альбома MIND ECLIPSE "CHAOS CHRONICLES". Также участвуют: ARTEMESIA (Москва), IINEXIST (Ярославль), ETERNAL SIN (Ярославль).</p>
+<p> Подписано соглашение на лицензионное издание нового диска белорусской группы DIVINA ENEMA "Under Phoenix Phenomenon" на More Hate Productions. Данный альбом будет выпущен в России одновременно с датой его официальной реализации на канадском лейбле Great White North Records. Точная дата выхода будет сообщена дополнительно!</p>
+<p> Достигнуто принципиальное соглашение с латвийской группой NEGLECTED FIELDS на лицензионное переиздание в России и СНГ двух альбомов этой культовой death metal команды - "Synthinity" и "Mephisto Lettonica" с дополнительными бонус трэками. Альбомы будут выпущены как совместные релизы More Hate с компанией Metal Agen/Союз. Группа NEGLECTED FIELDS в настоящее время находится в концертном туре по Польше!</p>
+<p> Группа ASHEN LIGHT приглашена на ежегодный интернациональный фестиваль Morbid Fest, проводимый Morbid Records в Германии. Фестиваль состоится 5-6 Сентября 2003 года в EASTCLUB BISCHOFSWERDA (www.east-club.de). Кроме Ashen Light заявлены MANOS, BLOOD, DESASTER, WACO JESUS, PROSTITUDE DISFIGURMENT, DEAD INFECTION, NEURAXIS, THE FLYING LUTTENBACHERS, DESECREATION, также может быть NASUM, SATYRICON, DARK FUNERAL, MERZBOW. More Hate Productions оказывает поддержку участию нашей команды в этой акции!</p>
+<p> Подписан контракт More Hate Productions с группой SMIRNOFF (Германия) на издание их нового альбома "The Deadly Return". Группа играет death grind в духе MACABRE. Точная дата релиза будет сообщена позже.</p>
+<p> Также на More Hate Productions ожидаются в этом году CD <BR> THERM. EYE. FLAME "Spherical" <BR> THERM. EYE. FLAME "The Solar Nebula" <BR> UNCROSSED "Deletio"</p>
+<p> Закончено сведение и мастеринг нового альбома группы DER GERWELT, который носит название "Human breed". Состав группы сейчас включает в себя Alex Duke (ex-ROSSOMAHAAR, ex-TALES OF DARK NORD, STONEHENGE) и Lazar (ROSSOMAHAAR, NARGATHROND, KATAR). Барабанные партии записал постоянный барабанщик группы ROSSOMAHAAR Yanarrdakh. Запись происходила в стенах известной московской студии CDM. Вся лирическая часть выполнена Herr Mathias Stalhammar (ROSSOMAHAAR, NARGATHROND). Музыкальный стиль группы также претерпел существенные изменения, альбом выдержан в стиле жесткого death/black metal без клавишных и прочих атмосферных вкраплений. Диск в СНГ будет выпущен More Hate Productions. На Западе на Profane Records (USA).</p>
+<p> Группа ATOLL NERAT оккупировала R-Line студию и записывает новый альбом. Уже записаны демо-версии двух новых вещей, и работа будет продолжена в ближайшие месяцы!</p>
+
+Автор: Dimas
+
+### 16.05.2003 news 23 мая в R-клубе
+
+<p><IMG SRC="/images/news_rus/2003.05/4264.JPG" ALT="pho" width=300 height=211 hspace="15" vspace="5" border="1" align="left">23 мая в R-клубе состоится последний в этом сезоне московский концерт BUTTERFLY TEMPLE! Прозвучат песни с нового альбома "Тропою Крови по Воле Рода!", а также старые хиты. В концерте также принимают участие PARANOIA, AMBER (thrash-metal) и ELFSWORD. Заявленная ранее ROSSOMAHAAR, по уважительным причинам не сможет принять участие в концерте. <BR> Начало концерта - 18:30. <BR> Цена билета с флаером -150р., без - 170р.</p>
+
+Автор: Dimas
+
+### 23.05.2003 news Новости из стана ROSSOMAHAAR
+
+<p>Барабанщик группы ROSSOMAHAAR Роман “Yanarrdakh” Панков в связи с напряжением во время записи последнего альбома группы пережил сильнейший стресс, что привело к осложнению его психики. В ближайшее время он будет находиться на амбулаторном лечении и группа не сможет выступать на запланированных концертах 23 мая и 21 июня. Коллектив приносит огромные извинения своим поклонникам!</p>
+<p> Тем не менее, альбом “Somni Regnum” записан и его ждет сведение и дальнейшая реализация.</p>
+
+Автор: Dimas
+
+### 18.07.2003 reviews Жить и умереть в Москве
+
+<p>Жить и умереть в Москве, так и не попав на концерт группы ROSSOMAHAAR - все равно, что пить водку без пива... Но это отступление. Своим новым концертным альбомом, музыканты предоставляют реальнейшую возможность всем оценить свое живое выступление не выходя из дома. Все эти вещи были записаны весною 2002 года в одном из московских рок-клубов в составе из трех человек: Lazar - гитара и вокал, Kniaz - бас, Yanarrdakh - ударные. Да, конечно, звук не настолько жирный, как на студийных записях группы, но надо учесть, что звучит всего одна гитара и московские клубы не самое лучшее место для записи подобных альбомов. Тем не менее, группа удачно выходит из этого положения, демонстрируя всем наглядно, что даже в сокращенном составе и на таком аппарате, можно многого добиться, если уметь играть и извлекать из своих инструментов максимум звука по возможности. Главное, музыкантам удалось сохранить оригинальный драйв и атмосферику. Кроме концертных записей, в качестве бонус-трэков на альбоме записаны четыре студийных кавер-версии: "Я не верю в анархию" от Гражданской Обороны, "Zwitter" от RAMMSTEIN, "Born Dead" от DEATH и "Gloves Of Metal" от MANOWAR. Надо отметить, что все кавера выполнены в характерной для группы манере и максимально приближены к black metal стилистике. Все записано, как всегда, профессионально, четко и в лучших традициях группы. Однако, хочется заметить, что лучше один раз это увидеть, чем несколько раз услышать...</p>
+
+Автор: Dimas
+
+### 15.08.2003 news ROSSOMAHAAR закончили сведение и мастеринг нового альбома
+
+<p>ROSSOMAHAAR закончили сведение и мастеринг своего нового альбома "Regnum Somni". Запись проходила в студии CDM Records при участии духовой секции из ska-core групы Necondition. Примерная дата реализации - октябрь 2003 г. Трэк-лист нового альбома:</p>
+<p>01. What's Your Universe Built Upon<br> 02. 216<br> 03. Obscurity in Progress<br> 04. The Fragile Shades Of Grey<br> 05. Elemental Architecture<br> 07. Mijn Leven Voor U (Spiritual Resonance)<br> 08. Blind Eye And Muted Mind<br> 09. Bloodred Utopia<br> 10. ...Unto the Dimensional Complexity</p>
+
+Автор: Morsus
+
+### 20.08.2003 news ROSSOMAHAAR и GREAT SORROW в Москве
+
+<P><IMG height=113 alt=pho hspace=15 src="/images/news_rus/2003.08/4770.jpg" width=300 align="left" vspace=5 border=1>21 сентября 2003 года в Р-клубе состоится металлическая суперакция с участием групп ROSSOMAHAAR (в новом составе и с новой программой) и GREAT SORROW (воссоединившаяся питерская легенда). Кроме того, в концерте принимают участие группы AMBER и АРКОНА<BR>Начало концерта 18-30<BR>Стоимость билета: - 150 руб. <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Адрес клуба: г. Москва, 4-й Рощинский проезд, д. 19 ( м. Тульская)</P>
+Автор: Dimas
+
+### 04.09.2003 news Вечеринка в Релаксе
+
+<P>3 октября 2003 года&nbsp;в клубе «RELAX» состоится вечеринка устраиваемая BLACK METAL CORPORATION при участии: <BR><IMG height=203 alt="" hspace=20 src="/images/news_rus/2003.09/4873.gif" width=300 align="left" border=0>The DEMONS <BR>ROSSOMAHAAR <BR>MELANCHOLY <BR>AGASFER <BR>ОРДАЛИОН <BR>Начало в 18.00 </P>
+<P>Стоимость входа - 180 р., по флаеру - 150 р. <BR>Адрес клуба: г. Москва, м. "Севастопольская" или "Каховская", <BR>Большая Юшуньская ул. 1а, гостиница "Севастополь", корпус 6 <BR></P>
+Автор: Dimas
+
+### 26.09.2003 news Презентация нового альбома ROSSOMAHAAR
+
+<P>25 октября в Р-клубе состоится презентация нового студийного альбома группы <B>ROSSOMAHAAR</B> "Regnum Somni" </P>
+<P>Концерт пройдёт при поддержке следующих коллективов:</P>
+<P><B><IMG height=180 alt="" hspace=10 src="/images/shows_rus/2003.10/5048.jpg" width=300 align="left" border=0>SEDUCER’S EMBRACE</B> (Первое выступление в новом составе)</P>
+<P><B>ETERNAL SICK</B></P>
+<P><B>AMBER</B></P>
+<P><B>WEEDS IN VOGUE</B></P>
+<P>Начало – <B>18:30</B></P>
+<P>Цена билета в день концерта в кассе клуба – <B>180</B>р.; </P>
+<P>с флаером – <B>160</B>р.; в предпродаже («У дяди Бори») – <B>140</B>р. </P>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21
+Автор: Dimas
+
+### 12.10.2003 articles ROSSOMAHAAR - &quot;Regnum Somni&quot; (пресс-релиз)
+
+<P><B>Rossomahaar</B> - единственный боеспособный российский блэк-коллектив, вполне заслуженно вышедший на международный уровень. Хотя в музыкальном отношении их творчество можно расценить как black/death metal, по духу их можно смело причислить к true black metal. Нечеловеческая агрессивность, скорость, мощь и плотность музыки просто оглушают. А невероятное мастерство исполнения и качество записи дисков привели к вполне закономерным успехам. Это не удивляет - ведь в работе группы в разное время приняли участие музыканты таких групп, как <B>Tales of Dark Nord, Stonehenge, Mental Home</B>. И теперь музыканты проявляют свои таланты также в довольно известных и даже культовых сайд-проектах - <B>Nargathrond, Der Gerwelt, Katar</B>...Первый альбом <B>'Imperium Tenebrarum'</B> (1999) произвел настоящий фурор. На сегодняшний день продано более 5000 его копий, что невероятно для дебюта. Их композиции стали появляться на сборниках - <B>'In Odium Veritas Vol.1 The Beginning... Of The End', 'Hellfire-5', 'Musica.Mustdie.Ru'</B> идругих. Помимо студийной работы в их активе появились не только бесчисленные концерты с российскими составами, но и выступления на одной сцене с <B>Sinergy, Mayhem</B> и <B>Behemoth</B>. Группа быстро подписала контракты с известными западными лейблами <B>Last Episode, Ars Metalli и Extreme Music</B> (Repulse); в результате второй альбом <B>'Quaerite Lux In Tenebris (Exploring The External Worlds)'</B> (2002) был выпущен в Испании. Закономерным итогом первой части их карьеры можно считать контракт с&nbsp;российским лейблом <B>Irond Ltd.</B>, подписанный в октябре 2003 года! Накануне <B>Rossomahaar</B> закончили сведение и мастеринг нового альбома - <B>'Regnum Somni'</B>. Запись проходила в студии <B>CDM Records</B> (где записывались также <B>Hostile Breed, Distemper, Rakoth, Samhain, Grom, Butterfly Temple, Наив, Тараканы</B>). Какого рода материал вас ожидает, можно понять из следующих фактов. Во-первых, барабанщик группы в связи с нервным напряжением во время записи пережил сильнейший стресс и даже находился на амбулаторном лечении. Во-вторых, работы велись при участии духовой секции из ska-core группы <B>Necondition</B> (саксофон и тромбон). Итог - 9 новых композиций. Вас ждёт шок: убийственный death/black metal делают просто смертельно опасным для жизни звуки джазовых инструментов. Слушайте, и помните - если вы это переживёте, то не забудете никогда... А 25 октября в Р-клубе состоится презентация нового студийного альбома 'Regnum Somni'. Вас ждёт незабываемый концерт с множеством сюрпризов и подарков!</P>
+<P>Концерт пройдёт при поддержке следующих коллективов:</P>
+<P>SEDUCER’SEMBRACE (Первое выступление в новом составе);</P>
+<P>ETERNAL SICK;</P>
+<P>AMBER;</P>
+<P>WEED’s IN VOGUE;</P>
+<P>Начало – 18:30</P>
+<P>Цена билета в день концерта в кассе клуба – 180р.; </P>
+<P>с флаером – 160р.; в предпродаже («У дяди Бори») – 140р. </P>
+<P>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21</P>
+Автор: Dimas
+
+### 23.10.2003 news Фестиваль MUSICAL FUSION pt.1
+
+<P><IMG height=263 src="/images/shows_rus/2003.11/5498.jpg" width=380 align="right" border=0>22 ноября, суббота, 17:00<BR>клуб Relax<BR><BR>Корпорация Монстров<BR>при поддержке Coronach records<BR>представляет<BR>Фестиваль MUSICAL FUSION pt.1<BR><BR>ROSSOMAHAAR (black death)<BR>ENS COGITANS (progressive doom)<BR>ATRA MUSTUM (symfo death black)<BR>MELANCHOLY (nu\prog\goth metal)<BR>REST IN PAIN (psycho death)<BR>SCRAMBLED DEFUNCTS (brutal death)<BR>S.H.I.T. (deathcore) + ANAL NOSOROG (gore grind)<BR>NOSFERATOS (brutal death)<BR>CONCORDIA (heavy metal)<BR><BR>RELAX (лучший металлический звук в Москве, т.318-71-61);<BR>адрес: м.Севастопольская (м.Каховская), 1й вагон из центра,<BR>от метро 5 минут пешком (1 минута бегом),<BR>ул.Большая Юшуньская, д.1а, гостиница "Севастополь", корпус 6.<BR><BR>В день концерта:<BR>- в Релаксе с 16.30 до 17.00 билеты 120 руб.;<BR>- после 17.00 вход по флайеру 140 руб., без флайера 170 руб.<BR>Предварительная продажа 130 руб. в клубе Релакс и рок-магазинах.<BR>Флайеры и билеты находить в рок-магазинах, в клубе РЕЛАКС.<BR></P>
+<P>Вход в масках запрещён. На входе жёсткий фэйс контроль. Это не маски шоу. Каждое лицо будет проверено на наличие маски, накладной бороды, усов и парика. (шутка)</P>
+<P>Следите за подробностями на сайтах: <A href="http://metal.front.ru/"><U>http://metal.front.ru</U></A> и <A href="http://coronach.com/"><U>http://coronach.com</U></A></P>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 01.11.2003 news Концертный график Rossomahaar
+
+25.10.03 - Москва. 18-30. Р-Клуб. Презентация альбома "Regnum Somni".<BR>Также участвуют: Seducer's Embrace, Amber, Eternal Sick, Weeds in Vogue<BR><BR>07.11.03 - Москва, "Релакс"<BR>Также участвуют: Мастер, Легион, Butterfly Temple, Catharsis, Satarial<BR><BR>22.11.03 - Москва, "Релакс"<BR>Также участвуют: Nosferatos, Atra Mustrum, S.H.I.T., Ens Cogitans,<BR>Melancholy, Concordia<BR><BR>25.11.03 - Ярославль, "Партизан"<BR><BR>30.11.03 - Санкт-Петербург
+Автор: Vit Belov
+
+### 28.11.2003 news MUSICAL FUSION pt.2
+
+<IMG height=200 alt="" hspace=0 src="/images/shows_rus/2003.12/5655.jpg" width=300 align="right" border=0>27 декабря, суббота, 17:00<BR>клуб Relax<BR><BR>Корпорация Монстров<BR>при поддержке Coronach records<BR>представляет<BR>фестиваль MUSICAL FUSION pt.2<BR>...в красной шапке, с топором,<BR>Дед Мороз входит в дом.<BR><BR>ROSSOMAHAAR (black death)<BR>REST IN PAIN (psycho death)<BR>SCRAMBLED DEFUNCTS (brutal death)<BR>MANITU (nu-alternativ metal) (C.-Петербург)<BR>FLESHBOMB (brutal death)<BR>MORGUE'S CHILD (gore death)<BR>CHAOS ALTER (melodic black)<BR>MASTER KILLER (deathcore)<BR>+ гость<BR><BR><BR>RELAX (лучший металлический звук в Москве, т.318-71-61);<BR>адрес: м.Севастопольская (м.Каховская),<BR>1й вагон из центра, от метро 5 минут пешком (1 минута бегом),<BR>ул.Большая Юшуньская, д.1а, гостиница "Севастополь", корпус 6.<BR>Следите за новостями на сайтах: <A href="http://monsters.h11.ru/"><U>http://monsters.h11.ru</U></A> и <A href="http://coronach.com/"><U>http://coronach.com</U></A><BR>Флайеры и билеты есть в рок-магазинах, в клубе РЕЛАКС.<BR>
+Автор: Vit Belov
+
+### 14.01.2004 news Пятница, 13
+
+<P>13 февраля 2004 года&nbsp;в клубе "Авалон" состоится концерт с участием:<BR><B>ROSSOMAHAAR<BR>MERLIN<BR>THE DEMONS<BR>SEDUCERS EMBRACE<BR>АТРОПИНОВЫЙ КРОЛИК<BR>NEMETON</B></P>
+<P>Начало концерта в 18:00<BR>Адрес: ул. Докукина, д. 10, стр. 12<BR>Проезд: м. ВДНХ, трам. 17 (4 остановки) или тролл. 14, 76 до ост. "Ул. Докукина"</P>
+Автор: Dimas
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 12.12.2004 news Новости от MetalAgen
+
+<P><STRONG>METALAGEN</STRONG> сообщает о подписании контракта с одной из лучших металлических банд постсоветcкого пространства&nbsp; <STRONG>ROSSOMAHAAR</STRONG>. Новый&nbsp; альбом группы это как всегда ураганный Death-Black-Metal c интересным и необычным вкраплением духовых инструментов. Релиз – декабрь 2004 года. </P>
+<P>Подписан контракт с группой&nbsp; <STRONG>MELANCHOLY</STRONG>. Коллектив из подмосковного города Электросталь исповедует electro-gothic-metal. Новый альбом это музыкальная повесть в 3 частях, первая из которых рассказана жестским мужским гроулингом, вторая - нежным женским вокалом, а завершает повествование музыкальный сэмпл состоящий из фрагментов первых двух глав с использованием последних музыкальных достижений. Релиз – декабрь 2004 года.</P>
+<P>Выходит новый альбом киевской группы <STRONG>FLYING</STRONG>, отправленный весной на доработку в связи с недостаточным качеством звукозаписи. На этот раз некоторые инструменты были перезаписаны и, альбом получил более качественное пересведение и мастеринг (студия «<STRONG>Дай</STRONG>», реж. <STRONG>Евгений Виноградов</STRONG>). Релиз – декабрь 2004 года.</P>
+<P>В самое ближайшее время выходят альбомы групп, выход которых был ранее объявлен, но приостановлен по причине некоторых затруднений партнёров <STRONG>SOYUZ MUSIC</STRONG> по производству аудио-носителей<BR><STRONG>ALKONOST “Alkonost</STRONG>”;<BR><STRONG>ALKONOST “Betweens The Worlds</STRONG>”;<BR><STRONG>BLACK COUNTESS «Королева Зима</STRONG>»;<BR><STRONG>СRUNCH “Total Works</STRONG>”;</P>
+<P>Подписан контракт с белорусской&nbsp; power metal группой <STRONG>PULSAR</STRONG>. Релиз – декабрь 2004 года.</P>
+<P>Продолжена работа <STRONG>METALAGEN</STRONG> со своими старейшими партнёрами&nbsp; группой&nbsp; <STRONG>MORTEM</STRONG>.&nbsp; Подписано новое соглашение на издание новых и переиздание ранних&nbsp; альбомов в новых перемастированных и переоформленных в плане дизайна версиях. Релиз – декабрь 2004 года (альбомы “<STRONG>Amputator</STRONG>”, “<STRONG>Death Is My Name</STRONG>”).</P>
+Автор: Vit Belov
+
+### 17.12.2004 articles Событие: Betonomeshalka Fest, 10.12.2004
+
+<P>Событие: Betonomeshalka Fest<BR>Участники: Anal Nosorog, Кувалда, Rossomahaar, Merlin<BR>Организатор: L’Escargoux<BR>Место: Р-Клуб, Москва</P>
+<P>10 декабря в Р-Клубе прошла очередная акция, которую устроители назвали фестивалем. Да не просто фестивалем, «Бетономешалка» фестивалем. Сие название было выбрано не случайно, ведь в концерте участвовала странная группа КУВАЛДА, которая прославилась хитом об этой строительной машине.</P>
+<P>Кроме указанных Выше команд, в концерте участвовали АТРОПИНОВЫЙ КРОЛИК и MUTANT FACTOR, на эти славные коллективы я не успел, посему ничего о них рассказать не могу. Но уже из этой информации понятно, что концерт задумывался, как сольное шоу КУВАЛДА с соответствующей grindcore-hardcore поддержкой, а MERLIN и ROSSOMAHAAR представляли собой лишь фон, призванный привлечь в Р-клуб более «цивилизованных» металлистов. В любом случае, хочется отметить, что начинать концерты в 17-00 в пятницу не годится. Не знаю, сколько было в зале народу к этому времени, хотя… Публика в этот вечер была неработающая. В основном, студенты и даже школьники.</P>
+<P>Первой группой, которую мне удалось посмотреть стали ANAL NOSOROG. Двое музыкантов, скрывающихся за этим именем, полностью его оправдали. Их выступление началось с оргазмических женских криков, которые были восприняты публикой очень тепло, как и сама группа. AN отыграли, почти под полную фонограмму, некоторое количество песен, которые, как и положено, не отличались друг от друга ни чем и содержали в себе заряд энергии, которую умеют воспринимать только любители grindcore. Добавлял экстравагантности вид вокалиста, который подвергся нападению возле клуба Relax за неделю до этого. Почти полностью загипсованное тело не помешало ему рубиться вместе с гитаристом, который не был обременён ничем подобным, но вёл себя тоже угарно. ANAL NOSOROG сошли со сцены, хорошо подогрев публику к выступлению КУВАЛДЫ.</P>
+<P>Для тех читателей, кто ничего не слышал о КУВАЛДЕ, скажу несколько слов. Группа из посёлка городского типа Спас-Клепики стала известна несколько лет назад, благодаря видеоклипу «Бетономешалка», который показали по MTV. Весь смех, как раз и заключается в том, что любят группу подростки, которые смотрят MTV, но душа их требует чего-то более радикального. И тексты в духе «Бетономешалка мешает бетон, бригада рабочих жрёт самогон», и страшные истории в духе «пьяных» Король и Шут вызывают отклик у этих ребят. Сразу скажу, что относится к группе можно, как минимум, с двух позиций. Первая – всё происходящее на дисках и концертах коллектива, чистой воды хохма, без всяких претензий на творчество, а вторая – более серьёзная, КУВАЛДА музыканты, композиторы и поэты. Последнее предположение я отметаю сразу. То, что мы увидели на концерте, не укладывается ни в какие рамки. Музыки, как таковой, нет, тексты – «стихи пионера». А вот первая версия имеет право на жизнь. Начался концерт с посвящения Dimebag Darrell, убитому накануне, в Р-клубе удалось даже добиться некого подобия минуты молчания. А дальше на сцене появился вокалист, коротко стриженный и со взглядом a-la Терминатор. Выкрикивая текста, которые были не понятны, из-за использования эхо-эфекта в микрофоне, он продолжал гипнотизировать зал. Чуть позже, он скинул с себя верхнюю одежду выше пояса, и начал танцевать. Подпрыгивая то на одной, то на другой ноге, а затем, вообще, пустившись вприсядку, он сильно рассмешил ту небольшую группу людей, которые не участвовали в слеме перед сценой. Честно говоря, мне непонятно это ностальгическое шоу из 80-х. Вероятно, такую музыку играли в те времена в каждом ДК на просторах СССР. Многие до сих пор считают, что это и есть металлическая музыка, как, видимо, считали и присутствующие на этом концерте 200 подростков, которые с чувством выполненного долга и покинули зал после выступления наших гостей.</P>
+<P>Сама КУВАЛДА не покинула зала, и они могли увидеть концерты настоящих metal-групп MERLIN и ROSSOMAHAAR. Особенно понравились ROSSOMAHAAR, у которых, и со звуком, и с перфомансом, и с материалом было всё в порядке. У MERLIN были некоторые проблемы со звучанием. Но главной проблемой завершающих концерт групп стало то, что после КУВАЛДЫ выступать бессмысленно. Многие поклонники этих групп не пойдут на такой несерьёзный концерт, опасаясь за своё психическое здоровье, тем более оба коллектива выступают в Москве довольно часто. Думается, что организаторы решили подстраховаться, на всякий случай, и зря… Пригласили бы ещё каких-нибудь core-щиков, а ещё лучше начали бы концерт попозже.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 22.12.2004 reviews Злобный оскал росомахи
+
+<P>Новое творение московских блэк-дэтстеров Rossomahaar. Хотя, если честно, новым его можно назвать с натягом. Альбом представляет&nbsp; из себя переаранжированные и переписанные с духовой секцией старые композиции. Духовая секция, в отличии от предыдущей пластинки, здесь в основном подчеркивает те или иные музыкальные решения, сведя на минимум заигрывание со ска. Хорошо это или плохо - пусть каждый решит сам для себя. Мне все-таки креатив, представленный прошлогодним альбомом, понравился больше. В композиторском плане Divinity более прямолинеен, эксперименты сведены к минимуму, что немудрено - все-таки материал был написан в период "трушности" коллектива. Но, тем не менее, пластинка достаточно интересна. Музыка на альбоме брутальна и агрессивна, прямо дышит злобой - и никакая духовая секция не способна смягчить эту тяжесть. Записано все как всегда на западном уровне - кто бы сомневался, ведь лидер группы&nbsp; Сергей "Лазарь"- звукоинженер одной из лучших московских студий. Отдельная песня - оформление альбома. Артворк выполнен В. Смердулаком,&nbsp; известным&nbsp; своими оформлениями творений питерцев Stalwart. Обложку можно смело ставить в один ряд с&nbsp; зарубежными релизами. В качестве приятного плюса, на диске&nbsp; находятся 2 концертных видеоклипа коллектива, отснятых в московских клубах в разное время. В целом можно сказать, что пластинка удалась, хотя хотелось бы, конечно, нового материала.Будем ждать.</P>
+<P>Диск предоставлен концерном "Группа Союз"&nbsp; </P>
+Автор: Fucker
+
+### 28.12.2004 news Конкурс ROSSOMAHAAR
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2004.12/7543.jpg" width=400 align=right border=5>METALAGEN & SOYUZ MUSIC сообщают о выходе нового альбома одной из лучших металлических банд постсоветcкого пространства - ROSSOMAHAAR. Музыканты вновь порадовали своих поклонников великолепными хитами, неизменно присутствующими в каждой работе этого неординарного коллектива, а также качественным саундом, за который персонально отвечает лидер Россомахи LAZAR. Как и прежде стиль ROSSOMAHAAR это ураганный Death-Black-Metal, но именно новый альбом отличает интересное и необычное вкрапление в общее музыкальное полотно партий духовых инструментов. Несомненный хит нового сезона!</P>
+<P>ВНИМАНИЕ КОНКУРС!!! <BR>А теперь вопросы -<BR>1. Назовите все работы как непосредственно самой ROSSOMAHAAR, так и альбомы проектов участников группы, а также лейблы на которых они выходили.</P>
+<P>2. Назовите художника оформившего новый альбом ROSSOMAHAAR, а также альбомы других групп, который оформлял этот человек.</P>
+<P>3. Назовите наибольшее количество каверов известных групп, которые исполняет и исполняла ROSSOMAHAAR.</P>
+<P>4. Назовите наибольшее количество групп, саунд-продюсером альбомов которых являлся LAZAR.</P>
+<P>Ответы присылайте на <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A></P>
+Автор: Vit Belov
+
+### 09.01.2005 articles ROSSOMAHAAR: &#39;Мы не боимся негров!&#39;
+
+<P><IMG height=188 alt="" hspace=0 src="/images/articles_rus/2005.01/7636.jpg" width=250 align=left border=5>Недавно на полках магазинов появился новый альбом ROSSOMAHAAR ‘A Divinity For The Worthless’, изданный Soyuz. Мы связались с Лазарем и выяснили у него кое-что интересное.</P>
+<P>Вопрос: Мы ещё не разу не общались для MUSICA.mustdie.ru Хочется услышать, мотивы включения в музыку ROSSOMAHAAR духовых инструментов.</P>
+<P>Ответ: На самом деле мы планировали к использованию армянский дудук, но представители диаспоры московских армян обещали порезать в лоскуты, за глумление над их национальной культурой… пришлось искать другие варианты. На самом деле, какая разница, дудук или саксофон, подумали мы, ведь музыка остается музыкой, и ноты сыгранные на любом инструменте остаются нотами. Поэтому пошли по менее оригинальному пути и позвали юзера gamchik'a из ВИА Necondtition. Были наезды от негров всяких джазовых, но мы их не боимся, куда им до наших армян?</P>
+<P>Вопрос: :)) А зачем Вы переписали старые вещи для нового альбома с саксом? Хотели быть поближе к неграм?</P>
+<P>Ответ: Ну а ты как думал? митал то чорный!</P>
+<P><IMG height=335 alt="" hspace=0 src="/images/articles_rus/2005.01/7635.jpg" width=250 align=right border=5>Вопрос: Ну, а если серьёзно. Обычно старые вещи на новый лад переписывают, когда хотят адаптировать их для нового звучания коллектива и забыть про старое. Вы теперь не мыслите ROSSOMAHAAR без саксофона?</P>
+<P>Ответ: Обычно старые вещи переписывают на новый лад, когда нет новых песен. А кушать то надо! Но мы пока не знаем , что делать с саксофоном. Гонорар гораздо удобнее делится на 3, а не на 4. Но думаю, что иногда придется приглашать гамчика на отдельные концерты. У нас будет две росомахи, добрая и злая! Добрая будет стоит для промоутера чуть побольше.</P>
+<P>Вопрос: Неплохая вещь номер последний, где с Вами играл клавишник DJ AVAD. Не планируете взять в группу и клавишника (до кучи), ведь когда-то он у вас был?</P>
+<P>Ответ: Так ты хочешь, что мы совсем разорились!! DJ AVAD записал с нами одну песню и взялся записывать еще несколько, на этом пока и заглохло! На самом деле мы мечтаем об участии DJ AVAD'а, но он слишком звезден для нас, для его участия либо придется сесть на жесткую диету или стать такими как Кипеловъ!</P>
+<P>Вопрос: Ходят слухи, что Вы устали от концертов. Вам они надоели, а промоутеры Вас продолжают доставать своими неприличными предложениями. Как ты эти слухи прокомментируешь?</P>
+<P>Ответ: Нет, нам не надоело! тем более, что после концерта можно расслабиться и выпить перцоффки и поплясать на готик-пати, а в этом счастие! Главное, что бы не надоело тем, кто на эти концерты покупает билет. Думаю, что это тоже как-то связано с неприличными предложениями промоутеров.</P>
+<P><IMG height=313 alt="" hspace=0 src="/images/articles_rus/2005.01/7634.jpg" width=250 align=left border=5>Вопрос: Тут был на презентации группы АРКОНА, которую можно назвать паган-металлической Россомахой с женским вокалом. Или так её нельзя назвать? Расскажи, как Вы познакомились с милой девушкой Машей, и что из этого получилось?</P>
+<P>Ответ: К Росомахе это не имеет никакого отношения! Аркона - это сольный проект Маши "Scream", где музыканты Росомахи играют за них придуманные партии за хлеб и консервы. На самом деле, наше участие в Арконе вынужденное. Где-то года полтора назад я по пьяни согласился на концерт Nargathrond в еще старом "Релаксе", мне тогда казалось, что я мощный готический артист и у меня получится стать русским Виле Вало… На репетициях я пел смешно и убого, особенно глумился Князь и всячески меня чмырил… Я упал духом и не знал, как мне быть.. я был напряжен и подавлен! Как раз в этот момент у меня на студии неудачно записывалась Маша, с тогдашней еще Арконой. Я попросил ее спеть на концерте и она, понимая безвыходность моего положения, обязала записывать альбомы ее паганского миталла. Никуда не деться теперь!</P>
+<P>Вопрос: Ну, зато, ты теперь можешь стать вторым&nbsp;Ореем или Лесьяром, круто. Ну и последний вопрос к тебе. Как ты относишься к посетителям нашего форума?</P>
+<P>Ответ: Ну да, быть вторым Абреем или Лесьяром очень почетно! Я как раз планировал зайти в магазин прикупить тюбик "Вэлла Калор" и перекраситься в огненно рыжий цвет! А посетителей пхорума я очень нежно люблю! Некоторым я даже песни посвящаю!<BR></P>
+Автор: Vit Belov
+
+### 23.01.2005 reviews Барабаны, гитары и сакс
+
+<P>Могу сразу сказать, что моя душа никогда не лежала к музыке, исполняемой московской группой&nbsp;Rossomahaar, хотя я всегда признавал высокую технику этого коллектива. Ну не моё это, и всё тут. Правда, после прослушивания нового их альбома "A Divinity For The Worthless" я всё же несколько изменил своё мнение, и в лучшую сторону. Тем более, что группа решилась на то, о чем я не раз говорил музыкантам других отечественных тяжелых коллективов: ребята решили разбавить свой довольно мелодичный death-black духовыми инструментами. Звучит это порой здорово, а порой... несколько смешно, как, к примеру, местами в 'Crescent Moon', уж больно веселенькие проигрыши получаются, как будто группа играет&nbsp; в каком-то кабаке для уже достаточно принявших на грудь посетителей (вообще, мне эти саксофонные пассажи до боли напомнили какую-то еще отечественную команду, но не из металических, а из Russian Rock'овых, только я так и не вспомнил, какую). В общем и целом, лично для меня эта пластинка не представляет ничего особенного, но местами даже нравится (и особенно тот момент, что блэка здесь почти нет), да и никакого раздражения или желания нажать на пимпу "стоп" не вызывает. Очень хорошо прописан вокал Лазаря, но вот инструментальной составляющей, на мой взгляд, не хватает мощи (а мы знаем, как могут записываться трио), да и сама музыка особо не цепляет, хотя это дело весьма субъективное. Альбом выходит с тремя бонус-трэками: аудио '216' с участием DJAvad'а (вот где нас блэк-то подстерег!) и два концертных видео 'The Moon, The Sun, The Stars' (с похабнейшим звуком) и 'What's Your Universe Built Upon'. Так что накиньте балл-другой на мою необъективность, и будет вам счастье!</P>
+<P>Альбом&nbsp; предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 30.05.2006 news Вторая часть сборника клипов российских команд
+
+<P>В ближайшее время, на <STRONG>CD-Maximum</STRONG> выйдет вторая часть сборника клипов ведущих групп российского тяжметмузпрома от <STRONG>Music Infection</STRONG> под навзанием "<STRONG>Totum Dissemination, Vol.2</STRONG>". В него войдут следующие работы:</P>
+<P><STRONG>1. INSIDE YOU - In A Winter Wood<BR>2. MELANCHOLY - Die, Forgive<BR>3. КОМА - Какая разница?!<BR>4. RASTA - New God<BR><IMG height=362 alt="" hspace=50 src="/images/news_rus/2006.05/10418.jpg" width=250 align=right border=0>5. ANAL NOSOROG - Vagina Says<BR>6. ШМЕЛИ - Стриптиз интеллекта<BR>7. КУВАЛДА - Das Fleisch<BR>8. SHADOW HOST - Before The Storm<BR>9. HOSTILE BREED - V.I.P.<BR>10. KOMMANDA ГУ - Эпизод<BR>11. МАСТЕР - 33 жизни<BR>12. АРТЕРИЯ - Один на один<BR>13. SATARIAL - Шлюха-смерть<BR>14. BESTIAL DEFORM - Jesus Is Dead<BR>15. K.G.B. - The Barren Sycamine<BR>16. BUTTERFLY TEMPLE - Время Мары<BR>17. MURK EXORBITANCE - Desecrated Reality<BR>18. ХАРИЗМА - Охотник<BR>19. TARTHARIA - Crowned By Name<BR>20. S.C.A.R.T. - The Last<BR>21. ЧЕРНЫЙ КОФЕ - Церквушки<BR>22. KRUGER - Нация РОК!<BR>23. Э.С.Т. - Катюша - live in Тушино'91 (bonus)<BR>24. ROSSOMAHAAR - Praise Departure Of Spiritual Streinch - live (bonus)<BR>25. АРКОНА - Восстание Рода - live (bonus)</STRONG></P>
+Автор: Dimas
+
+### 13.09.2006 news EP ROSSOMAHAAR
+
+<P>EP&nbsp;<STRONG>ROSSOMAHAAR "Moscow - The Sanguine Reign of Terror"</STRONG> перестал быть только интернет-синглом. На лэйбле <STRONG>Sound Age production</STRONG> был издан лимитированный тираж компакт дисков. В качестве CD-rom бонусов предоставлены видео с концерта 2004 года в клубе «Точка» и полная дискография коллектива в мп3. Релиз в продаже с 12 сентября. </P>
+Автор: Дофф
+
+### 08.02.2007 news Презентация нового альбома ASHEN LIGHT
+
+<P><IMG height=283 alt="" hspace=10 src="/images/shows_rus/2007.02/11319.jpg" width=400 align=left border=0>7 марта в московском клубе “Релакс” состоится презентация нового альбома «<STRONG>Бог -Мертв. Смерть – Бог</STRONG>» культовой московской black metal группы <STRONG>ASHEN LIGHT</STRONG>. В этот день коллектив представит свой обновленный состав и исполнит обширную программу как из старых так и из новых песен. Концерт состоится при поддержке:&nbsp;<BR><STRONG>РАРОГЪ</STRONG> (паган метал),&nbsp;<BR><STRONG>БАСТИОН</STRONG> (паган метал),<BR><STRONG>KARTIKEYA</STRONG>&nbsp;(индо - европейский метал)</P>
+<P>&nbsp;а также, специального гостя: <STRONG>ROSSOMAHAAR</STRONG></P>
+<P>Начало концерта в 18:00, билеты во всех магазинах по 180 руб.<BR>Адрес клуба: ул. Мельникова, д.7, ДК 1-го ГПЗ (проезд ст. метро "Пролетарская".)</P>
+Автор: Dimas
+
+### 16.04.2007 articles 31 марта, &quot;Релакс&quot;: Мировой день здоровья прошёл в другом месте...
+
+<P>31 марта в «Релаксе» прошла акция «The World Day Of Health” – Мировой День Здоровья. День Здоровья, видимо, действительно праздновали по всему миру, по этой причине в клубе собралось предельно низкое количество народа для такого представительного мероприятия. Судите сами: ROSSOMAHAAR, STIGMATIC CHORUS, ARCANE GRAIL. Плюс впервые в Москве HOSTILE CALM, а также новый проект Мирона (ex-BUTTERFLY TEMPLE) ПУТЬ СОЛНЦА. В клубе присутствовало менее сотни человек. Кто виноват? Возможно, другие организаторы, в Москве выступали в этот день POISONBLACK, GRAVE DIGGER, MORTIFER… Возможно, организатор этого концерта Soulfire. В любом случае имеем, что имеем.</P>
+<P>Концерт мне не понравился. Не то чтобы совсем не понравился, но не понравился. Настроение обыденности как со стороны зрителей, так и со стороны музыкантов не оставляло ощущения праздника. Всё-таки мы за этим ходим, а не за тем, чтобы попить разбавленного «релаксовского» пива, или посетить незабываемый сортир, где пахнет хуже, чем в соответствующем заведении общего вагона поезда дальнего следования. А праздника не получилось… Первой группой, которую я увидел стали THORN из Электростали. В их составе мною был замечен клавишник MELANCHOLY, который в этом «дэзовом» коллективе играет на гитаре. Говорят, что перед ними выступала ещё одна команда, но кто её видел – загадка. На THORN в зале было 10-15 человек, что творилось за полчаса до этого… Самое забавное, что наибольшее впечатление на меня произвели, именно, гости из Электростали. Их качёвый, среднетемповый, брутальный и современный материал впечатляет. Равно как и их работа на сцене. С самого начала выступления группы мне показалось, что два брутальных вокалиста, представленных THORN, это слишком. Но коллектив доказал обратное, их вокалы звучали не как хор отморозков, и не как вопли пьяниц. Два голоса органично дополняют друг друга, выстраивая стену из агрессии. Поведение обоих певцов и музыкантов передавало энергию тем полтора десяткам человек, прибредших в зал. Приятно, что у начинающего коллектива хватило профессионализма выложиться по максимуму, несмотря на более чем скромную аудиторию. Стоит обратить внимание на THORN, или как они теперь называются EMPTY SHELL. Уже под этим названием группа выступит на совместном концерте с MELANCHOLY в Релаксе (следите за афишей).</P>
+<P>Следующими дебютантами стали HOSTILE CALM из Рязани. Их одноимённый альбом вышел в те же дни на Musica Production. Так что их выступление можно было расценивать, как некую презентацию диска в Москве. Скажу несколько слов о материале, представленном на их дебютнике. Безусловно, мелодичная музыка с элементами gothic, death, doom, black, с добавлением женского вокала, разнообразным мужским вокалом. Главным минусом и в то же время плюсом является совершенная непохожесть материала на что-то слышанное мною ранее. Каждый сможет найти что-либо привлекательное на этом альбоме. С другой стороны HOSTILE CALM не всегда удаётся стабилизировать разные направления, составляющие их творчество, и привести их к одному знаменателю. Иногда их эклектика кажется чрезмерной, а некоторые трэки выходят за рамки тяжёлой музыки. Особенно те, где партии лидирующего вокала исполняет девушка. Здесь мы уже имеем дело с псевдоготичной альтернативой, истеричный вокал Naamah притягивает к себе внимание слушателя, и о других плюсах данных композиций говорить уже не приходится. Поэтому и выступление HOSTILE CALM несло в себе немного не то, на что мог рассчитывать слушатель диска. Экстравагантная девушка притягивает к себе внимание, тянет одеяло на себя. Сопутствующие ей музыканты теряются. Вокалист на её фоне, вообще, выглядит бледно, несмотря на внушительные размеры и шляпу. На записи Naamah скорее бэк-вокалистка, на концерте полноценный фронтмэн. К сожалению, многое, что украшает альбом помимо её голоса, полностью пропадает при выступлении вживую. Если HOSTILE CALM продолжат движение в этом направлении и в студии, мы, металлисты, потеряем самобытную группу, зато «альтернативщики» приобретут.</P>
+<P>Примерно в этом месте мы узнали, что ПУТЬ СОЛНЦА выступать не будут. Что послужило этому причиной неизвестно. Быть может, группа расстроилась отсутствием публики, но следующими на сцену вышли ARCANE GRAIL. Интересно, что и эта набирающая обороты московская группа поберегла себя. В частности вокалистка Натали не одела своего знаменитого платья. Мне же всё равно это выступление группы понравилось больше, чем на презентации дебютного диска. Во-первых, звук был много лучше. Он даже можно сказать был хорошим. Сразу можно отринуть все мои претензии к коллективу, высказанные в прошлом году. Оказалось, что звучать на сцене они могут так же, как и на записи. По крайней мере, в этот раз песни узнавались. Вторым плюсом стало поведение музыкантов. Отринув пафосность, AG выдали настоящий металл-концерт. Заводной и мощный. Раскованно общавшись с залом, отыграли свой сэт «на ура». Уже в следующую пятницу группа разогревала GRAVEWORM и, по отзывам очевидцев, смотрелась очень хорошо.</P>
+<P>Следом появились хэдлайнеры концерта ROSSOMAHAAR. Эта группа заслужила это звание своим трудом в течение всех лет существования. В активе коллектива концертник, несколько студийников, DVD, миньон. В настоящее время музыканты более известны, как участники АРКОНА. Там у них настоящая слава, а тут… Человек 60 в зале, в основном музыканты, журналисты, родственники, друзья. Музыка группы круто изменилась, когда в 2003 году на Irond вышел альбом “Regnum Somni”. На нём москвичи попытались скрестить black-death с ska, используя духовую секцию, свойственную группам этого стиля. Можно сколько угодно восхищаться подобным нестандартным решением, но на выходе мы получили что-то не то. Самое интересное, что ROSSOMAHAAR и сейчас продолжают совершенствовать это «не то». На сцене не заметен саксофонист, но строение музыки полностью потеряло все черты black-death-metal. Что хочет сказать группа не понятно. То музыканты сбиваются на забой, то появляются странные ритмические переходы, призванные быть сыгранными не на гитаре, и даже не в металле, вообще. Не понравилось. Судя по всему и публика не особо увлечена нынешней ситуацией. По крайней мере, стойкого фэн-контингента у ROSSOMAHAAR не наблюдается.</P>
+<P>Black-Death-metal стоит перед проблемой отсутствия хэдлайнеров. Уже есть заслуженные группы, есть известные… Но нет ни одной, пригласив которую, можно гарантировать хоть какое-то количество посетителей. Проблема не в этих группах, которые почему-то не собирают народ на рядовые концерты, а в тотальной непопулярности стиля среди посетителей наших UG клубов. Продолжаю констатировать повышенную любовь к pagan и русскоязычному эмоциональному heavy-metal, которая пока не перекидывается на смежные группы.&nbsp;&nbsp; </P>
+Автор: Vit Belov
+
+### 01.06.2007 news ROSSOMAHAAR опубликовали в сети новый клип
+
+<P>Московский ska-death-black metal коллектив <STRONG>ROSSOMAHAAR</STRONG> опубликовали в сети новый клип на песню "<STRONG>Красота должна умереть</STRONG>". Монтажем клипа занимался&nbsp;<STRONG>Алексей Миронов</STRONG> (<STRONG>Music infection TV</STRONG>). Клип можно <A href="http://youtube.com/watch?v=egm1Z38eGnE">посмотреть</A> на YourTube или <A href="http://www.rossomahaar.ru/video/rossomahaar-kdu.wmv">скачать</A>&nbsp;с сайта группы.&nbsp;<BR></P>
+<P><BR>&nbsp;</P>
+Автор: Dimas
+
+### 05.10.2007 news Двойная презентация новых альбомов ASHEN LIGHT и KARTIKEYA
+
+<CENTER><IMG height=567 alt="" hspace=0 src="/images/shows_rus/2007.10/11890.jpg" width=401 align=left border=5>19 октября в клубе «Релакс» Sound Age prod. и Musica prod. представят двойную презентацию новых альбомов групп Ashen Light и Kartikeya.<BR>&nbsp;<BR>Ashen Light не нуждается в широком представлении, ибо культовость этого этого коллектива не понадлежит никакому сомнению. Прорвав 8 лет назад границы локальной сцены своим дебютным альбомом «Песнь Велеса», группа приобрела известность как у себя на Родине, так и за рубежом. <BR>"Философия самоуничтожения" - это девятая по счету работа, в которой коллектив еще глубже затронул наиболее темные стороны человеческого сознания.<BR>Позиции группы укрепил приход небезызвестного музыканта Андрея Ищенко (ex-Catharsis, Hieronymus Bosch, .........) Теперь, вживую коллектив звучит вдвое интереснее, чем на записи.<BR>&nbsp;<BR>Kartikeya. Автор музыки альбома «Зов Новой Гипербореи» ансамбля Невидь Роман Искоростенский, наконец-то решил порадовать слушателей творчеством своей собственной группы. На «The battle begins» бесспорно угадывается влияние Nile и позднего Behemoth, только Роман еще глубже шагнул в слиянии death metal’а с этнической музыкой. Наиболее яркий и профессиональный творческий дебют этого года.<BR>На этом выступлении группы планируется участие широко известного в кругах этнической и эзотерической музыки перкуссиониста Dierevo.<BR>&nbsp;<BR>Поддержат в этот день братские группы коллектив Rossomahaar, который, спустя вынужденного полугодового перерыва, впервые выступит в Москве и тру-блэк формация Grom, в которой теперь участвует главный беспредельщик и маньяк российской black metal сцены Отец Сергей (ex- Ashen Light) <BR>&nbsp;<BR>Начало концерта в 18:00<BR>Цена билета в предварительной продаже 200 рублей<BR>Адрес клуба: м.Пролетарская, ул. Мельникова д.7)</CENTER>
+Автор: Dimas
+
+### 15.02.2010 articles RAGNAROK в Москве: &quot;Все мы умрём&quot;
+
+<P>Благодаря усилиям Flaming Arts Agency Россию с туром вновь посетили норвежские «богохульники» RAGNAROK. 13 февраля группа дала концерт в московском клубе “Plan B” при поддержке внушительного отечественного «суппорта» в лице STIGMATIC CHORUS, ATRA MUSTUM, ПУТЬ СОЛНЦА и ROSSOMAHAAR.</P>
+<P>В случае с RAGNAROK необходимость их очередного пришествия совсем не очевидна. Пускай, коллектив, существуя с 1994 года, является одной из старейших норвежских групп в этом направлении (из ныне существующих), их статус уже не столь высок, как раньше. В 2010 году у группы выходит новый альбом “Collectors Of The King”, но до этого нового материала мы не слышали почти шесть лет. Кроме прочего, в составе норвежцев сейчас сплошь новые лица. Единственным оригинальным участником остаётся барабанщик Jontho, все же остальные участники пришли только в 2008 году. В Москве выступал ещё и второй гитарист, имени которого мне отыскать не удалось, но, думается, эта проблема не столь важна. Начнём с разогрева.</P>
+<P>Полный обзор разогревающих составов я сделать не смогу, так как, несмотря на достаточную известность открывающих групп, четыре штуки это всё-таки перебор. Мои впечатления ограничились только двумя из них – ПУТЬ СОЛНЦА и ROSSOMAHAAR. При этом ПУТЬ СОЛНЦА я застал только во время исполнения ими последнего хита одноимённой вещи с дебютной пластинки «Победитель всегда остаётся один», вышедшей в этом месяце на 1Rock Records. В составе этой группы Алексей Миронов, известный по недолгому пребыванию в BUTTERFLY TEMPLE и более длительной работе в «кабельной» передаче Music Infection и басист Belf (STIGMATIC CHORUS, ASHEN LIGHT, НЕВИДЬ, ex-SINFUL). Безусловно, ПУТЬ СОЛНЦА могут сказать новое слово в отечественной музыке. Miron отрастил «дрэды» и своим поведением напоминает Max Cavalera, такие же ассоциации вызвала и прослушанная вещь. Скачущий SOULFLY-образный рифф, экспрессивное поведение фронтмэна… Целиком новый альбом мне прослушать ещё не удалось, но, говорят, Мирон унаследовал от BUTTERFLY TEMPLE и pagan-идеологию. И вот это действительно ново! Pagan с «дрэдами» и «mother fucker» ритмами. Посовещавшись с некоторыми товарищами в зале, я пришёл к выводу, что чернокожие люди тоже могут быть язычниками. Более того, последователями национальных культов на Чёрном континенте является большой процент населения, но выглядит всё это слишком оригинально. Возможно, вышеуказанная песня является исключением, и всё остальное творчество группы представляет собой старый добрый black-metal, но «дрэды» ведь никуда не выкинешь. Однако.</P>
+<P>Выступление группы ROSSOMAHAAR я описывать не стану. Чуть менее трёх лет назад я уже рассказывал об их шоу в «Релаксе», за это время ничего коренным образом не изменилось. Нового альбома нет, новых эмоций тоже. Крепко, профессионально, качественно, но не более.</P>
+<P>Все мои скептические слова, сказанные выше о новом составе RAGNAROK, развеялись как дым с их выходом на сцену. Мрачнейшее «интро» со словами на латыни за каких-то две минуты погрузило зал в нужное состояние. Мне кажется, RAGNAROK не нужен был и разогрев, достаточно было проиграть эти зловещие звуки, и все бы всё поняли. На моих глазах из зала убежала женщина, которую спутник пытался заставить прослушать это. Древний, утробный black-metal, который представили RAGNAROK, погрузил всех в хаос. Жужжащие гитары, сменявшиеся чётким, почти thrash-metal’ическим, ритмом заводили тех немногих, которые решились посетить это мероприятие. Безусловно, этот концерт стоил того, чтобы его посетить. Колоритные персонажи, игравшие музыку, навели меня на философскую мысль о бренности всего живого. Любого человека ждёт смерть. «Покойнички» на сцене это доказывали. «Человек-гора» и «человек-камень», стоявшие на сцене справа, субтильный вокалист, перемазанный в крови… Все эти люди когда-то были живы, но в субботу их души совершенно точно принадлежали Сатане. Быть может, это всё смешно читать, но впечатление RAGNAROK оказывали сильное. Никакой особой техники, никакого кристального звука (ROSSOMAHAAR, например, звучали поинтересней), но адский угар. Странно, что при всей внешней силе нашей black-metal сцены в Москве получать такое же удовольствие от шоу мне давно не приходилось. Пожалуй, можно вспомнить только питерцев DRAMA, о которых давненько ничего не слышно. И вроде бы всё так просто… Задник, интро и угар. Но почему-то не у всех это выходит.</P>
+<P>Лишний раз убеждаюсь, что для качественного концертного выступления ничего не нужно, кроме энергетики выступающих и минимального шоу. Если вы не постесняетесь всё это представить зрителям, они будут ваши.</P>
+Автор: Vit Belov
+
+### 12.10.2010 news Группа ROSSOMAHAAR представляет новый EP
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17367.jpg" width=300 height=300>Группа <STRONG>ROSSOMAHAAR</STRONG> представляет вторую часть трилогии "<STRONG>Moscow (The Sanguine Reign of Terror)</STRONG>", посвященную столице РФ и являющейся логическим продолжением одноименного EP, выпущенного в 2006 году.</P>
+<P>В дальнейшем, группа не собирается изменять своим принципам и записать третью, заключительную часть этого релиза не ранее, чем через 4 года приурочив его самоликвидации города-героя. Оставшиеся в живых слушатели смогут самостоятельно собрать альбом из трех частей в полюбившемся порядке.</P>
+<P>Послушать новую запись можно на myspace коллектива: <A href="http://www.myspace.com/rossomahaarofficial">http://www.myspace.com/rossomahaarofficial</A></P>
+Автор: Headcrusher
+
+### 22.11.2010 news Oбложка нового CD группы ROSSOMAHAAR 
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17644.jpg" width=400 height=400>Группа <STRONG>ROSSOMAHAAR</STRONG>&nbsp;представляет обложку нового CD <STRONG>"The Reign Of Terror"</STRONG>, который будет издан лэйблом <STRONG>SounAge prod</STRONG>. в начале декабря этого года.</P>
+<P>Над дизайном работал небезызвестный <STRONG>W. Smerdulak </STRONG>(<A href="http://www.smerdulak.ru">www.smerdulak.ru</A>), знакомый по предыдущим оформлениям коллектива.</P>
+<P>Релиз будет представлен в формате digipack и впервые появится в продаже на его презентации 4 декабря в московском клубе «ХО».</P>
+Автор: Headcrusher
+
+### 12.06.2012 news Влад “Artist” Соколов (АРКОНА, ROSSOMAHAAR) стал официальным представителей брэнда Paiste.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24169.jpg" width=400 height=396>Швейцарский производитель тарелок и гонгов, компания <STRONG>Paiste</STRONG> представляет нового эндорзера своей продукции – одного из выдающихся российских барабанщиков&nbsp; <STRONG>Влада “Artist” Соколова</STRONG> (<STRONG>АРКОНА</STRONG>, <STRONG>ROSSOMAHAAR</STRONG>):&nbsp; <BR><A href="http://www.paiste.com/e/endorser_det.php?page=image&endorserid=5558">www.paiste.com/e/endorser_det.php?page=image&endorserid=5558</A></P>
+<P>Влад будет представлять серию тарелок <A href="http://www.paiste.com/e/cymbalsoverv.php?family=5&action=family&menuid=255">«2002»</A>. </P>
+<P>Поздравляем музыканта с этим знаменательным событием!</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Rossomahaar

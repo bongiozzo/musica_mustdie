@@ -346,6 +346,933 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.03.2000 news 
+
+<p>Новый альбом Акселя Руди Пелла "The Masquerade Ball" выйдет 10 апреля. Вокалист Джоуи Джиоэлли записывает сейчас свои партии в Германии.</p>
+
+Автор: Vit Belov
+
+### 21.04.2000 reviews 
+
+<p>Новый альбом не очень хорошего гитариста. Многие называют его большим любителем Helloween, но этот альбом юбольше похож на трибьют к какому-нибудь бэсту Scorpions. Это уже не металл. Вначале ещё были какие-то быстрые песни, но очень всё быстро успокаивается и мы слышим одни сопливо-слезливые медляки в духе скарпов, но даже хуже. Не знаю зачем это всё нужно, по крайней мере Акселя Руди Пелла можно поставить теперь в один ряд с Бон Джови. И ещё, сейчас все любят мелодичный металл, но если дело так дальше пойдёт, мелодичный металл придёт к такому виду, как этот скучно-занудно-романтичный поп-рок-хэви-металл альбом "героя гитары". Кстати, чего-то особенного я в технике Пелла не услышал. Скучно и противно.</p>
+
+Автор: Vit Belov
+
+### 26.06.2000 articles Axel Rudy Pell: Овладевая гитарой и миром
+
+<p> Axel Rudi Pell не новичок в металлическом шоу-бизнесе. Он выпустил большое количество альбомов, некоторые из них были успешными, но потом его карьера пошла на спад. До тех пор, пока не был выпущен "Masquerade Ball". На мой взгляд, он словно родился заново. Как будто он нашел свое потерянное вдохновение и написал песни в стиле power metal самого высокого качества. Недавно мы поговорили с ним о его новом альбоме и о множестве других вещей. <img src="/images/articles_rus/2000.06/articles_rus_1692.jpg" width=200 height=280 align=right></p>
+<p> Axel, перед тем как мы начнем, я бы хотел поздравить Вас с новым альбомом. Я думаю, что это лучшее из того, что Вы сделали за последние годы.</p>
+<p> -Большое спасибо, я думаю тоже самое. (смеется)</p>
+<p> Я начну с оформления альбома, которое по моему мнению просто блестящее. Вы можете рассказать мне что-нибудь об этом?</p>
+<p> -На самом деле, обложка продолжает историю, которая началась на предыдущем альбоме. На обложке предыдущего альбома были изображены пять парней в лодке, плывущих через океаны времени. Теперь они прибыли на землю, которая была очень далеко на картине. Эти пять парней представляют собой группу, которые получили приглашение на "Masquerade Ball". Итак, на обложке изображено, как они стоят у входа в храм, а что там внутри, Вы сможете увидеть на следующем альбоме. Эта сага, эта концепция будет продолжаться через оформления альбомов, т.о. на следующем альбоме, Вы снова увидете этих парней, но в другой атмосфере.</p>
+<p> Вы когда-либо думали о том, чтобы написать концептуальный альбом об этой саге?</p>
+<p> -Нет. Но на самом деле все тексты об этом, потому что я большой поклонник этих историй про драконов и героев и о прочих таких вещах. Здесь, только две песни имеют другую тематику. Одна из которых - лирическая, о взаимоотношениях с женщиной, а другая - о клубе мотоциклистов. Все остальные тексты - в стиле фэнтези.</p>
+<p> Как я уже сказал, это лучший Ваш альбом для меня за последнее время. Так что же изменилось?</p>
+<p> -Может быть это потому что у меня было больше времени, чтобы сконцентрироваться на написании песен, а может быть на этот раз мои идеи были более лучше. Также я считаю, что мы играли лучше как команда. Я думаю, что мы узнали лучше друг друга и теперь можем работать вместе лучше чем раньше. Но никаких изменений в составе группы, которые бы повлияли на исполнение, не произошло.</p>
+<p> Вы можете мне сказать, кто продюсировал альбом?</p>
+<p> -Я сам и еще один парень, который занимался технической частью (простите, я не узнал его имя). Я думаю, что продукция хорошая, но что касается звука, он мог бы быть немного получше. В некоторых песнях у меня возникает чувство, что гитара недостаточно громка, а в других песнях я думаю, что клавишные недостаточно громки. Но в целом, я удовлетворен продукцией.</p>
+<p> Есть ли различия, когда Вы продюсируете альбом сами и когда приглашаете кого-либо для этого?</p>
+<p> -На самом деле, это совсем разные вещи, в прошлом, мы приглашали разных продюсеров и каждый из них имел свое понимание песен. Иногда это очень странно. Я точно знаю как должна звучать песня когда я ее пишу, а с другим продюсером она может звучать не так. Даже, может быть, это будет уже не песня Pell'а.</p>
+<p> Майк, ваш барабанщик, играет также в другой команде. Создает ли это какие-либо проблемы группе?</p>
+<p> -Нет, потому что Майк играет также для Rage, и их следующий альбом не выйдет до следующего года. Т.о. расписание превосходное, как Вы знаете. Даже когда мы будем играть на фестивалях в Германии летом, будут играть обе команды. Rage играет в пятницу, a Pell в субботу. Майк - очень хороший барабанщик, профессиональный барабанщик, поэтому нам не нужно для репетиции много времени и к тому же он сильный. Я полагаю, что он без проблем примет участие в обоих шоу.</p>
+<p> Откровенно говоря, когда я слушал Ваши песни, у меня было ощущение, что они более длинные чем могли бы быть на самом деле. Так почему Вы склонны к написанию таких продолжительных песен?</p>
+<p> -На самом деле, потому, что иногда песням необходимо быть такими длинными. Например, заглавный трек, который является самой длинной песней на альбоме, когда я его писал, я думал, что было бы хорошо иметь вступление. Итак, мы сделали вступление, которое длится более 2 минут с клавишными и прочими делами, но если убрать вступление, чтобы сделать песню короче, то в целом она будет звучать по-другому.</p>
+<p> Мы уже немного поговорили о текстах альбома, но я хотел бы узнать, что Вас вдохновляет на написание их?</em></font></p>
+<p> -Большинство вещей о прошлом. О прошлом нескольких столетий назад, о средневековье. Иногда также странные вещи, которые случаются с людьми и никто не знает почему. А также темная сторона, мистика и фэнтези с драконами, магией и героями.</p>
+<p> Вы хотели бы жить в средневековье?</p>
+<p> -Ну если бы у меня была б машина времени, я бы хотел пожить там неделю или две или что-то около того, чтобы увидеть как это действительно было на самом деле.</p>
+<p> Как Вы думаете, человек нашего времени смог бы выжить более двух недель в средневековые времена?</p>
+<p> -Вы знаете, я уже прожил сорок лет, а все парни, которые жили в те времена, жили около 35 лет и не больше. Медицина не была на хорошем уровне, как сейчас и люди просто умирали от болезней, которые мы сейчас лечим. Так вот я думаю, что это было бы тяжело для человека нашей эпохи.</p>
+<p> А теперь расскажите мне. В своей карьере Вы написали много хороших песен и я хотел бы знать, что по Вашему мнению делает песню хорошей?</p>
+<p> -Хорошая песня, по моему мнению, это песня, мелодия которой застряла в Вашей голове. Когда Вы послушали песню один или два раза она должна остаться в Вашей голове. Хорошая песня - это та, которую Вы насвистываете в душе.</p>
+<p> На альбоме есть еще кавер-версия "July Morning". Я хотел бы узнать, почему Вы решили исполнить эту песню?</p>
+<p> -Я получил приглашение сделать песню для трибьют-альбома Uriah Heep, который выйдет в течение лета, т.о. я сделал это. Я сделал July Morning, потому что это одна из моих любимых песен начала 70-х. Мы записали эту песню во время записи Masquerade Ball и я подумал, что наша версия получилась хорошей и решил включить ее в новый альбом. Итак, она появится на двух альбомах, трибьюте и моем.</p>
+<p> Расскажите мне о своих планах относительно турне.</p>
+<p> -Мы собираемся выступить на нескольких фестивалях летом в Германии, а затем будет наше основное турне между началом октября и концом ноября. Главным образом, мы будем играть в Германии, но мы также выступим в Швейцарии, Бельгии, Голландии и, я думаю, Италии. Я бы хотел сыграть в Греции, но мы пока не получили приглашения. Нам возможно потребуется группа для сопровождения, но еще слишком рано говорить, что за группа это будет.</p>
+<p> Если бы Вы выбирали группу, то знаете ли Вы такую молодую команду, которую Вы хотели бы взять в турне?</p>
+<p> -Да, Deep Purple. (смеется)</p>
+<p> (смеясь)Нет, они слишком молоды!</p>
+<p> -Да, возможно.</p>
+<p> А теперь скажите мне, что Вы чувтствуете, когда некоторые молодые команды упоминают Вас как об оказавшим на них влияние?</p>
+<p> -Такие группы действительно есть? Честно говоря, я ничего об этом не знал, но я очень горжусь этим.</p>
+<p> Итак, Axel, последние слова за Вами. Завершите интервью как хотите.</p>
+<p> -Я бы хотел поблагодарить всех моих поклонников и я надеюсь я приобрету новых друзей своим новым альбомом. Обычно, я провожу свой отпуск в Греции и я надеюсь, что снова увижу своих греческих друзей. Я был там 7 или 8 раз и я просто люблю ее.</p>
+<p> http://www.tombstone.gr (Перевод: Олег Захливный (Dread) © 2000)</p>
+
+Автор: Dread
+
+### 02.09.2001 news Новая сделка AXEL RUDI PELL ...
+
+<p>AXEL RUDI PELL только что подписал новый контракт с давним партнером - компанией SPV/Steahmammer Records in Germany. Сделка распространяется на все территории кроме Азии, где альбомы Экселя выходят под маркой JVC/Victor Entertainment. Следующий студийный опус будет записываться с декабря по февраль и выйдет в начале мая 2002.</p>
+
+Автор: Yermola
+
+### 02.09.2001 news AXEL RUDI PELL has just signed a new ...
+
+<p>German axe-slinger AXEL RUDI PELL has just signed a new recording contract with his longtime record company SPV/Steahmammer Records in Germany. This contract covers the whole world apart from the Asian territory, where Axel still has a contract with JVC/Victor Entertainment. Pell’s next studio album will be recorded between December and February and will be released at the beginning of May 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.04.2002 news MP3 AXEL RUDI PELL ...
+
+<p>Одноминутные MP3 клипы песен "Edge Of The World", "Coming Home", "Live For The King" и "All The Rest Of My Life" с нового диска "AXEL RUDI PELL" - Shadow Zone можно загрузить и послушать <A HREF="http://www.axel-rudi-pell.de/soundfiles.htm">здесь.... </A>Альбом выходит через SPV/Steamhammer Records 29-го апреля.</p>
+
+Автор: Yermola
+
+### 02.04.2002 news AXEL RUDI PELL “Shadow Zone” Samples Available For Download ...
+
+<p>One-minute MP3 clips of the tracks "Edge Of The World", "Coming Home", "Live For The King" and "All The Rest Of My Life", taken from AXEL RUDI PELL's forthcoming Shadow Zone CD, can be downloaded from <A HREF="http://www.axel-rudi-pell.de/soundfiles.htm">this location. </A>Shadow Zone is due to be released on April 29th through SPV/Steamhammer Records.</p>
+
+Автор: Yermola
+
+### 28.05.2002 news German Media Control Chart ...
+
+<p>Вот так представлены хард-рок/метал в German Media Control (Top 100) chart по состоянию за прошедшую неделю: <BR><BR> 04. BОHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending May 27th (as reported by Rock Hard magazine): <BR><BR> 04. BЦHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 24.12.2002 reviews Shadow Zone
+
+<p>Итак, что же нового нам принёс герр Пелл из Теневой Зоны? На первый взгляд, ничего нового. Обложка всё на те же мрачные загробно-фентезийный темы. Я опасался, что Shadow Zone будет таким же однообразным как и его предшественник The Masquerade Ball. И по началу опасения начали подтверждаться. Интро, затем паверный боевик Edge of the world (наверное, лучшая вещь на альбоме, но всё равно не дотягивающая до тех же Earls of black и Playing with fire), затем среднетемповая вещь.. а затем.. ну всё как в прошлый раз. Альбом начинает навевать скуку. Хотя баллада All the rest of my life придаёт альбому красочности. Но затем следуют вещи, которые альбом оживляют. В общем, альбом интересен именно для фанатов Pell'a, а вот знакомство с его творчеством с этого альбома начинать не рекомендуется.</p>
+
+Автор: Del Silencio
+
+### 09.12.2003 news Новый альбом AXEL RUDI PELL
+
+<P><B>AXEL RUDI PELL</B> выпускает новый альбом "<B>Kings & Queens</B>" 1 марта на <B>SPV</B>. Уже известен трэк-лист:</P>
+<P><B>01 The Gate (Intro)</B> <BR><B>02 Flyin`High</B> <BR><B>03 Cold Heaven</B> <BR><B>04 Strong As A Rock</B> <BR><B>05 Forever Angel</B> <BR><B>06 Legions Of Hell</B> <BR><B>07 Only The Strong Wil Survive</B> <BR><B>08 Sailing Away</B> <BR><B>09 Take The Crown</B> <BR><B>10 Sea Of Evil</B> <BR></P>
+<P><B>AXEL RUDI PELL</B> спродюсировал эту пластинку вместе с <B>Charlie Bauerfeind.</B></P>
+Автор: Vit Belov
+
+### 09.12.2003 news AXEL RUDI PELL to release new album
+
+<P><B>AXEL RUDI PELL</B> will release new album <B>'Kings&Queens</B>" through <B>SPV</B> on 1st of March, 2004. Track-list:</P>
+<P><B>01 The Gate (Intro)</B> <BR><B>02 Flyin`High</B> <BR><B>03 Cold Heaven</B> <BR><B>04 Strong As A Rock</B> <BR><B>05 Forever Angel</B> <BR><B>06 Legions Of Hell</B> <BR><B>07 Only The Strong Wil Survive</B> <BR><B>08 Sailing Away</B> <BR><B>09 Take The Crown</B> <BR><B>10 Sea Of Evil</B> <BR>Produced by <B>Axel Rudi Pell </B>and<B> Charlie Bauerfeind</B><BR></P>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 14.03.2004 reviews &quot;Неактуальная музыка&quot;
+
+<DIV><I><B>Axel Rudi Pell</B> дождался своего часа (честно говоря, довольно давно). Достигнув огромного результата в искусстве клонирования, он подменил собой исчезнувших со сцены прототипов.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Новый альбом <B>Axel Rudi Pell</B> - один из лучших его альбомов, как говорят.&nbsp;Насыщенный коктейль из грандов hard-rock: <B>DEEP PURPLE</B> и <B>RAINBOW</B>. Приятные мелодии, тоскливые баллады. Всё, как положено.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Можно запросто отринуть эту музыку, как неактуальную, но сделать это не удасться, так как&nbsp;надо же что-то&nbsp;слушать фанатам hard-rock из 70-х. И пускай, ничего найти нового уже невозможно, любители hard-rock со стажем полюбят этот альбом.</DIV>
+Автор: Vit Belov
+
+### 18.03.2004 reviews Made in Germany - высшее качество
+
+<P>Признаюсь, что от нового альбома Аксель Руди Пелла я много не ожидал. Да и вообще существует мнение, что сейчас в хард-роке невозможно сделать что-то новое и интересное. Так считал и я. Но теперь соглашусь с вышеприведенной фразой лишь наполовину, ибо, как выяснилось, интересное в хард-роке сделать можно. И "Короли и королевы" это доказывает. Альбом, похоже, вобрал в себя всё самое лучшее, что было создано в хард-роке. Здесь нет ни одного проходного номера, но особо я бы хотел отметить спидовую "Flyin' High" (наверняка эта песня приглянется фанатам Helloween), убойнейшую балладу "Forever Angel", сделавшую бы честь самим Black Sabbath периода с Дио монументальную "Legions Of Hell" и выполненную в лучших традициях "старых" Deep Purple "Sailing Away". В составе группы прежде всего выделю блестящего вокалиста Johnny Gioeli (один из лучших в современном хард-роке), Mike Terrana на ударных и, конечно, самого маэстро. Просто лучшие рекомендации всем любителям&nbsp; не только самого Аксель Руди Пелла, но и качественного, прекрасно сыгранного и записанного хард-рока. Мастхэв! Ну а 10 баллов я не поставил потому, что всё-таки, несмотря на все преимущества пластинки, мы это уже слышали раньше...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 12.04.2004 news SIRENIA первая в марте и по итогам первого квартала
+
+<P>Так выглядит десять лучших позиций по итогам продаж в магазине <B>B2-100 'Metal & Progressive'</B> в "Горбушкином Дворе" в марте:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=481 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD></TR></TBODY></TABLE></P>
+<P>Феноменальные продажи нового альбома <B>Morten Veland (ex-Tristania)</B> и его группы <B>SIRENIA </B>позволили им занять первое место по итогам квартальных продаж. А вот как выглядит десятка по итогам первого квартала 2004 года:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=563 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 154pt" width=205>
+<COL style="WIDTH: 269pt" width=358>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=205 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=358><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ЭПИДЕМИЯ</B></TD>
+<TD><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ICED EARTH</B></TD>
+<TD><B>GLORIOUS BURDEN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>MY DYING BRIDE</B></TD>
+<TD><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 08.06.2004 news Axel Rudi Pell выпускает &quot;Ballads, vol.3&quot;
+
+<B>AXEL RUDI PELL</B> готовит к выпуску новый сборник <B>'Ballads, Vol.3'</B>. Группа войдёт в студию в августе, чтобы записать три новых песни, а альбом выйдет 25 октября на <B>SPV</B>. Среди новых вещей будет версия песни <B>RAINBOW</B> <B>"Temple Of The King".</B>
+Автор: Vit Belov
+
+### 26.08.2004 news AXEL RUDI PELL выпускает альбом
+
+<P><STRONG>AXEL RUDI PELL</STRONG> закончил микс трёх новых вещей для грядущего сборника <STRONG>"The Ballads III"</STRONG> ,который выйдет 25 октября на <STRONG>SPV</STRONG>. Три песни - это совершенно новая <STRONG>"Don't Say Goodbye", </STRONG>акустическая версия <STRONG>"Forever Angel" </STRONG>и, как уже сообщалось, кавер-версия на песню <STRONG>RAINBOW</STRONG> <STRONG>"The Temple of the King"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Don't Say Goodbye</B><BR>02. <B>Forever Angel</B> (acoustic)<BR>03. <B>The Temple of the King</B><BR>04. <B>Heartbreaker</B><BR>05. <B>The Line</B><BR>06. <B>Sea of Evil</B><BR>07. <B>The Curse Of The Chains</B><BR>08. <B>All the Rest of My Life</B><BR>09. <B>Forever Angel</B><BR>10. <B>The Temple of the Holy</B><BR>11. <B>Under the Gun</B><BR></P>
+Автор: Vit Belov
+
+### 04.11.2004 reviews Бог троицу любит
+
+<P>Что ж, вот и третий сборник баллад Axel Rudi Pell'а появился на прилавках магазинов, как своеобразный ранний рождественский подарок. Учитывая неплохой коммерческий успех двух первых подобных сборников гурппы 1993 и 1999 года, можно предположить, что и сия компиляция легко найдет своего покупателя. На пластинку вошли не только баллады с трех последних альбомов гитарного маэстро ("The Masquerade Ball" 2000, "Shadow Zone" 2002 и "Kings And Queens" 2004), но и три сюрприза, которые открывают альбом: новая вещь 'Don't Say Goodbye', акустическая версия&nbsp;'Forever Angel' и кавер одной из известнейших песен Rainbow 'The Temple Of The King', так что будут довольны&nbsp;как фанаты, собирающие всё и вся от ARP, так и любители "тяжеленьких медляков" (то, что немцы называют Kuschelrock). Да и если ваша подруга тащится от медленных роковых песен с "sexy rock voice", то вы вполне можете приобрести сей сборник для проведения приятного вечера со свечами, вином и прочими атрибутами романтической встречи - думаю, что не более, как через 15 минут вы будете, легко (или не очень, хехе) прижимаясь друг к другу, вести неторопливый танец. Правда, не стоит класть голову подруги себе на плечо, а то она может и заснуть...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 05.09.2005 news Новости от AXEL RUDI PELL
+
+<P><STRONG>AXEL RUDI PELL</STRONG> только что закончили свою концертную деятельность в этом году. Касаемо следующей пластинки <STRONG>Axel</STRONG> сказал: "<EM>Мы не сможем начать запись до января, потому что продюсер <STRONG>Charlie Bauerfield</STRONG> освободится только к этому времени. Он очень занят с новым альбомом <STRONG>BLIND GUARDIAN</STRONG>. Альбом выйдет где-то в мае-июне на <STRONG>SPV</STRONG></EM>".</P>
+Автор: Vit Belov
+
+### 05.09.2005 news AXEL RUDI PELL news
+
+<P><STRONG>AXEL RUDI PELL</STRONG> posted update on his official site about new album: "<EM>About the next CD I can say, that we can`t record until late January next year, because I definately want to work with Co - Producer and Engineer Charlie Bauerfeind again, but he isn`t available till January, because he has shitloads of work to do with Blind Guardian`s next record</EM>. </P>
+<P><EM>So our new album will be released around late May / early June 2006 on SPV. I can promise that it will be a real masterpiece and it definately will be worth the wait, trust me !!! We will play some more Summer festivals in 2006 and it is scheduled to have our own tour rolling around Sept./Oct. next year. Iґll keep ya posted</EM> !"</P>
+Автор: Vit Belov
+
+### 20.12.2005 news Новости от AXEL RUDI PELL
+
+<P><STRONG>AXEL RUDI PELL</STRONG> со своей группой начнет в январе запись своего нового творения с продюсером <B>Charlie Bauerfeind.</B> Дата релиза намечена на 2 июня 2006 года на&nbsp;<B>SPV Records</B>. </P>
+Автор: Dimas
+
+### 12.01.2006 news AXEL RUDI PELL назвал альбом
+
+<P><STRONG>AXEL RUDI PELL</STRONG> назвал свой будущий альбом "<STRONG>Mystica</STRONG>". Он выйдет 2 июня на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.03.2006 news Новый альбом AXEL RUDI PELL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=357 alt="" hspace=0 src="/images/news_rus/2006.03/10179.jpg" width=354 align=right border=5>Новый альбом <STRONG>AXEL RUDI PELL "Mystica"</STRONG> выходит 2 июня на <STRONG>SPV</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>The Mysterious Return</B> (Intro) <BR>02. <B>Fly To The Moon</B> <BR>03. <B>Rock The Nation</B> <BR>04. <B>Valley Of Sin</B> <BR>05. <B>Mystica</B> <BR>06. <B>Living A Lie</B> <BR>07. <B>The Curse Of The Damned</B> <BR>08. <B>Haunted Castle Serenade (Opus # 4 grazioso e agresso)</B> <BR>09. <B>Losing The Game</B><BR>10. <B>No Chance To Live</B> </P>
+Автор: Vit Belov
+
+### 12.04.2006 news Новый альбом AXEL RUDI PELL задерживается
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>AXEL RUDI PELL</STRONG> задерживается до августа. Вокалист <STRONG>Johnny Gioeli</STRONG> заболел гриппом, и группа не смогла переслать<STRONG> SPV</STRONG> мастер-копию альбома вовремя. Пластинка теперь выйдет 28 августа.</FONT></P>
+Автор: Vit Belov
+
+### 18.05.2006 news AXEL RUDI PELL женился
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2006.05/10376.jpg" width=300 align=left border=5>Axel Rudi Pell</STRONG> женился на своей подруге <STRONG>Christina</STRONG> 5 мая в родном городе Бохуме. На свадьбе присутствовали 130 гостей, она прошла в замке Вассершлос.</FONT></P>
+Автор: Vit Belov
+
+### 23.06.2006 news Сэмплы от AXEL RUDI PELL
+
+<P>Как мы уже сообщали, новый альбом <STRONG>AXEL RUDI PELL "Mystica"</STRONG> выйдет в августе. Группа выложила сэмплы с этой работы в сеть. Вы можете их послушать здесь: <A href="/ru/band/axel_rudi_pell/12479/#samples">http://musica.mustdie.ru/ru/band/axel_rudi_pell/12479/#samples</A></P>
+Автор: Vit Belov
+
+### 21.09.2006 reviews Универсальный - но стандартный - немецкий качественный набор
+
+<P>Вы ждали чего-то нового от Аксель Руди Пелла? Ну и зря. Продукт от этого артиста, как всегда, высшего качества, но и, как всегда, он похож на все его предыдущие релизы. Так что вам просто придется выискивать отдельные песни, чтобы понять, к какому сорту вам отнести альбом "Mystica" - "как обычно" или "получше/похуже чем обычно". Данная пластинка своего рода универсальна. Если для вас творчество Пелла в новинку, то вы можете смело знакомиться с ним, послушав "Mystica". Если же вы уже слышали немало его записей, то знаете, чего тут ждать. Вам будет предложен опять-таки универсальный материал. Здесь и быстрые вещи, и среднетемповые, есть и баллады, есть и эпики. Короче, чего только соскучившаяся по качественному хэви-металу душа может себе пожелать. Но, говоря честно, предыдущий релиз херра Пелла понравился мне больше, там все-таки были вещи, цепляющие глубоко и надолго, а вот на "Мистике" таковых не нашлось, хотя это, конечно же, вопрос вкуса, и не более того. Аксель Руди не отступает назад, не продвигается вперед, но и не топчется на месте, он просто по-прежнему штампует песни, как отлаженный конвейер. И песни эти будут, как и раньше, слушать, и альбомы эти будут, как и раньше, покупать. Вопрос лишь в одном: нужно вам что-то, идеально отшлифованное и идеально работающее, но стандартное, или вы предпочтете что-то не так идеально функционирующее, но более оригинальное?</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.02.2007 news AXEL RUDI PELL серьёзно заболел
+
+<P>Вчера пришло сообщение, что тур<STRONG> AXEL RUDI PELL</STRONG> отменён, из-за серьёзной болезни лидера группы. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 13.02.2007 news Axel Rudi Pell объясняет...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Axel Rudi Pell</STRONG> объяснил, почему отменил тур. Причиной стал вирус, который он подхватил вовремя концертов. Ему надо будет провести дома несколько недель.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Серьёзность болезни была явна преувеличена.</FONT></P>
+Автор: Vit Belov
+
+### 14.03.2007 news Axel Rudi Pell войдёт в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AXEL RUDI PELL</STRONG> полностью востановился от перенесённой болезни. В апреле группа войдёт в студию для записи кавер-альбома. 10 новых версий войдёт на эту пластинку, при этом ни одной вещи <STRONG>RAINBOW</STRONG> или <STRONG>DEEP PURPLE</STRONG> там не будет. Пластинка выйдет осенью на <STRONG>SPV</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 29.03.2007 news Pell назвал кавер-альбом
+
+<P>Новый кавер-альбом <STRONG>AXEL RUDI PELL</STRONG> будет называться "<STRONG>Diamonds Unlocked</STRONG>". Группа записывает 10 каверов и одну собственную композицию, используемую, как интро. <STRONG>Axel</STRONG> обещает "откаверить" металлические песни, чтобы показать, как они могли бы звучать в мелодик рок исполнении. Пластинка выйдет в сентябре-октябре на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.10.2007 reviews Бриллиантов не получилось
+
+<P>Альбомы, целиком состоящие из каверов, вещь всегда спорная. С одной стороны, возникает вопрос о неготовности (или неспособности) исполнителя написать новый материал. С другой, иной раз новая трактовка чужих песен бывает даже получше оригинала. Но в любом случае спрашиваешь себя, а зачем? Кому это может быть интересно, кроме тех, кто собирается всё и вся от любимой группы? Отдадим должное Axel Rudi Pell'у - он не стал издеваться над творчеством Ричи Блэкмора (что многие предполагали в ожидании "Diamonds Unlocked"), а обратился к, так скажем, довольно "неожиданным" исполнителям, например, U2 ('Beautiful Day') или Филу Коллинзу ('In The Air Tonight' - ужасная просто версия). Жертвами пуделегривого гитариста также стали Riot ('Warrior', одна из немногих действительно удачных вещей на диске), Chris Rea ('Stone'), Kiss ('Love Gun' - слушайте акустическую версию!), Майкл Болтон ('Fools Game'), Free ('Heartbreaker', одна из самых провальных песен), Montrose ('Rock The Nation'), The Mission ('Like A Child Again') и The Who ('Won't Get Folled Again'). Кое-какие вещи исполнены так, что вполне могли бы принадлежать перу Пелла, но практически нигде делать песни "один-в-один" он не стал. В конечном счете все зависит от того, насколько вы любите Руди и Со&nbsp;и насколько ревностно относитесь к перечисленным группам. Никаких алмазов-бриллиантов сделать у группы не получилось, но и отвратным "Diamond Unlocked" тоже не назовешь. Лично я в данном случае всё же предпочитаю оригинальные версии, да и лучше подождать нового альбома Axel Rudi Pell'а, а этот релиз не будет частым гостем в моем сиди-плеере.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 04.12.2007 news AXEL RUDI PELL выпускает DVD
+
+<P>25 февраля выходит новый двойной DVD от <STRONG>AXEL RUDI PELL "Live Over Europe</STRONG>". На первый диск попадёт полное выступление группы на <STRONG>Rock Hard Festival</STRONG> этого года, а второй в качестве бонуса будет содержать бутлеги, среди которых выступления на<STRONG> Wacken</STRONG> и <STRONG>Bang Your Head</STRONG>. </P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/t1xo7ANI0YM&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/t1xo7ANI0YM&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 03.03.2008 reviews Артисты рубятся, публика смотрит
+
+<P>Свой второй DVD Аксель Руди Пелл выпускает через 6 лет после "Knight Treasures (Live And More)" (2002). Тот релиз мне по разным причинам совершенно не покатил, но это уже дела давно минувших дней. "Live Over Europe" состоит из двух дисков. Первый - и основной - кругляш представляет собой концертное выступление группы на фестивале Rock Hard Open Air&nbsp; в мае 2007-го года в немецком Гельзенкирхене. APR были там одними из хэдлайнеров феста и закрывали последний день перед Thin Lizzy. Не знаю, какой уж там был регламент, но 75 минут - и 9 номеров, не считая соло на ударных - как-то, по современным меркам, маловато. Впрочем, есть в этом и свой плюс: группа не успевает надоесть. Несмотря на то, что не так давно до этого выступления вышел последний на тот момент альбом "Mystica", с этой пластинки были исполнены всего три песни. Незабытыми оказались и классические вещи типа 'Fool Fool' и не так давно полюбившаяся фанатам&nbsp;'Strong As A Rock' (почему Аксель не взял с "Kings & Queens" еще и самую хитовую 'Flyin' High', остается совершенно непонятным). Однако, в отличие от "Knight Treasures", обойденным оказался материал с доброй половины альбомов Пелла - видимо, времени всё же было маловато. Очень хорошее качество звука (можно выбирать между 2.0 и 5.1.) и картинки, свет и работа камер - тоже в порядке. Джоели носится и прыгает на сцене, Террана в очередной раз демонстрирует, что он ударник "от Бога", сам Аксель Руди упивается своей игрой на гитаре (правда, в меру), отдавая должное Ричи Блэкмору (а кому же еще) - своей интерпретацией 'The Temple Of The King' и цитатой из 'Mistreated'. Немецкая публика вновь показывает себя довольно вялой, лишь во второй части выступления группы она более-менее расходится. Во всяком случае, нашим зрителям на концертах не надо кричать "So raise your fuckin' hands!". Нда. Так что диск первый - как говорится, без претензий. Только вот раздел "Band", на мой взгляд, совершенно ненужный и сделан он несуразно. Совсем другое дело диск второй, по сути - официальный бутлег Axel Rudi Pell. Судя по всему, там собраны концертные видео-материалы группы 2004-2006 гг. из личного архива Пелла, продолжительностью более чем 2 часа. Качество звука колеблется от средней паршивости до ужасного, съемки любительские или, в лучшем случае, полупрофессиональные. Что касается самих песен, то интерес представляет разве что акустический сет, состоящий&nbsp;из киссовской 'Love Gun', которая потом появится на альбоме каверов "Diamonds Unlocked", и&nbsp;'Oceans Of Time'. Остальной же выбор более чем странен, ибо какой смысл слушать на одном DVD три, например,&nbsp;варианта 'Call Her Princess' или два&nbsp;'Strong As A Rock'?&nbsp;И никакого более интересного материала типа туровых съемок - то есть группа в автобусе, в городе, за кулисами - тут нет. Так что второй диск - лишь для упертых фанатов ARP и идет он, как говорили в советское время, в нагрузку - остается надеяться, что это не повлияет на общую цену альбома. Так как оценивать релиз приходится на основании обоих кругляшей, то от баллов воздержусь, ибо тогда получится максимум 4, а первая часть DVD явно заслуживает большего.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 09.04.2008 news AXEL RUDI PELL в октябре
+
+<P>20 апреля<STRONG> AXEL RUDI PELL</STRONG> войдут в студию для записи новой пластинки, которая выйдет 27 октября на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 31.07.2008 news Новый альбом AXEL RUDI PELL
+
+<P>Одиннадцатая пластинка <STRONG>AXEL RUDI PELL</STRONG> "<STRONG>Tales Of The Crown</STRONG>" выйдет 27 октября на <STRONG>SPV</STRONG>. Знаменитый гитарист пообещал не разочаровывать своих поклонников, добавив в своё обычное звучание совсем не много новаций. Трэк-лист:</P>
+<P>01. <STRONG>Higher<BR></STRONG>02. <STRONG>Ain't Gonna Win</STRONG> <BR>03. <STRONG>Angel Eyes <BR></STRONG>04. <STRONG>Crossfire <BR></STRONG>05. <STRONG>Touching My Soul</STRONG> <BR>06. <STRONG>Emotional Echoes</STRONG> <BR>07. <STRONG>Riding On An Arrow</STRONG><BR>08. <STRONG>Tales Of The Crown</STRONG> <BR>09. <STRONG>Buried Alive</STRONG> <BR>10. <STRONG>Northern Lights</STRONG> </P>
+Автор: Vit Belov
+
+### 27.01.2009 reviews Одинаковые как спички - пусть и из разных коробков
+
+<P>Про альбомы группы Axel Rudi Pell становится писать всё труднее и труднее. С одной стороны, 100% немецкое качество (вкупе с американским вокалистом), с другой - всё это уже настолько стандартно и скучно, что рука тянется к перемотке. Совершенно ясно, что ни одна из вещей с "Tales Of The Crown" не войдет в концертный сет-лист группы, за исключением, понятное дело, тура в поддержку этого альбома. Ибо хитов нету. Меняйте просто названия песен и вы получите то же самое, что было и раньше. Я ничего не требую с групп типа Motorhead или AC\DC - по определению - но тут можно было бы написать что-нибудь более интересное. Признаться, такие релизы, как "Tales Of The Crown", вгоняют меня в ступор: и ничего плохого не скажешь, всё сделано очень качественно, но и ничего хорошего тоже сказать нельзя, ибо всё это мы уже слышали у данного коллектива сто раз. Хотя создается такое впечатление, что Аксель Руди будет гонять эту фишку, пока существует группа... Альбомы&nbsp;ARP как спички: даже если взял из другого коробка, она будет гореть точно так же, как любая другая. А Майк Террана играет настолько без души, что больше - точнее, меньше - и не бывает.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.04.2009 news AXEL RUDI PELL выпускает сборник
+
+<P><IMG height=365 alt="" hspace=0 src="/images/news_rus/2009.04/13899.jpg" width=369 align=right border=5>Знаменуя 25-летие творческой деятельности,<STRONG> AXEL RUDI PELL</STRONG> весной на <STRONG>SPV</STRONG> выпускает сборник "<STRONG>Best Of</STRONG>". Трэк-лист:</P>
+<P>01. <B>Edge Of The World</B><BR>02. <B>Carousel</B><BR>03. <B>Strong As A Rock</B><BR>04. <B>Beautiful Day</B><BR>05. <B>Mystica</B><BR>06. <B>Forever Angel</B> (acoustic)<BR>07. <B>The Masquerade Ball</B><BR>08. <B>Rock The Nation</B><BR>09. <B>Oceans Of Time</B><BR>10. <B>Tear Down The Walls</B><BR>11. <B>Ain't Gonna Win</B><BR>12. <B>In The Air Tonight</B></P>
+Автор: Vit Belov
+
+### 11.01.2010 news AXEL RUDI PELL заканчивают альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Axel Rudi Pell</STRONG> и продюсер <STRONG>Charlie Bauerfeind</STRONG> (<B>BLIND GUARDIAN</B>, <B>HAMMERFALL</B>, <B>RAGE</B>) заканчивают сведение нового альбома, который выйдет весной. Сам музыкант называет новую работу своей группы шедевром.</FONT></P>
+Автор: Vit Belov
+
+### 18.02.2010 news Новый альбом AXEL RUDI PELL
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.02/16250.jpg" width=400 align=right border=5>26 апреля выходит новый альбом <STRONG>AXEL RUDI PELL "The Crest"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Prelude Of Doom</B> (Intro)<BR>02. <B>Too Late</B><BR>03. <B>Devil Zone</B><BR>04. <B>Prisoner Of Love</B><BR>05. <B>Dreaming Dead</B><BR>06. <B>Glory Night</B><BR>07. <B>Dark Waves Of The Sea (Oceans Of Time Pt. II: The Dark Side)</B><BR>08. <B>Burning Rain</B><BR>09. <B>Noblesse Oblige (Opus #5 Adagio Contabile)</B><BR>10. <B>The End Of Our Time</B></P>
+Автор: Vit Belov
+
+### 23.05.2010 reviews Axel Rudi Pell в лирическом настроении
+
+<P>27 июня 2010 года гитаристу Axel Rudi Pell исполняется 50 лет. Свой юбилей он отпраздновал новым, четырнадцатым по счёту, альбомом “The Crest”. Музыкант стареет, но музыка его остаётся прежней. Послушав RAINBOW во времена своей юности, гитарист полюбил эту группу настолько сильно, что даже немного страшно. Уже и Ritchie Blackmore позабыл, когда записал свою классику, но AXEL RUDI PELL как-то незаметно для всех занял его место. В прошлом году немецкий лэйбл Steamhammer/SPV очень сильно пострадал от мирового финансового кризиса. Продавшись Sony, немецкие магнаты прошли через процесс самоочищения. Многие тяжёлые коллективы были сброшены с корабля (например, METAL CHURCH даже развалились, так расстроились), другие спрыгнули сами, не смогли ждать возрождения. AXEL RUDI PELL связан с этим лэйблом ещё со времён STEELER, поэтому он стал чуть ли не первым «большим» артистом, кто выпустил новый альбом на обновленном значке.</P>
+<P>У группы, которая, таким неожиданным образом, вышла в лидеры стиля, есть одна большая проблема. Нельзя долго почивать на лаврах, нельзя «бронзоветь» от своего успеха. AXEL RUDI PELL выпускают новые пластинки практически каждые два года, а здесь легко и надоесть поклонникам, тем более творчество немецкого гитариста пусть и качественно, но не отличается особым разнообразием. На “The Crest” похоже произошёл подобный казус. При сочинении очередного хита Axel Rudi находился в особом лирическом настроении, и слушать новый альбом надо только хорошо выспавшись. Уже вступительные удары в барабан настраивают на плавный и задумчивый лад. Не случайно традиционное интро называется “Prelude Of Doom”. Действительно полюбить этот альбом, это судьба. 10 вещей, включая вступление, со средней длительностью под шесть минут. Шесть минут – это такая длительность, которая может превратить даже энергичный боевик в балладу. Балладу о пропавшем времени. Тем более если учесть, что наш герой выступает в жанре мелодичного hard-rock, который всегда славился мощными, но краткими выступлениями. К счастью, быстрых композиций у Axel Rudi Pell в этот раз сочинилось не много. По этой причине, если вы и вздремнёте, то это будет в правильном месте печальной баллады о несбывшейся любви. Особенно порадовало одно место, где даже неподготовленному отечественному слушателю будет легко разобрать следующий рефрен: «Ты как Камаро в моём сердце». Камаро – это такая крутая американская машина. Видимо, не очень быстрый автомобиль.</P>
+<P>Состав группы AXEL RUDI PELL «устаканился» в 1998 году. В группу были включены американцы вокалист Johnny Gioeli и барабанщик Mike Terrana, а также немецкий клавишник Ferdy Doernberg. Теперь эти ребята окончательно сработались, и запись альбома проходит достаточно просто. Каждый записывает свои партии в студии рядом с домом, а окончательно всем занимается сам Axel Rudi Pell. В этот раз гитаристу даже не пришлось тратиться на продюсера. Он и сам прекрасно знает, как должен звучать новый альбом, чтобы его приобрели в нужном количестве для того, чтобы оставаться приоритетным артистом для SPV.</P>
+<P>Эта работа предназначена поклонникам баллад от AXEL RUDI PELL. Побьюсь об заклад, что таких фэнов очень много. Не даром группа выпустила целых три сборника медляков за свою историю, и ни один из них не задерживался надолго на полках магазинов. К моему же сожалению, быстрого hard-rock на “The Crest” не очень много, а от излишне лирических композиций я засыпаю.</P>
+Автор: Vit Belov
+
+### 24.10.2010 news SPV переиздадут AXEL RUDI PELL
+
+<P>22 ноября увидит свет de-luxe издание последнего альбома <STRONG>AXEL RUDI PELL "The Crest"</STRONG>, которое будет снабжено одним бонус-трэком и целым концертным альбомом на 70 минут на втором диске. В оригинале пластинка вышла 26 апреля, а в России появилась на<STRONG> Союзе</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.06.2011 news AXEL RUDI PELL выпускает четвёртые &quot;баллады&quot;
+
+<P><IMG height=402 alt="" hspace=0 src="/images/news_rus/2011.06/19714.jpg" width=400 align=right border=0>Новый балладный сборник <STRONG>AXEL RUDI PELL</STRONG> <STRONG>"The Ballads IV" </STRONG>выйдет 27 сентября на<STRONG> SPV</STRONG>. Трек-лист:</P>
+<P>01. <B>Where The Wild Waters Flow</B> (5:34) (new recording)<BR>02. <B>Holy Diver</B> (4:49) (new recording)<BR>03. <B>Hallelujah</B> (4:16) (new recording)<BR>04. <B>Northern Lights</B> (6:22)<BR>05. <B>Noblesse Oblige (Opus #5 Adagio Contabile)</B> (4:08)<BR>06. <B>Love Gun</B> (4:03)<BR>07. <B>Glory Night</B> (5:44)<BR>08. <B>In The Air Tonight</B> (8:37)<BR>09. <B>Touching My Soul</B> (6:32)<BR>10. <B>Like A Child Again</B> (4:47)<BR>11. <B>No Chance To Live</B> (6:17)<BR>12. <B>Haunted Castle Serenade (Opus #4 Grazioso E Agresso)</B> (3:51)<BR>13. <B>The Curse Of The Damned</B> (9:57)</P>
+<P>На диск, как видно из перечня песен, попадут три новых композиции: собственная вещь <STRONG>AXEL RUDI PELL</STRONG>, и два кавера - на<STRONG> Dio</STRONG> и на <STRONG>Leonard Cohen</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.01.2012 news Новый альбом AXEL RUDI PELL
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22572.jpg" width=400 align=right border=0>Группа <STRONG>AXEL RUDI PELL</STRONG> закончила запись новой работы "<STRONG>Circle Of The Oath</STRONG>". Продюсером пластинки вновь выступил<STRONG> Charlie Bauerfeind</STRONG>. Стал известен трек-лист альбома:</P>
+<P>1. <STRONG>The Guillotine Suite</STRONG> (Intro)<BR>2. <STRONG>Ghost In The Black</STRONG><BR>3. <STRONG>Run With The Wind</STRONG><BR>4. <STRONG>Before I Die<BR></STRONG>5. <STRONG>Circle Of The Oath<BR></STRONG>6. <STRONG>Fortunes Of War<BR></STRONG>7. <STRONG>Bridges To Nowhere<BR></STRONG>8. <STRONG>Lived Our Lives Before</STRONG> <BR>9. <STRONG>Hold On To Your Dreams</STRONG><BR>10. <STRONG>World Of Confusion (The Masquerade Ball Pt. II)</STRONG></P>
+<P>Дата релиза: 26 марта на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.04.2014 news Новое видео AXEL RUDI PELL
+
+<P>Новый ролик <STRONG>AXEL RUDI PELL</STRONG> на песню <STRONG>'Long Way To Go'</STRONG> можно посмотреть ниже. Трек взят с последнего альбома "<STRONG>Into The Storm</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/3tLsZa7wk6Q?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 26.12.2015 news Новый альбом AXEL RUDI PELL
+
+<P>15 января на <STRONG>SPV</STRONG> выходит новый альбом <STRONG>AXEL RUDI PELL "Game Of Sins"</STRONG>. Скачать песню "<STRONG>Fire</STRONG>" можно на нашем сайте: <A href="/ru/band/axel_rudi_pell/21441/">http://musica.mustdie.ru/ru/band/axel_rudi_pell/21441/</A></P>
+<P>Уже известно, что лицензионное издание будет выпущено в России на Союзе.</P>
+<P>Трек-лист:</P>
+<P><STRONG>“Lenta Fortuna”<BR>“Fire”<BR>“Sons In The Night”<BR>“Game Of Sins”<BR>“Falling Star”<BR>“Lost In Love”<BR>“The King Of Fools”<BR>“Til The World Says Goodbye”<BR>“Breaking The Rules”<BR>“Forever Free”<BR>“All Along The Watchtower”</STRONG> (digipack Bonus track)</P>
+<P>Лирик-видео на песню "The King Of Fools":</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/pqa1EoSbOB4" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -29,6 +29,21 @@
 
 * C группой "AC/DC" Brian Johnson
 
+## Публикации
+
+### 05.11.2001 news Брайан Джонсон скооперировался с Джорди...
+
+<p>Вокалист "AC/DC" Brian Johnson записал две песни совместно с "GEORDIE" и провел с ними серию концертов на северо-западе Англии. “Byker Hill” и “Wor Geordie’s Lost His Liggie” войдут на 20-дисковый бокс-сет Northumbria Anthology который должен выйти еще до конца этого месяца...</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Brian Johnson has recorded two songs with GEORDIE...
+
+<p>AC/DC frontman Brian Johnson has recorded two songs with GEORDIE II, the band with whom he was reunited for a series of shows in the North East of England. The tunes in question, “Byker Hill” and “Wor Geordie’s Lost His Liggie”, will be included on a 20-CD box set entitled Northumbria Anthology, which is scheduled for release later this month. The box set features songs reflecting the cultural heritage of the region.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

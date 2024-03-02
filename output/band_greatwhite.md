@@ -204,6 +204,38 @@ Sean Mcnabb - bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.01.2002 news Прощальный альбом Great White....
+
+<p>"GREAT WHITE" 5-го февраля выпускают свой прощальный альбом "Recover". Диск выйдет в Штатах через Cleopatra Records и будет содержать следующие треки: <BR><BR> 01. Love Removal Machine<BR> 02. Again And Again<BR> 03. Ready For Love<BR> 04. Bitches And Other Women<BR> 05. Tangled Up In Blue<BR> 06. Burning House Of Love<BR> 07. Sin City<BR> 08. No Matter What<BR> 09. Fire And Water<BR> 10. Down At The Doctor<BR> 11. Lady Love <BR></p>
+
+Автор: Yermola
+
+### 17.01.2002 news GREAT WHITE Say Farewell With &quot;Recover&quot; ....
+
+<p>GREAT WHITE will release their farewell album, entitled Recover, in the USA on February 5th through Cleopatra Records. The album contains cover versions of the following tracks:<BR><BR> 01. Love Removal Machine<BR> 02. Again And Again<BR> 03. Ready For Love<BR> 04. Bitches And Other Women<BR> 05. Tangled Up In Blue<BR> 06. Burning House Of Love<BR> 07. Sin City<BR> 08. No Matter What<BR> 09. Fire And Water<BR> 10. Down At The Doctor<BR> 11. Lady Love <BR></p>
+
+Автор: Yermola
+
+### 06.04.2007 news GREAT WHITE на Frontiers
+
+<P><STRONG>GREAT WHITE</STRONG> подписали контракт с<STRONG> Frontiers</STRONG> на выпуск нового альбома в августе 2007 года. Пластинка пока не названа, но уже известно, что все песни на ней новые.</P>
+Автор: Vit Belov
+
+### 10.02.2009 news Новый альбом GREAT WHITE
+
+<P><STRONG>GREAT WHITE</STRONG> записали новый альбом "<STRONG>Rising</STRONG>". Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Situation</B><BR itxtvisited="1">02. <B itxtvisited="1">All Or Nothin'</B><BR itxtvisited="1">03. <B itxtvisited="1">I Don't Mind</B><BR itxtvisited="1">04. <B itxtvisited="1">Shine</B><BR itxtvisited="1">05. <B itxtvisited="1">Loveless</B><BR itxtvisited="1">06. <B itxtvisited="1">Is It Enough</B><BR itxtvisited="1">07. <B itxtvisited="1">Last Chance</B><BR itxtvisited="1">08. <B itxtvisited="1">Danger Zone</B><BR itxtvisited="1">09. <B itxtvisited="1">Down On The Level</B><BR itxtvisited="1">10. <B itxtvisited="1">Only You Can Do</B><BR itxtvisited="1">11. <B itxtvisited="1">My Sanctuary</B><BR itxtvisited="1">12. <B itxtvisited="1">Let's Spend The Night Together</B></P>
+Автор: Vit Belov
+
+### 14.02.2009 news Обложка GREAT WHITE
+
+<P>Мы уже сообщали, что 13 марта выходит новый альбом <STRONG>GREAT WHITE "Rising"</STRONG>. Появилась обложка этого релиза.</P>
+<P><center><IMG height=299 src="/images/news_rus/2009.02/13590.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -48,6 +48,29 @@ Gothic metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.05.2002 reviews Рецепт приготовления музыки
+
+<p>Второй альбом австрийской команды, спустя пять лет после дебюта. Он сделан по особому, но не очень трудному рецепту. В принципе, приготовить подобную музыку можно смешав компоненты SENTENCED, CREMATORY, LAKE OF TEARS, AMORPHIS и KATATONIA, посыпать готическими приправами и сдобрить соусом из классических heavy metal риффов. При приготовлении, смесь рекомендуется помешивать и дополнять различными ингредиентами по вкусу. В результате получится смесь из heavy, doom-death и new age metal, то есть то, что играет на этом альбоме группа MORTUS. Мелодичные гитарные риффы, противостояние вокалов (чистый и гроулинг), четкие размеренные ритмы, меланхолические настроения, гармоничные рефрены. Группа смело идет на эксперименты и открывает новые горизонты собственного творчества. Все мелодично, в меру депрессивно и продуманно. Хороший альбом, который рекомендуется для прослушивания широким слоям любителей тяжелой музыки.</p>
+<p> Диск выпущен по лицензии компанией CD-MAXIMUM</p>
+
+Автор: Dimas
+
+### 25.05.2002 reviews Recipe of Cooking Music
+
+<p>The second album of the Austrian band, after five years after debut. It is made on special, but not so difficult recipe. Basically, to prepare similar music it is possible having mixed components of SENTENCED, CREMATORY, AMORPHIS and KATATONIA, to strew by Gothic seasonings and add sauce from classical heavy metal riffes. At preparation, the mix is recommended shake and to supplement by various components on taste. In result the mix from heavy, doom-death and new age metal will turn out, that is that is played on this album by group MORTUS. Melodious guitar riffes, opposition of vocals (clean and growling), precise measured rhythms, melancholic mood, harmonious refrains. The group safely goes on experiments and opens new horizons of own creativity. All is melodious, in measure deprassive and balanced. The good album, which is recommended for listening to wide layers of the fans of heavy music.</p>
+
+Автор: Vit Belov
+
+### 13.08.2003 reviews Музыка с болот
+
+<p>Удивительно, что после отличного готик-металического альбома “Exploring New Horizons” группа не стала продолжать развиваться в том же направлении и выдавать «на гора» новые попсовые хиты. Нельзя сказать, чтоб участники коллектива не следили за стремительно меняющейся металической модой, скорее наоборот, видимо решили держаться в струе последних веяний, и записали новый очень агрессивный и энергичный альбом. За прошедший год коллектив избавился от последнего волосатого музыканта – гитариста Доминика, теперь их облик вполне проходит по всем МТVишным стандартам. Типичная ню-металическая команда с первого взгляда, да и со второго тоже. Лысые или короткостриженые головы, бородки стильные. Это правильно. Продаваться легче будет.<BR> Что же представляет собой «музыка с болот»? Смесь из агрессивной музыки Machine Head и Металлики периода загрузки и перезагрузки и мелодичного дета последнего In Flames. Чистого вокала стало гораздо меньше, а влияние готик-метала свелось к минимуму. Разве что главный хит альбома – “Newborn Sun” напоминает о любимом мной прошлогоднем диске. К сожалению, в погоне за модой, музыканты несколько подзабыли, что надо б еще и чтоб мелодии красивые были, а может и специально так решили – типа – вот какие мы брутальные и альтернативные. Из остальных, неплохих, но и не особо запоминающихся песен, я бы выделил лишь Phillis & Stanley. <BR> На самом деле, думаю, Mortus поставленную задачу выполнили. Старые их поклонники купят альбом по любому, плюс новые любители качевой модной музыки. Лишние Евро никому не помешают.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+
 ## Обсуждения
 
 

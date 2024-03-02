@@ -428,6 +428,209 @@ Disc 2
 * C группой "Poison Sun" Herman Frank (guitar)
 * C группой "Voodoo Circle" Alex Beyrodt, Mat Sinner
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Что-то часто ко мне стали попадать релизы в исполнении немецких мастеров heavy. Mat Sinner является довольно примечательной личностью, он - корифей немецкого металла наряду со SCORPIONS. Вместе с тем, как вторые теряли свой имидж металистов, первые утяжелялись и поднимались вверх по heavy-лестнице. Кроме этого Mat Sinner является участником небезысвестной группы PRIMAL FEAR (см. ниже). Предыдущий альбом SINNER "The Judgement Day" вышел в 1996 году и порадовал многих поклонников группы. Ну и наконец нынешний альбом вышел под патронажем Nuclear Blast. Да, предпосылки к успешному релизу были великолепные, но... Я не хочу сказать, что группа изменила свой стиль и.т.д. и.т.п Нет, но это и угнетает. Эти песни я как-будто бы уже где-то слышал: У SINNER, у PRIMAL FEAR. Ничего хоть сколько-нибудь нового обнаружено не было. Заурядные тексты, заурядная музыка - всё заурядно. Единственное светлое пятнышко - это кавер на песню THIN LIZZY "The Sun Goes Down". Короче, если вы обожаете данный стиль музыки, то покупайте эту пластинку.</p>
+
+Автор: Dimas
+
+### 12.02.1999 news 
+
+<p>В прошлом году SINNER участвовал в концертах DEEP PURPLE на разогреве. Ян Гиллан сказал, что у них не было такой классной поддержки последние десять лет. Также SINNER записал песню группы ACCEPT "Ball To The Wall". Она выйдет на сборнике NUCLEAR BLAST в этом году.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Новый альбом Primal Fear "Jaws Of Death" стартовал в чарте Германии с 49 места. Барабанщик Primal Fear Клаус Сперлинг во время летнего турне группы Sinner, имеющей прямое отношение к его родному коллективу, сыграет партии ударных, заменив Фрица Рандоу. Несмотря на это Фриц всё ещё является членом Sinner. На этих концертах состоится возвращение в группу Мэта Синнера гитариста Алекса Бейродта. Primal Fear также отправятся в тур по Европе вместе с Sinergy и Metalium.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Sinner выпустят сборник лучших хитов "The Second Decade". А в начале следующего года выйдет новый альбом "The End Of Sanctuary".</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Том Науманн покинул Primal Fear, из-за некоторых проблем со здоровьем. Вторым гитаристом стал Алекс Бейродт из Sinner.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>На новом альбоме Sinner барабанные партии исполнить Ули Кюш (Helloween).</p>
+
+Автор: Vit Belov
+
+### 25.05.2002 news Super Project
+
+<p>Ex-HELLOWEEN members Michael Kiske (vocals) and Roland Grapow (guitar), HAMMERFALL bassist Magnus Rosйn, ANGRA guitarist Kiko Loureiro, PRIMAL FEAR/SINNER bassist Mat Sinner, PRIMAL FEAR vocalist Ralf Scheepers, and THOTEN drummer Marco Barzo are among the musicians scheduled to appear on the forthcoming solo project of THOTEN frontman Renato Tribuzy, dubbed EXECUTION. No further details are available at this time</p>
+
+Автор: Dimas
+
+### 25.05.2002 news Новый супер-проект EXECUTION
+
+<p>EXECUTION - новый супер-проект лидера группы THOTEN Renato Tribuzy. В записи приняли участие Michael Kiske (vocals) и Roland Grapow (guitar) (ex-HELLOWEEN), Magnus Rosun (bass) (HAMMERFALL), Kiko Loureiro (guitar) (ANGRA), Mat Sinner (bass) (PRIMAL FEAR/SINNER), Ralf Scheepers (vocal) (PRIMAL FEAR) и другие известные музыканты. В скором времени ждите альбом EXECUTION.</p>
+
+Автор: Dimas
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 08.02.2003 reviews Только для байкеров!
+
+<p>Ребятам в коже на мощных мотоциклах, Мэт Синнер со своей группой Sinner должно быть всегда достовлял удовольствие. Не очень быстрые мощные риффы, под стать музыке и тексты. На этот раз Sinner сняли фильм ужасов, и все песни крутятся вокруг одной темы. К сожалению, мною была обнаружена всего одна хорошая песня 'There will be Execution', всё же остальное творчество сводится к однотонной среднетемповой стене из 'ужасных' риффов. Также присутствуют две баллады (не очень хорошие, к слову) и кавер Metallica 'Wherever I May Roam', который уже можно было заценить на 'tribute to 4Horsmen'. Жаль, но видимо у Мэта уже не хватает сил на две группы...</p>
+
+Автор: Vit Belov
+
+### 22.03.2003 reviews Only for bikers!
+
+<p>Mat Sinner with his band SINNER must be liked by guys in leather on power bikes. Not very fast power riffes and lyrics is very suitable to this music. In this time SINNER created horror movie and all songs turn around one theme. Unfortunatly, I can find only one good song 'There will be execution'. Rest songs sounded as one long and high wall of one-type 'horror' riffes. Also there are two ballads (not very good) and cover to METALLICA's song 'Wheerever I May Roam', which you can listen to on 'tribute to 4Horsemen'. Sorry, but I think Mat don't have power for two bands...</p>
+
+Автор: Vit Belov
+
+### 14.01.2004 news Сольник вокалиста HAMMERFALL
+
+<P>Вокалист <B>HAMMERFALL Joacim Cans</B> подписал контракт с <B>Sanctuary Records (Noise Records)</B>&nbsp;на выпуск своего дебютного сольного альбома "<B>Beyond The Gates</B>".&nbsp;При записи ему помогали&nbsp;<B>Matt Sinner (Sinner), Metal Mike Chlasciak (Halford), Stefan Elmgren (Hammerfall)&nbsp;</B>и<B> Mark Zonder (Fates Warning)</B>. Альбом выйдет 26 апреля 2004 года.</P>
+Автор: Dimas
+
+### 26.05.2006 news Возвращение SINNER произойдет с помощью лейбла MTM MUSIC
+
+<P><FONT style="BACKGROUND-COLOR: #000000"><STRONG>SINNER </STRONG>подписали контракт с лейблом <STRONG>MTM Music</STRONG>. В текущий состав группы входят: основатель, а также участник<STRONG> PRIMAL FEAR</STRONG>, басист <STRONG>Mat Sinner</STRONG>, его сослуживец по «Страху» гитарист <STRONG>Tom Naumann,</STRONG> клавишник <STRONG>Frank R&#246;ssler</STRONG>, гитарист <STRONG>Matte Lange</STRONG> (<STRONG>METALIUM</STRONG>) и прежний барабанщик <STRONG>PRIMAL FEAR Klaus Sperling</STRONG>. Коллектив и продюсер <STRONG>Achim K&#246;hler</STRONG> войдут в студию около Штутгарта в сентябре для записи нового альбома, который выйдет 19 января 2007 и будет называться "<STRONG>Mask Of Sanity</STRONG>".&nbsp;&nbsp;&nbsp; </FONT></P>
+Автор: mcallen
+
+### 08.11.2006 news Новый гитарист SINNER
+
+<P>Новым гитаристом<STRONG> SINNER</STRONG> стал <STRONG>Christof Leim</STRONG> (<STRONG>THE TRACEELORDS</STRONG>). Тем временем, новый альбом группы <STRONG>"Mask of Sanity</STRONG>"&nbsp;почти готов и выйдет 19 января на<STRONG> MTM</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Other Side</B><BR>02. <B>Diary of Evil</B><BR>03. <B>Badlands</B><BR>04. <B>Black</B><BR>05. <B>Thunder Roar</B><BR>06. <B>The Sign</B><BR>07. <B>Revenge</B><BR>08. <B>Under the Gun</B><BR>09. <B>Can't Stand the Heat</B><BR>10. <B>No Return</B><BR>11. <B>Last Man Standing</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 07.01.2007 news Новое видео от SINNER
+
+<P>Фотограф <STRONG>Katja Piolka</STRONG> выложила в сеть видео на&nbsp;песню с нового альбома <STRONG>SINNER "Mask Of Sanity</STRONG>", который выйдет 19 января на <STRONG>MTM</STRONG>.&nbsp;Смотрите здесь: <A href="http://www.videocommunity.com/pc/pc/mypics/185/display/2195">http://www.videocommunity.com/pc/pc/mypics/185/display/2195</A>&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.07.2007 news SINNER перешёл на AFM
+
+<P><STRONG>SINNER</STRONG> вновь сменили лэйбл. Новым пристанищем коллектива станет <STRONG>AFM</STRONG>. </P>
+Автор: Vit Belov
+
+### 21.01.2008 news SINNER готовят альбом
+
+<P><STRONG>SINNER </STRONG>заняты&nbsp;написанием материала&nbsp;для нового альбома <STRONG>'Crash & Burn'</STRONG>, который выйдет в сентябре 2008 года на<STRONG> AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.04.2008 news SINNER закончили запись нового альбома
+
+<P><IMG height=231 alt="" hspace=10 src="/images/news_rus/2008.04/12463.jpg" width=350 align=right border=0>Ветераны немецкого металла - группа <STRONG>SINNER</STRONG> под управлением своего лидера <STRONG>Mat Sinner</STRONG> (<B>PRIMAL FEAR</B>),&nbsp;завершили запись своего нового альбома под названием&nbsp;<B>"Crash & Burn"</B>, выход которого запланирован 19 сентября на <B>AFM Records</B>. Альбом был записан в <B>House Of Music Studios</B>,&nbsp;в роли продюсера выступил&nbsp;<B>Dennis Ward</B>. Микширование альбома выполнит <B>Achim K&#246;hler</B> в студии&nbsp;<B>Indiscreet Audio</B>. Среди песен вошедших на диск, будут <B>"Heart Of Darkness"</B>, <B>"Crash & Burn"</B>, <B>"Connection"</B>, <B>"Break The Silence"</B>, <B>"Revolution"</B>, <B>"Like A Rock"</B>, <B>"Unbreakable"</B>, <B>"One Night Only"</B>&nbsp;и <B>"The Dog"</B>.<BR><BR></P>
+Автор: Dimas
+
+### 07.07.2008 news Новый альбом SINNER
+
+<P>19 сентября на <STRONG>AFM </STRONG>выходит новый альбом <STRONG>SINNER</STRONG> <STRONG>"Crash & Burn". </STRONG>Стал известен трэк-лист этой пластинки:</P>
+<P>01. <B>Crash & Burn</B> (Mat Sinner/Igor Gianloa)<BR>02. <B>Break The Silence</B> (Mat Sinner/Igor Gianola)<BR>03. <B>The Dog</B> (Mat Sinner/Henny Wolter)<BR>04. <B>Heart Of Darkness</B> (Mat Sinner/Magnus Karlsson)<BR>05. <B>Revolution</B> (Mat Sinner/Henny Wolter)<BR>06. <B>Unbreakable</B> (Mat Sinner/Igor Gianola)<BR>07. <B>Fist To Face</B> (Mat Sinner/Henny Wolter)<BR>08. <B>Until It Hurts</B> (Mat Sinner/Henny Wolter)<BR>09. <B>Little Head</B> (Butch Walker)<BR>10. <B>Connection</B> (Mat Sinner/Henny Wolter)<BR>11. <B>Like A Rock</B> (Mat Sinner/Henny Wolter/Tom Naumann)</P>
+Автор: Vit Belov
+
+### 27.08.2008 news Новая песня SINNER
+
+<P>Новый альбом <STRONG>SINNER</STRONG> <STRONG>"Crash & Burn" </STRONG>выходит 19 сентября на <STRONG>AFM</STRONG>. Песню с этой работы можно послушать на<STRONG> MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/sinnerofficial">http://www.myspace.com/sinnerofficial</A></P>
+Автор: Vit Belov
+
+### 02.09.2008 news Новое видео от SINNER
+
+<P><STRONG><center>SINNER</STRONG> также опубликовали новый видеоклип на песню "<STRONG>Revolution</STRONG>".</center></P>
+<P><center><object width="425px" height="360px" ><param name="allowFullScreen" value="true"/><param name="movie" value="http://mediaservices.myspace.com/services/media/embed.aspx/m=42000258,t=1,mt=video,searchID=,primarycolor=,secondarycolor="/><embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=42000258,t=1,mt=video,searchID=,primarycolor=,secondarycolor=" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" /></object></center></P>
+Автор: Vit Belov
+
+### 05.08.2009 news Ещё один проект с Michael Kiske для Frontiers Records
+
+<P><STRONG>Frontiers Records</STRONG> сообщали о создании нового студийного проекта, в котором примут участие бывший вокалист <STRONG>HELLOWEEN Michael Kiske</STRONG> и&nbsp;певица <STRONG>Amanda Somerville. </STRONG>Музыку для их дуэта сочинят <STRONG>Mat Sinner</STRONG> (<B>PRIMAL FEAR</B>, <B>SINNER</B>)&nbsp;и <B>Magnus Karlsson</B> (<B>PLACE VENDOME</B>, <B>PRIMAL FEAR</B>). Несколько песен сочинит и лидер <STRONG>AFTER FOREVER</STRONG> <STRONG>Sander Gommans. </STRONG>Пластинка выйдет в начале 2010 года.</P>
+Автор: Vit Belov
+
+### 19.09.2009 reviews Коллекция отбракованного материала
+
+<P>Мы уже отмечали, что известный немецкий музыкант Mat Sinner очнулся от спячки несколько лет назад и стал нагнетать темпы во всех своих проектах. Первыми выстрелили PRIMAL FEAR, альбомы которых радуют теперь не только своим качеством, но и некоторым разнообразием. Вместе с этим Mat оживил и свой собственный проект SINNER, попытавшись вернуться к менее тяжёлому, но более мелодичному melodic heavy-metal звучанию.</P>
+<P>“Crash & Burn” – второй альбом после этого возвращения, вышедший в 2008 году, но дошедший до нас лишь сейчас. Не скрою, я не равнодушен к творчеству группы SINNER, и тем сильнее было моё разочарование от этого альбома. В сочинении материала принимали участие не только члены коллектива, но и некоторые другие музыканты. Например, Magnus Karlsson или Igor Gianola. К сожалению, даже контрибуции от этих известных артистов не помогли этой пластинке. Качественный, но совершенно однообразный среднетемповый материал со знакомыми мелодиями. Понятно, что Mat мог подзабыть, где, когда и что он пел за свою длинную карьеру, но по крайней мере три вещи показались мне очень известными. При этом и исполнял их в своё время сам Mat Sinner. Очень слабо и скучно.</P>
+<P>Этот альбом нельзя отнести в золотую копилку творчества этого музыканта. Приятно, что он пытается порадовать своих старых фэнов, но к сочинению материала Mat’у и его друзьям стоит подходить более вдумчиво, а не превращать пластинки уважаемой группы в коллекции отбракованного материала. </P>
+Автор: Vit Belov
+
+### 10.02.2011 news SINNER: обновлённый состав и новый альбом &quot;One Bullet Left&quot;
+
+<P>Немцы&nbsp;<B itxtHarvested="1" itxtNodeId="377">SINNER</B> возвращаются с новым студийным альбомом и обновлённым составом. В последней инкарнации группы, к Мэту Синнеру (<B itxtHarvested="1" itxtNodeId="376">Mat Sinner</B>, <B itxtHarvested="1" itxtNodeId="375">PRIMAL FEAR</B>) и гитаристу Кристофу Лейму (<B itxtHarvested="1" itxtNodeId="374">Christof Leim</B>, <B itxtHarvested="1" itxtNodeId="373">THE NEW BLACK</B>) примкнули новички - <B itxtHarvested="1" itxtNodeId="372">Alex Scholpp</B> (<B itxtHarvested="1" itxtNodeId="371">TARJA</B>, <B itxtHarvested="1" itxtNodeId="370">FARMER BOYS</B>) на гитаре, <B itxtHarvested="1" itxtNodeId="369">Andr&#233; Hilgers</B> (<B itxtHarvested="1" itxtNodeId="368">RAGE</B>) на ударных и <B itxtHarvested="1" itxtNodeId="367">Alex Beyrodt</B> (<B itxtHarvested="1" itxtNodeId="366">PRIMAL FEAR</B>, <B itxtHarvested="1" itxtNodeId="365">VOODOO CIRCLE</B>) на третьей гитаре.<BR itxtNodeId="364"><BR itxtNodeId="363">В данный момент<STRONG> SINNER</STRONG> записывают новый альбом, <B itxtHarvested="1" itxtNodeId="361">"One Bullet Left"</B>, в городе Штутгарт (Германия). В качестве продюсера диска выступает Мэт Синнер (<B itxtHarvested="1" itxtNodeId="360">Mat Sinner</B>), а место за режиссёрским пультом занял&nbsp;<B itxtHarvested="1" itxtNodeId="359">Achim K&#246;hler</B>. Ожидаемый релиз <STRONG>"One Bullet Left"</STRONG> намечен на 9 сентебря на <B itxtHarvested="1" itxtNodeId="358">AFM Records</B>. Сингл и видео на песню, <B itxtHarvested="1" itxtNodeId="357">"Back On Trail"</B>, будет предворять полноформатник в первых числах августа.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.02/18518.jpg" width=475 height=219></CENTER>
+Автор: Headcrusher
+
+### 06.07.2011 news Mat Sinner объявил вокалистов для турне Rock Meets Classic 2012
+
+<P>Организатор традиционного турне по Европе <STRONG>Rock Meets Classic Mat Sinner (SINNER/PRIMAL FEAR) </STRONG>объявил состав вокалистов, которые традиционно исполнят хиты собственных групп под аккомпанимент "группы с оркестром": <STRONG>Ian Gillan (DEEP PURPLE), Steve Lukather (TOTO), Jimi Jamison (ex-SURVIVOR), Chris Thompson (MANFRED MANN'S EARTH BAND)</STRONG>&nbsp;и <STRONG>Robin Beck</STRONG>. Также в представлении примет участие<STRONG> MAT SINNER BAND</STRONG> с<STRONG> Oliver Hartmann</STRONG> у микрофона. В качестве бэк-вокалистов в тур поедут <STRONG>Ralf Scheepers</STRONG> и <STRONG>Amanda Sommerville</STRONG>. </P>
+<P>Выступление <STRONG>Ian Gillan</STRONG> на фестивале-туре этого года можно посмотреть ниже.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/6cAndq1LIBc?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/6cAndq1LIBc?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 11.07.2011 news Новый альбом SINNER
+
+<P><IMG height=320 alt="" hspace=0 src="/images/news_rus/2011.07/20045.jpg" width=320 align=right border=0>9 сентября выйдет новый альбом<STRONG> SINNER "One Bullet Left"</STRONG>. Группа <STRONG>Mat Sinner (PRIMAL FEAR)</STRONG> опубликовала обложку релиза. Интересно, что в&nbsp;настоящее время в коллективе три гитариста: <STRONG>Christof Leim (THE NEW BLACK), Alex Scholpp (TARJA, FARMER BOYS)</STRONG> и вернувшийся <STRONG>Alex Beyrodt (PRIMAL FEAR, VOODOO CIRCLE)</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>The One You Left Behind</STRONG><BR>2. <STRONG>Back On Trail<BR></STRONG>3. <STRONG>Give & Take<BR></STRONG>4. <STRONG>One Bullet Left<BR></STRONG>5. <STRONG>10 2 Death<BR></STRONG>6. <STRONG>Haunted<BR></STRONG>7. <STRONG>Atomic Playboys</STRONG><BR>8. <STRONG>Suicide Mission</STRONG><BR>9. <STRONG>Wake Me When I'm Sober<BR></STRONG>10. <STRONG>Mind Over Matter</STRONG><BR>11. <STRONG>Mend To Be Broken<BR></STRONG>12. <STRONG>Rolling Away</STRONG></P>
+Автор: Vit Belov
+
+### 22.07.2011 news Трейлер нового SINNER
+
+<P>Новый альбом <STRONG>SINNER "One Bullet Left"</STRONG> выходит 9 сентября на<STRONG> AFM Records</STRONG>. Рекламный трейлер этой пластинки можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mSUVdlBkzI8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/mSUVdlBkzI8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.08.2011 news &quot;Back On Trail&quot; - новое видео немцев SINNER
+
+<P><STRONG>"Back On Trail"</STRONG> - новое видео немцев <B>SINNER</B>, можно посмотреть ниже. Клип был снят в городе&nbsp;Нюрнберг, Германия.<BR><BR>Песня <STRONG>"Back On Trail"</STRONG> вошла в новый альбом <B>SINNER</B> <B>"One Bullet Left"</B>, выходящий 9 сентября на <B>AFM Records</B>.</P>
+<CENTER><IFRAME height=349 src="http://www.youtube.com/embed/3J7gAoJamo8" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 18.08.2011 news ABSURD UNIVERSE: дебютный альбом &quot;Habeas Corpus&quot; в октябре
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20651.jpg" width=400 height=400>ABSURD UNIVERSE</STRONG> - новая&nbsp;old-school death/thrash metal группа,&nbsp;включающая в своём составе участников&nbsp;<B itxtHarvested="0" itxtNodeId="48">SINISTER</B>, в октябре месяце выпускает свой дебютный альбом <STRONG>"Habeas Corpus"</STRONG> на итальянском лейбле&nbsp;<B itxtHarvested="0" itxtNodeId="46">Punishment 18</B>. CD был записан на студии <B itxtHarvested="0" itxtNodeId="45">Flighing Visch</B> (Zaandam,&nbsp;Holland). Обложку нарисовал белорусский художник <STRONG>Андрей Кромс</STRONG>.<BR itxtNodeId="42"><BR itxtNodeId="41">Трек-лист <STRONG>"Habeas Corpus"</STRONG>:<BR itxtNodeId="39"><BR itxtNodeId="38">01. <B itxtHarvested="0" itxtNodeId="37">Violence Revealed</B><BR itxtNodeId="36">02. <B itxtHarvested="0" itxtNodeId="35">Red Water</B><BR itxtNodeId="34">03. <B itxtHarvested="0" itxtNodeId="33">Flesh Collector</B><BR itxtNodeId="32">04. <B itxtHarvested="0" itxtNodeId="31">Under Command</B><BR itxtNodeId="30">05. <B itxtHarvested="0" itxtNodeId="29">Freedomless</B><BR itxtNodeId="28">06. <B itxtHarvested="0" itxtNodeId="27">Ships Of Enslavement</B><BR itxtNodeId="26">07. <B itxtHarvested="0" itxtNodeId="25">A Stone For Your Skull</B><BR itxtNodeId="24">08. <B itxtHarvested="0" itxtNodeId="23">Boiled By Dead Water</B><BR itxtNodeId="22">09. <B itxtHarvested="0" itxtNodeId="21">New World Domination</B></P>
+Автор: Headcrusher
+
+### 16.11.2011 reviews Хорошая работа немецких музыкантов
+
+<P>Немецкий музыкант-ветеран Mat Sinner продолжает свой нелёгкий труд на ниве тяжёлого метала. Кто-то из вас ходит работать на завод, кто-то в офис, кто-то в магазин, а Mat Sinner ходит работать куда-то в метал.</P>
+<P>У этой малопопулярной работы есть несколько направлений, она бывает студийная и концертная. Наш герой имеет два основных места сдельной работы SINNER и PRIMAL FEAR. Не каждый из нас выдаёт максимум на своём рабочем месте каждый день. Сегодня меняется погода, вчера скакнуло давление, а завтра я наверняка буду с похмелья, по этой причине, пусть начальство не обижается, но производительность и качество моего труда будет разниться. У господина Грешника точно так же. В 2008 году SINNER записали альбом “Crash & Burn”, который меня разочаровал, такое впечатление, что у музыкантов одновременно было похмелье и воспаление лёгких. В этот раз с SINNER работали люди в гораздо лучшей творческой и физической форме. Mat вновь привлёк к работе своего коллегу по PRIMAL FEAR гитариста Magnus Karlsson, который сочинил чуть ли не половину песен на новом альбоме. Сам Mat тоже не подвёл, и “One Bullet Left” видится мне очень хорошим альбомом. Он мелодичный и энергичный, не слишком тяжёлый, но и совсем не «попсовый». За такую музыку все любили SINNER ещё до того, как они стали рубить тяжеленный метал в 90-х годах.</P>
+<P>В этот раз у SINNER всё получилось. Не подумайте, что “One Bullet Left” – шедевр. Это, конечно же, не так, но немецкие музыканты в этот раз проделали очень хорошую работу для всех своих многочисленных фэнов.</P>
+Автор: Vit Belov
+
+### 08.09.2012 news Mat Sinner &quot;мутит&quot; новый проект
+
+<P>Басист <STRONG>Mat Sinner (PRIMAL FEAR, SINNER)</STRONG> объявил о создании нового пока не названного совместного проекта с вокалисто <STRONG>SYMPHONY X Russel Allen</STRONG>. Новообразованная группа сейчас в студии, где записывает альбом, который выйдет в 2013 году на <STRONG>Frontiers</STRONG>. Сведением будет заниматься давний друг Мэта <STRONG>Achim Kohler.</STRONG></P>
+<P>В записи примут гостевое участие <STRONG>Roland Grapow</STRONG> (guitar; <B>MASTERPLAN</B>, <B>HELLOWEEN</B>), <B>Randy Black</B> (drums; <B>PRIMAL FEAR</B>), <B>Alessandro Del Vecchio</B> (keyboards, vocals)&nbsp;и <B>Alexander Beyrodt</B> (guitar; <B>PRIMAL FEAR</B>, <B>VOODOO CIRCLE</B>). </P>
+<P>Продвинутые любители музыки могут посмотреть клип, где записываются барабаны для этого альбома.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/OuWo4ISXNsY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 15.08.2016 news SINNER назвали альбом
+
+<p>Пре-продукция нового альбома <strong>SINNER</strong> закончена. Группа собирается записать его при помощи продюсера<strong> Dennis Ward</strong> в ближайшем будущем. CD получил название "<strong>Tequila Suicide</strong>" и выйдет весной будущего года на <strong>AFM</strong>.</p><p>Подробности последуют.</p><p><center><img width="250" height="250" src="/images/news_rus/2016.08/29806.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 15.08.2016 news SINNER named new album
+
+<p>Pre-production for the new album of <strong>SINNER </strong>is finished. The band is going to record it with producer Dennis Ward in the near future. The CD is called "<strong>Tequila Suicide</strong>" and will be released next spring via <strong>AFM</strong>.</p><p>The details will follow.</p><p><center><img width="250" height="250" src="/images/news_rus/2016.08/29806.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Продолжение разбора "германщины": SINNER

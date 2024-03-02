@@ -405,6 +405,587 @@ Recorded at Endarker Studios in NorrkпїЅping with engineer/producer Magnus
 
 * C группой "Overflash" Devo Andersson
 
+## Публикации
+
+### 16.11.1999 news 
+
+<p>В Москве нам предстоит два супер шоу. На первом 18 ноября в ДК им. Горбунова на МеталAgen Фесте выступят Marduk, Enthroned, Angel Corpse, а также одна литовская команда и россияне Thron и Neotruth. А 4 и 5 декабря нас ждёт встреча "королями металла" Manowar всё в той же Горбушке.</p>
+
+Автор: Vit Belov
+
+### 25.11.1999 articles Marduk не приехал.
+
+<p>Нас очередной раз кинули. Вслед облому с Kiss и Pro-Pain&Co нас обломали Marduk&Cо. Многих из Вас наверняка волнуют вопросы: "Почему и Кто?" Давайте проведём небольшое, но оперативное расследование. Скажу сразу, сязаться с самой группой не удалось, потому что у всей честной компании продолжается турне. Остаётся искать ответы в нашей стране и сопредельных, ведь на этот раз вместе с нами опустили Литву, Латвию, Беларусь и Эстонию. Первым ко мне на электронную почту пришло заявление Эджена Прайса aka Евгения Аксёнова, главы всероссийско известной конторы MetalAgen.</p>
+<P> "Я как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством Metallysee. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали Pro-Pain & Co. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт Marduk & Co. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае сейчас я просто ничего не соображаю, но Metalagen больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего."</>
+<P> Ответным письмом я выразил понимание и надежду, что MetalAgen выживет и получил ещё одно письмо, но о нём ниже. А сейчас привожу перевод обращения прибалтийских организаторов тура (с сокращениями).</>
+<P> "Правда заключается в том, что Marduk отказались от назначенного тура по территории бывшего СССР, совершив тем самым самое большое кидалово в истории блэк-металл. Пять великолепных шоу были отменены, из-за того, что эти задницы побоялись приехать в наши страны. Тысячи фэнов кинуты (на каждое шоу было продано не менее 800 билетов, а в Москве даже 2000!). Пять локальных промоутеров потеряли в сумме 20000 долларов. В разговоре с руководителями нашей компании организаторы тура Marduk заявили, что не хотят ехать в наши страны, бояться проблем на границе, у них нет страховки оборудования и.т.д.. Но где, чёрт возьми, были их мозги, когда они соглашались на этот тур. Это правда, что в наших странах не самая стабильная экономическая и политическая обстановка, но наши фэны лучшие. Вспомните концерты Slayer, Cannibal Corpse, Deicide, Hypocrisy, Cradle Of Filth и др. Никто из них не был разочарован.<>Фэны не покупайте компакт-диски этой группы, объявим им бойкот. Группа состоящая из клоунов и страховых агентов, не может существовать".</>
+<P> Надеюсь, что все пострадавшие от рук Marduk, в том числе фэны, смогут зализать свои раны и продолжить борьбу за победу тяжёлой музыке.</>
+<P> Вернёмся к письму Евгения Аксёнова и фэнам.</>
+<P> "Фирмачи сволочи не приехали это понятно, но вот наши-то фэны! Некоторые конечно отнеслись с пониманием и сочуствием, но другая часть, и не малая, нажравшись, устроила дебоши как рядом с Горбушкой, так и у рок-магазинов, где они покупали билеты. Хотя всем возвратили деньги. Но как тут не поорать и не показать себя, как же, у нас ведь сплошные герои. Хотя на самом деле это самое настоящее неуправляемое стадо. Это ещё один пренеприятнейший момент во всей этой истории".</>
+<P> Со своей стороны могу лишь призвать поклонников тяжёлой музыки не обострять своим поведением и без того сложные ситуации. Ведь судя по всему нас могут всегда и в любой момент кинуть, как показал этот год. Надеюсь Manowar своими концертами в Москве 4 и 5 декабря исправит положение.</>
+<P> Вит Белов.</>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Marduk сообщили, что их тур по странам из ex-СССР не состоялся, из-за того, что их кинул тур-менеджер на 50000 DM. Группа сожалеет и хотела бы приехать к нам, но нам от этого не легче.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Triumphator новая группа с участием членов Marduk и Funeral Mist выпустит первый альбом "Wings Of Antichrist" в феврале.</p>
+
+Автор: Vit Belov
+
+### 25.11.2000 news Marduk выпускают двойной концертный альбом
+
+<p> В честь своего десятилетия шведы Marduk решили выпустить двойной концертный альбом под названием "Infernal Eternal". В него войдут 18 песен, записаных во время тура группы "World Panzer Battle", и еще три мультимедийных трэка. Трэк лист таков: CD1 - 'Panzer Division Marduk', 'Burn My Coffin', 'Baptism By Fire', 'The Sun Turns Black As Night', 'Of Hells Fire', '502', 'Materialized In Stone', 'Beast Of Prey', 'Those Of The Unlight', 'Sulphur Souls', 'Dreams Of Blood And Iron' и 'Fistfucking Gods Planet'. CD2 - 'On Darkened Wings', 'Into The Crypts Of Rays', 'Still Fucking Dead', 'Slay The Nazarene', 'Departure From The Mortals', 'Legion' и CD-ROM'ные бонус-трэки.</p>
+
+Автор: Nybras
+
+### 25.11.2000 news Marduk are set to release a 18 track double live CD
+
+<p> In celebration of their 10th Anniversary, Swedish metal legends MARDUK are set to release Infernal Eternal, a 18 track double CD, recorded live on the bands World Panzer Battle tour. The CD will be available for the price of a single disc and includes a booklet with lyrics and three CD-ROM tracks of exclusive live footage. The tracklisting: CD1 - 'Panzer Division Marduk', 'Burn My Coffin', 'Baptism By Fire', 'The Sun Turns Black As Night', 'Of Hells Fire', '502', 'Materialized In Stone', 'Beast Of Prey', 'Those Of The Unlight', 'Sulphur Souls', 'Dreams Of Blood And Iron' and 'Fistfucking Gods Planet'. CD2 - 'On Darkened Wings', 'Into The Crypts Of Rays', 'Still Fucking Dead', 'Slay The Nazarene', 'Departure From The Mortals', 'Legion' and CD-ROM bonus tracks. The collection is also available in double LP and double picture LP formats, both limited to 1000 copies.</p>
+<p></p>
+
+Автор: Nybras
+
+### 09.01.2001 news Записан новый альбом Marduk.
+
+<p>Новый альбом Marduk под названием "La Grande Danse Macabre" записан в Abyss Studios. Выпуск альбома намечен на март 2001 года. Трэклист: "Ars Moriendi", "Azrael", "Pompa Funebris 1660", "Obedience Unto Death", "Bonds of Unholy Matrimony", "La Grande Danse Macabre", "Death Sex Ejaculation", "Funeral Bitch", "Summers End", "Jesus Christ…Sodomized".</p>
+
+Автор: Morsus
+
+### 09.01.2001 news A new album of Marduk is recorded.
+
+<p>A new album of Marduk is called "La Grande Danse Macabre" and is recorded in the Abyss Studios. The release of the album is set to March 2001. Tracklist: "Ars Moriendi", "Azrael", "Pompa Funebris 1660", "Obedience Unto Death", "Bonds of Unholy Matrimony", "La Grande Danse Macabre", "Death Sex Ejaculation", "Funeral Bitch", "Summers End", "Jesus Christ…Sodomized".</p>
+
+Автор: Morsus
+
+### 17.02.2001 news Новости от ...And Oceans
+
+<p> На днях выходит новый диск ...And Oceans "Allotropic / Metamorphic Genesis Of Dimorphism" и в самом ближайшем будущем ребята отправятся в европейское турне в поддержку альбома вместе с такими группами, как Marduk и Mystic Circle.</p>
+
+Автор: Nybras
+
+### 01.03.2001 news Новый альбом Marduk
+
+<p> Новый альбом панзербригады, La Grande Danse Macabre, появится в формате CD и LP выйдет 12 марта через Regain Records. (Legion Online)</p>
+
+Автор: Nybras
+
+### 02.05.2001 news MARDUK&#39;s dates....
+
+<p> MARDUK's sole festival appearance this summer will be at Belgium's Grasspop Metal Meeting on June 23rd alongside such acts as JUDAS PRIEST and MOTORHEAD. In other news, MARDUK will be issuing a box set in late October entitled Blackcrowned, for which no information is currently available. Meanwhile, here is the group's complete US touring schedule for the next month or so:</p>
+<p></p>
+<p> May 02 - Houston, TX @ Fitzgeralds</p>
+<p></p>
+<p> May 03 - Austin, TX @ Backroom</p>
+<p></p>
+<p> May 04 - San Antonio, TX @ White Rabbit</p>
+<p></p>
+<p> May 05 - Dallas, TX @ Canyon Club</p>
+<p></p>
+<p> May 06 - El Paso, TX @ E-9</p>
+<p></p>
+<p> May 08 - Tempe, AZ @ Bostons</p>
+<p></p>
+<p> May 09 - Los Angeles, CA @ Troubadour</p>
+<p></p>
+<p> May 10 - San Francisco, CA @ Maritime Hall</p>
+<p></p>
+<p> May 11 - Madras, OR @ The Metal Shop</p>
+<p></p>
+<p> May 12 - Portland, OR @ Pine Street Theatre</p>
+<p></p>
+<p> May 13 - Seattle, WA @ Graceland</p>
+<p></p>
+<p> May 15 - St. Paul, MN @ The Lab</p>
+<p></p>
+<p> May 16 - Milwaukee, WI @The Globe</p>
+<p></p>
+<p> May 17 - Aurora, IL @ Rileys</p>
+<p></p>
+<p> May 18 - Cleveland, OH @ Blind Lemon</p>
+<p></p>
+<p> May 19 - Detroit, MI @ Harpos</p>
+<p></p>
+<p> May 21 - Cinncinati, OH @ Top Cats</p>
+<p></p>
+<p> May 22 - Columbis, OH @ Al Rosa</p>
+<p></p>
+<p> May 23 - Albany, NY @ Valentines</p>
+<p></p>
+<p> May 24 - South Amboy, NJ @ Clube Krome</p>
+<p></p>
+<p> May 25 - Springfield, VA @ Jaxx</p>
+<p></p>
+<p> May 26 - Brooklyn, NY @ L'Amour</p>
+<p></p>
+<p> May 27 - TBA</p>
+<p></p>
+<p> May 28 - TBA</p>
+<p></p>
+<p> May 29 - TBA</p>
+<p></p>
+<p> May 30 - Winston-Salem, NC @ Ziggys</p>
+<p></p>
+<p> May 31 - Atlantic Beach, NC @ Ziggys</p>
+<p></p>
+<p> June 01 - Atlanta, GA @ Masquerade</p>
+<p></p>
+<p> June 02 - Tampa, FL @ Brass Mug</p>
+<p></p>
+<p> June 03 - Ft Lauderdale, FL @ Culture Room</p>
+<p></p>
+<p> Source: BLABBERMOUTH.NET</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 06.06.2001 news DIMENSION ZERO - новый мелодик дэс из Швеции...
+
+<p>Участники проектов "IN FLAMES" и "MARDUK" создали команду с целью поиграть мелодик дэс метал. В окончательный состав "DIMENSION ZERO" вошли Jocke G&ouml;thberg (ex-MARDUK) - вокал, Hasse Nilsson (LUCIFERION, DIABOLIQUE) - барабаны, Glenn Ljungstr&ouml;m (IN FLAMES) и Jesper Str&ouml;mblad (IN FLAMES) - гитары и басс. Команда уже подписала контракт с пока еще не названным лэйблом и сейчас планирует запись дебютного полноформатника. Сессия будет проходить во Fredman Studios в Gothenburg (Швеция), где был записан EP "Penetrations From the Lost World".</p>
+
+Автор: Yermola
+
+### 06.06.2001 news Sweden&#39;s DIMENSION ZERO....
+
+<p>Sweden's DIMENSION ZERO—featuring IN FLAMES guitarist Jesper Strцmblad and ex-IN FLAMES axeman Glenn Ljungstrцm—are reportedly "only days away" from signing on the dotted line with an as-yet-unspecified record label, and rehearsals will begin in the coming weeks for the recording of the band's debut full-length album, the group's first release in six years. The DIMENSION ZERO line-up for the forthcoming CD will be as follows: Jocke Gцthberg (ex-MARDUK) on vocals, Hasse Nilsson (LUCIFERION, DIABOLIQUE) behind the drums, Glenn Ljungstrцm on guitars and Jesper Strцmblad will play guitars and bass. Recording will take place in September when they again return to Fredman Studios in Gothenburg / Sweden were they recorded the 1996 Penetrations From the Lost World EP. The as-yet-untitled album is expected to emerge in early 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 21.08.2001 news World Funeral US and European tours...
+
+<p>Sweden’s MARDUK have announced the dates for their forthcoming World Funeral US and European tours, which are scheduled to take place at the end of the year. Exact venue details will be posted shortly. <br> Part 1 — North America / Canada<br> Oct. 04 - St. Louis MO <br> Oct. 06 - Chicago IL <br> Oct. 07 - Minneapolis MN <br> Oct. 09 - Winninpeg CAN <br> Oct. 10 - Regina CAN <br> Oct. 11 - Calgary CAN <br> Oct. 12 - Edmonton CAN <br> Oct. 13 - Vancouver CAN <br> Oct. 14 - Seattle WA <br> Oct. 16 - San Francisco CA <br> Oct. 17 - Los Angeles CA <br> Oct. 18 - Orange County / San Diego CA <br> Oct. 19 - Albquerque NM <br> Oct. 20 - Pheonix AZ <br> Oct. 21 - El Paso TX <br> Oct. 23 - Austin TX <br> Oct. 24 - Houston TX <br> Oct. 26 - Ft.Lauderdale FL <br> Oct. 27 - Tampa FL <br> Oct. 28 - Jacksonville / Tallahasee FL <br> Oct. 30 - Washington DC <br> Oct. 31 - TBA <br> Nov. 01 - New Jersey <br> Nov. 02 - NYC <br> Nov. 03 - Worcester MA <br> Nov. 04 - Montreal CAN <br> Nov. 05 - Toronto CAN <br> Nov. 06 - Cleveland OH<br> Part 2 — Europe <br> Nov. 11 - Thessaloniki, Greece <br> Dec. 01 - Athens, Woodstock club, Greece <br> Dec. 4 - Paris, La locomotive, France <br> Dec. 5 - London, The dome, England <br> Dec. 6 - T.B.A, England <br> Dec. 7 - Bradford, Rio, England <br> Dec. 8 - Rennes, Lаntipode, France <br> Dec. 9 - Hengelo, Metropol, Holland <br> Dec. 11 - Osnabruck, Hyde Park, Germany <br> Dec. 12 - Essen, Zeche Carl, Germany <br> Dec. 13 - Offenbach, Hafenbahn, Germany <br> Dec. 14 - Strasbourg, La Laiterie, France <br> Dec. 15 - Antwerpen, Hof Ter Loo, Belgium <br> Dec. 16 - Tilburg, 013, Holland <br> Dec. 17 - Berlin, Columbiahalle, Germany <br> Dec. 18 - Munchen, Metropolis, Germany <br> Dec. 19 - Pratteln, Z7, Switzerland <br> Dec. 20 - Milano, Rainbow, Italy <br> Dec. 21 - Vienna, Arena, Austria <br> Dec. 22 - Zwickau, Alarm, Germany<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.09.2001 news MARDUK have announced the updated ...
+
+<p>Sweden’s MARDUK have announced the updated itinerary for their upcoming American trek. The dates are as follows: <br> Oct. 05 - Aurora, IL @ Riley's <br> Oct. 06 - St Louis, MO @ Creepy Crawl <br> Oct. 07 - St Paul, MN @ The Lab <br> Oct. 09 - Winnipeg, CAN @ Royal Albert Hall <br> Oct. 10 - Saskatton, CAN @ Wash n' Slosh <br> Oct. 11 - Edmonton, CAN @ The Rev Cabaret <br> Oct. 12 - Calgary, CAN @ Warehouse <br> Oct. 13 - Vancouver, CAN @ Studebakers <br> Oct. 14 - Seattle, WA @ Ballard Firehouse <br> Oct. 15 - TBA <br> Oct. 16 - San Francisco, CA @ The Pound <br> Oct. 17 - Anaheim, CA @ Chain Reaction <br> Oct. 18 - TBA <br> Oct. 19 - Phoenix, AZ @ Mason Jar <br> Oct. 20 - Alberquce, NM @ Launch Pad <br> Oct. 21 - El Paso, TX @ E-9 <br> Oct. 22 - TBA <br> Oct. 23 - Edingburg, TX @ Trenton Point Hall <br> Oct. 24 - Houston, TX @ Cardi's <br> Oct. 25 - TBA <br> Oct. 26 - Tampa, FL @ Brass Mug <br> Oct. 27 - Ft Lauderdale, FL @ Metal Factory <br> Oct. 28 - Jacksonville, FL @ Imerial Lounge <br> Oct. 29 - TBA <br> Oct. 30 - W. Springfield, VA @ Jaxx <br> Oct. 31 - TBA <br> Nov. 01 - TBA <br> Nov. 02 - Brooklyn, NY @ Lamour <br> Nov. 03 - Toronto, CAN @ Kathedral <br> Nov. 04 - Montreal, CAN @ Foufounes <br> Nov. 05 - TBA<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.11.2001 news MARDUK&#x2F;AMON AMARTH US Crusade Of Darkness tour...
+
+<p>Here are the confirmed dates for the upcoming (rescheduled) MARDUK/AMON AMARTH US Crusade Of Darkness tour: <BR><BR> Jan. 11 - St. Paul, MN @ The Lab <BR> Jan. 12 – Aurora, IL @ Riley's <BR> Jan. 13 – Detroit, MI @ Shelter <BR> Jan. 14 – Cleveland, OH @ Flying Machine <BR> Jan. 15 – Indianpolis, IN @ Emerson Theatre <BR> Jan. 17 – Randolph, NJ @ Obesession <BR> Jan. 18 – Brooklyn, NY @ Lamour <BR> Jan. 20 – Montreal, QUE @ Foufounes <BR> Jan. 22 - W. Springfield, VA @ Jaxx <BR> Jan. 25 – Jacksonville, FL @ Imperial Lounge <BR> Jan. 27 - Ft. Lauderdale, FL @ Culture Room <BR> Jan. 29 – Houston, TX @ Cardi's <BR> Jan. 30 – Edingburg, TX @ Trenton Point Music Hall <BR> Feb. 01 - El Paso, TX @ E-9 <BR> Feb. 02 – Albuquerque, NM @ Launchpad <BR> Feb. 03 – Phoenix, AZ @ Mason Jar</p>
+
+Автор: Yermola
+
+### 15.11.2001 news Pompa Funebris European tour
+
+<p>MARDUK have made further changes and adjustments to their upcoming Pompa Funebris European tour. These is the latest schedule, as posted on the group’s official web site: <BR><BR> Nov. 30 - Greece, Thesaloniki <BR> Dec. 01 - Greece, Athene, Woodstock <BR> Dec. 03 - France, Lille, Splendid <BR> Dec. 04 - France, Paris, La Locomotive <BR> Dec. 05 - United Kingdom, London, The Dome <BR> Dec. 06 - United Kingdom, Bradford, Rio <BR> Dec. 08. - France, Rennes, Citte <BR> Dec. 09 - Nederland, Hengelo, Metropol <BR> Dec. 11 - Germany, Osnabruck, Hyde Park <BR> Dec. 12 - Germany, Essen, Zeche Carl <BR> Dec. 13 - Germany, Offenbach, Hafenbahn <BR> Dec. 14 - France, Strasbourg, La Laiterie <BR> Dec. 15 - Belgium, Antwerpen, Hof Ter Loo <BR> Dec. 16 - Nederland, Tilburg, 013 <BR> Dec. 17 - Germany, Berlin, Columbiahalle <BR> Dec. 18 - Germany, Munchen.Metropolis <BR> Dec. 19 - Switzerland, Pratteln, Z7 <BR> Dec. 20 - Italy, Milano, Pala Aquatica <BR> Dec. 21 - Austria, Vienna, Arena <BR> Dec. 22 - Germany, Zwickau, Alarm</p>
+
+Автор: Yermola
+
+### 06.12.2001 news MARDUK&#x2F;AMON AMOARTH&#x2F;DIABOLIC US tour...
+
+<p>Here are the re-scheduled dates for the upcoming MARDUK/AMON AMOARTH/DIABOLIC US tour, which was originally due to take place a couple of months back, but ended up getting cancelled after members of MARDUK encountered “visa problems”: <BR><BR> Jan. 11 - The Lab - St. Paul, MN <BR> Jan. 12 - Riley's - Aurora, IL <BR> Jan. 13 - Shelter - Detroit, MI <BR> Jan. 14 - Flying Machine - Cleveland, OH <BR> Jan. 15 - Emerson Theatre - Indianapolis, IN <BR> Jan. 16 - The Blue Max - Lexington, KY <BR> Jan. 17 - Obsessions - Randolph, NJ <BR> Jan. 18 - L'amour - Brooklyn, NY <BR> Jan. 19 - Kathedral Room - Toronto, Ont. <BR> Jan. 20 - Foufounes Electrique - Montreal, Que <BR> Jan. 22 - Jaxx - W. Springfield, VA <BR> Jan. 23 - Ziggy's - Winston - Salem, NC <BR> Jan. 24 - Cotton Club - Atlanta, GA <BR> Jan. 25 - Imperial Lounge - Jacksonville, FL <BR> Jan. 27 - Culture Room - Ft. Lauderdale, FL <BR> Jan. 29 - Cardi's - Houston, TX <BR> Jan. 30 - Trenton Point Hall - Edingburg, TX <BR> Jan. 31 - Flamingo Cantina - Austin, TX <BR> Feb. 01 - E-9 - El Paso, TX <BR> Feb. 02 - Launchpad - Albuquerque, NM <BR> Feb. 03 - Mason Jar - Phoenix, AZ <BR> Feb. 04 - Chain Reaction - Anaheim, CA <BR> Feb. 05 - The Pound - San Francisco, CA <BR> Feb. 07 - Bluebird - Denver, CO <BR> Feb. 08 - Pig Pen - Clinton, IA <BR> Feb. 09 - Creepy Crawl-St. Louis, MO</p>
+
+Автор: Yermola
+
+### 04.01.2002 news MARDUK Box Set Postponed, US Tour Finalized ....
+
+<p>The release of MARDUK's forthcoming Blackcrowned box set has been delayed because of printing problems. A new release date has been set for February 18th. In other news, here are the dates for MARDUK's upcoming US tour with AMON AMARTH and DIABOLIC: <BR><BR> Jan. 11 - The Lab - St. Paul, MN<BR> Jan. 12 - Riley's - Aurora, IL<BR> Jan. 13 - Shelter - Detroit, MI<BR> Jan. 14 - Flying Machine - Cleveland, OH<BR> Jan. 15 - Emerson Theatre - Indianapolis, IN<BR> Jan. 16 - The Blue Max - Lexington, KY<BR> Jan. 17 - Obsessions - Randolph, NJ<BR> Jan. 18 - L'amour - Brooklyn, NY<BR> Jan. 20 - Foufounes Electrique - Montreal, QUE<BR> Jan. 21 - Living Room - Providence, RI<BR> Jan. 22 - Jaxx - W. Springfield, VA w/Pessimist<BR> Jan. 24 - Masquerade - Atlanta, GA<BR> Jan. 25 - Imperial Lounge - Jacksonville, FL<BR> Jan. 26 - Brass Mug - Tampa, FL<BR> Jan. 27 - Culture Room - Ft. Lauderdale, FL<BR> Jan. 29 - Cardi's - Houston, TX<BR> Jan. 30 - Trenton Point Hall - Edingburg, TX<BR> Jan. 31 - Center Theater - Corpus Christi, TX<BR> Feb. 01 - E-9 - El Paso, TX<BR> Feb. 02 - Launchpad - Albuquerque, NM<BR> Feb. 03 - Mason Jar - Phoenix, AZ<BR> Feb. 04 - Troubadour - Hollywood, CA<BR> Feb. 05 - The Pound - San Francisco, CA<BR> Feb. 08 - Starlight - Ft. Collins, Co<BR> Feb. 09 - Creepy Crawl - St. Louis, MO <BR></p>
+
+Автор: Yermola
+
+### 14.01.2002 articles Вот и открыл я новый концертный сезон!
+
+<P><IMG height=399 alt=playbill hspace=15 src="/images/articles_rus/2002.01/2301.jpg" width=250 align=left vspace=5 border=1> Вот и открыл я новый концертный сезон! Первый концрт 2002 года оказался не без обломов,но об этом позже. Концерт состоялся в том же самом маленьком клубе "the Lab", где недавно был Moonspell. Если посмотреть на афишу (фото прилагается), там значились 4 команды - MARDUK, AMON AMART, DIABOLIC и DISINTER. И цена билета в 13 долларов. Когда мы вошли в клуб с нас взяли не 13 долларов а 10. По началу я на это не обратил внимание, и как оказалось зря. Просто так здесь никто цены снижать не будет. Народу в клубе оказалось побольшше чем в прошлый раз, если Moonspell почтили своим вниманием 150 человек, то на этот раз народу было человек 200 - больше этот клуб вместить бы не смог.</P>
+<P>Концерт начался с часовой задержкой. Первой играла местная команда Malignant. Музыка представляла из себя смесь дэс-метала и хард-кора в который непонятно для чего засунули клавиши. Они то и были абсолютно не в тему - причем на них издавались какие то непонятные звуки. Народ реагировал очень вяло, хотя музыканты старались - но не более. Кстати весь концерт и околоконцертные события были засняты мной на фотопленку, и когда я сделаю фотографии постораюсь чтоб господа мастдайцы смогли их увидеть. Мы пошли в бар пить пиво. Но вот прикол - пиво можно было пить только в специально огороженном месте, и только если тебе 21 год и более. А на концерт пускали людей начиная с 18 летнего возраста. Вот какие у них здесь порядки. Причем по определенным дням независимо от концертов пускают от 18 и старше, по другим - от 21-го года. Но я как обычно забил на строгие американские правила, и пил пиво там где мне хотелось - правда меня пару раз предупредили, но не более.</P>
+<P>В холле сами музыканты флоридских команд Disinter и Diabolic продавали свои же диски и майки. Это меня немного удивило. Вы представляете например Валерия Кипелова, продающего диски и майки "Арии" в холле дворца спорта "ЦСКА"? Я например нет. Причем когда чуть позже приехали Амон Амартовцы - они так же лично стояли и продавали свою продукцию. Так что у меня как обычно получилось поговорить со всеми музыкантами учавствовавшими в концерте и даже сфотографироваться. А тем временем на сцену вышли вторые местные суппортеры из Demonicon. Дядьки оказались довольно приличного возраста, и как удалось узнать играют они довольно давно. По музыке было очень похоже на Deicide, только вот пели ребята в два вокала, толстый басист и КерриКингоподобный гитарист, лысый с длинной бородой. Причем оба вокала были гроулингами. Представьте себе такую картину - идет рубилово и слышен гроулинг, вы смотрите на основного вокаллиста и тут осознаете что вокалист уже не поет, а гроулинг все равно слышен - поет уже другой чувак. По тембру оба вокала оказались очень похожими. Короче порадовали меня Demoniconы отличным брутальным музоном. Дальше вылезли флоридские блэк-дэтстеры Disinter. Музыка у них не четкая а какая то кашеобразная- сплошная стена звука с очень быстрыми барабанами и вокал какой то приблэкованый. Еще обратил на себя внимание басист с 5-ти струнным басом. Зачем ему 5 струн когда он играет только на верхней? Это осталось для меня загадкой.</P>
+<P>Где то часам к 9-ти в клуб подъехали музыканты Амон Амарт. И тут то мы все узнали почему с нас взяли 10 баксов вместо 13-ти. Оказывается "сраные позеры" из MARDUK просто не приехали, снявшись с тура кинув тем самым как организаторов тура так и всех нас. Со всех сторон в их адрес слышались маты (fucking Marduk, bullshit, fucking posers:) и только одно приличное слово "CANCEL"- так что вслед за москвичами кинутыми оказались америкоты. Незнаю кто после такого захочет иметь какие либо дела с этой группой? Обидно было за людей приехавших специально ради Мардука, особенно нелепо выглядели несколько чуваков в корпспейнте, которые после известия ,что Мардука не будет пошли мыть свои рожи:). Но оставался Амон Амарт и он стоил того чтобы послушать этих шведов живьем. А пока я подошел к амоновцам чтобы поговорить. Так как я плохо знал их в лицо, только по фоткам на веб-сайте, я в наглую подошел к чувакам и спросил кто тут у них "пахан". На что самый длинный швед с длинной бородой сказал "Ну я типа". "Паханом" оказался Амон Амартовский вокалист Йохан Хегг. Узнав что я из России продемонстрировал неслабое знание некоторых русских фраз типа "как дела". Рассказал что они после тура садятся в студию к Пете Тагтгрену, записывать новый альбом . Про русские команды сказал следующее - " Я знаю что в России существует много неплохих групп, но по именам никого не знаю". И еще выразил негативное отношение к группам типа In Flames и Dark Tranquility сильно облегчившим саунд. Сказал что лучшим альбомом Tranquillity считает "Skydancer". Так же поговорил еще с одним Йоханом - гитаристом. Тот рассказал мне про свои гитары, два Gibsona и Ibanez. Кстати весь концерт оба гитариста Амартов сыграли на одинаковых Gibsonax Explorerax без машинок.</P>
+<P>Тем временем на сцену вышли Diabolic. Их музыку я бы назвал прямолинейным brutal-death-noisom. Мне она показалась малоинтересной, надо бы как то разнообразить что ли, хотя бы соляки где нибудь поиграть. А так просто бстрое рубилово, причем весьма грязное по звуку.Все песни, как близнецы и это меня огорчило. Эти флоридские монстров, живут в Тампе и записываются как вы думаете где? Правильно думаете - конечно в Моррисаунде. Вокалист у них, он же басист поет гроулингом, но высоким. Довольно инетересно, но из за грязного звука это нивелируется. Дело даже не в том что в зале был плохой звук - совсем наоборот, звук был отличный, вот сама музыка звучит как-то грязно. Кстати, басист-вокалист сказал, что мы с ним еще встретимся через 2 месяца, когда Диаболики будут участвовать в другом туре, вместе с ..... - не буду вас расстраивть:).</P>
+<P>Ну наконец о хедлайнерах - AMON AMART - пришлось чувакам отрабатывать и за себя и за тех позеров-мардуков. Можно сказать что со своей задачей они справились. Рубилово было мощное. Если кто не знает, AMON AMART команда из Стокгольма, играющая melodic-death только более брутальный, и скорее даже ближе к классическому шведскому дэту. Вокальчик такой сочный низкий гроулинг, а в музыке проскакивают элементы СМДМ, солячки например, но все равно влияния старых школ дэта на творчество AMON AMART более заметно. А вот репертуар состоял приемущественно из новых вещей. С "Avengera" сыграли одну вещь, с первого альбома тоже-заглавную. С "Crusher" - песни четыре и остальное - новое, это песни с нового альбома, в которых ребята ни на шаг не отошли от своих предыдущих работ, так что если вам нравятся три альбома AMON AMART - смело можете брать и новый, ничего неожиданного вы там не услышите. Я неплохо порубился у сцены. Кстати Амоновский вокалист оказался хорошим шоуменом, держался на сцене просто здорово, что не скажешь о остальных музыкантах-которые "тупо играли" уткнувшись в свои инструменты. Но их программа оказалась совсем не долгой - минут на сорок, вероятно они болше и не планировали, так как не думали что со стороны Мардуков будет такая подстава. В общем я остался доволен, не смотря на Мардуковский облом. Видно не судьба увидеть Мардук на живом концерте. Как же я теперь понимаю москвичей, которые материли этих позеров год назад :)</P>
+<P>Вот так завершился мой первый в 2002 году концерт, а впереди долгий концертный сезон, и я вас еще порадую новыми репортажами.</P>
+Автор: rjh
+
+### 18.01.2002 news О влиянии Усамы Бен Ладена на современную шведскую метал-сцену...
+
+<P>Шведы "MARDUK" до сих пор не могут получить соответствующие бумаги от Американского посольства и следовательно не в состоянии отправиться в давно запланированный тур по штатам с AMON AMARTH и DIABOLIC (должен был начаться 11 января в St. Paul, Minnesota). Как объяснил вокалист группы Legion, американская служба U.S. Traffic Control продержала документы до 21-го декабря после чего бумаги застряли уже в Американском посольстве, которое объяснило задержку ситуацией с Афганистаном....<BR><BR>Интересно почему указанные проблемы не отразились на двух других группах (AMON AMARTH и DIABOLIC), успешно катающихся по штатам со своей программой (см. репортажи нашего американского корреспондента RJH в разделе "статьи")?!?</P>
+Автор: Yermola
+
+### 18.01.2002 news MARDUK: Still Waiting For American Visas ....
+
+<p>Sweden's MARDUK have still not received the proper paperwork from the American Embassy in order to enable them to embark on their North American tour with AMON AMARTH and DIABOLIC, a trek that was originally due to start on January 11th in St. Paul, Minnesota. MARDUK vocalist Legion offered the following update on the situation via a post on the message board of Metal Maniacs magazine yesterday: <BR> <BR> "This is Legion of MARDUK. I would just want all of you to know that we still have not recieved all the papers we need to enter the U.S. from the American Embassy. We were promised that we would be fine by the end of last week but still all the members have not got their stuff. The reception chick I talked to today was really surprised about that and said that we all should have our stuff by now but B. War is still waiting for his visa. I know that you might wonder why this has not been dealt with earlier since we have had a full three months to get our shit together but the case was not approved by U.S. Traffic Control until the 21st of December and the embassy is not allowed to issue shit before they do thumbs up. We are doing all in our power to hurry up things I have called, faxed and sent letters there. Yesterday I even drove to the embassy but was sent home at the gate since no visitors are allowed because of the Afghanistan situation. We are in limbo right now and I can't really tell when the last visa is gonna show since we have been promised things over and over and my confidence in the ambassadors credibility is zero. I will post anything new as soon as I know. Also check out www.marduk.nu, which will be updated very soon. I have been pushing really hard but feel like I'm losing my mind since I sent the last additional requested 'post Sep 11th' material in early November and was promised to be home free when we got back from Europe. We have tickets and gear on stand by and are gonna show asap when B. War gets his stuff." <BR> <BR> MARDUK and AMON AMARTH were originally scheduled to tour in North America during October/November, but had their visa requests denied in the wake of the September 11th terrorist attack. AMON AMARTH and DIABOLIC are reportedly performing the shows as scheduled.</p>
+
+Автор: Yermola
+
+### 10.03.2002 news MARDUK news
+
+<p>MARDUK have recruited drummer Emil Dragutinovic as a replacement for Fredrik Andersson, who left the group in order to focus on family life. MARDUK will soon begin work on the material for the group's eighth full-length album, due at the end of the year.</p>
+
+Автор: Dimas
+
+### 10.03.2002 news У MARDUK новый ударник
+
+<p>MARDUK рекруитировал в свои ряды нового барабанщика - Emil Dragutinovic'a - заместо старого Fredrik Andersson'a, покинувшего группу и решившего уделять больше внимания своей семейной жизни. В скором времени, группа начнет работу над новым восьмым полнометражным альбомом. Альбом планируется к концу 2002 года.</p>
+
+Автор: Dimas
+
+### 29.05.2002 news MARDUK w&#x2F; Danzig....
+
+<p>6/1 Celebrity Theater- Phoenix, AZ <BR> 6/2 Sunshine Theater- Albequerque, NM<BR> 6/4 Far West Rodeo - El Paso, TX<BR> 6/6 Party On The Patio- Corpus Christi, TX<BR> 6/7 Sunset Station - San Antonio, TX<BR> 6/8 Canyon Club - Dallas, TX<BR> 6/10 House Of Blues - New Orleans, LA<BR> 6/14 Ovation - Boynton Beach, FL<BR> 6/15 House Of Blues - Orlando, FL<BR> 6/16 Marquee Theater - Jacksonville, FL<BR> 6/18 Roxy Theater- Altanta, GA<BR> 6/21 Nation - Washington, D.C.<BR> 6/22 Electric Factory - Philadelphia, PA<BR> 6/23 Boathouse - Norfolk, VA<BR> 6/25 The Vanderbilt - Plainview, NY<BR> 6/26 Webster Theater - Hartford, CT<BR> 7/12 State Theater - Detroit, MI<BR> 7/13 Bogart's - Cincinnati, OH<BR> 7/15 House Of Blues - Chicago, IL<BR> 7/17 The Rave - Milwaukee, WI<BR></p>
+
+Автор: Yermola
+
+### 28.08.2002 news Marduk войдут в Abyss Studio в начале сентября ...
+
+<p>Marduk войдут в Abyss Studio в начале сентября для записи новых песен. Группа расчитывает закончить запись в ноябре. После релиза пластинки Marduk планируют большой европейский тур.</p>
+
+Автор: Yermola
+
+### 28.08.2002 news The new album of Marduk is well under way....
+
+<p>The new album of Marduk is well under way. the band will enter the Abyss studios in early September to start the recording of the new songs and then they will return in November to finish the recordings. After the album is released the band plans a big European tour.</p>
+
+Автор: Yermola
+
+### 24.09.2002 news MARDUK закончил запись нового материала
+
+<p>MARDUK закончили запись своего восьмого долгоиграющего альбома в Abyss studio с продюссером Peter Tagtgren'ом. В ноябре, группа планирует заняться микшированием альбома, выпуск которого состоится в феврале 2003 года.</p>
+
+Автор: Dimas
+
+### 13.10.2002 news Новый альбом MARDUK
+
+<p>В середине февраля 2003 года выходит новейшее творение MARDUK под громким названием "World Funeral". Запись альбома планируется на ноябрь в Abyss studio с продюссером Peter Tagtgren'ом. Предполагаемый трэк-лист альбома:</p>
+<p> 01. With Satan And Victorious Weapons <BR> 02. Bleached Bones <BR> 03. Cloven Hoof <BR> 04. Hearse <BR> 05. To The Death's Head True <BR> 06. World Funeral <BR> 07. Castrum Doloris<BR> 08. Night Of The Long Knives <BR> 09. Bloodletting <BR> 10. Blessed Unholy <BR> 11. Blackcrowned</p>
+<p> В январе, группа выпустит сингл, куда войдут песня с нового альбома и классический кавер POSSESSED "Phantasm".</p>
+
+Автор: Dimas
+
+### 16.01.2003 news MARDUK залицензирован
+
+<p>Приятная новость для всех любителей black metal. Российская компания CD-MAXIMUM подписала договор на лицензию с Blooddawn Productions. Следовательно, планирующийся 24 февраля 2003 года к выходу на этом лэйбле новый альбом MARDUK под названием "World Funeral" одновременно выйдет и в России на <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A>.</p>
+
+Автор: Dimas
+
+### 03.04.2003 articles Война слов
+
+<p><B>Бойня в Ираке породила войну мнений во всем мире. Каждый считает долгом высказать умные и не очень мысли насчет Буша, Ирака и прелести демократии, распространяемой с помощью бомб. Коснулась сия напасть и музыкантов - отличный повод посмотреть, у кого из них в голове есть извилины. </B><BR> Война слов началась еще прошлой осенью - тогда Том Морелло (гитарист левацких групп RAGE AGAINST THE MACHINE и AUDIOSLAVE) и Серж Танкян (вокалист SYSTEM OF A DOWN) создали организацию "Огонь правосудия", от имени которой отвечали на все вопросы, связанные с империализмом, эксплуатацией, борьбой за права человека и экспансией США во всем мире. Естественно, все это обильно сдабривалось цитатами из Карла Маркса, речей Че Гевары и примерами из истории. Эта левая пропаганда жутко не понравилась Билли Милано, лидеру старой и бестолковой нью-йоркской команды M.O.D.: "К черту правосудие, пусть эти два миллионера-коммуниста едут в Ирак и там тратят свои миллионы на мир! Да здравствуют бомбы и нефть!". Миллионеры-коммунисты этот выпад проигнорировали, а меломаны прилепили ярлык к Милано - "неофашист". <BR> Вся эта перепалка так и осталась бы в прошлом, но началась война. Как только Буш объявил свой ультиматум, три девицы из DIXIE CHICKS, обладатели "Грэмми", вышли на сцену с плакатами: "Сколько иракцев стоит один галлон нефти?" и "В одной техасской деревне исчез дурачок. Вы его не видели?". Следом среагировал Эминем - парень высказался незамысловато: "Война - фигня, к черту войну, мне не нужны кадры невинных жертв на ТВ - лучше крутите мои клипы!" Поначалу пацифисты вели себя достаточно пассивно, ограничиваясь воспоминаниями об эре хиппи и призывом к миролюбию. Зато их оппоненты показали себя ярыми сторонниками Белого дома и его аргументов. 18 марта Майк Портной, барабанщик великолепной прогрессив-команды DREAM THEATER, начал стыдить всех критиков Буша: "Я не люблю войну. Но то, что было начато 11 сентября, должно быть завершено - США должны разгромить терроризм и защитить свободу! Все, кто против, идите-ка домой и посмотрите еще раз хронику той катастрофы: как горят здания, люди выпрыгивают из окон и рушится символ процветания!". <BR> Как только на головы иракцев посыпались бомбы и кадры войны пошли по ТВ, Фред Дерст, лидер рэпперов LIMP BIZKIT, не удержался от комментариев: "Вы видели это? Сюрреализм какой-то… Я молюсь за народ Ирака и за всех, кто погибнет. Но я молюсь и за победу наших солдат - пусть они скорее возвращаются домой с победой! Не нужно больше протестовать против войны, нужно поддержать нашу страну: вперед, США!". <BR> К числу милитаристов примкнул и Закк Уайлд, гитарист Оззи Осборна: "Войска США будут крушить врагов и господствовать везде! Это лучшая армия в сегодняшнем мире!". Интересно, с какими чувствами этот парень играет с Оззи песни "War Pigs" ("Военные свиньи") и "God thank you for the bomb!" ("Господи, спасибо за бомбу!")? В том же ключе выступил и древний рокер Тед Наджент - мол, во Второй мировой войне вмешательство США помогло спасти миллионы евреев, и на этот раз война поможет спасти невинных! По каким учебникам этот парень учил историю и как он смотрит новости: кого должны спасти американские бомбы? Лучше умереть от оружия свободы, чем жить при диктатуре Хусейна? <BR> В конечном счете большинство американских музыкантов так или иначе поддержали войну. Зато меньшинство принялось активно действовать - Лени Кравиц и R.E.M. отправились в студию писать антивоенные песни, а Зак Де Ла Роша, экс-вокалист RAGE AGAINST THE MACHINE, уже это сделал, назвав при этом Буша палачом, а Серж Танкян и Том Морелло каждый концерт начинают с антивоенных речей. Правда, власти страны образцовой демократии ставят им палки в колеса как могут: с 25 марта на MTV запрещены к показу все песни со словами "Ирак, "война", "бомба" и т.д., а из эфира уже сняты несколько клипов: "Boom!" SYSTEM OF A DOWN и "Holy Wars" MEGADETH (последний, кстати, вышел ровно десять лет назад во время первой иракской войны и содержал жестокие кадры бомбардировок). Хуже всего пришлось группе B-52 - ребята ничего не имеют против войны, но они называются так же, как и бомбардировщики, которые несут 1-тонные заряды свободы иракцам, и потому упоминание этой группы в прессе и эфире сейчас нежелательно… <BR> В Европе иной расклад - антивоенные настроения доминируют. Только шведы MARDUK выпали из общего ряда: "Война не наша проблема - пусть танки действуют!". Зато немцы SODOM в прошлом году выпустили альбом, целиком посвященный американским приемам ведения войны во Вьетнаме - этакий экскурс в историю уничтожения жизни. Теперь эта работа снова актуальна. А их земляки DESTRUCTIОN на днях записали кавер-версию песни британцев THE EXPLOITED с красноречивым названием "Fuck The U.S.A.". <BR> Только Ларс Ульрих, барабанщик METALLICA, высказался наиболее разумно в этой перепалке: "Если ты музыкант и люди слушают твое мнение, это вовсе не значит, что нужно комментировать все подряд. Я уважаю то, что делают Том Морелло и Серж Танкян, всех тех, кто столь эмоционально выступает сегодня по проблеме войны, но я не хотел бы использовать имя METALLICA как трибуну. Читайте газеты, смотрите, что пишут в Интернете, создавайте свое собственное мнение и не слушайте какого-то придурка только потому, что он играет в какой-то рок-группе. Музыканты - не самые умные люди, так что лучше думайте своей головой!". <BR> <B>MAKE MUSIC NOT WAR!</B></p>
+
+Автор: Tornado
+
+### 29.04.2003 reviews Must have, однозначно!!!
+
+<p>Наиболее известная шведская блэк-метал банда (после Bathory,конечно), каковою бесспорно является Marduk,выпустила наконец-то...blablabla.Перехожу к делу.Данный альбом являет собой квитэссенцию мардуцизма в его современнейшем проявлении. Честно говоря, никак не ожидал, что эти черти запишут что-то сильное.Но, хвала аллаху, я ошибся. Рвущие "ушную плоть" риффы великолепнейше сочетаются с громоподобными барабанами и фирменным вокалом Легиона. Первая композиция ничего ОСОБО выдающегося собой не представляет, а вот дальше... Дальше начинается Marduk 2003.Чередующиеся скоростные и среднетемповые вещи иногда вызывают желание сунуть руку в мясорубку и орать во всю глотку,поражаясь брутальной гениальности музыкантов.Ибо такой тяжелющей порции чернушного злобарства я не слышал уже давно. А теперь Marduk нельзя упрекнуть даже в качестве звука, за что в отдаленном будущем им следует возложить цветочки на могилу граждан из маленькой захолустной Abyss Studio.Да,тех, кто переживал по поводу ухода Доминика из группы ждет приятный сюрприз:новый драммер данного ВИА ну никак не хуже старого,а на медляках, так иногда и получше.. Must have, однозначно!!! Даже если вы никогда не считали себя фанатом Мардука.</p>
+
+Автор: Antarianthe
+
+### 21.11.2003 news MARDUK остались без вокалиста
+
+<DIV id=0></DIV><BR><SPAN id=hbblock>
+<DIV id=0></DIV><SPAN id=hbblock>
+<P><LABEL id=HbSession SessionId="792955483">Шведские ветераны black metal сцены <B>MARDUK </B></LABEL>остались без вокалиста. Группу покинул ее бессменный&nbsp;фронтмэн <B>Legion</B>. Причины этого не разглашаются. <B>MARDUK</B> спешно ищут ему замену и отменили все&nbsp;свои ближайшие концерты.</P></SPAN></SPAN>
+Автор: Dimas
+
+### 14.12.2003 news MARDUK выпустят DVD
+
+<P><IMG height=280 alt="" hspace=0 src="/images/news_rus/2003.12/5722.jpg" width=200 align="right" border=0>Готовится к выпуску DVD <B>MARDUK "Funeral Marches and Warsongs"&nbsp;</B>. На него войдут 2 часа концертного материала и&nbsp;2 промо-видео-клипа. В это же время группа комментирует уход вокалиста Legion'a: "<B>Мы проработали вместе восемь с половиной лет, и сейчас настало время расстаться. Замена уже найдена, но о ней будет сообщено позже</B>."</P>
+Автор: Vit Belov
+
+### 14.12.2003 news MARDUK will release DVD
+
+<B><IMG height=280 alt="" hspace=0 src="/images/news/2003.12/5723.jpg" width=200 align="right" border=0>MARDUK</B> will release DVD <B>'Funeral marches and Warsongs</B>". There will be 2 hours of live-material and 2 promo-video-clips. Also The band comments split with vocalist Legion: "<B>We have worked with legion for over eight and a half year and now we came to a point,where it was time to move on. A replacment is already found and will be presented when we feel for it,we are in no stress to announce it. Right now we are working on our next album</B>."
+Автор: Vit Belov
+
+### 16.02.2004 news MARDUK назвали имя нового вокалиста
+
+Новым вокалистом <B>MARDUK</B> стал человек по имени <B>MORTUUS</B>. Никаких подробностей не сообщается. Напомним, что он сменил ушедшего недавно <B>Legion</B>'a.
+Автор: Vit Belov
+
+### 16.02.2004 news MARDUK found new singer
+
+<B>MORTUUS</B> has become new frontman of <B>MARDUK</B>. More info later.
+Автор: Vit Belov
+
+### 19.05.2004 news MARDUK заменили басиста
+
+<B>MARDUK</B> покинул басист <B>B.War. </B>Новым музыкантом группы стал <B>Magnus Devo Andersson</B>, который нарезал на гитаре на первых двух альбомах коллектива.
+Автор: Vit Belov
+
+### 26.06.2004 news MARDUK войдут в студию
+
+<P><B>MARDUK</B> войдут в студию в середине июля для записи нового альбома, который, предположительно, выйдет в ноябре.</P>
+Автор: Vit Belov
+
+### 30.09.2004 news Новый альбом MARDUK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Девятый альбом <STRONG>MARDUK</STRONG> будет называться <STRONG>"Plague Angel" </STRONG>и выйдет в середине ноября на <STRONG>Regain Records</STRONG>. Пластинка была записана в <STRONG>Endarker</STRONG> studio. Трэк-лист:</FONT></P>
+<P>01. <B>The Hangman of Prague</B><BR>02. <B>Throne of Rats</B><BR>03. <B>Seven Angels, Seven Trumpets</B><BR>04. <B>Life's Emblem</B><BR>05. <B>Steel Inferno</B><BR>06. <B>Perish In Flames</B><BR>07. <B>Holy Blood, Holy Grail</B><BR>08. <B>Warschau</B><BR>09. <B>Deathmarch</B><BR>10. <B>Everything Bleeds</B><BR>11. <B>Blutrache</B></P>
+Автор: Vit Belov
+
+### 26.02.2005 articles Legion (ex-MARDUK): &quot;Morgan Hakansson обманывал нас в MARDUK&quot;.
+
+<P><IMG height=562 alt="" hspace=0 src="/images/articles_rus/2005.02/7992.jpg" width=400 align=left border=5>В прошлом году MARDUK покинул их вокалист Legion, который представлял шведов на протяжении долгого времени, отвечая за лирику и часто давая интервью. На прошлой неделе в беседе с журналистом Rockdetector.com он рассказал о причинах разлада в MARDUK.</P>
+<P>«Вообще-то я решил, что мы не будем продолжать работать вместе ещё в 2001 году. Я чувствовал, что мы уже не «в одной лодке». Я, Fred и B.War были также разочарованы тем, что чем популярнее становилась группа, тем сильнее менялась её структура. Всё становилось тише и тише. Мы не получали никаких отчётов о продажах. Если мы спрашивали о чём-то подобном, то слышали в ответ: «У-у-у-у… Я не знаю, Вы же понимаете, дистрибуторы так долго не отвечают». Вот так внезапно мы перестали быть одной командой».</P>
+<P>«Чтобы добавить немного специй, скажу, что я заметил, как Morgan (гитарист) урезал мои авторские отчисления. Я получил уведомление от шведского авторского общества, что мой вклад в песни был урезан с 33% до 25%. Я так думаю, что Morgan считал, что он надрывается, поддерживая группу в рабочем состоянии. Правда, кроме прочего, он зарабатывал деньги и не рассказывал никому, как идут продажи. В тоже время, он считал, что все должны продолжать работать, как единая команда».</P>
+<P>«Но главная причина в том, что Morgan пытался рассорить нас с B.War. Ему он рассказывал одни вещи, а в разговорах со мной утверждал обратное. Мы просто перестали разговаривать с B. War”.</P>
+<P>Rockdetector: «Ну, и что же вызвало окончательный разрыв?»&nbsp; </P>
+<P>«Оглядываясь назад, я вижу, что группа работала отлично. Но наступает момент, когда все эти оскорбления вынуждают поставить точку. Большой взрыв произошёл после того, как я взял с собой жену в наш тур по Южной Америке. Ха-ха. Morgan наверное подумал, что она моя Yoko Ono. Он предложил мне выбирать между ней и им. Но это не был выбор. К тому времени, я уже решил покинуть группу».</P>
+<P>Rockdetector: «Ты также говорил, что больше не интересуешься black-metal сценой?»</P>
+<P>«Я не знаю, то ли я стал взрослее, то ли просто изменился, но некоторое время назад я понял, что мне нравится совсем другая музыка. Шведско-норвежская сцена «против всех» была на подъёме, и это очень вдохновляло. Мы ездили по всему Северу и находили единомышленников везде. Быть частью всего этого было приятно».</P>
+<P>Rockdetector: «Не обсуждалось ли в группе изменение стиля?»</P>
+<P>«Нет. Последний год моего пребывания в MARDUK, мы, вообще, мало разговаривали. Мы перестали общаться, потому что оба поняли, что время для дискуссий уже закончилось».</P>
+<P>Rockdetector: «Расскажи о Вашей с B. War новой группе REBELANGELS.»</P>
+<P>«B. War вынашивает множество идей. Кроме того, что у нас уже есть, мы имеем 5-10 песен в черновом варианте. Мне хочется представить нечто отличное от MARDUK. Мой вокал будет звучать в духе Morrison/Plant/Ozzy. Будет больше мелодичности, чем агрессии. В текстах же больше не будет сатанинской идеологии. Я решил расширить границы своего вдохновения».</P>
+Автор: Vit Belov
+
+### 10.03.2005 news MARDUK опять не приедут?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>MARDUK Emil Dragutinovich</STRONG> сломал руку в драке ещё в феврале. Пока отменены все концерты в марте. Доедет ли всё-таки&nbsp;группа до нас?</FONT></P>
+Автор: Vit Belov
+
+### 04.04.2005 articles Morgan (MARDUK): &quot;95 процентов black-metal - настоящий мусор&quot;.
+
+<P><IMG height=455 alt="" hspace=0 src="/images/articles_rus/2005.04/8243.jpg" width=341 align=left border=5>Совсем недавно мы публиковали выдержки из интервью бывшего вокалиста MARDUK Legion’а. В своём интервью Live 4 Metal гитарист Morgan попытался посоревноваться с Legion на ниве провокационных высказываний.</P>
+<P>Напомним, что по версии Legion, он был выкинут из группы, из-за несогласия с политикой Morgan, как лидера группы, который ущемлял права остальных участников MARDUK как в творческом, так и в финансовом смысле.</P>
+<P>«Я не знаю, чего он говорил там, да меня это и не волнует. Если он себе это так представляет, это его дело, знаете, у меня другое мнение. Он может говорить, что захочет, меня это не волнует. Я знаю, как всё было на самом деле, и остальное меня не беспокоит», - заявляет Morgan.</P>
+<P>«Мы нашли нового фронтмэна. Mortuus раньше пел в группе FUNERAL MIST. Я слушал его работы и понял, что он пользуется голосом не как остальные, он использует его, как инструмент. Тогда я решил, что если буду менять вокалиста, то он будет единственным кандидатом. Просто позвонил ему, и он согласился. Он персонально более брутален и страшен, чем Legion, мы всё это используем на будущем альбоме».</P>
+<P>MARDUK известны в нашей стране, кроме прочего, и своим уже легендарным неприездом в 1999 году, когда чуть было… Ну, это Вы знаете… А не знаете, так поищите на нашем сайте, найдёте. Так вот этой весной вся металлическая общественность была заинтригована сообщением о скором прибытии шведов в Москву. И что же? Опять «в молоко».</P>
+<P>«Наш барабанщик Emil Dragutinovich был подвергнут нападению, когда возвращался домой из бара», - уточняет подробности Morgan. «Было около 3 часов утра, и его рука сломана в двух местах. Это настоящая трагедия. Мы все были готовы сражаться, как танковая дивизия (Любопытно, что группа не доехала до нас, как раз после альбома “Panzer Division Marduk”, прим. авт.)… А тут. Но ничего, мы будем ждать и вернёмся и в Америку, и в Европу».</P>
+<P>Видимо, «танковая дивизия» это та разновидность Мардуков, которой заказан путь в Россию. Ну и правильно, нечего врагам делать в «сердце Родины» в дни празднования 60-летия победы. А если серьёзно, то Morgan обещал перепланировать тур на более поздний срок. Быть может, тогда кто-нибудь удосужится выпустить в России новый альбом группы “Plague Angel”. CD-Maximum или Irond.&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>Без комментариев.</P>
+<P>«Я считаю, 95 процентов black-metal сцены – настоящий мусор. Вот так, я на всё это гляжу. Это касается не только black-metal, но и death-metal. Мне нравятся всего несколько групп. Я люблю не только death, но и лучшее из black и классической музыки. Люди, которые по-настоящему живут ради музыки, вы должны это почувствовать. Меня спрашивают, как у меня хватает сил, делать всё это в течение 15 лет. Я сконцентрирован. Я знаю, что я хочу и отражаю это в музыке», - припечатывает Morgan.</P>
+Автор: Vit Belov
+
+### 12.05.2005 news Marduk  - &quot;Blackcrowned&quot; DVD
+
+<P>13 июня выходит новый DVD релиз от&nbsp;<STRONG>MARDUK</STRONG>&nbsp;- "<STRONG>Blackcrowned</STRONG>". В него войдет чуть больше часа редких видео записей и 2 бонус трека. Издание лимитировано тиражом 3000 экземпляров. Трэк-лист:</P>
+<P>Hamburg, Germany 1999:<BR>01. <STRONG>Panzer Division Marduk<BR></STRONG>02. <STRONG>Burn my Coffin</STRONG><BR>03. <STRONG>Baptism by Fire</STRONG><BR>04. <STRONG>The Sun Turns Black as Night</STRONG><BR>Norrkцping, Sweden 1993:<BR>05. <STRONG>Wolves<BR></STRONG>06. <STRONG>Holy Inquisition<BR></STRONG>Krokek, Sweden 1992:<BR>07. <STRONG>Still Fucking Dead</STRONG><BR>08. <STRONG>Within the Abyss</STRONG><BR>Hengelo, Holland 1997:<BR>09. <STRONG>Dark Endless<BR></STRONG>Heidenheim, Germany 1995:<BR>10. <STRONG>The Sun Has Failed</STRONG><BR>Lцssnitz, Germany 1999:<BR>11. <STRONG>Burn my Coffin<BR></STRONG>Bradford, United Kingdom 1996:<BR>12. <STRONG>Materialized in Stone</STRONG><BR>Dynamo Open Air, Holland 1999:<BR>13. <STRONG>The Black<BR></STRONG>San Fransisco, USA 2001:<BR>14. <STRONG>Azrael<BR></STRONG>15. <STRONG>Beyond the Grace of God<BR></STRONG>Essen, Germany 1999:<BR>16. <STRONG>Those of the Unlight<BR></STRONG>17. <STRONG>Sulphur Souls</STRONG><BR>Strassbourg, France 2001:<BR>18. <STRONG>Jesus Christ...Sodomized</STRONG> (bonus track)<BR>19. <STRONG>La Grande Danse Macabre</STRONG> (bonus track)</P>
+Автор: Bizarre
+
+### 21.07.2005 news MARDUK опять анонсировали шоу в России
+
+<P><STRONG>MARDUK</STRONG> вновь сообщили о готовящемся выступлении в России и Украине. На этот раз даты такие:</P>
+<P>8 октября - Киев</P>
+<P>9 октября - Москва, клуб Точка</P>
+<P>10 октября - Санкт-Петербург, клуб Порт</P>
+Автор: Vit Belov
+
+### 01.10.2005 news MARDUK в Москве
+
+<P>
+<CENTER>Spika Merchandising и Dark Affairs представляют концерт культовой шведской группы Marduk! 9 октября клуб «Точка» (Москва) и 10 октября клуб «Порт» (Санкт-Петербург)</CENTER>
+<P></P>
+<P>
+<CENTER><IMG height=282 alt="" hspace=0 src="/images/shows_rus/2005.10/9414.jpg" width=400 border=0></CENTER>
+<CENTER>Начало концерта- 19.00<BR>Билеты уже в продаже!<BR>Цена- 600руб.<BR>Телефон для справок- 76 77 037</CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 07.10.2005 news Концерт MARDUK перенесён
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальное заявление от <STRONG>Spika Merchandising</STRONG>, организатора концерта <STRONG>MARDUK</STRONG> в Москве: </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Концерт Marduk не состоится 9 октября. Мы вынуждены перенести шоу(дата уточняется). Концертное агенство Metallysee (Бельгия), которое является официальным агентом шведской группы Marduk, не выполнили целый ряд своих обязанностей, что привело к отмене концерта, запланированного на 9 октября. Точную дату, когда состоится концерт, сообщим в ближайшее время. Купленные билеты будут действительны. По всем вопросам звонить по тел.76 77 037 <BR>&nbsp;<BR>Компании SPIKA Merchandising и Dark Affairs приносят свои извинения всем поклонникам группы Marduk за неудобства, связанные с переносом концерта</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 26.10.2005 reviews Черный ангел чумы
+
+<P>Ну что ж, последний альбом легендарных блэк-метал-демонов еще раз показал всем сомневающимся, «кто в доме хозяин». Пятнадцать лет бессменного лидерства на черной сцене – за это имя шведской панцер-дивизии MARDUK давным-давно стало настоящим культом. За это время творческий багаж группы пополнился девятью полноформатными релизами, шестью ЕР, сборником лучших вещей, концертником и DVD. <BR>На “Plague Angel” группа представила все тот же скоростной и неистовый, но достаточно техничный satanic black metal с редкими, освежающими мид-темповыми партиями – при кажущейся монотонности и одинаковости материала никаким однообразием здесь и не пахнет. От количества ненависти и злобы в песнях у слабых духом уедет крыша, сильные же – станут еще сильнее. Агрессия, агрессия, и ничего, кроме агрессии. Брутальные бензопильные гитары, поддерживаемые пулеметными очередями ритм-секции, не дают отвлечься ни на мгновение, все время держа слушателя в напряжении, а жутковатое оформление с обилием скелетов и черепушек лишь усугубляет тлетворное влияние «Ангела Чумы». Кстати, смена фронтмена в коллективе, на мой обывательский и потребительский взгляд, прошла вполне удачно – на место Легиона пришел некто Мортуус «Ариох» из FUNERAL MIST, который, как оказалось, орет никак не хуже предыдущего вокалиста.<BR>Самые мощные и запоминающиеся зонги – “Perish In Flames” и “Everything Bleeds” (остальные, впрочем, не хуже, но эти – зацепили больше всего).</P>
+<P>Диск предоставлен CD-Maximum</P>
+Автор: Dr. Grandma
+
+### 24.01.2006 news MARDUK продолжают отменять концерты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MARDUK</STRONG> перенесли Европейский тур, который должен был пройти в марте, на май. Причиной стала работа над новым DVD.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Удивительно, как шведы планируют свою деятельность.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 08.02.2006 news Inferno Metal Festival Norway 2006
+
+<P>С 13-го по 15-е апреля в столице Норвегии Осло пройдет <B>Inferno Metal Festival</B>. Свое согласие на участие дали такие команды как <B>Usurper, Emperor, Cathedral, Marduk, Bolt Thrower, Dismember, Carpathian Forest</B> и <B>Witchcraft</B>. Практически все билеты по интернету уже раскуплены! Попытать всё же счастья, а заодно узнать побольше информации о фестивале можно на сайте <A href="http://www.infernofestival.net/"><U>http://www.infernofestival.net/</U></A></P>
+Автор: Ixtiandr
+
+### 06.03.2006 news DEICIDE выступят на фесте Nummirock
+
+<P>Сатанисты <B>DEICIDE</B> объявили об участии в 20-ом по счету фестивале <B>Nummirock</B>, который пройдет 23 и 24 июня в городке Нуммиярви, Финляндия. Также перед публикой выступят такие исполнители, как <B>HYPOCRISY</B>, <B>MARDUK</B>, <B>THE DUSKFALL</B>, <B>DIABLO</B>, <B>AMORPHIS</B>, и менее известные коллективы, окончательный список которых еще уточняется.</P>
+<P>Подробности ищите на сайте <A href="http://www.nummirock.fi/2006/">http://www.nummirock.fi/2006/</A></P>
+Автор: Ixtiandr
+
+### 13.04.2006 news MARDUK - DVD и новый альбом
+
+<P><STRONG>MARDUK </STRONG>заканчивают&nbsp; работу над <STRONG>DVD 'Blood Puke Salvation'</STRONG>, на котором вы сможете увидеть 1,5 часа концертного видео материала отснятого в&nbsp; <STRONG>Tilburg (Hol)</STRONG> и <STRONG>Antwerpen (Bel)</STRONG> в декабре 2004. Кроме этого на диске будут видео клипы <STRONG>'Throne Of Rats', 'Steel Inferno',&nbsp;&nbsp;'The Hangman Of Prague'</STRONG>, фотогалерея, бэкстейджи и интервью. DVD выйдет предположительно в конце мая. </P>
+<P>Кроме того&nbsp; <STRONG>Morgan Hеkansson</STRONG> (гитара) и <STRONG>Mortuus</STRONG> (вокал) работают над демо&nbsp;нового альбома. </P>
+Автор: Bizarre
+
+### 20.10.2006 news MARDUK снова  едут в Россию. Доедут ли?
+
+<P>Шведские блэкстеры <B>MARDUK</B> анонсировали несколько концертов в России, Беларуси и Украине в январе 2007 года. Названия городов, подробности&nbsp;и даты будут объявлены позже.<BR></P>
+Автор: Dimas
+
+### 01.11.2006 news Планы концертного агентства Flaming Arts
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Концертное агентство Flaming Arts сообщило о своих ближайших планах:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Сенсация!!! Легендарный американский DEICIDE на концертах в СНГ с 31.01 по 04.02.07! Кто еще совсем не давно мог бы подумать, что сможет увидеть легенду американского death-metal во главе с самим Гленом Бентоном на концертах в СНГ??? "DEICIDE - одна из моих любимых групп с того момента, когда я начал слушать по-настоящему тяжелую музыку, - говорит Вадим Хомич, шеф THE FLAMING ARTS - именно, поэтому нам настолько важны эти концерты. Я долгое время вел переговоры с музыкантами, и мы все же смогли договориться. Это огромное событие для меня". Кроме того, DEICIDE посетит Россию и Украину в звездном составе: Glen Benton - bass, vocal, Steve Asheim - drums, Jack Owen - guitars, Ralph Santolla - guitars.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Долгожданные концерты шведских black metal коммандос MARDUK. Их концерты отменялись в СНГ уже 3 раза, к сожалению, не по вине самих музыкантов. "Ну, когда же, наконец, к нам приедет MARDUK", - говорят многие. Именно по этому, это тур можно назвать одним из самых долгожданных. Для тех, кто не верит в их приезд, вот цитата с официального сайта группы: "MARDUK, наконец-то, нашли партнера в Восточной Европе, заслуживающего доверия - это THE FLAMING ARTS. В январе группа отправится на несколько избранных концертов в Россию, Украину, Беларусь. Ждите в скором времени даты концертов". Официальным саппортом на этих концертах будет английско-польская&nbsp; Avant-Garde Black/Death metal формация DEVILISH IMPRESSIONS. </EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>THE AGE OF MOVEMENT TOUR 2006<BR>RASTA НЕ ОТДЫХАЕТ!!!! Отыграв на крупнейших фестивалях Восточной Европы, таких как WOODSTOCK, BRUTAL ASSAULT и HUNTER FEST с мировыми метал монстрами, а также только что вернувшись из польского тура, который прошел более чем успешно, не успев толком отдохнуть, группа снова на трассе. На этот раз RASTA совершит полномасштабный беларусский тур, который охватит все областные города страны и продолжится 9-ю концертами в России. В первую очередь это сопряжено с переизданием альбома 2006 года "THE AGE OF MOVEMENT" в Беларуси, который, начиная с мая месяца разгребается с прилавков музыкальных магазинов дичайшими темпами! В тот же момент, российская часть тура связана с выходом альбома в России на MAZZAR RECORDS, где диск выйдет в коллекционном формате дигипак. Презентации в Москве и Питере отложены на более удобное время, о котором будет сообщено дополнительно. А пока жители других регионов смогут лицезреть группу у себя в городе. Кроме того, на саппорте у RASTA будет выступать не менее интересная группа из Польши THY DISEASE, альбомы которой доступны на CD-MAXIMUM.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>THE AGE OF MOVEMENT TOUR 2006<BR>RASTA + THY DISEASE<BR>09.11.06 - Брест "Zio Pepe" + Deathbringer<BR>10.11.06 - Гродно "StopLine" + Deathbringer<BR>11.11.06 - Могилев "ГЦК" + Deathbringer<BR>12.11.06 - Витебск "Бригантина"+ Deathbringer<BR>13.11.06 - Минск "WestWorldClub" + Deathbringer<BR>14.11.06 - Гомель "ГЦК" + Deathbringer<BR>15.11.06 - Иваново "Таганка" + Murk Exorbitance<BR>16.11.06 - Самара "Рок-Подвал" + Dimension Of Doomed<BR>18.11.06 - Екатеринбург "Стрела" + SUPPORT<BR>19.11.06 - Тольятти "Генератор" + SUPPORT <BR>20.11.06 - Нижний-Новгород "5 элемент" + SUPPORT <BR>21.11.06 - Тула "к-тр Родина"+ SUPPORT<BR>23.11.06 - Ростов-на-Дону "Подземка" + SUPPORT<BR>24.11.06 - Воронеж "100 ручьев" + SUPPORT<BR>26.11.06 - Ярославль "Партизан" + SUPPORT</EM>"</FONT></P>
+Автор: Vit Belov
+
+### 08.11.2006 news Барабанщик покинул MARDUK
+
+<P>Барабанщик <STRONG>Emil Dragutinovic </STRONG>покинул <STRONG>MARDUK</STRONG>. Найдут ли <STRONG>MARDUK</STRONG> нового музыканта, чтобы доехать до нас?</P>
+Автор: Vit Belov
+
+### 05.01.2007 news MARDUK записали новый альбом
+
+<P><STRONG>MARDUK</STRONG> закончили основную студийную сессию нового альбома. В начале январе группа ещё раз посетит студию. Никаких названий пока не сообщается. Зато сообщается, что группа отправляется в начале феврале в турне по Мексике. Таким образом, нам опять не повезло. Был отменён только тур по Росси, Украине и Беларуси. </P>
+Автор: Vit Belov
+
+### 08.01.2007 news Тур MARDUK перенесен
+
+<P>Анонсируемый ранее тур шведских black metal командос<STRONG> MARDUK</STRONG> перенесен на весну в связи с поисками нового барабанщика. Это не очередная отмена их концертов в СНГ, как могут многие подумать. Посовещавшись между собой, лидер группы <STRONG>MORGAN</STRONG> и шеф <STRONG>THE FLAMING ARTS Вадим Хомич</STRONG> решили не рисковать и не подводить еще раз фэнов, и, следовательно, перенесли тур на раннюю весну, когда состав будет укомплектован. <STRONG>MARDUK</STRONG> пока пробуют новых барабанщиков, и первое (????, прим. авт.), что группа сделает в новом составе, отправится в Восточно-Европейское турне под крылом<STRONG> THE FLAMING ARTS</STRONG>. Еще одной хорошей новостью является то, что вместо заявленных пяти концертов,<STRONG> MARDUK</STRONG> в обойме с <STRONG>DEVILISH IMPRESSIONS</STRONG> сыграют полномасштабный тур. Следите за рекламой.</P>
+Автор: Vit Belov
+
+### 31.01.2007 news MARDUK в апреле?
+
+<P>Шведский <STRONG>MARDUK</STRONG> начал работу уже с новым барабанщиком, и сразу же группа совместно с <STRONG>THE FLAMING ARTS</STRONG> установили новые даты тура по СНГ. Группа, наконец-то, отправится на концерты в России, Украине и, возможно, Беларуси с 4ого по 9ое апреля 2007 года. Будем надеется, что группа все-таки доедет до нас в этот раз, т.к. музыканты и сами проявляют необычайно огромный интерес к этим концертам.</P>
+Автор: Vit Belov
+
+### 02.02.2007 news MARDUK назвали альбом
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2007.02/11251.jpg" width=300 align=right border=5>Новый альбом <STRONG>MARDUK</STRONG> будет называться "<STRONG>ROM 5:12</STRONG>". Подробности последуют.</P>
+Автор: Vit Belov
+
+### 05.02.2007 news Стал известен трек-лист нового MARDUK
+
+<P>Шведские блэкстеры <B>MARDUK</B>&nbsp;опубликовали трек-лист своего нового альбома под названием&nbsp;<B>"Rom 5:12"</B>, который выйдет весной 2007 года. Альбом был записан в&nbsp; студии <B>Endarker</B> с помощью гостевых музыкантов из <B>ARDITI</B> (проект <B>H. Moller</B>&nbsp;из <B>PUISSANCE</B>&nbsp;и <B>M. Bjorkman</B>), а также ударника <B>Joakim Gothberg</B> (он барабанил на первых двух релизах <B>MARDUK</B>) на композиции <STRONG>"Cold Mouth Prayer" </STRONG>и <STRONG>Alan "Nemtheanga" Averill</STRONG> из <B>PRIMORDIAL</B> в композиции <B>"Accuser/Opposer"</B>. В альбом вошли следующие вещи:<BR><BR>1. <B>The Levelling Dust</B><BR>2. <B>Cold Mouth Prayer</B><BR>3. <B>Imago Mortis</B><BR>4. <B>Through The Belly Of Damnation</B><BR>5. <B>1651</B><BR>6. <B>Limbs Of Worship</B><BR>7. <B>Accuser/Opposer</B><BR>8. <B>Vanity Of Vanities</B><BR>9. <B>Womb Of Perishableness</B><BR>10. <B>Voices From Avignon</B><BR></P>
+Автор: Dimas
+
+### 06.03.2007 news MARDUK объявили даты
+
+<P><STRONG>MARDUK</STRONG> объявили даты своего "предполагаемого" тура по России, Беларуси и Украине. С 4 по 14 апреля группа выступит в Минске, Киеве, Санкт-Петербурге, Краснодаре, Ростове-На-Дону, Рязани и Москве. Интересно, что концерт в Москве планируется на 14 апреле в клубе "Точка", где уже заявлен концерт <STRONG>BELPHEGOR</STRONG> и <STRONG>DARK FUNERAL</STRONG>. Нас ждёт глобальный black-metal фест?</P>
+Автор: Vit Belov
+
+### 13.03.2007 articles MARDUK в Москве (пресс-релиз)
+
+<P><STRONG>Musickness Russia/The Flaming Arts</STRONG> совместно с <STRONG>Dark Affairs</STRONG> представляет:<BR>&nbsp;<BR><STRONG>MARDUK<BR>Devilish Impressions</STRONG> (Польша)<BR>&nbsp;<BR>&nbsp;<BR>12 апреля-Москва- клуб Релакс<BR>13 апреля- Рязань-клуб Планетарий<BR>&nbsp;<BR>&nbsp;Начало концертов в 19.00<BR>&nbsp;<BR>&nbsp;Легендарный шведский черный дивизион в особом представлении не нуждается. Группа образованная почти 17 лет назад, уверенно занимает верхние строчки в перечне родоначальников блек-металла. Плодотворности шведов можно только позавидовать, 10 лонгплеев&nbsp; и куча всевозможных концертников, сборников и синглов. Первый же релиз группы «<STRONG>Fuck Me Jesus</STRONG>» приобрел весьма скандальную славу благодаря шокирующей обложке, а футболки с этим изображением до сих пор пользуются стабильным спросом! Альбом «<STRONG>Heaven Shall Burn... When We Are Gathered</STRONG>» 1996 года стал эталоном сверхскорости и техничности в блек-металле. В разное время группа сотрудничала с такими монстрами тяжелой музыкальной индустрии как Дэн Свано и Питер Тагтгрен, а первые релизы группы выходили на культовом французском, тогда еще, «чернушном» лейбле Osmose. Отыграв бесчисленное количество концертов по всему миру, <STRONG>MARDUK</STRONG> доказали, что вживую звучат ничуть не хуже, обрушивая на зрителей настоящий шквал агрессии, злобы и ненависти. <BR>&nbsp;И вот, после многочисленных&nbsp; неудачных попыток привоза легендарных шведов в Россию, <STRONG>Musickness Russia/The Flaming Arts</STRONG> совместно с <STRONG>Dark Affairs</STRONG>, представляют уникальную возможность попасть в самое сердце Ада и увидеть собственными глазами старейшую шведскую блек-металл банду -&nbsp; <STRONG>MARDUK</STRONG>.<BR>&nbsp;В концертах тура принимают участие польский саппорт <STRONG>Devilish Impressions</STRONG>, авангардный блек-дет метал , в составе группы&nbsp; значится барабанщик S. Winter (AETERNUS, ELD, ex-FORLORN).<BR>&nbsp;На концертах будет организованна обширная продажа мерчендайзинга&nbsp; (фирменного и лицензионного) и компакт-дисков.<BR>&nbsp;Специально по многочисленным просьбам будет организованна автограф-сессия группы <STRONG>MARDUK</STRONG>. Она состоится 9 апреля в рок-магазине «У Романа Дрозда» на Кузнецком мосту. О времени будет сообщено дополнительно!<BR><BR>Также специальными гостями выступит группа <STRONG>НЕВИДЬ</STRONG>! </P>
+Автор: Dimas
+
+### 14.03.2007 news Тур MARDUK
+
+<P>После смены драммера шведские black-metal коммандос MARDUK совместно cо своим Восточно-Европейским партнером в лице THE FLAMING ARTS подтвердили даты долгожданного тура по СНГ. Саппортом шведов в данном туре будут ранее аннонсированные avantgarde symphonic black/death metal DEVILISH IMPRESSIONS (Великобритания/Польша).</P>
+<P>MARDUK + DEVILISH IMPRESSIONS tour<BR>04.04.07 - Минск "Арена"<BR>05.04.07 - Киев "ДК Святошин"<BR>08.04.07 - Санкт-Петербург "Орландина"<BR>10.04.07 - Краснодар "Орбита"<BR>11.04.07 - Ростов-на-Дону "Подземка"<BR>12.04.07 - Москва "Релакс"<BR>13.04.07 - Рязань "Планетарий"</P>
+Автор: Vit Belov
+
+### 08.04.2007 news MARDUK в Москве
+
+<CENTER><IMG height=323 src="/images/shows_rus/2007.04/11437.jpg" width=450 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+Автор: Dimas
+
+### 24.10.2007 reviews Вот тебе, бабушка, и MARDUK
+
+<P>Никогда бы не подумал, что такая ортодоксальная группа, как MARDUK, может чем-то удивить своего слушателя. От альбома к альбому шведы совершенствовали качество записи, наращивая с помощью улучшающегося звука свою брутальность, а с ней и death-metal составляющую. И вот на новейшей пластинке, которая, как показалось, вышла слишком быстро, MARDUK убивают своих фэнов наповал.</P>
+<P>Пару недель назад на горбушке к нам подошёл человек и попросил посоветовать чего-нибудь нового из black-metal. При этом в руке он уже держал новый альбом MAYHEM. Нам ничего не оставалось, как предложить товарищу MARDUK, на наше предложение слушатель блэка ответил презрительной гримасой: «Что они играть наконец-то научились?» Безусловно, в подобном стиле выразиться мог только дилетант. Быстрая техничная музыка, проповедуемая Мардуками на протяжении последнего этапа их карьеры, требует высоких навыков владения инструментами. Но дело даже не в этом. При характеристике этого альбома хочется сказать парадоксальную вещь, музыка MARDUK стала более «блэковая» и более техничная. Среднетемповые атмосферные эпики с ярко выраженным агрессивным настроением. Такого от шведов не ожидал никто. Нынешнюю музыку коллектива можно смело сравнивать с классикой от viking-black-metal банд прошлого десятилетия. Например, с BATHORY или нынешними MOONSORROW. Только атмосфера здесь не «мрачно северная», а «мрачно средневековая». Подчеркивается она разнообразными вставками, типа церковных песнопений или чтения на латыни.</P>
+<P>Хотелось порубиться под качественнейший black-death-metal. Не получилось. Но особого разочарования я не испытал. MARDUK открылись с новой оригинальной и очень интересной стороны. Альбомов в подобном жанре я что-то сходу и не припомню, поэтому советую попробовать на вкус всем гурманам.</P>
+Автор: Vit Belov
+
+### 03.11.2007 reviews Ретушь Мардуку не к лицу
+
+<P>Новый DVD от MARDUK вышел у нас на лицензии позже, чем последний альбом “Rom 5:12”. Неожиданная студийная работа группы не имеет никакого отношения к материалу, представленному на двух DVD.</P>
+<P>Продолжая традицию просмотра концертов дома, а не в наших заштатных клубах, я попытался возместить себе пропуск шоу MARDUK в клубе «Релакс». Вообще-то, у шведов уже выходила видео-пластинка, на ней был запечатлён концерт в Польше, отснятый командой Metal Mind, известной выпуском работ от ROTTING CHRIST, ENSLAVED, KRISIUN и многих других. Новый двойной DVD, по моему мнению, был призван более полно осветить творчество группы. Уже с самого начала знакомства с коробкой и трэк-листом у меня возник вопрос, зачем смотреть один и тот же концерт трижды? Ведь, именно, три раза MARDUK запечатлели песни своего тура в поддержку альбома “Plague Angel”.</P>
+<P>Здесь хочется развить одну тему, которая заботит многих любителей видео-музыки. Вернее, хочется развеять один миф. Мол, исполнители, выпуская двойные DVD, хотят навариться на незадачливом металхэде. Это не так. На Западе стоимость издания не так сильно зависит от количества носителей в комплекте. Упаковки с двумя, а то и тремя дисками идут нарасхват, так как бонусные диски стоят смешных денег. У нас же за каждый дополнительный диск придётся заплатить практически полную стоимость, и цена разнится почти вдвое. Вот и получается, что их «подарки» обходятся нашим коллекционерам достаточно дорого. В данном случае на второй диск MARDUK попал ещё и компиляция из концертных выступлений в разных европейских городах с теми же песнями, что и на первом диске, два видеоклипа, интервью и смешные «съёмки за сценой», отснятые любительской камерой на кладбище в сумерки. Эдакий любительский фильм ужасов с картинками из древних рукописей, изображавших судный день. Забегая вперёд, скажу, что этот пятиминутный отрывок произвёл на меня самое сильное впечатление. В общем-то, два видеоклипа и «за сценой» с интервью можно было бы смело отправить на первый диск и не тратиться на производство второй «болванки».</P>
+<P>На первом диске у нас два концерта в Тилбурге и Антверпене. Один повторяет другой в несколько урезанном варианте. Основным считается шоу в Тилбурге, которое вы, вероятно, и посмотрите. Проходил этот концерт в достаточно большом зале, по размеру схожим с нашим ДК им. Горбунова, большая сцена, большое количество народу. В качестве эффектов можно выделить задник в виде обложки “Plague Angel” и инсталляции с военными съёмками перед песнями с альбома “Panzer Division Marduk”. Также отметим титры с названиями песен, которые появляются перед началом трэков. Это, конечно же, не главное, и пенять на скромность шоу мы не станем. Главное, было послушать сырого первозданного блэку. Опять не получилось. MARDUK с этим разочаровывает постоянно. Если на новом альбоме разочарование было приятным, то здесь не приятным. Слушая звуковую дорожку этих концертов, мы понимаем, что black-metal произошёл от трэша и хард-рока. Одна гитара Моргана прописана так чисто, что тошно становится. Хочется попрыгать, потанцевать. Ритм секция убрана на задворки и то же не производит никакого впечатления. Такой звук эпохи мобильного телефона. Получается мелодичный трэшак вперемежку с панком и грубый вокал певца, который тоже выглядит как-то затрапезно. Маленький коротконогий, совсем не страшный. На втором диске он даёт интервью, сидя на могильной плите, это характеризует его в полной мере. Кстати, звук на концертах со второго диска не настолько вылизан. Там мы слышим некоторые помехи из динамиков, которые добавляют музыке «блэка». Но это, естественно, происходит не благодаря, а вопреки.</P>
+<P>Наверное в Релаксе, славном своим «чистым» звучанием MARDUK и выглядели настоящими true, но, получив немного денег, они раскрылись по полной программе. Заретушировали свой звук настолько, что нам оставалось только недоумевать.</P>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 18.04.2009 news MARDUK войдут в студию
+
+<P><STRONG>MARDUK </STRONG>войдут в студию в мае для записи новой пластинки, которая выйдет на<STRONG> Regain</STRONG> в сентябре.</P>
+Автор: Vit Belov
+
+### 26.06.2009 news MARDUK назвали альбом
+
+<P>Новый альбом <STRONG>MARDUK</STRONG> <STRONG>"Wormwood" </STRONG>выйдет до конца года на<STRONG> Regain Records</STRONG>. Альбом записывается в студии <STRONG>Endarker Studios</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.07.2009 news Обложка MARDUK
+
+<P>Новый альбом <STRONG>MARDUK "Wormwood</STRONG>" выйдет до конца года на <STRONG>Regain Records</STRONG>. Нам предъявили обложку этой пластинки.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.07/14599.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 24.07.2009 news Трэк-лист нового MARDUK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что новый альбом <STRONG>MARDUK "Wormwood"</STRONG> выходит в сентябре на <STRONG>Regain Records</STRONG>. Стал известен трэк-лист этой работы:</FONT></P>
+<P>01. <B>Nowhere, No-One, Nothing</B><BR>02. <B>Funeral Dawn</B><BR>03. <B>This Fleshly Void</B><BR>04. <B>Unclosing The Curse</B><BR>05. <B>Into Utter Madness</B><BR>06. <B>Phosphorous Redeemer</B><BR>07. <B>To Redirect Perdition</B><BR>08. <B>Whorecrown</B><BR>09. <B>Chorus Of Cracking Necks</B><BR>10. <B>As A Garment</B></P>
+Автор: Vit Belov
+
+### 28.08.2009 news Новая песня MARDUK
+
+<P>Новую песню <STRONG>MARDUK</STRONG> <STRONG>"Phosphorous Redeemer" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/truemarduk">http://www.myspace.com/truemarduk</A></P>
+Автор: Vit Belov
+
+### 22.10.2009 news MARDUK продали мало
+
+<P><STRONG>MARDUK </STRONG>подтвердили свой UG-статус в США. Продано 650 экземпляров нового альбома "<STRONG>Wormwood</STRONG>" в первую неделю.</P>
+Автор: Vit Belov
+
+### 14.03.2010 reviews MARDUK не удивили, в этот раз
+
+<P>В рецензии на новый альбом MARDUK “Wormwood” невозможно не вспомнить предыдущую работу этих шведских black-metal ветеранов “Rom 5:12”, на которой они открылись с новой стороны. Медленный, атмосферный, но предельно злобный и мизантропичный материал поражал этим необычным сочетанием не меньше, чем неожиданное перевоплощение MARDUK.</P>
+<P>От новой пластинки мы ждали не меньшего. К сожалению, подобным ожиданиям не часто удаётся оправдываться. Ведь сюрприз от MARDUK, как я уже отметил, был вызван не столько очень хорошей музыкой, но и неожиданным звучанием. Два раза удивить звучанием очень сложно, да MARDUK и не пытались. Безусловно, в этот раз мы имеем более традиционный альбом для black-metal, за исключением парочки очень оригинальных трэков. В самом начале MARDUK чередуют насилующие уши антимузыкальные мизантропичные трэки и атмосферные медленные зарисовки с элементами industrial и различными посторонними звуками, по типу церковных колоколов. Эти неортодоксальные трэки привлекают внимание, но, к сожалению, основной black-metal материал мне не показался. В нём хватает напора, но не хватает плодотворной идеи. Идея у этой музыки, можно сказать, стандартная, вывести слушателя из равновесия, неподготовленного слушателя. Изобразить ему Армагеддон музыкально, не размениваясь на всякие сложности и заморочки. Это MARDUK удаётся, но подобных альбомов сейчас на рынке достаточно.</P>
+<P>Злой black-metal альбом группы, от которой с недавних пор мы ожидаем много большего. “Wormwood” предлагает стандартный набор black-metal штучек, в которых антиклерикальное содержание стоит много выше музыкальных форм.</P>
+Автор: Vit Belov
+
+### 01.01.2012 news MARDUK в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В своём новогоднем обращении <STRONG>MARDUK</STRONG> сообщили, что находятся в студии, где работают над новым альбомом. Музыканты планируют выпустить полноформатную работу весной наступившего года на <STRONG>Century Media</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=272 src="/images/news_rus/2012.01/22428.jpg" width=363 border=0></FONT></P>
+Автор: Vit Belov
+
+### 08.02.2012 news MARDUK назвали альбом
+
+<P>Двеннадцатый альбом <STRONG>MARDUK</STRONG> получил название "<STRONG>Serpent Sermon</STRONG>". Пластинка выйдет в конце весны на собственном лэйбле группы <STRONG>Blooddawn Productions</STRONG> с дистрибуцией на<STRONG> Century Media</STRONG>.</P>
+<P>Подробности последуют.</P>
+<P><center><IMG height=193 src="/images/news_rus/2012.02/23000.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 27.03.2012 news Новая песня MARDUK
+
+<P>Новый трек <STRONG>MARDUK "M.A.M.M.O.N."</STRONG> можно послушать ниже. Песня войдёт в новый альбом шведского коллектива "<STRONG>Serpent Sermon</STRONG>", который выйдет на<STRONG> Century Media</STRONG> в конце мая. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="70">Serpent Sermon</B><BR itxtNodeId="69">02. <B itxtHarvested="0" itxtNodeId="68">Messianic Pestilence</B><BR itxtNodeId="67">03. <B itxtHarvested="0" itxtNodeId="66">Souls For Belial</B><BR itxtNodeId="65">04. <B itxtHarvested="0" itxtNodeId="64">Into Second Death</B><BR itxtNodeId="63">05. <B itxtHarvested="0" itxtNodeId="62">Temple Of Decay</B><BR itxtNodeId="61">06. <B itxtHarvested="0" itxtNodeId="60">Damnation's Gold</B><BR itxtNodeId="59">07. <B itxtHarvested="0" itxtNodeId="58">Hail Mary (Piss-Soaked Genuflexion)</B><BR itxtNodeId="57">08. <B itxtHarvested="0" itxtNodeId="56">M.A.M.M.O.N.</B><BR itxtNodeId="55">09. <B itxtHarvested="0" itxtNodeId="54">Gospel Of The Worm</B><BR itxtNodeId="53">10. <B itxtHarvested="0" itxtNodeId="52">World Of Blades</B></P>
+<P><center><embed allowscriptaccess="always" height="81" src="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F40995972%3Fsecret_token%3Ds-ef5z7&secret_url=true" type="application/x-shockwave-flash" width="60%"></embed></P>
+Автор: Vit Belov
+
+### 11.05.2012 news Новое видео MARDUK
+
+<P>Новый клип <STRONG>MARDUK</STRONG> на песню "<STRONG>Souls For Belial</STRONG>" можно увидеть ниже. Трек взят с новейшей работы «чернушных» шведов "<STRONG>Serpent Sermon</STRONG>", который выйдет в начале лета на <STRONG>Century Media</STRONG>. Режиссёром ролика выступил <STRONG>Hakan Sjodin</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/EUWOqr_AJvI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 17.05.2012 news MARDUK запретили в Минске
+
+<P>Концерт шведов <B>MARDUK</B>, который должен был состоятся в Минске 22 мая, отменён генеральной прокуратурой республики Беларусь. Начальник управления по надзору за исполнением законодательства и законных правовых актов Генеральной прокуратуры Белоруссии <B>Павел Родионов </B>сообщил, что группа «проповедует сатанизм и явное пренебрежение христианскими ценностями», не имеет никакого отношения к искусству и проповедует идеи Третьего Рейха.</P>
+<P>Представитель прокуратуры отметил, что<B> KATAKLYSM</B> и<B> VADER</B>, которые едус в связке с <B>MARDUK</B>, могут выступить, но за их поведением будут следить и в любой момент могут остановить концерт.</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.05/23947.jpg" width=400 height=284></P>
+Автор: Vit Belov
+
+### 24.01.2015 news Новый клип MARDUK
+
+<P>Новый ролик<STRONG> MARDUK</STRONG> на заглавную композицию с нового альбома "<STRONG>Frontschwein</STRONG>" можно посмотреть ниже. </P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/0yPOqlrCl1I" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### MARDUK -- конец эпохи трушности?..

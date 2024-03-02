@@ -28,6 +28,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.01.2017 news Первый сингл NIGHTBRINGER с нового альбома
+
+<p>Новый альбом американской black metal команды<strong> NIGHTBRINGER "Terra Damnata"</strong> выйдет 14 апреля на<strong> Season of Mist</strong>. Первым синглом с этой работы стала песня <strong>"Serpent Sun"</strong>, которую можно послушать ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ZaalrhlvPAE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

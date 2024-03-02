@@ -42,6 +42,21 @@ Thomas MacLaut (Drechleier), Benedikt Holker (E-Geige)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.04.2002 reviews Обнажённый фолк.
+
+<p>Этот альбом вряд ли имеет отношение к тяжёлой музыке. Но написать об этой пластинке всё-таки надо... Скажу сразу и из фолклорной музыки это не лучший вариант. Естественно использованы почти те же мелодии, что и, скажем, у In Extremo. Фолк всё-таки. Звучит правда это намного слабее, чем у знаменитых немцев. Поёт девушка без голоса, гитару включают раз в три минуты, при чём не особо задумываясь, как её записывать. Ничем не прикрытый фолк, вдобавок ещё плохо исполненный. Есть наверное несколько песен, которые мы ещё не слышали, поэтому, пожалуй, посоветую тем, кто собирает коллекцию немецкого фолклора (правда, первую песню я слышал у норвежской группы Storm). Странно только, зачем это выпустил Irond, по-моему это даже не нужно немецким крестьянам.</p>
+
+Автор: Vit Belov
+
+### 17.04.2002 reviews Naked folk.
+
+<p>This album hardly relates to heavy music. But to write about this CD, it is necessary... I shall tell at once and from folk music it is not the best variant. The almost same melodies, as,say, at In Extremo are naturally used. Folk all the same. The truth it sounds, than at famous Germans much more poorly. The girl without voice sings, a guitar include of time in three minutes, at what not especially reflecting, as it to write down. By nothing covered folk, in addition badly executed. There are probably some songs, which we did not hear yet, therefore, perhaps, I shall advise the one who collects a collection of German folk (truth, the first song I heard from Norwegian band Storm). Strange only, what for it has released by Irond, in my opinion it is even not necessary for the German peasants.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

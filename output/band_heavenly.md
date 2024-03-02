@@ -76,6 +76,108 @@ Million ways
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2000 reviews Keeper Of The Seven Keys: Part III
+
+<p>Keeper Of The Seven Keys: Part III. Именно так и следовало бы музыкантам назвать этот альбом. Меня просто прошибла ностальгия по тем временам при прослушивании этого опуса. Дух Helloween тех времен витает вокруг, когда слушаешь Heavenly. Ну, этому наверняка способствовало то, что новая надежда известного лэйбла Noise записывала этот альбом в той же студии,где записывались в 1987-1988 годах сами Helloween. Продюсером и звукорежиссером выступил Pit Sielck (Iron Savior). Также на альбоме замечено участие Kai Hansen'a. В одной из композиций он исполнил вокальные партии и сыграл соло. Потрясающий мелодичный и очень интересный speed-power metal. Очень много хоровых распевок и полное отсутствие клавиш не портят альбом, а наоборот, являются его положительными сторонами.Сочные гитарные риффы, бодрая и заводная музыка, высокий пронзительный вокал придают альбому еще больший шарм. "Coming From The Sky" - бесценнейший подарок любителям Helloween (до ухода из него Hansen'a).</p>
+
+Автор: Dimas
+
+### 06.07.2000 reviews Keeper Of The Seven Keys: Part III
+
+<p>Keeper Of The Seven Keys: Part III. And it be necessary to the musicians to call this album. Me the nostalgia on those times is simple to come at listening it opus. To spirit Helloween of those times around, when listen Heavenly. Well, this for certain was promoted by that the new hope of a known label Noise recorded this album in the same studio, where entered the name in 1987-1988 years Helloween. By the producer and sound assistant has acted Pit Sielck (Iron Savior). Also on an album the participation Kai Hansen is remarked. In one of compositions he has executed vocal crews and has played solo. Startling melodious and very interesting speed-power metal. It is a lot of choral voices and full absence of keys do not spoil an album, and to the contrary, are its positive parties. Juicy guitar rhythmes, vigorous and cool music, high shrill voice give to an album even greater sharm. " Coming From The Sky " - most invaluable gift to the fans Helloween (before drift from it Hansen).</p>
+
+Автор: Dimas
+
+### 20.03.2001 news Небесные новости...
+
+<p>У HEAVENLY - изменения состава. Гитарист Chris Savourey ушел. Его замена - Фредерик Леклерк до этого игравший на клавишах в STRATOVARIUS. Из хороших новостей - команда записывает новый альбом. Партии барабанов уже записаны в датской Jailhouse Studio с Томми Хансеном, а басс записан в Париже в собственной студии, где и будет доделываться все остальное. Всего будет 10 песен: 'Sign Of The Winner', 'Condamned To Die', 'Destiny', 'Still Believe', 'The Sandman', 'The World Will Be Better', 'The Angel' и 'Words Of Change'. Диск выйдет в Сентябре через Noise.</p>
+
+Автор: Yermola
+
+### 20.03.2001 news HEAVENLY Line-Up Change!
+
+<p>HEAVENLY guitarist Chris Savourey has quit the band. His replacement is FrИdИric Leclercq, who played keyboards on the tour with STRATOVARIUS. The band have begun recording their new album. The drum parts were recorded in Denmark, at the Jailhouse Studio, with Tommy Hansen and the bass parts were recorded in Paris, in the band's studio, where the rest of the album will be recorded. The mix will be done by Tommy Hansen in Denmark. The album will feature 10 songs. Titles include: 'Sign Of The Winner', 'Condamned To Die', 'Destiny', 'Still Believe', 'The Sandman', 'The World Will Be Better', 'The Angel' and 'Words Of Change'. The album will be released through Noise in the beginning of September.</p>
+
+Автор: Yermola
+
+### 17.06.2001 news Небесный Знак победителя
+
+<p> Французы HEAVENLY определились с датой выхода своего нового альбома Sign of Winner – 3 сентября 2001 года. На альбоме будет 10 композиций. Работа над альбомом велась на датской Jailhouse Studio под чутким руководством легендарного Tommy Hansen (который работал с группой и на их дебюте "Coming From The Sky"). На альбоме можно будет услышать специального гостя – это гитарист Alex Beyrodt (Silent Force). Над обложкой потрудился Herve Monjeaud, известный своими трудами для французского фан-клуба IRON MAIDEN, а также работой над новым ЦД ВИА под управлением Кая Хансена GAMMA RAY "New World Order".</p>
+
+Автор: Helloween
+
+### 24.10.2001 reviews Победа французкого пауэр-метала!
+
+<p>Новая работа французких пауэр-металлистов получилась гораздо сильнее и интереснее предыдущей. Несомненно, группа достигла более высокого уровня! Классический пауэр-метал, сочетающий в себе все достоинства стиля, безусловно порадует поклонников подобной музыки. Альбом спродюссирован Томми Хансеном, а это практически гарантия хорошего результата. На диске очень грамонично сочетаются жесткие хэви-пауэр риффы и симфонические элементы. В музыке много клавишных, но они не забивабт гитары, как у многих итальянских групп. У Heavenly очень интересное построение песен - куплеты часто напоминают Gamma Ray, в то время как припевы напоминают Rhapsody. Вообще, надо заметить французы очень неравнодушны к творчеству Gamma Ray 95-97 годов, что явно выражается на Sign Of The Winner. Но в принципе, откровенного плагиата нет, все в допустимых пропорциях. Сейчас много пауэр металлических групп, и Heavenly выделяется на общем фоне в лучшую сторону. 10 песен оптимистичного пауэра многим придуться по вкусу - откровенно провальных вещей на этом альбоме нет. Вообще, Sign Of The Winner - сильная работа, тем более для французкой группы!</p>
+
+Автор: Vic Thor
+
+### 02.04.2002 news HEAVENLY Continue Work On New CD
+
+<p>France's HEAVENLY are hard at work on the material for their third full-length album, which may or may not include a re-working of a song called "Miracle" from the group's first demo tape. Described as “more heavy metal and more symphonic” than the group's previous efforts, the as-yet-untitled album will reportedly be a conceptual record and will be recorded in late spring for a late 2002 release.</p>
+<P> In other news, HEAVENLY were recently voted “Best French Band” of 2001 by the readers of two French metal magazines—Hard Rock and Rock Hard.</>
+
+Автор: Dimas
+
+### 02.04.2002 news HEAVENLY продолжают работу над новым альбомом
+
+<p>Французская группа HEAVENLY начала кропотливую работу над своим третьим полнометражным альбомом. Обещается более тяжелый и более симфоничный, чем ранее, материал. Альбом пока не имеет названия, скорее всего, это будет концептуальная работа. В альбом может быть войдет культовая песня "Miracle" с первой демо-записи группы.</p>
+<P> Кстати, группа HEAVENLY признана лучшей французской группой 2001 года по итогам опроса читателей двух французских изданий Hard Rock и Rock Hard.</>
+
+Автор: Dimas
+
+### 08.10.2003 news HEAVENLY выпустят новый альбом в январе
+
+Новый альбом <B>HEAVENLY</B> будет называться <B>'Dust To Dust'</B> и выйдет 12 января на <B>NOISE RECORDS</B>. В настоящее время материал микшируется <B>Sascha Paeth</B>. Трэк-лист:<BR><B>Chapter I<BR>01. Ashes To Ashes... <BR>02. Evil<BR>03. Lust For Life<BR>04. Victory (Creatures Of The Night)<BR>Chapter II<BR>05. Illusion Part I<BR>06. Illusion Part II (the call of the wild)<BR>07. The Ritual<BR>08. Keepers Of The Earth<BR>09. Miracle<BR>Chapter III<BR>10. Fight For Deliverance<BR>11. Hands Of Darkness<BR>12. Kingdom Come<BR>13. ...Dust To Dust<BR></B>На японскую версию войдёт песня '...<B>Dust to Dust'</B>, исполненная на японском языке.
+Автор: Vit Belov
+
+### 05.04.2004 reviews Передовики power-metal Франции
+
+<DIV><I>Французы из power-metal коллектива <B>HEAVENLY</B> с самого начала своей карьеры обласканы прессой.</I> </DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Великолепный контракт с флагманом металл сообщества <B>NOISE Records</B> пошёл на пользу группе. Наличие в той же конюшне <B>GAMMA RAY</B>, например, помогло им залучить на свой первый альбом <B>Kai Hansen</B>. Отличная реклама в прессе и вот уже третий альбом штурмует чарты.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Только не подумайте, что этот успех незаслужен. <B>HEAVENLY</B> продолжают сочетать в себе элементы, как sympho-power в духе <B>RHAPSODY</B>, так и классического немецкого power-metal. Особенно, хочется сравнить группу с <B>GAMMA RAY</B>, любой сможет провести эти&nbsp;параллели. Отмечу вокалиста <B>Ben Sotto</B>, который мог бы работать пародистом. Он запросто повторяет интонации <B>Kai Hansen</B>, а на песне '<B>Victory</B>' его вокал чертовски смахивает на пение другого популярного исполнителя, <B>Andre Matos</B>.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Хороший power-metal альбом, которые рекомендуется к обязательному приобретению... Ну, в общем, Вы поняли.</DIV>
+Автор: Vit Belov
+
+### 03.05.2004 news HEAVENLY потеряли более половины состава
+
+<P>Из <B>HEAVENLY</B> ушли&nbsp;гитарист <B>Frederic Leclercq</B>,&nbsp;басист <B>Pierre-Emmanuel Pelisson</B>&nbsp;и барабанщик&nbsp;<B>Maxence Pilo</B>. В группе остались лишь&nbsp;вокалист <B>Benjamin Sotto</B>&nbsp;и гитарист&nbsp;<B>Charley Corbiaux. </B>Музыканты просто не сошлись в музыкальных предпочтениях. Изгнанные музыканты ищут вокалиста для своей новой группы.</P>
+Автор: Vit Belov
+
+### 04.09.2006 news HEAVENLY запускают новый вирус
+
+<P>Французская power metal формация&nbsp;<B>HEAVENLY</B>&nbsp;подготовила к выпуску свой четвертый&nbsp;полнометражник&nbsp;под названием&nbsp;<B>"Virus"</B>, выход которого ожидается 21 сентября в Японии. Европейский релиз запланирован на 2007 год.&nbsp;Окончательный трек-лист альбома:<BR><BR><IMG height=200 alt="" hspace=10 src="/images/news_rus/2006.09/10679.jpg" width=200 align=left border=0>1. <B>The Dark Memories</B> <BR>2. <B>Spill Blood On Fire</B><BR>3. <B>Virus</B><BR>4. <B>The Power & Fury</B><BR>5. <B>Wasted Time</B><BR>6. <B>Bravery In The Field</B><BR>7. <B>Liverty</B><BR>8. <B>When The Rain Begins To Fall</B><BR>9. <B>The Prince Of The World</B><BR>10. <B>The Joker</B><BR>11. <B>Spill Blood On Fire</B> (Japanese Version)</P>
+Автор: Dimas
+
+### 09.11.2009 news Новый альбом HEAVENLY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.11/15493.jpg" width=400 align=right border=5>Новый альбом <STRONG>HEAVENLY "Carpe Diem"</STRONG> выйдет 18 декабря на <STRONG>AFM</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Carpe Diem</B><BR itxtvisited="1">02. <B itxtvisited="1">Lost In Your Eyes</B><BR itxtvisited="1">03. <B itxtvisited="1">Farewell</B><BR itxtvisited="1">04. <B itxtvisited="1">Fullmoon</B><BR itxtvisited="1">05. <B itxtvisited="1">A Better Me</B><BR itxtvisited="1">06. <B itxtvisited="1">Ashen Paradise</B><BR itxtvisited="1">07. <B itxtvisited="1">The Face Of The Truth</B><BR itxtvisited="1">08. <B itxtvisited="1">Ode To Joy</B><BR itxtvisited="1">09. <B itxtvisited="1">Save Our Souls</B></P>
+Автор: Vit Belov
+
+### 11.02.2010 reviews Французы продолжают эволюционировать
+
+<P>Тяжёлая сцена во Франции не является самой сильной на континенте. Heavy-power metal группа HEAVENLY, возможно, лучшая в своей категории. Коллектив под управлением вокалиста Ben Sotto записывает очень хорошую музыку, и почти в каждом из опробованных подстилей у него были удачи.</P>
+<P>Начинали французы на Noise Records под покровительством Piet Sielck, и музыка у них была соответствующая. Прямолинейная, мелодичная… На поздних альбомах HEAVENLY обратились к симфоническому звучанию. На новейшей работе “Carpe Diem” музыканты продолжили двигаться вперёд. Довольно внушительная часть этого альбома похожа на творчество группы QUEEN. Сразу бояться не стоит, HEAVENLY сохранили в своей музыке и элементы power-metal. Здесь можно услышать и наследие HELLOWEEN, и «симфонии» с женскими подпевками. Также мне почудились быстрые вещи ранней ANGRA. Получается такой коктейль, который может понравиться любителям мелодичного метала.</P>
+<P>Хороший альбом с полуголыми красотками на обложке. Что ещё нужно поклонникам мелодичной музыки с гитарой?</P>
+Автор: Vit Belov
+
+### 08.04.2010 news Новое видео HEAVENLY
+
+<P><STRONG>HEAVENLY</STRONG> выложили в сеть видео на песню <STRONG>"Fullmoon".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/1uLy_rWd9g8&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/1uLy_rWd9g8&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -42,6 +42,21 @@ Making the History
 * C группой "Labyrinth" Fabio Lione
 * C группой "Vision Divine" Fabio Lione
 
+## Публикации
+
+### 03.03.2001 reviews Новый альбом итальянских музыкантов
+
+<p>Новый альбом итальянских музыкантов. Уже с новым вокалистом Francesco Neretti, заменившим Fabio Lione. Также у группы новый гитарист Graziano Poggetti. Это повлияло на общий звуковой фон материала группы. Музыка стала жестче, быстрее, временами проскакивают почти thrash-риффы. Но это я думаю из-за того, что немного грязновато прописаны гитары на этом альбоме. И вообще качество звука на этом альбоме, откровенно говоря, далеко не лучшее. Задвинут назад вокал, еле слышны клавиши, необычный дребезжащий звук гитар. Но, несмотря на все - это по-прежнему мощный и мелодичный power-speed metal с интересными ходами и потрясающими мелодиями. Причем теперь он более близок к германскому образцу, нежели итальянскому. Меньше в нем слащавости. Очень интересны партии клавишных на фоне гитарных соло, но из-за задвинутости клавишных, это не сильно заметно. Иногда после некоторых мелодий напрашиваются сравнения со многими другими группами. В общем, любителям power metal альбом должен понравиться даже с такого качества звуком. Все же остальные думаю не обратят на альбом особого внимания.</p>
+
+Автор: Dimas
+
+### 13.03.2001 reviews New album of the italian musicians
+
+<p>New album of the italian musicians. Already with new voiceman Francesco Neretti, exchanging Fabio Lione. Also for group the new guitar player Graziano Poggetti. It has influenced a general sound background of a stuff of group. Music became more rigidly, faster, from time to time overshoot almost thrash-riffs. But it I think that a little dirty the guitars on this album are registered. And in general tonal quality on this album, frankly speaking, not best. Is shuttered back вокал, the keys, exotic a note of guitars are hardly audible. But, despite of all is still potent and melodious power-speed metal with interesting courses and startling tunes. And now he is closer to the German sample, rather than italian. It is less in a nem sweet. The crews keyboard on a background guitar соло, but because of back keyboard, it not hardly notably are very interesting. Sometimes after some tunes the matchings with many other groups arise. In general, fans power metal the album should like even from such quality by a note. Nevertheless remaining I think will not pay on an album of the special attention.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

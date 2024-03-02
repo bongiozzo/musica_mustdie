@@ -25,6 +25,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.10.2009 news Новый релиз MORIA
+
+<P>Киевские псайтрэшкорщики из <STRONG>MOR</STRONG>iA не заставили себя долго ждать и обещанная ЕР таки вышла вовремя. Напомним, что морийцы, летом 2009 года, издали свой дебютный полноформатник под названием "<STRONG>PSY</STRONG>." на украинском лейбле <STRONG>Black Art</STRONG>. И уже в середине осени этого же года презентуют абсолютно другой по структуре материал ЕР "<STRONG>Clouded Mind</STRONG>", который вышел на английском языке. Также хотелось бы отметить, что в это время к команде присоединяется гитарист<STRONG> Алексей Пасько</STRONG> (<STRONG>Hell:On, Blast-X</STRONG>), который так же принимает участие в записи ЕР. </P>
+<P>Состав музыкантов учавствувавших в записи "<STRONG>Затуманенного разума</STRONG>": </P>
+<P><STRONG>Олег (Мак) Колотуша</STRONG> - вокал\гитара; <BR><STRONG>Алексей (Hellion) Пасько</STRONG> - гитара; <BR><STRONG>Егор (Ревякин) Ломонос</STRONG> - бас; <BR><STRONG>Владимир (Воха) Шапкун</STRONG> - ударные. </P>
+<P>Также в записи принимал участие <STRONG>Александр Баев (Hell:On)</STRONG>, который спел бэк-вокалом (2). </P>
+<P>Трэк-лист: </P>
+<P>1.<STRONG> The Outlaw</STRONG> (3:33) <BR>2. <STRONG>Hate, War</STRONG> (3:18) <BR>3. <STRONG>Dead memories</STRONG> (3:54) </P>
+<P>EP записана в студии <STRONG>T.A.P. Studios (Tony Alien Productions)</STRONG>!!! </P>
+<P>Послушать новый материал можно, посетив ссылки: </P>
+<P><A href="http://depositfiles.com/ru/files/p7dqy0fi5">http://depositfiles.com/ru/files/p7dqy0fi5</A><BR><A href="http://upload.com.ua/get/901110179">http://upload.com.ua/get/901110179</A> <BR><A href="http://rapidshare.com/files/295399209/MORiA_Clouded_Mind_EP_2009_.rar">http://rapidshare.com/files/295399209/MORiA_Clouded_Mind_EP_2009_.rar</A></P>
+Автор: Vit Belov
+
+### 10.06.2011 news Новый альбом MORIA
+
+<P><IMG height=410 alt="" hspace=0 src="/images/news_rus/2011.06/19610.jpg" width=400 align=right border=0>Второй полноформатный альбом украинской группы <STRONG>MORiA "Pain Shreds"</STRONG> вышел на <STRONG>More Hate Prod</STRONG>. Пресс-релиз: "<EM>Cоздание&nbsp; новых стандартов, где можно услышать комбинацию грува, ярости и эмоциональной энергии. Еще больше разрушительной&nbsp; агрессии, мощных вставок и бронебойных ритмов. Разноплановость альбому добавляют вокалисты из приглашенных групп России&nbsp; и Украины. "Pain Shreds" - стирает грань между безумием и экспериментальностью. Основной "визитной карточкой" группы является тяжелое звучание гитар, мощная ритм-секция, особенный контраст мелодики и агрессивности. Немаловажным фактором для группы является лирика, в которой подчеркиваются проблемы человечества (войны, экология) и личностного (душевное состояние, подсознание, философия, психология)</EM>". Трек-лист:</P>
+<P>1. <STRONG>Battle Is Your Pain</STRONG><BR>2. <STRONG>Clouded Mind<BR></STRONG>3. <STRONG>Dead Memory<BR></STRONG>4. <STRONG>Fragments of Thoughts</STRONG><BR>5. <STRONG>Hate, War</STRONG><BR>6. <STRONG>My World</STRONG><BR>7. <STRONG>Open The Road</STRONG><BR>8. <STRONG>Outlaw</STRONG><BR>9. <STRONG>Revolution<BR></STRONG>10. <STRONG>Truth And Lie</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

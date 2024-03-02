@@ -33,6 +33,15 @@ Recorded At Studio Skyline, Sweden
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.07.2011 news Переиздание единственного альбома WOMBBATH
+
+<P><STRONG><IMG height=251 alt="" hspace=0 src="/images/news_rus/2011.07/20158.jpg" width=250 align=right border=0>Necroharmonic Records</STRONG> переиздали единственный альбом шведской death-metal формации <STRONG>WOMBBATH "Internal Caustic Torments"</STRONG>, в оригинале вышедший в 1993 году. В качестве бонуса американская контора добавила мини-альбом 1992 года "<STRONG>Several Shapes</STRONG>". Трек-лист:</P>
+<P>1. <STRONG>Prevent Anemia</STRONG>&nbsp; 05:01&nbsp; <BR>2. <STRONG>Intestinal Bleeding</STRONG>&nbsp; 04:48&nbsp;&nbsp; <BR>3. <STRONG>A Silent as the Grave</STRONG>&nbsp; 03:55 <BR>4. <STRONG>Corporal Punishment</STRONG>&nbsp; 05:07&nbsp; <BR>5. <STRONG>Performed in Depth</STRONG>&nbsp; 03:54&nbsp; <BR>6. <STRONG>Conceal Interior Torments</STRONG>&nbsp; 06:39&nbsp; <BR>7. <STRONG>Beyond the Gloomy</STRONG>&nbsp; 04:32 <BR>8. <STRONG>Abandon</STRONG>&nbsp; 02:15<BR>9. <STRONG>Several Shapes</STRONG>&nbsp; 04:10 <BR>bonus-tracks:<BR>10. <STRONG>Beyond the Gloomy</STRONG> (04:28)<BR>11. <STRONG>Brutal Mights</STRONG> (03:41)<BR>12. <STRONG>Tales from the Darkside</STRONG> (03:50)<BR>13. <STRONG>Unholy Madness</STRONG> (04:00)<BR>14. <STRONG>Intro</STRONG> (01:03)<BR>15. <STRONG>Several Shapes</STRONG> (4:08)<BR>16. <STRONG>Corporal Punishment</STRONG> (05:13)<BR>17. <STRONG>Beyond the Gloomy</STRONG> (04:30)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

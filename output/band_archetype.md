@@ -22,6 +22,28 @@ Reflection (bonus track)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.11.2002 reviews Stunning cross between doom, prog and heavy metal
+
+<p>You know what? I love this album. And you know why? I always considered Johan Langquist one of my all-time fave singers. And still do, despite he sang at one and only work, at least amongst the ones I own or heard of. CANDLEMASS’ “Epicus Doomicus Metallicus” is the name. No, unfortunately ARCHETYPE isn’t a new band he takes part in. This combo is of US origin, and the singer’s name is Greg Wagner. But holy hell, his voice is so fucking similar to Johan’s! Inimitable, powerful, bewitching… I could grant Mr. Wagner’s talent all of these epithets, but sorry, they’ve been reserved by Herr Langquist long time ago. Which doesn’t make this CD worse. Quite the contrary, I’d say “Dawning” only gains by it! Ok, I guess I made myself clear enough with what regards vocal department… and what about music? Well, it’s no less exciting. Stunning cross between doom metal, prog and heavy metal won’t leave anyone cold. At least, shouldn’t leave. There’s no song to be marked out, no song to pick up and say: “Listen, people. This is a killer tune, whilst other ones are pure mediocrity”. “Dawning” just swirls you into a myriad of raining worlds, with each of them hiding it’s own treasure. Brilliant!</p>
+<P>Website: <A HREF="http://www.archetype1.com">http://www.archetype1.com </A></>
+
+Автор: Kai Mathias Stalhammar
+
+### 28.08.2003 reviews Пробуждение.
+
+<P>Записав в апреле 2000 года свой первый полноформатный альбом, музыканты группы Archetype, которую возглавляет гитарист, композитор и автор всех текстов Chris Matyus, остались недовольны результатом продюссирования. Понимая, что материал очень силён, было решено его перезаписать, и поменять выпускающий лейбл. И вот в 2002 году на Lucretia Records, в новом оформлении, повторно выходит Dawning. <BR>О том, насколько хорош диск, можно прочитать в многочисленных ревю, старательно собранных на сайте команды. Десятки хвалебных отзывов из разных стран. Но утверждать, что команда стремительным броском уверенно заняла одно из мест в Высшей Лиге Прог Метала я бы не стал. Добротный американский прогрессив исполненный профессионалами (у Криса, например, диплом по классической гитаре университета в Огайо), с навороченными инструментальными партиями (гитарные cоло просто великолепны), оставляющим благоприятное впечатление вокалистом Грегом Вагнером (очень он похож на Мэтью Барлоу из «Iced Earth») и неплохими мелодиями. Но особой оригинальностью работа не отличается. Всё это мы уже слышали у Savatage и Black Symphony. Но разве плохо, получить еще новую порцию высококачестственной музыки? <BR>PS. К сожалению, после записи альбома, Грег Вагнер покинул группу. Надеюсь, эти талантливые ребята быстро найдут ему соответствующую его уровню замену.</P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 24.11.2004 reviews Длинно не всегда хорошо
+
+<P>С этой пластинкой американского квартета Archetype не всё так просто. Впервые она вышла в свет в 2000 году в Штатах собственными силами музыкантов. Недовольные результатом, ребята решают перезаписать альбом, и всё это дело выходит в 2002 году на лэйбле Lucretia Records с добавлением одной новой вещи ('Reflection'). По всей видимости, и на этом группа не успокоилась, и вот совсем свежий релиз "Dawning" (с новой обложкой), уже теперь на Limb Music, и опять с добавлением новых вещей, а точнее, бонусами стали 'Visionary' (одна из лучших на пластинке) и 'Hands Of Time' с этого же альбома, только как&nbsp;"1998 version". Кому это было нужно, ума не приложу, ибо удлинять и без того совсем не короткий по продолжительности диск до 82 минут смысла, по большому счету, не было, это пошло даже во вред. Но ближе к телу, как говаривал поручик Ржевский. Стиль Archetype это американский пауэр-метал в духе Iced Earth (некоторые видят сходство с ранними Fates Warning, но я те работы не слышал, посему судить не могу). Достаточно добротно сыгранный альбом (по мне, так интереснее тех же Iced Earth с Риппером), но мне материал показался утомительным. Слишком длинные вещи (между прочим, без клавишных), голос вокалиста очень на любителя, зачем-то полностью инструментальные композиции ('The Mind's Eye' и "добавленная" 'Reflection'), достаточно однообразные песни - честно говоря, я совсем не понимаю восторженных отзывов об этой пластинке, хотя для дебютника, пусть и перевыпущенного уже в третий раз, это весьма и весьма неплохо. Наиболее интересные вещи это уже упоминавшаяся 'Visionary' и двенадцатиминутный эпик 'Yeras Ago'. В общем, альбом повыше среднего, но переслушивать его полностью еще раз вряд ли захочется. Кстати, сами Arhcetype называют себя прогметалистами, но прогрессива в их музыке, пожалуй, не больше, чем у тех же Iced Earth.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

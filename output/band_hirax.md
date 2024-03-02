@@ -230,6 +230,103 @@ French Pearl
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.03.2001 news Новости Hirax
+
+<P>Вышел в продажу Picture Disc <STRONG>"Hirax" - "El Diablo Negro"</STRONG> и сборник <STRONG>"Thrash of the Titans"</STRONG>. Сейчас команда продолжает работать над новым альбомом <STRONG>"Barrage of Noise"</STRONG>. На него войдут: <STRONG>"Mad World"</STRONG>, <STRONG>"Hung by a Rope"</STRONG>, <STRONG>"Fifteen Years"</STRONG>, <STRONG>"What Made You Hate God?"</STRONG> и еще несколько вещей.</P>
+Автор: Yermola
+
+### 01.03.2001 news El Diablo Negro.....
+
+<p>Well, now that the Hirax "El Diablo Negro" 7" Picture Disc and "Thrash of the Titans" compilations album have both been released at the end of February...things have gotten really busy. I just finished remixing and remastering all the tapes from HIRAX "Blasted in Bangkok" (to be released on 10" vinyl and CD) as well as the never before released Phantasm album (to be released on 12" vinyl and CD). Which should be out in April or May at the latest. I can't believe how incredibly brutal and overpowering these two records sound! I would have never thought when they were recorded that they would sound the way that they do today. I want everybody to know that when these records hit the stores they will be totally getting their money's worth. The release dates will be posted so keep an eye on this website. Now work has begun on the new Hirax album. The title is "Borage of Noise" it will feature such tracks as "Mad World", "Hung by a Rope", "Fifteen Years", and "What Made You Hate God?" Those are just some of the titles. At the same time that we record this new record we will also be recording extra tracks for various compilations and also the tribute compilation for the Accused. The song that we have agreed to do is "Mechanized Death" There were so many great songs to pick from. There will also be a Hirax/Anal Cunt split 7" in the very near future. There is talk of touring, but all that is on hold until all these recordings are done.</p>
+
+Автор: Yermola
+
+### 23.06.2003 news HIRAX will be in  Germany next week playing live...
+
+<p>For the first time ever…<BR> HIRAX will be in Germany next week playing live: <BR><BR> Thursday, June 26th 2003 - BYH Warm Up Gig<BR> Club Show @ WORLD OF MOTORCYCLES <BR> Wilhelm-Kraut-StraЯe 104 • 72336 Balingen / Germany • doors open @ 8:00 pm<BR><BR> Saturday, June 28th 2003 - BANG YOUR HEAD FESTIVAL<BR> Messegelдnde (tradefare area) in 72336 Balingen / South Germany • doors open @ 9:00 am</p>
+
+Автор: Yermola
+
+### 09.03.2004 news Hirax new CD titled &quot;The New Age Of Terror&quot; will be released in late March&#x2F;early April....
+
+Los Angeles crossover innovators Hirax are putting the finishing touches on their latest studio recording The New Age Of Terror. The album is being
+recorded and produced by Michael Rozon (Melvins, Adrenaline O.D.) at Speed Semen Clove Factory in North Hollywood, CA. "This is going to be our most
+powerful record to date," vocalist Katon De Pena said. "It's dangerously fast and heavy." The New Age Of Terror will be released this spring on Deep
+Six Records as well as Hirax's label Black Devil Records on CD format as well as limited edition picture disc. <br><br>
+
+Hirax will headline two U.S. festivals beginning in late April as well as a show at the infamously legendary New York club CBGB, which will be Hirax's
+first-ever appearance on the East coast. The band will head to Europe in June and July for more festival appearances.<br><br>
+
+Hirax began in Los Angeles in the early 80s, but spent most of their time playing in San Francisco along with Slayer, Metallica, and Exodus, who were
+all part of the exciting new metal emerging from the Bay area. Their first release was on the compilation Angelican Scrape Attic 7" flexi disc, which
+was Earache Records first release. They were the only U.S. band featured on the compilation. Hirax signed to Metal Blade Records in 1985 and released
+two albums- Raging Violence ('85) and Hate, Fear, And Power ('86). Their combination of the heaviness of metal and the speed of hardcore became known
+as "crossover". They became known and respected worldwide through the metal tape trading underground and their unique sound also influenced many bands
+for years to come. Hirax released Blasted In Bangkok in 1987 and they disbanded soon after.<br><br>
+
+The original band briefly reformed in 2000 to release El Diablo Negro. The current Hirax lineup is Katon De Pena-vocals, Glenn Rogers- guitar, Dave
+Watson- guitar, Angelo Espino- bass, and Jorge Iacobellis-drums. The New Age Of Terror is this lineup's follow up to the critically acclaimed 2001
+release Barrage Of Noise.
+<br><br>
+Tour dates as follows:<br><br>
+
+04/30/04 Fri. The Coffee Machine, Reseda, CA (Thrash 'Em All Festival)<br>
+05/01/04 Sat. The Coffee Machine, Reseda, CA (Thrash 'Em All Festival)<br>
+05/15/04 Sat. J.J. Kelley's, Lansing, IL (Classic Metal Festival)<br>
+05/21/04 Fri. CBGB, New York, NY (first-ever East coast appearance)<br>
+06/12/04 Sat. Sweden Rock Festival, Sweden<br>
+07/10/04 Sat. Headbangers Open Air Festival, Germany<br>
+07/24/04 Sat. Metal Bash Open Air Festival, Germany
+Автор: Yermola
+
+### 08.03.2010 news Новое видео HIRAX
+
+<P>Титульное видео с последнего альбома группы <STRONG>"El Rostro de la Muerte"</STRONG> ("The Face of Death"), можно посмотреть по ссылке ниже. Диск&nbsp;<B itxtvisited="1">"El Rostro de la Muerte"</B>, был выпущен в октябре 2009 года. Это первый полноформатник группы, после альбома <STRONG>"The New Age Of Terror"</STRONG> (2004).<BR itxtvisited="1">Видео: <A href="http://www.youtube.com/watch?v=-_VfDAFS5n4">http://www.youtube.com/watch?v=-_VfDAFS5n4</A> </P>
+Автор: Headcrusher
+
+### 29.06.2010 news Новая компиляция от HIRAX
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.06/16868.jpg" width=400 height=400>Сегодня&nbsp;на лейбле <B>SEASON OF MIST</B> выходит новый релиз калифорнийских трэшеров <B>HIRAX</B> — компиляция под названием <B>«Noise Chaos War»</B>.&nbsp;Компакт диск&nbsp;включает в себя три миньона (E.P.) группы:&nbsp;<STRONG>"Barrage Of Noise"</STRONG>,<STRONG> "Chaos And Brutality"</STRONG>,<STRONG> "Assassins Of War"</STRONG>.<STRONG> </STRONG>Записи&nbsp;получили новый ремастеринг&nbsp;и сведение. На диск, так же, вошло видео на песню "<B>Bombs Of Death</B>", снятое в Японии на концерте в прошлом году.</P>
+<P><BR>Рекламный клип к релизу можно посмотреть по ссылке: <A href="http://www.youtube.com/watch?v=fn-nJ_bpB7c">http://www.youtube.com/watch?v=fn-nJ_bpB7c</A></P>
+Автор: Headcrusher
+
+### 14.03.2011 news Бывший гитарист HIRAX и его новые проекты
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18866.jpg" width=198 height=300>Бывший гитарист <B itxtHarvested="1" itxtNodeId="392">HIRAX</B> Гленн Роджерс (<B itxtHarvested="1" itxtNodeId="391">Glenn Rogers</B>) пребывая недавно в гостях у программы <B itxtHarvested="1" itxtNodeId="389">"Beyond The Riff"</B> на радио <STRONG>AM 1300 KSET</STRONG>,<STRONG> </STRONG>сообщил, что начинает работать над двумя новыми проектами. Новая группа Гленна <EM>"получила название <B itxtHarvested="1" itxtNodeId="388">FINAL DECREE</B> и будет исполнять трэш метал с мелодичным вокалом." "Состав -&nbsp;<B itxtHarvested="1" itxtNodeId="387">Kevin Goocher</B> из <B itxtHarvested="1" itxtNodeId="386">PHANTOM-X</B> на вокале; <B itxtHarvested="1" itxtNodeId="385">Dave Watson</B>, бывший участник <B itxtHarvested="1" itxtNodeId="384">HIRAX</B> и <B itxtHarvested="1" itxtNodeId="383">DEATHRIDERS</B>, на гитаре; <B itxtHarvested="1" itxtNodeId="382">Daniel Cordova</B>, ex-<B itxtHarvested="1" itxtNodeId="381">VENGEANCE RISING</B>, на басу; а с ударными нам поможет действующий барабанщик <STRONG>HIRAX&nbsp;</STRONG>- <B itxtHarvested="1" itxtNodeId="380">Jorge Iacobellis</B>." </EM></P>
+<P><B itxtHarvested="1" itxtNodeId="376">FINAL DECREE</B> работают над материалом и планируют выпустить его в конце 2011.</P>
+<P>Из других новостей, <B itxtHarvested="1" itxtNodeId="373">Glenn</B> объединил силы со своим давним приятелем Роном Дэниелом (<B itxtHarvested="1" itxtNodeId="372">Ron Daniel</B>), чтобы реформировать группу <B itxtHarvested="1" itxtNodeId="370">VIKING</B>, выпустившую в конце 80-х два альбома на&nbsp;<B itxtHarvested="1" itxtNodeId="371">Metal Blade</B>. Релиз нового альбома, так же, запланирован на конец 2011 года.</P>
+<P>Относительно своего ухода из <B itxtHarvested="1" itxtNodeId="367">HIRAX</B>, <B itxtHarvested="1" itxtNodeId="366">Rogers</B> сказал следующее: <EM>"Я желаю им всего самого наилучшего. Они всегда будут моими братьями по металу. Просто для меня&nbsp;пришло время перемен и я не хочу удерживать их [<STRONG>HIRAX</STRONG>]. Гастролировать так, как мы делали это&nbsp;с <STRONG>HIRAX</STRONG>, стало слишком мешать моим взаимотношениям в семье,&nbsp;которые находятся для меня на первом месте. Спасибо всем фэнам и скоро увидимся."</EM></P>
+Автор: Headcrusher
+
+### 27.11.2011 news Новый клип HIRAX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Thrash-metal ветераны <STRONG>HIRAX</STRONG> выложили в сеть новый видео-клип на песню "<STRONG>Broken Neck</STRONG>". Трек взят с последнего альбома коллектива "<STRONG>El Rostro De La Muerte</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/QBMcJzdsKoE?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/QBMcJzdsKoE?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.02.2012 news Ещё одно видео HIRAX
+
+<P>Новый клип <STRONG>HIRAX</STRONG> на одноимённую песню с последнего альбома<STRONG> 'El Rostro De La Muerte'</STRONG> можно посмотреть ниже.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/xjHU_b5ns0c?version=3&feature=player_embedded"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/xjHU_b5ns0c?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 26.08.2013 news HIRAX: обложка и другие детали нового альбома &quot;Immortal Legacy&quot;
+
+<P>Легендарная thrash metal группа <STRONG>HIRAX</STRONG> заканчивает работу над своим новым студийником. Диск, получивший название <STRONG>"Immortal Legacy"</STRONG>, выйдет в Германии 20 сентября, на территории остальной Европы 23 сентября,&nbsp;а в США/Канаде ещё на один день позже.&nbsp;На сей раз за выпуск нового альбома <STRONG>HIRAX</STRONG>&nbsp;отвечает лейбл&nbsp;<STRONG>SPV</STRONG>/<STRONG>Steamhammer</STRONG>.</P>
+<P>Вот, что некоторое время&nbsp;назад&nbsp;рассказал о новом альбоме вокалист и лидер&nbsp;группы <STRONG>Katon W. De Pena</STRONG>: <EM>"Мы записываем наш новый альбом с легендарным продюсером Биллом Метоером (<STRONG>Bill Metoyer</STRONG>, работал со&nbsp;<STRONG>SLAYER</STRONG>, <STRONG>W.A.S.P.</STRONG>, <STRONG>ARMORED SAINT</STRONG>, <STRONG>CIRITH UNGOL</STRONG> и ещё с кучей других групп). Это наш самый грандиозно звучащий альбом на сегодняшний день. 14 новых громогласных трэш-металлических песен, которые заставят вас трясти головой!!!" </EM></P>
+<P>Обложку для альбома нарисовал&nbsp;<STRONG>Philip Lawvere</STRONG> (<A href="http://philiplawvere.com/">http://philiplawvere.com</A>). <STRONG>Philip</STRONG> известен за своё сотрудничество с лейблом <STRONG>Noise</STRONG>&nbsp;и группами, которые выпускали свои альбоме на нём в 80-е.&nbsp;Это именно его авторству принадлежат&nbsp;обложки для таких культовых альбомов, как <STRONG>RAGE</STRONG> <STRONG>"Reign Of Fear"</STRONG>, <STRONG>KREATOR</STRONG> <STRONG>"Out Of The Dark..."</STRONG>, <STRONG>CELTIC FROST</STRONG> <STRONG>"Emperor's Return"</STRONG>, <STRONG>KREATOR "Pleasure To Kill"</STRONG>, <STRONG>KREATOR "Terrible Certainty"</STRONG>, <STRONG>DEATHROW "Riders Of Doom"</STRONG>, <STRONG>VENDETTA "Go And Live..."</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26110.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### адский HIRAX!!

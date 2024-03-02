@@ -55,6 +55,21 @@ The Strength of Wisdom
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.07.2001 news Холодная Пустынная Луна...
+
+<p>Немецкие пауэрщики "STORMHAMMER" 3-го сентября выпускают новый альбом "Cold Desert Moon". Диск выйдет через Century Media Records и будет содержать следующие вещи: 01. Sinners Soul 02. The Law 03. Breach Of Faith 04. Yells Of Rage 05. Misty Hills 06. Children Of The Dawn 07. Doomsday 08. Cold Desert Moon 09. A Dragons Tears 10. Nobody's Child 11. Masquerade Of Life 12. Strength Of Wisdom. Запись проходила в Дюссельдорфской Crownhill Studios с продюссером Rudy Kronenberger.</p>
+
+Автор: Yermola
+
+### 24.07.2001 news German metallers STORMHAMMER ...
+
+<p>German metallers STORMHAMMER will be releasing their new album, entitled Cold Desert Moon, on September 3rd through Century Media Records. Recorded in March with Rudy Kronenberger at Crownhill Studios in Dusseldorf, the album features the following track listing: 01. Sinners Soul 02. The Law 03. Breach Of Faith 04. Yells Of Rage 05. Misty Hills 06. Children Of The Dawn 07. Doomsday 08. Cold Desert Moon 09. A Dragons Tears 10. Nobody's Child 11. Masquerade Of Life 12. Strength Of Wisdom. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

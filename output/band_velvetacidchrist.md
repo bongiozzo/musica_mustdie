@@ -28,6 +28,9 @@ Gaty Slaughter - Synths, Drums, Programming, Mixing
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

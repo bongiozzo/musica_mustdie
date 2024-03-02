@@ -17,6 +17,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2016 news Новый альбом TID
+
+<p>Новый альбом шведской&nbsp;post rock/progressive metal группы <strong>TID "Fix Ide"</strong>&nbsp;выходит 7&nbsp;октября на&nbsp;<strong>The Sign Records</strong>.</p><p>Трек лист:</p><p>1 - Bom Shiva<br>2 - Dumhetens Gudinna<br>3 - Aurora Surrealis<br>4 - Solens Nya Namn<br>5 - Demimond<br>6&nbsp;-&nbsp;Nadir</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29518.jpg" border="0"><p></p><p><center><iframe width="640" height="360" src="https://player.vimeo.com/video/169728323?color=7fccde&byline=0&portrait=0" frameborder="0" allowfullscreen="" mozallowfullscreen="" webkitallowfullscreen=""></iframe>
+<p><a href="https://vimeo.com/169728323">Tid - Fix IdЁ¦ - Teaser</a> from <a href="https://vimeo.com/artaxfilm">Artax Film</a> on <a href="https://vimeo.com">Vimeo</a>.</p><p></p></center></center>
+Автор: Vit Belov
+
+### 02.07.2016 news New album by TID
+
+<p>Swedish band Tid [Tid translates to Time in Swedish] will release their new album Fix Id&#233; via The Sign Records on October 7th&nbsp; .</p><p>Fix Id&#233; contains six songs. Six different scenarios and six different dreams. Ranging from dark apocalyptic dance music to soundtracks to a dreamlike wandering in ones mind trying to kill reflections of a dark past. With lyrics written in classic verse that brings to mind something old and long since forgotten or hidden - now found and accompanied by Tid’s music, this is a highly different album and band. The references to their music are legio, and the wells of inspiration know no boundaries. Tid is music and artwork. The band sees the two as highly connected and completing each other. The band writes music with artwork in mind, and makes artwork with music in mind. <br>&nbsp;<br>Tid is a Swedish four piece orchestra that makes music best described as dark and dramatic, on the verge to filmscores; that being the main influence for their music. Majestic, mystic and dreamlike music that brings pictures and scenarios to mind. Like a suggestive soundtrack to the escape from the everyday world. Tid is flirting with musical styles long since forbidden by the anxious and wary, thus expressing a wide range of feelings and ideas that might have a positive effect on the stagnated yet seeking and exploring music lovers in the world. <br>&nbsp;<br>Fix Id&#233; was produced and art directed by Tid, and engineered and mixed by Niels Nielsen (mastermind and producer of Dead Soul). </p><p>Track list:</p><p>1 - Bom Shiva<br>2 - Dumhetens Gudinna<br>3 - Aurora Surrealis<br>4 - Solens Nya Namn<br>5 - Demimond<br>6&nbsp;-&nbsp;Nadir</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29518.jpg" border="0"><p></p><p><center><iframe width="640" height="360" src="https://player.vimeo.com/video/169728323?color=7fccde&byline=0&portrait=0" frameborder="0" allowfullscreen="" webkitallowfullscreen="" mozallowfullscreen=""></iframe>
+<p><a href="https://vimeo.com/169728323">Tid - Fix IdЁ¦ - Teaser</a> from <a href="https://vimeo.com/artaxfilm">Artax Film</a> on <a href="https://vimeo.com">Vimeo</a>.</p><p></p></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

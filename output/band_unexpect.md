@@ -48,6 +48,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.07.2011 news Новый альбом UNEXPECT
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2011.07/20133.jpg" width=250 align=right border=0>Канадский avantgarde/progressive metal&nbsp;проект <STRONG>UNEXPECT</STRONG> подготовил к релизу третий альбом "<STRONG>Fables Of The Sleeping Empire</STRONG>". Пластинка была записана в различных студиях в Канаде и сведена <STRONG>Jeff Fortin</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Unsolved Ideas Of A Distorted Guest<BR></STRONG>2. <STRONG>Words<BR></STRONG>3. <STRONG>Orange Vigilantes</STRONG> <BR>4. <STRONG>Mechanical Phoenix<BR></STRONG>5. <STRONG>The Quantum Symphony</STRONG><BR>6. <STRONG>Unfed Pendulum</STRONG><BR>7. <STRONG>In The Mind Of The Last Whale</STRONG><BR>8. <STRONG>Silence This Parasite</STRONG><BR>9. <STRONG>A Fading Stance</STRONG><BR>10. <STRONG>When The Joyful Dead Are Dancing<BR></STRONG>11. <STRONG>Until Yet A Few More Deaths Do Us Part</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -53,6 +53,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.04.2006 news Новые контракты Avantgarde Music
+
+<P>Итальянский лейбл <STRONG>Avantgarde Music</STRONG> сообщает о подписании сразу двух <STRONG>depressive black metal</STRONG> групп!&nbsp; <STRONG>NORTT </STRONG>выпустит&nbsp;новый альбом осенью 2007, а <STRONG>FORGOTTEN TOMB</STRONG> в&nbsp;2006 году. </P>
+Автор: Bizarre
+
+### 06.09.2006 news FORGOTTEN TOMB в работе над новым альбомом
+
+<P>Итальянские мастера депрессивного&nbsp;doom black metal <B>FORGOTTEN TOMB</B> работают в студии над своим четвертым альбомом под названием <B>"Negative Megalomania"</B>. Релиз ожидается на <STRONG>Avantgarde Music</STRONG> в конце октября.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### FORGOTTEN TOMB / ALTAR OF PLAGUES / OFFICIUM TRISTE (Москва, 15 октября)

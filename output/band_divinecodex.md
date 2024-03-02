@@ -20,6 +20,16 @@ black-metal from Italy
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.09.2011 news Обложка нового DIVINE CODEX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянские black-metal'исты <STRONG>DIVINE CODEX</STRONG> работают над своим вторым альбомом "<STRONG>The Dark Descent</STRONG>", который выйдет в конце 2011 года на <STRONG>Mighty Hordes Production</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/divinecodexofficial">http://www.facebook.com/divinecodexofficial</A></FONT></P>
+<P><center><IMG height=400 src="/images/news_rus/2011.09/21182.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -110,6 +110,66 @@ Release date  26th May 2000, Endless Journey is the European version of Intense
 * C группой "Haavat" Janne Regelin (guitar)
 * C группой "Haavat" Olli-Pekka Karvonen (bass)
 
+## Публикации
+
+### 05.06.2001 news Третий альбом EMBRAZE .....
+
+<p>Финны "EMBRAZE" приступили к записи своего третьего альбома который должен выйти на Mastervox Records еще до конца года. Трек-лист: 01. My Star 02. Beautiful Death 03. Frozen Swan 04. Subzero 05. Closed 06. Daughters Of The Moon 07. Calm And Distant 08. Sinmaker 09. The Sun Loves The Moon 10. Feeble 11. Fear 12. Kiiminkijoki</p>
+
+Автор: Yermola
+
+### 05.06.2001 news EMBRAZE are preparing to enter the studio ....
+
+<p>Finland's EMBRAZE are preparing to enter the studio to begin recording their third album, which will be released through Mastervox Records at the end of the year. Tentative song titles include the following: 01. My Star 02. Beautiful Death 03. Frozen Swan 04. Subzero 05. Closed 06. Daughters Of The Moon 07. Calm And Distant 08. Sinmaker 09. The Sun Loves The Moon 10. Feeble 11. Fear 12. Kiiminkijoki Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 22.03.2002 news New Finnish gothic metal act
+
+<p>FOR MY PAIN is the name of a brand new Finnish gothic metal act who feature several well-known musicians from the local metal scene. The group's current line-up stands as follows:</p>
+<P> Tuomas Holopainen (NIGHTWISH) - keyboards <BR> Altti Vetelainen (ETERNAL TEARS OF SORROW) - bass <BR> Lauri Tuohimaa (EMBRAZE) - guitar <BR> Olli-Pekka Torro (ex-ETERNAL TEARS OF SORROW) - guitar <BR> Juha Kylmanen (REFLECTION) - vocals <BR> Petri Sankala (ETERNAL TEARS OF SORROW) - drums</>
+<P> FOR MY PAIN are currently writing material for the group's first full-length album, the recordings for which are tentatively scheduled to begin in May, with a late 2002 or early 2003 release date through Spinefarm Records being planned. A possible single release may precede the album in the fall.</>
+
+Автор: Dimas
+
+### 22.03.2002 news Новый финский gothic metal акт
+
+<p>FOR MY PAIN - так называется новый финский gothic metal акт в котором принимают участие несколько достаточно известных на местной металлической сцене музыкантов. В состав группы входят:</p>
+<P> Tuomas Holopainen (NIGHTWISH) - клавишные <BR> Altti Vetelainen (ETERNAL TEARS OF SORROW) - бас<BR> Lauri Tuohimaa (EMBRAZE) - гитары <BR> Olli-Pekka Torro (ex-ETERNAL TEARS OF SORROW) - гитары <BR> Juha Kylmanen (REFLECTION) - вокал <BR> Petri Sankala (ETERNAL TEARS OF SORROW) - ударные</>
+<P> Сейчас, группа сочиняет материал для своего дебютного альбома, запись которого начнется предположительно в мае 2002 года. Выпуск альбома планируется на Spinefarm Records в конце 2002 -начале 2003 года. Перед выходом полнометражного альбома планируется выход сингла.</>
+
+Автор: Dimas
+
+### 16.08.2002 news Новый проект финов.
+
+<p>Spinefarm Records углубились в запись новой группы For My Pain..., в составе которой оказались такие небезизвестные финские парни как: Tuomas Holopainen "Nightwish" и Altti Vetelainen "Eternal Tears Of Sorrow".<BR> Стиль в ктором будут играть For My Pain... это мелодичный готик-рок.<BR> В данный момент группа работает в студии. И услышать сие твоерние мы сможем только в начале 2003 года. Пока фины еще не придумали название своего дебютника, но зато первую песню "My Wound Is Deeper Than Yours" мы возможно услышим в этом году!<BR> На данный момент For My Pain... это:<BR><BR> Altti Vetelainen (Eternal Tears of Sorrow): басс<BR> Tuomas Holopainen (Nightwish): клавиши<BR> Lauri Tuohimaa (Embraze): гитара<BR> Olli-Pekka Torro (ex-Eternal Tears of Sorrow kahden ensimmaisen levyn ajalta): гитара<BR> Juha Kylmanen (RefleXion): вокал<BR> Petri Sankala (Eternal Tears of Sorrow): ударные<BR></p>
+
+Автор: Korvin
+
+### 14.10.2002 reviews Удар на поражение
+
+<p>Четвертое творение группы EMBRAZE, которые далеко не новички на финской метал-сцене. Первые два альбома группы прошли совершенно незаметно, но прошлое их творение (большей частью состоящее из переработанных вещей с первых двух альбомов), после внесения основательных корректив в стиль группы, было замечено и имело положительные отклики. Новая же работа группы еще более совершенна, музыка стала потяжелее, побыстрее и все такая же мелодичная и мудрая как и ранее. Качество просто замечательное. Но, вместе с тем, группа немного утратила свое лицо. Не знаю, как вам, но мне этот материал сильно напомнил SENTENCED'95 "AMOK". Вокалист достаточно правдоподобно пытается копировать Танелли Ярву, и вся музыка на альбоме сочинена в духе "AMOK". Это не бессовестный плагиат, конечно же, но иногда становится непонятно, то ли ты слушаешь новый альбом EMBRAZE, то ли какую-то старую нереализованную запись SENTENCED. Тем не менее, этим финнам удается сочинять настолько запоминающийся, проникновенный и красивый материал, что поневоле прощаешь им все. Ближе к концу альбома, группа пускается на некоторые эксперименты, после которых вспоминаешь еще группу BLACK LEAGUE, чье творчество также послужило истоком сочинения этого альбома. Замечательный инструментал перед концовкой - последний удар на поражение вашего разума.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 16.11.2002 reviews Impact on a defeat
+
+<p>"Katharsis" isn't the CD EMBRAZE made their debut with; nor these guys are neophytes. Nevertheless, the first and the second works of theirs went unnoticed... unlike the third one. "Endless Journey" happened to be comprised of the old tracks, which, after having been properly re-arranged, sounded the "new and improved"-way, y'know. As to "Katharsis", it's even more perfect. EMBRAZE now seem to be much heavier, faster AND equally melodic. Utterly unoriginal, though. Pitifully enough, the band contrived to lose it's personality... completely lose it. What I mean is, this CD strongly reminds me of SENTENCED's "Amok", whilst the singer does his best copying Taneli Jarva. Obviously, it's not some unscrupulous plagiat, however one may wonder whether he gives a listen to EMBRAZE or some rare-and-unreleased tracks by SENTENCED. Nevertheless, these Finns managed to come up with memorable, pathetic and tremendous kind of music, which makes me forgive 'em their lack of originality. The last couple of tracks off "Katharsis" sound surprisingly experimental (read - different to remaining part of the album)... and similar to BLACK LEAGUE, who also strike to be these guys' source of inspiration. Finally, remarkable instrumental tune before the very end turns out to be the last impact on defeat of your reason.</p>
+
+Автор: Dimas
+
+### 16.10.2008 news Moscow Gothic Fest III
+
+<center><IMG height=600 src="/images/shows_rus/2008.11/12882.jpg" width=364 border=0></center>
+Автор: Vit Belov
+
+### 10.02.2009 news EMBRAZE заканчивают
+
+Финны <STRONG>EMBRAZE </STRONG>объявили дату своего последнего концерта. Он состоится в "Русский Новый Год" 1-го мая. После этого группа прекратит своё существование.
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Вашему другу нужна помощь - группы Charon и Embraze

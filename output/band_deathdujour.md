@@ -12,6 +12,19 @@ death-metal from Finland
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.11.2003 reviews Нелучшая финская брутальная банда.
+
+Brutal Death-metal не является лучшим, что может предложить финская металлическая сцена. Мини-альбом DEATH DU JOUR для многих запомнится, скорее всего, только красочным оформлением. Никаких других оригинальностей здесь не замечено. В меру брутальный, в меру быстрый... Четыре песни не оставляют в памяти никаких воспоминаний. А&nbsp;для уровня финской сцены - слабовато. Нельзя сказать, что ребята безнадёжны, им просто надо поработать над добротностью материала, которой здесь и не хватает. А редкие посылки в thrash-metal просто нужно искоренить.
+Автор: Vit Belov
+
+### 16.12.2003 reviews It&#39;s not the best Finnish brutal-band
+
+Brutal-Death-metal is not the best part of Finnish metal music scene. Many people will able to remember this mini-cd by DEATH DU JOUR only because of its colourful design. Here are not other originalities. Brutal enaough, Fast enough... Four songs don't remain in memory any recollections. It's not good for level of Finnish scene. I can not tell, that guys are hopeless, but they need to work on quality of the material. Quality is very needed here. And seldom features of thrash-metal are just necessary to root out.
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

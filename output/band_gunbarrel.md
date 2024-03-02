@@ -8,6 +8,102 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.03.2005 news Новый вокалист GUN BARREL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым вокалистом <STRONG>GUN BARREL</STRONG> стал <STRONG>Xaver Drexler</STRONG>. Он заменил ранее ушедшего <STRONG>Guido Feldhausen</STRONG>. Группа собирается закончить запись нового альбома в мае.</FONT></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Новый альбом GUN BARREL
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22678.jpg" width=400 align=right border=0>Немцы <STRONG>GUN BURREL</STRONG> выпускают новый альбом "<STRONG>Brace For Impact</STRONG>" 23 марта на <STRONG>Massacre Records</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Turbolence Decadence</STRONG> <BR>2. <STRONG>The Wild Hunt<BR></STRONG>3. <STRONG>With Might Main<BR></STRONG>4. <STRONG>Diamond Bullets<BR></STRONG>5. <STRONG>Stand Your Ground<BR></STRONG>6. <STRONG>Start A Riot <BR></STRONG>7. <STRONG>Books Of Life<BR></STRONG>8. <STRONG>Big Taboo<BR></STRONG>9. <STRONG>Dancing On Torpedos</STRONG><BR>10. <STRONG>Brace For Impact<BR></STRONG>11. <STRONG>No Survival On Arrival</STRONG></P>
+Автор: Vit Belov
+
+### 01.03.2014 news Новая песня GUN BARREL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом немцев <STRONG>GUN BARREL "Damage Dancer"</STRONG> выходит 21 марта на <STRONG>Massacre Records</STRONG>. Заглавную песню с этой работы можно послушать ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="//www.youtube.com/embed/gr3d9phOVMg?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 28.03.2014 news Новые релизы Escapemind.ru
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Интернет-магазин<STRONG> Escapemind.ru</STRONG> при поддержке <STRONG>MUSICA Production</STRONG> и <STRONG>Фоно</STRONG> представляет новые релизы по лицензии<STRONG> Massacre Records</STRONG></FONT></P>
+<P><STRONG>EPD 14.6/FO1065CD GUN BARREL “Damage Dancer”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>-heavy-power-metal; <SPAN lang=ru-RU>Шестой альбом группы из Кёльна, Германия. Немецкий коллектив старотовал на знаменитом лэйбле </SPAN><STRONG>SPV</STRONG> <SPAN lang=ru-RU>в 2001 году, затем в карьере </SPAN><STRONG>GUN BARREL</STRONG> <SPAN lang=ru-RU>был </SPAN><STRONG>Limb Music</STRONG>. <SPAN lang=ru-RU>Во время своей долгой карьеры немцы работали с такими корифеями, как </SPAN><STRONG>Piet Sielk (IRON SAVIOR)</STRONG> <SPAN lang=ru-RU>и </SPAN><STRONG>Uwe Lullis (ex-GRAVE DIGGER, ex-REBELLION)</STRONG>. <SPAN lang=ru-RU>Сведением нового альбома <STRONG>"</STRONG></SPAN><STRONG>Damage Dancer"</STRONG> <SPAN lang=ru-RU>занимался <STRONG>Yenz Leonhardt (Iron Savior, Savage Circus, Stormwarrior).</STRONG> Мастеринг сделал знаменитый<STRONG> Tommy Hansen (Helloween, Pretty Maids, TNT).</STRONG> Запоминающуюся обложку создал художник <STRONG>Manfred Jasmund</STRONG>. </SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU>Песня <STRONG>"</STRONG></SPAN><STRONG>Damage Dancer"</STRONG><SPAN lang=ru-RU>: </SPAN></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/gr3d9phOVMg?feature=player_embedded" frameBorder=0 width=640 allowfullscreen iframe&gt;< SPAN></P></body></html></IFRAME></CENTER>
+<P></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Трек-лист:</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>01. <STRONG>Unleashing the Hounds</STRONG> 00:50 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>02. <STRONG>Damage Dancer</STRONG> 03:57 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>03. <STRONG>Bashing Thru</STRONG> 04:16 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>04. <STRONG>Judgement Day</STRONG> 04:31 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>05. <STRONG>Passion Rules</STRONG> 05:01 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>06. <STRONG>Building a Monster</STRONG> 04:10 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>07. <STRONG>Whiteout</STRONG> 04:41 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>08. <STRONG>Back Alley Ruler</STRONG> 04:26 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>09. <STRONG>Ride the Dragon</STRONG> 04:14 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>10. <STRONG>Heading for Desaster</STRONG> 03:53 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>11. <STRONG>Vultures Are Waiting</STRONG> 06:11 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>12. <STRONG>Rise Up to the Storm</STRONG> 03:53 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Время альбома: 50:03</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Поклонникам <SPAN lang=en-US><STRONG>WIZARD, IRON SAVIOR.</STRONG></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><STRONG>EPD14.7/FO1066CD CRYSTAL TEARS “Hellmade”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><SPAN lang=en-US>-speed-power-metal; </SPAN>Открытие для <SPAN lang=en-US><STRONG>Massacre Records</STRONG> </SPAN>из Греции. Интереснейший музыкальный материал на стыке <SPAN lang=en-US>speed, heavy </SPAN>и <SPAN lang=en-US>power-metal. </SPAN>Вокалист <SPAN lang=en-US><STRONG>Nico Soren Adamsen (ex-CRYSTAL EYES, ex-ARTILLERY, ex-INMORIA, DIGNITY</STRONG>). </SPAN>Группа была основана в 1997 году и <STRONG>"</STRONG><SPAN lang=en-US><STRONG>Hellmade"</STRONG> </SPAN>её третий альбом. Предыдущие две работы , выпущенные профильных лэйблах <SPAN lang=en-US><STRONG>Pure Steel records</STRONG> </SPAN>и <SPAN lang=en-US><STRONG>7hard Records</STRONG> </SPAN>создали коллективу крепкую фан-базу. На прошлом альбоме <STRONG>"</STRONG><SPAN lang=en-US><STRONG>Generation X"</STRONG> </SPAN>у микрофонной стойки отметился <SPAN lang=en-US><STRONG>Ian Parry (ELEGY)</STRONG>. </SPAN>Продюсером нового альбома выступил <SPAN lang=en-US><STRONG>R.D. Liapakis (MYSTIC PROPHECY</STRONG>). </SPAN>Альбом включает кавер-версию на песню <SPAN lang=en-US><STRONG>MIDNIGHT OIL “Beds Are Burning”</STRONG>.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Видео-клип на песню <STRONG>"</STRONG><SPAN lang=en-US><STRONG>Out Of The Shadows"</STRONG>: </SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><SPAN lang=en-US>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/0SwTh5Khtzk?feature=player_embedded" frameBorder=0 width=640 allowfullscreen iframe&gt;< SPAN></P>
+<p></body></html></IFRAME></SPAN>
+<P></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><SPAN lang=en-US>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Трек-лист:</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>01. <STRONG>Destination Zero</STRONG> 03:43 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>02. <STRONG>The Skies Are Bleeding</STRONG> 03:25 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>03. <STRONG>Out of the Shadows</STRONG> 03:58 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>04.<STRONG> The Devil Inside</STRONG> 03:29 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>05. <STRONG>Resurrection Suicide</STRONG> 03:20 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>06. <STRONG>Psycho Pollution</STRONG> 03:59 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>07. <STRONG>Under Your Skin</STRONG> 03:51 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>08. <STRONG>Violent New Me</STRONG> 03:03 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>09. <STRONG>Ever Alone</STRONG> 03:44 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>10. <STRONG>Rock n Growl</STRONG> 03:56 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>11. <STRONG>Beds Are Burning</STRONG> 04:12 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Время звучания: 40:40</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Поклонникам:<STRONG> <SPAN lang=en-US>MYSTIC PROPHECY, ARTILLERY</SPAN></STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><STRONG><SPAN lang=en-US>Лучшие цены в магазине <A href="http://escapemind.ru/">http://Escapemind.ru</A></SPAN></STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><STRONG><SPAN lang=en-US>
+<CENTER><IMG border=0 src="/images/news_rus/2014.03/26791.jpg" width=300 height=305><IMG border=0 src="/images/news_rus/2014.03/26792.jpg" width=300 height=304></SPAN></STRONG> 
+<P></P></SPAN></CENTER></CENTER>
+Автор: Vit Belov
+
+### 06.08.2016 news GUN BARREL поменяли вокалиста
+
+<p>Новым вокалистом немецкой heavy metal формации <strong>GUN BARREL</strong> стал <strong>Thomas Nathan</strong>. Предыдущий фронтмен группы<strong> Patrick Suhl</strong> покинул коллег, из-за карьеры профессионального музыканта, график которой нельзя было совместить с творчеством в GUN BARREL.</p><p>Patrick Suhl спел на двух альбомах GUN BARREL "<strong>Brace For Impact</strong>" (2012) и "<strong>Damage Dancer</strong>" (2014).</p><p>&nbsp;<center><img width="403" height="402" src="/images/news_rus/2016.08/29745.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 06.08.2016 news GUN BARREL: New Vocalist
+
+<p><strong>GUN BARREL</strong> recently announced that they've parted ways with their now ex-vocalist <strong>Patrick Sьhl</strong> due to his busy schedule as a full-time professional musician.</p><p>Patrick stated:</p><p>"<em>First things first: There are no personal or musical differences! I still love the music and the guys. Unfortunately, I'm not able to fully concentrate on Gun Barrel due to my busy schedule. I look back on five fantastic years, two great albums, my first worldwide release, my first tour and much more. I am also happy and grateful for many friendships I would not have formed without Gun Barrel. Mark my words, everyone: We are and we will stay friends! I’m looking forward to my first Gun Barrel gig as part of the audience, with a beer in hand. There is only one thing left to say: Thanks a lot!</em>"</p><p>The band added:</p><p><em>"We totally agree and are so glad that we've found a friend in Patrick, and look back on great times. We wish him all the best for his musical and personal future, and look forward to being a part of it. Patrick, you will alway be one of us, no matter where you sing! We had great times and a fantastic cooperation with Patrick and now we are looking forward to a new and exciting Gun Barrel era</em>."</p><p>Patrick's successor will be <strong>Thomas "Thomale" Nathan</strong>.</p><p>He is no newcomer, and was baptised by fire at GUN BARREL's gig in the Czech Republic in early August, where he reportedly rocked like hell.</p><p>&nbsp;<center><img width="403" height="402" src="/images/news_rus/2016.08/29745.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 15.09.2016 news GUN BARREL взяли второго гитариста
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новым участником немцев <strong>GUN BARREL</strong> стал гитарист <strong>Heiwi Esser</strong> (Substyle, Shanai). Это первый раз в истории группы, когда в GUN BARREL будет два гитариста.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Как уже сообщалось, группа недавно сменила и вокалиста. Пятым певцом в истории GUN BARREL стал <strong>Thomas Nathan</strong> (NOKTA).</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Приобрести лицензионную версию последнего альбома немцев "<strong>Damage Dancer</strong>" можно в магазине Escapemind.ru: <a href="http://escapemind.ru/goods/GUN-BARREL-Damage-Dancer">http://escapemind.ru/goods/GUN-BARREL-Damage-Dancer</a></font></p><p><center><img width="500" height="347" src="/images/news_rus/2016.09/29964.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 15.09.2016 news GUN BARREL introduce new line-up
+
+<p>The line-up of <strong>GUN BARREL</strong> underwent a few changes recently. Following the departure of vocalist Patrick Sьhl last month<strong>, Thomale Nathan</strong> stepped into his shoes.</p><p>Now the dirty metal rock 'n' roll outfit has welcomed another new band member: Guitarist<strong> Heiwi Esser</strong>!</p><p>The band stated:</p><p>"<em>Heiwi 'Doc' Esser has joined our ranks on guitar! The composer and guitarist of Substyle, Shanai and Nathan/Esser will add yet another facet to Gun Barrel! His classic rock attitude matches us perfectly! Heiwi is an experienced musician and producer both in the studio and on stages worldwide, having supported bands like Slayer, Motцrhead or In Extremo in the past.</em>"</p><p>GUN BARREL's line-up now consists of vocalist Thomale Nathan, guitarist Rolf Tanzius, guitarist Heiwi Esser, bassist Tomcat Kintgen and drummer Toni Pinciroli.</p><p><center><img width="500" height="347" src="/images/news/2016.09/29965.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

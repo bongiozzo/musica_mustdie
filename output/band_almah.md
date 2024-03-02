@@ -106,6 +106,178 @@ Felipe Andreoli - Bass
 * C группой "Stratovarius" Laurri Porra (bass)
 * C группой "Kamelot" Casey Grillo (drums)
 
+## Публикации
+
+### 27.04.2007 reviews Громкие имена не помогли
+
+<P>Almah это сольный проект вокалиста группы Angra Edu Falaschi. Бразилец привлек к нему, однако, не своих соотечественников, а музыкантов из холодных европейских стран: на гитаре здесь Emppu Vuorinen&nbsp;(Nightwish), на басу Lauri Porra (Stratovarius), а на ударных Casey Grillo (Kamelot). В общем и целом - очередная супер-группа. И вновь никакого супер-альбома. Хотя, быть может, после совершенно провального "Aurora Consurgens" и такая пластинка покатит. Но как бы то ни было с Ангрой - громкие северные имена не помогли. Зачем было делать подобное, мне совершенно непонятно. Здесь нет абсолютно ничего, за что могло бы зацепиться ухо. Ни интересных мелодий, ни неожиданных ходов. И что тут такого, что товарищ Фалаши не смог бы воплотить в своей основной группе (ибо зачем иначе создавать отдельный проект)??? Вымученный прог-пауэр, который вряд ли понравится даже ярым поклонниками бразильцев. Песенка 'Breathe' плохая копия великих U2, просто издевательство какое-то... Прослушать данную пластинку полностью можно только с помощью кнопки "скип". Иначе становится так скучно, что просто невозможно. И особенно учитывая "громкие" имена - один из самых слабых альбомов этого года. А совершенно не пойми к чему "бонус-трэки" только усугубляют впечатление.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 19.01.2009 news Новое видео ALMAH
+
+<P>Проект вокалиста <STRONG>ANGRA Edu Falaschi ALMAH</STRONG> выложил новый клип на песню <STRONG>"Beyond Tomorrow". </STRONG>Режиссёром этой работы выступил известный бразилец <STRONG>Rodrigo Giannetto</STRONG>,&nbsp;работающий на MTV Бразилия.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=50285892">Beyond Tomorrow</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=50285892,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=50285892,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.05.2009 news ALMAH сочиняют
+
+<P><STRONG>ALMAH </STRONG>почти закончили сочинение материала для третьего альбома группы. </P>
+Автор: Vit Belov
+
+### 15.07.2009 news Песня ALMAH войдет в саундтрек бразильского фильма 
+
+<P>Песня "<STRONG>Torn</STRONG>" с альбома группы <STRONG>ALMAH</STRONG> (проекта музыкантов <STRONG>ANGRA</STRONG> - <STRONG>Эду Фаласки</STRONG> - вокал и <STRONG>Фелипе Андреоли</STRONG> - бас) "<STRONG>Fragile Equality</STRONG>" (2008) войдет в саунд-трек бразильского короткометражного фильма "<STRONG>Ca&#231;a-Palavra</STRONG>". В фильме рассказана история семьи, которая живет уединенно в своем фамильном доме в горах, в одном из таких мест, где время остановилось. Визит молодой Жулианы нарушает рутину существования обитателей этого негостеприимного места. </P>
+<P>Группа <STRONG>ALMAH</STRONG> образована в 2006 году. Второй студийный альбом коллектива "<STRONG>Fragile Equality</STRONG>" увидел свет в сентябре-октябре 2008 года через <STRONG>AFM</STRONG> (Европа), <STRONG>JVC </STRONG>(Япония) и <STRONG>Laser</STRONG> (Бразилия). В настоящий момент <STRONG>ALMAH</STRONG> занят написанием материала для следующего альбома.</P>
+Автор: Dimas
+
+### 15.07.2009 bios 
+
+<P>ALMAH появился на свет как одноименный сольный альбом вокалиста ANGRA Edu Falaschi (Эду Фаласки). Эду по праву считается одним из самых признанных металлических вокалистов последнего десятилетия. Вместе с ним один из флагманов бразильский heavy metal сцены ANGRA открыли свою «новую эру» после ухода одного из основателей группы Андре Матоса. Вместе с ним ANGRA выпустила три студийных альбома, несколько синглов, а также dvd, которые стали популярны по обе стороны Атлантики и были проданы общим тиражом около миллиона экземпляров.</P>
+<P>В 2006 году Эду Фаласки, автор таких хитов ANGRA как Nova Era, Heroes Of Sand, The Course Of Nature, Spread Your Fire, Bleeding Heart и др., обратился к реализации других сторон своего таланта, в частности автора песен, аранжировщика, продюсера и, в первую очередь, организатора собственного проекта - ALMAH. Слово “Almah” созвучно португальскому “Alma” («душа»).</P>
+<P>В записи дебютного альбома участвовали: гитарист NIGHTWISH Emppu Vuorinen, басист STRATOVARIUS Laurri Porra, ударник KAMELOT Casey Grillo. Помимо звезд основного состава к записи были привлечены Mike Stone (Queensryche), Edu Ardanuy (Dr.Sin), National Brazilian Gospel Choir и другие. Альбом был смикширован одним из самых известных в Бразилии специалистов Adriano Daga (Silverchair, Lenny Kravitz, etc, обладатель GRAMMY-2005). Диск был выпущен в начале 2007 года ведущими металлическими лейблами Европы, Азии и России AFM Records, CD-Maximum и JVC. <BR>В течение месяца Almah достиг 23 позиции в альбомных чартах в Германии, а также собрал немало наград в Японии и Бразилии. В России диск был выпущен 5 марта 2007 года компанией CD-Maximum и был высоко оценен российской прессой: Metal Library 5/5 (9/10), Dark City 4/5, The MetalList.com 7,5/10 и т.д. </P>
+<P>Летом 2007 года в карьере ANGRA наступил драматический момент, связанный с различного рода внутренними проблемами, включая разногласия с менеджментом, которому принадлежит имя группы. В итоге, ANGRA после окончания мирового турне в поддержку альбома Aurora Consurgens (2006) ушла в, как потом оказалось, двухгодичный отпуск. </P>
+<P>Однако, к тому времени ALMAH уже начал набирать силу как полноценная группа. Правда, на то, чтобы сформировать истинный коллектив единомышленников, которые на сто процентов могли бы посвятить себя группе, понадобилось более полугода. Первоначально в состав ALMAH вошли музыканты ANGRA Aquiles Priester (ударные), Felipe Andreoli (бас) и Fabio Laguna (клавишные) и Dr. SIN Edu Ardanuy (гитара). Группа выступила на концертах в родном Сан-Паулу и Куритибе в июле 2007, собрав в общей сложности 5.000 зрителей. </P>
+<P>Однако, из-за занятости в своей главной группе Edu Ardanuy не смог принять дальнейшего участия в деятельности ALMAH, тем более новый альбом Dr. SIN был на подходе. Замена нашлась достаточно быстро в лице Marcelo Barbosa – гитариста бразильских прогрессивщиков Khallice - из города Бразилиа. Кроме того, Марсело основал и возглавляет одну из крупнейших музыкальных школ Бразилии - GTR. По его методикам учится более 500 учеников в трех учебных центрах института, расположенного в столице страны. </P>
+<P>В таком составе в сентябре – октябре 2007 года ALMAH провел успешный тур по Бразилии. Однако, затем в коллективе снова начались проблемы с составом. Декабрь – январь 2007-2008 прошли в мастер-классах Фаласки по Бразилии, в ряде которых принял участие Марсело Барбоза и новое лицо в истории группы – Марсело Морейра, ударник ураганной power metal группы Burning In Hell. И через некоторое время он был подтвержден в качестве полноценного участника ALMAH. Оставалось найти еще одного музыканта – им стал гитарист Паулу Шребер. </P>
+<P>В таком составе ALMAH приобрел качественно новое звучание. После эклектичного и отчасти экспериментального дебютного альбома, звучание второго диска Fagile Equality (2008) представляет собой удачное сочетание ураганных номеров со стремительными сдвоенными гитарными соло и среднетемпового материала. </P>
+<P>Fragile Equality был выпущен 24 сентября 2008 года в Японии и Бразилии, соответственно на JVC и Laser Company, и 17 октября в Европе и США на AFM Records. Благодаря перерыву в деятельности ANGRA Эду и Фелипе удалось полностью сконцентрироваться на группе. </P>
+<P>Все музыканты коллектива активно принимали участие в сочинении материала для&nbsp; “Fragile Equality”, Эду Фаласки и Фелипе Андреоли также выступили в роли продюсеров. Альбом был записан в Norcal Studios (S&#227;o Paolo) летом 2008. Концепция альбома повествует о "балансе между элементами во вселенной", также по этому сюжету должна быть выпущена книга "Fragile Equality - Equinox-Book 1", созданная в соавторстве с Эду в стиле манга.</P>
+<P>Первый пресс альбома в Бразилии был полностью распродан в первые же три дня после релиза. По версии журнала Roadie Crew диск стал одним из самых продаваемых в Бразилии металлических релизов. ALMAH и “Fragile Equality” были названы Лучшей группой 2008, Лучшим альбомом 2008, Лучшей обложкой 2008 по версии читателей журнала Roadie Crew, контрибюьторов веб сайта Whiplash и Rock Undeground (Бразилия). По оценкам международной прессы: Metal Temple website (Greece) 4.5/5 (excellent), Novo Metal website (Brazil) 9.0/10, Lords Of Metal website (Holland) 80/100, Rock Eyez website 4.5/5,&nbsp; Pavillon 666 website (France) 9/10, Whiplash (Brazil) 9/10 среди прочих оценок.</P>
+<P>В январе 2009 Almah выпустил новый видеоклип Beyond Tomorrow, снятый в декабре 2008 в Бразилиа Rodrigo Gianetto, который также работает на MTV Brazil. В марте 2009 группа выпустила интернет сингл All I Am (acoustic version) через свой Equality Fan Club.</P>
+<P>Angra объявила о возвращении в марте 2009, однако, Almah не прекратил своей деятельности, а фактически одновременно заявил о начале работы над материалом для третьего студийного альбома.</P>
+Автор: Dimas
+
+### 15.07.2009 bios 
+
+<P>ALMAH was initially established in 2006 as a project of ANGRA’s singer Edu Falaschi.&nbsp; With Angra Edu released 3 important albums and composed many hits like Nova Era, Heroes Of Sand, The Course Of Nature, Spread Your Fire, Bleeding Heart; this renowned Brazilian prog-power band has already sold over 1 million cds during 15-year career. No wonder that Edu’s new band ALMAH achieved big success worldwide very fast.</P>
+<P>Since 2006 ALMAH has released two albums worldwide, has turned from a solo-project into a regular band with excellent musicians, and has won its own important place on the world metal scene. Edu Falaschi’s mate from Angra Felipe Andreoli also joined the band in 2007 and they work in ALMAH simultaneously with Angra. ALMAH is currently working on the third studio album.</P>
+<P>The first self-titled ALMAH album was released in the second half of 2006 (Japan/Victor-JVC and Brazil/Laser Company) / in March 2007 (Europe/AFM Records). Besides singing Edu Falaschi also produced the record, composed all the songs and wrote all the lyrics. He recorded acoustic guitars and keyboards and created all the arrangements for every instrument, including orchestrations. </P>
+<P>Edu Falaschi: I was searching for a name – easy name to remember and to pronounce in all languages and I find out that Almah with «h» in Hebrew means virginity and purity but at the same time I find out in the bible many religious people say that it means the opposite, it means malice and perversion. Then I fought – ok two opposite meanings it’s very interesting and I can use this idea to make lyrics – I decided to talk about human feelings in a whole album - and human feelings can be good and bad – like liberty, like love or we can feel something like freedom, we can feel envy and greed – bad feelings. That’s how I means soul and the soul in Spanish is soul as well, and I am always finding different meanings of this word – always good meanings.</P>
+<P>The album was recorded in Finland and Brazil with the following musicians: Emppu Vuorinen (guitars – Nightwish), Lauri Porra (bass – Stratovarius) and Casey Grillo (drums – Kamelot) and special guest appearances: Mike Stone (guitars – Queensrяche), Edu Ardanuy (guitars – Dr. Sin) and Sizгo Machado (bass – Tom Jobim, Chico Buarque and others) among others. The debut album got excellent reviews in many important rock magazines and websites worldwide. Almah was recognized as one of the most important power-metal bands, and Edu Falaschi was called one of the best singers by Burrn! magazine readers (Japan).</P>
+<P>The second album “Fragile Equality” was released on September 24th in Asia/Brazil by JVC and Laser Company Records and on October 17th in Europe/USA/Canada by AFM Records. As far as in June 2007 due to some reasons ANGRA took a break almost for two years, Edu was able to concentrate on ALMAH. The solo project month by month was turning into a real band with stable line-up. </P>
+<P>Besides Edu, who is, of course, handling the vocals, his ANGRA’s mate Felipe Andreoli on bass has participated in ALMAH since their very beginning as a regular band. The Berklee-graduated guitar wizard Marcelo Barbosa (Khallice) joined the band right before its first tour in August 2007. During pre-production stage of “Fragile Equality” the drummer Marcelo Moreira (Burning In Hell) and the second guitarist Paulo Schroeber entered ALMAH. All the members contributed actively to the songwriting process of “Fragile Equality”, with Edu Falaschi and Felipe Andreoli being responsible for the production as well. CD was recorded in Norcal Studios (Sгo Paolo) in the summer 2008. Thus, the second ALMAH record “Fragile Equality” was a real display of the first class musicianship, of the highest level of the compositions and the voice of Edu Falaschi. The lyrical concept of the album is about "the balance between all the elements of the universe" based on a book that Edu is the co-writer for. The book "Fragile Equality - Equinox-Book 1" (done in Manga style) is to be released sometime later, with a karaoke CD of the “Fragile Equality” album. </P>
+<P>In Brazil the first press of the album was sold out during the first day of official sales. According to the magazine Roadie Crew the album became one of the best selling albums in Brazil. ALMAH and “Fragile Equality” were recognized by the readers of Roadie Crew magazine (Brazil), by the contributors of the website Whiplash (Brazil) and the website Rock Undeground (Brazil) as THE BEST BRAZILIAN BAND 2008, THE BEST ALBUM 2008, THE BEST ARTWORK 2008 among other nominations awarded to Almah musicians.</P>
+<P>“Fragile Equality” in mass media: Metal Temple website (Greece) 4.5/5 (excellent), Novo Metal website (Brazil) 9.0/10, Lords Of Metal website (Holland) 80/100, Rock Eyez website 4.5/5,&nbsp; Pavillon 666 website (France) 9/10, Whiplash (Brazil) 9/10 among many other reviews.</P>
+<P>The Fragile Equality tour started in Sгo Paulo in November 2008 and finished in April 2009 in Rio de Janeiro. In July and August 2008 ALMAH played on the main stage of musical festivals PНAUI POP and PORГO DO ROCK. </P>
+<P>In January 2009 Almah launched the new video clip Beyond Tomorrow. It was filmed in December 2008 in the capital of Brazil – Brasнlia by Rodrigo Gianetto who works also for MTV Brazil. </P>
+<P>The band has its own fan clubs all around the world, in Europe, Japan, Russia and, of course, Brazil. <BR>In March 2009 the band released its first Internet single All I Am (with acoustic version of this song) through its Brazilian Equality Fan Club.</P>
+<P>Angra returned to the high activities in March 2009 but Almah announced the start of composing songs for the follower of “Fragile Equality” which is to be released in 2010.<BR>&nbsp;</P>
+Автор: Dimas
+
+### 22.07.2009 news ALMAH войдут в студию
+
+<P>Бразильцы<STRONG> ALMAH</STRONG> продолжают сочинять материал для нового альбома, который выйдет в первой половине 2010 года. Проект вокалиста <STRONG>ANGRA Edu Falaschi</STRONG> войдёт в студию в сентябре. </P>
+Автор: Vit Belov
+
+### 27.07.2009 news Гитарист ALMAH Марсело Барбоза - эндорсер усилителей Orange
+
+<P><STRONG><IMG border=0 hspace=10 alt="" align=left src="/images/news_rus/2009.07/14741.jpg" width=274 height=350>Марсело Барбоза</STRONG> стал эндорсером&nbsp;всемирно известной британской компании <STRONG>ORANGE</STRONG> (усилители): http://www.orange-amps.com/. В числе эндорсеров этой компании такие артисты как <STRONG>Tony Iommi, Gary Moore, AC/DC, Iced Earth, Jimmy Page, Slipknot</STRONG> и другие. Также <STRONG>Барбоза</STRONG> является эндорсером гитарной компании <STRONG>Tagima, Santo Angelo</STRONG> - кабели, <STRONG>NIG</STRONG> - педали, <STRONG>Elixir </STRONG>- струны и <STRONG>IBOX</STRONG>. В настоящий момент <STRONG>Марсело Барбоза</STRONG> занят подготовкой материала для третьего альбома<STRONG> ALMAH</STRONG>, а также второго студийного альбома своей другой группы <STRONG>KHALLICE</STRONG>.</P>
+Автор: Dimas
+
+### 29.07.2009 news Edu Falaschi о новом студийном альбоме ALMAH
+
+<P><IMG border=0 hspace=10 alt="" align=left src="/images/news_rus/2009.07/14742.jpg" width=257 height=350>Бразильская prog power metal группа <STRONG>ALMAH</STRONG> в настоящий момент готовит материал для третьего студийного альбома. Вокалист <STRONG>Edu Falaschi</STRONG> информирует о текущем положении дел:<BR>“С огромной радостью сообщаю вам, что очень скоро у нас на руках будет полностью сочиненный материал для нового альбома. «Химия» нашего текущего состава так хороша, и результаты, которых мы добились с "<STRONG>Fragile Equality</STRONG>", оказались настолько фантастическими, что мы и не прекращали работу над новыми песнями. Все они будут звучать очень энергично, с современными и тяжелыми пассажами. Без сомнения, третий CD будет представлять собой микс того, что <STRONG>ALMAH</STRONG> делал на предыдущих двух альбомах, конечно, с новым звучанием и новыми идеями. Очень скоро мы обнародуем видео и фото с процесса пре-продукции альбома, и, я надеюсь – фрагменты новых композиций! Запись в студии запланирована на сентябрь с тем, чтобы диск появился в первой половине 2010 года.<BR>Текущий состав группы <STRONG>ALMAH</STRONG>: <STRONG>Edu Falaschi</STRONG> – вокал (<STRONG>ANGRA</STRONG>), <STRONG>Felipe Andreoli</STRONG> – бас (<STRONG>ANGRA</STRONG>), <STRONG>Marcelo Barbosa</STRONG> – гитары (<STRONG>KHALLICE</STRONG>), <STRONG>Paulo Schroeber</STRONG> – гитары, <STRONG>Marcelo Moreira</STRONG> – ударные (<STRONG>BURNING IN HELL</STRONG>). </P>
+<P>Кроме того, <STRONG>Эду Фаласки</STRONG> продюсирует дебютный альбом молодой бразильской группы <STRONG>STILL ALIVE.</STRONG> По словам продюсера, альбом будет просто фантастическим, с крутыми песнями и мощной энергетикой. По словам <STRONG>Эду Фаласки</STRONG>, первый полнометражный CD <STRONG>STILL ALIVE</STRONG> будет выпущен в 2010 году.</P>
+<P><STRONG>Эду Фаласки</STRONG> начал свою продюсерскую карьеру с группы <STRONG>SYMBOLS</STRONG>, в которую был приглашен в 1998 году именно в качестве продюсера, но также занял место и за микрофоном. Он спродюсировал оба альбома <STRONG>ALMAH</STRONG>. В 2009 <STRONG>Фаласки</STRONG> был приглашен бразильской группой <STRONG>ARTEMIS</STRONG> спродюсировать их дебютный альбом, работа близка к завершению, и диск должен быть выпущен до конца этого года. В то же время музыкант дает концерты в составе <STRONG>ANGRA</STRONG> и <STRONG>ALMAH</STRONG> и готовит материал для третьего студийного альбома <STRONG>ALMAH</STRONG>.</P>
+Автор: Dimas
+
+### 05.10.2009 reviews Идеальный современный power-metal альбом
+
+<P>Уже первый альбом ANGRA с вокалистом Edu Falaschi “Rebirth”, вышедший в 2001 году, показал, в каком направлении будет двигаться знаменитая бразильская группа. Три первых альбома с голосистым Andre Matos остались в прошлом. Мы любили их, но новое лицо группы переводило её из разряда «музыки на любителя» в разряд популярнейших power-metal коллективов, которым по силам конкурировать с ведущими группами в этом жанре.</P>
+<P>Edu Falaschi не показал себе столь оригинальным певцом, но его качественный вокал идеально подходил для музыки, которая впредь стала основной для группы. Между тем Edu выпускает уже второй сольный альбом под вывеской ALMAH. Теперь это самая настоящая группа, а не проект, как было на дебюте. И признаюсь, я был поражён качеством “Fragile Equality”. Никогда бы не подумал, что какой-то «сольник» сможет настолько впечатлить. Что теперь будет на новой ANGRA, я даже не представляю. На этом же диске все песни подходят под определение идеальных power-metal хитов. Великолепное исполнение, запоминающиеся мелодии, баллады, симфонические аранжировки. Но всё в меру, без перетягивания музыкального полотна в сторону одного из направлений современного heavy-power-metal. Нет, пожалуй, здесь только heavy-metal забоя, но он ALMAH и не требуется. Альбом слушается на одном дыхании. Советую всем любителям стиля.</P>
+<P>Приятный сюрприз. После не самого любимого мною последнего альбома ANGRA, я уже поостыл к бразильским музыкантам, из которых состоит эта группа, но “Fragile Equality” меняет моё мнение, и я начинаю с нетерпением ждать. Ждать новых работ от вокалиста Edu Falaschi.</P>
+Автор: Vit Belov
+
+### 03.05.2011 news ALMAH войдут в студию
+
+<P>Группа вокалиста<STRONG> ANGRA</STRONG> <STRONG>Edu Falaschi ALMAH </STRONG>вошла в студию вчера для запси третьего альбома, который выйдет в сентябре. </P>
+<P><center><IMG height=356 src="/images/news_rus/2011.05/19373.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 07.07.2011 news ALMAH назвали альбом
+
+<P>Третий альбом проекта вокалиста <STRONG>ANGRA Edu Falaschi</STRONG> <STRONG>ALMAH </STRONG>получил название <STRONG>"Motion". </STRONG>Пластинка должна выйти этой осенью на <STRONG>AFM</STRONG>. Альбом был записан в <STRONG>Norcal Studio</STRONG> в Сан-Паоло. Группа обещает более тяжёлый материал с меньшим влиянием мелодики.</P>
+<P><center><IMG height=400 src="/images/news_rus/2011.07/19962.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 12.10.2011 news Новый клип ALMAH
+
+<P>Новейший видео-клип группы<STRONG> ALMAH</STRONG> на песню "<STRONG>Late Night in '85</STRONG>" можно посмотреть ниже. Песня войдёт в новый альбом бразильского коллектива "<STRONG>Motion</STRONG>" который выйдет послезавтра на <STRONG>AFM</STRONG>. </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/mCu1no-MtLo" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 17.11.2011 reviews Актуальная музыка от ALMAH
+
+<P>По словам лидера ALMAH вокалиста Edu Falaschi (ANGRA), новый альбом “Motion” демонстрирует настоящее лицо этой группы. С ужасом заглянув в это лицо, я могу со всей ответственностью заявить, что мне было как-то спокойнее, когда бразильские музыканты держали свои истинные страсти где-то внутри.</P>
+<P>Edu собственноручно сфотографировал какой-то лифт в чёрно-белом варианте и поместил его на обложку этого альбома. Также собственноручно вокалист разрушил так порадовавший нас на прошлой пластинке «счастливый» power-metal. Музыка ALMAH теперь звучит совсем по-другому, её саунд больше подошёл бы альтернативным командам 90-х годов. Нечто подобное представляли METALLICA на своих постмузыкальных альбомах в те же 90-е годы. Гаражное звучание, монотонные запевы и цитаты из второсортного glam-rock 80-х годов. Забавно, что музыканты ALMAH считают это звучание актуальным. Действительно, если сравнивать звук на старых альбомах HELLOWEEN с звуком ALICE IN CHAINS кому-то могло бы показаться, что последние звучат более «фирмово». В наше время подобные сравнения уже не в моде, power-metal и alternative начала 90-х уже не представляют актуального интереса.</P>
+<P>Зачем было запарывать беспардонно то, что так впечатлило поклонников мелодичного метала по всему миру на прошлом альбоме? Edu Falaschi находится в поиске, но то, что он ищет широкую публику вряд ли порадует.</P>
+Автор: Vit Belov
+
+### 06.10.2012 news Новое видео ALMAh
+
+<div><font size="2" face="Arial"><strong></strong></font>&nbsp;</div><div><font size="2" face="Arial"><strong>ALMAh</strong> представляет новый видеоклип, снятый 
+на песню “<strong>Days of the New</strong>” с последнего на сегодняшний день студийного 
+альбома группы "<strong>MOTION</strong>" (AFM Records/Fono 2011). </font></div><font size="2" face="Arial">
+<div>
+<p>Видео было подготовлено компанией <strong>DV Produ&#231;&#245;es</strong> совместно с продюсером<strong> Алексом 
+Милези</strong>, который отвечал за два предыдущих клипа группы “<strong>Trace Of Trait</strong>” и “<strong>Late 
+Night in ’85</strong>&#8243; (2011).</p>
+<p>В данный момент <strong>ALMAh</strong>, ведомый экс-вокалистом<strong> Angra Эду Фаласки</strong>, занят 
+сочинением материала для очередной студийной работы. В мае 2012 года Эду объявил 
+об уходе из <strong>Angra</strong> и ныне сконцентрировался на собственной группе и карьере 
+продюсера.</p></div></font><div></div>
+
+<center><iframe height="315" src="http://www.youtube.com/embed/olfriOT3fHQ" frameBorder="0" width="560" allowfullscreen=""></iframe></center><center>&nbsp;</center><center>&nbsp;</center>
+Автор: Dimas
+
+### 03.02.2013 news Новый клип ALMAH
+
+<P>Новый ролик <STRONG>ALMAH</STRONG> <STRONG>"Living And Drifting" </STRONG>на трек с последнего альбома <STRONG>"Motion</STRONG>" можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/xHXBh3M3liM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 05.05.2016 news Первая сольная работа Edu Falaschi
+
+<P>Подтверждена дата релиза первого сольного альбома бразильского музыканта, экс-вокалиста <STRONG>ANGRA</STRONG>, основателя и лидера <STRONG>ALMAH</STRONG>, <STRONG>Edu Falaschi</STRONG>. В Европе запись выйдет на лейбле <STRONG>Pride & Joy Music</STRONG> 20 мая 2016 года. Это акустический диск переаранжированных и перезаписанных с акустической гитарой, фортепиано и оркестром уже известных поклонникам&nbsp;музыканта песен из репертуара его бывших групп. Трек-лист включает в себя песни написанные при участии музыканта: </P>
+<P>1. Nova Era&nbsp;&nbsp;|&nbsp; 2. Bleeding Heart&nbsp; |&nbsp; 3. Arising Thunder&nbsp; |&nbsp; 4. Rebirth&nbsp; |&nbsp; 5. Breathe&nbsp; |&nbsp; 6. Angels And Demons&nbsp; |&nbsp; 7. Spread Your Fire&nbsp; |&nbsp; 8. Wishing Well&nbsp; |&nbsp; 9. Heroes Of Sand</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.05/29180.jpg" width=320 height=320></CENTER>
+<P></P>
+<P>Уже сейчас можно посмотреть и послушать текстовое видео - новый сингл с&nbsp;этого акустического сольного альбома бразильского вокалиста "<STRONG>Arising Thunder</STRONG>". Эта вещь изначально была записана&nbsp;группой&nbsp;<STRONG>ANGRA</STRONG>&nbsp;в "металлическом" варианте для диска "<STRONG>Aqua</STRONG>", либретто базировалось на пьесе <STRONG>Шекспира</STRONG> "<STRONG>Буря</STRONG>". Здесь представлена более "классическая" аранжировка с фортепиано и оркестром.</P>
+<CENTER><IFRAME height=370 src="http://www.youtube.com/embed/E6q6OX2g374" frameBorder=0 width=490 data-link="http://www.youtube.com/watch?v=E6q6OX2g374" allowfullscreen="allowfullscreen"></IFRAME></CENTER>
+Автор: Dimas
+
+### 13.08.2016 news Новый альбом ALMAH
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Бразильцы<strong> ALMAH</strong>, ведомые бывшим вокалистом<strong> ANGRA Edu Falaschi</strong> выпускают новый альбом<strong> "E.V.O."</strong> 23 сентября на <strong>Pride & Joy/Test Your Metal/King Records</strong>. Пятый студийный альбом коллектива был записан в Сан-Паулу в студии <strong>IMF</strong> продюсером <strong>Tito Falaschi</strong>, сведён <strong>Damien Rainaud</strong> (FEAR FACTORY, DRAGONFORCE). Новая работа концептуальный рассказ об эволюции человека в "эру водолея".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1 - Age of Aquarius (7:13) <br>2 - Speranza (4:55) <br>3 - The Brotherhood (4:41)<br>4 - Innocence (4:35)<br>5 - Higher (5:09)<br>6 - Infatuated (4:05)<br>7 - Pleased To Meet You (4:24)<br>8 - Final Warning (4:13)<br>9 - Indigo (3:46)<br>10 - Corporate War (4:19)<br>11 - Capital Punishment (4:00)</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.08/29805.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 13.08.2016 news ALMAH Reveal Details For 5th Album &#39;E.V.O&#39;; Artwork, Track Listing, Release Date
+
+<p>Brazilian metallers <strong>ALMAH</strong> led by ex-Angra singer <strong>Edu Falaschi</strong> are proud to announce they will be releasing their new&nbsp; album entitled <strong>'E.V.O'</strong> on September 23rd worldwide via <strong>Pride & Joy Music</strong> (EU), <strong>Test Your Metal</strong> (US/MX/CA) and <strong>King Records</strong> (Japan).</p><p>'E.V.O' is the 5th studio album from ALMAH and was recorded in Sгo Paulo, Brazil at<strong> IMF</strong> studios by<strong> Tito Falaschi</strong> plus mixed and mastered by <strong>Damien Rainaud</strong> (Fear Factory, Dragonforce, Baby Metal, etc) at Mix Unlimited in Los Angeles, California. The release is a concept album based on the evolution of people’s mind and soul during the so-called AGE OF AQUARIUS - the new era that the world is about to live. The author of the concept, Edu Falaschi, touches different subjects connected to the main idea, creating very positive lyrics for the album’s atmosphere.</p><p>Musically 'E.V.O' brings a fresh and powerful sound with the typical modern and heavy ALMAH touch, but this time one will be able to realize that it also has a direct connection with the Angra’s “Rebirth” (the first Angra album with Edu Falaschi's voice). The compositions are a pleasant travel between contemporary rock, modern power and prog metal. The vocal lines on 'E.V.O' are very powerful, classic and the vocals have a higher pitch compared to previous ALMAH’s records. It’s very melodic, clean and into the bel canto style.</p><p>Track list:</p><p>1 - Age of Aquarius (7:13) <br>2 - Speranza (4:55) <br>3 - The Brotherhood (4:41)<br>4 - Innocence (4:35)<br>5 - Higher (5:09)<br>6 - Infatuated (4:05)<br>7 - Pleased To Meet You (4:24)<br>8 - Final Warning (4:13)<br>9 - Indigo (3:46)<br>10 - Corporate War (4:19)<br>11 - Capital Punishment (4:00)</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.08/29805.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 29.08.2016 news ALMAH опубликовали лирик-видео
+
+<p>Лирик-видео на песню <strong>ALMAH "Age Of Aquarius"</strong> можно посмотреть ниже. Трек взят с нового альбома "<strong>E.V.O</strong>", который выйдет 23 сентября.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/kXHrA6ro0HY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.08.2016 news ALMAH posted lyric video
+
+<p>A lyric video for the song<strong> ALMAH "Age Of Aquarius"</strong> can be viewed below. The track is taken from the new album "<strong>E. V. O</strong>", which will be released on September 23.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/kXHrA6ro0HY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.12.2016 news ALMAH выпустили новый клип
+
+<p>Новый ролик<strong> ALMAH</strong> на песню "<strong>Speranza</strong>" можно посмотреть ниже. Трек взят с вышедшего пятого альбома коллектива "<strong>E.V.O.</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/58mHkbKT0iY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

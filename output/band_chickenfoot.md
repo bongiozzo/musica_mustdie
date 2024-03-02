@@ -19,6 +19,24 @@
 * C группой "Van Halen" Sammy Hagar, Michael Anthony
 * C группой "The Red Hot Chili Peppers" Chad Smith
 
+## Публикации
+
+### 22.03.2009 news CHICKENFOOT: Новая супергруппа
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая супергруппа<STRONG> CHICKENFOOT</STRONG> готовит к выпуску свой дебютный альбом, а пока музыканты "забивают" даты в клубах США, где представят как свои собственные песни, так и композиции своих оригинальных групп. В составе: <STRONG>Joe Satriani</STRONG>,&nbsp;<B>Sammy Hagar</B> (ex-<B>VAN HALEN</B>),&nbsp;<B>Michael Anthony</B> (ex-<B>VAN HALEN</B>) и&nbsp;<B>Chad Smith</B> (<B>RED HOT CHILI PEPPERS</B>). Две песни можно послушать здесь: <A href="http://www.myspace.com/thechickenfoot">http://www.myspace.com/thechickenfoot</A></FONT></P>
+Автор: Vit Belov
+
+### 22.10.2009 news Новое видео CHICKENFOOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>CHICKENFOOT</STRONG> <STRONG>"Sexy Little Thing" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/VeqpRvFaCtI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/VeqpRvFaCtI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

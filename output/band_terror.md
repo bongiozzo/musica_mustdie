@@ -92,6 +92,113 @@
 * C группой "S.O.S." Scott Vogel - vocals
 * C группой "S.O.S." Nick Jett - drums
 
+## Публикации
+
+### 25.10.2008 reviews Отличный разогрев для hardcore хэдлайнера
+
+<P>Продвинутые любители американского hardcore наверное сейчас закидают меня шапками (бейсбольными), но я никогда не слышал группы TERROR. Я догадываюсь, что это должна быть в меру культовая команда, так как таких имён кому попало не дают. Уже давно кто-нибудь отнял бы, кто-нибудь более культовый.</P>
+<P>Действительно материал TERROR очень mature. Ну, вы понимаете? Группа знает, что хочет, и, главное, знает, как это сыграть. С первых же аккордов “The Damned, The Shamed” слушатель осознаёт, куда попал. В какой-нибудь нью-йоркский клуб, где публику перед AGNOSTIC FRONT разогревают правильные ребята. В общем, в этом и есть вся суть этого альбома. Любители стиля должны приобретать эту работу пренепременно, хотя бы потому, что подобной музыки выходит сейчас не очень много. Остальным же можно подождать и альбома кого-нибудь из хэдлайнеров стиля, TERROR всё-таки не тянут на это звание. Им не хватает мощи и скорости, а так же угара! Угара! Да, угара…</P>
+<P>Хороший hardcore альбом. Старомодный и правильный. Смешно говорить о шедеврах в этом стиле, но этот альбом точно не шедевр.</P>
+Автор: Vit Belov
+
+### 25.01.2009 news TERROR заменили гитариста
+
+<P>Гитарист <STRONG>Doug Weber </STRONG>покинул<STRONG> TERROR</STRONG>, из-за нежелания проводить 90 процентов своего жизненного времени в фургоне во время туров. Новым музыкантов hardcore команды стал <STRONG>Jordan Posner </STRONG>из <STRONG>NO WARNING</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.03.2009 news Box, Hardcore, Ugar
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американцы<STRONG> TERROR</STRONG> выложили клип на песню <STRONG>"Rise Of The Poisoned Youth". </STRONG>Видео содержит кадры выступления коллектива в Куритибе, Бразилия.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=54194946">TERROR - Rise Of The Poisoned Youth (Official Video)</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=54194946,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=54194946,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.12.2009 news TERROR пишут материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Hardcore банда <STRONG>TERROR</STRONG> сочиняет материал для своего пятого альбома <STRONG>"Keepers Of The Faith"</STRONG>, который выйдет в следующем году. </FONT></P>
+Автор: Vit Belov
+
+### 10.01.2011 news TERROR: клип на песню &quot;Keepers Of The Faith&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип лосанджелесской группы <STRONG>TERROR</STRONG> на титульную песню&nbsp;с последнего альбома <STRONG>"Keepers Of The Faith"</STRONG>,&nbsp;можно посмотреть ниже.</FONT></P>
+<CENTER>
+<OBJECT width=640 height=385><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Kuqz_n7KGAA?fs=1&hl=ru_RU"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Kuqz_n7KGAA?fs=1&hl=ru_RU" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="385"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 26.01.2011 reviews TERROR не зажигают в душе огонь
+
+<P>Люди, не слишком близко знакомые со стилем hardcore и получающие о нём информацию только на металлических сайтах и посредством издания альбомов групп этого стиля на металлических лэйблах, узнали о TERROR только несколько лет назад, когда этот коллектив издал альбом на Century Media. В последнее время легенды hardcore разного калибра потянулись на метал-лэйблы. Видимо, пришло время, когда различия между металлом и hardcore полностью нивелировались.</P>
+<P>Несмотря на программное название нового альбома “Keepers Of The Faith”, TERROR не слишком заботит чистота стиля. Все внешние признаки, конечно же, на лицо – чёрно-белое оформление, 30-минутная длительность альбома, песни в среднем звучащие 2 минуты, но в музыкальном материале TERROR позволяют себе слишком много вольностей. Здесь и какие-то странные соло на гитаре, и мелодичные проигрыши, и композиции, больше подходящие мелодичному thrash-metal нежели ортодоксальному hardcore. Вообще же, музыка, которую играют TERROR, не поддаётся логическому анализу. Когда человек орёт в микрофон некоторые провокативные вещи под дьявольский негритянский ритм, это должно зажигать, иначе прослушивание данной музыки не имеет никакого смысла. “Keeper Of The Faith” не пробудил во мне никаких тёплых чувств, мне не захотелось никого побить и не захотелось наконец-то уехать жить в cибирские леса от этого позора, который преследует нас повсюду.</P>
+<P>Предыдущий альбом TERROR показался мне более нужным для мирового hardcore движения. Новая же работа группы проходит мимо.</P>
+Автор: Vit Belov
+
+### 10.03.2011 news Новый клип TERROR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>"Return To Strength" "</STRONG>хардкорщиков" <STRONG>TERROR</STRONG> можно посмотреть ниже. Трек попал на последний альбом коллектива <STRONG>"Keepers Of The Faith". </STRONG></FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/i0TWGMzjcXI?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/i0TWGMzjcXI?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.01.2012 news Новый клип TERROR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Хардкорщики <STRONG>TERROR</STRONG> опубликовали видео на песню "<STRONG>The New Blood</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://www.youtube.com/embed/gfTF1OYCkj8?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.11.2012 news TERROR: &quot;Hard Lessons&quot; 7&quot;
+
+<P>Хардкор банда <STRONG>TERROR</STRONG>, по средством <STRONG>Reaper Records</STRONG>, выпускает 7 дюймовку <STRONG>"Hard Lessons"</STRONG>. Винил выйдет в трёх различных цветах. Предзаказ доступен по ссылке: <A href="http://reaperrecords.bigcartel.com/">http://reaperrecords.bigcartel.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.11/25049.jpg" width=400 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 06.02.2013 news TERROR: шестой студийный альбом &quot;Live By The Code&quot; в апреле
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лосанджелесская hardcore банда <STRONG>TERROR</STRONG> выпускает свой новый, шестой по счёту&nbsp;альбом. Диск, получивший название <STRONG>"Live By The Code"</STRONG>, выйдет в начале&nbsp;апреля.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Распространением <STRONG>"Live By The Code"</STRONG> на территории Северной Америки будет заниматься <STRONG>Victory Records</STRONG>. В Европе же&nbsp;он увидит свет на лейбле <STRONG>Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>25 марта группу <STRONG>TERROR</STRONG> можно будет посмотреть живьём в московском клубе <STRONG>"Plan B"</STRONG>, а на следующий день коллектив выступит в&nbsp;питерском клубе&nbsp;<STRONG>"Арктика"</STRONG>.&nbsp;Больше подробностей об этих&nbsp;концертах&nbsp;можно найти&nbsp;в разделе <STRONG>Shows</STRONG> нашего сайта: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25411.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.08.2013 news Видео новинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26013.jpg" width=200 height=285>В этом постинге&nbsp;опубликованы ссылки на 10 самых последних видео новинок от&nbsp;&nbsp;тяжёлых групп, которые так или иначе заслуживают внимание:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLACK TUSK</STRONG> "Truth Untold": <A href="http://youtu.be/yJXIvu4HqiY">http://youtu.be/yJXIvu4HqiY</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRING ME THE HORIZON</STRONG> "Go To Hell, For Heaven's Sake": <A href="http://youtu.be/9xLiI_-N4Hc">http://youtu.be/9xLiI_-N4Hc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CATTLE DECAPITATION</STRONG> "Your Disposal": <A href="http://youtu.be/szOlMfoN-jU">http://youtu.be/szOlMfoN-jU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> "All That's Left Is Blood": <A href="http://youtu.be/9OCh9hIGbGo">http://youtu.be/9OCh9hIGbGo</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEADLOCK</STRONG> "I'm Gone": <A href="http://youtu.be/R7M97B7bLZU">http://youtu.be/R7M97B7bLZU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEBAUCHERY</STRONG> "Let There Be Blood": <A href="http://youtu.be/7W8EU9HykoI">http://youtu.be/7W8EU9HykoI</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KILLSWITCH ENGAGE</STRONG> "Always": <A href="http://youtu.be/xcZIwXABBKA">http://youtu.be/xcZIwXABBKA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY RUIN</STRONG> "Moriendo Renascor": <A href="http://youtu.be/wNP_nITIuyQ">http://youtu.be/wNP_nITIuyQ</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEWSTED</STRONG> "Above All": <A href="http://youtu.be/6AWprBmbyuU">http://youtu.be/6AWprBmbyuU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TERROR</STRONG> "I'm Only Stronger": <A href="http://youtu.be/Gnx6ZusJbE4">http://youtu.be/Gnx6ZusJbE4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приятного просмотра!</FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 03.08.2014 news TERROR переиздаёт три первых релиза
+
+<P>Лосанжелеская hardcore банда <STRONG>TERROR</STRONG>&nbsp;переиздаёт три&nbsp;своих ранних альбома на компакт дисках и виниле. Несколько лет назад <STRONG>Trustkill Records</STRONG>, лейбл, который выпускал эти диски, развалился и права на эти релизы перешли&nbsp;к группе. Собственный лейбл группы, <STRONG>Defiant Music</STRONG>, выпустит переиздания <STRONG>"Lowest Of The Low"</STRONG> (2003), <STRONG>"One With The Underdogs"</STRONG> (2004)&nbsp;и <STRONG>"Always The Hard Way"</STRONG> (2006).</P>
+<P>Каждый диск будет содержать дополнительный материал и неизданные песни. Все альбомы были заново сведены и прошли мастеринг. Оформление также подверглось изменениям.&nbsp;<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Оставить предварительный заказ можно уже сейчас на сайте:</FONT> <A href="http://reaper-records.com/">http://reaper-records.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27199.jpg" width=660 height=326> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -82,6 +82,38 @@ Recorded at Sundlaugin Studio, Reykjavнk, Iceland.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.11.2011 news ALCEST: обложка альбома &quot;Les Voyages De L&#39;Ame&quot;
+
+<P>Французская группа <STRONG>ALCEST</STRONG> опубликовала обложку своего нового альбома <STRONG>"Les Voyages De L'Ame"</STRONG>. Дата выхода диска намечена на 6 января 2012.</P>
+<P>В марте этого года, группа <STRONG>ALCEST</STRONG> выступила в московском клубе "X.O.". Фото-отчёт с этого концерта можно посмотреть&nbsp;на нашем сайте&nbsp;по ссылке: <A href="/ru/galleries/1/648/">http://musica.mustdie.ru/ru/galleries/1/648/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.11/21948.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 04.12.2011 news ALCEST: видеоклип на песню &quot;Autre Temps&quot;
+
+<P>Видеоклип на песню<STRONG> "Autre Temps"</STRONG> с выходящего в скором времени&nbsp;нового альбома <STRONG>"Les Voyages De L'Ame"</STRONG>&nbsp;французов ALCEST, можно посмотреть ниже.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/85c-P9hbmBg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 18.05.2012 news Новое видео ALCEST
+
+<P>Новый клип <STRONG>ALCEST</STRONG> на трек ‘<STRONG>Les Voyages De L'ame’</STRONG> можно посмотреть ниже. Режиссёр - американский художник<STRONG> Toshadeva Palani (JUNIUS, SOROR DOLOROSA).</STRONG></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/ty66SYCnGuU?version=3&feature=player_embedded"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/ty66SYCnGuU?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 29.11.2012 news ALCEST &quot;BBC Live Session&quot; EP
+
+<P>14 декабря 2012 г.<STRONG> Prophecy Production</STRONG> выпускает ограниченным тиражом новый EP группы <STRONG>ALCEST</STRONG>. Диск получил название<STRONG> "BBC Live Session"</STRONG> и выйдет только на виниле.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.11/25097.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### ALCEST (Франция) в Москве (15 февраля 2014)

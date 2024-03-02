@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.07.2010 news Matt Harvey присоеденился к GRAVEHILL
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16987.jpg" width=203 height=250>Калифорнийские дес металлисты <B itxtvisited="1">GRAVEHILL</B> приняли в свои ряды гитариста&nbsp; <B itxtvisited="1">Matt "Hellfiend" Harvey</B> (<B itxtvisited="1">EXHUMED</B>, <B itxtvisited="1">DEKAPITATOR</B>, <B itxtvisited="1">REPULSION</B>, <B itxtvisited="1">CRETIN</B>) на постоянной основе.</P>
+<P><STRONG>Harvey</STRONG> примет участие в написании песен для следующего альбома <B itxtvisited="1">GRAVEHILL</B> <B itxtvisited="1">"When All Roads Lead To Hell"</B>, планируемого к выпуску в ноябре. Оформление для диска подготовит <STRONG>Jeff Zornow</STRONG> (<A href="http://www.myspace.com/zornow">www.myspace.com/zornow</A>).</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -17,6 +17,36 @@ melodic black
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.09.2004 reviews Аграрный мелодичный black-metal
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Американский black-metal не вызывает оптимизма у большинства любителей стиля. <STRONG>ENCRIMSON'D</STRONG>, группа с несколько странным названием и концепцией для black, достаточно интересна.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ENCRIMSON'D</STRONG> образовались в 1999 году, и <STRONG>'Agrarian Menace'</STRONG> их полнометражный дебют. Странное оформление с каким-то инвалидом-крестьянином на пашне и гербом с хряком и дубинкой.&nbsp;Природная ориентация стихов. Шесть песен на 50 минут. Да и сама музыка достаточно нетривиальна.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Медленный melodic black-metal заставляет вспоминать работы норвежских групп. Особо стоит отметить гитариста, который поражает своими постоянными переходами, соло и сменой ритма. Музыка для настоящих ценителей стиля, слушать очень интересно. Кроме прочего, здесь отсутствуют клавиши, но гитара запросто справляется с их функцией. Также нередко используется акустика, которая наигрывает вступления и проигрыши в средневековом духе.&nbsp;&nbsp;Но есть и недостатки. В первую очередь это реализация: слишком выдвинут вперёд вокал (пусть и&nbsp;хрипит вокалист очень разнообразно), столь интересная гитара задвинута далековато и, главное, живые барабаны, записаны слишком вычурно и сильно портят впечатление, не создаётся монолитности.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом пригодится любителям стиля, и мог бы рассчитывать на высочайшую оценку, если бы исправить реализацию.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[+] - классная работа гитариста, холодная атмосфера, разнообразный скриминг, 6 отличных песен</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[-] - средненькая реализация</FONT></P>
+Автор: Vit Belov
+
+### 22.10.2004 reviews Agrarian Black metal
+
+<DIV><FONT face=Arial size=2>American black-metal doesn't call rousing from fans of style. ENCRIMSON'D are band with strange name and conception for black-metal and they are intersting enough.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>ENCRIMSON'D were found in 1999 and 'Agrarian Menace' is their debut long-play. Strange lay out with some farmer-invalid on tillage and emblem with pig and bludgeon. Natural orientation of the lyrics. 6 songs on 50 minutes. And music is not usual enough.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>Slow melodic black-metal forces to remind of works by Norwegian bands. I'd like to note guitarist specially. He strikes with constant passages, solo and changing of rhythm. Music for real fans of this style, it's very interesting to listen to. Besides here is absence of keyboards, but guitar manages with their function easily. Also acoustic guitar is used not seldom. It plays intro and instrumental parts in songs in medieval style.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>But here is also some defects. In the first hand, it's realisation. Singer is put in the forefront (to be true, his screaming is very various), but very interesting guitar put on background. And the main is drums. They recorded very pretentious and spoil effect from this album.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>The album will be useful to fans of black-metal. And it will get highest estimation, if band&nbsp; repair producing.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>[+] - class work by guitarist, cold atmosphere, various screaming, 6 excellent songs</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>[-] - second-rate recording </FONT></DIV>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

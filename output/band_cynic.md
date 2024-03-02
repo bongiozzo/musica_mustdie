@@ -91,6 +91,119 @@ The artwork was designed by Robert Venosa.
 * C группой "Gordian Knot" Sean Reinert (drums)
 * C группой "Aghora" Sean Reinert (drums)
 
+## Публикации
+
+### 21.04.1999 news 
+
+<p>Aghora работает над новым альбомом с продюсером Нейлом Керноном. Группа интересна тем, что на альбоме в качестве приглашённых музыкантов появятся Пол Масвидал (ex-Cynic), Шон Мэлоун (ex-Cynic & Gordian Knot), а также неповторимый Фредрик Тордендаль (Meshuggah).</p>
+
+Автор: Vit Belov
+
+### 19.06.2001 news Разрубить Гордиев Узел....
+
+<p>Проговый проект "GORDIAN KNOT" (состоящий из участников культового "CYNIC" - Sean Malone (басс), Jason Gobel (гитара), и Sean Reinert) заменил гитариста Ron Jarzombek (WATCHTOWER, SPASTIC INK) на участника "GENESIS" (?!?!)- Steve Hackett. Новый гитареро уже записывает свои партии для второго полноформатника "Emergent". Диск выйдет на Sensory Records в январе 2002.</p>
+
+Автор: Yermola
+
+### 19.06.2001 news GORDIAN KNOT, featuring former CYNIC members Sean Malone ....
+
+<p>Prog supergroup GORDIAN KNOT, featuring former CYNIC members Sean Malone (bass), Jason Gobel (guitar), and Sean Reinert, have replaced guitarist Ron Jarzombek (WATCHTOWER, SPASTIC INK) with former GENESIS guitarist Steve Hackett, who is reportedly recording his parts for the group's upcoming second album, Emergent. The CD is due to be issued through Sensory Records in January. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.05.2002 news Новый суперпроект...
+
+<p>Барабанщик DREAM THEATER - Mike Portnoy, гитарист FATES WARNING - Jim Matheos, клавишник CHROMA KEY/ex-DREAM THEATER - Kevin Moore, бассист GORDIAN KNOT/ex-CYNIC - Sean Malone и вокалист PAIN OF SALVATION - Daniel Gildenlоw объединили усилия в новом пока-еще-не-названном проекте. Запись альбома запланирована на Июнь и релиз в Октябре/Ноябре на Inside Out Records.....</p>
+
+Автор: Yermola
+
+### 27.05.2002 news DREAM THEATER, FATES WARNING Members Join Forces ....
+
+<p>DREAM THEATER drummer Mike Portnoy, FATES WARNING guitarist Jim Matheos, CHROMA KEY/ex-DREAM THEATER keyboardist Kevin Moore, GORDIAN KNOT/ex-CYNIC bassist Sean Malone and PAIN OF SALVATION vocalist Daniel Gildenlцw have joined forces in a brand new, as-yet-unnamed supergroup which is scheduled to record its debut album in early June for a late October/early November release—possibly through Inside Out Records. In a May 18th update on his official web site, Malone commented on the project by saying that "there will be an announcement soon of a new project that will be recorded this summer. I'm not allowed to reveal the players just yet, but it's a project involving some people whose names won't be unfamiliar to you. I'm very excited about it for a few reasons - one, just glad I got picked for it, but also that I can go back to just bein</p>
+
+Автор: Yermola
+
+### 24.09.2002 news GORDIAN KNOT: New MP3 Posted Online ....
+
+<p>GORDIAN KNOT, a prog supergroup featuring former CYNIC members Sean Malone (bass), Jason Gobel (guitar), and Sean Reinert, along with former GENESIS guitarist Steve Hackett, have posted a full-length MP3 of the track "Muttersprache", taken from the group's forthcoming Emergent CD, <A HREF="http://www.seanmalone.net/mp3/Muttersprache.mp3">at this location. </A></p>
+
+Автор: Yermola
+
+### 24.09.2002 news MP3 новой песни GORDIAN KNOT...
+
+<p>Проговая супер-группа "GORDIAN KNOT" состоящяя из бывших участников культовых "CYNIC" Sean Malone (басс), Jason Gobel (гитара) и Sean Reinert вместе с гитаристом "GENESIS" Steve Hackett выложили в сети MP3 песни "Muttersprache" взятой с еще не вышедшего альбома группы названного Emergent. Скачать ее можно здесь: <A HREF="http://www.seanmalone.net/mp3/Muttersprache.mp3">http://www.seanmalone.net/mp3/Muttersprache.mp3</A></p>
+
+Автор: Yermola
+
+### 06.09.2006 news Реюнион CYNIC
+
+<P>Известная флоридская команда <B>CYNIC</B>, чей альбом 1993 года <B>"Focus"</B> является эталоном technical progressive metal, планирует собраться вновь для проведения небольшого тура весной-летом 2007 года. В составе, кроме вокалиста-гитариста <B>Paul Masvidal</B> и ударника <B>Sean Reinert</B> будут вокалист <B>Tony Teegarden,</B> басист <B>Chris Kringel</B> и второй гитарист <B>Santiago Dobles</B>. <B>Teegarden</B> и <B>Kringel</B> - бывшие участники <STRONG>CYNIC,</STRONG> игравшие в ранних турах группы, а <B>Santiago</B> — участник <STRONG>AGHORA</STRONG>. Студийных записей музыканты (<STRONG>Masvidal</STRONG> и <B>Reinert</B>) не обещали, так как заняты сейчас новым своим progressive ethereal-rock проектом <STRONG>AEON SPOKE</STRONG>, чей одноименный дебютный альбом выйдет в октябре на <B>SPV Records.</B></P>
+Автор: Dimas
+
+### 18.01.2008 news CYNIC запишут альбом
+
+<P>Вновь собранные <STRONG>CYNIC</STRONG> сейчас находятся в студии, где записывают три демо-песни для нового альбома. Вот их названия:&nbsp; <B>"Integral Birth"</B>, <B>"Evolutionary Sleeper"</B>&nbsp;и <STRONG>"Adam's Murmur</STRONG>". Группа планирует выпустить новую пластинку в 2008 году.</P>
+Автор: Vit Belov
+
+### 01.05.2008 news CYNIC на Season Of Mist
+
+<P><STRONG>CYNIC</STRONG> заключили контракт с <STRONG>Season Of Mist</STRONG> на выпуск в конце 2008 года первого за 15 лет студийного альбома. Несколько песен, которые находятся в работе, можно послушать на<STRONG> MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/cyniconline">http://www.myspace.com/cyniconline</A></P>
+Автор: Vit Belov
+
+### 26.07.2008 news Дата релиза CYNIC
+
+<P>Вновь объединившиеся классики techno-progressive-death-metal<STRONG> CYNIC</STRONG> назначили 27 октября датой релиза своего нового альбома. Пластинка получила название "<STRONG>Traced In Air</STRONG>" и выйдет на <STRONG>Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.03.2009 news CYNIC поддержат DRAGONFORCE
+
+<P>Обычно мы не сообщаем о составах туров по США, но эта новость привлекла&nbsp;внимание. Объявлено, что разогревать <STRONG>DRAGONFORCE</STRONG> в США будут легендарные <STRONG>CYNIC</STRONG>.</P>
+<P>Каждый делает выводы сам.</P>
+Автор: Vit Belov
+
+### 26.02.2010 news CYNIC выпустят EP
+
+<P>17 мая выходит новый EP<STRONG> CYNIC</STRONG> <STRONG>"Re-Traced"</STRONG>, на который попадут четыре переигранных трэка с последнего альбома коллектива <STRONG>"Traced In Air",</STRONG> а также одна новая композиция. Группа называет этот релиз экспериментальным, на нём музыканты вывернули шиворот-навыворот подвергнущиеся пересмотру трэки. </P>
+<P>"<EM>В нашем исследовании мы создали музыку, котороя состоит из&nbsp; 'sci-fi prog folk', psychedelic rock, part minimalist restraint</EM>," - рассказывает вокалист коллектива <STRONG>Paul Masvidal</STRONG>. "<EM>Эти интерпретации транслируются из другой галактики. Мы использовали любимые нами стили: electronic/ambient, jazz/fusion, drum n' bass, experimental, shoegaze. Здесь нет традиционных для CYNIC перегруженных риффов, но песенная структура сохранила свою форму</EM>".</P>
+Автор: Vit Belov
+
+### 17.12.2010 news CYNIC удалили голландскую часть
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=205 alt="" hspace=0 src="/images/news_rus/2010.12/17854.jpg" width=300 align=right border=0>CYNIC</STRONG> расстались с басистом <STRONG>Robin Zielhorst </STRONG>и гитаристом <STRONG>Tymon Kruidenier. </STRONG>Оба музыканта пришли в группу в 2008 году и вместе с ними был записан "ре-юнион" альбом "<STRONG>Traced In Air</STRONG>", вышедший в позапрошлом году. <STRONG>Robin </STRONG>и <STRONG>Tymon </STRONG>голландцы, и лидер коллектива <STRONG>Paul Masvidal </STRONG>решил, что <STRONG>CYNIC</STRONG> больше не может существовать как мультинациональная команда. Летом 2011 года на <STRONG>Season Of Mist</STRONG> должен выйти новый альбом группы, а ситуация, когда половина коллектива находится за океаном, не способствует его быстрому завершению.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ушедшие музыканты продолжают работу в своей группе <STRONG>EXIVIOUS</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Оставшиеся музыканты<STRONG> CYNIC</STRONG> <STRONG>Sean Reinert </STRONG>и <STRONG>Paul Masvidal </STRONG>работают над новыми песнями в Калифорнии.</FONT></P>
+Автор: Vit Belov
+
+### 08.09.2011 news CYNIC выпустят ещё один EP
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.09/20953.jpg" width=475 align=right border=0>11 ноября на<STRONG> Season Of Mist</STRONG> выйдет новый мини-альбом <STRONG>CYNIC</STRONG> <STRONG>"Carbon-Based Anatomy". </STRONG>В отличие от предыдущего релиза <STRONG>"Re-Traced" </STRONG>коллектив представит полностью новый материал. Трек-лист:</P>
+<P>01. <B>Amidst The Coals</B><BR>02. <B>Carbon-Based Anatomy</B><BR>03. <B>Bija!</B><BR>04. <B>Box Up My Bones</B><BR>05. <B>Elves Beam Out</B><BR>06. <B>Hieroglyph</B></P>
+<P>Обложку нарисовал <STRONG>Robert Venosa</STRONG>, который работал с CYNIC на альбомах <STRONG>"Focus"</STRONG>, <B>"Traced in Air"</B>&nbsp;и <B>"Re-Traced"</B>. </P>
+Автор: Vit Belov
+
+### 11.01.2012 news Демо-записи PORTAL будут изданы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Season Of Mist</STRONG> выпустят 24 марта альбом "<STRONG>The Portal Tapes</STRONG>" группы<STRONG> PORTAL</STRONG>, проекта музыкантов <STRONG>CYNIC</STRONG>, записанного в начале 90-х. В <STRONG>PORTAL</STRONG> входили музыканты: <STRONG>Paul Masvidal</STRONG> и <STRONG>Sean Reinert</STRONG>, а также гитарист<STRONG> Jason Gobel</STRONG>, басист <STRONG>Chris Kringel</STRONG> и вокалистка <STRONG>Aruna Abrams</STRONG>. Записи, представленные на этом CD, были сделаны сразу после релиза альбома <STRONG>CYNIC "Focus"</STRONG> в 1993 году.</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=606 src="/images/news_rus/2012.01/22590.jpg" width=475 border=0></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.11.2013 news CYNIC: подробности нового альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Прогрессивные металисты <STRONG>CYNIC</STRONG> опубликовали подробности своего нового полноформатника. Диск получил название <STRONG>"Kindly Bent To Free Us"</STRONG> и выйдет аккурат в День Святого Валентина - 14 февраля 2014 г. Обложку альбома&nbsp;можно увидеть ниже.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.11/26313.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 11.09.2015 news CYNIC развалились
+
+<P>Легенды прогрессивного метала <STRONG>CYNIC </STRONG>вновь развалились. Причиной прекращения существования группы названы личные и творческие разногласия. </P>
+<P>Группа отменила все запланированные концерты, в том числе и в России.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.09/28317.jpg" width=645 height=363></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Опять про Cynic

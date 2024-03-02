@@ -12,6 +12,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2000 reviews Мини-альбом финских металлеров
+
+<p>Мини-альбом финских металлеров. Похоже, что это их дебют. Но люди собрались опытные. Очень хорошее качество, зрелые решения и достойный материал. Музыка не совсем стандартная, но выдержанная в духе лучших death-black образцов. Мелодичные гитары, невыделяющиеся клавишные, чередование задушенного вокала с гроулом, интересные гитарные ходы. Никаких особенных новых решений, но всё сделано очень профессионально, без откровенных намеков на чьё-либо творчество. Маловато материала для более точной оценки группы, да и много сейчас подобных групп. А потому, рассчитан альбом в основном на коллекционеров.</p>
+
+Автор: Dimas
+
+### 27.08.2000 reviews Mini-album Finnish metallers
+
+<p>Mini-album Finnish metallers. Similar, what is it their debut. But the people have collected experimental. Very much high quality, mature solutions and worthy stuff. Music not absolutely standart, but sustained spirit of best death-black is model. Melodious guitars not discharging keyboard, sequence strangled voice with grawl, interesting guitar courses. Any especial new solutions, but all is made very professionally, without frank hints on other creativity. Not very much it is a lot of stuff for more precise estimation of group, and now of similar groups. That is why, the album basically for the collectors is counted.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

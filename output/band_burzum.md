@@ -442,6 +442,127 @@ Recorded in Grieghallen Studio in Bergen in September 2011.
 * C группой "Old Funeral" Varg Vikernes (guitar)
 * C группой "Mayhem" Varg Vikernes (bass)
 
+## Публикации
+
+### 18.11.2002 reviews Was it worth our wait?
+
+<P>As far as I know, this giant double-CD compilation had been in works for a very-very long time. And what? Was it worth our wait? Most likely, yes. At least the first CD which is way more exciting to listen to, if compared to the second one. It starts with “Det Som Engang Var”, probably the best song Varg has ever written, performed by Italy’s ABORYM. Well, it’s nothing new under the sun… anymore – since major part of those who value black metal already got a chance to check it out, by purchasing ABORYM’s “Fire Walk With Us!” CD. This one turned out to be an excellent interpretation, if you still haven’t got my point. The second cover, “Jesus Tod” by AEGISHJALMAR, is no worse. It transmits almost the same kind of atmosphere the original song did, and therefore may be considered of interest. BLACK QUEEN’s “Inn I Slottet Fra Droemmen” and CRYOGENIC’s “Dunkleheit” aren’t exceptional, although more or less well done. Perhaps just too close to original… Fifth goes the UK’s EARTHCORPSE, with “Lost Wisdom”. Death metal band covering BURZUM? Intriguing, isn’t it? Well, it is. They made it in a BM way, though. Next comes EWIGKEIT, with “Ea 2000 – Out For The Count”, which appears to be a most weird cover off this tribute. I still can’t recognize whether it was a certain kind of mocking, or simply Mr.Fog’s own vision of how “Ea, Lord Of The Depths” should sound like? Nevertheless, interesting as well. Alas, FORNOST’s “Wende Im Zeichen Des Mikrokosmos” and FUNERAL PROCESSION’s “Der Ruf Aus Dem Turm” can’t be marked out for anything special. JUDAS ISCARIOT’s “War” isn’t special or whatever as well, however it sounds like it’s Akhenaten’s own song… played a bit – only a bit! – different to Varg’s tune. Next cover, “Lost Wisdom” (yes, again!) by KRIGSTROMMER, _is_ special, however. And it’s a lot different from both original song and it’s interpretation by EARTHCORPSE. For THIS “Lost Wisdom” is played with keyboards… no guitars, no vocals, no bass, no drums. On the outcome – enigmatic. As for other two, KRYSTAL’s “Balferd Baldrs” and LUROR’s “Key To The Gate”… again, they’re done in a way too close to how it was done by Varg. Although LUROR’s cover sound really-really good; somewhat even exciting… And now – disc two. It starts with NOKTURNAL MORTUM’s “Journey To The Stars”… and, better it started with any other band doing any other track. This Ukrainian combo contrived to make an absolutely disgusting cover out of one of the best compositions Herr Vikernes ever came up with. The whole atmosphere’s ruined, BURZUM’s spirit desecrated… Bleargh. Actually, this second CD doesn’t feature any more or less intriguing covers. At least, I doubt if SCHIZOID’s incredibly noisy vision of “En Ring Til A Herske” or WOODS OF FALLEN’s “Beholding The Daughters Of The Firmanent” may be considered intriguing… Others: ORTHAUGR, PAGAN HELLFIRE, SARNATH, STARCHAMBER, THE SYRE, TRONUS ABYSS, WOLFSBURG and HERRENVOLK, fortunately didn’t offer covers as horrible as f.ex. SCHIZOID did, however theirs are just mediocre. Not really bad. Not really good either. What I also doesn’t like, too many bands covered Varg’s “Daudi Baldrs” and “Hlidhskjalf”-era tracks. Too many. Furthermore, placing the artists in alphabetical order isn’t the choice I appreciate. At least, in case with “Visions”. Anyway, first CD is definitely worth spending money on a double-CD pack. And it’s still a very good compilation afterall.</P>
+<P><EM>Website: </EM><A href="http://www.unholyrecords.com"><EM>http://www.unholyrecords.com</EM></A></></P>
+Автор: Kai Mathias Stalhammar
+
+### 24.09.2003 news Русский Tribute to BURZUM
+
+<P>В конце этого года планируется издание компиляции групп СНГ&nbsp;с каверами на песни <B>BURZUM</B>. В этом проекте уже приняли участие некоторые проекты и группы с пост-советского пространства:<STRONG> DROMOS </STRONG>(by)<STRONG> </STRONG>-<STRONG> Ea, Lord of the Depths </STRONG>(dark-gothic-emb);<STRONG> WARATHULG ZORK </STRONG>(by)<STRONG> - Jesus Dod </STRONG>(cosmic-post-black);<STRONG> SUITTE </STRONG>(est)<STRONG> - Key to the Gate </STRONG>(brutal death);<STRONG> HORNADE DEL MUERTE </STRONG>(by)<STRONG> - Lost Wisdom </STRONG>(war-melodic-death);<STRONG> CENOTAPH </STRONG>(by)<STRONG> - Ea, Lord of the Depths </STRONG>(black);<STRONG> BIBLE OF HATRED </STRONG>(by)<STRONG> - Det Som En Gang Var </STRONG>(panzer-black);<STRONG> PAGAN ART </STRONG>(rus)<STRONG> - Stemmen Fra Taarnet </STRONG>(black) и еще несколько групп работают над каверами. Свои заявки на участие, другие предложения и вопросы направлять на e-mail: (<B><A href="mailto:waatvoltriim@jandex.ru">waatvoltriim@jandex.ru</A></B>).</P>
+Автор: Vit Belov
+
+### 27.10.2003 news Varg Vikernes убежал, но его быстро поймали
+
+<P><IMG height=200 alt="Задержание Варга..." hspace=0 src="/images/news_rus/2003.10/5248.jpg" width=350 align=left border=3>25 октября <B>Varg Vikernes</B> (он же <B>BURZUM</B>) не вернулся из отпуска, который дают закдючённым в Норвегии. Нужно ли напоминать, что <B>Varg</B> сидит 21 год за убийство гитариста <B>MAYHEM</B> <B>Euronymous</B> и сожжение трёх церквей, в результате чего погиб пожарник. Уже вчера он был задержан полицией на скоростном шоссе на пути в Осло. <B>Varg</B> небыл вооружён во время задержания. Правда теперь вряд ли ему дадут отпуска в ближайшее время.</P>
+Автор: Vit Belov
+
+### 27.10.2003 news BURZUM leader go from prison, but he was captured quickly
+
+<DIV id=0></DIV><BR><BR><SPAN id=hbblock><LABEL id=HbSession SessionId="2219954860"></LABEL>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2003.10/5249.jpg" width=350 align="left" border=0>The Norwegian media is reporting that <B>BURZUM</B> mastermind <B>Varg "Greven" Vikernes</B> (a.k.a. <B>Count Grishnack</B>) failed to return after a short leave from his prison in Vestfold, Norway, where the black metal musician is serving a 21-year sentence for the August 1993 murder of <B>MAYHEM</B> guitarist <B>Oystein Aarseth</B> (a.k.a. <B>Euronymous</B>), the burning of three churches, and the resulting death of a fireman. <B>Varg</B>, 30, was supposed to return to the prison by midnight Saturday (October 25) after being granted a couple of days off, but failed to come back in time</P>
+<P>A day after he failed to return to prison as scheduled following a short leave, <B>Varg Vikernes</B> was captured by the Norwegian police on a highway outside the country's capital.<BR><BR><B>Vikernes</B> was taken into custody at 12:45 a.m. Monday morning (October 27) after police in Oslo received information from police in Romerike that the fugitive was traveling in a car on the E6 road to Oslo</P>
+<P><B>Varg Vikernes</B> was alone and unarmed at the time of his arrest. </P></SPAN>
+Автор: Vit Belov
+
+### 27.04.2004 news Varg Vikernes получил добавочный срок
+
+<P><B>Varg Vikernes</B> (известный, как <B>BURZUM</B>) получил дополнительно 14 месяцев тюрьмы за свою выходку в прошлом году, когда он угнал машину и при задержании имел при себе автоматическое оружие. Прокурор требовал дополнительно 22 месяца тюрьмы.</P>
+<P>Напомним, что <B>Varg</B> отбывает 21-летний срок за убийство лидера <B>MAYHEM</B> <B>Oystein Aarseth</B> (a.k.a. <B>Euronymous</B>).</P>
+Автор: Vit Belov
+
+### 03.05.2006 news Поклонники BURZUM сожгли церковь в Канаде
+
+<P>В Канаде были осуждены участники поджога 105-летней церкви в городе Миннедоса. Три человека, девушка и два парня, отметили прошлой зимой день рождения <STRONG>Varg Vikernes aka BURZUM</STRONG>, отбывающего срок в тюрьме в Норвегии за убийство лидера <STRONG>MAYHEM Oystein Aarseth</STRONG>. Выпив на кладбище (!!!), фанаты black-metal взяли канистру с бензином и подожгли церковь, на восстановление которой теперь уйдёт несколько лет.</P>
+<P>Местная пресса называет <STRONG>BURZUM</STRONG> и его последователей нео-нацистами. Окончательный приговор будет вынесен в мае. </P>
+Автор: Vit Belov
+
+### 12.03.2009 news BURZUM вернётся к детям
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2009.03/13730.jpg" width=320 align=left border=5>Осуждённый за убийство гитариста<STRONG> MAYHEM</STRONG> <STRONG>Oystein Aarseth</STRONG> (a.k.a. <B itxtvisited="1">Euronymous</B>)&nbsp;и три поджога церквей основатель<STRONG> BURZUM</STRONG> <STRONG>Varg Vikernes</STRONG> (a.k.a. <B itxtvisited="1">Count Grishnackh</B>) выйдет досрочно после 16 лет заключения. На свободе "душегуба" ждут мать, жена, 18-летний сын и 16-летняя дочь.</P>
+Автор: Vit Belov
+
+### 21.05.2009 news &quot;Сердцеед&quot; сыграет Varg&#39;a
+
+<P><IMG height=490 alt="Это Count Grishnackh" hspace=0 src="/images/news_rus/2009.05/14107.jpg" width=400 align=left border=5>Японский режиссёр <STRONG>Sion Sono </STRONG>начинает съёмки нового фильма "<STRONG>Lord Of Chaos</STRONG>" в середине сентября в Норвегии. Фильм будет поставлен по одноимённой книге, рассказывающей о делах в black-metal среде Норвегии в середине 90-х. Сообщается, что роль <STRONG>Varg Vikernes</STRONG> согласился сыграть "актёр-сердцеед" <STRONG>Jackson Rathbone - </STRONG>звезда фильма "<STRONG>Сумерки</STRONG>" (на фото).</P>
+Автор: Vit Belov
+
+### 23.05.2009 news Varg свободен!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Varg Vikernes</STRONG> досрочно выпущен на свободу! То, о чём так долго писала тяжёлая пресса, случилось. Теперь <STRONG>BURZUM</STRONG> обязан отмечаться в участке каждую неделю.</FONT></P>
+Автор: Vit Belov
+
+### 07.07.2009 news BURZUM ищет лэйбл
+
+<P>Вышедший на свободу <STRONG>Varg Vikernes</STRONG> сообщил, что сочинил 9 новых песен для первого за 11 лет нового альбома <STRONG>BURZUM</STRONG>. Музыкант ищет лэйбл для издания этой работы. Ожидается, что это будет работа в стиле металл!</P>
+Автор: Vit Belov
+
+### 19.11.2009 news Varg Vikernes: &quot;Современная black-metal сцена состоит из негров и геев&quot;
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.11/15573.jpg" width=400 align=left border=5>Varg Vikernes</STRONG> (a.k.a. <B>Count Grishnackh</B>), известный также как <STRONG>BURZUM</STRONG>, распространил заявление о своей новой музыке. "<EM>Как вы должно быть уже знаете, мои дорогие леди и джентельмены, а так же другие товарищи, я не дружу с современной так называемой black-metal культурой. Это безвкусная, твердолобая пародия на норвежский так называемый black-metal 1991-1992 годов. По моему мнению, с этим надо заканчивать как можно скорее</EM>".</P>
+<P>С другой стороны, <STRONG>Varg</STRONG>&nbsp;не хочет отказываться от термина black-metal в своей музыке только потому, что кто-то его&nbsp;испортил.&nbsp;В своём заявлении <STRONG>Count </STRONG>обозвал нынешних металлистов "неграми" и "гомосексуалистами". "<EM>Кто-то из этих&nbsp;"black-metal'истов"&nbsp;и их фанаты должно быть считают, что они имеют что-то общее с BURZUM, но они ничего общего не имеют. Я играю что-то связанное с металом, они тоже играют что-то связанное с металом, на этом сходства заканчиваются. Фрейд писал книги, Толкиен тоже писал книги, на этом сходство заканчивается</EM>", - заявил <STRONG>Vikernes</STRONG>.</P>
+<P>Музыкант&nbsp;рассказал, что не может не писать музыки, когда есть такая возможность. А сейчас&nbsp;у него она есть. "<EM>Преступный анти-Норвежский режим в Норвегии больше не ограничивает мою свободу</EM>", - порадовался&nbsp;<STRONG>Count Grishnackh</STRONG>.&nbsp;Также&nbsp;этот маргинал пообещал, что если вам нравится музыка <STRONG>BURZUM</STRONG>, вам понравится и&nbsp;новый альбом этого проекта. &nbsp;</P>
+<P>Новая пластинка будет называться <STRONG>'Den Hvite Guden'</STRONG> ("Белый Бог") и будет рассказывать о Белом Боге, под которым <STRONG>Count</STRONG> подразумевает множество персонажей, начиная от Аполлона и заканчивая Ярило. Музыкант расскажет историю жизни этого Бога, как она&nbsp;была на самом деле. До тех пор, пока эта история не превратилась в миф.</P>
+<P>"<EM>Могу так же сказать, что новый альбом будет содержать один очень старый трэк BURZUM, как это происходило почти на каждом альбоме. В этот раз это будет композиция <STRONG>'Uruk-Hai'</STRONG>, сочинённая в 1988-1989 годах. Только название её я поменяю, чтобы оно вписывалось в концепцию всего альбома</EM>", - продолжается анонс. На <STRONG>'Den Hvite Guden' </STRONG>мы также найдём трэк <STRONG>'Daudi Baldrs</STRONG>'&nbsp;из 1993 года.&nbsp;В общем, окажется, что "Белый Бог" - это не 100-процентно новый альбом, а коллекция старого и нового материала. </P>
+<P>Релиз ожидается в марте-апреле будущего года.</P>
+<P>Напомним, что<STRONG> Varg Vikernes</STRONG> недавно был выпущен из тюрьмы&nbsp;после 16 лет заключения за убийство лидера <STRONG>MAYHEM</STRONG> <STRONG>Euronymous. </STRONG>В своих недавних заявлениях он утверждал, что полностью исправился за эти годы и готов просто жить в уединении со своей семьёй.</P>
+Автор: Vit Belov
+
+### 22.11.2009 news Varg Vikernes: &quot;Я не гомофоб, они просто так выглядят!&quot;
+
+<P>Лидер <STRONG>BURZUM Varg Vikernes</STRONG> распространил ещё одно заявление для широкой публики. Оказалось, что его предыдущие откровения предназначались не всем. В них он обозвал современную black-metal сцену негритянской и гомосексуальной. "<EM>Это обращение предназначалось посетителям сайта Burzum.Org. Если вы не фэн BURZUM, зачем вам туда ходить?</EM>", - вопрошает <STRONG>Varg</STRONG>.</P>
+<P>Во всём виноваты журналисты, которые распространили информацию о "голубых" и чернокожих, не ссылаясь на источник. Видимо, это как-то успокоило бы читающую публику, а особенно негров и гомосексуалистов. "<EM>Мои высказывания не были гомофобными, просто я заметил, что современные black-metal'исты одеваются, ходят, разговаривают, ведут себя и выглядят как гомосексуалисты. Одежда и украшения black-metal'истов и гомосексуалистов куплены в одном магазине</EM>", - оправдывается музыкант.</P>
+Автор: Vit Belov
+
+### 03.12.2009 news BURZUM поменял название
+
+<P><STRONG>Count Grishnackh</STRONG> опубликовал очередное заявление на своём сайте. Оказалось, что название его будущего нового альбома "<STRONG>The White God</STRONG>" вызвало непонятную музыканту реакцию общественности. "<EM>Слово White (белый) воспринимается западной цивилизацией как расистское. Чтобы избежать этой "Anti-BURZUM" пропоганды, я вынужден поменять это название</EM>", - рассказывает <STRONG>Varg</STRONG>.</P>
+<P>Новым названием пластинки станет <STRONG>"Belus"</STRONG>, Индо-Европейское наименование Бога Балдура. Музыкант выбрал это название как старейшее известное имя этого Бога. Альбом будет реализован в марте/апреле на<STRONG> Byelobog Productions</STRONG>. Вся лирика этой пластинки будет на норвежском, но на сайте музыканта будут доступны французский и русский переводы.</P>
+Автор: Vit Belov
+
+### 16.11.2010 news Журнал Decibel выпустил специальный коллекционный номер, посвящённый стилю Black Metal
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17617.jpg" width=320 height=429>В специальный выпуск журнала <STRONG>Decibel</STRONG>, получивший название "<STRONG>Black Metal Hall Of Fame</STRONG>", вошло восемь историй из общирного склепа стиля&nbsp;<STRONG>Black Metal</STRONG>.&nbsp;Выпуски журнала&nbsp;серии <STRONG>"Hall Of Fame"</STRONG> рассказывают об истории создания наиболее важных альбомов экстремальной музыки, а так же, содержат интервью с музыкантами, принимавшими участие в записи каждого&nbsp;конкретного альбома.&nbsp;</P>
+<P>Перечень историй вошедших в журнал:</P>
+<P><STRONG>BURZUM</STRONG> - "Filosofem" (1996) *<BR itxtvisited="1"><B itxtvisited="1">DARKTHRONE</B> - "Transilvanian Hunger" (1994)<BR itxtvisited="1"><B itxtvisited="1">EMPEROR</B> - "In The Nightside Eclipse" (1995)<BR itxtvisited="1"><B itxtvisited="1">ENSLAVED</B> - "Frost" (1995)<BR itxtvisited="1"><B itxtvisited="1">IMMORTAL</B> - "At The Heart Of Winter" (1999)<BR itxtvisited="1"><B itxtvisited="1">ROTTING CHRIST</B> - "Thy Mighty Contract" (1993) *<BR itxtvisited="1"><B itxtvisited="1">SATYRICON</B> - "Nemesis Divina" (1996) *<BR itxtvisited="1"><B itxtvisited="1">VENOM</B> - "Welcome To Hell" (1981)<BR itxtvisited="1">*<EM>прежде никогда не публиковались.<BR itxtvisited="1"></P></EM>
+<P>Данный номер журнала не доступен для подписчиков. Его можно преобрести в некоторых розничных магазинах или&nbsp;заказать онлайн по адресу: <A href="http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue">http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue</A></P>
+Автор: Headcrusher
+
+### 28.07.2011 news Varg всё знает!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>BURZUM Varg Vikernes</STRONG> высказался на своём сайте о трагедии, случившейся в Норвегии на прошлой неделе. Напомним, некто <STRONG>Anders Behring Breivik </STRONG>напал на молодёжный лагерь и убил 76 человек.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Оригинал сообщения музыканта, который отсидел в тюрьме за убийство лидера <STRONG>MAYHEM</STRONG> <STRONG>Oystein Aarseth</STRONG> (a.k.a. <B>Euronymous</B>) и поджог трёх церквей в 1993 году, можно порочитать здесь: <A href="http://www.burzum.org/eng/library/war_in_europe01.shtml">http://www.burzum.org/eng/library/war_in_europe01.shtml</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыкант вышел на свободу в 2009 году.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=533 src="/images/news_rus/2011.07/20341.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 22.01.2012 news Новый альбом BURZUM
+
+<P><IMG height=330 alt="" hspace=0 src="/images/news_rus/2012.01/22721.jpg" width=400 align=right border=0>Новый альбом <STRONG>BURZUM "Umskiptar</STRONG>" выходит в мае на лэйбле <STRONG>Byelobog Productions</STRONG>. Материал был записан в прошедшем сентябре в студии <STRONG>Grieghallen</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Blodstokkinn (Soaked in Blood)</STRONG> (1:16) <BR>2. <STRONG>Joln (Deities)</STRONG> (5:51) <BR>3. <STRONG>Alfadanz (Elven Dance)</STRONG> (9:22) <BR>4. <STRONG>Hit helga Tre (The Sacred Tree)</STRONG> (6:51) <BR>5. <STRONG>Aera (Honour)</STRONG> (3:58) <BR>6. <STRONG>Heior (Esteem)</STRONG> (3:02) <BR>7. <STRONG>Valgaldr (Song Of The Fallen)</STRONG> (8:03) <BR>8. <STRONG>Galgvior (Gallow Forest)</STRONG> (7:16) <BR>9. <STRONG>Surtr Sunnan (Black from the South)</STRONG> (4:14) <BR>10. <STRONG>Gullaldr (Golden Age)</STRONG> (10:20) <BR>11. <STRONG>Nidhoggr (Attack From Below)</STRONG> (5:00) </P>
+Автор: Vit Belov
+
+### 08.01.2013 news Лучшие альбомы 2012 года от Fenriz&#39;а
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25268.gif" width=250 height=247>Известный&nbsp;любитель дикой природы и классических форм металла, а также по совместительству барабанщик <STRONG>DARKTHRONE</STRONG>, мистер <STRONG>Fenriz</STRONG>, поделился своим мнением относительно десяти лучших альбомов ушедшего 2012 года. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этот список в произвольном порядке вошли:</FONT></P>
+<P>01. <STRONG>VOMITOR "The Escalation"</STRONG> (<STRONG>Invictus Productions</STRONG>)</P>
+<P>02. <STRONG>GOAT "World Music"</STRONG> (<STRONG>Stranded Rekords</STRONG>)</P>
+<P>03. <STRONG>HOUR OF 13 "333"</STRONG> (<STRONG>Earache</STRONG>)</P>
+<P>04. <STRONG>CHRISTIAN MISTRESS "Possession"</STRONG> (<STRONG>Relapse</STRONG>)</P>
+<P>05. <STRONG>NEKROMANTHEON "Rise, Vulcan Spectre"</STRONG> (<STRONG>Indie Recordings</STRONG>)</P>
+<P>06. <STRONG>DEATHHAMMER "Onward To The Pits"</STRONG> (<STRONG>Hells Headbangers</STRONG>)</P>
+<P>07. <STRONG>GOLD "Interbellum" </STRONG>(<STRONG>Van</STRONG>)</P>
+<P>08. <STRONG>VANDERBUYST "Flying Dutchmen"</STRONG> (<STRONG>Van</STRONG>)</P>
+<P>09. <STRONG>ROYAL THUNDER "CVI"</STRONG> (<STRONG>Relapse</STRONG>)</P>
+<P>10. <STRONG>SHIPWRECKED "The Last Pagans"</STRONG> (<STRONG>Crucial Response</STRONG>)</P>
+<P>Также,&nbsp;по его мнению,&nbsp;заслуживают внимания альбомы 2012 года от следующих групп: <STRONG>TURBONEGRO</STRONG>, <STRONG>HOODED MENACE</STRONG>, <STRONG>AURA NOIR</STRONG>, <STRONG>WITCHCRAFT</STRONG>, <STRONG>YEAR OF THE GOAT</STRONG>, <STRONG>EL DOOM & THE BORN ELECTRIC</STRONG>, <STRONG>VETTER</STRONG>, <STRONG>BURZUM</STRONG>, <STRONG>THE SABBATH ASSEMBLY</STRONG>, <STRONG>GRAVEYARD</STRONG> и <STRONG>JESS AND THE ANCIENT ONES</STRONG>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Немного о BURZUM...

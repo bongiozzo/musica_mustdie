@@ -12,6 +12,14 @@ Death-metal from Finland
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.10.2003 news Новости MUSICA PRODUCTION
+
+<P>Вновь на нашем скаладе позиции из каталога словацкой <B>FORENSICK MUSIC</B>. <B>Soils Of Fate 'Crime Syndicate', Embolism 'Mind Chaos'</B> и <B>Deepred 'Prophetic Luster'</B> - все команды играют бескомпромиссный death-metal. Как всегда всё это можно приобрести в нашем магазине и на точке <B>B2-100</B> в Рубине.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### мясники студёной скандинавии

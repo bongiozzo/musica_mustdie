@@ -21,6 +21,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.01.2012 news Превью нового STAHLMANN
+
+<P>20 января на <STRONG>AFM </STRONG>выходит альбом новых надежд немецкого industrial-metal <STRONG>STAHLMANN "Quecksilber"</STRONG>. Ниже можно посмотреть девятиминутный клип с открывками треков с этого альбома.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/FGKm4rmivAY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 23.02.2012 news Новое видео STAHLMANN
+
+<P>Новый клип <STRONG>STAHLMANN</STRONG> на песню "<STRONG>Spring Nicht</STRONG>" можно посмотреть ниже. Лицензионный CD "<STRONG>Quecksilber</STRONG>", содержащий эту песню, можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/5kzxg-btMuo?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -101,6 +101,110 @@ All versions include the video for Lost Within A Shade.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.04.2000 reviews 
+
+<p>По названию уже можно догадаться, что это очередной power-альбом. Нельзя сказать, что он безликий, но и оригинальным его не назовёшь. Мелодии достаточно интересны и не очень сопливы, вокалист находится где-то в Хансеновской области. Есть несколько медляков, красивые фэнтэзийные клавиши в духе Rhapsody, слушать можно, но это не есть что-то необходимое к прослушиванию. Разве что фэнам Rhapsody и Gamma Ray? Всё сделано на добротном уровне первой лиги пауэр-металла (есть ещё высшая). Ещё несколько таких альбомов, и я начну злиться, хотя может это и напрасно, так как всё это всё равно раскупается. Любителям пауэра...</p>
+
+Автор: Dimas
+
+### 07.08.2000 news Новости от Morifade
+
+<p>Morifade приостанавливают концертную деятельность, из-за поездки Стефана в Азию. Также члены команды активно занимаются промо-компанией последнего альбома "Possesion Of Power" и нового MCD "Cast A Spell".</p>
+
+Автор: Vit Belov
+
+### 03.09.2001 news Представьте себе ...
+
+<p>Эпичные и симфоничные шведские пауэрщики "MORIFADE" находятся в Los Angered Recording Studios, где с продюссером Энди Ля Рок пишут новый студийник "Imaginarium", на который войдут 11 песен общим временем звучания более одного часа.</p>
+
+Автор: Yermola
+
+### 03.09.2001 news MORIFADE - Preparing New Material...
+
+<p>Swedish epic and symphonic Power Metalers, MORIFADE, are in the studio recording the follow-up to their successful "Possession of Power" album. The forthcoming album, "Imaginarium", is being done at the Los Angered Recording Studios, Gothenburg with well-known producer Andy LaRocque. "Imaginarium" will contain 11 tracks, clocking in at over one hour of playing time.</p>
+
+Автор: Yermola
+
+### 25.08.2002 reviews Power: разнообразие, мелодичность, запоминаемость и ...вторичность
+
+<p>Ну, уже перепахали вдоль и поперёк это поле power-metal. Интересно, пофантазировать, что нужно сделать группе, чтобы выбиться из общего ряда? Утяжелиться, упроститься? А может просто перестать играть подобную музыку? Армии фанатов данного стиля, я уже чувствую на лице приятный аромат тухлых помидоров и яиц. У меня в проигрывателе сейчас звучит очень хорошая пластинка... Новый альбом шведской группы Morifade не поразит Вас ни супернавороченными симфо-аранжировками, ни ураганным забоем, ни свежим ветром (ну, это я уже повторяюсь)... Пахнет от всего этого очень аппетитно, тут и классически выдержанный запах Helloween, и запах острых (слащавых???) соусов из Италии, и много чего другого вкусненького... Если Вы ещё не устали от подобных ароматов (разве можно устать кушать?), эта пластинка для Вас. Рекомендую всем фанатам помеси сказок и heavy metal, один из лучших релизов в данной области за последнее время.</p>
+
+Автор: Vit Belov
+
+### 20.07.2003 news Новый альбом MORIFADE
+
+<p>Новый альбом шведских power металлеров MORIFADE будет называться "Domi<>nation". Он должен выйти в скором времени на Hammerheart records. Первая партия дисков выйдет в формате диджипака и будет содержать бонус-материал.</p>
+
+Автор: Dimas
+
+### 06.08.2003 news MORIFADE отложили выпуск альбома
+
+<p>Шведская группа MORIFADE отложила выпуск своего нового альбома "Domi<>nation", который должен был выйти 1 сентября через Hammerheart Records, на 3 ноября. В Японии, альбом выйдет 3 сентября.</p>
+
+Автор: Dimas
+
+### 13.01.2004 news Новый альбом Morifade наконец-то выходит
+
+<P><B><IMG height=250 alt="" hspace=0 src="/images/news_rus/2004.01/5852.jpg" width=250 align="left" border=0>MORIFADE</B> выпускают свой новый альбом "<B>Domi&lt;&gt;nation</B>" 9 февраля. Первые пять тысяч экземпляров поступят в продажу в лимитированном digi-pack издании c пятью бонусами, а также с видео-клипом "<B>Lost Within a Shade</B>". Полный трэк-лист:</P>
+<DIV align="left"><SPAN lang=EN-GB>Parallels</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>A Silent Revolution</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>The Second Coming</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Words I Never Speak</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Clarity (Fragments of a Dream)</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Panopticon</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>The Rising</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Erase</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Memory’s End</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Cast a Spell*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>As Time Decides*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Tomorrow Knows*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Dance with the Devil*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Judas (Helloween-cover)*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Lost Within a Shade (video-track)</SPAN></DIV>
+
+<DIV align="left"><SPAN lang=EN-GB>* = bonus track for the digi-pack only !!!</SPAN>&nbsp;</DIV>
+Автор: Vit Belov
+
+### 13.01.2004 news New album by MORIFADE
+
+<P><B><IMG height=250 alt="" hspace=0 src="/images/news/2004.01/5853.jpg" width=250 align="right" border=0>MORIFADE</B>'s new album '<B>Domi&lt;&gt;nation'</B> finally will be released on 9th of February through Karmageddon Media. Full track-list:</P>
+<DIV align="left"><SPAN lang=EN-GB>Parallels</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>A Silent Revolution</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>The Second Coming</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Words I Never Speak</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Clarity (Fragments of a Dream)</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Panopticon</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>The Rising</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Erase</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Memory’s End</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Cast a Spell*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>As Time Decides*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Tomorrow Knows*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Dance with the Devil*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Judas (Helloween-cover)*</SPAN></DIV>
+<DIV align="left"><SPAN lang=EN-GB>Lost Within a Shade (video-track)</SPAN></DIV>
+Автор: Vit Belov
+
+### 10.08.2004 news MORIFADE расстались с вокалистом
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.08/6876.jpg" width=180 align="left" border=5>Шведские power-metal'исты <B>MORIFADE</B> расстались со своим вокалистом <B>Stefan Pettersson. </B>"<I>Я ухожу из группы по личным причинами и благодарю всех, всех, всех...</I>", -&nbsp;говорит <B>Stefan</B>.&nbsp;"<I>Для нас это не стало сюрпризом, разговоры о своём уходе Pettersson вёл уже не один месяц. Мы желаем ему всего наилучшего</I>", -&nbsp;вторят ему оставшиеся товарищи.</P>
+<P><B>MORIFADE </B>начинают прослушивания&nbsp;певцов.&nbsp;</P>
+Автор: Vit Belov
+
+### 17.03.2009 news MORIFADE споют банальность
+
+<P>О шведах <STRONG>MORIFADE</STRONG> не было слышно ничего довольно долгое время. Теперь группа объявила название своего нового альбома - <STRONG>"Empire Of Souls". </STRONG>Контракт с лэйблом на выпуск будущегго шедевра пока не подписан.</P>
+Автор: Vit Belov
+
+### 30.07.2011 news Новый альбом MORIFADE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=340 alt="" hspace=0 src="/images/news_rus/2011.07/20361.jpg" width=340 align=right border=0>Шведы<STRONG> MORIFADE</STRONG> возвращаются после семилетнего перерыва с новым альбомом <STRONG>"Empire Of Souls". </STRONG>Пластинка была записана в <STRONG>White Light Studio. </STRONG>Альбом станет дебютом для двух новых участников группы <STRONG>Kristian Wallin</STRONG> (vocals; ex-<B>RISING FAITH</B>)&nbsp;и <B>Mathias Kamijo</B> (guitar; ex-<B>HYPOCRISY</B>, <B>PAIN</B>). CD выйдет в свет 9 сентября на <STRONG>Rock It Up Records. </STRONG>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Bleeding For Lust</B><BR>02. <B>A Cry From Void</B><BR>03. <B>Come In Blood</B><BR>04. <B>Fear Breeder</B><BR>05. <B>My Silent Serenade</B><BR>06. <B>Road Of Deception</B><BR>07. <B>Recemblance Of Hate</B><BR>08. <B>Impact Of Vanity</B><BR>09. <B>Strenght In Solitude</B><BR>10. <B>The Dark Resignation</B><BR>11. <B>A Sinister Mind</B> (IceWarrior edition bonus track)<BR></P></FONT>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

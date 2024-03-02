@@ -187,6 +187,1010 @@ Armin Dorfler - Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.03.1999 reviews 
+
+<p>Третий альбом ещё одной немецкой команды-ветерана. В принципе, их творчество не изменилось. Они по-прежнему лабают готический doom в стиле PARADISE LOST и PYOGENESIS периода расцвета (то бишь 1994-1995 года). Лично меня этот альбом несколько разочаровал. Прежде всего, отсутствием той энергии, что раньше била ключом в записях группы. Альбом несколько медпеннее и меланхоличнее предыдущих, сказывается присутствие элементов dark-wave в стиле DREADFUL SHADOWS. Лишь иногда проскакивают взрывные энергичные песенки. Да и вокалист всё чаще вместо отчаянного вокала использует простой немощный вокал. Мелодий же, как и раньше, довольно предостаточно. Альбом небольшой, но содержит целых 11 композиций. Все они небольшие, поэтому прослушиваются на одном дыхании. Тех, кто знаком с творчеством этой группы, этот альбом может немного разочаровать. Тем же, кто с ним не знаком, альбом, скорее всего понравится.</p>
+
+Автор: Dimas
+
+### 26.06.1999 reviews 
+
+<p>Очередной серый альбом немецкого коллектива. Я вообще не могу понять чего они хотят. Их первый CD - "Midnight Solemnly Dance" был неплох. А далее, далее попер сплошной плагиат, причем отвратного качества: "Spellcraft" - полный закос под "Draconian Time" PARADISE LOST, "Romantic Tales" - просто попытка срубить $ по-легкому, а "Give Me Light" - это закос под "DREADFUL SHADOWS". Жаль, что в принципе неплохой коллектив тратит свое время на копирование других групп, стыдно господа...</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Darkseed закончили запись нового альбома "Diving Into Darkness". Обещается, что пластинка будет более экспериментальной и атмосферной.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 reviews 
+
+<p>Предыдущий альбом немецких музыкантов меня разочаровал. Я ждал реабилитации, и вот дождался... Действительно, музыканты не подкачали. Альбом намного лучше по всем параметрам. Более атмосферный, более ритмичный, незанудный, с множеством приятнейших мелодий в духе CREMATORY и PARADISE LOST. Несмотря на то, что на альбоме многие партии ударных записаны на компьютере, да и вообще электроника используется вовсю, основной упор делается на гитарные партии, чей звук заглушает электронику не пропуская её на передний план. Поэтому она особо сильно не заметна. Меня это очень порадовало. Особо меня порадовало то, что Стефан Хертрих иногда еще и рычит возвращая память к ранним альбомам группы. Очень сильный альбом. Рекомендую...(9)</p>
+
+Автор: Dimas
+
+### 16.07.2000 news Darkseed оставляют Nuclear Blast.
+
+<p> Darkseed окончательно решили покинуть Nuclear Blast и теперь ищут новый лейбл. Причиной прекращения сотрудничества послужило недостаточное внимание к группе.</p>
+
+Автор: Morsus
+
+### 16.07.2000 news Darkseed leave Nuclear Blast.
+
+<p> Darkseed finally got the permission to leave Nuclear Blast and are now looking for a new label. The reason to cancel the collaboration was the lack of promotion and distribution.</p>
+
+Автор: Morsus
+
+### 24.11.2000 news Darkseed начали сочинять новые песни.
+
+<p>С начала ноября Darkseed принялись сочинять песни для следующего альбома и полны надежд записать их в январе. Песни будут быстрее чем на "Diving Into Darkness", но без потерь в атмосферности и мелодизме. После того, как весь материал будет готов, парни определятся, с каким из лейблов, проявляющих интерес к Darkseed, им выгоднее заключить контракт.</p>
+
+Автор: Morsus
+
+### 24.11.2000 news Darkseed have started the song-writing.
+
+<p>From the beginning of November Darkseed have started the song-writing for the next album and hopefully all recordings are done in January. The songs will be faster than "Diving Into Darkness", but without losing any quality in atmosphere and melody. After song-writing guys will draw a conclusion about which of the labels interested in Darkseed will be more constructive.</p>
+
+Автор: Morsus
+
+### 07.01.2001 news Darkseed в январе направятся в студию.
+
+<p>Darkseed подписали контракт с Soundland/Sony Records. 15-ого января они отправляются в студию записывать новый CD. Рабочее название альбома - "Astral Adventure" и он будет содержать около 10-12 композиций. Песни будут весьма быстрые и энергичные, но вместе с тем довольно мелодичные. Восемь вещей уже готовы к записи, остальные - пока еще в процессе написания. Ориентировочно, CD появится на полках магазинов где-то между концом марта и серединой апреля.</p>
+
+Автор: Morsus
+
+### 07.01.2001 news Darkseed enter the studio on January.
+
+<p>Darkseed signed on Soundland/Sony Records. They will enter the studio on January 15th to start the recordings of the new CD. The working title for the new album is "Astral Adventure" and it will contain about 10-12 songs. The songs will be quite fast and energetic but also very melodic. Yet eight songs are ready for recording, the others are still work in progress. Approximately, the CD will hit the stores somewhere between end of March and middle of April.</p>
+
+Автор: Morsus
+
+### 10.08.2001 news Darkseed трудятся в студии
+
+<p> Наконец-то началась запись давно ожидаемого нового CD Darkseed "Astral Adventure". Планируется записать 14 треков, включая 9 новых песен и переписанные заново "Walk in Me" и "Death of Eden". Что касается нового лейбла, то с этим ясности нет. Дружба с Soundland Records так и не состоялась, но уже есть несколько новых предложений. Какому из лейблов отдать предпочтение, будет решено в процессе записи "Astral Adventure".</p>
+
+Автор: Morsus
+
+### 10.08.2001 news Darkseed are working in the studio
+
+<p> Finally, the recording of the long awaited new Darkseed CD "Astral Adventure" have started. Darkseed will record 14 tracks consisting of 9 new songs, a remake of "Walk in Me" and a remake of "Death of Eden" songs. As for the a new label: Darkseed divided with Soundland Records, but already have new labels interested in them. The decision on which label they will sign will be made while recording "Astral Adventure".</p>
+
+Автор: Morsus
+
+### 29.01.2003 news Новый альбом DARKSEED
+
+<p>28 апреля 2003 года на Massacre Records выйдет новый альбом германской команды DARKSEED под названием "Astral Adventures".</p>
+
+Автор: Dimas
+
+### 30.06.2003 news DARKSEED расстались с вокалистом
+
+<p>После одиннадцати лет совместной работы, немецкую группу DARKSEED покинул ее вокалист Stefan Hertrich, предпочтя выгодную работу в компьютерно-игровой индустрии многочисленным поездкам и турне вместе с группой. Новым вокалистом группы стал Christoph Puhr-Westerheide из группы MISLEAD. <BR> Stefan Hertrich же, не собирается совсем уходить в работу. Он будет заниматься своим сольным, чисто студийным проектом SHIVA IN EXILE, музыка которого будет смесью готической и этнической музыки. Также в его планах работа над новым альбомом BETRAY MY SECRETS и, конечно же, создание музыки для компьютерных игр.</p>
+
+Автор: Dimas
+
+### 03.09.2003 reviews Претендент на первое место
+
+<p>Немцам из DARKSEED давно пора бороться за призовые места в gothic-metal. На своём новом релизе 'Astral Adventures' группа предлагает версию gothic-metal максимально приближенную к эталонам этого стиля, в коммерческом их понимании. Если Вам надоело слушать однообразные мелодии у CREMATORY (будем надеяться, что после реформации они порадуют нас новыми идеями), послушайте мелодии от DARKSEED. Мелодии, по правде сказать, не очень разнообразные, а иногда и просто-таки позаимствованные, начало к Rain of Revival узнают любители компьютерных игр, как одну из тем из последней версии Heroes Of Might and Magic. Но мелодии вещь субъективная, и за активным использованием компьютера в аранжировках пробиваются хитовые решения и запоминающиеся рефрены, чем всегда славилась группа. По сравнению с предыдущими пластинками общий ритм упал, но настоящий ритмический рисунок более подходит к выбранному группой направлению, чем, например, быстрые прогоны на 'Spellcraft'. Данный экземпляр можно рекомендовать к обязательному прослушиванию всеми любителями gothic-metal в духе CREMATORY, а группе вполне по силам соперничать с ними в продажах.</p>
+
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 16.10.2004 news DARKSEED готовят новую работу
+
+<P><STRONG>DARKSEED</STRONG> выпускают новый альбом <STRONG>'Ultimate Darkness'</STRONG> 25 января на <STRONG>Massacre Records</STRONG>. Кроме новых песен, издание будет содержать bonus-CD с 11 редкими и нереализованными песнями за всю историю группы.</P>
+<P>Из других новостей, группа записала саундтрэк к компьютерной игре <STRONG>THE FALL</STRONG>, которая выйдет уже до конца года.</P>
+Автор: Vit Belov
+
+### 16.10.2004 news DARKSEED are in heavy action
+
+<P>First&nbsp;<STRONG>DARKSEED</STRONG> did the music for the computer game <STRONG>THE FALL</STRONG>, which will be out before christmas. On the other hand they record the tracks for the new album "<STRONG>Ultimate Darkness</STRONG>" which will be released on January 25th through <STRONG>Massacre</STRONG>. Next to the new songs the album will include a BONUS-CD with 11 (!) unreleased and rare tracks from the <STRONG>Darkseed</STRONG>-history.&nbsp;</P>
+Автор: Vit Belov
+
+### 22.12.2004 news Сэмплы нового альбома DARKSEED
+
+<P>Как уже сообщалось, новый альбом <STRONG>DARKSEED 'Ultimate Darkness'</STRONG> выходит в январе на <STRONG>Massacre</STRONG>. Уже сейчас каждый может послушать сэмплы семи песен из двенадцати на официальном сайте коллектива: <A href="http://www.darkseed.com/">http://www.darkseed.com</A></P>
+Автор: Vit Belov
+
+### 18.12.2005 news Новый этно-метал проект SpiRitual выпускает дебютный диск
+
+<P>Новый этно-металический проект <STRONG>SpiRitual</STRONG>, основанный <STRONG>Stefan</STRONG>`ом<STRONG> Hertrich</STRONG>`ом - вокалистом <STRONG>DARKSEED</STRONG> и автором таких проектов, как <STRONG>BETRAY MY SECRETS</STRONG> и <STRONG>SHIVA IN EXILE</STRONG>, выпускает свой дебютный альбом под названием "<STRONG>Pulse</STRONG>". В работе над альбомом принимали участие музыканты из разных стран и групп - <STRONG>HAGGARD, EQUILIBRIUM, MEGAHERZ</STRONG> и <STRONG>Яна Вева</STRONG> из российской группы <STRONG>THEODOR BASTARD</STRONG>. Видеоклип, который также присутствует на диске, сняла российская команда <STRONG>Deviant Creations</STRONG>. </P>
+<P>Диск "<STRONG>Pulse</STRONG>" выйдет в ближайшее время (конец декабря/начало января) в России на лейбле <STRONG>CD-Maximum</STRONG> в формате Digipack и будет включать также бонусы - плакат формата А4 и наклейку. Трек-лист альбома:</P>
+<P><STRONG><IMG height=150 alt="" hspace=15 src="/images/news_rus/2005.12/9865.gif" width=150 align=left border=0>1. This Battle Is Yours <BR>2. Symphon</STRONG><STRONG>y Of Life <BR>3. Nahash <BR>4. Pulse <BR>5. Save And Heal <BR>6. Nowhereness <BR>7. Pulse - video clip</STRONG> </P>
+<P></P>
+<P>&nbsp;</P>
+<P>&nbsp;</P>
+<P>Также, открылся официальный веб-сайт проекта по адресу <A href="http://www.spi-ritual.com/">www.spi-ritual.com</A> на котором можно найти сэмплы с альбома, а также видеоклип и многое другое.</P>
+<P>Штефан ищет этно-музыкантов для записи будущего материала. Если вы заинтересованы в этом, то можете связаться с ним по адресу <A href="mailto:stefan@spi-ritual.com">stefan@spi-ritual.com</A></P>
+Автор: Dimas
+
+### 01.12.2010 reviews Танцевальный и готичный DARKSEED
+
+<P>Немцы DARKSEED заняли заслуженное место в истории тяжёлой музыки, благодаря своему второму и лучшему альбому “Spellcraft” 1997 года выпуска. Нельзя сказать, что группа из Мюнхена открыла какое-то новое звучание, их место в этой самой истории достаточно скромное, но заметное. Переосмыслив то, что придумали PARADISE LOST на своих шедевральных альбомах начала-середины 90-х, DARKSEED выдали энергичнейший альбом, наполненный доверху хитами. Дальше коллектив пошёл по накатанной дорожке, не слишком изменяя своему стандарту и выдавая вполне себе благостные пластинки, процент хитов на которых просто был серьёзно ниже, чем на “Spellcraft”. После альбома 2005 года “Ultimate Darkness” DARKSEED куда-то пропали. Как выяснилось сейчас, они прекратили своё существование.</P>
+<P>Также неожиданно для меня вышел и новый альбом “Poison Awaits”. Группа вернулась к своим поклонникам, но не без подвоха. Всё время существования DARKSEED ассоциировался с вокалистом Stefan Hertrich. Именно его голос придавал ту энергичность, которая выделяла группу на фоне других подобных, которых в конце 90-х было предостаточно. Именно он популяризировал свою основную группу прекрасными сайд-проектами, среди которых BETRAY MY SECRETS, SPI-RITUAL и SHIVA IN EXILE. Как вы должно быть поняли, Stefan не принял участия в ре-юнионе DARKSEED и на новом альбоме нас ждёт встреча с новым вокалистом Harald Winkler. Забавно, что Harald не новый человек для DARKSEED, он был барабанщиков коллектива на заре его существования с 1992 по 1995 год. Таким образом, произошёл забавный перевёртыш, с уходом Hertrich DARKSEED потеряли единственного остававшегося в составе оригинального музыканта, но с приходом нового вокалиста они его вновь приобрели.</P>
+<P>Несколько слов о музыке. DARKSEED продолжили своё развитие в заданном ещё на прошлых пластинках направлении. Death-doom-metal, постоянно убыстрявшийся и облегчавшийся, окончательно превратился в gothic-metal с танцевальными хитами и несколькими «плаксивыми» балладами. Голос нового певца подходит для этой цели идеально. Harald лишён той «хэтфилдовской» хрипотцы, выделявшей Stefan Hertrich, его вокал продолжает традиции таких групп, как LACRIMAS PROFUNDERE или TO/DIE/FOR. Заплаканный гермафродит на обложке подтверждает настроение, создаваемое музыкой. В нескольких местах певец хрюкнул, но это не должно отпугнуть излишне впечатлительных поклонников металической готики.</P>
+<P>Не подумайте, что “Poison Awaits” – плохой альбом. Он хороший, но другой. На нём есть несколько бравурно танцевальных хитов, есть отличный примоднённый наэлектризованный звук с сэмплами, но это не очень похоже на DARKSEED, который навсегда для меня останется командой Stefan Hertrich. Хотя… Может быть не стоит зарекаться?</P>
+Автор: Vit Belov
+
+### 06.01.2012 news Новый вокалист DARKSEED
+
+<P><IMG height=550 alt="" hspace=0 src="/images/news_rus/2012.01/22519.jpg" width=400 align=right border=0>Неожиданная новость для всех поклонников немецкого коллектива <STRONG>DARKSEED</STRONG>. В группе в очередной раз сменился вокалист.</P>
+<P>Музыканты официально обьявили, что новым фронтменом группы стал <STRONG>Mike Schmutzer</STRONG>. Предыдущий вокалист <STRONG>Harald Winkler</STRONG>, с которым немцы записала всего один альбом, покинул состав команды в прошлом году. Основная причина: занятость на основной работе и нежелание выступать вживую.</P>
+<P>Первый концерт в обновленном составе пройдет 25 февраля на фестивале <STRONG>Heavy Winter Storm</STRONG> в Германии. Это будет первое выступление группы с 2008 года.</P>
+<P>Последний на данный момент альбом <STRONG>DARKSEED "Poison Awaits"</STRONG> вышел в 2010 году на немецком лейбле <STRONG>Massacre Records</STRONG>.</P>
+<P><A href="http://www.darkseed.com/">www.darkseed.com</A><BR><A href="http://www.myspace.com/darkseedband">www.myspace.com/darkseedband</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

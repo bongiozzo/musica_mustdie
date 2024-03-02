@@ -40,6 +40,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.06.2012 news Видео-клип THE MURDER OF MY SWEET
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик <STRONG>THE MURDER OF MY SWEET </STRONG>на песню <STRONG>"Unbreakable" </STRONG>можно посмотреть ниже. Трек взят с новейшей работы sympho-gothic-metal команды с женским вокалом <STRONG>"Bye Bye Lullaby".</STRONG></FONT></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/iUwo2MaNDrk?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

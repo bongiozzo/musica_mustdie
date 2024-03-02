@@ -164,6 +164,119 @@ Disc 2 - Demon Screeching
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.03.2006 reviews Кровавая мясорубка
+
+<P>Буклет альбома напомнил мне лучшие творения безжалостных&nbsp; флоридских мясников Cannibal Corpse: голые телки, обрубки тел, человекоподобные монстры, кишки и кости, а главное – кровь, кровь, кровь!!! Ну прямо больная фантазия серийного маньяка – убийцы. Двое музыкантов (а их в группе всего двое, остальные&nbsp; сессионщики) своим внешним видом походили на обвальщиков Черкизовского мясоперерабатывающего завода, суток двое не отходивших от рабочего места и не выпускавших ножей из рук. Передо мною&nbsp; лежал альбом “Torture&nbsp; Pit” немецкого коллектива Debauchery. Казалось бы, налицо все атрибуты брутального дэта,&nbsp; да и лейбл рекомендует группу поклонникам Cannibal Corpse и Six Feet Under, но на деле музыка Дебоширов это скорее дэт-н-ролл с элементами трэша&nbsp; и с бруталом ее роднит, пожалуй, только вокал. <BR>В целом, содержание пластинки мне понравилось: оставаясь достаточно жестким и напористым, материал не лишен некоего мелодизма, композиции довольно разнообразны и это выгодно отличает коллектив от многих коллег по цеху. Альбом легко слушается от начала до конца и не утомляет монотонностью и тупым молотиловом, к тому же он очень качественно записан – все гитары хорошо читаются, а барабаны звучанием соответствуют стандарту последних лет.</P>
+<P>Пластинка может понравиться не только поклонникам&nbsp; дэта и грайнда, но и трэшерам – меня например она зацепила: хотя особо нового я там для себя ничего не услышал, группа обладает некоторой долей харизмы, что в наше время повальной штамповки новых имен и релизов уже достаточно неплохо.</P>
+<P>Диск представлен Mystic Empire</P>
+Автор: Fucker
+
+### 22.06.2006 reviews Дас ист мясо!
+
+<P>Альбом 2003 года от немецких брутальщиков Debauchery представляет из себя размеренный среднетемповый дэт в лучших традициях жанра. Музыка полностью соответствует оформлению релиза. А с обложки на нас смотрит обезумевший врач с ног до головы заляпаный кровью, правая верхняя конечность которого заканчивается фантастическим оружием будущего. На инлее изображен коллаж из афиш-флаеров мероприятий, где засветилась группа. Стоит отметить, что послужной список коллектива достаточно богат: на счету у Debauchery выступления с такими корифеями жанра, как Obituary, Napalm Death, Six Feet Under. Я думаю, что всем поклонникам этих банд альбом Kill Maim Burn" придется по вкусу.</P>
+<P>Диск предоставлен Мистик Импайр.</P>
+Автор: Fucker
+
+### 01.12.2006 news DEBAUCHERY на AFM
+
+<P><STRONG>DEBAUCHERY</STRONG> заключили контракт с <STRONG>AFM</STRONG>. Новый альбом "<STRONG>Back In Blood</STRONG>" выйдет в 2007 году.</P>
+Автор: Vit Belov
+
+### 23.01.2008 news DEBAUCHERY выложили песню
+
+<P><STRONG>DEBAUCHERY</STRONG> выложили новую песню&nbsp;"<STRONG>Blood God Rising</STRONG>"&nbsp;на своей <STRONG>MySpace</STRONG> страничке. Эта композиция попадёт на новый альбом группы <STRONG>"Continue to Kill", </STRONG>который выйдет в этом году на <STRONG>AFM</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/debaucheryband">http://www.myspace.com/debaucheryband</A></P>
+Автор: Vit Belov
+
+### 06.08.2008 reviews Во славу AC&#x2F;DC и SIX FEET UNDER
+
+<P>Немецкие death-metal маньяки DEBAUCHERY являются мечтой любого продвинутого почитателя thrash-metal. Есть такие фанаты тяжеляка, которые начинали c thrash-metal, как многие из нас, но по прошествии десяти-двадцати лет им захотелось послушать чего-нибудь потяжелее. До недавнего времени утоляли голод этих мужиков шведские death-thrash металлисты и SIX FEET UNDER. DEBAUCHERY заступили на вахту относительно недавно, но судя по их скорострельности и по серьёзности намерений heavy-metal лэйбла AFM, они станут главными нашими надеждами.</P>
+<P>Именно, нашими, я не оговорился. Кому из нас не хотелось немного отдохнуть от progressive и techno-death запилов, послушав прямолинейного, качового и даже танцевального материала с отличным утробным рыком? Всем же надо расслабляться как-то. “Continue To Kill” – говорящее название для этого альбома. DEBAUCHERY продолжают объясняться в своей любви SIX FEET UNDER и AC/DC. “Hard Rockin’” даже начинается с упоминания названия австралийских монстров рока. Есть и другие хохмы на этом альбоме, ну, вернее даже не хохмы, а гэги, имеющие целью поставить даже самых тугодумных в известность, что всё здесь не взаправду, а ради улыбки и угара. Есть здесь и кавер на SLAYER, который тоже отлично вписывается в тематику этого альбома, добавляя жару.</P>
+<P>Такие группы нужны. Знаю, что многие кидаются в DEBAUCHERY грязью, но этого не стоит делать хотя бы потому, что даже самым «true and evil» из нас иногда нужно развлечься. А тут здесь есть всё для этого. Голые девки в буклете, качественная реализация, разнообразный материал, безупречное исполнение. Порядок выбирайте сами. Кстати, я думаю, на концерте это звучит просто ураганно.</P>
+Автор: Vit Belov
+
+### 16.09.2008 reviews Дэтовый хард-рок, или Странный немецкий Humor
+
+<P>После выяснений отношений на сцене в 2006-ом году, когда Дани надавал по морде Томасу, второй остался единственным официальным участником Debauchery, немецкой банды, играющей death metal, а первый группу покинул. Создается впечатление, что "развратники" питают особую симпатию к американскому коллективу Six Feet Under (который, по моему скромному мнению, исполняет довольно тупой дэт). Так вот, в 2004-ом году эти самые SFU выпустили альбом под названием "Graveyard Classics 2", который представлял из себя переигранный (или, как говорят иногда, отковеренный) целиком "Back In Black" AC/DC. Как SFU делают кавера кого бы то ни было, вам наверняка, к сожалению,&nbsp;известно. Вот и Debauchery называют свою четвертую работу "Back In Blood" (видимо, безумно гордясь своим остроумием), к которой прилагается дополнительный диск с каверами (на российском лицензионном издании они идут просто бонусами на том же диске, что и основной материал "Back In Blood"), о которых мы еще поговорим. Вообще, если честно, "Back In Blood" это не совсем дэт метал, это скорее хард-рок в традициях тех же AC/DC или Judas Priest, только с дэтовым вокалом. Наверное, не нужно воспринимать этот альбом серьезно, это, видимо, такой своеобразный немецкий humor.&nbsp;А когда по всему буклету, начиная с обложки, раскиданы голые девки, все в крови, да еще в лесбийских сценах, то закрадывается мысль, что Debauchery явно не уверены в том, что смогут привлечь слушателя своей музыкой, ну а голые бабы - это старый и проверенный метод. В ходе прослушивания "Back In Blood" вы наверняка легко расслышите лишь немного измененные риффы то от AC/DC, то от&nbsp;Deep Purple, то от&nbsp;Judas Priest. Честно говоря, со временем это начинает сильно утомлять. Основные слова в текстах - fuck, blood, bitch, sucker&nbsp;и всё в таком духе. Затем пришел черед каверной части, и пострадавшие от "юмора" Debauchery песни стоят того, чтобы&nbsp;быть перечисленнынми: 'I Can't Dance' (Genesis), 'Weisses Fleisch' (Rammstein), '8 Days A Week' (The Beatles), 'Heavy Duty/Defenders Of The Faith' (Judas Priest), 'Kings Of Metal' (Manowar), 'You Got Me Rocking' (The Rolling Stones), 'War Is Coming' (Six Feet Under, по признанию Debauchery тут же, в буклете, "best death netal band ever" - нда, ну и вкус...). Что сказать? Берется песня, играется почти один-в-один, только с дэтовым вокалом, вот и вся недолга. Возможно, если ты сильно пьяный, то это и смешно, а так... В общем и целом, вся эта байда длится более часа, и надо быть, наверное, ярым фанатом Debauchery, чтобы не нажать на пимпу "стоп" уже спустя полчаса. "Back In Blood" рекомендован к прослушиванию лицам, обладающим извращенным музыкальным юмором. Остальные могут потратить этот час на более достойную музыку.</P>
+<P>Альбом предоставлен компанией "СД-Макисмум"</P>
+Автор: Ixtiandr
+
+### 04.01.2009 news DEBAUCHERY готовят новый альбом
+
+<P><IMG height=327 alt="" hspace=0 src="/images/news_rus/2009.01/13284.jpg" width=333 align=left border=5>Вокалист немецкой группы <STRONG>DEBAUCHERY</STRONG> <STRONG>Thomas "The Bloodbeast" Gurrath </STRONG>рассказал о ближайших планах группы:</P>
+<P>"<EM>В апреле мы выпустим новый альбом <STRONG>'Rockers & War'. </STRONG>Первая часть этой пластинки 'War' будет содержать шесть песен, некоторый из которых будут похожи на SLAYER, а некоторый на DIMMU BORGIR. Классный материал, мелодичный и тяжёлый. Вот названия песен: <STRONG>'There Is Only War'</STRONG>, <B itxtvisited="1">'Primordial Annihilator'</B>, <B itxtvisited="1">'Savage Mortician'</B>, <B itxtvisited="1">'Honour And Courage'</B>, <B itxtvisited="1">'Killing Ground'</B>&nbsp;и <B itxtvisited="1">'Wolves Of The North'</B>. Вторая часть 'Rockers' будет чистым hard-rock с сюрпризами. Для headbangers и вечеринок. И даже ещё одна баллада от DEBAUCHERY. Названия песен: <STRONG>'New Rock'</STRONG>, <B itxtvisited="1">'3 Riff Hit'</B>, <B itxtvisited="1">'Demon Lady'</B>, <B itxtvisited="1">'Hammer Of the Blood God'</B>&nbsp;и </EM><B itxtvisited="1"><EM>'I'm A Rocker'</EM>"</B>.</P>
+<P>Также группа планирует добавить бонусный DVD к этой пластинке и снять новый видеоклип, который анонсируется, как 'lesbo-porno movie'.</P>
+Автор: Vit Belov
+
+### 10.02.2009 news Новая песня DEBAUCHERY
+
+<P><STRONG>DEBAUCHERY </STRONG>выложили на своей <STRONG>MySpace</STRONG> страничке новую песню <STRONG>"There Is Only War" </STRONG>с альбома <STRONG>"Rockers & War"</STRONG>, выходящего в апреле.</P>
+<P>Ссылка: <A href="http://www.myspace.com/debaucheryband">http://www.myspace.com/debaucheryband</A></P>
+Автор: Vit Belov
+
+### 05.03.2009 news Трэйлер нового DEBAUCHERY
+
+<P><STRONG>AFM</STRONG> распространили рекламный трэйлер нового альбома <STRONG>DEBAUCHERY</STRONG> <STRONG>"Rockers & War".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/JcC7Ur57s-o&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/JcC7Ur57s-o&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.03.2009 news &quot;Тётка-демон&quot; от DEBAUCHERY
+
+<P><STRONG>DEBAUCHERY</STRONG> выложили в сеть ещё одну новую песню <STRONG>"Demon Lady": <A href="http://www.myspace.com/debaucheryband">http://www.myspace.com/debaucheryband</A></STRONG></P>
+Автор: Vit Belov
+
+### 08.02.2011 news Новый альбом DEBAUCHERY
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.02/18462.jpg" width=400 align=right border=0>Новый альбом <STRONG>DEBAUCHERY</STRONG> <STRONG>"Germany's Next Death Metal" </STRONG>выйдет 25 марта на <STRONG>AFM</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Unbroken</B><BR>02. <B>Zombie Blitzkrieg</B><BR>03. <B>Warmachines At War</B><BR>04. <B>Animal Holocaust</B><BR>05. <B>Bloodslaughter Onslaught</B><BR>06. <B>Germany's Next Death Metal</B><BR>07. <B>School Shooter</B><BR>08. <B>Death Will Entertain</B><BR>09. <B>Armed For Apocalypse</B><BR>10. <B>Genocider Overkill</B><BR>11. <B>Killing Is Our Culture</B><BR>12. <B>School's Out</B> (ALICE COOPER cover; bonus track)</P>
+Автор: Vit Belov
+
+### 01.04.2011 news Mazzar подписали AFM
+
+<P>Московский независимый лейбл <STRONG>MAZZAR Records</STRONG> с гордостью сообщает о заключении лицензионного соглашения с немецким лейблом<STRONG> AFM Records</STRONG> (<A href="http://www.afm-records.de/">http://www.afm-records.de</A>) на издание новых альбомов групп: <STRONG>DEBAUCHERY "Germany's Next Death Metal"</STRONG> (<A href="http://www.debauchery.de/">http://www.debauchery.de</A> ) и <STRONG>BLOODBOUND "Unholy Cross</STRONG>" (<A href="http://www.bloodbound.se/">http://www.bloodbound.se</A>)</P>
+<P>Данные релизы увидят свет в первой половине апреля месяца!<BR></P>
+<P><center><IMG height=400 src="/images/news_rus/2011.04/18999.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 03.08.2013 news Видео новинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26013.jpg" width=200 height=285>В этом постинге&nbsp;опубликованы ссылки на 10 самых последних видео новинок от&nbsp;&nbsp;тяжёлых групп, которые так или иначе заслуживают внимание:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLACK TUSK</STRONG> "Truth Untold": <A href="http://youtu.be/yJXIvu4HqiY">http://youtu.be/yJXIvu4HqiY</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRING ME THE HORIZON</STRONG> "Go To Hell, For Heaven's Sake": <A href="http://youtu.be/9xLiI_-N4Hc">http://youtu.be/9xLiI_-N4Hc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CATTLE DECAPITATION</STRONG> "Your Disposal": <A href="http://youtu.be/szOlMfoN-jU">http://youtu.be/szOlMfoN-jU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> "All That's Left Is Blood": <A href="http://youtu.be/9OCh9hIGbGo">http://youtu.be/9OCh9hIGbGo</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEADLOCK</STRONG> "I'm Gone": <A href="http://youtu.be/R7M97B7bLZU">http://youtu.be/R7M97B7bLZU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEBAUCHERY</STRONG> "Let There Be Blood": <A href="http://youtu.be/7W8EU9HykoI">http://youtu.be/7W8EU9HykoI</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KILLSWITCH ENGAGE</STRONG> "Always": <A href="http://youtu.be/xcZIwXABBKA">http://youtu.be/xcZIwXABBKA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY RUIN</STRONG> "Moriendo Renascor": <A href="http://youtu.be/wNP_nITIuyQ">http://youtu.be/wNP_nITIuyQ</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEWSTED</STRONG> "Above All": <A href="http://youtu.be/6AWprBmbyuU">http://youtu.be/6AWprBmbyuU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TERROR</STRONG> "I'm Only Stronger": <A href="http://youtu.be/Gnx6ZusJbE4">http://youtu.be/Gnx6ZusJbE4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приятного просмотра!</FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 09.08.2016 news DEBAUCHERY vs. BLOOD GOD: Официальный стрим
+
+<p>Новый альбом <strong>DEBUCHERY vs. BLOOD GOD "Thunderbeast</strong>", вышедший на <strong>Massacre Records</strong>, можно послушать в клипе ниже.</p><p><center><iframe width="420" height="315" src="https://www.youtube.com/embed/jg8fP2-dMdM" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 09.08.2016 news DEBAUCHERY vs. BLOOD GOD: Full album stream
+
+New album <strong>DEBUCHERY vs. BLOOD GOD "Thunderbeast"</strong>, released on <strong>Massacre Records</strong>, can be streamed in the clip below.<p><center><iframe width="420" height="315" src="https://www.youtube.com/embed/jg8fP2-dMdM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 30.08.2016 reviews Кто хоть раз сыграет AC&#x2F;DC, останется AC&#x2F;DC навсегда
+
+<p>Немецкая death'n'roll легенда DEBAUCHERY продолжает сходить с ума по AC/DC. На этот раз лидер коллектива Thomas Gurrath решил выпустить целый альбом совместно с другой своей группой BLOOD GOD. “Thunderbeast” - двойной альбом, на первом диске мы слышим песни с гроулингом, а на втором те же песни с высоким вокалом. Что-то подобное уже было?</p><p>Несомненно было. С тех пор как Thomas научился петь высоким чистым вокалом в 2010 году (сначала BLOOD GOD назывался BIG BALL), он часто добавлял к альбомам DEBAUCHERY бонуса с чистым пением от BLOOD GOD. Постепенно начала стираться грань между этими группами. Звучание перестало отличаться, гармонии стали больше напоминать hard'n'heavy. DEBAUCHERY окончательно перестали относиться к death metal, и то, что теперь альбомы группы выходят под вывеской DEBAUCHERY vs. BLOOD GOD логично. </p><p>AC/DC это такая группа, которая может преобразить любое творчество. Если музыкант начинает подражать знаменитым австралийцам, он пропадает навсегда. У нас были SIX FEET UNDER, которые не могут до сих пор вернуться к свету, а всё переигрывают и переигрывают классику hard rock с закосом в AC/DC. Теперь есть DEBAUCHERY, у которых такая же болезнь, любая музыка, которую они сочиняют превращается в AC/DC. Да и сами AC/DC, однажды сочинив мелодию, не могут отойти от неё более чем на два шага уже 40 лет. К чему они не прикасаются, всё превращается в «Hells Bells”.</p><p>Непосредственно «Thunderbeast” очень не плох. На нём есть несколько очень цепких песен, а&nbsp; запись целиком предназначена для всех любителей поездить за рулём с ветерком. Все каноны стиля DEBAUCHERY выдерживают великолепно, их музыка ритмически идеальна и слушать её одинаково здорово как с гроулом, так и с высоким вокалом. Однообразная, предсказуемая, но заводная работа.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

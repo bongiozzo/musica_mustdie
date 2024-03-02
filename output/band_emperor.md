@@ -194,6 +194,254 @@ Samoth  -  Guitar
 * C группой "Hagalaz Runedance" Trym
 * C группой "Ihsahn" 
 
+## Публикации
+
+### 23.02.1999 news 
+
+<p>Emperor отправляются в европейский тур вместе с Limbonic Art, Morbid Angel, The Crown, Absu и Peccatun.</p>
+
+Автор: Vit Belov
+
+### 14.03.1999 reviews 
+
+<p>Думается, что рано или поздно можно привыкнуть к этому. Я имею ввиду новые релизы Emperor'a. После сногсшибательного "In The Nightside Eclipse", установившего, по сути дела, стандарты Norway Black metal, экстремальное общественность затаила дыхание, ожидая следующей Black metal атаки от Emperor'a, уже тогда воздвигнутого на престол лучшего Black metal акта. Ожидание несколько затянулось. В течении трёх лет ни Ihsahn, ни Samoth не проронили ни слова о столь ожидаемом всеми альбоме. Как оказалось, время, потраченное на его создание, стоило того. "Anthems to the Welkin at Dusk" сработал наподобие часовой бомбы. Emperor'у было присвоено непомерное количество разнообразных титулов, о нем были написаны сотни статей и ревью. Ihsahn & Co. полностью разрушили ими самими воздвигнутые стандарты и постулаты Black metal. Этот альбом можно было с таким же успехом переименовать в "Руководство по Black metal". И по моему личному мнению, никто так и не смог даже приблизиться к уровню "Anthems to the Welkin at Dusk". До настоящего момента. После двухлетнего перерыва они сделали это опять. Начну с того, что "IX Equilibrium" представляет из себя совершенный синтез Death и Black metal. Влияние deathметаллических корней Samoth'a стало ощущаться гораздо отчетливее. Другое отличительное от "Anthems..." качество нового альбома - продюсирование. Если на "Anthems..." вокал Ihsahn'a был глубоко захоронен в стене из риффов, аккордов и драйва, то на новом альбоме вокал ощущается гораздо четче и играет бОльшую роль в создании общего настроения. Профессионально натренированный для симфонического side проекта Peccatum вокал Ihsahn'a стал еще одной отличительной чертой Emperor'a. Исчезла характерная для "Anthems..." хаотичность ударных, работа Trym'a за установкой не даёт повода придраться. Клавишные немного отодвинуты на задний план, тогда как обе гитары стали гораздо отчетливее. Теперь о самой музыке. Синтез Mercyful Fate и Morbid Angel, точнее не выразиться. В новом материале Emperor'a бок о бок уживаются брутальность в стиле Azagthoth'a, значительная доля традиционного металла и довольно таки большое количество трэшевых мотивов. Плюс, естественно, неповторимое чувство гармонии и мелодичности, присущее только Emperor'у. Но наиболее замечательное качество альбома заключается в его динамичности. Если "Anthems..." воспринимался лучше всего, как непрерывный сорокаминутный трэк и требовал полной отдачи и сосредоточенности при прослушивании, то на "IX Equilibrium" границы между композициями определены гораздо чётче. Каждая композиция приобрела некотороую индивидуальность и ничего не теряет ни выступая в качестве части одного целого, ни как индивидуальный хит. Я могу бесконечно говорить о новом шедевре Emperor'a, но вряд ли смогу передать даже малую толику всего настроения, получаемого при прослушивании "IX Equilibrium". Скажу лишь, что на мой взгляд, ничего подобного в Black metal никогда не было и нет, надеюсь лишь, что будет (грядет новый релиз Immortal). All hail Emperor.</p>
+
+Автор: Dimas
+
+### 01.08.1999 news 
+
+<p>В сентябре Dimmu Borgir проедутся с концертами вместе с Samael. Таким образом Dimmu Borgir отменили концерты с Emperor и предпочли им Samael. Миньон Samael "Exodus" будет переиздан, как digi-pak. Новый альбом "Eternal" уже вышел в Европе.</p>
+
+Автор: Vit Belov
+
+### 23.08.1999 news 
+
+<p>Emperor готовят новое видео, в которое войдут записи с концерта в Асстории в Лондоне, а также записи из жизни музыкантов между концертами. Видео выйдет в конце года. Candlelight Records переиздаст последний альбом группы "IX Equillibrium". На него войдут несколько различных версий песен. Например, Трикстер Джи (Ulver, Arcturus) работает над ремиксом песни "Sworn". Для наших фэнов будет интересно, что группа выступит на фестивале в Польше 9 октября вместе с Peccatum, Limbonic Art, Hypocrisy, The Kovenant (новое название Covenant). Концертный клавишник Emperor Шарман Гримлох выпусти свой сольный альбом "The Red Jewel" в сентябре.</p>
+
+Автор: Vit Belov
+
+### 25.08.1999 news 
+
+<p>Borknagar находятся в туре по США вместе с Emperor. По возвращении группа начнёт записывать новый альбом в Abyss Studio вместе с Питером Тагтгреном.</p>
+
+Автор: Vit Belov
+
+### 29.10.1999 news 
+
+<p>Появился новый проект с участием известных музыкантов Syclone. По слухам в нём примут участие Самот и Трим из Emperor, а также Чак Билли из Testament.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Thou Shalt Suffer новый сольный проект Исана из Emperor. Альбом этой группы выйдет в феврале. Новый же альбом Pecattum "Oh My Regrets" выйдет в апреле.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Следующим релизом Emperor станет концертный альбом с названием "The Emperical Live Ceremony". Он выйдет в марте. А в апреле выйдет новый миньон Peccatum с кавером на песню Judas Priest "Blood Red Skies".</p>
+
+Автор: Vit Belov
+
+### 12.11.2000 news Zyklon закончили запись дебютного альбома.
+
+<p>Candlelight Records объявляют о заключении контракта с новым норвежским экстремальным актом Zyklon. Новый проект Samоth, основателя Emperor, был сформирован ещё в 1998 году. В состав Zyklon также вошли Destructhor из норвежской команды Myrkskog и экстраординарный барабанщик Emperor Trym. Группа только что закончила запись дебютного альбома "World Ov Worms" при участии приглашенных музыкантов Daemon (из Limbonic Art, вокальные партии), Trickster G (из Ulver) и американской фетиш-королевы Persephone. Лирика для всего альбома была написана Bеrd Faust Eithun. Альбом должен быть выпущен на Candlelight Records в начале февраля 2001 года, после чего Zyklon совершит тур по Европе совместно с Morbid Angel.</p>
+
+Автор: Morsus
+
+### 12.11.2000 news Zyklon has finished the recordings of debut album.
+
+<p>Candlelight Records announces the signing of a new norwegian extreme metal act Zyklon. New band of Emperor's founding member Samoth has formed in 1998. Zyklon line-up also features Destructhor (from Norwegian noise terrorists Myrkskog) and Emperor's drummer extraordinary Trym. The band has just finished the recordings of debut album "World Ov Worms" with the help of guest musicians Daemon (from Limbonic Art, on vocals), Trickster G (from Ulver) and US fetish queen Persephone. Lyrics for the whole debut album were written by Bеrd Faust Eithun. Album must be released on Candlelight Records in early February 2001. Zyklon will tour Europe with Morbid Angel shortly after the release of the debut album.</p>
+
+Автор: Morsus
+
+### 18.11.2000 news ... И ещё о новом альбоме Sirius
+
+<p> Стали известны кое-какие делали относительно нового альбома португальских симфо-блэкстеров Sirius. Помимо всего прочего, группа записала кавер-версию Emperor'овской "The Majesty Of The Nightsky" которая войдет в новый альбом в качестве бонус-трэка. Записать эту композицию помогли драммер Faust и Samoth (бас) из Emperor. Также в качестве вокалиста при записи альбома отметился Daemon из Limbonic Art.</p>
+
+Автор: Nybras
+
+### 22.11.2000 news Emperor работают над новым альбомом.
+
+<p>Emperor сейчас работают над предстоящим полным альбомом. Если все пойдет по плану, альбом выйдет весной будущего года.</p>
+
+Автор: Morsus
+
+### 22.11.2000 news Emperor are working on the new album.
+
+<p>Emperor are now working on the forthcoming full-length album. If all go according to plan, the album will be out in the spring time next year.</p>
+
+Автор: Morsus
+
+### 06.12.2000 news Emperor больше не будут выступать живьём
+
+<p>Очевидно, группа Emperor больше никогда не будет выступать на концертах. Это связно с тем, что лидеры группы Исан и Самот слишком заняты со своими сторонними проектами, группами Zyklon и Peccatum. Такое решение стало компромиссом между всеми членами группы. Что касается нового полнометражного альбома группы, то почти весь материал для него уже готов. По словам Самота, все тексты и почти всю музыку написал Исан, и, это будет полностью "его" альбом.</p>
+
+Автор: Nybras
+
+### 11.03.2001 news Новости от Emperor...
+
+<p>Стало известно название нового альбома EMPEROR - "PROMETHEUS - The Discipline of Fire & Demise" и некоторые треки: "The Eruption", "Depraved", "The Toungue of Fire", "The Prophet" и "Thorns On My Grave".</p>
+
+Автор: Yermola
+
+### 11.03.2001 news EMPEROR&#39;s next album ...
+
+<p>The title of EMPEROR's next album will be "PROMETHEUS - The Discipline of Fire & Demise" and some song titles will include: "The Eruption", "Depraved", "The Toungue of Fire", "The Prophet", and "Thorns On My Grave".</p>
+
+Автор: Yermola
+
+### 16.03.2001 news Выходит новый альбом Sirius
+
+<p> Новая гениальная работа португальских симфо-блэкарей Sirius "Spectral Transiton - Dimension SiriuS" появится на прилавках магазинов 19-го марта. Из официального заявления музыкантов: "Сразу можем сказать, что 'Spectral Transition...' - экстремальный, гитарно-ориентированный брутальный альбом. Некоторые оркестровые темы и аранжировки всё ещё присутствуют, но уже в другом духе. Также в некоторые клавишные партии мы ввели электро-индустриальные тона, придав альбому гораздо более тяжёлый и холодный оттенок по сравнению с предшественником. Итак, что произошло во время записи? Для создания альбома были приглашены особые гости, и мы с гордостью заявляем, что легендарный экс-драммер Faust из Emperor вернулся! Ему удалось на некоторое время выбраться из тюрьмы и присоединиться к нам в студии, чтобы записать несколько ударных и вокальных сэмплов. Также в записи вокала нам помогал Daemon (Limbonic Art/Zyklon), "пропев" безумным скримингом в четырёх трэках альбома. Samoth (Emperor/Zyklon) внёс свой вклад сыграв басу в песне 'The Majesty of the Nightsky'."... Трэк-лист альбома: Spectral Transition, Spiritual Metamorphosis - Destroy the Earthly, In Astral Pains of Trance, Abstract Eerie Corridors, Desolate Magnetic Fields, Into Forbidden Dimensions, Axis, Stellar Transcendence, Paradox Timeline, Dimensional Quantum, The Majesty of the Nightsky (Cover)</p>
+<p></p>
+
+Автор: Nybras
+
+### 03.04.2001 news Кровавый Трон....
+
+<p>Новый норвежский проект с веселеньким названием "BLOOD RED THRONE" имеющий в своем составе бассиста/гитариста EMPEROR / SATYRICON / EINHERJER "Черта" со второго Апреля сидит в Dub Studios (Kristiansand, Norway) и пишет дебютный "Monument Of Death" для Hammerheart / The Plague Records. Микширование и мастеринг будут выполнены Henrik Larsson в Berno Studio (Швеция)(THE HAUNTED, VOMITORY). Будут записаны: 01. Ravenous War Machine 02. The Children Shall Endure 03. Monument Of Death 04. Portrait of a Killer (Testimony of the Dying) 05. Malignant Nothingness 06. Mary Whispers of Death 07. Souls Of Damnation 08. Dream Controlled Murder 09. Path Of Flesh</p>
+
+Автор: Yermola
+
+### 03.04.2001 news Monument Of Death....
+
+<p> Norway’s BLOOD RED THRONE, featuring former EMPEROR / SATYRICON / EINHERJER bassist-turned-guitarist Tchort, are due to enter Dub Studios in Kristiansand, Norway today, April 2nd, to begin recording their debut album, Monument Of Death, for Hammerheart / The Plague Records. Mixing and mastering will be done by Henrik Larsson at Berno Studio in Sweden (THE HAUNTED, VOMITORY). Songs being recorded are:</p>
+<p></p>
+<p> 01. Ravenous War Machine</p>
+<p></p>
+<p> 02. The Children Shall Endure</p>
+<p></p>
+<p> 03. Monument Of Death</p>
+<p></p>
+<p> 04. Portrait of a Killer (Testimony of the Dying)</p>
+<p></p>
+<p> 05. Malignant Nothingness</p>
+<p></p>
+<p> 06. Mary Whispers of Death</p>
+<p></p>
+<p> 07. Souls Of Damnation</p>
+<p></p>
+<p> 08. Dream Controlled Murder</p>
+<p></p>
+<p> 09. Path Of Flesh</p>
+<p></p>
+
+Автор: Yermola
+
+### 17.04.2001 news Дисциплинированные EMPEROR......
+
+<p>Продолжается работа над новым альбомом "Prometheus - The Discipline Of Fire & Demise". Уже точно известно что на нем будут: The Eruption, Depraved, The Tongue Of Fire, The Prophet и Thorns On My Grave. Уже записаны все барабанные треки и сейчас команда в Symphonique Studio накладывает гитары. Микширование пройдет в мае в Akkerhaugen Lydstudio. Ихсан сообщил, что альбом будет "Нечто! Очень трудно даже описать это..."</p>
+
+Автор: Yermola
+
+### 17.04.2001 news EMPEROR - Disciples Of Discipline.....
+
+<p>EMPEROR is still working with new album "Prometheus - The Discipline Of Fire & Demise". Confirmed tracks are: The Eruption, Depraved, The Tongue Of Fire, The Prophet and Thorns On My Grave. The drum tracks are finished and the band is currently working on the layers at the Symphonique Studio. The album will most likely be mixed in May at Akkerhaugen Lydstudio, aiming for a fall release. Ihsahn has quoted the album to be "More of everything! It is very hard to make any specific description really."</p>
+
+Автор: Yermola
+
+### 10.08.2001 news Закончен новый альбом Emperor
+
+<p> Новый альбом Emperor "Prometheus: The Discipline of Fire & Demise" готов и будет выпущен на Candlelight Records в октябре этого года. Полный трек-лист включает следующие песни: 1. "The Eruption", 2. "Depraved", 3. "Empty", 4. "The Prophet", 5. "The Tongue of Fire", 6. "In the Wordless Chamber", 7. "Grey", 8. "He Who Sought the Fire", 9. "Thorns on my Grave". Альбом выйдет на компакт-диске в обычном и подарочном вариантах, а также на виниловой пластинке.</p>
+
+Автор: Morsus
+
+### 10.08.2001 news Emperor&#39;s new album is completed
+
+<p> Emperor's new album "Prometheus: The Discipline of Fire & Demise" is now completed and is confirmed for worldwide release in October via Candlelight Records. Tracklist: 1. "The Eruption", 2. "Depraved", 3. "Empty", 4. "The Prophet", 5. "The Tongue of Fire", 6. "In the Wordless Chamber", 7. "Grey", 8. "He Who Sought the Fire", 9. "Thorns on my Grave". The album will be released on CD, LP and Picture Disc format.</p>
+
+Автор: Morsus
+
+### 28.10.2001 news Emperor в чартах...
+
+<p>Новый альбом "EMPEROR" - "Prometheus - the Discipline of Fire & Demise" достиг 48 места в норвежском чарте альбомов...</p>
+
+Автор: Yermola
+
+### 21.11.2002 news Вокалист ABORYM арестован...
+
+<p>Бывший вокалист "MAYHEM" и действующий "ABORYM" - Attila Csihar арестован в Тревизо (Италия) и находится в тюрьме. Он арестован за хранение таблеток экстази и гашиша. Оставшиеся участники "ABORYM" заявили, что новый альбом "With No Human Intervention" в любом случае будет выпущен в январе 2003 на Code666 в Европе и WW3 (Mercenary Musick) в США. В качестве гостей на диске приняли участие Bard "Faust" Eithun (ex-EMPEROR, на данный момент - барабанщик DISSECTION), Nattefrost (лидер CARPATHIAN FOREST), а также Irrumator (босс ANAAL NATHRAKH). <BR><BR> Трек-лист:<BR><BR> 01. Antichristian Codec (intro)<BR> 02. With No Human Intervention<BR> 03. U.V. Impaler<BR> 04. Humechanics-Virus<BR> 05. Does Not Compute<BR> 06. Faustian Spirit Of The Earth<BR> 07. Digital Goat Masque<BR> 08. The Triumph<BR> 09. Black Hole Spell<BR> 10. Me(N)Tal Striken Terror Action<BR> 11. 11 Out Of Shell<BR> 12. Chernobyl Generation<BR> 13. The Alienation Of A Blackened Heart<BR> 14. Automatik Rave'olution Aborym</p>
+
+Автор: Yermola
+
+### 13.12.2002 news Антология EMPEROR
+
+<p>Уже не существующие как группа, норвежские black-металлеры EMPEROR планируют выпустить антологию под названием "Scattered Ashes - A Decade of Emperial Wrath" на Candlelight Records в марте 2003 года. Компиляцией двойного диска займутся участники группы. Альбом выйдет в слипкэйсе ограниченным тиражом и будет содержать не толлько уникальные вещи, но и демо-записи, а также неизданные вещи. Трэк-лист выглядит следующим образом:</p>
+<p> Disc One:<BR> 01. Curse You All Men <BR> 02. The Tongue Of Fire <BR> 03. The Majesty Of The Night Sky <BR> 04. Cosmic Keys To My Creations & Times <BR> 05. Wrath Of The Tyrant <BR> 06. The Loss & Curse Of Reverence <BR> 07. An Elegy Of Icaros <BR> 08. I Am The Black Wizards <BR> 09. Thus Spake The Nightspirit (live) <BR> 10. Ye Entrancemperium <BR> 11. In The Wordless Chamber <BR> 12. With Strength I Burn <BR> 13. Inno A Satana</p>
+<p> Disc Two:<BR> 01. A Fine Day To Die <BR> 02. Aerie Descent <BR> 03. Cromlech <BR> 04. Gypsy <BR> 05. Funeral Fog <BR> 06. I Am <BR> 07. Sworn (ULVER remix) <BR> 08. Lords Of The Storms <BR> 09. My Empire's Doom <BR> 10. Moon Over Kara-Shehr <BR> 11. Witches Sabbath <BR> 12. Ancient Queen <BR> 13. In Longing Spirit</p>
+
+Автор: Dimas
+
+### 27.08.2004 articles Хроника: Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах
+
+<P>Хроника: <EM>Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах</EM></P>
+<P>Мы возвращаемся из отпуска с очередной серией Хроники. На прошлой неделе Alice Cooper обрушился с критикой на рок-звёзд, которые агитируют в США за демократического кандидата John Kerry на выборах президента (а таких, кстати, большинство). Он назвал, подобные вещи «преступлением против рок’н’ролла», который по определению должен быть вне политики. «Когда мы начинали играть эту музыку, мы сбегали из школы, чтобы волочиться за девочками, пить пиво, а не читать Washington Journal». «Если Вы прислушиваетесь к rock star, голосуя на выборах, Вы больший дурак, чем они. Почему мы Rock star? Да, потому что мы дураки!» «Это не значит, что меня не волнует, что ждёт нашу страну, это значит, что я не считаю, что моё мнение должно что-то значить для Вас». Alice занял нейтралитет и просто продолжает свой американский тур.</P>
+<P>Некогда metal-hard rock журнал Kerrang! назвал лауреатов прошедшего сезона. Лучшей группой на планете стала METALLICA, которая обошла в этой номинации SLIPKNOT, THE DARKNESS, H.I.M., RED HOT CHILLI PEPPERS и BLINK 182. Лучшим новичком года названа банда VELVET REVOLVER, состоящая из бывших участников GUNS’N’ROSES и STONE TEMPLE PILOTS. Настоящий прорыв совершили THE DARKNESS, которые стали обладателями двух наград, как лучшая британская группа и как лучший концертный состав. Из других лауреатов: лучший альбом - MUSE "Absolution", лучшее видео - H.I.M. – "Funeral of Hearts", зал славы – GREEN DAY, дух рока – ANTHRAX.</P>
+<P>Вчера в Тель-Авиве состоялся второй Metalist fest, хэдлайнерами которого должны были стать шведы EVERGREY. К несчастью даже за рубежом тяжёлый шоу-бизнес находится в таком плачевном состоянии, что организаторы и группы продолжают терять достаточно большие деньги. Из официального заявления Oron Tonami из Metalist Productions: «EVERGREY не вылетели из Швеции, из-за того, что, якобы, им не были предоставлены обратные билеты на ночь с 28 на 29 августа. Мы отсылали уведомления о приобретении этих билетов по факсу дважды, поэтому я думаю, что это объяснение не выдерживает никакой критики. А ведь только в вечер накануне вылета менеджмент группы подтверждал намерение EVERGREY вылететь в то утро. Тысячи людей, которых EVERGREY кинули, очень расстроены этим событием». Мне думается, что тысячи людей расстроены, а Oron потерял ещё и кучку денег, которые являются основной причиной этого заявления. EVERGREY не замедлили ответить, в своём сообщении они рассказали, что купленные обратные билеты были не на тот день, который им надо. После этого невнятного оправдания на группу обрушились с критикой все фэны, обвинявшие их во всём от сионизма до антисемитизма. Tom Englund (гитара/вокал): «Я вынужден более подробно объяснить ситуацию. Мы были очень впечатлены предложением выступить в Израиле, такой возможности нам может больше не представится. Мы назначили очень маленький для нас гонорар 700 долларов, кроме этого, организатор по контракту должен был приобрести нам билеты на самолёт из Гётеборга в обе стороны и оплатить проживание. Всё дело в том, что мы должны были вернуться в ночь с пятницы на субботу, а не с субботы на воскресение. Мы заняты записью и в субботу должны работать со струнным квартетом и солистами. Началось всё с того, что нам был забронирован самолёт из Стокгольма, до которого 6 часов пути (540 км). Мы договорились, что организатор заплатит нам ещё 1000 долларов на автобус и водителя до Стокгольма (поверьте, это стоит гораздо дороже). Уже в Стокгольме в шесть часов утра мы узнали, что возвращаемся не в тот день. Поменять билеты не удалось, и мы не вылетели». Здесь пресс-релиз в сокращённом варианте. В оригинале Tom беспрестанно объясняется в любви к израильтянам. Конечно, чувствует, что попал. Пускай, контракт не соблюли в Metalist Production (Englund обещал его предъявить, в случае чего), надо понимать, КОГО он кинул. Могли не поехать, куда угодно, но только не в Израиль. Я думаю, их теперь живьём съедят, а продажи в США резко упадут.</P>
+<P><BR>Бывший барабанщик EMPEROR Bard "Faust" Eithun ответил на этой неделе на многочисленные вопросы фэнов, скопившиеся в гостевой на его сайте. Вот некоторые из наиболее интересных его ответов: «Все, кто хоть как-то связан с музыкой, переживают смерть Quorthon из BATHORY. После его смерти появилось множество публикаций, в которых Quorthon идеализируется и идолизируется. Я не большой сторонник подобных вещей. Мне просто нравилась музыка BATHORY и печально, что умер один из основателей true black-metal. Именно, поэтому я приму участие в одном all-star проекте. На фестивале в Bergen Hole In The Sky я выйду на сцену вместе с&nbsp; Samoth, Apollyon, Grutle, Satyr, Abbath, Gaahl, Nocturno Culto и Ivar, чтобы сыграть классические вещи BATHORY». Кроме этого, Faust заявил, что не участвует сейчас больше не в каких проектах, так как основная их цель обыденный заработок денег и сиюминутное привлечение внимания к своей персоне. «Я не верю в re-union EMPEROR со мной. Во-первых, нет никаких предпосылок к возрождению группы, а во-вторых, в любом случае Trym будет более подходящей кандидатурой, так как он записывал с группой всю классику».&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 05.10.2005 news Император вернулся!!!
+
+<P>Как сообщается на официальном сайте <STRONG>EMPEROR&nbsp; -</STRONG> группа объединилась снова для участия в нескольких фестивалях 2006 года, уже заявлено участие в <STRONG>Inferno 2006</STRONG>&nbsp; и&nbsp; <STRONG>Wacken 2006.</STRONG> 30 сентября группа выступила с тремя песнями на 15-летии норвежского журнала <STRONG>Scream</STRONG>&nbsp; в Осло. Выступление группы было неожиданностью даже для друзей группы и&nbsp; для многих людей из<STRONG> Scream</STRONG>!<STRONG>&nbsp; </STRONG>На празднике группа исполнила три хита&nbsp;&nbsp;<STRONG>"The&nbsp;Loss And Curse Of Reverence", "I Am The Black Wizards", "Inno A Satana".</STRONG></P>
+Автор: Bizarre
+
+### 19.01.2006 news Ihsahn выпускает первый сольник
+
+<P><STRONG>Ihsahn</STRONG> из <STRONG>EMPEROR </STRONG>выпускает свой первый сольник "<STRONG>The Adversary</STRONG>" в этом году на <STRONG>Candlelight.</STRONG> На этом альбоме всё было сыграно и спето <STRONG>Ihsahn</STRONG>, кроме барабанов, исполненных <STRONG>Asgeir Mickelson</STRONG> (<STRONG>BORKNAGAR, SPIRAL ARCHITECT</STRONG>). Трэк-лист:</P>
+<P>01. <B>Invocation</B><BR>02. <B>Called by the Fire</B><BR>03. <B>Citizen</B><BR>04. <B>Homecoming</B><BR>05. <B>Astera ton Proinon</B><BR>06. <B>Panem et Circenses</B><BR>07. <B>And He Shall Walk in Empty Places</B><BR>08. <B>Will You Will Love Me Now?</B><BR>09. <B>The Pain is Still Mine</B></P>
+Автор: Vit Belov
+
+### 08.02.2006 news Inferno Metal Festival Norway 2006
+
+<P>С 13-го по 15-е апреля в столице Норвегии Осло пройдет <B>Inferno Metal Festival</B>. Свое согласие на участие дали такие команды как <B>Usurper, Emperor, Cathedral, Marduk, Bolt Thrower, Dismember, Carpathian Forest</B> и <B>Witchcraft</B>. Практически все билеты по интернету уже раскуплены! Попытать всё же счастья, а заодно узнать побольше информации о фестивале можно на сайте <A href="http://www.infernofestival.net/"><U>http://www.infernofestival.net/</U></A></P>
+Автор: Ixtiandr
+
+### 05.01.2009 news Samoth запустил новый проект
+
+<P><IMG height=293 alt="" hspace=0 src="/images/news_rus/2009.01/13297.jpg" width=200 align=right border=5>Гитарист <STRONG>Samoth (ZYKLON, EMPEROR)</STRONG> сообщил, что в Новом году планиурет выпустить альбом с новой пока не названной группой:</P>
+<P>"<EM>ZYKLON по-прежнему в отпуске, и у меня достаточно времени для новой группы. Я и Cosmo из MINDGRINDER насочиняли вместе много материала, и теперь нам остаётся только найти вокалиста и барабанщика. Новая группа будет выступать в более лёгком жанре, чем ZYKLON, но в ней будут и черты death-metal, замешанные c old school и new school thrash-metal звучанием. Также я занят подготовкой к выпуску ре-юнион концертного альбома EMPEROR, который наконец-то выйдет в апреле на Candlelight</EM>".</P>
+Автор: Vit Belov
+
+### 16.11.2010 news Журнал Decibel выпустил специальный коллекционный номер, посвящённый стилю Black Metal
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17617.jpg" width=320 height=429>В специальный выпуск журнала <STRONG>Decibel</STRONG>, получивший название "<STRONG>Black Metal Hall Of Fame</STRONG>", вошло восемь историй из общирного склепа стиля&nbsp;<STRONG>Black Metal</STRONG>.&nbsp;Выпуски журнала&nbsp;серии <STRONG>"Hall Of Fame"</STRONG> рассказывают об истории создания наиболее важных альбомов экстремальной музыки, а так же, содержат интервью с музыкантами, принимавшими участие в записи каждого&nbsp;конкретного альбома.&nbsp;</P>
+<P>Перечень историй вошедших в журнал:</P>
+<P><STRONG>BURZUM</STRONG> - "Filosofem" (1996) *<BR itxtvisited="1"><B itxtvisited="1">DARKTHRONE</B> - "Transilvanian Hunger" (1994)<BR itxtvisited="1"><B itxtvisited="1">EMPEROR</B> - "In The Nightside Eclipse" (1995)<BR itxtvisited="1"><B itxtvisited="1">ENSLAVED</B> - "Frost" (1995)<BR itxtvisited="1"><B itxtvisited="1">IMMORTAL</B> - "At The Heart Of Winter" (1999)<BR itxtvisited="1"><B itxtvisited="1">ROTTING CHRIST</B> - "Thy Mighty Contract" (1993) *<BR itxtvisited="1"><B itxtvisited="1">SATYRICON</B> - "Nemesis Divina" (1996) *<BR itxtvisited="1"><B itxtvisited="1">VENOM</B> - "Welcome To Hell" (1981)<BR itxtvisited="1">*<EM>прежде никогда не публиковались.<BR itxtvisited="1"></P></EM>
+<P>Данный номер журнала не доступен для подписчиков. Его можно преобрести в некоторых розничных магазинах или&nbsp;заказать онлайн по адресу: <A href="http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue">http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue</A></P>
+Автор: Headcrusher
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+### 01.12.2014 news Свитера от FOO FIGHTERS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Панки <STRONG>FOO FIGHTERS</STRONG>, ведомые барабанщиком группы <STRONG>NIRVANA</STRONG>, Дейвом Гролом, выпустили рождественский свитер (доступно две цветовые вариации). Вдохновением к созданию подобного дизайна послужила норвежская группа <STRONG>EMPEROR</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказать себе такую красоту можно по адресу: <A href="http://shop.foofighters.com/collections/featured/products/ginger-metal-sweatshirt-cardinal">http://shop.foofighters.com/collections/featured/products/ginger-metal-sweatshirt-cardinal</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.12/27488.jpg" width=620 height=313> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 13.08.2016 news EMPEROR вернутся в 2017 году
+
+<p>Норвежцы<strong> EMPEROR</strong> объявили о серии концертов в 2017 году, на которых&nbsp;в составе <strong>Ihsahn, Samoth</strong> и <strong>Trym</strong> они исполнят альбом "<strong>Anthems To The Welkin At Dusk</strong>" целиком. Первым подтверждённым шоу стало выступление на <strong>Brutal Assault</strong> в Чехии будущим летом.</p><p><center>&nbsp;<img width="506" height="525" src="/images/news/2016.08/29799.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 13.08.2016 news EMPEROR will permorm next year
+
+<p>The Norwegians <strong>EMPEROR </strong>announced a series of concerts in 2017, where line-up of of <strong>Ihsahn, Samoth</strong> and<strong> Trym </strong>will perform the album "<strong>Anthems To The Welkin At Dusk</strong>" as a whole. The first confirmed show is the performance at the<strong> Brutal Assault</strong> in the Czech Republic next summer.</p><p><center>&nbsp;<img width="506" height="525" src="/images/news/2016.08/29799.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Emperor расходятся?

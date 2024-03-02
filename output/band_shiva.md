@@ -35,6 +35,324 @@ The Preacher
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.10.2003 reviews Назови меня красивым именем - Шива, любимый....
+
+<P>Нет, сколько всего, всё-таки, мужчина может сделать ради красивой женщины… Вот захотелось Аннет Йохансон стать рок–певицей, выступать перед разгоряченными спиртными напитками и возбужденными формами вокалистки, прыгающими и восторженно кричащими суровыми рокерами, затянутыми в джинсу и кожу – пожалуйста. Нашёлся рыцарь с гитарой, ничего, что не молодой, и не известный-богатый, без роду-племени, а значит, без дворца с садом и огородом и видом на море, зато талантливый. Написал он гору симпатичных, мелодичных и доходчивых песенок, “Free My Soul”, “Marilyn”, “Stay Out” легко бы стали украшением на альбомах именитых мелодик-хард легенд, даже мега-хит один “Dow Jones Index”. Принес он к ногам своей королевы – пой, милая, а я только рядышком посижу, на гитарке поиграю, да влюбленными глазами посмотрю… Не постеснялся рыцарь и друзей поднапрячь, хоть и хороший он музыкант, но с басом и барабанами не дружит. Заманил он чем то их в студию, наверняка на халяву писались, хотя всё равно, душевно у них получилось, видно тоже вдохновила собэндников муза. И записали все вместе добротненький материальчик, классический мелодик хард с легким влиянием южного буги, </P>
+<P>Вот только ослепленный своими чувствами, светлыми, как июньский день, не заметил наш рыцарь, что хоть и училась петь шведская прелестница с 18 лет, и определенно, делать это может, но при этом голос у неё удивительно мерзкий, на электродрель на холостых оборотах похожий. Слушать его мне было по началу очень сложно. Но привык я, притерпелся постепенно, обнаружив в себе мазохистские наклонности. Чего только не вытерпишь ради хороших мелодий.</P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 29.06.2004 reviews Подвиг во имя любви 2
+
+<P><B>Очень правильное решение приняли Mats Edstrom и Anette Johansson после выхода своего дебютного альбома. Они коренным образом поменяли стиль, и теперь вместо слащавенького радио-рока мы слышим классический hard’n’heavyв духе “Warlock”. Быстрые, можно даже сказать, часто агрессивные песни, с типичными, для середины восьмидесятых, гитарными соло и жесткими ритмами. Сыгранно все настолько качественно, что не перестаешь удивляться, как это всё смог сделать один человек. Ведь в этот раз Мэтс обошелся без помощи своих лучших друзей. Все гитарные, в том числе и басовые, клавишные и ударные партии он записал самостоятельно. Совершенно по-другому стала петь и Анетт. Вернее, она начала петь, а не визжать как электропила. А уж сколько эмоций в её голосе! Слушая проникновенную “Losing My Child” невольно начинаешь переживать, не на личной ли трагедии основана это песня? Вроде нет. Какой то сериал по ТВ пересмотрели.</B></P>
+<P><B>Да и песни в этот раз получились (я так и не нашел, кто является из них автором музыки) на порядок лучше, чем на первом альбоме. Никаких провалов. Хит за хитом. Все достаточно разные и каждый любитель жанра наверняка найдет на этом сиди что-то себе по душе. Лично мне очень понравились, по мимо главного, уже упомянутого хита, красивые и лиричные “Passenger Of Life”, “Dawning Of A New Horizon” и “Completely Strangers”, суровая “Porno Star” и скоростная “The Preacher”.</B></P>
+<P><B>Все хорошо на этом альбоме, за исключением оформления. Где они таких дизайнеров берут? Даже ошибку в слове completely умудрились пропустить.</B></P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+
 ## Обсуждения
 
 

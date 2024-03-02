@@ -48,6 +48,42 @@ recorded in July 2003 at Daniel Bergstrand's Dug Out Studio
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.01.2002 news Мистер Французский Щекотальщик...
+
+<p> <IMG SRC="/images/news_rus/2002.01/2295.bmp" ALT="pho" width="198" height="198" hspace="15" vspace="5" border="1" align="left" /> Французские трэшеры SCARVE подписали сделку с LISTENABLE records и в марте выпускают через них свой второй альбом 'Luminiferous'. Сейчас команда доделывает мастеринг в шведской Cutting Room (Gothenburg). Записывал альбом Daniel Bergstrand (работавший с STRAPPING YOUNG LAD, MESHUGGAH)....</p>
+
+Автор: Yermola
+
+### 14.01.2002 news SCARVE have inked a deal with LISTENABLE records for the release of their upcoming and second album ...
+
+<p><IMG SRC="/images/news_rus/2002.01/2295.bmp" ALT="pho" width="198" height="198" hspace="15" vspace="5" border="1" align="left" /> French musical outlaws SCARVE have inked a deal with LISTENABLE records for the release of their upcoming and second album 'Luminiferous' to be issued in early March. The band recently finished the mastering at the Cutting Room in Gothenburg Sweden. Engineered by the band and Daniel Bergstrand (STRAPPING YOUNG LAD, MESHUGGAH fame), SCARVE prove to be a full force of modernized thrash to compete with the Swedish masters of the genre. TOTAL SPEED with a sense of melody and catchiness ! The band went beyond the limits of violence of their debut released on WAR music almost two years ago. <BR> <BR> Feel free to get in touch with the band : napalmdirk@free.fr</p>
+
+Автор: Yermola
+
+### 13.02.2004 news Scarve выпустили новый альбом
+
+<P><B><IMG height=156 alt="" hspace=0 src="/images/news_rus/2004.02/6025.jpg" width=150 align="right" border=0>SCARVE</B> выпустили новый альбом '<B>Irradiant</B>' на <B>Listenable Records</B>. Кроме обычного издание будет доступен лимитированный digi-pack, на который войдут дополнительно 2 концертных трэка и 2 видео-клипа.</P>
+Автор: Vit Belov
+
+### 13.02.2004 news SCARVE released new album
+
+<B><IMG height=156 alt="" hspace=0 src="/images/news/2004.02/6026.jpg" width=150 align="right" border=0>SCARVE</B> released new album through <B>LISTENABLE RECORDS</B>. The album will be available in limited edition digipack with 2 live songs and 2 bonus video clips.
+Автор: Vit Belov
+
+### 29.12.2004 reviews Французы продолжают приятно удивлять
+
+<P>Да, удивляют меня все-таки порой французские тяжелые команды. Нет-нет, а всплывает на родине коньяка и шампанского&nbsp;тот или иной&nbsp;метал-акт, который позволяет говорить о том, что не так всё плохо у лягушатников с тяжеляком. Третий "полновесный" релиз секстета Scarve представляет собой нечто среднее между музыкой таких команд, как Meshuggah (даже не обращая внимание на участие в записи Фредрика Тордендаля), Darkane и S.Y.L. Так что любители упомянутых банд могут приобретать сей диск не раздумывая. Можно назвать такой стиль techno-thrash-death-modern-metal, хотя это не более, чем слова. Всё же Meshuggah будут побезумнее, поболезнее, может быть, в частности, за счет лучшей техники или более "психически больного" вокала. В записи также принимал участие вокалист Defleshed Густаф Йорде, за ударные отвечает Дирк Верберен, замеченный в "связях" с, например, Aborted, No Return, Soilwork и Yyrkoon. Не очень оригинальный, но, тем не менее, весьма и во многих отношениях достойный релиз, особенно учитывая страну происхождения. Если найдутся фэны сего коллектива, то им будет интересно, что альбом выходит также в виде limited edition deluxe digipack с двуия видеоклипами и двумя концертными бонус-трэками.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 25.12.2006 news Подробности о новом альбоме SCARVE
+
+<P>Французские мастера модернового диссонантного thrash death metal&nbsp;<B>SCARVE</B> дали название своей новой работе. Альбом под названием "<STRONG>The Undercurrent</STRONG>"</B> выйдет в начале 2007 года на <B>Listenable Records</B>.&nbsp;Он был записан в шведской студии&nbsp;<B>Dug-Out</B> с продюсером <B>Daniel Bergstrand</B> (<B>MESHUGGAH</B>, <B>IN FLAMES</B>, <B>STRAPPING YOUNG LAD</B><B>)</B>. Музыканты пока так и не объявили кто стал заменой их бывшему вокалисту <STRONG>Guillaume Bideau</STRONG>, который покинул весной коллектив ради участия в датской группе <STRONG>MNEMIC</STRONG>. Трек-лист альбома:<BR><BR>1. <B>Endangered</B><BR>2. <B>Imperceptible Armageddon</B> <BR>3. <B>Senseless</B> <BR>4. <B>The Plundered</B> <BR>5. <B>Assuming Self</B> <BR>6. <B>Fathomless Descent</B> <BR>7. <B>A Few Scraps Of Memories</B> <BR>8. <B>Rebirth</B><BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

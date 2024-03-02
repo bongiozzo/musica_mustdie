@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2016 news Новое видео EOHUM
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Канадская black doom metal группа <strong>EOHUM</strong> выпустила новое видео "<strong>Eurocide</strong>". Режиссёром ролика выступил <strong>Chris Kells</strong> (THE AGONIST). Трек взят с дебютного мини-альбома коллектива <strong>"Ealdfaeder</strong>".</font></p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/YnQcdUcOv2I" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.08.2016 news EOHUM premiers Video &#39;Eurocide&#39;
+
+<p>Montreal blackened doom E<strong>ohum</strong> (pronounced ee-o-um) premiere of their video '<strong>Eurocide</strong>' directed by <strong>Chris Kells</strong> of <strong>The Agonist</strong> and his film company <strong>FTB Visuals</strong>.</p><p>"<em>I believe this video clearly depicts the message and ideas behind Йohum. The music and concept of this project are well demonstrated. We are truly honored as the quality, location and mix are awesome</em>." comments band founder / guitarist <strong>Jeremy Perkins</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/YnQcdUcOv2I" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

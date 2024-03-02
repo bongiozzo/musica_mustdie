@@ -114,6 +114,666 @@ Trym - Drums
 * C группой "Myrkskog" Destructhor
 * C группой "Myrkskog" Secthodamon
 
+## Публикации
+
+### 12.11.2000 news Zyklon закончили запись дебютного альбома.
+
+<p>Candlelight Records объявляют о заключении контракта с новым норвежским экстремальным актом Zyklon. Новый проект Samоth, основателя Emperor, был сформирован ещё в 1998 году. В состав Zyklon также вошли Destructhor из норвежской команды Myrkskog и экстраординарный барабанщик Emperor Trym. Группа только что закончила запись дебютного альбома "World Ov Worms" при участии приглашенных музыкантов Daemon (из Limbonic Art, вокальные партии), Trickster G (из Ulver) и американской фетиш-королевы Persephone. Лирика для всего альбома была написана Bеrd Faust Eithun. Альбом должен быть выпущен на Candlelight Records в начале февраля 2001 года, после чего Zyklon совершит тур по Европе совместно с Morbid Angel.</p>
+
+Автор: Morsus
+
+### 12.11.2000 news Zyklon has finished the recordings of debut album.
+
+<p>Candlelight Records announces the signing of a new norwegian extreme metal act Zyklon. New band of Emperor's founding member Samoth has formed in 1998. Zyklon line-up also features Destructhor (from Norwegian noise terrorists Myrkskog) and Emperor's drummer extraordinary Trym. The band has just finished the recordings of debut album "World Ov Worms" with the help of guest musicians Daemon (from Limbonic Art, on vocals), Trickster G (from Ulver) and US fetish queen Persephone. Lyrics for the whole debut album were written by Bеrd Faust Eithun. Album must be released on Candlelight Records in early February 2001. Zyklon will tour Europe with Morbid Angel shortly after the release of the debut album.</p>
+
+Автор: Morsus
+
+### 16.03.2001 news Выходит новый альбом Sirius
+
+<p> Новая гениальная работа португальских симфо-блэкарей Sirius "Spectral Transiton - Dimension SiriuS" появится на прилавках магазинов 19-го марта. Из официального заявления музыкантов: "Сразу можем сказать, что 'Spectral Transition...' - экстремальный, гитарно-ориентированный брутальный альбом. Некоторые оркестровые темы и аранжировки всё ещё присутствуют, но уже в другом духе. Также в некоторые клавишные партии мы ввели электро-индустриальные тона, придав альбому гораздо более тяжёлый и холодный оттенок по сравнению с предшественником. Итак, что произошло во время записи? Для создания альбома были приглашены особые гости, и мы с гордостью заявляем, что легендарный экс-драммер Faust из Emperor вернулся! Ему удалось на некоторое время выбраться из тюрьмы и присоединиться к нам в студии, чтобы записать несколько ударных и вокальных сэмплов. Также в записи вокала нам помогал Daemon (Limbonic Art/Zyklon), "пропев" безумным скримингом в четырёх трэках альбома. Samoth (Emperor/Zyklon) внёс свой вклад сыграв басу в песне 'The Majesty of the Nightsky'."... Трэк-лист альбома: Spectral Transition, Spiritual Metamorphosis - Destroy the Earthly, In Astral Pains of Trance, Abstract Eerie Corridors, Desolate Magnetic Fields, Into Forbidden Dimensions, Axis, Stellar Transcendence, Paradox Timeline, Dimensional Quantum, The Majesty of the Nightsky (Cover)</p>
+<p></p>
+
+Автор: Nybras
+
+### 06.04.2001 news Болезненный Ангел....Стив Такер
+
+<p>По сообщению менеджмента "MORBID ANGEL", бассист/вокалист Стив Такер по ряду личных причин не сможет участвовать в Американском и Европейском турах команды. Заменой ему будет - Jared Anderson из флоридской "HATE ETERNAL". Европейский тур начинается 9 апреля с поддержкой "ZYKLON" и "CADAVER INC", а поздннее будет американский "Extreme Steel tour" совместно с "PANTERA", "SLAYER", "STATIC-X" и "SKRAPE".</p>
+
+Автор: Yermola
+
+### 06.04.2001 news Steve Tucker will not be appearing with MORBID ANGEL on their tours...
+
+<p>According to MORBID ANGEL’s management, vocalist/bassist Steve Tucker will not be appearing with MORBID ANGEL on their upcoming US and European tours due to family and personal problems. The bass and vocal duties at all upcoming dates will be handled by Jared Anderson of the Florida band HATE ETERNAL. MORBID ANGEL will be heading to Europe the week of April 9th for a five-week European tour with ZYKLON and CADAVER INC. in support. As previously reported, the band will also be taking part in the Extreme Steel tour along with PANTERA, SLAYER, STATIC-X and SKRAPE.</p>
+
+Автор: Yermola
+
+### 25.08.2001 news ZYKLON штормит.
+
+<p> Выступление на августовском Milwaukee Metal Fest стало последним для Daemon'a (LIMBONIC ART) в качестве вокалиста нопвежской супер-группы ZYKLON. Замена ему уже подыскивается.</p>
+
+Автор: Odiumaniac
+
+### 28.10.2001 news The vinyl version of &quot;WoW&quot; will finally see the light of day...
+
+<p>The vinyl version of "WoW" will finally see the light of day! It's coming out on license via Displeased Records/ Holland in November. It will be available via both <A HREF="http://www.displeasedrecords.nl/">www.displeasedrecords.nl </A>and <A HREF="http://www.plastichead.com/">www.plastichead.com</A> <BR> <BR> The long awaited tribute to Morbid Angel are on its way as well. We've been informed by Hellspwan Records that it will come out in January 2002 for sure. Zyklon contributes with a smashing version of "Dominate"</p>
+
+Автор: Yermola
+
+### 28.10.2001 news EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001
+
+<p>EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001 <BR> featuring MORBID ANGEL, Deicide, Soilent Green, Zyklon & Exhumed<BR> <BR> November 2001 <BR> 11/20/01 - CARDI'S - HOUSTON, TX <BR> 11/21/01 - VILLA REAL CONVENTION CENTER - McALLEN, TX <BR> 11/22/01 - OFF <BR> 11/23/01 - SUNSET STATION - SAN ANTONIO, TX <BR> 11/24/01 - CANYON CLUB - DALLAS, TX <BR> 11/25/01 - EL REY THEATRE - ALBUQUERQUE, NM <BR> 11/26/01 - TBA <BR> 11/27/01 - TBA <BR> 11/28/01 - GALAXY THEATRE - SANTA ANA, CA <BR> 11/29/01 - THE PALACE - HOLLYWOOD, CA <BR> 11/30/01 - THE POUND - SAN FRANCISCO, CA<BR> <BR> December 2001 <BR> 12/01/01 - THE POUND - SAN FRANCISCO, CA <BR> 12/02/01 - OFF <BR> 12/03/01 - CATWALK - SEATTLE, WA <BR> 12/04/01 - OFF <BR> 12/05/01 - OGDEN THEATRE - DENVER, CO <BR> 12/06/01 - OFF <BR> 12/07/01 - FIRST AVENUE - MINNEAPOLIS, MN <BR> 12/08/01 - VIC THEATRE - CHICAGO, IL <BR> 12/09/01 - AGORA - CLEVELAND, OH <BR> 12/10/01 - M (Formerly Metropol) - PITTSBURGH, PA <BR> 12/11/01 - TBA <BR> 12/12/01 - THE WORLD - NEW YORK, NY <BR> 12/13/01 - THE PALLADIUM - WORCESTER, MA <BR> 12/14/01 - JAXX - SPRINGFIELD, VA <BR> 12/15/01 - TBA <BR> 12/16/01 - TROCADERO - PHILADELPHIA, PA</p>
+
+Автор: Yermola
+
+### 28.10.2001 news Жизнь червей на виниле...
+
+<p>Норвежцы "ZYKLON", имеющие в своем составе учатсников EMPEROR - Zamoth (гитара) и Trym (барабаны), и участника "MYRKSKOG" гитариста Destructhor, в ноябре выпускают виниловую версию своего последнего альбома "World ov Worms" на голландской Displeased Records. Из других новостей, "циклоновская" версия “Dominate” от "MORBID ANGEL" войдет на трибьютный альбом онных выходящий через Hellspawn Records в январе...</p>
+
+Автор: Yermola
+
+### 05.01.2002 articles Несколько суперкоманд на одном концерте-это слишком!
+
+<p>Ну вот значит недавно вернулся с концерта, воспоминания еще свежи,но могу сделать один вывод - несколько суперкоманд на одном концерте-это слишком! Должны быть хэдлайнеры и аутсайдеры, а не так -башка блин отваливается от угара:)))</p>
+<p>Концерт начался ровно в назначенное время-первыми вышли калифорнийские маньяки из EXHUMED! Музыка данного коллектива представляет из себя брутально-приблэкованый дэс-метал. Основной вокалист и он же гитарист поет скриминговым вокалом,второй же гитарист подпевает ему сочным гроулингом-причем вокалы очень удачно чередуются, что создает илюзию разговора "великана-людоеда и злобного карлика" (выражение не мое-просто вспомнил и решил вставить:) Ну самый прикольный чел. у них-это басила. С панковским гребнем, в напульсниках а-ля ранний Керри Кинг. Так вот особо запомнился момент-идет мощная ломовая музыка и вдруг резко останавливается - басила снимает басуху и блюет перед собой,причем блюет реально:), а потом одевает басуху и продолжает как ни в чем не бывало рубить дальше.Народ просто в шоке:))).Причем басист еще до шоу подстелил перед собой клееночку, знал гад, что блеванет:) - видно “адский заблёв” входит в часть их шоу, так же как и обливание кровью- крови было много:)))Народ от такой музыки завелся с пол-пинка и активно рубился.</p>
+<p>Далее вышли грозные викинги - Норвежцы ZYKLON, имеющие в своем составе учатсников EMPEROR - Samoth и Trym и гитариста MYRKSKOG. Выглядят они очень колоритно – гитаристы-три столба под 1,90м рыжие-как настоящие тру-норвежцы, а барабанщик маленький, черненький да еще и стриженый,зато лупит дай бог:)</p>
+<p>Ребята сразу взяли с места в карьер и показали америкотам что такое тру блэк-метал, правда блэк-металом это назвать нельзя-скорее сильно приблэкованый дэс!Рубился народ очень даже активно.Правда вот звук был не идеальный.Ребята отыграли как вещи с альбома так и новые песенки, которые звучат не менее мощно.Но похоже у свех норвежских групп наметилась тенденция отходить от чистого блэка и играть что то похожее на дэс- как последние IMMORTAL, EMPEROR,SATYRICON. Кстати на концерте продавались альбомы не только ZYKLON, но и весь EMPEROR и MYRKSKOG. Я по этому случаю оторвал себе на халяву наклейку EMPEROR с рекламой их нового альбома. Потом настала пауза и народ полностью забил все пространство перед сценой, и я конечно же был в первых рядах, потому что вышли те, которые были для меня фаворитами концерта,да и концерт это подтвердил. Речь конечно же о DEICIDE .</p>
+<p>Команде, в которой за 15 лет не сменилось ни одного музыканта – и было видно чио они понимают друг друга с полувзгляда! Звук был просто отпадный – четкий, мощный и ясный, барабаны были выдвинуты сильно вперед- на бочках красовались 2 логотипа-такой же логотип был на заднике. Все ребята одеты в кожанные штаны и проклепанные сапоги, у Глена Бентона кожаная жилетка и перевернутый КРЕСТ на лбу –это не понты-сам видел-правда выглядит он как два шрама – но впечатляет!Один из братьев Хоффманов волосатый,а второй «Брат-2» видимо стриженный-потому что весь концерт он прорубился в кожаном шипованом шлеме- с прорезями для глаз и рта. Дядька Бентон вел себя на удивление скромно, не толкал никаких телег про сатану , а с довольным видом,объявлял песни, прислушиваясь и ко мнению зала! Начался гиг песенкой In Torment In Hell! Народ сразу же вошел в угар. Потом пошел Lunatic of Gods Creation – ну и здесь пел весь зал.Далее исполнены Serpents of the Light, заглавная вещь с Легиона, Bibble Basher, Let It Be Done. Затем наступила небольшая пауза и Бентон улыбнувшись объявил Sacrificial Suicide – это был апогейзал превратился в бурлящий котел поющий вместе с Deicide эту песню « всех времен и народов»!Мог ли я себе представить еще 10 лет назад, что когда нибудь буду рубиться под Sacrificial Suicide на концерте, да еще в исполнении авторов!!! Далее прослушали Once Upon the Cross и мы стали требовать еще одну песню « всех времен и народов» Dead By Dawn. Бентон переговорил-точнее переглянулся с музыкантами и произнес три магических слова Dead By Dawn! Волна угара с новой силой захватила нас, рубящихся в этом адском котле. Потом взяв как бы передышку Бентон спел песню с нового альбома Child of God и еще одну с Once Upon the Cross. И в завершении своего небольшого 40 минутного выступления зарядили Crusifixation. Надо заметить, что на сцене DEICIDE выглядят достаточно статично – не бегают, шоу тоже нет,но исполняемая музыка настолько тебя захватывает, что этого просто не замечаешь! Еще хочу отметить очень удачно подобранную программу – зал прекрасно знал все вещи!</p>
+<p>Потом наступила получасовая пауза, все стали ждать выхода Morbid Angel! Ну значит стоим мы в баре пиво пьем, обсуждаем детали концерта и предстоящие угары. Я упомянул что в феврале DIMMU BORGIR начинают американский тур, и вдруг стоящий рядом парень-америкот услышав знакомое слово обернулся-спросил откуда мы и что думаем про DIMMU BORGIR, а потом стянул с себя майку и на всю спину у него огромная цветная татуировка диммуборгировская пентограмма – вот до какой степени можно быть ТРУ:))))))Ну это я отвлекся - а теперь о хэдлайнерах шоу – Morbid Angel. В первую очередь мне хотелось услышать двухбочковую работу одного из лучших барабанщиков мира – Пита Сандовала-и я не ошибся. Этот просто пулемет какой то!Настолько быстро и ровно долбит по бочкам-по моему не было за все выступление таких моментов где бы шла одна бочка-поразился его работоспособности и таланту-такие вещи вытворяет!То же можно сказать и про Трэя Азагота – просто приятно смотреть/слушать как человек обращается с гитарой, как умело и в тему использует машинку.Правда чего так и не удалось увидеть – так это его лица – весь концерт его закрывали черные кудрявые волосы,да и ростом он невелик. Что касается вокалиста и второго гитариста, скажу что они отработали ровно и четко-на автомате, но Morbid с Винсентом мне нравился больше чем новый, а на концерте они исполняли в основном новые вещи 1998-2000. Хотя началось все песенкой с Altar of Madness. Потом загрузили народ вещами с Gateway to Annihilation- и народ надо сказать рубился, но не так активно- все силы были отданы DEICIDE. Затем заметно оживились когда была исполнена Rapture – поорали,попели! Попросили Blessed are the Sick – пожалуйста, затем Dominate – получите! И все таки не может не совсем она концертная команда- Morbid Angel-за час с небольшим их выступления народ заметно подустал.Хотя друг мне говорил, что на их концерте три года назад было очень весело-и вещи подобраны немного по другому!Или может быть несколько суперкоманд в одном концерте это перебор! Я бы с большим удовольствием сходил отдельно на DEICIDE и отдельно на MORBID!</p>
+<p>Но ничего не поделаешь- а может мы тут зажрались?:)))Следующий концерт состоится 15 декабря- мы сможем увидеть послушать и оценить MOONSPELL & LACUNA COIL.</p>
+
+Автор: rjh
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+### 27.02.2003 news Новый альбом ZYKLON
+
+<p>В сентябре 2003 года на Candlelight Records планируется к выходу новый альбом норвежской группы ZYKLON под названием "Aeon". Напомню, что ударным звеном группы являются бывшие музыканты EMPEROR Zamoth (a.k.a. Samoth) и Trym. Продюссер записи - Fredrik Nordstrom.</p>
+
+Автор: Dimas
+
+### 30.04.2003 news Надвигается ZYKLON из Норвегии
+
+<p>Норвежская группа ZYKLON готовит к выпуску на Candlelight Records в сентябре 2003 года свой второй альбом "Aeon". В альбом записанный в Studio Fredman войдут следующие вещи:</p>
+<p> 1. Psyklon Aeon <BR> 2. Core Solution <BR> 3. Two Thousand Years <BR> 4. No Names Above the Names <BR> 5. The Prophetic Method <BR> 6. Specimen Eruption <BR> 7. Electric Current<BR> 8. An Eclectic Manner</p>
+
+Автор: Dimas
+
+### 20.01.2004 reviews Тяжёлый, но монотонный
+
+Гитарист <B>Samoth</B> и барабанщик <B>Trym</B> из <B>EMPEROR</B> основали <B>Zyklon</B> в 1999 году. Лирику для новейшего альбома группы '<B>Aeon</B>' сочинил же бывший барабанщик того же&nbsp;коллектива <B>Faust</B>. Что можно ожидать от этих людей? Black-metal самого высокого пошиба, вот что. Но '<B>Aeon</B>' записан не в этом жанре. <B>ZYKLON</B> остановились на death-metal, а black здесь всего лишь примесь. Крепкая работа, но она вряд ли вдохновит кого-нибудь назвать себя лучшей работой года. И в том, и вдругом жанре были более сильные и разнообразные пластинки. Крепко сшитый, отлично скроенный материальчик, не более. Главным недостатком назову монотонность. Практически полностью отсутствуют быстрые куски. С другой стороны CD очень качественный&nbsp;и не заслуживает оценки ниже хорошо. Тяжёлый альбом, но без изюминки.
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 04.02.2005 news ZYKLON работают над новым материалом
+
+<P><STRONG>ZYKLON</STRONG> готовят новые песни для третьего альбома, который, как и первые два, выйдет на <STRONG>Candlelight Records</STRONG>. Известны уже некоторые названия: "<STRONG>Vulture</STRONG>", "<STRONG>Vile Ritual</STRONG>", "<STRONG>Scum</STRONG>" и&nbsp;"<STRONG>The Four Corners</STRONG>". Также в планах коллектива издание концертного DVD в отдалённом будущем.</P>
+Автор: Vit Belov
+
+### 04.02.2005 news ZYKLON write new songs
+
+<P><STRONG>ZYKLON</STRONG>&nbsp;is currently working on new album material, we can already reveal a few new titles, "<STRONG>Vulture</STRONG>", "<STRONG>Vile Ritual</STRONG>", "<STRONG>Scum</STRONG>", and "<STRONG>The Four Corners</STRONG>". The band has re-signed with <STRONG>Candlelight Records</STRONG> for their third album.<BR><STRONG>ZYKLON</STRONG>&nbsp;is also currently working on a new music video for the track "<STRONG>Core Solution</STRONG>", and there's still talk about a full-length live DVD. There will for sure be a few live tracks on the upcoming <STRONG>Inferno Festival</STRONG> DVD. </P>
+Автор: Vit Belov
+
+### 23.02.2005 news Zyklon назвали альбом
+
+<P>Новый альбом<STRONG> ZYKLON</STRONG> будет называться "<STRONG>Disintegrate</STRONG>". Его запись начнётся летом этого года.</P>
+Автор: Vit Belov
+
+### 08.11.2005 news ZYKLON задерживают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что норвежские экстремальщики<STRONG> ZYKLON</STRONG> собирались засесть в студию летом для записи новой работы "<STRONG>Disintegate</STRONG>". Однако в студию они попадут только в ноябре. По новым датам альбом выйдет на <STRONG>Candlelight</STRONG> весной. Также в следующем году свет увидит DVD <STRONG>ZYKLON "Storm Detonation Live</STRONG>", записанный на прошлогоднем фесте <STRONG>Party San</STRONG>. На диск также войдут два видео-клипа "<STRONG>Psyklon Aeon</STRONG>" и "<STRONG>Core Solution</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 26.02.2006 news Дата релиза нового ZYKLON
+
+<P>Новый альбом <STRONG>ZYKLON</STRONG> <STRONG>"Disintegrate" </STRONG>выйдет 15 мая на <STRONG>Candlelight</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.05.2008 news MORBID ANGEL нашли ещё одного гитариста
+
+<P><STRONG>MORBID ANGEL</STRONG> сообщили, что вторым гитаристом группы стал музыкант норвежцев <STRONG>ZYKLON</STRONG> <STRONG>Destructhor</STRONG> (a.k.a. <B>Thor Anders Myhren</B>).&nbsp; Группа находится в студии, где сочиняет материал для нового альбома. Легендарный death-metal коллектив находится пока без контракта, так как соглашение с <STRONG>Earache</STRONG> было прервано после выхода последней работы "<STRONG>Heretic</STRONG>".</P>
+Автор: Vit Belov
+
+### 05.01.2009 news Samoth запустил новый проект
+
+<P><IMG height=293 alt="" hspace=0 src="/images/news_rus/2009.01/13297.jpg" width=200 align=right border=5>Гитарист <STRONG>Samoth (ZYKLON, EMPEROR)</STRONG> сообщил, что в Новом году планиурет выпустить альбом с новой пока не названной группой:</P>
+<P>"<EM>ZYKLON по-прежнему в отпуске, и у меня достаточно времени для новой группы. Я и Cosmo из MINDGRINDER насочиняли вместе много материала, и теперь нам остаётся только найти вокалиста и барабанщика. Новая группа будет выступать в более лёгком жанре, чем ZYKLON, но в ней будут и черты death-metal, замешанные c old school и new school thrash-metal звучанием. Также я занят подготовкой к выпуску ре-юнион концертного альбома EMPEROR, который наконец-то выйдет в апреле на Candlelight</EM>".</P>
+Автор: Vit Belov
+
+### 07.01.2010 news ZYKLON развалились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новежская группа<STRONG> ZYKLON</STRONG> приказала долго жить. После двухлетнего перерыва в творческой деятельности коллектив объявил о прекращении своего существования. В этом году на <STRONG>Candlelight</STRONG> выйдет прощальный релиз <STRONG>ZYKLON</STRONG> бокс-сэт <STRONG>"The Storm Manifesto", </STRONG>содержащий все три альбома этой группы с бонусами. </FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### А не зажрались ли мы?:)-Репортаж о концерте DEICIDE/MORBID ANGEL/ZYKLON/EXHUMED

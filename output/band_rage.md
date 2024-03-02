@@ -725,6 +725,1863 @@ September/October 2015 at Megafon Studios (Burscheid, Germany) at Soundchaser St
 * C группой "Grave Digger" guiter player Manni Schmidt (ex-Rage)
 * C группой "Terrana, Mike" Mike Terrana (drums)
 
+## Публикации
+
+### 22.05.1999 news 
+
+<p>Rage уже сочинили новые песни для следующего альбома. Группа продолжает сотрудничество с оркестром Lingua Mortis.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Сенсационно-грустная новость из лагеря Rage. Группу покинули братья Эфтимиадисы и Свен Фишер, оставив Пиви Вагнера одного. Пиви отменил все концерты и ищет новых музыкантов для продолжения записи нового альбома с ориентировочным названием "Ghosts".</p>
+
+Автор: Vit Belov
+
+### 25.10.1999 reviews 
+
+<p>В Rage к моменту выхода этого альбома произошли коренные изменения состава, вместо ушедших братьев Эфтимиадисов и Свена Фишера появились белорус Виктор Смольский и барабанщик Майк Террана. Из-за этого количество участников записи раздуто до немеренных размеров, но, по-моему, делать какие-то выводы о квалификации новых музыкантов рано, так как вряд ли они были сильно задействованы в работе. Альбом получился в духе Rage 90-х, за некоторыми небольшими отличиями. Песенки стали чуть более разнообразны, хотя есть композиции, которые за версту отдают Rage, вокал Пиви стал чуть более квалифицированным, ну и, конечно же, наличие оркестра Лингуа Мортис. Надо отдать должное Пиви на этот раз оркестр гораздо более органично вписывается в металл-музыку, чем в прошлый раз. Он присутствует на всех песнях, но менее назойливо. Если группа пойдёт в том же направлении и новые музыканты добавят что-то своего, следующий альбом Rage может стать лучшим за всю историю группы. А пока только твёрдая четвёрка с плюсом, из-за некоторых песен, мелодии которых, мягко говоря, где-то я уже раньше слышал под маркой Rage. Рекомендую всем поклонникам Rage и хорошего пауэр-металл. 8,5 из 10</p>
+
+Автор: Dimas
+
+### 16.11.1999 reviews Классический RAGE с примесью оркестровки
+
+<P>Rage я люблю. Умеют и могут играть ребята. Особенно после их дружбы с оркестром Lingua Mortis. Музыка стала пожестче, хотя говорить о возврате в 90-е годы вряд ли уместно. Оркестр и Rage играют куда более органично, чем на "XIII" (хотя Пиви говорил, что на "XIII" оркестр лишь подчеркивает музыку Rage). Классный альбом, но одно маленькое "но". Вот уже четвертый альбом кряду "Black in Mind" - "End of All Days" - "XIII" - "Ghosts" Rage играют по 60 с гаком минут. Естественно, что существуют композиции, которые являются самоплагиатом. А так это классический Rage с примесью оркестровки.</P>
+<P>P.S. Наши в Rage - в составе появился белорус Виктор Смольский (Hail to Лукашенко).</P>
+Автор: Alexey Pitirimov
+
+### 23.11.1999 news 
+
+<p>Последние миньон и альбом Nightwish стали золотыми в Финляндии. Новый альбом группа выпустит в мае. А пока группа совершает тур по Европе вместе с Rage.</p>
+
+Автор: Vit Belov
+
+### 25.08.2000 news Проблемы у группы Rage
+
+<p> Rage отказались от идеи выпустить сборник из редких записей и бонус-треков из-за разногласий между Noise и G.U.N. Records.</p>
+<p></p>
+
+Автор: Nybras
+
+### 25.08.2000 news Rage compilation cancelled
+
+<p> RAGE have declined on the decision of releasing a compilation of their b-sides and rarities, due to difficulties between Noise and G.U.N. Records.</p>
+
+Автор: Nybras
+
+### 19.09.2000 news Rage трудятся над новым альбомом
+
+<p> Германские power-металлисты Rage сейчас в студии работают над своим новым диском. Как заявил фронтмэн группы Питер Вагнер, новый альбом будет тяжелее своего предшественника и будет состоять из 17-ти композиций, только четыре и которых будут записаны вместе с оркестром. Бонус-треком диска станет новая версия песни "Don't Fear The Winter"</p>
+
+Автор: Nybras
+
+### 30.10.2000 news Гитарист Rage, Виктор Смольский, продюсирует новый альбом  GB Arts
+
+<p>По сообщению официального сайта группы Rage, Виктор Смольский продюсирует новый альбом GB Arts "The Lake". В записи диска в качестве приглашенных музыкантов отметились вокалист Angel Dust Дирк Туриш и клавишник Mind Odyssey Андреас Диркшмайер</p>
+
+Автор: Nybras
+
+### 30.10.2000 news Rage&#39;s Victor Smolski produced the latest album from GB Arts
+
+<p>According to Rage's site http://www.rage-on.de , guitarist Victor Smolski produced the latest album from GB Arts, THE LAKE. The band consists of vocalist Markus Brand, guitarist Andre Rasfeld, bassist Thomas Senff, keyboardist Andreas Beckmann, and drummer Jorg Nazarow. Their label, B.Mind Records has a site at http://www.b-mind.com with more information, all in German. We weren't clear, but it appears as though all of Rage, Angel Dust singer Dirk Thurisch, and Mind Odyssey keyboardist Andreas Dirksmeier might also have been involved with the album, possibly appearing as guest musicians</p>
+
+Автор: Nybras
+
+### 05.01.2001 news У Grave Digger новый гитарист
+
+<p> Новым гитаристом Grave Digger, после ухода Уве Лулиса, стал Манни Шмидт (экс-Rage). Крис Болтендаль весьма кратко прокомментировал это событие:"Я думаю, что вы одобрите наш выбор. Прежде всего мы хотим сделать для Манни электронный адрес, так как он недавно купил себе компьютер, ха-ха.... и тогда он сможет ответить на все ваши вопросы. Также сейчас мы начинаем сочинение материала для нового альбома..."</p>
+
+Автор: Nybras
+
+### 09.01.2001 news Новый альбом Rage почти готов.
+
+<p>Название альбома - "Welcome To The Other Side" и он будет выпущен 26 февраля 2001 года. Начало европейского тура в поддержку альбома запланировано на 5 апреля.</p>
+
+Автор: Morsus
+
+### 09.01.2001 news The new album of Rage almost done.
+
+<p>The title of the album is "Welcome To The Other Side" and it will be released on 26. 02. 2001. As it looks like a Europe tour will start on 05th of April 2001.</p>
+
+Автор: Morsus
+
+### 15.03.2001 reviews Добро пожаловать в потусторонний мир
+
+<p>Добро пожаловать в потусторонний мир. Музыка исцеляет душу, которая никогда не может умирать. Это форма энергии которую смертные люди могут истинно постигать при смерти. Согласно древней мифологии греков существует поверье, что душа после смерти должна совершать полет вдоль речной стихии к Вечной земле. Когда мы умираем, эта энергия идет в другое измерение, другой мир - потусторонний. Вот такая концептуальная подоплека у этого альбома. Ну а музыкальная часть этого творения оставляет самые противоречивые чувства. Это явно не лучший альбом альбом группы. С одной стороны, жесткая среднетемпово-быстрая музыка со своим классическим саундом вперемешку с современным новым звуком группы, совершенно не напоминающим предыдущие два альбома группы, скорее более ранние творения. С другой, совершенно не свойственный группе драйв, вернее его недостаток. Немного суховатое звучание, несмотря на сольные выкрутасы Смольского (маловато их), деревянные барабаны. Поэтому иногда, несмотря на жесткие риффы, альбом кажется легковатым и простоватым. Да и риффы не особо цепляющие за исключением нескольких выдающихся. Но в целом приятный альбом с интересными мелодическими решениями. Кстати, совершенно без всякой симфонической поддержки, но с обильными клавишами.</p>
+
+Автор: Dimas
+
+### 19.04.2001 news Гастроли RAGE прерваны...
+
+<p>"RAGE" пришлось прервать начавшийся Европейский Тур "Welcome To The Other Side" из-за проблем с горлом и соответственно с голосом у мэйнмэна Пиви Вагнера, которому доктора настоятельно посоветовали воздержаться от пения на время. Пока неясно будут ли перенесены даты концертов на более поздний срок.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news RAGE have been forced to cancel the first three shows .....
+
+<p>Germany's RAGE have been forced to cancel the first three shows of their Welcome To The Other Side European tour as a result of vocalist Peavy Wagner coming down with a throat problem that has affected his vocal cords, thereby preventing him from singing until further notice by doctor's orders. It is not yet clear if the whole tour—which was to begin today in Ludwigsburg, Germany—will be postponed until a later date or if the group will play a part of it, with the remainder to be scheduled for a later time. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.11.2001 news A statement from the camp of RAGE guitarist Victor Smolski...
+
+<p>A statement from the camp of RAGE guitarist Victor Smolski: “A undreamt-of success was registered last months as the song ‘Straight To Hell’, composed by Victor for the RAGE album Welcome To The Other Side was used for the soundtrack of the most successful German movie production called Der Schuh des Manitu. More than 11 million spectators already saw this movie! Moreover that ‘Straight To Hell’ was also released on a soundtrack CD of the movie and on a Best Of—All G.U.N. Years CD, which contain a cross-section through the last 6 CD's of the band RAGE. Next year another music production for a movie will keep Victor busy. He has to compose the whole music for a historical, Russian war-movie called Anastasia Sluzkaja by direction of the russion director Jankovski. Maybe this background scenery can also be used for a video clip [that] RAGE will probably produce next year.”</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Олег Янковский + Виктор Смольский &#x3D; новый клип RAGE?!?!?
+
+<p>Новости из лагеря Виктора Смольского... Песня написанная Виктором для "RAGE" - ‘Straight To Hell’, была использована в качестве саундтрека к немецкому фильму "Der Schuh des Manitu". Фильм уже успели посмотреть более 11 000 000 человек. Так же ‘Straight To Hell’ была выпущена на СД с музыкой из фильма и на СД "Best Of—All G.U.N. Years". <BR> <BR> В следующем году Виктор будет работать над музыкой к российскому фильму "Анастасия Слуцкая" (режиссер О. Янковский). Материалы из фильма будут использованы в виде видеоклипа "RAGE".</p>
+
+Автор: Yermola
+
+### 19.12.2001 news New Rage album will be out on May
+
+<p>The new album of Rage will be produced by Charlie Bauerfeind. The album will probably see the light of day on May 2002, if everything goes according to plan. The track list is as follows: "All I Want", "Insanity", "Down", "Set This World On Fire", "Seven Deadly Sins", "You Want It, You'll Get It", "Living My Dream", "World Of Pain", "Dies Irae" and "Unity".</p>
+
+Автор: Morsus
+
+### 19.12.2001 news Новый альбом Rage выйдет в мае
+
+<p>Продюсировать следующий альбом Rage будет Чарли Бауерфайнд. Если всё пойдёт по плану, альбом увидит свет в мае 2002 года. В него войдут следующие песни: "All I Want", "Insanity", "Down", "Set This World On Fire", "Seven Deadly Sins", "You Want It, You'll Get It", "Living My Dream", "World Of Pain", "Dies Irae" и "Unity".</p>
+
+Автор: Morsus
+
+### 27.12.2001 news RAGE проповедуют единство...
+
+<p>Пиви Вагнер и Ко выбрали название для следующего альбома "RAGE" - "Unity". Уже арендована Twilight Hall Studio, запись пройдет в январе. Уточненный трек-лист: <BR><BR> 01. All I Want<BR> 02. Insanity<BR> 03. Down<BR> 04. Set This World On Fire<BR> 05. Seven Deadly Sins<BR> 06. You Want It YouґLl Get It<BR> 07. Living My Dream<BR> 08. World Of Pain<BR> 09. Dies Irae<BR> 10. Unity</p>
+
+Автор: Yermola
+
+### 27.12.2001 news RAGE Set To Issue &quot;Unity&quot; During May...
+
+<p>Germany's RAGE are scheduled to enter Twilight Hall Studio during January with producer Charlie Bauerfeind to begin recording their brand new CD, entitled Unity. Tentatively due for release in May, Unity will feature the following track listing: <BR><BR> 01. All I Want<BR> 02. Insanity<BR> 03. Down<BR> 04. Set This World On Fire<BR> 05. Seven Deadly Sins<BR> 06. You Want It YouґLl Get It<BR> 07. Living My Dream<BR> 08. World Of Pain<BR> 09. Dies Irae<BR> 10. Unity</p>
+
+Автор: Yermola
+
+### 18.01.2002 news RAGE собираются на гастроли!!!
+
+<p>Германские пауэрщики "RAGE" объявили о своих гастрольных планах:<BR> <BR> 19 апреля – Москва "Дружба" <BR> 20 апреля - Санкт-Петербург Дворец Спорта "Юбилейный"<BR> 10/11 мая - Лиссабон (Португалия)<BR> 07/08 июня - Сольвесборг (Швеция)<BR><BR> Сейчас группа занята записью нового альбома "Unity" в Twilight Hall Studio с продюссером Charlie Bauerfeind для майского релиза...</p>
+
+Автор: Yermola
+
+### 18.01.2002 news RAGE Complete New Album, Plan Festival Appearances ...
+
+<p>German power metallers RAGE have lined up the following live appearances during the coming months:<BR><BR> Apr. 19 – Moscow, RUS @ USH "Druzhba"<BR> Apr. 20 - St. Petersburg, RUS @ Sport Hall Ubileinyi<BR> May 10-11 – (near) Lisbon, POR @ Seixal Attack Festival<BR> Jun. 07-08 – Sцlvesborg, SWE @ Sweden Rock Festival<BR><BR> As previously reported, RAGE are currently recording their brand new album, tentatively entitled Unity, at Twilight Hall Studio with producer Charlie Bauerfeind for a May release.</p>
+
+Автор: Yermola
+
+### 22.05.2002 reviews Единство немецкой сборной
+
+<p>Вернее, не сборной, а команды легионеров. Эта команда написала 10 новых песен вместе с продюсером Чарли Бауерфайндом в студии Blind Guardian, около Крефелда. Им удалось записать классический тяжелый альбом. Очень хороший альбом, быстрый и тяжелый. Ни одной медленной композиции, кроме короткого инструментального отступления. Больше напоминает старые альбомы группы. Начало альбома просто забойное. По первым риффам, вообще кажется, что слушаешь death metal, тем более, что на фоне тяжелейших риффов слышится гроулинг, но тут же запевает Пиви, и все встает на свои места. А уж когда звучит припев, то сомнений никаких не остается. Это он - старый добрый, и в то же время, грозный RAGE. Минимум клавишного симфонизма, отсутствие оркестровок, лишь стальная энергетика, железные риффоплеты, сумасшедшая мелодика и огненная атмосферика. Превосходное качество, особенно понравились ударные. Большая часть материала была написана Виктором Смольским. Все песни хороши, но особо выделяются "Dies Irae" с участием Белорусского Оперного Хора и инструментал "Unity" изобилующий прогрессив-элементами. Забавный и драйвовый альбом. Быстрый ритм и отличные мелодии гарантированы. Альбом на котором каждый из музыкантов показывает мастерство и опыт игры на своих основных инструментах в полной мере. Высококлассный метал!</p>
+
+Автор: Dimas
+
+### 28.05.2002 news German Media Control Chart ...
+
+<p>Вот так представлены хард-рок/метал в German Media Control (Top 100) chart по состоянию за прошедшую неделю: <BR><BR> 04. BОHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending May 27th (as reported by Rock Hard magazine): <BR><BR> 04. BЦHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 03.06.2002 reviews Unite German combined team
+
+<p>More correctly, not combined team, but team of legioners. This team has written 10 new songs together with producer Charlie Bauerfind in studio of Blind Guardian, near Crefeld. They managed to write down a classical heavy album. A very good album, fast and heavy. Any slow composition, except for short instrumental deviation. Reminds old albums of group more. The beginning of an album is simple brutal. On first riffes, in general it seems, that listen death metal, as on a background hardest riffes growling is heard, but here begins to sing Peavy, and all rises on the places. And when the refrain sounds, doubts any does not remain. It's he - old kind, and at the same time, "rage" RAGE. A minimum of keyboard sympho, absence orchestra, only steel power, iron riffes, mad melodic and fiery atmosphere. Excellent quality, especially have liked drums. The most part of a material was written by Victor Smolski. All songs are good, but are especially allocated "Dies Irae" with participation of the Belorussian Opera Chorus and instrumental "Unity" abounding with progressive-elements. Amusing and drive album. A fast rhythm and the excellent melodies are guaranteed. An album on which each of the musicians shows skill and experience of playing on the basic instruments to the full. High quality metal!</p>
+
+Автор: Vit Belov
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 16.02.2003 news RAGE готовят новый альбом
+
+<p>Ветераны немецкого heavy metal RAGE готовятся к записи своего нового творения. Уже известно название будущего альбома - "Soundchaser". Альбом будет записан в апреле в VPS Studio. В мае альбом пройдет микширование и мастеринг в студии Mi Sueno продюссером Charlie Bauerfeind'ом. Выход нового альбома намечен на конец лета 2003 года.</p>
+
+Автор: Dimas
+
+### 22.02.2003 news Еще немного о будущем альбоме RAGE
+
+<p>По данным российского фэн-клуба RAGE <A HREF="http://www.rage-online.ru/">"Love And Fear Unite" </A> десять песен для нового альбома группы "Soundchaser" уже готовы. До конца этой недели музыканты планируют завершить работу еще над двумя композициями. Среди уже написанного материала есть две баллады, но музыканты еще не решили, попадут они на новый альбом или нет. <BR> Кроме этого стало известно, что художественное оформление к новому CD RAGE вновь будет делать Йоахим Лютке (Joachim Luetke).</p>
+
+Автор: Dimas
+
+### 22.03.2003 news Майк Террана в Москве
+
+<p>17 мая 2003 года в центральном доме художника состоится барабанное шоу «PREMIER DRUMMER DAY IN RUSSIA» с участием МАЙКА ТЕРРАНА (RAGE).</p>
+
+Автор: Vit Belov
+
+### 29.04.2003 news Выход нового альбома&quot;Soundchaser&quot; легендарной немецкой powermetall группы Rage намечен на сентябрь 2003 года
+
+<p><IMG SRC="/images/news_rus/2003.04/4186.jpg" ALT="pho" width=300 height=190 hspace="15" vspace="5" border="1" align="left">Под впечатлением от работ известного писателя-мистика начала 20-го века Ховарда Ловкрафта (H.P. Lovecraft) лидер группы Rage Пиви Вагнер (Peavy Wagner) (бас,вокал) написал историю, которая явилась концепцией всего нового альбома. Эту истории можно будет прочитать на буклете и услышать в песнях. Часть лирики будет базироваться на старом материале времён альбома "The Missing Link" и "Secrets In A Weird World" в несколько необычной форме, на это автора подвигла сама концепция альбома. По словам самого Пиви Вагнера новый альбом непременно будет в духе классических композиций Rage, и между тем обещает быть самым необычным альбомом за всю историю группы. <BR> На данный момент уже известен трек лист:</p>
+<P> 1. Orgy Of Destruction (Music: Victor Smolski / Mike Terrana)<BR> 2. War Of Worlds (Music: Victor Smolski Lyrics: Peavy Wagner)<BR> 3. Great Old Ones (Music & Lyrics: Peavy Wagner)<BR> 4. Soundchaser (Music: Victor Smolski Lyrics: Peavy Wagner)<BR> 5. Defenders Of The Ancient Life (Music & Lyrics: Peavy Wagner)<BR> 6. Secrets In A Weird World (Music: Victor Smolski Lyrics: Peavy Wagner)<BR> 7. Flesh And Blood (Music: Victor Smolski Lyrics: Peavy Wagner)<BR> 8. Human Metal (Music: Victor Smolski Lyrics: Peavy Wagner) <BR> 9. See You In Heaven Or Hell (Music & Lyrics: Peavy Wagner)<BR> 10. Wake The Nightmares (Falling From Grace Pt.1) (Music & Lyrics: Peavy Wagner)<BR> 11. Death Is On It's Way (Falling From Grace Pt.2) (Music & Lyrics: Peavy Wagner)<BR> 12. Fuga (Music: J.S.Bach Arranged by: Victor Smolski)<BR> 13. French Bourree (Music: J.S.Bach Arranged by: Victor Smolski Lyrics: P.Wagner)</>
+<P> Последнии две композиции одновременно являются частью нового сольного проекта Виктора Смольского (Victor Smolski) (гитара).</>
+
+Автор: AngelFire
+
+### 30.06.2003 news Дата выхода RAGE
+
+<p>Стала известна точная дата выхода нового альбома RAGE "Soundchaser" - 29 сентября 2003 года.</p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 02.10.2003 reviews Очень качественно, очень тяжело (в рамках стиля), но не очень мелодично
+
+RAGE&nbsp;-&nbsp;одна из самых стабильных и почитаемых в России групп. Никакие катаклизмы и периодические изменения состава не мешают Пиви Вагнеру всегда находится в голове колонны современной металл-музыки. В последней версии с гитаристом Виктором Смольским и барабанщиком Маком Терраной RAGE продолжают выпускать достаточно успешные альбомы. Майк является одним из сильнейших рок-барабанщиков в мире,&nbsp;Виктор тоже&nbsp;хорошо играет, но кроме того, сочиняет половину музыки в современном RAGE. Чем отличается нынешняя реинкарнация немецкой группы от&nbsp;прошлых?&nbsp;Мне кажется, Смольский привнёс в группу элементы, присущие творчеству гитарных героев. Местами хорошие соло, сочный гитарный звук, но вокальные мелодии принесены в жертву&nbsp;звучанию гитары. Новейший альбом слушается на одном дыхании, ритм-гитара вдалбливает последние гвозди в в воспалённый разум любителей тяжёлого звучания. Вот только куда-то потерялись мотивы, которые заставляли сжиматься сердца всех поклонников группы, как симфонического, так и трэшового отрезков в истории RAGE.&nbsp;Реверанс в сторону прошлых работ можно услышать лишь на 'Secrets in a Weird World'&nbsp;и эпической 'Falling from Grace'.&nbsp;Очень качественно, очень тяжело (в рамках стиля), но не очень мелодично. 
+<P>Диск предоставлен точкой B2-100 в Рубине</P>
+<P>
+<CENTER><IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 29.10.2003 news Helloween and Rage in Europe
+
+20.10. UK-London - Mean Fiddler<BR>21.10. NL-Hardenburg - Podium<BR>22.10. Stuttgart - Longhorn<BR>24.10. Berlin -Halford<BR>25.10. PL-Katowice - Spodek<BR>27.10. N-Oslo - Rockefella<BR>28.10. DK-Copenhagen - Amager Bio<BR>29.10. S-Stockholm - Arena<BR>31.10. S-Gothenburg - Lisebergshallen<BR>01.11. S-Malmo - KB<BR>02.11. Osnabr&uuml;ck - Hyde Park<BR>03.11. M&uuml;nchen - New Backstage<BR>05.11. CZ-Prag - T Mobile Arena<BR>06.11. HUN-Budapest - Petofi Hall<BR>07.11. SK-Zvolen - Sports Hall<BR>08.11. A-Wien - Planet Music<BR>10.11. CH-Z&uuml;rich - Rohstofflager<BR>11.11. I-Mailand - Alcatraz<BR>13.11. E-Valencia - Republica<BR>14.11. E-Barcelona - Razzmatazz<BR>15.11. E-San Sebastian - Anoeta<BR>17.11. P-Lissabon - Garage<BR>18.11. E-Granada - Ind Copera<BR>19.11. E-Madrid - Divino Aqualung<BR>21.11. F-Strassbourg - Laiterie<BR>23.11. B-Antwerpen - Hof Ter Lo<BR>25.11. NL-Tilburg - O13<BR>26.11. Lichtenfels - Stadthalle<BR>27.11. K&ouml;ln - Live Music Hall<BR>28.11. Hamburg - Docks
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 30.10.2003 news Rage - первый в октябре!
+
+<P>RAGE&nbsp;со своим новейшим альбомом 'SoundChaser', в лицензионной версии SOYUZ, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С небольшим отрывом отстали&nbsp;STRATOVARIUS 'Elements, Part II' (Irond) и&nbsp;лидер прошлого месяца&nbsp;DIMMU BORGIR&nbsp;'Death Cult Armageddon' (Irond). В первую десятку вошли:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=545 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="28%" height=17><B>RAGE </B></TD>
+<TD align=middle width="43%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="29%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="43%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="43%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="43%" height=26><B>II</B></TD>
+<TD align=middle width="29%" height=26><B>CD-MAXIMUM</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="43%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="43%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>CHARON</B></TD>
+<TD align=middle width="43%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="29%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="43%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="29%" height=17><B>CD-MAXIMUM</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="43%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="29%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="43%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="29%" height=17><B>AMG</B></TD></TR></TBODY></TABLE></P>
+<P>TOP 50 альбомов по продажам во втором месяце осени Вы можете посмотреть <A href="/ru/articles/1/50443/">здесь.</A> Любой из этих дисков вы легко можете заказать в нашем <A href="/ru/shop">магазине.</A></P>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 21.12.2003 reviews Именно таким он и должен был быть
+
+<P>Альбом этот берёт своёй стабильностью и качеством. Вдоволь наэкспериментировавшись в 90-е годы, в последнее время группа старается не уходить далеко. В чём участники открыто признаются в интервью. Будучи в отличной форме, сыгранном составе, ребята просто делают своё дело. А разве этого мало? Я уверен, что если не было бы “<B>Unity</B>”, то обозреваемый альбом публика приняла бы ровно с таким же оглушительным восторгом. Иными словами этот диск только закрепляет успех предыдущего и получился таким, каким он должен был быть.</P>
+<P>Безусловными и главными хитами альбома являются “<B>Defends Of The Ancient Life</B>” и “<B>Great Old Ones</B>”. Работа в области записи и сведения от <B>Чарли Баэрфайнда</B> как водиться на неприступной высоте, что было вполне прогнозируемо. Сама структура песен оставляет поле для доработки. В первую очередь это касается подчас невнятных припевов. Немного надоедают клавишно-гитарные развлечения a-la заглавный инструментал с прошлого альбома. Последняя композиция в двух частях немножко напомнила о существовании такого альбома как “<B>Welcome To The Other Side</B>”.</P>
+<P>Но что-то мне подсказывает, что следующий диск будет сильно отличаться от двух последних. Посмотрим.</P>
+Автор: Uneral
+
+### 12.02.2004 news RAGE выпустят DVD
+
+<IMG height=235 alt="" hspace=0 src="/images/news_rus/2004.02/6003.jpg" width=360 align=right border=0>25 января <STRONG>RAGE</STRONG> записали концерт в Бохуме, Германия. Он выйдет осенью в качестве DVD под названием <STRONG>'From The Cradle to the Stage'</STRONG>.
+Автор: Vit Belov
+
+### 12.02.2004 news Rage will release DVD
+
+<IMG height=235 alt="" hspace=0 src="/images/news/2004.02/6004.jpg" width=360 align=right border=0>On 1/25 RAGE prooved again their Russian- American-German friendship and recorded a live DVD in Bochum. Release date will be in fall under the title: "<STRONG>From The Cradle To The Stage</STRONG>".
+Автор: Vit Belov
+
+### 20.04.2004 news RAGE опубликовали трэк-лист своего DVD
+
+<P>Как мы уже сообщали, осенью выходит DVD<B> RAGE</B> "<B>From the Cradle to the Stage"</B>. Стал известен трэк-лист их выступления, снятого для этого релиза. Трэк-лист:</P>
+<P>Acoustic Set:<BR><BR>01. <B>Intro</B><BR>02. <B>Deep In The Night</B><BR>03. <B>Vanished In Haze</B><BR>04. <B>After The End</B><BR>05. <B>Wake The Nightmares</B><BR>06. <B>Turn The Page</B><BR><BR>Regular set:<BR><BR>01. <B>War Of Worlds</B><BR>02. <B>Great Old Ones</B><BR>03. <B>Paint The Devil On The Wall</B><BR>04. <B>Sent By The Devil</B><BR>05. <B>Firestorm</B><BR>06. <B>Down</B><BR>07. <B>Prayers Of Steel</B><BR>08. <B>Suicide</B><BR>09. <B>Days Of December</B><BR>10. <B>Unity</B><BR>11. <B>Drum Solo</B><BR>12. <B>Enough's Enough</B><BR>13. <B>Invisible Horizons</B><BR>14, <B>Set This World On Fire</B><BR>15. <B>Flesh & Blood</B><BR>16. <B>Guitar Solo</B><BR>17. <B>Soundchaser</B><BR>18. <B>Straight To Hell</B><BR>19. <B>Back In Time</B><BR>20. <B>Refuge</B><BR>21. <B>From The Cradle To The Grave</B><BR>First Encore:<BR>22. <B>Black In Mind</B><BR>23. <B>Solitary Man</B><BR>24. <B>Don't Fear The Winter</B><BR>Second Encore:<BR>25. <B>All I Want</B><BR>26. <B>Higher Than The Sky</B> <BR></P>
+Автор: Vit Belov
+
+### 27.04.2004 news Виктор Смольский записывает новый соло-альбом
+
+<B>Виктор Смольский</B> работает над новым соло-альбомом, который, возможно, будет называться <B>"Majesty & Passion"</B>. Помогать на новом альбоме ему будут его коллеги по <B>Rage Peavy</B> и <B>Mike</B>. Кроме них, в записи примут участие несколько приглашённых, в частности, знаменитый <B>Uli Jon Roth</B>.
+Автор: Vit Belov
+
+### 27.10.2004 news Автограф-сессия Виктора Смольского
+
+<P align=center><STRONG><U><IMG height=250 alt="" hspace=0 src="/images/news_rus/2004.10/7259.jpg" width=250 align=right border=5>Автограф-сессия В.Смольского</U></STRONG><BR>В преддверии выхода сольного альбома<STRONG> В.Смольского</STRONG> «<STRONG>Majesty & Passion</STRONG>» - рок-обработки произведений Иоганна Себастьяна БАХА </P>
+<P>31 октября 2004 года (воскресенье) в 14:00 на точке <STRONG>B2-074</STRONG> в <STRONG>ТВЦ Рубин ( Ля-Ля Парк)<BR></STRONG>состоится сессия автографов одного из ведущих рок-гитаристов мира Виктора Смольского (группа RAGE)!<BR>--------------------------------------------------------------------------------</P>
+<P>Компания <STRONG>CD-Maximum</STRONG> готовит к выходу новый сольный альбом великолепного гитариста и композитора, музыканта, родиной которого стала огромная страна - Музыка. Виктор Смольский, наиболее известный по работе в немецкой группе Rage, на своем сольном альбоме собрал множество отличных музыкантов с громкими именами. Дата релиза - 22 ноября, понедельник. Два варианта издания порадуют многих, и особенно специальный бонус-трек для России! </P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 29.12.2004 reviews Время округляет
+
+<P>Да, время округляет. Округляются даты (а Rage празднуют свое двадцатилетие, учитывая деятельность под вывеской Avenger), округляются животики у Вагнера, Смольского и Террана, округляются - в бОльшую сторону - суммы на их банковских счетах, огругляется и логотип группы, округляются даже поселившиеся не так давно в буклетах Rage механические чудища... Свой юбилей немецкое - а, точнее, интернациональное - трио отмечает первым своим официальным концертным альбомом. 27 номеров продолжительностью более 2 часов были сыграны 25 января 2004 года в немецком городке Бохум, где концерты&nbsp;групп подобного уровня не в новинку. "Выпустить просто "the best of" было б для нас примитивной пошлой дешевкой", говорит Пиви. Вот так, не больше и не меньше. "Здесь есть по крайней мере по одной песне с каждого из предыдущих альбомов", утверждает он, но изучите внимательно сет-лист, и вы поймете, что герр Вагнер немного лукавит. Концерт сдобрен соло Майка Террана и оным же Виктора Смольского. При сохранении атмосферы концерта, он записан прекрасно (со звуком колдовал маэстро Чарли Бауэрфайнд, так что ничего удивительного; кстати, прислушайтесь к 'Sent By The Devil' - вам никакую группу звучание не напоминает?). Безусловно, Rage в отличной форме, но всё же думаю, что сей своеобразный "the best of" (а всё-таки он является таковым, что бы не говорил Пиви) будет лакомым кусочком скорее для фэнов группы, ибо прослушать более двух часов подобной музыки для "не фанатствующего" слушателя тяжеловато. Опять-таки лишь любителям Rage будет интересно услышать, как Смольский с его некоторым уклоном в так называемый неоклассицизм исполняет старые вещи группы. Юбилейный релиз выходит в трех вариантах: как двойной аудиодиск, как двойной DVD и как limited edition digipack, включающий в себя оба указанных формата. DVD повторяет аудиоконцерт (кстати, я видел в интернете сет-лист, там почему-то нет на DVD 'Enough Is Enough' - ошибка или была причина не включать эту вещь в видеоряд?), а бонусный трехчасовой диск предлагает вам посмотреть все 11 видеоклипов плюс различные закулисные съемки и видеодокументацию из истории группы, дискографию и прочие занимательные вещи. Не знаю, сколько будет стоить такое издание у нас, но в интернет-шопах его можно вроде бы приобрести всего за 30 евро - думаю, за такой прайс любой фанат Rage просто обязан купить "самый полный" вариант.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 09.02.2005 reviews 20 лет в ярости
+
+<P>К своему двадцатилетию интернациональный состав Rage решил порадовать всех своих поклонников двойным концертным релизом, записанным&nbsp; во время гига в городе Бохум, Германия. 27 трэков стальной плавки самой высшей марки, представляющей из себя подборку лучших вещей группы в период с 1984 по 2003 годы. Спустя два десятка лет группа находится, наверное, в наилучшей форме: состав Вагнер- Смольский - Террана можно смело назвать сильнейшим за всю историю Rage. Последние студийные опусы банды наглядно это доказали. Теперь есть прекрасная возможность послушать этих титанов живьем, ощутить ту незабываемую энергетику концерта, попытаться почувствовать коллективный локоть толпы, не вставая с кресла. Весь заряд энергии, излучаемый музыкантами, возвращается им из зала мощнейшими аплодисментами и овациями, которыми заканчивается каждая песня, а в конце концерта публика откровенно начинает скандировать припев из "Higher Than The Sky", требуя ее "на бис". Именно этот хит закрывает концертную программу ветеранов Rage,&nbsp; в очередной раз доказавших, что есть еще порох в пороховницах. </P>
+<P>Диск предоставлен концерном Группа СОЮЗ</P>
+Автор: Fucker
+
+### 05.03.2005 news RAGE на Nuclear Blast!!!
+
+<P><STRONG>RAGE </STRONG>подписали долговременное соглашение с <STRONG>Nuclear Blast</STRONG>. Говорит <STRONG>Peavy</STRONG>: "<EM>После успешного юбилейного тура мы решили подписать контракт с новым лэблом, который продвинет нас дальше с новыми силами и новыми идеями. Теперь мы можем вплотную заняться новым альбомом. Мы не обещаем никаких стилестических изменений, но расширим рамки нашего звучания. Мы поработали над сольником <STRONG>Виктора Смольского</STRONG> с <STRONG>Белорусским симфоническим оркестром</STRONG> и сделаем это же при записи альбома <STRONG>RAGE</STRONG></EM>". </P>
+Автор: Vit Belov
+
+### 03.04.2005 news Концерты RAGE в Санкт-Петербурге и Москве
+
+<DIV align=center><IMG height=300 alt="" src="/images/shows_rus/2005.04/8005.jpg" width=400 vspace=20 border=0></DIV>
+Автор: Dimas
+
+### 11.05.2005 news Новости от Пиви!
+
+<P>Вскоре после того, как мы узнали о том, что <STRONG>Питер "Пиви" Вагнер</STRONG> пострадал в результате дорожного происшествия, мы направили ему от российских фэнов <STRONG>RAGE </STRONG>письмо с пожеланиями скорейшего выздоровления. Сегодня мы получили ответ от Пиви следующего содержания:</P>
+<P>"<EM>Привет Павел и все остальные, кто написал мне письмо!</EM></P>
+<P><EM>Я уже вернулся домой. Врачи хотели меня подержать в больнице ещё некоторое время, но я смог договориться, чтобы меня отпустили под расписку (под мою собственную ответственность) пораньше. Боль в руке уже немного утихла, и, честно признаюсь, мне уже порядком надоело валяться в постели без дела.</EM></P>
+<P><EM>Так, мне удалось нажать на клавиатуре большую кнопку справа, чтобы перейти на следующую строку ;) . Дело в том, что я набираю сейчас это письмо исключительно пальцами левой руки, и это мне причиняет небольшую боль. Так что, с вашего позволения, я буду короток. </EM></P>
+<P><EM>Мой правый локоть серьёзно пострадал в результате этой велокатастрофы, и доктора в течение двух часов собирали все сломанные кости в одно целое. Сделать это оказалось совсем непросто, поэтому мне вживили внутрь немного металла - несколько металлических штифтов и сопутствующих креплений. Моя левая рука тоже пострадала, но я ей могу немного пользоваться. Что касается моей сломанной правой руки, то мне придётся ходить в гипсе ещё 6-8 недель, потом последует период реабилитации и физиотерапии. Надеюсь, что я смогу вернуться к полноценной жизнедеятельности в июле.<BR>4-го июня у нас запланировано выступление в Италии на Tradate IronFest [http://www.ironfest.it/home_eng.htm], и возможно, что я смогу не только спеть, но и сыграть на бас-гитаре упрощённые партии.<BR>А пока мне только остаётся сидеть дома и больше отдыхать, чтобы поскорее "вернуться в строй".</EM></P>
+<P><EM>Благодарю Вас всех за добрые слова и пожелания - они, действительно, добавили мне много сил и энергии, а это мне сейчас крайне необходимо!</EM></P>
+<P><EM>Я обязательно поправлюсь и сыграю для Вас ещё не один раз!</EM></P>
+<P><EM>Искренне Ваш,<BR>Пиви"</EM></P>
+<P><A href="http://www.rage-online.ru/">http://www.rage-online.ru/</A></P>
+Автор: Vit Belov
+
+### 25.07.2005 news Новости от RAGE
+
+<P><STRONG>RAGE</STRONG> опубликовали свои планы на ближайшее будущее. Уже в августе группа запишет демо своего нового альбома, а <STRONG>Виктор Смольский</STRONG> посетит Минск, где запишет 20-минутный симфонический трэк "<STRONG>Suite Lingua Mortis</STRONG>", который станет основой главной вещи с будущей работы. Запись <STRONG>RAGE</STRONG> закончат в декабре. Дата релиза: 20 марта 2006 года на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.07.2005 news RAGE news
+
+<P>During last weeks <STRONG>RAGE</STRONG>'s <STRONG>Victor</STRONG> and <STRONG>Peavy</STRONG> have worked on new song ideas for another album. These ideas should be tested during demo recordings in August, before <STRONG>Victor </STRONG>will record the orchestra parts for a "<STRONG>Suite Lingua Mortis</STRONG>" in Minsk. It's about a 20 minutes long band/orchestra work, which will be the main part of the new <STRONG>RAGE</STRONG> album. </P>
+<P>At the end of September<STRONG> Peavy</STRONG>, <STRONG>Victor</STRONG> and <STRONG>Mike</STRONG> will start to record the new album at <STRONG>Charlies VPS Studios</STRONG>, just interrupted by the live activities (Southamerika). Up to the end of November everything should be recorded, so <STRONG>Charlie Bauerfeind</STRONG> can start mixing the album in December.</P>
+<P>The release date worldwide will be the 20th of March 2006 by <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.01.2006 news Кавер-арт RAGE
+
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Nuclear Blast</STRONG> опубликовали кавер-арт нового альбома <STRONG>RAGE "Speak Of The Dead</STRONG>", который выйдет весной.</CENTER></FONT>
+<P></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=225 src="/images/news_rus/2006.01/9944.jpg" width=225 border=0></CENTER></FONT>
+<P></P>
+Автор: Vit Belov
+
+### 20.01.2006 news Концерт RAGE в Минске перенесён
+
+<P>Январский концерт <STRONG>RAGE</STRONG> в Минске перенесён в связи с экстремальными погодными условиями. В Минске сейчас около -35 градусов Цельсия. </P>
+<P>Концерт перенесён на май. Точная дата будет сообщена дополнительно.</P>
+Автор: Vit Belov
+
+### 21.01.2006 news RAGE объявили трэк-лист
+
+<P>Вслед за кавером <STRONG>RAGE</STRONG> объявили трэк-лист нового альбома "<STRONG>Speak Of The Dead</STRONG>":</P>
+<P>1. <STRONG>Mortituri te salutant</STRONG> <BR>2. <STRONG>Prelude of souls <BR></STRONG>3.<STRONG> Innocent <BR></STRONG>4. <STRONG>Depression </STRONG><BR>5. <STRONG>No regrets</STRONG> <BR>6. <STRONG>Confusion <BR></STRONG>7. <STRONG>Black <BR></STRONG>8. <STRONG>Beauty</STRONG> <BR>9. <STRONG>No Fear <BR></STRONG>10. <STRONG>Soul survivor</STRONG> <BR>11. <STRONG>Full moon</STRONG> <BR>12.<STRONG> Kill your gods</STRONG> <BR>13. <STRONG>Turn my world around <BR></STRONG>14. <STRONG>Be with me or be gone <BR></STRONG>15. <STRONG>Speak of the dead </STRONG></P>
+Автор: Vit Belov
+
+### 03.07.2006 news RAGE готовят новый DVD
+
+<P>Немецкое трио <STRONG>RAGE</STRONG> готовит к изданию ещё один свой dvd на котором будет материал, снятый во время их недавнего шоу в Санкт-Петербурге перед 15 000 зрителей, где музыканты использовали специально разработанное для них лазерное и световое шоу. Выход релиза запланирован на начало 2007 года через <STRONG>Nuclear Blast Records.</STRONG> Во время этого концерта, группа исполнила некоторые песни с ранних альбомов, которые не входили ни на один из предыдущих dvd. Кроме того, релиз будет содержать интересные дополнительные материалы.</P>
+Автор: Dimas
+
+### 05.09.2006 news &quot;Восьмая нота&quot; на радио России
+
+<P>В этот четверг, 7 сентября в 21.10 на <B>радио России </B>в радиошоу Дмитрия Добрынина "<B>Восьмая нота</B>" состоится интервью с музыкантом группы <B>RAGE</B>, а также успешным сольным исполнителем и приглашенным музыкантом в ряде знаменитых проектов (<B>КИПЕЛОВ, DER BOTE</B>) гитаристом <B>Виктором Смольским</B>. 
+<P>В четверг 14 сентября в 21.10 на <B>радио России </B>в радиошоу Дмитрия Добрынина "<B>Восьмая нота</B>" состоится интервью с лидером группы <B>АРТЕРИЯ Сергеем Терентьевым</B>. </P>
+<P>В четверг 28 сентября в 21.10 на <B>радио России </B>в радиошоу Дмитрия Добрынина "<B>Восьмая нота</B>" состоится интервью с вокалистом группы <B>ЛЕГИОН Алексеем Булгаковым</B>. </P>
+<P>Радио России можно слушать:<BR>FM 97,6 МГц,<BR>УКВ 66,44 МГц,<BR>СВ 873 КГц,<BR>ДВ 261 КГц,<BR>первая кнопка трехпроводного вещания, а также открытый канал в интернете по адресу <A href="http://www.radiorus.ru/">www.radiorus.ru</A></P>
+Автор: Dimas
+
+### 18.10.2006 news Подробности о новом двд RAGE
+
+<P>Немецкие музыканты из группы <STRONG>RAGE</STRONG> определились с тем, что должно войти на выходящий вскоре двд коллектива под рабочим названием "<STRONG>LIVE in St. Petersburg</STRONG>". Он поступит в продажу в начале 2007 года (европейское издание на <STRONG>NUCLEAR BLAST</STRONG>, российское на <STRONG>CD-MAXIMUM</STRONG>). Возможно, издание будет включать в себя два двд, так как материала для него накопилось довольно много. Итак, вот что войдет в этот релиз:</P>
+<P><EM>Concert&nbsp;in St. Petersburg 20.5.06<BR></EM><STRONG>1. Speak of the dead <BR>2. No Fear <BR>3. Sent by the devil <BR>4. Soul Survivor <BR>5. Enough is enough <BR>6. Baby, I'm your nightmare&nbsp;<BR>&nbsp;&nbsp; SUITE LINGUA MORTIS<BR>7. Morituri te Salutant <BR>8. Prelude of Souls <BR>9. Innocent <BR>10. Depression <BR>11. No regrets <BR>12. Confusion <BR>13. Black <BR>14. Beauty <BR>15. Don't fear the winter <BR>16. Full Moon <BR>17. Higher than the Sky</STRONG>&nbsp;<BR>&nbsp;<BR><EM>Bonusclips</EM><BR><STRONG>18. Straight to hell <BR>19. No Fear <BR>20. Don't fear the Winter</STRONG>&nbsp;<BR>&nbsp;<BR><EM>Live at the Masters of Rock Festival,CZ 2006:</EM><BR><STRONG>21.No regrets <BR>22.Higher than the sky</STRONG>&nbsp;<BR>&nbsp;<BR><EM>Extras:</EM> <BR><STRONG>1.Dokumentary: Making off, St. Petersburg 20.5.06<BR>2.Dokumentary: Russia Tour 06, Moskau <BR>3.Dokumentary: Russia Tour 06, Kiev,Ukraina<BR>4.Dokumentary: Europe Tour 2006<BR>5.Private Dokumentary Victor<BR>&nbsp;&nbsp; a:Flying Notes&nbsp;<BR>&nbsp;&nbsp; b:Tricky Strings&nbsp;<BR>&nbsp;&nbsp; c: Motorsports Doku<BR>6.Private Dokumentary Peavy<BR>&nbsp;&nbsp; a: Ice Age Collection&nbsp;<BR>&nbsp;&nbsp; b: Skull Cast <BR>7. Private Dokumentary Mike<BR>&nbsp;&nbsp; a:The Rhythm Beast</STRONG> <BR></P>
+Автор: Dimas
+
+### 07.12.2006 news RAGE без Terrana
+
+<P>Немецкие&nbsp;хэви-метал ветераны в очередной раз перетрясли свой, вроде бы уже устоявшийся состав.&nbsp;<STRONG>RAGE</STRONG> расстались с ударником <STRONG>Mike Terrana</STRONG>. У него возникли&nbsp;персональные и музыкальные разноогласия с Виктором и Peavy. Последним пришлось уволить из группы Майка, хотя это было для них и нелегким решением. Музыканты желают Майку всего наилучшего в его будущей карьере и усиленно ищут нового&nbsp;барабанщика.&nbsp;Сам Майк тоже&nbsp;пожелал всего наилучшего Пиви и Виктору и высказал&nbsp;"большое спасибо" всем фэнам коллектива.<BR></P>
+Автор: Dimas
+
+### 05.01.2007 news Новый барабанщик RAGE
+
+<P><STRONG>Andre Hilgers</STRONG> стал новым барабанщиком <STRONG>RAGE</STRONG>. Он заменит <STRONG>Mike Terrana</STRONG>, ушедшего из группы в прошлом месяце. Виктор и Пиви сообщают, что новому&nbsp;члену группы&nbsp;32 года, он работает студийным музыкантом уже 16 лет и является большим поклонником heavy-metal. В настоящее время <STRONG>Andre</STRONG> остаётся участником <STRONG>SILENT FORCE</STRONG> и <STRONG>AXXIS</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.02.2007 news Автограф-сессия RAGE
+
+<P>4 марта в 16-00 в магазине "<STRONG>Пурпурный Легион</STRONG>" состоится автограф-сессия с музыкантами группы <STRONG>RAGE</STRONG> - <STRONG>Peter "Peavy" Wagner</STRONG> и <STRONG>Victor Smolski</STRONG>, а также в продаже появится новый концертный альбом (DVD и CD) <STRONG>RAGE "Full Moon in St. Petersburg".</STRONG> Не упусти возможность попасть в число первых обладателей этого диска, а также получить заветные подписи музыкантов! </P>
+<P>Адрес магазина: Москва, ул. Новокузнецкая, д.1, проезд - м. Новокузнецкая, Третьяковская) </P>
+Автор: Dimas
+
+### 07.03.2007 news RAGE планируют новый альбом в 2008 году
+
+<FONT size=2>
+<P>По информации, полученной непосредственно от <STRONG>Peavy Wagner</STRONG> и <STRONG>Виктора Смольского</STRONG>, группа <STRONG>RAGE</STRONG> уже начала работу над новыми песнями и планирует осуществить запись нового альбома осенью 2007 года. <BR>Релиз нового альбома намечен на начало 2008 года.</P></FONT>
+Автор: Dimas
+
+### 12.03.2007 articles 3rd RAGE Convention: &quot;Подпольное выступление RAGE&quot;.
+
+<P>В третий день весны в клубе «Plan B» состоялся третий фестиваль, посвящённый RAGE. Традиционно при поддержке российского фэн-клуба немецкой группы было организовано шоу с участием российских команд, которые должны были исполнять кавера знаменитой группы. В этот раз в вечере приняли участие РЕТРИЕМ, SHADOW HOST, ARIDA VORTEX, ФАКТОР СТРАХА, ТЕАТР ТЕНЕЙ и специальная группа фан-клуба RAGE. Кроме этого, в шоу приняли участие сами Виктор Смольский и Peavy Wagner, приехавшие в столицу в связи с выходом нового DVD на CD-Maximum и организацией своего симфонического шоу в ДК им. Горбунова в конце апреля. Таким образом, в подпольном клубе перед тремя сотнями фэнов выступила группа RAGE, но обо всём подробнее.</P>
+<P>Как обычно, на начало я не успел и пропустил РЕТРИЕМ и фан-клуб RAGE. Отмечу, что и на последний коллектив ТЕАТР ТЕНЕЙ я не остался, так как самое интересное к тому времени уже закончилось. SHADOW HOST предстали в этот вечер c very very special программой, целиком состоящей их «нетленок» RAGE. Я уже отмечал, что в качестве кавер-группы SH смотрятся предпочтительней. Исполняя свой материал, музыканты как-то скованны, зато когда в их руки попадают настоящие хиты, им нет равных. В этот раз Арзамазов и компания отыграли порядка 7-8 хитов и смотреть на них было достаточно интересно. К сожалению, не обошлось без накладок. У гитариста порвалась струна, и некоторые вещи, например “All This Time”, звучали немного не так, как следовало бы. В остальном всё было прекрасно. Вокалист группы великолепно пародировал Пиви, остальные музыканты старались, SHADOW HOST попытались засунуть в свой сэт многие лучшие песни RAGE. В общем, подготовились «на славу». Почему-то организаторы хотели спихнуть группу со сцены раньше времени, а зря. Ведь только SHADOW HOST и ARIDA VORTEX пытались соответствовать статусу вечера, остальные просто отыгрывали свой стандартный сэт.</P>
+<P>Следом вышли ARIDA VORTEX, и их выступление позиционировалось, как хит вечера. Сыграв несколько вещей, басист и гитарист группы уступили место приглашённым гостям Виктору и Пиви, которые с остальными исполнили несколько вещей RAGE. Например, «Refuge». Чем меня очень порадовали. Как немцы, так и наши предстали в отличной форме, и, действительно, мы имели перед собой концерт RAGE. Кто его знает, нового барабанщика, можно ведь на секунду представить, что новым барабанщиком RAGE стал музыкант ARIDA VORTEX. AV и RAGE встретились лишь за день до концерта, но отрепетировать им всё удалось отлично, а выглядели артисты на сцене, как настоящие друзья. Думается, все собравшиеся в зале получили огромное удовольствие. Позже Пиви прошёл в бар, где оставлял автографы на новом DVD-релизе, изданным CD-Maximum в великолепном digi-book формата 2DVD+CD, который впервые был доступен зрителям в этот вечер. На этом шоу можно было заканчивать, ведь основное блюдо фаны RAGE уже получили.</P>
+<P>Основной интригой вечера, как мне кажется, стал вопрос: «Почему RAGE играли именно с ARIDA VORTEX, а не с SHADOW HOST, например?» Организатор концерта Константин Миронов, как выяснилось, является ни много, ни мало учеником Виктора Смольского. Он же является и менеджером ARIODA VORTEX. Думается, музыканты SHADOW HOST остались не очень довольны тем, что произошло. Они ведь вполне заслужили, чтобы кто-нибудь из немцев вышел на сцену вместе с ними. Их статус никак не ниже статуса ARIDA VORTEX, да и менеджер их тоже имеет отношение к RAGE. Павел Шапцев – глава фан-клуба, который и раскручивает здесь группу всеми доступными средствами. Мне кажется, вполне возможен конфликт между двумя организаторами - титульным и техническим.</P>
+<P>Следующей группой стали ФАКТОР СТРАХА. Их осталось посмотреть некоторое количество народа, но… Во-первых, как по мановению волшебной палочки, звук сразу испортился и разобрать что-то стало маловозможным. Кстати, звук и на выступлении SHADOW HOST был мерзким, зато RAGE и ARIDA VORTEX звучали очень фирменно. Во-вторых, ФАКТОР СТРАХА несильно вписывались в концепцию концерта, да и самим музыкантам, как мне показалось, происходящее не доставляло особого удовольствия. Ну а когда на третьей-четвёртой песне в дальний бар вдоль сцены прошествовал Пиви, зал совсем опустел. Значит, настал черёд и мне уходить.</P>
+<P>Что ж, пропустившие этот концерт фанаты RAGE могут кусать локти. Именно о таких полузакрытых шоу потом и рассказывают друзьям за бутылкой пива. Выступление RAGE и ARIDA VORTEX стало центром шоу, при этом организаторы всеми силами постарались это подчеркнуть, поступив не очень хорошо с другими заслуженными нашими группами. Хочется посоветовать на будущее. Либо набирать совсем начинающих, либо&nbsp;нанять ди-джея, который просто порадует веселящийся народ сэтом из лучших песен RAGE. А так немного неприятно… </P>
+<P>Ну, чтобы не заканчивать на этой ноте скажу, что всё-таки RAGE+ARIDA VORTEX, да и просто ARIDA VORTEX приятнее, чем это неприятно.</P>
+Автор: Vit Belov
+
+### 28.03.2007 news RAGE с оркестром в Москве
+
+<CENTER><IMG height=225 src="/images/shows_rus/2007.04/11498.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 26.07.2007 news Название нового RAGE
+
+<P>Новый альбом <STRONG>RAGE</STRONG> будет называться "<STRONG>Carved In Stone</STRONG>" и выйдет не раньше февраля будущего&nbsp;года на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.08.2007 news RAGE едут в тур по России
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В ноябре <STRONG>RAGE </STRONG>проедутся по России в рамках тура "<STRONG>Metal Firestorm</STRONG>". Даты:</FONT></P>
+<P>06.11 - Москва, клуб Апельсин<BR>07.11 - Нижний Новгород <BR>08.11 - Владимир<BR>10.11 - Рязань<BR>11.11 - Тула<BR>12.11 - Брянск<BR>14.11 - Санкт-Петербург, клуб Рокс </P>
+Автор: Vit Belov
+
+### 15.10.2007 news Российский тур RAGE &quot;Metal Firestorm&quot;
+
+<CENTER><STRONG><U><IMG height=333 src="/images/shows_rus/2007.11/11925.jpg" width=500 border=0></U></STRONG></CENTER>
+<CENTER><STRONG><U></U></STRONG>&nbsp;</CENTER>
+<CENTER><STRONG><U>Российский тур RAGE "Metal Firestorm" (Ноябрь-2007)</U></STRONG></CENTER>
+<CENTER>Вторник, 06.11.2007 -&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Москва, клуб "Апельсин"<BR>Среда,&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 07.11.2007 -&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Нижний Новгород, клуб "Матрица"<BR>Четверг, 08.11.2007 -&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Владимир, Дворец Культуры "Точмаш"<BR>Суббота, 10.11.2007 -&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Рязань, клуб "Планетарий"<BR>Воскресенье, 11.11.2007 -&nbsp;&nbsp;&nbsp;&nbsp; Тула, ДКЖ (Дворец Культуры Железнодорожника)<BR>Понедельник, 12.11.2007 -&nbsp;&nbsp;&nbsp;&nbsp; Брянск, Концертный Зал "Дружба"<BR>Среда, 14.11.2007 -&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Санкт-Петербург, клуб "Рокс"</CENTER>
+Автор: Vit Belov
+
+### 29.11.2007 news RAGE назначили дату
+
+<P>Новый альбом <STRONG>RAGE "Carved In Stone"</STRONG> выйдет 22 февраля на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.01.2008 news Трэк-лист нового RAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что новый альбом <STRONG>RAGE "Carved In Stone"</STRONG> выходит 22 февраля на <STRONG>Nuclear Blast</STRONG>. Стал известен трэк-лист этой пластинки и бонус-DVD, которое войдёт на лимитированное издание альбома:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Carved In Stone<BR></STRONG>2. <STRONG>Drop Dead</STRONG><BR>3. <STRONG>Gentle Murders<BR></STRONG>4. <STRONG>Open My Grave<BR></STRONG>5. <STRONG>Without You<BR></STRONG>6. <STRONG>Long Hard Road<BR></STRONG>7. <STRONG>One Step Ahead<BR></STRONG>8. <STRONG>Lost In The Void<BR></STRONG>9. <STRONG>Mouth Of Greed<BR></STRONG>10. <STRONG>Lord Of The Flies </STRONG></FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P>Bonus DVD (Wacken Open Air)</P>
+<P>1. <STRONG>Overture<BR></STRONG>2. <STRONG>From The Cradle To The Grave<BR></STRONG>3. <STRONG>Alive But dead<BR></STRONG>4. <STRONG>Lingua Mortis Medley<BR></STRONG>a. Don't Fear The Winter<BR>b. <STRONG>Black In Mind</STRONG><BR>c. <STRONG>Firestorm<BR></STRONG>d. <STRONG>Sent By The Devil<BR></STRONG>e. <STRONG>Lost In The Ice<BR></STRONG>5.<STRONG> Turn The Page<BR></STRONG>6. <STRONG>Suite Lingua Mortis<BR></STRONG>a. <STRONG>Morituri Te Salutant<BR></STRONG>b. <STRONG>Prelude Of Souls<BR></STRONG>c. <STRONG>Innocent<BR></STRONG>d. <STRONG>Depression<BR></STRONG>e. <STRONG>No Regrets</STRONG><BR>f. <STRONG>Confusion<BR></STRONG>g. <STRONG>Black<BR></STRONG>h. <STRONG>Beauty<BR></STRONG>7. <STRONG>Higher Than The Sky </STRONG></FONT></P>
+Автор: Vit Belov
+
+### 03.03.2008 news Новые видео от RAGE
+
+<P><STRONG>RAGE</STRONG> выложили два новых видеоклипа на песни с нового альбома <STRONG>"Carved in Stone" - "Lord of the Flies"</STRONG>&nbsp;и <STRONG>"Open My Grave"</STRONG>. </P>
+<P><STRONG>"Lord of the Flies"</STRONG>:</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Ss5KoCTCQtE&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/Ss5KoCTCQtE&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent"width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+<P><STRONG>"Open My Grave"</STRONG>:</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/5hPAH3QW-zM&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/5hPAH3QW-zM&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent"width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 13.04.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В эфире "голосование деньгами" за февраль-март. <FONT color=#ddd9d0>Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</FONT></FONT></P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=687 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 51pt; mso-width-source: userset; mso-width-alt: 2486" width=68>
+<COL style="WIDTH: 205pt; mso-width-source: userset; mso-width-alt: 9984" width=273>
+<COL style="WIDTH: 212pt; mso-width-source: userset; mso-width-alt: 10313" width=282>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 51pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" width=68 height=17><FONT face="Times New Roman" size=2><STRONG>1(2)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 205pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=273><FONT face="Times New Roman" size=2><STRONG>CREMATORY</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 212pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=282><FONT face="Times New Roman" size=2><STRONG>PRAY</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>2 (NEW)</STRONG></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>RAGE</STRONG></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>CARVED IN STONE</STRONG></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>3 (3)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:str="AYERON "><FONT size=2><STRONG><FONT face="Times New Roman">AYREON<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>_1011001 (2 CD)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 15.75pt" height=21>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15.75pt; BACKGROUND-COLOR: black" height=21><FONT face="Times New Roman" size=2><STRONG>4 (1)</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>THE SCARECROW</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>5 (NEW)</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DRACONIAN</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>TURNING SEASON WITHIN</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>6 (5)</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>AXXIS</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DOOM OF DESTINY</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>7 (7)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>NORTHER</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:str="N  "><FONT size=2><STRONG><FONT face="Times New Roman">N<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>8 (28)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>BRAINSTORM</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DOWNBURST</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>9 (16)</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>MANEGARM</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>VARGSTENEN</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>10 (10)</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>SABATON</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>METALIZER</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><STRONG><FONT face="Times New Roman" size=2>2008</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>11 (17)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>BASSINVADERS(HELLOWEEN,SODOM,RAGE,DISTRACTION)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HELLBASSBEATERS</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>12 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EVIDENCE ONE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE SKY IS THE LIMIT</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>13 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ANTIMATTER<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>(ex-ANATHEMA)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEAVING EDEN</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>14 (14)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ELVENKING</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE SCYCHTE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>15 (15)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LION'S SHARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EMOTIONAL COMA</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>16 (26)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HEAVEN SHALL BURN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ICONCLAST</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>17 (25)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MELECHESH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EMISSARIES</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>18 (33)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>IMPALED NAZARENE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MANIFEST</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>19 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ELUVEITIE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SLANIA +1 bonus track</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>20 (22)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LANA LANE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>RED PLANET BOULEVARD</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>21 (30)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SAINT DEAMON(EX-DIONYSUS)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>IN SHADOWS LOST FROM THE BRAVE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>22 (4)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ANDRE MATOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TIME YO BE FREE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>23 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DARK FORTRESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EIDOLON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>24 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MYSTIC PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SATANIC CURSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>25 (42)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>Алиса</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ПУЛЬС ХРАНИТЕЛЯ ДВЕРЕЙ ЛАБИРИНТА</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>26 (48)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>INSANIA</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>AGONY - GIFT OF LIFE</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>27 (NEW)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>STILLIFE</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DESTINY</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>28 (11)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TARJA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MY WINTER STORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>29 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TANGENT</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NOT AS GOOD AS THE BOOK</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>30 (27)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATARGATIS (feat. Guests from Crematory, Empyrium)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NOVA +2 bonus tracks</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>31 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EDEN'S CURSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EDEN'S CURSE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>32 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MAGICA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HEREAFTER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>33 (NEW)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>STIGMATIC CHORUS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>GEDONIST</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>34 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ALESTORM</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>CAPTAIN MORGAN'S REVENGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>35 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MEKONG DELTA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LURKING FEAR</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>36 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATROCITY</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>WERK 80 II</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>37 (NEW)</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MINISTRY</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE LAST SUCKER</FONT></TD>
+<TD class=xl41 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>38 (41)</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>39 (NEW)</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>VISION BLEAK, THE (ex-Empyrium)</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE WOLVES GO HUNT THEIR PREY</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>40 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DIE APOKALYPTISCHEN REITER</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TOBSUCHT (DVD)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>41 (44)</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DIARY OF DREAMS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NEKROLOG 43</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 15.75pt" height=21>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15.75pt; BACKGROUND-COLOR: black" height=21><FONT face="Times New Roman" size=2>42 (20)</FONT></TD>
+<TD class=xl44 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NIGHTWISH</FONT></TD>
+<TD class=xl44 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DARK PASSION PLAY</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>43 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>KHYMERA(EX-PINK CREAM 69,GENIUS)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE GREATEST WONDER</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>44 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEVERAGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>BLIND FIRE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>45 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEVERAGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TIDES</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>46 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATROCITY</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>WERK 80 +5 bonus tracks</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>47 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NAZARETH</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE NEWS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>48 (37)</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>49 (NEW)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THRUDVANGAR</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ZWISCHEN ASGARD</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 15pt" height=20>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15pt; BACKGROUND-COLOR: black" height=20><FONT face="Times New Roman" size=2>50 (29)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>20 YEARS OF NUCLEAR BLAST</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>various (2 DVD)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 08.05.2008 reviews Уже слышали. Правда, довольно давно.
+
+<P>RAGE порадовали своих поклонников очередным альбомом. Больше по этому поводу и не скажешь. “Carved In Stone” вышел таким шаблонным и узнаваемым, что диву даёшься. Я ожидал совсем другого.</P>
+<P>Помнится, на сборнике, посвящённом 20-летию Nuclear Blast, который сочинил Виктор Смольский, был тяжеленная песня в исполнении его коллеги по группе “Peavy” Wagner. Послушав её и представив, что подобным может выйти новый альбом RAGE, о котором уже тогда начали говорить, я загорелся желанием побыстрее его получить «на растерзание». Какого было моё удивление, когда я достал из отличного digi-book пластинку, на которой был записан типичный альбом RAGE 90-х. С той же мелодикой, и, самое неприятное, с тем же звуком. После мощи и восторга “Into The Light”, серость и монотонность “Carved In Stone”. Или Nuclear Blast заплатил за сборник большие деньги, чем доля Виктора от альбома RAGE, или, что вероятнее, группа поставила себе целью записать такой альбом, на радость старым фанатам. В принципе, я тоже старый фанат, но и в 90-х есть разные альбомы. Есть пластинки начала 90-х, на которых немцы только пришли к своему нынешнему звучанию, о них речь не идёт. Есть феноменальные “Trapped” и “Missing Link”, вершина творчества RAGE с гитаристом Manni Schmidt. Есть великий “Black In Mind”, доверху набитый хитами. Забегая вперёд, скажу, что именно к этому шедевру апеллирует CD-Maximum, описывая нынешний компакт. Не забудем и симфонические эксперименты на “XIII” и “Lingua Mortis”. Были же и не очень удачные пластинки – “End Of All Days”, например (хотя ныне бессмертная “Higher Than The Sky” оттуда). И главное “Ghosts”, первый диск с Виктором Смольским, записанный в непростой период внеплановой смены состава. Вот на этот «пустой» для RAGE альбом и можно сориентировать “Carved In Stone”. Безусловно, поклонники RAGE всё равно не останутся в накладе, здесь всё есть. Вокал Пиви, гитара Виктора… Но альбом какой-то обычный… Но это я уже повторяюсь.</P>
+<P>В принципе ни одной группе не удалось войти в одну реку дважды. Возвращения встречались. Даже бывали триумфальные возвращения, но вот так, чтобы записывать альбомы, повторяющие то, что уже пройдено… Всё-таки надо что-то новое предлагать, как на “Soundchaser”, например.</P>
+<P>P.S.: На лимитированном издании концерт на Wacken с участием симфонического оркестра.</P>
+Автор: Vit Belov
+
+### 16.09.2008 reviews Без Террана стало еще хуже
+
+<P>Ожидать сегодня от Rage чего-то такого растакого могут либо наивные идеалисты, либо упертые фанаты группы. На уже не пойми каком по счету студийном альбоме (17-ом? 18-ом?) под названием "Carved In Stone" Виктор Смольский пообещал некое возвращение к корням, к альбомам "Trapped" "The Missing Link". Ага, сейчас прям он так всё бросил и вернулся. Со всё увеличивающимся влиянием нашего белорусского паренька музыка Rage становится всё более и более скучной, однообразной, предугадываемой. Только вокал Пиви Вагнера, которого не спутаешь ни&nbsp;с кем другим, и спасает эти довольные слабые композиции (между прочим, написанная как раз без участия Смольского, а только Пиви Вагнером вещь 'Mouth Of Greed' является чуть ли не лучшей на "Carved In Stone"). Да, вроде бы тут всё как и должно быть на любой пластинке группы, хэви-боевики, мощный вокал, характерные риффы. Так-то оно так, только вот такая беда с хитами на "Carved In Stone", что хоть тревогу бей. И мне кажется, что маэстро Бауэрфайнд перестарался, слишком уж стерильным и прилизанным оказался звук. Читая как рыдают от счастья фанаты трио по поводу нового альбома, мне хочется пожалеть их - хотя каким поклонникам свойственна объективность по поводу своих любимцев, они моментально становятся слепы и глухи. Новый релиз отмечен еще одним негативом, так как за ударными уже не Майк Террана. Возможно, Андре Хильгерс (Silent Force) и неплох, но, пардон, такие барабанщики как Террана рождаются, что называется, раз в 50 лет. В общем и целом, "Carved In Stone" получился весьма скучным и однообразным, весьма средненьким альбомом, во всяком случае, для уровня Rage. Последней каплей оказался задник альбома. Мы помним американских президентов, мы еще лучше помним "Deep Purple In Rock" - по сеньке ли шапка, товарищи рейджане? Альбом, как водится, вышел в различных ипостасях, простите за слово; российское лицензионное издание включает видеобонус 'Turn The Page' с выступления на Masters Of Rock в 2007-ом году, а формат дигибук содержит бонусный DVD с совместным выступлением Rage и Lingua Mortis Orchestra на Wacken Open Air 2007 и два новых видеоклипа группы.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 25.09.2008 news Виктор Смольский на &quot;Музыка Москва-2008&quot;
+
+<P><STRONG>Виктор Смольский</STRONG> примет участие в выставке "<STRONG>Музыка Москва-2008</STRONG>" в качестве "эндорсера" музыкальных инструментов фирмы <STRONG>Yamaha</STRONG>. <STRONG>Виктор</STRONG> даст гитарный мастер-класс, а также ответит на вопросы посетителей стенда <STRONG>Yamaha</STRONG>.</P>
+<P>Выставка "<STRONG>Музыка Москва-2008</STRONG>" пройдет с 9 по 12 октября 2008 г. в <STRONG>КВЦ "Сокольники</STRONG>". Время работы выставки: 9, 10, 11 октября - с 10.00 до 18.00, 12 октября - с 10 до 16.00 <BR>&nbsp;<BR>Также стало известно, что 1 ноября 2008 года группа <STRONG>RAGE </STRONG>вместе с симфоническим оркестром <STRONG>Lingua Mortis</STRONG> дадут единственный концерт в Минске. Выступление пройдёт во <STRONG>Дворце Республики</STRONG> - одном из самых крупных концертных залов столицы республики Беларусь.</P>
+Автор: Vit Belov
+
+### 14.01.2009 news RAGE спрашивают нашего мнения
+
+<P>Немцы <STRONG>RAGE</STRONG> обратились к своим фэнам с просьбой помочь в составлении сэт-листа юбилейных концертов, посвящённых 25-летию группы. Каждый должен прислать E-mail с двадцаткой песен группы, которые достойны попадания в праздничные концерты. E-mail: <A href="mailto:setlist@rage-on.de">setlist@rage-on.de</A></P>
+Автор: Vit Belov
+
+### 29.01.2009 news RAGE на телешоу
+
+<P>20 января в рамках телешоу <STRONG>"TV Total"</STRONG> на немецком телевидении <STRONG>RAGE</STRONG> исполнили песню <STRONG>"Gib Dich Nie Auf", </STRONG>которую они представят на конкурсе "Бундесвидение 2009".</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/SNhVLT_vrqc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/SNhVLT_vrqc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.04.2009 reviews Коллекционерам RAGE
+
+<P>Популярность RAGE в нашей стране достаточно велика для того, чтобы выпускать их мини-альбомы. “Gib Dich Nie Auf” – шестипесенный EP со стандартным для подобных изданий наполнением.</P>
+<P>Этот альбом приурочен к участию RAGE в каком-то конкурсе, типа Евровидения, только локально немецком. Разные земли представляют своих участников, которые естественно на родном языке поют песни. “Never Give Up” и есть эта песня RAGE на немецком языке. Что ж, песня очень хорошая. Стандартный мелодичный хит от RAGE с современным звуком, гитарным соло и некоторой игрой со звуком, выраженной в использовании каких-то ненавязчивых сэмплов. Собственно, эта песня, представленная в двух языковых вариантах, и занимает основное место на альбоме. Далее идёт немецкая версия песни «Полнолуние», которую мы слышали даже на русском, так что это не очень интересно. “Terrified” – тяжеленный хит, исполненный Peavy для сборника «20 лет Nuclear Blast», и оркестрованная версия “Lord Of The Flies”, хита с последнего альбома. На закуску нам предлагают балладу “Home”, которую я позволю себе оставить без комментария. Вряд ли можно найти в творчестве RAGE что-то более банальное и странное. После прослушивания “Home” обязательно хочется снова прослушать заглавный трэк, чтобы избежать безумного разочарования.</P>
+<P>Выпуск в России подобных изданий, а, главное, их успешная реализация, говорит о том, что кризис носителей до нас пока не докатился. Мы будем слушать диски, пока находятся коллекционеры, платящие 200 рублей за такие альбомы.&nbsp; </P>
+Автор: Vit Belov
+
+### 07.06.2009 news RAGE объявили приглашённых
+
+<P>Выступление<STRONG> RAGE</STRONG> на <STRONG>Wacken Open Air</STRONG> этого года станет особенным. Оно будет посвящено 25-летию коллектива. Группа опубликовала список приглашённых гостей на этот концерт:</P>
+<P><STRONG>Jen Majura</STRONG> (RAGE/BLIND GUARDIAN guest vocalist)<BR><STRONG>Marcel "Schmier" Schirmer</STRONG> (DESTRUCTION)<BR><STRONG>Hansi Kursch</STRONG> (BLIND GUARDIAN)<BR><STRONG>Eric Hecht</STRONG> (Eric Fish; SUBWAY TO SALLY)<BR><STRONG>Jorg Michael</STRONG> (STRATOVARIUS)</P>
+Автор: Vit Belov
+
+### 11.08.2009 news RAGE войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Знаменитые немцы <STRONG>RAGE</STRONG> войдут в студию<STRONG> Twilight Hall</STRONG> на следующей неделе для записи нового альбома, который выйдет в феврале следующего года на <STRONG>Nuclear Blast</STRONG>. По сообщению группы, альбом будет содержать элементы progressive и оркестровые партии. Эти партии <STRONG>Виктор Смольский</STRONG> уже записал в Минске с оркестром <STRONG>Lingua Mortis</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.10.2009 news Новый альбом RAGE
+
+<P><STRONG>RAGE</STRONG> выпустят свой новый альбом <STRONG>"Strings To A Web" </STRONG>5 февраля на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Twilight Hall Studio</STRONG>&nbsp;с продюсером<STRONG> Charlie Bauerfeind</STRONG> (<STRONG>BLIND GUARDIAN</STRONG>, <STRONG>HAMMERFALL</STRONG>).</P>
+Автор: Vit Belov
+
+### 11.11.2009 news Limited Edition от RAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.11/15504.jpg" width=400 align=right border=5>Новый альбом <STRONG>RAGE "Strings To A Web" </STRONG>выходит 5 февраля на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Twilight Hall Studio </STRONG>с продюсером <STRONG>Charlie Bauerfeind</STRONG> (<B itxtvisited="1">BLIND GUARDIAN</B>, <B itxtvisited="1">HAMMERFALL</B>). На лимитированный digi-book попадёт концертное DVD с 15 песнями. Основную часть DVD займёт юбилейное шоу на <STRONG>Wacken 2009</STRONG> с участием приглашённых музыкантов. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Carved In Stone</B><BR itxtvisited="1">02. <B itxtvisited="1">Higher Than The Sky</B><BR itxtvisited="1">03. <B itxtvisited="1">Set This World On Fire</B> (featuring Hansi Kursch)<BR itxtvisited="1">04. <B itxtvisited="1">All I Want</B> (featuring Hansi Kursch)<BR itxtvisited="1">05. <B itxtvisited="1">Invisible Horizons</B> (featuring Hansi Kursch)<BR itxtvisited="1">06. <B itxtvisited="1">Lord Of The Flies</B> (featuring Jen Majura)<BR itxtvisited="1">07. <B itxtvisited="1">From The Cradle To The Grave</B> (featuring Jen Majura)<BR itxtvisited="1">08. <B itxtvisited="1">Prayers Of Steel</B> (featuring Schmier)<BR itxtvisited="1">09. <B itxtvisited="1">Suicide</B> (featuring Schmier)<BR itxtvisited="1">10. <B itxtvisited="1">Down</B> (featuring Schmier)<BR itxtvisited="1">11. <B itxtvisited="1">Soundchaser</B><BR itxtvisited="1"><BR itxtvisited="1">Дополнительные клипы:<BR itxtvisited="1"><BR itxtvisited="1">12. <B itxtvisited="1">Set This World On Fire</B> (Live at the "Masters of Rock 2009") <BR itxtvisited="1">13. <B itxtvisited="1">All I Want</B> (Live at the "Masters of Rock 2009")<BR itxtvisited="1">14. <B itxtvisited="1">Carved In Stone</B> (Live in Sofia 2009) <BR itxtvisited="1">15. <B itxtvisited="1">Never Give Up</B> (Rage Race Special) </P>
+<P>Лидер коллектива<STRONG> Peavy Wagner</STRONG> считает&nbsp;"<STRONG>Strings To The Web</STRONG>" абсолютной вершиной творчества <STRONG>RAGE</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.12.2009 news Новая песня RAGE
+
+<P>5 февраля на <STRONG>Nuclear Blast</STRONG> выходит новый альбом <STRONG>RAGE</STRONG> <STRONG>"Strings To A Web". </STRONG>Новую песню с этого альбома <STRONG>"Into The Light" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/rage">http://www.myspace.com/rage</A></P>
+Автор: Vit Belov
+
+### 29.01.2010 news Ещё одна песня RAGE
+
+<P><STRONG>RAGE</STRONG> продолжают знакомить слушателей с материалом своего будущего альбома <STRONG>"Strings To A Web"</STRONG>, выходящего 5 февраля на <STRONG>Nuclear Blast</STRONG>, на своей <STRONG>MySpace</STRONG> страничке: <A href="http://www.myspace.com/rage">http://www.myspace.com/rage</A></P>
+<P>На этот раз выложена вещь <STRONG>"Empty Hollow".</STRONG></P>
+Автор: Vit Belov
+
+### 18.02.2010 news RAGE порадовали Германию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> RAGE</STRONG> <STRONG>"Strings To A Web"</STRONG>, вышедший на Nuclear Blast 5 февраля, попал в чарты в Германии на 27-ое место. Гитарист коллектива<STRONG> Виктор Смольский</STRONG> назвал это событие "отличной наградой" для всех, кто имел отношение к этому альбому.</FONT></P>
+Автор: Vit Belov
+
+### 02.03.2010 news Andy будет работать с Manni
+
+<P>Вокалист <STRONG>BRAINSTORM Andy B. Franck</STRONG> сообщил о своих ближайших планах. Только что закончена работа над новым альбомом <STRONG>SYMPHORCE</STRONG>, но в планах уже следующий проект. Andy будет работать с известным гитаристом <STRONG>Manni Schmidt</STRONG> (ex-<STRONG>GRAVE DIGGER</STRONG>/ex-<STRONG>RAGE</STRONG>). Дуэт уже сочиняет музыку для пока не названной группы.</P>
+Автор: Vit Belov
+
+### 10.03.2010 reviews «Диджибуковый» RAGE
+
+<P>К сожалению, новые альбомы немецкой легенды RAGE не вызывают уже того ажиотажа как когда-то. Это неудивительно, многим группам не удаётся сохранить интерес публики, производя идентичные пластинки год за годом. Радует только, что, купив альбом RAGE, вы не наткнётесь на industrial/pop или шансон.</P>
+<P>Последним альбомом, который обладал своим ярко выраженным лицом, у RAGE стал “XIII” 1998 года выпуска. После этого немцы выпускают очень хорошие работы, но отличить один от другого могут только преданные фэны коллектива. Может это случайно, но подобное произошло после последней знаковой смены состава, когда одним из основных «сонграйтеров» стал наш бывший соотечественник гитарист-виртуоз Виктор Смольский. Он великолепно умеет создавать нужный «саунд», отличается своей техникой, здорово работает с оркестром из Минска, но RAGE стали одной из любимейших групп в нашей стране вовсе не из-за этих качеств своих музыкантов. Было что-то неуловимое в их музыке, что заставляет до сих пор гонять “Black In Mind” или “Trapped!”. Не случайно практически все музыканты двух золотых составов RAGE из 90-х годов после ухода от Peavy ничем себя не проявили. У Manni Schmidt было сотрудничество с GRAVE DIGGER, но вряд ли его можно назвать слишком успешным. Была у RAGE какая-то «магия», движущей силой которой безусловно был лидер группы басист/вокалист Peter ‘Peavy’ Wagner. Теперь эта «магия» куда-то пропала. Я с удовольствием послушал “Strings To a Web” где-то до середины, а потом устал. Великолепный звук, гитарная техника, которая лезет изо всех щелей, вокальные мелодии, напоминающие нам о былой славе RAGE, симфоническая “Empty Hollow”. Но в душе пустота. Более того, вокальные мелодии, например, часто не вяжутся с риффами, а два инструментала на симфонической вещи больше подошли бы progressive-metal группе, но не RAGE. Про вторую половину альбома я даже говорить не хочу, слушать там абсолютно нечего.</P>
+<P>RAGE под управлением Виктора Смольского обрёл новый вид. Гламурный и очень качественный. Эдакое лимитированное издание старых добрых пластинок с великолепной техникой и высокобюджетным звучанием. «Диджибуковый» RAGE. Но нам-то нужен наш старый добрый RAGE, который мы слушали на затёртых компакт-кассетах или даже на устаревшем сейчас виниле.</P>
+Автор: Vit Belov
+
+### 02.12.2011 news Обложка нового RAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие легенды<STRONG> RAGE</STRONG> вошли в <STRONG>Twilight Hall Studio </STRONG>в прошлом месяце, где работают над своим двадцать первым альбомом, который получил название "<STRONG>21</STRONG>". Запись осуществляет известный продюсер <STRONG>Charlie Bauerfeind. </STRONG>Вот названия некоторых вещей: <STRONG>"Psycho Terror"</STRONG>, <B>"Forever Dead"</B>, <B>"Twenty One"</B>, <B>"Serial Killer"</B>, <B>"Concrete Wall"</B>&nbsp;и <B>"Death Romantic"</B>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=439 src="/images/news_rus/2011.12/22242.jpg" width=438 border=0></FONT></P>
+Автор: Vit Belov
+
+### 14.01.2012 news Новая музыка RAGE
+
+<P>Новый трек <STRONG>RAGE "Twenty One"</STRONG> можно послушать ниже. Песня выйдет на новой работе коллектива "<STRONG>21</STRONG>" 24 февраля на <STRONG>Nuclear Blast</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>House Wins <BR></STRONG>2. <STRONG>Twenty One</STRONG><BR>3. <STRONG>Forever Dead</STRONG> <BR>4. <STRONG>Feel My Pain</STRONG> <BR>5. <STRONG>Serial Killer <BR></STRONG>6. <STRONG>Psycho Terror</STRONG><BR>7. <STRONG>Destiny<BR></STRONG>8. <STRONG>Death Romantic <BR></STRONG>9. <STRONG>Black And White<BR></STRONG>10. <STRONG>Concrete Wall<BR></STRONG>11. <STRONG>Eternally</STRONG></P>
+<P><center><iframe width="100%" height="166" scrolling="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F33166075&show_artwork=true" frameborder="0" ></iframe></P>
+Автор: Vit Belov
+
+### 21.02.2012 news RAGE: клип на песню &quot;Twenty One&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип группы <STRONG>RAGE</STRONG> на трек<STRONG> "Twenty One"</STRONG>, можно посмотреть ниже. Клип был снят в чешском казино.</FONT></P>
+<CENTER>
+<OBJECT width=640 height=360><PARAM NAME="movie" VALUE="http://www.youtube.com/v/UArZqdKjQoo&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/UArZqdKjQoo&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 01.04.2012 reviews Никому не нужная ностальгия
+
+<P>Немецкие легенды тяжёлого метала RAGE в конце февраля выпустили свой очередной альбом. Коллектив уже некоторое время не представляет своим поклонникам творческих откровений, но каждый альбом Виктора Смольского и компания предлагает нам нечто интересное, позволяющее подвергнуть его поверхностному анализу.</P>
+<P>В этот раз RAGE выпустили тяжёлый альбом, обратив своё внимание на своё раннее творчество. Дебютные альбомы группы выходили уже так давно, что и сам Пиви Вагнер, являющийся символом RAGE, вряд ли помнит, как сочинять и играть нечто подобное. После краткого интро в исполнении отечественного оркестра народных инструментов (балалайки и.т.п.) Виктор Смольский начинает жарить, извергая из собственной гитары почти трешёвые звуки. К сожалению, музыкально RAGE радуют только первые пару песен, но дальше начинается нечленораздельное гитарное рубилово, которое безусловно не является thrash-metal, но и power-metal тоже не является. Странная смесь, которую слушать не очень приятно.</P>
+<P>“21” не является самым удачным альбомом RAGE. Даже последним 3-4 работам он проигрывает, но отчего-то мне верится, что этот кусок мяса является лишь эпизодом, и следующая пластинка немцев будет более приятная уху их проверенного фэна.</P>
+Автор: Vit Belov
+
+### 10.08.2013 reviews Логичный симфонический альбом для Виктора Смольского
+
+<P><SPAN class=tit3>Objective</SPAN>: Чуть более, чем через год после выхода альбома <STRONG>“21” RAGE</STRONG> подготовили новую работу. Диск, вышедший под вывеской<STRONG> LINGUA MORTIS ORCHESTRA</STRONG>, всё-таки является симфоническим альбомом RAGE. Музыку для этой пластинки сочинил <STRONG>Виктор Смольский</STRONG>, а лирику<STRONG> Peavy Wagner</STRONG>. Хотя на альбомах RAGE музыкально творят оба главных инженера RAGE, уже давно ясно, что с приходом Виктора Смольского лидер и вокалист Peavy Wagner практически отошёл от активного творчества. В дискографии RAGE уже был похожий альбом, и носил он то же название “<STRONG>Lingua Mortis</STRONG>”. Правда, на релизе 1996 года немцы перепевали с симфоническим оркестром старые хиты, а теперь LINGUA MORTIS ORCHESTRA представляют полностью новый материал. Вместе с RAGE в записи принял участие оркестр Lingua Mortis из Минска (на альбоме 1996 года симфонические музыканты были из Праги) и несколько женщин-вокалисток. Концептуальная работа повествует о женщинах-ведьмах из Средневековья, тема идеально подходящая для творчества Виктора Смольского и давно заботящая Peavey Wagner.</P>
+<P><SPAN class=tit3>Subjective</SPAN>: Что ж, в этот раз получилось довольно хорошо. Симфонические аранжировки, жёсткая гитара, грубый вокал и вкрапления женского пения звучат органично. Пожалуй, только женский вокал показался мне не слишком убедительным, но его здесь не столь много, и он не играет ключевой роли. Почти все длительные эпики не вызывают скуки, должным образом наполненные событиями. Минусы у альбома, свойственные подобным творческим экспериментам, отсутствие должной динамики и излишняя помпезность для металического альбома. </P>
+<P><SPAN class=tit3>Goods</SPAN>:<STRONG> Nuclear Blast</STRONG>, как обычно, постарались заполнить рынок разнообразными релизами. Кроме «стекла», вышел также делюксовый digi-pack с DVD, содержащий два бонуса и видео-концерт, иногда данное издание комплектуется коллекционной карточкой с автографами. Также доступны виниловые издания в чёрном и оранжевом исполнении. В России диск уже выпустил <STRONG>Союз</STRONG>, обычное стеклянное издание содержит те же два бонус-трека, что и фирменный digi.</P>
+<P><SPAN class=tit3>Conclusion</SPAN>: Альбом, который вряд ли можно назвать экспериментальным. Все уже давно привыкли к RAGE с симфоническим оркестром. Эта эпопея началась ещё до прихода в коллектив Виктора Смольского, который очень удачно также увлекается симфоническими аранжировками. Удивительно, что альбом LINGUA MORTIS ORCHESTRA вышел только в 2013 году. Думается, теперь остановить RAGE от сиквела могут только чрезвычайно низкие продажи, чего, я думаю, не случится.</P>
+Автор: Vit Belov
+
+### 22.03.2014 news RAGE выпускают сборник
+
+<P>23 мая на <STRONG>Nuclear Blast</STRONG> выходит сборник <STRONG>RAGE</STRONG>, посвящённый 30-летию коллектива. На два диска попадут разнообразные редкие композиции, версии и новые треки, основанные на былых наработках. Также издание будет включать в себя DVD с концертным выступлением коллектива на прошлогоднем фестивале "<STRONG>Masters Of Rock</STRONG>". </P>
+<P>Трек-лист:</P>
+<P>CD1:<BR>1. <STRONG>Anybody Home?</STRONG> | 2. <STRONG>Mystery Trip</STRONG> | 3. <STRONG>In Union</STRONG> | 4.<STRONG> Long Hard Road</STRONG> | 5.<STRONG> Full Moon</STRONG> (International Version) | 6.<STRONG> Nevermore</STRONG> | 7. <STRONG>French Bourree</STRONG> | 8.<STRONG> A Perfect Day</STRONG> | 9.<STRONG> Enough Is Enough</STRONG> | 10.<STRONG> Here Comes The Night</STRONG> | 11.<STRONG> Spiritual Awakening</STRONG>&nbsp;| 12. <STRONG>Lost In The Void</STRONG>&nbsp; | 13.<STRONG> The Missing Link</STRONG>&nbsp; | 14.<STRONG>&nbsp;Another Kind Of Madness | 15. Down To The Bone <BR><BR></STRONG>CD2:&nbsp;<BR><STRONG>1. The Speed Of Sound</STRONG> | 2.<STRONG> Darkness Turns To Light </STRONG>| 3. <STRONG>Death Is Alive</STRONG> | 4.<STRONG> Gentle Murders</STRONG> | 5. <STRONG>From The Cradle To The Grave</STRONG> | 6.<STRONG> Refuge</STRONG> | 7.<STRONG> Fugue No. 5</STRONG> | 8.<STRONG> Last Goodbye</STRONG> | 9. <STRONG>Dirty Wings</STRONG> | 10.<STRONG> The Pit And The Pendulum</STRONG> | 11.<STRONG> Waterfalls</STRONG> | 12.<STRONG> Heads Off</STRONG> | 13.<STRONG> Assorted By Satan </STRONG>| 14.<STRONG> Shame On You</STRONG> | 15.<STRONG> Soundchaser <BR></STRONG><BR>DVD - <STRONG>Live at Masters of Rock Festival 2013</STRONG>:<BR>1.<STRONG> Cleansed By Fire</STRONG> | 2.<STRONG> From The Cradle To The Grave</STRONG> | 3.<STRONG> Scapegoat</STRONG> | 4. <STRONG>The Devil's Bride</STRONG> | 5. <STRONG>Empty Hollow</STRONG> | 6.<STRONG> Lament</STRONG> | 7.<STRONG> Suite Lingua Mortis:</STRONG>&nbsp;I.<STRONG> Prelude Of Souls</STRONG> / II. <STRONG>Innocent </STRONG>/ III.<STRONG>&nbsp;Depression</STRONG> / IV.<STRONG>&nbsp;No Regrets</STRONG> | 8.<STRONG> Witches' Judge</STRONG> | 9. <STRONG>Straight To Hell</STRONG></P>
+<P>+ Interviews & Bonus Videos </P>
+<P>
+<CENTER>&nbsp;<IMG border=0 src="/images/news_rus/2014.03/26769.jpg" width=500 height=500></CENTER>
+Автор: Vit Belov
+
+### 07.02.2015 news Нынешний состав RAGE прекратил существование
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Peavy Wagner</STRONG> и<STRONG> Viktor Smolski</STRONG> сообщили, что их пути расходятся. После выпуска юбилейного сборника, посвящённого 30-летию группы, и 15-летия совместной работы музыканты решили пойти собственными путями. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Смольский сконцентрируется на новом альбоме <STRONG>LINGUA MORTIIS ORCHESTRA</STRONG>, а <STRONG>Peavy </STRONG>продолжит концертировать с REFUGE, кавер-группой на старый RAGE.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2015.02/27618.jpg" width=400 height=250></FONT></P>
+Автор: Vit Belov
+
+### 16.01.2016 news Новый мини-альбом RAGE
+
+<P>22 января на<STRONG> Nuclear Blast</STRONG> выходит мини-альбом<STRONG> RAGE "My Way"</STRONG>, который станет "пробой пера" для нового состава легендарной немецкой группы: гитариста<STRONG> Marcos Rodriguez</STRONG> и барабанщика <STRONG>Vassilios Maniatopoulos</STRONG> вместе с постоянным участником группы басистом/вокалистом <STRONG>Peavy Wagner</STRONG>. На диск войдут новые версии классики с альбома "<STRONG>Black In Mind</STRONG>", которому в прошлом году исполнилось 20 лет, и две версии нового трека "My Way" на испанском и английском языках. </P>
+<P>Трек-лист:</P>
+<P>“My Way” (new song)<BR>“Black In Mind” (title song of the album Black In Mind; re-recorded)<BR>“Sent By The Devil” (from the album Black In Mind; re-recorded)<BR>“Apuesto A Ganar” (Spanish version of “My Way”)</P>
+<P><center><IMG border=0 src="/images/news_rus/2016.01/28698.png" width=640 height=640></P>
+Автор: Vit Belov
+
+### 24.02.2016 news RAGE: новый студийный альбом &quot;The Devil Strikes Again&quot;
+
+<P>10 июня обновлённая немецкая группа <STRONG>RAGE</STRONG> выпускает свой новый студийный полноформатник <STRONG>"The Devil Strikes Again"</STRONG>. </P>
+<P>Коллектив записал&nbsp;этот&nbsp;диск в сентябре-октябре 2015-го на немецкой <STRONG>Megafon Studios</STRONG> и бельгийской <STRONG>Soundchaser Studios</STRONG>. Продюсерами альбома выступили <STRONG>Marcos Rodriguez</STRONG> и&nbsp;<STRONG>Peavy Wagner</STRONG>, тогда как<STRONG>&nbsp;Dan Swan&#246;</STRONG> отвечал за микширование и мастеринг. Автор обложки альбома - <STRONG>Karim K&#246;nig</STRONG>.</P>
+<P>Альбом будет доступен в следующих форматах: обычный CD, 3CD digipak&nbsp;(в количестве&nbsp;1000 копий, которые будут распространяться только через сайт <STRONG>Nuclear Blast</STRONG>), 2CD digipack и&nbsp;двойной винил&nbsp;(черный и белый). На альбом также вошли шесть бонус-треков, включая каверы на <STRONG>RUSH</STRONG>, <STRONG>SKID ROW</STRONG> и <STRONG>Y&T</STRONG>. Эксклюзивное трехдисковое издание также включает в себя концертную запись, сделанную во время последнего совместного тура с <STRONG>HELLOWEEN</STRONG> и <STRONG>C.O.P. UK</STRONG>.</P>
+<P>Предварительный заказ доступен по ссылке: <A href="http://nblast.de/RageDevilPreOrder">http://nblast.de/RageDevilPreOrder</A></P>
+<P><U>Трек-лист 2CD digipack</U>:</P>
+<P><STRONG>CD1</STRONG>: 01. <STRONG>The Devil Strikes Again</STRONG> | 02. <STRONG>My Way</STRONG> | 03. <STRONG>Back On Track</STRONG> | 04. <STRONG>The Final Curtain</STRONG> | 05. <STRONG>War</STRONG> | 06.<STRONG> Ocean Full Of Tears</STRONG> | 07. <STRONG>Deaf, Dumb And Blind</STRONG> | 08. <STRONG>Spirits Of The Night</STRONG> | 09. <STRONG>Times Of Darkness</STRONG> | 10.<STRONG> The Dark Side Of The Sun</STRONG></P>
+<P><STRONG>CD2</STRONG>: 01. <STRONG>Bring Me Down</STRONG> | 02. <STRONG>Into The Fire</STRONG> | 03. <STRONG>Requiem</STRONG> | 04. <STRONG>Bravado</STRONG> (<STRONG>RUSH</STRONG> Cover) | 05.<STRONG> Slave To The Grind</STRONG> (<STRONG>SKID ROW </STRONG>Cover) | 06. <STRONG>Open Fire</STRONG> (<STRONG>Y&T</STRONG> Cover)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28887.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.06.2016 news Новый клип RAGE
+
+<p>10 июня на <strong>Nuclear Blast</strong> выходит новый альбом <strong>RAGE "The Devil Strikes Again"</strong>. Новый клип на одноимённую композицию можно посмотреть ниже. Режиссёром выступил<strong> Ivan K. Maras</strong>. </p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/CBbAF9IPnZ8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 03.06.2016 news RAGE: new video
+
+<p>New <strong>RAGE</strong> album "<strong>The Devil Strikes Again</strong>" will be released on June, 10 via <strong>Nuclear Blast</strong>. New video for title track can be viewed below. Directed by <strong>Ivan K. Maras</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/CBbAF9IPnZ8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 17.06.2016 reviews Смольский.нет
+
+<p>Видимо, в прошлом году у лидера RAGE Peavy Wagner удовольствие от жизни окончательно победило производственную необходимость. Гитарист Виктор Смольский, который очень много вкладывал в существование RAGE как группы, был изгнан, к немалой радости «олдскульных» поклонников. Сначала басист и вокалист группы Wagner организовал некий суррогат-группу REFUGE, в которую входили бывшие участники RAGE – гитарист Manni Schmidt и барабанщик Chris Efthimiadis. С этим составом Peavy проехался по миру, исполняя вещи «досмольского» периода. Все ожидали, что REFUGE плавно перетечёт в RAGE, но этого не случилось. Немецкая группа действительно вернулась к формату трио, но дополнили вокалиста бывший техник Chris Efthimiadis неопытный барабанщик Vassilios Maniatopoulos и гитарист группы SOUNDCHASER Marcos Rodriguez. Об обоих известно доподлинно только одно, Peavy со ними подружился в турах.</p><p>Конечно, старые поклонники RAGE в большинстве своём Виктора Смольского не любили. Считалось, что он всё делал не то и не так. Его гитара была слишком крутая, а песни слишком прогрессивны для всеми любимого RAGE, и это правда. Новый альбом немцев «The Devil Strikes Again” доказывает, что музыкантами в RAGE могут быть любые люди. Никакой виртуозности не требуется, а требуется мощь, прямолинейность и неукоснительное следование вокалу и басу Peter Wagner. Новый состав группы с этим справляется идеально. Звук сухой и плотный, как на альбомах начала 90-х, мне даже показалось, что в своей жажде отказа от крутого саунда RAGE пошли ещё дальше, ныне для RAGE “Missing Link” или «Black in Mind” звучат слишком «чисто». </p><p>В целом «The Devil Strikes Again” оправдает ожидания всех любителей RAGE со стажем. Диск тяжёлый и прямолинейный без симфонизмов и прогрессивизмов. Вопрос в том, можно ли войти в одну реку дважды? Думаю, можно, но здесь есть одна проблема. Почему я не могу написать, что этот альбом похож на «Missing Link” или «Trapped”, про «Black In Mind” я уже и не говорю? Да потому что по звуку он может и похож, но по материалу ему до этих альбомов очень далеко. Можно приглашать Смольского, можно его удалять, но если не сочиняется хитов, что с этим поделать? </p><p>Вновь среднестатистический альбом RAGE, которых в последние годы вышло уже достаточно. Да, здесь есть сильное отличие от предешественников — отсутствие Виктора Смольского. Хитов же точно не прибавилось.</p>
+Автор: Vit Belov
+
+### 17.06.2016 reviews Smolski.NET
+
+<p>Apparently, last year the leader of the RAGE Peavy Wagner enjoyment of life finally won a necessity. Guitarist Victor Smolski, who has a lot invested in the existence of RAGE as a group, were expelled, much to the delight of "old school" fans. First, bassist and vocalist Wagner organized a surrogate group REFUGE, which included former members of RAGE guitarist Manni Schmidt and drummer Chris Efthimiadis. With this band Peavy went around the world singing songs "beforesmolski" period. Everyone expected that the REFUGE will be gradually moved to RAGE, but this did not happen. The German group had indeed returned to the trio format, but Peavy found former technician of Chris Efthimiadis inexperienced drummer Vassilios Maniatopoulos and guitarist of the metal band SOUNDCHASER Marcos Rodriguez. Both are known for certain only one thing, making friends with Peavy on tour.</p><p>Of course, old fans of RAGE, in the majority, didn't like Victor Smolski. It was believed that he was not suit. His guitar was too cool and the songs are too progressive for everyone's favorite RAGE period, and it's true. The new album of the Germans "The Devil Strikes Again" proves that any people can be musicians in RAGE. No virtuosity is required, but required power, the linearity and strict adherence to the vocals and bass of Peter Wagner. The new line-up of the group copes with it perfectly. The sound is dry and dense as on the albums of the early 90s, I even thought that in their thirst for failure from the cool sound, RAGE went even further, now "The Missing Link" or "Black in Mind" sound a little too "clean" for RAGE. </p><p>Overall "The Devil Strikes Again" will justify the expectations of all fans of RAGE with the experience. Drive hard and straight without symphonies and progressivism. The question is, can they enter the same river twice? I think they can, but there is one problem. Why can't I write that this album is similar to the "Missing Link" or "Trapped", about "Black In Mind" I do not say? Yes, because by the sound of it may look like, but in material it's too far from those albums. You can invite Smolski, you can remove it, but if you don't compose the hits, what to do about it? </p><p>Again an average album of RAGE, which has released already many times in recent years. Yes, there is a strong contrast to previous — the absence of Victor Smolski. Quantity of hits is the same and not increased.</p>
+Автор: Vit Belov
+
+### 02.07.2016 news Новое лирик-видео от RAGE
+
+<p>Немцы<strong> RAGE</strong> выпустили лирик видео на песню "<strong>War</strong>" с нового альбома "<strong>The Devil Strikes Again</strong>". Диск вышел на <strong>Nuclear Blast</strong> в начале июня.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/cs0CAQB2Ezc" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 02.07.2016 news New lyric video of RAGE
+
+<p>The Germans<strong> RAGE</strong> released a lyric video for the song "<strong>War</strong>" from the new album "<strong>The Devil Strikes Again</strong>". The album was released by <strong>Nuclear Blast</strong> in early June.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/cs0CAQB2Ezc" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 15.08.2016 articles Всеволод Баронин: «Самоценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы»
+
+<p><em></em><center><em><img width="392" height="600" src="/images/articles_rus/2016.08/29810.jpg" border="0"></em><p></p></center><p><em>Мы начинаем регулярную рубрику на нашем сайте. У неё пока нет названия. Но есть идея, общаться с знатоками тяжёлой музыки в нашей стране и за её пределами, стараясь разобраться в актуальных течениях и тенденциях. В общем, что надо слушать, а что не надо. Первым нашим собеседником стал <strong>Всеволод Баронин</strong>, музыкальный эксперт.</em></p><p><strong>Какие, по-твоему, основные тенденции в тяжёлой музыке в августе 2016 года? На что стоит обратить внимание нашим читателям?</strong></p><p>Нужно говорить отдельно о Европе и Америке. И там, и там значительно вырос интерес к традиционным хэви-составам, что бы под этой традиционностью не понималась (от совершенно традиционного HMR до симфонического пауэр-метала) – может, стилистику подобных групп можно даже назвать ретро-металом, если мы говорим, допустим, о последнем миньоне Candlemass. В Америке же к этой традиционной составляющей добавляются группы вроде Fallujah, которые сочетают в своем материале брутальность и обильную клавишную и неклавишную электронику. Пока еще эти, условно говоря, новые бруталисты не очень известны в Европе и вообще за пределами США (хотя у себя дома они вполне звезды), но мне кажется, что в ближайшие полгода ситуация изменится.</p><p><strong>Какие бы ты назвал примеры традиционных HMR составов, которые набирают сейчас популярность?</strong></p><p>Мне кажется, что в ближайшие месяцы во всяком случае вернет себе популярность White Wizzard, к которым сейчас вернулся первый вокалист, и альбом на подходе. Также очень радует возвращение тех же Candlemass с Матсом Левеном у микрофона. Если говорить о музыке чуть радикальнее, то одним из событий ближайших месяцев станет выход альбом индийских трэш-металлистов Kryptos "Burn Up The Night". Ретро-трэш такой степени достоверности в рок-метрополиях ныне просто не играют.</p><p><strong>А что скажешь о Blues Pills?</strong></p><p>По-моему, это такая игра в конец 60-х и начало 70-х. То есть обычно эта ниша заполняется в наше время кавер-группами, но здесь группа играет свой собственный материал, пусть и похожий сразу на многое из той эпохи. А раз такая музыка понятным образом уже проходит по ведомству вечных ценностей, то успех группы понятен.</p><p><strong>Но с точки зрения музыкальной&nbsp; ценности эта группа имеет какое-то значение? Вообще, чем вызвана такая повальная мода на подобную музыку сейчас?</strong></p><p>Именно САМОценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы, однако спрос на них вызван смутной ностальгией по всей рок-эпохе 70-х, когда "трава была зеленее". При том, что я очень сомневаюсь, что поклонники групп вроде Blues Pills или Radio Moscow хоть что-то слышали про прототипы почти полувековой давности, таких, как Bakerloo или Cressida. Разве только про Cream знают… В любом случае Blues Pills и составы, им подобные, очень хорошо заполняют нишу спроса на старомодный хард-рок, поскольку работоспособность групп-ветеранов сейчас находится под большим вопросом.</p><p><strong>Но ведь, по идее, подобную музыку должны любить уже люди старшего возраста, но судя по продажам, молодёжь тоже прониклась.</strong></p><p>Это как раз неудивительно – группа молодая, и играет музыку, которую молодой слушатель никогда не слыхал. Если только из коллекции родителей, но это довольно редкая ситуация. То есть это классический случай того, как новым оказывается ОЧЕНЬ хорошо забытое старое.</p><p><strong>Но ведь музыка развивается? Почему вдруг мы вернулись на 40 лет назад?</strong></p><p>Получилось то, о чём я говорил выше: все новые брутальные имена для молодежи сосредоточены в США, а ретро-рок там популярен у аудитории хорошо за 30, а то и за 40, Blackberry Smoke тому примером. И эту брутальную молодежь в Европу что-то особо не возят. И на самом деле просто нужно признать, что рок стал ровно такой же институцией, как классика или джаз, то есть дальнейшее развитие стиля вглубь, как мне кажется, не очень вероятно. Так что масса молодых групп предпочитает идти по чужим следам, а не изобретать что-то своё.</p><p><strong>Что скажешь о Thrash metal? В этом году вышло много альбомов классических коллективов. Megadeth, Anthrax, Destruction, Death Angel. Что скажешь о них?</strong></p><p>А вот это именно тот случай – ещё один случай, когда субстиль очень хорошо чувствует себя именно за счёт интереса публики всех возратов. Не секрет, что все главные имена трэш-метала – это ветераны, а кому ж неохота услышать новую работу мастеров или прийти на их концерт?</p><p><strong>Но они все разные. Вот, например, Anthrax тяжело теперь назвать Thrash.</strong></p><p>Весь феномен, который англичане называют Thrashback!, основан в первую очередь на том, что люди покупают носители и идут на концерт не из-за музыки, а из-за имени. Тем более, что толковых молодых имён в трэш-метале так и не появилось – разве только Vektor.</p><p><strong>Не уходи от вопроса. Как тебе последний Anthrax?</strong></p><p>Мне альбом НЕ понравился. Как мне кажется, Джой Белладонна перетянул одеяло на себя, и в результате альбом стал похож на его невразумительные сольные работы. А Скотт Ян, по-моему, пытался сочинить каких-то условно модных песен – но именно таких, как он сам это "модное" понимает. Только его точка зрения не совпадает с точкой зрения аудитории. Печально.</p><p><strong>А что насчёт Megadeth? Все в восторге.</strong></p><p>Именно тот случай, когда группа приподнесла стопроцентно предстказуемый альбом. Только вот звук и игра гитариста Кико Лорейро вызывает значительно больше восторга, чем качество материала. Хитов-то нет! Но у Megadeth так дела обстоят года с 1997.</p><p><strong>А что насчёт RAGE? Их возвращение к корням и уход Смольского широко обсуждался.</strong></p><p>В общем-то аналогично ситуации с Megadeth – Rage вернулись в 1993 год и ранее. Хотя возвращение вышло несколько формальным – я не расслышал, чтобы новый гитарист принес в группу какие-то свои идеи. Он пока рад-радёшенек косить своей композиторской и исполнительской манерой под Манни Шмидта. Это вполне естественно, так что для оценки уровня его собственных амбиций и направления развития Rage нам нужно будет дождаться их следующего альбома.</p><p><strong>И немного заглянем в будущее. Что ждёшь от Running Wild?</strong></p><p>Опять же воспроизведения всех, абсолютно всех клише группы. Странно было бы ждать от Running Wild чего-то другого. А уж хиты – это как получится.</p><p><strong>А Sodom?</strong></p><p>Та же ситуация, что с Running Wild. Песни всем – и группе, и её поклонникам – нужны абсолютно такие же, как и ранее. Такими и будут. Что же касается звучания альбома, то может произойти его лёгкая коррекция, но так бывало и ранее, и это никого не обижало.</p><p><strong>Ну, а кто-то из ветеранов творит? Или все "шаблонят"?</strong></p><p>Как мы уже говорили выше, сравнивая Anthrax и Megadeth, писать сейчас альбомы, схожие с иными собственными творениями – скорее доблесть, нежели наоборот. Поскольку, как в случае с Anthrax, новые подходы ветеранов к материалу, оказываются мало кому нужными. Подозреваю, что такая же неприятность приключится с новым альбомом группы Джеффа Тэйта Operation: Mindcrime.</p><p><strong>Ну и что тогда лучше? Штамповать или экспериментировать?</strong></p><p>Как мне кажется – музыкантам сейчас придерживаться собственных корней и одновременно экспериментировать со студийным звучанием, но опять же в разумных пределах.</p><p><strong>Ну и последний вопрос. Metallica.</strong></p><p>А тут как раз – полная непредсказуемость. То есть понятно, что стилистика группы сильно не изменится, но вот какой звук они нарулят в студии? Это будет интересно услышать. Правда. В прошлый раз все странности следовали даже не от студийного звука, а от мастеринга, сделанного под размещение музыки в Интернете и прослушивании её на i-устройствах. Мне лично кажется, что материал с музыкальной точки зрения будет всё же похож на "Death Magnetic" – такой группе нет причин экспериментировать, тем более в условиях современного спроса на трэш-метал. Но со звуком могут быть сюрпризы.</p><p>Прочитать рецензии Всеволода можно в его ЖЖ по адресу: <a href="http://vs-baronin.livejournal.com/">http://vs-baronin.livejournal.com/</a></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый альбом RAGE!

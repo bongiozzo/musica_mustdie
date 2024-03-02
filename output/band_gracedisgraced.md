@@ -25,6 +25,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.04.2012 news Новый альбом GRACE DISGRACED
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2012.04/23407.jpg" width=300 align=right border=0>1 марта на лейбле <STRONG>MoreHate Productions</STRONG> наконец-то вышел первый полноформатный альбом <STRONG>GRACE DISGRACED “Enthrallment Traced”</STRONG>.&nbsp; Альбом был записан, сведен и отмастерен на <STRONG>CosmosSound Studio</STRONG>. Оформителем альбома стал американец <STRONG>Марк Купер</STRONG>.&nbsp; Каждая композиция имеет тематическую иллюстрацию. И это не случайно, так как текстам группа уделяет особое внимание – все песни связаны между собой по смыслу – альбом рассказывает о тех вещах, которые влияют на человека, которые ему неподвластны, о власти природы, экономики, политики. Причем повествование идет в аллегорических&nbsp; и ужасных образах. Что касается музыкальной составляющей – то это дет-металл старой школы, но облеченный в свежие и оригинальные композиционные решения, где-то навороченный, где-то мелодичный, но жестокий и стремительный, каким ему&nbsp; и полагается быть.</P>
+<P>MySpace: <A href="http://www.myspace.com/gracedisgraced">http://www.myspace.com/gracedisgraced</A></P>
+Автор: Vit Belov
+
+### 30.11.2013 news FLASH OF AGGRESSION - новый проект Андрея Смирнова
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.11/26392.jpg" width=400 height=406>25 ноября 2013 г. на лейбле <STRONG>CD-Maximum</STRONG> вышел дебютный альбом московского modern thrash metal проекта <STRONG>FLASH OF AGGRESSION "Seed Of Hate"</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Mechanism Of Destruction<BR></STRONG>02. <STRONG>Entertainment Waste<BR></STRONG>03. <STRONG>Final Conflict<BR></STRONG>04. <STRONG>Gun Down Your Enemies<BR></STRONG>05. <STRONG>Paper God<BR></STRONG>06. <STRONG>The Kingdom Of Salvation<BR></STRONG>07. <STRONG>Disaster</STRONG><BR>08. <STRONG>Cancer On The Face Of Our Planet<BR></STRONG>09. <STRONG>Insane</STRONG><BR>10. <STRONG>Distaste Of Life</STRONG></P>
+<P>Видео-презентация: <A href="http://youtu.be/0eCJISpDfmA"><U><FONT color=#0000ff>http://youtu.be/0eCJISpDfmA</FONT></U></A></P>
+<P>Cведение и мастеринг выполнен на студии <STRONG>KIV Records</STRONG>.</P>
+<P>Состав:</P>
+<P><STRONG>Полина Березко</STRONG> (<STRONG>GRACE DISGRACED</STRONG>) - вокал<BR><STRONG>Андрей Смирнов</STRONG> (<STRONG>U.D.O.</STRONG>, <STRONG>EVERLOST</STRONG>, ex-<STRONG>МАСТЕР</STRONG>) - гитара, бас, продюсирование<BR><STRONG>Дмитрий Игнатьев</STRONG> (<STRONG>TANTAL</STRONG>, <STRONG>EVERLOST</STRONG>) - гитара<BR><STRONG>Сергей Серебренников</STRONG> (<STRONG>EVERLOST</STRONG>, <STRONG>ВАЛЕРИЙ ГАИНА</STRONG>) - ударные</P>
+<P><STRONG>Андрей Смирнов</STRONG>: <EM>«Идея записать настоящий агрессивный металлический альбом пришла нам с моим братом Дмитрием Игнатьевым достаточно давно. Мы с ним ровесники, начинали интересоваться музыкой и играть на гитаре примерно в одно и тоже время. Подростками мы часто джемовали вместе, фиксируя наши первые музыкальные «опусы» на кассетный магнитофон, делились новыми записями. Так уж сложилось, что некоторое время мы были постоянно заняты работой в своих собственных коллективах и с другими артистами, но мы смогли выкроить время и воплотили задуманное в жизнь!»</EM></P>
+<P><STRONG>Дмитрий Игнатьев</STRONG>: <EM>«В этот альбом мы постарались вложить все свои эмоции, в том числе и отрицательные. Мы намеренно не стали ограничивать себя никакими рамками при создании песен, что сказалась на скорости и экстримальности материала, как в музыкальном плане так и плане лирики. Можно сказать, что данный проект - это альтер-эго всех других музыкальных коллективов, в которых мы участвуем».</EM></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### GRACE DISGRACED / NOSFERATOS / FORMALIN и др. (25 ноября, Москва)

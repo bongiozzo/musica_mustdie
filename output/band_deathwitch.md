@@ -32,6 +32,276 @@ death metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.01.2004 reviews We don&#39;t give a fuck what you play
+
+<P>Признаться, когда промо группы напичкано выражениями типа "fuck off", "for fucking promotional use only" и "Note to Journalists: Deathwitch don't give a fuck what you think", сразу немного напрягаешься, ибо подобные понты могут позволить себе лишь либо заслуженные команды, либо какие-то дебютанты, которые подобным несложным образом пытаются обратить на себя внимание (еще стоит обратить внимание на название одной из студий, где был записан диск - Fuck Recording,&nbsp;а также на "имена" участников сего шведского трио: Terror (вокал, гитара и бас-гитара), Slade Doom (гитара) и Morbid Juttu (ударные); кстати, Слейд Дум арестован по подозрению в совершении преступления и заключен под стражу). Так вот, ни теми, ни другими Deathwitch, выпускающие уже шестой релиз, не являются. Их брутальный дэт, зачастую построенный на, мягко говоря, "утянутых" у бывалых трешеров риффах, заставляет лишь поглядывать на часы в ожидании окончания альбома. И хотя они с середины диска пытаются внести какое-то разнообразие в их совершенно неоригинальную работу, впечатление от данной группы остается прежним (хотя нельзя не отметить работу гитариста и ударника; а вот вокалист затеряется среди сотни ему подобных). Сей релиз, несмотря на неплохое исполнение и продюсирование, еще раз подтверждает тот факт, что в Швеции&nbsp; качественный брутальный дэт умеют делать буквально три-четыре группы, да и те никогда не дотянут до уровня банд из Флориды и - как ни странно - из Польши. Посему - хоть и не являясь журналистами - лаконично ответим этим скандинавским распальцовщикам: We don't give a fuck what you play!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

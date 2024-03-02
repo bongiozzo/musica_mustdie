@@ -27,6 +27,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.07.2011 news Heavy Metal балет
+
+<P>Экспериментальная балетная труппа из Нью-Йорка <STRONG>Ballet Deviare </STRONG>под управлением <STRONG>Laura Kowalewski</STRONG> и <STRONG>Andrew Carpenter </STRONG>представила вниманию публики <STRONG>"Disconsolate"</STRONG>, девятиминутный танец, поставленный <STRONG>Adam Waltner</STRONG>. В качестве музыки использовано творчество американской funeral doom-metal группы <STRONG>CELESTIIAL.</STRONG></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-WmjG9gBUTI?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/-WmjG9gBUTI?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

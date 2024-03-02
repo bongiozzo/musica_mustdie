@@ -8,6 +8,17 @@ CYNIC project
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.01.2012 news Демо-записи PORTAL будут изданы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Season Of Mist</STRONG> выпустят 24 марта альбом "<STRONG>The Portal Tapes</STRONG>" группы<STRONG> PORTAL</STRONG>, проекта музыкантов <STRONG>CYNIC</STRONG>, записанного в начале 90-х. В <STRONG>PORTAL</STRONG> входили музыканты: <STRONG>Paul Masvidal</STRONG> и <STRONG>Sean Reinert</STRONG>, а также гитарист<STRONG> Jason Gobel</STRONG>, басист <STRONG>Chris Kringel</STRONG> и вокалистка <STRONG>Aruna Abrams</STRONG>. Записи, представленные на этом CD, были сделаны сразу после релиза альбома <STRONG>CYNIC "Focus"</STRONG> в 1993 году.</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=606 src="/images/news_rus/2012.01/22590.jpg" width=475 border=0></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.09.2004 news 2TON PREDATOR закончили запись
+
+<P>Шведы закончили <STRONG>2TON PREDATOR</STRONG> закончили работу над 4 альбомом с продюсером <STRONG>Tue Madsen</STRONG> (<B>THE HAUNTED</B>, <B>ILLDISPOSED</B>, <B>MNEMIC</B>, <B>CATARACT</B>). Группа ищет новый лэйбл.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

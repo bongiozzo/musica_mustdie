@@ -173,6 +173,118 @@ Cover art for "Redemption at the Puritan's Hand" by Paul McCarroll
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Primordial закончили запись нового миньона под названием "The Burning Season".</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news Primordial&#39;s tour
+
+<p>Primordial will promote their upcoming album "Spirit the Earth Aflame" (already album of the month in Legacy Mag) with some pre-release shows (with Thyrfing and Shadowbreed). See "Tours" for dates. The band is also confirmed for the Leipzig Gothic/Wave Treffen (9-12 June)</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news Primordial отправляются в тур.
+
+<p>для промоции своего нового альбома "Spirit The Earth A Flame" группа даст несколько концертов в компании с Thyrfing и Shadowbreed.</p>
+
+Автор: Vit Belov
+
+### 28.07.2000 reviews Атмосферно-эмоциональный black-metal
+
+<p>Атмосферно-эмоциональный black-metal. Третий полноформатный альбом группы на новом лэйбле. Он явственно показывает, что группа верна себе, постоянно прогрессируя от альбома к альбому. Все очень тяжело и хорошо. В музыке присутствует настойчивость, энергия и взрыв чувств. Прекрасно поработал вокалист, спев много партий различной силы и тональности. Соотношение чистого и хрипящего вокалов - 50 на 50. Фирменный трагический саунд группы чувствуется на протяжении всего альбома, смешиваясь с триумфальными величественными мелодиями. Из-за этого, иногда мне их творчество напоминает black-вариант My Dying Bride. Хорошее качество, бесподобная студийная работа. Настоятельно всем рекомендую. Особенно тем, кому хочется чего-то свежего, нового, сверхоригинального и душевного!</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews Atmospheric-emotional black-metal
+
+<p>Atmospheric-emotional black-metal. Third fullformating an album of group on a new label. He clearly demonstrates, that the group is correct to itself, permanently progressing from an album to an album. All is very high-gravity and it is good. At music there is a perseverance, energy and explosion of feelings. Is fine has worked voiceman, having sung there are a lot of crews of different force and tonality. A ratio clean and rattling vocals - 50 on 50. The firm tragical sound of group is felt during all album, being admixed with triumphal majestic tunes. Because of it, sometimes their creativity resembles to me black-version My Dying Bride. High quality, incomparable studio activity. Strongly all I recommend. Specially it would be desirable for the one whom something fresh, new, superoriginal and spiritual!</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> LABELS, if you want Belarusian metalheads to be acquainted with your releases we recommend you to put MassaBrutto Radioshow address in your promo and mailing lists. <BR><BR> All kinds of quiz actions featuring your products as prizes can be performed in MassaBrutto. You may discuss all conditions with us by using any way of connection.<BR><BR> Nevertheless we live in ex-Soviet state where music piracy dwells, MASSA BRUTTO RADIOSHOW DOESN'T SUPPORT ANY KIND OF MUSIC PIRACY ON PRINCIPLE !!! <BR> So, you may be sure that:<BR> - there wasn't and there won't any of illegal CDs broadcasted within MassaBrutto Radioshow;<BR> - any of official or licensed CDs sent to MassaBrutto will not become the property of music pirates.<BR><BR> If you or someone that you know is in a band that is interested in getting some guaranteed airplay on a radio station in Belarus then all you need to do is to get in contact with us. <BR><BR> If there are any questions - feel free to ask.<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 04.09.2002 reviews Буря перед затишьем
+
+<p>Новейшее эпическое и величественное творение мрачных ирландцев свято чтящих вековые традиции. Это уже четвертое полнометражное творение талантливых музыкантов сделанное в фирменной стилистике группы. За десять лет существования у этой группы уже выработался собственнный технически безупречный стиль. Немного монотонный и всецело загружающий dark pagan metal, соединяющий элементы black, death, doom и folk музыки. Многим такой материал покажется однообразной жвачкой не заслуживающей внимания. Но стоит отнестись к материалу серьезнее и с пониманием, как становится ясна и понятна вся глубина задумок и стилистических стенаний группы соединяющей тяжелую экстремальную музыку с кельтской народной музыкой. Большое количество мелодий, комбинирование агрессии и мощности, гармоничность, мрачная тяжелая атмосфера, чередование экстремальных вокалов с тягучим чистым, фолковые акустические части, выправка музыкальных построений, вместе с тем дисгармоничные и хаотичные структуры. В определенные моменты, эта музыка оказывает на слушателя гипнотическое воздействие. Новый альбом призывает слушателей к борьбе с новым порядком, борьбе против всех и каждого в отдельности. Очень эмоциональная музыка. Прекрасный подарок для всех любителей языческой музыки.</p>
+
+Автор: Dimas
+
+### 20.11.2002 reviews A cross between ANATHEMA and BURZUM?
+
+<p>Would you dare to imagine a cross between ANATHEMA and BURZUM? PRIMORDIAL chaps dared, and that's how their music sounds like. If loosely described, of course. These Irish contrive to compile sorrowfilled monologue-like “clean” vocals, grievous passages with harsh and unrelenting yet surprisingly heartfelt black metal assault; and even if this music is of distinctively Irish origin, PRIMORDIAL nevertheless have been and still are elaborating a style of their own – carefully and slowly, but elaborating in spite of anything and / or anyone. This band can't be confused with any other, that's for sure. Purely original is not only music, but lyrics as well. Dramatic and imaginative, this is truly a poetry. And as they say: “If our last album “Spirit The Earth Aflame” was the call to arms, a statement of intent, the desire and will to bring about the winds of change…to meet a new challenge head on. “Storm Before Calm” is the struggle to meet this new order, be it the struggle of one man, a race, a nation, the struggle within us all. Yet above all “Storm Before Calm” is about History…it is about how you see, feel and find yourself in relation to the past. The lessons it teaches us but also the liberties that today's age takes with our history and our heritage. Are we writing our own pages within the annals of history…right here, right now, today. “Storm Before Calm” is primal, it seeks to question the morals, religions and cultures imposed upon us, the questioning of oneself. Discovering your true place within this vast question. Discovering your place within your history, within the vastness of deeds and actions, of places and peoples. You are both sacrifice and solution”. I would buy the CD right after getting acquainted with this message. And… wouldn't you?</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 08.12.2004 news PRIMORDIAL выпускают новый альбом
+
+<P>Ирландцы <STRONG>PRIMORDIAL</STRONG> подготовили свой пятый альбом. <STRONG>'The Gathering Wilderness'</STRONG> выйдет на <STRONG>Metal Blade</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>The Golden Spiral</STRONG><BR>2. <STRONG>The Gathering Wilderness</STRONG><BR>3. <STRONG>Song of the Tomb<BR></STRONG>4. <STRONG>End of all Times<BR></STRONG>5. <STRONG>The Coffin Ships</STRONG><BR>6. <STRONG>Tragedy’s Birth (The Martyr’s Fire)<BR></STRONG>7. <STRONG>Cities Carved in Stone</STRONG></P>
+Автор: Vit Belov
+
+### 19.07.2005 reviews Ирландская печаль
+
+<P>Сколько не открещиваются (чуть ли не в каждом интервью!) музыканты этой команды от pagan-идеологии, а все равно – кельтским духом от них прет за версту. И ведь вроде никаких попсовых дудок, скрипок и волынок в их творчестве нет – а вот то, что они из Ирландии, чувствуется на подсознательном, глубинном уровне. То орнаментом на обложке себя выдадут, то в лирике что-то мелькнет…<BR>От альбома к альбому – словно от рубежа к рубежу – музыка группы становится все более мрачной и безысходной, хотя казалась бы – куда уж мрачнее?.. Давящая монотонность и неотвратимость, повторяющиеся по кругу шаманские мелодии, гипнотизирующая трансовая ритмика – вот то, что является стержнем, основной составляющей музыки PRIMORDIAL. Эпический doom/black с тяжелыми грубыми гитарами… все это можно сравнить с горным потоком – то вода шумит и грохочет на перекатах, выбивая в мокром граните свой путь, то затихает и успокаивается, превращаясь в маленький, безобидный с виду ручеек – но только лишь для того, чтобы снова&nbsp; набрать мощи и продолжить разрушительное движение… Конечно, это лишь лирическое отступление, однако же – мысли такие. Собственно, именно поэтому я не в силах выделить какую-то отдельную композицию – “The Gathering Wilderness” воспринимается как одно целое.<BR>Неясное и не проходящее ощущение тоски, такая же неясная тревога, безмолвная истерика, холодное пророчество… Вам оно надо?.. Если надо – милости просим. Слушайте.</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Dr. Grandma
+
+### 09.01.2009 news PRIMORDIAL тоже переиздадут
+
+<P><STRONG><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13332.jpg" width=300 align=right border=5>PRIMORDIAL</STRONG> опубликовали планы на 2009 год. Кроме тура по США и записи нового альбома, <STRONG>PRIMORDIAL </STRONG>планируют переиздать старые пластинки. Начнут ирландцы с релиза дебютного "<STRONG>Imrama</STRONG>", вышедшего осенью 1995 года на <STRONG>Cacophonous Records</STRONG>. Нас ждёт двухдисковое диги-пак издание с редкими записями и концертными трэками, которое выйдет 16 марта на <STRONG>Metal Blade</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Fuil Arsa</B><BR itxtvisited="1">02. <B itxtvisited="1">Infernal Summer</B><BR itxtvisited="1">03. <B itxtvisited="1">Here I am King</B><BR itxtvisited="1">04. <B itxtvisited="1">The Darkest Flame</B><BR itxtvisited="1">05. <B itxtvisited="1">The Fires...</B><BR itxtvisited="1">06. <B itxtvisited="1">Mealltach</B><BR itxtvisited="1">07. <B itxtvisited="1">Let the Sun set on Life Forever</B><BR itxtvisited="1">08. <B itxtvisited="1">To the Ends of the Earth</B><BR itxtvisited="1">09. <B itxtvisited="1">Beneath a Bronze Sky</B><BR itxtvisited="1">10. <B itxtvisited="1">Awaiting the Dawn</B><BR itxtvisited="1"><BR itxtvisited="1">Bonus Disc:<BR itxtvisited="1"><B itxtvisited="1">"Dark Romanticism"</B> 1993 demo:<BR itxtvisited="1">01. <B itxtvisited="1">To Enter Pagan</B><BR itxtvisited="1">02. <B itxtvisited="1">The Darkest Flame</B><BR itxtvisited="1">03. <B itxtvisited="1">Among the Lazarae</B><BR itxtvisited="1">04. <B itxtvisited="1">To the Ends of the Earth</B><BR itxtvisited="1">Live in Dublin 1993:<BR itxtvisited="1">05. <B itxtvisited="1">In Graciousness</B><BR itxtvisited="1">06. <B itxtvisited="1">A Blacker Art</B><BR itxtvisited="1"></P>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 28.07.2011 reviews Это не про гномов и эльфов
+
+<P>Ирландцы PRIMORDIAL являются несомненным событием на мировой тяжёлой сцене. Сложная смесь из pagan, black, folk и даже doom-metal редко встречается, а от того, наиболее ценна во всём многообразии современной тяжёлой музыки. Новейший альбом коллектива "Redemption at the Puritan's Hand" можно смело именовать гимном бунта и агрессии, при этом сама музыка сможет привлечь даже поклонников более мелодичной музыки.</P>
+<P>Всю пластинку вокалист PRIMORDIAL A.A. Nemtheanga исполняет чистым голосом, но это голос человека, который уже давно устал от окружающей действительности. Надрыв, призыв к действию и одновременно безнадёжность, протест, всё это слышится в песнях современного PRIMORDIAL. Группа обходится минимальным рок-набором инструментов, но её звучание очень сложно и комплексно. Прослушать PRIMORDIAL нужно обязательно несколько раз, и за первой неказистостью слушатель сможет нащупать что-то совершенно оригинальное и великолепное. Особо отмечу для нашего слушателя трек номер шесть “The Black Hundred”, где в середине в музыку вплетена православная проповедь в исполнении батюшки, этот ход производит совершенно непередаваемое впечатление.</P>
+<P>Великолепная пластинка. Наверное, не для всех. Думается, "Redemption at the Puritan's Hand" нужно адресовать не любителям какого-то конкретного стиля, а людям, которым не очень нравится происходящее в реальной действительности. Музыкантам ирландской группы тоже многое не нравится, они поют про нас, а не про гномов и эльфов.</P>
+Автор: Vit Belov
+
+### 03.08.2011 news Фестиваль &quot;Hammer Open Air&#39; 2011&quot;: фото-отчёт
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20414.jpg" width=300 height=119> 
+<P></P>
+<P>15 и 16 июля в Финляндии прошёл фестиваль "<STRONG>Hammer Open Air</STRONG>". Среди участников фестиваля в основном преобладали андеграундные финские и шведские коллективы, исключением, пожалуй лишь, стали&nbsp;<STRONG>ABSU</STRONG>, <STRONG>PRIMORDIAL</STRONG> и <STRONG>AUTOPSY</STRONG>. Последние, к сожалению, не попали в объектив нашего фотографа.</P>
+<P>Фотографии с выступлений можно посмотреть на нашем сайте, пройдя по ссылкам указанным&nbsp;ниже.</P>
+<P>День 1: <A href="/ru/galleries/1/740/">http://musica.mustdie.ru/ru/galleries/1/740/</A></P>
+<P>День 2: <A href="/ru/galleries/1/742/">http://musica.mustdie.ru/ru/galleries/1/742/</A></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### PRIMORDIAL (Ирландия) впервые в Москве (21 февраля 2015)

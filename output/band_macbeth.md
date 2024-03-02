@@ -88,6 +88,54 @@ Released August 20th 2001 on Dragonheart records, in America on Scarecrow.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Итальянское вторжение на metal-сцену продолжается. Следующий участник вторжения - группа Macbeth, в составе которой целых семь музыкантов. Ну что же, сразу надо отметить, что вот наконец-то и нашлась группа которая должна, да нет просто обязана, занять место Theatre Of Tragedy, после того, как последние отошли от тяжёлых дел и больше не играют метал ( это не мои слова, а слова вокалиста Theatre Of Tragedy). Мне очень понравился этот альбом. Он напомнил мне такие шедевры, как "Always..."The Gathering и "Velvet Darkness They Fear"Theatre Of Tragedy. Всё тот же жёсткий. привлекательный, мелодичный doom-death с дивным сочетанием гроулинга с томным женским вокалом. Но это вовсе не значит, что музыка Macbeth напрочь лишена оригинальности. В общем, звезда взошла и пожелаем ей подольше держаться на небосклоне.</p>
+
+Автор: Dimas
+
+### 29.04.2002 reviews Театральный gothic metal  в десяти актах
+
+<p>Целых четыре года пришлось дожидаться второго альбома итальянской команды. После первого альбома группы подумалось, что наконец-то нашлась группа которая должна, да нет просто обязана, занять место THEATRE OF TRAGEDY после того, как последние отошли от тяжёлых дел и больше не играют metal. Они играли жёсткий, привлекательный, мелодичный doom-death с дивным сочетанием гроулинга и томного женского вокала. Однако, видимо, много воды утекло за эти четыре года. Теперь группа предстает перед нами в несколько ином обличии. Ее стиль можно охарактеризовать как мрачный sympho-gothic metal сочетающий элементы doom-death, heavy metal и даже оперы. Надо отметить, что у группы довольно неплохо получается совмещать такую кучу стилей и музыкальное разнообразие. Меланхолия и общая глубокая атмосфера альбома удачно сочетается с энергией и активными настроениями. Отличный и разнообразный женско-мужской вокальный дуэт , синтезаторный симфонизм, применение италоязычной лирики. Этот альбом не заставит скучать своего слушателя. Музыкальный материал ни на кого не похож, хотя и содержит отдельные места попахивающие SADNESS, NIGHTWISH, LACUNA COIL, AFTER FOREVER и даже CRADLE OF FILTH. Очень хороший gothic metal альбом имеющий много интересных фрагментов и хороший звук. Думаю, альбом должен произвести на большинство слушателей хорошее впечатление.</p>
+
+Автор: Dimas
+
+### 25.05.2002 reviews Theater Gothic-Metal in tem acts
+
+<p>The whole four years it was necessary to wait of the second album of the Italian band. After the first album of group was thought, that group must occupy a place of THEATRE OF TRAGEDY after TOT out from heavy businesses and any more do not play metal. MACBETH played rigid, attractive, melodious doom-death with beauty combination of growling and languid female vocal. However, probably, a lot of water has flowed away for these four years. Now group appears in a little bit other exterior. Its style can be characterized as gloomy sympho-gothic metal combining elements doom-death, heavy metal and even operas. It is necessary to note, that at group rather not bad combined such heap of styles and musical variety. Melancholy and the general deep atmosphere of an album is successfully combined with energy and active moods. An excellent and various female-male vocal duet, synths symphony, application of Italian lyrics. This album will not force to miss of the listener. The musical material is not similar to anybody, though contains separate places from SADNESS, NIGHTWISH, LACUNA COIL, AFTER FOREVER and even CRADLE OF FILTH. Very good gothic metal album is having there are a lot of interesting fragments and good sound. I think, the album should make on the majority of the listeners a good impression.</p>
+
+Автор: Vit Belov
+
+### 21.02.2004 news MACBETH готовят третий альбом
+
+<p>MACBETH летом этого года выпустят третий альбом "Malae Artes". Точная дата пока неизвестна. Помимо обычного CD будет лимитированная версия с кавером на одну из популярных песен.</p>
+Автор: Morsus
+
+### 29.12.2004 news Новый альбом MACBETH
+
+<P>Новый альбом <STRONG>MACBETH</STRONG> готов и выйдет в начале 2005 года. Коллектив&nbsp;описывает новые песни, как огромный шаг вперёд, по сравнению с предыдущими пластинками. Как уже сообщалось, диск будет называться <STRONG>'Malae Artes'</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.05.2007 news MACBETH закончили запись
+
+<P>Итальянская группа <STRONG>MACBETH</STRONG> закончила запись десяти песен для своего нового четвёртого альбома. Группа обещает обновление саунда.</P>
+Автор: Vit Belov
+
+### 04.01.2008 reviews Ни шагу вперёд!
+
+<P>Итальянская группа MACBETH, к сожалению, застопорилась в своём развитии. В конце 90-х коллектив реально претендовал на главные роли в европейском death-doom-metal. Их, пусть не очень оригинальный, но цепкий материал в жанре «красавица и чудовище» принёс им заслуженную популярность. Прошло уже почти 10 лет, MACBETH поступательно развились в популярный gothic-metal, но в качестве материала ребята явно не прибавили.</P>
+<P>На новом альбоме слушателя не ждёт никаких сюрпризов. С первой и до последней минуты под достаточно однообразный gothic-metal материал звучат голоса певицы Morena и певца Andreas. На них зациклена вся музыка этого альбома. Andreas достаточно не плохо справляется с томным gothic-metal вокалом. Любителям стиля его выступления могут и понравиться. В случае же с Morena этого сказать нельзя. Годы занятий вокалом в металлической группе девушке на пользу явно не пошли. Её пение не должно выходить за рамки background, удерживать на себе внимание слушателя Morena не удаётся. Так случается довольно часто. Получив признание уже после первого альбома, молодая группа перестаёт прогрессировать, считая, что цели достигнуты и конкуренты посрамлены. MACBETH постигла такая же судьба. Имея за плечами уже четыре альбома, коллектив привлекает к себе внимание лишь былыми заслугами. Видимо, по этой же причине MACBETH до сих пор не поднялись выше заштатного итальянского лэйбла Dragonheart. С таким материалом группе подняться уже не суждено.</P>
+<P>Среднего качества, стандартный gothic-metal с женским и мужским вокалами и отсутствием хитов. Исключительно поклонникам стиля и самой группы.</P>
+Автор: Vit Belov
+
+### 10.01.2014 news MACBETH возвращаются
+
+<p>Итальянские gothic-metal'исты <strong>MACBETH </strong>выпускают новый альбом <strong>"Neo-gothic Propaganda"</strong> 24 февраля на лэйбле <strong>Dragonheart</strong>. По заверению группы, музыка на новой работе комбинирует классический gothic-metal со скандинавским death-metal. При этом новый материал очень мелодичен. Трек-лист:</p><p>1.<strong> Scent Of Winter</strong><br>2. <strong>Slow Motion Tragedies</strong><br>3. <strong>Void Of Light</strong><br>4. <strong>Last Night In Shanghai</strong><br>5. <strong>I Don’t Care Of Being Just Like You</strong><br>6.<strong> Empire’s Fall</strong><br>7.<strong> Dogma</strong><br>8.<strong> Opaque</strong><br>9. <strong>Little Spark</strong><br>10.<strong> The Archetype</strong></p><p><center><img width="410" height="410" src="/images/news_rus/2014.01/26486.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Сколько альбомов вышло у Macbeth?

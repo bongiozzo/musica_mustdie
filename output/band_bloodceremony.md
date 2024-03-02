@@ -55,6 +55,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.05.2013 news BLOOD CEREMONY выпускает свой третий полноформатник
+
+<P>28 мая оккультный канадский ансамбль <STRONG>BLOOD CEREMONY</STRONG> выпускает свой третий полноформатник. </P>
+<P><STRONG>"The Eldritch Dark"</STRONG>, такое название получил диск, был записан в конце 2012/начале 2013 на студии <STRONG>"ProGold"</STRONG> города Торонто.</P>
+<P>Записанный и сведённый&nbsp;продюсером Яном Блартоном&nbsp;(<STRONG>Ian Blurton</STRONG>), диск будет содержать восемь песен рок-н-ролла, наполненного чёрной магией.</P>
+<P>Песню <STRONG>"Goodbye Gemini"</STRONG> с этого альбома, можно послушать в проигрывателе ниже.</P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F89048617&show_artwork=true&secret_token=s-hsX0y" frameBorder=no width="100%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### BLOOD CEREMONY (Канада) в Москве, 20 мая 2014.

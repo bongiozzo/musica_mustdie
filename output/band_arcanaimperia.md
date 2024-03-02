@@ -41,6 +41,41 @@ Mixed and mastered by Igor Korolyov at Kiv-Records
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.07.2008 news ARCANA IMPERIA на Soundage
+
+<P>7 июля на Sound Age Productions вышел дебютный альбом московской melodic death-black metal группы <STRONG>ARCANA IMPERIA</STRONG> "<STRONG>Hymns of Infinite Decay</STRONG>".</P>
+<P>Пресс-релиз: <EM>"“Hymns of infinite decay” – Это новое «слово» в мире тяжелой индустрии, музыку коллектива нельзя охарактеризовать каким то одним стилем. Здесь вы услышите отголоски мрачного black metal и переливающегося прогрессивными&nbsp; мелодиями death metal, но при этом чувствуется свой ни чем не похожий на остальные группы стиль! Также на альбоме вы услышите большое разнообразие вокальных партий: от леденящих душу воплей с мощным и разрывающим на куски гроулингом до&nbsp; оперного женского вокала и красивого чистого мужского! А тематика песен будет интересна тем, кому не безразличны глобальные проблемы человечества, представленные красивой аллегоричной поэзией</EM>".</P>
+<P>Трэк-лист:</P>
+<P>1. <STRONG>Ingressus ad Hortus Malum</STRONG>&nbsp;&nbsp; <BR>2. <STRONG>Agony</STRONG> <BR>3. <STRONG>In the Realms of Desolation</STRONG> <BR>4. <STRONG>Atlas <BR></STRONG>5. <STRONG>Nil Sine Numine</STRONG> <BR>6.<STRONG> Deities of Nothingness</STRONG> <BR>7. <STRONG>Quiet Spite</STRONG><BR>8. <STRONG>Why God is Blind?</STRONG> <BR>9. <STRONG>Grandeur <BR></STRONG>10. <STRONG>The Celestial Traveller</STRONG> <BR>11. <STRONG>Cladere Portae</STRONG> </P>
+<P>Этап микширования и мастеринга прошёл на студии <STRONG>KIV Records</STRONG> под руководством <STRONG>Игоря Королева</STRONG>, сотрудничавшего ранее с группами –<STRONG>&nbsp;KARTIKEYA</STRONG> и&nbsp;<STRONG>STIGMATIC CHORUS</STRONG>. В записи альбома приняли участие вокалисты <STRONG>ARCANE GRAIL</STRONG>&nbsp;и <STRONG>STIGMATIC CHORUS</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.11.2009 news ARCANA IMPERIA выпустили промо
+
+<P>В преддверии выпуска второго альбома <STRONG>ARCANA IMPERIA</STRONG> выпустили промо 2009. Трэк-лист:</P>
+<P>I -<STRONG>The Last Seconds of Dullards’ Votaries</STRONG><BR>II -<STRONG>The Diary of Fate</STRONG> (Feat Pavel Okunev - Арда)<BR>III -<STRONG>Virus</STRONG> (Feat Federico - Riul Doamnei from Italy, Verona)<BR>IV -<STRONG>Through times</STRONG> (Feat Susanna Vesilahti - Unshine from Finland, Helsinki)</P>
+<P>Треки доступны для прослушивания на странице группы на сайте <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/arcanaimperia">http://www.myspace.com/arcanaimperia</A></P>
+Автор: Vit Belov
+
+### 03.09.2011 news ARCANA IMPERIA выпустили сингл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=327 alt="" hspace=0 src="/images/news_rus/2011.09/20885.jpg" width=327 align=right border=0>В августе московская melodic black-metal команда <STRONG>ARCANA IMPERIA</STRONG> выпустила новый сингл "<STRONG>Явь</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Скачать работу можно по следующим адресам:</FONT></P>
+<P><A href="http://nekaka.com/files/get/FGj9rWHNIU/arcana-imperia-.wav">http://nekaka.com/files/get/FGj9rWHNIU/arcana-imperia-.wav</A> <BR><A href="http://rutracker.org/forum/viewtopic.php?t=3686989">http://rutracker.org/forum/viewtopic.php?t=3686989</A> </P>
+Автор: Vit Belov
+
+### 07.05.2012 news ARCANA IMPERIA на Grailight
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2012.05/23792.jpg" width=450 align=right border=0>Что есть сумасшествие? Откуда оно возникает? Иногда, казалось бы, совершенно здоровый на первый взгляд человек оказывается психически больным. Московская extreme metal группа <STRONG>ARCANA IMPERIA</STRONG> и лейбл<STRONG> GRAILIGHT PRODUCTIONS</STRONG> с радостью представляют Вам 3-го мая 2012 года ответ на эти вопросы в виде третьего по счету полноформатного альбома группы под названием «Новые Миры». Каждый трек на альбоме это новый мир, мир в котором не властны общепринятые законы.&nbsp; Это первая большая и серьезная работа коллектива полностью на русском языке! Лирика о психических расстройствах, однако, повествует она о сопоставлении болезней с сознанием обычного (не психически больного) человека. Например, трек «Мегаломания» - кто из нас хоть раз не считал себя лучше остальных? А большинство людей постоянно так считают! Мы сталкиваемся в обществе с этим везде. Или композиция «10 Жизней» про множественность личностей в одном, когда каждая личность это маска, и ведь так живёт сейчас большинство людей, вместо того, чтобы быть и стремиться быть свободными! В музыке же Arcana Imperia можно услышать любое направление современной экстремальной метал-музыки! Это объясняется тем, что группа никогда не ставила себе рамки играть в одном стиле, и не старалась быть похожим на кого-либо. Безусловно, каждый, кто послушает, даст свое определение музыке Arcana Imperia, но оно будет отличаться от мнения другого такого же слушателя! Это и делает альбома «<STRONG>Новые Миры</STRONG>» интересным и достаточно самобытным. Великолепный безумный артворк выполнен <STRONG>Александром Тарцусом</STRONG>. </P>
+<P>Трек-лист: </P>
+<P>1. <STRONG>Второе Рождение</STRONG> <BR>2. <STRONG>Мегаломания </STRONG><BR>3. <STRONG>10 Жизней <BR></STRONG>4. <STRONG>666</STRONG> <BR>5. <STRONG>Дом Тараканов <BR></STRONG>6. <STRONG>Межсознанье </STRONG><BR>7. <STRONG>Все Лгут! <BR></STRONG>8. <STRONG>Житель Мира</STRONG> <BR>9. <STRONG>Одержимый Музыкой</STRONG> <BR>10. <STRONG>Новые Миры</STRONG> <BR>11. <STRONG>Явь</STRONG> (Bonus Track) </P>
+<P><A href="http://www.facebook.com/ArcanaImperiaArmy">http://www.facebook.com/ArcanaImperiaArmy</A><BR><A href="http://vk.com/club1835290">http://vk.com/club1835290</A></P>
+<P><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F44531001&show_artwork=true"></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

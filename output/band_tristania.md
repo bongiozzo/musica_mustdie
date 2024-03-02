@@ -208,6 +208,378 @@ Mixed by Waldemar Sorychta and Dennis Koehne in the Flying Pigs Studio.
 * C группой "Mortemia" Morten Veland
 * C группой "Sirenia" Morten Veland
 
+## Публикации
+
+### 16.11.1999 reviews 
+
+<p>2 альбом норвежцев показал, что одно дело сделать одну очень хорошую копию THEATRE OF TRAGEDY и совсем другое работать в подобном стиле, да еще и при том, что THEATRE OF TRAGEDY от гроулинга отказались и шибко полегчали. Ничего принципиально нового нет. 10 треков на 52 минуты. Я бы даже сказал, что "Widows Weed's" был потяжелее. При таком подходе к творчеству (копирование, пусть и очень качественное) больше 8.5 не получишь. А так как мне больше нравится "Widows Weed's", то 8 из 10.</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news Tristania &amp; The Sins Of Thy Beloved tour
+
+<p>Tristania and The Sins Of Thy Beloved will tour torgether in June. Tour will go on through Germany, Switzerland, Holland, Austria and Belgium.</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news Тур Tristania и The Sins Of Thy Beloved
+
+<p>В июне Tristania находится в туре по Европе вместе с The Sins Of Thy Beloved.</p>
+
+Автор: Vit Belov
+
+### 21.09.2000 news Новости  от Napalm Records
+
+<p> Несколько новостей от Napalm Records. <br>16 октября состоится релиз нового альбома TRAIL OF TEARS. VINTERSORG закончили запись нового диска "Cosmic Genesis". Альбом поступит в продажу в октябре. DARKWELL закончили работу в студии. Protector из Dvke и Summoning выпускает альбом "This Killing Emptiness" в рамках своего нового проекта ICE AGES, в котором собирается поэкспериментировать с электронным, "механизированным" звучанием. Группа TRISTANIA готовится на два месяца отправиться в Soundsuite Studio для записи нового альбома. KREUZWEG OST - так называется новый проект Мартина Ширенка (Hollenthon, ex-Pungent Stench) и Силениуса (ex-Abigor, Summoning). Совсем недавно в продаже появилось официальное видео группы DISMAL EUPHONY. FALKENBACH отправляются в Blue House Studio, чтобы записать свой новый альбом. LACRIMAS PROFUNDERE тоже на днях отправились в студию (Lungfull Studio).</p>
+
+Автор: Nybras
+
+### 16.05.2001 news Новый альбом Tristania появится в продаже в сентябре.
+
+<p> Новый альбом Tristania готов и появится на свет в сентябре. Окончательное сведение альбома будет, по всей видимости, завершено в конце этой недели или в начале следующей. Альбом включает 10 композиций и кажется несколько более индустриальным, чем предыдущие творения, но вместе с тем все ставшие традиционными для групы готические веяния сохранены. Подтвердились слухи, что из группы ушел Мортен Виланд. Он действительно покинул команду несколько месяцев назад и не участвовал в записи нового альбома. По сей день ещё не ясно, кто займет место основного вокалиста.</p>
+
+Автор: Morsus
+
+### 16.05.2001 news New album of Tristania will hit stores in September.
+
+<p> The new album is finished and will be out in September. The finished master of the new album will probably be ready late this week or early next week. The album has 10 tracks and appears a more industrial than the previous releases, without giving up any of the gothic feel traditional displayed by the band. You may have heard the rumour, and it's true. Morten Veland is no longer a part of Tristania. He split with the band some months ago and has not participated on the new album. It has not been decided who will take over as lead vocalist at this point.</p>
+
+Автор: Morsus
+
+### 12.07.2001 news Tristania записали новый альбом.
+
+<p> Tristania закончили работу над альбомом "World of Glass". Его выпуск намечен на 27 августа, после чего в сентябре состоится мощный европейский тур с разными командами, включая Vintersorg.</p>
+
+Автор: Morsus
+
+### 12.07.2001 news Tristania have completed the new album.
+
+<p> Tristania have completed their forthcoming release "World of Glass", scheduled to be released on 27 August. An extensive European tour is planned for September, including Vintersorg among others.</p>
+
+Автор: Morsus
+
+### 11.10.2001 reviews Новая монументальная работа норвежских готик-думстеров
+
+<p>Новая монументальная работа норвежских готик-думстеров. Альбом включает в себя девять композиций и кажется несколько более индустриальным, чем предыдущие творения, но вместе с тем, все ставшие традиционными для группы готические веяния сохранены, несмотря на то, что из группы ушел Мортен Виланд - гитарист и лидер команды. Нельзя сказать, что этот альбом диаметрально отличается от предыдущих работ. Сохранились все старые фишки и добавились новые экспериментальные с индустриально-компьютерным оттенком. Но не волнуйтесь, Tristania не пошла по стопам Theatre Of Tragedy. Сохранились тяжелые гитары с клавишными отступлениями, печально-меланхоличные скрипки, и чередование двух чистых мужских вокалов с гроулингом и нежного женского вокала с шестивокальным женским хорусом. Особенно радует гроулинг записанный вокалистом Trail Of Tears и околдовывающий чарующий голос Вибеке Стене. По-прежнему музыка группы экстремальная, мрачная (за счет атмосферы, скрипок и хоров), мелодичная и душевная, имеющая потрясающий вербальный эффект - мгновенное ее восприятие и восхищение ею, музыка берет за душу. Грегорианские хоры, акустические гитары, искаженные вокалы, творческий потенциал Tristania почти безграничен. Поменьше бы электроники (особенно в последнем трэке) и смело можно было бы ставить наивысший балл. Всем рекомендую этот шедевральный альбом.</p>
+
+Автор: Dimas
+
+### 06.12.2001 news Возвращение Мортена Веланда
+
+<p>Бывший вокалист/гитарист Tristania Мортен Веланд возвращается к творческой деятельности со своей новой группой Sirenia. Дебютный альбом, как ожидается, выйдет на Napalm Records весной будущего года. Мортен обещает создать более совершенное в музыкальном плане продолжение того, что имело место на его последней совместной работе с Tristania "Beyond the Veil".</p>
+
+Автор: Morsus
+
+### 06.12.2001 news Return of Morten Veland
+
+<p>Former Tristania member Morten Veland (guitars, vocals) returns to Napalm Records with his new band Sirenia. The album is scheduled to be released in the spring of 2002 and Morten has promised the perfect follow-up to his final work with Tristania, "Beyond the Veil".</p>
+
+Автор: Morsus
+
+### 08.01.2002 articles Чарты интересов посетителей MUSICA.mustdie.ru
+
+<p>Чарты интересов посетителей MUSICA.mustdie.ru в процентах.</p>
+<p><a href="/ru/band/nightwish/">NIGHTWISH</a> - 9,73</p>
+<p><a href="/ru/band/slipknot/">SLIPKNOT</a> - 7,45</p>
+<p><a href="/ru/band/tristania/">TRISTANIA</a> - 7,16</p>
+<p><a href="/ru/band/therion/">THERION</a> - 6,52</p>
+<p><a href="/ru/band/rammstein/">RAMMSTEIN</a> - 4,92</p>
+<p><a href="/ru/band/rhapsody/">RHAPSODY</a> - 4,64</p>
+<p><a href="/ru/band/apocalyptica/">APOCALYPTICA</a> - 3,56</p>
+<p><a href="/ru/band/osbourne_ozzy/">OZZY OSBOURNE</a> - 3,38</p>
+<p><a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - 2,99</p>
+<p><a href="/ru/band/tiamat/">TIAMAT</a> - 2,87</p>
+<p><a href="/ru/band/slayer/">SLAYER</a> - 2,42</p>
+<p><a href="/ru/band/sepultura/">SEPULTURA</a> - 2,42</p>
+<p><a href="/ru/band/mayhem/">MAYHEM</a> - 2,33</p>
+<p><a href="/ru/band/clawfinger/">CLAWFINGER</a> - 2,22</p>
+<p><a href="/ru/band/soulfly/">SOULFLY</a> - 2,06</p>
+<p>SYSTEM OF A DOWN - 2,03</p>
+<p>THEATRE OF TRAGEDY - 1,92</p>
+<p>RAGE AGAINST THE MACHINE - 1,82</p>
+<p>CRADLE OF FILTH - 1,76</p>
+<p>MEGADETH - 1,74</p>
+<p>UDO - 1,53</p>
+<p>ANATHEMA - 1,5</p>
+<p>KOVENANT - 1,42</p>
+<p>HELLOWEEN - 1,17</p>
+<p>EINSIFERUM - 1,14</p>
+<p>VENOM - 1,11</p>
+<p>LACRIMOSA - 1,04</p>
+<p>BRAINSTORM - 1,04</p>
+<p>АРИЯ - 1,01</p>
+<p>OFFSPRING - 1,0</p>
+
+Автор: Vit Belov
+
+### 08.01.2002 articles Charts of interests of the visitors MUSICA.mustdie.ru
+
+<p>Charts of interests of the visitors MUSICA.mustdie.ru in percentage</p>
+<p>NIGHTWISH 9,73</p>
+<p>SLIPKNOT 7,45</p>
+<p>TRISTANIA 7,16</p>
+<p>THERION 6,52</p>
+<p>RAMMSTEIN 4,92</p>
+<p>RHAPSODY 4,64</p>
+<p>APOCALYPTICA 3,56</p>
+<p>OZZY OSBORNE 3,38</p>
+<p>CANNIBAL CORPSE 2,99</p>
+<p>TIAMAT 2,87</p>
+<p>SLAYER 2,42</p>
+<p>SEPULTURA 2,42</p>
+<p>MAYHEM 2,33</p>
+<p>CLAWFINGER 2,22</p>
+<p>SOULFLY 2,06</p>
+<p>SYSTEM OF DOWN 2,03</p>
+<p>THEATRE OF TRAGEDY 1,92</p>
+<p>RAGE AGAINST THE MACHINE 1,82</p>
+<p>CRADLE OF FILTH 1,76</p>
+<p>MEGADETH 1,74</p>
+<p>UDO 1,53</p>
+<p>ANATHEMA 1,5</p>
+<p>KOVENANT 1,42</p>
+<p>HELLOWEEN 1,17</p>
+<p>EINSIFERUM 1,14</p>
+<p>VENOM 1,11</p>
+<p>LACRIMOSA 1,04</p>
+<p>BRAINSTORM 1,04</p>
+<p>АРИЯ 1,01</p>
+<p>OFFSPRING 1</p>
+
+Автор: Vit Belov
+
+### 01.04.2002 news Дебют группы Мортена Веланда
+
+<p><img src="/images/news/2002.04/2574.jpg" alt="cover" width="132" height="122" vspace="5" align="left" />Мортен Веланд, прежде известный по группе Tristania, выпускает дебютный альбом своего нового проекта Sirenia. "At Sixes And Sevens", так называется альбом, поставлен в план выпуска Napalm Records на 29 апреля. Мортен представляет логическое продолжение и развитие идей "Beyond the Veil", последней совместной работы с Tristania.</p>
+
+Автор: Morsus
+
+### 01.04.2002 news Debut album of Morten Veland&#39;s project
+
+<p><img src="/images/news/2002.04/2574.jpg" alt="cover" width="132" height="122" vspace="5" align="left" />Morten Veland, formerly known for his work with Tristania, returns with debut album of his band Sirenia. "At Sixes And Sevens" is scheduled to be released on 29 April through Napalm Records, and Morten has delivered the perfect follow-up to his final work with Tristania.</p>
+
+Автор: Morsus
+
+### 02.02.2004 news Tristania собираются в студию
+
+<P>Tristania забронировали студию Toproom на апрель-май 2004 года для записи нового альбома. Продюсером будет B&#248;rge Finstad. На прилавках альбом должен появиться до конца текущего года.</P>
+Автор: Morsus
+
+### 02.02.2004 news Tristania will enter the studio
+
+<P>Tristania has booked Toproom Studio with B&#248;rge Finstad as producer for the recording of the upcoming album. The recording will occur in April and May 2004. The album will be released before the end of the year.</P>
+Автор: Morsus
+
+### 07.07.2004 news TRISTANIA На SPV!!!
+
+<B>TRISTANIA</B> подписали контракт с <B>SPV</B>. Новый альбом, который уже записан, выйдет 18 октября.
+Автор: Vit Belov
+
+### 28.08.2004 news TRISTANIA назвали новый альбом
+
+<P><STRONG>TRISTANIA</STRONG> назвали свой новый альбом '<STRONG>Ashes</STRONG>' и назначили дату его выхода на январь 2005 года на <STRONG>SPV</STRONG>.&nbsp;Пластинка была записана в <STRONG>Toproom studios</STRONG>&nbsp;в Осло вместе с продюсером <STRONG>Borge Finstad</STRONG>. Некоторые названия песен: <STRONG>"The Gate"</STRONG>, <B>"Cure"</B>, <B>"Libre"</B>, <B>"The Wretched"</B>, <B>"Equilibrium"</B>&nbsp;и <B>"Shadowman"</B>.</P>
+Автор: Vit Belov
+
+### 02.12.2004 news TRISTANIA выходит в январе
+
+<P>Новый альбом <STRONG>TRISTANIA 'Ashes'</STRONG> выходит 25 января на <STRONG>SPV</STRONG>. Трэк-лист:</P>
+<P><IMG height=187 alt="" hspace=0 src="/images/news_rus/2004.12/7460.jpg" width=184 align=right border=5>1. <STRONG>Libre<BR></STRONG>2. <STRONG>Equilibrium<BR></STRONG>3. <STRONG>The Wretched</STRONG><BR>4. <STRONG>Cure<BR></STRONG>5. <STRONG>Circus<BR></STRONG>6. <STRONG>Shadowman<BR></STRONG>7. <STRONG>The Gate</STRONG> (Special Edition Bonus Track)<BR>8. <STRONG>Endogenisis<BR></STRONG>9. <STRONG>Bird</STRONG></P>
+Автор: Vit Belov
+
+### 20.01.2005 reviews Норвежское многоголосье
+
+<P>Tristania. Tristitia. Sirenia. Catamenia. Katatonia. Вы еще не запутались, кто тут есть кто? Нет? Ну и чудненько. Норвежский септет Tristania выпускает свой 4-ый полноформатный альбом&nbsp;спутся более&nbsp;чем три года&nbsp;после их предыдущего релиза "World Of Glass". "Ashes" являет собой симбиоз различных стилевых направлений: black, symphonic metal, gothic metal, doom... В группе 3 вокала (один женский и два мужских), что, в принципе, дает определенный композиционный простор, тем более, что норвежцы не увлекаются здесь формулой "красавица и чудовище". Вещи на альбоме достаточно разнообразны: короткую, но довольно жесткую блэк-атаку на открывашке 'Libre' сменяет мягкая и меланхоличная 'Equilibrium' с акустическими гитарами; за ней идет слишком, на мой взгляд, напыщенная и чрезмерно усложненная (впрочем, без особого успеха - слушается это как неудобоваримое музыкальное нагромождение) 'The Wretched'. Затем звучит снова спокойная и немного грустная 'Cure', довольно неплохо "оформленная" чистым - пусть и не очень мощным - и довольно красивым голосом Вибеке Стене. 'Circus', пожалуй, самая тяжелая и "темная" вещь на диске, так мог чисто теоретически звучать Nick Cave, вздумай он исполнять метал (хотя у последнего фантазии и идей в тысячи раз больше), а местами в этой композиции есть что-то от симфо-блэка. 'Circus' получился весьма разноплановой вещью, но как-то несколько неожиданно она завершается. 'Shadowman' наполнен в начале типичными для готик-дума минорными гудящими гитарами, которые затем сменяются переборами в обрамлении женского вокала и опять возвращаются под партии вокала мужского. Завершающая альбом 'Endogenesis' построена на контрастах акустических гитарных переборов (напоминая кое-где акустических же Opeth) и жестких агрессивных пассажей. Я не очень хорошо помню предыдущие опусы Tristania, но "Ashes", пожалуй, их единственный альбом, который мне более-менее понравился. Главный минус данного релиза я вижу в том, что порой, в наиболее сложных композициях, музыкантов изрядно "заносит", и они слишком уж переусложняют песенную структуру. Шибко оригинальным или новаторским альбом тоже не является, хотя имеет свой определенный шарм. В любом случае мы можем с уверенностью сказать, что "Ashes" довольно интересная и крепкая работа. Кроме обычного формата, альбом выйдет как Jewel Case CD (бонус-трэк 'Bird') и как лимитированный дигипак с тиснением (кроме 'Bird', будет добавлен еще и трэк&nbsp;'The Gate').</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 09.02.2005 news Einar покинул TRISTANIA,... но только во время тура
+
+<P><STRONG>TRISTANIA</STRONG> объявили, что из-за напряжённого графика промо-компаний их клавишник <STRONG>Einar</STRONG> не поедет с группой в тур, а останется дома, где будет сочинять материал для нового альбома.</P>
+Автор: Vit Belov
+
+### 12.12.2005 news TRISTANIA планируют новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TRISTANIA</STRONG> планируют засесть в студию уже в марте будущего года. Продюсером станет <STRONG>Waldemar Sorychta</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM><STRONG>Sorychta</STRONG> - гениальный продюсер и работал над любимейшими нашими пластинками: <STRONG>SAMAEL "Ceremony Of Opposites</STRONG>", <STRONG>TIAMAT "Wildhoney</STRONG>" и <STRONG>MOONSPEL "Wolfheart</STRONG></EM>"", - пишет группа на своём официальном сайте.</FONT></P>
+Автор: Vit Belov
+
+### 24.03.2006 news TRISTANIA в студии
+
+<P><STRONG>TRISTANIA</STRONG> вошли в студию вместе с продюсером <STRONG>Waldemar Sorychta</STRONG> для записи нового альбома, который выйдет в августе на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.04.2006 news Потери TRISTANIA
+
+<P>Норвежскую симфо-готик-метал формацию&nbsp;<B>TRISTANIA</B> полюбовно покинул вокалист <B>Kjetil Ingebrethsen</B>. Остальные участники коллектива пожелали ему удачи и готовы войти в немецкую <B>Woodhouse Studios</B>, где вместе с продюсером <B>Waldemar Sorychta</B> (<B>LACUNA COIL</B>, <B>MOONSPELL</B>, <B>SAMAEL</B>) запишут свой новый альбом, выход которого планируется в августе на <B>SPV Records</B>. </P>
+Автор: Dimas
+
+### 14.07.2006 news Неприятности у TRISTANIA
+
+<P>Релиз нового альбома <STRONG>TRISTANIA "Illumination"</STRONG> перенесён на непоределённый срок, из-за технических проблем лейбла<STRONG> SPV</STRONG>. Также группа была вынуждена отменить сентябрьский тур, из-за занятости вокалистки <STRONG>Vibeke</STRONG>, которая выучилась на учительницу, а в сентябре начинается учебный год.</P>
+Автор: Vit Belov
+
+### 21.02.2007 reviews Выезжаем на старом багаже?
+
+<P>TRISTANIA – очень примечательная группа. Выстрелив с альбомом “Beyond The Veil” в 1999 году, норвежцы ушли в тень и до сих пор там пребывают. Публике же этого достаточно. Этот коллектив находится в «шорт-листах» большинства любителей тяжёлой готики. Пускай, уже 8 лет коллектив не сочиняет ничего путного. Пускай, их музыка изменилась до неузнаваемости. Пускай, всё, за что любили TRISTANIA осталось у SIRENIA (кстати, и они, наверное, растеряли эту магию). “Illumination” ждёт та же судьба, что и предшественник. Его раскупят на корню.<BR>&nbsp;<BR>У TRISTANIA уже нет того рецепта 1999 года выпуска. Музыка группы представляет собой обычный gothic-metal с женским вокалом, непритязательными мелодиями и полным отсутствием хитов. На новом альбоме группа забавляется игрой с вокалами. Особенно усердствует в этом вокалистка Vibeke, ставшая лидером группы после ухода прежнего лидера Morten’a. То поёт как юродивая, то выдаёт некое подобие «джазового» вокала, то её пение аранжируется под некий негритянский хор. Это всё прекрасно, но эти попытки выглядят несколько странно, а порой даже смешно. Мужской же вокал, вообще, безлик. </P>
+<P>TRISTANIA пользуются багажом доверия, который скопился у их фэнов. К сожалению, современная goth-metal сцена не столь богата на новые имена, поэтому мы уже рады просто качественному альбому, каковым и является новая работа норвежцев. Ждать, я думаю, от TRISTANIA чего-то уже не стоит. Нам остаётся только наблюдать, как долго группа будет выезжать на старой славе.</P>
+Автор: Vit Belov
+
+### 28.02.2007 news Вибеке Стене покинула TRISTANIA
+
+<P><B>Вибеке Стене</B>, основная вокалиста норвежской готик-металической формации <B>TRISTANIA,</B> покинула группу по личным причинам. Остальные участники коллектива выражают сожаление по этому поводу, но утверждают, что уважают решение <STRONG>Вибеке</STRONG>, и желают ей всяческих успехов. <B>TRISTANIA</B> сейчас ищут новую вокалистку. Напомним, что последний альбом группы "<STRONG>Illumination</STRONG>", появился на прилавках магазинов примерно месяц назад.</P>
+Автор: Ixtiandr
+
+### 28.02.2007 reviews Шаг назад. Уход вокалистки. Что дальше?
+
+<P>После довольно сложноватого по структуре, но, тем не менее, вполне приличного альбома "Ashes" норвежцы Tristania решили, видимо, что хватит экспериментов и вступили на более привычный путь. 10 композиций выдержаны в духе довольно стандартного готик-метала с женским вокалом. Неудивительно, что никакого скриминга или гроула тут практически&nbsp;нет, ибо группу в ходе работы над "Illumination" покинул вокалист со сложнопроизносимым именем Kjetil Ingebrethsen, который и&nbsp;"отвечал" за подобное, так что всё тут строится вокруг голоса Вибеке Стене. Ну&nbsp;и какие-то попытки порыкивания делает гостевой вокалист Vorph&nbsp;из Samael. В общем, по большому счету, ничего интересного из этой работы не вышло. Можно отметить разве что довольно красивую распевную 'Destination Departure', а вот хитов на альбоме явно не хватает. Трудно сейчас утверждать, что, может быть, если бы Tristania&nbsp;пошла и дальше по курсу усложнения - естественно, в разумных пределах - своей музыки, то бы и вышло что-то такое прогрессивно-интересное, но это рассуждения ни о чем. Однако все же думается, что с "Illumination" группа сделала шаг назад. Не знаю уж, по этой ли причине, или по какой другой, но вскоре после выхода новой пластинки в свет Вибеке, к сожалению, тоже покинула группу, и теперь уже совершенно непонятно, на что остается надеяться оставшимся участникам Tristania. Единственный шанс это найти новую вокалистку, которая смогла бы заменить Вибеке, то есть перед коллективом стоит примерно такая же задача, как и перед Nightwish после уходы Тарьи (с учетом, конечно же, и популярности и вокальных данных обеих вокалисток). Как бы то ни было, новая работа норвежцев получилась во всех смыслах средненькой, ну а сочетание слабоватого материала и уход вокалистки поставили дальнейшее существование (про какой-либо успех в будущем мы вообще пока помолчим) под большое сомнение.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 20.09.2007 news TRISTANIA закончили поиски
+
+<P>Вокалист <STRONG>TRISTANIA Oysten Bergoy</STRONG> сообщил, что поиски новой вокалистки на замену ушедшей <STRONG>Vibeke Stene</STRONG> закончены.&nbsp;Группа пока не раскрывает имя новой&nbsp;девушки группы. Видимо, хотят поинтриговать, как <STRONG>NIGHTWISH</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 22.10.2007 news TRISTANIA назвали новую вокалистку
+
+<P>Новой вокалисткой <STRONG>TRISTANIA</STRONG> стала итальянка с острова Сардиния <STRONG>Mariangela "Mary' Demurtas</STRONG>. 25-летняя девушка не известна&nbsp;широкому кругу металлических фэнов. Она уже переехала в Ставангер, Норвегия, где присоединилась к своим будущим партнёрам.</P>
+Автор: Vit Belov
+
+### 22.01.2008 news Wacken Road Show в СПб отменено
+
+<P><STRONG>Wacken Road Show</STRONG> в Санкт-Петербурге 2-го марта с участием <STRONG>TRISTANIA, ENSLAVED</STRONG> и <STRONG>OVERKILL</STRONG> отменено, из-за выборов Президента РФ. При этом концерт в Москве, намеченный на 1-ое марта состоится.</P>
+Автор: Vit Belov
+
+### 01.03.2008 news WACKEN ROAD SHOW 2008 в Москве
+
+<IMG height=300 alt="" hspace=0 src="/images/news_rus/2008.03/12293.jpg" width=400 align=left border=5>Musickness Russia представляет:<BR>1 марта 2008<BR>клуб ТОЧКА<BR>грандиозный весенний фестиваль<BR>WACKEN ROAD SHOW 2008<BR>состав участников:<BR>TRISTANIA (NOR)<BR>ENSLAVED (NOR)<BR>OVERKILL (USA)<BR>+ специальные гости<BR><BR>справки и заказ билетов: <A href="mailto:musickness@mail.ru"><U><FONT color=#0000ff>musickness@mail.ru</FONT></U></A>
+Автор: Vit Belov
+
+### 14.05.2008 news TRISTANIA потеряли гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежцы <STRONG>TRISTANIA</STRONG> потеряли гитариста <STRONG>Svein Terje</STRONG> <STRONG>Solvang. </STRONG>Группа утверждает, что уход музыканта стал для них большим сюрпризом. Ближайшие концерты<STRONG> TRISTANIA</STRONG> отыграют с одним гитаристом.</FONT></P>
+Автор: Vit Belov
+
+### 21.02.2009 news Новый басист в TRISTANIA
+
+<P>В <STRONG>TRISTANIA</STRONG> сменился басист. Вместо ушедшего по личным мотивам<STRONG> Rune Osterhus</STRONG> теперь играет <STRONG>Ole Vistnes</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.02.2009 news Вокалистка TRISTANIA в клипе ARTIFACT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео новой группы бывшего гитариста<STRONG> TRISTANIA</STRONG>&nbsp;<STRONG>Bjornar Landa ARTIFACT </STRONG>на песню <STRONG>"New Messiah" </STRONG>можно посмотреть ниже. В клипе снялась нынешняя вокалистка <STRONG>TRISTANIA</STRONG> <STRONG>Mariangela Demurtas</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2ouKhM_mPis&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/2ouKhM_mPis&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 25.03.2009 news TRISTANIA придумали первые тексты
+
+<P>Вокалист <STRONG>TRISTANIA</STRONG> <STRONG>Osten Bergoy </STRONG>рассказал о том, что сочинил уже несколько новых текстов для будущего альбома группы. Вот некоторые названия: <STRONG>"Patriot Games"</STRONG>, <B>"Year of the Rat"</B>, <B>"The Emerald Piper"</B>&nbsp;и <B>"Sirens"</B>.</P>
+Автор: Vit Belov
+
+### 07.07.2009 news Morten Veland возвращается
+
+<P>Нынешний гитарист<STRONG> SIRENIA</STRONG> и бывший гитарист <STRONG>TRISTANIA Morten Veland</STRONG> подписал контракт с <STRONG>Napalm Records</STRONG> со своим новым проектом<STRONG> MORTEMIA</STRONG>. Музыкант обещает нам музыку в духе <STRONG>TRISTANIA "Beyond The Veil"</STRONG>. Тяжеляк с хорами и всё такое. </P>
+Автор: Vit Belov
+
+### 03.09.2009 news Гитаристка OCTAVIA SPERATI присоединилась к TRISTANIA
+
+<P>Гитаристка женской группы <STRONG>OCTAVIA SPERATI</STRONG> <STRONG>Gyri Losnegard </STRONG>присоединилась к <STRONG>TRISTANIA</STRONG>. Основная группа этой леди не действует уже около года, так как её вокалистка стала новой певицей в <STRONG>THE GATHERING</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.12.2009 news TRISTANIA сочинили песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>TRISTANIA Ole Vistnes</STRONG> рассказал о процессе сочинения материала для нового альбома. По его словам, весь материал уже готов, но о сроках его записи говорить пока рано. Также неизвестно, когда альбом будет записан и выйдет в свет.</FONT></P>
+Автор: Vit Belov
+
+### 27.03.2010 news TRISTANIA вновь на Napalm Records
+
+<P>Норвежцы <STRONG>TRISTANIA</STRONG>, которые записывают новый альбом, вернулись на <STRONG>Napalm Records</STRONG>, на котором выпустили первые три альбома. </P>
+Автор: Vit Belov
+
+### 14.05.2010 news TRISTANIA назвали альбом
+
+<P>Новый альбом<STRONG> TRISTANIA</STRONG> получил название <STRONG>"Rubicon", </STRONG>пластинка выйдет в этом году на <STRONG>Napalm Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Year Of The Rat</B><BR>02. <B>Protection</B><BR>03. <B>Patriot Games</B><BR>04. <B>The Passing</B><BR>05. <B>Exile</B><BR>06. <B>Sirens</B><BR>07. <B>The Emerald Piper</B> (bonus track)<BR>08. <B>Vulture</B><BR>09. <B>Amnesia</B><BR>10. <B>Magical Fix</B><BR>11. <B>Illumination</B></P>
+Автор: Vit Belov
+
+### 11.06.2010 news Обложка новой TRISTANIA
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.06/16803.jpg" width=400 align=right border=5>Новый альбом<STRONG> TRISTANIA</STRONG> <STRONG>"Rubicon" </STRONG>выйдет 30 августа на <STRONG>Napalm Records</STRONG>. Группа вернулась на лэйбл, с которого началась её карьера. Трэк-лист:</P>
+<P>01. <B>Year Of The Rat</B><BR>02. <B>Protection</B><BR>03. <B>Patriot Games</B><BR>04. <B>The Passing</B><BR>05. <B>Exile</B><BR>06. <B>Sirens</B><BR>07. <B>The Emerald Piper</B> (bonus track)<BR>08. <B>Vulture</B><BR>09. <B>Amnesia</B><BR>10. <B>Magical Fix</B><BR>11. <B>Illumination</B></P>
+Автор: Vit Belov
+
+### 28.07.2010 news Три песни TRISTANIA на MySpace
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TRISTANIA</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке три новых песни: <STRONG>"Year Of The Rat"</STRONG>, <B>"Exile"</B>&nbsp;и <B>"Sirens"</B>. Новый альбом группы <STRONG>"Rubicon" </STRONG>выйдет на <STRONG>Napalm Records</STRONG> 30 августа.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/tristania">http://www.myspace.com/tristania</A></FONT></P>
+Автор: Vit Belov
+
+### 13.08.2010 news &quot;Год крысы&quot; от TRISTANIA
+
+<P>Видео-клип на новую песню<STRONG> TRISTANIA</STRONG> <STRONG>"Year Of The Rat" </STRONG>можно посмотреть ниже. Песня попадёт на альбом <STRONG>"Rubicon"</STRONG>, который выйдет 30 августа на<STRONG> Napalm Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-S_QhVHGKZQ&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/-S_QhVHGKZQ&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.11.2010 reviews ‘All-In’ от TRISTANIA 
+
+<P>Группы используют названия альбомов подобные «Новая эра», «Следующее поколение» или «Ренессанс» только в случае каких-то «рубежных» событий, происходящих в коллективе. Заголовок нового альбома норвежцев TRISTANIA из этой же серии. «Рубикон» станет ставкой ‘all-in’ в предстоящей творческой судьбе этой группы. Как и в случае любой подобной ставки, TRISTANIA требуется некоторая доля везения, чтобы удвоиться.</P>
+<P>Что же такого произошло в стане норвежцев за это время? В 2007 году почти сразу после выхода альбома “Illumination” группу покинула вокалистка Vibeke Stene, решившая стать просто школьной учительницей. Следует отметить, что Vibeke была не просто вокалисткой, но и одним из несомненных лидеров коллектива после ухода главного «сонграйтера» Morten Veland в 2000 году. Если человек, играющий подобную роль в популярной тяжёлометалической группе, уходит в педагоги, это говорит о статусе самой группы. Новая певица была найдена довольно быстро, симпатичная южанка Mariangela, но неприятности на этом не закончились. Примеру Vibeke последовали оригинальные басист Rune Osterhus и барабанщик Kenneth Olsson, а также гитарист Svein Terje Solvang. В итоге на сегодняшний день в составе TRISTANIA только два человека, для которых обозреваемый альбом не стал первым в основном составе коллектива: гитарист Anders Hidle и клавишник Einar Moen. Ко всему прочему, прежний лэйбл TRISTANIA SPV сильно пострадал от кризиса, и норвежцы не стали приоритетом конторы после её возрождения. К счастью, TRISTANIA довольно быстро приютил прежний лэйбл Napalm Records.</P>
+<P>В такой ситуации от норвежцев можно было ожидать всего что угодно. Они могли заиграть танцевальный gothic-metal с голыми женщинами, могли спеть death-metal с брутальным ‘female’ гроулингом. Но группа пошла по самому консервативному пути. Музыканты оглянулись назад, на прошлое TRISTANIA и попытались бережно передать атмосферу death-doom metal конца 90-х годов, когда они начинали. Не подумайте, что “Rubicon” запись в стиле «ретро», как новый проект их бывшего коллеги Morten Veland MORTEMIA. TRISTANIA по-прежнему представляют привычный gothic-metal с женским вокалом, не было добавлено никаких хоров или симфонических аранжировок, но мелодическая атмосфера стала несколько другой. Появилась «задумчивая» скрипка, меланхоличный чистый мужской вокал в духе Edlund из TIAMAT. Эти новые штрихи добавились к привычной девушке, для которой TRISTANIA умудрились даже сочинить несколько «попсовых» боевичков. Альбом слушается интересно и живо, видно, что музыканты действительно решили выставить на кон всё, что умеют.</P>
+<P>При всём выше сказанном я всё-таки остаюсь при своём мнении. «Шедевральный» период TRISTANIA закончился с уходом в SIRENIA Morten Veland. Он унёс с собой слишком многое, а главное свой незаурядный талант композитора. В нынешнем составе TRISTANIA нет никого, кто смог бы потягаться с ним в этом смысле. Приятно, что на “Rubicon” группа пытается разнообразить свой саунд, но этого недостаточно для возвращения в высшую лигу готического метала. Поклонники стиля, конечно же, обязаны приобретать этот альбом. Возможно, это лучшее, что создала группа в этом веке, но взорвать сцену с этой пластинкой TRISTANIA не удастся.</P>
+Автор: Vit Belov
+
+### 08.12.2010 news Danny Cavanagh споёт с вокалисткой TRISTANIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист<STRONG> ANATHEMA Danny Cavanagh</STRONG> запланировал 8 декабря акустическое выступление вместе с вокалисткой<STRONG> TRISTANIA</STRONG> <STRONG>Mariangela Demurtas </STRONG>в норвежском Осло. Новообразованный дуэт исполнит песни<STRONG> ANATHEMA</STRONG>, несколько кавер-версий и новую музыку, сочинённую исполнителями вместе. Видео с исполнением песни <STRONG>Jeff Buckley</STRONG> <STRONG>"Grace" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это не первый опыт работы лидера <STRONG>ANATHEMA</STRONG> с девушками-вокалистками. Он уже выступал вместе с бывшей вокалисткой <STRONG>THE GATHERING Anneke Van Giersbergen</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/bu7RA725164&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/bu7RA725164&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.12.2010 news Danny Cavanagh споёт с вокалисткой TRISTANIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист<STRONG> ANATHEMA Danny Cavanagh</STRONG> запланировал 8 декабря акустическое выступление вместе с вокалисткой<STRONG> TRISTANIA</STRONG> <STRONG>Mariangela Demurtas </STRONG>в норвежском Осло. Новообразованный дуэт исполнит песни<STRONG> ANATHEMA</STRONG>, несколько кавер-версий и новую музыку, сочинённую исполнителями вместе. Видео с исполнением песни <STRONG>Jeff Buckley</STRONG> <STRONG>"Grace" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это не первый опыт работы лидера <STRONG>ANATHEMA</STRONG> с девушками-вокалистками. Он уже выступал вместе с бывшей вокалисткой <STRONG>THE GATHERING Anneke Van Giersbergen</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object width="640" height="390"><param name="movie" value="http://www.youtube.com/v/bu7RA725164&hl=en_US&feature=player_embedded&version=3"></param><param name="allowFullScreen" value="true"></param><param name="allowScriptAccess" value="always"></param><embed src="http://www.youtube.com/v/bu7RA725164&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></object></P>
+Автор: Vit Belov
+
+### 27.02.2012 news Вокалистка TRISTANIA споёт для EX DEO
+
+<P>Певица <STRONG>TRISTANIA Mariangela "Mary" Demurtas</STRONG> приняла участие в записи нового альбома проекта вокалиста <STRONG>KATAKLYSM Maurizio Iacono EX DEO</STRONG>. Музыкант обещал, что каждый исполнитель, задействованный в записи вокальных партий для второй пластинки "<STRONG>Caligvla</STRONG>", будет иметь римский или греческий акцент.</P>
+<P><center><IMG height=287 src="/images/news_rus/2012.02/23154.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 18.04.2013 news Новый альбом TRISTANIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Седьмой студийный альбом <STRONG>TRISTANIA</STRONG> <STRONG>"Darkest White</STRONG>" выходит в последний день мая на <STRONG>Napalm Records</STRONG>.&nbsp;Обложку в исполнении художника <STRONG>Eliran Kantor</STRONG> (<B>TESTAMENT</B>, <B>SODOM</B>, <B>HATEBREED</B>) можно посмотреть ниже. Трек-лист:</FONT></P>
+<P>01. <B>Number</B><BR>02. <B>Darkest White</B><BR>03. <B>Himmelfal</B><BR>04. <B>Requiem</B><BR>05. <B>Diagnosis</B><BR>06. <B>Scarling</B><BR>07. <B>Night on Earth</B><BR>08. <B>Cathedral</B> (limited-edition bonus track)<BR>09. <B>Lavender</B><BR>10. <B>Cypher</B><BR>11. <B>Arteries</B></P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/X06J75_O0Rk?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P>
+<CENTER>
+<IMG border=0 src="/images/news_rus/2013.04/25617.jpg" width=475 height=475></P></CENTER></CENTER>
+Автор: Vit Belov
+
+### 17.08.2013 reviews Эксперимент над слушателями
+
+<P><SPAN class=tit3>Objective</SPAN>: 15 лет назад группа <STRONG>TRISTANIA</STRONG> была у всех на устах. Признанный многими шедевром тяжёлой музыки альбом “<STRONG>Beyond The Veil</STRONG>” до сих пор является хитом продаж и непременно предлагается всем любителям <STRONG>THERION</STRONG> или <STRONG>HAGGARD</STRONG>. С тех пор много воды утекло. Сначала TRISTANIA покинул гитарист <STRONG>Morten Veland</STRONG>, основавший <STRONG>SIRENIA</STRONG>, и сейчас уже можно смело утверждать, что группа потеряла своего самого талантливого композитора. В 2007 году TRISTANIA потеряли вторую знаковую фигуру, вокалистку <STRONG>Vibeke Stene</STRONG>, на её место была взята итальянка <STRONG>Mariangela Demurtas</STRONG>, с которой TRISTANIA выпустили достаточно невзрачный альбом “<STRONG>Rubicon</STRONG>” в 2010 году. В настоящий момент в коллективе остался лишь один оригинальный участник клавишник<STRONG> Einar</STRONG>. С таким невесёлым багажом TRISTANIA подошли к выпуску новой работы “<STRONG>Darkest White</STRONG>”.</P>
+<P><SPAN class=tit3>Subjective</SPAN>: Меня сложно чем-то удивить, но первые аккорды этого альбома заставили меня поражённо усмехнуться. Пусть не по качеству музыкального материала, но по тяжести TRISTANIA явно собрались вернуться в старые добрые для себя 90-е годы. Жёсткие риффы, агрессивный мужской вокал… Дальше всё продолжается в том же духе, вокалистка вступает лишь изредка, упор делается на музыке и атмосфере, а не на привлекательном голосе Mariangela. К сожалению, как одну субстанцию не лепи, всё одно, она субстанцией останется. Материал на обозреваемом альбоме разнообразен, спору нет, но ни хитов, ни запоминающихся ходов на нём не обнаруживается. Более того, группа теперь потеряет и поклонников метала с женским вокалом, которые брали все её альбомы по привычке. После первой минуты прослушивания эти ребята просто выпадут в осадок. </P>
+<P><SPAN class=tit3>Goods</SPAN>: <STRONG>Napalm Records</STRONG> по-прежнему остаётся издающим лэйблом для TRISTANIA после небольшой командировки на <STRONG>SPV</STRONG>. Правда, теперь альбом норвежской группы выходит летом. Издание в формате digi-pack содержит бонус, расположенный в середине альбома. К счастью, издающий альбом в России <STRONG>Mazzar</STRONG> также выпустил jewel-case с этим бонусом.</P>
+<P><SPAN class=tit3>Conclusion</SPAN>: Экспериментальная работа TRISTANIA, которые очень рискуют с этой пластинкой. Новых поклонников группа не приобретает, совсем старых вернуть не в состоянии, а любителям gothic-metal с женским вокалом этот диск прослушать будет крайне затруднительно.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Tristania

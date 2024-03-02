@@ -19,6 +19,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.11.2004 news Дебютный альбом DEIMOS выходит на Wroth Emitter
+
+<P>Дебютный альбом московской&nbsp;death doom progressive metal&nbsp;группы <STRONG>DEIMOS "Never Be Awaken"</STRONG> вышел на <STRONG>Wroth Emitter Productions</STRONG>. Трэклист:</P>
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2004.11/7374.jpg" width=240 align=right border=5>1. <STRONG>Never Be Awaken</STRONG> <BR>2. <STRONG>Guardian</STRONG> <BR>3. <STRONG>Last Light Flashes</STRONG> <BR>4. <STRONG>In Winter</STRONG> <BR>5. <STRONG>Run Through</STRONG> <BR>6. <STRONG>The Great Flower Of Northern Lands</STRONG> <BR>7. <STRONG>The Top</STRONG> <BR>8. <STRONG>Golden Horde</STRONG> </P>
+<P><BR>Состав: <BR><STRONG>Леонид Гезалян</STRONG> - гитара <BR><STRONG>Александр Глазков</STRONG> - гитара <BR><STRONG>Тадеуш Сенич</STRONG> - вокал <BR><STRONG>Роман Дрозд</STRONG> - бас <BR><STRONG>Владислав Маншин</STRONG> - ударные <BR>Сессионные музыканты: <BR><STRONG>А. Норлогуянова</STRONG> - вокал <BR><STRONG>О. Корнилова</STRONG> - клавиши <BR><STRONG>С. Паньковский</STRONG> - бас </P>
+<P>Контакт с группой: <A href="mailto:deimos@deimos-band.com">deimos@deimos-band.com</A> <BR>Официальный сайт группы: <A href="http://www.deimos-band.com/">www.deimos-band.com</A> </P>
+<P>Сайт лейбла: <A href="http://wroth-emitter.musica.mustdie.ru/">http://wroth-emitter.musica.mustdie.ru</A> </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

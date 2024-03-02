@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.09.2016 news DRAKWALD - folk melodic death metal из Франции
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Folk melodic death metal группа из Франции<strong> DRAKWALD</strong> выпустила второй альбом "<strong>Riven Earth</strong>" 7 мая. Ниже можно увидеть видео на хит с этого альбома <strong>"Erase By Fire".</strong></font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ke9jwhBw1yA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 07.09.2016 news DRAKWALD - folk melodic death metal from France
+
+<p>Folk melodic death metal band<strong> DRAKWALD</strong> from France released a second album called "<strong>Riven Earth</strong>" on 7 May. Below you can see the video on the hit from the album "<strong>Erase By Fire</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ke9jwhBw1yA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

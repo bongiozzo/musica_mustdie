@@ -8,6 +8,9 @@ Oriental, Chaotic Heavy Rock from Japan
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

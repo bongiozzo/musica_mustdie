@@ -54,6 +54,23 @@ Torp - Bass guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.05.2002 reviews Долгий и кропотливый самоанализ
+
+<p>Второй альбом норвежского квинтета проповедующего мрачный и меланхоличный gothic-doom-death metal. Довольно спокойная музыка с влиянием классической, пианинными пассажами, контрастными тяжелыми сухими гитарами и нежнейшим женским, временами оперным вокалом в сочетании с гроулингом и немного плаксивым чистым мужским вокалом. Музыка перегружена эмоциями и печальными настроениями. Напоминает TRISTANIA, THE SINS OF THY BELOVED, а иногда ANGIZIA. Эта музыка полна печали, тоски и мрака, способна выжать слезы из самой черствой души. Альбом рождался в долгих муках почти три года. За это время было написано много материала, в итоге альбом звучит аж целых 74 минуты. Для подобной музыки, на мой взгляд, это многовато. Учитывая настроения альбома, недалеко и до суицидальных последствий. Эта музыка настраивает на глубокое проникновение в собственное сознание и человеческую психику и способствует подробному самоанализу, результаты которого непредсказуемы.</p>
+<p> Одна из моих любимых классических композиций - ALLEGRI "Miserere Mei". У MIRIADS на этом альбоме есть одноименная вещь, пожалуй, лучшая вещь альбома. Прослеживается явное влияние этой вещи на материал альбома в целом.</p>
+<p> Любителям медленной мрачной музыки придется по душе этот альбом. Другие же будут явно утомлены к концу альбома и на повторное прослушивание вряд ли решатся.</p>
+
+Автор: Dimas
+
+### 17.05.2002 reviews The long and laborious self-analysis
+
+<p>The second album of Norwegian quintet preaching gloomy and melancholic gothic-doom-death metal. Rather quiet music with influence of classic, piano passages, contrast heavy dry guitars and tender female, from time to time, opera vocal in a combination with growling and there is some crying clean man's vocal. Music is overloaded with emotions and sad moods. Reminds TRISTANIA, THE SINS OF THY BELOVED, and sometimes ANGIZIA. This music is complete griefs, melancholy and gloom, is capable to squeeze out tears from the most hard soul. The album was born in long torments almost three years. For this time a lot of material was written, in a result the album sounds already of whole 74 minutes. For similar music, on my sight, it's too much. Taking into account moods of an album, near and up to suicide consequences. This music adjusts on deep penetration into own consciousness and human mentality and promotes the detailed self-analysis, which results are unpredictable. <BR> One of my favourite classical compositions - ALLEGRI " Miserere Mei ". MIRIADS has a same track on this album, perhaps, best thing of an album. The obvious influence of this thing on a material of an album as a whole is traced. <BR> It is necessary to the fans of slow gloomy music. Others will be obviously tired by the end of an album and on repeated listening hardly will decide.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

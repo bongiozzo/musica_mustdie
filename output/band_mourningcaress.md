@@ -57,6 +57,62 @@ daniel busche - bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.12.2001 news Несбалансированная траурная забота...
+
+<p>Германские мелодик-дэтстеры "Mourning Caress" выпускают полноформатник "Imbalance" через испанскую Arise Records. Продюссировал состоящий из десяти треков альбом мастер черно-белых кнопочек Andy Classen (работавший с Krisiun, Occult) в его собственной Classen's Stage 1 Studios. Мастеринг проходил в финнской Finnvox Studios при участии Mike Karmila. Кавер сделан Никласом Сандином (работавшем для Cabin Fever Media с Eternal Tears Of Sorrow, Arise и многими другими). Дата выхода - март 2002....</p>
+
+Автор: Yermola
+
+### 20.12.2001 news Mourning Caress will have their debut full-length, Imbalance....
+
+<p>German melodic death metallers Mourning Caress will have their debut full-length, Imbalance, out shortly through Spain's Arise Records. <BR><BR> Imbalance was produced by Andy Classen (Krisiun, Occult) at Classen's Stage 1 Studios and mastered at Finland's Finnvox Studios by Mike Karmila. The album features 10 tracks of what the band deem "excellent melodic death metal." For the cover art, Imbalance will designed by Cabin Fever Media's Niklas Sundin (Eternal Tears Of Sorrow, Arise). <BR><BR> Those looking to get a taste of Mourning Caress' Imbalance can do so in March 2002, when the album is released</p>
+
+Автор: Yermola
+
+### 01.03.2002 news Новости от ARISE Records
+
+<p>Коротко об основных новостях групп выпускающих свои альбомы на этом испанском лэйбле...</p>
+<P> Бразильская хэви-метал команда WIZARDS подписала контракт с ARISE Records, где выпустит свой последний альбом "The Kingdom" для распространения его в Европе. Альбом будет выпущен в мае 2002 года.</>
+<P> Второй альбом группы RED WINE "El Fin De Los Tiempos" будет выпущен в апреле. В составе команды замечена вокалистка DARK MOOR. Обложку к альбому нарисовал Jean Pascal Fournier (Edguy,Immortal). После выпуска альбома, группа отправляется в турне с новым ударником.</>
+<P> AXENSTAR начали работу над своим дебятным альбомом "Perpetual Twilight" в Studio. Эта группа, без сомнения, одно из недавних открытий шведской хэви-металлической сцены. Их музыка переполнена мелодиями и мощью. Альбом будет выпущен в октябре 2002 года.</>
+<P> Тайваньская команда SERAPHIM выпускает в марте свой дебютный альбом "The Soul That Never Dies" представляющий собой экзотический хэви-метал с женскими оперными подпевками.</>
+<P> Испанская команда ARWEN начинает запись своего дебютного альбома в мае. Группа состоит из восьми человек. Это довольно необычно для хэви-металлической команды. Музыканты представят на всеобщий суд эпические песни с тоннами вокальных размещений и особенной мелодикой. Также обещается высокое техническое качество. Выпуск альбома планируется в октябре 2002 года.</>
+<P> Ожидаемые в марте релизы ARISE Records:</>
+<P> DARK MOOR "The Gates Of Oblivion" <BR> VHALDEMAR "Fight To The End" <BR> MOURNING CARESS "Imbalance" <BR> SERAPHIM "The Soul That Never Dies " <BR></>
+
+Автор: Dimas
+
+### 29.05.2002 reviews Несбалансированность нежности и траура
+
+<p>Дебютный альбом немецкой команды вышедший на испанском лэйбле. Ничего нового на этом альбоме вы не услышите. Опять melodic death... По сути, этот альбом радостно воспримут только истинные поклонники melodic death metal, которые никогда не устанут слушать нные копии IN FLAMES и DARK TRANQUILLITY. Им этот альбом должен обязательно понравится, так как сделан по самым высоким стандартам и содержит все самое лучшее из melodic death metal. У этой записи очень мало слабых мест. Песни на этом альбоме записаны с логикой и смыслом, звучание мелодичное и кардинально эмоциональное, с отчаянным вокалом. Мягкие гитарные риффы и замечательные мелодии не успевают сменять друг друга. Песни довольно запоминающиеся, но вместе с тем немного однообразные. В конце альбома вас ждет кавер-версия песни OZZY OSBOURNE "Crazy Train".</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 12.06.2002 reviews Unbalanced caress and mourning
+
+<p>Debut album of a German band released on the Spanish label. Anything new on this album you will not hear. Again melodic death... As a matter of fact, this album joyfully will be apprehended only by the true admirers of melodic death metal, which never tired to listen to copies of IN FLAMES and DARK TRANQUILLITY. This album owes to them necessarily it is pleasant, as is made under the highest standards and contains all the best of melodic death metal. This record has not enough of weak places. The songs on this album are written down with logic and sense, sounding melodious and cardinally emotional, with desperate vocal. Soft guitar riffes and the remarkable melodies have not time to replace each other. Songs pleased remembered, but at the same time little bit monotonous. At the end of an album you'll find cover-version of songs by OZZY OSBOURNE "Crazy Train".</p>
+
+Автор: Vit Belov
+
+### 14.06.2002 reviews СМДМ здесь и близко не стоял
+
+<p>Ну-ка давайте вспомним, какого рода группам отдают предпочтение боссы Arise Records. Во-первых, испанским. Это уже вроде как устоявшееся правило – и верно, почему бы в первую очередь не поддержать своих земляков? Во-вторых, что Хави, что Карлос (те самые боссы, если кто не понял), видать, души не чают в heavy и power metal'е. Иначе с какой стати большинство команд, имеющих контракт с Arise, играют именно такую музыку? Но стоп. Я, кажется, сказал "большинство"? Так вот, есть ещё и меньшинство. Например, IN THOUSAND LAKES – испанские представители волны захватившего умы всего прогрессивного человечества СМДМ’а. И они не одиноки. В семействе Arise Records прибавление – встречайте MOURNING CARESS. Как ни странно, группа сия ни коим образом не относится к жителям Пиренейского полуострова. И ведь всё потому, что немцы. А музыка у них шведская. Нет, вы не то подумали. СМДМ здесь и близко не стоял. А вот SCHEITAN – стоял. Со своим альбомом "Nemesis". Разница, пожалуй, только в том, что немцы обходятся без помощи драм-машины и женского вокала. А ещё альбом сей в тысячу раз менее готичен, нежели "Nemesis". Да и не готичен он вовсе, говоря по правде. Госпожа Готика, просим вас удалиться. Добро пожаловать, глубокоуважаемый Рок-н-Ролл! И пусть друзья ваши, господа Хэви и Блэк Металл заходят. Чувствуйте себя как дома. Угощайтесь, прошу вас. Проходите в зал. Вы, знаете ли, сегодня гвоздь программы. Нет, ну что вы, не стесняйтесь. Публика вас любит, – вы даже и не представляете, насколько! Ну вот, видите! Убедились? А теперь позвольте, я вас оставлю. Наслаждайтесь восхищёнными взорами наших гостей, их восторженными репликами. Некоторые из них ведь просто жизни не мыслят без вашего общества. А я… да что я? Ведь моё мнение никому не интересно.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 29.07.2011 news Третий альбом MOURNING CARESS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немцы <STRONG>MOURNING CARESS</STRONG> подписали контракт с <STRONG>MDD Records</STRONG> на выпуск третьего альбома <STRONG>"Deep Wounds, Bright Scars"</STRONG>, который выйдет в ноябре этого года. Мастеринг альбома сделал <STRONG>Ulf Horbelt</STRONG>&nbsp;в студии&nbsp;<STRONG>DMS, </STRONG>а обложку нарисовал <STRONG>Bjorn Goosses. </STRONG>На пластинку войдёт девять треков плюс кавер на песню <STRONG>SCORPIONS "Blackout"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трек <STRONG>"Panic" </STRONG>можно послушать в клипе ниже. Следующую песню <STRONG>"Wastelands Within"</STRONG> группа обнародует в сентябре, на ней партии вокала исполнил певец <STRONG>DARK TRANQUILLITY Mikael Stanne</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://www.youtube.com/embed/5JjIv4aKYMc" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

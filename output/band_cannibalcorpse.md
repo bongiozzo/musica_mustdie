@@ -483,6 +483,576 @@ DVD 3: Bonus Chunks
 * C группой "Torture Killer" Chris Barnes moved to Six Feet Under at 1995.
 * C группой "Monstrosity" George Fisher replaces Chris Barnes at 1996
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>В июне Cannibal Corpse войдут в студию для записи нового альбома. Альбом будет продюсировать Колин Ричардсон.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Cannibal Corpse вошли в студию вместе с продюсером Колином Ричардсоном. Новый альбом ожидается 19 октября сего года.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Мексиканская группа Disgorge закончила работу над вторым альбомом "Forensick". Бэк-вокал исполняет Джордж Фишер из Cannibal Corpse.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Новый альбом Cannibal Corpse "Bloodthrist" выйдет 19 октября.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 articles Жажда крови
+
+<p>В этой статье речь пойдёт об одной легенде тяжёлого металла, которую знают все, даже упёртые рэперы, "новая молодёжь" и тому подобные люди. CANIBAL CORPSE - звучит, как музыка. Я думаю для любого человека (молодого, конечно же) это словосочетание означает рубилово, угар, мочилово, дробилово всех конечностей и не только, включая головной мозг. Меньшая часть молодых меломанов, которая может вычленить из этого набора звуков музыкальную основу понимает это словосочетание ёмким словом ДЭТ-металл.</p>
+<P> Информационный повод для данной статьи у нас с вами имеется, очень просто, в скором времени выходит очередной релиз данного коллектива под названием "Bloodthirst". Записан он вместе с известнейшим продюсером Колином Ричардсоном, помогавшим в записи, в своё время, таким мастерам, как Napalm Death, Fear Factory и Carcass. На этом первоначальные данные о пластинке заканчиваются, для лучшего эффекта ознакомления обратимся за помощью к Алексу Вебстеру басисту, автору слов, да и просто основателю коллектива.</>
+<P> "Я думаю, то, что вы услышите на этом альбоме, является отличной работой. В последние годы изменился наш подход к написанию песен. Особенно это сказалось, когда группу покинул Крис Барнс (Six Feet Under теперь, прим. авт.), и пришёл Джордж Фишер. Когда Крис был в группе, он писал много музыки и текстов, и его мысли были основными на наших работах. С приходом Джорджа все мы стали чуть больше заняты в сочинении песен. Мы работаем, как команда и ничто более нас не угнетает."</>
+<P> Да, действительно, мне кажется, что с Крисом достаточно сложно сработаться. Взять, хотя бы его заявление после увольнения из Six Feet Under Алекса Веста. Дескать, Алекс не врубается в музыку его гениальной команды. По меньшей мере, странно. Неужели этот монстр дэт-металл настолько слабоумен!? Пусть лучше на сцене выступают не такой хороший гитарист, зато не выпендривается. Вряд ли в таком мощном коллективе, как СС это могли долго терпеть.</>
+<P> "Сейчас я чувствую себе гораздо более уверено, когда пишу музыку и тексты. Это меня удовлетворяет. Когда в группе был Крис, если я что-нибудь писал и отсылал ему, я был уверен, что это вернётся ко мне с некоторыми изменениями. В этом не было ничего особенно страшного, просто похожая на мою идея, которая пришла ко мне от меня же."</>
+<P> Понятно. Но что сделала такого группа, чтобы вернуть себе своих поклонников, ведь авторитет команды в последнее время немного пошатнулся?</>
+<P> "Я думаю, что люди входящие в Cannibal Corpse не сильно меняются, несмотря на прошедшие годы. Мы любим играть дэт по настоящему и работаем над идеями вокруг одного базиса. Того базиса, который был основан вместе с основанием группы. Мы хотим делать брутальный дэт, и мы сделали его на новом альбоме. Это всё уходит корням в группы, типа Iron Maiden, которые всегда умели делать альбомы в одном стиле, всегда изменяя чуть-чуть, чтобы заинтересовать фэнов. Также группы, типа Morbid Angel или Deicide менялись с годами, но всегда оставляли оригинальную формулу внутри своей музыки. Если кому-то нравится твоя первая запись, то он с каждой новой работой хочет возвратиться к первой, чтобы получить то, что он получал, когда только познакомился с нашей музыкой."</>
+<P> Вот так, весьма замысловато Алекс объяснил свои секреты фирмы. Как говорится, stay true. В общем, я согласен с ним отчасти. Согласитесь странно, когда человек, прослушав три первых альбома какой-нибудь группы, и, получив удовольствие, начинает плеваться с выходом четвёртого CD оттого, что он якобы похож на три предыдущих. Ещё одно изменилось во время записи этого альбома. Она, запись, проходила в ?городке Торнильо, Техас. Вы спросите, почему я так сильно удивляюсь? Если вы это спросили, то вы не слушали не одной старой работы CC. А как же знаменитая и легендарная Морриссаунд в Тампе, Флорида?</>
+<P> "Надеюсь, люди заметят те изменения, которые произошли в том, что мы делаем. Я думаю, кое-что добавлено в звук на нашей новой работе, и это произошло отчасти оттого, что мы записывались в этой студии. Это называется опыт. Я думаю, что на этом седьмом для нас альбоме, самые тяжёлые песни, которые мы записывали когда-либо. Тяжёлые, как в музыке, так и в исполнении. Всегда здорово, когда ты можешь выйти и представить фэнам что-то новое под маркой Cannibal Corpse."</>
+<P> "На нашем предыдущем альбоме "Gallery Of Suicide",",- не унимается Алекс,- "мы испробовали много различных вещей. Многие песни были более медленные, и мы надеялись, что они останутся такими же тяжёлыми для наших фэнов. В этот раз мы просто пришли и записали более быстрый материал. Мы заметили, зачем тратить талант на медленные вещи, если ты можешь тратить талант на быстрые? У нас очень много навыков накопилось за эти годы, и мы хотим представить лучший брутальный дэт-металл альбом, который выходил когда-либо."</>
+<P> Это было лирическое отступление, но вернёмся к вопросу о студии.</>
+<P> "Мы получили огромное удовольствие от этой звукозаписывающей сессии. Было здорово работать в студии в Техасе, потому что каждый альбом, выходивший из Морриссаунд студии в предыдущие годы, отдавал (тьфу, не знаю, как правильно сказать, прим. авт.) дежа вю от нашей прежней музыки. Нам требовалось найти что-нибудь новое, и мы нашли это."</>
+<P> Тоже, наверное, можно сказать и о Колине Ричардсоне, с которым группа работала впервые?</>
+<P> "Да, было просто великолепно работать с Колином. Он знал, что мы хотим. Мы чувствовали, что он делает нас не менее брутальными, чем в Морриссаунд, но мы также хотели попробовать чего-то нового и посмотреть насколько далеко мы можем зайти с нашей музыкой. Мы должны были посмотреть, как это будет происходить. Но сейчас я не могу быть объективным, говоря об этой записи. Приходите ко мне через годок, и я скажу, что я думаю о звучании этой работы."</>
+<P> Интересно, у группы продолжаются проблемы, касающиеся её атрибутов? Тексты, кавер-арт и.т.п. Как Алекс относится к этой суматохе?</>
+<P> "Когда нас в чём-то обвиняют, мы быстро об этом забываем. Люди, которые заявляют, что мы не умеем играть, просто не уделяют много внимание музыке. Всё пристают к названию, что за ним скрывается? Мы знали, на что мы идём, когда называли команду Cannibal Corpse. Нам нужно было ужасное имя, которое сочеталось бы с брутальной музыкой, которую мы играем. У нас было достаточно причин для желания сделать эту группу. Наша музыка нас вдохновляет и удовлетворяет, и вы должны понимать, что, когда нас что-то удовлетворяет, всегда найдутся люди, которым это не понравится (????, прим.авт.). Я смотрю на все эти команды, которые играют безопасный дэт-металл. Очень много групп опасаются, когда дело касается их музыки, лирики, имиджа и даже названия. Вы бы очень удивились, если бы узнали, кого я считаю такими группами. Я не буду называть не одной из них, но вы можете заметить некоторых, которые не идут своим путём, а делают несусветное дерьмо."</>
+<P> Он продолжает: "Не многие группы осмелятся сделать песню, типа "Hammer Smashed Face", а мы сделали. Нас не ..ёт, что думают другие люди, когда пишем музыку или тексты, чтобы не становиться узниками этих людей. (Далее идёт непереводимая игра английских идиоматических выражений, прим. авт.) Некоторые люди начнут вас ненавидеть, так ?. их тоже. Мы сделали что-то великолепное, и пусть некоторые му?. это не полюбят, зато полюбит гораздо большее количество народу."</>
+<P> Честно говоря, я немного испугался. Надеюсь, от вас не скроется за моим скромным переводом вся агрессия этих слов. На этом позволю себе откланяться, и пожелаю Cannibal Corpse сохранить свою непримиримость и в наступающем XXI веке.</>
+<P> По материалам зарубежной веб-прессы, Вит Белов.</>
+<P></>
+
+Автор: Vit Belov
+
+### 22.12.1999 reviews 
+
+<p>Вот он новый альбом этих вечных "моральных оболдуев". 37 минут полнейшего угара, но, правда, лучше бы на песни они бы всё это не делили. Было бы круче. Писать ничего не хочется, такой музыкой можно напугать толькодетей дошкольного возраста и беременных женщин, потому что всем уже остальным надоел этот тупой дэт-грайнд. Только для любителей, у меня же всё это вызвало дикий тошнотворный хохот.</p>
+<P> 5,5 из 10</>
+<P> Диск предоставлен фирмой "Спюрк"</>
+
+Автор: Dimas
+
+### 26.06.2000 news Cannibal Corpse готовят концертный альбом.
+
+<p>В августе cannibal Corpse отправляются в турне по Штатам. Во время этого турне будет записан концертный альбом, который выйдет в формате CD и видео и будет называться "Live Cannibalism". В магазинах- 26 сентября.</p>
+
+Автор: Vit Belov
+
+### 22.09.2000 news О релизах Metal Blade до конца 2000-го  года
+
+<p> Европейский отдел Metal Blade афишировал список своих релизов, запланированных до конца этого года. Итак:<br>25.09.00 CANNIBAL CORPSE Live Cannibalism (новый альбом)<br> 25.09.00 CANNIBAL CORPSE Live Cannibalism (новое видео)<br> 09.10.00 LIZZY BORDEN Deal With The Devil (новый альбом)<br> 23.10.00 ANCIENT God Loves The Dead (новый мини-диск)<br> 23.10.00 SIX FEET UNDER Graveyard Classics (новый альбом)<br> 06.11.00 IMMOLATION Close To A World Below (новый альбом)<br> 06.11.00 VOMITORY Revelation Nausea (новый альбом)<br> 20.11.00 DIES IRAE Immolated (новый альбом)<br> 20.11.00 VADER Reign Forever World (новый альбом)<br> 20.11.00 CHINCHILLA Madness (новый альбом)<br></p>
+
+Автор: Nybras
+
+### 03.03.2001 news Про Cannibal Corpse...
+
+<p> CANNIBAL CORPSE объявили о своих планах насчет весеннего Neck Break Tour 2001, в компании с норвежскими "блэк метал гуру" DIMMU BORGIR, "шведскими трэш-королями" THE HAUNTED и новым гриндовым актом LAMB OF GOD. Начнется это дело 13 апреля в Ворчестере, а закончится в Монреале 6-го мая. В данный момент CC занимаются написанием песен к своему восьмому полноформатнику. Как только закончится вышеозначенный тур, музыканты засядут в Village Studios в Эль-Пасо с продюсером Колином Ричардсоном (MACHINE HEAD, FEAR FACTORY). Октябрь сего года называется наиболее вероятной датой выхода альбома. (Legion Online)</p>
+
+Автор: Nybras
+
+### 26.04.2001 news Cannibal Corpse трудятся над новым альбомом
+
+<p> Cannibal Corpse насочиняли 9 новых песен для своего будущего студийного альбома, запись которого начнётся в первых числах мая.</p>
+
+Автор: Nybras
+
+### 17.05.2001 reviews Просто замечательное ЖИВЬЁ!!!
+
+<P>И в самом деле 2000-й - это год подведения итогов: каждый из корифеев старается сделать что-то особенное, эпохальное и легендарное. Некоторым это удается, большинству же нет. Как это ни странно, но Cannibal Corpse, которых раньше редко называли иначе как "моральными обалдуями" а их альбомы просто "очередной продукцией Флоридского мясокомбината", это более чем удалось: они не только не ударили в грязь лицом, а наоборот, выдали, проехавшись по нескольким штатам с концертным туром, _Т_А_К_О_Е_ что точно затавит паршивца-Создателя написать их имена золотыми буквами в Вечности. Теперь можно смело говорить, что Cannibal Corpse !!!НАУЧИЛИСЬ ИГРАТЬ!!! (Уф... Прямо как-то не привычно применять к ним это словосочетание!...), а смена студии и замена гитариста пошли им более чем на пользу. Замечательная "Жажда Крови" 99-го года есть их лучший и самый технично сыгранный альбом, но даже и он немного бледнеет на фоне нового 2000-го концертного релиза. Качество исполнения песен и качество самой записи не дают просто ну ни малейшего повода хоть к чему-то придраться, даже если это захотеть сделать и из вредности начать специально выискивать изъяны. (Хотя нет! Нашел!!! Обложки на "Gallery of Suicide", "The Bloodthirst" и "Live Cannibalism" стали какие-то ну просто до пошлости культурные и целомудренные... Тьфу, испортили весь праздник этикетом...). Этот концертный релиз смело можно ставить рядом с замечательными и эпохальными концертниками "Live After Death" IRON MAIDEN и "Marooned" SODOM-а, хотя "Live Cannibalism" по качеству реализации ЖИВОГО звука, возможно, их и превосходит. Но не только в реализации звука дело: тут присутствует нечто совершенно несвойственное КАННИБАЛАМ как старого, так и нового составов: здесь все песни действительно СЫГРАНЫ и СПЕТЫ, причем спеты просто отличным низким жутким рычащим гроулом (которым, кстати, почти все эти песни и объявляются, разумеется, со словом FUCK через слово!), которого ни от старика-некрофила Криса Барнса (всего лишь плевавшего в микрофон), ни от "Корпсграйндера" Фишера, (памятуя серые "Vile" и "Gallery...") ожидать было просто нельзя, а качество же записи и исполнения старых добрых песен с былых альбомов таково, что заставляет эти самые альбомы по "Vile" включительно просто отнести кучей на свалку. Одним словом данный диск просто железный "must have" - "обязательный к покупке", если вы кормите свой СиДи только хорошим добротным "мясом", а его жутко-зверская тяжесть прямо-таки делающая лоботомию без скальпеля, словно самой матерью-природой предназначена для того, чтобы колоть черепа любителей дистиллированного пауэра и сопливой готики, искренне считающих себя металлистами. В общем, теперь КАННИБАЛЫ растут с каждым альбомом, но интересно, что будет дальше...</P>
+Автор: Alexey Pitirimov
+
+### 06.08.2001 news Поедание себе подобных...
+
+<p>"CANNIBAL CORPSE" на своем официальном сайте сообщили, что в данный момент находятся в студии El Paso’s Sonic Ranch, работая над своим очередным альбомом. Продюссирует творение Neil Kernon (NEVERMORE, QUEENSRYCHE, JUDAS PRIEST, MACABRE) и выйдет данный опус через Metal Blade Records уже в январе 2002. По словам группы уже записаны отрясающие "барабанные" треки Пола Мазуркевича и сечас пишутся гитары. Вся работа будет сделана до 28-го августа, после чего команда поедет в европейский тур с KREATOR, KRISIUN и DISBELIEF, а также примет участие в Xmas Fest 2001, в который войдут VOMITORY, KREATOR, MARDUK, NILE, DARK FUNERAL и KRISIUN.</p>
+
+Автор: Yermola
+
+### 06.08.2001 news CANNIBAL CORPSE have confirmed via their official web ....
+
+<p>CANNIBAL CORPSE have confirmed via their official web site that they’re currently working with producer Neil Kernon (i.e. NEVERMORE, QUEENSRYCHE, JUDAS PRIEST, MACABRE) at El Paso’s Sonic Ranch Studios (formerly Village Recorders) on their forthcoming, as-yet-untitled effort (as reported here a couple of days ago), which is due through Metal Blade Records in January 2002. According to the band, “after the grueling trek from Tampa to El Paso ([guitarists] Pat [O’Brien] and Jack [Owen] drove the gear, everyone else flew) we set up the gear and started getting sounds. We tweaked the drums for a couple of days and started tracking late last week. The drum sounds are brutal to say the least. Paul [Mazurkiewicz] is finished with his drum tracks and we're messing with EQ's and sh.t to make them sound perfect. Guitar sounds will soon be blasting out of studio A as Pat and Jack prepare the twin guitar assault.” CANNIBAL CORPSE are due to complete work on the upcoming album on August 28th, after which they will have a couple of months off before they’re due to head over to Europe for a tour with KREATOR, KRISIUN and DISBELIEF, to be followed by the Xmas Fest 2001 trek, which is also set to include VOMITORY, KREATOR, MARDUK, NILE, DARK FUNERAL and KRISIUN. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 03.01.2002 news MP3 CANNIBAL CORPSE ...
+
+<p>Вы можете послушать новую вещь "Hatchet to the Head" Каннибалов с нового альбома "Gore Obsessed" <A HREF="http://www.metalblade.com/bands/cannibal_corpse/cc-gore-hatchet.mp3">здесь.............</A></p>
+
+Автор: Yermola
+
+### 03.01.2002 news CANNIBAL CORPSE Offer MP3 Download ...
+
+<p>CANNIBAL CORPSE have made available for download an MP3 of the track "Hatchet to the Head", taken from the group's upcoming Gore Obsessed CD, from <A HREF="http://www.metalblade.com/bands/cannibal_corpse/cc-gore-hatchet.mp3">this location..... </A></p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 26.01.2002 articles Куда катится мир или как Kreator на разогреве у Cannibal Corpse играл.
+
+<p> Вот и приехал я из далекой страны вина, любви и декаданса Бодлера, а именно из Франции, где в течении 4-х месяцев проходил стажировку. Вообще отправляясь в эту "чудесную" страну (кавычки я разъясню в другой статье) я рассчитывал попасть на концерт моих любимых Мизантропов, которые в октябре как раз колесили по стране в обойме с Gloomy Grim и Yearning, являющиеся, как и Misanthrope, служителями славного лейбла Holy Records, подарившего миру помимо всего прочего Septic Flesh. Так вот эти ребята кинули всех металлеров города Лиона, где я собственно и жил, и пришлось мне ждать конца ноября, когда должно было произойти грандиозное действо в виде концерта групп Krisiun, Kreator и Cannibal Corpse. Сразу оговорюсь, что шел я исключительно на Креатор, т.к. творчество группы Корпса Гриндера привлекает меня в весьма узком диапазоне (альбом Vile).</p>
+<p> Билетик мне обошелся в 125 франков, что по нашим деньгам составляет ровно 500 деревянных. Согласитесь, для концерта такого уровня более чем приемлемая цена, тем более за бугром. Ну в общем, скорешился я местными мИталлистами (а по другому французских чмошников назвать сложно: в музыке не смыслят абсолютно, слов не знают, альбомов не знают, названий групп - в принципе тоже) и пошел на это действо.</p>
+<p> Что меня прибило только на подходе к концертному залу (вернее зальчику как потом оказалось), так вот это просто огромное количество тачек. Вы себе представляете российского металлера-алкоголика на новеньком Пежо 206? Я с трудом. а у них - запросто! У каждого крутая аудиосистема с CD changerом... Круто короче!</p>
+<p> Ну заходим в зал - и тут мне плохо становится...зал оказался размером со Свалку!!! А сцена меньше, чем в Р-Клубе!!!! Ну, думаю, как они играть то будут? Еще хреново то, что раздевалки не было. Пришлось в тачку идти шмотки оставлять.</p>
+<p> Уместилось туда народу, человек 600-700. Все вначале попили пивка (цены - так себе: 40 рублей по нашим тугрикам стоит 0,33 пива. Ну я пива сразу литр в себя влил. У французов от ТАКОЙ :) дозы шары сразу выкатились! Они вообще-то слабачки в этом вопросе. Ну стоим пъем пивко, я параллельно смотрю за торговлей атрибутикой. Дороговато надо сказать, но в принципе как у нас на буржуйских концертах, тока у них за 400 р. можно нормальную фирменную майку с Креатором было купить.</p>
+<p> В общем, вначале были Кризиун. Ребята из Бразилии, но играют очень техничный блэк-дет модного нынче разлива. Что-то вроде Zyklon, Susperia, Old Man's Child, только без клавиш. Короче мне понравились они гораздо больше Каннибалов, от которых у меня честно говоря голова болит сильно.</p>
+<p> Ну а минут через 15 началось самое сладкое для меня. Боги тевтонского треша собственной персоной во главе с нестареющим Милле Петрозой.</p>
+<p> Вначале они зарядили Terror Zone с Комы Душ. Затем была новая композиция Reconquering the Throne, от которой мне стало еще теплее. Но одного я не мог понять: то ли все на Каннибалов пришли, то ли никто аглицкого не знает, но слов не знал НИКТО!!! Хотя у Креатора-то вроде текста учить - милое дело: и ритмика есть и рифма, особенно на новом альбоме. Затем пустили Экстремальную Агрессию! Что тут началось!!! Людили пачками слэмовали со сцены, и что удивительно их все исправно носили на руках. Мне отдавили всю шею и спину. Слэмуют они там, кстати, дай боже, и никто никого не кидает. Толкаются тоже хорошо. Тока вот в музыке ни хрена не смыслят. Уроды одним словом.</p>
+<p> Сыграли затем еще пару новых вещей, клевых очень, еще чего-то с Coma of Souls, и вроде начали уже играть мою любимую Violent Revolution и вдруг заткнулись! Я им ору, давайте, мол, играйте Violent Revolution (народ, кстати, кроме меня ваще не проссал, что это за песня :) ), а Милле так обернулся, улыбнулся, мол все нормально, типа "так надо", и ушел отдыхать. Во время этого перерывчика, барабанщик зарядил свое стандартное соло, все ему похлопали и стали ждать продолжения. Продолжение оказалось так себе: песнка с Outcast (Lost), песенка с Renewal, c Endorama вещица, кое что из свежачка... Все немножко стухли. Но на последок ребята порадовали своих преданных фанатов бовичками вроде Flag of Hate и Pleasure to Kill. Короче, неоднозначное впечатление осталось от креаторовского выступления: могли и побольше поиграть (40 минут для таких крутых парней маловато, учитывая то, что Каннибалы играли где-то на полчаса больше) и получше (с Extreme Agressions не играли болше ничего!).</p>
+<p> Ну а затем вышли великие и ужасные Cannibal Corpse во главе с еще более ужасным Corpse Grinder. Их выступление мне сложно оценить объективно, т.к. как я уже говорил выше, страстным поклонником этой группы я не являюсь. "И тут , вероятно вы зададите мне вопрос: позвольте, уважаемый, а где же яйца?", вернее "А как же звук?". А вот звук как раз был выше всяких похвал: сочный, плотный, так что даже Каннибалы звучали просто обалденно! Ну я хаером немножко помахал, Devoured by Vermin порычал и пиво пошел пить. А Каннибалы, как мне рассакзали потом, вроде бы новую программу обкатывали. Но вот почему Креатор у них на разогреве был, я так и не понял. САБЖ короче!</p>
+<p> Вот такие пироги. Понравилось мне в принципе практически все. Следует еще сказать, что за те 3 месяца, что я был в Лионе, у них еще был здоровый фестиваль (это уже в другом зале, он побольше) пауэра, на который я не пошел по идейным соображениям. Там были Edguy с Gamma Ray хедлайнеры, и еще были всякие Heavenly, Sinergy и прочая поверная шелуха :)). Еще была мало известная группа... как же название...а! ну да! Анафема кажется :) В январе, уже после моего отъезда ожидались Agressor, Mortician, Iced Earth. Ну а в феврале вообще должны были приехать какие-то никому не известные команды вроде Immortal, Hypocrisy, Malevolent Creation, Vader и Catastrophic (и все это в одном флаконе рублей за 700 максимум). Вот так вот! А мы тут Мунспелу радуемся как дети! И почему эти уроды буржуйские к нам не едут :(( Обидно....</p>
+
+Автор: Soubbterranean
+
+### 31.01.2002 news Смертельно запуганные...
+
+<p>Новый альбом "Каннибалов" - "Gore Obsessed" выйдет на Metal Blade 26-го февраля и будет содержать следующие песни: <BR><BR> 01. Savage Butchery<BR> 02. Hatchet to the Head<BR> 03. Pit of Zombies<BR> 04. Dormant Bodies Bursting<BR> 05. Compelled to Lacerate<BR> 06. Drowning in Viscera<BR> 07. Hung and Bled<BR> 08. Sanded Faceless<BR> 09. Mutation of the Cadaver<BR> 10. When Death Replaces Life<BR> 11. Grotesque <BR></p>
+
+Автор: Yermola
+
+### 31.01.2002 news CANNIBAL CORPSE &quot;Gore Obsessed&quot; Track Listing Revealed ....
+
+<p>CANNIBAL CORPSE's forthcoming Gore Obsessed CD, due through the Metal Blade label on February 26th, will contain the following track listing: <BR><BR> 01. Savage Butchery<BR> 02. Hatchet to the Head<BR> 03. Pit of Zombies<BR> 04. Dormant Bodies Bursting<BR> 05. Compelled to Lacerate<BR> 06. Drowning in Viscera<BR> 07. Hung and Bled<BR> 08. Sanded Faceless<BR> 09. Mutation of the Cadaver<BR> 10. When Death Replaces Life<BR> 11. Grotesque <BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 03.04.2002 reviews Доставайте любимую мясорубку
+
+<p> Любители мясного фарша! Доставайте заначку и бегом в ближайшую муз. лавку. Ибо новый альбом музыкантов (шутка, конечно же) из жаркой Флориды опять снесет вам всем крышу. Сие творение выполнено в лучших традициях, присущих Каннибальским Трупакам. Подобно куску сырого мяса, залежавшемуся на жарком солнышке и начинающему невинно попахивать, на который дэзеры слетятся как мухи на г... извиняюсь, на мед, этот шедевр прекрасен, как освежеванная тушка белокрылого (когда-то) ангелочка. Рычание Корпсграйндера как всегда ленточным червячищей впивается вам в печенку, но теперь этот гроулятор время от времени начинает вопить подобно Кобзону, наступившему на собственные причиндалы. В работе гитаристов и басилы время от времени слышатся даже намеки на умение играть на инструментах, что в музыке Каннибалов я могу наблюдать впервые (не считая Live Cannibalism). Мазуркевич тоже начинает потихоньку осознавать, что на барабанах время от времени можно играть , а не молотить, что также довольно радует слуховой аппарат. Обложка представляет собой истинно КАННИБАЛЬСКИЙ полет фантазии, который лучше спрятать от посторонних глаз, если не хотите найти пристанище в желтом домике по доносу соседа по коммуналке или собственной бабушки... Словом, наслаждайтесь, товарищи дэзеры! Это приказ. </p>
+
+Автор: Blackvdaergl
+
+### 17.05.2002 news WIN FREE MUSIC!!!
+
+<P>WIN FREE MUSIC!!! </P></>
+<P> </P></>
+<P>Spitfire Records and Metal Maniacs presents: </P></>
+<P> </P></>
+<P>..the compilation featuring Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) and MORE. 15 bands, one CD and all you need to do to snag a copy is answer some simple metal trivia questions (below). </P></>
+<P> </P></>
+<P>RULES: Answer the questions. Win the goods. It's THAT simple. ALL ENTRIES MUST BE SENT TO: maniacsmail@yahoo.com or maniacsmail@metalmaniacs.com </P></>
+<P>(any entries sent to this address will not be accepted) </P></>
+<P>or snail mailed to: </P></>
+<P> </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Include your full name, address, phone # and e-mail. All entries must be in by Monday, June 10th. </P></>
+<P> </P></>
+<P>1. Which drummer played on the Megadeth track “Peace Sells”? </P></>
+<P>2. What does Deicide’s Glen Benton have burned into his forehead? </P></>
+<P>3. Crowbar’s Kirk Windstein also performs with which New Orleans supergroup? </P></>
+<P>4. The new Pissing Razors album is called ‘Where We Come From’. Where DO they come from? </P></>
+<P>5. Chris Barnes of Six Feet Under is previously of what band? </P></>
+<P>6. Which South Carolina band opened for Cradle Of Filth on their 2001 North American tour? </P></>
+<P>7. Name five bands Danny Lilker has played in. </P></>
+<P>8. What legendary NYHC band was fronted by Pro Pain’s Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 17.05.2002 news Играйте и выигрывайте!!!
+
+<P>Дорогие маздайцы! Вы можете принять участие в конкурсе проводимом лэйблом Spitfire Records и журналом Metal Maniacs. Если вы правильно ответите на приведенные ниже вопросы то станете обладателем одного из сборника "DERANGED" с участием Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) и др. (всего 15 групп). </P></>
+<P> </P></>
+<P>Все ответы (написанные хорошим английским языком) должны быть посланы на e-mail: maniacsmail@yahoo.com или maniacsmail@metalmaniacs.com </P></>
+<P> </P></>
+<P>Также вы можете послать их по почте: </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Незабудьте вписать свое имя, почтовый адрес, телефон и e-mail. Крайний срок приема ответов - 10-е июня. </P></>
+<P> </P></>
+<P>Вопросы: </P></>
+<P> </P></>
+<P>1. Какой барабанщик играл в треке Megadeth - “Peace Sells”? </P></>
+<P>2. Что любит поджигать Deicide’овский Glen Benton у себя на лбу? </P></>
+<P>3. В какой Нью-Орлеанской супергруппе играет Kirk Windstein из Crowbar? </P></>
+<P>4. Новый альбом Pissing Razors называется ‘Where We Come From’. Так откуда именно они пришли? </P></>
+<P>5. В какой команде раньше участвовал Chris Barnes из Six Feet Under? </P></>
+<P>6. Какая команда из Южной Каролины разогревала Cradle Of Filth в их Северо-американском туре 2001 года? </P></>
+<P>7. Перечислите пять групп в которых играл Danny Lilker? </P></>
+<P>8. В какой легендарной Нью-Йоркской команде выступал фронтмен Pro Pain - Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 19.09.2002 news Worm Infested....
+
+<p><IMG SRC="/images/news/2002.09/3199.jpg" ALT="pho" width=265 height=265 hspace="15" vspace="5" border="1" align="right"> CANNIBAL CORPSE will be releasing “Worm Infested”, a six song EP including three unreleased tracks from their most recent release, “Gore Obsessed”, a Japanese bonus track, a European bonus track, and a limited edition bonus track that appeared on “Gore Obsessed. “Worm Infested” is a strictly limited edition collectors EP, which will only be available through the initial pressing. Release date is the 7th of October, 2002. <BR><BR> "Worm Infested" tracklisting:<BR><BR> 1. Systematic Elimination - PREVIOUSLY UNRELEASED<BR> 2. Worm Infested - PREVIOUSLY UNRELEASED<BR> 3. Demon’s Night - PREVIOUSLY UNRELEASED (cover song of ACCEPT)<BR> 4. The Undead Will Feast - PREVIOUSLY RELEASED ONLY IN JAPAN<BR> 5. Confessions - PREVIOUSLY RELEASED ON EUROPEAN VERSION OF LIVE CANNIBALISM<BR> 6. No Remorse - PREVIOUSLY RELEASED AS A LIMITED EDITION BONUS TRACK ON GORE OBSESSED</p>
+
+Автор: Yermola
+
+### 19.09.2002 news Зараженный червячками...
+
+<p><IMG SRC="/images/news/2002.09/3199.jpg" ALT="pho" width=265 height=265 hspace="15" vspace="5" border="1" align="right"> Заслуженные людоеды CANNIBAL CORPSE выпускают шестипесенный ЕР “Worm Infested” с тремя ранее не реализованными треками и японским и европейским бонус-треками. Дата выхода - 7 октября. <BR><BR> Список песен:<BR><BR> 1. Systematic Elimination - ранее не выходил<BR> 2. Worm Infested - ранее не выходил<BR> 3. Demon’s Night - ранее не выходил (кавер песни ACCEPT)<BR> 4. The Undead Will Feast - ранее выходил только в Японии<BR> 5. Confessions - выходил только на европейской версии LIVE CANNIBALISM<BR> 6. No Remorse - выходил как бонус трек на GORE OBSESSED</p>
+
+Автор: Yermola
+
+### 01.11.2002 news Malevolent Creation to tour with Cannibal Corpse...
+
+<p>Hot off the heels of the release of The Will To Kill, Malevolent Creation waste no time in bringing the devastating new material into the live arena. Malevolent Creation will be heading out on the second leg of the most extreme tour of the fall, joining friends and fellow Floridian's Cannibal Corpse as they trek through and crush Southern audiences. This string of shows will mark the first time that Malevolent Creation have toured the States in five years. Confirmed tour dates as of today are below. <BR><BR> Members of Malevolent Creation will be available for Interviews during their time on the road. For interview or guest list requests, please respond here. Requests are limited and on a first come first serve basis. <BR><BR> The Will To Kill hits the streets this Tuesday, November 5. Full scale touring of Europe and America will commence in 2003. <BR><BR> Tour Dates:<BR><BR> 12/9 San Antonio, TX - Sunset Station <BR> 12/10 Fort Worth, TX - Canyon Club <BR> 12/11 New Orleans, LA - Shim Sham Club <BR> 12/13 Winston-Salem, NC - Ziggy's <BR> 12/14 Spartanburg, SC - Ground Zero <BR> 12/15 Ft. Lauderdale, FL - Culture Room <BR> 12/16 Orlando, FL - The Social <BR> (Possible addition of more West Coast dates to follow. )</p>
+
+Автор: Yermola
+
+### 24.11.2002 news Malevolent Creation выступят на Wacken Open Air 2003
+
+<p>Malevolent Creation анонсировали своё участие в легендарном фестивале Wacken Open Air в 2003 году. Уже известно, что наряду с ними будут участвовать Iced Earth, Stratovarius, Nile, Gamma Ray и Dark Angel. После выхода восьмого студийного альбома группа планирует отправится в массивный тур, в том числе по Штатам вместе с Cannibal Corpse.</p>
+
+Автор: Vit Belov
+
+### 24.11.2002 news Malevolent Creation News
+
+<p>Malevolent Creation have officially been confirmed to perform at one of Europe's hottest summer season metal events, the prestigious Wacken Open Air Festival. Malevolent Creation have the honor of being in the first handful of confirmed bands, joining the likes of Iced Earth, Stratovarius, Nile, Gamma Ray and a reunion by California's Dark Angel that so far have been announced.</p>
+<p>Malevolent Creation Tour Dates w/Cannibal Corpse December 2002 <br> 12/8 El Paso, TX Club 101 <br>12/9 San Antonio, TX - The White Rabbit <br>12/10 Dallas, TX - Canyon Club <br>12/11 New Orleans, LA - Shim Sham Club <br>12/13 Winston-Salem, NC - Ziggy's <br>12/14 Spartanburg, SC - Ground Zero <br>12/15 Ft. Lauderdale, FL - Culture Room 12/16 Orlando, FL - The Social</p>
+
+Автор: Vit Belov
+
+### 13.04.2003 news Каннибалы готовят новую жертву
+
+<p>Американские брутальщики из CANNIBAL CORPSE готовятся к записи своего нового альбома. Запись начнется ближе к осени в Sonic Ranch Studios с продюссером Neil Kernon. Альбом пока не имеет названия и точной даты выхода, но предварительно релиз намечен на конец 2003 года.</p>
+
+Автор: Dimas
+
+### 15.05.2003 news CANNIBAL CORPSE news...
+
+<p>The masters of death metal, CANNIBAL CORPSE, have just reached the one million mark for combined sales of all their albums. This is a great achievement not only for the band and label but also for all death metal bands out there. It is not very often a truly heavy metal band reaches the Platinum mark and it just goes to show that it is possible. CANNIBAL CORPSE is one of the most prominent death metal bands ever unleashed upon the scene and have not let up since they started in 1990. Only a truly remarkable band such as CANNIBAL CORPSE can continue to reach their fans and still mean something to the death and heavy metal world...and reaching the one million mark proves it! So big congratulations go out to CANNIBAL CORPSE from all their friends and fans here at Metal Blade! <BR> The band is set to record their new album in September at Sonic Ranch Studios in El Paso, Texas, with producer Neil Kernon.</p>
+
+Автор: Yermola
+
+### 29.05.2003 news DVD от CANNIBAL CORPSE
+
+<p>Легенда death metal CANNIBAL CORPSE планирует к выпуску в ноябре бокс-сет из DVD и трех аудио-дисков. На аудио-диски войдет материал с первой демо-записи группы, три кавера, нереализованный альбом "Created To Kill" (записанный во время рекорд-сессии к альбому "Vile", еще с Chris Barnes на вокале) и коллекция лучших вещей группы составленная самими музыкантами и представителями Metal Blade. На DVD можно будет увидеть запись выступления CANNIBAL CORPSE в Москве (25 мая 1993 года), записи с самого первого выступления группы, когда она открывала концерт DARK ANGEL, а также фрагменты выступленя коллектива на двадцатилетней годовщине Metal Blade.</p>
+
+Автор: Dimas
+
+### 16.09.2003 news CANNIBAL CORPSE вошли в студию
+
+CANNIBAL CORPSE вошли в студию 15 сентября для записи новой пластинки, которая выйдет в начале 2004 года на Metal Blade Records. Запись пройдёт опять в Sonic Ranch Studios с продюсером Neil Kernon (NEVERMORE, JUDAS PRIEST).
+Автор: Vit Belov
+
+### 18.09.2003 news CANNIBAL CORPSE will be heading back to the studio ...
+
+The true leaders of death metal CANNIBAL CORPSE will be heading back to the studio on September 15th, 2003 to start the recording process for the follow up to their highly praised release "Gore Obsessed". The band will once again record at Sonic Ranch Studios in El Paso, Texas with Neil Kernon. More information including the album title will be announced shortly.
+Автор: Yermola
+
+### 22.10.2003 news Cannibal Corpse назвали новый альбом
+
+<P>Новый альбом <B>CANNIBAL CORPSE</B> будет называться "<B>The Wretched Spawn" </B>и выйдет в феврале на <B>Metal Blade.</B> Трэк-лист:</P>
+<P>01. <B>Severed Head Stoning</B> <BR>02. <B>Psychotic Precision</B> <BR>03. <B>Decency Defied</B> <BR>04. <B>Frantic Disembowelment</B> <BR>05. <B>Rotted Body Landslide</B> <BR>06. <B>Cyanide Assassin</B> <BR>07. <B>Festering In The Crypt</B> <BR>08. <B>Nothing Left To Mutilate</B> <BR>09. <B>Blunt Force Castration</B> <BR>10. <B>The Wretched Spawn</B> <BR>11. <B>Slain</B> <BR>12. <B>Bent Backwards And Broken</B> <BR>13. <B>They Deserve To Die</B> </P>
+Автор: Vit Belov
+
+### 27.10.2003 news CANNIBAL CORPSE продали миллион альбомов!
+
+Цифры продаж культовой флоридской death metal банды <B>CANNIBAL CORPSE</B> достигли миллиона копий. Это большая редкость, учитивая специфику стиля, поэтому группа этим очень гордится.
+Автор: Darkfall
+
+### 06.01.2004 news Finnish Metal Awards 2003
+
+<P>3 января в Tavastia Club прошло вручение наград Finnish Metal Awards 2003. Вот список победителей:&nbsp;&nbsp;</P>
+<P>Группа года в Финляндии: <B>CHILDREN OF BODOM</B> <BR>Открытие года в Финляндии: <B>MACHINE MEN</B> <BR>Альбом года в Финляндии: <B>KOTITEOLLISUUS – "Helvetist&auml; It&auml;&auml;n"</B> <BR>Группа года: <B>IRON MAIDEN</B> <BR>Открытие года: <B>EVANESCENCE</B> <BR>Альбом года: <B>IRON MAIDEN – "Dance of Death"</B> <BR>Продюссер года: <B>Mikko Karmila</B> <BR>Metal Video года: <B>KOTITEOLLISUUS – "Min&auml; Olen"</B> <BR>Metal-событие года: <B>Tuska Metal Festival</B> <BR>Также специальной премией за вклад в музыкальную культуру были награждены <B>CANNIBAL CORPSE.</B> </P>
+Автор: Uneral
+
+### 06.01.2004 news FINNISH METAL AWARDS 2003
+
+The 2003 installment of the <B>Finnish Metal Music Awards</B> (<B>Sirkkelirock 2003</B>) was held this past Saturday (January 3) at Tavastia Club in Helsinki.<BR><BR>The winners are as follows:<BR><BR>Finnish Band of the Year: <B>CHILDREN OF BODOM</B> <BR>Finnish Newcomer of the Year: <B>MACHINE MEN</B> <BR>Finnish Album of the Year: <B>KOTITEOLLISUUS – "Helvetist&auml; It&auml;&auml;n"</B> <BR>International Band: <B>IRON MAIDEN</B> <BR>International Newcomer: <B>EVANESCENCE</B> <BR>International Album: <B>IRON MAIDEN – "Dance of Death"</B> <BR>Producer of the Year: <B>Mikko Karmila</B> <BR>Metal Video of 2003: <B>KOTITEOLLISUUS – "Min&auml; Olen"</B> <BR>Metal Event of 2003: <B>Tuska Metal Festival</B> <BR><BR>In addition, <B>Sirkkelirock</B> presented a special Lifetime Achievement Award to <B>CANNIBAL CORPSE</B> for acknowledged work in metal music.<BR>
+Автор: Uneral
+
+### 10.04.2004 reviews Никогда не тормозите
+
+<DIV><B>CANNIBAL CORPSE</B> - группа, которую снова начинаешь оценивать, когда пропадает юношеский максимализм.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Death-metal продолжает занимать свою нишу, и порой не хватает такого "безбашенного" долбилова, которое невозможно не встретить на любом альбоме Каннибалов. <B>'The Wretched Spawn'</B> - кусок бескомпромиссного death-metal. Тошнотворное оформление,&nbsp;забойные песни и безупречная реализация от классиков&nbsp;жанра снесут крышу любому.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Говорить-то больше и не о чем, но главный рецепт успеха от <B>CANNIBAL CORPSE</B> понятен уже давно. Отбросьте все попытки выпендриться в игре на инструментах, забудьте про мелодии и, главное, никогда не тормозите.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>P.S.: <B>'The Wretched Spawn'</B> послушайте эту песню, может&nbsp;с группой не всё так ладно:)))&nbsp;</DIV>
+Автор: Vit Belov
+
+### 03.05.2004 news CANNIBAL CORPSE покинул гитарист
+
+Из <B>CANNIBAL CORPSE</B> ушёл гитарист <B>Jack Owen</B>, который провёл в группе 15 лет. Он сообщил в своём официальном заявлении, что его больше не интересует творчество в рамках группы, что негативно сказывалось на его работе. Музыкант собирается продолжить карьеру со своей другой группой<B> ADRIFT</B>.
+Автор: Vit Belov
+
+### 20.05.2004 news CANNIBAL CORPSE назвали имя нового гитариста
+
+<P><B>Jeremy Turner</B> (ex-<B>ORIGIN</B>) заменил на посту гитариста <B>CANNIBAL CORPSE Jack Owen</B>, который покинул группу в этом месяце.</P>
+Автор: Vit Belov
+
+### 27.06.2004 reviews Творения этой команды более не интересны
+
+<P>CANNIBAL CORPSE… Я уж было и забыл об их существовании. И не получи я этот диск в качестве промки, вряд ли бы его купил. Не буду выдавливать из себя пафосное «Я вырос из этой музыки», хоть это вполне может быть и правдой. Просто мне творения этой команды более не интересны. Это отнюдь не значит, что они плохи. Всего лишь «не моё». И, тем не менее, послушать пришлось. Что ж, недурно. По крайней мере, я даже ни разу не зевнул. Уже можно лепить десять из десяти, - как вы думаете?.. ;-) ЧТО играет эта команда, думаю, пояснять не стоит. Гхм. А о чём же рассказывать?.. О том, что “The Wretched Spawn”, на мой взгляд, блестяще записан и музыкально не так банален, как можно было бы подумать? Так ведь это и все так знают. Что ещё? Да ничего. Дэтстеры порадуются, купив этот альбом. А такие как я запросто обойдутся и без него. </P>
+Диск предоставлен компанией ФОНО
+Автор: Kai Mathias Stalhammar
+
+### 10.09.2004 news CANNIBAL CORPSE в Spb
+
+<CENTER><IMG height=300 src="/images/shows_rus/2004.08/6966.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 21.10.2004 news CANNIBAL CORPSE рассказывают о проблемах в странах СНГ
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Alex</STRONG>&nbsp;из <STRONG>CANNIBAL CORPSE</STRONG>&nbsp;опубликовал следующее заявление на официальном сайте группы (сокращённый вариант):</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Мы только что вернулись из Европейского тура. У нас было несколько отличных концертов в Литве, Латвии, Польше... После этого мы должны были ехать в Беларусь, где в Минске было продано 1000 билетов и в Киев, где было продано 1200. На границе с Беларусью нас продержали 9 часов, мы еле-еле успели к месту проведения концерта, но выяснилось, что наш гиг был запрещён правительством. На следующий день нам надо было в Киев, но нас продержали ещё на таможне и при выезде и страны, и при въезде на Украину до часу ночи следующего дня, что не оставило нам шанса отыграть и в Киеве. На этом наши приключения не закончились. Мы должны были успеть на концерт в Сербию, а дороги на Украине худшие, что я видел. Мы были в клубе в Белграде в пол первого ночи и всё-таки отыграли шоу</EM>".</FONT></P>
+<P>К сожалению, <STRONG>Alex</STRONG> не написал ничего про концерты в России, зато теперь понятно, отчего появились слухи об отмене шоу в Москве и Петербурге.</P>
+Автор: Vit Belov
+
+### 22.09.2005 news CANNIBAL CORPSE в студию!
+
+<P><B>CANNIBAL CORPSE</B> готовятся войти 17 октября в санкт-петерсбургскую <STRONG>Mana Studios,</STRONG> что во Флориде, где вместе с продюсером <B>Erik Rutan</B> (<B>MORBID ANGEL</B>, <B>HATE ETERNAL</B>) начнут запись своего десятого альбома, выход которого ожидается в марте 2006 года на&nbsp;<B>Metal Blade Records</B>. Запись и микширование альбома планируется закончить к декабрю. Музыканты обещают, что их новое творение будет самым тяжелым и&nbsp;самым брутальным за всю историю коллектива.</P>
+Автор: Dimas
+
+### 07.12.2005 news Rob Barrett вернулся в CANNIBAL CORPSE
+
+<P>Гитарист <STRONG>Rob Barrett</STRONG> занял место ушедшего <STRONG>Jack Owen</STRONG> в <STRONG>CANNIBAL CORPSE</STRONG>. <STRONG>Rob </STRONG>играл в коллективе с 1993 по 1997 год в момент записи альбомов "<STRONG>Bleeding</STRONG>" и "<STRONG>Vile</STRONG>". Теперь он написал одну песню для новой работы мясников "<STRONG>Kil</STRONG>l", выходящей 26 марта на<STRONG> Metal Blade</STRONG>. </P>
+Автор: Vit Belov
+
+### 12.12.2005 news Детали нового CANNIBAL CORPSE
+
+<P>Как уже сообщалось, 21 марта на <STRONG>Metal Blade</STRONG> выходит новый альбом <STRONG>CANNIBAL CORPSE "Kill</STRONG>". Стал известен трэк-лист пластинки:</P>
+<P>01. <B>The Time To Kill Is Now</B> <BR>02. <B>Make Them Suffer</B> <BR>03. <B>Murder Worship</B> <BR>04. <B>Submerged In Boiling Flesh</B> <BR>05. <B>Five Nails Through The Neck</B> <BR>06. <B>Purification By Fire</B> <BR>07. <B>Death Walking Terror</B> <BR>08. <B>Barbaric Bludgeonings</B> <BR>09. <B>The Discipline Of Revenge</B> <BR>10. <B>Brain Removal Device</B> <BR>11. <B>Necrosadistic Warning</B> <BR>12. <B>Maniacal</B> <BR>13. <B>Infinite Misery</B> <BR>Гитарист <STRONG>Webster</STRONG>: "<EM>Осталось несколько дней, и альбом будет окончательно готов</EM>".</P>
+Автор: Vit Belov
+
+### 15.03.2006 news DVD от CANNIBAL CORPSE
+
+<P>На лимитированное издание нового альбома <STRONG>CANNIBAL CORPSE "Kill"</STRONG> войдёт DVD с концертом "<STRONG>Hammer Smashed Laiterie</STRONG>", записанным в 2004 году в Страсбуре. Трэк-лист концерта:</P>
+<P>01. <B>Shredded Humans</B><BR>02. <B>Puncture Wound Massacre</B><BR>03. <B>Fucked With A Knife</B><BR>04. <B>Stripped, Raped And Strangled</B><BR>05. <B>Decency Defied</B><BR>06. <B>Vomit The Soul</B><BR>07. <B>Unleashing The Bloodthirsty</B><BR>08. <B>Pounded Into Dust</B><BR>09. <B>The Cryptic Stench</B><BR>10. <B>They Deserve To Die</B><BR>11. <B>Dormant Bodies Bursting</B><BR>12. <B>Gallery Of Suicide</B><BR>13. <B>Pit Of Zombies</B><BR>14. <B>The Wretched Spawn</B><BR>15. <B>Devoured By Vermin</B><BR>16. <B>A Skull Full Of Maggots</B><BR>17. <B>Hammer Smashed Face</B> </P>
+Автор: Vit Belov
+
+### 17.01.2007 news MORTEM поедут в тур с CANNIBAL CORPSE
+
+<P><STRONG>CANNIBAL CORPSE</STRONG> объявили даты своего ближайшего тура по Западной Европе. Одной из суппорт-команд будет российская death-metal группа<STRONG> MORTEM</STRONG>. С 15 по 24 марта группа выступит в Эстонии, Финляндии, Швеции, Дании, Германии, Голландии и Бельгии.</P>
+Автор: Vit Belov
+
+### 16.06.2007 news CANNIBAL CORPSE в Москве
+
+<CENTER><IMG height=552 src="/images/shows_rus/2007.06/11658.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 07.07.2007 news CANNIBAL CORPSE рассказывают о России
+
+<P><STRONG>CANNIBAL CORPSE</STRONG> вернулись из своего европейского турне и опубликовали свои впечатления об этой поездке. Группа рассказала немного и о своих концертах в Москве и Санкт-Петербурге:</P>
+<P>"<EM>После фестиваля Graspop у нас был один выходной во Франкурте, после которого мы отправились в Санкт-Петербург. У нас было очень хорошее выступление в этом городе, также мы были счастливы пообщаться с фэнами после выступления. Один из фэнов объявил нам, что мы находимся в городе во время "Белых Ночей" Санкт-Петербурга. Да, мы в этом уверены, даже после шоу на улице было светло. После этого на ночном поезде мы отправились в Москву. Это было наше третье выступление в этом городе, и мы были счастливы вернуться. Из всех состоявшихся концертов московский был самым энергичным со стороны аудитории. Тотальная рубка и стэйдждайвинг. Также мы были рады пожать руки многим фэнам после концерта, подобной возможности в прошлые приезды у нас не было</EM>".</P>
+<P>Стоит отметить, что сама группа на концерте была несколько пассивна. А уж в желании "поручкаться" с фэнами, залезавшими на сцену, музыкантов и вовсе упрекнуть нельзя.</P>
+Автор: Vit Belov
+
+### 11.01.2008 news CANNIBAL CORPSE собираются в студию
+
+<P>Басист <STRONG>CANNIBAL CORPSE Alex Webster</STRONG> рассказал о планах группы. Музыканты пишут новый материал и планируют войти в студию в сентябре. Новый альбом <STRONG>CANNIBAL CORPSE</STRONG> выйдет лишь в 2009 году.</P>
+Автор: Vit Belov
+
+### 05.11.2008 news Новый альбом CANNIBAL CORPSE
+
+<P><STRONG>CANNIBAL CORPSE</STRONG> назвали свой новый альбом <STRONG>"Evisceration Plague". </STRONG>Пластинка выйдет 3 февраля на <STRONG>Metal Blade</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Priests of Sodom</B><BR itxtvisited="1">02. <B itxtvisited="1">Scalding Hail</B><BR itxtvisited="1">03. <B itxtvisited="1">To Decompose</B><BR itxtvisited="1">04. <B itxtvisited="1">A Cauldron of Hate</B><BR itxtvisited="1">05. <B itxtvisited="1">Beheading and Burning</B><BR itxtvisited="1">06. <B itxtvisited="1">Evidence in the Furnace</B><BR itxtvisited="1">07. <B itxtvisited="1">Carnivorous Swarm</B><BR itxtvisited="1">08. <B itxtvisited="1">Evisceration Plague</B><BR itxtvisited="1">09. <B itxtvisited="1">Shatter Their Bones</B><BR itxtvisited="1">10. <B itxtvisited="1">Carrion Sculpted Entity</B><BR itxtvisited="1">11. <B itxtvisited="1">Unnatural</B><BR itxtvisited="1">12. <B itxtvisited="1">Skewered From Ear to Eye</B></P>
+Автор: Vit Belov
+
+### 18.12.2008 news Обложка CANNIBAL CORPSE
+
+<P>
+<CENTER><STRONG>CANNIBAL CORPSE</STRONG> опубликовали обложку выходящегог 3-го февраля нового альбома <STRONG>"Evisceration Plague".</STRONG></CENTER>
+<P></P>
+<P><STRONG>
+<CENTER><IMG height=390 src="/images/news_rus/2008.12/13207.jpg" width=400 border=0></STRONG></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 05.01.2009 news Alex Webster назвал лучших
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=254 alt="" hspace=0 src="/images/news_rus/2009.01/13294.jpg" width=300 align=left border=5>Басист&nbsp;<STRONG>CANNIBAL CORPSE Alex Webster</STRONG> назвал лучшие, по его мнению, альбомы 2008 года. </FONT></P>
+<P><STRONG>MESHUGGAH</STRONG>'s <B itxtvisited="1">"ObZen"</B>:<BR itxtvisited="1">"<EM>Этот альбом показывает, как группа с необычной музыкой может записывать запоминающиеся песни. Ребята обладают великолепной техникой, но используют её для сочинения классного материала, а не для того, чтобы просто её показать</EM>".</P>
+<P><STRONG>JEFF LOOMIS</STRONG>' <B itxtvisited="1">"Zero Order Phase"</B>:<BR>"<EM>Этот альбом один из самых любимых инструментальных для меня, по причине использования более тяжёлого саунда, чем обычно принято в подобных пластинках. Я люблю инструментальную музыку, и я люблю тяжёлую музыку. Этот альбом обладает двумя этими качествами</EM>".</P>
+<P><STRONG>HOUR OF PENANCE</STRONG>'s <B itxtvisited="1">"The Vile Conception"</B>:<BR itxtvisited="1">"<EM>Ультра-брутальный и&nbsp;быстрый death-metal, напомнивший мне смесь MORBID ANGEL и KRISIUN, что для тех, кто знает мои музыкальные вкусы, является высочайшим комплиментом. Великолепный альбом, рекомендую всем фэнам death-metal</EM>".</P>
+<P><STRONG>PSYCROPTIC</STRONG>'s <B itxtvisited="1">"Ob(Servant)"</B>:<BR>"<EM>Альбом с одной из&nbsp;плотнейших работ гитариста/барабанщика/басиста за всю историю. Группа играет, как разрушающая всё металл-машина</EM>".</P>
+<P><STRONG>SKELETON OF GOD</STRONG>'s <B itxtvisited="1">"Primordial Dominion"</B>:<BR itxtvisited="1">"<EM>Это очень тяжёлый, но психоделичный альбом. На пластинке куча интереснейших идей, но он достаточно тяжёл, чтобы находится в моём плэйере наряду с death-metal альбомами</EM>".</P>
+Автор: Vit Belov
+
+### 09.01.2009 news Новый трэк CANNIBAL CORPSE
+
+<P><STRONG>Metal Blade</STRONG> выложили на своём сайте новую песню <STRONG>CANNIBAL CORPSE</STRONG> <STRONG>"Evisceration Plague".</STRONG></P>
+<P>Ссылка: <A href="http://www.metalblade.com/cannibalcorpse/preorder.html">http://www.metalblade.com/cannibalcorpse/preorder.html</A></P>
+Автор: Vit Belov
+
+### 28.01.2009 news Новый CANNIBAL CORPSE на MySpace
+
+<P>Новый альбом <STRONG>CANNIBAL CORPSE</STRONG> <STRONG>"Evisceration Plague" </STRONG>можно послушать на<STRONG> MySpace</STRONG> страничке группы. Пластинка выйдет 3 февраля на <STRONG>Metal Blade</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/cannibalcorpse">http://www.myspace.com/cannibalcorpse</A></P>
+Автор: Vit Belov
+
+### 05.02.2009 news Лучшие death-metal песни в истории
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Посетители сайта немецкого издания <STRONG>Metal Hammer</STRONG> определили лучшие death-metal песни в истории. Лучшей композицией признан хит <STRONG>CANNIBAL CORPSE</STRONG> <STRONG>"Hammer Smashed Face"</STRONG>. Вот десятка лучших:</FONT></P>
+<P>01. <B itxtvisited="1">CANNIBAL CORPSE</B> - "Hammer Smashed Face"<BR itxtvisited="1">02. <B itxtvisited="1">ARCH ENEMY</B> - "We Will Rise"<BR itxtvisited="1">03. <B itxtvisited="1">DEATH</B> - "Crystal Mountain"<BR itxtvisited="1">04. <B itxtvisited="1">AMON AMARTH</B> - "Pursuit Of Vikings"<BR itxtvisited="1">05. <B itxtvisited="1">VADER</B> - "Carnal"<BR itxtvisited="1">06. <B itxtvisited="1">SEPULTURA</B> - "Arise"<BR itxtvisited="1">07. <B itxtvisited="1">CARCASS</B> - "Heartwork"<BR itxtvisited="1">08. <B itxtvisited="1">IN FLAMES</B> - "Only For The Weak"<BR itxtvisited="1">09. <B itxtvisited="1">KATAKLYSM</B> - "In Shadows And Dust"<BR itxtvisited="1">10. <B itxtvisited="1">BEHEMOTH</B> - "Christians To The Lions"</P>
+Автор: Vit Belov
+
+### 11.02.2009 news Продажи CANNIBAL CORPSE в США
+
+<P>Новый альбом <STRONG>CANNIBAL CORPSE</STRONG> <STRONG>"Evisceration Plague" </STRONG>был продан в США в количестве 7500 экземпляров в первую неделю после релиза. Это примерно на 25 процентов больше, чем с предыдущим боевиком "<STRONG>Kill</STRONG>", который был продан в количестве 6000. В чарте<STRONG> Billboard</STRONG> пластинка заняла 91-ое место.</P>
+Автор: Vit Belov
+
+### 12.02.2009 news Уточнённые продажи CANNIBAL CORPSE
+
+<P>Лэйбл <STRONG>Metal Blade</STRONG> уточнил первонедельные продажи нового альбома <STRONG>CANNIBAL CORPSE</STRONG> <STRONG>"Evisceration Plague". </STRONG>Цифры выросли до 9600, что вывело группу на 66-ое место в США. Вот позиции в других странах:</P>
+<P>Austria: #41<BR itxtvisited="1">Canada: #38<BR itxtvisited="1">Germany: #42<BR itxtvisited="1">Holland: #105</P>
+Автор: Vit Belov
+
+### 28.02.2009 news Новое видео CANNIBAL CORPSE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на песню<STRONG> CANNIBAL CORPSE</STRONG> <STRONG>"Evisceration Plague"</STRONG>, снятый <STRONG>Dale "Rage" Resteghini</STRONG>, можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/_spX0o2_ecE&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/_spX0o2_ecE&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.03.2009 reviews Угореть, подавившись кишками, не получилось
+
+<P>Отношения с последними пластинками CANNIBAL CORPSE у меня не складываются. Когда-то в конце 90-х мне настолько надоела их музыка, что я, быть может и безосновательно, пытался смешивать классику с грязью. Прибавьте к этому юношеский максимализм и временную пресыщенность музыкой, и вам многое станет ясно. Думается, через подобное отношение к любимым прежде группам многие проходили. Чуть позже я открыл глаза и уши, но CANNIBAL CORPSE отошли от своих корней, попытавшись выдать нечто усложнённое. Опять свидания не получилось. И вот вроде бы час настал, уже второй альбом группы наполнен кровью и мясом, и я готов внимать.</P>
+<P>К несчастью, и здесь случилась небольшая загвоздка. Несколько лет назад я посетил концерт группы в Москве, и мне настолько эта группа показалась пресыщенной тем, что делает… Блин! И вот я снова вставляю в проигрыватель новую работу, но назвать себя беспристрастным слушателем не могу. “Evisceration Plague” не заразил меня своей энергией. За каждым риффом, за каждым воплем Фишера мне чудится усталость и «взрослость». Нет той оголтелой и безбашенной энергии, которая просто-таки необходима подобной музыке. Если уж ты вывалил кишоки на пол и заполнил буклет опухшими зомби, будь добр соответствовать. CANNIBAL CORPSE записали хороший, но рафинированный death-metal альбом. Ни особой тяжести, ни злобы, ни угара… Никто не прокричит уже «Фак Ю» в начале песни, несолидно как-то.</P>
+<P>Спокойная работа. Всё сделано в лучших традициях группы, но на холостых ходах. Угореть не получилось.</P>
+Автор: Vit Belov
+
+### 27.03.2010 news Новое видео CANNIBAL CORPSE
+
+<P>Клип <STRONG>CANNIBAL CORPSE</STRONG> на песню <STRONG>"Priests Of Sodom" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT height=338 width=600><PARAM NAME="movie" VALUE="http://bloody-disgusting.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/4baa6eb264207/10/0/defaultPlayer%5Eplayer.swf/embedundefined/embedundefined"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://bloody-disgusting.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/4baa6eb264207/10/0/defaultPlayer%5Eplayer.swf/embedundefined/embedundefined" type="application/x-shockwave-flash" allowFullScreen="true" allowscriptaccess="always" width="600" height="338"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 30.03.2011 news  Pat O&#39;Brien (CANNIBAL CORPSE), тоже, поиграет в SLAYER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18984.jpg" width=250 height=377>Гитарист группы<STRONG> CANNIBAL CORPSE</STRONG> Пэт О' Браен (<B itxtHarvested="1" itxtNodeId="407">Pat O'Brien</B>, на фото) заменит на боевом посту гитариста <B itxtHarvested="1" itxtNodeId="406">EXODUS</B> Гэри Холта (который, в свою очередь, заменяет<STRONG> Джеффа Хэннемана</STRONG>), когда тот покинет европейский тур <B itxtHarvested="1" itxtNodeId="403">SLAYER</B>, чтобы&nbsp;сыграть 10 апреля со своей группой <B itxtHarvested="1" itxtNodeId="402">EXODUS</B> перед <STRONG>IRON MAIDEN</STRONG>. Концерт пройдёт на стадионе "<STRONG>Estadio Nacional</STRONG>"&nbsp;города Сантьяго (Чили).&nbsp;<B itxtHarvested="1" itxtNodeId="401">Холт </B>заменял <STRONG>Хэннемана</STRONG> начиная с концерта в Австралии, 26 февраля. </P>
+<P>Последнее выступление с <STRONG>Холтом</STRONG> группа <B itxtHarvested="1" itxtNodeId="395">SLAYER</B> отыграет 4 апреля в городе Падова (Италия). <B itxtHarvested="1" itxtNodeId="394">O'Brien</B> присоединиться к <STRONG>SLAYER</STRONG> на концерте 6 апреля в Хорватии и продолжит играть до конца европейского тура, который закончится 14 апреля в Голландии.</P>
+Автор: Headcrusher
+
+### 27.06.2011 news INFERNAL MAJESTY выступят с Corpsegrinder
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реформированные канадские трешеры<STRONG> INFERNAL MAJESTY</STRONG> анонсировали специальный концерт, на котором они вновь исполнят свой классический дебют <STRONG>"None Shall Defy" </STRONG>целиком. Вокальные партии для группы исполнит вокалист <STRONG>CANNIBAL CORPSE George "Corpsegrider" Fisher</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Концерт состоится 20 августа в канадском Ванкувере.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=309 src="/images/news_rus/2011.06/19744.jpg" width=200 border=0></FONT></P>
+Автор: Vit Belov
+
+### 12.01.2012 news CANNIBAL CORPSE выйдет в марте
+
+<P>Новый альбом легендарных <STRONG>CANNIBAL CORPSE "Torture"</STRONG> выйдет в марте на <STRONG>Metal Blade</STRONG>. Работа была записана в сентябре в студии <STRONG>Sonic Ranch</STRONG> с продюсером <STRONG>Erik Rutan (HATE ETERNAL)</STRONG>. </P>
+<P>Подробности последуют.</P>
+<P><center><IMG height=300 src="/images/news_rus/2012.01/22603.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Обложка и новая музыка CANNIBAL CORPSE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.01/22680.jpg" width=475 align=right border=0>Двенадцатый альбом <STRONG>CANNIBAL CORPSE "Torture"</STRONG> выходит 13 марта на <STRONG>Metal Blade</STRONG>. Стал известен трек-лист альбома:</FONT></P>
+<P>01. <STRONG>Demented Aggression</STRONG><BR>02. <STRONG>Sarcophagic Frenzy<BR></STRONG>03. <STRONG>Scourge of Iron<BR></STRONG>04. <STRONG>Encased in Concrete<BR></STRONG>05. <STRONG>As Deep As the Knife Will Go<BR></STRONG>06. <STRONG>Intestinal Crank<BR></STRONG>07. <STRONG>Followed Home Then Killed</STRONG><BR>08. <STRONG>The Strangulation Chair<BR></STRONG>09. <STRONG>Caged...Contorted<BR></STRONG>10. <STRONG>Crucifier Avenged<BR></STRONG>11. <STRONG>Rabid<BR></STRONG>12. <STRONG>Torn Through</STRONG></P>
+<P>Открывашку этого CD можно послушать ниже.</P>
+<P><center><object height="81" width="60%"><param name="movie" value="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F33193806&color=700000&secret_token=s-aWKvH"></param><param name="allowscriptaccess" value="always"></param><embed allowscriptaccess="always" height="81" src="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F33193806&color=700000&secret_token=s-aWKvH" type="application/x-shockwave-flash" width="100%"></embed></object><span><a href="http://soundcloud.com/metalbladerecords/cannibal-corpse-demented">Cannibal Corpse "Demented Aggression"</a> by <a href="http://soundcloud.com/metalbladerecords">Metal Blade Records</a></span></P>
+Автор: Vit Belov
+
+### 15.03.2012 news Новое видео CANNIBAL CORPSE
+
+<P>Новый ролик <STRONG>CANNIBAL CORPSE</STRONG> на песню "<STRONG>Encased In Concrete</STRONG>" можно посмотреть ниже. Трек выйдет на новом <STRONG>"Torture</STRONG>" знаменитых мясников.</P>
+<P><center><iframe width="480" height="270" src="http://ictv-bd-ec.indieclicktv.com/watch/8f5005b7efa647d7a7e08ba60107e36a/iframe.html" frameborder="0" marginheight="0" marginwidth="0" scrolling="no" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 26.09.2014 news Зомби-хоррор от CANNIBAL CORPSE
+
+<P>Новое весёленькое видео на песню <STRONG>CANNIBAL CORPSE "Kill Or Become"</STRONG> можно посмотреть ниже. Трек взят с новейшего альбома "отцов" "<STRONG>A Skeletal Domain</STRONG>", который только что вышел на <STRONG>Metal Blade</STRONG>.</P>
+<P>В России альбом издан Фоно в формате digi-pack, приобрести который, в частности, можно на Горбушке.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/XAIX2vISe3M" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.06.2015 news Фестиваль &quot;Hellfest&quot; | 2015
+
+<P>Не так давно наш фотокор вернулся с поездки на французский фестиваль <STRONG>"Hellfest"</STRONG>, который состоялся с 19 по 21 июня в местечке под названием <STRONG>Clisson</STRONG>.</P>
+<P>В этом году на фестивале выстепали такие группы, как <STRONG>AIRBOURNE</STRONG>, <STRONG>ANTHRAX</STRONG>, <STRONG>IN FLAMES</STRONG>, <STRONG>LAMB OF GOD</STRONG>, <STRONG>KILLING JOKE</STRONG>, <STRONG>GODSMACK</STRONG>, <STRONG>ARMORED SAINT</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>HIRAX</STRONG>,<STRONG> NUCLEAR ASSAULT</STRONG>, <STRONG>VENOM</STRONG>, <STRONG>CHILDREN OF BODOM</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>SATYRICON</STRONG>, <STRONG>AT THE GATES</STRONG>, <STRONG>CANNIBAL CORPSE</STRONG>, <STRONG>CRADLE OF FILTH</STRONG>, <STRONG>MAYHEM</STRONG>, <STRONG>FINNTROLL</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>OBITUARY</STRONG>, <STRONG>ENSIFERUM</STRONG>, <STRONG>DYING FETUS</STRONG>, <STRONG>ALESTORM</STRONG>, <STRONG>BODY COUNT</STRONG>,<STRONG> THE EXPLOITED</STRONG>, <STRONG>RED FANG</STRONG>, <STRONG>MADBALL</STRONG>, <STRONG>EYEHATEGOD</STRONG>, <STRONG>ORCHID</STRONG> и многие другие.</P>
+<P>Ждите в скором времени обширный репортаж в нашем разделе фотогалерей: <A href="/ru/galleries/" target=_blank><U><FONT color=#0000ff>http://musica.mustdie.ru/ru/galleries/</FONT></U></A></P>
+<P>Официальный сайт фестиваля: <A href="http://www.hellfest.fr/">www.hellfest.fr</A> </P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28124.jpg" width=660 height=490> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Cannibal Corpse - сатанисты?

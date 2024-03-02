@@ -111,6 +111,67 @@ Intro for "The Quest For Equilibrium" by Luc Lemay.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2000 news New album of Gorguts
+
+<p> GORGUTS have just gone in the studio to record their new album, "From Wisdom To Hate"! This album will be more catchy than "Obscura" was. This release is set for September.</p>
+
+Автор: Nybras
+
+### 20.07.2000 news Новый альбом канадской группы Gorguts
+
+<p> Канадцы Gorguts в настоящее время занимаются записью своего нового альбома. Называться он будет "From Wisdom To Hate". Релиз намечен на начало осени.</p>
+
+Автор: Nybras
+
+### 22.10.2002 news Самоубийство в GORGUTS ...
+
+<p>Steve MacDonald - барабанщик канадских дэтстеров "GORGUTS" совершил самоубийство. Он повесился после затяжного периода депресии...</p>
+
+Автор: Yermola
+
+### 22.10.2002 news GORGUTS Drummer Commits Suicide ....
+
+<p>Steve MacDonald, drummer for the long-running Canadian death metal act GORGUTS, reportedly hung himself a couple of days ago after battling depression for the last few years. An official statement from the rest of the group is expected by the end of the week.</p>
+
+Автор: Yermola
+
+### 20.04.2011 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19252.jpg" width=250 height=250>Организаторы фестиваля <STRONG>Brutal Assault</STRONG> озвучили несколько новых имён, которые примут участие в фестивале этого года - реанимированные приверженцы хардкора из Бостона <STRONG>BLOOD FOR BLOOD</STRONG>, французские death/black металисты <STRONG>SVART CROWN</STRONG> и чешские пионеры&nbsp;thrash metal&nbsp;<STRONG>DEBUSTROL</STRONG>. </P>
+<P>К сожалению, заявленные ранее канадцы <STRONG>GORGUTS</STRONG> не смогут принят участие в фестивале - группа отменила все свои летние выступления, по причине задержки выхода их нового альбома. </P>
+Автор: Headcrusher
+
+### 12.03.2012 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.03/23250.png" width=300 height=165>Ещё несколько участников добавилось в состав фестиваля <STRONG>"Brutal Assault"</STRONG> этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это - легендарная группа из Северной Каролины<STRONG> CORROSION OF CONFORMITY</STRONG>, канадские дет-металлисты <STRONG>GORGUTS</STRONG>, исландцы <STRONG>SOLSTAFIR</STRONG>, норвежские блэкари <FONT color=#ddd9d0><STRONG>KAMPFAR</STRONG> и поклонники древних египетских культов <STRONG>NILE</STRONG>.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также, одни из пионеров industrual <STRONG>GODFLESH</STRONG>, подтвердили своё участие в фестивале 2012 года.&nbsp;Проект образованный <STRONG>Джастином Бродриком</STRONG>&nbsp;(<FONT color=#ddd9d0>Justin Broadrick) и <STRONG>Джи Си Грином</STRONG> (G. C. Green)</FONT>&nbsp;в 1988 году и успешно просуществовал до 2002 года, после чего, была распущен, но снова вернулась к деятельности в 2010, выступив на нескольких фестивалях.</FONT></P>
+Автор: Headcrusher
+
+### 06.07.2013 news GORGUTS: выход пятого альбома &quot;Colored Sands&quot; не за горами
+
+<P>Канадские&nbsp;technical death&nbsp;металлисты&nbsp;<STRONG>GORGUTS</STRONG> возвращаются со своим пятым альбомом! </P>
+<P>Диск, получивший название <STRONG>"Colored Sands"</STRONG>, выходит 30 августа в Европе и четырьмя днями позже в США на лейбле <STRONG>Season Of Mist</STRONG>.</P>
+<P><STRONG>"Colored Sands"</STRONG> станет первым релизом группы за более чем десятилетнее молчание. Последний студийник <STRONG>GORGUTS</STRONG>&nbsp;под названием&nbsp;<STRONG>"From Wisdom To Hate"</STRONG> увидел свет в марте 2001 года.</P>
+<P>Вдохновением для написания лирики к песням нового альбома, послужила история древнего Тибета и священный знак мандала.</P>
+<P>Трек-лист: 01. <STRONG>Le Toit Du Monde</STRONG> | 02. <STRONG>An Ocean Of Wisdom</STRONG> | 03. <STRONG>Forgotten Arrows</STRONG> | 04. <STRONG>Colored Sands</STRONG> | 05. <STRONG>The Battle Of</STRONG> <STRONG>Chamdo</STRONG> | 06. <STRONG>Enemies Of Compassion</STRONG> | 07. <STRONG>Ember's Voice</STRONG> | 08. <STRONG>Absconders</STRONG> | 09. <STRONG>Reduced To Silence</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25877.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Посоветуйте группы типа Gorguts.

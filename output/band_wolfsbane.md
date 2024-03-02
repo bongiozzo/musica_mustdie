@@ -8,6 +8,39 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.03.2011 news WOLFSBANE: новый EP в апреле
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.03/18863.jpg" width=434 height=258> 
+<P></P>
+<P>Возобновившие свою деятельность британцы <B itxtHarvested="1" itxtNodeId="423">WOLFSBANE</B>, в состав которых входит&nbsp;бывший фронтмен <STRONG>IRON MAIDEN</STRONG> Блейз Бейли (<B itxtHarvested="1" itxtNodeId="421">Blaze Bayley</B>), 9 апреля выпускают свой первый релиз за 17 лет. Миньон, названный <B itxtHarvested="1" itxtNodeId="420">"Did It For The Money"</B>, будет содержать один новый заглавный трек и четыре перезаписанных, из старого&nbsp;наследния группы.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18864.jpg" width=120 height=120>Трек лист<STRONG> "Did It For The Money"</STRONG>:<BR itxtNodeId="415"><BR itxtNodeId="414">01.&nbsp;<B itxtHarvested="1" itxtNodeId="413">Did It For The Money</B> (новый трек)<BR itxtNodeId="412">02.&nbsp;<B itxtHarvested="1" itxtNodeId="411">Limo</B><BR itxtNodeId="410">03.&nbsp;<B itxtHarvested="1" itxtNodeId="409">GSB</B><BR itxtNodeId="408">04.&nbsp;<B itxtHarvested="1" itxtNodeId="407">Killing Machine</B><BR itxtNodeId="406">05.&nbsp;<B itxtHarvested="1" itxtNodeId="405">Dance My Tune</B></P></CENTER>
+Автор: Headcrusher
+
+### 29.08.2011 news WOLFSBANE закончили запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реформированная группа бывшего вокалиста <STRONG>IRON MAIDEN</STRONG> <STRONG>Blaze Bayley WOLFSBANE </STRONG>закончила запись первого за 17 лет студийного полноформатного альбома. Пластинка должна выйти в ноябре.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В апреле уже вышел миньон<STRONG> WOLFSBANE</STRONG> <STRONG>"Did It For The Money", </STRONG>включающий одну новую и четыре перезаписанные классические вещи группы.</FONT></P>
+<P><center><IMG height=299 src="/images/news_rus/2011.08/20823.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 24.10.2011 news WOLFSBANE: обложка &quot;Wolfsbane Save The World&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21672.jpg" width=400 height=400>Британцы <STRONG>WOLFSBANE</STRONG> опубликовали обложку своего нового полноформатника, который скромно назвали <STRONG>"Wolfsbane Save The World"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом можно будет купить через официальный сайт группы по&nbsp;адресу:&nbsp;<A href="http://www.wolfsbanehms.com/">www.wolfsbanehms.com</A>, а также непосредственно на концертах предстоящего тура.</FONT></P>
+Автор: Headcrusher
+
+### 30.12.2011 news Новое видео WOLFSBANE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип группы<STRONG> Blaze Bayley WOLFSBANE</STRONG> на песню "<STRONG>Smoke And Red Light</STRONG>" можно посмотреть ниже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://www.youtube.com/embed/ZaY-WpZfBng?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

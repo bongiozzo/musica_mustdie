@@ -134,6 +134,326 @@ Sterghios Moschos  Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.05.2003 reviews Бог, мир и тишина...
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" width="100%" UNSELECTABLE="on"></TR>
+<TR UNSELECTABLE="on" hb_tag="1"></TR></TBODY></TABLE>
+<BLOCKQUOTE id=9fb992b3>
+<P>Пантеист - приверженец философского учения, отождествляющего Бога и мир. В пантеистических концепциях нередко скрывались натуралистические тенденции, растворявшие бога в природе и подводившие к материализму, представляя собой учения, оппозиционные по отношению к господствовавшему теистическому религиозному мировоззрению. Иногда же в форму пантеизма облекались религиозно-мистические стремления, растворявшие природу в боге.</P>
+<P>"O Solitude" - дебютное творение PANTHEIST. Музыкальный материал группы, на абстрактном уровне, является звуковым рядом пантеизма. Настоящая философская музыка. Сперва, этот проект был задуман как one man band бельгийского музыканта по имени Kostas. Но постепенно стал полноценной группой. Музыка группы просто потрясающая и вызывает бурю чувств и эмоций, несмотря на свою отмороженность. Попробуйте слить воедино творчество DECORYAH, ANATHEMA, THERGOTHON и MY DYING BRIDE и получится PANTHEIST. Воздушно-атмосферная, очень медленная и тяжелая музыка с чередованием гроулинга и одиозного чистого вокала, похоронная торжественность и мрачная депрессивность, вязкие гитары, жалобная скрипка и органные клавишные. Красивая и загадочная музыка. Сами музыканты определяют свою музыку, как funereal doom metal. Подобная музыка вызывает чувство утраты самого дорогого, вводит в депрессию и создает иллюзию бессмысленности жизни, у особо впечатлительных личностей может развиться тяга к суициду. На альбоме сильно влияние классической музыки. Композиция "Envy Us" так и вовсе содержит готовые нарезки из произведений Шопена и Бетховена. Некоторые акустическо-амбиентные вставки содержат фолковые дела. Довольно разнообразная музыка для подобного жанра. Именно этим она и притягивает слушателя. Пять композиций в течение целого часа будут услаждать ваш слух. Чрезвычайно хороший альбом, который не советую пропускать ни одному любителю похоронного doom metal.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P></BLOCKQUOTE>
+Автор: Dimas
+
+### 17.01.2004 reviews По-настоящему грустная музыка
+
+<P>Doom-metal сцена переживает в некотором роде спад. Настоящие шедевры в этом стиле остались в глубоком прошлом, а новые группы стартуют либо в готике, либо выбирают себе отмороженно-экстремальную форму дума - funeral. <B>PANTHEIST</B> предлагается лэйблом отнести к funeral-doom. Не будем выносить поспешных решений. </P>
+<P>В данном конкретном случае мы имеем дело с неким гибридом. Безусловно, есть в творчестве <B>PANTHEIST</B> черты funeral-doom, это грусть, медленное развитие событий (5 песен на 60 минут). В тоже время присутствуют мелодичные проигрыши, побочные инструменты (клавиши, а также некие baglama и oud) и даже быстрые куски близкие к death-metal. Чистый вокал и гроулинг, акустическая гитара. </P>
+<P>Что это за гибрид? Никакой это не гибрид, а как раз точно такая музыка, которую заслушивали до дыр в 90-х годах. <B>PANTHEIST</B> вряд ли возможно сравнить с кем-то из монстров стиля, так как их музыка скорее похоронный марш, чем песня о несчастной любви. Но настроение передано очень сильно, и сыграно очень качественно. Советую всем любителям стиля к немедленному приобретению.</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 01.06.2004 news PANTHEIST переехали в Англию
+
+<P><B>PANTHEIST</B> сменили место проживания. Теперь группа находится в Англии вместо Нидерландов. В <B>PANTHEIST</B> остались только основатель коллектива <B>Kostas Panagiotou </B>и гитарист <B>Nicolas</B>. Коллектив запишет новый альбом <B>'Amartia' </B>осенью с помощью <B>Mark</B>&nbsp;и <B>Andy</B>&nbsp;из <B>ESOTERIC</B>. Пластинка выйдет в начале 2005 года на <B>Firebox</B>.&nbsp;</P>
+Автор: Vit Belov
+
+### 21.07.2005 news Serpent&#39;s Liar продолжают соблазнять зарубежных думстеров
+
+<P>Вслед за переизданием дебюта <STRONG>OFFICIUM TRISTE</STRONG> российский лэйбл <STRONG>Serpent's Liar</STRONG> собирается выпустить мини-альбом от <STRONG>PANTHEIST</STRONG>. Специально для него группа записала 2 новых песни и кавер на песню <STRONG>KATATONIA "For Funeral To Come"</STRONG>. Кроме этого, в качестве бонуса на диск войдёт демо <STRONG>PANTHEIST "1000 years</STRONG>". Общее время звучания диска будет 62 минуты.</P>
+<P>Из других новостей, в группе новый барабанщик <STRONG>Sterghios</STRONG>. Кроме этого, коллектив покинул сооснователь гитарист <STRONG>Nicolas</STRONG>, который уехал в США на ПМЖ.</P>
+Автор: Vit Belov
+
+### 21.07.2005 news New album from PANTHEIST
+
+<P>Message from<STRONG> PANTHEIST</STRONG>:</P>
+<P>"<EM>Greetings,</EM></P>
+<P><EM>Just a small update of news from our camp for whoever is interested.<BR>We have just recorded three new tracks for a forthcoming EP to be released by <STRONG>Serpent's Lair records</STRONG>. The new, lengthy compositions are called '<STRONG>The pains of sleep'</STRONG> and <STRONG>'Pavor Nocturnus'</STRONG> and they have been recorded at <STRONG>The Lodge</STRONG> in Northampton. We have also re-recorded our cover of <STRONG>Katatonia</STRONG>'s '<STRONG>For</STRONG> <STRONG>funerals to come'</STRONG>, to be also included in the EP. The track has been recorded at <STRONG>Priory Studios</STRONG> and engineered by <STRONG>Greg Chandler</STRONG>.<BR>Furthermore, our full <STRONG>'1000 years'</STRONG> demo shall be remastered and included as bonus on the EP. The new material clocks at 29 minutes, so all together you'll get 62 minutes of funereal music. More updates and hopefully a sample will follow soon at the Pantheist site and forum.</EM></P>
+<P><EM>There are also some line-up changes in the band. We welcome <STRONG>Sterghios</STRONG> on drums (ex <STRONG>Monsterworks</STRONG>) who has already recorded with us on the new tracks. Unfortunately, we will also have to say goodbye to our guitar player and co-founding member <STRONG>Nicolas</STRONG>, who is moving to the States for family reasons. We wish him all the best and thank him for his invaluable contribution to the band. </EM></P>
+<P><EM>With that it becomes clear that we are in search for a guitar player right now, so applications are welcome. The ideal candidate should live not too far from the London area, have his own equipment and be able to attend rehearsals regularly. Ability to perform both as lead and rhythm guitarist are essential, as well as an open-minded, creative approach to music. Anyone interested, contact us at </EM><A href="mailto:Pan@doom-metal.com"><EM>Pan@doom-metal.com</EM></A>"</P>
+Автор: Vit Belov
+
+### 05.10.2006 reviews Разговоры с Богом в стиле funeral-doom
+
+<P>Очень тяжело слушать PANTHEIST, когда настроение неподходящее. Очень тяжело его слушать, когда спать хочется. Вообще, funeral doom слушать никогда легко не бывает. Если вам легко его слушать, возможно, что-то не так у вас&#61514;. </P>
+<P>Второй альбом английской группы, вернее англо-греческой группы, PANTHEIST концептуален. Лирически пластинка построена вокруг разговоров с Богом. Разговорах о грехах людей и вере… Соответственно и музыка подобрана к каждой лирике отдельно. Вступительная “Apologeia” сразу настраивает на нужный лад. Церковные песнопения, чистый вокал… Честно говоря, я был бы счастлив услышать такой материал на целом альбоме, но концепция не позволила PANTHEIST обрабатывать эту жилу и дальше. Уже на следующих трэках мелодия временно пропадает, и мы получаем мрачнейший funeral doom с гроулингом и всеми сопутствующими элементами. Далее иногда появляются и клавишные, и вновь чистый вокал, под конец даже элементы black-metal. Общей остаётся мрачнейшая атмосфера, которую группа создаёт с лёгкостью, замораживая слушателя в коридорах своих философствований.</P>
+<P>PANTHEIST являются сейчас одной из самых сильных групп в этом направлении. Группа успешно привлекает как любителей funeral, так и любителей мелодичных death-doom направлений. Последним стоит правда пройти дополнительную подготовку. Например, послушать альбом с утра, чтобы не заснуть. И ни в коем случае не слушать PANTHEIST, находясь за рулём.</P>
+Автор: Vit Belov
+
+### 16.03.2007 reviews Отождествляя Бога с Природой
+
+<P>Наверное, будет всё же неверно трактовать музыку группы Pantheist однозначно как funeral doom. Их вторая работа под названием "Amartia" представляет собой смесь как фьюнерал-дума, так и просто дума, весьма медленного и какого-то, я бы сказал, философского (вообще, пантеизм - это такое философское учение, где Бог отождествляется с Природой, и наоборот). Очень большое внимание уделяется хорам и клавишным, явно ответственным здесь за создание нужной атмосферы. Что-то проскальзывает от My Dying Bride, что-то от Anathema ('Greed'), короче говоря, Кронос сотоварищи (новой "родиной" Pantheist стала Англия, а в состав группы вошли два участника Esoteric) не собираются работать в узких рамках какого-лило стиля, хотя сама основа остается неизменной. Вокал также разный, и гроул, и чистый, ну, и как водится, речитатив. Направленность лирики во многом религиозная, так что можно сказать, что Кронос ведет долгую и неторопливую беседу с Самим, по всей видимости, на темы, далёкие от простых наших земных проблем. Сама же музыка большой оригинальностью не отличается (впрочем, для многих все группы жанра на одно, так сказать, лицо), нет и каких-то сверхсильных эмоций и переживаний, нет и суицидальных настроений, скорее, царит просто весьма печальная (но не мрачная), но где-то и довольно спокойная атмосфера. Композиции выдержаны большей частью в очень медленном темпе, хотя тут и там возникают ускорения, что фьюнерал-думу не очень-то, по большому счету, свойственно. Самой неудачной вещью на альбоме мне представляется 'Wrath', где зачем-то решили сделать блэковую вставку, что как-то совершенно не вяжется с общим настроением "Amartia". Подводя итог, можно сказать, что данная работа Pantheist это просто хороший (фьюнерал-)думовый альбом, не меньше, но и не больше.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 05.01.2011 news PANTHEIST на Grau
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=250 alt="" hspace=0 src="/images/news_rus/2011.01/18012.jpg" width=200 align=right border=0>Британская doom-metal группа <STRONG>PANTHEIST</STRONG> заключила контракт с лэйблом <STRONG>Grau</STRONG>. Под этим значком коллектив планирует издать три альбома, работа над первым из которых сейчас ведётся. Релиз ожидается весной наступившего года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей. Группу покинул басист <STRONG>Mark Bodossian, </STRONG>который перебрался на постоянное место жительства в Норвегию.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

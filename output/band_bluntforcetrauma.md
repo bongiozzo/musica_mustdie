@@ -47,6 +47,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.08.2012 news BLUNT FORCE TRAUMA накормит свинцом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.08/24578.jpg" width=400 height=400>Одни из лучших в своём жанре - техаская crossover формация <STRONG>BLUNT FORCE TRAUMA</STRONG>, готовит к выпуску свой новый альбом. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск получил название <FONT color=#ddd9d0><STRONG>"Let Them Eat Lead"</STRONG>. Обложку к нему нарисовал <STRONG>Craig Holloway</STRONG>(<U><FONT color=#0000ff><A href="http://www.facebook.com/craighollowayart">www.facebook.com/craighollowayart</A></FONT></U>), который также отвечает за партии бас-гитары в группе.</FONT></FONT></P>
+<P>Вот названия некоторых песен:<STRONG> "Let Them Eat Lead"</STRONG>, <STRONG>"Break Down"</STRONG>, <STRONG>"Unstoppable"</STRONG>, <STRONG>"Government Lies"</STRONG>, <STRONG>"Tragedy Vultures"</STRONG>.</P>
+<P>Ещё один примечательный момент&nbsp;- барабанщиком <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLUNT FORCE TRAUMA </STRONG>является<STRONG> Felix Griffin,</STRONG> человек&nbsp;&nbsp;записавший &nbsp;во второй половине 80-х четыре альбома с командой <STRONG>D.R.I.</STRONG></FONT></P>
+<P>Официальные ресурсы группы:</P>
+<P><A href="http://www.facebook.com/bluntforcetraumatx">www.facebook.com/bluntforcetraumatx</A><BR><A href="http://www.myspace.com/thebluntforcetrauma">www.myspace.com/thebluntforcetrauma</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

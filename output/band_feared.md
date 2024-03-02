@@ -36,6 +36,22 @@ thrash death from Sweden
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.06.2016 news Новый альбом FEARED
+
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Седьмой альбом шведов<STRONG> FEARED "Reborn"</STRONG> выходит сегодня. В группе играют такие известные музыканты, как басист <STRONG>Ola Englund</STRONG> (THE HAUNTED, ex-SIX FEET UNDER), вокалист <STRONG>Mario Ramos</STRONG> (DEMONOID) и барабанщик <STRONG>Kevin Talley</STRONG> (SUFFOCATION, DAATH).&nbsp;Приобрести диск можно на сайте группы: <A href="http://www.fearedband.com/">http://www.fearedband.com</A>&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Ниже можно послушать стрим полного альбома:</FONT></P>
+<P>
+<CENTER><iframe width="560" height="315" src="https://www.youtube.com/embed/0lKbY3cT7rw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 03.06.2016 news Seventh album by FEARED
+
+<p>The seventh album of the Swedes <strong>FEARED "Reborn"</strong> was released today. In band play such famous musicians as bassist <strong>Ola Englund</strong> (THE HAUNTED, ex-SIX FEET UNDER), vocalist <strong>Mario Ramos</strong> (DEMONOID) and drummer<strong> Kevin Talley</strong> (SUFFOCATION, DAATH). You can buy this CD on the band's website: <a href="http://www.fearedband.com">http://www.fearedband.com</a> </p><p>Below you can listen to the full stream of the album:</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/0lKbY3cT7rw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -67,6 +67,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.09.2012 news VITAMIN X (Голландия) в Москве
+
+<CENTER><IMG border=0 hspace=5 alt="" vspace=5 src="/images/news_rus/2012.09/24813.jpg" width=400 height=621></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER><A href="http://vitaminx.bandcamp.com/">http://vitaminx.bandcamp.com</A></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Vitamin X (Голландия) + support (21 сентября 2012, Москва)

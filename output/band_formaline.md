@@ -20,6 +20,24 @@ ex FORMALIN
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2006 reviews Горовые песни о приземлённых вещах
+
+<P>Московская группа Formaline (экс-Gutslasher) вряд ли претендует на какие-то музыкальные открытия или откровения. Данный квартет играет некую - и довольно вкусную, надо сказать - смесь из дэт-метала и&nbsp;дэт-кора, напомнившую мне чем-то отдаленно Dying Fetus. Прочитав название композиций данного пятипесенного демо под названием "Gore Conveyer", а именно, 'Rape In Morgue', 'Barbed Wire In Cunt', 'Lesbian Pussy Shredding', 'Anal Sex With Dead Dasha' (Боже, бедная Даша)&nbsp;и 'Cruel Penis Amputation', я было подумал, что сейчас придется иметь дело с порно-грайндом или грайндом по меньшей мере. Но вместо полуминутных песен с блевотным вокалом и невразумительной музыкой, я услышал двух-трехминутные вещицы, в большинстве своем среднетемповые, притом не о каком тупом молотилове речь не идет. Безусловно, запись не лишена минусов, в частности, из ударных слишком сильно "выпирают" тарелки, а уж гитары и бас, которого почти не слышно, нужно было бы прописать пожирнее и посочнее,&nbsp;а вот&nbsp;к записи вокала претензий в общем-то нет. "Формалиновцам" даже удалось сконструировать какую-то мелодию на последенем трэке. Сложно вот так, по пяти песням, оценивать группу в целом, но потенциал у Formaline, без всяких сомнений, есть. Притом они не стараются копировать какие-то западные образцы, а ищут свое индивидуальное звучание, что по-любому, не взирая даже на огрехи в записи, можно только похвалить. Остается пожелать ребятам подготовить побольше материала (ибо пятнадцати минут даже на короткий концерт не хватит) и найти средства на нормальную запись - вот тогда уже можно будет рассматривать Formaline со всей серьезностью. Пока же оставлю "Gore Conveyer" без оценки, ибо малое количество баллов было бы ставить совершенно несправедливо, а на "четверку", пусть даже с минусом, данный диск тоже еще не тянет&nbsp; вследствие слишком небольшой продолжительности и не самого лучшего качества записи (ну а мысленно я поставлю коллективу 7 балов из 10).</P>
+Автор: Ixtiandr
+
+### 06.06.2016 reviews FORMALINE разбальзамировались
+
+<p>Московская death metal команда FORMALINE, некогда набиравшая популярность на локальной сцене, в 2016 году выпустила лишь второй альбом «Corpscience”. Между дебютом и последователем прошло 9 (!!!) лет.</p><p>Сразу видно, что сочинялся и записывался альбом долгое время. Песни не представляют собой единое полотно, не слушаются на одном дыхании, а как-то даже диссонируют, переходя от брутального дэта к его обычной, даже где-то олдскульной форме, а на одном треке слышны даже какие-то элементы industrial. FORMALINE выступают в таком жанре, где разноплановость скорее минус. Слушатель должен настроиться на какой-то лад, получить инъекцию брутала или драйва и спокойно перейти к другому занятию. «Corpscience” несколько раз меняет настроение, и это его явно портит. Кроме этого, альбому явно не хватает запоминающихся ходов, за такое долгое время FORMALINE не удалось сочинить чего-то сверхинтересного.</p><p>У группы были проблемы всё это время. По не связанным непосредственно с музыкальным творчеством причинам коллектив претерпел некоторое количество изменений в составе и практически приостанавливал собственную деятельность. По словам лидера коллектива Antoni Gutslasher, все неприятности преодолены, и нас ждёт в будущем более быстрый и однородный материал. Что ж, подождём, надеюсь не 9 лет.</p>
+Автор: Vit Belov
+
+### 06.06.2016 reviews FORMALINE are not embalmed
+
+<p>Moscow death metal band FORMALINE, gaining popularity on the local scene in 2006, in 2016, released a second album "Corpscience". Between the debut and follower it took 9 (!!!) years.</p><p>It is immediately evident that they was composed and recorded an album for a long time. Songs do not represent a single cloth, do not listen in the same breath, and somehow, even discord, going from brutal death metal to its normal, old-school form, and on one track you can hear even some industrial elements. FORMALINE are in this genre, where the diversity rather negative. The listener must be configured on a footing, to get a shot of brutal or drive safely and go on to another work. "Corpscience" multiple times changes the mood, and it obviously spoils it. In addition, the album clearly lacks the memorable moves in such a long time FORMALINE failed to write something terribly interesting.</p><p>The group had problems all this time. At not connected directly with music reasons the band has undergone a number of changes in the line-up and almost suspended their activities. According to the leader of the team Antoni Gutslasher, all trouble are gone, and we will get more faster and more uniform material in a future. Well, we'll wait, hopefully not 9 years.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Экслюзивное интервью с группой FORMALIN.

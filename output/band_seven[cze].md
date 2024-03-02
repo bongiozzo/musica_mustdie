@@ -104,6 +104,24 @@ prog/heavy-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2011 news Чехи SEVEN подписались на Nuclear Blast
+
+<P>Подопечные гитариста<B> RAGE Виктора Смольского</B> чешская группа <B>SEVEN</B> заключили контракт с <B>Nuclear Blast</B> на выпуск шестого студийного альбома <B>"Freedom Call"</B>. До этого все альбомы коллектива были инструментальные (!!!) и выходили самиздатом (!!!). Лишь изредка чехам подпевали известные вокалисты такие, как <B>Doro Pesch</B> и<B> Blaze Bayley</B>. Также в активе<B> SEVEN</B> европейский тур вместе с <B>RAGE</B>. Новый альбом <B>"Freedom Call" </B>представит слушателям молодого вокалиста <B>Lukas Pisarik</B>. Трек-лист:</P>
+<P>01. <B>Freedom Call</B><BR>02. <B>Brain Eater</B> <BR>03. <B>Get It</B> <BR>04. <B>The Road</B> <BR>05. <B>So Scarred </B><BR>06. <B>Suicide Fall</B> <BR>07. <B>Abandoned</B><BR>08. <B>Wild In The Night</B> <BR>09. <B>The Joker</B> <BR>10. <B>You Steal My Breath</B><BR>11. <B>To Hell</B> <BR>12. <B>War Within</B> <BR>13. <B>Autumn In The Rose Garden</B> (bonus)<BR>14. <B>No Surrender</B> (bonus)</P>
+<P><I>Примечание от автора: Подобный контракт выглядит странным и наводит на некоторые мысли.</I></P>
+ <p><center><object style="height: 390px"><param name="movie" value="http://www.youtube.com/v/Wl6xsOE_W-w?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/Wl6xsOE_W-w?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object>
+Автор: Vit Belov
+
+### 06.08.2011 news Видео-клип SEVEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ролик чешской группы <STRONG>SEVEN</STRONG>, подписанной на <STRONG>Nuclear Blast</STRONG>, на новую песню <STRONG>"No Surrender" </STRONG>можно посмотреть ниже. Трек выйдет 2 сентября на новом альбоме коллектива <STRONG>"Freedom Call".</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER><iframe width="640" height="390" src="http://www.youtube.com/embed/8xAMBuzdvoc" frameborder="0" allowfullscreen></iframe></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

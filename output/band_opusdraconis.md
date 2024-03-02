@@ -8,6 +8,16 @@ black-metal from Portugal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2004 news Opus Draconis tour
+
+10/01/2004 Opus Draconis / Filii Ningratium Infernalium(Barreiro)<BR>31/01/2004 Opus Draconis / Subculture (Moita)<BR>27/03/2004 Opus Draconis / Acceptus Noctifer(Moita)<BR>10/04/2004 Opus Draconis / Daitya(Cacilhas)<BR>22/05/2004 Opus Draconis / Sortilege (Loulй)<BR>29/05/2004 Opus Draconis / Epping Forest (Barreiro)<BR>24/07/2004 Opus Draconis /Les HeritiersDe La Haine (Franзa) <BR>29/08/2004 Opus Draconis / Ortargos (Belgica)<BR>&nbsp;<BR>Opus Draconis from Portugal visit website <A href="http://www.opusdraconis.cjb.net/"><U>http://www.opusdraconis.cjb.net</U></A><BR>&nbsp;<BR>* More info visit Links (Gigs)<BR>Sunday 29th of August 
+<DIV>&nbsp;</DIV>
+<DIV>Southern War Machine Fest<BR></DIV>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

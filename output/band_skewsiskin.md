@@ -50,6 +50,33 @@ Torn apart
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.12.2003 news Две новые песни от Lemmy
+
+Лидер<B> MOTORHEAD Lemmy Kilmister</B> c пользой провёл время с 15 по 18 декабря в берлинской студии <B>Monongo</B> вместе с<B> SKEW SISKIN</B>.&nbsp; Там была завершена запись&nbsp;двух песен для грядущего сольного альбома.&nbsp;Композиции носят названия <B>"Stand Upon The Mountain"</B>&nbsp;и <B>"Don't Matter To Me".</B> Их авторство принадлежит<B>&nbsp;&nbsp;Lemmy</B>, он же записал на них бас и вокал.
+Автор: Uneral
+
+### 13.01.2005 reviews Скромность украшает женщину
+
+<SPAN lang=RU><SPAN style="COLOR: #ffffff">
+<P><SPAN lang=RU>Что ж, Нине Элис, вокалистке </SPAN><SPAN lang=DE-AT>Skew Siskin, в скромности не откажешь (я про название пластинки). Особенно учитывая тот факт, что судьба была в последние годы совсем немилостива к этой немецкой команде. Последний диск вышел еще в 1999 году, и вот упорная Нина Элис появляется со своим новым детищем. То, что она ярая фанатка </SPAN>Motorhead<SPAN lang=RU>, слышно с первых секунд «Альбома года». Кстати, Лемми Килмистер самолично подпел веселой Нине на одной из песен (квартету также помогал, среди других, Штефан Шварцманн, сыгравший ударные партии почти во всех песнях). Короче, это грязненький такой рок-н-ролл / хард-рок, и если вам понравился бы вариант </SPAN><SPAN lang=DE-AT>Motorhead или AC</SPAN>/DC с женским вокалом, то, возможно, это ваше. Особых хитов тут, пожалуй, нет, все 14 песенок достаточно ровные, хотя порой возникают кое-какие следы разнообразия (возьмите хотя бы приблюзованную ‘Lips’ или “кашмирообразную” ‘Strike Me Blind’). Да, и фанатам Doro<SPAN lang=RU> я бы тоже порекомендовал данный диск к прослушиванию.</SPAN></P>
+<P><SPAN lang=RU>Альбом предоставлен компанией "СД-Максимум"</SPAN></P></SPAN></SPAN>
+Автор: Ixtiandr
+
+### 19.05.2007 news Новый альбом SKEW SISKIN
+
+<P>22 мая выходит новый альбом <STRONG>SKEW SISKIN "Peace Breaker</STRONG>". Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2007.05/11641.jpg" width=200 align=right border=5>01. <STRONG>Metal In Your Face <BR></STRONG>02. <STRONG>We re An Institution<BR></STRONG>03. <STRONG>Ridin With The Devil</STRONG><BR>04. <STRONG>Trouble Shooter</STRONG><BR>05. <STRONG>Hit You Harder</STRONG><BR>06. <STRONG>Who The Hell Are You</STRONG> (special guest on guitar: <STRONG>Wolf Hoffmann</STRONG> [Accept])<BR>07. <STRONG>War, Fire, Guns & Blood</STRONG><BR>08. <STRONG>I Wanna Be Me<BR></STRONG>09. <STRONG>Eva Braun Is Back In Town<BR></STRONG>10. <STRONG>I Don t Care</STRONG> (special guest on guitar: <STRONG>Ivan Kral</STRONG> [Iggy Pop / Patti Smith])<BR>11. <STRONG>Loser<BR></STRONG>12. <STRONG>Can't Hear You<BR></STRONG>13. <STRONG>Shoot The Rats</STRONG></P>
+<P>Одну песню можно послушать на страничке группы: <A href="http://www.myspace.com/skewsiskin">http://www.myspace.com/skewsiskin</A></P>
+Автор: Vit Belov
+
+### 20.02.2009 news SKEW SISKIN пишут альбом
+
+<P><STRONG>SKEW SISKIN</STRONG> записывают новый альбом. Подробности последуют.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

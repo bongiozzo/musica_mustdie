@@ -137,6 +137,126 @@ Guest musicians “Secret Symphony Orchestra” ]
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.06.2001 reviews Второй альбом итальянцев
+
+<p>Второй альбом итальянцев. Прекрасный, симфонически ориентированный альбом группы, являющейся ярким представителем новой волны итальянского power metal (в основном, команды с юга Италии). Музыкально, этот альбом вышел намного разнообразнее дебютного и технически более грамотнее. Интересные композиторские способности музыкантов и великолепные аранжировки. Быстрая чистая тяжелая музыка с многочисленными классическими влияниями, в которой чувствуется что-то от Rhapsody и Labyrinth. Переизбыток замечательных мелодий и оркестровок, вкупе с величественными хорами. Вокалист Roberto со своим высоким и чувственным голосом - один из лучших среди итальянских вокалеров. Его вокал просто превосходно ложится на музыку группы, составляя с ней единое целое. Но самые сильные части диска - инструментальные партии. Видно, что все музыканты играют с чувством и убеждением. А это один из самых главных факторов при написании музыки. Особенно, если хочешь, чтобы она нравилась слушателям.</p>
+
+Автор: Dimas
+
+### 29.05.2003 reviews Секреты, секреты
+
+<p>Underground-группа из Италии, попавшая на Nuclear blast. Вот главный секрет этой пластинки... Как у коллектива это получилось? Ну, раз назвался груздем... По определению - это произведение должно было стать power-metal с примесью progressive. Я не знаю всех тонкостей контракта Secret Sphere с лэйблом, но если деньги на запись были выделены, то вероятнее всего они были пропиты или истрачены на косметику, которую группа использовала при фото-съёмке. Такой отвратной реализации на дисках с надписью Nuclear Blast не было наверное с начала 90-х. И дело даже не в том, что прописано плохо, дело в том, что все инструменты звучат сами по себе. Плюс какой-то подвальный вокал и отсутствие чёткой мелодии почти во всех песнях (прогрессив :(( ). На закуску оргазмические выкрики девок и идиотский смех в hidden-track. Создаётся впечатление, что материал никто не послушал перед заключением контракта. Простите, дрянь...</p>
+
+Автор: Vit Belov
+
+### 04.10.2003 news SECRET SPHERE расстались с барабанщиком
+
+Из <B>SECRET SPHERE</B> ушёл барабанщик <B>Luca Cartasegna</B>. Группа в настоящий момент занята прослушиванием новых музыкантов на его роль.
+Автор: Vit Belov
+
+### 26.03.2004 news Secret Sphere нашли барабанщика
+
+<P><B>SECRET SPHERE</B> объявили имя нового барабанщика. Им стал <B>Dave Simeone</B> (<B>ELDRITCH</B>). Группа начинает запись новой пластинки, которая выйдет в конце года на<B> Nuclear Blast</B>. </P>
+Автор: Vit Belov
+
+### 07.09.2004 news SECRET SPHERE готовят новый альбом
+
+<P><STRONG>SECRET SPHERE</STRONG> закончили пре-продукцию к новому альбому, который выйдет в начале 2005 года на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>"<EM>Люди, которые требовали от нас больше быстрых песен, будут удовлетворены. Альбом содеожит быстрейшие песни от <STRONG>SECRET SPHERE</STRONG> за всю историю</EM>", - пишет гитарист <STRONG>Aldo Lonobile&nbsp;</STRONG>на сайте группы.<STRONG>&nbsp;</STRONG></P>
+Автор: Vit Belov
+
+### 07.09.2004 news SECRET SPHERE complete pre-production
+
+<DIV class=regular id=storyRepeater__ctl14_storyPanel>Italian melodic metallers <B>SECRET SPHERE</B> have completed pre-production for their new album, tentatively due in early 2005 through <B>Nuclear Blast Records</B>.<BR><BR>With regards to the musical direction of the new material, <B>SECRET SPHERE</B> guitarist <B>Aldo Lonobile</B> writes on the group's web site, "We have changed a little bit once again, as in our style! But don't worry! I'm sure that the people who love the loud parts of <B>'Scent of Human Desire'</B> [2003] will be satisfied and all the people that was asking for more speed songs will be satisfied too! This album contains probably the fastest songs ever written by <B>SECRET SPHERE</B>! <B>Ramon</B> [<B>Messina</B>] wrote some great vocal lines, I'm sure that most of the new chorus of this work will be stuck in your head after just one listen! <B>Antonio</B>'s [<B>Agate</B>] piano and orchestrations are very emotional, he tried also some new tips and sounds, the result is really interesting. The rhythm parts? Definitively metal! <B>Dave</B>'s [<B>Simeone</B>] drum parts also fit very well with <B>Andy</B>'s playing! Well…how about the guitars?! : )) <B>Paco</B> [<B>Gianotti</B>] and I have given to you the heaviest <B>SECRET SPHERE</B> riffs yet!"<BR><BR>In other news, <B>SECRET SPHERE</B>'s debut album, <B>"Mistress of the Shadowlight"</B> (1999), will be re-released in Japan through <B>Avalon</B>/<B>Marquee Inc. Records</B>. The new version of the CD will include several bonus tracks and the group's entire <B>"Between Story & Legend"</B> demo. </DIV>
+Автор: Vit Belov
+
+### 29.11.2004 news SECRET SPHERE начинают запись
+
+<P><STRONG>SECRET SPHERE</STRONG> подготовили к записи новый альбом <STRONG>'Heart And Anger'</STRONG>. Над новой пластинкой будет работать <STRONG>Achim Kohler</STRONG> в <STRONG>House Of Music Studio</STRONG>. &nbsp;</P>
+Автор: Vit Belov
+
+### 28.01.2005 news SECRET SPHERE добавили оркестр
+
+<P><STRONG>SECRET SPHERE</STRONG> закончили запись нового альбома <STRONG>'Heart And Anger'</STRONG>. Стало известно, что в его записи приняли участие оркестр и хор.</P>
+Автор: Vit Belov
+
+### 28.01.2005 news SECRET SPHERE recorded with orchestra
+
+<P><STRONG>SECRET SPHERE</STRONG> have finished the recording sessions for their new album "<STRONG>Heart & Anger</STRONG>”. For this, the guys had the pleasure to work with the Swedish drummer <STRONG>Daniel Flores</STRONG>, who recorded all the drums directly in Stockholm.</P>
+<P><STRONG>SECRET SPHERE</STRONG> closely collaborated with Orchestra director <STRONG>Luigi Cociglio</STRONG> and the classical musicians <STRONG>David Lombardi</STRONG> and <STRONG>Diana Tizzani</STRONG> – who introduced “<STRONG>The Secret Symphony Orchestra</STRONG>”, which is comprised of by several professional musicians (some of them from the famous 'Teatro alla Scala' in Milano). <STRONG>Luigi</STRONG> arranged and directed all the orchestral parts composed by the band, the orchestra recorded all the classical sections of the new album. A big choir from, Torino, Italy also contributed.</P>
+<P>As the band commented: "<EM>It's impossible to describe the sensation of more than fifty elements playing on our songs. This one has been the most difficult album to conceive because of the complexity of the arrangements and the big number of people involved. But the result is outstanding!</EM>" </P>
+Автор: Vit Belov
+
+### 01.04.2005 news SECRET SPHERE назначили дату релиза
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SECRET SPHERE</STRONG> выпускают свой альбом "<STRONG>Heart And Anger</STRONG>" 30 мая на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 22.04.2005 news Подробности о новом альбоме SECRET SPHERE
+
+<P>Итальянские power metal герои&nbsp;<B>SECRET SPHERE</B>&nbsp;решили выпустить свой новый альбом&nbsp;<B>"Heart & Anger"</B> на неделю раньше объявленного ранее срока.&nbsp; Он выйдет 29 мая на <B>Nuclear Blast</B>. Японское издание уже доступно со вчерашнего дня.&nbsp;Альбом был записан в нескольких студиях: итальянских&nbsp;<STRONG>One Voice Studio</STRONG> и&nbsp;<B>Night & Day Studio</B>, а также в&nbsp;шведской <B>Sheepvalley Studio</B>. Партии гостевого вокала на нем исполнили <B>Roberto Tiranti</B> (<B>LABYRINTH</B>), <B>Marco Mesemi</B> (<B>MORGANA</B>), <B>Vera Quarleri</B>&nbsp;и <B>Monica Elias</B>. Микширование альбома провел <B>Achim "Akeem" Kohler</B> (<B>BRAINSTORM</B>, <B>SILENT FORCE</B>) в немецкой студии <B>House of Audio</B>.<BR>Трек-лист альбома:<BR>1. <B>Endless<IMG height=170 alt="" hspace=100 src="/images/news_rus/2005.04/8338.jpg" width=170 align=right border=0></B><BR>2. <B>Where the Sea Ends</B><BR>3. <B>First Snake</B><BR>4. <B>Loud & Raw</B><BR>5. <B>Dance with the Devil</B><BR>6. <B>Set Me Free</B><BR>7. <B>I Won't Say a Word</B><BR>8. <B>Lights On</B><BR>9. <B>Leonardo da Vinci</B><BR>10. <B>You Still Remain</B><BR>11. <B>Bad Blood</B><BR>12. <B>No Reason Why</B><BR>13. <B>Faster Than the Storm</B><BR>14. <B>Where the Sea Ends l</B> (acoustic version - Japanese bonus track) </P>
+Автор: Dimas
+
+### 28.06.2005 reviews Шире шаг, SECRET SPHERE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Прошлый альбом итальянцев меня просто шокировал. Возможно, я тогда что-то не понял, возможно, не прочувствовал, поэтому слушать "<STRONG>Heart & Anger</STRONG>" боялся. Вдруг, стошнит или что-нибудь в этом духе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Настойчивая реклама <STRONG>Nuclear Blast</STRONG>, обещания оркестра, хора и так далее, сыграли свою роль. Пластинка оказалась в проигрывателе и совсем не разочаровала меня. Очень хороший power-metal итальянского образца, великолепная реализация, симфонический материал. Оркестр, использованный столь грамотно, что оркестровки не бросаются в глаза, а лишь дополняют то, что принято называть power-metal. Типичный итальянский вокалист в этот раз справился с обуревающими его эмоциями и выполнил свою работу на отлично. Музыканты и композиторы тоже отринули сравнения с <STRONG>DREAM THEATER</STRONG> и даже с <STRONG>EVERGREY</STRONG> и занялись тем, чем должны заниматься итальянцы. Насочиняли хороших мелодий. Пусть несколько "попсовых", зато запоминающихся.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Среди хитов этого альбома можно обнаружить как эпичные пафосные гимны, так и типичные happy-power песнопения, что добавляет SECRET SPHERE очков о всех любителей стиля. При этом нельзя причислить <STRONG>SECRET SPHERE</STRONG> к лидерам стиля, но деньги пошли и с "<STRONG>Heart & Anger</STRONG>" коллектив сделал широкий шаг вперёд. Глядишь, со следующим альбомом затмят<STRONG> EDGUY</STRONG> какой-нибудь.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></FONT></P>
+Автор: Vit Belov
+
+### 18.05.2008 news Новый альбом SECRET SPHERE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В самом конце года свет увидит новый альбом <STRONG>SECRET SPHERE</STRONG> <STRONG>"Sweet Blood Theory". </STRONG>Концептуальная пластинка была создана по мотивам рассказа "<STRONG>Вампир</STRONG>", написанного <STRONG>John William Polidori</STRONG>&nbsp;в 1814 году. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Evil Or Divine</B> <BR>02. <B>Stranger In Black</B> <BR>03. <B>From A Dream To A Nightmare</B><BR>04. <B>Bring On</B> <BR>05. <B>The Shadows Of The Room Of Pleasure</B> <BR>06. <B>Welcome To The Circus</B> <BR>07. <B>The Butterfly Dance</B><BR>08. <B>Sweet Blood Theory</B> <BR>09. <B>Feed My Fire</B> <BR>10. <B>All These Words</B> <BR>11. <B>Vampire's Kiss</B> <BR>12. <B>The Day At The End Of The World</B></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR></P></FONT>
+Автор: Vit Belov
+
+### 06.08.2009 news Перемены в SECRET SPHERE
+
+<P>Итальянцы <STRONG>SECRET SPHERE</STRONG> поменяли гитариста и клавишника. Место <STRONG>Paco Gianotti</STRONG>&nbsp;и <STRONG>Antonio Agate </STRONG>заняли соответственно <STRONG>Marco Pastorino</STRONG> и <STRONG>Gabriele Ciaccia. </STRONG>Группа уже сочиняет материал для нового альбома.</P>
+Автор: Vit Belov
+
+### 04.05.2011 reviews SECRET SPHERE заравняли статус
+
+<P>Карьера итальянцев SECRET SPHERE сильно зависела от трендов на тяжёлой сцене. В 2003 году каким-то непостижимым образом итальянская команда оказалась на Nuclear Blast, где выпустила три альбома, с третьего по пятый. В то время на немецком лэйбле видимо решили, что нельзя прошляпить денежку, которую может приносить power-metal. Эта иллюзия испарилась, оставив итальянскому коллективу достаточно высокий статус, а шестой альбом SS вышел на более подходящем для них итальянском Scarlet Records.</P>
+<P>Музыка группы и на новом альбоме “Archetype” не несёт в себе ни одной загадки. Power-metal с лёгким налётом симфонизма, бюджетными мелодиями и типичным итальянским вокалом Ramon Messina. Именно ища подобную музыку, сотни поклонников по всему миру приобретут обозреваемый альбом. Прослушивая пластинку, можно получить несколько десятков приятных минут без особого надрыва и излишней эмоциональности.</P>
+<P>К сожалению, выцепить что-то запоминающееся на этом альбоме мне не удалось. По этой причине, я просто порекомендую “Archetype” всем упёртым на мелодичном power-metal фанатам и откланяюсь.</P>
+Автор: Vit Belov
+
+### 11.03.2012 news SECRET SPHERE покинул вокалист
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Roberto Messina</STRONG> покинул итальянскую power-metal группу <STRONG>SECRET SPHERE</STRONG>. Вокалист проработал с коллективом 12 лет. Причиной этого события стали музыкальные разногласия.</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=419 src="/images/news_rus/2012.03/23248.jpg" width=475 border=0></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.05.2012 news SECRET SPHERE взяли бывшего вокалиста VISION DIVINE
+
+<P>Новым вокалистом <STRONG>SECRET SPHERE</STRONG> стал бывший участник <STRONG>VISION DIVINE Michele Luppi</STRONG>. Коллектив уже работает над новым альбомом <STRONG>"Portrait Of A Dying Heart"</STRONG>,&nbsp;который должен выйти в этом году.</P>
+<P>Предыдущий певец <STRONG>Roberto "Ramon" Messina</STRONG>&nbsp;покинул<STRONG> SECRET SPHERE</STRONG> в этом году, из-за музыкальных разногласий.</P>
+<P><center><STRONG><IMG height=491 src="/images/news_rus/2012.05/23936.jpg" width=475 border=0></STRONG></P>
+Автор: Vit Belov
+
+### 04.01.2013 news Новое видео SECRET SPHERE
+
+<P>Новый ролик итальянцев<STRONG> SECRET SPHERE</STRONG> на песню <STRONG>"Lie To Me" </STRONG>можно посмотреть ниже. Трек взят с новейшего альбома группы&nbsp;<STRONG>"Portrait Of A Dying Heart"</STRONG> , который вышел на <STRONG>Scarlet</STRONG> в ноябре.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Qy98zDaGRmw?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 06.08.2016 news SECRET SPHERE выпускают DVD
+
+<p>14 октября на <strong>Frontiers Records</strong> выйдет концертный альбом <strong>SECRET SPHERE "One Night in Tokyo"</strong>. На издание формата 2CD/DVD войдут следующие песни:</p><p>Disc 1 (CD)<br>1. A Journey Through Time&nbsp;&nbsp; <br>2. X&nbsp;&nbsp; <br>3. Healing&nbsp;&nbsp; <br>4. Union&nbsp;&nbsp; <br>5. The Fall&nbsp;&nbsp; <br>6. Lie to Me&nbsp;&nbsp; <br>7. Wish & Steadiness&nbsp;&nbsp; <br>8. Legend&nbsp;&nbsp; <br>9. Under the Flag of Mary Read&nbsp;&nbsp; <br>10. The Scars That You Can't See&nbsp;&nbsp; <br>11. Eternity<br>&nbsp;&nbsp; <br>Disc 2 (CD)<br>1. Mr. Sin&nbsp;&nbsp; <br>2. Leonardo da Vinci&nbsp;&nbsp; <br>3. Lady of Silence&nbsp;&nbsp; <br>4. Dance with the Devil&nbsp;&nbsp; <br>5. Lie to Me <br>&nbsp;&nbsp; <br>Disc 3 (DVD)<br>1. A Journey Through Time&nbsp;&nbsp; <br>2. X&nbsp;&nbsp; <br>3. Healing&nbsp;&nbsp; <br>4. Union&nbsp;&nbsp; <br>5. The Fall&nbsp;&nbsp; <br>6. Lie to Me&nbsp;&nbsp; <br>7. Wish & Steadiness&nbsp;&nbsp; <br>8. Legend&nbsp;&nbsp; <br>9. Under the Flag of Mary Read&nbsp;&nbsp; <br>10. The Scars That You Can't See&nbsp;&nbsp; <br>11. Eternity&nbsp;&nbsp; <br>12. Mr. Sin&nbsp;&nbsp; <br>13. Leonardo da Vinci&nbsp;&nbsp; <br>14. Lady of Silence&nbsp;&nbsp; <br>15. Dance with the Devil</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wQYgwZh8MFU" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 06.08.2016 news SECRET SPHERE will release DVD
+
+<p>14 October<strong> Frontiers Records</strong> will release a live album of <strong>SECRET SPHERE "One Night in Tokyo"</strong>. On edition 2CD/DVD will feature the following songs:</p><p>Disc 1 (CD)<br>1. A Journey Through Time&nbsp;&nbsp; <br>2. X&nbsp;&nbsp; <br>3. Healing&nbsp;&nbsp; <br>4. Union&nbsp;&nbsp; <br>5. The Fall&nbsp;&nbsp; <br>6. Lie to Me&nbsp;&nbsp; <br>7. Wish & Steadiness&nbsp;&nbsp; <br>8. Legend&nbsp;&nbsp; <br>9. Under the Flag of Mary Read&nbsp;&nbsp; <br>10. The Scars That You Can't See&nbsp;&nbsp; <br>11. Eternity<br>&nbsp;&nbsp; <br>Disc 2 (CD)<br>1. Mr. Sin&nbsp;&nbsp; <br>2. Leonardo da Vinci&nbsp;&nbsp; <br>3. Lady of Silence&nbsp;&nbsp; <br>4. Dance with the Devil&nbsp;&nbsp; <br>5. Lie to Me <br>&nbsp;&nbsp; <br>Disc 3 (DVD)<br>1. A Journey Through Time&nbsp;&nbsp; <br>2. X&nbsp;&nbsp; <br>3. Healing&nbsp;&nbsp; <br>4. Union&nbsp;&nbsp; <br>5. The Fall&nbsp;&nbsp; <br>6. Lie to Me&nbsp;&nbsp; <br>7. Wish & Steadiness&nbsp;&nbsp; <br>8. Legend&nbsp;&nbsp; <br>9. Under the Flag of Mary Read&nbsp;&nbsp; <br>10. The Scars That You Can't See&nbsp;&nbsp; <br>11. Eternity&nbsp;&nbsp; <br>12. Mr. Sin&nbsp;&nbsp; <br>13. Leonardo da Vinci&nbsp;&nbsp; <br>14. Lady of Silence&nbsp;&nbsp; <br>15. Dance with the Devil</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wQYgwZh8MFU" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Secret Sphere и Zonata

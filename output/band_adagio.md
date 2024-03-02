@@ -12,6 +12,21 @@ Classic Doom-Death Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2000 reviews Бразильский театр трагедии
+
+<p>Бразильский театр трагедии. Романтическо-меланхолический альбом выдержанный в духе классического doom-death-metal. Пианинные клавиши, приятные соло-гитары, мужской суровый вокал и женское сопрано и все сыграно в среднем и небыстром темпе. При прослушивании альбома явственно предстает следующая картина: прекрасный, но печальный океан слез, над ним кружатся красные цветы чьей-то страсти, внезапно все погружается в тьму, ты чувствуешь чьи-то мягкие прикосновения, но у тебя не остается сил ни на что, кроме последнего прости-прощай, и...наступает смерть... Вот какие нынче серенады поют в Бразилии на закате. Тем, кто не любит вторичности и неоригинальности, альбом явно противопоказан, дабы не нервировать. Остальным же сообщаю: послушайте - жалеть не будете. Однако, если не послушаете, то тоже не пожалеете.</p>
+
+Автор: Dimas
+
+### 19.07.2000 reviews The Brazilian theatre of tragedy
+
+<p>The Brazilian theatre of tragedy. Romantic and melancholic an album sustained spirit of classic doom-death-metal. Piano of the key, pleasant solo-guitars, man's severe voict and females oprano and all is played on the average and not fast pace. At listening an album a following picture clearly appears: fine, but sad ocean of teardrops, above it whose red colours of passion are turned, subitaneously all is immersed in darkness, thee feel someone's mild tangencies, but for thee does not remain of forces on anything, except for last forgive -goodbye, and... There comes death... What now serenades sing in Brasil on a dawn. By the one who does not like secondhand and desoriginal, the album obviously counterindicatives, that not nervous. Remaining I communicate: listen - will not feel sorry. However, if not will listen, too will not regret.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Adagio

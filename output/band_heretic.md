@@ -31,6 +31,33 @@ Rick Merrick - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.08.2002 news MassaBrutto Radioshow #101, 23 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. ROSSOMAHAAR - Imperium Tenebrarum (More Hate Prods)<BR> 2. GRENOUER - Confident (More Hate Prods)<BR> 3. OBTEST - Svarbiausias Musis (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> +++ Quiz action from OBTEST band and Fatal Ecstasy Prods. Sponsored by Fatal Ecstasy Prods [fatalecstasy@tut.by]<BR> 4. IMPRUDENCE - Sadness (band)<BR> 5. DAMNED ICON - Nospheratou (band)<BR> 6. HERETIC - Strakh (band)<BR> 7. PERIALNYJE KONDILOMY - Zalet Cherez Rot (band)<BR> 8. PERIALNYJE KONDILOMY - Samoiznasilovanie (band)<BR> 9. COD - Hungry For Flight (band)<BR> 10. T.H.R.O.N. - Twist The Knife (Slowly) [by NAPALM DEATH] (Musickness/MetalAgen)</p>
+
+Автор: Yermola
+
+### 26.08.2002 news MassaBrutto Radioshow #101, 23 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. ROSSOMAHAAR - Imperium Tenebrarum (More Hate Prods)<BR> 2. GRENOUER - Confident (More Hate Prods)<BR> 3. OBTEST - Svarbiausias Musis (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> +++ Quiz action from OBTEST band and Fatal Ecstasy Prods. Sponsored by Fatal Ecstasy Prods <BR> 4. IMPRUDENCE - Sadness (band)<BR> 5. DAMNED ICON - Nospheratou (band)<BR> 6. HERETIC - Strakh (band)<BR> 7. PERIALNYJE KONDILOMY - Zalet Cherez Rot (band)<BR> 8. PERIALNYJE KONDILOMY - Samoiznasilovanie (band)<BR> 9. COD - Hungry For Flight (band)<BR> 10. T.H.R.O.N. - Twist The Knife (Slowly) [by NAPALM DEATH] (Musickness/MetalAgen)<BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news MassaBrutto Radioshow #109, 20 Sep 2002.
+
+<p>Гость программы: Денис Голин из коллектива WEEPING TWILIGHT (Минск, Беларусь) [email: twilight@tut.by]<BR><BR> Playlist:<BR><BR> 1. SHITFUN - No Admittance (DeathBell Prods)<BR> 2. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 3. WEEPING TWILIGHT - Грэх (band)<BR> 4. WEEPING TWILIGHT - Калыханка (band)<BR> 5. EVTHANAZIA - Fear Of The Future (Fatal Ecstasy Prods)<BR> 6. ROSSOMAHAAR - Sacred War (band)<BR><BR> + телефонное мини-интервью с Лазарем из ROSSOMAHAAR (Москва, Россия) [email: rossomahaar@mtu-net.ru]<BR><BR> 7. ROSSOMAHAAR - Me, The Misanthrope (band)<BR> 8. HERETIC - Страх (band)<BR> 9. SUFFERER - Полач (DeathBell Prods)<BR> 10. GRENOUER - Stabbed By Touch (Blacksmith Prods/More Hate Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 20.09.2002 news MassaBrutto Radioshow #109, 20 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. SHITFUN - No Admittance (DeathBell Prods)<BR> 2. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 3. WEEPING TWILIGHT - Грэх (band)<BR> 4. WEEPING TWILIGHT - Калыханка (band)<BR> 5. EVTHANAZIA - Fear Of The Future (Fatal Ecstasy Prods)<BR> 6. ROSSOMAHAAR - Sacred War (band)<BR> 7. ROSSOMAHAAR - Me, The Misanthrope (band)<BR> 8. HERETIC - Страх (band)<BR> 9. SUFFERER - Полач (DeathBell Prods)<BR> 10. GRENOUER - Stabbed By Touch (Blacksmith Prods/More Hate Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### V. Smolsky "Heretic"

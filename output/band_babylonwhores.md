@@ -29,6 +29,27 @@ King Fear: Song for the Damned
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2000 reviews Последний альбом финской культовой команды
+
+<p>Последний альбом финской культовой команды. Группа играет очень оригинальную музыку. В принципе, это gothic-darkwave в основе которого лежит использование death-металлических гитарных риффов. Именно эти хрустяще-скрипящие риффы ненастроенной гитары и придают тяжесть музыке. Мрачный саркастический вокал очень удачно вписывается в общую картину апокалиптического рок-н-ролла. Декадансовый и туманный альбом погружает слушателя в неясную субстанцию беспокойного сна. Иногда эта музыка напоминает stoner-rock но в самом размороженном состоянии. Очень-очень неплохо, а главное интересно и не совсем обычно.</p>
+
+Автор: Dimas
+
+### 06.07.2000 reviews Last album of the Finnish cult command
+
+<p>Last album of the Finnish cult command. The group plays very original music. Basically, it gothic-darkwave in the basis which one lies usage death-metallical guitar риффов. These creaking rhythms of a not tuned guitar also give gravity to music. Sad sarcastic vokal is very successful is entered in a common picture of apocalyptical rock'n roll. Decadance and the fog album immerses the listener in a vague substance of restless dream. Sometimes this music resembles stoner-rock but in the most defrozen condition. Very much - very much not bad, and main interestingly and not absolutely usually.</p>
+
+Автор: Dimas
+
+### 04.11.2002 reviews Самобытный отстой
+
+<p>Я и раньше не понимал, по какой такой причине BABYLON WHORES стали популярны. Что в них нашли? И что до сих пор находят? Я недоумевал раньше и недоумеваю теперь. Сейчас ещё в большей степени: потому что, если, к примеру, “Deggael” (1998) ещё мог произвести хотя бы минимально положительное впечатление, то новейший “Death Of The West” – альбом настолько «никакой», что становится дурно. Очевидно, что BABYLON WHORES в некотором роде самобытны, но стоит ли приравнивать отстой, пусть и самобытный, к хорошей музыке? Нет! Хотите, чтобы я описал этот альбом? А вы можете пересказать содержание сна, что вы видели прошлой ночью, если сон этот был полным бредом, сумбурным и бессмысленным? Нет? Вот и я не могу. Потому как “Death Of The West” представляет собой как раз таки бред. Сумбурный и бессмысленный. Нечто на пересечении THE BLACK LEAGUE и раннего HIM, нечто близкое к т.н. «gothic metal’у». А если быть чуть более честным с самим собой и с теми, кто читает эти строки, стоит сказать, что если это и gothic metal, то gothic metal откровенно дерьмовый. Один балл – за оформление, ещё один – за любопытные тексты. И минус восемь баллов за отвратную музыку.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

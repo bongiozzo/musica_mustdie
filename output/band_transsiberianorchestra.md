@@ -34,6 +34,27 @@ A Final Dream
 
 * C группой "Savatage" Jeff Plate (drums)
 
+## Публикации
+
+### 16.08.2000 reviews Широкомасштабное концептуальное полотно
+
+<p>Широкомасштабное концептуальное полотно. Прогрессив арт-рок-опера. Напыщенное, величественное, необычайно красивое. Очень серьезное произведение. За 73 минуты в 22 треках (неотделимых друг от друга) рассказывается история о последней ночи одного из величайших композиторов в истории Людвига Ван Бетховена и о его сделке с воплощением дьявола Мефистофелем. Симфонические аранжировки, много фортепианных отступлений, тяжелые гитары. Все это ласкает слух, затрагивает душу и пронзает до мозга костей, заставляя переживать всю историю. Временами все это напоминает рок-оперу о Суперзвезде Иисусе Христе или другую рок-оперу The Wall от Pink Floyd, особенно по части атмосферы, вокальному ряду и по построению композиций. Завершенная работа. Славно над ней потрудились. Игра стоила свеч. Концептуальная симфоническая рок-работа эффективно смешивает столкновение оркестра и полного хора(хоруса) с гранью арт-рока. Все это является созданием Paul O'Neill, многоталантливого рок-продюсера и поэта - песенника, который перевернул все представления о музыкальном театре. В записи альбома приняли участие музыканты Savatage - John Middleton (бас), Jon Oliva (фортепиано, клавиатуры, бас), Chris Caffery (гитара), Jeff Plate (барабаны), и гитарист Al Pitrelli (прежде работал с Asia и Alice Cooper), а также около 60 певцов. Это настоящий спектакль! Блестящее произведение, просто шедевр!</p>
+
+Автор: Dimas
+
+### 16.08.2000 reviews Wide area conceptual cloth
+
+<p>Wide area conceptual cloth. Progressive art-rock opera .Majestic, is unusual beautiful. Very severe product. For 73 minutes in 22 racetracks (nonseparable from each other) history about the history about a history about a history about a history about a history about a history about a history about a history about histories about history about history about арнжировки, there is a lot of фортепианных of departures, high-gravity guitars. All this sweetly the audition, encompasses to douche and burn up to a brain of bones, causing(urging) to experience all history. From time to time all this resembles a rock opera of a Superaster Jesus the Christ or other rock opera The Wall from Pink Floyd, specially in connection atmospheres, vocal number(series) and on construction of compositions. The finished activity. Nice above her have worked. The game cost of suppositories. The conceptual symphonic fate - activity effectively admixs interference of an orchestra and full chorus (хоруса) with an edge of арт-fate. All this is creation Paul O'Neill, multi-talented fate - producer and poet - песенника, which one has inverted all submissions(representations) about musical theatre. The musicians Savatage - John Middleton (bass), Jon Oliva (piano, keyboards, bass), Chris Caffery (guitar), Jeff Plate (barrels) have shared in a record of an album, and the guitar player Al Pitrelli (before worked with Asia and Alice Cooper). The nitidous product, is simple a masterpiece!</p>
+
+Автор: Dimas
+
+### 19.11.2001 news TRANS-SIBERIAN ORCHESTRA on the road...
+
+<p>MEGADETH guitarist Al Pitrelli will be rejoining TRANS-SIBERIAN ORCHESTRA on the road this year at the following dates: <BR><BR> Nov. 23 - Minneapolis, MN @ Northrop Auditorium <BR> Nov. 24 - Green Bay, WI @ Brown County Vet. Mem. Arena <BR> Nov. 25 - Milwaukee, WI @ Riverside Theatre <BR> Nov. 27 - Chicago, IL @ Oriental Theatre <BR> Nov. 28 - Madison, WI @ Alliant Energy Center <BR> Nov. 29 - Omaha, NE @ Omaha Music Hall <BR> Nov. 30 - Wichita, KS @ The Cotillion <BR> Dec. 01/ - Kansas City, KS @ Memorial Hall <BR> Dec. 03 - Colorado Springs, CO @ World Arena <BR> Dec. 04 - Denver, CO @ Magness Arena <BR> Dec. 06 - Boise, ID @ Bank Of America Center <BR> Dec. 07 - Spokane, WA @ Spokane Opera House <BR> Dec. 08 - Seattle, WA @ Paramount Theatre <BR> Dec. 09 - Portland, OR @ Rose Garden Arena <BR> Dec. 11 - San Francisco, CA @ The Warfield <BR> Dec. 12 - Sacramento, CA @ Memorial Auditorium <BR> Dec. 13 - Bakersfield, CA @ Fox Theater <BR> Dec. 14 - Los Angeles, CA @ Universal Amphitheatre <BR> Dec. 15 - Las Vegas, NV @ Cox Pavilion <BR> Dec. 17 - Tempe, AZ @ Gammage Auditorium <BR> Dec. 18 - Albuquerque, NM @ Kiva Auditorium <BR> Dec. 19 - El Paso, TX @ UTEP Special Events Ctr. <BR> Dec. 20 - Amarillo, TX @ Coliseum Theatre <BR> Dec. 21 - San Antonio, TX @ Municipal Auditorium <BR> Dec. 22 - Houston, TX @ Aerial Theatre at Bayou Palace <BR> Dec. 23 - Dallas, TX @ Bronco Bowl <BR> Dec. 26 - Nashville, TN @ Ryman Auditorium <BR> Dec. 27 - Atlanta, GA @ Tabernacle <BR> Dec. 28 - Orlando, FL @ Bob Carr Per. Arts Ctr. <BR> Dec. 29 - Tampa, FL @ Tampa Bay P.A.C. <BR> Dec. 30 - Fort Pierce, FL @ Sunrise Theatre</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

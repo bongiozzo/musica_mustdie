@@ -130,6 +130,46 @@ Features five new songs and six re-recorded tracks.
 
 * C группой "Ghost Machinery" Pete Ahonen
 
+## Публикации
+
+### 30.09.2009 reviews Крёстный отец по-фински
+
+<P>Финская команда BURNING POINT выпустила свой четвёртый альбом и продолжает оставаться желанной покупкой для любителей heavy-power-metal. Их музыка не является чем-то «из ряда вон», но получить качественный альбом от них вполне возможно.</P>
+<P>Честно говоря, я не очень доверяю пластинкам, которые начинаются с темы из кинофильма «Крёстный Отец». Не могу сказать, что я слышал много подобных альбомов, быть может, я не одного и не вспомню, но всё-таки по своей банальности мелодия «Зачем Герасим утопил свою Муму?» не имеет себе равных. “Empyre” именно с этой композиции и начинается. Вряд ли это слишком плохо, но сейчас я ловлю себя на мысли, что больше никаких отличительных особенностей этого альбома я больше вспомнить не могу. Вот помню, как саркастически улыбался, слушая мелодию Нино Рота, а что дальше было не помню. Была неплохая баллада, были несколько мягких боевиков. Вот такой альбом.</P>
+<P>Каждый любитель power-metal может послушать эту работу, но не каждому любителю power-metal она понравится. С другой стороны, и откровенным провалом этот альбом не назовёшь.</P>
+Автор: Vit Belov
+
+### 09.04.2012 news BURNING POINT на Scarlet
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финны <STRONG>BURNING POINT</STRONG> подписали контракт с <STRONG>Scarlet Records</STRONG>. Новый альбом группы "<STRONG>The Ignitor</STRONG>" выйдет в этом году. Мастеринг пластинки был проведён в знаменитой <STRONG>Tico Tico Studios</STRONG> (<B itxtHarvested="0" itxtNodeId="37">SONATA ARCTICA</B>, <B itxtHarvested="0" itxtNodeId="36">SENTENCED</B>) <STRONG>Ahti Kortelainen</STRONG>. Обложку создал <STRONG>Felipe Machado Franco</STRONG> (<B itxtHarvested="0" itxtNodeId="33">BLIND GUARDIAN</B>, <B itxtHarvested="0" itxtNodeId="32">RHAPSODY OF FIRE</B>, <B itxtHarvested="0" itxtNodeId="31">IRON SAVIOR</B>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG height=222 src="/images/news_rus/2012.04/23438.jpg" width=366 border=0><BR itxtNodeId="30">
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 27.04.2012 news Новый альбом BURNING POINT
+
+<P>19 июня на <STRONG>Scarlet Records</STRONG> выходит новый альбом<STRONG> BURNING POINT "The Ignitor"</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="64">Eternal Flame (Salvation By Fire Part 2)</B><BR itxtNodeId="63">02. <B itxtHarvested="0" itxtNodeId="62">In The Fire's Of My Self-Made Hell</B> <BR itxtNodeId="61">03. <B itxtHarvested="0" itxtNodeId="60">In The Night</B> <BR itxtNodeId="59">04. <B itxtHarvested="0" itxtNodeId="58">The Ignitor</B> <BR itxtNodeId="57">05. <B itxtHarvested="0" itxtNodeId="56">Silent Scream</B> <BR itxtNodeId="55">06. <B itxtHarvested="0" itxtNodeId="54">Heaven Is Hell</B> <BR itxtNodeId="53">07. <B itxtHarvested="0" itxtNodeId="52">Losing Sleep</B> <BR itxtNodeId="51">08. <B itxtHarvested="0" itxtNodeId="50">Demon Inside Of You</B> <BR itxtNodeId="49">09. <B itxtHarvested="0" itxtNodeId="48">Everdream</B> <BR itxtNodeId="47">10. <B itxtHarvested="0" itxtNodeId="46">Lost Tribe</B><BR itxtNodeId="45">11. <B itxtHarvested="0" itxtNodeId="44">Holier Than Thou</B></P>
+<P><STRONG></STRONG><center><iframe width="60%" height="166" scrolling="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F42984382&show_artwork=true" frameborder="0" ></iframe></P>
+Автор: Vit Belov
+
+### 18.10.2016 news BURNING POINT - альбом в ноябре и новое лирик-видео
+
+<p>Ветераны финского power metal<strong> BURNING POINT</strong> выпустят новый альбом <strong>"The Blaze</strong>" 25 ноября на<strong> AFM Records</strong>.</p><p>Это первый релиз BURNING POINT, записанный полностью с новой вокалисткой <strong>Nitte Valo</strong> (экс-Battle Beast), которая присоединилась к группе в 2014 году. </p><p>Альбом будет содержать 10 новых песен и кавер-версию на композицию <strong>Lee Aaron "Metal Queen"</strong> в качестве бонус-трека.</p><p>Ниже можно услышать лирик-видео на песню "Master Them All", вышедшее сегодня.</p><p>Трек-лист:</p><p>1. Master Them All<br>2. Time Has Come<br>3. Incarnation<br>4. My Spirit<br>5. The Lie<br>6. Dark Winged Angel<br>7. Chaos Rising<br>8. Lost In Your Thoughts<br>9. Things That Drag Me Down<br>10. The King Is Dead, Long Live The King<br>11. Metal Queen (bonus track)</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.10/30099.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/NQ55eycuCos" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 18.10.2016 news BURNING POINT to release new album
+
+<p>Veterans of the Finnish power metal<strong> BURNING POINT</strong> will release their new album "<strong>The Blaze</strong>" on November 25 via<strong> AFM Records</strong>.</p><p>This is the first release of the BURNING POINT, fully recorded with new singer<strong> Nitte Valo</strong> (ex-Battle Beast), which joined the group in 2014. </p><p>The album will contain 10 new songs and a cover version of the song <strong>Lee Aaron "Metal Queen"</strong> as a bonus track.</p><p>Below you can hear a lyric video for the song "<strong>Master Them All</strong>", was released today.</p><p>Track list:</p><p>1. Master Them All<br>2. Time Has Come<br>3. Incarnation<br>4. My Spirit<br>5. The Lie<br>6. Dark Winged Angel<br>7. Chaos Rising<br>8. Lost In Your Thoughts<br>9. Things That Drag Me Down<br>10. The King Is Dead, Long Live The King<br>11. Metal Queen (bonus track)</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.10/30099.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/NQ55eycuCos" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 25.11.2016 news Новый клип BURNING POINT
+
+<p>Новое видео <strong>BURNING POINT</strong> на песню "<strong>The King Is Dead, Long Live The King</strong>" можно посмотреть ниже. Новый альбом финского коллектива "<strong>The Blaze</strong>" вышел сегодня на <strong>AFM Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/GHuiSMr4qQQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

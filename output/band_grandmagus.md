@@ -92,6 +92,49 @@ Bonus track:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.12.2010 news Итоги 2010 года от артистов лейбла Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Roadrunner</STRONG> опубликовал топ-листы своих сотрудников и некоторых музыкантов лейбла. Среди прочих, там можно отыскать лучшие альбомы 2010 года по мнению:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17981.jpg" width=180 height=180><U>Dave Ellefson</U></STRONG><U> (<STRONG>MEGADETH</STRONG>)</U>:</FONT></P>
+<P>10. <STRONG>MOTORHEAD</STRONG> - The World Is Yours <BR>09. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare <BR>08. <STRONG>THERION</STRONG> - Sitra Ahra <BR>07. <STRONG>SOULFLY</STRONG> - Omen <BR>06. <STRONG>PANTERA</STRONG> - A Decade of Dominance <BR>05. <STRONG>HALFORD</STRONG> - Halford IV, Made of Metal <BR>04. <STRONG>DISTURBED</STRONG> - Asylum <BR>03. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>02. <STRONG>MEGADETH</STRONG> - Rust In Peace Live&nbsp; <BR>01. <STRONG>The Big Four</STRONG>: Live From Sofia, Bulgaria (DVD) </P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17982.jpg" width=180 height=180><U>Joel O’Keeffe</U></STRONG><U> (<STRONG>AIRBOURNE</STRONG>)</U>:</P>
+<P>10. <STRONG>TOM PETTY AND THE HEARTBREAKERS</STRONG> - Mojo<BR>09. <STRONG>JERRY LEE LEWIS</STRONG>&nbsp;- Last Man Standing<BR>08. <STRONG>AC/DC </STRONG>- Backtracks<BR>07. <STRONG>RATT</STRONG> - Infestation<BR>06. <STRONG>BRUCE SPRINGSTEEN</STRONG>&nbsp;- The Promise<BR>05. <STRONG>LYNYRD SKYNYRD</STRONG> - God & Guns<BR>04.&nbsp;<STRONG>KISS</STRONG> - Sonic Boom<BR>03. <STRONG>THE POOR</STRONG> - Round One<BR>02. <STRONG>SLASH</STRONG> - Slash <BR>01. <STRONG>MEAT LOAF</STRONG> - Hang Cool Teddy Bear</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17983.jpg" width=180 height=180><U>Mikael Akerfeldt</U></STRONG><U> (<STRONG>OPETH</STRONG>)</U>: </P>
+<P>10. <STRONG>TEARS FOR FEARS</STRONG> - Seeds of Love<BR>09. <STRONG>TOSHI ICHIYANAGI</STRONG> - Flowers<BR>08. <STRONG>THE DREAM</STRONG> - Get Dreamy<BR>07. <STRONG>YONIN BAYASHI</STRONG> - Isshoku Sokuhatsu<BR>06. <STRONG>SERGE GAINSBOURG</STRONG>&nbsp;- Historie de Melody Nelson<BR>05. <STRONG>PAIN OF SALVATION</STRONG> - Road Salt Pt. 1<BR>04. <STRONG>THE CHURCHILLS</STRONG> - s/t<BR>03. <STRONG>VASHTI BUNYAN</STRONG> - Just Another Diamond Day<BR>02. <STRONG>WIL MALONE</STRONG> - Wil Malone <BR>01. <STRONG>DAVID CROSBY</STRONG> - If I Could Only Remember My Name</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17984.jpg" width=180 height=180><U>JB</U></STRONG><U> (<STRONG>GRAND MAGUS</STRONG>)</U>:</P>
+<P>10. <STRONG>PAUL GILBERT</STRONG> - Fuzz Universe<BR>09. <STRONG>JOHN NORUM</STRONG> - Play Yard Blues<BR>08. <STRONG>CATHEDRAL</STRONG> - The Guessing Game<BR>07. <STRONG>DARKTHRONE</STRONG> - Circle The Wagons<BR>06. <STRONG>WITCHERY</STRONG> - Witchkrieg<BR>05. <STRONG>SPIRITUAL</STRONG> <STRONG>BEGGARS</STRONG> - Return To Zero<BR>04. <STRONG>WATAIN</STRONG> - Lawless Darkness<BR>03. <STRONG>NECRONAUT</STRONG> - Necronaut<BR>02. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>01. <STRONG>UNLEASHED</STRONG> - As Yggdrasil Trembles</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17985.jpg" width=180 height=180><U>Steven Wilson</U></STRONG><U> (<STRONG>PORCUPINE TREE</STRONG>)</U>:</P>
+<P>10. <STRONG>MASSIVE ATTACK</STRONG> - Heligoland<BR>09. <STRONG>NECRO</STRONG> <STRONG>DEATHMORT</STRONG> - This Beat is Necrotronic<BR>08. <STRONG>OCEANSIZE</STRONG> - Self Preserved While the Bodies Float Up<BR>07. <STRONG>SALEM</STRONG> - King Night<BR>06. <STRONG>CHROME HOOF</STRONG> - Crush Depth<BR>05. <STRONG>LCD</STRONG> <STRONG>SOUNDSYSTEM</STRONG> - This is Happening<BR>04. <STRONG>ORGANUM</STRONG> - Sorow<BR>03. <STRONG>FOALS</STRONG> - Total Life Forever<BR>02. <STRONG>HANS ZIMMER</STRONG> - Inception Soundtrack <BR>01. <STRONG>SHEARWATER</STRONG> - The Golden Archipeligo</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17986.jpg" width=180 height=180><U>Matt Heafy</U></STRONG><U> (<STRONG>TRIVIUM</STRONG>)</U>:</P>
+<P>10. <STRONG>RATATAT</STRONG> - LP4<BR>09. <STRONG>VAMPIRE WEEKEND</STRONG> - Contra<BR>08. <STRONG>ANIMALS AS LEADERS</STRONG>&nbsp;- Wave Of Babies<BR>07. <STRONG>AS I LASY DYING</STRONG> - The Powerless Rise<BR>06. <STRONG>A DAY TO REMEMBER</STRONG> - What Separates Me From You<BR>05. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare<BR>04. <STRONG>MY CHEMICAL ROMANCE</STRONG> - Danger Days...<BR>03. <STRONG>STONE SOUR</STRONG> - Audio Secrecy<BR>02. <STRONG>BLIND GUARDIAN</STRONG> - At The Edge Of Time <BR>01. <STRONG>TIMES OF GRACE</STRONG> - The Hymn Of A Broken Man</P>
+Автор: Headcrusher
+
+### 28.01.2014 news GRAND MAGUS выпускают новый альбом в конце января
+
+<P>Повелители гитарных риффов, шведы&nbsp;<STRONG>GRAND MAGUS</STRONG>, выпускают свой новый альбом 31 января на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Диск, получивший название <STRONG>"Triumph And Power"</STRONG>, был записан в&nbsp;<STRONG>Studio Sweetspot</STRONG> (г. Halmstad, Швеция) в сентябре 2013 года.&nbsp;В роли продюсера выступил <STRONG>Nico Elgstrand</STRONG>,&nbsp;а в роли звукорежиссёра - <STRONG>Staffan Karlsson</STRONG> (<STRONG>ARCH ENEMY</STRONG>, <STRONG>SPIRITUAL BEGGARS</STRONG>). Обложка автроства <STRONG>Anthony Roberts</STRONG> (<A href="http://www.blackmindseye.org/">www.blackmindseye.org</A>).</P>
+<P>Трек-лист:<BR>1. <STRONG>On Hooves Of Gold</STRONG> | 2. <STRONG>Steel Versus Steel</STRONG> | 3. <STRONG>Fight</STRONG> | 4. <STRONG>Triumph And Power</STRONG> | 5. <STRONG>Dominator</STRONG> | 6. <STRONG>Arv</STRONG> | 7. <STRONG>Holmgang</STRONG> | 8.<STRONG> The Naked And The Dead</STRONG> | 9. <STRONG>Ymer</STRONG> | 10. <STRONG>The Hammer Will Bite</STRONG> | 11. <STRONG>Blackmoon</STRONG> <EM>(bonus)</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.01/26561.jpg" width=500 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 12.04.2014 reviews Группа-открытие с 15-летним стажем
+
+<P>Удивительно считать группой-открытием коллектив, существующий 15 лет и выпустивший седьмой альбом, но именно так получилось с шведами <SPAN lang=en-US>GRAND MAGUS. </SPAN>Первые четыре работы музыканты выпустили на узкоспециализированном лэйбле <SPAN lang=en-US>Rise Above, </SPAN>который занимается <SPAN lang=en-US>doom </SPAN>и <SPAN lang=en-US>stoner. </SPAN>Пятый альбом, выпущенный <SPAN lang=en-US>Roadrunner, </SPAN>прошёл как-то незаметно, но пропустить группу, выпускающую пластинки на <SPAN lang=en-US>Nuclear Blast, </SPAN>уже невозможно. Там вышел шестой альбом <SPAN lang=en-US>GRAND MAGUS “The Hunt”.</SPAN></P>
+<P><SPAN lang=en-US></SPAN>&nbsp;Относить <SPAN lang=en-US>GRAND MAGUS </SPAN>исключительно к <SPAN lang=en-US>stoner-metal </SPAN>было бы большой ошибкой. Те, кто по этой причине не слышали этих шведов должны немедленно изменить собственное мнение. Трио представляет великолепный мелодичный <SPAN lang=en-US>heavy-metal, </SPAN>в котором, безусловно, находится место наследию великих <SPAN lang=en-US>BLACK SABBATH, </SPAN>но кроме этого используется немало изобразительных инструментов, расширяющих горизонты творчества. Главной же «изюминкой» здесь являются мелодии, которые на новом альбоме "<SPAN lang=en-US>Triumph And Power" </SPAN>просто поражают воображение. Практически все треки альбома претендуют на звание хитов. Прибавьте к этому великолепный вокал <SPAN lang=en-US>JB Cristoffersson (ex-SPIRITUAL BEGGARS), </SPAN>героические мотивы в духе «языческого» направления в тяжёлой музыке, и вы получите альбом, который легко выигрывает звание «альбом месяца».</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Советую всем заценить <SPAN lang=en-US>GRAND MAGUS. </SPAN>Хиты, умеренная тяжесть, запоминающийся вокал... Отличный подарок любителям <SPAN lang=en-US>heavy-metal.</SPAN></P>
+Автор: Vit Belov
+
+### 13.02.2016 news GRAND MAGUS выпускают альбом &quot;Sword Songs&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские 'повелители риффов', группа <STRONG>GRAND MAGUS</STRONG>, опубликовали обложку своего нового альбома, получившего название <STRONG>"Sword Songs"</STRONG>. Диск выйдет 13 мая на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предзаказ его уже доступен в различных вариациях по ссылке: <A href="http://www.nuclearblast.de/en/">http://www.nuclearblast.de/en/</A></FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2016.02/28780.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### помогите найти форум

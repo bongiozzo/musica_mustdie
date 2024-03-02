@@ -30,6 +30,9 @@ Thomas Neck - Drums & Percussion & Backing Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

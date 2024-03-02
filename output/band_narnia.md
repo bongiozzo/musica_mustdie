@@ -222,6 +222,169 @@ Andreas Johansson - Drums
 * C группой "Audiovision" Christian Rivel (vocal)
 * C группой "Fullforce" Carl-Johan Grimmark (guitar)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>В феврале на Европейском филиале NUCLEAR BLAST выйдут или уже вышли: миньон CREMATORY "Fly" - 08.02, концертник HYPOCRISY "Hypocrisy destroy wacken 1998" - 08.02, новый альбом NARNIA "Long Live The King" - 15.02 и STEEL PROPHET "Dark Hallucinations" - 22.02.</p>
+
+Автор: Vit Belov
+
+### 11.03.1999 reviews Новый альбом шведского дуэта
+
+<P>Новый альбом шведского дуэта, играющего в стиле progressive metal. Можно сказать, что группа идёт по накатанной дорожке. В общем-то вы не услышете ничего нового, но прослушивание, лично мне, доставило массу удовольствия. Альбом вряд ли будет претендовать на звание лучшего в 1999 году, но всё очень симпатично. Музыка очень хорошая, вокал на уровне, исполнение отличное, что ещё нужно любителю подобной музыки, чтобы скоротать вечерок. Есть несколько утяжелённых композиции, но, конечно же, не настолько тяжёлых, чтобы они выходили за пределы дозволенного в этом жанре. Резюмируя вышесказанное, добавлю, альбом очень хорош и каждый человек, который фанатеет от Angra, Royal Hunt и иже с ними, должен послушать.</P>
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Narnia начнут запись нового альбома в декабре. Группа обещает, что он будет жёстче, чем предшественник.</p>
+
+Автор: Vit Belov
+
+### 02.05.2001 news Побочный проект вокалиста NARNIA ......
+
+<p>"WISDOM CALL" - побочный проект вокалиста "NARNIA" - Christian Liljegren выпускает 21 мая дебютный альбом на Massacre Records. Свежезаписанное творение можно описать как микс между "NARNIA" и "HAMMERFALL" и войдут в него: 01. Power From The Sky 02. The Last Generation 03. I Believe 04. Never Satisfied 05. Wings Of Tomorrow 06. Through Fire 07. One Way Out 08. Hold On To The Truth 09. 15 Years Time.</p>
+
+Автор: Yermola
+
+### 02.05.2001 news WISDOM CALL - the side project of NARNIA singer .....
+
+<p>WISDOM CALL, the side project of NARNIA singer Christian Liljegren, will release their debut album on May 21st through Massacre Records. Featuring a sound that is being described as a mix of NARNIA and HAMMERFALL, the album will include the following tracks: 01. Power From The Sky 02. The Last Generation 03. I Believe 04. Never Satisfied 05. Wings Of Tomorrow 06. Through Fire 07. One Way Out 08. Hold On To The Truth 09. 15 Years Time. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.12.2002 news BOBFEST 2003
+
+<p>Bobfest is Europe's biggest Christian Metal Festival. This will be the 5th year this festival is held! It will take place in Linkцping, Sweden 14-16 March 2003. The lineup this time includes bands like Narnia (melodic guitarmetal with influences from Yngwie Malmsteen and Rainbow), Pantokrator (melodic and brutal death metal) , Leviticus (classic melodic 80s Metal, REUNION just for Bobfest!!!), Crimson Moonlight (atmospheric black metal), Slechtvalk (melodic and brutal black metal), Callisto (metalcore from Finland), Azure Skies (industrial with members from Mental Destruction and Sanctum), Ganglion (rock'n'roll from Norway), and more... Crimson Moonlight and Pantokrator will both release their new albums on Bobfest.</p>
+
+Автор: Vit Belov
+
+### 19.02.2003 news Narnia News
+
+<p>On the new Narnia album The Great Fall features the guestplayers Anders Johansson (Hammerfall) on drums and Eric Clayton (Saviour Machine) on vocals. The album is a concept album based on some of today's topical issues. No exact release date has been set but the plan is still spring 2003.</p>
+
+Автор: Vit Belov
+
+### 19.02.2003 news Narnia News
+
+<p>На новом альбоме Narnia 'The Great Fall' в качестве приглашённых музыкантов засветятся Андерс Йоханссон (Hammerfall) - барабаны и Эрик Клэйтон (Savior Machine) - вокал. Пластинка выйдет весной 2003 года.</p>
+
+Автор: Vit Belov
+
+### 27.02.2003 news Новости от NARNIA
+
+<p>14 апреля 2003 года на Nuclear Blast Records планируется четвертый релиз шведских неоклассических металлеров NARNIA. Альбом будет называться "The Great Fall". В качестве гостей на альбоме засветились ударник HAMMERFALL Anders Johansson и вокалист SAVIOUR MACHINE Eric Clayton.</p>
+
+Автор: Dimas
+
+### 24.04.2003 reviews Narnia стала более взрослой
+
+<p>Послушав новый альбом, пожалуй, самой популярной христианской группы в современном power-metal, я долго пытался подобрать слова, описывающие прогресс, который несомненно произошёл, в музыке шведов. Narnia стали более взрослыми и академичными, в их современной музыке сложно встретить те искренне-юношеские любовные порывы в адрес Господа Бога и Ингви Мальмстина. Группа уходит в сторону progressive-metal в популярной его части. Звучание гитар уже больше напоминает Royal Hunt. Особо хочется отметить эпическую 'The Great Fall of Man', на которой Narnia наглядно демонстрируют этот прогресс. Единственное, чего не хватает данному компакт-диску, чтобы стать хитом, несколько песен, которые можно было бы напевать про себя после прослушивания 'The Great Fall'.</p>
+
+Автор: Vit Belov
+
+### 09.03.2004 news NARNIA выпускает DVD
+
+<B>NARNIA</B> выпускают концертное DVD <B>"At Short Notice – Live In Germany" </B>на <B>Massacre Records.</B> На альбом войдут съёмки цонцерта в Оуэн, Германия перед 1800 зрителями в начале 2003 года.
+Автор: Vit Belov
+
+### 11.05.2005 news NARNIA пишут новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>NARNIA</STRONG> находится в стадии записи. Барабаны уже готовы, в настоящее время идёт работа с гитарой.</FONT></P>
+Автор: Vit Belov
+
+### 21.08.2005 news Новости от NARNIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, <STRONG>NARNIA</STRONG> готовят новый альбом. В настоящее время <STRONG>Mats Leven</STRONG> (<STRONG>AT VANCE, THERION</STRONG>) записывает бэк-вокалы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других сообщений, группа рассталась с клавишником<STRONG> Linus Kasse</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 21.08.2005 news NARNIA news
+
+<P><STRONG>NARNIA </STRONG>announce that keyboardist <STRONG>Linus Kase</STRONG> is not a member of the band anymore. </P>
+<P>"<EM>For different reasons we have decided to go separate ways and we wish Linus all the best with his music and projects. Andreas Lindahl who played keyboards with us at Flevo will also play at Metalfest in Germany and then we will see...</EM> "</P>
+<P>The recording of the new album is almost finished and <STRONG>Mats Leven</STRONG> (<STRONG>THERION, YNGWIE MALMSTEEN, AT VANCE</STRONG>) is now doing the backing vocals. It will be mixed in October. Releasedate is still not set. </P>
+Автор: Vit Belov
+
+### 02.02.2006 news NARNIA на Massacre
+
+<P><STRONG>NARNIA</STRONG> заключили контракт с <STRONG>Massacre</STRONG> на выпуск нового альбома "<STRONG>Enter The Gate</STRONG>" 21 апреля. Также на <STRONG>Massacre</STRONG> выйдет DVD коллектива, записанный в 2004 году.</P>
+Автор: Vit Belov
+
+### 30.04.2008 news NARNIA расстались с вокалистом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NARNIA</STRONG>, из-за музыкальных разногласий, покинул один из основателей вокалист <STRONG>Christian Rivel</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 29.08.2008 news NARNIA нашли нового певца
+
+<P>Новым вокалистом <STRONG>NARNIA </STRONG>стал уроженец Рио-Де-Жанейро <STRONG>German Pascual</STRONG>, известный по работе в таких группах, как <STRONG>MIND'S EYE</STRONG> и <STRONG>MENDEZ</STRONG>.</P>
+<P>Группа уже находится в студии, где записывает шестой альбом с продюсером <STRONG>Fredrik Nordstrom.</STRONG>&nbsp;</P>
+Автор: Vit Belov
+
+### 22.01.2009 news NARNIA в студии
+
+<P><STRONG>NARNIA</STRONG> записывают новый альбом. В мае сведением пока не названной пластинки займётся <STRONG>Fredrik Nordstrom </STRONG>в своей студии <STRONG>Fredman</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.02.2009 news NARNIA назвали альбом
+
+<P>24 июля на <STRONG>Massacre Records</STRONG> выйдет новый альбом <STRONG>NARNIA</STRONG> <STRONG>'Course Of A Generation'. </STRONG>Это первая работа группы с новым вокалистом <STRONG>German Pascual (MIND'S EYE).</STRONG></P>
+Автор: Vit Belov
+
+### 19.05.2009 news Новый альбом NARNIA
+
+<P><STRONG><IMG height=403 alt="" hspace=0 src="/images/news_rus/2009.05/14101.jpg" width=400 align=right border=5>NARNIA </STRONG>закончили работу над новым альбомом "<STRONG>Course Of A Generation</STRONG>", который выйдет 24 июля на <STRONG>Massacre Records</STRONG>. Сведением пластинки занимался знаменитый <STRONG>Fredrik Nordstrom</STRONG>. Трэк-лист:</P>
+<P>01. <STRONG>Sail Around The World</STRONG><BR>02. <STRONG>When The Stars Are Falling</STRONG><BR>03. <STRONG>Course Of A Generation</STRONG><BR>04. <STRONG>Scared<BR></STRONG>05. <STRONG>Kings Will Come</STRONG><BR>06. <STRONG>Rain<BR></STRONG>07. <STRONG>Armageddon</STRONG><BR>08. <STRONG>One Way To Freedom</STRONG><BR>09. <STRONG>Miles Away</STRONG><BR>10. <STRONG>Behind The Curtain</STRONG></P>
+Автор: Vit Belov
+
+### 26.06.2009 news Новая песня NARNIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>NARNIA</STRONG> <STRONG>"Sail Around The World" </STRONG>можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/narniaofficial">http://www.myspace.com/narniaofficial</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>24 июля выходит новый альбом группы <STRONG>"Course Of A Generation".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 17.04.2010 news NARNIA развалились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NARNIA</STRONG> сообщили о прекращении своего существования. Группа даст ещё один специальный концерт, и на этом всё закончится.</FONT></P>
+Автор: Vit Belov
+
+### 03.06.2016 news NARNIA выпустили сингл
+
+<p>Возродившиеся <strong>NARNIA </strong>сегодня выпустили сингл "<strong>Reaching For The Top</strong>". Релиз песни сопровождается выходом нового видео-клипа снятого<strong> Mats Vassfjord</strong> (Grand Design& 220 Volt).</p><p>Трек войдёт в новый альбом группы, названный просто "<strong>Narnia</strong>" и приуроченный к 20-летию группы, который выйдет 16 сентября. По словам музыкантов, на новой работе группа вернётся к своим мелодичным корням, но с новым качеством продукции. Продюсером альбома выступил гитарист <strong>CJ Grimmark</strong>, а сведение и мастеринг сделал <strong>Thomas 'Plec' Johansson</strong>.</p><p>Настоящий состав NARNIA:</p><p>Christian Liljegren – Vocals<br>CJ Grimmark – Guitars, keyboards & backing vocals<br>Andreas “Habo” Johansson – Drums<br>Martin Harenstam – Keyboards<br>Andreas Passmark – Bass</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/eJua-nolCJ0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 03.06.2016 news NARNIA has just released new single
+
+<p><strong>NARNIA</strong>&nbsp;is finally back for the metal attack. Celebrating 20 years as a band, they are back with a brand new studio album, scheduled for worldwide release on September 16, 2016.</p><p>Today (June 3rd, 2016), the first single <strong>“Reaching For The Top</strong>”, taken from the upcoming 7th studio album entitled “<strong>Narnia</strong>”, hits the market, together with a promo video produced by<strong> Mats Vassfjord</strong> (Grand Design & 220 Volt).</p><p>On the new self-titled 2016 album Narnia re-visits their melodic roots but with an updated sound, creating a perfect blend; a powerful production by <strong>CJ Grimmark</strong>, mixed and mastered by <strong>Thomas “Plec” Johansson</strong>.</p><p>The Lineup 2016:</p><p>Christian Liljegren – Vocals<br>CJ Grimmark – Guitars, keyboards & backing vocals<br>Andreas “Habo” Johansson – Drums<br>Martin Hдrenstam – Keyboards<br>Andreas Passmark – Bass</p><p>The new, self-titled full length album will be released, worldwide, on CD, Vinyl LP and on digital formats, on September 16, 2016. </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/eJua-nolCJ0" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 19.08.2016 news Второй сингл NARNIA
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Второй сингл<strong> NARNIA "Messengers" </strong>с выходящего 16 сентября альбома "<strong>Narnia</strong>" можно послушать в видео-клипе ниже. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>01. Reaching For The Top<br>02. I Still Believe<br>03. On The Highest Mountain<br>04. Thank You<br>05. One Way To The Promised Land<br>06. Messengers<br>07. Who Do You Follow?<br>08. Moving On<br>09. Set The World On Fire</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/CJLPzEwLV_0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 19.08.2016 news Second single from new NARNIA album
+
+<p>The second single of <strong>NARNIA "Messengers"</strong> from coming out September 16 the album "<strong>Narnia</strong>" can be streamed in the video clip below.</p><p>Track list:</p><p>01. Reaching For The Top<br>02. I Still Believe<br>03. On The Highest Mountain<br>04. Thank You<br>05. One Way To The Promised Land<br>06. Messengers<br>07. Who Do You Follow?<br>08. Moving On<br>09. Set The World On Fire</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/CJLPzEwLV_0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 16.09.2016 reviews NARNIA вернулись в классическом звучании
+
+<p>Шведская христианская power metal банда NARNIA возродилась в 2014 году, и этой осенью у неё выходит новый альбом с символичным названием «Narnia”. В коллектив в этом воплощении вернулся один из основателей вокалист Christian Rivel, без которого был записан неудачный альбом «Cours of a Generation”, похоронивший NARNIA в первый раз. Новая работа даёт шведам шанс, на ней мы снова слышим несколько наивный неоклассический power metal, который полюбился ещё в конце 90-х, когда вышли первые альбомы коллектива.</p><p>Нельзя сказать, что шведские музыканты имели статус суперзвёзд в прошлом, естественно они не имеют его и в настоящем. Некоторые даже презрительно обзывали NARNIA “дурным клоном Yngwie Malmsteen” (никогда не находил много общего), но мне почему-то этот коллектив всегда был приятен. Особенно нравились дебютные работы «Awakening” и «Long Live the King”, в которых была какая-то наивность, и она делала их очень особенными. Позже я узнал, что все эти песни имеют христианскую лирику, эдакий металический госпел, что расцветило творчество NARNIA в особые цвета. Не могу сказать, что я большой поклонник христианской музыки, но и на новом альбоме творчество шведов «поднимает дух». Кроме нескольких прямолинейных композиций, включающих сингл «Reaching For The Top”, NARNIA играют среднетемповой неоклассический power metal, который должен понравиться поклонникам классического ROYAL HUNT. Кстати, клавишные особо отличают этот альбом и добавляют разнообразия в звучание.</p><p>Приятный power metal, которого сейчас кажется уже не столь много. Мелодичный и традиционный звук, высокий вокал, лирика. Всё выполнено на самом профессиональном уровне и должно привлечь внимание поклонников стиля со стажем. Кроме этого, NARNIA удалось сочинить несколько пусть достаточно стандартных, но цепких хитов, что добавит этому альбому значимости.</p>
+Автор: Vit Belov
+
+### 16.09.2016 news Новый клип NARNIA
+
+<p>Новое видео <strong>NARNIA</strong> на песню <strong>"I Still Believe"</strong> можно посмотреть ниже. Сегодня выходит альбом-возвращение группы <strong>"Narnia</strong>".</p><p>Читайте <a href="/ru/band/narnia/21771/#reviews">рецензию здесь</a>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/o0GmTRm67rw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 16.09.2016 news New video of NARNIA
+
+<p>The Swedish melodic metal band <strong>NARNIA</strong> just released a music video for their new single "<strong>I Still Believe</strong>" online. The track comes off the highly anticipated self-titled NARNIA album that is released today.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/o0GmTRm67rw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Narnia "Desert Land"

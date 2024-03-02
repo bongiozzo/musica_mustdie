@@ -35,6 +35,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.10.2011 news Новый альбом SANCTORUM
+
+<P>Британский death-metal коллектив<STRONG> SANCTORUM</STRONG> подготовил к релизу свой третий альбом "<STRONG>Semper Fidelis</STRONG>". После выпуска пластинки группа отправится в тур с <STRONG>MY RUIN</STRONG>. </P>
+<P>Предыдущая работа <STRONG>SANCTORUM "Ashes Of Redemption"</STRONG> вышла в 2008 году на<STRONG> Copro Records</STRONG>.</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/Sanctorum">http://www.Myspace.com/Sanctorum</A></P>
+<P><center><IMG height=400 src="/images/news_rus/2011.10/21661.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

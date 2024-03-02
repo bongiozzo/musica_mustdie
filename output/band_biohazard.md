@@ -213,6 +213,135 @@ Danny Schuler - Drums, Percussion
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.02.1999 news 
+
+<p>Новый альбом группы Biohazard выйдет в апреле, продюсер альбома, состоящий из 13 треков, Эд Стасиум. На данный момент группа гастролирует с группой Sepultura...</p>
+
+Автор: Vit Belov
+
+### 26.03.1999 news 
+
+<p>Журнал Рок Сити сообщил о намечающихся гастролях в СНГ. Biohazard посетят Москву, Петербург и Вильнюс в конце апреля-начале мая. Soulfly посетят опять же Москву и Санкт-Петербург соответственно 26 и 28 мая.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Роб Эччеверия покинул Biohazard. Группа ищет ему замену.</p>
+
+Автор: Vit Belov
+
+### 11.04.2001 news Нецивилизованные BIOHAZARD ....
+
+<p>BIOHAZARD до сих пор ищут лэйбл для реализации в Америке нового СД "Uncivilization". В Европе альбом выходит 25 июня на SPV / Steamhammer Records. Среди гостей на диске отметились Phil Anselmo ("PANTERA"), Peter Steele ("TYPE O NEGATIVE"), Igor Cavalera и Derrick Green ("SEPULTURA"), и участники HATEBREED, NAUGHTY BY NATURE и CYPRESS HILL. По обещаниям группы альбом являет возвращение к хард-коровым корням.</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Uncivilization .....
+
+<p>BIOHAZARD are still in negotiations with several US labels for the release of the group’s forthcoming Uncivilization CD, which is scheduled to be issued in Europe through SPV / Steamhammer Records on June 25th. The album, which features guest appearances from PANTERA’s Phil Anselmo, TYPE O NEGATIVE’s Peter Steele, SEPULTURA’s Igor Cavalera and Derrick Green, members of HATEBREED, NAUGHTY BY NATURE and CYPRESS HILL, is reportedly the group’s most diverse effort to date, with several of the tracks marking a return to the group’s hardcore roots while others are said to be unlike anything the band had ever done before.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news Подробности о Uncivilization - BIOHAZARD.....
+
+<p>BIOHAZARD договорились с Sanctuary Records о дистрибуции "Uncivilization" в Северной Америке. Выход альбома запланирован на Июль. Похоже,что при записи в качестве "гостей" собралась "веселенькая" компания: Сепультурцы Andreas Kisser и Derrick Green отметились на треке "Trap", драммер Igor Cavalera присутствует на "Gone", Phil Anselmo ("PANTERA") поет на HFFK (Hate, Fuck, Fight, Kill - гы-гы...), Sen Dog ("CYPRESS HILL") - рэп на "Last Man Standing", также в ряде треков бэк и лид вокалы исполнены членами HATEBREED и Peter Steele ("TYPE O NEGATIVE"). Трек-лист: 01. Unified 02. Population Control 03. HFFK 04. Last Man Standing 05. Getaway 06. Gone 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news BIOHAZARD&#39;s forthcoming Uncivilization CD....
+
+<p>As previously reported, BIOHAZARD's forthcoming Uncivilization CD — due for release in Europe on June 25th through SPV/Steamhammer Records — is turning out to be a guest-heavy affair, with SEPULTURA's Andreas Kisser and Derrick Green appearing on a track called "Trap", SEPULTURA drummer Igor Cavalera playing percussion on the song "Gone", PANTERA's Phil Anselmo screaming his way through "HFFK (Hate, F.ck, Fight, Kill)", CYPRESS HILL's Sen Dog rapping on "Last Man Standing", and HATEBREED members contributing backing and lead vocals to various cuts on the CD (TYPE O NEGATIVE's Peter Steele also appears on an as-yet-unspecified track). BIOHAZARD have just returned from their recent South American jaunt, where they reportedly premiered new material to a great reaction from the group's rabid Latin American fans: "South America was awesome, we had a great time," guitarist Billy Graziadei told Metal Hammer. "It's so incredible to be able to tour countries like Chile where I can donate my precious digital camcorder to such financially handicapped people." Uncivilization has yet to receive an official US release date, but reports indicate that an announcement will be made shortly regarding BIOHAZARD's much-rumored signing with Sanctuary Records for the North American territory, with the album likely to be made available domestically through the label sometime in July. Uncivilization is tentatively scheduled to include the following tracks: 01. Unified 02. Population Control 03. HFFK (Hate, F.ck, Fight, Kill) (feat. PANTERA's Phil Anselmo) 04. Last Man Standing (feat. CYPRESS HILL's Sen Dog) 05. Getaway 06. Gone (feat. SEPULTURA's Igor Cavalera) 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap (feat. SEPULTURA's Andreas Kisser). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 01.11.2001 news CLUTCH headlining tour, also featuring BIOHAZARD and CANDIRIA....
+
+<p>More dates have been announced for the forthcoming CLUTCH headlining tour, also featuring BIOHAZARD and CANDIRIA. They are as follows: <BR><BR> Nov. 15 - L'Amour - Brooklyn, NY <BR> Nov. 16 - The Asylum - Portland, ME <BR> Nov. 17 - Jarrod's Place - Allteboro, MA <BR> Nov. 18 - Chantille's - Manchester, NH <BR> Nov. 19 - Armory High - Syracuse, NY <BR> Nov. 20 - Pierre's - Fort Wayne, IN <BR> Nov. 21 - Harpo's - Detroit, MI <BR> Nov. 23 - First Avenue - Minneapolis, MN <BR> Nov. 24 - Hairy Mary's - Des Moines, IA <BR> Nov. 25 - TBA TBA <BR> Nov. 26 - TBA TBA <BR> Nov. 27 - TBA TBA <BR> Nov. 28 - Royal Albert - Winnipeg, MB <BR> Nov. 29 - The State - Regina, SK <BR> Nov. 30 - MacEwan Hall Ballroom - Calgary, AB <BR> Dec. 01 - Dinwoodie Student Union - University of Alberta Edmonton, AB <BR> Dec. 03 - Commodore - Vancouver, BC <BR> Dec. 04 - TBA - Spokane, WA <BR> Dec. 05 - Graceland - Seattle, WA <BR> Dec. 06 - TBA - Portland, OR <BR> Dec. 07 - TBA - Santa Rosa, CA <BR> Dec. 08 - TBA - San Francisco, CA <BR> Dec. 09 - TBA - TBA <BR> Dec. 11 - TBA - Las Vegas, NV <BR> Dec. 12 - TBA - Salt Lake City, UT <BR> Dec. 13 - TBA - Colorado Springs, CO <BR> Dec. 14 - TBA - Tulsa, OK</p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 19.06.2002 news BIOHAZARD - в работе новый материал...
+
+<p>Evan Seinfeld - басист и вокалист нью-йоркских хард-кор-кроссоверов BIOHAZARD недавно заявил, что новый альбом группы "Never Forgive, Never Forget" будет одним из самых брутальных в истории музыки и истории группы. Обозначенная звуковая бомба готовится при участии нового гитариста Carmine Vincent, поражение музыкальных прилавков и слуха поклонников посредством новейшего брутального шедевра запланировано на начало октября.</p>
+
+Автор: Yermola
+
+### 13.11.2003 reviews Не стареют душой ветераны
+
+<P>Седьмой студийный альбом передовиков хард-кора из славного града Нью-Йорка, квартета BIOHAZARD, ярко демонстрирует нам, что у этой команды и в мыслях нет покидать лидирующие позиции в данном стиле. Kill Or Be Killed представляет собой отличный образчик брутального, без всяких соплей, хардкора. Может, тут и есть новомодный саунд и заигрывания с ню-металлом - но я таковых не обнаружил (или же не захотел их искать). Биохазардовцы то сумасшедше быстры, то величественно неторопливы. Альбом выдержан в лучших традициях жанра, и порой диву даешься, как этим экстремальщикам уже как 15 лет удается держаться на плаву, продолжая продавать пластинки хорошими тиражами. Никаких претензий к качеству записи и продюсированию нет, так же и "буклет-раскладушка" оформлен очень хорошо ("союзовцы" его сделали один-в-один). В общем, долгие разговоры тут не нужны: если вы любите качественный хард-кор и, тем более, если вы фэн группы BIOHAZARD - вы не разочаруетесь. А если вы никогда не слышали ничего подобного, но желаете ознакомиться с этим стилем и группой в частности - вы также будете довольны. Так что выгребайте из карманов сэкономленные на пиво деньги - и тащите свою задницу в магазин. Кароче, как поет сама группа -&nbsp;Open Your Eyes, Motherfuckers!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 26.02.2004 news Evan Seinfeld (BIOHAZARD) снимается в порно-фильмах
+
+<P><B>Evan Seinfeld (BIOHAZARD)</B> взял себе творческий псевдоним <B>Spider Jonez</B>. Его он будет использовать, как звезда порно-фильмов, в которых он снимается вместе со своей женой порно-звездой <B>Terra Patrick</B>. Пара снимается в фильме <B>'Pornstar/Rockstar'</B>. </P>
+<P>Из других новостей, ... <B>BIOHAZARD </B>работают над новым альбомом:)))</P>
+Автор: Vit Belov
+
+### 04.10.2005 reviews Очередная порция угара
+
+<P>Новый релиз, пожалуй, самого коммерчески успешного коллектива, работающего в жанре хард – кор Biohazard. Всем рубиться полчаса, три минуты и сорок девять секунд – ибо именно такова продолжительность десяти трэков, представленных на этом альбоме. Все в рамках стиля – композиции должны быть короткими, злобными и агрессивными – этакие плевки в лицо системе. Хлесткие гитарные риффы в пониженном строе, огрызающийся вокал, хоровые речетативы – ни один из основных приемов хард – кора на “Means To An End” не забыт. Все в должных пропорциях. Я давно заметил, что группы, работающие в данном жанре, стараются придерживаться основных канонов и выдают год от года довольно ровные альбомы – не лучше, но и не хуже предыдущих. Эта тенденция прослеживается и у Pro-Pain, и у Agnostic Front. В принципе, это нормально – ведь поклонники этих коллективов и такой музыки в целом, довольно консервативны и вряд ли будут приветствовать те или иные эксперименты в творчестве фаворитов. И музыканты стараются не разочаровывать своих фэнов, следуя вперед по однажды избранному пути.</P>
+<P>Если вам по душе творчество Biohazard и в вашей коллекции есть “Urban Discipline” или “Unicivilization”, то можете смело приобретать новый альбом. Ураган экстремальной агрессии, который обрушится из динамиков, доставит неподдельное удовольствие вам и неудовольствие вашим соседям.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 03.04.2006 reviews Неудачное прощание
+
+<P>Ходят слухи, что "Means To An End" будет последним - пока, по крайней мере - альбомом легенды американского хардкора, группы Biohazard. Хорошо это или плохо? Мы всегда немного расстравиваемся, когда подобные звезды прощаются с нами. Но в случае с новым релизом нью-йоркцев это скорее радостное известие. Ибо то, что нам преподносят "биохазардовцы" на "Means To An End", слушать очень скучно.&nbsp; Даже до своего предшественника, "Kill Or Be Killed", который не относят к лучшим релизам группы, новая пластинка не дотягивает по всем параметрам. Да и&nbsp;сама запись слушается как-то плосковато, глуховато. Всего лишь 33 минуты музыки дарят напоследок своим фанатам Biohazard, и это далеко не лучшее, что они сделали за свою пятнадцатилетнюю карьеру. Очень однообразные вещи, неудачные рефрены - нда, так&nbsp;со своими слушателями не прощаются. Может быть, этот легендарный коллектив уже "дошел до точки", когда и хардкор играть надоело, и новых идей - во всяком случае, в рамках группы - нет и не предвидется.&nbsp; Учитывая прежние заслуги этой команды и верность традициям жанра, поставим альбому "Means To An End" 6 баллов и подождем - может, нас будет ждать удачный реюньон?</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 30.09.2009 news Лидер BIOHAZARD расстался с порно-звездой
+
+<P>Басист/вокалист <STRONG>BIOHAZARD</STRONG> <STRONG>Evan Seinfeld </STRONG>расстался со своей женой порно-звездой <STRONG>Tera Patrick </STRONG>после семи лет брака. Напомним, что весь этот период<STRONG> Evan</STRONG> больше снимался в соответствующих фильмах, чем записывал альбомы.</P>
+Автор: Vit Belov
+
+### 16.12.2009 news BIOHAZARD войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BIOHAZARD </STRONG>войдут в <STRONG>Underground Sounds Studio</STRONG>&nbsp;в Лос Анджелесе 19 января для записи нового альбома. Это будет первая сессия записи в оригинальном составе с 1996 года. По сообщению басиста-вокалиста коллектива <STRONG>Evan Seinfeld, к</STRONG>аждый из участников привнёс в новые вещи что-то свое. По окончании записи в апреле 2010 года <STRONG>BIOHAZARD</STRONG> отправятся в мировой тур, который продлится целый год.</FONT></P>
+Автор: Vit Belov
+
+### 09.12.2010 news BIOHAZARD заключили договор с Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17785.jpg" width=400 height=300>Hе так давно возобновившая свою деятельность группа <STRONG>BIOHAZARD</STRONG>, заключила договор с лейблом <STRONG>Nuclear Blast</STRONG> на распространение своей продукции по всему миру, за исключением Северной Америки. 10 по счёту студийный альбом <STRONG>BIOHAZARD</STRONG>,&nbsp;запланирован к выходу на начало 2011 года. Известны названия нескольких новых песен:&nbsp;<B itxtvisited="1">"Decay"</B>, <B itxtvisited="1">"Screaming For Change"</B> и <B itxtvisited="1">"Vengeance Is Mine"</B>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск был спродюсирован Тоби Райтом&nbsp;(<B itxtvisited="1">Toby Wright</B>), который прежде работал с <B itxtvisited="1">KORN</B>, <B itxtvisited="1">SLAYER</B>, <B itxtvisited="1">M&#214;TLEY CR&#220;E</B>, <B itxtvisited="1">KISS</B>, <B itxtvisited="1">FEAR FACTORY</B>, <B itxtvisited="1">IN FLAMES</B>, <B itxtvisited="1">STONE SOUR</B> и <B itxtvisited="1">OZZY OSBOURNE</B>.</P></FONT>
+Автор: Headcrusher
+
+### 05.08.2011 news BIOHAZARD назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легендарные "хардкорщики" <STRONG>BIOHAZARD</STRONG> назвали свой новый альбом <STRONG>"Reborn In Defiance". </STRONG>Пластинка выйдет 26 сентября на <STRONG>Nuclear Blast Records</STRONG>. Это первый альбом группы с 1994 года, записанный в классическом составе: <STRONG>Evan Seinfeld</STRONG> (vocals, bass), <B>Billy Graziadei</B> (guitar, vocals), <B>Danny Schuler</B> (drums) and <B>Bobby Hambel</B> (guitar). <STRONG>Evan Seinfeld</STRONG> покинул группу в июне после завершения работы над альбомом. Песню<STRONG> "Reborn"</STRONG> можно послушать здесь: <A href="http://www.facebook.com/nuclearblasteurope?v=app_178091127385">http://www.facebook.com/nuclearblasteurope?v=app_178091127385</A></FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 src="/images/news_rus/2011.08/20435.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 22.11.2011 news Обложка нового BIOHAZARD
+
+<P>Долгожданный новый альбом <STRONG>BIOHAZARD</STRONG> <STRONG>"Reborn In Defiance" </STRONG>выйдет 20 января на<STRONG> Nuclear Blast</STRONG>. Группа опубликовала обложку этого альбома. </P>
+<P><center><IMG height=471 src="/images/news_rus/2011.11/22090.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

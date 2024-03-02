@@ -701,6 +701,93 @@ Russell Gilbrook - Drums, Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.12.2000 news Century Media трибьют Uriah Heep
+
+<p>По сообщению Century Media Record новый вокалист Annihilator - Joe Comeau и гитарист Paul Nelson объединились и записали версию классической "Too Scared to Run" для трибьюта Uriah Heep. Мировой релиз ожидается в феврале 2001.</p>
+
+Автор: Yermola
+
+### 30.07.2001 news Возвращение к фантазии...
+
+<p>Century Media решили порадовать меломанов трибьютным альбомом Uriah Heep - "A Return To Fantasy". СД выходит 27 августа. На нем будут: Angel Dust ("Easy Livin'"), Liege Lord ("Too Scared To Run"), Tad Morose ("Rainbow Demon"), Axel Rudi Pell ("July Morning"), Narnia ("Sunrise"), Freebase ("Suicidal Man"), Sacred Steel ("Return To Fantasy"), Blind Guardian ("The Wizard"), Gamma Ray ("Look At Yourself"), Nightingale ("Stealin'"), Lana Lane ("Weep In Silence"), Onward ("Bird Of Prey") и Easy Livin' ("Circle Of Hands").</p>
+
+Автор: Yermola
+
+### 30.07.2001 news A Return To Fantasy....
+
+<p>The new Uriah Heep Tribute album, "A Return To Fantasy" is now officially announced!  The CD will be out on August 27th 2001 through Century Media Records!  As Thorsten Schultz from CMR wrote: "Featuring the following renditions to one of the most original and ground breaking bands ever in the history of rock music": Track list in order: Angel Dust ("Easy Livin'") Liege Lord ("Too Scared To Run") featuring Joe Comeau and Paul Nelson Tad Morose ("Rainbow Demon") Axel Rudi Pell ("July Morning") Narnia ("Sunrise") Freebase ("Suicidal Man") Sacred Steel ("Return To Fantasy") Blind Guardian ("The Wizard") Gamma Ray ("Look At Yourself") Nightingale ("Stealin'") Lana Lane ("Weep In Silence") Onward ("Bird Of Prey") Easy Livin' ("Circle Of Hands").</p>
+
+Автор: Yermola
+
+### 06.01.2007 news URIAH HEEP на Sanctuary
+
+<P>Легендарные<STRONG> URIAH HEEP</STRONG> подписали контракт с <STRONG>Sanctuary</STRONG> и готовятся к записи 21-го альбома в своей дискографии.</P>
+Автор: Vit Belov
+
+### 30.06.2007 news John Lawton в Москве
+
+<P><IMG height=566 alt="" hspace=0 src="/images/shows_rus/2007.07/11699.jpg" width=400 align=left border=5>RockStar Promotion представляет:</P>
+<P>Впервые в России выступит с концертами экс-фронтмен легендарных URIAH HEEP Джон Лаутон (John Lawton).</P>
+<P>До того, как присоединиться к URIAH HEEP , Lawton, обладающий&nbsp; хорошо узнаваемым вокалом, успел записать несколько альбомов с очень самобытной немецкой группой LUCIFERS FRIEND, а также поработать в THE LES HAMPHRIES SINGERS в качестве вокалиста. Кроме того, он принял участие в записи альбома BATTERFLY BALL басиста DEEP PURPLE Роджера Гловера (Roger Glover). По рекомендации Гловера он и был принят в URIAH HEEP в 1977 году, опередив здесь даже Дэйвида Ковердэйла (David Coverdale), экс-вокалиста DEEP&nbsp; PURPLE, который тоже проходил прослушивание в группу.</P>
+<P>С Лаутоном URIAH HEEP записали 3 замечательных альбома FIREFLY, INNOCENT VICTIM и FALLEN ANGEL, а также концертник LIVE IN EUROPE 1979.</P>
+<P>Покинув в августе 1979 г. в результате возникших разногласий URIAH HEEP, Лаутон занялся сольной карьерой, затем снова сотрудничал с THE LES HAMPHRIES SINGERS и LUCIFERS FRIEND, а также с группами REBEL и ZAR.</P>
+<P>Позднее он образовал группу GUNHILL, а потом группу, названную просто John Lawton Band.<BR>Кроме того, вместе со своим бывшим коллегой по URIAH HEEP Кеном Хенсли (Ken Hensley) записал альбом под названием HENSLEY-LAWTON BAND &#8992; The Return, а также записал отличный блюзовый альбом &#8992;Still Paying My Dues To The Blues.<BR>На российских концертах в Москве и в Калининграде John Lawton исполнит настоящий Greatest Hits из самых популярных песен URIAH HEEP и сольных альбомов. Вот неполный сет-лист его российских концертов:<BR>HANGING TREE<BR>STEALING<BR>IM ALIVE<BR>WIZARD<BR>SYMPATHY<BR>COME BACK TO ME<BR>FREE n EASY<BR>FREE ME<BR>EASY LIVING<BR>GYPSY</P>
+Автор: Vit Belov
+
+### 05.06.2008 news URIAH HEEP к нам не едут?
+
+<P><STRONG>URIAH HEEP</STRONG> объявили о том, что отменяют планировавшийся тур по России, Молдове, Белоруси и Украине. Группа объяснила свой поступок несостоятельностью нашего промоутера, который не соблюл всех условий пребывания западных музыкантов на нашей территории.</P>
+<P>В то же время, организаторы концерта в Москве утверждают, что все проблемы будут решены, и <STRONG>URIAH HEEP</STRONG> выступят у нас.</P>
+Автор: Vit Belov
+
+### 01.02.2011 news URIAH HEEP на Frontiers Records
+
+<P>Лейбл <STRONG>Frontiers Records</STRONG> объявил о подписании контракта с легендарной английской группой <B itxtvisited="1">URIAH HEEP</B> на выпуск 23 по счёту студийного альбома. Примерная дата релиза намечана на апрель 2011. </P>
+<P>Новый альбом, получивший название <STRONG>"Into The Wild"</STRONG>, был записан в январе, в <B itxtvisited="1">Liscombe Park Studios</B> города Букингемшир, Англия&nbsp;(Buckinghamshire, England). На диск войдет 11 новых песен.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18387.jpg" width=400 height=258>Состав <STRONG>URIAH HEEP</STRONG> на сегодняшний день:<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">Mick Box</B> - гитара</P>
+<P><B itxtvisited="1">Trevor Bolder</B> - бас</P>
+<P><B itxtvisited="1">Bernie Shaw</B> - вокал</P>
+<P><B itxtvisited="1">Phil Lanzon</B> - клавиши</P>
+<P><B itxtvisited="1">Russell Gilbrook</B> - ударные</P>
+Автор: Headcrusher
+
+### 25.02.2011 news Новый альбом URIAH HEEP
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=264 alt="" hspace=0 src="/images/news_rus/2011.02/18740.jpg" width=275 align=right border=0>Легенды рока <STRONG>URIAH HEEP</STRONG> выпускают свой новый альбом <STRONG>"Into The Wild"</STRONG> 15 апреля на<STRONG> Frontiers Records</STRONG>. Продюсером пластинки выступил <STRONG>Mike Paxman (STATUS QUO, ASIA)</STRONG>, а обложку нарисовал греческий художник <STRONG>Ioannis (LYNYRD SKYNYRD, STYX, SAGA). </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Nail On The Head</B><BR>02. <B>I Can See You</B><BR>03. <B>Into The Wild</B><BR>04. <B>Money Talk</B><BR>05. <B>Trail Of Diamonds</B><BR>06. <B>Lost</B><BR>07. <B>Believe</B><BR>08. <B>Southern Star</B><BR>09. <B>I'm Ready</B><BR>10. <B>T-bird Angel</B><BR>11. <B>Kiss Of Freedom</B></P>
+Автор: Vit Belov
+
+### 22.07.2011 news URIAH HEEP выпустят концерт в Армении
+
+<P>23 сентября на <STRONG>Frontiers</STRONG> выйдет новый 2CD/DVD <STRONG>URIAH HEEP "Live In Armenia"</STRONG>. Материал для релиза был записан во время юбилейного тура группы, посвящённого 40-летию коллектива, в Армении. Трек-лист:</P>
+<P>CD1: <BR itxtNodeId="72">01. <B itxtHarvested="0" itxtNodeId="70">Wake The Sleeper</B><BR itxtNodeId="69">02. <B itxtHarvested="0" itxtNodeId="68">Overload</B><BR itxtNodeId="67">03. <B itxtHarvested="0" itxtNodeId="66">Tears Of The World</B><BR itxtNodeId="65">04. <B itxtHarvested="0" itxtNodeId="64">Stealin'</B><BR itxtNodeId="63">05. <B itxtHarvested="0" itxtNodeId="62">Book Of Lies</B><BR itxtNodeId="61">06. <B itxtHarvested="0" itxtNodeId="60">Gypsy</B><BR itxtNodeId="59">07. <B itxtHarvested="0" itxtNodeId="58">Look At Yourself</B><BR itxtNodeId="57">08. <B itxtHarvested="0" itxtNodeId="56">What Kind Of God</B><BR itxtNodeId="55">09. <B itxtHarvested="0" itxtNodeId="54">Angels Walk With You</B><BR itxtNodeId="53">10. <B itxtHarvested="0" itxtNodeId="52">Shadow</B><BR itxtNodeId="51"><BR itxtNodeId="50">CD2: <BR itxtNodeId="49">01. <B itxtHarvested="0" itxtNodeId="47">July Morning</B><BR itxtNodeId="46">02. <B itxtHarvested="0" itxtNodeId="45">Easy Livin'</B><BR itxtNodeId="44">03. <B itxtHarvested="0" itxtNodeId="43">Sunrise</B><BR itxtNodeId="42">04. <B itxtHarvested="0" itxtNodeId="41">Sympathy</B><BR itxtNodeId="40">05. <B itxtHarvested="0" itxtNodeId="39">Lady In Black</B><BR itxtNodeId="38"><BR itxtNodeId="37">DVD: <BR itxtNodeId="36">01. <B itxtHarvested="0" itxtNodeId="34">Wake the Sleeper</B><BR itxtNodeId="33">02. <B itxtHarvested="0" itxtNodeId="32">Overload</B><BR itxtNodeId="31">03. <B itxtHarvested="0" itxtNodeId="30">Tears Of The World</B><BR itxtNodeId="29">04. <B itxtHarvested="0" itxtNodeId="28">Stealin'</B><BR itxtNodeId="27">05. <B itxtHarvested="0" itxtNodeId="26">Book Of Lies</B><BR itxtNodeId="25">06. <B itxtHarvested="0" itxtNodeId="24">Gypsy</B><BR itxtNodeId="23">07. <B itxtHarvested="0" itxtNodeId="22">Look At Yourself</B><BR itxtNodeId="21">08. <B itxtHarvested="0" itxtNodeId="20">What Kind of God</B><BR itxtNodeId="19">09. <B itxtHarvested="0" itxtNodeId="18">Angels Walk With You</B><BR itxtNodeId="17">10. <B itxtHarvested="0" itxtNodeId="16">Shadow</B><BR itxtNodeId="15">11. <B itxtHarvested="0" itxtNodeId="14">July Morning</B><BR itxtNodeId="13">12. <B itxtHarvested="0" itxtNodeId="12">Easy Livin'</B><BR itxtNodeId="11">13. <B itxtHarvested="0" itxtNodeId="10">Sunrise</B><BR itxtNodeId="9">14. <B itxtHarvested="0" itxtNodeId="8">Sympathy</B><BR itxtNodeId="7">15. <B itxtHarvested="0" itxtNodeId="6">Lady In Black</B></P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/Ynz8GlxDiOg" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.05.2013 news Trevor Bolder (URIAH HEEP): 1950 – 2013
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.05/25729.jpg" width=254 height=361>Официальные источники группы <STRONG>URIAH HEEP</STRONG> сообщили, что на днях скончался бас-гитарист группы - <STRONG>Trevor Bolder</STRONG>.</P>
+<P><STRONG>Trevor</STRONG> умер в возрасте 62 лет, после продолжителной борьбы с раком.</P>
+<P>Помимо своей игры в <STRONG>URIAH HEEP</STRONG>, он также был известен, как музыкант групп <STRONG>Wishbone Ash</STRONG>&nbsp;и <STRONG>Spiders From Mars</STRONG>&nbsp;с участием Дэвида Боуи&nbsp;(<STRONG>David Bowie</STRONG>).</P>
+<P>Студийные альбомы, записанные Тревором в составе <STRONG>URIAH HEEP</STRONG>:</P>
+<P><STRONG>Firefly</STRONG> (1977)<BR><STRONG>Innocent Victim</STRONG> (1977)<BR><STRONG>Fallen Angel</STRONG> (1978)<BR><STRONG>Conquest</STRONG> (1980)<BR><STRONG>Equator</STRONG> (1985)<BR><STRONG>Raging Silence</STRONG> (1989)<BR><STRONG>Different World</STRONG> (1991)<BR><STRONG>Sea Of Light</STRONG> (1995)<BR><STRONG>Sonic Origami</STRONG> (1998)<BR><STRONG>Wake The Sleeper</STRONG> (2008)<BR><STRONG>Celebration</STRONG> (2009)<BR><STRONG>Into The Wild</STRONG> (2011)</P>
+Автор: Headcrusher
+
+### 17.05.2014 news URIAH HEEP: обложка, трек-лист и дата выхода альбома &quot;Outsider&quot;
+
+<P>Британская группа<STRONG> URIAH HEEP</STRONG> выпускает свой новый альбом под названием <STRONG>"Outsider"</STRONG>&nbsp;6 июня в Европе и 10 июня в США. Обложку диска можно увидеть ниже.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Speed Of Sound</STRONG> | 02.&nbsp;<STRONG>One Minute </STRONG>| 03. <STRONG>The Law</STRONG> | 04.&nbsp;<STRONG>The Outsider</STRONG> | 05. <STRONG>Rock The Foundation</STRONG> | 06.&nbsp;<STRONG>Is Anybody Gonna Help Me?</STRONG> | 07.&nbsp;<STRONG>Looking At You</STRONG> | 08.&nbsp;<STRONG>Can't Take That Away</STRONG> | 09.&nbsp;<STRONG>Jesse</STRONG> | 10.<STRONG> Kiss The Rainbow</STRONG> | 11. <STRONG>Say Goodbye</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.05/26993.jpg" width=500 height=503> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### A Tribute To Uriah Heep

@@ -16,6 +16,28 @@ Melodic death / black metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.07.2002 reviews Бальзам на душу любителей шведятины
+
+<p>Забавные метаморфозы. Если предыдущий альбом украинцев (миньон под названием “Hatenourisher”) можно было назвать удачным обращением к наследию DISSECTION, то новая их работа демонстрирует отход в несколько другие территории. Если “Hatenourisher” я сравнивал с творчеством THE CROWN, AURORA BOREALIS, FOREST OF IMPALED и первыми альбомами ANCIENT RITES (плюс вышеупомянутые DISSECTION), то сейчас на ум приходят лишь два названия: норвежский FESTER и… AT THE GATES. В _первую_ очередь AT THE GATES. Помнится, раньше Корнель сотоварищи вовсю заигрывали с трэшем, – теперь же эти милые детские шалости забыты, а взоры команды обращены к более жёсткой ветви СМДМ (речь не о хэви-как-бы-металле с блэковым вокалом гётеборгской школы) и пионерам этого стиля. Таких как… впрочем, см. выше. Среди наиболее очевидных изменений необходимо отметить несколько другую манеру пения – в своё время у CASTRUM был и гроулинг, и скриминг. Однако на сегодняшний день нет ни того, ни другого. Вместо этого – визгливый вокал а-ля Томас Линдберг. Визгливый, кстати говоря, не значит «неприятный». В данном случае, это очень даже в тему. Далее, несколько удивляет порядочное количество впечатляющих инструментальных тем: на “Mysterious Yet Unwearied” их аж три. Немало для 43-минутного альбома. Впрочем, это отнюдь не, как часто бывает, способ довести время звучания диска до необходимого минимума. Нет, инструментальные вещи ценны сами по себе, и совершенно не кажутся здесь лишними. За неимением очевидных минусов, отметим уже ставшие привычными для «каструмовцев» плюсы: _действительно_ хорошее владение инструментами (особенно хотелось бы отметить работу барабанщика, а также тот факт, что, не будучи супер-пупер музыкантами, ребята и не стремятся казаться таковыми), _действительно_ любопытные тексты, грамотно построенные и написанные на _действительно_ хорошем английском, и наконец, _действительно_ достойное качество записи. Единственное, что хотелось бы пожелать молодым украинцам, так это как-то, хоть немного, поработать над имиджем. В остальном же… так держать! Кстати, альбом должен вскоре выйти на канадском Bloodbucket Productions.</p>
+<P> P.S. Да, и ещё. Не стоит придавать приведённым мною сравнениям большего, чем они заслуживают, внимания. CASTRUM нельзя назвать стопроцентно оригинальной группой – но также нельзя и не понять, что музыка этих ужгородцев всё-таки чертовски самобытна.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>В ближайшее время украинская компания ODIUM MUSIC выпускает Death/Black компиляцию "IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". Трек-лист: <BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>Hails Brothers In Metal! <BR><BR> Soon we'll release our longawaited compilation IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". So be ready for the catching breath Death/Black Metal Assault! Dense, Intense, Technical and Melodic... Here is a track-list:<BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

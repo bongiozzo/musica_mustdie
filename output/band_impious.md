@@ -43,6 +43,59 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.06.2003 reviews Альбом, конечно, не &#39;killer&#39;, но послушать можно
+
+<p>Вылизанная такая пластиночка. Death-thrash молотилово со шведским душком. Даже можно сказать с сильным запахом. Непоражающие воображение риффы, но зато как записанные... Совершенно нечего сказать... Вам нравится At the Gates, ну, пусть и дальше нравиться. Impious пытались создать нечто тяжёлое и мелодичное. Не очень получилось. Не хватает ни тяжести, ни мелодичности. Полуфабрикат какой-то. Хоть бы соло одно запоминающееся... Непонятный гибрид death-metal и melodic death-metal... Очень безликая музыка... Не смог я ни за что зацепиться... Разве что, фэны пусть послушают...</p>
+
+Автор: Vit Belov
+
+### 09.06.2003 reviews Неплохо, но отнюдь не &quot;убийственно&quot;
+
+<p>Чёрт знает какая по счёту попытка удивить мир притрэшованным melodic death'ом. Удивить не получилась – музыка не та. Полёт фантазии не тот, опять же. "The Killer"? Может, и неплохое название для альбома, но если ребята рассчитывали на то, что выйдет действительно убийственный диск, то они ошибались. Вышел… неплохой диск. К счастью, он достаточно короткий, а потому не успевает надоесть. К счастью, среди проходных вещиц встречаются жемчужины наподобие "Dead Eyes Open". К счастью, альбом получился достаточно брутальным и абсолютно не сопливым. К счастью, "The Killer" не хуже (впрочем, и не лучше) предыдущих работ этих молодых шведов. Проще (и короче) говоря: если вы гурман, "The Killer" вряд ли окажет на ваш желуд… уши благоприятное воздействие. Если же нет, и вы просто любите хорошую музыку и не задумываетесь над тем, насколько она оригинальна, – идите и покупайте.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.09.2003 news IMPIOUS пишут новый материал
+
+<B>IMPIOUS</B> пишут новый материал для своего четвёртого альбома. Уже написаны семь песен и пре-продукция начнётся в октябре в <B>Digizone Studio</B>, принадлежащей гитаристу <B>Valle Adzic</B>. Запись же произойдёт в <B>Studio Mega</B> в феврале-марте 2004 года.
+Автор: Vit Belov
+
+### 05.04.2004 news IMPIOUS запишут новый альбом
+
+Новый альбом <B>IMPIOUS</B> будет называться <B>"Hellucinations" </B>и выйдет 4 октября на <B>Metal Blade</B>. Названия некоторых песен: <B>"Inject"</B>, <B>"Hellucinations"</B>, <B>"Infernique"</B>, <B>"Death_Wish_Scar"</B>, <B>"Toxic Paranoia"</B>, <B>"Show Me Your God!"</B>, <B>"Suicide Park"</B> и <B>"Bloodspill Revelation"</B>.
+Автор: Vit Belov
+
+### 25.08.2004 news IMPIOUS завершили запись...
+
+<P>Шведский death-thrash коллектив <STRONG>IMPIOUS</STRONG> завершил работу над своим новым опусом <STRONG>"Hellucinate"</STRONG>. Спродюсировал альбом <STRONG>Valle Adzic</STRONG>, смиксовывали - он же вместе <STRONG>Chris Silver</STRONG> в студии <STRONG>Studio Mega</STRONG>. Этот альбом возможно станет самым агрессивным и брутальным в дискографии <STRONG>IMPIOUS</STRONG>. </P>
+<P>Уже готов трэк-лист:<BR>01. <STRONG>Inject</STRONG> <BR>02. <STRONG>Wicked Saints <BR></STRONG>03. <STRONG>Infernique </STRONG><BR>04. <STRONG>Hellucinations </STRONG><BR>05. <STRONG>Show Me Your God! <BR></STRONG>06. <STRONG>Death_Wish_Scar <BR></STRONG>07. <STRONG>Toxic Paranoia</STRONG> <BR>08. <STRONG>Needles Nervosa <BR></STRONG>09. <STRONG>Bloodspill Revelation</STRONG> <BR>10. <STRONG>Suicide Park</STRONG></P>
+Автор: Darkfall
+
+### 30.04.2009 news IMPIOUS ждут лета
+
+<P><STRONG>IMPIOUS </STRONG>войдут в студию 1 июня для записи нового альбома. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 15.08.2009 news IMPIOUS в ноябре
+
+<P>Новый альбом <STRONG>IMPIOUS</STRONG> <STRONG>"Death Domination" </STRONG>выйдет 6 ноября на <STRONG>Metal Blade</STRONG>. Обложку альбома можно посмотреть ниже.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.08/14812.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 19.04.2011 news Новый клип IMPIOUS
+
+<P>Новый видео-клип<STRONG> IMPIOUS</STRONG> на песню <STRONG>"I Am The King" </STRONG>можно посмотреть ниже. Песня взята с последнего альбома группы <STRONG>"Death Domination"</STRONG>, который вышел в 2009 году на <STRONG>Metal Blade</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/PQQMNkvReQQ?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/PQQMNkvReQQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

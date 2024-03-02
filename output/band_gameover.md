@@ -47,6 +47,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.09.2017 news &quot;Claiming Supremacy&quot; - четвёртый полноформатник от GAME OVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянские трэшеры <STRONG>GAME OVER</STRONG> выпускают свой четвёртый полноформатник. Диск получил название<STRONG> "Claiming Supremacy" </STRONG>и выйдет&nbsp;повсеместно, за исключением Японии,&nbsp;17 ноября на <STRONG>Scarlet Records</STRONG>. В Японии же его выпустит<STRONG> </STRONG><SPAN id=fbPhotoSnowliftCaption class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><STRONG>Marquee Inc. </STRONG>на 6 дней раньше. </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption>Обложка диска принадлежит авторству <STRONG>Mario</STRONG> <STRONG>Lopez </STRONG>(<STRONG>EVIL INVADERS</STRONG>, <STRONG>IMPALERS</STRONG>, <STRONG>HYADES</STRONG>) </SPAN></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption>Сведением и мастерингом&nbsp;альбома&nbsp;занимался <STRONG>Joel Grind</STRONG>, лидер группы <STRONG>TOXIC HOLOCAUST</STRONG>, прежде уже работавший над альбомами <STRONG>POWER TRIP</STRONG>, <STRONG>MIDNIGHT</STRONG>, <STRONG>POISON IDEA</STRONG> и многими другими.</SPAN></SPAN></FONT></P></SPAN></SPAN></FONT>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption>Трек-лист:</SPAN></SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption>01. <STRONG>Onward To Blackness<BR></STRONG>02. <STRONG>Two Steps Into The Shadows<BR></STRONG>03.<STRONG> Last Before The End<BR></STRONG>04. <STRONG>My Private Nightmare<BR></STRONG>05. <STRONG>Blessed Are The Heretics<BR></STRONG>06. <STRONG>Eleven</STRONG><BR>07. <STRONG>Broken Trails<BR></STRONG>08. <STRONG>Shattered Souls<BR></STRONG>09. <STRONG>Lysander</STRONG><BR>10. <STRONG>Show Me What You Got<BR></STRONG>11. <STRONG>Metal Thrashing Mad</STRONG> (<STRONG>ANTHRAX</STRONG> cover – Japanese bonus track)</SPAN></SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption>
+<CENTER><IMG border=0 src="/images/news_rus/2017.09/30750.jpg" width=500 height=500></SPAN></SPAN></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

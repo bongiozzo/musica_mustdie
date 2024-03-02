@@ -125,6 +125,163 @@ Limited edition CD mediabook includes an additional bonus CD titled "Rumplugged"
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.04.2008 reviews Пиратский SKYCLAD или фолковый RUNNING WILD
+
+<P>Шотландской группе ALESTORM удалось создать действительно нечто оригинальное из известных ингредиентов. Ребята взяли RUNNING WILD подмешали туда немного SKYCLAD, наплевали на жанровые ограничения и выпустили пластинку, которую можно слушать всем.</P>
+<P>Я до сих пор не могу понять, куда можно отнести “Captain Morgan’s Revenge”. Вроде бы все ассоциации под рукой, вот они, бери их и описывай. Здесь и задор поздних SKYCLAD с вокалом чем-то напоминающим Валкиера, и пиратские мотивы, отсылающие нас к главным пиратам нашего времени RUNNING WILD. Но вот так просто не скажешь. Иногда чудится даже бесшабашность работ FINNTROLL или KORPIKLAANI, гармошка опять-таки, а иногда алкомузыка Дяди Тома, хочется стучать кружками по столу, как говориться. В общем, собрали ALESTORM всё самое весёлое и, не побоюсь этого слова, популярное в современном металле и задали жару.</P>
+<P>Наверняка у этих пиратских гимнов есть и недостатки, но хочется поощрить этих молодых шотландцев, им удалось записать нескучный разнообразный альбом, найдя для себя нишу, а, не просто подражая известным folk-metal коллективам. До высочайшей оценки им ещё далеко, но свой след в 2008 году они оставят, а там посмотрим.</P>
+Автор: Vit Belov
+
+### 20.12.2008 news ALESTORM выйдет весной
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая работа <STRONG>ALESTORM </STRONG>получила название <STRONG>"Black Sails at Midnight". </STRONG>Пластинка выйдет весной на <STRONG>Napalm Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 17.03.2009 news ALESTORM продолжают плавание
+
+<P><STRONG><IMG height=399 alt="" hspace=0 src="/images/news_rus/2009.03/13769.jpg" width=400 align=right border=5>ALESTORM</STRONG> подготовили к релизу на <STRONG>Napalm Records</STRONG> новый альбом <STRONG>"Black Sails At Midnight". </STRONG>Пластинка увидит свет 1 июня. Трэк-лист:</P>
+<P>01. <B>The Quest</B><BR>02. <B>Leviathan</B><BR>03. <B>That Famous Ol' Spiced</B><BR>04. <B>Keelhauled</B><BR>05. <B>To The End Of Our Days</B><BR>06. <B>Black Sails at Midnight</B><BR>07. <B>No Quarter</B><BR>08. <B>Pirate Song</B><BR>09. <B>Chronicles of Vengeance</B><BR>10. <B>Wolves of the Sea</B></P>
+<P>Пластинка будет доступна и в лимитированном варианте с бонусным DVD.</P>
+Автор: Vit Belov
+
+### 28.03.2009 news Можно &quot;поколбасится под пиратов&quot;
+
+<P><STRONG>ALESTORM</STRONG> выложили новую песню <STRONG>"Keelhauled" </STRONG>на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/blacksailsovereurope">http://www.myspace.com/blacksailsovereurope</A></P>
+<P>Новый альбом группы <STRONG>"Black Sails At Midnight" </STRONG>выйдет 1 июня на<STRONG> Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.05.2009 news Новая песня ALESTORM
+
+<P>Пираты <STRONG>ALESTORM</STRONG> выложили в сеть новую песню <STRONG>"That Famous Ol' Spiced": <A href="http://www.myspace.com/alestorm">http://www.myspace.com/alestorm</A></STRONG></P>
+<P>Второй альбом группы <STRONG>"Black Sails At Midnight" </STRONG>выйдет 1 июня на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.06.2009 news Новое видео от ALESTORM
+
+<P>Видео "пиратов" <STRONG>ALESTORM</STRONG> на песню <STRONG>"Keelhauled" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ta-Z_psXODw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ta-Z_psXODw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.08.2009 reviews Теперь можно даже стоять на голове
+
+<P>Если в США поклонники тяжёлой музыки продолжают искать идеальное тяжёлое звучание, скрещивая гитарный звук с разнообразными –core элементами, высоколобую Европу отчего-то захватила мода на «языческую» и прочую народную музыку. В ряду подобных групп особое место занимает шотландский коллектив ALESTORM, который не брезгует никакими способами, чтобы рассмешить нас до коликов в животе.</P>
+<P>Смешав в одном сосуде пиратские песнопения, фольклорные запилы и танцы вприсядку, группа уже со вторым альбомом выдвигается на самые видные роли. Дебютная пластинка открыла ALESTORM всему просвещённому человечеству. Заявка показалась достаточно перспективной. Взяв за основу нечто похожее на RUNNING WILD, группа снабдила своё творчество всеми современными развлекательными инструментами, присущими тяжёлому металлу, от гармошки до скрипки. Получилось задорно и свежо, оставалось подождать к чему придёт коллектив дальше. Ошибка заключалась в том, что никуда ALESTORM шагать и не собирались. Проехавшись по Европе с туром, зажигая всё, что попадалось на их пути, коллектив шотландцев выдал всё то же самое, только на повышенных оборотах. Теперь слушатель может танцевать не только вприсядку, но и ходить на голове и даже валяться от счастья под столом. Очевидно, что с таким подходом оценивать собственно музыку в исполнении группы не продуктивно. К сожалению, ALESTORM замерли в жанре циркового и эстрадного искусства.</P>
+<P>Поклонники KORPIKLAANI будут в восторге, ещё одна «пивная» группа. Вот только по качеству все эти новомодные и пивные не дотягиваются до основоположников жанра, таких как ONKEL TOM или FINNTROLL.</P>
+Автор: Vit Belov
+
+### 20.12.2010 news ALESTORM войдут в студию
+
+<P><IMG height=276 alt="" hspace=0 src="/images/news_rus/2010.12/17886.jpg" width=300 align=right border=0>Пираты <STRONG>ALESTORM</STRONG> отправляются в <STRONG>LSD Studio</STRONG> в Любеке 10 января для записи своей третьей пластинки <STRONG>'Back Through Time'</STRONG>. Альбом должен выйти в начале лета следующего года. Вот названия песен, которые на нём появятся:</P>
+<P>* <B>The Sunk'n Norwegian</B><BR>* <B>Shipwrecked (Pure Dead Banjaxed)</B><BR>* <B>Buckfast Powersmash</B><BR>* <B>Rum</B><BR>* <B>Back Through Time</B><BR>* <B>Swashbuckled</B><BR>* <B>Death Throes Of The Terrorsquid</B><BR>* <B>Midget Saw</B><BR>* <B>Scraping The Barrel</B><BR>* <B>Rumpelkombo</B><BR>* <B>Barrett's Privateers</B></P>
+Автор: Vit Belov
+
+### 19.03.2011 news Новый альбом ALESTORM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.03/18910.jpg" width=450 align=right border=0>Третий альбом пиратов <STRONG>ALESTORM</STRONG> <STRONG>"Back Through Time" </STRONG>выйдет 6 июня на <STRONG>Napalm Records</STRONG>. Продюсером пластинки стал <STRONG>Lasse Lammert </STRONG>из <STRONG>LSD Studios. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Back Through Time</B><BR>02. <B>Shipwrecked</B><BR>03. <B>The Sunk'n Norwegian</B><BR>04. <B>Midget Saw</B><BR>05. <B>Buckfast Powersmash</B><BR>06. <B>Scraping The Barrel</B><BR>07. <B>Rum</B><BR>08. <B>Swashbuckled</B><BR>09. <B>Rumpelkombo</B><BR>10. <B>Barrett's Privateers</B><BR>11. <B>Death Throes Of The Terrorsquid</B><BR>12. <B>I Am A Cider Drinker</B> (bonus track)</P>
+Автор: Vit Belov
+
+### 27.05.2011 news Новый ролик ALESTORM
+
+<P>Новый клип<STRONG> ALESTORM</STRONG> на песню <STRONG>"Shipwrecked" </STRONG>можно посмотреть ниже. Трек взят с третьего альбома пиратов <STRONG>"Back Through Time"</STRONG>, который выйдет 1 июня на<STRONG> Napalm Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ggyC0FOzqHM?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ggyC0FOzqHM?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.06.2011 news Новинки от Mazzar Records
+
+<P><SPAN class=h1><IMG height=551 alt="" hspace=0 src="/images/news_rus/2011.06/19563.jpg" width=400 align=right border=0>MAZZAR & NAPALM RECORDS представляют июньские новинки!</SPAN></P>
+<P><SPAN class=tit2>LEAVES’EYES «Merdead» специальное Российское издание в формате DIGIPACK</SPAN>.<BR><A href="http://www.leaveseyes.com/">http://www.leaveseyes.com/</A><BR><A href="http://www.myspace.com/leaveseyespage">http://www.myspace.com/leaveseyespage</A></P>
+<P><SPAN class=tit2>ALESTORM «Back Through Time» специальное Российское издание в формате DIGIPACK</SPAN><BR><A href="http://www.myspace.com/alestorm">http://www.myspace.com/alestorm</A><BR><A href="http://www.alestorm.net/">http://www.alestorm.net/</A></P>
+<P><SPAN class=tit2>TYR «The Lay of Thrym» специальное Российское издание в формате DIGIPACK<BR></SPAN><A href="http://www.myspace.com/tyr1">http://www.myspace.com/tyr1</A></P>
+<P><SPAN class=tit2>KAMPFAR «Mare» <BR></SPAN><A href="http://www.kampfar.com/">http://www.kampfar.com/</A><BR><A href="http://www.myspace.com/norsepagans">http://www.myspace.com/norsepagans</A></P>
+<P>Дополнительная информация на издающем лейбле <A href="http://www.mazzar.ru/">http://www.mazzar.ru/</A> и в интернет магазине: <A href="http://www.metalcd.ru/">http://www.metalcd.ru/</A></P>
+Автор: Vit Belov
+
+### 07.01.2012 reviews Танцуют все! (Часть III)
+
+<P>Что не говори, а шотландцы ALESTORM добавляют мировой тяжёлой сцене разнообразия и предлагают совершенно особенный продукт. После того, как затонули RUNNING WILD, никто так не педалирует пиратскую тему как лирически, так и музыкально.</P>
+<P>Уже третий альбом коллектива “Back Through Time” вышел в прошлом году на Napalm Records. Похоже ALESTORM могут превратиться в такой же приятный комикс-сериал для своего лэйбла, как и KORPIKLAANI в своё время. Не слишком разнообразная, зато весёлая музыка этого коллектива станет отличным подарком на вечеринках и пьянках с лицами тяжёлометалической ориентации. Гармошки, неканонические скачущие ритмы в духе FINNTROLL и полное отсутствие всяких рамок делают ALESTORM незаменимым в этом плане коллективом. Оценивать творчество шотландцев с точки зрения ценности для искусства, наверное, не стоит, но развлекательные достоинства этого альбома перекрывают все недостатки.</P>
+<P>Сейчас возвращаются RUNNING WILD, но мне кажется, это не станет помехой популярности ALESTORM. При всех пиратских ритмах RUNNING WILD всё-таки пытались играть метал. Шотландцы не пытаются этого делать, их главная задача создать приятное настроение у слушателя, при этом совсем не обязательно, что целевой слушатель металист.</P>
+Автор: Vit Belov
+
+### 10.01.2012 news ALESTORM в Москве &#x2F; расскрывая архивы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Одним из лучших московских концертов прошлого года, стало выступление шотландских флибустьеров <STRONG>ALESTORM</STRONG> в клубе <STRONG>"X.O."</STRONG>. До недавнего времени&nbsp;считалось, что все&nbsp;фотографии сделанные нашим корреспондентом&nbsp;во время&nbsp;пребывания подданных <STRONG>Елизаветы II</STRONG> на территории России, утраченны в неравной схватке с "Капитаном Морганом".&nbsp;Однако, специалистам с нашего портала&nbsp;всё же&nbsp;удалось восстановить некоторые снимки буквально из воздуха. Именно их мы и предлагаем вам посмотреть и воскресить воспоминания о том ураганном&nbsp;вечере: <A href="/ru/galleries/1/876/">http://musica.mustdie.ru/ru/galleries/1/876/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.01/22582.jpg" width=550 height=367> 
+<P></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Спасибо концертному агенству <STRONG>"Delta Mekong Concerts"</STRONG> (<A href="http://www.deltamekong.ru/">www.deltamekong.ru</A>)&nbsp;за мягкую&nbsp;швартовку.</FONT></P></CENTER>
+Автор: Headcrusher
+
+### 11.04.2012 news ALESTORM: клип на трек &quot;Death Throes Of The Terrorsquid&quot;
+
+<P>Новейший клип от пиратов <STRONG>ALESTORM</STRONG> на трек <STRONG>"Death Throes Of The Terrorsquid"</STRONG> можно посмотреть ниже. Песня вошла на последний альбом группы<STRONG> "Back Through Time"</STRONG> (2011,<STRONG> Napalm Records</STRONG>).</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/3TKyNTwD3Yk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 11.09.2013 news ALESTORM: 7&quot; сингл &quot;In The Navy&quot; в октябре
+
+<P>Шотландские пираты <STRONG>ALESTORM</STRONG> выпускают 7" сингл <STRONG>"In The Navy"</STRONG>. На "А" сторону диска войдёт переделка песни <STRONG>"In The Navy"</STRONG> старинной американской диско-группы <STRONG>VILLAGE PEOPLE</STRONG>. Тогда как другая сторона винила будет содержать ремикс&nbsp;трека <STRONG>"Shipwrecked"</STRONG> самих <STRONG>ALESTORM</STRONG>,&nbsp;сделанный артистом по кличке <A href="http://www.facebook.com/DropGoblin">Drop Goblin</A>.&nbsp;</P>
+<P>Выпуск сингла назначен на 18 октября. Он будет доступен в двух вариациях - на синем и золотом винилах, каждый из которых будет отпечатан в количестве 150 экземпляров.</P>
+<P>Предварительный заказ на них, уже доступен по ссылкам:</P>
+<P>Синий винил: <A href="http://shop.napalmrecords.com/alestorm-in-the-navy-ep-blue-vinyl.html">http://shop.napalmrecords.com/alestorm-in-the-navy-ep-blue-vinyl.html</A><BR>Золотой винил: <A href="http://shop.napalmrecords.com/alestorm-in-the-navy-ep-golden-vinyl.html">http://shop.napalmrecords.com/alestorm-in-the-navy-ep-golden-vinyl.html</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.09/26150.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 06.11.2013 news ALESTORM: выпускают DVD &quot;Live At The End Of The World&quot;
+
+<P>Шотландские разгильдяи, группа <STRONG>ALESTORM</STRONG>,&nbsp;выпускают концертный&nbsp;DVD&nbsp;под названием <STRONG>"Live At The End Of The World"</STRONG>. Европейский релиз намечен на середину ноября на лейбле <STRONG>Napalm</STRONG>.&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Основной материал для DVD был снят во время выступления группы в Мельбурне (Австралии) в январе 2013 года. Вторым диском станет аудио CD c выступлением</FONT>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>The Quest </STRONG>| 02. <STRONG>The Sunk'n Norwegian </STRONG>| 03. <STRONG>Leviathan </STRONG>| 04. <STRONG>Shipwrecked </STRONG>| 05.<STRONG> Over The Seas </STRONG>| 06. <STRONG>Midget Saw </STRONG>| 07. <STRONG>Nancy The Tavern Wench </STRONG>| 08. <STRONG>Pirate Song </STRONG>| 09. <STRONG>Back Through Time </STRONG>| 10. <STRONG>Wenches & Mead </STRONG>| 11. <STRONG>Death Throes Of The Terrorsquid </STRONG>| 12. <STRONG>Keelhauled </STRONG>| 13. <STRONG>Rumpelkombo </STRONG>| 14. <STRONG>Set Sail And Conquer </STRONG>| 15. <STRONG>Captain Morgan's Revenge </STRONG>| 16. <STRONG>Rum</STRONG></P>
+<P>Трек <STRONG>"Wenches & Mead"</STRONG>, с этого DVD, можно посмотреть по ссылке: <A href="http://www.youtube.com/watch?v=xQTE4yLZiSI">www.youtube.com/watch?v=xQTE4yLZiSI</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.11/26307.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 17.04.2014 news ALESTORM: подробности четвёртого полноформатника
+
+<P>Четвёртый полноформатник <STRONG>ALESTORM</STRONG> получил название<STRONG> "Sunset On The Golden Age"</STRONG> и выйдет&nbsp;на лейбле <STRONG>Napalm</STRONG> 1 августа 2014 в Европе (4 августа в Англии, 5 августа в Северной Америке). </P>
+<P>Трек-лист альбома:</P>
+<P>01.<STRONG> Walk The Plank</STRONG> | 02. <STRONG>Drink</STRONG> | 03. <STRONG>Magnetic North</STRONG> | 04. <STRONG>1741</STRONG> (The Battle Of Cartagena) | 05. <STRONG>Mead From Hell</STRONG> | 06. <STRONG>Surf Squid</STRONG> <STRONG>Warfare</STRONG>| 07. <STRONG>Quest For Ships</STRONG> | 08. <STRONG>Wooden Leg!</STRONG> | 09. <STRONG>Hangover</STRONG> | 10. <STRONG>Sunset On The Golden Age</STRONG></P>
+<P>Помимо собственных композиций, на диск войдёт кавер на песню <STRONG>"Hangover"</STRONG> в оригинале исполненной чернокожими певцами <STRONG>Taio Cruz</STRONG> и <STRONG>Flo Rida</STRONG>.</P>
+<P>Обложку для нового альбома, как и для всех предыдущих релизов <STRONG>ALESTORM</STRONG>, нарисовал <STRONG>Ingo R<SPAN class=userContent><SPAN class=text_exposed_show>&#246;</SPAN></SPAN>mling</STRONG>.</P>
+<P>Название альбома отсылает к "Золотому веку пиратства", который был между 1680-1720 годами (по разным источникам). В то время все знаменитые пираты занимались разбоем на Карибах -&nbsp;охотились за&nbsp;сокровищами, надерали задницу Английскому морскому флоту, воровали женщин и тд. Именно эта часть истории стала основной темой&nbsp;песен нового альбома.&nbsp;Помимо этого, на альбоме есть ещё песни про бухло и вечиринки.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26906.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 18.06.2014 news ALESTORM: видеоклип &quot;Drink&quot;
+
+<P>Шотландские пираты <STRONG>ALESTORM</STRONG> опубликовали клип на песню <STRONG>"Drink"</STRONG>. Трек войдёт в новый альбом группы под название <STRONG>"Sunset On The Golden Age"</STRONG>, который выходит в начале августа на <STRONG>Napalm Records</STRONG>.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/f55CqLc6IR0" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 26.06.2015 news Фестиваль &quot;Hellfest&quot; | 2015
+
+<P>Не так давно наш фотокор вернулся с поездки на французский фестиваль <STRONG>"Hellfest"</STRONG>, который состоялся с 19 по 21 июня в местечке под названием <STRONG>Clisson</STRONG>.</P>
+<P>В этом году на фестивале выстепали такие группы, как <STRONG>AIRBOURNE</STRONG>, <STRONG>ANTHRAX</STRONG>, <STRONG>IN FLAMES</STRONG>, <STRONG>LAMB OF GOD</STRONG>, <STRONG>KILLING JOKE</STRONG>, <STRONG>GODSMACK</STRONG>, <STRONG>ARMORED SAINT</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>HIRAX</STRONG>,<STRONG> NUCLEAR ASSAULT</STRONG>, <STRONG>VENOM</STRONG>, <STRONG>CHILDREN OF BODOM</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>SATYRICON</STRONG>, <STRONG>AT THE GATES</STRONG>, <STRONG>CANNIBAL CORPSE</STRONG>, <STRONG>CRADLE OF FILTH</STRONG>, <STRONG>MAYHEM</STRONG>, <STRONG>FINNTROLL</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>OBITUARY</STRONG>, <STRONG>ENSIFERUM</STRONG>, <STRONG>DYING FETUS</STRONG>, <STRONG>ALESTORM</STRONG>, <STRONG>BODY COUNT</STRONG>,<STRONG> THE EXPLOITED</STRONG>, <STRONG>RED FANG</STRONG>, <STRONG>MADBALL</STRONG>, <STRONG>EYEHATEGOD</STRONG>, <STRONG>ORCHID</STRONG> и многие другие.</P>
+<P>Ждите в скором времени обширный репортаж в нашем разделе фотогалерей: <A href="/ru/galleries/" target=_blank><U><FONT color=#0000ff>http://musica.mustdie.ru/ru/galleries/</FONT></U></A></P>
+<P>Официальный сайт фестиваля: <A href="http://www.hellfest.fr/">www.hellfest.fr</A> </P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28124.jpg" width=660 height=490> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### ALESTORM (Шотландия) в Москве (29 октября, 2011, клуб &quot;X.O.&quot;)

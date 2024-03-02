@@ -230,6 +230,49 @@ Darren Smith: Background Vocals
 
 * C группой "Hess" 
 
+## Публикации
+
+### 21.05.2002 reviews Новая волна мелодичного рока
+
+<p>Это уже восьмой альбом канадской команды (не считая четырех сборников, трех концертников и огромного количества синглов) существующей с 1988 года. Только теперь, когда они выпустили свой первый альбом на итальянском лэйбле Frontiers records, их записи стали доступны и на российском пространстве, благодаря компании CD-MAXIMUM. Материал превосходен, полон прекрасных красивых мелодий, отточенных риффов и славного вокала с хрипотцой. Уже четвертый год я жду новый альбом одной из любимых моих групп DEF LEPPARD. И тут на тебе... Эти ребята преподнесли то, что я ожидал и надеялся услышать на новом альбоме британцев. Добавьте сюда некоторые выжимки из WHITESNAKE, QUEEN, VAN HALEN и хард-роковую тяжесть. Группе органично удается сочетать мелодизм с тяжелыми гитарными риффами. Альбом содержит все, что должно быть в идеальном хард-рок альбоме: броские мелодии, хорошие острые риффы, запоминающиеся хорусы и меланхоличные баллады. Нет ни одной средненькой вещицы. Тридцать восемь минут пролетают как мгновение, не оставляя за собой ни капли разочарования. Рекомендую тем, кто запарился ждать новое творение DEF LEPPARD.</p>
+<p> Диск выпущен по лицензии компанией CD-MAXIMUM</p>
+
+Автор: Dimas
+
+### 11.06.2002 reviews New wave of Melodic rock
+
+<p>It is already eighth album of the Canadian band (not including four collections, three live-albums and huge quantity of singles) existing since 1988. Only now, when they have release the first album on the Italian label Frontiers records, their records are accessible on the Russian area, due to the company CD-MAXIMUM. The material is excellent, is complete of perfect beautiful melodies perfected riffes and famous vocal with hoarseness. Fourth year I wait for a new album of one of my favourite groups DEF LEPPARD. And here is on you... These guys have presented that I expected and hoped to hear on a new album of Britains. Add here some samples from WHITESNAKE, QUEEN, VAN HALEN and hard-rock weight. The group manages to combine melodic with heavy guitar riffes. The album contains everything, that should be in ideal hard-rock album: striking melody, good sharp riffes, remembered choruses and melancholic ballads. There is no average song. Thirty eight minutes fly by as an instant, not reserving drop of disappointment. I recommend the one who bother to wait new creation by DEF LEPPARD.</p>
+
+Автор: Vit Belov
+
+### 24.06.2003 reviews 4.5 доллара вместо 995.
+
+<p>4.5 доллара вместо 995. В 91 году, неизвестная тогда ещё никому канадская группа Harem Scarem записывает демо, и пытается продвинуть его на звукозаписывающий лэйбл. Это у них получается, но по каким то причинам песни с демо не входят на дебютный диск группы. И демка, выпущенная ограниченным тиражом, продавалась за скромную сумму – 995 американских рублей. Теперь, благодаря компании CD-Maximum, российские граждане и остальные, проживающие в странах СНГ и Балтии, могут приобрести этот уникальный диск за подарочную цену. Брать его стоит не только из-за того, что б потом искренне посмеяться над неудачниками, которые потратили на то, чтоб услышать те же самые песни в 200 раз больше денег, но и просто из-за хорошего материала. Ведь не зря он убедил людей из Warner Music заключить контракт с группой. 14 очень приятных песенок с запоминающимися мелодиями, не особо отличающихся от того мелодичного харда, за который мы собственно и полюбили Harem Scarem. Правда, первые три, как-то всё ж отличаются от остального материала и качеством записи и, главное манерой звукоизвлечения Гарри Хесса. Да и краем уха я слышал, что на первом демо было всего 11 песен. Может, это была дезинформация. Долго я вспоминал, кого мне жутко напоминает вокал Хесса на песнях с демо… знатоки подсказали… Рика Эстли… был такой попсовый певец. Не верите – послушайте Honestly. И еще не верится, что этот старый материал был переписан заново… Ну… если это так.. то видно звукорежиссеры специально сделали такой архаичный саунд… слушаешь и вспоминаешь золотые годы расцвета «волосатого-метала». Особенно чувствуется разница при сравнении с двумя бонусными песенками в конце альбома… одна из них End Of Time просто чудесна.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+### 17.03.2004 reviews И ещё тонна сиропа...
+
+<P>Прошел всего год после выпуска замечательного “Weight Of The World”, и вот столь ожидаемый мной новейший&nbsp;компакт-диск&nbsp;канадских мелодик-рокеров сканируется лазерным лучом в моем проигрывателе. И я слушаю написанный&nbsp;талантливым тандемом Хесс-Лесперанс альбом, полный мелодий, украшенный завораживающим вокалом Гарри.</P>
+<P>Открывает альбом “Reach”. Пожалуй, самая фирменная, лучше всего характеризующая тот подход к написанию мелодий, что отличает Hаrem Scarem от других команд. Жёсткие риффы, Хесс легко переходит с мягкого и вкрадчивого, на энергичное, даже чуть агрессивное, на припеве, пение. Безусловный хит – “Waited”, начинающийся как акустическая баллада, постепенно набирающая темп. “Give It To You”&nbsp; при другой, облегченной обработке, вполне могла бы оказаться главным хитом какого-нибудь поп-бэнда типа “Hanson” или “ The Rasmus”, без гитарных соло и истерики Хесса в конце, естественно.&nbsp;То же самое можно сказать и про еще более мягкую заглавную “Higher”</P>
+<P>“Run And Hide”, “Lost" – ничем не примечательны. Мелодии, слышанные ещё в сотне подобных песен. “Lucky Ones” по композиции похожа на “Reach”. Та же смена темпов и настроений. Моя любимая на диске – “Lies” с лучшим гитарным риффом. Хесс поет немного в несвойственной ему манере. Супер.</P>
+<P>В общем, я так подумал… если эта работа и хуже предыдущего почти шедевра, то лишь чуть. На полбалла. Хесс - красавец. Нафига ему был нужен столь бесцветный сольный альбом? Там он как будто отрабатывал оплаченное студийное время. А тут - развернулся.</P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 31.01.2005 news Новый альбом HAREM SCAREM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>HAREM SCAREM</STRONG> будет называться '<STRONG>Overload</STRONG>'. Подробности пока не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 10.03.2005 news HAREM SCAREM выходит в мае
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая пластинка <STRONG>HAREM SCAREM "Overload"</STRONG> выйдет 16 мая на <STRONG>Frontiers</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=230 alt="" hspace=0 src="/images/news_rus/2005.03/8064.jpg" width=217 align=right border=5>1. <STRONG>Dagger<BR></STRONG>2. <STRONG>Afterglow<BR></STRONG>3. <STRONG>Rise & Fall<BR></STRONG>4. <STRONG>Don't Come Easy</STRONG><BR>5. <STRONG>Can't Live With You<BR></STRONG>6. <STRONG>Forgive & Forget<BR></STRONG>7. <STRONG>All You're Getting<BR></STRONG>8. <STRONG>Leading Me On<BR></STRONG>9. <STRONG>Understand You<BR></STRONG>10. <STRONG>Same Mistakes</STRONG> <BR>11. <STRONG>Wishing</STRONG> (exclusive bonus track for Europe)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

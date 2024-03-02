@@ -31,6 +31,21 @@ Seth Newton - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2000 reviews ...И будут ваши души охвачены пламенем
+
+<p>...И будут ваши души охвачены пламенем. Американский black-metal. Следовательно, без особого качества. Гитары и барабаны прописаны бездарно. Ударные глуховаты, гитары грязноваты. К тому же создается впечатление, что играет всего одна гитара, хотя гитаристов указано двое. Очень уж неплотный и хиловатый звук. Зато здесь полно интереснейших идей и замыслов компенсирующих некачественность. Сама музыка очень мелодична и атмосферна. Удачный женский сопрано-хорал исполненный вокалисткой Rain Fell Within. В общем, хороший альбом, а записан неважно...Хоть и Америка, а проблемы те же , что и в России.</p>
+
+Автор: Dimas
+
+### 21.11.2000 reviews ... And your souls will be covered with a flame
+
+<p>... And your souls will be covered with a flame. American black-metal. Hence, without the special quality. The guitars and drums are registered worthlessly. Besides the impression is created, that one guitar plays only, though the twoguitarists is specified. Sound is Very much leaky. But here is complete of most interesting ideas and plans compensating unquality. Music is very melodious and atmospheric. Successful female soprano executed by vocalist of Rain Fell Within. In general, the good album, but is written down unimportantly... Though also America, and problem same, as in Russia</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

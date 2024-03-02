@@ -20,6 +20,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.02.2011 news DIVULTION - brutal death-metal из Крыма
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.02/18582.jpg" width=400 align=right border=0>More Hate Productions</STRONG> совместно с <STRONG>Gormageddon Productions</STRONG> выпустили дебютный альбом группы из Крыма <STRONG>DIVULTION "End Of Humanity"</STRONG>. В пресс-релизе рассказывается, что "огромное влияние на группу оказало творчество таких монстров как Cannibal Corpse, Deicide и Cryptopsy".&nbsp;Трэк-лист:</FONT></P>
+<P>1. <STRONG>Beyond the Life</STRONG> 03:41&nbsp; <BR>2. <STRONG>Dead Body Shredding</STRONG> 03:38&nbsp; <BR>3. <STRONG>Worms Under Skin</STRONG> 03:23&nbsp; <BR>4. <STRONG>End of Humanity</STRONG> 04:12&nbsp; <BR>5. <STRONG>Regeneration</STRONG> 03:04&nbsp; <BR>6. <STRONG>Eat My Guts</STRONG> 03:00&nbsp; <BR>7. <STRONG>Rotting</STRONG> 04:01&nbsp; <BR>8. <STRONG>Grinded Bodles</STRONG> 02:40&nbsp; <BR>9. <STRONG>Coda </STRONG>03:52 </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

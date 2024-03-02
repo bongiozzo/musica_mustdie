@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2016 news Новый клип ONCE HUMAN
+
+<p>Melodic death metal группа <strong>ONCE HUMAN</strong> выпустила видео на песню "<strong>Eye Of Chaos</strong>". Коллектив является новым проектом бывшего гитариста <strong>SOULFLY</strong> и <strong>MACHINE HEAD Logan Mader</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9VHA0H8peZ0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.09.2016 news New video by ONCE HUMAN
+
+<p>Melodic death metal band <strong>ONCE HUMAN</strong> has released a video for the song <strong>"Eye Of Chaos</strong>". The collective is the new project of former guitarist of<strong> SOULFLY</strong> and <strong>MACHINE HEAD Logan Mader</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9VHA0H8peZ0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

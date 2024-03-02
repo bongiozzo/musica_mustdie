@@ -133,6 +133,61 @@ All artwork and logos by Gustavo Sazes (www.abstrata.net )
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.10.2008 reviews Даёшь SERENITY на Евровидение
+
+<P>Napalm Records продолжают «облегчать» свой ростер. Вслед за некоторым количеством групп с женским вокалом, кстати, об одном из новых приобретений лэйбла читайте в ближайшее время, лэйбл подписал группу, которая, вообще, имеет мало общего с металлом. Во всех обзорах австрийцы SERENITY проходят, как power-progressive-metal. Формально это правда, но по своему настроению альбомы этой группы выходят за рамки типичной тяжёлой музыки.</P>
+<P>Начнём с вокала. Он очень мелодичен и где-то даже слащав. В нём нет ни мощи, ни какой-то типичной для металла техники. Подобное пение часто встречается у поп-исполнителей. Тоже касается и музыки. Несмотря на наличие примоченной гитары, сведением занимался даже Jacob Hansen, сама музыка могла бы запросто присутствовать на конкурсе «Евровидение», например. Никто бы не удивился, как в случае с LORDI. Безусловно, есть у этого альбома и привлекательные стороны. Например, симфонические аранжировки, общее разнообразие представленного материала... Но... Читай выше. Особенно странно выглядит гроулинг на второй вещи «Rust Of Coming Ages», он как будто что-то обещает, но в итоге обманывает. Кстати, стало модно использовать подобное пение в prog-metal, но у некоторых, как у THRESHOLD, это выглядит очень органично и свежо, SERENITY же просто распугивают своих потенциальных фэнов.</P>
+<P>И всё же обозреваемый альбом может пригодиться кое-кому. Не буду указывать пальцем, они сами&nbsp; всё знают.</P>
+Автор: Vit Belov
+
+### 22.04.2009 news SERENITY сочиняют
+
+<P><STRONG>SERENITY</STRONG> работают над новым материалом. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 25.01.2011 news Клип от SERENITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео австрийской группы <STRONG>SERENITY</STRONG> на песню <STRONG>"The Chevalier" </STRONG>можно посмотреть ниже. В клипе снялась вокалистка <STRONG>SIRENIA</STRONG> <STRONG>Ailyn. </STRONG>Эта песня войдёт на новый альбом группы <STRONG>"Death & Legacy", </STRONG>который выйдет 25 февраля на<STRONG> Napalm Records</STRONG>. </FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/53EMv7yvLj8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/53EMv7yvLj8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.03.2011 reviews Пасхальная музыка
+
+<P>Любую идею можно довести до абсурда. Помнится, был такой фильм с Бренданом Фрейзером «Ослеплённый желаниями», герой всё просил и просил, а потом получал и получал. Вот и мы, поклонники тяжёлой музыки, всё просили и просили симфонизма, эпичности и помпезности. И допросились… Последнее время появился стиль sympho-metal, в котором sympho не простая приставка, а корень слова. SERENITY яркие представители этого стиля.</P>
+<P>Я долгое время пытался подобрать подходящий эпитет для третьего альбома этой австрийской группы “Death & Legacy”, но ничего кроме слова «слащавый» на ум не приходило. Нордический красавец в жабо с полуобнажёнными красавицами в буклете поражает воображение. Когда слушаешь музыку, сразу понимаешь, что все её исполнители в жабо, а полуобнажённые красавицы бродят где-то рядом и пронзительно смотрят в их сторону. Безусловно, подобные картины кого-то и вдохновят, но, по мне, так это слишком. Либо одно, либо другое. Либо красавицы, либо жабо, но не всё же сразу на металическом альбоме. В остальном у SERENITY всё благополучно. Качественная реализация, вдохновенные мелодии, романтический вокал. В записи приняли участия популярные вокалистки: Ailyn (SIRENIA), Amanda Somerville (AVANTASIA) и Charlotte Wessels (DELAIN). Они дополняют картину всеобщей радости и благолепия.</P>
+<P>Наверняка найдутся поклонники «тяжеляка», которые приобретут альбом SERENITY, чтобы отдохнуть душой от кровожадного сатанизма и мизантропии. Романтичные мелодии и костюмы времён французской революции отлично подойдут для этого.</P>
+Автор: Vit Belov
+
+### 13.11.2011 news SERENITY: видео на песню &quot;When Canvas Starts To Burn&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал доступно для просмотра видео-клип австрийской группы <STRONG>SERENITY</STRONG> на песню <STRONG>"When Canvas Starts To Burn"</STRONG>.</FONT></P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/Xxudlkkp1qM?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 16.01.2013 news Новый альбом SERENITY
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2013.01/25323.jpg" width=475 height=483>22 марта на<STRONG> Napalm Records</STRONG> выходит новый альбом австрийцев <STRONG>SERENITY</STRONG> <STRONG>"War Of Ages". </STRONG>Трек-лист:</P>
+<P>01. <B itxtNodeId="302">Wings Of Madness</B><BR itxtNodeId="301">02. <B itxtNodeId="300">The Art Of War</B><BR itxtNodeId="299">03. <B itxtNodeId="298">Shining Oasis</B><BR itxtNodeId="297">04. <B itxtNodeId="296">For Freedom's Sake</B><BR itxtNodeId="295">05. <B itxtNodeId="294">Age Of Glory</B><BR itxtNodeId="293">06. <B itxtNodeId="292">The Matricide</B><BR itxtNodeId="291">07. <B itxtNodeId="290">Symphony For The Quiet</B><BR itxtNodeId="289">08. <B itxtNodeId="288">Tannenberg</B><BR itxtNodeId="287">09. <B itxtNodeId="286">Legacy Of Tudors</B><BR itxtNodeId="285">10. <B itxtNodeId="284">Royal Pain</B><BR itxtNodeId="283">11. <B itxtNodeId="282">Fairytales</B> (ballad version; limited-edition bonus track)<BR itxtNodeId="281">12. <B itxtNodeId="280">Love Of My Life</B> (limited-edition bonus track)</P>
+Автор: Vit Belov
+
+### 09.01.2016 news SERENITY споют о Леонардо
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятый альбом<STRONG> SERENITY "Codex Atlanticus"</STRONG> выходит 29 января на <STRONG>Napalm Records</STRONG>. Нас ждёт концептуальная работа, рассказывающая о Леонардо Да Винчи. Трек-лист:</FONT></P>
+<P>“Codex Atlanticus”<BR>“Follow Me”<BR>“Sprouts Of Terror”<BR>“Iniquity”<BR>“Reason”<BR>“My Final Chapter”<BR>“Caught In A Myth”<BR>“Fate Of Light”<BR>“The Perfect Woman”<BR>“Spirit In The Flesh”<BR>“The Order”</P>
+<P>Iniquity:</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/BSxoNrjt7Us" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -1913,6 +1913,1100 @@ Bluray:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.01.2003 reviews Продолжение Tribute безумия от Nuclear Blast
+
+<p>Очень близкий ко мне tribute. Группа, на которой воспитывалось множество металлхэдов во всём мире в очередной раз подверглась 'каверированию'. Пожалуй, самый представительный tribute этой модной американской группе. Следует отдать должное большинству групп, которые не пошли по проторенному пути, а отыграли старые не столь хитовые вещи (кому, как???). Перейдём к песням... Можно отбросить версии Dark Tranquillity и In Flames, которые датируются 1994 годом и не представляют никакого интереса, к тому же их уже многие слышали. Определённо, лучшими вещами стали Primal Fear 'Seek &Destroy' (очень мощное начало диска), Destruction 'Whiplash' (pure thrash-metal), Crematory 'One' (великолепная интерпритация великолепной песни), Sonata Arctica 'Fade To Black' (пронзительная баллада). Удивляет, что хит всех времён, сами знаете какой, исполняет малоизвестная команда Burden Of Grief (лучше уж, вообще "не сдували пыль"). И очень расстроил бездарный кавер Therion 'Fight Fire With Fire', где от группы осталось лишь вступление, а в остальном Йонсон и сотоварищи пытались копировать молотилово Metallica. Можно послушать ради интереса, пару раз.</p>
+
+Автор: Vit Belov
+
+### 20.02.2003 reviews Continuation of tribute madness of NUCLEAR BLAST
+
+<p>This TRIBUTE is very close to me. Band, on which millions of fans over the world were brought up, was covered in next time. This is most representative tribute to this modern American band. I'd like to give back due to most of the bands, which played old good stuff of METALLICA. Let's come to the songs... We can not pay attention to the songs by DARK TRANQUILLITY and IN FLAMES. This versions are dated by year of 1994, it's not interesting. Best versions from this CD is PRIMAL FEAR 'Seek & Destroy' (very power beginning), DESTRUCTION 'Whiplash' (pure thrash-metal), CREMATORY 'One' (magnificent interpretation of magnificent song), SONATA ARCTICA 'Fade To Black' (shrill ballad). I was surprised that hit of all times and all peoples (you know, what i about) was played by little-known band BURDEN OF GRIEF (don't blow ashes, better). And i was very upset by cover by THERION 'Fight Fire With Fire', where we have only intro from THERION. In the other parts of song Johnsson and Co copy thrash by METALLICA. You have to listen to it... 1 or 2 times.</p>
+
+Автор: Vit Belov
+
+### 17.05.2003 reviews Счастливая семейка
+
+<p>Немного грустно, когда такие жизнерадостные группы прекращают своё существование. Рассматривая буклет рецензируемого диска и натыкаясь на древние фотографии, черновики старых хитов, появляется чувство сожаления, по тому времени, в котором никому из нас уже не суждено побывать. Быть может, мне бы там и не понравилось... Но всё-таки хочется соотносить его с музыкой The Ramones, а не с музыкой Sex Pistols, к примеру. Посвящение гигантам американского punk-rock'a... Действительно, редко можно встретить на трибьют-альбомах таких монстров, например, как Kiss. Гиганты, пусть и построены все песни на трёх-четырёх аккордах, заряд энергии, который Вы получите от прослушивания их дисков сравним, пожалуй, только с потенциалом Motorhead. Но только, лучше приобретите музыку самих... Трибьют этот, несмотря на "коллекцию экспонатов", очень не показателен. Группы соревновались в том, как переделать известные песни на свой лад. Дух The Ramones удалось сохранить немногим. Если же Вы знакомы с творчеством группы, можете послушать, прикольнуться...</p>
+
+Автор: Vit Belov
+
+### 04.10.2003 reviews Творчество сибирских металлистов
+
+Рецензировать сборники всегда интересно и легко. Не надо выдумывать велосипед, пиши себе по немногу о каждой группе, вот и материал... В данном случае мы имеем дело со сборником сибирских групп. Второй выпуск, изданный на "чёрном" CD-r с накаткой, и с активным использованием классики жанра horror в оформлении. 17 композиций - 16 групп отражают положение дел в Сибири. Не знаю. Если это так, то там оно очень плачевно. Лишь несколько групп со сборника смогли самовыразиться более или менее успешно. Ну по порядку. Начнём с хорошего. Уже известные нашему читателю MURDER DELIRIUM и DRYADOS не обманули надежд. Кто же за ними вслед? Практически никого. Можно отметить лишь Demon Project (неплохой melodic death-industrial, которому стоит добавить по больше death и совсем избавиться от электроники)&nbsp;и&nbsp;Антон Ильяшенко (pop-hard-rock среднего пошиба), ну и где-то рядом инструментальные композиции от Андрея Глебова и "Терминальные состояния". Это троечники, а остальные делятся на тех, у кого ничего нельзя понять кроме контуров, и тех, у кого материал не выдерживает критики. Ко вторым относятся SKORZENY (аж две песни), WERWOLF (death-metal), MORIOR (подвальный black-metal), ДАЛАЙН (помесь RAMMSTEIN с ТЕХНОЛОГИЯ), БАСТИОН СУДЬБЫ (русскоязычный heavy-metal) и&nbsp;VAM I NE SNILOS' (a-la Бони НЕМ, только много хуже). Другая группа ещё оставляет некоторые надежды, если пропишется по нормальному, это: HARMONY IN GROTESQUE (gothic-doom), OBSESSED BY SETH (death-metal), TERRA INCOGNITA (gothic-doom, здесь и женский вокал, и скрипка, но как криво:(()&nbsp;и WELICORUSS (pagan-metal).&nbsp;Печальный итог: 2 хороших группы, 2 удовлетворительных, 2 на тройку с минусом, 4 без оценки и 6 плохих.
+Автор: Vit Belov
+
+### 18.11.2003 reviews Скажем дружно: нафиг нужно!
+
+Хардкор «имеет» рэп. Я очень не люблю рэп, посему для меня (и, надеюсь, для каждого из вас) каждый случай подобного «имения» должен вызывать только радость. Однако в данном случае этом не совсем так, точнее, совсем не так. Ибо совершенно непонятно, кому на Steamhammer пришла в голову мысль выпускать сию компиляцию. 12 неизвестных (либо известных в узком кругу) нью-йоркских хардкоровых команд исполняют кавера на рэповские хиты. Возможно, чтобы понять всю прелесть данного сборника, надо жить в Нью-Йорке и хорошо разбираться в рэп-сцене. Не знаю. Могу я сказать лишь то, что все трэки вызывают одинаковое желание, а именно побыстрее нажать кнопку «стоп» (даже не «скип») на плеере, чтобы поскорее закончить процесс, мучительный как для собственных ушей, так и, видимо, для самого плеера. Какие-то вещи перепеты в хардкоровой манере, какие-то оставлены в рэповой обработке. Дело не в этом. А в том, что все это ужасно однообразно и до невозможности скучно. Кто захочет потратить свои кровные на подобный релиз, мне совершенно непонятно. Альбом предоставлен концерном "Группа СОЮЗ".
+Автор: Ixtiandr
+
+### 21.12.2003 reviews Дебют сразу тринадцати групп
+
+<P>На мой взгляд, идея трибьюта чисто с музыкальной точки зрения предусматривает некоторое переосмысление творчества “трибьютируемой” группы, расширение музыкальных границ её творчества. Только не здесь. Я готов поверить, что тринадцать рецензируемых исполнителей играют разную интересную музыку. Готов поверить в силу своего природного оптимизма, потому что ни одного знакомого названия в списке исполнителей я не нашёл. Стоит ли говорить о какой-либо оригинальности прочтения творчества Крэдлов этим командами? Посему поголовному перечислению я их не подвергаю. Подобную историю я вспоминаю на трибьюте Мэйденам года три назад. </P>
+<P>Очевидно, лейбл надеется, что <B>COF</B> достигли такого статуса, что фанаты купят этот трибьют, а потом еще и альбомы нескольких из этих групп. Пусть надеется. </P>
+<P>Каким образом на альбом попала вещичка “<B>No Time To Cry</B>” <B>Sisters Of Mercy</B> в исполнении <B>D.D.T.</B> ясно не особо. Вполне возможно, что с этой песней в неизменном виде еще придется встретиться на каком-нибудь трибьюте “Сестёр”. На этом в принципе бы стоило и закончить, влепив альбому твердые 2.5 балла, да некоторые плюсы я смог найти. Во-первых, представленные песни не самые плохие и послушать их было вполне приятно. Во-вторых, на альбоме имеется атмосфера некой целостности, что очень важно для трибьюта.</P>
+<P>Рекомендуется фанатам <B>Cradle Of Filth</B>.</P>
+Автор: Uneral
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 03.02.2004 reviews Очень качественный трибьют
+
+Отличный трибьют! На удивление разнообразно и справедливо разобрались с творческим наследием “Scorpions” участники трибьюта, не переигрывая Один-В-Один ставшие классикой песни, экспериментируя и делая просто качественную музыку. К числу удачных работ, коих немало, стоит отнести Sonata Arctica “Still Loving You”. Если кто не слышал – не смейтесь, пожалуйста! Я сам не фанат этой группы, но у них получилась очень достойная вещь. Еще очень запомнились Tankard с забавной скоростной, драйвовой версией “Coming Home”. Также для прослушивания очень даже пригодны Sinergy “Rock You Like A Hurricane”. Больше ничего отдельно выделять не буду. Не буду ни по причине отсутствия других приемлемых для прослушивания песен, нет. Просто средний уровень этого альбомы редкостно высок для трибьюта и нет очевидных провалов среди 19 трэков диска. Ну а если вы с не ровно дышите к хитам «Скорпионс», то почти 74 минуты приятного время препровождения вам обеспечены.
+Автор: Uneral
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 18.03.2004 reviews Мы громче дракона, да поем как ворона
+
+<P>Лейбл "Лимб Мюзик" нам всем знаком по тоннам второсортных пауэрных групп, которые с регулярностью штампуют свои "шедевры" и охотно рассылают их по другим лейблам и различным музыкальным изданиям. Но на этот раз ЛМ превзошли сами себя, умудрившись выпустить двойной сборник&nbsp;из 28 песен&nbsp;на более чем два часа звучания. Такого плана компиляции имеют определенную ценность, когда на них выходят какие-то ранее не выпускавшиеся вещи или иные редкости. На сем же сборнике такого, похоже, нет - ибо на промо пометки сделаны только на двух песнях, причем "eidt" и "remastered", смешно просто. Наиболее известные исполнители на диске&nbsp;это Cryonic People, Dungeon, Gothic Knights, Gun Barrel, Human Fortress, Lana Lane (не очень понятно&nbsp;их присутствие на пластинке)&nbsp;, Mob Rules, Rhapsody и Luca Turilli. Скрепя сердце, выделю следующих исполнителей, песни которых на данном альбоме хотя бы можно слушать без отвращения: те же Gun Barrel, Lana Lane, Rhapsody, Luca Turilli, а также Ironware, Magic Kingdom, Midnight Sun, Pagan's Mind, Rising Faith, Valley's Eye, Vanishing Point и Wizard. Ума не приложу, кому могла понадобиться сия компиляция? Чтобы показать уровень лимбовских команд? Да его и так все знают. В общем, возможно, что "тру"-фанаты пауэра и заинтересуются этим сборником, остальным же не рекомендую впустую тратить свое время. Я б поставил и меньше баллов, но дракончик на обложке уж очень хороший.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 19.03.2004 reviews Резня ушей бензопилой
+
+<P>Это, собственно, саундтрек к римейку соответствующего фильма ужасов 70-х годов. Сам фильм я не смотрел, но я лично знаю очень немного картин, после которых хорошо запоминаешь сопровождающую кинематографическое действо музыку. Так что будем рассматривать этот альбом как некую компиляцию. На ней отметились как известные группы (Pantera, Meshuggah, Fear Factory, Morbid Angel, Soil, Shadows Fall и пр.), так и менее известные команды (Core-Tez, Sworn Enemy, 40 Below Summer, Motograter&nbsp; и др.). Если брать в общем и целом, то большинство исполнителей играют некую смесь хардкора, ню-метала и постгранжа, каждый в своих пропорциях. Но интересных вещей здесь очень мало, стоит отметить лишь тех же Morbid Angel, Fear Factory и Meshuggah, а также Finger Eleven и Lamb Of God.&nbsp;В остальном же это больше для любителей "современного метала", популярного в основном в Новом Свете, но ровным счетом ничего из себя не представляющего для истинных ценителей музыки. Хотя для плясок на барной стойке в "Голодной утке" такой музон вполне подойдет.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 30.03.2004 reviews Серия трибьютов от Frontiers. Том первый.
+
+<P>Не наученный горьким опытом англичан из “Store For Music”, отважный итальянский лейбл “Frontiers Records” замыслил выпустить очередную серию трибьютов. Первой жертвой пал «Mr. Big», успешно косивший бабло по обе стороны Атлантики и на загадочных островах Восходящего солнца. Так как у Фронтирса авторитета в мире несравнимо больше, команда, сделавшая этот альбом собралась грандиозная. Перечислять их славные имена бессмысленно, долго, да и, прямо скажем, лениво. Соответственно уровню музыкантов вышло и качество сыгранного материала. Уж если играет на басу Billy Sheehan («Mr. Big» с Полом Роджерсом на вокале), так сразу становится понятно, что не три года практики в Р-Клубе у него за спиной. Плюс к ним Richie Kotzen c гитарой. В результате - мощный блюз с плотным звуком. А еще мне очень понравилось, как поёт этот самый Билли. Сочный низкий вокал на “Addicted To That Rush”. На гитаре опять же Ричи, и впечатляющее соло на губной гармошке знаменитого клавишника Тедди Андреадиса (вспомните хотя бы “November Rain” Guns’n’Roses). Да и «голос рока» Гленн Хьюз не умеет халтурить, две песни с ним “Price You Gotta Pay” и “Alive And Kickin’”, чуть ли не лучшие на сборнике. А энергичнейшая “Daddy, Brother, Lover, Little Boy” c Джо Линн Тернером у микрофонной стойки?&nbsp; Маленький шедевр. Как всегда, спешащий обогнать самого себя Малмстин и одновременно с маэстро солирующий Lanny Cordoba (Doro, Giuffria, House of Lords), который, удачно имитируя манеру игры Блэкмора, выдаёт нечто, похожее на риффы из “SpeedKing”. Хорошая шутка. Или звучащая теперь как типичный женский рок “Promise Her The Moon” c вокалисткой «Heart» Ann Wilson? Очень приятная версия.</P>
+<P>Есть, конечно, на альбоме и спорные моменты. Мне вот не очень понравилось, как спел Doug Pinnick (King’sX) “Take Cover”. Прекрасный вокал… ему бы агрессивное нечто исполнить. Не хватает нежности в голосе. Хотя взвизгнул он в конце хорошо. Уважаю. Или вот John Waite (The Babys, Bad English). Наоборот, голос чрезвычайно мягкий, совсем уж сладко вышло.</P>
+<P>Но это так, придирки. Подбор песен отличный. Драйва куча. Отличный «памятник»</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 08.12.2004 news Monsters Of Metal, vol.3
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На днях на<STRONG> Nuclear Blast</STRONG> вышла третяя часть DVD-сборника <STRONG>Monsters Of Metal</STRONG>. Трэк-лист:</FONT></P>
+<P>DVD 1 </P>
+<P>1. <STRONG>NIGHTWISH - Nemo<BR></STRONG>2. <STRONG>EDGUY - Lavatory Love Machine <BR></STRONG>3. <STRONG>DEATH ANGEL - Thicker Than Blood<BR></STRONG>4. <STRONG>PRIMAL FEAR - The Healer<BR></STRONG>5. <STRONG>WINTERSUN - Beyond The Dark Sun<BR></STRONG>6. <STRONG>APOCALYPTICA feat. N. HAGEN - Seemann</STRONG> <BR><IMG height=225 alt="" hspace=0 src="/images/news_rus/2004.12/7477.jpg" width=160 align=right border=5>7. <STRONG>ANTHRAX - What Doesn't Die<BR></STRONG>8. <STRONG>EKTOMORF - Destroy<BR></STRONG>9. <STRONG>HYPOCRISY - Eraser<BR></STRONG>10. <STRONG>SENTENCED - Killing Me Killing You<BR></STRONG>11. <STRONG>ICED EARTH - When The Eagle Cries<BR></STRONG>12. <STRONG>HAMMERFALL - Renegade<BR></STRONG>13. <STRONG>SOILWORK - As We Speak <BR></STRONG>14. <STRONG>DESTRUCTION - Ravenous Beast<BR></STRONG>15. <STRONG>CHILDREN OF BODOM - Downfall <BR></STRONG>16. <STRONG>EXODUS - Throwing Down<BR></STRONG>17. <STRONG>NEVERMORE - I, Voyager<BR></STRONG>18. <STRONG>AMORPHIS - Against Widows<BR></STRONG>19. <STRONG>MONSTER MAGNET - Unbroken (Hotel Baby) <BR></STRONG>20. <STRONG>FIREBALL MINISTRY - King <BR></STRONG>21. <STRONG>AGATHODAIMON - Serpent's Embrace</STRONG><BR>22. <STRONG>MISERY INDEX - The Great Depression<BR></STRONG>23. <STRONG>MORBID ANGEL - Enshrined By Grace<BR></STRONG>24. <STRONG>IMPERANON - Sold<BR></STRONG>25. <STRONG>FINNTROLL - Trollhammaren</STRONG></P>
+<P>Studio Chapter: <BR><STRONG>MNEMIC @ Antfarm Studios Denmark </STRONG></P>
+<P>Live Chapter: <BR>1. <STRONG>GRAVE DIGGER - Valhalla<BR></STRONG>2. <STRONG>CRYSTAL BALL - Hellvetia<BR></STRONG>3. <STRONG>DEATH - Scavenger Of Human Sorrow<BR></STRONG>4. <STRONG>DARKANE - Violence Fom Within</STRONG> (Death Angel Tour 2003)<BR>5. <STRONG>GRAVEWORM - Demonic Dreams</STRONG> (X-Mass Festivals 2003)<BR>6. <STRONG>KATAKLYSM - Where The Enemy Sleeps</STRONG> (No Mercy Festivals 2004)</P>
+<P><BR>DVD 2 </P>
+<P>1. <STRONG>NIGHTWISH - Wish I Had An Angel<BR></STRONG>2. <STRONG>SONATA ARCTICA - Don't Say A Word<BR></STRONG>3. <STRONG>MNEMIC - Deathbox<BR></STRONG>4. <STRONG>DIE APOKALYPTISCHEN REITER - Eruption <BR></STRONG>5. <STRONG>AGNOSTIC FRONT - Peace <BR></STRONG>6. <STRONG>LIFE OF AGONY - Weeds <BR></STRONG>7. <STRONG>CHIMAIRA - Down Again <BR></STRONG>08. <STRONG>IN FLAMES - Touch Of Red<BR></STRONG>10. <STRONG>SEPULTURA - Roots Bloody Roots <BR></STRONG>11. <STRONG>KILLSWITCH ENGAGE - Rose Of Sharyn <BR></STRONG>12. <STRONG>SOULFLY - Prophecy<BR></STRONG>13. <STRONG>VOIVOD - We Carry On <BR></STRONG>14. <STRONG>DEVIL DRIVER - I Could Care Less <BR></STRONG>15. <STRONG>ARCH ENEMY - Ravenous <BR></STRONG>16. <STRONG>CREMATORY - Revolution <BR></STRONG>17. <STRONG>LACUNA COIL - Swamped<BR></STRONG>18. <STRONG>XANDRIA - Ravenheart</STRONG> <BR>19. <STRONG>IMMORTAL - One By One</STRONG> <BR>20. <STRONG>DEICIDE - Scars Of The Crucifix <BR></STRONG>21. <STRONG>SUSPERIA - The Bitter Man <BR></STRONG>22. <STRONG>OMNIUM GATHERUM - Writhen <BR></STRONG>23. <STRONG>MYSTIC PROPHECY - Burning Bridges <BR></STRONG>24.<STRONG> SINERGY - Midnight Madness<BR></STRONG>25. <STRONG>STRATOVARIUS - Hunting High And Low</STRONG></P>
+Автор: Vit Belov
+
+### 24.01.2005 reviews Недокомпиляция или пересплит?
+
+<P>Абсолютно голая улыбающаяся телка, сидит раздвинув ноги, которых у нее нет. Что это? Порнофильм ужасов, пособие для хирургов, занимающихся ампутацией конечностей или просто фантазии маньяка - извращенца? А вот и нет! Это обложка нового релиза лейбла Pyrolagnia, сплита Russian Maniaxxx, состоящего аж из 4 групп! Кошмарное зрелище, как впрочем, и содержание диска. </P>
+<P>Начнем по порядку: Abnormal. Рубят эти питерские маньяки брутал дэт. Друзья, простите, но мне кажется, что композиции продолжительностью более 4-х минут для такого стиля - явно перебор. А уж если и делать такие песни, то нужно делать и cоответствующие аранжировки, написать партию второй гитары, разнообразить риффы. Слишком уж все затянуто и скучно получается. </P>
+<P>Номер 2- коллектив Cryptic Vomit. Гор-грайнд. Стиль достаточно ограниченный и разнообразием не отличающийся. Вся музыка в нем строится на барабанщике - насколько технично он справляется со скоростями в бласт - битах, не пропадает ли у него подача в малый барабан при быстрой игре бочками. А слушать стрекотание драм-машинки - нет уж, увольте. </P>
+<P>Идем дальше: Haemorr Drench. Кислотно - дискотечные ритмы, перемежающиеся похотливыми постанываниями. Подойдет разве что, как саундтрэк для порно-версии какой-нибудь Матрицы. Пожалуй, спасают ситуацию только питерцы Morrah, завершающие&nbsp; данный диск. К сожалению, их творчество представлено только тремя композициями. Вполне приличный дэт, неплохо к тому же записанный. Вокалист довольно уверенно чередует гроулинг и скриминг. Партии инструментов продуманы и исполнены безукоризненно. Никаких претензий. Оценивать&nbsp; диск не буду, ибо итак все ясно.</P>
+Автор: Fucker
+
+### 31.01.2005 reviews Андеграундный беспредел
+
+<P>3-way split CD от андеграундного лейбла Coyote Rec.предлагает ознакомиться с группами, играющими death\grind. О каждой по порядку. Открывает диск бразильская формация M.D.K. Десять треков уникального в своей тупости goregrind'a. Монотонный скрежет гитар, хаотичные ударные и гаражное звучание. Настоящий хаос! </P>
+<P>Далее четыре трека польских NECROPSY, лучшее, что есть на диске. А что у нас любят играть поляки? Правильно! Death metal. Весьма неплохой, надо заметить. Скучать не придётся, четыре композиции проносятся ураганом, а уж владеть инструментами поляки умели всегда. Последний трек, что интересно, на русском языке.</P>
+<P>И, наконец, пермский ABORTED FETUS. Пять треков death\grind'a настолько поганого качества, что дослушать до конца это безобразие по силам не каждому. Положение не спасает даже кавер GUT. Вот он настоящий андеграунд!</P>
+<P>Особо хочу отметить оформление CD - не для слабонервных. Рекомендовать этот сплит я могу лишь настоящим приверженцам UG-сцены, поэтому оставлю без оценки.</P>
+Автор: Graver
+
+### 03.02.2005 reviews Корнями в славных восьмидесятых
+
+<P>Вообще-то я не люблю альбомы-трибьюты. Ничего хорошего не ожидалось мной и от этого сборника разношерстных команд, многие из которых были организованы на рубеже нового тысячелетия. Однако прослушивание подтвердило услышанный от кого-то тезис о том, что «Европа – родина слонов». И даже не слонов, а металлических мамонтов. Начнем по порядку.</P>
+<P>Всего на диске 15 композиций. Альбом открывается мощным вариантом “Power And The Glory” (SAXON) в исполнении BLACK STEEL. Качественное, тяжелое звучание, мощнее и сочнее оригинала. Вторая вещь – “Some Heads Are Gonna Roll” (JUDAS PRIEST), сделанная FROZEN TEARS, демонстрирует меньшую оригинальность и попытки вокалиста Alessio Taiti «петь как старина Роб». Конечно, это получается не очень хорошо.<BR>Исковерканная версия “Rainbow In The Dark” (DIO) несколько портит первое пристойное впечатление от компиляции – катастрофически не вытягивает вокалист, и провалены все инструменты. Зато следующий трек “Metal Daze” (MANOWAR) в исполнении вокалистки Наташи Гейер из MYSTERY BLUE звучит весьма свежо и забавно. Женщина, исполняющая тру-хэви! Единственное, что можно посоветовать Наташеньке – не так экстатично кричать после исполнения припева. Песня всё-таки называется не “Pleasure Slave”. Это нарекание единственно – вокал в целом хорош, инструменты на высоте.</P>
+<P>Исполненная SOMNIAE STATUS вещь “I Don’t Believe In Love” (QUEENSRYCHE) демонстрирует хорошую запись басовых партий и высокую квалификацию самого коллектива. Очень интересно слушать такие вещи, в которых музыканты стараются выразить свою любовь к композиции и одновременно продемонстрировать свой уровень.<BR>Следом идёт совершенно неоригинальная версия “Flight Of Icarus” (IRON MAIDEN), предложенная коллективом ASKA. Ничего интересного в музыкальных партиях и совершенно непотребный вокалист. Но любителям «девы», возможно, будет эта версия весьма интересна.</P>
+<P>Импульсивная подача кавера на рэйбоновскую “Long Live Rock’n’Roll” выводит банду со странным названием STAR RATS в группу лидеров сборника. Вокал весьма неплох, эмоциональная составляющая зашкаливает за 500%, музыка толковая. Молодцы. А вот группа с «оригинальным» названием RAPID FIRE сделала весьма посредственную версию “Crazy Doctor” (LOUDNESS).</P>
+<P>А вот DRAKKAR очень обрадовали своим вариантом куперовской “Poison”. На треке присутствуют и самопальные гитарные соло, и потрясающее вокальное подражание «королю хоррор-метал», и просто качественная запись вкупе с профессиональной работой. Очевидно, лучший кавер на компиляции.</P>
+<P>Тяжеленькая интерпретация “Flee From Reality” (METAL CHURCH) в исполнении SEVENTH SEAL также очень приятна на слух, хотя практически не отличается от оригинала. Небольшая разница состоит в том, что исполняет песню женщина, и исполняет замечательно. Также очень хорошо переиграли “Another Day” (DREAM THEATER) ньюйоркцы AZTEC JADE – я, хотя и не являюсь глубоким ценителем творчества «театралов», слушал песню с большим удовольствием.</P>
+<P>В целом обычная версия “Unchain The Night” (DOKKEN) не позволяет говорить о TWILIGHT ODYSSEY из Бруклина как о самобытной группе. Здесь не спасает положение даже вокал Pamela Berminghof, не очень качественный и совсем не самобытный. Аналогично можно отметить попытку модерн-металлистов S.N.P. сделать свою версию металликовской “The Thing That Should Not Be”, правда вокалист здесь более качественный, сама группа существует с 1990 года.</P>
+<P>Потрясающий вариант “Madhouse” (ANTHRAX) был представлен командой MOTHER OF SIN из Нидерландов. Лидер-гитарист и вокалист этой группы, Eduard Howing, был замечен на первых трех альбомах групп ELEGY и PRIME TIME в аналогичном качестве, поэтому нет ничего удивительно в замечательной постановке гитарных партий и партий вокала. Очень качественная и самобытная работа.</P>
+<P>В качестве бонуса на диске присутствует не особо интересный кавер “I’m Alive” (HELLOWEEN) в исполнении уже упомянутых SEVENTH SEAL. Песня уступает по качеству предыдущей пробе коллектива, но на фоне прочих участников компиляции выглядит достойно.</P>
+Автор: Vlad
+
+### 05.02.2005 reviews Сделай погромче!
+
+<P>Просто шикарный сплит! Настоящий подарок всем любителям устроить своим мозгам экзекуцию.</P>
+<P>Открывает диск костромская группа BARBARITY.В целом средне темповый "варварский" дэт, довольно-таки драйвовый. Неплохо,но не более того. Три своих композиции плюс кавер на напалмдэтовскую "Suffer The Children".</P>
+<P>Москвичи KATALEPSY играют весьма интересный брутал-дэт с неслабым влиянием nu-metal'a, чем и примечательны. Ей-богу, это надо слышать! Жаль, но треков всего два, а так хочется больше. Будем ждать полноформатник. Особенно меня порадовал второй трек.</P>
+<P>Далее волгоградский SMERSH. Парни рубят "антикапиталлистический" грайндкор. Ну неплохо рубят, добротно так, башкой можно потрясти. Могу ещё отметить весёлые сэмплы в качестве интро к песням(песням?). На диске записан альбом этих ребят "Vagina of Capitalism".</P>
+<P>POSTHUMOUS BLASPHEMER уже довольно известная группа и на диске можно найти EP-шку "Genocide of Dogma". Когда я впервые услышал брутальный дэт в исполнение этих белорусов, а группа именно из Белорусcии, я был потрясён.Такое не часто услышишь на постсоветском пространстве. Музыка PB похожа на адский локомотив, несущийся на дикой скорости по бескрайним просторам преисподней, сметая всё на своём пути. И в целом сравнима с такими монстрами мирового брутала, как SUFFOCATION, INCANTATION и CANNIBAL CORPSE. Пять треков проносятся в голове словно торнадо.</P>
+<P>Ещё раз повторюсь, диск просто шикарный. Радует,что и у нас стали выпускать качественные сплиты. Самые однозначные рекомендации.</P>
+Автор: Graver
+
+### 13.03.2005 reviews Лекарство для всех
+
+<P>Двойной “памятник” легендарной группе “Cure”. 34 группы разной степени популярности представляют нам свой взгляд на творчество одних из основателей современного готик-рока. Получается у всех по разному, в меру таланта, но никто не делает точных копий оригинальных композиций, что неимоверно радует. Причем даже самого классического готик рока на “Our Voices” не так уж и много. Все больше представители смежных стилей экспериментируют с классическими песнями. Вот, например, германский medieval проект “Violet” представил акустическую, почти фолковую, версию “Kyoto Song”, а “Tanzwut”, естественно, исполнил “Lovesong” со своими дудками и волынками. Очень порадовали чисто электронная синти-поповая “One Hundred Years” от “Final Selection” и клубно-танцевальная, очень изобретательная и неожиданная версия “The Hanging Garden”, сделанная ручками двух американских диджеев Rexx Arkana (aka Bruderschaft Project) и DJ Dracos. Это, пожалуй, лучший трек альбома. Удачна стебовая версия хита всех времен и народов, самая известная песня “Cure” – “Friday I’m In Love” от “Sanguis Et Cinis”. Медаль шоколадную им за искрометный юмор и вокалистку. Удивил, по-хорошему, “A Forest” в исполнении готик-думстеров “Floodland”. Замечательный вариант, хотя, хорошую песню испортить сложно.</P>
+<P>Не все, конечно, так гладко. Есть и откровенные неудачи – внутренний протест у меня встретил кавер от “Terminal Choice”. Ну и еще несколько скучноватых песен. Они то и у «Кью» слушаются тяжело… а в руках новичков совсем в колыбельные превращаются.</P>
+<P>Очень приличный, а главное, интересный трибьют, на которым при каждом новом прослушивании открываешь для себя что-то новое. То, что не понравилось сначала, начинает неимоверно рулить через пару дней. Альбом на любое настроение.</P>
+<P>Ортодоксальным фанатам “Cure” не рекомендуется.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Дофф
+
+### 18.03.2005 reviews Дэт&#x2F;грайнд угар!
+
+<P>Ранее коллектив Educated Scum мне доводилось слышать только живьем на концертах - и, скажу вам, зажигали они там совсем не по-детски. В принципе, сам стиль дэт-грайнд лучше воспринимается именно в зале, при&nbsp; тесном контакте с публикой, чем на пластинке. Но данный альбом меня просто поразил: отличная ураганная музыка, с применением соляков и трэшевых элементов. Никакого тупого рубилова - вещи достаточно разнообразны и особый колорит им придают выдержки из выступлений различных российских политиков, которые зачастую открывают композиции. Особенно запомнилась речь Владимира Вольфовича про свободу с "виселицей и расстрелом". Тексты, соответственно, носят политически-социальную направленность. Надеюсь, что в ближайшее время группа сможет записать полноценный релиз с живыми барабанами и порадует всех поклонников жанра. </P>
+<P>Второй коллектив Fight Back стилистически можно скорее отнести к хард-кору, который, даже при неплохом исполнении все-таки разнообразием не блещет и по сравнению с Эдьюкейтедами смотрится довольно тускловато. Хотя, на отдельном релизе, возможно,<BR>слушались бы интереснее. </P>
+<P>Диск предоставлен Not Like Most<BR></P>
+Автор: Fucker
+
+### 10.01.2006 reviews Мы громче дракона, да поем как ворона - часть 2
+
+<P>Менять заголовок рецензии на сборник лейбла Limb Music не имело никакого смысла - лишь подставил "часть 2". На сей раз он вышел не двойным (по сравнению с компиляцией 2004 года), а одинарным; сюда вошло 16 песенок от 14 "лимбовских" групп (по каким-то причинам Dungeon и Eldritch удостоились чести поместить по два произведения). Как и в прошлый раз, смысл выпуска сего "шедевра" для меня так и остался непонятным, ибо никаких редкостей тут нет, а любители подобной, да простит меня Бог, музыки так и так купят альбомы этих исполнителей. В том, что найдутся смельчаки, готовые выложить 10 евро за сей непотребный продукт, я сильно сомневаюсь. Кому все-таки интересно, перечислю вошедшие в сборник группы: Black Majesty, Casus Belli (единственная неизвестная мне команда из данного списка), Cryonic Temple, Domain, Dungeon, Elrditch, Eternal Reign, Galloglas, Godiva, Gun Barrel (даже они не порадовали), Icycore, Olympos Mons, Pagan's Mind, Wizard. Дополнительную пару баллов альбом вновь получает за симпатичную обложку с непонятным монстром.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 23.03.2006 reviews Баллады они и в Африке баллады
+
+<P>Наверное, уже сложно подсчитать, сколько существует подобных компиляций. Всевозможные romantic ballads и&nbsp;love songs всегда пользовались большой популярностью, особенно у женской части слушающего музыку населения. Так что вопрос "а зачем вообще нужные такие сборники" отпадает. Главным минусом подобных подборок считаю тот факт, что там не бывает (мне, во всяком случае, не попадались такие) каких-либо эксклюзивных трэков и прочих редкостей, но, с другой стороны, такие компиляции и не преследуют цель быть коллекционным раритетом. Ну а главный плюс (кроме возможности подарить&nbsp;такую пластинку&nbsp;любимой девушке или же поставить ее музыкальным сопровождением для интимного вечера) - на них редко попадаются проходные песни. Ведь баллады (или, как их еще принято разывать у металистов, "медляки") они и в Африке баллады. Да и бывает, что вам нравятся именно медленные вещи, а покупать весь альбом ради одной-двух песен не хочется. Так что такой вариант и бюджетный, и полезный, и приятный. И "союзовский" сборник "Romantic Dark Ballads" не исключение. 13 вещей от таких разных исполнителей, как Axel Rudi Pell и&nbsp;Moral Eel, Dragonforce и Katatonia, Fusspils 11 и Blackmore's Night, Helloween и Olga Romanova будут неплохим подарком к празднику, будь то 8-е марта или день рождения вашей дрожайшей, ведь конфеты и парфюм уже порядком всем надоели и не кажутся больше чем-то оригинальным. А если еще и добавить бутылочку шампанского...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 23.07.2006 reviews Довольно бессмысленный сборник
+
+<P>Вот не понимаю я смысла выпуска подобных компиляций. Из одиннадцати представленных на "Rock S'cool" от Steamhammer/SPV вещей лишь четыре на момент выхода этого сборника еще не вышли официально на альбомах. Хотя промоушен новых релизов вещь, безусловно, важная. Тем более, как я понял, диск этот распространяется на всяких фестах бесплатно (или в "нагрузку" к покупке иной продукции) или типа того. Кстати, вышел и DVD с аналогичным названием, но там уже материал поинтереснее - 31 клип на более чем два часа, буклет 16 страниц, iPod videos и т.д. Про аудиодиск сказать, по большому счету, абсолютно нечего. 11 песен, 11 исполнителей, 11 альбомов. По одной песне ни один нормальный человек обо всем альбоме судить не будет, ну а новые пластинки своих любимцев приобретут так и так. Поэтому мне остается лишь перечислить группы, представленные на "Rock S'cool" (кстати, обложка там довольно занимательная, хехе...): Mot&#246;rhead, Saxon, Metal Church, Sepultura, Beyond Fear, Sodom, Moonspell, Axel Rudi Pell, Cheap Trick, M&#246;tley Cr&#252;e, Zebrahead. Оценку ставить этой компиляции не буду, ибо что тут оценивать-то? Кстати, на заднике промо напечатаны обложки всех этих альбомов; так вот, с Mot&#246;rhead тут ребята явно облажались, ну да ладно.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 12.12.2006 reviews Тотальный разброд
+
+<P>Итак, перед нами сборник клипов отечественных групп под названием "Music Infection Vol. 2 - Totum Dissemination", включающий в себя 22 клипа и три бонуса, представляющих собой съемки с концертных выступлений. Сделали все это дело Minf Productions, а в качестве дистрибьютора выступили СД-Максимум. Хочется отметить, что для создания нормального клипа требуются соответствующие капиталовложения, либо надо быть в досаточной степени гениальным человеком (в отношении чего угодно - самой идеи клипа, съемок, монтажа), чтобы сделать за мелкий прайс что-то приличное. К сожалению,&nbsp;на данной компиляции нет ни финансовых вложений (или деньги не туда спустили), ни гениев. Подавляющее большинство клипов представляют собой опять-таки съемки с концертов в клубах типа Релакса, что, в принципе, понятно, ибо изрядная доля расходов при этом экономится. Однако и такого рода клипы надо уметь делать. В чем главные недостатки работ, представленных на этом сборнике (замечу, что съемки и монтаж в соответствии с иформацией в буклете делали почти везде разные люди)? О музыкальных достоинствах или недостатках мы сейчас говорить не будем. Оставим даже в покое разное качество записи и разный уровень звука. Во-первых, совершенно непрофессиональные или, как иногда говорят, "полупрофессиональные" съемки. И дело тут не в аппаратуре как таковой. Очень спорно выбранные ракурсы. Постоянная их смена. Ведь видеоклип это своего рода визуальное удовольствие (я не про содержание самого клипа, это другая тема), глазам должно быть по крайней мере комфортно. Но когда идут постоянные скачки камеры, ежесекундные смены, повторюсь,&nbsp;ракурсов, чередование цветных и ч/б съемок (видимо, просто по прихоти оператора или того, кто всё это дело монтировал), глаза ваши уже начинают быстро уставать. Затем очень частно несовпадение пропеваемых слов с тем, что творится на экране. Также очень спорные смены скорости - то обычная, то замедленная, притом без всякого смысла. Есть и съемки в одну-две камеры. Про бесконечно возникающие головы, руки и "козы" на переднем плане я вообще помолчу. Формат тоже разный, то во весь экран, то только на часть. Вообще у меня возникла ассоциация с веб-дизайнером, который, ознакомившись со всякими фишками, принялся лепить сайт, и вот у него есть и джава, и картинки, и музыка, и шрифты и фоны всех размеров и цветов, и динамические страницы, и такие менюшки и сякие... Типа, вот что я могу! Еще один, с моей точки зрения, негативный момент, что при концертных съемках выбирают почему-то очень плохую освещенность, в результате мы видим силуэты рубящихся на сцене волосатых парней, и больше ничего. Зачем так делать? Есть и такие "клипы", где где-то минуты 4 показывают выступающую группу, а потом как бы "вспоминают" про зрителей и уделяют им секунд 15. Тоже не очень понятно. Конечно, можно сказать, а давай попробуй сам сними да смонтируй, а потом будешь критиковать. Ну да это старая отмазка... Давайте каждый будет делать свое дело, ок? Не обошлось и без ляпов. Так, в бонус-секции два клипа перепутаны местами, а группа S.C.A.L.P. названа почему-то S.C.A.R.T. (только&nbsp;в буклете правильно). Но не все так уж плохо. Во-первых, часть групп была мне совершенно незнакома, так что я получил возможность услышать их творчество. Во-вторых, все же стоит отметить клип группы Rasta 'New God' (пожалуй, едиственная качественно сделанная концертная съемка), стебный мультик Anal Nosorog 'Vagina Says' (правда, их юмор на любителя), "ужастик" Кувалды 'Das Fleisch' (почти трейлер к зомби-хоррору, коротко но прикольно) и, как ни странно, концертный клипа группы Kruger 'Нация РОК', получилось очень достойно. К сожалению, объем рецензии не позволяет подробно описать все клипы. Но в оставшихся случаях это будет с моей стороны почти сплошной негатив, так что, может, оно и к лучшему. Учитывая все вышеизложенное, оставляю данный сборник без оценки. Похвально, что делают такие подборки, вот только общее качество пока оставляет желать лучшего. Надеюсь, создатели клипов и компиляции в целом воспримут мои слова как объективную критику, а не как злостное критиканство в отношении всего отечественного.</P>
+<P>DVD предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 10.05.2007 reviews Баллады пиратов, песни матросов - а оно вам надо?
+
+<P>Знаете, когда ко мне попадают такого рода сборники, я прежде всего задаюсь вопросом "а зачем оно было надо?". В данном случае мы имеем дело с двухдисковой компиляцией (на 157 минут) из&nbsp;43-х песен от 36-и исполнителей на общую тему "пиратские баллады и матросские песни". Два слова об истории создания данной работы. В ходе съемок второй части "Пиратов Карибского моря" небезызвестному Джонни Деппу, режиссеру "Пиратов" Гору Вербински, корешу Вербинского Бретту Гурвитцу (также гитаристу Bad Religion) и продюсеру Хэлу Уилнеру (работавшему с Элвисом Кастелло, Лу Ридом и другими, а также специализирующемся на всякого рода трибьютах) пришла в голову мысль выпустить сборник "морских" песен, которые прекрасным образом подошли бы, к примеру, для третьей части тех же "Пиратов". Сказано - сделано. Из 400 отобранных Уилнером образцов выбрали 75 "народных" пиратских и матросских песен, а на двойном альбоме их оказалось в итоге 43. Бюджет задумки был, видимо, немалым, ибо были арендованы студии в Сиэтле, Нью-Йорке, Дублине, Лондоне, Лос-Анджелесе и Париже, ну и задействовать исполнителей тоже, вероятно, влетело в копеечку. Самыми известными на данном опусе оказались Боно, Ник Кейв, Стинг, Брайан Ферри, Лу Рид, Ричард Томпсон (Fairport Convention), Билл Фризел и Джарвис Кокер (Pulp). Я бы сказал, что до полного счастья тут не хватает еще Тома Уэйтса и Рода Стюарта (с его 'Sailing'). Что получилось в результате? Вся эта достойная компания распевает древние пиратские баллады и песни матросов, которые звучали, видимо, во время активной работой веслами в открытом море. Так себе и представляешь портовые кабаки, полные лихим людом, где сдвигались огромные деревянные кружки с крепким ромом и прочим горячительным и заключались самые невероятные сделки, где набирали не боявшихся открытого моря и приключений морских волков, где хвастались добычей и пропивали её. Всё это прекрасно, но вопрос, заданный мной в самом начале рецензии, остается - а зачем это всё было надо? Вполне возможно, что все эти песенки прекрасно подойдут к очередной серии "Пиратов Карибского моря" или какому другому фильму на подобную тему, но много ли найдется желающих слушать такое просто у себя дома, отдельно от визуального ряда? Работа, беусловно, проделана немалая, денег затрачено тоже много, но вот нужен ли будет рядовому слушателю подобный альбом? Сомнительно. Впрочем, те, кто порой представляет себя на месте Капитана Воробья, может, и получат определенное удовольствие от подобной музыки. Так что, "думайте сами, решайте сами, иметь или не иметь" (с) данную пластинку в вашей фонотеке. Я же оставляю данный опус без оценки.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 12.06.2007 reviews Солянка по-польски!
+
+<P>В последнее время DVD сборники стали закономерностью для различных фестивалей – Waken, Summer Breeze, Party Sun, ну и конечно же сам бог велел полякам Metal Mind регулярно выпускать DVD METALMANIA. Что же нам предлагают в этот раз – DVD&nbsp; с группами “большой” сцены и CD&nbsp; c менее известными коллективами. От каждой группы представлено разное количество песен, и чем объяснялся их выбор мне лично не понятно, у кого-то их две, а у кого-то сразу четыре! Может дело в проплате издающими лейблами места на диске для своих коллективов, может в чем-то еще. Кроме собственно видео нам предлагают интервью с каждым коллективом, историю группы и историю фестиваля.<BR>Пройдусь по группам:<BR>DARZAMAT – польский black metal представлен лишь одной песней, да и то очень не выразительной. В целом подача материала “на уровне” и звучание достаточно неплохое. <BR>DIES IRAE – сайд-проект участников VADER, BEHEMOT подает нам стандартный польский death, таким каким мы привыкли его слышать – четким, качевым, немного однообразным.<BR>ANJ -&nbsp; Здесь убого все. Начиная от внешнего вида – Анатолий делает какие-то странные гримасы, наверное&nbsp; воображая себя крутым рокером, слюнявит микрофон, улыбается, музыканты принимают пафосные позы (я ждал когда гитарист сядет на шпагат, но этого не получилось), исполнения материала – клавишник “лажающий” в трех нотах, гитарист перетягивающий ноты, сомнительный вокал, и заканчивая собственно музыкой.&nbsp; По сравнению с остальными коллективами они и звучали намного хуже! Кроме того, на диске есть и интервью, в котором Анатолий общается&nbsp; с журналистом через переводчика (все остальные группы разговаривают сами), который лыка не вяжет в английском языке и&nbsp; путает слова, при этом с лица Анатолия не сходит дурацкая улыбка… На вопрос о крутых метал коллективах в России мы слышим ответ – у нас все это находиться в таком “андеграунде”, что вы…какие крутые метал коллективы… позор в общем…<BR>После всего этого кошмара AMON AMARTH&nbsp; выглядели просто божественным спасением. Шведские викинги взяли нас на свои драккары&nbsp; и парой песен плавно унесли подальше от убожества.<BR>Легендарные DARK FUNERAL&nbsp; представлены на этом сборнике аж четырьмя песнями -&nbsp; мощный скоростной блек в их традиционной, легко узнаваемой манере. <BR>THE HAUNTED&nbsp; продолжили угар тремя отличными песнями, из которых я бы выделил вторую.<BR>Настоящим подарком для меня стал ARCTURUS, представленный лишь&nbsp; двумя песнями. Оригинальная подача материала, в духе какой-то сказочной ярмарки, идеальное исполнение, звездный состав! Очень понравился вокалист Vortex (Dimmu Borgir) – мне никогда не нравилось как он пел в Dimmu, а&nbsp; здесь его голос подходит музыке.&nbsp; <BR>Следующими идут Peter Tagtren&nbsp; и его PAIN –&nbsp;&nbsp; очень мощно:&nbsp; простые хитовые мелодии, очень “жирное” звучание! Стоит отметить песню “Shut your mouth”, которую&nbsp;&nbsp; пел весь зал!<BR>NAPALM DEATH – забойные песенки, разудалое поведение вокалиста, в общем все как всегда &#61514;&nbsp;&nbsp; <BR>А вот поляки TURBO&nbsp; стали настоящим открытием – коллектив существует с 1980 года, и за все это время мне не попадалось ни одного их альбома. Музыканты исполняют heavy\thrash на высочайшем уровне, вокалист поет на родном языке и многие слова понятны на слух!&nbsp; Во время их выступления зал подпевал, да что говорить, и мы с женой тоже!&nbsp; В своем интервью на вопрос “есть ли у вас какое-то шоу или грим”,&nbsp; музыканты ответили – “зачем нам это все, у нас есть искренняя музыка!”. Так и есть, искренняя музыка, отличное настроение! <BR>Завершают фестиваль хэдлайнер APOCALIPTICA.&nbsp; Здесь приятно удивило оформление сцены - музыкантам вынесли&nbsp;&nbsp; большие стулья в форме открытых гробов. Кроме двух собственных произведений они отыграли кавер “Seek and Destroy” (METALLICA), во время которого слова пел зал, а они носились с виолончелями по сцене размахивая волосами!<BR>&nbsp;&nbsp; </P>
+<P>Резюме: приятное развлечение дождливым весенним вечером.</P>
+Автор: Bizarre
+
+### 16.06.2007 reviews Лучший heavy-metal сборник всех времён
+
+<P>Очередное творение гитариста RAGE Виктора Смольского для CD-Maximum. Такое впечатление, что ничто уже не сможет остановить это сотрудничество. Вслед за альбомами RAGE, выходившими на Nuclear Blast/CD-Maximum, в подобной необычной для нас связке вышел юбилейный сборник Nuclear Blast “Into The Light”. Имей мы отношение к миру политики, мы бы сказали, что подобное развитие событий настораживает. Nuclear Blast давно и плодотворно сотрудничают с другой российской компанией, а юбилейные диски вышли на CD-Maximum. Но мы не относимся к этому миру, поэтому имидж нас волнует меньше. Просто констатируем, CD-Max получили ещё один хороший релиз «в подарок» от Виктора Смольского.</P>
+<P>Я давно подозревал, что господин Смольский талантливый музыкант и композитор. Просто карьера у него складывалась как-то не так. Начав в малоизвестных группах и подрабатывая сессионным музыкантом, Виктор вынужден был сам строить свою судьбу и, в связи с этим, идти на некоторые компромиссы. В этом ряду и RAGE, где, при всём уважении, лидер не он, и КИПЕЛОВ здесь в России. Усилия гитариста-виртуоза не пропали даром. И у нас, и у них статус Смольского поднялся за последние годы очень сильно. Сольно же Виктор занимался какой-то чепухой. Первый сольник “Heretic” был хоть и не в меру экспериментален, но достаточно не внятен. На втором музыкант взялся за нашего за Баха, но его манера игры скрылась за руладами оркестра, и назвать тот диск успехом тоже не берусь. Вообще же, Виктор блуждал где-то вдалеке от металла, и мы не могли до конца оценить его композиторский потенциал в свете сольного творчества, ведь в RAGE гитаристу вряд ли позволено выдавать что-то из ряда вон. Смольский даже сам хвалится, что отличить его песни от песен Пиви не представляется возможным даже продвинутым фанатам. И вот такой шанс! Неограниченный бюджет, все лучшие вокалисты современного хэви на выбор, широчайший слушатель, которого может позволить себе только Nuclear Blast. Смольский оправдал доверие на все 100.</P>
+<P>Ну, теперь буду хвалить. Мы получили «лучший сборник за всю истории heavy-metal». Новые нереализованные песни – это раз, россыпь вокалистов, читай групп – это два, великолепная стройная реализация без шероховатостей – это три, ни одного проходного номера – это четыре. При этом Виктор постарался сочинить песни, которые подойдут именно этим вокалистам. Трэки сочинялись под певцов, как это обычно делается в «родных» группах музыкантов. Кроме этого, гитарист не забыл и о своих коронных фишках: плотном звучании гитар и разнообразии игры. Он сумел выступить во всех поджанрах современного и не очень heavy-power. Например, песня с Hansi (BLIND GUARDIAN) сочинялась ещё для prog-power проекта MIND ODYSSEY, а песня с Schmier’om – это такой speed-thrash-metal с обалденной гитарой, что новый альбом ANNIHILATOR просто «курит в сторонке». Становится жалко, что у Виктора не хватит времени записать по полному альбому в любом из жанров. Событием также должна стать песня “In The Picture”, где опальная вокалистка NIGHTWISH Тарья впервые выступила в металле за последнее время. Как раз в этом случае Виктор не стал сочинять музыку под неё. Когда пошли вступительные риффы, я подумал: «Боже, как она будет это петь?» Агрессивные, забойные heavy-metal аккорды совсем не то, что привыкла петь Тарья. Она справилась. Правда голос её стал звучать более профессионально, и многие поклонники NIGHTWISH её могут и не узнать. Здесь нет свойственных ей эмоциональных «завываний», от которых её фэны падают в обморок. Здесь есть отличная работа, при которой музыка не заглушается ради певицы. Быть может, впервые Турунен вынуждена отказаться от эгоцентричной позиции. </P>
+<P>Естественно и остальные песни очень хороши. В частности, навороченная “Terrified”, представленная, как новая вещь RAGE, или “A Perfect Day” – типичный happy-power трэк для Andi Deris, которые HELLOWEEN практически перестали выдавать. Лимитированное издание пластинки, также доступное нашему покупателю, содержит бонус диск с редкими вещами групп из конюшни Nuclear Blast. Не знаю уж, насколько они редкие, но digi-book красивый. </P>
+<P>Рекомендую всем, как сольный альбом Смольского со звёздным составом.</P>
+Автор: Vit Belov
+
+### 10.09.2007 reviews 13 лет в обнимку с хардкором и панком
+
+<P>Наверное, продвинутым любителям хардкора и панка знаком бельгийский лэйбл I Scream, который, кстати, с недавних пор имеет и свой филиал аж в Лос-Анджелесе. Данная компиляция под названием "I Scream - 13 Years Of Kick-Ass Music" (да да, им уже&nbsp;тринадцать лет!) представляет на суд слушателей семидесятитрехминутный обзор из двадцати пяти песен (из которых пять относятся к новым релизам лэйбла). Честно говоря, на сайте I Scream в списке групп мне знакомы оказались только две - Agnostic Front и MOD. Собственно, про сборник больше говорить нечего. Хардкоровые номера, одни пояростнее, другие поспокойнее, чередуются с панковыми, и только любители этих жанров смогут различить всякие там нюансы и подстили. Так как нигде в Интернете я трек-листа данного сборника не нашел, а эта компиляция, возможно, кого-то заинтересует, возлагаю на себя тяжкий труд (ибо названия групп написаны трудночитаемым шрифтом) просто перечислить включенные на "I Scream - 13 Years Of Kick-Ass Music" коллективы (надеюсь, что без ошибок): Ramallah, Beowulf, Agnostic Front, Darkbuster, Blood For Blood, Discipline, Mercy Killers, Wrecking Crew, Green Lizard, Backfire!, Maximum Penalty, Enemy Rose, Far From Finished, The Heartaches, Length Of Time, Vision, Slapshot, Deviate, The Ducky Boys, Stigmata, Deathkiller, Fabulous Disaster, Subzero, Spoiler NYC.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 10.10.2007 reviews Очередной непонятный и ненужный сборник
+
+<P>Steamhammer/SPV выпустили еще один сборник под названием "Rock S'cool", на этот раз двойной. Ценность подобного рода компиляций всегда остается предметом для споров, особенно, если на них нет какого-то эксклюзивного материала, либо песни собраны с относительно старых альбомов. Лейбл решил в этот раз соригинальничать (с его точки зрения) и поделил все композции на несколько частей (lessons) по стилям: hard rock, heavy metal, power metal, thrash metal, hardcore, alternative, добавив еще одну часть под названием&nbsp;finals, где оказались Motorhead. Как вы уже догадались, и на этом сборнике никакого эксклюзива нет. И если выбор песен с альбомов 2004-2007 годов еще можно понять, то что там делают вещи Doro (2000), Judas Priest (1997), Metal Church (1998), Kreator (2001), Destruction (1989), Grip Inc. (1995), Biohazard (2001)? Разве нечем было заполнить эти два диска, кроме как перепечаткой старых хитов? Включение Type O Negative в раздел "хардкор", а Skinny Puppy - в раздел "альтернатива" тоже вызывает вопросы. Steamhammer выпускает ежегодно достаточное количество релизов, чтобы размесить песни с них на десятке подобных компиляций - и совершенно новых притом. Что хотели сказать этим сборником его составители, останется для меня вечной загадкой. Ибо не думаю, что подобная сомнительная подборка была хоть кому-то интересна. Добавлю лишь, что также выпущен сборник клипов на DVD под таким же названием; может быть, хоть это будет более оригинально.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 22.10.2007 reviews Totally independent из Голландии
+
+<P>Данный сборник весьма необычен хотя бы потому, что он составлен по итогам трех фестивалях под маркой Dutch Punch, фестивалей альтернативной музыки из Нидерландов, которые проходили в России в 2005-2007 гг. (следовательно, кроме как у нас, его больше нигде и не издавали).&nbsp;Праздники независимого искусства охватили не только музыкальных исполнителей, но и художников и создателей фильмов. Таковое искусство, как и на всех подобных фестивалях или выставках, требует особого подхода, особого взгляда на вещи. На этой компиляции из пятнадцати композиций намешано всё, что только можно: рок, панк, фанк, хэви, поп, нойз, хип-хоп, альтернатива, ска, регги, джаз, синти-поп, электро... Вряд ли кому-то понравится всё, но никакой подобной задачи составителями этой компиляции и не ставилось; вас просто хотели познакомить с голландской независимой сценой. Безусловно, Dutch Punch будет интересен только узкому кругу меломанов, но, быть может, кто-то из вас тоже полюбопытствует. Мне больше всего понравились We vs. Death с инструментальной пост-роковой 'And How To Translate It', Rotterdam Ska-Jazz Foundation с ''Ranglin Man' в духе джаз-регги и безумные авангардисты St&#246;ma с пьесой 'Totally Naked Ecept Two Humen Eyeballs In My Hand'.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 23.11.2007 reviews Nuclear Blast в прошлом – это не metalcore лэйбл!
+
+<P>Nuclear Blast продолжают праздновать свой 20-летний юбилей. Вслед за выпуском мега-сборника “Into The Light”, на котором были представлены песни в стиле heavy-power-metal, исполненные Виктором Смольским и лучшими вокалистами стиля, немецкий лэйбл выпустил сборник “Out Of The Dark”. Как вы уже смогли догадаться, на диске представлены песни в более тяжёлом стиле. К сожалению, не следуя букве юбилея, NB обратили внимание не на столь же старые стили, как heavy и power, а на новомодные веяния. Я имею в виду, что на новом релизе вы услышите не старые добрые black и death metal композиции, а новые добрые композиции в стиле melodic death thrash metal. При этом все эти композиции будут в самом современно возможном подвиде этого стиля. С чистыми вокалами и.т.п. Достаточно сказать, что в записи приняли участие вокалисты SCAR SYMMETRY, SONIC SYNDICATE, IN FLAMES, SOILWORK. К ним примкнули «трэшевики» из DEATH ANGEL и ANTHRAX (Bush), и представители смежных стилей WINTERSUN и.т.п. Сочинил всё это бывший гитарист SOILWORK Peter Wichers. За что ему такое трудное задание дали, я не знаю.</P>
+<P>Это ошибка. Пускать metalcore на юбилейный сборник. Даже в исторических масштабах Nuclear Blast не смогли отказаться от коммерческих соображений. Безусловно, этот стиль сейчас популярен, и пластинка будет продаваться хорошо, но всё-таки некрасиво это. Лэйбл, который, прежде всего, вошёл в историю, как death-black кузница, к своему юбилею разродился диском с «блеющим» вокалом.</P>
+<P>Но оставим это. Что же мы имеем в музыкальном плане. Питер, как и его предшественник Виктор, попытался подыграть своим коллегам вокалистам. Песни Anders Friden и Peter Tagtgren отличаются по своему виду, это да. Но мне думается, море экстремальной музыки настолько безбрежно, что разница могла бы быть более чёткой. Например, не стоило вокалиста WINTERSUN заставлять петь всё тот же metalcore. Смольский сумел уловить отличительные черты даже у heavy вокалистов, что было сложнее, а господин Вичерс записал просто альбом SOILWORK с кучей приглашённых вокалистов. Пожалуй, выделяется песня бывшего фронтмэна ANTHRAX Буша, тяжеловато было Джона заставить хрипеть, наверное. </P>
+<P>После феноменального “Into The Light” я думал, получить такое же удовольствие от “Out Of The Dark”. Не вышло. Хорошая крепкая работа, но не более того. Грамотно использовать тот арсенал, который Нуклир Бласт предложили Питеру Вичерсу, он не смог.</P>
+Автор: Vit Belov
+
+### 25.03.2008 reviews Любителям старой доброй вкусной трэшатинки
+
+<P>Собственно, уже само название данного сборника (как, кстати, и написание слова "thrashing" на обложке) говорит за себя: здесь ожидается трэш и только трэш. Однако, ребятки с Earache мальца покривили душой, написав еще и строчку "16 ripping cuts of new school thrash" - слава Господу (интересно, а Он слушает трэш и если да - любит ли его?), никакого модерн-трэсха тут нет, все команды работают, в основном, в духе старой школы. Правда, названия групп большинству из вас - если только вы не следите вообще за всеми релизами в жанре - мало что скажут. Мне вот более-менее знакомыми оказались лишь, пожалуй, Municipal Waste, Evile&nbsp;и SSS, так как я писал рецензии на альбомы этих коллективов. Остальные же банды, начиная от&nbsp;Bonded By Blood (ясно, откуда ветер дует) до Send More Paramedics, лично мне ничего не говорят. Понятно лишь то, что на "Thrashing Like A Maniac" собраны группы второго (и, возможно, даже третьего) эшелона, что, будем справедливы, совершенно не сказывается на качестве материала. Злобный, быстрый, зубодробительный трэшак без всяких идиотских новых трендов и наворотов - как бальзам на душу настоящему ценителю жанра. Быть может, альбомами слушать эти команды и не очень интересно, но в такой подборке практически все выглядят весьма и весьма солидно. Earache не стали рисковать и разместили в буклете краткую информацию о каждой группе и о том, с какой пластинки взят тот или иной номер (а парочка песен вообще ранее не издавалась), заранее упредив тем самым множество вопросов из серии "а кто это?". 55 минут пролетят как миг, но дабы вы получили максимум удовольствия от данной компиляции, советую прикупить заранее парочку ящиков пива и пригласить на прослушку таких же, как вы,&nbsp;любителей старой доброй трэшатинки. Поверьте, они будут вам потом по гроб благодарны.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 07.04.2008 reviews Dear Mister Fantasy play us a tune, something to make us all happy
+
+<P>Jim Capaldi... Он барабанил в английской группе Traffic (где вместе со Стивом Уинвудом и составлял основую движущую силу коллектива), играл с Джими Хендриксом, Эриком Клэптоном, Элвином Ли... В январе 2005-го года он умер от рака желудка в возрасте шестидесяти лет. Спустя два года после этого трагического события в лондонском зале Roundhouse прошел концерт, посвященный памяти Капалди. Это&nbsp; музыкальное прощание было увековечено на двойном альбоме под названием "Dear Mr Fantasy - A Celebration For Jim Capaldi". Чтобы вы могли понять масштаб данного мероприятия, необходимо перечислить музыкантов, принявших участие в концерте: Steve Winwood (Traffic, Spencer Davis Group, Blind Faith и др.), Yusuf Islam a.k.a. Cat Stevens, Pete Townshend (The Who), Paul Weller (The Jam), Joe Walsh (Eagles), Gary Moore, Jon Lord (Deep Purple), Bill Wyman (The Rolling Stones), Simon Kirke (Free, Bad Company), Andy Newmark (Sly & The Family Stone), Ray Cooper, Mark Rivera, Dennis Locorriere (Dr. Hook)... И это неполный список. На альбом вошли 20 вещей из наследия Traffic или сольного творчества Капалди, и все участники концерта очень деликатно подошли к исполнению этих номеров, сразу слышишь, что здесь нет лишних людей, что для них данные композиции это не просто песни для какого-то там очередного трибьюта, это как частичка их души, это искреннее воздание почестей великому человеку. К сожалению, группа Traffic осталась малоизвестна нашему отечественному слушателю - как и сольные работы Джима, поэтому у вас есть прекрасная возможность не только послушать уникальный концертный состав, но и познакомиться со ставшими уже довольно глубокой по меркам рок-музыки историей произведениями выдающихся музыкантов. Возможно, многие из вас сочтут эту музыку довольно скучной, устаревшей, да и просто неинтересной, но всё же вслушайтесь в то печальный, то задорный перебор гитары, в залихватские звуки губной гармошки, в скупые, но очень чувственные рыдания саксофона, да и вокалисты подобрались тут далеко не слабые - в общем, если после прослушивания "Dear Mr Fantasy" вам станет хоть немного лучше и светлее на душе, то, наверное, лучшего подарка, как для исполнителей, так и для отправившегося в лучший из миров Джима и не придумаешь. Добавлю лишь, что данный концерт вы можете приобрести также и на DVD.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 26.05.2008 reviews Краткий отчёт о MetalMania 2007 от человека, там не побывавшего 
+
+<P>Новое издание концертного DVD, посвящённого фестивали Metalmania, проходящему каждую весну в польском городе Катовице. Лицензионные российские издания этого ежегодного релиза наконец-то настигли его же фирменную версию. Насколько мне известно, Metalmania 2008 ещё не вышла. Как обычно, пластинка вышла в формате CD/DVD, что отрадно продающаяся у нас по цене одного DVD. На DVD попали выступления на главной сцене фестиваля, а на CD представлен сборник команд, выступавших на второй сцене. Забавно, что на второй сцене играли BENEDICTION, а в качестве «хэдлайнеров» фестиваля на DVD замечены москвичи CRYSTAL ABYSS.</P>
+<P>Сразу скажу, что к продукции этого релиза претензий быть не может. Многие интернациональные коллективы не стесняются записывать в Польше свои сольные DVD, а это говорит о многом. По качеству исполнения, есть претензии к дополнительным материалам, в частности, интервью. Примитивные и глупые вопросы, задаваемые группам, нередко ставили их в тупик. Так, например, каждая группа получила вопрос о своей истории, у VITAL REMAINS спросили, какой гиг у них был самым лучшим в карьере, но не спросили про Glenn Benton, а у клавишницы CRYSTAL ABYSS довольно нудно выясняли, как она попала в группу.</P>
+<P>Теперь об антураже самого фестиваля. К сожалению, я не нашёл никаких съёмок за пределами зала, а подобные кадры помогают проникнуться атмосферой крупного концерта, как никакие. Поэтому об антураже можно судить только по концертным кадрам. Событие проходит в закрытом зале, по типу Горбушки или «Дружбы». Зрители отделены от сцены «полосой безопасности» или пресс-зоной, как хотите, называйте. Прямого контакта с артистом не происходит, как на крупных фестах. С другой стороны, отсутствуют плюсы крупных летних фестов: свежий воздух, огромная территория. Уже многие наши соотечественники посещали Metalmania, они могут рассказать что-то более интересное, но на мой вкус, сидеть целый день в закрытом помещении утомительно. Пусть, возможно, это помещение и по-европейски комфортно.</P>
+<P>Перейдём к группам. Благо здесь есть на что посмотреть. Открывали фест в 2007 году KORPIKLAANI. Все, кто хотел в России, уже видели их выступление вживую. Так что ничего особенного. Финские напевы, исполненные не столько качественно, сколько угарно. Возможно, KORPIKLAANI смотрелись бы живее, если выступали попозже, а так, в зале даже хороводов, как у нас, не было. Следом на сцене появились москвичи CRYSTAL ABYSS. Это уже третье появление на польском фестивале отечественной группы. Сначала были АНЖ, потом HIERONYMUS BOSCH, теперь вот CRYSTAL ABYSS. Группы настолько же разные, насколько и по-разному успешные в Европе. Если появление высокоинтеллектуальных HIERONMYMUS BOSCH можно было бы объяснить их известностью в Европе, то АНЖ и CRYSTAL ABYSS популярными не назовёшь. АНЖ знают у нас, благодаря агрессивной рекламе, а CRYSTAL ABYSS даже на Родине практически не известны. Забавно. Как эти группы смогли попасть на основную сцену Metalmania? Здесь мы вступаем на скользкую дорожку, точных данных о «заинтересованности» организаторов концерта может не знать даже польская налоговая инспекция. Мне вот интересно, если отследить состав выступавших на прошедших фестивалях, первопроходцы ли наши соотечественники в таких неожиданных поворотах в умах организаторов фестиваля Metalmania? Ну, в смысле, появлялись ли в ростере главной сцены столь же «известные» в Польше группы из других стран? Например, многолетним подопечным польского лэйбла Metal Mind DARZAMAT только в этом году доверили сыграть на главной площадке. До этого они ТОЛЬКО открывали фестиваль, как KORPIKLAANI в этом году. Оставив позади сомнения в честной любви Metal Mind к АНЖ и CRYSTAL ABYSS, обратим свой взор на выступление москвичей. При всём моём уважении к Саркванару и Ко., я-то эту группу знаю, в отличие от многих метал фэнов в нашей стране, им бы не мешало поднять свой уровень концертного мастерства сначала в родном клубе «Релакс», а уж только потом отправляться покорять Польшу. Безусловно, самое слабое выступление мы увидели на четвёртом трэке DVD. Это просто разный уровень! Немудрено, что публика в зале откровенно зевала под sympho-black от наших соотечественников. CRYSTAL ABYSS следует так же заставить полюбить себя российских фэнов, как они заставили это сделать организаторов Metalmania. Следом на сцене появились DARZAMAT. Их странная музыка выглядела вполне зажигательно, сочетание орущего мужского и театрального женского вокалов звучало довольно свежо. Настоящее «зверское» удовольствие я получил от следующих команд, ZYKLON и VITAL REMAINS. И если ZYKLON поражали воображение техничностью своего нового материала, то VITAL REMAINS убивали наповал мелодичной брутальностью. Вокалистом VITAL REMAINS выступал Некто, данных о его ФИО на диске мне обнаружить не удалось. Но этот Некто точно не был Гленом Бентоном&#61514; Следом вышли ENTOMBED, былые герои шведского death-metal. Сейчас группа запропастилась на шведском лэйбле Threeman Recordings, и её работы нам недоступны. Приятно было их увидеть, даже, несмотря на некоторою разнообразность представленного материала. От thrash-hardcore-metal до традиционного шведского death-metal на старой песне. DESTRUCTION мы уже видели в Москве. Ничего нового немцы не представили, всё тот же примитивный и не очень хорошо исполненный thrash-metal. Только в отличие от выступления этих легенд в СДК МАИ, в Польше что-то всё-таки можно было разобрать. Самым смешным артистом дня можно смело назвать Blaze Bayley. Мужик прославился своим участием в Iron Maiden на двух не очень удачных альбомах. После этого он выпустил несколько не очень мощных сольников, но посмотреть на него собралось некоторое количество фэнов. Начал он свой перфоманс на этом DVD с песни “Alive”. Так и сказал, мол, я жив, чем порадовал своих немногочисленных поклонников. Венцом его участия в Metalmania стала песня Iron Maiden “Sign Of The Cross”. На ней Blaze вспомнил свои «диккенсоновские» корни. Пыжился, гримасничал, принимал красивые позы. Чтобы вы полностью поняли о чём я, представьте себе 40-летнего чувака с голым пузом и двойным подбородком, который постоянно гримасничает, на манер: «Что-то вы недостаточно мощно меня поддерживаете… Ага, вот теперь нормально!». И так снова и снова. Было бы ещё смешнее, если бы режиссёр задержал Блэйза в кадре, а так он, мне кажется, пугался того, что видел, и сразу перескакивал на музыкантов или в зал. Под конец господин Бэйли зачем-то достал польский флаг со своим именем, должно быть он – поляк, но певец всё никак не мог понять, какой стороной его показать залу, чтобы надпись читалась правильно. Помучившись несколько секунд, благо проигрыш на “Sign Of The Cross” длинный, он швырнул флаг на сцену, а сам задрал ногу на монитор, с которого потом снимал её очень тяжело, видимо, из-за своей не очень хорошей формы. Весёлый персонаж. Следующей группой стали SEPULTURA. Я, как и все вокруг, достаточно скептически отношусь к её творчеству после ухода Max Cavalera. Чернокожий негр Derek Green не устраивает меня своими вокальными данными, а не цветом кожи. Всё-таки он орёт, а не рычит. Но, как выяснилось, вокал в концертных выступлениях группы совсем не главное. Под качовые и энергичные риффы SEPULTURA зал, по-моему, впервые завёлся. Ждём группу к нам в гости. Следом вы увидите одну песню PARADISE LOST и целых 5 песен TESTAMENT в классическом составе плюс барабанщик Nick Barker.Видимо, PARADISE LOST не дали больше песен, да и бог с ними, их жалкое выступление мы видели в Москве не раз. TESTAMENT!!! Может нам повезёт, и мы увидим их выступление в Москве уже в июне. Я всегда говорил, что на концерте лучше всего смотрится thrash-metal, и я от этого не отрекаюсь после просмотра классического живого материала от одних из родоначальников этого стиля в США.</P>
+<P>Любое DVD из серии ‘Metalmania’ донесёт до своего зрителя большое количество информации. Возможно, после какой-то инфо вы и откажетесь от бессмысленной траты денег на полноценные DVD представленных групп.</P>
+Автор: Vit Belov
+
+### 27.05.2008 reviews О чем этот клип? Да ни о чем...
+
+<P>Сборник видеоклипов от шведского экстремального лэйбла Regain Records предлагает нам 23 ролика от 21 артиста (поляки Behemoth и Vader представлены по два раза). Что общего в большинстве этих работ? Сценарий, если так можно выразиться. В каком-то помещении стоит какая-то группа и играет какую-то песню. В некоторых случаях есть еще и так называемый видеоряд, который, как правило, представляет собой нечто вроде фрагментов из любительского ужастика за 5 копеек. Притом то, что хотели, по всей видимости, сделать страшно, вышло просто смешно. Низкие бюджеты и отсутствие фантазии тоже являются типичными для представленных клипов. Съемки тоже стандартны. Мельтешащие кадры, очень быстрые смены планов, прыгающая камера. Понятно, что это делается специально, но очень быстро ваши глаза просто-напросто устают. Еще один минус данной подборки состоит в том, что никаких данных про ту или иную вещь вы на экране не увидите. Поэтому если вы не очень хорошо знакомы с этими исполнителями, то скоро можете просто совсем запутаться. Вот неужели очень сильно популярны такие команды, как, например, все эти шведские Emraced, Tenebre, Totalt Javla Morker, Mustasch или Sargatanas Reign? Хотя учитывая страну лэйбла, всё это можно понять. Дисплей вашего DVD-плеера вам тоже не поможет, на нем порядковый номер клипа не отображается (во всяком случае, у меня было так). Впрочем, не так уж всё ужасно. Несколько групп, безусловно, можно отметить. The Bronx Casket Co из США с очень милым хоррор-мультиком 'Little Dead Girl' и Vader с компьютерным "военным" мультиком 'This Is The War' (он, кстати, был на лицензионном издании альбома "Art Of War"). Итальянцам Death SS с неутомимым Сильвестром ('Give Em Hell') спасибо за костюмы и грим. Behemoth 'Conquer All' поблагодарим за симпатичную девочку (которую, впрочем, вы не сможете как следует разглядеть по причинам, указанным выше). Ну и Dark Funeral с 'Atrum Regina', которые, не заморачиваясь, просто сделали концертную запись, но если у норвежцев Ragnarok 'Blackdoor Miracle' она вышла никуда не годной, то у шведов всё снято очень здорово, прям хоть сейчас на DVD (который, кстати, у них скоро выходит или уже вышел). Остальное же исключительно для фанатов соответствующих коллективов. После просмотра таких роликов спрашиваешь себя: - А о чем, собственно, был клип-то? - И, вспоминая Эльдара нашего Александровича Рязанова с его "Кинопанорамой", отвечаешь: - Да ни о чем. А вот&nbsp;такие "шедевры", как 'Throne Of Rats' от шведов Marduk, вообще можно отнести к учебнику "Как не надо снимать видеоклипы". И потом мы еще удивляемся, почему же&nbsp;так мало&nbsp;показывают тяжметальных клипов по телевидению. А что там смотреть-то, простите...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 27.05.2008 reviews Сувенир лишь для тех, кто там был
+
+<P>Фестиваль тяжёлой музыки Metalmania в польском Катовице (иногда выбирались и другие города) проводится с 1986-го года. Юбилейный, двадцатый сезон польский же лэйбл Metal Mind решил увековечить на издании в формате DVD+CD, при этом видео-часть посвящена основной сцене (main stage), а аудио-часть - второй (side stage). Сначала два слова о CD. Из двенадцати номеров второстепенной сцены запомнились разве что мрачные поляки Corruption, остальной материал ровно-неинтересный. DVD технически сделан очень толково. Вы можете выбрать звук между 2.0 и 5.1, почитать биографии групп, выступавших на обеих сценах, посмотреть интервью со всеми участниками main stage (жаль только, что английскими титрами снабжены лишь те интервью, которые брались на польском языке, ибо порой совершенно непонятно, что там говорят) и фотогалерею участников фестиваля. Также можно ознакомиться с историй Metalmania и скачать себе картинки для рабочего стола компьютера. И, само собой, поглядеть концертную часть с группами Vesania, Hieronymus Bosch, Hunter, 1349, Acid Drinkers, Nevermore, Moonspell, Anathema и Therion. Не знаю, чем там руководствовались составители этого DVD, представив ту или иную группу 1-3 номерами (а Caliban, Soilwork, Unleashed, Evregrey и U.D.O. вообще остались "забытыми"), да не столь важно это. Важно, что атмосфера фестиваля, атмосфера праздника передана как-то слабо; возможно, потому, что Metalmania проходит в закрытом зале (как там можно выдержать несколько часов музыки за один день - слабо себе представляю); возможно, потому, что не очень часто и не очень удачно снята публика, которая как-то не особо выражает свои эмоции. Vesania являет собой совершенно неинтересную блэковую польскую команду, ужасны были и норвежские блэкари 1349, довольно невразумительны и польские хэви-металлеры Hunter. От американцев Nevermore, честно говоря, ждал большего. Из серии "много шума из ничего". Португальцы Moonspell неплохо зажгли публику, но ничего особенного. Выступление британцев Anathema оказалось на порядок хуже их концерта в Москве в том же году. Therion никогда не любил, поэтому про их пафосное выступления лучше ничего говорить не буду. Очень порадовали наши соотечественники Hieronymus Bosch, но, похоже, их не очень-то "поняли". Интересными оказались поляки Acid Drinkers, эдакий хэви-трэш, очень весело, задорно и качественно. В общем и целом же, подобные релизы интересны только двум категориям слушателей: тем, кто собирает всё и вся от своих любимцев, и тем, кто был на этом концерте, своего рода сувенир на память. Остальным же просмотр и прослушивание данного издания будет малоинтересно. 5,5 баллов только за хорошую техническую сторону DVD.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 01.10.2008 reviews Низкобюджетные клипы непонятно для кого
+
+<P>Steamhammer совместно с SPV выпустили очередную подборку клипов тяжелых команд. Которая, опять-таки в очередной раз, убеждает нас, что большинство роликов таких жанров даже близко не может конкурировать с коллегами из поп-музыки. Причина проста: низкие бюджеты. За 5 копеек не сделаешь ни качественную съемку, ни хороший монтаж, да и саму идею ролика вам за такие деньги сегодня никто не продаст. В итоге мы имеем -&nbsp;в отношении данной компиляции - почти всегда либо фрагмент какого-то концерта, либо "студийный" вариант, т.е. группа с инструментами в руках исполняет песню в некоем помещении. Из всего представленного на "Rock S'cool II" добра можно выделить, пожалуй что, Zebrahead с 'Anthem' - это уже похоже на действительно клип. Что-то еще более-менее удобоваримое попытались сделать и Rhapsody с 'Unholy War Cry'. Никто не говорит, что все эти песни плохие, но вы делаете видеоролики или где? И как на подобном сборнике 2007-ого года&nbsp;оказывается, к примеру, "клип" Motorhead 'Killers', которые представляет собой ничто иное, как фрагмент концерта в Дюссельдорфе, который вы можете посмотреть на DVD группы "Stage Fright" аж 2003-го года? Данная "коллекция", состоящая из 25 роликов,&nbsp;дополнена кучей сэмплов песен, мультимедийной частью для ipod-ов, дискографиями исполнителей (да уж, редчайший эксклюзив!) и парой-тройкой трейлеров. Рекомендуется к просмотру тем, кто никогда в своей жизни не видел клипов исполнителей тяжелой музыки. У фанатов соответствующих коллективов все эти клипы уже давно есть, а любителям удачных креативов в любом музыкальном жанре или поклонникам красиво и качественно сделанных клипов тут ловить практически нечего. К минусам отнесу еще и то, что если вы не знакомы с той или иной группой, то никогда не поймете, что сейчас играет - традиционных титров в начале или конце ролика тут нет, поэтому сверяйте плей-лист с показаниями дисплея. Если оно вам надо.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 13.10.2008 news В Европе вышли новые &quot;Монстры&quot;
+
+<P>Новый двойной DVD сборник из популярной серии "<STRONG>Monsters Of Metal</STRONG>" вышел на <STRONG>Nuclear Blast</STRONG>. На диски попали 66 видеоклипов. Уже шестая часть грандиозного издания скоро увидит свет&nbsp;и в России&nbsp;на <STRONG>Irond</STRONG>. Трэк-лист:</P>
+<P>&nbsp;DVD 1:<BR>1. <STRONG>NIGHTWISH - The Islander</STRONG> <BR>2.<STRONG> DIMMU BORGIR - The Serpentine Offering</STRONG> <BR>3. <STRONG>IN FLAMES - The Mirror’s Truth <BR></STRONG>4. <STRONG>AMON AMARTH - Cry Of The Blackbirds<BR></STRONG>5. <STRONG>LEGION OF THE DAMNED - Disturbing The Dead <BR></STRONG>6. <STRONG>DEATHSTARS - Virtue To Vice <BR></STRONG>7. <STRONG>EXODUS - Riot Act <BR></STRONG>8. <STRONG>ARCH ENEMY - Revolution Begins<BR></STRONG>9. <STRONG>OBITUARY - Evil Ways <BR></STRONG>10. <STRONG>JOB FOR A COWBOY - Embedded<BR></STRONG>11. <STRONG>SONIC SYNDICATE - Jack Of Diamonds</STRONG> <BR>12.<STRONG> KREATOR - Enemy Of God<BR></STRONG>13. <STRONG>FINNTROLL – Nedgang <BR></STRONG>14. <STRONG>ELUVEITIE - Inis Mona <BR></STRONG>15. <STRONG>AFTER FOREVER – Discord <BR></STRONG>16. <STRONG>DEATH ANGEL – Dethroned <BR></STRONG>17. <STRONG>SOILWORK - Exile<BR></STRONG>18. <STRONG>GOJIRA - To Sirius</STRONG> <BR>19. <STRONG>SUICIDE SILENCE - The Price Of Beauty<BR></STRONG>20. <STRONG>HEADHUNTER – Silverskull <BR></STRONG>21. <STRONG>NILE - Papyrus Containing The Spell To Preserve Its Possessor Against Attacks From He Who Is In The Water<BR></STRONG>22. <STRONG>PARADISE LOST - The Enemy <BR></STRONG>23. <STRONG>MELTDOWN - One By One<BR></STRONG>24. <STRONG>ICED EARTH - Ten Thousand Strong <BR></STRONG>25. <STRONG>AVENGED SEVENFOLD - Almost Easy <BR></STRONG>26. <STRONG>BLACK DAHLIA MURDER - Statutory Ape <BR></STRONG>27. <STRONG>LEATHERWOLF - Dr. Wicked <BR></STRONG>28. <STRONG>DESPISED ICON - In The Arms Of Perdition<BR></STRONG>29. <STRONG>RAGE - Lord Of The Flies <BR></STRONG>30. <STRONG>DIVINITY - Plasma<BR></STRONG>31. <STRONG>NORTHER - We Rock <BR></STRONG>32. <STRONG>REQUIEM- Premier Killing League<BR></STRONG>33. <STRONG>NIGHTWISH - Bye, Bye Beautiful</STRONG></P>
+<P>DVD 2:<BR>1. <STRONG>DIE APOKALYPTISCHEN REITER – Der Weg</STRONG> <BR>2. <STRONG>KEEP OF KALESSIN – Ascendant</STRONG> <BR>3. <STRONG>MESHUGGAH – Bleed <BR></STRONG>4. <STRONG>KATAKLYSM - Taking The World By Storm<BR></STRONG>5. <STRONG>SCAR SYMMETRY – Morphogenesis</STRONG> <BR>6. <STRONG>ARSIS - We Are The Nightmare<BR></STRONG>7.<STRONG> EPICA - Never Enough <BR></STRONG>8. <STRONG>SIX FEET UNDER - Doomsday<BR></STRONG>9. <STRONG>AVANTASIA - Lost In Space <BR></STRONG>10. <STRONG>SUBWAY TO SALLY - Auf Kiel</STRONG> (live)<BR>11. <STRONG>BEHEMOTH – Prometherion</STRONG> <BR>12. <STRONG>HAMMERFALL - Last Man Standing</STRONG><BR>13. <STRONG>HEAVEN SHALL BURN – Counterweight <BR></STRONG>14. <STRONG>VADER - Helleluyah!!! (God is dead) <BR></STRONG>15. <STRONG>DISBELIEF – Navigator <BR></STRONG>16. <STRONG>WARBRINGER - Combat Shock<BR></STRONG>17. <STRONG>AUDREY HORNE – Threshold</STRONG> <BR>18. <STRONG>TYPE O NEGATIVE - The Profits Of Doom<BR></STRONG>19.<STRONG> KAMELOT - Ghost Opera</STRONG> <BR>20. <STRONG>SAXON - Let Me Feel Your Power</STRONG><BR>21. <STRONG>U.D.O. - The Wrong Side Of Midnight <BR></STRONG>22. <STRONG>THREE - All That Remains<BR></STRONG>23. <STRONG>DISILLUSION - Don `t Go Any Further <BR></STRONG>24. <STRONG>SAMAEL - Slavocracy</STRONG><BR>25. <STRONG>THE DESTINY PROGRAM - Welcome Overboard</STRONG><BR>26. <STRONG>AGNOSTIC FRONT - For My Family <BR></STRONG>27.<STRONG> KORPIKLAANI - Keep On Galopping<BR></STRONG>28. <STRONG>OCTOBER FILE - Another Day <BR></STRONG>29. <STRONG>HATE ETERNAL - Bringer Of Storms<BR></STRONG>30. <STRONG>NEAERA - Let The Tempest Come<BR></STRONG>31. <STRONG>THE SORROW - Knights Of Doom <BR></STRONG>32. <STRONG>BLACK TIDE – Shockwave<BR></STRONG>33. <STRONG>DIMMU BORGIR - The Sacrilegious Scorn</STRONG></P>
+<P>Incl. <STRONG>Easter Egg</STRONG> (Hidden Video Clip)</P>
+Автор: Vit Belov
+
+### 06.01.2009 reviews Купите сегодня!
+
+<P>Под Новый Год и Рождество принято выпускать подобные пластинки. Очень редко они получаются интересными. Обычно мы имеем дело со сборниками, составленными кое-как и предлагающими нашему вниманию простейший набор из “Jingle Bells” и “We Wish You a Merry Xmas”, сыгранными как-нибудь оригинально или спетыми известными людьми. Есть и совсем простые варианты, набор песен, под которые вы будете прыгать и скакать в нужный час при праздновании Нового Года.</P>
+<P>В нашей стране выпуском подобных сборников занимается Союз. Видимо, сказывается опыт старших товарищей по бизнесу из других отделов этой гигантской фирмы. Помимо самопальных сборников к 8-ому марта и Новому Году работники департамента по иностранному репертуару отыскивают и тематические новинки на иностранных лэйблах. Год назад «из под их станка» вышел сборник новогодних вещей от TWISTED SISTER, который, к слову, не очень-то мне понравился. Набор однотипных glam-hard-rock номеров с дурацкими мелодиями не веселил, а скорее расстраивал. Вряд ли кому-то из нас нравятся рождественские песни американского народа настолько сильно, что мы можем осилить целый диск, в котором колокольчики заменили гитарой. В этот раз Союз отыскал на Eagle сборник, который выжимает максимум возможного из самого понятия «рождественские песенки». Составлением этого сборника занимался бывший участник KISS Bob Kulick. Он уже занимался составлением трибьютов к классикам тяжёлого рока. Принцип работы в этом случае таков. В студии Боба собираются звёзды и в разных составах исполняют классику на заданные темы (некоторые, правда, не являются, а присылают плёнки). В этот раз заданная тема была «Рождество». Перечислять всех поучаствоваших не стану, отмечу только, что это почти весь цвет американского тяжёлого рока за вычетом самых громких его имён. Особенно приятен набор вокалистов: Jeff Scott Soto, Lemmy, Alice Cooper, Dio, Geoff Tate, Tim Owens, Chuck Billy, Doro и другие… Получилось довольно весело. Порадовало, что некоторые трэки использованы лишь как основа для настоящей песни в стиле исполнявших её. Так Lemmy выдал песню MOTORHEAD, Alice Cooper вдоволь поиздевался над “Santa Claws Is Coming To Town”, Dio с Iommi выдали настоящий хит BLACK SABBATH, а Chuck Billy спел свою вещь гроулом. </P>
+<P>В общем, весело. Особенно весело тем, кто знаком с первоисточником. Таких у нас в стране не много, но они есть. Сегодня последний день для приобретения обозреваемой пластинки. Завтра Рождество! Те же, кто приобретут альбом после этого дня, могут отложить его до следующего года. Вряд ли кому-то нужны эти песенки в его обычной трудовой жизни.</P>
+Автор: Vit Belov
+
+### 29.01.2009 reviews Ну, с Рождеством вас, мать вашу!
+
+<P>Знаете, что мне всегда не нравилось во всех этих рождественских сборниках? Даже не то, что нашему соотечественнику незнакомо абсолютное большинство таких песенок - кроме, разве что, 'We Wish You A Merry Christmas' или 'Jingle Bells' - а то, что почти всегда исполняющие их артисты корчат из себя каких-то клоунов, что, быть может, является очень смешным для западного человека, но не для российского (впрочем, не для него это и делается). Те же, кто сохраняет своё лицо - а таковых весьма мало - и оказываются наиболее интересными в этом отношении исполнителями. Не составила в этом плане исключения и свежая компиляция под характерным названием "We Wish You a Merry Xmas and a Headbanging New Year". Если перечислять всех, кто принимал учаcтие в данном сборнике (или, точнее, сборище), то рецензия растянется в несколько раз, а имена здесь действительно не последние на хэви-сцене, и отражены оные в 31 (!) фотографии внутри буклета. Но не назвать самых-самых никак нельзя. Alice Cooper, Lemmy, Ronni James Dio, Geoff Tate, Tony Iommi, Steve Morse, Jeff Scott Soto, Ripper Owens, Scott Ian, Doro, Michael Schenker, Bruce Kulick, Vinny Appice, Billy F. Gibbons, Chuck Billy, Joe Lynn Turner, Girlschool... Оп-па, вот уже и не менее половины перечислил. При этом лишь Girlschool выступили в составе "нормальной" группы, остальные же играли в самых разных сочетаниях - впрочем, этот момент уже дает этой компиляции плюс, ибо поищите еще такие тусовки на дисках. Возвращаясь же к вышеизложенной мысли о клоунаде, можно отметить, что наиболее пристойными оказались варианты в исполнении (для простоты и экономии места ограничимся только вокалистами)&nbsp;Лемми (завершившим номер типичной для него фразой "Merry Christmas, motherfuckers!"), Элиса Купера (ну, более-менее, особенно учитывая последние опусы маэстро ужаса), Джеффа Скотта Сото (хотя бы без кривляний), Доро Пеш (female voice of heavy metal умеет удивительно чувственно пропеть и тяжелые хиты, и рождественскую песенку, точнее то, что от неё осталось) и Girlschool. Самыми неудачными можно назвать перепевки с Дио (не такая и уж глупая попытка сделать дум аля Блэк Саббат, но спето так, что наш отечественный жэковский водопроводчик с похмелюги справился бы лучше), Джефом Тейтом (просто нудятина), Чаком Билли (так выступают, видимо, непохмелившиеся санта-клаусы, когда им вдруг хочется порычать и погроулить, в общем, что-то вроде некоторых неудачных экспериментов Бони Нем в духе последних их творений) и Томми Шоу за какое-то, простите, идиотское исполнение знаменитой песни Леннона 'Happy Xmas (War Is Over)'. Короче говоря, царит атмосфера повального рождественского пьянства и угара, и именно в таком состоянии надо слушать эту пластинку, чтобы получить от неё хоть какое-то удовольствие. Впрочем, данный релиз имеет определенную ценность для коллекционеров соответствующих артистов, которым, как правило,&nbsp;плевать на сам записанный материал. Также хочу обратить ваше внимание на то, что практически все фирменные диски, что я видел в Интернете, не содержат двух последних номеров варианта "Союза" (с вокалом Доро и Гёрлскулами), так что прибретайте лучше отечественную версию, тем более, что лицензионные диски уже вплотную приблизились по стоимости к фирме - так что разницы вы практически не почувствуете, хаха. Ну, Merry Christmas, mothefuckers! То бишь, с Рождеством вас, мать вашу! Дополнительный балл альбом получает лично от меня только за Лемми и фрау Пеш.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 19.02.2009 reviews Century Media празднуют юбилей
+
+<P>История независимых лэйблов в тяжёлой музыке вступила уже в такую фазу, когда год за годом будут наступать солидные юбилеи. Недавно 20-летний рубеж преодолели Nuclear Blast и Metal Blade, теперь в России доступен юбилейный материал от ещё одного гиганта – Century Media.</P>
+<P>К созданию юбилейного сборника немецкий лэйбл подошёл с толком. Его идея оказалась новой и интересной. На двухдисковое издание попали кавер-версии одних исполнителей лэйбла на других исполнителей лэйбла. Например, ARCH ENEMY исполнили песню DREAM EVIL, DREAM EVIL – ARCH ENEMY. К сожалению, подобная чёткая зависимость соблюдена не всегда. Вернее, она больше нигде не соблюдена. В основном, современный «ростер» Century Media исполняет классические композиции, выходившие на лэйбле раньше. По этой причине ничего не исполняют MOONSPELL, THE GATHERING и TIAMAT, творившие историю фирмы, зато есть группы MAROON, INTRONAUT и KIVIMETSAN DRUIDI, которые пока не так известны, и неизвестно станут ли они столь же значимыми для Century Media в будущем. В этом и есть основной недостаток сборника, кстати, такой же был и у «тёмной» части сборника от Nuclear Blast. Очень много современных групп, которым ещё надо доказывать свою состоятельность. Юбилейная компиляция не представляет собой полного отражения того, чем занимались Century Media на протяжении своей карьеры. Ещё одним слабым местом, по моему мнению, является низкий уровень «хитовости» black-death-metal материала, который исполняют многие группы. Из-за этого пластинка немного надоедает. Яркие места в виде “Whatever That Hurts” или “Alma Mater” дополнены набором хороших, но не более, композиций.</P>
+<P>Хороший релиз, который будет интересно послушать каждому любителю тяжёлой музыки. Отмечу интересный лично для меня heavy-metal кавер WOLF на одну из любимейших песен моей юности “Alma Matter” от MOONSPELL.</P>
+Автор: Vit Belov
+
+### 23.02.2009 reviews Мрачный хоррор-триллер или комедийный слэшер?
+
+<P>Фильм «Пила» уже давно стал культовым среди хорророманов. Не прошло и пяти лет с момента выхода первой части, как на экраны выбросили пятый этап&nbsp;триллера-ужастика. Не будем здесь обсуждать достоинства и недостатки всех этих серий, так как наше дело – оценить саундтрек к ”Saw V”. Он представляет собой мрачноватую картину из работ металлических (в меньшей степени) и электронных (в большей) коллективов. Начинается и заканчивается альбом композициями Чарли Клоузера (ex-Nine Inch Nails), специалиста по электро-индастриалу (кстати, его же вещи были и в первой части «Пилы»). Далее к делу подключаются трэшевые ветераны Testament. Пока еще не всё так плохо. Затем следуют легенды индастриал-метала Minsitry, которые вроде бы всё-таки приказали долго жить. Гонку под дирижирование «Пилы» продолжают неизвестные мне альтернативщики Filter. Очень хороший номер выдают шотландцы The Almighty, 'Thanks Again, Again', но общая мрачно-хорроровая атмосфера начинает понемногу как-то рассеиваться. Довольно неинтересный номер от американских хэви-металистов Prong сменяет еще менее вразумительная композиция немецких ветеранов индастриала Die Krupps. Прям сплошные приветы из 80-х! Однако от атмосферы ужасного триллера остается всё меньше и меньше… Американские стоунер-рокеры Clutch, известные мне ранее только в роли разогрева для Motorhead, со своей песней 'Power Player' больше подошли бы для озвучивания бодрой погони в каком-нибудь боевике средней руки. Следующие за ними канадские электроиндастриальщики Skinny Puppy, одни из «отцов» стиля, звучат местами зло, но недостаточно зловеще. Всё уже начинает походить не на ужасы, а, в лучшем случае, комедийный слэшер. William Control, сольный проект лидера группы Aiden по имени wiL Francis, не напугает и младенца и, скорее, похож на ленивый такой хит с утяжеленной синтипоповой дискотеки; самая вещица, 'Strangers', не так уж и плоха и даже хитова, но как-то мало подходит для «Пилы» (хотя признаюсь, что часть 5-ю я не смотрел и вполне возможно, что данный номер по ходу фильма как раз в тему). Весьма странная американская скрипачка Emilie Autumn выдает нечто непонятно-инструментальное с уходом в готику. От французско-британской парочки Fixmer/McCarthy я ничего хорошего не ждал и не ошибся: тупая и скучная электро-муть, как и на их альбомах. Продолжающие этот странноватый саундтрек американцы Revolting Cocks представляют из себя что-то вроде «индастриальных U2», но атмосфера уже утрачена, похоже, навсегда. Немецкие аггротехники Funker Vogt со своим танцевальным номером 'Date Of Expiration' – и упоминавшийся выше Чарли Клоузер – завершают всю эту странную картину. Из-за уважения ко многим перечисленным артистам не могу поставить этому саундтреку низкую оценку, а высокой он никак не заслуживает. Посему – без оной.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 25.02.2009 reviews Что слушали наши родители полвека назад
+
+<P>Данный сборник является уникальным хотя бы уже потому, что составляли его сами "союзовцы" и точно такой же вы не найдете на зарубежных аналогах. Здесь собрана западная музыка, в целом&nbsp;27 песен, которую слушали наши родители, когда практически никто из нас не был даже "в планах". Компиляция вобрала в себя хиты десятилетия 1955-1965 (поэтому надпись "романтический рок-н-ролл 1958-60" не совсем верна), когда уже завершился стремительный взлет рок-н-ролла и силу набирали Битлы и Роллинги. Но тут речь пойдет как раз о других стилях. Соул, ритм-энд-блюз (вот первоначальная и единственно верная&nbsp;расшифровка аббревиатуры R&B, а не то, чем пичкают нас сегодня MTV и иже с ними), твист, поп, doo-wop, мерси-бит... Эти запретные для советского человека тех лет "мелодии и ритмы зарубежной эстрады" тем не менее проникали в квартиры охочей до нормальной музыки молодежи 50-х и 60-х. Порасспрашивайте об этом времени ваших родителей - если вы не сделали этого до сих пор - они, уверен, вам расскажут на сей счет немало интересного. Например, о "музыки на костях". Скорее всего, юный меломан с удивлением посмотрит на список исполнителей. Кого он может знать из той эпохи, кроме как Элвиса (которого, кстати, тут и нет)? Pat Boone, Paul Anka, The Platters, The Righteous Brothers - эти имена блистали на самых верхушках американских хит-парадов того времени, но кто о них знает сегодня из молодежи? Для более опытных любителей музыки будет интересным послушать некоторые известные хиты, но именно в оригинальном исполнении (как, например, 'The Loco Motion' Little Eva или 'Unchained Melody' The Righteous Brothers, которые каверились потом почем зря, или 'Needles And Pins' Jackie De Shannon, которую вы все знаете в исполнении Smokie). В общем, ищущий да обрящет. Думается, многим будет полезно ознакомиться с данным сборником, ну а если такая музыка вам совершенно не по душе, то сделайте просто подарок своим родителям. Они поймут и оценят, уверяю вас. По понятным причинам данную компиляцию оставляю без оценки.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 16.12.2009 reviews &quot;Нерукопожатная&quot; компиляция
+
+<P>CD-сборник ‘Extreme Metal Inside’ был издан итальянским PR-агентством SG Metal. Контора разместила на нём по две песни от пяти UG-групп, с которыми эти коллективы проехали по Италии с мини-туром. Я убедился, что низший уровень тяжёлой музыки в наших странах не сильно отличается.</P>
+<P>Не знаю, по какому принципу отбирались эти коллективы, но самым вероятным мне кажется принцип знакомства. 4 группы из пяти просто не готовы ещё выпускать альбомы, единственной более-менее известной из них является RESURRECTURIS, про них мы уже рассказывали. Думается, эти энтузиасты и выносили подобную идею. К сожалению, как я уже отметил, слушать этот сборник можно только под дулом пистолета. Первый коллектив AGABUS представляет что-то в духе hardcore. Мерзкий кричащий вокал и модные риффы навеяли тоску. Следом группы в стиле death-metal, отличить которые друг от друга не представляется возможным. Назову их для статистики: ANTAGONISM, CLINICAMENTE MORTI и NECROFILI. Отмечу вторую группу, которая исполнила death-metal unplugged. Представляете, как это выглядит?</P>
+<P>Жуткая компиляция, которую никому не посоветуешь. Мы, конечно, слышали и не такое, но пожелаем всем обходить этот альбом стороной.</P>
+Автор: Vit Belov
+
+### 28.01.2010 reviews Главные героини: Маша и Лив Кристин
+
+<P>Главными героями второй части видео-сборника Napalm Records стали отечественная группа АРКОНА и чета Espenaes-Krull. Пожалуй, первых можно считать самым значительным приобретением Napalm за прошедшие с момента первого сборника годы, а вторых самым ценным достоянием этой австрийской конторы.</P>
+<P>На этом DVD сборнике представлены все клипы команд, выходящих под эгидой Napalm Records. ALESTORM, АРКОНА, ATROCITY, BATTLELORE, GRAVE DIGGER, HATESPHERE, HOLLENTHON, KATRA, LACRIMAS PROFUNDERE, LEAVES’ EYES, SALTATIO MORTIS, SERENITY, THE MODERN AGE SLAVERY, TYR, VAN CANTO. Почти все эти группы со своими новыми альбомами выходили на Irond Records, поэтому музыкальные достоинства и недостатки их мы уже обсуждали. Отмечу только, что наша АРКОНА представлена тремя клипами с последних альбомов и одним концертным роликом с недавно вышедшего DVD, что очень много. Группа явно выделяется на фоне соседей, не качеством клипов, здесь мы имеем типичный для Pagan/Viking вариант: поля, корабли и бои на мечах, но своей музыкой. В музыке АРКОНА присутствует особый колорит, связанный, прежде всего, с пением Маши «Скрим». Сразу понятно, что это музыка&nbsp;происходит из России, а это наверно лучшее признание заслуг pagan-metal группы. Из общей массы выделю также группу SERENITY, в своём ролике они настолько сильно подчёркивают симфоничность своего звучания, что мне захотелось заново ознакомиться с их музыкой, которая приобрела от этого особый оттенок. Отмечу один явный недостаток этого сборника, трэки расположены в алфавитном порядке по названию групп, по этой причине приходится смотреть несколько клипов одного исполнителя подряд. В некоторых местах это немного раздражает. Например, в случае группы BATTLELORE, две песни которых с разных альбомов настолько похожи, что становится очень скучно.</P>
+<P>Дежурный сборник от Napalm Records, который способен понравиться нашему зрителю, из-за отсутствия подобных релизов на лицензионном рынке. Пускай, этот сборник демонстрирует очень узкую стилистическую направленность австрийской конторы, девушки и язычники, смотреть его достаточно интересно. Всё-таки Napalm Records, хоть и довольно мелкий, но значительный игрок на современной европейской сцене.</P>
+Автор: Vit Belov
+
+### 01.02.2010 reviews Всё лучшее, что можно найти на лицензии
+
+<P>В прошлом году на Nuclear Blast Records вышел уже седьмой сборник Monsters Of Metal. Достаточно неожиданно детище Markus Staiger обрело недюжинную популярность во всём мире. Эту компиляцию, как и шесть предыдущих, в шикарном digi-pack издал Irond.</P>
+<P>Теперь на Nuclear Blast поняли, что брэнд раскручен и подходят к составлению сборника несколько по-другому. Если раньше релизы представляли собой отчёт о всём лучшем, что существует и существовало в тяжёлой музык вообще, то сейчас клипы собственных коллективов Nuclear Blast занимают 70-80 процентов длительности, а остальное отдаётся на откуп лучшим клипам коллег немецкого лэйбла и ближайших его соседей на рынке. Napalm Records, Century Media и.т.п. С одной стороны, это очень хорошо, почти ни один клип не хочется промотать, из-за его стилистической направленности, но широкой картины и новых имён для себя обнаружить уже не удаётся. Почти все представленные музыканты выходили у нас по лицензии, все их видео мы стараемся отображать на нашем сайте, почему-то на первых «монстрах» всегда было больше открытий. Трэк-лист же нынешнего сборника помогает покупателю определить лучшие альбомы, вышедшие в нашей стране, за последний год.</P>
+<P>Со своей задачей ‘Monsters Of Metal VII” справляются по-прежнему идеально. Нельзя придумать лучшего подарка, дорогой, стильный и не очень нужный, но любопытный. Жаль только, что в этом году релиз не успел к Новому Году, шестая часть в позапрошлом году продалась полностью ещё до начала 2009 года. В этот раз найти в продаже это deluxe издание будет полегче. Не будем также забывать и про кризис.</P>
+Автор: Vit Belov
+
+### 25.03.2011 reviews На прорыв пойдут не все
+
+<P>Довольно давно на нашей сцене не выходило новых сборников тяжёлой музыки. Были бесплатные компиляции, прилагаемые к некоторым журналам, были чисто сетевые релизы, но отдельно продаваемых сборников на CD что-то давненько не встречалось. При помощи лэйбла Mazzar несколько недель назад вышла первая часть компиляции отечественных групп под названием «Прорыв».</P>
+<P>Этот релиз не станет последним для этой серии, так как уже в буклете к этому CD указано о поиске коллективов для её второй части. Кроме этого, организаторы мероприятия пишут о том, что подобный сборник станет путёвкой в жизнь для молодых коллективов. С этим утверждением можно поспорить, так как наш слушатель покупает сборники не очень охотно, но это уже другая проблема. Обратим своё внимание на музыкальные составляющие обозреваемого CD.</P>
+<P>В трек-листе можно обнаружить только две группы, которые известны отечественным меломанам – MANIC DEPRESSION и CEREMONIAL PERFECTION. Первые по праву считаются ведущей thrash-metal группой России, а вторые – выпустили недавно альбом на Фоно, и на нём, поверьте, есть что послушать. Для других коллективов сборник «Прорыв» должен действительно открыть двери в шоу-бизнес. Поначалу я хотел предложить читателю краткое описание каждого участвовавшего в компиляции коллектива, но, к сожалению, общий уровень музыкантов не вызывает восторга. Пожалуй, только sympho-black metal группа SUNLESS RISE представляет интерес. Их бодрый материал уже сейчас достоин отдельного релиза. Остальные герои не очень радуют. Здесь и представители русского thrash-metal, и какой-то странноватый heavy-power-hard с характерными вокалами, несколько коллективов «корового» направления. </P>
+<P>К несчастью, поименно перечислять героев – это только обижать начинающие группы. Возможно, в будущем эти музыканты более чётко определят свой стиль и представят более внушительный материал. Вот тогда упоминание их в этой рецензии может им и повредить.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

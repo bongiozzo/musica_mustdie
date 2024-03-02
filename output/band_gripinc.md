@@ -101,6 +101,373 @@ Dave Lombardo - Drums, Percussion
 * C группой "Eyes Of Eden" Waldemar Sorychta (guitar)
 * C группой "ReVamp" Waldemar Sorychta (guitar)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новый альбом DISMAL EUPHONY "All Little Devils" уже записан под руководством Вальдемара Сорихты (GRIP INC.). Выйдет это творение в феврале. Некоторые изменения в составе: из группы ушла вокалистка Кельцива, новой вокалисткой стала девушка по имени Аня Наташа, также во время тура к группе присоединятся клавишник Кнут и соло гитарист Jo Arild из TWIN OBSCENITY.</p>
+
+Автор: Vit Belov
+
+### 11.03.1999 reviews Дьявольская смесь
+
+<P>В момент выхода первого альбома группы меня сильно интриговало, что же будет играть эта команда. Барабанщик Дэйв Ломбардо из Slayer и Вальдемар Сорихта, продюсер альбомов Samael и Tiamat - дьявольская смесь. Уже с первого аккорда первого альбома становится ясно, что за основу всё-таки взят SLAYER. Почему я рассказываю о первом альбоме? Да потому, что всё очень похоже и на новом релизе группы. Чтобы окончательно понять о чём я говорю, представте себе SLAYER, в который добавили клавиши и агрессию разбавили Тиамато-Самаэлевской безысходностью и тоскливостью. Вокал Гуса Чамберса немного напоминает вокал Арайи из вышеуказанной группы. Обращает на себя внимание одна полностью готическая композиция, очень напоминающая поздние работы Tiamat. Но в общем и целом все песни акцентированы и прямолинейны, как их названия. На альбоме нет ни одного названия даже из двух слов, через это можно характеризовать и весь альбом.</P>
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Для тех кому недостаточно Grip Inc, Testament и Fantomas для наслаждения мастерством Дэйва Ломбардо новая группа Kkleq Muzil, с которой Дэйв запишет трёхпесенной демо. В группу также входят музыканты из Civil Defiance.</p>
+
+Автор: Vit Belov
+
+### 08.06.1999 news 
+
+<p>Grip Inc отправятся в тур после того, как их барабанщик Дэйв Ломбардо закончит сниматься в кинофильме, посвящённом жизни Гарри Гилмора. Дэйв говорит, сто в нём он играет "самого себя" в 80-х. В этом фильме (Cremaster 2) также отметится вокалист-басист из Morbid Angel Стив Такер, который, что-то там споёт.</p>
+
+Автор: Vit Belov
+
+### 26.06.1999 reviews 
+
+<p>Dave Lombardo сотоварищи выпустили лучший альбом за всю историю GRIP Inc. Сильнейший альбом - захватывает тебя целиком. Энергия так и прет и входит в тебя и растворяется в тебе и делает тверже. На этом альбоме потрясающе сбалансирована вся ритм-секция (не только барабаны, как обычно). Вокал Gaz'а Chambers'а и гитары Waldemar'а Sorychta (Gut Waldemar, Gut !!! ) тоже выше крыше. Ну а Lombardo... слов нет. Наверное этот парень родился с барабанными палочками в руках. Таких супер барабанщиков немного (Charles Benante, Igor Cavalera, Tony Choy, Sean Reinert). SLAYER с ихним "Diabolus In Musica" - отдыхают. А Paul Bostaph, занявший место Lombardo явно не тянет (но это уже совсем другая история).</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>Дэйв Ломбардо выпустил книгу под названием 'Power Grooves: A No Nonsense Approach to Hard Rock, Thrash and Heavy Metal Drumming'. Книга написана в соавторстве с учителем барабанной игры Чаком Силверманом, и в ней представлены многие секреты игры на этих инструментах. Произведение рекомендовано всем начинающим, и не только, барабанщикам. Также к книге прилагается CD с демо версиями различных песен Grip INC.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Дейв Ломбардо заявил, что новый альбом Grip Inc. возможно будет записан в сотрудничестве со знаменитым продюсером Михаэлем Вагенером. Уже готово несколько песен. Дата релиза не сообщается.</p>
+
+Автор: Vit Belov
+
+### 15.04.2003 news Новости от GRIP INC.
+
+<p>Группа GRIP INC., в составе которой как и прежде ударник SLAYER Dave Lombardo и гитарист Waldemar Sorychta (ex-DESPAIR), известный также как продюссер, планирует сессии в Woodhouse Studio для записи своего нового альбома. Альбом не имеющий пока названия планируется к выходу в начале 2004 года на SPV/Steamhammer Records в Европе и на JVC Records в Японии.</p>
+
+Автор: Dimas
+
+### 27.08.2003 news Grip Inc. - альбом в начале 2004 года
+
+<p>Grip Inc продолжают работу над долгожданным новым альбомом. Рабочее название пластинки 'Incorporated'. Уже известно, что гостевые партии на виолончели исполнит Eicca из Apocalyptica.</p>
+
+Автор: Vit Belov
+
+### 12.02.2004 news GRIP INC. выйдет 15 марта
+
+<P>Новый альбом <STRONG>GRIP INC. 'Incorporated'</STRONG> выйдет 15 марта на <STRONG>SPV</STRONG>. Трэк-лист:</P>
+<P><STRONG>1. Curse (Of the Cloth), 2. The Answer, 3. Prophecy, 4. Endowment of Apathy, 5. Enemy Mind, 6. Skin Trade, 7. (Built to) Resist, 8. The Gift, 9. Privilege, 10. Blood of Saints, 11. Man with NO Insides</STRONG></P>
+Автор: Vit Belov
+
+### 12.02.2004 news GRIP INC. news
+
+<P>"<STRONG>Incorporated</STRONG>" - the new <STRONG>GRIP</STRONG> CD. To be released on March 15th. Recorded in summer of 2003.</P>
+<P>Tracklisting as follows:</P>
+<P><STRONG>1. Curse (Of the Cloth), 2. The Answer, 3. Prophecy, 4. Endowment of Apathy, 5. Enemy Mind, 6. Skin Trade, 7. (Built to) Resist, 8. The Gift, 9. Privilege, 10. Blood of Saints, 11. Man with NO Insides</STRONG></P>
+Автор: Vit Belov
+
+### 15.04.2004 reviews Группа достойная упоминания не только, из-за участия Dave Lombardo
+
+<DIV><I><B>GRIP INC</B>. - примечательная группа. И примечательна она не только наличием в составе <B>Dave Lombardo (SLAYER)</B> и <B>Waldemar Sorychta</B>, а ещё и разнообразной и оригинальной музыкой.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В музыке <B>GRIP INC.</B> пытаются совместить несовместимое. Агресивность thrash-metal (от <B>SLAYER</B>)&nbsp;и мелодичность, за которую отвечает гитарист группы <B>WALDEMAR SORYCHTA</B>, который был продюсером на классических работах gothic-doom-death коллективов середины 90-х (<B>SAMAEL, MOONSPELL, TIAMAT</B>...). Кроме прочего, постоянные интересные находки, которые присутствуют почти в каждой песне. На новом альбоме группы с незатейливым названием 'Incorporated' Вы всё это найдёте. И забойные thrash-metal боевики, и психоделично-индустриальные атмосферно-орущие эпики, и классические мелодические хиты (одна из лучших, в этом смысле, вещей <B>Built to Resist</B> с участием <B>APOCALYPTICA</B>).&nbsp;Также стоит отметить thrash-flamenco <B>'Enemy Mind'</B> - эта вещь просто высшего порядка. Или забойная <B>Skin Trade</B> с использованием ситары, что делает её похожей на позднюю Кавалеровскую <B>SEPULTURA</B>.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Конечно же, <B>GRIP INC</B>. основывают свою музыку на современных образцах thrash-metal, но поверьте мне, альбом достоин прослушивания не только фэнами этого стиля.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>P.S.: Отметим творчество локализаторов из <B>Soyuz</B>, которые запросто выкинули несколько страниц из буклета, содержащие тексты 5 песен. Не ищите!!!</DIV>
+Автор: Vit Belov
+
+### 27.04.2004 reviews Умелые издевательства над трэшем
+
+<P>Хотим мы того или нет, но Gip Inc., видимо, навсегда останется для подавляющего большинства проектом Дэйва Ломбардо. Что? Кто такой Ломбардо? Хм, ну типа барабанщик Slayer. Что-что??!! Кто такие Slayer?? Так, быстро дуй к своим знакомым меломанам и попроси послушать хотя бы "Reign In Blood" упомянутой команды. Только скажи, что просто хочешь переслушать его, ибо твой экземпляр кто-то подрезал на очередной тусовке у тебя дома, а денег на диски сейчас у тебя нет - а то о тебе могут нехорошо подумать. Что, нет знакомых со Slayer'ом???? Ну, тогда не читай эту рецензию. Да и другие тоже. Ты лишний на этом празднике жизни. Так, но я отвлекся. Безусловно, Grip Inc. не является (во всяком случае сейчас) клоном знаменитых трэшеров. Более того, их музыку чистым трэшем-то и не назовешь. Здесь намешано всё, что угодно: и сам трэш, и хард-кор, и фолковые мотивы (причем из самых разных частей света), и элементы дарка, и черт знает что еще. На альбоме засветились участники таких коллективов, как Apocalyptica (Eicca Toppinen, виолончель) и Kreator (Sami Yii-Sirnio, ситара), а также Davangel, She Devil и FSO. Кроме того, диск весьма разнообразен и ничуть не утомляет. Посему рекомендую его всем, кроме, может быть, приверженцев "тру-трэсха", не терпящих никаких "издевательств" над стилем и уважающих только "чистую" продукцию. Продюсером альбома выступил участник Grip Inc., уроженец Польши&nbsp;Waldemar Sorychta, играющий в команде практически с первых дней ее существования (он сменил недолго пробывшего в группе Бобби Густафсона, бывшего гитариста Overkill). Он исполнил все гитарные партии и написал всю музыку для альбома, а третий "инкорпорированный", вокалист Гас Чемберс, сочинил все тексты. Результат получился просто отличный, но не будем забывать, что Сорихта продюсировал альбомы и иных именитых труженников тяжелой сцены (Tiamat, Gathering, Moonspell). Что ж, жалко лишь то, что на лицензионное издание не попали видео-бонуса, наверное, этот десерт достанется, как всегда, японским меломанам.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 19.01.2006 news Новый вокалист SQUEALER
+
+<P>Группа, погибшего в автокатастрофе хозяина немецкого лейбла <STRONG>AFM Andy Allendorfer</STRONG>, <STRONG>SQUEALER</STRONG> сообщила о своём участии в бельгийском фестивале <STRONG>Beveren Beaft</STRONG>. Стало известно, что место у микрофона занял бывший певец <STRONG>GRIP INC. Gus Chambers</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.10.2008 news Gus Chambers покончил с собой
+
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2008.10/12950.jpg" width=324 align=right border=5>13 октября в возрасте 52 лет умер бывший вокалист<STRONG> GRIP INC.</STRONG> и <STRONG>SQUELLER A.D. Gus Chambers</STRONG>. Сообщается, что он покончил с собой.</P>
+<P>Печально, но это уже второй вокалист <STRONG>SQUEELLER</STRONG>, который умирает не своей смертью.</P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+### 03.06.2013 news Marek Grzeszek: 25.10.1967 - 15.05.2013
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.06/25782.jpg" width=298 height=359>На днях стало известно, что 15 мая 2013 г. покончил жизнь самоубийством <STRONG>Marek Grzeszek</STRONG><EM> (на фото)</EM>, гитарист давно распавшейся немецкой thrash metal банды <STRONG>DESPAIR</STRONG>. Причины, сподвигшие 45 летнего&nbsp;Марека на подобный шаг, не известны.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>DESPAIR</STRONG> за время своего существования выпустила три альбома:</FONT></P>
+<P>1. <STRONG>History Of Hate</STRONG> (1988)<BR>2. <STRONG>Decay Of Humanity</STRONG> (1990)<BR>3. <STRONG>Beyond All Reason</STRONG> (1992)</P>
+<P>После развала коллектива, пути музыкантов разошлись. Первый вокалист группы, <STRONG>Robert Kampf</STRONG>, покинувший её вскоре после записи дебютного альбома, стал главой лейбла <STRONG>Century Media</STRONG>, который он, собственно, и создал, чтобы выпустить тот самый дебютный альбом. Гитарист <STRONG>Waldemar Sorychta</STRONG> стал известным продюсером, а участником многих проектов, среди них <STRONG>ENEMY OF THE SUN</STRONG>,<STRONG> EYES OF EDEN</STRONG>, <STRONG>GRIP INC.</STRONG> и другие. Барабанщик <STRONG>Markus Freiwald</STRONG>, так же, известен за свою&nbsp;множественную&nbsp;сессионную работу.&nbsp;C&nbsp;2010&nbsp;года&nbsp;является постоянным участником легендарной группы <STRONG>SODOM</STRONG>. Второй вокалист, <STRONG>Andreas Henschel</STRONG>, работает татуировщиком в салоне <STRONG>"Taka Tiki"</STRONG> (<A href="http://www.takatiki.de/">www.takatiki.de</A>) немецкого города Лейпциг. Бас-гитарист <STRONG>Klaus Pachura</STRONG> лишь однажды, после роспуска <STRONG>DESPAIR</STRONG>,&nbsp;был замечен в создании музыки -&nbsp;он&nbsp;записал второй&nbsp;альбома группы <STRONG>DARK MILLENNIUM</STRONG> под названием <STRONG>"Diana Read Peace" </STRONG>(1993). Чем занимается сейчас неизвестно.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

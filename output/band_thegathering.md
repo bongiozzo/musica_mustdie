@@ -334,6 +334,361 @@ A brand new The Gathering track. ‘Meltdown’ is a song which will appear on t
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.02.1999 news 
+
+<p>The Gathering сняли клип на песню "Liberty Bell". В этом клипе вокалистка Аннеке предстаёт в скафандре в космическом корабле в невесомом состоянии. Группа собирается выпустить новый альбом осенью 1999 года. Он будет содержать концертные записи, всевозможные старые бонус-песни, а также могут быть записаны несколько каверов. Тур The Gathering продолжится в июне и продлится до осени. Ну и последняя новость. The Gathering организуют новый лейбл, на котором собираются выпустить свои первые два альбома.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>The Gathering обещают выпустить три альбома в следующем году: концертник, сборник редких вещей и новый полнометражный альбом. При чём следующий год подразумевается год, начиная с этого момента. Концертник выйдет на двойном CD в сентябре, сборник выйдет в январе, а новый альбом будет готов к весне 2000 года.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Новый концертный альбом The Gathering выйдет в первые числа января и будет называться "Superheat".</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>The gathering сейчас находится в туре вместе с My Dying Bride.</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 news 
+
+<p>Новый альбом The Gathering выйдет летом.</p>
+
+Автор: Vit Belov
+
+### 10.07.2000 reviews Медленно-атмосферная душевная музыка
+
+<p>Медленно-атмосферная душевная музыка. Меня порадовал новый альбом голландцев. К ним вернулся живой звук. Да, на альбоме по-прежнему много электронных эффектов, но теперь их безжалостно вытесняет тяжелый гитарный звук. Иногда, просто очень тяжелый. Правда, резко бросается в глаза то, что вокал Anneke уже не тот, что прежде. На альбоме очень простые вокальные партии, нигде она не показывает всю силу и мощь своего голоса. Сентиментальная атмосфера действует умиротворяюще и заставляет настроиться на философский лад. Рекомендую всем любителям спокойной красивой музыки.</p>
+
+Автор: Dimas
+
+### 11.07.2000 reviews Slowly - atmospheric spiritual music
+
+<p>Slowly - atmospheric spiritual music. I was pleased with a new album of the Dutchs. To them the alive note has returned. Yes, on an album there are a lot of electronic effects, but now they ruthlessly are displaced by a high-gravity guitar note. Sometimes, simplly very high-gravity. The truth, rushes in an eye that voice of Anneke any more that before sharply. On an album very simple vocal crews, anywhere she does not demonstrate all force and power of the voice. The sentimental atmosphere acts peacemaker and causes to be customized on philosophical wave. I recommend to all fans of quiet beautiful music.</p>
+
+Автор: Dimas
+
+### 13.07.2000 reviews 10 If Gathering&#x3D;0 then print &quot;done!&quot; else goto 10
+
+<p> Если раньше ещё кто-то смел сомневаться, остаются ли the Gathering метал-группой,то сами музыканты поспешили развеять все сомнения с их новым релизом"if_then_else": The Gathering - определённо не metal, и тем более не doom. Времена "Nighttime birds", равно как и первого в мире эксперимента с сочетанием growling\soprano давно канули в лету. Ну что ещё можно сказать об этом альбоме? За исключением первой композиции, которая вполне слушабельна, всё остальное производит впечатление нарочитого формализма. Есть что-то от Fink Floyd,но это что-то едва ли способно компенсировать группе потерю своей индивидуальности. Если в случае с My Dying Bride модернистские (псевдо-цифровые) новвоведения в достопамятном "...Complete" были весьма удачны и необычны, то в случае с the Gathering это же привело к мэйнстримовому формализму (не знаю, клюнут ли на их удочку вседяные программеры и кулхацкеры) и отрицанию самих себя.</p>
+<p> Так что если вы увидите на MTV клип одной молодой группы, играющей модную ныне "утяжелённую" музыку - обыкновенный урбанситический клип, каких сотни, то пусть в финале вас не вводит в недоразумение знакомое словосочетание "the Gathering". Вы не ошиблись.</p>
+
+Автор: George Dysangelist
+
+### 19.09.2000 news The Gathering издадут свои ранние записи
+
+<p> Лейбл Hammerheart Records собирается издать ранние работы группы The Gathering. В начале следующего года выйдет диск, содержащий два первых демо группы.</p>
+
+Автор: Nybras
+
+### 04.06.2001 news The Gathering работают над новым материалом.
+
+<p> The Gathering недавно вернулись из студии, где трудились над новым материалом. На сей момент готовы уже 12 песен. По всей вероятности, группа продолжит писать песни до конца 2001 года.</p>
+
+Автор: Morsus
+
+### 04.06.2001 news The Gathering are working on the new material.
+
+<p> The Gathering just came back from the studios where they've been working hard on the new material. For the moment, 12 songs are being worked upon. In all probability, the band will continue writing new material up to well into 2001.</p>
+
+Автор: Morsus
+
+### 20.10.2001 news The Gathering ушли с Century Media
+
+<p>The Gathering покинули Century Media и основали свой собственный лейбл Psyconaut Records. В ближайшем будущем группа проведёт тур по голландским клубам, где будут сыграны несколько новых песен. Новый альбом планируется выпустить летом или осенью 2002 года.</p>
+
+Автор: Morsus
+
+### 20.10.2001 news The Gathering have left Century Media
+
+<p>The Gathering have left Century Media and the are starting their own label, Psyconaut Records. They will soon start a tour in Dutch clubs and they will play a few new songs as well. The plan is to release a new album in the summer or fall of 2002.</p>
+
+Автор: Morsus
+
+### 20.02.2002 news The Gathering продолжают работать в студии
+
+<p>The Gathering всё ещё днями и ночами трудятся в студии, стремясь закончить наконец новый альбом "Rockumentaries". Группа будет записывать альбом до мая этого года и начнёт сведение в июне. Возможная дата выпуска - октябрь 2002 года.</p>
+
+Автор: Morsus
+
+### 20.02.2002 news The Gathering are still working in studio
+
+<p>The Gathering are still working very hard to record and finish new album "Rockumentaries". The band will record until May 2002, and start mixing in June. Possible release date could be October 2002.</p>
+
+Автор: Morsus
+
+### 13.03.2002 news Новые песни THE GATHERING ....
+
+<p>Голландцы "THE GATHERING" продолжают работу над новым альбомом. Трек-лист: <BR><BR> 01. These Good People <BR> 02. Mokaka <BR> 03. Zion <BR> 04. Lunarians <BR> 05. Debris <BR> 06. Sleepy Buildings <BR> 07. Broken Glass <BR> 08. Telson I And II <BR> 09. Monsters <BR> 10. Richard <BR> 11. Golden Grounds <BR> 12. Even The Spirits Are Afraid <BR> 13. Souvenirs <BR> 14. We Just Stopped Breathing <BR> 15. Black Light District <BR> 16. Disarm (You Learn About It)<BR><BR> Группа собирается выпустить диск на собственном лэйбле Psychonaut Records, хотя это может повлечь за собой судебное разбирательство со стороны Century Media Records, которым команда должна еще один альбом.</p>
+
+Автор: Yermola
+
+### 25.04.2002 news Гитарист Voivod сыграет на новом альбоме The Gathering
+
+<p>Гитарист Voivod Denis D'Amour (Piggy) объединится с голландскими готами The Gathering. Новый альбом The Gathering выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 25.04.2002 news VOIVOD Guitarist To Play On Next THE GATHERING Full-Length
+
+<p>VOIVOD guitarist Denis D'Amour (a.k.a. Piggy) will be collaborating with Holland's THE GATHERING on the latter's next full-length release, which is scheduled to be issued in October. According to THE GATHERING drummer Hans Rutten, “Piggy will do a solo on a yet-to-be-titled song. The whole band are all big admirers of VOIVOD. CD's like Dimension Hatross, Nothingface, and Angelrat are all timeless classics.”<BR> Prior to the release of the above-mentioned CD, THE GATHERING will issue a 30-minute album, entitled Black Light District, in June via the group's own Psychonaut Records.</p>
+
+Автор: Vit Belov
+
+### 18.06.2002 news MP3 от THE GATHERING....
+
+<p>"THE GATHERING" опубликовали в сети MP3 новой песни "Debris" которая войдет на mini-CD "Black Light District". Нажимать <A HREF="http://www.gathering.nl/download/debris.mp3">здесь....</A></p>
+
+Автор: Yermola
+
+### 18.06.2002 news THE GATHERING: New MP3 Posted Online ....
+
+<p>THE GATHERING have posted an MP3 clip of a brand new track called "Debris", taken from the group's forthcoming mini-CD Black Light District, at <A HREF="http://www.gathering.nl/download/debris.mp3">this location. </A></p>
+
+Автор: Yermola
+
+### 22.12.2002 news Сувениры от THE GATHERING
+
+<p>24 февраля 2003 года на Psychonaut Records выходит новый альбом голландской команды THE GATHERING под названием "Souvenirs". Окончательный трэк-лист альбома выглядит следующим образом:</p>
+<p> 1. A Life All Mine <BR> 2. Even The Spirits Are Afraid <BR> 3. Broken Glass<BR> 4. We Just Stopped Breathing <BR> 5. Golden Grounds <BR> 6. Jelena <BR> 7. You Learn About It <BR> 8. Souvenirs<BR> 9. Monsters <BR> 10. These Good People</p>
+
+Автор: Dimas
+
+### 27.02.2003 reviews Классика пост-дума
+
+<p>Как бы ни были хороши "Mandylion" и "How to Measure a Planet?", "Always…" и "Almost a Dance" по-прежнему остаются моими фаворитами. Быть может, потому что они так непохожи друг на друга, в то время как все последующие альбомы обозреваемой группы выдержаны в одном ключе? Или дело в голосе Аннеке? Неизвестно. "Nighttime Birds", что и говорить, хорош. Крайне удачный образец пост-дума с женским вокалом; оговорюсь – с чарующим женским вокалом. Всего лишь пять лет до него голландцы играли дум/дэт… а ещё через несколько годков обратятся к чему-то-что-крайне-сложно-описать-и-тем-более-понять (речь, само собой, о "How to Measure a Planet?"). "On Most Surfaces", "The May Song", "The Earth is my Witness"… хорошие песни. Пожалуй, одни из лучших у того THE GATHERING, который появился на свет в 1995 году. Но – не цепляет. Дело вкуса? Наверняка. Одно можно сказать точно – если вам нравится такая музыка, и если у вас нет этого альбома… то где, чёрт возьми, вы были все эти шесть лет?!</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.09.2003 news THE GATHERING выпускают концертный EP
+
+<B>THE GATHERING</B> выпустят концертный полуакустический EP 'Sleepy Buildings' в январе.
+Автор: Vit Belov
+
+### 14.04.2004 news THE GATHERING выступят в Москве
+
+29 мая в ДК им. Горбунова выступят <B>THE GATHERING</B>. В официальном пресс-релизе группа обещает 2-х часовое выступление.
+Автор: Vit Belov
+
+### 18.06.2004 news Новости от MORBID ANGEL
+
+<P><B>Trey Azagthoth</B> поделился своими планами о создании совместного проекта с певицей <B>Anneke van Giersbergen</B>&nbsp;из <B>THE GATHERING</B>.&nbsp;В настоящее время музыканты пытаются совместить свои графики.</P>
+<P>Кроме этого, барабанщик <B>Pete Sandoval</B>&nbsp;рассказал,&nbsp;что пытается собрать <B>TERRORIZER</B> для записи&nbsp;нового альбома. Pete надеется, что они войдут в студию в конце года.</P>
+Автор: Vit Belov
+
+### 03.08.2004 news THE GATHERING приостанавливают концертную деятельность
+
+<P>Голландская группа <B>THE GATHERING</B>&nbsp;&nbsp;отменила все свои ближайшие концерты и заявила о приостановлении своей концертной деятельности. Причиной этому послужило то, что вокалистка <B>Anneke van Giersbergen</B> находится на третьем месяце беременности и ждет своего первого ребенка, будучи счастливой как никогда.</P>
+Автор: Дофф
+
+### 21.02.2005 news Anneke van Giersbergen родила сына
+
+<P>Вокалистка<STRONG> THE GATHERING</STRONG>&nbsp;<B>Anneke van Giersbergen</B> родила в воскресенье 20 февраля сына, которому дано имя&nbsp;<B>Finn.</B></P>
+Автор: Dimas
+
+### 18.07.2005 news THE GATHERING выпускают коллекцию
+
+<P><STRONG>Century Media</STRONG> сообщили о выходе 22 августа коллекции раритетов и B-side'ов от <STRONG>THE GATHERING</STRONG> "<STRONG>Accessories - Rarities And B-Sides</STRONG>". На первый диск войдут B-side со всех синглов группы, включая кавера на песни <STRONG>TALK TALK</STRONG> и<STRONG> DEAD CAN DANCE</STRONG>. На второй диск войдёт демо к альбому "<STRONG>Nighttime Birds</STRONG>", записанное в конце 1996 года. Кроме альтернативных версий всех песен, на него войдут два нериализованный инструментала. Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.07/9000.jpg" width=200 align=right border=5>CD one – the b-sides: <BR>1. <STRONG>In Motion #1</STRONG> (live) <BR>Taken from Strange Machines CD-Single <BR>2. <STRONG>Leaves</STRONG> (live) <BR>Taken from Strange Machines CD-Single <BR>3. <STRONG>Adrenaline</STRONG> <BR>Taken from Adrenaline/Leaves CD-Single <BR>4. <STRONG>Third Chance</STRONG> <BR>Taken from Adrenaline/Leaves CD-Single <BR>5. <STRONG>Strange Machines</STRONG> (live w/Orchestra) <BR>Taken from The May Song CD-Single <BR>6.<STRONG> In Power We Trust The Love Advocated</STRONG> (<STRONG>Dead Can Dance</STRONG> cover version) <BR>Taken from Kevin’s Telescope CD-Single <BR>7. <STRONG>When The Sun Hits</STRONG> (<STRONG>Slowdive</STRONG> cover version) <BR>Taken from Adrenaline/Leaves CD-Single <BR>8. <STRONG>Confusion</STRONG> (demo/ Eroc session) <BR>Taken from Adrenaline/Leaves CD-Single <BR>9. <STRONG>Shrink <BR></STRONG>Taken from Liberty Bell CD-Single <BR>10. <STRONG>Frail </STRONG>(live) <BR>Taken from Liberty Bell CD-Single <BR>11. Theme From ”<STRONG>The Cyclist</STRONG>” <BR>Taken from Rollercoaster CD-Single <BR>12. <STRONG>Leaves</STRONG> (live w/Orchestra) <BR>Taken from Rollercoaster CD-Single <BR>13. <STRONG>Life Is What You Make It</STRONG> (<STRONG>Talk Talk</STRONG> cover version) <BR>Taken from Amity CD-Single <BR>14. <STRONG>Amity </STRONG>(live at Isabelle) <BR>Taken from Amity CD-Single </P>
+<P>CD two – the rarities: <BR>1. <STRONG>New Moon, Different Day</STRONG> * <BR>2. <STRONG>Kevin’s Telescope</STRONG> (instrumental) * <BR>3. <STRONG>Shrink</STRONG> * <BR>4. <STRONG>The Earth Is My Witness</STRONG> * <BR>5. <STRONG>Diamond Box</STRONG> (previously unreleased instrumental) * <BR>6. <STRONG>Nighttime Birds</STRONG> * <BR>7. <STRONG>On Most Surfaces</STRONG> * <BR>8. <STRONG>Hjelmar’s</STRONG> (previously unreleased instrumental) * <BR>9. <STRONG>My Electricity</STRONG> ** <BR>10. <STRONG>Probably Built In The Fifties</STRONG> ** <BR>11.<STRONG> Illuminating</STRONG> ** <BR>12. <STRONG>Red Is A Slow Colour</STRONG> ** <BR>13. <STRONG>Travel</STRONG> ** </P>
+<P>* Demo session for Nighttime Birds, recorded at Woodhouse Studios, Germany. Mixed by Eroc November 1996. <BR>** Demo session for How To Measure A Planet?, recorded at Texel, the Netherlands, February 1998. </P>
+Автор: Vit Belov
+
+### 18.07.2005 news THE GATHERING to release collection
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>THE GATHERING</STRONG> will release collection of raritetes and B-sides "<STRONG>Accessories - Rarities And B-Sides</STRONG>" via<STRONG> Century Media</STRONG> on August 22nd. CD1 offers “the b-sides” from all of their out-of-print CD-Singles – including rarities like “<STRONG>Adrenaline</STRONG>” and “<STRONG>Theme From ‘The Cyclist’</STRONG>”, as well as cover versions from <STRONG>Talk Talk</STRONG>, <STRONG>Dead Can Dance</STRONG> and<STRONG> Slowdive</STRONG>. CD 2 is full of unreleased demo recordings. In the end of 1996, <STRONG>The Gathering</STRONG> did demos for their "<STRONG>Nighttime Birds</STRONG>" album with German Krautrocker Eroc (Grobschnitt, etc.). For the first time ever you can hear all of the alternate versions as well as two instrumentals that were not used on "<STRONG>Nighttime Birds</STRONG>".&nbsp;Track-list:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news/2005.07/9001.jpg" width=200 align=right border=5>CD one – the b-sides: <BR>1. In Motion #1 (live) <BR>Taken from Strange Machines CD-Single <BR>2. Leaves (live) <BR>Taken from Strange Machines CD-Single <BR>3. Adrenaline <BR>Taken from Adrenaline/Leaves CD-Single <BR>4. Third Chance <BR>Taken from Adrenaline/Leaves CD-Single <BR>5. Strange Machines (live w/Orchestra) <BR>Taken from The May Song CD-Single <BR>6. In Power We Trust The Love Advocated (Dead Can Dance cover version) <BR>Taken from Kevin’s Telescope CD-Single <BR>7. When The Sun Hits (Slowdive cover version) <BR>Taken from Adrenaline/Leaves CD-Single <BR>8. Confusion (demo/ Eroc session) <BR>Taken from Adrenaline/Leaves CD-Single <BR>9. Shrink <BR>Taken from Liberty Bell CD-Single <BR>10. Frail (live) <BR>Taken from Liberty Bell CD-Single <BR>11. Theme From ”The Cyclist” <BR>Taken from Rollercoaster CD-Single <BR>12. Leaves (live w/Orchestra) <BR>Taken from Rollercoaster CD-Single <BR>13. Life Is What You Make It (Talk Talk cover version) <BR>Taken from Amity CD-Single <BR>14. Amity (live at Isabelle) <BR>Taken from Amity CD-Single </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>CD two – the rarities: <BR>1. New Moon, Different Day * <BR>2. Kevin’s Telescope (instrumental) * <BR>3. Shrink * <BR>4. The Earth Is My Witness * <BR>5. Diamond Box (previously unreleased instrumental) * <BR>6. Nighttime Birds * <BR>7. On Most Surfaces * <BR>8. Hjelmar’s (previously unreleased instrumental) * <BR>9. My Electricity ** <BR>10. Probably Built In The Fifties ** <BR>11. Illuminating ** <BR>12. Red Is A Slow Colour ** <BR>13. Travel ** </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>* Demo session for Nighttime Birds, recorded at Woodhouse Studios, Germany. Mixed by Eroc November 1996. <BR>** Demo session for How To Measure A Planet?, recorded at Texel, the Netherlands, February 1998. </FONT></P>
+Автор: Vit Belov
+
+### 20.08.2005 news THE GATHERING готовят DVD
+
+<P>В середине октября выйдет двойной DVD<STRONG> THE GATHERING</STRONG>, содержащий концертное выступление 23 мая 2005 года&nbsp;в клубе <STRONG>Paradiso (Amsterdam),</STRONG> и много бонусов интересных фанатам этого коллектива. В число бонусов входят анимационные 3-D клипы, созданные молодыми аниматорами <STRONG>Michel de Klein</STRONG>&nbsp;и &nbsp;<STRONG>Marcin Pazera</STRONG>. </P>
+<P>Кроме того, <STRONG>The End Records</STRONG>&nbsp; выпустит лимитированный тираж с футболкой и подписанным постером.</P>
+<P><STRONG>Disc I</STRONG></P>
+<P><STRONG>Live concert at Paradiso, Amsterdam, May 23rd 2005:</STRONG></P>
+<P><STRONG>1. The big sleep<BR>2. Broken glass<BR>3. Rescue me<BR>4. Alone<BR>5. Travel<BR>6. Red is a Slow Colour<BR>7. A life all mine<BR>8. Golden grounds<BR>9. Amity<BR>10. In Motion II<BR>11. Marooned<BR>12. Souvenirs<BR>13. Like fountains<BR>14. Herbal movement</STRONG></P>
+<P><STRONG>Disc II</STRONG></P>
+<P><STRONG>Tour Impression 2004</STRONG></P>
+<P><STRONG>Bonus features:</STRONG></P>
+<P><STRONG>Dutch TV special ‘15 year The Gathering’<BR>Italian video-interview</STRONG></P>
+<P><STRONG>Animation Music Clips:</STRONG></P>
+<P><STRONG>Marooned<BR>The Big Sleep<BR>Alone<BR>Broken Glass<BR>A life all Mine<BR>Red is a Slow Colour</STRONG></P>
+Автор: Bizarre
+
+### 21.10.2005 news Переиздание Mandylion
+
+<P>В этом году на <STRONG>Century Media</STRONG> выходит юбилейное издание "ключевого" альбома <STRONG>THE GATHERING "Mandylion</STRONG>", посвящённое десятилетию этой пластинки. На это издание войдёт бонус-диск. Трэк-лист:</P>
+<P><IMG height=192 alt="" hspace=0 src="/images/news_rus/2005.10/9598.jpg" width=200 align=right border=5>CD 1 – <STRONG>Mandylion</STRONG> <BR>1. <STRONG>Strange Machines</STRONG> (6:04) <BR>2. <STRONG>Eleanor</STRONG> (6:41) <BR>3. <STRONG>In Motion #1</STRONG> (6:56) <BR>4. <STRONG>Leaves</STRONG> (6:01) <BR>5. <STRONG>Fear The Sea</STRONG> (5:49) <BR>6. <STRONG>Mandylion</STRONG> (5:01) <BR>7. <STRONG>Sand & Mercury</STRONG> (9:57) <BR>8. <STRONG>In Motion #2</STRONG> (6:07) </P>
+<P>Total running time CD 1: 52:36 </P>
+<P>CD 2 – Demos <BR>1. <STRONG>In Motion #1</STRONG> (7:28) <BR>2. <STRONG>Mandylion</STRONG> (4:42) <BR>3. <STRONG>Solar Glider</STRONG> (instr.) (4:35) <BR>4. <STRONG>Eleanor</STRONG> (6:38) <BR>5. <STRONG>In Motion #2</STRONG> (7:18) <BR>6. <STRONG>Third Chance</STRONG> (5:53) <BR>7. <STRONG>Fear The Sea</STRONG> (6:29) <BR>Track 1 - 3: <STRONG>Beaufort studio</STRONG> (June 1994) demo <BR>Track 4 - 7: Tilburg, <STRONG>Double Noise studio</STRONG> (early 1995) demo </P>
+Автор: Vit Belov
+
+### 22.11.2005 news THE GATHERING начали запись
+
+<P><STRONG>THE GATHERING</STRONG> начали запись своего девятого альбома в собственной студии. С группой будет работать продюсер <STRONG>Attie Bauw</STRONG>, которой уже помогал голландцам на альбоме "<STRONG>How To Measure Planet</STRONG>?".</P>
+Автор: Vit Belov
+
+### 20.01.2006 news Sanctuary Records с гордостью заявляют о подписании контракта с THE GATHERING.
+
+<P><STRONG>Фрэнк Стребеле</STRONG>, Президент европейского филиала <STRONG>Sanctuary Group</STRONG>, говорит в адрес нового сотрудничества следующее: "<EM>Мы рады, что THE GATHERING вошли в нашу дружную семью.&nbsp; Трудно представить группу, которая бы с большим умением смешивала разные музыкальные стили, не теряя при этом собственного лица. Со стороны Sanctuary, мы сделаем все возможное, чтобы преумножить популярность команды как в Европе, так и во всем остальном мире</EM>". </P>
+<P>Голландская капелла недавно закончила работу над своим 9-м студийным альбомом. Группа арендовала изящную старую церковь в городе Маурик, что на юге Нидерландов, где установила звукозаписывающую аппаратуру.&nbsp; <STRONG>Аннеке ван Гирзберген</STRONG> (вокал): "<EM>Мы хотели создать что-то отличное от наших прежних работ и поэтому ощущали необходимость создать необычную атмосферу при записи. В этом нам очень помог Атти Бао [продюсер, работавший с группой над концертником 1998-го года - "How To Measure A Planet?"], его талант и его идеи вдохновляли и поддерживали нас</EM>".&nbsp; </P>
+<P>Проработав месяц в такой необычной обстановке, музыканты переместились в <STRONG>Bauwhaus Studio</STRONG>, где занялись сведением и мастерингом нового диска.&nbsp; "<STRONG>Home</STRONG>" - так голландцы назвали свою очередную работу. Новая история - не из тех, что берут тебя за руку и плавно уводят в зазеркалье. Она, скорее, похожа на жизнеописание простого человека. Здесь тексты и музыка повествуют о постоянном вызове и ежедневных маленьких победах, одерживаемых нами на пути+ куда?.. Облаченные в форму поп- и рок-песен, эти слова и ноты приглашают нас в мир, где правят мелодия, драйв и неподдельные эмоции.<BR><BR>новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)<BR></P>
+Автор: Ixtiandr
+
+### 09.02.2006 news Новый альбом THE GATHERING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2006.02/10019.jpg" width=400 align=right border=5>Стал известен трэк-лист нового альбома <STRONG>THE GATHERING "Home</STRONG>":</FONT></P>
+<P>01. <B>Shortest Day</B><BR>02. <B>In Between</B> <BR>03. <B>Alone</B><BR>04. <B>Waking Hour</B> <BR>05. <B>Fatigue</B><BR>06. <B>A Noise Severe</B> <BR>07. <B>Forgotten</B><BR>08. <B>Solace</B> <BR>09. <B>Your Troubles Are Over</B><BR>10. <B>Box</B> <BR>11. <B>The Quiet One</B><BR>12. <B>Home</B> <BR>13. <B>Forgotten Reprise</B></P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 31.05.2006 news Anneke van Giersbergen из THE GATHERING признана в Голландии лучшей вокалисткой
+
+<P><B>Anneke van Giersbergen</B> из группы <B>THE GATHERING</B> получила 27-го мая 2006 года премию <B>Devil Award</B> (присуждаемую Dutch Rock & Pop Institute) как лучшая вокалистка Голландии. Это уже вторая музыкальная награда группы в этом году. Ранее, в марте этого года, <B>THE GATHERING</B> были награждены в Нидерландах же знаменитой <B>Edison Award</B> за "лучший национальный DVD", а именно за недавно вышедший двойной <B>"A Sound Relief"</B>. А вот лучшим барабанщиком страны признан <B>Cesar Zuiderwijk</B>, играющий у ветеранов голландской рок-сцены, культовых <B>GOLDEN EARRING</B>.</P>
+Автор: Ixtiandr
+
+### 31.05.2006 reviews Новый уровень голландцев
+
+<P>Группы, находящиеся далеко не первый год на "тяжелой" сцене, идут сейчас разными путями. Кто-то пытается "вернуться к корням", кто-то максимально усложняет свою музыку, охотно добавляя к ней слово "прогрессив", кто-то продолжает "пилить" всё то же самое, что и раньше. Смысл всех этий метаний (или, наоборот, топтаний на месте) всегда один: заполучить побольше приверженцев своей музыки, не отпугнуть старых и приобрести новых. Голландская группа The Gathering со своим восьмым уже по счету альбомом со скромным названием "Home" вряд ли имеет иную цель, чем остальные. Но пошли они совершенно иным путем. Если на последних альбомах этого коллектива готик-метала, с которого они начали своё, без преувеличения, триумфальное восхождение на Олимп современной музыки, становилось всё меньше и меньше, то на данном релизе его следов вообще не осталось. Что там метал, тут даже и с роком мало что общего. The Gathering пошли в сторону, так сказать, минимализма: гитарные партии отодвинуты на второй план, главную же роль играют синтезаторные лупы и сэмплы, ну и, конечно же, неподражаемый, фирменный стиль вокалистки Аннеке ван Гирсберген (которая, кстати, на днях получила премию лучшей вокалистки Нидерландов).&nbsp; Всё это уже больше похоже на поп-рок-амбиент с женским вокалом Но никаких вариантов для дискотек вы тут не найдете). Хорошо это или плохо? Для адептов "старого The Gathering" вряд ли хорошо. Для тех же, кому чужды строгие рамки каких бы то ни было стилей, кто является, как принято говорить, "open mind", "Home" придется, скорее всего, по душе. Здесь нет запоминающихся хитов, нет эмоциональных гитар, нет "страдающего" вокала. Просто группа вышла на новый для себя уровень, что бы потом не говорили фанаты The Gathering. Я не удивлюсь, если следующий альбом голландцев будет выполнен вообще в стиле амбиент или world music или каком-нибудь light industrial. Налицо как раз тот случай, когда музыканты не собираются останавливаться на достигнутом, не хотят использовать ради достижения коммерческих целей старые наработки. Это красивая, спокойная, грустная музыка с красивым, опять-таки грустным и спокойным женским вокалом в сопровождении порой чуть ли не трип-хоповых ритмов. Как уже говорилось выше, пуристам от метала тут ловить нечего.&nbsp; А любителям музыкальных течений, которые я - пусть и несколько неуклюже, возможно - пытался обрисовать, "Home" должен понравиться. Я никогда не был фанатом The Gathering, но меня откровенно порадовал тот факт, что эти музыканты могут создать вполне достойный альбом и в далеком от метала стиле.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 05.06.2006 news Anneke из THE GATHERING на новом альбоме NAPALM DEATH!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, <STRONG>NAPALM DEATH</STRONG> записывают новый альбом <FONT color=#ddd9d0>"<STRONG>Smear Campaign</STRONG>". Стали известны названия некоторых песен: <STRONG>'Rabid Wolves (For Christ)', 'In Deference', 'Atheist Runt', 'When All Is Said and Done', 'Sink Fast, Let Go'.</STRONG></FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000">Шокирующей новостью для фэнов группы станет информация об участии в записи альбома вокалистки<STRONG> THE GATHERING Anneke</STRONG>. Музыканты успокаивают своих&nbsp;поклонников и обещают не "опускаться" до opera metal.</FONT></P>
+Автор: Vit Belov
+
+### 26.11.2006 articles Tony Martin вернулся из России, где пел под фонограмму - NAPALM DEATH поют с вокалисткой THE GATHERING, как CELTIC FROST - «Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег» - MICHAEL SCHENKER опять метнул гитару
+
+<P><STRONG>Tony Martin вернулся из России, где пел под фонограмму</STRONG></P>
+<P><IMG height=210 alt="" hspace=0 src="/images/articles_rus/2006.11/10963.jpg" width=167 align=left border=5>С гастролями в этом месяце Россию посетил бывший вокалист BLACK SABBATH, а ныне успешный сольный артист, Tony Martin. Приехав домой, Tony опубликовал свои впечатления на своём официальном сайте. «Россия! Парни, вы молодцы. Отлично вернуться домой. У нас была ОЧЕНЬ интересная поездка», - восклицает Tony. По словам певца, первое шоу в клубе «Апельсин» было фантастическим. Он благодарит всех, кто посетил это мероприятие. «Следующие несколько дней были … интересными! Мы проехались по знаменитой Российской железной дороге!!! Если вы помните, у меня уже был подобный опыт, когда я ездил в Россию с M3! В этот раз было лучше. Во-первых потому, что я знал, чего ожидать от русских поездов, а во-вторых, в этот раз мы ехали в вагоне первого класса, в отличие от прошлого раза». Видимо, Tony даже первый класс показался не очень комфортным, если он упоминает о поразившем его транспорте в каждом отчёте о посещении нашей страны. Были гораздо более интересные вещи. Например, господин Martin участвовал в концерте, посвящённом группе ЗЕМЛЯНЕ, где столкнулся с некоторыми другими особенностями русской эстрады. Tony назвал себя мимом, потому что его попросили петь под фонограмму, что является «настойчивой просьбой русских». Можно сказать, опозорились. Особенно приятно, что кроме бывшего солиста BLACK SABBATH в этом фарсе участвовали SUPERMAX, NAZARETH, KINGDOM COME, Rick Wakeman и Tony Iommi. Присутствие последнего особенно поразило господина Мартина: «Там был Tony Iommi… Это не проблема. Но прикольно было, что диктор неправильно назвал его имя, а в «бегущей строке его фамилия отображалась с буквой Y. После выступления, Tony, которого я не видел много лет, куда-то исчез с парнями из KINGDOM COME, а шоу продолжилось. Это были часы дезорганизации. Фонограммы путались, ставились другие песни, куча непредвиденных изменений. Мы попытались сделать наше шоу вживую, но организаторы просто забрали все кабели с собой. Единственным плюсом был неплохой прием у публики». Несмотря на подобный провал, Тони в своём обращении похвалил музыкантов группы «Земляне» за то, что они пригласили их на своё 30-летие. Видимо, это было очень хлебосольное 30-летие, раз западные рок-музыканты готовы терпеть такое, и позорится пением под фонограмму. Позже этим вечером я видел Тони Мартина в компании с Гленном Хьюзом в эфире первого канала вместе с гламурным ведущим Малаховым, который выступил в таком духе, мол, Bonnie Tyler я знаю, она сидела рядом, а это что за джентльмены такие. Надеюсь, «динозавры рока» не зря подвергали себя подобным унижениям.</P>
+<P><STRONG>NAPALM DEATH поют с вокалисткой THE GATHERING, как CELTIC FROST</STRONG></P>
+<P><IMG height=136 alt="" hspace=0 src="/images/articles_rus/2006.11/10964.jpg" width=200 align=right border=5>В ближайшее время в России выйдет новый альбом NAPALM DEATH “Smear Campaign”. Лидер коллектива Mark “Barney” Greenway сейчас раздаёт много интервью. Я попытался нарыть в них что-нибудь интересное. «Мы не были слишком расслаблены, когда сочиняли материал для этой пластинки», - рассказывает Барни. «У нас не было достаточного количества времени, это был не самый лучший момент для написания нового альбома. Мы не хотим превращаться в группы, которые штампуют пластинки только потому, что этого требует бизнес. Странно, но мне понравилась эта ситуация. Однажды, я обнаружил себя пишущим новые тексты за компьютером. Оказывается, подобный цейтнот благотворно влияет на творчество NAPALM DEATH. Мы выполнили нашу работу на отлично». Видимо, решив всё-таки немного разнообразить своё творчество, NAPALM DEATH пригласили гостевую вокалистку. Ею стала Anneke Van Giersbergen из THE GATHERING. Моё предположение Барни опровергает: «Некоторые группы приглашают гостевых певцов только для того, чтобы кто-то спел на их альбоме. Мы же что-то делаем только со смыслом. Аннеке спела на двух песнях «Weltschmerz” и “In Deference”. Многих удивит наш выбор, вам надо послушать эти песни, чтобы понять, как группа NAPALM DEATH могла пригласить солистку THE GATHERING петь на своём альбоме. Мне кажется, оба трэка звучат, как ранний CELTIC FROST, периода «Morbid Tales”». Лирика на “Smear Campaign” связана с отношением Барни к религии. Вдохновившим певца событием стало введение в одной из школ в Англии предмета, который объяснял научные теории вмешательством Господа. «В настоящее время я вхожу в инициативную группу, которая будет бороться я подобными начинаниями», - заявляет музыкант. Мир сошёл с ума. Так будем же слушать живой death-grind на новом альбоме NAPALM DEATH, чтобы не сойти с ума вместе с подобными деятелями, которых достаточно и в нашей стране.</P>
+<P><STRONG>«Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег»</STRONG></P>
+<P><IMG height=285 alt="" hspace=0 src="/images/articles_rus/2006.11/10965.jpg" width=351 align=left border=5>Новым альбомом порадует нас в ближайшее время и Jon Oliva, чья вторая пластинка выйдет на AFM. В интервью Rock Hard Джон коснулся не только своей сольной карьеры, но и высказал несколько интересных мнений о своей группе SAVATAGE. Первый сольник Оливы вышел на SPV, теперь у певца контракт c AFM. “Люди на SPV – очень милые люди. Но они просто выпустили альбом и больше ничего не делали. Многие фэны просто не могли найти альбом. Я решил перейти на более мелкий лэйбл, чтобы получить больше внимания. Парни на AFM мне очень понравились, при первом же знакомстве, когда я писал песни для проекта Zach Stevens CIRCLE II CIRCLE. Мы общались с ними около года до заключения контракта. Они платят вовремя, мне нравится их отношение (смеётся). На SPV я был как маленькая рыбка в большом океане. Они не заботились обо мне, потому что Jon Oliva – это не SAVATAGE. Но я говорил им, что это и есть новый SAVATAGE. Просто играют другие люди, но материал и есть новый SAVATAGE. Они этого не поняли». Высказался Джон и о будущем SAVATAGE: «Всё очень просто. У вас есть Trans-Siberian Orchestra, собирающие 30-тысячную аудиторию и выпускающие мульти-платиновые альбомы. Это SAVATAGE, но с другими певцами. И у вас есть SAVATAGE с гораздо меньшей аудиторией. У меня есть пять платиновых альбомов, но не один из них не получен с SAVATAGE. У SAVATAGE был шанс, но он его не использовал. Сейчас группа интересует лишь несколько сотен фэнов по всему миру. Для меня SAVATAGE закончился после смерти Criss Oliva. Все альбомы, выходившие после этого: “Edge Of Thorns”, “Dead Winter Dead”, Handful Of Rain”, “The Wake Of Magellan” – это альбомы TRANS SIBERIAN ORCHESTRA для меня. Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег, а у меня семья. Группа просуществовала 15-20 лет, но так и не окупилась. Где вы хотите выступать в клубе в Греции перед 2000 фэнов или в Мэдисон Сквер Гарден перед 25000 фэнов?». Джон – честный парень, вам не кажется? </P>
+<P><STRONG><IMG height=432 alt="" hspace=0 src="/images/articles_rus/2006.11/10966.jpg" width=288 align=right border=5>MICHAEL SCHENKER опять метнул гитару</STRONG></P>
+<P>А Michael Schenker опять начудил. Опять в Японии. Опять заболел. В прошлый раз он заболел в Японии и несколько дней никто не мог сказать, где он и чем болен. В этот раз он заболел прямо на сцене в Токио. И бросил играть после третьей песни. Забавно, что господин Шенкер так и не объяснил, что с ним случилось. Рассказывает один из авторов сайта “Michael Schenker News and Tour Information”: «Что-то было не так с самого начала. Майкл не мог играть даже простые фразы песни “Assault Attack”, которая открывала шоу. Во время второго трэка “Ready To Rock” Майкл вышел на авансцену и пытался общаться с публикой и рубиться. Однако он не сыграл соло и ушёл за кулисы. После некоторого перерыва он вернулся к публике и попросил их поднять руки. “Let It Roll” – была следующей. После первого соло Майкл метнул свою гитару и ушёл со сцены опять. Остальные музыканты доиграли песню до конца и также покинули сцену. Публика продолжала хлопать и звать Майкла назад (во, японцы молодцы, прим.авт.). Прошло 10 минут. Он так и не вернулся. Было сообщено, что Шенкер не может продолжать концерт, из-за своего «плохого состояния». Подобное поведение известного своим вздорным характером гитариста не понравилось и басисту его группы Rev Jones: «Я хочу извиниться перед фэнами группы в Японии и Таиланде. Не могу представить, как плохо играл Шенкер. Мы выдавали 110 процентов, а Майкл не играл и на 1 процент своих возможностей. Ещё раз хочу извиниться за нас всех, потому что Шенкер никогда не извиниться сам. У нас осталось ещё два концерта и ВСЁ КОНЧИТСЯ». Напомним, что Шенкер отменил недавно и тур по США, из-за разногласий с вокалистом Jari Tiura. Правда потом господин Шенкер помирился с Яри, который продолжает сопровождать «супер-гитариста» по миру. </P>
+Автор: Vit Belov
+
+### 06.06.2007 news Anneke покинула THE GATHERING!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Многолетняя вокалистка и лицо <STRONG>THE GATHERING Anneke van Giersbergen</STRONG> покинула группу, чтобы сконцентрироваться на других формах музыки. Певица после долгих раздумий решила поменять свою жизнь. <STRONG>Anneke</STRONG> покинет <STRONG>THE GATHERING</STRONG> в августе этого года, но группа решила продолжить своё существование с новой вокалисткой. Новая работа выйдет в 2008 году, на ней будет присутствовать, как женский, так и мужской вокалы. Кроме этого, в этом году выйдет новое концертное DVD.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем <STRONG>Anneke</STRONG> объявила о создании новой группы <STRONG>AGUA DE ANNIQUE</STRONG>. Оказалось, что певица записывала песни для этого проекта в течение последних шести месяцев.</FONT></P>
+Автор: Vit Belov
+
+### 08.08.2007 news Дебют Anneke...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебют проекта бывшей вокалистки <STRONG>THE GATHERING</STRONG> <STRONG>Anneke van Giersbergen AGUA DE ANNIQUE "Air"&nbsp;</STRONG>выйдет 10 октября на американской <STRONG>The End Records</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 05.09.2007 news &quot;Последний&quot; релиз THE GATHERING
+
+<P>31&nbsp;октября выходит новый&nbsp;2CD/2DVD&nbsp;альбом <STRONG>THE GATHERING</STRONG> -&nbsp;последний релиз с бывшей вокалисткой&nbsp;<STRONG>Anneke</STRONG>.&nbsp;Трэк-лист:</P>
+<P>DVD 1 (live concert recorded in DTS 5.1, at the Teatro Caupolicon in Santiago, Chile on March 24, 2007): <BR>01. <B>Shortest Day</B> <BR>02. <B>In Between</B><BR>03. <B>Liberty Bell</B> <BR>04. <B>Probably Built In The Fifties</B> <BR>05. <B>Even The Spirits Are Afraid</B> <BR>06. <B>Saturnine</B> <BR>07. <B>Monsters</B> <BR><IMG height=200 alt="" hspace=0 src="/images/news_rus/2007.09/11867.jpg" width=150 align=right border=5>08. <B>Alone</B> <BR>09. <B>A Noise Severe</B> <BR>10. <B>Leaves</B> <BR>11. <B>Eleanor</B> <BR>12. <B>In Motion #I</B> <BR>13. <B>Waking Hour</B> <BR>14. <B>On Most Surfaces</B> <BR>15. <B>Strange Machines</B> <BR>16. <B>Adrenaline</B> <BR>17. <B>Third Chance</B> <BR>18. <B>Black Light District</B> <BR>19. <B>Travel</B> <BR><BR>DVD 2 (bonus material): <BR>* Home-made a film about the studio album <B>"Home"</B> <BR>* The three winning videos of the <B>"Alone"</B> contest <BR>* <B>"Forgotten"</B> video<BR>* <B>"Box"</B> and <B>"Waking Hour"</B> projection clip <BR>* <B>Edison "Thank You"</B> videoclip <BR>* The making of <B>"A Noise Severe"</B>&nbsp;&nbsp;</P>
+<P><STRONG>Anneke</STRONG>, тем временем, подрядилась спеть на новом альбоме <STRONG>AYREON</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.01.2008 news THE GATHERING на 10 дисках!
+
+<P><STRONG>Century Media</STRONG> переиздадут все альбомы<STRONG> THE GATHERING</STRONG>, которые выходили под их значком. Все материалы уместились на 10 (!!!)&nbsp;дисков. Именно в таком виде и увидит свет это специальное издание.</P>
+Автор: Vit Belov
+
+### 23.12.2008 news THE GATHERING в апреле
+
+<P>Новый альбом <STRONG>THE GATHERING</STRONG> выйдет в апреле 2009 года на собственном лэйбле музыкантов <STRONG>Psychonaut Records</STRONG>. Пластинка будет называться <STRONG>'The West Pole'</STRONG>. Интересно, что группа не сообщает имени новой вокалистки, но уже известно, что помимо этой неизвестной дамы в записи альбома приняли участия две приглашённых певицы.</P>
+Автор: Vit Belov
+
+### 11.02.2009 news THE GATHERING сводят альбом
+
+<P><STRONG>THE GATHERING</STRONG> сводят новый альбом <STRONG>'The West Pole'</STRONG>. Группа перенесла дату релиза на первую недлю мая. На сайте диск можно будет заказать уже в конце марта, и он будет выслан в апреле. Позже группа объявит имена вокалистов, которые помогали работать над юбилейной пластинкой. Названия песен:</P>
+<P>* <B itxtvisited="1">When Trust Becomes Sound</B><BR itxtvisited="1">* <B itxtvisited="1">Treasure</B><BR itxtvisited="1">* <B itxtvisited="1">All You Are</B><BR itxtvisited="1">* <B itxtvisited="1">You Promised Me A Symphony</B><BR itxtvisited="1">* <B itxtvisited="1">The West Pole</B><BR itxtvisited="1">* <B itxtvisited="1">Capital Of Nowhere</B><BR itxtvisited="1">* <B itxtvisited="1">No Bird Call</B><BR itxtvisited="1">* <B itxtvisited="1">Pale Traces</B><BR itxtvisited="1">* <B itxtvisited="1">No One Spoke</B><BR itxtvisited="1">* <B itxtvisited="1">Constant Run</B></P>
+Автор: Vit Belov
+
+### 12.03.2009 news THE GATHERING выбрали девушку
+
+<P><IMG height=367 alt="" hspace=0 src="/images/news_rus/2009.03/13731.jpg" width=250 align=right border=5>Голландцы<STRONG> THE GATHERING</STRONG> назвали имя новой вокалистки. Новой певицей стала&nbsp;девушка из <STRONG>OCTAVIA SPERATI</STRONG> <STRONG>Silje Wergeland. </STRONG>На новом альбоме "<STRONG>The West Pole</STRONG>" споют также две приглашённые певицы <STRONG>Anne van den Hoogen</STRONG> и <STRONG>Marcela Bovio</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">When Trust Becomes Sound</B><BR itxtvisited="1">02. <B itxtvisited="1">Treasure</B><BR itxtvisited="1">03. <B itxtvisited="1">All You Are</B><BR itxtvisited="1">04. <B itxtvisited="1">You Promised Me A Symphony</B><BR itxtvisited="1">05. <B itxtvisited="1">The West Pole</B><BR itxtvisited="1">06. <B itxtvisited="1">Capital Of Nowhere</B><BR itxtvisited="1">07. <B itxtvisited="1">No Bird Call</B><BR itxtvisited="1">08. <B itxtvisited="1">Pale Traces</B><BR itxtvisited="1">09. <B itxtvisited="1">No One Spoke</B><BR itxtvisited="1">10. <B itxtvisited="1">Constant Run</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 14.03.2009 news THE GATHERING выйдет после праздника труда
+
+<P><STRONG>THE GATHERING</STRONG> наконец-то определились с датой выхода первого после ухода<STRONG> Anneke</STRONG> альбома группы "<STRONG>The West Pole</STRONG>". Диск увидит свет на собственном лэйбле коллектива <STRONG>Psychonaut Records </STRONG>4 мая.</P>
+Автор: Vit Belov
+
+### 14.07.2009 news Новое видео THE GATHERING
+
+<P>"<STRONG>All You Are</STRONG>" - новое видео <STRONG>THE GATHERING</STRONG> можно посмотреть ниже. В клипе использованы фрагменты выступления коллектива на фестивале <STRONG>Graspop</STRONG> этого года.</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Qw6gUhmt87w&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Qw6gUhmt87w&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 27.08.2009 news Совместный концертник Anneke и Danny
+
+<P><IMG height=356 alt="" hspace=0 src="/images/news_rus/2009.08/14937.jpg" width=400 align=right border=5>10 сентября на <STRONG>Angelic Recordings</STRONG> выйдет совместный концертный альбом бывшей вокалистки <STRONG>THE GATHERING</STRONG> <STRONG>Anneke van Giersbergen</STRONG>&nbsp;и участника <STRONG>ANATHEMA</STRONG> <STRONG>Danny Cavanagh. </STRONG>Альбом был записан в марте 2009 года и на него попали песни из творчества обоих музыкантов. Трэк-лист:</P>
+<P>01. <B>Teardrop</B><BR>02. <B>You Learn About It</B><BR>03. <B>Temporary Peace</B><BR>04. <B>Yalin</B><BR>05. <B>Songbird</B><BR>06. <B>Big Love</B><BR>07. <B>The Blower's Daughter</B><BR>08. <B>One Last Goodbye</B><BR>09. <B>Are You There?</B><BR>10. <B>Day After Yesterday</B><BR>11. <B>A Natural Disaster</B><BR>12. <B>Lost and Found</B><BR>13. <B>Flying</B><BR>14. <B>Jolene</B></P>
+Автор: Vit Belov
+
+### 04.01.2010 news Новое видео THE GATHERING
+
+<P>Новый клип <STRONG>THE GATHERING</STRONG> на песню <STRONG>"No Bird Call" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/alUdIFc8fb0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/alUdIFc8fb0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.06.2011 news Новый клип THE GATHERING
+
+<P>Новое видео <STRONG>THE GATHERING</STRONG> на песню <STRONG>"Heroes For Ghosts" </STRONG>можно посмотреть ниже. Клип был снят в Норвегии режиссёром <STRONG>Marcus Moonen</STRONG>. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/6m-zhD8Qh9w?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/6m-zhD8Qh9w?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.01.2012 news THE GATHERING выйдет в сентябре
+
+<P>Голландцы <STRONG>THE GATHERING</STRONG> работают над новым альбомом. В мае выйдет сингл с этой работа, сама же пластинка появится в магазинах в сентябре. Клип на 11-минутный трек "<STRONG>Heroes For Ghosts</STRONG>" с этого альбома можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/6m-zhD8Qh9w?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 30.05.2012 news Новый альбом THE GATHERING
+
+<P>12 сентября выйдет новый альбом голландцев<STRONG> THE GATHERING</STRONG> <STRONG>"Disclosure". </STRONG>Пластинка вновь увидит свет на собственном лэйбле музыкантов <STRONG>Psychonaut Records</STRONG>. Трек-лист:</P>
+<P>01. <B>Paper Waves</B><BR>02. <B>Meltdown</B><BR>03. <B>Gemini I</B><BR>04. <B>Heroes For Ghosts</B><BR>05. <B>Missing Seasons</B><BR>06. <B>See For Miles</B><BR>07. <B>Paralyzed</B><BR>08. <B>Gemini II</B></P>
+<P><center><iframe width="400" height="100" style="position: relative; display: block; width: 400px; height: 100px;" src="http://bandcamp.com/EmbeddedPlayer/v=2/track=4083575747/size=venti/bgcol=FFFFFF/linkcol=4285BB/" allowtransparency="true" frameborder="0"><a href="http://thegathering.bandcamp.com/track/meltdown">Meltdown by The Gathering</a></iframe>
+</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### The Gathering

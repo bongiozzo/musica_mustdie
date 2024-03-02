@@ -22,6 +22,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.08.2012 news Новый альбом ВИКОНТ вышел!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit1><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.08/24615.jpg" width=450 height=452>MUSICA Production представляет</FONT></SPAN></FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><SPAN class=tit3><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>MP60 ВИКОНТ "Не Покоряйся Судьбе"</FONT></SPAN></SPAN></FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>-power-metal; Новый альбом быстро набирающей обороты heavy-power-metal группы из Перми <STRONG>ВИКОНТ "Не Покоряйся Судьбе".</STRONG> Великолепный материал для всех поклонников <STRONG>АРИЯ</STRONG> и <STRONG>ЭПИДЕМИЯ</STRONG>. В записи пластинки принял участие <STRONG>Дмитрий Борисенков (ЧЁРНЫЙ ОБЕЛИСК)</STRONG>. Запись: <STRONG>Gigant Record</STRONG>, студия <STRONG>Чёрный Обелиск</STRONG>. Сведение и мастеринг: <STRONG>Евгений Виноградов</STRONG> и <STRONG>Сергей Терентьев</STRONG>. Великолепный 24-страничный буклет с иллюстрациями знаменитого <STRONG>Лео Хао</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Гнев Аскета</STRONG> 07:04<BR>2. <STRONG>С Нами Хеви-Металл</STRONG> 04:35<BR>3. <STRONG>Манфред</STRONG> 05:58<BR>4. <STRONG>Разбуди Зверя</STRONG> 05:44<BR>5. <STRONG>Ведьма</STRONG> 06:12<BR>6. <STRONG>Сделаны из Стали и Огня</STRONG> 06:22<BR>7. <STRONG>Крадущийся за Душой</STRONG> 05:38<BR>8. <STRONG>Гордый Король</STRONG> 06:46<BR>9. <STRONG>Костры</STRONG> 05:55<BR>10. <STRONG>Откровение </STRONG>06:36<BR>11. <STRONG>Нужно Проснуться</STRONG> 09:38</P>
+<P>Дата релиза: 13 августа. Уже с 10 августа альбом можно приобрести на Горбушке, на точке лэйбла <STRONG>MUSICA Production</STRONG>: B2-230 (ТЦ Горбушкин Двор, м. Багратионовская).</P>
+<P>Диск доступен в нашем интернет-магазине по специальной цене 160 рублей: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P>Диск таже доступен в новом магазине: <A href="http://escapemind.ru">http://escapemind.ru</A> с дополнительной скидкой 3 процента.</P>
+<P>Сайт группы: <A href="http://www.vikont.pro/">http://www.vikont.pro</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<P>Две песни можно послушать на канале <STRONG>YouTube</STRONG>: <A href="https://www.youtube.com/user/MusicaMustdieProd?feature=watch">https://www.youtube.com/user/MusicaMustdieProd?feature=watch</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -70,6 +70,28 @@ The limited digipak edition will include the bonus song "Aphelion Aura" (09:01).
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.12.2002 reviews Chile&#39;s finest doom metal
+
+<p>“The following lines have the purpose of clearing up to you all the factors that involved the recording process so you can judge it taking these factors in count. To record the instrumentation of CD were rented 3 hours in a studio and paid around 36 dollars for this process. The sound technician had not heard the songs before, so we spent one hour and a half doing a soundcheck and reviewing the songs. The recording process took the other hour and a half and was done line in one stereo track, as in a rehearsal. To record the voices of tracks one “Storm” and two “Recklessness” we did it in our computer using the Cool Edit Pro program. We added some voices and noises that were mixed down with the instrumentation. The tracks three “Mar De Grises” and four “For Just An Eternity” were recorded live in the same studio where we recorded the instrumentation in play back form under the supervision of the same technician. The band has an amateur knowledge of the Cool Edit Pro program, that is why we went to record the other tracks in the studio paying another 30 dollars for this process. Finally the songs were remastered by Victor Trujillo who's a friend that has an amateur knowledge in music programs. Because the recording is not completely professional we recommend to hear the CD under the following instructions: a high volume level, in a good stereo, equalize the stereo any of the instruments can not be heard clearly”. Excuse me for making you read this – pretty long – statement. I just thought I had to quote these words, because I was sort of shocked when I finally gave this CD a listen. Do you think the sound quality's horrible? Well, I _did_ think. Or what else am I supposed to think? Nevertheless – no, the production isn't really horrible. It's not even mediocre. It's FUCKING GREAT. Apparently, none of the songs this CD comes with, make you assume it was executed at Fredman or Morrisound. No. However, it's still very-very good. So was this a joke or what? No answer. And it doesn't really matter afterall. Since this is a music review in a music magazine, let's speak about music for a while. ;-) And it's doubtlessly worth being discussed. Chile's (!) MAR DE GRISES isn't your regular pseudo-sympho-pseudo-black-pseudo-metal thing, nor it is a muffled South America's death metal. It's doom. Do I hear someone saying: ‘True doom’? Well, perhaps. It's hellishly slow, it's dismal yet somewhat melancholic. The atmosphere it forces is beyond any description. And what's most important: it doesn't sound similar to anyone else. Comparisons? Sorry, none. This is the kind of CD which should be listened to, not reviewed. And in case you haven't read the first part of this review: ‘top quality’ is what must come to your mind once you hear these three words… ‘Mar de Grises’. Excellent.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 19.01.2006 reviews Doom de Chile
+
+<P>Знаете, совершенно неудивительно, что спецы по дум-металу Firebox подписали на своем лэйбле эту команду из Чили (!). Пожалуй, музыку этого квинтета просто думом-то и не назовешь, скорее, это прогрессив-дум, ибо южноамериканцы обогащают свой материал заходами в дэт, амбиент, готику, прогрессив и еще черт знает куда. Безусловно, любителям мелодичных и скоростных вещей тут ловить нечего, всё очень медленно, тяжело и напряженно. Чилийцы не ограничиваются низкими гудящими гитарами и монотонными клавишами, вокалист легко переходит с дэт-рыка на чистый, но хрипловатый вокал, зачастую прям-таки пугающий нотками безысходности и необъяснимой тревоги. Здесь, пожалуй, нет суицидальности фьюнерал-дума, но есть бесконечные грусть (совсем не светлая) и встревоженность, которые, однако, переданы без типичного эмоционального надрыва; они, скорее, инертны и пассивны, но, тем не менее, глубоко вкрадываются в душу, оставляя там ростки неуверенности и, опять-таки, непонятной тревоги. Такое настроение подчеркивает как бы вдруг появляющееся фортепиано, звучащее порой как в классической музыке (как, например, в 'Self Portrait No 1'). Подобная музыка могла, скорее, происходить из северных европейских стран или из туманного Альбиона, а не от горячих южноамериканских парней. Безусловно, своим дебютом Mar De Grises сделали серьезную заявку на вхождение в первый эшелон думовых команд, и будем надеяться, что с помощью лэйбла Firebox им удастся завоевать симпатии любителей подобной музыки и далеко за пределами родной страны.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 09.03.2008 news MAR DE GRISES в апреле
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Чилийская doom-metal&nbsp;команда <STRONG>MAR DE GRISES</STRONG>&nbsp;выпускает новый альбом&nbsp;<STRONG>"Draining the Waterheart"</STRONG> 14&nbsp;апреля на&nbsp;<STRONG>Firebox</STRONG>.&nbsp;Сэмплы с этого альбома можно послушать на официальной&nbsp;<STRONG>MySpace</STRONG> страничке группы. Трэк-лист:</FONT></P>
+<P>01. <B>Sleep Just One Dawn</B><BR>02. <B>Killometros De Nada</B><BR>03. <B>Deep-Seeded Hope Avant-Garde</B><BR>04. <B>Fantasa</B><BR>05. <B>Wooden Woodpecker Conversion</B><BR>06. <B>One Possessed</B><BR>07. <B>Summon Me</B><BR>08. <B>Liturgia; Convite Y PrefiguraciЁ®n/Purgatorio/DiЁўlogo Infierno</B></P>
+<P>Ссылка: <A href="http://www.myspace.com/mardegrises2">http://www.myspace.com/mardegrises2</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

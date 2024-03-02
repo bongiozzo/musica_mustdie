@@ -146,6 +146,137 @@ Produced, arranged & engineered by Steve Vai & John Kalodner.
 
 * C группой "Malmsteen, Yngwie" Randy Coven
 
+## Публикации
+
+### 01.08.1999 news 
+
+<p>Steve vai выпустил новый альбом в июле.</p>
+
+Автор: Vit Belov
+
+### 29.09.2000 reviews Steve Vai&#39;s first album
+
+<p>Хорошо что перед тем как слушать альбом я заглянул во вкладыш - оценка могла бы быть намного ниже. Так вот это первый сольный альбом Вэя (причем записанный в домашней студии и самопродюссированный!) и если вы только начинаете знакомиться с этим гитаристом, то советую начать хотя-бы с "Passion And Warfare" (только не с "Flexable"!). Впечатление будет совершенно неправильное. Конечно здесь уже проглядывает почерк мастера (треки Viv Woman, The Attitude и Song Call It Sleep), но в целом все выглядит как очень экспериментальное (и записанное на кухне!) НЕЧТО наподобие квартирных концертов раннего "Аквариума". Оценка с учетом новаторства 5/10. Все лучшее у Стиви впереди.</p>
+
+Автор: Yermola
+
+### 29.09.2000 news Новый альбом Стиви Вэя!!!
+
+<p>По сообщению официального сайта Стиви 7 ноября сего года Epic Records планирует выпуск нового альбома. Релиз будет называться "The 7th Song". Track listing: 1)For the Love of God 2)Touching Tongues 3)Windows to the Soul 4)Burning Down the Mountain 5)Tender Surrender 6)Hand On Heart 7)Melissa's Garden 8)Call It Sleep 9)Christmas Time Is Here 10)The Wall of Light 11)Boston Rain Melody</p>
+
+Автор: Yermola
+
+### 12.06.2001 news Первый живой двойник Стиви Вэя....
+
+<p>Демонический Стив Вэй - соперник "страстного мальчика" в фильме "Перекресток", 19 Июня выпускает двойной живой альбом. "Alive In The Ultra World" был сочинен и записан во время его "Ultra Zone" тура по 32 странам. Вэй постарался передать дух и культуру этих стран, для чего ему пришлось прослушать более 150 альбомов этнической музыки и сыграть 104 концерта.</p>
+
+Автор: Yermola
+
+### 12.06.2001 news STEVE VAI&#39;s first double live album....
+
+<p>STEVE VAI's first double live album, due out on June 19th, was written, rehearsed and recorded during his 32-country Ultra Zone tour. Alive In The Ultra World features compositions created specifically to reflect elements of the traditional music of the cultures VAI visited. He researched over 150 ethnic albums and played 104 shows to make the album. Included are songs for Poland, Spain, Ireland and Bulgaria, written and recorded in Greece, Argentina and Turkey. According to VAI, each song is a reflection of his great appreciation and good fortune for being able to visit and embrace the cultures. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.08.2001 news Мистер Большой уволен из собственной группы...
+
+<p>По сообщению журнала "Metal Edge" бассист Billy Sheehan уволен из состава "MR. BIG", команды которую он, в-общем то и основал. По словам барабанщика Pat Torpey это произошло после завершения работы над видео-клипом к песне "Shine" - синглу с недавно вышедшего альбома "Actual Size". Шихан не делал секрета из того факта, что ему не нравится поп-рок направление выбранное группой в последнее время, но он все же собирался участвовать в туре в поодержку альбома. Сейчас же, Билли решил принять участие в G3 show (совместно со Стиви Вайем), которое пройдет 21-го сентября в Мехико с последующими гастролями с супер-гитаристом по Европе в ноябре.</p>
+
+Автор: Yermola
+
+### 16.08.2001 news Billy Sheehan was fired from MR. BIG!!!
+
+<p>Bassist Billy Sheehan was fired from MR. BIG, a band he co-founded, via an answering machine message left by drummer Pat Torpey shortly after the completion of the video for "Shine", the first single from the just-released (in Asia only) Actual Size CD. According to the report, Sheehan had made no secret of the fact that he was unhappy with the band's increasingly pop direction and his lack of inclusion in the songwriting for the album, but he was prepared to promote the CD by accompanying the rest of the group on tour. In other news, Sheehan will join Steve Vai for a G3 show (with a second on hold) in Mexico City, Mexico on September 21st, to be followed by a full European tour with Vai in November. Source: Metal Edge magazine.</p>
+
+Автор: Yermola
+
+### 21.11.2001 news Virtuosos Steve Vai and Billy Sheehan Reunite for Tour...
+
+<p>Billy joins Steve Vai on tour. Eric Sardinas will be the opening act on the European Dates:<BR><BR> 11/20 - Modena, Italy (Vox)<BR> 11/21 - Milan, Italy (Alcatraz)<BR> 11/23 - Madrid, Spain (La Rivera)<BR> 11/24 - Pamplona, Spain (Sala Gares)<BR> 11/25 - Barcelona, Spain (Razzmatazz)<BR> 11/26 - TBA<BR> 11/27 - Marseille, France (Le Moulin)<BR> 11/28 - Stuttgart, Germany (Longhorn)<BR> 11/29 - Bochum, Germany (Zeche)<BR> 11/30 - Paris, France (Elysee Montmartre)<BR><BR> 12/02 - Amsterdam, Holland (Heineken Music Hall) This show is titled A Night of the Guitar - A Tribute to Jimi Hendrix. Performers include Steve Vai, Eric Sardinas and Steve Lukather.<BR><BR> 12/03 - Brussels, Belgium (Ancienne Belgique)<BR> 12/04 - Manchester, England (Apollo)<BR> 12/05 - Wolverhampton, England (Civic)<BR> 12/06 - London, England (Astoria)<BR> 12/07 - London, England (Astoria)<BR> 12/09 - Dublin, Ireland (Vicar Street)<BR> 12/10 - Dublin, Ireland (Vicar Street)<BR> 12/12 - Hamburg, Germany (Fabrik)<BR> 12/13 - Cologne, Germany (Live Music Hall)<BR> 12/14 - Munich, Germany (Babylon)<BR> 12/15 - Vienna, Austria(Bank Halle)<BR><BR> For ticket info, visit ticketmaster.</p>
+
+Автор: Yermola
+
+### 21.11.2001 news Двухголовый гитарный монстр...
+
+<p>Так авторитетный журнал "Guitar World" назвал дуэт Стив Вай + Билли Шихан, объединившийся для совместных осенних гастролей, после супер-успешного летнего G3 Tour. Сейчас два бога семи и четырех струнных гитар отправляются в поездку по Европе. Концерты пройдут в Италии, Испании, Франции, Германии, Голландии, Бельгии, Австрии и Англии... Более подробно см. <A HREF="http://musica.mustdie.ru/en/index/">английскую часть сайта. </A></p>
+
+Автор: Yermola
+
+### 11.01.2003 news Steve Vai compilation...
+
+<p>STEVE VAI is in the process of finalizing the licensing agreements for the next installments of "The Secret Jewel Box Set - Archives Vol. 3 and Vol. 4". These two discs compile all the music Steve has contributed to other projects and records, and include the often-elusive bonus tracks appearing on Japanese releases. Also included are the "In From the Storm" Jimi Hendrix tribute performances with the London Symphony Orchestra, "Queen of the Night" from "Angelica", the track "The Rumble" from "Songs of West Side Story" with Chick Corea, plus a lot more.</p>
+<P> The complete track listing for the two discs is as follows:</>
+<P> "Archives Vol. 3"</>
+<P> 01. Speed<BR> 02. Rumble <BR> 03. Queen of the Night<BR> 04. Western Vacation<BR> 05. Dirty Love <BR> 06. Can't Afford No Shoes<BR> 07. I Promise Not To Cum In Your Mouth<BR> 08. Let it Go <BR> 09. Funk Me Tender<BR> 10. Axis, Bold As Love<BR> 11. Drifting <BR> 12. Feed My Frankenstein<BR> 13. SuperGirl</>
+<P> "Archives Vol. 4"</>
+<P> 01. Just Cartilage<BR> 02. The Murder<BR> 03. San San Na Na Bioshi<BR> 04. Selfless Love<BR> 05. Maple Leafs<BR> 06. Fool For Your Lovin' (Vai Voltage Mix)<BR> 07. Sofa<BR> 08. Rise<BR> 09. Ease<BR> 10. Home<BR> 11. Autumn in Nepal<BR> 12. There's Still Hope<BR> 13. Sweet Lady Luck</>
+
+Автор: Vit Belov
+
+### 11.01.2003 news Компиляция Steve Vai
+
+<p>Steve Vai заканчивает подготовку к выпуску очередной своей компиляции "The Secret Jewel Box Set - Archives Vol. 3 and Vol. 4". На двух компактах будут собраны вещи, которые Стив записывал для других проектов и японские бонуса. В частности, 'In from The Storm' с tribute to Jimi Hendrix с участием Лондонского симфонического оркестра и многое другое, трэк-лист ниже...</p>
+<P> "Archives Vol. 3"</>
+<P> 01. Speed<BR> 02. Rumble <BR> 03. Queen of the Night<BR> 04. Western Vacation<BR> 05. Dirty Love <BR> 06. Can't Afford No Shoes<BR> 07. I Promise Not To Cum In Your Mouth<BR> 08. Let it Go <BR> 09. Funk Me Tender<BR> 10. Axis, Bold As Love<BR> 11. Drifting <BR> 12. Feed My Frankenstein<BR> 13. SuperGirl</>
+<P> "Archives Vol. 4"</>
+<P> 01. Just Cartilage<BR> 02. The Murder<BR> 03. San San Na Na Bioshi<BR> 04. Selfless Love<BR> 05. Maple Leafs<BR> 06. Fool For Your Lovin' (Vai Voltage Mix)<BR> 07. Sofa<BR> 08. Rise<BR> 09. Ease<BR> 10. Home<BR> 11. Autumn in Nepal<BR> 12. There's Still Hope<BR> 13. Sweet Lady Luck</>
+
+Автор: Vit Belov
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 24.07.2012 news Steve Vai: &quot;The Story Of Light&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24430.jpg" width=400 height=400>Виртуоз гитары и композотор <STRONG>Steve Vai</STRONG> выпускает свой новый сольный диск.<STRONG> </STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"The Story Of Light"</STRONG>, такое название получило новое творение маэстро, которое выйдет 14 августа на собственном лейбле музыканта,<STRONG> Favored Nations Entertainment</STRONG>, основанного им в 1999 году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"The Story Of Light" </STRONG>будет содержать 12 композиций, которые продолжат концепцию, начатую артистом&nbsp;ещё&nbsp;на прошлом альбоме 2005 года, <STRONG>"Real Illusions: Reflections"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Хотя <STRONG>"The Story Of Light" </STRONG>в основном инструментальный альбом, на нём всё же будут два трека с&nbsp;гостевым&nbsp;вокалом - <STRONG>"No More Amsterdam"</STRONG>, на котором дуэтом с гитаристом споёт <STRONG>Aimee Mann</STRONG> и<STRONG> "John the Revelator"</STRONG>, где вы сможете услышать финалиста первого сезона тв-шоу <STRONG>"The Voice"</STRONG> - <STRONG>Beverly McClellan</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 09.08.2012 articles G3: JOE SATRIANI, STEVE VAI, STEVE MORSE в Москве
+
+<P><STRONG>5 августа 2012 г., Москва, Крокус Сити Холл</STRONG></P>
+<P>В том, что недостатка поклонников классического рока в нашей отчизне не наблюдается, сомневаться не приходится. Лишним тому подтверждением стал прошедший 5 августа в столичном "<STRONG>Crocus City Hall"</STRONG> концерте трёх американских гитаристов, которые и по отдельности-то могут полные концертные площадки собирать (особенно конечно Вай и Сатриани), а уж когда они приезжают в рамках одного концерта – точно жди аншлага! Вот и на этот раз очереди, чтобы пройти внутрь <STRONG>"Крокуса"</STRONG>, стояли ещё на улице. На недавнем концерте легендарных блюз-рокеров <STRONG>ZZ TOP</STRONG>, например, такого ажиотажа не наблюдалось. А вот на концерте <STRONG>G3</STRONG> был аншлаг. Многие приходили семьями, да и молодых лиц в зале много мелькало.</P>
+<P>Концерт начался без особых опозданий. Открывала его группа действующего гитариста&nbsp;<STRONG>DEEP PURPLE</STRONG>&nbsp;Стива Морса, который без лишних формальностей приступил к исполнению своих инструментальных композиций. Отмечу аскетичность его аккомпанирующего состава: только бас и барабаны. Впрочем, понятно, что ритм-секция у такого заслуженного гитариста вряд ли подкачает, так что звучала группа весьма целостно. Как стало ясно в течение концерта, Морс держится на сцене куда скромнее своих коллег по шоу <STRONG>G3</STRONG>, особенно по сравнению с Ваем, не так сильно злоупотребляет необычными гитарными тембрами и эффектными приёмами. Тем не менее, несмотря на меньший, чем у его коллег, «элемент шоу» в выступлении, Морс не перестаёт удивлять поистине волшебным владением гитарой. Красивый номер на акустической гитаре – <STRONG>"Baroque ‘n Dreams"</STRONG>, выполненный в духе классической музыки, он посвятил памяти своего недавно скончавшегося коллеги по группе <STRONG>DEEP PURPLE</STRONG> Джона Лорда.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.08/24610.jpg" width=550 height=364> 
+<P></P>
+<P>Далее последовало то, что менее всего ожидаешь на рок-концерте: антракт! Всего за концерт их будет два. После не очень долгих приготовлений на сцену выходит ещё одна легенда гитары – Стив Вай со своей группой. В отличие от состава Морса, коллектив Стива Вая насчитывает кроме ритм-секции ещё и дополнительного гитариста, а также клавишника, которого, впрочем, можно будет увидеть и в составе группы Джо Сатриани чуть позже. Отдельно отмечу афроамериканцев, составляющих ритм-секцию Вая:&nbsp; играли они как-то не по-нашему мощно и очень драйвово! Что же до самого господина Вая, то это, конечно же, настоящий кудесник: то, что он вытворяет с гитарой надо видеть воочию, ибо словами это не описать: такого колоссального набора разнообразных технических приемов, кажется, нет ни у одного другого гитариста в мире. Так, например, Вай в очередной раз заставил свою гитару разговаривать! Стив сыграл 7 своих, достаточно известных, инструментальных хитов. Он весело общался с публикой между песнями, вспоминал, что это его третий концерт в России, и со времён его первого визита тут много чего изменилось в лучшую сторону.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.08/24611.jpg" width=550 height=367> 
+<P></P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.08/24612.jpg" width=550 height=364> 
+<P></P>
+<P>После второго антракта на сцену выходит некогда учитель Стива Вая – Джо Сатриани, в своих неизменных тёмных очках. Также как и Вай, он играет много своих известных инструменталок, так что публике скучать&nbsp; не приходится. Джо тоже весьма бодро общается с публикой между музыкальными номерами, рассказывает, что его коллеги Морс и Вай – на самом деле люди очень скромные. Впрочем, никакая скромность не помешала им выйти всем вместе на совместный джэм-сейшн, последовавший после сета Сатриани. На джэмах обычно приятно играть что-то из классики рока, вот и сейчас первой песней была знаменитая <STRONG>"You Really Got Me"</STRONG> группы <STRONG>KINKS</STRONG>, песня, когда-то ставшая предсветсницей панк-рока. Спел её Стив Вай, а вот соло, по очереди играли все трое гитаристов: кто кого переиграет.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.08/24613.jpg" width=550 height=364> 
+<P></P>
+<P>По&nbsp;давней&nbsp;традиции, на последнем концерте ("зелёный концерт")&nbsp;тура, технический персонал обслуживающий музыкантов, преподносит им какой-нибудь сюрприз. Так как концерт в Москве как раз стал для Морса, Вая и Сатриани завершающим их текущее турне, то их техники решили для хохмы выйти на сцену прямо во время исполнения очередной&nbsp;из&nbsp;песен и&nbsp;устроить там небольшой пикник – с вином и закусками! Такая шутка удивила не только музыкантов, но и зрителей, а Джо Сатриани даже на какое время присел на ногу одного их техников, впоследствии признавшись, что делает это в первый и последний раз.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.08/24614.jpg" width=550 height=367> 
+<P></P>
+<P>Прозвучала песня <STRONG>"In The White Room"</STRONG> другой не менее легендарной группы из 60-х - <STRONG>CREAM</STRONG>. Спели её клавишник и басист из группы Сатриани. Ну и завершился концерт знаменитой янговской <STRONG>"Keep On Rocking In The Free World"</STRONG>. Концерт из трёх отделений (а это, на минуточку – почти четыре часа музыки!) пролетел как один миг, что ж – будем надеяться что «могучая гитарная тройка» заглянет к нам ещё не раз!</P>
+<P>Больше фотографий&nbsp;с концерта: <A href="/ru/galleries/1/1044/">http://musica.mustdie.ru/ru/galleries/1/1044/</A></P>
+<P>Текст: <EM>Алексей Виноградов</EM></P>
+<P>Фотографии: <EM>Екатерина Гучок</EM></P></CENTER></CENTER></CENTER></CENTER></CENTER>
+Автор: Headcrusher
+
+### 31.07.2016 news APOCALYPTICA встретились с журналистами
+
+<p>Сегодня в ТАСС состоялась пресс-конференция с участием финской группы<strong> APOCALYPTICA</strong>, посвящённая предстоящему выступлению группы на фестивале <strong>"Вдохновение 2016</strong>" 1 августа на ВДНХ.</p><p>Фото-отчёт с этого события можно<a href="/ru/galleries/1/1766/"> посмотреть здесь.</a></p><p>Кроме<strong> APOCALYPTICA</strong> в завтрашнем шоу в <strong>Зелёном Театре</strong> на ВДНХ примет участие легендарный<strong> Steve Vai</strong>.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.07/29703.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 31.07.2016 news APOCALYPTICA in Moscow: press-conference (photo)
+
+<p>Today, Press-conference with participation of the Finnish group<strong> APOCALYPTICA</strong> held in TASS, It dedicated to the upcoming performance at the festival <strong>"Inspiration 2016</strong>" on August,1 at Moscow.</p><p>A photo report from this event can be <a href="/en/galleries/1/1766/">viewed here.</a></p><p>Legendary<strong> Steve Vai</strong> will take part in tomorrow's show at the Green Theatre at VDNKH in addition to APOCALYPTICA.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.07/29703.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -253,6 +253,305 @@ The North American/European digipack contains two bonus tracks:
 * C группой "Dimmu Borgir" Tony Laureano 
 * C группой "Angelcorpse" Tony Laureano 
 
+## Публикации
+
+### 26.03.2000 news 
+
+<p>Новый альбом Nile выйдет в июне и будет называться "Seeds Of Vengeance".</p>
+
+Автор: Vit Belov
+
+### 10.08.2000 news Новый альбом Nile
+
+<p>"Black Seeds Of Vengeance" - так будет называтся новый альбом Nile, выход которого запланирован на начало сентября. Альбом будет доступен на CD, CS а также на LP, который будет выпущен ограниченным тиражом.</p>
+
+Автор: Phantom Lord
+
+### 31.01.2001 reviews Nile -  гении антимузыки
+
+<p>Выдающееся произведение уничтожения музыки. Кошмарней антимузыки в природе не существует.</p>
+<p> Есть красивая средневековая легенда, двигавшая сотнями музыкантов - якобы существует тайная гармония, найти и сыграть которую означает уничтожить мир в мгновение ока. Очевидно, этими поисками и занята группа NILE.</p>
+<p> Рецепт их смертоносной "заварки" - безумно высокая скорость исполнения плюс очень низкий гитарный строй (примерно в "си"). В итоге скоростная молотилка переходит в новое качество - слитное давление урагана. И на первый план, как ни странно, выходят гармонии, лежащие в основе песен. А строятся таковые на восточной пентатонике. И это варево начинает гипнотизировать слушателя.</p>
+<p> Музыка NILE не трогает струн души, потому как настроена она ниже. И цепляет именно за выступы подсознания. И просто гипнотизирует. В текстах и оформлении группа апеллирует к древнеегипетской мифологии и ритуалам, борьбе тьмы и света, вечности зла. NILE с таким энтузиазмом и беспредельной энергией пытаются вдохнуть жизнь в умершую религию, что стирают грань времен и словно открывают путь древним кошмарам, божествам и демонам из лабиринтов небытия в реалии современности.</p>
+<p> NILE нельзя не сравнивать. Но только с явным плюсом для них. Если основатели стиля "грайндкор" NAPALM DEATH своим творчеством музыку уничтожают, то продолжатели дела NILE переводят ее просто в запредельное состояние. И оставляют абсолютно всех конкурентов далеко позади. Пожалуй, на сегодняшний день это вершина брутальной музыки - монументальное полотно уничтожения света.</p>
+<p> Замечательный подарок для всех любителей экстратяжести. Но - любителям душевного спокойствия диск противопоказан.</p>
+
+Автор: Tornado
+
+### 20.03.2001 news Chief Spires уходит из NILE
+
+<p>Chief Spires - оригинальный басист NILE уходит из состава после завершения Европейского тура. Нисмотря ни на что, оставшиеся NILE пожелали ему: "...всего лучшего в его будущих музыкальных проектах."</p>
+
+Автор: Yermola
+
+### 20.03.2001 news Chief Spires leaves NILE
+
+<p>Chief Spires, bassist of NILE, has parted ways with the critically acclaimed band upon return from their European headlining tour. Spires cites creative differences as the reason for the split and wishes to thank all the NILE fans worldwide for the years of support. NILE will soon announce a replacement and upcoming summer tour plans. NILE wishes Spires the best in any of his future musical endeavors.</p>
+
+Автор: Yermola
+
+### 20.12.2001 reviews Это NILE
+
+<p>Описать содержание этого диска крайне просто – это NILE. Нужно что-нибудь еще? <BR> Брутальный дэс-метал, замешанный на восточных ладах и отсылающий слушателя текстами, эмоциональным настроем и красками музыкальной палитры к сказкам-страшилкам из древнеегипетской мифологии.<BR> На диске представлены две первых демо-записи группы, спрос на которые, по словам музыкантов группы, все время был достаточно высок. Видимо, устав собственноручно переписывать фэнам эти демки, музыканты перепоручили дело своему лейблу. И правильно сделали. <BR> И пусть NILE здесь еще не столь брутальны и разрушительны, как на потрясающем альбоме The Black Seed Of Vengeance, но не менее оригинальны. На диске есть и скоростные штурмовые трэки The Howling of The Jinn, Black Hand Of Set, гипнотизирующая акустическая заморочка Immortality Through Art и самое музыкальное произведение NILE за всю карьеру – достаточно мелодичный хоровой распев Die Rache Krieg Lied Der Assyrriche (кстати, не плохая возможность услышать какой-то ближневосточный и мертвый язык). <BR> На сегодняшний день в брутал-дэс-метал трудно придумать что-то оригинальное. Но NILE умудрились сделать это – причем с самого начала своей карьеры. Живи Сет в наши дни, свои грехи он творил бы именно под эти звуки.</p>
+
+Автор: Tornado
+
+### 22.01.2002 news В их мрачнейших склепах....
+
+<p>Американский квартет "Nile" собирается в феврале в южно-каролинскую Soundlab Studios с продюссером Bob Moore, чтобы записать третий лонгплэй "In Their Darkened Shrines". На диск войдут: <BR><BR> "The Blessed Dead" <BR> "Execration Text" <BR> "Kheftiu Asar Butchiu" <BR> "Sarcophagus" <BR> "In Their Nighted Shrines" <BR> "Invocation To Sedetious Heresy" <BR><BR> Релиз запланирован на июль через Relapse Records....</p>
+
+Автор: Yermola
+
+### 22.01.2002 news Nile are scheduled to enter Soundlab Studios ...
+
+<p>Acclaimed death metal outfit Nile are scheduled to enter Soundlab Studios in Columbia, South Carolina with Bob Moore at the production helm in February. <BR> Currently, Nile's third long-player is under the working title In Their Darkened Shrines and features the following song titles "The Blessed Dead," "Execration Text," "Kheftiu Asar Butchiu," "Sarcophagus," "In Their Nighted Shrines" and "Invocation To Sedetious Heresy." <BR> <BR> In similar news, Nile has been hired exclusively to perform at this year's upcoming New England Metal and Hardcore Festival on April 6, 2002. According to Nile's website, www.nile-catacombs.com, the quartet may perform songs off their forthcoming In Their Darkened Shrines effort. <BR> <BR> Nile's In Their Darkened Shrines is scheduled for a July release on Relapse Records.</p>
+
+Автор: Yermola
+
+### 29.05.2002 news ARCH ENEMY w&#x2F; Nile, Hate Eternal,Origin - Tour dates
+
+<p>7/6 Cotton Club - Atlanta, GA <BR> 7/7 Clunk Music Hall - Fayetteville, AR<BR> 7/9 Sam's - San Antonio, TX<BR> 7/10 Concrete Street - Corpus Christi, TX<BR> 7/11 Cardi's - Houston, TX<BR> 7/12 Steamboat - Austin, TX<BR> 7/13 Canyon Club - Dallas, TX<BR> 7/14 Sunshine Theater - Albuquerque, NM<BR> 7/15 Bash On Ash - Phoenix, AZ<BR> 7/16 The Galaxy Theater - Santa Ana, CA<BR> 7/18 Brick By Brick - San Diego, CA<BR> 7/19 The Pound - San Francisco, CA<BR> 7/20 Meow Meow - Portland, OR<BR> 7/21 Graceland - Seattle, WA<BR> 7/23 Bluebird Theater - Denver, CO<BR> 7/24 Ranch Bowl - Omaha, NB<BR> 7/25 The Lab - St. Paul, MN<BR> 7/26 Milwaukee Auditorium - Milwaukee, WI - Metalfest<BR> 7/27 Harpo's - Detroit, MI<BR> 7/28 Agora Ballroom - Cleveland, OH<BR> 7/29 Riley's - Aurora, IL<BR> 7/30 Showplace Theater - Buffalo, NY<BR> 7/31 Birch Hill - Old Bridge, NJ<BR> 8/1 Saratoga Winners - Cohoes, NY<BR> 8/2 The Chance - Poughkeepsie, NY<BR> 8/3 The Palladium - Worcester, MA<BR> 8/4 The Trocadero - Philadelphia, PA<BR> 8/7 Jaxx - Springfield, VA<BR> 8/8 Ground Zero - Spartenburg, SC<BR> 8/11 Culture Room - Ft. Lauderdale, FL<BR></p>
+
+Автор: Yermola
+
+### 13.09.2002 news Second studio album from Norway’s’ MYRKSKOG....
+
+<p>Second studio album from Norway’s’ MYRKSKOG, who are fast becoming THE most talked about extreme metal combo on the planet after their debut “ Death Machine” grabbed and smashed everyone’s attention. Two years plus on the band have turned in one of the most highly charged and powerful heavy death/extreme metal releases in the history of extreme music.<BR><BR> From the opening salvo of “Domain Of The Superior” to “Over The Gore” the sheer speed and power of the music has to be heard to be believed, with some of the fastest and most brutal drumming ever laid down in a recording studio. With a full European Tour confirmed with Relapse favorites NILE, the time has come for MYRKSKOG to take the extreme metal crown.<BR><BR> Myrkskog tour dates:<BR><BR> NIILE - SINISTER - NO RETURN - MYRKSKOG – EKTOMORF<BR><BR> 02.10.2002. UK LONDON / MEAN FIDDLER *<BR> 03.10.2002. UK PLYMOUTH / JONGLEURS *<BR> 04.10.2002.IRL DUBLIN / EAMON DORANS *<BR> 05.10.2002. UK BRADFORD / RIO *<BR> 06.10.2002. UK MILTON KEYNES - PITZ *<BR> 08.10.2002. FR PARIS / LA LOCOMOTIVE<BR> 09.10.2002. FR AMNEVILLE / AFTER CLUB<BR> 10.10.2002. D ESSEN / ZECHE CARL<BR> 11.10.2002. NL ROTTERDAM / BAROEG<BR> 12.10.2002. BL VOSSELAAR / BIEBOB<BR> 13.10.2002. NL DEN BOSCH / WILLEM II<BR> 15.10.2002. FR MARSEILLE / MIRABEAU<BR> 16.10.2002. FR PERPIGNAN / CROCK-MORE<BR> 17.10.2002. SP IRUN / TUNK<BR> 18.10.2002. SP BARCELONA / LA CAPSA<BR> 19.10.2002. SP MADRID / RITMO & COMPAS<BR> 20.10.2002. SP MURCIA / GAMMA<BR> 21.10.2002. FR TRAVEL DAY<BR> 22.10.2002.ITA CESENA / VIDIA<BR> 23.10.2002.CH PRATELLN / Z7<BR> 24.10.2002. A VIENNA / ARENA<BR> 25.10.2002. CZ BRNO / BABYLON<BR> 26.10.2002. PL KATOWICHE / MYSTIC FESTIVAL<BR> 27.10.2002. D ZWICKAU / ALARM<BR> 28.10.2002. D BERLIN / KNAACK<BR> 29.10.2002. D HAMBURG / MARKTHALLE<BR> * ONLY NILE – SINISTER<BR><BR> In the US, Superior Massacre is slated for release September 17. Already it is causing quite a stir. Radio stations are anticipating this record as fans. "A heaving and devastating portrayal, filled with surging and crushing power that is destined to obliterate all in its path through this massive death metal pilgrimage…” says Brave Words & Bloody Knuckles! Watch out for this album may just slap you in the face if you’re not careful!</p>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 24.09.2002 news MassaBrutto Radioshow #110, 23-24 Sep 2002.
+
+<p>Playlist:<BR><BR> 1. NILE - The Blessed Dead (Relapse)<BR> 2. CEPHALIC CARNAGE - Lucid Interval (Relapse)<BR> 3. PYORRHOEA - Consume You (band)<BR><BR> рубрика "Кило-Мэтры" [CARCASS, альбом "Swansong", 1996]<BR><BR> 4. CARCASS - Keep On Rotting In The Free World (Earache)<BR> 5. CARCASS - Black Star (Earache)<BR> 6. CARCASS - Go To Hell (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Радиопремьера LUNARIS "...The Infinite"<BR><BR> 7. LUNARIS - In The Eyes Of The Heretic (Elitist/Earache/Союз)<BR> 8. LUNARIS - Arise (Elitist/Earache/Союз)<BR> 9. LUNARIS - In Contempt Of Humanity (Elitist/Earache/Союз)<BR> 10. LUNARIS - Growth Denied (Elitist/Earache/Союз)<BR> 11. LUNARIS - Soulcrush (Elitist/Earache/Союз)<BR> 12. LUNARIS - A Final Journey (Elitist/Earache/Союз)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 24.09.2002 news MassaBrutto Radioshow #110, 23-24 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. NILE - The Blessed Dead (Relapse)<BR> 2. CEPHALIC CARNAGE - Lucid Interval (Relapse)<BR> 3. PYORRHOEA - Consume You (band)<BR> 4. CARCASS - Keep On Rotting In The Free World (Earache)<BR> 5. CARCASS - Black Star (Earache)<BR> 6. CARCASS - Go To Hell (Earache)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 7. LUNARIS - In The Eyes Of The Heretic (Elitist/Earache/Союз)<BR> 8. LUNARIS - Arise (Elitist/Earache/Союз)<BR> 9. LUNARIS - In Contempt Of Humanity (Elitist/Earache/Союз)<BR> 10. LUNARIS - Growth Denied (Elitist/Earache/Союз)<BR> 11. LUNARIS - Soulcrush (Elitist/Earache/Союз)<BR> 12. LUNARIS - A Final Journey (Elitist/Earache/Союз)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 01.10.2002 news MassaBrutto Radioshow #112, 30 Sep - 1 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. CEPHALIC CARNAGE - Scolopendra Cingulata (Relapse)<BR> 2. CEPHALIC CARNAGE - Fortuitous Oddity (Relapse)<BR> 3. CEPHALIC CARNAGE - Black Metal Sabbath (Relapse)<BR> 4. OBTEST - Griztantys Su Karo Ugnim (Ledo Takas Recs/Fatal Ecstasy Prods)<BR><BR> Рубрика "Кило-Мэтры"<BR> [CARCASS, альбом "Swansong", 1996]<BR><BR> 5. CARCASS - Childs Play (Earache)<BR> 6. CARCASS - Room 101 (Earache)<BR> 7. CARCASS - R**k The Vote (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 8. NILE - Serpent Headed Mask (Relapse)<BR> 9. NILE - Chapter For Transforming Into A Snake (Relapse/Zomba/Legacy)<BR> 10. NILE - Sarcophagus (Relapse)<BR> 11. NILE - Kheftiu Asar Butchiu (Relapse)<BR> 12. NILE - Unas Slayer Of The Gods (Relapse)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 01.10.2002 news MassaBrutto Radioshow #112, 30 Sep - 1 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. CEPHALIC CARNAGE - Scolopendra Cingulata (Relapse)<BR> 2. CEPHALIC CARNAGE - Fortuitous Oddity (Relapse)<BR> 3. CEPHALIC CARNAGE - Black Metal Sabbath (Relapse)<BR> 4. OBTEST - Griztantys Su Karo Ugnim (Ledo Takas Recs/Fatal Ecstasy Prods)<BR><BR> Рубрика "Кило-Мэтры"<BR> [CARCASS, альбом "Swansong", 1996]<BR><BR> 5. CARCASS - Childs Play (Earache)<BR> 6. CARCASS - Room 101 (Earache)<BR> 7. CARCASS - R**k The Vote (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 8. NILE - Serpent Headed Mask (Relapse)<BR> 9. NILE - Chapter For Transforming Into A Snake (Relapse/Zomba/Legacy)<BR> 10. NILE - Sarcophagus (Relapse)<BR> 11. NILE - Kheftiu Asar Butchiu (Relapse)<BR> 12. NILE - Unas Slayer Of The Gods (Relapse)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 29.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 30.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // NEWS //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 24.11.2002 news Malevolent Creation выступят на Wacken Open Air 2003
+
+<p>Malevolent Creation анонсировали своё участие в легендарном фестивале Wacken Open Air в 2003 году. Уже известно, что наряду с ними будут участвовать Iced Earth, Stratovarius, Nile, Gamma Ray и Dark Angel. После выхода восьмого студийного альбома группа планирует отправится в массивный тур, в том числе по Штатам вместе с Cannibal Corpse.</p>
+
+Автор: Vit Belov
+
+### 01.10.2003 news Nile, Kreator, Vader, Amon Amarth and Goatwhore in USA
+
+10/03 Austin, TX <BR>10/04 Dallas, TX <BR>10/05 El Paso, TX <BR>10/06 Phoenix, AZ <BR>10/07 Hollywood, CA <BR>10/08 Santa Ana, CA <BR>10/09 Sacramento, CA <BR>10/10 San Francisco, CA <BR>10/11 Portland, OR <BR>10/12 Seattle, WA <BR>10/14 Denver, CO <BR>10/15 Lawrence, KS <BR>10/16 Minneapolis, MN <BR>10/17 Sauget, IL <BR>10/18 Chicago, IL <BR>10/19 Cincinnati, OH <BR>10/20 Cleveland, OH <BR>10/21 New York, NY <BR>10/23 Philadelphia, PA <BR>10/24 Poughkeepsie, NY <BR>10/25 Worcester, MA <BR>10/26 West Springfield, VA <BR>10/29 Fort Lauderdale, FL <BR>10/30 Tampa, FL <BR>10/31 Atlanta, GA
+Автор: Vit Belov
+
+### 13.07.2004 news DIMMU BORGIR опять поменяли барабанщика...
+
+<P>Правда, это произошло только на период OzzFest. Сессионым музыкантом стал <B>Tony Laureno (NILE)</B>. Дело в том, что <B>Reno Kiilerich</B> не смог получить рабочую визу в США.</P>
+Автор: Vit Belov
+
+### 25.03.2005 news Новый альбом NILE
+
+<P>24 мая на <STRONG>Relapse Records </STRONG>выйдет новый альбом культовой группы <STRONG>NILE</STRONG> под названием <STRONG>"Annihilation of the Wicked".</STRONG> В него войдут следующие вещи:</P>
+<P>1. <B>Dusk Falls Upon the Temple of the Serpent on the Mount of Sunrise</B><BR>2. <B>Cast Down the Heretic</B><BR>3. <B>Sacrifice unto Sebek</B><BR>4. <B>User-Maat-Re</B><BR>5. <B>Burning Pits of the Duat</B><BR>6. <B>Chapter of Obeisance Before Giving Breath to the Inert One in the Presence of the Crescent Shaped Horns</B><BR>7. <B>Lashed to the Slave Stick (<A href="/samples/n/nile/2005_1491.mp3">mp3</A>)</B><BR>8. <B>Spawn of Uamenti</B><BR>9. <B>Annihilation of the Wicked</B><BR>10. <B>Von Unaussprechlinchen Kulten</B></P>
+<P>Уже сейчас, на сайте лейбла можно сделать предварительный заказ на лимитированное издание альбома, в который также войдет цветной постер коллектива, виниловый стикер и еще некоторые эксклюзивы.</P>
+<P><BR></P>
+Автор: Dimas
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 31.05.2006 news NILE на Nuclear Blast
+
+<P><STRONG>NILE </STRONG>подписали контракт с <STRONG>Nuclear Blast</STRONG>. Новый альбом выйдет в 2007 году.</P>
+Автор: Vit Belov
+
+### 24.01.2009 news NILE работают над альбомом
+
+<P><STRONG>NILE </STRONG>сочиняют песни для своего шестого альбома, который должен выйти летом/осенью на <STRONG>Nuclear Blast</STRONG>. К записи своего самого "эклектичного" альбома группа приступит в марте/апреле. </P>
+<P><STRONG>Karl Sonders</STRONG>: "<EM>Нас ждёт очень интересная работа. Я наслушался музыки на средневосточной лютне, иранская музыка и хинду</EM>".</P>
+Автор: Vit Belov
+
+### 05.06.2009 news NILE войдут в студию
+
+<P>8 июня <STRONG>NILE</STRONG> войдут в<STRONG> Mana Studio</STRONG> к <STRONG>Erik Rutan</STRONG>, где запишут новый альбом, который должен увидеть свет в октябре.</P>
+Автор: Vit Belov
+
+### 16.09.2009 news Новый альбом NILE
+
+<P><IMG height=396 alt="" hspace=0 src="/images/news_rus/2009.09/15047.jpg" width=400 align=right border=5>3 ноября в США на<STRONG> Relapse Records</STRONG> выходит новый альбом<STRONG>&nbsp;NILE</STRONG> <STRONG>"Those Whom the Gods Detest". </STRONG>Группа обещает лучший альбом в своей истории. Трэк-лист:</P>
+<P>01. <B>Kafir!</B><BR>02. <B>Hittite Dung Incantation</B><BR>03. <B>Utterances of the Crawling Dead</B><BR>04. <B>Those Whom the Gods Detest</B><BR>05. <B>4th Arra of Dagon</B><BR>06. <B>Permitting the Noble Dead to Descend to the Underworld</B><BR>07. <B>Yezd Desert Ghul Ritual in the Abandoned Towers of Silence</B><BR>08. <B>Kem Khefa Kheshef</B><BR>09. <B>The Eye of Ra</B><BR>10. <B>Iskander D'hul Karnon</B></P>
+Автор: Vit Belov
+
+### 15.10.2009 news Nuclear Blast опять озаботились журналистами
+
+<P>В своём недавнем интервью лидер <STRONG>NILE Karl Sanders</STRONG> рассказал, почему новый альбом группы <STRONG>"Those Whom the Gods Detest"</STRONG> так рано появился в сети. "<EM>Наш лэйбл Nuclear Blast знает, кто закачал нашу пластинку. Это тот же человек, что закачал и новый альбом HYPOCRISY. Это музыкальный журналист. Nuclear Blast планируют предпринять&nbsp;судебные меры по отношению к этому человеку</EM>".</P>
+<P>Далее <STRONG>Karl</STRONG> посетовал на то, что неприятно получать нож в сердце от человека из собственного круга. Теперь, давая интервью, господин<STRONG> Sanders</STRONG> даже не знает как себя вести. Не тот ли это человек, который сдал его?</P>
+Автор: Vit Belov
+
+### 11.11.2009 news NILE попали в чарты
+
+<P>Новый альбом <STRONG>NILE</STRONG> <STRONG>"Those Whom The Gods Detest" </STRONG>продался в количестве 3500 экземпляров и обосновался на 160 месте в чарте <STRONG>Billboard 200</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.11.2009 reviews Вперёд к ужасным ритуалам
+
+<P>Главные египтологи на современной тяжёлой сцене со своим новым шедевром “Those Whom The Gods Detest”. Я не боюсь этого пафоса, но каждый альбом NILE заслуживает этого эпитета, потому что другой такой группы нет.</P>
+<P>Новая работа американцев всё о том же и практически так же, но это совсем не означает, что слушать эту пластинку скучно. Подобные вещи не могут приесться. Группа своими узнаваемыми красками, основанными на brutal death-metal, рисует картину Древнего Египта со жреческими мотивами и восточными песнопениями, с ураганными ритмами и маршевыми прогонами, с диким и мрачным угаром и торжественными поклонениями ушедшей эпохе. С первой минуты альбом NILE захватывает и не отпускает ни на минуту, это настоящая музыка. В этом свете хочется вспомнить не очень добрым словом альбомы нынешних героев для поклонников метала. С их так называемым ‘metalcore’ саундом. Я долго не мог понять, то ли мне так неприятно это направление, то ли я закоренелый поклонник «старого доброго» звучания. Мне кажется, если тебе есть, что сказать, ты скажешь это любым доступным способом. Тебе не нужно открывать новые звуки, насиловать гитару или компьютер, ты просто придёшь и скажешь. Работа NILE очень технична, очень необычна для других групп, очень сложна для восприятия, но им есть, что сказать. Большинству же современных коллективов сказать нечего, вот они и извращаются со своим звучанием, заставляя многих поклонников тяжёлой музыки со стажем воспринимать всё новое, как всё плохое.</P>
+<P>Я в восторге. Нет, я не бьюсь тут в экстазе и не трясу головой на своей больной и нетренированной шее. Я просто с затуманенным взглядом шагаю вперёд, вперёд к ужасным и прекрасным ритуалам Древнего Египта.<BR></P>
+Автор: Vit Belov
+
+### 20.09.2010 news NILE едут в тур вместе с MELECHESH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NILE</STRONG> анонсировал свой тур <STRONG>"Those Whom The Gods Detest Tour 2011 - Part II" </STRONG>по Европе на январь/февраль будущего года. Партнёрами американцев будут<STRONG> MELECHESH</STRONG>. Могучий тандем проедет и по Восточной Европе, включая страны Прибалтики.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=428 src="/images/news_rus/2010.09/17211.jpg" width=300 border=0></FONT></P>
+Автор: Vit Belov
+
+### 28.10.2010 news Новый клип NILE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>NILE </STRONG>на песню <STRONG>"Permitting The Noble Dead To Descend To The Underworld" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Juan "Punchy" Gonzalez.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mMduafrQ2f8?fs=1&hl=en_US"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/mMduafrQ2f8?fs=1&hl=en_US" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.08.2011 news NILE нашли &quot;потерянные записи&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20449.jpg" width=400 height=400>11 октября на <STRONG>Goomba Music</STRONG> выйдет новый релиз <STRONG>NILE</STRONG> под названием <STRONG>"Worship The Animal (1994 – The Lost Recordings)"</STRONG>.&nbsp;На диск войдёт 35 минут ранее неизданного материала группы, записанного в&nbsp;оригинальном составе: <STRONG>Karl Sanders</STRONG> (гитара), <STRONG>Chief Spires</STRONG> (бас/вокал) и <STRONG>Pete Hammoura</STRONG> (барабаны/вокал).<STRONG> "Worship The Animal (1994 – The Lost Recordings)"</STRONG> включает в себя записи, сделанные ещё до альбома <STRONG>"Amongst the Catacombs of Nephren-Ka"</STRONG>.</P>
+Автор: Headcrusher
+
+### 20.09.2011 news NILE выпустят приквел
+
+<P><IMG height=383 alt="" hspace=0 src="/images/news_rus/2011.09/21159.jpg" width=400 align=right border=0>Новый альбом <STRONG>NILE "Worship The Animal - 1994 The Lost Recordings"</STRONG>, содержащий ранний материал группы, записанный в классическом составе <STRONG>Karl Sanders, Chief Spires</STRONG> и <STRONG>Pete Hammoura</STRONG> до выхода первого альбома "<STRONG>Amongst The Catacombs of Nephren-Ka</STRONG>". Релиз появится в продаже 11 октября на <STRONG>Goomba Music</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>La Chant Du Cygre</STRONG><BR>02. <STRONG>Worship The Animal</STRONG><BR>03. <STRONG>Nepenthe</STRONG><BR>04. <STRONG>Surrounded By Fright</STRONG><BR>05.<STRONG> Mecca </STRONG></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 27.02.2012 news NILE закончили запись
+
+<P>Американские "египтяне"<STRONG> NILE</STRONG> закончили запись нового альбома. В настоящее время материал планируется к сведению и мастерингу лидером коллектива <STRONG>Karl Sanders</STRONG>. </P>
+<P>Подробности последуют.</P>
+<P><center><IMG height=348 src="/images/news_rus/2012.02/23157.jpg" width=460 border=0></P>
+Автор: Vit Belov
+
+### 08.03.2012 news NILE назвали альбом
+
+<P>Новый альбом<STRONG> NILE</STRONG> получил название "<STRONG>At The Gate Of Sethu</STRONG>". Пластинка выйдет в начале лета на <STRONG>Nuclear Blast</STRONG>. Работа вновь сведена продюсером<STRONG> Neil Kernon (CANNIBAL CORPSE, DEICIDE)</STRONG>.</P>
+<P><center><IMG height=340 src="/images/news_rus/2012.03/23240.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 12.03.2012 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.03/23250.png" width=300 height=165>Ещё несколько участников добавилось в состав фестиваля <STRONG>"Brutal Assault"</STRONG> этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это - легендарная группа из Северной Каролины<STRONG> CORROSION OF CONFORMITY</STRONG>, канадские дет-металлисты <STRONG>GORGUTS</STRONG>, исландцы <STRONG>SOLSTAFIR</STRONG>, норвежские блэкари <FONT color=#ddd9d0><STRONG>KAMPFAR</STRONG> и поклонники древних египетских культов <STRONG>NILE</STRONG>.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также, одни из пионеров industrual <STRONG>GODFLESH</STRONG>, подтвердили своё участие в фестивале 2012 года.&nbsp;Проект образованный <STRONG>Джастином Бродриком</STRONG>&nbsp;(<FONT color=#ddd9d0>Justin Broadrick) и <STRONG>Джи Си Грином</STRONG> (G. C. Green)</FONT>&nbsp;в 1988 году и успешно просуществовал до 2002 года, после чего, была распущен, но снова вернулась к деятельности в 2010, выступив на нескольких фестивалях.</FONT></P>
+Автор: Headcrusher
+
+### 28.04.2012 news Обложка нового NILE
+
+<P>Обложку нового альбома <STRONG>NILE "At The Gates Of Sethu"</STRONG>, созданную<STRONG> Seth</STRONG>, можно увидеть ниже. Альбом выйдет 29 июня на <STRONG>Nuclear Blast</STRONG>. </P>
+<P><center><IMG height=475 src="/images/news_rus/2012.04/23662.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 25.05.2012 news Трек-лист нового NILE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=383 alt="" hspace=0 src="/images/news_rus/2012.05/24015.jpg" width=386 align=right border=0>Стал известен трек-лист нового альбома<STRONG> NILE</STRONG> <B>"At The Gate Of Sethu"</B>,&nbsp;который выйдет в конце июня на<STRONG> Nuclear Blast</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Enduring The Eternal Molestation Of Flame</B><BR>02. <B>The Fiends Who Come To Steal The Magick Of The Deceased</B><BR>03. <B>The Inevitable Degradation Of Flesh</B><BR>04. <B>When My Wrath Is Done</B><BR>05. <B>Slaves Of Xul</B><BR>06. <B>The Gods Who Light Up The Sky At The Gate Of Sethu</B><BR>07. <B>Natural Liberation Of Fear Through The Ritual Deception Of Death</B><BR>08. <B>Ethno-Musicological Cannibalisms</B><BR>09. <B>Tribunal Of The Dead</B><BR>10. <B>Supreme Humanism Of Megalomania</B><BR>11. <B>The Chaining Of The Iniquitous</B><BR><BR>Bonus:<BR>12. <B>Enduring The Eternal Molestation Of Flame</B> (instrumental)<BR>13. <B>The Inevitable Degradation Of Flesh</B> (instrumental)&nbsp;</P>
+Автор: Vit Belov
+
+### 24.11.2012 news Клип от NILE
+
+<P>Новый ролик<STRONG> NILE</STRONG> на песню <STRONG>"Enduring The Eternal Molestation Of Flame" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/99KHIkENKBM?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.07.2013 news TYR: обложка и другие подробности альбома &quot;Valkyrja&quot;
+
+<P>Группа&nbsp;<STRONG>TYR</STRONG> опубликовала обложку своего нового альбома под названием <STRONG>"Valkyrja"</STRONG>. Автор рисунка - венгерский художник <STRONG>Gyula Havancsak</STRONG> (<A href="http://www.hjules.com/">www.hjules.com</A>). &nbsp;Выход диска запланирован на 17 сентября на <STRONG>Metal Blade Records</STRONG>.</P>
+<P>Продюсером <STRONG>"Valkyrja"</STRONG> стал <STRONG>Jacob Hansen</STRONG>, уже работавший с группой над предыдущими&nbsp;альбомами. Все партии барабанов записал <STRONG>George Kollias</STRONG> (<STRONG>NILE</STRONG>).&nbsp;На песне&nbsp;<STRONG>"The Lay of Our Love"</STRONG> гостевое участие приняла <STRONG>Liv Kristine</STRONG> (<STRONG>LEAVES' EYES</STRONG>), которая разделила вокальные вместе Хенри Йонсеном&nbsp;(<STRONG>Heri Joensen</STRONG> - вокал/гитара).</P>
+<P>Послушать трек <STRONG>"Blood Of Heroes"</STRONG>, а также сделать предварительный заказ на новый&nbsp;альбом <STRONG>TYR</STRONG>, можно по ссылке: <A href="http://www.metalblade.com/tyr/">www.metalblade.com/tyr/</A></P>
+<P><STRONG>"Valkyrja"</STRONG> - это концептуальный альбом, сюжетная линия которого построена вокруг безымянного викинга, оставившего свою женщину и отправившегося на поле боя, чтобы произвести впечатление на Валькирию.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25915.jpg" width=500 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+### 20.04.2016 articles Батюшки концертов нет
+
+<P><EM>
+<CENTER><IMG border=0 src="/images/articles_rus/2016.04/29142.jpg" width=550 height=380></EM> 
+<P></P>
+<P><EM>9 апреля в Москве должен был состоятся концерт польской black doom metal группы BATUSHKA. Шоу было отменено в последний момент, когда православные активисты пригрозили провести пикет возле входа в клуб численностью 5000 человек, согласованный с префектурой СВАО города Москвы.</EM></P>
+<P>Организаторы концерта не смогли обеспечить безопасность слушателей и самой группы и были вынуждены отказаться от проведения концерта. Это уже не первый случай в последнее время. Подобным или похожим образом были отменены концерты CANNIBAL CORPSE и BEHEMOTH в разных городах России, для BEHEMOTH это вообще закончилось задержанием и выдворением из нашей страны с запретом на въезд на её территорию в будущем. Что же это за BATUSHKA такая, которая попала в столь почётный список у наших защитников чувств верующих?</P>
+<P>Польская группа, стартовавшая в 2015 году с подачи лэйбла Witching Hour, который занимает&nbsp; высокое положение на польской локальной underground сцене. В его каталоге релизы Vader и Behemoth, правда в основном переиздания демок и разнообразные винилы. Ничего про музыкантов, принимающих участие в деятельности Батюшки неизвестно, и довольно странно, что они играют в турах. Стоит ожидать, что их инкогнито долго не продержится, так как на концертах невозможно избежать утечек, тем более лэйбл анонсировал участие в группе известных персонажей. Музыкально дебютный альбом BATUSHKA “Litourgiya” представляет собой довольно мелодичный black doom metal, где в качестве симфоническо-мелодических наполнений используются некие песнопения, напоминающие молитвы православных священников. Не касаясь идеологического направленности стоит отметить, что дебютный альбом поляков хоть и не плох, но явно не доработан, музыкально тема не раскрыта, и кажется записывался альбом впопыхах. Но зато имидж и оформление пластинки под православную икону вызвали восторг у поклонников black metal. Лимитированное издание в деревянном боксе было мгновенно раскуплено, а по социальным сетям прокатилась волна восторгов. Особенно усердствовали российские фэны, которым не хватает бунтарского духа в отечественной музыке, приходится удовлетворяться с помощью поляков. В сети появился видео-клип на открывающую композицию с дебютного альбома, где съёмки с богослужений в России были превращены в фильм ужасов. Ходили слухи, что на YouTube клип забанили, но сейчас он там находится в свободном доступе. </P>
+<P>Польские музыканты явно решили нанести удар по РПЦ, а это не могло не заинтересовать наших деятельных охранителей. За дело взялся председатель общественной организации «Православный Союз» (г. Краснодар) Роман Плюта. Он обратился к главе Следственного Комитета России Александру Бастрыкину с требованием привлечь к уголовной ответственности организаторов концертов Batushka в Москве и Санкт-Петербурге. Интересно то, что в своём заявлении господин Плюта разъяснил, чего нужно боятся в творчестве этой группы. По сообщению Интерфакс: "То есть, восемь якобы христианских ектений - молитвенных прошений. Но в треках эти "молитвы" представляют собой песни псевдоцерковного хора с исковерканными словами церковнославянского языка, прерывающиеся характерным для музыки "черного металла" звуком, рычанием и истерическими воплями. Текст первой песни - псалом пророка Давида, однако он вывернут наизнанку. Изменены слова, и при исполнении получается, что они звучат от лица сатаны". Вообще, господин Плюта явно претендует на лавры предыдущего яркого борца с тяжёлой музыкой Дмитрия Энтео, кстати, его он не любит по каким-то своим причинам, о чём и сообщает на своей страничке в Facebook. Кроме этого господин Плюта отстаивает права православных и на других фронтах, в частности, его товарищам не нравится новый фильм Алексея Учителя про Николая Второго «Матильда», который они называют порнографическим, а сам господин Плюта собирается писать статью в защиту патриарха, но постоянно отвлекается: «Я правда зашиваюсь сейчас со всеми этими группами. Только сегодня и Следственный комитет пришлось посетить, и с помощником прокурора города повстречаться. А статья - это дело серьёзное, её на ходу не набросаешь...» Действительно, среди текущих дел активиста находится отмена The Flaming Arts тура, который 20 апреля доедет и до Москвы. В клубе Volta выступят NILE и BELPHEGOR. По сообщению URA.RU, уже подано заявление в СКР и Прокуратуру с требованием привлечь к уголовной ответственности всех, кто организовывает этот туровый фестиваль. «Активисты считают, что в текстах песен музыкантов, планирующих приехать в Россию, усматривается публичное оскорбление религиозных чувств верующих христиан и мусульман. Такой вывод «Православный Союз» сделал, проанализировав переводы текстов группы «Belphegor» (Австрия) и «Nile» (США)», - сообщается на сайте URA.RU Организаторы концертов BATUSHKA в Москве, концерта NILE/BELPHEGOR и тура Flaming Arts Fest на запрос о комментариях не ответили.</P>
+<P>Известный организатор металических гигов в Москве и Folk Summer Fest в Владимирской области Станислав 'Mendor' Дроздов поделился своим мнением о сложившейся ситуации: «У меня была подобная ситуация с концертом ROTTING CHRIST. Активисты пытались сорвать концерт, но не сорвали. Формально повода нет. К деятельности подобных активистов отношусь негативно, так как это в чистом виде мракобесие. Будь я на месте организаторов концерта Batushka, я бы отменять не стал, из принципа. С другой стороны, Батюшку вообще зря везли. Это проект, который активно высмеивает церковь. И он крайне провокационный».</P>
+<P>Между тем, о своём намерении издать дебютный альбом польской группы в России объявил лэйбл Mazzar. Мы связались с хозяином Mazzar Николаем Мамаевым: «Отношусь ко всему этому абсурду, крайне негативно. Просто это те же по натуре людишки, которые в совке выслуживаясь, списки запрещённых составляли, а сейчас партийный билет поменяли на распятие. Настанет власть атеистов, они снова шапки поменяют. А так печально, что время проходит, а хрень остаётся». «Издание альбома вызвано моим маленьким протестом всему происходящему», - продолжает Николай, - «Попробуем его потолкать в соцсетях, анонсовую видюху сделаем, ну в Dark City рекламу сделаем, если Андрюха (Андрей 'Andy' Корюхин, главный редактор журнала Dark City) в позу не в станет. А там посмотрим, был вариант сделать его с бонусом виде концертного DVD, которое будет снято в Киеве в конце мая, группа вроде не против, но лэйбл польский что-то не разрешает. Хочу 100 штук сделать в деревянных боксах, но это зависит от цены».</P>
+<P>Концерт NILE + BELPHEGOR состоится 20 апреля в московском клубе Volta. (должен ещё быть MELECHESH, но он до нас не доехал, из-за травмы лидера Ashmedi). Билеты: <A href="http://jcsound.ru/concerts/2016/04/nile">http://jcsound.ru/concerts/2016/04/nile</A></P>
+<P>P.S.: BELPHEGOR были сняты с концерта в Санкт-Петербурге 19 апреля. По сообщению fontanka.ru, конфликт между лидером австрийцев Helmut Leiner и помощником депутата Заксобрания Санкт-Петербурга Анатолием Артюхом возник уже в зале прилёта аэропорта Пулкова. Австриец пнул Россиянина ногой в бедро. За это господин Артюх вызвал к клубу ФМС, которая должна была проверить наличие рабочих виз у музыкантов BELPHEGOR. Группа была вынуждена отменить выступление.</P>
+<P>Видео:</P>
+<P>
+<CENTER><IFRAME height=235 src="https://www.youtube.com/embed/GWPU6eAmTT8" frameBorder=0 width=418 allowfullscreen></IFRAME>
+<P></P>
+<P>P.P.S.: Издание «Вестник Кавказа» рассказало о согласовании пикета против выступления NILE/BELPHEGOR в Краснодаре. Лидер «Православного Союза» Роман Плюта надеетя привести 23 апреля к зданию клуба, где пройдёт «Пылающий фестиваль искусств», до 1000 человек.</P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый Nile!

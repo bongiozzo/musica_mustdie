@@ -51,6 +51,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news HEIDEN войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Чехи <STRONG>HEIDEN </STRONG>войдут в студию для записи нового альбома со странным названием <STRONG>"Dolores"</STRONG>. Дата релиза пластинки, состоящей из восьми треков, пока не установлена, но группа уже представила обложку пера <STRONG>Ludec Rezac</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальный сайт: <A href="http://heidenhorde.com/">http://heidenhorde.com/</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=300 src="/images/news_rus/2011.07/19946.jpg" width=450 border=0></FONT></P>
+Автор: Vit Belov
+
+### 09.11.2011 news Новый альбом HEIDEN
+
+<P>Новая работа чехов<STRONG> HEIDEN "Dolores"</STRONG> вышла на лэйбле <STRONG>Naga Productions</STRONG>. Группа представляет музыку в стиле post black/rock. Трек-лист:</P>
+<P>1. <STRONG>Tm&#225;&#345; </STRONG><BR>2. <STRONG>P&#225;ben&#237;&nbsp; <BR></STRONG>3. <STRONG>Na b&#345;ehu</STRONG>&nbsp; <BR>4. <STRONG>Dne&#353;n&#237; noc je &#382;ena</STRONG>&nbsp; <BR>5. <STRONG>M&#225; euforie</STRONG>&nbsp; <BR>6. <STRONG>Antisentiment&nbsp; <BR></STRONG>7. <STRONG>Dolores</STRONG>&nbsp; <BR>8.<STRONG> &#381;iv&#253;?</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F24706646"><PARAM NAME="allowscriptaccess" VALUE="always">
+   <embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F24706646" type="application/x-shockwave-flash" width="100%"></embed> </OBJECT></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

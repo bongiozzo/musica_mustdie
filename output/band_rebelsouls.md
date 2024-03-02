@@ -12,6 +12,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.06.2016 news Первый тизер REBEL SOULS
+
+
+Автор: Vit Belov
+
+### 29.06.2016 news Первый тизер REBEL SOULS
+
+<p>Немецкая black death metal группа<strong> REBEL SOULS</strong> подписала контракт с <strong>Art Gates Records</strong>. Трейлер дебютного альбома "<strong>The Forces Of Darkness</strong>" можно посмотреть ниже. </p><p>Диск выйдет осенью этого года.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/7ksTC_8y2kE" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 29.06.2016 news First teaser of debut album by REBEL SOULS
+
+<p>German black death metal band <strong>REBEL SOULS</strong> signed a contract with<strong> Art Gates Records</strong>. Trailer of the debut album "<strong>The Forces Of Darkness</strong>" can be viewed below. </p><p>The CD will be released this fall.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/7ksTC_8y2kE" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

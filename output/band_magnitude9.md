@@ -30,6 +30,288 @@ Rob Johnson (Saddleback Shark), vocalist Corey Brown (Psyco Drama), bassist Kevi
 
 * C группой "Artension" 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Это американский progressive-power-проект музыкантов групп PSYCHO DRAMA и ARTENSION. Надо сразу признать, что он является довольно интересным проектом. Музыканты, видимо - поклонники гитарного гения Yngwie Malmsteen'a. Вся музыка на альбоме здорово смахивает на его сольные работы. Но этот проект не был бы так интересен, если бы это было просто слепое копирование. И тут на выручку приходит клавишник . Он разбавляет всю Malmsteen'овскую микстуру очень интересными клавишными партиями в духе ARTENSION. По сути, клавишные на альбоме играют роль ведущего инструмента, наравне с гитарой. Причём это не просто фоновые клавиши создающие атмосферу, а это виртуозные и филигранные пируэты. Представьте все гитарные соло Malmsteen'a, сыгранные на клавишах. Звук клавиш достаточно тяжёл, поэтому иногда трудно, с первого раза, понять, что же играет: клавиши или гитара. Этот альбом конечно не шедевр, но понравится думаю многим.</p>
+
+Автор: Dimas
+
+### 05.10.1999 news 
+
+<p>Magnitude 9 записывают новый альбом, который выйдет в начале 2000 года.</p>
+
+Автор: Vit Belov
+
+### 09.01.2004 reviews Прог-павер только для фанатов
+
+<P>Обложка промо-диска американского квинтета (кажется, четвертый в общей сложности их релиз) живо напомнила мне о товарище Лукассене: космос, инопланетяне и всё такое. Выпускающий же лейбл заставил подумать, что группа играет прогрессив. На поверку же оказалось, что ребята эти нарезают некую смесь пауэра и прога, причем имхо первого там&nbsp;намного больше. Думаю, специалисты жанра наиболее точно определят, на кого они больше всего похожи, я же не слушаю тонны подобных релизов из Германии, Италии, Финляндии и "менее паверных стран", ибо зачем переслушивать очередные клоны хелловинов, самовариусов, сонат арктик и прочих хаммерфоллов (так как на этом диске музыка все же ближе к перечисленным командам, а не к Fates Warning или там Queensryche). Песни похожи одна на другую, как близнецы, и если вдруг слышишь потенциально хитовый припев, то через пару секунд понмиаешь, что это кто-то уже исполнял. Хорошо сыгранный и записанный материал, хороший чистый вокал - вполне возможно, что сей релиз займет достойное место в коллекции собирателей всего павера (или прог-павера) подряд, но кроме фанатов стиля этот альбом никому рекомендовать не буду.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

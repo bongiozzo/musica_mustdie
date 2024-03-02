@@ -12,6 +12,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2002 reviews Sort of &quot;Money, and sex, and rock’n’roll, and blah-blah-blah&quot;
+
+<p>This is surprisingly good, unless you’re a freak on CATHEDRAL-like stoned doom metal and expect the same from NEBULA. Actually, it’s not even stoner. More likely, a sleazy hard rock. Money, and sex, and rock’n’roll, and blah-blah-blah. At least, sort of. In fact, this one features only three all-new tracks, whilst other eight appear as re-edition (five of them remixed) of two former EPs – “Sun Creature” and “Fall Of Icarus”. Well, needless to say, the new songs are better. Incredibly better. They just grab your balls and don’t let ‘em up until “Bardo Airways” (the third one) is over. If the whole CD was like this, it’d definitely get it’s rightful six points out of six. The band doesn’t seem to be splitting up, so why worry? Let’s just wait for a little while and enjoy their forthcoming (?) full-length offering.</p>
+<P> Website: <A HREF="http://www.meteorcity.com">http://www.meteorcity.com</A> / <A HREF="http://nebulamusic.com">http://nebulamusic.com</A></>
+<P>Email: <A HREF="mailto:info@meteorcity.com">info@meteorcity.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

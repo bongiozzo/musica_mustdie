@@ -43,6 +43,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2011 news Новый альбом THE LIGHT OF DARK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=383 alt="" hspace=0 src="/images/news_rus/2011.08/20501.jpg" width=400 align=right border=0>Мексиканская death-metal группа <STRONG>THE LIGHT OF DARK</STRONG> выпустила свой третий альбом "". Лимитированное издание, вышедшее на лэйбле<STRONG> American Line</STRONG>, содержит бонусный DVD, на котором можно обнаружить видео с европейского тура коллектива. Трек-лист:</FONT></P>
+<P>1. <STRONG>Sumerian magic <BR></STRONG>2. <STRONG>Unnatural criminal</STRONG><BR>3. <STRONG>World War Satan<BR></STRONG>4. <STRONG>Patient Zero <BR></STRONG>5. <STRONG>Electronic Voice Phenomena</STRONG><BR>6. <STRONG>Voodoo made Zombies</STRONG> <BR>7. <STRONG>Mother Death <BR></STRONG>8.<STRONG> Blaspheme Chaos Destruction</STRONG> <BR>9. <STRONG>Dead child Cry</STRONG></P>
+Автор: Vit Belov
+
+### 04.01.2012 news Новый альбом THE LIGHT OF DARK
+
+<P><IMG height=383 alt="" hspace=0 src="/images/news_rus/2012.01/22476.jpg" width=400 align=right border=0>Третий альбом мексиканских black-death-metal'истов <STRONG>THE LIGHT OF DARK "World War Satan"</STRONG> доступен к заказу в нашем магазине. Лимитированное (400 копий!!!) издание альбома содержит бонусный DVD с концертными съёмками из тура коллектива по Европе, репетиционные записи&nbsp;и многое другое. Трек-лист:</P>
+<P>1. <STRONG>Sumerian magic</STRONG> <BR>2. <STRONG>Unnatural criminal<BR></STRONG>3. <STRONG>World War Satan<BR></STRONG>4. <STRONG>Patient Zero <BR></STRONG>5. <STRONG>Electronic Voice Phenomena<BR></STRONG>6. <STRONG>Voodoo made Zombies <BR></STRONG>7. <STRONG>Mother Death <BR></STRONG>8. <STRONG>Blaspheme Chaos Destruction</STRONG> <BR>9. <STRONG>Dead child Cry</STRONG></P>
+<P>MP3 Sample: <A href="/ru/band/light_of_dark_the/17803/#samples">http://musica.mustdie.ru/ru/band/light_of_dark_the/17803/#samples</A></P>
+<P>Также&nbsp;другие новые поступления с мексиканского лэйбла <STRONG>American Line</STRONG> (цена всех дисков в нашем магазине 300 рублей):</P>
+<P><STRONG>Toxodeth - Demons Black Metal Demons</STRONG> - Death-metal<BR><STRONG>Galope Mortal / Thrashera - Split CD</STRONG> - Heavy-thrash<BR><STRONG>Thrashgrinder - Seeds of Revolution</STRONG> - Thrash-metal<BR><STRONG>Albatrhoz - La Visiуn de los Profetas</STRONG> - Heavy-metal<BR><STRONG>Abaddon&nbsp;- Abaddon</STRONG> - Heavy-metal<BR><STRONG>Andralls - Andralls</STRONG> - Thrash-metal<BR><STRONG>Combat Noise - After The War… The Wrath Continues</STRONG> - Death-metal с Кубы<BR><STRONG>Vastator - Hell Only Knows</STRONG> - Ветераны Speed-metal из Чили<BR><STRONG>Necrotic - Among The Nauseating Depravity</STRONG> - Brutal Death-Metal<BR><STRONG>Havoc - Elimination Process</STRONG> - Thrash-metal<BR><STRONG>Mictlan&nbsp;- Donde Habitan Los Muertos</STRONG> - Folk-Death<BR><STRONG>Forensic, The - The Becoming</STRONG> - Melodic Death-metal&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

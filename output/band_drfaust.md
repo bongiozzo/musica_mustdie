@@ -16,6 +16,34 @@ Death-grind
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2002 reviews Не стареют душой ветераны
+
+<p>Бог ты мой, сколько же лет этой команде! Да, таких энтузиастов своего дела, как эти сочинцы, ещё поискать… ведь, чёрт возьми, команда варится в собственном соку уже ни много ни мало 12 лет! Так чем, кроме энтузиазма, спрашиваю я вас, можно объяснить такое долголетие? Да ничем. Думаете, это дебютный альбом группы? Ошибаетесь. "Bad Time, Bad Place" – второй по счёту. Первый же вышел… шесть лет назад. До боли знакомая история, не правда ли? Помимо России, эта печальная картина характерна разве что для Латинской Америки. Обидно и то, что сочинцам вряд ли светит известность за рамками российского "подземелья". А группа, тем временем, вполне достойная. "Bad Time, Bad Place" состоит из 16 трэков разухабистого дэт-грайнда – задорного и злого, энергичного и на удивление разнообразного. Помимо зверского гроулинга, встречается как хриплый, так и чистый вокал – что для данного стиля, согласитесь, большая редкость. Не СМДМ ведь, как-никак. Главное, альбом слушается донельзя свежо, и уж что-что, а "Bad Time, Bad Place" заскучать вам не даст.</p>
+<P> P.S. И пара слов о двух других новинках от Союза, благо отдельных рецензий они явно не заслуживают. Первые – <B>ЙЕТИ</B>, честно говоря, повергли меня в шок. "Психоделический хард-арт-рок на русском языке", говорите? Ну-ну. На мой взгляд, <B>"Египетская Сила" </B>представляет собой ни что иное, как мерзостно псевдо-интеллектуальный русский рок с поражающими своей бредовостью текстами. Может быть, во второй части альбома и содержится нечто привлекательное, но, простите великодушно, я смог осилить лишь четыре так сказать "песни". Иначе пришлось бы обедать по новой. Догадываетесь, о чём это я? 0 из 10 – максимум, что эти товарищи заслуживают. Второй из трёх союзовских дисков, к счастью, оказался не столь плох. Это <B>NYL</B> с одноимённым дебютным альбомом. Местами несколько невразумительный, но в основном всё же достаточно адекватный прогрессив-рок со слабоватым, однако не режущим слух вокалом. Недурственно – но максимум, на что в моём понимании тянет этот альбом, так это создание фона… для отхода ко сну. Действительно хороша лишь инструментальная вещи с привлечением саксофона – но, увы и ах, она одна, а песен – семь. Не будем жестоки и поставим музыкантам 5 из 10.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 11.10.2002 news MassaBrutto Radioshow #115, 11 Oct 2002.
+
+<p>Гости программы: Александр и Денис из коллектива POSTHUMOUS BLASPHEMER [christfuck@tut.by]<BR><BR> Playlist:<BR><BR> 1. RASTA - None (Moon Recs)<BR> 2. DR.FAUST - ...In The Name Of Me... (Soyuz)<BR> 3. POSTHUMOUS BLASPHEMER - Virgin's Sweat (DAC Prods)<BR> 4. POSTHUMOUS BLASPHEMER - Christall Mountain [by DEATH] (DAC Prods)<BR> 5. POSTHUMOUS BLASPHEMER - Lord Of The Eternal Hatred (DAC Prods)<BR> 6. POSTHUMOUS BLASPHEMER - Off The Ark (DAC Prods)<BR> 7. POSTHUMOUS BLASPHEMER - Burial Of Divinity (DAC Prods)<BR> 8. POSTHUMOUS BLASPHEMER - Damned Christian Flesh (DAC Prods)<BR> 9. ZNICH - Купала На Йвана (band)<BR> 10. WEEDS IN VOGUE - Stolen By Heaven (band)</p>
+
+Автор: Yermola
+
+### 22.11.2002 news MassaBrutto Radioshow #127, 22 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. HOSTILE BREED - Little Green Man (Irond Ltd)<BR> 2. MANGLER - Zombie Invasion (DAC Prods)<BR> 3. МАСТЕР - Мастер (Moroz Recs)<BR> 4. МАСТЕР - Тату (Moroz Recs)<BR> 5. МАСТЕР - Наплевать (Moroz Recs)<BR> 6. МАСТЕР - Берегись (Moroz Recs)<BR> 7. МАСТЕР - Только Ты Сам (Moroz Recs)<BR> 8. BRAVURA - Out Of Sight, Out Of Mind (band/Invasion Wreck Chords)<BR> 9. DR.FAUST - Eyes Of The Shadow (Soyuz)<BR> 10. ZHRAJA - Over Him (DeathBell Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.11.2002 news MassaBrutto Radioshow #127, 22 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. HOSTILE BREED - Little Green Man (Irond Ltd)<BR> 2. MANGLER - Zombie Invasion (DAC Prods)<BR> 3. МАСТЕР - Мастер (Moroz Recs)<BR> 4. МАСТЕР - Тату (Moroz Recs)<BR> 5. МАСТЕР - Наплевать (Moroz Recs)<BR> 6. МАСТЕР - Берегись (Moroz Recs)<BR> 7. МАСТЕР - Только Ты Сам (Moroz Recs)<BR> 8. BRAVURA - Out Of Sight, Out Of Mind (band/Invasion Wreck Chords)<BR> 9. DR.FAUST - Eyes Of The Shadow (Soyuz)<BR> 10. ZHRAJA - Over Him (DeathBell Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

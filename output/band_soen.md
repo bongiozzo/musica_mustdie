@@ -8,6 +8,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.01.2012 news Проект бывшего барабанщика OPETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.01/22591.jpg" width=475 align=right border=0>Группа <STRONG>SOEN</STRONG>, в составе которой барабанщик <STRONG>Martin Lopez (ex-OPETH, AMON AMARTH)</STRONG>, басист <STRONG>Steve DiGiorgio (SADUS, TESTAMENT, DEATH, ICED EARTH)</STRONG>, вокалист <STRONG>Joel Ekelof (WILLOWTREE) </STRONG>и гитарист <STRONG>Kim Platbarzdis</STRONG>, выпускает дебютный альбом "<STRONG>Cognitive</STRONG>" 15 февраля на <STRONG>Spinefarm Records</STRONG>. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Fraktal<BR></STRONG>02.<STRONG> Fraccions<BR></STRONG>03. <STRONG>Delenda<BR></STRONG>04. <STRONG>Last Light<BR></STRONG>05. <STRONG>Oscillation<BR></STRONG>06. <STRONG>Canvas<BR></STRONG>07. <STRONG>Ideate<BR></STRONG>08. <STRONG>Purpose<BR></STRONG>09. <STRONG>Slithering<BR></STRONG>10. <STRONG>Savia<BR></STRONG>11. <STRONG>Writhen</STRONG> (bonus track)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Послушать одну вещь можно на <STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/SoenMusic?sk=app_178091127385">http://www.facebook.com/SoenMusic?sk=app_178091127385</A></FONT></P>
+Автор: Vit Belov
+
+### 02.02.2012 news Дебютное видео SOEN
+
+<P>Дебютный клип проекта бывшего барабанщика<STRONG> OPETH Martin Lopez SOEN</STRONG> на песню "<STRONG>Savia</STRONG>" можно посмотреть ниже. Ролик снял<STRONG> Patric Ullaeus</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/9VEFORk1wYA?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

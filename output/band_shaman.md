@@ -120,6 +120,409 @@ Ricardo Confessori - Drums
 * C группой "Matos, Andre" 
 * C группой "Symfonia" 
 
+## Публикации
+
+### 15.05.2002 news Бей в бубен, Шаман!
+
+<p>Бразильские Шаманы известные имением в своих рядах бывших участников ANGRA - Andre Matos (вокал), Luis Mariutti (басс) и Ricardo Confessori (гитара), опубликовали трек-лист своего нового альбома Ritual, который выйдет в продажу в июле через Lucretia Records: <BR><BR> 01. Ancient Winds<BR> 02. Here I Am<BR> 03. Distant Thunder<BR> 04. For Tomorrow<BR> 05. Time Will Come<BR> 06. Over Your Head<BR> 07. Fairy Tale<BR> 08. Blind Spell<BR> 09. Ritual<BR> 10. Pride</p>
+
+Автор: Yermola
+
+### 15.05.2002 news SHAMAN Set &quot;Ritual&quot; Track Listing....
+
+<p>Brazil's SHAMAN, featuring former ANGRA members Andre Matos (vocals), Luis Mariutti (bass) and Ricardo Confessori (guitar), have finalized the track listing for their forthcoming debut, entitled Ritual, which is scheduled to be released in early July through Lucretia Records. The songs set to appear on the album are as follows: <BR><BR> 01. Ancient Winds<BR> 02. Here I Am<BR> 03. Distant Thunder<BR> 04. For Tomorrow<BR> 05. Time Will Come<BR> 06. Over Your Head<BR> 07. Fairy Tale<BR> 08. Blind Spell<BR> 09. Ritual<BR> 10. Pride<BR></p>
+
+Автор: Yermola
+
+### 10.04.2003 news Шоу SHAMAN
+
+<p>Группа SHAMAN во главе с Andre Matos записала на видео концерт в Сан-Пауло для последующего его выпуска в формате DVD. На концерте были сыграны вещи с прошлогоднего дебютного альбома группы и некоторые вещи из репертуара группы ANGRA. В концерте также приняли участие множество гостей. среди которых Sascha Paeth, Tobias Sammet, Andy Deris и Michael Weikath.</p>
+
+Автор: Dimas
+
+### 28.05.2003 reviews Ритуал Шамана
+
+<p>Несмотря на то, что этот диск вышел уже год назад, вряд ли в России найдется много людей уже успевших с ним ознакомиться полностью. Меж тем, это именно та группа, которая образовалась тремя музыкантами покинувшими в 2000 году бразильский коллектив ANGRA - Andre Matos, Luis Mariutti и Ricardo Confessori. Взяв в качестве гитариста Hugo Mariutti, команда отправилась в тур со старыми вещами ANGRA и некоторым новым материалом. После чего и записала этот вкуснейший альбомчик! Шаман - тот кто лечит известными только ему методами, снадобьями и заклинаниями. Также и материал SHAMAN способен залечить раны всем поклонникам ANGRA, посчитавшим новый материал любимой группы недостаточно компетентным. Великолепный образец симфонического power metal с этническими мотивами. Вокал Матоса узнаваем и превосходен. Он в великолепной форме, и это - одна из лучших его работ. Музыка выдержана в духе старого материала ANGRA, но с гораздо более симфоническим и фолковым уклоном, более тяжелый и менее прогрессивный. Но это его только выделяет в позитивную сторону. Разнообразный материал с варьированием темпа, с вставочками в виде звуковых спецэффектов, индийских барабанов, дудок и восточных мотивов. Хороший качественный и плотный звук, и отличные мелодии. Каждая из песен имеет определенный сюжет, который очень хорошо передается посредством музыки. В последней вещи "Pride", Матос поет на пару с Тобиасом Замметом (EDGUY). А на клавишах кое-где подыгрывает Derek Sherinian (DREAM THEATER). Особо хочется выделить такие вещи, как "Here I Am", "Over Your Head" и "Fairy Tale". Ну что еще сказать... Альбом превосходен и просто обязан быть частью любой музыкальной коллекции.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 10.07.2003 reviews Опус №1 для группы с циркулярной пилой.
+
+<p>Просто пример для учебника. Как из пустышки сделать леденец. Берутся абсолютно отстойнейшие мелодии, которые являются классическими образцами пластмассового павера. Естественно, уважаемым и заслуженным людям стыдно выпускать такое. На помощь приходит мастерство и талантливые руки-головы аранжировщиков. Они навешивают на них всякие неоклассические рюшечки и фолковую мишуру. Тут на елочку облезлую гирляндочку из индийских барабанчиков, там – дождиком ярким из восточных мотивчиков выпавшие иголки прикроем… Глядишь, и получилось ярко и красиво. Прог для паверщиков. Потому, что наворочено. А за всем этим – пустота. Вот не прикрыли ничем «Pride» с Замметом, так его и вообще слушать не возможно. Будто итальянскую команду второй лиги включил. Плюс ко всему простуженный Матос. Трудно ему, человеку с родины кофе Пеле, живется в холодной Европе. Лично мне его голос на этом альбоме напоминает циркулярную пилу. Итог – 8 за аранжировки, 4 за музыку.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 05.03.2004 news SHAMAN (Bra) подписали контракт с AFM
+
+<P>Бразильцы <B>SHAMAN (ex-ANGRA)</B> подписали долгосрочное соглашение с <B>AFM</B>. Первым релизом в рамках этого соглашения станет переиздание первого альбома группы '<B>Ritual</B>'. Вместе с диском будет доступен бонусный DVD '<B>Ritualive</B>'. В качестве приглашённых звёзд в записи концерта участвовали <B>Tobias Sammet</B> (<B>EDGUY</B>), <B>Michael Weikath</B>, <B>Andi Deris</B> (<B>HELLOWEEN</B>).</P>
+Автор: Vit Belov
+
+### 10.07.2004 reviews Когда на концете группа лучше чем в студии получается RituaLIve
+
+<P><B>Очень оригинальная идея, после выхода первого альбома записать концертный диск, точно соответствующий дебютнику. Все-таки творческий кризис на лицо. Придумать ничего нового не могут. Но зато очень хорошо исполняют старое!</B></P>
+<P><B>Очень редко попадаются концертники, которые звучат лучше чем студийный материал.</B></P>
+<P><B>А это именно тот случай. Прямо скажем, мне очень не нравится альбом “Ritual”. А вот “RituaLive’ слушается великолепно. Идеальная запись приятно гремящий бас, куча клавиш, внятные и чистые гитарные соло. Плюс великолепный контакт с залом. Прямо таки ощущаешь концертную атмосферу. Очень понравилось, как зал начал напевать еще незазвучавшую мелодию из заглавной композиции. </B></P>
+<P><B>И не особо любимый мной Матос поёт тут очень прилично. Ниже и глуше. Не подражает радостной циркулярной пиле впившейся в твердый ствол лиственицы, как обычно в последнее время. А вот «специально приглашенная звезда» - Энди Дерис просто ужасен. Мне просто стыдно за него было. Может он поссорился с «шаманами»? По доброй воле такое опубликовывать нельзя.</B></P>
+<P><B>P.S. Переслушал еще раз “Ritual”… Так и не понял, в чем дело… Почему такие красивые и мелодичные песни в студийном варианте вызывают только зевоту?</B></P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 06.11.2004 news SHAMAN находятся в студии
+
+Бразильцы <STRONG>SHAMAN</STRONG> находятся в студии, где готовят новый альбом к выходу в феврале-марте на<STRONG> AFM</STRONG>.
+Автор: Vit Belov
+
+### 04.02.2005 news SHAMAN назвали новый альбом
+
+<P>Новый альбом бразильцев <STRONG>SHAMAN</STRONG> будет называться '<STRONG>Reason</STRONG>'. Дата релиза и трэк-лист пока не объявлены.</P>
+Автор: Vit Belov
+
+### 05.03.2005 news SHAMAN сменили название
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SHAMAN</STRONG> сменили название на <STRONG>SHAAMAN</STRONG>, из-за юридических проблем. Новый альбом <STRONG>Andre Matos</STRONG> and Co. "<STRONG>Reason</STRONG>" выходит на<STRONG> AFM</STRONG> 17 мая. </FONT></P>
+Автор: Vit Belov
+
+### 19.10.2005 reviews Matos осип окончательно
+
+<P><STRONG>SHAAMAN</STRONG> (группа изменила название) - это <STRONG>Andre Matos</STRONG>. А <STRONG>Andre Matos</STRONG> - это любовь поклонников в Бразилии и за её пределами, это символ... Но самое главное - это голос, который невозможно забыть. Высокий, очень высокий и мощный в тоже время. Что он вытворял в <STRONG>ANGRA</STRONG>, ух... Но это дела давно минувших дней.</P>
+<P>На новом альбоме <STRONG>SHAAMAN</STRONG> с <STRONG>Andre</STRONG> закончилась та метаморфоза, которая была уже замечена Доффом на дебюте. Голос сломался... <STRONG>Matos</STRONG> уже хрипит, а не поёт. Пытается взять высоко, выходит плохо, пытается распеться, тоже не выходит. Плюс к этому музыка новой работы представляет какой-то "грязный hard-rock". Гранжево-альтернативное звучание середины 90-х, прямолинейные риффы, полное отсутствие приукрашиваний и сиплый <STRONG>Matos</STRONG>. Будь <STRONG>Matos</STRONG> не сиплый, мы бы послушали и такое, а сейчас...</P>
+<P>Сейчас <STRONG>SHAAMAN </STRONG>просто представляет собой средню hard-rock банду с вокалистом, который напоминает нам кого-то. Есть, как и на любом реализуемом ныне альбоме, неплохие цепляющие ходы, но их мало для того, чтобы поставить этой работе хорошую оценку.</P>
+<P>Диск предоставлен CD-Maximum</P>
+Автор: Vit Belov
+
+### 12.10.2006 news Кончина SHAAMAN
+
+<P>Бразильский коллектив<STRONG>&nbsp;SHAAMAN</STRONG> (ex-<B>SHAMAN</B>), который основали бывшие участники группы <B>ANGRA</B>&nbsp;<B>Andre Matos</B>, <B>Luis Mariutti</B>&nbsp;и <B>Ricardo Confessori</B>, больше не существует. Это стало известно из официального заявления&nbsp;<B>Confessori</B> на сайте фэн-клуба <B>SHAAMAN</B>.&nbsp;Разрыв отношений произошел из-за личных и музыкальных разногласий между участниками коллектива. Информации о дальнейших планах и проектах разошедшихся музыкантов пока не сообщается. </P>
+Автор: Dimas
+
+### 08.11.2006 news Andre Matos решил заняться сольной карьерой
+
+<P>Бывший вокалист бразильских коллективов&nbsp;<STRONG>ANGRA</STRONG> и<STRONG> SHAAMAN</STRONG> <B>Andre Matos</B> записал демо-версии нескольких треков, которые войдут в его новый сольный альбом под названием <STRONG>"Rio".</STRONG> Их можно прослушать по <A href="http://www.andrematos.net/?lang=en">этой</A> ссылке.<STRONG> </STRONG>Выход релиза ожидается в течении 2007 года, лейбл пока неизвестен.</P>
+Автор: Dimas
+
+### 30.07.2007 news SHAAMAN жив!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>Andre Matos SHAAMAN</STRONG> продолжает существование и после ухода своего сооснователя. В этом году новый альбом <STRONG>SHAMAN</STRONG> (музыканты вновь сменили название) "<STRONG>Immortal</STRONG>" выфйдет на <STRONG>AFM</STRONG>. В составе коллектива на сегодняшний день: <STRONG>Ricardo Confessori</STRONG>&nbsp;(барабаны), <STRONG>Leo Mancini</STRONG> (гитара), <STRONG>Thiago Bianchi</STRONG> (вокал)&nbsp;и <B>Fernando Quesada</B>&nbsp;(бас). Трэк-лист:</FONT></P>
+<P>01. <B>Renovatti</B><BR>02. <B>Inside Chains</B><BR>03. <B>Tribal By Blood</B><BR>04. <B>Immortal</B><BR>05. <B>One Life</B><BR>06. <B>In The Dark</B><BR>07. <B>Strenght</B><BR>08. <B>Freedom</B><BR>09. <B>Never Yield</B><BR>10. <B>The Yellow Brick Road</B></P>
+<P>Послушать одну песню можно здесь:<STRONG> </STRONG><A href="http://www.shamanimmortal.com/audio.php?lang=1">http://www.shamanimmortal.com/audio.php?lang=1</A></P>
+Автор: Vit Belov
+
+### 16.03.2009 news Ricardo Confessori: И нашим, и вашим
+
+<P>Барабанщик<STRONG> Ricardo Confessori</STRONG> вернулся в <STRONG>ANGRA</STRONG>, но не намерен прекращать свою деятельность в <STRONG>SHAMAN</STRONG>. Напомним, что последнюю группу он основал вместе с певцом <STRONG>Andre Matos</STRONG>, когда покинул <STRONG>ANGRA</STRONG>. С тех пор много воды утекло. <STRONG>Andre </STRONG>покинул и <STRONG>SHAMAN</STRONG>, и теперь не осталось никаких препятствий для воссоединения господина <STRONG>Confessori </STRONG>с бывшими коллегами.</P>
+<P><STRONG>ANGRA</STRONG> вернулись из двухгодичного отпуска и готовы к масштабному туру по Бразилии вместе с<STRONG> SEPULTURA</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

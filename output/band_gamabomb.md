@@ -60,6 +60,61 @@ Side B:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.10.2008 reviews Ольдскульный трэшак по-ирландски
+
+<P>Удалая команда Gama Bomb, состоящая из уроженцев Ирландии и Северной Ирландии, относится к новому поколению тех трэшевых групп, которые придерживаются старой школы жанра. Их музыкальные ориентиры это ранние работы Slayer, Megadeth, Nuclear Assault, Kreator, Sodom и прочих исполнителей. "Citizen Brain"&nbsp;- второй альбом коллектива, а первый, "Survival Of The Fastest", выходил сначала в 2005-ом году как self-release и годом позже на андерграундном европейском лейбле Witches Brew. Теперь же безбашенными трэшерами занялись ребята из Earache, так что вполне вероятно, что творчество Gama Bomb будет доступно более широкой публике. Быстрые песни, пулеметные очереди барабанов, стремительные риффы - здесь все атрибуты олдскульного трэша. "Citizen Brain" укладывается также в "положенную" продолжительность (38 минут и 15 вещей), так что и это условие выполнено. Разумеется, никаких новшеств вы тут не услышите, но заинтересовавшиеся знают, чего им ожидать. И пусть музыка Gama Bomb очень прямолинейная и безо всяких изысков, зато она искренняя и куда более зажигательная и заводная, чем у множества групп, которые в угоду моде пытаются - как правило, без особого успеха - наяривать так называемый модерновый вариант трэша. В общем, вы всё поняли. Добавлю лишь, что первый лимитированный тираж альбома вышел с бонусным DVD "Massive Carryout: Drinking Citizens", где можно увидеть различный туровый и студийный материал.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 17.09.2009 news Новый альбом GAMA BOMB бесплатно!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ирландцы <STRONG>GAMA BOMB</STRONG> анонсировали, что их новый альбом, названный <STRONG>"Tales From The Grave In Space"</STRONG>, можно будет скачать абсолютно бесплатно. Диск, запись которого началась 15 сентября в&nbsp;<STRONG>Grindstone Studios</STRONG> в городе <STRONG>Suffolk</STRONG> (Англия)&nbsp;с продюсером <STRONG>Scott Atkins</STRONG>, будет доступен для свободного скачивания с 5 ноября по следующему адресу: <A href="http://www.earache.com/gamabomb">www.earache.com/gamabomb</A>.</FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Мы думаем, что это новаторский шаг и очень взволнованы" -</EM>&nbsp;с энтузиазмом говорит фронтмен&nbsp;группы <STRONG>Philly Byrne</STRONG><EM>;&nbsp;"Не имеет значения, кто ты, где ты живешь, есть ли у тебя деньги&nbsp;или нет&nbsp;— 5 ноября ты сможешь получить наш альбом бесплатно, без лишних вопросов. Мы лишь надеемся, что он тебе понравится".</EM></FONT></P>
+<P><IMG height=266 alt="" hspace=100 src="/images/news_rus/2009.09/15055.jpg" width=400 vspace=5 border=0></P></FONT>
+Автор: Headcrusher
+
+### 28.01.2010 news GAMA BOMB на виниле и компакт диске
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После многочисленных просьб фанатов, ирландцы&nbsp;<STRONG>GAMA BOMB</STRONG>&nbsp;выпускают свой последний альбом на физических носителях. Винил и компакт диск поступят в продажу 28 января. До этого, альбом <STRONG>"Tales From The Grave In Space"</STRONG>&nbsp;был доступен только для бесплатного скачивания&nbsp;с сайта <STRONG>Earache Records</STRONG> в формате mp3.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Tales From The Grave In Space"</STRONG> будет выпущен тиражом в 700 штук на чёрном виниле и ультра-ограниченным тиражом в 300 экземпляров на зелёном, а так же, на CD. Лимитированное издание компакт диска будет включать в себя эксклюзивный бонус EP - <STRONG>"Half Cut"</STRONG>, в который войдут 5 новых песен.</FONT></P>
+Автор: Headcrusher
+
+### 16.10.2013 news Oktobierfest 2014
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже в эту субботу в московском клубе <STRONG>"Volta"</STRONG> (<A href="http://www.voltaclub.ru/">www.voltaclub.ru</A>), состоится ежегодный фестиваль <STRONG>"Oktobierfest"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом году в фестивале участвуют ирландские трэшеры <STRONG>GAMA BOMB</STRONG>, итальянские пародисты <STRONG>NANOWAR OF STEEL</STRONG> и норвежские folk/black весяльчаки&nbsp;<STRONG>TROLLFEST</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Более подробная информация о фестивале на сайте организатора: <A href="http://deltamekong.ru/?category=2&details=113">http://deltamekong.ru/?category=2&details=113</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также в разделе <STRONG>Shows</STRONG> нашего сайта: <A href="/ru/shows/#69768">http://musica.mustdie.ru/ru/shows/#69768</A></FONT></P>
+<P>А пока скоротать оставшееся до фестиваля время, можно посмотрев видео-приветствие (обязательно несколько раз)&nbsp;от ансамбля <STRONG>GAMA BOMB</STRONG>, которое находится &nbsp;ниже&nbsp;в плеере.</P>
+<CENTER><IFRAME height=480 src="//www.youtube.com/embed/OTWlivfqfho" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.12.2013 news GAMA BOMB: клип &quot;Backwards Bible&quot;
+
+<P>Новый клип ирландских трэшеров <STRONG>GAMA BOMB</STRONG> на трек <STRONG>"Backwards Bible"</STRONG> можно посмотреть ниже.</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/Fjnrnk07MEM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 02.09.2015 news GAMA BOMB: Новый альбом, &quot;Untouchable Glory&quot;, в конце октября
+
+<P>Ирландская трэш-метал банда <STRONG>GAMA BOMB</STRONG> выпускает свой новый альбом, который получил название <STRONG>"Untouchable Glory"</STRONG>. Его выход запланирован на 30 октября на лейбле <STRONG>AFM</STRONG>.</P>
+<P>В качестве продюсера выступил <STRONG>Scott Atk</STRONG>ins. Автор обложки:&nbsp;<STRONG>Graham Humphreys</STRONG>.&nbsp;Весь остальной дизайн:&nbsp;<STRONG>Rory McGuigan</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.09/28273.jpg" width=500 height=510></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 05.11.2015 news Новый клип GAMA BOMB
+
+<P>Новый диск <STRONG>GAMA BOMB "Untouchable Glory"</STRONG> вышел на этой неделе на Фоно. Клип на песню "<STRONG>Ninja Untouchables / Untouchable Glory</STRONG>" смотрите ниже.</P>
+<P>Покупайте лицензионный диск: <A href="http://escapemind.ru/goods/GAMA-BOMB-Untouchable-Glory">http://escapemind.ru/goods/GAMA-BOMB-Untouchable-Glory</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/9AIZYJpVKQg" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Oktobierfest 2013: GAMA BOMB (Ирландия), TROLLFEST (Норвегия), NANOWAR OF STEEL (Италия)

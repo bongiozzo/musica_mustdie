@@ -66,6 +66,76 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.09.2000 reviews Возвращение Гитарного Гуру
+
+<p>ПОТРЯСАЮЩИЙ АЛЬБОМ!!!!!!!!!!!! Незаслуженно забытый Пол Гилберт прекратил зарабатывать зеленые бумажки в любимом американскими колхозницами Мистер Биг и наконец-то, занялся делом. Прочь попсовые медляки и сопливые баллады, да здравствуют спид металлические навороты!!! Если для Вас что-либо значат слова "Cacophony" и Марти Фридман, то бегом за диском! Наверное трудно быть не модным, не играть сатанинский блэк с корпспэйнтом, но они сделали это и плюнув против ветра шоу-бизнеса, выпустили альбом в лучших традициях "Street Lethal" (1986). При том, что остальные гитарные виртуозы в последнее время занялись непонятными экспериментами (например Джо Сатриани выпустил альбом брэйк-битов и хип-хопа!) "Technical Difficulties" обещает стать инструментальным альбомом №1! Для полного счастья не хватает только Брюса Булье, но и без него Гилберт показывает, что заслуженно входит в пятерку лучших гитаристов. "Гитарист для Гитаристов" - вот, я полагаю, лучший титул для имярек. Я бы поставил альбому оценку 12 (по десятибалльной шкале), но боюсь редактор крылья подрежет. Ставлю 10.</p>
+
+Автор: Yermola
+
+### 20.09.2000 articles Racer X - назад к музыке!
+
+<p>6 ноября 1966 года в Иллинойсе (США) в семье Гилберт родился мальчик. Его назвали Пол. В возрасте 2 лет Гилберты переехали в Пенсильванию. Благодаря отцу Пол рос слушая Beatles и классическую музыку. В 9 лет, вдохновившись музыкой Led Zeppelin, KISS и Aerosmith, он начал заниматься гитарой. Спустя два года, он меняет свой гитарный стиль под воздействием саунда Van Halen. Многие трюки ему показывает родной дядя - фанат копирующий песни Эдди. После этого Пол берет уроки джазовой игры и развивает отличную технику. Примерно в это время, он с друзьями формирует первую команду "GIANT", быстро ставшую известной в окрестностях. В 15 лет парнишка отсылает демо-ленту Майку Верни - первому продюссеру альбомов Ингви Мальмстина. Майк немедленно звонит по телефону и встречается с Полом. Дав пару советов юному дарованию, продюссер оставляет ему записи Ингви для занятий. После этого Гилберт долгое время занимается выработкой супер-скоростной техники игры. Такое впечатление, что он все свое время проводит в обнимку с гитарой, а не с девочками, что и приводит к развитию потрясающих способностей (ха-ха!). Сразу по окончании средней школы, Пол переезжает в Л.А. и поступает в GIT (Институт Гитарной Техники), успешно окончив который, он остается преподавателем и ведет несколько классов. В это время Майк Верни знакомит его с Jeff Martin (вокал), Harry Gschoesser (барабаны) и John Alderete (басс) и они формируют первый состав Racer-X. В ноябре 1985 они записывают релиз "Street Lethal", который поступает в продажу в марте 1986. Полу исполняется 19 лет в то время когда альбом становится популярным среди любителей гитарной музыки. После недолгих раздумий он приглашает в состав своего студента Брюса Булье и нового барабанщика Scott Travis. Этим (ныне класическим!) составом в ноябре 1986 они записывают альбом "Second Heat" (в продаже с ноября 1987). Контракт с Майком Верни начинает ограничивать устремления Пола к мировой популярности и записав с ним еще один (концертный!) альбом "Live-Extreme Volume", группа меняет менеджмент и состав. Остаются Пол, Jeff Martin, Chris Urban и сессионный вокалист, которые продолжают дело Racer-X. После многочисленных мировых гастролей команда все же решает разойтись. Второй концертник "Live-Extreme Volume II" выходит уже после официального распада. Что же дальше? Карьера Racer-X на долгие годы (11 лет!) забыта. Пути Пола пересекаются с "басс-гитарным Паганини" - Билли Шиханом, который недолго подумав, формирует супер-успешную попсовую команду "Mister Big" (имея ввиду себя любимого!). Годы проходят в визге малолетних поклонниц и путешествии по MTV-шным хит-парадам. И вот заработав НН-ое количество зеленых бумажек Гилберт решает все-таки вернуться к музыке. В декабре 1999 Racer-X собирается в "золотом" составе и записывает "Technical Difficulties" (во многих странах появляется в продаже уже в 2000 году). Такова вкратце карьера Пола Гилберта, гитариста, заслужившего самое высокое место под солнцем (на гитарном Олимпе!). Надеюсь новое поколение металлистов не пройдет мимо потрясающих гитарных наворотов "Мастера с Большой Буквы". Аминь.</p>
+
+Автор: Yermola
+
+### 25.09.2000 articles Guitar hero ? Yes!!!
+
+<p> Paul Gilbert, He was born on November 6th, 1966 in Illinois, USA and moved to Pennsylvania 2 years later. Because of his father, he had grown up while listening to Beatles and classical music. When he was 9 years old, he encountered Led Zeppelin, KISS, and Aerosmith, their guitar sounds got Paul addicted, he started playing guitar since then. 2 years later, he changes his guitar playing style when he listened to Van Halen's guitar sound. For a while, he was learning guitar from his uncle who was covering Van Halen. After that, he was taking jazz lession, he improved his skill more. Around that time, he had formed a band with friends, and it was pretty famous in local area. A band name is "GIANT". When he turned to 15, he had sent demo tape to Mike Varney, who was producing Yngwie Malmsteen's CD, several times. Soon, Mike got his eyes on Paul, and started to contact each other on the phone. Mike let Paul, who was addicted to Van Halen sounds, listen the demo tape of Yngwie, and gave Paul advices. Because of it, Paul was influenced, and started to improve his fast playing skill. It seemed he was always grabbing guitars instead of girls' hands when he was in high school. Is it the trick of improving guitar techniques? (laugh). As soon as Paul graduated high school, He moved to LA by himself to attend to GIT. Paul lived in Greensburg of State of Pennsylvania from the time he was about 2 years old, until about 18. While he was attending to GIT, he often had sessions, and he was always grabbing his guitar. After he graduated from GIT, he remained at GIT as an instructor, and he had some guitar classes. At that time, he had auditions and rehearsals as Mike suggested, but he was unable to form a band that he wanted. He asked Mike that he wants to have his own band. Mike introduced Jeff Martin (vo), Harry Gschoesser (dr), John Alderete (ba) to Paul, and they had sessions. During November, 1985, they had recording sessions, and the album was released as "Street Lethal" by Racer-X during March, 1986. At that time, Paul was 19 years old. Soon, the name of Racer-X was spreaded all over the world, and Paul let Bruce Bouillet, who was 3 years older than Paul, and Paul's student at GIT, join the band, and the band changed to high speed twin guitarist band. At the time, Scott Travis (dr) joined the band, and they did recording for the second album, and finished the album, "Second Heat", during November, 1986. However, important release date became a year later, November 1987. They did activities of Racer-X around LA area only, and Paul was thinking of changing management because he wanted to do the performance all over the world. However, they had to finish 3 albums because of the contract with Mike, and released the first live album, "Live-Extreme Volume". Although they released 3 albums, Jeff Martin and Paul decided to resign the band. Racer-X that lacked Paul and Jeff, added Chris Urban (g), and temporary singer, and continued their activities. Then, Scott Travis resigned the band as Mike's suggest. Later on, the band had to dissolve. After that, second live album, "Live-Extreme Volume II" was released.</p>
+<p> And 1999, 11 years later after dissolving, Racer-X reunioned. After 2 months of recording, their reunion album, "Technical Difficulties" was released on December 8th, 1999. Members are Paul Gilbert, Jeff Martin, John Alderete, and Scott Travis, but Bruce Bouillet was unable to join due to his injury of his arm.</p>
+
+Автор: Yermola
+
+### 04.12.2000 news Новый альбом Пола Гилберта и &quot;Racer X&quot;!!!
+
+<p>Внимание, любителям скоростных гитарных запилов!!! 6 декабря выходит новый альбом Пола Гилберта и "RACER X" - "SUPERHEROES". На альбоме отметились обычные участники Jeff Martin, John Alderete и Scott Travis. Микшированием занимался старый друг Пола (и бывший ученик!) Брюс Булье.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Супер-герои?!?!
+
+<p>Новый альбом гипер-скоростных нарезальшиков "RACER-X" - "Superheroes" вышел в конце февраля на Mascot Records. Бегом в магазин!</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Super Heroes!?!?
+
+<p>RACER X release their new album, Super Heroes, through Mascot on February 23rd...</p>
+
+Автор: Yermola
+
+### 16.04.2001 news Супер-герои....
+
+<p>Похоже ответ на вопрос поставленный Д.Мастэйном: "Нужен ли миру новый герой?" - найден. Нужен. И им вполне может стать гипер-скоростной нарезальщик Paul Gilbert ("ex-MR. BIG") который после выпуска альбома "Superheroes" и объединения с барабанщиком Scott Travis ("JUDAS PRIEST") героически отправился в Америку поддерживать свой опус на фестивале "Whisky A Go Go".</p>
+
+Автор: Yermola
+
+### 16.04.2001 news RACER X will be playing California&#39;s &quot;Whisky A Go Go&quot;....
+
+<p>The reunited RACER X, featuring JUDAS PRIEST drummer Scott Travis and ex-MR. BIG guitarist Paul Gilbert, will be playing West Hollywood, California's Whisky A Go Go on May 25th in what is being billed as "possibly the only time the band will perform in the US" in support of its recently-released (in Japan only!) Superheroes CD. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.08.2001 news Роковые снежки...
+
+<p>Лос-Анджелесские короли нарезалова "RACER X" в ближайшее время выпустят CD/DVD с живым материалом с прошедшего 25-го мая реюнион шоу в "Whisky A-Go Go". Названный "Snowball Of Doom" альбом будет содержать песни со всех номерных альбомов (Street Lethal, Second Heat, Technical Difficulties and Superheroes): 01. 17th Moon 02. Into The Night 03. Let The Spirit Fly 04. Street Lethal 05. Dead Man's Shoes 06. Scarified 07. Getaway 08. Snakebite 09. Hammer Away 10. Evil Joe 11. Phallic Tractor 12. Fire Of Rock 13. O.H.B. 14. Godzilla. С января 2002 команда в нынешнем супер-составе (гитарист Paul Gilbert (ex-MR. BIG), вокалист Jeff Martin (ex-BADLANDS, BLACK SYMPHONY), барабанщик Scott Travis (JUDAS PRIEST) и бассист John Alderete (ex-THE SCREAM)) отправится с гастролями в Японию, где альбомы Technical Difficulties и Superheroes уже достигли статуса "золота". <img src=/images/news_rus/2001.08/1615.jpg border=1 align=left width=207 height=200 ></p>
+
+Автор: Yermola
+
+### 27.08.2001 news Опасайся скорпионов...
+
+<p>Новый альбом MSG (MICHAEL SCHENKER GROUP) - "Be Aware Of Scorpions" - первый с новичком-вокалистом Крисом Логан выходит 26-го октября в Японии. Самурайская версия будет содержать бонус-трек с вокалом экс-барабанщика MSG и текущим вокалистом RACER X - Jeff Martin, а американская будет с добавкой Логана на вокале...</p>
+
+Автор: Yermola
+
+### 01.11.2001 news L.A. shred kings RACER X...
+
+<p>L.A. shred kings RACER X, featuring guitarist Paul Gilbert (ex-MR. BIG), vocalist Jeff Martin (ex-BADLANDS, BLACK SYMPHONY), drummer Scott Travis (JUDAS PRIEST) and bassist John Alderete (ex-THE SCREAM), have added a new date on their tour in Asia: They will now be playing in Taipei on January 6th, 2002. This latest development ends the speculation of a January 4th show at the Whiskey in West Hollywood, California.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

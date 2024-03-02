@@ -8,6 +8,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.06.2003 news Новости от RUDRA
+
+<p>Сингапурские блэкстеры RUDRA завершили запись своего третьего альбома "Kurukshetra" ("Battlefield"). Релиз ожидается в середине июля на Trishul Records. В него войдут следующие вещи:</p>
+<p> <OL> <LI>Justified Aggression <LI>Apostasy <LI>God of Delusion <LI>Absolute One <LI>Negate <LI>Mithya <LI>In The Vision of The Blind <LI>Temple of Nothingness <LI>Highlands of Tranquility <LI>Ye Immortal One <LI>Asura Mardhini </OL></p>
+
+Автор: Dimas
+
+### 13.04.2009 news Vic Records выпустят &quot;Брахмапутру&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.04/13935.jpg" width=400 align=right border=5>RUDRA</STRONG> заключили соглашение с<STRONG> Vic Records</STRONG>. Пятый альбом группы <STRONG>"Brahmavidya: Transcendental I" </STRONG>выйдет 6 июля. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Bhagavatpada Namaskara</B><BR itxtvisited="1">02. <B itxtvisited="1">Ravens of Paradise</B><BR itxtvisited="1">03. <B itxtvisited="1">Amrtasyaputra</B><BR itxtvisited="1">04. <B itxtvisited="1">Hymns from the Blazing Chariot</B><BR itxtvisited="1">05. <B itxtvisited="1">Meditations at Dawn</B><BR itxtvisited="1">06. <B itxtvisited="1">Advaitamrta</B><BR itxtvisited="1">07. <B itxtvisited="1">Natural Born Ignorance</B><BR itxtvisited="1">08. <B itxtvisited="1">Immortality Roars</B><BR itxtvisited="1">09. <B itxtvisited="1">Reversing the Currents</B><BR itxtvisited="1">10. <B itxtvisited="1">Venerable Opposites</B><BR itxtvisited="1">11. <B itxtvisited="1">Avidya Nivrtti</B><BR itxtvisited="1">12. <B itxtvisited="1">Not the Seen but the Seer</B><BR itxtvisited="1">13. <B itxtvisited="1">Adiguru Namastubhyam</B><BR itxtvisited="1">14. <B itxtvisited="1">Majestic Ashtavakra</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

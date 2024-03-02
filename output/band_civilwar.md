@@ -31,6 +31,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.10.2016 news CIVIL WAR выпускают новый альбом 4 ноября
+
+<p>Новый альбом power metal группы <strong>CIVIL WAR "The Last Full Measure"</strong> выйдет 4 ноября на <strong>Napalm Records</strong>. Ниже можно услышать лирик-видео на открывающую композицию<strong> "Road To Victory</strong>".</p><p>Трек лист:</p><p>1. Road to Victory&nbsp;&nbsp; <br>2. Deliverance&nbsp;&nbsp; <br>3. Savannah&nbsp;&nbsp; <br>4. Tombstone&nbsp;&nbsp; <br>5. America&nbsp;&nbsp; <br>6. A Tale That Never Should Be Told&nbsp;&nbsp; <br>7. Gangs of New York&nbsp;&nbsp; <br>8. Gladiator&nbsp;&nbsp; <br>9. People of the Abyss&nbsp;&nbsp; <br>10. The Last Full Measure&nbsp;&nbsp; <br>11. Strike Hard Strike Sure &nbsp;&nbsp; <br>12. Aftermath </p><p><center><img width="280" height="280" src="/images/news/2016.10/30033.jpg" border="0">&nbsp;<p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/uLTUQsI7O9M" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 01.10.2016 news CIVIL WAR to release new album November, 4; New lyric video
+
+<p>New album of power metal band <strong>CIVIL WAR "The Last Full Measure"</strong> will be released November 4 on <strong>Napalm Records</strong>. Below you can hear a lyric video for the opening song "<strong>Road To Victory</strong>".</p><p>Track list:</p><p>1. Road to Victory&nbsp;&nbsp; <br>2. Deliverance&nbsp;&nbsp; <br>3. Savannah&nbsp;&nbsp; <br>4. Tombstone&nbsp;&nbsp; <br>5. America&nbsp;&nbsp; <br>6. A Tale That Never Should Be Told&nbsp;&nbsp; <br>7. Gangs of New York&nbsp;&nbsp; <br>8. Gladiator&nbsp;&nbsp; <br>9. People of the Abyss&nbsp;&nbsp; <br>10. The Last Full Measure&nbsp;&nbsp; <br>11. Strike Hard Strike Sure &nbsp;&nbsp; <br>12. Aftermath </p><p><center><img width="280" height="280" src="/images/news/2016.10/30033.jpg" border="0">&nbsp;</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/uLTUQsI7O9M" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 03.11.2016 news CIVIL WAR выпустили клип
+
+<p>Шведы <strong>CIVIL WAR</strong> выпустили видео на песню "<strong>Tombstone</strong>". Трек выйдет на новом альбоме "<strong>The Last Full Measure</strong>" завтра. Релиз состоится на <strong>Napalm Records</strong> и в России на Союзе.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/yFFZPOWeOdE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 03.11.2016 news New video of CIVIL WAR
+
+<p>The Swedes<strong> CIVIL WAR</strong> has released a video for the song "<strong>Tombstone</strong>". The track will be released on a new album, "<strong>The Last Full Measure</strong>" tomorrow. It will be&nbsp; released on <strong>Napalm Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/yFFZPOWeOdE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.06.2011 news Metalism выпустил СТАХАНОВЦЕВ
+
+<P>На московском лейбле <STRONG>Metalism Records</STRONG> вышел дебютный альбом томской группы<STRONG> СТАХАНОВЦЫ "Шахта слабаков не терпит"</STRONG>. Именуя свой стиль не иначе как miner metal (шахтер-метал), концепция которого выражается главным образом в текстах: только шахты, уголь и адский шахтерский труд (конечно, без изрядной доли юмора здесь не обошлось), <STRONG>СТАХАНОВЦЫ</STRONG> в своей музыке смешивают различные направления металла, взяв за основу thrash metal. Одна из особенностей группы заключается в том, что основные вокальные партии исполняет барабанщик.</P>
+<P>Аудио: <A href="http://www.last.fm/music/Стахановцы/Шахта+слабаков+не+терпит">http://www.last.fm/music/Стахановцы/Шахта+слабаков+не+терпит</A></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/40qZWtqxwRQ?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/40qZWtqxwRQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -242,6 +242,401 @@ Co-Produced By PANTERA.
 * C группой "Damageplan" Dimebag Darrell (guitar)
 * C группой "Damageplan" Vinnie Paul (drums)
 
+## Публикации
+
+### 28.02.1999 news 
+
+<p>Toni Iommi - гитарист из Black Sabbath, пригласил на запись своего сольного альбома, который по его словам должен выйти в Августе/Сентябре, Skin(Skunk Anansie), Billy Corgan (Smashing Pumpkins), Phil Anlsemo (Pantera), Chino Moreno (Deftones) and Fred Durst (Limp Bizkit).</p>
+
+Автор: Vit Belov
+
+### 28.02.1999 news 
+
+<p>Бассист Pantera - Rex присоеденился к группе Down.</p>
+
+Автор: Vit Belov
+
+### 12.03.1999 news 
+
+<p>Pantera отказались от идеи записи альбома, состоящего из каверов на песни Black Sabbath. Вместо этого группа начинает запись своего шестого полнометражного релиза.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Pantera записала кавер на песню Black Sabbath "Electric Funeral". Песня войдёт на tribute to Black Sabbath "Nativity In Black II". В свою очередь записывается tribute to Pantera, на котором появятся Pissing Razors, Broken Hope и другие малоизвестные команды. CD выйдет в декабре.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Pantera записывает новый альбом в своей собственной студии в Техасе. Альбом появится в середине октября.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Источники близкие к группе Pantera сообщают, что новый их альбом будет самым брутальным за всю историю коллектива. Дата его выхода пока не уточняется, но известно, что после выхода CD группа отправится в турне вместе с Metallica.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Новый альбом Pantera "Reiventing The Steel" выйдет 21 марта.</p>
+
+Автор: Vit Belov
+
+### 07.04.2000 reviews 
+
+<p>На обложке написано: "Первый студийный альбом Pantera за 4 года. Включая песню "Revolution Is My Name"". Я посмотрел и подумал: "Матушки мои, так давно не было Pantera!" С нетерпением вставил диск и подумал, что вряд ли стоило расстраиваться по этому поводу. Фил Ансельмо и компания замочили всё тот же брутальный трэш, как и всегда. Revolution Is My Name прошла для меня в общем потоке, "расслабляющей" музыки, которая расплавила мне мозг. Отличный забой, от которого умирает всё живое вокруг. Включите погромче и соседи начнут бросаться из окон. Классика американского трэша, купить всем любителям. Меня критикуют за эту фразу, но, всё же, скажу: "ничего нового".</p>
+
+Автор: Vit Belov
+
+### 20.09.2000 news Саундрек к фильму Dracula 2000
+
+<p> В саундтрек к новому фильму "Dracula 2000" войдут песни таких групп, как Slayer, Pantera, Static-X, Disturbed, Powerman 5000.</p>
+
+Автор: Nybras
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 11.11.2000 news Группа Pantera отменила ряд концертных выступлений
+
+<p> Pantera отменили ряд своих концертных выступлений, из-за того, что вокалист Фил Ансельмо поломал 2 ребра и очень плохо себя чувствует в настоящий момент. Впервые за четырнадцатилетнюю карьеру, группе пришлось отменить своё турне.</p>
+
+Автор: Nybras
+
+### 06.12.2000 news Закончена запись &quot;Avoid The Light&quot;
+
+<p>"Пантера" закончили запись песни для саундтрека "Dracula 2000". Она называется "Avoid The Light" и будет выпущена 12 декабря 2000.</p>
+
+Автор: Yermola
+
+### 10.12.2000 articles PANTERA: звериный оскал хищника в моде
+
+<p> Наверное, самый долгожданный альбом в мире хэви-метал выпустила американская группа Pantera – эту работу ожидали четыре года. И альбом “Reinventing The Steel” не обманул ожиданий поклонников группы – Pantera сохранила всю свою звериную, хищную энергетику. Как результат – новый виток популярности этой и без того известной группы.</p>
+<p> В новой работе, как, впрочем, и на протяжении всей карьеры, Pantera удается то, что удавалось со времен Black Sabbath и Deep Purple только группам-одиночкам на очень короткий период – воспроизвести атмосферу поиска форм тяжелой музыки, когда нет стандартов и штампов, и любой ход может стать ошибкой или гениальной находкой. Для Pantera это экспериментаторство длится уже по меньшей мере десять лет – были и ошибки, и гениальные находки. “Reinventing the Steel” - очередной альбом, где группа играет на грани фола, нарушая правила композиции, гармоний и тональностей. Новые идеи на этой пластинке густо перемешены с уже утвержденными приемами в хэви-метал, которые, однако, от такой подачи неожиданно звучат помолодевшими, словно бы их только что изобрели и они сверкают и ревут первозданной яростью. Название альбома – возвращение стали – оправдано полностью.</p>
+<p> Кстати, на этом диске реанимирован гранж – сквозь призму дэс-метал (песни “You’ve gotta belong to it”, “Death Rattle”), а модный ныне хардкор однозначно зачислен в разновидность хэви-метал (“Yesterday don’t mean shit”). С чисто технической точки зрения гитарная часть построена на использовании стандартных риффов хэви-метал конца 80-х, а блюзовые фигуры, но которых основаны многие хиты группы, проскальзывают очень редко. В отдельных композициях используется структура классического крепкого хард-рока конца 70-х, только вот в области гармонии неожиданно потяжелевшего и загрубевшего, с налетом ржавчины (“Uplift”). Есть даже «ответ» SLAYER, которые своим недавним альбомом попытались сыграть в духе Pantera, но неудачно – в финальной “I’ll cast in shadow” PANTERA намерено играет те же идеи, но гораздо сильнее. Кстати, гитарист Slayer, Керри Кинг, принял участие в записи одной из песен (“Goddamn Electric”), в котором вокалист Филип Ансельмо также поет о том, что он нашел рецепт вечной молодости. Внимание, составляющие – бутылка виски и музыка Black Sabbath и Slayer. И после этого коктейля смерть вам не грозит!</p>
+<p> Может показаться, что новый альбом не так хорош, как его предшественник 1996 года «The Great Southern Trendkill», но по той лишь причине, что этот предшественник – шедевр, каких в вообще истории рока не так уж много, и он обеспечил Pantera место в пантеоне рока. А “Reinventing The Steel” продолжает общую линию развития группы – играть тяжело, тяжелее, еще тяжелее… Вот что говорят о новой работе сами музыканты:</p>
+<p> Даймбег Даррел, гитарист: «Я записал все свои риффы, пронумеровал их – и на записи можно было выдирать – ну что сегодня работаем над номером 1-3 или вы предпочитаете №68? Хотя все и так пришли со своими идеями… У нас не было четкого срока – это же моя домашняя студия! Мы завершали работу тогда, когда она была завершена. На предыдущих альбомах каждый раз приходилось говорить – давайте, это надо было сделать еще вчера! В результате что-то звучало иначе, чем мы хотели бы. Но на этот раз мы не работали под стволом пистолета! Мы спокойно сидели в моей домашней студии и напивались пива!</p>
+<p> То, что нам удалось записать – наша религия, то, что движет мной с утра до ночи. Мы не стесняемся того, кем мы являемся. У нас нет кризиса имиджа, мы не сотрудничаем со всеми подряд и не пытаемся писать хиты. Мы не стали записывать 17 писать и кричать на радио о том, как это дерьмо. М решили сделать десять тяжелейших песен – и вот они!»</p>
+<p> Барабанщик Винни Пол добавляет: «Особая черта альбома – мелодичное пение. Наш вокалист Фил пришел в студию – и никто не выкручивал ему руки, чтобы он решил петь мелодичнее! Он сам напросился!»</p>
+<p> Но более всего альбом характеризует мнение одного из распространителей компакт-дисков в США: «Есть группы, которые никогда не остановятся – музыкантам будет далеко за сорок, а они будут идти на концерты – как KISS. Pantera именно такая группа. Они держат своих фэнов качественной музыкой уже десять лет – и наверняка будут продолжать в том же духе».</p>
+<p> Ну а если вы еще сомневаетесь в ценности этого произведения, то вот вам факт – в первую неделю в США было продано 163.000 копий, и пластинка попала на 4 место в хит-парад журнала «Биллборд», чьи строчки, между прочим, прямая рекомендация на «Грэмми».</p>
+<p></p>
+
+Автор: Tornado
+
+### 12.01.2001 news Revolution is My Name
+
+<p>Pantera номинирована на Grammy awards!!! Revolution is My Name проходит в категории "Best Metal Performance". Церемония награждения пройдет 21 февраля.</p>
+
+Автор: Yermola
+
+### 12.01.2001 news Revolution is My Name
+
+<p>Salute Pantera for their Grammy nomination! Revolution is My Name is up for the "Best Metal Performance" category. The awards will be shown on February 21, 2001 (8PM ET/PT).</p>
+
+Автор: Yermola
+
+### 19.02.2001 news Новый хозяин Baphomet Records
+
+<p>"Baphomet Records" переименовались в "Baphomet/Housecore". Новым владельцем наряду с Killjoy стал.... Philip Anselmo(PANTERA)! Сейчас лэйбл заканчивает запись диска "NECROPHAGIA" - Harvest Ritual, и видео "Cannibal Holocaust".</p>
+
+Автор: Yermola
+
+### 19.02.2001 news Baphomet Records new owner
+
+<p>KILLJOY's label, Baphomet Records, will now be known as Baphomet/Housecore. The reason for this expansion is that the company is now owned by Killjoy and PANTERA's Philip Anselmo. They are in the process of getting things finaliazed and more details about distribution will be forthcoming. In other NECROPHAGIA news, the band have recently recorded a new song and video for the Cannibal Holocaust DVD. Also the new VIKING CROWN release has just been mixed as well as three new EIBON songs. Through all of this, Killjoy and Anselmo will continue to write the new material for the upcoming new Necrophagia full length, Harvest Ritual, as well as writing the new material for AMICUSS, the band featuring Caset Chaos of AMEN, Killjoy and Philip Anselmo. Ross Robinson will be producing their debut.</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Tour dates 2
+
+<p>PANTERA w/Soulfly, Nothingface, &amp; \M/orbid Angel<BR>3/5 Hara Arena - Dayton, OH<BR>3/6 Mellon Arena - Pittsburgh, PA<BR>3/8,9,10 Hammerstein Ballroom - New York, NY<BR>3/11 First Union Center - Philadelphia, PA<BR>3/13 Mid Hudson Civic Center - Poughkeepsie, NY<BR>3/14 Towsen Center Arena - Towsen, MD<BR>3/15 Tsongas Arena - Boston, MA<BR>3/16 Civic Center - Lewiston, ME<BR>3/18 Pepsi Coliseum - Indianapolis, IN<BR>3/20 The Myraid - Oklahoma City, OK<BR>3/21 Freeman Coliseum - San Antonio, TX<BR>3/23 Fair Park Coliseum - Dallas, TX<BR>3/24 Concrete Street Amphitheater - Corpus Christi, TX<BR>3/25 Reliant/Astro Arena - Houston, TX<BR>3/27 Villa Real Convention Center - McAllen, TX<BR>3/29 Mississippi Coast Coliseum - Biloxi, MS<BR>3/30 Tabernacle - Atlanta, GA<BR>4/1 Sunshine Music Theater - Miami, FL<BR>4/2 Hard Rock Live - Orlando, FL<BR><BR><BR></p>
+
+Автор: Yermola
+
+### 19.03.2001 news Песни Апокалипсиса...
+
+<p>SLAYER близок к завершению записи своего грядущего альбома (рабочее название "Soundtracks Of The Apocalypse"). Сейчас команда в Ванкуверской Warehouse Studios совместно с продюссером Мэттом Хайд заканчивают выбор песен. 17 вещей уже записано, из них только 14 войдут на диск, а остальные будут опубликованы в виде бонус-треков и b-sides. Пока что отобраны: 01. Threshold 02. Disciple 03. Addict 04. Exile 05. Payback 06. Seven Faces 07. Godsend Death 08. New Faith 09. Deviance 10. Scarstruck 11. Here Comes The Pain 12. Gore Point 13. Warzone. Выход альбома запланирован на май, сразу после Американского тура с PANTERA, STATIC-X, MORBID ANGEL, C.O.C., HALFORD и SKRAPE.</p>
+
+Автор: Yermola
+
+### 19.03.2001 news Soundtracks Of The Apocalypse...
+
+<p>SLAYER are completing the recording process for their forthcoming album (possible working title: Soundtracks Of The Apocalypse) at Warehouse Studios in Vancouver with producer Matt Hyde. 17 songs have been reportedly been written for the record, with 14 due to be included in the final sequence and the remainder to be used as bonus tracks or b-sides/EP cuts. Working song titles include: 01. Threshold 02. Disciple 03. Addict 04. Exile 05. Payback 06. Seven Faces 07. Godsend Death 08. New Faith 09. Deviance 10. Scarstruck 11. Here Comes The Pain 12. Gore Point 13. Warzone The album is tentatively scheduled to be released in May, to be followed by the band's North American tour with PANTERA, STATIC-X and MORBID ANGEL (other rumored acts on the bill include C.O.C., HALFORD, and SKRAPE), which is set to start in June.</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Нецивилизованные BIOHAZARD ....
+
+<p>BIOHAZARD до сих пор ищут лэйбл для реализации в Америке нового СД "Uncivilization". В Европе альбом выходит 25 июня на SPV / Steamhammer Records. Среди гостей на диске отметились Phil Anselmo ("PANTERA"), Peter Steele ("TYPE O NEGATIVE"), Igor Cavalera и Derrick Green ("SEPULTURA"), и участники HATEBREED, NAUGHTY BY NATURE и CYPRESS HILL. По обещаниям группы альбом являет возвращение к хард-коровым корням.</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Uncivilization .....
+
+<p>BIOHAZARD are still in negotiations with several US labels for the release of the group’s forthcoming Uncivilization CD, which is scheduled to be issued in Europe through SPV / Steamhammer Records on June 25th. The album, which features guest appearances from PANTERA’s Phil Anselmo, TYPE O NEGATIVE’s Peter Steele, SEPULTURA’s Igor Cavalera and Derrick Green, members of HATEBREED, NAUGHTY BY NATURE and CYPRESS HILL, is reportedly the group’s most diverse effort to date, with several of the tracks marking a return to the group’s hardcore roots while others are said to be unlike anything the band had ever done before.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news Подробности о Uncivilization - BIOHAZARD.....
+
+<p>BIOHAZARD договорились с Sanctuary Records о дистрибуции "Uncivilization" в Северной Америке. Выход альбома запланирован на Июль. Похоже,что при записи в качестве "гостей" собралась "веселенькая" компания: Сепультурцы Andreas Kisser и Derrick Green отметились на треке "Trap", драммер Igor Cavalera присутствует на "Gone", Phil Anselmo ("PANTERA") поет на HFFK (Hate, Fuck, Fight, Kill - гы-гы...), Sen Dog ("CYPRESS HILL") - рэп на "Last Man Standing", также в ряде треков бэк и лид вокалы исполнены членами HATEBREED и Peter Steele ("TYPE O NEGATIVE"). Трек-лист: 01. Unified 02. Population Control 03. HFFK 04. Last Man Standing 05. Getaway 06. Gone 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news BIOHAZARD&#39;s forthcoming Uncivilization CD....
+
+<p>As previously reported, BIOHAZARD's forthcoming Uncivilization CD — due for release in Europe on June 25th through SPV/Steamhammer Records — is turning out to be a guest-heavy affair, with SEPULTURA's Andreas Kisser and Derrick Green appearing on a track called "Trap", SEPULTURA drummer Igor Cavalera playing percussion on the song "Gone", PANTERA's Phil Anselmo screaming his way through "HFFK (Hate, F.ck, Fight, Kill)", CYPRESS HILL's Sen Dog rapping on "Last Man Standing", and HATEBREED members contributing backing and lead vocals to various cuts on the CD (TYPE O NEGATIVE's Peter Steele also appears on an as-yet-unspecified track). BIOHAZARD have just returned from their recent South American jaunt, where they reportedly premiered new material to a great reaction from the group's rabid Latin American fans: "South America was awesome, we had a great time," guitarist Billy Graziadei told Metal Hammer. "It's so incredible to be able to tour countries like Chile where I can donate my precious digital camcorder to such financially handicapped people." Uncivilization has yet to receive an official US release date, but reports indicate that an announcement will be made shortly regarding BIOHAZARD's much-rumored signing with Sanctuary Records for the North American territory, with the album likely to be made available domestically through the label sometime in July. Uncivilization is tentatively scheduled to include the following tracks: 01. Unified 02. Population Control 03. HFFK (Hate, F.ck, Fight, Kill) (feat. PANTERA's Phil Anselmo) 04. Last Man Standing (feat. CYPRESS HILL's Sen Dog) 05. Getaway 06. Gone (feat. SEPULTURA's Igor Cavalera) 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap (feat. SEPULTURA's Andreas Kisser). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.09.2001 news Tattoo The Planet European tour dates ...
+
+<p>SLAYER will reportedly carry on with their planned appearance at the revised dates on the upcoming European Tattoo The Planet tour, following PANTERA and STATIC-X’s decision to pull out of the trek. According to reports, SLAYER will head to Europe early next week to belatedly kick off the tour on Tuesday, September 18th in Leuven, Belgium. "I understand PANTERA's decision, but I think we'd be letting our European fans down if we cancelled the tour," said SLAYER bassist/vocalist Tom Araya. "We all have families, and are concerned about the potential dangers. But many kids in Europe have experienced attacks and assaults and terrorism throughout their lives, so I think SLAYER should make the effort to go over there and play for them. As a band, we simply refuse to play into the hands of these terrorists, we won't allow them to disrupt our lives any further." BIOHAZARD, who are currently in Los Angeles, California trying to get a flight out to Europe to play the rest of the dates on the tour with SLAYER, are hoping to make it to the European continent by Tuesday. Joining the two bands on the revised bill will be VISION OF DISORDER, who are currently overseas headlining several club gigs in the place of BIOHAZARD. The rescheduled Tattoo The Planet European tour dates are as follows: <br> Sept. 18 – Brabanthal - Leuven, BEL <br> Sept. 20 - Palavobis - Milan, ITA <br> Sept. 22 - Sporthalle - Stuttgart, GER <br> Sept. 23 - Philipshalle - Dusseldorf, GER <br> Sept. 25 - Spodek Sporthall - Katowice, POL <br> Sept. 26 - Zenith - Munich, GER <br> Sept. 28 - Omnisports de Bercy - Paris, FRA <br> Sept. 29 – Statenhal - Den Haag, NETH <br> Sept. 30 – Sporthalle - Hamburg, GER <br> Oct. 01 – Vega - Copenhagen, Denmark (SLAYER only) <br> Oct. 02 – Horvet - Stockholm, Sweden <br> Oct. 04 – Ishallen - Helsinki, Finland <br> Oct. 06 – Arena - Berlin, Germany <br> Oct. 08 – Vokhaus - Zurich, Switzerland <br> Oct. 09 – The Point - Dublin, Ireland <br> Oct. 11 – SECC - Glasgow, Scotland <br> Oct. 13 – Wembley Arena - London, England <br> Oct. 14 – NEC Arena - Birmingham, England <br> Meanwhile, STATIC-X have issued their own statement explaining their reasons for canceling their involvement with the festival. It reads as follows: "STATIC-X would like to offer extreme condolences and express our heart-felt support for all those affected by the disasters in New York City and Washington DC on Tuesday. We were all horrified and appalled at these events and our lives were turned upside-down. "We had a great time on our recent tour of Europe, May-June, with SLIPKNOT. We were all looking forward to seeing our friends and fans there, and were excited about the prospect of touring with PANTERA, SLAYER, and CRADLE OF FILTH. But we made the decision to cancel our participation in the ‘Tattoo The Planet’ tour, scheduled to begin on Sept. 14. "The past four days have been spent making arrangements and accommodations to try to do this tour. We were all waiting to fly to Europe. Due to safety, financial and scheduling reasons culminating today, we made the decision to pull out of the tour. We look forward to coming back to Europe in the near future in support of Machine! Wayne Static — Ken Jay — Tony Campos — Tripp Eisen Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 30.10.2001 news DOWN, featuring PANTERA vocalist Philip Anselmo...
+
+<p>The tentative title of the forthcoming sophomore effort from New Orleans’ DOWN, featuring PANTERA vocalist Philip Anselmo, PANTERA bassist Rex Brown, C.O.C. drummer Jimmy Bower, C.O.C. guitarist Pepper Keenan, and CROWBAR guitarist Kirk Windstein, is The Backwood Heavies. As previously reported, The Backwood Heavies will be recorded during November/December at former UGLY KID JOE guitarist Dave Fortman’s Balance Studios in New Orleans, where CROWBAR laid down their most recent effort, Sonic Excess In Its Purest Form. <BR> <BR> In related news, New Orleans’ SOUTHERN ISOLATION (formerly BODY & BLOOD), which features in its ranks Phil Anselmo on guitar, Phil’s girlfriend Stephanie Opal on vocals, “Big” Ross Karpelman (CHRIST INVERSION) on keyboards, Kevin Bond (i.e. CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) on bass, and Sid Montz on drums, will be issuing their self-titled MCD on October 30th via Baphomet/Housecore Records. The full track listing for the effort is as follows: <BR><BR> 01. Blue Bird (Make You Shine) <BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)<BR> <BR></p>
+
+Автор: Yermola
+
+### 30.10.2001 news Неугомонный Филипп Ансельмо...
+
+<p>Нью-Орлеанский проект "DOWN", имеющий в своем составе вокалиста "PANTERA" - Philip Anselmo, бассиста "PANTERA" - Rex Brown, барабанщика "C.O.C." - Jimmy Bower, гитариста "C.O.C." - Pepper Keenan и гитариста "CROWBAR" - Windstein - объявил название для своего нового альбома - "The Backwood Heavies". Писаться это творение будет в Ноябре/Декабре в студии участника "UGLY KID JOE" - Dave Fortman - Balance Studios (в ней записывались "CROWBAR" - альбом "Sonic Excess In Its Purest Form")... <BR><BR> Из родственных новостей, команда "SOUTHERN ISOLATION" состоящая из Фила Ансельмо (гитара!!!), его подружки Stephanie Opal (вокал), “Big” Ross Karpelman ("CHRIST INVERSION") - клавиши, Kevin Bond (CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) - басс и Sid Montz (барабаны), тридцатого октября выпустили альбом с аналогичным названием на Baphomet/Housecore Records. Трек-лист релиза: <BR> <BR> 01. Blue Bird (Make You Shine)<BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)</p>
+
+Автор: Yermola
+
+### 21.12.2001 news Блэк металл из страны суши и харакири...
+
+<p><IMG SRC="/images/bands_rus/2001.12/2185.jpg" ALT="pho" width="175" height="250" hspace="15" vspace="5" border="1" align="left" /> Помимо занятий своим национальным видом спорта "харакири" и употребления суши под рюмочку другую сакэ, настоящие самураи играют еще и блэк-металл. Новый альбом черепашек-ниндзя "Sigh" будет называться "Gavotte Grim" и продолжит психоделическую линию взятую на "Imaginary Sonicscape". Сейчас команда как раз посередине процесса записи о котором фронтмэн Mirai сказал, что это будет "...мощнейший прогресс!". Сам Mirai исполнит обязанности вокалиста и клавишника, а обязанности бассиста исполнит Yasuyuki из Abigail. <BR><BR> Из других новостей, прошлый альбом "Imaginary Sonicscape" будет переиздан на двойном виниле шведской Metal Fortress Entertainment. Также Sigh принимают участие на трибьюте Джона Колтрэйна с вещью "Spiritual". Альбом выйдет на Mainstream Records. Что касается проекта "Enoch", состоящего из Mirai, Necrophagia'вского Killjoy и Фила Ансельмо из "Pantera", дата выхода дебюта пока отложена на неизвестное время. <BR><BR> "Gavotte Grim" выйдет в середине 2002 на Century Media Records. Б-А-А-Н-З-А-А-Й-Й!!!!!!!!!!</p>
+
+Автор: Yermola
+
+### 21.12.2001 news Sigh have given, Gavotte Grim, as the title of the follow-up to Imaginary Sonicscape...
+
+<p><IMG SRC="/images/bands_rus/2001.12/2185.jpg" ALT="pho" width="175" height="250" hspace="15" vspace="5" border="1" align="left" /> Japanese psychedelic black metallers Sigh have given, Gavotte Grim, as the title of the follow-up to Imaginary Sonicscape. <BR><BR> The band are already in the middle of writing for the album and it appears frontman Mirai says it'll be Sigh's "greatest progression yet." If Mirai stays true to his word, the metal world can only wonder what will be on Sigh's sixth studio album. In band related news, Mirai will take over keyboards and vocals, so the band can search for a permanent bassist. It looks like Yasuyuki of Abigail will be the man for the job, but Sigh isn't saying if he's an actual member yet. <BR><BR> In similar news, Sigh's Imaginary Sonicscape will be released on double vinyl on Sweden's Metal Fortress Entertainment. A release date hasn't been set yet. Sigh will also partake on the upcoming John Coltrane tribute, where the band will cover "Spiritual" from Coltrane's Village Vanguard album. The tribute album will be on Mainstream Records. Also, Enoch, featuring Mirai, Necrophagia's Killjoy and Pantera's Phil Anselmo, will not have their debut album happen anytime soon. The split 7" with Necrophagia has also been put on ice. Mirai cites the "current world climate" as reasons for these projects not happening. <BR><BR> Fans of Sigh can expect Gavotte Grim and the John Coltrane tribute album out sometime in mid- to late-2002. Gavotte Grim will be on Century Media Records.</p>
+
+Автор: Yermola
+
+### 29.12.2001 news Встретились весною дети с Лениным или REBEL MEETS REBEL....
+
+<p>Почти готов дебютный альбом проекта "REBEL MEETS REBEL" собравшего под своими знаменами участников "PANTERA" - Philip Anselmo, Rex Brown, Darrell и кантри-звезду David Allan Coe... Пол называет это "кантри-хэви металл". Уже смикшировано 6 песен: <BR><BR> 01. Heartworn Highway<BR> 02. A Man With Nothin' Ain't Got Nothin' to Lose<BR> 03. One Night Stand<BR> 04. New York City Streets<BR> 05. Get Outta My Life<BR> 06. Rebel Meets Rebel<BR><BR> Заглавный трек (“Rebel Meets Rebel”) представляет собой дуэт David Allan Coe и Philip Anselmo. Альбом выйдет на пантеровском лэйбле Elektra где-то после марта, но не позднее лета 2002...<BR><BR> Что касается самой PANTERA, команда занята с подготовкой материала DVD, скромненько названного "Pantera 4", который должен выйти также летом. "Это будут еще три наших года заснятых на видеоленту, все те вещи что мы делаем в туре..." - говорит Пол. "Наши фэны любят это дерьмо..." По поводу следующего студийника можно сказать только, что он выйдет не раньше 2003 года. "Мы находимся в безостановочном туре уже 12 лет и у нас просто нет времени на это. Также у всех нас есть сайд-проекты которые мы хотели бы запустить. Мы не торопимся обратно в студию, когда мы почуствуем себя комфортно, мы сделаем это..."</p>
+
+Автор: Yermola
+
+### 29.12.2001 news PANTERA Side Projects Galore, Cantrell To Join New Year&#39;s Eve Gig...
+
+<p>ALICE IN CHAINS guitarist Jerry Cantrell will perform acoustic versions of the ALICE tunes "Got Me Wrong" and "Rooster" at the New Year's Eve show of GASOLINE, the metallic southern rock side project of PANTERA guitarist Dimebag Darrell and drummer Vinnie Paul, which is set to take place at Dallas' Bronco Bowl on December 31st. Also scheduled to appear on the bill are DROWNING POOL, SEVENDUST and UNION UNDERGROUND. GASOLINE, which is completed by PUMPJACK vocalist Thurber T. Mingus and bassist Sean Time, will follow up the Bronco Bowl performance with a midnight gig at Vinnie and Darrell's strip club, the Clubhouse. <BR><BR> "PANTERA hasn't played on New Year's Eve for a while, and sitting around the house watching Dick Clark ring in the new year kind of sucks," Vinnie Paul told MTV News. "That's why we put this thing together."<BR><BR> GASOLINE will play covers by TED NUGENT, THIN LIZZY and PAT TRAVERS, as well as six originals, all of which have already been demoed. At the moment, there are no plans for the group to release a studio album.<BR><BR> Also on the agenda for members of PANTERA is the upcoming sophomore release from DOWN, featuring contributions from PANTERA frontman Philip Anselmo and bassist Rex Brown, and the debut album from Paul, Darrell and Brown's much talked-about collaboration with country star David Allan Coe, which is going by the name REBEL MEETS REBEL. Described by Paul as a “country/heavy metal hoe-down," REBEL MEETS REBEL has reportedly finished mixing six songs so far, including the following:<BR><BR> 01. Heartworn Highway<BR> 02. A Man With Nothin' Ain't Got Nothin' to Lose<BR> 03. One Night Stand<BR> 04. New York City Streets<BR> 05. Get Outta My Life<BR><BR> The title track (“Rebel Meets Rebel”) will allegedly be a duet with PANTERA singer Philip Anselmo. The album, the first right of refusal to which belongs to PANTERA's label Elektra, is tentatively scheduled to be issued sometime between March and the summer. <BR><BR> As for PANTERA themselves, the band is currently preparing the footage for an upcoming DVD, tentatively entitled Pantera 4, which is provisionally due for release in the summer.<BR><BR> "It will be another three years of video tape of us just being on the road, doing our thing," Paul told MTV. "Our fans love that sh.t and they're always coming up to us and mimicking things out of the home videos."<BR><BR> Fans anxiously anticipating another studio album from PANTERA should not hold their collective breaths—it is presently unlikely that the group's sixth major-label release will see the light of day before early 2003 at the earliest. According to Paul, “we've been on tour basically non-stop for 12 years and we've really never taken any time off. So at the end of our last tour we were like, 'Look, we all have some side projects we want to get out of the way. There's no hurry to get back in the studio, but when we all feel comfortable and ready to go we'll do it.' "</p>
+
+Автор: Yermola
+
+### 18.02.2002 news PANTERA&#39;s ANSELMO: &quot;Enough Is Enough&quot; ...
+
+<p>PANTERA frontman Philip Anselmo has sensationally hinted to the Dutch Aardschok magazine that he may quit the Texas metal act before another studio album is recorded. In the March 2002 issue of the publication, Anselmo states that “PANTERA was my home for many, many years. I don't have a problem with anyone in the band. PANTERA gave me a lot, and I wouldn't be the same person without them. But I think we lost a piece of what we once stood for. Reinventing [The Steel] was a step in the right direction, but it's just not like it used to be anymore. There is a time [when] you have to say: enough is enough. I don't want to be a heavy metal grandpa. I'm 33 and have broken all the bones in my body serving PANTERA. But I'm not 22 anymore. I just don't get the feeling I used to singing 'Cowboys From Hell' or 'Walk'. No one knows what the future holds, but our last tour was with SLAYER, and I don't think there could be a better-ending tour. I don't want to go on and on like JUDAS PRIEST or SABBATH. I prefer [the] SOUNDGARDEN [approach], who called it a day at the peak of their fame.” When pressed to be more specific about what this meant with respect to PANTERA's future, Phil responded simply that “it means what it means, and we shall see...” [translated from Dutch by Frank Iking]</p>
+
+Автор: Yermola
+
+### 18.02.2002 news Philip Anselmo уходит из PANTERA?!?!
+
+<p>Фронтмен "PANTERA" Philip Anselmo в интервью журналу Aardschok заявил, что собирается покинуть группу еще до записи следующего альбома. Как заявил Фил: "PANTERA была моим домом много много лет и у меня не было проблем ни с кем из команды. PANTERA дала мне очень много и я не смогу остаться тем же самым без нее... Reinventing [The Steel] был шагом в правильном направлении, но пришло время сказать: Все. Хватит! Я не хочу становиться heavy metal дедушкой.... Не хочется идти по пути JUDAS PRIEST или SABBATH, предпочитаю поступить как SOUNDGARDEN, которые ушли на пике карьеры... "</p>
+
+Автор: Yermola
+
+### 20.02.2002 news Ансельмо пошутил?
+
+<p>Ситуация вокруг заявления Фила Ансельмо об уходе из PANTERA сейчас выглядит совершенно запутанной. Скандальное интервью, выставленное ранее в интернет-журнале Blabbermouth, ныне удалено, а вместо него - история появления этого материала. Робин Дориан, журналист Kerrang!, взял интервью у Фила сразу после концерта, когда тот был пьян в стельку. Сразу после завершения разговора пленка из диктофона исчезла - журналист отвернулся всего лишь на пару минут. Дориан вновь встретился с Ансельмо через два дня. В результате из обрывков, восстановленных по памяти и нового интервью и родился тот скандальный материал. Участники PANTERA пока не делают никаких заявлений, в то врея как администратор форума на сайте PANTERA призвал всех воздержаться от обсуждения "этих слухов и дождаться официального релиза на сей счет".</p>
+
+Автор: Tornado
+
+### 21.02.2002 news PANTERA: к черту слухи, ждите альбом!
+
+<p>Филип Ансельмо ответил однозначным "нет" на все слухи о расколе внутри PANTERA. Менеджмент группы заявил, что "сторонние проекты всегда порождают слухи о распаде группы - таково правило".<BR> Виновник "торжества", Ансельмо, высказался проще: "Ну что я могу сказать? Я люблю PANTERA. Сейчас мне чертовски нраивтся работа с DOWN. Мне повезло – я могу делать великолепную музыку с двумя этими группами. Чуть позже, но непременно в этом году, PANTERA отправится в студию записывать новый альбом. Вот и все."</p>
+
+Автор: Tornado
+
+### 22.02.2002 news Десять Стрел на десяти ветрах... (Ой!) Десять диадем...
+
+<p>Норвеги "SATYRICON" опубликовали трек-лист юбилейного диска "Ten Horns — Ten Diadems" который выйдет вскорости в Скандинавии через Capitol Records. Из гостей отметились: Anja Garbarek, Knut Schreiner (TURBONEGRO) и Phil Anselmo (PANTERA). А песни будут такие: <BR><BR> 01. Filthgrinder <BR> 02. Dominions Of Satyricon <BR> 03. Forhekset <BR> 04. Night of Divine Power <BR> 05. Hvite Krists Dшd <BR> 06. Mother North <BR> 07. Supersonic Journey <BR> 08. Taakeslottet <BR> 09. (bonustrack) <BR> 10. Repined Bastard Nation (вещь с еще не вышедшего нового альбома)<BR><BR> Из других новостей, найден новый бассист в лице Lars Norberg (SPIRAL ARCHITECT) для грядущего тура команды и сейчас ведется поиск ритм-гитариста и клавишника.</p>
+
+Автор: Yermola
+
+### 25.02.2002 news Цифры продаж PANTERA....
+
+<p>В свете последних слухов об уходе или не уходе вокалиста Фила Ансельмо, интересно будет посмотреть на цифры продаж от Soundscan: <BR><BR> Cowboys From Hell - 1,284,564 <BR> Vulgar Display Of Power - 1,770,521 <BR> Far Beyond Driven - 1,302,417 <BR> Great Southern Trendkill - 754,988 <BR> Official Live: 101 Proof - 571,819 <BR> Reinventing The Steel - 565,978<BR><BR> Вот вам, заодно, и ответ на вопрос о лучшем альбоме группы.... :-))))</p>
+
+Автор: Yermola
+
+### 25.02.2002 news PANTERA: Soundscan Sales Revealed ....
+
+<p>Here are the sales figures for PANTERA's full-length studio albums in the US for the week ending February 17th, according to Soundscan (as reported by Metal Sludge): <BR><BR> Cowboys From Hell - 1,284,564 *<BR> Vulgar Display Of Power - 1,770,521 <BR> Far Beyond Driven - 1,302,417 <BR> Great Southern Trendkill - 754,988 <BR> Official Live: 101 Proof - 571,819 <BR> Reinventing The Steel - 565,978<BR><BR> * Does not include sales made prior to the introduction of the Soundscan system back in 1991.</p>
+
+Автор: Yermola
+
+### 29.03.2002 news Очередные откровения Ансельмо
+
+<p>"К черту современную музыку – я ее не слушаю. Я предпочитаю вещи 20-30-летней давности. Я не слушаю современных групп, ничего из того жанра, который я сам и помогал создавать. Если кто-то сдирает риффы с PANTERA, поет поверх этого рэп, прыгает при этом… Меня этим не впечатлить... На мой взгляд, группы типа CREED нужно тащить в суд – за то, что они внаглую воруют у PEARL JAM”.</p>
+
+Автор: Tornado
+
+### 07.06.2002 news PHILIP ANSELMO ушел из NECROPHAGIA ....
+
+<p>Вокалист Philip Anselmo ушел из "NECROPHAGIA". Теперь самурайская капелла имеет в своих рядах: Iscariah (ex-IMMORTAL, басс), Frediablo (GORELORD/WURDULAK, гитара), Fug (WURDULAK, гитара) и Mirai Kawashima (SIGH, клавиши). Дополненная главарем Killjoy и барабанщиком Wayne Fabra команда начинает запись очередного творения "The Divine Art Of Torture" для выхода на Season of Mist Records аккурат в праздник Хэлловин. Песни будут такие: <BR><BR> 01. Rue Morgue Disciple<BR> 02. Blaspheme the Body<BR> 03. Tombs Of Uncreation<BR> 04. Flowers of Flesh and Blood<BR> 05. Faceless</p>
+
+Автор: Yermola
+
+### 07.06.2002 news NECROPHAGIA Part With PHILIP ANSELMO...
+
+<p>NECROPHAGIA have parted ways with PANTERA frontman Philip Anselmo and have revamped their line-up with the addition of Iscariah (ex-IMMORTAL, bass), Frediablo (GORELORD/WURDULAK, guitars), Fug (WURDULAK, guitars), and Mirai Kawashima (SIGH, keyboards). The band—completed by mainman Killjoy and drummer Wayne Fabra—will shortly begin recording their new album, The Divine Art Of Torture, for a Halloween released through Season of Mist Records. Among the tracks set to appear on the forthcoming CD are: <BR><BR> 01. Rue Morgue Disciple<BR> 02. Blaspheme the Body<BR> 03. Tombs Of Uncreation<BR> 04. Flowers of Flesh and Blood<BR> 05. Faceless<BR><BR> Killjoy describes the new material as "very heavy, violent and horror-filled. It is in many ways a homage to Brazilian director Jose Mojica Marins, aka Coffin Joe. His films are extremely blasphemous and his visions directly influenced the mood for writing The Divine Art Of Torture. NECROPHAGIA also plans to work with Mr. Marins on a video, as well as appearing on some new kult horror/gore DVDs which will be announced shortly."</p>
+
+Автор: Yermola
+
+### 01.07.2002 news ALICE IN CHAINS, PANTERA, NICKELBACK, DEFAULT members discuss possible collaboration...
+
+<p>Former ALICE IN CHAINS guitarist Jerry Cantrell, PANTERA guitarist Dimebag Darrell, NICKELBACK guitarist/singer Chad Kroeger, and DEFAULT frontman Dallas Smith have had reportedly had discussions about a future all-star collaboration. However, the combo hasn't gotten past the talking stage, according to Cantrell. <BR> <BR> "Chad and I have talked about doing something, but we haven't really taken it any further than that," said the guitarist. "So, of course I'd love to do something with Darrell, anytime."</p>
+
+Автор: Natural born loser
+
+### 02.09.2002 articles Керри Кинг: Дайте шанс LINKIN PARK!
+
+<p>SLAYER сейчас в бесконечном турне, а у фэнов и журналистов, как всегда, море вопросов. Керри Кинг, гитарист трэш-легенды, в недавнем интервью www.metalupdate.com ответил на некоторые из них. Вот наиболее интересные откровения: <BR> - <I>Что ты думаешь об ARCH ENEMY?</I> <BR> - Это евро-метал. Возможно, это будет следующим этапом развития, многие люди скажут это, но мне хочется слышать больше агрессии.<BR> - <I>Как ты сам определяешь евро-метал</I>?<BR> - Более мелодичный. Заваренный на IRON MAIDEN. <BR> - <I>Тебе больше нравится евро-метал или nu-metal</I>?<BR> - Ни то, ни другое. Трэш!<BR> - <I>Что ты думаешь о тенденциях развития рэп-металла</I>?<BR> - Необходимое зло – нужно привнести жизнь в возможно умирающий жанр.... LINKIN PARK пишут цепляющие риффы для очень юной аудитории. Молодые люди очень восприимчивы к тому, что слушают их друзья. LINKIN PARK их и цепляют, так что дайте им шанс!<BR> - <I>SLAYER что-нибудь позаимствуют у LINKIN PARK</I>?<BR> - Не думаю, хотя я и слушаю их. Я пытаюсь понять, почему они столь значимы сегодня. Парень, что кричит в группе, черт, как его имя?… Он делает это убийственно – правда каждый раз, когда я натыкаюсь на них по радио, я переключаю канал – я слышал это слишком много.<BR> - <I>Есть люди, которые наверняка начнут подлизываться к тебе, узнав о том, что ты одобрил LINKIN PARK… </I><BR> - Это не одобрение – я просто сказал, что их крикун может хорошо кричать! (смеется). Себастьян Бах тоже мог делать это, но то, что он стал петь позже… Какого черта?!<BR> - <I>Что ты думаешь о MESHUGGAH</I>?<BR> - Они действительно хорошая группа. Слушаешь и думаешь – черт, да что же они делают?!<BR> - <I>Если бы пришлось называть группы, близкие к SLAYER – не точно такие же, а именно близкие, то</I>…<BR> - Один ответ на все времена – PANTERA. В них есть что-то – я не знаю, что именно. Они более блюзовые, у них есть южный кач, а "Becoming" – одна из лучших песен, когда либо написанных.<BR> - <I>Ты чувствуешь обязательства перед своими фэнами</I>?<BR> - Никаких обязательств – я и сам фэн! И я знаю, что хочу услышать.<BR> - <I>Худшая песня SLAYER</I>?<BR> - Моя худшая песня? Это с SOUTH OF HEAVEN, я всегда забываю ее название, так ее ненавижу! (смеется). "Cleanse The Soul" – ненавижу эту песню.<BR> - <I>Но "South of Heaven" – великий альбом</I>!<BR> - Правильно! Мне просто не нравится эта песня!<BR> Полный текст интервью доступен по адресу: <A HREF="http://www.metalupdate.com/features.htm">www.metalupdate.com/features.htm</A></p>
+
+Автор: Tornado
+
+### 01.08.2003 news Сборник вульгарных хитов
+
+<p>23 сентября на Elektra/Rhino Records готовится выход сборника лучших вещей группы PANTERA "The Best of Pantera: Far Beyond the Great Southern Cowboys' Vulgar Hits!". Альбом выйдет в формате CD, бонусом к которому будет DVD, содержащий 12 видео, среди которых 2 концертных номера. Окончательно трек-листы выглядят следующим образом:</p>
+<p> 1. Cowboys From Hell<BR> 2. Cemetary Gates<BR> 3. Mouth for War<BR> 4. Walk<BR> 5. This Love<BR> 6. I'm Broken<BR> 7. Becoming<BR> 8. 5 Minutes Alone<BR> 9. Planet Caravan<BR> 10. Drag the Waters<BR> 11. Where You Came From (Live)<BR> 12. Cat Scratch Fever<BR> 13. Revolution Is My Name<BR> 14. I'll Cast a Shadow<BR> 15. Goddamn Electric<BR> 16. Hole in the Sky</p>
+<p> Bonus DVD:</p>
+<p> 1. Cowboys From Hell<BR> 2. Psycho Holiday<BR> 3. Cemetary Gates<BR> 4. Mouth For War<BR> 5. This Love<BR> 6. Walk<BR> 7. 5 Minutes Alone<BR> 8. I'm Broken<BR> 9. Drag the Waters<BR> 10. Domination (Live)<BR> 11. Primal Concrete Sledge (Live)<BR> 12. Revolution Is My Name</p>
+
+Автор: Dimas
+
+### 10.12.2004 news Dimebag Darrell (DAMAGEPLAN, ex-PANTERA) убит
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сенсационная и грустная новсть пришла вчера из США. Во время одного из шоу тура по США с <STRONG>DAMAGEPLAN</STRONG> в <STRONG>Columbus Club Ohio</STRONG> был застрелен <STRONG>Dimebag Darrell</STRONG> - бывший гитарист <STRONG>PANTERA</STRONG>. Америка и весь музыкальный мир в шоке. Поступают соболезнования от всех ведущих музыкантов со всего мира. Кроме <STRONG>Dimebag</STRONG> погибло ещё&nbsp;3 человека. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Убийца также был застрелен, его имя <STRONG>Nathan Gale</STRONG>, ему было 25 лет. Он служил в морской пехоте. Сообщается, что он пытался перед концертом пообщаться с группой, но не был к ней допущен. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Совсем недавно сообщалось о разногласиях между <STRONG>Dimebag</STRONG> и его бывшим коллегой по <STRONG>PANTERA Phil Anselmo</STRONG>. Полиция рассматривает версию возможной связи между двумя событиями. Басист нынешней группы <STRONG>Anselmo SUPERJOINT RITUAL Hank Williams III</STRONG> уже сообщил, что <STRONG>Anselmo</STRONG> находится в шоке и не может общаться с прессой.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>R.I.P.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 12.12.2004 news Убийца Dimebag Darrell мстил за украденную лирику!?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Друг убийцы <STRONG>Dimebag Darrell</STRONG> (ex-<STRONG>PANTERA</STRONG>, <STRONG>DAMAGEPLAN</STRONG>) <STRONG>Nathan Gale</STRONG> сообщил, что он утверждал, что <STRONG>PANTERA</STRONG> украла у него стихи для одной из песен. Вероятно, это и стало причиной совершённого убийства.</FONT></P>
+Автор: Vit Belov
+
+### 16.12.2004 news Dimebag Darrell RIP - продажи альбомов выросли
+
+<P>После убийства <STRONG>Dimebag Darrell</STRONG> скачкообразно выросли продажи пластинок <STRONG>PANTERA </STRONG>и <STRONG>DAMAGEPLAN</STRONG>. </P>
+<P><STRONG>DAMAGEPLAN</STRONG> – <B>"New Found Power"</B> (2004):<BR>2 недели назад: 622<BR>Прошлая неделя: 7,020<BR>Всего на эту дату: 167,106<BR><B>PANTERA</B> - <B>"Best Of…"</B> (2003):<BR>2 недели назад: 1,928<BR>Прошлая неделя: 8,659<BR>Всего на эту дату: 290,597<BR><B>PANTERA</B> – <B>"Vulgar Display of Power"</B> (1992): <BR>2 недели назад: 741<BR>Прошлая неделя: 3,530<BR>Всего на эту дату: 1,923,171<BR><B>PANTERA</B> – <B>"Cowboys From Hell"</B> (1990):<BR>2 недели назад: 483<BR>Прошлая неделя: 2,825<BR>Всего на эту дату: 1,374,326<BR><B>PANTERA</B> – <B>"Far Beyond Driven"</B> (1994):<BR>Two weeks ago: 349<BR>Прошлая неделя: 1,941<BR>Всего на эту дату: 1,377,898 </P>
+Автор: Vit Belov
+
+### 08.01.2005 articles Dimebag Darrell: прошёл месяц
+
+<P><IMG height=397 alt="Одна из последних фотографий" hspace=0 src="/images/articles_rus/2005.01/7626.jpg" width=250 align=right border=5>Вот уже прошло больше месяца со дня смерти знаменитого гитариста Dimebag Darrell (настоящее имя – Darrell Abbott). Что же произошло 8 декабря в Коламбусе, штат Охио? Как прореагировала общественность на произошедшее? Что происходит сейчас в этом клубе? Как себя чувствуют бывшие коллеги Darrell по DAMAGEPLAN и PANTERA?</P>
+<P>Напомним, вечером в среду 8 декабря 2004 года в ночном клубе произошла перестрелка, в которой был застрелен Dimebag Darrell, а также 3 человека из зала. Психически неуравновешенный убийца был застрелен полицейскими на месте преступления. Этот человек выскочил на сцену во время исполнения первой песни и открыл стрельбу. Новость была мгновенно распространена в сети Интернет, и всё мировое металл-сообщество было шокировано.</P>
+<P>Честно говоря, я был удивлён, приятно, реакцией музыкальных кругов, прежде всего, в Штатах. Мы отбросим обвинения в популизме, а отметим, что не было ни одного музыканта, который не высказался через прессу. Вот лишь некоторые цитаты:</P>
+<P>«Dimebag был моим большим другом. Я просто не в себе от горя. Я не смогу понять того, что произошло в течение всей жизни», - Ozzy Osbourne.</P>
+<P>«Мы не должны никогда забывать его жизнь и его дары, его гений, его наследие…», - Dave Mustain (MEGADETH).</P>
+<P>«Огромная любовь и благодарность за то, что я был малой частью его жизни. Я знаю, что они уже веселятся вместе: Bon Scott, Keith Moon, John Bonham, Jimi, Cliff B. и другие безвременно ушедшие музыканты», - Lars Ulrich (METALLICA).</P>
+<P>«PANTERA вдохновила меня создать LIMP BIZKIT», - Fred Durst (LIMP BIZKIT).</P>
+<P>«Dimebag был Рок’н’Рольной легендой», - Shawn Crahan (SLIPKNOT).</P>
+<P>&nbsp;«Это событие такое же невероятное и трагичное, как убийство John Lennon», - Mike Portnoy (DREAM THEATER).</P>
+<P>«Я был просто поражён, услышав эту новость. Никогда невозможно представить, как жестоки, могут быть люди», - Guy Carbonneau (обладатель Кубка Стэнли в составе Dallas Stars (хоккейная команда из родного города Darrell)).</P>
+<P><IMG height=207 alt="Вывеска клуба в тот вечер" hspace=0 src="/images/articles_rus/2005.01/7627.jpg" width=250 align=left border=5>Особенно интересна была реакция бывшего коллеги Abbott по PANTERA Phil Anselmo, ведь буквально накануне смерти первого он высказывался «примерно в таком духе»: «Dimebag Darrell заслуживает избиения!» Ругань началась всего лишь за несколько месяцев до убийства. Через прессу Darrell и его брат Vinnie Paul (барабанщик PANTERA и DAMAGEPLAN) обвинили Anselmo в том, что тот буквально кинул их, покинув PANTERA и никому не сообщив о своём решении. Phil не заставил себя ждать и откликнулся тирадой, основной мыслью которой стала вышеприведённая цитата. И вот всего лишь через неделю после последних препирательств Darrell погибает. Anselmo не позавидуешь. На следующий день басист нынешней группы фронтмэна SUPERJOINT RITUAL Hank Williams III заявил, что их лидер находится в шоке и не может выступить с заявлением. Более того, Phil не был допущен на похороны. Лишь через несколько недель в сети появилась запись высказываний Anselmo, где он выглядел, мягко говоря, жалко. Можете посмотреть сами: <A href="http://mfile.akamai.com/2838/wmv/cablev.download.akamai.com/2838/fuse/uranium/2004-12-28_anselmo_hi.asx">http://mfile.akamai.com/2838/wmv/cablev.download.akamai.com/2838/fuse/uranium/2004-12-28_anselmo_hi.asx</A></P>
+<P><IMG height=150 alt="Nathan Gale" hspace=0 src="/images/articles_rus/2005.01/7625.jpg" width=200 align=right border=5>Кто же убил Darrell? Информация о стрелявшем появилась буквально на следующий день. Nathan Gale, двадцати пяти лет отроду, из Марисвилля поднялся на сцену клуба Alrosa Villa и открыл огонь примерно в 10 часов вечера. Убийца служил в морской пехоте США. Скорее всего, мы уже не узнаем причин его действий, но некоторая информация стала доступна. Например, стрелок пытался поговорить с членами DAMAGEPLAN до концерта или рассказывал своим знакомым, что PANTERA украла у него лирику для некоторых своих песен. Всё это не важно. Важно, что человек с пистолетом смог проникнуть в клуб, поднялся на сцену и открыл стрельбу, и никто не смог ему помешать. Мне думается, многие музыканты будут теперь задумываться прежде, чем выйти на сцену в США. Кстати, клуб заново откроется на днях, а его хозяин сообщил прессе, что администрация всё равно не смогла бы ничего сделать.</P>
+<P>Ситуация вокруг убийства вызывает несколько странные чувства. Обилие славословий, музыканты, пусть и не знавшие Darrell лично, но игравшие металл, засветились, где только можно. Множество репортажей (странно, что наша пресса пропустила это событие), ток-шоу, увеличившиеся в разы продажи дисков PANTERA и DAMAGEPLAN… И всё же, сложно поверить в искренность такого количества людей, ведь до убийства о Darrell вспоминали только, когда он обзывал Anselmo нехорошими словами.</P>
+<P>МЫ ДЕЙСТВИТЕЛЬНО ПОТЕРЯЛИ ОЧЕНЬ ХОРОШЕГО ГИТАРИСТА, пусть и его нынешнее творчество мало, кто у нас слышал. RIP</P>
+Автор: Vit Belov
+
+### 16.03.2009 news PANTERA порадуют фэнов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В недавнем&nbsp;интервью басист <STRONG>PANTERA Rex Brown</STRONG> заявил, что готовится к изданию бокс-сэт<STRONG> PANTERA</STRONG>. Музыкант рассказал, что это будет не банальное переиздание, нас ждут некоторые сюрпризы.</FONT></P>
+Автор: Vit Belov
+
+### 27.02.2010 news Philip Anselmo напишет автобиографию
+
+<P>Бывший вокалист <STRONG>PANTERA Philip Anselmo</STRONG> заключил соглашение с автором сайта <STRONG>MetalSucks.ne</STRONG>t <STRONG>Corey Mitchell</STRONG> на написание астобиографии. <STRONG>Corey</STRONG> поможет <STRONG>Philip</STRONG> изложить историю своей жизни на бумаге.</P>
+Автор: Vit Belov
+
+### 21.07.2010 news Подарок любителям хоккея
+
+<P>Ведущий производитель игровых спортивных симуляторов для компьютеров и приставок<STRONG> EA Sports</STRONG> объявил саундтрэк к новой версии <STRONG>NHL 11</STRONG>. Как обычно, в игре можно будет услышать множество интересных композиций с тяжёлой гитарой. Вот их список:</P>
+<P>* <B>IN WHISPERS</B> - "Here I Stand"<BR>* <B>AIRBOURNE</B> - "Bottom Of The Well"<BR>* <B>BULLET FOR MY VALENTINE</B> - "Your Betrayal"<BR>* <B>MEGADETH</B> - "Dialectic Chaos"<BR>* <B>PANTERA</B> - "Walk"<BR>* <B>DANKO JONES</B> - "Full of Regret"<BR>* <B>2 UNLIMITED</B> - "Twilight Zone"<BR>* <B>BLACK Box</B> - "Strike It Up"<BR>* <B>BLACK REBEL MOTORCYCLE CLUB</B> - "Mama Taught Me Better"<BR>* <B>BOUNCING SOULS</B> - "Ole!"<BR>* <B>DARUDE</B> - "Sandstorm"<BR>* <B>DROPKICK MURPHYS</B> - "Shipping Up To Boston (Live)"<BR>* <B>EUROPE</B> - "The Final Countdown"<BR>* <B>FOXY SHAZAM</B> - "Unstoppable"<BR>* <B>RAMONES</B> - "Blitzkrieg Bop"<BR>* <B>THE BLACK KEYS</B> - "Howlin’ For You"</P>
+<P>Создатели игры утверждают, что в этой музыке можно услышать "настоящий звук Национальной Хоккейной Лиги". Это верно. Я даже слышал<STRONG> DIMMU BORGIR</STRONG> на одном из хоккейных матчей за океаном.</P>
+Автор: Vit Belov
+
+### 16.11.2010 news Переиздание альбома &quot;Cowboys From Hell&quot; группы PANTERA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом году исполняется 20 лет альбому <STRONG>"Cowboys From Hell"</STRONG> группы <STRONG>PANTERA</STRONG>. В связи с этим лейбл <STRONG>Rhino</STRONG>&nbsp;и бывшие участники группы подготовили несколько вариантов переизданий этого альбома, среди которых, самым интересным является,&nbsp;выходящий 22 ноября,&nbsp;<STRONG>Ultimate Box Set </STRONG>(на фото ниже).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В это издание, выполненное в виде шикарного бокса, войдут:</FONT></P>
+<P>- трёхдисковое переиздание альбома <STRONG>"Cowboys From Hell"<BR></STRONG>- репродукция флаера <STRONG>We're Takin Over This Town</STRONG> (8 1/2" x 11")<BR>- репродукция флаера <STRONG>It's Up To You/Censorship</STRONG> (8 1/2" x 11")<BR>- репродукция постера <STRONG>Arcadio Theatre</STRONG> (11" x 17")<BR>- футболка<STRONG> New Years Puke Party</STRONG> (только XL размер)<BR>- наклейка <STRONG>All Access Tour Pass '90<BR></STRONG>- круглый значок <STRONG>Fucking Hostile<BR></STRONG>- ламинированный пропуск <STRONG>Cowboys From Hell Texas - Guest <BR></STRONG>- ламинированный пропуск <STRONG>U.S. Tour '91 - All Access <BR></STRONG>- репродукция билета на концерт 14 июня 1991 г. </P>
+<P>Данное издание можно заказать по следующему адресу: <A href="http://www.pantera.com/news/2010/091310.htm">www.pantera.com/news/2010/091310.htm</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2010.11/17619.jpg" width=620 height=522> 
+<P></P>
+Автор: Headcrusher
+
+### 17.11.2010 news Демо записи к альбому &quot;Cowboys From Hell&quot; на виниле
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17624.jpg" width=400 height=400>Вслед за юбилейными переизданиями альбома <STRONG>"Cowboys From Hell"</STRONG> на CD, 26 ноября увидит свет&nbsp;винил, получивший незатейливое название <STRONG>"Cowboys From Hell: The Demos"</STRONG>. Пластинка будет выпущена тиражом в 3000 экземпляров, на 180-граммовом виниле. Трек-лист пластинки пока&nbsp;держится в секрете. Но надо полагать, что он будет идентичен трек-листу с&nbsp;демо-диска, вошедшего в&nbsp; трёхдисковое переиздание <STRONG>"Cowboys From Hell"</STRONG>. Выглядит он следующим образом:</FONT></P>
+<P>01. <STRONG>“The Will To Survive”</STRONG>*<BR>02. <STRONG>“Shattered” – Demo</STRONG>*<BR>03. <STRONG>“Cowboys From Hell” – Demo</STRONG>*<BR>04. <STRONG>“Heresy” – Demo</STRONG>*<BR>05. “<STRONG>Cemetery Gates” – Demo</STRONG>*<BR>06. <STRONG>“Psycho Holiday” – Demo</STRONG>*<BR>07. <STRONG>“Medicine Man” – Demo</STRONG>*<BR>08. <STRONG>“Message In Blood” – Demo</STRONG>*<BR>09. <STRONG>“Domination” – Demo</STRONG>*<BR>10. <STRONG>“The Sleep” – Demo</STRONG>*<BR>11. <STRONG>“The Art Of Shredding” – Demo</STRONG>* <BR><BR>* Previously Unreleased <BR>† Unreleased in the U.S.</P>
+Автор: Headcrusher
+
+### 12.04.2012 news Обложка нового сингла PANTERA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>При подготовке к ре-релизу альбома <STRONG>PANTERA "Vulgar Display Of Power"</STRONG> барабанщик коллектива <STRONG>Vinnie Paul Abbott</STRONG> обнаружил в запасниках "винтажную" песню "<STRONG>Piss</STRONG>", записанную в те времена. В ближайшие дни выйдет новый клип давно распавшейся группы на этот трек, а пока мы можем увидет кавер этого сингла.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 src="/images/news_rus/2012.04/23464.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 14.04.2012 news Новое видео PANTERA
+
+<P>Спустя более чем десять лет после прекращения собственного существования <STRONG>PANTERA </STRONG>опубликовали видео на песню "<STRONG>Piss</STRONG>". Трек был найден в архивах американского коллектива и относится к сессиям к альбому "<STRONG>Vulgar Display Of Power</STRONG>" 1992 года.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/yeVJguP_T40?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 18.06.2012 news HELLYEAH: обложка и трек-лист третьего полноформатника.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24219.jpg" width=400 height=400>Третий полноформатник группы <STRONG>HELLYEAH</STRONG>, в которую входят бывшие и нынешние участники таких групп, как <STRONG>PANTERA</STRONG>, <STRONG>MUDVAYNE</STRONG>, <STRONG>DAMAGEPLAN</STRONG>&nbsp;и <STRONG>NOTHINGFACE</STRONG>,&nbsp;выйдет 17 июля&nbsp;на новом для&nbsp;группы лейбле <STRONG>Eleven Seven Music</STRONG>. Диск был записан в городе Даллас, (штат Техас), на студиях, принадлежащих барабанщику группы. Продюсер и инженер альбома - <B itxtHarvested="0" itxtNodeId="65">Jeremy Parker</B> (<B itxtHarvested="0" itxtNodeId="64">GODSMACK</B>, <B itxtHarvested="0" itxtNodeId="63">EVANESCENCE</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лиcт:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtHarvested="0" itxtNodeId="57">War In Me</B><BR itxtNodeId="56">02. <B itxtHarvested="0" itxtNodeId="55">Band Of Brothers</B> <BR itxtNodeId="54">03. <B itxtHarvested="0" itxtNodeId="53">Rage/Burn</B> <BR itxtNodeId="52">04. <B itxtHarvested="0" itxtNodeId="51">Drink Drank Drunk</B><BR itxtNodeId="50">05. <B itxtHarvested="0" itxtNodeId="49">Bigger God</B> <BR itxtNodeId="48">06. <B itxtHarvested="0" itxtNodeId="47">Between You And Nowhere</B><BR itxtNodeId="46">07. <B itxtHarvested="0" itxtNodeId="45">Call It</B><BR itxtNodeId="44">08. <B itxtHarvested="0" itxtNodeId="43">Why Does It Always</B><BR itxtNodeId="42">09. <B itxtHarvested="0" itxtNodeId="41">WM Free</B><BR itxtNodeId="40">10. <B itxtHarvested="0" itxtNodeId="39">Dig Myself A Hole</B><BR itxtNodeId="38">11. <B itxtHarvested="0" itxtNodeId="37">What It Takes To Be Me</B><BR itxtNodeId="61">&nbsp;</FONT></P>
+Автор: Headcrusher
+
+### 14.05.2013 news Phil Anselmo: подробности дебютного сольного альбома &quot;Walk Through Exits Only&quot;
+
+<P><STRONG>"Walk Through Exits Only"</STRONG> - такое название получил первый сольный альбом вокалиста <STRONG>Фила Ансельмо</STRONG>&nbsp;(Philip Anselmo; <STRONG>DOWN</STRONG>, <STRONG>PANTERA</STRONG>, <STRONG>SUPERJOINT RITUAL</STRONG>). Сам проект носит название <STRONG>Philip H. Anselmo & the Illegals</STRONG>, а его выход намечен на 16 июля на <STRONG>Housecore Records</STRONG>.</P>
+<P>Продюсерами&nbsp;альбома, в который вошло 8 песен,&nbsp;стали: <STRONG>Philip Anselmo</STRONG> и <STRONG>Michael Thompson</STRONG>. Запись <STRONG>"Walk Through Exits Only" </STRONG>происходила в течении двух&nbsp;лет в <STRONG>"Nodferatu’s Lair"</STRONG>, собственной студии Фила, расположенной в Новом Орлеане.&nbsp;Помимо Фила в записи диска приняли участие: гитарист <STRONG>Marzi Montazeri</STRONG> и барабанщик <STRONG>Jose Manuel “Blue” Gonzales</STRONG>. </P>
+<P>Трек с альбома, под названием<STRONG> "Usurper’s Bastard Rant"</STRONG>, уже сейчас можно послушать&nbsp;на сайте журнала&nbsp;<STRONG>Revolver</STRONG>: <A href="http://www.revolvermag.com/news/philip-h-anselmo-the-illegals-debut-new-song-usurpers-bastard-rant.html">http://www.revolvermag.com</A>.</P>
+<P>Вот, что сам <STRONG>Ансельмо</STRONG> говорит&nbsp;о <STRONG>"Walk Through Exits Only"</STRONG>:<EM>&nbsp;"Это самый злой альбом, на который я был способен. Я не вижу никого вокруг, кто мог бы так же орать о том дерьме, о котором я ору на этом альбоме. На этом альбоме нет никакой игры слов, нет никакого скрытого послания;&nbsp;весь смысл прямо перед вами."</EM></P>
+<P><EM>
+<CENTER></EM><IMG border=0 src="/images/news_rus/2013.05/25705.jpg" width=450 height=450>&nbsp;
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 09.07.2013 news Philip H. Anselmo &amp; The Illegals: клип &quot;Bedridden&quot;
+
+<P><STRONG>Phil Anselmo</STRONG>&nbsp;представил видеоклип на трек <STRONG>"Bedridden"</STRONG>,&nbsp;взятый&nbsp;со своего сольного альбома под названием <STRONG>"Walk Through Exits Only"</STRONG>. Клип можно заценить ниже. Выход же самого альбома намечен на 16 июля.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/_PGOk_6Jgm8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.06.2014 news Автобиография Фила Ансельмо в начале 2015 г.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.06/27046.jpg" width=300 height=450>По&nbsp;информации c&nbsp;сайта <STRONG>Amazon.com</STRONG>, издательство <STRONG>Gallery Books</STRONG>,&nbsp;выпускает автобиографию Фила Ансельмо (<STRONG>Philip H. Anselmo</STRONG>, <STRONG>DOWN</STRONG>, <STRONG>PANTERA</STRONG>, <STRONG>SUPERJOINT RITUAL</STRONG>), которая получила название <STRONG>"Mouth For War: Pantera And Beyond"</STRONG>. </P>
+<P>Дата выхода книги: 15 января 2015 г.</P>
+<P>В качестве соавтора автобиографии выступил журналист сайта <STRONG>Bloodydisgusting.com</STRONG> Кори Митчелл (<STRONG>Corey Mitchell</STRONG>).</P>
+<P>Предварительный заказ можно сделать по ссылке: <A href="http://www.amazon.com/Mouth-War-Philip-H-Anselmo/dp/1476730504">www.amazon.com</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### PANTERA за и против!

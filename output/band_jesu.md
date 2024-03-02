@@ -47,6 +47,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.10.2003 news Новый опус AGORAPHOBIC NOSEBLEED
+
+Последователем их последнего релиза "Altered States Of America" будет split CD вместе с новой группой JESU в начале 2004 году. JESU - долгожданный проект лидера GODFLESH Justin Broadrick (также новая группа включает в себя бывших участников GODFLESH - Ted Parsons и Paul Neville).
+Автор: Darkfall
+
+
 ## Обсуждения
 
 ### GODFLESH в Москве | 24 августа 2013

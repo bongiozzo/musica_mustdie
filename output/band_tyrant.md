@@ -12,6 +12,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.12.2001 news Freaks Of Nature ...
+
+<p>Australia’s TYRANT are currently composing the material for the follow-up to last year’s Freaks Of Nature CD, which they hope to record sometime in January 2002. At the moment, the band are searching for a suitable producer for the sessions, after which they will enter the studio. TYRANT are reportedly in negotiations with a number of labels regarding a deal. Among the titles that are set to appear on the forthcoming effort are the following: <BR><BR> 01. Thunder Down Under <BR> 02. Hard As Nails <BR> 03. Must Be The Devil <BR> 04. Rude, Crude & Tattooed <BR> 05. Courage Of The Heart <BR> 06. Perfect World <BR> 07. Killing Machine <BR> 08. A Few Days To Kill <BR> 09. Drink With The Devil</p>
+
+Автор: Yermola
+
+### 06.12.2001 news Уродливая натура австралийского Тирана...
+
+<p>Последователи своих мега-успешных земляков AC/DC, австралийцы "TYRANT" готовят материал для своего второго полноформатника, продолжающего линию прошлогоднего "Freaks Of Nature". Сейчас команда ищет продюссера для записи, которая начнется в январе 2002. Трек-лист: <BR><BR> 01. Thunder Down Under <BR> 02. Hard As Nails <BR> 03. Must Be The Devil <BR> 04. Rude, Crude & Tattooed <BR> 05. Courage Of The Heart <BR> 06. Perfect World <BR> 07. Killing Machine <BR> 08. A Few Days To Kill <BR> 09. Drink With The Devil</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

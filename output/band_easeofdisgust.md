@@ -16,6 +16,68 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.12.2009 reviews Старое и любимое
+
+<P>Я не большой сторонник выпускаемых EP молодых групп. Здесь во мне не борются «потребитель» с «продавцом», так как одинаково обидно слушать пять песен и пытаться их продать. Дебютный миньон москвичей&nbsp; EASE OF DISGUST стал дебютом и для нового лэбла Gigawatt Music. </P>
+<P>Очень приятный, скажу вам, дебют. Группе удалось совместить в себе death-metal тяжесть с отличной реализацией и разнообразной композицией и полностью избежать влияния популярных –core элементов. Уже только по этой причине “The Shell” произвёл на меня благоприятное впечатление. Однотипной музыке свойственно надоедать, поэтому любые отклонения от нормы, пусть и в плане возврата к корням, приятно греют душу. Но не стоит объяснять то, что мне полюбился этот альбом, только засилием metalcore на современной сцене. Пять вещей, представленных на этой работе, настоящий «удар» для всех любителей настоящей тяжёлой музыки. Уже сейчас эту группу можно ставить в один ряд с популярнейшими death-grind коллективами. Чтобы подтвердить все эти щедро выдаваемые авансы, EASE OF DISGUST нужно всего лишь выпустить полноформатный альбом, который также не будет надоедать, а будет точно также радовать.</P>
+<P>Классический death-metal в лучшем его виде и пригодный для потребления даже самыми взыскательными потребителями тяжёлой музыки. Я понимаю, почему этот альбом вышел на отдельном компакте, его качество совсем не вписывается в понятие об UG death-metal сплитах.</P>
+Автор: Vit Belov
+
+### 01.04.2010 news EASE OF DISGUST презентовали сингл
+
+<P>Московская deathcore группа <STRONG>EASE OF DISGUST</STRONG> 15 марта презентовала свой новый интернет-сингл "<STRONG>Constructed</STRONG>", в который вошли 3 трека с грядущего полноформатного альбома, выпуск которого планируется на осень 2010 года!</P>
+<P><STRONG>Ease Of Disgust – Constructed</STRONG> (2010)</P>
+<P>Трэк-лист</P>
+<P>1. <STRONG>Constructed<BR></STRONG>2. <STRONG>Illuminate<BR></STRONG>3. <STRONG>Sorrow You Deserve</STRONG></P>
+<P>Состав: <BR><STRONG>Даниил Орлов</STRONG> - вокал<BR><STRONG>Геннадий Саввин</STRONG> - гитара<BR><STRONG>Алексей Сажин</STRONG> - гитара<BR><STRONG>Рубен Геворкян</STRONG>- бас-гитара<BR><STRONG>Антон Самохвалов</STRONG> – ударные</P>
+<P>В записи также принял участие<STRONG> Егор Аверьянов</STRONG> – гитарист группы <STRONG>БеZумные Усилия</STRONG>, которая недавно прекратила свое существование. Он записал соло в трэках "<STRONG>Constructed</STRONG>" и "<STRONG>Sorrow You Deserve</STRONG>".</P>
+<P>Сингл записан в феврале 2010 года на студии<STRONG> AstaLaVista <BR></STRONG>Сведение и мастеринг - <STRONG>Николай Венгржанович</STRONG></P>
+<P>Группа выражает свою благодарность компаниям <STRONG>Саундчек и O.K.& Co</STRONG>. за предоставленное оборудование. </P>
+<P>Официальная группа вКонтакте</P>
+<P><A href="http://vkontakte.ru/club4777333">http://vkontakte.ru/club4777333</A></P>
+<P>Myspace</P>
+<P><A href="http://www.myspace.com/easeofdisgust">http://www.myspace.com/easeofdisgust</A></P>
+<P><A href="http://www.mediafire.com/?4z2vy2jozma">http://www.mediafire.com/?4z2vy2jozma</A> обложка<BR><A href="http://vkontakte.ru/photo-4777333_157083437">http://vkontakte.ru/photo-4777333_157083437</A></P>
+Автор: Vit Belov
+
+### 08.04.2010 news Новое видео EASE OF DISGUST
+
+<P>Московская Deathcore группа <STRONG>EASE OF DISGUST</STRONG> выпустила дебютный клип на песню с недавно вышедшего сингла "<STRONG>Constructed</STRONG>". Клип снят <STRONG>Юрием Ереминым</STRONG>, который работал с группами <STRONG>#####, АРКОНА, МОЕСЕРДЦЕСПРАВА</STRONG> и другими.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/hoLPWuVcKlw&hl=ru_RU&fs=1&"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/hoLPWuVcKlw&hl=ru_RU&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.08.2010 news Новый альбом EASE OF DISGUST
+
+<P><IMG height=241 alt="" hspace=0 src="/images/news_rus/2010.08/17013.jpg" width=400 align=right border=5>Московская дэткор-группа <STRONG>EASE OF DISGUST</STRONG> опубликовала трэк-лист и название полноформатного альбома, который в конце октября выйдет на лейбле <STRONG>FONO LTD</STRONG>. Он будет носить название "<STRONG>Chaos</STRONG>", а трэк-лист выглядит следующим образом:</P>
+<P>1. <STRONG>Abyss Revelations</STRONG><BR>2. <STRONG>Interrupt the Collision</STRONG><BR>3. <STRONG>Constructed<BR></STRONG>4. <STRONG>Between Nowhere and Never Pt. I<BR></STRONG>5. <STRONG>Sanity Devoured<BR></STRONG>6. <STRONG>Illuminate<BR></STRONG>7. <STRONG>Kaos<BR></STRONG>8. <STRONG>Disincarnate<BR></STRONG>9. <STRONG>Between Nowhere and Never Pt. II<BR></STRONG>10. <STRONG>Sorrow You Deserve</STRONG><BR>11. <STRONG>Turned to Malice</STRONG></P>
+<P>Запись альбома пройдет с 21 августа в<STRONG> Light Temple Records</STRONG>, где были записаны дебютный EP "<STRONG>The Shell</STRONG>" и сингл "<STRONG>Constructed</STRONG>" под руководством <STRONG>Николая Венгржановича</STRONG>. Сведение и мастеринг альбома проведет <STRONG>Николай Баженов</STRONG> (<A href="http://www.metalstudio.ru/">www.metalstudio.ru</A>), который работал с такими командами как <STRONG>Stardown, Digimortal, Rashamba, Anamnesis</STRONG> и др. </P>
+<P>Оформлением альбома занимается французская студия <STRONG>Headsplit Design</STRONG> (<A href="http://www.headsplitdesign.com/">www.headsplitdesign.com</A>), которая оформляла первую работу группы, а также работала с <STRONG>Postmortem Promises, Unearth, Whitechapel, See You Next Tuesday, Maruta, Thy Art Is Murder, Katalepsy</STRONG>. </P>
+<P>"<EM>Мы долго шли к этому моменту, пережили 2 смены состава и несколько поменяли звучание и стиль.На данный момент все треки к грядущему полноформатному альбому готовы и мы вскоре отправимся в студию, где реализуем все наши идеи. Записываться мы будем на уже ставшей нам родной студии Николая Венгржановича, а Николай Баженов будет отвечать за сведение и мастеринг. Мы решили поработать с новым человеком, найти новое звучание. Последние работы Николая нас очень впечатлили, поэтому мы и обратились к нему. В октябре состоится презентация альбома в Москве, а в ноябре мы отправимся в Face The Chaos Tour 2010 по городам России в поддержку альбома</EM>", - сообщила группа.</P>
+Автор: Vit Belov
+
+### 01.08.2011 news EASE OF DISGUST на HeadXPlode Records
+
+<P><IMG height=267 alt="" hspace=0 src="/images/news_rus/2011.08/20391.jpg" width=400 align=right border=0>Московская группа <STRONG>EASE OF DISGUST</STRONG> успешно завоёвывает музыкальный рынок, объявив о начале сотрудничества сразу с двумя крупными партнёрами: концертным агентством «<STRONG>Полигон</STRONG>» и музыкальным лейблом <STRONG>HeadXPlode</STRONG>. В рамках этого сотрудничества предусмотрен выпуск сплита <STRONG>EASE OF DISGUST/APOKEFALE</STRONG>, релиз которого планируется на сентябрь 2011 года, и концертный тур группы в поддержку грядущего EP, часть которого пройдёт совместно с <STRONG>APOKEFALE</STRONG>. Тур запланирован на ноябрь-декабрь 2011 года. </P>
+<P>Концертное агентство Полигон является одним из самых знаменитых агентств России. В списке их достижений – работа с такими командами, как <STRONG>STIGMATA, AMATORY</STRONG>. Полигон – настоящий старожил неформальной сцены: начав свою деятельность в далёком 2003 году, к настоящему времени агентство провело уже более 400 концертов по всей России и странам СНГ. </P>
+<P><STRONG>HeadXPlode Records</STRONG> – музыкальный лейбл, начавший свою деятельность в 2006 году как дистро и концертно-туровое агентство. На сегодняшний день это и лейбл, и концертное агентство, и промо агентство, имеющее за плечами опыт работы с такими коллективами, как <STRONG>PUNGENT STENCH, ROTTING CHRIST, CRIONICS</STRONG>. Дистрибьюция релизов осуществляется через крупнейшую мировую сеть <STRONG>Plastic Head Distribution/Code 7</STRONG>. С 2010 года лейбл запустил международный проект, в состав которого входят партнёры из таких стран, как США, Россия, Англия, Финляндия.</P>
+Автор: Vit Belov
+
+### 02.11.2011 news Новый клип EASE OF DISGUST
+
+<P>Группа <STRONG>EASE OF DISGUST</STRONG> презентовала новый клип на песню "<STRONG>I, The Prophecy</STRONG>", которая вошла в новый ЕР "<STRONG>Exceeding The Verge</STRONG>". Клип снят командой <STRONG>WE ARE ROCK Production</STRONG>. </P>
+<P>В октябре группа выпустила новый ЕР который получил название "<STRONG>Exceeding The Verge</STRONG>". Трек-лист:</P>
+<P>1. <STRONG>Exceeding The Verge</STRONG><BR>2. <STRONG>I, The Prophecy</STRONG><BR>3. <STRONG>End Of Frailty</STRONG><BR>4. <STRONG>Right Now</STRONG> (Korn cover)<BR>5. <STRONG>Constructed</STRONG> (Acoustic version)</P>
+<P>Скачать здесь:<BR><A href="http://www.mediafire.com/?lpcuvw40dmg67vz">http://www.mediafire.com/?lpcuvw40dmg67vz</A><BR><A href="http://ifolder.ru/26226956">http://ifolder.ru/26226956</A></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/pBeC3ckaLX4?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/pBeC3ckaLX4?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ДрагМетал Фест: Devildriver, Ease Of Disgust и ##### (4 июля, 2012)

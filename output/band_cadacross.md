@@ -70,6 +70,35 @@ Riku Ylitalo - Accordion
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.05.2002 news Второй альбом CADACROSS
+
+<p>Финская команда CADACROSS записывает свой второй альбом. который будет называться "Corona Borealis - The Northern Crown". Альбом выйдет осенью 2002 года. В альбом войдут следующие вещи:</p>
+<P> 1. The Northern Crown <BR> 2. Among The Stars <BR> 3. Kings of Grim <BR> 4. Learn the Dark <BR> 5. Morningstar <BR> 6. Flaming Ember <BR> 7. Bring Out Your Dead <BR> 8. Wreath of Seven Stars <BR> 9. Forest Remains Victor <BR> 10. Turmion Taival</>
+
+Автор: Dimas
+
+### 20.12.2002 news Второй альбом CADACROSS выходит в России
+
+<p>Второй альбом финской группы CADACROSS "Corona Borealis" 21 декабря выйдет в Японии на лейбле Soundholic, а в России, Прибалтике и прочем СНГ на CD-Maximum. CADACROSS играют довольно уникальный агрессивный металл с грозными эпическими и симфоническими элементами.</p>
+
+Автор: Morsus
+
+### 20.12.2002 news CADACROSS second album will be released in Japan and Russia
+
+<p>Finnish CADACROSS second album "Corona Borealis" will be released on 21st of December in Japan by Soundholic, in Russia, Baltic States, CIS-countries by CD-Maximum. CADACROSS performs unique, aggressive metal with elements of battle and symphonic metal.</p>
+
+Автор: Morsus
+
+### 10.01.2003 reviews Корона северной империи
+
+<p>Прошлогодний дебютный альбом группы имел относительный успех и группу смело причисляли к лучшим наследникам CHILDREN OF BODOM. И вот уже мы слушаем второй альбом группы. Все тот же мелодичнейший death-black metal с power-мотивами. Только более качественный и техничный. Появились партии женского вокала, во главе угла по-прежнему клавишные и ритм-гитара, побольше стало блэковых моментов, в некоторых местах можно услышать аккордеон. А вот по цельности материала и его респектабельности все осталось на прежнем уровне. Музыканты силятся, пытаются, мучаются, смешивают различные жанры металлической музыки (death, black, power, viking, folk) - что-то у них получается, что-то нет, но ничего выдающегося их материал не содержит. Броские клавиши с приятными мелодиями создают благозвучную среду, помогающую воспринимать альбом на уровне непритязательного прослушивания альбома от начала до конца без особого раздражения. Самое слабое место группы (на мой взгляд) - отсутствие гитарных соло и чрезмерное засилие клавишными. Но все равно, по сравнению с дебютом, данный альбом - большой шаг вперед. В первую очередь, советую послушать этот альбом тем, кому нравятся CHILDREN OF BODOM, KALMAH и ENSIFERUM.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

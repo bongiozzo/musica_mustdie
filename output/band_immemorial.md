@@ -20,6 +20,45 @@ Polish death-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.12.2002 reviews Брутально и мелодично...
+
+<p>Девушки в Death metal, это, как немного сахара в острейшем блюде, как немного солнца в морозный день, ну, Вы понимаете... Ещё одна группа с женским брутальным вокалом, Marta Meger, так зовут эту очаровательную польскую девушку, которая является лицом death-metal банды Immemorial. Группа удачно скрещивает тяжесть brutal-death metal с мелодичностью melodic-death-metal. Очень динамичная риффовая музыка чередуется с удачными соло-выходами. Плюс вокал переходящий от скриминга к гроулингу, а иногда мы даже можем слышать чрезвычайно низкий чистый голос девушки. Можно порекомендовать всем любителям тяжёлой мелодичной музыки, но, пожалуйста, не путайте этот коллектив с In Fames или Arch Enemy.</p>
+
+Автор: Vit Belov
+
+### 13.12.2002 reviews Brutal and also melodious...
+
+<p>The girl in Death metal, it, as there is some sugar in a piquantest dish, as there is some sun in frosty day, well, you understand... One more band with female brutal vocal, Marta Meger is name this charming Polish girl, which is the person death-metal band Immemorial. The group successfully crosses weight of brutal-death metal with melodious from melodic-death-metal. Very dynamical riff music alternates with successful solo-outputs. Plus vocal is passing from screaming to growling, and sometimes we even can hear an extremely low clean voice of the girl. It is possible to recommend to all fans of heavy melodious music, but, please, do not confuse this collective with In Fames or Arch Enemy.</p>
+
+Автор: Vit Belov
+
+### 31.12.2002 bios Immemorial Bio
+
+<p>Immemorial came into existence in June 1997 in Elblag, Poland. The band recorded its On first album "IUS PRIMAE NOCTIS" in Selani Studios in Olsztyn (home studio where recorded bands like: VADER, BEHEMOTH, DECAPITATD, YATTERING, CHRIST UGONY, TRAUMA ect.), Poland in 1998. The album contains about 40 minutes of melodic and majestic death/black metal. The band also released a music video clip which accompanied the composition entitled "Betrothal With The Death". The music of Immemorial has received very favorable reviews both in official press and underground magazines.</p>
+<p> The "Betrothal..." composition was also placed on a compilation CD "Blood To Come" vol.8 in Thrash'em All magazine (one of the best in Poland).</p>
+<P> Immemorial has played a few concerts in Poland and has been always acclaimed by the public. In December 2000 the band recorded its second album "A MONOLOGUE" <Selani Studios>. This time the album is filled with 40 minutes of highly energetic sounds without limitations in terms of style. "A Nightmare" - one of the compositions is also accompanied by a music video clip. Moreover it was placed <one more time> on a compilation CD "Blood To Come"vol.14 in Thrash'em All magazine.</>
+<P> On the end of 2001 IMMEMORIAL signed recording contract with CONQUER RECORDS to be release ‘’MONOLOGUE’’ album on CD.</>
+<P>‘’Monologue’ get a lot of very good reviews and interviews around the globe. On beging of 2002 band choose to change Marta on vocal and KAROLINA took her place. After few weeks IMMEMORIAL plasyes several concerts around Poland and band join Conquer Records festival in Poland. After few weeks they played European Tour 2002 with YATTERING, HELL-BORN, DEVILYN and MESS AGE including 3 shows in UK.</>
+<P> IMMEMORIAL confirm new show in UK on 21st September 2002 with ENTHRONED and in October 26th with BENEDICTION and HECATE ENTHRONED.</>
+<P> On the beging of November 2002 band planing to record new album which will be releases on Febuary 2003.</>
+<P> The members of the band are:<BR> Karolina -v.<BR> Pawel"Tadra"Tadrowski -g.<BR> Daniel"Orzel"Orlowski-g.<BR> Daniel Misztal-b.g.<BR> Przemek"Fizyk"Sek-dr.</>
+
+Автор: Vit Belov
+
+### 30.03.2003 news NEW ALBUM by IMMEMORIAL
+
+<p>IMMEMORIAL is now working in Selani Studios on their new album, which is temporarily entitled "After Deny". It is supposed to consist of 13 songs - faster and more brutal than "Monologue". The producer stays the same - it's Szymon Czech. The new album is going to be recorded with participation of two new musicians: Karolina (on vocals) and Frost (a bass player, ex-Behemoth, Hefeystos). The album is due to be released in June. The present members of the band are: Karolina Czertowicz - voc, Paweі Tadrowski - guit., Daniel Orіowski - guit., Rafaі "Frost" Brauer - bass, Przemysіaw Sкk - drums.</p>
+
+Автор: Vit Belov
+
+### 27.01.2004 news Immemorial, Dimension Zero and Handful of Rain in Europe
+
+14.02.04 D-Engelsdorf, Hellraiser<BR>15.02.04 D-Essen, Zeche Carl<BR>16.02.04 D-Hamburg, Markthalle<BR>17.02.04 D-Frankfurt, Batschkapp<BR>18.02.04 D-M&uuml;nster/Breitefeld, Live Arena<BR>19.02.04 UK-London, The Underworld<BR>20.02.04 F-Nancy, Azimut 854<BR>21.02.04 NL-Arnheim, Goudvishal<BR>22.02.04 D-Aaalen, Rock It<BR>23.02.04 D-M&uuml;nchen, Garage<BR>24.02.04 CH-Pratteln, Konzertfabrik Z7<BR>25.02.04 I-Bergamo, Motion<BR>26.02.04 A-Innsbruck, Hafen<BR>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

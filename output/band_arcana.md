@@ -64,6 +64,9 @@ Choir: Peter Pettersson, Daniel Gildenlow, Ida Bengtsson, Emelie Palmstrom, Dani
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

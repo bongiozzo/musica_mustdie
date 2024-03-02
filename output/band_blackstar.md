@@ -31,6 +31,9 @@ All lyrics are aimed on you
 * C группой "Carcass" Carlo Regadas (guitar)
 * C группой "Monstrance" Carlo Regadas (guitar)
 
+## Публикации
+
+
 ## Обсуждения
 
 

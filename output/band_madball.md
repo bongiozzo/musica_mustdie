@@ -178,6 +178,77 @@ Will Shepler - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.07.2003 news Roadrunner Records восстанавливает корни
+
+<p>Roadrunner Records планирует беспрецедентную акцию под названием "The Roots Of Roadrunner". Это будет выпуск серии дисков "The Best Of" от различных известных команд с лэйбла с аннотацией от известных музыкантов, являющихся поклонниками этих коллективов. Выход первых семи дисков из серии запланирован на 22 сентября 2003 года. Среди них:</p>
+<p> "Best Of DEICIDE" <BR> Аннотации от Joey Jordison (SLIPKNOT)</p>
+<p> 1. Dead By Dawn <BR> 2. Carnage In The Temple Of The Damned <BR> 3. Lunatic Of God's Creation<BR> 4. Sacrificial Suicide <BR> 5. Crucifixation <BR> 6. Satan Spawn, The Caco-Daemon <BR> 7. Trifixion <BR> 8. In Hell I Burn <BR> 9. Dead But Dreaming <BR> 10. Once Upon The Cross <BR> 11. They Are The Children Of The Underworld <BR> 12. When Satan Rules His World <BR> 13. Trick Or Betrayed <BR> 14. Behind The Light Thou Shall Rise <BR> 15. Serpents Of The Light <BR> 16. Bastard Of Christ <BR> 17. Blame It On God <BR> 18. This Is Hell We're In <BR> 19. Bible Basher <BR> 20. Standing In The Flames</p>
+<p> "Best Of BRUJERIA" <BR> Аннотация от Hank Williams III (SUPERJOINT RITUAL)</p>
+<p> 1. Pura De Venta <BR> 2. Leyes Narcos <BR> 3. Matando Gueros <BR> 4. Castigo Del Brujo <BR> 5. Sacrificio <BR> 6. Padre Nuestro <BR> 7. Raza Odida (Pito Wilson) <BR> 8. La Ley De Plomo <BR> 9. Colas De Rata <BR> 10. Hechando Chingasos (Grenudo Locos II) <BR> 11. La Migra (Cruza La Frontera II) <BR> 12. Consejos Narcos <BR> 13. Brujerizmo <BR> 14. Vayan Sin Miedo <BR> 15. Pititis, Te Invoco <BR> 16. Laboratorio Cristalitos <BR> 17. Division Del Norte <BR> 18. Anti-Castro <BR> 19. El Desmadre <BR> 20. Ritmos Satanicos</p>
+<p> "Best Of LIFE OF AGONY" <BR> Аннотация от TBC</p>
+<p> 1. This Time<BR> 2. River Runs Red <BR> 3. Through And Through <BR> 4. Bad Seed <BR> 5. Underground<BR> 6. Here I Am, Here I Stay <BR> 7. Damned If I Do <BR> 8. Lost At 22 <BR> 9. Other Side Of The River <BR> 10. Let's Pretend <BR> 11. How It Would Be <BR> 12. Tangerine <BR> 13. My Mind Is Dangerous <BR> 14. Weeds <BR> 15. Angry Tree <BR> 16. Honeycomb</p>
+<p> "Best Of KING DIAMOND" <BR> Аннотация от Dave Ellefson (ex-MEGADETH)</p>
+<p> 1. The Candle <BR> 2. Charon <BR> 3. Halloween <BR> 4. No Presents For Christmas <BR> 5. Arrival <BR> 6. A Mansion In Darkness <BR> 7. The Family Ghost <BR> 8. Abigail <BR> 9. Welcome Home <BR> 10. The Invisible Guests <BR> 11. Tea <BR> 12. At The Graves <BR> 13. Sleepless Nights <BR> 14. Eye Of The Witch <BR> 15. Burn</p>
+<p> "Best Of MERCYFUL FATE" <BR> Аннотация от Mark Hunter (CHIMAIRA)</p>
+<p> 1. Doomed By The Living Dead <BR> 2. A Corpse Without Soul <BR> 3. Nuns Have No Fun <BR> 4. Evil <BR> 5. Curse Of The Pharaohs <BR> 6. Into The Coven <BR> 7. Black Funeral <BR> 8. Satan's Fall<BR> 9. A Dangerous Meeting <BR> 10. Desecration Of Souls <BR> 11. Gypsy<BR> 12. Come To The Sabbath <BR> 13. Burning The Cross <BR> 14. Return Of The Vampire</p>
+<p> "Best Of MALEVOLENT CREATION" <BR> Аннотация от Deron Miller (CKY)</p>
+<p> 1. Eve Of The Apocalypse <BR> 2. Sacrificial Annihilation <BR> 3. Monster<BR> 4. Dominated Resurgency <BR> 5. Multiple Stab Wounds <BR> 6. Genetic Affliction (demo version) <BR> 7. Geared For Gain <BR> 8. Slaughter Of Innocence <BR> 9. Premature Burial <BR> 10. Decadence Within <BR> 11. The Way Of All Flesh <BR> 12. Iced <BR> 13. Carnivorous Misgivings <BR> 14. Remnants Of Withered Decay <BR> 15. The Coldest Survive <BR> 16. Thou Shall Kill! <BR> 17. Mindlock <BR> 18. Piece By Piece</p>
+<p> "Best Of MADBALL" <BR> Аннотация от Jamey Jasta (HATEBREED) и Roger Miret (AGNOSTIC FRONT)</p>
+<p> 1. Set It Off <BR> 2. New York City <BR> 3. It's Time <BR> 4. Across Your Face <BR> 5. Down By Law <BR> 6. Smell The Bacon (What's With You?) <BR> 7. Friend or Foe<BR> 8. Demonstrating My Style <BR> 9. Unity <BR> 10. Live Or Die <BR> 11. Pride (Times Are Changing) <BR> 12. Hardcore Still Lives! <BR> 13. Nuestra Familia <BR> 14. Ball of Destruction <BR> 15. Look My Way <BR> 16. Moment of Truth <BR> 17. Waste of Time <BR> 18. Been There, Done That <BR> 19. Talkin' To Myself <BR> 20. Fools Die</p>
+
+Автор: Dimas
+
+### 27.08.2010 news Новый альбом и песня MADBALL
+
+<P>Хардкорщики из <STRONG>MADBALL</STRONG> выложили песню <STRONG>"R.A.H.C." </STRONG>для ознакомления на своей странице на MySpace: <A href="http://www.myspace.com/madball">http://www.myspace.com/madball</A></P>
+<P>Данный трек войдёт&nbsp;на новый альбом <STRONG>MADBALL</STRONG> <STRONG>"Empire"</STRONG>, который выйдет 12 октября на лейбле <STRONG>Good Fight Music</STRONG>. Запись диска происходила&nbsp;в&nbsp;<STRONG>MANA Recording Studios</STRONG> под руководством <STRONG>Эрика Рутана</STRONG> (<STRONG>MISERY INDEX</STRONG>, <STRONG>CANNIBAL CORPSE</STRONG>, &nbsp;<STRONG>GOATWHORE</STRONG> и др.).</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17113.jpg" width=358 height=350><U>Трек лист альбома</U>:</P>
+<P>01. <STRONG>Invigorate</STRONG> <BR>02. <STRONG>Danger Zone</STRONG> <BR>03. <STRONG>Timeless</STRONG> <BR>04. <STRONG>All Or Nothing</STRONG> <BR>05. <STRONG>Glory Years</STRONG> <BR>06. <STRONG>Empire</STRONG> <BR>07. <STRONG>Shatterproof</STRONG> (feat. <STRONG>R. Miret</STRONG>) <BR>08. <STRONG>The End</STRONG> <BR>09. <STRONG>Con Fuerza</STRONG> <BR>10. <STRONG>R.A.H.C.</STRONG> <BR>11. <STRONG>Hurt You</STRONG> <BR>12. <STRONG>Tough Guy</STRONG><BR>13. <STRONG>Dark Horse</STRONG> <BR>14. <STRONG>Spider's Web</STRONG> <BR>15. <STRONG>Delete</STRONG> <BR>16. <STRONG>Rebel4life18</STRONG> </P>
+Автор: Headcrusher
+
+### 08.12.2010 reviews Никакой коммерции
+
+<P>В последние годы некогда разные субкультуры ‘hardcore’ и ‘metal’ активно сближаются. Металисты очень часто используют в своей музыке «коровые» элементы, даже группы очень далёкие от подобных ритмов, а «хардкорщики» максимально актуализируют свой саунд, много заимствуя от современной тяжёлой музыки, от thrash-metal в том числе. В свою очередь и корифеи hardcore потянулись на те лэйблы, где их раньше представить было невозможно. Вслед за AGNOSTIC FRONT и THROWDOWN на Nuclear Blast подписались и MADBALL.</P>
+<P>MADBALL одни из апостолов тяжёлой ветви стиля ‘hardcore’. Их первое EP вышло в 1989 году и почти сразу же артисты приобрели культовый статус в «альма-матер» hardcore Нью-Йорке. Честно говоря, мне кажется, что hardcore в наши дни намного более честный стиль, чем metal. Если металические группы активно разнообразят свой саунд различными несвойственными стилю компонентами, «хардкорщики» управляются исключительно бунтарской лирикой и энергией, бьющей через край. Группы подобный MADBALL выпускают альбомы каждые 2-3 года, на них практически ничего не меняется, но каждый раз слушатель получает внушительную дозу адреналина при проигрывании компакт-диска. Каждый раз фанаты тяжёлой музыки проникаются мизантропией и протестом буквально с первых аккордов. А сейчас ещё и звук стал очень тяжёлым, что привлечёт дополнительный контингент из металистов, желающих чистого и доброго в нашем мире конъюнктурщиков и коммерсантов.</P>
+<P>“Empire” – очень хороший альбом, энергичный и забористый, ровно такой, какой и должен быть новый альбом от одной из лучших hardcore команд современности. Попробуйте, я лично знаю нескольких человек, которые, дав этому стилю второй шанс, стали его верными поклонниками.</P>
+Автор: Vit Belov
+
+### 03.02.2011 news MADBALL: видео на песню &quot;All Or Nothing&quot;
+
+<P>Клип хардкор легенд&nbsp;<STRONG>MADBALL</STRONG>, на песню <STRONG>"All Or Nothing"</STRONG>, можно посмотреть ниже. Видео было снято 26 ноября,&nbsp;в районе Lower East Side города Нью Йорка и в районе Southpaw города Бруклина. </P>
+<CENTER>
+<OBJECT width=450 height=370>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=7ffc924862f69f6bb120" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 04.02.2011 news Новое видео MADBALL
+
+<P>Видео-клип <STRONG>MADBALL</STRONG> на песню <STRONG>"All Or Nothing" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Michael Distelkamp.</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=7ffc924862f69f6bb120" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.04.2014 news MADBALL: подробности о новом альбоме
+
+<P>27 июня заслуженная hardcore банда <STRONG>MADBALL</STRONG> выпускает свой новый альбом на лейбле <STRONG>Nuclear Blast</STRONG>. Диск получил название <STRONG>"Hardcrore Lives"</STRONG>. </P>
+<P>Запись была сделана под присмотром гитариста группы <STRONG>UNEARTH</STRONG> - Кена Сюзи (<STRONG>Ken Susi</STRONG>), а сведение и мастеринг провёл человек скрывающийся под ником&nbsp;<STRONG>Zeuss</STRONG>.</P>
+<P>В записи альбома приняли гостевое участие: <STRONG>Scott Vogel</STRONG> (<STRONG>TERROR</STRONG>), <STRONG>Toby Morse</STRONG> (<STRONG>H20</STRONG>) и <STRONG>Candace</STRONG> (<STRONG>WALLS OF JERICHO</STRONG>).</P>
+<P>Сделать предварительный заказ диска можно по ссылке: <A href="http://bit.ly/P0DHIH">http://bit.ly/P0DHIH</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26887.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 26.09.2014 news Новый клип MADBALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Классики нью-йоркского hardcore<STRONG> MADBALL</STRONG> опубликовали видео-клип на песню "<STRONG>Doc Marten Stomp</STRONG>" с новейшего альбома "<STRONG>Hardcore Lives</STRONG>", вышедшего в прошлом месяце на<STRONG> Nuclear Blast</STRONG>. Работа попала в чарты Германии, Бельгии, Швейцарии и Австрии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="560" height="360" src="//www.youtube.com/embed/b5RQhAPygXE" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

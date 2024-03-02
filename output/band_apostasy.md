@@ -35,6 +35,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2011 news Новая музыка APOSTASY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую музыку<STRONG> APOSTASY</STRONG>, которую можно будет услышать на третьем альбоме шведской группы <STRONG>"Nuclear Messiah", </STRONG>который выйдет 24 августа, можно послушать ниже. Пластинка станет дебютом для нового гитариста коллектива <STRONG>Peter Huss, </STRONG>который заменил убитого в 2006 году <STRONG>Henrik Johansson.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущий альбом<STRONG> APOSTASY "Devilution"</STRONG> вышел в 2005 году на <STRONG>Black Mark</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=75718468&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=75718468&pid=-6042600562563164031" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

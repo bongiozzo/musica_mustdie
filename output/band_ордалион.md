@@ -23,6 +23,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.10.2009 news Новый альбом ОРДАЛИОН
+
+<P><IMG height=401 alt="" hspace=0 src="/images/news_rus/2009.10/15303.jpg" width=400 align=right border=5>17 октября на лейбле <STRONG>Sound Age Producitons</STRONG> вышел второй альбом московской симфо-блэк метал группы<STRONG> ОРДАЛИОН "Сквозь Кому Души"</STRONG>. Альбом записан на <STRONG>ДАЙ-Рекордс</STRONG> под руководством <STRONG>Евгения Виноградова</STRONG>. В записи принимали участие <STRONG>Александр Дронов (Валькирия)</STRONG> и <STRONG>Джина (Kruger)</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Сумашествие</STRONG><BR>2. <STRONG>Генератор случайных чисел</STRONG><BR>3. <STRONG>В эпицентр огня!!!<BR></STRONG>4. <STRONG>Серые птицы<BR></STRONG>5. <STRONG>Живодерня<BR></STRONG>6. <STRONG>Я видел бога!!!</STRONG><BR>7. <STRONG>Влюбленный в Луну<BR></STRONG>8. <STRONG>Чума Сатанизма</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

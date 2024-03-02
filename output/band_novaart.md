@@ -8,6 +8,140 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.05.2005 news Slipknot VS Apocalyptica
+
+<P>Группа <STRONG>NOVA ART</STRONG> обяъвила, что в течение месяца по адресу: <A href="http://www.nova-art.ru/">www.nova-art.ru</A> будет доступна&nbsp; для скачивания полная версия боевика "<STRONG>Wait and bleed</STRONG>" группы <STRONG>SLIPKNOT</STRONG>. Особенность данного кавера в том, что эта первая попытка сделать песню данной экстремальной группы в симфонической форме.</P>
+Автор: Vit Belov
+
+### 27.04.2006 news На ProgPower Europe&#39;2006 (Голландия), впервые выступит Российская группа.
+
+<P>Группа <STRONG>NOVA ART</STRONG> получила приглашение и официально подтвердила свое&nbsp; согласие на участие в ежегодном фестивале ProgPower Europe 2006,&nbsp; который пройдет в Голландии осенью этого года.<BR>Выступление Nova Art намечено на 1-е октября 2006 года.<BR>Дополнительная информация:</P>
+<P><A href="http://www.progpower.com/" target=_blank><U>http://www.progpower.com</U></A><BR><A href="http://www.nova-art.ru/" target=_blank><U>http://www.nova-art.ru</U></A><BR></P>
+Автор: Дофф
+
+### 17.05.2006 news Дистрибьюция дисков NOVA ART в Голландии и Бельгии
+
+<P>Московская группа <STRONG>NOVA ART</STRONG> (<A href="http://www.nova-art.ru/">www.nova-art.ru</A>) и прогрессивный голландский лейбл <STRONG>DVS</STRONG> (<A href="http://www.dvsrecords.com/">www.dvsrecords.com</A>) пришли к соглашение о дистрибьюции дебютного диск "<STRONG>the art of nova</STRONG>" (2005, <STRONG>Valiant music</STRONG>) на&nbsp; территории Голландии и Бельгии</P>
+Автор: Дофф
+
+### 22.01.2008 news NOVA ART начали запись нового альбома в Германии
+
+<P><STRONG>NOVA ART</STRONG> начали запись нового альбома на <STRONG>Kohlekeller Studio</STRONG> (KKS) (Germany). Звукоинженером и со-продюсером альбома выступит <STRONG>Christian "Kohle" Bonifer</STRONG>. Ранее работавший на <STRONG>KKS</STRONG>&nbsp; с такими коллективами как <STRONG>Sieges Even, Crematory, Agathodaimon, Viron</STRONG> и многими другими. В данным момент ведутся переговоры о продюсировании альбома.</P>
+<P><A href="http://www.nova-art.ru/">http://www.nova-art.ru</A><BR><A href="http://www.kohlekellerstudio.de/">http://www.KohlekellerStudio.de</A></P>
+Автор: Vit Belov
+
+### 09.03.2008 news DEVON GRAVES (BUDDY LACKEY)  продюсирует вокал нового альбома NOVA ART
+
+<P>Московская группа<STRONG> NOVA ART</STRONG> сообщает о том что с 16 по 22 февраля на студии <STRONG>DEADSOUL TEMPLE</STRONG> (Австрия) отписаны все мужские вокальные партии для готовящегося альбома.&nbsp; Продюсировал вокал легендарный человек в мире прогрессивной музыки <STRONG>Devon Graves aka BUDDY LACKEY</STRONG> - основатель культовой американской группы<STRONG> PSYCHOTIC WALTZ</STRONG>. Сейчас<STRONG> Devon Graves</STRONG> работает в Австрии со своим сольным проектом <STRONG>DEADSOUL TRIBE</STRONG>.</P>
+<P>Ссылки:<BR><A href="http://www.nova-art.ru/">http://www.nova-art.ru</A><BR><A href="http://www.deadsoultribe.com/">http://www.deadsoultribe.com</A></P>
+Автор: Vit Belov
+
+### 15.05.2008 news NOVA ART: сэмплы с нового альбома в сети
+
+<P>Группа<STRONG> NOVA ART</STRONG> (Москва) завершила работу над новым альбомом под рабочим названием "<STRONG>Follow Yourself</STRONG>". Запись проходила с января по апрель 2008 г. на 4 студиях в 3 странах Европы. </P>
+<P>Сопродюсером и основным звукорежиссером альбома стал <STRONG>Kristian "Kohle" Kohlmannslehner</STRONG>, работавший с такими группами как <STRONG>Sieges Even, Crematory, Viron, Agathodaimon</STRONG> и многими другими. На его студии&nbsp;<STRONG> KohleKeller Studios</STRONG> (Германия) были записаны ударные и гитары, а также выполнено сведение и мастеринг альбома. Сопродюсером записи вокала выступил легендарный в прогрессивном мире человек <STRONG>Devon Graves</STRONG>, также известный как<STRONG> Buddy Lucky</STRONG> (<STRONG>Deadsoul Tribe</STRONG>, ex-<STRONG>Psychotic Waltz</STRONG>). Именно на его&nbsp; студии<STRONG> Deadsoul Temple</STRONG> (Австрия) в середине февраля 2008 были записаны все мужские вокальные партии для альбома.</P>
+<P>Песни с нового альбома можно послушать на официальном сайте: <A href="http://nova-art.ru/">http://nova-art.ru</A><BR>и на странице группы на My Space: <A href="http://www.myspace.com/novaartband">http://www.myspace.com/novaartband</A></P>
+<P>Группа начала поиск лейбла для издания диска. Все заинтересованные в издании или промоушене диска пишите на данный ящик info[at]nova-art.ru</P>
+Автор: Vit Belov
+
+### 19.09.2008 news NOVA ART работает над клипом
+
+<P><STRONG>NOVA ART</STRONG> заканчивает работу над клипом к песне <STRONG>Knowledge Garden</STRONG>. Предположительно клип войдет как бонус ко второму диску группы. Видео материал был отснят во время записи альбома на студиях в России, Австрии и Германии. </P>
+<P>Трейлер клипа в скором времени можно будет найти на сайте группы <A href="http://www.nova-art.ru/">http://www.nova-art.ru</A> , а также на странице myspace:&nbsp; <A href="http://www.myspace.com/NovaArtBand">http://www.myspace.com/NovaArtBand</A></P>
+Автор: Vit Belov
+
+### 04.02.2009 news NOVA ART и  MY KINGDOM MUSIC подписали контракт
+
+<P><STRONG>NOVA ART</STRONG> и итальянский лейбл <STRONG>MY KINGDOM MUSIC</STRONG> подписали договор о выпуске второго альбома группы - "<STRONG>Follow Yourself</STRONG>". Альбом выйдет в Европе, Северной и Южной Америках. Дата релиза - конец апреля 2009 года. </P>
+<P><STRONG>NOVA ART</STRONG>:&nbsp; "<EM>Мы уверены что нами сделан правильный выбор, и&nbsp; несмотря, на то, что это не большая компания, она имеет&nbsp; неплохой список дистрибьютеров по всему миру (19 стран Европы, Северная и Южная Америка). Также радует, что издатель в кратчайшие сроки готов ответить группе на любые вопросы связанные с изданием и промоушеном диска. Надеемся что это показатель&nbsp; заинтересованности и профессионализма данной компании. Вопрос о том на каком лейбле выйдет альбом в России и СНГ пока остается открытым. Следите за новостями</EM>".</P>
+<P><A href="http://www.nova-art.ru/">http://www.nova-art.ru/</A><BR><A href="http://www.myspace.com/mykingdommusic">http://www.myspace.com/mykingdommusic</A></P>
+Автор: Vit Belov
+
+### 01.03.2009 news NOVA ART - контракт с &quot;СОЮЗ мьюзик&quot;
+
+<P><IMG height=271 alt="" hspace=0 src="/images/news_rus/2009.03/13688.jpg" width=276 align=right border=5>Московская группа<STRONG> NOVA ART</STRONG> и Российский лейбл "<STRONG>СОЮЗ мьюзик</STRONG>" подписали контакт о выпуске второго альбома группы с названием - "<STRONG>FOLLOW YOURSELF</STRONG>". Релиз в России и СНГ назначен на 14 марта 2009. Как уже ранее сообщалось раннее, в Европе и Америке диск выйдет в конце апреля 2009 на Итальянском лейбле <STRONG>MY KINGDOM MUSIC</STRONG>.<STRONG> NOVA ART</STRONG>: "<EM>Мы рады, что смогли подписать контракт с СОЮЗом. И теперь спокойны, что не только Западные, но и Российские слушатели смогут приобрести этот альбом. Релиз становиться действительно мировым, чему мы бесконечно рады!</EM>"</P>
+<P>Название альбома - <STRONG>FOLLOW YOURSELF</STRONG><BR>Трек лист:<BR>1. <STRONG>Don't Follow the Crowd</STRONG><BR>2. <STRONG>Follow Yourself<BR></STRONG>3. <STRONG>Would My Soul... (Deliverance pt.1)<BR></STRONG>4. <STRONG>Medium (Deliverance pt.2)<BR></STRONG>5. <STRONG>Sense of Life (Deliverance pt.3)<BR></STRONG>6. <STRONG>Knowledge Garden7. Just Raining<BR></STRONG>8. <STRONG>Deceptive World<BR></STRONG>9. <STRONG>2-35 Before the Roar<BR></STRONG>10. <STRONG>My Essence<BR></STRONG>11. <STRONG>Lost In Dreams</STRONG></P>
+<P>Продюсер - <STRONG>Kristian "Kohle" Kohlmannslehner</STRONG><BR>Вокальный продюсер - <STRONG>Devon Graves</STRONG></P>
+<P>Записано на студиях: <BR><STRONG>Kohlekeller Studio</STRONG> (Германия),<BR><STRONG>Deadsoul Temple Studio</STRONG> (Австрия), <BR><STRONG>NOVA ART Studios</STRONG> (Россия),<BR><STRONG>Asta la Vista Records</STRONG> (Россия)</P>
+<P>Сведение и Мастеринг - <STRONG>Kohlekeller Studio</STRONG> (Германия).</P>
+<P>Гостевые музыканты: <BR><STRONG>Devon Graves</STRONG> - вокал <BR><STRONG>Олег Изотов</STRONG> - гитара<BR><STRONG>Лида Емельянова</STRONG> - вокал </P>
+<P><A href="http://www.nova-art.ru/">http://www.nova-art.ru/</A><BR><A href="http://vkontakte.ru/club2990652">http://vkontakte.ru/club2990652</A><BR><A href="http://www.myspace.com/NovaArtBand">http://www.myspace.com/NovaArtBand</A></P>
+Автор: Vit Belov
+
+### 27.04.2009 news Клип NOVA ART на 1ROCK TV 
+
+<P><STRONG>NOVA ART</STRONG> и музыкальный канал<STRONG> 1ROCK TV</STRONG> заключили контракт на трансляцию видеоклипа группы на песню <STRONG>Knowledge Garden</STRONG>, снятого во время записи недавно вышедшего альбома "<STRONG>Follow Yourself</STRONG>". Расписание трансляции клипов можно найти на официальном сайте канала: <A href="http://www.1rock.ru/tv">http://www.1rock.ru/tv</A></P>
+<P><A href="http://www.nova-art.ru/">http://www.nova-art.ru/</A><BR><A href="http://vkontakte.ru/club2990652">http://vkontakte.ru/club2990652</A></P>
+Автор: Vit Belov
+
+### 22.05.2009 news Диск NOVA ART  вышел в Европе и Америке
+
+<P>4 мая 2009 на лейбле <STRONG>My Kingdom Music</STRONG> состоялся международный релиз альбома группы <STRONG>NOVA ART - "Follow Yourself"</STRONG>. Альбом продается на территории Америки и Европы (включая Прибалтику), также альбом можно заказать на "<STRONG>Amazon</STRONG>". Mp3 файлы доступны для скачивания через сервис <STRONG>i-Tunes</STRONG>.</P>
+<P><A href="http://www.mykingdommusic.net/">http://www.mykingdommusic.net/</A><BR><A href="http://wwww.nova-art.ru/">http://wwww.nova-art.ru/</A><BR><A href="http://vkontakte.ru/club2990652">http://vkontakte.ru/club2990652</A> </P>
+Автор: Vit Belov
+
+### 29.01.2010 news NOVA ART выложили видео
+
+<P><STRONG>NOVA ART</STRONG> выложили полную версию клипа на песню "<STRONG>Knowledge Garden</STRONG>". Видео материал был отснят во время записи альбома "<STRONG>Follow Yourself</STRONG>" на студиях в России, Австрии и Германии и является своего рода видео отчетом о проделанной на этих студиях работе. Кроме группы на видео присутствуют: <STRONG>Devon Graves</STRONG> (Deadsoul Tribe, eх-<STRONG>Psychotic Waltz</STRONG>),<STRONG> Олег Изотов</STRONG>, <STRONG>Kristian "Kohle" Bonifer</STRONG>&nbsp; (продюсер).</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE=" http://www.youtube.com/v/peBXMEgWieg&hl=en_US&fs=1&;"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src=" http://www.youtube.com/v/peBXMEgWieg&hl=en_US&fs=1&;" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.10.2010 news Видео от NOVA ART
+
+<P>Первый студийный видеоклип на песню "<STRONG>Don't Follow The Crowd</STRONG>" московской nu progressive metal команды <STRONG>NOVA ART</STRONG> размещен в Сети.&nbsp;Клип снят студией "<STRONG>Frames Motion</STRONG>", режиссер - <STRONG>Дмитрий Головач</STRONG>. Главную роль в сюжетной линии сыграла <STRONG>Tanin</STRONG> (ex-<STRONG>Melancholy</STRONG>). "<STRONG>Don't Follow The Crowd</STRONG>" - заглавная композиция со второго альбома команды - "<STRONG>Follow Yourself</STRONG>" (2009).&nbsp; Песня написана под впечатлением от реальных трагических событий, произошедших в Минске 30 мая 1999 года, где в результате давки на станции "Немига" погибло 53 человека и более 150 получили ранения. Материал для видео клипа снимался на территории бывшего засекреченного объекта в центре Москвы, который состоит из сети тоннелей и бомбоубежищ, располагаясь на уровне «-18» этажа.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/aI1m2sKTI28?fs=1&hl=ru_RU"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/aI1m2sKTI28?fs=1&hl=ru_RU" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.09.2011 news NOVA ART feat Nookie (СЛОТ)
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.09/21216.jpg" width=300 align=right border=0>Группа <STRONG>NOVA ART</STRONG> и <STRONG>Nookie (Слот)</STRONG> записали совместную песню. Вот что говорит сама группа: "<EM>Мы рады что Nookie согласилась поработать с нами над одной из новых композиций. Мы давно хотели пригласить ее спеть с нами, поэтому при написании нового материала была выбрана песня, которая будет хорошо звучать с ее голосом. Работать с Nookie оказалось действительно очень просто - она прекрасно владеет вокалом и свои партии спела, даже, быстрее и лучше чем мы ожидали :)</EM>"</P>
+<P>Песня записывается&nbsp; в двуязычном варианте&nbsp; <STRONG>Посмотри/No More Pain</STRONG> и войдет в новый EP <STRONG>NOVA ART - "The 3'rd Step"</STRONG>. Пока идет подготовка к финальному сведению, группа выложила небольшой фрагмент песни с которым можно ознакомиться на официальных страницах группы:</P>
+<P><A href="http://www.nova-art.ru/">http://www.nova-art.ru/</A><BR><A href="http://www.myspace.com/NovaArtBand">http://www.myspace.com/NovaArtBand</A><BR><A href="http://vkontakte.ru/club2990652">http://vkontakte.ru/club2990652</A></P>
+Автор: Vit Belov
+
+### 19.10.2011 news NOVA ART - back to Kohlekeller Studio (Germany)
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.10/21609.jpg" width=400 align=right border=0>NOVA ART </STRONG>снова отправляются в Германию на <STRONG>Kohlekeller Studio (Crematory, Sieges Even, Agathodaimon, Benighted, Powerwolf, Heavenwood)</STRONG> для сведения нового EP «<STRONG>The 3rd Step</STRONG>». Сессия пройдет в конце октября 2011 года.</P>
+<P>Группа уже работала на этой студии в 2008 году над альбомом «<STRONG>Follow Yourself</STRONG>».</P>
+<P><A href="http://www.kohlekeller.de/">http://www.kohlekeller.de</A><BR><A href="http://www.nova-art.ru/">http://www.nova-art.ru/</A></P>
+Автор: Vit Belov
+
+### 08.01.2012 news NOVA ART - английская версия EP &quot;The 3&#39;rd Step&quot; в сети
+
+<P><STRONG><IMG height=405 alt="" hspace=0 src="/images/news_rus/2012.01/22550.jpg" width=400 align=right border=0>NOVA ART</STRONG> выложили в сеть EP "<STRONG>The 3'rd Step</STRONG>" (english edition). Это первая часть работы в которую входит четыре песни группы на английском языке, а также инструментальная кавер версия композиции 80-го года&nbsp; группы "<STRONG>Zodiac</STRONG>", трек - <STRONG>Pacific</STRONG>.</P>
+<P>Гостевое участие в на диске приняла - <STRONG>Nookie&nbsp; (гр. Слот)</STRONG>, она спела на двух треках: <STRONG>No More Pain, You The Only</STRONG>.</P>
+<P>Трек лист EP "<STRONG>The 3'rd Step (English Edition)</STRONG>":</P>
+<P>1. <STRONG>Black Harmony</STRONG> <BR>2. <STRONG>No More Pain</STRONG> (feat. Nookie)<BR>3. <STRONG>You, Only</STRONG>&nbsp; (feat. Nookie)<BR>4. <STRONG>My Beloved Hate</STRONG>&nbsp; (new Edition)<BR>5. <STRONG>Pacific </STRONG>(intsrumental)</P>
+<P>Вторая - русскозычная часть EP в данный момент находится на стадии финального сведения и также будет выложена в сеть в ближайшее время.</P>
+<P>Послушать и/или скачать песни можно на официальном сайте группе по ссылке: <A href="http://www.nova-art.ru/ru/discography/69-the-3rs-step.html">http://www.nova-art.ru/ru/discography/69-the-3rs-step.html</A></P>
+Автор: Vit Belov
+
+### 26.01.2012 news NOVA ART &amp; Tanin versus Madonna &amp; Britney
+
+<P><STRONG><IMG height=310 alt="" hspace=0 src="/images/news_rus/2012.01/22797.jpg" width=250 align=right border=0>NOVA ART</STRONG> и <STRONG>Tanin (ex-Melancholy)</STRONG> записали совместную кавер-версию на песню "<STRONG>Me Against The Music</STRONG>". В оригинале песня была исполнена Мадонной и Бритни Спирс в 2005 году.</P>
+<P><STRONG>NOVA ART</STRONG>:&nbsp; "<EM>Трек получился реально забойным и мощным, мы уверены многим он придется по душе</EM>".</P>
+<P>Песня войдет в EP "<STRONG>The 3rd Step</STRONG>" и уже сейчас доступна для прослушивания и скачивания на официальном сайте группы.</P>
+<P><A href="http://www.nova-art.ru/ru/discography/69-the-3rd-step.html">http://www.nova-art.ru/ru/discography/69-the-3rd-step.html</A></P>
+Автор: Vit Belov
+
+### 21.07.2012 news Видеоклип группы NOVA ART
+
+<P><STRONG>NOVA ART</STRONG> выложили в сеть видеоклип на песню <STRONG>Black Harmony</STRONG>. Вот что говорит сама группа о клипе:</P>
+<P>«<EM>В этот раз мы решили обойтись без всяких там сюжетов и компьютерной графики. Взяли группу, музыку, видео камеру и заперли все это на несколько часов в одном помещении (как до нас уже делали многие группы, например: Pantera — видео I'm Broken, Mnemic — Deathbox, Slipknot — Before I forget и т.п.) и мешали, мешали против часовой стрелки, до готовности :)<BR>В итоге вышло, на наш взгляд, динамичное и красивое видео</EM>."</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/pUVcoGw4SsU?feature=player_detailpage" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### 8 мая 2005. ROSSOMAHAAR, ASHEN LIGHT, ENS COGITANS, BALFOR, WEEDS IN VOGUE, NON IMMEMOR MEI и др..

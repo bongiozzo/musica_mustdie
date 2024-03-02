@@ -19,6 +19,39 @@ melodic extreme metal from Sahalin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.04.2012 news Новый альбом BLACKNESS
+
+<P><SPAN class=tit1><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.04/23412.jpg" width=400 align=right border=0>MUSICA Production представляет</SPAN></P>
+<P><SPAN class=tit3>MP-57 BLACKNESS «Взгляд За Грань»</SPAN></P>
+<P>Дебютный альбом первой экстремальной группы с острова Сахалин. Группа была образована в городе Корсаков в 2001 году. Музыка коллектива представляет собой органичную смесь мелодичных black и death-metal. Сами музыканты затрудняются с определением стиля творчества <STRONG>BLACKNESS</STRONG> и называют её melodic extreme metal. Разнообразие мелодий, симфоничность звучания и русскоязычная лирика. Альбом можно смело предложить поклонникам CHILDREN OF BODOM, CRADLE OF FILTH и GRAVEWORM.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Безмолвный зверь<BR></STRONG>2. <STRONG>Взгляд за грань<BR></STRONG>3. <STRONG>Невинная кровь<BR></STRONG>4. <STRONG>Weaking mind<BR></STRONG>5. <STRONG>Танец вслепую<BR></STRONG>6. <STRONG>Озеро прощения</STRONG><BR>7. <STRONG>Mindcreeper<BR></STRONG>8. <STRONG>Паранойя</STRONG></P>
+<P>Сайт лэйбла: <A href="http://vk.com/club5584539">http://vk.com/club5584539</A><BR>Сайт группы: <A href="http://vk.com/club716250">http://vk.com/club716250</A><BR>Канал YouTube: <A href="http://www.youtube.com/user/MusicaMustdieProd/videos">http://www.youtube.com/user/MusicaMustdieProd/videos</A></P>
+<P>Диск можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+### 27.05.2012 news BLACKNESS on MUSICA Prod
+
+<SPAN class=h1>
+<P><SPAN class=h1><IMG border=0 hspace=0 alt="" src="/images/news/2012.05/24034.jpg" width=500 align=right height=500>BLACKNESS on MUSICA Production</SPAN></P>
+<P></SPAN><SPAN class=tit1>Musica Production presents </SPAN></P>
+<P><SPAN class=tit3>BLACKNESS “Vzglyad Za Gran (Looking over the brink)”</SPAN></P>
+<P>Debut album of band from Sahalin Island, Far East of Russia. The group was found in 2001.BLACKNESS’ music is organic mixture of black and death-metal. The musicians themselves call their music as melodic extreme metal. Difference of sound, melodies and Russian lyrics. The album is recommended for fans of GRAVEWORM, CRADLE OF FILTH and CHILDREN OF BODOM. </P>
+<P>Track-list:</P>
+<P>1. <STRONG>The Silent beast</STRONG><BR>2. <STRONG>Looking over the brink</STRONG><BR>3. <STRONG>The innocent blood</STRONG><BR>4. <STRONG>Weaking mind<BR></STRONG>5. <STRONG>Dance of the blind<BR></STRONG>6. <STRONG>The lake of forgiveness</STRONG><BR>7. <STRONG>Mindcreeper</STRONG><BR>8. <STRONG>Paranoia</STRONG></P>
+<P>YouTubeClip: <A href="http://www.youtube.com/watch?feature=player_detailpage&v=OFZxA2w1Bwk">http://www.youtube.com/watch?feature=player_detailpage&v=OFZxA2w1Bwk</A><BR><A href="http://www.youtube.com/watch?feature=player_detailpage&v=NtfNQZKQELY">http://www.youtube.com/watch?feature=player_detailpage&v=NtfNQZKQELY</A></P>
+<P>Label contact <A href="mailto:musica2005@yandex.ru">musica2005@yandex.ru</A></P>
+<p><center><form target="paypal" action="https://www.paypal.com/cgi-bin/webscr" method="post">
+<input type="hidden" name="cmd" value="_s-xclick">
+<input type="hidden" name="hosted_button_id" value="PDM9CKF2S7R9A">
+<input type="image" src="https://www.paypalobjects.com/en_GB/i/btn/btn_cart_LG.gif" border="0" name="submit" alt="PayPal – The safer, easier way to pay online.">
+<img alt="" border="0" src="https://www.paypalobjects.com/ru_RU/i/scr/pixel.gif" width="1" height="1">
+</form>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

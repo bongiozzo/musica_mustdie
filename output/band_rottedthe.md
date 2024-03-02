@@ -22,6 +22,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.08.2011 news THE ROTTED на Candlelight Records
+
+<P><STRONG>Candlelight Records</STRONG> объявили о подписании контракта с "олдскульными" death-metal'истами <STRONG>THE ROTTED. </STRONG>Второй альбом группы уже записан в <STRONG>Parlour Studio с продюсером Russ Russell</STRONG> (<STRONG>NAPALM DEATH</STRONG>, <STRONG>DIMMU BORGIR</STRONG>, <STRONG>EVILE</STRONG>).</P>
+<P>Дебют<STRONG> THE ROTTED "Get Dead Or Die Trying"</STRONG> вышел в 2008 году на <STRONG>Metal Blade</STRONG>.</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/therotted">http://www.myspace.com/therotted</A></P>
+<P><center><IMG height=334 src="/images/news_rus/2011.08/20536.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

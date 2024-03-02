@@ -22,6 +22,20 @@ Neo Death metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.06.2002 news BARRACUDA на известном российском метал-лэйбле More Hate Productions....
+
+<p>Оба альбома минской brutal NEO death metal группы BARRACUDA осенью 2002 выйдут на известном российском метал-лэйбле More Hate Productions.</p>
+
+Автор: Yermola
+
+### 12.10.2005 news BARRACUDA - новый альбом, новое видео, новый сайт
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2005.10/9509.jpg" width=400 align=left border=5>Alter death indu-core банда <STRONG>BARRACUDA</STRONG> закончила работы над новым, вторым по счету полноформатным альбомом "Glyba". "<EM>Он является логическим развитием концепции дебютника "in carna", но при этом с более экспрессивным и качественным звучанием. Эксперименты с electroindustrial здесь органично переплетаются с death-core- гитарным риффингом, мощной ритм-секцией и яростным гроулом. Это более динамичный, разнообразный, яркий и в целом более зрелый материал. Новая программа обкатана как на локальных концертах, так и на крупных международных фестах Metal Heads Mission-5 (Крым, Евпатория) и Merciless East-2 (Польша, Хэлм</EM>)", - рассказывается в пресс-релизе. К нескольким трекам записаны "гостевые" партии вокалов музыкантами digital-hardcore группы<STRONG>&nbsp;AMBASSADOR 21</STRONG>&nbsp;- <STRONG>Наталией </STRONG>и <STRONG>Алексеем Протасовыми</STRONG>. Запись и мастеринг проводились традиционно в студии <STRONG>Pyre Recs</STRONG>. На две песни из "<STRONG>Glyba</STRONG>" сняты профессиональные динамичные видеоклипы "<STRONG>Dark Cult</STRONG>" и "<STRONG>Eat Dust, Swallow Dirt</STRONG>!". МP3 и видео доступны на новом официальном сайте группы: <A href="http://www.barracudaband.com/">http://www.barracudaband.com</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

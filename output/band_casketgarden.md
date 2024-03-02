@@ -39,6 +39,18 @@ melodic death thrash assault from Hungary
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.10.2011 news Новый альбом CASKETGARDEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Венгерская melodic death/neothrash metal банда<STRONG> CASKETGARDEN</STRONG> в настоящее время сводит свой новый альбом "<STRONG>The Estrangement Process</STRONG>". Пластинка была записана при помощи продюсера <STRONG>Zoltan Varga</STRONG> в <STRONG>Studio M</STRONG>. Трек "<STRONG>Unlike</STRONG>" можео послушать ниже. </FONT></P>
+<P><center>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F25729067"><PARAM NAME="allowscriptaccess" VALUE="always">
+   <embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F25729067" type="application/x-shockwave-flash" width="100%"></embed> </OBJECT></P>
+<P></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -158,6 +158,116 @@ Rojas - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.09.2003 reviews Морг, милый морг
+
+<p>Ух, ты! Мои худшие (в хорошем смысле этого слова) ожидания оправдались. Испанские звёзды блевотного грайнд-кора представили нам на суд свой четвёртый лонг плэй. Haemorrhage остались верны себе: кишечно-полостная лирика, высокохудожественное хрюканье вокалиста, булькающий бас и болезненно жужжащие гитары – все те составляющие, которые нужны каждому любителю первобытного gore-grind’а, а ля Carcass (ранний), Nyctophobic, Dead Infection и иже с ними. По сравнению с предшественником, названным “Anatomical Inferno”(98), новое творение звучит более бескомпромиссно и агрессивно. Рекомендуется к прослушиванию всем любителям “скотства”.</p>
+<p ALIGN="RIGHT"><B>Автор рецензии - <A HREF="headcrusher@mtu-net.ru">Headcrusher</A></B></p>
+
+Автор: Dimas
+
+### 03.10.2003 reviews Морг - наш сладкий дом
+
+<P>Это всего лишь четвертый полнометражный альбом одной из самых популярных команд в мире gore grind death metal. Несмотря на то, что эти испанские амигос существуют с 1990 года. Надо отметить, что между тем, они выпустили еще десяток сплитов с другими командами. То есть, багаж у музыкантов весьма весомый. В первую очередь хотелось бы порекомендовать этот кусок мяса тем, кто до сих пор наслаждается звуками таких классических релизов, как "Symphonies Of Sickness" от CARCASS и "From Enslavement To Obliteration" от NAPALM DEATH, и не может жить без них. Здесь вы найдете все то же самое. Вокал и страсть к патологоанатомии (в виде развращающей лирики)&nbsp;от CARCASS, агрессия, шумный саунд&nbsp;и прямолинейность от NAPALM DEATH. Симбиоз gore grind со старой школой death metal. Без сомнения, на сегодняшний день, испанцы - лидеры в своем направлении и ничуть не уступают своим учителям. Они уверенно развивают этот стиль до новых высот, что делает их исключительными на современной метал-сцене. Я думаю, перед вами уже не стоит вопрос о том, приобретать этот альбом или нет.</P>
+Автор: Dimas
+
+### 24.12.2003 news DVD от HAEMORRHAGE
+
+Анонсирована дата релиза нового DVD испанцев <B>HAEMORRHAGE "Visions From The Morgue"</B>. Он выйдет 5 января 2004 года на <B>Morbid Records</B>. В него войдут три видеоклипа и выступление группы на <B>With Full Force Festival - 2002</B>, а также записи выступлений группы в Голландии и Чехии.</P>
+<P>Кроме того, российская компания <A href="http://www.cd-maximum.ru/">CD-Maximum</A> приготовила сюрприз для всех почитателей группы. В начале 2004 года, в России, странах СНГ и Балтии будут выпущены все официальные альбомы группы и новый DVD (!).</P>
+Автор: Dimas
+
+### 20.09.2004 reviews Кавера с кровоизлияниями
+
+<P>После трех первых релизов испанские грайндкорщики Haemorrhage взяли да и решили выпустить альбомчик каверов. К тому времени эта команда, начавшая свою гнилостную детельность в начале 90-х, уже достаточно прославилась на экстремальной сцене, в том числе и тем, что ей первой из испанских грайндкоровых банд удалось заполучить контракт с иностранным лейблом (Morbid Records). В лапы зверских южан (на гитаре у которых играет, между прочим, девица с миленьким именем Ана) попали не только такие экстремальные группы, как Carcass, Regurgitate, Impetigo и Defecation, но и всё же немного более мирные Entombed, Suicidal Tendencies, Cryptic Slaughter и Impaled Nazarene, а также...UFO ('Doctor Doctor', исполненная вживую)! Плюс добавлена одна своя песенка. Над вердиктом долго думать не надо: если вам близок стиль и, тем более, если вы являетесь поклонником Haemorrhage, то покупка сего релиза просто обязательна (кстати, к каждому каверу прилагается краткий комментарий самих музыантов); если же при слове "грайнд" вас начинает тошнить, то и не думайте даже близко подходить к этой, неплохой, в общем-то, пластинке.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 12.11.2004 reviews Паталогоанатомы тоже любят пошутить... Но надо ли?
+
+<P>Получасовой, третий по счету, релиз испанских дэтграйндовиков Haemorrhage ничего нового вам не преподнесет. Ибо нефиг. Быстренький брутальный материал, снабженный веселыми, в духе Андрея Бильжо, картинками, и веселыми же текстами с явным влиянием Carcass, обеспечит вам хорошее настроение на целый день. Диск рекомендуется слушать в легком (или средней тяжести) подпитии, именно тогда он будет в кайф! 14 вещичек пролетают как одна и вдохновляют на подвиги всяческого рода (я, например, песни через три позвонил одной знакомой). Но не переберите с крепким спиртным, а то вам захочется быть похожим на рисованых героев "Anatomical Inferno", а это уже может вылиться в криминал...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 14.01.2005 reviews Паталогический культ
+
+<SPAN lang=RU><SPAN style="COLOR: #ffffff">
+<P><SPAN lang=RU>Перед вами дебютник самой, пожалуй, известной испанской грайндовой команды </SPAN>Haemorrhage. Продолжать надо? Ну да ладно. Наверное, ребятам недостает каркассовских соляков, да и звучат они явно потише и даже “помягче”, но всё равно любому грайндовику (а особенно, любителю текстов о медицинских патологиях и всяческих извращениях) сей дисочек с 14 песнями на полчаса (включая вступление к некрофилическому фильму Necromantic<SPAN lang=RU> – какая прелесть!) придется, думаю, по душе. Да, бывают грайндовые группы, которые слушать просто невозможно, где «вокал» и инструменты смешиваются в неудобоваримую кашу, но тут – всё очень четко исполнено и прописано. Кстати, отмечу, что </SPAN>“Emetic Cult”<SPAN lang=DE-AT>, на мой скромный взгляд, является одним из лучших альбомов за всю историю группы.</SPAN></P>
+<P><SPAN lang=DE-AT>Альбом предоставлен компанией "СД-Максимум"</SPAN></P></SPAN></SPAN>
+Автор: Ixtiandr
+
+### 01.04.2005 news HAEMORRHAGE войдут в студию
+
+<P><STRONG>HAEMORRHAGE</STRONG> готовы войти в студию в апреле для записи нового полнометражного альбома для <STRONG>Morbid records</STRONG>. Кроме прочего, коллектив планирует тур по Японии в сентябре.</P>
+Автор: Vit Belov
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+### 02.09.2009 news HAEMORRHAGE на Relapse Records
+
+<P>Испанцы <STRONG>HAEMORRHAGE</STRONG> подписали договор о сотрудничестве с <STRONG>Relapse Records</STRONG>.</P>
+<P>Новый альбом группы выйдет именно на этом лейбле. <STRONG>Relapse Records</STRONG>, так же, готовит к переизданию два альбома <STRONG>HAEMORRHAGE</STRONG>: <STRONG>"Grume"</STRONG>(1997)&nbsp; и <STRONG>"Apology For Pathology"</STRONG>(2006).</P>
+<P><IMG height=266 alt="" hspace=100 src="/images/news_rus/2009.09/14960.jpg" width=400 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 05.12.2009 news HAEMORRHAGE + MONASTERY DEAD в Москве
+
+<P><IMG height=307 alt="" hspace=0 src="/images/shows_rus/2009.12/15129.jpg" width=400 align=right border=5>5 Декабря 2009 - Клуб “ РЕЛАКС ”</P>
+<P>COYOTE RECORDS представляет :<BR><A href="http://www.coyoterecords.ru/">www.coyoterecords.ru</A></P>
+<P><STRONG>HAEMORRHAGE <BR>MEMBRO GENITALI BEFURCATOR <BR>SURGEONT<BR>MONASTERY DEAD <BR>CARNAL PERSECUTION</STRONG> <BR>Клуб РЕЛАКС<BR>Адрес: ул. Мельникова, 7 (М. Дубровка / Пролетарская) Тел: (495)675-91-46<BR><A href="http://www.relaxclub.ru/">http://www.relaxclub.ru</A></P>
+<P>Цена билета :</P>
+<P>600 ТОЛЬКО до 1 ноября через сайт <A href="http://www.coyoterecords.ru/">www.coyoterecords.ru</A> или по тел: +7 903 538 34 38<BR>700 предварительно во всех рок-магазинах и кассе клуба .<BR>850 в день концерта в клубе .</P>
+<P>Все вопросы по : тел +7-903-538-34-38 , </P>
+<P>Email: <A href="mailto:coiot@mail.ru">coiot@mail.ru</A> , <A href="http://www.coyoterecords.ru/">www.coyoterecords.ru</A></P>
+<P><STRONG>MONASTERY DEAD</STRONG> </P>
+<P>Это death metal команда из Санкт - Петербурга. Основана в октябре 2004 года Вадимом Николаевым (бас гитара). Состав группы менялся, пока наконец не пришел в устойчивое состояние. Группа развивалась, подход к музыке становился все более серьезным, велась работа над своим материалом. Наконец , в ноябре 2006 года группа отыграла свой первый концерт в клубе Арктика. В течении следующего года группа усиленно работала над своим материалом и выступала в различных клубах города и области. В августе 2008 года на студии "ФАЗА" группа записала 13 композиций. После чего, начались поиски лейбла, продлившиеся несколько месяцев. В ноябре 2008 года уважаемый в андеграунде лейбл MUSICA PRODUCTION предложил группе контракт на выпуск альбома. И, наконец, в начале апреля 2009 года дебютный альбом "Victims Of Senseless Massacre" вышел в свет.<BR></P>
+Автор: Vit Belov
+
+### 24.02.2011 news Новый альбом HAEMORRHAGE
+
+<P>Испанцы<STRONG> HAEMORRHAGE</STRONG> подготовили новый альбом <STRONG>"Hospital Carnage"</STRONG>, который выйдет 30 мая на <STRONG>Relapse Records</STRONG>. Пластинка была записана в студии <STRONG>VRS Studios </STRONG>с продюсером <STRONG>Samuel Ruiz</STRONG>. Вот названия нескольких песен: <STRONG>"Traumaggedon"</STRONG>, <B>"Fomite Fetish"</B>, <B>"Hospital Thieves"</B>, <B>"Hypochondriac"</B>, <B>"Necronatology"</B>&nbsp;и <B>"Tumour Donor"</B>. </P>
+<P><center><IMG height=362 src="/images/news_rus/2011.02/18717.jpg" width=362 border=0></P>
+Автор: Vit Belov
+
+### 16.04.2011 news HAEMORRHAGE: видео на песню &quot;Flesh-devouring Pandemia&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Испанцы <STRONG>HAEMORRHAGE</STRONG> обнародовали новое видео на песню <STRONG>"Flesh-devouring Pandemia"</STRONG>. Песня вошла в новый альбом группы <STRONG>"Hospital Carnage"</STRONG>, выходящий 24 мая на <STRONG>Relapse Records</STRONG>.</FONT></P>
+<CENTER><IFRAME title="YouTube video player" height=390 src="http://www.youtube.com/embed/nJvq47a3zvo" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.07.2011 news Видео-клип HAEMORRHAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип испанцев <STRONG>HAEMORRHAGE </STRONG>на песню <STRONG>"Traumaggedon"</STRONG> можно посмотреть ниже. Трек вышел на нового альбоме группы <STRONG>"Hospital Carnage"</STRONG>, который вышел 30 мая на <STRONG>Relapse Records</STRONG>.</FONT></P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/Hb1Bs_3dCAk" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.07.2012 news HAEMORRHAGE: &quot;Punk Carnage&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Gore grind испанцы <STRONG>HAEMORRHAGE</STRONG> выпускают мини альбом кавер-версий. В диск, названный <STRONG>"Punk Carnage"</STRONG>, войдут перепевки песен древних испанских панк-рок групп. Релиз состоится 28 августа на лейбле <STRONG>Mierdas Productions</STRONG>. Трейлер к альбому можно посмотреть по ссылке: <A href="http://www.youtube.com/watch?v=zmPUz6p7ZbI">http://www.youtube.com/watch?v=zmPUz6p7ZbI</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.07/24356.jpg" width=403 height=403></CENTER>
+Автор: Headcrusher
+
+### 31.03.2013 news HAEMORRHAGE: видео на трек &quot;Suzio Policia&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Испанская грайндкор банда <STRONG>HAEMORRHAGE</STRONG> опубликовала видеоклип на песню&nbsp;<STRONG>"Suzio Policia"</STRONG>. Этот трек является перепевкой итальянской панк-рок группы <STRONG>IV REICH</STRONG> и вышел на прошлогоднем миньоне <STRONG>HAEMORRHAGE</STRONG> <STRONG>"Punk Carnage"</STRONG>, на котором можно найти ещё 8 композиций различных испанских панков, перепетых грайдкор маньяками.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/BRnFZQKcyL0" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 30.08.2017 news HAEMORRHAGE: видео &quot;Transporting Cadavers&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Испанские grindcore-маньяки <STRONG>HAEMORRHAGE</STRONG>&nbsp;опубликовали ролик на песню<STRONG> "Transporting Cadavers"</STRONG>. Трек войдёт на грядущий полноформатник ансамбля, который получил название <STRONG>"We Are The Gore"</STRONG> и должен выйти 6 октября на <STRONG>Relapse Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предзаказ альбома на всевозможных носителях доступен по ссылке: <A href="http://bit.ly/HaemorrhageWATG">http://bit.ly/HaemorrhageWATG</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/Ba0RLPSGkFc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

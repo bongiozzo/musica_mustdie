@@ -50,6 +50,100 @@ Digipack version comes with a woven patch and 2 bonus tracks: 'Sacrifice' (Batho
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.06.2008 reviews Грамотная стилизация под классический thrash-metal
+
+<P>Вам никогда не хотелось стать участником популярной группы в своём любимом жанре? Играть перед кучей потных поклонников в душном подпольном клубе, пить пиво прямо на сцене и обливать минералкой разгорячённых девушек в первом ряду. Кроме этого, мы же все знаем, как должны звучать те или иные стили и с лёгкостью предлагаем группам пути к улучшению их собственной музыки: «Вот здесь надо побыстрее, здесь поритмичнее, а здесь и вовсе помелодичнее».</P>
+<P>Выходцы из солнечного штата Калифорния группа WARBRINGER осуществила эту свою мечту. Насмотревшись на современные веяния в своём любимом стиле thrash-metal и оставаясь фэнами старой школы этого стиля, ребята сколотили группу, возвращающую нас в 80-е годы. Во времена, когда KREATOR, DESTRUCTION или SLAYER находились в своей лучшей форме. Изящно стилизовав свою музыку под творчество этих монстров на своих первых альбомах, до придела напичкав альбом хитовым и качовым материалом, WARBRINGER удалось вернуть в прошлое и меня. При первом ознакомлении с обложкой (танки, огонь, черти) и звучанием я недоумённо покачал головой, но уже со второй половины альбома я въехал и всё оставшееся время рубился, как молодой headbanger в клубе “Relax”. Забавно, что подобным образом сейчас thrash-metal представляют только в underground, японская группа FASTKILL, например, а сами динозавры уже и не вспоминают, когда могли вот таким, пусть и примитивным образом, раскачивать толпу. Здесь же мы имеем материал, который, как справедливо написано на сайте Mystic Empire, является классикой thrash-metal, образца 2008 года.</P>
+<P>Хороший альбом, который позволит вдоволь поностальгировать всем любителям thrash-metal со стажем. Высшей оценки он, конечно же, не заслуживает, но подобная стилизация точно пригодится всем любителям стиля, да и музыка здесь тоже очень не плохая.</P>
+Автор: Vit Belov
+
+### 28.09.2008 news WARBRINGER выложили клип
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Thrash-metal группа<STRONG> WARBRINGER</STRONG> выложила в сеть видеоклип на песню "<STRONG>At The Сrack Of Doom</STRONG>".</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=43581037,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=43581037,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></FONT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 11.02.2009 news WARBRINGER записали второй альбом
+
+<P><STRONG>WARBRINGER </STRONG>закончили запись второго альбома с помощью гитариста<STRONG> EXODUS</STRONG> <STRONG>Gary Holt. </STRONG>Пластинку сведёт <STRONG>Zack Ohren</STRONG> (<B itxtvisited="1">SUFFOCATION</B>, <B itxtvisited="1">ALL SHALL PERISH</B>). Дата релиза 19 мая на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.03.2009 news Новый thrash от WARBRINGER
+
+Новую песню <STRONG>WARBRINGER</STRONG> <STRONG>"Severed Reality"</STRONG> можно послушать на <STRONG>MySpace</STRONG> страничке: <A href="http://www.myspace.com/warbringer">http://www.myspace.com/warbringer</A>
+Автор: Vit Belov
+
+### 31.03.2009 news Обложка WARBRINGER
+
+<P><STRONG>WARBRINGER</STRONG> опубликовали обложку своего нового альбома <STRONG>"Waking Into Nightmares"</STRONG>, который выйдет 19 мая на <STRONG>Century Media</STRONG>.</P>
+<P>
+<CENTER><IMG height=251 src="/images/news_rus/2009.03/13873.jpg" width=245 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.05.2009 news Ещё новьё от WARBRINGER
+
+<P>Трэшеры <STRONG>WARBRINGER</STRONG> выложили на своём<STRONG> MySpace</STRONG> ещё одну новую песню "<STRONG>Prey For Death</STRONG>": <A href="http://www.myspace.com/warbringer">http://www.myspace.com/warbringer</A></P>
+<P>Трэк попадёт на новый альбом "<STRONG>Waking Into Nightmares</STRONG>", выходящий 19 мая на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.05.2009 news Видео WARBRINGER
+
+<P>Новое видео трэшеров<STRONG> WARBRINGER</STRONG> на песню <STRONG>"Severed Reality" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=57061827">WARBRINGER - Severed Reality (OFFICIAL VIDEO)</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=57061827,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=57061827,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.05.2009 news WARBRINGER прогрессируют
+
+<P>Новый альбом трэшеров <STRONG>WARBRINGER "Waking Into Nightmares"</STRONG> не попал в чарты<STRONG> Billboard</STRONG>, но продался солидными 2000 копиями.</P>
+Автор: Vit Belov
+
+### 20.07.2009 reviews WARBRINGER быстро мужают
+
+<P>WARBRINGER ворвались на мировую thrash-metal сцену со своим дебютным альбомом “War Without End” в 2008 году. Тогда группа воспринималась, как условная часть некоего мирового thrash-metal удара. Появлялось множество хороших групп, нарезающих old school вариант известного стиля, и WARBRINGER были «одними из». Со своим вторым альбомом американцы реально претендуют на то, чтобы стать самостоятельной thrash-metal единицей.</P>
+<P>Предыдущую пластинку продюссировал легендарный Bill Metoyer, на новой работе ребятам помогал Gary Holt из EXODUS, а этот человек знает, где бьют из под земли источники гонораров и мировой известности. Последние работы основной группы Gary не отвлекаются на концепции и интересные ходы. Они просто дают слушателю то, что он ожидает. Ураганный, прямолинейный и качественнейший thrash-metal. Эту же философию он привил и WARBRINGER. Если на первом альбоме ещё можно было найти черты, присущие начинающей группе, теперь WARBRINGER выглядят настоящими зубрами. Каждая их песня потенциальный хит, а если и не хит, то великолепный рифф и ураганное соло вам обеспечены. На протяжении всей пластинки вас не покинет энтузиазм и хорошее настроение. Thrash-metal высшей пробы. </P>
+<P>Несмотря на появление огромного количества thrash-metal групп в последнее время, для себя отмечу WARBRINGER, как первых, которые совершили попытку сыграть на поле настоящих профессионалов своего дела. Их уже нельзя воспринимать, как UG команду, выступающую по клубам. Нет, они ещё выступают по клубам, но их музыка уже заточена под то, чтобы раскачивать стадионы.</P>
+Автор: Vit Belov
+
+### 16.06.2011 news Новый альбом WARBRINGER
+
+<P><STRONG><IMG height=394 alt="" hspace=0 src="/images/news_rus/2011.06/19665.jpg" width=408 align=right border=0>WARBRINGER</STRONG> закончили запись третьего альбома <STRONG>"Worlds Torn Asunder"</STRONG>, который выйдет в сентябре на<STRONG> Century Media</STRONG>. Пластинку спродюсировал <STRONG>Steve Evetts</STRONG> (<B>THE DILLINGER ESCAPE PLAN</B>, <B>SYMPHONY X</B>, <B>SEPULTURA</B>, <B>HATEBREED</B>). Трек-лист:</P>
+<P>01. <B>Living Weapon</B><BR>02. <B>Shattered Like Glass</B><BR>03. <B>Wake Up... Destroy</B><BR>04. <B>Future Ages Gone</B><BR>05. <B>Savagery</B><BR>06. <B>Treacherous Tongue</B><BR>07. <B>Echoes From The Void</B><BR>08. <B>Enemies Of The State</B><BR>09. <B>Behind The Veils Of Night</B> (instrumental)<BR>10. <B>Demonic Ecstasy</B></P>
+Автор: Vit Belov
+
+### 15.07.2011 news Обложка нового WARBRINGER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=336 alt="" hspace=0 src="/images/news_rus/2011.07/20148.jpg" width=336 align=right border=0>Третий альбом молодых и энергичных трешеров <STRONG>WARBRINGER</STRONG> <STRONG>"Worlds Torn Asunder" </STRONG>выйдет 27 сентября на <STRONG>Century Media</STRONG>. Продюсером альбома выступил <STRONG>Steve Evetts</STRONG> (<B>SUICIDE SILENCE</B>, <B>THE DILLINGER ESCAPE PLAN</B>, <B>SYMPHONY X</B>), а обложку вновь нарисовал <STRONG>Dan Seagrave. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Living Weapon</B><BR>02. <B>Shattered Like Glass</B><BR>03. <B>Wake Up...Destroy</B><BR>04. <B>Future Ages Gone</B><BR>05. <B>Savagery</B><BR>06. <B>Treacherous Tongue</B><BR>07. <B>Echoes From The Void</B><BR>08. <B>Enemies of the State</B><BR>09. <B>Behind the Veils of Night</B> (instrumental) <BR>10. <B>Demonic Ecstasy</B></P>
+Автор: Vit Belov
+
+### 30.09.2011 news WARBRINGER: клип на трек &quot;Shattered Like Glass&quot;
+
+<P><STRONG>WARBRINGER</STRONG> обнародовали новый видео клип на трек<STRONG> "Shattered Like Glass"</STRONG>. Сама песня <STRONG>"Shattered Like Glass"</STRONG> скоро появится на альбоме группы&nbsp;<STRONG>"Worlds Torn Asunder"</STRONG>, выход которого запланирован на 27 сентября.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/-5wqtSFuGLc" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 25.06.2016 news WARBRINGER подписались на Napalm Records
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Американские трешеры <strong>WARBRINGER</strong> подписали контракт с <strong>Napalm Records</strong>. Группа работает над новым альбомом.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности последуют.</font></p><p><center><img width="735" height="488" src="/images/news_rus/2016.06/29474.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 25.06.2016 news WARBRINGER signed to Napalm
+
+<p>American thrashers <strong>WARBRINGER</strong> have signed a contract with <strong>Napalm Records</strong>. The group is working on a new album.</p><p>The details will follow.</p><p><center><img width="735" height="488" src="/images/news_rus/2016.06/29474.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

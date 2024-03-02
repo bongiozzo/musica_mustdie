@@ -8,6 +8,18 @@ gothic-rock
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.10.2004 news 31 октября (воскресенье) 2004 - Клуб &quot;Точка&quot; - Edge of the Night VII - Halloween Party
+
+<P><IMG height=200 src="/images/shows_rus/2004.10/7239.jpg" width=250 align=left border=0>31-го октября (воскресенье) 2004 в московском клубе "Точка" состоится седьмая ежегодная Хэлловин party - фестиваль "Edge of the Night". В рамках этого мероприятия Russian Gothic Project традиционно старается представлять российской аудитории интереснейшие отечественные группы в стилях gothic/industrial/synthpop. В этом году отечественную dark scene представят московские коллективы ARRIVAL (synthpop/electro), NECRO STELLAR (darkwave), THE UNHOLY GUESTS (gothic rock), REQUIEM FOR FM (synthgoth) - а также на фестивале выступит белорусская группа TERRA CADAVERIS, не без оснований претендующая на звание "Dark Electro сенсация года". Эти пять разноплановых групп представят слушателям практически весь спектр современной "темной сцены".</P>
+<P>Начиная с 19:00, в перерывах между выступлениями групп и до утра на просторном танцполе клуба "Точка" будет звучать музыка в стилях gothic rock, love metal, darkwave, dark electro/EBM, synthpop/futurepop, new wave/80's от команды dj-ев gothic.ru - dj MadMax2, dj Hellen, dj Negative, dj Lumbricus.</P>
+<P>Стоимость входа - 300 р.</P>
+<P>Билеты будут продаваться в кассе клуба непосредственно перед и во время мероприятия. Адрес клуба: Москва, м. "Октябрьская" (кольцевая), Ленинский пр-т, д. 6.</P>
+<P>Пресс-релиз мероприятия -<BR><A href="http://music.gothic.ru/events/edge7/edge7.htm">http://music.gothic.ru/events/edge7/edge7.htm</A></P>
+Автор: Morsus
+
+
 ## Обсуждения
 
 ### Фотки с Castle Party 2004 (жырный готик-фест в Польше)

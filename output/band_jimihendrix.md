@@ -210,6 +210,34 @@ Chris Wood  -  Wind
 
 * C группой "Jimi Hendrix Experience" Jimi Hendrix
 
+## Публикации
+
+### 28.08.2002 news Самая дорогая гитара в мире...
+
+<p>В Сентябре на аукционе в Лондоне будет продана гитара Fender Stratocaster 1963 года ранее принадлежавшая Джимми Хендриксу. Последним вледельцем пока еще является Dweezil Zappa, которому гитара досталась от отца Фрэнка, на которой он даже записывал альбом Zoot Allures в 1976 году. <BR> <BR> Устроитель аукциона Cooper Owen предполагает выручить за инструмент от 534 000 до 610 000 долларов.</p>
+
+Автор: Yermola
+
+### 28.08.2002 news JIMI HENDRIX&#39;s Half-Million Dollar Guitar To Be Sold ....
+
+<p>A charred guitar set alight on stage by JIMI HENDRIX could become the most expensive guitar ever sold when it gets auctioned off in London next month, according to Hits Daily Double. The 1963 Fender Stratocaster is being offered for sale by Dweezil Zappa. One of Hendrix's roadies had given it to Dweezil's father Frank Zappa, who used it on his own 1976 album Zoot Allures after making it again playable. London auction house Cooper Owen said the instrument was expected to fetch between $534,000 to $610,000, which would make it the most expensive guitar ever sold.</p>
+
+Автор: Yermola
+
+### 27.08.2003 news Jimi Hendrix опять No.1
+
+<p>Jimi Hendrix был назван величайшим гитаристом за всю историю журналом Rolling Stone. Вот десятка лучших: <br> 01. Jimi Hendrix<br> 02. Duane Allman<br> 03. B.B. King<br> 04. Eric Clapton<br> 05. Robert Johnson<br> 06. Jimmy Page<br> 07. Keith Richards<br> 08. Chuck Berry<br> 09. Stevie Ray Vaughn<br> 10. Ry Cooder<br> Последнее сотое место занял гитарист SOUNDGARDEN Kim Thayil.</p>
+
+Автор: Vit Belov
+
+### 12.12.2010 news Billboard посчитали 2010 год
+
+<P>Журнал<STRONG> Billboard</STRONG> опубликовал список самых продаваемых в 2010 году hard-rock/heavy-metal альбомов в США. Отмечу, что не все из этих альбомов вышли в 2010 году, просто подсчитывались продажи за этот год. Лидером списка стали <STRONG>NICKELBACK</STRONG>, второе место заняли<STRONG> LINKIN' PARK</STRONG> и замкнули призовую тройку<STRONG> AC/DC</STRONG> со своим очередным сборником. </P>
+<P><IMG height=90 alt="" hspace=0 src="/images/news_rus/2010.12/17802.jpg" width=400 align=right border=0>TOP 50:</P>
+<P>01. <B>Dark Horse</B> - NICKELBACK<BR>02. <B>A Thousand Suns</B> - LINKIN PARK<BR>03. <B>Iron Man 2 (Soundtrack)</B> - AC/DC<BR>04. <B>The Oracle</B> - GODSMACK<BR>05. <B>Nightmare</B> - AVENGED SEVENFOLD<BR>06. <B>Asylum</B> - DISTURBED<BR>07. <B>Dear Agony</B> - BREAKING BENJAMIN<BR>08. <B>The Sound Of Madness</B> - SHINEDOWN<BR>09. <B>Them Crooked Vultures</B> - THEM CROOKED VULTURES<BR>10. <B>Valleys Of Neptune</B> - JIMI HENDRIX<BR>11. <B>Night Castle</B> - TRANS-SIBERIAN ORCHESTRA<BR>12. <B>War Is The Answer</B> - FIVE FINGER DEATH PUNCH<BR>13. <B>Life Starts Now</B> - THREE DAYS GRACE<BR>14. <B>Greatest Hits</B> - FOO FIGHTERS<BR>15. <B>Scream</B> - OZZY OSBOURNE<BR>16. <B>Memento Mori</B> - FLYLEAF<BR>17. <B>Fever</B> - BULLET FOR MY VALENTINE<BR>18. <B>Black Gives Way To Blue</B> - ALICE IN CHAINS<BR>19. <B>Backspacer</B> - PEARL JAM<BR>20. <B>Cage The Elephant</B> - CAGE THE ELEPHANT<BR>21. <B>Full Circle</B> - CREED<BR>22. <B>Greatest Hits</B> - M&#214;TLEY CR&#220;E<BR>23. <B>Slash</B> - SLASH<BR>24. <B>Diamond Eyes</B> - DEFTONES <BR>25. <B>Hellbilly Deluxe 2</B> - ROB ZOMBIE<BR>26. <B>Korn III: Remember Who You Are</B> - KORN<BR>27. <B>Scars & Souvenirs</B> - THEORY OF A DEADMAN<BR>28. <B>The Final Frontier</B> - IRON MAIDEN<BR>29. <B>Stone Temple Pilots</B> - STONE TEMPLE PILOTS<BR>30. <B>Mudvayne</B> - MUDVAYNE<BR>31. <B>Tri-Polar</B> - SICK PUPPIES<BR>32. <B>Audio Secrecy</B> - STONE SOUR<BR>33. <B>Greatest Hits</B> - THE WHO<BR>34. <B>Greatest Hits</B> - BON JOVI<BR>35. <B>Powerless Rise</B> - AS I LAY DYING<BR>36. <B>All Hope Is Gone</B> - SLIPKNOT<BR>37. <B>Year Of The Black Rainbow</B> - COHEED AND CAMBRIA<BR>38. <B>Stampede</B> - HELLYEAH<BR>39. <B>Chickenfoot</B> - CHICKENFOOT<BR>40. <B>Swan Songs</B> - HOLLYWOOD UNDEAD<BR>41. <B>Order Of The Black</B> - BLACK LABEL SOCIETY<BR>42. <B>Volume 4: Songs In The Key Of Love And Hate</B> - PUDDLE OF MUDD<BR>43. <B>All Night Long</B> - BUCKCHERRY<BR>44. <B>For We Are Many</B> - ALL THAT REMAINS<BR>45. <B>Desperate Measures</B> - HOLLYWOOD UNDEAD<BR>46. <B>Miss America</B> - SAVING ABEL<BR>47. <B>Custom Built</B> - BRET MICHAELS<BR>48. <B>Cold Day Memory</B> - SEVENDUST<BR>49. <B>World Painted Blood</B> - SLAYER<BR>50. <B>Sonic Boom</B> - KISS</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

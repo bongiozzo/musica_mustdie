@@ -109,6 +109,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2011 news MOKOMA запишут акустический альбом
+
+<P>Финские трешеры <STRONG>MOKOMA </STRONG>начнут запись акустического альбома в начале августа. Альбом должен выйти уже в ноябре и будет содержать ранние вещи коллектива, переписанные без применения электрических инструментов. Продюсером пластинки станет <STRONG>Jarkko Martikainen</STRONG>, а запись пройдёт в <STRONG>JJ Studios</STRONG> в Тампере.</P>
+<P><STRONG>MOKOMA </STRONG>отыграли акустическое шоу в клубе Таависта в апреле этого года, фрагмент их выступления можно посмотреть ниже.</P>
+<P>11 июня этого года<STRONG> MOKOMA</STRONG> выступили на фестивале <STRONG>Sauna Open Air</STRONG> в Финляндии. Фоторепортаж с выступления можно посмотреть здесь: <A href="/ru/galleries/1/718/">http://musica.mustdie.ru/ru/galleries/1/718/</A></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/oW3Z1rk1R8c?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/oW3Z1rk1R8c?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

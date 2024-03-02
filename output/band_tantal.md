@@ -34,6 +34,166 @@ Alexandr Strelnikov - Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.01.2007 news Промо-диск группы TANTAL
+
+<P>Молодая подмосковная группа <B>TANTAL</B> представляет вашему вниманию свой промо-диск "<B>Emotional Distress</B>". Свежая работа коллектива сочетает в себе изрядную долю <SPAN lang=X-NONE>агрессивного и виртуозного death metal с разноплановыми мелодичными "фишками" и прогрессивными вкраплениями. Особым украшением диска является потрясающий женский гроулинг, порой плавно переходящий в изящный чистый голос. В состав группы входит гитарист известной московской группы <B>REST IN PAIN</B> <B>Дмитрий Игнатьев</B>, известный так же по участию в таких проектах как <B>FATAL BAND</B> и <B>ПУТЬ СОЛНЦА</B> (проект бывшего вокалиста <B>BUTTERFLY TEMPLE</B> - <B>Mirrona</B>). Гостевое участие в этой работе принял <B>Андрей Смирнов</B> (<B>Everlost, Shadow Host</B>), записавший несколько партий соло-гитары. Данный промо-диск доступен на официальном сайте коллектива. Также скоро будет выпущен ограниченный тираж промо-дисков, который будет раздаваться всем желающим. В него вошли следующие вещи: </SPAN></P>
+<P><B><IMG height=249 alt="" hspace=10 src="/images/news_rus/2007.01/11229.jpg" width=250 align="left" border=0>1. <A href="http://www.tantalweb.ru/Music/Tantal_controlled_by_hate.mp3">Controlled By Hate </A></B></P>
+<P><B>2. <A href="http://www.tantalweb.ru/Music/Tantal_confession.mp3">Confession</A></B></P>
+<P><B>3. <A href="http://www.tantalweb.ru/Music/Tantal_emotional_distress.mp3">Emotional Dietress</A></B></P>
+<P><B>4. <A href="http://www.tantalweb.ru/Music/Tantal_suicide.mp3">Suicide</A></B></P>
+<P><B>5. <A href="http://www.tantalweb.ru/Music/Tantal_caprice24.mp3">Caprice #24 by Paganini</A></B></P>
+Автор: Dimas
+
+### 22.08.2007 news Новый трек от TANTAL
+
+<FONT size=2>
+<P>Группа <STRONG>TANTAL</STRONG>&nbsp;активно продолжает работу над своим дебютным альбомом. Сейчас&nbsp;музыканты готовятся&nbsp;к записи в студии, для чего записывают демо-версии всех песен, которые войдут на альбом, продумывают гитарные и вокальные аранжировки. Рабочее название альбома "<STRONG>Beginning of the end</STRONG>", как и было обещано он будет концептуальным. В скором времени будет целиком опубликован трэк-лист. Пока, всем желающим предлагается&nbsp;послушать новую песню под названием "<STRONG>In the end</STRONG>" на страничке&nbsp; <A href="http://www.myspace.com/tantalband">www.myspace.com/tantalband</A></P></FONT>
+Автор: Dimas
+
+### 26.02.2008 news TANTAL работают над новым альбомом
+
+<P><IMG height=207 alt="" hspace=0 src="/images/news_rus/2008.02/12301.jpg" width=300 align=right border=5>Death-metal группа с женским вокалом<STRONG> TANTAL</STRONG> готовится к записи нового альбома, который станет последователем демо-мини-альбома "<STRONG>Emotional Darkness</STRONG>", записанного в 2007 году. Запись планируется начать уже этой весной. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 05.03.2008 news Новости от TANTAL
+
+<P>3 марта подмосковная progressive thrash-death группа <STRONG>TANTAL</STRONG> начала работу над своим дебютным альбомом «<STRONG>The Beginning Of The End</STRONG>». На официальном сайте музыканты опубликовали утвержденный трэк-лист диска: <BR><STRONG></STRONG></P>
+<P><STRONG><IMG height=242 alt="" hspace=10 src="/images/news_rus/2008.03/12324.jpg" width=350 align=right border=0>1. Beginning of the end<BR>2. Controlled by hate<BR>3. Lifeless existence<BR>4. When clarity comes...<BR>5. Suicide<BR>6. In the end Pt.1 (Agony)<BR>7. In the end Pt.2 (Epitaph)<BR>8. Farewell</STRONG></P>
+<P><BR>Гостевое участие в записи примут <STRONG>Андрей Смирнов</STRONG> из группы <STRONG>EVERLOST</STRONG>, а также <STRONG>Douglas Verhoeven</STRONG> - гитарист бельгийской modern-death metal группы <STRONG>IN-QUEST</STRONG>. </P>
+<P>Комментарий вокалистки группы <STRONG>Софьи Райковой</STRONG>: «Музыка альбома будет представлять смесь техничного, но в тоже время мелодичного Thrash-Death metal, приправленного прогрессивными элементами и мрачной концептуальной лирикой. Вокалу мы также уделили очень много внимания, так что вы сможете услышать и скриминг с гроулингом и чистый голос. Это будет очень разнообразная работа, которая придется по вкусу многим ценителям метала»</P>
+Автор: Dimas
+
+### 25.04.2008 news Подробности о записи альбома группы TANTAL
+
+<P><IMG height=222 alt="" hspace=10 src="/images/news_rus/2008.04/12476.jpg" width=350 align=left border=0>В настоящее время закончена запись всех барабанных и гитарных партий для нового альбома группы <STRONG>TANTAL</STRONG>, на очереди бас и вокал. Запись барабанов была сделана на студии «<STRONG>Гигант-Рекордс</STRONG>» (<STRONG>TRACKTOR BOWLING,&nbsp;КИПЕЛОВ</STRONG> и др.). Работа над остальными интсрументальными и вокальными треками проходит на студии «<STRONG>Дай-Рекордс</STRONG>» под руководством небезызвестного <STRONG>Евгения Виноградова (CATHARSIS, E.S.T., БОНИ 'НЕМ</STRONG>&nbsp;и др.). Гостями на альбоме стали <STRONG>Андрей Смирнов</STRONG> (<STRONG>EVERLOST</STRONG>, ex-<STRONG>SHADOW HOST</STRONG>), записавший соло к композиции «<STRONG>The beginning of the end</STRONG>» и <STRONG>Douglas Verhoeven (IN-QUEST)</STRONG> – соло к песне «<STRONG>Controlled by hate</STRONG>».<BR></P>
+Автор: Dimas
+
+### 15.12.2008 news TANTAL закончили работу над дебютом
+
+<P>Работа над дебютным альбомом подмосковной progressive-death-metal группы <STRONG>TANTAL</STRONG> “<STRONG>The Beginning Of The End</STRONG>” полностью закончена. Сведением и мастерингом диска занимался <STRONG>Евгений Виноградов</STRONG> – студия “<STRONG>Дай-Рекордс</STRONG>”. В скором времени коллектив опубликует обложку и название лэйбла, на котором выйдет альбом. А пока, группа предлагает послушать и посмотреть видео презентацию, в которой собраны все фрагменты песен, которые будут представлены на диске: </P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CTEZb1Q5W7o&hl=en&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/CTEZb1Q5W7o&hl=en&fs=1" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+Автор: Dimas
+
+### 18.03.2009 news TANTAL выпускают &quot;Начало Конца&quot;
+
+<P><IMG height=413 alt="" hspace=0 src="/images/news_rus/2009.03/13780.jpg" width=400 align=right border=5>30 марта на независимом лейбле <STRONG>Mazzar Records</STRONG> состоится релиз дебютного альбома подмосковной progressive death metal группы<STRONG> TANTAL</STRONG>. За звучание диска отвечал один из лучших звукорежиссеров России – <STRONG>Евгений Виноградов</STRONG> (<STRONG>Catharsis, Мастер, Валькирия</STRONG>). По его словам “<STRONG>The Beginning Of The End</STRONG>” стал самым лучшим продуктом по качеству звука, когда-либо записанным в его “<STRONG>Дай-Рекордс</STRONG>”.&nbsp; </P>
+<P>Также в записи приняли участие следующие музыканты: <STRONG>Андрей Смирнов</STRONG> (Мастер, Everlost), <STRONG>Александр Дронов</STRONG> (Валькирия, Династия посвященных) и <STRONG>Douglas Verhoeven</STRONG> (In-Quest)</P>
+<P>Оформление диска выполнено на высшем уровне известным бразильским художником<STRONG> Gustavo Sazes</STRONG>, работавшим с такими гигантами металлической сцены как <STRONG>Krisiun, Firewind, Nightrage, Cryptopsy, Sonic Syndicate, God Forbid</STRONG> и т.д. Им была проведена большая и кропотливая работа, но в результате идея каждой песни отражена отдельной иллюстрацией в буклете, что позволяет слушателю более глубоко окунуться в музыку и настроение альбома.</P>
+Автор: Vit Belov
+
+### 29.04.2009 reviews Какую музыку мы все слушали в детстве?
+
+<P>В нашей стране выходит не так много progressive-melodic-techno-death-thrash-metal альбомов, поэтому релиз подмосковной группы TANTAL сразу привлёк моё внимание. Нет, не подумайте, что TANTAL играют в столь витиеватом стиле, просто даже парочка приставок из этого определения нечасто совпадает в творчестве наших групп.</P>
+<P>Но первым, точнее первой, кто привлекает внимание к TANTAL стала девушка-вокалистка Софья Райкова. От этого в голове сразу всплыли ARCH ENEMY, но не буду спешить и сравнивать “The Beginning of the End” с творчеством этого коллектива. Что-то от этих монстров у TANTAL есть, но совсем не вокал. Какой скрим или гроул может выдать девушка? Вряд ли на звучание этого вокала можно ориентироваться, сравнивая группы. Есть здесь, правда, и чистый голос Софьи, но он мне убедительным не показался. В итоге если где певица и добавляет TANTAL очков, так на концертах и в возможных видео. На девушку большинству металлистов, в любом случае, посмотреть захочется. Но перейдём к музыке. Музыка TANTAL показалась мне очень рваной. В ней сочетаются довольно разные вещи. Техничный thrash-death и гипермелодичные соло. При этом соло настолько мелодичные, что иногда чудится даже неоклассический heavy-metal в его лучшем варианте. За соло-гитару ставлю твёрдое «отлично». При этом гитара здесь не находится в кайме песни, она представляет некую отдельную инструментальную композицию, которая может быть в начале трэка, может быть в середине, а может и занимать целый дисковый отрезок. Всё остальное неплохой среднетемповый и техничный thrash-death, который достаточно сложен, чтобы порадовать любителя стиля. Меня же он не слишком убеждает. Мне кажется, если бы музыка TANTAL была бы более «качова» и прямолинейна, ей бы это пошло на пользу.</P>
+<P>Какую музыку мы все слушали в детстве? За что мы полюбили металл? За прямолинейные боевики (хиты) с виртуозными соло или за сложный и мутный тяжёлый авангард, от которого может заболеть голова? Безусловно, многие кинут в меня камнем и где-то даже будут правы, но зачем кровопролитие? Каждый выбирает сам.</P>
+Автор: Vit Belov
+
+### 06.05.2009 reviews Конец от безысходности?
+
+<P>Мое первое знакомство с этим подмосковным коллективом состоялось еще в 2006 году на одном из концертов в незабвенном клубе Relax. Честно говоря, впечатление от группы у меня на тот момент сложилось далеко не самое лучшее, в основном из-за кашеобразного звука и недостаточной, как мне показалось, техничности музыкантов. Да и сам материал слушался скучновато. Это привело к тому, что в последующее время я за группой <STRONG>TANTAL</STRONG> особо и не следил. До тех пор, пока в начале прошлого года ко мне в руки не попала первая демо-запись группы "<STRONG>Emotional Distress</STRONG>". Я услышал достаточно интересный и техничный progressive материал на основе death thrash metal. К тому же, надо отметить, группа использует женский вокал, как чистый, так и брутальный, вызывающий ассоциации с <STRONG>Сабиной Классен</STRONG> из <STRONG>HOLY MOSES</STRONG>. Дальше, я уже начал следить за группой. Тем более, что те, в свою очередь, регулярно публиковали в интернете новости о себе и о процессе записи полнометражного дебютного альбома. Так я и узнал, что музыка дебютного альбома "<STRONG>The Beginning Of The End</STRONG>" будет представлять собой оригинальную смесь из progressive, death, thrash и modern metal приправленную мрачной концептуальной лирикой, повествующей историю про человека, который кончает жизнь суицидом, не справившись с отчаянием и чувством безысходности. Что за звучание диска будет отвечать один из лучших звукорежиссеров Москвы - <STRONG>Евгений Виноградов</STRONG> (студия "<STRONG>Дай-Рекордс</STRONG>"), работавший со многими известными российскими группами. Что гостевое участие в записи примут гитарист <STRONG>Андрей Смирнов (МАСТЕР, EVERLOST)</STRONG>, клавишник <STRONG>Александр Дронов</STRONG> и особым гостем на диске станет гитарист бельгийской группы <STRONG>IN-QUEST - Douglas Verhoeven</STRONG>. И что оформление диска будет выполнено на высшем уровне известным бразильским художником <STRONG>Gustavo Sazes</STRONG>, работающего со многими гигантами брутальной металлической сцены.<BR>И вот... альбом вышел. Безусловно, визитные карточки группы - необычный женский вокал в исполнении <STRONG>Софьи Райковой</STRONG> и виртуознейшая гитарная работа <STRONG>Дмитрия Игнатьева</STRONG> и <STRONG>Александра Стрельникова</STRONG>, порой в дуэте выдающих такие мелодичнейшие риффосплетения, что дух захватывает. Очень впечатляет качество звука на альбоме. Сам <STRONG>Евгений Виноградов</STRONG> утверждает, что этот альбом стал самым лучшим продуктом по качеству звука, когда-либо записанным в его “<STRONG>Дай-Рекордс</STRONG>”. Да, конечно, есть на записи&nbsp;некоторые слабые места, которые вводят в скуку, но тут же следует какое-нибудь умопомрачительное соло, снова приковывающее внимание к альбому. В целом, как музыканты и обещали, нас ждет именно progressive metal с элементами других уже названных стилей, к которым я бы еще добавил melodic death. Некоторые места звучат как шаблоны и напоминают творчество известных групп разных стилей, среди которых <STRONG>ATHEIST, DARK MILLENIUM, ARCH ENEMY, DEATH</STRONG> и даже <STRONG>YNGWIE MALMSTEEN</STRONG>. Но эту работу нельзя назвать неоригинальной. Она очень разнообразна, свежа, полна инструментальными пассажами, сменой ритмик и скоростей. Может быть, некоторым здесь будет недостаточно тяжести, мощи, агрессивности или математики. Но на мой взгляд, это бы пошло только во вред. Особенно, в коммерческом смысле. А так, данный альбом будет доступен более широкому слою поклонников тяжёлой музыки. Вообще, материал настолько эмоционален, что при прослушивании вызывает бурю чувств, которые довольно сложно описать. Не ошибусь, назвав эту работу невероятно мелодичной, техничной и дающей незыблемые надежды, что&nbsp; нам всё-таки по зубам тягаться с западом. В таланте и профессионализме этим музыкантам отказать нельзя, с чем их можно только поздравить и пожелать в дальнейшем еще большего совершенствования и успехов. Это не конец, это только начало!</P>
+Автор: Dimas
+
+### 06.10.2009 news Видеоклип группы TANTAL
+
+<P>Представляем вашему вниманию официальный концертный клип подмосковной Progressive-Death Metal группы <STRONG>TANTAL</STRONG> на песню “<STRONG>Suicide</STRONG>” с дебютного альбома «<STRONG>The Beginning of the End</STRONG>», выпущенного весной 2009 года на независимом металлическом лейбле <STRONG>Mazzar Records</STRONG>. Группа также заключила договор на ротацию данного видео на канале “<STRONG>1 ROCK</STRONG>”&nbsp; - спутниковый музыкальный телеканал, полностью посвященный тяжелой музыке. </P>
+<P align=center>
+<CENTER>
+<OBJECT width=425 height=344><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2viu0G3D4oo&hl=ru&fs=1&"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2viu0G3D4oo&hl=ru&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Dimas
+
+### 09.02.2010 news Альбом TANTAL “The Beginning of the End” теперь в продаже по всему миру
+
+<P><IMG border=0 hspace=10 alt="" align=left src="/images/news_rus/2010.02/16219.jpg" width=500 height=333>Дебютный альбом Progressive Melodic Death Metal группы <STRONG>TANTAL «The Beginning of the End»</STRONG> теперь в продаже по всему миру благодаря он-лайн магазину <STRONG>CDBaby.com</STRONG>. <BR>Также, группа подписала контракт с лейблом <STRONG>Raven Heart Music</STRONG>, который будет осуществлять дистрибьюцию и промоушен альбома на территории Англии и США. <BR>На территории Европы продажами альбома и рекламой группы будет заниматься Итальянское агентство <STRONG>Rock Metal Bands</STRONG>.<BR>Кроме того, за дистрибьюцию и промоушен диска на территории США, Канады, Мексики, Бразилии и Японии будет отвечать Американское агентство<STRONG> Dig Metal World</STRONG>, а продажами диска в Индии - лейбл <STRONG>Six Inch Nails Records</STRONG>.</P>
+<P>Напомним, что в России диск был выпущен в Марте прошлого года лейблом <STRONG>Mazzar Records</STRONG>.<BR></P>
+Автор: Dimas
+
+### 28.02.2010 news Демонстрационный ролик от группы TANTAL
+
+<P>В качестве сотрудничества гитаристов Progressive Melodic Death Metal группы <STRONG>TANTAL</STRONG>: <STRONG>Александра Стрельникова</STRONG> и <STRONG>Дмитрия Игнатьева</STRONG> с компанией <STRONG>ESP Gui</STRONG>tars в России, представляем вашему вниманию демонстрационный видео-ролик гитар ESP STANDARD SERIES (ESP Horizon FR2 и ESP M2): <BR><A href="http://www.espguitars.ru/artists_tantal_guitar_videos.html">http://www.espguitars.ru/artists_tantal_guitar_videos.html</A></P>
+Автор: Dimas
+
+### 01.06.2010 news TANTAL работают над новым альбомом
+
+<P>Progressive death metal группа <STRONG>TANTAL</STRONG> сочиняет новый материал для второго полноформатного альбома под названием “<STRONG>Expectancy</STRONG>”. Комментарии от вокалистки коллектива <STRONG>Софьи Райковой</STRONG>: «На данный момент готово больше половины материала плюс все тексты. Сейчас группа записывает демо и продумывает аранжировки. Альбом будет вновь концептуальным, а касаемо музыкальной составляющей - более разнообразный и продуманный, чем предыдущая наша работа “<STRONG>The Beginning of the End</STRONG>”. Для поклонников русскоязычной лирики мы приготовили несколько сюрпризов, о которых будет объявлено позже».<BR></P>
+Автор: Dimas
+
+### 21.12.2010 news Группа TANTAL на канале А1 в новогоднем выпуске передачи «ДрагМеталлы»
+
+<P><IMG border=0 hspace=10 alt="" vspace=10 align=left src="/images/news_rus/2010.12/17909.jpg" width=200 height=275>Участники progressive death metal группы <STRONG>TANTAL</STRONG> приняли участие в съемках новогоднего «анти-голубого огонька» в рамках праздничного выпуска передачи «<STRONG>ДрагМеталлы</STRONG>», который будет транслироваться на телеканале <STRONG>А1 </STRONG>в течение всего января 2011 года. <BR>В передаче, помимо<STRONG> TANTAL</STRONG>, вы сможете увидеть выступления таких групп как <STRONG>MELANCHOLY, STARDOWN, СЛОТ, 5 DIEZ, DEVIANT SYNDROME</STRONG>.</P>
+Автор: Dimas
+
+### 08.02.2011 news Гитарист TANTAL стал представителем компании &quot;AMT Electronics&quot;
+
+<P><IMG border=0 hspace=10 alt="" align=left src="/images/news_rus/2011.02/18450.jpg" width=300 height=398>Гитарист progressive death metal группы <STRONG>TANTAL</STRONG> -<STRONG> Александр Стрельников</STRONG> стал официальным представителем компании "<STRONG>AMT Electronics</STRONG>" (<A href="http://www.amtelectronics.com/">www.amtelectronics.com</A>), специализирующейся на производстве гитарных предусилителей, кабинетов, гитарных эффектов и аксессуаров.<BR><STRONG>Aлександр Стрельников</STRONG>: «На протяжении нескольких лет, на каждом своем концерте, я использую преампы “<STRONG>AMT Electronics</STRONG>” серии Legend и очень ими доволен. Это надежное оборудование и, что самое главное, я всегда получаю качественный звук при игре на любом аппарате. В своем арсенале, на данный момент, у меня “AMT E1” – эмулятор Engl Fireball и “AMT P1” – эмулятор Peavey 5150».</P>
+<P>Сама же группа, на данный момент, занята подготовкой второго альбома под названием “<STRONG>Expectancy</STRONG>” и планирует войти в студию для его записи в марте 2011 года. </P>
+Автор: Dimas
+
+### 22.03.2011 news Группа TANTAL приступила к записи нового альбома
+
+<P><IMG height=262 alt="" hspace=0 src="/images/news_rus/2011.03/18921.jpg" width=400 align=right border=0>Группа <STRONG>TANTAL</STRONG> приступила к записи второго полноформатного альбома. Как уже сообщалось ранее, альбом будет называться "<STRONG>Expectancy</STRONG>", что можно перевести как "Упование" или "Жалкие Надежды". На альбом войдет 8 композиций, а в качестве бонус треков - 3 песни на Русском языке. Над оформлением диска будет работать бразильский художник <STRONG>Gustavo Sazes</STRONG> (<A href="http://www.abstrata.net/">www.abstrata.net</A>), оформлявший дебютную работу группы "<STRONG>The Beginning Of The End</STRONG>" выходившей на московском лейбле <STRONG>MAZZAR Records</STRONG>. В настоящее время барабанщик - <STRONG>Вячеслав Гуровой</STRONG> записывает партии ударных на студии "<STRONG>Гигант Рекордс</STRONG>" (<A href="http://www.gigantrec.ru/">www.gigantrec.ru</A>). Также, группа официально представила нового басиста - <STRONG>Дмитрия Алексеева</STRONG>, который примет непосредственное участие в записи альбома.</P>
+<P>За новостями следите на официальном сайте группы: <A href="http://www.tantalweb.ru/">www.tantalweb.ru</A>, а также на странице ВКонтакте: <A href="http://www.vkontakte.ru/club598531">www.vkontakte.ru/club598531</A></P>
+Автор: Vit Belov
+
+### 30.11.2011 news Группа TANTAL – новости из студии
+
+<P><IMG border=0 hspace=10 alt="" vspace=10 align=left src="/images/news_rus/2011.11/22182.jpg" width=267 height=400>Музыканты группы <STRONG>TANTAL</STRONG> сообщают о том, что близится к концу работа над вторым полноформатным&nbsp;альбомом, получившим название “<STRONG>Expectancy</STRONG>”. На данный момент завершена запись всех инструментов, а вокалистка группы - <STRONG>Софья Райкова</STRONG> готовится приступить к записи своих партий.</P>
+<P>Напомним, что дебютный альбом группы под названием “<STRONG>The Beginning of The End</STRONG>” вышел в 2009 году на лейбле <STRONG>Mazzar Records</STRONG>.</P>
+<P>За новостями группы следите на официальном сайте группы: <A href="http://www.tantalweb.ru/">www.tantalweb.ru</A>, а также на странице ВКонтакте: <A href="http://www.vkontakte.ru/tantalofficial">www.vkontakte.ru/tantalofficial</A></P>
+Автор: Dimas
+
+### 06.06.2012 news Группа TANTAL объявляет поиски вокалистки&#x2F;вокалиста!
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.06/24129.jpg" width=400 height=345>Progressive Melodic Death Metal группа<STRONG> TANTAL</STRONG> объявляет о поисках вокалистки/вокалиста. </P>
+<P>Заявление от группы: </P>
+<P>К сожалению, из-за непреодолимых разногласий, музыкантами группы и вокалисткой Софьей, было решено пойти разными творческими путями...Инструментальная часть альбома полностью записана. Мы объявляем поиски человека, который бы стал полноправным участником группы, и помог нам закончить начатое дело: записать вокал. </P>
+<P>ТРЕБОВАНИЯ К КАНДИДАТУ: <BR>- свободное владение своим голосом <BR>- стиль пения: смешанный (чистый+гроул), в худшем случае только чистый (на него делается упор) <BR>- язык английский (как основной) <BR>- креативность <BR>- адекватность, коммуникабельность, умение работать в команде <BR>- целеустремленность <BR>- готовность к выездам (концерты) <BR>- наличие записи/демо (если есть) </P>
+<P>С удовольствием рассмотрим все запросы! По результатам запросов будет высылаться демо, того что предстоит реализовать на студии. </P>
+<P>КОНТАКТЫ: <BR>Свои предложения и записи высылайте по одному из указанных адресов: </P>
+<P>e-mail: <A href="mailto:dimeblizzard@gmail.com">dimeblizzard@gmail.com</A> </P>
+<P><A href="http://vk.com/dimeblizzard">http://vk.com/dimeblizzard</A>- Дмитрий <BR><A href="http://vk.com/id3075630">http://vk.com/id3075630</A> - Александр </P>
+<P>ICQ: 310663672 - Дмитрий <BR>ICQ: 449564493 - Александр </P>
+<P>тел. +79161147806 - Дмитрий <BR>тел. +79057732753 – Александр</P>
+<P>Официальный сайт группы: <A href="http://www.tantalweb.ru/">www.tantalweb.ru</A><BR>Страница ВКонтакте: <A href="http://vk.com/tantalofficial">http://vk.com/tantalofficial</A></P>
+Автор: Vit Belov
+
+### 19.09.2013 news Новая песня от группы TANTAL
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.09/26179.jpg" width=300 height=305>После долгого молчания, в конце лета, участники группы <STRONG>TANTAL</STRONG> объявили имя новой вокалистки <STRONG>Миланы Соловицкой</STRONG>. Работа над вторым альбомом <STRONG>“Expectancy”</STRONG> подходит к концу, и первым синглом стала песня под названием <STRONG>“Nothing”</STRONG>, на которую группа опубликовала "lyric video". Посмотреть его можно по ссылке: <A href="http://www.youtube.com/watch?v=Huy8ut_Ky4I">www.youtube.com/watch?v=Huy8ut_Ky4I</A></P>
+<P>Комментарий группы: <EM>«Это песня об эгоизме людей и результате наших самовлюбленных поступков. Гонясь за мечтой мы, порой, забываем о близких нам людях, не видя ничего кроме нее, не замечая, что теряем все остальное. И каков бы ни был результат этой гонки, в итоге мы остаемся ни с чем».</EM></P>
+<P>Оформление сингла созданно известным художником <STRONG>Gustavo Sazes</STRONG> (<STRONG>AMARANTHE</STRONG>, <STRONG>MORBID ANGEL</STRONG>, <STRONG>ARCH ENEMY</STRONG>, <STRONG>KAMELOT</STRONG> и многие другие).</P>
+<P>Cведение и мастеринг выполнены на студии<STRONG> “KIV Records” Игорем Королевым</STRONG>.</P>
+<P>За новостями следите на официальных страницах группы:<BR><A href="http://www.tantalweb.ru/">www.tantalweb.ru</A><BR><A href="http://www.vk.com/tantalofficial">www.vk.com/tantalofficial</A></P>
+Автор: Headcrusher
+
+### 30.11.2013 news FLASH OF AGGRESSION - новый проект Андрея Смирнова
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.11/26392.jpg" width=400 height=406>25 ноября 2013 г. на лейбле <STRONG>CD-Maximum</STRONG> вышел дебютный альбом московского modern thrash metal проекта <STRONG>FLASH OF AGGRESSION "Seed Of Hate"</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Mechanism Of Destruction<BR></STRONG>02. <STRONG>Entertainment Waste<BR></STRONG>03. <STRONG>Final Conflict<BR></STRONG>04. <STRONG>Gun Down Your Enemies<BR></STRONG>05. <STRONG>Paper God<BR></STRONG>06. <STRONG>The Kingdom Of Salvation<BR></STRONG>07. <STRONG>Disaster</STRONG><BR>08. <STRONG>Cancer On The Face Of Our Planet<BR></STRONG>09. <STRONG>Insane</STRONG><BR>10. <STRONG>Distaste Of Life</STRONG></P>
+<P>Видео-презентация: <A href="http://youtu.be/0eCJISpDfmA"><U><FONT color=#0000ff>http://youtu.be/0eCJISpDfmA</FONT></U></A></P>
+<P>Cведение и мастеринг выполнен на студии <STRONG>KIV Records</STRONG>.</P>
+<P>Состав:</P>
+<P><STRONG>Полина Березко</STRONG> (<STRONG>GRACE DISGRACED</STRONG>) - вокал<BR><STRONG>Андрей Смирнов</STRONG> (<STRONG>U.D.O.</STRONG>, <STRONG>EVERLOST</STRONG>, ex-<STRONG>МАСТЕР</STRONG>) - гитара, бас, продюсирование<BR><STRONG>Дмитрий Игнатьев</STRONG> (<STRONG>TANTAL</STRONG>, <STRONG>EVERLOST</STRONG>) - гитара<BR><STRONG>Сергей Серебренников</STRONG> (<STRONG>EVERLOST</STRONG>, <STRONG>ВАЛЕРИЙ ГАИНА</STRONG>) - ударные</P>
+<P><STRONG>Андрей Смирнов</STRONG>: <EM>«Идея записать настоящий агрессивный металлический альбом пришла нам с моим братом Дмитрием Игнатьевым достаточно давно. Мы с ним ровесники, начинали интересоваться музыкой и играть на гитаре примерно в одно и тоже время. Подростками мы часто джемовали вместе, фиксируя наши первые музыкальные «опусы» на кассетный магнитофон, делились новыми записями. Так уж сложилось, что некоторое время мы были постоянно заняты работой в своих собственных коллективах и с другими артистами, но мы смогли выкроить время и воплотили задуманное в жизнь!»</EM></P>
+<P><STRONG>Дмитрий Игнатьев</STRONG>: <EM>«В этот альбом мы постарались вложить все свои эмоции, в том числе и отрицательные. Мы намеренно не стали ограничивать себя никакими рамками при создании песен, что сказалась на скорости и экстримальности материала, как в музыкальном плане так и плане лирики. Можно сказать, что данный проект - это альтер-эго всех других музыкальных коллективов, в которых мы участвуем».</EM></P>
+Автор: Headcrusher
+
+### 19.04.2014 news Новая песня группы TANTAL
+
+<P>Progressive Melodic Death Metal группа<STRONG> TANTAL</STRONG> представила песню с нового альбома “<STRONG>Expectancy</STRONG>”.</P>
+<P>Ознакомится с треком можно здесь: <A href="https://soundcloud.com/tantalofficial/expectancy-pt1-desert-in-my-soul">https://soundcloud.com/tantalofficial/expectancy-pt1-desert-in-my-soul</A></P>
+<P>Напомним, что альбом будет выпущен на лейбле <STRONG>“Mazzar Records”</STRONG> 28 апреля по всей территории России!</P>
+<P>За новостями следите на официальных страницах группы и лейбла: <BR><A href="http://www.tantalweb.ru/">www.tantalweb.ru</A><BR><A href="http://www.vk.com/tantalofficial">www.vk.com/tantalofficial</A><BR><A href="http://www.facebook.com/tantalofficial">www.facebook.com/tantalofficial</A><BR><A href="http://www.mazzar.ru/">www.mazzar.ru</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26951.jpg" width=431 height=348></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

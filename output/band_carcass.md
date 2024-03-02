@@ -259,6 +259,286 @@ Track 17 - From The 'Grindcrusher' Compilation
 * C группой "Blackstar" Carlo Regadas (guitar)
 * C группой "Monstrance" Carlo Regadas (guitar)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Выходит очередной сборник умершей группы CARCASS. В него войдут 20 песен, среди которых ранее не издававшиеся сессионные трэки и.т.п.</p>
+
+Автор: Vit Belov
+
+### 12.09.2000 reviews Swansong
+
+<p>Что бы там не говорили злопыхатели и поборники чистоты, но это лучший альбом и действительно лебединая песня Carcass. Вязкие Стировские риффы на опущенных на два тона гитарах + звериный гроулинг, но не только. Все это было и раньше. Впервые появились осмысленные соло и дуэли на двух гитарах (а-ля Iron Maiden, Wishbone Ash и т.п.), кроме этого значительный качественный скачок в лирике. Группа бросила заниматься прозекторством и трупокопательством и создала действительно нормальную лирику. Таким образом при всем сохранении забоя и брутала мы имеем более интеллигентную упаковку.</p>
+
+Автор: Yermola
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 04.10.2001 news Золото Майкла Хикки...
+
+<p>Гитарист Mike Hickey, известный по работе с "VENOM", "CARCASS", "CATHEDRAL" и "CRONOS", вплотную занялся собственным проектом "GOLD", в котором он объединил силы с ex-CATHEDRAL барабанщиком Shawn Progen. Уже готовую песню "The Sabbath", спродюссированную Michael Alan Hickey и Mark Alan Miller можно взять <a href="http://artists3.iuma.com/site-bin/mp3gen/31416/IUMA/Bands/MIKE_HICKEY/audio/MIKE_HICKEY_-_The_Sabbath.mp3">отсюда...</a></p>
+
+Автор: Yermola
+
+### 04.10.2001 news Mike Hickey, known for his work with VENOM...
+
+<p>Guitarist Mike Hickey, known for his work with VENOM, CARCASS, CATHEDRAL and CRONOS, has stepped out on his own with GOLD, an all-instrumental heavy rock act with crunchy guitars and searing solos, in which he is joined by ex-CATHEDRAL drummer Shawn Progen. Produced by Michael Alan Hickey and Mark Alan Miller at The Slaughterhouse, GOLD has made available an MP3 of the track “The Sabbath” for download via <a href="http://artists3.iuma.com/site-bin/ mp3gen/31416/IUMA/Bands/MIKE_HICKEY/ audio/MIKE_HICKEY_-_The_Sabbath.mp3">this location. </a> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.08.2002 news MassaBrutto Radioshow #98, 12-13 Aug 2002.
+
+<p>Playlist: <BR><BR> 1. KREATOR - Violent Revolution (SPV/Soyuz)<BR> 2. IMMORTAL DOMINION - Demon Voices (band)<BR> 3. GLUECIFER - Easy Living (SPV/Soyuz)<BR> 4. GLUECIFER - Reversed (SPV/Soyuz)<BR> 5. GLUECIFER - Brutus (SPV/Soyuz)<BR> 6. GLUECIFER - Black Book Lodge (SPV/Soyuz)<BR> --- --- --- --- --- --- --- --- --- ---<BR> \\ новости \\<BR> --- --- --- --- --- --- --- --- --- ---<BR> 7. CARCASS - Pyosified (Earache)<BR> 8. DEMONS OF DIRT - Demon Blues (Hammerheart)<BR> 9. DEMONS OF DIRT - Repetitions (Hammerheart)<BR> 10. SOULREAPER - Darken The Sign (Nuclear Blast/EastWest/Legacy)<BR> 11. DYSANCHELY - In The Dust Of Eternity (Leviathan Recs)<BR> 12. EUTHANASIA - One Last Wish (Leviathan Recs)<BR> _________________________________________________________ <BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 20.08.2002 news MassaBrutto Radioshow #100, 19-20 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. REBAELLIUN - Rebellious Vengeance (Hammerheart)<BR> 2. DENIAL OF GOD - Funeral Fog [by MAYHEM] (Oupiric Prods)<BR> 3. THE BERZERKER - Forever (Earache/Soyuz)<BR> 4. OBTEST - 997 (Wolf Music/Miriquidi Prods)<BR> 5. OBTEST - Anapus Nemuno (Ledo Takas Recs)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 6. BURNT BY THE SUN - Dracula With Glasses (Relapse)<BR><BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Reek Of Putrefaction", 1988, Earache]<BR><BR> 7. CARCASS - Genital Grinder<BR> 8. CARCASS - Regurgitation Of Giblets<BR> 9. CARCASS - Frenzied Detruncation<BR> 10. CARCASS - Vomited Anal Tract<BR> 11. CARCASS - Festerday<BR> 12. CARCASS - Foeticide<BR> 13. CARCASS - Psychopathologist<BR> 14. COBOLT 60 - Salvation Principle Result (Head Not Found/VME)<BR> 15. MY DYING BRIDE - My Hope The Destroyer (Peaceville)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news MassaBrutto Radioshow #100, 19-20 Aug 2002.
+
+<p>Playlist: <BR><BR> 1. REBAELLIUN - Rebellious Vengeance (Hammerheart)<BR> 2. DENIAL OF GOD - Funeral Fog [by MAYHEM] (Oupiric Prods)<BR> 3. THE BERZERKER - Forever (Earache/Soyuz)<BR> 4. OBTEST - 997 (Wolf Music/Miriquidi Prods)<BR> 5. OBTEST - Anapus Nemuno (Ledo Takas Recs)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 6. BURNT BY THE SUN - Dracula With Glasses (Relapse)<BR><BR> "Kilo-Metre" section [CARCASS, "Reek Of Putrefaction" album, 1988, Earache]<BR><BR> 7. CARCASS - Genital Grinder<BR> 8. CARCASS - Regurgitation Of Giblets<BR> 9. CARCASS - Frenzied Detruncation<BR> 10. CARCASS - Vomited Anal Tract<BR> 11. CARCASS - Festerday<BR> 12. CARCASS - Foeticide<BR> 13. CARCASS - Psychopathologist<BR><BR> 14. COBOLT 60 - Salvation Principle Result (Head Not Found/VME)<BR> 15. MY DYING BRIDE - My Hope The Destroyer (Peaceville)</p>
+
+Автор: Yermola
+
+### 27.08.2002 news MassaBrutto Radioshow #102, 26-27 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. DEMENTOR - Waiting For The Death (Qabalah Prods/Fatal Ecstasy Prods)<BR> 2. DECEMBER WOLVES - Desperately Seeking Satan (Earache)<BR> 3. INSISION - He's My Fever (Earache)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Symphonies Of Sickness", 1989, Earache]<BR> 4. CARCASS - Exhume To Consume<BR> 5. CARCASS - Ruptured In Purulence<BR> 6. CARCASS - Swarming Vulgar Mass Of Infected Virulency<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> Радиопрезентация новейшего альбома "Dissimulate" австралийцев THE BERZERKER (2002, Earache/Soyuz). Розыгрыш компактов от концерна "Группа Союз". <BR> 7. THE BERZERKER - Disregard<BR> 8. THE BERZERKER - Failure<BR> 9. THE BERZERKER - Death Reveals<BR> 10. THE BERZERKER - Last Mistake<BR> 11. THE BERZERKER - Betrayal<BR> 12. THE BERZERKER - Painless<BR> 13. THE BERZERKER - Corporal Jigsore Quandary [by CARCASS]<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 27.08.2002 news MassaBrutto Radioshow #102, 26-27 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. DEMENTOR - Waiting For The Death (Qabalah Prods/Fatal Ecstasy Prods)<BR> 2. DECEMBER WOLVES - Desperately Seeking Satan (Earache)<BR> 3. INSISION - He's My Fever (Earache)<BR> Kilo-metre section [CARCASS, album "Symphonies Of Sickness", 1989, Earache]<BR> 4. CARCASS - Exhume To Consume<BR> 5. CARCASS - Ruptured In Purulence<BR> 6. CARCASS - Swarming Vulgar Mass Of Infected Virulency<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> THE BERZERKER album "Dissimulate" presentation (2002, Earache/Soyuz). "Soyuz" CD ruffle<BR> 7. THE BERZERKER - Disregard<BR> 8. THE BERZERKER - Failure<BR> 9. THE BERZERKER - Death Reveals<BR> 10. THE BERZERKER - Last Mistake<BR> 11. THE BERZERKER - Betrayal<BR> 12. THE BERZERKER - Painless<BR> 13. THE BERZERKER - Corporal Jigsore Quandary [by CARCASS]<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Necroticism-Descanting The Insalubrious", 1991, Earache]<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 17.09.2002 news MassaBrutto Radioshow #108, 16-17 Sep 2002.
+
+<p>Playlist:<BR><BR> 1. CORPORATION 187 - Untitled (Earache)<BR> 2. MOURNING BELOVETH - In Mourning My Days (Sentinel Recs)<BR> 3. SCARIOT - Inside The Frame (band)<BR> 4. CARCASS - Buried Dreams (Earache)<BR> 5. CARCASS - Carnal Forge (Earache)<BR> 6. CARCASS - Death Certificate (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Радиопремьера HATE ETERNAL "King Of All Kings"<BR><BR> 7. HATE ETERNAL - King Of All Kings (Earache/Soyuz)<BR> 8. HATE ETERNAL - Born By Fire (Earache/Soyuz)<BR> 9. HATE ETERNAL - Rising Legions Of Black (Earache/Soyuz)<BR> 10. HATE ETERNAL - Chants In Declaration (Earache/Soyuz)<BR> 11. HATE ETERNAL - The Obscure Terror (Earache/Soyuz)<BR> 12. HATE ETERNAL - Powers That Be (Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 17.09.2002 news MassaBrutto Radioshow #108, 16-17 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. CORPORATION 187 - Untitled (Earache)<BR> 2. MOURNING BELOVETH - In Mourning My Days (Sentinel Recs)<BR> 3. SCARIOT - Inside The Frame (band)<BR> 4. CARCASS - Buried Dreams (Earache)<BR> 5. CARCASS - Carnal Forge (Earache)<BR> 6. CARCASS - Death Certificate (Earache)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> Presentation of HATE ETERNAL "King Of All Kings"<BR><BR> 7. HATE ETERNAL - King Of All Kings (Earache/Soyuz)<BR> 8. HATE ETERNAL - Born By Fire (Earache/Soyuz)<BR> 9. HATE ETERNAL - Rising Legions Of Black (Earache/Soyuz)<BR> 10. HATE ETERNAL - Chants In Declaration (Earache/Soyuz)<BR> 11. HATE ETERNAL - The Obscure Terror (Earache/Soyuz)<BR> 12. HATE ETERNAL - Powers That Be (Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 24.09.2002 news MassaBrutto Radioshow #110, 23-24 Sep 2002.
+
+<p>Playlist:<BR><BR> 1. NILE - The Blessed Dead (Relapse)<BR> 2. CEPHALIC CARNAGE - Lucid Interval (Relapse)<BR> 3. PYORRHOEA - Consume You (band)<BR><BR> рубрика "Кило-Мэтры" [CARCASS, альбом "Swansong", 1996]<BR><BR> 4. CARCASS - Keep On Rotting In The Free World (Earache)<BR> 5. CARCASS - Black Star (Earache)<BR> 6. CARCASS - Go To Hell (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Радиопремьера LUNARIS "...The Infinite"<BR><BR> 7. LUNARIS - In The Eyes Of The Heretic (Elitist/Earache/Союз)<BR> 8. LUNARIS - Arise (Elitist/Earache/Союз)<BR> 9. LUNARIS - In Contempt Of Humanity (Elitist/Earache/Союз)<BR> 10. LUNARIS - Growth Denied (Elitist/Earache/Союз)<BR> 11. LUNARIS - Soulcrush (Elitist/Earache/Союз)<BR> 12. LUNARIS - A Final Journey (Elitist/Earache/Союз)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 24.09.2002 news MassaBrutto Radioshow #110, 23-24 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. NILE - The Blessed Dead (Relapse)<BR> 2. CEPHALIC CARNAGE - Lucid Interval (Relapse)<BR> 3. PYORRHOEA - Consume You (band)<BR> 4. CARCASS - Keep On Rotting In The Free World (Earache)<BR> 5. CARCASS - Black Star (Earache)<BR> 6. CARCASS - Go To Hell (Earache)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 7. LUNARIS - In The Eyes Of The Heretic (Elitist/Earache/Союз)<BR> 8. LUNARIS - Arise (Elitist/Earache/Союз)<BR> 9. LUNARIS - In Contempt Of Humanity (Elitist/Earache/Союз)<BR> 10. LUNARIS - Growth Denied (Elitist/Earache/Союз)<BR> 11. LUNARIS - Soulcrush (Elitist/Earache/Союз)<BR> 12. LUNARIS - A Final Journey (Elitist/Earache/Союз)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 01.10.2002 news MassaBrutto Radioshow #112, 30 Sep - 1 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. CEPHALIC CARNAGE - Scolopendra Cingulata (Relapse)<BR> 2. CEPHALIC CARNAGE - Fortuitous Oddity (Relapse)<BR> 3. CEPHALIC CARNAGE - Black Metal Sabbath (Relapse)<BR> 4. OBTEST - Griztantys Su Karo Ugnim (Ledo Takas Recs/Fatal Ecstasy Prods)<BR><BR> Рубрика "Кило-Мэтры"<BR> [CARCASS, альбом "Swansong", 1996]<BR><BR> 5. CARCASS - Childs Play (Earache)<BR> 6. CARCASS - Room 101 (Earache)<BR> 7. CARCASS - R**k The Vote (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 8. NILE - Serpent Headed Mask (Relapse)<BR> 9. NILE - Chapter For Transforming Into A Snake (Relapse/Zomba/Legacy)<BR> 10. NILE - Sarcophagus (Relapse)<BR> 11. NILE - Kheftiu Asar Butchiu (Relapse)<BR> 12. NILE - Unas Slayer Of The Gods (Relapse)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 01.10.2002 news MassaBrutto Radioshow #112, 30 Sep - 1 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. CEPHALIC CARNAGE - Scolopendra Cingulata (Relapse)<BR> 2. CEPHALIC CARNAGE - Fortuitous Oddity (Relapse)<BR> 3. CEPHALIC CARNAGE - Black Metal Sabbath (Relapse)<BR> 4. OBTEST - Griztantys Su Karo Ugnim (Ledo Takas Recs/Fatal Ecstasy Prods)<BR><BR> Рубрика "Кило-Мэтры"<BR> [CARCASS, альбом "Swansong", 1996]<BR><BR> 5. CARCASS - Childs Play (Earache)<BR> 6. CARCASS - Room 101 (Earache)<BR> 7. CARCASS - R**k The Vote (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 8. NILE - Serpent Headed Mask (Relapse)<BR> 9. NILE - Chapter For Transforming Into A Snake (Relapse/Zomba/Legacy)<BR> 10. NILE - Sarcophagus (Relapse)<BR> 11. NILE - Kheftiu Asar Butchiu (Relapse)<BR> 12. NILE - Unas Slayer Of The Gods (Relapse)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Wake Up And Smell The Carcass", 1996]<BR><BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 23.03.2004 news Выходит сборник лучших вещей Carcass
+
+<P><B>Earache</B> выпускают 'best of' <B>CARCASS</B> под названием <B>'Choice Cuts'</B> 17 мая. Диск будет содержать в буклете интервью с барабанщиком <B>Ken Owen</B>. Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.03/6278.jpg" width=200 align="right" border=0>01. <B>Genital Grinder</B><BR>02. <B>Maggot Colony</B><BR>03. <B>Exhume to Consume</B><BR>04. <B>Swarming Vulgar Mass of Infected Virulency</B><BR>05. <B>Tools of The Trade</B><BR>06. <B>Corporeal Jigsore Quandary</B><BR>07. <B>Incarnate Solvent Abuse</B><BR>08. <B>Buried Dreams</B><BR>09. <B>No Love Lost</B><BR>10. <B>Heartwork</B><BR>11. <B>Keep on Rotting in The Free World</B><BR>12. <B>R**k the Vote</B><BR>13. <B>This Is Your Life</B><BR>14. <B>Crepitating Bowel Erosion</B> (Peel Session, Jan. 2, 1989)<BR>15. <B>Slash Dementia</B> (Peel Session, Jan. 2, 1989)<BR>16. <B>Cadaveric Incubator of Endoparasites</B> (Peel Session, Jan. 2, 1989)<BR>17. <B>Reek of Putrefaction</B> (Peel Session, Jan. 2, 1989)<BR>18. <B>Empathological Necrotism</B> (Peel Session, Dec. 16, 1990)<BR>19. <B>Foeticide</B> (Peel Session, Dec. 16, 1990)<BR>20. <B>Fermenting Innards</B> (Peel Session, Dec. 16, 1990)<BR>21. <B>Exhume to Consume</B> (Peel Session, Dec. 16, 1990) </P>
+Автор: Vit Belov
+
+### 16.08.2004 reviews В помощь паталогоанатому
+
+<P>Еще одна компиляция от Earache. Carcass навсегда останутся в истории тяжелой музыки, как одна из самых кровожадных групп и лидер по количеству пролитых и запекшихся литров крови, выпоторошенных кишок и прочих паталогоанатомических прелестей. "Choice Cuts" являет собой подборку из 13 вещей этого замечательного коллектива с номерных альбомов и ЕР-шек плюс 8 раритетов: это записи с двух легендарных "Peel Sessions" 1989 и 1990 гг. Также на альбоме имеется интервью с барабанщиком группы Кеном Оуэном. Посему сей сборник могу порекомендовать как фанатам команды, так и тем, кто по каким-либо причинам еще не успел ознакомиться с творчеством блистательных ливерпульцев (не путайте, пожалуйста, с The Beatles!). Отличная подборка, как ранних, гор-грайндовых, так и поздних, мелодик-дэтовых песен вызовет у кого-то приятное чувство ностальгии, а кого-то сподвигнет на резвую пробежку к ближайшему магазину с компакт-дисками, чтобы приобрести все альбомы команды, которые благодаря "Союзу" можно теперь приобрести без всякого напряга (да еще&nbsp;с первоначальными, без цензуры, вариантами обложек) на лицензионных изданиях. Wake up and smell... the Carcass!!!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 20.09.2007 news CARCASS готовятся к ре-юниону!
+
+<P>Гитарист <STRONG>ARCH ENEMY Mike Amott</STRONG> в интервью шведскому журналу <STRONG>Close-Up</STRONG> сообщил, что уже репитировал материал<STRONG> CARCASS</STRONG> в компании <STRONG>Bill Steer</STRONG> и <STRONG>Jeff Walker</STRONG>. Ре-юнион знаменитой британской группы был намечен уже на это лето, но не состоялся. <STRONG>Mike </STRONG>прозрачно намекнул, что ещё не всё потеряно, и группа воссоединится в ближайшем будущем для концертов, основу которых составят песни с альбома "<STRONG>Heartwork</STRONG>", так как во время записи последнего "<STRONG>Swansong</STRONG>" <STRONG>Amott</STRONG> в составе уже не было.</P>
+Автор: Vit Belov
+
+### 09.10.2007 news CARCASS Подтвердили Wacken Open Air
+
+<P>Официально подтвердились слова лидера <STRONG>ARCH ENEMY Mike Amott</STRONG> о реюнионе <STRONG>CARCASS</STRONG>. Группа заявлена, как один из хэдлайнеров фестиваля <STRONG>Wacken Open Air</STRONG> следующего года. Это будет первый концерт группы за 13 лет. Состав будет таков <STRONG>Jeff Walker, Mike Amott, Bill Steer</STRONG> и барабанщик <STRONG>ARCH ENEMY</STRONG> <STRONG>Daniel Erlandsson.</STRONG></P>
+Автор: Vit Belov
+
+### 08.06.2008 news Сэт-лист ре-юнион шоу CARCASS
+
+<P>6 июня реформированные <STRONG>CARCASS</STRONG> отыграли своё первое шоу в новейшей истории коллектива на фестивале <STRONG>Sweden Rock</STRONG>. Вот сэт-лист этого выступления:</P>
+<P>01. <B>Intro Tape</B><BR>02. <B>Inpropagation</B><BR>03. <B>Buried Dreams</B><BR>04. <B>Intro Tape</B><BR>05. <B>Corporal Jigsore</B><BR>06. <B>Carnal Forge</B><BR>07. <B>Intro Tape</B><BR>08. <B>Incarnate Solvent Abuse</B><BR>09. <B>No Love Lost</B><BR>10. <B>Edge Of Darkness</B><BR>11. <B>This Mortal Coil</B><BR>12. <B>Embodiment</B><BR>13. <B>Intro Tape</B><BR>14. <B>Reek Of Putrefaction</B><BR>15. <B>Keep On Rotting</B><BR>16. <B>Genital Grinder</B><BR>17. <B>Rotten To The Gore</B><BR>18. <B>Death Certificate</B><BR>19. <B>Intro Tape</B><BR>20. <B>Exhume To Consume</B><BR>21. <B>Ruptured</B> (Intro)<BR>22. <B>Heartwork</B><BR>23. <B>Carneous</B> (Outro)</P>
+Автор: Vit Belov
+
+### 04.01.2009 news Jeff Walker ждёт &quot;подтверждения&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>CARCASS Jeff Walker</STRONG> поделился своими соображениями о возможности записи ре-юнион альбома <STRONG>CARCASS</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я, как и все, жду, когда Bill Steer даст на это добро. Пока я слышу от него только выражения в стиле "всё возможно" и "никогда не говори никогда"</EM>". </FONT></P>
+Автор: Vit Belov
+
+### 19.02.2009 news Концерт CARCASS перенесён!
+
+<P>Тур-менеджмент <STRONG>CARCASS</STRONG> сообщил, что концерт группы в Москве переносится на 12-ое сентября. Организатором шоу по-прежнему остаётся <STRONG>JC-Sound</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.02.2009 news JC-Sound: &quot;Вместо CARCASS будет POISONBLACK&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заявление <STRONG>JC-Sound</STRONG> по поводу переноса <STRONG>CARCASS</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Нет слов, чтобы описать наше разочарование в связи с переносом концерта CARCASS. Не только вы с нетерпением ждали этого концерта, но и для наших сотрудников CARCASS является настоящей иконой, оказавшей огромное влияние на музыкальные вкусы. Так или иначе, но CARCASS состоится только 12 сентября, а у нас есть определенные обязательства перед клубом "1ROCK" в связи с чем на 11 апреля мы сумели оперативно договориться о концерте с потрясающими финнами POISONBLACK, чье творчество давно привлекало наше внимание.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>ВНИМАНИЕ!<BR>Билеты купленные на концерт CARCASS 11 апреля будут действительны на концерт CARCASS 12го сентября, но желающие сделать возврат денег за проданные билеты смогут осуществить это в центральной кассе Концерт.ру c 24.02.09 по 13.03.09 по адресу: Цветной бульвар д.30</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Билеты купленные на концерт CARCASS 11 апреля НЕ БУДУТ ДЕЙСТВИТЕЛЬНЫ на концерт POISONBLACK!</EM>"</FONT></P>
+Автор: Vit Belov
+
+### 08.08.2009 news Новая компиляция от EARACHE RECORDS
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.08/14781.jpg" width=400 align=right vspace=5 border=0>Earache Records</STRONG> - родной дом для многих групп-создателей жанра <STRONG>grindcore</STRONG>, подготовил к выпуску специальное издание из трёх дисков. Компиляция названная <STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)" </STRONG>включает в себя одни из самых первых записей в стиле <STRONG>grindcore</STRONG>.</P>
+<P>Все треки были взяты из первых передач <STRONG>John Peel</STRONG> на радио <STRONG>BBC</STRONG> и записаны на студии <STRONG>Maida Vale</STRONG> в Лондоне, между 1987 и 1990 годами.</P>
+<P>С самых первых дней <STRONG>Earache Records</STRONG>, <STRONG>John Peel</STRONG> оказывал огромную поддержку лейблу и его группам, дал возможность<STRONG>&nbsp;NAPALM</STRONG> <STRONG>DEATH</STRONG> и <STRONG>HERESY</STRONG> проиграть свои песни&nbsp;в эфире английского&nbsp;радио-шоу. В последующие годы, такие группы как <STRONG>NAPALM DEATH</STRONG> и <STRONG>CARCASS</STRONG> приписывали <STRONG>John Peel</STRONG> роль "ускорителя" их карьеры.</P>
+<P>И теперь, <STRONG>Earache Records</STRONG> впервые получил права от <STRONG>BBC</STRONG> на выпуск этих инновационных радио-сессий в полном объёме.</P>
+<P>Три диска включают в себя 118 треков классических записей от <STRONG>NAPALM DEATH</STRONG>, <STRONG>CARCASS</STRONG>, <STRONG>BOLT</STRONG> <STRONG>THROWER</STRONG>, <STRONG>EXTREME NOISE</STRONG> <STRONG>TERROR</STRONG>, <STRONG>GODFLESH</STRONG>, <STRONG>HERESY</STRONG>, <STRONG>UNSEEN</STRONG> <STRONG>TERROR</STRONG> и <STRONG>INTENSE</STRONG> <STRONG>DEGREE</STRONG>, общим временем звучания более трёх с половиной часов.</P>
+<P>Издание будет упаковано в слипкейс, а так же, содержать обширное интервью с бывшим барабанщиком <STRONG>NAPALM DEATH</STRONG> и изобретателем термина<STRONG> "grindcore"</STRONG> -<STRONG> Mick Harris</STRONG>.</P>
+<P><STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)"</STRONG> ожидается к выходу 12 октября.</P>
+<P>Для получения более полной информациии, поситите: <A href="http://www.myspace.com/grindmadness">www.myspace.com/grindmadness</A>.</P>
+Автор: Headcrusher
+
+### 27.08.2009 news Шокирующая новость от CARCASS
+
+<P>В преддверии московского выступления <STRONG>CARCASS</STRONG> журнал<STRONG> DARK CITY</STRONG> вышел на связь с одним из лидеров группы – <STRONG>Jeff’ом Walker’ом</STRONG>, дабы с пристрастием расспросить обо всех нюансах реюниона и грядущего приезда и выудить наиболее «горячие» факты. За этим дело не стало, интервью получилось действительно эксклюзивным, однако, один из ответов <STRONG>Джеффа</STRONG> как минимум поразил – возможно, московский концерт <STRONG>CARCASS</STRONG> станет последним в истории группы! С разрешения журнала мы приводим фрагмент этого интервью:</P>
+<P>-&nbsp;<STRONG>Вы впервые едете в Россиию, но все прекрасно понимают, что Carcass могут вновь разойтись, и этот раз окажется первым и последним… И от вашего приезда истинные фэны здесь ждут чего-то совершенно невероятного, это как чудо, которое вот-вот произойдет на глазах – ожидания оправдаются?</STRONG></P>
+<P><EM>Честно говоря, я без понятия, что вы, чуваки, еще хотите, кроме как послушать песни. Но ты прав: это будет действительно первое выступление Carcass в России. И вполне может оказаться, что этот концерт станет финальным и в истории группы, ведь у нас не запланировано ни одно шоу после Москвы, а поскольку Майкл занят в Arch Enemy, а Билл в Firebird, - вполне может быть, что у нас вообще не будет времени выступать в будущем…<BR>Однако, мы с нетерпением ждем приезда в Москву, только, пожалуйста, будьте потактичнее с нашей печенью и вашей водкой!! Черт, да я никогда и предположить не мог, что буду давать шоу в России!! Говорят, Битлам у вас понравилось, хе-хе, так что скоро увидимся!</EM></P>
+<P>Полное интервью вы сможете прочитать в 52 номере журнала, выход которого запланирован на начало сентября, и там же сможете найти эксклюзивный плакат от <STRONG>Carcass</STRONG> и материал о<STRONG> Firebird</STRONG> – группе основателя <STRONG>Carcass Bill’a Steer’a</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.09.2009 news CARCASS всё-таки не заканчивают
+
+<P>"Информационная бомба", взорванная агентством <STRONG>JC Sound</STRONG> при поддержке журнала<STRONG> Dark City</STRONG> оказалась "пшиком". Напомним, что в недавнем интервью вышеуказанному журналу один из музыкантов CARCASS намекнул, что концерт в Москве 12 сентября может стать последним для группы в рамках ре-юниона. Вчера поступило сообщение, что <STRONG>CARCASS</STRONG> "подписались" выступить 1 мая на фестимвале <STRONG>Neurotic Deathfest </STRONG>в Тилбурге.</P>
+Автор: Vit Belov
+
+### 13.09.2009 articles CARCASS в Москве: &quot;Концерт, о котором будут рассказывать&quot;.
+
+<P>12 сентября Москву с единственным концертом посетили реформированные англичане CARCASS. Это был не просто концерт, а Событие. Легендарная группа, одни из основателей death-grind, коллектив, оставивший глубокий след и всё такое. По этому случаю клуб 1Rock был забит почти до отказа, не смотря на достаточно высокую стоимость билетов. Хотя, что билеты, если у нас могут оплатить за 100 баксов проход на концерт каких-то второстепенных металлистов, CARCASS объявленных 1400 рублей заслуживал.</P>
+<P>Группа CARCASS образовалась в 1985 году, а первый свой альбом “Reek Of Putrefaction” выпустила в 1988 году. На первых двух альбомах коллектив представлял полностью независимый радикальный gore/grind/death-grind, который по тем временам звучал дико и бесновато. Это сейчас сотни групп, воспользовавшись, в том числе, и уроками CARCASS, насилуют уши подготовленных слушателей. Тогда подобная музыка не была привычной, а уж тексты, понадёрганные из медицинских энциклопедий, вообще, были чем-то из ряда вон. Но уже на третьем альбоме “Necroticism” в музыке CARCASS появляются черты мелодий. Пока это только черты, но зная, чем всё закончится, их можно обнаружить достаточно легко. А закончилось всё в 1995 году альбомом “Swansong”, последним на сегодняшний день в дискографии коллектива. Там мы уже слышали melodic-death-metal с элементами stoner, от старого у CARCASS остался только искажённый вокал Jeff Walker. Таким образом, CARCASS стояли у истоков двух стилей современного тяжёлого металла, а такие вещи не забываются. Вот и вчера в зале можно было встретить как любителей мелодичного CARCASS, так и фанатов со стажем, которые в настоящее время перерывают лотки с UD-музыкой в поисках всего тошнотворного и провокативного. Остаётся напомнить, что возродились CARCASS в 2008 году и продолжают с концертами объезжать весь мир, их с нетерпением ждут везде.</P>
+<P>Ждали их и в Москве. Сначала анонсированный на апрель концерт был перенесён на сентябрь, но это никого не остановило. Подходя вчера к 1Rock в районе 19-00 я вспомнил старые времена, когда концерты были важнейшими событиями в жизни металл-тусовки. У ближайших магазинов и ларьков толпились люди, перед входом в клуб растянулась очередь, в толпе мелькали знакомые одухотворённые лица деятелей отечественного тяжмета. При этом не наблюдалось никакой давки, не было и недовольных очередью. Все понимали, что на такой концерт и должна быть очередь, разве что многие вспоминали легендарный ДК им. Горбунова, где весь этот антураж смотрелся бы более органично. Но был ещё и разогрев. Открывали концерт MELISSA, которых в 90-х поддерживал Metalagen, а последний на сегодня альбом выпустили Союз. Я понимаю, что у музыкантов этой группы CARCASS также вызывали благоговение, но желание MELISSA выступить в рамках этого шоу я не одобряю. Во-первых, возвращаясь к впечатлениям от настроя публики, замечу, что подобные концерты-легенды никогда не нуждаются в разогреве. Кто бы не выступал «перед», публика всегда настроена только на звёзд вечера, а любой суппорт воспринимается неадекватно. Хорошо, что наши люди уже научились не кричать: «Пошли вон!», но радостных лиц в зале в этот момент было немного. Во-первых, становилось жарковато, а на улице могли оставаться только люди с железными нервами, рискуя не пробиться в зал, и не занять удобного для просмотра места. Во-вторых, музыка MELISSA вызывала недоумение практически у всех пришедших. Какой-то странноватый death-doom-metal, который мог понравиться кому-то только в 90-х, а сейчас такую музыку уже совсем никто не слушает, тем более поклонники CARCASS. Я слышал в зале такие нелепые предположения о происхождении MELISSA, что музыкантов становилось просто жалко. Например, какие-то ребята сказали, что перед нами, вероятно, выступает «пионерская» команда, которой ещё многому нужно научиться. Великолепная рекомендация. В конце MELISSA исполнили “South Of Heaven”, которая вызвала некоторое оживление в зале, но, к сожалению, и здесь MELISSA не смогли подняться над собой, превратив эту эпохальную вещь в странный мелодичный хит с навязчивой соло-гитарой.</P>
+<P>Ровно в 21-00 на сцене появились CARCASS. На экраны начали транслировать процесс эксгумации, заботливые руки разделывали человеческий мозг и печень, но, кажется, в этот момент никто на экран не смотрел. Всем вниманием завладели четыре человека на сцене. У всех них есть свой background, который они заработали за время «после CARCASS». Mike Amott – лидер знаменитых ARCH ENEMY, группы же Jeff Walker - BLACKSTAR и Bill Steer – FIREBIRD не столь известны среди металлистов, но они заслуженно являются флагманами немного другой музыки, в рамках творчества в которой эти мужики уже доказали свою состоятельность. Это я к тому, что CARCASS в этот вечер уже не могли играть с таким же качеством, как на бутлегах конца 80-х годов. В итоге концерт превратился в пиршество для любителей позднего CARCASS. Песен со “Swansong” и “Heartwork” было достаточно, но и более старые композиции звучали так, что их можно было смело относить к позднему творчеству. Даже ужасающие death-grind композиции с первых двух альбомов стали melodic death-metal с отличными соло обоих гитаристов. «Новодел», скажете вы? Я с вами соглашусь, но ведь невозможно, чтобы все были довольны. Сам же концерт был очень хорош. И это благодаря не только музыкантам, но и фэнам. CARCASS принимали очень тепло, им не надо было никого раскачивать, все и так уже были на грани умопомешательства только от того, что эта группа появилась на московской сцене. А их ритмичные и мелодичные композиции могут быть основой для любого успешного концерта.</P>
+<P>CARCASS похоже не собираются записывать новый альбом. Я их понимаю. Чтобы собирать залы, он им не требуется. Продать какое-то заметное количество экземпляров в наше время тоже не представляется возможным. А главное… Что на этом альбоме запишут CARCASS? Старое своё творчество они вспоминают сейчас с улыбкой, как юношеские шалости, а в рамках melodic-death-metal они уже точно не будут выглядеть первооткрывателями. Безвыходная ситуация? Посмотрим. Быть может, этот тур CARCASS всё-таки не станет их «Лебединой песней 2» и породит что-то, за что мы станем уважать англичан ещё сильней? </P>
+Автор: Vit Belov
+
+### 05.06.2011 news THE BLACK DAHLIA MURDER с кавером на CARCASS в журнале Decibel
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.06/19572.jpg" width=300 height=402>Мичиганцы <B>THE BLACK DAHLIA MURDER</B>, не так давно посетившие Россию с двумя концертами, выйдут на flexi-диске журнала <B>Decibel</B>. Специально для этого группа записала песню <STRONG>"This Mortal Coil"</STRONG> авторства англичан <B>CARCASS</B>, а, так же, привлекла к этому богохульству самого Джеффа Вокера (<B>Jeff Walker</B>, фронтмен <STRONG>CARCASS</STRONG>). Все те, кто&nbsp; получают журнал <B>Decibel</B> по подписке, найдут это эксклюзивный "гибкий" диск внутри июльского номера (на картинке), который поступит в продажу 9 июня.</P>
+Автор: Headcrusher
+
+### 08.12.2012 news CARCASS записывают альбом!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.12/25125.jpg" width=475 height=367>Реактивированные легенды<STRONG> CARCASS</STRONG> работают над первым студийным альбомом за 17 лет. Группа заканчивает запись в студии <STRONG>Colin Richardson</STRONG> (<B itxtHarvested="0" itxtNodeId="56">FEAR FACTORY</B>, <B itxtHarvested="0" itxtNodeId="55">MACHINE HEAD</B>, <B itxtHarvested="0" itxtNodeId="54">NAPALM DEATH</B>, <B itxtHarvested="0" itxtNodeId="53">SLIPKNOT</B>, <B itxtHarvested="0" itxtNodeId="52">BULLET FOR MY VALENTINE</B>). На новом альбоме не появятся гитарист <STRONG>Michael Amott</STRONG> и барабанщик <STRONG>Daniel Erlandsson, </STRONG>которые не могут оторваться от <STRONG>ARCH ENEMY</STRONG>. Им на замену вызван барабанщик <STRONG>Daniel Wilding</STRONG>&nbsp;из <B itxtHarvested="0" itxtNodeId="42">TRIGGER THE BLOODSHED.</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Основатели коллектива <STRONG>Bill Steer</STRONG> и <STRONG>Jeff Walker </STRONG>обещают альбом, который станет связующим звеном между "<STRONG>Necroticism</STRONG>" и "<STRONG>Heartwork</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 24.05.2013 news CARCASS подписались на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реанимированные британцы <STRONG>CARCAS</STRONG>S заключили договор с <STRONG>Nuclear Blast</STRONG>. Новый альбом музыкантов будет называться <STRONG>"Surgical Steel"</STRONG>. Сведение пластинки сделал <STRONG>Andy Sneap</STRONG> (<B>MEGADETH</B>, <B>ACCEPT</B>, <B>EXODUS</B>, <B>ARCH ENEMY</B>), который заменил отказавшегося от этой работы постоянного продюсера <STRONG>CARCASS</STRONG> <STRONG>Colin Richardson</STRONG> (<B>FEAR FACTORY</B>, <B>MACHINE HEAD</B>, <B>NAPALM DEATH</B>, <B>SLIPKNOT</B>, <B>BULLET FOR MY VALENTINE</B>). Интересно, что лидер <STRONG>CARCASS</STRONG> <STRONG>Jeff Walker</STRONG> сообщил, что <STRONG>Colin</STRONG> променял <STRONG>CARCASS</STRONG> на <STRONG>TRIVIUM</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время в составе <STRONG>CARCASS</STRONG> лишь два классических участника <STRONG>Bill Steer</STRONG> и<STRONG> Jeff Walker</STRONG>. Группу пополнили барабанщик <STRONG>Dan Wilding</STRONG> (<B>ABORTED</B>, <B>TRIGGER THE BLOODSHED</B>)&nbsp;и гитарист&nbsp;<B>Ben Ash</B> (<B>PIG IRON</B>, <B>DESOLATION</B>, <B>LIQUEFIED SKELETON</B>). Оригинальный барабанщик коллектива <STRONG>Ken Owen</STRONG> записал гостевой вокал для нового альбома.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.05/25742.jpg" width=475 height=632> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.07.2013 news CARCASS: обложка альбома &quot;Surgical Steel&quot;
+
+<P>Английская grindcore/death metal&nbsp;группа <STRONG>CARCASS</STRONG> опубликовала обложку своего нового альбома <STRONG>"Surgical Steel"</STRONG>.</P>
+<P><EM>“Мы&nbsp;снова&nbsp;вернулись к сотрудничеству с Яном Тилтоном (<STRONG>Ian Tilton</STRONG>), знаковым английским фотографом, известным за свою работу с <STRONG>THE STONE ROSES</STRONG>”, </EM>- рассказывает <STRONG>Jeff Walker</STRONG>. <EM>“Он также&nbsp;нарисовал обложку&nbsp;для <STRONG>"Necroticism..."</STRONG>. Мы намеренно пытались возродить [в обложке] атмосферу&nbsp;этого альбома и <STRONG>"Heartwork"</STRONG>.”</EM></P>
+<P>С нетерпением ожидаемый многими, альбом будет выпущён 13 сентября в Европе, 16 сентября в Англии и 17 сентября в Северной Америке.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25898.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.07.2013 news CARCASS выпускают 7&quot; EP 
+
+<P><STRONG>CARCASS</STRONG> выпускают 7" EP под названием <STRONG>"Captive Bolt Pistol"</STRONG>,&nbsp;который будет&nbsp;предварять их новый полноформатный альбом <STRONG>"Surgical Steel"</STRONG>, выходящий 13 сентября 2013 г. </P>
+<P><STRONG>"Captive Bolt Pistol"</STRONG> выйдет в трёх видах - на сером, синем и зелёном винилах. Причём два последних будут доступны исключительно в интернет магазине <A href="http://www.nuclearblast.de/en/shop/artikel/gruppen/51000.1.html?article_group_sort_type_handle=rank&custom_keywords=Captive%20bolt%20pistol">Nuclear Blast</A>.</P>
+<P>Дата выхода EP: 9 августа.</P>
+<P>Трек-лист:</P>
+<P>Сторона A: <STRONG>Captive Bolt Pistol<BR></STRONG>Сторона B: <STRONG>Intensive Battery Brooding</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25943.jpg" width=650 height=158> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 27.12.2013 news CARCASS: видео &quot;Unfit For Human Consumption&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео британцев&nbsp;<STRONG>CARCASS</STRONG>&nbsp;на трек <STRONG>"Unfit For Human Consumption"</STRONG> доступно для просмотра ниже.</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/5KKYJD09qCk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.10.2014 news Новый клип CARCASS
+
+<P>Клип на песню<STRONG> CARCASS "The Granulating Dark Satanic Mills"</STRONG> можно посмотреть ниже. Новый релиз англичан "<STRONG>Surgical Remission / Surplus Steel EP</STRONG>" выйдет в ноябре на <STRONG>Nuclear Blast</STRONG> и будет содержать нереализованный материал, записанный во время сессий к ре-юнион альбому <STRONG>"Surgical Steel</STRONG>".</P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/wu6gGulJFmw" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.08.2015 news Новая группа Carlo Regadas
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший гитарист <STRONG>CARCASS</STRONG> и <STRONG>BLACKSTAR Carlo Regadas</STRONG>, заменивший в своё время<STRONG> Michael Ammot</STRONG>, вернулся в тяжёлую музыку спустя 14 лет. Музыкант организовал группу <STRONG>MONSTRANCE</STRONG> вместе с вокалистом <STRONG>Tony Glover (ex-Devoid)</STRONG>. Из последних новостей, к группе присоединился барабанщик<STRONG> Nicholas Barker (Anaal Nathrakh, Ancient, Atrocity, Benediction, Brujeria, Cradle of Filth, Dimmu Borgir, Testament etc etc).</STRONG> </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отрывки музыки новой группы:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="600" height="400" src="https://www.youtube.com/embed/1E3Q_xuWMTA" frameborder="0" allowfullscreen></iframe></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Facebook: <A href="https://www.facebook.com/monstranceofficial">https://www.facebook.com/monstranceofficial</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Carcass: 2 стиля.

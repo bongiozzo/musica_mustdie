@@ -27,6 +27,22 @@ Aurelien Simon -g
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2002 reviews Жалкое подобие массовой смерти
+
+<p>Второй альбом французской команды продолжает творчество предшественника. Похоже, кумирами этой французской группы являются американские мегастар MEGADETH (особенно) и METALLICA. Эти ребята настолько пытаются походить на своих идолов как в музыкальном плане, так и по вокалу и в лирических отступлениях, что порой это вызывает сочувствие. А все потому, что получается это у них очень плохо. Не хватает им мощи и энергии, что была у американцев. Невеселый thrash heavy metal мелодичен и ритмичен, но слишком упрощен и облегчен, более примитивен. Альбом хорошо спродюссирован, но слишком вторичен, сильно не дотягивая до оригинала. Представьте себе самую слабую вещь на альбоме MEGADETH "Youthanasia". Так вот если бы она вошла в этот альбом, то на нем она была бы лучшей вещью альбома. Откровенно слабоватый альбом.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru/">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 12.06.2002 reviews Poor excuse of MEGAdeth
+
+<p>The second album of the French band continues creativity of the predecessor. Similar, idols of this French group are American megastars MEGADETH (especially) and METALLICA. These guys so try to resemble the idols both in the musical plan, and on vocal and in lyrical deviations, that at times it causes sympathy. And all because turns out it at them very bad. There is to no them a power and energy, that was at the Americans. Gloomy thrash heavy metal is melodious and is rhythmical, but is too simplified and is facilitated, is more primitive. The album is good produced, but is too secondary, strongly not holding out up to the original. Imagine the weakest track on an album MEGADETH "Youthanasia". So if it has come in this album, it would be the best song of an album. Frankly poor album.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

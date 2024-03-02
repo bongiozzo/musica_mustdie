@@ -63,6 +63,21 @@ Jennifer Woodruff  -  Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.08.2001 news Carpe Diem ...
+
+<p>Дэт-блэкстеры "WILL HAVEN" опубликовали трек-лист своего нового творения: 01. S.H.R. 02. Saga 03. Carpe Diem 04. BATS 05. Dressed In Night Clothes 06. Dolph Lundgren 07. Finest Our 08. Alpha Male 09. Miguel............... 10. Moving To Montana. Диск выйдет 23-го октября на Revelation Records.</p>
+
+Автор: Yermola
+
+### 02.08.2001 news Carpe Diem...
+
+<p>The full track listing for WILL HAVEN’s forthcoming Carpe Diem CD, which is due to be issued on October 23rd through Revelation Records, is as follows: 01. S.H.R. 02. Saga 03. Carpe Diem 04. BATS 05. Dressed In Night Clothes 06. Dolph Lundgren 07. Finest Our 08. Alpha Male 09. Miguel............... 10. Moving To Montana. WILL HAVEN will also be performing at the following dates: <br> August 17 - Phoenix, AZ @ TBA (w/SOULFLY) <br> August 18 - San Jose, CA @ Cactus Club <br> August 25 - Sacramento, CA @ Scratch 8 (w/SINGE, LONG DRIVE HOME).<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

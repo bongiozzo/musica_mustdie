@@ -40,6 +40,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news SUFFOKATE назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом&nbsp;deathcore группы<STRONG>&nbsp;SUFFOKATE</STRONG> получил название "<STRONG>Return To Despair</STRONG>". Пластинка была записана в <STRONG>Undercity Studios</STRONG> в Северном Голливуде и будет выпущена в этом году лэйблом <STRONG>Mediaskare Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущий альбом<STRONG> SUFFOKATE "No Mercy, No Forgiveness"</STRONG> вышел на том же лэйбле в феврале прошлого года.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=269 src="/images/news_rus/2011.07/19916.jpg" width=450 border=0></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

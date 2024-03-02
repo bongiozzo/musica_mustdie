@@ -18,6 +18,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.12.2011 news SPELLCRAFT на Xtreem
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2011.12/22293.jpg" width=250 align=right border=0>Ветераны испанского black-metal <STRONG>SPELLCRAFT </STRONG>заключили сделку с <STRONG>Xtreem Music</STRONG>. Второй альбом музыкантов "<STRONG>Yersinia Pestis</STRONG>" выйдет весной 2012 года. Группа, образованная в 1996 году, играет материал для поклонников <STRONG>MORK GRYNING</STRONG>,&nbsp;раннего <STRONG>SATYRICON, DISSECTION, SACRAMENTUM</STRONG>. </P>
+<P>Дебютная работа <STRONG>SPELLCRAFT "Stirpe Obscura"</STRONG> вышла в 2008 году на<STRONG> Grotesque Productions</STRONG>.</P>
+<P>MySpace: <A href="http://www.myspace.com/spellcrafthell">http://www.myspace.com/spellcrafthell</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -29,6 +29,16 @@ IX. Душа 4:31
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.03.2008 news ПРОСВЕТЛЕНИЕ записали альбом
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2008.03/12397.jpg" width=300 align=right border=5>Екатеринбургская gothic-doom-metal группа<STRONG> ПРОСВЕТЛЕНИЕ</STRONG> записала новый альбом "<STRONG>Найти Себя</STRONG>". Группа представляет классический материал с&nbsp;высоким женским вокалом. Трэк-лист:</P>
+<P>I. <STRONG>Мой призрак</STRONG> 4:26 <BR>II. <STRONG>Плачущая Муза I</STRONG> 1:55 <BR>III. <STRONG>Боль</STRONG> 6:24 <BR>IV. <STRONG>Плачущая Муза II</STRONG> 2:16 <BR>V. <STRONG>Листьев Шуршанье</STRONG> 5:15 <BR>VI. <STRONG>Плачущая Муза III</STRONG> 1:13 <BR>VII. <STRONG>За Идеальным Миром</STRONG> 5:10 <BR>VIII. <STRONG>Плачущая Муза IV</STRONG> 0:57 <BR>IX. <STRONG>Душа</STRONG> 4:31 </P>
+<P>Ссылка: <A href="http://prosvetlenie.net/">http://prosvetlenie.net</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

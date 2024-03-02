@@ -8,6 +8,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2011 news BORN AGAIN записывают дебют
+
+<P>Немецко-польская группа <STRONG>BORN AGAIN</STRONG> работает над дебютным альбомом в <STRONG>MP Studio</STRONG> в Польше вместе с продюсером <STRONG>Bart Gabriel</STRONG> (<B itxtNodeId="34" itxtHarvested="0">BURNING STARR</B>, <B itxtNodeId="33" itxtHarvested="0">CRYSTAL VIPER</B>, <B itxtNodeId="32" itxtHarvested="0">LONEWOLF</B>). Пластинка получила название <STRONG>"Neverending Fire"</STRONG>. В составе коллектива:</P>
+<P>* <B itxtNodeId="25" itxtHarvested="0">Marta Gabriel</B> (CRYSTAL VIPER) - Lead And Backing Vocals, Keyboards<BR itxtNodeId="24">* <B itxtNodeId="23" itxtHarvested="0">Martin Albrecht</B> (ex-STORMWITCH, MYSTIC PROPHECY, ROUGH) - Bass Guitar And Backing Vocals<BR itxtNodeId="22">* <B itxtNodeId="21" itxtHarvested="0">Bjorn Daigge</B>r (ex-MAJESTY, CIVILIZATION ONE, R:I:P) - Guitar And Backing Vocals<BR itxtNodeId="20">* <B itxtNodeId="19" itxtHarvested="0">Alex Guth</B> (STORMWARRIOR, BURNING STARR) - Guitar<BR itxtNodeId="18">* <B itxtNodeId="17" itxtHarvested="0">Tom "Golem" Danczak</B> (CRYSTAL VIPER, ex-DRAGON, DARZAMAT) - Drums</P>
+<P>
+<CENTER><IFRAME height=390 src="http://www.youtube.com/embed/vmkMrSI1r0c" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -44,6 +44,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2011 news Ушёл из жизни Jan Somers, гитарист голландской группы VEANGEANCE 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18398.jpg" width=300 height=420>Ушёл из жизни гитарист голландской группы <STRONG>VEANGEANCE</STRONG> Ян Сомерс (<STRONG>Jan Somers</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По сообщению&nbsp;на официальном сайте группы, Ян умер от сердечного приступа, после полудня 28 января, находясь у себя дома, в городе&nbsp;&nbsp;Mierlo (Голландия). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Яну было 46 лет.</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

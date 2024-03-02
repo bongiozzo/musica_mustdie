@@ -67,6 +67,616 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.04.1999 reviews 
+
+<p>Неожиданный альбом. Честно говоря, был в замешательстве, стоит ли рецензировать этот альбом на странице посвящённой тяжёлой музыке. И всё-таки решился. L'AME IMMORTELLE играют очень оригинальный atmospheric gothic techno black. Причём techno в прямом смысле слова. Если этот альбом включить на какой-нибудь дискотеке, то никто и не заметит, что это не совсем техно-группа. Очень интересный материал. На клавишную техно-трансовую музыку накладывается засэмплированный блэковый вокал, на подпевке готический женский вокал и всё это приправленно готической атмосферой. Казалось бы совершенно несовместимые вещи, ан нет - неплохо уживаются. Такого я ещё не слышал. Но вы не пугайтесь, не такая уж это и танцевальная музыка, ну если только под медленный танец, хотя две-три композиции заставляют пуститься в пляс. Но, в основном, альбом довольно медленный, и по настроению больше меланхоличный, вводящий в транс-состояние. Довольно интересный материал. Во-всяком случае, намного лучше, чем то, что крутят в ночных клубах.</p>
+
+Автор: Dimas
+
+### 11.12.2000 news L&#39;ame Immortelle скоро отправятся в студию.
+
+<p>Gothic/electro коллектив L'ame Immortelle 29 января 2001 года отправится в студию записывать четвёртый альбом "Dann habe ich umsonst gelebt".</p>
+
+Автор: Morsus
+
+### 11.12.2000 news L&#39;ame Immortelle will entered a studio soon.
+
+<p>Gothic/electro band L'ame Immortelle will entered a studio to record their 4th album "Dann habe ich umsonst gelebt" on 29 January 2001.</p>
+
+Автор: Morsus
+
+### 03.10.2003 articles 1 ноября, клуб Roxy: Edge of the Night VI - Halloween Party (пресс-релиз)
+
+<DIV align="center">L’AME IMMORTELLE (Австрия) / DUST HEAVEN (Украина) / THE UNHOLY GUESTS (Россия)<BR>Dj Chthon, Dj MadMax2, Dj Negative, Dj Hellen, Dj Riper, Dj Asmodeus, Dj Alexdark </DIV>
+<P><A href="http://music.gothic.ru/events/edge6/edge6.htm" target=_blank><IMG height=168 src="/images/articles_rus/2003.10/5020.jpg" width=255 align="left" border=0></A>1-го ноября (суббота) 2003 г. в московском клубе "Roxy" состоится шестое ежегодное Хэлловин party - фестиваль "Edge of the Night". Russian Gothic Project традиционно старается представлять российской аудитории лучшие западные готические группы и в качестве хэдлайнеров в этом году была выбрана одна из лучших современных gothic-electro групп - австрийский проект L'AME IMMORTELLE - этим выступлением закончится очередное европейское турне группы. На фестивале также выступят русскоязычная готическая сенсация этого года - украинская группа DUST HEAVEN (synth-gothic) и московский gothic rock проект THE UNHOLY GUESTS. С 19:00 и до утра на двух танцполах музыка в стилях gothic rock, love metal, gothic metal, synth/future-pop, dark electro/EBM, synth-gothic, darkwave, electro-goth, etc от лучших московских gothic dj-ев - команды dj-ев gothic.ru (dj Chthon, dj MadMax2, dj Hellen, dj Negative) и The Crypt (dj Riper & dj AsmoDeus) + dj Alexdark. Время начала выступления L'AME IMMORTELLE - 22:30. Стоимость билетов в предварительной продаже - 550 руб., в день концерта - 650 руб. Вход на ночное gothic party после концерта (с 00.00) - 150 руб. Количество билетов будет ограничено! Адрес клуба: г. Москва, м. "Бауманская", "Красные Ворота", Старая Басманная ул. 20 (10 минут пешком от метро), Клуб "Roxy".</P><BR>
+<DIV align="center"><IMG height=40 src="/images/articles_rus/2003.10/5021.gif" width=326 border=0></DIV>
+<P>История aвстрийской группы L’AME IMMORTELLE начинается так же, как и история многих других групп – в 1996 году, познакомившись на вечеринке в клубе, Томас Райнер (Thomas Rainer) и Ханнес Медвенитш (Hannes Medwenitsch) решили поработать вместе. <IMG height=251 src="/images/articles_rus/2003.10/5022.jpg" width=255 align="right" border=0>Молодые музыканты, выросшие в Австрии – стране с богатыми многовековыми музыкальными традициями – несмотря на юный возраст, имели за плечами немало лет классической музыкальной школы. Изначально взяв ориентир на электронную готическую музыку, они поняли, что группе необходим женский вокал. Томас вспомнил о своей школьной подружке Соне Краусхофер (Sonja Kraushofer), более десяти лет занимавшейся музыкой по классу фортепьяно и около пяти лет – вокалом, и пригласил её в группу. Уже на первой репетиции с новой вокалисткой стало понятно, что звучание группы обрело гармонию.</P>
+<P>После ряда концертов и записи демо был подписан контракт с небольшим независимым лэйблом из княжества Лихтенштейн – MOS Records, где в 1997 году и вышел дебютный лонг-плей группы - "Lieder, die wie Wunden bluten". Музыкальная пресса хорошо приняла дебютный альбом благодаря своеобразному сочетанию мрачности и лиричности – энергичные darkwave-композиции сменялись романтическими synth-gothic балладами, интересную окраску музыке придавало и использование двух вокалов – ангельского вокала Сони и грубого вокала Томаса. Лирическая композиция “Life Will Never be the Same Again” стала известным клубным хитом и до сих пор остаётся визитной карточкой группы.</P>
+<P>Второй альбом группы "In einer Zukunft aus Tranen und Stahl" вышел в 1998 году – звучание стало более законченным и агрессивным, этот диск ждал ещё больший успех – шесть недель в первой 20-ке Немецких Альтернативных Чартов! В том же году группа попадает под крыло менеджмента Drakkar/BMG, что помогло активному промоушену коллектива.</P>
+<P>В 1999 году L’AME IMMORTELLE отправляются в тур в качестве поддерживающей группы с культовым готическим коллективом CHRISTIAN DEATH; после турне лимитированным тиражом выходит специальный “Tour CD”, содержащий четыре ранее не издававшиеся композиции. Во время турне группа познакомилась с владельцем «готического мейджора» Trinity/Trisol - крупнейшей независимой немецкой фирмы, специализирующейся на готической музыке, Алексом Стормом (Alex Storm), который и предложил группе контракт на запись следующего альбома, выпущенного в том же году под названием "Wenn der letzte Schatten fallt". Электронные композиции на альбоме стали более атмосферными, в полном объеме используя потрясающий вокал Сони. Диск продержался в альтернативных чартах почти три месяца! Специальное издание альбома содержало второй диск с ремиксами от NOISEX, DAS ICH и INERTIA.</P>
+<P>После двухмесячного турне и череды выступлений на готических фестивалях в 2000 году группа приступает к записи четвёртого альбома, решив сделать звучание более интересным – при записи использовано множество живых классических инструментов, а в последующем турне группе на сцене аккомпанировали музыканты на скрипке, виолончели и гитаре. В качестве специального гостя на запись альбома был приглашен вокалист культовой американской gothic rock группы LONDON AFTER MIDNIGHT Шон Бреннан. Предварявший выход альбома сингл “Epitaph” вышел в ноябре 2000 года и содержал ремиксы от PAL, FLESH FIELD, FAITH & THE MUSE, IN STRICT CONFIDENCE. Сам альбом, под названием “Dann habe Ich umsonst Gelebt”, был выпущен в январе 2001 года. Альбом и сингл уже традиционно занимают верхние позиции альтернативных чартов и признаются «альбом месяца» ведущими немецкими журналами об альтернативной музыке. Второй сингл с альбома – “Judgement” – выходит в июле 2001 года, а ещё через полгода на свет появляется оригинальное издание – двойной диск “Zwelicht”, первый CD которого содержит те же композиции, что и предыдущий альбом, только ремикшированные различными готическими и индустриальными группами (FAITH & THE MUSE, ASP, ASSEMBLAGE 23, etc), а второй диск представляет собой видеозаписи, сделанные в ходе турне “Embrace the Twilight” 2001 года.</P>
+<P>Сингл "Tiefster Winter", предваряющий выход пятого альбома группы, мгновенно попадает на первое место Deutsche Alternative Charts и признаётся журналом Orkus синглом месяца. Вышедший за ним альбом "Als die Liebe Starb" в полной мере оправдал ожидания и прессы и музыкальных критиков. Этот диск, вышедший 3-го февраля 2003 года, является эталоном электронной готики, сочетая талант эффектного вокального дуэта Томаса и Сони с внятными аранжировками и хитовыми мелодиями.</P>
+<P>Летом этого года выходит в свет первый DVD группы - "Disharmony – Live!", содержащий записи эффектных концертных выступлений коллектива. Сразу после выхода DVD попадает в первую десятку DVD Media Control Charts! Очередное европейское турне группы начнётся в октябре и включает два десятка выступлений в Германии, Австрии, Швейцарии, Италии, Голландии. Тур закончится первым выступлением L’AME IMMORTELLE в России – 1-го ноября 2003 на “Edge of the Night” Halloween party!</P>
+<P><A href="http://www.lameimmortelle.com/" target=_blank><U>http://www.lameimmortelle.com</U></A></P><BR>
+<DIV align="center"><BR><B>DUST HEAVEN</B></DIV>
+<P><IMG height=205 src="/images/articles_rus/2003.10/5023.jpg" width=178 align="right" border=0>Украинский synth goth / cold wave проект DUST HEAVEN создан в 2001-м году и является сайд-проектом electro группы GRAY/SCALE с участием вокалистки Ольги Пулатовой. С самого начала творческой деятельности группа привлекла к себе внимание благодаря сочетанию качественной готик-электроники, созданной Александром Гречаником с уникальным "ангельским" вокалом Ольги Пулатовой. Стиль проект был охарактеризован украинской и немецкой профилирующей прессой как synth goth смешаный с cold wave, ближайшие аналоги - европейская готик-электроника (L'AME IMMORTELLE, LA FLOA MALDITA, TECHNOIR). За последний год во время ротации на готик-пати в Германии (Ганновер) трек "Невидимки" стал фактически единственным хитом исполняемым на славянском языке и привлекшим пристальное внимание немецкой публики к группе. Данный интерес не удивителен если учесть тот факт, что в проекте DUST HEAVEN Александр Гречаник эффективно использует весь свой опыт композитора и ремикшера (WUMPSCUT ("Wreath of barbs", 2002) и FUNKER VOGT ("Final thrill", 2003)), а Ольга - вокальный опыт приобретенный в различных других проектах связанных так или иначе с украинской готической и независимой сценой.</P>
+<P><A href="http://dustheaven.gothic.com.ua/" target=_blank><U>http://dustheaven.gothic.com.ua</U></A><BR clear=all></P><BR>
+<DIV align="center"><BR><B>THE UNHOLY GUESTS</B></DIV>
+<P><IMG height=174 src="/images/articles_rus/2003.10/5024.jpg" width=275 align="left" border=0>Молодая московская группа THE UNHOLY GUESTS, образованная в августе 2002 года гитаристом и автором текстов Алексеем Fiend, является одной из немногих команд российской темной сцены, исполняющих "ортодоксальный", классический готик-рок. Творчество коллектива включает в себя разумную порцию рок-н-ролльного драйва, ведомого неагрессивными, задумчивыми, местами меланхоличными гитарными партиями, вкупе с плотным звуком клавиш, создающим мрачную и таинственную атмосферу, и все это приправлено интровертными, отстраненными текстами на английском языке, пронизанными чувством обреченности и бесконечной, всеобъемлющей тоской. Добавьте сюда яркий, харизматический имидж участников группы - и вы получите рецепт классической, добротной готик-рок команды, a la THE SISTERS OF MERCY, THE MISSION или FIELDS OF THE NEPHILIM.</P>
+<P><A href="http://the-unholy-guests.nm.ru/" target=_blank><U>http://the-unholy-guests.nm.ru</U></A></P>
+Автор: Morsus
+
+### 25.10.2003 news L&#39;AME IMMORTELLE на Хэлловин party 1 ноября
+
+<P><IMG height=200 alt="L'Ame Immortelle" src="/images/shows_rus/2003.11/5101.jpg" width=288 align="left" vspace=5 border=0>Russian Gothic Project представляет главное российское готическое событие года - Хэлловин party "Edge of the Night VI", которое состоится в субботу 1-го ноября 2003 года в московском клубе "Roxy". В качестве хэдлайнеров в этом году была выбрана одна из лучших современных gothic-electro групп - австрийский проект <A href="http://www.lameimmortelle.com/">L'AME IMMORTELLE</A> - этим выступлением закончится очередное европейское турне группы. На фестивале также выступят русскоязычная готическая сенсация этого года - украинская группа <A href="http://dustheaven.gothic.com.ua/">DUST HEAVEN</A> (synth-gothic) и московский gothic rock проект <A href="http://the-unholy-guests.nm.ru/">THE UNHOLY GUESTS</A>.</P>
+<P>С 19-00 и до утра на двух танцполах музыка в стилях gothic rock, love metal, gothic metal, synth/future-pop, dark electro/EBM, synth-gothic, darkwave, electro-goth, etc от лучших московских gothic Dj-ев - команды dj-ев gothic.ru (dj Chthon, dj MadMax2, dj Hellen, dj Negative) и The Crypt (dj Riper - ёу!&nbsp;& dj AsmoDeus, тоже рулит, естественно:)) + dj Alexdark.</P>
+<P>Время начала выступления <A href="http://www.lameimmortelle.com/">L'AME IMMORTELLE</A> - 22:30.</P>
+<P>Стоимость билетов в предварительной продаже - 550 руб., в день концерта - 650 руб. Вход на ночное gothic party после концерта (с 00.00) - 150 руб.&nbsp;Количество билетов ограничено - 700 штук, организаторы не гарантируют наличие билетов в день концерта. Билеты можно приобрести в рок-галерее "Зиг-Заг" (м. Арбатская), в рок-магазине "У дяди Бори" (м. Кузнецкий мост), в ТЦ "Горбушкин двор" (м. Багратионовская), в магазинах "Трансильвания", "Violator Project", в кассе клуба "Roxy".</P>
+<P>Адрес клуба: г. Москва, м. "Бауманская", "Красные Ворота", Старая Басманная ул., 20 (10 минут пешком от метро), <A href="http://music.gothic.ru/events/edge6/roxy-map.jpg">Клуб "Roxy"</A>.</P>
+Автор: Дофф
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### L'AME IMMORTELLE на Хэлловин party 1 ноября

@@ -152,6 +152,176 @@ Digipack bonus tracks:
 
 * C группой "The Unguided" 
 
+## Публикации
+
+### 16.06.2007 reviews Первые на конкурсе, но не на рынке
+
+<P>Бонус-диск к сборнику Nuclear Blast “Into The Light”. Нет, это, конечно, не совсем так, просто новая работа SONIC SYNDICATE тоже является спецпроектом лэйбла и тоже выходит на CD-Maximum. Многим уже известно, что шведы победили на конкурсе молодых команд, организуемом самым независимым металл-лэйблом. Nuclear Blast, которые отобрали SONIC SYNDICATE. В нашей стране группа стала известна несколько раньше, благодаря релизу на Mystic Empire их первого альбома.</P>
+<P>Вроде бы и тут есть, что похвалить. Отличная реализация, точное попадание в популярный ныне стиль modern-metal в духе IN FLAMES/SOILWORK, навязчивые песни. Вот только от их навязчивости становится дурно уже при первом прослушивании. Настолько качественная работа, что просто тошно. Безусловно, сотни людей вот сейчас уже достают из холодильника мятые помидоры, что подешевле, и тухлые яйца, если они там хранятся, но ничего поделать я с собой не могу. Объективно этот альбом при разных раскладах достоин высочайшего балла, но субъективно ничего выше «удовлетворительно» поставить я не могу. Забавно, что, местами, мне всё это напомнило альбомы наших ФАКТОР СТРАХА. Такой же непонятный чистый вокал, редкий гроулинг, песни уже практически никак не относящиеся к death-metal. Даже небольшую долю, пусть и современного, но долбилова, как, например, у SCAR SYMMETRY, группа себя не позволяет. Озадачивает и кавер на песню, исполняемую ТАТУ, “All About Us”, который, в сущности, находится в русле творчества наших нимфеток-лесбиянок. Только здесь песню поёт «готишный» страдающий плачущий, можно сказать, мужчина.</P>
+<P>Качественный материал, достойно победивший на конкурсе, но всё-таки за пределы конкурсной программы явно не выдающийся.</P>
+Автор: Vit Belov
+
+### 21.01.2008 news SONIC SYNDICATE планируют запись
+
+<P><STRONG>SONIC SYNDICATE</STRONG> собираются войти в студию в ближайшее время для записи своего третьего альбома, который выйдет в конце лета на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.03.2008 news SONIC SYNDICATE в студии
+
+<P><STRONG>SONIC SYNDICATE</STRONG> вошли в студию для записи нового альбома, который выйдет осенью на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.06.2008 news Новый альбом SONIC SYNDICATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.06/12555.jpg" width=400 align=right border=5>Новый альбом<STRONG> SONIC SYNDICATE</STRONG> под названием <STRONG>"Love and Other Disasters"</STRONG>&nbsp;выйдет 19 сентября на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Encaged</B><BR>02. <B>Hellgate: Worcester</B><BR>03. <B>Jack of Diamonds</B><BR>04. <B>My Escape</B><BR>05. <B>Fallout</B><BR>06. <B>Power Shift</B><BR>07. <B>Contradiction</B><BR>08. <B>Damage Control</B><BR>09. <B>Red Eyed Friend</B><BR>10. <B>Affliction</B><BR>Bonus Tracks:<BR>11. <B>Ruin</B><BR>12. <B>Dead Planet</B></P>
+Автор: Vit Belov
+
+### 12.10.2008 reviews Новые кумиры
+
+<P>Шведская группа SONIUC SYNDICATE совершила неслабый рывок за последние годы. В общем-то, подобные рывки совершают все группы, играющие в модном стиле или пытающиеся встроить свою музыку в рамки модного стиля. Музыка, одними из придумщиков которой стали IN FLAMES, по-прежнему очень популярна. Гипермелодичные куплеты с «рычалкой-хрипелкой» в качестве вокала и совсем уж попсовые припевы с чистым «чувственным» голосом. Именно такая музыка сейчас находится в фаворе у крупнейших лэйблов, таких как Nuclear Blast.</P>
+<P>SONIC SYNDICATE выиграли какой-то конкурс, устроенный этой конторой, и это уже второй альбом шведов под её эгидой. Настоящего металлиста от одного только названия этой работы «Love And Other Disaster» должно стошнить. Это название больше подошло бы романтической комедии с Риз Уизерспун в главной роли, а не альбому, который пытается попасть в металлический жанр. Но таковы реалии современной тяжёлой музыки, которая обратилась лицом к поклонникам готики и эмо, и пытается отыграть у этих популярных стилей хоть немного фанатов. Например, девушка может слушать лав-готику, а её парень быть более крутым «металлистом» и слушать SONIC SYNDICATE. И в имидже, и в музыке всё схоже, но хоть гомиком не обзовут. О чём это я? Об альбоме SONIC SYNDICATE. Группа продолжает ту линию, которую музыканты взяли на прошлой работе. Гипермелодичный, максимально слащавый и суперпопулярный melodic death-metal/metalcore. В принципе свою нишу шведы уже заняли. Их музыка — самый наиболее возможный мелодичный вариант стиля. То есть если вы никогда не пробовали такую музыку и хотите приобщиться к подобным веяниям, но до этого слушали только hard-rock или gothic-rock, то SONIC SYNDICATE для вас. Ни одного «ужасного» места на этом альбоме нет. Из колонок прямо на нас льётся елей, но самое смешное, что в звучании легко узнаются все современные IN FLAMES и SOILWORK. Вот как можно довести до абсурда любую идею.</P>
+<P>С тоской гляжу на новое поколение любителей тяжёлой музыки. Популярная ныне на эстраде «женственность» достигла и тяжёлой музыки. Кумиры молодёжи 80-90-х, волосатые мужики и здоровые негры сдают вахту новым кумирам. «Пид...», ой, извините, «мягким» мальчикам с тенями под глазами и... Кстати, негры пока держатся, но их уже подпирают всякие Эминемы...</P>
+<P>P.S.: И всё-таки свои шесть очков SONIC SYNDICATE заработали. Всё очень профессионально.</P>
+Автор: Vit Belov
+
+### 19.02.2009 news Новое видео SONIC SYNDICATE
+
+<P>Новое видео <STRONG>SONIC SYNDICATE</STRONG> <STRONG>"Powershift" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=52444776">Sonic Syndicate - Powershift</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=52444776,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=52444776,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.03.2009 news SONIC SYNDICATE покинул один из вокалистов
+
+<P>Чистоголосый певец <STRONG>SONIC SYNDICATE</STRONG> <STRONG>Roland Johansson </STRONG>покинул группу, из-за личных разногласий. Коллектив уже ищет замену.</P>
+Автор: Vit Belov
+
+### 25.08.2009 news SONIC SYNDICATE нашли вокалиста
+
+<P>Новым вокалистом <STRONG>SONIC SYNDICATE</STRONG> стал англичанин <STRONG>Nathan James Biggs</STRONG> (ex-<B>THE HOLLOW EARTH THEORY</B>). Он заменил недавно ушедшего <STRONG>Roland Johansson</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.09.2009 news Видео SONIC SYNDICATE
+
+<P><STRONG>SONIC SYNDICATE</STRONG> опубликовали видео на песню <STRONG>"Burn This City".</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/_ha6Gvq72CU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/_ha6Gvq72CU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.02.2010 news Tур SONIC SYNDICATE по России
+
+<P>Компания <STRONG>Booking Machine</STRONG> представляет:<BR>Флагманов современной шведской метал-сцены <STRONG>SONIC SYNDICATE</STRONG> (<A href="http://www.myspace.com/sonicsyndicate">http://www.myspace.com/sonicsyndicate</A>) c большим туром по России в преддверии выхода нового альбома. Обновленный состав и новые песни, мелодичный metal самой высшей пробы.</P>
+<P>BURNING DOWN THE EAST "RUSSIAN STYLE"<BR>1 апреля - Таллинн, "Rock Cafe"</P>
+<P>2 апреля - Санкт-Петербург, "Орландина"<BR><A href="http://vkontakte.ru/event14687818">http://vkontakte.ru/event14687818</A></P>
+<P>3 апреля - Екатеринбург, "Tele-Club"<BR><A href="http://vkontakte.ru/event14544215">http://vkontakte.ru/event14544215</A></P>
+<P>4 апреля - Пермь, "Black & White"<BR><A href="http://vkontakte.ru/club14011376">http://vkontakte.ru/club14011376</A></P>
+<P>6 апреля - Челябинск, ДК "Искра"<BR><A href="http://vkontakte.ru/event14240418">http://vkontakte.ru/event14240418</A></P>
+<P>7 апреля - Курган, "Академия"</P>
+<P>8 апреля - Краснодар, "Strike Arena"<BR><A href="http://vkontakte.ru/event14735986">http://vkontakte.ru/event14735986</A></P>
+<P>9 апреля - Ростов-на-Дону, "Подземка"<BR><A href="http://vkontakte.ru/club14736543">http://vkontakte.ru/club14736543</A></P>
+<P>10 апреля - Москва, "План Б"<BR><A href="http://vkontakte.ru/event14621991">http://vkontakte.ru/event14621991</A></P>
+<P>11 апреля - Нижний Новгород, "Rocco"<BR><A href="http://vkontakte.ru/event14497587">http://vkontakte.ru/event14497587</A></P>
+<P>В качестве support’a&nbsp; <STRONG>SONIC SYNDICATE</STRONG> будут сопровождать&nbsp; энергичные эстонцы&nbsp; <STRONG>RECYCLE BIN</STRONG> <A href="http://www.myspace.com/recyclebinestonia">http://www.myspace.com/recyclebinestonia</A></P>
+<P>Ждите незабываемых мощных шоу в своем городе!!</P>
+Автор: Headcrusher
+
+### 06.03.2010 news SONIC SYNDICATE назвали альбом
+
+<P>Новый альбом <STRONG>SONIC SYNDICATE</STRONG> будет называться <STRONG>"We Rule The Night" </STRONG>и выйдет 28 мая на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в студии <STRONG>Bohus Sound</STRONG>&nbsp;в Швеции с продюсером <STRONG>Toby Wright</STRONG> (<STRONG>KORN</STRONG>, <B>SLAYER</B>, <B>M&#214;TLEY CR&#220;E</B>, <B>KISS</B>, <B>FEAR FACTORY</B>, <B>IN FLAMES</B>, <B>STONE SOUR</B>, <STRONG>OZZY OSBOURNE</STRONG>). Обложку релиза нарисовал <STRONG>Gustavo Savez</STRONG>.</P>
+<P><center><IMG height=400 src="/images/news_rus/2010.03/16357.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 12.04.2010 articles SONIC SYNDICATE в Санкт-Петербурге: &quot;Из Швеции с любовью&quot;
+
+<P><STRONG>2 апреля, Санкт-Петербург, "Орландина"</STRONG></P>
+<P>На днях в Питерском клубе «Орландина» было положено начало обширному туру Шведской команды&nbsp; SONIC SYNDICATE.&nbsp; Группа однажды уже была в России со своим последним на тот момент мощным релизом "Love And Other Disasters". Во время прошлого визита они дали единственный концерт в московском клубе «Точка».&nbsp; На этот раз география российского тура намного шире! В ближайшее время их ждут еще в семи городах нашей родины, но первыми все-таки их увидел Питер.&nbsp; И как это было! Мощно, энергично, с львиной долей юмора!</P>
+<P>Шведы прибыли к нам в обновленном составе, дело в том, что с середины 2009 года за чистый вокал отвечает Nathan J. Biggs, так как Roland Johansson заявил, что он вынужден покинуть группу "из-за персональных проблем, находящихся вне нашего контроля".&nbsp; Но эта перемена ни сколько не ослабила группу в глазах их поклонников, как это бывает обычно. Практически единогласно все говорят, что Натан ни сколько не уступает в голосе Роланду. И подтверждением этому служит отыгранный на «УРА» концерт. Новый участник завоевал «российского слушателя» не только отменным тембром голоса, но и фразами «Я люблю тебя» и «Спасибо», произнесенными без акцента!</P>
+<P>На басу в группе играет девушка Karin Axelsson, которая будоражила умы питерских поклонников еще несколько дней после концерта. Её едва заметные шортики после концерта стали предметом особого восхищения и обсуждения! А счастливчики, оказавшиеся в первом ряду с гордостью делились впечатлениями от увиденного с менее удачливыми фанатами, которым с задних рядов не удалось&nbsp; хорошенько рассмотреть скандинавскую красотку.</P>
+<P>Очень порадовал зрителя довольно удачный кавер на известную песню группы t.A.T.u «It’s all about us». Который, кстати, даже вошел в альбом 2007 года "Only Inhuman". Эту песню пел весь зал! И даже слэмеры, энергично «бодающиеся» весь концерт сделали передышку в несколько минут и подпевали SONIC SYNDICATE.</P>
+<P>Видно было, что не только поклонники ждали группу, но и музыканты были в восторге от пришедших на концерт фанатов. Общение с публикой проходило настолько не принужденно, что поняв то, что толпа не особо слушает, что говорит Ричард со сцены и просто кричит в ответ «YEEEES!!!», музыканты веселили себя фразами типа "I fucked you all", "Does anybody put a finger in your ass" и с хитрыми улыбками слышали в ответ дружное и довольное "YEEES!!!".&nbsp; А после «Denied» Ричард решил говорить хоть чуточку понятнее и выдал: "Спасибо so fucking much!". </P>
+<P>После завершающего концерт поклона, группа всего на несколько минут удалилась в гримерку, чтоб вытереть капли пота и сделать пару глотков воды. Но тут же вернулась с миссией раздать автографы всем желающим, сфотографироваться со всеми кто остался их ждать и немного пообщаться с еще не совсем пришедшими в себя после отличного концерта поклонниками.</P>
+<P>(Анна Ходакова)</P>
+Автор: Headcrusher
+
+### 18.05.2010 news Видео SONIC SYNDICATE
+
+<P><STRONG>SONIC SYNDICATE</STRONG> сняли видео на песню <STRONG>"Revolution, Baby", </STRONG>которая войдёт в новый альбом коллектива <STRONG>"We Rule The Night"</STRONG>, выходящий на <STRONG>Nuclear Blast</STRONG> 27 августа. Пластинка будет доступна как в регулярном формате, так и с бонусным DVD. Лимитированное туровое издание предыдущего альбома группы <STRONG>"Love And Other Disasters" </STRONG>доступно в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P><center><object width="425px" height="360px" ><param name="allowFullScreen" value="true"/><param name="wmode" value="transparent"/><param name="movie" value="http://mediaservices.myspace.com/services/media/embed.aspx/m=104977576,t=1,mt=video"/><embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=104977576,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></object></P>
+Автор: Vit Belov
+
+### 18.05.2010 news Новое видео SONIC SYNDICATE
+
+<P><STRONG>SONIC SYNDICATE</STRONG> сняли видео на песню <STRONG>"Revolution, Baby", </STRONG>которая войдёт в новый альбом коллектива <STRONG>"We Rule The Night"</STRONG>, выходящий на <STRONG>Nuclear Blast</STRONG> 27 августа. Пластинка будет доступна как в регулярном формате, так и с бонусным DVD. Лимитированное туровое издание предыдущего альбома группы <STRONG>"Love And Other Disasters" </STRONG>доступно в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=104977576,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=104977576,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.07.2010 news Новый клип SONIC SYNDICATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик<STRONG> SONIC SYNDICATE</STRONG> на песню <STRONG>"My Own Life" </STRONG>можно посмотреть ниже. Песня попадёт на новый альбом группы <STRONG>"We Rule The Night"</STRONG>, который выйдет в конце августа на <STRONG>Nuclear Blast</STRONG>. Режиссёром клипа выступил знаменитый клипмейкер <STRONG>Patric Ullaeus.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=105731710,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=105731710,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.10.2010 news Новое видео от SONIC SYNDICATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип<STRONG> SONIC SYNDICATE</STRONG> на песню <STRONG>"Turn It Up" </STRONG>можно посмотреть ниже. Трэк содержится на новом альбоме группы <STRONG>"We Rule The Night"</STRONG>, который недавно вышел на<STRONG> Nuclear Blast</STRONG>. </FONT></P>
+<P>
+<CENTER><IFRAME height=225 src="http://player.vimeo.com/video/15420435" frameBorder=0 width=400></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.10.2010 reviews Руки вверх, девчонки и мальчишки!
+
+<P>Шведская группа SONIC SYNDICATE чрезвычайно быстро прогрессирует в общественном мнении. За несколько лет коллектив прошагал путь от обыденной melodic death-metal команды на мизерном независимом металическом лэйбле до популярной модной и актуальной группы.</P>
+<P>Наблюдая эту картину, невозможно понять, чему обязаны SONIC SYNDICATE. Популярный отечественный журнал Dark City помещал фотографию участника группы на большой постер два раза за последние два года, а на обложке российской локализации журнала Metal Hammer этот самый участник SONIC SYNDICATE находится в самой середине коллажа, посвящённого вручению премии журнала. Забавно, что везде изображена басистка коллектива Karin Axelsson, демонстрирующая свой голый пупок. Пускай, эта часть тела знаменитой музыкантши не имеет никакого отношения к музыке самой группы, главное, пресловутый пиар. Тоже касается и творчества SONIC SYNDICATE. Стремясь в «попсовый» авангард тяжёлого метала, шведы надобавляли в свою музыку столько всего интересного, что теперь и невозможно понять, имеет ли отношение новый альбом группы к тяжёлой музыке. Мне кажется, композиции с “We Rule The Night” легко встроились бы в творчество артиста Scooter. Электронные сэмплы, лирическая вокальная линия, сопровождаемая криками «Йоу!» и «Ахей!». «Привет, девчонки!», «Будем вместе танцевать и на голове стоять», «Я крутой, я заводной!» Не беда, что у певца такой странный голос, охрип наверное. А уж когда начинает петь «чистый» певец, вообще, слёзы на глаза наворачиваются от его страданий.</P>
+<P>SONIC SYNDICATE выпустили замечательный альбом. Понять, кому он нужен я своим скудным умом не могу, но чувствую, он замечательный и фееричный. Эта группа действительно «правит ночью», но нас на этой вечеринке не будет. </P>
+Автор: Vit Belov
+
+### 06.08.2016 news SONIC SYNDICATE выпустят новый альбом 14 октября
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом шведо-английской группы <strong>SONIC SYNDICATE "Confessions"</strong> выйдет 14 октября на <strong>Despotz</strong>. Обложку альбома можно посмотреть ниже. Подробности последуют.</font></p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29746.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 06.08.2016 news SONIC SYNDICATE will release new album in October
+
+<p>The new album from Swedish-English band <strong>SONIC SYNDICATE "Confessions"</strong> will be released on 14 November on<strong> Despotz</strong>. The album cover can be viewed below. The details will follow.</p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29746.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 05.09.2016 news Новая музыка SONIC SYNDICATE
+
+<p>Новый сингл<strong> SONIC SYNDCATE "Start A War"</strong> доступен в лирик-видео ниже. Трек попадёт на новый альбом "<strong>Confessions</strong>", который выходит на <strong>Despotz</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/XWlYNcnTzjc" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 05.09.2016 news SONIC SYNDICATE released lyric video
+
+<p>New single of <strong>SONIC SYNDCATE "Start A War"</strong> is available as a lyric video below. The track will be on the new album "<strong>Confessions</strong>" which will be out on<strong> Despotz</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/XWlYNcnTzjc" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 22.10.2016 news Новый ролик SONIC SYNDICATE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое видео шведов <strong>SONIC SYNDICATE "Confessions"</strong> можно посмотреть ниже. Трек вышел на одноимённом альбоме 14 октября.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/poaMejBrPhY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.10.2016 news SONIC SYNDICATE released video
+
+<p>New video of the Swedes<strong> SONIC SYNDICATE "Confessions"</strong> can be seen below. The track was released on the eponymous album on October 14.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/poaMejBrPhY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

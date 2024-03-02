@@ -45,6 +45,9 @@ Shouting: Berlin and London Rioters
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### ATARI TEENAGE RIOT в Москве (23 ноября 2011)

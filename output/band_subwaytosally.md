@@ -186,6 +186,76 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.04.2004 news SUBWAY TO SALLY подписали контракт с Nuclear Blast
+
+<B>SUBWAY TO SALLY</B> подписали контракт с <B>NUCLEAR BLAST</B>. Президент компании <B>Markus Steiger</B> назвал это событие "своей сбывшейся мечтой".
+Автор: Vit Belov
+
+### 02.03.2005 news Новый альбом SUBWAY TO SALLY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SUBWAY TO SALLY "Nord nord Ost"</STRONG> выходит 22 августа на <STRONG>Nuclear Blast</STRONG>. 25 июля выйдет первый сингл "<STRONG>Eisblumen</STRONG>". Из других новостей: в группе новый барабанщик - <STRONG>Christian "Chrishchrash“ Gerlach</STRONG> (ex-<STRONG>KNORKATOR</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 26.05.2005 news SUBWAY TO SALLY изменили сингл
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.05/8534.jpg" width=200 align=left border=5>Первым синглом с нового альбома <STRONG>SUBWAY TO SALLY</STRONG> станет '<STRONG>Sieben</STRONG>', а не '<STRONG>Eisblumen</STRONG>', как сообщалось ранее. Трэк-лист:</P>
+<P>1. <STRONG>Sieben<BR></STRONG>2. <STRONG>Kaltes Herz</STRONG> (exclusive non-album track)<BR>3. <STRONG>Jericho</STRONG> (exclusive non-album track)<BR>4. <STRONG>Sieben</STRONG> (Instrumental) (exclusive non-album track)<BR>5. Video bonus: Behind the scenes<BR>Между тем "<STRONG>Eisblumen</STRONG>" выйдет 10 октября, а новый альбом "<STRONG>Nord Aus Nord</STRONG>" - 29&nbsp;августа.&nbsp;</P>
+Автор: Vit Belov
+
+### 14.11.2005 reviews И снова фолк-метал
+
+<P>Думаю, эта замечательная группа из Германии в представлении не нуждается - наряду со своими соотечественниками IN EXTREMO, SALTATIO MORTIS, MORGENSTERN и SCHANDMAUL, машинисты из SUBWAY TO SALLY (название коллектива переводится как "Метро к Салли" или что-то типа того) исполняют отменный немецкоязычный folk metal. Собравшись в далеком 1992-м, команда выпустила свой первый релиз лишь два года спустя - альбом назывался просто и незамысловато - "1994". С тех пор - сотни концертов по всему миру, тысячи поклонников во всех странах, куча синглов, восемь номерных альбомов, один концертник и один двойной DVD. По-моему, это заслуживает уважения.</P>
+<P>Новый альбом получился меланхоличным, проникновенным, пробирающим до глубины души, и - почему-то грустным. Основная заслуга во всем этом прекрасном упадничестве принадлежит вокалисту Эрику Фишу (Eric Fish) - это именно его голос создает особенное настроение, настроение счастья обреченных. Звучит, соглашусь, мрачновато, но в процессе прослушивания диска меня не оставляло ощущение совершенно беспочвенной тоски пополам с такой же надеждой - надеждой ни на что. </P>
+<P>Много акустики, флейты, виолончели, мандолины, волынки - вот далеко не полный перечень инструментов, задействованных на "Nord Nord Ost". Красивые, величественные мелодии, очень, очень много эмоций, тяжелые ритмичные гитары, немного электроники, немного кельтики, хоры, атмосферность, обилие средневековых фольклорных партий - впечатляет, не правда ли? Но все это просто слова... а слов - их здесь будет мало. Возможно, это жуткая банальность, и следующую часть предложения не говорил только слепоглухонемой или вообще мертвый, но все-таки - с каждым новым прослушиванием открываешь для себя какие-то новые особенности, мелочи, подробности, на которые сначала не обратил внимания. Эдакий ларчик с секретами... </P>
+<P>Песни понравились все - все до единой, поэтому если что-то попробовать выделить как лучшее, то ничего не получится - придется выделять весь материал целиком. Удивительно целостный альбом.</P>
+<P>Диск предоставлен Irond</P>
+Автор: Dr. Grandma
+
+### 20.07.2006 news SUBWAY TO SALLY выпускают DVD&#x2F;CD
+
+<P>В апреле немцы <STRONG>SUBWAY TO SALLY </STRONG>проехались&nbsp;с туром по Германии. Группа выступала в маленьких клубах и церквях с акустической программой. Материал был снят и записан, и вот вноябре на <STRONG>Nuclear Blast</STRONG> выходит CD/DVD.</P>
+<P>Также группа занята написанием новых песен для альбома, который выйдет весной следующего года.</P>
+Автор: Vit Belov
+
+### 28.07.2007 news Новый альбом SUBWAY TO SALLY
+
+<P><STRONG><IMG height=225 alt="" hspace=0 src="/images/news_rus/2007.07/11742.jpg" width=225 align=right border=5>SUBWAY TO SALLY</STRONG> выпускают свой новый альбом "<STRONG>Bastard</STRONG>" 26 октября на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>Meine Seele Brennt</B><BR>02. <B>Puppenspieler</B><BR>03. <B>Auf Kiel</B><BR>04. <B>Umbra</B><BR>05. <B>Voodoo</B><BR>06. <B>Wehe Stunde</B><BR>07. <B>Die Trommel</B><BR>08. <B>Unentdecktes Land</B><BR>09. <B>Hohelied</B><BR>10. <B>Canticum Satanae</B><BR>11. <B>Tanz auf dem Vulkan</B><BR>12. <B>Fatum</B><BR>13. <B>In der Stille</B></P>
+Автор: Vit Belov
+
+### 12.01.2009 news Обложка SUBWAY TO SALLY
+
+<P><STRONG>SUBWAY TO SALLY</STRONG> опубликовали обложку своего нового альбома "<STRONG>Kreuzfeuer</STRONG>", который выходит в апреле на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.01/13352.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.02.2009 news Новое видео SUBWAY TO SALLY
+
+<P><STRONG>SUBWAY TO SALLY</STRONG> разместили в сети своё новое видео на песню <STRONG>"Besser, Du Rennst" </STRONG>с выходящего альбома <STRONG>"Kreuzfeuer".</STRONG></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=52089065">Besser, Du rennst</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=52089065,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=52089065,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.04.2009 news SUBWAY TO SALLY попали в пятёрку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SUBWAY TO SALLY</STRONG> <STRONG>"Kreuzfeuer" </STRONG>попал на пятое место в чартах Германии.</FONT></P>
+Автор: Vit Belov
+
+### 11.06.2009 reviews Монстры из Германии
+
+<P>Немцы SUBWAY TO SALLY очень популярны у себя на Родине. Их уже десятый студийный альбом “Kreuzfeuer” вновь вошёл в Германии в чарты.</P>
+<P>Начав своё существование, как folk-rock группа, SUBWAY TO SALLY быстро переориентировались на folk-metal. На последних двух альбомах коллектив всё меньше и меньше обращается к своим folk корням, ориентируясь в первую очередь на красивые мелодии и тяжёлый industrial-sound. Это совсем не RAMMSTEIN, музыка группы более серьёзна и мелодична, но звучание пластинок и вправду напоминает позднее творчество ещё одних знаменитых немцев. SUBWAY TO SALLY – великолепные музыканты, профессионалы своего дела, и их работы настолько качественны и четки, что придраться практически не к чему. Остаётся обратиться к субъективным понятиям, таким как вкус на мелодии. В этом смысле мне больше всего понравился первый альбом группы для Nuclear Blast “Nord Aus Nord”. Более свежие альбомы также слушаются приятно, но для меня они лишены того шарма.</P>
+<P>Группа, ознакомиться с которой нужно каждому. Вряд ли SUBWAY TO SALLY ждёт в России бешеный успех, провал их концерта несколько лет назад это доказал, но качественная музыка просто должна найти своего покупателя.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

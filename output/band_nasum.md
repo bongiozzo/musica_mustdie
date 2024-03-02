@@ -169,6 +169,47 @@ Grindcore from Sweden a-la early Napalm Death
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.03.2001 news Новости Ненавистного Проекта...
+
+<p>Сидящие в студии шведы THE PROJECT HATE MCMXCIX (имеющие в своем составе басиста ENTOMBED Jorgen Sandstrom) весьма довольны получившимся вторым альбомом "When We Are Done...Your Flesh Will Be Ours". Выходящий в июне релиз будет содержать буклет работы Leif Ericsson. Запись проходила в Soundlab Studios в &Ouml;rebro (Швеция) под руководством мэтра Talarzcyk (NASUM). На диск вошли следующие песни: 01. Can’t Wait 02. Believing is bleeding 03. Blessed Are We To Be Lied Upon 04. Disciples Of The Apocalypse 05. Hellucination 06. Dividead 07. I Smell Like Jesus...Dead 08. Hate Incarnate 09. Forsaken By The Naked Light Of Day 10. In Sickness And In Hell</p>
+
+Автор: Yermola
+
+### 28.03.2001 news When We Are Done...Your Flesh Will Be Ours....
+
+<p>Freshly out of the studio, Sweden’s THE PROJECT HATE MCMXCIX (featuring ENTOMBED bassist Jorgen Sandstrom) are “incredibly satisfied” with their just-completed second album, When We Are Done...Your Flesh Will Be Ours, which “[lived up to] all of our expectations and more so”. Tentatively due for release in May/June, the album will reportedly feature a booklet designed by graphic artist Leif Ericsson that is so gruesome and beautiful, “it [perfectly] completes this new masterpiece”. Ten tracks and nearly 60 minutes of music will appear on the CD, featuring a style that the group describe as “the same [one] we previously dominated the world with” on last year’s debut Cybersonic Superchrist. Recorded at the Soundlab Studios in Цrebro, Sweden with producer Mr. Talarzcyk (i.e. NASUM), the CD is said to feature a sound that is “as fat as it can get”. The full track listing for When We Are Done...Your Flesh Will Be Ours is as follows: 01. Can’t Wait 02. Believing is bleeding 03. Blessed Are We To Be Lied Upon 04. Disciples Of The Apocalypse 05. Hellucination 06. Dividead 07. I Smell Like Jesus...Dead 08. Hate Incarnate 09. Forsaken By The Naked Light Of Day 10. In Sickness And In Hell</p>
+
+Автор: Yermola
+
+### 14.02.2005 reviews Несгибаемые шведы
+
+<P>Ура! Новейший альбом одной из моих самых любимых групп пролицензирован для России. Теперь каждый желающий может прикоснуться к прекрасному. Спасибо,Irond!</P>
+<P>За плечами у шведов из NASUM множество релизов, удачных и не очень, статус одной из лучших грайндкор-групп планеты и трагическая потеря фронтмена в прошлом году. Дело в том, что Mieszko A.Talarczyk, голос коллектива, пропал без вести в Таиланде, где он отдыхал со своей подругой. И,вероятно,это последняя его работа.</P>
+<P>Любите ли вы грайндкор так,как люблю его я? Если нет, то дальше можно не читать. Собственно музыкальный материал на "Shift" ничем не отличается от предпоследнего альбома шведов. И от пред-предпоследнего. И от... Короче говоря, здесь всё ещё можно услышать примитивный, тупой и абсолютно без тени оригинальности прямой, как палка, грайндкор с истеричным вокалом. И именно за это NASUM мной любим.</P>
+<P>Было трудно определиться с оценкой, поэтому я выбрал золотую середину. Для меня,как поклонника творчества шведских беспредельщиков, этот альбом подобен глотку чистой воды и я бы поставил 10\10, но простой обыватель не поймёт "души прекрасные порывы".</P>
+<P>Диск предоставле <A href="http://www.irond.ru/">IROND</A></P>
+Автор: Graver
+
+### 18.02.2005 news Умер фронтмен NASUM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По данным официального сайта шведской группы <STRONG>NASUM</STRONG>, гитарист-вокалист этой группы <B>Mieszko Talarczyk</B>&nbsp;стал жертвой&nbsp;цунами от 26 декабря 2004 года.&nbsp; Его тело было недавно идентифицировано и отправлено в Швецию.&nbsp;Покойся с миром...</FONT></P>
+Автор: Dimas
+
+### 27.12.2005 news Ровно год...
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.12/9875.jpg" width=150 align=left border=5>Вчера 26 декабря в годовщину цунами металлисты всего мира поминули лидера <STRONG>NASUM Mieszko Talarczyk</STRONG>. Вот, что пишет барабанщик группы <STRONG>Anders Jackobson</STRONG> на сайте группы:</P>
+<P>"<EM>Сегодня (26 декабря) я сходил на могилу <STRONG>Mieszko</STRONG> и поставил там свечку, передал ему первые 200 сообщений от наших фэнов и отдал копию нашего "<STRONG>Grind Finale</STRONG>". Я показал ему копию и сказал: "Это наш последний альбом". Я даже поплакал немного. Хочу передать благодарность всем фэнам, которые прислали свои сообщения и соболезнования</EM>".</P>
+Автор: Vit Belov
+
+### 11.01.2008 news NASUM выпустят концертник
+
+<P><IMG height=352 alt="" hspace=0 src="/images/news_rus/2008.01/12129.jpg" width=391 align=right border=5>Бывший барабанщик <STRONG>NASUM</STRONG> <STRONG>Anders Jakobson</STRONG>&nbsp;сообщил о выпуске последнего альбома группы, концертника <STRONG>'Doombringer'. </STRONG>Коллектив распался после смерти лидера группы <STRONG>Mieszko Talarczyk</STRONG> во время цунами 2004 года в Юговосточной Азии. Трэк-лист:</P>
+<P>01. <B>Corrosion</B><BR>02. <B>Doombringer</B><BR>03. <B>Just Another Hog</B><BR>04. <B>Inhale/Exhale</B><BR>05. <B>Scoop</B><BR>06. <B>Bullshit</B><BR>07. <B>Relics</B><BR>08. <B>L&#246;pandebandsprincipen</B><BR>09. <B>I Hate People</B><BR>10. <B>Masshypnosis</B><BR>11. <B>A Welcome Breeze Of Stinking Air</B><BR>12. <B>Fatal Search</B><BR>13. <B>This is...</B><BR>14. <B>The Masked Face</B><BR>15. <B>The Idiot Parade</B><BR>16. <B>Den Svarta Fanan</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### мясники студёной скандинавии

@@ -19,6 +19,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.02.2012 news Новый альбом SADISTIK FOREST
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.02/22953.jpg" width=400 align=right border=0>21 марта на <STRONG>Violent Journey</STRONG> выйдет новый альбом <STRONG>SADISTIK FOREST "Death, Doom Radiation"</STRONG>. Обложку для пластинки нарисовал <STRONG>Juha Vuorma (AUTOPSY, EDGE OF SANITY)</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Radiation Cloud<BR></STRONG>2. <STRONG>Fabrics of Lies<BR></STRONG>3. <STRONG>Code For Liberation</STRONG><BR>4. <STRONG>Down Pours The Rain Of Blood<BR></STRONG>5. <STRONG>Pit Of Debris<BR></STRONG>6. <STRONG>Entrapment</STRONG><BR>7. <STRONG>It's Raining Napalm<BR></STRONG>8. <STRONG>Lacking Capacity<BR></STRONG>9. <STRONG>Violent Confrontation</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -362,6 +362,216 @@ Arron Walton - Drums
 
 * C группой "Clan Destined, The" Martin Walkyier
 
+## Публикации
+
+### 19.02.1999 news 
+
+<p>Lacuna Coil поедут в тур вместе с Skyclad. Это будут их первые выступления в новом составе. А 22 февраля выйдет их новый альбом "A Reverie".</p>
+
+Автор: Vit Belov
+
+### 28.02.1999 reviews 
+
+<p>Вы уже слышали эту группу раньше? Если да, то вам и рассказывать ничего не надо. Лично мне, этот альбом показался очень похожим на творение группы 1996 года "Irrational Anthems". Повторюсь, очень сложно рассказывать что-нибудь тому, кто слышал Skyclad ранее, скажу лишь, что альбом очень ровный и на нём есть пару отличных песен с запоминающимся припевом и мелодией. Особенно обращает на себя внимание, потенциальный хит "Bury Me". Остальные песни выполнены в обычном для группы ракурсе. Теперь попробую обратиться к тем, кто слышат об этой группе впервые. Skyclad играют достаточно быстрый металл с участием скрипки и других фольклорных инструментов. Именно фольклорных, потому что всё, что группа играет испытывает очень большое влияние народной музыки. Я, в общем-то, не знаток фольклорных мелодий разных стран, но в музыке группы есть что-то от ирлландского народного творчества, а иногда всё это сильно напоминает утяжелённое кантри. Например, журнал RockHard обозвал музыку Skyclad metal-folk-crossover и это довольно точно. В конце хочу посоветовать послушать эту команду всем, чтобы узнать о чём-то новом в современной тяжёлой музыке (хотя называть новой группу, выпускающую свой девятый альбом, смешно), а тем кто уже слушал, делать выводы самостоятельно. Виват, оригинальность!</p>
+
+Автор: Dimas
+
+### 26.03.2000 news 
+
+<p>Новый альбом Skyclad выйдет в этом году под названием "Rhymes Against Humanity".</p>
+
+Автор: Vit Belov
+
+### 15.06.2000 news Новый альбом Skyclad
+
+<p>Новая работа Skyclad под названием Folkemon выйдет 24 октября. Концепция альбома была навеяна популярным мультфтильмом.</p>
+
+Автор: Vit Belov
+
+### 15.06.2000 news Skyclad&#39;s new album
+
+<p>heavymetal.guide: Skyclad's new album, Folkemon, will be out on October 24th. The name of the album was inspired by the popular cartoon. According to lyrical genious Martin Walkyier, "We need a character to blast these off the face of the earth once and for all, and Folkemon will be the one!"...</p>
+
+Автор: Vit Belov
+
+### 28.09.2000 reviews Фолькемон - персонаж мультфильма, который я , к сожалению, не смотрел
+
+<p>Фолькемон - персонаж мультфильма, который я , к сожалению, не смотрел. Может кто расскажет? Британцы всех удивили, выпустив неожиданно тяжелый, по-настоящему хэви-металлический альбом. Более в духе ранних альбомов, особенно "Prince Of The Poverty Line", но с более гитарным саундом. Веселый, заводной, энергичный альбом. Не обошлось и без фирменных скрипок. Иногда даже power-speed риффы проскакивают. Альбом сражает наповал своей мощью и хитовостью раз и навсегда. Слушается все это с огромным интересом и удовольствием. Рассказывать об альбоме - пустая трата времени. А время - деньги. Эти деньги лучше потратить на новейший альбом Skyclad. Отличное приобретение. Кстати, снова мы можем слушать новинку раньше всего остального мира. Такие вот дела...</p>
+
+Автор: Dimas
+
+### 10.12.2000 reviews Фолк, трэш и стихи
+
+<P>Вообще-то Skyclad - это не только ценный фолк со скрипочкой. Это еще и центнер хэви сверху, а в придачу - особое лакомство для гурманов: этот самый валькирий. Который Мартин Валкайер (Martin Walkyer). Что за лакомство? А вот полюбуйтесь на это:</P>
+
+<P>The atheist plays whilst the orthodox pray.</P>
+<P>Fundamentalists freak-out as humanists scoff.</P>
+<P>A headlong collision 'twixt science and religion;</P>
+<P>There'll be Hell to pay when one day God logs-off.</P>
+
+<P>Каково, а? Для фолковости есть у Skyclad-а две вещи: одна - художник, просто Билибин аглицкий, да другая - народный строй в мелодиях да особливо скрипочке. А вот кроме того есть еще изрядная доля злости на этот вот самый мерзкий мир. И это сказывается очень сильно. Гитарный настрой напоминает Blind Guardian - такой же плотный, но не размытый, и так же давящий басами, быстрый, яростный. Но главное - вокал. Не низкий, но мощный и хриплый, а к нему еще хоровые распевки, на которые, бьюсь об заклад, Мартин лично специально отбирает в Лондонских портах докеров позлобнее. Так кричать хорошо на митинге. Но еще лучше на альбоме Skyclad. Это вам не опера; тут о жизни поют, между прочим. Мощная гитарная\ритм-атака, чуть нестройный хор, ведомый отчаянным Мартином, стихи, чья гневная поэтичность бьет в цель, как Робин Гуд и все его Маленькие Джоны, но с эффектом Хиросимы-45, а вдобавок вторая гитара и скрипка, постоянно напоминающие о том, что есть в людях и нечто человеческое, - все это пожалуй, и вправду звучит, как фолк-музыка. Музыка о жизни фолка, народа то бишь. Где бывает и загаженная по самое не могу повседневность, и что-то хорошее, и может даже, вечное, и, кстати, прошлое этого самого народа тоже. Причем, если судить по Skyclad-овой музыке, какой народ имеется в виду - не так уж и важно.</P>
+<P>Но-о... Не все так радужно. Надо признаться, что отличие одной песни от другой запоминаешь не сразу. Запомнишь - не нарадуешься. Но до того, скажу честно, Skyclad звучит так... э-э... ровно, что отличить первую песню от пятой или седьмой вам, может, сразу и не удастся. С этим недугом Skyclad борются с переменным успехом; в этот раз успех невелик. Они все равно хороши, поверьте; просто надо въехать в то, что Валкайер и компания прячут под своей злобностью.</P>
+Автор: Alexey Hurin
+
+### 17.04.2001 news ОТСТАВКА ВЕРХОВНОГО ДРУИДА
+
+<p>П материалам Total Metal и оффициального сайта Skyclad: "Просьба не падать: верховный друид фолк-метала Мартин Уокиер или, как у нас повелось, Валькиер (Walkyer), оставил Skyclad по причине материального положения. Это не розыгрыш, а факт, объявленный на сайте группы. Планы вынашивались давно. Сама новость об отставке придерживалась до момента, когда стороны выполнят текущие обязательства, хотя, как сказано в заявлении, "В лагере Skyclad мы все чувствовали, сколь несвоевременно делать подобные заявлнения, когда мы только выпустили по-настоящему блестящий альбом Folke'mon (впрочем, в подобных завлениях вообще нет ничего хорошего.). Мартин займется новым проектом: Return to the Sabbat без участия экс-гитариста, а ныне - модного продюсера Энди Снипа. Обязанности певца и поэта Skyclad возьмет на себя гитарист, а ранее - продюсер группы Кевин Ридли (Kevin Ridley)." Удивляет особенно то, что Skyclad при этом не развалился.</p>
+
+Автор: Hostile Breed
+
+### 18.09.2001 news Тот же Skyclad, но другой...
+
+<p>19 октября Skyclad начинают Same But Different Tour по Германии и Швейцарии, в ходе которого будет представлен публике новый вокалист Kevin Ridley, работавший все эти годы звукорежиссёром и продюсером группы. Тремя днями позже Demolition Marketing выбросят на рынок сингл "Swords Of Thousand Men", состоящий из двух песен: заглавной и "The Widdershins Jig". Выход нового альбома "No Daylights... Nor Heeltaps" запланирован на ноябрь. Ждём-с...</p>
+
+Автор: Odiumaniac
+
+### 18.09.2001 news SKYCLAD begin their The Same But Different tour ...
+
+<p>SKYCLAD, featuring new vocalist Kevin Ridley (who replaced Martin Walkyier earlier in the year), will release a new single, entitled "Swords Of A Thousand Men", through Demolition Records on October 22nd. "Swords…", which was originally recorded by TENPOLE TUDOR in 1981, was released as a bonus track on SKYCLAD’s last studio album Folkemon (with Martin on vocals), and it includes a guest appearance by TENPOLE TUDOR mainman Eddie Tenpole. Also featured on the single is a reworked version of "The Widdershins Jig", a SKYCLAD standard that showcases the band’s progression over the last few years. Both tracks are taken from the band's new album No Daylights... Nor Heeltaps, due for release in November, which is a collection of reworked SKYCLAD favorites inspired by their successful stints of "unplugged" shows across Europe. SKYCLAD begin their The Same But Different tour with the following dates in October: <br> Oct. 06 - Schloss Glauchau, GER @ Orkus Herbsnachte Fest. <br> Oct. 19 - Hamburg, GER @ Headbangers Ballroom <br> Oct. 20 - Bad Salzungen, GER @ Kalle Werk <br> Oct. 21 – Essen, GER @ Musikpalette <br> Oct. 23 - Nurnberg, GER @ Hirsch <br> Oct. 24 - Stuttgart, GER @ Limelight <br> Oct. 25 - Karlsruhe, GER @ Substage <br> Oct. 26 - Offenbach, GER @ Hafenbahn <br> Oct. 27 - Pratteln, SWI @ Z7 <br> In other news, SKYCLAD have released their first official live CD this month. Recorded at the Dynamo Festival in Holland in 1995, the album features the following track listing: <br> 01. Intro <br> 02. Another Fine Mess <br> 03. Cardboard City <br> 04. Art-Nazi <br> 05. The Wickedest Man In The World <br> 06. The One Piece Puzzle <br> 07. Still Spinning Shrapnel <br> 08. Just What Nobody Wanted <br> 09. Sins Of Emission (bonus) <br> 10. Land Of The Rising Slum (bonus) <br> 11. Alone In Deaths Shadow (bonus) <br> 12. Spinning Jenny (bonus) <br> The above bonus cuts were taken from the ultra-rare Outrageous Fortunes EP. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 14.11.2001 news SKYCLAD, featuring new vocalist Kevin Ridley (who replaced Martin Walkyier earlier in the year), will now release their new single...
+
+<p>SKYCLAD, featuring new vocalist Kevin Ridley (who replaced Martin Walkyier earlier in the year), will now release their new single, entitled “Swords Of A Thousand Men”, through Demolition Records on December 4th. Original due to be issued in late October, the single’s release was delayed “due to the logistics of trying to co-ordinate all of the arrangements” involved in the release. As previously reported, "Swords…", which was originally recorded by TENPOLE TUDOR in 1981, was released as a bonus track on SKYCLAD’s last studio album Folkemon (with Martin Walkyier on vocals), and it includes a guest appearance by TENPOLE TUDOR mainman Eddie Tenpole. Also featured on the single is a reworked version of "The Widdershins Jig", a SKYCLAD standard that showcases the band’s progression over the last few years. Both tracks are taken from the band's new album No Daylights... Nor Heeltaps, due for release later this month, which is a collection of reworked SKYCLAD favorites inspired by their successful stints of "unplugged" shows across Europe.</p>
+
+Автор: Yermola
+
+### 14.11.2001 news SKYCLAD выпускают сингл...
+
+<p>4-го декабря выходит новый сингл "SKYCLAD" - “Swords Of A Thousand Men”. Заглавная вещь была записана в оригинале в 1981 году "TENPOLE TUDOR" и была представлена в качестве бонус-трека на последнем студийном альбоме "Folkemon (еще с Martin Walkyier на вокале), на сингле вокал исполнен мэйнмэном TENPOLE TUDOR - Eddie Tenpole. Также на диске будет переработанная версия "The Widdershins Jig". Обе песни взяты с выходящего позднее в Ноябре нового альбома "No Daylights... Nor Heeltaps", который представляет собой коллекцию любимых вещей исполнявшихся группой во время европейских "unplugged" концертов...</p>
+
+Автор: Yermola
+
+### 16.03.2002 news Будущий SKYCLAD
+
+<p>Совсем скоро, 11 мая 2002 года выйдет новый альбом группы SKYCLAD под названием "No Daylights... Nor Heeltaps" с новым вокалистом Kevin Ridley (который заменил ушедшего в прошлом году Martin Walkyier'a). Альбом выйдет в расширенном виде с бонус-трэками. В основной диск войдут следующие вещи:</p>
+<P> Penny Dreadful (<A HREF="http://www.skycladforum.de/downloads/mp3s/Skyclad%20-%20No%20Daylights...Nor%20Heeltaps%20-%20Penny%20Dreadful.mp3">скачать здесь</A>) <BR> Inequality Street (<A HREF="http://www.skycladforum.de/downloads/mp3s/Skyclad%20-%20No%20Daylights...Nor%20Heeltaps%20-%20Inequality%20Street.mp3">скачать здесь</A>)<BR> Spinning Jenny<BR> Cry Of The Land (<A HREF="http://www.skycladforum.de/downloads/mp3s/Skyclad%20-%20No%20Daylights...Nor%20Heeltaps%20-%20Cry%20Of%20The%20Land.mp3">скачать здесь</A>) <BR> Another Fine Mess<BR> Sins Of Emmission (<A HREF="http://www.skycladforum.de/downloads/mp3s/Skyclad%20-%20No%20Daylights...Nor%20Heeltaps%20-%20Sins%20Of%20Emmission.mp3">скачать здесь</A>) <BR> The Widdershins Jig <BR> History Lessens <BR> Land Of The Rising Slum <BR> Single Phial</>
+<P> Бонус-трэки:<BR> No Deposit..No Return <BR> Great Blow For A Day Job <BR> No Strings Attached <BR> Loco-Commotion ( этот трэк был в японской версии альбома "Folkemon") <BR> Building A Ruin</>
+
+Автор: Dimas
+
+### 06.05.2002 reviews Песни записанные при ночном свете
+
+<p>Новый альбом фолкменов после ухода их вокалиста Martin Walkyier'a. Теперь его место занял продюсер группы Kevin Ridley, являющийся еще и гитаристом группы с недавних пор. Пока видно, у группы нет особенно новых идей, поэтому она решила записать свой старый классический материал, написанный еще в 1997 году и исполнявшийся в акустическом варианте во время турне группы 1998-1999 годов. Материал имел огромный успех. Мы слышим все тот же SKYCLAD, в несколько ином виде, но легко узнаваемом. Все песни записаны в фолковом ключе с упором на электро-акустическую инструментальную часть с постоянными скрипками. Звук превосходный, новый вокалист не портит общее дело, принося некоторую новизну в уже хорошо знакомые старые песни. Альбом сразу нравится уже после первого же прослушивания. А вот при последующих, начинаешь копаться глубже и на свет вылезает какая-то бездушность альбома в целом. Чувствуется только отлаженный цельный механизм на автомате воспроизводящий все эти песни. Не сомневаюсь. что это будет альбом-раскольник. Многих он отпугнет, многих привлечет к творчеству группы. Одно ясно, все равно этому произведению, содержащему классику группы, до самой этой классики еще далековато. Видимо, цель этого диска - показать, что группа обрела второе дыхание и способна дальше продолжать радовать нас новыми записями, которые, вероятно, будут способны составить конкуренцию любой предыдущей записи группы. Так ли это - покажет время.</p>
+
+Автор: Dimas
+
+### 18.05.2002 reviews Songs, writing without daylights
+
+<p>New album from folkmen after a leaving of singer Martin Walkyier. Now his place has occupied by producer of band Kevin Ridley, being also guitarist of band recently. While it is visible, the group does not have especially new ideas, therefore Skyclad has decided to write down the old classical material written still in 1997 and executing in acoustic variant during tour of group in 1998-1999. The material had huge success. We hear all same SKYCLAD, in a little bit other kind, but it is easy recognized. All songs are written down in folk key with a stress on an electro-acoustic instrumental part with constant violins. The sound is excellent, new singer does not spoil general business, bringing some novelty in already well familiar old songs. The album at once is pleasant already after the first listening. And at subsequent, begin to dig more deeply and any heartlessly of an album gets out on light as a whole. The organized integral mechanism on the automatic device reproducing all these songs is felt only. I do not doubt. That it will be an album - splitter. Many it will frighten off, many will involve) in creativity of group. One is clear, all the same to this product containing classics of group, up to most this classics still far. Probably, purpose of this disk - to show, that the group has found the second breath and is capable further to continue to please us with new records, which, probably, will be capable to make a competition of any previous record of group. Is it so - time will show.</p>
+
+Автор: Dimas
+
+### 29.08.2002 news SKYCLAD Hard At Work On New Material ...
+
+<p>SKYCLAD are continuing to write material for their forthcoming CD, tentatively scheduled for a March 2003 release. Among the song titles set to appear on the as-yet-untitled album are the following: <BR><BR> 01. Parliament Of Fools<BR> 02. Anotherdrinkingsong<BR> 03. A Good Day To Bury Bad News<BR> 04. The Roman Wall Blues<BR> 05. Survival Campaign<BR><BR> According to the web site of Demolition Records, SKYCLAD have completed work on over 18 rough song ideas with 12-14 tracks set to appear on the finished CD.<BR><BR> As previously announced, the band will be appearing at the Velo-Rock Festival in Ostend, Belgium on September 7th.</p>
+
+Автор: Yermola
+
+### 30.08.2002 news SKYCLAD готовят материал...
+
+<p>SKYCLAD продолжают сочинять материал для нового альбома, выход которого должен состояться в марте 2003. Среди 18 готовых песен известны названия пяти: <BR><BR> 01. Parliament Of Fools<BR> 02. Anotherdrinkingsong<BR> 03. A Good Day To Bury Bad News<BR> 04. The Roman Wall Blues<BR> 05. Survival Campaign<BR><BR> 7-го сентября группа выступит на фестивале Velo-Rock в Бельгии.</p>
+
+Автор: Yermola
+
+### 26.10.2002 articles Skyclad и мастдайцы.
+
+<p>В конце лета в продаже появился «новый альбом» Skyclad “No Daylights Nor Heeltaps” (Demolition Records/Irond) на нём группа впервые предстала в отсутствии своего многолетнего лидера Martin Walkyier. Группа, не мудрствуя лукаво, переиграла вещи, впервые записанные в золотой период Skyclad. Я связался с группой… На первые вопросы ответил гитарист Стив. Мне показалось, что фэнам есть, что спросить у них, и следующие вопросы задавали уже наши «акулы» из форума, которые признаться не жалели музыкантов. На эти вопросы ответил Kevin Ridley, который и заменил Мартина. <br> Q: Первый вопрос о новом альбоме. Вы перезаписали старые песни. Думаете, такая пластинка будет популярна? <br> Данный альбом был запланирован довольно давно, после того, как мы отыграли несколько туров по Ирландским пабам в Европе. Так как мы выступали с акустическими гитарами, нам пришлось переписать несколько вещей, чтобы сделать их подходящими. Фэнам понравились эти версии, и они предложили записать их. Кроме того, у нас есть только хорошие отзывы на новый альбом. <br> Q: Вы теперь не на Nuclear Blast. Расскажите о новом лэйбле Demolition. <br> У нас нет как такового контракта, это скорее партнёрство. Мы взяли все дела в свои руки и ведём свой бизнес. Пока это даёт очень хорошие результаты. <br> Q: Ваши планы. Когда мы можем ждать настоящей новой пластинки. Тур? <br> Мы вошли в студию в июле. Новый альбом выйдет до конца года, а затем уже будет тур. <br> Q: В начале 90-х Вы были единственной командой в folk-metal. Сейчас же гораздо больше подобных команд. Что это? Второе дыхание или что-то ещё? <br> Отлично, что мы оказываем влияние, и я не вижу причин, чтобы folk-metal не развивался дальше. <br> Q: Что Вы знаете о России? Может какие-нибудь металл или фолк банды. <br> Я не знаю много групп из России. Зато, я слышал много традиционной фолк-музыки из Вашей страны. <br> Ну а дальше, вступают в дело наши знатоки творчества Skyclad из форума. <br> RUSLAN: Это серьёзно? Вы продолжите выпускать CD под именем группы, которое ассоциируется исключительно с Walkyier? <br> Короткий ответ – да, группа очень серьёзна и продолжает работать, как Skyclad. Хотя Мартин и был важным членом группы, нужно больше одного человека, чтобы создать группу, и оригинальные члены (Стив и Грэм) намерены продолжить с группой, которую они основали. Это не была группа Мартина. <br> UNDEAD: Есть ли у музыкантов Skyclad какие-нибудь соло-проекты? Или всё это в будщем? <br> На данный момент никто в Skyclad не выпустил соло-материала, но мы не зарекаемся от этого в будущем. Мы все творческие люди и довольно плодовитые сочинители… Моя предыдущая группа называлась Forgodsake и выпустила два альбома (Blasthead и Gunk) для любителей другой музыки. Это не металл, а скорее ‘indy’ rock. Также Стив и Грэм сделали альбом Pariah ‘Unity’, он доступен с нашего сайта. <br> UNDEAD: Поменяете ли Вы стиль после ухода Мартина? <br> Пока не закончена новая запись невозможно сказать насколько она отличается от предыдущих. Однако, я думаю, изменения неизбежны (и даже необходимы) и не просто в лирике. Как сочинитель я имею свой собственный стиль и интересы, так что главные вещи будут другими. <br> UNDEAD: Планируете ли Вы ре-юнион? <br> Нет, никаких подобных планов. <br> BDM: Почему Мартин ушёл? <br> Основное, что я понял, Мартин ушёл, из-за финансовых условий для того, чтобы раскрыть новые деловые возможности (например, Bloodstock). По правде говоря, никто не разбогатеет, просто находясь в Skyclad. <br> BDM: Сможете ли Вы писать тексты в духе Мартина? <br> Я постараюсь написать интересный материал. Надеюсь, он будет иметь успех у фэнов Skyclad. <br> Headcrusher: Когда Skyclad запишут альбом с симфоническим оркестром? <br> Интересная мысль, но мне кажется, мы не сможем сработаться (а может и нанять) с полным оркестром. Мы постараемся использовать некоторые инструменты, например, скрипки (струнная секция) и другие ансамбли. <br> Tornado: Кто круче, диггеры или левеллеры? <br> Должен сказать, я не знаю, кто такие диггеры, а вот некоторые материал левеллеров хорош. <br> Tornado: Почему английский футбол в упадке? <br> Кто сказал, что он в упадке? Премьер-лига является одной из лучших (если не лучшей) лигой в мире, и Англия вылетела из Кубка Мира на фазе четверть финала (от Бразилии, которая выиграла кубок). Дела вовсе не так плохи, у нас также четыре команды (включая Ньюкастл) в Лиге Чемпионов. <br> Tornado: Что Вы думаете о Nu-metal? Что Вы думаете о последнем альбоме Korn? <br> Что-то из Nu-metal, что я слушал (не так много) весьма неплохо – например, Стив любит System Of A Down. Боюсь, я не слышал ничего из Korn. <br> Tornado: Из области фантастики, если Мадонна пригласит Skyclad разогревать её шоу, согласитесь? <br> Вы правы, это весьма фантастично, однако, если Мадонна попросит нас лично, и мы решим, что сможем сделать всё, как надо, то вполне возможно (улыбается). <br> Tornado: Какая группа сейчас лучшая в металле? <br> Честно, я не ставлю оценок, просто слушаю. <br> Остаётся лишь надеяться, что альбом будет действительно хорош.</p>
+
+Автор: Vit Belov
+
+### 26.10.2002 articles Steve and Kevin from Skyclad answered questions from our readers.
+
+<p>At the end of summer "the new album" of Skyclad " No Daylights Nor Heeltaps " (Demolition Records/Irond) was released. There is band, for the first time, has appeared in absence of the long-term leader Martin Walkyier. Band has re-written songs from the gold period of Skyclad. I have contacted to group. On the first questions has answered guitarist Steve. It seemed, that fans have whatt to ask them, and the following questions were set already by our "sharks" from a forum, which to admit did not regret the musicians. These questions has answered by Kevin Ridley, whose has replaced Martin. <br> Q: My first answer, your new album. Whay did you re-recorded old stuff? Do you think that this CD will have some popularity? <br> This album was planned a long time ago after we had played a few tours of Irish Pubs in Europe. Because we were playing with acoustic guitars we needed to re-write some songs to make them suitable. The fans really liked these versions and suggested that we record them this way. So far , we have only had good reviews and good reports for the new album. <br> Q: You are not on Nuclear Blast now. Tell me about your new label Demolition. <br> We don’t really have a recording deal with Demolition it is more like a partnership. We are taking things into our own hands and running things ourselves business wise and so far it’s working well. <br> Q: Your plans. When can we wait for your real new CD? Tour? <br> We will go into the studio in July to record the next album and it should be out before the end of the year, and we’ll tour around then to promote it. <br> Q: Folk-metal, In early 90 you was alone in this style. Now we have much more bands. What do you think about this? Is this second breath or something more? <br> It’s good to know that our music has had such an influence and there is no reason why this style cannot be developed further, and it could be around for a very long time like folk music has been all over the world. <br> Q: What do you know about Russia? Did you listen to some metal or folk bands from our country, or may be folk-metal? <br> I haven’t heard much Russian Metal or folk metal, I have heard a lot of traditional folk music from your country and would like to hear if there are any metal bands using it in their music. <br> Well and is farther, our connoisseurs of creativity of Skyclad from our forum enter in business. <br> RUSLAN: Is it serious? Will you continue to release CDs under the name of the band, which associates with Walkyier? <br> The short answer is definitely yes, the band are deadly serious and will continue to work as Skyclad. Although Martin was an important member of the band, it takes more than one person to make a band and the original members (Steve and Graeme) have every intention (and every right as writers) to continue with the band that they formed. It was not Martin’s band. <br> UNDEAD: Does any members of SKYCLAD have any solo-projects? Or will they in the future? <br> At the moment no-one in Skyclad has released any solo material, but we do not rule this out for the future – we are, after all, creative people and fairly prolific writers. My previous band was called ‘Forgodsake’ and has two albums out (Blasthead & Gunk) if anyone’s interested in other stuff. This isn’t metal –more ‘indy’ rock. Also Steve and Graeme did a late Pariah album called ‘Unity’ that is available from our website. <br> Will you change your style or your lyrics after Martin left? <br> Until the new record is finished it is difficult to say how different it will be. However, I think that changes are inevitable (and even welcome) and not just in the style of the lyrics. As a writer I obviously have my own style and interests that mean things will be different – but also good I hope. <br> Will you plan some re-union? <br> No, there are no plans for a re-union. <br> BDM: Why Martin left? <br> Basically, from what I understand, Martin left because of financial concerns and to pursue some new business opportunities (i.e. Bloodstock). It’s fair to say that no-one was getting rich from just being in Skyclad. <br> Will you be able to write lyrics in spirit of SKYCLAD? <br> I will try to write interesting material and stuff that I can believe in and deliver well. Hopefully, it will find favour with the Skyclad fans. <br> HEADCRUSHER: When will SKYCLAD write album with symphonic orchestra? <br> An interesting point: while I don’t think we could quite manage (or afford) a full orchestra, we may well develop the use of instruments such as the violin (i.e. string sections) and other ensembles. <br> TORNADO: whose cooler, Diggers or Levellers? <br> I have to say that I don’t know who the ‘Diggers’ are but some of the Levellers stuff is good. <br> Why English football comes to decline? <br> Who said it was in decline? The Premiership is regarded as one of the best (if not the best) leagues in the world and England were just knocked out of the world cup at the quarter finals stage (by Brazil who won the thing). So things aren’t too bad, we have got four teams (including Newcastle) in the champions league. <br> What do you think about Nu-metal? What do you think about last album of Korn? <br> Some of the ‘nu-metal’ I’ve heard (not much) seems OK – for example Steve likes ‘System Of A Down’. I’m afraid I haven’t really heard anything by Korn – I know I need to get out more. <br> From region of science-fiction, If Madonna would invite SKYCLAD open her show, would you agree? <br> Your right it is very far fetched, however, if we were asked by Madonna herself, and we thought we could do okay then maybe, just maybe (LOL). <br> Which band is the best in today metal? <br> To be honest, I haven’t a clue. I just listen to - whatever. <br> Do you have any favourite web-sites? <br> I have got to plug some of our ‘windmill’ sites here (they’ll be fans to you and me). Check out pennydreadful.de and folkmetal.com, for example, some sterling work being done there. <br></p>
+
+Автор: Vit Belov
+
+### 07.10.2003 news Новый альбом от SKYCLAD
+
+Британские фолк-рокеры <B>SKYCLAD</B> продолжают усиленно работать над&nbsp;двенадцатым студийным альбомом <B>"A Semblance Of Normality"</B>. Он будет содержать трэки записанные при участии лондонского <B>Royal Philharmonic Orchestra. </B>Обещается более тяжелый, и вместе с тем, более фолковый материал в лучших традициях группы. Выход альбома намечен на начало 2004 года.
+Автор: Dimas
+
+### 25.12.2003 news Новая песня SKYCLAD
+
+На нашем сайте появилась возможность ознакомиться с одной из композиций с нового альбома британской группы <B>SKYCLAD "A Semblance Of Normality"</B> под названием "<B>Do They Mean Us?"</B> (<A href="/samples/s/skyclad/2004_704.mp3">mp3</A>). <B>"A Semblance Of Normality"</B> - первый полноценный альбом группы после ухода <B>Мартина Валькьяера</B>. Он записывался при участии <B>The Royal Philharmonic Orchestra</B>. Релиз ожидается в конце марта - начале апреля 2004 года на <B>Demolition Records</B>.
+Автор: Dimas
+
+### 19.03.2004 news Стал известен трэк-лист нового альбома SKYCLAD
+
+<P><B>SKYCLAD</B> выпускают новый альбом <B>"A Semblance Of Normality" </B>в мае на <B>Demolition Records</B>.&nbsp;Пластинка была записана в Италии в <B>Damage Inc. Studio</B> вместе с продюсером <B>Dario Mollo</B>. Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.03/6263.jpg" width=200 align="right" border=10>01. <B>Intro</B> (Pipes Solo)<BR>02. <B>Do They Mean Us?</B><BR>03. <B>A Good Day To Bury Bad News</B><BR>04. <B>Anotherdrinkingsong</B><BR>05. <B>A Survival Campaign</B><BR>06. <B>The Song Of No-Involvement</B><BR>07. <B>The Parliament Of Fools</B><BR>08. <B>Ten Little Kingdoms</B><BR>09. <B>Like... A Ballad For The Disenchanted</B><BR>10. <B>Lightening The Load</B><BR>11. <B>NTRWB</B><BR>12. <B>Hybrid Blues</B><BR>13. <B>Outro (The Dissolution Of Parliament)</B></P>
+Автор: Vit Belov
+
+### 25.05.2004 news Выход нового альбома SKYCLAD задерживается
+
+<B>Demolition Records</B> перенесли выход нового альбома <B>SKYCLAD</B> на сентябрь. Это связано с реструктуризацией самого лэйбла, который в данный момент не сможет обеспечить должного промоушена этому топ-релизу.
+Автор: Vit Belov
+
+### 05.02.2006 news SKYCLAD на Black Lotus
+
+<P><STRONG>SKYCLAD</STRONG> заключили контракт с<STRONG> Black Lotus Records</STRONG>. В апреле выйдет мини-альбом группы.</P>
+Автор: Vit Belov
+
+### 09.10.2007 articles OKTOBIERFEST 2007: Skyclad &amp; Tankard - Под патронажем Зеленого Змия
+
+<P align="center">&nbsp;Delta Mekong Concerts представляет <B>OKTOBIERFEST 2007</B> – Под патронажем Зеленого Змия </P>
+<P>Прошел еще один год и в середине октября вновь случится неотвратимое: 13 октября стройными рядами любители музыки и пива твердой поступью проследуют в клуб «Точка», где в очередной раз пройдет самое веселое и сумасшедшее мероприятие года – <B>OKTOBIERFEST</B>.</P>
+<P><SPAN>На этот раз пивной фестиваль станет действительно международным – три группы, из России, Великобритании и Германии, будут соревноваться в этот вечер, чтобы нагляднее доказать пришедшим, кто из них больше любит пиво.<B></B></SPAN></P>
+<P>Откроет праздничную программу вечера российская группа <B>BEERMEN GAME (</B><SPAN>БИРМЕНГЕЙМ<B>), </B>образованная в 1985 году и до 1996 года скрывавшаяся под вывеской РОК-КУРЬЕР. Сотрудники <B>БИРМЕНГЕЙМ</B>, музыканты, играющие в самых разных стилях, через все эти годы вынесли главное свое увлечение – любовь к пиву. О нем они и доложат на торжественной речи, представив свои лучшие застольные творения.</SPAN></P>
+<P>Мастеров русского пивного стеба поддержат их единомышленники с Туманного Альбиона. <B>SKYCLAD </B>появились на свет в далеком 1990 году во время беседы британских музыкантов Мартина Волкера и Стива Ремси о том, что неплохо бы записать несколько общих песен. Беседа, разумеется, проходила в каком-то местном пабе, так что рождением коллектив обязан, честно говоря, одному душевному ячменному напитку. Именно воздействие его паров делало привлекательной и реалистичной идею создания языческой фолк-метал группы. Однако на протяжении всего творчества основоположников фолк-метал их «доскайкладная» трэшевая биография, нет-нет, да и давала о себе знать, и среди романтичных заигрываний скрипок и пения птиц регулярно пробивались бодрые трэшевые риффы и чудесные голоса. Голоса, которые многие критики сравнивали с хором бывалых портовых грузчиков. Но видимая злобность британцев ни что иное, как своеобразие пробивающейся изнутри энергетики. А пришедший на смену Мартину новый вокалист Кевин Ридли не только не испортил общую картину, но заставил взглянуть на старое творчество коллектива под новым углом зрения. Разноплановая и волшебная музыка, блуждающая по лабиринту антропогенного хаоса, она характерна тем, что те, кто слышал и полюбил <B>SKYCLAD</B>, узнает их с первых аккордов. Уникальный фолк-метал, который более точно можно обозначить как фолк-трэш. И, конечно же, <B>SKYCLAD</B> любит и ценит пиво, ибо что есть более ценное в человеческой истории? Приходите и убедитесь в качестве выдержки сами: <B>SKYCLAD</B> – розлито в Ньюкастле! </P>
+<P>А главным украшением <B>OKTOBIERFEST</B>’а станут крупнейшие эксперты в области слияния музыки и алкоголя – немецкая группа <B>TANKARD. </B>Вокалист коллектива Герре (в миру – Андреас Джеремиа) и его товарищи бережно приняли от своего друга Тома Энджелриппера московскую эстафетную кружку пива и собираются поделиться своим двадцатипятилетним опытом воспевания этого и прочих алкогольных напитков.</P>
+<P>Начав в далеком 1982 году в родном Франкфурте как <B>VORTEX</B>, а потом и <B>AVENGER</B>, они стали известны все-таки как <B>TANKARD</B>, а слава к ним пришла после совместного выступления с <B>SODOM</B> и <B>DESTRUCTION</B>. Именно то выступление послужило основным аргументом того, что через некоторое время <B>«Noise records»</B> выпустила их первый альбом <B>«Zombie Attack»</B> (1986). Более двадцати лет с момента выхода первого альбома и четверть века создания и исполнения песен о самом главном! К настоящему моменту за плечами <B>TANKARD</B> пятнадцать альбомов, включая двенадцать студийных, что делает их крупнейшими в мире специалистами жанра: пивной треш-метал с вкраплениями виски-панка, тематические зарисовки и гимны, романтические баллады об энергетических напитках и жалящие уже не совсем трезвый мозг спиртосодержащие риффы. Казалось бы, о чем мог мечтать Герре, безумный футбольный фанат и верный поклонник «Айнтрахт» после того, как ему довелось выступить перед многотысячным стадионом и своей любимой командой? Жизнь закончена? Нет, ведь осталось еще одно историческое мероприятие, на котором должен отметиться каждый уважающий себя ценитель качественного спиртного и тяжелой музыки – <B>OKTOBIERFEST</B>. И отложив в дальний ящик все пустяковые дела, Герре, Франк, Олаф и Энди с нетерпением готовятся к визиту в Москву.</P>
+<P>Будьте начеку! Не пропустите очередную встречу с прекрасным!</P>
+<P>Текст Олег «ShadowBarrel» Бочаров</P>
+<P>13 октября 2007 года, суббота</P>
+<P><SPAN>Москва, клуб «Точка»: <A href="http://clubtochka.ru/files/contacts.html">Ленинский проспект, д. 6 стр. 7, тел.737-76-66</A></SPAN></P>
+<P><SPAN><B>OKTOBIERFEST:</B></SPAN></P>
+<P><B>BEERMEN GAME (Rus), SKYCLAD (UK), TANKARD (Ger)</B> <B>и… вы!</B></P>
+<P>«Не вижу повода не выпить!» (с) Зеленый Змий, официальное божество фестиваля.</P>Delta Mekong Concerts 
+<P>www.deltamekong.ru</P>
+<P><SPAN>+7 (495) 970-0868<BR>+7 (495) 642-4620<BR>info@deltamekong.ru</SPAN></P>
+Автор: Ixtiandr
+
+### 13.10.2007 news OCTOBIERFEST Moskau 2007
+
+<CENTER><IMG height=321 src="/images/shows_rus/2007.10/11705.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 02.01.2009 news Martin Walkyier: &quot;Не вижу смысла праздновать Новый Год&quot;.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.01/13278.jpg" width=300 align=right border=5>Бывший фронтмэн <STRONG>SKYCLAD</STRONG> и нынешний участник <STRONG>SABBAT Martin Walkyier</STRONG> выступил с пространным заявлением, посвящённым празднованию Нового Года, своему текущему настроению и видению вещей:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Канун Нового Года. Я сижу один перед своим компьютером и пишу это для Вас. Традиционное время для оценки прошедшего. Оглядываясь на поведение человечества в новом тысячелетии, я с грустью понимаю, что праздновать окончание ещё одного года, полного ненужных войн, ужасающей людской бедности и несказанного человеческого&nbsp;страдания, не имеет никакого смысла. Примите извинения за эти пессимистические слова. Очень мало происходит в этом мире того, что может заставить меня улыбнуться. Я начинаю думать, что в в самой человеческой сущности&nbsp;заложены&nbsp;изначальные неполадки, которые и мешают нам существовать в этом мире</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В своих дальнейших размышлениях <STRONG>Martin</STRONG> коснулся темы гитлеровской Германии и Второй Мировой войны, проведя аналогию с современными мироощущениями обмана и подмены понятий политиками, а так же он перенёс эти мыли на собственную жизнь, связав подобное лицемерие с некоторыми событиями в&nbsp;своих отношениях с бывшими друзьями.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Никаких подробностей о своей музыкальной карьере в этом письме господин <STRONG>Walkyier</STRONG> не сообщил, равно как и не уточнил, что это за друзья, и как они связаны с тем, что всем нам, любителям музыки, приходится читать его пространные мысли.</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 04.01.2009 news Martin Walkyier всё-таки рассказал о творческих планах
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После пространных заявлений о судьбах человечества певец <STRONG>Martin Walk</STRONG>yier всё-таки обнародовал свои творческие планы. Музыкант подготовил новый альбом ещё одной группы <STRONG>HELL</STRONG> <STRONG>"Human Remains". </STRONG>В группе, которую многие считают прародительницей folk-metal, кроме <STRONG>Martin</STRONG> участвуют <STRONG>Kev Bower</STRONG>, <B>Tony Speakman</B>, <B>Tim Bowler</B> и <B>Andy Sneap</B>. Также музыкант готовит новый материал для <STRONG>THE CLAN DESTINED</STRONG>&nbsp;и даст несколько концертов на фестивалях с <STRONG>SABBAT</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 22.01.2009 news SKYCLAD на Scarlet
+
+<P><STRONG>SKYCLAD </STRONG>подписали контракт на выпуск своего двенадцатого альбома <STRONG>"In The… All Together" </STRONG>на<STRONG> Scarlet Records</STRONG> весной. Пластинка была записана в прошедшем августе вместе с <STRONG>Dario Mollo</STRONG> (<B>THE CAGE</B>, <B>VOODOO HILL</B>). Нам обещают "микстуру из обычного thrash/speed-metal и прекрасных folk-metal мелодий".</P>
+Автор: Vit Belov
+
+### 29.04.2009 news SKYCLAD очнулись от сна
+
+<P><STRONG>SKYCLAD</STRONG> возобновили свою концертную деятельность после некоторого перерыва. Группа поддерживает новый альбом <STRONG>'In The... All Together', </STRONG>вышедший на <STRONG>Scarlet Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 01.08.2009 news Новое видео SKYCLAD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>SKYCLAD</STRONG> на песню <STRONG>"Words Upon The Street" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wnZE1b9ftYY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wnZE1b9ftYY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Кранты Skyclad...

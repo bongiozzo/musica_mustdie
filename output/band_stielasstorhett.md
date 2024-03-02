@@ -31,6 +31,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.09.2011 news STIELAS STORHETT на Code666
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.09/21006.jpg" width=300 align=right border=0>Второй альбом от группы с самого севера России <STRONG>STIELAS STORHETT "Expulse"</STRONG> увидел свет на итальянском значке <STRONG>Code666</STRONG>. Мурманский one-man band представляет нашему вниманию Arctic Black-metal - морозный и эпичный, драматичный и жёсткий. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Dying Delirium&nbsp; <BR></STRONG>2. <STRONG>Buried by Storm and Eternal Darkness</STRONG>&nbsp;&nbsp; <BR>3. <STRONG>All Paths Lead to Oblivion</STRONG>&nbsp; <BR>4. <STRONG>Hush-a-bye&nbsp;&nbsp;&nbsp; <BR></STRONG>5. <STRONG>Two Lifeless Months</STRONG>&nbsp;&nbsp; <BR>6. <STRONG>Expulse&nbsp;</STRONG>&nbsp;&nbsp;&nbsp;&nbsp; <BR>7. <STRONG>Angel Of Death</STRONG>&nbsp; </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://myspace.com/stielasstorhettofficial">http://myspace.com/stielasstorhettofficial</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

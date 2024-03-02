@@ -50,6 +50,84 @@ The long awaited full-length album by the Warriors from
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.06.2002 news HELL-BORN after their USA tour ....
+
+<p>HELL-BORN after their USA tour which was a month ago is going to record new album "THE CALL OF MEGIDDO'' on the1st of July 2002 at Hertz Studio in Bialystok, Poland. More news soon on www.conquerec.com or www.hellborndirect.com <BR><BR> After summer some show confirmed to promote on:<BR><BR> 2002-10-26 Benediction, Hell-Born, April Ethereal, Immemorial, Epitome + special guest. (GBR) Lonodn Underworld<BR><BR> We are looking for more shows before or after 26,10,2002 and all the promoters, clubs and band who are interested to organize more shows for HELL-BORN, APRIL ETHEREAL & IMMEMORIAL please contact Tomasz at podol@conquerec.com</p>
+
+Автор: Yermola
+
+### 16.06.2002 reviews Альбом из разряда &quot;a must have&quot;
+
+<p>Экс-участники BEHEMOTH не дремлют. Пока их более удачливые коллеги по цеху ваяют один альбом за другим, всё дальше отдаляясь от блэка, HELL-BORN… тоже решили звёзд с неба не хватать, а взять, да и выдать смертельную дозу чадящей дэтяры. Впрочем, во-первых, к такой музыке они пришли значительно раньше BEHEMOTH’ов, в середине 90-х, а во-вторых, дэт дэту рознь. Если Нергал сотоварищи нарезают приблэкованный дэт образца 21 столетия, то HELL-BORN, наоборот, предпочитают черпать вдохновения в творчестве таких легендарных команд как POSSESSED. А потому и музыка у них получается значительно более искренняя, более мрачная, более брутальная (!), и в тысячу раз более притягательная. О мастерстве – не будем. Чего стоит один отбойный молоток, то бишь заметно похудевший Baal Ravenlock! Помимо шести новых вещей, диск включает в себя все четыре песни с изданного Pagan Records в 1996 году одноимённого миньона, музыкально достаточно сильно отличающегося от "Hellblast" (в первую очередь это касается интересного подхода к вокальным партиям). Альбом из разряда "a must have".</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 31.07.2002 news HELL-BORN finished recording &quot;The Call Of Megiddo&quot; ...
+
+<p>HELL-BORN finished recording their 3rd CD colled "The Call Of Megiddo" which will be available on the middle of September 2002. Album was recorded at Hertz Studio in Poland (studio where recording Dies Irae, Decapitated) to bring to all of you the top quality sound!!!</p>
+
+Автор: Yermola
+
+### 01.08.2002 news HELL-BORN завершили запись третьего альбома...
+
+<p>"HELL-BORN" завершили запись своего третьего альбома "The Call Of Megiddo", кеоторый появится в продаже через Conquer Records в сентябре 2002. Записывался альбом в польской Hertz Studio, где обычно пишутся Dies Irae и Decapitated...</p>
+
+Автор: Yermola
+
+### 22.08.2002 news CONQUER FEST II in UK
+
+<p>BENEDICTION ( legend of death metal - UK ) <BR> HELL-BORN ( one of the best old school of black metal - Poland )<BR> IMMEMORIAL ( death metal - Poland )<BR> EPITOME ( pathological grind / gore - Poland )<BR> HECATE ENTHRONED ( black metal - UK )<BR> DAM ( UK )<BR><BR> 26,10,2002 London Camden the UNDERWORLD<BR> doors open at 17.00 ( 5 PM )<BR> more @ WWW.CONQUEREC.COM<BR><BR> Tomasz Podolecki<BR> & Conquer Records UK<BR> WWW.CONQUEREC.COM<BR> PO BOX 33904<BR> LONDON<BR> NW9 7ZU<BR> Great Britain<BR></p>
+
+Автор: Yermola
+
+### 26.10.2002 news Conquer Records News
+
+<p>We have some news from Conquer Records. 2 new albums were released recently. There are new albums of Hell-Born "The Call of Megiddo" (death-black metal) and Quo Vadis "King" (thrash metal) in stores now. Also new live dates announced. Today - Conquer Records Festival II (Benediction, Hell-Born, Immemorial, Epitome, Hecate Enthroned, Dam) in Lonodn Camden the Underworld. And also 4th of November - Behemoth, Diabolic, Thus Defiled, Epitome, The Enchanted and 21st of November - NECROPHOBIC, Diabolical, Domain, Hell-Born, Quo Vadis, Corruption, Unnamed, Mess Age.</p>
+
+Автор: Vit Belov
+
+### 13.12.2002 reviews Поляки - агрессивная нация...?
+
+<p>Мне случалось быть в Варшаве, в Кракове тоже бывал... Вот только не заметил я огромного количества агрессивных людей, по которым можно сказать, вот они потенциальные black-death-thrash metal звёзды. Но, похоже, именно, эти стили становятся торговой маркой польской металл-музыки. Очередной группой, мною услышанной стали Hell-Born из Сопота. В составе можно обнаружить бывших музыкантов Behemoth и Damnation... Злобные дядьки с мечами и в цепях играют "средневековый" death-black metal, правда средневековость только в оформлении обложки, да в текстах... В основном, всё стандартно, молотилово в среднем темпе, выкрики Crush-Destroy и Six, Six, Six. Добротная, но не оригинальная работа.</p>
+
+Автор: Vit Belov
+
+### 13.12.2002 reviews The Poles - aggressive nation...?
+
+<p>I was in Warsaw, and in Krakow too... I only has not noticed huge quantity of the aggressive people, on which it is possible to tell, they are potential black-death-thrash metal star. But, similar, these styles become the trade mark of the Polish metal - music. By the next group, I've heard, was steel Hell-Born from Sopot. In band it is possible to find out the former musicians of Behemoth and Damnation... Spiteful guys with swords and in circuits play "medieval" death-black metal, truth medieval is only in design of a cover-art, and in the lyrics... Basically, it is standard brutal in the average temp, barrackings Crush-Destroy and Six, Six, Six. Quality, but not original work.</p>
+
+Автор: Vit Belov
+
+### 19.12.2002 bios Hell-Born Bio
+
+<p>In 1995 - 1996 the then members of Behemoth, Baal and Les (known as the leader of Damnation) decided to create the group refering to the gold time of metal - time of glory of Destruction, Sodom, Possessed etc. After the short period of very intensive rehearsels this duo entered the Warrior Studio in Torun to register the debut mini-album as HELL-BORN. The disc was edited by Pagan Records and collecting good opinions the duo forced their way in the top of "retro" musicians' circle. Unfortunately due to many jobs of Les in Behemoth and Damnation. HELL-BORN disapeared from the scene for 5 years. The breakthrough came in 2000.Baal (then the vocalist of Damnation) and indefatigable Les decided to revive the group and invited Jeff to co-operate with them. He temporrarily became the bass player and second vocalist. Such the group, in their characteristic and uncompromising style composed 5 new pieces to become convinced whether the roots and essence of metal are still alive.The material, recorded in Hertz Studio (Bialystok) was edited by the English Conquer Records as the album under the title "Hellblast" (the first mini-album from 1996 was also included). The Polish edition was again issued by Pagan Records. The group quickly found that in spite of the new-metal domination HELL-BORN was received by the audience extremely enthusiasticly. "Hellblast" got exclusively positive reviews. It became clear that the group needs the full strong team to show its diabolic art alive. Basti (drummer of deathmetal group Devilyn) soon joined Hell-Born. Jeff took over guitar, Baal remaining the main vocalist became the bass player. Such the group made its debut appearing with Damnation in Germany and France. After some concerts in Poland and in other European countries Hell-Born as the next to Vader metal team flied to the U.S.A. where the classic "indigenous" music still has ardent fans. The traditional attributes as leather, chains, nails and hobnails shocked the audience as in the old good times showing substantial distinguishing feature of the group concious of their music roots. Meanwhile HELL-BORN does not loaf and prepares the new LP album awaited by the public. By the end of June 2002 the group records 8 new pieces in Hertz Studio. The album entitled "The Call of Megiddo" is the direct heir of the best death metal predecessors preserving the well-known unique style of the group. The album will be edited by Conquer Records and its premiere is expected in October 2002.</p>
+
+Автор: Vit Belov
+
+### 30.03.2003 news CHANGES IN HELL-BORN
+
+<p>The long distance between places where Bastek (DEVILYN) and the rest of the band live was the reason why he's been replaced by other drummer - Maіy (ex-GHOST and GRIN). Problems concerning constant travels from one place to another made it difficult for HELL-BORN to have regular rehearsals and prevented them from being well prepared for the gigs. The band decided to hire a person from Gdansk, Sopot, Gdynia cities and they chose Maіy. He's made good impression on other members of the band during concerts which presented HELL-BORN playing with QUO VADIS, LOST SOUL (Gdaсsk and Olsztyn) and KRIEG (Poznaс).</p>
+
+Автор: Vit Belov
+
+### 01.11.2003 news Hell-Born, Demonsy &amp; Forest Of Impaled on the East Coast of USA
+
+11/20 TBA<BR>11/21 CHOPPIN' BLOCK PUB, 724 Huntington Ave., Boston, MA<BR>11/22 Gods of Blashphmy Fest. NYC<BR>11/23 Richmond, VA<BR>11/24 No Excuses 27330 Lorain Rd N. Olmsted, OH<BR>11/25 Never on Sun 6923 Planfield Rd. Silverton, OH<BR>11/26 Emerson Theater, Indiapolis, IN<BR>11/28 Vnuks Lounge 5036 S. Packard Ave. Milwaukee, WI<BR>11/29 THE LAB - 4TH ST. & SIBLEY AVE, ST. PAUL, MN<BR>11/30 Cafe Lura 3184 N. Milwaukee Ave. Chicago, IL<BR>
+Автор: Vit Belov
+
+### 04.11.2003 news Hell-Born with Ibex Throne on West Coast of USA
+
+12/01 Lincoln, Nebraska<BR>12/02 Denver, CO w/ Ibex Throne TBA<BR>12/03 Salt Lake City, UT w/ Ibex Throne TBA
+Автор: Vit Belov
+
+### 11.11.2003 news Hell-Born in Texas
+
+12/08 El Paso, TX TBA<BR>12/09 Austin or San Antonio, TX TBA<BR>12/10 New Orleans, LA TBA
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

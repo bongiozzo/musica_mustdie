@@ -90,6 +90,85 @@ Drums: Mike Justain
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.10.2003 news UNEARTH на Metal Blade
+
+Лейбл <B>Metal Blade Records</B> представляет группу <B>UNEARTH</B>. Это банда пришла из Массачусетс и исполняет hardcore metal. Теперь <B>UNEARTH</B> выбралась из андерграунда и будет записываться на <B>Metal Blade Records</B>. Также стало известно, что новым баранщиком группы станет <B>Mike Justain</B> (<B>THE RED CHORD</B>), который заменит <B>Mike Rudberg</B>, ушедшего из группы некоторое время назад.
+Автор: Darkfall
+
+### 18.01.2005 reviews Фабрики - рабочим, землю - безземельным
+
+<P>Требую срочно выдать надел земли&nbsp; группе "Безземельные" (простите за мой вольный перевод названия коллектива)!!! Ибо у них есть,&nbsp; что посеять на этой земле. Нет, действительно, альбом просто замечательный! Ценная находка на раскопках наших музыкальных развалов. Несмотря на свое американское происхождение, музыканты нарезают шведский мелодичный дэт. Но какой!!! Сочные риффы, виртуозные поливы&nbsp; соло, прекрасные аранжировки, техничное исполнение. Вокал, правда, слегка напоминает заокеанских коллег из Soilwork, но это скорее дань моде, нежели примитивное подражание. В музыкальном плане&nbsp; их SMDM обильно приправлен трэшевыми и хардкоровыми&nbsp; ходами, местами проскакивают элементы прогрессива. И прошу заметить, никакого нью-металла, с которым очень любят заигрывать в последнее время их шведские коллеги из Ин Флеймс или тех же Соилворк. Вместо коммерческого приема облегчения стиля, парни из Unearth взяли курс на его утяжеление путем скрещивания с энгри. Результат получился просто ошеломляющий!</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A></P>
+Автор: Fucker
+
+### 14.01.2008 news UNEARTH выпускают DVD
+
+<P>18 марта на <STRONG>Metal Blade</STRONG> выходит новое DVD <STRONG>UNEARTH</STRONG> <STRONG>"Alive from the Apocalypse". </STRONG>На диск попало выступление группы в Помоне, Калифорния, состоявшееся 9 октября прошедшего года.</P>
+Автор: Vit Belov
+
+### 31.07.2008 news Новый альбом UNEARTH
+
+<P>14 октября на <STRONG>Metal Blade</STRONG> выходит новый альбом <STRONG>UNEARTH</STRONG> "<STRONG>The March</STRONG>". Пластинка была записана вместе с продюсером <STRONG>Adam Dutkiewicz</STRONG> (<B>KILLSWITCH ENGAGE</B>). Трэк-лист:</P>
+<P>01. <B>My Will Be Done</B><BR>02. <B>Hail the Shrine</B><BR>03. <B>Crow Killer</B><BR>04. <B>Grave of Opportunity</B><BR>05. <B>We Are Not Anonymous</B><BR>06. <B>The March</B><BR>07. <B>Cutman</B><BR>08. <B>The Chosen</B><BR>09. <B>Letting Go</B><BR>10. <B>Truth or Consequence</B></P>
+Автор: Vit Belov
+
+### 25.11.2008 reviews Прогресс американских metalcore’щиков налицо
+
+<P>На нашем сайте сейчас идёт голосование, посвящённое стилю metalcore. Там вы можете высказать своё мнение, я же позволю себе кое-что сказать сейчас. Безусловно, у данного явления может быть сколько угодно объяснений и последствий. Одним из последствий стал праздник на улице любителей melodic-death-metal. Если раньше на рубеже веков стиль двигали в основном последователи неоклассического варианта во главе с CHILDREN OF BODOM, то теперь за дело взялись американцы, а уж если они чего делают, то так, что мало не покажется. Новый альбом UNEARTH “The March” великолепный представитель melodic-death-metal в современной обёртке metalcore.</P>
+<P>Я не очень внимательно знакомился с предыдущими творениями этой американской группы, которые выходили на Фоно, но точно помню, что сегодняшнего впечатления от “The March” они не производили. Великолепный драйвовый гипермелодичный материал с (внимание!!!) отличнейшими соло, свойственными стилю в самых лучших его проявлениях в прошлом. “The March” – это лучший IN FLAMES. Не тот IN FLAMES, который сейчас, даже более американский, чем американские группы, а тот, в котором появились редкие веяния hardcore и nu-metal, IN FLAMES времён “Clayman”. Качовый рифф и супер-соло на гитаре… Где-то с третьей вещи музыканты UNEARTH уже не могут остановиться. Они пилят и пилят, пилят и пилят. Чего уж там… Вспомните ещё и “Whoracle”, и шедевральный “Sunterranean”, даже…</P>
+<P>Американские группы развиваются очень быстро, музыканты в США всегда были великолепные. Им достаточно поставить цель, и они её добьются. Ещё недавно мы тыкали пальцами и радовались дешёвым подобиям первых пластинок melodic-death-metal гуру из Европы, сейчас же заокеанские группы нарезают лучшие варианты стиля в современном звуке и с thrash/hardcore напористостью. UNEARTH “The March” – альбом, который, на мой вкус, обгоняет любые творения популярных TRIVIUM. Советую всем!</P>
+Автор: Vit Belov
+
+### 12.01.2009 news Гитарист UNEARTH не едет в тур
+
+<P><IMG height=160 alt="" hspace=0 src="/images/news_rus/2009.01/13344.jpg" width=160 align=left border=5>Гитарист <STRONG>UNEARTH</STRONG> <STRONG>Buz McGrath </STRONG>не поедет в ближайший тур группы вместе с <STRONG>EMMURE</STRONG>, <B>IMPENDING DOOM</B>&nbsp;и <B>BORN OF OSIRIS</B>. Его место займёт музыкант <STRONG>Emil Werstler </STRONG>из <STRONG>DAATH</STRONG>, чьё прозвище <STRONG>Shreddy Krueger.</STRONG></P>
+<P>"<EM>Я не могу поехать в тур, потому что мы с женой находимся на последней стадии усыновления. Мы готовимся к своей новой роли, и я не могу уехать. Но не волнуйтесь, UNEARTH будут играть полный сэт, а Emil великолепный гитарист</EM>".</P>
+Автор: Vit Belov
+
+### 27.10.2009 news Новое видео UNEARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>UNEARTH</STRONG> <STRONG>"Grave Of Opportunity" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT id=viddler height=265 width=437 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="11562"><PARAM NAME="_cy" VALUE="7011"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://www.viddler.com/simple_on_site/4436445f"><PARAM NAME="Src" VALUE="http://www.viddler.com/simple_on_site/4436445f"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE="LT"><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE=""><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://www.viddler.com/simple_on_site/4436445f" width="437" height="265" type="application/x-shockwave-flash" allowScriptAccess="always" allowFullScreen="true" name="viddler" ></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.05.2011 news Новый альбом UNEARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.05/19423.jpg" width=400 align=right border=0>Новый альбом <STRONG>UNEARTH</STRONG> <STRONG>"Darkness In The Light" </STRONG>выйдет 4 июля на Metal Blade. Альбом был записан в <STRONG>Zing Studios </STRONG>с продюсером&nbsp;<B>Adam</B> <STRONG>Dutkiewicz</STRONG>. Сведением занимался <STRONG>Mark Lewis</STRONG> (<B>THE BLACK DAHLIA MURDER</B>, <B>WHITECHAPEL</B>, <B>DEVILDRIVER</B>, <B>TRIVIUM</B>). Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Watch It Burn</B> (4:06)<BR>02. <B>Ruination Of The Lost</B> (3:35)<BR>03. <B>Shadows Of The Light</B> (3:45)<BR>04. <B>Eyes Of Black</B> (3:53)<BR>05. <B>Last Wish</B> (3:06)<BR>06. <B>Arise The War</B> Cry (3:55)<BR>07. <B>Equinox</B> (2:58)<BR>08. <B>Coming Of The Dark</B> (3:07)<BR>09. <B>The Fallen</B> (3:35)<BR>10. <B>Overcome</B> (3:11)<BR>11. <B>Disillusion</B> (3:37)<BR></B></FONT></P>
+Автор: Vit Belov
+
+### 14.07.2011 news UNEARTH попали в чарты
+
+<P>Новый альбом<STRONG> UNEARTH</STRONG> <STRONG>"Darkness In The Light"</STRONG>, вышедший на <STRONG>Metal Blade</STRONG>, попал в чарты<STRONG> Billboard</STRONG> на высокое 72-ое место. В США было продано 6400 экземпляров альбома в первую неделю продаж.</P>
+<P>Предыдущая работа музыкантов <STRONG>"The March", </STRONG>правда, выступила в октябре 2008 года гораздо лучше. 11000 экземпляров и 45-ое место.</P>
+<P>В России новый альбом <STRONG>UNEARTH</STRONG> должен выйти на<STRONG> Фоно</STRONG>.</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.07/20119.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 21.10.2011 reviews Очень приятный вариант metalcore
+
+<P>Американские “металкорщики» UNEARTH представляют нашему вниманию такой вид современной тяжёлой музыки, который запросто может понравиться любителям традиционного метала. Хоть на этих парнях и висит «лэйбл», который true-металисты зачастую не переваривают, заценить новый альбом UNEARTH им может быть необходимо.</P>
+<P>Как следует из названия, стиль metalcore появился на стыке metal и hardcore. Этот стык достаточно условен, ведь каждый коллектив использует в своей музыке разное количество вышеуказанных ингредиентов. Кто-то больше упирает на «коровоую» составляющую, чья-то музыка сложно отличима от традиционных death и thrash metal. Зачастую metalcore-смеси совершенно не слушабельны для металистов, так как от метал в них осталась только примоченная гитара, а всё остальное представляет собой смесь из мелодичной музыки всех стилей и направлений, включая большую дозу поп-музыки. К UNEARTH подобные утверждения не применимы. В их творчестве на новом альбоме “Darkness In The Light” нет ничего, кроме hardcore и melodic death-metal, и намешаны они в самую вкусную кашу из возможных. Гипермелодичные соло от классического «мелодета» разбавлены яростной энергией hardcore. Честно говоря, давненько я не слышал чего-то столь мелодичного и энергичного, и подобную музыку можно смело принять за эталон. </P>
+<P>Великолепный сплав для всех поклонников тяжёлой музыки. Наряду с такими коллективами, как THE BLACK DAHLIA MURDER и AS I LAY DYING, UNEARTH играют самый приятный для старшего поколения металистов вариант современного мелодичного death-metal.</P>
+Автор: Vit Belov
+
+### 13.09.2016 news UNEARTH выпустили новый видео-клип
+
+<p>Новое видео<strong> UNEARTH</strong> на песню "<strong>The Swarm</strong>" можно посмотреть ниже. Трек взят с последнего альбома melodic death metal коллектива "<strong>Watchers Of Rule</strong>".</p><p>Купить фирменное издание альбома можно на сайте <a href="http://escapemind.ru/goods/Unearth-Watchers-Of-Rule">Escapemind.ru</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/_ebl2Qph6PE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.09.2016 news New video of UNEARTH
+
+<p><strong>UNEARTH</strong>'s new video for the song "<strong>The Swarm</strong>" can be viewed below. The track is taken from latest album of melodic death metal band "<strong>Watchers Of Rule</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/_ebl2Qph6PE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

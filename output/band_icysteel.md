@@ -35,6 +35,49 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2016 news Новый альбом ICY STEEL
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Четвёртый альбом итальянской heavy metal команды <strong>ICY STEEL "Through the Ashes"</strong> выходит 16 сентября на <strong>Pure Steel Promotion</strong>. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности последуют.</font></p><p><center><img width="600" height="338" src="/images/news_rus/2016.07/29520.jpg" border="0"></p><p>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p>
+Автор: Vit Belov
+
+### 02.07.2016 news ICY STEEL signed with Pure Steel Promotion
+
+<p>The Italian Heavy Epic Metal Band <strong>ICY STEEL</strong> has signed a worldwide deal at PURE STEEL PROMOTION for the new album.</p><p>After the albums "<strong>Icy Steel</strong>" (2007) and "<strong>As The Gods Command</strong>" (2010), which was released on PURE STEEL RECORDS, will be the new album "<strong>Through The Ashes</strong>" released on September 23rd, 2016 at PURE STEEL PROMOTION.</p><p>Details will follow.</p><p><center><img width="600" height="338" src="/images/news_rus/2016.07/29520.jpg" border="0"><p></p><p>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 11.08.2016 news Обложка и трек лист нового ICY STEEL
+
+<p>Новый альбом итальянского heavy metal коллектива<strong> ICY STEEL "Through The Ashes"</strong> выходит 23 сентября на <strong>Pure Steel</strong>. Стал известен трек лист и обложка альбома.</p><p>Трек лист:</p><p>Disc 1<br>1. Last Man On The Earth<br>2. Fire And Flames<br>3. The Day Became Night<br>4. Ritual Of The Wizard<br>5. Last Thing To Destroy<br>6. ...And The Warriors Return<br>7. Today The Rain Cries<br>8. The Earth After Man</p><p>Disc 2<br>1. Bard's Dream In The Silent Woodland<br>2. Ashes Of Glory<br>3. Inside The Glass Place<br>4. Shaman's Death<br>5. The Weight of Signs</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29793.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 11.08.2016 news Track list and cover art of new ICY STEEL
+
+<p>The release date of the ICY STEEL album „Through The Ashes“ on CD is September 23rd, 2016. Power from Sardinian (Sassari), an Island of Italy. ICY STEEL are back like a bomb! Their fourth album again comes in perfect true Metal style. Riffing, powerful songs and epic parts, so exactly what the Metal fan needs!</p><p>"Through The Ashes" is distributed by Pure Steel Promotion and give you the chance to get it in our shop! The 13 Songs are fresh like you expect it from an album in 2016, but they never give up their 80s roots! 60 Minutes of finest italian steel wait for you!</p><p>Track list:</p><p>Disc 1<br>1. Last Man On The Earth<br>2. Fire And Flames<br>3. The Day Became Night<br>4. Ritual Of The Wizard<br>5. Last Thing To Destroy<br>6. ...And The Warriors Return<br>7. Today The Rain Cries<br>8. The Earth After Man</p><p>Disc 2<br>1. Bard's Dream In The Silent Woodland<br>2. Ashes Of Glory<br>3. Inside The Glass Place<br>4. Shaman's Death<br>5. The Weight of Signs</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29793.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 06.09.2016 news ICY STEEL выпустили сингл
+
+<p>Итальянская heavy power metal команда<strong> ICY STEEL</strong> выпускает новый альбом "<strong>Fire And Flames</strong>" 23 сентября. Ниже можно услышать заглавную песню с этой работы. </p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281507395&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+### 06.09.2016 news ICY STEEL released new song
+
+<p><strong>ICY STEEL – “Fire And Flames”</strong> – official single from the album "<strong>Through The Ashes</strong>" - official release date: 23rd of September 2016 by <strong>PURE STEEL PROMOTION</strong></p><p>Power from Sardinian (Sassari), an Island of Italy.</p><p>ICY STEEL are back like a bomb! Their fourth album again comes in perfect true Metal style. Riffing, powerful songs and epic parts, so exactly what the Metal fan needs!</p><p>"Through The Ashes" is distributed by Pure Steel Promotion and give you the chance to get it in our shop! The 13 Songs are fresh like you expect it from an album in 2016, but they never give up their 80s roots! 60 Minutes of finest italian steel wait for you!</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281507395&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+### 22.09.2016 news Официальный сингл ICY STEEL
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый сингл итальянской heavy metal банды<strong> ICY STEEL "The Earth After Man"</strong> можно послушать ниже. Новый альбом группы "<strong>Through The Ashes</strong>" выходит завтра.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281509731&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+### 22.09.2016 news ICY STEEL released single
+
+<p><strong>ICY STEEL – “The Earth After Man”</strong> – official single from the album "<strong>Through The Ashes</strong>" - official release date: 23rd of September 2016 by <strong>PURE STEEL PROMOTION</strong>.</p><p>Power from Sardinian (Sassari), an Island of Italy.</p><p>ICY STEEL are back like a bomb! Their fourth album again comes in perfect true Metal style. Riffing, powerful songs and epic parts, so exactly what the Metal fan needs!<br>"Through The Ashes" is distributed by Pure Steel Promotion and give you the chance to get it in our shop! The 13 Songs are fresh like you expect it from an album in 2016, but they never give up their 80s roots! 60 Minutes of finest italian steel wait for you!</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281509731&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

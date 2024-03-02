@@ -22,6 +22,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.12.2013 news BEASTO BLANCO: клип &quot;Live Fast Die Loud&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео от проекта <STRONG>BEASTO BLANCO</STRONG> на трек <STRONG>"Live Fast Die Loud"</STRONG> доступно для просмотра ниже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стержнем <STRONG>BEASTO BLANCO</STRONG> является известный бас-гитарист по имени <STRONG>Chuck Garric</STRONG>, засветившийся во многих проектах и группах, среди которых, <STRONG>JOURNEY</STRONG>, <STRONG>ALICE COOPER</STRONG>, <STRONG>DIO</STRONG>, <STRONG>L.A. GUNS</STRONG>, <STRONG>ERIC SINGER PROJECT</STRONG> и др.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный диск <STRONG>BEASTO BLANCO</STRONG> под названием <STRONG>"Live Fast Die Loud" </STRONG>вышел 29 октября 2013 г. на лейбле <STRONG>Rat Pak</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальный сайт: <A href="http://www.beastoblanco.com/">www.beastoblanco.com</A></FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/gfLH06Y94yU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

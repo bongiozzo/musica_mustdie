@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.06.2016 news CARNAL DECAY выпустили демо
+
+<p>Швейцарские death-metal'исты <strong>CARNAL DECAY</strong> выпустили новое demo. Релиз был записан в<strong> Kohlekeller Studio</strong> с продюсерами <strong>Kristian „Kohle“ Kohlmannslehner</strong> и <strong>Kai Stahlenberg</strong>.</p><p><center><iframe src="https://bandcamp.com/EmbeddedPlayer/album=3355682264/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/track=3180496134/transparent=true/" style="border: 0px currentColor; width: 100%; height: 120px;" seamless="">&amp;amp;lt;a href="http://carnaldecay.bandcamp.com/album/promo-2016"&amp;amp;gt;Promo 2016 by CARNAL DECAY&amp;amp;lt;/a&amp;amp;gt;</iframe><p></p></center>
+Автор: Vit Belov
+
+### 14.06.2016 news CARNAL DECAY to release demo
+
+<p><strong>CARNAL DECAY</strong> will release two-song demo on July, 1.&nbsp;Promo 2016 was engineered, recorded, mixed and mastered at <strong>Kohlekeller Studio</strong> in Seeheim Jugenheim, Germany January 2016 by <strong>Kristian „Kohle“ Kohlmannslehner</strong> and <strong>Kai Stahlenberg</strong>.</p><p>Carnal Decay / Virulency / Cancerous Womb tour dates:</p><p>05.07.2016 – D – Leipzig – 4rooms // <a href="https://www.facebook.com/events/547330292122031">https://www.facebook.com/events/547330292122031</a><br>06.07.2016 – NL – Tilburg - Extase // <a href="https://www.facebook.com/events/1749534208595801">https://www.facebook.com/events/1749534208595801</a><br>07.07.2016 - BEL - Antwerpen - Music City<br>08.07.2016 - BEL - Roselare - De Verlichte Geest // <a href="https://www.facebook.com/events/209011926144186">https://www.facebook.com/events/209011926144186</a><br>09.07.2016 - D - Schriesheim - Awwgegrinded // <a href="https://www.facebook.com/events/582110518662521">https://www.facebook.com/events/582110518662521</a><br>10.07.2016 - T.B.A.<br>11.07.2016 - FL - Vaduz - Take 5 // <a href="https://www.facebook.com/events/1728231147432703">https://www.facebook.com/events/1728231147432703</a><br>12.07.2016 - CH - Zьrich - Ebrietas // <a href="https://www.facebook.com/events/1745553145731536">https://www.facebook.com/events/1745553145731536</a></p><p><center><iframe src="https://bandcamp.com/EmbeddedPlayer/album=3355682264/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/track=3180496134/transparent=true/" style="border: 0px currentColor; width: 100%; height: 120px;" seamless="">&amp;amp;amp;amp;amp;lt;a href="http://carnaldecay.bandcamp.com/album/promo-2016"&amp;amp;amp;amp;amp;gt;Promo 2016 by CARNAL DECAY&amp;amp;amp;amp;amp;lt;/a&amp;amp;amp;amp;amp;gt;</iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

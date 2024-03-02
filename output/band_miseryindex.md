@@ -101,6 +101,536 @@ Matt Byers - drums
 * C группой "Dying Fetus" Sparky Voyles (guitars)
 * C группой "Dying Fetus" Jason Northerton (vocals/bass)
 
+## Публикации
+
+### 22.10.2003 reviews Группа бывших участников DYING FETUS
+
+<P>Вокалист/басист Jason Northerton и гитарист Sparky Voyles, уйдя из DYING FETUS организовали достаточно крепкую death-metal команду. Nuclear Blast могут вдовль утешить свою давнюю любовь к этому стилю, выпустив альбом MISERY INDEX. Описывать их музыку легко и сложно. В меру мясной и достаточно хорошо исполненный death-metal, что ещё можно ожидать от этих людей. В тоже время коллектив не имеет каких-то ярковыраженных отличительных черт. "Мясные маньяки" вполне могут получить удовольствие от музыки MISERY INDEX, но феноменальных продаж от них ждать не стоит. Можно рекомендовать исключительно фэнам death-metal.</P>
+<P>Диск предоставлен точкой B2-100</P>
+<P>
+<CENTER><IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 25.10.2003 reviews The band of ex-members of DYING FETUS
+
+Vocalist/bassist Jason Northerton and guitarist Sparky Voyles organized strong enough death-metal band, when they left DYING FETUS. Nuclear Blast can assuage their old love to&nbsp;this style,&nbsp;releasing album by MISERY INDEX. Describing of their music is both easy&nbsp;and hard. Brutal enough and rather good presented death-metal, what can we wait for from this people? In other hand The band doesn't have some special features. 'Meat maniacs' can get satisfaction from music by MISERY INDEX, but we can wait for phenomenal salings from them. I can advise to all fans of death-metal exclusively.
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 15.11.2003 news Новое видео DESTRUCTION
+
+<P>Легендарное немецкое thrash metal трио <B>DESTRUCTION</B> закончило работу над новым видеоклипом <B>"Desecrators Of The New Age"</B>, который представляет из себя фрагменты с выступлений на открытом воздухе. Вскоре вместе со своими "товарищами по лейблу" <B>GRAVEWORM</B>, <B>DEW-SCENTED</B> и <B>MISERY INDEX</B> группа будет выступать в серии фестивалей X-Mas Festivals 2003, а в 2004 году примет участие в Wacken Anniversary Festival 2004.</P>
+Автор: Darkfall
+
+### 17.03.2004 news Misery Index расстались с барабанщиком
+
+<P>Death-metal группа <B>MISERY INDEX</B>, в которой принимают участие бывшие музыканты <B>DYING FETUS</B>, рассталась с барабанщиком <B>Matt Byers. </B>Заинтересованных музыкантов просят обращаться на <A href="mailto:miseryindexbooking@hotmail.com">miseryindexbooking@hotmail.com</A>.</P>
+Автор: Vit Belov
+
+### 21.07.2004 news MISERY INDEX in USA and Europe
+
+01.07.2004 WILKES BARRE, PA - The Zoo (USA)<BR>02.07.2004 SMITHTOWN, LONG ISLAND, NY - Saints and Sinners (USA)<BR>03.07.2004 QUEENS, NY - Redzone (USA)<BR>05.07.2004 BOSTON, MA - O'Brien's Pub (USA)<BR>06.07.2004 NEWARK, DE - The Pisshole (USA)<BR>07.07.2004 GRAHAM, NC - Castelda's (USA)<BR>08.07.2004 NORFOLK, VA - Palleteґs (USA)<BR>09.07.2004 ATLANTA, GA - Swayze's Venue (USA)<BR>11.07.2004 JACKSONVILLE, FL - Thee Imperial (USA)<BR>13.07.2004 GULFPORT, MS - Kirkґs Bizґzar (USA)<BR>15.07.2004 CINCINNATI, OH - Sudsy Malone's (USA)<BR>16.07.2004 NASHVILLE, TN - the Muse (USA)<BR>17.07.2004 PITTSBURGH, PA - Giorgio's (USA)<BR>21.07.2004 BUFFALO, NY - Cruise In (USA)<BR>23.07.2004 ELIZABETH, NJ - Hellfest (USA)<BR>06.08.2004 WACKEN - Wacken Open Air 2004 (D)<BR>11.08.2004 AACHEN - Musikbunker (D)<BR>14.08.2004 BAD BERKA - Party San Open Air 2004 (D)<BR>16.08.2004 ROTHENBURG - tba (D)<BR>17.08.2004 HAMBURG - Markthalle (D)<BR>18.08.2004 OSNABRьCK - Tor 3 (D)<BR>19.08.2004 GENT - Frontline (BEL)<BR>20.08.2004 BAD SALZUNGEN - Pressenw (D)<BR>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 28.02.2006 news Новый альбом MISERY INDEX
+
+<P>Новый альбом <STRONG>MISERY INDEX "Discordia"</STRONG> выходит 16 мая на <STRONG>Relapse</STRONG>. Трэк-лист:</P>
+<P>01. <B>Unmarked Graves</B><BR>02. <B>Conquistadores</B><BR>03. <B>Outsourcing Jehovah</B><BR>04. <B>Breathing Pestilence</B><BR>05. <B>Meet Reality</B><BR>06. <B>Sensory Deprivation</B><BR>07. <B>The Meduse Stare</B><BR>08. <B>Dystopian Nightmares</B><BR>09. <B>Discordia</B><BR>10. <B>Pandemican</B></P>
+Автор: Vit Belov
+
+### 19.12.2007 news Новая песня MISERY INDEX
+
+<P><STRONG>MISERY INDEX</STRONG> выложили новую песню <STRONG>"The Color of Blood" </STRONG>на своей <STRONG>MySpace</STRONG> страничке. Песня вошла на новый split-EP группы с <STRONG>MUMAKIL.</STRONG></P>
+<P>Ссылка: <A href="http://www.myspace.com/miseryindex">http://www.myspace.com/miseryindex</A></P>
+Автор: Vit Belov
+
+### 03.01.2008 news MISERY INDEX войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MISERY INDEX</STRONG> забронировали студию на май для записи новой пластинки, которая выйдет на<STRONG> Relapse</STRONG>. Продюсером новой работы выступит гитарист <STRONG>CONVERGE</STRONG> <STRONG>Kurt Ballou</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 19.01.2008 news DESPISED ICON и MISERY INDEX в Москве
+
+<P><IMG height=553 alt="" hspace=0 src="/images/shows_rus/2008.02/12068.jpg" width=400 align=left border=5>DESPISED ICON (Canada)<BR>MISERY INDEX (USA)<BR>ABOMINABLE PUTRIDITY (Russia)<BR>18 февраля, Москва, клуб «Точка» 19:00<BR>Предварительная продажа : от 700 р.<BR>Продажа билетов: касса клуба, сеть магазинов «Сквот» (м.Добрынинская, м.Октябрьское Поле, м.Сокольники, м.Сухаревская), магазин «Рок – Арсенал» (м.Курская), магазин «Зиг-Заг» (м.Киевская)<BR>DESPISED ICON (Canada)<BR>Образовавшись в 2002 году, Монреальская deathcore команда DESPISED ICON, состоящая из 6 участников, сформировалась из таких плодородных команд как Neuraxis, In Dying Days и Heaven’s Cry. Альбом Consumed By Your Poison – первый альбом группы, выпущенный в 2002 году на Canada’s Galy Records быстро привлёк внимание растущего общества метал андерграунда. После его релиза, DESPISED ICON провели бесчисленное множество концертов и фестивалей, спуская с привязи свою брутальность на глазах у поклонников. В начале 2004 года, DESPISED ICON выпустили свой второй релиз, EP озаглавленный Syndicated Murderers, который тут же был признан как самый многообещающий канадский метал-релиз.<BR>В 2005 году, команда достигла пика своей многообещающей карьеры, сделав Split с группой Bodies in the Gears of the Apparatus, записанный на Relapse Records. Это split был отмечен как самый яркий релиз Century Media Records. Позже DESPISED ICON выпустили полноценный альбом, названный The Healing Process (2005). Как и другие работы команды, альбом был признан лучшим своего рода. Проводив время в туре по миру в 2005-2006, DESPISED ICON приступили к записи нового альбома, который был выпущен в 2007 году, названный The Ills of Modern Man. Альбом записан в жанре technical deathcore и был признан мировым релизом команды. <BR><A href="http://www.despisedicon.com/">www.despisedicon.com</A><BR><A href="http://www.myspace.com/despisedicon">www.myspace.com/despisedicon</A><BR>MISERY INDEX (USA)<BR>2001 год стал временем, когда четверо "музыкальных террористов", более известных сегодня как Misery Index, решили показать всему миру, что значит настоящий экстремальный метал. Музыка этой группы, впитавшая в себя самую сущность таких экстремальных стилей, как грайндкор и дез-метал, поражает своей невероятной брутальностью и сложностью исполнения. Однако Misery Index не просто создают тяжелейшую и сложнейшую по технике игры музыку. В то время, как большинство коллективов, работающих в этом жанре, предпочитают играть по строго выстроенной схеме, лишь изредка привнося что-то новое в свое звучание, Misery Index не знают границ как в совершенствовании своих навыков, так и в совершенствовании своего саунда. Бесспорное мастерство музыкантов и многогранное творчество коллектива позволяют Misery Index на протяжении вот уже более 5 лет занимать лидирующую позицию на американской метал-сцене.<BR><A href="http://www.miseryindex.com/">www.miseryindex.com</A><BR><A href="http://www.myspace.com/miseryindex">www.myspace.com/miseryindex</A><BR>ABOMINABLE PUTRIDITY (Russia)<BR>Презентация нового альбома, вышедшего в Чехии, а также новый «мерч» (футболки) от группы!!!<BR><A href="http://www.myspace.com/abominableputridity">www.myspace.com/abominableputridity</A></P>
+Автор: Vit Belov
+
+### 20.06.2008 news MISERY INDEX закончили альбом
+
+<P><STRONG>MISERY INDEX</STRONG> закончили работу над новым альбомом <STRONG>"Traitors"</STRONG>, который выйдет в сентябре на <STRONG>Relapse</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.07.2008 news Новая песня MISERY INDEX
+
+<P>Мы уже сообщали, что 6 октября на<STRONG> Relapse</STRONG> выходит новый альбом<STRONG> MISERY INDEX</STRONG> <STRONG>"Traitors". </STRONG>Группа выложила новую песню на своей <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/miseryindex">http://www.myspace.com/miseryindex</A></P>
+Автор: Vit Belov
+
+### 18.11.2009 news MISERY INDEX сочинили песни
+
+<P><STRONG>MISERY INDEX</STRONG> сообщают, что сочинили девять новых&nbsp;песен, которые будут записаны в января для следующего альбома. </P>
+<P>Также <STRONG>MISERY INDEX</STRONG> планируют издать сборник всех своих EP и сплитов под названием <STRONG>'Pulling Out The Nails'</STRONG>. Диск выйдет на <STRONG>Anarchos Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 31.12.2009 news MISERY INDEX готовят новый альбом
+
+<P><STRONG>MISERY INDEX</STRONG> войдут в студию <STRONG>Wright Way Studios</STRONG> (<B>DYING FETUS</B>, <B>SLIPKNOT</B>, <B>MOS DEF</B>) 2 января для записи новой работы <STRONG>"Heirs To Thievery". </STRONG>Предположительно эта пластинка выйдет в апреле 2010 года. Трэк-лист:</P>
+<P>01. <B>Embracing Extinction</B><BR>02. <B>Fed To The Wolves</B><BR>03. <B>The Carrion Call</B> <BR>04. <B>Heirs To Thievery</B> <BR>05. <B>Spectator</B><BR>06. <B>The Seventh Cavalry</B><BR>07. <B>Illuminaught</B><BR>08. <B>Plague Of Objects</B><BR>09. <B>You Lose</B> <BR>10. <B>Sleeping Giants</B></P>
+Автор: Vit Belov
+
+### 25.02.2010 news Компиляция MISERY INDEX
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.02/16292.jpg" width=300 height=300>Полная коллекция всех песен со сплитов и миньонов ВИА <STRONG>MISERY INDEX</STRONG> была выпущена буквально на днях на собственном лейбле музыкантов <STRONG>Anarchos Records</STRONG>. Данная компиляция носит название самой первой песни, записанной группой -&nbsp;<STRONG>"Pulling Out The Nails"</STRONG>. Виниловая версия диска скоро будет доступна на немецком&nbsp;<STRONG>Power It Up</STRONG>.</P>
+<P>На<STRONG> "Pulling Out The Nails"</STRONG> вошло 30 треков, записанных в промежутке с 2001 по 2008 гг.</P>
+<P>Все песни прошли ремастеринг, а диск содержит 24 страничный буклет с фотографиями, пояснениями и списком всех концертов когда-либо сыгранных <STRONG>MISERY INDEX</STRONG>.</P>
+<P>2 января&nbsp;группа вошла в студию <STRONG>Wright Way</STRONG>,<STRONG> </STRONG>для записи нового альбома, получившего название <STRONG>"Heirs To Thievery" </STRONG>(выпуск намечен на май, на <STRONG>Relapse</STRONG>).</P>
+Автор: Headcrusher
+
+### 11.04.2010 news Новая песня MISERY INDEX
+
+<P>Новая песня<STRONG> MISERY INDEX</STRONG> <STRONG>"Carrion Call" </STRONG>доступна для скачивания на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/miseryindex">http://www.myspace.com/miseryindex</A></P>
+<P>Трэк попадёт на новый альбом <STRONG>"Heirs To Thievery"</STRONG>, который выйдет 11 мая на <STRONG>Relapse Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.05.2010 news MISERY INDEX продали тысячу
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=216 alt="" hspace=0 src="/images/news_rus/2010.05/16738.jpg" width=216 align=right border=5>Новый альбом <STRONG>MISERY INDEX</STRONG> <STRONG>"Heirs To Thievery" </STRONG>вышел 11 мая на <STRONG>Relapse Records</STRONG>. В первую неделю в США было продано 1000 экземпляров пластинки. Это не позволило <STRONG>MISERY INDEX</STRONG> попасть в чарты. Альбом был записан в <STRONG>Wright Way Studios</STRONG> (<B>DYING FETUS</B>, <B>SLIPKNOT</B>, <B>MOS DEF</B>) с продюсером <STRONG>Steve Wright</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Embracing Extinction</B><BR>02. <B>Fed To The Wolves</B><BR>03. <B>The Carrion Call</B> <BR>04. <B>Heirs To Thievery</B> <BR>05. <B>Spectator</B><BR>06. <B>The Seventh Cavalry</B><BR>07. <B>Illuminaught</B><BR>08. <B>Plague Of Objects</B><BR>09. <B>You Lose</B> <BR>10. <B>Sleeping Giants</B></P>
+Автор: Vit Belov
+
+### 12.10.2010 reviews Не DYING FETUS единым
+
+<P>MISERY INDEX был основан бывшими участниками DYING FETUS во главе с оригинальным басистом/вокалистом легендарной группы Jason Netherton. В 2001 году в DF произошёл раскол, и все музыканты покинули своего лидера гитариста John Gallagher. С тех пор MISERY INDEX выпускают уже четвёртый полноформатный альбом, а в группе, кроме Netherton’a не осталось ни одного участника тех событий.</P>
+<P>Стоит отметить, что тот раскол не носил исключительно личностный характер. Думается, имели место и творческие разногласия. Если DYING FETUS продолжили свой путь в жанре брутального death-metal, то MISERY INDEX щедро разбавили свою музыку hardcore и metalcore. Не подумайте, что творчество обозреваемой группы стало менее «зверским» или, упаси Господь, более мелодичным. Просто ритмы, используемые композиторами в MISERY INDEX, вряд ли могли бы найти отражение в музыке DYING FETUS. Вот и на последнем альбоме “Heirs To Thievery” между брутальным и техничными запилами нет-нет да проскочит какой-нибудь «прыгающий» hardcore. Лично меня это совсем не расстраивает. Песни группы не теряют в тяжести от этих процессов, но упорные фанаты классического звучания могут и обидеться. В записи этого альбома приняло участие несколько героев актуального американского death-metal в качестве гостевых исполнителей. Например, Erik Rutan (HATE ETERNAL) или Blake (PIG DESTROYER).</P>
+<P>В общем, получилась хорошая и тяжёлая работа. Звёзд с неба MISERY INDEX не хватают, но дело своё знают хорошо. Заряд энергии и хорошего настроения за эти 35 минут вы точно получите.</P>
+Автор: Vit Belov
+
+### 16.06.2011 news MISERY INDEX теперь на Season Of Mist
+
+<P><B itxtHarvested="0" itxtNodeId="24"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.06/19662.jpg" width=216 height=300>MISERY INDEX</B> подписали соглашение о сотрудничестве&nbsp;с французским лейблом <B itxtHarvested="0" itxtNodeId="23">Season Of Mist</B>.<BR itxtNodeId="22"><BR itxtNodeId="21">Комментирует&nbsp;басист/вокалист <STRONG>Jason Netherton </STRONG>(на фото): </P>
+<P><EM>"Незачем говорить, что мы очень рады началу нашей работы с <B itxtHarvested="0" itxtNodeId="19">Season Of Mist</B> и рады, что теперь находимся со многими нашими любимыми группами на одном лейбле.&nbsp;</EM></P>
+<P><EM>Позже в этом году мы приступим к написанию нашего нового альбома и если всё сложиться удачно, то в 2012 войдём в студию для его записи. </EM></P>
+<P><EM>Спасибо всем тем, кто помог нам добраться туда, где мы находимся в данный момент и благодарим <B itxtHarvested="0" itxtNodeId="14">Season Of Mist</B> за поддержку наших нынешних и будущих стремлений."<BR itxtNodeId="13"></EM><BR itxtNodeId="12"></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 05.02.2013 news MISERY INDEX: &quot;Live In Munich&quot;
+
+<P>Чтобы скоротать ожидание фанатов до выхода нового студийника,&nbsp;американские грайндкорщики&nbsp;<STRONG>MISERY INDEX</STRONG> выпускают концертный диск. Названный <STRONG>"Live In Munich"</STRONG>, альбом был записан в зале <STRONG>"Backstage"</STRONG> (Мюнхен, Германия)&nbsp;18 февраля 2012 года и увидит свет 15 февраля 2013&nbsp;в Европе и 19 февраля 2013 в Северной Америке&nbsp;на лейбле <STRONG>Season Of Mist</STRONG>. Всего будет отпечатано 500 экземпляров пронумерованных вручную.</P>
+<P>Трек-лист: 01. <STRONG>Sleeping Giants</STRONG> | 02.<STRONG> The Carrion Call</STRONG> | 03. <STRONG>You Lose</STRONG> | 04. <STRONG>The 7th Cavalry</STRONG> | 05. <STRONG>The Spectator</STRONG> | 06. <STRONG>The Great Depression</STRONG> | 07. <STRONG>The Illuminaught</STRONG> | 08. <STRONG>Traitors</STRONG> | 09. <STRONG>Siberian (2012 remix)</STRONG></P>
+<P><STRONG>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25402.jpg" width=500 height=500></STRONG> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 01.03.2014 news MISERY INDEX назначили дату
+
+<P>Новый альбом <STRONG>MISERY INDEX "The Killing Gods"</STRONG> выйдет 23 мая на <STRONG>Season Of Mist</STRONG>. Группа записала пластинку в <STRONG>Visceral Sound Studios</STRONG> с продюсером<STRONG> Scott Hull</STRONG> из <STRONG>PIG DESTROYER</STRONG>.</P>
+<P>Обещается "самый длинный и разнообразный" альбом.</P>
+<P>
+<CENTER>&nbsp;<IMG border=0 src="/images/news_rus/2014.03/26704.jpg" width=660 height=244></CENTER>
+Автор: Vit Belov
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

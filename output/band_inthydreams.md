@@ -48,6 +48,33 @@ Melodic death metal
 * C группой "Carnal Forge" Petri Kuusisto
 * C группой "Asperity" Petri Kuusisto
 
+## Публикации
+
+### 05.12.2000 news Записан новый альбом &quot;In Thy Dreams&quot;
+
+<p>Мелодик-дэтстеры "In Thy Dreams" закончили запись альбома "Highest Beauty". Дата выхода февраль 2001.</p>
+
+Автор: Yermola
+
+### 09.12.2000 reviews Гиперскоростной melodic-death-metal из Швеции
+
+<p>Гиперскоростной melodic-death-metal из Швеции. Да, именно такая музыка и должна звучать у врат удовольствия. Она должна заманивать и завлекать. Потрясающий альбом впитавший в себя все лучшее из классического death-black-metal. Убийственная музыка. Мастерски техничная игра музыкантов, масса перемен скорости, брутально и мелодично одновременно. Иногда звучат скрипочки как у Ebony Tears. Но в целом, эта музыка больше напоминает At The Gates. Особенно своей совершенно злобной и ненавистной атмосферой. Альбом понравится как любителям экстремальщины, так и поклонникам мелодизма. Жаль только он маловат (кстати, этим же грешили и At The Gates). Слишком все быстро пролетает, не успеваешь в достатке насладиться этим творением. Для этого на японском издании диска припасен сюрприз: дописаны пять вещей группы с мини-альбома 1997 года "Stream Of Dispraised Souls". Тем, кто не сможет достать чпонскую версию, остается только включить диск с самого начала и угорать дальше по полной программе.</p>
+
+Автор: Dimas
+
+### 11.12.2001 news Sweden&#39;s In Thy Dreams, featuring members of Carnal Forge and Dellamorte....
+
+<p>Sweden's In Thy Dreams, featuring members of Carnal Forge and Dellamorte, are strongly rumored to have disbanded after the release of Highest Beauty. <BR> <BR> It appears guitarist Jari Kuusisto and drummer Stefan Westerberg aren't interested in pursuing the project anymore and want to focus more on Carnal Forge. However, the chance is likely that guitarist Hakan Stuvemark and bassist Petri Kuusisto will continue the outfit with vocalist Thomas Lindfors. Apparently, there's a lot of debate on the status of the band. <BR> <BR> We'll have more confirmed news on In Thy Dreams as we get it, but if you haven't check out the band's latest album, Highest Beauty. The release is out now on Century Media Records.</p>
+
+Автор: Yermola
+
+### 11.12.2001 news Мечта сбывается и не сбывается...
+
+<p>Шведы "In Thy Dreams" (имеющие в своем составе участников "Carnal Forge" и "Dellamorte") решили разойтись после выпуска альбома "Highest Beauty". Похоже, что гитарист Jari Kuusisto и барабанщик Stefan Westerberg больше не заинтересованы в этом проекте и собираются сфокусироваться на "Carnal Forge". Возможно дело "In Thy Dreams" захотят продолжить оставшиеся гитарист Hakan Stuvemark, бассист Petri Kuusisto и вокалист Thomas Lindfors. Подождем дополнительной информации от команды...</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

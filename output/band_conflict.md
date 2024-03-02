@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.10.2016 news CONFLICT выпустили новое видео
+
+<p>Московская industrial death metal группа с женским вокалом<strong> CONFLICT</strong> выпустила видео на песню "<strong>Mechanism Of Life</strong>". Трек взят с последнего на сегодня альбома коллектива <strong>"Transform Into A Human"</strong>.</p><p>С звуком работал инженер <strong>Greg Reely</strong> (Fear Factory, Devin Townsend, Paradise Lost).</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/eACUUymtY-Q" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 17.10.2016 news CONFLICT released new video
+
+<p>Release of an incredible new promo video from Russia’s number one industrial metal band, <strong>Conflict</strong>. ‘<strong>Mechanism Of Life’</strong> is taken from the band’s devastating second full length album, Transform Into A Human and presents a disturbing vision of a dark future, where the lines between man and machine have become irrevocably blurred. The band explore fundamental questions about the nature of humanity over a sonic backdrop of steel-plated riffs, machine driven rhythms and swathes of bleak melody. Front woman Anna provides a fiery focal point, a visually and vocally commanding presence that draws you into the dystopian world of ‘Mechanism Of Life’.</p><p>Conflict’s metallic muscle has been honed to fearsome perfection by engineer <strong>Greg Reely</strong>, who has worked with the likes of Fear Factory, Devin Townsend and Paradise Lost, which allows the breathtaking power of the song to shine through the dark shadows of the video’s imagery.</p><p>The video – one of the finest you’ll see this year or any other, is available below, so please watch and share – spread the word of Conflict’s dire warning.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/eACUUymtY-Q" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

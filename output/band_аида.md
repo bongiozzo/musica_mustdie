@@ -8,6 +8,9 @@ Power-metal-progressive band from Samara
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

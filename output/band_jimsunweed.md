@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.12.2006 news JIM SUNWEED на Sound Age
+
+<P><STRONG><IMG height=424 alt="" hspace=0 src="/images/news_rus/2006.12/11021.jpg" width=300 align=left border=5>Sound Age Productions</STRONG> представляет дебютный релиз питерской alternative/new wave/metal группы <STRONG>JIM SUNWEED</STRONG>.</P>
+<P>Всех, кто ждал этого события, хотим обрадовать: на московском лейбле<STRONG> Sound Age Productions</STRONG> осуществлен&nbsp; релиз дебютного англоязычного альбома группы <STRONG>JIM SUNWEED "More Than Just</STRONG>"! Кроме отменного музыкального материала, можно&nbsp; отметить&nbsp; отличный дизайн диска, который представлен полноценной полиграфией с текстами и фотографиями участников группы.&nbsp; Группа надеется,что эта пластинка порадует не только слушателей альтернативной музыки, но и тру-металлистов.<BR>Web Site: <A href="http://www.jimsunweed.com">http://www.jimsunweed.com</A><BR>Contact: <A href="mailto:org@jimsunweed.com">org@jimsunweed.com</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

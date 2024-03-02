@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2016 news ALDARIA - новая метал-опера
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Power metal опера <strong>ALDARIA</strong> от норвежского музыканта <strong>Frode Hovd</strong> представила обложку нового альбома <strong>"Land Of Light".</strong> Работа над проектом вошла в завершающую стадию, и музыкант ищет подходящего издателя для столь амбициозного проекта. </font></p><p>Певцы:</p><p>Fabio Lione (Rhapsody of Fire)<br>Rick Altzi (Masterplan)<br>Todd Michael Hall (Riot V)<br>Yannis Papadopoulos (Wardrum)<br>Tommy ReinXeed (ReinXeed)<br>Jonas Heidgert (Dragonland)<br>Kristoffer Gobel (ex Falconer)<br>David Akesson (Qantice)<br>PelleK (PelleK)<br>Marit Borresen<br>Bernt Fjellestad (Guardians Of Time)<br>Vasilis Georgiou (Sunburst)<br>Sigfried Samer (Dragony)<br>Mayo Petranin (Signum Regis)<br>Konstantin Naumenko (Sunrise)<br>Mina Giannopoulou</p><p>Музыканты:</p><p>Uli Kusch, Frode Hovd, Mike LePond, Christer Haroy, Jimmy Hedlund, Peter Danielsen, Andreas Nergard, Peter Crowley, Ronnie Konig, Kenneth Skarsvag, Rayner Haroy, Filip Andel, Paolo Campitelli, Linus Abrahamson, Robert Myrhaug, Filip Kolus, Mistheria & Gabriels.</p><p><center><img width="455" height="408" src="/images/news_rus/2016.07/29622.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.07.2016 news ALDARIA - New power metal opera
+
+<p>The PowerMetal Opera<strong> ALDARIA</strong> masterminded by<strong> Frode Hovd</strong> has now released the coverart for the upcoming album «<strong>Land of Light</strong>». The album is in its finishing stages of recording, before it will be sent to <strong>Roland Grapow</strong> (Masterplan, Helloween) for mixing and mastering The album features some stunning performances from big names in heavy metal scene, and the lineup so far is:</p><p>Singers:<br>Fabio Lione (Rhapsody of Fire)<br>Rick Altzi (Masterplan)<br>Todd Michael Hall (Riot V)<br>Yannis Papadopoulos (Wardrum)<br>Tommy ReinXeed (ReinXeed)<br>Jonas Heidgert (Dragonland)<br>Kristoffer Gцbel (ex Falconer)<br>David Еkesson (Qantice)<br>PelleK (PelleK)<br>Marit Bшrresen<br>Bernt Fjellestad (Guardians Of Time)<br>Vasilis Georgiou (Sunburst)<br>Sigfried Samer (Dragony)<br>Mayo Petranin (Signum Regis)<br>Konstantin Naumenko (Sunrise)<br>Mina Giannopoulou</p><p>Musicians:<br>Uli Kusch, Frode Hovd, Mike LePond, Christer Harшy, Jimmy Hedlund, Peter Danielsen, Andreas Nergеrd, Peter Crowley, Ronnie Kцnig, Kenneth Skarsvеg, Rayner Harшy, Filip Andel, Paolo Campitelli, Linus Abrahamson, Robert Myrhaug, Filip Kolus, Mistheria & Gabriels.</p><p>Aldaria is now on the lookout for the right label to make this opus reach its full potential.</p><p><center><img width="455" height="408" src="/images/news_rus/2016.07/29622.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

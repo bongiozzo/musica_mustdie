@@ -25,6 +25,28 @@
 * C группой "Fates Warning" Bernie Versailles  (guitar)
 * C группой "Redemption" Bernie Versailles  (guitar)
 
+## Публикации
+
+### 25.01.2001 reviews Сольник Рея Алдера
+
+<p> Знаете ли вы, что вокалист Fates warning в 99 году записал свой сольный альбом? Если нет, то вы очень много потеряли. Данную запись должен иметь в своей домашней фонотеке каждый уважающий себя меломан. Engine звучит гораздо тяжелее основного коллектива Рея Алдера.</p>
+<p> Слушатель буквально пропитывается звучанием и атмосферой данного альбома. Чередование мощных забойных песен и мелодичных красивых баллад, заставляют нас наслаждаться каждой нотой этого альбома. Кстати свою руку к сочинению материала приложили Джо Вера (Armored Saint,Fates Warning) и Берни Версалес (Agent Steel). Прекрасный вокал Рея сочетается с общим звучанием песен настолько органично, что начинаешь жалеть, когда подумаешь, что число таких прекрасных музыкантов строго ограничено. Одно лишь место в альбоме вызывает у меня вопрос. Как может так одинаково "музыкально" мыслить автор песни taste, с музыкантами гр. Deftones (му own summer), причем альбом последних вышел на 2 года раньше.</p>
+
+Автор: Hostile Breed
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

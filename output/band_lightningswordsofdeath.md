@@ -23,6 +23,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.05.2010 news Новая группа на Metal Blade
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.05/16648.jpg" width=359 height=361>Лос-анжелесские андеграундные блэкстеры <STRONG>LIGHTNING SWORDS OF DEATH</STRONG>, опубликовали трек-лист и обложку своего альбома, выходящего в скором времени на <STRONG>Metal Blade</STRONG>. Альбом <STRONG>"The Extra Dimensional Wound"</STRONG> был записан в городе <STRONG>Корона</STRONG>, штат&nbsp;<STRONG>Калифорния</STRONG> и<STRONG> </STRONG>увидит свет 25 мая.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа уже получила&nbsp;похвалу от таких изданий, как <STRONG>Decibel</STRONG>, <B itxtvisited="1">SOD</B>, <B itxtvisited="1">PIT</B> и <STRONG>Metal Maniacs</STRONG>, за своё безжалостное и бесспорно злое звучание.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист альбома:</FONT></P>
+<P>01. <B itxtvisited="1">The Extra Dimensional Wound</B><BR itxtvisited="1">02. <B itxtvisited="1">Nihilistic Stench</B><BR itxtvisited="1">03. <B itxtvisited="1">Invoke the Desolate One</B><BR itxtvisited="1">04. <B itxtvisited="1">Zwartgallig</B><BR itxtvisited="1">05. <B itxtvisited="1">Damnation Pentastrike</B><BR itxtvisited="1">06. <B itxtvisited="1">Venter of the Black Beast</B><BR itxtvisited="1">07. <B itxtvisited="1">Vortricating into Scars</B><BR itxtvisited="1">08. <B itxtvisited="1">Paths to Chaos</B><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 24.07.2011 reviews Если вас не пускают в Макдональдс
+
+<P>Приятно, что легендарный лэйбл Metal Blade обратил своё внимание и на такой стиль, как black-metal. Хочется вспомнить группу ISTAPP с их отличным дебютником. К сожалению, столь же радостных впечатлений не появилось после прослушивания второго альбома американского коллектива LIGHTNING SWORDS OF DEATH “The Extra Dimensional Wound”.</P>
+<P>То, что американцы не умеют играть black-metal, абсолютная неправда. Они умеют, только глядят на этот стиль с собственной колокольни. Безусловно, невозможно ждать от группы из Калифорнии, коей является LIGHTNING SWORDS OF DEATH, студёного и завораживающего black-metal, да ещё и с языческими элементами. Не те проблемы сейчас в США, чтобы увлекаться прогнозами погоды для северной Европы. Музыка заокеанских коллективов всегда была проста и понятна местному потребителю, если только какая-либо группа заранее не вешала на себя соответствующий ярлык и не начинала с порога выносить мозги. Но американским гражданам нужна абсолютная ясность, сказано black-metal, значит, орём и строим ужасные рожи. А ещё, быть может, поклоняемся Сатане со сжиганием разнообразных кукол и чучел. LIGHTNING SWORDS OF DEATH таковы, их музыка проста как три копейки. С небольшой примесью thrash-metal они вываливают на голову своих поклонников свежайшее мизантропичное мясцо. К сожалению, продвинутый любитель black-metal от такого подхода сразу же заскучает, не звери же мы, в конце концов, тож в Макдональдс ходим. Тех же, кто внимательно слушает LIGHTNING SWORDS OF DEATH в Макдональдс попросту не пускают.</P>
+<P>Если вас не пускают в Макдональдс, этот альбом для вас. Ежели же вы ещё не скатились до маргинально-отщепенского существования, пропустите эту работу, она не принесёт вам ничего нового.</P>
+Автор: Vit Belov
+
+### 25.01.2013 news Новое видео LIGHTNING SWORDS OF DEATH
+
+<P>Новый ролик американских блэкарей <STRONG>LIGHTNING SWORDS OF DEATH</STRONG> на песню <STRONG>"Baphometic Chaosium" </STRONG>можно посмотреть ниже. Трек взят с нового одноимённого альбома группы.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/JXZKxu9Zcx0?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -141,6 +141,35 @@ Rudiger Hennecke - Drums
 
 * C группой "Insidious Disease" Marc "Groo" Grewe
 
+## Публикации
+
+### 13.01.2011 news Marc Reign (ex-DESTRUCTION) стал участником MORGOTH
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18167.jpg" width=308 height=450>Воскресшие немецкие дес-металлисты <B itxtvisited="1">MORGOTH</B> опубликовали следующую новость:</P>
+<P><EM>"Мы рады анонсировать Марка Рейна (на фото, <B itxtvisited="1">Marc Reign</B>, ex-<B itxtvisited="1">DESTRUCTION</B>) как того, кто&nbsp;будет сидеть за ударными во время наших концертов, посвящённых празднованию 20-летия&nbsp;альбома "<B itxtvisited="1">Cursed"</B>.<BR itxtvisited="1"><BR itxtvisited="1">"Во время репетиций, мы очень быстро почувствовали, что <B itxtvisited="1">Marc</B> подойдёт нам идеально, т.к. его удар и чувство ритма невероятны! Добро пожаловать на борт!"<BR itxtvisited="1"><BR itxtvisited="1"></EM>Добавляет <B itxtvisited="1">Marc Reign</B>: <EM>"В 1990 когда я был подростком влюблённым в death metal, я отправился на концерт <B itxtvisited="1">MORGOTH</B> (совместным с&nbsp;<B itxtvisited="1">DEMOLITION HAMMER</B> и <B itxtvisited="1">OBITUARY</B>)&nbsp;в берлинском зале <STRONG>Ecstasy</STRONG> и был поражён тем фактом, что немецкая формация <B itxtvisited="1">MORGOTH</B>, может конкурировать с группами американской&nbsp;death metal&nbsp;сцены.&nbsp;Когда, по прошествии 20 лет, <B itxtvisited="1">Mille</B> из <B itxtvisited="1">KREATOR</B> представил меня тем парням [из <STRONG>MORGOTH</STRONG>], для меня стало совершенно ясно, что я хотел бы делать: вернуться назад, к моим death metal корням и устроить адский джем! <BR itxtvisited="1"><BR itxtvisited="1">"Репетиции прошли на отлично,&nbsp;по этому мы решили работать вместе!&nbsp;[...] и мечта стала явью!"<BR itxtvisited="1"><BR itxtvisited="1"></EM>Состав <STRONG>MORGOTH</STRONG> в 2011:<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">Marc Grewe</B> - вокал<BR itxtvisited="1"><B itxtvisited="1">Harry Busse</B> - гитара<BR itxtvisited="1"><B itxtvisited="1">Sebastian Swart</B> - гитара<BR itxtvisited="1"><B itxtvisited="1">Thilo Mellies</B> - бас<BR itxtvisited="1"><B itxtvisited="1">Marc Reign</B> - ударные</P>
+Автор: Headcrusher
+
+### 21.01.2012 news MORGOTH выпустят первый концертный альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Death-metal ветераны <STRONG>MORGOTH</STRONG> работают над концертным альбомом, который сейчас сводится <STRONG>Dan Swano</STRONG> в студии <STRONG>Unisound</STRONG>. Дата релиза CD/DVD - лето текущего года на <STRONG>Century Media</STRONG>. Группа объединилась и дала серию концертов на фестивалях в прошедшем году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=270 src="/images/news_rus/2012.01/22719.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 09.02.2012 news Очередные новости фестиваля &quot;Brutal Assault&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.02/23018.png" width=300 height=165>Организаторы фестиваля <STRONG>"Brutal Assault" </STRONG>сообщают, что хэдлайнером&nbsp;этого года&nbsp;станет легендарная&nbsp;американская&nbsp;группа <STRONG>MACHINE HEAD</STRONG>.</P>
+<P>Мастера своего дела, это&nbsp;группа, которая переосмыслила видение металлического жанра за два последних&nbsp;десятилетия. </P>
+<P>Старая крепость в Йозефов готова принять одну из самых важных металлических групп в истории. Будьте готовы к <STRONG>MACHINE</STRONG> <STRONG>fucking HEAD</STRONG>!!!</P>
+<P>Другие новобранцы фестиваля - финские мелодик детстеры <STRONG>INSOMNIUM</STRONG> и немецкий легендарный коллектив <STRONG>MORGOTH</STRONG>.</P>
+Автор: Headcrusher
+
+### 16.01.2015 news Новый альбом MORGOTH
+
+<P><STRONG>MORGOTH</STRONG> возвращаются с новым альбомом впервые за 19 лет. "<STRONG>Ungod</STRONG>" выйдет 30 марта на Century Media. Трек с нового альбома "<STRONG>Black Enemy</STRONG>" можно услышать на Soundcloud: <A href="https://soundcloud.com/centurymedia/morgoth-black-enemy">https://soundcloud.com/centurymedia/morgoth-black-enemy</A></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### MEMORAIN - интернациональный проект в Москве 30 апреля

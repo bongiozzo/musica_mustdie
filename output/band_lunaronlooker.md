@@ -12,6 +12,9 @@ black metal with art'nheavy elements
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

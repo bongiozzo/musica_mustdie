@@ -315,6 +315,228 @@ Mixed and mastered at Fascination Street Studios in Цrebro, Sweden.
 * C группой "Hagalaz Runedance" Trym
 * C группой "Ov Hell" Ice dale (guitar)
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Вот уж кто удивил, так удивил! После очень неплохих первенцов, в 1997 году Enslaved выпустил очень приятный альбом "Eld".Казалось, что группа нашла свой оригинальный стиль, близкий к pagan-viking-black-metal, и вот... Данная ситуация напомнила мне ещё об одной норвежской группе Gehenna. Там было то же самое. После двух оригинальных альбомов Gehenna этим летом выпустила новый, в духе стандартного норвежского black-молотилова. С Enslaved та же аналогичная ситуация. Похоже в Норвегии теперь мода на black в духе Dark Throne. Очень жаль. Хотя, даже то, что выдаёт Enslaved сейчас очень приятно слушается, просто всё происходит на совершенно других (более высоких) скоростях. Но музыка по-прежнему не потеряла в мелодичности. Потерян дух викингов. Я думаю, что тем кому нравился Enslaved, за редким исключением, понравится и этот альбом.</p>
+
+Автор: Dimas
+
+### 19.03.1999 news 
+
+<p>Gorgoroth решили войти в студию для записи нового альбома "Incipit Sathanas" в июне. Барабанщиком на этой работе будет Аббат из Immortal. Также на альбоме засветится клавишник Enslaved Ивар.</p>
+
+Автор: Vit Belov
+
+### 05.09.2000 news Новый альбом Enslaved
+
+<p> Enslaved выпустят свой новый альбом Mardraum - Beyond The Within 3-го октября этого года. Предположительно он включит в себя композиции со следующими названиями: 'Storre Enn Tid, Tyngre Enn Natt', 'DaudningagaKvida', 'Inngang - Flukt', 'Ormgard', 'Aeges Draum', 'Mardraum', 'Det Endelege Rike', 'Ormgard II: Kvalt I Kysk Hogsang', 'Krigaren Eg Ikkje Kjende', 'Stjerneheimen' и 'Froeyas Smykke'.</p>
+
+Автор: Nybras
+
+### 06.09.2000 news Enslaved will release their new album
+
+<p> Enslaved will release their new album, Mardraum - Beyond The Within, on October 3rd. And here's the tracklisting: 'Storre Enn Tid, Tyngre Enn Natt', 'DaudningagaKvida', 'Inngang - Flukt', 'Ormgard', 'Aeges Draum', 'Mardraum', 'Det Endelege Rike', 'Ormgard II: Kvalt I Kysk Hogsang', 'Krigaren Eg Ikkje Kjende', 'Stjerneheimen' and 'Froeyas Smykke'.</p>
+
+Автор: Nybras
+
+### 08.11.2000 reviews Новое собрание кошмаров из ниоткуда
+
+<p>Новое собрание кошмаров из ниоткуда. Пятый альбом старых викингов без мозга костей. Но viking-metal от Enslaved очень приближен к корням black-metal. Такой же сырой, злой и чрезвычайно агрессивный. Но очень разнообразный. Обильное использование дисторшенов и электронной перкуссии придают музыке подобие синтетичности и механичности. Неживая какая-то музыка получается. Также мне не очень понравилась размытость музыкальных структур и хаотичность риффов. Но музыкантам удалось зато достигнуть оригинальности, не особо отходя от своих корней. Технологизированный black-metal с механическим звучанием и большим разнообразием. Прогресс налицо, но, на мой взгляд, не совсем в лучшую сторону. Слушается интересно, но переслушивать альбом заново ещё долго не хочется. Лишь некоторые, особо удачные места ласкающие слух. Но может, я чего-то не понял...попробуйте сами сделать это.</p>
+
+Автор: Dimas
+
+### 03.04.2001 news ENSLAVED - студийный альбом...
+
+<p>Викинги ENSLAVED планируют запись нового альбома. С 30 июля по 18 августа они будут писаться в Grieghallen Studios, микширование пройдет в Duper Studios с 27 августа по 2 сентября. Дата выхода на Osmose Records - 15 Октября. Из других новостей - барабанщик Dirge Rep решил совмещать работу в ENSLAVED с местом за ударными в AURA NOIR. Более подробные новости на сайте группы www.EnslavedUnion.com</p>
+
+Автор: Yermola
+
+### 03.04.2001 news ENSLAVED - Studio Bound!
+
+<p>ENSLAVED's upcoming album will be released on October 15th through Osmose. The band will be in Grieghallen Studios from July 30th to August 18th. The album will be mixed at Duper Studios from August 27th to September 2nd. Check out the band's website, www.EnslavedUnion.com, for info on the band members. There you'll find the band's entire '92 demo tape, Yggdrasill, available for free download from March 30th. Visitors to the website will also have access to an exclusive track, made during the preparation for the new album. In related news, ENSLAVED's Dirge Rep has joined AURA NOIR as full-time drummer. He has not quit Enslaved, he will do both bands.</p>
+
+Автор: Yermola
+
+### 01.11.2001 news Metal Maniacs Xmass Ball Tour 2001...
+
+<p>ELECTRIC WIZARD will be taking part in the Metal Maniacs Xmass Ball Tour 2001 along with touring partners ENSLAVED, MACABRE, DIABOLIC and SCAR CULTURE. Confirmed dates so far are as follows: <BR> <BR> Dec. 05 - Philadelphia, PA @ The Trocadero Theater <BR> Dec. 06 - TBA <BR> Dec. 07 - Brooklyn, NY @ North Six <BR> Dec. 08 - Attleboro, MA @ Jarrod's Place <BR> Dec. 09 - Springfield, VA @ Jaxx Niteclub <BR> Dec. 10 - Cleveland, OH @ Peabody's <BR> Dec. 11 - Pittsburgh, PA @ The Strand Theater <BR> Dec. 12 - St. Louis, MO @ Creepy Crawl <BR> Dec. 13 - Chicago, Il @ Double Door <BR> Dec. 14 - Aurora, IL @ Riley's Rockhouse <BR> Dec. 15 - Detroit, MI @ The Shelter <BR> Dec. 16 - Bowling Green, OH @ Howards Club H <BR> Dec. 18 - Toronto, ON @ Reverb <BR> Dec. 19 - Montreal, QB @ Foufounes Electroniques <BR> Dec. 20 - TBA <BR> Dec. 21 - New London, CT @ The El N Gee Club<BR></p>
+
+Автор: Yermola
+
+### 21.05.2002 news ENSLAVED news
+
+<p>Norway's ENSLAVED have parted ways with guitarist R. Kronheim following the band's UK tour in March, according to an official statement from the group. ENSLAVED will reportedly not seek a permanent replacement for Kornheim at this time, and will instead utilize session members Arve (guitars) and Oyvind (keyboards) for all future live performances. <BR> In other news, ENSLAVED have commenced work on the follow-up to last year's Monumension, and will enter Grieghallen studios in September to record the album for an early 2003 release. Among the cuts set to be included on the as-yet-untitled CD are "Queen of Night" and "Horns".</p>
+
+Автор: Dimas
+
+### 21.05.2002 news ENSLAVED расстались с гитаристом
+
+<p>Норвежская группа ENSLAVED рассталась с гитаристом R. Kronheim во время мартовского турне по Британии. В ближайшее время группа не будет заниматься поисками нового гитариста, а воспользуется услугами сессионных музыкантов. <BR> В сентябре, группа войдет в Grieghallen studios для записи своего нового альбома, выпуск которого планируется в начале 2003 года.</p>
+
+Автор: Dimas
+
+### 06.01.2003 news Новый альбом ENSLAVED
+
+<p>3 марта 2003 года на Osmose Productions выйдет новый альбом норвежской группы ENSLAVED под названием "Below The Lights". Новый альбом группы наряду с прогрессивным и экспериментальным материалом свойственным последним альбомам будет содержать куски в духе раннего творчества коллектива. Ожидается очень экстремальный материал. Окончательный трэк-лист альбома выглядит так:</p>
+<p> 01. The Crossing <BR> 02. Havenless <BR> 03. A Darker Place <BR> 04. Queen of Night <BR> 05. A Dead Stare<BR> 06. As Fire Swept Clean the Earth<BR> 07. Ridicule Swarm</p>
+
+Автор: Dimas
+
+### 26.06.2003 reviews Достойное продолжение &quot;Monumension&quot;
+
+<p>Не знаю, что ещё держит ENSLAVED на "обласканном" всеми и вся Osmose Productions. Знаю лишь, что это чуть ли не единственная достойная команда, оставшаяся на лейбле, с которым когда-то мечтали заключить контракт все уважающие себя блэковые команды. Впрочем, если бы все последние альбомы ENSLAVED были в духе "Mardraum", то им там было бы самое место. Благо альбом тот был ужасен. Слава богам, в существование которых вроде бы верят музыканты этого коллектива, вслед за "Mardraum" вышел шикарный "Monumension", и ENSLAVED таки реабилитировали своё доброе имя. А что же "Below the Lights"? К счастью, это не более чем достойное продолжение "Monumension". Всё тот же в своём роде психоделичный… и одновременно на удивление простой viking metal. Тягучий, угнетающий… и похвально разнообразный. Не обошлось и без некоторых нововведений. Каких? Послушаете – узнаете ;-). Резюме: блестящий альбом авторства талантливейшей группы.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 18.01.2005 news Номинанты норвежской Alarm Awards
+
+<P>Определились номинанты в категории "<STRONG>Metal</STRONG>" норвежской премии <B>Alarm Awards</B>, вручение которой состоится в Осло 5 февраля. Это оказались группы <B>SUSPERIA,</B>&nbsp;<B>MAYHEM</B>, <B>ENSLAVED</B>, <B>RED HARVEST</B>&nbsp;и <B>KHOLD</B>. Сделать свой выбор можно по <A href="http://www.alarmweb.org/2005/nyheter/index-05metal.html">этому</A> адресу. Пока лидируют музыканты <STRONG>ENSLAVED</STRONG>.</P>
+Автор: Dimas
+
+### 12.05.2005 news ENSLAVED  готовят DVD
+
+<P><STRONG>ENSLAVED</STRONG> готовят новое DVD.&nbsp;На&nbsp;него войдут концерт, отснятый 4 мая этого года в <STRONG>Bergen</STRONG>, а так же интервью и съемки из европейского турне группы</P>
+Автор: Bizarre
+
+### 20.07.2005 reviews Песни, которые поют викинги
+
+<P>Я помню, как впервые услышал “Frost” лет десять назад – на «рыжей» кассете еще…как поразила меня ледяная аутентичная атмосфера и звериная агрессивность музыки – сплав холодного норвежского блэка и наследия викингов в лирике. Как потом нашел случайно на «морбид-нойзовской» кассете сплит с EMEPEROR’ом – и “Hordanes Land” мне понравился еще больше, чем “Frost”, своей сыростью и мелодикой.… Потом вышел “Eld” – «Огонь» - медленный, тягучий, с обилием фольклорных партий, с бешеными всплесками блэка. Помню, как в 98-м купил “Blodhemn” – но этот альбом мне совсем не понравился, он был слишком грубым, слишком прямолинейным и колючим. Я так и не понял его… <BR>Потом – начался период изменений. “Mardraum – Beyond The Within” – в разы потерявший в скорости, но набравшийся какой-то нутряной энергетики - такой раньше у группы не наблюдалось. Следующий за ним альбом – “Monumension” – меня сильно удивил: когда я первый раз его услышал, я просто не поверил, что это ENSLAVED, что это действительно сработал Ивар сотоварищи. Слишком много иных эмоций, слишком много новаций, слишком философски и слишком закрыто. Предпоследний релиз “Below The Lights” я, к сожалению, не слышал. Однажды решившись на эксперимент, с каждым альбомом группа все больше замыкалась в себе, в своем мире, в мире своего творчества…<BR>Все это время, с далекого 1991-го команда развивалась, пробовала, искала и нащупывала свою тропу, оставаясь верной избранному пути viking black metal’а. Однако, с годами в творчестве ENSLAVED произошла неизбежная трансформация. «Викинг», лишь приобретая новые очертания, оставался на своем законном месте, а вот «блэка» становилось все меньше – на смену ему пришел doom metal. Viking doom/black – да, наверное, что-то наподобие этого, однако - что здесь рамки? Рамки здесь – ничто.<BR>“Isa” - это альбом-размышление, альбом-осмысление. Музыка с легким налетом безумия, не от мира сего. Здесь нет ураганных барабанных бласт-битов, нет неистовой гитарной атаки, нет яростных кличей, нет прежней основы – злобы и ненависти. Их место заняли другие составляющие – мудрость и печаль. Здесь даже лютый прежде скриминг пропитан обреченностью. Структура песен – изломанная, переменчивая, кажущаяся чрезмерно упрощенной, примитивной – но на самом деле это не так. <BR>Сама песня “Isa” – неторопливая, усыпляющая, с отстраненным атмосферным фоном и великолепной вокальной работой. “Bounded By Allegiance” – красивые соло, совершенно несвойственные ни викингу, ни блэку.&nbsp; “Violet Dawning” – самый, пожалуй, напряженный и жесткий трэк на всем альбоме, с пульсирующими барабанами и чередующимися вокалами – чистым и кричащим. Очень интересной и контрастной получилась “Return To Yggdrasill” – это почти баллада, разреженная агрессивными и тяжелыми, но небыстрыми партиями. Инструментал “Secrets Of The Flesh” – так, наверное, звучит ветер в холодных скандинавских фьордах.…&nbsp; Вгоняет в ступор “Neogenesis” – поначалу мягкая, необычно грустная композиция с чистым красивым вокалом, впоследствии она вылилась чуть ли не в энергичный трэш, а после снова – превратилась в неспешный с лиричными гитарами, и так еще несколько раз. Потрясающее разнообразие.<BR>Как-то ведь надо это завершить?.. ENSLAVED давно стали легендой, и как я уже писал выше, музыку их не имеет смысла втискивать в стилистические рамки – все равно они окажутся тесными и узкими. Куда в дальнейшем их заведет путь развития – покажет время.</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Dr. Grandma
+
+### 12.01.2006 news ENSLAVED назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ENSLAVED </STRONG>будет называться "<STRONG>Ruun</STRONG>" и выйдет 8 мая на <STRONG>Tabu</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.11.2007 news OVERKILL и ENSLAVED посетят нашу страну
+
+<P><STRONG>OVERKILL</STRONG> опубликовали даты своего ближайшего тура по Европе. В расписание попали три наших города, при этом написано, что концерты будут совместно с норвежцами <STRONG>ENSLAVED</STRONG>:</P>
+<P>29 февраля - КИЕВ</P>
+<P>01 марта - Москва</P>
+<P>02 марта - Санкт-Петербург</P>
+Автор: Vit Belov
+
+### 22.01.2008 news Wacken Road Show в СПб отменено
+
+<P><STRONG>Wacken Road Show</STRONG> в Санкт-Петербурге 2-го марта с участием <STRONG>TRISTANIA, ENSLAVED</STRONG> и <STRONG>OVERKILL</STRONG> отменено, из-за выборов Президента РФ. При этом концерт в Москве, намеченный на 1-ое марта состоится.</P>
+Автор: Vit Belov
+
+### 01.03.2008 news WACKEN ROAD SHOW 2008 в Москве
+
+<IMG height=300 alt="" hspace=0 src="/images/news_rus/2008.03/12293.jpg" width=400 align=left border=5>Musickness Russia представляет:<BR>1 марта 2008<BR>клуб ТОЧКА<BR>грандиозный весенний фестиваль<BR>WACKEN ROAD SHOW 2008<BR>состав участников:<BR>TRISTANIA (NOR)<BR>ENSLAVED (NOR)<BR>OVERKILL (USA)<BR>+ специальные гости<BR><BR>справки и заказ билетов: <A href="mailto:musickness@mail.ru"><U><FONT color=#0000ff>musickness@mail.ru</FONT></U></A>
+Автор: Vit Belov
+
+### 15.07.2008 news ENSLAVED в сентябре
+
+<P>Норвежцы <STRONG>ENSLAVED</STRONG> сообщили о подписании контракта с лэйблом <STRONG>Indie Recordings</STRONG>. Новый альбом группы "<STRONG>Vertebrae</STRONG>" выйдет в сентябре.</P>
+Автор: Vit Belov
+
+### 18.11.2008 reviews Ни уму, ни сердцу…
+
+<P>Многие группы взрослеют, и от этого их музыка становится более зрелой, менее энергичной и, чаще всего, менее понятной. Норвежские, некогда viking-black-metal’исты, ENSLAVED двигаются именно в этом направлении. В направлении отхода от металл-стандартов и приобретения новых несвойственных стилю форм.</P>
+<P>Новая работа группы “Vertebrae” продолжает линию предыдущих работ коллектива. Линию? Это я так сказал, штампик такой выдал. Скорее, не линию, а кривую предыдущих альбомов. ENSLAVED делают всё, чтобы растерять своих прежних фанатов и приобрести новых. Их альбомы адресуются любителям нестандартной металл-музыки, прогрессивной металл-музыки. Норвежцы ловко мешают art-rock и atmospheric с black-metal, при этом black-metal становится всё меньше и меньше. В основном группа напевает и наигрывает нечто заунывное и грустное, перемежая все эти достоинства с сырым black-metal, который выполняет роль некоторого инструмента, который помогает композитору напугать слушателя до онемения, чтобы он с чистой совестью после этого смог оценить всю атмосферность и мелодичность музыки. К сожалению, в данной хитрой комбинации теряется весь смысл, об этом мы не перестаём говорить десятилетиями по отношению к подобным экспериментальным работам. Любителям ANATHEMA, PINK FLOYD или TOOL совершенно не нужны дикие black-metal вопли, а приобщить пробитого фэна чернушного металла к прекрасному не всегда удастся, да и надо ли это. Надо ли это самим ENSLAVED, или слушателям их нового альбома, которые приобрели его, по ошибке приняв ENSLAVED за тех самых «блэкарей» из Норвегии?</P>
+<P>Все эти мои размышления не имеют никакого смысла. Они не имеют никакого смысла для меня, так как обозреваемый альбом не пробудил во мне никаких особых чувств. Я попытался проникнуться его атмосферой, но быстро погорел на этом, потому что заснул. Проснувшись заслушал “Vertebrae” ещё разок. Ну, что же… Экспериментальненько-экспериментальненько…</P>
+Автор: Vit Belov
+
+### 04.12.2008 news Видео от ENSLAVED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип на песню <STRONG>ENSLAVED</STRONG> <STRONG>"The Watcher"</STRONG>, снятый режиссёром <STRONG>Patric Ullaeus</STRONG> (<B itxtvisited="1">DIMMU BORGIR</B>, <B itxtvisited="1">KEEP OF KALESSIN</B>, <B itxtvisited="1">IN FLAMES</B>) можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=47211690">ENSLAVED - The Watcher (album: VERTEBRAE)</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=47211690,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=47211690,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 26.02.2009 news Дебют ENSLAVED переиздан
+
+<P>17 февраля<STRONG> Candlelight</STRONG> переиздали дебютный альбом <STRONG>ENSLAVED</STRONG> <STRONG>"Hordanes Land". </STRONG>В оригинале эта работа вышла в 1993 году на сплите с <STRONG>EMPEROR</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.09.2009 news Бокс от ENSLAVED
+
+<P>Лейбл <STRONG>Viva Hate</STRONG> подготовил к выпуску бокс-сет&nbsp;<STRONG>ENSLAVED</STRONG>, сделанный из&nbsp;дерева и весом почти три киллограма. В него войдут&nbsp;восемь пластинок группы и ещё несколько сувениров. Сами пластинки будут выполнены в трёх цветовых гаммах:</P>
+<P><STRONG>Белый винил</STRONG> (100 копий)</P>
+<P><STRONG>Зелёный винил</STRONG> (200 копий)</P>
+<P><STRONG>Чёрный винил</STRONG> (400 копий)</P>
+<P>Бокс содержит&nbsp;шесть альбомов группы, давно&nbsp;вышедших из тиража, с альтернативным оформлением:</P>
+<P><IMG height=217 alt="" hspace=5 src="/images/news_rus/2009.09/15021.jpg" width=300 align=right vspace=5 border=0>•&nbsp;&nbsp;&nbsp; “<STRONG>Frost</STRONG>” LP <BR>•&nbsp;&nbsp;&nbsp; “<STRONG>Eld</STRONG>” 2xLP<BR>•&nbsp;&nbsp;&nbsp;“<STRONG>Blodhemn</STRONG>”&nbsp; LP<BR>•&nbsp;&nbsp;&nbsp; “<STRONG>Mardraum</STRONG>” LP<BR>•&nbsp;&nbsp;&nbsp; “<STRONG>Monumension</STRONG>” LP<BR>•&nbsp;&nbsp;&nbsp; “<STRONG>Below The Lights</STRONG>” LP<BR>Плюс:<BR>•&nbsp;&nbsp;&nbsp;Переиздание демо ленты&nbsp;"<STRONG>Yggdrassil</STRONG>"<BR>•&nbsp;&nbsp;&nbsp;Эксклюзивную одностороннюю пластинку с сырой инструментальной записью “<STRONG>Hal Valr</STRONG>”, никогда прежде не издававшуюся (запись 1992 г.)<BR>•&nbsp;&nbsp;&nbsp;Эксклюзивную пряжку для ремня <STRONG>Enslaved</STRONG> <BR>•&nbsp;&nbsp;&nbsp;Эксклюзивную военную кепку с вышитым лого <STRONG>Enslaved</STRONG> на ней.<BR>Больше подробностей на сайте лейбла: <A href="http://www.vivahaterecords.com/">www.vivahaterecords.com</A></P>
+Автор: Headcrusher
+
+### 23.01.2010 news ENSLAVED начали запись
+
+<P><STRONG>ENSLAVED </STRONG>начали запись нового альбома в своём родном Бергене. Барабаны группа запишет с инженером <STRONG>Iver Sandoy</STRONG> (<B>TRINACRIA</B>, <B>MANNGARD</B>, <B>EMMERHOFF & THE MELANCHOLY BABIES</B>). Все остальные инструменты будут записаны в собственных студиях музыкантов<STRONG> ENSLAVED</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.07.2010 news Дата релиза ENSLAVED
+
+<P><STRONG>ENSLAVED</STRONG> назвали свой новый альбом <STRONG>"Axioma Ethica Odini". </STRONG>Пластинка увидит свет 27 сентября.</P>
+<P>Последний на сегодня альбом норвежцев <STRONG>"Vertebrae"</STRONG>&nbsp;вышел в 2008 году.</P>
+Автор: Vit Belov
+
+### 16.11.2010 news Журнал Decibel выпустил специальный коллекционный номер, посвящённый стилю Black Metal
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17617.jpg" width=320 height=429>В специальный выпуск журнала <STRONG>Decibel</STRONG>, получивший название "<STRONG>Black Metal Hall Of Fame</STRONG>", вошло восемь историй из общирного склепа стиля&nbsp;<STRONG>Black Metal</STRONG>.&nbsp;Выпуски журнала&nbsp;серии <STRONG>"Hall Of Fame"</STRONG> рассказывают об истории создания наиболее важных альбомов экстремальной музыки, а так же, содержат интервью с музыкантами, принимавшими участие в записи каждого&nbsp;конкретного альбома.&nbsp;</P>
+<P>Перечень историй вошедших в журнал:</P>
+<P><STRONG>BURZUM</STRONG> - "Filosofem" (1996) *<BR itxtvisited="1"><B itxtvisited="1">DARKTHRONE</B> - "Transilvanian Hunger" (1994)<BR itxtvisited="1"><B itxtvisited="1">EMPEROR</B> - "In The Nightside Eclipse" (1995)<BR itxtvisited="1"><B itxtvisited="1">ENSLAVED</B> - "Frost" (1995)<BR itxtvisited="1"><B itxtvisited="1">IMMORTAL</B> - "At The Heart Of Winter" (1999)<BR itxtvisited="1"><B itxtvisited="1">ROTTING CHRIST</B> - "Thy Mighty Contract" (1993) *<BR itxtvisited="1"><B itxtvisited="1">SATYRICON</B> - "Nemesis Divina" (1996) *<BR itxtvisited="1"><B itxtvisited="1">VENOM</B> - "Welcome To Hell" (1981)<BR itxtvisited="1">*<EM>прежде никогда не публиковались.<BR itxtvisited="1"></P></EM>
+<P>Данный номер журнала не доступен для подписчиков. Его можно преобрести в некоторых розничных магазинах или&nbsp;заказать онлайн по адресу: <A href="http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue">http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue</A></P>
+Автор: Headcrusher
+
+### 05.03.2011 news ENSLAVED в России, Украине и Беларуси
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/shows_rus/2011.04/18786.jpg" width=400 height=280>Норвежские прогрессив викинг метал <STRONG>ENSLAVED</STRONG> объявили о четырех датах в СНГ в поддержку своего нового альбома <STRONG>OXIOMA ETHICA ODINI</STRONG>, &nbsp;который по версии авторитетного английского журнала Terrorizer стал одним из лучших &nbsp;метал альбомов 2010 года. Ждем норвежских викингов на концертах:<BR><BR>25.03 - Санкт-Петербург "Орландина"<BR>26.03 - Москва "ХО"<BR>27.03 - Киев "Бинго"<BR>28.03 - Минск "Реактор"</P>
+Автор: Vit Belov
+
+### 07.03.2011 news ENSLAVED выиграли норвежское &quot;Грэмми&quot;
+
+<P><STRONG><IMG height=337 alt="" hspace=0 src="/images/news_rus/2011.03/18833.jpg" width=475 align=right border=0>ENSLAVED</STRONG> были объявлены победителем в номинации "Метал" норвежской премии <STRONG>Spellemann </STRONG>за свой альбом "<STRONG>Axioma Ethica Odini</STRONG>". Другими номинантами премии были:</P>
+<P>* <B>SHINING</B> - "Blackjazz" <BR>* <B>IHSAHN</B> - "After" <BR>* <B>SOLEFALD</B> - "Norron Livskunst"</P>
+<P>Победа стала четвёртой для группы в её истории.</P>
+<P><STRONG>ENSLAVED</STRONG> проедутся с туром по четырём городам бывшего СССР в конце этого месяца.</P>
+Автор: Vit Belov
+
+### 17.03.2011 reviews Незамутнённый норвежский разум
+
+<P>Новый альбом норвежцев ENSLAVED подтверждает их статус одной из самых самобытных black-metal групп на мировой сцене. Коллектив уже получил норвежскую «Грэмми» за “Axioma Ethica Odini”, а сам альбом встречает множество восторженных откликов от поклонников тяжёлой музыки.</P>
+<P>Даже в самом начале своего творчества, когда ENSLAVED стояли у истоков viking-metal, их музыку никак нельзя было назвать простой. Это сейчас viking-metal превратился в эдакий утяжелённый рок с фольклорными мелодиями, тогда, когда норвежцы начинали, подобной музыки им не простили бы. Уже на рубеже веков в музыке ENSLAVED начали появляться прогрессивные нотки, свойственные норвежскому авангардному black-metal. Каждый их альбом отличался от другого, и прослушивание музыки коллектива будило в слушателе целую гамму эмоций. В этот раз ENSLAVED решили удариться в меланхолию, раскрывая свой разум в атмосферной и угрожающе необъятной музыкальной палитре. Чётко отнести музыку группы к какому-то определённому стилю по-прежнему невозможно. Описывать этот альбом не нужно, его нужно почувствовать.</P>
+<P>“Axioma Ethica Odini” можно смело рекомендовать не только и не столько отчаянным поклонникам viking-black-metal. Этот альбом для так называемых ‘open-mind’ поклонников тяжёлой музыки, которым в первую очередь требуется не драйв и угар, а атмосфера и погружение в музыку.</P>
+Автор: Vit Belov
+
+### 29.04.2012 news ENSLAVED на Nuclear Blast
+
+<P>Норвежцы <STRONG>ENSLAVED </STRONG>подписали контракт с <STRONG>Nuclear Blast Records</STRONG>. Предыдущие два альбома коллектива вышли на<STRONG> Indie Recordings</STRONG>. Новая работа авангардных black-metal'истов выйдет осенью.</P>
+<P><center><IMG height=316 src="/images/news_rus/2012.04/23669.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 12.07.2012 news ENSLAVED: новый альбом &quot;RIITIIR&quot;
+
+<P>Новый, двенадцатый&nbsp;по счету студийный альбом норвежской группы&nbsp;<B itxtHarvested="0" itxtNodeId="61">ENSLAVED</B> получил название <B itxtHarvested="0" itxtNodeId="60">"RIITIIR"</B> и должен появиться на свет в Европе 28 сентября и в Северной Америке 2 октября на лейбле <STRONG>Nuclear Blast</STRONG>. Обложку альбома можно увидеть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.07/24336.jpg" width=400 height=400> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.10.2012 reviews Воспарить или обмараться
+
+<P>Норвежцы ENSLAVED, отпраздновавшие свой 20-летний юбилей в прошлом году, подготовили нашему вниманию свой двенадцатый альбом. В Европе группа дебютировала на Nuclear Blast, но на музыке коллектива это никак не отразилось. Группа наяривает всё тот же авангардный атмосферный black-metal, от которого у неподготовленного слушателя волосы встают дыбом.</P>
+<P>ENSLAVED удаётся ещё себя держать в руках на первых нескольких композициях. Открывашка “Though Like Hammer” привлекает внимание отточенной мелодией и интересным ритмическим рисунком. Безусловно, у ENSLAVED на первых вещах мысль легко читается, и музыка доставляет очевидное удовольствие. Далее музыканты отправляются вразнос, мысли композиторов разбегаются по разным углам, и вылавливать их оттуда становится нелегко. Представьте себе модный остросюжетный аттракцион в каком-нибудь ЦПКИО. Вы садитесь в него, и он начинает крутиться. Сначала вы урчите и слегка повизгиваете, но дальше интереснее и вскоре становится страшно и тошно. С музыкой ENSLAVED всё так же, как с этим аттракционом. Кто-то докатает до конца и отделается захватывающими душу ощущениями, а кто-то будет громко плакать и обмарается. Удивительный набор из мелодий, black-metal, кривых риффов и северной атмосферы, который можно сравнивать с BORKNAGAR и VINTERSORG, но, как и любой из этих коллективов, оригинальный и сложноописуемый.</P>
+<P>Хороший альбом, чтобы скоротать вечерок за рюмочкой хереса. Не надо размахивать головой во все стороны, изображать гитариста или строить соседям козу. Просто усядьтесь в мягкое кресло и попытайтесь получить удовольствие, которое может оказаться незабываемым.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/qQ43EPdyPys?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 19.10.2012 news Новый клип ENSLAVED
+
+<P>Новый ролик <STRONG>ENSLAVED</STRONG> на композицию <STRONG>"Thoughts Like Hammers" </STRONG>можно посмотреть ниже. Трек взят с новейшего альбома норвежцев <STRONG>"RIITIIR", </STRONG>который вышел в сентябре на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/dQz0_m16SaU?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

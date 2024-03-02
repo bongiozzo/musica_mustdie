@@ -89,6 +89,146 @@ Produced by Alexander Krull at Mastersound Studio
 * C группой "Theatre of Tragedy" Liv Kristine
 * C группой "Leaves' Eyes" Liv Kristine
 
+## Публикации
+
+### 28.08.2003 news LIV KRISTINE обсуждает поведение своих бывших коллег
+
+<p>Только что уволенная из THEATRE OF TRAGEDY Liv Kristine утверждает, что бывшие коллеги предали и кинули её. Никто не удосужился сообщить ей о своём решении, иначе как по E-mail. "<b>Я шокирована и удивлена этими новостями, которые я получила через Internet. До этого момента ни один из членов группы не проинформировал меня о своём решении. Я только получила письмецо, сообщающее о моём увольнении. Сама я никогда не хотела предавать наших фэнов,</b>" - утверждает певица.</p>
+
+Автор: Vit Belov
+
+### 01.10.2004 news Liv Kristine подписала соло-контракт с RoadRunner
+
+<P><STRONG>Liv Kristine</STRONG> подписала контракт на выпуск сольного альбома с <STRONG>RoadRunner</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей от четы <STRONG>Espenaes-Krull</STRONG>, <STRONG>ATROCITY</STRONG> и <STRONG>LEAVES' EYES</STRONG>&nbsp;в конце года покинет барабанщик <STRONG>Martin Schmidt</STRONG>. Группы ждут кандидатов по адресу: <A href="mailto:info@mastersoundmanagement.de">info@mastersoundmanagement.de</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Напоминаем, что у обоих групп запланирован концерт в Москве 4 декабря.</FONT></P>
+Автор: Vit Belov
+
+### 01.10.2004 news Liv Kristine sign with Roadrunner
+
+<P><STRONG>LIV KRISTINE</STRONG> just signed a worldwide record deal for her soloproject with <STRONG>Roadrunner Records</STRONG>. More news soon!</P>
+<P>In other news, Drummer <STRONG>Martin Schmidt</STRONG> will leave<STRONG> ATROCITY</STRONG> and <STRONG>LEAVES' EYES</STRONG> by the end of the year. Both bands are currently looking for a new drummer. Applications can be send to: <A href="mailto:info@mastersoundmanagement.de">info@mastersoundmanagement.de</A> </P>
+Автор: Vit Belov
+
+### 31.10.2004 news Liv Kristine споёт для UMBRA ET IMAGO
+
+<STRONG>Liv Kristine</STRONG> запишет вокал для ремикса на песню <STRONG>UMBRA ET IMAGO</STRONG> "<STRONG>Ein Letztes Mal</STRONG>".&nbsp;
+Автор: Vit Belov
+
+### 20.07.2005 news Liv Kristine пишет второй сольник
+
+<P>Бывшая вокалиста <STRONG>THEATRE OF TRAGEDY</STRONG>, а ныне - <STRONG>LEAVES' EYES</STRONG>, пишет свой второй сольный альбом "<STRONG>Enter my Religion</STRONG>", который выйдет на <STRONG>Roadrunner</STRONG>. </P>
+<P>"<EM>Песни очень разнообразные</EM>", - говорит <STRONG>Liv Kristine</STRONG>. "<EM>Там будут и лёгкие баллады, и поп-песни, ну и, конечно же, рок-композиции</EM>".</P>
+Автор: Vit Belov
+
+### 20.07.2005 news Liv Kristine to record second solo-album
+
+<P><STRONG>LIV KRISTINE</STRONG> is already busy with producing her second solo album. The well-expected follower to "<STRONG>Deus ex Machina</STRONG>" will be called "<STRONG>Enter my Religion</STRONG>" and will be released on <STRONG>Roadrunner Records</STRONG>. </P>
+<P><STRONG>LIV KRISTINE</STRONG>: "<EM>The recordings are going very well. We have produced so many new songs that it will be hard to make a desicion concerning the final album tracks.The songs are very diverse - you will hear soft ballads, cadanced pop songs and also rocking tracks. It's all so ineteresting for me as we are working with some very exotic instruments. This is a new challenge for me as an artist because I can realize so many new ideas I've been dreaming of for a long time</EM>." </P>
+Автор: Vit Belov
+
+### 12.12.2005 news EP от Liv Kristine
+
+<P><STRONG><IMG height=176 alt="" hspace=0 src="/images/news_rus/2005.12/9839.jpg" width=200 align=right border=5>Liv Kristine</STRONG> выпускает новый EP "<STRONG>Fake A Smile</STRONG>" 26 января на <STRONG>Roadrunner</STRONG>. На пластинку попадут 4 трэка, которые не войдут на будущий альбом, и видео на заглавную песню. Трэк-лист:</P>
+<P>01. <B>Fake A Smile</B> <BR>02. <B>This Is Us</B>* <BR>03. <B>Woman In Me</B>* <BR>04. <B>China Heart</B>* <BR>05. <B>Fake A Smile</B> (Remix)* <BR>* non-album tracks</P>
+Автор: Vit Belov
+
+### 19.01.2006 news Liv Kristine опубликовала кавер-арт
+
+<P><IMG height=394 alt="" hspace=0 src="/images/news_rus/2006.01/9937.jpg" width=400 align=right border=5>3 марта на <STRONG>Roadrunner </STRONG>выходит второй сольный альбом бывшей вокалистки <STRONG>THEATER OF TRAGEDY Liv Kristine</STRONG> "". На сайте лейбла опубликована обложка этой пластинки. Трэк-лист:</P>
+<P>01. <B>Over the Moon</B><BR>02. <B>Fake a Smile</B><BR>03. <B>All the Time in the World</B><BR>04. <B>My Revelation</B><BR>05. <B>Coming Home</B><BR>06. <B>Trapped in your Labyrinth</B><BR>07. <B>Blue Emptiness</B><BR>08. <B>You are the Night</B><BR>09. <B>Enter my Religion</B><BR>10. <B>Streets of Philadelphia</B> (<B>BRUCE SPRINGSTEEN</B> cover)<BR>11. <B>You Take Me Higher</B><BR>12. <B>For a Moment</B></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 24.01.2006 news Вокалистка Liv Kristine споёт на футбольно матче
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалистка <STRONG>LEAVES EYES Liv Kristine</STRONG> споёт 8 февраля на матче немецкой Бундеслиги <STRONG>Штуттгарт - Вердер</STRONG> на <STRONG>Gottlieb Daimler stadium</STRONG> в Штуттгарте. </FONT></P>
+Автор: Vit Belov
+
+### 26.01.2006 news Peter Tagtgren сочинил песню для Liv Kristine
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня "<STRONG>This Is Us</STRONG>" с нового сольного альбома <STRONG>Liv Kristine "Fake A Smile"</STRONG> бывла сочинена <STRONG>Peter Tagtgren (PAIN, HYPOCRISY</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 28.12.2008 news Liv Kristine заканчивает запись
+
+<P>Знаменитая певица<STRONG> Liv Kristine Espenaes</STRONG> <STRONG>Krull </STRONG>(ex-<STRONG>THEATRE OF TRAGEDY</STRONG>, <STRONG>LEAVES' EYES</STRONG>) заканчивает работу над третьим сольным альбомом. Релиз назначен на 2009 год на <STRONG>Napalm Records</STRONG>. <STRONG>Liv Kristine</STRONG>: "<EM>В скором будущем я представлю несколько гостевых музыкантов, принявших участие в записи. Эти люди мои друзья, и значат для меня много. Этот альбом глубокий и очень эмоциональный, он рассказывает мою персональную историю</EM>".</P>
+Автор: Vit Belov
+
+### 18.03.2010 news LIV KRISTINE закончила сольник
+
+<P>Вокалистка <STRONG>LEAVES' EYES Liv Kristine</STRONG> закончила работу над своим новым сольником <STRONG>"Skintight"</STRONG>, который выйдет в этом году на <STRONG>Napalm Records</STRONG>. Певица сообщила, что на новые вещи её вдохновляла <STRONG>Tori Amos</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.06.2010 news Новый альбом Liv Kristine
+
+<P><IMG height=446 alt="" hspace=0 src="/images/news_rus/2010.06/16791.jpg" width=450 align=right border=5>Новый сольный альбом певицы <STRONG>Liv Kristine Espenaes Krull</STRONG> (<B>LEAVES' EYES</B>, ex-<B>THEATRE OF TRAGEDY</B>) <STRONG>"Skintight" </STRONG>выйдет 30 августа на <STRONG>Napalm</STRONG> <STRONG>Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Skintight</B><BR>02. <B>Twofold</B> <BR>03. <B>Train to Somewhere</B> <BR>04. <B>Love in Grey</B> <BR>05. <B>Emotional Catastrophes</B> <BR>06. <B>Life Line</B> <BR>07. <B>Boy at the Window</B> <BR>08. <B>Wonders</B> <BR>09. <B>Versified Harmonies</B> <BR>10. <B>The Rarest Flower</B> <BR>11. <B>One Of Them</B> (limited-edition digipack bonus track) </P>
+<P>Это третий сольник<STRONG> Liv Kristine</STRONG>. Предыдущий "<STRONG>Enter My Religion</STRONG>" вышел на <STRONG>Roadrunner</STRONG>. Не стоит путать сольное творчество певицы и её широко разрекламированный металический проект<STRONG> LEAVES' EYES.</STRONG> </P>
+Автор: Vit Belov
+
+### 05.08.2010 news Новое видео Liv Kristine
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик сольного проекта вокалистки<STRONG>&nbsp;LEAVES' EYES Liv Kristine</STRONG>&nbsp;на песню <STRONG>"Skintight"</STRONG>&nbsp;можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3VMqM0c5BjM&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/3VMqM0c5BjM&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.08.2010 news LIV KRISTINE представила четыре песни
+
+<P>Четыре сэмпла песен с нового альбома вокалистки <STRONG>Liv Kristine</STRONG> (<STRONG>LEAVES' EYES</STRONG>, ex-<STRONG>THEATRE OF TRAGEDY</STRONG>) можно послушать на её <STRONG>MySpace</STRONG> странице: <A href="http://www.myspace.com/livkristinepage">http://www.myspace.com/livkristinepage</A></P>
+<P>Новый альбом певицы <STRONG>"Skintight" </STRONG>выходит 30 августа на <STRONG>Napalm Records</STRONG>. Традиционно сольник <STRONG>Liv</STRONG> содержит pop-rock материал.</P>
+Автор: Vit Belov
+
+### 14.06.2012 news Новый сольник Liv Kristine
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.06/24174.jpg" width=475 height=475>Новый сольный альбом <STRONG>Liv Kristine (LEAVES' EYES)</STRONG> <STRONG>"Libertine" </STRONG>выйдет 7 сентября. Альбом был реализован в студии мужа певицы<STRONG> Alex Krull</STRONG> <STRONG>Mastersound. </STRONG>Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="76">Interlude</B> (intro)<BR itxtNodeId="75">02. <B itxtHarvested="0" itxtNodeId="74">Solve Me</B> <BR itxtNodeId="73">03. <B itxtHarvested="0" itxtNodeId="72">Silence</B> <BR itxtNodeId="71">04. <B itxtHarvested="0" itxtNodeId="70">Vanilla Skin Delight</B> (duet with Tobias Regner)<BR itxtNodeId="69">05. <B itxtHarvested="0" itxtNodeId="68">Panic</B> <BR itxtNodeId="67">06. <B itxtHarvested="0" itxtNodeId="66">Paris Paris</B> <BR itxtNodeId="65">07. <B itxtHarvested="0" itxtNodeId="64">Wait For Rain</B> <BR itxtNodeId="63">08. <B itxtHarvested="0" itxtNodeId="62">Love Crime</B> <BR itxtNodeId="61">09. <B itxtHarvested="0" itxtNodeId="60">Libertine</B> <BR itxtNodeId="59">10. <B itxtHarvested="0" itxtNodeId="58">Meet Me In The Red Sky</B> <BR itxtNodeId="57">11. <B itxtHarvested="0" itxtNodeId="56">The Man With A Child In His Eyes</B> (KATE BUSH cover)</P>
+Автор: Vit Belov
+
+### 18.09.2012 news Новый клип LIV KRISTINE
+
+<P>Новый альбом бывшей вокалистки THEATRE OF TRAGEDY Liv Kristine <STRONG>"Libertine" </STRONG>вышел на этой неделе в России на лэйбле Mazzar. Приобрести эту работу можно в магазине <A href="http://escapemind.ru/">http://escapemind.ru</A></P>
+<P>Видео на песню <STRONG>"Paris Paris" </STRONG>с этого альбома только что появилось в сети. Режиссёром альбома стал <STRONG>Patric Ullaeus</STRONG> из <B>Revolver Film Company AB</B> (<B>IN FLAMES</B>, <B>DIMMU BORGIR</B>, <B>EUROPE</B>).</P>
+<P>Пластинка была записана в <STRONG>Mastersound Studio </STRONG>при родственной помощи мужа певицы <STRONG>Alexander Krull</STRONG> (<B>ATROCITY</B>, <B>LEAVES' EYES</B>). Трек-лист:</P>
+<P>01. <B>Interlude</B> (intro)<BR>02. <B>Solve Me</B> <BR>03. <B>Silence</B> <BR>04. <B>Vanilla Skin Delight</B> (duet with Tobias Regner)<BR>05. <B>Panic</B> <BR>06. <B>Paris Paris</B> <BR>07. <B>Wait For Rain</B> <BR>08. <B>Love Crime</B> <BR>09. <B>Libertine</B> <BR>10. <B>Meet Me In The Red Sky</B> <BR>11. <B>The Man With A Child In His Eyes</B> (KATE BUSH cover)</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.09/24810.jpg" width=475 height=475></P>
+<p><center><iframe width="640" height="360" src="http://www.youtube.com/embed/zpk-frdrZBo?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 28.05.2013 news TYR: барабанщик Kari Streymoy покинул группу
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.05/25754.jpg" width=258 height=311>Группа <STRONG>TYR</STRONG> с Фарерских островов рассталась со своим барабанщиком. По этому поводу было сделано следующее заявление: </P>
+<P><EM>“С сожалением сообщаем вам, что барабанщик<STRONG> Kari Streymoy</STRONG> (на фото) и остальная часть группы пошли разными путями. <STRONG>Kari</STRONG> получил травму спины 2008 и с тех пор у него начались проблемы при игре на барабанах. Это основная причина того, что наше сотрудничество стало приносить неудобства и мы, наконец, решили расстаться.</EM></P>
+<P><EM>Мы хотим поблагодарить <STRONG>Kari</STRONG> за то время, которое он провёл в составе группы.&nbsp;Мы желаем ему удачи в будущем и надеемся, что он полностью восстановится когда-нибудь.</EM></P>
+<P><EM>Информация о том, кто заменит <STRONG>Kari</STRONG> в студии, поступит самое&nbsp;в ближайшее время.&nbsp;Думаем, что для большинства из вас, это станет большим сюрпризом.”</EM></P>
+<P><STRONG>TYR</STRONG>&nbsp;работают над своим первым альбомом для лейбла&nbsp;<STRONG>Metal Blade</STRONG>. Его дата выхода запланирована на осень этого года. На готовящемся&nbsp;диске можно будет услышать вокал<STRONG> Liv Kristine</STRONG> (<STRONG>LEAVES’ EYES</STRONG>), которая приняла гостевое участие в записи песни <STRONG>"The Lay Of Our Love"</STRONG>.</P>
+Автор: Headcrusher
+
+### 23.07.2013 news TYR: обложка и другие подробности альбома &quot;Valkyrja&quot;
+
+<P>Группа&nbsp;<STRONG>TYR</STRONG> опубликовала обложку своего нового альбома под названием <STRONG>"Valkyrja"</STRONG>. Автор рисунка - венгерский художник <STRONG>Gyula Havancsak</STRONG> (<A href="http://www.hjules.com/">www.hjules.com</A>). &nbsp;Выход диска запланирован на 17 сентября на <STRONG>Metal Blade Records</STRONG>.</P>
+<P>Продюсером <STRONG>"Valkyrja"</STRONG> стал <STRONG>Jacob Hansen</STRONG>, уже работавший с группой над предыдущими&nbsp;альбомами. Все партии барабанов записал <STRONG>George Kollias</STRONG> (<STRONG>NILE</STRONG>).&nbsp;На песне&nbsp;<STRONG>"The Lay of Our Love"</STRONG> гостевое участие приняла <STRONG>Liv Kristine</STRONG> (<STRONG>LEAVES' EYES</STRONG>), которая разделила вокальные вместе Хенри Йонсеном&nbsp;(<STRONG>Heri Joensen</STRONG> - вокал/гитара).</P>
+<P>Послушать трек <STRONG>"Blood Of Heroes"</STRONG>, а также сделать предварительный заказ на новый&nbsp;альбом <STRONG>TYR</STRONG>, можно по ссылке: <A href="http://www.metalblade.com/tyr/">www.metalblade.com/tyr/</A></P>
+<P><STRONG>"Valkyrja"</STRONG> - это концептуальный альбом, сюжетная линия которого построена вокруг безымянного викинга, оставившего свою женщину и отправившегося на поле боя, чтобы произвести впечатление на Валькирию.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25915.jpg" width=500 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 11.06.2016 news Новый клип TANZWUT с участием Liv Kristine
+
+<p>Новый альбом немцев <strong>TANZWUT "Schreib Es Mit Blut"</strong> выходит 8 июля на<strong> AFM</strong>. Группа выложила в сеть видео-клип на песню с этого альбома “<strong>Stille Wasser</strong>”. В записи песни и съёмках клипа приняла участие вокалистка <strong>Liv Kristine</strong> (ex-LEAVES' EYES, ex-THEATRE OF TRAGEDY).</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TW-O8w1qw5s" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 11.06.2016 news TANZWUT: video with Liv Kristine
+
+<p>The new album of the Germans <strong>TANZWUT "Schreib Es Mit Blut"</strong> comes out July 8 via <strong>AFM</strong>. The group has posted a video clip for the song from the album “<strong>Stille Wasser</strong>”. Vocalist <strong>Liv Kristine</strong> (ex-LEAVES' EYES, ex-THEATRE OF TRAGEDY) took part in the recording of this songsong and the filming of the video.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TW-O8w1qw5s" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

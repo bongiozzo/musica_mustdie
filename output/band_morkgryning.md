@@ -114,6 +114,95 @@ Johan Larsson - Keyboards
 
 * C группой "Eternal Oath" Kimera (vocal/guitar)
 
+## Публикации
+
+### 01.02.2002 reviews NWOSMDM мертв. Да здравствует NWOSMDM!
+
+<p>Многие сейчас скажут: "Но ведь все это уже было!", и будут правы. Но как давно это было! Как говорится, "иных уж нет, а те далече". Dissection, с которыми кстати Морк Грайнинг частенько сравнивают, все по судейским бегают, In Flames с Dark Tranquillity опопсели, Gates of Ishtar вообще развалились, как и At the Gates... Все нынче играют придэтованный блэк (или приблэкованный дэт), или же по клавишам долбят, стараясь походить на Крэдлов или на Диму Боргира...</p>
+<P> Но есть еще порох в пороховницах старой шведской гвардии мелодичных дэтстеров. Примером является новый альбом малораскрученной, но очень классной команды Mork Gryning. Ребята о себе говорят, что музыка для них хобби, делают они ее исключительно для себя, за модой не гонятся и, если и записывают что-то, то очень редко. Истинная правда: последний альбом "Return Fire" датирован аж 1997 годом, то бишь прошлым веком.</>
+<P> Ну а здесь мы имеем дело с новым материалом, отлично сыгранным, хорошо записанным... У нас так даже "профессионалы" не записываются, а у них у "полулюбительской" :) группы такой звук... Материал представляет смесь супер-мелодизма "Tusen Ar Har Gatt..."(1995) и ярость "Return Fire". Мне вообще-то 95-ый больше нравится, т.к. на 97-ом звук просто ужасный. Ну а здесь все очень здорово! Заглавная композиция начинается с проникновенных клавиш, очень грамотно переходящих в Диссекшновое рубилово. Потом вторая....!!! М-ммм! Конфетка! Таких запоминающихся мелодий я не слышал со времен последнего Митотина. Что интересно: ребята почти не используют клавиш: все, что на них похоже, делается гитарой. В этом главная фишка группы.</>
+<P> Весь альбом очень ровный. Может только парочка вещей довольно нудные. А так... Те кому нравится Mork Gryning советую брать сразу родной диск. Тем кто любит Dissection - рекомендую ознакомится и понять, что Mork Gryning лучше :)</>
+
+Автор: Soubbterranean
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 13.10.2002 news Mork Gryning пишут новый материал
+
+<p>Mork Gryning сейчас занимаются сочинением нового материала для следующего альбома. Музыка станет более тяжёлой, более психоделической, прогрессивной и весьма разноплановой. Йохан Ларссон, концертный клавишник, присоединился к группе на постоянной основе и также принимает участие в творческом процессе. Концертный барабанщик Хенрик Аберг, напротив, заявил, что желает полностью сосредоточиться на своём собственном проекте и более не будет выступать с Mork Gryning. Группа ищет ему замену.</p>
+
+Автор: Morsus
+
+### 13.10.2002 news Mork Gryning are writing new material
+
+<p>Mork Gryning is right now in the process of writing new material, for their next album. The new material is heavier, more progressive and very varied, both lighter and darker and also more psychedelic. Johan Larsson, live keyboard player has joined as full-time member, and is also involved in the writing process. Live drummer Henrik Aberg has announced he wish to put all his energy into his own project and will therefore not play live with Mork Gryning again. The band is looking for someone to replace him.</p>
+
+Автор: Morsus
+
+### 07.03.2003 news Mork Gryning записали новый альбом
+
+<p>Новая работа Mork Gryning обещает стать лучшей в дискографии группы. Альбом с претензиозным названием "Pieces Of An Expressionistic Avantgardism" записан в студии Dugout и скоро появится на прилавках.</p>
+
+Автор: Morsus
+
+### 07.03.2003 news Mork Gryning&#39;s new album
+
+<p>The new album of Mork Gryning is well under way. The album is titled "Pieces Of An Expressionistic Avantgardism" and is recorded at Dugout studios. The band has high hopes for the album describing it as the best produced album they've done so far.</p>
+
+Автор: Morsus
+
+### 06.04.2003 news Кусочки экспрессионизма
+
+<p>6 июня 2003 года на No Fashion Records выходит новый альбом шведской команды MORK GRYNING под названием "Pieces Of Primal Expressionism" (первоначально альбом планировалось назвать "Pieces Of An Expressionistic Avantgardism"). Альбом был записан в студии Dug-Out. В качестве продюссера выступил Daniel Bergstrand. В альбом войдут следующие композиции:</p>
+<P> 01. The Sleeping Star <BR> 02. The Cradle Of Civilization <BR> 03. Perpetual Dissolution<BR> 04. Our Urn <BR> 05. An Old Man's Lament <BR> 06. The Worm <BR> 07. Fragments And Pieces <BR> 08. On The Verge Of Prime Divinity</>
+<p> Новый материал группы обещает быть более тяжелым, более прогрессивным и более разнообразным.</p>
+
+Автор: Dimas
+
+### 18.05.2003 news Mork Gryning new album...
+
+<p>New album 'Pieces Of Primal Expressionism' in stores 2003-07-14 <br> Including 8 tracks of epic progressive black metal<BR> 1. The Sleeping Star<BR> 2. The Cradle Of Civilization<BR> 3. Perpetual Dissolution<BR> 4. Our Urn<BR> 5. An Old Man's Lament<BR> 6. The Worm<BR> 7. Fragments And Pieces<BR> 8. On The Verge Of Prime Divinity</p>
+
+Автор: Vit Belov
+
+### 10.10.2003 news GREEN CARNATION, MORK GRYNING and SUIDAKRA in Europe
+
+Oct. 30 - Innsbruck, AUT @ Hafen <BR>Oct. 31 - Wels, AUT @ Alter Schlachthof <BR>Nov. 01 - Wien, AUT @ Planet Music <BR>Nov. 02 - Budapest, HUN @ E-Klub <BR>Nov. 03 - Munchen, GER @ Garage <BR>Nov. 04 - Essen, GER @ Zeche Carl <BR>Nov. 05 - Heidelberg, GER @ Schwimmbad Musicclub <BR>Nov. 06 - Berlin, GER @ Halford <BR>Nov. 07 - Glauchau, GER @ Alte Spinnerei <BR>Nov. 08 - Munster, GER @ Live Arena <BR>Nov. 09 - Hamburg, GER @ Markthalle&nbsp;
+Автор: Vit Belov
+
+### 26.11.2003 news Mork Gryning потеряли вокалиста&#x2F;гитариста
+
+Из <B>MORK GRYNING</B> ушел их вокалист/гитарист <B>Kimera</B>, из-за тотальной потери интереса к развитию в рамках этого коллектива. Теперь музыкант сконцентрируется на своих других проектах: <B>Eternal Oath</B>&nbsp;и <B>Amaranth</B>.
+Автор: Vit Belov
+
+### 15.03.2004 reviews Тяжелейший эмоцианальный black-metal
+
+<DIV><I>Редко появляются по-настоящему неординарные альбомы. Пластинка 2003 года шведской black-metal группы <B>MORK GRYNING</B> <B>'Pieces Of Primal Expressionism'</B> относится к этой категории.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Великолепное творение грамотно сочетающее в себе множество стилей. С направлениями, замеченными мною на альбоме разберёмся чуть позже, а сейчас обратим внимание на МУЗЫКУ. Мне кажется, что отнести этот альбом к black-metal, можно только из-за передаваемых эмоций. Они мрачны и группе сподручней пользоваться именно black-metal красками. Медленные размеренные, очень тяжёлые композиции, где black-metal сменяется симфоническими проигрышами, death-metal, doom-metal... Зверская музыка в зверском исполнении. Иногда хочется назвать progressive-black, иногда stoner-black (блэковый <B>BLACK SABBATH</B>, как Вам?), встречаются черты sympho-black и даже melodic-death.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Музыка в стиле "хоррор" легко могла стать оформлением к самому страшному фильму в соответствующем жанре. Но, самое главное, это совсем не похоже на <B>CRADLE OF FILTH</B>, из-за своей безумной тяжести.&nbsp;Подобный&nbsp;диск нельзя вставить в проигрыватель на Горбушке и сразу понять, что это нужно покупать. Нужно, слушать!!! Целиком!!! Песни по 6-8 минут!!!</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Честно говоря, не ожидал я такого альбома от любой black-metal команды. <B>MORK GRYNING</B> сумели вложить в музыку эмоции, не пренебрегая тяжестью. </DIV>
+Автор: Vit Belov
+
+### 14.01.2005 news MORK GRYNING распались
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>MORK GRYNING</STRONG> распались. <STRONG>Jonas Berndt</STRONG> - лидер коллектива - объяснил своё решение своей незаинтересованностью в black и death-metal. "<EM>Эта музыка больше не&nbsp;привлекает</EM> <EM>меня!",</EM> - написал он на официальном сайте группы.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Mork Gryning, Dissection - SMDM???

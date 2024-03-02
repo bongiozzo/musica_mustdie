@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2016 news Первое демо DEGENERATE
+
+<p>Голландская death thrash metal банда <strong>DEGENERATE</strong> записала дебютное <strong>'Demo 2016</strong>". Песню "<strong>Half Life</strong>" с этой работы можно услышать ниже.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/9YgntVqKIBc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.07.2016 news First demo from DEGENERATE
+
+<p>Dutch death thrash metal band<strong> DEGENERATE</strong> recorded the debut <strong>'Demo 2016</strong>". The song "<strong>Half Life</strong>" from this work you can hear below.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/9YgntVqKIBc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

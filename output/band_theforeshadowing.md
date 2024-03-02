@@ -24,6 +24,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2016 news Новый клип THE FORESHADOWING
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый ролик итальянского doom metal коллектива <strong>THE FORESHADOWING</strong> на песню "<strong>Nimrod (I - The Eerie Tower)</strong>" с альбома "<strong>Seven Heads Ten Horns</strong>" можно посмотреть ниже. Четвёртый альбом группы вышел 22 апреля на <strong>Cyclone Empire</strong>.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/3pkJuxxsdIU" frameborder="0" allowfullscreen></iframe></center>
+Автор: Vit Belov
+
+### 30.07.2016 news New video from THE FORESHADOWING
+
+<p>New video of the Italian doom metal band <strong>THE FORESHADOWING</strong> for the song "<strong>Nimrod (I - The Eerie Tower)</strong>" from the album "<strong>Seven Heads Ten Horns</strong>" can be seen below. Fourth album, released April 22, on <strong>Cyclone Empire</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/3pkJuxxsdIU" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

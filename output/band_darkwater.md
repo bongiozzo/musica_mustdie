@@ -25,6 +25,16 @@
 
 * C группой "Waken Eyes" Henrik Bath (vocal)
 
+## Публикации
+
+### 10.09.2010 news Новый альбом DARKWATER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17160.jpg" width=350 height=350>Шведская progressive metal группа <B itxtvisited="1">DARKWATER</B> выпускает свой новый альбом <B itxtvisited="1">"Where Stories End"</B>.&nbsp;В Европе он выйдет&nbsp;12 ноября&nbsp;(<B itxtvisited="1">Ulterium Records</B>), а в Северной Америке&nbsp;(<B itxtvisited="1">Nightmare Records</B>) 23 ноября.</P>
+<P>16 октября,&nbsp;в рамках фестиваля "<STRONG>ProgPower Russia</STRONG>", группа выступит в Москве (клуб "X.O."), а 17 октября – в Санкт-Петербурге (клуб "Зал Ожидания").</P>
+<P><BR itxtvisited="1">Трек лист <STRONG>"Where Stories End"</STRONG>:<BR itxtvisited="1">01. <B itxtvisited="1">Breathe</B><BR itxtvisited="1">02. <B itxtvisited="1">Why I Bleed</B><BR itxtvisited="1">03. <B itxtvisited="1">Into The Cold</B><BR itxtvisited="1">04. <B itxtvisited="1">A Fools Utopia</B><BR itxtvisited="1">05. <B itxtvisited="1">Queen Of The Night</B><BR itxtvisited="1">06. <B itxtvisited="1">In The Blink Of An Eye</B><BR itxtvisited="1">07. <B itxtvisited="1">Fields Of Sorrow</B><BR itxtvisited="1">08. <B itxtvisited="1">Without A Sound</B><BR itxtvisited="1">09. <B itxtvisited="1">Walls Of Deception</B></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

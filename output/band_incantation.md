@@ -122,6 +122,151 @@ Exiling Righteousness (bonus track)
 * C группой "Wolfen Society" Kyle Severn
 * C группой "Malignancy" Kevin Hughes (bass)
 
+## Публикации
+
+### 05.01.2000 news 
+
+<p>Incantation готовы к записи нового, четвёртого по счёту, альбома под названием "The Infernal Storm". К группе присоединился бывший гитарист-вокалист Deathrune Майк Саэз. Альбом выйдет в конце марта.</p>
+
+Автор: Vit Belov
+
+### 16.01.2001 news Некрополис Рекордс подписали Incantation
+
+<p>Старые американские перцы Incantation подписали контракт с Некрополис Рекордс и продолжат радовать публику уже на новом лэйбле. "Мы страшно рады видеть Incantation в нашей упряжке" - заявил Чиф Экзекьютив Оффисер Paul Thind.</p>
+
+Автор: Yermola
+
+### 16.01.2001 news INCANTATION launched with Necropolis Records
+
+<p>Necropolis Records is proud to announce Death Metal legends INCANTATION as the latest addition to its ever-strengthening ranks. A driving force within the US metal scene for nearly twelve years and the inspiration for hundreds of bands around the globe, the band continues to consistently deliver the finest in extreme underground music and will play a major role in Necropolis' intensifying commitment to American artists. "We're very glad to welcome INCANTATION to the Necropolis horde," adds Necropolis Records founder/CEO Paul Thind.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news Волчье Сообщество...
+
+<p>Нашумевший в свое время проект участников DARK FUNERAL, ACHERON, INCANTATION и THE ELECTRIC HELLFIRE CLUB - "WOLFEN SOCIETY" переиздает свой дебютный MCD "Conquer Divine". В Европе альбом выйдет в январе на "No Fashion Records", а в штатах тогда же через House Of Death Records. Из других новостей, команду по непонятным причинам оставили Thomas Thorn (клавиши) и Ricktor Ravenbruck (гитара). Новым клавишником стал Aaron Werner из ACHERON, гитарист пока не найден...</p>
+
+Автор: Yermola
+
+### 07.12.2001 news WOLFEN SOCIETY, the much-talked-about project...
+
+<p>WOLFEN SOCIETY, the much-talked-about project that in its early incarnation featured DARK FUNERAL’s Lord Ahriman, ACHERON’s Vincent Crowley, INCANTANTION’s Kyle Severn and THE ELECTRIC HELLFIRE CLUB’s Thomas Thorn & Ricktor Ravensbruck, will finally issue its debut MCD, entitled Conquer Divine, through No Fashion Records in Europe in January and House Of Death Records in the USA. In other news, Thomas Thorn (keyboards) and Ricktor Ravenbruck (guitars) have officially left the band for unspecified reasons, with Thorn having been replaced by ACHERON’s Aaron Werner and the group currently on the lookout for a new lead guitarist. <BR> <BR> In related news, after two long years of silence, ACHERON has returned with a brand new 7-inch release, entitled Xomaly, which is available through Italy’s Warlord Records (www.warlordrecords.com). The band also has a South American show scheduled for December 8th, 2001 in Caracas, Venezuela at Teatro Sala Cadafe with special guests STRATUZ and LEAVES.</p>
+
+Автор: Yermola
+
+### 19.03.2002 news INCANTATION&#39;s new album
+
+<p>INCANTATION's new album, entitled Blasphemy, will be released through <I>Candlelight Records </I>in Europe on April 8th. A US release through <I>Necropolis Records </I>is expected at around the same time.</p>
+
+Автор: Dimas
+
+### 19.03.2002 news Новый альбом INCANTATION
+
+<p>Новый альбом INCANTATION под названием "Blasphemy" будет выпушен в Европе на <I>Candlelight Records </I>8 апреля 2002 года. Американский релиз выйдет на <I>Necropolis Records </I>через некоторое время позднее.</p>
+
+Автор: Dimas
+
+### 08.11.2003 news INCANTATION in South America
+
+Nov. 20 – Bras&iacute;lia, BRA @ TBA <BR>Nov. 21 - Belo Horizonte, BRA @ TBA<BR>Nov. 22 - S&atilde;o Paulo, BRA @ TBA<BR>Nov. 23 - Maring&aacute;, BRA @ TBA<BR>Nov. 24 - Porto Alegre, BRA @ TBA<BR>Nov. 28 - S&atilde;o Luiz, BRA @ TBA<BR>Nov. 29 - Fortaleza, BRA @ TBA<BR>Nov. 30 - Recife, BRA @ TBA<BR>Dec. 03 – Calama, CHL @ TBA<BR>Dec. 04 - Santiago, CHL @ TBA<BR>Dec. 05 - Valparaiso, CHL @ TBA<BR>Dec. 06 - Puerto Montt, CHL @ TBA<BR>Dec. 07 - Concepcion , CHL @ TBA<BR>
+Автор: Vit Belov
+
+### 04.04.2006 reviews Заклятие, проклятие, казненное распятие
+
+<P>Везет мне последнее время на пятнадцатилетних... Нет нет, не подумайте плохого! Просто речь идет о группах, карьера которых началась примерно лет 15 назад. Перед нами еще один монстр тяжелой сцены - американцы Incantation. Которые многое пережили на своем веку, которые не раз меняли состав, которые.... Впрочем, это всё детали. Руководимые с момента своего основания гитаристом Джоном МакЭнти (которому пришлось на этом альбоме встать к микрофону) ребята долбят и долбят свой брутало-метало, которому конца-края не видно. Более подробно описывать эту музыку не нужно. Здесь только два варианта - нравится вам то, что делают Incantation, или нет. Тяжеленная чугyнная заготовка (видимо, для огромного котла) неспешно движется себе по дороге, но только вовремя убирайтесь с ее пути! А то раздавит к чёртовой матери и не заметит. Здесь нет тупости Cannibal Corpse или Six Feet Under, здесь нет высоких скоростей, но лучше вам быть поосторожней. Эта безжалостная троица не даст вам расслабиться. Не зря, ох не зря, они были в свое время подписаны на Relapse Records...&nbsp; Если бы еще поменьше было совсем неинтересных вещей типа 'No Paradise Awaits', то было б совсем замечатетельно. Жаль, что к концу альбома группа скатывается в довольно однообразный брутал-дэт, что мешает поставить более высокую оценку. Однако Incantation продолжают свое мрачное дело, и многим современным группам у них есть чему поучиться.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 30.06.2006 news INCANTAION запишут новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>INCANTATION</STRONG> записывают свой седьмой альбом "<STRONG>Primordial Domination</STRONG>". Пластинка выйдет в сентябре на <STRONG>Listenable</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 21.08.2006 news Седьмой альбом INCANTATION
+
+<IMG height=200 alt="" hspace=0 src="/images/news_rus/2006.08/10623.jpg" width=200 align=left border=5>Седьмой альбом <STRONG>INCANTATION "Primordial Domination"</STRONG> выходит 16 октября на <STRONG>Listenable</STRONG>.
+Автор: Vit Belov
+
+### 06.06.2007 news THE FLAMING ARTS festival tour 2007!!!
+
+<P>Белорусское концертное агентство <STRONG>THE FLAMING ARTS</STRONG> сообщает о грандиозном событии в сентябре. Первый в СНГ фестивальный тур, участие в котором примут сразу четыре хэдлайнера. На одной сцене этого фестиваля выступят -<STRONG> VADER</STRONG> (Польша), <STRONG>ROTTING CHRIST</STRONG> (Греция), <STRONG>KRISIUN</STRONG> (Бразилия), <STRONG>INCANTATION</STRONG> (США), а так же несколько саппорт групп из Европы. <STRONG>THE FLAMING ARTS FESTIVAL</STRONG> пройдет сразу в нескольких крупнейших городах СНГ и порадует максимальное количество фэнов тяжелой музыки! Следите за информацией!</P>
+Автор: Vit Belov
+
+### 07.07.2007 news Даты THE FLAMING ARTS FESTIVAL TOUR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стали известны даты анонсируемого <STRONG>The Flaming Arts Tour&nbsp;Festival</STRONG>&nbsp;по России и Беларуси. Событие примет старт 16 сентября в Санкт-Петербурге и закончится 23 сентября где-то в Беларуси.</FONT></P>
+<P>16.09 - Санкт-Петербург, Орландина<BR>18.09 -&nbsp;Уфа, Огни Уфы&nbsp;<BR>19.09 -&nbsp;Екатеринбург, tba&nbsp;<BR>20.09 -&nbsp;Магнитогорск, ДК Орджоникидзе&nbsp;<BR>21.09 - Самара, Строковский Парк<BR>22.09 -&nbsp;Москва, Точка&nbsp;<BR>23.09 -&nbsp;Беларусь, tba&nbsp;<BR></P>
+Автор: Vit Belov
+
+### 27.07.2007 news Драммер IMMOLATION едет к нам
+
+<P>Лидер <STRONG>INCANTATION</STRONG> <STRONG>John McEntee</STRONG> объявил состав группы на ближайший тур по Европе, в рамках которого группа посетит и Россию. </P>
+<P><STRONG>John McEntree</STRONG> – Guitar/Vocals<BR><B>Rayash</B> (SUPREME LORD) - Bass<BR><B>Craig Smilowski</B> (GOREAPHOBIA, IMMOLATION) - Drums</P>
+Автор: Vit Belov
+
+### 23.08.2007 news Moscow Metal Fest 2007
+
+<P>
+<CENTER><IMG height=450 src="/images/shows_rus/2007.09/11778.jpg" width=300 border=0></CENTER>
+Автор: Dimas
+
+### 29.08.2007 articles THE FLAMING ARTS FESTIVAL: пресс-релиз
+
+<P>THE FLAMING ARTS FESTIVAL</P>
+<P>VADER (Польша)<BR>ROTTING CHRIST (Греция)<BR>KRISIUN (Бразилия)<BR>INCANTATION (США)<BR>AMENTI (Великобритания)<BR>RIUL DOAMNEI (Италия)</P>
+<P>В сентябре этого года состоится уникальное событие для экстремальной сцены СНГ – THE FLAMING ARTS FESTIVAL TOUR 2007. Уже несколько раз делались попытки, и порой достаточно удачные, по проведению фестивалей в таких городах, как Москва, Санкт-Петербург или Киев, но впервые фэны экстремальной музыки других населенных пунктов увидят что-то подобное в своем городе! В программе фестиваля сразу 4 больших хэдлайнера: INCANTATION, KRISIUN, ROTTING CHRIST и VADER, а так же не менее интересный саппорт из-за границы. <BR>Что объединяет эти 4 коллектива из 4-х стран с 3-х разных континентов. Прежде всего, существенный вклад в развитие современной экстремальной музыки, высочайшее качество исполнения и безусловный профессионализм, как в студийной, так и в концертной деятельности. Все группы имеют огромный туровый опыт, в том числе значатся за&nbsp; ними и совместные выступления, правда, в такой связке они впервые. </P>
+<P>INCANTATION – группа, входящая в высшую лигу американского death metal появились в 1989 году, во времена появления множества death metal групп. Эстафету Флориды приняли Нью-Йорк, Калифорния, стали появляться группы, играющие death metal в Европе. Одним из новоявленных проектов стали INCANTATION из Пенсильвании во главе с гитаристом Джоном Макинти. Этот обладатель шотландской фамилии единственный человек, который всегда занимался этой группой. В остальном же, состав коллектива пережил просто немыслимое число изменений: к 2002 году в группе успело попеть 6! вокалистов, периодически они совмещали вокал с басовыми партиями. В итоге, все это настолько надоело Макинти, что он принял решение взять вокальные партии на себя, что после года подготовки и сделал. Именно его голос мы слышим на последних двух альбомах классиков американского death metal. За свою 18 летнюю карьеру группа успела побывать с концертами практически на всех континентах и всегда привозила с собой невероятно мощное и качественное шоу, т.к. считают, что фэны группы заслуживают этого и не могут быть разочарованы в коллективе. Последний диск, "Primordial Domination", вышел в сентябре прошлого года. Группа дала множество концертов в США и Европе, в октябре новый альбом будет представлен и у нас.</P>
+<P>KRISIUN – группа гиперскоростных братьев, заслуженных брутальщиков из Бразилии, которые снискали себе легендарную репутацию в мире, и всегда ассоциировались с высоким качеством музыки и уважением среди фэнов.&nbsp; Бразилия – это страна с множеством metal коллективов, правда за пределами страны Амазонки они в большинстве своем мало известны, исключение составляет совсем небольшое число команд, среди них Sepultura, Angra, Soulfly и, безусловно, KRISIUN. Они образовались в 1990 году, в 1995-м вышел дебютный альбом, сегодня на их счету уже 7 полноформатников, кроме того, в прошлом году вышел первый DVD коллектива. Трио начало давать концерты зарубежом с конца 90-х годов, сегодня на их счету уже более полутысячи живых выступлений за пределами родины (даже в Японии!), они постоянные участники фестивальных дэт-металлических туров. Cannibal Corpse, Nile, Immolation, Cryptopsy, Vader, Decapitated, Dying Fetus, Deicide, Behemoth, Morbid Angel - вот далеко не полный список групп, с которыми KRISIUN ездили в туры. <BR>На сей раз в сетке их гастрольного графика значатся и города СНГ. </P>
+<P>ROTTING CHRIST - коллектив уникальный. С каждым годом они только и делают, что набирают обороты. На первых демо группы Сакиса Толиса мы слышим очень сырой и грязный death metal, чуть позже начинают проскальзывать элементы black metal, так или иначе в 1993 году ROTTING CHRIST выпускают свой первый релиз "Thy Mighty Contract", который явился настоящим издевательством над критиками. Привычная техника по навешиванию ярлыка, определению жанра и т.п. честно провалилась, ROTTING CHRIST творили в своем собственном ключе, соединяя элементы различных музыкальных стилей и в&nbsp; то же время оставаясь уникальными и непохожими ни на одну из существующих групп европейской экстремальной сцены. Дальше были "Non Serviam" и "Triarchy Of The Lost Lovers", альбомы, собственно и принесшие известность коллективу, музыку команды в итоге стали называть dark metal. Прошел десяток лет, в январе этого года свет увидел уже 9-ый студийник группы, их музыка по-прежнему оригинальна: атмосферные клавиши, хоры, торжественное звучание... Сакис постоянно экспериментирует, так, например, последние релизы звучат более быстро и агрессивно, чем работы конца 90-х. В 2005 году они уже посещали Гомель, Киев и несколько российских городов, пришедшие на концерты фэны были невероятно довольны их выступлениями и той энергией, которая исходила от горячих парней из Греции. С тех пор множество поклонников группы желали услышать их вновь, теперь такой шанс представляется.</P>
+<P>Знаменитые VADER станут главными хэдлайнерами фестиваля. Этой польской формации давеча стукнуло 20 лет. Достижения VADER трудно переоценить. Группа во многом уникальная для Европы, пионеры польской экстремальной сцены, которые её во многом-то и подняли. Уже в 1990-1991 годах VADER начинают активно гастролировать, в том числе дважды посещают Москву! В 1993 выходит дебютник коллектива и сразу же после релиза поляки отправляются сначала в европейское, а потом и американское турне. С тех пор вышло ещё 7 студийных и 2 концертных альбома, VADER давно стали классикой европейского death metal, став на одну ступень с такими монстрами, как CANNIBAL CORPSE или MORBID ANGEL. Музыканты во главе с бессменным лидером коллектива вокалистом и гитаристом Питером ведут более чем активную гастрольную деятельность. На последних альбомах музыка группы стала более мелодичной, многообразной, выросла роль клавиш, в то же время никуда не делись агрессия и потрясающая энергетика, пронизывающие все творчество VADER. Последний раз этот весьма любимый на просторах СНГ коллектив посещал нас в 2004 году, теперь они возвращаются, чтобы в очередной раз обрушить на нас лавину убийственной техники и познакомить с последним альбомом "Impressions in Blood". Многотысячная армия фэнов из СНГ давно заждалась польских корифеев! Польский танк уже в пути!!!</P>
+<P>&nbsp;</P>
+<P>Помимо столь именитых хэдлайнеров в фестивале примут участие ещё две очень интересные группы – английский modern thrash metal AMENTI, молодые, но невероятно профессиональные музыканты, которые успели сыграть уже множество туров по Великобритании со многими монстрами экстремальной сцены, а так же итальянский sympho black metal RIUL DOAMNEI, совсем недавно выпустивший свой дебютный альбом для европейского и японского рынков посредством французского лейбла DEADSUN RECORDS.</P>
+<P>Ждем вас на концертах THE FLAMING ARTS FESTIVAL TOUR 2007.<BR>Пресс-релиз подготовил Алан Ахметов (TheMetalList.com)</P>
+Автор: Vit Belov
+
+### 17.09.2007 news THE FLAMING ARTS FESTIVAL
+
+<CENTER><IMG height=567 src="/images/news_rus/2007.09/11831.jpg" width=400 border=0></CENTER>
+Автор: Dimas
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 25.08.2012 news INCANTATION назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.08/24679.jpg" width=450 height=601>Американские мясники<STRONG> INCANTATION</STRONG> назвали новый альбом <STRONG>"Vanquish In Vengeance". </STRONG>Пластинка должна выйти в ноябре на<STRONG> Listenable Records</STRONG>. Лидер группы <STRONG>John McEntee </STRONG>сообщил, что новая работа будет концептуальной и расскажет о резне в Вердене, учинённой королём франков Карлом Великим в 782 году. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Название альбома символизирует для меня нашу длинную историю</EM>", - рассказывает John. "<EM>Мы прошли через многие битвы, но всегда продолжали свой путь. Мы всегда оставались true и никогда не следовали за trends. После длительного перерыва между альбомами мы возвращаемся к своим поколонникам со своей Vengeance, с мрачнейшим и тяжелейшим материалом в нашей истории</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>INCANTATION</STRONG> в строю уже 23 года и представляют нью-йоркскую death-metal сцену вместе с <STRONG>SUFFOCATION, IMMOLATION</STRONG> и <STRONG>MORTICIAN</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 19.02.2013 news INCANTATION: клип &quot;Invoked Infinity&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип легендарной death metal банды <STRONG>INCANTATION</STRONG> на трек <STRONG>"Invoked Infinity"</STRONG>, можно посмотреть ниже.&nbsp;Песня вошла на альбом <STRONG>"Vanquish In Vengeance"</STRONG>, вышедший в ноябре прошлого года на лейбле <STRONG>Listenable</STRONG>.<BR></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео создано комапнией <STRONG>Black Arts Media</STRONG>&nbsp;(<A href="http://www.secretsoftheblackarts.com/">www.secretsoftheblackarts.com</A>).</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/LCKZZ7avUes" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Был на концерте Cannibal Corpse и Dark Funeral. Написал, как это было...

@@ -16,6 +16,19 @@ black metal from Australia
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.11.2015 news Австралийский black-metal
+
+<P>Австралийская black-metal команда<STRONG> VRAG</STRONG> выпустила второй альбом "<STRONG>Species Of One</STRONG>" на немецком лэйбле<STRONG> Schattenkult Produktionen</STRONG>. Клип с открывающей альбом песней "<STRONG>Alcoholocaustic Carcinogenocide</STRONG>" можно посмотреть ниже. Трек-лист:</P>
+<P><STRONG>1. Alcoholocaustic Carcinogenocide<BR>2. Ahasver<BR>3. Cynicism & Hate<BR>4. Species of One<BR>5. Madman<BR>6. Vagrant in the Astral Plane<BR>7. Interlude<BR>8. Inverse Horizon<BR>9. Invisible Chains of Infernal Command</STRONG></P>
+<P>Приобретайте фирменный диск по цене 499 рублей в магазине Escapemind: <A href="http://escapemind.ru/goods/VRAG-Species-Of-One">http://escapemind.ru/goods/VRAG-Species-Of-One</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/kdvgLiITVAg" frameBorder=0 width=420 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

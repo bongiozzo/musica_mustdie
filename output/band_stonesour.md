@@ -54,6 +54,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.07.2017 news STONE SOUR: клип &quot;Mercy&quot;
+
+<P>Группа <STRONG>STONE SOUR</STRONG> опубликовала клип на песню<STRONG> "Mercy"</STRONG>. Новый диск под названием<STRONG> "Hydrograd"</STRONG> вышел на лейбле <STRONG>Roadrunner</STRONG> в конце прошлого месяца.</P>
+<P>Единственный российский концерт <STRONG>STONE SOUR</STRONG> в поддержку нового альбома состоится 10 ноября 2017. Подробности по ссылке: <A href="/ru/shows/#74327">http://musica.mustdie.ru/ru/shows/#74327</A></P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/WnA8B6ij1Zc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 08.09.2017 news STEEL PANTHER: клип &quot;Wasted Too Much Time&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские пошляки <STRONG>STEEL PANTHER</STRONG> выпустили клип на песню <STRONG>"Wasted Too Much Time"</STRONG>. Помимо оголённых женских тел, в клипе также можно увидеть группу<STRONG> STONE SOUR</STRONG> в полном составе, загримированных почти до неузнаваемости и&nbsp;&nbsp;изображающих глэм-группу играющую внутри дома.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/klYtT4fabQA" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

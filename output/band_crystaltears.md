@@ -25,6 +25,71 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.03.2014 news Новые релизы Escapemind.ru
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Интернет-магазин<STRONG> Escapemind.ru</STRONG> при поддержке <STRONG>MUSICA Production</STRONG> и <STRONG>Фоно</STRONG> представляет новые релизы по лицензии<STRONG> Massacre Records</STRONG></FONT></P>
+<P><STRONG>EPD 14.6/FO1065CD GUN BARREL “Damage Dancer”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>-heavy-power-metal; <SPAN lang=ru-RU>Шестой альбом группы из Кёльна, Германия. Немецкий коллектив старотовал на знаменитом лэйбле </SPAN><STRONG>SPV</STRONG> <SPAN lang=ru-RU>в 2001 году, затем в карьере </SPAN><STRONG>GUN BARREL</STRONG> <SPAN lang=ru-RU>был </SPAN><STRONG>Limb Music</STRONG>. <SPAN lang=ru-RU>Во время своей долгой карьеры немцы работали с такими корифеями, как </SPAN><STRONG>Piet Sielk (IRON SAVIOR)</STRONG> <SPAN lang=ru-RU>и </SPAN><STRONG>Uwe Lullis (ex-GRAVE DIGGER, ex-REBELLION)</STRONG>. <SPAN lang=ru-RU>Сведением нового альбома <STRONG>"</STRONG></SPAN><STRONG>Damage Dancer"</STRONG> <SPAN lang=ru-RU>занимался <STRONG>Yenz Leonhardt (Iron Savior, Savage Circus, Stormwarrior).</STRONG> Мастеринг сделал знаменитый<STRONG> Tommy Hansen (Helloween, Pretty Maids, TNT).</STRONG> Запоминающуюся обложку создал художник <STRONG>Manfred Jasmund</STRONG>. </SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU>Песня <STRONG>"</STRONG></SPAN><STRONG>Damage Dancer"</STRONG><SPAN lang=ru-RU>: </SPAN></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/gr3d9phOVMg?feature=player_embedded" frameBorder=0 width=640 allowfullscreen iframe&gt;< SPAN></P></body></html></IFRAME></CENTER>
+<P></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Трек-лист:</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>01. <STRONG>Unleashing the Hounds</STRONG> 00:50 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>02. <STRONG>Damage Dancer</STRONG> 03:57 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>03. <STRONG>Bashing Thru</STRONG> 04:16 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>04. <STRONG>Judgement Day</STRONG> 04:31 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>05. <STRONG>Passion Rules</STRONG> 05:01 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>06. <STRONG>Building a Monster</STRONG> 04:10 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>07. <STRONG>Whiteout</STRONG> 04:41 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>08. <STRONG>Back Alley Ruler</STRONG> 04:26 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>09. <STRONG>Ride the Dragon</STRONG> 04:14 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>10. <STRONG>Heading for Desaster</STRONG> 03:53 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>11. <STRONG>Vultures Are Waiting</STRONG> 06:11 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>12. <STRONG>Rise Up to the Storm</STRONG> 03:53 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Время альбома: 50:03</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Поклонникам <SPAN lang=en-US><STRONG>WIZARD, IRON SAVIOR.</STRONG></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><STRONG>EPD14.7/FO1066CD CRYSTAL TEARS “Hellmade”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><SPAN lang=en-US>-speed-power-metal; </SPAN>Открытие для <SPAN lang=en-US><STRONG>Massacre Records</STRONG> </SPAN>из Греции. Интереснейший музыкальный материал на стыке <SPAN lang=en-US>speed, heavy </SPAN>и <SPAN lang=en-US>power-metal. </SPAN>Вокалист <SPAN lang=en-US><STRONG>Nico Soren Adamsen (ex-CRYSTAL EYES, ex-ARTILLERY, ex-INMORIA, DIGNITY</STRONG>). </SPAN>Группа была основана в 1997 году и <STRONG>"</STRONG><SPAN lang=en-US><STRONG>Hellmade"</STRONG> </SPAN>её третий альбом. Предыдущие две работы , выпущенные профильных лэйблах <SPAN lang=en-US><STRONG>Pure Steel records</STRONG> </SPAN>и <SPAN lang=en-US><STRONG>7hard Records</STRONG> </SPAN>создали коллективу крепкую фан-базу. На прошлом альбоме <STRONG>"</STRONG><SPAN lang=en-US><STRONG>Generation X"</STRONG> </SPAN>у микрофонной стойки отметился <SPAN lang=en-US><STRONG>Ian Parry (ELEGY)</STRONG>. </SPAN>Продюсером нового альбома выступил <SPAN lang=en-US><STRONG>R.D. Liapakis (MYSTIC PROPHECY</STRONG>). </SPAN>Альбом включает кавер-версию на песню <SPAN lang=en-US><STRONG>MIDNIGHT OIL “Beds Are Burning”</STRONG>.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Видео-клип на песню <STRONG>"</STRONG><SPAN lang=en-US><STRONG>Out Of The Shadows"</STRONG>: </SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><SPAN lang=en-US>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/0SwTh5Khtzk?feature=player_embedded" frameBorder=0 width=640 allowfullscreen iframe&gt;< SPAN></P>
+<p></body></html></IFRAME></SPAN>
+<P></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><SPAN lang=en-US>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Трек-лист:</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>01. <STRONG>Destination Zero</STRONG> 03:43 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>02. <STRONG>The Skies Are Bleeding</STRONG> 03:25 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>03. <STRONG>Out of the Shadows</STRONG> 03:58 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>04.<STRONG> The Devil Inside</STRONG> 03:29 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>05. <STRONG>Resurrection Suicide</STRONG> 03:20 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>06. <STRONG>Psycho Pollution</STRONG> 03:59 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>07. <STRONG>Under Your Skin</STRONG> 03:51 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>08. <STRONG>Violent New Me</STRONG> 03:03 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>09. <STRONG>Ever Alone</STRONG> 03:44 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>10. <STRONG>Rock n Growl</STRONG> 03:56 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>11. <STRONG>Beds Are Burning</STRONG> 04:12 </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Время звучания: 40:40</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Поклонникам:<STRONG> <SPAN lang=en-US>MYSTIC PROPHECY, ARTILLERY</SPAN></STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><STRONG><SPAN lang=en-US>Лучшие цены в магазине <A href="http://escapemind.ru/">http://Escapemind.ru</A></SPAN></STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><STRONG><SPAN lang=en-US>
+<CENTER><IMG border=0 src="/images/news_rus/2014.03/26791.jpg" width=300 height=305><IMG border=0 src="/images/news_rus/2014.03/26792.jpg" width=300 height=304></SPAN></STRONG> 
+<P></P></SPAN></CENTER></CENTER>
+Автор: Vit Belov
+
+### 05.04.2014 news Новое видео CRYSTAL TEARS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип<STRONG> CRYSTAL TEARS</STRONG> на песню "<STRONG>Beds Are Burning</STRONG>" можно посмотреть ниже. Кавер-версия взята с новейшего альбома коллектива "<STRONG>Hellmade</STRONG>", который вышел на <STRONG>Massacre Records</STRONG> и был издан в России<STRONG> Escapemind.ru</STRONG> при поддержке<STRONG> MUSICA Production</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="//www.youtube.com/embed/7yzI1Nrb5uQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

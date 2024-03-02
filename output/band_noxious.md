@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.09.2012 news More Hate выпустили NOXIOUS
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.09/24822.jpg" width=450 height=450>Новый полноформатный альбом от старейшей из ныне действующих Black Metal формаций в Томске&nbsp;<STRONG>NOXIOUS</STRONG>. Жесткий, выдержанный в old school духе материал, без каких либо модных заигрываний с симфонизмом и эклектикой. Black metal как он есть! Трек-лист:</P>
+<P>1.<STRONG> Сонмы богов</STRONG><BR>2.<STRONG> Квинтэссенция</STRONG><BR>3.<STRONG> Вопль<BR></STRONG>4. <STRONG>Sanctus peccator</STRONG><BR>5. <STRONG>Влача кровавый след</STRONG><BR>6. <STRONG>Domine cannes (Псы господни)<BR></STRONG>7. <STRONG>Печать<BR></STRONG>8. <STRONG>Мор<BR></STRONG>9. <STRONG>И хлынет кровь</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

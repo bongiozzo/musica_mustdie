@@ -42,6 +42,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2011 news AMENRA на Neurot Recordings
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бельгийцы <STRONG>AMENRA</STRONG> заключили контракт с лэйблом лидера <STRONG>NEUROSIS</STRONG> <STRONG>Steve Von Till Neurot Recordings. </STRONG>Создатель лэйбла утверждает, что <STRONG>AMENRA</STRONG> великолепно вписываются в политику конторы. На счету бельгийцев три полноформатных альбома и куча различных сплитов и миньонов. Группа ездила в тур с такими мастерами неоднозначной музыки, как <STRONG>NEUROSIS</STRONG>, <B>CONVERGE</B>, <B>PELICAN</B>, <B>STARKWEATHER</B>, <B>BATTLEFIELDS.</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новейший альбом <STRONG>AMENRA</STRONG> <STRONG>"Mass V" </STRONG>выйдет в ближайшие месяцы.</FONT></P>
+<P><center><IMG height=316 src="/images/news_rus/2011.07/20101.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

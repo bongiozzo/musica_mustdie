@@ -249,6 +249,129 @@ The digipak version has 2 bonus tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.10.2001 reviews Мелодичный heavy-metal итальянского розлива
+
+<p>Мелодичный heavy-metal итальянского розлива. Основанный на средневековых народных традициях этой южной страны. Elvenking довольно необычно и весьма оригинально смешивают heavy, power metal, народную музыку и экстремальные моменты в уникальном миксе основанном на языческом богослужении природе и на традиции народных итальянских сказок. Все это напоминает местами Skyclad, местами Blind Guardian, а иногда весь шведский melodic death-metal благодаря фирменному звуку Studio Fredman. Да и микшировал запись известный в этом стиле человек - Fredrik Nordstrom. Музыка потрясает мелодикой, чрезвычайно интересна, разнообразна и импульсивна, некоторые фрагменты обворожительны. Очень интересны вокальные работы на альбоме. Наравне с сильным и высоким чистым вокалом в духе Фабио Лионе, изредка можно услышать чистый женский вокал, женское сопрано и гроулинг, а также хоралы. Много клавишных и народных инструментов создающих определенное положительное настроение и задор. Очень мелодичный скоростной металл со следами средневековой музыки и вдохновленного фольклором. Великолепная музыкальная работа молодых итальянских музыкантов.</p>
+
+Автор: Dimas
+
+### 05.07.2003 news Новый альбом ELVENKING
+
+<p>Итальянские pagan power металлисты ELVENKING завершают работу над своим новым альбомом, пока не имеющим назвния. Он был записан в Gernhart Studio и House Of Music Studio с продюсером Achim Kohler, работавшим с группами PRIMAL FEAR и BRAINSTORM. Альбом выйдет в конце лета на AFM Records. В него войдут следующие вещи:</p>
+<p> 1. A Poem for the Firmament <BR> 2. Another Haven <BR> 3. Disappearing Sands <BR> 4. A Fiery Stride <BR> 5. Jigsaw Puzzle <BR> 6. The Losers' Ball <BR> 7. Moonchariot <BR> 8. Midnight Circus <BR> 9. Pathfinders <BR> 10. The Perpetual Knot <BR> 11. The Silk Dilemma <BR> 12. Waves of Infinite Skies</p>
+
+Автор: Dimas
+
+### 09.09.2003 news ELVENKING выпустят альбом осенью
+
+<p>Итальянцы ELVENKING назвали свой новый альбом 'Wyrd'. Он выйдет осенью на AFM Records. Трэк-лист:</p>
+<p> 01. A Poem for the Firmament<br> 02. Another Haven<br> 03. Disappearing Sands<br> 04. A Fiery Stride<br> 05. Jigsaw Puzzle<br> 06. The Losers' Ball<br> 07. Moonchariot<br> 08. Midnight Circus<br> 09. Pathfinders <br> 10. The Perpetual Knot<br> 11. The Silk Dilemma<br> 12. Waves of Infinite Skies</p>
+<p> Касаемо альбома группа сказала, что не копировала предыдущий релиз 'Heathenreel', но новый альбом продолжает его направление.</p>
+
+Автор: Vit Belov
+
+### 02.03.2005 news ELVENKING начинают запись нового альбома
+
+<P><STRONG>ELVENKING</STRONG> начали работу над новым альбомом. Пластинка будет записана в собственной студии музыкантов<STRONG> Sherpa Studios</STRONG>, а смикширована в <STRONG>Sonic Pump</STRONG>. Выпуск запланирован на осень.</P>
+Автор: Vit Belov
+
+### 20.06.2005 reviews Фолковый heavy-power: вперёд за всемирной славой
+
+<P>ELVENKING из Италии разрабатывают очень переспективную и пока малоосовенную стезю. Heavy-power-metal с элементами фолка. На ум приходят только бразильцы TUATHA DE DANNAN, занимающиеся подобными экспериментами, а также множество групп из Испании, лучшая из которых MAGO DE OZ.</P>
+<P>ELVENKING представляют очень неплохой материал, плюсом которого, по сравнением с вышеуказанными бандами, можно назвать качественную реализацию и английскую&nbsp;лирику (в сравнении с MAGO DE OZ).&nbsp;Достаточно стандартные&nbsp;фолковые мелодии, хорошая работа музыкантов, разнообразные "дудочки-скрипки", женский вокал, немного слабый, но вписывающийся в концепцию мужской вокал - всё это несомненные плюсы&nbsp;пластинки, которую можно смело советовать.</P>
+<P>Танцевальные, ритмичные мелодии, иллюстрирующие празднование какого-нибудь дня святого Патрика придутся по вкусу любителям. Я думаю, ELVENKING остаётся ещё добавить в тяжести (сейчас они уже пишут новую пластинку&nbsp;в Sonic Pump) и всемирная, можно сказать, слава у них в кармане.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 06.12.2005 news Новый альбом ELVENKING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=408 alt="" hspace=0 src="/images/news_rus/2005.12/9829.jpg" width=369 align=right border=5>Новый альбом итальянцев ELVENKING будет называться "The Winter Wake" и выйдет 27 января на AFM. Трэк-лист:</FONT></P>
+<P>01. <B>Trows Kind</B><BR>02. <B>Swallowtail</B><BR>03. <B>The Winter Wake</B> (feat. <B>Schmier</B> of <B>DESTRUCTION</B>)<BR>04. <B>The Wanderer</B><BR>05. <B>March of Fools</B><BR>06. <B>On the Morning Dew</B><BR>07. <B>Devil's Carriage</B><BR>08. <B>Rats are Following</B><BR>09. <B>Rouse Your Dream</B><BR>10. <B>Neverending Nights</B><BR>11. <B>Disillusion's Reel</B><BR>+ bonus tracks</B></P>
+Автор: Vit Belov
+
+### 19.01.2006 news ELVENKING объявили даты релиза
+
+<P>Новый альбом&nbsp;<STRONG>ELVENKING "The Winter Wake"</STRONG> выйдет в России в февраля на <STRONG>CD-Maximum</STRONG>. В Европе же альбом выходит 30 января на <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.04.2007 news ELVENKING закончили запись
+
+<P><STRONG>ELVENKING</STRONG> закончили запись своего нового альбома для осеннего релиза на <STRONG>AFM</STRONG>. В качестве приглашённой звезды выступит гитарист <STRONG>Mike Wead</STRONG> (<STRONG>CANDLEMASS, KING DIAMOND</STRONG>).</P>
+Автор: Vit Belov
+
+### 08.06.2007 news Новый альбом ELVENKING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=350 alt="" hspace=0 src="/images/news_rus/2007.06/11669.jpg" width=350 align=right border=5>Новый альбом <STRONG>ELVENKING</STRONG> будет называться "<STRONG>The Scythe</STRONG>" и выйдет 14 сентября на <STRONG>AFM</STRONG>. Альбом будет рассказывать о смерти, все песни будут повествовать об этом. Трэк-лист:</FONT></P>
+<P>1. <STRONG>The scythe<BR></STRONG>2. <STRONG>Lost hill of memories<BR></STRONG>3. <STRONG>Infection<BR></STRONG>4. <STRONG>Poison tears<BR></STRONG>5. <STRONG>A riddle of stars<BR></STRONG>6. <STRONG>Romance & Wrath<BR></STRONG>7. <STRONG>The divided heart</STRONG><BR>8. <STRONG>Horns Ablaze</STRONG> (digipack limited edition bonus track)<BR>9. <STRONG>Totentanz<BR></STRONG>10. <STRONG>Death and the suffering<BR></STRONG>11. <STRONG>Dominhate</STRONG></P>
+Автор: Vit Belov
+
+### 21.08.2008 news ELVENKING закончили акустический альбом
+
+<P>Итальянцы<STRONG> ELVENKING</STRONG> закончили работу над новым акустическим альбомом. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 13.01.2009 news ELVENKING записали музыку для фильма
+
+<P>Новую инструментальную и оркестровую&nbsp;версию своей песни <STRONG>"Rouse Your Dream</STRONG>" записали ELVENKING&nbsp;для фильма <STRONG>"Little Black Dress</STRONG>" австралийского режиссёра <STRONG>Fredric Noah</STRONG>. Оригинальная версия этой песни также присутствует в саундтрэке этой картины.&nbsp;</P>
+Автор: Vit Belov
+
+### 15.01.2009 news ELVENKING добавили второго гитариста
+
+<P>Вторым гитаристом <STRONG>ELVENKING</STRONG> стал <STRONG>Rafahel</STRONG>. Он уже более года был концертным музыкантом группы и теперь стал её официальным участником.</P>
+Автор: Vit Belov
+
+### 01.12.2009 reviews Следующие лауреаты Евровидения
+
+<P>Итальянская команда с кельтским уклоном ELVENKING выпустила в прошлом году акустический альбом, который только сейчас до нас добрался. Подобное творчество вряд ли интересно большому количеству лиц.</P>
+<P>Что мы ожидаем от фолкового акустического альбома? Обилие разнообразных народных инструментов, аутентичные вокалы? Нет, у ELVENKING ничего этого нет. Не надо забывать, что эта группа в обычной жизни играет power-metal с влияниями, поэтому на какие-то интересные вокалы рассчитывать не приходится. На фоне негромкой, мелодичной и где-то даже сопливой музыки льётся песня. Итальянская песня про любовь и страдания. Особенно впечатлил человек в буклете с томатным соком на месте сердца, меня от этого зрелища пробил озноб. Я бы порекомендовал ELVENKING на различные конкурсы песни в Италии и за рубежом. «Евровидение», Сан-Ремо – список можно продолжить. Один из открывающих трэков с этого альбома очень мне напомнил творчество норвежца Рыбака, который выиграл последнее Евровидение. Такая же легкомысленная скрипочка и исполненный с акцентом элементарный текст. </P>
+<P>Прослушав этот диск, я так и не понял, зачем я это сделал. Ничего тяжёлого здесь нет, а итальянскую эстраду мне слушать не с руки. Пожалуй, можно только посоветовать поклонникам power-metal, который находится уже за гранью тяжёлой музыки, но всё ещё так называется.</P>
+Автор: Vit Belov
+
+### 05.06.2010 news ELVENKING готовят альбом
+
+<P>Новый альбом <STRONG>ELVENKING</STRONG> должен выйти в сентябре этого года. Группа уже сделала свою работу в студии <STRONG>Piranha </STRONG>в Германии вместе с продюсером <STRONG>Dennis Ward</STRONG> (<B itxtvisited="1">ANGRA</B>, <B itxtvisited="1">PINK CREAM 69</B>, <B itxtvisited="1">PRIMAL FEAR</B>). В настоящее время пластинка проходит стадию сведения. Обложку для нового релиза нарисуте<STRONG> Samuel Araya</STRONG>, известный по работе с<STRONG> CRADLE OF FILTH</STRONG> на их альбоме "<STRONG>Thornography</STRONG>".</P>
+<P>В начале июня группа снимет видео на новую песню "<STRONG>The Cabal</STRONG>".</P>
+Автор: Vit Belov
+
+### 25.07.2010 news Новый альбом ELVENKING
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16948.jpg" width=400 height=400>Итальянцы <B itxtvisited="1">ELVENKING</B> выпускают свой новый альбом <B itxtvisited="1">"Red Silent Tides"</B> осенью 2010&nbsp;на <B itxtvisited="1">AFM Records</B>.&nbsp;CD был записан в <B itxtvisited="1">Piranha</B> studios (Karsdolf,&nbsp;Germany) с продюсером <B itxtvisited="1">Dennis Ward</B> (<B itxtvisited="1">ANGRA</B>, <B itxtvisited="1">PINK CREAM 69</B>, <B itxtvisited="1">PRIMAL FEAR</B>). Обложка альбома нарисована <B itxtvisited="1">Samuel Araya</B>, так же, известным по своей работе над оформлением для <B itxtvisited="1">CRADLE OF FILTH</B> <B itxtvisited="1">"Thornography"</B>.</P>
+<P><BR itxtvisited="1">Песню <STRONG>"The Cabal"</STRONG> с нового альбома можно послушать по ссылке: <A href="http://www.myspace.com/elvenking">www.myspace.com/elvenking</A></P>
+<P><BR itxtvisited="1"><B itxtvisited="1">"Red Silent Tides"</B> трек лист:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Dawnmelting</B><BR itxtvisited="1">02. <B itxtvisited="1">The Last Hour</B><BR itxtvisited="1">03. <B itxtvisited="1">Silence De Mort</B><BR itxtvisited="1">04. <B itxtvisited="1">The Cabal</B><BR itxtvisited="1">05. <B itxtvisited="1">Runereader</B><BR itxtvisited="1">06. <B itxtvisited="1">Possession</B><BR itxtvisited="1">07. <B itxtvisited="1">Your Heroes Are Dead</B><BR itxtvisited="1">08. <B itxtvisited="1">Those Days</B><BR itxtvisited="1">09. <B itxtvisited="1">This Nightmare Will Never End</B><BR itxtvisited="1">10. <B itxtvisited="1">What's Left Of Me</B><BR itxtvisited="1">11. <B itxtvisited="1">The Play Of The Leaves</B></P>
+Автор: Headcrusher
+
+### 11.01.2011 news Видео от ELVENKING
+
+<P>Новое видео итальянцев<STRONG> ELVENKING</STRONG> на песню <STRONG>"Your Heroes Are Dead" </STRONG>можно посмотреть ниже. Песня взята с альбома <STRONG>"Red Silent Tides"</STRONG>, который вышел 17 сентября на<STRONG> AFM</STRONG>. </P>
+<P>
+<CENTER><FONT face=Verdana color=#999999 size=1>
+<OBJECT height=360 width=425><PARAM NAME="allowScriptAccess" VALUE="always"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=107332920,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=107332920,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent" allowScriptAccess="always"></embed></OBJECT></FONT></CENTER>
+Автор: Vit Belov
+
+### 30.05.2011 reviews Мелодичный эльфийский folk-metal
+
+<P>Совершив довольно успешный для себя акустический эксперимент с прошлым альбомом, итальянская команда ELVENKING вернулась к нам в своём электрическом звучании. Есть такие коллективы, к которым нельзя подходить с ортодоксальных heavy-metal позиций. Творчество живёт, и поэтому очень часто коллективы выходят за рамки обыденного, ELVENKING из таких.</P>
+<P>Начнём с того, что использование в тяжёлой музыке скрипки не является настолько аутентичным делом, как может показаться любителям MY DYING BRIDE или SKYCLAD. Начиная играть в подобные игры, металические группы довольно часто отходят настолько далеко в сторону от общих корней, что уже и узнать в этих крашенных романтиках металистов&nbsp; удаётся далеко не всегда. В этом ключе уже не обращаешь внимания на лёгкие в понимании мелодии из итальянской эстрады и пронзительный и душещипательный вокал. ELVENKING следуют своему некогда избранному пути, успешно совмещая мелодичный heavy-metal c эльфийским фольклором. Безусловно приятная смесь взбудоражит не одного впечатлительного юношу и даже заденет некоторых неостывших старичков.</P>
+<P>В общем и целом, альбом “Red Silent Tides” великолепен. Если вам нравится ELVENKING, folk и запредельно мелодичные heavy-metal и hard-rock, этот альбом для вас. Остальные должны пройти мимо, ведь, если честно, эта музыка не имеет к тяжеляку никакого отношения.</P>
+Автор: Vit Belov
+
+### 13.01.2012 news ELVENKING войдут в студию
+
+<P>Итальянцы<STRONG> ELVENKING</STRONG> войдут в финскую студию <STRONG>Sonic Pump</STRONG> 24 февраля для записи нового альбома с продюсером <STRONG>Nino Laurenne (SONATA ARCTICA, AMORPHIS, LORDI)</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подробности последуют.</FONT></P>
+<P><center><IMG height=266 src="/images/news_rus/2012.01/22616.jpg" width=399 border=0></P>
+Автор: Vit Belov
+
+### 03.03.2014 news ELVENKING: новый альбом &quot;The Pagan Manifesto&quot; выходит 9 мая
+
+<P>9 мая лейбл <STRONG>AFM</STRONG> выпускает новый альбом итальянских павер-металлистов <STRONG>ELVENKING</STRONG>. Диск получил название <STRONG>"The Pagan Manifesto"</STRONG>. Обложку альбома выполнил <STRONG>Rhett Podersoo</STRONG>, скрывающийся под вывеской <STRONG>Machine Room Design</STRONG> (<A href="http://machine-room.com/">http://machine-room.com</A>).</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26705.jpg" width=500 height=501></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### ELVENKING и Martin Walkyier (ex-SKYCLAD) в Москве (9 февраля 2013)

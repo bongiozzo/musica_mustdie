@@ -40,6 +40,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2011 news KATALEPSY на Unique Leader Records!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легендарный лэйбл <STRONG>Unique Leader Records</STRONG> подписал отечественный death-metal коллектив <STRONG>KATALEPSY</STRONG>. Сделка включает в себя несколько альбомов коллектива. Новая работа будет записана в конце этого года в Cosmos Studio. </FONT></P>
+<P><A href="http://www.katalepsy.ru/">http://www.katalepsy.ru</A></P>
+<P><center><IMG height=320 src="/images/news_rus/2011.05/19540.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

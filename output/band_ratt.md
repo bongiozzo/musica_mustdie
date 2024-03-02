@@ -41,6 +41,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.11.2003 news RATT in USA
+
+Oct. 23 - Colorado Springs, CO @ The Gardens <BR>Oct. 24 - Gillette, WY @ Jakes <BR>Oct. 25 - Verval, UT @ Club Excess <BR>Oct. 26 - Ogden, UT @ Kamikaze's <BR>Oct. 28 - Norfolk, NE @ The Depot <BR>Oct. 29 - Big Lake, MN @ Salida Events Center <BR>Oct. 30 - Mankato/Faribault, MN @ Hooligans/Boxers <BR>Oct. 31 - Appleton, WI @ Checkered Flag <BR>Nov. 01 - Minneapolis, MN @ The Rock <BR>Nov. 02 - Superior, WI @ 3rd Rock <BR>Nov. 04 - Madison, WI @ TBA <BR>Nov. 05 - Waukesha, WI @ Rooters <BR>Nov. 06 - Peoria, IL @ Sharky's Live <BR>Nov. 07 - Lemont, IL @ Sean Kaley's <BR>Nov. 08 - Kenosha, WI @ The Brat Stop <BR>Nov. 09 - Cedar Rapids, IA @ 3rd Street Live! <BR>Nov. 11 - Battle Creek, MI @ Planet Rock <BR>Nov. 12 - Bay City, MI @ Westown Theater <BR>Nov. 13 - Dekalb, IL @ Otto's <BR>Nov. 14 - Cincinnati, OH @ Annies <BR>Nov. 15 - Middletown, OH @ CC Showcase <BR>Nov. 16 - Pittsburgh, PA @ Mr. Smalls Theater <BR>Nov. 18 - Buffalo, NY @ Rock n Roll Heaven <BR>Nov. 19 - Rochester, NY @ Steel Music Hall <BR>Nov. 20 - Albany, NY @ TBA <BR>Nov. 21 - NJ @ Bonkers <BR>Nov. 22 - Long Island, NY @ MalCaheys <BR>Nov. 23 - Hartford, CT @ Webster Theater <BR>Nov. 25 - Allentown, PA @ Crocodile Rock <BR>Nov. 26 - Hershey, PA @ Shakeys <BR>Nov. 28 - Baltimore, MD @ Thunderdome <BR>Nov. 29 - Winston-Salem, NC @ TBA <BR>Nov. 30 - Charlotte, NC @ TBA <BR>Dec. 02 - N. Charleston, SC @ The Plex <BR>Dec. 03 - TBA @ TBA <BR>Dec. 05 - Orlando, FL @ TBA <BR>Dec. 06 - Tampa, FL @ TBA <BR>Dec. 07 - Jacksonville, FL @ TBA <BR>Dec. 09 - New Orleans, LA @ TBA <BR>Dec. 10 - Houston, TX @ TBA <BR>Dec. 11 - Dallas, TX @ TBA <BR>Dec. 12 - Lubbock, TX @ TBA <BR>Dec. 14 - Albequerque, NM @ TBA <BR>Dec. 15 - Tucson, AZ @ TBA
+Автор: Vit Belov
+
+### 19.11.2010 news RATT: клип на песню &quot;Eat Me Up Alive&quot;
+
+<P>C новым клипом группы<STRONG> RATT</STRONG> на песню <B itxtvisited="1">"Eat Me Up Alive"</B> можно ознакомиться ниже. Видеоклип был снят летом 2010 года во время совместных гастролей калифорнийцев со <STRONG>SCORPIONS</STRONG>.</P>
+<P>Песня <STRONG>"Eat Me Up Alive"</STRONG> вошла в последний альбом группы - <B itxtvisited="1">"Infestation"</B>. Диск вышел 20 апреля 2010 года на лейбле <STRONG>Loud & Proud&nbsp;</STRONG>и стал первой студийной работой группы за 11 лет.</P>
+<CENTER>
+<OBJECT width=420 height=346><PARAM NAME="movie" VALUE="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/3409"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="true">
+<embed src="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/3409" type="application/x-shockwave-flash" allowfullscreen="true" width="420" height="346"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Ratt!

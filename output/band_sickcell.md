@@ -8,6 +8,9 @@ theatrical metal band out of Chicago
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -85,6 +85,364 @@ Japanese bonus track:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.02.2003 reviews Power metal. Финский. На Spinefarm. Нужны ли ещё комментарии?
+
+<p>Power metal. Финский. На Spinefarm. Нужны ли ещё комментарии? Как ни странно, нужны. Потому что DREAMTALE если и имеет что-то общее с NIGHTWISH и SONATA ARCTICA, то крайне мало. Да, это power, – но кто сказал, что такую музыку нельзя слушать удовольствия ради? Многие ведь слушают. Собственно, в случае с DREAMTALE я, как ни странно, именно к таким людям и отношусь. "Beyond Reality" – очень добротный альбом, воспринимающийся свежо и не кажущийся слащавым. Rami, – товарищ, отвечающий за основной вокал, - не самый лучший певец, поэтому лучше всего слушаются вещи, где поёт некая Sanna Natunen (к примеру, закрывающая альбом изумительная "Farewell…") или небезызвестный Marco Hietala. Не сказать, что я в восторге от этого альбома. Но и врать, говоря, что он мне не понравился, не хочу. По крайней мере, это куда лучше, чем (простите) ублюдочная SONATA ARCTICA.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.03.2003 news Новости от DREAMTALE
+
+<p>Выпустившая в 2002 году успешный альбом "Beyond Reality", финская группа DREAMTALE заканчивает запись своего второго альбома под названием "Ocean's Heart" Запись проходит в Fantom Studio, а выйдет альбом в начале лета на Spinefarm Records.</p>
+
+Автор: Dimas
+
+### 20.09.2003 news DREAMTALE Part Ways With Singer
+
+Finland's <B>DREAMTALE</B> have parted ways with vocalist <B>Tomi Viiltola</B> and have replaced him with <B>Jarkko Ahola</B>. "Everything regarding this line-up change with <B>Tomi</B> went well and no big dramatics were involved," the band write on their web site. <B>DREAMTALE</B> have just released their sophomore album, <B>"Ocean's Heart"</B>, through <B>Spinefarm Records</B>
+Автор: Vit Belov
+
+### 21.09.2003 news DREAMTALE расстались с вокалистом
+
+<B>Tomi Viiltola</B> покинул <B>DREAMTALE</B> и был заменён на <B>Jarkko Ahola</B>. "<B>Ничего драматичного не&nbsp;случилось и&nbsp;прошло спокойно</B>...", - пишет группа на своём сайте. Только что финны издали свой второй альбом <B>'Ocean's Heart'</B> на <B>Spinefarm Records.</B>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 13.02.2004 reviews О вреде castraterizer’а
+
+<SPAN><B>
+<P><I>В последнее время чётко обозначилась мода на концептуальные альбомы… Вот и лепят их все, кому не лень. В частности, финны </I><I>DREAMTALE</I><I>. Надо сказать, слабенький альбомчик получился. Если дебют был хоть и 100-процентно вторичным, но всё же содержал в себе несколько отличных вещей наподобие “</I><I>Farewell</I><I>”, то “</I><I>Ocean</I><I>’</I><I>s </I><I></I><I>Heart</I><I>” не только 666-процентно безлик, но и полностью лишён запоминающихся мелодий. Не говоря уже о том, что смена ведущего вокалиста явно была ошибкой: впрочем, сам вокалист упоминает об использовании плаг-ина под названием </I><I>Castraterizer</I><I></I><I>:-)). Что ж, хоть с чувством юмора у этих парней всё в порядке. Что, однако, не мешает этому диску быть откровенно проходным… как минимум. </I></P>
+<P>Диск предоставлен компанией ФОНО</P></B></SPAN>
+Автор: Kai Mathias Stalhammar
+
+### 22.10.2004 news Новый альбом DREAMTALE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом финнов <STRONG>DREAMTALE 'Difference'</STRONG> уже записан. Микс начнётся в ближайшие дни вместе с <STRONG>Mikko Karmila</STRONG>&nbsp;в<STRONG> Finnvox. </STRONG>На пластинке будет 11 песен.</FONT></P>
+Автор: Vit Belov
+
+### 22.10.2004 news New album Of DREAMTALE
+
+<P>The new album of <STRONG>DREAMTALE 'Difference'</STRONG> is now recorded, mixing will start monday 25th of October at <STRONG>Finnvox studios</STRONG> by <STRONG>Mikko Karmila</STRONG>. There will be 11 tracks featured.&nbsp;</P>
+Автор: Vit Belov
+
+### 05.02.2005 news DREAMTALE выложили сэмпл новой песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, финны из <STRONG>DREAMTALE</STRONG> подготовили новый альбом '<STRONG>Difference</STRONG>'. Отрывок песни <STRONG>'Wings Of Icarus'</STRONG> можно послушать здесь: <A href="/samples/d/dreamtale/2005_1385.mp3">http://musica.mustdie.ru/samples/d/dreamtale/2005_1385.mp3</A></FONT></P>
+Автор: Vit Belov
+
+### 09.04.2005 news DREAMTALE покинул вокалист
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>J. Ahola</STRONG> покинул <STRONG>DREAMTALE</STRONG>. Основной причиной стала занятость <STRONG>Ahola</STRONG> в другой группе с нечитаемым финским названием <STRONG>TERДSBETONI</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 05.07.2005 reviews Финское народное творчество
+
+<P>Случилось странное… Удивительное дело – мне пришлась по вкусу группа, играющая мало того, что power metal, так еще и из Финляндии… Вот уж чего-чего, а такого от себя никак не ожидал. Перспективная поначалу SONATA ARCTICA закончилась для меня после первого же альбома, STRATOVARUS до своего распада выпустил два мертворожденных и совершенно неинтересных альбома, а всякие поделки типа ALTARIA ничего, кроме брезгливости, не вызывали.<BR>Первые работы этой команды прошли мимо меня, хотя и вызывали некоторый интерес – но в отзывах DREAMTALE называли то «новой надеждой пауэр-метал-сцены», то «стерильным и безликим продуктом», то «клоном старших товарищей»...&nbsp; Короче, с приобретением дисков этого коллектива я не торопился, решив не рисковать.<BR>А тут вот – так получилось… и мне даже есть, что сказать. Новый альбом группы - “Difference” - выполнен в традиционном «финском» ключе - это качественный современный power metal без каких-либо отступлений. Хотелось бы, конечно, полета фантазии, но и стандарт – не есть плохо (по крайней мере, в этом случае). Кстати, главное, на мой взгляд, здесь отличие от «Стратов» с «Сонатой» (что ни говори, но DREAMTALE – прямой наследник этих команд) – это более грубый и жесткий саунд, добавляющий музыке определенный шарм и ощущение естественности, натуральности. <BR>Весь набор, присущий стилю, - в грамотно рассчитанных пропорциях: тут и среднетемповые композиции с хорами и помпезными клавишными партиями, и энергичные боевички, и душещипательная баллада (их тут аж целых две штуки – акустическая “Sail Away” и неакустическая “Green Fields”). Все как надо, все правильно, все для поклонников. Про то, как альбом сыгран, записан и сведен, говорить, думаю, не стоит – Финляндия, «Финнвокс».… Кое-какие моменты напомнили GAMMA RAY (конкретно – партии гитары на “Wings Of Icaros”) – что не может не радовать: кажется, парни развиваются в правильном направлении :-). <BR>И еще пара слов касательно вокала. У вокалиста достаточно высокий голос, но порой он старательно берет ноты пониже – чтобы казаться более мужественным. Получилось здорово – рОково так, без жалостливых и тоскливых завываний.<BR>P.S. А клавишника зовут Туркка (Turkka), хотя он и финн по национальности :-).</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Dr. Grandma
+
+### 21.07.2005 news DREAMTALE потеряли и барабанщика
+
+<P>Вслед за вокалистом<STRONG> J. Ahola DREAMTALE</STRONG> покинул и барабанщик<STRONG> Pete Rosenbom</STRONG>. Заявление о будущем группы последует в ближайшие дни.</P>
+Автор: Vit Belov
+
+### 21.07.2005 news DREAMTALE split with a drummer
+
+<P>Drummer <STRONG>Pete Rosenbom</STRONG> splited with <STRONG>DREAMTALE</STRONG>. It's interesting, that singer <STRONG>J. Ahola</STRONG> had left the band some months ago. Statement about future of the band will be published next days.</P>
+Автор: Vit Belov
+
+### 25.07.2005 news DREAMTALE found new drummer
+
+<P>Here is update from <STRONG>DREAMTALE</STRONG> site:</P>
+<P>"<EM>We have chosen Rolf "Rolle" Pilve as our new drummer. Rolle really amazed us with his skills and there really wasn't any doubt that he wouldn't be the right guy for us. </EM><EM>Dreamtale is not splitting up! More about what's happening shortly..</EM> "</P>
+Автор: Vit Belov
+
+### 25.07.2005 news DREAMTALE нашли нового барабанщика
+
+<P><STRONG>DREAMTALE</STRONG> сообщили на своём сайте, что группа не собирается распадаться. В доказательство названо имя нового барабанщика - им стал некто <STRONG>Rolf Pilve</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.08.2005 news Новый вокалист DREAMTALE
+
+<P>Финская power metal формация <STRONG>DREAMTALE</STRONG> анонсировала имя своего нового вокалиста. Им стал <STRONG>Nils "Nisse" Nordling, </STRONG>заменивший<STRONG> Jarkko Ahola</STRONG>,&nbsp;который покинул недавно коллектив, чтобы сконцентрироваться на собственном проекте&nbsp;<STRONG>TERASBETONI. </STRONG></P>
+Автор: Dimas
+
+### 24.10.2008 reviews Любителям STRATOVARIUS и SCOOTER
+
+<P>Нельзя утверждать, что финская power-metal группа DREAMTALE всегда находилась в центре нашего внимания. Поговаривают, что у неё были нелёгкие времена, она распадалась, но всё прошло, и группа возродилась, пригласив нового вокалиста Erkki Sepanen (КУРСК).</P>
+<P>Всё это говорят, мы не были свидетелями этих событий, так как DREAMTALE не относилась к числу наших любимейших групп. Нет, мы знали о её существовании и даже знали, что для российского рынка этот неплохой коллектив открыли Фоно, но в принципе сам факт существования или не существования DREAMTALE нас волновал мало. Новая работа с говорящим названием “Phoenix” появилась на наших прилавках на прошлой неделе, и появился повод поинтересоваться. Опять же, нельзя утверждать, что я упал в обморок при прослушивании этой работы, но… “Phoenix” – Очень хороший power-metal альбом. Группа не постеснялась взять всё самое лучшее (хиты) у STRATOVARIUS, HELLOWEEN и GAMMA RAY. Почётные «пауэрщики» быстро найдут схожести с этими гигантами, но нам-то что? Мелодии классные? Йоу! Реализация отличная? Йоу! Сделано с чувством юмора? Йоу! Хиты есть? Йоу-йоу-йоу!!! Прибавьте к этому оригинальные эксперименты с электронным звучанием, на песне “Failed States” DREAMTALE превращаются в power-metal 2UNLIMITED. Эдакий tehno-power-metal. Угарно! Есть здесь и медляк, именно «медляк», с участием девушки и страдальческими стенаниями вокалиста.</P>
+<P>Отличный набор неоригинальных, но мелодичных power-metal хитов, приправленный оригинальными исканиями на «танцполе». Любителям HELLOWEEN, STRATOVARIUS и SCOOTER!</P>
+Автор: Vit Belov
+
+### 15.06.2011 reviews DREAMTALE любят power-metal
+
+<P>Финские power-metal’исты DREAMTALE радуют всех поклонников стиля отсутствием стремления к экспериментам. В 2007 году в группе произошли серьёзные изменения, в результате которых у коллектива появился новый певец Erkki Seppanen, известный нам по работе в КYРСК. “Epsilon” – уже второй альбом DREAMTALE после этого события, и он столь же хорош, как и “Phoenix”.</P>
+<P>Совсем недавно нашему вниманию были представлены три альбома от зачинателей финского направления в power-metal: STRATOVARIUS, REVOLUTION RENAISSANCE и SYMFONIA. На новых пластинках этих групп музыканты активно ищут себя – кто-то пытается усложнить свою музыку, кто-то наоборот хочет вернуться во времена своей юности и повторить прежние успехи. О результатах новаторов мы сможем судить через некоторое время, но возвращения Timo Tolkki к корням не кажутся мне убедительными. DREAMTALE переживают собственную любовь к неоклассическому power-metal гораздо более остро и, главное, искренне. 10 мощных боевиков, которые напоминают одновременно классические STRATOVARIUS и HELLOWEEN, адресованы всем фанатам power-metal. Музыкантам финской группы эта музыка нравится так же сильно, как и им.</P>
+<P>Ещё один хороший альбом от DREAMTALE. Вряд ли этот коллектив получит мировую известность, но локальная популярность ему гарантирована. Добротная и мощная работа.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ###  KORPIKLAANI / SVARTSOT / DREAMTALE (Москва, 8 октября 2011)

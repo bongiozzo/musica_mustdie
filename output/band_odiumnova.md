@@ -8,6 +8,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.01.2013 news Новый альбом на Grailight
+
+<P><STRONG>Grailight Productions</STRONG> объявили о выпуске нового альбома группы <STRONG>ODIUM NOVA "Death Comes Sudden".</STRONG> </P>
+<P>Абсолютно разная, выходящая за грани обыденности, технично исполненная музыка представляет собой смесь Death/Black и Thrash Metal, и для неё характерны как жёсткость, злость и брутальность, так и мелодичность и отрешённая лиричность. </P>
+<P><A href="http://www.facebook.com/odium.nova">http://www.facebook.com/odium.nova</A></P>
+<P>
+<CENTER>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/fhGsp1-V99c?feature=player_detailpage" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.01/25265.jpg" width=450 height=450> 
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

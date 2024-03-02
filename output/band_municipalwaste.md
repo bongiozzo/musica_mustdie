@@ -71,6 +71,187 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2005 reviews Муниципальные хардкорщики.
+
+<P>Стилистику данной формации можно определить, только взглянув на обложку – самосвал, сильно напоминающий Камаз, до отказа груженый людьми – мутантами, которые вываливаются из кузова, причем управляют машиной два таких же уродца, и в ужасе разбегающиеся три чела в одежде химзащиты. Сразу понятно, что перед нами не пауер, не дум и уж тем более не готика, а старый добрый развеселый хард-кор. Очень жесткий и очень быстрый. В музыке группы больше трэшевых составляющих, чем панка. Видно, что ребята конкретно зависают на ранних работах Slayer. Мне, как старому любителю жанра, пластинка пришлась по душе. Рекомендую – отличное настроение при прослушивании гарантировано. Жаль, что продолжительность альбома всего 26 минут.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 01.02.2006 reviews Новая волна кроссовера?
+
+<P>Американская четверка Municipal Waste предлагает нам послушать ничто иное, как эдакую разухабистую смесь трэша, кроссовера, панка, хардкора и металкора, такой вот ненапряженный возврат в 80-е годы с современным саундом. 15 песенок на 26 минут как нельзя лучше подойдут для не очень длительного хэдбэнгинга. Очень быстро, довольно агрессивно и жутко весело. Не совсем понятно, что эти ребята делают на Earache, ну да местным менеджерам виднее. Определенно нетипичная для нашего времени пластинка, но как знать, может, вслед за Municipal Waste появится новая волна подобной музыки. Добавлю лишь, что в записи принимал участие бывший барабанщик Discordance Axis Дэйв Уитт (а уж ударных на диске в избытке), а обложку рисовал Эд Репка, работавший с такими монстрами, как&nbsp; Megadeth и Death.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 14.12.2007 reviews Учитесь правильно тусить!
+
+<P>Какой может быть тусовка? Да всякой разной. Для американских кроссоверщиков Municipal Waste слово party означает бухать, блевать, лапать девок и бить морду (или просто прибить кого-нибудь). Второй полноформатник квартета "The Art Of Partying" мало чем отличается от своего предшественника "Hazardous Mutation" 2005-го года. Всё те же быстрые, шустрые и короткие (15 на 32 минуты) песенки, в которых смешаны трэш, панк, кроссовер и хардкор, только в этот раз кора поменьше, а панка побольше. Других изменений нет, разве что в этот раз обложку рисовал не культовый художник Эд Репка, а наш бывший соотечественник (уехал в 1996-ом году в Штаты из белорусского Витебска) Андрей Бузиков. Замечу, правда, что дебютник по звуку мне понравился побольше. Так что закупайтесь пивом или чем покрепче, одевайте тряпки похуже (а то забрызгаете кровью в ходе драки), берите подружек пострашнее (а то вдруг на них блеванете ненароком), включайте Municipal Waste - и вечерника будет что надо! Рекомендуется также любителям таких команд, как D.R.I. и S.O.D. Кстати, на альбоме имеется hidden track - слушайте последнюю вещь 'Born To Party' внимательно и до конца!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 03.02.2009 news MUNICIPAL WASTE войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MUNICIPAL WASTE</STRONG> войдут в студию <STRONG>Red Planet </STRONG>в марте для записи нового альбома с продюсером <STRONG>Chris "Zeuss" Harris</STRONG> (<B>THROWDOWN</B>, <B>SHADOWS FALL</B>, <B>HATEBREED</B>). Пластинка выйдет в августе на <STRONG>Earache</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 14.03.2009 news Селекционеры из MUNICIPAL WASTE
+
+<P><STRONG>MUNICIPAL WASTE</STRONG> продолжают запись своего нового альбома <STRONG>"Massive Aggressive"</STRONG> в студии <STRONG>Red Planet Studios </STRONG>с продюсером <STRONG>Chris "Zeuss" Harris</STRONG> (<B>HATEBREED</B>, <B>SHADOWS FALL</B>). По словам группы, ей удалось скрестить традиционный heavy и hardcore punk, что дало великолепный результат.</P>
+Автор: Vit Belov
+
+### 14.04.2009 news MUNICIPAL WASTE назначили дату
+
+<P><STRONG>MUNICIPAL WASTE</STRONG> закончили работу над новым альбомом <STRONG>"Massive Aggressive".</STRONG> Пластинка выйдет 24 августа на <STRONG>Earache.</STRONG></P>
+Автор: Vit Belov
+
+### 14.06.2009 news Новая песня и оформление MUNICIPAL WASTE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.06/14185.jpg" width=400 align=right vspace=5 border=0>Группа <STRONG>MUNICIPAL WASTE</STRONG>&nbsp;обнародовала&nbsp;песню <STRONG>"Wrong Answer"</STRONG> с выходящего в августе нового альбома на своей Myspace-странице: <A href="http://www.myspace.com/municipalwaste">http://www.myspace.com/municipalwaste</A>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Так же,&nbsp;ко всеобщему обозрению выложена обложка&nbsp;для диска, которую выполнил <STRONG>Андрей Бузиков </STRONG>(иммигрировавший в 1996 году в возрасте 16 лет из Витебска (Беларусь)&nbsp;в С.Ш.А.), уже работавший с группой над оформлением к предыдущему альбому. С другими работами Андрея можно ознакомиться по следующим ссылкам:</FONT></P>
+<P><A href="http://www.andreibouzikov.com/">www.andreibouzikov.com</A></P>
+<P><STRONG><A href="http://www.andreiboo.blogspot.com">www.andreiboo.blogspot.com</A></STRONG></P>
+Автор: Headcrusher
+
+### 27.08.2009 news Новое видео MUNICIPAL WASTE
+
+<P><STRONG>MUNICIPAL WASTE</STRONG> выложили в сеть своё новое видео на песню <STRONG>"Wrong Answer". </STRONG>Режиссёром ролика выступил <STRONG>David Brodsky</STRONG> (<B>SUICIDE SILENCE</B>, <B>THE BLACK DAHLIA MURDER</B>, <B>IN THIS MOMENT</B>).</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/8bJ9bYCmO2c&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/8bJ9bYCmO2c&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.01.2010 reviews К вам, любителям «старого доброго», обращаемся
+
+<P>Мы уже рассказывали о тяге лэйбла Earache Records к разнообразному old-school материалу. Сейчас они рассчитывают на деньги любителей heavy-metal со стажем, а чуть раньше в их обойме появились crossover группы, среди которых ведущей можно назвать американский коллектив MUNICIPAL WASTE, выпустивший на английском лэйбле уже третий «лонг-плэй».</P>
+<P>Должно быть, эта тактика Earache Records имеет шанс на успех. В век умирания физических носителей, лучшим помощником в реализации CD могут стать группы, играющие музыку для 30-40-летних. Эти дядьки не будут брезговать покупкой компактного диска ещё долгое время, а именно им MUNICIPAL WASTE и адресует свои альбомы. Нарочито «олдкскульный» звук, короткие как выстрелы песни, «припанкованный» ритм. “Massive Aggressive” слушается на одном дыхании. Легко представить диапазон нападок критиков на эту работу, я сам с удовольствием пнул бы этих американцев, если бы душа моя не лежала к подобной музыке. Отмечу только, что MUNICIPAL WASTE не удаётся удержать внимание поклонников thrash-metal, так как их звук недостаточно сочен и мясист по современным меркам.</P>
+<P>Хорошая «винтажная» работа, легко находящая своих поклонников среди преданных любителей thrash-metal/crossover/punk-rock. Никаких иных заслуг, кроме «винтажности», пожалуй, у MW нет, но и этого достаточно.</P>
+Автор: Vit Belov
+
+### 19.10.2010 news Новейший клип MUNICIPAL WASTE на песню &quot;Wolves Of Chernobyl&quot;
+
+<P>Новейший клип <STRONG>MUNICIPAL WASTE</STRONG> на песню <STRONG>"Wolves Of Chernobyl"</STRONG> доступен для просмотра ниже.</P>
+<P><center><object width="480" height="385"><param name="movie" value="http://www.youtube.com/v/sqX1Y2tAMO4&ap=%2526fmt%3D22"></param><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><embed src="http://www.youtube.com/v/sqX1Y2tAMO4&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></object></P>
+Автор: Headcrusher
+
+### 19.06.2011 news MUNICIPAL WASTE на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские "трешеры" <STRONG>MUNICIPAL WASTE</STRONG> заключили сделку с <STRONG>Nuclear Blast</STRONG>. Группа собирается в студию этим летом, а альбом выйдет в следующем году.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=277 src="/images/news_rus/2011.06/19703.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 01.08.2011 news Новая группа участников THE DILLINGER ESCAPE PLAN и MUNICIPAL WASTE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>MUNICIPAL WASTE</STRONG> <STRONG>Dave Witte, </STRONG>бывший вокалист<STRONG> THE DILLINGER ESCAPE PLAN</STRONG> <STRONG>Dimitri Minakakis</STRONG> объединились в новой группе <STRONG>ARGONAUTS</STRONG>. Группа собирается пойти своим собственным курсом в тяжёлой музыке. Состав:</FONT></P>
+<P><STRONG>Dimitri Minakakis</STRONG> (ex-THE DILLINGER ESCAPE PLAN) - Vocals<BR><B>John Adubato</B> (ex-BURNT BY THE SUN) - Guitar<BR><B>Brett Bamberger</B> (EAST OF THE WALL) - Bass<BR><B>Dave Witte</B> (MUNICIPAL WASTE, ex-BURNT BY THE SUN) – Drums</P>
+<P>Facebook: <A href="http://www.facebook.com/pages/Argonauts/">http://www.facebook.com/pages/Argonauts/</A></P>
+<P><center><IMG height=367 src="/images/news_rus/2011.08/20388.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 06.01.2012 news MUNICIPAL WASTE закончили запись пятого альбома
+
+<P><STRONG>MUNICIPAL WASTE</STRONG> закончили работу над своим пятым студийным альбомом, который увидет свет весной 2012.&nbsp;Диск получил название <STRONG>"The Fatal Feast"</STRONG>.&nbsp;В качестве приглашённых гостей на нём отметились:</P>
+<P><STRONG>John Connelly</STRONG> [гитарист и&nbsp;вокалист <STRONG>NUCLEAR ASSAULT</STRONG>], </P>
+<P><STRONG>Steve Moore</STRONG> [басист и клавишник space-rock дуэта <STRONG>ZOMBI</STRONG>], </P>
+<P>вокалист&nbsp;<STRONG>Tim Barry</STRONG> [<STRONG>AVAIL</STRONG>].</P>
+<P><STRONG>"The Fatal Feast"</STRONG> станет дебютом <STRONG>MUNICIPAL WASTE</STRONG> для лейбла&nbsp;<STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22535.jpg" width=500 height=331> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 31.01.2012 news PASADENA NAPALM DIVISION заканчивают запись дебютного полноформатника
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22888.jpg" width=310 height=341>Техасцы <STRONG>PASADENA NAPALM DIVISION</STRONG> находятся в завершающей стадии записи дебютного полноформатника. В состав группы воходит никто иной, как <STRONG>Kurt Brecht</STRONG> (вокалист <STRONG>D.R.I.</STRONG>), а&nbsp;так же,&nbsp;<STRONG>Bubba Dennis</STRONG> (бас, <STRONG>VERBAL ABUSE</STRONG>) и&nbsp;три участника ВИА <STRONG>DEAD HORSE</STRONG>.</P>
+<P>В качестве гостя, на альбоме отметился <STRONG>Tony Foresta</STRONG> (вокал, <STRONG>MUNICIPAL WASTE</STRONG>).</P>
+<P>На фото: <STRONG>Kurt Brecht</STRONG> и <STRONG>Tony Foresta</STRONG> записывают вокал для альбома.</P>
+<P>Оф. сайт: <A href="http://www.pasadenanapalmdivision.com">www.pasadenanapalmdivision.com</A></P>
+Автор: Headcrusher
+
+### 08.02.2012 news MUNICIPAL WASTE: обложка альбома &quot;The Fatal Feast&quot;!
+
+<P>Обложка для пятого альбома&nbsp;<STRONG>MUNICIPAL WASTE "The Fatal Feast"</STRONG> стала сегодня достоянием общественности. Автор работы - <STRONG>Justin Osbourn</STRONG>&nbsp;из компании&nbsp;<STRONG>Slasher Design</STRONG>.</P>
+<P>Даты выхода&nbsp;<STRONG>"The Fatal Feast"</STRONG>: Северная Америка - 10 апреля, Европа - 13 апреля.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.02/23002.jpg" width=520 height=520> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 15.02.2012 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.02/23062.png" width=300 height=165>Фестиваль <STRONG>Brutal Assault</STRONG> добавил в свой состав участников ещё три группы и они&nbsp;помогут избавиться вам&nbsp;от лишних киллограмов, которые вы возможно набрали во время новогодних праздников. </P>
+<P>Это троица из Штатов и она заставит вас мошиться, как сумашедших: <STRONG>HATEBREED</STRONG>, <STRONG>SUICIDE SILENCE</STRONG> и <STRONG>MUNICIPAL WASTE</STRONG>.</P>
+Автор: Headcrusher
+
+### 25.02.2012 news MUNICIPAL WASTE: трек &quot;The Fatal Feast&quot; в сети!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стала доступна для прослушивания&nbsp;одноимённая песня с альбома <STRONG>"The Fatal Feast"</STRONG> группы <STRONG>MUNICIPAL WASTE</STRONG>! Всем ценить!</FONT></P>
+<P>Даты выхода&nbsp;диска&nbsp;<STRONG>"The Fatal Feast"</STRONG>: Северная Америка - 10 апреля, Европа - 13 апреля.</P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F36631565&show_artwork=true" frameBorder=no width="100%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 30.03.2012 news MUNICIPAL WASTE: клип на песню &quot;The Fatal Feast&quot;
+
+<P><STRONG>MUNICIPAL WASTE</STRONG> представили видеоклип на песню <STRONG>"The Fatal Feast"</STRONG>, с выходящего в апреле одноимённого альбома.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/GLY4Rpii7bM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.04.2012 news MUNICIPAL WASTE: клип на трек &quot;Repossession&quot; 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>MUNICIPAL WASTE</STRONG> на трек <STRONG>"Repossession"</STRONG>, можно посмотреть ниже.</FONT></P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/0AAfpXv-dz0?version=3&feature=player_embedded"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/0AAfpXv-dz0?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 16.07.2012 news MUNICIPAL WASTE: мультипликационный клип на трек &quot;You&#39;re Cut Off&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэшкоровцы <STRONG>MUNICIPAL WASTE</STRONG> опубликовали мультипликационный&nbsp;клип на трек<STRONG> "You're Cut Off"</STRONG>. Создатели видео: <STRONG>Pierre Mousquet</STRONG> и <STRONG>Jerume Cauwe</STRONG> из компании <STRONG>"Imov Studios"</STRONG> (<A href="http://www.imovstudios.com/">www.imovstudios.com</A>)</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/rtOyqrNPzsY" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.12.2012 news Пиво MUNICIPAL WASTE
+
+<P>Группа <STRONG>MUNICIPAL WASTE</STRONG> при помощи компании<STRONG> "3 Floyds"</STRONG>, выпускают пиво имени себя. Пиво будет доступно в следующем году. Больше подробностей должно появиться на сайте <A href="http://www.3floyds.com/">www.3floyds.com</A>&nbsp;в ближайшие месяцы.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.12/25194.jpg" width=600 height=429> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 24.01.2013 news Новый проект IRON REAGAN
+
+<P><STRONG>IRON REAGAN</STRONG> - новый thrashcore проект, в который входят 2 нынешних участника <STRONG>MUNICIPAL WASTE</STRONG> и 2 бывших музыканта&nbsp;<STRONG>DARKEST HOUR</STRONG>, выпускает свой дебютный альбом <STRONG>"Worse Than Dead"</STRONG> в начале марта.</P>
+<P>Альбом <STRONG>"Worse Than Dead"</STRONG> выйдет в формате CD на лейбле <STRONG>Magic Bullet </STRONG>(<A href="http://www.magicbulletrecords.com/">www.magicbulletrecords.com</A>), виниловая же версия увидет свет на <STRONG>A389 Recordings </STRONG>(<A href="http://www.a389records.com/">www.a389records.com</A>). Всего на диск вошло 19 треков.</P>
+<P>Обложка <STRONG>"Worse Than Dead" </STRONG>принадлежит перу&nbsp;хозяина&nbsp;<STRONG>Magic Bullet</STRONG>,<STRONG> </STRONG>Бренту Айстону&nbsp;(<STRONG>Brent Eyestone</STRONG>). Её можно увидеть ниже.</P>
+<P>В прошлом году <STRONG>IRON REAGAN</STRONG> уже порадовали&nbsp;фанатов трэшкора&nbsp;дебютной демо записью, которую можно послушать пройдя по ссылке: <A href="http://www.ironreagan.bandcamp.com/">www.ironreagan.bandcamp.com</A></P>
+<P>А совсем недавно, лейбл <STRONG>Clearview</STRONG> выпустил это пяти песенное демо на виниле, аж в трёх различных вариантах.&nbsp;Заказать его можно на сайте <A href="http://www.interpunk.com/">www.interpunk.com</A></P>
+<P>В состав <STRONG>IRON REAGON</STRONG> входят: <STRONG>Tony Foresta</STRONG> (<STRONG>MUNICIPAL WASTE</STRONG>) - вокал | <STRONG>Landphil Hall</STRONG> (<STRONG>MUNICIPAL WASTE</STRONG>, <STRONG>CANNABIS CORPSE</STRONG>) - гитара | Paul Burnette - Bass (ex-<STRONG>DARKEST HOUR</STRONG>) | Ryan Parrish - Drums (ex-<STRONG>DARKEST HOUR</STRONG>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25355.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 30.07.2017 news MUNICIPAL WASTE: клип &quot;Breathe Grease&quot;
+
+<P><STRONG>MUNICIPAL WASTE</STRONG> выпустили видеоклип на песню <STRONG>"Breathe Grease"</STRONG>. Лицам не достигшим совершеннолетия смотреть запрещается. Их новый альбом <STRONG>"Slime And Punishment"</STRONG> уже в продаже! Купить: <A href="http://goo.gl/RqgGtV">http://goo.gl/RqgGtV</A></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/iwEf-1NkIpg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Earache Extreme Metal Racing

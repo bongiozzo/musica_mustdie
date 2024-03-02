@@ -58,6 +58,26 @@ Rob - Bass
 
 * C группой "Arma Gathas" Che Snelting (vocal)
 
+## Публикации
+
+### 22.11.2008 news Видео от BORN FROM PAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом hardcore команды <STRONG>BORN FROM PAIN</STRONG> <STRONG>"Survival" </STRONG>только что вышел на <STRONG>Metal Blade/Fono</STRONG>. Видео на песню <STRONG>"Sons Of A Dying World" </STRONG>с этого альбома можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=46766080">Born From Pain - Sons Of A Dying World</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=46766080,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=46766080,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 25.11.2008 reviews Средний европейский hardcore
+
+<P>Европейский hardcore достаточно сильно отличается от ортодоксального стиля, который всегда был популярен в Америке. Группы с нашего континента щедро приправляют те отмороженные звуки элементами разнообразных стилей тяжёлой музыки, не забывая мощный кричащий вокал и пульсирующий драйв исконного hardcore.</P>
+<P>Голландцы BORN FROM PAIN из таких групп. Обозреваемая пластинка – уже третий релиз группы в нашей стране, изданный на Фоно. Тяжёлый где-то даже медленный hardcore приправлен здесь melodic-death-metal и thrash-metal. Из оригинального стиля остались ещё и остросоциальные текста, обличающие «поганых» политиков и неумных людей. В итоге получилась пластинка, которую интересно слушать, но которая немного потеряла в драйве и «отжиге». Есть здесь и несомненные хиты “Sons Of A Dying World”, например, но есть и песни, без которых можно было бы легко обойтись. К сожалению, эти тормозящие действо вещи и ставят крест на пути BORN FROM PAIN к широкой популярности, так как сама пластинка, как и положено, не очень длинна. </P>
+<P>Хороший hardcore альбом, характеризующий музыкантов с самой лучшей стороны. Они знают, как сделать любителям стиля приятно, вот только за пышными и злободневными текстами затерялась нужная энергия.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

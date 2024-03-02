@@ -60,6 +60,61 @@ INTRO
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.11.2001 news INSISION have finished recording their debut album for Earache&#x2F;Wicked World ...
+
+<p>Sweden's classic death metallers INSISION have finished recording their debut album for Earache/Wicked World in Berno Studios, Sweden... the same legendary studio where THE HAUNTED recorded The Haunted Made Me Do It. Entitled Beneath the Folds of Flesh, the album is set for US release in spring 2002. Produced by Berno Paulson and Johan Axelsson (DERANGED axemeister), Beneath the Folds of Flesh contains nine tracks of sadistic death metal, free of the typical Swedish melodic tendencies. The track listing for Beneath the Folds of Flesh is as follows: <BR><BR> 01. World Impaled <BR> 02. Trapped Within <BR> 03. Sado God <BR> 04. Temple of Flesh <BR> 05. Rewind into Chaos <BR> 06. Impamiiz Graa <BR> 07. He's My Fever <BR> 08. Before My Altar <BR> 09. Ex Oblivion<BR><BR> The album's release will be followed by a bunch of shows, plans of which will be announced shortly. For more information on INSISION, go to: http://www.insision.com</p>
+
+Автор: Yermola
+
+### 12.11.2001 news Новое шведское мясо...
+
+<p>Шведы "INSISION" завершили запись дебютника для Earache/Wicked World. Запись проходила в Berno Studios (той самой где уже писались THE HAUNTED - Made Me Do It). Названный "Beneath the Folds of Flesh" альбом выйдет в штатах весной 2002. Спродюссированый Berno Paulson и Johan Axelsson (DERANGED), "Beneath the Folds of Flesh" содержит следующие немелодичные треки: <BR><BR> 01. World Impaled <BR> 02. Trapped Within <BR> 03. Sado God <BR> 04. Temple of Flesh <BR> 05. Rewind into Chaos <BR> 06. Impamiiz Graa <BR> 07. He's My Fever <BR> 08. Before My Altar <BR> 09. Ex Oblivion</p>
+
+Автор: Yermola
+
+### 07.08.2002 reviews Шведское &quot;мясо&quot;, или вегетарианцам вход воспрещён
+
+<p>Достаточно грамотный death metal. Шведский. Ага, загорелись глазки у любителей СМДМ'а! Но, увы и ах, гореть им недолго. А если точнее, то лишь до того момента, как обозреваемый диск будет погружён в муз.центр. Потому как назвать ЭТО "мелодичным металлом" язык не поворачивается. То есть нет, мелодии-то здесь конечно есть, и их немало – да только вот "мелодии" эти скорее всего придутся по вкусу лишь ценителям исключительно брутальной музыки. Думаю, не стоит лишний раз говорить, что Швеция хороша не только как родина DARK TRANQUILLITY и ARCH ENEMY, но и как страна, подарившая нам возможность насладиться творчеством тамошних головорезов в лице… да тех же DERANGED! И вот, в полку шведских сталеваров прибыло. Честно говоря, я не очень хорошо знаком с биографией INSISION, знаю лишь, что "Beneath The Folds Of Flesh" – третий их альбом. Впрочем, группа всё-таки молодая. А ввиду этого вновь следует отметить, что (к сожалению), шведская молодёжь и молодёжь российская не имеют между собой ничего общего. Такое впечатление, что скандинавы чуть ли не с пелёнок начинают осваивать азы игры на самых различных муз.инструментах, и к 16-20 годам достигают завидного мастерства. INSISION – не исключение. Всё сыграно (и записано) очень ровно, и претензии как к исполнению, так и к качеству записи что-то не желают вылезать на свет. С оригинальностью, правда, есть проблемы. Вроде бы ничего ни у кого не содрано, но альбом от этого не кажется менее вторичным. Другое дело, что в данном жанре оригинальность не пользуется особой популярностью… да и достичь её, нарезая брутальнейший дэт, мягко говоря, нелегко. А быть может, и ненужно. "Мясо" оно и есть "мясо". А его на "Beneath The Folds Of Flesh" предостаточно. С кровью. Приятного аппетита.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 27.08.2002 news MassaBrutto Radioshow #102, 26-27 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. DEMENTOR - Waiting For The Death (Qabalah Prods/Fatal Ecstasy Prods)<BR> 2. DECEMBER WOLVES - Desperately Seeking Satan (Earache)<BR> 3. INSISION - He's My Fever (Earache)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Symphonies Of Sickness", 1989, Earache]<BR> 4. CARCASS - Exhume To Consume<BR> 5. CARCASS - Ruptured In Purulence<BR> 6. CARCASS - Swarming Vulgar Mass Of Infected Virulency<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> Радиопрезентация новейшего альбома "Dissimulate" австралийцев THE BERZERKER (2002, Earache/Soyuz). Розыгрыш компактов от концерна "Группа Союз". <BR> 7. THE BERZERKER - Disregard<BR> 8. THE BERZERKER - Failure<BR> 9. THE BERZERKER - Death Reveals<BR> 10. THE BERZERKER - Last Mistake<BR> 11. THE BERZERKER - Betrayal<BR> 12. THE BERZERKER - Painless<BR> 13. THE BERZERKER - Corporal Jigsore Quandary [by CARCASS]<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 27.08.2002 news MassaBrutto Radioshow #102, 26-27 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. DEMENTOR - Waiting For The Death (Qabalah Prods/Fatal Ecstasy Prods)<BR> 2. DECEMBER WOLVES - Desperately Seeking Satan (Earache)<BR> 3. INSISION - He's My Fever (Earache)<BR> Kilo-metre section [CARCASS, album "Symphonies Of Sickness", 1989, Earache]<BR> 4. CARCASS - Exhume To Consume<BR> 5. CARCASS - Ruptured In Purulence<BR> 6. CARCASS - Swarming Vulgar Mass Of Infected Virulency<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> THE BERZERKER album "Dissimulate" presentation (2002, Earache/Soyuz). "Soyuz" CD ruffle<BR> 7. THE BERZERKER - Disregard<BR> 8. THE BERZERKER - Failure<BR> 9. THE BERZERKER - Death Reveals<BR> 10. THE BERZERKER - Last Mistake<BR> 11. THE BERZERKER - Betrayal<BR> 12. THE BERZERKER - Painless<BR> 13. THE BERZERKER - Corporal Jigsore Quandary [by CARCASS]<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.02.2004 news Insision собираются в студию
+
+<P>Шведские брутальщики <B>INSISION</B> собираются в студию 4 марта. В <B>Soundlab Studios</B>&nbsp;в Orebro группа запишет новый альбом "<B>Revealed And Worshipped</B>". Продюсером его станет <B>Mieszko Talarczyk (NASUM).</B></P>
+Автор: Vit Belov
+
+### 26.02.2004 news INSISION to record new album
+
+<B>INSISION</B> will enter the<B> Soundlab Studios</B> in Orebro, Sweden on March 4th. The band will record new album <B>'Revealed And Worshipped'</B> with producer <B>Mieszko Talarczyk (NASUM).</B>
+Автор: Vit Belov
+
+### 21.04.2004 news Insision выпускают новый альбом
+
+<P><B>INSISION</B> выпускают новый альбом "<B>Revealed and Worshipped</B>"&nbsp;в конце лета на <B>Earache</B>. Трэк-лист:</P>
+<P>01. <B>No Belief</B><BR>02. <B>The Foul Smell Of Humans</B><BR>03. <B>Imminent Vision</B><BR>04. <B>In the Gallows</B><BR>05. <B>The Cleansing</B><BR>06. <B>Revealed and Worshipped</B><BR>07. <B>The Unrest</B><BR>08. <B>Grotesque Plague Mass</B><BR>09. <B>We Did Not Come To Heal</B><BR>10. <B>Havoc</B><BR>11. <B>The Ideas Of Revolution</B> </P>
+Автор: Vit Belov
+
+### 05.07.2004 reviews Шведское мясо, приготовленное по американскому рецепту. Вкусно!
+
+<P>Вы хотели шведского мяса? Получите. Второй полноформатник шведских бруталеров, существующих еще с 1997 года. Но мяско приготовлено по лучшим американским рецептам. Дико технично, потрясающе брутально. Isision этим альбом дали хорошего пинка под зад своим соотечественникам и единомышленникам, например, Deranged или Anata. Редко в этом жанре попадаются пластинки, которые при всей своей хлещущей через край брутальности и злобе звучат настолько "нетупо". Ломовые риффы, великолепная работа барабанщика, нечеловеческий вокал, да еще прибавьте продюсера Mieszko Talarczyk (Nasum). Притом материал технически настолько сложен, что в банду в свое время пришлось взять второго гитариста. Поверьте, совсем нечасто современная дэт-сцена радует нас релизами такого качества. И то, что в июне Isision отправились в европейский тур с грандами интеллектуального дэта Suffocation - лишнее тому подтверждение. Morbid Angel, Incantation, Malevolent Creation, Skinless, Immolation, Internecine - вот герои группы. И если вы любите эти коллективы, то и "Revealed And Worshipped" вам придется по вкусу.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

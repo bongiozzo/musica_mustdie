@@ -75,6 +75,33 @@ Thomas Fagerlind, bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.04.1999 reviews 
+
+<p>Второй альбом этого коллектива, нарезающего death. Перефразирую классика: "Кто сказал, что death-metal мёртв, нет, он затаился на время". Действительно, пока живы такие люди, как Питер Тагтгрен и Томас Скогсберг, смерть этому стилю не грозит. Этот коллектив был спродюсирован вторым из этих столпов. Честно говоря, этот коротенький альбом полон всяческих фенечек, которые не дают заскучать. То кто-то начинает впаривать что-то вначале песни, то кто-то закричит, то ещё что-то, типа любимого панками затихания записи, а затем продолжения песни несмотря на это. Всё это прикалывает наряду ещё и с тем, что такая музыка стала сейчас довольно сильной редкостью. Я бы назвал этот коллектив помесью Hypocrisy и Dismember. Встречаются и медленныо-завораживающие участки в стиле последних Hypocrisy, быстро-"танцевальные" в стиле Dismember 1995, но главное, конечно же, это обычный современный death. На альбоме есть и кавер, неотличающийся оригинальностью - это "Symptom Of The Universe" Black Sabbath. Альбом можно посоветовать любителям death-metal с хорошим звуком, ведь в товарном знаке "Томас Скогсберг", вряд ли кто-нибудь из Вас сомневается.</p>
+
+Автор: Vit Belov
+
+### 15.05.2001 news Датский Демон...
+
+<p>Датские дэтстеры "DAEMON" (имеющие в своем составе мэйнмена "KONKHRA" - Anders Lundemark и барабанщика "STRAPPING YOUNG LAD" - Gene Hoglan) завершили запись третьего альбома и будут микшировать его в самое ближайшее время. Скорее всего релиз (как и предыдущие два) выйдет на Diehard Records.</p>
+
+Автор: Yermola
+
+### 15.05.2001 news DAEMON, the Danish project featuring KONKHRA .....
+
+<p>DAEMON, the Danish project featuring KONKHRA mainman Anders Lundemark and STRAPPING YOUNG LAD drummer Gene Hoglan, have completed recording their third full-length album and will have it mixed in early June. However, according to Lundemark, the CD may or may not be issued through Diehard Records (who released the group's first two recordings), pending the label's commitment to supporting the album with a tour. "I'm sure as hell not interested in releasing this record as a goddamn secret with poor exposure touring wise and what have you!" Anders reasoned. In related news, KONKHRA are in the process of writing the material for their forthcoming album, which will likely be released in early 2002 through an as-yet-undetermined label. According to Anders, "we are very careful to make everything as downright mean and brutal as can be. We are finished with four songs and have three more cooking right now. Deal? Yeah, we have two serious and OK offers, but we are waiting until the record is 100% done and then we'll announce our new label. We ain't rushing this. This time (like every time), we want the record to be the best it can be." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.11.2002 reviews Melodic. Rocking. And brutal as f**k.
+
+<p>Oh, what a brilliant piece of death metal! Shredding. Making your ears bleed. Even if it’s pretty much melodic. Led by Anders Lundemark (KONKHRA) and featuring Gene Hoglan behind the drumkit, it just can’t be a pile of crap, can it? Of course not. I don’t know if it’s the second, third, fourth or tenth CD by DAEMON – I only know that, besides “Eye For An Eye”, I own “Seven Deadly Sins” dated with a year of 1996, and that one doesn’t really warm me up. Some typical Swedish death metal, y’know. Nothing more, nothing less. “Eye For An Eye” isn’t typical, however. It isn’t Swedish. It’s just simultaneously melodic, rocking and brutal as fuck. And it’s death metal. One of the best kinds of it I’ve got acquainted lately. Check out the track five, “Eternal Bliss”. Now, how do you like it? Excellent? Well, others aren’t worse at all. A MUST HAVE.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

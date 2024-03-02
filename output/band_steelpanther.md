@@ -20,6 +20,40 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.02.2014 news STEEL PANTHER: подробности третьего альбома и концерты в России
+
+<P>Американские глэм-приколисты, группа <STRONG>STEEL PANTHER</STRONG>,&nbsp;выпускают свой третий полноформатник под названием <STRONG>"All You Can Eat"</STRONG>. В Северной Америке диск выйдет 1 апреля на лейбле <STRONG>Open E</STRONG>, продукцию которого распространяет&nbsp;&nbsp;компания <STRONG>Kobalt Music Group</STRONG>. </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный синг с этого альбома </FONT><STRONG>“Party Like Tomorrow Is The End Of The World”</STRONG>, <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>был выпущен ещё в ноябре 2013. А клип на этот трек снял режиссёр </FONT><STRONG>Rob Riggle</STRONG>. Не подвергшийся цензуре вариант видео,&nbsp;гостевое участие в котором приняли <STRONG>Ron Jeremy</STRONG> (порнозвезда 80-х) и&nbsp;<STRONG>Steve-O</STRONG> (ТВ-сериал <STRONG>"Jackass"</STRONG>),&nbsp;можно посмотреть по ссылке: <A href="http://youtu.be/roRcksH2_HQ">http://youtu.be/roRcksH2_HQ</A>&nbsp;</P>
+<P>В этом месяце <STRONG>STEEL PANTHER</STRONG> дадут два концерта в России. Более подробную информацию по этим мероприятиям можно найти в нашем разделе <STRONG>Shows</STRONG>: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></P>
+<P>Трек-лист <STRONG>"All You Can Eat"</STRONG>:</P>
+<P>01.&nbsp;<STRONG>Pussywhipped</STRONG> | 02.&nbsp;<STRONG>Party Like Tomorrow Is The End Of The World</STRONG> | 03.&nbsp;<STRONG>Gloryhole</STRONG> | 04.&nbsp;<STRONG>Bukkake Tears</STRONG> | 05.&nbsp;<STRONG>Gangbang</STRONG> <STRONG>At The Old Folks Home</STRONG> | 06.&nbsp;<STRONG>Ten Strikes You’re Out</STRONG> | 07.&nbsp;<STRONG>The Burden Of Being Wonderful</STRONG> | 08. <STRONG>F@#king</STRONG> <STRONG>My Heart In The Ass</STRONG> | 09.&nbsp;<STRONG>BVS</STRONG> | 10. <STRONG>You’re Beautiful When You Don’t Talk</STRONG> | 11. <STRONG>If I Was The King</STRONG> | 12. <STRONG>She’s On The Rag</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.02/26611.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 11.04.2014 news Новое видео STEEL PANTHER
+
+<P>Новый ролик <STRONG>STEEL PANTHER</STRONG> на песню "<STRONG>Glory Hole</STRONG>" с нового альбома "<STRONG>All You Can Eat</STRONG>", вышедшего 1 апреля при поддержке журнала Hustler.</P>
+<P>"<EM>Лучше посмотрите это видео сейчас, пока его навечно не забанили</EM>", - заявляет группа.</P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/diYS8jyOcFc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.10.2014 news STEEL PANTHER: видеоклип &quot;Pussywhipped&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Pussywhipped"</STRONG> - новый видеоклип от четырёх&nbsp;старых извращенцев, группы <STRONG>STEEL PANTHER</STRONG>. На этот раз, про яйца <EM>(не птичьи)</EM>.</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/qUUc4Cq5NJc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 08.09.2017 news STEEL PANTHER: клип &quot;Wasted Too Much Time&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские пошляки <STRONG>STEEL PANTHER</STRONG> выпустили клип на песню <STRONG>"Wasted Too Much Time"</STRONG>. Помимо оголённых женских тел, в клипе также можно увидеть группу<STRONG> STONE SOUR</STRONG> в полном составе, загримированных почти до неузнаваемости и&nbsp;&nbsp;изображающих глэм-группу играющую внутри дома.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/klYtT4fabQA" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

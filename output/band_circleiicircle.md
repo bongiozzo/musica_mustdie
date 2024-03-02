@@ -111,6 +111,146 @@ Johnny Osborn (drums)
 
 * C группой "Savatage" Zak Stevens (vocal)
 
+## Публикации
+
+### 21.03.2003 reviews Круговая порука
+
+<p>Более трех лет прошло с тех пор, как Zak Stevens покинул SAVATAGE устав после восьми лет постоянных туров с группой и решивший отдохнуть от всего этого посвятив себя своей семье. Однако, душа поэта и музыканта не выдержала и Zak решил снова заняться активной деятельностью. Во время отдыха он, тем не менее, частенько встречался с Jon Oliva. И во время этих многочисленных встреч у друзей созрела идея совместной записи. Jon написал музыку, а Zak лирику. Было записано четыре песни, послужившие толчком к созданию CIRCLE II CIRCLE. Был набран достойный состав, подписан контракт с AFM records и началась работа. В процесс сочинения новых песен был вовлечен еще один участник SAVATAGE - Chris Caffery, с помощью которого было написано еще три убойных хита. Ну и написав еще тройку песен лично, группа начала запись своего дебютного творения в знаменитой Morrisound Studio с Jim Morris в качестве продюссера. Результат получился таким, каким и представлялся с самого начала. Высококачественная музыка в лучших традициях SAVATAGE времен "Dead Winter Dead". Спокойный мелодичный куплет сменяется взрывным эмоциональным припевом. Песни следуют друг за другом без перерывов и промежутков создавая впечатление единой целостной композиции. Превосходная вокальная работа и многоголосья в духе QUEEN. Тяжелые мелодичные гитары, множество акустических и пианинных вставок и все то, что было присуще SAVATAGE. Здесь нет ничего неожиданного. Разнообразный, немного мрачный heavy-power с множеством прогрессивных элементов и массой интересных идей. В первую очередь, конечно же, этот альбом будет наиболее интересен поклонникам SAVATAGE и величественного вокала Stevens'a.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 15.11.2003 news CIRCLE II CIRCLE испытывают серьёзные проблемы с составом
+
+Пять членов группы <B>CIRCLE II CIRCLE</B> - <B>Kevin Rothney, Shane French, Matt Laporte, Christopher Kinder</B>&nbsp;и <B>John Zahner</B> - покинули группу. В ней остался только её лидер вокалист <B>Zak Stevens</B>. Официальная причина - разногласие с менеджментом. <B>Zak</B> активно ищет новых музыкантов, чтобы не сорвался запланированный тур вместе с <B>SAXON</B> и <B>DORO</B> в декабре.
+Автор: Vit Belov
+
+### 22.11.2003 news Saxon, Doro, Dionysus and Circle II Circle in Europe
+
+<P><IMG height=96 alt="" hspace=0 src="/images/shows/2003.11/5234.jpg" width=350 align=absMiddle border=0></P>
+<P>Nov. 29 - Murcia, SPA - Sala Gamma (w/out <B>CIRCLE II CIRCLE</B>)<BR>Nov. 30 - Bergara, SPA - Sala Jam (w/out <B>CIRCLE II CIRCLE</B>)<BR>Dec. 02 - Lyon, FRA – Transbordeur (w/out <B>CIRCLE II CIRCLE</B>)<BR>Dec. 05 - Sofia, BUL - Winter Sports Palace<BR>06.12. GR-Thessaloniki - Ydrogios<BR>07.12. GR-Athen - Gagarin 205<BR>13.12. D&uuml;sseldorf - Phillipshalle (20 years DORO concert)<BR>14.12. Berlin - Columbiahalle<BR>16.12. Tuttlingen - Alte Festhalle<BR>17.12. CH-Pratteln - Z7<BR>18.12. I-Bergamo - Motion<BR>19.12. A-Innsbruck - Messehalle<BR>20.12. A-Wien - Planet Music<BR>21.12. HUN-Budapest - Petofi Hall</P>
+Автор: Vit Belov
+
+### 10.12.2003 news The Jon Oliva Project!
+
+<P>Лидер <B>SAVATAGE Jon Oliva</B> начал работу над своим сольным альбомом, на котором ему помогут все бывшие&nbsp;участники <B>CIRCLE II CIRCLE</B>, которые только что покинули эту группу. В настоящее время новоиспечённая группа даёт концерты, на которых исполняет как сольный материал <B>Oliva</B>, так и песни <B>SAVATAGE</B>, редко исполнявшиеся вживую. В скором будущем группа запишет альбом, дата релиза которого ещё неизвестна.</P>
+Автор: Vit Belov
+
+### 10.12.2003 news The Jon Oliva Project!
+
+<DIV class=RTE><B>Jon Oliva</B>, founder member and mastermind of <B>Savatage</B>, has embarked on a new adventure. Jon has been writing material for a solo album for several years and has now begun the process of bringing that music to life. Jon has recruited the <B>former members of CircleIICircle </B>to peform a series of concerts showcasing his new solo material as well as classic Savatage material. Some of that Sava-material has never been performed live on stage. Some will remember&nbsp;Jon debuting some of&nbsp;his new material&nbsp;at the <B>Criss Oliva Memorial&nbsp;Concert</B> back in October.&nbsp;Jon is also toying with the idea of taking this show&nbsp;on the road in the&nbsp;US and possibly overseas. It is likely that the band (<B>Matt Laporte-guitar, Kevin Rothney-bass, Christopher Kinder-drums, and John Zahner-Keyboards</B>) will return to the studio with Jon to record more tracks for this&nbsp;solo project.&nbsp;There is no information available&nbsp;on a possible release date. </DIV>
+Автор: Vit Belov
+
+### 17.01.2004 reviews Ничего сверх ожидаемого
+
+<P>Очень ровный, приятный и качественный альбом. Музыка стилистически весьма близка к творчеству <B>Savatage</B> середины прошлого десятилетия (что и неудивительно), правда, быть может, немного проще по строению композиций и больше «традиционных» фортепианных клавиш. Подавляющее большинство композиций на диске романтически-меланхолического свойства, и бесспорным лидером по этому показателю является <B>“Walls”</B>, дающая своей мелодикой возможность вспомнить молодую талантливую певицу <B>Britney Spears. </B></P>
+<P>Диск дополнен мультимедийной секцией с клипом на заглавную балладу, интервью, а также скринсэйвером и обоями для рабочего стола.</P>
+Автор: Uneral
+
+### 08.03.2004 news Rolf Kasparek сыграет с CIRCLE II CIRCLE
+
+<P>Лидер <B>RUNNING WILD Rolf Kasparek</B> сочинил одну песню вместе с <B>Zak Stevens</B>, которая войдёт на новый&nbsp;альбом <B>CIRCLE II CIRCLE</B>.</P>
+<P>Новейший альбом <B>RUNNING WILD</B> находится в стадии записи.</P>
+Автор: Vit Belov
+
+### 14.04.2004 news CIRCLE II CIRCLE записывают новый альбом
+
+<B>CIRCLE II CIRCLE</B> записывают новый альбом в знаменитой <B>Morrisound Studio</B> во Флориде. Пластинка выйдет осенью на <B>AFM</B>.
+Автор: Vit Belov
+
+### 06.11.2004 news CIRCLE II CIRCLE заканчивают запись
+
+<P>Погодные катаклизмы прерывали несколько раз запись нового альбома <STRONG>CIRCLE II CIRCLE</STRONG>, которая проходит на западном побережье США. Но сейчас „<STRONG>Middle Of Nowhere</STRONG>“ почти готов и выйдет на <STRONG>AFM</STRONG> в конце февраля.</P>
+Автор: Vit Belov
+
+### 04.02.2005 news CIRCLE II CIRCLE назначили дату
+
+Новый альбом <STRONG>CIRCLE II CIRCLE 'The Middle Of Nowhere'</STRONG> выходит 29 марта на <STRONG>AFM</STRONG>. Радостно, что <STRONG>AFM</STRONG> продолжает работу.
+Автор: Vit Belov
+
+### 13.02.2006 reviews Перемены? А надо?
+
+<P>Не стоит скрывать, чего ждали поклонники от Circle II Circle – второго Savatage.</P>
+<P>И они получили то, о чем мечтали. Альбом “Watching In Silence” отвечал всем их требованиям. </P>
+<P>И вот вторая работа. Зак Стивенс на месте. Голос не сел, он все так же силен и эмоционален. На месте и Крис Олива. Половина песен принадлежит его перу. Но что-то случилось с группой. Может быть, товарищи немного ошиблись в выборе музыкантов (состав был полностью сменён). То, что исполнено все безупречно – бесспорно, а мне кажется, даже, что инструментал звучит даже мощнее, чем на первом альбоме. Но что-то ушло… ушла «саватажевская» атмосфера. Все-таки, скорее всего, подустал Олива. Не жила с ним муза на протяжении всего срока написания нового материала. Так… залетала (крыльями) периодически… По этому вот так и получилось – первая половина “The Middle Of Nowhere” – хороший мрачный хэви-павер. Ничуть не принижаю достоинства красивейших “In This Life” и “All That Remains”, но они могли звучать на альбоме любой другой команды, подходящего уровня. Мощно, красиво… но не то… Возможно, это поиск своего лица? А нафига нам это?!</P>
+<P>Все возвращается в своё русло лишь на седьмой композиции. И тут уже поклонники Savatage расслабляются. Вот он этот звук! Вот они<SPAN> <SPAN lang=EN-US>– </SPAN></SPAN>фирменные мелодии. “Psycho Motor”, “Faces In The Dark”, ‘The Middle Of Nowhere” – просто праздник какой-то!! И удивительно, но одна из этих песен не оливовского авторства. </P>
+<P>Вот такой получился альбомчик. Ждем следующего.</P>
+<P>Диск&nbsp;предоставлен компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 18.05.2006 news CIRCLE II CIRCLE выпустят &quot;Код Да Винчи&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Zak Stevens</STRONG> и его группа <STRONG>CIRCLE II CIRCLE</STRONG> выпускают 4 августа на<STRONG> AFM</STRONG> новый альбом "<STRONG>Burden Of Truth</STRONG>". Пластинка концептуальная, основанная на популярнейшем романе "<STRONG>Код Да Винчи</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 22.06.2006 news Ещё раз о CIRCLE II CIRCLE
+
+<P><STRONG>AFM Records</B></STRONG> анонсировали новую дату выхода нового альбома группы <B>CIRCLE II CIRCLE</B>&nbsp;под названием&nbsp;<B>"Burden of Truth".</B> Он выйдет 6 октября, а не 4 августа, как обещалось ранее. Напомним, что альбом будет концептуальным,&nbsp;по мотивам произведений&nbsp;<STRONG>"Святая кровь, священный Грааль"</STRONG>&nbsp;и <B>"Код Да Винчи"</B>. Альбом был записан во флоридской <B>Morrisound Recording</B>. По словам <STRONG>Зака Стивенса</STRONG>, он чрезвычайно рад, что ему удалось закончить эту глобальную работу, которая станет лучшей в его музыкальной карьере. Трек-лист альбома:<BR><BR>1. <B>Who Am I To Be</B><BR>2. <B>Matter Of Time</B><BR>3. <B>Heal You</B><BR>4. <B>Revelations</B><BR>5. <B>This Is Your Reality</B><BR>6. <B>Evermore</B><BR>7. <B>The Black</B><BR>8. <B>Messiah</B><BR>9. <B>Sentenced</B><BR>10. <B>Burden of Truth</B><BR>11. <B>Live As One</B><BR>12. <STRONG>Into The Wind</STRONG> (acoustic bonus track)<BR>13. <B>Burden Of Truth</B> (acoustic bonus track)</P>
+Автор: Dimas
+
+### 20.10.2006 reviews Без фишки и без огонька
+
+<P>Zak Stevens, долгое время певший в группе Savatage, в 2000-ом году покинул её, да и вообще сначала решил завязать с музыкой. Однако, видимо, сделать это оказалось не так просто, и вскоре на свет появился новый коллектив Circle II Circle, где Стивенс и взял бразды правления в свои руки. "Burden Of Truth" это уже третий полноформатник группы. А играют ребятки мелодичный такой вариант смеси хэви и пауэра американского разлива (иногда вспоминаются, к примеру, Iced Earth - послушайте, к примеру,&nbsp;'The Black' или 'Revelations'). Сам альбом является концептуальным, а "инспиративным" материалом, как гласит пояснение на промо-диске, послужили книги "The Da Vinci Code" и "Holy Blood Holy Grail". И всё бы ничего, голос Стивенс за эти годы не потерял, записано всё это дело в Morrisound Studios, так что сами понимаете, но... Как-то вот песни эти не запоминаются и совершенно не цепляют. Такой ровный, но и стандартный материал. Да и собственных фишек у группы нет (ну если не считать вокал). В результате получился крепенький такой альбомец, который, правда, переслушивать никакого желания не возникает.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 22.01.2008 news CIRCLE II CIRCLE заканчивают работу
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CIRCLE II CIRCLE</STRONG> заканчивают работу над новым альбомом <STRONG>'Delusions of Grandeur', </STRONG>который выйдет весной на <STRONG>AFM</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 12.08.2008 reviews Тяжеленный кусок американского heavy
+
+<P>Бывший вокалист SAVATAGE Zak Stevens продолжает свою успешную сольную карьеру. Эта карьера началась примерно в тоже время, что и карьера Jon Oliva с его «Болью». Теперь два музыканта на одном лэйбле AFM выпускают очень успешные альбомы, и их мысли сейчас крайне далеки от любого ре-юниона бывшей группы.</P>
+<P>Zak не заморачивается былой сложностью и прогрессивностью, наследником которой стал Jon. Новый альбом CIRCLE II CIRCLE “Delusions Of Grandeur” представляет собой тяжеленный кусок американского heavy-metal, со свойственными этому стилю влияниями stoner. Низкий строй гитар, медленные неторопливые мелодии и великолепный голос Zachary. Эта пластинка впечатлила меня своим качеством и, что особенно неожиданно, своей тяжестью. На отличной песне “Waiting”, например, CIRCLE II CIRCLE играют melodic death-metal, группа звучит тяжелее, чем многие нынешние наследники этого стиля. Отсюда выплывает ещё одно сравнение. CIRCLE II CIRCLE можно смело рекомендовать любителям творчества подопечных знаменитого продюсера Roy Z. Сольники Rob Rock, Bruce Dickinson… Zak Stevens не уступит им своими данными, да и мелодии на этом альбоме очень не плохи.</P>
+<P>Советую всем любителям американского heavy-power. JAG PANZER, ICED EARTH – эти группы тоже приходят на ум при прослушивании “Delusions of Grandeur”. Ну и, конечно же, любителям SAVATAGE не надо пропускать эту работу, всё-таки голос очень узнаваемый, и некоторые ходы вполне достойны были бы занять своё место в альбомах знаменитой группы. Качественная работа.</P>
+Автор: Vit Belov
+
+### 26.01.2009 news Новый проект WICKEDWITCH ищет имя
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=434 alt="" hspace=0 src="/images/news_rus/2009.01/13449.jpg" width=400 align=right border=5>Новый проект с участием <STRONG>Zachary Stevens</STRONG> (vocals; <B>CIRCLE II CIRCLE</B>), <B>Jeff Plate</B> (drums; <B>TRANS-SIBERIAN ORCHESTRA</B>, <B>METAL CHURCH</B>) и&nbsp;басист/гитарист <B>Matt Leff</B> (<B>ADAM BOMB</B>, <B>TRIGGER EFFECT</B>), который ранее назывался <STRONG>WICKEDWITCH</STRONG>, ищет новое имя. Музыку группы можно послушать на её<STRONG> MySpace</STRONG> страничке. Уже записаны следующие песни, которые войдут на будущий альбом:</FONT></P>
+<P>01. <B>Bleed</B> <BR>02. <B>Psychotic</B> <BR>03. <B>Innocence</B> <BR>04. <B>Promise</B> <BR>05. <B>Between The Lines</B> <BR>06. <B>Breakdown</B> <BR>07. <B>Soul To Fire</B> <BR>08. <B>This Time</B> <BR>09. <B>The Moment</B> <BR>10. <B>Just A Game</B> <BR>11. <B>Midnight Rain</B> <BR>12. <B>Wings Of An Angel</B> </P>
+<P>Ссылка: <A href="http://www.myspace.com/wickedwitchtheband">http://www.myspace.com/wickedwitchtheband</A></P>
+Автор: Vit Belov
+
+### 07.12.2009 news CIRCLE II CIRCLE поменяли барабанщика
+
+<P>Новым барабанщиком <STRONG>CIRCLE II CIRCLE</STRONG> стал <STRONG>Johnny Osborn</STRONG> (<B>X-THIRTIEN</B>, <B>DR. BUTCHER</B>). Он заменил <STRONG>Tom Drennan</STRONG>. Также из группы ушёл гитарист <STRONG>Bill Hudson</STRONG>, в коллективе останется теперь четыре участника. </P>
+Автор: Vit Belov
+
+### 09.08.2010 news Новый альбом CIRCLE II CIRCLE
+
+<P>Новая пластинка<STRONG> CIRCLE II CIRCLE</STRONG> <STRONG>"Consequence Of Power" </STRONG>выходит 10 сентября на<STRONG> AFM</STRONG>. Концептуальный альбом записан в <STRONG>Sweet Spot Studios.</STRONG></P>
+<P><center><IMG height=401 src="/images/news_rus/2010.08/17002.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 05.05.2011 reviews Звёзды интеллектуального метала
+
+<P>Музыку, которую играет бывший вокалист SAVATAGE Zak Stevens в своей группе CIRCLE II CIRCLE, встретишь не так часто. Интеллектуальный heavy-metal, основы которого были заложены предыдущей группой певца, пожалуй, никому так не удаётся сейчас, как CIRCLE II CIRCLE и JON OLIVA’S PAIN.</P>
+<P>“Consequence of Power” продолжает линию эпичности и концептуальности предыдущих работ Zak Stevens. Красивые мелодии, стилистика музыки, определяемая скорее нуждами композитора, а не трендами, и великолепный мощный вокал предлагают испытать непередаваемые ощущения всем посвящённым. Именно так должен выглядеть тяжёлый метал для взрослых – зрелый, звучный и захватывающий.</P>
+<P>Описывать творчество CIRCLE II CIRCLE одновременно просто и сложно. Все, кто слышал и любил хотя бы один поздний альбом SAVATAGE, относятся к Zak Stevens с максимальным уважением, остальным поклонникам тяжёлой музыки CIRCLE II CIRCLE покажется странным и ни на что не похожим.</P>
+Автор: Vit Belov
+
+### 01.12.2012 news CIRCLE II CIRCLE поменяли лэйбл
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.12/25102.jpg" width=213 height=213>Новый альбом группы бывшего участника<STRONG> SAVATAGE Zak Stevens CIRCLE II CIRCLE</STRONG> <STRONG>"Seasons Will Fall" </STRONG>выйдет 25 января на <STRONG>Edel/earMusic</STRONG>. Трек-лист:</P>
+<P>01. <B>Diamond Blade</B><BR>02. <B>Without A Sound</B><BR>03. <B>Killing Death</B><BR>04. <B>Epiphany</B><BR>05. <B>End Of Emotion</B><BR>06. <B>Dreams That Never Die</B><BR>07. <B>Seasons Will Fall</B><BR>08. <B>Never Gonna Stop</B><BR>09. <B>Isolation</B><BR>10. <B>Sweet Despair</B><BR>11. <B>Downshot</B><BR>12. <B>Only Yesterday</B><BR><BR><B>CIRCLE II CIRCLE</B>:<BR><BR><B>Zak Stevens</B> - Vocals<BR><B>Mitch Stewart</B> - Bass/Vocals<BR><B>Bill Hudson</B> - Guitar/Vocals<BR><B>Christian Wentz</B> - Guitar/Vocals<BR><B>Henning Wanner</B> - Keyboards/Vocals<BR><B>Adam Sagan</B> - Drums</P>
+Автор: Vit Belov
+
+### 03.02.2013 reviews Конкретики не хватает
+
+<P>После прекращения активной деятельности SAVATAGE, великой группе с разной долей успешности наследуют два коллектива – JON OLIVA’S PAIN и CIRCLE II CIRCLE от другого вокалиста Zak Stevens. Безусловно, основным последователем SAVATAGE необходимо считать группу Jon Oliva, но и Zak Stevens, благодаря узнаваемому вокалу и хорошо усвоенным урокам, является живым свидетельством творческой состоятельности SAVATAGE.</P>
+<P>На своём новом альбоме CIRCLE II CIRCLE продолжают выбранный ранее курс, мелодичный , среднетемповый heavy-metal с глубоким вокалом и интересными мелодическими решениями на протяжении треков длительностью выше среднего. Все понимают, что не всегда удаётся достичь поставленных целей при записи альбома. И если выдержать стилевую ориентацию у Zak Stevens получается превосходно, здесь есть и баллады и эпики в духе “Wake Of Magellan”, с творческим наполнением альбома не всё так хорошо. При его прослушивании получаешь удовольствие от приятных ассоциаций с классическими работами, которыми восхищался прежде, но остаётся ощущение недосказанности от того, что содержание не слишком соответствует выбранной шикарной форме. CIRCLE II CIRCLE играют хорошо и приятно, но не более.</P>
+<P>Средний альбом, чтобы скрасить вечерок, но хороших песен на нём даже меньше, чем на предшественниках. Безусловно, они здесь присутствуют, и поклонники SAVATAGE впечатлятся, но хотелось бы побольше конкретики, которой здесь явно не хватает.</P>
+Автор: Vit Belov
+
+### 22.03.2014 news Новый клип CIRCLE II CIRCLE
+
+<P>Ролик на песню <STRONG>CIRCLE II CIRCLE&nbsp;'Diamond Blade'</STRONG> с последнего альбома "<STRONG>Seasons Will Fall</STRONG>" можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/OeuahVq7ONo?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

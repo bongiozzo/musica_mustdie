@@ -88,6 +88,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news OUTRAGE запишут альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немцы <STRONG>OUTRAGE</STRONG> сообщили, что перезапишут свою классику для релиза на новом альбоме с прозаическим названием "<STRONG>Go To Hell</STRONG>". Пластинка должна выйти в октябре на <STRONG>Metal On Metal Records</STRONG>. Именно энтузиазм этого итальянского лэйбла вернул к жизни уже было прекратившую своё существование группу. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Некоторые наброски нового альбома доступны на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/outragepforzheim">http://www.myspace.com/outragepforzheim</A></FONT></P>
+<P><center><IMG height=227 src="/images/news_rus/2011.07/19923.jpg" width=339 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

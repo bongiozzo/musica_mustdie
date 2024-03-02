@@ -95,6 +95,66 @@ Daniel Flores (Mind's Eye) - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2004 reviews Шоу? Просто неплохая музыка
+
+<P>Не очень понятно, откуда взялся дурацкий термин «Symphonic Metal»? Или еще круче - “<SPAN lang=EN-GB>Theatrical </SPAN><SPAN lang=EN-GB>Metal</SPAN>“? Ими пестрят многие рекламные агитки и рецензии в сети. Какое отношение они (даже если и имеют право на существование… хе… особенно «театральный») имеют к альбому свежеиспеченной группы “Evil Masquerade”? Да никакого! Если не считать отвратительного зубастого гоблина на обложке, раздвигающего театральный занавес, и ряженных- крашенных, под лиц нестандартной сексуальной ориентации, участников коллектива. Дизайнера буклета Томаса Трэйна надо жестоко убить. Я б никогда в жизни, не купил бы диск с такой картинкой. Если б не знал заранее, что я услышу.</P>
+<P>А вот внутреннее содержание мерзко оформленнойпластиковой коробочки гораздо интереснее.</P>
+<P>Группу «Evil Masquerade” создали отнюдь не новички. Гитарист Henric Flymanи басист Kasper Gram работали в хреновенькой, но все ж в чем то прогрессивной команде (для тренировки полезно) “Wuthering Heights”, ударник Dennis Buhl в “Sinphonia”, а вокалист Henrik Brockmann в “Royal Hunt” и “Cornerstone”. Да еще клавишные партии исполняют<SPAN> <SPAN lang=EN-US>Mats Olausson (Malmsteen), Richard Andersson (“Majestic”, “Time Requiem”) и&nbsp;Andre Andersen (“Royal Hunt”).</SPAN></SPAN></P>
+<P>Оригинального ничего придумывать они не стали. Играют традиционный неоклассический павер. И делают это очень качественно. Похоже на смесь “Blind Guardian” и “Majesty” (собственно, любой подобной команды). У Брокмэнна “Welcome To The Show”, пожалуй, лучшая работа. Гитарист великолепен, частенько использует цитаты из классики. Очень даже к месту. Клавиши стандартно хороши. А вот с сонграйтерством вопрос пока открыт. Хитова только последняя песня “Lucy The Devil”. А самые интересные, как это ни странно, три бонусные композиции. “Deliver Us” просто шикарна. </P>
+<P>“Evil Masquerade” неожиданный и не типичный для «Фронтирс» коллектив. Но, скорее всего, приобретение это перспективное. Еще один подобный альбом, и группам первой лиги европейского павера придется потесниться.</P>
+<P><I>Диск выпущен по лицензии компанией </I><A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 06.01.2005 news Новое безумие от EVIL MASQUERADE
+
+<P><STRONG>EVIL MASQUERADE -&nbsp;</STRONG>датская&nbsp;symphonic power metal&nbsp;формация, в состав которой входят бывший вокалист&nbsp;<B>ROYAL HUNT</B>&nbsp;<B>Henrik Brockmann</B>&nbsp;и гитарный виртуоз&nbsp;<B>Henrik Flyman</B>,&nbsp;заканчивает работы над своим&nbsp;вторым альбомом&nbsp;<B>"Theatrical Madness"</B>.&nbsp;Как и в случае с дебютом, гостевое участие в записи альбома приняли известные клавишники&nbsp;<B>Andre Andersen</B> (<B>ROYAL HUNT</B>)&nbsp;и&nbsp;<B>Richard Andersson</B> (<B>TIME REQUIEM</B>, <B>SPACE ODYSSEY</B>).&nbsp;Альбом должен выйти 11 апреля 2005 года на <STRONG>Frontiers Records.</STRONG> Предположительный трек-лист:<BR>1. <B>When Satan Calls</B><BR>2. <B>Theatrical Madness</B><BR>3. <B>Bozo the Clown</B><BR>4. <B>Now When Our Stars Are Fading</B><BR>5. <B>A Great Day to Die</B><BR>6. <B>Demolition Army</B><BR>7. <B>Snow White</B><BR>8. <B>Witches Chant</B><BR>9. <B>Other Ways to Babylon</B><BR>10. <B>The Dark Play</B><BR>11. <B>Outro</B></P>
+Автор: Dimas
+
+### 22.02.2005 news Новые песни от EVIL MASQUERADE
+
+<P><IMG height=297 alt="" hspace=0 src="/images/news_rus/2005.02/7969.jpg" width=300 align=left border=5>Как уже сообщалось, <STRONG>EVIL MASQUERADE</STRONG> готовят новый альбом "<STRONG>Theatrical Madness</STRONG>" к выходу на <STRONG>Frontiers</STRONG>. Стали доступны сэмплы трёх песен группы по адресу: <A href="/ru/band/evil_masquerade/10750/#samples">http://musica.mustdie.ru/ru/band/evil_masquerade/10750/#samples</A></P>
+Автор: Vit Belov
+
+### 03.04.2006 news EVIL MASQUERADE записали альбом
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2006.04/10187.jpg" width=400 align=right border=5>EVIL MASQUERADE</STRONG> записали свой третий альбом "<STRONG>Third Act</STRONG>". В качестве гостевых музыкантов в работе приняли участие клавишники<STRONG> Richard Andersson</STRONG> и <STRONG>David Rosenthal</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>The Devil's Last Temptation</STRONG><BR>2. <STRONG>Third Act<BR></STRONG>3. <STRONG>Black Ravens Cry</STRONG><BR>4. <STRONG>Descended From The Grave</STRONG><BR>5. <STRONG>Far Away</STRONG><BR>6. <STRONG>The Dark Minstrel Plays</STRONG><BR>7.<STRONG> I'll Make You Burn</STRONG><BR>8. <STRONG>Under The Surface Of Water</STRONG><BR>9. <STRONG>Orchestration For More Than One Horn</STRONG><BR>10. <STRONG>Bring On The World</STRONG><BR>11. <STRONG>The Final Goodbye</STRONG></P>
+Автор: Vit Belov
+
+### 01.12.2008 news Новый альбом EVIL MASQUERADE
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.12/13085.jpg" width=400 align=right border=5>EVIL MASQUERADE</STRONG> назвали свой четвёртый альбом <STRONG>"Fade To Black". </STRONG>Данная пластинка выйдет в 2009 году на пока не названном лэйбле. На этом альбоме в группе засветился знаменитый клавишник <STRONG>Tony Carey</STRONG>. Состав:</P>
+<P><STRONG>Henrik Flyman</STRONG> - Guitar<BR itxtvisited="1"><B itxtvisited="1">Apollo Papathanasio</B> (FIREWIND) - Vocals<BR itxtvisited="1"><B itxtvisited="1">Daniel Flores</B> (MIND'S EYE) - Drums<BR itxtvisited="1"><B itxtvisited="1">Johan Niemann</B> (THERION, DEMONOID) - Bass<BR itxtvisited="1"><B itxtvisited="1">Tony Carey</B> (RAINBOW) – Keyboards</P>
+<P>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Lights Out</B><BR itxtvisited="1">02. <B itxtvisited="1">In a Dungeon Close to Hell</B><BR itxtvisited="1">03. <B itxtvisited="1">The Darkness Within</B><BR itxtvisited="1">04. <B itxtvisited="1">Hollow Soul</B><BR itxtvisited="1">05. <B itxtvisited="1">Different Shades of Black</B><BR itxtvisited="1">06. <B itxtvisited="1">Powertools</B><BR itxtvisited="1">07. <B itxtvisited="1">The Ultimate Game</B><BR itxtvisited="1">08. <B itxtvisited="1">Desire and Pain</B><BR itxtvisited="1">09. <B itxtvisited="1">Diamond Dust</B><BR itxtvisited="1">10. <B itxtvisited="1">I Believe In Sin</B></P>
+Автор: Vit Belov
+
+### 16.09.2011 news EVIL MASQUERADE закончили альбом
+
+<P><IMG height=394 alt="" hspace=0 src="/images/news_rus/2011.09/21125.jpg" width=475 align=right border=0>Датчане <STRONG>EVIL MASQUERADE</STRONG> закончили работу над пятым альбомом <STRONG>"Pentagram". </STRONG>Продюсером альбома выступил гитарист группы <STRONG>Henrik Flyman,&nbsp;а</STRONG> свёл его&nbsp;<STRONG>Tommy Hansen</STRONG> (<B>JORN</B>, <B>HELLOWEEN</B>) в <STRONG>Jailhouse Studios. </STRONG>Трек-лист:</P>
+<P>01. <B>Pentagram</B><BR>02. <B>A Silhouette</B><BR>03. <B>Perfect Disgrace</B><BR>04. <B>The Spirits of the Dead</B><BR>05. <B>Moonlight Fantasy</B><BR>06. <B>Unholy Water</B><BR>07. <B>Pray For Mercy On Our Souls</B><BR>08. <B>Soul Taker</B><BR>09. <B>On a Bed of Thorns</B><BR>10. <B>Strangers Might Fool Ya</B><BR>11. <B>When the Fire Dies</B><BR>12. <B>The Golden Ratio</B></P>
+<P>Состав:</P>
+<P><STRONG>Henrik Flyman</STRONG> - Guitar<BR><B>Apollo Papathanasio</B> (FIREWIND, SPIRITUAL BEGGARS) - Vocals<BR><B>Dennis Buhl</B> - Drums<BR><B>Thor Jeppesen</B> - Bass</P>
+Автор: Vit Belov
+
+### 04.04.2012 news Новый альбом EVIL MASQUERADE
+
+<P>21 мая выходит новый альбом <STRONG>EVIL MASQUERADE "Pentagaram"</STRONG>. Продюсером альбома снова выступил Henrik Flyman, а сведением занимался <STRONG>Tommy Hansen (HELLOWEEN, JORN)</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="69">Pentagram</B><BR itxtNodeId="68">02. <B itxtHarvested="0" itxtNodeId="67">A Silhouette</B><BR itxtNodeId="66">03. <B itxtHarvested="0" itxtNodeId="65">Perfect Disgrace</B><BR itxtNodeId="64">04. <B itxtHarvested="0" itxtNodeId="63">The Spirits of the Dead</B><BR itxtNodeId="62">05. <B itxtHarvested="0" itxtNodeId="61">Moonlight Fantasy</B><BR itxtNodeId="60">06. <B itxtHarvested="0" itxtNodeId="59">Unholy Water</B><BR itxtNodeId="58">07. <B itxtHarvested="0" itxtNodeId="57">Pray For Mercy On Our Souls</B><BR itxtNodeId="56">08. <B itxtHarvested="0" itxtNodeId="55">Soul Taker</B><BR itxtNodeId="54">09. <B itxtHarvested="0" itxtNodeId="53">On a Bed of Thorns</B><BR itxtNodeId="52">10. <B itxtHarvested="0" itxtNodeId="51">Strangers Might Fool Ya</B><BR itxtNodeId="50">11. <B itxtHarvested="0" itxtNodeId="49">When the Fire Dies</B><BR itxtNodeId="48">12. <B itxtHarvested="0" itxtNodeId="47">The Golden Ratio</B></P>
+<P><STRONG></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/DCXEeY1_jgI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.06.2012 news Новый альбом EVIL MASQUERADE в Musica Shop
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit1><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.06/24067.jpg" width=400 align=right border=0>MUSICA Shop представляет</FONT></SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятый альбом датской группы <STRONG>EVIL MASQUERADE</STRONG> под управлением гитариста <STRONG>Henrik Flyman "Pentagram"</STRONG> можно приобрести в нашем магазине. У микрофона популярный вокалист<STRONG> FIREWIND Apollo Papathanasio</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Pentagram</STRONG>&nbsp;04:12&nbsp; <BR>2. <STRONG>A Silhouette</STRONG>&nbsp;03:51&nbsp; <BR>3. <STRONG>Perfect Disgrace</STRONG>&nbsp;03:26&nbsp; <BR>4. <STRONG>The Spirits of the Dead</STRONG>&nbsp;04:13&nbsp; <BR>5. <STRONG>Moonlight Fantasy</STRONG>&nbsp;03:02&nbsp; <BR>6. <STRONG>Unholy Water</STRONG>&nbsp;03:49&nbsp; <BR>7. <STRONG>Pray For Mercy On Our Souls</STRONG>&nbsp;03:32&nbsp; <BR>8. <STRONG>Soul Taker</STRONG>&nbsp;04:36&nbsp; <BR>9. <STRONG>On a Bed of Thorns</STRONG>&nbsp;04:20&nbsp; <BR>10. <STRONG>Strangers Might Fool Ya'</STRONG>&nbsp;02:10&nbsp; <BR>11.<STRONG> When the Fire Dies</STRONG>&nbsp;03:32&nbsp; <BR>12. <STRONG>The Golden Ratio</STRONG>&nbsp;01:08</P>
+<P>Также доступны все четыре старых альбома группы в фирменном исполнении. <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

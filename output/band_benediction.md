@@ -213,6 +213,116 @@ Engineered by Paul 'PJ' Johnson
 * C группой "Lock Up" Nick Barker (drums)
 * C группой "Brujeria" Nick Barker (drums)
 
+## Публикации
+
+### 18.12.1999 news 
+
+<p>Benediction выпустят новый альбом весной этого года. Это будет первый релиз с участием нового вокалиста Дэйва Ханта.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Benediction пишут песни для своего нового альбома, первого вместе с новым вокалистом Дэйвом Хантом. Сообщается, что группа не изменила своему музыкальному стилю.</p>
+
+Автор: Vit Belov
+
+### 25.10.2000 news Benediction записывают новый альбом
+
+<p>Возможно, запись будет завершена до начала ноября. Дата выпуска этого релиза, названного "Organized Chaos", пока не обьявлена. Ожидается, что музыканты не обманут надежды старых фэнов, выпустив еще один качественный death-metal альбом.</p>
+
+Автор: Phantom Lord
+
+### 10.11.2000 news Benediction работают над новым альбомом.
+
+<p> Дэдстеры Benediction в настоящий момент работают над песнями для своего следующего альбома "Organized Chaos", выход которого ожидается в апреле 2001-го года.</p>
+
+Автор: Nybras
+
+### 10.11.2000 news Benediction are currently  working on the songs
+
+<p> British Death Metal-monoliths BENEDICTION currently are working on the songs of their next album "Organized Chaos", which will be out in April 2001 and should feature some intense and brutal Death Metal again.</p>
+
+Автор: Nybras
+
+### 29.01.2001 news Выход нового альбома Benediction задерживается
+
+<p> Задерживается выход нового альбома Benediction "Organized Chaos". Это связано с тем, что продюссер, которого ребята хотят пригласить для работы над своим диском, сейчас сильно занят другой работой.</p>
+
+Автор: Nybras
+
+### 22.08.2002 news CONQUER FEST II in UK
+
+<p>BENEDICTION ( legend of death metal - UK ) <BR> HELL-BORN ( one of the best old school of black metal - Poland )<BR> IMMEMORIAL ( death metal - Poland )<BR> EPITOME ( pathological grind / gore - Poland )<BR> HECATE ENTHRONED ( black metal - UK )<BR> DAM ( UK )<BR><BR> 26,10,2002 London Camden the UNDERWORLD<BR> doors open at 17.00 ( 5 PM )<BR> more @ WWW.CONQUEREC.COM<BR><BR> Tomasz Podolecki<BR> & Conquer Records UK<BR> WWW.CONQUEREC.COM<BR> PO BOX 33904<BR> LONDON<BR> NW9 7ZU<BR> Great Britain<BR></p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Wake Up And Smell The Carcass", 1996]<BR><BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 26.10.2002 news Conquer Records News
+
+<p>We have some news from Conquer Records. 2 new albums were released recently. There are new albums of Hell-Born "The Call of Megiddo" (death-black metal) and Quo Vadis "King" (thrash metal) in stores now. Also new live dates announced. Today - Conquer Records Festival II (Benediction, Hell-Born, Immemorial, Epitome, Hecate Enthroned, Dam) in Lonodn Camden the Underworld. And also 4th of November - Behemoth, Diabolic, Thus Defiled, Epitome, The Enchanted and 21st of November - NECROPHOBIC, Diabolical, Domain, Hell-Born, Quo Vadis, Corruption, Unnamed, Mess Age.</p>
+
+Автор: Vit Belov
+
+### 12.02.2006 news Новый альбом BENEDICTION
+
+<P>Новый альбом<STRONG> BENEDICTION</STRONG> будет называться "<STRONG>Killing Music</STRONG>" и выйдет в июне/июле на <STRONG>Nuclear Blast</STRONG>. Альбом стал дебютом для нового барабанщика <STRONG>Nick Barker</STRONG> (ex-<STRONG>DIMMU BORGIR</STRONG>, ex-<STRONG>CRADLE OF FILTH</STRONG>). </P>
+Автор: Vit Belov
+
+### 14.01.2007 news BENEDICTION снова в строю
+
+<P>Британский экстремальный коллектив<STRONG> BENEDICTION</STRONG> готовит к изданию свою новую работу под названием <B>"Killing Music"</B>, знаменующую их возвращение на тяжелую сцену. Он выйдет на&nbsp;<B>Nuclear Blast Records</B>. В группе новый барабанщик <STRONG>Nicholas Barker,</STRONG> который играл во многих известных коллективах, На данный момент, он&nbsp;является участником <B>BRUJERIA</B> и принимает участие в записи нового альбома <STRONG>TESTAMENT</STRONG>.</P>
+Автор: Dimas
+
+### 29.01.2008 news Названия некоторых песен BENEDICTION
+
+<P><STRONG>BENEDICTION</STRONG> заняты работой над новым альбомом "<STRONG>Killing Music</STRONG>". Стали известны названия некоторых вещей: <STRONG>'Killing Music'</STRONG>, <B>'Dripping With Disgust'</B>, <B>'Rats In The Mask (Controlopolis)'</B>, <B>'They Bleed'</B>, <B>'I Am The Betrayer'</B>&nbsp;и <B>'Dissembler'</B>.</P>
+Автор: Vit Belov
+
+### 25.04.2008 news BENEDICTION завершили работу над новым альбомом
+
+<P>Британские экстремалы из&nbsp;<B>BENEDICTION</B>&nbsp;закончили работу над своим новым долгожданным альбомом под названием&nbsp;<B>"Killing Music"</B>,&nbsp;выход которого ожидается в конце года на&nbsp;<B>Nuclear Blast Records</B>. Он был записан под руководством продюсера <B>Mick</B>&nbsp;<B>Kenney</B> (<B>ANAAL NATHRAKH).</B> В <B>"Killing Music"</B> вошли следующие вещи:<BR>1. <B>Hells Gate</B><BR>2. <B>Cold, Deathless, Unrepentant</B><BR>3. <B>Killing Music</B><BR>4. <B>Dripping With Disgust</B><BR>5. <B>Dissembler</B><BR>6. <B>Rats In The Mask</B> (Controlopolis)<BR>7. <B>Betrayer</B><BR>8. <B>Immaculate Facade</B><BR>9. <B>They Bleed</B><BR>10. <B>Frozen Heart</B><BR>11. <B>The Grey Man</B><BR>12. <B>As Her Skin Weeps</B><BR>13. <B>They Must Die Screaming</B><BR>14. <B>Seeing Through My Eyes</B> (BROKEN BONES cover)<BR>15. <B>Largactyl</B> (AMEBIX cover)<BR></P>
+Автор: Dimas
+
+### 20.05.2008 news Сэмплы нового BENEDICTION
+
+<P><STRONG>BENEDICTION</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке сэмплы с нового альбома "<STRONG>Killing Music</STRONG>", который увидит свет в начале сентября на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>Hells Gate</B><BR>02. <B>Cold, Deathless, Unrepentant</B><BR>03. <B>Killing Music</B><BR>04. <B>Dripping With Disgust</B><BR>05. <B>Dissembler</B><BR>06. <B>Rats In The Mask</B> (Controlopolis)<BR>07. <B>Betrayer</B><BR>08. <B>Immaculate Facade</B><BR>09. <B>They Bleed</B><BR>10. <B>Frozen Heart</B><BR>11. <B>The Grey Man</B><BR>12. <B>As Her Skin Weeps</B><BR>13. <B>They Must Die Screaming</B><BR>14. <B>Seeing Through My Eyes</B> (BROKEN BONES cover)<BR>15. <B>Largactyl</B> (AMEBIX cover)</P>
+<P>На последней песне в записи приняли участие гостевые музыканты:</P>
+<P>Vocals - <B>Karl Willetts</B> (BOLT THROWER)<BR>Vocals - <B>Kelly Shaefer</B> (ATHEIST)<BR>Backing Vocals - <B>The Fog</B> (FROST), <B>Frank</B> and <B>Dave</B> (BENEDICTION)<BR>Bass - <B>Billy Gould</B> (FAITH NO MORE, BRUJERIA)</P>
+<P>Ссылка: <A href="http://www.myspace.com/benedictionuk">http://www.myspace.com/benedictionuk</A></P>
+Автор: Vit Belov
+
+### 30.06.2008 news Новая песня BENEDICTION
+
+<P><STRONG>BENEDICTION</STRONG> выложили новую песню <STRONG>"Immaculate Fasade" </STRONG>с будущего альбома "<STRONG>Killing Music</STRONG>", выходящего 22 августа на <STRONG>Nuclear Blast</STRONG>, на своей <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/benedictionuk">http://www.myspace.com/benedictionuk</A></P>
+Автор: Vit Belov
+
+### 30.09.2008 reviews Привет из прошлого
+
+<P>Бывают такие группы, как BENEDICTION. Времена меняются, а они остаются с нами в своём неизаенном состоянии. Многие их коллеги, death-metal'исты из 90-х, либо прекратили своё существование, либо изменились до неузнаваемости. BENEDICTION же, несмотря на все перемены в составе и огромные перерывы между альбомами, продолжают радовать свои пусть не очень многочисленных, но зато очень преданных фэнов.</P>
+<P>Быть может, если бы пластинки группы выходили каждые два года, нам бы и надоел этот «однообразный» и прямолиняйный мясной саунд. «Коренной» death-metal, истоки которого отчётливо заметны в thrash-metal, может надоесть, но не может разонравиться. Те, кто слушали BENEDICTION в 90-е, не откажутся от этого удовольствия и в 00-е. «Killing Music», безусловно, не лучший альбом коллектива. Мне, например, остро не хватает вокалиста Peter с его характерным гроулом. Также и достаточно проходных вещей на этом альбоме хватает, нельзя сказать, что это фейрверк death-metal. Но, блин, тех забойнейших трэков, которые открывают пластинку вполне хватит, чтобы оправдать покупку этой работы.</P>
+<P>BENEDICTION — музыка для посвящённых. Здесь нет техничных переходов, нет ураганного ритма, но здесь есть энергия, которую слушатель либо чувствует, либо нет. Вот и всё!!! Я чувствую...</P>
+Автор: Vit Belov
+
+### 03.11.2008 news BENEDICTION вновь войдут в студию
+
+<P>В начале 2009 года <STRONG>BENEDICTION </STRONG>войдут в студию для записи нового альбома. Нопомним, что последний релиз группы "<STRONG>Killing Music</STRONG>" вышел в этом году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Benediction

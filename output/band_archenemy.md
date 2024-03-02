@@ -279,6 +279,1212 @@ Daniel Erlandsson - Drums
 * C группой "Hearse" Johan Liiva (vocal)
 * C группой "The End (Sweden)" Daniel Erlandsson
 
+## Публикации
+
+### 22.05.1999 news 
+
+<p>Новый альбом Arch Enemy будет называться "Burning Bridges" и выйдет в скором будущем.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Arch Enemy выпустят новый альбом 13 июля. Эта работа будет дебютом в команде Шарли Д'Анджело, известного по работе с Mercyful Fate и Witchery.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Новым басистом Dismember стал Шарли Д'Анджело (Arch Enemy, Witchery, Mercyful Fate). Группа записывает новый альбом, который выйдет осенью.</p>
+
+Автор: Vit Belov
+
+### 22.12.1999 reviews 
+
+<p>Отличный death-metal. ARCH ENEMY с каждым новым альбомом всё больше и больше усваивают уроки старой школы шведского death-metal. Быстрая забойная музыка в сочетании с филигранными гитарными проходами. Техничность музыкантов опять-таки даёт о себе знать. Брутальность и интенсивность вкупе с мелодичностью- всё, что надо для создания хорошего настроения. (8)</p>
+
+Автор: Vit Belov
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 05.12.2000 news Потеря у &quot;Arch Enemy&quot;
+
+<p>Вокалист "Arch Enemy" Johan Liiva покинул команду в связи с переходом в "Nonexist" (ранее "Legacy").</p>
+
+Автор: Yermola
+
+### 20.02.2001 news Враг не дремлет!!!
+
+<p>По сообщению официального сайта www.archenemy.net ARCH ENEMY провели две последние недели в UK микшируя новый альбом, который должен стать "более тяжелым и агрессивным нежели Burning Bridges...". Также в ближайшее время команда обещает объявить имя нового вокалиста.</p>
+
+Автор: Yermola
+
+### 20.02.2001 news ARCH ENEMY mixing their new album
+
+<p>According to a posting at www.archenemy.net, members of ARCH ENEMY have spent the last two weeks in the UK mixing their new album. They describe the album as being "more heavy and aggressive than Burning Bridges... with a bigger sound". The band hope to 'officially' announce the name of the new singer shortly. Meanwhile, the band continue to add sound files to their web site, now including tracks from their live album, Burning Japan Live, as well as 'Screams Of Anger', the Japanese bonus track from Stigmata - http://www.archenemy.net/music.html</p>
+
+Автор: Yermola
+
+### 28.02.2001 news Wages of Sin...
+
+<p>Новый альбом ARCH ENEMY будет называться "Wages of Sin". В него войдут следующие вещи: Enemy Within, Burning Angel, Heart Of Darkness, Ravenous, Savage Messiah, Dead Bury Their Dead, Web Of Lies, The First Deadly Sin, Behind The Smile, Snow Bound (Instrumental), Shadows And Dust. Пока что известна только дата японского релиза, это 25 Апреля, но остальные также последуют очень скоро. На сайте www.archenemy.net вы можете скачать четыре вещи с "Wages of Sin".</p>
+
+Автор: Yermola
+
+### 28.02.2001 news Wages of Sin
+
+<p>ARCH ENEMY's latest offering, "Wages of Sin" will have the following tracklist: Enemy Within, Burning Angel, Heart Of Darkness, Ravenous, Savage Messiah, Dead Bury Their Dead, Web Of Lies, The First Deadly Sin, Behind The Smile, Snow Bound (Instrumental), Shadows And Dust. So far there is only a Japanese release date set for April 25, but other release dates will be announced soon. Go to http://www.archenemy.net to hear 4 samples from the new album!</p>
+
+Автор: Yermola
+
+### 06.03.2001 news Новый вокалист Arch Enemy....
+
+<p>Наконец-то официально названо имя нового вокалиста Arch Enemy. Им стал...а - Angela Gossow до этого выступавшая в малоизвестных немецких командах Asmodina и Mistress. "Я получила этот телефонный звонок в Ноябре 2000 - заинтересована ли я в репетициях с Arch Enemy? ДААААА!!! Я упаковала мои вещички, прилетела, порепетировала (это все прошло очень хорошо) и спустя 3 недели я уже во Fredman Studios… С УМА СОЙТИ! Примерно через неделю тяжелой работы (ранее у меня никогда не было столь позитивных опытов) я стала членом Arch Enemy. Иногда мечты сбываются..."</p>
+
+Автор: Yermola
+
+### 06.03.2001 news New ARCH ENEMY Vocalist Announced!!!!!!
+
+<p>Hail all ARCH ENEMIES! <BR>So the truth comes out at last…<BR>I have been a bit nervous over the last few weeks about your reaction on my vocals… But looking at the feedback on the site –wow!- I can't begin to tell you, how HAPPY I am right now!!! <BR><BR>I guess, you will be slightly surprised when you see this picture and read my name. The new Arch Enemy vocalist is a SHE – from Germany…haha! <BR><BR>So let me introduce myself to you… <BR><BR>I am not new to the metal scene, though I will be an unknown name for most of you. Actually, I started to growl in 1991 in 2 pretty unknown bands (Asmodina &amp; Mistress). I used to be a true underground-warrior, for nearly 10 years without reaching a break-through point really… The reasons? My former bands played quite extreme death-metal, the German metal-scene is totally overcrowded and I am female. It is still not so easy for woman to be accepted in the metal-scene. <BR><BR>So how did she get the job in Arch Enemy you may wonder?! <BR><BR>This is a story about a long chain of coincidences. I made an interview with Michael in 1999, for a metal-mag I used to work for. I told him about my band and he asked for a tape. I send him this tape plus a bad-quality live-video. How they came to think of me one year later when they decided to split with Johan, I really don't understand myself. Apparently, it was Chris' idea. I'd better let him or Michael tell this part of the story, to explain what went on in their crazy brains… <BR><BR>So I got this phone call in November 2000 – if I am interested in rehearsing with Arch Enemy. YESSSSSSS!!! I packed my stuff, flew over, rehearsed (it went really well) and 3 weeks later I found myself in the Fredman Studios…CRAZY! After one week of hard work (never experienced so much positive torture before ;-) I was an accepted member of the AE-division. Sometimes dreams come true… <BR><BR>We didn't reveal my identity until now because we wanted you to judge the music first. The bands' choice of vocalist is based on musical skills, not on my sex. And I loved to read your suggestions about the new singer… I am sorry, I am not Jeff Walker ;-) But he is one of my favourite singers, along with people like David Vincent (ex. Morbid Angel) and Tom Araya! <BR><BR>A big THANK YOU for your massive response, I am like you – a fan of brutal metal. And I am happy to be here, playing with some of the best guys around! <BR><BR>I am really looking forward to see you all soon on the "Wages Of Sin" world tour!!! 'Til then feel free to contact me per mail: angela@archenemy.net</p>
+
+Автор: Yermola
+
+### 15.03.2001 news NON-EXIST....
+
+<p>После ухода из ARCH ENEMY - вокалист Johan Liiva не сидел сложа руки, а успел обзавестись собственной командой названной NON-EXIST. Контракт с WAR Music уже подписан.</p>
+
+Автор: Yermola
+
+### 15.03.2001 news NON-EXIST....
+
+<p>After his departure from ARCH ENEMY, vocalist Johan Liiva has a new band named NON-EXIST. A contract with WAR Music apparently already has been signed.</p>
+
+Автор: Yermola
+
+### 02.08.2001 reviews Великолепно....
+
+<p>Великолепно.... Кто-то скажет, что группа стала легче, нет, она стала техничнее. Насквозь пропитанный мелодикой техничный death-metal. Недовольных быть просто не должно. Здесь и тяжесть и мелодизм. Некоторые соляки, так это просто power какой-то. Поёт девушка, но только Вы этого не поймёте. Есть даже вступления в стиле Гари Мура. 45 минут, которые Вы не пожалеете и, уж точно не заскучаете. Всем любителям металл-музыки. Очень советую. Представьте себе, последний Carcass, убыстрите его и добавьте мелодичные, берущие за душу, соляки. Нравится? Если не нравится, то слушайте только power.... Что ещё сказать? Да у меня слюньки текут.</p>
+
+Автор: Vit Belov
+
+### 06.08.2001 news Болезнь Angel&#39;ы Gossow...
+
+<p>"ARCH ENEMY" пришлось отменить свое участие в Германском Wacken Festival из-за болезни вокалистки Анджелы Госсоу, которая всю прошедшую неделю безуспешно боролась с ангиной. Что-бы не повредить голосовые связки, доктора посоветовали ей воздержаться от пения в ближайшее время. Таким образом, живой дебют группы с новой участницей откладывается до 16-го августа ("Враг" собираются отыграть шоу в Лондоне).</p>
+
+Автор: Yermola
+
+### 06.08.2001 news ARCH ENEMY have been forced to cancel ....
+
+<p>Sweden’s ARCH ENEMY have been forced to cancel their show at the Wacken Festival in Germany this weekend due to "a throat infection" that German vocalist Angela Gossow has reportedly been fighting with the last week, causing her doctor to advise the singer to get another week’s worth of rest before damaging her vocal cords any further. As a result, ARCH ENEMY will now make their live debut with the group’s new line-up in London on the 16th of August and hope to play a lot more European shows after the summer. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.08.2001 reviews Плата за грехи...
+
+<p>Несмотря на многочисленные преценденты, не смог удержаться от искушения написать эту рецензию. Нравиться мне такая музыка. Ничего не могу с собой поделать. И "фирменное шведское звучание", и фишки братьев Эммот, и вокал... (Вау! Вот это женщина! Никогда бы не поверил! Ай, да Анжела!) - все на высоте. Отличное продюссирование (Фредрик Нордстрем и Майкл Эммот), отличная запись. "А почему же оценка всего восемь?!?!" - спросите вы.... А потому. Простите меня, но больно уж мало новых идей. Даже для swedish melodic death metal. Начало к первой вещи - "Enemy Within" - ощутимо напоминает рифф "Металлицы" золотого периода... Вторая - "Burning Angel" - вылитый "Ангар 18" Дэйва Мастэйна и компании... Продолжать?! ... а заигрывания с пауэром? Часто возникает ощущение, что настрой ребята гитары на два тона повыше и позови "сладкоголосого" вокалиста - голимый "Стратовариус" получается... (Примеры: №4 - "Ravenous" и №10 "Snow Bound"). Едем дальше... "Savage Messiah" - радует высоким женским бэкграунд-вокалом а-ля "Нексус Полярис" Ковенанта и на этом заигрывания с блэком прекращаются. 9-я вещь - "Behind The Smile" - рифф вызвал в памяти "Led Zeppelin" во всей красе, а потом, опять же, пауэр - соло по "золотому" гармоническому квадрату... Вот такой вот рецепт получается. Добавим к этому немного самоплагиата (альбом "Burning Bridges") и ностальгию по мелодиям Пугачевой - "Куда уходит детство?"... В целом, хоть это, безусловно не лучший релиз года, но слушается легко и не напряжно. И уж поинтереснее пресловутого "The World Needs A Hero" - Megadeath.</p>
+
+Автор: Yermola
+
+### 18.09.2001 news ARCH ENEMY have rescheduled their previously-cancelled Japanese tour...
+
+<p>ARCH ENEMY have rescheduled their previously-cancelled Japanese tour, which was postponed as a result of vocalist Angela Gossow having developed nodules on her vocal cords. The new dates are as follows: <br> Mar. 09 - Osaka, JAP @ On Air Osaka <br> Mar. 12 - Nagoya, JAP @ Bottom Line <br> Mar. 13 - Nagano, JAP @ Junk Box <br> Mar. 15 - Tokyo, JAP @ Akasaka Blitz <br> Mar. 18 - Tokyo, JAP @ Astro Hall<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.12.2001 news ARCH ENEMY tour...
+
+<p>Due to an overwhelming demand, ARCH ENEMY have added a third Tokyo show to their upcoming Japanese tour. The complete itinerary is as follows: <BR><BR> Mar. 09 - Osaka, JAP @ On Air Osaka <BR> Mar. 12 - Nagoya, JAP @ Bottom Line <BR> Mar. 13 - Nagano, JAP @ Junk Box <BR> Mar. 15 - Tokyo, JAP @ Akasaka Blitz <BR> Mar. 16 – Tokyo, JAP @ (Kawasaki) Club Citta <BR> Mar. 18 - Tokyo, JAP @ Astro Hall</p>
+
+Автор: Yermola
+
+### 28.12.2001 news Порция шведского мелодик-дэта...
+
+<p>Любители SMDM срочно жмите на <A HREF="http://w1.111.telia.com/%7Eu11119500/NonExist-A_Halo_Askew.mp3">ссылку..... </A>Здесь лежит МР3 песни “A Halo Askew” с еще не вышедшего альбома "Deus Deceptor" новой группы экс-участника ARCH ENEMY - Johan Liiva - NONEXIST. Сам "Deus Deceptor" выйдет в январе/феврале 2002 через New Hawen Records.</p>
+
+Автор: Yermola
+
+### 28.12.2001 news NONEXIST Full MP3 Up For Grabs...
+
+<p>Sweden's NONEXIST, the new band of former ARCH ENEMY frontman Johan Liiva, have made available for download a full-length MP3 of the track “A Halo Askew” at <A HREF="http://w1.111.telia.com/%7Eu11119500/NonExist-A_Halo_Askew.mp3">this location</A>. “A Halo Askew” comes off the group's debut album, entitled Deus Deceptor, which is tentatively due to be released in January/February through New Hawen Records.</p>
+
+Автор: Yermola
+
+### 06.02.2002 news ARCH ENEMY выпускают японский EP....
+
+<p>Мелодичные шведы "ARCH ENEMY" в марте выпускают специальный EP "Burning Angel" предваряющий японский тур команды. Трек-лист: <BR><BR> 01. Burning Angel (альбомная версия) <BR> 02. Lament of A Mortal Soul (песня не вошедшая на Wages Of Sin)<BR> 03. Starbreaker (JUDAS PRIEST кавер записанный в 1998 с оригинальным вокалистом Johan Liiva)<BR> 04. Ravenous (видео-клип)<BR></p>
+
+Автор: Yermola
+
+### 06.02.2002 news ARCH ENEMY Finalize Japanese EP....
+
+<p>Sweden's ARCH ENEMY, featuring German vocalist Angela Gossow, will issue a special EP, entitled Burning Angel, to coincide with the group's Japanese tour in March. The track listing is as follows: <BR><BR> 01. Burning Angel (album version) <BR> 02. Lament of A Mortal Soul (unreleased song from Wages Of Sin sessions)<BR> 03. Starbreaker (JUDAS PRIEST cover—recorded in 1998, and featuring original vocalist Johan Liiva)<BR> 04. Ravenous (enhanced video clip) <BR><BR> In other news, ARCH ENEMY have confirmed a headlining show in Santiago, Chile on March 1st. Commented guitarist Michael Amott: "We played Chile in 1999 and made a lot friends — there's a lot of super-cool people in the Chilean scene and we are excited about returning...metal and pisco rules!" <BR><BR> As previously reported, ARCH ENEMY will make their North American live debut with Gossow at The Troubadour in West Hollywood, California on March 5th (with TAKEN and CREMATORIUM opening) during the group's two-day layover on their way from Santiago, Chile to Japan for their first Japanese tour in support of the critically-acclaimed Wages Of Sin release (which is scheduled to be issued in the US on April 2nd through Century Media Records). ARCH ENEMY will make their east coast debut at the New England Metal & Hardcore Festival in Worcester, Massachusetts during the weekend of April 5th & 6th.</p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news ARCH ENEMY Tour dates ...
+
+<p>3/5 Troubadour – Los Angeles, CA w/ Taken & Crematorium <BR> 4/5-6 Palladium – Worcester, MA New England Metalfest</p>
+
+Автор: Yermola
+
+### 05.03.2002 news Arch Enemy vocalist Angela Gossow forced the band to cancel their live performances ....
+
+<p>As previously reported, Arch Enemy vocalist Angela Gossow forced the band to cancel their live performances for the better part of last year, when the frontwoman was diagnosed with cancer-causing nodules on her vocal chords. <BR><BR> In a recent interview with Hard Radio, Arch Enemy guitarist and founder said Gossow is ready to perform again and is operating at 100 percent. "She's been fine since last year really. Angela has been doing this since 1991, in underground death bands in Germany, just going from being a kid screaming in somebody's basement to doing shows and promoting a band, but she's never really known what the hell she's been doing [laughs]. She was doing mainly low, deep guttural growls before with the odd high scream here and there. We made her work totally hard in the studio and do lots of different kinds of screams. That was an experience for her as well. Now, she's totally into voice coaches, learning how to use your muscles in your throat. She does stuff every day now, even if we're not rehearsing, keeping her stamina up. I can actually recommend that to every vocalist out there of any style. The coaches she's been going to deal with rock vocalists, not only opera-type singers. She just gave him the CD and said, "This is what I do [laughs], and I just want to keep doing it. I don't want to change it, I just want to do it the right way." She's actually improved now and has more power than she had when she did the album." <BR><BR> Amott then turned to Arch Enemy's recent album, Wages of Sin, which received rave reviews in Asia when it was released last year in the territory. "Musically, I think it's just getting more focused. The arrangements are better, just kind of getting to the point in a song, instead of having three riffs before the vocals come in and stuff like that. We also wanted to get a bit more extreme. I thought Burning Bridges was about as soft as we were going to get. There were a lot of hard rock overtones, which we still love. We want to be extreme, but we still want the songs [laughs]. I don't want it to be that we just play melodic metal with growling vocals." <BR><BR> In similar news, Arch Enemy's first North America gig with Gossow on March 5 at The Troubadour in Los Angeles, California. According to Century Media, the show is nearly sold out and people interested in attending should get their tickets now. The band will also be headlining this year's New England Metal And Hardcore Festival on April 5 and 6 in Worcester, Massachusetts. Arch Enemy's deluxe, double-CD version of Wages of Sin comes out April 2 on Century Media Records. <BR><BR> We'll have more information on Arch Enemy as it becomes available.</p>
+
+Автор: Yermola
+
+### 05.03.2002 news Проблемы у Анджелы Госсоу....
+
+<p>Вокалистке "Arch Enemy" - Angela Gossow пришлось отменить живые выступления группы из-за проблем с голосовыми связками. Врачи поставили диагноз при котором возможно даже развитие опухоли. Как сообщил в интервью Hard Radio братец Эммот: "Сейчас ей уже лучше и она сможет возобновить выступления.... Анджела пела с 1991 года в андерграундной дэс-команде в Германии...Она пела мощным гроулингом, но на самом деле она и не знала что делает. "</p>
+
+Автор: Yermola
+
+### 11.03.2002 news Ну..... За ARCH ENEMY!!!!
+
+<p> Сплошной запой у "ARCH ENEMY" - в довольно таки известном журнале "Burrn!" группа получила следующие оценки по итогам ушедшего года: </p>
+<p> Лучшая группа: ARCH ENEMY<BR> Лучший альбом: Wages Of Sin<BR> Лучший вокалист: Angela Gossow<BR> Лучший барабанщик: Daniel Erlandsson<BR> Сияющая звезда (?): Angela Gossow<BR> </p>
+
+Автор: Yermola
+
+### 11.03.2002 news ARCH ENEMY Clean Up At Burrn! Magazine Awards ...
+
+<p>During their ongoing Japanese tour, Sweden's ARCH ENEMY will be presented with five awards they recently won in the annual Burrn! magazine readers poll. ARCH ENEMY won the awards in the following categories: <BR> <BR> Best Band: ARCH ENEMY<BR> Best Album: Wages Of Sin<BR> Best Singer: Angela Gossow<BR> Best Drummer: Daniel Erlandsson<BR> Shining Star: Angela Gossow<BR><BR> In other ARCH ENEMY news, check out a review of the group's March 5th Hollywood, California show (complete with pictures) at <A HREF="http://ontrackmagazine.com/03concerts/archenemy.htm">this location....</A></p>
+
+Автор: Yermola
+
+### 29.05.2002 news ARCH ENEMY w&#x2F; Nile, Hate Eternal,Origin - Tour dates
+
+<p>7/6 Cotton Club - Atlanta, GA <BR> 7/7 Clunk Music Hall - Fayetteville, AR<BR> 7/9 Sam's - San Antonio, TX<BR> 7/10 Concrete Street - Corpus Christi, TX<BR> 7/11 Cardi's - Houston, TX<BR> 7/12 Steamboat - Austin, TX<BR> 7/13 Canyon Club - Dallas, TX<BR> 7/14 Sunshine Theater - Albuquerque, NM<BR> 7/15 Bash On Ash - Phoenix, AZ<BR> 7/16 The Galaxy Theater - Santa Ana, CA<BR> 7/18 Brick By Brick - San Diego, CA<BR> 7/19 The Pound - San Francisco, CA<BR> 7/20 Meow Meow - Portland, OR<BR> 7/21 Graceland - Seattle, WA<BR> 7/23 Bluebird Theater - Denver, CO<BR> 7/24 Ranch Bowl - Omaha, NB<BR> 7/25 The Lab - St. Paul, MN<BR> 7/26 Milwaukee Auditorium - Milwaukee, WI - Metalfest<BR> 7/27 Harpo's - Detroit, MI<BR> 7/28 Agora Ballroom - Cleveland, OH<BR> 7/29 Riley's - Aurora, IL<BR> 7/30 Showplace Theater - Buffalo, NY<BR> 7/31 Birch Hill - Old Bridge, NJ<BR> 8/1 Saratoga Winners - Cohoes, NY<BR> 8/2 The Chance - Poughkeepsie, NY<BR> 8/3 The Palladium - Worcester, MA<BR> 8/4 The Trocadero - Philadelphia, PA<BR> 8/7 Jaxx - Springfield, VA<BR> 8/8 Ground Zero - Spartenburg, SC<BR> 8/11 Culture Room - Ft. Lauderdale, FL<BR></p>
+
+Автор: Yermola
+
+### 15.06.2002 reviews Лучший альбом 2001 года
+
+<P>Прелестная вещица! После ознакомления с такого рода дисками (коих, к сожалению, единицы. Что, кстати, вполне закономерно) начинаешь понимать, что "шедевр" – это всего лишь слово. Слово, абсолютно неспособное дать человеку понятие, насколько хороша та или иная работа. Эта – не просто хороша. Она за гранью критики. В случае с "Wages Of Sin" даже самый въедливый критик вряд ли найдёт, к чему прицепиться. Люблю ли я СМДМ? Не то, чтобы очень. Однако в "Wages Of Sin" я влюбился. Немного на свете дисков, кои я способен слушать по 50 раз кряду. Никогда бы не подумал, что ARCH ENEMY способны создать ТАКОЕ. Да, музыканты великолепные. Да, не без воображения. Но как-то не цепляли меня предыдущие их работы. Что случилось? Смена вокалиста? Вряд ли. Анжела (да, глаза вас не подводят. На альбоме действительно поёт девушка) обладает мощнейшим и, что самое удивительное, ни на кого и ни на что не похожим скримингом, но не в ней дело. Что-то случилось с Майклом Эмоттом. Что-то, благодаря чему мы имеем лучший альбом 2001 года, созданный в рамках более или менее экстремальной музыки. СМДМ ли это? Наверное. Главное не в этом. А в том, что "Wages Of Sin" – блестящий образчик того, что с полным правом может называться Музыкой, Музыкой с большой буквы. ARCH ENEMY достаточно брутальны, но боги, я не слышал ещё брутальной И настолько безумно красивой музыки! Лучший альбом прошлого года. Без вариантов.</P>
+<P><EM><STRONG>Диск предоставлен фирмой <a href="http://www.fono.ru">ФОНО</a></STRONG></EM></P>
+Автор: Kai Mathias Stalhammar
+
+### 02.09.2002 articles Керри Кинг: Дайте шанс LINKIN PARK!
+
+<p>SLAYER сейчас в бесконечном турне, а у фэнов и журналистов, как всегда, море вопросов. Керри Кинг, гитарист трэш-легенды, в недавнем интервью www.metalupdate.com ответил на некоторые из них. Вот наиболее интересные откровения: <BR> - <I>Что ты думаешь об ARCH ENEMY?</I> <BR> - Это евро-метал. Возможно, это будет следующим этапом развития, многие люди скажут это, но мне хочется слышать больше агрессии.<BR> - <I>Как ты сам определяешь евро-метал</I>?<BR> - Более мелодичный. Заваренный на IRON MAIDEN. <BR> - <I>Тебе больше нравится евро-метал или nu-metal</I>?<BR> - Ни то, ни другое. Трэш!<BR> - <I>Что ты думаешь о тенденциях развития рэп-металла</I>?<BR> - Необходимое зло – нужно привнести жизнь в возможно умирающий жанр.... LINKIN PARK пишут цепляющие риффы для очень юной аудитории. Молодые люди очень восприимчивы к тому, что слушают их друзья. LINKIN PARK их и цепляют, так что дайте им шанс!<BR> - <I>SLAYER что-нибудь позаимствуют у LINKIN PARK</I>?<BR> - Не думаю, хотя я и слушаю их. Я пытаюсь понять, почему они столь значимы сегодня. Парень, что кричит в группе, черт, как его имя?… Он делает это убийственно – правда каждый раз, когда я натыкаюсь на них по радио, я переключаю канал – я слышал это слишком много.<BR> - <I>Есть люди, которые наверняка начнут подлизываться к тебе, узнав о том, что ты одобрил LINKIN PARK… </I><BR> - Это не одобрение – я просто сказал, что их крикун может хорошо кричать! (смеется). Себастьян Бах тоже мог делать это, но то, что он стал петь позже… Какого черта?!<BR> - <I>Что ты думаешь о MESHUGGAH</I>?<BR> - Они действительно хорошая группа. Слушаешь и думаешь – черт, да что же они делают?!<BR> - <I>Если бы пришлось называть группы, близкие к SLAYER – не точно такие же, а именно близкие, то</I>…<BR> - Один ответ на все времена – PANTERA. В них есть что-то – я не знаю, что именно. Они более блюзовые, у них есть южный кач, а "Becoming" – одна из лучших песен, когда либо написанных.<BR> - <I>Ты чувствуешь обязательства перед своими фэнами</I>?<BR> - Никаких обязательств – я и сам фэн! И я знаю, что хочу услышать.<BR> - <I>Худшая песня SLAYER</I>?<BR> - Моя худшая песня? Это с SOUTH OF HEAVEN, я всегда забываю ее название, так ее ненавижу! (смеется). "Cleanse The Soul" – ненавижу эту песню.<BR> - <I>Но "South of Heaven" – великий альбом</I>!<BR> - Правильно! Мне просто не нравится эта песня!<BR> Полный текст интервью доступен по адресу: <A HREF="http://www.metalupdate.com/features.htm">www.metalupdate.com/features.htm</A></p>
+
+Автор: Tornado
+
+### 24.09.2002 news SLAYER, SOULFLY, MOTORHEAD, DOWN Among Artists Confirmed For Japan&#39;s BEAST FEAST 2002 ...
+
+<p>SLAYER, SOULFLY, MOTORHEAD, DOWN, HATEBREED, and ARCH ENEMY are among the artists confirmed to appear at Beast Feast 2002, a two-day festival set to take place on December 14-15 at Makuhari Messe Event Hall in Tokyo, Japan. <BR><BR> The full lineup of acts currently scheduled to perform at the event is as follows:<BR><BR> SLAYER<BR> SOULFLY<BR> MOTORHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN</p>
+
+Автор: Yermola
+
+### 24.09.2002 news Фестиваль Зверя в Японии...
+
+<p>SLAYER, SOULFLY, MOTОRHEAD, DOWN, HATEBREED и ARCH ENEMY уже окончательно подтвердили свое участие в японском фестивале Beast Feast 2002. Двухдневное шоу будет проходить 14-15 декабря в зале Makuhari Messe Event Hall в Токио. <BR><BR> Состав участников на сегодняшний день:<BR><BR> SLAYER<BR> SOULFLY<BR> MOT&Ouml;RHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN<BR><BR> Более подробную информацию смотрите на сайте фестиваля: <A HREF="http://www.beastfeast.net/">http://www.beastfeast.net/</A></p>
+
+Автор: Yermola
+
+### 03.02.2003 reviews Johan Liiva vs. Angela Gossow. Вопрос качества и восприятия.
+
+<p>ARCH ENEMY _с_ Анжелой и ARCH ENEMY _без_ неё – это, что называется, две большие разницы. Вроде бы музыка и не особенно изменилась, да только куда там – без г-жи Gossow эта команда воспринимается совершенно по-другому. Если быть точным, кажется, будто всё на порядок хуже. И ведь не хуже, на самом-то деле! Просто не люблю я такой вот «орущий» вокал. “Burning Bridges” – пожалуй, лучшее, что ARCH ENEMY смогли создать до прихода Анжелы и выхода в свет “Wages of Sin”. “Burning Bridges” – третий и последний диск для Йохана Лиивы, покинувшего группу вскоре после записи “Burning Bridges”. “Burning Bridges” – крайне интересный, И-З-У-М-И-Т-Е-Л-Ь-Н-О сыгранный дэт высшей пробы, мелодичный, но без запашка гётеборгщины. Проще говоря, – великолепная работа. Вот если бы только не вокал…</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 07.03.2003 news ARCH ENEMY news...
+
+<p>A Michael Amott new album update from the ARCH ENEMY website: <BR><BR> "What’s up? Hope you’ve enjoyed the pics we posted so far (http://www.archenemy.net/upload/index.php3) – there haven’t been too many studio reports from us… sorry about that… but we have just been getting on with the daily routine in the studio… putting this new METAL MONSTER together... piece by piece, RIFF by bloody RIFF! There are so many HUGE riffs on this album... we just walk around smiling all day here... can't wait to assault all your ears with this...<BR><BR> The past 2-3 days we’ve been tracking rhythm guitars and the tones that Andy’s dialed in are just SATANIC! SICK! UGLY! (you get the general idea…) It’s sounding shockingly full-on and brutal, and that’s just with 2 guitars and drums… oh, yeah, those DRUMS… Daniel has really pushed himself way beyond previous recordings we’ve done… world F@#$%*N class!! <BR><BR> I completed my guitars on 5 songs and now we have taken a few days off (we are back home in Sweden)… Chris will return to England and the studio on Monday (he’ll then start tracking his rhythms and do some lead work) and he’ll bring with him our Lord of LOW END – Sharlee D’Angelo… I am psyched as hell to hear all that when I come over to England again. <BR><BR> (I am taking a week off from the studio work and will hook up with Andy in the studio again in a week to finish off my rhythm tracks + leads)... and there's some keyboards that will be played by Per Wiberg (who played on the Burning Bridges and Wages Of Sin albums) - it's always a blast recording those parts with Per... such a talented guy. <BR><BR> Last but not least... Angela will be coming over to start tracking vocals - the vocals she did on the pre-production demo's sound super promising... she's screaming like she's possessed by evil spirits... Arrrrrgggghhhhhh.... ALL ATTITUDE and AGGRESSION - very cool! <BR><BR> Songtitles? Here are a few: "Despicable Heroes" (A high energy thrasher - Daniel is just all over the kit on this one), "Exist To Exit" (Ok, who said Slayer???), "Dead Eyes See No Future" (Arch-style-thrash with great melodic guitars in the chorus - reminds me a bit of the Stigmata/Burning Bridges era - but with a fresh twist...), "DehumaniZation" (Cool riffy track with heavy chorus)... OK, what else is there... oh yeah, my fave track at the moment "Infected" (it's a little different, a new flavour - still heavy...what did you think? C'mon, there's no post-grunge ballads here, ha-ha)." <BR> To stay updated on the latest studio happenings, visit http://www.archenemy.net/report17.shtml daily.<BR><BR> Live pictures of ARCH ENEMY’s show in Stockholm, Sweden can be found on Swedish Metal www.swedishmetal.net. Look for the "new live pictures" link beneath the BLOODBATH logo on the right-hand side.</p>
+
+Автор: Yermola
+
+### 01.04.2003 news Another studio update from ARCH ENEMY guitarist Michael Amott...
+
+<p>"We have really enjoyed working with Andy on this album, his attention to detail is almost uncanny… he kept us on our toes! This is the tightest and heaviest we’ve ever sounded in the studio. Thank you, Andy! I can’t wait to hear it all mixed and mastered… hard to be patient! On Saturday myself and Daniel will be heading back to the studio... we'll be giving a few international metal magazines a little sneak listen of the album in its currently unmixed state - I am positive they'll love what they hear... just have to make sure they get enough alcohol first... ha-ha. Looking at the Arch Enemy forum I see there’s been some discussion and worries about the release date of the new album…n o need for panic, this one will drop in a few months… THIS year (and that’s worldwide, by the way). I also saw something on the internet a while ago about album titles, both those titles mentioned are incorrect, but that’s OK… It got people talking! :-) <BR><BR> Had a meeting with Niklas [Sundin of Dark Tranquillity] from Cabin Fever Media a couple of weeks ago. He’s possibly doing the new cover and artwork for the new album (he did the Wages Of Sin art). We drank a lot of coffee & brain-stormed… I look forward to seeing something from him this week. More updates very soon..." <BR><BR> Video clips of the band in the studio (YES - you can hear a bit of the new music!) are available for viewing at http://www.archenemy.net/report17.shtml<BR><BR> To view more studio pix, visit: http://www.archenemy.net/upload/index.php3<BR><BR> ARCH ENEMY have been confirmed to play Finland for their first time in their career at the Tuska Open Air festival in Helsinki on July 13th, 2003. They will also be playing The Gates Of Metal Festival in Hultsfred, Sweden, on August 2nd, 2003.</p>
+
+Автор: Yermola
+
+### 07.05.2003 news Гимны бунтарей
+
+<p>Новый альбом шведской группы ARCH ENEMY получил название "Anthems Of Rebellion". Он должен выйти 26 августа 2003 года на Century Media Records.</p>
+
+Автор: Dimas
+
+### 26.05.2003 news Еще немного об ARCH ENEMY
+
+<p>26 августа на Century Media Records выйдет новый альбом ARCH ENEMY "Anthems Of Rebellion". Стал известен его трэк-лист:</p>
+<p> 1. Rebel (Intro) <BR> 2. Silent Wars <BR> 3. We Will Rise <BR> 4. Dead Eyes See No Future <BR> 5. Instinct <BR> 6. Leader Of The Rats (Anonymous Animosity) <BR> 7. Exist To Exit <BR> 8. Acoustic Instrumental <BR> 9. Despicable Heroes <BR> 10. End Of The Line <BR> 11. Dehumanization <BR> 12. Anthem (Instrumental) <BR> 13. Saints And Sinners</p>
+
+Автор: Dimas
+
+### 14.11.2003 reviews Многообещающая группа завернула в тупик
+
+<P>После последнего гипермелодичного успешного альбома 'Wages Of Sin' ARCH ENEMY избавились от ярлыка только группы Mike Amott' а. Взяв симпатичную вокалистку с не менее симпатичным скримингом Angela Gossow и поддерживая интерес к группе постоянными сообщениями о грядущем своём бракосочетании с ней, Mike Amott&nbsp;думал явно не о том.&nbsp;Такой&nbsp;благоприятный микроклимат сопутствовал написанию нового альбома, но... Всё разродилось пшиком. Я не знаю то ли это смена курса, то ли просто отсутствие интересных идей, но альбом неинтересен и скучен. Никаких двухсмысленностей здесь нет... Просто плохая музыка, а&nbsp;не неправильный подход к написанию песен. Однообразные небыстрые&nbsp;композиции сменяют одна другую. Как классифицировать то, что получилось? Неизвестно. Скорее всего это попытка замаскировать отсутствие запоминающихся мелодий неким подобием прямолинейности и брутальности. Плохо.</P>
+<P>Диск предоставлен точкой B2-100</P>
+Автор: Vit Belov
+
+### 15.11.2003 reviews Promising band which turned to deadlock
+
+After last hypermelodic and successfully album 'Wages of Sin' ARCH ENEMY delivered from label "only band by Mike Amott". Mike recruited beauty female-singer with "beauty" screaming Angela Gossow and supporte the interest to the band by constant stories about his wedding with her. I think he didn't thought about music!&nbsp;This favourable climat accompanied to writing of this new album, but... It was only illusion. I don't know... Is it coursechanges or absence of good ideas? But Album is just not interesting and dull. Here is not any ambiguities. It's just bad music, but it's not wrong way&nbsp;to write the songs. Monotonous and not quick compositions change each other. How can I classify this creation? Unknown. Most likely it's attempt to disguise lacks of melodies, which can remain in memory, by similarity of straightness of line and brutality. Bad.
+Автор: Vit Belov
+
+### 22.11.2003 news ARCH ENEMY in UK
+
+Dec. 16 – Glasgow, UK @ King Tuts<BR>Dec. 17 – Leeds, UK @ Cockpit<BR>Dec. 18 – Birmingham, UK @ Academy II<BR>Dec. 21 – London, UK @ Mean Fiddler
+Автор: Vit Belov
+
+### 05.01.2004 news ARCH ENEMY have posted live video clip
+
+Sweden's <B>ARCH ENEMY</B> have posted live video clip of their song <B>"We Will Rise"</B>, filmed at London's Mean Fiddler on December 21, at <A target=_blank href="http://www.archenemy.tv/pictures/reports/ArchEnemy_WeWillRise_London.mpg"><U>this location</U></A>.<BR>
+Автор: Uneral
+
+### 05.01.2004 news &quot;We Will Rise&quot; - новый клип ARCH ENEMY
+
+<P>Мелодик-детстеры <B>ARCH ENEMY</B> выложили свой новый видеоклип на песню <B>"We Will Rise"</B> по <A target=_blank href="http://www.archenemy.tv/pictures/reports/ArchEnemy_WeWillRise_London.mpg">этому</A> адресу. Ролик снят 21 декабря в London's Mean Fiddler. </P>
+Автор: Uneral
+
+### 13.01.2004 reviews Злобные женские гимны восстания
+
+Часто ли бывает, когда ждёшь от группы хорошего альбома, а получаешь, вместо этого, грандиозное творение ??? В случае с Arch Enemy всегда именно так. Результат оправдал ожидания, по крайней мере мои. А что Вы хотели ??? Звёздний состав Arch Enemy не допустит выхода второсортного альбома от самих себя. Музыка на албоме мощьная, бескомпромисная, но в тоже время продуманная и безумно агрессивная, под стать вокалу. Жаль только мелодизма немного поубавилось, зато злобы только прибавилось. Сколько времени прошло, но до сих пор, невозможно представить, что такая симпатичная девушка, как Анжела может издавать такой демонический неимоверно злобный звериный рёв.&nbsp; Ну что, если все песни на альбоме - гимны, как можно судить из названия, то это лучшие гимны, которые я когда либо слышал. Anthems Of Rebellion - это оправданная тяжёсть и слаженность музыки. Самое лучшее Death металлическое творение этого года. Но окончательная оценка всё же не 10, а 9,5. Всё таки, это очередной номерной альбом довольно молодой группы, а не седых предков современного металла.<BR>
+Автор: Peter Priest
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 17.06.2004 reviews Повторение пройденного, и только
+
+<I>
+<P align=justify>М-дя. Получить вот ЭТО после шикарного “Wages of Sin”… Как будто в рожу плюнули. Скажите, «провал?» Не совсем. Но и достойного преемника “Wages of Sin” из этого альбома не получилось. Тексты по-прежнему отдают редкостным идиотизмом; но так было и раньше. Ничего страшного. Качество? Качество записи и игры по-прежнему на высочайшем уровне. Опять же, как и раньше. Тем не менее, “Anthems of Rebellion” это не спасает. На весь чёртов альбом только три - три! - песни, о которых можно сказать: «Удались!» И то, в самом конце - “End of the Line”, немного отдающая SOILWORK’ом, “Dehumanization” и “Saints and Sinners”. Всё. Больше здесь слушать нечего. Изобретательности - ноль. Фантазии - ноль. Умопомрачительных соло - ноль целых хрен десятых. Повторение пройденного, и только. Причём повторение весьма посредственное. А жаль.</P><B>
+<P>Диск предоставлен компанией ФОНО</P></B></I>
+Автор: Kai Mathias Stalhammar
+
+### 09.07.2004 news А Mike Amott сыграет на новом альбоме KREATOR
+
+<B>Mike Amott (ARCH ENEMY)</B> записал гостевые соло для песни<B> KREATOR</B> <B>"Murder Fantasies"</B> с нового альбома.
+Автор: Vit Belov
+
+### 04.09.2004 reviews Идейные наследники Carcass
+
+<P>Вы, наверное, будете смеяться, но я действительно считаю этот диск лучшим творением группы. Объясню почему. Ни в одной другой работе Arch Enemy не удавалось свести воедино несовместимые, казалось бы, качества - первобытную злобу и утончённую мелодику. Впрочем, всё гармонично, и Майк Эмотт не выглядит немытым варваром, вооруженным новейшим ракетным комплексом. Слушаешь альбом первый раз – и на тебя снисходит ощущение какого-то&nbsp;радостного угара. Во время следующих прослушиваний ловишь себя на мысли: а ведь сочинитель не так-то прост. А на десятый прогон диска начинаешь ловить кайф от тонкостей и хитросплетений аранжировки. Ого! Оказывается, всего за пару дней пластинку можно прослушать добрый десяток раз! </P>
+<P>Говорим Arch Enemy – подразумеваем Carcass времен Tools Of Trade и Heartwork. Именно на этих альбомах в своё время отметился Майк Эмотт. Можно сказать, что отправной точкой Arch Enemy стал именно Heartwork, очищенный от излишней брутальности и отполированный мелодически. На выходе имеем всё тот же поздний Carcass, но несколько адаптированный для неподготовленного слушателя и приправленный шведским дэтом времен ранних Entombed и Dismember. Ничего не поделаешь, «национальный колорит» шведской кухни… </P>
+<P>Прекрасная пластинка. Хитроумные гитарные партии с закрученными соло и небанальными рифами. Мелодии запоминаются сходу. Одно прослушивание - и ты уже трясёшь головой в такт Dark of the Sun и подпеваешь Let The Killing Begin. На следующей пластинке первобытной злобы, увы, почти не останется. Верховный Враг «повзрослеет», но у него выпадут почти все зубы… </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 30.09.2004 news ARCH ENEMY выпускают EP
+
+<P>15 ноября на <STRONG>Century Media</STRONG> выходит новый мини-альбом <STRONG>ARCH ENEMY</STRONG> <STRONG>"Dead Eyes See No Future".</STRONG> Трэк-лист:</P>
+<P>01. <B>Dead Eyes See No Future</B> (from <B>"Anthems of Rebellion"</B>)<BR>02. <B>Burning Angel</B> (Live in Paris 2004)<BR>03. <B>We Will Rise</B> (Live in Paris 2004)<BR>04. <B>Heart of Darkness</B> (Live in Paris 2004)<BR>05. <B>Symphony of Destruction</B> (<B>MEGADETH</B> cover)<BR>06. <B>Kill With Power</B> (<B>MANOWAR</B> cover) <BR>07. <B>Incarnated Solvent Abuse</B> (<B>CARCASS</B> cover).<BR>08. <B>We Will Rise</B> (Enhanced video clip)</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 15.02.2005 reviews Глаза мертвого не видят будущего
+
+<P>Новое творение Arch Enemy включает в себя собственно одноименную с ЕР-шкой композицию, 3 живых трека, записанных на концерте в Париже в 2004 году и 3 кавер-версии: Megadeth "Symphony Of Destruction", Manowar "Kill With Power" и Carcass" Incarnated Solvent Abuse"- хотя последнюю вещь кавером можно назвать с трудом, поскольку Майкл Амотт является в ней соавтором. Кавера&nbsp; же на первые две композиции, хоть и сыграны практически близко к оригиналам, звучат гораздо тяжелее благодаря низкому строю гитар и брутальному голосу Анжелы Гассоу. В качестве бонуса на диске записан клип на композицию We Will Rise. На мой взгляд,&nbsp; с приходом Анжелы группа стала звучать гораздо более интересно и оригинально, выгодно выделившись среди других коллективов подобного направления. Братья Амотты как всегда на высоте и выдают виртуозные соляки, радующие слух. Широким<BR>покупательским спросом диск вряд ли будет пользоваться, поскольку ЕР - это вам не полноценный альбом, но вот поклонникам группы данная пластиночка наверняка понравится.</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A>.</P>
+Автор: Fucker
+
+### 29.04.2005 news ARCH ENEMY записывают новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ARCH ENEMY</STRONG> уже записывают вокалы для своего нового альбома "<STRONG>Doomsday Machine</STRONG>", релиз которого намечен на 25 июля на <STRONG>Century Media</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 20.06.2005 news ARCH ENEMY закончили запись нового альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=366 alt="" hspace=0 src="/images/news_rus/2005.06/8810.jpg" width=400 align=right border=5>ARCH ENEMY</STRONG> полностью завершили работу над новым альбомом "<STRONG>Doomsday Machine</STRONG>", который выйдет 26 июля на <STRONG>Century Media</STRONG>. Совсем недавно группа опубликовала кавер-артворк, нарисованный знаменитым <STRONG>Joachim Luetke</STRONG>. Вот, что рассказал <STRONG>Mike Amott</STRONG> (гитара):</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Мы в высшей степени довольны кавером для "<STRONG>Doomsday Machine</STRONG>". У меня было несколько идей, которые я обсудил с <STRONG>Joachim</STRONG> по телефону, но когда он стал присылать образцы, мы пришли в восторг. Когда вы работаете с креативными людьми, вам надо просто дать им возможность делать своё дело. <STRONG>Luetke</STRONG> узнал концепцию нашей пластинки и создал то, что идеально подходит музыке на альбоме</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 29.06.2005 news Новая песня ARCH ENEMY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось новый альбом <STRONG>ARCH ENEMY "Doomsday Machine"</STRONG> выходит в конце июля на <STRONG>Century Media</STRONG>. Уже сейчас вы можете послушать трэк с этой пластинки "<STRONG>Nemesis</STRONG>" здесь: <A href="mms://mp3.centurymedia.com/01_Nemesis_64.wma">http://mp3.centurymedia.com/01_Nemesis_64.wma</A></FONT></P>
+Автор: Vit Belov
+
+### 29.06.2005 news ARCH ENEMY posted new song
+
+<P>New album of <STRONG>ARCH ENEMY "Doomsday Machine"</STRONG> will be released on 25th of July by <STRONG>Century Media</STRONG>. You can listen to song "<STRONG>Nemesis</STRONG>" from this album here: <A href="http://mp3.centurymedia.com/01_Nemesis_64.wma">http://mp3.centurymedia.com/01_Nemesis_64.wma</A></P>
+Автор: Vit Belov
+
+### 27.09.2005 news Новый гитарист ARCH ENEMY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым гитаристом <STRONG>ARCH ENEMY</STRONG>, который заменит в туре<STRONG> Chris Amott</STRONG>, стал <STRONG>Fredrik Akesson</STRONG>, работавший в таких группах, как <STRONG>KRUX, John Norum, TIAMAT, TALISMAN</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 27.09.2005 news ARCH ENEMY new guitarist
+
+<P><STRONG>ARCH ENEMY</STRONG> have a new guitar player in their ranks who replaces <STRONG>Chris Amott</STRONG> for the band’s massive touring activities starting in early October. The new axe-wizard’s name is <STRONG>Fredrik Akesson</STRONG> who already showed his talent for renowned artists like<STRONG> TALISMAN, John Norum, KRUX, TIAMAT</STRONG>. His comment on joining forces with <STRONG>ARCH ENEMY</STRONG>: “<EM>I was really thrilled when Michael Amott called me up and gave me the opportunity to play with ARCH ENEMY. I am excited about going on tour with them, and to meet you all. C-Ya out there - it's time to burn</EM>!" </P>
+Автор: Vit Belov
+
+### 21.02.2006 news ARCH ENEMY готовят DVD
+
+<P><STRONG>ARCH ENEMY</STRONG> готовят к выпуску DVD "<STRONG>Live Apocalypse</STRONG>". На диск войдёт концерт в Лондоне в декабре 2004 года, а также отрывки шоу в Манчестере в декабре 2005.</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 17.04.2006 news Новый клип Arch Enemy
+
+<P><STRONG>ARCH ENEMY</STRONG> недавно закончили съемки нового видео на песню <STRONG>"My Apocalypse</STRONG>" с режиссером <STRONG>Roger Johansson</STRONG> (<STRONG>In Flames, Dark Tranquillity, Hammerfall</STRONG>). Клип можно будет увидеть на <STRONG>MTV2</STRONG> в конце этого месяца или скачать с сайта издателя группы <STRONG>Century Media</STRONG>. <BR></P>
+Автор: Bizarre
+
+### 23.03.2007 news Christopher Amott вернулся в ARCH ENEMY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После полуторогодичного перерыва в <STRONG>ARCH ENEMY</STRONG> вернулся один из основателей группы <STRONG>Christopher Amott</STRONG>. После выхода последней пластинки "<STRONG>Doomsday Machine</STRONG>" Гитарист решил отдохнуть от музыкального бизнеса. Теперь музыкант снова в строю и репетирует новые вещи, которые уже сочинены и войдут на будущую новую пластинку.</FONT></P>
+Автор: Vit Belov
+
+### 29.03.2007 news ARCH ENEMY начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ARCH ENEMY</STRONG> закончили запись барабанов для нового альбома в студии <STRONG>Fredman</STRONG>. Группа записывает 11 песен. Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 30.06.2007 news ARCH ENEMY назвали альбом
+
+<P>Новый альбом&nbsp;<STRONG>ARCH ENEMY</STRONG>&nbsp;получил название&nbsp;"<STRONG>Rise Of The Tyrant</STRONG>"&nbsp;и выйдет&nbsp;25&nbsp;сентября на&nbsp;<STRONG>Century Media</STRONG>.&nbsp;Трэк-лист:</P>
+<P>01. <B>Blood on Your Hands</B><BR>02. <B>The Last Enemy</B><BR>03. <B>I Will Live Again</B><BR>04. <B>In This Shallow Grave</B><BR>05. <B>Revolution Begins</B><BR>06. <B>Rise of the Tyrant </B><BR>07. <B>The Day You Died</B><BR>08. <B>Intermezzo Liberte</B> (instrumental)<BR>09. <B>Night Falls Fast</B><BR>10. <B>The Great Darkness</B><BR>11. <B>Vultures</B>&nbsp;</P>
+<P>Группа обещает стилистический разворот в сторону своих старых работ<STRONG>"Burning Bridges</STRONG>"&nbsp;и "<STRONG>Wages Of Sin</STRONG>".&nbsp;</P>
+Автор: Vit Belov
+
+### 02.08.2007 news Новая песня ARCH ENEMY
+
+<P>Вы можете послушать новую песню <STRONG>ARCH ENEMY "Blood On Your Hands"</STRONG> на сайте <STRONG>Century Media</STRONG> по адресу: <A href="http://www2.centurymedia.com/index.aspx?page=detailed_artist&id_artist=6&default_id_country=3">http://www2.centurymedia.com/index.aspx?page=detailed_artist&id_artist=6&default_id_country=3</A>&nbsp;</P>
+<P>Ещё одну новую песню можно услышать в соответствующем разделе нашего сайта.</P>
+Автор: Vit Belov
+
+### 03.11.2007 reviews Был бы максимум, если бы не поменялся вкус
+
+<P>Менялся ли у вас вкус когда-нибудь? Подобное происходит, по-моему, с каждым. В 2002 году, когда вышел один из лучших альбомов ARCH ENEMY “Wages Of Sin”, мелодика в песне решала для меня многое. Я противился, как мог, thrash-metal влияниям, поразившим в то время melodic-death музыку. ARCH ENEMY на фоне общей «трэшализации» выглядели «белыми воронами». Вместе с пришедшей только что новой вокалисткой они выдали гипермелодичный альбом.</P>
+<P>Почему я сделал этот экскурс в недавнюю историю? Потому, что Mike Amott и компания обещали также вернуться в те времена со своей новой пластинкой “Rise Of The Tyrant”. Что ж, это у них несомненно получилось. Несмотря на достаточно одиозное black-thrash оформление альбома, музыка под обложкой очень мелодичная. Как и на “Wages Of Sin”, в жертву соло и мелодичным припевам принесена тяжесть и скорость. Определённого отношения к этой работе у меня нет. С одной стороны всё классно и здорово, ведь я сам нахваливал альбом 2002 года с пеной у рта, с другой же… Хочется всё-таки, чтобы музыка оставалась death-metal’ом, а не становилась срелнетемповым hard’n’heavy с брутальным женским вокалом.</P>
+<P>ARCH ENEMY продолжают своё победное шествие по нашим сердцам. Ну, не по нашим, так по сердцам фанатов. Mike Amott великолепно привлекает к себе внимание, то приглашая рычащую девушку, то рассказывая о скором ре-юнионе CARCASS. Пластинки коллектив записывает качественные, я же воздержусь от того, чтобы называть себя их фанатом.</P>
+Автор: Vit Belov
+
+### 11.02.2008 news И ARCH ENEMY в России
+
+<P><STRONG>ARCH ENEMY</STRONG> также собираются в Россию. Группа анонсировала две даты: 15 апреля в Санкт-Петербурге в клубе "Порт и 16 апреля в Москве в ДК им. Горбунова.</P>
+Автор: Vit Belov
+
+### 14.04.2008 news Москва на новом DVD ARCH ENEMY???
+
+<P>Вчера вечером в офис компании <STRONG>JC-Sound</STRONG> (организаторов российских концертов <STRONG>ARCH ENEMY</STRONG>) пришло сообщение от менеджмента коллектива, о том, что постоянный видео-оператор и режиссер группы последних лет <STRONG>Paul Smith</STRONG> посетит Москву 16 апреля и далеко не ради туризма. Дело в том, что <STRONG>ARCH ENEMY</STRONG> действительно придают большое значение своим первым концертам в России, поэтому они решили задокументировать это событие на видео. Как нам стало известно, в результате они собираются подготовить мини-репортаж о своём пребывании в столице и самых ярких моментах концерта в ДК Горбунова, который возможно войдёт в их следующий DVD. Напомним, что на плечах Пола лежит полная ответственность за грандиозный DVD “<STRONG>Live Apocalypse</STRONG>”, а буквально месяц назад он отснял несколько концертов в Японии, которые и составят основу их следующего DVD. </P>
+Автор: Vit Belov
+
+### 29.04.2008 news Новое видео от ARCH ENEMY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип на песню<STRONG> ARCH ENEMY</STRONG> <STRONG>"I Will Live Again"</STRONG>, снятый знаменитым клипмейкером <STRONG>Patric Ullaeus, </STRONG>появился в сети.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/zPIk7SpldC8&rel=0&hl=en"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/zPIk7SpldC8&rel=0&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 01.10.2008 news ARCH ENEMY выпускают новый DVD
+
+<P><IMG height=270 alt="" hspace=0 src="/images/news_rus/2008.10/12891.jpg" width=200 align=right border=5>7 октября на<STRONG>&nbsp;Century Media</STRONG>&nbsp;выходит концертный&nbsp;CD/DVD <STRONG>ARCH ENEMY</STRONG> <STRONG>"Tyrants Of The Rising Sun: Live In Japan". </STRONG>Трэк-лист:</P>
+<P>DVD:<BR>I. Main Live Show (approx. 95 minutes)<BR>01. <B>Intro</B> / <B>Blood On Your Hands</B><BR>02. <B>Ravenous</B><BR>03. <B>Taking Back My Soul</B><BR>04. <B>Dead Eyes See No Future</B><BR>05. <B>Dark Insanity</B><BR>06. <B>The Day You Died</B><BR>07. <B>Christopher Solo</B><BR>08. <B>Silverwing</B><BR>09. <B>Night Falls Fast</B><BR>10. <B>Daniel Solo</B><BR>11. <B>Burning Angel</B><BR>12. <B>Michael Amott Solo</B> (incl. "Intermezzo Liberte")<BR>13. <B>Dead Bury Their Dead</B><BR>14. <B>Vultures</B><BR>15. <B>Enemy Within</B><BR>16. <B>Snowbound</B><BR>17. <B>Shadows And Dust</B><BR>18. <B>Nemesis</B><BR>19. <B>We Will Rise</B><BR>20. <B>Fields Of Desolation</B> / <B>Outro</B><BR>II. The Road To Japan (Interviews / Road Movie) (approx. 45 minutes)<BR>III. Promo Videos <BR>01. <B>Revolution Begins</B> (Original Version) (4:24)<BR>02. <B>Revolution Begins</B> (Band Performance Version) (4:14)<BR>03. <B>I Will Live Again</B> (3:34)<BR><BR>CD1:<BR>01. <B>Intro</B> / <B>Blood On Your Hands</B> (5:37)<BR>02. <B>Ravenous</B> (3:55)<BR>03. <B>Taking Back My Soul</B> (5:16)<BR>04. <B>Dead Eyes See No Future</B> (4:22)<BR>05. <B>Dark Insanity</B> (3:59)<BR>06. <B>The Day You Died</B> (4:55)<BR>07. <B>Christopher Solo</B> (2:32)<BR>08. <B>Silverwing</B> (5:26)<BR>09. <B>Night Falls Fast</B> (3:37)<BR>10. <B>Daniel Solo</B> (3:30)<BR><BR>CD2:<BR>01. <B>Burning Angel</B> (4:40)<BR>02. <B>Michael Amott Solo</B> (incl. "Intermezzo Liberte") (3:24)<BR>03. <B>Dead Bury Their Dead</B> (4:57)<BR>04. <B>Vultures</B> (6:51)<BR>05. <B>Enemy Within</B> (4:29)<BR>06. <B>Snowbound</B> (2:14)<BR>07. <B>Shadows And Dust</B> (5:12)<BR>08. <B>Nemesis</B> (5:04)<BR>09. <B>We Will Rise</B> (4:33)<BR>10. <B>Fields Of Desolation</B> / <B>Outro</B> (3:14)</P>
+Автор: Vit Belov
+
+### 27.02.2009 news Вокалистка ARCH ENEMY спела с NEVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поляки<STRONG> NEVER</STRONG> выложили новую песню <STRONG>"Questions Within" </STRONG>на своей <STRONG>MySpace</STRONG> страничке. Трэк, на котором отметилась <STRONG>Angela Gossow </STRONG>из <STRONG>ARCH ENEMY</STRONG>, войдёт на новую пластинку группы <STRONG>"Back To The Front".</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/neverofficial">http://www.myspace.com/neverofficial</A></FONT></P>
+Автор: Vit Belov
+
+### 05.03.2009 news ARCH ENEMY выпустили сборник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.03/13706.jpg" width=300 align=right border=5>Century Media</STRONG> выпустили в Европе сборник лучших вещей <STRONG>ARCH ENEMY</STRONG> <STRONG>"Manifesto Of Arch Enemy"</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Nemesis</B><BR itxtvisited="1">02. <B itxtvisited="1">We Will Rise</B><BR itxtvisited="1">03. <B itxtvisited="1">Revolution Begins</B><BR itxtvisited="1">04. <B itxtvisited="1">Ravenous</B><BR itxtvisited="1">05. <B itxtvisited="1">Blood On Your Hands</B> (live)<BR itxtvisited="1">06. <B itxtvisited="1">My Apocalypse</B><BR itxtvisited="1">07. <B itxtvisited="1">Dead Eyes See No Future</B><BR itxtvisited="1">08. <B itxtvisited="1">Burning Angel</B><BR itxtvisited="1">09. <B itxtvisited="1">I Will Live Again</B><BR itxtvisited="1">10. <B itxtvisited="1">Taking Back My Soul</B> (live)</P>
+Автор: Vit Belov
+
+### 23.04.2009 news ARCH ENEMY перепевают сами себя
+
+<P><STRONG>ARCH ENEMY</STRONG> сводят новый альбом. Пластинка будет представлять собой компиляцию из композиций, вошедших на первые три альбома и перепетых современной вокалисткой <STRONG>Angela Gossow</STRONG>.</P>
+Автор: Vit Belov
+
+### 28.07.2009 news Обложка нового ARCH ENEMY
+
+<P>28 сентября на <STRONG>Century Media</STRONG> выйдет новый релиз <STRONG>ARCH ENEMY</STRONG> <STRONG>"The Root Of All Evil". </STRONG>На него войдут перезаписанные песни с трёх релизов группы: <STRONG>"Black Earth"</STRONG> (1996), <B>"Stigmata"</B> (1998)&nbsp;и <B>"Burning Bridges"</B> (1999). Сведение и мастеринг нового варианта проделал знаменитый продюсер <STRONG>Andy Sneap</STRONG> (<B>MEGADETH</B>, <B>TESTAMENT</B>, <B>EXODUS</B>). Обложку, которую вы можете видеть ниже, нарисовал бразильский художник <STRONG>Gustavo Sazes.</STRONG></P>
+<P><STRONG><center><IMG height=396 src="/images/news_rus/2009.07/14734.jpg" width=400 border=0></STRONG></P>
+Автор: Vit Belov
+
+### 10.11.2009 reviews Мода на мелодии проходит?
+
+<P>Шведская группа ARCH ENEMY завоевала заслуженную долю популярности по всему Миру. И теперь пришло время немного заработать, не прилагая запредельных усилий. Из всех вариантов «левого» заработка, доступных популярной тяжёлой группе, ARCH ENEMY избрали перезапись старого материала.</P>
+<P>Благо и повод имелся, ведь популярная чревовещательница, вокалистка ARCH ENEMY Angela Gossow, не пела на трёх первых альбомах коллектива. И вот ей выпал шанс оживить звучанием своих мелодичных воплей старые нетленки. Говорят, предыдущего вокалиста ARCH ENEMY уволили за нежелание давать живые шоу. По прошествии нескольких лет выяснилось, что он ещё и рычал хуже, чем женщина. В общем, никчемный человек. Было бы несправедливо к ARCH ENEMY утверждать, что кроме вокала они не поменяли ничего. Отнюдь. Теперь эта музыка звучит также вылизано и гипермелодично, как последние работы группы. Обилие соло-гитары, наигрывающей душещипательные мелодии, на фоне практически heavy-metal звучания просто выводит из равновесия. Кажется, что Michael Amott со своими красными волосами хочет быть непременно Yngwie Malmsteen, и на меньшее и большее он не согласен. В итоге набор песен, а главное их исполнение, вгонят в тоску любого любителя энергичной музыки.</P>
+<P>Безусловно, проигранные мелодии по своей важности для тяжёлой музыки приближаются к легендарным. Но что-то мне пришла на ум одна мысль, мода на мелодии в тяжеляке должна уже скоро пройти. Ведь именно шведы стали насаждать её в death-metal, и в итоге все теперь слушают энергичный «скачущий» metalcore, забыв о возможном симбиозе танцев диких обезьян и мелодики heavy-metal 80-х.</P>
+Автор: Vit Belov
+
+### 22.12.2010 news ARCH ENEMY начали запись
+
+<P><STRONG><IMG height=199 alt="" hspace=0 src="/images/news_rus/2010.12/17915.jpg" width=200 align=right border=0>ARCH ENEMY</STRONG> вошли в студию <STRONG>Sweet Spot Studio </STRONG>в Швеции и начали запись новой пластинки, которая выйдет в мае 2011 года на <STRONG>Century Media</STRONG>. Продюсированием работы шведы будут заниматься самостоятельно, а поможет с записью им <STRONG>Rickard Bengtsson, </STRONG>работавший над альбомом <STRONG>ARCH ENEMY</STRONG> 2005 года "<STRONG>Doomsday Machine</STRONG>". По словам группы, на альбом попадут самые быстрые песни <STRONG>ARCH ENEMY</STRONG> в долгой истории.</P>
+Автор: Vit Belov
+
+### 19.01.2011 news ARCH ENEMY назвали альбом
+
+<P>Новый альбом <STRONG>ARCH ENEMY</STRONG> получил название <STRONG>"Khaos Legions". </STRONG>Пластинка выйдет в мае на <STRONG>Century Media</STRONG>. В настоящее время группа записывает новый материал в студии <STRONG>Sweet Spot Studio </STRONG>на юге Швеции с продюсером <STRONG>Rickard Bengtsson.</STRONG></P>
+<P><center><IMG height=357 src="/images/news_rus/2011.01/18254.jpg" width=360 border=0></P>
+Автор: Vit Belov
+
+### 09.03.2011 news ARCH ENEMY опубликовали обложку
+
+<P>Новый альбом <STRONG>ARCH ENEMY</STRONG> <STRONG>"Khaos Legions" </STRONG>должен выйти в конце весны/начале лета на <STRONG>Century Media</STRONG>. Группа опубликовала обложку этого релиза, которую нарисовал <STRONG>Brent Elliott White</STRONG> (<B>MEGADETH</B>, <B>DEATH ANGEL</B>).</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.03/18837.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 03.04.2011 news Трек-лист нового ARCH ENEMY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=357 alt="" hspace=0 src="/images/news_rus/2011.04/19015.jpg" width=360 align=right border=0>Новый альбом <STRONG>ARCH ENEMY</STRONG> <STRONG>"Khaos Legions" </STRONG>выходит 30 мая на <STRONG>Century Media</STRONG>. Пластинка была записана в <STRONG>Sweet Spot Studio </STRONG>с режиссёром <STRONG>Rickard Bengtsson. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Khaos Overture</B> (instrumental)<BR>02. <B>Yesterday Is Dead And Gone</B><BR>03. <B>Bloodstained Cross</B><BR>04. <B>Under Black Flags We March</B><BR>05. <B>No Gods, No Masters</B><BR>06. <B>City Of The Dead</B><BR>07. <B>Through The Eyes Of A Raven</B><BR>08. <B>Cruelty Without Beauty</B><BR>09. <B>We Are A Godless Entity</B> (instrumental)<BR>10. <B>Cult Of Chaos</B><BR>11. <B>Thorns In My Flesh</B><BR>12. <B>Turn To Dust</B> (instrumental)<BR>13. <B>Vengeance Is Mine</B><BR>14. <B>Secrets</B> <BR>15. <B>The Zoo</B> <BR>16. <B>Snow Bound</B> (acoustic)</P>
+Автор: Vit Belov
+
+### 19.04.2011 news Видео-клип ARCH ENEMY
+
+<P>Новый ролик<STRONG> ARCH ENEMY</STRONG> <STRONG>"Yesterday Is Dead And Gone" </STRONG>можно посмотреть ниже. Видео-клип снял <STRONG>Patric Ullaeus. </STRONG>Песня попадёт на грядущий альбом коллектива <STRONG>"Khaos Legions".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/lcFS_NBWCV0?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/lcFS_NBWCV0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></CENTER>
+Автор: Vit Belov
+
+### 15.06.2011 reviews О-о-о-очень мелодичный death-metal
+
+<P>Звучание шведской группы ARCH ENEMY всё больше и больше приобретает оттенок абсурда и извращённой стилизации под мелодичный рок 70-х годов. Абсурдистский death-metal, в котором уже ничего не осталось от исконного стиля кроме вокала, но который всё больше и больше приобретает популярность в среде поклонников тяжёлой музыки по всему свету.</P>
+<P>При прослушивании новейшего альбома ARCH ENEMY “Khaos Legions” я не знал смеяться мне или плакать. Гипермелодичные напыщенные соло на гитаре в среднем темпе и кричащий вокал певицы Angela напомнили мне творчество всем известной отечественной группы БОНИ НЕМ. И это отнюдь не комплимент. Именно Кирилл Немоляев, когда окончательно обленился, начал продавать такую музыку. На лёгкую и всеми узнаваемую мелодию он, как в караоке, накладывал «рычалку» и вызывал хохот аудитории. Были, правда, и такие, кто воспринимал творчество господина Немоляева всерьёз. Видимо, этот же контингент и фанатеет от ARCH ENEMY. Пускай, мелодии, играемые на гитаре господином Amott, его собственные и не принадлежат перу монстров поп-музыки. Они столь же слащавы и пробирают до мозга костей. Хочется плакать кровавыми слезами. </P>
+<P>В одном месте альбом с зверским названием “Khaos Legions” напомнил мне о бессмертном хите группы EAGLES про отель «Калифорния». Там также долго и уныло люди играют на гитарах, не быстро и не медленно, но очень мелодично. Первую минуту получаешь от этого неторопливого шоу удовольствие, но потом начинаешь зевать и мирно засыпаешь.</P>
+Автор: Vit Belov
+
+### 06.03.2012 news Christopher Amott покинул ARCH ENEMY
+
+<P>Гитарист <STRONG>Christopher Amott</STRONG> покинул <STRONG>ARCH ENEMY</STRONG>, чтобы сконцентрироваться на собственных проектах. Музыкант является братом лидера группы<STRONG> Mike Amott</STRONG>.</P>
+<P>Новым музыкантом "шведского" коллектива стал&nbsp;гитарист<STRONG> ARSIS Nick Cordle</STRONG>.</P>
+<P><center><IMG height=519 src="/images/news_rus/2012.03/23233.jpg" width=345 border=0></P>
+Автор: Vit Belov
+
+### 29.04.2012 news Новый клип ARCH ENEMY
+
+<P>Новый ролик <STRONG>ARCH ENEMY "Under The Black Flag We March"</STRONG> можно посмотреть ниже. Клип снял известный режиссёр<STRONG> Patric Ullaeus</STRONG>, который работал с<STRONG> DIMMU BORGIR, IN FLAMES</STRONG> и <STRONG>LACUNA COIL</STRONG>. Песня взята с последнего альбома шведов "<STRONG>Khaos Legions</STRONG>".</P>
+<P><center><object id="flashObj" width="486" height="412" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" /><param name="bgcolor" value="#FFFFFF" /><param name="flashVars" value="videoId=1585510509001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" /><param name="base" value="http://admin.brightcove.com" /><param name="seamlesstabbing" value="false" /><param name="allowFullScreen" value="true" /><param name="swLiveConnect" value="true" /><param name="allowScriptAccess" value="always" /><embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashVars="videoId=1585510509001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></object></P>
+Автор: Vit Belov
+
+### 28.12.2012 news ARCH ENEMY: &quot;Astro Khaos 2012 - Official Live Bootleg&quot; CD+DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25197.jpg" width=400 height=400>Группа <STRONG>ARCH ENEMY</STRONG> выпустила новый концертный релиз в формате&nbsp;CD+DVD&nbsp;специально для японского рынка.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Нехитро обозвав его <STRONG><A href="http://www.cdjapan.co.jp/detailview.html?KEY=QATE-10030">"Astro Khaos 2012 - Official Live Bootleg"</STRONG></A>, группа включила в него концертные записи и съёмки, сделанные во время двух последних концертов японского тура, прошедших в конце&nbsp;апреля 2012 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Enemy Within<BR></STRONG>02. <STRONG>In This Shallow Grave<BR></STRONG>03. <STRONG>Fields Of Desolation<BR></STRONG>04. <STRONG>Nemesis</STRONG><BR>05. <STRONG>Bury Me An Angel<BR></STRONG>06. <STRONG>Dead Eyes See No Future<BR></STRONG>07. <STRONG>The Immortal<BR></STRONG>08. <STRONG>Bridge Of Destiny<BR></STRONG>09. <STRONG>Blood On Your Hands<BR></STRONG>10. <STRONG>Silverwing</STRONG><BR>11. <STRONG>Khaos Overture<BR></STRONG>12. <STRONG>Yesterday Is Dead And Gone<BR></STRONG>13. <STRONG>We Will Rise</STRONG></P>
+Автор: Headcrusher
+
+### 08.03.2014 news Новый альбом ARCH ENEMY
+
+<P><STRONG>ARCH ENEMY</STRONG> начали сведение нового альбома с продюсером <STRONG>Jens Bogren (OPETH, PARADISE LOST, KREATOR)</STRONG> в <STRONG>Fascination Street</STRONG>. Пластинка получила название "<STRONG>War Eternal</STRONG>" и выйдет в июне на <STRONG>Century Media</STRONG>.</P>
+<P>В сентябре группа посетит Россию с туром.</P>
+<P>Билеты на концерт 27 сентября можно приобрести <A href="http://ponominalu.ru/event/arch-enemy?promote=mustdieru">здесь</A>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26726.png" width=410 height=410></P>
+Автор: Vit Belov
+
+### 18.03.2014 news Alissa White-Gluz (ex-THE AGONIST) - новая вокалистка ARCH ENEMY
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.03/26750.jpg" width=350 height=490>В начале июня 2014 группа <STRONG>ARCH ENEMY</STRONG> выпускает свой&nbsp;девятый студийный альбом под названием <STRONG>"War Eternal"</STRONG>. На этом альбоме группа представит свою новую вокалистку! Ею стала <STRONG>Alissa White-Gluz </STRONG><EM>(на фото),</EM>&nbsp;известная своим участием в канадской банде<STRONG> THE AGONIST</STRONG>. <STRONG>Angela Gossow</STRONG>, присоединившаяся к <STRONG>ARCH ENEMY</STRONG> в 2000 году и записавшая с группой 6 альбомов покидает позицию вокалистки и фокусируется на работе менеджера коллектива, в то время, как <STRONG>Alissa</STRONG> займёт её место.</P>
+<P>Комментирует<STRONG> Angela Gossow</STRONG>:</P>
+<P><EM>"Дорогие фэны <STRONG>ARCH ENEMY</STRONG>, это очень непросто сказать... Я решила покинуть своё место 'голоса злобы' в&nbsp;<STRONG>ARCH ENEMY</STRONG>. После 13 лет настоящего металла, 6 студийных альбомов и бесконечных туров через пять континентов, я чувствую, что нуждаюсь в изменениях в своей жизни - быть со своей семьёй и посвятить себя другим интересам. Тем не менее, я продолжу работать с <STRONG>ARCH ENEMY</STRONG> в качестве менеджера, а также буду продолжать совершенствовать свою работу в качестве менеджера других артистов. Я остаюсь верной своим хеви-металлическим корням, просто, образно выражаясь, покидаю зону всеобщего внимания.&nbsp;Я передаю свой факел супер талантливой Алиссе Вайт-Глаз (<STRONG>Alissa White-Gluz</STRONG>), которую я знаю как хорошего друга и очень талантливую вокалистку в течении уже долгих лет. Я всегда считала, что она заслуживает шанса засиять - и она получила его. Точно также, как и я свой в 2001. </EM></P>
+<P><EM>Я хочу поблагодарить всех поклонников <STRONG>ARCH ENEMY</STRONG>, наши лейблы <STRONG>Century Media</STRONG> и <STRONG>Trooper Entertainment</STRONG>, наших техников, и в особенности Майкла, Дэниела и Шарли за их любовь и поддержку в течении всех этих лет. Это было классное приключение! Спасибо всем за то, что были со мной на сцене, перед сценой и за кулисами. Вы тронули моё сердце и я надеюсь, что у меня получилось отдать вам что-то взамен. Я благодарна вам за замечательные воспоминания - я буду хронить их вечно. Я с нетерпением жду следующего десятилетия безумия от <STRONG>ARCH ENEMY</STRONG>! Прямо сейчас я слушаю сырую версию нового альбома и она сносит меня с места! 2014 год&nbsp;покажет всем обновлённую <STRONG>ARCH ENEMY</STRONG> на пике своих возможностей. Я горда быть частью этой главы <STRONG>ARCH ENEMY</STRONG>, хотя и на других ролях - быть ускорителем процессов за кулисами. Я надеюсь увидеть вас перед сценой; на этот раз я присоединюсь к вам."</EM></P>
+<P>Комментирует <STRONG>Alissa White-Gluz</STRONG>:</P>
+<P><EM>"С гордостью и счастьем я начинаю новую&nbsp;главу своей жизни и музыкальной карьеры; Я объединила силы с одной из своих самых любимых и уважаемых групп,<STRONG> ARCH ENEMY</STRONG>. <STRONG>‘Wages of Sin’</STRONG> был самым первым металлическим альбомом, который я купила и это была любовь с первого прослушивания. Не так уж часто&nbsp;тебе звонит твоя любимая группа с просьбой присоединиться к ней. Я взволнована тем, что имею возможность работать вместе с такими удивительно талантливыми музыкантами, которых я также считаю своими друзьями. Я с нетерпением жду возможности, чтобы начать сочинять и выступать теперь уже на новом уровне, вместе с <STRONG>ARCH ENEMY</STRONG>! Музыка вечна, металл не имеет границ и это только начало!"</EM></P>
+<P>Лидер и гитарист группы,<STRONG> Michael Amott</STRONG>, который создал её в 1995 году, комментирует:</P>
+<P><EM>"Мы бесконечно благодарны Анжеле за её страсть, тяжёлую работу и талант. Её наследие потрясающе и&nbsp; оно всегда будет большой частью истории группы. Мы чувствуем большую гордость за то, чего добились в прошлом, но с нетерпением ждём новых сражений и новых побед. Мы приветствуем Аллису с распростёртыми объятьями и надеемся, что вы откроете свои уши.&nbsp;Возможно, мы только что&nbsp; создали наш самый злой альбом - <STRONG>‘War Eternal’</STRONG>!"</EM></P>
+<P>20 марта <STRONG>ARCH ENEMY</STRONG> презентуют видеоклип на титульную композицию с грядущего альбома.</P>
+Автор: Headcrusher
+
+### 21.03.2014 news ARCH ENEMY: видеоклип &quot;War Eternal&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А вот и новый клип от <STRONG>ARCH ENEMY</STRONG>&nbsp;на титульную песню с готовящегося к выходу нового альбома! На вокале -&nbsp;<STRONG>Alissa White-Gluz</STRONG>!</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/InRMwptcgAo" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 29.03.2014 news ARCH ENEMY: обложка и трек-лист альбома &quot;War Eternal&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>ARCH ENEMY</STRONG>&nbsp;опубликовала обложку и трек-лист альбома <STRONG>"War Eternal"</STRONG>, который выходит 9 июня в Европе, а&nbsp;на&nbsp;день позже в Северной Америке.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор рисунка: <STRONG>Costin Chioreanu</STRONG> (<A href="http://twilight13media.com/">http://twilight13media.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист для стандартного издания <STRONG>"War Eternal"</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Tempore Nihil Sanat (Prelude in F minor)</STRONG> | 02. <STRONG>Never Forgive, Never Forget</STRONG> | 03. <STRONG>War Eternal</STRONG> | 04. <STRONG>As The Pages Burn</STRONG> | 05. <STRONG>No More Regrets</STRONG> | 06. <STRONG>You Will Know My Name</STRONG> | 07. <STRONG>Graveyard Of Dreams</STRONG> | 08. <STRONG>Stolen Life</STRONG> | 09. <STRONG>Time Is Black</STRONG> | 10. <STRONG>On And On</STRONG> | 11. <STRONG>Avalanche</STRONG> | 12. <STRONG>Down To Nothing</STRONG> | 13. <STRONG>Not Long For This World</STRONG></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.03/26806.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 29.05.2014 news ARCH ENEMY: клип &quot;You Will Know My Name&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже второе видео&nbsp;группы <STRONG>ARCH ENEMY</STRONG>&nbsp;с альбома <STRONG>"War Eternal"</STRONG>, который выходит 9 июня. На этот раз на песню <STRONG>"You Will Know My Name".</STRONG></FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/3Y-J7sBT_no" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 10.06.2014 news ARCH ENEMY: клип &quot;No More Regrets&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И ещё одно видео <STRONG>ARCH ENEMY</STRONG>, уже третье по счёту, с их нового альбома <STRONG>"War Eternal"</STRONG>, который вышел вчера в Европе, а сегодня выходит в Северной Америке, можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На этот раз жертвой стала песня <STRONG>"No More Regrets"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/tc-p93x5rPQ" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 11.09.2015 news Новое видео KAMELOT с участием вокалистки ARCH ENEMY
+
+<P>Новый клип <STRONG>KAMELOT “Liar Liar (Wasteland Monarchy)”</STRONG> можно посмотреть ниже. В одной из ролей в видео снялась вокалистка<STRONG> ARCH ENEMY Alissa White-Gluz</STRONG>. Трек взят с альбома <STRONG>KAMELOT "Insomnia"</STRONG>, который вышел на <STRONG>Napalm Records</STRONG> и <STRONG>Mazzar</STRONG>.</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/VDLZ6Mqy7AM" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 21.06.2017 news ARCH ENEMY: подробности альбома &quot;Will To Power&quot;
+
+<P>Группа <STRONG>ARCH ENEMY</STRONG> выпускает свой новый студийный альбом, получивший название<STRONG> "Will To Power"</STRONG>. Дата выхода запланирована на лейбле <STRONG>Century Media</STRONG> на 8 сентября.</P>
+<P>А уже в октябре месяце ансамбль порадует нас концертами в поддержку этого диска. Подробности по ссылке: <A href="/ru/shows/#74329">http://musica.mustdie.ru/ru/shows/#74329</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2017.06/30580.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 14.07.2017 news ARCH ENEMY: клип &quot;The World Is Yours&quot;
+
+<P>Группа <STRONG>ARCH ENEMY</STRONG> опубликовала клип на песню<STRONG> "The World Is Yours"</STRONG> с альбома <STRONG>"Will To Power"</STRONG>, который выходит 8 сентября на <STRONG>Century Media</STRONG>.</P>
+<P>В начале октября группа даст один концерт в Минске, а также выступит в нескольких российских городах. Подробности здесь: <A href="/ru/shows/#74329">http://musica.mustdie.ru/ru/shows/#74329</A></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/lk2-bgwA0Ro" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Новый вокалист ARCH ENEMY - девушка!!!!!!!!! Я в ШОКЕ!!!!!!!!

@@ -327,6 +327,203 @@ Mixed by Dan Swanц
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.1999 news 
+
+<p>Новый альбом Novembers Doom "Of Sculptured Ivy & Stone Flowers" готов к выпуску.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Novembers Doom войдут в студию в скором времени для записи альбома "The Knowing", который выйдет в августе.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Novembers Doom войдут в студию
+
+<p>November Doom вошли в студию для записи нового альбома под названием "The Knowing". CD выйдет в конце октября. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news November Doom have come in studio
+
+<p>November Doom have come in studio for an entry of a new album under a title " The Knowing ". CD will leave in an extremity of October. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 05.10.2000 news Новый CD Novembers Doom готов к выпуску.
+
+<p> Novembers Doom официально объявили о прекращении всяких дел с лейблом Martyr Music Group Inc. и связали выход будущих релизов с Dark Symphonies. Запись, микширование и мастеринг нового альбома "The Knowing" завершены. Официальная дата выхода нового CD - вторник, 31-ого октября 2000 года.</p>
+
+Автор: Morsus
+
+### 05.10.2000 news The new CD of Novembers Doom is now complete.
+
+<p> Novembers Doom are officially off Martyr Music Group Inc. and have linked a deal with Dark Symphonies. The recording, mixing and mastering of the new album "The Knowing" is complete. The official release date for the new CD will be Tuesday, October 31st, 2000.</p>
+
+Автор: Morsus
+
+### 03.12.2000 reviews Добротный death-doom-metal
+
+<p>Добротный death-doom-metal. Мощный, тяжелый и мелодичный. Как в старые добрые времена, когда фаворитами являлись Paradise Lost и Anathema. При этом, альбом разнообразен и интересен. За более чем шесть лет существования группа достигла высокого статуса и является одной из немногих американских команд играющих death-doom и признанной в Европе. Солчный гроулинг, нечастые женские подпевки, многочисленные вступления акустической гитары, невыделяющиеся клавишные. Хорошо поставленная работа ритм и соло-гитар. Музыка полна самых различных эмоций и настроений. А главное - тяжело и мелодично, следовательно - брутально. На общем фоне - это очень хорошая работа.</p>
+
+Автор: Dimas
+
+### 03.12.2000 reviews High good death-doom-meta
+
+<p>High good death-doom-metal. Potent, high-gravity and melodious. As in aged kind times, when favorites were Paradise Lost and Anathema. Thus, the album is miscellaneous and is interesting. For more than six years of existence the group has reached the high status and is one of few American commands playing death-doom and recognized in Europe. Staff grawling, infrequent female back-vocal, numerous introductions of an acoustic guitar not discharging keyboard. Well put activity a rhythm and solo-guitars. Music is full of the most different emotions and moods. And main - is high-gravity and is melodious, therefore - brutal. On a general background is a very good activity.</p>
+
+Автор: Dimas
+
+### 03.06.2001 news Novembers Doom переиздают дебютный альбом.
+
+<p> Прежде чем Novembers Doom начнут работу над новым альбомом, в конце июня - начале июля будет переиздан их дебютный альбом "Amid Its Hallow Mirth". Альбом выйдет с новым оформлением обложки и будет дополнен двумя бонус-треками "Nothing Earthly Save The Thrill" и "Seasons of Frost".</p>
+
+Автор: Morsus
+
+### 07.04.2002 news NOVEMBERS DOOM news
+
+<p>NOVEMBERS DOOM have finished the recording sessions and final mix for their newest masterpiece entitled “To Welcome The Fade” with Neil Kernon (Queensryche, Nevermore) at the helm.</p>
+
+Автор: Dimas
+
+### 07.04.2002 news Готов новый альбом NOVEMBERS DOOM
+
+<p>NOVEMBERS DOOM закончили запись и микширование своего новейшего произведения под названием "To Welcome The Fade”. За режиссерским пультом старался Neil Kernon (Queensryche, Nevermore).</p>
+
+Автор: Dimas
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Necroticism-Descanting The Insalubrious", 1991, Earache]<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR><BR> + конкурс от HATE и Moral Insanity Prods [email: moralinsanity@tut.by]<BR><BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 29.06.2003 news NOVEMBERS DOOM в поисках лэйбла
+
+<p>Чикагские думстеры NOVEMBERS DOOM, у которых истекли обязательства перед Dark Symphonies Records, находятся в посиках нового лэйбла для выпуска своего следующего альбома.</p>
+
+Автор: Dimas
+
+### 04.08.2004 news Новый альбом NOVEMBERS DOOM
+
+<P>Чикагские думстеры<B> NOVEMBERS DOOM</B> пригласили для работы над своим пятым альбомом <B>"The Pale Haunt Departure" </B>талантливейшего шведского продюсера и музыканта <B>Dan Swan&#246;</B> (<B>BLOODBATH</B>, <B>EDGE OF SANITY</B>, <B>NIGHTINGALE</B>). Музыканты планируют приступить к записи в октябре, а в ноябре уже начать микширование альбома. Релиз ожидается в самом начале 2005 года на <B>The End Records.</B></P>
+Автор: Дофф
+
+### 20.06.2006 news NOVEMBERS DOOM дали название новому альбому
+
+<P>Американские дум дэтстеры <STRONG>NOVEMBERS DOOM</STRONG> начали работу над своим новым альбомом под названием <STRONG>"The Novella Reservoir"</STRONG>. Как и в случае с предыдущим релизом, руководить процессом в студии будет <STRONG>Chris Djuricic</STRONG>, микширование выполнит <B>Dan Swano</B> (<B>EDGE OF SANITY</B>, <B>BLOODBATH)</B>,&nbsp;а мастерингом займется&nbsp;<B>James Murphy</B> (<B>TESTAMENT</B>, <B>DEATH)</B>. Выход альбома запланирован на конец года через <STRONG>The End Records. </STRONG>В него войдут восемь композиций:</P>
+<P>1. <B>Rain</B><BR>2. <B>The Novella Reservoir</B><BR>3. <B>They Were Left to Die</B><BR>4. <B>Our Twilight Innocence</B><BR>5. <B>Drown the Inland Mere</B><BR>6. <B>The Voice of Failure</B><BR>7. <B>Dominate the Human Strain</B><BR>8. <B>Leaving This</B><BR></P>
+Автор: Dimas
+
+### 01.08.2006 news Новости от NOVEMBERS DOOM
+
+<P><STRONG>NOVEMBERS DOOM</STRONG> заканчивают работу над своим новым альбомом под названием <B>"The Novella Reservoir"</B>, с продюсером <B>Chris Djuricic</B>. Микширование альбома осуществит <B>Dan Swano</B> (<B>EDGE OF SANITY</B>, <B>BLOODBATH</B>), а мастеринг выполнит <B>James Murphy</B> (<B>TESTAMENT</B>, <B>DEATH</B>). В конце года, альбом выйдет на <B>The End Records</B>. Тогда же последует и мощный европейский тур при поддержке <STRONG>AGALLOCH</STRONG>, <B>THURISAZ</B> и <B>SATURNUS.</B></P>
+Автор: Dimas
+
+### 26.01.2008 news NOVEMBERS DOOM переиздадут альбомы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>The End Records</STRONG> переиздадут три первых альбом <STRONG>NOVEMBERS DOOM</STRONG> <STRONG>"Amid its Hallowed Mirth"</STRONG>, <STRONG>"Of Sculptured Ivy and Stone Flowers"</STRONG> и <STRONG>"The Knowing"</STRONG>.<STRONG> </STRONG>На каждую из пластинок войдут бонус-трэки. Также группа готовит к изданию DVD <STRONG>"The Novella Vosselaar: Live in Belgium"</STRONG>.<BR></FONT></P>
+Автор: Vit Belov
+
+### 16.01.2009 news NOVEMBERS DOOM в студии
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news_rus/2009.01/13389.jpg" width=400 align=right border=5>Сегодня <STRONG>NOVEMBERS DOOM</STRONG> войдут в студию <STRONG>Belle City Sound, </STRONG>где начнут запись своего седьмого альбома <STRONG>"Into Night's Requiem Infernal"</STRONG>.&nbsp;Пластинку запишет басист группы <STRONG>Chris Djuricic, </STRONG>а сведёт <STRONG>Dan Swano</STRONG>. Этот же "персонал" работал над двумя предыдущими альбомами группы. Трэк-лист:</P>
+<P>01. <B>Into Night's Requiem Infernal</B><BR>02. <B>Eulogy for the Living Lost</B><BR>03. <B>Empathy's Greed</B><BR>04. <B>The Fifth Day of March</B><BR>05. <B>Lazarus Regret</B><BR>06. <B>I Hurt Those I Adore</B><BR>07. <B>The Harlots Lie</B><BR>08. <B>When Desperation Fills the Void</B></P>
+Автор: Vit Belov
+
+### 12.04.2009 news Песню NOVEMBERS DOOM можно качнуть
+
+<P>Новый трэк <STRONG>NOVEMBERS DOOM</STRONG> с выходящего на End Records нового альбома группы <STRONG>"Into Night's Requiem Infernal" </STRONG>можно скачать здесь: <A href="http://www.metalsucks.net/2009/04/10/exclusive-premier-novembers-doom-empathys-greed/">http://www.metalsucks.net/2009/04/10/exclusive-premier-novembers-doom-empathys-greed/</A></P>
+Автор: Vit Belov
+
+### 18.02.2010 news Видео NOVEMBERS DOOM
+
+<P>Клип <STRONG>NOVEMBERS DOOM</STRONG> на песню <STRONG>"A Eulogy For The Living Lost" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/cfR4OIDuvPc&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/cfR4OIDuvPc&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.03.2010 reviews Американский вариант doom-metal
+
+<P>Американские ветераны стиля death-doom metal NOVEMBERS DOOM выпустили в прошлом году свой седьмой альбом за 20 лет. В годы повального увлечения стилем первый альбом этих музыкантов "Amid Its Hallowed Mirth”пользовался некоторой популярностью. Последующие альбомы были менее востребованы. C современным творчеством группы мы познакомились, только благодаря лицензионной деятельности московского лэйбла Mazzar.</P>
+<P>Никто не станет спорить, что death-doom metal&nbsp; в Америке играть не очень-то умеют. Любимое нами мелодичное направление в этом стиле не подходит американским музыкантам, которые обычно считают, что музыка должна быть прямолинейной и тяжёлой. Стоит также отметить, что обозреваемый стиль никогда не был особенно популярным, и вряд ли попадёт в чарты Billboard. NOVEMBERS DOOM продолжают свой путь, но неподготовленный поклонник тяжеляка вряд ли назовёт их музыку death-doom metal. Быстрые ритмичные построения с гроулингом не имеют аналогов в современном death-doom. С некоторой натяжкой этот альбом можно сравнить с ранними альбомами CREMATORY и нынешним творчеством THE VISION BLEAK. В конце альбома NOVEMBERS DOOM исполняют ещё и балладу, которая, хоть и создаёт настроение, опять же не очень вписывается в представления о стиле.</P>
+<P>Странная пластинка. Я не смог проникнуться её оригинальной атмосферой. Вряд ли стоит обращать внимание на слово ‘DOOM’ в названии коллектива, если только не подразумевать под этим термином его изначальное значение, идущее от BLACK SABBATH.</P>
+Автор: Vit Belov
+
+### 06.11.2010 news NOVEMBERS DOOM пишут альбом
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.11/17545.jpg" width=400 align=right border=5>Ветераны американского death-doom <STRONG>NOVEMBERS DOOM</STRONG> записывают новый альбом в студии <STRONG>Belle City Sound </STRONG>в Висконсине с продюсером <STRONG>Chris Wisco. </STRONG>Восьмой альбом музыкантов <STRONG>"Aphotic" </STRONG>выйдет весной следующего года на <STRONG>The End Records</STRONG>. Сводить пластинку вновь будет <STRONG>Dan Swano</STRONG> (<B>EDGE OF SANITY</B>, <B>BLOODBATH</B>, <B>NIGHTINGALE</B>).</P>
+<P>Чтобы отпраздновать десятилетие альбома <STRONG>"The Knowing"</STRONG>, <STRONG>The End Records</STRONG> переиздадут эту пластинку, которая уже долгое время как "вышла из тиража". Новое издание будет содержать второй диск с перемикшированной и ремастированной версией этой известной пластинки. Трэк-лист:</P>
+<P>"The Knowing" (2010) - CD1<BR>01. <B>Awaken</B><BR>02. <B>Harmony Divine</B><BR>03. <B>Shadows of Light</B><BR>04. <B>Intervene</B><BR>05. <B>Silent Tomorrow</B><BR>06. <B>In Faith</B><BR>07. <B>Searching the Betrayal</B><BR>08. <B>Last God</B><BR>09. <B>In Memories Past</B><BR>10. <B>The Day I Return</B><BR>11. <B>Aura Blue</B><BR><BR>"The Knowing" (2000) - CD2<BR>01. <B>Awaken</B><BR>02. <B>Harmony Divine</B><BR>03. <B>Shadows of Light</B><BR>04. <B>Intervene</B><BR>05. <B>Silent Tomorrow</B><BR>06. <B>In Faith</B><BR>07. <B>Searching the Betrayal</B><BR>08. <B>Last God</B><BR>09. <B>In Memories Past</B><BR>10. <B>The Day I Return</B><BR>11. <B>Aura Blue</B><BR>12. <B>Silent Tomorrow</B> (dark edit)</P>
+Автор: Vit Belov
+
+### 25.02.2011 news Новый альбом NOVEMBERS DOOM
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.02/18739.jpg" width=475 align=right border=0>Восьмой альбом <STRONG>NOVEMBERS DOOM</STRONG> <STRONG>"Aphotic" </STRONG>выйдет 10 мая на <STRONG>End Records</STRONG>. Гостевое участие в записи приняла <STRONG>Anneke Van Giersbergen</STRONG> (<B>AGUA DE ANNIQUE</B>, <B>THE GATHERING</B>), а сведением занимался знаменитый <STRONG>Dan Swan&#246;</STRONG> (<B>NIGHTINGALE</B>, <B>EDGE OF SANITY</B>, <B>BLOODBATH</B>). Трек-лист:</P>
+<P>01. <B>The Dark Host</B><BR>02. <B>Harvest Scythe</B><BR>03. <B>Buried</B><BR>04. <B>What Could Have Been</B><BR>05. <B>Of Age and Origin - Part 1: A Violent Day</B><BR>06. <B>Of Age and Origin - Part 2: A Day of Joy</B><BR>07. <B>Six Sides</B><BR>08. <B>Shadow Play</B></P>
+Автор: Vit Belov
+
+### 05.06.2011 news Видео-клип NOVEMBERS DOOM
+
+<P>Новый ролик <STRONG>NOVEMBERS DOOM</STRONG> на песню <STRONG>"What Could Have Been" </STRONG>можно посмотреть ниже. Режиссёром клипа выступил <STRONG>Tony Myles</STRONG>, который уже творил визуальный ряд для группы на двух предыдущих видео. В записи песни приняла участие <STRONG>Anneke Van Giersbergen</STRONG> (<B>AGUA DE ANNIQUE</B>, <B>THE GATHERING</B>). Новый альбом <STRONG>NOVEMBERS DOOM "Aphotic"</STRONG>&nbsp;вышел 10 мая на <STRONG>End Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/RW-LbXzzuDg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/RW-LbXzzuDg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.09.2011 reviews Европейский death-doom из Чикаго
+
+<P>Коллектив из Чикаго NOVEMBERS DOOM всегда был и остаётся до сих пор оплотом настоящего death-doom metal по ту сторону океана. Уже первый альбом этой группы 1995 года выпуска “Amid Its Hallowed Mirth” поставил её в один ряд с классиками новообразованного жанра из Европы: PARADISE LOST, MY DYING BRIDE и ANATHEMA.</P>
+<P>“Aphotic” – уже восьмой альбом NOVEMBERS DOOM. За всю свою историю музыканты почти ни разу не отступали от своего фирменного звучания, в котором им удавалось примешать к привычным doom ритмам настоящую энергию американского death-metal. Медленные протяжные композиции довольно часто у NOVEMBERS DOOM сменялись быстрым и качовым забоем, который, правда, не портил «задумчивой» атмосферы. Такой же и “Aphotic”. Здесь есть неспешные композиции с вокалом в духе MY DYING BRIDE и скрипкой, но есть и быстрые, схожие по настроению с европейским death-metal, композиции. Интересно, что своё звучание американцы ищут именно в Европе, сведением альбома занимался знаменитый Dan Swano из EDGE OF SANITY, а одну песню спела Anneke, бывшая вокалистка THE GATHERING.</P>
+<P>Хороший альбом с правильным настроением, особенно, мне думается, он понравится поклонникам MY DYING BRIDE. Этот факт, пожалуй, и можно считать его главной особенностью.</P>
+Автор: Vit Belov
+
+### 20.12.2011 news FORBIDDEN: Sasha Horn - новый барабанщик группы
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22359.jpg" width=266 height=400>FORBIDDEN</STRONG> объявили имя нового барабанщика, им стал <STRONG>Sasha Horn </STRONG><EM>(на фото)</EM>, бывший участник <STRONG>NOVEMBER'S DOOM</STRONG> и нынешний -&nbsp;<STRONG>AVA</STRONG> <STRONG>INFERI</STRONG>.</P>
+<P>В августе этого года, перед началом европейского тура,&nbsp;группу&nbsp;<STRONG>FORBIDDEN&nbsp;</STRONG>оставил прежний драммер <STRONG>Mark Hernandez</STRONG> (на тот момент, так же, участник <STRONG>DEMONICA)</STRONG>, что повлекло за собой отмену этого самого тура. Единственными счастливчиками из Европы, получившими возможность посмотреть группу живьём&nbsp;этим летом, стали бельгийцы. </P>
+<P>27 августа <STRONG>FORBIDDEN</STRONG> выступили на бельгийском фестивале <STRONG>Alcatraz</STRONG>, где помочь клифорнийцам за барабанной установкой&nbsp;вызвался их старый приятель&nbsp;<B itxtHarvested="0" itxtNodeId="33">Gene Hoglan</B>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

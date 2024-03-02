@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.07.2011 news Michael &quot;Wurzel&quot; Burston - бывший гитарист MOTORHEAD ушёл из жизни
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/20033.jpg" width=300 height=423>Согласно сообщению<STRONG> Тима Батчера</STRONG> (<STRONG>Tim Butcher,</STRONG> техник и "правая рука"<STRONG> Lemmy</STRONG>) на своей странице в соц. сети<STRONG> Facebook</STRONG>, бывший гитарист<STRONG> MOT&#214;RHEAD</STRONG> Майкл Бёрстон (<B>Michael "W&#252;rzel" Burston</B>) ушёл из жизни утром 9 июля. Ему был 61 год. Причина смерти не сообщается.</P>
+<P>До того, как присоедениться к <STRONG>MOT&#214;RHEAD</STRONG> в 1984 году, <STRONG>W&#252;rzel</STRONG> был капралом в армии и проходил службу в первом батальоне Глостерширского полка на территориях Германии и Ирландии. Он, так же, был участником групп <STRONG>BASTARD</STRONG> и <STRONG>WARFARE</STRONG>.</P>
+<P><STRONG>Burston</STRONG>&nbsp;получил свою кличку&nbsp;"<B>W&#252;rzel</B>", когда служил в армии, где, из-за его причёски и мужланских манер,&nbsp;его сравнивали с вымышленным персонажом английских книг&nbsp;-&nbsp;огородным пугалом по кличке <B>Worzel Gummidge</B>. По имеющийся информации, <STRONG>Lemmy</STRONG> потребовал&nbsp;от <STRONG>W&#252;rzel</STRONG>'а, чтобы тот добавил&nbsp;умляут к "<STRONG>U</STRONG>", для достижения "эффекта хэви-метала."</P>
+<P><STRONG>Michael "W&#252;rzel" Burston</STRONG> принял участие в записи следующих альбомов <STRONG>MOT&#214;RHEAD:</STRONG></P>
+<P><STRONG>No Remorse</STRONG> (1984)<BR><STRONG>Orgasmatron</STRONG> (1986)<BR><STRONG>Rock ‘n’ Roll</STRONG> (1987)<BR><STRONG>N&#246; Sleep At All</STRONG> (Live, 1988)<BR><STRONG>The Birthday Party</STRONG> (Live, 1990)<BR><STRONG>1916</STRONG> (1991)<BR><STRONG>March &#214;r Die</STRONG> (1992)<BR><STRONG>Bastards</STRONG> (1993)<BR><STRONG>Sacrifice</STRONG> (1995)</P>
+<P>На фото: <STRONG>Michael "W&#252;rzel" Burston</STRONG> в годы своей игры в <STRONG>MOT&#214;RHEAD</STRONG> (1987)</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

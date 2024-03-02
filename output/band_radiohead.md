@@ -47,6 +47,15 @@ Produced by John Leckie.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>В феврале выйдет новая версия альбома SENTENCED "Frozen". В неё войдут бонус-трэки: кавера на песни FAITH NO MORE "Digging the Grave", WASP "I Wanna Be Somebody", RADIOHEAD "Creep" и ANIMALS "House Of Rising Sun".</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -128,6 +128,146 @@ Kevin Dubrow – бэк-вокал
 * C группой "Deep Purple" vocalist Glenn Hughes
 * C группой "Hughes Turner Project" vocalist Glenn Hughes
 
+## Публикации
+
+### 02.11.2001 reviews Для фэнов Deep Purple
+
+<p>Вообще-то, оценку этому альбому надо давать по прошествии времени, так как, с одной стороны, вроде отличный мощный альбом, как мы и ждали (хватит уже от Глена Хьюза джазово-электронных экспериментов). С другой стороны, уж очень всё предсказуемо, как будто мчишься по автобану, и всё это уже где-то было. Конечно, для фэнов Deep Purple здесь есть всё, что надо, даже звучание клавиш максимально приближено к звучанию органа Лорда, а апофеоз - пёпловская Highball Shooter, совместное творение Blackmore and Co полностью возвращает слушателя в начало 70-х. И вот, когды уже не ждёшь ничего нового, вдруг в концовке CD две великолепные баллады, восмиминутная "Beyond The Numb" и "Big Sky", где Гленн Хьюз просто шикарен, как вокалист и композитор.</p>
+<p>Диск предоставлен департаментом по иностранному репертуару концерна "ГРУППА СОЮЗ"</p>
+
+Автор: Nikolay Panfilov
+
+### 02.11.2001 reviews To fans of Deep Purple
+
+<p>Generally, the estimation of this album should be given after some time, as, on the one hand, like an excellent powerful album, as we waited for (already enough of jazz-electronic experiments from Glenn Hughes). On the other hand, album is predicted very much, as though rush on autoban, and everything was already somewhere. Certainly, for fans of Deep Purple here is all, that is necessary, even the sounding of keys is as much as possible approached to sounding a organ of Lord, and apotheosis - Highball Shooter of Deep Purple, the joint creation of Blackmore and Co completely returns the listener in a beginning of 70th. And, when you are waiting for anything new, suddenly in end of CD is two magnificent ballads, "Beyond The Numb" and "Big Sky", where Glenn Hughes is simply smart, as singer and composer.</p>
+
+Автор: Nikolay Panfilov
+
+### 13.11.2001 news Glenn Hughes в Москве.
+
+<p>23 ноября в Москве в УСЗ "Дружба" состоится концерт легендарного Гленна Хьюза. Пресс-конференция с Гленном Хьюзом, приуроченная к концерту легендарного музыканта, состоится 23 ноября в 12.00 в конференц-холле гостиницы "Украина". Справки и аккредитация по адресу gost-music@mtu-net.ru</p>
+
+Автор: Vit Belov
+
+### 17.11.2001 news Glenn Hughes в Москве. (продолжение)
+
+<p>Сессия автографов Гленна Хьюза! в магазине "ВсеСОЮЗный" накануне единственного концерта в Москве, 23 ноября с 14:00 до 15.00 часов, адрес: ЦУМ, ул. Петровка, д. 2, 6 этаж</p>
+<p>22 ноября на ОТКРЫТОМ РАДИО (102,5 FM) пройдет день артиста с розыгрышем призов от компании "GOST MUSIC INTERNATIONAL" и Концерна "ГРУППА СОЮЗ" и компании SPV GmbH.</p>
+<p>Пресс-конференция с Гленном Хьюзом, приуроченная к концерту легендарного музыканта в Москве (23 ноября, УЗС "Дружба", 19.00), состоится 23 ноября в 12.00 в конференц-холле гостиницы "Украина". Справки и аккредитация по телефону 267-88-92 и адресу gost-music@mtu-net.ru</p>
+
+Автор: Vit Belov
+
+### 25.12.2001 news Долгожданный проект HUGHES - TURNER ...
+
+<p>Наконец-то реализован долгожданный проект "HUGHES TURNER", созданный экс-участниками культовых DEEP PURPLE/BLACK SABBATH/RAINBOW/ - Joe Lynn Turner и Glenn Hughes. Одноименный диск выходит (пока в Японии) 6-го февраля 2002. Трек-лист: <BR><BR> 01. Devil's Road<BR> 02. You Can't Stop Rock'N'Roll<BR> 03. Missed Your Name<BR> 04. Mystery Of The Heart<BR> 05. Sister Midnight<BR> 06. Better Man<BR> 07. Heaven's Missing An Angel<BR> 08. Fade Away<BR> 09. Ride The Storm<BR> 10. Run Run Run<BR> 11. Against The Wall<BR> 12. On The Ledge<BR><BR> В записи альбома участвовали Joe Lynn Turner (вокал), Glenn Hughes (вокал, басс), J. J. Marsh (гитара), Vince DiCola (клавиши) и Shane Galaas (барабаны). Среди гостевых музыкантов были: John Sykes (гитара), Paul Gilbert (гитара) и Akira Kajiyama. Продюссировали релиз Glenn Hughes, Joe Lynn Turner и Mike Scott.</p>
+
+Автор: Yermola
+
+### 11.07.2003 reviews Голос рока или Голос хард рока?
+
+<p>Гленн Хьюз давно уже добился такого статуса, что может позволить себе, не заботясь о куске хлеба, и не оглядываясь на требовательных продюсеров, делать то, что хочет, или вообще ничего не делать. Хочет петь блюз – поёт. Хочет записать поп-соуловый альбом – запишет. Муза забыла дорогу в дом Гленна?… да и путь пока погуляет на свободе. Исполнит, значит, кавера на очередных «памятниках» или поучаствует в многочисленных проектах своих друзей. Но в этот раз решил Хьюз тряхнуть стариной. Старина вытряхнула тру хард-роковый альбом. Если на предыдущем – Building Machine – классической хардой, по большому счету, может считаться только первая – Can’t Stop the Flood, то на новейшем релизе их подавляющее большинство, и все такого же качества. Проходных песен, предназначенных лишь для того, чтоб в очередной раз продемонстрировать возможности великолепного по-прежнему (собственно, кто бы сомневался?!) голоса, я не заметил. Да, так любимые Хьюзом соуловые кусочки по-прежнему встречаются, но лишь как части песен, гармонично вписывающиеся в структуру… типа баллады. Да и без ритм’н’блюза, честно говоря не обошлось. Из очень ровного и качественного материала на альбоме явно выделяется единственная, не написанная самим Мастером веешь - Written All Over Your Face, написанная штатным гитаристом ДжейДжей Маршем. Любители «Рэйнбоу» плачут полчаса… Остальные рыдают не переставая… от счастья, разумеется. Не так часто выпускаются сильные хард-роковые альбомы в последнее десятилетие. Ждем, как выступит теперь Deep Purple.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+### 26.08.2004 news Glenn Hughes выпускает первое DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Glenn Hughes</STRONG> выпускает перове DVD <STRONG>"Soulfully Live In The City Of Angels"</STRONG>&nbsp;в сентябре на <STRONG>Frontiers</STRONG>. Концерт, который лёг в основу диска, был записан 11 января. В записи приняли участие: <STRONG>JJ Marsh</STRONG> (гитара),&nbsp;<STRONG>George Nastos</STRONG> (гитара),&nbsp;<STRONG>Ed Roth</STRONG> (клавиши),&nbsp;<STRONG>Chad Smith (RED HOT CHILL PEPPERS) </STRONG>(барабаны).&nbsp;А также&nbsp;<B>Kevin DuBrow (ex-QUIET RIOT)</B>&nbsp;и&nbsp;<B>Alex Ligertwood (ex-SANTANA)</B>.&nbsp;Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>CD1:<BR>01. <B>Can't Stop the Flood</B><BR>02. <B>Higher Places</B><BR>03. <B>Written All Over Your Face</B><BR>04. <B>Medusa</B><BR>05. <B>Wherever You Go</B><BR>06. <B>Seafull</B><BR><BR>CD2:<BR>01. <B>Coast to Coast</B><BR>02. <B>First Step Of Love</B><BR>03. <B>Mistreated</B><BR>04. <B>Gettin’ Tighter</B><BR>05. <B>You Keep On Moving</B><BR>06. <B>The Healer</B> (bonus studio track)<BR>07. <B>Change</B> (bonus European studio track)<BR>&nbsp;&nbsp;<BR></P></FONT>
+Автор: Vit Belov
+
+### 10.09.2004 news Hughes и Turner не боятся террористов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Glenn Hughes</STRONG> и <STRONG>Joe Lynn Turner</STRONG> посетят нашу страну, несмотря на вылазки террористов, сообщил сотрудник мэрии <STRONG>Михаил Мень</STRONG> в интервью <STRONG>Интерфакс</STRONG>. Напомним, что у этого чиновника совместный проект с легендами hard-rock.</FONT></P>
+Автор: Vit Belov
+
+### 18.11.2004 news Glenn Hughes выпускает новый сольный альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>Glenn Hughes 'Soul Mover'</STRONG> уже готов и выйдет в начале следующего года на <STRONG>Frontiers</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Soul Mover</STRONG><BR>2. <STRONG>She Moves Ghostly</STRONG><BR>3. <STRONG>Change Yourself</STRONG><BR>4. <STRONG>High Road</STRONG><BR>5. <STRONG>Let It Go</STRONG><BR>6. <STRONG>Dark Star</STRONG><BR>7. <STRONG>Miss Little Insane</STRONG> <BR>8. <STRONG>Land of The Living</STRONG><BR>9. <STRONG>Isolation</STRONG><BR>10. <STRONG>Last Mistake</STRONG><BR>11. <STRONG>Orion<BR></STRONG>12. <STRONG>Don’t Let Me Bleed</STRONG></P>
+<P>В записи приняли участие участники <STRONG>RED HOT CHILLI PEPPERS Chad Smith</STRONG> и <STRONG>Dave Navarro</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.01.2005 news Сольный альбом JJ Marsh
+
+<P><STRONG>JJ Marsh </STRONG>- постоянный гитарист и соавтор <STRONG>Гленна Хьюза</STRONG>,&nbsp;завершил работу над своим первым сольным альбомом &nbsp;<B>"Music From Planet Marsh"</B>. В работе над альбомом музыканту помогали ударник <STRONG>Tomas Broman</STRONG> и клавишник <STRONG>Kjell Haraldsson</STRONG>, все остальные инструментальные партии и вокал записаны лично <STRONG>JJ Marsh'ем.</STRONG> Получилось нечто на стыке <STRONG>HENDRIX</STRONG>, <STRONG>BLACK</STRONG> <B>SABBATH и</B>&nbsp;<STRONG>DEEP</STRONG> <B>PURPLE.</B> Релиз ожидается в конце февраля. <BR>Трек-лист альбома:<BR>1. <B>Electric Women</B> (6:10) <BR>2. <B>Play the Game</B> (3:56) <BR>3. <B>Is It Real</B> (5:42) <BR>4. <B>Into the Light</B> (9:42) <BR>5. <B>Something Song</B> (7:41) <BR>6. <B>Move On</B> (4:10) <BR>7. <B>It's Not Too Late</B> (5:03) <BR>8. <B>Need a Friend</B> (5:39) <BR>9. <B>The Change</B> (11:27) <BR></P>
+Автор: Dimas
+
+### 06.03.2005 news Glenn Hughes хвалится продажами нового альбома
+
+<P><STRONG>Glenn Hughes</STRONG> выложил следующее заявление на свой официальный сайт: "<EM>Я сейчас в Германии и хочу сказать, что публика на концертах моего европейского тура просто фантастическая. &lt;..&gt; Это начало новой эры, те, кто приходил на новые шоу, или только придёт, поймут, что я имею в виду. Это чувство, и я живу моментом, не задумываясь о том, что было вчера, и что будет завтра. Новый альбом "<STRONG>Soul Mover</STRONG>" самый продаваемый за долгое время. Это благословение, я никогда не чувствовал себя лучше, чем сейчас</EM>".</P>
+Автор: Vit Belov
+
+### 05.02.2006 news Дата релиза нового альбома Glenn Hughes
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>15 песен для нового альбома <STRONG>Glenn Hughes</STRONG> уже записаны. Альбом микшируется и&nbsp;выходит 29 мая.</FONT></P>
+Автор: Vit Belov
+
+### 13.03.2006 news Glenn Hughes назвал альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> Glenn Hughes</STRONG> будет называться "<STRONG>Music For The Divine</STRONG>".&nbsp;Пластинка выйдет ориентировочно в июне.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 07.04.2006 news Новый GLENN HUGHES
+
+<P>Новый альбом <STRONG>GLENN HUGHES "Music For The Divine"</STRONG> выходит 9 июня на <STRONG>Frontiers</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Valiant Denial</B><BR>02. <B>Steppin’ On</B><BR>03. <B>Monkey Man</B><BR>04. <B>This House</B><BR>05. <B>You Got Soul</B><BR>06. <B>Frail</B><BR>07. <B>Black Light</B><BR>08. <B>Nights In White Satin</B><BR>09. <B>Too High</B><BR>10. <B>This Is How I Feel</B><BR>11. <B>The Divine</B></P>
+Автор: Vit Belov
+
+### 06.08.2006 reviews Хьюз и Ко снова делятся с нами музыкой
+
+<P>Для того, что бы понять, чем новый альбом “Music For The Divide” Голоса Рока Гленна Хьюза отличается от прошлогоднего, достаточно пролистать буклет. На фотографиях музыканты в уютном холле большого дома. Мягкая мебель, камин, огромный ковер… И три человека с одухотворенными лицами делающие музыку. Музыку для своего удовольствия. И как следствие, для нашего тоже. Так делали музыку в далекие 60е-70е. Когда Рок не был коммерческим продуктом, а являлся актом самовыражения, полем для творческих экспериментов. Сейчас так играют единицы. И к этим избранным единицам принадлежит группа Гленна Хьюза. Не припомню альбома, выпущенного в последние годы, настолько пропитанного атмосферой «золотого периода». Кажется, что новые песни Хьюза – чистая импровизация. Но импровизация, основанная на прекрасной мелодии. Послушайте гитарное соло на “This Is How I Feel”. Психоделия. Пинк Флойд. </P>
+<P>Не забыл Хьюз и про свой любимый фанк, и про классический хард рок, хотя их доля в общем котле заметно меньше. Пожалуй, самой яркой песней, олицетворяющей новую музыку Хьюза, на “Music For The Divide” является “Steppin’On”. Великолепный образец. Безупречная работа всех музыкантов. Смены ритмов и мелодии. И хитовая мелодия. Вообще, про мастерское исполнение говорить даже и не стоит. Это и так понятно. Как и распинаться про вокальную работу. Кто любит голос Хьюза и так знает, как все спето. В этом плане осечек у Мастера не бывает. </P>
+<P>Вторая вершина пластинки – шикарная версия классического боевика Джастина Хэйуорда из репертуара Муди Блюз. Не факт, что оригинал звучит лучше… Не факт… Лирическая песня, с надрывным “Coz I Love You” как нельзя лучше вписалась в новый материал. Кстати, лирических песен на диске полно. Хьюз романтик еще тот…</P>
+<P>Стоит порадоваться, что ветеран, в отличие от его бывших коллег, на творческом подъеме.</P>
+<P>Диск предоставлен <A href="http://www.darkdivision.ru/">Dark Division</A></P>
+Автор: Дофф
+
+### 30.01.2007 news Glenn Hughes вновь едет к нам
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Glenn Hughes</STRONG> объявил даты масштабного турне по России. </FONT></P>
+<P>Февраль -<BR>21 Петропавловск-Камчатский<BR>23 Владивосток<BR>25 Южно-Сахалинск<BR>27 Хабаровск<BR>Март&nbsp;-<BR>01 Благовещенск<BR>03 Екатеринбург<BR>05 Москва, Б2<BR>06 Санкт-Петербург<BR>08 Самара<BR>09 Челябинск<BR>10 Екатеринбург<BR>12 Киев</P>
+Автор: Vit Belov
+
+### 24.01.2008 news GLENN HUGHES в мае
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё одна легенда <STRONG>GLENN HUGHES</STRONG> закончил запись нового альбома. Известно, что пластинка увидит свет в мае. Подробности пока не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 13.03.2008 news Новый альбом Glenn Hughes
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>Glenn Hughes</STRONG> <STRONG>"First Underground Nuclear Kitchen (F.U.N.K.)"</STRONG>&nbsp;выходит 11 мая на <STRONG>Frontiers</STRONG>. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Crave</B><BR>02. <B>First Underground Nuclear Kitchen</B><BR>03. <B>Satellite</B><BR>04. <B>Love Communion</B><BR>05. <B>We Shall Be Free, Imperfection</B><BR>06. <B>Never Say Never</B><BR>07. <B>We Go To War</B><BR>08. <B>Oil And Water</B><BR>09. <B>Too Late to Save the World</B><BR>10. <B>Where There's A Will</B><BR></FONT></P>
+Автор: Vit Belov
+
+### 16.06.2010 news HEAVEN AND HELL дадут концерт в память о Dio
+
+<P>16 мая скончался великий певец<STRONG> Ronnie James Dio</STRONG>. Последней группой, в которой он принимал участие стали <STRONG>HEAVEN AND HELL</STRONG>, где он творил вместе со своими коллегами по <STRONG>BLACK SABBATH</STRONG>: <STRONG>Tony Iommi, Geezer Butler</STRONG> и <STRONG>Vinny Appice</STRONG>. На это лето группа планировала выступления на фестивалях, но ухудшение здоровья, а затем и смерть <STRONG>Ronnie </STRONG>разрушили эти планы.</P>
+<P>24 июля на фестивале <STRONG>High Voltage</STRONG> в Лондоне <STRONG>HEAVEN AND HELL</STRONG> дадут концерт в память об ушедшем певце. Вся выручка от этого шоу пойдёт в благотворительный фонв<STRONG> Dio</STRONG> по борьбе с раком <STRONG>"Stand Up And Shout". </STRONG>В качестве вокалистов музыканты привлекли <STRONG>Glenn Hughes</STRONG> (<B>BLACK SABBATH</B>, <B>DEEP PURPLE</B>, <B>TRAPEZE</B>)&nbsp;и <STRONG>Jorn Lande</STRONG></B> (<B>MASTERPLAN</B>).</P>
+<P><STRONG>Glenn Hughes</STRONG> был другом<STRONG> Ronnie Dio</STRONG> и исполнил несколько его вещей на похоронах, а <STRONG>Jorn Lande</STRONG> часто исполняет вещи певца, а в скором будущем выйдет целый альбом-посвящение с песнями покойного артиста.</P>
+Автор: Vit Belov
+
+### 20.09.2016 news GLENN HUGHES выпустил видео
+
+<p><strong>GLENN HUGHES</strong> опубликовал видео-клип на заглавную композицию с нового альбома&nbsp;"<strong>Heavy</strong>", который выйдет 4 ноября на <strong>Frontiers</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/B7P3zt11vQQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 20.09.2016 news GLENN HUGHES posted video
+
+<p><strong>GLENN HUGHES</strong> has posted a video clip for the title track from the new album "<strong>Heavy</strong>" will be released on 4 November via<strong> Frontiers records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/B7P3zt11vQQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.10.2016 news Новая песня GLENN HUGHES
+
+<p>Новый альбом<strong> GLENN HUGHES "Resonate"</strong> выходит 4 ноября на <strong>Frontiers</strong> и<strong> Irond</strong>. Новая песня "<strong>My Town</strong>" доступна в клипе ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/fyeFn2NUb1g" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.10.2016 news New song by GLENN HUGHES
+
+<p>New <strong>GLENN HUGHES</strong> album "<strong>Resonate</strong>" will be released 4th of November on <strong>Frontiers records</strong> and Irond. New song "<strong>My Town</strong>" is available in the clip below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/fyeFn2NUb1g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

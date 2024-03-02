@@ -49,6 +49,27 @@ Moonfog Productions 1995
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.01.2000 news 
+
+<p>Третий альбом Isengard "Crownless Majesty" выйдет в апреле.</p>
+
+Автор: Vit Belov
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

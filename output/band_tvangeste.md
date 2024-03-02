@@ -38,6 +38,1251 @@ Born to be King of Innerself
 
 * C группой "MUSICA (compilation)" Tvangeste
 
+## Публикации
+
+### 21.03.2000 reviews 
+
+<p>А эта российская команда - открытие сезона! Альбом просто за душу берет и не отпускает. Очень захватывающее прослушивание ожидает тебя. Славянский симфонический блэк с очень сильным влиянием дума. Великолепные помпезные клавишные (играет девушка, она же и сладкоголосо подпевает) на фоне думовых пассажей соло-гитары и яростной блэковой атаки ритм-секции и жужжания гитары. Плотный звук. Альбом включает в себя пять песен, каждая из которых - потенциальный хит. Музыка разнообразна с постоянными сменами темпа и запоминающими гитарными соло. Лирика на английском, но иногда можно услышать и русскую речь. Странно, что у такой команды до сих пор нет контракта ни с одним лэйблом. Я думаю, у TVANGESTE, есть все шансы для того, чтобы стать всемирно известными. Будем ждать, а пока, предлагаю поддержать отечественного производителя и приобрести сей ценный альбом.</p>
+
+Автор: Dimas
+
+### 10.07.2000 articles Tvangeste: мы просто играем тяжелую музыку
+
+<p> На наши вопросы ответил Мирон - вокалист/гитарист группы Tvangeste.</p>
+<p> - Мирон, Ваш альбом "Damnation of Regiomontum" получил весьма крутую оценку как во многих наших печатных музыкальных изданиях и e-zin'ах, также и среди простых любителей тяжелой музыки. А Вы сами довольны результатами деятельности Вашего лейбла?</p>
+<p> Несомненно, запись и последующее издание нашего дебютного альбома является серьезной, заметной вехой в жизни Tvangeste... запись проходила на мой взгляд в одной из лучших студий России TV4 Studios. В общей сложности на запись материала было потрачено 140 часов и вцелом нашу работу можно считать сносной. Хотя, естественно, прослеживается целый ряд недочетов, в первую очередь связанных с отсутствием оригинального звукорежиссера с металевыми мозгами... именно такой режиссер способен передать то, что планируется музыкантами. Несмотря на то, что нашим звукорежиссером был профессионал, это был профессионал в области современной коммерческой музыки, не имеющий ни малейшего представления о том, как пишутся тяжелые команды. Мы благодарны ему за его искренне желание помочь нам (парень, который слушает techno house, для получения представление о том, как звучит black переслушал целую кучу команд), но сведение металевой музыки должно производиться профессионалами именно в этой области...</p>
+<p> Относительно же самой самооценки могу сказать лишь, что альбом неплох с точки зрения материала, но несомненно отстает в качестве записи гитар и общего сведения...на сегодняшний день мы уже ОЧЕНЬ недовольны этим материалом, и новый альбом планируется к записи в Польше на SELANI studio у звукорежиссера Christ Agony, Vader, Behemoth и других брутальных поляков...</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1789.jpg" hspace=5 vspace=5 align=right></p>
+<p> - Прошло уже 6 месяцев с выхода этого альбома. Какие планы у группы на ближайшее будущее и как вы собираетесь их реализовывать? Идет ли работа над новым альбомом?</p>
+<p> Да, планов у нас море. Во-первых это выпуск нашего материала на достойном лэйбле (нашим менеджером ведутся окончательные переговоры с лэйблом, имя которого пока называть не буду). Помимо экспансии на запад мы плотно работаем над нашим вторым альбомом, запись которого начнется в середине осени этого года. Это будет абсолютно новый материал как в плане стиля (мы пытаемся расширить рамки нашей стилистики), так и в плане самого саунда. Запись будет проходить при участии Калининградского Симфонического Оркестра и Церковного Хора. С ними уже достигнуты соглашения и сейчас на весь наш новый материал параллельно пишутся партитуры для классических инструментов. Мировая практика показывает, что живой звук в сочетании с драйвом металла дает необычайный эффект (взять к примеру Rhapsody). Окончание работ в студии планируется на начало 2001 года.</p>
+<p> - Значит, говоришь, в записи будет принимать участие Церковный хор? Как у Вас возникла такая идея? Как на Ваше предложение отреагировали церковные деятели и трудно ли было добиться от них согласия? :))</p>
+<p> Если честно, то согласия руководства и не было, да и не могло быть... Естественно писаться будет не весь хор, а лишь его определенная часть... послушав определенное количество музыки, в которой используются живые хоры, мы пришли к выводу, что подобного саунда никакими сэмплами добиться невозможно...такой мощи, напора и энергетики просто немыслимо достичь искусственно. Так родилась идея поработать с живым хором...</p>
+<p> - Но за всем этим стоят большие финансовые затраты. Те же самые Rhapsody на свой последний альбом угрохали огромные бабки...</p>
+<p> Естественно запись музыки дело очень дорогое. Особенно если учесть, что час работы в студии стоит $8 а сведение и того дороже. Однако все мы работаем и отдаем немалую част кровных средств в фонд Tvangeste... это что то типа ежемесячных отчислений на ту или иную трату на нужды группы. Сообща мы собрали аппарат для репетиций, сообща записали альбом и сейчас, опять таки сообща, готовимся записать второй. Приблизительный бюджет этого альбома составит $1500.</p>
+<p> - Эдгар давно покинул группу?</p>
+<p> Да. Практически вся наша жизнь вне города и все, что с ней связано к Эдгару имеет лишь косвенное отношение. Мы расстались в 1998 году по причинам разногласий в отношении идеологической направленности Tvangeste (он практикует сатанизм). Однако все мы благодарны Эдгару за совместную работу и помощь в становлении Tvangeste. Без его опыта это было бы намного сложнее......</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1790.jpg" hspace=5 vspace=5 align=left></p>
+<p> - О Ваших концертных выступлениях ходят легенды. Расскажи, пожалуста, по-подробнее об этом.</p>
+<p> Новая программа походит скорее на театральное действо, нежели на концерт metal группы. Средневековые одеяния, декорации в стиле darkness, море огня, ритуальные действа и рыцарские схватки... В основе выступления лежит древняя легенда о спасении священного огня хранителей культа Перкуно, одного из верховных божеств великой Прусской земли. Все это происходит на фоне жестокой, мелодичной, скоростной и мрачной музыки...</p>
+<p> - Да, это должно быть действительно потрясающее зрелище! Часто ли Вам приходится выступать живьем?</p>
+<p> Ввиду того, что мы (как это не идиотски звучит) сами оплачиваем все свои шоу, на это уходит немало финансов... никто из организаторов концертов нам ни копейки не дал за все время наших выступлений! А ведь это и спецэффектов куча и ведьмы там всякие симпатичные и пиротехника... куча всего... наше шоу литовцы оценили в 300 долларов, но смогли заплатить только 150... это маленькая сумма для Москвы, но в Калининграде это много...поэтому выступаем нечасто...</p>
+<p> - Осенью наш e-zine собирается провести в Москве фестиваль с участием известных отечественных metal-групп. Как бы Вы посмотрели на приглашение выступить у нас в качестве почетных гостей?</p>
+<p> Естественно это было бы круто! Тем более, что мы уже давно подумываем о приезде к Вам...скорее всего осенью Москва нас все таки услышит......если опять чего нибудь не стрясется... только вот приедем мы наверное почти без шоу...но и так, обещаю будет на что посмотреть...если же решить вопрос финансирования проезда всех членов шоу, то Вы получите незабываемое впечатление....на Satarial не похоже, точно.....:))</p>
+<p> - С недавнего времени Вы полностью отказались от использования корпспейнта. Что послужило этому причиной?</p>
+<p> Ха ха...давно не задавали таких вопросов...Во первых мы использовали просто ГРИМ, а не corpsepainiting... в чем разница? Слово corpsepainting произошло от слияния двух английских слов, обозначающих раскраску под трупа... изначально использовали ее нордические блэкушники типа Dakthrone итд. Однако позже определение корпспэйнтинг как то срослось с просто гримом... Мы же использовали просто страшный грим. Не копируя норвегов, мы скорее походили на Alice Cooper...и гриму отводилась скорее роль шоу, правда с некоторым подтекстом. Мы хотели донести до зала наше внутреннее состояние буквально всеми возможными способами, создать неповторимую атмосферу тьмы и мрака. Позже мы просто отказались от боевой раскраски так как это попросту жрет время перед концертом... и все красятся на нервах... а то и вовсе не придет художник (девушка нас разукрашивала) и бегаем, проблемы делаем из этого....однажды просто взяли, да и забили на все это.....</p>
+<p> Не стоит везде искать идеологическую подоплеку, особенно там, где ее и вовсе нет…...мы же просто музыканты в конце концов! А то получается, что стоять надо так, а не так... так паганисты не стоят...петь надо так, а не так, так металлисты не поют...пора просто творить...без тупых рамок...идеология это одно... стилистика другое, а имидж третье... все равновелико, но и не должно мешать друг другу...</p>
+<p> - Хотелось бы узнать твое мнение о российской металлической сцене. Каковы, по-твоему, перспективы её развития?</p>
+<p> На сегодняшний день, прослушав довольно много отечественной металевой музыки могу сказать, что у нас отлично развит thrash, death, doom... но вот с black metal просто беда...групп, играющих качественно, интересно и грамотно просто единицы....это очень странно, тем более что под боком Украина, где они просто плодятся и размножаются... причем приличные команды с неменее приличными материалами... Российской black metal сцены попросту нет, несмотря на то, что некоторые группы при должном развитии и финансировании вполне могли бы стать ее оплотом. Из того, что слышал могу лишь выделить группу RADIGOST, которые по своему мелодизму, музыкальным ходам и мыслям реально и существенно выделяются. Качественная студия, минимум раскрутки и они могут засиять на небосклоне грандов Российской и Мировой тяжелой музыки......</p>
+<p> - А мне кажется, что death-, и особенно thrash-металлическая сцена в России сейчас находится в еще более бедственном положении, чем black-сцена....</p>
+<p> Профессионалов, играющих качественный thrash и death у нас воистину море… перечислять не буду, остановлюсь хотя бы на DETONATOR. Профессиональность во всем начиная с музыки и заканчивая качеством записи… Даже в Калининграде есть thrash коллектив, способный играть в лучших традициях OVERKILL…это мало кому известные за пределами области старички ТЯЖЕЛОЕ ДЕЛО. Играют достойно, но не ко времени…</p>
+<p> - А ты бы сам как определил стиль Tvangeste?</p>
+<p> Частый вопрос...я никак не определяю нашу направленность и стилистику...мы просто играем тяжелую музыку...причем, если это и не очень заметно по первому альбому, мы играем разные композиции в разных стилях...общий стержень конечно же есть...это что то типа sympho black с классическими вставками...</p>
+<p> - Практически все тексты Ваших песен на английском языке. Почему? Понятно, с одной стороны это ориентация на западного слушателя, но с другой - ведь Ваше творчество посвящено истории и культуре нашей родной земли и Ваш основной слушатель именно здесь....</p>
+<p> Действительно это так! Раньше мы считали (не без оснований), что прежде всего надо вылезти на запад, а вылезти туда без английского контента не очень то просто... исходя из логики и из того, что нас будут слушать и в Европе и в Америке и в России мы решили построить свой альбом на английском, т.к. рассчитывали на то, что тот, кому будет интересна наша идеология сможет их просто перевести... теперь же мы изменили свою точку зрения и новый альбом выйдет и на русском и на английском языках...</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1791.jpg" hspace=5 vspace=5 align=right></p>
+<p> - То есть будет две версии альбома, и обе они будут доступны нашему слушателю? Это опять же дополнительные проблемы при записи...</p>
+<p> Да, но и плюсы несомненны...</p>
+<p> - После ухода Эдгара ты остался единственным вокалистом в группе. Как тебе удается одновременно справляться с ролью вокалиста и гитариста (я имею ввиду концертные выступления)? Не было желания пригласить в группу еще одного вокалиста?</p>
+<p> Это желание не оставляет меня ни на минуту... действительно не очень радостно торчать у микрофона и орать, при этом играя тэппингом и мотая головой в полной темноте..Качество о этого совмещения я но не лучшеет...все таки вокалист должен вокалить, а гитарист гитарить... я больше гитарист. Просто в Калининграде крайне сложно найти подходящего вокалиста, который бы стал неотъемлемой частью Tvangeste.</p>
+<p> - В Ваших произведениях множество бэк-вокальных партий. Кому принадлежит этот прекрасный женский голос?</p>
+<p> Во время нашей записи на TV4 Studios мы познакомились с классной девушкой, работающей там. Оказалось, что она выпускница муз училища по классу вокала... и мы решили сымпровизировать... я засел дома и за пару дней накатал несколько моментов, где женский вокал был бы в тему... на новом альбоме все будет построено заранее, со сложными партиями, разбитыми на несколько голосов. Там ей отведена основаная партия женского вокала. Помимо нее в записи будет принимать участие еще одна девушка, также выпускница муз училища...</p>
+<p> - А кто берет на себя обязанность бэк-вокалистки во время концертных выступлений?</p>
+<p> На сегодняшний день уже решился вопрос с живым женским вокалом. До этого мы выступали без него и он слышен лишь в студийной работе…</p>
+<p> - Кто участвует в процессе сочинения муз. материала?</p>
+<p> Процесс создания материала происходит примерно так: я и Nicholas (гитарист) вместе составляем каркас песни, после чего записывается сырой вариант в 2 гитары для клавишницы... некоторое время она сидит над ним дома, а затем мы вместе дорабатываем ее мысли. Тексты пишу я и Vanoe...сейчас еще мы вместе с Викторией пишем партитуры для оркестра...так, что все принимают участие в творческом процессе создания композиции.......</p>
+<p> - Занимаются ли члены группы какими-либо сторонними музыкальными проектами ?</p>
+<p> На сегодняшний день только Виктория принимает участие еще в двух проектах. Это одна из самых известных готических команд России ROMOWE RIKOITO и думовый коллектив DIS PATER.</p>
+<p> - Какое твоё мнение об интернете как о средстве по раскрутке команды?</p>
+<p> Несомненно, Интернет на сегодняшний день является чуть ли не главным нашим каналом рекламы. При достаточном знании методов раскрутки web ресурсов в Сети возможно раскрутить все, что угодно. Это 24 часовая реклама, да к тому же еще и бесплатная (почти). Стоит также задуматься над тенденциями развития Интернет. В ближайшем будущем это будет ОСНОВНОЙ источник информации... Вы можете посетить наш оффициальный сайт http://tvangeste.bief.ru на котором можно более подробно узнать о нас, нашей истории. идеологии, посмотреть фото архив и СКАЧАТЬ ПОЛНУЮ ВЕРСИЮ НАШЕГО АЛЬБОМА В МР3.., зеркало http://tvangeste.da.ru.. мой e-mail: tvangeste@mail.ru</p>
+<p> - Ну, и, как обычно, пару слов напоследок...</p>
+<p> Напоследок хотелось бы поблагодарить всех, кому наше творчество небезразлично, выразить особую благодарность всем на MUSICA MUSTDIE и тебе в частности, за предоставленную возможность выговориться. Спасибо.</p>
+<p> -Спасибо и тебе, за уделённое нам время. Удачи! До встречи в Москве!</p>
+<p></p>
+<p> Nybras</p>
+
+Автор: Nybras
+
+### 17.04.2001 news MUSICA.MUSTDIE.RU COMPILATION
+
+<p>Запущен в производство новый проект нашего сайта. Скоро выйдет в свет альбом-компиляция молодых талантливых команд из России и Казахстана. Он будет интересен прежде всего тем, кто слабо знаком с нашей металлической сценой. В проекте принимают участие команды самых разных стилей и направлений тяжелой музыки. Среди них ABSURD, SEDUCER'S EMBRACE, RADIGOST, VORTEX, GLAZEMAKER, ROSSOMAHAAR, EXHUMATION, ELISIUM, REQUIEM, SAMHAIN, TVANGESTE, LEAD WEIGHT, WISHMASTER, HOSTILE BREED и Жамиля Серкибаева & FORREST GUMP. Общая длительность альбома - 76 минут.</p>
+
+Автор: Dimas
+
+### 25.07.2001 news Первый сборник MUSICA
+
+<p>Вышел в свет первый сборник металлических команд из стран бывшего СНГ - MUSICA. На нём Вы найдёте такие команды, как Seducer's Embrace, Absurd, Lead Weight, Samhain, Rossomahaar, Elisium и многие другие. Более 70 минут интересной музыки. Сборник целиком и полностью поддержан нашим сайтом. По вопросам приобритения оптом и в розницу: vbelov@online.ru</p>
+
+Автор: Vit Belov
+
+### 21.08.2001 news Tvangeste записывают новый альбом
+
+<p> Калининградские Tvangeste, заключив контракт на выпуск двух альбомов с норвежским лэйблом Valgalder Records, приступили к записи второго альбома. Запись проходит на студии SELANI (Польша), известной своими работами с Vader, Behemoth, Lux Occulta и Dies Irae. В записи альбома принимает участие барабанщик польской Death группы Dominium (Metal Mind). Выход альбома запланирован на конец 2001 года и будет состоять из 9 композиций записанных с симфоническим оркестром и хором.</p>
+
+Автор: Nybras
+
+### 13.11.2001 news Новости от MusicaMustdie Productions
+
+<p>MMP уполномочена сообщить, что достигнута принципиальная договорённость о выпуске альбомов для России и стран СНГ: Tvangeste - "Damnation Of Regiomontum" и Lead Weight - "Penetrator". Альбом Tvangeste будет содержать бонус-видеоклип, а на новейший альбом казахстанцев Lead Weight войдут, как бонуса, композиции с альбома 1999 года "For Thine Is The Kingdom". Релизы намечены на начало 2002 года.</p>
+
+Автор: Vit Belov
+
+### 23.11.2001 articles MUSICA - сборник рок-андерграунда СНГ
+
+<p>Самое главное достоинство этого диска (и, на мой взгляд, причина заиметь таковой в свою фонотеку) – это возможность поставить диагноз металлическому андерграунду едва ли не всего СНГ. На сборнике представлено пятнадцать команд, занимающихся литьем железа самых разных видов - и, о чудо, среди таковых есть даже три казахстанские группы: FORREST GUMP, LEAD WEIGHT, REQUIEM. <BR><BR> Отделять зерна от плевел в подобных солянках – дело почти бессмысленное: собственно, на то и сборник, чтобы каждый сам смог выбрать фаворитов. Но раз уж пластинка в руках – грех не посудачить о содержимом. <BR><BR> В первую очередь бросается в глаза разница в качестве звука у разных команд – кто-то вложил в запись серьезные деньги и даже имеет нормально записанный студийный альбом (HOSTILE BREED, ROSSOMAHAAR), А КТО-ТО ЛИШЬ НА ПОЛПУТИ К ЭТОМУ. Также диск дает понять, что шведский мелодичный death metal правит умами современного андерграунда: более половины групп копируют стандарты стиля. Все бы ничего, да только звучат они вторично и даже третично, и к тому же трудно отличить их даже друг от друга. По той же причине HOSTILE BREED, последователи американцев BIOHAZARD, и FORREST GUMP со своими фольклорными мотивами выглядят белыми воронами. <BR><BR> Теперь о лучших треках диска. Неплохо звучат ROSSOMAHAAR (не пугайтесь, это всего лишь россомаха) и VORTEX – первые показали, что и блэк-метал при умелом обращении можно превратить в хорошую музыку, а вторые просто хорошо и приятно процитировали немцев HELLOWEEN, GAMMA RAY и целый батальон прочих команд, причем сделали это внятно, динамично, без занудства и слепого поклонения. Но безусловные жемчужины – лишь в завершении диска: москвичи ABSURD и наши земляки FORREST GUMP. ABSURD, в отличие от прочих поклонников шведского варианта дэс-метал, смогли не потонуть в сопливых мелодиях и выковать настоящее злобное и сверкающее железо, каким оно и должно быть. Ну а FORREST GUMP в связке со скрипкой Жамили Серкебаевой, лучше один раз услышать – инструментал того стоит. <BR><BR> Пожалуй вот такой финал и оправдывает название сборника – MUSICA. Все прочее – скорее пища для размышлений. Но, надо заметить, пища неплохая.</p>
+
+Автор: Tornado
+
+### 15.06.2003 news Новости из стана TVANGESTE
+
+<p>Официальной датой релиза нового альбома группы TVANGESTE назван конец июня 2003 года. Альбом "FireStorm" тиражом 20 000 экземпляров (форматы CD и Digipack) выйдет на крупном японском лейбле WORLD CHAOS PRODUCTION. Еще до выхода альбом получил высокие оценки мировой метал прессы. В поддержку альбома к осени-зиме 2003-2004 года будет организовано совместное с датчанами ILLNATH (мелодичный блэк) турне по странам Скандинавии, Германии и Голландии.</p>
+<p> Также достигнута договоренность об использовании музыкальных тем с альбома "FireStorm", как части официального саундтрэка канадского мистического action фильма "Грешники и Святые" ("Sinners and Saints" / © 2003 RoboMonkey Productions), который выйдет в прокат осенью 2003 года. <BR> Более подробная информация на официальном <A HREF="http://www.tvangeste.com">сайте </A>группы.</p>
+
+Автор: Dimas
+
+### 27.08.2003 news Новый альбом Tvangeste выходит в день знаний!
+
+<p><IMG SRC="/images/news_rus/2003.08/4751.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left">Мировая премьера новейшего альбома калининградского sympho-black-metal коллектива TVANGESTE состоится первого сентября через японский лэйбл World Chaos Production. В записи альбома принимали участие Baltic Symphonic Orchestra и барабанщик C.Mielko (DOMINIUM). В ближайшие несколько недель альбом будет доступен в России через MUSICA Production.</p>
+
+Автор: Vit Belov
+
+### 22.10.2003 news Новости MUSICA PRODUCTION
+
+<P>На наш склад вновь вернулась самая продоваемая позиция этой осени <B>TVANGESTE 'Firestorm'</B> производства японского лэйбла <B>WORLD CHAOS</B>. Великолепные продажи&nbsp;альбома по всему миру не позволяют медлить с его приобритением. Первая партия была распродана всего за несколько дней. С вечера 23.10.2003 <B>'Firestorm'</B> появится на точке <B>B2-100</B> в <B>ТВЦ "Рубин"</B> в&nbsp;Москве.&nbsp;Но чтобы гарантировано приобрести этот диск, заказывайте его в нашем магазине по адресу <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A>&nbsp;Количество, опять, строго ограничено.</P>
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 22.01.2004 articles Огненный Балтийский шторм
+
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Быть или не быть?</I></SPAN></P>
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Такой вопрос не стоит!</I></SPAN></P>
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; БЫТЬ! Но быть кем?</I></SPAN></P>
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Безвольной овцой, что ведут на убой</I></SPAN></P>
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Иль гордым Волком, Чье сердце наполнено свободой?</I></SPAN></P>
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Что в глазах твоих, Человек?</I></SPAN></P>
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Страх или Злость?</I></SPAN></P>
+<P align="right"><SPAN style="COLOR: #ffffff"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Люби и уважай друзей</I></SPAN></P>
+<P align="right"><SPAN style="BACKGROUND: none transparent scroll repeat 0% 0%"><I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; И пусть подохнут все враги твои!</I></SPAN></P>
+<P align="right"><SPAN style="BACKGROUND: none transparent scroll repeat 0% 0%"><I></I></SPAN>&nbsp;</P>
+
+<P><B><SPAN style="COLOR: #ffffff">1.&nbsp;Познакомьте немного читателей со своей группой&nbsp;</SPAN></B></P>
+<P><SPAN style="COLOR: black"><SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff">Tvangeste</SPAN><SPAN style="COLOR: #ffffff"> как группа отмечает свое рождение в 1997 году. Именно в это время после долгих поисков наконец собирается первоначальный полный состав. Практически этим составом в 1999 году было записано первое демо “</SPAN><SPAN style="COLOR: #ffffff">Damnation </SPAN><SPAN style="COLOR: #ffffff">of </SPAN><SPAN style="COLOR: #ffffff">Regiomontum</SPAN><SPAN style="COLOR: #ffffff">”, которое уже в 2000 году приносит группе контракт </SPAN><SPAN style="COLOR: #ffffff">c</SPAN><SPAN style="COLOR: #ffffff"> Норвежским лейблом </SPAN><SPAN style="COLOR: #ffffff">VALGALDER </SPAN><SPAN style="COLOR: #ffffff">RECORDS</SPAN><SPAN style="COLOR: #ffffff">. Несмотря на довольно посредственное качество (альбом был записан в рекордно короткие сроки за неприлично маленькую сумму на неподготовленной для записи </SPAN><SPAN style="COLOR: #ffffff">metal</SPAN><SPAN style="COLOR: #ffffff"> команд студии), именно благодаря “</SPAN><SPAN style="COLOR: #ffffff">Damnation </SPAN><SPAN style="COLOR: #ffffff">of </SPAN><SPAN style="COLOR: #ffffff">Regiomontum</SPAN><SPAN style="COLOR: #ffffff">” </SPAN><SPAN style="COLOR: #ffffff">Tvangeste</SPAN><SPAN style="COLOR: #ffffff"> получает довольно широкую известность в мире мирового металла. Собрав довольно обширный урожай позитивной критики мировой масс меди, этот альбом позволил группе начать работу над вторым альбомом, призванным закрепить завоеванные позиции. Для записи альбома “</SPAN><SPAN style="COLOR: #ffffff">FireStorm</SPAN><SPAN style="COLOR: #ffffff">” были привлечены музыканты Балтийского Симфонического Оркестра, Прусского Камерного Хора. В записи альбома принимал участие барабанщик-виртуоз </SPAN><SPAN style="COLOR: #ffffff">Cezar </SPAN><SPAN style="COLOR: #ffffff">Mielko</SPAN><SPAN style="COLOR: #ffffff"> из польской группы </SPAN><SPAN style="COLOR: #ffffff">DOMINIUM</SPAN><SPAN style="COLOR: #ffffff">. Запись материала проходила на двух студиях: <SPAN style="COLOR: #ffffff"><SPAN style="COLOR: black"><SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff">в Польше на </SPAN><SPAN style="COLOR: #ffffff">SELANI </SPAN><SPAN style="COLOR: #ffffff">STUDIO</SPAN><SPAN style="COLOR: #ffffff">, известной своими работами с </SPAN><SPAN style="COLOR: #ffffff">Behemo</SPAN></SPAN></SPAN><SPAN style="COLOR: #ffffff">th</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">Vader</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">Lux </SPAN><SPAN style="COLOR: #ffffff">Occulta</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">Christ </SPAN><SPAN style="COLOR: #ffffff">Agony</SPAN><SPAN style="COLOR: #ffffff">, и Калининградской </SPAN><SPAN style="COLOR: #ffffff">TV</SPAN><SPAN style="COLOR: #ffffff">4 </SPAN><SPAN style="COLOR: #ffffff">studios</SPAN></SPAN></SPAN></SPAN></SPAN><SPAN style="COLOR: #ffffff">. Работа над альбомом была завершена в Феврале 2002 года.</SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><IMG height=201 alt="" hspace=10 src="/images/articles_rus/2004.01/5896.gif" width=400 align="left" border=0>В 2003 году группа подписывает контракт с крупной звукозаписывающей фирмой из Японии </SPAN><SPAN style="COLOR: #ffffff">WORLD</SPAN><SPAN style="COLOR: #ffffff">CHAOS</SPAN><SPAN style="COLOR: #ffffff">. В сентябре этого же года <SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff">альбом наконец увидел свет! </SPAN></P>
+<P><SPAN style="COLOR: #ffffff">В октябре крупнейшая звукозаписывающая компания <SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff">Польши </SPAN><SPAN style="COLOR: #ffffff">METAL</SPAN><SPAN style="COLOR: #ffffff">MIND</SPAN><SPAN style="COLOR: #ffffff"> выкупает эксклюзивные права на выпуск “</SPAN><SPAN style="COLOR: #ffffff">Firestorm</SPAN><SPAN style="COLOR: #ffffff">” на территории Польши. В это же время крупный Российский лейбл </SPAN><SPAN style="COLOR: #ffffff">CD-</SPAN><SPAN style="COLOR: #ffffff">Maximum</SPAN><SPAN style="COLOR: #ffffff"> подписывает контракт о выпуске “</SPAN><SPAN style="COLOR: #ffffff">FireStorm</SPAN><SPAN style="COLOR: #ffffff">” на территории стран СНГ и Балтии. Ведутся переговоры о лицензионном соглашении с рядом издающих компаний Южной и Северной </SPAN></SPAN></SPAN><SPAN style="COLOR: #ffffff">Америки.</SPAN></P>
+<P>Достигнуто соглашение на использование музыкальных тем с альбома в качестве официального саундтрека к канадскому мистическому фильму "Sinners and Saints" («Грешники и Святые»). Релиз фильма на DVD запланирован на Март 2004 года.</P>
+<P>Возможно, в ближайшее время Tvangeste запишет эксклюзивный саундтрэк к компьютерной игре для американских разработчиков. Ведутся переговоры…</P>
+<P><B><SPAN style="COLOR: #ffffff">2. Что означает название TVANGESTE?</SPAN></B></P>
+<P><SPAN style="COLOR: #ffffff">Давно это было…XII век… Христиане начали своё нашествие на Прусскую Землю. Да, это был очередной крестовый поход, окрашенный кровью, принёсший "истинную любовь, истинного Бога" варварам.</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Tvangeste было маленьким прусским городищем, разрушенным рыцарями Тевтонского ордена 1 сентября 1255 года. Позже на этом месте появился рыцарский замок Кёнигсберг. Город, в котором мы живём, город, который мы любим, земля, которую мы уважаем...</SPAN><SPAN style="COLOR: #ffffff"><BR><B>3.&nbsp;Несколько слов относительно духовной концепции и мировоззрения участников коллектива.</B></SPAN><SPAN style="COLOR: #ffffff"><BR>В основу идеологии сегодняшнего Tvangestе положен синтез двух основных течений, наиболее близких всем членам группы. Это бесспорно антирелигиозность как основа философии группы, основа моральных и духовных устремлений всех нас. Что же следует понимать под антирелигиозностью с позиции Tvangeste? Коротко это можно вывести в девиз, который гласит: </SPAN><SPAN style="COLOR: #ffffff"><B>"Твой Бог В Твоей Голове", </B></SPAN><SPAN style="COLOR: #ffffff">то есть человек при своем рождении является полноценной личностью, с чистым умом и сердцем. Однако с его развитием происходит ряд трансформаций, связанных прежде всего со стремлением общества подавить в нем центры самоуважения и самовыражения. Иными словами, общество есть стадо, и оно не терпит никаких отличий от себя и себе подобных… Вернее, не терпят этого те, кто находится над этим стадом безвольных, бездушных, тупоголовых овец, одержимых комплексом социальной обусловленности… Это мудрые люди, имеющие власть над душами миллионов, иначе все это можно рассматривать как схему мировоззрения "волки-овцы"… Эта модель наиболее близка нам.</SPAN><SPAN style="COLOR: #ffffff"><BR><IMG height=213 alt="" hspace=10 src="/images/articles_rus/2004.01/5897.jpg" width=300 align="right" border=0>Что есть религия? Будь то христианство, буддизм, или что-либо еще… Религия - это идеально спланированный комплекс тонких психологических воздействий, направленный на подавление собственного "Я" в угоду чужого, часто маскируемого под обличие Бога. Человеческая сущность слаба и ничтожна… Есть множество способов и различных психологических ухищрений, нацеленных на то, чтобы направить человека в то, или иное русло, в зависимости от того, кому это нужно и зачем… </SPAN></P>
+<P></SPAN></SPAN><SPAN style="COLOR: #ffffff">Общество – что это? Сила и мощь или презренное стадо? Мощь его заключается в числе и отсутствии собственного "Я" как гордого и независимого человеческого начала. Бесчисленной массой они способны буквально растоптать росток осознания себя не частью стада, а отдельной, полноценной личностью со своими взглядами на мир… Обратившись к господу (какой бы он ни был) человек тем самым капитулирует, сгибается перед постигшими его неудачами и потерями… И тут же теряет себя, свой разум, свое "Я". Сохранить себя как чистого от чужих навязанных мыслей, взглядов и ценностей человека чрезвычайно сложно, стоит задуматься над этим. Стоит задуматься над тем, нужно ли допускать в свое сознание чужие мысли, которые могут роковым образом повлиять на течение собственной жизни, не только вашей, но и последующих поколений. Вторым же течением, не менее значимым для нас, является история нашей родной земли. </SPAN><SPAN style="COLOR: #ffffff"><BR>Культуры Пруссии и Руси во многом пересекались, взаимодополнялись и взаимообогащались. Обидно, что за основу "Великой русской культуры" берется навязанный христианством еврейский жизненный уклад. Шедевры русского зодчества, живописи - сплошные кресты, архангелы и боги с чужеземными именами… Даже Иван, кто уж точно должен быть русским - еврей!!! Истинная культура Великой Роси как-то забылась, стерлась, канула в лету, не выдержав еврейской экспансии. Великий народ, который не смогли победить ни монголо-татары, ни немцы, никакие другие враги, сдался без боя, даже не поняв, что решающая битва уже проиграна… Все это постигло и Пруссию, у которой с Русью даже боги были сходны: "Перун"-"Перкуно"… Только в отличии от Руси, что ассимилировалась с пришлой культурой, Пруссия умерла… <BR>Убиенной истории двух великих земель мы посвящаем свое творчество, надеясь, что, может быть, хоть кто-то задумается над тем, кто он, где его корни, и что происходит вокруг…</SPAN></P>
+<P><B><SPAN style="COLOR: #ffffff">4.&nbsp;Что вдохновляет вас на написание такого вида музыки? </SPAN></B></P><SPAN style="COLOR: black"><SPAN style="COLOR: #ffffff"><SPAN style="COLOR: black"><SPAN style="COLOR: #ffffff">
+<P>Мои собственные переживания. Мои мысли… я не могу «просто писать музыку»…вернее я могу делать это, но такой подход неприемлем для меня, ибо я стараюсь быть честным с нашими фэнами. Я не могу халтурить… это прежде всего важно для меня самого - каждая песня должна идти из души… должна быть рождена не в бессильных «потугах» выдать «что-то этакое!», а в момент озарения… когда попросту прет… вот именно такие темы впоследствии становятся хитами.</P>
+<P></SPAN></SPAN></SPAN></SPAN><B><SPAN style="COLOR: #ffffff">5. Что на ваш взгляд главное в музыке: технические вещи или атмосфера? </SPAN></B></P>
+<P><SPAN style="COLOR: #ffffff"><IMG height=196 alt="" hspace=10 src="/images/articles_rus/2004.01/5898.jpg" width=300 align="left" border=0>Я думаю, что в музыке главное душа. Без души, без переживаний, без эмоций, вложенных в создание музыки, невозможно получить достойный результат! Без всяческих сомнений техника важна… и на профессиональном уровне… но голая техника без души – просто набор гамм и арпеджио, гоняемых без толку… «о, да… клева… быстро»… и все… для меня музыка - это нечто большее. Я стараюсь внести в музыку свои эмоции. Я стараюсь сделать свои произведения разнообразными. Хороший ассоциативный пример – лесная тропа. Моя цель - создание разнообразной музыки с неожиданными поворотами, сменами темпа, ритма, настроения. Идя по извилистой тропе в чаще леса, никогда не знаешь, что ждет тебя за очередным поворотом. Поэтому написание музыки для меня - это комплексный подход, имеющий огромное количество составляющих, и я не могу выделить что-то.</SPAN></P>
+<P><B>6. Во всех рецензиях, да и издающий лэйбл представляет музыку TVANGESTE&nbsp;как black metal. Согласны вы с этим определением?</B></P>
+<P>Я вообще против присвоения музыке ярлыков. Предпочитаю рассматривать нашу музыку как «просто музыку», не вдаваясь в подробности и тонкости стиля… тем более, что это довольно сложно - определить стиль группы, ибо, как правило, чистое направления в современной музыке редко встретишь. Все за последнее время мною слышанное являет собой смесь нескольких стилей… Наша музыка содержит слишком много компонентов, чтобы быть лишь «black metal»… послушав наши музыкальные темы, вы можете найти что-то от дума, деса, блэка, классической музыки… даже от heavy metal!… конечно же я не согласен с таким упрощенным определением (особенно когда к этому еще добавляют уже набившее оскомину «блэк в стиле Cradle of Filth»)…</P>
+<P>Однако таково устройство человеческого сознания… многим нужно загнать все в рамки, классифицировать, повесить ярлык и - в стойло… почему нельзя просто слушать музыку? Она может нравиться, может не нравиться… это факт. Но подумайте: все мы разные… все мы имеем разное восприятие действительности. Поэтому кто-то скажет, что Tvangeste - это Therion… кто-то скажет, что мы чуть ли не клоны Крэдлов… кто то найдет нашу музыку самобытной и оригинальной… все мнения верны… но верны для каждого в отдельности. Вот почему я предпочитаю не вешать ярлыки на группу. Единственное нормальное объяснение этому – помочь человеку найти нужную ему музыку среди миллионов музыкальных произведений… если человек любит Anathema, он естественно ищет аналогичные проекты… вот только в этом плане можно допустить какую то классификацию… но, повторюсь, она все равно будет условной… </P>
+<P><B><SPAN style="COLOR: #ffffff">7.&nbsp;Кто из участников&nbsp;TVANGESTE&nbsp;играет в других проектах?</SPAN></B></P>
+<P><B></B></P>
+<P><SPAN style="COLOR: #ffffff"><IMG height=197 alt="" hspace=10 src="/images/articles_rus/2004.01/5899.jpg" width=300 align="right" border=0>Victoria</SPAN><SPAN style="COLOR: #ffffff"> (клавиши, флейта) - самая «занятая» в группе. Она принимает участие в жизни огромного числа групп… наиболее известные из них </SPAN><SPAN style="COLOR: black"><SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff">DIS </SPAN><SPAN style="COLOR: #ffffff">PATER</SPAN><SPAN style="COLOR: #ffffff"> (</SPAN><SPAN style="COLOR: #ffffff">gothic </SPAN><SPAN style="COLOR: #ffffff">doom </SPAN><SPAN style="COLOR: #ffffff">metal</SPAN><SPAN style="COLOR: #ffffff">) и </SPAN><SPAN style="COLOR: #ffffff">ROMOWE </SPAN><SPAN style="COLOR: #ffffff">RIKOITO</SPAN><SPAN style="COLOR: #ffffff"> (</SPAN><SPAN style="COLOR: #ffffff">dark</SPAN><SPAN style="COLOR: #ffffff">folk</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">gothic</SPAN><SPAN style="COLOR: #ffffff">). </SPAN><SPAN style="COLOR: #ffffff">Vanoe</SPAN><SPAN style="COLOR: #ffffff"> (гитара) также совмещает свою работу в </SPAN><SPAN style="COLOR: #ffffff">Tvangeste </SPAN><SPAN style="COLOR: #ffffff">c</SPAN><SPAN style="COLOR: #ffffff"> ролью гитариста в </SPAN><SPAN style="COLOR: #ffffff">DIS </SPAN><SPAN style="COLOR: #ffffff">PATER</SPAN><SPAN style="COLOR: #ffffff">. </SPAN><SPAN style="COLOR: #ffffff">MaxN</SPAN><SPAN style="COLOR: #ffffff">aumoff</SPAN><SPAN style="COLOR: #ffffff"> (бас) – совсем недавно пришел в команду. Его собственный проект – </SPAN><SPAN style="COLOR: #ffffff">EQUINOX</SPAN><SPAN style="COLOR: #ffffff"> (</SPAN><SPAN style="COLOR: #ffffff">alternative</SPAN><SPAN style="COLOR: #ffffff">). </SPAN><SPAN style="COLOR: #ffffff">Cezar </SPAN><SPAN style="COLOR: #ffffff">Mielko</SPAN><SPAN style="COLOR: #ffffff"> (ударные) – наш </SPAN></SPAN></SPAN><SPAN style="COLOR: #ffffff">польский драммер. Играет в группах </SPAN><SPAN style="COLOR: #ffffff">DOMINIUM</SPAN><SPAN style="COLOR: #ffffff"> и </SPAN><SPAN style="COLOR: #ffffff">BRIGHT </SPAN><SPAN style="COLOR: #ffffff">OPHIDIA. </SPAN><SPAN style="COLOR: #ffffff">Что же до меня и </SPAN><SPAN style="COLOR: #ffffff">Naturelle</SPAN><SPAN style="COLOR: #ffffff"> – до недавнего времени мы полностью отдавали все свои силы </SPAN><SPAN style="COLOR: #ffffff">Tvangeste</SPAN><SPAN style="COLOR: #ffffff">. Сейчас мы начинаем подготовку к созданию своего собственного побочного проекта. Что это будет? Пока секрет… также мы начали дистанционную работу с клавишником финской группы </SPAN><SPAN style="COLOR: #ffffff">Born </SPAN><SPAN style="COLOR: #ffffff">of </SPAN><SPAN style="COLOR: #ffffff">Thorns</SPAN><SPAN style="COLOR: #ffffff"> (они засветились на компиляции </SPAN><SPAN style="COLOR: #ffffff">Covered </SPAN><SPAN style="COLOR: #ffffff">with </SPAN><SPAN style="COLOR: #ffffff">Filth</SPAN><SPAN style="COLOR: #ffffff"> – </SPAN><SPAN style="COLOR: #ffffff">tribute </SPAN><SPAN style="COLOR: #ffffff">to </SPAN><SPAN style="COLOR: #ffffff">Cradle </SPAN><SPAN style="COLOR: #ffffff">of </SPAN><SPAN style="COLOR: #ffffff">Filth</SPAN><SPAN style="COLOR: #ffffff">) и вокалистом из Норвегии. Материал будет являть собой смесь современных течений в мире блэка, дума и деса.</SPAN></P>
+<P><B><SPAN style="COLOR: #ffffff">8. Что для вас важнее: концертная деятельность или работа в студии?</SPAN></B></P>
+<P><SPAN style="COLOR: #ffffff">Хм… тут мнения разделяются, и довольно серьезно. Например, я и </SPAN><SPAN style="COLOR: #ffffff">Naturelle</SPAN><SPAN style="COLOR: #ffffff"> предпочитаем работу в студии, в то время как </SPAN><SPAN style="COLOR: #ffffff">Vanoe</SPAN><SPAN style="COLOR: #ffffff"> и </SPAN><SPAN style="COLOR: #ffffff">Nikolay</SPAN><SPAN style="COLOR: #ffffff"> не мыслят свое существование без живых выступлений…. Говоря же за себя, скажу, что для меня главное - созидание музыки… я не очень люблю живые выступления и воспринимаю их скорее как необходимость, наиболее логичный и действенный путь раскрутки команды.</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Работа в студии бесспорно более интересна для меня, ибо это, повторюсь, процесс СОЗИДАНИЯ… а концерт - это процесс показа готового материала и пожирание мега доз энергии от зала.</SPAN></P>
+<P><B><SPAN style="COLOR: #ffffff">9. Играли ли вы когда-либо за пределами России и с кем?</SPAN></B></P>
+<P><SPAN style="COLOR: #ffffff">Мы постоянно получаем приглашения принять участие в различных металл фестивалях, бесконечных концертах и турах по Европе, Америкам, Азии …. Я даже не буду перечислять все приглашения и предложения, полученные и отказанные группой за последний год – меня просто не поймут, либо сочтут нечестным человеком. Однако по ряду серьезнейших причин </SPAN><SPAN style="COLOR: #ffffff">Tvangeste</SPAN><SPAN style="COLOR: #ffffff"> - концертно-неактивная группа с 2001 года. Я искренне надеюсь на скорейшее разрешение всех напастей. Очень хочется доехать до Москвы и Питера!</SPAN></P>
+<P><B><SPAN style="COLOR: #ffffff">10. Что скажете о современной российской сцене? Какие группы выделите?</SPAN></B></P>
+<P><SPAN style="COLOR: #ffffff"><IMG height=426 alt="" hspace=10 src="/images/articles_rus/2004.01/5900.jpg" width=300 align="left" border=0>Общаясь с большим количеством групп со всех уголков бывшего СССР, я могу сказать лишь одно – талантливых музыкантов у нас много. Другое дело, что в наши дни одного таланта явно недостаточно, и я даже не уверен, что Паганини удалось бы пробиться на вершину музыкального Олимпа, имея лишь свою экстраординарную технику! Музыка - это бизнес, и без инвестиций бизнес невозможен… как следствие - многие наши музыканты, хоть и имеют огромный опыт и композиторский талант, но им недостает средств на покупку качественных инструментов, запись на профессиональных студиях и т.д… просто подумайте – кто смог пробиться на Запад и почему? </SPAN><SPAN style="COLOR: #ffffff">Rossomahaar</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">Rakoth</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">Forest </SPAN><SPAN style="COLOR: #ffffff">Stream</SPAN><SPAN style="COLOR: #ffffff">... все эти имена хорошо знакомы западным любителям тяжелой музыки благодаря тому, что все они получили поддержку западных лейблов. На сегодняшний день российские лейблы не могут предоставить такой же качественный подход к раскрутке групп по миру, ограничиваясь лишь локальной поддержкой на уровне организации 1-2 концертов в полугодие и пары-тройки интервью в журналах.Итог: сцена металевая у нас есть, потенциал огромен, но… подождем лучших времен и более благоприятной экономической обстановки.</SPAN></P>
+<P><B><SPAN style="COLOR: #ffffff">11. Ваши планы на будущее?</SPAN></B></P>
+<P><SPAN style="COLOR: #ffffff">Сейчас мы готовим новый материал. Нашей целью является сделать альбом, по всем параметрам превосходящий “</SPAN><SPAN style="COLOR: #ffffff">Firestorm</SPAN><SPAN style="COLOR: #ffffff">” … в новом материале будет задействовано большое количество сессионных музыкантов. Новый материал будет довольно сильно отличаться от обоих наших альбомов, однако мы постараемся сохранить «лицо» группы, ибо я уверен, что нам удалось создать некую оригинальность в саунде и общей структуре произведений. Новый альбом будет более мощный, жесткий. Мы учтем все просчеты, которые имели место быть на записи оркестра и хоров для “</SPAN><SPAN style="COLOR: #ffffff">Firestorm</SPAN><SPAN style="COLOR: #ffffff">”. Оркестровые и вокальные партии будут более тщательно продуманы и более качественно прописаны. Наша цель – приблизиться к совершенству звука и музыкальных мыслей.</SPAN></P>
+<P><B><SPAN style="COLOR: #ffffff">12. Довольны ли вы своим лэйблом?</SPAN></B></P>
+<P><SPAN style="COLOR: #ffffff"><IMG height=375 alt="" hspace=10 src="/images/articles_rus/2004.01/5901.jpg" width=300 align="right" border=0>Несомненно, </SPAN><SPAN style="COLOR: #ffffff">World</SPAN><SPAN style="COLOR: #ffffff">Chaos</SPAN><SPAN style="COLOR: #ffffff"> это серьезный шаг наверх для группы. После выхода нашего первого альбома на Норвежском лейбле </SPAN><SPAN style="COLOR: #ffffff">Valgalder</SPAN><SPAN style="COLOR: #ffffff">records</SPAN><SPAN style="COLOR: #ffffff"> мы впервые получили возможность представить нашу музыку на суд мирового металл сообщества. Альбом “</SPAN><SPAN style="COLOR: #ffffff">Damnation </SPAN><SPAN style="COLOR: #ffffff">of </SPAN><SPAN style="COLOR: #ffffff">Regiomontum</SPAN><SPAN style="COLOR: #ffffff">” получил неплохую промоцию и принес первую известность группе на всех континентах. Конечно же, мы были довольны такому продвижению, но, подписав контракт с более крупной звукозаписывающей компанией из Японии </SPAN><SPAN style="COLOR: #ffffff">WORLD</SPAN><SPAN style="COLOR: #ffffff">CHAOS </SPAN><SPAN style="COLOR: #ffffff">PRODUCTION</SPAN><SPAN style="COLOR: #ffffff"> на выпуск второго альбома “</SPAN><SPAN style="COLOR: #ffffff">FireStorm</SPAN><SPAN style="COLOR: #ffffff">”, мы по-настоящему осознали, что такое настоящая промо кампания! Альбом вышел в сентябре 2003 года и уже успел собрать огромное количество восторженных рецензий крупнейших металл журналов мира, наши песни занимают верхние строчки чартов на различных радиостанциях во многих странах мира, альбом был лицензирован несколькими крупными звукозаписывающими компаниями. Промоцией </SPAN><SPAN style="COLOR: #ffffff">Tvangeste </SPAN><SPAN style="COLOR: #ffffff">на данный момент занимается профессиональное промоутерское агентство из Германии, работающее с </SPAN><SPAN style="COLOR: #ffffff">Pain</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">Emperor</SPAN><SPAN style="COLOR: #ffffff">, </SPAN><SPAN style="COLOR: #ffffff">Tristania</SPAN><SPAN style="COLOR: #ffffff"> и т.д… </SPAN></P>
+<P><SPAN style="COLOR: #ffffff">В целом я доволен промо активностью нашего лейбла. Немаловажно и то, что японцы уже предложили нам контракт на новый альбом, согласившись с ценой, запрошенной нами на запись альбома. </SPAN><SPAN style="COLOR: #ffffff">Tvangeste</SPAN><SPAN style="COLOR: #ffffff"> планирует засесть в студию не раньше осени 2004 года. Пока не решено, где будет проходить запись. Планируем записать новый материал в Швеции, Голландии (</SPAN><SPAN style="COLOR: #ffffff">Guido</SPAN><SPAN style="COLOR: #ffffff"> из </SPAN><SPAN style="COLOR: #ffffff">Hammer</SPAN><SPAN style="COLOR: #ffffff">Heart </SPAN><SPAN style="COLOR: #ffffff">Records</SPAN><SPAN style="COLOR: #ffffff"> предлагал воспользоваться услугами студии RS29) или Дании (ребята из </SPAN><SPAN style="COLOR: #ffffff">ILLNATH</SPAN><SPAN style="COLOR: #ffffff"> рекомендовали студию Jacob Hansen'а)</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Конечно же, мы довольны работой лейбла и промо агентства - без вариантов... однако сейчас мы получили ряд довольно интересных предложений. Возможно, новый материал выйдет и не в Японии и получит куда большую поддержку и раскрутку… поживем – увидим!</SPAN></P>
+Автор: Dimas
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 15.06.2004 news FESTERGUTS и TVANGESTE - музыка для фильма ужасов
+
+<P>Музыка российских групп FESTERGUTS и TVANGESTE звучит в канадском мистическом триллере Sinners And Saints (Святые и Грешники)! Уже начат показ этой картины на различных кинофестивалях. Адская смесь horror тематики с боевыми искусствами, фантастикой&nbsp;и налетом эротизма. Динамизм картины, равно как и общая концепция позволяет делать самые смелые прогнозы относительно приема фильма зрителями всего мира! Официальная дата релиза DVD определена концом лета. Фильм будет доступен на всех континентах через ряд крупных дистрибьюторских сетей, специализирующихся на подобных фильмах. Сам факт участия в работе над саундтрэком западного фильма российских музыкантов уже можно считать эпохальным!</P>
+<P>Официальный сайт фильма: <BR><A href="http://www.robomonkey.net/sinnersandsaints/intro.htm">http://www.robomonkey.net/sinnersandsaints/intro.htm</A></P>
+Автор: Morsus
+
+### 09.01.2005 articles TVANGESTE: &quot;Распущен весь российский состав&quot;.
+
+<P><IMG height=266 alt="" hspace=0 src="/images/articles_rus/2005.01/7632.jpg" width=400 align=left border=5>В начале года поползли слухе о фактическом распаде TVANGESTE, победителя опроса на нашем сайте за 2003 год. Чтобы избежать кривотолков, мы связались с Мироном.</P>
+<P>Вопрос: Проясни слухи, по поводу распада TVANGESTE</P>
+<P>Ответ: Сразу же хочу внести ясность - о распаде речи не идет. Просто в жизни группы настали непростые времена. В связи с форс-мажорными обстоятельствами (я и Натюрель уезжаем на ПМЖ в Канаду) распущен весь российский состав Tvangeste. Все музыканты довольно давно были в курсе того, что рано или поздно мы уедем, у каждого есть свой проект, и я искренне надеюсь, что они не разочарованы произошедшим. Музыкальная составляющая группы не пострадает, ибо порядка 90% материала писалась мной и Натюрель. На сегодняшний день мы работаем над созданием нового материала, ведем переговоры с несколькими лейблами относительно контракта, я тесно общаюсь с несколькими продюсерами (Anssi Kippo, Tommy Tagtgren, Mikko Karmila) относительно наиболее выгодных условий записи нашего материала. Скорее всего, на этот раз это будет FINNVOX с американским мастерингом. Но все еще в процессе... По приезду в Канаду мы планируем набрать новый состав. Уже сейчас есть некоторые наметки. После выхода нашего альбома в Канаде на Neoblast Records мы собрали довольно богатый урожай на более чем позитивную критику. Вошли в 20 лучших метал команд 2004 года (там и Scorpions и Rob Zombie в метал записаны). В связи с этим, я думаю, особых проблем с набором нового состава у нас не возникнет. Отъезд намечен на май этого года. Обо всех новостях в жизни группы можно будет узнать из рубрики новостей на нашем официальном сайте <A href="http://www.tvangeste.com/">www.tvangeste.com</A></P>
+<P>Вопрос: Значит, мы больше не увидим TVANGESTE в России? Или правильнее сказать, так и не увидим?</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/articles_rus/2005.01/7633.jpg" width=225 align=right border=5>Ответ: В самом начале 2004 года мы вместе с Сонмом из FOREST STREAM и Саней из HATECRAFT решили устроить этакий мега СНГ тур. Планировалось посещение основных городов России, Украины, Беларуси + Литва и Эстония. 90% приглашений уже было согласовано, когда мы получили уведомление из Канадского Посольства. В результате тур пришлось отменить. На самом деле это выглядело странно - русская группа ни разу не выступала ни в Питере, ни в Москве... я получал большое количество приглашений принять участие в различных концертах, организовать сольные концерты в разных городах и странах СНГ... и раз за разом что-то мешало... как будто чертова карма какая-то!....я УВЕРЕН, что Tvangeste выступит в России + СНГ... и не раз! Я приложу к этому максимальные усилия...</P>
+<P>Вопрос: В прошлом году TVANGESTE стали победителями опроса на нашем сайте и стали лучшей группой ex-CCCР. Кого ты видишь фаворитами этого года? </P>
+<P>Ответ: Хмм... я дружен с очень многими командами из стран СНГ и, выделив кого-то из их числа, я поступлю некорректно по отношению к остальным. Это своего рода компрометирующий вопрос. Однако чтобы не отвечать на него вот так... с долей "евреистости" я отмечу еще не записанный материал группы HATECRAFT, но пожелаю удачи всем командам!</P>
+Автор: Vit Belov
+
+### 09.01.2005 news TVANGESTE меняют подданство
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>TVANGESTE Мирон</STRONG> решил перебазировать группу в Канаду. Таким образом, музыканты распущены и в коллективе числятся только <STRONG>Мирон</STRONG> и <STRONG>Натюрель</STRONG>. Запись нового альбома начнётся по прибытии в Канаду, где будет набран состав.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подробнее: <A href="/ru/articles/1/53310/">http://musica.mustdie.ru/ru/articles/1/53310/</A></FONT></P>
+Автор: Vit Belov
+
+### 12.12.2007 news Новости от TVANGESTE
+
+<P>Российский коллектив <STRONG>TVANGESTE</STRONG>, ныне базирующийся в Канаде, закончил запись инструментальных партий и вокала для своего третьего альбома. В данный момент идет работа над оркестровками. Партии ударных для альбома записал <STRONG>Alex Pelletier</STRONG> (<STRONG>DESPISED ICON</STRONG>), а партии баса поделили <STRONG>Ebnoren</STRONG> (ex-<STRONG>GOTHERFALL</STRONG>) и <STRONG>Александр Степашкин</STRONG> (<STRONG>HATECRAFT</STRONG>). </P>
+<P>Окончательный и полностью записанный материал пройдет два разных сведения и микширования, в результате чего будет выпущено два альбома. Первый будет из себя представлять всё тот же <STRONG>TVANGESTE</STRONG>, но более экстремальный и симфоничный, с более&nbsp;мощным и низким вокалом. Второй же альбом будет только с чистыми мужскими и женскими вокалами, представляя собой симфонический и эпический progressive metal. Скорее всего,&nbsp;второй альбом выйдет под другим названием коллектива. </P>
+Автор: Dimas
+
+### 13.08.2009 news TVANGESTE попали в игру
+
+<P><IMG height=378 alt="" hspace=0 src="/images/news_rus/2009.08/14805.jpg" width=300 align=right border=5>Одна из крупнейших фирм, работающих в индустрии компьютерных игр <STRONG>ELECTRONIC ARTS</STRONG> (Need for Speed, Medal of Honor, Battlefield, Command & Conquer итд.) официально обнародовала список композиций для саундтрека к своей новой игре <STRONG>BRUTAL LEGEND</STRONG>, ориентированной на любителей тяжелой музыки. Релиз игры: октябрь 2009. <STRONG>TVANGESTE</STRONG> подписали лицензионное соглашение на использование трэка "<STRONG>Birth of the Hero</STRONG>" с альбома "<STRONG>FireStorm</STRONG>".</P>
+<P>официальный сайт игры (ссылка на видео анонс списка команд) :<BR><A href="http://www.brutallegend.com/media/videosoundtrackannouncement081009-20090810093238071">http://www.brutallegend.com/media/videosoundtrackannouncement081009-20090810093238071</A></P>
+<P>описание игры:<BR><A href="http://ru.wikipedia.org/wiki/Brutal_Legend">http://ru.wikipedia.org/wiki/Brutal_Legend</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Tvangeste, или гармония мелодичной агрессии.

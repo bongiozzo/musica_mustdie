@@ -42,6 +42,15 @@ December 2002 (Lost Disciple Records)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.03.2003 news PANDEMIA in South America
+
+<p>Chezh brutal-death-metal band PANDEMIA arrives to South America. Here is tourdates:<br> 03/14 - Rio de Janeiro (RJ), Brazil<BR> 03/15 - Sao Paulo (SP), Brazil<BR> 03/18 - Maringб (PR), Brazil<BR> 03/20 - Curitiba (PR), Brazil<BR> 03/21 - Florianopolis (SC), Brazil<BR> 03/22 - Caxias do Sul (RS), Brazil<BR> 03/23 - Criciъma (SC), Brazil<BR> 03/25 - Porto Alegre (RS), Brazil<BR> 03/27 - Maldonado, Uruguay<BR> 03/28 - Montevideo, Uruguay<BR> 03/29 - Buenos Aires, Argentina<BR> 03/31 - Gral. Roca, Argentina<BR> 04/01 - Bariloche, Argentina<BR> 04/02 - Puerto Montt, Chile<BR> 04/03 - Valdivia, Chile<BR> 04/04 - Temuco, Chile<BR> 04/05 - Santiago, Chile<BR> 04/06 - La Serena, Chile<BR> 04/07 - Antofagasta, Chile<BR> 04/08 - Arica, Chile<BR> 04/10 - Arequipa, Peru<BR> 04/12 - Lima, Peru<BR> 04/13 - Trujillo, Peru<BR> 04/14 - Chiclayo, Peru<BR> 04/15 - Piura, Peru<BR> 04/17 - Cuenca, Ecuador<BR> 04/19 - Quito, Ecuador<BR> 04/20 - Ambato, Ecuador<BR> 04/22 - Pasto, Colombia<BR> 04/24 - Cali, Colombia<BR> 04/25 - Pereira, Colombia<BR> 04/26 - Medellнn, Colombia<BR> 04/27 - Bogotб, Colombia<BR> 05/01 - Managua, Nicaragua<BR> 05/03 - Guatemala, Guatemala<BR> 05/04 - San Salvador, El Salvador<BR> 05/09 - Mйrica (Yucatбn), Mexico<BR> 05/10 - Campeche (Campeche), Mexico<BR> 05/11 - Veracruz (Veracruz), Mexico<BR> 05/16 - Tlaxcala (Tlaxcala), Mexico<BR> 05/17 - Mexico City (D.F.), Mexico<BR> 05/18 - Pachuca (Hidalgo), Mexico</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -287,6 +287,397 @@ Ricardo Confessori - Drums
 * C группой "Matos, Andre" 
 * C группой "Symfonia" 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Талантливый вокалист Andre Matos и его группа ANGRA выпустили новый альбом. Если вы не слышали данного коллектива (вы много потеряли), то я могу подсказать, это очень хорошо исполненный Progressive. В сравнении с предыдущей работой данной группы "Holy Land", новая пластинка получилась более плотной, хотя и очень лирические композиции, свойственные предыдущему релизу, остались. Также следует заметить, что на этом альбоме напрочь отсутствуют народные бразильские навороты, которые присутствовали на "Holy Land", что радует, т.к. последнее время стало очень модным использовать народную музыку в творчестве, что зачастую не оправдывает себя. Ещё одно отличие от предыдущих работ- это отсутствие хитовой заглавной композиции, такой как "Carry On" на "Angels Cry" и "Nothing To Say" на "Holy Land", но силы с заглавной композиции ANGRA "размазала" по всей работе, и альбом стал в целом более насыщенным на хорошие композиции. Здесь есть и хорошие баллады, мощные песни и.т.д. Что можно сказать о исполнении, оно не стало хуже. Matos поёт также чисто и высоко и хорошее исполнение на всех инструментах. Резюмировать всё выше сказанное можно лишь так, это лучший альбом группы на сегодняшний день, и прогресс наметился. Рекомендуется всем фэнам ANGRA, а также любителям данного сорта музыки, хотя и профан в области этого жанра не найдёт ничего угнетающего для себя.</p>
+
+Автор: Dimas
+
+### 12.02.1999 news 
+
+<p>Новый сингл ANGRA "Rainy Nights" выйдет в ближайшем будущем. Он будет содержать три версии одноимённой песни: оригинальную, обработанную и инструментальную.</p>
+
+Автор: Vit Belov
+
+### 23.02.1999 news 
+
+<p>Angra выпустила ещё один сингл в Японии "LIVE ACOUSTIC AT FNAC". На сингл включены акустические версии Angels Cry и Never Understand, а также песня "Chega de Saudade". Ещё одна новость: Century Media объявила о выпуске альбома "Fireworks" в США.</p>
+
+Автор: Vit Belov
+
+### 03.08.2000 news Сенсационные новости из лагеря Angra.
+
+<p>Не бойтесь! Angra не распалась, говорят нам. Но группу покинули басист Луис Мариутти, барабанщик Луис Конфессори и ...Андре Матос. Раффаэль Биттенкурт и Кико Лоурейро пишут новый материал. Также идёт прослушивание новых музыкантов.</p>
+
+Автор: Vit Belov
+
+### 04.08.2000 news ANGRA!!!
+
+<p>Vocalist Andre Matos, bassist Luis Mariutti and drummer Ricardo Confessori have left the band. Guitarists Rafael Bittencourt and Kiko Loureiro are currently in the writing process of the band's forthcoming studio album. In the meantime, auditions are being held so that the new members of the line-up can be chosen.</p>
+
+Автор: Vit Belov
+
+### 19.09.2000 news Новости от бывших музыкантов группы Angra
+
+<p> Бывшие члены группы Angra вокалист Андре Матос, басист Луис Мариутти и драммер Рикардо Конфессори (вместе с гитаристом Хуго, братом Луиса), сейчас вместе работают над одним проектом. Теперь их основная цель - записать диск раньше, чем их бывшие коллеги из Angra.</p>
+
+Автор: Nybras
+
+### 19.09.2000 news The new band of former Angra members
+
+<p> Former Angra members Andre Matos (vocals), Luis Mariutti (bass), and Ricardo Confessori (drums) are now supposedly working together in a new band with Mariutti's guitarist brother Hugo, and their goal is to pound something out before their ex-guitarist mates Rafael Bittencourt and Kiko Loureiro can get something going again with Angra.</p>
+
+Автор: Nybras
+
+### 21.11.2000 news Новый мини-альбом группы Angra
+
+<p> Группа Angra выпустила мини-альбом под названием "Evil Warning". В него вошли только старые песни: 'Evil Warning' (94 ver.), 'Angels Cry' (94 ver.), 'Carry On' (94 ver.) и новая версия песни 'Wuthering Heights'.</p>
+
+Автор: Nybras
+
+### 21.02.2001 news Изменения в составе Angra
+
+<p>Eduardo Falaschi (ex-SYMBOLS) официально утвержден как новый вокалист ANGRA. Так же в команде новый драммер Aquiles Priester (ex-DI'ANNO) и клавишник Fabio Riberiro (ex-Fireworks). Кто будет новым басистом пока неизвестно. По словам гитариста Kiko саунд станет "более тяжелым и менее клавишно-ориентированным".</p>
+
+Автор: Yermola
+
+### 21.02.2001 news ANGRA&#39;s line up
+
+<p>SYMBOLS' Eduardo Falaschi is ANGRA's new singer, and their new drummer is Aquiles Priester, who was featured on DI'ANNO'S Nomad album. Although they have booked some gigs, they have yet to announce who their bass player will be, with guitarist Kiko wanting a "simpler" player. Keyboards will be covered by Fabio Riberiro from the Fireworks tour. The band's new sound is said to be "much heavier and less keyboard oriented".</p>
+
+Автор: Yermola
+
+### 04.04.2001 news Бразильские Шаманы становятся злее (Чем дальше в джунгли!)
+
+<p>В стране Донов Педров и диких обезьян появился еще и Шаман ("SHAMAN") - проект образованный участниками "ANGRA" - вокалистом Andre Matos, Luis Mariutti (басс) и Ricardo Confessori (гитара). Готовится дебютный альбом, уже точно известно, что на него войдут: 01. Time Will Come 02. Here Will Go 03. Be Free 04. Blind Shell.</p>
+
+Автор: Yermola
+
+### 04.04.2001 news Brazil&#39;s SHAMAN...
+
+<p>Brazil’s SHAMAN, the new band of former ANGRA members Andre Matos (vocals), Luis Mariutti (bass) and Ricardo Confessori (guitar), are tentatively due to release their debut album in October through an as-yet-unspecified record label. Tracks set to appear on the CD include: 01. Time Will Come 02. Here Will Go 03. Be Free 04. Blind Shell</p>
+
+Автор: Yermola
+
+### 02.06.2001 news Angra выбрали продюсера для своего нового альбома
+
+<p> Angra выбрали продюсера для своего нового альбома. Им оказался некто Дэннис Уард, известный по работе с группой Pink Cream 69. Выход нового альбома запланирован на октябрь.</p>
+
+Автор: Nybras
+
+### 11.07.2001 news ANGRA сотрудничает с VANDEN PLAS ....
+
+<p>Бразильские пауэрщики "ANGRA" в сотрудничестве с клавишником "VANDEN PLAS" - Gunter Werno в Карлсдорфской студии "Audio Studio" пишут новый альбом. На диск войдут 17 песен среди которых будут каверы известных групп. Это будет первый альбом группы без участия бессменного Андрэ Матос. Дата выхода - 20 Октября.</p>
+
+Автор: Yermola
+
+### 11.07.2001 news ANGRA are collaborating with VANDEN PLAS.....
+
+<p>Brazil’s ANGRA are collaborating with VANDEN PLAS keyboardist Gьnter Werno during the recording of the former band’s as-yet-untitled studio album at House Of Audio Studio in Karlsdorf, Germany. Produced by Dennis Ward, the new album will reportedly contain the bulk of the 17 songs that the band is presently tracking for the effort, a list that includes a couple of as-yet-undisclosed, “surprising” covers. ANGRA’s first CD without longtime frontman and founding member Andre Matos (currently in SHAMAN) is due to receive a worldwide release around October 20th. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.10.2001 news Рождение по второму разу от ANGRA ...
+
+<p>Новый альбом бразильцев "ANGRA" будет называться "Rebirth" и войдут на него следующие вещи: 01. In Excelsis 02. Nova Era 03. Millennium Sun 04. Acid Rain 05. Heroes of Sand 06. Unholy Wars Part I - Imperial Crown Part II - The Forgiven Return 07. Rebirth 08. Judgement Day 09. Running Alone 10. Visions Prelude (Adapted from Chopin, Opus 24 in C minor). Выйдет он 19-го октября через "SPV/Steamhammer Records"...</p>
+
+Автор: Yermola
+
+### 05.10.2001 news ANGRA have unveiled the track listing ...
+
+<p>Brazil’s ANGRA have unveiled the track listing for their upcoming Rebirth CD, which is due to be released through SPV/Steamhammer Records on October 19th. The song titles are as follows: 01. In Excelsis 02. Nova Era 03. Millennium Sun 04. Acid Rain 05. Heroes of Sand 06. Unholy Wars Part I - Imperial Crown Part II - The Forgiven Return 07. Rebirth 08. Judgement Day 09. Running Alone 10. Visions Prelude (Adapted from Chopin, Opus 24 in C minor). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.11.2001 reviews Перерождение произошло
+
+<p>Честно говоря, узнав об уходе Андре Матоса из Angra, я похоронил группу. Ведь раньше для большинства слушателей существовал лишь сладкоголосый Андре, о других музыкантах было мало, что изветно. А тут Кико Лоурейро и Рафаэль Биттенкурт заявляют о своем желании сохранить Angra без Матоса. Можно их поздравить, альбом просто чудесен. Новый вокалист Эду Фалаши всё-таки не дотягивает по сладкоголосости до Матоса, но он совсем не плох, даже хорош. По музыкальному материалу альбом точно лучше предыдущего "Fireworks", где, по моему мнению, было слишком уж много медленных композиций. Здесь же, произошло некоторое возвращение к первым двум альбомам. Первая нео-симфоническая вещь, далее хит-боевик "Nova Era", а уж дальше всё остальное. И медляки, и саги на 7-8 минут с симфоническими инструментами, и бразильские барабаны, и напевы местных негров (а может индейцев). И на закуску переработка опуса Шопена. Альбом способен наделать шороху, что ему и пожелаем. Power-progresive высшей пробы.</p>
+<p>Диск предоставлен департаментом по иностранному репертуару концерна "ГРУППА СОЮЗ"</p>
+
+Автор: Vit Belov
+
+### 02.11.2001 reviews The rebirth has taken place
+
+<p>To tell the truth, having listened about a leaving of Andre Matos from Angra, I have buried group. You see, earlier for the majority of the listeners existed only sweet voice of Andre, other musicians was a little known. But Kiko Loureiro and Rafael Bittencourt declare the desire to keep Angra without Matos. It is possible to congratulate them, the album is simply wonderful. New singer Edu Falaschi does not hold out on sweet voice of Matos, but he is completely not bad, even he is good. On a musical material the album is exact better previous "Fireworks", where, in my opinion, there were too many slow compositions. Here, there was some returning to first two albums. The first neo-symphonic intro, further hit "Nova Era", and further all you need from Angra. Both ballads, and sagas for 7-8 minutes with symphonic instruments, both Brazilian drums, and tunes of local blackmans (may be indians). And on hors d'oevres processing of opus by Chopin. The album is capable to do the rustle, and we shall wish it to it. Power-progresive on Maximum test.</p>
+
+Автор: Vit Belov
+
+### 29.12.2001 reviews Новое рождение ANGRA...
+
+<p>Несмотря на сопение злопыхателей, бразильский "Шаман" так и не смог помешать возрождению ANGRA. И новый вокалист Eduardo Falaschi прекрасно вписался в команду, став, поистине, украшением онной. Прекрасная гитарная работа, на фоне исписавшегося Мальмстина нео-классические соло выглядят особенно свежо и убедительно. <BR><BR> Прекрасный прог-пауэр! Местами звучит похоже на Dream Theater (3-я вещь - Millenium Sun и т.п.), местами на Symphony X, но при этом у группы свое, узнаваемое звучание и отличное продюссирование. Одна из самых сильных вещей на альбоме - потрясающая медленная "VISIONS PRELUDE" - переложение 24-го Опуса Шопена в До-минор. <BR><BR> Этим диском группа ставит себя в элиту мелодичного пауэр-ориентированного прога. БРАВО!</p>
+
+Автор: Yermola
+
+### 27.02.2002 news Фестиваль PROGPOWER USA III ...
+
+<p>Объявлены даты и участники американского фестиваля PROGPOWER USA III. В этом году шоу пройдет с 15 по 16 ноября. Уже подтвердили свое участие BLIND GUARDIAN, ANGRA, GAMMA RAY, THRESHOLD. Для многих европейских участников это будет первым концертом на американской земле. "Мы с огромным энтузиазмом смотрим на то, чтобы впервые сыграть в США..." - сказал вокалист "BLIND GUARDIAN" - Hansi Kursch. “Мы чувствуем большую гордость быть хэдлайнерами на одном из прекраснейших американских фестивалей....". Kai Hansen (GAMMA RAY) добавил: "Мы собираемся показать американским металхэдам кое-что другое из Германии чем шнитцель и кислая капуста...". Двухдневные билеты будут стоить всего по 80 бумажек с портретами мертвых американских президентов...</p>
+
+Автор: Yermola
+
+### 27.02.2002 news BLIND GUARDIAN, GAMMA RAY, ANGRA confirmed For PROGPOWER USA III....
+
+<p>ATLANTA - ProgPower USA III, Atlanta's third annual progressive and power metal festival, has been announced for Friday, November 15 and Saturday, November 16 at Earthlink Live. <BR><BR> Confirmed bands include a number of artists making their first US appearances, including Germany's BLIND GUARDIAN, Brazil's ANGRA, Germany's GAMMA RAY, and the UK's THRESHOLD. <BR><BR> “With great enthusiasm we are looking forward to our first US appearance ever,” said BLIND GUARDIAN vocalist Hansi Kursch. “We really feel privileged and greatly honored to headline one of the finest and best US Metal Festivals. This festival will be our first opportunity to present us as one of the most intense and exciting metal bands around in these days.”<BR><BR> Added GAMMA RAY's Kai Hansen: “We're absolutely looking forward to playing the US for the first time and bringing the American metalheads something different from Germany other than Schnitzel and Sauerkraut. We're expecting to have a ball with a lot of people that are ready to rock and have a good time singing, screaming, raising hands and shirts (girls only) and banging brains out.”<BR><BR> Sweden's PAIN OF SALVATION, fresh off of an opening spot on the DREAM THEATER European tour, will be making their third trip to the States. Germany's EDGUY will also be returning to the U.S. for the second time. America's own READING ZERO, the only independent band on the roster, has secured one of the opening slots. Three roster spots are still to be confirmed over the coming weeks.<BR><BR> “I'm thrilled with this year's lineup, as I truly believe it is the best roster for progressive and power metal ever assembled in the U.S.,” said the event's organizer, Glenn Harveston.<BR><BR> Tickets will go on sale July 1 via all TicketMaster outlets. Only 850 two-day passes will be available to the public at a cost of $80 each. <BR><BR> ProgPower USA, an international affiliate of ProgPower Europe located in the Netherlands, was created to attract the top names in both the progressive and power metal genres. The first event was held at a small bar in Lansing, Ill., in February 2001 and featured the first U.S. appearance of PAIN OF SALVATION. The 350-capacity show sold out three months in advance. Due to popular demand, a second event was held in November 2001 and featured the most unique progressive and power metal roster in the States to date (SYMPHONY X, KAMELOT, ARK, EVERGREY, ANGEL DUST, SPIRAL ARCHITECT, plus others). The attendance increased in size to 750 with a crowd coming from 38 states and 15 countries.<BR><BR> ProgPower USA has various promotional opportunities for vendors, labels, and bands in the metal market. For more information and full details visit www.progpower.com.<BR><BR> ProgPower USA III is sponsored by Guitar Center in Marietta, Ga.</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Охотники и Игра...
+
+<p>"ANGRA" в преддверии японского тура с "SINERGY" выпускают специальный диск "Hunters And Play" (только для Японии). Выйдет он 24-го апреля и будет содержать следующие вещи: <BR><BR> 01. Live And Learn<BR> 02. Bleeding Heart<BR> 03. Hunters And Play<BR> 04. Eyes Of Christ<BR> 05. Reverse (акустическая версия)<BR> 06. Heroes Of Sand (акустическая версия)<BR> 07. Momma (GENESIS кавер)<BR> 08. Hunters And Play (Португальская версия)<BR></p>
+
+Автор: Yermola
+
+### 04.03.2002 news ANGRA To Issue Special Japan-Only CD In April - Mar. 2
+
+<p>Brazil's ANGRA will issue a special Japanese CD, entitled Hunters And Play, to precede the group's upcoming Japanese tour with SINERGY. Released on April 24th, the CD will include the following cuts: <BR><BR> 01. Live And Learn<BR> 02. Bleeding Heart<BR> 03. Hunters And Play<BR> 04. Eyes Of Christ<BR> 05. Reverse (acoustic version)<BR> 06. Heroes Of Sand (acoustic version)<BR> 07. Momma (GENESIS cover)<BR> 08. Hunters And Play (Portuguese version)<BR></p>
+
+Автор: Yermola
+
+### 29.03.2002 news Новое живое видео ANGRA ...
+
+<p>ANGRA выпускают VHS видео концерта 16-го декабря в Рио Де Жанейро. Названное "Live in Rio de Janeiro 2001" 80-минутное видео включает в себя: <BR><BR> 01. In Excelsis<BR> 02. Nova Era<BR> 03. Acid Rain<BR> 04. Heroes of Sand<BR> 05. Millennium Sun<BR> 06. Drum Solo<BR> 07. Unholy Wars<BR> 08. Rebirth<BR> 09. Running Alone<BR> 10. Heroes of Sand (акустический бонус трек)</p>
+
+Автор: Yermola
+
+### 29.03.2002 news ANGRA To Issue Live Video Of Rio De Janeiro Performance ...
+
+<p>ANGRA will shortly make available via their official web site a live video in VHS format of the group's December 16th performance in Rio de Janeiro, Brazil. <BR><BR> Entitled Live in Rio de Janeiro 2001, the 80-minute video will be sold for $15 dollars to ANGRA Fan Club members and $18 to non-members (including shipping charges).<BR><BR> The full track listing for the video is as follows:<BR><BR> 01. In Excelsis<BR> 02. Nova Era<BR> 03. Acid Rain<BR> 04. Heroes of Sand<BR> 05. Millennium Sun<BR> 06. Drum Solo<BR> 07. Unholy Wars<BR> 08. Rebirth<BR> 09. Running Alone<BR> 10. Heroes of Sand (acoustic/bonus track) <BR><BR> In addition, the video will also contain interviews, backstage images, soundcheck footage and “much more”.</p>
+
+Автор: Yermola
+
+### 15.05.2002 news Бей в бубен, Шаман!
+
+<p>Бразильские Шаманы известные имением в своих рядах бывших участников ANGRA - Andre Matos (вокал), Luis Mariutti (басс) и Ricardo Confessori (гитара), опубликовали трек-лист своего нового альбома Ritual, который выйдет в продажу в июле через Lucretia Records: <BR><BR> 01. Ancient Winds<BR> 02. Here I Am<BR> 03. Distant Thunder<BR> 04. For Tomorrow<BR> 05. Time Will Come<BR> 06. Over Your Head<BR> 07. Fairy Tale<BR> 08. Blind Spell<BR> 09. Ritual<BR> 10. Pride</p>
+
+Автор: Yermola
+
+### 15.05.2002 news SHAMAN Set &quot;Ritual&quot; Track Listing....
+
+<p>Brazil's SHAMAN, featuring former ANGRA members Andre Matos (vocals), Luis Mariutti (bass) and Ricardo Confessori (guitar), have finalized the track listing for their forthcoming debut, entitled Ritual, which is scheduled to be released in early July through Lucretia Records. The songs set to appear on the album are as follows: <BR><BR> 01. Ancient Winds<BR> 02. Here I Am<BR> 03. Distant Thunder<BR> 04. For Tomorrow<BR> 05. Time Will Come<BR> 06. Over Your Head<BR> 07. Fairy Tale<BR> 08. Blind Spell<BR> 09. Ritual<BR> 10. Pride<BR></p>
+
+Автор: Yermola
+
+### 25.05.2002 news Super Project
+
+<p>Ex-HELLOWEEN members Michael Kiske (vocals) and Roland Grapow (guitar), HAMMERFALL bassist Magnus Rosйn, ANGRA guitarist Kiko Loureiro, PRIMAL FEAR/SINNER bassist Mat Sinner, PRIMAL FEAR vocalist Ralf Scheepers, and THOTEN drummer Marco Barzo are among the musicians scheduled to appear on the forthcoming solo project of THOTEN frontman Renato Tribuzy, dubbed EXECUTION. No further details are available at this time</p>
+
+Автор: Dimas
+
+### 25.05.2002 news Новый супер-проект EXECUTION
+
+<p>EXECUTION - новый супер-проект лидера группы THOTEN Renato Tribuzy. В записи приняли участие Michael Kiske (vocals) и Roland Grapow (guitar) (ex-HELLOWEEN), Magnus Rosun (bass) (HAMMERFALL), Kiko Loureiro (guitar) (ANGRA), Mat Sinner (bass) (PRIMAL FEAR/SINNER), Ralf Scheepers (vocal) (PRIMAL FEAR) и другие известные музыканты. В скором времени ждите альбом EXECUTION.</p>
+
+Автор: Dimas
+
+### 03.06.2002 news Angra - новый миниальбом....
+
+<p>Новая работа ANGRA - "Hunters & Prey" выходит 24 июня. Это мини-альбом - 8 вещей, общая продолжительность - примерно 38 минут. 4 новые песни - Live And Learn, Bleading Heart, Hunters & Prey, Eye Of Christ, а также мультимедийная часть - скринсейвер и фотогалерея.</p>
+
+Автор: Yermola
+
+### 04.10.2002 news ANGRA, EDGUY Among Artists Confirmed For Florida&#39;s THE POWER OF METAL 1 Festival ...
+
+<p>ANGRA, EDGUY, SEVEN WITCHES, ROB ROCK and SILENT FORCE have been confirmed to appear at The Power of Metal 1 festival, scheduled to take place on November 18th at Tabu Nightclub in Orlando, Florida. <BR><BR> The Power of Metal 1 festival marks the second U.S. appearance of ANGRA and EDGUY, following their U.S. debut at the ProgPower III festival at Earthlink Live in Atlanta, Georgia on November 15-16.<BR><BR> Due to the overwhelming demand at ProgPower III in Atlanta, Georgia and the fact that so many people couldn't get tickets, The Power of Metal 1 festival promoters felt that they needed to give metal fans a second opportunity. They also felt the need to bring their love for this type of music to the fans that support and love it too. They chose to hold this festival the same week as ProgPower III exactly for that reason — so that all metal music lovers out there could take advantage of the rare chance to see some of these bands play in the U.S. twice within the same week. <BR><BR> Susan Elder, The Power of Metal 1 festival promoter stated: "We hope that the fans of these METAL GODS that couldn't make it to ProgPower III in Atlanta, Georgia, will get a chance to come to The Power of Metal 1 festival in Orlando, Florida and have a blast!!!"<BR><BR> The Power of Metal 1 festival is being sponsored by Mars Music Center in Orlando. Florida.</p>
+
+Автор: Yermola
+
+### 16.10.2002 reviews Проблемы с оригинальностью
+
+<p>Радоваться и плакать – только так. Очередной диск этой бразильской группы дает повод и для первого, и для второго. На третье – только разочарование. Эту отлично записанную и красиво сыгранную музыку надо ставить школярам-музыкантам со словами: "Вот что вас ждет, коли будете жить по чужим рецептам!" Любовь зла, причем зла безгранично. Беспредельная страсть к кумирам молодости – огромнейший недостаток этой талантливейшей прогрессив-команды. Как только горячие бразильские парни перестают копировать клише своих любимцев HELLOWEEN, начинается такое… Яркие мелодии, богатые аранжировки, латиноамериканская экзотика – сказка, а не музыка! Но надолго уйти в самостоятельное плавание ANGRA не решаются или просто не хотят, и лучшее тому доказательство – центральная композиция "Unholy Wars". Первые минуты заигрываний с фанком, хард-роком и этникой заставляют влюбиться в группу без оглядки. Но сразу же следует штампованный проход, выход на прямую по рецепту немцев HELLOWEEN и – вперед что есть мочи, без оглядки. Пара капель бальзама на душу – кроме преданности упомянутым немцам, ANGRA еще готовы объясниться в любви и сегодняшним героям прогрессивной музыки, DREAM THEATER, но даже такие заимствования особой чести не делают. Иногда все же наступает что-то вроде просветления, но ненадолго. Рискну предположить, что, даже подходя к зеркалу, парни видят там физиономии своих кумиров – во всяком случае, музыка к тому располагает. Впрочем, это не означает, что сама по себе музыка безнадежно плоха. Полубаллада "Heroes of Sand" звучит настолько проникновенно, что совершенно все равно, кто написал этот шедевр с потенциалом коммерческого хита. Хороши и другие вещи: "Unholy wars", "Acid Rain", "Millenium Sun", переработка Шопена в "Visions Prelude". Обилие хоров, синкопированная ритмика, разнообразные аранжировки делают пластинку достаточно интересной – если бы только отовсюду не торчали чужие уши… Если учесть, что это далеко не первый диск команды и вряд ли рецепт творчества будет подвергнут серьезному пересмотру, то становится просто грустно – какие шедевры могли бы получиться, будь в головах чуть побольше свободы и поменьше клише? Видно, не судьба.</p>
+
+Автор: Tornado
+
+### 31.10.2003 news Kiko Loureiro (ANGRA) записался на альбоме Renato Tribuzy
+
+<P><B>Kiko Loureiro (ANGRA</B>) закончил запись своих партие для <B>EXECUTION</B> - нового альбома гитариста <B>Renato Tribuzy</B>. Kiko участвует на всех 10 песнях альбома, плюс они записали вместе с Renato кавер на песню <B>SINNER 'Nature Of Evil'.</B></P>
+Автор: Vit Belov
+
+### 31.10.2003 news KIKO LOUREIRO ON EXECUTION!
+
+<B>Kiko Loureiro (Angra)</B> has finished his recordings on <B>EXECUTION</B>, <B>Renato Tribuzy's</B> new album. After recording the bass lines with <B>Chris Dale</B>, Kiko and Tribuzy meet in S&atilde;o Paulo<SPAN> and recorded the song "<B>Nature Of Evil</B>", a cover from the german band <B>Sinner</B>. Kiko's participation on the album included all the 10 songs within solos, duets, bases and overdubs.</SPAN>
+Автор: Vit Belov
+
+### 13.01.2004 news ANGRA - новая пластинка
+
+Бразильская команда&nbsp;<B>ANGRA</B>&nbsp;начала запись продолжения предыдущего альбома&nbsp;<B>"Rebirth".</B>&nbsp;Диск должен выйти летом на&nbsp;<B>SPV Records</B>.
+Автор: Uneral
+
+### 15.03.2004 news Kai Hansen и Hansi Kursch на новом альбоме ANGRA
+
+<P>Из неподтверждённых источников стало известно, что в записи нового альбома <B>ANGRA</B> приняли участие <B>Kai Hansen (GAMMA RAY)</B> и <B>Hansi Kursch (BLIND GUARDIAN).</B> Новый альбом бразильцев выходит в мае.</P>
+Автор: Vit Belov
+
+### 05.11.2004 news Новый альбом ANGRA
+
+<P>Новый альбом <STRONG>ANGRA 'Temple Of Shadows'</STRONG> выходит 15 ноября на <STRONG>SPV</STRONG>. Пластинка была записана с продюсером <STRONG>Denis Ward</STRONG>. Это концептуальная история о "Охотнике-тени", крестоносце 11 столетия, который подверг сомнению католические идеалы.<STRONG> Kai Hansen (Gamma Ray)</STRONG>, <STRONG>Hansi Kursch (Blind Guardian)</STRONG> и <STRONG>Sabine Edelsbacher (Edenbridge)</STRONG> приняли участие в записи альбома. </P>
+<P>CD:</P>
+<P>01. <STRONG>Deus Le Volt!<BR></STRONG>02. <STRONG>Spread Your Fire<BR></STRONG>03. <STRONG>Angels And Demons</STRONG><BR>04. <STRONG>Waiting Silence</STRONG><BR>05. <STRONG>Wishing Well</STRONG><BR><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.11/7289.jpg" width=200 align=right border=5>06. <STRONG>Temple Of Hate</STRONG><BR>07. <STRONG>Shadow Hunter<BR></STRONG>08. <STRONG>No Pain For The Dead</STRONG><BR>09. <STRONG>Winds Of Destination</STRONG><BR>10. <STRONG>Sprouts Of Time<BR></STRONG>11. <STRONG>Morning Star</STRONG><BR>12. <STRONG>Late Redemption</STRONG></P>
+<P>INHALT Bonus DVD<BR>"<STRONG>Rebirth World Tour - Live In Sao Paulo</STRONG>"</P>
+<P>01 <STRONG>In Excelsis</STRONG><BR>02 <STRONG>Nova Era</STRONG><BR>03 <STRONG>Acid Rain<BR></STRONG>04 <STRONG>Angels Cry</STRONG><BR>05 <STRONG>Heroes Of Sand<BR></STRONG>06 <STRONG>Metal Icarus</STRONG><BR>07 <STRONG>Millenium Sun<BR></STRONG>08 <STRONG>Make Believe</STRONG><BR>09 <STRONG>Drum - Solo<BR></STRONG>10 <STRONG>Unholy Wars<BR></STRONG>11 <STRONG>Rebirth<BR></STRONG>12 <STRONG>Time<BR></STRONG>13 <STRONG>Running Alone</STRONG><BR>14 <STRONG>Crossing<BR></STRONG>15 <STRONG>Nothing To Say<BR></STRONG>16 <STRONG>Unfinished Allegro<BR></STRONG>17 <STRONG>Carry On<BR></STRONG>18 <STRONG>The Number Of The Beast</STRONG> </P>
+<P>plus special features:<BR>- Backstage Scenes<BR>- Rebirth World Tour in Brasilien, Japan, Taiwan und Eiropa<BR>- Photo Gallery<BR>- Videoclips</P>
+<P>- approx. running time: 160 min.<BR>- PAL<BR>- FSK 12<BR>- Dolby Digital / Dolby Surround Sound</P>
+Автор: Vit Belov
+
+### 24.11.2004 reviews Rhapsody, завидуйте!
+
+<P>Думаю, вряд ли кто ожидал чего-то особливого от новой работы бразильцев Angra. Но вот как раз они-то и порадовали. Мощнейший мелодичный пауэр-метал, с креном в симфо-пауэр и прог-пауэр, безукоризненно сыгранный, спетый (с участием Кая Хансена, Ханзи Кюрша, Сабины Эдельсбахер и местной известности Милтона Насименто), с легким налетом южноамериканского колорита слушается просто превосходно, пусть иной раз и думаешь, что многие ходы начисто "содраны" с Helloween - далеко не все это делают с таким искренним и подкупающим изяществом, как Angra на данном релизе. Поистине профессиональная работа, при этом ребятам удается добиться "симфоничности" звучания, не прибегая к безумным оркестровкам тех же Rhapsody (хотя завершающая 'The XII Gate' сделана именно в виде оркестровки, но настолько здорово и неперегружено это звучит, прям-таки "григовские" дела), у которых на последней работе пауэр-метала, как такового, и не осталось совсем. Добавим прекрасную продюсерскую работу Денниса Уэрда&nbsp; (Pink Cream 69), и вот перед вами один из лучших релизов в жанре за этот год. Добавлю, что кроме обычного издания будет также limited edition с DVD "Rebirth World&nbsp;Tour Live In Sao Paolo", который в таком формате был ранее доступен только в Японии и во Франции.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 28.11.2004 reviews Вот он: лучший power-metal альбом года
+
+<P>А вот и лучшая работа, связанная с power-metal, в этом году. Смело? Да, смело, но это правда. И если мой коллега <STRONG>Ixtiandr</STRONG> просто не может выставить высший балл power-metal, я это делаю. Что же делает <STRONG>‘Temple Of Shadows’</STRONG> таким?</P>
+<P>Объяснять первое место этой пластинки можно двумя способами. Скрупулёзно, описывая все песни с альбома, или наскоком, уничтожив всех конкурентов. Пожалуй, и тот, и тот метод, имеют право на жизнь, ведь и конкуренты у <STRONG>ANGRA</STRONG> совсем не дремали. <STRONG>SONATA ARCTICA, RHAPSODY, EDGUY</STRONG>, или <STRONG>EVERGREY</STRONG>, например. Первые две группы откровенно не порадовали. У <STRONG>EDGUY</STRONG> и <STRONG>EVERGREY</STRONG> дела обстоят намного лучше, но<STRONG> ‘Temple Of Shadows’</STRONG> объединил в себе плюсы обоих этих альбомов: мелодичность и разнообразие.</P>
+<P>Альбом рассказывает концептуальную историю о рыцаре, но оставим подробности для любителей вчитываться в буклеты, я предпочитаю обращать внимание на музыку. А здесь просто пиршество: «хуковые» мелодичные боевики, атмосферные и тихие баллады (в стиле <STRONG>ANGRA</STRONG>), симфонические аранжировки, широкое использование акустической гитары (очень порадовал пролог к ‘<STRONG>The Shadow Hunter’</STRONG>, где «испанская» гитара искусно вплетена в звучание электрики), сильный&nbsp;набор приглашённых звёзд (<STRONG>Hansi, Kai, Sabine</STRONG>), элементы progressive. </P>
+<P>В этом свете даже не хочется возвращаться к теме раскола в <STRONG>ANGRA</STRONG> несколько лет назад. Это просто смешно! Победа за явным преимуществом. <STRONG>Edu Falaschi</STRONG> оказался очень хорошим вокалистом, а, главное, вышедшие из под «эго» <STRONG>Matos</STRONG> коллеги развернулись по полной в мелодическом плане. <STRONG>‘Temple Of Shadows’</STRONG> займёт достойное место в истории heavy metal,&nbsp; и он лучше всех предыдущих альбомов группы, возможное стилистическое разнообразие которых приносилось в жертву пению <STRONG>Andre Matos</STRONG>.</P>
+<P>Всем немедленно в магазин, разочарованных не будет, тысячу чертей!!! Эту пластинку можно слушать вечно.</P>
+Автор: Vit Belov
+
+### 29.08.2006 news Новый релиз от ANGRA
+
+<P>30 октября на <STRONG>SPV Records </STRONG>выходит новый альбом бразильской группы<STRONG> ANGRA</STRONG> под названием <B>"Aurora Consurgens"</B>. Он был записан с продюсером <STRONG>Dennis Ward</STRONG> в немецкой <B>House Of Audio Studios.</B> Окончательный трек-лист:<BR><BR><IMG height=204 alt="" hspace=10 src="/images/news_rus/2006.08/10654.jpg" width=208 align=left border=0>1. <B>The Course Of Nature</B><BR>2. <B>The Voice Commanding You</B><BR>3. <B>Ego Painted Grey</B><BR>4. <B>Breaking Ties</B><BR>5. <B>Salvation: Suicide</B><BR>6. <B>Window To Nowhere</B><BR>7. <B>So Near So Far</B><BR>8. <B>Passing By</B><BR>9. <B>Scream Your Heart Out</B><BR>10. <B>Abandoned Fate</B><BR></P>
+Автор: Dimas
+
+### 08.11.2006 news Andre Matos решил заняться сольной карьерой
+
+<P>Бывший вокалист бразильских коллективов&nbsp;<STRONG>ANGRA</STRONG> и<STRONG> SHAAMAN</STRONG> <B>Andre Matos</B> записал демо-версии нескольких треков, которые войдут в его новый сольный альбом под названием <STRONG>"Rio".</STRONG> Их можно прослушать по <A href="http://www.andrematos.net/?lang=en">этой</A> ссылке.<STRONG> </STRONG>Выход релиза ожидается в течении 2007 года, лейбл пока неизвестен.</P>
+Автор: Dimas
+
+### 08.11.2006 reviews Ангра нисходящая
+
+<P>Aurora consurgens переводится с латыни как "восходящая утренняя заря", это было одно из сочинений Фомы Аквинского. Такое же название носит и новый, шестой по счету,&nbsp;студийный полноформатник бразильской прог-пауэрной группы Angra. Скажу сразу: пластинка эта меня разочаровала. После свежего, мощного и одновременно изящного "Temple Of Shadows" (2004) мы получили то, чего многие боялись. В музыке бразильцев стал сильно преобладать европауэр, причем не самого лучшего его образца. Если на предыдущей работе Angra удалось цитировать своих немецких коллег по паверному цеху на редкость красиво и (повторюсь) изящно, то на "Aurora Consurgens" идет просто-таки набор штампов, от откровенного "снятия" хелловиновских риффов, например, в 'The Voice Commanding You', до новомодных экспериментов в духе современных Blind Guardian. Медляк 'Ego Painted Grey' можно вообще назвать одной из самых слабых песен группы. Среднетемповая 'Breaking Ties' почему-то исполнена в глэмо-хардовом духе. Фольклорные элементы надо искать с увеличительным стеклом (слышны они разве что в 'So Near So Far', впрочем, тоже совершенно неудобоваримой песне). Красивая (совсем "нерапсодиевская") симфоничность тоже куда-то утекла. Или, быть может, Angra почувствовали некую вседозволенность для местной сцены после распада их конкурентов Shaaman (во всяком случае, Матос и братья Мариутти этот коллектив покинули)? Или, быть может, Angra были так расстроены тем, что сборная Бразилия сложила с себя корону чемпионов мира по футболу? Как бы то ни было, альбом получился каким-то... нелепым, что ли. Возможно, у вас будет другое мнение по поводу "Aurora Consurgens", но я ждал от этой работы много большего. Со страшным скрипом ставлю 6 баллов (добрый я сегодня просто)...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 29.11.2006 reviews Не удалось подначить Ихтиандра
+
+<P>Почитал я рецензию Ихтиандра и не поверил. Не хотелось верить, что после почти шедеврального “Temple Of Shadows”, с которым ANGRA вчистую убрали бывшего коллегу певца Андре Матоса с его SHAAMAN, вышел такой порожний альбом. Ну, не очень Ихти любит power-metal, подумал я. Взял диск, заранее решив написать параллельную рецензию. Вот так и получилось, что я вынужденно дублирую все мысли коллеги. Power-metal от ANGRA стал простым. Очень простым. Никакого собственного шарма, группа использует штампы евро-пауэр, наработки ранней ANGRA, к ним я отношу оригинальное клавишное звучание и фолковые вставки, и даже вокалист потерял собственное лицо и поёт, как клон Шиперса и Дериса одновременно. Кроме прочего, ANGRA отказались от практики приглашать вокалистов, что разнообразило их музыку в прошлом.</P>
+<P>Никакого позитива, кроме качества, на “Aurora Consungens” нет. Откровенно проходная пластинка. Остаётся надеяться, что ANGRA также быстро перескочит от провала к шедевру, как от шедевра к провалу на этот раз. Иначе от ANGRA/SHAAMAN останется только Andre Matos, исполняющий какую-нибудь «попсу», да Кико Лоурейро с неплохими инструментальными пластинками.</P>
+Автор: Vit Belov
+
+### 12.02.2007 news ANGRA в Москве
+
+<CENTER><IMG height=291 src="/images/shows_rus/2007.03/11356.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 04.06.2007 reviews Аврора дала залп
+
+<P>Несмотря на всю значимость данного коллектива, их предыдущие работы не находили особого отклика в моем сердце. Не сказать, что они были плохи или не интересны, но как-то проходили мимо моего внимания. А вот последняя работа, которую не особо жалуют поклонники Angra, мне явно пришлась по вкусу. Альбом получился жесткий, хитовый и грамотно спродюсированный. Композиции, представленные на Aurora Consurgens, очень мелодичны и легко ложатся на слух, но самое главное - они отличаются друг от друга и альбом не слушается одной монотонной песней. Отличные инструментальные партии дополнены великолепным вокалом (непонятно, почему фэны в один голос утверждают, что старый вокалист был круче), представляющим приблизительную квинтэссенцию Брюса Дикинсона и Экселя Роуза. Гитарные поливы - это вообще отдельная песня, заслуживающая самых высоких оценок и похвал. В большинстве своем композиции напоминают последние сольные работы Диккинсона с легким вкраплением пауера и нео-классики. Одним словом, очень крепкая и грамотная работа, достойная высшего балла, несмотря на все кривотолки знатоков творчества Angra.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 05.09.2008 news ANGRA распались?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист<STRONG> ANGRA</STRONG> и <STRONG>ALMAH Edu Falaschi</STRONG> в своём пресс-релизе сообщил, что у него теперь много времени на свой сольный проект, из-за того, что <STRONG>ANGRA</STRONG> прекратила существование ('terminated').</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Второй альбом<STRONG> ALMAH "Fragile Equality"</STRONG> выходит 17 октября на <STRONG>AFM</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка на песни: <A href="http://www.myspace.com/almahedufalaschi">http://www.myspace.com/almahedufalaschi</A></FONT></P>
+Автор: Vit Belov
+
+### 16.03.2009 news Ricardo Confessori: И нашим, и вашим
+
+<P>Барабанщик<STRONG> Ricardo Confessori</STRONG> вернулся в <STRONG>ANGRA</STRONG>, но не намерен прекращать свою деятельность в <STRONG>SHAMAN</STRONG>. Напомним, что последнюю группу он основал вместе с певцом <STRONG>Andre Matos</STRONG>, когда покинул <STRONG>ANGRA</STRONG>. С тех пор много воды утекло. <STRONG>Andre </STRONG>покинул и <STRONG>SHAMAN</STRONG>, и теперь не осталось никаких препятствий для воссоединения господина <STRONG>Confessori </STRONG>с бывшими коллегами.</P>
+<P><STRONG>ANGRA</STRONG> вернулись из двухгодичного отпуска и готовы к масштабному туру по Бразилии вместе с<STRONG> SEPULTURA</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.01.2010 news ANGRA сочиняют альбом
+
+<P><STRONG>ANGRA</STRONG> пишут песни для нового концептуального альбома, который выйдет во второй половине этого года. Название этой пластинки пока не известно, но на неё попадут 10 трэков.</P>
+<P>Вокалист группы <STRONG>Edu Falaschi</STRONG> обещает лучший альбом в истории группы, шедевр.</P>
+Автор: Vit Belov
+
+### 06.07.2010 news ¬Ї¬а¬У¬н¬Ы ¬С¬Э¬о¬Т¬а¬Ю ANGRA
+
+<P>29 ¬г¬Ц¬Я¬д¬с¬Т¬в¬с ¬Я¬С <STRONG>SPV</STRONG> ¬У¬н¬з¬а¬Х¬Ъ¬д ¬Я¬а¬У¬н¬Ы ¬С¬Э¬о¬Т¬а¬Ю<STRONG> ANGRA "Aqua"</STRONG>. ¬Ў¬Э¬о¬Т¬а¬Ю ¬Т¬н¬Э ¬Щ¬С¬б¬Ъ¬г¬С¬Я ¬У ¬і¬С¬Я-¬±¬С¬е¬Э¬е ¬У ¬г¬д¬е¬Х¬Ъ¬Ъ <STRONG>Norcal Studios. </STRONG>¬°¬Т¬Э¬а¬Ш¬Ь¬е ¬Х¬Э¬с ¬б¬Э¬С¬г¬д¬Ъ¬Я¬Ь¬Ъ ¬Я¬С¬в¬Ъ¬г¬а¬У¬С¬Э ¬з¬е¬Х¬а¬Ш¬Я¬Ъ¬Ь <STRONG>Gustavo Sazes. </STRONG>¬¤¬в¬е¬б¬б¬С ¬б¬а¬Ю¬Ц¬Я¬с¬Э¬С ¬з¬е¬Х¬а¬Ш¬Я¬Ъ¬Ь¬С, ¬У¬б¬Ц¬в¬У¬н¬Ц ¬г ¬С¬Э¬о¬Т¬а¬Ю¬С "<STRONG>Fireworks</STRONG>" ¬Ь¬С¬У¬Ц¬в-¬С¬в¬д ¬Я¬С¬в¬Ъ¬г¬а¬У¬С¬Э¬С ¬Я¬Ц <STRONG>Isabel de Amorim. </STRONG>¬®¬е¬Щ¬н¬Ь¬С¬Я¬д¬н ¬Щ¬С¬с¬У¬Э¬Ъ, ¬й¬д¬а ¬Щ¬С¬з¬а¬д¬Ц¬Э¬Ъ ¬г¬Ю¬Ц¬Я¬Ъ¬д¬о ¬г¬д¬Ъ¬Э¬о ¬Х¬Ъ¬Щ¬С¬Ы¬Я¬С. ¬ґ¬в¬п¬Ь-¬Э¬Ъ¬г¬д:</P>
+<P>01. <B>Viderunt Te Aqu©Ў</B><BR>02. <B>Arising Thunder</B><BR>03. <B>Awake From Darkness</B><BR>04. <B>Lease Of Life</B><BR>05. <B>The Rage Of The Waters</B><BR>06. <B>Spirit Of The Air</B><BR>07. <B>Hollow</B><BR>08. <B>A Monster In Her Eyes</B><BR>09. <B>Weakness Of A Man</B><BR>10. <B>Ashes</B></P>
+<P>¬Ї¬а¬У¬н¬Ы ¬С¬Э¬о¬Т¬а¬Ю ¬а¬г¬Я¬а¬У¬С¬Я¬С ¬Я¬С ¬б¬а¬г¬Э¬Ц¬Х¬Я¬Ц¬Ы ¬б¬о¬Ц¬г¬Ц ¬є¬Ц¬Ь¬г¬б¬Ъ¬в¬С </P>
+Автор: Vit Belov
+
+### 06.07.2010 news Новый альбом ANGRA
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.07/16882.jpg" width=400 align=right border=5>29 сентября на <STRONG>SPV</STRONG> выходит новый альбом<STRONG> ANGRA "Aqua"</STRONG>. Альбом был записан в Сан-Паулу в студии <STRONG>Norcal Studios. </STRONG>Обложку для пластинки нарисовал художник <STRONG>Gustavo Sazes. </STRONG>Группа поменяла художника, впервые с альбома "<STRONG>Fireworks</STRONG>" кавер-арт нарисовала не <STRONG>Isabel de Amorim. </STRONG>Музыканты заявли, что захотели сменить стиль дизайна. Трэк-лист:</P>
+<P>01. <B>Viderunt Te Aqua</B><BR>02. <B>Arising Thunder</B><BR>03. <B>Awake From Darkness</B><BR>04. <B>Lease Of Life</B><BR>05. <B>The Rage Of The Waters</B><BR>06. <B>Spirit Of The Air</B><BR>07. <B>Hollow</B><BR>08. <B>A Monster In Her Eyes</B><BR>09. <B>Weakness Of A Man</B><BR>10. <B>Ashes</B></P>
+<P>Новый альбом основан на последней пьесе <STRONG>Шекспира "Буря"</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.07.2010 news Новая песня ANGRA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню<STRONG>&nbsp;ANGRA</STRONG> <STRONG>"Arising Thunder" </STRONG>можно послушать на <STRONG>MySpace:</STRONG> <A href="http://www.myspace.com/angraofficial">http://www.myspace.com/angraofficial</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэк попадёт на новый альбом группы "<STRONG>Aqua</STRONG>", который выйдет 29 сентября на <STRONG>SPV</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 20.10.2010 reviews Один из слабейших альбомов ANGRA
+
+<P>Бразильцы ANGRA заслужили культовый статус у себя на Родине уже довольно давно. В тяжёлой музыке они, наряду с SEPULTURA, являются главными экспортными брендами Бразилии. На рубеже веков в группе произошла смена вокалиста, которая вызвала неоднозначную реакцию в среде поклонников коллектива. С одной стороны, бывший фронтмен ANGRA Andre Matos пользовался огромной популярностью и обладал оригинальным голосом, и его потеря не могла пройти безболезненно. С другой стороны, новый певец Edu Falaschi довольно быстро доказал, что в своей профессии умеет многое, а кроме того, музыка ANGRA с его приходом приблизилась к стандартам европейского power-metal, что должно было привлечь дополнительное внимание к её творчеству.</P>
+<P>Фаворитом в новом творчестве ANGRA для меня стал альбом 2004 года “Temple Of Shadows”, на котором идеально пересеклись некоторая этничность в звучании и заздравные power-metal боевики в духе HELLOWEEN и GAMMA RAY. К сожалению, сами музыканты ANGRA оказались не в большом восторге от такого, достаточно прямолинейного, своего звучания и стали активно нагнетать в музыку folk составляющую, которая принесла первый успех бразильцам ещё в прошлом веке. Дело не в том, что этника, всегда игравшая первую скрипку на альбомах ANGRA, не является чем-то сильно любимым мною, я с удовольствие слушал и “Angel s Cry” и “Holy Land”. К сожалению, ANGRA была утеряна основная составляющая их музыки, почти попсовая хитовость в медленных полубалладах с высоким тенором Andre Matos. Новая работа бразильцев “Aqua” создана по старым, уже порядком запылившимся, лекалам. Открывает альбом боевик, чтобы слушатель понял, что он слушает всё-таки тяжёлую группу, но дальше коллектив обращается к балладам и очень мелодичным трэкам. Здесь-то и поджидает поклонников основное разочарование. ANGRA не хочет играть просто, как раньше. Их мелодии постоянно меняют своё направление, композиторы принимают нетривиальные и неочевидные решения, а нам расхлёбывай. В итоге получается псевдопрогрессивная работа, лишённая всех основных козырей группы последних лет. Нет тяжести, нет мелодии, есть только искусное исполнение, на котором в наши дни повального музыкального мастерства далеко не уедешь.</P>
+<P>Пожалуй, один из слабейших альбомов ANGRA. Обнаружить что-то интересное на “Aqua” довольно трудно, а достаточно прозрачные, но откровенно неудачные попытки группы вернуться к коренному звучанию вызывают только скептическую улыбку.</P>
+Автор: Vit Belov
+
+### 28.10.2010 news Новый ролик ANGRA
+
+<P><STRONG>ANGRA</STRONG> выложили в сеть клип на песню <STRONG>"Lease Of Life" </STRONG>с нового альбома "<STRONG>Aqua</STRONG>". Посмотреть видео-клип можно ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/K3D_ENwGXrI&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/K3D_ENwGXrI&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.11.2010 news Timo Tolkki будет работать с Andre Matos
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=363 alt="" hspace=0 src="/images/news_rus/2010.11/17575.jpg" width=250 align=right border=5>Бывший гитарист <STRONG>STRATOVARIUS</STRONG> и <STRONG>REVOLUTION RENAISSANCE Timo Tolkki</STRONG> объявил о создании нового проекта <STRONG>SYMFONIA. </STRONG>Группа войдёт в студию <STRONG>Studiomega </STRONG>в Швеции для записи дебютного альбома, который должен выйти весной будущего года. Помогать одиозному гитаристу будут бывший вокалист <STRONG>ANGRA Andre Matos</STRONG>, бывший коллега <STRONG>Timo</STRONG> по <STRONG>STRATOVARIUS</STRONG> басист <STRONG>Jari Kainulainen, </STRONG>бывший клавишник <STRONG>SONATA ARCTICA</STRONG> <STRONG>Mikko Harkin </STRONG>и бывший барабанщик <STRONG>HELLOWEEN Uli Kusch</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Интересно, что творческая судьба <STRONG>Andre Matos</STRONG> и <STRONG>Timo Tolkki</STRONG> схожа. Они оба постоянно создают собственные группы, а потом, не находя отклика у публики, их сами и разрушают. Например, <STRONG>Andre Matos</STRONG> умудрился уйти из собственной группы <STRONG>SHAMAN</STRONG>, а <STRONG>Timo Tolkki</STRONG> таже загадочно покинул собственную группу <STRONG>STRATOVARIUS</STRONG>. Любопытно, что получится с<STRONG> SYMFONIA</STRONG>? Уйдут оба, не дописав альбом?</FONT></P>
+Автор: Vit Belov
+
+### 25.05.2012 news Edu Falaschi покинул ANGRA
+
+<P>Певец <STRONG>Edu Falaschi</STRONG> прекратил участие в <STRONG>ANGRA</STRONG>. Осовной причиной музыкант назвал желания двигаться вперёд в своей жизни более естественным путём. В своём прочувствованном сообщении музыкант также сообщил, что басист <STRONG>ANGRA</STRONG> <STRONG>Felipe Andreoli </STRONG>больше не явдяется музыкантом его проекта <STRONG>ALMAH</STRONG>.</P>
+<P><STRONG>Edu Falaschi</STRONG> был фронтменом <STRONG>ANGRA</STRONG> с 2000 года.</P>
+<P><center><IMG height=394 src="/images/news_rus/2012.05/24018.jpg" width=369 border=0></P>
+Автор: Vit Belov
+
+### 09.04.2015 news Изменения в составе MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.04/27893.jpg" width=350 height=462>Как возможно уже многие из вас знают, в конце ноября прошлого года, группа <STRONG>MEGADETH</STRONG> лишилась сразу двух своих музыкантов. Ими стали <STRONG>Shawn Drover</STRONG> (барабаны) и <STRONG>Chris Broderick</STRONG> (гитара).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На днях <STRONG>MEGADETH</STRONG> объявили новых участников (по крайней мере, на время записи нового альбома). Первый из них, это <STRONG>Chris</STRONG> <STRONG>Adler</STRONG>, барабанщик <STRONG>LAMB OF GOD</STRONG>, а второй - гитарист <STRONG>Kiko Loureiro</STRONG>, снискавший известность&nbsp;со&nbsp;своей группой <STRONG>ANGRA</STRONG>. Остаётся только с нетерпением ожидать, что же принесёт данный союз.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как заявил <STRONG>Dave Mustaine</STRONG> в своём аккаунте в Twitter, у группы уже сочинено 15 песен для новой пластинки. Интересно, сколько из них&nbsp;в итоге увидит свет?</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем, <STRONG>Shawn Drover</STRONG> и <STRONG>Chris Broderick</STRONG> сколотили новый совместный проект под названием <STRONG>ACT OF DEFIANCE</STRONG>,&nbsp;куда также вошли&nbsp;вокалист <STRONG>Henry Derek</STRONG> (ex-<STRONG>SCAR THE MARTYR</STRONG>) и басист <STRONG>Matt Bachand</STRONG> (<STRONG>SHADOWS FALL</STRONG>).</FONT></P>
+Автор: Headcrusher
+
+### 02.09.2015 news Новое видео ANGRA
+
+<P>Новый ролик бразильцев <STRONG>ANGRA</STRONG> на песню “<STRONG>Black Hearted Soul</STRONG>” можно посмотреть ниже. Песня взята с последнего альбома коллектива "<STRONG>Secret Garden</STRONG>".</P>
+<P>В главной роли <STRONG>Fabio Lione (RHAPSODY OF FIRE)</STRONG>:</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/4VIteJzGCr8" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 05.05.2016 news Первая сольная работа Edu Falaschi
+
+<P>Подтверждена дата релиза первого сольного альбома бразильского музыканта, экс-вокалиста <STRONG>ANGRA</STRONG>, основателя и лидера <STRONG>ALMAH</STRONG>, <STRONG>Edu Falaschi</STRONG>. В Европе запись выйдет на лейбле <STRONG>Pride & Joy Music</STRONG> 20 мая 2016 года. Это акустический диск переаранжированных и перезаписанных с акустической гитарой, фортепиано и оркестром уже известных поклонникам&nbsp;музыканта песен из репертуара его бывших групп. Трек-лист включает в себя песни написанные при участии музыканта: </P>
+<P>1. Nova Era&nbsp;&nbsp;|&nbsp; 2. Bleeding Heart&nbsp; |&nbsp; 3. Arising Thunder&nbsp; |&nbsp; 4. Rebirth&nbsp; |&nbsp; 5. Breathe&nbsp; |&nbsp; 6. Angels And Demons&nbsp; |&nbsp; 7. Spread Your Fire&nbsp; |&nbsp; 8. Wishing Well&nbsp; |&nbsp; 9. Heroes Of Sand</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.05/29180.jpg" width=320 height=320></CENTER>
+<P></P>
+<P>Уже сейчас можно посмотреть и послушать текстовое видео - новый сингл с&nbsp;этого акустического сольного альбома бразильского вокалиста "<STRONG>Arising Thunder</STRONG>". Эта вещь изначально была записана&nbsp;группой&nbsp;<STRONG>ANGRA</STRONG>&nbsp;в "металлическом" варианте для диска "<STRONG>Aqua</STRONG>", либретто базировалось на пьесе <STRONG>Шекспира</STRONG> "<STRONG>Буря</STRONG>". Здесь представлена более "классическая" аранжировка с фортепиано и оркестром.</P>
+<CENTER><IFRAME height=370 src="http://www.youtube.com/embed/E6q6OX2g374" frameBorder=0 width=490 data-link="http://www.youtube.com/watch?v=E6q6OX2g374" allowfullscreen="allowfullscreen"></IFRAME></CENTER>
+Автор: Dimas
+
+### 08.07.2016 news Новое видео ANGRA
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>ANGRA </strong>опубликовали клип на кавер-версию на песню <strong>THE POLICE "Synchronicity II</strong>". </font></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TaUeS-wRUYQ" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.07.2016 news New video by ANGRA
+
+<p><span class="translation-chunk" data-align="0:5"><strong>ANGRA</strong></span> <span class="translation-chunk" data-align="6:26">published the video for</span> <span class="translation-chunk" data-align="27:42">the cover version of</span> <span class="translation-chunk" data-align="43:52">the song the</span> <strong><span class="translation-chunk" data-align="53:61">POLICE "</span><span class="translation-chunk" data-align="61:74">Synchronicity</span> <span class="translation-chunk" data-align="75:79">II".</span></strong></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TaUeS-wRUYQ" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Angra - новый альбом

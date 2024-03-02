@@ -66,6 +66,34 @@ Les Claypool - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.03.1999 news 
+
+<p>Определены участники традиционного OZZFEST. Хэдлайнером будут, что не удивительно, Black Sabbath. Также на главной сцене выступят Rob Zombie, Slayer, Deftones, Primus и Godsmack. На второй сцене засветятся Judas Priest, Nashville Pussy, Puya, Push Monkey и малоизвестные Flashpoint и Apartment 26 (группа сына Гизера Батлера). По сообщению Шарон Озборн, тур будет "лебидиной песней" Black Sabbath, после него группа распадётся, чтобы музыканты могли заняться своими сольными проектами. Ozzfest начнётся 28 мая во Флориде, а закончится 17 июля в Лос Анджелесе.</p>
+
+Автор: Vit Belov
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 24.10.2003 news Primus in USA
+
+10/14 Davis, CA <BR>10/15 Las Vegas, NV <BR>10/17 Los Angeles, CA <BR>10/18 Los Angeles, CA<BR>10/19 Phoenix, AZ <BR>10/21 Denver, CO <BR>10/22 Salt Lake City, UT <BR>10/24 Vancouver, BC <BR>10/25 Eugene, OR <BR>10/26 Seattle, WA <BR>10/28 Eureka, CA <BR>10/29 Santa Cruz, CA <BR>10/30 San Francisco, CA <BR>10/31 San Francisco, CA <BR>11/06 Minneapolis, MN<BR>11/07 Chicago, IL <BR>11/08 Milwaukee, WI <BR>11/09 Detroit, MI <BR>11/11 Columbus, OH <BR>11/12 Cleveland, OH <BR>11/14 New York, NY <BR>11/15 Philadelphia, PA <BR>11/16 Washington, DC <BR>11/18 Boston, MA <BR>11/19 Portland, ME <BR>11/20 Burlington, VT <BR>11/22 Montreal, QC <BR>11/23 Toronto, ON
+Автор: Vit Belov
+
+### 20.07.2011 news Новый альбом PRIMUS
+
+<P><IMG height=263 alt="" hspace=0 src="/images/news_rus/2011.07/20269.jpg" width=290 align=right border=0>Новый альбом <STRONG>PRIMUS "Green Naugahyde"</STRONG> выйдет 13 сентября на <STRONG>ATO Records/Prawn Songs</STRONG>. Пластинка станет первой студийной для группы за последние 11 лет. Трек-лист:</P>
+<P>1. <STRONG>Prelude To A Crawl<BR></STRONG>2. <STRONG>Hennepin Crawler</STRONG><BR>3. <STRONG>Last Salmon Man</STRONG><BR>4. <STRONG>Eternal Consumption Engine</STRONG><BR>5. <STRONG>Tragedy’s a’ Comin’</STRONG><BR>6. <STRONG>Eyes Of The Squirrel</STRONG><BR>7. <STRONG>Jilly’s On Smack</STRONG><BR>8. <STRONG>Lee Van Cleef</STRONG><BR>9. <STRONG>Moron TV<BR></STRONG>10. <STRONG>Green Ranger</STRONG><BR>11. <STRONG>HOINFODAMAN </STRONG><BR>12. <STRONG>Extinction Burst</STRONG><BR>13.<STRONG> Salmon Men</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

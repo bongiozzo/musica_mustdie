@@ -35,6 +35,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.07.2011 news Второй альбом ECHOTERRA
+
+<P>Новая работа <STRONG>"Land Of The Midnight Sun" </STRONG>группы бывшей вокалистки <STRONG>VISIONS OF ATLANTIS</STRONG> <STRONG>Melissa Ferlaak ECHOTERRA </STRONG>выходит 17 октября на <STRONG>Blinding Force Recordings</STRONG>. В составе коллектива кроме <STRONG>Melissa</STRONG> клавишник <STRONG>Jonah Weingarten</STRONG> (<B>PYRAMAZE</B>),&nbsp;гитарист <B>Yan Leviathan</B> (<B>AVIAN</B>),&nbsp;басист <B>Brian Hollenbeck</B>&nbsp;и барабанщик&nbsp;<B>Adam Sagan</B> (<B>INTO ETERNITY</B>). Трек-лист:</P>
+<P>01. <B>After The Rain</B><BR>02. <B>The Best Is Yet To Come</B><BR>03. <B>All The Lies</B><BR>04. <B>Midnight Sun</B><BR>05. <B>The Ghost Within My Heart</B><BR>06. <B>Welcome My Friend Of Misery</B><BR>07. <B>Memories Of Another Time</B><BR>08. <B>A Different Story</B><BR>09. <B>From The Gutter To The Throne</B><BR>10. <B>Unleash The Flood</B><BR>11. <B>Genes Of Isis</B></P>
+<P>Трейлер альбома, включающий фрагменты всех одиннадцати песен, можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/MPI4p8vtHuY" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

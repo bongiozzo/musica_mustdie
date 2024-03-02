@@ -137,6 +137,366 @@ you in the name of Rock n' Roll.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.06.2003 news Новости от MANEGARM
+
+<p>После некоторых задержек, наконец-то полностью готов третий альбом MANEGARM "Dodsfard". Релиз ожидается в августе через Displeased Records.</p>
+
+Автор: Dimas
+
+### 22.09.2003 reviews Смертельное путешествие
+
+<P>"Dodsfard", в переводе на английский означает "Death Journey". Третий альбом шведских музыкантов открывает обработка народной композиции, а дальше... Дальше потрясающий материал на полчаса, прослушиваемый на одном дыхании, у которого только одно слабое место - его небольшая продолжительность. Музыканты еще более усилили свою фолковую составляющую. В текстовом плане, многие темы песен основываются на старинных шведских сказаниях. Темы викингов на альбоме имеют гораздо больший акцент, чем ранее. Да и в музыкальном плане наблюдается полный отход к viking metal. Музыка&nbsp;MANEGARM по-прежнему узнаваема и зажигательна, как и на первых двух альбомах. К тому же, очень разнообразна. Местами, она напоминает ранний VINTERSORG, местами FINNTROLL, иногда THYRFING. Несмотря на это, рискну назвать этот материал оригинальным. Плотный и чистый гитарный звук в совокупности со скрипичными партиями создают ощущение эпичности и торжественности, больше напоминая средневековые марши. Под занавес - замечательная акустическая пьеса с мужским чистоголосым хором и звоном пивных кружек. Достойное завершение. На мой взгляд, этот альбом - один из лучших в своем стиле. Он из разряда тех альбомов, которые можно смело покупать, даже не задумываясь о целесообразности его приобретения.</P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Dimas
+
+### 04.10.2006 news Новый альбом MANEGARM
+
+<P><STRONG>MANEGARM</STRONG> работают над пятым альбомом "<STRONG>Vargstenen</STRONG>". Альбом будет концептуальным. Трэк-лист:</P>
+<P>1. <STRONG>Uppvaknande-Ur Sjalslig Dod <BR></STRONG>2. <STRONG>Minnen-En Fallen Fader <BR></STRONG>3. <STRONG>Den Gamle Talar</STRONG> (Acoustic)<BR>4. <STRONG>Genom Varldar Nio</STRONG> <BR>5. <STRONG>Visioner Pa Isen<BR></STRONG>6. <STRONG>Vargbrodern Talar</STRONG> (Acoustic) <BR>7. <STRONG>I Underjorden</STRONG><BR>8. <STRONG>Nio Dagar, Nio Natter</STRONG><BR>9. <STRONG>Vargstenen</STRONG><BR>10. <STRONG>Vedergallningens Tid<BR></STRONG>11. TBA (Acoustic)</P>
+Автор: Vit Belov
+
+### 05.02.2008 news MANEGARM выступят в России
+
+<P>Шведская viking-metal банда <STRONG>MANEGARM</STRONG> анонсировала два концерта в Москве и Питере. 19 апреля в клубе "Город" и 20 апреля в клубе "Арктика".</P>
+Автор: Vit Belov
+
+### 11.02.2008 reviews Викинги из страны трёх корон. Зачёт.
+
+<P>Шведские викинги MANEGARM работают с 1995 года. К сожалению, за столь длительное время к ним так и не пришла заслуженная слава. Сейчас же, когда стиль viking-metal получил широкую популярность, группа, наконец-то, выйдет из подполья. Для этого MANEGARM перешли на лэйбл Sound Pollution и записали обозреваемый альбом “Vargstenen”, услышать который теперь есть шанс и у нас с вами, благодаря Irond.</P>
+<P>С этой работой MANEGARM угодили в шведские чарты, что знаменует тот прогресс, о котором я рассказал выше. Поклонники коллектива со стажем вряд ли обнаружат в музыке своих кумиров что-то новое, расчёт идёт на то, что MANEGARM заинтересует поклонников FINNTROLL, ENSIFERUM или THYRFING, на худой конец. Слегка однообразная, боевая музыка, свойственная группам, играющим в этом стиле, прерываемая атмосферными проигрышами на акустической гитаре и женскими подпевками. Вообще-то, MANEGARM записали концептуальный альбом, в перипетиях которого вам помогут разобраться переводы текстов на английский, которые находятся в буклете.</P>
+<P>Музыка MANEGARM не разорвёт ваш разум. Она не достаточно весёлая, как у FINNTROLL, и не достаточно тяжёлая, как у MOONSORROW, но посоветовать её любителям стиля не помешает. MANEGARM пора выходить из тени, и, быть может, публика обратит внимание и на первые пластинки шведов, которые также заслуживают внимания.</P>
+Автор: Vit Belov
+
+### 20.03.2008 news MANEGARM в Москве
+
+<P><IMG height=308 alt="" hspace=0 src="/images/shows_rus/2008.04/12338.gif" width=400 align=right border=5>19 АПРЕЛЯ клуб ГОРОД</P>
+<P>MANEGARM (Швеция) – PAGAN FOLK METAL<BR>АРКОНА (Москва)&nbsp; – PAGAN FOLK METAL<BR>ALKONOST (Набережные Челны) – PAGAN DOOM FOLK METAL <BR>KALEVALA (Москва) – PAGAN FOLK METAL</P>
+<P>Начало в 18:00</P>
+<P>Стоимость билетов:<BR>650 рублей - по телефону 8-903-538-34-38<BR>700 рублей - в предварительной продаже.<BR>900 рублей - в день концерта.<BR>Все вопросы по : тел +7-903-538-34-38 , </P>
+<P>email: <A href="mailto:volh07@mail.ru">volh07@mail.ru</A> <BR>Адрес клуба: ул. Старая Басманная, д. 20/13 м.Красные Ворота<BR>+7 (495) 729-36-28<BR>+7 (495) 261-61-74</P>
+<P>MANEGARM (Швеция)</P>
+<P><A href="http://www.manegarm.com/">http://www.manegarm.com/</A></P>
+<P>Jonas Almquist - гитара (1995 -<BR>Markus Ande - гитара (1996 -<BR>Pierre Wilhelmson - бас (1995 -<BR>Erik Grawsio - ударные, вокал (1995 - 2007)<BR>Svenne Rosendal - вокал (1995 - 1996)<BR>Jonny Wranning - вокал (1996 - 1997)<BR>Goggan - вокал (1997)<BR>Viktor Hemgren - вокал (1997 -<BR>Marten Matsson - гитара (1995 - 1997)<BR>Jacob Hallegren - ударные (2008 -<BR>Jan Liljekvist - скрипка, флейта (2007 -.</P>
+<P>2007 - VARGSTENEN ( THE WOLF STONE ) CD Black Lodge / Sound Pollution<BR>2006 - URMINNES HAVD ( THE FOREST SESSIONS ) CD Displeased<BR>2005 - VREDENS TID ( AGE OF WRATH ) CD Displeased<BR>2004 - VARGARESA - THE BEGINNING CD Displeased<BR>2003 - DODSFARD CD Displeased<BR>2000 - HAVETS VARGAR CD Displeased<BR>1998 - NORDSTJARNANS TIDSALDER CD Displeased<BR>1997 - UR NATTVINDAR (DEMO)<BR>1996 - VARGARESA (DEMO)</P>
+<P>Шведская группа, основана в ноябре 1995 года в городе Norrtalje тремя друзьями под другим названием, спустя месяц было решено назваться Manegarm. Первый состава - Svenne Rosendal - вокал, Jonas Almquist - гитары, Pierre Wilhelmsson - бас. Вскоре нашелся второй гитарист Marten Matsson, он привел барабанщикка Erik Grawsio. Под именем Antikrist группа репетировала недолго и в ноябре 1995 года сочинила самую первую свою песню "Manljus". Месяцем позже название группы было изменено на современное - Manegarm. В мае 1996 года появилась первая демо-запись Vargaresa, записанная в Underground Studios и включившей в себя четыре трека. Спустя пару месяцев состав был распущен и собран вновь с другим вокалистом (Jonny Wranning) и вторым гитаристом Markus Ande. В конце 1996 года группа была готова к записи второй демо-записи. В феврале 1997 года она была записана в Sunlight studios и разослана по лейблам. В музыке трех композиций появились скрипки и женский вокал. После выхода второго демо к группе присоединился Goggan. Но и он не долго продержался в составе, и к концу года группа нашла постоянного вокалиста - Viktor Hemgren. В августе 1997 года группу подписывает лейбл Displeased, после чего Manegarm записывают дебютный диск Nordstjarnans tidsalder, выпущенный в мае 1998 года. Группа было очень довольна результатом. Очень хорошо смотрелись скрипка Janne Liljequist с вокалом Ymer Mossige-Norheim. Через несколько месяцев группа приступила к записи нового, второго альбома. Но возникли проблемы со студией, и работу пришлось отложить на несколько месяцев. Летом 2000 года они приступают к записи запись второго альбома Havets Vargar. Это была музыка на основе довольно сумрачного блэка и мелодичного дэта с использованием женского вокала, акустических инструментов и сэмплов. В итоге получился, в общем, добротный викинг-метал. В августи 2003 году они выпустили диск Dodsfard. Популярность группы приближадась к пиковуму уровню. Третий альбом норвежского коллектива имеет гораздо больший акцент на темы викингов, как в музыкальном плане, так и в лирическом. На новой пластинке упор в древнескандинавскую тему. В 2004 году оба демо были переизданы на альбоме Vargaresa _ The Beginning. А Mеnegarm заперлись в студии для записи четвертого диска - Vredens Tid. Он вышел 28 сентября 2005 года и получил крайне восторженные отзывы прессы. В 2005 году группа дала несколько концертов в разных местах Европы - Германия, Бельгия, Шотландия и Австрия. В начале 2006 года начались работы над новым альбомом. Акустический мини-альбом Urminnes Hдvd-the forest session вышел 28 июня. Затем состоялся двухнедельный европейский тур со Skyforger и Goddess of Desire. Подошло к концу сотрудничество с Displeased Records. Они подписали контракт со шведским лейблом Black Lodge, в октябре 2006 года в студии Studio Underground (Misteltein, Carnal Forge, Necrodeath, October Tide, Draconian, Steel Attack) начались работы над новым студийным полноформатныйм альбомом Vargstenen. Продюсировал и сводил диск Pelle Saether. Это отличная музыка для поклонников Finntroll и Thyrfing, мужественный, боевой викинг-метал! На диске, однако, найдется и пара очень красивых акустических фрагментов. 18 мая 2007 года он увидел свет, а вскоре попал в национальный альбомный чарт на 59 место и занял 8 место в специализированном "хард-роковом" чарте Швеции. Шведские викинг-металлисты взяли барабанщика Jacob Hallegren в качестве сессионного ударника для предстоящего турне. Дебют Jacоb состоялся 7 декабря 2007 года на концерте в Zwolle, Голландия.</P>
+Автор: Vit Belov
+
+### 13.04.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В эфире "голосование деньгами" за февраль-март. <FONT color=#ddd9d0>Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</FONT></FONT></P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=687 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 51pt; mso-width-source: userset; mso-width-alt: 2486" width=68>
+<COL style="WIDTH: 205pt; mso-width-source: userset; mso-width-alt: 9984" width=273>
+<COL style="WIDTH: 212pt; mso-width-source: userset; mso-width-alt: 10313" width=282>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 51pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" width=68 height=17><FONT face="Times New Roman" size=2><STRONG>1(2)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 205pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=273><FONT face="Times New Roman" size=2><STRONG>CREMATORY</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 212pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=282><FONT face="Times New Roman" size=2><STRONG>PRAY</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>2 (NEW)</STRONG></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>RAGE</STRONG></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>CARVED IN STONE</STRONG></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>3 (3)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:str="AYERON "><FONT size=2><STRONG><FONT face="Times New Roman">AYREON<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>_1011001 (2 CD)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 15.75pt" height=21>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15.75pt; BACKGROUND-COLOR: black" height=21><FONT face="Times New Roman" size=2><STRONG>4 (1)</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>THE SCARECROW</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>5 (NEW)</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DRACONIAN</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>TURNING SEASON WITHIN</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>6 (5)</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>AXXIS</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DOOM OF DESTINY</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>7 (7)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>NORTHER</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:str="N  "><FONT size=2><STRONG><FONT face="Times New Roman">N<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>8 (28)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>BRAINSTORM</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DOWNBURST</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>9 (16)</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>MANEGARM</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>VARGSTENEN</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>10 (10)</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>SABATON</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>METALIZER</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><STRONG><FONT face="Times New Roman" size=2>2008</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>11 (17)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>BASSINVADERS(HELLOWEEN,SODOM,RAGE,DISTRACTION)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HELLBASSBEATERS</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>12 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EVIDENCE ONE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE SKY IS THE LIMIT</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>13 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ANTIMATTER<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>(ex-ANATHEMA)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEAVING EDEN</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>14 (14)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ELVENKING</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE SCYCHTE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>15 (15)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LION'S SHARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EMOTIONAL COMA</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>16 (26)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HEAVEN SHALL BURN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ICONCLAST</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>17 (25)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MELECHESH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EMISSARIES</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>18 (33)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>IMPALED NAZARENE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MANIFEST</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>19 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ELUVEITIE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SLANIA +1 bonus track</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>20 (22)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LANA LANE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>RED PLANET BOULEVARD</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>21 (30)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SAINT DEAMON(EX-DIONYSUS)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>IN SHADOWS LOST FROM THE BRAVE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>22 (4)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ANDRE MATOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TIME YO BE FREE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>23 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DARK FORTRESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EIDOLON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>24 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MYSTIC PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SATANIC CURSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>25 (42)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>Алиса</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ПУЛЬС ХРАНИТЕЛЯ ДВЕРЕЙ ЛАБИРИНТА</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>26 (48)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>INSANIA</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>AGONY - GIFT OF LIFE</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>27 (NEW)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>STILLIFE</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DESTINY</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>28 (11)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TARJA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MY WINTER STORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>29 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TANGENT</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NOT AS GOOD AS THE BOOK</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>30 (27)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATARGATIS (feat. Guests from Crematory, Empyrium)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NOVA +2 bonus tracks</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>31 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EDEN'S CURSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EDEN'S CURSE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>32 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MAGICA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HEREAFTER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>33 (NEW)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>STIGMATIC CHORUS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>GEDONIST</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>34 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ALESTORM</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>CAPTAIN MORGAN'S REVENGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>35 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MEKONG DELTA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LURKING FEAR</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>36 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATROCITY</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>WERK 80 II</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>37 (NEW)</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MINISTRY</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE LAST SUCKER</FONT></TD>
+<TD class=xl41 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>38 (41)</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>39 (NEW)</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>VISION BLEAK, THE (ex-Empyrium)</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE WOLVES GO HUNT THEIR PREY</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>40 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DIE APOKALYPTISCHEN REITER</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TOBSUCHT (DVD)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>41 (44)</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DIARY OF DREAMS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NEKROLOG 43</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 15.75pt" height=21>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15.75pt; BACKGROUND-COLOR: black" height=21><FONT face="Times New Roman" size=2>42 (20)</FONT></TD>
+<TD class=xl44 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NIGHTWISH</FONT></TD>
+<TD class=xl44 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DARK PASSION PLAY</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>43 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>KHYMERA(EX-PINK CREAM 69,GENIUS)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE GREATEST WONDER</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>44 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEVERAGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>BLIND FIRE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>45 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEVERAGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TIDES</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>46 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATROCITY</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>WERK 80 +5 bonus tracks</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>47 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NAZARETH</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE NEWS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>48 (37)</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>49 (NEW)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THRUDVANGAR</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ZWISCHEN ASGARD</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 15pt" height=20>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15pt; BACKGROUND-COLOR: black" height=20><FONT face="Times New Roman" size=2>50 (29)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>20 YEARS OF NUCLEAR BLAST</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>various (2 DVD)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 19.01.2009 news MANEGARM на Regain
+
+<P><STRONG>MANEGARM</STRONG> подписали контракт с <STRONG>Regain Records</STRONG>. Пластинка выйдет позже в этом году.</P>
+Автор: Vit Belov
+
+### 18.05.2009 news MANEGARM в октябре
+
+<P>Новый альбом шведской группы<STRONG> MANEGARM</STRONG> <STRONG>"Nattvasen" </STRONG>выйдет 22 октября на<STRONG> Regain Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.08.2009 news Новая обложка MANEGARM
+
+<P>Шведские викинги <STRONG>M&#197;NEGARM</STRONG> опубликовали обложку для своего нового альбома <STRONG>"Nattv&#228;sen"</STRONG>. Диск выйдет 22 октября на <STRONG>Regain Records</STRONG>.</P>
+<P><IMG height=400 alt="" hspace=100 src="/images/news_rus/2009.08/14944.jpg" width=400 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 24.12.2009 news Новое видео MANEGARM
+
+<P>Видео <STRONG>MANEGARM</STRONG> на песню <STRONG>"Vetrarmegin" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/PB1T_yCvGFg&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/PB1T_yCvGFg&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.11.2011 news MANEGARM на Napalm Records
+
+<P>Шведские викинги <STRONG>MANEGARM</STRONG> подписали контракт с <STRONG>Napalm Records</STRONG>. Новая работа коллектива выйдет в конце следующего года.</P>
+<P><center><IMG height=291 src="/images/news_rus/2011.11/22148.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 24.05.2013 news Новый альбом MANEGARM
+
+<P>Долгожданная работа немцев<STRONG> MANEGARM</STRONG> <STRONG>"Legions Of The North" </STRONG>выходит 28 июня на<STRONG> Napalm Records</STRONG>. Трек-лист:</P>
+<P>01. <B>Arise</B><BR>02. <B>Legions Of The North</B><BR>03. <B>Eternity Awaits</B><BR>04. <B>Helvegr</B><BR>05. <B>Hordes Of Hel</B><BR>06. <B>Tor Hj&#228;lpe</B><BR>07. <B>Wake The Gods - Bonus Track</B><BR>08. <B>Vigverk</B><BR>09. <B>Sons Of War</B><BR>10. <B>Echoes From The Past</B><BR>11. <B>Fallen</B><BR>12. <B>Forged In Fire</B><BR>13. <B>Raadh</B></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.05/25744.jpg" width=475 height=491></P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/N2RMLztRAT4?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.08.2015 news MANEGARM выпустят одноимённый альбом
+
+<P>Шведы<STRONG> MANEGARM</STRONG> выпустят альбом "<STRONG>Manegarm</STRONG>" 20 ноября на<STRONG> Napalm Records</STRONG>. Пластинка приурочена к 20-летнему юбилею коллектива. Лимитированное издание альбома будет содержать 2 бонус-трека, на одном из которых "<STRONG>Mother Earth Father Thunder</STRONG>" подпоют <STRONG>Jennie Tebler</STRONG> (сестра Куортона (BATHORY)), <STRONG>Alan Nemtheanga (Primordial)</STRONG>&nbsp;и <STRONG>Mikael (Ereb Altor)</STRONG>).</P>
+<P>Трек-лист:</P>
+<P><STRONG>“Blodorn”<BR>“Tagen av daga”<BR>“Odin owns ye all”<BR>“Blot”<BR>“Vigverk - del II”<BR>“Call of the runes”<BR>“Kraft”<BR>“Barsarkarna fran Svitjod”<BR>“Nattramn”<BR>“Allfader”<BR>“Manljus” (Bonus Track)<BR>“Mother Earth Father Thunder”</STRONG> - (Bonus Track, featuring Jennie Tebler - sister of Quorthon/Bathory, Alan Nemtheanga (Primordial) and Mikael (Ereb Altor))</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.08/28253.jpg" width=640 height=640></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

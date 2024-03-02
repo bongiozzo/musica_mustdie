@@ -48,6 +48,81 @@ Time to Battle
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2000 reviews Sympho-epic power-metal
+
+<p>На этом альбоме рассказана одна из многих душевных историй про те далёкие времена, когда миром управляло мужество и сила, а люди не признавали никакого другого оружия, кроме мечей.... Знакомый сюжет? Последователи Rhapsody и Stratovarius. В течение всего альбома слышан звон этих самых мечей, поют хоры, девушки. Не хватает только классических инструментов для полного счастья. Рецепт знакомый, но есть и недостатки, при чём достаточно весомые. Во-первых, не очень хорошее качество записи музыкального материала, весьма средний лидирующий вокал и отсутствие темпа, что необходимо для хорошего power-альбома. Медленных композиций очень много, да они красиво сделаны, но боевиков очень мало. Неплохой альбом, только вокал поменять, да засесть в более дорогой студии, и мы получим вторую Rhapsody. Дистрибьютируется всё это хозяйство SPV, поэтому есть надежда, что следующая пластинка будет более высокого качества. Для тех, кто не может прожить ни одной неделе без свежего power.</p>
+
+Автор: Vit Belov
+
+### 21.11.2000 reviews Sympho-epic power-metal
+
+<p>On this album one of many sincere histories about those far times is told, when the world was operated by courage and force, and the people did not recognize any other weapon, except for swords.... A familiar plot? The followers of Rhapsody and Stratovarius. During all album is heard ringing of these swords, sing choruses and girl. There are no only classical instruments for complete happiness. The recipe familiar, but is also lacks, at what powerful enough. First, not so high quality of record of a musical material, rather average leading vocal and absence of rate, that is necessary for a good power-album. It is a lot of slow compositions, yes they are beautifully made, but it is not enough of hits. A quite good album, only vocal needs to change, and do record in more expensive studio, and we shall receive second Rhapsody. It's distributed by SPV, therefore is hope, that the following CD will be of higher quality. For those who can not live to any week without fresh power.</p>
+
+Автор: Vit Belov
+
+### 12.07.2001 news Военно-исторический проект Их Величества
+
+<p> Итальянские пауэрщики Thy Majestie планируют выпустить EP “1066” перед выходом их очередного альбома, который преподносится как концептуальный и будет основан на реальных событиях битвы при Гастингсе в 1066 году.</p>
+<p></p>
+
+Автор: Helloween
+
+### 22.07.2002 news Hastings 1066 ....
+
+<p><IMG SRC="/images/news/2002.07/2992.jpg" ALT="pho" width=250 height=250 hspace="15" vspace="5" border="1" align="left"> "Hastings 1066" , the new album of Thy Majestie , will be out from September 30th for Scarlet Records. <BR><BR> Two songs are available for downloading and streaming : <BR><BR> <a href="http://artists.mp3s.com/artist_song/2571/2571318.html">Echoes of War </a> <BR><BR> <a href="http://artists.mp3s.com/artist_song/2571/2571318.html">The King and The Warrior </a></p>
+
+Автор: Yermola
+
+### 22.07.2002 news Hastings 1066...
+
+<p><IMG SRC="/images/news/2002.07/2992.jpg" ALT="pho" width=250 height=250 hspace="15" vspace="5" border="1" align="left"> Новый альбом пауэрщиков "Thy Majestie" - "Hastings 1066" выйдет в сентябре на Scarlet Records. Сейчас можно послушать в МР3 две песни: <BR><BR> <A HREF="http://artists.mp3s.com/artist_song/2571/2571318.html">Echoes of War </A><BR><BR> <A HREF="http://artists.mp3s.com/artist_song/2571/2571318.html">The King and The Warrior </A></p>
+
+Автор: Yermola
+
+### 12.09.2003 news THY MAJESTIE ушли со SCARLET RECORDS
+
+<p>THY MAJESTIE ушли со SCARLET RECORDS и ищут новый контракт. В настоящее время группа работает над последними двумя песнями к новому полноформатному альбому, который планируется к выходу в 2004 году.</p>
+
+Автор: Vit Belov
+
+### 16.08.2004 news THY MAJESTIE перезаключили контракт с SCARLET
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=225 alt="" hspace=0 src="/images/news_rus/2004.08/6924.jpg" width=300 align=left border=5>Как сообщалось ранее, power-metal коллектив <STRONG>THY MAJESTIE</STRONG> ушёл с итальянского лэйбла <STRONG>SCARLET</STRONG>. Но только что стало известно, что группа перезаключила контракт с этим лэйблом ещё на один альбом. Запись пластинки начнётся в сентябре, а релиз намечен на начало года. Уже сейчас Вы можете послушать одну демо-песню <STRONG>"The Siege of Paris" </STRONG>с будущего альбома с новым вокалистом <STRONG>Gabriele Grilli (ex-</STRONG><B>FURY 'N, GRACE</B>/<B>DOOMSWORD</B>): <A href="http://www.thymajestie.org/mp3/Thy%20Majestie%20-%20The%20siege%20of%20Paris%20.mp3">http://www.thymajestie.org/mp3/Thy%20Majestie%20-%20The%20siege%20of%20Paris%20.mp3</A></FONT></P>
+Автор: Vit Belov
+
+### 17.10.2004 news Новый альбом THY MAJESTIE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>THY MAJESTIE</STRONG> выйдет в марте 2005 года на <STRONG>Scarlet</STRONG>. На альбоме группа вновь обратится к исторической теме, на этот раз <STRONG>THY MAJESTIE</STRONG> расскажут истории Жанны Д'арк. Вот некоторые названия песен: 1. <STRONG>Maiden Of Steel</STRONG> 2. <STRONG>The Chosen</STRONG> 3. <STRONG>Ride to Chinon</STRONG> 4. <STRONG>...for Orleans</STRONG> 5. <STRONG>Up to the Battle!</STRONG> 6. <STRONG>The Rise of a King</STRONG> 7. <STRONG>Siege of Paris</STRONG> 8. <STRONG>Time to die</STRONG> 9. <STRONG>The Trial</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 17.10.2004 news New album by THY MAJESTIE
+
+<P>Epic-Power metallers <STRONG>Thy Majestie</STRONG> are workin' on their 3rd album that will be released by Scarlet in March 2005.<BR>After one year of negotiations with many European labels the band decided to sign again with <STRONG>Scarlet</STRONG> and it's s already in the studio for the recording sessions. Drums, bass and some guitar stuff are finished. The album, not titled yet, will be mastered by <STRONG>Goran Finnberg</STRONG> at <STRONG>Mastering Room</STRONG> (Sweden). Also this time, behind the lyrics there will be a concept: Giovanna D' Arco and the liberation of France against the english oppression. Be ready for another amazing 'Historical-Epic-Power Metal' album! <BR>These are some titles: 1. <STRONG>Maiden Of Steel</STRONG> 2. <STRONG>The Chosen</STRONG> 3. <STRONG>Ride to Chinon</STRONG> 4. <STRONG>...for Orleans</STRONG> 5. <STRONG>Up to the Battle!</STRONG> 6. <STRONG>The Rise of a King </STRONG>7.<STRONG> Siege of Paris</STRONG> 8. <STRONG>Time to die</STRONG> 9. <STRONG>The Trial</STRONG></P>
+Автор: Vit Belov
+
+### 19.03.2008 reviews Альбом про Жанну Д’Арк
+
+<P>Альбом итальянцев THY MAJESTIE, повествующий о Жанне Д’Арк, вышел в нашей стране с большим опозданием. Многие любители симфонического power-metal ожидали эту работу с нетерпением. В принципе, здесь есть, что послушать.</P>
+<P>Безусловно, средней power-metal группе сложно записать такой альбом, который выделит её из серого ряда себе подобных. Всем понятно, что THY MAJESTIE не являются лидерами стиля. Итальянская группа записала несколько неплохих альбомов и была на хорошем счету у любителей подобной музыки, но сказать, что их альбомы потрясли истоки sympho-power-metal, было бы неправильно. Музыканты пошли по излюбленному пути, взялись за концепцию. Теперь каждый, кто будет рассказывать об их альбоме, упомянет Жанну Д’Арк, а это, уже какое-никакое, определение. </P>
+<P>THY MAJESTIE представляют среднестатистический итальянский power-metal. И это главное определение этой группы. Приятные мелодии, не очень техничный вокал, красивые симфонические аранжировки. Мило. И про Жанну Д’Арк.</P>
+Автор: Vit Belov
+
+### 19.05.2008 news THY MAJESTIE выложили песню
+
+<P><IMG height=378 alt="" hspace=0 src="/images/news_rus/2008.05/12528.jpg" width=400 align=right border=5>Итальянская группа <STRONG>THY MAJESTIE</STRONG> выложила на своей<STRONG> MySpace</STRONG> страничке новую песню "<STRONG>Day Of Changes</STRONG>", которая войдёт на новую пластинку коллектива "<STRONG>Dawn</STRONG>", выходящую 1 сентября на лэйбле <STRONG>Dark Balance Records</STRONG>. Трэк-лист:</P>
+<P>Chapter One: Trapasso - Exequies of the Formal Sphere<BR>01. <B>As You Fall</B><BR>02. <B>M.A.D.</B><BR>03. <B>Dawn</B><BR>04. <B>The Hunt</B><BR>Chapter Two: Rovina - The Neverending Night<BR>05. <B>The Legacy Suite</B><BR>a. <B>Of Pain and Disgrace</B><BR>b. <B>To an Endless Devotion</B><BR>c. <B>Inferis Armata</B><BR>d. <B>Two Minutes Hate</B><BR>e. <B>The Legacy</B><BR>06. <B>Out The Edge</B><BR>Chapter Three: Vendetta - A New Dawn<BR>07. <B>Day of the Changes</B><BR>08. <B>Through Heat and Fire</B></P>
+<P>Ссылка: <A href="http://www.myspace.com/thymajesty">http://www.myspace.com/thymajesty</A></P>
+Автор: Vit Belov
+
+### 10.02.2009 news THY MAJESTIE выпускают DVD
+
+<P>В этом году на <STRONG>Dark Balance Records </STRONG>выйдет новый концертный DVD <STRONG>THY MAJESTIE</STRONG>. Нам обещают более часа концертного "рубилова" с участием женского хора. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">The King And The Warrior</B><BR itxtvisited="1">02. <B itxtvisited="1">M.A.D. </B><BR itxtvisited="1">03. <B itxtvisited="1">Ride To Chinon</B><BR itxtvisited="1">04. <B itxtvisited="1">Echoes Of War</B><BR itxtvisited="1">05. <B itxtvisited="1">Under Siege</B><BR itxtvisited="1">06. <B itxtvisited="1">Through The Bridge Of Spears</B><BR itxtvisited="1">07. <B itxtvisited="1">Anger Of Fate</B><BR itxtvisited="1">08. <B itxtvisited="1">As You Fall</B><BR itxtvisited="1">09. <B itxtvisited="1">The Chosen</B><BR itxtvisited="1">10. <B itxtvisited="1">Wings Of Wind</B><BR itxtvisited="1">11. <B itxtvisited="1">Days Of The Changes</B><BR itxtvisited="1">12. <B itxtvisited="1">Maiden Of Steel</B><BR itxtvisited="1">+ Bonus Track</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -17,6 +17,16 @@
 * C группой "{{{band}}}" {{{description}}}
 {{/relations}}
 
+## Публикации
+
+{{#contents}}
+### {{content_date_format}} {{content_type}} {{title}}
+
+{{{content}}}
+Автор: {{{fullname}}}
+
+{{/contents}}
+
 ## Обсуждения
 
 {{#topics}}

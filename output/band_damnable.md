@@ -8,6 +8,17 @@ brutal death/grind from Poland
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.11.2002 news Новости Moral Insanity prods
+
+<p>На Moral Insanity prods [www.moral-insanity.org] вышла лицензионная МС-версия последнего альбома ведущей death-бригады польского подземелья HATE. Подробности: http://hatesatanic.org/russian; e-mail: hate@moral-insanity.org.</p>
+<p> Также в новостях от этой конторы: <br>Польские brutal death/grind маньяки #1 будут атаковать нас со сцены в рамках беларуско-украинского тура в декабре. Компанию им, скорее всего, составят MENTAL DEMISE, RASTA, VELD. Подробности вскоре.</p>
+<p> Украинские ветераны-брутальщики Mental Demise завершают запись нового альбома, который будет называться "Disgraceful Sores" и включит 7 трэков брутального и интеллектуального death/grind. Трэк-лист: Posterity's Defect Removal / Pornopedophilic Mocery / Skeleton 509 / Totsk / Soporific Anabiosis / Coitus Per Machina / Mattoid (Sensless Prophet).</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

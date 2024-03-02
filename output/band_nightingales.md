@@ -91,6 +91,93 @@ Mastered by Ansgar Ballborn and Wolfgang Stach.
 * C группой "In Blackest Velvet" 
 * C группой "Very End, The" Bjorn (vocal)
 
+## Публикации
+
+### 29.10.1999 news 
+
+<p>Night In Gales закончили работу над новым альбомом "Nailwork" вместе с продюсером Харисом Джонсом.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Night In Gales только что закончили запись нового альбома "Nailwork".</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 reviews 
+
+<p>Третий альбом немецкой группы зарекомендовавшей себя последователями IN FLAMES. Ну что же, группа осталась верна себе. Всё тот же быстрый и очень мелодичный дэт-металл с хрюкающим вокалом. Но группа, пытается и привносить свое. Много экспериментов с чистым вокалом, более тяжелый звук и жесткие риффы создают некоторую иллюзию какой-никакой оригинальности, но тут же следует сольная часть и наследие шведов становится более чем очевидным. Хотя мне, несмотря ни на что, творчество группы очень интересно, поэтому и их новый альбом я прослушал с большим удовольствием, и в ближайшее время обязательно еще раз (а то и больше) послушаю. (8,5)</p>
+
+Автор: Dimas
+
+### 30.09.2000 news Night In Gales уходят из Nuclear Blast.
+
+<p> Сотрудничество между Night In Gales и Nuclear Blast в дальнейшем прекращается. Увеличивающийся недостаток содействия вынудил группу покинуть лейбл. В настоящее время Night In Gales пишут несколько убойных вещей к будущему продолжению "Nailwork". Альбом вероятно выйдет в начале 2001 года.</p>
+
+Автор: Morsus
+
+### 30.09.2000 news Night In Gales leaves Nuclear Blast.
+
+<p> The cooperation between Night In Gales and Nuclear Blast is no more. The increasing lack of promotion etc. forced band to leave the label. Currently Night In Gales are writing some nice songs for the follow-up to "Nailwork". The album will probably released in early 2001.</p>
+
+Автор: Morsus
+
+### 24.11.2000 news Night In Gales подписали контракт с Massacre Records.
+
+<p>Night In Gales только что заключили контракт с Massacre Records и ожидают плодотворного сотрудничества. Следующий альбом, названный "Necrodynamic", будет выпущен в мае 2001 года, после чего группа прокатится с концертами по Европе.</p>
+
+Автор: Morsus
+
+### 24.11.2000 news Night In Gales signed to Massacre Records.
+
+<p>Night In Gales just signed to Massacre Records and are looking forward to a cool cooperation. The following album , named "Necrodynamic" will be released in May 2001. Afterwards the band will tour on Europe.</p>
+
+Автор: Morsus
+
+### 22.01.2001 news NIGHT IN GALES в студии
+
+<p>С прошлой среды NIGHT IN GALES засели в студию для записи 4-го полноформатника "Necrodynamic". На сегодняшний день уже прописаны партии всех ударных. Вы можете знакомиться со свежими новостями от команды на сайте http://www.n-i-g.com.</p>
+
+Автор: Yermola
+
+### 22.01.2001 news NIGHT IN GALES hit the studio
+
+<p>NIGHT IN GALES hit the studio to begin the process of recording their fourth album "Necrodynamic". Go to their homepage http://www.n-i-g.com for daily updates about the recording.</p>
+
+Автор: Yermola
+
+### 21.03.2002 news Night In Gales ушли с Massacre Records
+
+<p>У Night In Gales снова проблемы с лейблом. Они расторгли контракт с Massacre Records и теперь ищут новый лейбл, продолжая при этом сочинять материал для следующего альбома. Выход CD намечается на конец года.</p>
+
+Автор: Morsus
+
+### 21.03.2002 news Night In Gales have left Massacre
+
+<p>Night In Gales have parted ways with Massacre Records and are presently seeking a new deal while continuing to write material for the group's next CD, due at the end of the year.</p>
+
+Автор: Morsus
+
+### 22.09.2002 news NIGHT IN GALES расстались с ударником
+
+<p>Германская команда NIGHT IN GALES осталась без ударника Christian Bass'a. В результате, группа ищет нового ударника, а Christian Bass ищет новую, более брутальную команду.</p>
+
+Автор: Dimas
+
+### 22.05.2010 news NIGHT IN GALES возвращаются
+
+<P>Немцы <STRONG>NIGHT IN GALES</STRONG> вошли в <STRONG>Studio 141</STRONG> с продюсером <STRONG>Roger Gruninger </STRONG>для записи своего пятого альбома, который выйдет уже в этом году. Последняя работа коллектива на сегодня <STRONG>"Necrodynamic" </STRONG>вышла в 2001 году на <STRONG>Massacre Records</STRONG>.&nbsp;Группа обещает возврат к корням, новая работа представит классический melodic death-metal старой волны. Помогать в реализации планов немцам будет легенда 90-х <STRONG>Dan Swano</STRONG>, в своей студии <STRONG>Unisound</STRONG> он сведёт и отмастерит будущую пластинку.</P>
+Автор: Vit Belov
+
+### 14.08.2011 news NIGHT IN GALES на Lifeforce
+
+<P>Немецкие ветераны melodic death-metal <STRONG>NIGHT IN GALES</STRONG> заключили контракт с лэйблом<STRONG> Lifeforce Records</STRONG>. Пятый альбом коллектива <STRONG>"Five Scars" </STRONG>выйдет 7 ноября. Сведение сделал икона шведской сцены <STRONG>Dan Swano</STRONG> (<B>EDGE OF SANITY</B>, <B>BLOODBATH</B>). </P>
+<P>Предыдущий альбом <STRONG>NIGHT IN GALES</STRONG> <STRONG>"Necrodynamic" </STRONG>вышел в 2001 году на <STRONG>Massacre Records</STRONG>.</P>
+<P><center><IMG height=317 src="/images/news_rus/2011.08/20583.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

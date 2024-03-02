@@ -235,6 +235,244 @@ Jason Rullo Drums
 * C группой "Allen, Russell" singer
 * C группой "Waken Eyes" Mike Lepond (bass)
 
+## Публикации
+
+### 01.08.2000 news Новый альбом Symphony X.
+
+<p>Новый альбом Symphony X выйдет 9 октября в Европе. Он будет называться "V - The New Mythology Suite".</p>
+
+Автор: Vit Belov
+
+### 01.08.2000 news Symphony X&#39;s new album
+
+<p>The eagerly anticipated new album from Symphony X now has a tentative release date of October 9th for Europe. The album entitled "V - The New Mythology Suite" will be released throughout Europe via InsideOut, except in Germany where it will be released by EMI.</p>
+
+Автор: Vit Belov
+
+### 18.09.2000 reviews Сумерки на Олимпе
+
+<p>Насколько мелодичным может быть прог-металл и насколько прогрессивным может быть нео-классический рок? На этот вопрос успешно отвечает предпоследний альбом SYMPHONY X "Twilight In Olympus". Первая вещь начинается практически как ненаписанная песня Ингви Мальмстина, но дальше не в пример шведскому гитаристу следует достаточно разнообразная музыка с переходами от забоя к медленным соло. Потрясающий мелодизм, уважительное отношение к И.С.Баху и виртуозное владение инструментами. Достойная конкуренция RHAPSODY (во всяком случае диску "Symphony Of Enchanted Lands"), правда по монолитности восприятия и общему баллу, все же уступает последним. В общем если это и "сумерки", то не на "Олимпе" прогрессивного металла. Оценка 9/10.</p>
+
+Автор: Yermola
+
+### 01.11.2000 reviews Much more progressive.
+
+<p>Эта группа зарекомендовала себя ещё со своим прошлым альбомом. Что же изменилось? Могу сказать так, музыка стала более сложная для восприятия, неподготовленный слушатель, явно задумается над тем, где же логика... Очень интересная пластинка, завораживающие мелодии, отличный вокал, в общем, всё, что мне нравится. Возможно, можно сделать небольшое замечание, к обилию вставок, разнообразных инструментальных отрезков, но я не буду этого делать, так как концепция... Всем любителям progressive-metal, порубиться здесь, конечно же, сложно, но послушать есть чего.</p>
+
+Автор: Vit Belov
+
+### 01.11.2000 reviews Much more progressive.
+
+<p>This group has recommended itself with the last album. What has changed? I can tell so, music became more complex and difficult for perception, the unprepared student, obviously will reflect above, where logic... The very interesting CD bewitching melodies, excellent vocal, in general, that is pleasant to me. Probably, it is possible to make the small remark, to an abundance of inserts, various instrumental pieces, but I shall not do it, as the concept... To all fans of progressive-metal, here is not a drive, certainly, but to listen is that. Excelent.</p>
+
+Автор: Vit Belov
+
+### 26.04.2001 news Сольник Timo Kotipelto.....
+
+<p>Вокалист "STRATOVARIUS" - Timo Kotipelto работает над дебютным сольным альбомом, запланированным к выходу на начало 2002. Ему уже удалось собрать мощную команду для записи: Mike Romeo (гитара; SYMPHONY X), Roland Grapow (гитара; HELLOWEEN), Arjen Lucassen (гитара; AYREON), Sami Virtanen (гитара; JOE DOAKES), Jari Kainulainen (басс; STRATOVARIUS), Mirka Rantanen (барабаны; TUNNEL VISION), Gas (барабаны; H.I.M.), Janne Warman (клавиши; CHILDREN OF BODOM) и Mikko Harkin (клавиши; SONATA ARCTICA).</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Timo Kotipelto debut solo album ....
+
+<p>STRATOVARIUS vocalist Timo Kotipelto is hard at work on his debut solo album, which is tentatively due to be released in early 2002. As-yet-untitled, the album will feature a host of guest appearances from some of metal's top musicians, including the following: Mike Romeo (guitars; SYMPHONY X), Roland Grapow (guitars; HELLOWEEN), Arjen Lucassen (guitars; AYREON), Sami Virtanen (guitars; JOE DOAKES), Jari Kainulainen (bass; STRATOVARIUS), Mirka Rantanen (drums; TUNNEL VISION), Gas (drums; H.I.M.), Janne Warman (keyboards; CHILDREN OF BODOM), Mikko Harkin (keyboards; SONATA ARCTICA). In related news, STRATOVARIUS have announced that they will be taking part in four European festivals this summer. The dates are as follows: June 28 - Roskilde Festival, DEN, June 30 - Bang Your Head Festival, GER, July 07 - Ruisrock Festival, FIN, July 13 - Tuska Metal Festival, FIN. Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 18.06.2001 news Новый проект участников HELLOWEEN и SYMPHONY X...
+
+<p>Вокалист "SYMPHONY X" - Russell Allen, гитарист "HELLOWEEN" Roland Grapow и барабанщик Uli Kusch создали совместный проект. По словам Allen: "Я встретился с Роландом на нашем берлинском концерте и я согласился участвовать в сайд-проекте...Надеюсь мы сможем завершить все еще до конца года..."</p>
+
+Автор: Yermola
+
+### 18.06.2001 news SYMPHONY X vocalist Russell Allen has commented ....
+
+<p>SYMPHONY X vocalist Russell Allen has commented on his rumored collaboration with HELLOWEEN guitarist Roland Grapow and drummer Uli Kusch in an as-yet-unnamed project that was initially announced via HELLOWEEN's official web site. According to Allen, "I met with Roland at [SYMPHONY X's] Berlin gig, and I agreed to do a side project with him and Uli. I'm stoked about the project, and I hope that HELLOWEEN, SYMPHONY X, and metal fans everywhere are as excited as we are about this project. Hopefully we can complete it in time for the end of the year. Although it'll be difficult, due to our schedules with SX and HELLOWEEN, I'm sure we can get it done." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.08.2001 news SYMPHONY X have been confirmed ...
+
+<p>Progressive metal gods SYMPHONY X have been confirmed as the support act for SAVATAGE on the latter band’s European tour in October. The dates for the package are as follows: <br> Oct. 05 - Oslo, Norway - Rockefeller <br> Oct. 06 - Copenhagen, Denmark - Vega Small <br> Oct. 07 - Malmo, Sweden - KB <br> Oct. 10 - Berlin, Germany - Music Hall <br> Oct. 11 - Cologne, Germany - LMH <br> Oct. 12 - Langen, Germany - Stadhalle <br> Oct. 13 - Osnabruck, Germany - Halle Gartlage <br> Oct. 14 - Dortmund, Germany - Soundgarden <br> Oct. 15 - Stuttgart, Germany - Longhorn <br> Oct. 17 - Lichtenfels, Germany - Stadhalle <br> Oct. 18 - Prattelen, Switzerland - Z7 Koncertfabrik <br> Oct. 20 - Athens, Greece - Rodon Club <br> Oct. 21 - Athens, Greece - Rodon Club <br> Oct. 24 - Florence, Italy - Flog <br> Oct. 25 - Rome, Italy - Palacisalfa <br> Oct. 26 - Brescia, Italy - Palatenda <br> Oct. 28 - Antwerp, Belgium - Hof Ter Lo <br> Oct. 29 - Tilburg, Holland - 013 <br> Oct. 30 - Paris, France - Elysee Montmartre <br> Oct. 31 - London, England - Garage. <br> In other news, SYMPHONY X will be releasing a live CD, tentatively titled SYMPHONY X — Live In Europe, through Inside Out Music Europe to coincide with the SAVATAGE European dates. A possible two-CD set, the album will reportedly include material recorded at the group’s shows in Strasbourg, Ludwigsberg, and Paris on the V tour. Finally, SYMPHONY X drummer Jason Rullo has recorded the drum tracks for an upcoming CD by Nick Van Dyk, which is being produced by FATES WARNING vocalist Ray Alder. Described as "on the prog side", the album will reportedly feature one track sung by Alder himself. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Roland Grapow и Uli Kusch ушли из HELLOWEEN?!?!?
+
+<p>Соло гитарист Roland Grapow и барабанщик Uli Kusch после прошедшего в Испании Meoroc Festival оставили группу. Пока причины для столь неожиданного ухода неизвестны, но ясно, что и Кюш и Грапов продолжат совместную работу над проектом с вокалистом SYMPHONY X - Russell Allen и сейчас оба они находятся в Лос Анджелесе, работая над песнями с Roy Z (BRUCE DICKINSON, HALFORD и т.д.). Записывать и микшировать альбом будет продюссер Энди Снип (NEVERMORE и MACHINE HEAD) в его собственной Backstage studio с 24 сентября по 11 ноября. Дополнительное микширование пройдет в домашней студии Roland Grapow в Гамбурге.</p>
+
+Автор: Yermola
+
+### 22.08.2001 news HELLOWEEN have parted ways ...
+
+<p>German metal masters HELLOWEEN have parted ways with long time lead guitarist Roland Grapow and drummer Uli Kusch following the band's August 12 appearance at the Meoroc Festival in Spain. No reason for the shocking split has been forthcoming from either camp yet, but Grapow and Kusch will continue on together and pursue their band project with SYMPHONY X vocalist Russell Allen on a full-time basis; the band is also set to feature an as-yet unnamed bassist and keyboard player. Grapow and Allen are currently spending time in Los Angeles working on songs with Roy Z (BRUCE DICKINSON, HALFORD, etc.) whom Grapow had met during last year's sessions for HELLOWEEN's The Dark Ride. The album will be recorded and mixed at producer Andy Sneap's (NEVERMORE, MACHINE HEAD, etc.) Backstage studio from September 24th through November 11th, with additional mixing scheduled to take place to Roland Grapow's home studio in Hamburg. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.09.2001 news Симфония №10
+
+<p>"SYMPHONY X" подтвердили трек-лист для готовящегося двойного CD "Live in Europe" который должен будет выйти через Inside Out Music Europe в октябре: CD1 01. Intro 02. Evolution (The Grand Design) 03. Fallen 04. Transcendence 05. Communion & The Oracle 06. The Bird-Serpent War/Cataclysm 07. On The Breath Of Poseidon 08. Egypt 09. The Death Of Balance/Candlelight Fantasia 10. The Eyes Of Medusa CD2 01. Smoke And Mirrors 02. Church Of The Machine 03. Through The Looking Glass 04. Of Sins And Shadows 05. Sea Of Lies 06. The Divine Wings Of Tragedy</p>
+
+Автор: Yermola
+
+### 05.09.2001 news Symphony X: Live in Europe ...
+
+<p>SYMPHONY X have confirmed the track listing for their upcoming double live CD, tentatively entitled Symphony X: Live in Europe, which is due to be released through Inside Out Music Europe in early October. The songs set to be included on the 105-minute effort are as follows: CD1 01. Intro 02. Evolution (The Grand Design) 03. Fallen 04. Transcendence 05. Communion & The Oracle 06. The Bird-Serpent War/Cataclysm 07. On The Breath Of Poseidon 08. Egypt 09. The Death Of Balance/Candlelight Fantasia 10. The Eyes Of Medusa CD2 01. Smoke And Mirrors 02. Church Of The Machine 03. Through The Looking Glass 04. Of Sins And Shadows 05. Sea Of Lies 06. The Divine Wings Of Tragedy Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.11.2001 news Bang Your Head Festival...
+
+<p>Вот список артистов уже подтвердивших свое участие в фестивале "Bang Your Head", который пройдет в Балингене (Германия) с 28 по 29 июня 2002: <BR><BR> GAMMA RAY <BR> MAGNUM <BR> SYMPHONY X <BR> TITAN FORCE (с участием фронтмэна JAG PANZER - Harry Conklin) <BR> RHAPSODY <BR> NEVERMORE <BR> OVERKILL <BR> VANDEN PLAS <BR> JAG PANZER <BR> TANKARD <BR> PARADOX <BR> IRON SAVIOR <BR> RAWHEAD REXX <BR> S.A. ADAMS <BR> RIVAL</p>
+
+Автор: Yermola
+
+### 07.01.2002 reviews На крыльях трагедии...
+
+<p>Просто прекрасный альбом. Здесь уже есть все, что сделало столь популярным "Twilight In Olympos". Запоминающиеся гитарные гармонии и саунд. Кто бы мог подумать, что играет все это Майкл Ромео на Фендер Стратокастер 1973 года ?!? (правда и с POD Line 6) Достаточно тяжелый звук для прога... <BR><BR> Великолепна работа басс-гитариста, то "рваные" размеры Томаса Миллера (вступление к вещи "Sea Of Lies"), то полоскание по всему грифу (вещь "Pharaoh")... Очень неожиданные и мощные хоровые распевки ("The Divine Wings Of Tragedy"). Дуэли соло-гитары и клавиш вызывают ассоциации с Ингви Мальмстином.... Но только ассоциации! Часто Ромео звучит интереснее и изобретательнее. Убедительный вокалист, подчеркивающий и динамику и лиричность песен. Браво, Рассел Аллен! <BR><BR> Трепетное и уважительное отношение к наследию И.С.Баха (вступление к "Out Of Ashes" звучит, практически как фуга!)... <BR><BR> До шедевра альбому не хватает совсем немного.... Да, и это "немного" скоро прийдет. <BR><BR> Прог-пауэр с неоклассическими элементами высшей пробы! Свободный от зауми "Dream Theater" и более песенно-ориентированный.</p>
+
+Автор: Yermola
+
+### 03.09.2002 news Одиссей от Ромео...
+
+<p>"SYMPHONY X" заканчивают запись нового альбома "The Odyssey". Работа проходит в студии Майкла Ромео "Michael Romeo's Haslet" в Нью-Джерси. Релиз будет содержать девять вещей среди которых 18-минутный опус основанный на Гомеровском эпике "Иллиада". Тексты альбома повествуют о возвращении Одиссея после Троянской Войны. По словам гитариста: "Новый CD получился намного более тяжелым чем предыдущие работы..." <BR><BR> В начале 2003 группа отправится вместе со STRATOVARIUS в европейский тур. Разогревающей командой будут финны THUNDERSTONE.</p>
+
+Автор: Yermola
+
+### 03.09.2002 news SYMPHONY X are currently putting the finishing touches ...
+
+<p>SYMPHONY X have reportedly been confirmed as the main support act on the upcoming STRATOVARIUS European tour, which is scheduled to kick off in early 2003. The opening act for tour will be Finland's THUNDERSTONE. <BR><BR> In other news, a possibility reportedly exists that SYMPHONY X will be touring with HAMMERFALL and BLIND GUARDIAN in North America sometime this fall. However, no official word has yet come down on the matter.<BR><BR> SYMPHONY X are currently putting the finishing touches to their new album, entitled The Odyssey, at guitarist Michael Romeo's Haslet, New Jersey home studio for a tentative October release through Inside Out Music. Containing nine tracks, including an 18-minute opus based on Homer's epic sequel to "The Iliad", the album traces Odysseus' perilous, decades long return from the Trojan War, including encounters with all sorts of mythological creatures. Says Romeo: "The new CD is much more focused and quite a bit heavier than a lot of our past work."</p>
+
+Автор: Yermola
+
+### 09.09.2002 news Трек лист Одиссея...
+
+<p>"SYMPHONY X" опубликовали трек-лист грядущего "The Odyssey": <BR><BR> 01. The Odyssey<BR> 02. King of Terrors <BR> 03. Awakenings <BR> 04. Incantations of the Apprentice <BR> 05. Inferno (Unleash the Fire) <BR> 06. Wait with the Wicked <BR> 07. Accolade II <BR> 08. Frontiers <BR> 09. The Turning</p>
+
+Автор: Yermola
+
+### 22.10.2002 articles Новинки лицензионного рынка (21.10 - 28.10)
+
+<p>В данных заметках, мы постараемся доносить до Вас всё то, новое, что Вы можете обнаружить на прилавках магазинов на этой неделе. Оценок не ждите… Всё в рубрике рецензии.</p>
+<p> Начнём по алфавиту. ART Music Group на прошлой неделе представила на наш суд четыре новые позиции.<IMG SRC="/images/articles_rus/2002.10/3294.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> <IMG SRC="/images/articles_rus/2002.10/3295.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">Сенсацией стало появление на лицензии по вполне доступным ценам нового альбома Kingdom Come “Independent”. Можно не разбираться в рок-музыке прошлого века, но не знать этого коллектива нельзя. Оценивать новое творение, оставим специалистам, но не признать того, что Ленни Волф – новая величина на лицензионном рынке нельзя. Спасибо AMG! Второй новиной, по известности, стал новый альбом Mystic Circle “Damien”. На прошлом альбоме группа отошла от black в сторону death. Что сейчас? Читайте <a href=”http://musica.mustdie.ru/ru/band/mystic_circle/6603/#reviews”>здесь</a>. И две последние не вполне известные группы. Medusa со своим sympho-power и Inner Shrine с gothic-metal.</p>
+<p> CD-Maximum представят на этой неделе нашему вниманию две новинки. <IMG SRC="/images/articles_rus/2002.10/3296.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">.<IMG SRC="/images/articles_rus/2002.10/3293.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> Trollheim's Grott "Bizzare Troll Technology" – альбом 2001 года, анонсирован, как нестандартный black-metal. И новый альбом группы Arwen, представляющий собой power-metal с прогрессивными элементами. Эти испанцы из конюшни Arise Records, на которой могут быть, как очень хорошие группы, так и откровенно слабые, но всё равно любителям power стоит попробовать.</p>
+<p> Следом идёт Fono, со своими новинками прошлой недели. Во-первых, это новый альбом Rotting Christ. Если Вы ещё его не купили на пиратке, купите лучше на лицензии. И ещё одна новинка по лицензии Century Media Borknagar “Quintessence”. Альбом начала этого года уже стал редкостью на рынке пиратов. Вперёд black-metal!</p>
+<p> Irond Records – контора, у которой без новинок не проходит ни одна неделя.<IMG SRC="/images/articles_rus/2002.10/3297.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="left">.<IMG SRC="/images/articles_rus/2002.10/3298.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="right"> На этот раз настоящей бомбой станет новый альбом Lake Of Tears “Neonai”. Пускай его уже тысячными тиражами продают пираты, настоящий любитель ждёт именно этого релиза. Вторым по значению стал подарок фэнам немецкой folk музыки – новый альбом Morgenstern, которые продолжают гнуть свою “In Extremo” подобную линию. Два следующих релиза Frown и Poema Arcanus представляют собой практически идентичные альбомы в жанре doom-metal – тяжёлые и медленные. Ну и напоследок Abaddon Incarnate. Irond не стесняется указывать весьма средние оценки в прессе для этого альбома, ведь это death-grind “молотилово», кто его поймёт кроме самого преданного фэна.</p>
+<p> Ну и последними по алфавиту стали и, видимо, останутся Soyuz, которые продолжают разрабатывать ниву Inside Out Records. На этой неделе всё-таки выйдут два старых альбома Symphony X. А на прошлой появились три старых альбома My Dying Bride, и альбом Anathema “Silent Enigma” (это уже, естественно, Peaceville).</p>
+<p>Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 23.09.2004 news Lande и Allen объединились в проекте
+
+<P>Два знаменитых певца <STRONG>Jorn Lande (MASTERPLAN)</STRONG> и <STRONG>Russel Allen (SYMPHONY X)</STRONG> объеденились для записи пластинки под вывеской <STRONG>LANDE/ALLEN</STRONG>. Известно также, что на гитаре в их проекте будет играть <STRONG>Magnus Karlsson</STRONG> (<B>LAST TRIBE</B>).&nbsp;Другая информация пока не сообщается.</P>
+Автор: Vit Belov
+
+### 02.08.2006 news Новости от InsideOut
+
+<P>Шведы <B>A.C.T.</B> дебютируют на InsideOut Music со свежим полноформатником <B>"Silence"</B>. Новая пластинка - уже четвертая в дискографии группы, звучание которой, сочетающее элементы мелодичного прогрессива и поп-рока, без сомнения, приглянется поклонникам <B>ASIA, UK, QUEEN</B> и поздних <B>SUPERTRAMP</B>. После выхода диска в октябре планируется также переиздании предыдущих работ коллектива: <B>"Today's Report", "Imaginary Friends"</B> и <B>"Last Epic"</B>.<BR><BR>Былые братья по оружию, музыканты <B>ASIA</B>: <B>Джон Пейн, Гатри Гован</B> и <B>Джей Шеллен</B> - вместе с клавишником <B>SPOCK'S BEARD Рио Окумото</B> работают над новым проектом <B>GPS</B>, дебютный альбом которого, <B>"Window To The Soul"</B>, выйдет в августе. Идею создания <B>GPS</B> выдвинул <B>Джон Пейн</B>, расстроенный решением бывшего коллеги <B>Даунса</B> отправиться в тур с оригинальным составом <B>ASIA</B> вместо записи нового альбома. <B>Рио Окумото</B> с радостью вызвался помочь <B>Пейну</B> в его начинаниях, взяв короткий<BR>отпуск в основной группе.<BR><BR>Грядущий диск<B> Стива Хаккета</B>, <B>"Wild Orchids"</B>, выходящий в начале сентября, станет юбилейным для InsideOut, чей каталог теперь насчитывает свыше 250 наименований. Стартовав в начале 90-х, InsideOut Music позиционировался исключительно как прог лейбл, однако сегодня его стилистический орнамент стал более ярким и разнообразным. <BR><BR>Конец сентября ознаменуется сразу несколькими выстрелами из лагеря <B>SPOCK'S BEARD</B>: группа выпускает новую пластинку примерно в одно время с выходом сольной работы гитариста "бердов", <B>Алана Морса</B>.<BR><BR><B>THE FLOWER KINGS</B> готовят поклонникам шикарный подарок - в конце сентября на прилавках появится двойной DVD&nbsp;<B>"Instant Delivery"</B>, на который вошла запись прошлогоднего выступления в Тильбурге (Голландия). Тираж DVD составит 8000 копий. Кроме того, ожидается лимитированное издание с расширенным буклетом и двойным CD в качестве бонуса.<BR><BR><B>SYMPHONY X</B> возвращаются с новым альбомом. Полноформатник, названный <B>"Paradise Lost"</B>, выйдет в конце октября.<BR><BR>Новинки от Revisited Records: четыре диска <B>AMON DUUL II</B> ("<B>Carnival In Babylon", "Live In London", "Wolf City", "Vive La Trance"</B>); переиздание работ <B>Клауса Шульца</B>: <B>"Cyborg", "Inter*face", "Dosburg Online", "Ballett 1"</B>; переиздание работ <B>Карлоса Перона</B>: <B>"Impersonator II", "Terminatrix", "Ritter Und Unholde", "La Salle Violette"</B>; наконец, три альбома от <B>GURU GURU </B>- <B>"Don't Call Us, We Call You", "Jungle" </B>и <B>"Wah Wah"</B>.<BR><BR>------------------------------------------------------------------- <BR>СВЕЖАЯ ВЫПЕЧКА / InsideOut Music<BR>-------------------------------------------------------------------<BR><BR><B>FROST "Milliontown"</B>, release: July 21st <BR><B>GPS "Window To The Soul"</B>, release: August 25th <BR><B>STEVE HACKETT "Wild Orchids"</B>, release: September 8th <BR><B>NEAL MORSE "Cover To Cover"</B>, release: August 25th <BR><B>DEREK SHERINIAN "Blood Of The Snake"</B>, release: July 28th <BR><B>DEREK SHERINIAN</B> (feat<B> Billy Idol</B> & <B>Slash</B> & <B>Zakk Wylde</B>) <B>"In The Summertime"/"Man With No Name" </B>(CD single), release: August<BR><B>TY TABOR&nbsp; "Rock Garden"</B>, release: August 25th <BR><BR>------------------------------------------------------------------- <BR>ГОТОВЯТСЯ К ВЫХОДУ / InsideOut Music<BR>--------------------------------------------------------------------<BR><BR><B>A.C.T "Silence"</B>, release: October 6th <BR><B>ALAN MORSE "Serving Suggestion"</B>, release: September<BR><B>SPOCK'S BEARD "Spock's Beard"</B>, release: September<BR><B>DARYL STUERMER "Go"</B>, release: September<BR><B>THE FLOWER KINGS "Instant Delivery"</B> (live), 2-DVD<BR><B>THE FLOWER KINGS "Instant Delivery"</B> (live), ltd. ed. 2-DVD + 2-CD<BR><B>SYMPHONY X "Paradise Lost"</B>, release: by the end of October<BR><BR>-----------------------------------------------------------------------------------------------------<BR>ГОТОВЯТСЯ К ВЫХОДУ / Revisited Records - A division of InsideOut Music<BR>-----------------------------------------------------------------------------------------------------<BR><BR><B>AMON DUUL 2 "Carnival In Babylon"<BR>AMON DUUL 2 "Live In London"<BR>AMON DUUL 2 "Wolf City"<BR>AMON DUUL 2 "Vive La Trance"<BR>GURU GURU "Don't Call Us, We Call You"<BR>GURU GURU "Jungle"<BR>GURU GURU "Wah Wah"<BR>CARLOS PERON "Impersonator II"</B>, release: August 11th<BR><B>CARLOS PERON "Terminatrix"</B>, release: August 11th<BR><B>CARLOS PERON "Ritter und Unholde"</B>, release: August 11th<BR><B>CARLOS PERON "La Salle Violette"</B>, release: August 11th<BR><B>KLAUS SCHULZE "Cyborg"<BR>KLAUS SCHULZE "Inter*Face"<BR>KLAUS SCHULZE "Dosburg Online"<BR>KLAUS SCHULZE "Ballett 1"</B><BR><BR>-------------------------------------------------------------<BR>ГОТОВЯТСЯ К ВЫХОДУ / InsideOut Distribution / Eclectic Discs<BR>-------------------------------------------------------------<BR><BR><B>JULYE DRISCOLL "1969"<BR>JADE WARRIOR "Floating World"</B>, release: September 15th <BR><B>JADE WARRIOR "Waves"</B>, release: September 15th <BR><B>SKIN ALLEY "Skin Alley"</B>, release: July 28th <BR><B>SKIN ALLEY "To Pagham And Beyond"</B>, releaes: July 28th <BR><BR>новости подготовлены совместно с интернет-источником<BR><A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков) <BR></P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 07.08.2006 news Новый альбом SYMPHONY X
+
+<P>Новый альбом прогрессивных металлеров&nbsp;<B>SYMPHONY X</B> будет называться <STRONG>"Paradise Lost".</STRONG> Выход его планируется в конце 2006 года.</P>
+Автор: Dimas
+
+### 21.09.2006 news Планы SYMPHONY X
+
+<P>Американский progressive metal&nbsp;коллектив <B>SYMPHONY X</B> начал работу над своим новым альбомом под названием <STRONG>"Paradise Lost".</STRONG> Его выход ожидается в начале 2007 года.</P>
+Автор: Dimas
+
+### 02.04.2007 news Альбом SYMPHONY X
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SYMPHONY X</STRONG> выйдет в июне на <STRONG>Inside Out</STRONG>. Группа отправляется в широкомасштабное турне, в течение которого обещает посетить и нашу страну.</FONT></P>
+Автор: Vit Belov
+
+### 13.05.2007 news Новый альбом SYMPHONY X
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=171 alt="" hspace=0 src="/images/news_rus/2007.05/11628.jpg" width=400 align=right border=5>Новый альбом <STRONG>SYMPHONY X "Paradise Lost"</STRONG> выйдет 26 июня на<STRONG> Inside Out</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Oculus ex Inferni</STRONG> <BR>2. <STRONG>Set the World on Fire (The Lie of Lies) <BR></STRONG>3. <STRONG>Domination <BR></STRONG>4. <STRONG>The Serpent’s Kiss</STRONG> <BR>5. <STRONG>Paradise Lost <BR></STRONG>6. <STRONG>Eve of Seduction <BR></STRONG>7. <STRONG>The Walls of Babylon <BR></STRONG>8. <STRONG>Seven <BR></STRONG>9. <STRONG>The Sacrifice <BR></STRONG>10. <STRONG>Revelation (Divus Pennae ex Tragoedia) </STRONG></P>
+Автор: Vit Belov
+
+### 08.08.2007 reviews И рыбку съесть, и кое-куда залезть
+
+<P>Symphony X явно перестарались. Захотели и рыбку съесть, и на ёлку залезть. Решили выпустить одновременно и мрачный, и мелодичный альбом. Протомив, между прочим, своих фанатов аж пять лет после выхода "The Odyssey". Не будем сейчас разбираться в причинах, а просто обратимся к музыкальному материалу "Paradise Lost" (нда, оригинальнее названия не придумаешь, не так ли... впрочем, нас отсылают к поэме Джона Милтона). Не то восьмой, не то девятый по счёту альбом коллектива не стал каким-то откровением. Мощная стена звука, "крутые" соляки, опять-таки "симфонизм" (который уже осторчертел, если честно), всесильные старания вокалиста Рассела Аллена - и что мы получаем в итоге? А ничего. Мелодий ноль, интересных ходов ноль, и так далее. Впрочем, фанаты Symphony X будут довольно по-любому. Наверное, будет вряд ли корректным сравнивать данный релиз и последний альбом группы Kamelot, но согласитесь, что кое-что общее у них есть. А кто из нмх лучше - вопросов-то нет, и так ясно, хотя опять-таки решать вам. Ну а я вам скажу прямо, без всяких обиняков. Любители прог-метала в любых его, даже самых скучных вариантах, скорее всего, будут рады этой пластинке. А те, кто уважает своеобразие, помноженное на красивые мелодии и интересные музыкальные решения, вряд ли захотят поставить "Paradise Lost" на полку со своими любимыми дисками.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 10.08.2007 reviews Не шедевр, но очень хороший альбом
+
+<P>Я не собирался писать рецензию на новый альбом SYMPHONY X. Думал, и так похвалят, как обычно, и связываться не надо будет. Есть такие группы, которые нравятся всем. Качественная запись, цепкие бросающиеся в глаза и уши мелодии, великолепная работа музыкантов. Всё на уровне. Всё всегда на уровне. От этого высокого уровня и происходит то, что некоторым кажется провалом и застоем в творчестве группы. Если же не ждать от группы с каждым альбомом шедевров, новые творения её будут всегда вызывать положительные эмоции. SYMPHONY X из таких.</P>
+<P>Символично название их новой работы “Paradise Lost”. Можно понять это, как невозможность достигать с каждой пластинкой идеала. Безусловно, эта работа американцев не может носить титула их лучшего альбома, но это и не повод низвергать их с завоёванных позиций. Отличные оркестровки, мелодии, в меру сложная, но не до тягомотины, музыка. Как всегда на высоте Russel Allen, который хорошо знает своё дело. Петь дифирамбы я не стану, но “Paradise Lost” заслуживает высокой оценки. Слушать его, как минимум, интересно, а некоторые трэки вызывают даже в некотором роде восторг.</P>
+<P>Не надо уставать от музыки, дорогие господа. Если вы собираете только шедевры, вам не сюда. Но если вы получаете удовольствие от качественной и мелодичной музыки, покупайте новый альбом SYMPHONY X, не прогадаете.</P>
+Автор: Vit Belov
+
+### 30.12.2008 news Christmas Metal Symphony в Тилбурге
+
+<P>В Тилбурге, Голландия 28 декабря прошёл уникальный концерт&nbsp;<STRONG>Christmas Metal Symphony</STRONG>.&nbsp;В компании с симфоническим оркестром на сцене появились&nbsp;<STRONG>Doro Pesch</STRONG>, <B itxtvisited="1">Chuck Billy</B> (<B itxtvisited="1">TESTAMENT</B>), <B itxtvisited="1">Russell Allen</B> (<B itxtvisited="1">SYMPHONY X</B>), <B itxtvisited="1">Mats Leven</B> (<B itxtvisited="1">THERION</B>, <B itxtvisited="1">YNGWIE MALMSTEEN</B>), <B itxtvisited="1">Johan Edlund</B> (<B itxtvisited="1">TIAMAT</B>), <B itxtvisited="1">Ian Parry</B> (<B itxtvisited="1">CONSORTIUM PROJECT</B>, <B itxtvisited="1">ELEGY</B>), <B itxtvisited="1">Marcela Bovio</B> (<B itxtvisited="1">STREAM OF PASSION</B>, <B itxtvisited="1">AYREON</B>), <B itxtvisited="1">Floor Jansen</B> (<B itxtvisited="1">AFTER FOREVER</B>) and <B itxtvisited="1">George Oosthoek</B> (<B itxtvisited="1">ORPHANAGE</B>). В качестве сопровождающей группы выступили:</P>
+<P><STRONG>Koen Herfst</STRONG> (EPICA) - Drums<BR itxtvisited="1"><B itxtvisited="1">Marcel Coenen</B> (SUN CAGED) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Johan Van Stratum</B> (STREAM OF PASSION) - Bass<BR itxtvisited="1"><B itxtvisited="1">Frank Schiphorst</B> (CONTROL HUMAN DELETE) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Jeffrey Revet</B> (STREAM OF PASSION) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Joost van den Broek</B> (AFTER FOREVER) ЁC Keyboards</P>
+<P>Музыканты исполнили heavy-metal классику прошлых лет:</P>
+<P>01. <B itxtvisited="1">Blood Of Kingu</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">02. <B itxtvisited="1">Victim Of Changes</B> (JUDAS PRIEST) (feat. Mats Leven)<BR itxtvisited="1">03. <B itxtvisited="1">Son Of The Staves Of Time</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">04. <B itxtvisited="1">Passion</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">05. <B itxtvisited="1">Out In The Real World</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">06. <B itxtvisited="1">Enter Sandman</B> (METALLICA) (feat. Ian Parry)<BR itxtvisited="1">07. <B itxtvisited="1">Paranoid</B> (BLACK SABBATH) (feat. Ian Parry)<BR itxtvisited="1">08. <B itxtvisited="1">Breaking The Law</B> (JUDAS PRIEST) (feat. Doro Pesch)<BR itxtvisited="1">09. <B itxtvisited="1">All We Are</B> (DORO) (feat. Doro Pesch, Floor Jansen)<BR itxtvisited="1">10. <B itxtvisited="1">I Rule The Ruins</B> (DORO) (feat. Doro)<BR itxtvisited="1">11. <B itxtvisited="1">Souls Of Black</B> (TESTAMENT) (feat. Chuck Billy)<BR itxtvisited="1">12. <B itxtvisited="1">Return To Serenity</B> (TESTAMENT) (feat. Chuck Billy, Mats LevЁ¦n)<BR itxtvisited="1">13. <B itxtvisited="1">More Than Meets The Eye</B> (TESTAMENT) (feat. Chuck Billy, George Oosthoek)<BR itxtvisited="1">14. <B itxtvisited="1">Arise</B> (SEPULTURA) (feat. George Oosthoek)<BR itxtvisited="1">15. <B itxtvisited="1">Mountains Of Madness</B> (ORPHANAGE) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">16. <B itxtvisited="1">A New Level</B> (PANTERA) (feat. George Oosthoek)<BR itxtvisited="1">17. <B itxtvisited="1">Cain</B> (TIAMAT) (feat. Johan Edlund)<BR itxtvisited="1">18. <B itxtvisited="1">Brighter Than The Sun</B> (TIAMAT) (feat. Johan Edlund, Marcela Bovio)<BR itxtvisited="1">19. <B itxtvisited="1">When The Smoke Is Going Down</B> (SCORPIONS) (feat. Johan Edlund)<BR itxtvisited="1">20. <B itxtvisited="1">My Pledge Of Allegiance No. 1</B> (AFTER FOREVER) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">21. <B itxtvisited="1">Equally Destructive</B> (AFTER FOREVER) (feat. Floor Jansen)<BR itxtvisited="1">22. <B itxtvisited="1">The Evil That Man Do</B> (IRON MAIDEN) (feat. Floor Jansen)<BR itxtvisited="1">23. <B itxtvisited="1">Intro Based on "The Odyssey"</B> (SYMPHONY X) (orchestra only)<BR itxtvisited="1">24. <B itxtvisited="1">Evolution</B> (The Grand Design) (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">25. <B itxtvisited="1">Paradise Lost</B> (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">26. <B itxtvisited="1">Dawn Of A Million Souls</B> (AYREON) (feat. Russell Allen)<BR itxtvisited="1">27. <B itxtvisited="1">Phantom Of The Opera</B> (NIGHTWISH version) (feat. Russell Allen, Floor Jansen)</P>
+<P>Видео&nbsp;<STRONG>"Souls Of Black"</STRONG> (TESTAMENT) (feat. Chuck Billy) (video by Mark van Nierop):</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 13.11.2009 news SYMPHONY X на Nuclear Blast
+
+<P><STRONG>SYMPHONY X</STRONG> подписали контракт с Nuclear <STRONG>Blast</STRONG>. Группа работает над новым альбомом, который выйдет весной следующего года.</P>
+Автор: Vit Belov
+
+### 21.06.2010 news SYMPHONY X продолжают творить
+
+<P>Американцы<STRONG> SYMPHONY X</STRONG> продолжают неторопливо работать над своим новым альбомом, который станет их первым для <STRONG>Nuclear Blast Records</STRONG>. В настоящее время записаны уже барабаны и часть ритм-гитар. В ближайших планах аранжировки вокала и мелодий, а также запись вокалиста <STRONG>Russel Allen</STRONG>.</P>
+<P>Пластинка должна появиться в продаже до конца года.</P>
+Автор: Vit Belov
+
+### 26.03.2011 news Новый альбом SYMPHONY X
+
+<P><IMG height=349 alt="" hspace=0 src="/images/news_rus/2011.03/18955.jpg" width=384 align=right border=0>Долгожданный альбом <STRONG>SYMPHONY X</STRONG> <STRONG>"Iconoclast" </STRONG>выходит 17 июня на <STRONG>Nuclear Blast Records</STRONG>. Обложку для пластинки нарисовал художник <STRONG>Warren Flanagan</STRONG> (<B>"Watchmen"</B>, <B>"The Incredible Hulk"</B>, <B>"2012"</B>), работавший до этого в кинематографе. Трек-лист лимитированного 2-CD издания:</P>
+<P>CD 1:<BR>01. <B>Iconoclast</B><BR>02. <B>The End Of Innocence</B><BR>03. <B>Dehumanized</B><BR>04. <B>Bastards Of The Machine</B><BR>05. <B>Heretic</B><BR>06. <B>Children Of A Faceless God</B><BR>07. <B>When All Is Lost</B><BR><BR>CD 2:<BR>01. <B>Electric Messiah</B><BR>02. <B>Prometheus (I Am Alive)</B><BR>03. <B>Light Up The Night</B><BR>04. <B>The Lords Of Chaos</B><BR>05. <B>Reign In Madness</B></P>
+Автор: Vit Belov
+
+### 29.06.2011 news SYMPHONY X попали в чарты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Долгожданный новый альбом<STRONG> SYMPHONY X</STRONG> <STRONG>"Iconoclast" </STRONG>попал на 76-ое мечто в чартах <STRONG>Billboard</STRONG>. Для этого понадобилось продать в США в первую неделю всего 7000 копий пластинки. Альбом должен выйти в России на <STRONG>Irond</STRONG> на следующей неделе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущая работа "<STRONG>Paradise Lost</STRONG>" вышла в июде 2007 года и "открылась" с 6500 копий. </FONT></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/TvgMtWUrs5A?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/TvgMtWUrs5A?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 05.08.2011 news Басист SYMPHONY X присоединился к SLEEPY HOLLOW
+
+<P>Басист <STRONG>Mike LePond</STRONG> (<B>SYMPHONY X</B>) присоединился&nbsp; воссоединившимся американским heavy-metal'истам<STRONG> SLEEPY HOLLOW</STRONG>. Коллектив даст первый кнцерт за 20 лет 5 ноября в Сиракьюз, штат Нью-Йорк. Новый альбом коллектива <STRONG>"Skull 13" </STRONG>выйдет осенью на <STRONG>Pure Steel Records</STRONG>/<B>High Roller Records</B>. Видео-клип на песню с этого альбома <STRONG>"Midnight" </STRONG>можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/CiwC7QkFYLM" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 01.09.2011 reviews Бронебойный снаряд от SYMPHONY X
+
+<P>Американцы SYMPHONY X могут смело считаться лидерами в progressive-metal с человеческим лицом. Коллективу успешно удавалось скрещивать сложность построения собственных композиций с красивейшими мелодиями, а атмосферность и концептуальность с почти thrash-metal тяжестью.</P>
+<P>Thrash-metal тяжесть особенно относится к новейшему альбому коллектива “Iconoclast”. Теперь SYMPHONY X перестают шутить и пригвождают слушателя бронебойными риффами, не забывая при этом поражать воображение комплексными мелодиями. Треки подобные “Bastards of the Machine" или “Children of the Faceless God” убивают наповал, а баллада “When All Is Lost” демонстрирует огромнейший потенциал коллектива в сочинении мелодичнейших и сложнейших хитов. Поначалу альбом может показаться слишком навороченным и даже несколько заумным, кажется, что мы потеряли столь самобытный коллектив в пучине высоколобого prog-metal, но, поверьте, это впечатление ошибочно. SYMPHONY X не собираются соревноваться с DREAM THEATER, в этом нет необходимости, ведь на всех альбомах группы содержание главенствует над формой, и это их главное достоинство.</P>
+<P>В этот раз американцы решили выстрелить снарядом самого тяжёлого калибра. “Iconoclast” выжигает всё на своём пути, но с лёгкостью демонстрирует, что тяжело совсем не значит тупо. Великолепный альбом, который станет одним из лучших в стиле в этом году.</P>
+Автор: Vit Belov
+
+### 08.09.2012 news Mat Sinner &quot;мутит&quot; новый проект
+
+<P>Басист <STRONG>Mat Sinner (PRIMAL FEAR, SINNER)</STRONG> объявил о создании нового пока не названного совместного проекта с вокалисто <STRONG>SYMPHONY X Russel Allen</STRONG>. Новообразованная группа сейчас в студии, где записывает альбом, который выйдет в 2013 году на <STRONG>Frontiers</STRONG>. Сведением будет заниматься давний друг Мэта <STRONG>Achim Kohler.</STRONG></P>
+<P>В записи примут гостевое участие <STRONG>Roland Grapow</STRONG> (guitar; <B>MASTERPLAN</B>, <B>HELLOWEEN</B>), <B>Randy Black</B> (drums; <B>PRIMAL FEAR</B>), <B>Alessandro Del Vecchio</B> (keyboards, vocals)&nbsp;и <B>Alexander Beyrodt</B> (guitar; <B>PRIMAL FEAR</B>, <B>VOODOO CIRCLE</B>). </P>
+<P>Продвинутые любители музыки могут посмотреть клип, где записываются барабаны для этого альбома.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/OuWo4ISXNsY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 15.08.2016 reviews Когда примитивность и безыдейность прячутся за ширмой интеллекта
+
+<p>Новый альбом некогда любимейшей прог-паверной формации на этот раз был не столь долгожданным. Как и с предыдущими дисками, выход его долго откладывался, постоянно обещалось что-то "абсолютно новое", чего вы "раньше не слышали", ну и далее по списку. Тем не менее, он всё таки вышел под крылом Nuclear Blast.</p><p>После беглого прослушивания всё стало моментально ясно - под маской техничного progressive metal скрывается скучный, однообразный и безнадёжный power-trash metal, именно так бы я всё это охарактеризовал. Поёт Аллен чрезвычайно однотипно, скорее хрипит а не поёт большую часть пластинки, никаких мало-мальских экспериментов с саундом я так же не заметил. Отдельно выскажусь о мелодизме. Припевы моментально запоминаются и точно так же забываются. Я не утрирую, я точно прослушал альбом раза 4-5 и уже через месяц не вспомнил бы ни одной песни, за исключением синглов которые слышал еще до альбома. Вообще, синглы очень показательны, боевичёк Nevermore скучен до безобразия, наличие мелодии в припеве для меня крайне сомнительно, а баллада Without You в целом, конечно, поприятнее, но настолько приторна и попсовата, что вообще мало ассоциируется с металом. Этакий Nickelback со сладкими клавишами. Похвалю, пожалуй, заглавную песню - она действительно динамична, мрачна, с крепкими мелодиями и более интересной вокальной работой. Если хочется немного порубиться, посоветую так же "Kiss of Fire". Собственно, всё. В конце альбома так же присутствует неудачная попытка нарулить балладу а ля "из старых времен", и всё вроде бы есть, кроме, собственно, внятной&nbsp; мелодии. </p><p>Symphony X заметно прибавили в популярности с Nuclear Blast, их синглы на youtube просматривались вполне на уровне Helloween и Cradle of Filth, хотя еще пару лет назад казалось что это группы принципиально разного уровня известности. Да вот только с музыкальным содержанием всё совсем не так радужно, и я, честно говоря, поставил бы и меньше, но всё же хочется быть непредвзятым по отношению к заурядному, но качественному продукту.</p>
+Автор: Horeok
+
+
 ## Обсуждения
 
 ### Symphony X

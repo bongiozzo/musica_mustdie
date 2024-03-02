@@ -31,6 +31,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.08.2011 news Новый альбом SVARTTJERN выйдет в сентябре
+
+<P>Второй альбом норвежской black-metal группы <SPAN><SPAN class=whiteMedium><STRONG>SVARTTJERN "Towards The Ultimate" </STRONG>выйдет 27 сентября на Agonia Records. В составе коллектива вокалист <STRONG>RAGNAROK</STRONG> <STRONG>HansFyrste.</STRONG></SPAN></SPAN></P>
+<P><SPAN><SPAN class=whiteMedium>Дебют коллектива <STRONG>"Misanthropic Path of Madness" </STRONG>вышел в феврале 2009 года на <STRONG>Scharzdorn</STRONG>.</SPAN></SPAN></P>
+<P><SPAN><SPAN class=whiteMedium><center><IMG height=250 src="/images/news_rus/2011.08/20610.jpg" width=250 border=0></SPAN></SPAN></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

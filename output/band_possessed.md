@@ -24,6 +24,57 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2004 reviews Старые песни о Главном.
+
+<P>Вот вы, наверное, думаете, что всякие там перевёрнутые крестики – это так, безобидная атрибутика, эпатаж и фигня на постном масле. И совершенно напрасно так думаете. Вот и музыканты группы Possessed, изобретатели и первопроходцы стиля death-metal, тоже считали, что песенки про Пентаграмму, изгоняющего Дьявола, воинов Зла и даже про Ад Священный это так, набор эпатирующих нескладух, не более того. Но увы...</P>
+<P>...В 1983 году гитарист Майк Торрао и барабанщик Майк Зюс, рекрутировав вокалиста Джеффа Бисерру, записали демо Swing Of The Axe и отправили его Брайану Слэгелю, шефу Metal Blade. Слэгель оценил по достоинству демонстрационную запись неизвестной группы из Сан-Франциско: культовый сборник Metal Massacre VI открывала песня Одержимых. Между прочим, на шестой «массакре», помимо Possessed, дебютировали Nasty Savage, Hirax, Dark Angel, Hallows Eve и Hades, а это вам не хухры-мухры. Но именно Swing Of The Axe Слэгель поставил на сборник первым трэком. Чувствовал, видать, шкурой, кому из нынешних Классиков суждено стать Легендарными. </P>
+<P>В начале 1985 года группа подписала контракт на выпуск альбома с Combat Records и выпустила Seven Churches, первую в истории прото-дэтовую пластинку. На виниловых бороздках альбома хохотал Сатана, грешники стенали и скрежетали зубами от боли и ужаса, а на бэклайне миллиардом Везувиев грохотал Ад. Музыка тогдашних трэшеров на фоне тотального звукового Армагеддона, представленного на дебюте Possessed, казалась жалким пуком. Одержимые начали свой путь к славе. </P>
+<P>Путь оказался коротким, а слава – долгой. Но Сатана за эту самую славу получил от группы сполна. 6 июня 1989 года (шестой день шестого месяца, на шестой год существования группы) Джеффа Бисерру подстрелил полицейский. Жизнь музыканту удалось спасти, но в результате ранения его разбил паралич, навсегда приковав вокалиста Одержимых к инвалидной коляске. Майк Торрао несколько лет мыкался по больницам: врачам не удавалось диагностировать его болезнь, от которой музыкант исхудал до 47 килограммов. Семь лет ушло на борьбу с недугом. Сравнительно легко отделался барабанщик Зюс – всего-навсего разводом с супругой. И только хитрый басила Лари Лалонде, втайне от всех покрестившийся, спас свою бессмертную душу и благополучно продолжил музыкальную карьеру в составе Primus. </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 13.09.2004 reviews Пред Вратами собственного забвения.
+
+<P>Второй лонгплэй Одержимых, «Пред Вратами», появился на прилавках музыкальных магазинов в канун Хэлловина 1986 года. Майк Торрао вспоминал, что во время записи диска с музыкантами происходили «вещи, которые заставили нас задуматься о правильности пути, по которому мы идём». Деталей происходившей чертовщины Торрао не разглашал, но, по всей видимости, отверстие на пятой точке у него сжалось неслабо. </P>
+<P>Во-первых, с лого группы исчез перевёрнутый крест. Во-вторых, сам логотип решено было не светить на Вратах Ада (а именно их представляла собой обложка, в виниловом варианте створки ворот открывались) и переместить с титульной стороны на задник. И, в третьих, изначально диск должен был называться Beyond The Gates Of Hell – Пред Вратами Ада. Но Ад на всякий случай сократили, мол, и так поймут. </P>
+<P>Фэны пластинку встретили тепло, но ажиотажного спроса на неё не было. По горячим следам группа выпустила пятипесенный EP The Eyes Of Horror, спродюссированный Джо Сатриани. Но и этот релиз особого энтузиазма у потенциальных покупателей не вызвал. Не сказать, чтобы обе эти работы выглядели бледновато на фоне дебюта, просто так сложились обстоятельства. Сатане же, по всей видимости, нужен был только Seven Churches, последующие пластинки не заинтересовали даже его. </P>
+<P>Последняя «номерная» пластинка Одержимых вышла уже после распада группы, в 1993 году. Майк Торрао собрал ранее нереализованный материал в сборник и назвал его Victims Of Death. Говорящее название, я бы даже сказал, своеобразный ярлык для группы. Они изобрели дэт и пали его жертвами… </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 09.06.2008 news REPOSSESSED от POSSESSED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фронтмен реактивированных американских ветеранов <STRONG>POSSESSED</STRONG> <STRONG>Jeff Becerra </STRONG>объединил свои усилия с создателями фильмов <STRONG>Shane</STRONG>&nbsp;и <STRONG>Amy Bugbee</STRONG>&nbsp;в акустическом фолковом проекте, которому дано название <STRONG>REPOSSESSED</STRONG>. Музыкальный материал группы можно послушать на <STRONG>MySpace</STRONG> страничке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/repossessed2112">http://www.myspace.com/repossessed2112</A></FONT></P>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 13.01.2011 news SADISTIC INTENT: окончание сотрудничества с Деффом Бекеррой и новый барабанщик
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18164.jpg" width=268 height=290>Дес-металлисты из&nbsp;<B itxtvisited="1">SADISTIC INTENT</B> анонсировали&nbsp;имя&nbsp;нового участника группы, им стал известный убийца барабанных палочек, по имени <B itxtvisited="1">Nick Barker</B> (на фото, <B itxtvisited="1">CRADLE OF FILTH</B>, <B itxtvisited="1">BRUJERIA</B>, <B itxtvisited="1">DIMMU BORGIR</B>, <B itxtvisited="1">LOCK UP</B>), который заменил недавно ушедшего&nbsp;Эмилио Маркиза (<B itxtvisited="1">Emilio Marquez</B>). Музыканты <STRONG>SADISTIC INTENT</STRONG>, так же, завершили&nbsp;своё сотрудничество с&nbsp;Джеффом Бекеррой&nbsp;(<B itxtvisited="1">Jeff Becerra</B>, оригинальный вокалист <STRONG>POSSESSED</STRONG>), с которым они, в течении нескольких лет,&nbsp;выступали под вывеской&nbsp;<B itxtvisited="1">POSSESSED</B>.</P>
+Автор: Headcrusher
+
+### 25.07.2016 news 3 августа выйдет tribute to POSSESSED
+
+<p>3 августа на <strong>More Hate</strong> выйдет <strong>A Tribute to Possessed "Seven Burning Churches"</strong>. </p><p>Трек лист:</p><p>1. PYRE - The Exorcist<br>2. DECEASE - Pentagram<br>3. VIOLENTOR - Burning in Hell<br>4. BESTIALITY - Evil Warriors<br>5. HELL PATROL - Seven Churches<br>6. SEPTORY - Satan's Curse<br>7. TERROR STRIKER - Holy Hell<br>8. SICHGART - Twisted Minds<br>9. GROND - Fallen Angel<br>10. CASTRUM - Death Metal<br>11. REGRESSIVE - Swing of the Axe</p><p><center><iframe style="border: 0; width: 400px; height: 120px;" src="https://bandcamp.com/EmbeddedPlayer/album=1918645411/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" seamless><a href="http://deadcenterprods.bandcamp.com/album/seven-burning-churches-a-tribute-to-possessed">Seven Burning Churches - A Tribute to Possessed by deadcenterprods</a></iframe>
+Автор: Vit Belov
+
+### 25.07.2016 news A Tribute To Possessed will be released of August, 3
+
+<p><strong>Dead Center productions</strong> sets August 3rd as official release date for digital version of <strong>A Tribute to Possessed "Seven Burning Churches"</strong>, which will be distributed through all digital stores worldwide, CD version will be released by <strong>More Hate productions</strong> the same day.</p><p>Track list:</p><p>1. PYRE - The Exorcist<br>2. DECEASE - Pentagram<br>3. VIOLENTOR - Burning in Hell<br>4. BESTIALITY - Evil Warriors<br>5. HELL PATROL - Seven Churches<br>6. SEPTORY - Satan's Curse<br>7. TERROR STRIKER - Holy Hell<br>8. SICHGART - Twisted Minds<br>9. GROND - Fallen Angel<br>10. CASTRUM - Death Metal<br>11. REGRESSIVE - Swing of the Axe</p><p>&nbsp;<center><iframe src="https://bandcamp.com/EmbeddedPlayer/album=1918645411/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" style="border: 0px currentColor; width: 400px; height: 120px;" seamless="">&lt;a href="http://deadcenterprods.bandcamp.com/album/seven-burning-churches-a-tribute-to-possessed"&gt;Seven Burning Churches - A Tribute to Possessed by deadcenterprods&lt;/a&gt;</iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

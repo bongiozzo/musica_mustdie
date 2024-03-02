@@ -42,6 +42,21 @@ O'Brien" Sielck
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.02.2003 reviews Piet Sielck сделал ещё один Helloween:))
+
+<p>Piet Sielk сделал ещё один Helloween. Вот только почти на 20 лет ошибся... Итальянская группа Airborn во многом похожа на корифеев жанра power-metal... Во первых это звук, который просто повторяет первые два альбома немцев. Простенькие тексты об угнетённых народах и иногда даже мелодии (послушайте Against The World). Забавно, что перед каждой песней автор пишет о чём она в нескольких предложениях. Рассказывать, в общем-то более не о чем... Достаточно привести фразу из буклета: arranged by Airborn (with some very welcome hint from Piet).</p>
+
+Автор: Vit Belov
+
+### 21.03.2003 reviews Piet Sielck did one more HELLOWEEN:))
+
+<p>Piet Sielck did one more HELLOWEEN. But he mistakes on almost 20 years... Italian band AIRBORN is very like on coryphaeuses of power-metal genre... On first step, it is sound, which just repeat first two albums by germans. Simple lyrics about oppressed people and even sometimes melodies (listen to Against The World). It's funny, that author writes about sense of every song. I can't tell about this album any more. I think that's enough to adduce phrase from booklet... Arranged by Airborn (with some very welcome hint from Piet).</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

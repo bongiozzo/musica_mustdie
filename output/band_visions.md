@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.07.2011 news Новый трек VISIONS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трек <STRONG>'Attentive: Reverie'</STRONG> британской группы <STRONG>VISIONS</STRONG>, играющей в стиле tech-metal, можно послушать ниже. Песня попадёт на дебют коллектива "<STRONG>Home</STRONG>", который выйдет 18 июля на <STRONG>Basick Records</STRONG>. </FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/egHmVTqmamo?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/egHmVTqmamo?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

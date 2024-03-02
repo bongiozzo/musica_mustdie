@@ -151,6 +151,229 @@ Recorded, mixed and mastered by Juho Rдihд in SoundSpiral Audio
 * C группой "Sinergy" Tonmi Lillman
 * C группой "Kylahullut" Tonmi Lillman
 
+## Публикации
+
+### 23.11.2000 news To&#x2F;Die&#x2F;For записывают новый материал.
+
+<p>В настоящее время To/Die/For записывают новый материал. Новый сингл и альбом будут выпущены в марте 2001 года.</p>
+
+Автор: Morsus
+
+### 23.11.2000 news To&#x2F;Die&#x2F;For is recording new stuff.
+
+<p>At the moment To/Die/For is recording new stuff. New single and album will be released at March 2001.</p>
+
+Автор: Morsus
+
+### 22.02.2001 news To&#x2F;Die&#x2F;For закончили запись нового альбома.
+
+<p> To/Die/For уже завершили запись своего следующего полного альбома под названием "Epilogue". Выпуск намечен на 7-ое мая.</p>
+
+Автор: Morsus
+
+### 22.02.2001 news To&#x2F;Die&#x2F;For finished the recordings for new album.
+
+<p> To/Die/For already finished the studio recordings for their next longplayer, entitled "Epilogue". Release is scheduled for the 7th of May.</p>
+
+Автор: Morsus
+
+### 31.07.2001 reviews Cамый хороший Gothic Metal
+
+<p>Cамый хороший Gothic Metal. Финны отличились еще в прошлом году выпустив интереснейший дебютный альбом "All Eternity", который сопровождался такими эпитетами, как "самая громкая сенсация в мире gothic metal из Финляндии", подспудно многие сравнивали эту группу с HIM и Sentenced. Новая же их продукция еще более превосходна. Продукция зеркального блеска, прекрасная как выдержанное вино, и красивая как девушка-мечта. Музыка финнов по-прежнему кишит замечательными мелодиями излучающими одновременно грусть, тоску и меланхолию, но тем не менее в депрессию от такой музыки не впадешь. Скорее, от нее становится спокойно на душе, появляются романтические настроения и чувство возвышенности. Все песни - классические хиты. Смена настроений, смена ритмов и темпов. Чудесные мелодии, красивые лидирующие гитары, насыщенный гитарный звук, очаровательный неповторимый мрачный вокал. Группа сохранила свой непередаваемый драматично-романтичный стиль, улучшив качество материала, а хитовость песен возросла до наивысшего предела. Надеюсь, название альбома не будет иметь место в реальности, хотя, для завершающего деятельность альбома, гениальный "Epilogue" подошел бы как нельзя кстати. Чудесный диск, музыка высочайшего класса, доставившая мне массу удовольствия.</p>
+
+Автор: Dimas
+
+### 14.08.2001 news Из Sinergy ушел ударник
+
+<p>Tommi Lillman больше не барабанщик Sinergy. Он не смог выполнять свою работу сразу в двух группах (он еще также стучит в To/Die/For). Музыканты Sinergy посчитали, что так будет лучше для всех, если группа продолжит работу без него. Все музыканты остались между собой друзьями и желают друг другу удачи. В настоящее время группа занимается поисками нового ударника. При удачном исходе, группа планирует в начале 2002 года отправиться в тур в поддержку своего нового третьего альбома.</p>
+
+Автор: Dimas
+
+### 14.08.2001 news Tommi Lillman is no longer the drummer of Sinergy
+
+<p>Tommi Lillman is no longer the drummer of Sinergy. He could not handle the responsibilities of playing in 2 bands, so we decided that it would be best for all of us if we continue without him. We are all still friends and we wish him good luck with his other band. We are currently holding auditions for a new drummer and we plan to start touring in the beginning of 2002 in support of our 3rd album.</p>
+
+Автор: Dimas
+
+### 21.09.2001 news Следующий альбом To&#x2F;Die&#x2F;For ожидается в январе
+
+<p> Очередной альбом готических металлеров To/Die/For будет называться "Jaded" и выйдет в начале 2002 года, вероятно в январе. Музыкально он будет чуть более тяжёлым, чем прежде, но по-прежнему с многочисленными электронными фишками и всё так же с красивыми мелодиями. Тем временем To/Die/For растались с гитаристом J-P. Он крайне переутомился от бескончных гастролей и решил покинуть группу.</p>
+
+Автор: Morsus
+
+### 21.09.2001 news Next album of To&#x2F;Die&#x2F;For will be released in early 2002
+
+<p>The new album of goth metallers To/Die/For will be released in early 2002, probably January. The title of the album will be "Jaded". Music is going to be a little bit heavier but will still include a lot of programming, but melodies are still there. Meanwhile the band parted ways with guitarist J-P, because he was totally tired of spending days in shitty busses and touring all over the globe.</p>
+<p></p>
+
+Автор: Morsus
+
+### 05.02.2002 news TO&#x2F;DIE&#x2F;FOR распадаются...
+
+<p>Фронтмен финнских готов "TO/DIE/FOR" Jape опубликовал сообщение на официальном сайте группы в котором объявил о распаде команды и создании нового проекта с участниками "NEW DAWN FOUNDATION" Juppe и Santtu. Так же в интервью журналу "BLABBERMOUTH" Jape разъяснил, что распад вызван финансовыми проблемами и высказался в адрес лэйбла и своего агенства с употреблением слов: fucking, sucks и assholes....</p>
+
+Автор: Yermola
+
+### 05.02.2002 news TO&#x2F;DIE&#x2F;FOR: Is It All Over?
+
+<p>Someone claiming to be Jape Perдtalo, the frontman of the acclaimed Finnish act TO/DIE/FOR, has posted a message via the group's official message board announcing the band's imminent split due to “business” reasons and vowing to carry on in a as-yet-unnamed new project together with NEW DAWN FOUNDATION members Juppe and Santtu. After the above-mentioned message had been posted, an announcement from TO/DIE/FOR's webmaster came indicating that the message board would be turning into a “read-only” forum in order to avoid having it filled with “rumors”, and closed out the message by stating that the band “is not breaking up”. Here is the posting in its entirety from the person claiming to be TO/DIE/FOR vocalist Jape Perдtalo: <BR> <BR> “i am so @#%$ bored because of this kind of business,that i canґt find any reason why i/we should go on!!!!!!!!so,,,,,weґre going to play in mexico 23-24.2.2002 and thatґs it!!!!it was soooo great to play with this band but those @#%$ monkey business guys sucks big time!!!!!!!our booking agency in finland(PIIKKIKASVI) sucks......they are assholes everyone!!!!!they canґt pay anything for us!!!!weґve been played our gigs for free!!!!!believe or not but this is true!!! now iґm going to do something else...there is a new band(nameless nowadays)...iґm playing with juppe and santtu (from new dawn foundation)and weґre going to record some demos soon.....but now itґs better that tdf is history........THANK YOU ALL AND SEE YA SOMEWHERE SOMEDAY SOMEHOW...YOURS: JAPE”</p>
+
+Автор: Yermola
+
+### 21.10.2002 news To&#x2F;Die&#x2F;For выпустят сингл и альбом
+
+<p>12-го октября реанимированные To/Die/For начнут записывать в знаменитой финской студии Astia альбом "Jaded". Уже готовы к записи одиннадцать убойных песен, рабочие названия некоторых из них: "Too Much Ain't Enough", "Jaded", "Silence Tells More", "Dying Embers". Также будет написано продолжение песенки "The Unknown" с прошлого альбома. В качестве приглашённого вокалиста в записи будет участвовать Marko Hietala из Nightwish. Сингл с альбома выйдет до Рождества 2002-го года, а сам альбом - в феврале 2003-го.</p>
+
+Автор: Morsus
+
+### 21.10.2002 news To&#x2F;Die&#x2F;For&#39;s will record next album &quot;Jaded&quot; in October
+
+<p>Recordings for To/Die/For's next album "Jaded" starts October 12th at Astia Studios in Lappeenranta, Finland. The group has 10 new heavy songs ready for recording. The working titles of some of the songs are: "Too Much Ain't Enough", "Jaded", "Silence Tells More", "Dying Embers", also a sequel to "The Unknown" will be included. A single will be released before Christmas 2002 and the album is scheduled for release in February 2003.</p>
+
+Автор: Morsus
+
+### 21.01.2003 news To&#x2F;Die&#x2F;For finished new album...
+
+<p>TO/DIE/FOR just let us know that they’re finished with the recordings of their new album “JADED”. The tracklist is as follows:</p>
+<P> 1. Dying Embers <BR> 2. (I just) Died In Your Arms <BR> 3. Too Much Ainґt Enough <BR> 4. The Unknown II <BR> 5. Jaded <BR> 6. Fall Strains <BR> 7. Forever <BR> 8. Aсos De Dolor <BR> 9. Silence Tells More..</>
+<P> And by the way, „(I Just) Died In Your Arms“ is a cover version of the famous hit from the eighties! More news soon to come…</>
+
+Автор: Vit Belov
+
+### 21.01.2003 news Трэк-лист нового альбома TO&#x2F;DIE&#x2F;FOR
+
+<p>Стал известен окончательный трэк-лист нового альбома финской группы TO/DIE/FOR под названием "Jaded", который выйдет 3 марта 2003 года на Spinefarm Records. В альбом войдут:</p>
+<p> 01. Dying Embers <BR> 02. (I Just) Died In Your Arms (CUTTING CREW cover)<BR> 03. Too Much Ain't Enough <BR> 04. The Unknown II <BR> 05. Jaded <BR> 06. Fall Strains <BR> 07. Forever <BR> 08. Artos De Dolor <BR> 09. Silence Tells More<BR> 10. Spineless (Japanese bonus track)</p>
+
+Автор: Dimas
+
+### 09.04.2003 reviews Ориентир для общей массы поп-металистов
+
+<p>Новые веяния в популярном металле заставили обратить внимание на творчество подобных групп. Ведь именно эта музыка сейчас пользуется особой популярностью у основной массы слушателей гитарной музыки. Слушал, я слушал, и всё никак не мог понять, что же такого есть в этом стиле. Нет, конечно же, толпы девочек, одетые и выкрашенные (!!!) под своих финских кумиров, не удивляют. Но, что заставляет людей, всю сознательную жизнь слушавших металл, тратить деньги и время на это? Послушав новое творение To/Die/For я наконец-то понял. Не даром группа переигрывала старые хиты pop-исполнителей 80-х, мелодика на 'Jaded' повторяет ходы euro-pop звёзд, которые были популярны у нас не меньше Black Sabbath и Rainbow. Очень мелодичные и запоминающиеся песни. Не просто стандартный набор gothic-rock риффов, а песни... К недостаткам отнесём какой-то вымученный вокал... Очень-очень приятная музыка для отдыха.</p>
+
+Автор: Vit Belov
+
+### 06.08.2003 news TO&#x2F;DIE&#x2F;FOR остались без вокалиста
+
+<p>Jape Peratalo - вокалист финской gothic metal группы TO/DIE/FOR, решил закончить свою карьеру и покинул коллектив. Музыканты усиленно ищут нового фронтмена.</p>
+
+Автор: Dimas
+
+### 25.08.2003 news Jape Peratalo has left the band...
+
+<p>Jape Perдtalo, vocalist for Finnish goth metallers TO/DIE/FOR, has left the band. "We've come to the point where we didn't expect to come," the band said in an official statement. "Jape decided to end his career in TO/DIE/FOR. "We wish him good luck in whatever he is going to do. Thanks for great times with the band. We are definitely going to continue the band as TO/DIE/FOR. Now it's time for us to look for a new singer who can fill the huge hole which Jape left." TO/DIE/FOR's most recent CD, Jaded, was released on May 20th. The follow-up to 2001's Epilogue featured guest vocals by former SINERGY and current NIGHTWISH bassist/vocalist Marco Hietala.</p>
+
+Автор: Yermola
+
+### 06.09.2003 reviews Orientir for basic mass of pop-metal bands
+
+<p>New veins in popular metal forced to pay attention on musical creations of such bands. This music is having great popularity now and basic mass of lovers of guitar music is listening to pop-gothic-rock. I listen to this music time for time and i can not understand, what can be liked by big quality of fans. No, crowd of girls, whom dressed and coulored (!!!) like their Finnish idols, can not amaze us. But What forced fans, whom listened to heavy metal for a long time, to spend their money and time for this material? I understood this paradox when i listened to last album by TO/DIE/FOR. The band played cover songs of pop-artists of 80s not accidentally. Melodies on 'Jaded' repeat moves of euro-pop stars. They was not more popular than BLACK SABBATH or RAINBOW. There are very melodious and hit songs. It is not just standart collection of gothic-rock riffs, these are songs... We classify laboured vocal as bad place of this album... Very very pleasure music for the rest.</p>
+
+Автор: Vit Belov
+
+### 09.09.2003 news TO&#x2F;DIE&#x2F;FOR выбрали себе сессионного вокалиста
+
+<p>Вокалист Juha Kylm&auml;nen (FOR MY PAIN/REFLEXION) займёт место за микрофонной стойкой TO/DIE/FOR во время мексиканского турне. Предыдущий певец Jape Per&auml;talo покинул группу, из-за "недостатка мотивации".</p>
+
+Автор: Vit Belov
+
+### 18.10.2003 news TO&#x2F;DIE&#x2F;FOR postpoined mexican tour
+
+<DIV class=theText id=storyRepeater__ctl17_storyPanel><B>TO/DIE/FOR</B>'s Mexican tour, which was originally scheduled to take place in late October/early November has been postponed until late February (Feb. 19-29). No reason was given for the postponement. As previously reported, the Finnish goth-metallers will be utilizing the services of <B>FOR MY PAIN</B>/<B>REFLEXION</B> singer <B>Juha Kylm&auml;nen</B> during the trek, following the departure of <B>Jape Per&auml;talo</B> in August.<BR><BR>In related news, <B>Per&auml;talo</B> has announced the details of his new band, <B>TIAGA</B>. Joining him in the new group are ex-<B>TO/DIE/FOR</B> guitarist <B>Juppe "J.P." Sutela</B>, ex-<B>NEW DAWN FOUNDATION</B> drummer/ex-<B>TO/DIE/FOR</B> drum tech <B>Santtu Lonka</B>, current <B>TO/DIE/FOR</B> guitarist <B>Mika "Alli" Ahtiainen</B>, and ex-<B>H.I.M.</B>/ <B>NEW DAWN FOUNDATION</B> keyboardist <B>Juska Salminen</B>. A suitable bass player is currently being sought. For more information, e-mail Tiagamusic@hotmail.com. </DIV>
+Автор: Vit Belov
+
+### 15.06.2005 news TO&#x2F;DIE&#x2F;FOR поменяли гитариста
+
+<P>Новым гитаристом <STRONG>TO/DIE/FOR</STRONG> стал <STRONG>Antza Talala. </STRONG>Он заменил ушедшего по "личным мотивам" <STRONG>Juppe "J.P." Sutela</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.08.2005 reviews Затянувшиеся конвульсии
+
+<P>Печальные финские парубки, продолжающие какой год «умирать за», пополнили свою дискографию новым слезоточивым творением… Творение, не мудрствуя лукаво, назвали просто и незамысловато – «Четыре», ибо этот альбом - уже четвертый в их творческом багаже. Не скажу, что я большой любитель подобного рода музыки, но иногда – под настроение – послушать, в принципе, можно. Однако… однако, вряд ли это будет “IV” – если коротко и лаконично, то я просто не верю – вся тоска-печаль здесь мне кажется неестественной и надуманной.. </P>
+<P>Нет, фанатам этого коллектива опасаться нечего – никуда не делись красивые (хоть и вторичные) мелодии, все так же жалуется на жизнь и прочие неудачи измученный нарзаном войсмен, все так же надрывно завывают гитары, все те же пионерские бубны в ритм-секции… Это все тот же знаменитый финский gothic/love metal (хотя, когда мне довелось услышать сей коллектив впервые, я был уверен, что это просто HIM заиграли малость потяжелее, и всегда считал «умирающих» за лав-металлеров). Но, на мой привередливый взгляд, первенец TO/DIE/FOR “All Eternity” – он так и остался лучшим (можно было бы добавить – «наравне со вторым альбомом», если бы на этом самом втором альбоме чухонские юмористы не зациклили один и тот же проигрыш на двадцать минут). Здесь – неприятный, грубый и грязный саунд, словно смазанные гитары, монотонность большинства композиций. Вот то, что услышал здесь я. Наверное, это «новый лик прогресса», начатый еще на предыдущем “Jaded” - но такой прогресс, если честно, мне чего-то не особо покатил… </P>
+<P>Для разнообразия и поддержания традиции музыканты разбавили свой собственный материал весьма неплохим кавером “New Year’s Day” на песенку знаменитых U2. На этом, в общем-то, обзор можно завершить. В целом – из серии «в одно ухо влетело…». Чуваки, может, вы одумаетесь и помрете, наконец, за что-нибудь более подобающее?</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A></P>
+Автор: Dr. Grandma
+
+### 02.03.2006 news TO&#x2F;DIE&#x2F;FOR расстались с гитаристом
+
+<P>Гитарист <STRONG>Mika 'Alli' Ahtiainen </STRONG>ушёл из<STRONG> TO/DIE/FOR</STRONG>. Группа не видит в этом трагедии и продолжает работу над новым альбомом.</P>
+Автор: Vit Belov
+
+### 03.10.2006 articles TO&#x2F;DIE&#x2F;FOR в России, пресс-релиз
+
+<P>Официальный пресс-релиз концертов To/Die/For в России.</P>
+<P>4 октября финская goth metal группа To/Die/For выпускает свой пятый по счету альбом - «Wounds Wide Open» ("С широко открытыми ранами").&nbsp; <BR>Первый сингл с диска, "Like Never Before", был запущен в ротацию на финских радиостанциях уже в июле этого года, а официально пластинка вышла в начале осени. "Wounds Wide Open", следующий за диском "IV" (2005), был записан Саму Ойтинненом в студии Fantom и Яри-Юкка Ниппала в Sonic Image и сведен в студии Abyss (Швеция) Питером Тягтгреном (DIMMU BORGIR, CELTIC FROST). Среди уже известных названий треков - "Wicked Circle", "Guilt Ridden State", "Quiet Room" и "Liquid Lies".<BR>Новый альбом&nbsp; – не единственный подарок музыкантов поклонникам скандинавской тяжелой музыки. Напомним, что в коллектив вернулся Йоонас Кото, много лет проработавший со старым составом&nbsp; группы.<BR>В тур в поддержку нового альбома отправятся: Ярно Перятало (вокал), Анти-Матти Талала и Йоонас Кото (гитары), Яркко Стрендменн (бас), Сантту Лонка (барабаны).<BR>В расписание тура также попала Россия.&nbsp; To/Die/For выступят 11 ноября в Москве и 12 ноября в Санкт-Петербурге.<BR>Расписание концертов российских концертов:<BR>Москва, 11 ноября. Клуб «Релакс». To/Die/For (Финляндия), Flash (Санкт-Петербург), Repentance (Москва), For You (Казахстан). Начало в 18.00. Стоимость билета 500 рублей.<BR>Санкт-Петербург, 12 ноября. Клуб «Арктика», To/Die/For (Финляндия), Sopor (Санкт-Петербург), The Sacrament (Санкт-Петербург), For You (Казахстан). Начало в 18.00. Стоимость билета 400 рублей.</P>
+<P>&nbsp;</P>
+<P>Москва:</P>
+<P>FLASH (sleaze-glam)<BR><A href="http://flashouse.ru/">http://flashouse.ru/</A></P>
+<P>1-й концерт – Halloween, 2002, клуб “Акватория” (Санкт-Петербург). Далее последовала череда концертов в клубах Санкт-Петербурга. Коллектив постепенно приобретал известность в своём родном городе, чему в немалой степени способствовали незабываемые сценические представления, а также неординарный визуальный образ команды. Яркие костюмы и броский макияж, в совокупности с агрессивным гитарным саундом, - всё это неизбежно вызывало неоднозначную реакцию публики и принесло группе скандальную известность в питерской клубно-музыкальной тусовке.<BR>&nbsp;&nbsp; С начала 2004 года, коллектив неоднократно выступал в клубах Москвы, и принял участие в рок-фестивале “Реактор”, в городе Киров, что произвело невероятный фурор в сердце российской провинции.<BR>&nbsp;&nbsp; За 3 с небольшим года своего существования, группа отыграла более 40 концертов, включая участие в VI Международном байкерском фестивале “Werewolf - 2003” (Ольгино), в ежегодном рок-фестивале “Ночной Вояж” (Выборг, 2005), в ежегодном фестивале пива на стадионе им. C.М. Кирова (Санкт-Петербург, 2005), а также в качестве группы, разогревающей Shabash (Эстония), Great Sorrow (Россия), Downfall (Финляндия), Private Line (Финляндия), Hybrid Children (Финляндия), Spiha (Финляндия); приняла участие в съёмках телесериала “Агент национальной безопасности” (“Две монетки”), записала демо (2004), и в 2005 году выпустила промо-альбом “Hot-N-Wet”.<BR>&nbsp;&nbsp; Осенью 2005 года, группа представляла свой город на традиционном фестивале “Дни Санкт-Петербурга” в Турку (Финляндия), где отыграла 2 концерта в “ Palatsi Youth Centre” 8 и 10 сентября. Данное мероприятие было освещено местной прессой (“Turun Sanomat”, 2005, 34762 (248)).<BR>&nbsp;&nbsp; В ноябре 2005, группа приняла участие в международном&nbsp; фестивале “The Global Battle Of The Bands”. Невзирая на то, что группа не прошла даже в Российский финал, отзывы прессы и отдельных членов жюри показывают, что FLASH оправдывает как свое название, так и скандальную репутацию и безусловно является одной из наиболее ярких и запоминающихся групп на российской сцене.</P>
+<P>&nbsp;</P>
+<P>REPENTANCE (dark-rock)<BR><A href="http://www.repentance.ru/">http://www.repentance.ru</A></P>
+<P>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Группа, носящая это гордое и загадочное название, начала свою историю в сентябре 2002 года, когда пути двух старинных друзей сошлись в одну креативную дорогу. Именно тогда Владислав Смирнов (вокал) и Константин Александров (ведущая гитара) приняли решение основать группу и определились с творческим направлением своего детища.<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Друзья принялись работать над материалом и поиском достойных музыкантов для воплощения творческих идей. В марте 2004 года состоялось дебютное выступление группы, после чего началась активная концертная деятельность. В августе 2004 года Repentance записали демо-альбом "...temptation, pride, despair...", который получил высокие отзывы среди слушателей и прессы не только на родине, но и за ее пределами. Вплоть до осени 2005 года группа часто и с успехом учавствовала в различных концертных мероприятиях на таких известных концертных площадках как СДК МАИ, "Точка", ДК Горбунова. Среди отыгранных программ особое место занимает ряд ярких выступлений с такими зарубежными звездами рок сцены как Sentenced, Charon и Negative.<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; REPENTANCE - это больше чем слово, больше чем группа, это - философия. Стиль своего творчества музыканты определяют как dark-rock. Многогранность идей воплощенных в музыке сделала группу доступной для восприятия широкой массе слушателей, начиная от ценителей легкого рока до любителей достаточно экстремальных его направлений.<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Драйвовые барабанные ритмы, четкий и глубокий бас, мощные и тягучие гитарные риффы, красивые и проникновенные мелодии ведущей гитары, эмоциональный и бархатный голос вокалиста - все это создает особенную атмосферу произведений, а качественный подход к творчеству и к имиджу коллектива является одной из основ, частью концепции группы. Выступления REPENTANCE это всегда отличный звук, шоу и драйв.</P>
+<P>&nbsp;</P>
+<P>For You (gothic love metal)<BR><A href="http://foryoumusic.nm.ru/">http://foryoumusic.nm.ru/</A></P>
+<P>Группа FOR YOU образовалась в городе Уральск (респ. Казахстан) в мае 2004 г.<BR>Прежде коллектив носил название GONE и исполнял песни на русском языке.<BR>Группа находилась под сильным влиянием таких финских музыкантов, как<BR>TO/DIE/FOR, ENTWINE, HIM, THE 69 EYES, POISONBLACK.<BR>Сейчас FOR YOU исполняют исключительно англоязычные песни, по-прежнему не чуждые влияния западных коллективов, но, бесспорно, не<BR>лишенные индивидуальности, к коей ребята продолжают упорно стремиться.<BR>На счету у сравнительно молодого коллектива уже имеется достаточно большой опыт выступлений в России и странах ближнего зарубежья.<BR>Наличие завидного потенциала и стремления к самосовершенствованию дают все<BR>основания полагать, что у FOR YOU есть все шансы на большой успех.</P>
+<P>&nbsp;</P>
+<P><BR>Санкт-Петербург:</P>
+<P><BR>SOPOR (Gothic Alt Metal)<BR><A href="http://sopor.ru/">http://sopor.ru/</A></P>
+<P>Группа Sopor образовалась 7 марта 2002 года. Изначально стиль группы обозначился<BR>как Death Metal. Без изменений Sopor просуществовали до января 2003 года. Затем<BR>после некоторых изменений в составе Sopor начали активно экспериментировать в<BR>различных направлениях тяжелой музыки. Детищем этого эксперимента стал альбом,<BR>записанный в июне 2003 на студии УЗ - "SORRY".<BR>Далее начался период творчества, когда в качестве сольных инструментов<BR>были взяты такие инструменты как скрипка, флейта, виолончель, а также<BR>появился женский бэк-вокал.<BR>Sopor рьяно взялись за освоение нового для себя стиля gothic metal.<BR>Продолжая выступать на самых значимых готических концертах и фестивалях,<BR>музыканты почти целый год трудились на своим новым альбомом. К достижениям<BR>Sopor можно отнести выступления с такими монстрами финского готик рока<BR>как Charon, To/Die/For. Также песня Vampire попала на готический сборник<BR>Radio Inferno, а песню “Пионерка” до сих пор можно услышать на волнах радио<BR>РОКС. Альбом "Phlogiston Theory" был выпущен на лэйбле Raven loft records в январе<BR>2006 года.<BR>Летом 2006 музыканты попали под воздействие таких групп как Anathema,<BR>My dying bride и Katatonia. Стилистика группы начала смещаться от более<BR>легкого и мелодического готик рока к к мрачному и ритмическому Gothic Alt Metal.<BR>Начата работа в студии... Сейчас группа готовится к выпуску нового сингла Betrayal.</P>
+<P>&nbsp;</P>
+<P>t.h.e. Sacrament (alt-gothic metal)<BR><A href="http://www.the-sacrament.com/">http://www.the-sacrament.com/</A></P>
+<P>Группа была образована в августе 2003 года. Идея создания данного проекта принадлежала Juliett и Fragile, в первый состав также входили:<BR>Камилла (vocals), Still (bass), Рам (guitars), Бакс (drums). Музыканты принялись за работу, и через пол года было записано первое демо.<BR>Стилистически музыка группы значительно отличалась от нынешнего направления, тяготея к&nbsp; коммерчески попсовому звучанию. С тех времен, претерпев жесткую реинкорнацию, до сегодняшнего t.h.e. Sacrament дошли следующие композиции: Melancholy, Fall Asleep, New Life, а также<BR>I`ve Got Only One Day и Name Me (названия и тексты двух последних из списка тем, были впоследствии изменены). Далее пошла череда изменений<BR>в составе: появился новый гитарист Vlad, который и предложил назвать группу Sacrament (приставка t.h.e. появилась значительно позже), затем к группе присоединился драммер Kirill. После нескольких концертов группе пришлось проститься с Камиллой, а позже Sacrament покинула Fragile. Начались длительные поиски вокалистки....Наконец в апреле 2005 место вокалистки занимает Lora, и уже в июне группа записывает новое демо. Первый концерт в настоящем составе состоялся 25 сентября в клубе Факел. Эта дата стала считаться днем рождения Sacrament., так как именно с этого момента группа вышла на новый для себя музыкальный уровень. Началась бурная концертная деятельность, из которой наиболее значимым было&nbsp; выступление с португальской группой Moonspell (10 марта 2006). В мае 2006 года группа поехала на свои первые гастроли в Петрозаводск. А с апреля этого же года Sacrament. приступили к записи дебютного альбома "The sobering cold", по этой причине группа взяла полугодичный перерыв в концертной деятельности. <BR>Состав:<BR>Lora (vocals)<BR>Juliett (keyboards)<BR>Still (bass)<BR>Vlad (guitars)<BR>Kirill (drums)</P>
+<P>&nbsp;</P>
+<P>For You (gothic love metal)<BR><A href="http://foryoumusic.nm.ru/">http://foryoumusic.nm.ru/</A></P>
+<P>Группа FOR YOU образовалась в городе Уральск (респ. Казахстан) в мае 2004 г.<BR>Прежде коллектив носил название GONE и исполнял песни на русском языке.<BR>Группа находилась под сильным влиянием таких финских музыкантов, как<BR>TO/DIE/FOR, ENTWINE, HIM, THE 69 EYES, POISONBLACK.<BR>Сейчас FOR YOU исполняют исключительно англоязычные песни, по-прежнему не чуждые влияния западных коллективов, но, бесспорно, не<BR>лишенные индивидуальности, к коей ребята продолжают упорно стремиться.<BR>На счету у сравнительно молодого коллектива уже имеется достаточно большой опыт выступлений в России и странах ближнего зарубежья.<BR>Наличие завидного потенциала и стремления к самосовершенствованию дают все<BR>основания полагать, что у FOR YOU есть все шансы на большой успех.<BR></P>
+Автор: Vit Belov
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 22.10.2007 news TO&#x2F;DIE&#x2F;FOR дали последний концерт у нас?
+
+<P>В субботу в Москве выступили<STRONG> CHARON</STRONG> и <STRONG>TO/DIE/FOR</STRONG>. Перед этим выступлением вокалист <STRONG>TO/DIE/FOR</STRONG> распространил заявление, в котором сообщил, что концерт в нашей столице станет последним в ближайшее время. Группа приостанавливает свою деятельность до прояснения ситуации с звукозаписывающим лэйблом.</P>
+Автор: Vit Belov
+
+### 14.04.2009 news TO&#x2F;DIE&#x2F;FOR развалились
+
+<P>Певец<STRONG> TO/DIE/FOR</STRONG> <STRONG>Jape Peratalo </STRONG>сообщил о прекращении существования группы. В пространном сообщении вокалист рассказал о всех своих стрессах, связанных с <STRONG>TO/DIE/FOR</STRONG>. Послал 'Fuck you' всем, кто тормозил развитие группы, в первую очередь низкокачественным промоутерам.</P>
+<P>Теперь<STRONG> Jape</STRONG> сконцентрируется на группе <STRONG>SUNDOWN SINDROME, </STRONG>с которой записал первое демо.</P>
+Автор: Vit Belov
+
+### 30.06.2009 news TO&#x2F;DIE&#x2F;FOR передумали
+
+<P>Вокалист<STRONG> TO/DIE/FOR</STRONG> <STRONG>Jape Peratalo</STRONG> сообщил, что, перговорив оригинальным барабанщиком группы <STRONG>Tonmi Lillman,</STRONG> не исключает возможности записи нового альбома группы в 2010/2011 годах.</P>
+<P>Напомним, что совсем недавно<STRONG> Jape</STRONG> сообщал о прекращении существования группы.</P>
+Автор: Vit Belov
+
+### 03.08.2009 news TO&#x2F;DIE&#x2F;FOR войдут в студию
+
+<P>Неожиданно воссоединившиеся <STRONG>TO/DIE/FOR</STRONG> уже спешат в студию. 6 августа группа засядет за запись нового альбома, для которого откуда-то взялось 15 новых песен.</P>
+Автор: Vit Belov
+
+### 20.12.2011 news Видео-клип TO&#x2F;DIE&#x2F;FOR
+
+<P>Новый клип финнов <STRONG>TO/DIE/FOR</STRONG> на песню <STRONG>"Hail Of Bullets" </STRONG>можно посмотреть ниже. Трек взят с нового альбома коллектива <STRONG>"Samsara"</STRONG>, который вышел на <STRONG>Фоно </STRONG>в конце прошедшей недели.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mWlz_bleYdE?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/mWlz_bleYdE?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.02.2012 news Умер Tonmi Lillman
+
+<P>Барабанщик <STRONG>LORDI</STRONG> (скрывающийся под кличкой <STRONG>Otus</STRONG>) и бывший барабанщик таких&nbsp;финских групп, как&nbsp;<STRONG>TO/DIE/FOR, SINERGY</STRONG> и<STRONG> AJATTARA Tonmi Lillman</STRONG> умер в возрасте 38 лет. Причина смерти не сообщается.</P>
+<P><STRONG>Tonmi </STRONG>являлся отпрыском музыкантов и начал&nbsp;выступать в 14 лет. Кроме барабанов, музыкант играл на басу, клавишах и гитаре.</P>
+<P>R.I.P.&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.02/23063.jpg" width=392 height=452> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый To/Die/For

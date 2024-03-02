@@ -161,6 +161,1034 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.08.2002 reviews Скучные сестры милосердия
+
+<p>Пятый альбом финской команды, совершенно недавно ставшей более-менее известной, несмотря на свое долгое существование. Материал группы выдержан в тех же тонах, что и раньше, но пожалуй стало больше ретро-интонаций, заставляющих вспомнить самое начало эпохи gothic-rock. При прослушивании чаще всего вспоминаются SISTERS OF MERCY, а также HIM, DEPECHE MODE и BILLY IDOL. Я не знаком с первыми двумя альбомами группы, но по отношению к двум последним могу отметить, что новый альбом заметно неинтересней. Уже к четвертой песне эта музыка несколько утомляет своими заунывными и монотонными мелодиями. Несколько напрягающий вокал с одними и теми же интонациями, отсутствие разнообразия. Гитарный звук воздушен, очень поверхностен и не создает никакой тяжести. Музыка мрачная и меланхоличная, но очень красивая и печальная. Хорошо записанный материал, но тем не менее несколько скучный и тусклый. Доброкачественный, но неинтересный. Все это существенно, конечно, только в сравнении с предыдущими работами. Если вы их не слушали, то этот альбом вам может показаться очень неплохим и вы даже не раз его прослушаете. Особенно наслаждаясь такими хитами, как "Dance D'Amour" и "Betty Blue". А те, кому понравился "Blessed Be" будут несколько разочарованы.</p>
+
+Автор: Dimas
+
+### 14.01.2003 news Immortal и 69 Eyes в Москве
+
+<p>Roxx Music анонсировала две ближайших акции в Москве. 22 февраля в Москве (пока неизвестно, где) выступят монстры норвежской black-metal сцены IMMORTAL. А на 8 марта дорогим девушкам в подарок будут привезены финские готик-рокеры 69 Eyes (концерт состоится в ДК им. Горбунова).</p>
+
+Автор: Vit Belov
+
+### 27.08.2003 news 69 Eyes выпускают best of и DVD
+
+<p>Финны 69 Eyes выпускают новый 'best of' альбом и первое DVD 26 сентября на EMI. Сборник будет называться "Framed In Blood - The Very Blessed Of The 69 Eyes", а видео "Helsinki Vampires". Видео будет содержать выступление группы в Хельсинки в ноябре прошлого года, а также видео-клипы и дополнительный материал. Трэк-лист обоих изданий ниже:</p>
+<p> "Framed In Blood - The Very Blessed Of The 69 Eyes" CD:</p>
+<p> 01. Brandon Lee<br> 02. Dance D'Amour <br> 03. Gothic Girl <br> 04. Wasting The Dawn<br> 05. Crashing High <br> 06. The Chair <br> 07. Velvet Touch (original) <br> 08. Call Me <br> 09. Stolen Season<br> 10. Betty Blue <br> 11. Wrap Your Troubles in Dreams <br> 12. Framed in Blood <br> 13. Tang <br> 14. Too Much to Lose <br> 15. Still Waters Run Deep <br> 16. Ghettowar Car <br> 17. Lay Down Your Arms, Girl<br> 18. Babysitter</p>
+<p> "Helsinki Vampires" DVD:</p>
+<p> Live at Tavastia Club in Helsinki, Finland in November 2002 (5.1 live sound mixed by T.T. Oksala)</p>
+<p> Videos:<br> 01. Betty Blue<br> 02. Dance d'Amour<br> 03. The Chair<br> 04. Brandon Lee<br> 05. Gothic Girl<br> 06. Wasting The Dawn<br> 07. Call Me<br> 08. Mr. Pain</p>
+<p> Extras:<br> - "Beyond The Dawn" <br> Director's cut of "Wasting The Dawn" the video by S&ouml;k&ouml; Kaukoranta<br> - "From Russia With Goth" <br> THE 69 EYES in Moscow March 2003, filmed by Jyrki 69<br> - "The 69 Eyes Over Germany" <br> photography by Tobias Seeliger</p>
+<p> +Interviews with The Vampires, Discography</p>
+
+Автор: Vit Belov
+
+### 26.05.2004 news The 69 Eyes выпускают новый альбом
+
+<P><B>The 69 Eyes</B> подписали контракт с major лэйблом <B>EMI</B>/<B>Virgin, </B>где и выпустят свой новый альбом '<B>Devils</B>'&nbsp;в октябре. </P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 18.08.2004 news THE 69 EYES выступят в Москве во второй раз!!!
+
+<P>1 октября единственный концерт в Москве дадут герои девичьих снов - группа <STRONG>THE 69 EYES</STRONG>. Концерт пройдёт в <STRONG>СДК МАИ</STRONG>, а организатором его является "<STRONG>МАИ Тур-сервис</STRONG>". </P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 21.08.2004 articles THE 69 EYES в Москве, пресс-релиз
+
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left><SPAN><STRONG><FONT size=3><?xml:namespace prefix = o ns = "urn:schemas-microsoft-com:office:office" /><o:p>ВОЗВРАЩЕНИЕ&nbsp; ВАМПИРОВ&nbsp; ИЗ&nbsp; ХЕЛЬСИНКИ!</o:p></FONT></STRONG></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left><SPAN><STRONG><FONT size=3><o:p>1 октября 2004</o:p></FONT></STRONG></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left><SPAN><STRONG><FONT size=3><o:p>THE 69 EYES</o:p></FONT></STRONG></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left><SPAN><STRONG><FONT size=3><o:p>«LOST BOYS IN MOSCOW»</o:p></FONT></STRONG></SPAN></P><SPAN><STRONG><FONT size=3><o:p>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left><BR>Радио ULTRA и «МАИ тур-сервис» представляют единственный московский концерт одних из лидеров европейского гот-рока финской группы THE 69 EYES.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>1 октября 2004 г. шоу «вампиров из Хельсинки» состоится в CDK МАИ.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Ранние 80-е, Хельсинки, Финляндия. Пятеро парней в стиле а-ля Ramones, с ног до головы упакованные в черные кожаные одежды,&nbsp; имена которых вряд ли сказали кому-либо что-либо, но сейчас известны всем их поклонникам: Jyrki, Basie, Timo-Timo, Archzie и Jussi, решают запустить в далекое плавание по волнам музыкального бизнеса свой корабль под загадочным названием THE 69 EYES, избрав своей путеводной звездой творчество IGGY & THE STOOGES, MOTORHEAD. Эту весьма заметную и с самого начала яркую команду, исполняющую заводной и безшабашный глэм–рок с примесью панковских настроений, вскоре берет под свое покровительство независимый финский лейбл Gaga Goodies, ставший для группы надежной пристанью на многие года и издавшей первые релизы группы “Bump’n’Grind”, “Motor City Resurrection”, “Savage Garden”, “Wrap Your Troubles In Dreams”. Помимо этого, этот славный лейбл берет на себя организацию многочисленных туров команды, посредством которых у ребят появляется возможность громко заявить о себе в родной Финляндии, а также в Италии, Швеции, Великобритании. Везде группу ожидал бурный прием, везде они оставляли за собой восторженные отзывы прессы и тысячи разбитых сердец своих поклонниц. Слава THE 69 EYES “бежит впереди” самой команды: в Японии группа энтузиастов создает фен-клуб THE 69 EYES, один из первых в истории группы.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 1999 год ознаменован выходом первого интернационального релиза THE 69 EYES, альбома “Wasting The Down”, издающим лейблом стал Roadrunner Records. Представляя собой уникальную комбинацию готической меланхолии и супер энергичного рок-н-ролла, “Wasting The Down” по сути своей явился переломным этапом для группы, когда, как-бы отдавая дань своему беззаботному рок-н-ролльному прошлому,&nbsp; и одновременно прощаясь с ним, музыка THE 69 EYES становится серьезнее, задумчивей, все более и более наполняясь нотами меланхолии. С этого времени финский квинтет постепенно уходит в “темное готическое царство ”, став не только “свежей кровью” в нем, но и дав жизнь&nbsp; новому веянию в музыке, которое критики окрестили не иначе как&nbsp; GOTH’N’ROLL. Одноименный сингл из этого альбома (“Wasting The Down”) долгое время находился в десятке лучших gothic-melancholic релизов года. Этот сингл знаменит не только тем, что явился музыкальной данью великому Джими&nbsp; Моррисону (Jimi Morrison, THE DOORS), но также и тем, что в процессе записи своей видео-версии был задействован главный лав-рокер нашего времени, земляк THE 69 EYES, великий и ужасный Вилле Вало (HIM), тогда еще находившийся далеко от пика своей карьеры. Это же утверждение справедливо и для самих музыкантов THE 69 EYES. После выхода “Wasting The Down” они стали известнее, однако настоящая слава все еще ждала их впереди.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; И вот наступает 2000 год, в котором группа записывает свой супер-хит “Gothic Girl”, вознесший THE 69 EYES на вершины популярности и принесший команде славу самого успешного, перспективного и стильного goth/rock проекта, достойного быть признанным не только в пределах родной Финляндии и других Европейских стран, но и во всем остальном мире. Стилистически продуманные образы музыкантов, в особенности конечно же фронтмена команды Jyrki – высокого, облаченного в черные готические одежды красавца с длинными, черными, как смоль, волосами, утонченными чертами лица и дьявольски красивым глубоким низким голосом, свели с ума бесчетное количество девушек, попавшихся в их сети и ставших навеки пленницами вампиров из Хельсинки!</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Помимо мирового признания сингл “Gothic Girl” принес группе первую престижную награду за свои таланты – “золотой диск”. Публика жаждала&nbsp; увидеть своих героев, как говориться, “вживую”, и группа откликнулась на это желание, приняв участие в известном по всей Европе готическом фестивале “Mera Luna”, заручившись поддержкой норвежских электро-готов Zeromancer. Это выступление состоялось в рамках первого “серьезного” тура THE 69 EYES, во время которого музыканты отыграли во многих городах Германии.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Сразу по окончании турне свет увидел очередной бестселлер THE 69 EYES, альбом “Blessed Be”, который, благодаря широко известным шедеврам готик-рока, как “Gothic Girl”, “Brandon Lee”, ”The Chair” и др. сразу занял почетное 4-е место в Финском чарте лучших релизов месяца и&nbsp; почти 4 месяца удерживал лидирующие позиции среди 40 лучших альбомов года. Остаток 2000 года группа проводит в турах, выступая клубах и концертных площадках преимущественно на территории Финляндии. Билеты на концерты THE 69 EYES распродаются в считанные дни, команда без преувеличений завоевывает статус национальных героев! Ведущее музыкальное издание “Orkus”, освещающее готическую музыку и все, что с ней связано, на обложке октябрьского номера которого (за 2000 год) уже во всю красуется изображение Jyrki & Co., прочит команде лидирующее место среди лучших готик-групп 2000 года.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Купаясь в лучах славы и повсеместного признания своих талантов, музыканты THE 69 EYES не перестают работать, много концертируют. Издающий лейбл Roadrunner Records выпускает синглы, вошедшие в альбом “Blessed Be”, причем каждый такой релиз оказывается на вершине того или иного музыкального чарта (“The Chair” – 2-е место в десятке лучших синглов в Финляндии). Апогеем растущей популярности THE 69 EYES стало выступление на готик-фесте “Mera Luna” в 2001 году, когда&nbsp; порядка 15000 поклонников слетелись со всего мира для того, чтобы посмотреть на выступление своих идолов.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Новый долгожданный сингл, “Dance D’Amour” вышел в свет в декабре 2001 года, что дало всем намек&nbsp; о возможном скором выходе нового студийного альбома. “Paris Kills” не заставил себя долго ждать и вышел вскоре после релиза “Dance D’Amour”, ставшего новым топ-сэллером и чарт-брэйкером. Ни у кого не оставалось сомнений в том, что новому детищу группы, “Paris Kills”, уготовано блестящее будущее. Так и произошло: альбом спродюссированный Johnny Lee Michaels, ставшим полноправным 6-м участником THE 69 EYES, был и остается шедевром melanGothik рока и по сей день. Альбом, под музыку которого можно танцевать всю ночь напролет до самого рассвета, являет собой хитросплетения “фирменного” гитарного саунда THE 69 EYES, клавишных пассажей а-ля 80-е, меланхоличных, темных и очень красивых мелодий, прекрасно сочетающихся с незабываемым, завораживающим низким готическим вокалом блестящего и неподражаемого Jyrki. Релиз этого альбома стал шикарным подарком THE 69 EYES всем своим поклонникам в ответ за поддержку, которую группа ощущала на себе повсеместно. Стоит заметить, что “Paris Kills” был записан сразу после завершения группой своего последнего турне, во время которого музыканты отыграли перед 20-тысячной армией своих поклонников! Вдохновленные и воодушевленные такой поддержкой, музыканты просто излили свою благодарность посредством&nbsp; 10-ти красивейших, ярких и стильных goth/melancholic rock хитов, вошедших в альбом “Paris Kills”. В результате – ошеломляющий успех, этот релиз вознес группу к вершинам музыкального Олимпа! Альбом оказался лидером финских чартов, в первую же неделю занял 35 место Германии. Почти сразу после выхода альбома команда отправляется многочисленные туры, следующие один за другим, выступают вместе с Paradise Lost, собирают многочисленные аудитории в клубах и на площадках Германии, Австрии, Швейцарии, Италии. Знаменитое выступление THE 69 EYES в родном клубе “Tavastia” (Хельсинки) было отснято и затем легло в основу DVD “Helsinki Vampires”.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; А 7 июня 2004 года вышел в свет новейший сингл «Lost Boys», песни с которого группа ВПЕРВЫЕ представит в Москве.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; На этом история THE 69 EYES не заканчивается! Мы уверены, что эта замечательная команда еще не раз порадует всех своих поклонников своими новыми яркими релизами. Также вскоре мы все опять сможем поприветствовать этот выдающийся финский квинтет в Москве 1 октября 2004, куда группа заглянет в рамках своего Европейского турне, запланированного на осень 2004 года и приуроченного выходу нового альбома «Devils», который сейчас готовится к выпуску. Но об этом – немного позже….</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>Вход открыт с 20:00. Начало концерта в 21:00.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>Стоимость билетов:</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>450 р. – студентам МАИ и владельцам ISIC-карт,</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>650 р. – танцпол (предварительная продажа в CDK МАИ),</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>700 р. – танцпол (стоимость в городских кассах и в CDK МАИ в день концерта)</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>1200 р. – балкон</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>Адрес: ул. Дубосековская, 8 (м. «Сокол»).</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>Справки по тел.: (095) 158-44-70.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt; TEXT-ALIGN: center" align=left>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A><BR></P></o:p></FONT></STRONG></SPAN>
+Автор: Vit Belov
+
+### 01.09.2004 news THE 69 EYES в Москве!!!
+
+<CENTER><IMG height=284 src="/images/shows_rus/2004.08/6965.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 14.09.2004 articles TOP-50 продаж лицензионных компакт-дисков за июль-август 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=661 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 44pt; mso-width-source: userset; mso-width-alt: 2157" width=59>
+<COL style="WIDTH: 202pt; mso-width-source: userset; mso-width-alt: 9837" span=2 width=269>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2>1 (1)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>2 (2)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LEMURIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>3(3)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SIRIUS B</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269 x:str="DIO "><STRONG><FONT size=2><FONT face="Arial CYR">DIO<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>MASTER OF THE MOON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SOPOR AETERNUS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LA CHAMBRE D ECHO</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>FLOWER KINGS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>ADAM & EVE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ENSEFERUM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>IRON</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>THRESHOLD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SUBSURFACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ASIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SILENT NATION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>12 (4)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LOVELORN</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>JORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>OUT OF EVERY NATION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DREAM EVIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE BOOK OF HEAVY METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>METAL CHURCH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LACRIMAS PROFUNDERE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AVE END</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HAGGARD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>18 (8)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATROCITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATLANTIS + multimedia section</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DIABOLICAL BREED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>COMPENDIUM INFERNUS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BORKNAGAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPIC</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THERION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRIUS B & LEMURIA LTD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DARK TRANQUILLITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EXPOSURES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>23 (18)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EDGUY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>24 (11)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>FINNTROLL</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NATTFODD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>25 (26)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MONSTERS OF METAL - 2</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE ULTIMATE METAL COMPILATION (2 DVD)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MALEVOLENT CREATION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WARKULT</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>GRAVEWORM</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AS THE ANGELS… / ETERNAL WINDS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>28 (6)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AYREON</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>29 (30)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FLAMES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>30 (13)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SUSPERIA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UNLIMITED</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>32 (21)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AETERNITAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LA DANSE MACABRE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>33 (15)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CREMATORY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>REVOLUTION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DE/VISION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>6 FEET UNDERGROUND</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>35 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CATHARSIS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" x:str="ПРИЗРАЧНЫЙ СВЕТ +multimedia "><FONT size=2><FONT face="Arial CYR">ПРИЗРАЧНЫЙ СВЕТ +multimedia<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>KEVIN DUBROW (ex-QUIET RIOT)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FOR THE KILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DVAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>TAAI LIIRA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>VOODOO HILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WALTARI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>RARE SPECIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UMBRA ET IMAGO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MEMENTO MORI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MISANTHROPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SADISTIC SEX DAEMON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>42 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>RHAPSODY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE DARK SECRET EP</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>43 (9)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>MOTORHEAD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>INFERNO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>44 (12)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IMPERANON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>STAINED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SERAPHIM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>SHYLOCK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>WELCOME TO ILLUSION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>POWERQUEST</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NEVERWORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ASTARTE (DIMMU BORGIR)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SYRENS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>49 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THEATRES DES VAMPIRES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NIGHTBREED OF MACABRIA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>50 (32)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE 69 EYES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BLESSED BE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR></TBODY></TABLE>* - в магазин Metal&Progressive в ТВЦ Рубин
+Автор: Vit Belov
+
+### 24.09.2004 news Трэк-лист &#39;Devils&#39; от THE 69 EYES
+
+<P><STRONG>THE 69 EYES</STRONG> опубликовали трэк-лист нового альбома '<STRONG>Devils</STRONG>', который выйдет этой осенью на <STRONG>EMI/Virgin</STRONG>. Трэк-лист:</P>
+<P>01. <B>Devils</B><BR>02. <B>Feel Berlin</B><BR>03. <B>Nothing on You</B><BR>04. <B>Sister of Charity</B><BR>05. <B>Lost Boys</B><BR>06. <B>Jimmy</B><BR>07. <B>August Moon</B><BR>08. <B>Beneath the Blue</B><BR>09. <B>Christina Death</B><BR>10. <B>Hevioso</B><BR>11. <B>Only You Can Save Me</B></P>
+Автор: Vit Belov
+
+### 28.11.2004 news Девочки терпещите!!! У барабанщика 69 EYES вырезали аппендицит
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>THE 69 EYES</STRONG> должны были отложить свой тур в поддержку нового альбома сразу же после первого выступления в Финляндии. Барабанщик группы <STRONG>Jussi 69</STRONG> был доставлен в госпиталь, где ему вырезали аппендицит. Тур продолжится 3 декабря.</FONT></P>
+Автор: Vit Belov
+
+### 29.08.2005 articles THE 69 EYES в Москве, пресс-релиз
+
+<P>ул. Дубосековская, 8<BR>(095) 158-4470<BR><A href="http://www.cdk.ru/">www.cdk.ru</A>, e-mail: <A href="mailto:art@cdk.ru">art@cdk.ru</A></P>
+<P>&nbsp;22 и 23 сентября 2005<BR>«69 EYES»</P>
+<P><BR>&nbsp;Радио «Ultra» и CDK МАИ <BR>представляют<BR>22 и 23 сентября 2005г.<BR>«The 69 EYES» </P>
+<P><BR>&nbsp;Финская команда из Хельсинки "The 69 eyes" появилась на свет в начале 90-х. Тогда это была группа, ничем не отличавшаяся от многих ей подобных. Затянутые в кожу а-ля "Ramones" парни пытались играть как можно громче, производя на свет звуки, средние между "Motorhead" и "Stooges" с Игги Попом. Помочь молодым музыкантам взялся независимый лейбл "Gaga goodies", выпустивший их дебютный альбом "Bumb N'Grind". В родной Финляндии на пластинку практически никто не обратил внимания, зато о "69 eyes" прознали японцы. Соответственно второй альбом "Motor city resurrection" был издан не где-либо, а в Стране Восходящего Солнца. Там же был создан и первый фан-клуб группы. <BR>Третий релиз, "Savage garden", вышедший только на родине музыкантов, нисколько не прибавил им популярности и "69-глазые" продолжали довольствоваться маленькими клубами. Ситуация немного изменилась в 1997 году с выходом "Wrap your troubles in dreams". На группу стали обращать внимание более широкие массы, но связано это было не с музыкой "The 69 eyes", остававшейся такой же примитивной, а с привлечением в качестве продюсера известного финна Тимо Толкки. Видимо с его подачи группе удалось зацепиться за солидный лейбл "Roadrunner records". <BR>В 1999 году эта фирма выпустила альбом "Wasting the Dawn", обозначивший поворот команды к готике. При этом "The 69 eyes" удалось смешать готическую меланхоличность с живой энергетикой рок'н'ролла, дав повод журналистам возвестить о появлении нового стиля – гот'н'ролла. И действительно, группа стала как бы промежуточным звеном между "The cult" и "Type O'Negative". Заглавный трек с пластинки, посвященный Джиму Моррисону, вошел в финский Топ 10. На альбоме чувствовалось увлечение группы и в частности ее лидера Юрки творчеством легендарных "Doors". Весной 2000 года в продаже появился сингл "Gothic girl", принесший музыкантам первое "золото". <BR>Эта композиция провела несколько месяцев в лучшей десятке финских чартов и плэй-листах национальных радиостанций. Немалая заслуга в этом была продюсера Джонни Ли Майклса, с которым команда записала следующий альбом, "Blessed be". Джонни, прославившийся в качестве автора музыки к фильмам, выполнил все аранжировки, а также исполнил партии клавишных. Свою работу он проделал настолько хорошо, что вскоре все стали считать его шестым участником группы. <BR>По окончании сессий "Blessed be" команда отправилась в свое первое германское турне, включавшее в себя выступление на известном готическом фестивале "Mera Luna". Тем временем альбом стартовал в финских чартах под номером четыре, и, проведя больше месяца в горячей десятке, получил "золото". Сопутствующий сингл, "Brandon Lee", постоянно звучал в эфире и 14 недель провел в лучшей двадцатке. А видеоклип, снятый на эту песню и сделанный в духе "Матрицы" и "Ворона" получил прописку на немецком музыкальном канале "Viva 2". Конец 2000 года группа провела в гастролях по родным краям, где ее концерты проходили с аншлагами. На следующий состоялось очередное германское турне в компании с "Paradise lost", а по осени команда под руководством Майклса вновь оказалась в студии. <BR>Мрачный и стильный "Paris kills" завершил трилогию, посвященную незабвенному Моррисону. Альбом на несколько недель завис на верхней строчке финских хит-парадов и в течение месяца собрал "золото", позднее приблизившись к платиновой отметке. В Германии пластинка стартовала на 35-м месте, а "The 69 eyes" теперь уверенно выступали в роли хедлайнеров. Побывав в Германии, Австрии, Швейцарии, Италии, группа вернулась на родину, где завершила тур аншлаговым концертом в хельсинском "Tavastia". <BR>Мрачная чувственность дьяволов Новый альбом "The 69 eyes" - Devils - вне всякого сомнения, стал в один ряд с такими их мощными и зрелыми работами, как Blessed Be (2000) и Paris Kills (2002). Продолжая в том же русле, Юрки и компания сделали на новом диске еле заметный крен в еще более совершенное царство неоготического нигилизма как лирически, так и музыкально. Взяв изящество и глянец Paris Kills, а также гитарный минимализм Blessed Be, "The 69 eyes"&nbsp; выдали достойный продукт, не разочаровав боссов нового лейбла EMI/Virgin и порадовав армию поклонников, давно уже ждущих новых изысков. Это, безусловно, альбом зрелой группы, которая нашла свою нишу. Хельсинские Вампиры подарили новый альбом, не разочаровав ни единой нотой. Они лишь на еще один шаг приблизились к королям готики. </P>
+<P>Побывав в прошлом году в Москве с концертом в CDK МАИ, "The 69 eyes" непременно решили дать двойной концерт в 2005 году на так полюбившейся им площадке! Порадовать поклонников музыканты решили новыми песнями с альбома Devils, которых еще не исполняли вживую в России! <BR>Спешите, Именно Вам билетов может не хватить! Такое событие нельзя пропустить!!!</P>
+<P>&nbsp;Начало концерта в 20:00, по вопросам аккредитации, а также эксклюзивных интервью и фотосессий обращаться к pr-менеджеру CDK МАИ Дроздовой Дине.</P>
+<P>&nbsp;</P>
+<P>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></P>
+Автор: Vit Belov
+
+### 16.09.2005 news THE 69 EYES в Москве
+
+<P>
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;22 и 23 сентября 2005<BR>«69 EYES»,/center&gt; </CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Радио «Ultra» и CDK МАИ <BR>представляют<BR>22 и 23 сентября 2005г.<BR>«The 69 EYES» </CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER><IMG height=284 src="/images/shows_rus/2005.08/9234.jpg" width=400 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Начало концерта в 20:00</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></CENTER>
+<CENTER>&nbsp;</CENTER>
+Автор: Vit Belov
+
+### 09.01.2007 news Новый альбом THE 69 EYES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>THE 69 EYES "Angels"</STRONG> выходит 5 марта на<STRONG> Virgin/EMI</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Angels<BR></STRONG>2. <STRONG>Never Say Die<BR></STRONG>3. <STRONG>Rocker<BR></STRONG>4. <STRONG>Ghost<BR></STRONG>5. <STRONG>Perfect Skin<BR></STRONG>6.<STRONG> Wings & Hearts<BR></STRONG>7. <STRONG>Star Of Fate<BR></STRONG>8. <STRONG>Los Angeles</STRONG><BR>9. <STRONG>In My Name<BR></STRONG>10. <STRONG>Shadow Of Your Love<BR></STRONG>11.<STRONG> Frankenhooker</STRONG></P>
+<P>Лимитированное издание альбома будет содержать DVD, на которое войдут видео на песню "<STRONG>Perfect Skin</STRONG>" и 5 песен с концерта в США. Это видео можно посмотреть здесь: <A href="http://www.emi.fi/jukebox/play/466/perfectskin">http://www.emi.fi/jukebox/play/466/perfectskin</A>&nbsp; </P>
+Автор: Vit Belov
+
+### 25.02.2007 news THE 69 EYES в Питере
+
+<center><IMG height=400 src="/images/shows_rus/2007.03/11377.jpg" width=287 border=0></center>
+Автор: Vit Belov
+
+### 12.03.2007 articles THE 69 EYES снова в России: пресс-релиз
+
+<P>комиксов Юрки под названием «Zombie Love». Планка была выстока, но The 69 Eyes слегкостью смогли удержать ее, чтобы в последствии шагнуть на ступень выше.</P>
+<P>Наступил 2007 год, и The 69 Eyes выпустили свой Голливудский альбом «Angels», с которого медленно стекают кровь и бензин… Все вокруг приближается к полному сумасшествию, мы наблюдаем мир в конце ядерной войны, но Вампиры из Хельсинки, вооруженные сверкающим оружием, кожаными штанами и несколькими ящиками ликера, приезжают через пустошь, чтобы спасти нас.</P>
+<P>9-й студийный альбом «Angels», в очередной раз спродюсированный Джонни Ли Майклсом и Хилли Хилсма, стал обратной стороной пластинки «Devils». Первый сингл «Perfect Skin», ставший циничным ответом группы The 69 Eyes на навязанный Голливудом образ блондинки с большой грудью, был проиллюстрирован самым сексуальным клипом в истории коллектива на сегодняшний день. Не обошлось без участия меланхоличных металлистов из группы Apocaliptyca, чьи виолончели можно услышать на треке «Ghost». В ходе последних сессий в тудии, группа The 69 Eyes перезаписала заглавный трек с «Wrap Your Troubles In Dreams» (1997). Новая версия песни появится в новом вильме Бэма Марджера «Продавец снов» (Dream Seller). <BR>Кроме того, в США фирмой «Cleopatra Records» в настоящее время переиздается вся дискография коллектива. <BR>В начале 2007 года Helsinki Vampires отправились в мировое турне в поддержку нового альбома «Angels». Готика, рок, элегантность и мощь гитарных аккордов, которые разят наповал стадионы - вот оружие The 69 Eyes. Вампиры из Хельсинки уже покорили полмира и они не собираются останавливаться на достигнутом, ведь еще осталось так много неразбитых сердец. 23 и 24 марта они придут за вами… Берегитесь!</P>
+<P>P.S. И не забудьте свои черные очки</P>
+<P>Дискография:<BR>1992 - Bump'n'Grind<BR>1995 - Savage Garden<BR>1995 - Motor City Resurrection<BR>1997 - Wrap Your Troubles In Dreams<BR>1999 - Wasting The Dawn<BR>2000 - Blessed Be<BR>2002 - Paris Kills<BR>2003 - Framed In Blood<BR>2004 - Helsinki Vampires DVD<BR>2004 – Devils<BR>2007 – Angels</P>
+<P>Официальный сайт – <A href="http://www.69eyes.com/">www.69eyes.com</A><BR>MySpace - <A href="http://www.myspace.com/theofficial69eyes">www.myspace.com/theofficial69eyes</A></P>
+<P>О группе Revelance:<BR>Группа Revelance сочиняет и исполняет мрачную и красивую тяжелую музыку, которая отражает "темную" сторону души каждого человека. Музыка Revelance выражает то, что есть в каждом из нас, но в чем мы часто боимся признаться даже самим себе. Воспевая в своих песнях сумеречную, подсознательную сторону человеческой личности, Revelance призывают нас принять нашу природу такой, какая она есть, и развивать себя в вечном стремлении к совершенству.</P>
+<P>В своем творчестве Revelance удалось&nbsp; совместить классическую оркестровую музыку с&nbsp; современными тяжелыми направлениями, присовокупив к этому немного синтетических элементов. Однако музыка Revelance не укладывается ни в какие стилистические рамки, и поэтому было бы глупо вешать на нее любые ярлыки - каждый может воспринимать ее так, как ему захочется. </P>
+<P>Для всех любителей эстетики декаданса, независимо от вероисповедания и музыкальных предпочтений.</P>
+<P>Официальный сайт – <A href="http://www.revelance.ru/">www.revelance.ru</A><BR>MySpace - <A href="http://www.myspace.com/revelance">www.myspace.com/revelance</A></P>
+<P>Дополнительная информация по тел.: +7-915-291-2741 (Metal Militia Productions) а также на сайте <A href="http://www.metalmilitia.ru/">www.metalmilitia.ru</A>.</P>
+Автор: Vit Belov
+
+### 19.03.2007 news THE 69 EYES в Москве
+
+<CENTER><IMG height=400 src="/images/shows_rus/2007.03/11376.jpg" width=283 border=0></CENTER>
+Автор: Vit Belov
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 26.12.2007 news THE 69 EYES выпустят концертник
+
+<P>16 января на <STRONG>Virgin Finland</STRONG> выходит первый концертник <STRONG>THE 69 EYES</STRONG> <STRONG>"Hollywood Kills - Live At The Whisky A Go Go". </STRONG>Трэк-лист:</P>
+<P>01. <B>Introduction by Bam Margera</B><BR>02. <B>Devils</B><BR>03. <B>Don't Turn Your Back On Fear</B><BR>04. <B>Betty Blue</B><BR>05. <B>Christina Death</B><BR>06. <B>Crashing High</B><BR>07. <B>The Chair</B><BR>08. <B>Hevioso</B><BR>09. <B>Feel Berlin</B><BR>10. <B>Gothic Girl</B><BR>11. <B>Wrap Your Troubles In Dreams</B><BR>12. <B>Sister Of Charity</B><BR>13. <B>Dance d'Amour</B><BR>14. <B>Framed In Blood</B><BR>15. <B>Lost Boys</B><BR>16. <B>I Just Want To Have Something To Do</B><BR>17. <B>Brandon Lee</B></P>
+Автор: Vit Belov
+
+### 13.01.2009 news Jyrki 69 будет ловить рыбу
+
+<P><IMG height=326 alt="" hspace=0 src="/images/news_rus/2009.01/13360.jpg" width=248 align=left border=5>Вокалист<STRONG> THE 69 EYES Jyrki 69</STRONG> примет участие в реалити-шоу "<STRONG>На Рыбалку</STRONG>!", которое будет демонстрироваться on-line в ближайшем будущем. В нём будут участвовать рок-звёзды, имена которых также будут названы позже.</P>
+<P>Ссылка: <A href="http://www.gonefishingshow.com/">http://www.gonefishingshow.com/</A></P>
+Автор: Vit Belov
+
+### 28.05.2009 news THE 69 EYES на Nuclear Blast
+
+<STRONG>Nuclear Blast</STRONG> подписали <STRONG>THE 69 EYES</STRONG>. Новый альбом группы выйдет 28 августа. Пластинка будет записана с продюсером<STRONG> Matt Hyde</STRONG> (<STRONG>SLAYER, MONSTER MAGNET, FU MANCHU</STRONG>).
+Автор: Vit Belov
+
+### 04.06.2009 news Новый альбом THE 69 EYES
+
+<P>28 августа на<STRONG> Nuclear Blast</STRONG> выйдет новый альбом <STRONG>THE 69 EYES "Back In Blood"</STRONG>. Трэк-лист:</P>
+<P>01. <STRONG>Back In Blood</STRONG><BR>02. <STRONG>We Own The Night</STRONG><BR>03. <STRONG>Dead N' Gone</STRONG><BR>04. <STRONG>The Good, The Bad & The Undead</STRONG><BR>05. <STRONG>Kiss Me Undead</STRONG><BR>06. <STRONG>Lips Of Blood</STRONG><BR>07. <STRONG>Dead Girls Are Easy</STRONG><BR>08. <STRONG>Night Watch</STRONG><BR>09. <STRONG>Some Kind Of Magick</STRONG><BR>10. <STRONG>Hunger<BR></STRONG>11. <STRONG>Suspiria Snow White<BR></STRONG>12. <STRONG>Eternal </STRONG></P>
+Автор: Vit Belov
+
+### 05.06.2009 news Кровавое возвращение THE 69 EYES
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.06/14148.jpg" width=400 align=right vspace=5 border=0>The&nbsp;69&nbsp;EYES</STRONG>&nbsp;выпустят свой новый альбом <STRONG>"Back In Blood"</STRONG> в сентябре 2009 года.&nbsp;</P>
+<P>Диск продюсировал <STRONG>Matt Hyde</STRONG> (<STRONG>Slayer</STRONG>, <STRONG>Monster Magnet)</STRONG>.<BR>Запись происходила&nbsp;в Лос Анжелесе, в течении весны этого года. </P>
+<P>Трэк-лист альбома:</P>
+<P>1. Back In Blood<BR>2. We Own The Night<BR>3. Dead N' Gone<BR>4. The Good, The Bad & The Undead<BR>5. Kiss Me Undead<BR>6. Lips Of Blood<BR>7. Dead Girls Are Easy<BR>8. Night Watch<BR>9. Some Kind Of Magick<BR>10. Hunger<BR>11. Suspiria Snow White<BR>12. Eternal</P>
+<P>&nbsp;</P>
+<P><EM>"Этот альбом в десятки раз тяжелее, чем что-либо сделанное&nbsp;<STRONG>THE 69 EYES</STRONG>&nbsp;ранее"</EM> - говорит продюсер.<BR><EM>"Это сродни тому, как<STRONG> Rick Rubin</STRONG> помог группе&nbsp;<STRONG>THE CULT</STRONG>&nbsp;раскрыть себя на альбоме <STRONG>"Electric"</STRONG> - мы сделали похожее духовное путешествие с Мэттом"</EM> - продолжает вокалист <STRONG>Jyrki69</STRONG>.</P>
+<P><BR>Первым синглом выбрана песня <STRONG>"Dead Girls Are Easy"</STRONG>, для которой группа снимет видео с <STRONG>Bam Margera</STRONG> в качестве режиссёра.<BR>Звезда MTV и ранее работал с группой - из под его редакции вышло видео на песню <STRONG>"Lost Boys"</STRONG>.</P>
+<P>Оформление альбома: <STRONG>Estevan Oriol</STRONG> и <STRONG>SA Studio</STRONG>.</P>
+Автор: Headcrusher
+
+### 18.06.2009 news Новая песня THE 69 EYES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая песня <STRONG>THE 69 EYES</STRONG> <STRONG>"Dead Girls Are Easy"</STRONG>&nbsp;с нового альбома группы <STRONG>"Back In Blood" </STRONG>доступна на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/theofficial69eyes">http://www.myspace.com/theofficial69eyes</A></FONT></P>
+Автор: Vit Belov
+
+### 21.12.2009 news Второе видео THE 69 EYES
+
+<P><STRONG>"Dead N' Gone"</STRONG>, второе видео<STRONG> THE 69 EYES</STRONG> с нового альбома <STRONG>"Back In Blood"</STRONG>, можно посмотреть ниже. Режиссёром ролика вновь выступил <STRONG>Bam Margera</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wkO4Z8tfZzo&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wkO4Z8tfZzo&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.07.2012 news Десятый альбом THE 69 EYES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финны<STRONG> THE 69 EYES</STRONG> заканчивают работу над десятым альбомом, который получил ёмкое название "<STRONG>X</STRONG>". Пластинка выйдет в сентябре на <STRONG>Nuclear Blast</STRONG>. Сведением альбома занимался <STRONG>Stefan Boman (THE HELLACOPTERS, BULLET)</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложку <STRONG>"X"</STRONG> можно увидеть ниже. Лидер группы <STRONG>Jyrki69</STRONG> считает новый кавер психоделичным, на нём, по его словам, изображены кости старого дикого животного на фоне фирменной пентаграммы <STRONG>THE 69 EYES.</STRONG></FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=471 src="/images/news_rus/2012.07/24312.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 17.11.2012 news Видео-клип THE 69 EYES
+
+<P>Новый ролик финнов <STRONG>THE 69 EYES</STRONG> на песню <STRONG>"Borderline" </STRONG>можно посмотреть ниже. Режиссёром выступил занятой человек <STRONG>Patric Ullaeus. </STRONG>Трек взят с новейшего альбома группы<STRONG> "X".</STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/fGZ3MBYOmUs?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 15.07.2016 news Новый клип THE 69 EYES
+
+<p>Новый клип финнов <strong>THE 69 EYES</strong> на песню "<strong>Miss Pastis</strong>" можно посмотреть ниже. Ролик повествует о французских женщинах и французском алкоголе и выпущен в день Франции.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Bj2Mq9vCyOM" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 15.07.2016 news New clip by THE 69 EYES
+
+<p>Helsinki Vampires <strong>THE 69 EYES</strong> are ready to unveil their new music video for "<strong>Miss Pastis</strong>". The song is a rock hymn about French alcohol & women with the simple chorus “<strong>Salut, зa va!”</strong> and comes off their latest morbid masterpiece »<strong>Universal Monsters</strong>«. The clip was once again directed and filmed by fronter<strong> Jyrki 69</strong> himself and the Finnish quintet decided to release it on "La Fкte Nationale", France’s National Day on July 14th.</p><p>“<em>It’s a great driving rocker of a song which has already made people move in our live set. I got the idea for the lyrics in Marseille, France where pastis is cheap and girls are pretty. I shot the video in the gardens of Palace of Versailles – I wanted to make it look like a crazy, little art film influenced by as much Jacques Tati as Federico Fellini and classic French films</em>,” tells singer Jyrki 69.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Bj2Mq9vCyOM" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 06.10.2016 news Новый клип THE 69 EYES
+
+<p>Новое видео <strong>THE 69 EYES</strong> на песню "<strong>Lady Darkness</strong>" можно посмотреть ниже. Найти этот трек можно на альбоме "<strong>Universal Monsters</strong>", который вышел на <strong>Nuclear Blast</strong> и <strong>Союзе</strong>.</p><p>В этот weekend финский коллектив приезжает в Россию. Ищете подробности в нашем разделе SHOWS: <a href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/feznlWImLOY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 06.10.2016 news THE 69 EYES released new video
+
+<p>Halloween is approaching and therefore it is once again time for the Helsinki Vampires<strong> THE 69 EYES</strong> to invade Europe with their unique mix of gothic metal and gloom rock'n'roll! But first they invite you all over to New York with their brand new video for 'Lady Darkness', which was once again directed and filmed in a modern black&white flair by fronter <strong>Jyrki 69</strong> himself and edited by <strong>Jimi Sero</strong>.</p><p>"<em>I wrote the lyrics for this song about my bar life in New York City - 'Lady Darkness' being The Death dressed as a bar tender lady. So naturally I went to film the video there too, featuring a lot of rock’n’roll cultural sights in The Lower East Side and elsewhere in Manhattan. The main guy in the video, a modern day “Midnight Cowboy” is my friend Sam Hariss, bass player from the cool New York band THE SWEET THINGS. Other people are just my friends, I filmed it during my long weekend there in August. Once again it looks like my comics, a black/white mini movie like the earlier ones I did: 'Jerusalem' and 'Miss Pastis'</em>", says THE 69 EYES singer Jyrki 69.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/feznlWImLOY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Что пишут фэны о концерте 69 глаз...почитайте...

@@ -67,6 +67,57 @@ The cover artwork is a segment of the painting "Little Red Riding Hood" by Frenc
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.12.2009 reviews Почему-то никому не нужная группа
+
+<P>Австралийская команда BELAKOR живой пример того, как тяжело попасть на какой-либо лэйбл группе, играющей немного не стандартную музыку. Здесь нет авангарда, здесь нет джаза и даже нет кривых риффов. Просто BELAKOR живут довольно далеко и играют музыку, которая была популярна в прошлом веке.</P>
+<P>Ничего особенного BELAKOR не представляют. Melodic death-metal, который ближе к melodic, нежели к death-metal. Среднетемповый, с клавишными, с акустической гитарой. Мелодии нанизываются одна на другую, обволакивают слушателя и погружают его в транс. Все песни от семи до десяти минут, но здесь нет никакого progressive в современном понимании, просто хорошая музыка. Этот альбом можно сравнить с некоторыми пластинками DARK TRANQUILLITY. Недостатки у BELAKOR соответствующие, “Stone’s Reach” отчаянно не хватает драйва. С другой стороны, вы можете послушать THE HAUNTED, если вам нужен драйв в этом стиле, а таких коллективов, как BELAKOR сейчас днём с огнём не сыщешь.</P>
+<P>Обязательное внимание от фанатов старого доброго мелодичного метала в стиле death. Никаких эффектов, никакого шума и долбы, просто мелодичная гитара.</P>
+Автор: Vit Belov
+
+### 15.03.2012 news Новый альбом BELAKOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=472 alt="" hspace=0 src="/images/news_rus/2012.03/23261.jpg" width=475 align=right border=0>Третий альбом австралийцев <STRONG>BELAKOR "Of Breath And Bone"</STRONG> выйдет в конце мая на<STRONG> Kolony Records</STRONG>. Пластинка была записана в <STRONG>Pennydrop Audio</STRONG> в Мельбурне, а сейчас сводится в известной <STRONG>Fascination Street Studios (OPETH, AMON AMARTH, PARADISE LOST) Jens Bogren</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="43">Abeyance</B><BR itxtNodeId="42">02. <B itxtHarvested="0" itxtNodeId="41">Remnants</B><BR itxtNodeId="40">03. <B itxtHarvested="0" itxtNodeId="39">Fraught</B><BR itxtNodeId="38">04. <B itxtHarvested="0" itxtNodeId="37">Absit Omen</B><BR itxtNodeId="36">05. <B itxtHarvested="0" itxtNodeId="35">To Stir The Sea</B><BR itxtNodeId="34">06. <B itxtHarvested="0" itxtNodeId="33">In Parting</B><BR itxtNodeId="32">07. <B itxtHarvested="0" itxtNodeId="31">The Dream And The Waking</B><BR itxtNodeId="30">08. <B itxtHarvested="0" itxtNodeId="29">By Moon and Star</B></P>
+Автор: Vit Belov
+
+### 01.06.2016 news BE&#39;LAKOR „Ѓ„u„‚„u„Љ„|„y „~„p Napalm Records
+
+<p>„X„u„„„r„v„‚„„„Ќ„z „p„|„Ћ„q„Ђ„} „p„r„ѓ„„„‚„p„|„y„z„€„u„r <strong>BE'LAKOR ЃgVesselsЃh</strong> „r„Ќ„‡„Ђ„t„y„„ 24 „y„ђ„~„‘ „~„p <strong>Napalm Records</strong>. „B„u„|„y„{„Ђ„|„u„Ѓ„~„Ќ„z melodic death metal „r „t„…„‡„u „†„y„~„ѓ„{„y„‡ „{„Ђ„}„p„~„t<strong> INSOMNIUM</strong> „y <strong>OMNIUM GATHERUM</strong>. </p><p>„S„‚„Џ„{-„|„y„ѓ„„:</p><p>1. Luma<br>2. An EmberЃLs Arc<br>3. Withering Strands<br>4. Roots to Sever<br>5. Whelm<br>6. A Thread Dissolves<br>7. Grasping Light<br>8. The Smoke Of Many Fires</p><p>Roots To Sever:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/iXthg-3m3E0" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 01.06.2016 news BE&#39;LAKOR перешли на Napalm Records
+
+<p>Четвёртый альбом австралийцев<strong> BE'LAKOR “Vessels”</strong> выходит 24 июня на <strong>Napalm Records</strong>. Великолепный melodic death metal в духе финских команд<strong> INSOMNIUM</strong> и<strong> OMNIUM GATHERUM</strong>. </p><p>Трэк-лист:</p><p>1. Luma<br>2. An Ember's Arc<br>3. Withering Strands<br>4. Roots to Sever<br>5. Whelm<br>6. A Thread Dissolves<br>7. Grasping Light<br>8. The Smoke Of Many Fires</p><p>Roots To Sever:</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/iXthg-3m3E0" frameborder="0" allowfullscreen=""></iframe><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29232.jpg" border="0"></p></center>
+Автор: Vit Belov
+
+### 01.06.2016 news BE&#39;LAKOR moved to Napalm Records
+
+<p>The fourth album of the Australians <strong>BE'LAKOR “Vessels”</strong> will be released on June 24 via<strong> Napalm Records</strong>. Intense, passionate and deeply moving melodic death metal in vein of Finnish bands INSOMNIUM and OMNIUM GATHERUM. </p><p>Трэк-лист:</p><p>1. Luma<br>2. An Ember's Arc<br>3. Withering Strands<br>4. Roots to Sever<br>5. Whelm<br>6. A Thread Dissolves<br>7. Grasping Light<br>8. The Smoke Of Many Fires</p><p>Roots To Sever:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/iXthg-3m3E0" frameborder="0" allowfullscreen=""></iframe><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29232.jpg" border="0"><p></p></center></center>
+Автор: Vit Belov
+
+### 24.06.2016 reviews Меланхоличное лицо мелодета
+
+<p>Одна из самых мощных melodic death metal команд, не имевших контракта с крупным метал-лэйблом BE'LAKOR наконец-то заключила контракт с известной конторой — Napalm records. Четвёртый альбом австралийцев, вышедший после четырехлетнего перерыва, подтверждает все авансы.</p><p>«Vessels” выполнен в том жанре melodic death, который смело можно именовать atmospheric melodic death или epic melodic death. Яркими представителями этого направления являются финские команды INSOMNIUM, OMNIUM GATHERUM или GHOST BRIGADE. Медленный неспешный материал с отличной реализацией, но практически без традиционного для death metal напора. Действительно, называть музыку BE'LAKOR death metal несколько смело, а поклонники стиля в ортодоксальном варианте, вообще, не поймут, каким боком «Vessels” - death. В любом случае ярлыки просто помогают определить направление музыки обозреваемых коллективов. Условно BE'LAKOR играют death, на самом деле — нет.</p><p>Новый альбом австралийцев показался мне ещё более атмосферным и облегчённым. Местами на ум приходит творчество ANATHEMA конца 90-х, а длительность песен, прежде всего, отсылает к&nbsp; death doom metal, опять же, в его самой атмосферной и прозрачной вариации. Акустическая гитара, длительные, погружающие в атмосферу проигрыши, никогда не прерываемые забойными кусками. Интересно, что при этом BE'LAKOR вообще не используют чистый вокал, тем самым не переходя ту грань, за которой их творчество могло бы потерять большое количество фэнов именно мелодета. </p><p>Красивый и очень приятный альбом без каких-то слабых сторон, но и без эмоциональных всплесков. Все 55 минут выдержаны в одном ключе, представляющем меланхоличный вариант стиля, некогда придуманного шведами, добавившими в death metal соло, но теперь изменившемся до неузнаваемости.</p>
+Автор: Vit Belov
+
+### 24.06.2016 reviews Melancholic face of melodeath
+
+<p>One of the most powerful melodic death metal bands that did not have a contract with a major metal label BE'LAKOR finally signed a deal with well—known label - Napalm records. The fourth album of the Australians, released after a four year hiatus, prove all&nbsp; advances.</p><p>"Vessels" is made in the genre of melodic death, which can be called atmospheric melodic death or epic melodic death. Outstanding representatives of this style are the Finnish bands INSOMNIUM, OMNIUM GATHERUM or GHOST BRIGADE. Slow material with excellent realization, but without pressure traditional for death metal. Indeed, call music of BE'LAKOR death metal is some defiantly, and fans of the style in its 'orthodox' version do not understand, what side of the "Vessels" is death metal. In any case, the labels just help to determine the direction of the music of the described groups. Conventionally BE'LAKOR play death, actually they not.</p><p>The new album of the Australians seemed even more atmospheric and lightweight. Sometimes even ANATHEMA of late 90s comes to mind, and the duration of the songs, first of all, refers to the death doom metal, again, in its most atmospheric and transparent variations. Acoustic guitar, long digressions to support the atmosphere, the band never interrupts this by any brutal pieces. Interestingly, BE'LAKOR generally don't use clean vocals, thus not crossing the line beyond where their work would lose a large number of fans of classic melodeath. </p><p>Beautiful and very enjoyable album without any weak sides, but without emotional outbursts. All 55 minutes couched in the same key representing a melancholic version of the style, once invented by the Swedes, adding melodic solo-guitar in a death metal, but now changed beyond recognition.</p>
+Автор: Vit Belov
+
+### 24.06.2016 news Новое lyric-video BE&#39;LAKOR
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое lyric-video австралийцев <strong>BE'LAKOR </strong>на песню “<strong>The Smoke Of Many Fires</strong>” можно посмотреть ниже. Трек взят с альбома "<strong>Vessels</strong>", который вышел на <strong>Napalm Records</strong> сегодня.</font></p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/ARI0XyTiips?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 24.06.2016 news BE&#39;LAKOR: New lyric video
+
+<p>New lyric-video of Australians<strong> BE'LAKOR</strong> for the song “<strong>The Smoke Of Many Fires</strong>” can be viewed below. The track is taken from the album "<strong>Vessels</strong>", which was released on <strong>Napalm Records</strong> today.</p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/ARI0XyTiips?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

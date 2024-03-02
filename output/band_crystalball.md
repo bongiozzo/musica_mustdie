@@ -187,6 +187,668 @@ Marcel Sardella - ударные
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.02.2003 news Crystal Ball News
+
+<p><IMG SRC="/images/news/2003.02/3861.jpg" ALT="pho" width=200 height=102 hspace="15" vspace="5" border="1" align="left">Crystal Ball successfully absolved the gigs in 2002. They played three european tours with bands like Doro, U.D.O. and Dokken (USA) in more than eight countries.</p>
+<P> All in all, over 60 shows, including summer festivals like „Summer Breeze“. Nevertheless, the band won’t take a rest, as they’ll enter the Area 51-studios in Celle in April/May to record their next, 4th album together with ex-Victory guitarist Tommy Newton.</>
+<P> The release is scheduled for the beginning of September 2003.</>
+
+Автор: Vit Belov
+
+### 26.02.2003 news Crystal Ball собираются в студию
+
+<p>Crystal Ball отправятся в студию Area 51 в апреле / мае записывать четвёртый альбом вместе с гитаристом Томми Ньютоном (ex-Victory). Выход диска намечен на начало сентября.</p>
+
+Автор: Morsus
+
+### 26.02.2003 news Crystal Ball will enter the studio
+
+<p>Crystal Ball will enter the Area 51-studios in Celle in April/May to record their next, 4th album together with ex-Victory guitarist Tommy Newton. The release is scheduled for the beginning of September 2003.</p>
+
+Автор: Morsus
+
+### 11.06.2003 news Crystal Ball News
+
+<p>Some news from the band:</p>
+<P>“Hi folks! Now we're definitively done with the "virtual empire-tour" and we've just entered Stefan Kaufmanns studio, near Cologne. The final show with Krokus at the Volkhaus in Zьrich was certainly a dignified conclusion of the tour. (We played more than 60 shows in 11 month). A big thank you to everyone who supported us on our way! We are convinced that the following album "HELLvetia" will be the best so far, and we are already looking forward to play it live for you.”</p>
+
+Автор: Vit Belov
+
+### 17.10.2003 news CRYSTAL BALL in Zurich
+
+<P align="center"><SPAN lang=EN-GB>16.11.2003 Z&uuml;RICH- KLOTEN - Alpenrock- House Release-Party ( CH) </SPAN></P>
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 10.01.2004 reviews Что отличает хороший melodic hard-rock от отличного?
+
+<P>Швейцария славится своими melodic-hard-rock командами. Вслед за <B>GOTTHARD</B> и <B>SHAKRA</B> ко мне попал новый альбом <B>CRYSTAL BALL</B>, и признаться, группа не разочаровала меня, как не разочарует она и всех поклонников этого стиля музыки. Очень мелодично и очень rock. 11 великолепных песен с запоминающимися рефренами и оптимистичным настроением. Что отличает хороший альбом в данном стиле от отличного? Не затасканность мелодий. Несомненно, приятно послушать очередные вариации на тему <B>Bon Jovi</B>, например. Но у <B>CRYSTAL BALL</B> мелодии настолько же хитовые, но совсем не похожие на творчество американцев, влияния которых мало кому удаётся избежать. Здесь скорее ощущаются веяния европейской power-metal музыки, которые всё же не являются доминирующими. В силу "другой ориентации" мною было прослушано немного альбомов в данной стилистике в прошедшем году, но этот, пожалуй, лучший из них.</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 27.02.2004 news Crystal Ball in Europe
+
+05.03.2004 OBERMARCHTAL (BEI ULM) - Festhalle ( D) <BR>06.03.2004 KAUFBEUREN - Zeppelinhalle ( D) <BR>07.03.2004 KARLSRUHE - Festhalle ( D) <BR>08.03.2004 BREMEN - Aladin ( D) <BR>09.03.2004 BERLIN - Halford ( D) <BR>11.03.2004 ASCHAFFENBURG - Colosaal ( D) <BR>12.03.2004 INGOLSTADT - Ohrakel ( D) <BR>13.03.2004 TUTTLINGEN - Alte Festhalle ( D) <BR>14.03.2004 BOCHUM - Matrix ( D) <BR>16.03.2004 HAMBURG - Markthalle ( D) <BR>17.03.2004 N&Uuml;RNBERG - Hirsch ( D) <BR>18.03.2004 LUDWIGSBURG - Rockfabrik ( D) <BR>19.03.2004 PIRMASENS - Quasimodo ( D) <BR>21.03.2004 Z&Uuml;RICH - Alpenrock ( CH) <BR>22.03.2004 ROSENHEIM - KUKO ( D) <BR>23.03.2004 SALZBURG - Rockhouse ( A) <BR>25.03.2004 WIEN - Planet Music ( A) <BR>26.03.2004 BUDAPEST - Wigwam ( HU)
+Автор: Vit Belov
+
+### 04.05.2004 news CRYSTAL BALL поетряли клавишника
+
+Из швейцарской hard-rock группы<B> CRYSTAL BALL</B>, из-за проблем со здоровьем, ушёл клавишник/гитарист&nbsp;<B>Tom Graber.</B>
+Автор: Vit Belov
+
+### 15.11.2004 news CRYSTAL BALL выпустят альбом следующим летом
+
+<P>Hard-rock банда из Швейцарии <STRONG>CRYSTAL BALL</STRONG> начнёт запись нового альбома в феврале вновь с продюсером <STRONG>Stefan Kaufmann (ACCEPT, U.D.O.)</STRONG>. Пластинка увидит свет летом на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.06.2005 news CRYSTAL BALL назвали новый альбом
+
+<P>Новая пластинка <STRONG>CRYSTAL BALL</STRONG> будет называться&nbsp;"<STRONG>TimeWalker</STRONG>" и выйдет в августе на <STRONG>Nuclear Blast</STRONG>. </P>
+Автор: Vit Belov
+
+### 26.10.2005 reviews Хрустальные шарики швейцарского хард-рока
+
+<P>… Нет, молодцы все-таки швейцарцы – такая маленькая страна, а сколько ж в ней замечательных команд! Я уже как-то, помнится, перечислял вклад Швейцарии в мировую копилку тяжелой музыки и, пожалуй, повторяться не стану… Скажу только, что схожее по своей стилистике melodic hard rock трио – SHAKRA, GOTTHARD и CRYSTALL BALL – сделает честь любому другому государству. <BR>В этом году коллектив отмечает свое десятилетие – собравшись в далеком 1995-м как кавер-группа, за это время CRYSTAL BALL трансформировались в полноценную группу со своим музыкальным материалом, и успели выпустить пять альбомов и два сингла. <BR>Всесторонне изучив, многократно прослушав и внимательно обследовав продукт, я пришел к выводу, что он (т.е. продукт) не только годен к употреблению – его употребление просто необходимо, причем в самых неограниченных количествах. Альбом – великолепный. Каждая песня – потенциальный хит. Богатство мелодий, буйство эмоций, искренность гитар, филигранность аранжировок, воздушность клавиш, - все это “Time Walker”. Еще одна сильная (ну, или скажем так – продуманная) сторона альбома – правильно выбранное время звучания – за сорок пять минут CRYSTALL BALL не только не успевает приесться, - напротив, здесь все как в правильном питании: из-за стола надо вставать чуточку голодным. Отчего-то мне кажется, что у такой музыки нет временных рамок, нет сроков хранения – она останется актуальной и интересной всегда… <BR>Как и в подавляющем большинстве мелодик-роковых команд, основным, ведущим инструментом здесь является вокал – и, надо сказать, что Марк Суини (Mark Sweeney) справляется со своей задачей отлично. Его харизматичный голос как нельзя лучше подходит к инструментальной составляющей материала. Кстати, помогали Марку в роли бэк-вокалистов не кто иные, как Михаэль Борманн (Michael Bormann - BONFIRE, LETTER X) и его тезка Михаэль Восс (Michael Voss - BONFIRE, MAD MAX, CASANOVA). Неплохо для подпевок, не правда ли?..<BR>Как я уже говорил, здесь каждый трэк настолько силен, что выделить хоть один в качестве показательного я просто не в силах. Немного, правда, подкачало дебильное «современное» оформление, но это дань моде, с этим ничего не поделаешь… собственно, заострять на этом внимание я тоже не стану – ибо для данного случая это совершенно несущественно.</P>
+<P>Диск предоставлен Irond</P>
+Автор: Dr. Grandma
+
+### 29.11.2006 news CRYSTAL BALL на MTM
+
+<P><STRONG>CRYSTAL BALL</STRONG> заключили контракт с <STRONG>MTM</STRONG> на выпуск шестого альбома, который будет записан вскоре.</P>
+Автор: Vit Belov
+
+### 22.10.2007 news Новый альбом CRYSTAL BALL
+
+<P>Новый альбом швейцарских хард-рокеров<STRONG> CRYSTAL BALL "Secrets"</STRONG> выходит 16 ноября на <STRONG>AFM</STRONG>. Трэк-лист:</P>
+<P>01. <B>Moondance</B><BR>02. <B>I Will Drag You Down</B><BR>03. <B>Minor Key</B><BR>04. <B>It's Not Love</B><BR>05. <B>Time Has Come</B><BR>06. <B>Secrets</B><BR>07. <B>Wings of Fire</B><BR>08. <B>Dreaming of You</B><BR>09. <B>Destiny</B><BR>10. <B>I'll be Waiting</B><BR>11. <B>Face the Truth</B></P>
+Автор: Vit Belov
+
+### 01.07.2011 news Mark Sweeney и Michael Voss собрали all-star проект
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=352 alt="" hspace=0 src="/images/news_rus/2011.07/19832.jpg" width=250 align=right border=0>Вокалисты <STRONG>Mark Sweeney (CRYSTAL BALL)</STRONG>&nbsp;и <B>Michael Voss</B> (MAD MAX) основали новый проект <STRONG>WOLFPAKK. </STRONG>В записи песен, сочинённых этим дуэтом, принимали участие три десятка звёзд современной тяжёлой сцены. Внушительный список:</FONT></P>
+<P>Вокалисты: <BR>* <B>Paul Di'Anno</B> (ex-IRON MAIDEN)<BR>* <B>Tony Martin</B> (ex-BLACK SABBATH)<BR>* <B>Jeff Scott Soto</B> (ex-YNGWIE MALMSTEEN, TALISMAN)<BR>* <B>Rob Rock</B> (IMPELITTERI)<BR>* <B>Mark Boals</B> (ex-YNGWIE MALMSTEEN)<BR>* <B>Tim "Ripper" Owens</B> (ex-JUDAS PRIEST, ICED EARTH)<BR>* <B>Paul Shortino</B> (ex-QUIET RIOT)<BR>* <B>Mark Fox</B> (ex-SHAKRA)<BR>* <B>Michaela Schober</B> (TANZ DER VAMPIRE)<BR>* <B>Jean-Marc Viller</B> (CALLAWAY)<BR>* <B>Pearl</B><BR>* <B>Molly Duncan</B><BR>Басисты: <BR>* <B>Tony Franklin</B> (ex-BLUE MURDER, ROBERT PLANT)<BR>* <B>Mat Sinner</B> (PRIMAL FEAR, SINNER, VOODOO CIRCLE)<BR>* <B>Matthias Rethmann</B> (ex-LEEZ, SILVER)<BR>* <B>Nils Middelhauve</B> (XANDRIA)<BR>* <B>Neil Murray</B> (WHITESNAKE)<BR>* <B>Barend Courbois</B> (VENGEANCE) <BR>Гитаристы: <BR>* <B>Igor Gionola</B> (U.D.O.)<BR>* <B>Andy Midgeley</B> (POWER QUEST)<BR>* <B>Ira Black</B> (ex-VICIOUS RUMORS, LIZZY BORDEN)<BR>* <B>Torsten Koehne</B> (EDEN'S CURSE)<BR>* <B>Doc Heyne</B> (BISS)<BR>* <B>Tommy Denander</B> (DAN REED, PAUL STANLEY)<BR>* <B>Nadja Kossinskaja</B> (PETER MAFFAY)<BR>* <B>Freddy Scherer</B> (GOTTHARD)<BR>* <B>Olaf Lenk</B> (AT VANCE)<BR>* <B>George Solonos</B> (TOMMY LEE) <BR>Клавишники: <BR>* <B>Alessandro Delvecchio</B> (GLENN HUGHES, IAN PAICE)<BR>* <B>Ferdy Doernberg</B> (AXEL RUDI PELL, ROUGH SILK) <BR>Барабанщик:<BR>* <B>Gereon Homann</B> (EAT THE GUN) </P>
+<P><STRONG>"Wolfpakk" </STRONG>выйдет 26 августа на <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.03.2015 news Новое видео CRYSTAL BALL
+
+<P>Новый клип <STRONG>CRYSTAL BALL</STRONG> на песню "<STRONG>Eye to Eye</STRONG>" можно посмотреть ниже. В записи трека и ролика приняла участие вокалистка <STRONG>BATTLE BEAST Noora Louhimo</STRONG>. Песня попадёт на новый альбом швейцарского коллектива "<STRONG>LifeRider</STRONG>", который выйдет 22 мая на <STRONG>Massacre Records</STRONG>.</P>
+<P>BATTLE BEAST сегодня выступают в клубе<STRONG> VOLTA</STRONG> в Москве.</P>
+<P>
+<CENTER><IFRAME height=360 src="https://www.youtube.com/embed/YPWyu0x4ssg" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.07.2016 news CRYSTAL BALL опубликовали обложку
+
+<P>2 сентября на <STRONG>Massacre records</STRONG> выходит новый альбом <STRONG>CRYSTAL BALL "Deja-Voodoo"</STRONG>. Это девятый альбом швейцарцев. Ниже можно увидеть обложку, которую нарисовал <STRONG>Thomas Ewerhard</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.07/29549.jpg" width=500 height=500></CENTER>
+Автор: Vit Belov
+
+### 06.07.2016 news CRYSTAL BALL have published cover art
+
+<p>The new album of<strong> CRYSTAL BALL "Deja-Voodoo"</strong> will be released on September, 2 via <strong>Massacre records</strong>. This is the ninth album by the Swiss. Below you can see the cover artwork was created by <strong>Thomas Ewerhard</strong>.</p><p>&nbsp;<center><img width="960" height="960" src="/images/news_rus/2016.07/29543.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 22.07.2016 news Последний альбом CRYSTAL BALL
+
+<p><strong>Massacre Records</strong> выложили на Youtube последний альбом <strong>CRYSTAL BALL "Liferider"</strong> для свободного прослушивания.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/w4L1EFgfcXM" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 22.07.2016 news Full stream CRYSTAL BALL &quot;Liferider&quot;
+
+<p><strong>Massacre Records</strong> have posted on Youtube last album <strong>CRYSTAL BALL "Liferider"</strong> for free listening.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/w4L1EFgfcXM" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 09.08.2016 news Новый клип CRYSTAL BALL
+
+<p>Новое видео hard rock команды<strong> CRYSTAL BALL</strong> на песню <strong>"Deja-Voodoo</strong>" можно посмотреть ниже. Трек войдёт в новый&nbsp;одноимённый&nbsp;альбом швейцарского коллектива, который выйдет 2 сентября на <strong>Massacre Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JSODxnaW5nM" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 09.08.2016 news New video of CRYSTAL BALL
+
+<p>New video from the hard rock band <strong>CRYSTAL BALL</strong> for the song "<strong>Deja-Voodoo</strong>" can be viewed below. The track will be included in the new album with the same name by the Swiss band, which will be released on 2 September via <strong>Massacre Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JSODxnaW5nM" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 18.08.2016 news Новый альбом CRYSTAL BALL выходит через две недели
+
+<p>Новый альбом&nbsp;<strong>CRYSTAL BALL "Deja-voodoo"</strong> §выйдет 2 сентября на&nbsp;<strong>Massacre records</strong>. </p><p>Трек лист:</p><p>1. Deja-Voodoo<br>2. Director's Cut<br>3. Suspended<br>4. Never A Guarantee<br>5. Reaching Out<br>6. Home Again<br>7. To Freedom And Progress<br>8. Time And Tide<br>9. Without A Net<br>10. Full Disclosure (*)<br>11. Fools' Parade (*)<br>12. Dr. Hell No<br>13. To Be With You Once More<br>&nbsp;<br>(*) Digipak Bonus</p><p><center><img width="550" height="329" src="/images/news_rus/2016.08/29824.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 18.08.2016 news New album of CRYSTAL BALL will be released on September, 2
+
+<strong>CRYSTAL BALL</strong>’s new album "<strong>Dйjа-Voodoo</strong>" will be released in 2 weeks!<br>&nbsp;<br>Track list:<p>1. Deja-Voodoo<br>2. Director's Cut<br>3. Suspended<br>4. Never A Guarantee<br>5. Reaching Out<br>6. Home Again<br>7. To Freedom And Progress<br>8. Time And Tide<br>9. Without A Net<br>10. Full Disclosure (*)<br>11. Fools' Parade (*)<br>12. Dr. Hell No<br>13. To Be With You Once More<br>&nbsp;<br>(*) Digipak Bonus</p><p><center><img width="550" height="329" src="/images/news_rus/2016.08/29824.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 09.10.2016 reviews Актуальный «метализированный» hard rock из Швейцарии
+
+<p>Швейцарцы CRYSTALL BALL выпустили в начале сентября девятый студийный альбом. Незаметно коллектив стал одним из ведущих в своей стране, и лидером в «метализированном» европейском hard rock. Группа выделяется оригинальным звучанием, при этом выдаёт хитовый материал и выпускает альбомы чуть ли не каждый год. Всё вместе повышает шансы коллектива на более глобальный успех в самом ближайшем будущем.</p><p>А ведь были у CRYSTALL BALL и менее удачные времена. После серии альбомов для Nuclear Blast, которыми группа громко заявила о себе, и одного альбома для AFM банда была на грани распада. В 2010 году CRYSTAL BALL покинул оригинальный вокалист Mark Sweeney, организовавший затем известный коллектив WOLFPAKK, который выпустил уже три альбома в жанре метал-опера. Два года швейцарцы искали нового фронтмена, в 2012 году к музыкантам присоединился Steven Mageney, группа выпустила сразу три альбома для Massacre Records - “Dawnbreaker” (2013), “Liferider” (2014) и вот теперь «Deja-vodoo”, CRYSTAL BALL как будто наввёрстывают упущенное. Все пластинки нового времени звучат мощно, энергично, на них полно мелодий. Группы следует по пути многих сегодняшних лидеров метала, включая SABATON и POWERWOLF, когда к стабильному стилю примешиваются почти танцевальные ритмы, а звучание становится практически «индустриальным». В итоге, сохраняя мелодичность традиционного швейцарского hard rock в духе GOTTHARD или SHAKRA, CRYSTAL BALL зазвучали сверхактуально. В их музыке нет яркой концептуальной идеи, как война у SABATON или нечистая сила у POWERWOLF, но в этом есть и свои несомненные плюсы, коллективу удаётся не зацикливаться на каких-то одинаковых мелодических ходах, используя целиком наследие мирового hard rock. Душещипательные баллады, прямолинейные хиты, настоящие рокерские среднетемповые эпики — всё это есть на «Deja-Voodoo”. Отличный альбом.</p><p>Группа из Швейцарии, которая должна пойти на повышение в самом ближайшем будущем. Мне кажется, на рынке должен быть спрос на подобную мелодичную музыку, сочетающие в себе черты классических hard rock и heavy metal с актуальным звучанием.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

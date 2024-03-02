@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.07.2011 news NATUR на Earache Records
+
+<P><STRONG>Earache Records</STRONG> продолжают коллекционировать old school heavy-metal группы. На этот раз очередь дошла до <STRONG>NATUR</STRONG> из Бруклина. Основанная в 2008 году группа играет музыку в духе классики <STRONG>JUDAS PRIEST</STRONG>, <STRONG>MERCYFUL FATE&nbsp;</STRONG>и&nbsp;<B>MOTORHEAD. </B></P>
+<P><FONT color=#ffffff>Теперь группа планирует записать дебютный альбом.</FONT></P>
+<P><center><FONT color=#ffffff><IMG height=356 src="/images/news_rus/2011.07/20199.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

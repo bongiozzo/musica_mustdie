@@ -265,6 +265,85 @@ Home
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2001 reviews Один из самых немодных альбомов года
+
+<p>Блин!!! Этот псих Майк Мюир насоздавал кучу разноплановых групп (CycoMyco, Suicidal Tendencies, Infectious Grooves), а теперь их все смешивает в одну кучу…. Безумие какое-то. Разобраться в этом уже невозможно. Да и не нужно. Новый альбом ST сделал это за самого Майка. Вообще-то ST – группа легендарная: в начале 90-х были в числе первопроходцев, которые принесли фанк, хип-хоп в металл. Примерно то же предлагают и сейчас - бешенная помесь фанка, панка, хардкора, чуть-чуть трэш-метал. Формула похожа на Korn и Limp Bizkit. А результат – совершенно иной. Поскольку такое техническое мастерство и оригинальность музыкантам Limp Bizkit и не снились, а Korn слишком депрессивен и нединамичен. А вот ST – настоящие психи, которым на все плевать и играют они от души, посылая весь мир куда подальше: «Я ненавижу попсу! Я ненавижу Паффа Дэди и его друга мертвого Толстяка, Я ненавижу Greatful Dead И успокоюсь, когда они все будут мертвы. Меня словно пытаются посадить на наркотики, напихивая попсой – Как долго еще можно пытаться выкопать «Битлз» из могилы? Я ненавижу сладкую Бритни Спирс… Дурацкие стишки с мелодиями из задницы! Я ненавижу поп-песенки!!!! (песня “Pop songs”) Пожалуй, эклектичность и вот эта безбашенность – самое главное достоинство альбома. Есть и минусы. Не очень понравилось общее микширование, при котором великолепную напористую гитару и мощные бас и барабаны задвинули на второй план – в пользу не всегда бесспорного вокала. Подчеркнули филигранные виртуозные и порой издевательские аранжировки – и немного потеряли жесткость. Хотя кому-то – это плюс. В любом случае – работу услышать стоит. Один из самых немодных альбомов года.</p>
+
+Автор: Tornado
+
+### 26.03.2001 news SUICIDAL TENDENCIES dates
+
+<p>SUICIDAL TENDENCIES have lined up several European festival appearances in June. The dates are as follows:</p>
+<p></p>
+<p> June 22 - With Full Force Festival, Leipzig, GER</p>
+<p></p>
+<p> June 23 - Graspop Metal Meeting, Dessel, BEL</p>
+<p></p>
+<p> June 25 – Kulturfabrik, Esh-Alzette, LUX</p>
+<p></p>
+<p> June 27 - La Cooperative De Mai, Clermont-Ferrand, FRA</p>
+<p></p>
+<p> June 28 - La Laiterie, Strasbourg, FRA</p>
+<p></p>
+<p> June 30 - Waldrock Festival, Burgum, NETH</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 27.02.2003 news Роб Трухильо - новый бассист Металлики...
+
+<p>Metallica официально объявили имя нового басс-гитариста. Им стал Rob Trujillo игравший с Suicidal Tendencies/Ozzy Osbourne band member as its new bassist. Trujillo появится уже на новом студийном альбоме всадников - "St. Anger" который запланирован к выходу на Elektra 10-го июня. Долговременный продюссер и друг металликовцев Боб Рок исполнял эту роль во время редких концертов и в студии. <BR><BR> Также группа объявила о длительном Северо-Американском туре "Sanitarium" с Limp Bizkit и Linkin Park. Знакомство с Трухильо для команды состоялось еще в 1993 году во время тура Suicidal Tendencies с Metallica. "Когда Роб приехал в Сан-Франциско и поджемовал с нами, мы поняли что возникла какая то магия между нами..." - говорит группа. <BR><BR> Что же касается ушедшего Джэйсона, он объявлен официальным участником ветеранов Voivod и также продюссировал их альбом который выходит 4-го марта на его собственном лэйбле Chophouse Records.</p>
+
+Автор: Yermola
+
+### 27.02.2003 news Metallica Signs Up Bassist Rob Trujillo ...
+
+<p>Metallica has named former Suicidal Tendencies/Ozzy Osbourne band member Rob Trujillo as its new bassist. Trujillo replaces Jason Newsted, who departed in early 2001, and will appear on the quartet's upcoming studio album, "St. Anger," due June 10 from Elektra. Longtime producer Bob Rock has played bass at sporadic concert experiences and in the studio with Metallica since Newsted's departure, and the group had been vague as to whether or not it was seeking a full-time fourth member. <BR><BR> Earlier this month, Metallica announced its North American Summer Sanitarium tour with Limp Bizkit and Linkin Park, but evaded questions on the open bass position. The band's connection to Trujillo stretches back to 1993, when Suicidal Tendencies toured with Metallica, and a post on the band's Web site implies that Trujillo was present for much of the new album's recording sessions. <BR><BR> "When Rob came to San Francisco the first time and jammed with us, we all felt this incredible magic between the four of us," the band writes. "It was just something we could not describe, we all just knew it."<BR><BR> Additionally, drummer Lars Ulrich writes, "The last two years of just being the three of us have taught me soo [sic] much about myself, about James and Kirk and about Metallica. To welcome Rob into Metallica in 2003 after all the growth and soul searching we've been through for the last two years, feels ... awesome. Being at full strength again is at this moment indescribable."<BR><BR> Meanwhile, the band has confirmed 16 dates for the Summer Sanitarium tour, including a July 26 performance at the Hawthorne Racetrack in Chicago and an Aug. 9 date at the Coliseum in Los Angeles. Among the cities still awaiting dates and venues are New York, San Francisco, and Toronto. Updates will be posted on Metallica's Web site. <BR><BR> Metallica will embark on a brief tour of the European festival circuit before its North American outing, and continue to sprinkle in overseas dates throughout the summer. The group is pegged to play dates June 6 at the Rock Im Park festival in Nuremberg, Germany, and will travel between continents until a pair of gigs Aug. 22 and 24 at the U.K.'s Reading and Leeds festivals.<BR><BR> As for Newsted, the bassist has become a official member of veteran metal act Voivod. He also produced the band's upcoming self-titled album, which is due March 4 via Newsted's Surfdog imprint Chophouse Records. <BR><BR> -- Todd Martens, L.A.</p>
+
+Автор: Yermola
+
+### 13.03.2013 news SUICIDAL TENDENCIES: видеоклип &quot;Cyco STyle&quot;
+
+<P>26 марта легендарный crossover ансамбль <STRONG>SUICIDAL TENDENCIES</STRONG> выпускает свой первый, за 13 лет, полноформатник. Этот диск, получивший название <STRONG>"13"</STRONG>, станет 13 по счёту студийным альбомом группы и на него войдёт 13 песен.&nbsp;Ну а&nbsp;пока, что бы скоротать ожидание до&nbsp;его&nbsp;выхода,&nbsp;можно посмотреть видеоклип на новый трек <STRONG>"Cyco STyle"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/xMekYgyWrhg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.04.2014 news SUICIDAL TENDENCIES: видеоклип &quot;Slam City&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>SUICIDAL TENDENCIES</STRONG> порадовала своих фанатов видеоклипом на трек <STRONG>"Slam City"</STRONG>. Данная песня&nbsp;вошла на прошлогодний альбом <STRONG>S.T.</STRONG>&nbsp;под названием <STRONG>"13"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/efYZ4-fGDR8" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 04.09.2014 news SUICIDAL TENDENCIES потеряла басиста
+
+<P>27 августа легендарная американская crossover банда <STRONG>SUICIDAL TENDENCIES</STRONG> cообщила о кончине своего бас-гитариста Тима Вилльямса (<STRONG>Tim 'Rawbiz' Williams</STRONG>). Причина смерти не сообщается. <STRONG>Tim 'Rawbiz' Williams</STRONG> был участником коллектива на протяжении почти четырёх лет. Помимо <STRONG>SUICIDAL TENDENCIES</STRONG>, он был&nbsp;также&nbsp;известен за свою работу с <STRONG>Toni Braxton</STRONG> и <STRONG>BOYZ II MEN</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.09/27247.jpg" width=645 height=312> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 22.06.2017 news Автограф-сессия SUICIDAL TENDENCIES в Москве
+
+<P>За несколько часов до единственного концерта в России легендарная калифорнийская группа <STRONG>SUICIDAL TENDENCIES</STRONG> проведет автограф-сессию в максимально дружественном формате.</P>
+<P>1 июля 16.00, скейт-бар <STRONG>"Свобода"</STRONG>, на территории недавно открывшегося пространства <STRONG>"Хлебзавод"</STRONG> (м. Дмитровская, ул. Новодмитровская, 1 стр. 9).<BR>До встречи! World Gone Mad!</P>
+<P>Информация о концерте: <A href="/ru/shows/#74096">http://musica.mustdie.ru/ru/shows/#74096</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.06/30588.jpg" width=500 height=500> 
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+### 27.06.2017 news SUICIDAL TENDENCIES: клип &quot;Living For Life&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>SUICIDAL TENDENCIES</STRONG> представила видеоклип на песню <STRONG>"Living For Life"</STRONG>. Трек взят с последнего студийного альбома <STRONG>"World Gone Mad"</STRONG>, который вышел осенью прошлого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Московский концерт уже в эту субботу: <A href="/ru/shows/#74096">http://musica.mustdie.ru/ru/shows/#74096</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/AYrxR3_z0x4" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### ваше отношение к Suicidal Tendencies "Suicidal for Life" 94

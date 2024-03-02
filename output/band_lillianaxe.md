@@ -30,6 +30,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.12.2011 news LILLIAN AXE на AFM
+
+<P><STRONG>LILLIAN AXE</STRONG> заключили сделку с <STRONG>AFM Records</STRONG>. Новый альбом группы <STRONG>"XI: The Days Before Tomorrow" </STRONG>выйдет 27 января. Пластинка была записана в <STRONG>Sound Landing Studio, </STRONG>а гитарист группы <STRONG>Steve Blaze </STRONG>выступил продюсером. Сведение сделала <STRONG>Sylvia Massey</STRONG> (<B>TOOL</B>, <B>JOHNNY CASH</B>, <B>DEFTONES</B>, <B>SYSTEM OF A DOWN</B>, <B>PRINCE</B>, <B>BLACK CROWES</B>). Вот названия некоторых песен: <STRONG>"Bow Your Head"</STRONG>, <B>"Gather Up The Snow"</B>, <B>"Soul Disease"</B>&nbsp;и <B>"The Great Divide"</B>.</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.12/22275.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 15.03.2012 news Новое видео LILLIAN AXE
+
+<P>Новый ролик <STRONG>LILLIAN AXE</STRONG> на песню "<STRONG>Caged In</STRONG>" можно посмотреть ниже. Трек взят с вышедшего нового альбома коллектива "<STRONG>XI: The Days Before Tomorrow</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Vzn1rnb7fl4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

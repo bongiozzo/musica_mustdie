@@ -19,6 +19,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.09.2011 news Видео-клип AVARIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Австралийская prog-metal команда<STRONG> AVARIN</STRONG> опубликовала видео-клип на песню с дебютного альбома<STRONG> "Requiem" "The Unwilling"</STRONG>, который можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/hVqyI3JJ-74?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/hVqyI3JJ-74?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

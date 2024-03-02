@@ -61,6 +61,55 @@ Mikael Sehlin  Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.07.2008 reviews Дебютный альбом. Продюсеры – музыканты IN FLAMES
+
+<P>Шведская группа DEGRADEAD неизвестна широкому слушателю. Только что на лэйбле Dockyard 1 вышел их дебютный диск, который и издал в нашей стране Союз. Главной особенностью этого альбома стало участие в его реализации нескольких музыкантов IN FLAMES.</P>
+<P>DEGRADEAD представляют нашему вниманию стандартный материал в жанре мелодичного death-thrash-metal современного образца. Несложные композиции с чередованием вокалов, обыденное звучание. Jesper Stromblad из IN FLAMES с какого-то перепугу сравнил DEGRADEAD с METALLICA и наобещал группе всего самого наилучшего. К сожалению, я ничего столь многообещающего на “Till Death Do Us Apart” не приметил. Очень обычная музыка, которая слушается без каких-то экстремальных эмоций. Хотя Jesper понять можно, он вместе со своими друзьями Bjorn Gelotte и Peter Iwers продюсировал обозреваемую пластинку. Вот это, пожалуй, главное её коммерческое достоинство. Не сказать, что звук DEGRADEAD особенно сочен или интересен, просто эти продюсеры могут помочь подопечным своими именами.</P>
+<P>Проходная дебютная работа, годная только как утолитель жажды маньяков стиля. Остальные пропускают мимо.</P>
+Автор: Vit Belov
+
+### 19.01.2009 news Новый альбом DEGRADEAD
+
+<P><STRONG>DEGRADEAD</STRONG> выпустят свой второй альбом <STRONG>"Out Of Body Experience" </STRONG>в феврале на <STRONG>Dockyard 1</STRONG>. Пластинка была записана в студии <STRONG>Peter Tagtgren Abyss</STRONG>. Сведение и мастеринг прошли в <STRONG>Dugout Productions</STRONG> (<B>IN FLAMES</B>, <B>MESHUGGAH</B>, <B>STRAPPING YOUNG LAD</B>). Две песни с этой пластинки можно послушать на <STRONG>MySpace</STRONG> страничке группы. </P>
+<P>Ссылка: <A href="http://www.myspace.com/degradead">http://www.myspace.com/degradead</A></P>
+Автор: Vit Belov
+
+### 10.03.2009 news DEGRADEAD попали в чарты на родине
+
+<P>Второй альбом шведов<STRONG> DEGRADEAD</STRONG> <STRONG>"Out Of Body Experience" </STRONG>попал в чарты в их родной стране на 48-ое место. Пластинка вышла 27 февраля на<STRONG> Dockyard 1</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.03.2009 news DEGRADEAD сняли &quot;бродилку&quot; от первого лица
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>DEGRADEAD</STRONG> на песню <STRONG>"Wake The Storm" </STRONG>с нового альбома <STRONG>"Out Of Body Experience" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=54284697">Degradead - Wake The Storm</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=54284697,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=54284697,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.04.2009 reviews В Швеции в чартах, в других странах в общих рядах
+
+<P>Второй альбом DEGRADEAD “Out Of Body Experience” попал в чарты на родине группы в Швеции. Видимо, этот факт подвиг Союз выпустить этот альбом побыстрее. Так и получилось, что дебют этой death-thrash-metal группы мы получили прошлым летом, а «последыш» менее чем через год.</P>
+<P>Напомню содержание предыдущей серии. DEGRADEAD играли на дебюте малопримечательный, но тяжёлый thrash-metal, который иногда заходил на территорию death-metal. Мне их творчество напомнило METALLICA, а через них TRIVIUM. На новом альбоме DEGRADEAD решили закрепить успех, снабдив свою музыку набором популярных и необходимых в глазах сегодняшнего слушателя элементов. Их музыка стала меньше походить на что-то ‘old school’ и легко занимает место в тех местах, которые принято сейчас называть ‘metalcore’. Среди близких по музыке коллективов, можно уже упоминать IN FLAMES или SCAR SYMMETRY. Отмечу, что шведам всё-таки удалось избежать излишней лиричности, свойственной обозначенным выше группам.</P>
+<P>Всё-таки мне не удалось обнаружить причин, по которым DEGRADEAD попали в чарты. Видимо, в родной стране кто-то их хорошо поддерживает шведской кроной. У нас этого не произойдёт, но порекомендовать пластинку любителям стиля можно смело.</P>
+Автор: Vit Belov
+
+### 11.01.2012 news DEGRADEAD выпустят DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская melodic death-metal команда <STRONG>DEGRADEAD</STRONG> выпускает новый DVD "<STRONG>Live At Wacken And Beyond</STRONG>" 28 февраля на <STRONG>Metalville</STRONG>. На диск попадёт первое выступление коллектива на фестивале <STRONG>Wacken </STRONG>в 2010 году, а также дополнительные материалы, среди которых видео-клип на песню "<STRONG>Human Nature</STRONG>", который можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 src="/images/news_rus/2012.01/22587.jpg" width=283 border=0></FONT> 
+<P></P>
+<P><center>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=a3523a226ed7cada85ce" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

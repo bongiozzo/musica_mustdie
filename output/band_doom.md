@@ -143,6 +143,9 @@ Life In Freedom / Money Drug / Fear Of The Future
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### Лучшая doom-metal команда и лучшая doom композиция?

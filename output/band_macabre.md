@@ -176,6 +176,86 @@ Drill Bit Lobotomy
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.11.2001 news Metal Maniacs Xmass Ball Tour 2001...
+
+<p>ELECTRIC WIZARD will be taking part in the Metal Maniacs Xmass Ball Tour 2001 along with touring partners ENSLAVED, MACABRE, DIABOLIC and SCAR CULTURE. Confirmed dates so far are as follows: <BR> <BR> Dec. 05 - Philadelphia, PA @ The Trocadero Theater <BR> Dec. 06 - TBA <BR> Dec. 07 - Brooklyn, NY @ North Six <BR> Dec. 08 - Attleboro, MA @ Jarrod's Place <BR> Dec. 09 - Springfield, VA @ Jaxx Niteclub <BR> Dec. 10 - Cleveland, OH @ Peabody's <BR> Dec. 11 - Pittsburgh, PA @ The Strand Theater <BR> Dec. 12 - St. Louis, MO @ Creepy Crawl <BR> Dec. 13 - Chicago, Il @ Double Door <BR> Dec. 14 - Aurora, IL @ Riley's Rockhouse <BR> Dec. 15 - Detroit, MI @ The Shelter <BR> Dec. 16 - Bowling Green, OH @ Howards Club H <BR> Dec. 18 - Toronto, ON @ Reverb <BR> Dec. 19 - Montreal, QB @ Foufounes Electroniques <BR> Dec. 20 - TBA <BR> Dec. 21 - New London, CT @ The El N Gee Club<BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 11.05.2003 news Коллекция историй убийств
+
+<p>23 сентября на Season Of Mist Records выходит новый альбом группы MACABRE "Murder Metal". Новый альбом продолжает тему чудовищных историй о различных убийцах и их злодеяниях с присущим группе юмором. В музыкальном плане, MACABRE продолжает свои смелые эксперименты смешивая очень тяжелую музыку с панком, фольклором, джазом и другими музыкальными направлениями. MACABRE все в том же составе: гитарист-вокалист Corporate Death, ударник Dennis the Menace и басист-вокалист Nefarious. Вслед за выпуском нового альбома, группа планирует к переизданию свой классический релиз "Grim Reality", который включит в себя оригинальные записи, новые ремиксы и еще кое-какие сюрпризы.</p>
+
+Автор: Dimas
+
+### 03.06.2003 reviews Возвращение клоунов
+
+<p>Американские gore-шутники возвращаются. На сей раз с концептуальным трудом, посвящённым жизни (и смерти) некоего Jerry Dahmer'а, очередного серийного убивцы родом из страны биг-маков и пепси-колы. Это по части текстов. А что же музыка? А музыка представляет собой ни что иное как чертовски весёлый… ээ… назовём это boogie-woogie-grind'ом. Грайнд сей не только чертовски весёлый, но ещё и отлично сыгранный, а также, что ещё более удивительно, шикарно записанный, и не кем-то там, а самим Neil'ом Kernon'ом. Что, вам поплохело? Ну что же вы, не надо так. В конце концов, MACABRE – это MACABRE, а не хрен собачий. Оценку ставить не буду. Ибо не моё это. Разок послушал, посчитал достаточно любопытной работой – и поставил на полку. До лучших времён. Но это моё личное мнение. У вас, как это частенько случается ;-), оно может быть иным.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 17.03.2004 reviews Тринадцать убийственных  хитов
+
+<P>Восхитительно - не совсем то слово, которое подходит к оценке такой музыки как дэт-хардкор, но по отношению к последней работе чикагского трио <B>MACABRE</B> другие эпитеты приходят на ум чуть позже. Самое интересное, что большинство из них заканчивается на -ительно - от "умопомрачительно" - до "зубодробительно". Впрочем, не исключено, что найдутся и такие, кто сквозь зубы процедит - "отвратительно", но наверняка это будут фаны музыки по типу Nightwish и Корни. Здравомыслящие люди просто постесняются говорить обидные слова в адрес <B>MACABRE</B>, а уж тем более - в адрес альбома <B>Murder Metal</B>. А если кто-что и вякнет - чтоб ему встретиться в тёмном переулке с героями песен группы, которые, как и прежде, посвящены реально действовавшим серийным убийцам, насильникам, людоедам и прочим извращенцам.<BR>Как уже было сказано , музыка <B>Macabre </B>как раньше, так и сейчас представляет собой извращённую...стоп! - изощрённую и гремучую смесь дэта, хард-кора, грайндкора, польки и краковяка. И не только. Песня <B>Fritz Haarmann der Metzger</B> - явный камень в блэк-метал огород, где так старательно "воспевают холод и мрак зимних ночей".<BR>Corporate Death, Dennis The Menace и Nefarios владеют своими инструментами с потрясающей виртуозностью, которая, тем не менее, не становится вещью в себе, а лишь способствует богатству и яркости красок музыкальной палитры данного произведения. Всё то, за что мы любили Макабр, здесь присутствует в количествах, гораздо больших, чем на предыдущих работах. Больше искромётности, больше крышесрывательного драйва, больше непредсказуемых ходов и убийственных хитов, таких, как... как все тринадцать песен альбома.<BR>Вот, только правда, трупов стало меньше. Как никак, всего лишь тринадцать правдивых историй против двадцати одной в <B>Sinister Slaughter</B> . Зато подбор главных героев нетривиален: наёмный убийца Richard Kuklinski (The Iceman ), юный отравитель Graham Fredrick Young (Poison), оборотень Peter Stumpp, живший 400 лет тому назад (The Werewolf of Bedburg ), до сих пор не идентифицированный Джек-Потрошитель и многие другие деятели, сеявшие страх и ужас в душах обывателей. Однако, несмотря на всю их гадкую сущность, группе Macabre, воспевающих их деяния, удаётся сеять добро и радость в сердцах благодарных слушателей. Как им это удаётся - загадка. Ясно только, что <B>MACABRE</B> - одно из оригинальнейших и уникальных явлений на тяжелой сцене. И альбом <B>Murder Metal</B> - очередной веский тому аргумент.</P>
+Автор: Omon Ra
+
+### 19.07.2004 reviews Весело о страшном
+
+<P>Помнится, в свое время вокруг последнего релиза американского веселенького трио с милым названием Macabre было немало шума. Многие называли его лучшей пластинкой в истории группы и даже лучшим альбомом 2003 года. Позволю себе с ними не согласиться. Сей релиз неплох, но не более того. Тот же "Dahmer" был явно интереснее. Хотя "макабровцы" по-прежнему с юмором повествуют об убийцах и маньяках прошлых лет (Джеке Потрошителе и др.), что-то из их песен неуловимо исчезло. Может, просто годы сказываются, и поэтому-то прежней энергии нет? Или с фантазией уже туговато? Раньше им удавалось втискивать по 20 с лишним песен на диск, а в этот раз всего 13, причем последняя 'Fritz Haarmann Der Metzger' (на немецком языке) уже не новая тема, на альбоме "Gloom" была песенка 'Fritz Haarmann The Butcher' (хотя это и не ремейк). А, может, просто murder metal стал менее убийственным? Трудно сказать, думаю, альбом может понравиться тем, кто слышит группу в первый раз, а те, кто знакомы с Macabre уже давно, скорее всего, просто неудоменно пожмут плечами.</P>
+<P>Альбом предоставлен компаний "CD-Maximum".</P>
+Автор: Ixtiandr
+
+### 04.04.2006 news Первый dvd MACABRE
+
+<P><STRONG>Season of Mist</STRONG> объявили 2 июня датой релиза первого dvd группы <STRONG>MACABRE</STRONG> под названием&nbsp;<STRONG>"Live in Holland – True Tales of Slaughter and Slaying"</STRONG>. Диск содержит многокамерные съёмки с выступления группы в голландском городе Дордрехт 26 августа 2005 года, где они давали один из концертов в поддержку последнего альбома <B>"Murder Metal"</B>. Российское издание выйдет чуть позже на <STRONG>CD-Maximum</STRONG>.</P>
+Автор: Dimas
+
+### 11.07.2006 news DVD от MACABRE
+
+<P>Американский murder metal коллектив&nbsp;<B>MACABRE</B> подготовил к изданию свой дебютный двд под названием <B>"Live in Holland – True Tales of Slaughter and Slaying"</B>, который выйдет 11 июля в Америке и 17 июля в Европе через <STRONG>Season Of Mist</STRONG>. Диск содержит снятый&nbsp;несколькими камерами&nbsp;материал с голландского гига группы а поддержку альбома <STRONG>"Murder Metal",</STRONG> состоявшегося 26 августа 2005 года.&nbsp;Трек-лист издания:<BR><BR><IMG height=420 alt="" hspace=50 src="/images/news_rus/2006.07/10531.jpg" width=300 align=right border=0>01. <B>Zodiac</B><BR>02. <B>Jack the Ripper</B><BR>03. <B>Serial Killer</B><BR>04. <B>The Wustenfeld Man Eater</B><BR>05. <B>Dog Guts</B><BR>06. <B>Fritz Haarman der Metzger</B><BR>07. <B>Coming to Chicago</B><BR>08. <B>The Vampire of Dusseldorf</B><BR>09. <B>Acid Bath Vampire</B><BR>10. <B>Ed Gein</B><BR>11. <B>Dr. Holmes</B><BR>12. <B>Fatal Foot Fetish</B><BR>13. <B>The Diary of Torture</B><BR>Bonus tracks: <BR>14. <B>Scrub A Dub Dub</B><BR>15. <B>Mary Bell</B><BR>16. <B>The Hitchhiker</B><BR>17. <B>Albert Was Worse Than Any Fish In The Sea</B><BR>Extra features: <BR>* Behind the scenes and out and about with <B>Corporate Death</B> and <B>Dennis The Menace</B><BR>* Songs from Biebob, Vosselaar on the Dahmer tour <BR>01. <B>Dog Guts</B><BR>02. <B>Hitchhiker</B><BR>03. <B>Mary Bell</B><BR>04. <B>Drill Bit Lobotomy</B><BR></P>
+Автор: Dimas
+
+### 25.07.2010 news Новый миньон чикагцев MACABRE 
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16949.jpg" width=400 height=398>Чикагские головорезы из <STRONG>MACABRE</STRONG> выпускают&nbsp;в августе месяце&nbsp;свою первую студийную работу, со времен альбома "<STRONG>Murder Metal</STRONG>" (2003). 12" миньон получивший название <STRONG>"Human Monsters"</STRONG> будет реализован&nbsp;в количестве 1000 кроваво-красных винилов на чешском <STRONG>Obscene Productions</STRONG>. Новый же полноформатник, под названием <STRONG>"Grim Scary Tales"</STRONG>, выйдет позже в этом году.<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 07.01.2011 news Новинка от MACABRE
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18084.jpg" width=400 height=402>В ознаменование своего 25-летия, чикагские маньяки <STRONG>MACABRE</STRONG> выпускают свой новый студийный альбом "<STRONG>Grim Scary Tales</STRONG>". В Европе диск выйдет 31 января на <B itxtvisited="1">Hammerheart Records</B>, а в Северной Америке - 8 февраля на <B itxtvisited="1">Willowtip Records</B>. </P>
+<P>Оформлением "<STRONG>Grim Scary Tales</STRONG>" занимался <B itxtvisited="1">Scott Jackson</B>, рисующий для компаний <B itxtvisited="1">Monsterman Graphics</B> и <B itxtvisited="1">Rock 'N' Roll Comics</B>.</P>
+<P>Трек-лист<STRONG> "Grim Scary Tales"</STRONG>: <BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Locusta</B><BR itxtvisited="1">02. <B itxtvisited="1">Nero's Inferno</B><BR itxtvisited="1">03. <B itxtvisited="1">The Black Knight</B><BR itxtvisited="1">04. <B itxtvisited="1">Dracula</B> <BR itxtvisited="1">05. <B itxtvisited="1">Countess Bathory</B><BR itxtvisited="1">06. <B itxtvisited="1">Burke and Hare</B><BR itxtvisited="1">07. <B itxtvisited="1">Mary Ann</B><BR itxtvisited="1">08. <B itxtvisited="1">The Bloody Benders</B><BR itxtvisited="1">09. <B itxtvisited="1">Lizzie Borden</B><BR itxtvisited="1">10. <B itxtvisited="1">The Ripper Tramp From France</B><BR itxtvisited="1">11. <B itxtvisited="1">Bella the Butcher</B><BR itxtvisited="1">12. <B itxtvisited="1">The Kiss of Death</B><BR itxtvisited="1">13. <B itxtvisited="1">The Sweet Tender Meat Vendor</B></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

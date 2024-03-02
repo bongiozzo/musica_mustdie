@@ -28,6 +28,70 @@ PANTERA members
 * C группой "Pantera" Vinnie Paul (drums)
 * C группой "Halford" Patrick Lachmann (guitar, vocal)
 
+## Публикации
+
+### 17.10.2003 news Ещё один side-project участников PANTERA
+
+<P>Гитарист и барабанщик <B>PANTERA Dimebag Darrell</B> и <B>Vinnie Paul </B>официально объявили название своей новой группы - <B>DAMAGEPLAN</B>. Дебютный альбом коллектива будет называться <B>'New Found Power'</B> и выйдет 27 января на <B>Elektra</B>. Кроме вышеупомянутых персонажей в группу войдут: вокалист <B>Patrick Lachmann</B> (играл на гитаре у <B>HALFORD</B>) и гитарист <B>Shawn Mattews</B>. Имя басиста будет названо позже. Вот трэк-лист грядущего альбома:</P>
+<P>01. <B>Wake Up</B><BR>02. <B>NFP (New Found Power)</B> <BR>03. <B>Pride</B> <BR>04. <B>Blunt Force Trauma</B> <BR>05. <B>Save Me</B> <BR>06. <B>Explode</B> <BR>07. <B>Fuck You</B> (feat. <B>Corey Taylor</B>)<BR>08. <B>Cold Blooded</B> <BR>09. <B>Reborn</B> (feat. <B>Zakk Wylde</B>)<BR>10. <B>Blink of An Eye</B> <BR>11. <B>Breathing New Life</B> <BR>12. <B>Crawl</B> <BR>13. <B>Moment Of Truth</B> <BR>14. <B>Soulbleed</B> (feat. <B>Zakk Wylde</B>)</P>
+Автор: Vit Belov
+
+### 17.10.2003 news One More Side-Project from PANTERA members
+
+<B>PANTERA</B> guitarist <B>Dimebag Darrell</B> and drummer <B>Vinnie Paul</B> have officially named their new band <B>DAMAGEPLAN</B>. The group, whose debut album is due January 27 through <B>Elektra Records</B>, also features singer <B>Patrick Lachman</B>, who used to play guitar in <B>HALFORD</B> and <B>DIESEL MACHINE</B>. Former <B>JERRY CANTRELL</B> back-up guitarist <B>Shawn Matthews</B>, who played bass in an early incarnation of <B>DAMAGEPLAN</B> (then called <B>NEW FOUND POWER</B>), is no longer involved with the project (a replacement bassist may be announced as early as this Friday, according to the group's management). The album, tentatively titled <B>"New Found Power"</B>, was recorded at <B>Darrell</B>'s home studio, <B>Chasin Jason</B>, and was produced by <B>Darrell</B> and <B>Paul</B> along with <B>Sterling Winfield</B> (<B>PANTERA</B>, <B>MERCYFUL FATE</B>). Guests include <B>SLIPKNOT</B>'s <B>Corey Taylor</B> (lead vocals on second verse and bridge and half of last verse in <B>"Fuck You"</B>) and <B>OZZY OSBOURNE</B>/<B>BLACK LABEL SOCIETY</B> guitarist <B>Zakk Wylde</B> (lead outro on <B>"Reborn"</B> and backing vocals on <B>"Soulbleed"</B>).<BR><BR>The complete track listing for the CD is as follows:<BR><BR>01. <B>Wake Up</B><BR>02. <B>NFP (New Found Power)</B> <BR>03. <B>Pride</B> <BR>04. <B>Blunt Force Trauma</B> <BR>05. <B>Save Me</B> <BR>06. <B>Explode</B> <BR>07. <B>Fuck You</B> (feat. <B>Corey Taylor</B>)<BR>08. <B>Cold Blooded</B> <BR>09. <B>Reborn</B> (feat. <B>Zakk Wylde</B>)<BR>10. <B>Blink of An Eye</B> <BR>11. <B>Breathing New Life</B> <BR>12. <B>Crawl</B> <BR>13. <B>Moment Of Truth</B> <BR>14. <B>Soulbleed</B> (feat. <B>Zakk Wylde</B>)<BR>
+Автор: Vit Belov
+
+### 17.12.2003 news Damageplan interview posted on-line
+
+Knon 89.3 fm the voice of the people from Dallas&nbsp;- thrashin' alan (dj) did an interview with the boys from&nbsp;<B>DAMAGEPLAN</B> (ex-<B>PANTERA</B> members <B>Vinnie</B> and <B>Dime</B> with ex-<B>HALFORD</B> guitarist <B>Pat Lachman</B>, and <B>Bobzilla</B>) and&nbsp;interview&nbsp;was&nbsp;posted&nbsp;on the site to download in 8 .mp3 files.&nbsp;URL:&nbsp; <A href="http://hardtimeradio.com/index2.html"><U>http://hardtimeradio.com/index2.html</U></A>
+Автор: Vit Belov
+
+### 10.12.2004 news Dimebag Darrell (DAMAGEPLAN, ex-PANTERA) убит
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сенсационная и грустная новсть пришла вчера из США. Во время одного из шоу тура по США с <STRONG>DAMAGEPLAN</STRONG> в <STRONG>Columbus Club Ohio</STRONG> был застрелен <STRONG>Dimebag Darrell</STRONG> - бывший гитарист <STRONG>PANTERA</STRONG>. Америка и весь музыкальный мир в шоке. Поступают соболезнования от всех ведущих музыкантов со всего мира. Кроме <STRONG>Dimebag</STRONG> погибло ещё&nbsp;3 человека. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Убийца также был застрелен, его имя <STRONG>Nathan Gale</STRONG>, ему было 25 лет. Он служил в морской пехоте. Сообщается, что он пытался перед концертом пообщаться с группой, но не был к ней допущен. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Совсем недавно сообщалось о разногласиях между <STRONG>Dimebag</STRONG> и его бывшим коллегой по <STRONG>PANTERA Phil Anselmo</STRONG>. Полиция рассматривает версию возможной связи между двумя событиями. Басист нынешней группы <STRONG>Anselmo SUPERJOINT RITUAL Hank Williams III</STRONG> уже сообщил, что <STRONG>Anselmo</STRONG> находится в шоке и не может общаться с прессой.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>R.I.P.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 12.12.2004 news Убийца Dimebag Darrell мстил за украденную лирику!?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Друг убийцы <STRONG>Dimebag Darrell</STRONG> (ex-<STRONG>PANTERA</STRONG>, <STRONG>DAMAGEPLAN</STRONG>) <STRONG>Nathan Gale</STRONG> сообщил, что он утверждал, что <STRONG>PANTERA</STRONG> украла у него стихи для одной из песен. Вероятно, это и стало причиной совершённого убийства.</FONT></P>
+Автор: Vit Belov
+
+### 16.12.2004 news Dimebag Darrell RIP - продажи альбомов выросли
+
+<P>После убийства <STRONG>Dimebag Darrell</STRONG> скачкообразно выросли продажи пластинок <STRONG>PANTERA </STRONG>и <STRONG>DAMAGEPLAN</STRONG>. </P>
+<P><STRONG>DAMAGEPLAN</STRONG> – <B>"New Found Power"</B> (2004):<BR>2 недели назад: 622<BR>Прошлая неделя: 7,020<BR>Всего на эту дату: 167,106<BR><B>PANTERA</B> - <B>"Best Of…"</B> (2003):<BR>2 недели назад: 1,928<BR>Прошлая неделя: 8,659<BR>Всего на эту дату: 290,597<BR><B>PANTERA</B> – <B>"Vulgar Display of Power"</B> (1992): <BR>2 недели назад: 741<BR>Прошлая неделя: 3,530<BR>Всего на эту дату: 1,923,171<BR><B>PANTERA</B> – <B>"Cowboys From Hell"</B> (1990):<BR>2 недели назад: 483<BR>Прошлая неделя: 2,825<BR>Всего на эту дату: 1,374,326<BR><B>PANTERA</B> – <B>"Far Beyond Driven"</B> (1994):<BR>Two weeks ago: 349<BR>Прошлая неделя: 1,941<BR>Всего на эту дату: 1,377,898 </P>
+Автор: Vit Belov
+
+### 08.01.2005 articles Dimebag Darrell: прошёл месяц
+
+<P><IMG height=397 alt="Одна из последних фотографий" hspace=0 src="/images/articles_rus/2005.01/7626.jpg" width=250 align=right border=5>Вот уже прошло больше месяца со дня смерти знаменитого гитариста Dimebag Darrell (настоящее имя – Darrell Abbott). Что же произошло 8 декабря в Коламбусе, штат Охио? Как прореагировала общественность на произошедшее? Что происходит сейчас в этом клубе? Как себя чувствуют бывшие коллеги Darrell по DAMAGEPLAN и PANTERA?</P>
+<P>Напомним, вечером в среду 8 декабря 2004 года в ночном клубе произошла перестрелка, в которой был застрелен Dimebag Darrell, а также 3 человека из зала. Психически неуравновешенный убийца был застрелен полицейскими на месте преступления. Этот человек выскочил на сцену во время исполнения первой песни и открыл стрельбу. Новость была мгновенно распространена в сети Интернет, и всё мировое металл-сообщество было шокировано.</P>
+<P>Честно говоря, я был удивлён, приятно, реакцией музыкальных кругов, прежде всего, в Штатах. Мы отбросим обвинения в популизме, а отметим, что не было ни одного музыканта, который не высказался через прессу. Вот лишь некоторые цитаты:</P>
+<P>«Dimebag был моим большим другом. Я просто не в себе от горя. Я не смогу понять того, что произошло в течение всей жизни», - Ozzy Osbourne.</P>
+<P>«Мы не должны никогда забывать его жизнь и его дары, его гений, его наследие…», - Dave Mustain (MEGADETH).</P>
+<P>«Огромная любовь и благодарность за то, что я был малой частью его жизни. Я знаю, что они уже веселятся вместе: Bon Scott, Keith Moon, John Bonham, Jimi, Cliff B. и другие безвременно ушедшие музыканты», - Lars Ulrich (METALLICA).</P>
+<P>«PANTERA вдохновила меня создать LIMP BIZKIT», - Fred Durst (LIMP BIZKIT).</P>
+<P>«Dimebag был Рок’н’Рольной легендой», - Shawn Crahan (SLIPKNOT).</P>
+<P>&nbsp;«Это событие такое же невероятное и трагичное, как убийство John Lennon», - Mike Portnoy (DREAM THEATER).</P>
+<P>«Я был просто поражён, услышав эту новость. Никогда невозможно представить, как жестоки, могут быть люди», - Guy Carbonneau (обладатель Кубка Стэнли в составе Dallas Stars (хоккейная команда из родного города Darrell)).</P>
+<P><IMG height=207 alt="Вывеска клуба в тот вечер" hspace=0 src="/images/articles_rus/2005.01/7627.jpg" width=250 align=left border=5>Особенно интересна была реакция бывшего коллеги Abbott по PANTERA Phil Anselmo, ведь буквально накануне смерти первого он высказывался «примерно в таком духе»: «Dimebag Darrell заслуживает избиения!» Ругань началась всего лишь за несколько месяцев до убийства. Через прессу Darrell и его брат Vinnie Paul (барабанщик PANTERA и DAMAGEPLAN) обвинили Anselmo в том, что тот буквально кинул их, покинув PANTERA и никому не сообщив о своём решении. Phil не заставил себя ждать и откликнулся тирадой, основной мыслью которой стала вышеприведённая цитата. И вот всего лишь через неделю после последних препирательств Darrell погибает. Anselmo не позавидуешь. На следующий день басист нынешней группы фронтмэна SUPERJOINT RITUAL Hank Williams III заявил, что их лидер находится в шоке и не может выступить с заявлением. Более того, Phil не был допущен на похороны. Лишь через несколько недель в сети появилась запись высказываний Anselmo, где он выглядел, мягко говоря, жалко. Можете посмотреть сами: <A href="http://mfile.akamai.com/2838/wmv/cablev.download.akamai.com/2838/fuse/uranium/2004-12-28_anselmo_hi.asx">http://mfile.akamai.com/2838/wmv/cablev.download.akamai.com/2838/fuse/uranium/2004-12-28_anselmo_hi.asx</A></P>
+<P><IMG height=150 alt="Nathan Gale" hspace=0 src="/images/articles_rus/2005.01/7625.jpg" width=200 align=right border=5>Кто же убил Darrell? Информация о стрелявшем появилась буквально на следующий день. Nathan Gale, двадцати пяти лет отроду, из Марисвилля поднялся на сцену клуба Alrosa Villa и открыл огонь примерно в 10 часов вечера. Убийца служил в морской пехоте США. Скорее всего, мы уже не узнаем причин его действий, но некоторая информация стала доступна. Например, стрелок пытался поговорить с членами DAMAGEPLAN до концерта или рассказывал своим знакомым, что PANTERA украла у него лирику для некоторых своих песен. Всё это не важно. Важно, что человек с пистолетом смог проникнуть в клуб, поднялся на сцену и открыл стрельбу, и никто не смог ему помешать. Мне думается, многие музыканты будут теперь задумываться прежде, чем выйти на сцену в США. Кстати, клуб заново откроется на днях, а его хозяин сообщил прессе, что администрация всё равно не смогла бы ничего сделать.</P>
+<P>Ситуация вокруг убийства вызывает несколько странные чувства. Обилие славословий, музыканты, пусть и не знавшие Darrell лично, но игравшие металл, засветились, где только можно. Множество репортажей (странно, что наша пресса пропустила это событие), ток-шоу, увеличившиеся в разы продажи дисков PANTERA и DAMAGEPLAN… И всё же, сложно поверить в искренность такого количества людей, ведь до убийства о Darrell вспоминали только, когда он обзывал Anselmo нехорошими словами.</P>
+<P>МЫ ДЕЙСТВИТЕЛЬНО ПОТЕРЯЛИ ОЧЕНЬ ХОРОШЕГО ГИТАРИСТА, пусть и его нынешнее творчество мало, кто у нас слышал. RIP</P>
+Автор: Vit Belov
+
+### 18.06.2012 news HELLYEAH: обложка и трек-лист третьего полноформатника.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24219.jpg" width=400 height=400>Третий полноформатник группы <STRONG>HELLYEAH</STRONG>, в которую входят бывшие и нынешние участники таких групп, как <STRONG>PANTERA</STRONG>, <STRONG>MUDVAYNE</STRONG>, <STRONG>DAMAGEPLAN</STRONG>&nbsp;и <STRONG>NOTHINGFACE</STRONG>,&nbsp;выйдет 17 июля&nbsp;на новом для&nbsp;группы лейбле <STRONG>Eleven Seven Music</STRONG>. Диск был записан в городе Даллас, (штат Техас), на студиях, принадлежащих барабанщику группы. Продюсер и инженер альбома - <B itxtHarvested="0" itxtNodeId="65">Jeremy Parker</B> (<B itxtHarvested="0" itxtNodeId="64">GODSMACK</B>, <B itxtHarvested="0" itxtNodeId="63">EVANESCENCE</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лиcт:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtHarvested="0" itxtNodeId="57">War In Me</B><BR itxtNodeId="56">02. <B itxtHarvested="0" itxtNodeId="55">Band Of Brothers</B> <BR itxtNodeId="54">03. <B itxtHarvested="0" itxtNodeId="53">Rage/Burn</B> <BR itxtNodeId="52">04. <B itxtHarvested="0" itxtNodeId="51">Drink Drank Drunk</B><BR itxtNodeId="50">05. <B itxtHarvested="0" itxtNodeId="49">Bigger God</B> <BR itxtNodeId="48">06. <B itxtHarvested="0" itxtNodeId="47">Between You And Nowhere</B><BR itxtNodeId="46">07. <B itxtHarvested="0" itxtNodeId="45">Call It</B><BR itxtNodeId="44">08. <B itxtHarvested="0" itxtNodeId="43">Why Does It Always</B><BR itxtNodeId="42">09. <B itxtHarvested="0" itxtNodeId="41">WM Free</B><BR itxtNodeId="40">10. <B itxtHarvested="0" itxtNodeId="39">Dig Myself A Hole</B><BR itxtNodeId="38">11. <B itxtHarvested="0" itxtNodeId="37">What It Takes To Be Me</B><BR itxtNodeId="61">&nbsp;</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

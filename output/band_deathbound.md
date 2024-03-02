@@ -57,6 +57,27 @@ Q - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.02.2006 reviews Наш девиз &quot;Тупой и еще тупее&quot;
+
+<P>Второй альбом финно-шведского квартета&nbsp;Deathbound (а его участники заняты попутно в таких проектак как ...And Oceans, Rotten Sound и&nbsp;The Duskfall) представляет собой ядреную смесь дэта и грайнда с небольшим металкоровым довеском. Притом продюсером пластинки выступил никто иной как Mieszko Talarczyk (Nasum), для которого как для продюсера данный альбом стал последней работой (R.I.P.). По большому счету, здесь что-то может понравится только упертым фанатам упомянутых стилей, ибо однообразная долбежка даже на протяжении всего 33 минут начинает доставать очень быстро. Как раз отсутствие разнообразия является самым большим минусом "Doomsday Comfort". Отсутствие причем до такой степени, что больше о данном альбоме и сказать-то нечего. Добавьте сюда еще и минимум оригинальности и свежих идей. Кто не застрял в своем развитии на примитивнейших и однообразных брутал-актах, тот может спокойно забыть о существовании этой пластинки, сэкономив и время, и деньги. Грайндфрикам же подобный диск может и покатить. На лицензионном издании имеется также довольно удобная мультимедийная секция, где вы можете посмотреть кучу фотографий (судя по которым, эти музыканты весьма неравнодушны к алкоголю), закачать себе обои для компьютера и посмотреть два скучных видеоклипа - собственно, за все эти радости альбом получает лишний балл.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 10.11.2009 news Новый альбом DEATHBOUND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финны <STRONG>DEATHBOUND</STRONG> выпускают новый альбом "<STRONG>Non Compos Mentis</STRONG>" на <STRONG>Dynamic Arts</STRONG> 25 января. В пластинку войдут следующие композиции:</FONT></P>
+<P>1. <STRONG>I Hate Them Still<BR></STRONG>2. <STRONG>The Wave Called Misery</STRONG><BR>3. <STRONG>Free Shackles For Everyone<BR></STRONG>4. <STRONG>The Process Of Destruction<BR></STRONG>5. <STRONG>A Better Tomorrow</STRONG><BR>6. <STRONG>A Reason For Your Fight</STRONG><BR>7. <STRONG>Hell Could Be The Cure<BR></STRONG>8. <STRONG>When The Seas Are Boiling<BR></STRONG>9. <STRONG>Strain<BR></STRONG>10. <STRONG>The Blues Of A Dying Man<BR></STRONG>11. <STRONG>Death Comes For A Visit<BR></STRONG>12. <STRONG>Non Compos Mentis</STRONG><BR>13. <STRONG>The World Is But A Memory</STRONG><BR>14. <STRONG>A Need To Survive</STRONG></P>
+<P>После релиза группа отправится в тур по Европе вместе с <STRONG>DEMONICAL</STRONG> и <STRONG>MY OWN GRAVE</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.11.2009 news Музыка DEATHBOUND
+
+<P>Мы сообщали вчера о выходе нового альбома <STRONG>DEATHBOUND "Non Compos Mentis"</STRONG>. Две песни с этой пластинки можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/deathboundspace">http://www.myspace.com/deathboundspace</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

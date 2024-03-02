@@ -112,6 +112,33 @@ To The Root Of Evil (4:59)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Это уже четвёртый релиз швейцарских музыкантов. И никаких изменений в стилистике музыки. Всё тот же неспешный doom-black, представляющий из себя смесь раннего Tiamat и Samael. Но, оставаясь в рамках стиля, группа прогрессирует от альбома к альбому, улучшая качество материала и развивая стиль, используя все его выигрышные моменты. На "Revenge" музыканты пожалуй достигли пика. Вряд ли уже что-то новое можно здесь придумать. Всё что можно было придумать, музыканты реализовали на этом альбоме. В итоге, получился взрывоподобный материал, который может не понравиться лишь упёртым фанатам grind-core. Всем остальным гарантировано получение изрядной доли удовлетворения при прослушивании этого альбома, сделанного на высочайшем профессиональном уровне.</p>
+
+Автор: Dimas
+
+### 21.11.2000 news Alastis в студии
+
+<p>Швейцарские Alastis в конце ноября садятся в Sound Suite Studio (Tristania, Morgul, Theatre Of Tragedy, Sins Of Thy Beloved, etc) для записи нового полноформатника.</p>
+
+Автор: Yermola
+
+### 03.05.2001 reviews Мрачная атмосферная единица
+
+<p>Мрачная атмосферная единица. Швейцарская команда не умеет разочаровывать. Их материал всегда крепок и интересен. Почти никаких изменений, но звук свежий делающий музыку привлекательной для прослушивания. Альбом включает все то, чем прославилась группа за последние годы. Тяжелый темный металл с сильными басовыми партиями, неразъемными барабанами, атмосферными клавишными, замечательными гитарными партиями и оригинальным выразительным вокалом. Так что это уже не просто смесь SAMAEL и TIAMAT. Это свой собственный стиль. Использование сэмплов группой вовсе не вредит ей, а наоборот придает звуку дополнительную объемность. Этот альбом более мрачный и более безумный. Сказывается и приглашение нового продюсера-звукорежиссера. Им стал Terje Refnes работавший со многими известными группами, например с TRISTANIA. Ну и, конечно, новый клавишник, привнесший в музыку симфонизм и величие. Очень много готических влияний. Превосходный альбом. Именно так и должен звучать настоящий Dark metal.</p>
+
+Автор: Dimas
+
+### 03.05.2001 reviews Sad atmospheric unity
+
+<p>Sad atmospheric unity. The Swiss command does not know how to discourage. Their stuff is always strong and is interesting. Almost of any changes, but note fresh doing music attractive to listening. The album actuates all what the group for last years has become famous by. High-gravity dark metal with strong bass crews, one-piece barrels, atmospheric keyboard, remarkable guitar crews and original expressive vocal. So that it is not so simple a mix SAMAEL and TIAMAT. It is own style. Usage samples by group at all does not harm to her, and to the contrary gives a note a padding extensionality. This album more sad and more mad. The prompt of the new producer - sound assistant has an effect also. Him became Terje Refnes working with many known groups, for example with TRISTANIA. Well and, certainly, new keyboardman, introduced in music symphonism and majesty. It is a lot of Gothic influencings. A topping album. And should sound present Dark metal.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### ALASTIS: можно ли заменить CREMATORY???

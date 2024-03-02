@@ -30,6 +30,15 @@ High Class Death-Doom a-la Lake Of Tears
 * C группой "Aeon" Daniel Dlimi (guitar), Arttu Malkki (drums)
 * C группой "The Equinox ov the Gods" Daniel Dlimi (guitar), Arttu Malkki (drums)
 
+## Публикации
+
+### 01.06.2003 reviews How can you transform Death-Doom metal to gothic-rock?
+
+<p>Do you remember SENTENCED 'Amok' album, where Taneli Jarva (The Black League) sang. We listened to many bands with such shouting-growling vocals for these 8 years. Veterans of this genre - swedes EQUINOX OV THE GODS - were not very popular, because two previous album were released on greece label Unisound. We can listen to third album... Everything is begining with voices of war, like SENTENCED had, then vocal is coming, like SENTENCED had, but everything is finishing by melodies, like SENTENCED had on 'Amok'. I think, you have recieved main 'landmark'. But music was recorded too lightly and keyboards are leading instrument. Death-Doom of past century transformed to gothic-rock of this century... Only there is not tender vocal... You can listen to.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

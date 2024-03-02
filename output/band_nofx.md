@@ -56,6 +56,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.08.2016 news NOFX выступили в Москве (фото)
+
+<P>Американская панк команда <STRONG>NOFX</STRONG> выступила&nbsp;вчера&nbsp;в Москве в клубе <STRONG>Yotaspace</STRONG>. Фоторепортаж с этого события можно <A href="/ru/galleries/1/1773/">посмотреть здесь.</A></P>
+<P> 
+<CENTER><IMG border=0 src="/images/news_rus/2016.08/29803.jpg" width=600 height=400> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.08.2016 news NOFX performed in Moscow (photo)
+
+<p>American punk band <strong>NOFX </strong>performed yesterday in Moscow in the club<strong> YOTASPACE</strong>. The photos from this event can be <a href="/en/galleries/1/1773/">viewed here.</a>&nbsp;</p><center><img width="600" height="400" src="/images/news_rus/2016.08/29803.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

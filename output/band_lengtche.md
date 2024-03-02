@@ -24,6 +24,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.05.2011 news Видео из анатомического театра от LENG TCH&#39;E
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип "гриндкорщиков"<STRONG> LENG TCH'E</STRONG> на песню <STRONG>"Totalitarian" </STRONG>можно посмотреть ниже. Ролик был снят в анатомическом театре в городе Лювен в Бельгии. В записи этой песни принял участие фронтмен <STRONG>NAPALM DEATH</STRONG> <STRONG>Mark "Barney" Greenway. </STRONG>Трек взят с последнего альбома группы <STRONG>"Hypomanic", </STRONG>который вышел в мае прошлого года на <STRONG>Season Of Mist</STRONG> и в России на<STRONG> Союзе</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME class=youtube-player title="YouTube video player" src="http://www.youtube.com/embed/qziuhvH7Z5k?rel=0&hd=1" frameBorder=0 width=480 height=390 type="text/html"></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

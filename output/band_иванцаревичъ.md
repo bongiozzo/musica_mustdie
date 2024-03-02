@@ -24,6 +24,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2003 news Иван Царевич в Авалоне
+
+<P><LABEL id=HbSession SessionId="1256079305"><IMG height=210 alt="" hspace=10 src="/images/shows_rus/2003.12/5689.jpg" width=300 align="left" border=0>13 декабря в клубе Авалон состоится концерт группы Иван-царевич.</LABEL><LABEL SessionId="1256079305">&nbsp;<BR>Также в концерте принимают участие группы Валькирия, Саботаж, Алое Море, Фараон и Almost People.<BR>Начало концерта в 18:00. </LABEL></P>
+<P><LABEL SessionId="1256079305">Проезд: м. ВДНХ ул. Докукина д.10 стр.12<BR></LABEL></P>
+Автор: Dimas
+
+### 28.03.2007 news Презентация нового альбома ИВАН ЦАРЕВИЧ
+
+<CENTER><IMG height=283 src="/images/shows_rus/2007.03/11435.jpg" width=400 border=0></CENTER>
+Автор: Dimas
+
+### 13.11.2007 news Московский призыв - 2007
+
+<P>
+<CENTER><IMG height=261 src="/images/shows_rus/2007.12/12011.jpg" width=500 border=0></CENTER>
+<P></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Группа АРДА feat. Мелисов в Релаксе 29-го ноября :)

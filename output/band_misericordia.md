@@ -18,6 +18,28 @@ Painful Dream (Pt. II)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Necroticism-Descanting The Insalubrious", 1991, Earache]<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 18.01.2003 reviews Очередной вариант старого доброго Театра Трагедии
+
+<p>Очередной вариант старого доброго Театра Трагедии. Музыкантов одолевают болезненные сны и слепые желания. И им хочется бежать от этого, даже посредством Смерти... Об этом и ведают французы на своем дебютном альбоме. Продуманный и выразительный материал. Наличествуют нежный женский и суровый мужской вокалы на фоне тяжелых разнообразных риффов с непостоянной ритмикой. Смесь первых двух альбомов THEATRE OF TRAGEDY и дебютника THE GATHERING. Первая половина альбома проходит на одном дыхании. А вот под конец становится немного скучновато и монотонно. Хотя вроде все, что нужно присутствует. Красивые гитары, душевные пианино, прекрасные вокалы. Органичный и самодостаточный death-doom не отличающийся оригинальностью, но подкупающий своей искренностью.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

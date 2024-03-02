@@ -22,6 +22,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.09.2001 news Полуночное Солнце...
+
+<p>Шведы "MIDNIGHT SUN" 24-го сентября выпускают свой новейший альбом "Metal Machine" (Спасибо, что не Metal Heart! Yermola). Трек-лист: 01. Metal Gods 02. Dungeons Of Steel 03. Temple Of The Graal 04. Steel To Steel 05. Metal Machine 06. Fight 07. Distorted Eyes 08. Your Blood Burns In Hell 09. Keeper Of The Gate 10. Metal Will Stand Tall + скрытый бонус трек. Этот опус команда писала уже в новом составе: Jakob Samuel (вокал), Magnus Karlsson (гитара), Jonas Reingold (басс) и Jaime Salzaar (барабаны). Продюссировали "Железную Машину" Jonas Reingold, Anders Theo Theander и участник "MAJESTIC" - Richard Andersson.</p>
+
+Автор: Yermola
+
+### 03.09.2001 news MIDNIGHT SUN ...
+
+<p>Sweden’s MIDNIGHT SUN will release their new album, entitled Metal Machine, on September 24th in Europe via the LMP label. Featuring the brand new line-up of Jakob Samuel (vocals), Magnus Karlsson (guitars), Jonas Reingold (bass), and Jaime Salzaar (drums), Metal Machine was produced by Jonas Reingold and Anders Theo Theander and features MAJESTIC member Richard Andersson on keyboards. The full track listing for the album is as follows: 01. Metal Gods 02. Dungeons Of Steel 03. Temple Of The Graal 04. Steel To Steel 05. Metal Machine 06. Fight 07. Distorted Eyes 08. Your Blood Burns In Hell 09. Keeper Of The Gate 10. Metal Will Stand Tall + a hidden bonus track. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 15.01.2002 reviews Смерть фальшивому металлу
+
+<p>Смерть фальшивому металлу. Вот и еще одна группа решила побороться за чистоту и красоту стиля. Это уже четвертый альбом шведской команды, который, безусловно, на голову лучше предыдущих релизов и по качеству, и по технике, и по записанному материалу. Истинный true metal в духе восьмидесятых с полным набором стандартов и клише тех времен. Представляя собой некий гибрид творчества Yngwie Malmsteen'a, Judas Priest и Hammerfall, то есть мелодично-энергичный heavy-power metal с претензиями на hard-rock, этот материал, тем не менее, не является особо выдающимся и убедительным. Особо мне не понравились метания нового вокалиста группы,имеющего неплохой голос, но который никак не может определиться как ему петь. В результате, временами он напоминает Роба Хэлфорда, а временами Джона Бон Джови и Винса Нейла. В целом же, хорошо записанный альбом с добротной музыкой и неплохими мелодиями. Если вы не любите фильмы-пародии, то этот альбом вам тоже вряд ли понравится, остальным же советую хотя бы послушать, но не уверен, что вам шибко понравится.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

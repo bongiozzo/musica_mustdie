@@ -63,6 +63,132 @@ Bonus:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.11.2001 news Новости от Asguard
+
+<p>Белорусская black-death банда Asguard готовится к туру с поляками Hate по Белоруссии, который пройдёт на ближайшей неделе. Также группа планирует тур в конце года вместе с Behemoth. Кроме того, Asguard собираются выпустить новый альбом, выдержанный в духе жёсткого black-death metal в середине зимы.</p>
+
+Автор: Vit Belov
+
+### 17.03.2002 news Некоторые новости из лагеря FATAL ECSTASY
+
+<p>Наконец-то увидела свет анонсированная ранее МС-лицензия 2-го альбома балтийских громовержцев SKYFORGER "Latvian Riflemen". Многим запомнился яростный heavy-black metal высшей пробы после эффектного выступления латышей в Минске и Бресте прошлой осенью. Кассета дополнена эксклюзивным трэком, спрашивайте ее в традиционных точках распространения релизов FATAL ECSTASY.</p>
+<P> В московской CDM студии закончены работы по ремастерингу наиболее важных релизов подлейбла FUNERAL PYRE, которые скоро поступят в продажу уже с качественным звучанием: EVTHANAZIA "No Longer Forces", OYHRA "Na Jazycznickaj Ziamli" и "Ratnaja Strala". Ответственный за реставрацию звука - Сергей Атрашкевич (Rossomahaar/Stonehenge). В марте Сергей планирует закончить финальный мастеринг грядущего CD "Summing Desiderantes Affectibus" могилевских ASGUARD.</>
+
+Автор: Dimas
+
+### 22.03.2002 news NOKTURNAL MORTUM в Беларуси
+
+<p>31 марта в Минске состоится единственный концерт легендарных блэк металлеров с Украины NOKTURNAL MORTUM. Разогревом будет выступать могилевская группа ASGUARD, другой разогревающей командой будет INFESTUM. Концерт пройдет в клубе "База" по адресу П. Бровки, 8а. Начало концерта в 18:00. <BR> Цена билета: в предварительной продаже - 6.000, в день концерта - 7.000.<BR> Предварительная продажа с 20.03 в магазине D-Shop (Притыцкого,40) и кассе клуба (пятница, суббота, воскресенье с 19:00 до 21:00).</p>
+<P> Желающие могут посмотреть <A HREF="http://musica.mustdie.ru/ru/galleries/1/16">афишу</A> данного мероприятия.</>
+
+Автор: Dimas
+
+### 21.06.2002 news MassaBrutto Radioshow #83, 21 Jun 2002.
+
+<p>Playlist: <BR><BR> 1. GREAT SORROW - Solar Diamond Valley-1 (MetalAgen Recs)<BR> 2. POMIDOROFF - Нядзеля (band)<BR> 3. SUFFERER - Палач (DeathBell Prods)<BR> 4. PSILOCYBE LARVAE - Sun Of The Sleepless (Black Side Prods)<BR> 5. LEAD WEIGHT - Last Dance (band)<BR> 6. ASGUARD - Black Fire Land (band/Fatal Ecstasy Prods)<BR> 7. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 8. RASTA - Feel Like Hate (band)<BR> 9. KATAR - New Sermon (More Hate Prods)<BR> 10. S.C.A.L.P. - Silentium (Rest In Peace Prods)<BR> _________________________________________________________<BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 21.06.2002 news MassaBrutto Radioshow #83, 21 Jun 2002.
+
+<p>Playlist: <BR><BR> 1. GREAT SORROW - Solar Diamond Valley-1 (MetalAgen Recs)<BR> 2. POMIDOROFF - Нядзеля (band)<BR> 3. SUFFERER - Палач (DeathBell Prods)<BR> 4. PSILOCYBE LARVAE - Sun Of The Sleepless (Black Side Prods)<BR> 5. LEAD WEIGHT - Last Dance (band)<BR> 6. ASGUARD - Black Fire Land (band/Fatal Ecstasy Prods)<BR> 7. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 8. RASTA - Feel Like Hate (band)<BR> 9. KATAR - New Sermon (More Hate Prods)<BR> 10. S.C.A.L.P. - Silentium (Rest In Peace Prods)<BR> _________________________________________________________<BR> RADIOSTATION: Style Radio WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 30.08.2002 news MassaBrutto Radioshow #103, 30 Aug 2002.
+
+<p>Гость программы: Александр Афонченко, группа ASGUARD (Могилев) [email: asguard@tut.by]<BR><BR> Playlist:<BR><BR> 1. SATARIAL - Divine Race (Beyond... Prods)<BR> 2. ASGUARD - Visions Of Dream (Fatal Ecstasy Prods)<BR> 3. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 4. ASGUARD - Bloody Hate (Fatal Ecstasy Prods)<BR> 5. ASGUARD - War (Fatal Ecstasy Prods)<BR> 6. SHITFUN - The Way To The Stars (DeathBell Prods)<BR> 7. SHITFUN - Grindcore Incompartible (DeathBell Prods)<BR> 8. УТОПИЯ - Мир Снов (band)<BR> 9. ЧАРКА - Лясныя Браты (band)<BR> 10. GRENOUER - Take On Me [by A-HA] (More Hate Prods)</p>
+
+Автор: Yermola
+
+### 30.08.2002 news MassaBrutto Radioshow #103, 30 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. SATARIAL - Divine Race (Beyond... Prods)<BR> 2. ASGUARD - Visions Of Dream (Fatal Ecstasy Prods)<BR> 3. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 4. ASGUARD - Bloody Hate (Fatal Ecstasy Prods)<BR> 5. ASGUARD - War (Fatal Ecstasy Prods)<BR> 6. SHITFUN - The Way To The Stars (DeathBell Prods)<BR> 7. SHITFUN - Grindcore Incompartible (DeathBell Prods)<BR> 8. УТОПИЯ - Мир Снов (band)<BR> 9. ЧАРКА - Лясныя Браты (band)<BR> 10. GRENOUER - Take On Me [by A-HA] (More Hate Prods)</p>
+
+Автор: Yermola
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>В ближайшее время украинская компания ODIUM MUSIC выпускает Death/Black компиляцию "IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". Трек-лист: <BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>Hails Brothers In Metal! <BR><BR> Soon we'll release our longawaited compilation IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". So be ready for the catching breath Death/Black Metal Assault! Dense, Intense, Technical and Melodic... Here is a track-list:<BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+### 20.09.2002 news MassaBrutto Radioshow #109, 20 Sep 2002.
+
+<p>Гость программы: Денис Голин из коллектива WEEPING TWILIGHT (Минск, Беларусь) [email: twilight@tut.by]<BR><BR> Playlist:<BR><BR> 1. SHITFUN - No Admittance (DeathBell Prods)<BR> 2. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 3. WEEPING TWILIGHT - Грэх (band)<BR> 4. WEEPING TWILIGHT - Калыханка (band)<BR> 5. EVTHANAZIA - Fear Of The Future (Fatal Ecstasy Prods)<BR> 6. ROSSOMAHAAR - Sacred War (band)<BR><BR> + телефонное мини-интервью с Лазарем из ROSSOMAHAAR (Москва, Россия) [email: rossomahaar@mtu-net.ru]<BR><BR> 7. ROSSOMAHAAR - Me, The Misanthrope (band)<BR> 8. HERETIC - Страх (band)<BR> 9. SUFFERER - Полач (DeathBell Prods)<BR> 10. GRENOUER - Stabbed By Touch (Blacksmith Prods/More Hate Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 20.09.2002 news MassaBrutto Radioshow #109, 20 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. SHITFUN - No Admittance (DeathBell Prods)<BR> 2. ASGUARD - Craft Of Death (Fatal Ecstasy Prods)<BR> 3. WEEPING TWILIGHT - Грэх (band)<BR> 4. WEEPING TWILIGHT - Калыханка (band)<BR> 5. EVTHANAZIA - Fear Of The Future (Fatal Ecstasy Prods)<BR> 6. ROSSOMAHAAR - Sacred War (band)<BR> 7. ROSSOMAHAAR - Me, The Misanthrope (band)<BR> 8. HERETIC - Страх (band)<BR> 9. SUFFERER - Полач (DeathBell Prods)<BR> 10. GRENOUER - Stabbed By Touch (Blacksmith Prods/More Hate Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.11.2003 news Новости от ASGUARD
+
+<P>Белорусская black-death группа <B>ASGUARD</B> выпускает свой новый альбом "<B>Black FireLand</B>" на американском лэйбле <B>DevilDoll Records</B> (в России диск увидит свет через <B>MORE HATE</B>).</P>
+Автор: Vit Belov
+
+### 05.05.2004 reviews Любителям underground!!!
+
+<P><I>Дебютный CD-альбом от белорусской black-death группы. Нельзя сказать, что коллектив записал выдающуюся пластинку, но обратить на неё внимание следует любителям пост-советского underground.</I></P>
+<P>Всего 7 вещей: один кавер <B>MANOWAR</B>, бонус-трэк с демо-записи и собственно 5 вещей, из-за которых всё это и затевалось. Melodic death-black с довольно частыми посылками в sympho-black не возбуждает воображения. Не очень качественная реализация, не очень оригинальный материал - типичная клубная команда. Несомненно есть интересные мелодичные места почти в каждой песне, особенно приглянулась <B>'Eternal Dream',</B>&nbsp;но откровением <B>'Black Fireland'</B> назвать никак нельзя<B>.</B></P>
+<P><B>ASGUARD</B> представили альбом, который будет интересен только любителям underground, остальные легко смогут найти более качественные западные&nbsp;аналоги.</P>
+Автор: Vit Belov
+
+### 22.08.2004 news APOCRYPHAL отправляются в тур
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время белорусская группа <STRONG>APOCRYPHAL</STRONG> занята записью очередного альбома "<STRONG>Hear My Call</STRONG>". Кроме этого, коллективу в этом году исполняется 10 лет, и в ознаменование этого события <STRONG>APOCRYPHAL</STRONG> отправляются в тур по Белоруссии. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также в туре принимают участие:</FONT></P>
+<P><STRONG>Dark Legion</STRONG> (Poland)<BR><STRONG>Asguard</STRONG> (Belarus)<BR><STRONG>Mind Eclipse</STRONG> (Russia)<BR><STRONG>Mental Demise</STRONG> (Ukraine) </P>
+<P>Расписание концертов:</P>
+<P>27 сентября Мозырь<BR>28 сентября Солигорск<BR>29 сентября Минск<BR>30 сентября Витебск<BR>1 октября Гомель<BR>2 октября Речица<BR>3 октября Могилев<BR></P>
+Автор: Vit Belov
+
+### 04.10.2004 news Новостная лента от More Hate Productions
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новыи релизами волгоградской <STRONG>More Hate Production</STRONG> стали:</FONT></P>
+<P>CD <STRONG>DIVINA ENEMA "To Wight Shalt Never Shine"</STRONG> - переиздание дебютного демо-альбома самого яркого и неординарного явления в Беларуском metal андеграунде<BR>CD <STRONG>RIGORISM "Human Fear"</STRONG> - дебютный пласт симфоничного и монументального death metal из Костромы</P>
+<P>В начале октября на <STRONG>More Hate Productions</STRONG> выходит CD группы <STRONG>ВРАТА ТЬМЫ "Войны Северных Земель",</STRONG> исполняющей атмосферный языческий dark black metal.</P>
+<P>Произошли изменения в составе Московской группы <STRONG>ASHEN LIGHT</STRONG>. Смена коснулась вокалиста, который покинул команду в связи с невозможностью дальнейшего его участия в деятельности коллектива. Тем не менее, почти закончена запись и сведение нового альбома группы, который выйдет в конце года на<STRONG> MORE HATE</STRONG>. Имя нового участника группы будет объявлено в скором времени.</P>
+<P>Подписаны контракты со следующими группами - Краснодарским <STRONG>L.I.G.O.</STRONG> на выпуск альбома "<STRONG>No One Safe</STRONG>". Группа исполняет прогрессивный death metal. Альбом выходит в ноябре 2004 года. С Украинской группой <STRONG>CAPITOLIUM</STRONG> на выпуск второго альбома<BR>"<STRONG>Seraphim's Lair</STRONG>". Группа исполняет симфоничный клавишно-ориентированный black metal, и известна по дебютному альбому "<STRONG>Symphony of Possession</STRONG>", изданному на <STRONG>OUPIRIC Productions</STRONG>. Также в течение года на <STRONG>MORE HATE</STRONG> будет издан компакт диск Беларусской группы <STRONG>ASGUARD "Wicca</STRONG>", готовится к изданию сборник brutal death/ grind core групп в составе <STRONG>BARBARITY</STRONG> (Кострома), <STRONG>KATALEPSY</STRONG> (Москва), <STRONG>SMERSH</STRONG> (Волгоград), <STRONG>POSTHUMOUS BLASPHEMER</STRONG> (Беларусь).</P>
+Автор: Vit Belov
+
+### 14.12.2004 news Новости от More Hate Prod.
+
+<P>Московская black metal группа <STRONG>ASHEN LIGHT</STRONG> закончила запись нового альбома под названием "<STRONG>Причищение Огнем</STRONG>". Альбом группы выйдет в начале нового года на <STRONG>MORE HATE Productions</STRONG>. В середине января ожидается презентация этого альбома в Р-Клубе (Москва).</P>
+<P>- В январе 2005 года на <STRONG>MORE HATE Productions</STRONG> выходит долгожданный новый альбом modernized metal формации <STRONG>THERM. EYE. FLAME "To Evolution?!"</STRONG></P>
+<P>- Ведется работа по изданию второго тематического сборного CD, посвященного grind core/ gore grind/ brutal death metal с участием отечественных коллективов. Во второй части split CD примут участие группы <STRONG>ANAL NOSOROG</STRONG> (Москва), <STRONG>MUTANT FACTOR</STRONG> (Москва), <STRONG>ПРЕЧЮДЛЕВЫЙ ЗАРОДЫШЪ</STRONG> (Москва).</P>
+<P>- Подписаны контракты со следующими группами -<BR><STRONG>NORD'N'COMMANDER</STRONG> на выпуск альбома "<STRONG>Hermeneutics</STRONG>". Группа исполняет экспериментальный, электронный blackened metal. Выпуск альбома запланирован&nbsp; в феврале-марте 2005 года.<BR>С Киевской группой <STRONG>SEMARGL </STRONG>на выпуск дебютного альбома "<STRONG>Attack on God</STRONG>". Группа исполняет быстрый бласфемический black death metal. Запись производилась в известной польской студии <STRONG>Hertz</STRONG>. Выпуск альбома запланирован&nbsp; в феврале-марте 2005 года.<BR>С Украинской pagan black metal группой <STRONG>NATURAL SPIRIT</STRONG> на выпуск альбома "<STRONG>Русколонь</STRONG>". Выпуск альбома запланирован&nbsp; в марте-апреле 2005 года.</P>
+<P>- В течение оставшегося месяца на <STRONG>MORE HATE</STRONG> будут изданы: компакт диск Белорусской melodic death metal группы <STRONG>ASGUARD "Wicca",</STRONG> а также переиздание дебютного альбома <STRONG>ASHEN LIGHT "Песнь Велеса"</STRONG> в новом оформлении и&nbsp; с не издававшимися ранее бонус трэками, не вошедшими в первое издание компакт диска.</P>
+Автор: Vit Belov
+
+### 30.06.2005 news В России куют металл!!!
+
+<P>В ближайшее время, компания <B>CD-MAXIMUM</B> планирует порадовать многих любителей тяжелой музыки "<B>made in Russia</B>". <BR><BR>Первыми ласточками станут долгожданные альбомы&nbsp;групп <B>HIERONYMUS BOSCH "Artificial Emotions"</B> (дата релиза - <B>11 июля</B>) и <B>ТЕМНОЗОРЬ "Вольницей В Просинь Ночей"</B> (дата релиза - <B>18 июля</B>). <BR><BR>Также, в течение <B>июля-августа</B>, выйдут:<BR><BR>- ремастированные переиздания двух альбомов талантливых выборгских музыкантов <B>PSILOCYBE LARVAE "Stigmata"</B> и <B>"Agony"</B>, которые будут дополнены бонусом и мультимедиа-секцией. Превосходный black doom европейского образца. <BR><BR>- ремастированное переиздание второго альбома ярославских музыкантов <B>MIND ECLIPSE "Chaos Of Chronicles"</B> с бонусами и совершенно новым оформлением. И, конечно, новый альбом группы <B>"Utopia: Formula Of God"</B>. Высококачественный, сверхскоростной и мегабрутальный death black metal.<BR><BR>- новый альбом беларусов <B>ASGUARD "Dreamslave"</B>. Скоростной, агрессивный и очень мелодичный death black metal с оркестровой секцией струнных и духовых инструментов.<BR><BR>- дебютный альбом истринской группы <B>INSIDE YOU "Lost In The Faith"</B>. Атмосферный gothic doom death metal, напоминающий лучшие образцы классики стиля середины девяностых.<BR><BR>- новый концептуальный и эпохальный супер-альбом легендарных королей дизель-рока <B>KRUGER "Душа Изувера"</B>. <BR><BR>- мини-альбом группы <B>АРДА</B> (открытие 2004 года по опросу читателей DARK CITY) <B>"Экзорцист"</B>. Fantasy power metal. В релиз войдут пять новых песен, из которых только одна войдет в полнометражную работу группы, которая должна выйти в конце 2005 года.<BR><BR>- новый альбом московской группы <B>MORTEM "Corpsophagia"</B>. Зачинатели отечественного brutal death обещают очень жирное мясцо с крутым звуком.<BR><BR><B>5 сентября</B> - официальная дата релиза дебютного альбома группы <B>ФАКТОР СТРАХА "Театр военных действий. Акт первый"</B>. Это совместный проект <B>Кирилла НЕМоляева </B>и группы <B>ТРИЗНА</B>. Вас ждет modern metal с тяжёлыми запевами и очень мелодичными припевами, аналогов которому нет. Альбом записан при участии <B>Дмитрия Борисенкова (ЧЕРНЫЙ ОБЕЛИСК)</B> и <B>Максима Самосвата (ЭПИДЕМИЯ, MECHANICAL POET)</B>.<BR></P>
+Автор: Dimas
+
+### 27.02.2007 news Новый альбом ASGUARD
+
+<P>Белорусский коллектив <STRONG>ASGUARD</STRONG> закончил работу над новым альбомом “<STRONG>Dreamslave …Awakening</STRONG>”. Запись альбома длилась больше года, в течении которого материал был полностью изменён и конечный вариант альбома приобрёл совершенно иной вид. Часть материала была переписана и заменена новыми треками. Альбом представляет собой логическое продолжение предшественника “<STRONG>Dreamslave</STRONG>”. В релиз также будет входить DVD с восточно-европейского тура группы с презентацией “<STRONG>Dreamslave</STRONG>”.<BR>Над мастерингом и продюссированием альбома работал <STRONG>Goran Finnberg</STRONG>&nbsp;в&nbsp;гетеборгской студии <STRONG>The Mastering Room</STRONG>, известный по работам с такими группами как <STRONG>IN FLAMES</STRONG> и <STRONG>DARK TRANQUILLITY</STRONG>. Над оформлением альбома работал небезызвестный художник <STRONG>W.Smerdulak</STRONG>, который работал также над оформлением предшественника.<BR>Выход альбома запланирован на весну на американском лейбле <STRONG>This Dark Reign</STRONG>, лицензия на Россию - <STRONG>Metallism Rec</STRONG>. Ведутся переговоры по вопросам издания материала на территории Европы и Беларуси.<BR>В альбом вошли следующие вещи:<BR><STRONG><IMG height=300 alt="" hspace=50 src="/images/news_rus/2007.02/11357.jpg" width=300 align=right border=0>1. From Chaotic Memory …<BR>2. Something In The Past<BR>3. In Two Time<BR>4. Rebellion<BR>5. Buried Alive (<A href="http://metalism.mastersland.com/download/asguard/Buried%20Alive.mp3">mp3</A>)<BR>6. Awakening… (<A href="http://metalism.mastersland.com/download/asguard/Awakening.mp3">mp3</A>)<BR>7. Like Fallen Stars (<A href="http://metalism.mastersland.com/download/asguard/Like%20Fallen%20Stars.mp3">mp3</A>)<BR>8. Where Everything Was Different<BR>9. November Night<BR>10. Disappearing In The Dark<BR>11. From The Abyss To Misty Heaven<BR>12. Broken Dreams<BR>Bonus:<BR>13. Golden Age (KREATOR </STRONG>cover<STRONG>)<BR>14. Run Through The Night (ACCEPT </STRONG>cover<STRONG>)<BR></STRONG></P>
+Автор: Dimas
+
+### 24.07.2007 reviews Последний альбом ASGUARD?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Четвертая полнометражная работа белорусских музыкантов. Этот продукт совершенно неотличим по качеству и звуку от лучших европейских образцов, да и уровень музыкантов просто высочайший. Над мастерингом и продюссированием альбома работал <STRONG>Goran Finnberg</STRONG>&nbsp;в&nbsp;гетеборгской студии <STRONG>The Mastering Room</STRONG>, известный по работам с такими группами как <STRONG>IN FLAMES</STRONG> и <STRONG>DARK TRANQUILLITY</STRONG>. Над оформлением альбома&nbsp;трудился небезызвестный художник <STRONG>W.Smerdulak</STRONG>, который работал также над оформлением предшественника. Стоит отметить, что российский релиз выпущенный на Metalism Records представляет собой отличного качества, шикарно оформленный шестипанельный digi-pack с CD и DVD (на двд представлены съемки с восточно-европейского тура группы 2005 года, посвященного десятилетию коллектива),&nbsp;шестнадцатистраничный буклет и стикер с фотографией группы. Запись альбома длилась больше года, в течении которого материал был полностью изменён и конечный вариант альбома приобрёл совершенно иной вид. Часть материала была переписана и заменена новыми треками.&nbsp;Поначалу, была записана часть материала выдержанная в духе предшественника, после чего в коллективе возникли напряженные отношения и он... прекратил свою деятельность. Альбом так и остался бы незавершенным, но музыканты всё-таки нашли в себе силы и мудрость, чтобы продолжить совместное творчество, при этом решают изменить свой стиль и звучание, при этом сохранив название. А чтобы это не было слишком резким процессом, решают часть материала нового альбома сделать в старом духе, сохранив написанные к тому времени новые вещи, а вторую часть сделать в совершенно ином стиле. Новый релиз&nbsp;представляет собой логическое продолжение своего предшественника “<STRONG>Dreamslave</STRONG>”.&nbsp;Начало альбома -&nbsp;всё такой же качественный и грамотный sympho melodic death metal с жесткими риффами, обильным клавишным рядом в духе Жана-Мишеля Жарра, лязгающим басом и приятным рыком, однако потом все меняется и перемешивается.&nbsp; В концептуальном плане, "Dreamslave... Awakening" является продолжением истории о человеке, который стал рабом сна, человеке, который умер, чтобы вновь родится,<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>человеке, который смог прочувствовать тайну ночного мира ценой собственной жизни. В музыкальном же плане&nbsp;слишком&nbsp;ощутимые изменения.&nbsp;Новые песни&nbsp;гораздо разнообразнее, скоростные композиции сменились среднетемповым материалом, появилось много&nbsp;чистого вокала, были убраны оркестр, народные инструменты&nbsp;и атмосферные инструментальные композиции. Нет уже того сочетания мелодичности и агрессии, появились заметные готическо-депрессивные ноты, явные модерновые элементы cyber dark metal. В результате, на мой взгляд, новый материал получился менее хитовым и оригинальным. Группа совершила переход от агрессивной и симфоничной музыки с брутальными тонами к воздушной и мягкой, с мрачной атмосферикой. Получился ли он удачным покажет только следующая работа выдержанная в таком же духе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>P.S. Может быть, всё-таки стоило сменить название?</P></FONT>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

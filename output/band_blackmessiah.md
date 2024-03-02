@@ -83,6 +83,39 @@ Brцh - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.06.2006 reviews Черный Мессия тевтонского Pagan-folk metal’а
+
+<P>Германцы BLACK MESSIAH – отнюдь не новички, но в силу неизвестных мне обстоятельств не получившие должной раскрутки и внимания со стороны публики. Группа образовалась в 1994 году с целью нарезать ортодоксальный black metal в духе ранних BATHORY и VENOM, но из-за пертурбаций с составом первый свой альбом "Sceptre of Black Knowledge" выпустила лишь в 97-м. Позже, в 99-м, музыканты начинают запись второго альбома, но разногласия между музыкантами вновь ломают все планы. В итоге – второй альбом “Oath Of A Warrior” удается выпустить лишь шесть лет спустя…</P>
+<P>Трудно удержаться от щенячьего восторга и не скатываться в голые эмоции… Понравилось – очень! “Oath Of The Warrior” – это достаточно бодрый драйвовый pagan folk death/black с низко настроенными гитарами, густым саундом и полу-гроулом – полу-скримом. Мелодии здесь – самые разные: есть кельтика, есть скандинавские «героические» а ля FALKENBACH, есть средневековая medieval’щина, - но просто сразил меня момент, когда прямо поперек тяжелого риффа впендюрили натуральную русскую балалайку! Тынь-дырыдынь-дырыдынь-тынь-тынь! Вот это – ДА! Помимо балалайки, есть также флейта, скрипка, мандолина и акустическая гитара – и баланс между всем этим великолепием и собственно metal-составляющей поистине идеален. В общем и целом, BLACK MESSIAH - это музыка в духе SKYMNING, AMON AMARTH, MENHIR и иже с ними. Позитивнейшая вещь. И, соответственно, - высший балл.</P>
+Автор: Dr. Grandma
+
+### 06.09.2006 news BLACK MESSIAH на AFM
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2006.09/10686.jpg" width=250 align=right border=5>Немцы <STRONG>BLACK MESSIAH</STRONG> подписали контракт с<STRONG> AFM</STRONG>. Их новый альбом "<STRONG>Of Myths And Legends</STRONG>" выйдет 17 ноября.</P>
+Автор: Vit Belov
+
+### 06.01.2009 news Новый альбом BLACK MESSIAH
+
+<P><STRONG>BLACK MESSIAH</STRONG> выпустят свой новый альбом&nbsp;"<STRONG>First War Of The World</STRONG>"&nbsp;12 марта на <STRONG>AFM</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Prologue - The Discovery<BR></STRONG>2. <STRONG>The Vanir Tribe</STRONG><BR>3. <STRONG>Gullveig<BR></STRONG>4. <STRONG>Von Rachsucht Und Luge</STRONG><BR>5. <STRONG>March Of The Warriors</STRONG> <BR>6. <STRONG>Vor Den Toren Valhalls<BR></STRONG>7. <STRONG>The Battle Of Asgaard</STRONG> <BR>8. <STRONG>The Chase</STRONG><BR>9. <STRONG>Burn Vanaheimr</STRONG><BR>10. <STRONG>Das Unterpfand</STRONG> <BR>11. <STRONG>Peace At A High Price</STRONG><BR>12. <STRONG>Andacht<BR></STRONG>13. <STRONG>Soldnerschwein</STRONG> (bonus)</P>
+Автор: Vit Belov
+
+### 04.02.2009 news Обложка нового BLACK MESSIAH
+
+<P>Новый альбом<STRONG> BLACK MESSIAH</STRONG> <STRONG>"First War Of The World" </STRONG>выходит 20 марта на <STRONG>AFM</STRONG>. Обложку этой пластинки можно посмотреть ниже.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.02/13547.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 27.01.2012 news Новое видео BLACK MESSIAH
+
+<P>Новый видео-клип немецких викингов <STRONG>BLACK MESSIAH</STRONG> на песню "<STRONG>Windloni</STRONG>" можно посмотреть ниже. Песня войдёт в новый альбом музыкантов "<STRONG>The Final Journey</STRONG>", который выйдет 24 февраля на <STRONG>AFM</STRONG>.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/Di7cnlbv_Go?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### OktoBIERfest 2010: 23.10.10. Crashdiet, Van Canto, Black Messiah

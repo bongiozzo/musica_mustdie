@@ -444,6 +444,1182 @@ CD2:
 * C группой "Accept" Stefan Schwarzmann
 * C группой "Krokus" Stefan Schwarzmann
 
+## Публикации
+
+### 22.11.2001 news U.D.O. are currently in the studio ...
+
+<p>Germany’s U.D.O., led by former ACCEPT frontman Udo Dirkschneider, are currently in the studio recording their upcoming CD, entitled Man And Machine. According to a statement posted at the group’s official web site, “we just have vocals and guitar solo's to do then we will start the mixing process. Right now, the European release date for this CD is March 25th, 2002.”</p>
+
+Автор: Yermola
+
+### 22.11.2001 news Человек и Машина...
+
+<p>Фаш... простите, германцы "U.D.O." во главе со старым троллем Udo Dirkschneider'ом готовят новый альбом, с немецким педантизмом названный "Man And Machine"... Осталось дописать только вокалы и некоторые соло и начнется микширование. Дата Европейского релиза - март 2002.</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 14.03.2002 news Боевая машина в действии
+
+<p>Udo Dirkschneider и его команда U.D.O. выпускают свой девятый альбом 25 марта 2002 года.</p>
+
+Автор: Dimas
+
+### 02.04.2002 reviews Животные инстинкты Человека и Машины
+
+<p>Животные инстинкты Человека и Машины. Девятый альбом бывшего ACCEPT'овца и его товарищей по музыкальному оружию. Сразу скажу, это лучшее его творение после второго распада ACCEPT, но тем не менее он чуть слабее первых альбомов группы, из которых "Man And Machine" наиболее близок к "Faceless World". Как в музыкальном плане, так и в духовном. Грамотная профессиональная работа и в техническом, и в исполнительском, и в композиторско-сочинительском планах. Хорошее продюссирование. Тяжелые гитары, сильные мелодии, фирменный вокал, но все как-то безэмоционально. Однако, нельзя не признать, что герр Диркшнайдер за все эти долгие годы совершенно не растерял свой творческий потенциал и молодецкую удаль. Не придумывая ничего нового, он отлично делает свое дело, раз за разом выпуская хорошую слушабельную продукцию. Причем, в последние годы у него это получается все лучше и лучше после некоторого спада в середине девяностых. Старички выдали часовую порцию настоящего heavy metal восьмидесятых годов. Все великолепно, вот только не хватает новому альбому хитов-боевиков, которые потом хотелось бы ходить и напевать, как раньше. Как-то немного бесследно проходит этот альбом. Лишь отдельные фрагменты запоминаются, да "Dancing With An Angel", где герр Диркшнайдер поет дуэтом с Доро Пеш. А вот гитарные соло, как всегда, на высоте. Хорошая цельная работа на твердую четверку.</p>
+
+Автор: Dimas
+
+### 07.04.2002 reviews Не самый выдающийся альбом мэтров жанра
+
+<p> Вот и дождались мы очередной работы неувядающего старика Диркшнайдера. Нелегко мне, горячему поклоннику творчества U.D.O. и Accept, давать объективную оценку данному альбому. С одной стороны – материал находится на довольно-таки высоком уровне, ниже которого Удо никогда не позволял себе опускаться, но есть и другая сторона медали. Нет на этом альбоме потрясающей энергии, злости, которая отличала последние работы этого коллектива. Всё очень неплохо, но как-то скромненько. Больше всего понравились Like A Lion и Man And Machine, а вот остальной материал показался мне довольно-таки посредственным. После, на мой взгляд, классного альбома "Holy" немного даже странно, что Диркшнайдер в своей музыке начал вспоминать Accept и свои работы более раннего периода (В частности, Faceless World). Не хочется верить, что творческий потенциал данного коллектива иссякает. Надеюсь, что это просто не очень удачный альбом, какие бывали в биографиях всех музыкантов. Тем не менее, если не думать о том, что это альбом легендарного Удо, то ничто не сможет вам помешать насладиться отличным Heavy Metal. </p>
+
+Автор: Davor
+
+### 09.09.2003 reviews НЕ пропавшие трэки.
+
+<p>Хитрый и расчетливый бюргер Удо по фамилии Диркшнайдер продолжает загребать денежки легчайшим для музыканта способом – выпуском концертников. Лишь недавно российские фэны с умилением вытирали слезу, рассматривая только что купленный альбом “Live From Russia” и вот опять счастья привалило вагон. Слава богам, песни исполняемые во время европейского турне 2001 года и не вошедшие в концертник из экзотической страны, не пропали во время пути, и теперь присутствуют на новом CD во всей своей красе. <br> Собственно, этот альбом почти идеален. Со всех сторон. Качество записи высочайшее (неужели ничего не правили в студии?). Подбор песен великолепен. The Best of U.D.O & Accept. <br> Открывается компакт суровым треком «Хо-о-о-о-ли», который звучит мощнее, чем на одноименной пластинке. Тоже самое нельзя сказать о “Raiders Of Beyond” песня получилась чуть медленнее, а звук площе. Разобравшись с обязательной программой, музыканты переходят к показательным выступлениям. Вот оно, настоящее золото – “Metal Heart” с традиционными хоровыми упражнениями зала. “XTC” (!!!!) с "безудового" альбома Accept “Eat The Heat”. Затем Лоренцо Милани демонстрирует нам своё мастерство, и его четырёхминутное барабанное соло плавно перетекает в убойную “Fast As A Shark”. На моём любимейшем у Accept боевичке “Princess Of The Dawn” Удо опять дает вдоволь поорать самым горячим из слушателей. Потом, очень логично, прям таки по диджеевски сделанный плавный переход к “Restless & Wild”. “Thunder In The Tower”, конечно, неплохая песня и соло гитарное хорошее, но эта вещь несколько сбивает ритм альбома. Дело исправляет одна из двух приличных песен с «Хищника» - “Hard Attack”. Ну и как хороший салют в конце праздника – хеви-метал-гимн “Balls To The Wall”! <br> Обязательное приобретение для всех фанатов Accept и старого доброго тяжелого метала.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+### 03.02.2004 reviews Наш паровоз вперед летит...
+
+<P>Количество сольных альбомов мэтра немецкого металла уже перевалило за десяток, у него уже истрачен огромный запас находок и музыкальных решений так, что придумать что-то новенькое в рамках стиля ему уже вряд ли суждено. А потому приходится выпускать новые альбомы, которые, по сути, являются выжимками всего лучшего со всех предыдущих альбомов. Ну а как известно, если выжимать только самое лучшее, и делать это правильно и со вкусом, то в результате получится именно оно - the best. Этот альбом больше всего напоминает ACCEPT'овский "Balls To The Walls" и "Faceless World" от U.D.O. Как обычно (иначе у Удо не получается), "Thunderball" - грамотная профессиональная работа и в техническом, и в исполнительском, и в композиторско-сочинительском планах, с великолепным продюсированием. Как всегда, невероятный мелодизм совмещен с очень тяжелыми риффами. Что ни песня - то хит. Но, особо хочется выделить седьмую вещь "Trained In Russia" - бальзам на нашу русскую душу. Там Удо не только поет часть куплетов на русском языке, но и сама мелодия слизана с русского народного фольклора, да еще и основной инструмент - аккордеон. Эта песня идеально подходит и как застольная (баня, водка, гармонь и лосось) и поплясать под нее можно вприсядку&nbsp;(эх, яблочко), да и просто&nbsp;hair'ом потрясти возможно. Также неплохо она подходит в качестве марша. Настолько чумовой хит, что я сразу же переслушал его на repeat'е десяток раз. Да и весь альбом достаточно хорош, чтобы не надоесть уже после первого же прослушивания, и даже после повторного. В общем, U.D.O. как U.D.O., только чуток получше :)</P>
+<P>Настоятельно рекомендую всем поклонникам творчества ACCEPT и U.D.O. - не пожалеете.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dimas
+
+### 05.03.2004 news UDO DVD delayed
+
+The<SPAN lang=EN-GB> Release of the new <B>U.D.O.</B> DVD <B><I>“Thundervision”</I></B> (length: over 90 Minutes) was originally planed for March 01<SUP>st</SUP>, but it must postpone to </SPAN><B><SPAN><SPAN lang=EN-GB>March 15<SUP>th</SUP>, 2004</SPAN></SPAN></B><SPAN lang=EN-GB> because of technical reasons. <B>Attention:</B> already on <B><SPAN>March 08<SUP>t</SUP></SPAN></B><SUP>h</SUP> the DVD is available at www.afm-records.de for only 9,90? (incl. delivery costs, within </SPAN><SPAN lang=EN-GB>Germany</SPAN><SPAN lang=EN-GB>). On <B><SPAN>March 29<SUP>th</SUP></SPAN></B> the new album<B><I> “Thunderball” </I></B>will be released. U.D.O. are going on <B>world tour</B>! All tourd</SPAN><SPAN lang=EN-GB>at</SPAN><SPAN lang=EN-GB>es see: www.afm-records.de or www.udo-online.de.</SPAN>
+Автор: Vit Belov
+
+### 24.03.2004 news Тур U.D.O. по России
+
+<P align="center">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <IMG height=360 src="/images/shows_rus/2004.04/6128.jpg" width=300 border=0></P>
+Автор: Dimas
+
+### 12.04.2004 news SIRENIA первая в марте и по итогам первого квартала
+
+<P>Так выглядит десять лучших позиций по итогам продаж в магазине <B>B2-100 'Metal & Progressive'</B> в "Горбушкином Дворе" в марте:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=481 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD></TR></TBODY></TABLE></P>
+<P>Феноменальные продажи нового альбома <B>Morten Veland (ex-Tristania)</B> и его группы <B>SIRENIA </B>позволили им занять первое место по итогам квартальных продаж. А вот как выглядит десятка по итогам первого квартала 2004 года:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=563 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 154pt" width=205>
+<COL style="WIDTH: 269pt" width=358>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=205 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=358><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ЭПИДЕМИЯ</B></TD>
+<TD><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ICED EARTH</B></TD>
+<TD><B>GLORIOUS BURDEN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>MY DYING BRIDE</B></TD>
+<TD><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 09.01.2005 news Планы UDO
+
+<P><STRONG>U.D.O.</STRONG> сообщили планы на ближайшее будущее. Группа начинает запись новых 13 песен для альбома, который выйдет в октябре 2005 года. За ним последует мировой тур, который начнётся в январе 2006 года. Также в группе произошла смена барабанщика. Вместо <STRONG>Lorenzo Milani</STRONG> за стойкой теперь находится <STRONG>Franchesko Jovino</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.03.2005 news Новый альбом U.D.O. уже записан
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>U.D.O. "Mission No. X"</STRONG> будет смикширован в этом месяце и выйдет летом на <STRONG>AFM</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 07.06.2005 news U.D.O. снова собираются порадовать всех любителей хэви
+
+<P><STRONG>U.D.O. -</STRONG>&nbsp;основная группа вокалиста&nbsp;<B>ACCEPT</B> <B>Udo Dirkschneider</B>,&nbsp;готовит к выходу свой новый альбом под названием&nbsp;<STRONG>"Mission No. X".</STRONG> Дата релиза - 4 октября на&nbsp;<B>AFM Records</B>. Трек-лист альбома:<BR>1. <B>Mission No. X</B><BR>2. <B>24/7</B><BR>3. <B>Mean Streets</B><BR>4. <B>Primecrime On Primetime</B><BR>5. <B>Eye Of The Eagle</B><BR>6. <B>Shell Shock Fever</B><BR>7. <B>Stone Hard</B><BR>8. <B>Breaking Down The Border</B><BR>9. <B>Cry Soldier Cry</B><BR>10. <B>Way Of Life</B><BR>11. <B>Mad For Crazy</B><BR>27 июня выйдет сингл предшествующий альбому под навазнием&nbsp;<B>"24/7"</B>, в который войдут следующие вещи:<BR>1. <B>24/7</B> <BR>2. <B>Mean Streets</B> <BR>3. <B>Scream Killers</B> <BR>4. <B>Number For A Number</B> </P>
+<P><B>"Mission No. X"</B> - дебют для нового ударника группы <B>Francesco Jovino</B>, заменившего <B>Lorenzo Milani</B>. Мировой тур в поддержку альбома начнется в январе 2006 года. Не исключено, что Россия, по традиции, также не останется вне его рамок. </P>
+Автор: Dimas
+
+### 28.06.2005 news UDO потянуло на садо-мазо
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=225 alt="" hspace=0 src="/images/news_rus/2005.06/8899.jpg" width=300 align=left border=5>В скором времени в эфире появится новый видео-клип <STRONG>UDO</STRONG> на песню "<STRONG>Mean Streets</STRONG>". Судя по скриншотам, выложенным в сети, <STRONG>Udo </STRONG>представляется там, как жертва садистов-монахов. Картинки здесь: <A href="http://www.udo-online.de/Grafik/gallery/clip_making_of/2005/video_mean_streets/WebAlbum/index.html">http://www.udo-online.de/Grafik/gallery/clip_making_of/2005/video_mean_streets/WebAlbum/index.html</A>&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 28.06.2005 news UDO want sado-maso...
+
+<P><STRONG><IMG height=225 alt="" hspace=0 src="/images/news/2005.06/8900.jpg" width=300 align=left border=5>UDO</STRONG> have filmed new video for a song "<STRONG>Mean Streets</STRONG>".&nbsp;This video will be online soon, but you already can see some screenshots from it. <STRONG>Udo</STRONG>&nbsp;was perfomed as victim&nbsp;of sadistic monks:)))&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 21.09.2005 news АНЖ запишет песню с Udo
+
+<P>Группа <STRONG>АНЖ</STRONG> планирует записать композицию "<STRONG>Пугачев</STRONG>" совместно с одним из лучших рок-вокалистов мира <STRONG>Удо Диркшнайдером</STRONG> (<STRONG>ACCEPT, U.D.O</STRONG>.). Г-н Диркшнайдер уже дал свое согласие и при этом особо заметил, что песня произвела на него очень сильное впечатление, и он с нетерпением ждет того момента, когда сможет приступить к записи.<BR>Напомним, что группа <STRONG>АНЖ</STRONG> открывала московский концерт <STRONG>U.D.O.</STRONG> в 2004 году и с тех пор между коллективами сохранились теплые дружеские отношения. </P>
+Автор: Vit Belov
+
+### 12.10.2005 news Удо Диркшнайдер + АнЖ + Фактор-2: &quot;Хорошая музыка не имеет границ&quot;
+
+<P>Золотой голос немецкого хард-рока, вечно молодой и неувядающий <STRONG>Удо Диркшнайдер</STRONG> (<STRONG>U.D.O., ACCEPT</STRONG>) в самое ближайшее время собирается порадовать своих российских фанатов двумя эксклюзивными дуэтами на русском языке - композицией "<STRONG>Пугачев</STRONG>" с группой <STRONG>АнЖ</STRONG> и балладой "<STRONG>Плачет Солдат</STRONG>" с молодой командой "<STRONG>Фактор-2</STRONG>". Как известно, г-н <STRONG>Диркшнайдер</STRONG> славится своей любовью к России, и это будет уже не первый реализованный Удо русскоязычный проект. В 2001 году композиция "<STRONG>Штиль</STRONG>" была записана совместно с музыкантами группы&nbsp;<STRONG>АРИЯ</STRONG> для их альбома "<STRONG>Химера</STRONG>". Вдохновленный&nbsp; успехом, <STRONG>Удо</STRONG> не только решил углубленно заняться изучением русского языка, но и записать русскоязычный трек "<STRONG>Поезд по России</STRONG>" на свой альбом "<STRONG>Thunderbal</STRONG>l", вышедший на <STRONG>AFM Records</STRONG> в 2004 году. И вот новый проект: два совершенно разных дуэта, исполнители из совершенно разных стилей, но, как считает&nbsp; г-н <STRONG>Диркшнайдер</STRONG>, их всех объединяет одно - хорошая музыка не имеет границ, она должна идти прямо из сердца и объединять людей разных взглядов и убеждений. 18-22 октября 2005 года Удо Диркшнайдер посетит Россию с промовизитом, в рамках которого состоится пресс-конференция, запись дуэтов, съемки клипа на песню "<STRONG>Пугачев</STRONG>", автограф-сессия <STRONG>Удо </STRONG>и музыкантов обеих групп, а также посещение различных клубов и неформальное общение с фанатами и представителями прессы.</P>
+<P>Автограф-сессия Удо Диркшнайдера, групп "АнЖ" и "Фактор 2" состоится 21 октября&nbsp; в ТЦ "Горбушкин двор" (2-й этаж).<BR>Начало в 15.00<BR>Справки по тел.: 8-903-540-15-37 (Алексей Холопцев) <BR></P>
+Автор: Vit Belov
+
+### 15.11.2005 reviews Это Х, или десятый юбилейный альбом UDO
+
+<P>Миссия номер Х. Я почему-то думал, что Х - это Х, а это десять, оказалось. Ошибка не хорошая какая-то получилась. На самом деле, простите за пошлую метафору, новый альбом <STRONG>UDO</STRONG> скорее Х, чем десятый - юбилейный. Поторописля<STRONG> UDO</STRONG>, поторопился. Когда ему было сочинять материал-то? В туре с <STRONG>ACCEPT</STRONG>?</P>
+<P>Первый юбилейный альбом вышел каким-то вымученным, скомканным. Минимум быстрых боевиков. Основной упор делается на среднетемповые вещи, псевдо-баллады, из которых ни одной выделить нельзя. На хорошем уровне только 3 песни "<STRONG>Mission No. X</STRONG>", "<STRONG>24/7</STRONG>" и "<STRONG>Mad For Crazy</STRONG>". Да и то, ничего особенного нга этих трэках нет. Стандарт. Печально.</P>
+<P>Не хочется верить, что <STRONG>UDO</STRONG> исписался. Спишем этот прокол на какие-нибудь контрактные обязательства, на утомлённость общением с <STRONG>Hoffmann</STRONG> или ещё на что-нибудь. Рекомендовать никому не стану. Фэны и так купят, а другим этого не надо.</P>
+<P>Диск предоставлен CD-Maximum</P>
+Автор: Vit Belov
+
+### 12.12.2005 news UDO опять едет к нам
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>UDO </STRONG>опубликовали даты тура на своём сайте. Пока в списке только одна российская дата. 23 февраля группа выступит на фестивале в Санкт-Петербурге. Что это будет за фест, пока не сообщается.</FONT></P>
+Автор: Vit Belov
+
+### 15.02.2006 news U.D.O. вновь в Москве
+
+<CENTER><IMG height=490 src="/images/shows_rus/2006.01/9953.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 08.03.2006 reviews Дядька Удо - вечный как немецкие сосиски и пиво
+
+<P>Сейчас после выхода каждого очередного релиза U.D.O. (а под этой маркой герр Удо Диркшнайдер выпускает уже десятый альбом) мы можем либо сравнивать новые песни с вещами со старых альбомов самого заслуженного хэви-металиста Германии (как правило, в пользу последних), либо послать всё к черту и просто слушать эти самые новые творения без оглядки на прошлое. В зависимости от такого подхода и разнятся столь сильно оценки "Mission No. X". С одной стороны, кажется, что все эти риффы Удо и Со уже переиграли и все эти мелодии перепели сто тысяч раз. Ведь это всё тот же вечный, как немецкие сосиски и пиво, олдскульный хэви-метал, который можно разве что приправить по вкусу гитарными соляками (например, в 'Shell Shock Fever') и&nbsp;балладами ('Eye Of The Eagle' или 'Cry Soldier Cry'), а также вместо довольно мягкой немецкой горчицы добавить весьма жесткое видео ('Mean Streets'). Станут ли от этого сосиски вкуснее - решать каждому для себя. С другой стороны, ждать от U.D.O. какой-то новизны так же бесполезно, как, например, от AC/DC или Motorhead. В любом случае, дядька Удо шлепает с внешней легкостью песню за песней, альбом за альбомом, и из-под его пера выходят десятки же хитовых песен (пусть зачастую и с использованием старого багажа), в то время как другие группы будут годами вымучивать хотя бы одну запоминающуюся мелодию. Хорошо это или плохо - опять-таки решать вам. Тем временем скоро герру Диркшнайдеру стукнет не много не мало 54 года, и сейчас кажется, что он был на хэви-сцене всегда и всегда там будет, сколько бы ни прошло лет. Не думаю, что нужно зубоскалить по поводу самоповторов и "нафталиновой" музыки, ведь у нас достаточно примеров того, что и более молодые соотечественники Удо либо не смогли качественно играть всё время "одно и то же" (Gamma Ray, Running Wild, Helloween), либо не "потянули" якобы прогрессивных изменений своей музыки (Blind Guardian). Так что пожелаем ему&nbsp;долгих еще лет жизни и творчества, а слушать ли и покупать ли его новые пластинки - ваше личное дело.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 12.10.2006 news UDO опять в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>UDO</STRONG> начали запись нового альбома, который выйдет в апреле на <STRONG>AFM</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 06.03.2007 news U.D.O. тоже 18 мая
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> U.D.O.</STRONG> также выйдет 18 мая и также на <STRONG>AFM</STRONG>. Пластинка будет называться "<STRONG>Mastercutor</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 19.03.2007 news EP от U.D.O.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=204 alt="" hspace=0 src="/images/news_rus/2007.03/11443.jpg" width=204 align=left border=5>Новый EP от<STRONG> U.D.O.</STRONG> будет называться "<STRONG>The Wrong Side Of Midnight</STRONG>". На миньон войдёт две версии заглавной композиции и три вещи, которые не попадут на новый альбом "<STRONG>Mastercutor</STRONG>". напомним, что полноценный альбом выйдет 18 мая на <STRONG>AFM</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 16.04.2007 news Кавер нового U.D.O.
+
+<P><STRONG><IMG height=204 alt="" hspace=0 src="/images/news_rus/2007.04/11563.jpg" width=204 align=left border=5>AFM Records</STRONG> опубликовали обложку нового альбома <STRONG>U.D.O. "Mastercutor</STRONG>", выходящего 18 мая.</P>
+Автор: Vit Belov
+
+### 23.10.2007 news U.D.O. выпускает сборник
+
+<P>В декабре на <STRONG>AFM</STRONG> выходит сборник <STRONG>U.D.O.</STRONG> <STRONG>"Metallized - 20 Years Of Metal". </STRONG>На пластику войдут 12 песен, отобранных фэнами, и 4 ранее нереализованных песни. Трэк-лист:</P>
+<P>01. <B>Holy</B><BR>02. <B>Heart of Gold</B><BR>03. <IMG height=150 alt="" hspace=0 src="/images/news_rus/2007.10/11960.jpg" width=150 align=right border=5><B>Animal House</B><BR>04. <B>Cut Me Out</B><BR>05. <B>They Want War</B><BR>06. <B>Cry Soldier Cry</B><BR>07. <B>In the Darkness</B><BR>08. <B>Man and Machine</B><BR>09. <B>24/7</B><BR>10. <B>Trainride to Russia</B><BR>11. <B>Independence Day</B><BR>12. <B>Thunderball</B><BR>13. <B>Shadow Maker</B> (prev. unreleased song)<BR>14. <B>Terror in Paradise</B> (prev. unreleased song)<BR>15. <B>Balls to the Wall</B> (acoustic version)<BR>16. <B>Bullet and the Bomb</B> (live from St. Petersburg)</P>
+Автор: Vit Belov
+
+### 20.11.2007 reviews Тайный рецепт тевтонского повара
+
+<P>Рецензию на данную пластинку можно было выразить всего в одной фразе: очередной альбом U.D.O. Ибо герр Диркшнайдер и Со относятся к тем исполнителям, которые из года в год используют одну и ту же когда-то еще давным-давно удачно пойманную фишку, и ничего с пути этого их не собьет. Но ведь не зря говорится, что стабильность признак мастерства. А уж мастерства этой компании не занимать. Создается такое впечатление, что у Удо есть какой-то особенный тайный ящик, куда он в свое время запихал огромную кучу пусть и похожих между собой, но, тем не менее, весьма эффективных и убедительных хэви-метал-риффов, и вот когда приходит время записывать очередной альбом, он этот ящик открывает и, немного порышись в нем, достает на свет божий еще одну партию. По поводу хитов особо заботиться тоже не приходится, они получаются как бы сами собой. Плюс добавляем пару-тройку баллад - и вот вам готовое блюдо по тайному рецепту господина Диркшнайдера, а помощником главного повара уже который год выступает Штефан Кауфманн. И любой завсегдатай такого музыкального ресторана практически каждый раз остается довольным. Ибо зачем идти в другое место, если и тут хорошо кормят? Честно говоря, остается только удивляться, как Удо, что называется, одной левой может записать альбом, который хоть и будет под завязку набит собственными же штампами, но который, однако, сотням других хэви-групп может явиться лишь во сне. Пусть одни работы получаются похуже, другие - получше, но бывший "акцептовец" уже создал себе бренд - тевтонский тяжелый сапог хэви-метала, который будет четко чеканить шаг до тех пор, пока герру Диркшнайдеру сотоварищи не надоест вся эта музыкальная возня.&nbsp;На альбоме под названием "Mastercutor" (которое, по словам самого Удо, является сокращением от "master executor") я хотел бы особо выделить номер 'The Wrong Side Of Midnight' с некоторым восточным флёром, ну и почти рок-н-ролльную 'Crash Bang Crash'. Можно упомянуть и интро-аутро в духе Франка Синатра. А российским фанатам обязательно надо приобрести издание в формате digi-book, где, помимо основого материала, представлены аж четыре бонус-трека ('Platchet Soldat', т.е. 'Cry Soldier Cry' на русском языке - special Russian bonus; 'The Wrong Side Of Midnight' - single version; 'Streets Of Sin'; 'Man A King Ruler') и видео-бонус 'The Wrong Side Of Midnight' (видимо, эта вещь действительно оказалась самой "центровой" на диске).</P>
+<P>Альбом предоствлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 29.07.2008 news U.D.O. выпускают DVD
+
+<P>30 апреля и 3 мая в немецких городка Туттлинген и Золинген<STRONG> U.D.O.</STRONG> записали два специальных шоу, посвящённых 20-летию группы, для выходящего осенью DVD. Вот трэк-лист будущего релиза:</P>
+<P>Disc 1:<BR itxtvisited="1">01. <B itxtvisited="1">Mastercutor</B><BR itxtvisited="1">02. <B itxtvisited="1">24/7</B><BR itxtvisited="1">03. <B itxtvisited="1">They Want War</B><BR itxtvisited="1">04. <B itxtvisited="1">The Bullet And The Bomb</B><BR itxtvisited="1">05. <B itxtvisited="1">Midnight Mover</B><BR itxtvisited="1">06. <B itxtvisited="1">Vendetta</B><BR itxtvisited="1">07. <B itxtvisited="1">Mission No. X</B><BR itxtvisited="1">08. <B itxtvisited="1">Midnight Highway</B><BR itxtvisited="1">09. <B itxtvisited="1">The Wrong Side Of Midnight</B><BR itxtvisited="1">10. <B itxtvisited="1">Breaker</B><BR itxtvisited="1">11. <B itxtvisited="1">Guitar Solo</B><BR itxtvisited="1">12. <B itxtvisited="1">Princess Of The Dawn</B><BR itxtvisited="1">13. <B itxtvisited="1">One Lone Voice</B><BR itxtvisited="1">14. <B itxtvisited="1">Winterdreams</B><BR itxtvisited="1">Disc 2:<BR itxtvisited="1">01. <B itxtvisited="1">Living For Tonite</B><BR itxtvisited="1">02. <B itxtvisited="1">Thunderball</B><BR itxtvisited="1">03. <B itxtvisited="1">Drum Solo</B><BR itxtvisited="1">04. <B itxtvisited="1">Man And Machine</B><BR itxtvisited="1">05. <B itxtvisited="1">Animal House</B><BR itxtvisited="1">06. <B itxtvisited="1">Metal Heart</B><BR itxtvisited="1">07. <B itxtvisited="1">Holy</B><BR itxtvisited="1">08. <B itxtvisited="1">Balls To The Wall</B><BR itxtvisited="1">09. <B itxtvisited="1">Fast As A Shark</B><BR itxtvisited="1">10. <B itxtvisited="1">Burning</B><BR itxtvisited="1">11. <B itxtvisited="1">Outro</B><BR itxtvisited="1">12. <B itxtvisited="1">I'm A Rebel</B><BR itxtvisited="1"><BR itxtvisited="1">Bonus material:<BR itxtvisited="1">* Road movie Russia tour (15 minutes)<BR itxtvisited="1">* Road movie South America tour (15 minutes)<BR itxtvisited="1">* Concert Belarus (30 minutes)<BR itxtvisited="1">The DVDs will feature 5.1 Surround Sound.</P>
+Автор: Vit Belov
+
+### 01.08.2008 news U.D.O. назвал DVD
+
+<P>Мы уже сообщали о выходе нового концертного DVD от <STRONG>U.D.O.</STRONG> Релиз получил незатейливое название "<STRONG>Mastercutor Alive</STRONG>".</P>
+Автор: Vit Belov
+
+### 04.08.2008 news U.D.O. вновь едет к нам
+
+<P><STRONG>U.D.O.</STRONG> объявили даты концертов в России и Украине этой осенью:</P>
+<P>Nov. 06 - Kaliningrad, Russia - DKM <BR>Nov. 08 - St. Petersburg, Russia - Port <BR>Nov. 09 - Moscow, Russia - Tochka <BR>Nov. 13 - Novokuznetsk, Russia - venue tba <BR>Nov. 14 - Novosibirsk, Russia - Circus <BR>Nov. 16 - Tjumen, Russia - Club Berloga <BR>Nov. 17 - Ekaterinburg, Russia - House of Youth <BR>Nov. 20 - Samara, Russia - ODO <BR>Nov. 23 - Krasnodar, Russia - Prem'era <BR>Nov. 25 - Donetsk, Ukraine - House of Youth <BR>Nov. 26 - Dnepropetrovsk, Ukraine - HS Meteor <BR>Nov. 27 - Kiev, Ukraine - CKM NAU</P>
+Автор: Vit Belov
+
+### 14.10.2008 news U.D.O. отменили концерты в Украине
+
+<P>Концерты<STRONG> U.D.O.</STRONG> в Украине в рамках российско-украинского тура отменены. Шоу в Харькове, Одессе и Луганске не состоятся, из-за очередных выборов парламента у наших соседей.</P>
+Автор: Vit Belov
+
+### 25.03.2009 news U.D.O. не остановить
+
+<P>Бывший вокалист <STRONG>ACCEPT</STRONG> <STRONG>Udo Dirkschneider </STRONG>находится сейчас в студии, где вместе со своей командой записывает новый альбом "<STRONG>Dominator</STRONG>". работа выйдет в августе на <STRONG>AFM</STRONG>. Перед этим свет увидит лимитированный сингл <STRONG>"Infected", </STRONG>на который попадут заглавная песня, два эксклюзивных трэка и две концертных вещи.</P>
+Автор: Vit Belov
+
+### 19.04.2009 reviews Прямо в коллекции почитателей Udo и ACCEPT
+
+<P>Бывший вокалист ACCEPT Udo Dirkschneider любит выпускать концертные альбомы и DVD. Понять его можно. Спрос на хороший концертный heavy-metal не падает никогда. Другой вопрос, что шоу UDO остаются только хорошими, но не становятся великолепными.</P>
+<P>Засматриваться новым DVD UDO “Mastercutor Alive” никто не станет. Это издание - очень хороший документ, отображающий группу на нынешнем этапе развития, но не более. Фанаты певца, которых в нашей стране не мало, будут довольны, но для мировой музыки этот альбом эпохальным явно не станет. Профессиональное и чёткое более чем двухчасовое выступление, заснятое в немецком Туттлингене, позволит насладиться не только хитами самого UDO, но и нетленками ACCEPT. Всё это мы уже видели, при этом не раз вживую, по этой же причине “Mastercutor Alive” тоже не назовёшь однозначным ‘must have’. Отмечу только самого Mastercutor’а, артиста загримированного под это исчадье садо-мазо… Отличное весёленькое интро, которое есть и на последнем студийнике, фрак и тросточка. Ещё этот «фрик» появляется на сцене во время гитарного соло и песни “The Wrong Side Of Midnight”, такое впечатление, что хочет укусить кого-то из музыкантов. Забавно.</P>
+<P>На лимитированное издание попал второй диск, который, к сожалению, практически не представляет никакого интереса для всех, кроме жителей Минска, ведь именно с выступления в этом городе добавлены три песни в качестве бонуса. Также на этом диске есть два тур-дневника по десять минут, из России и из Южной Америки, Эти дневники снабжены русскими субтитрами. К сожалению, в дневнике из России ничего внятного опознать не удалось, видимо, более внушительные съёмки из нашей страны уже выходили на прошлых видеоработах группы. Единственное, что стало понятно из просмотренных дневников, группа пьёт достаточно много на гастролях, что, признаюсь, показалось мне опасным для здоровья самого Udo и гитариста Stefan Kaufmann.</P>
+<P>Нормальный релиз для поклонников видео-концертов. Остальным можно проходить мимо.</P>
+Автор: Vit Belov
+
+### 01.05.2009 news Мини-альбом U.D.O.
+
+<P><IMG height=150 alt="" hspace=0 src="/images/news_rus/2009.05/14038.jpg" width=150 align=right border=5>26 июня выйдет предальбомный сингл <STRONG>U.D.O. "Infected"</STRONG>. Он будет лимитирован 2222 копиями и начнёт продаваться на фестивале<STRONG> Bang Your Head!</STRONG> Трэк-лист:</P>
+<P>01. <B>Infected</B> (album track)<BR>02. <B>Systematic Madness</B> (non-album track)<BR>03. <B>Bodyworld</B> (non-album track)<BR>04. <B>Platchet Soldat</B> (remix)<BR>05. <B>Poezd Po Rossii</B> (live in Moscow 2008)</P>
+Автор: Vit Belov
+
+### 12.06.2009 news Мини-альбом U.D.O. на MySpace
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мини-альбом <STRONG>U.D.O. "Infected" </STRONG>можно послушать на <STRONG>MySpace </STRONG>страничке группы: <A href="http://www.myspace.com/udoonline">http://www.myspace.com/udoonline</A></FONT></P>
+Автор: Vit Belov
+
+### 18.06.2009 news Трэк-лист нового U.D.O.
+
+<P>21 августа на <STRONG>AFM</STRONG> выходит новый альбом <STRONG>U.D.O.</STRONG> <STRONG>"Dominator". </STRONG>Стал известен трэк-лист этой работы:</P>
+<P>01. <B>The Bogeyman</B><BR>02. <B>Dominator</B><BR>03. <B>Black And White</B><BR>04. <B>Infected</B><BR>05. <B>Heavy Metal Heaven</B><BR>06. <B>Doom Ride</B><BR>07. <B>Stillness Of Time</B><BR>08. <B>Devil's Rendezvous</B><BR>09. <B>Bleeding Heart</B> (Japanese bonus)<BR>10. <B>Pleasure In The Darkroom</B> (digipack bonus)<BR>11. <B>Speed Demon</B><BR>12. <B>Whispers In The Dark</B></P>
+Автор: Vit Belov
+
+### 07.07.2009 news Обложка нового U.D.O.
+
+<P>21 августа на <STRONG>AFM</STRONG> выйдет новый альбом <STRONG>U.D.O. "Dominator"</STRONG>. Опубликована обложка этой пластинки.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.07/14492.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 01.09.2009 news U.D.O. поставили рекорд
+
+<P>Новый альбом <STRONG>U.D.O. "Dominator"</STRONG> попал в чарты Германии на 27 место. Это высочайшее достижение группы в её истории.</P>
+Автор: Vit Belov
+
+### 07.09.2009 reviews Udo может петь вечно
+
+<P>Воссоединение ACCEPT в этом году стало если не главным, то довольно заметным событием на тяжёлой сцене. Основной вокалист этой группы Udo Dirkschneider отказался участвовать, мотивировав своё решение тем, что с группой U.D.O. он работает уже больше времени, и его персональные фанаты просто-таки не хотят его возвращения в ACCEPT, а требуют нового сольного альбома.</P>
+<P>В принципе я склонен согласиться с господином Dirkschneider. Многие молодые люди уже и забыли думать про Wolf Hoffmann, и главным кумиром для них является UDO. Что уж говорить о нашей стране, где авторитет этого вокалиста никогда не подвергался сомнению. С обложки нового альбома на нас смотрит ушастый терминатор по прозвищу Dominator, который является гибридом самого Udo и персонажа с прошлой пластинки по кличке Mastercutor. Вот примерно по такому же рецепту и приготовлен сам альбом. Всё самое лучшее, чем славен немецкий heavy-metal: прямолинейные, но заводные хиты, слезливая баллада, несколько мрачноватых трэков и шуточная песня, посвящённая рандеву с Дьяволом. Всё по делу и очень грамотно. Не знаю, что там придумают в США ACCEPT, но здесь мы получаем лучшее, на что сейчас способны эти ветераны.</P>
+<P>Поклонники U.D.O. должны быть довольны. Знаменитый немец доказал, что может играть такую музыку вечно.</P>
+Автор: Vit Belov
+
+### 02.09.2010 news Название и дата выхода нового альбома U.D.O.
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17141.jpg" width=149 height=200>Udo Dirkschneider</STRONG> и его группа <STRONG>U.D.O.</STRONG> назвали свой новый альбом<STRONG> </STRONG>"<STRONG>Rev Raptor</STRONG>". Для него было написанно 17 новых композиций и только 11 из них увидет свет на CD.&nbsp;Его выход&nbsp;запланирован на 14 января 2011 года на лейбле&nbsp;<STRONG>AFM</STRONG>.</P>
+Автор: Headcrusher
+
+### 20.12.2010 news U.D.O. празднует Рождество
+
+<P>Бывший вокалист <STRONG>ACCEPT Udo Dirkschneider</STRONG> объединился с работниками европейского дистро <STRONG>EMP, </STRONG>записав с ними новогоднюю песенку <STRONG>"Jingle Balls", </STRONG>которая явлеяется гибридом рождественского хита <STRONG>"Jingle Bells" </STRONG>и хита металического <STRONG>"Balls To The Wall"</STRONG>.</P>
+<P>Мультфильм с этой песней можно посмотреть ниже.</P>
+<P>Между тем новый альбом<STRONG> U.D.O.</STRONG> <STRONG>"Rev-Raptor" </STRONG>продолжает переноситься на более поздние сроки, из-за проблем со спиной у гитариста коллектива <STRONG>Stefan Kaufmann.</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/DgIXKZVrSQM&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/DgIXKZVrSQM&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.03.2011 news Новый альбом U.D.O.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.03/18980.jpg" width=400 align=right border=0>Новый альбом&nbsp;<STRONG>U.D.O.</STRONG> <STRONG>"Rev-Raptor"&nbsp;</STRONG>выйдет 20 мая&nbsp;<STRONG>AFM</STRONG>. Трек-лист всех возможных CD-изданий альбома:</FONT></P>
+<P>CD DigiPak:<BR>01. <B>Rev-Raptor</B><BR>02. <B>Leatherhead</B><BR>03. <B>Renegade</B><BR>04. <B>I Give As Good As I Get</B><BR>05. <B>Dr. Death</B><BR>06. <B>Rock'N'Roll Soldiers</B><BR>07. <B>Terrorvision</B><BR>08. <B>Underworld</B><BR>09. <B>Pain Man</B><BR>10. <B>Fairy Tales Of Victory</B><BR>11. <B>Motor-Borg</B><BR>12. <B>True Born Winners</B><BR>13. <B>Time Dilator</B> (Bonus)<BR>14. <B>Days Of Hope And Glory</B><BR>15. <B>Heavy Metal W:O:A</B> (Bonus)<BR>16. <B>I Give As Good As I Get</B> (Video)<BR>17. <B>Leatherhead</B> (Video)<BR><BR>CD Japan:<BR>01. <B>Rev-Raptor</B><BR>02. <B>Leatherhead</B><BR>03. <B>Renegade</B><BR>04. <B>I Give As Good As I Get</B><BR>05. <B>Dr. Death</B><BR>06. <B>Rock'N'Roll Soldiers</B><BR>07. <B>Terrorvision</B><BR>08. <B>Underworld</B><BR>09. <B>Pain Man</B><BR>10. <B>Fairy Tales Of Victory</B><BR>11. <B>Motor-Borg</B><BR>12. <B>True Born Winners</B><BR>13. <B>Stormbreaker</B> (Bonus)<BR>14. <B>Bodyworld</B> (Bonus)<BR>15. <B>Days Of Hope And Glory</B></P>
+Автор: Vit Belov
+
+### 03.04.2011 news Новое видео U.D.O.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип<STRONG> U.D.O.</STRONG> на песню <STRONG>"Leatherhead" </STRONG>можно посмотреть ниже. Песня попадёт на новый альбом группы бывшего вокалиста <STRONG>ACCEPT</STRONG> <STRONG>"Rev-Raptor", </STRONG>который выйдет 20 мая на <STRONG>AFM</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/u73fESTDF6A?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/u73fESTDF6A?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.05.2011 news Новый клип U.D.O.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео<STRONG> U.D.O.</STRONG> на песню <STRONG>"I Give As Good As I Get" </STRONG>можно посмотреть ниже. Трек вышел на новом альбоме бывшего вокалиста<STRONG> ACCEPT</STRONG> <STRONG>"Rev-Raptor"</STRONG>,&nbsp;который вышел 20 мая на <STRONG>AFM</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/g_u_q1dZpFY?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/g_u_q1dZpFY?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.06.2011 news U.D.O.: &quot;Ценой ре-юниона ACCEPT было имя&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=464 alt="" hspace=0 src="/images/news_rus/2011.06/19720.jpg" width=400 align=right border=0>Вокалист <STRONG>Udo Dirkschneider (ex-ACCEPT)</STRONG> подготовил нашему вниманию тринадцатый альбом своей сольной группы<STRONG> U.D.O. "Rev-Raptor"</STRONG>. С этой пластинкой музыкант попытается выйти из тени возродившихся с новым певцом<STRONG> ACCEPT</STRONG>, выпустивших шикарный альбом "<STRONG>Blood Of The Nations</STRONG>" в прошлом году на <STRONG>Nuclear Blast</STRONG>. С новой работой<STRONG> Udo</STRONG> обещает нам отполированную версию <STRONG>ACCEPT</STRONG>, совмещающую в себе всё лучшее, что было в творчестве "альма матер" вокалиста. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Да, продюсером вновь выступил гитарист Stefan Kaufmann, и с новой пластинкой мы попытались остаться на наших классических позициях, но совместить это с более современным звучанием</EM>," - рассказывает <STRONG>Udo</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не оставил без внимания <STRONG>Dirkschneider</STRONG> и новый альбом<STRONG> ACCEPT "Blood Of The Nation"</STRONG>: "<EM>Конечно я слышал этот альбом. Он хорош. Невозможно записать плохой альбом, если ты готовил материал для него 15 лет. Что вы ожидали (смеётся)? И новый певец хорош. Я видел, они проехались с туром по Европе. Не слышал ничего про Америку. У меня-то с этим проблем нет. Посмотрим, что они сделают дальше, посмотрим, как долго это продлится. Я не знаю, мы больше не общаемся, но я могу пожелать им удачи</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В другом интервью<STRONG> Udo</STRONG> сказал, что не отказывался от предложения по ре-юниону <STRONG>ACCEPT</STRONG>, как заявлял гитарист <STRONG>Wolf Hoffmann</STRONG>. "<EM>Я ему сказал, если я присоединюсь к ACCEPT, я вынужден буду закрыть U.D.O. Что если наше воссоединение не будет долгим? Могу я потом продолжить без тебя под вывеской ACCEPT?</EM>"</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Во время промоции нового альбома <STRONG>U.D.O. "Rev-Raptor"</STRONG>, вышедшего на<STRONG> AFM</STRONG>, певец часто поминает <STRONG>ACCEPT</STRONG> разными словами. Музыканты этой группы ответили буквально следующее: "<EM>Мы не будем отвечать на любые заявления&nbsp;Udo. Пора прекратить эти "бла-бла-бла</EM>"".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Между тем, читатели нашего сайта проголосовали за <STRONG>ACCEPT</STRONG> в только что завершившемя опросе. 52 процента ответивших высказались за <STRONG>ACCEPT</STRONG>, 37 процентов за<STRONG> U.D.O.</STRONG> и оставшиеся 11 процентов не поняли вопроса.</FONT></P>
+Автор: Vit Belov
+
+### 08.08.2011 news U.D.O. снова снимут DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа бывшего вокалиста <STRONG>ACCEPT Udo Dirkschneider U.D.O.</STRONG> подтвердила своё участие в фестивале<STRONG> Wacken Open Air</STRONG> будущего года. Коллектив намерен отснять шоу для выхода на DVD. Подробности последует.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фестиваль пройдёт 2-4 августа 2012 года.</FONT></P>
+<P><center><IMG height=284 src="/images/news_rus/2011.08/20490.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 11.11.2011 reviews Хороший альбом для собственного уровня
+
+<P>Знаменитый немецкий певец Udo Dirkschneider угодил в неприятную ситуацию перед релизом своего очередного альбома “Rev-Raptor”. Дело не в болезни гитариста Stefan Kaufmann, из-за которой эта работа несколько раз откладывалась. Дело в долгожданном и триумфальном релизе ре-юнион альбома ACCEPT “Blood Of The Nations”, в записи которого Udo участия не принял.</P>
+<P>Не принял, ссылаясь на занятость в U.D.O., но, скорее всего, музыканту вновь не захотелось работать с гитаристом Wolf Hoffmann, с которым, в лучшем случае, пришлось бы делиться властью поровну. Вокалист предпочёл синицу в руке журавлю в небе и, видимо, просчитался. По этой же причине, музыкант строил всю PR-кампанию вокруг конкуренции с новой работой ACCEPT, постоянно пытаясь преувеличить свои заслуги и принизить заслуги бывших коллег. Ещё до того, как “Rev-Raptor” достиг моего проигрывателя, я понимал, что его нельзя будет сравнить с “Blood Of The Nations”, ведь это же понимал и сам Udo, распространяя в интервью этот настрой очень явственно. Предыдущая пластинка U.D.O. “Dominator” мне понравилась. Понравилась в принципе и “Rev-Raptor”, но ACCEPT показали, что есть высочайшее качество в этом стиле, последние альбомы их бывшего певца выглядят на этом фоне блекло.</P>
+<P>Хороший альбом для позднего U.D.O. Его у нас любят, и с пластинкой ознакомится большое количество фэнов. Однако, достигнуть современного уровня ACCEPT у этих музыкантов не выйдет, наверное, никогда, и я с гораздо большим нетерпением буду ждать второго альбома ACCEPT c Mark Tornillo.</P>
+Автор: Vit Belov
+
+### 15.01.2012 news U.D.O. снимется в кино
+
+<P>Россия не забывает своего кумира <STRONG>Udo Dirkschneider</STRONG>. Бывший вокалист <STRONG>ACCEPT </STRONG>снимется в художественном фильме отечественного производства. Подробности последуют.</P>
+<P><center><IMG height=625 src="/images/news_rus/2012.01/22626.jpg" width=490 border=0></P>
+Автор: Vit Belov
+
+### 14.02.2012 news U.D.O. выпустит сборник
+
+<P><STRONG>U.D.O.</STRONG> готовит к выходу специальный подарок для фэнов. Альбом редких вещей, который получил название "<STRONG>Celebrator</STRONG>". Трек-лист релиза, выходящего 20 апреля, станет известен позже.</P>
+<P><center><IMG height=316 src="/images/news_rus/2012.02/23045.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 31.03.2012 news Обложка сборника U.D.O.
+
+<P>Компиляция <STRONG>U.D.O. "Celebrator"</STRONG> выходит 4 мая на <STRONG>AFM</STRONG>. Обложку альбома редких вещей можно посмотреть ниже.</P>
+<P><center><IMG height=369 src="/images/news_rus/2012.03/23382.jpg" width=368 border=0></P>
+Автор: Vit Belov
+
+### 16.01.2013 news U.D.O.: новым гитаристом немецкого коллектива стал Андрей Смирнов
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25330.jpg" width=400 height=600>Как возможно некоторые из вас знают, в сентябре прошлого года группу <STRONG>U.D.O.</STRONG> покинул <STRONG>Stefan Kaufmann</STRONG>. </P>
+<P>Хотя <STRONG>Stefan</STRONG> и не ушел из группы совсем, а продолжает сотруднечество с&nbsp;нею в качестве продюсера, место второго гитариста в <STRONG>U.D.O. </STRONG>стало вакантным.</P>
+<P>И вот недалее, как вчера, группа<STRONG> U.D.O.</STRONG> cделала официальное заявление на своём сайте, что её&nbsp;новым гитаристом стал <STRONG>Андрей Смирнов</STRONG>. </P>
+<P>Российским слушателям <STRONG>Андрей</STRONG> прежде всего известен, как лидер и гитарист коллектива <STRONG>EVERLOST</STRONG>, а также участник таких групп, как <STRONG>SHADOW HOST</STRONG>, <STRONG>МАСТЕР </STRONG>и <STRONG>ЭПИДЕМИЯ</STRONG>.</P>
+<P><STRONG>Андрей</STRONG>&nbsp;уже успел принять участие в работе над новым альбомом <STRONG>U.D.O.</STRONG>, которая проходила осенью 2012 года.&nbsp;</P>
+<P>А его дебютное выступление в составе заслуженного немецкого коллектива состоится в апреле этого года, когда&nbsp;группа отправится в турне по Америке.</P>
+Автор: Headcrusher
+
+### 29.03.2013 news U.D.O.: обложка, трек-лист альбома &quot;Steelhammer&quot; и другие новости
+
+<P>Группа&nbsp;<STRONG>U.D.O.</STRONG> представила обложку своего нового полноформатника, названного <STRONG>"Steelhammer"</STRONG>, который выйдет 24 мая в Европе и 21 мая в С.Ш.А. на лейбле <STRONG>AFM</STRONG>.</P>
+<P><STRONG>Udo Dirkschneider</STRONG> о пластинке:</P>
+<P><EM>"Наш новый альбом&nbsp;<STRONG>"Steelhammer"</STRONG> -&nbsp;настоящий&nbsp;стенобитный таран. Вот почему мы выбрали для него такую обложку. Она наилучшим образом отражает, что<STRONG> U.D.O.</STRONG>, это настоящий Heavy Metal! <STRONG>U.D.O.</STRONG> вернулся!"</EM></P>
+<P>Помимо издания на компакт дисках, <STRONG><EM>"</EM>Steelhammer"</STRONG> также будет выпущен на чёрном и прозрачном винилах. Издание на прозрачном виниле выйдет в количестве 250 штук и будет продаваться только через интерент магазин лейбла <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Кроме всего прочего, в конце января 2013, в группе <STRONG>U.D.O.</STRONG> произошли очередные изменения в составе - её покинул гитарист <STRONG>Igor Gionola</STRONG>, являвшийся бессменным участником коллектива на протяжении почти 15 лет. Ему на смену пришёл&nbsp;финский гитарист <STRONG>Kasperi Heikkinen</STRONG> (родился 4 августа&nbsp;1980),&nbsp;действующая единица&nbsp;финских групп <STRONG>MERGING FLARE</STRONG>, <STRONG>CONQUEST</STRONG>. Помимо этого, <STRONG>Kasperi</STRONG> гастролировал и&nbsp;записал 4 альбома с&nbsp;symphonic metal коллективом <STRONG>AMBERIAN DAWN</STRONG>&nbsp;и 2 диска с&nbsp;&nbsp;progressive death metal&nbsp;бандой&nbsp;<STRONG>ELENIUM</STRONG>. Также гитарист известен по своей работе в финских&nbsp;tribute-коллективах: <STRONG>VICARS OF HELL</STRONG> (Judas Priest), <STRONG>MACDETH</STRONG> (Megadeth) и&nbsp;<STRONG>GUARDIANS OF MANKIND</STRONG> (Gamma Ray). Благодаря участию в последнем, <STRONG>Kasperi</STRONG> даже посчастливилось попасть в качестве временной замены Хеньё Рихтера (<STRONG>Henjo Richter</STRONG>) в <STRONG>GAMMA RAY</STRONG>. Именно с <STRONG>Kasperi</STRONG> в составе, группа под управлением Кая Хансена (<STRONG>Kai Hansen</STRONG>)&nbsp;дала свои первые выступление в России, которые прошли 27 января и 28 января 2006 года в Москве и&nbsp;Санкт-Петербурге, соответственно. </P>
+<P>Трек-лист: 01. <STRONG>Steelhammer</STRONG> | 02. <STRONG>A Cry Of A Nation</STRONG> | 03. <STRONG>Metal Machine</STRONG> | 04. <STRONG>Basta Ya</STRONG> | 05. <STRONG>Heavy Rain</STRONG> | 06. <STRONG>Devil's Bite</STRONG> | 07. <STRONG>Death Ride</STRONG> | 08. <STRONG>King Of Mean</STRONG> | 09. <STRONG>Time Keeper</STRONG> | 10. <STRONG>Never Cross My Way</STRONG> | 11. <STRONG>Take My Medicine</STRONG> | 12. <STRONG>Shadows Come Alive</STRONG> <EM>(digi pack bonus track)</EM> | 13. <STRONG>Stay True</STRONG> | 14. <STRONG>When Love Becomes A Lie</STRONG> | 15. <STRONG>Book Of Faith</STRONG></P>
+<P>Состав группы<STRONG> U.D.O. </STRONG>сейчас выглядит следующим образом: <STRONG>Udo Dirkschneider</STRONG> (вокал), <STRONG>Andrey Smirnov</STRONG> (гитара), <STRONG>Kasperi Heikkinen</STRONG> (гитара), <STRONG>Fitty Wienhold</STRONG> (бас),<STRONG> Francesco Jovino</STRONG> (барабаны).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.03/25578.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 22.05.2013 news U.D.O.: российский тур в сентябре 2013 г.
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.05/25730.jpg" width=595 height=208> 
+<P></P>
+<P>В сентября 2013 г. группа <STRONG>U.D.O.</STRONG> отправляется в маштабный российский тур.&nbsp;На этих концертах&nbsp;заслуженный коллектив представит свой свежий альбом <STRONG>"Steelhammer"</STRONG>, а также обновлённый состав, в который сейчас входит наш соотечественник - гитарист <STRONG>Андрей Смирнов</STRONG> (<STRONG>EVERLOST, </STRONG>ex-<STRONG>МАСТЕР</STRONG>, ex-<STRONG>ЭПИДЕМИЯ</STRONG>, ex-<STRONG>SHADOW HOST</STRONG>).</P>
+<P>Расписание&nbsp;тура:</P>
+<P>14 сентября - Южно-Сахалинск - Дом Культуры<BR>15 сентября - Владивосток&nbsp;- Дворец Культуры<BR>16 сентября -&nbsp; Хабаровск&nbsp;- клуб "Velicano"<BR>18 сентября - Иркутск&nbsp;- клуб "Мегаполис"<BR>20 сентября - Красноярск - клуб "Havana"<BR>21 сентября - Новосибирск - клуб "Отдых"<BR>23 сентября - Ростов-на-Дону&nbsp;- Арена Холл<BR>24 сентября - Ставрополь - ДКиС<BR>25 сентября - Краснодар&nbsp;- Арена Холл<BR>27 сентября - Волгоград&nbsp;- Дом Офицеров<BR>28 сентября - Москва - Arena Moscow<BR>29 сентября - Санкт-Петербург - клуб "Аврора"</P></CENTER>
+Автор: Headcrusher
+
+### 31.05.2013 reviews Стальной молот неподъёмен
+
+<P>Вроде совсем недавно заслуженный бывший вокалист ACCEPT Udo Dirkschneider радовал своих поклонников десятым альбомом, а вот уже и четырнадцатая работа мастера под лозунгом “Steelhammer” увидела свет. За это время много воды утекло. Главным неприятным событием для U.D.O. стало воссоединение ACCEPT без него. Сколько бы вокалист не пророчил, что у гитариста Wolf Hoffmann кончатся идеи, этого никак не происходит, и нам каждый раз приходиться сравнивать новые сольники певца с творчеством бывших коллег, и это становится бичом для господина Dirkschneider, уничтожая на корню все его старания. Главным же приятным событием для отечественных поклонников метала стало появление в составе U.D.O. гитариста Андрея Смирнова, чей карьерный скачок вызывает одно лишь восхищение.</P>
+<P>Впрочем, если не задаваться специальной целью обнаружить следы нашего музыканта на “Steelhammer”, в музыкальном плане это будет сложновато. Все песни сочинил сам Udo с последним престарелым коллегой басистом Fitty Weinhold. И без того достаточно скудный композиторский запас, демонстрировавшийся группой на предыдущих работах, поизносился окончательно. Несколько первых «хитов», странный медляк в стиле Оззика и песня на испанском языке, вот, что запоминается после первого прослушивания пластинки. После второго захода над целью понимаешь, что в конце альбома многовато среднетемповых и каких-то бесхребетных треков, что не было свойственно даже для позднего U.D.O., который всегда предлагал своему слушателю жёсткий «риффовый» каркас собственных произведений. К сожалению, “Steelhammer” слушается даже с меньшим энтузиазмом, чем предыдущий CD-релиз коллектива двухдисковый сборник “Celebrator”, и это тоже показатель.</P>
+<P>Чёрт, мужику уже 61 год, а он всё хрипит, бегает по сцене и зажигает любой зал, по крайней мере, в наших краях. Но уже окончательно ясно, что никогда уже дяденьке не вернуть былой славы в глобальном смысле, и это… раздражает. Ну, надоело уже его жалеть. </P>
+Автор: Vit Belov
+
+### 03.07.2013 news U.D.O.: видеоклип на песню &quot;Heavy Rain&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип группы <STRONG>U.D.O.</STRONG> на лирическую композицию <STRONG>"Heavy Rain"</STRONG> с последнего альбома <STRONG>"Steelhammer"</STRONG>, можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Чуть ранее, группа уже порадовала своих поклонником клипом&nbsp;на трек с альбома "<STRONG>Steelhammer"</STRONG>.&nbsp;Для этого была выбрана песня&nbsp;<STRONG>"Metal Machine"</STRONG>. Смотрите этот клип по ссылке: <A href="http://youtu.be/_sMIQToKF8I">http://youtu.be/_sMIQToKF8I</A></FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/jzuEntlXbPM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 30.11.2013 news FLASH OF AGGRESSION - новый проект Андрея Смирнова
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.11/26392.jpg" width=400 height=406>25 ноября 2013 г. на лейбле <STRONG>CD-Maximum</STRONG> вышел дебютный альбом московского modern thrash metal проекта <STRONG>FLASH OF AGGRESSION "Seed Of Hate"</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Mechanism Of Destruction<BR></STRONG>02. <STRONG>Entertainment Waste<BR></STRONG>03. <STRONG>Final Conflict<BR></STRONG>04. <STRONG>Gun Down Your Enemies<BR></STRONG>05. <STRONG>Paper God<BR></STRONG>06. <STRONG>The Kingdom Of Salvation<BR></STRONG>07. <STRONG>Disaster</STRONG><BR>08. <STRONG>Cancer On The Face Of Our Planet<BR></STRONG>09. <STRONG>Insane</STRONG><BR>10. <STRONG>Distaste Of Life</STRONG></P>
+<P>Видео-презентация: <A href="http://youtu.be/0eCJISpDfmA"><U><FONT color=#0000ff>http://youtu.be/0eCJISpDfmA</FONT></U></A></P>
+<P>Cведение и мастеринг выполнен на студии <STRONG>KIV Records</STRONG>.</P>
+<P>Состав:</P>
+<P><STRONG>Полина Березко</STRONG> (<STRONG>GRACE DISGRACED</STRONG>) - вокал<BR><STRONG>Андрей Смирнов</STRONG> (<STRONG>U.D.O.</STRONG>, <STRONG>EVERLOST</STRONG>, ex-<STRONG>МАСТЕР</STRONG>) - гитара, бас, продюсирование<BR><STRONG>Дмитрий Игнатьев</STRONG> (<STRONG>TANTAL</STRONG>, <STRONG>EVERLOST</STRONG>) - гитара<BR><STRONG>Сергей Серебренников</STRONG> (<STRONG>EVERLOST</STRONG>, <STRONG>ВАЛЕРИЙ ГАИНА</STRONG>) - ударные</P>
+<P><STRONG>Андрей Смирнов</STRONG>: <EM>«Идея записать настоящий агрессивный металлический альбом пришла нам с моим братом Дмитрием Игнатьевым достаточно давно. Мы с ним ровесники, начинали интересоваться музыкой и играть на гитаре примерно в одно и тоже время. Подростками мы часто джемовали вместе, фиксируя наши первые музыкальные «опусы» на кассетный магнитофон, делились новыми записями. Так уж сложилось, что некоторое время мы были постоянно заняты работой в своих собственных коллективах и с другими артистами, но мы смогли выкроить время и воплотили задуманное в жизнь!»</EM></P>
+<P><STRONG>Дмитрий Игнатьев</STRONG>: <EM>«В этот альбом мы постарались вложить все свои эмоции, в том числе и отрицательные. Мы намеренно не стали ограничивать себя никакими рамками при создании песен, что сказалась на скорости и экстримальности материала, как в музыкальном плане так и плане лирики. Можно сказать, что данный проект - это альтер-эго всех других музыкальных коллективов, в которых мы участвуем».</EM></P>
+Автор: Headcrusher
+
+### 25.03.2014 news Новый концертный релиз от U.D.O.
+
+<P>Группа <STRONG>U.D.O.</STRONG> выпускает концертный релиз, получивший название <STRONG>"Steelhammer - Live From Moscow"</STRONG>. Дата его выхода назначена на 23 мая на лейбле <STRONG>AFM</STRONG>.</P>
+<P><STRONG>"Steelhammer - Live From Moscow" </STRONG>станет первым концертным релизом, на котором можно будет услышать новый состав группы (включая русского гитариста <STRONG>Андрея Смирнова</STRONG>).&nbsp;В его сетлист&nbsp;вошло множество классических вещей, которые не исполнялись уже очень долгое время, а также любимые песни поклонников и треки с последнего студийного альбома <STRONG>"Steelhammer"</STRONG>.</P>
+<P><STRONG>"Steelhammer - Live&nbsp;From Moscow"</STRONG>&nbsp;будет издан в трёх форматах: DVD+2CD, Bluray+2CD и тройной винил, исполненный в цветовой гамме российского флага.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.03/26776.jpg" width=450 height=450>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 11.10.2014 news U.D.O. - новый альбом уже в январе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>U.D.O. "Decadent"</STRONG> намечен к релизу на январь. </FONT></P>
+<P><FONT color=#ffffff #000000?>Подробности последуют.</FONT>&nbsp;</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.10/27381.jpg" width=600 height=401></P>
+Автор: Vit Belov
+
+### 20.11.2014 news U.D.O.: детали нового альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стали известны детали очередного студийного&nbsp;альбома <STRONG>U.D.O.</STRONG> </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск получил название<STRONG> "Decadent"</STRONG> и выйдет 23 января следующего года на лейбле <STRONG>AFM</STRONG>. Трек-лист и обложку альбома можно увидеть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Speeder </STRONG>| 02. <STRONG>Decadent </STRONG>| 03. <STRONG>House Of Fake </STRONG>| 04. <STRONG>Mystery </STRONG>| 05. <STRONG>Pain </STRONG>| 06. <STRONG>Secrets In Paradise </STRONG>| 07. <STRONG>Meaning Of Life </STRONG>| 08. <STRONG>Breathless </STRONG>| 09. <STRONG>Let Me Out</STRONG> * | 10. <STRONG>Under Your Skin </STRONG>| 11. <STRONG>Untouchable </STRONG>| 12. <STRONG>Shadow Eyes</STRONG> * | 13. <STRONG>Rebels Of The Night</STRONG> | 14. <STRONG>Words In Flame </STRONG>|<STRONG> </STRONG></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>15. <STRONG>Falling Angels</STRONG> **</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>* дополнительный трек для издания в digipak, специального издания и&nbsp;винила.<BR>** доп. трек для японского издания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG border=0 src="/images/news_rus/2014.11/27450.jpg" width=500 height=500></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 12.12.2014 news U.D.O.: видеоклип &quot;Decadent&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>U.D.O.</STRONG> представила видеоклип на титульный трек, с выходящего в январе следующего года, альбома <STRONG>"Decadent"</STRONG>. Смотрим его ниже!</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/pLtwWsLgaz8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 23.01.2015 news Francesco Jovino покинул U.D.O.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.01/27552.jpg" width=350 height=357>Очередные изменения в составе группы <STRONG>U.D.O.</STRONG> </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На этот раз "по личным причинам"&nbsp;её покинул&nbsp;<STRONG>Francesco Jovino</STRONG> -&nbsp;барабанщик, проработавший с коллективом почти девять лет.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Всех заинтересовавшихся вакантной должностью барабанщика в группе <STRONG>U.D.O.</STRONG>, просят слать свои резюме на e-mail: <A href="mailto:fsuepfle@itm-agency.com">fsuepfle@itm-agency.com</A></FONT></P>
+Автор: Headcrusher
+
+### 06.02.2015 news Группа U.D.O. анонсировала нового барабанщика
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.02/27614.jpg" width=300 height=450>Новым барабанщиком <STRONG>U.D.O.</STRONG> стал <STRONG>Sven Dirkschneider</STRONG>, двадцати однолетний сын самого Удо Диркшнайдера (<STRONG>Udo Dirkschneider</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В течении четырёх с лишним лет <STRONG>Sven</STRONG>&nbsp;работал&nbsp;в группе&nbsp;в качестве барабанного техника и по словам других музыкантов, прекрасно ладил со всеми участниками гастрольной команды. По этому, решение по зачислению его в штат <STRONG>U.D.O.</STRONG> стало само-сабой разумеющимся.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Его дебютным выступлением с коллективом, станет концерт 6 марта в городе Wuerzburg (Германия).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В&nbsp;нвстоящее время&nbsp;<STRONG>Sven</STRONG> <STRONG>Dirkschneider </STRONG>выступает в составе группы <STRONG>SAXON</STRONG>, временно подменяя выбывшего из строя по состоянию здоровья Найджела Глокера (<STRONG>Nigel Glocker</STRONG>), барабанщика британцев.</FONT></P>
+Автор: Headcrusher
+
+### 31.08.2015 news U.D.O. прощается с песнями ACCEPT
+
+<P>На фестивале<STRONG> Wacken</STRONG> певец <STRONG>Udo Dirkschneider (U.D.O., ex-ACCEPT)</STRONG> сообщил журналистом, что перестаёт исполнять классику<STRONG> ACCEPT</STRONG> на своих живых выступлениях. Чтобы окончательно проститься с хитами-нетленками музыкант отправится в тур под брендом<STRONG> DIRKSCHNEIDER</STRONG>, с которым будет петь только ACCEPT своего периода.</P>
+<P>Уже объявлены даты в феврале в Скандинавии, но я уверен тур продлится до летних фестивалей и обязательно захватит нашу страну. А уж потом... Потом будет только U.D.O.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.08/28257.jpg" width=450 height=301></P>
+Автор: Vit Belov
+
+### 22.10.2015 news Группа U.D.O. заканчивает исполнение &quot;золотых&quot; хитов ACCEPT?
+
+<P><STRONG>Udo Dirkschneider</STRONG>&nbsp;- вокалист "золотого" состава легендарной группы <STRONG>ACCEPT</STRONG> - сейчас находится в туре по России в поддержку нового альбома своей группы <STRONG>U.D.O.</STRONG> Отличает тур то обстоятельство, что недавно <STRONG>Удо</STRONG> заявил о своем намерении "закрыть главу ACCEPT". Это означает, что в рамках актуального тура группа <STRONG>U.D.O.</STRONG> может в последний раз исполнить нетленную классику <STRONG>ACCEPT</STRONG>, такую как<STRONG> "Balls To The Wall"</STRONG>, <STRONG>"Fast As A Shark"</STRONG> и др.</P>
+<P><EM>"Мне нравится петь эти песни на концертах,</EM> - заявил <STRONG>Удо Диркшнайдер</STRONG>. - <EM>Они по прежнему являются важной частью моего творчества и хорошо подходят моему голосу. Но в какой-то момент жизни приходит время закрыть главу. Вокруг ACCEPT было столько разговоров и спекуляций, что я хочу сделать своё последнее решительное музыкальное заявление...".</EM></P>
+<P>Московский концерт <STRONG>U.D.O.</STRONG> состоится в субботу 24 октября в клубе "YotaSpace".</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.10/28432.jpg" width=660 height=399> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.11.2015 news UDO вечен
+
+<P>Скидка 7% на весь <STRONG>UDO</STRONG> в ассортименте нашего магазина</P>
+<P>Бывший вокалист <STRONG>ACCEPT Udo Dirkschneider</STRONG> продолжает радовать поклонников своей неиссякаемой энергией. Группа<STRONG> U.D.O. </STRONG>в настоящее время в туре по нашей Родине, и мы предлагаем нашим покупателям приобретать в магазине товары <STRONG>U.D.O.</STRONG> со скидкой 7%. Акция продлится до 5 ноября включительно. Спешите!!!</P>
+<P><A href="http://escapemind.ru/search?q=U.D.O">http://escapemind.ru/search?q=U.D.O</A>. </P>
+<P><center><IMG border=0 src="/images/news_rus/2015.11/28493.jpg" width=450 height=300></P>
+Автор: Vit Belov
+
+### 04.07.2016 news MANIMAL: видео с текстом с участием Udo DIRKSCHNEIDER
+
+<p>Шведская heavy metal группа <strong>MANIMAL</strong> обнародовала новое видео с текстом на свою песню "<strong>The Journey</strong>" с альбома "<strong>Trapped In The Shadows</strong>", вышедшего в октябре прошлого года альбома, с участием <strong>Udo DIRKSCHNEIDER</strong>:</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/xqVEFmcs3ew" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 04.07.2016 news MANIMAL: New lyric video feat. Udo Dirckchneider
+
+<p>Swedish heavy metal band<strong> MANIMAL</strong> has unveiled a new lyric video for the song "<strong>The Journey</strong>" featuring<strong> Udo DIRKSCHNEIDER</strong> from the album "<strong>Trapped In The Shadows</strong>", released in October last year:</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/xqVEFmcs3ew" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 03.03.2017 news Гитарист Kasperi Heikkinen покинул U.D.O.&#x2F;DIRKSCHNEIDER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2017.03/30395.jpg" width=400 height=400>Гитарист <STRONG>Kasperi</STRONG> <STRONG>Heikkinen</STRONG>&nbsp;покинул<STRONG> U.D.O./DIRKSCHNEIDER</STRONG> по личным причинам.</P>
+<P>Завление <STRONG>Kasperi</STRONG>: "Я хочу поблагодарить всех, особенно поклонников, за те четыре года, которые я был в группе.&nbsp;Я также желаю всего наилучшего группу в её будущих начинаниях.&nbsp;С этого момента я сфокусируюсь на других своих музыкальных проектах и других видах творчества. Вы ещё обязательно услышите обо мне, когда придёт время!"</P>
+<P>В данный момент <STRONG>Kasperi </STRONG>состоит в группе <STRONG>BEAST IN BLACK</STRONG>, в состав которой также входит<STRONG> Антон Кабанен</STRONG>, бывший участник и основной композитор финнов <STRONG>BATTLE</STRONG> <STRONG>BEAST</STRONG>.<BR><A href="http://facebook.com/beastinblackofficial/">http://facebook.com/beastinblackofficial/</A></P>
+<P>Помимо прочего, на октябрь месяц уже заявлено два российских шоу группы <STRONG>DIRKSCHNEIDER</STRONG>.</P>
+<P>Подробнее: <A href="http://goo.gl/IFXbYU">http://goo.gl/IFXbYU</A> </P>
+<P>Кто же станет заменой <STRONG>Kasperi</STRONG>? Ждём анонса.</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### НОВЫЙ U.D.O. &quot;MASTERCUTOR&quot;...

@@ -209,6 +209,69 @@ My Bridges Burn
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.03.2001 news Не делайте из еды &quot;культа&quot;....
+
+<p>"Культовые" парни из "Культа" готовят новый студийный альбом. Пока еще не названное творение записывает супер-продюссер Боб Рок и где-то к июню уже все будет готово. Вот некоторые названия песен: "The Saint", "True Believers", "Shape the Sky" и "War". Позже выйдет DVD "EarthMofo4U".</p>
+
+Автор: Yermola
+
+### 21.03.2001 news forthcoming THE CULT studio album
+
+<p>More details have emerged about the forthcoming THE CULT studio album. Due out on June 5th, the as-yet-untitled, Bob Rock-produced effort will be preceded by a single release on May 1st. Among the tracks that are set to appear on the album are: "The Saint", "True Believers", "Shape the Sky", and "War". Meanwhile, the band will reportedly be issuing a DVD later in the year called EarthMofo4U.</p>
+
+Автор: Yermola
+
+### 11.04.2001 news THE CULT will perform at the eighth Tibetan Freedom Festival...
+
+<p>The Los Angeles Times has reported that THE CULT will perform at the eighth Tibetan Freedom Festival, to be held in the UK in September. Although unconfirmed, the rest of the bill will reportedly include RADIOHEAD, ROBERT PLANT and PEARL JAM’s Eddie Vedder.</p>
+
+Автор: Yermola
+
+### 16.04.2001 news Новости культ....уры
+
+<p>THE CULT - завершили запись "Beyond Good And Evil". Дата выхода - 5 Июня через Atlantic Рекордс. Трек-лист: Nico, Ashes And Ghosts, American Gothic, Black California, Save Me, Take The Power, True Believers, Shape The Sky, Libertine, Breathe, War And The Saint и Rise. Сейчас планируется летний тур с MONSTER MAGNET и ECONOLINE CRUSH.</p>
+
+Автор: Yermola
+
+### 16.04.2001 news Beyond Good And Evil....
+
+<p>THE CULT's new album, due June 5th on Atlantic, will be called Beyond Good And Evil. Tracks set to appear include: Nico, Ashes And Ghosts, American Gothic, Black California, Save Me, Take The Power, True Believers, Shape The Sky, Libertine, Breathe, War And The Saint and Rise, which will be the first single. The album was produced by Bob Rock. Meanwhile, the band are currently planning a summer tour with MONSTER MAGNET and ECONOLINE CRUSH. At this time the only confirmed date is on August 3rd at the Universal Amphitheater in L.A.</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Масло в огонь или лей-лей не жалей...
+
+<p>Песня Металлики “Fuel For Fire” (измененная версия с другой лирикой песни “Fuel” с альбома "Reload") в начале недели вышла на диске "NASCAR: Full Throttle" через Hybrid Recordings и в сотрудничестве с NASCAR, Turner Broadcasting, и NBC Sports. Кроме Метелицы на диске представлены SAMMY HAGAR, CREED, THE CULT, MOTLEY CRUE, и THE GRATEFUL DEAD.</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Fuel For Fire
+
+<p>METALLICA’s “Fuel For Fire” (a demo version with different lyrics of the song “Fuel” off Reload; this version originally appeared on the European single release of "The Memory Remains") appears on an album entitled NASCAR: Full Throttle, issued this week via Hybrid Recordings, in association with NASCAR, Turner Broadcasting, and NBC Sports. Other artists appearing on Full Throttle include SAMMY HAGAR, CREED, THE CULT, MOTLEY CRUE, and THE GRATEFUL DEAD. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 12.11.2001 reviews Музыка вне времени и оценок
+
+<p>…Язык не повернется назвать это новой музыкой – THE CULT придерживаются своего старого рецепта, что когда-то принес им огромную популярность в 80-х. Но на этот раз, после спорных работ 90-х и распада в 1995 году, группе удалось вернуться к первоначальной идее в чистом виде и великолепно выразить ее – вся чертова дюжина великолепных песен выдержана практически в одном настроении, но этот монолит духа не превращается в монотонность музыки. Напротив – и темп, и мелодии, и ритмика варьируются от песни к песне, создавая то самое единство, что делает альбом каким-то запредельным. Черт его знает, что музыканты имели в виду, заимствуя для альбома ницшеанское "По ту сторону добра и зла", но совершенно точно можно сказать – получилась музыка вне времени и оценок. Пожалуй, наиболее яркой и в то же время характерной песней альбома можно назвать "Rise": простейший рычащий рифф в считанные секунды обрастает псевдовосточной мелодикой и взрывается великолепным припевом. И так все 50 минут звучания альбома – от мелодий к драйву и обратно. Главное, что таким образом доказывает The Cult, – нет особого смысла в электронике и сэмплах, как нет свободы в холодности и отчуждении. Музыканты великолепно демонстрируют понимание того, что для хорошей песни мало написать цепляющий припев, - композиция должна сжиматься и раскручиваться словно пружина, и только тогда она заставит слушателя взорваться изнутри. Свои пружинки музыканты делают с высочайшим мастерством и вдохновением. Они с шокирующей легкостью заимствуют приемы из самых разных стилей, не теряя при том своего лица. Местами интонации напоминают Гленна Данцига первой половины 90-х – только в отличие от песен холодного сатаниста музыка The Cult рисует не жертвенный алтарь, а обычный ночной костер, полет и свободу – неизвестно от чего, неизвестно зачем, но очень уж заманчивую и просто беспредельную... Пожалуй, из всех "возрождений-возвращений" этого года реинкарнация The Cult самая-самая. Кто бы мог подумать, что в самом начале третьего тысячелетия смесь из ритмики "новой волны" и малой доли панковских настроений, крепких хардовых риффов и готической мелодики будет звучать столь актуально. Ведь это просто вызов всей современной моде на рэп, хип-хоп, хардкор, супер-пупер-тяжесть и прочее. Вот вам – сорок минут музыки, заваренной по рецептам двадцатилетней давности, да так круто заваренной, что результат вывернет вашу душу наизнанку. Из всех современных достижений присутствует лишь техника сведения записи, подчеркивающая великолепный звук The Cult, в самих же песнях – ничего. Ничего, кроме самих великолепных песен. <BR> Остается только добавить, что записывали это волшебство вокалист Ян Эстбури, гитарист Билл Даффи (собственно отцы-основатели THE CULT), басист Билли Моррисон и барабанщик Мэтт Сорум (ex-Guns'N'Roses, Neurotic Outsiders) под руководством Боба Рока.</p>
+
+Автор: Tornado
+
+### 09.07.2002 news Еще один концерт DOORS...
+
+<p>Вокалист THE CULT - Ian Astbury примет участие в Сентябрьском концерте THE DOORS с оставшимися оригинальными участниками — Ray Manzerek, Robby Krieger и John Densmore. Помимо Йэна DOORS выступали в прошлом году на шоу "VH1 Storytellers" со: Scott Weiland (STONE TEMPLE PILOTS), Scott Stapp (CREED), Perry Farrell (JANE'S ADDICTION), Pat Monaghan (TRAIN) и Travis Meeks (DAYS OF THE NEW). Это будет второй концерт группы за последние 30 лет. <BR><BR> Сейчас Робби, Рэй и Джон записывают новый материал планируют записать альбом в 2003. За ним последует Американский и Европейский туры...</p>
+
+Автор: Yermola
+
+### 09.07.2002 news THE CULT&#39;s IAN ASTBURY To Perform With THE DOORS ...
+
+<p>THE CULT's Ian Astbury will perform with the surviving members of THE DOORS—Ray Manzerek, Robby Krieger and John Densmore—on September 7th at the California Motor Speedway, just outside L.A. County, according to Undercover. <BR><BR> At this stage it is planned that Densmore will be part of the show although THE DOORS have advised fans he is not in the best of health and they will have to decide closer to the date if he is capable of performing. In the meantime, they are rehearsing with an alternate drummer just in case.<BR><BR> Astbury will perform most of the songs in the set but there are also a number of guest vocalists who will perform lead on some songs. Although the identities of the other singers have not yet been revealed, THE DOORS performed with STONE TEMPLE PILOTS' Scott Weiland, JANE'S ADDICTION's Perry Farrell, CREED's Scott Stapp, TRAIN's Pat Monaghan, and DAYS OF THE NEW's Travis Meeks on the VH1 Storytellers show a year ago.<BR><BR> The only two times THE DOORS have performed in the last 30 years were for their the rock and roll hall of fame induction and the aforementioned Storytellers special. The band's last concert was in 1972.<BR><BR> The one off show will be used to evaluate the next move forward. Already Robby, Ray and John are writing new material and plan to record a new album next year. They also plan a full US and European tour in 2003.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### The Cult "Beyond Good And Evil"

@@ -88,6 +88,67 @@ Recorded and mixed in Abyss Studios of Peter Tдgtgren
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.01.2007 reviews Легионеры рвутся в бой
+
+<P>Стиль, который на наших родных просторах равнодушием публики практически сведен на нет и загнан в глубокий андеграунд, продолжает уверенным и победным маршем шествовать по европейским государствам, вербуя под свои знамена новых поклонников и радуя фэнов со стажем.</P>
+<P>Как вы уже наверное догадались, речь у нас пойдет о трэше и его очередном представителе – коллективе Legion Of The Damned. Если проводить параллели между творчеством команды и ветеранами жанра, то ближайшим аналогом будет Sodom образца первой половины 90-х. Особенно схож с дядькой Томом вокалист «Проклятых» Maurice – тот же диапазон, те же вокальные приемы. Не обошлось и без заимствований из Slayer – все-таки Reign In Blood стал эталоном для стиля и идеи из этого легендарного альбома сейчас черпают практически все современные трэш-коллективы. Главное, чтобы использование приемов не переросло в тупое копирование, а с этим у Legion Of The Damned все в порядке. Конечно, новаторским этот альбом не назовешь, но напор, мощь и энергетика композиций на достойном уровне, а это главное для представителей данного жанра. Стоит отметить, что записан и сведен диск в Stage One Studio и спродюсирован Энди Классеном (Tankard, Dew-Scented), что уже говорит само за себя. Лично меня, поклонника трэша со стажем, пластинка зацепила – чего и вам желаю.</P>
+<P>Диск предоставлен Mystic Empire.</P>
+Автор: Fucker
+
+### 10.12.2007 news LEGION OF THE DAMNED переиздают альбом
+
+<P>4 января на <STRONG>Massacre </STRONG>выходит новый альбом <STRONG>LEGION OF THE DAMNED</STRONG> <STRONG>"Feel the Blade". </STRONG>Пластинка станет переизданием альбома <STRONG>"Elegy for the Weak", </STRONG>вышедшего под старым названием группы <STRONG>OCCULT</STRONG>. Альбом будет дополнен двумя бонус-трэками. Трэк-лист:</P>
+<P>01. <B>Nuclear Torment</B><BR>02. <B>Nocturnal Predator</B><BR>03. <B>Slaughtering The Pigs</B><BR>04. <B>Slut of Sodom</B><BR>05. <B>Feel the Blade</B><BR>06. <B>Expire</B><BR>07. <B>Warbeast</B><BR>08. <B>Disturbing the Dead</B><BR>09. <B>Obsessed by the Grave</B><BR>10. <B>Reapers Call</B><BR>11. <B>Last Command</B><BR>12. <B>Mask of Terror</B><BR>13. <B>Chronic Infection</B></P>
+Автор: Vit Belov
+
+### 05.01.2008 news LEGION OF THE DAMNED выложили клип
+
+<P>Трэшеры <STRONG>LEGION OF THE DAMNED</STRONG> выложили в сеть свой новый видеоклип на песню <STRONG>"Disturbing the Dead".</STRONG></P>
+<P><center><object width="425" height="373"><param name="movie" value="http://www.youtube.com/v/kYcOm1JY5G4&rel=1&border=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/kYcOm1JY5G4&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></object></center></P>
+Автор: Vit Belov
+
+### 17.03.2009 reviews Легион проклятых прочистит вам мозги от новых KREATOR и METALLICA
+
+<P>Голландская thrash-metal группа LEGION OF THE DAMNED родилась из праха другой достаточно известной голландской команды OCCULT, несколько альбомов которой было доступно в нашей стране на разных носителях в далеком и не очень прошлом. Первый альбом коллектива под этим названием “Malevolent Rapture” был издан у нас на Mazzar и сразу же привлёк внимание любителей стиля. Две следующие работы выпали из поля зрения наших лэйблов, но мимо четвёртого альбома, уже вышедшего на Nuclear Blast, Irond не смогли пройти мимо.</P>
+<P>Открывается пластинка помпезным симфоническим хоррор интро, которое больше подошло бы DIMMU BORGIR, но уже с первой песни становится ясно, куда клонит группа. От этого направления LotD не отходят ни на шаг на протяжении всего альбома. Любители ультрапрямолинейного thrash-metal немецкого образца просто обязаны приобрести “Cult of the Dead”. Никаких компромиссов, никаких мелодий, прямолинейная долба и захлёбывающийся вокал, свойственный Schmier или Mille в их лучшие молодые разухабистые годы. Любителям мелодичных проходов здесь делать нечего. Также мимо могут проходить и упёртые поклонники METALLICA или MEGADETH. Чистейший европейский убойный материал.</P>
+<P>К сожалению, до звания 100-процентного хита этот альбом не дотягивает. Увлекшись забоем, LEGION OF THE DAMNED что-то упустили. С другой стороны, применим ли к подобной музыке эпитет «хит»? Едва ли…</P>
+Автор: Vit Belov
+
+### 27.05.2011 news Бывший басист LEGION OF THE DAMNED покончил с собой
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший бас-гитарист голландцев <STRONG>LEGION OF THE DAMNED</STRONG> <STRONG>Twan Fleuren </STRONG>совершил самоубийство. Музыкант был членом группы <STRONG>OCCULT</STRONG>, предшествовавшей <STRONG>LotD</STRONG>, а также участвовал в записи первой работы группы "<STRONG>Malevolent Rapture</STRONG>". Группу он покинул в 2006 году, из-за болезни новорождённого сына.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Причины самоубийства не сообщаются. У <STRONG>Twan</STRONG> остались жена и два ребёнка.</FONT></P>
+<P>
+<CENTER>
+<IMG height=405 src="/images/news_rus/2011.05/19523.jpg" width=300 border=0></P></CENTER>
+Автор: Vit Belov
+
+### 11.01.2012 news LEGION OF THE DAMNED переиздадут дебют
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22589.jpg" width=400 align=right border=0>LEGION OF THE DAMNED</STRONG> переиздадут свой дебютный альбом "<STRONG>Malevolent Rapture</STRONG>" 10 февраля на <STRONG>Massacre Records</STRONG>. Издание будет посвящено памяти бывшего басиста коллектива <STRONG>Twan Fleuren</STRONG>, который покончил с собой в прошлом году. Трек-лист:</FONT></P>
+<P>1. <STRONG>Legion of the Damned<BR></STRONG>2. <STRONG>Death's Head March <BR></STRONG>3. <STRONG>Werewolf Corpse</STRONG> <BR>4. <STRONG>Into the Eye of the Storm</STRONG><BR>5. <STRONG>Malevolent Rapture<BR></STRONG>6. <STRONG>Demonfist <BR></STRONG>7. <STRONG>Taste of the Whip <BR></STRONG>8. <STRONG>Bleed for Me <BR></STRONG>9. <STRONG>Scourging the Crowned King<BR></STRONG>10. <STRONG>Killing for Recreation</STRONG> (bonus track)</P>
+Автор: Vit Belov
+
+### 11.01.2013 news LEGION OF THE DAMNED на Napalm
+
+<P>Голландцы <STRONG>LEGION OF THE DAMNED</STRONG> заключили соглашение с <STRONG>Napalm Records</STRONG>. </P>
+<P>Последняя работа коллектива <STRONG>"Descent Into Chaos</STRONG>" вышла в 2011 году на <STRONG>Massacre Records</STRONG>.&nbsp;</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25293.jpg" width=475 height=169></P>
+Автор: Vit Belov
+
+### 21.12.2013 news LEGION OF THE DAMNED: альбом &quot;Ravenous Plague&quot; в первых числах 2014 г.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие thrash/death маньяки <STRONG>LEGION OF THE DAMNED</STRONG>, выпускают свой новый альбом под названием <STRONG>"Ravenous Plague"</STRONG> на <STRONG>Napalm Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск увидет свет: 3 января 2014&nbsp;г.&nbsp;в Европе, а&nbsp;7 января 2014 г. в С.Ш.А.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложку альбома нарисовал <STRONG>Wes Benscoter</STRONG> (<A href="http://www.wesbenscoter.com/">www.wesbenscoter.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>The Apocalyptic Surge</STRONG> | 02. <STRONG>Howling For Armageddon</STRONG> | 03.<STRONG> Black Baron</STRONG> | 04. <STRONG>Mountain Wolves Under&nbsp;A Crescent Moon</STRONG> | 05. <STRONG>Ravenous Abominations</STRONG> | 06. <STRONG>Doom Priest</STRONG>&nbsp; | 07. <STRONG>Summon All Hate</STRONG>&nbsp; | 08. <STRONG>Morbid Death</STRONG> | 09.<STRONG> Bury Me In&nbsp;A Nameless Grave</STRONG> | 10. <STRONG>Armalite Assassin</STRONG> | 11. <STRONG>Strike Of The Apocalypse</STRONG></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.12/26433.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### LEGION OF THE DAMNED в России (18 - 22 февраля 2015)

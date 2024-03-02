@@ -27,6 +27,45 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.03.2007 reviews Новая надежда британской хард-рок сцены? Возможно.
+
+<P>The Answer из Северной Ирландии произвели настоящую революцию на британской рок-сцене. Мало какая команда удостаивалась таких громких и хвалебных эпитетов после выхода дебютного альбома (некоторые даже сравнивают в этом смысле "The Rise" с первым альбомом "ганзов"). Возможно, я буду не прав, но, по моему мнению, The Answer это великолепно сделанный коммерческий проект. Хард-рок сцена давно уже не выдавала ничего нового и интересного, "старички" типа Deep Purple или Whitesnake продолжают выпускать свои пластинки, не особо радуя и одновременно не особо разочаровывая своих поклонников, там давно всё ясно и никаких дебатов не ожидается. Слушателям была нужная свежая кровь, что-то, что бы всколыхнуло застоявшееся болото и заставило вновь заговорить о хард-роке, как об еще совершенно несобирающемся умирать жанре. В общем, надо было появиться в нужное время и в нужном месте. И The Answer именно так и появились. Они как бы сделали своеобразный экстракт из творчества таких команд, как Led Zeppelin, Free, Yardbirds&nbsp;и&nbsp;The Who, и, балансируя на тонкой границе с плагиатом, изящно пряча и комбинируя уже давно известные фрагменты и риффы, выдали действительно мощнейшую пластинку. Притом этим ребятам удается одновременно и звучать современно, и воссоздать атмосферу старого доброго хард-рока с блюзовой основой (хм, кто мог подумать, что северные ирландцы умеют играть блюз-рок?). Про качество звука я даже говорить не буду, никаких претензий, как, впрочем, и к технике исполнения. Так что все эти слова о "новой надежде британской рок-сцены"&nbsp;- слова не пустые. И сейчас вот хочется предостеречь этих неожиданно успешных североирландских хлопцев одной известной (нам, русским) фразой: "Торопиться не надо". Да, вы записали отличную пластинку, но такие группы, как Deep Purple или Led Zeppelin именно потому и стали легендами, стали классиками, что умели каждый год записывать по шедевральному альбому. А The Answer, как бы ни были хороши, всё равно (как, впрочем, и все другие) никогда не смогут перепрыгнуть планку, поставленную монстрами хард-рока. Но это, я считаю, есть гут. Ибо хороших и даже очень хороших команд может быть много, а вот лучших - единицы.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 26.08.2016 news Новый сингл THE ANSWER
+
+<p>Новую песню<strong> THE ANSWER "Beautiful World"</strong> можно послушать ниже. 28 октября выйдет новый альбом музыкантов "<strong>Solas</strong>" на <strong>Napalm Records</strong>. </p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/uADYRNDkYyw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news New single of THE ANSWER
+
+<p>New song of <strong>THE ANSWER "Beautiful World"</strong> can be streamed below. New album of the band "<strong>Solas</strong>" will be released&nbsp; Oct. 28 on<strong> Napalm Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/uADYRNDkYyw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.09.2016 news THE ANSWER - Solas, новый трек группы
+
+<p>Заглавный трек с нового альбома<strong> THE ANSWER "Solas"</strong> можно послушать ниже. Диск выйдет в скором будущем на<strong> Napalm Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/U0e-TbCU5tA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.09.2016 news Title track from new THE ANSWER album
+
+<p>The title track from the new album <strong>THE ANSWER "Solas"</strong> can be streamed below. The CD will be released soon on <strong>Napalm Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/U0e-TbCU5tA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.10.2016 news Новый клип THE ANSWER
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый ролик <strong>THE ANSWER</strong> на заглавную песню с выходящего 28 октября на<strong> Napalm Records</strong> нового альбома "<strong>Solas</strong>" можно посмотреть ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/OgdIjwh9iq8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.10.2016 news New video of THE ANSWER
+
+New video of <strong>THE ANSWER</strong> to the title song from coming out October 28 via <strong>Napalm Records</strong> new album "<strong>Solas</strong>" can be viewed below.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/OgdIjwh9iq8" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

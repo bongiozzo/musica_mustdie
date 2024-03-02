@@ -98,6 +98,107 @@ Credits:
 * C группой "Krokus" Mandy Meyer (guitar)
 * C группой "Asia" Mandy Meyer (guitar)
 
+## Публикации
+
+### 16.03.2011 news Kai Hansen будет работать с Michael Kiske
+
+<P>Гитарист и лидер<STRONG> GAMMA RAY Kai Hansen</STRONG> вновь будет играть в одной группе с <STRONG>Michael Kiske</STRONG>, с которым работал на классических альбомах <STRONG>HELLOWEEN</STRONG> в конце 80-х годов. Музыкант присоединился к новому проекту <STRONG>UNISONIC</STRONG> с <STRONG>Michael Kiske</STRONG> "на вокале". Кроме этих двух классиков немецкого метала в работе над дебютом <STRONG>UNISONIC</STRONG> принимают участие басист <STRONG>Dennis Ward,</STRONG>&nbsp;барабанщик <B>Kosta Zafiriou</B>&nbsp;из <STRONG>PINK CREAM 69</STRONG>, а так же гитарист <STRONG>Mandy Meyer (ASIA, KROKUS, GOTTHARD).</STRONG></P>
+<P>Демо очень не плохой песни <STRONG>"Souls Alive" </STRONG>можно послушать ниже. Кстати, выступление в прошлом июне вместе с <STRONG>UNISONIC </STRONG>стало первым для Michael Kiske за прошедшие 17 лет.</P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=70658948&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=70658948&pid=3289385714124923521" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.10.2011 news UNISONIC на Edel
+
+<P><IMG height=164 alt="" hspace=0 src="/images/news_rus/2011.10/21755.jpg" width=100 align=right border=5>Группа вокалиста<STRONG> Michael Kiske (ex-HELLOWEEN)</STRONG> и гитариста <STRONG>Kai Hansen (GAMMA RAY, ex-HELLOWEEN) UNISONIC</STRONG> подписала контракт с <STRONG>Edel</STRONG>. Также в составе all-star коллектива гитарист<STRONG> Mandy Meyer (ex-GOTTHARD)</STRONG>, басист <STRONG>Dennis Ward (PINK CREAM 69)</STRONG> и барабанщик <STRONG>Kosta Zafiriou (PINK CREAM 69)</STRONG>. </P>
+<P>Проба пера от <STRONG>UNISONIC </STRONG>выйдет уже в начале 2012 года - коллектив представит мини-альбом для самых преданных поклонников. В начале весны нам следует ждать дебютный полноформатный альбом. </P>
+Автор: Vit Belov
+
+### 20.12.2011 news UNISONIC: дебютный мини-альбом в январе 2012
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22360.jpg" width=400 height=400>Супергруппа <STRONG>UNISONIC</STRONG>, в состав которой входят -&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Michael Kiske</STRONG> (вокал, ex-<STRONG>HELLOWEEN</STRONG>), </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Kai Hansen</STRONG> (гитара, <STRONG>GAMMA RAY</STRONG>, ex-<STRONG>HELLOWEEN</STRONG>), </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Mandy Meyer</STRONG> (гитара, ex-<STRONG>GOTTHARD</STRONG>, ex-<STRONG>KROKUS</STRONG>), </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Dennis Ward</STRONG> (бас, <STRONG>PINK CREAM 69</STRONG>), </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Kosta Zafiriou</STRONG> (барабаны, <STRONG>PINK CREAM 69</STRONG>), </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>выпускает дебютный мини альбом <STRONG>"Ignition"</STRONG> 27 января 2012 года. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Двумя днями раньше, диск выйдет на территории Японии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Полноформатный альбом группы, планируется к выходу в марте 2012 г.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Трек-лист<STRONG> "Ignition"</STRONG></U>:</FONT></P>
+<P>01. <STRONG>Unisonic</STRONG> (войдёт в дебютный полноформатник) <BR>02. <STRONG>My Sanctuary&nbsp;</STRONG>(войдёт в дебютный полноформатник) <BR>03. <STRONG>Souls Alive</STRONG> - (демо версия) <BR>04. <STRONG>I Want Out</STRONG>&nbsp; - (классический трек <STRONG>HELLOWEEN</STRONG>, исполненный в октябре&nbsp;этого года на японском фестивале <STRONG>Loudpark</STRONG>).</P>
+<P>Официальный сайт <STRONG>UNISONIC</STRONG>: <A href="http://www.unisonic.de/">www.unisonic.de</A></P>
+Автор: Headcrusher
+
+### 13.01.2012 news Дебютное видео UNISONIC
+
+<P>Новая группа <STRONG>UNISONIC</STRONG>, в которой вновь вместе работают иконы <STRONG>HELLOWEEN</STRONG> вокалист <STRONG>Michael Kiske</STRONG> и гитарист <STRONG>Kai Hansen</STRONG>, опубликовала дебютное видео на песню "<STRONG>Unisonic</STRONG>". Дебютный мини-альбом коллектива "<STRONG>Ignition</STRONG>" выйдет в конце января на <STRONG>Edel</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/2XR65ATnBWI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 02.02.2012 news Дата релиза UNISONIC
+
+<P>Ожидаемый всеми фэнами power-metal дебютный одноимённый&nbsp;альбом группы<STRONG> UNISONIC</STRONG>, в которой вновь вместе работают классики <STRONG>HELLOWEEN Kai Hansen</STRONG> и<STRONG> Michael Kiske</STRONG>, выйдет 30 марта на <STRONG>EarMusic/Edel</STRONG>. Обложку для пластинки создал <STRONG>Martin Hausler (GOTTHARD, MOTORHEAD, HELLOWEEN)</STRONG>. </P>
+<P><center><IMG height=475 src="/images/news_rus/2012.02/22904.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 11.02.2012 news Трек-лист дебютного UNISONIC
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=259 alt="" hspace=0 src="/images/news_rus/2012.02/23026.jpg" width=475 align=right border=0>Дебютный одноимённый альбом группы<STRONG> UNISONIC</STRONG>, в которой вновь вместе работают <STRONG>Kai Hansen</STRONG> и <STRONG>Michael Kiske</STRONG>, выйдет 30 марта на <STRONG>Edel.</STRONG> Стал известен трек-лист альбома:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Unisonic<BR></STRONG>02. <STRONG>Souls Alive</STRONG> <BR>03. <STRONG>Never Too Late</STRONG> <BR>04. <STRONG>I've Tried <BR></STRONG>05. <STRONG>Star Rider</STRONG> <BR>06. <STRONG>Never Change Me <BR></STRONG>07. <STRONG>Renegade <BR></STRONG>08. <STRONG>My Sanctuary <BR></STRONG>09.<STRONG> King For A Day <BR></STRONG>10. <STRONG>We Rise</STRONG> <BR>11. <STRONG>No One Ever Sees Me<BR></STRONG>12. <STRONG>Over The Rainbow</STRONG> (limited-edition bonus track)</FONT></P>
+Автор: Vit Belov
+
+### 23.04.2012 reviews Три песни для ностальгии
+
+<P>Ещё один долгожданный релиз этой весны. Проект UNISONIC был создан в прошлом году участником PINK CREAM 69 Dennis Ward с привлечением знаменитого вокалиста Michael Kiske (ex-HELLOWEN). В принципе, это не является особо выдающимся событием, так как господин Kiske поёт сейчас в большом количестве проектов, но через некоторое время к UNISONIC присоединился другой бывший из HELLOWEEN Kai Hansen, а это уже серьёзно.</P>
+<P>Теперь UNISONIC представляют как новое воплощение классического HELLOWEEN, ведь нынешний лидер GAMMA RAY Kai Hansen является одним из основателей этой группы, а Michael Kiske пел на классических «кипперах» в конце 80-х годов. Поклонников HELLOWEEN огромное множество по всему миру, и они были в восторге от первого видео, появившегося в сети. Действительно, трек “Unisonic” звучал как реплика какого-нибудь “I Want Out”. К сожалению, в таком же духе на дебютном полноформатном альбоме группы выполнены только три первые вещи. Дальше поклонники Michael Kiske услышат то, что они привыкли слушать в его исполнении все последние годы. И это не удивительно, так как Dennis Ward работал с певцом в проекте PLACE VENDOME, а UNISONIC наверное был создан, из-за контрактных разногласий с прежним лэйблом Frontiers. Kai Hansen же был привлечён для получения заманчивого контракта с Edel… Но не будем о грустном. Будем считать, что подобный melodic hard-rock нравится всем участникам новообразованного коллектива, они ведь уже не молоды, не вечно же им power-metal играть?</P>
+<P>Альбом UNISONIC в любом случае не стал бы шедевром. То, что мы услышали в начале, вызывало тёплые ностальгические чувства, но не более. К сожалению, даже на ностальгический подарок любителям раннего HELLOWEEN этот альбом не тянет. На “Unisonic” в основе своей представлен melodic hard-rock, который в исполнении Kiske мы слышали многократно, и это уже малоинтересно.</P>
+Автор: Vit Belov
+
+### 17.04.2014 news UNISONIC: новый EP выходит 23 мая
+
+<P>23 мая на лейбле <STRONG>earMusic</STRONG> выходит новый миньон группы <STRONG>UNISONIC</STRONG> под названием <STRONG>"For The Kingdom"</STRONG>. На EP&nbsp;войдёт всего&nbsp;шесть песен, четыре из которых были записаны живьём на чешском фестивале&nbsp;<STRONG>Masters Of Rock</STRONG>&nbsp;в 2012 году,&nbsp;плюс два абсолютно новых трека, один из которых&nbsp;не войдёт в грядущий полноформатник, а будет доступен только на данном релизе.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>For The Kingdom</STRONG> <EM>(brand new album track)<BR></EM>2. <STRONG>You Come Undone</STRONG> <EM>(brand new EP exclusive track)<BR></EM>3. <STRONG>Intro & Unisonic</STRONG> <EM>(Live from Masters Of Rock 2012)<BR></EM>4. <STRONG>Never Too Late</STRONG> <EM>(Live from Masters Of Rock 2012)<BR></EM>5. <STRONG>Star Rider</STRONG> <EM>(Live from Masters Of Rock 2012)<BR></EM>6. <STRONG>Souls Alive</STRONG> <EM>(Live from Masters of Rock 2012)</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26896.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.06.2014 news UNISONIC: подробности второго альбома
+
+<P>Группа <STRONG>UNISONIC</STRONG>, в состав которой входят <STRONG>Michael Kiske</STRONG> и <STRONG>Kai Hansen</STRONG>, заканчивает работу над своим вторым полноформатником, который получил название <STRONG>"Light Of Dawn"</STRONG>. Диск&nbsp;выйдет 1 августа на лейбле <STRONG>earMUSIC</STRONG> (4 августа в Англии и 12 августа в США) и будет доступен в четырёх видах издания:</P>
+<P>- Стандартный&nbsp;CD&nbsp;(12 треков)<BR>-&nbsp;Digipak версия CD (13 треков)<BR>- Двойной винил (13 треков + код для скачивания альбома в цифровом формате)<BR>- Лимитированный боксет </P>
+<P>Трек-лист&nbsp;стандартного&nbsp;CD:</P>
+<P>01. <STRONG>Venite 2.0</STRONG> | 02. <STRONG>Your Time Has Come</STRONG> | 03. <STRONG>Exceptional</STRONG> | 04. <STRONG>For The Kingdom</STRONG> | 05. <STRONG>Not Gonna Take Anymore</STRONG> | 06. <STRONG>Night Of The Long Knives</STRONG> | 07. <STRONG>Find Shelter</STRONG> | 08. <STRONG>Blood</STRONG> | 09. <STRONG>When The Deed Is Done</STRONG> | 10. <STRONG>Throne Of The Dawn</STRONG> | 11. <STRONG>Manhunter</STRONG> | 12. <STRONG>You And I</STRONG></P>
+<P>Автором обложки для&nbsp;<STRONG>"LIGHT OF DAWN"</STRONG>,&nbsp;как и для дебютника <STRONG>UNISONIC</STRONG>,&nbsp;снова стал <STRONG>Martin Hausler</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27047.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.07.2014 news 30 августа UNISONIC выступят на фестивале Moscow Metal Meeting в «Зелёном Театре»
+
+<P>Лидерами звёздной метал-бригады <A href="http://www.unisonic.org/">UNISONIC</A>&nbsp;являются вокалист Майкл Киске и гитарист Кай Хансен (<STRONG>GAMMA RAY</STRONG>). В конце 80-х годов прошлого столетия (более 25 лет назад) они вместе стали фактически «родителями» power metal, записав два самых фундаментальных альбома в истории жанра <STRONG>"Keepers Of The Seven Keys 1-2"</STRONG>.</P>
+<P>В дальнейшем их творческие пути разошлись, и возможность увидеть Майкла и Кая на одной сцене стало недостижимой мечтой для целого поколения metal head'ов. Но вот, спустя пару десятилетий разногласий, все топоры закопаны и все обиды забыты. Они снова вместе, теперь в рамках <STRONG>UNISONIC</STRONG>!</P>
+<P>Не упустите уникальную возможность увидеть этот коллектив, ведь помимо главных героев в составе UNISONIC также выступают не менее интересные и талантливые музыканты из <STRONG>GOTTHARD</STRONG>,&nbsp;<STRONG>PINK CREAM 69</STRONG>&nbsp;и <STRONG>IRON SAVIOR</STRONG>. А их 60-минутную программу выступления составят как песни со своих двух альбомов, так и треки из золотого наследия HELLOWEEN!</P>
+<P><STRONG>Moscow Metal Meeting</STRONG> – это десять часов качественной тяжёлой музыки от лучших отечественных и зарубежных метал-команд на легендарной концертной площадке в настоящем оазисе летней Москвы!</P>
+<P>Участники open-air'а: <A href="http://www.kipelov.ru/">«КИПЕЛОВ»</A>, <A href="http://www.udo-online.com/">U.D.O.</A>, <A href="http://www.unisonic.org/">UNISONIC</A>, <A href="http://www.grave-digger-clan.com/">GRAVE DIGGER</A>, <A href="http://www.epidemia.ru/">«ЭПИДЕМИЯ»</A>, <A href="http://catharsis.ru/">CATHARSIS</A>.</P>
+<P>Все команды исполнят полноценные концертные сеты, что позволит зрителям получить максимальную live-концентрацию любимых хитов!</P>
+<P>Зрителей ждёт 10-часовой метал-марафон от любимых зарубежных и, без преувеличения, лучших отечественных метал-команд, эксклюзивные live-сеты и феерическое пиротехническое шоу!</P>
+<P>Приглашаем вас провести заключительный летний уик-энд под действительно забойный саундтрек от магистров метал-сцены!</P>
+<P>Подготовка к главному московскому метал-событию этого лета стартовала, поэтому уже сейчас мы хотим обратить ваше внимание на важные организационные аспекты фестиваля, которые позволят зрителям провести этот день в максимально комфортных условиях.</P>
+<P>Билеты всех категорий на входе в «Зелёный Театр» подлежат обмену на соответствующие браслеты, благодаря которым гости фестиваля смогут беспрепятственно покидать территорию концертной площадки и возвращаться неограниченное количество раз. Эта опция позволит вам самостоятельно распоряжаться собственным временем, ориентируясь на расписание фестиваля.</P>
+<P>Следите за новостями фестиваля, и до встречи 30 августа на <STRONG>Moscow Metal Meeting </STRONG>в «Зелёном Театре»!</P>
+<P>Подробности:<BR><A href="http://vk.com/moscow_metal_meeting">http://vk.com/moscow_metal_meeting</A><BR><A href="http://on.fb.me/1my06Zn">http://on.fb.me/1my06Zn</A></P>
+<P>Билеты - от 1600 рублей во всех салонах «Евросеть», рок-магазинах «Зиг-Заг» и «Хобгоблин», а также на сайте:<BR><A href="http://concert.ru/Order.aspx?ActionID=44972">http://concert.ru/Order.aspx?ActionID=44972</A></P>
+<P>А также по телефону: +7 (495) 644-22-22. 
+<CENTER><IMG border=0 src="/images/news_rus/2014.07/27111.jpg" width=600 height=450>&nbsp;</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

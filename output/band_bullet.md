@@ -78,6 +78,56 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2008 news Новый альбом BULLET
+
+<P>Шведские "клоны AC/DC" <STRONG>BULLET</STRONG> подготовили второй альбом <STRONG>"Bite the Bullet", </STRONG>который выходит 5 сентября на <STRONG>Black Lodge Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Pay The Price</B><BR>02. <B>Roadking</B><BR>03. <B>Bite The Bullet</B><BR>04. <B>Dusk Til Dawn</B><BR>05. <B>Nailed To The Ground</B><BR>06. <B>City Of Sins</B><BR>07. <B>Waste My Time</B><BR>08. <B>Rock N Roll Remedy</B><BR>09. <B>Rock Us Tonight</B><BR>10. <B>Wheels Keep On Turning</B><BR>11. <B>The Rebels Return</B></P>
+Автор: Vit Belov
+
+### 30.10.2009 news Видео BULLET
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео BULLET на песню <STRONG>"Bite the Bullet" </STRONG>можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/iTCbIF66RJs&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/iTCbIF66RJs&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.06.2011 news Новое видео BULLET
+
+<P>Новый клип шведов<STRONG> BULLET</STRONG> на песню <STRONG>"Stay Wild" </STRONG>можно посмотреть ниже. Трек взят с третьего альбома группы <STRONG>"Highway Pirates".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=270 width=480><PARAM NAME="movie" VALUE="http://www.aftonbladet.se/svn/tv/flash/AbPlayer.swf?debugging=true&clipsrc=http://www.aftonbladet.se/resource/webbtv/article/13110390/player&autoStart=false&playerMode=portal&flash_id=player-13110390-1-79812&sound=80&version=21&embeded=true"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.aftonbladet.se/svn/tv/flash/AbPlayer.swf?debugging=true&clipsrc=http://www.aftonbladet.se/resource/webbtv/article/13110390/player&autoStart=false&playerMode=portal&flash_id=player-13110390-1-79812&sound=80&version=21&embeded=true" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="270"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.08.2011 news BULLET на Nuclear Blast
+
+<P>Шведские последователи AC/DC <STRONG>BULLET</STRONG> подписали контракт с <STRONG>Nuclear Blast Records</STRONG>. Группа работает над своим четвёртым альбомом.</P>
+<P>Предыдущая пластинка<STRONG> BULLET</STRONG> <STRONG>"Highway Pirates" </STRONG>вышла в этом году.</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.08/20591.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 24.06.2012 news Новый альбом BULLET
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.06/24233.jpg" width=475 height=471>14 сентября на<STRONG> Nuclear Blast</STRONG> выйдет новый альбом шведов<STRONG> BULLET</STRONG> <STRONG>"Full Pull". </STRONG>Альбом был записан в <STRONG>Gutterview Recorders </STRONG>с продюсерами <STRONG>Nicke Andersson</STRONG> (<B itxtHarvested="0" itxtNodeId="78">HELLACOPTERS</B>, <B itxtHarvested="0" itxtNodeId="77">ENTOMBED</B>)&nbsp;и <B itxtHarvested="0" itxtNodeId="76">Fred Estby</B> (<B itxtHarvested="0" itxtNodeId="75">DISMEMBER</B>). Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="68">Midnight Oil</B><BR itxtNodeId="67">02. <B itxtHarvested="0" itxtNodeId="66">Full Pull</B><BR itxtNodeId="65">03. <B itxtHarvested="0" itxtNodeId="64">Running Away</B><BR itxtNodeId="63">04. <B itxtHarvested="0" itxtNodeId="62">All Fired Up</B><BR itxtNodeId="61">05. <B itxtHarvested="0" itxtNodeId="60">Rolling Home</B><BR itxtNodeId="59">06. <B itxtHarvested="0" itxtNodeId="58">In The Heat</B><BR itxtNodeId="57">07. <B itxtHarvested="0" itxtNodeId="56">High On The Hog</B><BR itxtNodeId="55">08. <B itxtHarvested="0" itxtNodeId="54">Rush Hour</B><BR itxtNodeId="53">09. <B itxtHarvested="0" itxtNodeId="52">Freeriding</B><BR itxtNodeId="51">10. <B itxtHarvested="0" itxtNodeId="50">Gutterview</B><BR itxtNodeId="49">11. <B itxtHarvested="0" itxtNodeId="48">Warriors</B><BR itxtNodeId="46">Bonus track:<BR itxtNodeId="44">12. <B itxtHarvested="0" itxtNodeId="43">Get On</B></P>
+Автор: Vit Belov
+
+### 03.08.2013 news Автобус шведских хард-рокеров BULLET задержан в Германии
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26012.jpg" width=400 height=400>Вчера немецкая полиция задержала&nbsp;старенький гострольный автобус шведского ансамбля <STRONG>BULLET</STRONG>, на котором те проехали 700 км., чтобы выступить на фестивале <STRONG>Wacken</STRONG>.</P>
+<P>По мнению местных полицейских, автобус слишком стар для того чтобы на нём можно было передвигаться и у него не исправны тормоза. По словам же&nbsp;самих музыкантов, автобус прошёл технический осмотр в Швеции и никаких проблем не было обнаружено.</P>
+<P>Также полицейские запросили 200 евро за то, чтобы отбуксировать автобус до ближайшей с местом задеражния&nbsp;Дании.</P>
+<P>Не очень понятно, чем же закончилась эта история, но группа пообещала, что сегодня она выступит в городе Finspang (Швеция).</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -377,6 +377,292 @@ Produced by Bob Ezrin
 * C группой "G/Z/R" Bruce Kulick
 * C группой "Union" Bruce Kulick
 
+## Публикации
+
+### 04.03.1999 news 
+
+<p>Группа Kiss обещает удивить москвичей невиданными техническими чудесами во время своего выступления в СК "Олимпийский" 1-2 апреля, заявляют организаторы концерта. В зале будут установлены большие видеоэкраны, причем посетители концерта смогут увидеть Kiss в трехмерном изображении. Для достижения этого оптического эффекта всем посетителям концерта при входе будут выдаваться специальные стереоскопические очки. Другим достоинством концерта будет шоу коллектива, которое выразится в традиционных костюмах, боевой раскраске и классическом составе музыкантов: Эйс Фрейли (гитара), Пол Стенли (гитара), Джин Симмонс (бас) и Питер Крис (ударные).</p>
+
+Автор: Vit Belov
+
+### 01.04.1999 news 
+
+<p>Six Feet Under записали новый альбом "Maximum Violence". По сообщению Metal Blade альбом является логичным продолжением предыдущей работы "Warpath". Также на альбоме будет кавер песни Kiss "War Machine". Альбом появится в продаже 13 июля.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>Эйс Фрили отыграет последний концерт с Kiss в конце 1999 года. На этом его контракт заканчивается.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Kiss выставили на аукцион свои вещи времён начала 70-х. Джин Симмонс заявил, что собирается выручить около 5 миллионов долларов. Также Симмонс сообщил, что Kiss скорее всего поедут в новый тур в этом году.</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 news 
+
+<p>Kiss выпустили новый концертный альбом 28 марта под названием "Alive IV". После выхода альбома состоится последний тур Kiss в оригинальном составе.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Во время концерта Kiss в Окленде один дяденька выпал с третьего яруса балкона и разбился на смерть. Слава Богу, группу не обвинили в чём-то злоумышленном.</p>
+
+Автор: Vit Belov
+
+### 06.10.2000 news Kiss решили початиться со своими фэнами
+
+<p> Завтра, в субботу 7-го октября, любители творчества группы Kiss смогут пообщаться в чате с лидерами группы Джином Симмонсом и Полом Стэнли. Адрес чата: http://kiss.SHO.com. Время встречи - 6 PM ET/3 PM PT, если не ошибаюсь, это 21-00 по московскому времени.</p>
+
+Автор: Nybras
+
+### 12.04.2001 news KISS To Play Russia&#39;s Red Square
+
+<p>KISS will continue their Farewell Tour after Australia including a massive show at Moscow's Red Square. In an exclusive interview webcast with radioundercover.com Gene Simmons told fans "we are going to Red Square in Moscow for probably 200.000 people - which will be our first time there. There have been festivals there before with ten bands - Ozzy and Motley Crue and Bon Jovi - lots of bands altogether. We're just going there by ourselves and the Government is already making some noise over there about the security because it's way over the top and I guess people want to see the band one last time". "We'll go through Europe and visit some of our friends there and perhaps finish it off at Shea Stadium in New York City". Simmons was also brutally frank when he discussed the departure of Peter Criss from the band. "There are no villains and there are no victims" he said. "Sometimes Mum and Dad don't see eye to eye and get divorced. This is not the first time Peter or Ace was not in the band".</p>
+
+Автор: Dimas
+
+### 12.04.2001 news KISS будут играть на Красной Площади!
+
+<p>Продолжая свое Прощальное Турне, после концертов в Австралии, группа KISS планирует супершоу в Москве на Красной Площади. В эксклюзивном интервью Gene Simmons сказал своим фэнам: "Мы хотим приехать в Москву, чтобы на нас посмотрело 200 000 человек и услышали нашу музыку живьем впервые". Также они проедут по всей Европе и закончат турне в Нью-Йорке.</p>
+
+Автор: Dimas
+
+### 13.04.2001 news &quot;Травяной&quot; Jimmy приглашен к Элису Куперу...
+
+<p>Нынешний барабанщик "MEGADETH" Jimmy DeGrasso приглашен для участия в Австралийском туре Элиса Купера. Как известно, именно в этой команде он и играл до присоединения к Мастэйну и Ко. Во время гастролей он заменит постоянного барабанщика Элиса - Eric Singer, который, также является участником "KISS".</p>
+
+Автор: Yermola
+
+### 13.04.2001 news Jimmy is joining COOPER for the following dates....
+
+<p> MEGADETH drummer Jimmy DeGrasso has been enlisted by former “employer” ALICE COOPER to fill in on drums for some Australian tour dates. As some may recall, Jimmy DeGrasso was the full-time drummer for ALICE COOPER prior to joining the ranks of MEGADETH, at which point he was replaced in ALICE’s band by current KISS drummer Eric Singer (who is ironically also in Australia touring with KISS). Jimmy is joining COOPER for the following dates:</p>
+<p></p>
+<p> April 13 – Newcastle, AUST @ Entertainment Centre</p>
+<p></p>
+<p> April 14 - Gold Coast, AUST @ Carrera Stadium</p>
+<p></p>
+<p> April 17 – Perth, AUST @ Entertainment Centre</p>
+<p></p>
+<p> April 19 – Adelaide, AUST @ Entertainment Centre</p>
+<p></p>
+<p> April 20 – Melbourne, AUST @ Rod Laver Arena</p>
+<p></p>
+<p> April 21 – Sydney, AUST @ Superdome</p>
+<p></p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 22.05.2002 news KISS разорвали отношения с UNIVERSAL RECORDS ...
+
+<p>KISS официально расстались с Universal Records Group (Mercury/PolyGram) и сейчас ищут новый лэйбл. Как сказал Пол Стэнли: "После долгих отношений с нашей звукозаписывающей компанией, мне кажется лучшим выходом будет разойтись в стороны..."<BR><BR> Ожидаемый поклонниками альбом "Alive IV" отложен на зиму, в результате конфликта с продюссером Бобом Эзриным...</p>
+
+Автор: Yermola
+
+### 22.05.2002 news KISS Officially Part Ways With UNIVERSAL RECORDS GROUP ...
+
+<p>KISS have officially parted ways with the Universal Records Group (i.e. Mercury/PolyGram) and currently seeking a new record deal, frontman Paul Stanley has confirmed. "After our long relationship with our record company, it seemed to be in our best interest to part ways and to look to all the options to decide where we go from here," Stanley stated on the group's official web site. <BR><BR> Meanwhile, KISS' long-awaited Alive IV album is rumored to have been pushed back to a winter release through an unspecified label as a result of scheduling conflicts with producer Bob Ezrin, who is set to produce the two projected new cuts that will appear as part of the set.</p>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 23.09.2002 news The SWEET tribute album &quot;Sweet FA&quot; ...
+
+<p><IMG SRC="/images/news/2002.09/3210.jpg" ALT="pho" width=200 height=198 hspace="15" vspace="5" border="1" align="right"> The SWEET tribute album "Sweet FA" is now released on Malibu Records (Scana Records) <A HREF="http://www.thesweet.com/sweetfa.htm">http://www.thesweet.com/sweetfa.htm</A><BR><BR> The "band" performing on the title track (track 2) is called JK's All Star Experience and features -<BR><BR> Bruce Kulick (KISS) - lead guitar<BR> John Levйn (Europe) - bass<BR> Lars Chriss (Lion's Share) - rhythm guitars<BR> Tommy Denander - keyboards<BR> Jonas Nilsson (Rednex) - lead vocals<BR> Thomas Vikstrцm (Talk Of The Town) - backing vocals<BR> Johan "JK" Kihlberg - drums<BR><BR> Another 14 American and Swedish artists/bands are featured on the cd as well.</p>
+
+Автор: Yermola
+
+### 23.09.2002 news Трибьют SWEET ...
+
+<p><IMG SRC="/images/news/2002.09/3210.jpg" ALT="pho" width=200 height=198 hspace="15" vspace="5" border="1" align="right"> Лэйбл Malibu Records только что выпустил альбом трибьют SWEET - "Sweet FA". <A HREF="http://www.thesweet.com/sweetfa.htm">http://www.thesweet.com/sweetfa.htm</A><BR> <BR> Состав основных участников:<BR><BR> Bruce Kulick (KISS) - соло<BR> John Lev&eacute;n (Europe) - басс<BR> Lars Chriss (Lion's Share) - ритм гитара<BR> Tommy Denander - клавишные<BR> Jonas Nilsson (Rednex) - вокал<BR> Thomas Vikstr&ouml;m (Talk Of The Town) - подпевки<BR> Johan "JK" Kihlberg - барабаны <BR><BR> Также на диске отметились 14 американских и шведских музыкантов.</p>
+
+Автор: Yermola
+
+### 30.06.2003 news KISS с симфоническим оркестром
+
+<p>Волна выпуска концертных записей с симфоническим оркестром затронула и такую легендарную группу, как KISS. 22 июля на Sanctuary Records выходит двойной альбом "Kiss Symphony: Alive IV". Он был записан 28 февраля 2003 года, когда группа выступала в Австралии вместе с Melbourne Symphony Orchestra.</p>
+
+Автор: Dimas
+
+### 08.01.2007 news AVANTASIA: Барабаны записаны
+
+<P>Барабаны для третьей части металл-оперы <STRONG>AVANTASIA</STRONG> уже записаны. Барабанщиком выступил <STRONG>Eric Singer</STRONG> (<STRONG>KISS</STRONG>).</P>
+Автор: Vit Belov
+
+### 04.01.2008 news Paul Stanley спел с Sarah Brightman
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист/вокалист <STRONG>KISS Paul Stanley</STRONG> спел дуэтом со знаменитой певицей сопрано <STRONG>Sarah Brightman</STRONG>. Песня <STRONG>"I Will Be With You</STRONG>" войдёт на новый альбом исполнительницы "<STRONG>Symphony</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KISS </STRONG>же продолжают давать избранные концерты, следующим из которых станет выступление на этапе Формула-1 в Мельбурне 16 марта.</FONT></P>
+Автор: Vit Belov
+
+### 01.02.2008 news KISS в мае?
+
+<P>По сообщениеям некоторых интернет сайтов,<STRONG> KISS</STRONG> анонсировали два концерта в России в мае. Сие действо должно состояться 24 мая в Москве в "Олимпийском" и 26 мая в Питере в "Ледовом Дворце".</P>
+Автор: Vit Belov
+
+### 09.04.2008 news KISS отменили Белград
+
+<P><STRONG>KISS</STRONG> отменили концерт в Белграде, который должен был состояться 15 мая. Причиной названа нестабильная политическая обстановка и грядущие выборы в Сербии.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>У нас выборы уже прошли, будем надеяться, что наша обстановка не покажется <STRONG>KISS</STRONG> нестабильной.</FONT></P>
+Автор: Vit Belov
+
+### 10.05.2008 news KISS начали тур
+
+<P>Вчера концертом в Оберхаузене стартовало европейское турне <STRONG>KISS</STRONG>. В рамках этой трассы группа заедет в Москву. Вот предполагаемый сэт-лист:</P>
+<P>01. <B>Deuce</B><BR>02. <B>Strutter</B><BR>03. <B>Got To Choose</B><BR>04. <B>Hotter Than Hell</B><BR>05. <B>Firehouse</B><BR>06. <B>Nothin' To Lose</B> <BR>07. <B>C'mon & Love Me</B><BR>08. <B>Parasite</B><BR>09. <B>She</B> + <B>Tommy Thayer</B> solo<BR>10. <B>Watchin' You</B><BR>11. <B>Rock Bottom</B><BR>12. <B>100.000 Years</B> + <B>Eric Singer</B> solo<BR>13. <B>Cold Gin</B><BR>14. <B>Let Me Go, Rock & Roll</B><BR>15. <B>Black Diamond</B><BR>16. <B>Rock and Roll All Nite</B><BR>-------------------<BR>17. <B>Shout It Out Loud</B><BR>18. <B>Lick It Up</B> / <B>Won't Get Fooled Again</B><BR>19. <B>Gene</B> solo + <B>I Love It Loud</B><BR>20. <B>I Was Made For Lovin' You</B><BR>21. <B>Love Gun</B><BR>22. <B>Detroit Rock City</B></P>
+Автор: Vit Belov
+
+### 06.01.2009 news Ace Frehley назвал альбом
+
+<P><IMG height=287 alt="" hspace=0 src="/images/news_rus/2009.01/13299.jpg" width=300 align=left border=5>Бывший гитарист<STRONG> KISS Ace Frehley</STRONG> назвал свой новый сольник <STRONG>"Anomaly". </STRONG>Пластинка выйдет весной. В своём интервью <STRONG>Billboard</STRONG> в начале прошлого года <STRONG>Ace</STRONG> рассказал, что нас будет ждать:</P>
+<P>"<EM>Я попробовал вернуться во времена своего дебютного соло-альбома в 1978 год. На запись попадут элементы, которые так любит публика: инструментал, хит сингл, несколько тяжёлых вещей. Разные жанры музыки</EM>".</P>
+Автор: Vit Belov
+
+### 27.02.2009 news KISS войдут в студию
+
+<P><STRONG>KISS </STRONG>войдут в студию на следующей неделе для записи новой пластинки.</P>
+Автор: Vit Belov
+
+### 25.03.2009 news Новые песни ACE FREHLEY
+
+<P>Оригинальный гитарист <STRONG>KISS ACE FREHLEY</STRONG> опубликовал трэк-лист нового альбома <STRONG>"Anomaly":</STRONG></P>
+<P>01. <B>Outer Space</B><BR>02. <B>Foxy & Free</B> <BR>03. <B>Sister</B><BR>04. <B>Too Many Faces</B><BR>05. <B>It's A Great Life</B><BR>06. <B>Skels</B><BR>07. <B>A Little Below The Angels</B><BR>08. <B>Fox On The Run</B> (SWEET cover)<BR>09. <B>Change The World</B><BR>10. <B>Pain In the Neck</B><BR>11. <B>Genghis Khan</B><BR>12. <B>Fractured Quantum</B></P>
+Автор: Vit Belov
+
+### 31.03.2009 news KISS выйдет в сентябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> KISS</STRONG> будет закончен к июлю. Пластинка выйдет уже в сентябре. Об этом в недавнем интервью сообщил <STRONG>Gene Simmons</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 13.05.2009 news KISS выйдет в сентябре
+
+<P>В недавнем интервью гитарист/вокалист<STRONG> KISS Paul Stanley</STRONG> сообщил, что работа над новым альбом <STRONG>KISS</STRONG> почти завершена. Пластинка должна выйти в сентябре, на ней группа возвратится в собственные 70-е.</P>
+Автор: Vit Belov
+
+### 01.08.2009 news Ace Frehley на Season Of Mist
+
+<P>Бывший участник <STRONG>KISS Ace Frehley</STRONG> заключил контракт на выпуск своего сольника <STRONG>"Anomaly" </STRONG>в Европе с французским black-metal лэйблом<STRONG> Season Of Mist</STRONG>. Пластинка должна выйти в сентябре.</P>
+Автор: Vit Belov
+
+### 17.08.2009 news KISS обнародовали подробности нового альбома!
+
+<P>Новый альбом <STRONG>KISS</STRONG>, названный <STRONG>"Sonic Boom"</STRONG>, был спродюсирован вокалистом/гитаристом группы <STRONG>Paul Stanley</STRONG> в Лос Анжелесе. Издание диска, помимо нового альбома, будет содержать CD (ранее доступный только в Японии)&nbsp;с перезаписанными лучшими хитами группы, а так же, концертный DVD, снятый в Аргентине в ходе недавнего тура по Южной Америке. </P>
+<P>Дата релиза <STRONG>"Sonic Boom" </STRONG>для&nbsp;Америки и Канады&nbsp;назначена на 6 октября. Диск будет продаваться только через магазины <STRONG>Wal-Mart</STRONG>, <STRONG>Walmart.com</STRONG> и розничные магазины <STRONG>Sam's Club</STRONG> по цене 12 долларов.</P>
+<P><STRONG>Gene Simmons</STRONG> сказал о новом альбоме следующее:<EM> "<STRONG>"Sonic Boom"</STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff> - возможно лучшая новая запись, которую мы сделали со времён альбома <STRONG>"Destroyer"</STRONG>! Это смесь альбомов<STRONG> "</STRONG><FONT color=#ddd9d0><STRONG>Rock And Roll Over"</STRONG> и <STRONG>"Love Gun"</STRONG>. Самая крупная розничная сеть в мире должна быть готова для самой горячей группы в мире и нанять на работу побольше кассиров до 6 октября!"</FONT></FONT></EM></P>
+<P><FONT style="BACKGROUND-COLOR: #000000">Обложка&nbsp;для <STRONG>"Sonic Boom"</STRONG> была создана&nbsp; <STRONG>Michael Doret</STRONG>, который, так же, оформлял классический&nbsp; альбом группы <STRONG>"Rock And Roll Over"</STRONG>.</FONT></P>
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.08/14877.jpg" width=400 align=right border=0>Трэк-лист <STRONG>"Sonic Boom"</STRONG>:</P>
+<P>01. <STRONG>Modern Day Delilah</STRONG><BR>02. <STRONG>Russian Roulette<BR></STRONG>03. <STRONG>Never Enough</STRONG><BR>04. <STRONG>Yes I Know (Nobody's Perfect)</STRONG><BR>05. <STRONG>Stand</STRONG><BR>06. <STRONG>Hot And Cold</STRONG><BR>07. <STRONG>All For The Glory<BR></STRONG>08. <STRONG>Danger Us</STRONG><BR>09. <STRONG>I'm An Animal<BR></STRONG>10. <STRONG>When Lightning Strikes</STRONG><BR>11. <STRONG>Say Yeah</STRONG></P>
+<P>Трэк-лист <STRONG>"Greatest Hits"</STRONG>:</P>
+<P>01. <STRONG>Deuce</STRONG><BR>02. <STRONG>Detroit Rock City</STRONG><BR>03. <STRONG>Shout It Out Loud</STRONG><BR>04. <STRONG>Hotter Than Hell</STRONG><BR>05. <STRONG>Calling Dr. Love</STRONG><BR>06. <STRONG>Love Gun<BR></STRONG>07. <STRONG>I Was Made For Lovin' You</STRONG><BR>08. <STRONG>Heaven's On Fire</STRONG><BR>09. <STRONG>Lick It Up</STRONG><BR>10. <STRONG>I Love It Loud</STRONG><BR>11. <STRONG>Forever</STRONG><BR>12. <STRONG>Christine</STRONG> <STRONG>Sixteen</STRONG><BR>13. <STRONG>Do You Love Me?<BR></STRONG>14. <STRONG>Black Diamond<BR></STRONG>15. <STRONG>Rock And Roll All Nite</STRONG></P>
+<P>Трэк-лист DVD:</P>
+<P>01. <STRONG>Deuce</STRONG><BR>02. <STRONG>Hotter Than Hell</STRONG><BR>03. <STRONG>C'mon And Love Me</STRONG><BR>04. <STRONG>Watchin' You<BR></STRONG>05. <STRONG>100,000 Years</STRONG><BR>06. <STRONG>Rock & Roll All Nite</STRONG></P>
+Автор: Headcrusher
+
+### 25.08.2009 news KISS выйдет на Roadrunner
+
+<P>Релизом нового альбома <STRONG>KISS "Sonic Boom"</STRONG> в Европе займётся <STRONG>Loud & Proud</STRONG>/<B>Roadrunner Records</B>. Пластинка выйдет 5 октября.</P>
+Автор: Vit Belov
+
+### 24.09.2009 news ACE FREHLEY ещё выше
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый сольник оригинального гитариста<STRONG> KISS Ace Frehley</STRONG> <STRONG>"Anomaly" </STRONG>поднялся ещё выше в чартах<STRONG> Billboard</STRONG> и обосновался на 27-ом месте. Продано 17000 штук.</FONT></P>
+Автор: Vit Belov
+
+### 14.10.2009 news KISS показали лучший результат
+
+<P>Новый альбом<STRONG> KISS</STRONG> <STRONG>"Sonic Boom" </STRONG>продался тиражом 108000 экземпляров и занял второе место в чарте <STRONG>Billboard</STRONG>, что является лучшим результатом коллектива за всю историю. Лучшим до этого результатом было третье место с альбомом <STRONG>"Psycho Circus" </STRONG>в 1998 году, когда было продано 110000 пластинок. Другие заслуживающие внимания результаты <STRONG>KISS</STRONG>: 1975's <B itxtvisited="1">"Alive!"</B> (No. 9), 1977's <B itxtvisited="1">"Love Gun"</B> (No. 4)&nbsp;и 1992's <B itxtvisited="1">"Revenge"</B> (No. 6).</P>
+Автор: Vit Belov
+
+### 09.12.2009 news Новое видео KISS
+
+<P>Новое видео<STRONG> KISS</STRONG> на песню <STRONG>"Modern Day Delilah" </STRONG>можно посмотреть ниже. Клип снят во время концерта в Детройте 24 сентября.</P>
+<P>
+<CENTER>
+<OBJECT id=uvp_fop height=255 width=400 allowFullScreen="true"><PARAM NAME="movie" VALUE="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf"><PARAM NAME="flashVars" VALUE="id=v218619245&eID=1301797&lang=us&enableFullScreen=0&shareEnable=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed height="255" width="400" id="uvp_fop" allowFullScreen="true" src="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf" type="application/x-shockwave-flash" flashvars="id=v218619245&eID=1301797&lang=us&ympsc=4195329&enableFullScreen=1&shareEnable=1" /></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 27.02.2010 news Billboard опубликовал рейтинг
+
+<P><STRONG>Billboard</STRONG> опубликовал свой ежегодный рейтинг "Самых прибыльных музыкантов".&nbsp;Первая десятка этого&nbsp;списка выглядит так:</P>
+<P>01. <B>U2</B> - $108,601,283<BR>02. <B>BRUCE SPRINGSTEEN</B> - $57,619,037<BR>03. <B>MADONNA</B> - $47,237,774<BR>04. <B>AC/DC</B> - $43,650,466<BR>05. <B>BRITNEY SPEARS</B> - $38,885,267<BR>06. <B>PINK</B> - $36,347,658<BR>07. <B>JONAS BROTHERS</B> - $33,596,576<BR>08. <B>COLDPLAY</B> - $27,326,562<BR>09. <B>KENNY CHESNEY</B> - $26,581,141<BR>10. <B>METALLICA</B> - $25,564,234</P>
+<P>В рейтинг, кроме <STRONG>METALLICA </STRONG>и <STRONG>AC/DC</STRONG>, попали также<STRONG> KISS</STRONG>&nbsp;на 34-ом месте с 11,833,930 долларов.&nbsp;Журналисты подготовили комментарий к каждому из участников листа. </P>
+<P><STRONG>AC/DC</STRONG>: "<EM>Большинство прибылей группы пришло от концертных выступлений. AC/DC заработали 41.4 миллиона долларов на своих живых шоу. Кроме этого, австралийцы получили неплохие деньги от продаж своего последнего альбома "Black Ice" и переизданного бэк-каталога. Новинка была продана тиражом 227000 экземпляров, из классики ближе всего оказался "Back In Black" с 215000 копий. Всего было продано 1.1 миллиона альбомов</EM>".</P>
+<P><STRONG>METALLICA</STRONG>: "<EM>У METALLICA было два повода для празднования в 2009 году. Принятие коллектива в Зал Славы Рок'н'Ролла и выход игры "Guitar Hero: Metallica". 22.8 миллиона долларов было заработано на концертах, также было продано 694000 альбомов. 297000 из них - последняя пластинка "Death Magnetic". Также хорошие деньги принесла продажа он-лайн, так знаменитый хит "Enter Sandman" скачали 450000 раз</EM>".</P>
+<P><STRONG>KISS</STRONG>: "<EM>KISS провели год в туре в поддержку последнего альбома "Sonic Boom", который был продан тиражом 238000 копий. Группа заработала 10.6 миллиона в туре и 879 тысяч&nbsp;от продаж альбомов</EM>".</P>
+Автор: Vit Belov
+
+### 28.01.2011 news KISS выпустят альбом в 2011
+
+<P><IMG height=104 alt="" hspace=0 src="/images/news_rus/2011.01/18341.jpg" width=300 align=right border=0>Гитарист <STRONG>KISS</STRONG> <STRONG>Tommy Thayer </STRONG>сообщил, что группа войдёт в студию в ближайшие месяцы для записи нового альбома, который увидит свет уже до конца 2011 года. Продюсером работы вновь станет один из лидеров коллектива <STRONG>Paul Stanley. </STRONG></P>
+Автор: Vit Belov
+
+### 05.03.2011 news KISS выпустили презерватив
+
+<P>Пока поклонники <STRONG>KISS</STRONG> ждут новый студийный альбом группы, менеджмент музыкантов решил скрасить им ожидание. Выпущены новые презервативы <STRONG>KISS</STRONG> с картинкой.&nbsp;Дебютная серия подобной продукции была выпущена в 2003 году и стала первой с цветной картинкой на поверхности. Пока представлены презервативы<STRONG> Gene Simmons</STRONG>, кондомы <STRONG>Paul Stanley</STRONG> будут представлены позже в этом году.</P>
+<P><center><IMG height=400 src="/images/news_rus/2011.03/18797.jpg" width=275 border=0></P>
+Автор: Vit Belov
+
+### 15.04.2011 news KISS начали запись нового альбома
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19206.jpg" width=250 height=300>Группа <STRONG>KISS</STRONG> вошла в студию чтобы начать запись нового альбома. Последователь диска&nbsp;<B itxtHarvested="1" itxtNodeId="397">"Sonic Boom"</B> (2009), планируется к выпуску в конце 2011 года.<BR itxtNodeId="396"><BR itxtNodeId="395">Вот что вокалист/гитарист <STRONG>Paul Stanley</STRONG>&nbsp;сказал в своём видео-обращении по этому поводу:</P>
+<P><EM>"Среда, апрель 13. Мы снова в студии, работаем над&nbsp;нашим следующим, после&nbsp;<STRONG>"Sonic Boom"</STRONG>, студийным альбомом.&nbsp;Сегодня первый день записи. Вся аппаратура была подготовлена ещё вчера. <B itxtHarvested="1" itxtNodeId="388">Eric</B> [<B itxtHarvested="1" itxtNodeId="387">Singer</B>] сидит за барабанами и с нетерпением ждёт записи первого трека. Так вершится история. Этот альбом, скажу я вам, и все согласны со мной, сотрёт <B itxtHarvested="1" itxtNodeId="386">"Sonic Boom"</B> в пыль. Он прекрасен и вы скоро это услышите."</EM></P>
+Автор: Headcrusher
+
+### 18.08.2011 news KISS: урна для праха
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20650.jpg" width=400 height=445>Eternal Image, Inc.</STRONG>, компания, принимающая участие в дизайне, производстве и имеющая лицензию на продажу мемориальных принадлежностей, объявила, что в продажу поступила первая официальная урна для праха под&nbsp;маркой&nbsp;<STRONG>KISS</STRONG>.</P>
+<P><EM>"Мы называем эту урну <STRONG>KISS</STRONG>&nbsp;-&nbsp;модель&nbsp;"Памятник",</EM> сказала Донна Шэттер из компании <STRONG>Eternal Image, Inc</STRONG>. <EM>"Эта урна даёт возможность поклонникам выразить их страсть к легендарной рок-группе. На ней изображены все участники и лого <STRONG>KISS</STRONG> в пламени."</EM></P>
+<P>Данная модель урны&nbsp;имеет восемь дюймов (чуть больше 20 см.)&nbsp;в высоту. Компания производитель, так же, планирует выпустить три дополнительные&nbsp;модели урны <STRONG>KISS</STRONG>&nbsp;позже в этом году.</P>
+<P>Больше информации можно получить здесь: </P>
+<P><A href="http://www.eternalimage.net/product/kiss">www.eternalimage.net/product/kiss</A></P>
+Автор: Headcrusher
+
+### 08.01.2012 news KISS закончили запись
+
+<P><STRONG>KISS </STRONG>закончили запись нового альбома "<STRONG>Monster</STRONG>". Гитарист/вокалист группы <STRONG>Paul Stanley</STRONG> сообщает, что новая работа музыкантов "мощная, тяжёлая, мелодичная и эпичная". </P>
+<P>На следующей неделе <STRONG>KISS</STRONG> начнут сведение.</P>
+<P><center><IMG height=459 src="/images/news_rus/2012.01/22544.jpg" width=351 border=0></P>
+Автор: Vit Belov
+
+### 14.07.2012 news KISS: &quot;Hell Or Hallelujah&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не так давно группа <STRONG>KISS</STRONG> презентовала первый сингл с нового альбома <STRONG>"Monster"</STRONG>. Им стала песня <STRONG>"Hell Or Hallelujah"</STRONG>. Ознакомиться с ней можно просмотрев видео ниже.</FONT></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/s9bsasfyESs?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 03.01.2015 news KISS выпускают совместный сингл с японской группой
+
+<P>Как стало известно, рок-группа <STRONG>KISS</STRONG> и <STRONG>Momoiro Clover Z</STRONG> (японская женская идол-группа)&nbsp;в начале&nbsp;2015 года выпустят совместный сингл. Съемки обложек сингла и музыкального видео уже завершились. Как сообщается, они проходили в Лас-Вегасе, США. Выйдет сингл в двух версиях: версия <STRONG>KISS</STRONG> и версия <STRONG>Momoiro Clover Z</STRONG>. Более того, <STRONG>Momoiro Clover Z</STRONG> выступят на разогреве у <STRONG>KISS</STRONG> во время их финального концерта в рамках юбилейного турне. Это будет концерт в честь 40-летия группы и состоится он 3 марта 2015 года в зале "Tokyo Dome". Совместный сингл, который пока не имеет названия, выйдет 28 января 2015 года на iTunes в 120 странах мира.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.01/27518.jpg" width=499 height=332> 
+<P></P></CENTER>
+Автор: Tess
+
+
 ## Обсуждения
 
 ### лучший альбом KISS!!

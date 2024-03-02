@@ -48,6 +48,45 @@ Ryan Moll : Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.05.2001 reviews Апокалипсис предвосхищенный прорицателем
+
+<p>Апокалипсис предвосхищенный прорицателем. Суровый альбом состоящий из двух частей и финальной увертюры. Первые же звуки альбома этих американских дэтстеров обрушивают на нас мелодизм + техничность DEATH и брутальность MORBID ANGEL. Зверский смертельный металл с очень хорошими перебоями и глубоким мощным вокалом. Очень плотная гитарная работа и быстрые сложные риффы. Их идеи - исключительная и хорошо выполненная старая школа death metal с мелодичными изысками. Экстремальный death metal с большим количеством соляков в которых чувствуется влияние от классического heavy metal. И все бы ничего, но эта красота продолжается всего пятнадцать минут. А вот потом... Потом следуют вывертыши оригинальных композиций записанные в обратном порядке. Зачем? Оригинально? - да, брутально? - да, интересно? - вот это вряд ли! Непонятный ход. Особенно непонятно, то что следует далее! Десятиминутная стена монотонного атмосферного звука без какой-либо структуры. Это все основательно портит общее впечатление о талантливом и бескомпромиссном материале. Очень жаль... Хороший мог бы быть мини-альбом...</p>
+
+Автор: Dimas
+
+### 02.05.2001 reviews Apocalyptic style anticipated Divine Rapture
+
+<p>Apocalyptic style anticipated Divine Rapture. A severe album two-piece and final overture. The maiden notes of an album bring down these American death metallers on us melodism + technically DEATH and brutalism MORBID ANGEL. Brutal fatal metal with very good faults and steep potent voice. Very dense guitar activity and fast composite riffs. Their ideas - exclusive and well executed aged school death metal with melodious influence. Extreme death metal with a plenty solo in which one the influencing from classic heavy metal is felt. And all anything, but this beauty is prolonged only fifteen minutes. And then... Then follow raw-back of original compositions written to the return order. What for? Originally? - yes, brutal? - yes, it is interesting? Is hardly! A not clear course. It is specially not clear, that follows further! A ten--minute wall of a monotonic atmospheric note without any frame. It is all fully spoils a general impression about a talented and uncompromising stuff. It is very a pity... Good there could be a mini-album...</p>
+
+Автор: Dimas
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+### 21.07.2003 news DIVINE RAPTURE подписались под Listenable Records
+
+<p>Американская death metal формация DIVINE RAPTURE подписала контракт на выпуск своих новых альбомов с французской конторой Listenable Records. Первый из них, под названием "The Burning Passion", выйдет уже в сентябре-октябре этого года.</p>
+
+Автор: Dimas
+
+### 27.07.2003 reviews Вознесение утомленных страстью
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" width="100%" UNSELECTABLE="on"></TR>
+<TR UNSELECTABLE="on" hb_tag="1"></TR></TBODY></TABLE>
+<BLOCKQUOTE id=405deb20>
+<P>Еще один образец death metal продукции для интеллектуалов. Это уже вторая работа американских дэтстеров. Помнится, меня зацепило еще их первое одноименное творение двухгодичной давности. Новый же альбом - гораздо более зрелое и полноценное продолжение дебюта, более быстрый и даже более брутальный материал. И это все тот же уникальный и разрушительный death metal сочетающий тяжесть и зверство MORBID ANGEL, техничность и мелодичность PESTILENCE и склонность к сложным структурам NILE. Такая же мощная и плотная гитарная работа и быстрые сложные риффы. Суровый и бескомпромиссный материал, гармонично вплетающий в себя влияния от различных жанров экстремальной музыки. Лирика группы посвящена личностному восприятию мира музыкантами и их философскими рассуждениями по этому поводу. Музыкантам удается создать своей музыкой, при ее прослушивании, особую зверско-агрессивную атмосферу услаждающую ушной нерв и заставляющую учащенно работать сердце. Под конец альбома звучит оркестровое outro, позволяющее немного отдохнуть и набрать новых сил для повторного прослушивания альбома. Подобный эмоциональный материал обязательно придется по вкусу многим поклонникам экстремального death metal.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P></BLOCKQUOTE>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

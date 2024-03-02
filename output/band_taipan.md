@@ -44,6 +44,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.11.2011 news Новый альбом TAIPAN
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.11/22115.jpg" width=200 align=right border=0>Австралийские heavy-metal ветераны <STRONG>TAIPAN </STRONG>выпустили 18 ноября новый альбом "<STRONG>Snakes</STRONG>" на <STRONG>Killer Metal Records</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Tired of you</STRONG><BR>2. <STRONG>Snakes<BR></STRONG>3. <STRONG>Stand on ruins</STRONG><BR>4. <STRONG>Insomnia<BR></STRONG>5. <STRONG>King of thieves</STRONG><BR>6. <STRONG>Lady<BR></STRONG>7.<STRONG> Majestic freeze</STRONG><BR>8. <STRONG>Stonewitch<BR></STRONG>9. <STRONG>Isolated<BR></STRONG>10. <STRONG>The cellar X</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

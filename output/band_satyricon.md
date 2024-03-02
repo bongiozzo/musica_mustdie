@@ -218,6 +218,445 @@ Frost - drums
 * C группой "Keep Of Kalessin" Frost (drums)
 * C группой "Gehenna" Frost (drums)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новый миньон SATYRICON выйдет в мае этого года.</p>
+
+Автор: Vit Belov
+
+### 29.03.1999 articles Третья волна black-metal
+
+<p>Несколько лет назад произошёл очередной "ремикс" стиля, на этот раз он коснулся блэк-металл. На смену забойным долбёжкам, а-ля Burzum пришли группы играющие блэк-металл "с человеческим лицом", такие, как Dimmu Borgir, Satyricon, Cradle Of Filth и.т.д. Вот о Satyricon и пойдёт речь в этой статье. Уже почти три года о группе не каких-либо явных известий, ну слышно было, что они записали песню на трибьют Dark Throne, слышно было про новый сингл, но когда же новый полнометражный релиз? Moonfog Records продолжает откладывать это знаменательное событие, и пока конечной датой является август этого года, именно, тогда выйдет пока ещё не записанный альбом "Rebel Extravaganza". Название довольно странное для блэкового альбома, хотя я уже ничему у этих господ не удивляюсь, но всё-таки, откуда оно взялось? Вот, что говорит об этом лидер группы Сатир.</p>
+<P> "Честно говоря, я не знаю, почему мы назвали альбом, именно, так. Это произошло примерно также, как и с нашим последним альбомом "Nemesis Divina", также, как и с альбомами " The Shadowthrone" и "Dark Medieval Times". Эти названия естественно родились в моей голове, эти словосочетания, можно понимать, как один из способов представления моего образа жизни, тоже относится и к текстам всех песен. Я не буду говорить, что слово "rebel" (мятежная прим. авт.) не подходит к блэк-металлу, но слово "extravaganza" - это как раз о нас. Satyricon определенно очень экстравагантная группа, но в остальном, как я уже говорил, я не хочу придумывать какие-то теории по поводу названия будущего альбома, оно просто родилось в моей голове."</>
+<P> Хотелось бы, поподробнее узнать о новом альбоме. Звук на нём будет похож на звук, который мы слышали на "Nemesis Divina".</>
+<P> "Тут к нам заходил Самот из Emperor и послушал репетицию со всеми нашими новыми песнями, он сказал, что в новых композициях очень много традиционно нашего, но материал стал тяжелее, и Самот был прав. На всех песнях вы можете услышать "торговую марку" группы, но кроме этого появился очень сильный прогресс, по сравнению с "Nemesis Divina". "Nemesis Divina" уже исполнилось три года, и на нём многое было неправильно, хотя, очевидно, этот альбом и представлял единое целое. Новый альбом будет более тяжёлый, менее средневековый и Скандинавский, но это всё ещё будет наш альбом."</>
+<P> Ну что же, всё ясно. Такой ясный ответ на такие вопросы редко встретишь. Но всё-таки, чтобы понять, что из себя будет представлять новая работа Satyricon, нужно хотя бы изложить её на плёнке. Пока этого нет, я думаю, и загадывать не стоит. Блэк-металл такой стиль, что как только выдаётся возможность послушать о том, что думают норвежцы о своей сцене, надо ею пользоваться.</>
+<P> "Блэк-металл сцена очень сильно развивается последнее время. Но я бы сказал, что в 92/93 году блэк-металл давал мне гораздо больший "пинок", чем сейчас. Давайте поговорим, я ещё не слышал новый альбом Emperor, но я знаю, что он мне понравится, и я считаю, что он хороший, но в тоже время, я просто уверен, что он не даст мне такого же огромного удовлетворения (пинка, прим.авт.), какое дал мне альбом "A Blaze In The Nothern Sky" группы Dark Throne. Волшебство, действительно, ушло, но я рад заметить, что качество осталось, и по-прежнему выступают лучшие команды."</>
+<P> Значит Satyricon можно смело назвать блэк-металл коллективом, делающим что-то новое, но проводящим нас к старым временам.</>
+<P> "Что я действительно хочу сделать, так это отправить своё сообщение через музыку. Сообщение о том, что блэк-металл должен делаться, по крайней мере, такой, какой мне нравится, потому что я думаю, что когда вы пишите музыку, вы часто пытаетесь сделать её такой, какой хотели бы её слышать. Этот принцип я исповедаю в своей группе, я делаю только то, что мне нравится. И я надеюсь, что мы сможем инициировать третью волну блэк-металл групп, думающих больше о первой и второй волнах. Это действительно необходимо для нового мировоззрения и прогресса, но существуют такие вещи, как широкое использование женского вокала, которое превращает блэк-металл в готический романс. Такой вид блэка я абсолютно не приемлю."</>
+<P> Довольно, разбросанное высказывание, из которого можно понять, что Сатир не одобряет новых веяний в "чернушной" музыке. Но тогда возникает вопрос, правы ли Dimmu Borgir и Cradle Of Filth, которые, используя женский вокал и клавиши, делают стиль более популярным, таким образом, помогая ему.</>
+<P> "Отлично, они помогают ему и разрушают его в тоже время. Они помогают большему количеству людей начать слушать более экстремальную музыку, и этим, очевидно, они помогают другим блэк-металл бандам, у которых иногда даже бывают, по-моему, более интересные работы. И в тоже время, эти группы разрушают стиль, потому что они настолько большие, что уже начинают навязывать свои стандарты другим группам, мол, надо делать так и так, и некоторые, здесь в Норвегии, говорят, я предпочёл бы "породить блэк-металл" от Dark Throne, чем от Cradle Of Filth. Ничего плохого не хочу сказать про Cradle Of Filth, но они очень сильно отошли от Dark Throne."</>
+<P> А какие группы влияли на молодго Сатира в те годы, когда он занимался созданием группы?</>
+<P> "Я думаю, что наша группа пошла от Dark Throne и других похожих коллективов. Затем, вторая волна блэк-металла тоже вдохновляет меня. Ну и, конечно же, другие блэк-металл акты, в основном старые, типа Celtic Frost, Venom и Bathory. Сейчас я уже не вдохновляюсь какой-либо музыкой. Я, вообще, мало сейчас музыки слушаю, только в машине, но мне хватает, потому что мы постоянно репетируем, а ещё я упражняюсь, играя на гитаре, дома и также пишу лирику для песен. Я работаю в музыкальном бизнесе, но мне не надо слушать музыку в свободное время. В машине же я слушаю кое-какие индустриальные и электронные команды, которые дают мне некоторые позитивные импульсы. Я думаю, что это полезно для творчества слушать музыку в разном направлении, потому что, если ты не будешь знать, что нового появляется в музыке, то ты не сможешь развиваться. Как, например, я могу улучшить и развить свой вокал, если единственное, что я умею это кричать? Но, к счастью, я слушаю много разных направлений, что помогает мне развивать свой голос."</>
+<P> Как Сатир относится к СМИ? В смысле, рекламы своей музыки, путём выпуска видео и.т.п. И собирается ли группа выпустить что-нибудь подобное очень успешному видео "Mother North"? Ведь многие группы сейчас давят на слушателя с экранов, что иногда даже людей не очень любящих данный стиль музыки заставляет "впрягаться" в общую "сбрую".</>
+<P> "Я не думаю, что это лучший вариант. Нельзя ограничивать людей какими-то рамками. Мы не собираемся заставлять кого-то смотреть наши видеоклипы. Надо, чтобы человек сказал: "Вот, мне нравится Satyricon, и я хочу посмотреть его видео". Это не значит, что мы не будем снимать ролик, мы обязательно что-нибудь запишем к новому альбому. Мы выпустим видео где-то летом, потому что сингл выйдет в апреле-мае, а альбом в августе. Я даже думаю, что звукозаписывающая компания снимет пару рекламных роликов для показа на немецком телевидении, хотя, повторюсь, я не сторонник подобного рода рекламы. Я, конечно, понимаю, что человек, увидевший рекламу по телевизору и не знавший о новом альбоме, может пойти и купить его, а затем и послушать, но я не люблю телевидение и это моё мнение."</>
+<P> Ещё один интересный вопрос, это вопрос о новых членах группы. На новом альбоме не будет ни одного нового члена</>
+<P> "Мы поработали со многими музыкантами, но пришли к выводу, что очень много проблем с чужими музыкантами. Мы всегда использовали очень много новых членов, но это слишком утомляет, когда невозможно сделать ничего вовремя."</>
+<P> А что же Daemon (ex-Dismember) больше не в группе?</>
+<P> "Я говорю всем, он больше не член Satyricon. Он ушёл из группы уже месяцев шесть назад, но все спрашивают о нём. Он уехал в Швецию, и мы больше ничего о нём не слышали. Я не знаю, что с ним случилось, но такие странные вещи случаются в жизни. Он разочаровался в работе и просто пропал. В группе мы остались вдвоём, я и Фрост, что очень удобно, У нас даже есть своя команда, с которой мы будем выступать на концертах. Это Фенриц - перкуссия, Микаэль из Thorns - дополнительная гитара, а также Санрабб из Gehenna сыграет на гитаре на нашем сингле. Также будет гитарист на полнометражном альбоме, а также басист на миньоне и, опять же, на LP. Басиста, мы возьмём из, только что распавшейся, группы Conception. Также будет ещё несколько интересных людей. Будет, например, один парень из "чернушной" команды Mock. Эта группа играет не очень интересную музыку, зато этот парень просто гений во всём, что касается разнообразных электронных примочек."</>
+<P> Ну что же, интересно будет послушать то, что Сатир назвал третьей волной блэка. Может это будет что-то, связанное с электроникой. В этом случае группа может потерять достаточно много поклонников, которые перейдут под знамена "псевдо-блекушных", в его понимании команд, типа Cradle Of Filth и Dimmu Borgir. И, вообще, если задуматься, то такие перерывы между альбомами разнообразных коллективов иногда приводят к очень плачевным, для поклонников группы, последствиям.</>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 01.04.1999 news 
+
+<p>Satyricon выпускают свой новый миньон "Intermezzo II" 10 мая. Релиз новог LP "Rebel Extravaganza" перенесён на 20 сентября.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Дата релиза нового альбома Satyricon "Rebel Extravaganza" отодвинута на 20 сенятбря, а пока в продаже появился миньон группы "Intermezzo II".</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Объявлено о новом all star проекте Eibon, в который войдут Killjoy из Necrophagia, Fenriz из Dark Throne, Blasphemer и Maniack из Mayhem и Satyr из Satyricon. Как вы догадываетесь группа будет играть блэк.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Satyricon начали свой первый в истории тур по США 21 марта.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Satyricon готовят новый альбом.
+
+<p>После успешного тура по Северной Америке Satyricon готовят следующий студийный альбом. Уже написаны несколько новых песен. Сообщается, что они более агрессивные и мрачные, чем на предыдущем альбоме. Также на новых композициях заметно влияние ранних Black Sabbath (tombstone).</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Satyricon prepares for the new album
+
+<p>After successful round on Northern America Satyricon prepares the following studio album. Some new songs already are written. Is informed, that they more aggressive and gloomy, than on the previous album. Also on new compositions noticeably influence early Black Sabbath (tombstone).</p>
+
+Автор: Vit Belov
+
+### 26.09.2000 news Satyricon выпустят видео.
+
+<p> Satyricon внесли последние штрихи в свое новое homevideo и оно должно быть готово к выходу в январе-феврале. Группа также закончила подготовку материала для нового альбома и теперь распределяет композиции. Студийная сессия состоится весной будущего года.</p>
+
+Автор: Morsus
+
+### 26.09.2000 news Satyricon will release homevideo.
+
+<p></p>
+<p></p>
+<p> Satyricon have been on location to complete the very last shots for their new homevideo. It should be ready for release in January/February. The band is also finished writing material for their new album and are currently arranging songs. They will enter the studio during spring.</p>
+
+Автор: Morsus
+
+### 01.03.2001 news Satyricon - лучшая концертная группа 2000г.
+
+<p> Satyricon взяли приз Alarm Award в номинации Лучшая концертная банда 2000, а Moonfog получили премию за Лучший веб-сайт 2000. (Legion Online)</p>
+
+Автор: Nybras
+
+### 03.04.2001 news Кровавый Трон....
+
+<p>Новый норвежский проект с веселеньким названием "BLOOD RED THRONE" имеющий в своем составе бассиста/гитариста EMPEROR / SATYRICON / EINHERJER "Черта" со второго Апреля сидит в Dub Studios (Kristiansand, Norway) и пишет дебютный "Monument Of Death" для Hammerheart / The Plague Records. Микширование и мастеринг будут выполнены Henrik Larsson в Berno Studio (Швеция)(THE HAUNTED, VOMITORY). Будут записаны: 01. Ravenous War Machine 02. The Children Shall Endure 03. Monument Of Death 04. Portrait of a Killer (Testimony of the Dying) 05. Malignant Nothingness 06. Mary Whispers of Death 07. Souls Of Damnation 08. Dream Controlled Murder 09. Path Of Flesh</p>
+
+Автор: Yermola
+
+### 03.04.2001 news Monument Of Death....
+
+<p> Norway’s BLOOD RED THRONE, featuring former EMPEROR / SATYRICON / EINHERJER bassist-turned-guitarist Tchort, are due to enter Dub Studios in Kristiansand, Norway today, April 2nd, to begin recording their debut album, Monument Of Death, for Hammerheart / The Plague Records. Mixing and mastering will be done by Henrik Larsson at Berno Studio in Sweden (THE HAUNTED, VOMITORY). Songs being recorded are:</p>
+<p></p>
+<p> 01. Ravenous War Machine</p>
+<p></p>
+<p> 02. The Children Shall Endure</p>
+<p></p>
+<p> 03. Monument Of Death</p>
+<p></p>
+<p> 04. Portrait of a Killer (Testimony of the Dying)</p>
+<p></p>
+<p> 05. Malignant Nothingness</p>
+<p></p>
+<p> 06. Mary Whispers of Death</p>
+<p></p>
+<p> 07. Souls Of Damnation</p>
+<p></p>
+<p> 08. Dream Controlled Murder</p>
+<p></p>
+<p> 09. Path Of Flesh</p>
+<p></p>
+
+Автор: Yermola
+
+### 22.06.2001 reviews Из лесов в мегаполис
+
+<p> Bсе течет, все изменяется... После непревзойденных "Dark Medieval Times" - "Темного Средневековья" и "Shadowthrone" - "Сумрачного Трона", очень интересной "Nemesis Divina" следующей работы Сатира и Фроста я ждал просто затаив дыхание, ожидая от нее нечто такое, что превзойдет все предыдущие, но миньоны "Megiddo" и "Intermezzo" несколько насторожили и, как оказалось, совсем не зря - они были маленькими предвестниками больших перемен, грядущих в недалеком будущем, которые не заставили себя ждать. И новый альбом просто разрывает на части дикой неоднозначностью. Музыка нового SATYRICON-а - это довольно сложный, агрессивный и тяжелый BLACK-DEATH с плотным и насыщенным звучанием, очень технично сыгранный, и по стилистике немного напоминающий некоторые работы IMMORTAL-а: казалось бы все замечательно, но, увы, сама музыка стала уже совсем не та... Куда-то исчезли все красивые переливчатые мелодии и остались одни рваные пило-бритвенные риффы, и хоть музыкальные рисунки на протяжении композиции неоднократно и неожиданно меняются, что добавляет особую прелесть, но эти куски с разной ритмикой не всегда хорошо стыкуются между собой и смена ритма не всегда приходится к месту. Идеологически тоже все очень сильно изменилось: напрочь исчезли средневековость и замечательные языческие мотивы, которыми всегда славился Сатирикон, а Сатир теперь смотрит не из глухих древних лесов эдаким убеленным сединами мудрым дервишем-старцем, а бритоголовым скинхедом-нацистом из каменных джунглей урбанизированного мегаполиса, где нищие пролетарии в заплеванных подворотнях ведут революционную борьбу за свое существование. Трудно сказать, кто виноват в таком коренном (и отчасти коммерческом) изменении стилистики: то-ли сами участники группы, то-ли сильное желание и стремление получить престижную премию, но как бы то ни было, очень многих своих старых поклонников (в том числе и меня) SATYRICON потерял, хотя и не потерял уважения к себе: просто, группа доказала, что может профессионально играть в совершенно разных направлениях. Итого нужно сказать, что работа над альбомом проделана огромная и проделана не зря - он вложенных усилий стоит и имеет массу достоинств, но уж слишком отчетливо диск несет на себе сальные отпечатки потных лап капиталистов и с ранними искренними работами конкурировать никоим образом не может и остается самым слабейшим (не считая миньонов) релизом группы. Тем не менее к разовому ознакомительному прослушиванию альбом обязателен - работа действительно сильная и интересная, но, увы, как музыкально, так и идеологически это уже о-о-очень далеко не то, что было ранее.</p>
+
+Автор: Alexey Pitirimov
+
+### 23.08.2001 news Поп-музыку в массы...
+
+<p>Случилось чудо... Друг спас жизнь друга, а норвежский блэк-металл акт "SATYRICON" подписал контракт с наимажорнейшим лэйблом EMI! Это второе величайшее достижение блэк-металлической мысли после CRADLE OF FILTH, имеющих сделку с Sony Records. Как сказал глава Норвежского отделения EMI - Nils Heldal: "SATYRICON играют темную и мрачную музыку экстремального калибра и они лучшие в мире в этом стиле... Мы очень горды иметь их на нашем лэйбле. Блэк-металл - потрясающий жанр, постоянно прогрессирующий... и мы хотим донести эту музыку до широкой аудитории."</p>
+
+Автор: Yermola
+
+### 23.08.2001 news SATYRICON have signed a deal with EMI Norway ...
+
+<p>Norwegian black metal band SATYRICON have signed a deal with EMI Norway for Scandinavian territories, according to a news item posted at Digitalmetal. "SATYRICON play dark and somber music of an extreme caliber. They are the best in the world at that," said EMI head Nils Heldal on www.dagbladet.no. "Therefore we are very proud of having SATYRICON on our label. Black metal is an exciting genre, constantly progressing, and we wish to bring this music to a wider audience." "This is the first time, in Norway and internationally, that a major label signs a contract with a pure black metal band," said an EMI press release in what appears to be an unintentional slight against the UK’s CRADLE OF FILTH (who recently inked a deal with Sony Records). SATYRICON’s forthcoming studio album, which is currently being recorded at Denmark’s PUK Studios, is expected to be issued through Nuclear Blast Records in all non-Scandinavian territories. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.12.2001 news Satyricon закончили запись нового альбома
+
+<p>Satyricon закончили запись своего нового альбома и вскоре приступят к его микшированию. В следующем году альбом появится в продаже.</p>
+
+Автор: Morsus
+
+### 07.12.2001 news Satyricon have finished the recordings of their new album
+
+<p>Satyricon have finished the recordings of their new album and will soon start mixing it. The album will be released sometime next year.</p>
+
+Автор: Morsus
+
+### 05.02.2002 news Отложен выход нового альбома Satyricon
+
+<p>Выход нового альбома Satyricon отложен до конца августа / начала сентября. Альбом уже был записан несколько месяцев назад и в феврале должно было состояться его окончательное сведение. Но по не зависящим от Satyricon обстоятельствам и к большому сожалению самих музыкантов сейчас ничего не получается и таким образом выход альбома задерживается.</p>
+
+Автор: Morsus
+
+### 05.02.2002 news Satyricon&#39;s new album has been postponed
+
+<p>Satyricon's already recorded new album has been postponed to late August/early September. This is extremely frustrating to the band as the album was recorded months ago and they had expected to mix in February. Due to reasons beyond Satyricon's controll, this will not happen now and thus the posponed releasedate.</p>
+
+Автор: Morsus
+
+### 22.02.2002 news Десять Стрел на десяти ветрах... (Ой!) Десять диадем...
+
+<p>Норвеги "SATYRICON" опубликовали трек-лист юбилейного диска "Ten Horns — Ten Diadems" который выйдет вскорости в Скандинавии через Capitol Records. Из гостей отметились: Anja Garbarek, Knut Schreiner (TURBONEGRO) и Phil Anselmo (PANTERA). А песни будут такие: <BR><BR> 01. Filthgrinder <BR> 02. Dominions Of Satyricon <BR> 03. Forhekset <BR> 04. Night of Divine Power <BR> 05. Hvite Krists Dшd <BR> 06. Mother North <BR> 07. Supersonic Journey <BR> 08. Taakeslottet <BR> 09. (bonustrack) <BR> 10. Repined Bastard Nation (вещь с еще не вышедшего нового альбома)<BR><BR> Из других новостей, найден новый бассист в лице Lars Norberg (SPIRAL ARCHITECT) для грядущего тура команды и сейчас ведется поиск ритм-гитариста и клавишника.</p>
+
+Автор: Yermola
+
+### 26.02.2002 news SATYRICON запустили новый веб-сайт....
+
+<p>"Satyricon" запустили новый официальный сайт - <A HREF="http://www.satyricon.no/">www.satyricon.no</A>. Сайт был разработан именитым дизайнером Hal Bodin в соавторстве с Satyr. Программирование выполнено Torgeir Holm, который делал сайт для Мадонны "Ray Of Light". Новая страница содержит новости, галлерею, даты туров, МР3, каталог, линки и т.д.</p>
+
+Автор: Yermola
+
+### 26.02.2002 news SATYRICON LAUNCH WEB-SITE ...
+
+<p>Satyricon will today Tuesday 2-19-02 launch their official website; <A HREF="http://www.satyricon.no/">www.satyricon.no</A>. The site is designed by Hal Bodin (Satyriconґs awardwinning main-designer)and Satyr. All programming by Torgeir Holm, who also did Madonnaґs "Ray Of Light" website. Satyricon will run and handle the content of the site themselves with the technical maintenance handed over to Torgeir Holm. The site will contain the latest Satyricon news, gallery, tourdates, MP3’s, Satyricon catalogue info, links and more!</p>
+
+Автор: Yermola
+
+### 08.04.2002 news SATYRICON выбрали Вулкан....
+
+<p>Сатир и компания выбрали "Vulcano" в качестве названия нового студийника который запланирован к выходу 2-го сентября на Capitol Records в Скандинавии и на Nuclear Blast для всего остального мира...</p>
+
+Автор: Yermola
+
+### 08.04.2002 news SATYRICON Finalize New Album Title....
+
+<p>Norwegian black metallers SATYRICON have set Vulcano as the title of their much-anticipated new studio effort, which is tentatively scheduled for a September 2nd release through Capitol Records in Scandinavia and Nuclear Blast Records in other parts of the world.</p>
+
+Автор: Yermola
+
+### 10.08.2002 news Норвежский вулкан
+
+<p>2 сентября 2002 года выходит новый, давно ожидаемый, студийный альбом норвежских black металлеров SATYRICON под названием "Volcano". В Скандинавии альбом выйдет через Capitol Records, а в остальном мире через Nuclear Blast Records. Трэк-лист альбома:</p>
+<p> 01. With Ravenous Hunger <BR> 02. Angstridden <BR> 03. Fuel For Hatred <BR> 04. Suffering The Tyrants <BR> 05. Possessed <BR> 06. Repined Bastard Nation <BR> 07. Mental Mercury <BR> 08. Black Lava</p>
+
+Автор: Dimas
+
+### 19.08.2002 news Satyricon снимут видеоклип
+
+<p>На следующей неделе Satyricon начнут снимать видео на песню "Fuel For Hatred" с нового альбома. Режиссёром клипа будет Джонас Экерлунд, известный своими работами с Metallica, Ozzy Osbourne, Мадонной, Prodigy и прочими звёздами. Кроме того, он был барабанщиком на первом альбоме Bathory.</p>
+
+Автор: Morsus
+
+### 19.08.2002 news Satiricon are doing a video
+
+<p>Satiricon have announced that they're doing a video for the song Fuel For Hatred next week , with director Jonas Еkerlund, famous for his works with Metallica, Ozzy Osbourne, Madonna, Prodigy and many more. He was also the drummer on the first Bathory album.</p>
+
+Автор: Morsus
+
+### 30.10.2002 news SATYRICON Video Posted Online ....
+
+<p>Norway's SATYRICON has made available for streaming the video for the track "Fuel For Hatred" from the group's current "Volcano" opus at <A HREF="http://www.vg.no/video/pop/velgpop.hbs?id=655">this location</A>. The clip was directed by acclaimed Swedish director Jonas Еkerlund, who has previously worked with METALLICA, MADONNA, and THE PRODIGY, among others.<BR><BR> In other news, SATYRICON has posted the following tour update via its official web site at <A HREF="http://www.satyricon.no/">www.satyricon.no</A>:<BR><BR> "Lund was boring. With only 25% of the crowd willing to contribute to having a good time it is bound to be difficult. We can only act as professionals and do our job, but it will never be fun. Copenhagen was alright, but it was quite apparent that the club Vega did not want us to be there. They didn't give a fuck about our rider, they wouldn't let us use pyro (even though they have before) and they clearly had not done any promo for the show. The show in itself was still cool to do. The string guys ended up on a strip bar after the show with a black woman that was so tall that she had to bend down in order to avoid banging her head into the ceiling... Voxhall in Еrhus was a nice venue and their attitude was much better than the one we faced in Copenhagen. It was altogether a much better place to be. A lot of people came out to the show and the crowd was heavily into it! This show was more like a battle than a concert. There were 10-12 people who clearly were so high and drunk that they did not know what was going on. There were no barricades so the crowd was way too close to the stage, pushing our monitors back, braking bottles on them, cutting themselves, fighting and some loser even sprayed pepper gas much to the discomfort of the band and the mosh pit. You will suffer big time if we ever find you. Our stage-tech and the guards certainly gave a lot of tough punishment that night. A good show, but chaos to the core. In Gothenburg we had time to cruise around a little bit and it is a nice little city. The show itself was very much like Lund. Is it only Stockholm that is capable to rock in Sweden? Hamar was a true blast! We really looked forward to coming back home to a sold out show and to an audience we KNEW was going to be fired up. We brought in the lady that we used in the cross scene in Oslo for a small appearance during 'Blessed From Below' and we used as much pyro as we could on such a small stage. The people in Hamar completely understood what it takes to make a good show and the band had a great time. In a moment of blackout Satyr dived into the mosh pit which created total mayhem of course. The drawback was when the guards were going to help him over the barricades which resulted in his hip bone hitting the barricades with ultimate force! He finished the show without problems, but was soaked in ice after the show to ease the pain. The bus took us to Oslo airport straight after the show as we had to catch a flight to Poland to co-headline the Mystic festival with KREATOR. Getting out of the bunker after one hour sleep was tough...In Satyr's case the crushed hip bone and a bad cold made it seem hopeless, but we decided to go anyway and to get some medicine and painkillers in Poland so that he could do the show. It was a worthy ending of a very successful tour. Everything went well despite the pain and so on and clearly the crowd was very pleased! Satyr and some crew members went back to the hotel and nurtured their fucked up bodies while the rest went out to celebrate A.O Gronbech's birthday and the final day of the tour. Approximately 1/3 of the shows were sold out, the band did well, the crew helped us shine and most of the audiences were energetic and passionate. Thank you for coming out, we'll see you again. This was good!"</p>
+
+Автор: Yermola
+
+### 30.10.2002 news Видео SATYRICON ...
+
+<p>SATYRICON опубликовали видео вещи "Fuel For Hatred" с последнего альбома группы "Volcano". Посмотреть в виде стриминг видео можно <A HREF="http://www.vg.no/video/pop/velgpop.hbs?id=655">здесь.... </A><BR><BR> Клип снимал известный шведский режиссер Jonas Аkerlund, который уже работал с METALLICA, MADONNA и THE PRODIGY....</p>
+
+Автор: Yermola
+
+### 07.01.2003 news SATYRICON - номинант норвежской Grammy Awards
+
+<p>Последний альбом норвежских блэкстеров SATYRICON "Volcano" номинирован как лучший металлический альбом 2002 года в норвежской версии Grammy Awards. Победитель будет объявлен 22 февраля 2003 года.</p>
+
+Автор: Dimas
+
+### 27.01.2003 news SATYRICON в России
+
+<p>Норвежская группа SATYRICON внесла Россию в список предстоящего европейского тура команды. Вероятнее всего, легенды black metal выступят в Москве в ДК им. Горбунова 29 марта 2003 года.</p>
+
+Автор: Dimas
+
+### 11.07.2003 news Снова победа за SATYRICON!
+
+<p>Всего через неделю после того, как альбом норвежских блэкарей Satyricon "Volcano" получил награду "Лучший альбом года", а песня "Fuel For Hatred" завоевала звание в категории "Песня года", "Volcano" был номинирован на Норвежскую Грэмми (Spellemannsprisen) в категории "Лучший метал-альбом"!</p>
+
+Автор: Darkfall
+
+### 27.08.2003 news Будет снят фильм о норвежской black-metal сцене
+
+<p>SATYRICON, DARKTHRONE и GORGOROTH станут героями документального фильма о Норвежской black-metal сцене. Съёмки пройдут на одном из фестевалей в Норвегии в конце этой недели. Подробности последуют...</p>
+
+Автор: Vit Belov
+
+### 27.12.2003 news &quot;American Heretic tour&quot; - новый концертный тур Morbid Angel
+
+<P>Менеджмент <B>MORBID ANGEL</B>&nbsp; заявил о предстоящем концертном туре, названном <B>"American Heretic tour".</B>&nbsp;Он стартует 14 апреля 2004 года и будет проходить в поддержку последнего альбома группы -&nbsp;&nbsp;<B>"Heretic".</B>&nbsp; В туре также примут участие <B>SUFFOCATION, SATYRICON</B>&nbsp;&nbsp;и <B>PREMONITIONS OF WAR</B>. Полный список дат концетов и городов выступления&nbsp;(всего их 25),&nbsp;будет обнародован в начале 2004 года.&nbsp;</P>
+Автор: Uneral
+
+### 19.06.2004 articles Хроника: Счастливые мгновения из жизни Rob Halford – Chris Poland не присоединялся к MEGADETH – Улица имени AC&#x2F;DC – Charlie Benante хочет в предвыборный штаб – Некролог Quorthon – Скупой Glenn Benton и жадная Metalysee
+
+<P><I>Счастливые мгновения из жизни </I><B><I>Rob </I><I>Halford </I></B><I>– </I><B><I>Chris </I><I>Poland </I></B><I>не присоединялся к </I><B><I>MEGADETH </I></B><I>– Улица имени </I><B><I>AC/</I><I>DC </I></B><I>– </I><B><I>Charlie Benante </I></B><I>хочет в предвыборный штаб – Некролог </I><B><I>Quorthon</I></B><I> – Скупой </I><B><I>Glenn Benton </I></B><I>и жадная </I><B><I>Metalysee</I></B><I></I></P>
+<P>Одним из самых значимых событий за последнее время в metal-музыке стало воссоединение <B>JUDAS PRIEST</B>с <B>Rob Halford</B>. В интервью журналу <B>Revolver Rob </B>поделился своими мыслями по поводу этого события. «<I>В 1997 году, когда вышел ‘</I><B><I>Jugulator</I></B><I>’ я подумал, что шансов на воссоединение у нас не осталось. Они выпустили альбом с </I><B><I>Tim </I><I>Owens</I></B><I>, поехали в тур… Я никогда не рассказывал об этом, но ещё во время записи первого альбома </I><B><I>FIGHT</I></B><I> я подумывал о возвращении в </I><B><I>JUDAS </I><I>PRIEST</I></B><I>, я связался с одним человеком, близким к группе, но получил отказ. Мне тогда показалось, что моими бывшими коллегами владело чувство обиды</I>», - рассказывает <B>Rob</B>. Также <B>Halford </B>описал сам момент возрождения группы в классическом составе: «<B><I>Sony</I></B><I> собралась выпустить коллекцию </I><B><I>JUDAS </I><I>PRIEST</I></B><I> на четырёх дисках ‘</I><B><I>Metalogy</I></B><I>’, и мы все вместе собрались, чтобы отобрать песни для этих дисков. Мы сидели на моей кухне, и когда основное дело было кончено, мы посмотрели друг другу в глаза и сказали: «Ну, что Вы думаете о </I><I>re-</I><I>union?». Мы решили, что если это не случится сейчас, это не случится никогда. Все разъехались в разных направлениях, а я сидел дома и повторял: «Я снова в группе! Я снова в группе!»</I>». За всей этой мелодраматической историей заметна тень <B>Sony Music</B>, которым очень выгодно воссоединения «бедного» <B>Halford </B>со своим друзьями-врагами. Альбом будет записан осенью, а в настоящее время группа даёт свои первые концерты в обновлённом составе. Вот сэт-лист одного из них в Ганновере:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2004.06/6633.jpg" width=300 align="right" border=0>01. <B>Hellion</B><SPAN><BR>02. <B>Electric Eye</B> <BR>03. <B>Metal Gods</B> <BR>04. <B>Heading Out to the Highway</B> <BR>05. <B>The Ripper</B> <BR>06. <B>Touch of Evil</B> <BR>07. <B>The Sentinel</B> <BR>08. <B>Turbo Lover</B> <BR>09. <B>Victim of Changes</B> <BR>10. <B>Diamonds and Rust</B> <BR>11. <B>Breaking the Law</B> <BR>12. <B>Beyond the Realms of Death</B> <BR>13. <B>The Green Manalishi (With the Two Pronged Crown)</B><BR>14. <B>Painkiller</B> <BR>Encore:<BR>15. <B>Hell Bent For Leather</B> <BR>16. <B>Living After Midnight</B> <BR>17. <B>United</B> <BR>18. <B>You Got Another Thing Coming</B> </SPAN></P>
+<P><B>MEGADETH </B>записали новую пластинку. В записи <B>Dave Mustain </B>помогал его бывший коллега по группе <B>Chris Poland</B>, который дал на прошлой неделе интервью<B> <SPAN><A href="http://dallasmusicguide.com/" target=_blank><SPAN style="COLOR: #ffffff">Dallas Music Guide</SPAN></A></SPAN></B>, в котором рассказал немного об этой свой работе. «<B><I>Dave</I></B><I> позвонил мне и попросил записать соло для своей новой работы, которая должна была стать либо новым альбомом </I><B><I>MEGADETH</I></B><I>, либо сольной пластинкой </I><B><I>Dave </I><I></I><I>Mustain</I></B><I><SPAN>. Одной из основных причин моего согласия стала наличие за барабанной стойкой <B>Vinnie Colaiuta, </B>фэном которого я являюсь долгое время</SPAN></I>». Также <B>Chris </B>сообщил, что не собирается присоединяться к <B>MEGADETH </B>на постоянной основе, так как в настоящее время он предпочитает играть другой сорт музыки. Вот как <B>Poland </B>описывает будущий альбом <B>MEGADETH</B><SPAN>: «<I>Новая пластинка – это смесь </I></SPAN><B><I>Rust </I><I></I><I>In </I><I></I><I>Peace</I></B><I> и </I><B><I>Peace </I><I></I><I>Sells</I></B><I>… Также есть некоторые черты первого альбома. Многие песни необходимо слушать несколько раз, так как врубиться в них с первого раза тяжеловато. Гитарные партии очень сложные, я не могу вспомнить, что я играл на этом альбоме, для каждой песни собственное сложное соло. Вы можете ожидать нечто подобное, но каждый составит своё мнение после прослушивания этого альбома</I>».</P>
+<P>Почётная, и одновременно забавная, новость пришла из Австралии. По сообщению <B>CNN</B>, власти города Мельбурн собираются переименовать одну из улиц города <B>Corporation Lane </B><SPAN>в (угадайте!!!) <B>AC/DC Lane. </B>«<I>Они, возможно, самая успешная австралийская группа</I>», - говорят в мэрии города. «<I>Рок’н’ролл сообщество города ищет возможность воздать должное группе. Тем более, один из клипов </I></SPAN><I>AC/</I><I>DC<B>"</B></I><B><I>It'</I><I>s </I><I>A </I><I>Long </I><I>Way </I><I>to </I><I>the </I><I>Top"</I></B><I> снимался на улицах Мельбурна</I>», - заканчивают своё выступление государственные деятели. <B>CNN </B>напоминает, что улица имени <B>AC/DC </B>уже есть в Мадриде.</P>
+<P>Бывшие thrash-metal’исты <B>ANTHRAX </B>продолжают привлекать к себе внимание общественности разнообразными высказываниями в прессе. В интервью своему немецкому фэн-клубу все другие заявления, включая мнение музыкантов о новом-старом басисте <B>ANTHRAX Joey Vera</B>, затмили очередные «предвыборные заявления». <B>Charlie Benante</B>: «<I>Я с самого первого дня ненавидел самою мысль, что </I><B><I>Bush</I></B><I> будет нашим президентом. Подобные чувства вселили действия, которые он и его группа идиотов производили. Я американец и горжусь этим, но одна мысль не даёт мне покоя: «Что думают о нас люди со всего мира, если мы выбрали себе такого президента?» Мы не такие, как он!!! Я за мир во всём мире и буду бороться за это</I>». Не иначе, как дела в группе идут не очень хорошо, и <B>Charlie </B>захотел подработать на стороне в предвыборном штабе <B>John Kerry</B>. </P>
+<P>7 июня скончался <B>Thomas "Quorthon" Forsberg </B>лидер и один из основателей <B>BATHORY</B>. У него просто остановилось сердце на сороковом году жизни после многолетней борьбы с сердечным недугом. Таковы скудные подробности случившегося. Многие известные музыканты выступили с заявлением по поводу кончины <B>Thomas</B><SPAN>. Одним из них стал <B>Jonas </B></SPAN><B>Akerlund, </B>который основал <B>BATHORY </B>вместе с <B>Quorthon </B>в начале 80-х, а затем успешно занимался клипмейкерством. Среди исполнителей, работавших с ним, <B>METALLICA, Madonna </B>и <B>U2</B><SPAN>. «<I>Это так грустно. Он мог столько ещё всего написать</I>», - говорит </SPAN><B>Jonas</B>. “<B><I>BATHORY</I></B><I> появились на сцене очень рано, и многие коллективы вдохновлялись песнями </I><B><I>Quorthon</I></B><I>. Парни из </I><B><I>METALLICA</I></B><I> и многие другие группы рассказывали мне, что слушали </I><B><I>BATHORY</I></B><I>. </I><B><I>Quorthon</I></B><I> имел культовый статус. Его не интересовало, что слушают люди, он просто сочинял музыку</I>». Ещё один «некролог» пришёл из Норвегии. <B>Satyr (SATYRICON):</B><SPAN> «<I>Услышать о смерти было очень грустно, ему было всего 39 лет… </I></SPAN><B><I>BATHORY</I></B><I> оказали огромное влияние на меня и </I><B><I>Frost</I></B><I>, когда мы основывали </I><B><I>SATYRICON</I></B><I><SPAN>. Первый кавер, который записала наша группа, был <B>'Born For Burning'. </B>Не многие люди встречались с </SPAN></I><B><I>Quorthon</I></B><I><SPAN>, он был замкнут и не являлся частью норвежской металл-сцены. Мы разговаривали с ним по телефону несколько раз в середине 90-х, и я рад даже такому общению с этой культовой фигурой. В первый раз мы говорили три часа, и я нашёл его очень дружелюбным и приветливым человеком. Наш режиссер клипов <B>Jonas </B></SPAN></I><B><I>A</I><I>kerlund </I></B><I>рассказывал много интересного о своей работе с </I><B><I>Quorthon</I></B><I> над первым альбомом </I><B><I>BATHORY</I><I>. </I></B><I>Спасибо за всё, что ты сделал для музыки, </I><B><I>Quorthon</I></B><I>! Все, зажгите 13 свечей и включите альбом </I><B><I>BATHORY</I></B><I>, чтобы помянуть короля</I>». R.I.P.</P>
+<P>После такой грустной темы надо немного разрядиться, и на этот случай у меня припасена история «<B>DEICIDE и Metalysee Booking Agency</B>». Напомню, что, именно, <B>Metalysee </B>были одним из организаторов приезда в Россию группы <B>MARDUK</B>, отсутствие которой на сцене ДК им. Горбунова повлекло за собой беспорядки среди фэнов и фактическое разорение Эджен Price и его лэйбла <B>Metalagen</B>. Совсем недавно <B>DEICIDE </B>отменили своё турне по Европе. Такое случается, но <B>Metalysee </B><SPAN>не дали спустить это дело на тормозах и выступили с обличительным заявлением. «<I>Вчера, 8 июня, </I></SPAN><B><I>DEICIDE </I><I></I></B><I>скоропостижно отменили свой европейский тур. В этот день они должны были играть в Лондоне, но вместо этого группа ожидала рейса в США в аэропорту Хитроу. Все проблемы начались за неделю до этого, когда </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> потребовал значительного увеличения гонорара за каждое шоу, в противном случае </I><B><I>DEICIDE</I></B><I> отказывались выступать. Мы были вынуждены принять их условия, так как не могли отменить этот тур. Однако 8 июня группа потребовала ещё больших денег. Дошло до того, что они просили двойного увеличения первоначальной суммы. Мы не стали выполнять эти просьбы. Наряду с финансовыми разногласиями </I><B><I>DEICIDE</I></B><I> не понравились условия транспортировки, в автобусе был сломан кондиционер. В конце концов, группа развернулась и улетела домой, оставив три группы, участвующих с ними в трассе, агентов, промоутеров и, конечно же, обманутых зрителей</I>». Ответ <B>Glenn Benton </B><SPAN>не заставил себя ждать: «<I>Во-первых, мы прервали своё сотрудничество с </I></SPAN><B><I>Metalysee</I></B><I> много лет назад, из-за ущемления прав групп, практикуемых на этой фирме. Сейчас мы вновь связались с этой конторой, считая, что многое должно измениться, например, трансферы. Замечу, что мы требовали всего 400 долларов за шоу. Но когда поняли, что за эти деньги нам придётся провести 4 недели в автобусе вместе с ещё 20 людьми, немного расстроились. Теперь автобус… Мы провели ночь на стоянке, дожидаясь его. </I><B><I>Johan</I></B><I> (босс </I><B><I>Metalysee</I></B><I>) врал нам, что он сломался, что неудивительно, когда пытаешься сэкономить на всём, чтобы заработать побольше, не считаясь с удобствами музыкантов. Автобус показался, опоздав на 7 с половиной часов… И у него не было кондиционера. Он не был сломан, его просто не было. Дохлые жучки повсюду, неубранные за прошлой группой помои. В контракте был указан «хороший автобус», этот не был таковым. Это же опасно для здоровья. Я вернулся домой с лёгочной инфекцией. После нескольких часов езды мы все были больны, запах моноксида углерода доконал нас. Я уже говорил </I><B><I>Johan</I></B><I>, что мы не можем путешествовать на подобных автобусах. Поверьте, нам не доставляет удовольствия отменять тур. Дал бы нам другой автобус или хотя бы почистил этот! А так, нам пришлось истратить 5000 долларов своих личных денег, чтобы вернуться домой, и ночевать на полу в аэропорту</I>». <B>Metalysee </B><SPAN>немедленно ответили на эти заявления: «<I>То, что сказал этот парень, может сказать только идиот. Мы работаем с лучшими </I></SPAN><I>black</I><I>-</I><I>death</I><I><SPAN> коллективами и никогда не кидаем своих партнёров. Касаемо транспорта, мы работаем только с лучшим перевозчиком в Европе <B>Starline-De Wit-Gaanon. </B>Мы все просто счастливы, что отделались от </SPAN></I><B><I>DEICIDE</I></B><I>. Многие локальные промоутеры больше не будут работать с этой группой. Посмотрим, какое ещё агентство обеспечит все требования </I><B><I>DEICIDE</I></B><I>: перелёт, трансфер, бэклайн и многое другое. </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> самый отвратительный тип, с которым я работал. Желаю ему, всего наилучшего</I>». Начитавшись подобных заявлений, к схватке присоединился бывший гитарист <B>HADES Dan Lorenzo</B><SPAN>: “<I>Никогда бы не подумал, что поддержу </I></SPAN><B><I>Glenn </I><I></I><I>Benton</I></B><I>. Но, прочитав его заявление, я вспомнил то, о чём редко рассказывал. Одной из главных причин распада </I><B><I>HADES</I></B><I> сразу после европейского тура 1989 года была работа </I><B><I>Metalysee</I></B><I>. У нас было огромное количество народу в автобусе, который был рассчитан всего на 8 человек. Мы не могли никому высказать претензии, так как </I><B><I>Johan</I><I></I></B><I>просто исчез. После 10 дней мучений мы уже решили не продолжать </I><B><I>HADES</I></B><I>, но всё-таки доиграли тур, чтобы не кидать наших фэнов</I>». Многие группы были переломаны под колёсами этого автобуса, который носится по Европе битком набитый отбросами и black-death коллективами. Кстати, теперь понятно, почему <B>MARDUK </B><SPAN>не приехали. Видимо, они были настолько измотаны подобными переездами, что просто не смогли справиться ещё и с нашими неурядицами. Для полноты картины приведу здесь высказывания <B>Евгения Аксёнова (</B></SPAN><B>Metalagen)</B> о несостоявшихся концертах <B>MARDUK</B>: «<I>Я, как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством <B>Metalysee</B>. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали <B>Pro-Pain & Co</B>. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт <B>Marduk & Co</B>. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае, сейчас я просто ничего не соображаю, но <B>Metalagen</B> больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего</I>». </P>
+Автор: Vit Belov
+
+### 22.12.2004 news Гитаристы SATYRICON обвинены в изнасиловании
+
+<P>Гитаристы <STRONG>SATYRICON</STRONG> <STRONG>Steinar Gundersen</STRONG> и <STRONG>A.O. Gronbech</STRONG> были арестованы в Канаде по обвинению в изнасиловании женщины в автобусе после выступления в Торонто. В настоящее время полиция проводит анализ ДНК, на основании которого музыкантам будут предъявлены обвинения, по которым им грозит до 10 лет лишения свободы.</P>
+Автор: Vit Belov
+
+### 23.12.2004 news Гитаристы SATYRICON: Мы не виновны!!!
+
+<P>Сессионные гитаристы <STRONG>SATYRICON</STRONG>, обвинённые в изнасиловании, заявляют о своей невиновности. В тоже время, ведущая это дело, констебль <STRONG>Kristine Bacharach</STRONG> сообщила, что расследование может продлиться около года. В настоящее время власти Норвегии проверяют прошлое музыкантов, на предмет возможности их возвращения в родную страну для ожидания слушания дела в канадском суде.</P>
+<P>Основные музыканты <STRONG>SATYRICON</STRONG>, <STRONG>Satyr</STRONG> и <STRONG>Frost</STRONG>, заявляют, что абсолютно уверены в невиновности своих коллег.</P>
+Автор: Vit Belov
+
+### 05.01.2005 news Гитаристы SATYRICON выпущены под залог
+
+<P>Мы продолжаем следить за судьбой двух сессионных&nbsp;гитаристов <STRONG>SATYRICON</STRONG> <STRONG>Steinar Gundersen</STRONG>&nbsp;и <B>Arnt Gronbech</B>, обвинённых в изнасиловании во время тура по Канаде. Они были выпущены по залог в 41000 долларов каждый. Теперь&nbsp;музыканты могут выехать в Норвегию, но буду обязаны вернуться в Канаду на судебные слушания.</P>
+Автор: Vit Belov
+
+### 04.04.2005 news SATYRICON работают над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Satyr</STRONG> продолжает сочинять песни для нового альбома <STRONG>SATYRICON</STRONG>. В течение ближайших трёх недель группа запишет две новые песни для демо.</FONT></P>
+Автор: Vit Belov
+
+### 28.09.2005 news SATYRICON собираются в студию
+
+<P><STRONG>SATYRICON</STRONG> приступят к записи нового альбома 17 октября в датсткой <STRONG>Puk Studio</STRONG>, где была проделана основная работа над прошлым релизом "<STRONG>Volcano</STRONG>". По предварительным раскладам, в январе запись должна быть завершена с тем, чтобы весной альбом увидел свет. И тогда летом <STRONG>SATYRICON</STRONG> ждёт участие в каком-либо из крупных европейских фестивалей, а осенью тур с серией клубных концертов.</P>
+Автор: Morsus
+
+### 03.02.2006 news SATYRICON на Roadrunner
+
+<P><STRONG>SATYRICON</STRONG> заключили контракт с <STRONG>Roadrunner</STRONG>. Новый альбом <STRONG>"Now, Diabolical"</STRONG> выйдет в апреле.</P>
+Автор: Vit Belov
+
+### 12.02.2006 news Новый альбом SATYRICON
+
+<P>24 апреля в Европе на <STRONG>Roadrunner</STRONG> выходит новый альбом <STRONG>SATYRICON "Now, Diabolical</STRONG>". Трэк-лист:</P>
+<P>01. <B>Now, Diabolical</B><BR>02. <B>K.I.N.G</B><BR>03. <B>The Pentagram Burns</B><BR>04. <B>A New Enemy</B><BR>05. <B>The Rite Of Our Cross</B><BR>06. <B>That Darkness Shall Be Eternal</B><BR>07. <B>Delirium</B><BR>08. <B>To The Mountains</B></P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 25.07.2006 news SATYRICON в России
+
+<P>Норвежский коллектив <STRONG>SATYRICON</STRONG> скоро выступит с двумя концертами в России: 27 октября в Санкт-Петербурге (клуб Порт) и 28 октября в Москве (клуб Точка). Ждём!</P>
+Автор: Dimas
+
+### 12.11.2006 articles SATYRICON поражены Россией - Abbath выпускает сольник - Почему METALLICA sucks? - Mustaine: &quot;Kirk Hammett эксплуатирует мои наработки&quot; - WASP дали концерт в Москве
+
+<P><EM>Мы возвращаем «в эфир» эту рубрику, обзорной статьи за неделю. Будем надеяться, что она будет выходить по воскресеньям, а там посмотрим… Всё зависит от вашего интереса к моим рассказам:)</EM></P>
+<P><IMG height=210 alt="" hspace=0 src="/images/articles_rus/2006.11/10869.jpg" width=315 align=left border=5>На минувшей неделе без потерь вернувшиеся из России SATYRICON выступили на своём сайте с рассказом о своей поездке. Вот, что написала группа: «Россия была чертовски крута (fucking blast)!. На шоу в Санкт-Петербурге были распроданы почти все билеты. Сам монументальный город даёт вам чувство того, какой, должно быть, была Россия во времена Советского Союза. В Москве был наиболее аншлаговый концерт в нашей истории. Концерт был задержан почти на 2 часа для того, чтобы все вошли. Великолепная публика и особенные чувства! Мы вернёмся…». Приятно, что очень хорошей норвежской black-metal группе понравилось у нас. Мы даже закроем глаза на то, что самый «несоветский» город России Санкт-Петербург назван «колыбелью советской культуры», радостно, что Satyr и товарищи так идеализируют наше ближайшее прошлое. Предлагаю вам обратить внимание на две ключевые фразы: «самый аншлаговый концерт в истории» и «шоу задержалось на два часа». Это очень лестно SATYRICON и страшно для обычных фэнов. Посетители концертов в Москве очень спокойные люди, и счастье, что Россия не Перу, видимо, из-за своего советского прошлого. DARK FUNERAL уже узнали на своей шкуре, что такое недовольная аудитория, и копят на новое оборудование, а пока отменяют концерты. До каких пор, спрашивается, промоутеры будут продавать в клуб «Точка», в котором комфортно могут разместиться только 1000 человек, билетов в полтора раза больше? Интересно, сколько концертов должно пройти, насколько часов нужно задерживать шоу, чтобы люди просто перестали ходить в этот клуб, опасаясь за своё здоровье. Все возражения о том, что в отсутствие ДК им. Горбунова у нас нет площадок для проведения окупаемых шоу таких групп, как SATYRICON и HELLOWEEN, вряд ли успокоят простого потребителя, заплатившего 1000 рублей за билет. Все знают, что при таком наплыве публики невозможно увидеть, что происходит на сцене, или приобрести кружку пива в баре без того, чтобы тебе не отдавили ноги. В настоящий момент ДКГ на ремонте и не исключается вероятность того, что туда больше не будут пускать рок-концерты. К счастью, на прошедшей неделе было объявлено об открытии нового арт-клуба «Сцена» в помещении ДК им. Зуева, что в Сокольниках. Ближайшие концерты, которые стоит посетить – это 10-летие CATHARSIS, презентация нового альбома MORAY EEL. Поговаривают, что клуб вмещает 1500-2000 человек. Надо сходить посмотреть.</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2006.11/10870.jpg" width=225 align=right border=5>Тем временем, в сети началась глобальная раскрутка нового проекта вокалиста IMMORTAL Abbath с оригинальным названием I. Вот выдержки из интервью «героя дня», опубликованного в греческом веб-зине Metal Temple. «…(о названии группы) Я назвал группу I, потому что не хотел называть её Abbath (смеётся). Я подумал, что это гениальная идея, она пришла в голову Demonaz’у, когда я пытался найти название для группы. Я не хотел называть её ABBATH, хотя это и мой соло-проект…(о первом живом выступлении I) Людям понравилось наше выступление. Мне было слегка не по себе на сцене, потому что я подхватил инфекцию. Мы не смогли отыграть большее количество песен. Также у нас был не очень хороший звук, так как мы не проводили саундчека, но, в общем, всё прошло неплохо… (о песне “Far Beyond the Quiet”, посвящённой Quorthon из BATHORY) На самом деле, когда я сочинял этот трэк, я не хотел, чтобы он звучал, как BATHORY, но так получилось. Demonaz послушал эту песню и сказал, что эта песня могла бы стать неплохим посвящением Quorthon, если он сочинит подходящую лирику. Он большой фэн Quorthon и проделал отличную работу… (о направлении музыки на альбоме) Есть несколько влияний на этой пластинке. Мы искали наше «золотое» прошлое, но в то же время открывали новые двери и делали что-то свежее. Это моё мнение, но я думаю, многие люди с ним согласятся. Многие действительно ждут этот альбом…» Также Abbath сказал, что не планирует масштабного турне с I, но, в общем-то, кому это нужно, если в следующем году будет реформирован IMMORTAL, по крайней мере, в своём концертном варианте. Остаётся добавить, что альбом I выходит в скором будущем на Nuclear Blast и почти сразу появится и в России.&nbsp;&nbsp;&nbsp; </P>
+<P><IMG height=234 alt="" hspace=0 src="/images/articles_rus/2006.11/10871.jpg" width=350 align=left border=5>Самой «забавной» новостью последнего времени стало подведение итогов конкурса “Why METALLICA Sucks”, проведённого в США. Организатор конкурса Jason Ferguson рассказывает: «Объявляя конкурс, я переживал, что мы не будем иметь достаточного количества откликов, но я ошибся (ещё бы, прим. авт.). Основными конкурсантами стали мужчины в возрасте от 25 до 30 лет. Другими словами, основными разочаровавшимися в METALLICA стали люди, которые слушали “Hit The Lights” и “Battery” в школе. Были правда фэны и моложе. Например, один 18-летний пацан написал, что он разочаровался в METALLICA очень давно&#61514; Вот они лауреаты:<BR>Первое место Curtis Meyer (это первый отзыв, самый понятный и самый верный, на наш взгляд): «Я везде слышу, что METALLICA была одной из наиболее влиятельных групп в роке. Но я не могу отрицать их настоящую позицию в «саксачестве» (братство сакеров). Почему METALLICA там? Одиннадцать простых слов: Swizz Beatz featuring Ja Rule and METALLICA, “We Did it again”. (рэп-песня с участием METALLICA, прим.авт.)<BR>А вот мнение второго призёра Sam Randazzo: “Да, они сбрили волосы, используют косметику и едут в тур с cock-monkey группами. Главное не это, а то, что они переросли и устали от металла, но по-прежнему жаждут денег».» Дальше я переводить не в силах, сплошные идиоматические выражения. Сочетания из слов, которые здесь писать нельзя. В общем, конкурсанты, участвующие в борьбе за приз, оказались людьми без чувства юмора и не порадовали нас чем-то оригинальным. Но вопрос поставлен верно. Почему все считают, что METALLICA sucks, а METALLICA продолжает продавать диск “St. Anger” миллионами и собирать стадионы? Если кому есть что сказать, пишите на <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A> .</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/articles_rus/2006.11/10872.jpg" width=200 align=left border=5>Гитарист DIMMU BORGIR Silenoz рассказал в интервью журналу Revolver о будущем альбоме группы, который выйдет в начале 2007 года на Nuclear Blast. «Всё, что я могу сказать, он будет монстром», - заявил музыкант. При записи новой работы DIMMU BORGIR не было ни интенсивной пре-продукции, ни производства демо, как на прошлых двух альбомах. Также в записи не принимал участия оркестр, но Silenoz обещает наиболее эпичное и массивное звучание за всю историю Dimmu. «Наш клавишник Mustis предложил свои идеи, и они добавят эпичности пластинке. Должен отметить, что клавиши на демо-версиях к предыдущей работе “Death Cult Armageddon”звучали более помпезно, чем оркестр в окончательном варианте. Не знаю почему, но это так», - продолжает Silenoz. Пока не названный новый альбом DIMMU BORGIR станет также первым концептуальным альбомом в истории группы. Все песни альбома рассказывают о средневековой Европе, прослеживается зависимость от этой эпохи современных политических и социальных злоупотреблений церкви. Вот, как описывает концепцию Silenoz: «В общем, рассказ ведётся об одном чуваке, работающем помощником священника, в один определённый момент он понимает, что не видит себя в Христианстве. Он, как будто, просыпается и понимает, что есть другие возможности и другие силы. Ну, заканчивается всё тем, что он склоняется к тёмной стороне мира». Напомним, что новая работа DIMMU BORGIR была записана в обновлённом составе. Барабанщиком выступил Hellhammer (MAYHEM, THE KOVENANT и мн. др.)</P>
+<P><IMG height=227 alt="" hspace=0 src="/images/articles_rus/2006.11/10873.jpg" width=300 align=right border=5>Ещё одним мощным PR-щиком самого себя является Dave Mustaine. Нет такой недели, чтобы он не выступил с какими-нибудь заявлениями. Тем более в скором времени на Roadrunner выходит новая работа MEGADETH. Правда, сегодня речь пойдёт не о новой пластинке, а о вещах не менее любимых публикой и самим Дэйвом. В интервью британскому журналу Total Guitar Mustaine рассказал о прошлом MEGADETH и о своих чувствах к своим бывшим коллегам из METALLICA. Во-первых, строках Dave отмёл всяческие сравнения MEGADETH с METALLICA. Особенно смелым это высказывание показалось мне в свете того, что Mustaine отвечал на вопрос о влияниях на него на ранних этапах творчества. В общем, как говорится, намёк понят. На современной сцене лидер MEGADETH не видит оригинальных групп: «Большинство команд на Gigantour (бродячий цирк, организованный самим Dave) мне очень нравятся. Вот только я не перевариваю death-metal вокал. У всех певцов есть хороший голос, но они стесняются петь так, как пел я». Голос Дэйва всегда был, можно сказать, не лучшей, но оригинальнейшей составляющей MEGADETH. Пусть уж лучше death-metal певцы рычат. Mustaine также рассказал, что не следит за творчеством своих товарищей по METALLICA, он не слышал “St. Anger” и даже готов поверить, что этот альбом выдержан в стиле кантри. «Я не помню, когда впервые услышал игру Kirk Hammett, я, вообще, его не услышал, он играл у METALLICA на разогреве. К сожалению, с того времени ничего не изменилось. Он стал знаменит, играя мои соло и используя мои гармонии», - сказал, как ударил, Dave. К нашему спокойствию, Ларса и Джэймса он считает гениями. Развеял Mustaine и ещё один миф о том, что его выгнали из METALLICA за пьянство. «Это грустно было слышать», - возмущается он. Главное же, что его беспокоило, это психическое здоровье собственной семьи, которая страдала от этих слухов. Страдала от слухов, а не от пьянства, это стоит отметить особо.</P>
+<P>P.S.: Самые последние новости: в Москве выступили W.A.S.P. </P>
+<P><IMG height=400 alt="" hspace=0 src="/images/articles_rus/2006.11/10874.jpg" width=300 align=left border=5>Blacky Lawless и компания, выступили в московском клубе Точка. В этот раз американцы дадут сразу два концерта, второй состоится сегодня в клубе Б2. Видимо, из-за этого мудрого решения организаторов из Spika Merchandising, в клубе, в отличие от многих предыдущих концертов, вчера можно было находиться. Публика в количестве 1000 человек компактно заполнила «Точку», всем было всё хорошо видно, но и пустот не ощущалось. К сожалению, пропускная способность «на вход», лимитирующаяся двумя «рамками», по-прежнему невелика. В очереди пришлось стоять 35-40 минут, что, учитывая серьёзно минусовую погоду, расстраивало публику. Забавный случай произошёл, когда один из фэнов задал вопрос охране, почему так медленно движемся. Охранник парировал, мол, все вопросы к организаторам. Организаторами, которым стоило задать нелицеприятные вопросы, по его версии, являлись группа WASP и никто иной. Начало шоу задержалось ровно настолько, чтобы все вошли в зал. Сам концерт порадовал старых поклонников группы. Несмотря на явное физическое нездоровье, выраженное на лице лидера WASP господина Lawless, он «давал жару». Интересно, что мимика Blacky напомнила мне поведение знаменитого рестлера Халка Хогана. Главное, чтобы его на сцене удар не хватил в будущем. Следует также отметить отличный звук, к которому мы ещё не привыкли, всё было настолько чётко, что даже не большие знатоки творчества WASP могли легко распознавать знаменитые шедевры группы.</P>
+<P>На следующей неделе: презентация нового альбомы Ольги Романовой, HAMMERFALL комментируют новый альбом, в Италии закрыли телепередачу за Сатанизм и мн. др.&nbsp; </P>
+Автор: Vit Belov
+
+### 23.11.2006 news SATYRICON стали лучшими в Дании
+
+<P><STRONG>SATYRICON</STRONG> выиграли <STRONG>Danish Metal Awards</STRONG> в номинации "<STRONG>Best International Album</STRONG>". <STRONG>Satyr </STRONG>специально подъехал из Швеции, где группа находится в туре, чтобы получить заслуженную награду.</P>
+Автор: Vit Belov
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 03.12.2007 news Frost сломал ногу
+
+<P>Барабанщик <STRONG>SATYRICON Frost</STRONG> сломал ногу, подскользнувшись на льду. Из-за этого группа была вынуждена отменить ближайшие концерты. Группа вспоминает, что<STRONG> Фрост</STRONG> уже ломал нижнюю конечность в 2003 году и продолжал находится в туре. Музыканты надеются, что после выписки барабанщика из госпиталя, <STRONG>SATYRICON</STRONG> вновь начнут концертную деятельность с загипсованным человеком за барабанной стойкой.</P>
+Автор: Vit Belov
+
+### 22.02.2008 news SATYRICON снова едут к нам
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SATYRICON</STRONG> выступят 17 мая в Москве в клубе "Точка". Группа добавила эту дату в свой график.</FONT></P>
+Автор: Vit Belov
+
+### 02.05.2008 news SATYRICON объявили дату
+
+<P>Датой релизой нового альбома<STRONG> SATYRICON</STRONG> назначено 2 июня.</P>
+Автор: Vit Belov
+
+### 29.08.2008 news Новый альбом SATYRICON
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.08/12790.jpg" width=400 align=right border=5>Новая пластинка<STRONG> SATYRICON</STRONG> <STRONG>"The Age Of Nero" </STRONG>выходит 3 ноября на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Commando</B> <BR itxtvisited="1">02. <B itxtvisited="1">The Wolfpack</B><BR itxtvisited="1">03. <B itxtvisited="1">Black Crow On A Tombstone</B> <BR itxtvisited="1">04. <B itxtvisited="1">Die By My Hand</B> <BR itxtvisited="1">05. <B itxtvisited="1">My Skin Is Cold</B> (album version) <BR itxtvisited="1">06. <B itxtvisited="1">The Sign Of The Trident</B> <BR itxtvisited="1">07. <B itxtvisited="1">Last Man Standing</B> <BR itxtvisited="1">08. <B itxtvisited="1">Den Siste</B> </P>
+Автор: Vit Belov
+
+### 11.11.2008 reviews Не уровень SATYRICON
+
+<P>Норвежский дуэт SATYRICON, безусловно, можно считать живыми классиками стиля. При этом группа под управлением Satyr Wongraven всегда не стояла на месте. Начав на одной тропинке с другими классиками стиля из Норвегии, SATYRICON быстро ударились в разнообразные эксперименты, по этой причине их творчество, с одной стороны, вызывает немалый интерес не только в среде black-metal’истов, но с другой стороны, настоящие фэны стиля относятся к релизам этого коллектива с некоторой опаской.</P>
+<P>Что же предложили SATYRICON на новейшем “The Age Of Nero”. В приницпе всё это мы уже слушали. Группа закрепляет свой интернациональный успех на лэйбле Roadrunner. Среднетемповый, несколько монотонный, гипнотизирующий black-metal, близкий по своей идее к грязноватому thrash-metal, не балующий слушателя разнообразием и неожиданными поворотами. В принципе эта работа очень легко получит «зачёт» от всех слушателей. Вот только от групп калибра SATYRICON всегда ждут чего-то особенного, поэтому, думается, разочарованные будут. Даже будут сильно разочарованные. В принципе, и с какими-то интересными находками за рамками стиля здесь не густо. Ну, иногда барабан превращается в танцевальный «унц». Вот и всё… Этого мало, чтобы претендовать на что-то большее. Заскучать, скорее всего, вы не успеете, альбом достаточно короток, но мне показалось, что SATYRICON не очень-то старались, сочиняя эту пластинку.</P>
+<P>Не стоит ориентироваться только на мнение одного человека, попробуйте “The Age Of Nero”. Что-то мне подсказывает, что при более скрупулёзном прослушивании на этом альбоме может и найдётся что-то захватывающее.</P>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 24.01.2009 news Новое видео SATYRICON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>SATYRICON </STRONG>на песню <STRONG>"Black Crow on a Tombstone" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9FEbEWnnQRo&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/9FEbEWnnQRo&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.04.2009 news SATYRICON потеряли басиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>Victor Brandt, </STRONG>записавший с<STRONG> SATYRICON</STRONG> два последних альбома, покинул группу. </FONT></P>
+Автор: Vit Belov
+
+### 08.11.2009 news Satyr готовит революцию
+
+<P>В последнем интервью <STRONG>Terrorizer.Com</STRONG> лидер <STRONG>SATYRICON Satyr</STRONG> анонсировал серьёзные изменения в группе. "<EM>После концерта 20 декабря в Лондоне мы возьмём паузу на несколько лет, а после этого SATYRICON вернутся в новом облике. Возможно, кого-то уже с нами не будет</EM>," - сказал музыкант. "<EM>Не надо воспринимать это слишком драматично, просто мы поменяем некоторые вещи, и это будет полезно для SATYRICON. Мы продолжим менять наш саунд, пока нам нравится, что мы делаем, но в будущем вещи могут поменяться</EM>".</P>
+<P><STRONG>Satyr </STRONG>планирует изменить музыкальное направление <STRONG>SATYRICON</STRONG>, подойти к написанию музыки под другим углом. "<EM>Например, мы можем использовать другой набор инструментов или другую технику записи. Мы открыты для экспериментов. Последние три пластинки были в одном ключе, теперь останется только моя композиция и барабанная техника Frost'а</EM>", - заканчивает <STRONG>Satyr.</STRONG></P>
+<P>Отметим, что у <STRONG>SATYRICON</STRONG> уже были экспериментальные альбомы. Таким выглядел "<STRONG>Rebel Extravaganza</STRONG>" в 1999 году, который имел большой успех, несмотря на всеобщий ропот фэнов black-metal.</P>
+Автор: Vit Belov
+
+### 08.11.2010 news Satyr выпустил вино
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер<STRONG> SATYRICON</STRONG> <STRONG>Sigurd "Satyr" Wongraven </STRONG>подготовил к выпуску собственную марку вина совместно с виноделом в пятом поколении <STRONG>Luca Roagna </STRONG>из Пьемонта.&nbsp;Доступны под маркой <STRONG>Wongraven</STRONG> два вида вина:</FONT></P>
+<P>* <B>Langhe Rosso Alleanza Nero di Wongraven 2009</B><BR>* <B>Barolo Unione Nero di Wongraven 2006</B></P>
+<P>Винодел и музыкант познакомились во время тура <STRONG>SATYRICON</STRONG> по Италии. Описывая своё участие в этом проекте <STRONG>Satyr</STRONG> сказал, что<STRONG> Luca</STRONG> сочинил и записал песни, а он свёл их.</P>
+<P><center><IMG height=347 src="/images/news_rus/2010.11/17569.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 16.11.2010 news Журнал Decibel выпустил специальный коллекционный номер, посвящённый стилю Black Metal
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17617.jpg" width=320 height=429>В специальный выпуск журнала <STRONG>Decibel</STRONG>, получивший название "<STRONG>Black Metal Hall Of Fame</STRONG>", вошло восемь историй из общирного склепа стиля&nbsp;<STRONG>Black Metal</STRONG>.&nbsp;Выпуски журнала&nbsp;серии <STRONG>"Hall Of Fame"</STRONG> рассказывают об истории создания наиболее важных альбомов экстремальной музыки, а так же, содержат интервью с музыкантами, принимавшими участие в записи каждого&nbsp;конкретного альбома.&nbsp;</P>
+<P>Перечень историй вошедших в журнал:</P>
+<P><STRONG>BURZUM</STRONG> - "Filosofem" (1996) *<BR itxtvisited="1"><B itxtvisited="1">DARKTHRONE</B> - "Transilvanian Hunger" (1994)<BR itxtvisited="1"><B itxtvisited="1">EMPEROR</B> - "In The Nightside Eclipse" (1995)<BR itxtvisited="1"><B itxtvisited="1">ENSLAVED</B> - "Frost" (1995)<BR itxtvisited="1"><B itxtvisited="1">IMMORTAL</B> - "At The Heart Of Winter" (1999)<BR itxtvisited="1"><B itxtvisited="1">ROTTING CHRIST</B> - "Thy Mighty Contract" (1993) *<BR itxtvisited="1"><B itxtvisited="1">SATYRICON</B> - "Nemesis Divina" (1996) *<BR itxtvisited="1"><B itxtvisited="1">VENOM</B> - "Welcome To Hell" (1981)<BR itxtvisited="1">*<EM>прежде никогда не публиковались.<BR itxtvisited="1"></P></EM>
+<P>Данный номер журнала не доступен для подписчиков. Его можно преобрести в некоторых розничных магазинах или&nbsp;заказать онлайн по адресу: <A href="http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue">http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue</A></P>
+Автор: Headcrusher
+
+### 01.04.2011 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/18989.jpg" width=250 height=230>Одни из самых влиятельных блэк металлистов, норвежцы&nbsp;<STRONG>SATYRICON</STRONG>, подтвердили своё участие на фестивале <STRONG>Brutal Assault</STRONG> в этом году!</P>
+<P>Так же, будьте готовы увидеть на фестивале финских думстеров поющих на русском - <STRONG>KYPCK</STRONG> и канадцев <STRONG>THREAT SIGNAL</STRONG>.<BR><BR><BR></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 07.07.2013 news SATYRICON: одноимённый альбом в начале сентября
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.07/25890.jpg" width=400 height=400>Легендарные норвежские блэк-металлисты <STRONG>SATYRICON</STRONG> в начале осени возвращаются с одноимённым новым альбомом! Дата его выхода назначена на 9 сентября.</P>
+<P>Диск был записан в Норвегии и спродюсирован самим Сатиром (<STRONG>Satyr</STRONG>). Сведение альбома сделал <STRONG>Adam Kasper</STRONG>.</P>
+<P>О новом альбоме и предстоящих концертах в Европе, расскахывает сам <STRONG>Satyr</STRONG>:</P>
+<P><EM>"Мы вернулись! Извините, что это заняло так много времени, но оно было нужно нам, чтобы подготовить данную пластинку. Сравнивать эту запись с нашими предыдущими, значит терять время. Это <STRONG>SATYRICON</STRONG> - постоянно в движении.&nbsp;Назвать нашу пластинку <STRONG>'Satyricon'</STRONG>, было самой очевидной вещью в мире. Мы никогда не делали запись, которая бы передавала дух группы подобным образом. Никогда. Она потребует многого от вас, как от слушателя, но я знаю, вы полюбите её и она останется с вами на вечно. Мы не планируем гастролировать так же часто, как делали это в прошлом. Данный факт только сделает каждый наш тур особенным.&nbsp;Этот альбом и тур -&nbsp;для вас и для нас. Это наше время!"</EM></P>
+Автор: Headcrusher
+
+### 12.07.2017 news 9 студийный альбом SATYRICON в сентябре
+
+<P>Норвежская легенда black metal, группа <STRONG>SATYRICON</STRONG>, анонсировала выход нового студийного альбома! Диск, получивший название <STRONG>"</STRONG><SPAN id=fbPhotoSnowliftCaption class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><STRONG>Deep Сalleth Upon Deep"</STRONG>, создавался на протяжении почти трёх лет. Данная пластинка станет девятой полноформатной работой коллектива и выйдет 22 сентября на<STRONG> Napalm Records</STRONG>. Запись <STRONG>"</STRONG><SPAN id=fbPhotoSnowliftCaption class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><STRONG>Deep Сalleth Upon Deep"</STRONG> проходила в студиях в&nbsp;Осло и Ванкувере. Сведением занимался Mike Fraser, уже прежде работавший с группой над альбомом <STRONG>"Now, Diabolical"</STRONG> (2006).</SPAN></SPAN></SPAN></SPAN></P>
+<P><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption></SPAN></SPAN></SPAN></SPAN><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption>В качестве обложки использован малоизвестный рисунок, датированный&nbsp;<SPAN id=fbPhotoSnowliftCaption class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><SPAN class=text_exposed_show>1898 годом, норвежского художника по имени&nbsp;<STRONG>Edvard Munch</STRONG>.</SPAN></SPAN></SPAN></SPAN></SPAN></P>
+<P><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><SPAN class=text_exposed_show>
+<CENTER><IMG border=0 src="/images/news_rus/2017.07/30629.jpg" width=500 height=500></SPAN></SPAN></SPAN></SPAN></SPAN> 
+<P></P>
+<P><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"tn":"K"}'><SPAN class=hasCaption><SPAN class=text_exposed_show></SPAN></SPAN></SPAN></SPAN></SPAN>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Satyricon на EMI. Ваши мысли?

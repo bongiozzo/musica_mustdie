@@ -116,6 +116,220 @@ Photos and artwork by Emmanuel Mathez.
 * C группой "Athena" Fabio Lione
 * C группой "Vision Divine" Fabio Lione
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Labyrinth сменили вокалиста. Нового певца зовут Морби, и он известен по группам Domine и Sabotage. Этот человек сейчас работает на гастролях вместе с Hammerfall. Новый миньон Labyrinth выйдет в июне. На нём будет кавер на песню Sanctuary "Die For My Sins" и несколько концертных записей. Также группа выступит на знаменитогм фестивале Dynamo.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Сольный альбом Люки Турилли из Rhapsody будет называться "Kings Of The Nordic Twilight". Люка сыграет почти на всех инструментах. Звук не будет похож на звук Rhapsody. Петь будет Олаф Хэйер (Treasure Seeker). Другие приглашённые музыканты: Миро (клавиши), Роберт Хюнеке (барабаны, Heavens Gate) и Саша Пает (гитары, Heavens Gate). Альбом станет первой частью трилогии под названием "Virtual Odyssey". В нём будет рассказана история о северной стране Калгор, которой правил ужасный царь Сарот, сын которого восстал против него. Первый сингл появится уже 30 августа, а альбом - 27 сентября. Сольник готовит также и вокалист Rhapsody Фабио Лионе. Он работает вместе с гитаристом Labyrinth Олафом Торсеном. Известно, что альбом выйдет в октябре и на нём будет кавер на классическую песню Europe "The Final Countdown".</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Labyrinth начали сведение нового альбома. Группа работает с продюсером Нилом керноном, известным по работе с Nevermore и Queensryche.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Из-за проблем на миксе, новый альбом Labyrinth задерживается и выйдет не в мае, а летом.</p>
+
+Автор: Vit Belov
+
+### 05.09.2000 reviews Долгожданный альбом итальянских монстров power-metal
+
+<P>Долгожданный альбом итальянских монстров power-metal. Немного разочаровывающий, так как я ждал от них большего. Их музыка приобретает все больше и больше прогрессивных черт. Местами очень интересный и захватывающий материал, но в общем, после первого прослушивания альбома целиком, никак не можешь вспомнить эти моменты. Альбом очень ровный, нельзя выделить какую-то отдельную лучшую вещь. Быстрая мелодичная музыка переходящая в среднетемповые упражнения с гитарой по ломанию риффов, от чего музыка кажется сложной и слегка завернутой. Хочу особо отметить работу над звуком. Действительно мощный и тяжелый саунд получился. Много клавишных соло (опять-таки прогрессивных), отличный сильный вокал, блестящие мелодии. Только после нескольких прослушиваний проникаешься всем великолепием альбома. Он западает в твою душу и проникает в твой разум закрепляясь там раз и навсегда. Очень грамотный progressive-power материал.</P>
+Автор: Dimas
+
+### 11.09.2000 articles Labyrinth: Return to heaven allowed
+
+<p>The questions were answered by Olaf Thorsen, guitarist of Labyrinth - I haven't hear Labyrinth's new CD yet :( Can You tell something about new album. Is it like Your previous releases or not?</p>
+<p> IT'S NOT JUST A COPY OF THE PREVIOUS ONE.. IT'S THE LOGICAL CONTINUE OF RETURN TO HEAVEN DENIED, BUT OF COURSE, SOMETHING NEW HAS BEEN PUT INSIDE TO MAKE IT SOUNDS A LITTLE BIT NEWER...</p>
+<p> - Tell some about recording of your last album. (How went the recording? How long it lasted? Where?). I heard You had some problems with Your producer... Had You any problems else?</p>
+<p> WE RECORDED FROM OCTOBER TILL DECEMBER 1999 (2 MONTHS). THEN NEIL KERNON DID THE FIRST MIX IN USA ON JANUARY, BUT IT WASN'T GOOD, SO WE FINALLY TOOK THE DECISION TO DELAY THE RELEASE, AND RE-MIX IT BY OURSELVES IN THE END OF MARCH...</p>
+<p> - What's now Your plans for the future?</p>
+<p> <img src="/images/articles/2000.09/articles_2460.jpg" hspace=5 vspace=5 align=right></p>
+<p> WE WILL TOUR ALL AROUND THE WORLD! WE HAVE TO PLAY IN SOUTH AMERICA, JAPAN, AND OF COURSE, EUROPE... IT WILL BE A VERY INTENSE YEAR...</p>
+<p> - Do You have a hobby, except occupations by the music? What are You doing when You have a free time?</p>
+<p> I DO NOT HAVE SO MUCH FREE TIME, BUT WHEN IT HAPPENS I'M USED TO SURF ON THE WEB (INTERNET, PC GAMES ETC...)</p>
+<p> - How many friends do You have? Do you spend your free time together with members of band (drinking a beer together or something like that :))?</p>
+<p> UNFORTUNATELY I DON'T HAVE SO MANY FRIENDS, AND WITH THE OTHER MEMBERS IT'S DIFFICULT TO MEET, 'CAUSE WE LIVE VERY DISTANT.. USUALLY I HAVE BEERS WITH FABIO LIONE THAT LIVES VERY CLOSE TO ME...</p>
+<p> - With Fabio Lione?!!! WOW! Cool!! :)) He's a great singer! What kind of music do You prefer to listen?</p>
+<p> I LISTEN TO ALL THE MUSIC, I LOVE GOD MELODIES, GOOD REFRAINS, NO MATTERS THE STYLE, I MEAN, I DON'T LISTEN JUST TO HEAVY METAL</p>
+<p> - Well, and what do You think about black & death metal? Don't You like this kind of heavy music? Do you have any „idols" or bands you like very much?</p>
+<p> TO BE HONEST, I DON'T LIKE VERY MUCH BLACK & DEATH, BUT THERE ARE SOME VERY GOOD BANDS LIKE CHILDREN OF BODOM, DEICIDE, MORBID ANGEL THAT SURELY PLAY THEIR STYLE IN A GOOD WAY... I DON'T HAVE PARTICULAR IDOLS, BUT I REALLY ADMIRE BANDS LIKE JUDAS PRIEST.</p>
+<p> - How long do You play on guitar?</p>
+<p> I STARTED PLAYING GUITAR IN 1991, WHEN I CREATED LABYRINTH... IN FACT, I CREATE THIS BAND BECAUSE I WANTED TO LEARN PLAYING GUIT.!</p>
+<p> - Olaf, tell me, please, some about Italian metal scene.</p>
+<p> ITALIAN SCENE? WHICH ITALIAN SCENE??? EHEH, YES, I KNOW WHAT YOU MEAN, BUT THE TRUTH IS THAT HERE THERE ISN'T A REAL SCENE, THERE'S A LOT OF COMPETITION, AND BANDS ARE NOT VERY FRIENDLY, EACH OTHER...ANYWAY IT'S TRUE THAT WE ARE HAVING SOME VERY INTERESTING BANDS, IN THESE LAST YEARS...</p>
+<p> - With which band would You like to tour the Most?</p>
+<p> <img src="/images/articles/2000.09/articles_2461.jpg" hspace=5 vspace=5 align=left></p>
+<p> JUDAS PRIEST, FOR SURE!</p>
+<p> - Your friends usually call You "Olaf" or by your real name? :) (I heard that "Olaf Thorsen" is not Your real name)</p>
+<p> EHEH, NOT, IT ISN'T, BUT MY FRIENDS ARE USED TO CALL ME WITH THIS NICKNAME, I HAVE SINCE A LOT OF TIME... AND I LIKE IT VERY MUCH, I COULDN'T STOP USING IT!</p>
+<p> - What do You know about Russia? With what is associated word "Russia" for You? :)</p>
+<p> RUSSIA? THE PROBLEM IS THAT I DON'T KNOW VERY MUCH ABOUT YOUR COUNTRY, BUT WHAT I SEE FROM PICTURES IS VERY NICE, I HOPE ONE DAY I WILL HAVE THE CHANCE TO VISIT MOSCOW, A MAGNIFICENT CITY, AND I HOPE I WILL HAVE ALSO THE CHANCE TO PLAY THERE... WHO KNOWS??? HONESTLY, WHAT I KNOW ABOUT HEAVY METAL, IS THAT IN</p>
+<p> RUSSIA HM ISN'T THAT POPULAR... MAYBE I'M WRONG??? I HOPE SO!</p>
+<p> - It's would be cool! How I already said, in Russia You have a lot of fans!! And what adout our metal scene... You wrong! :) Certainly a lot of teenagers in our country now listen to hip-hop, techno, pop and other shit, but also there are a lot of real metalheads and many young black, death, power and thrash bands! And often we have here different</p>
+<p> festivals, gig, etc.<br>Well, are You married? Do You have children? :)</p>
+<p> I WAS MARRIED. NOW I'M DIVORCED, AND I HAVE NO CHILDREN...</p>
+<p> - Which area (rural, town, city?) You live in? What kind of nature You can find there?</p>
+<p> I LIVE IN A SMALL TOWN IN THE MIDDLE OF ITALY NAMED MASSA, I'M VERY CLOSE TO THE SEA, SO HERE IS OFTEN SUNNY, AND THE WINTER ISN'T THAT BAD...</p>
+<p> - What inspires You writing Your music/lyrics?</p>
+<p> <img src="/images/articles/2000.09/articles_2462.jpg" hspace=5 vspace=5 align=right></p>
+<p> I LIKE TO WRITE ABOUT FEELINGS, SO IN MY LYRICS I LIKE TO TALK ABOUT LOVE, HATE, FEAR OR SIMILAR, AND ALSO WITH THE MUSIC I TRY TO REPRESENTE THIS WITH AGGRESSIVE RIFFS, OR VERY MELODIC ARPEGGIOS WITH THE ACOUSTIC GUITAR... IT DEPENDS ON MY STATE OF MIND OF A MOMENT...</p>
+<p> - You know English very good. Where did You study it?</p>
+<p> I'VE BEEN STUDYING IT SINCE I WAS 6... I HAD AN ENGLISH TEACHER FOR THE FIRST 5 YEARS, SO I'VE BEEN LUCKY: WHEN YOU ARE A CHILD IT'S EASIER TO LEARN A DIFFERENT LANGUAGE...</p>
+<p> - Please, some words about your another band VISION DIVINE...</p>
+<p> IT'S THE NEW BAND I CREATED IN 99, IN THIS ONE, I HAVE THE CHANCE TO PLAY WITH AN OLD FRIEND OF MINE, FABIO LIONE FROM RHAPSODY... I LIKE VERY MUCH THE MUSIC WE PLAY, I THINK YOU REALLY SHOULD LISTEN TO THIS ALBUM,NAMED "VISION DIVINE"...WE'LL SURELY RECORD A SECOND ALBUM, BEFORE THE END OF THIS YEAR....</p>
+<p> - Thank You for this interview!! You can say what you want to our readers.</p>
+<p> SEE YOU IN RUSSIA!!!! I HOPE SO.....EHEH</p>
+<p></p>
+<p> Nybras</p>
+
+Автор: Nybras
+
+### 12.09.2000 articles Return to Heaven Allowed
+
+<p> На вопросы ответил Olaf Thorsen, гитарист группы Labyrinth</p>
+<p></p>
+<p> - У меня, к сожалению, пока ещё нет последнего диска Labyrinth :( Ты можешь рассказать немного о новом альбоме? Он похож на ваши предыдущие релизы?</p>
+<p> Это не просто копия предыдущего диска... Это логическое продолжение "Return to Heaven Denied", но, конечно, появилось и много новых элементов, что, в целом, делает его звучание более оригинальным...</p>
+<p> - Расскажи о том, как проходила запись этого альбома? Я слышал, что у вас были проблемы с вашим продюсером...</p>
+<p> Мы записывали его в течении двух месяцев, с октября по декабрь 1999-го года. Потом, в январе, Нэйл Кернон занимался микшированием материала с США, но мы были не удовлетворены проделаной им работой, и, в результате нам пришлось все переделать самостоятельно...</p>
+<p> - Ваши планы на будущее?</p>
+<p> <img src="/images/articles/2000.09/articles_2460.jpg" hspace=5 vspace=5 align=right></p>
+<p> Мы отправимся в мировое турне! Мы будем выступать у Южной америке, Японии, и, конечно же, в Европе...</p>
+<p> - У тебя есть еще хобби, кроме занятий музыкой? Чем ты обычно занимаешься в свободное время?</p>
+<p> У меня не так много свободного времени, но когда оно есть я люблю проводить его за компьютером, в интернете, играю в компьютерные игры.</p>
+<p> - А ты часто проводишь время со своими друзьями?</p>
+<p> К несчастью у меня не так много друзей, как хотелось бы. С другими членами группы тоже тяжело часто встречаться, так как мы все живем далеко друг от друга. Частенько я пью пиво вместе с Фабио Лионе (Fabio Lione) (вокалист Rhapsody и бывший вокалист Labyrinth)</p>
+<p> - С Фабио Лионе?! Здорово! Он прекрасный певец!... А какую музыку ты любишь слушать?</p>
+<p> Я слушаю разную музыку. Мне нравятся хорошие мелодии, не важно в каком стиле. Я не слушаю только один хэви-метал.</p>
+<p> - Ну, а что касается блэк- и дэт-метала? Тебе не нравятся эти стили тяжелой музыки? Среди музыкальных групп у тебя есть "идолы" или группы, которые ты очень-очень любишь?</p>
+<p> Если честно, я не очень люблю блэк и дэт. Но есть несколько очень хороших групп, таких как Children of Bodom, Deicide, Morbid Angel, которые играют в своём стиле и движутся по верному пути... У меня нет конкретных идолов, но я восхищаюсь группами типа Judas Priest.</p>
+<p> - Ты давно играешь на гитаре?</p>
+<p> Я начал играть на гитаре в 1991-м году, когда создал группу Labyrinth... Фактически, я собрал группу, поскольку хотел научиться хорошо играть!</p>
+<p> - Олаф, расскажи мне, пожалуйста, об итальянской метал-сцене.</p>
+<p><img src="/images/articles/2000.09/articles_2461.jpg" hspace=5 vspace=5 align=left></p>
+<p> Итальянская сцена? Какая итальянская сцена??? Хехе, да, я понимаю о чем ты говоришь, но дело в том, что тут нет реальной сцены. У нас, среди существующих групп, очень большая конкуренция, и, как следствие - не очень хорошие отношения между ними... Хотя это правда, что за последние пару лет стали появляться весьма интересные коллективы...</p>
+<p> - С какой группой ты бы больше всего хотел отправиться в турне?</p>
+<p> С Judas Priest, естественно!!</p>
+<p> - Друзья обычно называю тебя "Олаф" или по настоящему имени? :) Ведь "Olaf Thorsen" это не настоящее твоё имя...</p>
+<p> Хехе, мои друзья так и зовут меня обычно. Я использую этот псевдоним уже давно и он мне очень нравится... Я уже даже не представляю, как смогу обходиться без него!</p>
+<p> - Что ты знаешь о России? С чем у тебя ассоциируется слово "Россия"? :)</p>
+<p> Россия? Проблема в том, что я мало знаю о вашей стране, но то, что я видел на картинках произвело на меня отличные впечатления. Я надеюсь, когда-нибудь у меня будет возможность посетить Москву, замечательный город, и, я также надеюсь, что у меня будет возможность поиграть там... Кто знает??? Честно говоря, что я знаю про металлическую сцену в России - то, что хэви-метал не очень популярный у вас... Может я ошибаюсь??? Я надеюсь на это!</p>
+<p> - Ты женат? У тебя есть дети? :)</p>
+<p> Я был женат, но теперь я разведен... И у меня нет детей...</p>
+<p> - В каком районе Италии ты живешь?</p>
+<p> Я живу в маленьком городе Масса, в центре Италии. Тут очень близко море, всегда тепло и солнечно. И зимой тут не холодно.</p>
+<p> - Что вдохновляет тебя при написании музыки\стихов?</p>
+<p> Мне нравится писать о чувствах, поэтому в моих текстах я часто говорю о любви, ненависти, мечтах и тому подобных вещах. И также в музыке я пытаюсь выразить это в агрессивных гитарных риффах или в очень мелодичных акустических гитарных темах... Это зависит от моего настроения в конкретный момент...</p>
+<p> - Ты очень хорошо знаешь английский язык. Где ты выучил его?</p>
+<p><img src="/images/articles/2000.09/articles_2462.jpg" hspace=5 vspace=5 align=right></p>
+<p> Я учу его с шести лет... У меня тогда был личный учитель английского языка. И вообще, когда ты ребенок, то намного проще учить различные иностранные языки...</p>
+<p> - Пожалуйста, расскажи коротко о еще одном своем проекте, группе Vision Divine...</p>
+<p> Эту новую группу я собрал в 1999-м году, просто у меня есть возможность поиграть вместе со своим старым другом, Фабио Лионе. Мне очень нравится музыка, которую мы играем. Я думаю, вам обязательно надо послушать наш альбом под названием "Vision Divine"... Еще мы планируем записать новый диск до конца этого года.</p>
+<p> - Спасибо за интервью!! Ты можешь напоследок сказать что хочешь для наших читателей.</p>
+<p> SEE YOU IN RUSSIA!!!! I HOPE SO.....EHEH</p>
+<p></p>
+<p> Nybras</p>
+
+Автор: Nybras
+
+### 24.12.2002 reviews Классика
+
+<p>Я думаю, никому не нужно представлять ни Labyrinth, ни сам альбом Return To Heaven Denied. После интересного, но ещё немного сыроватого дебютного альбома 1996 года No Limits, теперь уже легендарные итальянские паверщики записали воистину почти шедевральный альбом. Хоть и является этот альбом тем, что в принципе уже было создано Stratovarius и Royal Hunt в начале 90-х, но в то же время, этот альбом нельзя сравнивать ни с одной работой ни Stratovarius, ни Royal Hunt. Всё сыграно оригинально и очень мощно. Уже с первых аккордов песни Moonlight альбом захватывает и не отпускает до последних звуков Die for freedom. Альбом наполнен какой-то своей особенной, не присущей ничему другому, атмосферой. Атмосферой сказки и романтизма (особенно пауэр-баллады The night of dreams, Heaven denied, Falling rain). В общем, непревзойдённый альбом. Классика.</p>
+
+Автор: Del Silencio
+
+### 25.04.2003 news LABYRINTH подписались под Century Media Records
+
+<p>Итальянская группа LABYRINTH подписала контракт с Century Media Records. Именно там, 30 июня 2003 года выходит четвертый полнометражный альбом группы с одноименным названием "Labyrinth". Альбом был записан в итальянской Noise Factory Studio, а смикширован в германской House of Audio studio. В него войдут следующие вещи:</p>
+<p> 1. The Prophet (4:46)<BR> 2. Livin' In A Maze (4:37)<BR> 3. This World (4:55)<BR> 4. Just Soldier (Stay Down) (5:26)<BR> 5. Neverending Rest (4:54)<BR> 6. Terzinato (5:49)<BR> 7. Slave To The Night (6:06)<BR> 8. Synthetic Paradise (5:48)<BR> 9. Hand In Hand (4:26)<BR> 10. When I Will Fly Far (5:16)</p>
+
+Автор: Dimas
+
+### 04.05.2003 news LABYRINTH have inked a world-wide deal ...
+
+<p>Italian melodic metallers LABYRINTH have inked a world-wide deal with Century Media. Their label debut, Labyrinth (recorded by Giovanni Spinotti and William Novati at Noise Factory Studio in Milan, Italy), features artwork by Travis Smith (Opeth, Jag Panzer, Nevermore) and their strongest line-up ever.</p>
+
+Автор: Yermola
+
+### 02.09.2003 reviews Cъедобно, но – не вкусно
+
+<p>Этот альбом – первое моё знакомство с «творчеством» итальянских паверщиков. И продолжать знакомство как-то не хочется. Альбом качественно записан. Хорошо сыгран. Присутствуют более-менее запоминающиеся мелодии. Всё. Потому и «творчество» в кавычках. Сладенький, прилизанный паверчик итальянского разлива. Слушать, конечно, можно. И плевался я куда меньше, чем, например, при ознакомлении с ранними альбомами SONATA ARCTICA, или поздними – авторства HAMMERFALL. То есть, съедобно, но – не вкусно. Заходить в этот ресторанчик мне больше не хочется. Паверщики, возможно, будут другого мнения. В конце концов, на то они и паверщики. Напоследок оговорюсь: этот альбом получил низкую оценку отнюдь не потому, что я терпеть не могу павер. Нет, о ненависти к этому стилю не может быть и речи. Кое-что мне нравится, кое-что – не нравится. «Музыку» LABYRINTH можно отнести ко второй категории, соответственно, будущее этого диска – служба в качестве подставки под пиво. Не более.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 25.02.2004 news DREAMAKER and LABYRINTH will visit Japan
+
+<P><B><IMG height=200 alt="" hspace=0 src="/images/news/2004.02/6087.jpg" width=300 align="right" border=0>DREAMAKER </B>will visit Japan on May to present their debut album "<B>Human Device</B>". The band will play with the Italian metal act <B>Labyrinth</B>.</P>
+<P><BR><B>Dreamaker</B> started after that <B>Elisa C.Martin</B> (vocals), <B>Albert Maroto</B> (guitar) and <B>Jorge S&#225;ez</B> (drums) left <B>Dark Moor</B> and decided to create a new band. "<B>Human Device</B>" was recorded at <B>Sonic Pump Studios</B> in Finland and will be released in March. &nbsp;<BR><BR><B><U>Dates in Japan:<BR></U>7.05.04 Tokyo<BR>8.05.04 Osaka<BR></P></B>
+Автор: Vit Belov
+
+### 14.12.2004 news LABYRINTH на Arise Records
+
+<P>Итальянскийе power-progresive-щики <STRONG>LABYRINTH</STRONG> подписали контракт с <STRONG>Arise Records</STRONG>. Их новый альбом '<STRONG>Freeman</STRONG>' был записан в <STRONG>Elnor Studio</STRONG> в Милане. Пластинка увидит свет в марте 2005 года. Также на <STRONG>Arise</STRONG> будет переиздан первый альбом коллектива <STRONG>'No Limits</STRONG>', где партии вокала исполнял <STRONG>Fabio Lione (RHAPSODY).</STRONG></P>
+Автор: Vit Belov
+
+### 14.12.2004 news Labyrinth have inked a deal with Arise Records
+
+<P><STRONG>LABYRINTH</STRONG>'s new album will be entitled '<STRONG>Freeman</STRONG>'. Recorded and mixed at <STRONG>Elnor Studio</STRONG> in Milan, Italy and mastered at <STRONG>The House Of Audio Studios</STRONG> in Germany.&nbsp;'<STRONG>Freeman</STRONG>' will be released in March 2005.</P>
+<P><STRONG>Arise records</STRONG> will also re-release "<STRONG>No Limits</STRONG>" (originally released in 1996), the first album of the band with <STRONG>Fabio Lione (Rhapsody)</STRONG> on lead vocals. The album has been re-mastered and contains 2 bonus tracks and new graphic!. Out in March 2005.<BR></P>
+Автор: Vit Belov
+
+### 16.01.2005 news Новый альбом LABYRINTH
+
+<DIV class=regular>Итальянская power metal формация&nbsp;<B>LABYRINTH</B> готовит к выпуску 4 марта 2005 года на&nbsp;<STRONG>Arise Records </STRONG>свой новый альбом под названием<STRONG> "Freeman".</STRONG> В России, альбом выйдет на <STRONG>Irond Records</STRONG>. Окончательный трек-лист альбома:</DIV>
+<DIV class=regular><BR><IMG height=246 alt="" hspace=20 src="/images/news_rus/2005.01/7695.jpg" width=250 align=left border=0>1. <B>L.Y.A.F.H.</B> </DIV>
+<DIV class=regular><BR>2. <B>Deserter</B> </DIV>
+<DIV class=regular><BR>3. <B>Dive In Open Waters</B> </DIV>
+<DIV class=regular><BR>4. <B>Freeman </B></DIV>
+<DIV class=regular><STRONG></STRONG><BR>5. <B>M3</B> </DIV>
+<DIV class=regular><BR>6. <B>Face And Pay</B> </DIV>
+<DIV class=regular><BR>7. <B>Malcolm Grey</B> </DIV>
+<DIV class=regular><BR>8. <B>Nothing New</B> </DIV>
+<DIV class=regular><BR>9. <B>Infidels</B> </DIV>
+<DIV class=regular><BR>10. <B>Meanings</B> </DIV>
+Автор: Dimas
+
+### 11.04.2005 reviews Свобода взамен стагнации
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это уже пятая работа итальянской команды, и третья подряд, приносящая мне разочарование по сравнение с предыдущими работами. Похоже, звезда этой группы неумолимо закатывается за горизонт. Первое, что бросается в глаза&nbsp;- оформление альбома, несколько шокирующее и не совсем понятное. Уши также шокированы: качество записи на альбоме далеко не идеальное,&nbsp;но это не приводит слушателя уже знакомого с работами группы в недоумение, такое бывало и раньше. Хотя, к самому материалу не подкопаешься. Добротный и грамотный&nbsp;progressive metal с элементами power-heavy metal. Интересные запоминающиеся&nbsp;мелодии, разнообразные технические решения,&nbsp;&nbsp;узнаваемый вокал Тиранти. Пожалуй, на новой работе, все эти плюсы коллектива выражены в самой наилучшей форме, чем когда бы то ни было, однако... Почему-то, эта музыка уже не так&nbsp;впечатляет и не оставляет в памяти тех же следов, как, например,&nbsp;первые два альбома группы. Для тех, кто начинает знакомство с этой группой посредством этого релиза, могут быть непонятны мои придирки и разглагольствования о том, что это несколько сероватый альбом в дискографии группы. Но те, кто давно знаком с этой группой, и не понаслышке, поймут меня, прослушав новое творение группы. Некоторые будут разочарованы (как я), некоторые скажут, что альбом в общем-то, не так уж и плох, но, уверен, ни один не назовет его лучшим у группы. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.irond.ru/">Irond Records</A></FONT></P>
+Автор: Dimas
+
+### 08.12.2006 news LABYRINTH на Scarlet
+
+<P><STRONG>LABYRINTH</STRONG> подписали контракт с<STRONG> Scarlet</STRONG>. Их новый альбом <STRONG>"6 Days to Nowhere" </STRONG>выйдет в феврале.</P>
+Автор: Vit Belov
+
+### 12.12.2006 news Новый альбом LABYRINTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, новый альбом итальянцев <STRONG>LABYRINTH "6 Days to Nowhere" </STRONG>выйдет в феврале 2007 года на <STRONG>Scarlet</STRONG>. Стал известен трэк-лист пластинки:</FONT></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2006.12/11067.jpg" width=200 align=right border=5>01. <B>Crossroads</B><BR>02. <B>There Is A Way</B><BR>03. <B>Lost</B><BR>04. <B>Mother Earth</B><BR>05. <B>Waiting Tomorrow</B><BR>06. <B>Come Together</B> (THE BEATLES cover)<BR>07. <B>Just One Day</B><BR>08. <B>What!!!</B><BR>09. <B>Coldness</B><BR>10. <B>Rusty Nail</B><BR>11. <B>Out Of Control</B><BR>12. <B>Wolves 'N' Lambs</B><BR>13. <B>Smoke And Dreams</B><BR>14. <B>Piece Of Time</B></P>
+Автор: Vit Belov
+
+### 20.09.2009 news LABYRINTH тоже готовят вторую часть
+
+<P>Итальянцы <STRONG>LABYRINTH</STRONG> воссоединились в классическом составе: гитарист<STRONG> Olaf Thorsen</STRONG>, гитарист <STRONG>Andrea Cantarelli</STRONG> и вокалист <STRONG>Roberto Tiranti</STRONG>. Группа записывает продолжение своей знаменитой пластинки с незамысловатым названием <STRONG>'Return to Heaven Denied Pt. 2'.</STRONG></P>
+Автор: Vit Belov
+
+### 26.09.2014 news Mark Boals присоединился к LABYRINTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27326.jpg" width=300 height=297>Итальянцы<STRONG> LABYRINTH</STRONG> сообщили, что записывают новый альбом с вокалистом<STRONG> Mark Boals (ex-Yngwie Malmsteen, ex-ROYAL HUNT)</STRONG>. Предыдущий фронтмен <STRONG>Roberto Tiranti</STRONG> покинул коллектив ради сольной карьеры. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний на сегодня студийный альбом группы "<STRONG>Return To heaven Denied Part II</STRONG>" вышел в 2010 году на <STRONG>Scarlet Records</STRONG> и был тепло встречен слушателями.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

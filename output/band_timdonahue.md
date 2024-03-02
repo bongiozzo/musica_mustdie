@@ -111,6 +111,282 @@ Mike Mangini - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.07.2004 reviews Для сумашедших и грешных?
+
+<P><B>Пятое крупное творение, если считать и саундтрек к фильму, малоизвестного в Европе, но любимого японцами, молодого таланта, мастера гитарных струн Тима Донахью. Не знаю уж, какими посулами, или какими пряниками, но к работе над своим альбомом этому Тиму удалось привлечь такого зубра, как Mike Mangini (“Annihilator, “Mulmuzzler”, “Extreme”, Steve Vai) и одного из самых претенциозных вокалистов -&nbsp;Джеймса ЛаБри. </B></P>
+<P><B>Почувствовав грядущую наживу, Тима Донахью сразу забрал под своё крылышко предприимчивые бизнесмены с Фронтиса.</B></P>
+<P><B>Что же получилось в итоге? Естественно, это прогрессив метал. Естественно, ориентированный, в основном, на демонстрацию гитарного мастерства и оригинальность мысли в риффовом конструировании. Может быть, это Тиму удалось, но, боюсь, оценят это только профессиональные музыканты. Лично мне было тяжеловато слушать этот слишком давящий на уши и грузящий, и так слабый, мозг, перенасыщенный жужжащей, как обожравшийся шершень, гитарой. Да еще с почти полным отсутствием внятных мелодий. По большому счету, на альбоме есть только одна хорошая песня – акустическая “Wildest Dreams”. </B></P>
+<P><B>К ЛаБри претензий меньше, поет он отлично. Хотя и без особого энтузиазма. Несколько монотонно. Но профессионал он высшего класса.</B></P>
+<P><B>Честно скажу, после каждого прослушивания альбома, когда замолкали финальные звуки последней песни, я каждый раз вздыхал с облегчением. Отмучился, типа.</B></P>
+<P><B>Очень спорная, но, безусловно, заслуживающая внимания всех любителей прогрессива. А фэны «ДримТеатра» вообще и ЛаБри в частности, просто обязаны приобрести этот диск. </B></P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

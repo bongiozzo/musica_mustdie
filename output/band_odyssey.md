@@ -27,6 +27,14 @@ Visualized by: Tompa, HeadAche Creations
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.03.2010 news Переиздание единственной работы ODYSSEY
+
+<P><IMG border=0 hspace=10 alt="" align=left src="/images/news_rus/2010.03/16358.jpg" width=400 height=400>Выпущенный в 1999 году на канадском лейбле <STRONG>Utopian Vision Music</STRONG> одноименный мини-альбом шведской группы <STRONG>ODYSSEY</STRONG>, в состав которой входили <STRONG>Dan Swano</STRONG> (<STRONG>NIGHTINGALE, EDGE OF SANITY, BLOODBATH</STRONG>), <STRONG>Rick Gustafson</STRONG> (ex-<STRONG>MEMORY GARDEN</STRONG>) и <STRONG>Kenth Philipsson</STRONG> (<STRONG>DARK FUNERAL, THE PROJECT HATE</STRONG>) довольно быстро стал раритетом и уже долгое время его было невозможно достать. Он был мечтой многих коллекционеров. <BR>В самое ближайшее время, этот шедевр эпической прогрессивной музыки под новым названием "<STRONG>Reinventing The Past</STRONG>" будет переиздан на голландском лейбле <STRONG>Vic Records</STRONG>, который приобрел права на эту работу в 2007 году. Запись прошла ремастеринг под руководством самого <STRONG>Dan Swano</STRONG> и помимо оригинальных трэков включает в себя шесть совершенно новых кавер-версий, в числе которых <STRONG>"In The Heat Of The Night" (SANDRA)</STRONG> с участием гитариста <STRONG>Marcus Vanhala</STRONG>, <STRONG>"Eyes Of The World" (RAINBOW)</STRONG> с участием гитариста <STRONG>Tino Kallioniemi</STRONG>, <STRONG>"Shake The Disease" (DEPECHE MODE)</STRONG>, <STRONG>"At The Gallows End" (CANDLEMASS)</STRONG>, <STRONG>"Gypsy" (URIAH HEEP)</STRONG> с участием <STRONG>Dag Swano</STRONG> и <STRONG>"Lost Horizons" (MICHAEL SCHENKER GROUP)</STRONG> с участием гитаристов <STRONG>Marcus Vanhala</STRONG> и <STRONG>Morgan Pettersson</STRONG>.<BR>Комментарии <STRONG>Dan Swano</STRONG>: "Многие из этих каверов были записаны на самом раннем этапе нашей карьеры. <STRONG>"In The Heat Of The Night"</STRONG> была записана для нашего дебютного полнометражного альбома <STRONG>"Route Nine"</STRONG>, который так и не вышел. <STRONG>"Eyes Of The World"</STRONG> была предназначена для невышедшего мини-альбома <STRONG>NIGHTINGALE</STRONG>. <STRONG>"At the Gallows End"</STRONG> и <STRONG>"Lost Horizons"</STRONG> не вошли на мини-альбом <STRONG>EDGE OF SANITY "Until Eternity Ends"</STRONG>.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

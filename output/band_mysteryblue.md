@@ -45,6 +45,15 @@ Vince Koehler - Drums & Backing Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.02.2004 news STEELHEART Records news
+
+<P><B><IMG height=300 alt="" hspace=0 src="/images/news/2004.02/6089.jpg" width=300 align="left" border=0>STEELHEART RECORDS</B> announced new releses on March. They will be new albums by <B>MYSTERY BLUE "Metal Slaves"</B>&nbsp;and <B>NIGHTCLOUD "Defeated By The Innocents"</B>.</P>
+<P><B>MYSTERY BLUE</B> is the classic heavy-metal from France with Female vocal and history from 1984. <B>NIGHTCLOUD</B> is power-progressive band recorded in <B>Damage Inc. Studios</B> by <B>Dario Mollo</B>. <B>Mollo</B> also played some guitar parties on their album.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

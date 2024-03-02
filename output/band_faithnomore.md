@@ -160,6 +160,68 @@ Mike Bordin - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>В феврале выйдет новая версия альбома SENTENCED "Frozen". В неё войдут бонус-трэки: кавера на песни FAITH NO MORE "Digging the Grave", WASP "I Wanna Be Somebody", RADIOHEAD "Creep" и ANIMALS "House Of Rising Sun".</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Helloween объявили приблизительный трэклист своего альбома каверов "Metal Jukebox". Присутствуют: ABBA, The Beatles, а также Дэвид Боуи, Deep Purple, Jethro Tull, Faith No More, Scorpions и другие. В Штатах будут переизданы альбомы Helloween "Master Of The Ring" и "Time Of The Oath". Также в Японии будет переиздан альбом "Pink Bubbles Go Ape" с бонус-трэком "Shit And Lobster". Вейки начал написание нового материала как для сольника, так и для нового альбома Helloween, позже к нему присоединятся другие участники коллектива. А тем временем бывший вокалист этой группы Михаэль Киске, а теперь сольный музыкант, потерял свой контракт в Японии.</p>
+
+Автор: Vit Belov
+
+### 13.03.2002 news Писать он на всех хотел!
+
+<p>Майк Пэттон (ex-FAITH NO MORE, FANTOMAS) дурачится. На недавнем концерте TOMAHAWK (новый проект Пэттона) в Лондоне Майк прямо во время шоу приспустил штаны и помочился на фотографов и охранников. По словам барабанщика Джона Саньера, никто этого не ожидал: "Я уже было подумал, что охрана сейчас ему наваляет, но... Майк успел-таки смыться со сцены и запереться в раздевалке!" Несмотря на инцидент, тур TOMAHAWK по Великобритании продолжается.</p>
+
+Автор: Tornado
+
+### 26.03.2002 news Некогда культовая Силипутра...
+
+<p>Знававшая и лучшие времена SEPULTURA разошлась с менеджментом Rick Sales (SLAYER, SYSTEMATIC) разорвала контракт с Sanctuary Records (а в прошлом году ушла с Roadrunner...). Плохому танцору известно что мешает... Но надеюсь новый менеджер Джим Льюс (так же работает с YNGWIE MALMSTEEN) как-то сможет поправить дела. Сейчас Сепультурцы пишут новый материал для альбома продолжения по отношению к прошлогоднему и не очень удачному "Nation". <BR><BR> В дополнение к сказанному, голландская Mascot Records выкупила европейскую лицензию у бразильского представительства Roadrunner Records на практически неизвестный релиз No Coracao Dos Deuses (В переводе с португальского на English “In The Heart Of The Gods”), на котором можно услышать Cavalera и Andreas Kisser. Выпущенный в 1999 году и доступный только в Бразилии "No Coracao Dos Deuses" представляет также в качестве гостя участника FAITH NO MORE/FANTOMAS - Mike Patton на треке "Procura O Cara". В Европе диск появится в продаже в мае. Трек-лист: <BR><BR> 01. O Desconhecido<BR> 02. Walkman<BR> 03. Bigao De Couro<BR> 04. Bruxaria<BR> 05. Aldeia<BR> 06. Tamandua De Troia<BR> 07. Enforcamento<BR> 08. Tauana E Pedro<BR> 09. Procura O Cara (с участием Mike Patton)<BR> 10. Saida Das Canoas<BR> 11. Indios<BR> 12. Martirios<BR> 13. A Feiticaraia De Gabriel<BR> 14. Terra De Manoa<BR></p>
+
+Автор: Yermola
+
+### 26.03.2002 news SEPULTURA: Without A Record Deal, Pursuing Side Projects ...
+
+<p>SEPULTURA have parted ways with Rick Sales Management (i.e. SLAYER, SYSTEMATIC) and have broken off contract negotiations with Sanctuary Records following the group's split with Roadrunner last year, drummer Igor Cavalera has exclusively told BLABBERMOUTH.NET. Although initial discussions between Sanctuary and SEPULTURA had taken place (a fact that was affirmed by a Sanctuary label ad placed last year in trade publication Billboard that prematurely listed SEPULTURA as part of the company's roster), differences over the terms of the contract were too substantial for the band and the label to be able to come to an agreement, and a decision was eventually made by the group to begin exploring other options. <BR><BR> Currently represented by former YNGWIE MALMSTEEN manager Jim Lewis, SEPULTURA are writing material for the follow-up to 2001's Nation and have thus far completed the music for three new tracks, none of which presently have titles. In addition, the band will be embarking on a lengthy Brazilian tour in April, which will be preceded by an appearance at the Topagunea Festival in Ellorio, Spain on March 31st.<BR><BR> Although SEPULTURA plan on continuing the writing process throughout the spring and the summer, the group's recent “down time” has allowed Cavalera to focus his attention on several potential side projects, including a possible collaboration with BIOHAZARD axeman Billy Graziadei and Brazilian electronic DJ and “professional raver” DJ Patife in an as-yet-unnamed group that is shortly due to begin demoing material at Graziadei 's mobile studio in Brazil (where Billy is temporarily residing with his Brazilian wife Karin and the couple's first child, Isabela).<BR><BR> In addition to the above-mentioned activities, Holland's Mascot Records recently acquired the European licensing rights from the Brazilian representatives of Roadrunner Records for the little-known soundtrack entitled No Coracao Dos Deuses (Portuguese for “In The Heart Of The Gods”), which features music written and performed primarily by Cavalera and SEPULTURA guitarist Andreas Kisser. Originally issued in 1999 and presently only available in Brazil, No Coracao Dos Deuses includes a guest appearance by former FAITH NO MORE/current FANTOMAS frontman Mike Patton in the track "Procura O Cara" and is due to receive a European release in late May. The full track listing for the effort is as follows:<BR><BR> 01. O Desconhecido<BR> 02. Walkman<BR> 03. Bigao De Couro<BR> 04. Bruxaria<BR> 05. Aldeia<BR> 06. Tamandua De Troia<BR> 07. Enforcamento<BR> 08. Tauana E Pedro<BR> 09. Procura O Cara (feat. Mike Patton)<BR> 10. Saida Das Canoas<BR> 11. Indios<BR> 12. Martirios<BR> 13. A Feiticaraia De Gabriel<BR> 14. Terra De Manoa<BR></p>
+
+Автор: Yermola
+
+### 25.02.2009 news FAITH NO MORE возвращаются!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По некоторой информации<STRONG> FAITH NO MORE</STRONG> возродятся для тура по Европе летом этого года. Уже известно, что в проекте не примет участие оригинальный гитарист группы <STRONG>Jim Martin</STRONG>, покинувший её в 1993. Его место займёт один из трёх поздних&nbsp;гитаристов группы.</FONT></P>
+Автор: Vit Belov
+
+### 26.02.2009 news FAITH NO MORE объявили состав
+
+<P>Объявлен состав, в котором<STRONG> FAITH NO MORE</STRONG> совершат ре-юнион тур по Европе в этом году:</P>
+<P><STRONG>Mike Bordin</STRONG> - Drums<BR itxtvisited="1"><B itxtvisited="1">Roddy Bottum</B> - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Bill Gould</B> - Bass<BR itxtvisited="1"><B itxtvisited="1">Jon Hudson</B> - Guitar<BR itxtvisited="1"><B itxtvisited="1">Mike Patton</B> - Vocals</P>
+Автор: Vit Belov
+
+### 27.02.2010 news Mike Patton показал &quot;достоинство&quot;
+
+<P>Вокалист <STRONG>FAITH NO MORE Mike Patton</STRONG> во время выступления в австралийском Брисбэйне продемонстрировал в камеру своё мужское достоинство. Группа исполняла хит "<STRONG>Just A Man</STRONG>", когда певец подошёл к камере и достал свой "стручок". Посмотреть фото этого недостойного инцидента можно здесь: <A href="http://www.dlisted.com/node/36227">http://www.dlisted.com/node/36227</A></P>
+Автор: Vit Belov
+
+### 22.10.2015 news FAITH NO MORE: клип &quot;Sunny Side Up&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>FAITH NO MORE</STRONG> сварганили новый видеоклип на трек <STRONG>"Sunny Side Up"</STRONG>! Всем смотреть!</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/uPlmhJG_xUM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 07.07.2017 news DEAD CROSS: дебют в августе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>DEAD CROSS</STRONG> в состав которой, помимо прочих, входят <STRONG>Mike Patton</STRONG> (<STRONG>FAITH NO MORE</STRONG>, <STRONG>FANTOMAS</STRONG>,<STRONG> MR. BUNGLE</STRONG>&nbsp;и др.)&nbsp;и<STRONG> Dave Lombardo</STRONG> <STRONG>(SUICIDAL TENDENCIES</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>FANTOMAS</STRONG>) выпускает свой дебютный диск 4 августа. Ниже можно посмотреть видеоклип на песню <STRONG>"Seizure and Desist"</STRONG>&nbsp;с этого альбома. Предзаказ физических копий альбома доступен по ссылке: <A href="https://deadcross.tmstor.es/">https://deadcross.tmstor.es</A> </FONT></P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/WpdcT8kyP1U" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

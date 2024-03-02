@@ -81,6 +81,37 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.07.2011 news GOATWHORE записывают новый альбом
+
+<P>Death/black команда из Нового Орлеана <STRONG>GOATWHORE </STRONG>работает над новым альбомом в студии <STRONG>Erik Rutan Mana Recordings</STRONG>. После записи металисты отправятся в тур по США совместно с <STRONG>EXHUMED</STRONG> и <STRONG>CEPHALIC CARNAGE</STRONG>.</P>
+<P>Самый успешный альбом коллектива <STRONG>"Carving Out The Eyes Of God" </STRONG>вышел в 2009 году на <STRONG>Metal Blade</STRONG>.</P>
+<P><center><IMG height=317 src="/images/news_rus/2011.07/20378.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 10.01.2012 news Трек-лист нового GOATWHORE
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22581.jpg" width=400 align=right border=0>10 февраля на<STRONG> Metal Blade</STRONG> выйдет новый альбом<STRONG> GOATWHORE "Blood For The Master"</STRONG>. Альбом записан в <STRONG>Mana Studios</STRONG> в американском Санкт-Петербурге с продюсером<STRONG> Erik Rutan (HATE ETERNAL)</STRONG>. Новый трек группы "<STRONG>Collapse In Eternal Worth</STRONG>" можно послушать в клипе ниже.</P>
+<P>Трек-лист альбома:</P>
+<P>1. <STRONG>Collapse In Eternal Worth</STRONG><BR>2. <STRONG>When Steel And Bone Meet<BR></STRONG>3. <STRONG>Parasitic Scriptures Of The Sacred Word<BR></STRONG>4.<STRONG> In Deathless Tradition</STRONG><BR>5. <STRONG>Judgement Of The Bleeding Crown <BR></STRONG>6. <STRONG>Embodiment Of This Bitter Chaos<BR></STRONG>7. <STRONG>Beyond The Spell Of Discontent<BR></STRONG>8. <STRONG>Death To The Architects Of Heaven<BR></STRONG>9. <STRONG>An End To Nothing</STRONG><BR>10. <STRONG>My Name Is Frightful Among The Believers</STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/ybKifd3J0NI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 29.03.2012 news GOATWHORE: клип на песню &quot;When Steel And Bone Meet&quot;
+
+<P>Новоорлеанцы <STRONG>GOATWHORE</STRONG> представляют&nbsp;клип на песню<STRONG> "When Steel And Bone Meet"</STRONG>, который был снят Дэвидом Бродски (<STRONG>David Brodsky</STRONG>) из компании&nbsp;<STRONG>MyGoodEye</STRONG> (<STRONG>THE BLACK DAHLIA MURDER</STRONG>, <STRONG>MUNICIPAL WASTE</STRONG>, <STRONG>SUFFOCATION</STRONG>).&nbsp;Съёмки видео проходили, в имеющем дурную репутацию, доме ужасов&nbsp;<STRONG>House Of Shock</STRONG> города Новый Орлеан.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/czTBJ26P80U" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.03.2014 news GOATWHORE выпускают новый альбом
+
+<P>Новая работа американцев <STRONG>GOATWHORE "Constricting Rage Of The Merciless"</STRONG> выходит этим летом. Альбом был записан с продюсером<STRONG> Erik Rutan (CANNIBAL CORPSE, HATE ETERNAL)</STRONG>. Трек-лист:</P>
+<P><STRONG>‘Poisonous Existence In Reawakening’ <BR>‘Unraveling Paradise’ <BR>‘Baring Teeth For Revolt’ <BR>‘Reanimated Sacrifice’ <BR>‘Heaven’s Crumbling Walls Of Pity’ <BR>‘Cold Earth Consumed In Dying Flesh’ <BR>‘FBS’ <BR>‘Nocturnal Conjuration Of The Accursed’ <BR>‘Schadenfreude’ <BR>‘Externalize This Hidden Savagery’</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26793.png" width=410 height=601></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

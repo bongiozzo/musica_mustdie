@@ -123,6 +123,104 @@ The title means "Murders".
 
 * C группой "Amorphis" Pasi Koskinen (vocal)
 
+## Публикации
+
+### 01.02.2003 news Новый альбом AJATTARA
+
+<p>24 марта 2003 года - дата выхода нового альбома группы AJATTARA (участником которой является Pasi Koskinen из AMORPHIS). В альбом под названием "Kuolema" ("Death") войдут десять песен, среди которых:</p>
+<p> 01. Antakaa Elaa (Let Me Live) <BR> 02. Surman Henki (The Ghost Of Death) <BR> 03. Haureus (Fornication) <BR> 04. Huoran Alla (Under The Whore)<BR> 05. Ikiyossa (In The Eternal Night) <BR> 06. Musta Leski (Black Widow) <BR> 07. Sielun Sarkija (Crusher Of Soul) <BR> 08. Kituvan Kiitos (Praise Of The Lingering) <BR> 09. Helvetiss&auml; On Syntisen Taivas (Sinner's Heaven Is In Hell) <BR> 10. Rauhassa (Serenity)</p>
+<p> Альбом был записан в ноябре 2002 года.</p>
+
+Автор: Dimas
+
+### 09.06.2003 reviews Финны не ударили лицом в грязь...
+
+<p>Я прослушал этот диск уже раз так 5-6 и… могу вас заверить: финны не ударили лицом в грязь. "Kuolema" – достойное продолжение и развитие идей, представленных на "Itse", дебютной работе группы. Это по-прежнему блэк, по-прежнему спетый на финском, по-прежнему замечательно сыгранный и записанный, по-прежнему атмосферный, по-прежнему самобытный, по-прежнему… Хватит. Это AJATTARA. И этим всё сказано. По крайней мере, ДОЛЖНО быть сказано. Если же вам название группы ни о чём не говорит, но вы неравнодушны к тёмной музыке, мой вам совет: покупайте, не раздумывая. <BR> P.S. И кто бы мог подумать, что Pasi Koskinen, вокалист AMORPHIS, окажется на месте фронтмэна в ТАКОМ проекте…</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 11.06.2004 news Ajattara начинают запись нового альбома
+
+<P><B>AJATTARA</B> войдут в студию 14 июня для записи нового альбома. Событие произойдёт в <B>Sundi Coop</B>, где группа записывала все свои предыдущие альбомы.</P>
+Автор: Vit Belov
+
+### 20.01.2005 news AJATTARA - скачивай сколько сможешь!
+
+<P>Финны из <STRONG>AJATTARA </STRONG>сделали доступным для свободного скачивания своё первое демо "<STRONG>Helvetiss&#228; On Syntisen</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>Helvetiss&#228; On Syntisen Taivas</STRONG> <BR>2. <STRONG>Musta Lintu <BR></STRONG>3. <STRONG>&#196;gr&#228;s <BR></STRONG>4. <STRONG>Syliss&#228; Saatanan Kehdon</STRONG> <BR>5. <STRONG>Musta Aurinko <BR></STRONG>6. <STRONG>Veri On El&#228;m&#228; </STRONG></P>
+<P>Качайте здесь: <A href="http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery_sounds.htm">http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery_sounds.htm</A></P>
+<P>Также стал доступен видео-клип на песню '<STRONG>Haureus</STRONG>' : <A href="http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery.htm">http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery.htm</A></P>
+Автор: Vit Belov
+
+### 20.01.2005 news AJATTARA - free downloads!
+
+<P>Finnish <STRONG>AJATTARA</STRONG> was released for free download their first demo <STRONG>'Helvetissд On Syntisen'</STRONG>. Track-list:</P>
+<P>1. <STRONG>Helvetissд On Syntisen Taivas</STRONG> <BR>2. <STRONG>Musta Lintu <BR></STRONG>3. <STRONG>Дgrдs <BR></STRONG>4. <STRONG>Sylissд Saatanan Kehdon <BR></STRONG>5. <STRONG>Musta Aurinko <BR></STRONG>6. <STRONG>Veri On Elдmд</STRONG> </P>
+<P>Download here: <A href="http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery_sounds.htm">http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery_sounds.htm</A></P>
+<P>Also you can download Video for a song 'Haureus': <A href="http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery.htm">http://kotisivu.dnainternet.fi/tonlar/ajattara/en/gallery.htm</A></P>
+Автор: Vit Belov
+
+### 06.03.2005 reviews Жизнь после AMORPHIS - &quot;Пустота&quot;
+
+<P>Всем известно (ну, или так должно быть:)), что Pasi Koskinen ушёл из AMORPHIS. Вероятнее всего, он оставил основную группу, из-за AJATTARA. Тем интереснее было послушать, что он подготовил на новом третьем альбоме группы “Tyhjyys”, что в переводе с финского означает “Пустота”.</P>
+<P>Для тех, кто до сих пор не в курсе, хочется сказать, что AJATTARA не имеет ничего общего с современными работами AMORPHIS. AJATTARA представляют мрачную придумованную музыку с текстами на финском языке с агрессивным вокалом и тёмными и слегка примитивными мелодиями. Вот это «слегка» на новом альбоме грозит перерасти в «слишком». Никаких эмоций «Пустота» у меня не вызвала. Однообразные однотемповые песни, которые даже не клонят в сон. Думается, фэны AJATTARA ожидают чего-то такого же невесёлого, но более атмосферного и вдохновенного.</P>
+<P>Кажется, что Koskinen ошибся. И пускай, AMORPHIS тоже не выдавали шедевров на последних альбомах, но “Tyhjyys” совсем скучен и безыдеен. </P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A></P>
+Автор: Vit Belov
+
+### 21.11.2005 news AJATTARA работают над новым альбомом
+
+<P>Финские мастера dark black metal <STRONG>AJATTARA</STRONG> работают над своим&nbsp;четвертым полнометражным&nbsp;альбомом под названием <STRONG>"Apare"</STRONG>, выход которого ожидается в марте 2006 года на <STRONG>Spinefarm Records.</STRONG></P>
+Автор: Dimas
+
+### 07.09.2007 news AJATTARA выпустили новый альбом
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2007.09/11869.jpg" width=200 align=right border=5>AJATTARA</STRONG> выпустили новый альбом <STRONG>"Kalmanto" </STRONG>в Финляндии через <STRONG>Spinefarm</STRONG>. Трэк-лист:</P>
+<P>01. <B>Ilkitie</B><BR>02. <B>Turhuuden takila</B><BR>03. <B>Madot</B><BR>04. <B>...Putoan</B><BR>05. <B>Harhojen virta</B><BR>06. <B>Suruntuoja</B><BR>07. <B>Naimalaulu</B><BR>08. <B>Alttarilla aamut&#228;hden</B><BR>09. <B>Kalmanto</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 31.10.2007 reviews Отражение личности Паси Коскинена
+
+<P>Pasi Koskinen покинул AMORPHIS, чтобы сосредоточится на проекте более близком ему по духу – AJATTARA. Примерно подобную фразу я вычитал в пресс-релизе издающего лэйбла Фоно. Идеальное описание личности Паси. Мы не знаем точно, почему он покинул AMORPHIS, но догадаться можем. Видимо, образ жизни вокалиста не вписывался в напряжённый гастрольный график группы. С AJATTARA подобный график Коскинену не грозит.</P>
+<P>Новая работа AJATTARA – это тотальное дураковаляние. Какие-то крики, вопли, непонятные речетативы. Всё это, естественно, на финском языке, от этого слушатель убивается напрочь. Как это понимать? Как мрачную death-metal реинкарнацию KORPIKLAANI? Возможно, в финской лирике есть то, что привлекает коренного слушателя AJATTARA. Нам подобные удовольствия не доступны, поэтому приходится обходиться музыкой. В случае с новым альбомом группы это не легко. Туповатый, незабойный death-metal с элементами. Вот, что играют AJATTARA сейчас.</P>
+<P>Слушать это, классифицировать это, получать удовольствие от этого… Очень тяжело. Всем успехов. Важно только, что этот альбом не очень похож на своего предшественника, а дальше сами думайте.</P>
+Автор: Vit Belov
+
+### 22.10.2008 news AJATTARA в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AJATTARA </STRONG>вошли в студию для записи своего шестого альбома, который выйдет в 2009 году.</FONT></P>
+Автор: Vit Belov
+
+### 20.03.2009 news AJATTARA продолжают мучать
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.03/13789.jpg" width=200 align=right border=5>15 апреля на <STRONG>Ranka Recordings</STRONG> выходит очередной опус<STRONG> AJATTARA</STRONG> <STRONG>"Noitumaa". </STRONG>Трэк-лист:</P>
+<P>01. <B>Keuhkot</B> (03:11) <BR>02. <B>Massat</B> (03:50) <BR>03. <B>Mita kuolema parantaa?</B> (03:53) <BR>04. <B>Saatana palvoo meita</B> (02:36) <BR>05. <B>Saveen saarnattu</B> (04:14) <BR>06. <B>Ikuisen aamun Sara</B> (03:16) <BR>07. <B>Kielletyn sanat</B> (03:56) <BR>08. <B>Sakeita riippuneesta lihasta</B> (03:06) <BR>09. <B>Lammas</B> (03:23) </P>
+Автор: Vit Belov
+
+### 25.04.2009 news AJATTARA попали в чарты
+
+<P><STRONG>AJATTARA</STRONG> со своим новым альбомом <STRONG>"Noitumaa" </STRONG>попали в чарты в Финляндии на восьмое место.</P>
+Автор: Vit Belov
+
+### 14.10.2009 reviews Белая горячка господина Koskinen
+
+<P>Финская группа AJATTARA под предводительством бывшего певца AMORPHIS Pasi Koskinen продолжает каким-то чудом выпускать новые альбомы. В 2007 году Pasi набрал новый состав, и его альбомы стало, вообще, невозможно слушать.</P>
+<P>Новый опус группы “Noitumaa” это уже что-то с чем-то. Акустический гитарный рэп на финском языке с искажённым вокалом, но это уже даже не смешно. Сначала я раскрыл рот и думал, что это интро, но потом мои надежды развеялись. Видимо, носителям финского языка это «дебиловатая» пластинка может показаться смешной, но выпускать эти работы на интернациональный рынок слишком жестоко.</P>
+<P>У Pasi продолжается мощное похмелье. Говорят, он готовит ещё одну пластинку. Надеюсь, Фоно уже избавит нас от этой, с позволения сказать, музыки.</P>
+Автор: Vit Belov
+
+### 15.02.2012 news Умер Tonmi Lillman
+
+<P>Барабанщик <STRONG>LORDI</STRONG> (скрывающийся под кличкой <STRONG>Otus</STRONG>) и бывший барабанщик таких&nbsp;финских групп, как&nbsp;<STRONG>TO/DIE/FOR, SINERGY</STRONG> и<STRONG> AJATTARA Tonmi Lillman</STRONG> умер в возрасте 38 лет. Причина смерти не сообщается.</P>
+<P><STRONG>Tonmi </STRONG>являлся отпрыском музыкантов и начал&nbsp;выступать в 14 лет. Кроме барабанов, музыкант играл на басу, клавишах и гитаре.</P>
+<P>R.I.P.&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.02/23063.jpg" width=392 height=452> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

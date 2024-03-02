@@ -113,6 +113,84 @@ Juho Raiha - Guitar
 
 * C группой "Black Sun Aeon" Tuomas Saukkonen
 
+## Публикации
+
+### 27.01.2005 reviews Над пропастью во тьме
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Второе полнометражное творение очень </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>талантливых финских музыкантов, смело назвавших свой стиль melancholic melodic modern metal. Действительно, меланхолии и мелодизма здесь -&nbsp;хоть отбавляй. Интересная идея назвать альбом "<STRONG>4:17 am</STRONG>", учитывая, что предыдущий альбом заканчивался композицией "<STRONG>4:16 am</STRONG>". Явный намек на то, что новый альбом продолжает идеи первого, ну в общем-то, так оно и есть.&nbsp;Пожалуй,&nbsp;их музыка напоминает смесь позднего <STRONG>IN FLAMES</STRONG> и <STRONG>SOILWORK,</STRONG> а также&nbsp;<STRONG>KATATONIA</STRONG> и<STRONG>&nbsp;SENTENCED</STRONG>&nbsp;различных периодов. Но сразу предупреждаю, это не melodic death в чистом виде, скорее, это смесь атмосферного gothic metal и melancholic doom. Ну а использование разнообразных вокалов, обилие клавиш и наличие электронных сэмплов делают музыку модерновой. По сравнению с дебютом, новая работа более меланхоличная и сентиментальная, в то же время, чуть менее&nbsp;мелодичная.&nbsp; Приятная музыка, как для фонового, так и для внимательного прослушивания. Рискну эту стилистическую помесь порекомендовать всем любителям dark metal, ну и поклонникам <STRONG>KATATONIA</STRONG> (особенно <STRONG>"Brave Murder Day"</STRONG>)&nbsp;в первую очередь. </FONT></P>
+Автор: Dimas
+
+### 27.11.2006 news BEFORE THE DAWN начинают работу над новым альбомом
+
+<P>Финский dark metal бэнд <B>BEFORE THE DAWN</B> с 21 ноября начал студийную работу над новым альбомом под названием <B>"Deadlight"</B>, выход которого ожидается в марте 2007 года на <B>Stay Heavy Records</B>. А на 14 февраля намечен выход сингла под названием <B>"Deadsong"</B>, куда войдут следующие треки:<BR><BR>1. <B>Deadsong</B><BR>2. <B>Bitter End</B> (PLACEBO cover)<BR>3. <B>Gehenna</B> (re-recorded and mixed)</P>
+Автор: Dimas
+
+### 29.06.2009 reviews Любителям всего финского
+
+<P>Финская группа BEFORE THE DAWN только недавно добралась до нашего лицензионного рынка. Сначала Mazzar издал три первых альбома по лицензии Locomotive, и вот теперь Фоно выпустило новую работу “Soundscape of Silence”.</P>
+<P>Дебют коллектива “My Darkness” вышел в 2003 году и добирался до нас шесть лет. Это вовсе не значит, что BEFORE THE DAWN не были достойны издания в России, просто отношения с Locomotive долгое время у наших лэйблов не складывались. 2009-й можно считать годом знакомства с этими финнами, которые аккумулируют в себе всё, что есть в тяжёлой музыке наших еверных соседей. Здесь и gothic-metal в духе SENTENCED, и клавишноориентированный melodic-death-metal… Слушая новый альбом BEFORE THE DAWN сразу понимаешь, откуда родом эта группа. Вернее сейчас уже даже не группа, а проект гитариста, вокалиста, клавишника и барабанщика в одном лице Tuomas Saukkonen. Помогают ему вокалист WINDS Lars Eikind и гитарист Juha Roiho из GLORIA MORTI. Мне кажется, подобная музыка особенно была актуально в годы создания группы, сейчас интерес к финскому творчеству во всё мире поутих, но поклонники у стиля всё-таки ещё остаются. Грустные меланхоличные мелодии с редкими melodic death-metal взрывами с грубым вокалом. Всё это уже встречалось и не раз, но альбом производит приятное впечатление.</P>
+<P>Не могу сказать, что стал фанатом “Soundscape Of Silence”. Всему своё время, но поклонники просто обязаны приобрести эту «жанровую» работу.</P>
+Автор: Vit Belov
+
+### 11.03.2010 news BEFORE THE DAWN празднуют первый юбилей
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2010.03/16383.jpg" width=200 align=right border=5>Финны<STRONG> BEFORE THE DAWN</STRONG> отпразднуют своё десятилетие выходом нового EP <STRONG>"Decade Of Darkness</STRONG>". В издание, выходящее 31 марта, войдёт и бонусный DVD с концертом <STRONG>"Live At Summer Breeze 2009"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Decade Of Darkness</B><BR>02. <B>End Of Days</B><BR>03. <B>Insomnia</B><BR>04. <B>Painless</B> (Japan bonus track)<BR>05. <B>Painless</B> (live)<BR>06. <B>Deadsong</B> (live)<BR>07. <B>Deadsong</B> (symphony version)&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.06.2010 news Новое видео BEFORE THE DAWN
+
+<P>Новый клип финской группы <STRONG>BEFORE THE DAWN</STRONG> на песню <STRONG>"End Of Days" </STRONG>можно посмотреть ниже. Песня попала на юбилейный EP группы <STRONG>"Decade Of Darkness"</STRONG>,&nbsp;который вышел 31 марта в Скандинавии.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/T5rCEtw7Tjs&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/T5rCEtw7Tjs&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.12.2010 news BEFORE THE DAWN на Nuclear Blast
+
+<P>Финны<STRONG> BEFORE THE DAWN</STRONG> заключили контракт с <STRONG>Nuclear Blast</STRONG>. Их шестой альбом <STRONG>"Deathstar Rising" </STRONG>выйдет 25 февраля. </P>
+<P><center><IMG height=400 src="/images/news_rus/2010.12/17927.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 01.02.2011 news BEFORE THE DAWN: видео на песню &quot;Deathstar&quot;
+
+<P><STRONG>"Deathstar"</STRONG> - новый клип финской группы&nbsp;<B itxtvisited="1">BEFORE THE DAWN</B>, можно посмотреть ниже. Песня увидет свет на шестом альбоме группы, <B itxtvisited="1">"Deathstar Rising"</B>, который запланирован к выходу 25 февраля на <B itxtvisited="1">Nuclear Blast Records</B>. </P>
+<P>&nbsp;</P>
+<CENTER><IFRAME class=youtube-player title="YouTube video player" height=390 src="http://www.youtube.com/embed/6J8xf3nuCtw" frameBorder=0 width=640 allowFullScreen type="text/html"></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 26.01.2012 news BEFORE THE DAWN выйдет в апреле
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.01/22792.jpg" width=475 align=right border=0>Новый альбом финской группы<STRONG> BEFORE THE DAWN "Rise Of The Phoenix"</STRONG> выйдет 27 апреля на<STRONG> Nuclear B</STRONG>last. Трек-лист:</P>
+<P>01. <STRONG>Exordium<BR></STRONG>02. <STRONG>Pitch-Black Universe</STRONG><BR>03. <STRONG>Phoenix Rising<BR></STRONG>04. <STRONG>Cross To Bear<BR></STRONG>05. <STRONG>Throne Of Ice<BR></STRONG>06. <STRONG>Perfect Storm<BR></STRONG>07. <STRONG>Fallen World<BR></STRONG>08. <STRONG>Eclipse</STRONG><BR>09. <STRONG>Closure</STRONG></P>
+Автор: Vit Belov
+
+### 08.03.2012 news Новый клип BEFORE THE DAWN
+
+<P>Новый ролик финов <STRONG>BEFORE THE DAWN "Phoenix Rising"</STRONG> можно посмотреть ниже. Этот трек выйдет на новой работе группы "<STRONG>Rise Of The Phoenix</STRONG>".</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/xpAS9pioQz8?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.04.2012 news Новое видео BEFORE THE DAWN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип<STRONG> BEFORE THE DAWN</STRONG> на трек с выходящего альбома "<STRONG>Pitch-Black Universe</STRONG>" можно посмотреть ниже. Новая работа финнов "<STRONG>Rise Of The Phoenix</STRONG>" выйдет в этом месяце на<STRONG> Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<iframe width="640" height="360" src="http://www.youtube.com/embed/uYfZa1gaWZw?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.01.2013 news Tuomas Saukkonen положил конец
+
+<P>Лидер<STRONG> BEFORE THE DAWN</STRONG> и <STRONG>BLACK SUN AEON Tuomas Saukkonen</STRONG> прекратил деятельность всех своих проектов. Кроме вышеуказанных, больше не существует групп <STRONG>DAWN OF SOLACE</STRONG>&nbsp;и <B>ROUTASIELU</B>. </P>
+<P>Теперь финский музыкант все свои силы направит в русло новой группы <STRONG>WOLFHEART, </STRONG>которая будет комбинировать драйв <STRONG>BEFORE THE DAWN</STRONG> и меланхолию<STRONG> BLACK SUN AEON</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/9FFgrbFVyrw?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

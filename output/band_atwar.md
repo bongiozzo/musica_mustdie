@@ -20,6 +20,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.07.2009 news AT WAR возвращаются!
+
+<P><IMG height=360 alt="" hspace=5 src="/images/news_rus/2009.07/14609.jpg" width=360 align=right vspace=5 border=0>Трэш-металлисты из <STRONG>AT WAR </STRONG>выпустят свой первый альбом после 20 лет молчания! Диск, получивший название&nbsp;<STRONG>"Infidel"</STRONG>, выйдет 18 августа на&nbsp;небольшом лейбле <STRONG>Heavy Artillery Records</STRONG>. Рисунок для обложки альбома выполнил известный иллюстратор и фотограф <STRONG>Claudio Bergamin </STRONG>(<A href="http://www.myspace.com/bergamind">http://www.myspace.com/bergamind</A>).</P>
+<P>Группа записала новый альбом в <STRONG>Pyramid Sound Studios</STRONG>.&nbsp;Процессом&nbsp;записи руководил&nbsp;никто иной, как <STRONG>Alex Perialas</STRONG>, человек приложивший руку к звучанию классических альбомов <STRONG>ANTHRAX</STRONG>, <STRONG>TESTAMENT</STRONG>, <STRONG>OVERKILL</STRONG>, <STRONG>NUCLEAR</STRONG> <STRONG>ASSAULT</STRONG>&nbsp;и <STRONG>S.O.D</STRONG>.</P>
+<P>Песню <STRONG>"At War"</STRONG>, с выходящего альбома,&nbsp;можно послушать по адресу: <A href="http://www.myspace.com/atwartheband">http://www.myspace.com/atwartheband</A></P>
+Автор: Headcrusher
+
+### 04.03.2010 news Клип AT WAR
+
+<P><STRONG>"Make Your Move"</STRONG> - новое видео трэш металлистов <STRONG>AT WAR</STRONG>. Песня вошла в первый за 20 лет альбом группы <STRONG>"Infidel"</STRONG>.</P>
+<P><center><object width="480" height="295"><param name="movie" value="http://www.youtube.com/v/sYb92iwK-VQ&hl=ru_RU&fs=1&"></param><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><embed src="http://www.youtube.com/v/sYb92iwK-VQ&hl=ru_RU&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></object></P>
+Автор: Headcrusher
+
+### 10.12.2010 news Басист&#x2F;вокалист группы AT WAR попал в инцидент
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17801.jpg" width=180 height=255>Paul Arnold - </STRONG>басист/вокалист группы <STRONG>AT WAR</STRONG> был случайно подстрелен вчера, во время охоты, в&nbsp;результате чего, у Пола было повреждено бедро.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Врачи обещают полное выздоровление.</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

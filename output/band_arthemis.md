@@ -38,6 +38,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.12.2002 reviews Проклятый корабль под названием ARTHEMIS
+
+<p>Второе творение итальянских power металлистов. Памятуя об ужасном самиздатовском дебюте этой команды двухлетней давности, я с большой опаской ставил этот диск для прослушивания. Но мои опасения не оправдались. Команду словно подменили, она неимоверно преобразилась и теперь, ее даже можно слушать не морща нос и не ужасаясь услышанных звуков. Альбом представляет собой стандартный итальянский power-speed metal второй лиги, напоминая своими мелодиями такие команды, как SECRET SPHERE, VISION DIVINE и WHITE SKULL, хотя иногда вспоминается и SONATA ARCTICA. Тевтонский звук, мощные риффы, хороший (правда плохо слышимый) вокал, мрачная атмосфера и неплохие мелодии на симфоническом фоне. Местами, даже можно назвать эту музыку неоклассической. Всем, кому нравится мелодичный и ритмичный power-speed metal, будет интересно послушать этот неплохой альбом, не найдя здесь ничего особенного и оригинального, но тем не менее получив определенную зарядку. Те же, кто ищут что-то особенное или действительно очень хорошее, могут оставить альбом без внимания. Не беда...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 01.03.2005 news Новости ARTHEMIS
+
+<P><STRONG>ARTHEMIS</STRONG> войдут в <STRONG>New Sin Studio</STRONG> 5 марта для записи нового альбома "<STRONG>Back from The Heat</STRONG>", который выйдет&nbsp;21 июня в Японии на <STRONG>Avalon/Marquee</STRONG>, а в ноябре на <STRONG>Underground Symphony</STRONG>. Некоторые названия песен: <STRONG>Desert Storm, Rise Up From The Ashes, Only Your Heart Can Save Us, Free Spirit, Thunder Wrath, Star Wars, Here Comes The Fury, The Vampire Strikes Back, Ocean's Call, Touch The Sky</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 01.03.2005 news ARTHEMIS News
+
+<P><STRONG>ARTHEMIS</STRONG> will enter to <STRONG>New Sin Studio</STRONG> on 5 day of march to record their new album "<STRONG>Back From The Heat</STRONG>". This album will be released on 21 day of June in Japan through <STRONG>Avalon/Marquee</STRONG> and in the rest of the world in November through <STRONG>Underground Symphony</STRONG>. Some tracknames: <STRONG>Desert Storm, Rise Up From The Ashes, Only Your Heart Can Save Us, Free Spirit, Thunder Wrath, Star Wars, Here Comes The Fury, The Vampire Strikes Back, Ocean's Call, Touch The Sky</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

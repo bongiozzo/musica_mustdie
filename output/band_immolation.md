@@ -228,6 +228,321 @@ Available editions:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.04.1999 news 
+
+<p>Новые альбомы Immolation "Failure For Gods" и God Dethroned "Bloody Blaphemey" выйдут 1 июня.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Immolation только что закончили запись нового альбома "Failure For Gods". Он выйдет в мае и будет представлять собой death-metal в стиле Morbid Angel.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Immolation войдут в студию
+
+<p>Immolation войдут в студию летом для записи новой пластинки. В неё войдут 8 новых песен. Пластинка выйдет до конца года.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Immolation will enter studio
+
+<p>Immolation will enter to studio in the summer for an entry of a new record. There are 8 new songs on this album. The CD will release to an extremity of a year.</p>
+
+Автор: Vit Belov
+
+### 14.09.2000 news Новый альбом Immolation уже записан
+
+<p> Новый альбом Immolation уже записан и остается только ждать его релиза, который состоится в конце этого года. Альбом называется "Close To A World Below".</p>
+
+Автор: Nybras
+
+### 14.09.2000 news New Immolation album has already been recorded
+
+<p> The new Immolation album has already been recorded this past June in Millbrook Sound Studios, with producer Paul Orofino. The album will be released in Fall 2000 and it is titled "Close To A World Below". As if this is not enough the band plans to record soon another album and have ready for a fall 2001 release.</p>
+
+Автор: Nybras
+
+### 22.09.2000 news О релизах Metal Blade до конца 2000-го  года
+
+<p> Европейский отдел Metal Blade афишировал список своих релизов, запланированных до конца этого года. Итак:<br>25.09.00 CANNIBAL CORPSE Live Cannibalism (новый альбом)<br> 25.09.00 CANNIBAL CORPSE Live Cannibalism (новое видео)<br> 09.10.00 LIZZY BORDEN Deal With The Devil (новый альбом)<br> 23.10.00 ANCIENT God Loves The Dead (новый мини-диск)<br> 23.10.00 SIX FEET UNDER Graveyard Classics (новый альбом)<br> 06.11.00 IMMOLATION Close To A World Below (новый альбом)<br> 06.11.00 VOMITORY Revelation Nausea (новый альбом)<br> 20.11.00 DIES IRAE Immolated (новый альбом)<br> 20.11.00 VADER Reign Forever World (новый альбом)<br> 20.11.00 CHINCHILLA Madness (новый альбом)<br></p>
+
+Автор: Nybras
+
+### 02.03.2001 news Polish Assault
+
+<p>DECAPITATED will be on tour with IMMOLATION from May 1st to May 20th. Other support bands on various dates include: DERANGED, DESTROYER 666 and SOUL DEMISE. The band will record their second album, Nihility, at Red Studio in August. It will be out through Wicked World/Earache in October. Decapitated are still working on a U.S. tour. The tentative date has been set for July 2001. Digger International and Earache America confirm that the band will open for VADER and two other bands, so everything depends now on the Immigration Office and the American Embassy in Poland...</p>
+
+Автор: Yermola
+
+### 10.04.2001 news Tourdates.......
+
+<p> Here are the final IMMOLATION Tourdates:</p>
+<p></p>
+<p> IMMOLATION</p>
+<p> Deranged / Destroyer 666</p>
+<p> Decapitated / Soul Demise</p>
+<p></p>
+<p> 01.05. UK London Underworld</p>
+<p> 02.05. UK Edinburgh Attic</p>
+<p> 03.05. UK Bradford Rio</p>
+<p> 04.05. NL Groningen Vera</p>
+<p> 05.05. BL Vosselaar Biebob</p>
+<p> 06.05. NL Rotterdam Baroeg</p>
+<p> 07.05. FR Rennes LґAntipode</p>
+<p> 08.05. D Essen Zeche Carl</p>
+<p> 09.05. D Berlin Razzle Dazzle</p>
+<p> 10.05. D Hamburg Marx</p>
+<p> 11.05. D Offenbach Hafenbahn</p>
+<p> 12.05. D Zwickau Alarm</p>
+<p> 13.05. PL Warsow Proxima</p>
+<p> 14.05. CZ Praha Rock Cafe</p>
+<p> 15.05. SLO Lubljana Metalkova</p>
+<p> 16.05. CRO Zagreb Mocvara</p>
+<p> 17.05. SLK Ruzomberok Papiernik</p>
+<p> 18.05. A Vienna Arena</p>
+<p> 19.05. I Prato Siddharta</p>
+<p> 20.05. CH Will Remise</p>
+<p> 21.05. FR Paris Gibus</p>
+<p> Booking by metallysee@skynet.be</p>
+<p></p>
+<p> CHINCHILLA</p>
+<p> all dates in Germany!</p>
+<p> Fr. 13.04.01 Logo Hamburg</p>
+<p> Sa. 14.04.01 Spritzenhaus Frankfurt</p>
+<p> So. 15.04.01 Zur Eiche Crailsheim</p>
+<p> Sa. 21.04.01 Hammerfestival Bьren Harth</p>
+<p> Sa. 28.04.01 Festhalle Dagersheim</p>
+<p> Mo. 30.04.01 Haus der Jugend Mainz</p>
+<p></p>
+<p> PARTY-SAN OPEN AIR</p>
+<p> feat. Metal Blade acts: FLESHCRAWL, GOD DETHRONED, VOMITORY</p>
+<p> other appearing acts: FINNTROLL, CENTINEX, PENTACLE, PURGATORY, ADORNED</p>
+<p> BROOD, SEIRIM + many more</p>
+<p> 11.08.2001</p>
+<p> Bad Berka (Germany)</p>
+<p> http://www.party-san.de</p>
+<p></p>
+<p> WACKEN OPEN AIR</p>
+<p> feat. Metal Blade acts: BRAINSTORM, CHINCHILLA, TOURNIQUET</p>
+<p> other appearing acts: too many to mention, check their website.</p>
+<p> 03.04.08. 2001</p>
+<p> Wacken (Germany)</p>
+<p> www.wacken-open-air.de</p>
+<p></p>
+
+Автор: Yermola
+
+### 26.04.2001 reviews Долгожданный великий альбом великой группы
+
+<P>Вот и дождались! Об этом диске точно будут говорить долго - да я и сам и за последние год-два не упомню ни у кого подобных жестоко-смертельных релизов.</P>
+<P>Очень хорошо, что музыканты немного отошли от того, что играли ранее - здесь, к счастью, нет совершенно невоспринимаемой заумности двух предыдущих дисков; этот опус стилистически ближе всего к их же дебютнику. Музыка представляет собой самый замечательный БРУТАЛ ДЕТ, от которого у неподготовленного слушателя натурально будут болеть ушки и сыпаться перхоть с плеши.</P>
+<P>Темы данного альбома более всего похожи на Морбид Ангел времен "Ковенант", но только "Договор" с этим альбомом и рядом не лежал. Если все Ангеловские риффы производят впечатление, что великий тормоз Tрей Азагтот долго стоит, глядя на гриф, раздумывая, какую бы из струн ему дернуть, то новый альбом "Жертвоприношения" хоть вроде и обыгрывает похожий материал, но все исполнено на самом высоком профессиональном уровне и даже сравнительно медленные треки совсем не кажутся заунывными, а прямо-таки брызжут энергией. И более того - эти дОбры мОлодцы и в самом деле умеют выводить басом МЕЛОДИИ, а не однообразную пило-долбежку. И именно из-за этого (профессионализм + мелодизм в сочетании с тяжестью) просто не могу ругать этих парней за некоторые подражания и постоянно возникающее при прослушивании ощущение, что похожий на этот кусок я уже когда-то где-то у кого-то слышал. Хотя правильнее говорить не о "подражании", а о "синтезе" ибо в этом альбоме нашло отражение практически все лучшее, что было сыграно в БРУТАЛ ДЕТе за многие годы, и в частности после этого релиза альбомы Жестокого Ангела аж по самый 98 год можно смело сдавать в утиль, коим они и являются.</P>
+<P>Отдельно надо сказать о текстах песен: так этого еврейского мертвяка, Иисуса Иосифовича Назорейского, еще никто не поносил - даже сам Глен Бентон в своих худших ночных кошмарах. И что самое интересное - ребята умудряются обходиться БЕЗ МАТА, но тем не менее тексты каким-то непостижимым образом выглядят еще пошлее, чем если бы в них были одни трехэтажные матюги!</P>
+<P>Рекомендация - это наилучший диск, который надо включать на полную громкость через двухсотваттные колонки перед Центрами Христианской Культуры и крутить на повторе до тех пор, пока оттуда не разбежится с воплями вся Свора Иисуса.</P>
+Автор: Alexey Pitirimov
+
+### 25.06.2001 news Metal Blade news....
+
+<p>Here's a list of dates of METAL BLADE bands on tour. Check local listings:</p>
+<p> CATASTROPHIC <br> 7/05 Albany, NY Valentines <br> 7/06 Poughkeepsie, NY The Chance <br> 7/07 Sayre, PA Hurricane Billboards <br> 7/08 Syracuse, NY Action Sports Center <br> 7/09 Meriden, CT Hanover House <br> 7/12 Hudson, NH Club Euphoria <br> 7/13 Worcester, MA The Palladium <br> 7/14 Toronto, ONT Kathedral <br> 7/15 Montreal, Oue, Can. L'x <br> 7/16 Randolph, NJ Obsessions Nite Club <br> 7/17 New York, NY Wetlands Preserve <br> 7/18 Morgan, NJ Club Krome <br> 7/19 Baltimore, MD Ottobar <br> 7/20 Norfolk, VA Taj Mahal <br> 7/21 Columbia, SC Uncle Doctors <br> 7/22 Ft. Lauderdale, FL Culture Room <br> 7/23 Orlando, FL Sapphire Supper Club <br> 7/25 Houston, TX Fitzgerald's <br> 7/26 Dallas, TX Galaxy Club <br> 7/27 Corpus Christi, TX Zero's <br> 7/28 Austin, TX The Backroom <br> 7/29 Oklahoma City, OK Diamond Ballroom <br> 7/31 Tempe, AZ Boston's Night Club <br> 8/01 San Diego, CA Brick by Brick <br> 8/02 San Jose, CA The Cactus Club <br> 8/03 San Francisco, CA The Pound at Pier 96 <br> 8/04 Anaheim, CA The Shack <br> 8/05 Hollywood, CA Whiskey a Go Go <br> 8/07 Fort Collins, CO Starlight <br> 8/08 Lawrence, KS The Bottleneck <br> 8/09 Aurora, IL Riley's <br> 8/10 Milwaukee, WI Milwaukee Auditorium <br> 8/11 Clinton, IA Pig Pen <br> 8/12 St. Paul, MN The Lab <br> 8/13 St Louis, MO Creepy Crawl <br> 8/14 Detroit, MI I-Rock <br> 8/15 Lorain, OH Flying Machine <br> 8/16 W. Springfield, VA Jaxx <br> 8/17 Spartanburg, SC Ground Zero <br> 8/18 Tampa, FL Brass Mug <br> 8/19 Atlanta, GA The Masquerade <br> CATASTROPHIC-EUROPEAN DATES <br> 9/01 Trier, Germany Exil <br> 9/02 Vooselaar, Belgium Biebob <br> 9/03 Paris, France Locomotive <br> 9/04 Essen, Germany Zeche Carl <br> 9/05 Offenbach, German Hafenbahn <br> 9/06 Hengelo, Holland Metropool <br> 9/07 Zaandam, Holland Kade <br> 9/08 Helmond, Holland Plato <br> 9/09 Rotterdamn, Holland Baroeg <br> 9/10 Hamburg, Germany Markthale <br> 9/11 Berlin, Germany Razzle Dazzle <br> 9/12 Warsow, Poland Proxima <br> 9/13 Praha, Czech Republic Futurum <br> 9/14 Zwickau, Germany Alarm <br> 9/15 Vienna, Austria Arena <br> 9/16 Bresso, Italy Idian's Saloon <br> VADER <br> 6/28 Oklahoma City, OK Diamond Ballroom <br> 6/29 Fayetteville, AR Clunk Music Hall <br> 6/30 St. Louis, MO Creepy Crawl <br> 7/01 Aurora, IL Rileys <br> 7/03 Bowling Green, OH Howards Club H <br> 7/04 Columbus, OH Whiskey Pete's <br> 7/05 Detroit, MI The Shelter <br> 7/07 Toronto, ONT Kathedral Room <br> 7/08 Montreal, QUE Salle L'X <br> 7/10 Rochester, NY Water Street Music Hall <br> 7/11 Albany, NY Valentines <br> 7/12 Randolph, NJ Obsessions <br> 7/13 Worcester, MA Palladium <br> 7/14 Brooklyn, NY Lamour <br> 7/15 Springfield, VA Jaxx <br> 7/18 Winston-Salem, NC Ziggy's <br> 7/19 Birmingham, AL Boiler Room <br> 7/20 Tallahassee, FL Cow Haus <br> 7/21 Tampa, FL Brass Mug (Tent Show) <br> 7/24 Houston, TX The Engine Room <br> 7/25 Arlington, TX Dreamworld <br> 7/28 Anaheim, CA Chain Reaction <br> 7/29 San Francisco, CA The Pound <br> IMMOLATION and Krisiun (* Immolation only) <br> 8/03 Poughkeepsie, NY The Chance * <br> 8/04 Jackson Heights, NY Castle Heights * <br> 8/05 Syracuse, NY Planet 505 * <br> 8/06 Boston, MA Bill's Bar and Lounge * <br> 8/07 Randolph, NJ Obsessions * <br> 8/09 Cleveland, OH Agora Theatre * <br> 8/10 Detroit, MI I-Rock * <br> 8/11 Milwaukee, WI Milwaukee Auditorium <br> 8/12 St Paul, MN The Lab <br> 8/13 Lawrence, KS The Bottleneck <br> 8/14 Colorado Springs, CO Colorado Music Hall <br> 8/16 West Hollywood, CA The Whiskey A Go-Go <br> 8/17 Tempe, AZ Boston's Night Club <br> 8/19 Austin, TX The Backroom <br> 8/21 Tampa, FL The Brass Mug <br> 8/22 Ft Lauderdale, FL Culture Room <br> 8/23 Spartanburg, SC Ground Zero <br> 8/24 Richmond, VA Twisters <br> 8/25 Norfolk, VA Taj Mahal <br> 8/26 West Springfield, VA Jaxx <br> 8/27 New York, NY Wetlands <br> FLOTSAM & JETSAM <br> 7/28 West Hollywood, CA Troubadour <br> 9/28 Dallas, TX Canyon Club <br> 9/29 Austin, TX The Metro <br> 10/02 Tampa, FL Brass Mug <br> 10/06 Richmond, VA Canal Club <br> 10/13 Lorain, OH Flying Machine <br> 10/14 Aurora, IL Riley's <br> 10/20 Tucson, AZ The Rock <br> 11/02 Reseda, CA Paladino's <br> SPOCK'S BEARD <br> 7/15 Detroit, MI The Magic Bag <br> 7/16 Toronto, ONT tba <br> 7/17 Montreal, QUE tba <br> 7/18 Quebec City, QUE Le Dagobert <br> 7/20 Boston, MA House Of Blues <br> 7/21 W. Springfield, VA Jaxx <br> 7/22 Philadelphia, PA North Star Bar <br> 7/23 New York, NY The Bottom Line <br> 7/25 Lansing, IL JJ Kelly's <br> 7/26 Milwaukee, WI Shank Hall <br> 7/29 Las Vegas, NV Legends <br> 7/30 Los Angeles, CA tba <br> 7/31 San Francisco, CA Great American Music Hall <br> 8/01 San Diego, CA Cane's <br> DAVE BROCKIE EXPERIENCE <br> 8/30 Charlotte, NC Fat City <br> 9/01 Atlanta, GA Star Bar <br> 9/05 New Orleans, LA Dixie Taverne <br> 9/06 Houston, TX Fitzgerald's <br> 9/11 Tempe, AZ Big Fish Pub <br> 9/30 Cincinnati, OH Top Cat's <br> 10/01 Muncie, IN Fraction's <br> 10/02 Cleveland, OH Blind Lemon <br> 10/05 Worcester, MA Lucky Dog <br> LIZZY BORDEN <br> 7/06 Hollywood, CA House of Blues <br> 7/12 Anaheim, CA House of Blues <br> 7/13 San Francisco, CA Maritime Hall Ballroom <br> 7/14 Santa Cruz, CA Palookaville, Santa Cruz <br> JACOBS DREAM <br> 7/28 Columbus OH Park Metal Festival</p>
+
+Автор: Yermola
+
+### 31.05.2002 news Несвятой культ....
+
+<p>Мясники-ветераны из Нью-Йорка "IMMOLATION" подписали сделку с лэйблом Olympic Records и сейчас микшируют свой первый альбом для лэйбла "Unholy Cult" в студии Millbrook с продюссером Paul Orofino. Трек-лист: <BR><BR> 01. Of Martyrs And Men<BR> 02. Sinful Nature<BR> 03. Unholy Cult<BR> 04. Wolf Among The Flock<BR> 05. Reluctant Messiah<BR> 06. A Kingdom Divided<BR> 07. Rival The Eminent<BR> 08. Bring Them Down<BR></p>
+
+Автор: Yermola
+
+### 31.05.2002 news IMMOLATION Sign With Olympic Records...
+
+<p>Veteran New York death metallers IMMOLATION have inked a deal with Olympic Records and are currently mixing their first album for the label, entitled Unholy Cult, at Millbrook Studios in Millbrook, New York with producer Paul Orofino. The full track listing for the effort is as follows: <BR><BR> 01. Of Martyrs And Men<BR> 02. Sinful Nature<BR> 03. Unholy Cult<BR> 04. Wolf Among The Flock<BR> 05. Reluctant Messiah<BR> 06. A Kingdom Divided<BR> 07. Rival The Eminent<BR> 08. Bring Them Down<BR></p>
+
+Автор: Yermola
+
+### 13.11.2002 articles &quot;We respect everyone that crosses our path&quot; (Bob @ Immolation)
+
+<p><I>Band: IMMOLATION<BR> Style: death metal<BR> MUSICA's questions answered by: Bob Vigna (guitars)</I></p>
+<P></>
+<P> <B>As far as I know, you've been working hard on a new album lately. How much is done and how much is left to be done? What will be the title?</B></>
+<P> - The new cd is out, it's called "Unholy Cult". Recorded in May and got released in October. It is the darkest and heaviest album we've done yet!</>
+<P> <B>Shall we expect good 'ol IMMOLATION? Perhaps some surprises are prepared?</B></>
+<P> - "Unholy Cult" has a lot of different stuff on it. The songs are fast, slow, heavy intense. There is a lot of emotion and feeling. The production is the best yet, very clear, but very powerful! We always add some surprises in the music and there are plenty of them on this album!</>
+<P> <B>What studio and what producer you chose this time?</B></>
+<P> - We recorded the new album in Millbrook Sound Studios once again with producer Paul Orofino. This is the 3rd album we have done with Paul, and each one gets better and better. Paul is very easy to work with and really brings out the best in the band.</>
+<P> <B>What's the usual process of writing songs in IMMOLATION?</B></>
+<P> - Usually the music comes first. Then once that is solid we start to get the lyrics together. Me and Ross collaborate on a lot with the songs and we go over them again and again to make sure everything is 100% perfect.</>
+<P> <B>Being a death-metal band you managed to create your own unique style. Was it an intentional step (not to follow somebody's path) or it's more natural?</B></>
+<P> - Well it's both. We try hard to be original and create very unique music. This definitely comes naturally. We go by our feelings and use that to come up with the ideas and content of the songs. We have our own identity which is what you want to do. You want to be recognizable and when someone hears our song, whether it is new or old, they know it is us.</>
+<P> <B>By the way, have some of you ever tried to write something different from what you do in IMMOLATION, even just for fun? For instance, a true-black-metal song, a rock ballad, a folk tune etc...?</B></>
+<P> - I would like to try some other things. But when we are working full -time day jobs and so busy all the time, it's hard to find time for extra projects. Most of our spare time is spent dealing with IMMOLATION. I would like to try something completely different one day, lighter music, something completely different. For now I am happy doing IMMOLATION!</>
+<P> <B>Do all the band members still work for the same company? If yes, how much time do you discuss questions dealing with IMMOLATION instead of working? :-)</B></>
+<P> - Yes, me and Ross work with Tom on his business. Alex however works for a music store in NYC. It's hard making time for the interviews, usually people will send them to us for a couple of months and then we will answer them all at one time. There has not been much to talk about until June when the album was completed.</>
+<P> <B>Continuing the previous question, have you ever got bored and irritated because of seeing your band mates all the time: at work, at the rehearsal point and then on tour?</B></>
+<P> - No, we are not on top of each other all day, so we get along fine. We get along well both at home and on the road.</>
+<P> <B>I guess (especially after looking at your thanx list inside the CD) you know personally very many bands from all over the world. Who of them you keep really good relationship with? I mean, keep in touch, have beer together from time to time etc?</B></>
+<P> - We know a lot of bands, but not too many are from our local area. Whenever bands come through on tour we go out to the shows and hang out. We support the shows that come through and give our support to our friends when they are in town.</>
+<P> <B>Can you recall some amusing stories which happened during the tours you took part in (maybe about other bands)?</B></>
+<P> - There are a lot of happenings on the road. We always get along with the bands, and have fun. We are pretty easy going guys and like to check out the sights everywhere we go. I'm sure we'll have some good stories after the xmas fests are done in December!</>
+<P></>
+<P><B>What is your marital status? Do you have children? What I wonder is: do / would you impose your child your own attitude to religion which I guess differs from what he / she may hear on TV or to be taught in school?</B></>
+<P> - Well I am not married and don't have children, but I would not impose anything on my kids other than to do their best in anything they do in life. We have a lot of religious overtones in our music, but we are not walking around each day talking about it, it plays no part in our lives at all.</>
+<P> <B>How does your attitude to Islam differs from the one to Christianity?</B></>
+<P> - It's all the same non-sense. What happened on Sept 11th was due to the abuse of religious beliefs and weak-minded followers. Religion in general is just a sick thing. It might be good in some cases, but the more I see the bullshit involved with it and where it takes people is just a lemon! Besides how we feel about it, we respect everyone that crosses our path. We could care less if you want to believe in something, we just point out all the bad parts of it in our music. We treat people very well unless they give us reason not to.</>
+<P> <B>What would you say to a European who tells you that he doesn't like the American way of life?</B></>
+<P> - I would tell him to stay in Europe!</>
+<P> <B>Who do you like most: Britney Spears or Christina Aguilera?</B></>
+<P> - Can't I have both?</>
+<P> <B>What are you going to do right after you answer all these stupid questions?</B></>
+<P> - I'm going to email them all to you and then start another interview! Who knew metal could be so exciting! <I>(laughs)</I></>
+<P> <B>Please, something to finish this interview with...</B></>
+<P> - Thanks for the cool interview, we appreciate it and the support greatly! The new album "Unholy Cult" is out by the time we speak... be sure to get it as it is sure to blow you away! Thanks to the fans for all their support and best regards!</>
+<P></>
+<P> <B>Questions by Myke, exclusively for MUSICA and VAE SOLIS. Conducted by Kai Mathias Stalhammar.</B></>
+<P></>
+
+Автор: Kai Mathias Stalhammar
+
+### 09.03.2003 reviews Нечестивый культ
+
+<p>Ветераны американского брутального death metal не собираются отступать. Заключив новый контракт с Listenable records, музыканты записали свой шестой альбом, который стал одной из лучших работ группы за пятнадцать лет существования. Слишком прогрессивный материал для death metal, с череподробительным сыроватым звуком, неимоверной брутальностью и агрессией, при этом содержащий качественную подборку очень неплохих мелодий. Этот альбом - один из тех, который доказывает, что death metal вовсе не органиченный стиль, зажатый в определенные рамки. IMMOLATION удалось немного раздвинуть рамки стиля и установить новые стандарты смертельной музыки. Великолепная техника, давящая на уши тяжесть и мощь материала, сочный гроулинг, интенсивные жесткие риффы, более мрачные чем раньше настроения, музыка с энергией атомной бомбы. Прослушивая этот альбом, действительно получаешь удовольствие. Умная интересная музыка. Рекомендую всем любителям хорошего, и даже можно сказать "интеллигентного" death metal.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 13.02.2004 news Immolation выпустили DVD
+
+<P><IMG height=222 alt="" hspace=0 src="/images/news_rus/2004.02/6027.jpg" width=150 align="left" border=0>Death-metal банда <B>IMMOLATION</B> выпустила свой первый DVD <B>'Bringing Dawn The World Tour'</B> 27 января на <B>Listenable Records</B>. На него вошли: запись шоу в Амстердаме, снятое 9 камерами, а также несколько бутлегов с&nbsp;последнего тура. </P>
+<P>Из других новостей, <B>Listenable </B>переиздадут в 2004 году <B>'Stepping on angels'</B>&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 13.02.2004 news IMMOLATION released DVD
+
+<P><IMG height=222 alt="" hspace=0 src="/images/news/2004.02/6028.jpg" width=150 align="left" border=0>Death metal band&nbsp;<B>IMMOLATION</B> are releasing their debut DVD on jan27, 2004 through <B>LISTENABLE RECORDS</B>. <BR><BR><B>IMMOLATION</B> 's DVD is a very fan orientated product gathering several shows in support of their successful 2002 album 'Unholy cult'. It features a show filmed in Amsterdam in the huge place of the <B>ROCK HEINEKEN</B> music hall in front of 3000 people, filmed with 7 cameras. 3 other <I>bonus shows </I>are included, more in a high quality sounding bootleg range :<BR>- A raging gig in Paris where the audience goes totally beserk,<BR>- songs from a show in Tilburg at the 013,<BR>- and a very recent show filmed in Los Angeles at the Whisky Club </P>
+<P><BR><B><SPAN style="COLOR: #ffffff"><B>IMMOLATION</B></SPAN></B> will also re-release the album <B>'Stepping on angels'</B> on <B>LISTENABLE</B> with an entirely new packaging and unreleased bonuses in mid 2004 !. More news about this much sought after gem shortly.</P>
+Автор: Vit Belov
+
+### 09.10.2004 news Новый альбом IMMOLATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>IMMOLATION</STRONG> <STRONG>"Harnessing Ruin" </STRONG>выйдет в январе на Listenable. Трэк-лист:</FONT></P>
+<P>01. <B>Swarm of Terror</B><BR>02. <B>Our Savior Sleeps</B><BR>03. <B>Challenge the Storm</B><BR>04. <B>Harnessing Ruin</B><BR>05. <B>Dead to Me</B><BR>06. <B>Son of Iniquity</B><BR>07. <B>My Own Enemy</B><BR>08. <B>Crown the Liar</B><BR>09. <B>At Mourning's Twilight</B> </P>
+Автор: Vit Belov
+
+### 10.10.2004 news IMMOLATION ste title and track-list
+
+<P>Long-running New York-based death metallers <STRONG>IMMOLATION</STRONG> have set "<STRONG>Harnessing Ruin</STRONG>" as the title of their new album, tentatively due late January 2005 via <STRONG>Listenable Records</STRONG> in Europe (<STRONG>Olympic Recordings</STRONG> in the U.S.). The album was recorded at <STRONG>Millbrook Sound Studios</STRONG> with<STRONG> Paul Orofino</STRONG> producing. A new video for the track "<STRONG>Dead to Me</STRONG>" is currently in the works and wil be shoot in the end of October in New York.&nbsp;The front cover artwork should be done again by <STRONG>Andreas Marschall</STRONG>. Track list: </P>
+<P>01. Swarm of Terror<BR>02. Our Savior Sleeps<BR>03. Challenge the Storm<BR>04. Harnessing Ruin<BR>05. Dead to Me<BR>06. Son of Iniquity<BR>07. My Own Enemy<BR>08. Crown the Liar<BR>09. At Mourning's Twilight </P>
+Автор: Vit Belov
+
+### 14.01.2007 news Новая работа IMMOLATION
+
+<P>Нью-йоркские дэтстеры&nbsp;<B>IMMOLATION</B> закончили работу в <B>Millbrook Sound Studios</B> с продюсером <B>Paul Orofino</B>. Для начала, группа запланировала выпуск сингла <STRONG>"Hope and Horror",</STRONG> в который войдут следующие вещи: <BR><BR>1. <B>Den of Thieves</B><BR>2. <B>The Condemned</B><BR>3. <B>The Struggle of Hope and Horror</B> (instrumental)<BR><BR>Спустя некоторое время, выйдет и полнометражный альбом под названием <STRONG>"Shadows in the Light",</STRONG> в который войдут следующие композиции:<BR><BR>1. <B>Hate's Plague</B><BR>2. <B>Passion Kill</B><BR>3. <B>World Agony</B><BR>4. <B>Tarnished</B><BR>5. <B>The Weight of Devotion</B><BR>6. <B>Breathing the Dark</B><BR>7. <B>Deliverer of Evil</B><BR>8. <B>Shadows in the Light</B><BR>9. <B>Lying with Demons</B><BR>10. <B>Whispering Death</B><BR><BR>Согласно пресс-релизу, <B>"Shadows in the Light"</B> получился очень агрессивным, эмоциональным и восхитительным. Эта работа содержит все самые мощнейшие аттрибуты предыдущих работ группы. Совершенная работа с душевными соло, яростными риффами и гремучей работой ударника. Американский релиз будет доступен через <B>Century Media</B>, а&nbsp;европейский через <B>Listenable Records</B></P>
+Автор: Dimas
+
+### 06.03.2007 news IMMOLATION - 8 мая
+
+<P>Новый альбом <STRONG>IMMOLATION "Shadows In The Light"</STRONG> выходит 8 мая на <STRONG>Century Media</STRONG>. новую песню "<STRONG>World Agony</STRONG>" можно послушать на страничке группы на <STRONG>MySpace</STRONG>: <A href="http://www.centurymedia.com/us/www.myspace.com/immolationny">http://www.centurymedia.com/us/www.myspace.com/immolationny</A></P>
+Автор: Vit Belov
+
+### 27.07.2007 news Драммер IMMOLATION едет к нам
+
+<P>Лидер <STRONG>INCANTATION</STRONG> <STRONG>John McEntee</STRONG> объявил состав группы на ближайший тур по Европе, в рамках которого группа посетит и Россию. </P>
+<P><STRONG>John McEntree</STRONG> – Guitar/Vocals<BR><B>Rayash</B> (SUPREME LORD) - Bass<BR><B>Craig Smilowski</B> (GOREAPHOBIA, IMMOLATION) - Drums</P>
+Автор: Vit Belov
+
+### 04.08.2007 reviews Борьба надежды и ужаса
+
+<P>Группа IMMOLATION для меня является особенной, она&nbsp; имеет свою яркую, неповторимую атмосферу и легко узнаваемый почерк благодаря&nbsp; виртуозной манере игры гитариста и автора музыки Роберта (Robert Vigna). Совсем недавно они выпустили замечательный альбом "Shadows In The Light", продолжением которого и является EP/DVD "Hope and Horror".&nbsp;&nbsp; </P>
+<P>Аудио материал представлен двумя новыми песнями, не самыми яркими для этой группы, и красивой семиминутной инструментальной пьесой ("The struggle of hope and horror"), которая наполненна различными гитарными "фишками" и&nbsp; соло. </P>
+<P>А на DVD&nbsp; нас ждут 10 песен с&nbsp; выступления в клубе BBKING (Нью-Йорк). Хиты альбомов "Unholy Cult" (Unholy cult, Sinful nature) и "Harnessing Ruin" (Dead to me,Harnessing ruin)переплетаются с более старым материалом. Великолепное исполнение, подача материала,хорошее качество картинки, настоящий драйв! Интересно наблюдать игру Стива Шэлати (Steve Shalaty ) - его манера исполнения весьма отличается от предыдущего барабанщика группы. </P>
+<P>Из плюсов так же можно отметить прекрасное оформление релиза - на обложке изображены ангел и демон, соседствующие рядом, что видимо символизирует "надежду и ужас", и упаковку - super jewel box - диски лежат друг на дружке и крепления для них невозможно сломать!</P>
+<P>Из минусов -&nbsp; звук на видео получился жиденьким - хорошо слышно, что мастеринг не проводился, а из-за этого часть гитарный партий, как солирующих, так и основных просто теряется в общем звучании.</P>
+Автор: Bizarre
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 27.06.2009 news IMMOLATION на Nuclear Blast
+
+<P><STRONG>IMMOLATION </STRONG>подписали контркт с <STRONG>Nuclear Blast</STRONG>. Группа выпустит новый альбом в начале 2010 года.</P>
+Автор: Vit Belov
+
+### 27.10.2009 news IMMOLATION начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>IMMOLATION</STRONG> вошли в <STRONG>Millbrook Sound Studios</STRONG>&nbsp;в Нью-Йорке для записи нового альбома, который выйдет в 2010 году на <STRONG>Nuclear Blast.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 08.12.2009 news Новый альбом IMMOLATION
+
+<P><STRONG>IMMOLATION </STRONG>назвали свой новый альбом <STRONG>"Majesty And Decay". </STRONG>Пластинка выйдет в начале следующего года на <STRONG>Nuclear Blast</STRONG>. Диск был записан в <STRONG>Millbrook Sound Studios</STRONG>&nbsp;в Нью-Йорке с постоянным продюсером группы <STRONG>Paul Orofino</STRONG>. Свёл альбом <STRONG>Zack Ohren</STRONG>, ранее работавший с <STRONG>DECREPIT BIRTH</STRONG>, <B>SUFFOCATION</B>&nbsp;и <STRONG>ALL SHALL PERISH. </STRONG>Трэк-лист:</P>
+<P>01. <B>Intro</B><BR>02. <B>The Purge</B><BR>03. <B>A Token Of Malice</B><BR>04. <B>Majesty And Decay</B><BR>05. <B>Divine Code</B><BR>06. <B>In Human Form</B><BR>07. <B>A Glorious Epoch</B><BR>08. <B>Intro</B><BR>09. <B>A Thunderous Consequence</B><BR>10. <B>The Rapture of Ghosts</B><BR>11. <B>Power And Shame</B><BR>12. <B>The Comfort of Cowards</B></P>
+Автор: Vit Belov
+
+### 26.12.2009 news Обложка нового IMMOLATION
+
+<P><STRONG>IMMOLATION </STRONG>опубликовали обложку своего нового альбома <STRONG>"Majesty And Decay"</STRONG>, который выйдет в начале следующего года на <STRONG>Nuclear Blast</STRONG>.</P>
+<P><center><IMG height=398 src="/images/news_rus/2009.12/15859.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 16.01.2010 news Новая песня IMMOLATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трэк <STRONG>IMMOLATION "The Purge" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/immolationny">http://www.myspace.com/immolationny</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня попадёт на новый альбом ветеранов <STRONG>"Majesty And Decay".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 29.03.2010 reviews Американцы продолжают жертвоприношения
+
+<P>Nuclear Blast подобен старому, но качественно сделанному кораблю, который, однажды взяв курс, продолжает своё плавание, несмотря на все новомодные веяния в кораблестроении. Повальное нелегальное скачивание из сети Интернет и странные стили тяжёлой музыки, ныне популярные у молодёжи, пытаются пустить ко дну тяжеловесную посудину, но она всё ещё держится и даже чувствует себя очень уверенно. К сожалению, другие судна, следовавшие в том же направлении, но меньшего водоизмещения тонут, и выжившие пассажиры пристают к этому ковчегу и продолжают свой путь. Nuclear Blast собирает этих жертв кораблекрушения на своём борту, и совсем скоро не останется ни одной «ветеранской» группы, которая не заключила бы контракт с этими немцами.</P>
+<P>Обрели своё пристанище и великолепные ветераны IMMOLATION. Их старомодный, но ужасно мощный и интересный death-metal не смог пробить себе дорогу самостоятельно, и ему потребовалась помощь. Помощь крупнейшего независимого лэйбла. К счастью всех поклонников тяжёлой музыки, IMMOLATION теперь будут доступны широкому кругу населения нашей планеты, а их музыка, безусловно, заслуживает такого бережного отношения. Мощный брутальный и гипертехничный материал, выполненный в среднем темпе, завораживает и не даёт вздохнуть. Великолепные мелодии, глубоко упрятанные в плотном звучании и вырывающиеся наружу со звуком соло-гитары, нагромождение риффов, складывающееся в сознании внимательного слушателя в завораживающую картину, и неистовый забой, отбирающий все моральные силы. Вот, что такое музыка IMMOLATION. После прослушивания подобных альбомов не стоит рассчитывать на улучшение ментального самочувствия и подъём духа.</P>
+<P>Конечно, необходимо отметить, что “Majesty And Decay” вряд ли является лучшей работой американцев. Пластинке местами не хватает глобального разнообразия, и поверхностный слушатель может даже заскучать, но мне кажется, при более внимательном отношении к подобной музыке разочарованных точно не останется.</P>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 19.07.2011 news Новый ролик IMMOLATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео<STRONG> IMMOLATION</STRONG> <STRONG>"A Glorious Epoch" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Tommy Jones. </STRONG>Трек взят с последнего альбома американцев <STRONG>"Majesty And Decay"</STRONG>, который вышел в 2010 году на<STRONG> Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/pMuzlblOBq8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/pMuzlblOBq8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.10.2011 news IMMOLATION: клип на песню &quot;Illumination&quot;
+
+<P><STRONG>IMMOLATION</STRONG> представили новое видео на трек <STRONG>"Illumination"</STRONG>. Песня <STRONG>"Illumination"</STRONG> вошла на интеренет миньон<STRONG> "Providence"</STRONG>, который официально доступен для скачивания и прослушивания по адресу: </P>
+<P><A href="http://www.scionav.com/collection/808/Scion-A/V-Presents:-Immolation---Providence">http://www.scionav.com/collection/808/Scion-A/V-Presents:-Immolation---Providence</A> </P>
+<P><STRONG>"Providence"</STRONG> (в формате CD и пластинки), так же, будет бесплатно распространяться в течении северо-американского турне группы (которое стартовало 5 октября),&nbsp;а так же, в некоторых магазинах сети <A href="http://www.scionav.com/project/31/Scion-Partners" target=_blank><U><FONT color=#0000ff>Scion Partner</FONT></U></A>.</P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/KFimlFRqQhA?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/KFimlFRqQhA?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 06.03.2013 news Новый альбом IMMOLATION
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25507.jpg" width=450 height=450>Новая работа <STRONG>IMMOLATION</STRONG> <STRONG>"Kingdom Of Conspiracy" </STRONG>выйдет в мае на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Sound Studios </STRONG>с постоянным продюсером <STRONG>Paul Orofino. </STRONG></P>
+<P>Сведение и мастеринг сделал <STRONG>Zack Ohren</STRONG> (<B>ALL SHALL PERISH</B>, <B>DECREPIT BIRTH</B>, <B>SUFFOCATION</B>). </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложку нарисовал<STRONG> Par Olofsson (IMMORTAL, THE FACELESS</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <B>Echoes Of Despair</B><BR>02. <B>Keep The Silence</B><BR>03. <B>Kingdom Of Conspiracy</B><BR>04. <B>Serving Divinity</B><BR>05. <B>The Great Sleep</B><BR>06. <B>Indoctrinate</B><BR>07. <B>A Spectacle of Lies</B><BR>08. <B>God Complex</B><BR>09. <B>Bound To Order</B><BR>10. <B>All That Awaits</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

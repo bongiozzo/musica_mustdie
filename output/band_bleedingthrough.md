@@ -41,6 +41,33 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.12.2008 reviews Интересные находки в рамках modern-death-metal
+
+<P>BLEEDING THROUGH ещё один оригинальный коллектив из США с современным звучанием. Эта группа, которую продюсировал Devin Townsend, продолжает традицию переработки стилей металла на американский лад под вывеской metalcore. На этот раз обработке подвергся black-thrash с симфоническими элементами.</P>
+<P>Поражает сразу инструментальное симфоническое интро со скрипками. Это не то, чего вы ожидаете от американской death-metal/metalcore команды. Видимо, по этой причине первая песня звучит очень странно. BLEEDING THROUGH напоминают DIMMU BORGIR с грязными thrash-metal гитарами. При этом звучание коллектива очень модное и сильно отличается от того, что делают в Европе. «Открывашка» несомненно самое интересное, что есть на этом альбоме, дальше музыка не так захватывает. Увлекательные моменты, прежде всего связанные с «игрой со звуком» и разнообразными «инженерскими» штучками, лишь случаются.</P>
+<P>Качественный альбом, демонстрирующий ещё одну грань modern death-metal в США. Если на следующем альбоме BLEEDING THROUGH к интересным звуковым решениям добавят запоминающиеся мелодии, все поклонники тяжёлой музыки будут лежать у их ног.</P>
+Автор: Vit Belov
+
+### 12.07.2009 news BLEEDING THROUGH на Rise Records
+
+<P><STRONG>BLEEDING THROUGH</STRONG> подписали контракт с независимым американским лэйблом <STRONG>Rise Records</STRONG>. Своё неожиданное решение музыканты объяснили желанием работать с быстро развивающейся рекорд-компанией.</P>
+Автор: Vit Belov
+
+### 05.02.2010 news Новый альбом BLEEDING THROUGH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=295 alt="" hspace=0 src="/images/news_rus/2010.02/16165.jpg" width=295 align=right border=5>Новый альбом <STRONG>BLEEDING THROUGH</STRONG> с нехитрым названием "<STRONG>Bleeding Through</STRONG>" выйдет 13 апреля на <STRONG>Rise Records</STRONG>.&nbsp;Трэк-лист:</FONT></P>
+<P>01. <B>A Resurrection</B><BR>02. <B>Anti-Hero</B><BR>03. <B>Your Abandonment</B><BR>04. <B>Fifteen Minutes</B><BR>05. <B>Salvation Never Found</B><BR>06. <B>Breathing In The Wrath</B><BR>07. <B>This Time Nothing Is Sacred</B><BR>08. <B>Divide The Armies</B><BR>09. <B>Drag Me To The Ocean</B><BR>10. <B>Light My Eyes</B><BR>11. <B>Slow Your Roll</B><BR>12. <B>Distortion, Devotion</B></P>
+Автор: Vit Belov
+
+### 05.01.2013 news BLEEDING THROUGH развалились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После 14 лет существования развалилась американская команда <STRONG>BLEEDING THROUGH</STRONG>. Музыканты отыграют прощальный тур на концертных площадках Северной Америки, Европы и Австралии. </FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25236.jpg" width=475 height=243></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -129,6 +129,121 @@ Hans-Josef Groh: Cello
 * C группой "Thorns" HellHammer
 * C группой "Arcturus" Carl August Tidemann
 
+## Публикации
+
+### 05.02.2002 news Еще одни норвежцы выпускают новое творение
+
+<p>Вместе с новым альбомом ARCTURUS выйдет новый альбом другой известной норвежской команды WINDS. Их новый альбом называется "Reflections Of The I". Он выдержан в мрачных black тонах смешанных с классическим heavy-metal и с чистыми вокалами, прогрессивными тяжелыми гитарами, классическим фортепиано и атмосферными клавишами. Плюс ко всему этому симфоническая поддержка. Эта уникальная и интригующая работа планируется к выходу 9 апреля 2002 года вместе с новым альбомом ARCTURUS.</p>
+
+Автор: Dimas
+
+### 05.02.2002 news WINDS NEWS
+
+<p>The US release date of ARCTURUS new album will coincide with another exceptional Norwegian band, WINDS. Their album "Reflections Of The I" portrays a seamless and most inspiring mix of classically oriented metal, fronted with clean vocals, dark progressive guitars, philharmonics, classical piano and floating synths. Scheduled for release in April, 9th, both albums are highly anticipated and would please those into unique and intriguing dark metal!</p>
+
+Автор: Dimas
+
+### 30.03.2002 reviews Кривое зеркало и Отражение Я – Музыкальные шедевры поколения „девяностых“
+
+<p>Сижу смотрю в окно, в нём, как в кривом зеркале, на фоне тающей грязной слякоти и тумана видно неясное отражение моего лица . Но моё ли это отражение? – маска с застывшими трагикомичными чертами, с глубоко впавшими глазницами – лицо мертвеца. А за окном идёт снег и ползут по грязи похожие на тараканов люди. За спиной из колонок льётся музыка. Прислушиваюсь к ней и в голове вдруг возникает странная мысль, какой вклад в мировую музыкальную культуру внесло наше поколение – поколение „девяностых“, чья молодость пришлась на переломные моменты в мировой истории. Какаю мы создали неразрывно связанную с музыкой субкультуру? Поколение тридцатых – внесло джаз, пятидесятых- рокнролл, шестидесятых – хипповый рок, семидесятых - панк, восьмидесятых – метал, a что внесли мы ? Неужели о нас будут вспоминать как о поколении создавшем ультрапримитивную ритмичную синтетическую музыку, так называемыe – техно, эйсид, драмнбэйс? Отчасти так оно и будет. Но думаю, что наше поколение больше преуспело не в этом, а в создании умопомрачительных музыкальных коктейлей, в которых смешивались самые, казалось бы несопоставимые музыкальные стили.</p>
+<P> Может быть кто то скажет что я неправ, но альбомы норвегов ARCTURUS - =The Sham Mirror= и WINDS - =The Reflections Of The I= - яркие представители музыки поколения “девяностых”, хоть и созданы и появились на свет в ноном эре, новом веке, новом десятилетии – но они созданы людьми из поколения “девяностых”. Эти два альбома нельзя рассматривать отдельно и не только потому, что их создали на три четверти одни и те же музыканты. „Кривое зеркало“ и „Отражение - Я“, похожи на разнояйцевых близнецов, зачатых в утробе матери в одно и тоже время. Они вроде бы разные и вместе с тем очень похожи. Я затрудняюсь вообще обозначить что это за музыкальные стили. Хотя примерно это бы звучало так Winds – orchestral symphonic goth‘n‘rock, Arcturus – avantgarde-ellectronic postblack metal. Ясно одно – эти альбомы созданы и записаны настоящими МУЗЫКАНТАМИ, а не подростками из podval/garage records.</>
+<P> Оба диска отличаются виртуозной игрой музыкантов и бесподобными вокальными партиями. Сравнивать их с чем либо не представляется никакой возможности. Это просто надо УСЛЫШАТЬ!</>
+<P> Добавлю лишь то, что при записи „Кривого Зеркала“ далеко не последнее участие принял известный в определённых кругах Insahn (Emperor, Peccatum), а при записи „Отражения –Я“ – использован симфонический оркестр.</>
+
+Автор: ZYKLON
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 01.02.2003 reviews Тёплые ветры
+
+<p>Проект Яна Акселя Фон Бломберга (в простонародии Hellhammer (Mayhem, The Kovenant)). Почему-то сразу показалось, что на компакт-диске записано нечто хорошее. Вариации на тему gothic-doom metal с солирующей скрипкой создают прекрасное настроение. Такое чувство, как будто Вы подставили своё лицо на закате весеннего дня под тёплый ветер. Скрипка ласкает Вас своими переливами, и Вам становится так хорошо... Великолепная реализация и исполнительское мастерство музыкантов. Мелодии завораживают своей нестандартностью, можно даже заметить лёгкий налёт "прогрессивности". Советую купить всем любителям жанра... Если прожённые black-metalлисты обращаются к Вашему любиму стилю, это стоит внимания.</p>
+
+Автор: Vit Belov
+
+### 25.02.2003 reviews Hot winds
+
+<p>Project of Jan Axel Von Blomberg (aka Hellhammer (Mayhem, The Kovenant)). It seemed to me at once, that There is something good on this CD. Variations in theme of gothic-doom metal with solo-violin create wonderfull mood. Youn have feelings , that hot wing blows your face on the sunset of spring day. Violin caresses you by its modulates and you fell so good... Magnificent realisation and skills of musicians. Melodies hypnotise by its standartness, you can notice light touches of progressive. I advise to buy this CD to all fans of this style. If black-metallers play in your favourite style, it is worthy to pay attention.</p>
+
+Автор: Vit Belov
+
+### 09.03.2003 articles Winds: скрипки, progressive и классика...
+
+<p>Одним из лучших релизов прошлого года хотелось бы назвать альбом норвежцев WINDS. Практически никому неизвестная группа сходу заняла неплохие позиции на лицензионном рынке России. И следующие альбомы, если они будут доступны, грозят стать настоящими хитами. Я связался с клавишником коллектива Энди Винтером, чтобы задать несколько вопросов.</p>
+<p> Q: Для начала скажи мне одну вещь о WINDS. Кто основатель группы? Лэйбл, издающий Вас в России настаивает на персоне Хэллхаммера (KOVENANT, MAYHEM). Мне кажется, это не очень точно…</p>
+<p> «Я думаю, что могу считаться основателем группы в какой-то мере. Для начала я написал всю музыку. Хэллхаммер же помог мне заключить контракт с Avantgarde Records, в то же время в группе появился Ларс, а чуть позже Карл. Второй альбом вышел в России усилиями Irond records, и мы ничего с этим поделать не можем, всё в руках Avantgarde. Также альбом вышел в США на End Records, но они сначала обратились к нам, а уж потом мы связали их с Avantgarde.»</p>
+<P>Q: Расскажи о Вашей лирике… О чём она?</>
+<P>«Тексты рассказывает об аспектах экзистенциализма, философии и вселенских проблемах. Каждая наша запись концептуальна.»</>
+<P>Q: С чем ты можешь сравнить Вашу музыку? Я не говорю, о каких-то группах или стилях… Может быть какие-нибудь природные явления и.т.п.</>
+<P>«Я думаю наша музыка на очень высоком интеллектуальном, а также эмоциональном уровне. Вы возможно ощутите её, как метафору создания или наоборот конца. Только не отдельных жизней, а вселенной в целом. Это очень отличается от другой обычной музыки. Ничего сверхъестественного, скорее просто вариации на тему классики.»</>
+<P>Q: Когда нам ждать новый альбом? Какой лэйбл реализует его? Что нового на нём будет?</>
+<P>«Мы заключили сделку с End Records на территории США, с Европой пока ничего неизвестно, но работа ведётся. Мы надеемся выпустить альбом до конца года, и как всегда, мы развиваемся музыкально. Я думаю, многие будут удивлены, но и в тоже время восхищены. Чем мы сейчас занимаемся, так это улучшаем всё, что сделали, на всех уровнях.»</>
+<P>Q: Вы записали вариации на тему Рахманинова… Мне кажется, вы любите классическую музыку. Какую предпочитаете?</>
+<P>«Я люблю классическую музыку, оттуда все мои сочинения и записи, поэтому для меня естественно то, что я сейчас делаю. Я предпочитаю Русских композиторов в большинстве своём, но и другие тоже весьма неплохи. Всё зависит от настроения. Я использовал музыку Рахманинова, потому что он писал лучшие, и в тоже время сложнейшие, произведения для фортепиано. Даже та, которую я записал, не самая сложная, но она очень выразительная и является лучшим окончанием для альбома.»</>
+<P>Q: Выступаете ли Вы с концертами? Если да, то, как Вы работаете со струнными?</>
+<P>«Мы никогда не давали концертов. Если когда-нибудь это случится, пока не решено, как мы будем это воспроизводить. Мы можем выступать как с живыми музыкантами, так и с мини-диском. Но пока это, всё гипотетично.»</>
+<P>Q: Как Вам работается в студии с HellHammer? Например, он не говорил: «Давайте сделаем этот кусок жёстче…» Или что-то подобное?</>
+<P>«Мы всегда работаем вместе над идеями. Я всегда сижу за пультом, когда он записывает барабаны. Обычно мы обмениваемся идеями и находим оптимальные аранжировки. Я думаю, он прислушивается к мнению других музыкантов. Хочется надеяться, что я помог ему создать лучшее, на что он способен. Никогда мы не обсуждали тяжесть материала, потому что нам было хорошо видно, чего требует наша музыка. Мы всегда запишем так, как подходит к музыкальному материалу.»</>
+<P> Q: Скажи что-то нашим читателям, чтобы заставить их купить Ваш альбом…</>
+<P>«Если Вам нравится музыка, которая совмещает в себе различные элементы, которая включает как progressive, так и классику, в которой используются живые скрипки, и которая отличается от большинства других экземпляров, купите WINDS.”</>
+
+Автор: Vit Belov
+
+### 09.03.2003 articles Winds: violins, progressive and classics
+
+<p>One of the best albums of last year is WINDS... I asked some questions to the pianoman of the band ANDY WINTER.</p>
+<p>Q: Please tell me one thing about WINDS. Who is founder of the band... Label, which released your album In Russia tell us, that he's Hellhammer. I think it's not clear. Tell me something about beginning of your band.</p>
+<P> I guess I’m kind of viewed as the founder of Winds since in the beginning I wrote all the music, but it was Hellhammer and myself who signed the original record deal, which was with Avantgarde music, and then Carl came into the band a bit later. Lars came into the band around the same time that we signed the deal. The second record we did was released in Russia by Irond Records under license from Avantgarde, so we in the band actually had nothing to do with that at all, but the album was also licensed to The End Records for USA, which was something they got in touch with us about first, and then we put them in touch with Avantgarde.</>
+<P> Q: Please, tell me about your lyrics. What are they about?</>
+<P> They are about aspects of existentialism, philosophy and universal things in general. Each record so far has been a concept album where there’s a story related to it.</>
+<P> Q: What can you compare with your music? I don't speak about bands or style of metal... May be some natural phenomenon?</>
+<P> I think our music is on a very intellectual yet also emotional level. You could perhaps view it as a metaphor of the creation and also the ending of life, not just individually speaking but the universe as a whole. It’s something very different from other music, it’s not weird or anything, just a lot more classically inspired.</>
+<P> Q: When can we wait for your new album? And What label will it release? And what new will be on it?</>
+<P> We have signed to The End Records for the US, and so far not signed anything for Europe but we have something in the works. We’re hoping to release a new album before the end of the year, and as always with Winds we’re still evolving musically. I think many will probably be surprised, but at the same time also impressed. What we’re working on right now exceeds everything we’ve ever done on all levels.</>
+<P> Q: You recorded variations on theme by Rachmaninov... I think, you like classic music... Which classic music do you prefer?</>
+<P> I love classical music, and that’s where my background is from, so for me it’s natural to write music that’s classically influenced. I actually prefer the Russian composers for the most part, but I like many things. It all depends on my mood. I did a piece from Rachmaninov because he has written some of the best and also most complex piano pieces, even though the one I picked for the record is not the most difficult one, but it is definitely very expressive and it was a perfect ending to our album I think.</>
+<P> Q: Do you do live performance? If yes... How do you permorm string instruments?</>
+<P> We have never played live, if we are going to it has still not been decided how we will do the practical things. We could choose to have string players with us, or we could do playback of the strings. At this point it’s just hypothetical.</>
+<P> Q: How did you work in studio with HellHammer? For example, Did he say: 'May be we'll do this heavier...' or something...?</>
+<P> He and I always work together on ideas, and I actually sat inside the recording room while he played the drums on the two first recordings. Usually we exchange ideas and find the best arrangements for things, I think he’s pretty much used to doing what he wants so having to listen to someone else’s opinion was different for him, but I think he appreciated my input, and judging from the result things turned out really well. I would like to think that I push him to be at his best. It was never a discussion of heavier or not because it’s easy to see for us what the music demands when we’re working on it, and we always do what suits the music.</>
+<P> Q: Tell something to our readers to make to buy your album...</>
+<P> If you like music that combines different elements, that is both progressive and classically inspired with real violins and so on, and that is different from most of the music out there, then check out Winds.</>
+
+Автор: Vit Belov
+
+### 19.06.2004 news WINDS выпустят новый альбом на Blackend
+
+<B>WINDS</B> выпустят новый альбом "<B>The Imaginary Direction Of Time</B>" 12 июля на <B>Blackend</B>.
+Автор: Vit Belov
+
+### 11.01.2005 reviews Воображаемое управление временем
+
+<P>Второе полнометражное творение норвежской команды вновь представляет из себя красивую&nbsp;элегантную музыку, полную изысканных и изящных моментов. Он выдержан в&nbsp;мрачных тонах смешанных с классическим heavy-metal и с чистыми вокалами, прогрессивными тяжелыми гитарами, классическим фортепиано и атмосферными клавишами. Плюс ко всему этому, имеется&nbsp;симфоническая поддержка из живых скрипичных инструментов и лирика пропитанная философскими настроениями. Здесь встречаются печаль и меланхолия, но с изрядной долей оптимизма. Каждый музыкант коллектива - это самобытная личность. Lars Eric Si&nbsp;с его уникальной вокальной техникой, Carl August Tidemann как неоклассический гитарный виртуоз, один из лучших мировых ударников Jan Axel von Blomberg, знакомый нам как Hellhammer,&nbsp;и клавишник Andy Winter с его классической подготовкой и знаниями.&nbsp; Им удалось создать практически безошибочную работу, которую смело можно причислить к шедеврам современной тяжелой музыки. Уникальный symphonic metal альбом уникальной группы. Такое словами трудно описать. Рекомендую лучше прослушать самим и получить массу удовольствия.</P>
+Автор: Dimas
+
+### 10.04.2006 news Подробности о новом альбоме WINDS
+
+<P align=justify><STRONG>WINDS</STRONG> в данный момент работают над завершением своего четвертого альбома, который выйдет в конце года на <STRONG>The End Records</STRONG>.&nbsp; Кроме оригинальных участников в записи принимают участие следующие музыканты: </P>
+<P align=justify><STRONG>Agnete M. Kirkevaag - Madder Mortem, Frantic Bleep<BR>Lars A. Nedland - Borknagar, Solefald<BR>Mystein Moe - Ulver, Tritonus</STRONG></P>
+<P align=justify>"Мы выбрали этих людей, основываясь на глубоком признании их таланта и нам приятно что они согласились на участие", говорит <STRONG>Andy Winter</STRONG>, атор материала и пианист. </P>
+Автор: Bizarre
+
+### 20.06.2006 news WINDS продолжают работу над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежская супегруппа WINDS, в составе которой&nbsp;вокалист <B>Lars Eric Si</B> (<B>KHOLD</B>),&nbsp;гитарист <B>Carl August Tidemann</B> (<B>ARCTURUS</B>),&nbsp;клавишник <B>Andy Winter</B> (<B>AGE OF SILENCE</B>)&nbsp;и ударник&nbsp;<B>Jan Axel Von Blomberg</B> (<B>ARCTURUS</B>, <B>MAYHEM</B>) продолжают работу над своим четвертым альбомом. Уже записаны все гитарные партии, включая соло. После небольшого летнего перерыва, осенью будет завершен студийный процесс и альбом будет смикширован. В конце года планируется его релиз. Также стало известно, что гостевое участие в записи альбома примет <STRONG>Dan Swano</STRONG> (<B>EDGE OF SANITY</B>, <B>NIGHTINGALE</B>).</FONT></P>
+Автор: Dimas
+
+### 11.01.2008 reviews Скрипка пропала, но настроение не выветрилось
+
+<P>Когда в 2002 году Irond по лицензии Avantgarde издал первый полноформатный релиз норвежской группы WINDS “Reflections Of I”, этот проект был известен лишь тем, что в нём играет барабанщик Hellhammer (DIMMU BORGIR, THE KOVENANT, MAYHEM). Необычные сочетания неоклассики и тяжёлого металла, скрипки и гитары, отводили этому альбому место в папке gothic-doom-metal. Пускай группа не использовала гроулинг, и её саунд был недостаточно мощен для стиля, мы попытались определить неопределимое, и вот, что вышло. Находясь под впечатлением от услышанного, я связался с группой, и оказалось, что знаменитый барабанщик совсем не главное лицо в WINDS, а всеми делами заправляет талантливый клавишник-композитор Andy Winter. Наслушавшись от него о влияниях классики на музыку группы, я понял, что WINDS – это совсем не doom, а скорее оригинальный неоклассический progressive-metal.</P>
+<P>Эту догадку WINDS подтвердили, выпустив ещё два полноформатных альбома. “Prominence And Demise”, который вышел в России в конце 2007 года, представляет собой всё, что угодно, но как doom его продать уже не удастся. Те же гитары, воздушная атмосфера, раньше создаваемая скрипками, а сейчас появляющаяся сама собой, длинные песни со странной вокальной мелодией. Появился и женский вокал-сопрано, и мужской вокал-тенор, партии которого исполнил знаменитый Dan Swano. Лично для меня в музыке WINDS многое решала скрипка. Её редкие появления на новом альбоме живо воскрешают в памяти тот восторг, который охватывал меня всякий раз при прослушивании дебюта группы. Сейчас подобного восторга я не ощутил, но WINDS представляются, как очень оригинальная группа с собственным лицом.</P>
+<P>Могу посоветовать этот диск всем фэнам progressive, которые иногда подумывают о застое в их любимом стиле. Да и просто поклонник тяжёлой музыки сможет почерпнуть на “Prominence And Demise” немало интересного.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

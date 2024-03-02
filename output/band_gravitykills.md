@@ -33,6 +33,21 @@ Kurt Kerns - Bass, Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.04.2001 news Убийственная серьезность....
+
+<p>После подписания контракта с "Sanctuary Records" - "GRAVITY KILLS" уже успели записать около 30 песен для третьего полноформатника "Superstarved", правда только 12 из них войдут на СД. По словам гитариста Matt Dudenhoeffer: "альбом будет самым тяжелым за всю историю группы". Пока что отобраны следующие песни: 01. Shame 02. Enemy 03. Forget Your Name 04. Suffocate 05. Wide Awake 06. Beg & Borrow 07. Personal Jesus 08. Shake 09. Break Down 10. Photograph 11. Monsters & Astronauts 12. Hollow 13. One Thing 14. Superstarved.</p>
+
+Автор: Yermola
+
+### 18.04.2001 news Superstarved from GRAVITY KILLS....
+
+<p>GRAVITY KILLS have reportedly written 30 songs for the band's forthcoming third record, tentatively titled Superstarved, of which 12 will likely make it to the finished CD. Although many of the songs will reportedly feature a "heavier" direction than anything the band had done in the past, the album as a whole will be "more diverse than that," according to guitarist Matt Dudenhoeffer. "Not every single track will be 'heavy' ". Among the songs that are tentatively set to appear on Superstarved are: 01. Shame 02. Enemy 03. Forget Your Name 04. Suffocate 05. Wide Awake 06. Beg & Borrow 07. Personal Jesus 08. Shake 09. Break Down 10. Photograph 11. Monsters & Astronauts 12. Hollow 13. One Thing 14. Superstarved. Superstarved is tentatively scheduled to be released in the fall. Also band officially signed with Sanctuary Records. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

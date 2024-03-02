@@ -49,6 +49,15 @@ Scott Carino - bass
 * C группой "Obituary" Allen West from Obituary plays in Six Feet Under
 * C группой "Six Feet Under" Allen West from Obituary plays in Six Feet Under
 
+## Публикации
+
+### 19.01.2009 news LOWBROW распались
+
+<P><IMG height=262 alt="" hspace=0 src="/images/news_rus/2009.01/13395.jpg" width=400 align=right border=5>Группа <STRONG>LOWBROW</STRONG>, состоящая из бывших музыкантов <STRONG>OBITUARY</STRONG>, <B>DEATH</B>&nbsp;и <STRONG>NASTY SAVAGE</STRONG>, распалась. Своё решение музыканты объяснили невозможностью полностью раскрыть свой потенциал. Вот, кто был в составе:</P>
+<P><STRONG>Allen West</STRONG> (OBITUARY, SIX FEET UNDER) - Guitar<BR><B>Ben Meyer</B> (NASTY SAVAGE, ACHERON, GARDY-LOO!) - Guitar<BR><B>Curt Beeson</B> (FESTER, NASTY SAVAGE) - Drums<BR><B>Scott Carino</B> (DEATH) - Bass<BR><B>Rich Hornberger</B> - Vocals</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

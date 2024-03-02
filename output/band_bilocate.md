@@ -29,6 +29,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.08.2011 news Dan Swano споёт для BILOCATE
+
+<P>Знаменитый продюсер/мультиинструменталист <STRONG>Dan Swano</STRONG> (<B>EDGE OF SANITY</B>, <B>NIGHTINGALE</B>, <B>BLOODBATH</B>, <B>ODYSSEY</B>, <B>PAN-THY-MONIUM</B>) запишет вокал для третьего альбома иорданской death-doom группы <STRONG>BILOCATE</STRONG>. Новая пластинка выйдет до конца этого года.</P>
+<P>Второй альбом <STRONG>BILOCATE</STRONG> <STRONG>"Sudden Death Syndrome" </STRONG>вышел в 2008 году.</P>
+<P><center><IMG height=226 src="/images/news_rus/2011.08/20705.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

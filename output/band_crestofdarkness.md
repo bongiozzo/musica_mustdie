@@ -55,6 +55,95 @@ Lars Christian Narum - Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.11.1999 reviews 
+
+<p>Довольно примечательная пластинка. По первым нескольким песням, определённо это блэк, но дальше... Видимо у ребят не хватило мощи и чернушного задора отыграть весь альбом в таком же духе. Почти сразу же вступает девушка, потом появляется чистый мужской вокал, медленные вставки и всё это перемежается обычным, но хорошосыгранным и качественно записанным блэком. Получился эдакий блэк-готик-дум-хэви металлб который довольно приятно слушается. На этой пластинке каждый металхэд сможет найти для себя приятные моменты. Рекомендовать можно всеядным любителям металла, которые не брезгует никакими хорошоисполнеными пластинками (как автор). А исполнено действительно всё это очень качественно. 8 из 10. Диск предоставлен фирсой "Спюрк".</p>
+
+Автор: Vit Belov
+
+### 06.09.2000 news Новый альбом Crest of Darkness
+
+<p> Пробудившиеся от спячки Crest of Darkness в ноябре предоставят к нашему вниманию свой новый альбом под названием "Project Regeneration"</p>
+
+Автор: Nybras
+
+### 06.09.2000 news New album of Crest of Darkness
+
+<p> The follow-up to Crest of Darkness' "The Ogress"-album, titled "Project Regeneration" will be out in November.</p>
+
+Автор: Nybras
+
+### 09.11.2000 reviews Уникальные технологии проекта восстановления и возрождения организма
+
+<p>Уникальные технологии проекта восстановления и возрождения организма. Неважно что вас поразило. Будь то дьявольские лучи, вирус, живая смерть или душевный недуг. Наконец-то найдено средство регенерации. На всю операцию потребуется всего каких-то 38 минут и вы в полном порядке. Демонический black-metal с death-metal и heavy-metal риффами и глубоким креном в компьютеризированный industrial. Музыка довольно необычна, порой даже мелодична. Иногда несколько беспорядочна, со сложными переходами. Уже можно говорить о некоторых попытках вывести black-metal на высокий технический уровень (ведь есть же techno-thrash, techno-death, почему бы не поговорить о techno-black). Бесспорно, оригинальный, уникальный и самобытный материал. Присутствуют некоторые фишки, присущие последнему The Kovenant, но выраженные в брутальном виде. Альбом разнообразен как по музыкальному материалу, так и по настроению. Но из-за своей всеобъемлющей сложности не рекомендуется для единичного прослушивания. Только прослушав его несколько раз, начинаешь понимать эту музыку и приходишь к выводу, что black-metal'ом здесь и не пахнет...</p>
+
+Автор: Dimas
+
+### 09.11.2000 reviews Unique technologies of the project of restoration and revival of organism
+
+<p>Unique technologies of the project of restoration and revival of organism. Unimportantly that you has struck. Whether it be devil beams, virus, alive death or sincere illness. A means of regeneration at last is found. On all operation 38 minutes and you in the complete order is required all any. Demonic black-metal with death-metal and heavy-metal riffes and deep roll in computer aided industrial. Music is rather unusual, at times even is melodious. Sometimes is a little chaotic, with difficult transitions. Already it is possible to speak about some attempts to remove black-metal on a high technological level (you see is techno-thrash, techno-death why to not talk about techno-black). Indoubtedly, original, unique and original material. There are some chesspieces inherent in last The Kovenant, but expressed in brutal. The album is various both on a musical material, and on mood. But because of the universal complexity it is not recommended for one listening. Only having heard it some times, begin to understand this music and come to a conclusion, that here is not black-metal at all...</p>
+
+Автор: Dimas
+
+### 11.12.2000 news Вокалист и клавишник покинули Crest Of Darkness.
+
+<p>Вокалист Кристин ушёл из Crest Of Darkness сразу после выпуска нового альбома "Project Regeneration" из-за личных причин. Клавишник Ян Петтер Рингволд также больше не будет играть в группе.</p>
+
+Автор: Morsus
+
+### 11.12.2000 news Singer and keyborder have left Crest Of Darkness.
+
+<p>Singer Kristin has left Crest Of Darkness directly after the release of their new album "project regeneration" due to personal reasons. Also keyboarder Jan Petter Ringvold is no longer part of the band.</p>
+
+Автор: Morsus
+
+### 26.11.2003 news CREST OF DARKNESS подписалиь на MY KINGDOM MUSIC
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2003.11/5582.jpg" width=250 align="left" border=0>Норвежцы <B>CREST OF DARKNESS</B> подписали контракт на выпуск своего нового альбома <B>Evil Knows Evil</B> с итальянским лэйблом <B>My Kingdom Music</B>. Пластинка увидит свет в январе 2004 года. "<B>Это самый агрессивный и тёмный материал за всю нашу историю. Вместе с альбомом мы делаем большой шаг вперёд</B>", - говорит лидер коллектива <B>Ingar Amlien</B>. </P>
+Автор: Vit Belov
+
+### 26.11.2003 news CREST OF DARKNESS to sign on MY KINGDOM MUSIC
+
+<IMG height=230 alt="" hspace=0 src="/images/news/2003.11/5583.jpg" width=250 align="right" border=0>Norwegian Black Metal masters <B>CREST OF DARKNESS</B> have signed a record deal with&nbsp;<B>MY KINGDOM MUSIC</B>&nbsp;for the release of their new creature titled “<B>Evil Knows Evil</B>”, already scheduled for January, 2004. <B>Ingar Amlien</B>, band’s leader, announces the album with these words: "<B>This is with no doubt the darkest and most aggressive piece of work we've ever made!&nbsp;I feel that Crest Of Darkness has taken a big step forward in the world of extreme metal"</B>.
+Автор: Vit Belov
+
+### 20.12.2003 news CREST OF DARKNESS стали жертвой цензуры
+
+<P>У CREST OF DARKNESS возникли проблемы цензурного характера. Фабрика по производству компакт-дисков отказалась печатать их новый альбом "Evil Knows Evil". Тексты и оформление альбома показались слишком богохульными, откровенно сатанинскими. На требования оформить диск в более приличном виде лейбл My Kingdom Music ответил отказом, ссылаясь на категорическое нежелание группы вносить какие-либо поправки. Таким образом дата выпуска альбома откладывается, предварительно до 9 февраля 2004 года.</P>
+Автор: Morsus
+
+### 20.12.2003 news CREST OF DARKNESS banned by censorship
+
+<P>CREST OF DARKNESS banned by censorship. Here's the official announcement: "Once again censorship hits Extreme Metal. One of the most important European manufacturing companies refused to print Crest Of Darkness new album "Evil Knows Evil" out in January with their new label My Kingdom Music, due to the lyrics and the artwork considered too blasphemous, satanic and absolutely anti-Christian. To their request of modifying the lyrics and the artwork, the label according with band desire, didn't accept any change. In this way and for the nth time the freedom of expression is repressed and one more time artists are banned for their ideas. The release date of the album has been now temporarily fixed to February 9th, 2004 and we proudly announce that no change will be made."</P>
+Автор: Morsus
+
+### 10.03.2005 reviews Очень не простая black-metal группа
+
+<P>CREST OF DARKNESS очень не простая black-metal группа из Норвегии. Свою «сложность» коллектив демонстрирует уже на первых аккордах нового альбома «Evil Knows Evil». Они все такие техничные, такие аритмичные, такие… сложные все.</P>
+<P>Дальше дело обстоит немногим хуже. Скоростной ураганный black чередуется с chill-out электронными вставками, шумом и криками. CREST OF DARKNESS подавали некоторые надежды, когда на первых альбомах удачно скрещивали стандартный black-metal и электронику. Видимо сейчас, когда подобными вещами уже никого не удивишь, коллектив пытается озадачить нас чем-то другим. CREST OF DARKNESS – это удалось.</P>
+<P>Спокойно слушать их альбом 2004 года никому не удастся. Кто-то сразу выключит, кто-то начнёт прыгать на месте, кто-то выпучит глаза… Качество реализации на этот раз на не очень хорошем уровне, но CREST OF DARKNESS за этим не гонится.</P>
+<P>Только уважение перед былыми заслугами, признаться не очень высокими, коллектива останавливает меня&nbsp; от зачисления ‘Evil Knows Evil’ в раздел шлака. Оставляю это Вам.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 17.03.2005 news Планы CREST OF DARKNESS
+
+<P>Норвежские кибер-блэкстеры&nbsp;<B>CREST OF DARKNESS</B> готовятся к записи своего пятого полнометражного альбома под названием <B>"Give Us the Power to Do Your Evil"</B>, Выход которого планируется в конце 2005 года через итальянский лейбл <B>My Kingdom Music</B>. Также, в планах группы выпуск dvd&nbsp; с концертными записями.</P>
+Автор: Dimas
+
+### 19.10.2006 news CREST OF DARKNESS готовят новый альбом
+
+<P>Норвежские блэкстеры&nbsp;<B>CREST OF DARKNESS</B>&nbsp;в декабре обоснуются в&nbsp;<B>Outer Sound Studios</B> с продюсером <B>Giuseppe Orlando</B> (<B>NOVEMBRE</B>) для записи своего пятого полнометражника под названием <B>"Give Us the Power to Do Your Evil"</B>. Релиз ожидается весной 2007 года на <B>My Kingdom Music</B>.<BR></P>
+Автор: Dimas
+
+### 10.04.2009 news CREST OF DARKNESS готовятся к записи
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CREST OF DARKNESS</STRONG> готовят новый материал для будущего альбома. После выступления на летних фестах норвежцы готовятся войти в студию для его записи.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

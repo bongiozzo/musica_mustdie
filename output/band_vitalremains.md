@@ -104,6 +104,82 @@ Entwined By Vengeance
 * C группой "Aurora Borealis" Tim Yeung (drums)
 * C группой "Council of the Fallen" Tim Yeung (drums)
 
+## Публикации
+
+### 24.05.2002 news GLEN BENTON &amp; VITAL REMAINS
+
+<p>DEICIDE frontman Glen Benton will perform all lead vocals on the forthcoming VITAL REMAINS album, entitled Dechristianized, which is due in late August/early September through Olympic Records in the US and Century Media Records in Europe.</p>
+
+Автор: Dimas
+
+### 24.05.2002 news GLEN BENTON &amp; VITAL REMAINS
+
+<p>Glen Benton -фронтмен DEICIDE, запишет все вокальные партии на новом альбоме группы VITAL REMAINS под названием "Dechristianized". Альбом выйдет в августе-сентябре 2002 года через Olympic Records в Америке и Century Media Records в Европе.</p>
+
+Автор: Dimas
+
+### 02.09.2003 reviews Полный провал...
+
+<p>VITAL REMAINS подписали контракт с Century Media. VITAL REMAINS записали свой последний альбом в Моррисаунде. С некоторых пор вокалистом в группе является небезызвестный Гленн Бентон. Казалось бы, надо радоваться. Увы, VITAL REMAINS в список моих любимейших команд более не входит. Причина тому – “Dechristianize”. Пусть и не отвратительный, но крайне слабый альбом. А ведь я ожидал достойного продолжения “Forever Underground” и “Dawn of the Apocalypse”. Хрен там. Не дождался. Барабаны – это минус номер раз. За барабанной установкой по-прежнему Дэйв Судзуки? Он самый. Тогда в чём проблема? Ведь отличный же барабанщик. Спору нет, - отличный. И претензии не к его игре. Претензии имеются к тому, КАК всё это записано. Звук железа – чудовищный. Лично я еле дослушал этот альбом до конца, а когда дослушал – побежал за аспирином. Ей-богу, после этих «трелей» голова просто раскалывается. Что насчёт минуса номер два? Есть такой. Безусловно. VITAL REMAINS потеряли своё лицо. Когда-то одна из наиболее самобытных дэтовых команд превратилась не пойми во что. Песни не запоминаются. Да и мощью своей, надо сказать, не поражают. И откуда взялись эти сахарные соляки? К чему они здесь? Спору нет, иногда контраст между достаточно суровым дэтом и партиями соло-гитары идёт «на ура». Но это «иногда» случается, увы, крайне редко. Кстати. Насчёт «сурового дэта». Не сказал бы, что здесь его в избытке. Ибо частенько попахивает… мелодик-дэтом. Не просто попахивает, а прямо-таки воняет. Что музыканты хотели сказать этой работой? Зачем она вообще появилась на свет? Непонятно. Печально ставить крест на одной из своих любимых команд. Но другого выхода нет. Ибо во второй раз слушать ЭТО я не стану.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+### 27.09.2006 news VITAL REMAINS готовят новый альбом
+
+<P><STRONG>VITAL REMAINS</STRONG> закончили сочинения материала для нового альбома. Процесс записи будет зависеть от графика <STRONG>DEICIDE</STRONG>, чей лидер <STRONG>Glen Benton</STRONG> вновь споёт на пластинке <STRONG>VITAL REMAINS</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.01.2007 news VITAL REMAINS закончили запись
+
+<P><STRONG>VITAL REMAINS</STRONG> закончили запись нового альбома с продюсером<STRONG> Erik Rutan</STRONG>. <STRONG>Glen Benton</STRONG> из <STRONG>DEICIDE </STRONG>вновь прописал вокалы для этой группы. Дата релиза: апрель 2007 года.</P>
+Автор: Vit Belov
+
+### 20.02.2007 news Новый альбом VITAL REMAINS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>VITAL REMAINS "Icons Of Evil"</STRONG> выйдет 3 апреля на <STRONG>Century Media</STRONG>. Как уже сообщалось, партии вокала исполнил знаменитый <STRONG>Glenn Benton</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Where Is Your God Now</STRONG> <BR>2. <STRONG>Icons of Evil <BR></STRONG>3. <STRONG>Scorned <BR></STRONG>4. <STRONG>Born To Rape The World</STRONG> <BR>5. <STRONG>Reborn…The Upheaval of Nihility</STRONG> <BR>6. <STRONG>Hammer Down The Nails <BR></STRONG>7. <STRONG>Shrapnel Embedded Flesh <BR></STRONG>8. <STRONG>‘Til Death <BR></STRONG>9. <STRONG>In Infamy <BR></STRONG>10. <STRONG>Disciples of Hell</STRONG> &nbsp;</P>
+Автор: Vit Belov
+
+### 14.03.2007 news Кавер-арт VITAL REMAINS
+
+<P>Как уже сообщалось, в апреле выходит новый альбом <STRONG>VITAL REMAINS "Icons Of Evil</STRONG>". <STRONG>Century Media</STRONG> опубликовали кавер-арт этой пластинки. Сообщается, что в окончательном варианте картинка будет более "мягкой".</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2007.03/11428.jpg" width=400 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 17.07.2007 news VITAL REMAINS выпускают DVD
+
+<P><IMG height=482 alt="" hspace=0 src="/images/news_rus/2007.07/11725.jpg" width=340 align=right border=5>23 июля на <STRONG>Metal Mind</STRONG> выходит DVD от <STRONG>VITAL REMAINS</STRONG> под названием "<STRONG>Evil Death Live</STRONG>", снятое на прошедшем фестивале <STRONG>Metal Mania 2007</STRONG>. Трэк-лист:</P>
+<P>01. <B>Intro I - Where Is Your God Now</B><BR>02. <B>Icons of Evil</B><BR>03. <B>Scorned</B><BR>04. <B>Born to Rape the World</B><BR>05. <B>Hammer Down the Nails</B><BR>06. <B>Intro II - Let the Killing Begin</B><BR>07. <B>Dechristianized</B><BR>08. <B>Infidel</B><BR>09. <B>Devoured Elysium</B></P>
+Автор: Vit Belov
+
+### 18.07.2007 reviews Бэнтон их любит больше DEICIDE
+
+<P>VITAL REMAINS – это группа, которую Гленн Бэнтон любит больше, чем DEICIDE. Судите сами. В своём коллективе Гленн произвёл глобальные перемены, постоянно отменяются туры, меняются музыканты, группа гастролирует без Бэнтона. Даже уже до этого доходит. А он в это время преспокойно записывает альбом вместе с VITAL REMAINS, собирается с ними давать концерты. Даже звучание DEICIDE изменилось в сторону более техничного и, упаси Боже, мелодичного. И всё равно VITAL REMAINS менее известны, чем DEICIDE, что неудивительно.</P>
+<P>Вот и придётся сравнивать новейшую работу VR с последним альбомом DEICIDE. Забой и мелодика, антихристианские тексты, мощнейшие соляки (кстати, какие-то минорные в основе своей) и тяжесть гитарного звучания. Всё это мы могли обнаружить на последней работе группы Бэнтона, всё это мы обнаруживаем на “Icon Of Evil”. Прибавьте к этому более комплексные композиторские решения, песни длятся под 10 минут, и вы получите альбом даже более интересный, чем последняя работа DEICIDE. Вопрос в том, что эти альбомы достаточно далеки от классики brutal death-metal, у истоков которой стоял Глен, но… Что выросло, то выросло. Пластинка слушается очень хорошо, начиная с интро из фильма «Страсти Христовы» (интересно, как к этому отнёсся бы Мэл Гибсон) и вопля Бэнтона «Where is your God Now?», заканчивая кавером на Ингви Мальмстина.</P>
+<P>Есть один минус, свойственный этой работе. Мне показалось, что “Icon Of Evil” слушался бы ещё интересней, если бы не излишнее увлечение авторов наворотами в композиторской работе. Всё-таки порубиться хочется, но сложно, из-за постоянной смены ритмов и направлений.</P>
+<P>А так, альбом очень даже хороший. Достойное пополнение для вашей коллекции.</P>
+Автор: Vit Belov
+
+### 16.01.2009 reviews Картинка good, звук good, материал bad
+
+<P>Да простят меня фанаты американских дэтстеров Vital Remains, но я так и не понял, зачем вообще надо было выпускать этот DVD. Его основу составляет выступление группы на фестивале Metalmania в 2007 году в польском Катовице. Видимо, как раз по "фестивальным" причинам концерт длится менее часа и состоит из всего лишь девяти номеров, притом взятых только с двух последних студийников коллектива - "Dechristianize" (2003) и "Icons Of Evil" (2007), весьма странное решение. Музыка представляет собой совершенно неинтересный, тупой и бесхребетный дэт-метал, который одинаково скучно слушать что вживую, что на диске. У Vital Remains очередной набранный концертный состав, в частности, вокалистом выступает некий Damien Boynton из группы Desolation. В ходе всего шоу он корчит в зал "страшные" рожи, которые ничего, кроме смеха, не вызывают. Единственное, что ему действительно удается хорошо, так это мотать хаером, тут претензий нет. Впрочем, их нет и по отношению к картинке и звуку (можно выбрать между 2.0 и 5.1). На этом плюсы данного DVD - первого у Vital Remains - заканчиваются, к сожалению. Как водится, есть немало бонусного материала, исключительно для фанатов. Кроме стандартных фотогалереи, биографии, дискографии, картинок для рабочего стола компьютера и интернет-ссылок, есть интервью со старожилами команды Тони Лазаро и Дэйвом Судзуки, а также эксклюзивное соло последнего. Имеется также еще один концерт, точнее, бутлег, тоже выступление в Польше,&nbsp;с сооветствующим качеством звука и картинки. Не знаю, кому после просмотра данного видео захочется посетить концерт Vital Remains. Если хотя бы Глен Бентон там был...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 18.02.2010 news VITAL REMAINS ищут гитариста
+
+<P><STRONG>VITAL REMAINS</STRONG> объявили о поисках нового соло-гитариста. Музыкант должен заменить колоритного <STRONG>Dave Suzuki</STRONG>, который был в коллективе с 1997 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

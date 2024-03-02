@@ -232,6 +232,134 @@ Chaos Skull – Paul McHale
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Ну чума! Я бы назвал этот альбом "The Fourth Crusade - II". Bolt Thrower вернулись! Пожалуй в death-metal им сейчас нет равных. Benediction и Malevolent Creation отдыхают. Да есть конечно у группы один минус - они берут за основу какой-нибудь один рифф, и начинают его эксплуатировать на протяжение всей композиции. Но он окупается с лихвой множеством плюсов. В частности, этот единственный на всю песню рифф подбирается настолько выразительным, мелодичным, легко запоминающимся, что это даже не надоедает при прослушивании. В общем много рассказывать не буду, это надо слушать, и не один раз, что я вам настоятельно рекомендую сделать в самое ближайшее время.</p>
+
+Автор: Dimas
+
+### 18.10.2001 news Питомцы METAL BLADE
+
+<p><img src=/images/news_rus/2001.10/1822.jpg border=1 align=left width=125 height=125 hspace=5> METAL BLADE'овские питомцы "BOLT THROWER" и "FLESHCRAWL" выложили на сайте лэйбла свои новенькие Mp3:<br> <a href="http://www.metalblade.de/mp3/boltthrower_insidethewire.mp3">boltthrower_insidethewire.mp3</a><br> <a href="http://www.metalblade.de/mp3/fleshcrawl_soulskinner.mp3">fleshcrawl_soulskinner.mp3</a></p>
+
+Автор: Yermola
+
+### 24.12.2001 reviews Честь, доблесть и гордость британского death metal
+
+<p>Честь, доблесть и гордость британского death metal. Очередная вариация на тему четвертого крестового похода. Группа уже тогда нашла свою фишку. Никто, пожалуй, больше в мире не играет настолько мощную громоподобно лязгающую музыку, при этом с многочисленными признаками однонотного мелодизма. Привередливым слушателям это явно не понравится. Никакого разнообразия, тем более, что предыдущие три альбома представляли собой то же самое. Но группа, не изменяет своим традициям, и даже не пытается внести в свою музыку что-то новое, с чем-либо поэкспериментировать. Вот и этот альбом содержит в себе все наработанные фишки группы, все то, что прославило Bolt Thrower. Объемный и агрессивный саунд, перемены ритма, мелодизм построенный исключительно на риффах, грозный гроулинг (отличная работа нового вокалиста группы Dave Ingram (Ex-Benediction)), отличная техника и высокое качество материала. Тяжелейший среднетемповый военно-тематический death-metal только для упертых фэнов группы. Первоклассный диск, но не первой свежести. Если вас это не пугает, то слушайте смело, как это сделал я. Быть может, вы тоже получите удовольствие при прослушивании.</p>
+
+Автор: Dimas
+
+### 22.01.2004 news BOLT THROWER атакует снова
+
+Death metal формация <B>BOLT THROWER</B> в данный момент пишет материал для своего восьмого альбома, который еще без названия. Группа планирует посетить студию записи в мае текущего года. Выйдет диск в октябре-ноябре на <B>Metal Blade Records</B>.
+Автор: Darkfall
+
+### 09.02.2004 news BOLT THROWER пишут материал к новому альбому
+
+Британские представтели <B>death-metal'a BOLT THROWER </B>сейчас заняты&nbsp;записью материала к новому студийному альбому, уже восьмому по счёту. Диск должен выйти в октябре-ноябре этого года. После релиза скорее всего последует&nbsp;американский тур. Более подробная информация будет позднее.
+Автор: Uneral
+
+### 02.09.2004 news BOLT THROWER покинул вокалист
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Dave Ingram</STRONG> покинул <STRONG>BOLT THROWER</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>У Dave проблемы в личной жизни и со здоровьем. Он решил, что ему лучше покинуть нас, а мы благодарим его за 6-летнее сотрудничество</EM>". </FONT></P>
+Автор: Vit Belov
+
+### 21.11.2004 news BOLT THROWER нашли замену Dave Ingram
+
+<P><STRONG>BOLT THROWER</STRONG> объявили имя нового вокалиста. Им стал... бывший певец коллектива <STRONG>Karl Willetts</STRONG>. Напомним, что он заменил <STRONG>Dave Ingram</STRONG>, который покинул группу недавно.</P>
+<P><STRONG>Karl</STRONG>: "<EM>Я снова часть <STRONG>BOLT THROWER</STRONG> - это фантастика. Мне не терпится снова заняться написанием песен и отправиться в тур</EM>".</P>
+Автор: Vit Belov
+
+### 21.11.2004 news BOLT THROWER: new singer!
+
+<P><STRONG>BOLT THROWER</STRONG> have found a replacement for the recently departed <STRONG>Dave Ingram</STRONG>.</P>
+<P>The band are very happy to announce that original vocalist <STRONG>Karl Willetts</STRONG> has rejoined them as a full-time member. </P>
+<P><STRONG>Karl</STRONG> said, "<EM>It's fantastic to be a part of the mighty <STRONG>Bolt Thrower</STRONG> again. It feels great to be back with the guys, I can't wait to get my teeth into the new songs and get back on the road again. I've got some unfinished business to attend to</EM>...!"</P>
+Автор: Vit Belov
+
+### 04.05.2005 news BOLT THROWER сочиняют новые песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BOLT THROWER</STRONG> сочинили новый материал для своего восьмого, пока безымянного, альбома. В середине мая группа войдёт <STRONG>Sable Rose Studio</STRONG>, где будет записывать пластинку, которая выйдет в октябре/ноябре на <STRONG>Metal Blade</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 10.09.2005 news Новый альбом BOLT THROWER
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2005.09/9286.jpg" width=300 align=right border=5>Новый альбом <STRONG>BOLT THROWER "Those Once Loyal"</STRONG> выйдет 14 ноября на<STRONG> Metal Blade</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>At First Light</STRONG> <BR>2. <STRONG>Entrenched <BR></STRONG>3. <STRONG>The Killchain</STRONG> <BR>4.<STRONG> Granite Wall <BR></STRONG>5. <STRONG>Those Once Loyal <BR></STRONG>6. <STRONG>Anti-Tank (Dead Armour) <BR></STRONG>7. <STRONG>Last Stand of Humanity <BR></STRONG>8. <STRONG>Salvo <BR></STRONG>9. <STRONG>When Cannons Fade</STRONG> </P>
+Автор: Vit Belov
+
+### 10.09.2005 news BOLT THROWER new album
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news/2005.09/9285.jpg" width=300 align=right border=5>New album of <STRONG>BOLT THROWER "Those Once Loyal"</STRONG>&nbsp;will be released on 14th of November&nbsp;via<STRONG>&nbsp;Metal Blade</STRONG>. Track-list:</P>
+<P>1. <STRONG>At First Light</STRONG> <BR>2. <STRONG>Entrenched <BR></STRONG>3. <STRONG>The Killchain</STRONG> <BR>4.<STRONG> Granite Wall <BR></STRONG>5. <STRONG>Those Once Loyal <BR></STRONG>6. <STRONG>Anti-Tank (Dead Armour) <BR></STRONG>7. <STRONG>Last Stand of Humanity <BR></STRONG>8. <STRONG>Salvo <BR></STRONG>9. <STRONG>When Cannons Fade</STRONG> </P>
+Автор: Vit Belov
+
+### 21.11.2005 news BOLT THROWER &quot;наехали&quot; Earache
+
+<P><STRONG>BOLT THROWER</STRONG> выразили недовольство переизданием своего альбома "<STRONG>Realm Of Chaos</STRONG>" на <STRONG>Earache</STRONG>. Группа утверждает, что не давала разрешения на это и не получит с переиздания никаких денег. Дэтстеры призывают фэнов бойкотировать подобные релизы от <STRONG>Earache</STRONG>.</P>
+<P>"<EM>Печально видеть, как низко может упасть рекорд-компания</EM>!", - заявляют <STRONG>BOLT THROWER</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.01.2006 reviews Очередной неинтересный юбилейный альбом
+
+<P>Ветеранам death-metal <STRONG>BOLT THROWER</STRONG> 20 лет. Достойный срок для группы, которая, как и её братья по оружию, то бишь по стилю, никогда не шла на компромиссы. А что это значит? Это значит, что англичане никогда не выдавали альбомов исключительно ради заработка. Кроме юбилея, <STRONG>BOLT THROWER</STRONG> приветствуют в своих рядах вокалиста-возвращенца <STRONG>Karl Willetts</STRONG>.</P>
+<P>Ничего интересного, к сожалению, ветераны предложить не смогли. Среднетемповая, а главное, достаточно вялая такая, долбёжка на протяжении всего альбома вгоняет в ступор. Даже поклонникам стиля может стать тяжело. Естественно, что при явных недостатках материала, не спасают ни работа музыкантов, ни, тем более, стильно оформление пластинки. Выделить на альбоме практически нечего.</P>
+<P>Я не буду говорить громких слов. У такой музыки всегда найдутся поклонники, а защитники ей не требуются. Также я не буду рассуждать на тему актуальности <STRONG>BOLT THROWER</STRONG> у современных слушателей. Всё это дело вкуса. Я же свой выбор сделал.</P>
+Автор: Vit Belov
+
+### 08.02.2006 news Inferno Metal Festival Norway 2006
+
+<P>С 13-го по 15-е апреля в столице Норвегии Осло пройдет <B>Inferno Metal Festival</B>. Свое согласие на участие дали такие команды как <B>Usurper, Emperor, Cathedral, Marduk, Bolt Thrower, Dismember, Carpathian Forest</B> и <B>Witchcraft</B>. Практически все билеты по интернету уже раскуплены! Попытать всё же счастья, а заодно узнать побольше информации о фестивале можно на сайте <A href="http://www.infernofestival.net/"><U>http://www.infernofestival.net/</U></A></P>
+Автор: Ixtiandr
+
+### 26.02.2006 news CULT OF LUNA примет участие в фестивале Close Up
+
+<P>Служители апокалиптического метала шведы <B>CULT OF LUNA</B>, новейший альбом которых, <B>"Somewhere Along The Highway"</B>, увидит свет на <B>Earache</B> 24 апреля, выступят на фестивале <B>Close Up Festival</B> 15 апреля.</P>
+<P>Двухдневный фест, организованный журналом <B>Close Up</B>, пройдет 15 и 16 апреля в столице Швеции Стокгольме. Там также примут участие такие команды, как <B>OPETH, EVERGREY, BOLT THROWER, BLINDSIDE, AMON AMARTH</B>.</P>
+Автор: Ixtiandr
+
+### 16.01.2008 news BOLT THROWER запишут альбом
+
+<P><STRONG>BOLT THROWER</STRONG> войдут в студию летом этого года для записи новой пластинки. Подробности пока не сообщаются.</P>
+Автор: Vit Belov
+
+### 13.06.2008 news BOLT THROWER отложили запись
+
+<P>Английские&nbsp;бойцы death-metal <STRONG>BOLT THROWER</STRONG> остановили подготовку к записи нового альбома. Причина высказывается добольно оригинальная. Музыканты вдруг поняли, что их новые записи не становятся лучшими в их карьере, а становится группой-ветераном, записывающей барахло, <STRONG>BOLT THROWER</STRONG> отказываются. Внимательно взглянув на свой новый материал, группа решила не выпускать его в качестве нового альбома <STRONG>BOLT THROWER</STRONG>. Также коллектив не собирается выпускать сборников своего творчества и альбомов кавер-версий в собственном исполнении.</P>
+Автор: Vit Belov
+
+### 08.08.2009 news Новая компиляция от EARACHE RECORDS
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.08/14781.jpg" width=400 align=right vspace=5 border=0>Earache Records</STRONG> - родной дом для многих групп-создателей жанра <STRONG>grindcore</STRONG>, подготовил к выпуску специальное издание из трёх дисков. Компиляция названная <STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)" </STRONG>включает в себя одни из самых первых записей в стиле <STRONG>grindcore</STRONG>.</P>
+<P>Все треки были взяты из первых передач <STRONG>John Peel</STRONG> на радио <STRONG>BBC</STRONG> и записаны на студии <STRONG>Maida Vale</STRONG> в Лондоне, между 1987 и 1990 годами.</P>
+<P>С самых первых дней <STRONG>Earache Records</STRONG>, <STRONG>John Peel</STRONG> оказывал огромную поддержку лейблу и его группам, дал возможность<STRONG>&nbsp;NAPALM</STRONG> <STRONG>DEATH</STRONG> и <STRONG>HERESY</STRONG> проиграть свои песни&nbsp;в эфире английского&nbsp;радио-шоу. В последующие годы, такие группы как <STRONG>NAPALM DEATH</STRONG> и <STRONG>CARCASS</STRONG> приписывали <STRONG>John Peel</STRONG> роль "ускорителя" их карьеры.</P>
+<P>И теперь, <STRONG>Earache Records</STRONG> впервые получил права от <STRONG>BBC</STRONG> на выпуск этих инновационных радио-сессий в полном объёме.</P>
+<P>Три диска включают в себя 118 треков классических записей от <STRONG>NAPALM DEATH</STRONG>, <STRONG>CARCASS</STRONG>, <STRONG>BOLT</STRONG> <STRONG>THROWER</STRONG>, <STRONG>EXTREME NOISE</STRONG> <STRONG>TERROR</STRONG>, <STRONG>GODFLESH</STRONG>, <STRONG>HERESY</STRONG>, <STRONG>UNSEEN</STRONG> <STRONG>TERROR</STRONG> и <STRONG>INTENSE</STRONG> <STRONG>DEGREE</STRONG>, общим временем звучания более трёх с половиной часов.</P>
+<P>Издание будет упаковано в слипкейс, а так же, содержать обширное интервью с бывшим барабанщиком <STRONG>NAPALM DEATH</STRONG> и изобретателем термина<STRONG> "grindcore"</STRONG> -<STRONG> Mick Harris</STRONG>.</P>
+<P><STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)"</STRONG> ожидается к выходу 12 октября.</P>
+<P>Для получения более полной информациии, поситите: <A href="http://www.myspace.com/grindmadness">www.myspace.com/grindmadness</A>.</P>
+Автор: Headcrusher
+
+### 19.02.2013 news BOLT THROWER: лейбл Earache переиздаёт альбом &quot;Realm Of Chaos&quot;
+
+<P>Английский лейбл <STRONG>Earache</STRONG> переиздаёт второй, ставший классикой, альбом <STRONG>"Realm Of Chaos"</STRONG> группы <STRONG>BOLT THROWER</STRONG>. Пластинка прошла ремастеринг с оригинальных мастер лент и получила новую обложку <EM>(рисунок ниже)</EM> авторства Джона Сиббика (<STRONG>Jon Sibbick</STRONG>). Этот же художник был ответственен и за оригинальный рисунок, который вы можете увидеть на диске <STRONG>"Realm Of Chaos"</STRONG>&nbsp;1989 года выпуска.</P>
+<P>Помимо издания на обычном CD,&nbsp;чёрном и&nbsp;жёлтом <EM>(только в интернет магазине <STRONG>Nuclear Blast</STRONG>)</EM> винилах, <STRONG>"Realm Of Chaos" </STRONG>будет выпущен и в ограниченном количестве в формате CD+DVD. На DVD диск этого издания войдёт запись выступления коллектива в клубе<STRONG> "Rock City"</STRONG> (Ноттингем, Англия)&nbsp;14 ноября&nbsp;1989 года. 
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25447.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 18.09.2015 news Умер барабанщик BOLT THROWER
+
+<P>Барабанщик<STRONG> BOLT THROWER Martin ‘Kiddie’ Kearns</STRONG> скончался в возрасте 38 лет. Группа сообщила, что начинала репетиции к своему туру по Австралии, когда музыканту стало плохо. Ночью он умер во сне. Музыкант записал с BOLT THROWER два альбома "Honour – Valour – Pride"&nbsp;и "Those Once Loyal"</P>
+<P>R.I.P.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.09/28339.jpg" width=645 height=363></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

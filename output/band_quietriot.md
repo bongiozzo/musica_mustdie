@@ -165,6 +165,68 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.04.2001 news Невинные удовольствия бунтарей....
+
+<p>Хэви-металлеры "Quiet Riot" завершили запись грядущего "Guilty Pleasures". Kevin Dubrow сообщил, что "Это будет обычный Quiet Riot. Мы не старались вертеть колесо...". Записано 14 вещей, из которых на альбом войдут только 11: Vicious Circle, Feel The Pain, Rock The House (1-ый single - уже крутится на радио), Shadow Of Love, Guilty Pleasures, Feed The Machine, Let Me Be The One, I Can't Make You Love Me, Blast From The Past, Street Fighter, Fly To High. В мае команда отправляется в тур с POISON.</p>
+
+Автор: Yermola
+
+### 17.04.2001 news Guilty Pleasures of Quiet Riot.......
+
+<p>Kevin Dubrow offered up this exclusive look into the band's new album, Guilty Pleasures. "All the recording and mixing was done in fourteen days. We spent more time writing the songs than recording them. The album sounds like Quiet Riot. We are not trying to re-invent the wheel. Only making it a little more fun." The band recorded fourteen tracks for the new CD, but are only releasing eleven. Songs included on 'Guilty Pleasures' are: Vicious Circle, Feel The Pain, Rock The House (1st single - already at radio), Shadow Of Love, Guilty Pleasures, Feed The Machine, Let Me Be The One, I Can't Make You Love Me, Blast From The Past, Street Fighter, Fly To High. The band hits the road in late May in support of POISON on their Glam Slam 2001 summer tour. BW&BK will be covering the June 16th show in Saratoga Springs, NY, as well as the July 20th show in Toronto.</p>
+
+Автор: Yermola
+
+### 26.11.2007 news Kevin Dubrow найден мёртвым
+
+<P>Вокалист <STRONG>QUIET RIOT Kevin Dubrow</STRONG> найден мёртвым в своём доме в Лас-Вегасе 25 ноября. Полиция пытается выяснить причину смерти певца. Музыканты было 52. </P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+### 11.12.2007 news Причина смерти Kevin Dubrow
+
+<P>Наконец-то стала известна причина смерти вокалиста <STRONG>QUIET RIOT Kevin Dubrow</STRONG>. Агентство <STRONG>Associated Press</STRONG> сообщило, что певец умер от передозировки кокаином.</P>
+Автор: Vit Belov
+
+### 03.12.2010 news QUIET RIOT вновь вернулись
+
+<P>Видео с дебютного концерта вернувшихся к жизни <STRONG>QUIET RIOT</STRONG> можно посмотреть ниже. Группа открыла новую эру в своём существования выступлением в Денвере, штат Колорадо 26 ноября этого года.&nbsp;Последний раз группа распалась в&nbsp;2008 году после смерти от передозировки кокаином вокалиста<STRONG> Kevin Dubrow</STRONG>.</P>
+<P>С благословения матери умершего певца барабанщик <STRONG>Frankie Banali</STRONG> взял в коллектив нового певца <STRONG>Mark Huff, </STRONG>который до этого выступал в 'tribute' банде, посвящённой <STRONG>VAN HALEN</STRONG>. С новым фронтменом <STRONG>QUIET RIOT</STRONG> перезаписали классику группы <STRONG>"Cum On Feel The Noize"</STRONG>, <B>"Metal Health"</B>&nbsp;и <STRONG>"Slick Black Cadillac". </STRONG>Сообщается, что новый певец при записи пользовался микрофоном <STRONG>Kevin Dubrow</STRONG>. Послушать сэмплы можно здесь: <A href="http://www.myspace.com/officialquietriot">http://www.myspace.com/officialquietriot</A></P>
+<P><STRONG>'Metal Health'</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9YcAkkaarAE&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/9YcAkkaarAE&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.01.2012 news QUIET RIOT вновь поменяли вокалиста
+
+<P><STRONG>Mark Huff</STRONG>, который был вокалистом <STRONG>QUIET RIOT</STRONG> чуть больше одного года, покинул коллектив. На концертные даты в начале февраля место у микрофона займёт <STRONG>Keith St. John (ex-MONTROSE)</STRONG>.</P>
+<P><center><IMG height=478 src="/images/news_rus/2012.01/22618.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 15.03.2012 news Новый певец QUIET RIOT
+
+<P>Новым фронтменом <STRONG>QUIET RIOT</STRONG> стал<STRONG> Scott Vokoun</STRONG>. Группа начинает концертную деятельность с новым музыкантом в составе в конце этого месяца.</P>
+<P><center><IMG height=322 src="/images/news_rus/2012.03/23257.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 19.03.2015 news GUNZO: проект Rudy Sarzo и Tracii Guns
+
+<P><STRONG>GUNZO</STRONG>&nbsp;- такое имя получил совместный проект, созданный гитаристом <STRONG>Tracii Guns</STRONG> (ex-<STRONG>L.A. GUNS</STRONG>, <STRONG>BRIDES OF DESTRUCTION</STRONG>)&nbsp;и басистом <STRONG>Rudy Sarzo </STRONG>(ex-<STRONG>WHITESNAKE</STRONG>, ex-<STRONG>QUIET RIOT</STRONG>).</P>
+<P>Первое выступление группы состоялось в Калифорнии в прошлом месяце и ещё одно, совсем недавно, 14 марта в городе Costa Mesa.</P>
+<P>Помимо двух вышеупомянутых участников, в состав <STRONG>GUNZO</STRONG> также вошли вокалист <STRONG>Keith St. John</STRONG> (принимавший участие в <STRONG>MONTROSE</STRONG> и <STRONG>QUIET RIOT</STRONG>) и барабанщик <STRONG>Shane Fitzgibbon</STRONG>. Сет-лист выступления коллектива составляют песни авторства <STRONG>DIO</STRONG>, <STRONG>MONTROSE</STRONG> и <STRONG>Randy Rhoads</STRONG>. </P>
+<P><STRONG>St. John</STRONG> комментирует:<EM> "Мы собрались, чтобы поиграть нашу любимую музыку с&nbsp;нашими любимыми музыкантами." </EM></P>
+<P>Также стало известно, что <STRONG>Rudy Sarzo</STRONG> примет участие в документальном фильме <STRONG>"Hired Gun"</STRONG>, который рассказывает о жизни&nbsp;сессионных музыкантов.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.03/27701.jpg" width=660 height=270> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -70,6 +70,9 @@ Svarog - Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### Secrets Of The Dark Nature (Self Release) 2005

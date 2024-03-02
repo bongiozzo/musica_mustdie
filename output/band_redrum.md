@@ -62,6 +62,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.06.2008 news REDRUM заканчивают новый альбом
+
+<P>После продолжительной творческой паузы группа <STRONG>REDRUM</STRONG> продолжает идти вперед к намеченому релизу <STRONG>World DeTermination</STRONG>. Последним штрихом, завершающим работу над пластинкой являлся ремикс на композицию <STRONG>Generation Of Dead God</STRONG>. Ремикс будет включен в новый опус под номером 13 в треклисте альбома. Альбом, как и все предыдущие работы команды, полностью выдержан в стиле Black/Death с фирменным подчерком <STRONG>REDRVM</STRONG>. На этот раз альбом сдобрен техно-индустриальными вкраплениями и более обильным наличием чистых вокалов. Сейчас группа ищет лейбл, на котором состоится выход альбома. Все заинтересованные люди могут свзяться с группой по <STRONG>email redrVm(a t)mail(d o t)ru</STRONG>. Предварительный треклист альбома выглядит следующим образом:</P>
+<P>01. <STRONG>Enigma Misanthropia</STRONG><BR>02. <STRONG>End Ov Life</STRONG><BR>03. <STRONG>World De Termination</STRONG><BR>04. <STRONG>Generation Of Dead God</STRONG><BR>05. <STRONG>Kind Ov Suicide<BR></STRONG>06. <STRONG>Hellfire Attack</STRONG><BR>07. <STRONG>Dominion 999</STRONG><BR>08. <STRONG>Karma Nirvana</STRONG><BR>09. <STRONG>No Mercy Man</STRONG><BR>10. <STRONG>Under Dying Sun</STRONG><BR>11. <STRONG>Final Chaotic Eclipse</STRONG><BR>12. <STRONG>Deduced to Overkill</STRONG> [Zyklon Cover]<BR>13. <STRONG>Generation Of Dead God</STRONG> [El Bonzo Remix]</P>
+<P>Так же в альбом планируется включить 2 видеоклипа на композиции "<STRONG>Generation Of Dead God</STRONG>" и "<STRONG>World DeTermination</STRONG>".</P>
+<P>Оффициальный сайт группы: <A href="http://murderredrum.narod.ru/">http://murderREDRUM.narod.ru</A><BR>Myspace: <A href="http://myspace.com/murderredrum">http://myspace.com/murderredrum</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

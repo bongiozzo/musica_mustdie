@@ -16,6 +16,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.09.2016 news Новый клип COGNITIVE
+
+<p>Новый ролик американской techno death metal группы<strong> COGNITIVE "Birthing The Deformity"</strong> можно посмотреть ниже. Трек войдёт в второй альбом коллектива "<strong>Deformity</strong>", который выйдет 28 октября на <strong>Unique Leader</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/yP9c-shIgM8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 16.09.2016 news New video of COGNITIVE
+
+<p>The new video of American techno death metal band <strong>COGNITIVE "Birthing The Deformity"</strong> can be viewed below. The track will be included in the group's second album "<strong>Deformity</strong>" that will be released 28 October on <strong>Unique Leader</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/yP9c-shIgM8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.10.2016 news Новая песня COGNITIVE
+
+<p>Новый трек американской techno death metal банды <strong>COGNITIVE "Haunted Justice"</strong> можно послушать ниже. В записи этой песни принял участие <strong>Mark Kloeppel</strong> из <strong>MISERY INDEX</strong>. Новый альбом музыкантов "<strong>Deformity</strong>" выходит 28 октября на <strong>Unique Leader</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-ufUFc26YEo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.10.2016 news COGNITIVE released new track
+
+<p>New track by American techno death metal band <strong>COGNITIVE "Haunted Justice"</strong> can be streamed below. In the recording of this song took part <strong>Mark Kloeppel</strong> from <strong>MISERY INDEX</strong>. New album musicians "<strong>Deformity</strong>"&nbsp;will be&nbsp;out on 28 October on <strong>Unique Leader</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-ufUFc26YEo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

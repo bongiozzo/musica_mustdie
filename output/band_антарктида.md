@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2012 news Новый клип АНТАРКТИДА
+
+<P><STRONG>I.D.L. Prod.</STRONG> представляет новый клип epic-melodic группы <STRONG>АНТАРКТИДА</STRONG> на песню "<STRONG>Край</STRONG>". Композиция с альбома "<STRONG>Край</STRONG>", выпущенного компанией <STRONG>I.D.L. Prod</STRONG>. Главную роль в клипе сыграла известная модель <STRONG>Мартина Кондор</STRONG>. Сейчас музыканты готовятся к новому концертному сезону, и в сентябре представят новую концертную программу.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wxwiItzl3Xk?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wxwiItzl3Xk?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

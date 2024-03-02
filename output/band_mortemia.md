@@ -22,6 +22,32 @@
 * C группой "Sirenia" Morten Veland
 * C группой "Tristania" Morten Veland
 
+## Публикации
+
+### 18.01.2010 news Первая песня MORTEMIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный альбом нового проекта<STRONG> Morten Veland</STRONG> (<STRONG>SIRENIA, ex-TRISTANIA</STRONG>)<STRONG> MORTEMIA</STRONG> выйдет в феврале на <STRONG>Napalm Records</STRONG>. На<STRONG> MySpace</STRONG> доступен первый хит с этой работы <STRONG>"The One I Once Was"</STRONG>: <A href="http://www.myspace.com/mortemiano">http://www.myspace.com/mortemiano</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Напомним, что с этой группой музыкант решил вернуться к более плотному звучанию.</FONT></P>
+Автор: Vit Belov
+
+### 13.02.2010 news Видео MORTEMIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный клип новой группы <STRONG>Morten Veland</STRONG> (<STRONG>SIRENIA</STRONG>) на песню <STRONG>"The One I Once Was" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/O0yoxveh7Tg&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/O0yoxveh7Tg&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.03.2010 reviews Музыка имени Morten Veland
+
+<P>Знаменитый норвежский музыкант Morten Veland, основавший две ведущие gothic-doom-metal команды Норвегии TRISTANIA и SIRENIA, решил пополнить список своих проетов ещё одной группой - MORTEMIA. Дебютный альбом этого проекта “Misere Mortem”, на котором Morten всё делает сам, вышел совсем недавно на Napalm Records.</P>
+<P>&nbsp;По словам самого музыканта, главной причиной рождения нового имени стало его желание играть музыку в духе ранних альбомов TRISTANIA и SIRENIA. К сожалению, в наши дни появление подобной группы не вызвало такого сильного ажиотажа, как могло бы лет пять назад. Музыкальные предпочтения публики не стоят на месте, и хорами в тяжёлой музыке уже никого не удивишь. А именно хоры и легли в основу этого альбома. Мелодичная и довольно простая гитарная музыка с гроулингом очень часто прерывается хором или симфоническими аранжировками. Подобные ходы приносили успех Morten в других его проектах, но MORTEMIA, пожалуй, самый минималистичный из них. Здесь нет женского вокала, нет разнообразного ритмического рисунка, даже мелодии у некоторых композиций схожи. Добавьте к этому постоянное впечатление, что слушаешь one-man band, технически звучанию инструментов явно не хватает разнообразия и индивидуальности исполнителя.</P>
+<P>Но, несмотря на все эти претензии, поклонники подобной музыки, к которым я отношу и себя, останутся довольны. В наши дни такой музыки выходит очень мало, а послушать чего-нибудь новенького из металической «симфо-попсы» хочется практически всегда. Мои настоятельные рекомендации поклонникам SIRENIA и TRISTANIA.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

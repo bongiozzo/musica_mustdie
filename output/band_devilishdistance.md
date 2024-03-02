@@ -38,6 +38,53 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.02.2006 reviews Двойной дебют
+
+<P>Digipack, пусть даже и простенький, без буклета - смелое решение для дебютного альбома. Но, как говорится, дешевый понт дороже мяса, тем более, что музыка коллектива очень даже ничего. В результате, привлекая покупателя внешним видом, альбом несёт ещё и неплохое содержание. Глядя на обложку, можно подумать , что самарский коллектив Devilish Distance исполняют шведский мелодик дэт, но поверьте - это не так. Группа действительно нарезает дэт, но скорее это дэт старой школы с небольшими вкраплениями трэша. В целом альбом получился довольно сильным&nbsp; - всё очень качественно исполнено, неплохо записано и спродюсировано. Данный релиз стал отправным в работе нового лэйбла Mystic Empire. Ну что же,&nbsp; приятно что для группы и лэйбла первый блин не вышел комом.</P>
+<P>Диск предоставлен Mystic Empire</P>
+Автор: Fucker
+
+### 22.01.2007 news Новый альбом DEVILISH DISTANCE
+
+<P><IMG height=399 alt="" hspace=0 src="/images/news_rus/2007.01/11208.jpg" width=400 align=left border=5>Самарская death metal формация <STRONG>DEVILISH DISTANCE</STRONG> в данный момент работает над своим вторым полноценным релизом. Группа выложила в сеть две записи из своего нового материала, который будет выпущен лейблом <STRONG>Mazzar / Mystic Empire</STRONG> под названием «<STRONG>Under The Shroud Of Lie</STRONG>». Стоит особо обратить внимание, что два представленных трека являются демо-работами и на альбоме прозвучат в гораздо лучшем качестве и их стоит расматривать исключительно в ознакомительных целях. </P>
+<P>В альбом «<STRONG>Under The Shroud Of Lie</STRONG>» всего войдет 9 треков:</P>
+<P>1. <STRONG>Sacrificial Insanity</STRONG><BR>2. <A href="http://www.mystic-empire.ru/m/crush_the_cross.mp3">Crush The Cross</A><BR>3. <STRONG>Diseased. Deranged. Dead.</STRONG><BR>4.<STRONG> Dead Invaders<BR></STRONG>5. <STRONG>1843<BR></STRONG>6. <A href="http://www.mystic-empire.ru/m/spread_of_infection.mp3">Spread Of Infection (Bury The Prophet)</A><BR>7. <STRONG>Why Didn’t You Appear</STRONG><BR>8. <STRONG>Reign Of Satan Forever<BR></STRONG>9. <STRONG>Hallowed Call</STRONG></P>
+<P>Оформлением альбома занимался <STRONG>W.Smerdulak</STRONG> также работавший над обложками <STRONG>Dark Princess, Аркона, Rossomahaar</STRONG> и многих других. Напоминаем вам, что дебютный альбом <STRONG>DEVILISH DISTANCE "The Black Mountain Call"</STRONG> был выпущен в виде стильного digipack также на лейбле <STRONG>Mazzar / Mystic Empire</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.06.2007 reviews Самарская жесть!
+
+<P>Новая работа самарского коллектива Devilish Distance просто поражает своей "фирменностью". Причем эта самая фирменность наблюдается во всем: в оформлении (за артворк отвечал Владимир Смердулак, известный своим оформлением альбомов Stalwart, Rossomahaar и др.), в качестве записи, в творческом креативе, в аранжировках. Прошлый, дебютный альбом группы, был более чем неплох, но новый релиз заслуживает самых высоких похвал. В стилистическом плане на Under The Shroud Of Life изменений не произошло - это все тот же скоростной, мощный и напористый дэт на грани с трэшем, вызывающий в памяти лучшие работы Vader и Hypocrisy. Изменения произошли в музыкальной составляющей - новый материал более интересный и цепляющий, местами быстрый, местами среднетемповый, с высокотехничными риффами и ураганным шквалом ритм-секции. Если не знать, что Devilish Distance наши соотечественники, то можно подумать, что перед нами представители польской сцены. Если вы являетесь поклонником таких коллективов, как Vader, Behemoth и Lost Soul, то данный альбом наверняка придется вам по вкусу.</P>
+<P>Диск предоставлен Mazzar</P>
+Автор: Fucker
+
+### 31.01.2009 news DEVILISH DISTANCE приступили к записи нового альбома
+
+<P><IMG height=226 alt="" hspace=0 src="/images/news_rus/2009.01/13480.jpg" width=300 align=left border=5>Самарские death металлисты <STRONG>DEVILISH DISTANCE</STRONG> приступили к записи своего третьего полноформатника. Новая работа получит название «<STRONG>Deathtruction</STRONG>» и в неё войдут 9 треков, выдержанные как в строгих рамках стиля, так и содержащие смелые экспериментальные решения. Привычная мощь жестких рифов, пронизывающие соло, высокоскоростные бластбиты в сочетании с атмосферной мелодикой и зловещими клавишными вкраплениями. Как и прежде группа работает в <STRONG>Leprecon Studio</STRONG> и студии<STRONG> A 110</STRONG>. Оформление альбома поручено <STRONG>W.Smerdulak</STRONG>’у, который работал над предыдущим шедевром «<STRONG>Under The Shroud Of Lie</STRONG>». С демо треками песен с грядущей пластинки можно ознакомиться на myspace странице группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/devilishdistance">http://www.myspace.com/devilishdistance</A></P>
+Автор: Vit Belov
+
+### 01.05.2010 news DEVILISH DISTANCE готовят альбом
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.05/16643.jpg" width=400 align=right border=5>Самарская death metal группа <STRONG>DEVILISH DISTANCE</STRONG> заканчивают запись своего третьего полноформатника. Новая работа получила название "<STRONG>Deathtruction</STRONG>", и в неё войдут 9 треков, выдержанные как в строгих рамках стиля, так и содержащие смелые экспериментальные решения. Привычная мощь жестких риффов, пронизывающие соло, высокоскоростные бластбиты в сочетании с атмосферной мелодикой и зловещими клавишными вкраплениями. Оформление альбома поручено<STRONG> W.Smerdulak</STRONG>’у, который работал над предыдущим альбомом "<STRONG>Under The Shroud Of Lie</STRONG>", вышедшим в 2007 года, на лейбле <STRONG>MAZZAR Records</STRONG>.&nbsp; С демо-треками песен с грядущей пластинки можно ознакомиться на официальной странице группы на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/devilishdistance">http://www.myspace.com/devilishdistance</A> <BR>и вконтакте: <A href="http://vkontakte.ru/club1404066">http://vkontakte.ru/club1404066</A></P>
+Автор: Vit Belov
+
+### 13.09.2010 news Интернет-миньон от DEVILISH DISTANCE
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.09/17173.jpg" width=400 align=right border=5>Самарский Death коллектив <STRONG>DEVILISH DISTANCE</STRONG> заканчивают запись&nbsp; своего третьего полноформатника. Новая работа под названием "<STRONG>Deathtruction</STRONG>" выйдет на московском независимом лейбле <STRONG>MAZZAR Records</STRONG>. В неё войдут 10 трэков, выдержанные как в строгих рамках стиля, так и содержащие смелые экспериментальные решения. Привычная мощь жестких риффов, пронизывающие соло, высокоскоростные бластбиты в сочетании с атмосферной мелодикой и зловещими клавишными вкраплениями.</P>
+<P>Для ознакомления с&nbsp; трэками, которые будут входить в альбом можно уже сейчас!</P>
+<P>Группа специально для своих поклонников выложила в сеть интернет-миньон «<STRONG>IN HATE WE TRUST</STRONG>»</P>
+<P>Трэк-лист:</P>
+<P>1. <STRONG>Panzerfaust <BR></STRONG>2. <STRONG>Scorn <BR></STRONG>3. <STRONG>Perverted existence</STRONG> <BR>4. <STRONG>Stand</STRONG> <BR>5. <STRONG>1843 </STRONG>(Re-mastered) <BR>6. <STRONG>Spread of Infection </STRONG>(Re-mastered) <BR>7. <STRONG>World beyond</STRONG> (Kreator cover Feat Ed Lytkin) </P>
+<P>Скачать: </P>
+<P><A href="http://rghost.ru/2446764/private/3eadd87eed92bd4c3b489f3e9d39285f">http://rghost.ru/2446764/private/3eadd87eed92bd4c3b489f3e9d39285f</A><BR><A href="http://ifolder.ru/19036717">http://ifolder.ru/19036717</A></P>
+<P>Оформление альбома поручено <STRONG>W.Smerdulak’</STRONG>у, который работал над предыдущим альбомом "<STRONG>Under The Shroud Of Lie</STRONG>".</P>
+<P>Все новости о группе можете узнать в официальной группе вконтакте: <A href="http://vkontakte.ru/club1404066">http://vkontakte.ru/club1404066</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -51,6 +51,557 @@ remix)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 06.11.2004 news IN STRICT CONFIDENCE - мини-альбом длиной 80 минут
+
+<P>Близится к завершению работа над очередным EP IN STRICT CONFIDENCE "Seven Lives". Окончательный трек-лист ещё не сформирован, но уже ясно - болванка будет забита под завязку. Нас ожидают порядка 14-ти песен общей продолжительностью под 80 минут - несколько совершенно новых вещей, в числе которых "Der Teufel", "Open Skies" и "Walking Shadows", а также ремиксы от разных достойных команд вроде DE/VISION, CR&#220;XSHADOWS и IRIS.</P>
+Автор: Morsus
+
+### 29.06.2005 reviews О том, как надо зарабатывать деньги.
+
+<SPAN style="COLOR: black"><SPAN style="COLOR: black">
+<P>In Strict Confidence – хорошо отрегулированная машина по честному отъёму денег у потребителей. Четвертый альбом за год, это круто! Но гораздо круче то, что отъем действительно честный, и деньги берутся не за никому не нужные концертники-анплаги, а за талантливую и интересную работу. </P>
+<P>Итак, после двойника-переиздания дебютной работы «Face the Fear», полноформатника “Holy”, «The HECQ Destruxxion» - сборника ремиксов на “Holy”, следует новый ипишник «Seven Lives». Правильный такой EP, на 78 минут. Ох, и люблю я электронщиков за масштабность. </P>
+<P>Как ясно из названия, без эксплуатации хитов с “Holy” и здесь не обошлось. Заглавная вещь присутствует аж в пяти вариантах. Каждый из них по-своему хорош, и слушать их безумно интересно. Особенно отличились метры из De/Vision. Их вариант отличается каким-то особым шармом и типичной синтипоповской дискотечной легкостью, без ущерба навороченной аранжировке. Но главное на ипишке, всё же, не эти, уже проверенные на дискотечных площадках, готическими ди-джеями, хиты в новых безупречных, прекрасно сшитых одёжках. Главное – 4 новые вещи, одна из которых – “Open Skies”, пожалуй, превзошла по хитовости саму - единую в пяти лицах - “Seven Lives”. Она логично очутилась среди легковесных фьючерпоповых композиций с “Holy”, совершенно не выпадая из контекста прыгательной музыки для темных залов ночных клубов. А вот остальное новьё очень резко отличается от них. </P>
+<P>“Der Teufel” и “Walking Shadow” – двенадцатисполовиной минутный мрачнейший EBMовский загруз, атака на обленившиеся мозги синтипоперов и пиршество для моих ушей. Молиться и бить лбом об пол полчаса всем… вот до такой степени они хороши. </P>
+<P>Итог: Вышел бы в 2004 году еще один EP, купил бы обязательно, ибо неисчерпаемо моё доверие Денису Остерманну, глубока моя вера в его талант и композиторский дар. Алллилууууйа!!!</P>
+<P>А “Seven Lives” почти шедевр. Вот так.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P></SPAN></SPAN>
+Автор: Дофф
+
+### 17.06.2007 news IN STRICT CONFIDENCE в Москве
+
+<P>17 июня в клубе IKRA выступят пионеры synth-gothic IN STRICT CONFIDENCE&gt;<IMG height=406 src="/images/shows_rus/2007.06/11670.jpg" width=611 align=right border=10><BR>(Германия). Специальный гость - ALTERA FORMA (dark-electro, Россия)</P>
+<P>ПРОГРАММА<BR>20.00 - вход<BR>21.00 - ALTERA FORMA<BR>21.45 - IN STRICT CONFIDENCE</P>
+<P>Стоимость билетов: 800 руб. (танцевальный партер), 1500 - 2000 руб. (VIP).</P>
+<P>Клуб IKRA (Москва, Казакова 8а, <A href="http://www.nobullshit.ru/">www.nobullshit.ru</A>)<BR>Заказ билетов по телефону 505 53 51.</P>
+<P>Прекрасные готические рыцари движутся в "Икру" - встречайте, как подобает аристократическим особам! In Strict Confidence заслужили внимание синти-готик-общественности еще в 1997-м, благодаря эффектному дебютному альбому "Сryogenix" - и по альбомам-кирпичикам сложили убедительную дискографию, на которой выросло целое фанатское коммьюнити. Музыка In Strict Confidence - мелодичное и веское электро, синтипоп в мрачных тонах, суровые пророчества и смертная любовь. Крепкий бит, хриплая мужественность вокала Денниса Остерманна в cочетании с эфирными рулладами Антье Шульц, динамичная электроника, концептуальное видео и заразительные мелодии - всего этого у In Strict Confidence в достатке. Свой стиль они выдерживают блестяще, не отступают и не сдаются - на концертах энергия хлещет через край. У них все по-настоящему и в полную силу - будьте В Полной Уверенности. <BR>Невеорятно работоспособные и талантливые музыканты, cоздавшие в начале 90-х один из самых популярных коллективов темной сцены Европы, участники несметного количества коллабораций и сайд-проектов, везут в Москву новую программу в поддержку нового альбома EXILE PARADISE. Специальные гости концерта – dark-electro проект ALTERA FORMA – представят слушателям премьеру своей новой концертной программы. <BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Юбилейный &quot;X Moscow Synthetic Snow Festival&quot; (7 и 8 декабря 2012, Москва)

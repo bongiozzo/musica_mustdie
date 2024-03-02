@@ -22,6 +22,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news WITCHCURSE подготовили новый миньон
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=310 alt="" hspace=0 src="/images/news_rus/2011.07/19951.jpg" width=200 align=right border=0>Греческие heavy-metal&nbsp;маньяки <STRONG>WITCHCURSE </STRONG>выпустили свой новый EP "<STRONG>Still Evil</STRONG>". Пластинка распространяется в лимитированном издании 500 помеченных копий лэйблом <STRONG>War Productions</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>I'm No Fool</STRONG> <BR>2. <STRONG>Way Of Life&nbsp;&nbsp; <BR></STRONG>3. <STRONG>Heavy Metal Kamikaze</STRONG>&nbsp; <BR>4. <STRONG>Drinkers From Hell</STRONG>&nbsp; </P>
+<P>Последний полноформатный альбом<STRONG> WITCHCURSE "Heavy Metal Poison"</STRONG> вышел в прошлом году на том же лэйбле.</P>
+<P>Сайт лэйбла: <A href="http://www.war-productions.org/">http://www.war-productions.org/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

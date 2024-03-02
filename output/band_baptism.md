@@ -35,6 +35,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.08.2011 news Фестиваль &quot;Hammer Open Air&#39; 2011&quot;: фото-отчёт
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20414.jpg" width=300 height=119> 
+<P></P>
+<P>15 и 16 июля в Финляндии прошёл фестиваль "<STRONG>Hammer Open Air</STRONG>". Среди участников фестиваля в основном преобладали андеграундные финские и шведские коллективы, исключением, пожалуй лишь, стали&nbsp;<STRONG>ABSU</STRONG>, <STRONG>PRIMORDIAL</STRONG> и <STRONG>AUTOPSY</STRONG>. Последние, к сожалению, не попали в объектив нашего фотографа.</P>
+<P>Фотографии с выступлений можно посмотреть на нашем сайте, пройдя по ссылкам указанным&nbsp;ниже.</P>
+<P>День 1: <A href="/ru/galleries/1/740/">http://musica.mustdie.ru/ru/galleries/1/740/</A></P>
+<P>День 2: <A href="/ru/galleries/1/742/">http://musica.mustdie.ru/ru/galleries/1/742/</A></P></CENTER>
+Автор: Headcrusher
+
+### 11.08.2016 reviews Философский black metal
+
+<p>Финская группа BAPTISM, в студии состоящая из одного музыканта Lord Sargofagian, выпустила на Season Of Mist пятый альбом «V: The Devil's Fire”. Классики финского богохульного метала относятся к коллективам, которые только на первый взгляд кажутся удивительно мрачными и мизантропичными. Их музыкальное творчество никак не поддерживает этот имидж. Black metal от BAPTISM на редкость атмосферен и мелодичен, он не злой, он отчаянный.</p><p>С первых аккордов «The Devil's Fire” становится понятно, что true музыки BAPTISM на сегодняшний день не играют. Финская группа не выходит за рамки black metal, это безусловно, но атмосферы ненависти у Lord Sargofagian не осталось. Он скорее предлагает смириться и погрустить, робко покрикивая на христиан. Он поражает своей меланхоличностью и отсутствием желания бороться. Вероятно, мы имеем дело с black metal, который по духу предлагает нам философскую версию сатанизма, как у ALGHAZANTH. Да, у BAPTISM нет симфоничности, хотя клавишные и присутствуют, но в некоторых местах ALGHAZANTH мне кажется даже более злым, хоть и более коммерческим. </p><p>Всё выше сказанное вовсе не означает того, что обозреваемый альбом плох. Он очень приятно слушается, не вызывая каких-то сильных эмоциональых потрясений, зато предлагая крепкую профессиональную black metal композицию. Это творение, безусловно, рекомендуется к прослушиванию всем любителям black metal. Альбом совершенно очевидно заслуживает оценки «хорошо», совершенно очевидно не звслуживая оценки «отлично».</p>
+Автор: Vit Belov
+
+### 20.08.2016 reviews Philosophical black metal
+
+<p>The Finnish group BAPTISM consisting in the studio of one musician Lord Sargofagian, released on Season Of Mist fifth album "V: The Devil's Fire". Classic Finnish blasphemous metal belong to groups which at first glance seem surprisingly gloomy and misanthropic. Their musical work does not support this image. Black metal from BAPTISM to be extremely atmospheric and melodic, it's not evil, it's desperate.</p><p>From the first chords of "The Devil's Fire" it becomes clear that BAPTISM are not playing true music today. The Finnish group does not go beyond black metal, certainly, but the hatred left from Lord Sargofagian. Rather, it offers to accept and mourn, timidly shouting at Christians. It is striking in its melancholy and lack of desire to fight. Probably we are dealing with black metal, which the spirit offers us a philosophical version of Satanism, like ALGHAZANTH. Yes, BAPTISM are not symphonic, although keyboards are present, but in some places ALGHAZANTH seems to me even more evil, though more commercial.</p><p>All of the above does not mean that the this album is bad. It is very nice to listen to, without causing any strong emotionally shocks, but many strong professional black metal composition. This creation is definitely recommended listening for all fans of black metal. The album obviously deserves the rating of "good", obviously not of "excellent".</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

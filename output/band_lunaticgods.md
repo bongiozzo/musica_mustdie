@@ -198,6 +198,33 @@ Svarog - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.07.2002 reviews Безумие в рамках дэт-металла
+
+<p>Четыре долгих года потребовалось чешскому секстету, дабы вновь поиграть на наших порядком истрёпанных нервах. И вот, при наличии желания и некоторого количества "зелененьких", мы уже третий раз кряду можем ознакомиться со всем тем безумием, что только возможно в рамках дэт-металла. Хотя, "в рамках дэт-металла" - слишком сильно сказано. Ибо при внимательном прослушивании "The Wilderness" заметно сильнейшее влияние блэка, не говоря уже о том, что на альбоме полным-полно всяческих псевдо-фолковых пассажей. В отличие от своих предшественников, "The Wilderness" звучит вполне осмысленно, более не производя впечатления плода больного воображения музыканта, страдающего раздвоением личности. Вполне возможно, что это как-то связано с перетряской в составе группы; ведь с некоторых пор вокалистом является некий Horar (который со своими обязанностями справляется не в пример лучше покинувшего группу Mortis’а), а гитаристом – заменивший клавишника (!) Любослав. Не могу сказать, что я в восторге от этой работы, однако "The Wilderness" определённо заслуживает быть прослушанным… хотя бы один-единственный раз. Непонятным остаётся только одно: почему альбом, записанный в декабре 2000 года, был выпущен только сейчас?</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 29.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 30.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // NEWS //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 13.08.2004 reviews Боги, севшие в лужу
+
+<P>Что это? Стёб? Издевательство? Экзотика? Или просто убожество? Словацкий секстет с симпатичным названием Lunatic Gods записал еще в 1998 году 10 песен (потом они их ремастировали) совершенно немыслимого качества, как по музыке, так и по записи. Наверное, это первоначально задумывалось как блэк-дэт, но с чуть ли не по-готически надрывно-страдающим первым вокалом и каким-то вообще непонятным вторым получилось черте что. Этой примитивнейшей во всём "музыкой" нам терзают уши более часа (для пущего кайфа альбом добит в виде бонусов двумя нереализованными трэками с другого диска группы, более позднего "The Wilderness" - тоже плоховато записанный материал с гроулом и чистым вокалом, но уже ближе к мелодичному дэту/блэку), и желание нажать на заветную пимпу "стоп" с каждой минутой становится всё непреодолимее. Такое, наверное, могут сочинить только славянские народы. Впрочем, один плюс всё же у этой ущербной пластинки есть. Если вы, скажем, на вечеринке случайно оказались в темной комнате вдвоем с девушкой, которая вас хочет, а вы ее ни под каким видом не желаете даже поцеловать, то надо поставить "Сидящих у огня": могу поспорить, что максимум через пять минут вы будете тоже сидеть, но не у огня, а на ярко освещенной кухне, поглощая пиво, притом эта девушка (не говоря уже про вас) на некоторое время вообще забудет, что такое половое влечение.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

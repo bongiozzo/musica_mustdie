@@ -74,6 +74,73 @@ Roland Jahoda - Drums
 * C группой "Tarja Turunen" Oliver Holzwarth
 * C группой "Demons & Wizards" Oliver Holzwarth
 
+## Публикации
+
+### 03.09.2008 reviews Не откровение, но и далеко не провал
+
+<P>Немецкая группа PARADOX одна из тех, с которых начинал ныне очень известный лэйбл AFM. Сейчас контора занимается гораздо более известными и, что скрывать, более качественными командами, но некоторые старожилы по-прежнему остаются в строю. Пользуясь возросшими финансовыми возможностями своего партнёра, группы подобные PARADOX записывают качественнейшие альбомы, которые автоматически становятся лучшими в их дискографиях.</P>
+<P>«Electrify» - очень хорошая пластинка в редком сейчас жанре «притрэшованного» heavy-metal, который свойственен скорее заокеанским коллективам. Назвать определённые аналогии к музыке PARADOX мне не удастся, но, чаще всего, у меня всплывал в памяти ICED EARTH. Великолепная реализация, выполненная при участии Jacob Hansen, не оставит равнодушными любителей гитарного звучания. Быстрых мелодичных риффов здесь хватает. Также обращают на себя внимание медленные эпические полуакустические вставки и целые вещи, они безусловно способны нравиться своей мелодичностью и некоторой торжественностью. PARADOX не отнесёшь к лучшим группам нашего времени, всё-таки их материал из второй лиги, но он качественен и не режет слух.</P>
+<P>Хорошая работа, занимающая своё место в иерархии современного металла. Она не стала откровением, но и провалом также не стала.</P>
+Автор: Vit Belov
+
+### 04.03.2009 news Дата релиза нового PARADOX
+
+<P>Новый альбом <STRONG>PARADOX</STRONG> <STRONG>"Riot Squad" </STRONG>выйдет 26 октября на <STRONG>AFM</STRONG>. Продюсером пластинки выступит <STRONG>Charly Steinhauer</STRONG>. Вот названия песен:</P>
+<P>* <B itxtvisited="1">"Suburban Riot Squad"</B><BR itxtvisited="1">* <B itxtvisited="1">"Hollow Peace"</B><BR itxtvisited="1">* <B itxtvisited="1">"Timegrain"</B><BR itxtvisited="1">* <B itxtvisited="1">"Evolution Reset"</B><BR itxtvisited="1">* <B itxtvisited="1">"Riptide"</B><BR itxtvisited="1">* <B itxtvisited="1">"Nothingness"</B><BR itxtvisited="1">* <B itxtvisited="1">"Rise In Rank"</B><BR itxtvisited="1">* <B itxtvisited="1">"Psychofficial"</B><BR itxtvisited="1">* <B itxtvisited="1">"Planet Terror"</B><BR itxtvisited="1">* <B itxtvisited="1">"No Place To Survive"</B><BR itxtvisited="1">* <B itxtvisited="1">"Dream Hero"</B></P>
+Автор: Vit Belov
+
+### 09.09.2009 news Обложка PARADOX
+
+<P>Новый альбом <STRONG>PARADOX</STRONG> <STRONG>"Riot Squad" </STRONG>выходит 16 октября на <STRONG>AFM</STRONG>. Группа опубликовала обложку этого релиза.</P>
+<P><center><IMG height=399 src="/images/news_rus/2009.09/15024.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 08.02.2010 reviews Безнадёжные ветераны
+
+<P>Немецкие thrash-metal ветераны PARADOX в последнее время демонстрируют высокую активность. После ре-юнион альбома 2000 года поклонники коллектива ждали восемь лет, но теперь новая работа родилась всего за год. Видимо, у PARADOX наступила самая продуктивная пора за почти четверть века истории.</P>
+<P>Дебютные пластинки PARADOX выходили на Roadrunner, и, думается, многие фанаты старого мелодичного thrash-metal слышали это имя ещё в те далёкие годы. Как и другие «легендарные», но малоизвестные группы, PARADOX приютились на лэйбле AFM. Я думаю, что у этой группы изначально нет никаких шансов стать снова известными. На “Riot Squad” представлен мелодичный не слишком цепляющий материал со стеснительным вокалом бессменного певца Charly Steinhauer, который невозможно чем-то выделить. Пожалуй, только приятная соло-гитара показывает, что мы слушаем не молодую команду, которой не дают покоя лавры METALLICA или MEGADETH. </P>
+<P>Нужны мелодии, много мелодий, потому что ничем остальным PARADOX не смогут привлечь внимания. К сожалению, очень редко получается сочинить много хороших мелодий, если выпускаешь альбомы каждый год.</P>
+Автор: Vit Belov
+
+### 06.05.2012 news PARADOX вошли в студию
+
+<P><IMG height=645 alt="" hspace=0 src="/images/news_rus/2012.05/23785.jpg" width=475 align=right border=0>Немцы <STRONG>PARADOX</STRONG> обновили состав и вошли в студию для записи нового альбома, который выйдет в конце 2012 года на <STRONG>AFM</STRONG>. Нынешний состав <STRONG>PARADOX</STRONG>:</P>
+<P><STRONG>Charly Steinhauer</STRONG> (vocals, guitar)<BR><B>Christian Muenzner</B> (guitar)<BR><B>Olly Keller</B> (bass guitar)<BR><B>Daniel "Evil Ewald" Buld</B> (drums)</P>
+Автор: Vit Belov
+
+### 06.06.2012 news Новый альбом PARADOX
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.06/24128.jpg" width=475 height=381>14 декабря на<STRONG> AFM</STRONG> выйдет новый альбом немецких трешеров <STRONG>PARADOX</STRONG> <STRONG>"Tales Of The Weird". </STRONG>Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="48">Tales Of The Weird</B><BR itxtNodeId="47">02. <B itxtHarvested="0" itxtNodeId="46">Day Of Judgement</B><BR itxtNodeId="45">03. <B itxtHarvested="0" itxtNodeId="44">Brutalized</B><BR itxtNodeId="43">04. <B itxtHarvested="0" itxtNodeId="42">Fragile Alliance</B><BR itxtNodeId="41">05. <B itxtHarvested="0" itxtNodeId="40">Slashdead</B><BR itxtNodeId="39">06. <B itxtHarvested="0" itxtNodeId="38">Drowning In Lies</B><BR itxtNodeId="37">07. <B itxtHarvested="0" itxtNodeId="36">Zeitgeist</B><BR itxtNodeId="35">08. <B itxtHarvested="0" itxtNodeId="34">Escalation</B><BR itxtNodeId="33">09. <B itxtHarvested="0" itxtNodeId="32">Brainwashed</B><BR itxtNodeId="31">10. <B itxtHarvested="0" itxtNodeId="30">The Downward Spiral</B><BR itxtNodeId="29">11. <B itxtHarvested="0" itxtNodeId="28">A Light In The Black</B> (RAINBOW cover) (Japanese bonus track)</P>
+Автор: Vit Belov
+
+### 19.01.2013 reviews «Коллекционерам» на заметку
+
+<P>Немецкий коллектив PARADOX под управлением Charly Steinhauer, очередной раз сменив состав, подготовил новую работу “Tales Of The Weird”, которая вышла в самом конце прошлого года на AFM. Коллектив продолжил работу в однажды выбранном направлении, но новый альбом не поколебал моего мнения о совершенной ненужности немецкой группы на современной сцене.</P>
+<P>PARADOX предлагают своим поклонникам thrash-metal в его самой&nbsp; лёгкой вариации. Thrash-metal от PARADOX легко спутать с heavy-metal, а мелодии отсылают к не самым удачным работам METALLICA периода “Load/Reload” с оттенками RAGE и GRAVE DIGGER. К сожалению, сконцентрироваться на чём-то одном у немецкого коллектива не получается, и мы имеем бесхребетный и малоинтересный метал. Безусловно, в качестве фона обозреваемый альбом подойдёт большинству поклонников power-metal, но любители thrash-metal будут явно разочарованы.</P>
+<P>Качественно реализованный, красиво выпущенный альбом для всех поклонников тяжёлой музыки, которые не стесняются собирать всё, что выходит на CD. Они будут довольны, так как новый альбом PARADOX отлично встанет на их полки и не будет там одинок, так как эта группа уже много лет выпускает диски, которые приятно выглядят, но плохо слушаются.</P>
+Автор: Vit Belov
+
+### 13.04.2016 news PARADOX выпускают &quot;Pangea&quot; в июне
+
+<P>Немецкий speed/thrash/heavy metal коллектив <STRONG>PARADOX</STRONG> опубликовал обложку и трэк-лист к своему, готовящемуся к выходу, альбому<STRONG> "Pangea"</STRONG>.</P>
+<P>Диск выйдет 3 июня в Европе и 24 июня в США в&nbsp; двух форматах -&nbsp;CD и двойного винила.<BR>&nbsp;<BR>01. <STRONG>Apophis</STRONG> | 02. <STRONG>Raptor </STRONG>| 03.<STRONG> The Raging Planet </STRONG>| 04. <STRONG>Ballot Or Bullet </STRONG>| 05. <STRONG>Manhunt </STRONG>| 06. <STRONG>Cheat & Pretend </STRONG>| 07. <STRONG>Pangea </STRONG>| 08. <STRONG>Vale Of Tears </STRONG>| 09. <STRONG>Alien Godz </STRONG>| 10. <STRONG>El Muerte</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.04/29122.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 19.06.2016 reviews Ещё раз о пародоксе
+
+<p>Название PARADOX едва ли приходит на ум, когда заходит разговор о немецкой thrash metal сцене. Вспоминают KREATOR, DESTRUCTION, TANKARD... А между тем PARADOX существуют с 1986 года, и их два дебютных альбома выходили в 80-х на Roadrunner. Вероятно, подобное отношение фанатов стиля к этой группе связано с тем, что хотя и принято объявлять PARADOX как thrash metal, строго говоря, подобную музыку они не играют.</p><p>Группа PARADOX в настоящее и прошедшее время — это прежде всего гитарист/вокалист Charly Steinhauer. Он выпускает альбомы довольно редко, этот всего седьмой за всю историю, и каждый раз группа предстаёт в изменённом составе. Подобное случилось и в этот раз. Для всех музыкантов кроме лидера «Pangea” дебютная работа в PARADOX. Более того, в группе нет больше не одного этнического немца, кроме того же Charly. Греки, которые судя по всему решили захватить европейскую металическую сцену, занимают в современном PARADOX два слота: барабанщик Kostas Milonas и молодой гитарист Gus Drax, которые выступают в power metal командах с лэйбла Ulterium – BLACK FATE и SUNBURST. Также стоить отметить, что Gus Drax сыграл на последнем альбоме SUICIDAL ANGELS, которые в thrash metal сообществе давно уже обошли по статусу PARADOX. Басистом в обозреваемой группе теперь числится словенец Tilen Hudrap, который сыграл один концерт в... TESTAMENT в прошлом году. </p><p>Музыкально PARADOX в последнее время часто сравнивали с METALLICA. Группа представляла мелодичный thrash metal с легко узнаваемым вокалом под-»Хетфилда». Часто коллектив заносило в heavy metal, поэтому группой увлекались в основном поклонники немецкого power или heavy нежели thrash. В этот раз PARADOX удивляют с первых аккордов. Быстрый заводной thrash speed metal с хорошей гитарой и высоким надрывным вокалом... Вообще, альбом кажется более экстремальным, более энергичным, чем обычное творчество PARADOX. К сожалению, в дальнейшем «Pangea” не покоряет творческих высот, альбом сваливается в достаточно серую и однообразную музыку, но включать «play” в самом начале пластинки очень приятно. Вот если бы выдержать в подобном залихватском духе весь альбом!</p><p>PARADOX ничем не удивляют и не расстраивают. Тем фэнам тяжёлой музыки, которые были поклонниками немецкой группы, новый альбом можно смело рекомендовать. Расширить же фан-базу новый материал вряд ли позволит.</p>
+Автор: Vit Belov
+
+### 19.06.2016 reviews One more time about paradox
+
+<p>The name of PARADOX hardly comes to mind when talking about the German thrash metal scene. Remember KREATOR, DESTRUCTION, TANKARD... And yet PARADOX exist since 1986, and their two debut albums released in the 80's on Roadrunner. Probably such attitude of the fans to this group due to the fact that although it is customary to declare PARADOX as thrash metal, strictly speaking, this kind of music they don't play.</p><p>The PARADOX in the present and the past times is first and foremost a guitarist/vocalist Charly Steinhauer. He released the albums very rarely, this was only the seventh in history, and every time the group appears in the changed line-up. A similar thing happened this time. For all musicians except the leader "Pangea" is the first PARADOX album. Moreover, in the group of not one ethnic German, but the same Charly. The Greeks, who apparently decided to seize the European metal scene take in contemporary PARADOX two slots: the drummer Kostas Milonas and young guitar player Gus Drax, who play in power metal bands BLACK FATE and SUNBURST from Ulterium label. It is also worth noting that Gus Drax played on the last album by SUICIDAL ANGELS. Bassist in the group now is the Slovenian Tilen Hudrap, which played one concert in the... TESTAMENT last year. </p><p>Musical PARADOX in recent years often compared with METALLICA. The group was a melodic thrash metal with an unmistakable vocals "a-la Hatfield". Often the band had gone to heavy metal, so the group was mainly for the fans of German power and heavy than thrash. This time PARADOX surprise from the first chords. Fast catchy thrash speed metal with a good guitar and a high hysterical vocals... in General, the album seems more extreme, more energetic than usual creativity of PARADOX. Unfortunately, in the second part "Pangea" is not conquering creative heights, the album falls into a fairly gray and monotonous music, but to press "play" button in the beginning of the CD is very nice. If they could survive in such rollicking spirit the whole album!</p><p>PARADOX does not surprise or upset. For any fans of heavy music who were fans of the German band, the new album can be safely recommended. Expanding of the fan base with new material we can not wait.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

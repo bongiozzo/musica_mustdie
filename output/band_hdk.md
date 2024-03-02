@@ -35,6 +35,18 @@ Stephen Pursey - Guest Solo
 
 * C группой "After Forever" Sander Gommans
 
+## Публикации
+
+### 03.02.2009 news Новый проект гитариста AFTER FOREVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=323 alt="" hspace=0 src="/images/news_rus/2009.02/13516.jpg" width=350 align=right border=5>Один из основателей и главный композитор <STRONG>AFTER FOREVER</STRONG> <STRONG>Sander Gommans</STRONG>&nbsp;опубликовал песню своего нового проекта <STRONG>HDK</STRONG> на <STRONG>MySpace</STRONG> страничке. В записи этого трэка приняли участие <STRONG>Andre Matos</STRONG> (ex-<STRONG>ANGRA</STRONG>) и <STRONG>Amanda Somerville</STRONG> (<STRONG>AVANTASIA</STRONG>). Дебют HDK <STRONG>"System Overload" </STRONG>выйдет 23 февраля на Season Of Mist. Трэк-лист:</FONT></P>
+<P>01. <B>System Overload</B><BR>02. <B>Request</B><BR>03. <B>Let Go</B><BR>04. <B>Terrorist</B><BR>05. <B>Pedestal</B><BR>06. <B>On Hold</B><BR>07. <B>Breakdown</B><BR>08. <B>March</B><BR>09. <B>Perfect</B><BR>10. <B>Fight Or Flight</B><BR>11. <B>Fine Lines</B></P>
+<P>Полный список участников проекта:</P>
+<P><STRONG>Amanda Somerville</STRONG>: Vocals<BR><B>Andre Matos</B> (ex-ANGRA, SHAAMAN, VIRGO): Vocals<BR><B>Arien van Weesenbeek</B> (GOD DETHRONED): Drums<BR><B>Joost van den Broek</B> (SUN CAGED, AFTER FOREVER): Keyboards<BR><B>Jos Severens</B> (SUSTAIN): Vocals<BR><B>Patrick Savelkoul</B> (CALLENISH CIRCLE): Vocals<BR><B>Paul Niessen</B> (I WITNESS): Vocals<BR><B>Peter Vink</B>: Bass <BR><B>Sander Gommans</B>: Guitar, Vocals</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/sandergommans">http://www.myspace.com/sandergommans</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

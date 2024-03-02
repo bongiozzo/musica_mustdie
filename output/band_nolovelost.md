@@ -8,6 +8,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2011 news Новый EP NO LOVE LOST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Британцы <STRONG>NO LOVE LOST</STRONG> подготовили новый мини-альбом <STRONG>"What's It Like To Be Awake?"</STRONG>, который выйдет сегодня на <STRONG>Audiosyncrasy Records</STRONG>. В составе gothic-doom коллектива&nbsp;басист <STRONG>Adam Richardson </STRONG>из <STRONG>CANCER</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="19">Trinity</B> (4:55)<BR itxtNodeId="18">02. <B itxtHarvested="0" itxtNodeId="17">Sleep For A Thousand Years</B> (6:21)<BR itxtNodeId="16">03. <B itxtHarvested="0" itxtNodeId="15">The Bridge Between Heaven & Earth</B> (6:30)<BR itxtNodeId="14">04. <B itxtHarvested="0" itxtNodeId="13">Into The Dark</B> (6:49)</P>
+<P>Facebook: <A href="http://www.facebook.com/nolovelostband">http://www.facebook.com/nolovelostband</A></P>
+<P><center><img style="visibility:hidden;width:0px;height:0px;" border=0 width=0 height=0 src="http://c.gigcount.com/wildfire/IMP/CXNID=2000002.0NXC/bT*xJmx*PTEzMTIxODEyNDg3NjUmcHQ9MTMxMjE4MTI2MzY4NyZwPTI3MDgxJmQ9dHVuZVdpZGdldCZnPTImbz*wMDY4NDY*MzAy/NTI*NmVhOTIyYjlhODA3ZWI3ZDJmNSZvZj*w.gif" />
+<object classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" width="434" height="415"><param name="movie" value="http://cache.reverbnation.com/widgets/swf/19/tuneWidget.swf?twID=artist_1656121&shuffle=&autoPlay=false&blogBuzz="></param><param name="allowscriptaccess" value="always"></param><param name="allowNetworking" value="all"></param><param name="allowfullscreen" value="true"></param><param name="wmode" value="opaque"></param><param name="quality" value="best"></param><embed src="http://cache.reverbnation.com/widgets/swf/19/tuneWidget.swf?twID=artist_1656121&shuffle=&autoPlay=false&blogBuzz=" type="application/x-shockwave-flash" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" wmode="opaque" quality="best" width="434" height="415" FlashVars="gig_lt=1312181248765&gig_pt=1312181263687&gig_g=2"></embed> <param name="FlashVars" value="gig_lt=1312181248765&gig_pt=1312181263687&gig_g=2" /></object><br/><a href="http://www.reverbnation.com/distro" onclick="javascript:window.location.href=&quot;http://www.reverbnation.com/c./a4/19/1656121/Artist/0/User/link&quot;; return false;"><img alt="get music on iTunes" border="0" height="19" src="http://c2sostatic.reverbnation.com/widgets/content/19/footer.png" width="434" /></a>
+<img style="visibility:hidden;width:0px;height:0px;" border=0 width=0 height=0 src="http://www.reverbnation.com/widgets/trk/19/artist_1656121//t.gif" />
+</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

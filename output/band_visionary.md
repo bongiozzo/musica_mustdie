@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.07.2016 news Новое видео VISIONARY
+
+<p>Новый клип итальянской progressive metal группы<strong> VISIONARY</strong> на песню "<strong>Voyager's Mirror</strong>" можно посмотреть ниже. Трек взят с нового альбома "<strong>Gabriel</strong>", который вышел на<strong> Bakerteam</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Wy-6NSWJIQQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 29.07.2016 news New clip by VISIONARY
+
+<p>New video of the Italian progressive metal band<strong> VISIONARY</strong> for the song "<strong>Voyager's Mirror</strong>" can be viewed below. The track is taken from their new album, "<strong>Gabriel</strong>", which was released on <strong>Bakerteam</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Wy-6NSWJIQQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.01.2013 news MEGASCAVENGER - новая группа Rogga Jonansson
+
+<P><STRONG>Rogga Johansson</STRONG> (<B>PAGANIZER</B>, <B>RIBSPREADER</B>, <B>DEMIURG</B>, <B>THE GROTESQUERY</B>, <B>BONE GNAWER</B>, <B>REVOLTING</B>) выпустил на польском лэйбле SelfMadeGod дебютную полноформатную работу нового проекта <STRONG>MEGASCAVENGER "Descent Of Yuggoth". </STRONG>В записи пластинки приняли участие такие корифеи шведского и не только death-metal, как <STRONG>Dan Swano</STRONG> (<B>EDGE OF SANITY</B>, <B>BLOODBATH</B>), <B>Marc Grewe</B> (<B>MORGOTH</B>, <B>INSIDIOUS DISEASE</B>), <B>Jorgen Sandstrom</B> (<B>GRAVE</B>, <B>KRUX</B>, <B>TORTURE DIVISION</B>), <B>Paul Speckmann</B> (<B>MASTER</B>, <B>DEATH STRIKE</B>, <B>ABOMINATION</B>), <B>Patrick Mameli</B> (<B>PESTILENCE</B>), <B>Jonas Lindblood</B> (<B>PUTERAEON</B>), <B>Eric Daniels</B> (<B>ASPHYX</B>, <B>SOULBURN</B>).</P>
+<P>Трек-лист:</P>
+<P>01. <B>Nihilisticon</B><BR>02. <B>Descent Of Yuggoth</B><BR>03. <B>Smokescreen Armageddon</B><BR>04. <B>Catapulted Through Aeons</B><BR>05. <B>Void Of Damnation</B><BR>06. <B>Funerals And Ceremonies</B><BR>07. <B>Death Obsessed</B><BR>08. <B>No Haven For The Sane</B><BR>09. <B>To Revel With Vermin</B></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25298.jpg" width=475 height=475> 
+<P></P>
+<P>
+<CENTER><IFRAME height=200 src="https://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Fplaylists%2F3254307" frameBorder=no width="60%" scrolling=no></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

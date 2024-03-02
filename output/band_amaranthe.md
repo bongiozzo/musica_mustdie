@@ -46,6 +46,43 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.08.2014 news AMARANTHE: подробности третьего альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Третий альбом шведско-датского коллектива <STRONG>AMARANTHE</STRONG> выходит 21 октября на лейбле <STRONG>Spinefarm</STRONG>. Диск получил название <STRONG>"Massive Addictive"</STRONG>. Ниже можно ознакомиться с его&nbsp;трек-листои и обложкой. Это работа станет студийным дебютом&nbsp;для вокалиста Хенрика Энглунда&nbsp;(<STRONG>Henrik Englund</STRONG>)&nbsp;в составе <STRONG>AMARANTHE</STRONG>.</FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Massive Addictive"</FONT></STRONG> был записан в датской <STRONG>Hansen Studios</STRONG> под присмотром продюсера&nbsp;Якоба Хансена (<STRONG>Jacob Hansen</STRONG>). </P>
+<P>Трек-лист: <BR>01. <STRONG>Dynamite</STRONG> | 02. <STRONG>Drop Dead Cynical</STRONG> | 03. <STRONG>Trinity</STRONG> | 04. <STRONG>Massive Addictive</STRONG> | 05. <STRONG>Digital World</STRONG> | 06. <STRONG>True</STRONG> | 07. <STRONG>Unreal</STRONG> | 08. <STRONG>Over And Done</STRONG> | 09. <STRONG>Danger Zone</STRONG> | 10. <STRONG>Skyline</STRONG> | 11. <STRONG>An Ordinary Abnormality</STRONG> | 12. <STRONG>Exhale</STRONG></P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27228.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 12.08.2016 news Подробности о новом альбоме AMARANTHE
+
+<p>Новый альбом <strong>AMARANTHE "Maximalism"</strong> выйдет 21 октября на<strong> Spinefarm Records</strong>. Продюсером релиза вновь стал <strong>Jacob Hansen</strong> (VOLBEAT, EPICA), мастеринг сделал <strong>Svante Forsback</strong> (Rammstein, Apocalyptica, Dragonforce).</p><p>Трек лист:</p><p>“Maximize”<br>“Boomerang”<br>“That Song”<br>“21”<br>“On The Rocks”<br>“Limitless”<br>“Fury”<br>“Faster”<br>“Break Down And Cry”<br>“Supersonic”<br>“Fireball”<br>“Endlessly”</p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29794.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 12.08.2016 news New album by AMARANTHE
+
+<p>New<strong> AMARANTHE</strong> album "<strong>Maximalism</strong>" will be released on October 21 via <strong>Spinefarm Records</strong>. The producer of the release was again<strong> Jacob Hansen</strong> (VOLBEAT, EPICA), mastering was done by<strong> Svante Forsback</strong> (Rammstein, Apocalyptica, Dragonforce).</p><p>Track list:</p><p>“Maximize”<br>“Boomerang”<br>“That Song”<br>“21”<br>“On The Rocks”<br>“Limitless”<br>“Fury”<br>“Faster”<br>“Break Down And Cry”<br>“Supersonic”<br>“Fireball”<br>“Endlessly”</p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29794.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 02.10.2016 articles AMARANTHE в Москве: «Шведский феномен»
+
+<p><em></em><center><em><img width="500" height="692" src="/images/articles_rus/2016.10/30035.jpg" border="0"></em><p></p><p><em>Давайте я вам загадаю загадку. Шведская группа, которая приезжает в Россию четвёртый раз и регулярно собирает здесь полные залы. Это не ABBA, не EUROPE и даже не HAMMERFALL с IN FLAMES. Это AMARANTHE!</em></p><p>Коллектив под управлением гитариста Olof Morck и вокалиста Jake E Lundberg с великолепной певицой Elize Ryd в центре внимания с самого начала полюбился российским тинейджерам. В этом месяце выходит только четвёртый студийный полноформатник группы «Maximalism”, а нам уже кажется, что AMARANTHE у нас поселились. Группа отвечает взаимностью российским фэнам, признавая, что чувствует себя в России как дома. Уже с дебютной работы «Amaranthe” шведы стали активно экспериментировать со своим звучанием. Козырем группы стали три вокала, ведущий и самый заметный вокалистки Elize, чистый вокал Jake E (DREAMLAND) и грубый полускриминг, в настоящий момент исполняемый Henrik Wilhemsson (SCARPOINT). Также обращают на себя внимание танцевальные ритмы, умело маскируемые под тяжёлый метал. </p><p>Вчерашний концерт в клубе «RED” на Болотной набережной открывали METHEORA, коллектив с женским вокалом из Москвы, в котором играет D. Frans (HOSTILE BREED, ICON IN ME). В ICON IN ME Дмитрий играл с барабанщиком AMARANTHE Morten Sorensen, так что можно представить прошедшее шоу как их воссоединение на одной сцене. К сожалению, на первую выступающую группу я не успел, поэтому что-то сказать об их живой мощи я не могу, но в их группе VK (<a href="https://vk.com/metheora">https://vk.com/metheora</a>) можно послушать некоторые песни и посмотреть клип, чтобы получить представление об их музыке.</p><p>Концертному сезону всего месяц, но я уже побывал на некоторых концертах в разных жанрах. Естественно перед выступлением зарубежных звёзд нас всегда ожидает отечественный разогрев. За прошедший месяц худший опыт у меня случился вчера, речь идёт&nbsp;о группе ARCANE SYMPHONY (<a href="https://vk.com/a.symphony">https://vk.com/a.symphony</a>) из Москвы. Слушать их выступление было очень тяжело и дело в вокалистке. Музыканты вживую представляют материал схожий с творчеством AMARANTHE. Мелодика мировой поп-музыки здесь заменена творчеством группы МИРАЖ, но всё бы ничего. В конце концов, кто я такой, чтобы обсуждать вкусы отечественных меломанов. Ритм-секция звучит тяжело и где-то даже модно, гитарист и клавишник картины не портят, но девушка... Анна Володина на концерте просто не тянет. Постоянно мажет мимо, голос дрожит. Танцует, весилит народ, но слушать это очень сложно. Здесь отмечу публику, превосходный приём даже ARCANE SYMPHONY с их бледным выступлением характеризует энтузиазм нашей молодёжи, которая пришла отдыхать и выкладывается в этом на полную.</p><p>С первых аккордов от AMARANTHE зал сошёл с ума. В группе VK, посвящённой концерту, девушки обсуждали возможность прихода в клуб к 14-30, чтобы занять место у сцены. Шведы живо откликнулись на приём фанатов. Было видно, что их самих прёт от реакции, и AMARANTHE отдавались по полной. Самое главное, даже не в отношении к делу и эмоциональной реакции музыкантов. Само шоу, музыка группы заслуживают только высочайшей оценки. Elize поёт превосходно как лирические, так и энергичные партии. Чистый вокал на этом концерте исполнял Chris Adam Hedman Sorbye из шведской группы SMASH INTO PIECES, который заменил Jake E, временно отсутствующего в составе. Поначалу его как-то было плохо слышно, но звукорежиссёр быстро решил эту проблему, и дальше Chris отлично солировал, ничем не уступая в экспрессии Elize. Попутно отмечу суперзвук на этом концерте, всё было слышно и понятно, каждая песня узнавалась без труда, и это добавляло окружающим позитива. Я поймал себя на мысли, что присутствую на концерте настоящих звёзд поп-музыки, которые могут украсить собой сцены далеко за переделами рока. Более того, если AMARANTHE решатся слегка облегчить звучание, они запросто попадут в формат «Европа Плюс» или «Energy”. Нужно им это? Я не знаю, но именно этим объясняю их бешеный успех у публики, для которой термин 'heavy metal' пустой звук.</p></center>
+Автор: Vit Belov
+
+### 30.08.2017 news AMARANTHE: клип &quot;Maximize&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип группы <STRONG>AMARANTHE</STRONG> на песню<STRONG> "Maximize"</STRONG> можно посмотреть ниже. Это уже третье по счёту промо-видео с последнего альбома под названием <STRONG>"Maximalism" </STRONG>(2016). Режиссёр ролика: <STRONG>Ville Juurikkala</STRONG> (<STRONG>BULLET FOR MY VALENTINE</STRONG>, <STRONG>HIM</STRONG>, <STRONG>SONATA ARCTICA</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Московский концерт <STRONG>AMARANTHE</STRONG> 2 декабря! Подробности: <A href="/ru/shows/#74313">http://musica.mustdie.ru/ru/shows/#74313</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Два других видеоклипа на песни с альбома<STRONG> "Maximalism"</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Boomerang"</STRONG>: <A href="http://youtu.be/Wjdm5tJ5NiA">http://youtu.be/Wjdm5tJ5NiA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>и <STRONG>"That Song"</STRONG>: <A href="http://youtu.be/yR05g0Co7W4">http://youtu.be/yR05g0Co7W4</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/nfk7YZJtmeo" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### AMARANTHE в России (26 и 27 апреля).

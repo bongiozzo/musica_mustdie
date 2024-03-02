@@ -21,6 +21,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.09.2006 reviews Еще одна работа из Финляндии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютная работа финского коллектива, в составе которого все сплошь молодые да юные дарования, никому неизвестные. На создание и запись первого альбома у них ушло всего то два года. И таких команд сейчас в Финляндии пруд пруди. А про этот альбом единственное что можно сказать - еще один power metal альбом из Финляндии. Все сделано настолько в стандартном и традиционном духе, что ни разу не вызывает каких-то сугубо положительных эмоций. Только сплошное безразличие. Мелодично - да, качественно - да, слушается легко - да, но при этом довольно безлико. Все на крепком среднем уровне.&nbsp;&nbsp;И вообще, даже на фоне некоторых коллег-земляков-середняков навроде <STRONG>TWILIGHTNING</STRONG>&nbsp;или&nbsp;<STRONG>AFTERWORLD, EXCALION</STRONG> выглядят невзрачно. У них не особо тяжелые гитары, не особо&nbsp;мощный и&nbsp;не кристально чистый, хоть и качественный звук. Их мелодии заштампованы, в них не видно никаких композиторских выдумок. Вокалист тоже слабоват, ему бы лучше петь что-нибудь более попсовое. Пожалуй, лишь ударник здесь неплохой, ну&nbsp;и еще клавишник, который часто солирует своим инструментом, не всегда к месту правда, но он всё-таки главное лицо коллектива. Даже если вы истинный фанат power metal, не рискну предположить, что вам понравится сей релиз. Однако, если вы из тех, кто собирает всевозможные творения хоть чуток похожие на <STRONG>STRATOVARIUS</STRONG> и <STRONG>SONATA ARCTICA</STRONG>, то это самое то, что вам нужно.</FONT></P>
+<P>Диск предоставлен компанией <STRONG>Mystic Empire</STRONG></P>
+Автор: Dimas
+
+### 30.11.2006 news EXCALION на Limb Music
+
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2006.11/11004.jpg" width=235 align=right border=5>"<STRONG>Waterlines</STRONG>" - новый альбом <STRONG>EXCALION</STRONG> выйдет на <STRONG>Limb Music</STRONG> в феврале 2007 года. Трэк-лист:</P>
+<P>01. <B>Wingman</B> <BR>02. <B>Life on Fire</B> <BR>03. <B>Losing Time</B><BR>04. <B>Ivory Tower</B> <BR>05. <B>I Failed You</B> <BR>06. <B>Arriving as the Dark</B> <BR>07. <B>Streams of Madness</B> <BR>08. <B>Delta Sunrise</B> <BR>09. <B>Between the Lines</B> <BR>10. <B>Soaking Ground</B> <BR>11. <B>Y&#246;vartio</B>* (European bonus track) <BR>12. <B>Access Denied</B> (Japanese bonus track) <BR><BR>* = Finnish version of the track <B>"Arriving as the Dark"</B></P>
+Автор: Vit Belov
+
+### 18.12.2009 news Новый альбом EXCALION
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.12/15801.jpg" width=400 align=right border=5>29 января на<STRONG> Limb Music</STRONG> выйдет новый альбом<STRONG> EXCALION</STRONG> <STRONG>"High Time". </STRONG>Альбом был записан в&nbsp;<STRONG>Watercastle</STRONG> studio и спродюсирован самой группой и <STRONG>Arttu Sarvanne</STRONG>. Обложку нарисовал <STRONG>Fernando R. Garcia. </STRONG>Трэк-лист:</P>
+<P>01. <B>Enter A Life</B> (04:07)<BR>02. <B>From Somewhere To Anywhere</B> (03:48)<BR>03. <B>Sun Stones</B> (04:52)<BR>04. <B>The Flags In Line</B> (06:16)<BR>05. <B>Bring On The Storm</B> (04:51)<BR>06. <B>The Shroud</B> (04:35)<BR>07. <B>Firewood</B> (04:44)<BR>08. <B>Lifetime</B> (03:33) <BR>09. <B>Quicksilver</B> (04:10)<BR>10. <B>A Walk On A Broken Road</B> (05:11)<BR>11. <B>Foreversong</B> (04:05)</P>
+Автор: Vit Belov
+
+### 09.01.2010 news EXCALION выложили трэк
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финские power-metal'исты <STRONG>EXCALION</STRONG> выпускают свой новый альбом <STRONG>"High Time" </STRONG>29 января на<STRONG> Limb Music</STRONG>. Новая песня этой группы <STRONG>"Enter A Life" </STRONG>появилась на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/excalion">http://www.myspace.com/excalion</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

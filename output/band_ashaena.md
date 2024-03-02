@@ -22,6 +22,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.06.2016 news ASHAENA выпускают второй альбом
+
+<p>Румынская pagan metal команда<strong> ASHAENA</strong> выпускает второй альбом "<strong>Calea</strong>" 18 июля на<strong> Loud Rage Music</strong>. Обложку нарисовал барабанщик коллектива<strong>&nbsp;Alex “Mos Strechia” Duduc</strong>.</p><p>Трек-лист:</p><p>1. Tapae 87<br>2. Calea<br>3. Tara Berladnicilor<br>4. Crapat di Cer<br>5. Spirit-Sageata<br>6. Zbor Insetat<br>7. Mos Urs</p><p><center><img width="600" height="605" src="/images/news_rus/2016.06/29438.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 22.06.2016 news ASHAENA will release second album
+
+<p>Romania based Pagan Folk Metallers<strong> ASHAENA</strong> have completed the work for their long-awaited second full-length album, "<strong>Calea</strong>", a 7 tracks effort ready to be released on CD this July 18th via <strong>Loud Rage Music</strong>.</p><p>The artwork is signed by the band's drummer <strong>Alex “Moє Strechia” Duduc</strong>.</p><p>Track list:</p><p>1. Tapae 87<br>2. Calea<br>3. Tara Berladnicilor<br>4. Crapat di Cer<br>5. Spirit-Sageata<br>6. Zbor Insetat<br>7. Mos Urs</p><p><center><img width="600" height="605" src="/images/news_rus/2016.06/29438.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -53,6 +53,19 @@ Brutal gore death metal from New Jersey
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2003 news Mortal Decay работают над новым альбомом
+
+<P>Брутальщики <B>MORTAL DECAY</B> работают над новым альбом, который предположительно будет называться "<B>Cadaver Art</B>".</P>
+Автор: Vit Belov
+
+### 14.11.2003 news Mortal Decay are working on new album
+
+<B>MORTAL DECAY</B>&nbsp;Is working on new material for their next release tentatively called "<B>Cadaver Art</B>".
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

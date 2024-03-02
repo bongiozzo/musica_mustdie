@@ -186,6 +186,402 @@ Stefan K&#246;llner (Drums)
 * C группой "Moonlight Agony" Chity Somapala (vocal)
 * C группой "Power Quest" Chity Somapala (vocal)
 
+## Публикации
+
+### 13.03.2002 news DOMAIN устанавливают сроки выпуска нового альбома
+
+<p>Новый альбом довольно старой death-black формации DOMAIN под названием " The Artefact " выйдет предположительно в июле 2002 года на Point Music.</p>
+
+Автор: Dimas
+
+### 12.07.2002 reviews Жесткость и мелодичность
+
+<p>Второй после возвращения и пятый в целом альбом старейшей немецкой команды проповедующей классный и оптимистичный hard-rock в духе AXXIS и PINK CREAM. Жесткий и мелодичный, американизированный. Тринадцать контрастных песен в течение целого часа. Монументальный, замечательно записанный материал. Хотя, предыдущий "comeback" альбом был посвежее и получше. Этот альбом - лишь его повторение. Мощные хоралы, запоминающаяся мелодика, но все слишком стандартно. Материал намного выше среднего, но отчего-то не впечатляющий по-крупному. После прослушивания, остаются только положительные впечатления и эмоции, которые очень быстро сходят на нет, и альбом забывается. Хотя, некоторые вещи обращают на себя особое внимание, например "Spirits Of The Sun", "Charade" и проникновенная баллада "Strangers From The Heart", также есть интересная кавер-версия "Day Tripper" от THE BEATLES. И еще, иногда создается нехорошее впечатление чрезмерной попсовости этого материала. В некоторых местах - перебор с клавишными, будто слушаешь VAN HALEN или старый BON JOVI. Все эти моменты и фрагменты несколько портят общее впечатление от достаточно хорошего альбома. Попробуйте сами на вкус это произведение.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 05.06.2003 news DOMAIN снова в строю
+
+<p><IMG SRC="/images/news_rus/2003.06/4378.jpg" ALT="pho" width=250 height=250 hspace="15" vspace="5" border="1" align="left">Немецкая команда DOMAIN снова в строю. К концу сентября планируется завершение работы над новым альбомом группы "The Sixth Dimension". Тем временем, в команде пополнение: новый ударник Stefan Koellner (ex-SYMPHORCE).</p>
+
+Автор: Dimas
+
+### 24.09.2003 reviews В поисках шестого измерения
+
+<P>Не подвели нас Carsten Schultz и Axel Ritt. Не потерялись в городе в поисках трещин на стенах, не удовлетворились найденным артефактом, не увлеклись опасными поисками шторма в открытом океане, не улетели на миллион световых лет от дома, а серьёзно занялись изучением шестого измерения. Серьёзно взялись. Даже усилили состав новой ритм секцией, взяв в группу басиста Sandro Lo Guidice (Circle Of Pain) и ударника Стефана Кёллнера, которые очень удачно влились в коллектив. С их приходом звук явно потяжелел.</P>
+<P>Мощнейший микс европейского тяжелого метала восьмидесятых и жесткого хард рока обрушивается на нас, накрывая с головой, выбивая дно из под ног. Наиболее близкая аналогия – Dio и Axel Rudy Pell. Первые три песни “World Gone Crazy”, “Your Favorite Curse” и “King’s Tears”, с картун-паверной мелодией, не оставляют после себя сомнений. Перед нами один из лучших, в данном стиле, альбом в этом году. А ведь на этом список хитов не завершен. Есть еще великолепная баллада “On Perfect Moment”, и моя любимая – “Talk In The Cellar” с выдающейся работой Карстена Шульца, пожалуй, одного из лучших классических вокалистов. Имея голос похожий на Сото, он пытается петь как Гленн Хьюз. </P>
+<P>Отличный альбом, помимо крепкого материала, содержащий еще и кавер-версию “Rats in The Cellar” Aerosmithи концертный клип “Charade” – посмотрите (да поможет вам quicktimeplayer) и убедитесь, насколько хорош Карстен Шульц.</P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 11.10.2004 news Новый альбом DOMAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немцы <STRONG>DOMAIN</STRONG> выпускают новый альбом <STRONG>"The Last Days of Utopia" </STRONG>7 февраля на <STRONG>Limb Music</STRONG>. Уже сейчас можно послушать новую песню <STRONG>'Endless Rain'</STRONG> на нашем сайте. <A href="/samples/d/domain/2005_1212.mp3">http://musica.mustdie.ru/samples/d/domain/2005_1212.mp3</A></FONT></P>
+Автор: Vit Belov
+
+### 21.01.2005 reviews Утопические деньки на Limb Music
+
+<P>На самом деле эта немцкая группа весьма старая. Они начали свою деятельность где-то в середине 80-х под названием Kingdom (в ее состав входили два участника распавшейся немецкой же команды Epitaph), которое сменили позже на Domain и, выпустив три альбома, благополучно развалились.&nbsp; В начале этого века единственный участник оригинального состава группы Аксель Ритт собрал коллектив вновь, и Domain записали еще три пластинки. Таким образом, "Last Days Of Utopia" (как утверждает сама группа, это первый концептульный альбом за всю ее историю) является четвертым альбомом "новых" Domain или седьмым, считая с конца 80-х. Группа не раз меняла свой состав после камбэка, и на "Last Days Of Utopia"&nbsp; он выглядит следующим образом: Axel "Ironfinger" Ritt (g), Carsten Lizard Schulz (voc, ex- Mr. Hate, Evidence One), Stefan Koellner (dr, ex - Hazy Shade, Symphorce), Erdmann "Erdi" Lange (kb, ex- Reissfest), Jochen Mayer (b, ex- Boysvoice, Casanova, Demon Drive). Но довольно сухих данных. В музыкальном плане данный альбом представляет собой весьма слушабельный мелодик-рок с обиширными влияниями пауэра, прогрессива и симфо-метала (естественно, с включением хоров и орекстровок). Кстати, с этим вот симфо вышел перебор. Мелодии не только трудно запомнить, их даже трудно уловить. Наиболее яркими получились как раз наименее навороченные 'The Great Rebellion' и заглавная 'Last Days Of Utopia' с явным уклоном в пауэр. Вообще, на мой взгляд, группа слишком уж много уделяет внимания инструментальной составляющей, посему пластинка слушается в целом с некоторым напрягом. Это первый релиз Domain на Limb Music, и, безусловно, Herr Schnoor должен вцепиться в них мертвой хваткой, особенно после потери своего явного лидера Rhapsody. Для фанатов данный альбом станет солидным потрясением для их кошельков, ибо, кроме стандартного издания, "Last Days Of Utopia" выйдет и как лимитированный двойник, включающий кучу бонусного материала (альтернативные версии 'A New Beginning', 'Endless Rain' и ' Left Alone', бонус-трэк 'Head Above The Water', новую версию 'Caught In The Flame', видеоклип 'Endless Rain', постер, обои для ПК, скин для "винапма"), а вот корейским любителям тяжелой музыки достанется бонус-трэк 'Only You Can', являющийся интерпретацией главной темы корейского телесериала "Winter Sonata" (кстати, корейцы собираются переиздавать все пластинки "новых" Domain - и наверняка не забудут включить туда бонусы). Продюсировал альбом сам Аксель Ритт, а над дизайном трудились Jason Juta и знаменитый Thomas Ewerhard.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 12.04.2006 news Новый альбом DOMAIN
+
+<P>Новый, пока не названный, альбом <STRONG>DOMAIN</STRONG> выйдет 20 октября на<STRONG> Limb</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.06.2006 news Подробности о новом альбоме DOMAIN
+
+<P>Немецкие мелодисты из&nbsp;<B>DOMAIN</B> объявили некоторые подробности о своем новом альбоме <B>"Stardawn"</B>,&nbsp;выход которого запланирован 20 октября на&nbsp;<B>Limb Music Products</B>. Кроме заявленного ранее десятиминутного титульного трека, альбом будет содержать двадцатипятиминутный опус <B>"Shadowhall"</B> повествующий о расцвете и падении вампирского клана Shadowhall. Композиция будет состоять из семи частей:<BR><BR>I. <B>Gathering Of The Damned</B><BR>II. <B>Under The Bloodmoon</B><BR>III. <B>Open The Gates</B><BR>IV. <B>Shadowhall</B><BR>V. <B>Vampire's Ball</B><BR>VI. <B>Hell Dimension</B><BR>VII. <B>Love Under Ice</B><BR><BR>В записи альбома примет участие множество гостевых музыкантов, среди которых&nbsp;<B>Michael Voss</B> (<STRONG>CASANOVA</STRONG>), который&nbsp;запишет бэк-вокал к двум композициям,&nbsp;<STRONG>Ferdy Doernberg</STRONG> (<STRONG>AXEL RUDI PELL, ULI JON ROTH, ROUGH SILK</STRONG>), который запишет фантастическое клавишное соло в&nbsp;<B>'Crystal Stone Island (Warpath Pt. II)'</B>, <B>Tarek Maghary</B> (<B>MAJESTY</B>), <B>Val Halla Jr.</B> (<B>IRON MASK</B>)&nbsp;и <B>Connie Andreszka</B> (<B>CIRCLE OF PAIN</B>).&nbsp;Лимитированное издание&nbsp;<B>"Stardawn"</B>&nbsp;в качестве бонус-диска будет содержать&nbsp;DVD с материалом записанным в ходе корейского тура команды в 2005 году. </P>
+Автор: Dimas
+
+### 17.11.2006 news Перестановки в DOMAIN
+
+<P>Вокалист&nbsp;<B>Carsten Lizard Schulz</B> и басист <B>Jochen Mayer</B>&nbsp;покинули ряды немецкого&nbsp;melodic metal&nbsp;коллектива <B>DOMAIN</B> из-за персональных противоречий с остальными участниками. Замена им уже найдена - это вокалист <STRONG>Chity Somapala</STRONG> (ex-<B>FIREWIND</B>, <B>AVALON</B>, <B>FARO</B>) и басист <B>Steven Wussow</B> (<B>SHYLOCK</B>).</P>
+Автор: Dimas
+
+### 23.12.2007 news DOMAIN пишут оперу
+
+<P>Немцы<STRONG> DOMAIN</STRONG> записывают новый альбом <STRONG>"The Chronicles of Love, Hate and Sorrow", </STRONG>который концептуально связан с другой работой коллектива <STRONG>"Last Days of Utopia". </STRONG>Новая пластинка будет представлена как опера. Основой для 12 глав этой истории, написанной певцом <STRONG>Nick Ruhnow, </STRONG>стало произведение классической немецкой литературы <STRONG>"Die Leiden Des Jungen Werther" </STRONG>пера Гёте.</P>
+Автор: Vit Belov
+
+### 19.01.2009 news Дата релиза DOMAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DOMAIN</STRONG> <STRONG>"The Chronicles of Love, Hate and Sorrow"</STRONG> выйдет 13 марта. Концептуальная пластинка написана по мотивам произведения Гётте. Ролик, посвящённый альбому, можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=50523982">DOMAIN Trailer "The Chronicles Of Love, Hate And Sorrow"</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=50523982,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=50523982,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.01.2009 news Трэк-лист нового DOMAIN
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.01/13446.jpg" width=400 align=right border=5>Мы уже сообщали, что новый концептуальный альбом<STRONG> DOMAIN</STRONG> <STRONG>"The Chronicles of Love, Hate and Sorrow" </STRONG>выходит 13 марта. Стал известен трэк-лист этой работы:</P>
+<P>01. <B>Picture The Beauty</B><BR>02. <B>Sweeping Scars</B><BR>03. <B>Angel Above</B><BR>04. <B>Circle Of Give And Take</B><BR>05. <B>He Is Back</B><BR>06. <B>Inner Rage</B><BR>07. <B>Digging Their Graves</B><BR>08. <B>Haunting Sorrows</B><BR>09. <B>The Last Dance</B><BR>10. <B>12 O'Clock</B><BR>Bonus track:<BR>11. <B>Two Brothers & The Sinners Chess</B></P>
+Автор: Vit Belov
+
+### 15.02.2009 news Новая песня DOMAIN
+
+<P><STRONG>DOMAIN </STRONG>выложили на своей<STRONG> MySpace</STRONG> страничке новую песню "<STRONG>Sweeping Scars</STRONG>" с концептуального альбома <STRONG>"The Chronicles of Love, Hate and Sorrow", </STRONG>который выйдет 13-го марта.</P>
+<P>Ссылка: <A href="http://www.myspace.com/domainband">http://www.myspace.com/domainband</A></P>
+Автор: Vit Belov
+
+### 21.10.2009 news Временная замена для GRAVE DIGGER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=5 src="/images/news_rus/2009.10/15324.jpg" width=200 align=right vspace=5 border=0>Стало известно, что временной заменой недавно ушедшему <STRONG>Manni Schmidt</STRONG>, станет гитарист <STRONG>Axel Ritt</STRONG> (<A href="http://www.myspace.com/axelritt">http://www.myspace.com/axelritt</A>) из немецкой группы <STRONG>DOMAIN</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Chris Boltendahl</STRONG> и <STRONG>Axel Ritt</STRONG> знают друг друга уже около 20 лет, но это будет первый раз, когда оба музыканта выступят в составе одной группы. Предполагается, что <STRONG>Axel Ritt</STRONG> будет играть с <STRONG>GRAVE DIGGER</STRONG> на концертах до конца текущего года.</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

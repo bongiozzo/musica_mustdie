@@ -70,6 +70,144 @@ Elena Schirenc - Female Vocals
 
 * C группой "Pungent Stench" 
 
+## Публикации
+
+### 22.12.1999 reviews 
+
+<p> Эта группа создана бывшим вокалистом-гитаристом известной австрийской команды PUNGENT STENCH (R.I.P.). Честно говоря не ожидал от неё такого суперальбома. Это просто death-opera. Здесь намешано столько всего, что диву даёшься. И фолковые элементы, и готические, и heavy-риффы, и поддержка симфонического оркестра, мужской и женский хоры, разнообразие вокалов и всё это положено на брутальный death-metal. Представьте себе смесь IN EXTREMO и LACRIMOSA с тяжелейшим звучанием и death-риффами. Потрясающий по мощи и красоте альбом. Также он мне напомнил альбом двухлетней давности группы THE BLACK SYMPHONY. Да он много что напоминает. И тем не менее, яавляется супероригинальным. (9,5)</p>
+
+Автор: Dimas
+
+### 24.04.2001 news Второе пришествие HOLLENTHON
+
+<p> Второе пришествие HOLLENTHON - скоро! Новый альбом группы "With Vilest of Worms to Dwell" мало чем отличаясь от предшественника очарует многих слушателей. Жестокая и мрачная атмосфера созданная превосходным симбиозом тяжелых гитар, симфонических вставок, волнующих хоров и околдовывающих мелодий. Предполагаемый срок выхода альбома - 11 июня 2001 года.</p>
+<p></p>
+
+Автор: Dimas
+
+### 25.04.2001 news The second coming of HOLLENTHON is here
+
+<p> The second coming of HOLLENTHON is here! Not unlike its predecessor, "With Vilest of Worms to Dwell" boasts of a superb soundtrack-like production that will captivate the most critical of listeners. The fierce and wicked atmosphere created by a perfect symbiosis of heavy guitars, symphonic interludes, thrilling choirs, and bewitching melodies may prove to be the release capable of launching HOLLENTHON out of obscurity and into the well-deserved limelight.</p>
+<p> AVAILABLE: 11 JUNE 2001</p>
+
+Автор: Dimas
+
+### 18.09.2001 reviews Возвышенная симфония мрака
+
+<p>Возвышенная симфония мрака. Без преувеличения, фантастический альбом с волшебной музыкой. Эклектичный, мощнейший кусок в разнообразном мире металла. Очень удачные оркестровые аранжировки на фоне готического death-metal. Невероятный результат совершенно неожиданный мною от этой группы, учитывая то, что их дебютник также произвел на меня неизгладимые впечатления. Напомню, что это второй альбом группы являющейся результатом совместного творчества двух таких известных личностей как Silenius (Summoning, ex-Abigor) и Martin Shirenc (ex-Pungent Stench). Это несколько другая музыка, отличная от того, что было на "Domus Mundi", но в то же время присущая только этой группе. Здесь напичкано великое множество всевозможных влияний разных стилей тяжелой музыки. Все это сделано на высочайшем эффективном уровне. Тяжелый уплотненный гитарный звук, глубокие сочные мелодии, драматичные классические струнные инструменты, великолепные хоралы, этнические мотивы. Одна из многих сил группы заключается в её способности совмещать ряд различных настроений: счастливых и грустных, пассивных и активных, подлинных и выдуманных. Они могут звучать зловеще и симфонически, торжествующе и грустно, воспаленно и созерцательно, иногда все это происходит одновременно. Потрясающий альбом! Настоятельно рекомендую к обязательному приобретению!</p>
+
+Автор: Dimas
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 04.11.2002 articles &quot;There&#39;s nothing that looks more gay than a keyboard player in a metal band&quot; (Martin @ Hollenthon)
+
+<p><I>Band: HOLLENTHON</I><BR> <I>Style: sympho-death metal</I><BR> <I>MUSICA's questions answered by: Martin (vox, gtrs, bass, kbd)</I></p>
+<P></>
+<P> <B>After the release of "With Vilest Worms To Dwell" HOLLENTHON became a really big name on the metal scene. How do you feel about that? This success, was it unexpected or, maybe, it was an aim to achieve?</B></>
+<P> - Did HOLLENTHON really become big yet? I must have missed something then. No serious, I'm actually very satisfied with the sales and the response of the fans and media. I always try to avoid to have high expectations, but I put alot of work into this album, so I think the success is deserved.</>
+<P> <B>I know about your recent European tour with SIEBENBURGEN and EISREGEN. Your impressions, please?</B></>
+<P> - It was one of the best tours I've ever done! I was a little bit nervous in the beginning, since it was the first time we played live with HOLLENTHON, but everything worked out beautifully. We had way more people than expected and EISREGEN and SIEBENBЬRGEN are great bands to tour with. I was sad that the tour lasted only three weeks and we're all looking forward to do more shows in the future.</>
+<P> <B>How long did it take to rehearse the "With Vilest…" program?</B></>
+<P> - We started to rehearse about two months before the tour start, and it was the very first time we played the songs with a whole band line up. It sounded so much better than the CD - way heavier!</>
+<P> <B>If I'm not mistaken, HOLLENTHON is a three-men band whilst playing live. Who are the musicians involved in live perfomances?</B></>
+<P> - Actually, HOLLENTHON is just a two piece band - Mike Groeger on drums and myself doing all the other shit. My wife wrote all the lyrics and sang a few parts on the album, but she didn't come on tour with us. The live line up is Mike, Marius (he plays in PUNGENT STENCH now, too) on bass / backing vocals, Werner Freinbichler on guitars, and myself on guitar and vocals.</>
+<P><B>As I understood, while playing live you utilize programmed keyboards. Do you consider it the only right way to keep the exact and unique HOLLENTHON's atmosphere or, maybe, it's just because of the complication to play all synth-lines on stage?</B></>
+<P> - What you hear on the albums is mostly not keyboards but rather sampled orchestras, choirs, and all kinds of other instruments. Keyboards are only used in addition to the samples and I try to avoid them as much as possible. We play with a hard disc recorder at live shows, because we can't afford all these extra musicians. There is no way to play all this stuff on a keyboard, therefore we don't need a keyboard player, and to be honest, there's nothing that looks more gay than a keyboard player in a metal band.</>
+<P> <B>You started HOLLENTHON as your personal project. Can you say that now it has transformed into sort of a real band?</B></>
+<P> - It's still a personal project when it comes to the song writing, but at live shows HOLLENTHON is a "real" band.</>
+<P> <B>On "With Vilest Worms To Dwell" we can hear extracts from Russian classical music. Was it an occasional choice or not?</B></>
+<P> - I use whatever I think would improve the song and I dig Russian music very much, so I used some pieces of Prokofiev's Romeo and Juliet.</>
+<P> <B>Did you have any copyright problems with SATYRICON for using Prokofiev's theme in "Lords Of Bedlam"? ;-)</B></>
+<P> - Why would I have problems with SATYRICON? Do they own the rights for this music, or is Prokofiev a member of this band?</>
+<P> <B>How the things with your studio are going? Do you have any offers concerning the producing of other bands? As far as I know, you have already let several bands enter your (bedroom-)studio :-).</B></>
+<P> - It is a very little studio based in the bedroom of my little apartment, which I mainly use for my own musical projects. I did record a few other bands there, but I normally don't do this, since I don't like to have people I hardly know hanging out in my apartment. I just produce bands I know and like.</>
+<P> <B>Your wife Elena is responsible for all the lyrics on the latest album. Do you know what inspired her to write such poetry? By the way, why having a total control over the musical side of HOLLENTHON you don't write lyrics yourself?</B></>
+<P> - I don't like to write lyrics at all, and I can't do this as good as she does it. She's inspired by many classical writers and of course the music itself, which is always there before she starts to write the lyrics.</>
+<P> <B>I guess many people are waiting impatiently for a new HOLLENTHON album. Shall they hope that their cravings will be satisfied?</B></>
+<P> - There will be a new album next year in spring.</>
+<P><B>If it is not a commercial secret, are you satisfied with your collaboration with NAPALM Records? Did you have any proposals from some other labels?</B></>
+<P> - I'm satisfied with Napalm, but there's quite a few other labels that are interested in HOLLENTHON - most of them are bigger. I'll see what the future brings, but the next album will definitely be released on Napalm Records.</>
+<P> <B>Would you please name us your fave amongst non-metal bands?</B></>
+<P> - DESTINY'S CHILD.</>
+<P> <B>Do you like living in Austria? You know, many people regret not being born in some warmer (cheaper, more quiet...) place.</B></>
+<P> - Yes, Austria is a nice country to live in, it's clean, wealthy and beautiful. I wouldn't wanna live anywhere else, especially not in a warmer country, 'cause I hate hot weather.</>
+<P> <B>Your attitude to the process of unification of Europe?</B></>
+<P> - I don't really think it's a good idea, but it's nice to have one currency. Anyway, it isn't worth it complaining about the EU, because now we have it and we gotta live with it.</>
+<P> <B>What do you know about Russia apart from Red Square, Vodka and KGB?</B></>
+<P> - Hot women! I'm really looking forward to visit your beautiful country.</>
+<P> <B>Final words to our readers.</B></>
+<P> - See you on tour with PUNGENT and hopefully with HOLLENTHON sometimes in the future.</>
+<P> <B>Questions by Myke, exclusively for MUSICA and VAE SOLIS. Conducted by Kai Mathias Stalhammar.</B></>
+<P></>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.10.2007 news HOLLENTHON работают над новым альбомом
+
+<P><STRONG>Martin Schirenc </STRONG>работает в собственной студии над новым альбомом <STRONG>HOLLENTHON</STRONG>, который выйдет на <STRONG>Napalm</STRONG> в будущем году. Сообщается, что альбом будет более тяжёлым и будет сожержать оркестровые и фолковые элементы.</P>
+Автор: Vit Belov
+
+### 25.02.2008 news Название нового HOLLENTHON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.02/12318.jpg" width=400 align=right border=5>Новый альбом <STRONG>HOLLENTHON</STRONG> будет называться "<STRONG>Opus Magnum</STRONG>" и выйдет в этом году на<STRONG> Napalm Records</STRONG>. Вот его ориентировочный трэк-лист:</FONT></P>
+<P>01. <B>Ars Moriendi</B><BR>02. <B>Of Splendid Worlds</B><BR>03. <B>Once We Were Kings</B><BR>04. <B>To Fabled Lands</B><BR>05. <B>Dying Embers</B><BR>06. <B>Misterium Babel</B><BR>07. <B>On The Wings Of A Dove</B><BR>08. <B>Son Of Perdition</B><BR>09. <B>The Bazaar</B> (THE TEA PARTY cover) (limited edition only)<BR>10. <B>Son Of Perdition</B> (video) (limited edition only) </P>
+Автор: Vit Belov
+
+### 22.04.2008 news Новый альбом HOLLENTHON
+
+<P>Австрийский&nbsp;symphonic extreme metal&nbsp;акт <B>HOLLENTHON</B> подготовил к изданию свой третий полнометражный альбом под названием <STRONG>"Opus Magnum". </STRONG>Его выход ожидается 30 мая на <B>Napalm Records</B>. В альбом войдут следующие вещи:<BR><IMG height=300 alt="" hspace=10 src="/images/news_rus/2008.04/12467.jpg" width=300 align=left border=0>1. <B>Ars Moriendi</B><BR>2. <B>Of Splendid Worlds</B><BR>3. <B>Once We Were Kings</B><BR>4. <B>To Fabled Lands</B><BR>5. <B>Dying Embers</B><BR>6. <B>Misterium Babel</B><BR>7. <B>On The Wings Of A Dove</B><BR>8. <B>Son Of Perdition</B><BR>9. <B>The Bazaar</B> (THE TEA PARTY cover) (limited edition only)<BR>10. <B>Son Of Perdition</B> (video) (limited edition only)<BR></P>
+Автор: Dimas
+
+### 07.07.2008 reviews Безусловно, это надо слушать
+
+<P>Martin Schirenc – лидер PUNGENT STENCH и HOLLENTHON – страдает психическими расстройствами. Нет, это ни в коем случае не наезд или оскорбления. PUNGENT STENCH даже отменяли в своё время тур по нашей стране, из-за депрессии этого музыканта. Он просто не пришёл на вокзал к отходу поезда и всё. Нечто подобное, видимо, произошло и в прошлом году, когда PUNGENT STENCH, наконец-то, развалились во второй раз. Надеюсь, что навсегда, ведь Martin гораздо больше сделает для мира музыки со своим проектом HOLLENTHON, чем десять таких «культовых» групп, как PUNGENT STENCH.</P>
+<P>Первые два альбома этой группы, вышедшие на рубеже веков, поражали своей симфоничностью и эклектичностью. Почему-то в то время HOLLENTHON сравнивали с THERION, хотя общего у этих двух групп было не много. Пожалуй, это происходило из-за того, что музыка австрийцев была настолько оригинальна и красива, что всем хотелось сагитировать покупателя к её приобретению самым симфоничным и мощным сравнением. При этом эта агитация шла только на пользу самому клиенту, так как, несмотря на то, что HOLLENTHON на THERION были мало похожи, слушатель получал в свою коллекцию несомненную жемчужину. Разделавшись с PUNGENT STENCH, Martin Schirenc вместе со своей женой Elena подготовил для нас свой новый альбом “Opus Magnum”. Что ж, впечатление эта пластинка оставляет двоякое. Несомненно, с этим куском пластика надо вновь ознакомиться всем. Несколько сумбурная, разносторонняя, мегамелодичная и авангардная музыка, представленная HOLLENTHON, впечатляет и радует любого фэна оригинальной тяжёлой музыки. С другой стороны, чего-то такого, что на ментальном уровне заставит переслушивать эту работу раз за разом, я здесь не усвидел. Каждый раз HOLLENTHON, подбираясь вплотную к тому моменту, чтобы подарить мне настоящее удовольствие, останавливались на самом интересном месте и вновь начинали свою «прелюдию». </P>
+<P>Интересный и оригинальный альбом, свойственный HOLLENTHON в их недолгой истории, вряд ли тянущий на звание безусловного хита, но выделяющийся на общем весьма сером фоне современной «мэйнстрим» тяжёлой музыки.</P>
+Автор: Vit Belov
+
+### 30.08.2008 news Фоторепортаж с фестиваля Brutal Assault Vol. 13
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Наши корреспонденты вернулись с фестиваля <STRONG>Brutal Assault Vol. 13</STRONG> в Чехии. Наша сплочённая команда фоторепортёров подготовила отчёт об этом событии, который можно увидеть в соотвтетствующем разделе нашего сайта. Уже&nbsp;"висят" эксклюзивные фото <STRONG>EXODUS</STRONG>, <STRONG>SEPTICFLESH</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>SADIST</STRONG>, <STRONG>GENERAL SURGERY</STRONG>, <STRONG>HOLLENTHON</STRONG>. Обновления последуют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></FONT></P>
+Автор: Vit Belov
+
+### 29.08.2013 news Martin Schirenc собрал PUNGENT STENCH под новой вывеской
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Австрийский ансамбль <STRONG>PUNGENT STENCH</STRONG>, распавшийся в 2007 году (во второй раз)&nbsp;по причине разногласий между двумя оригинальными участниками, объявил о своей очередной реинкарнации!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На этот раз в состав группы вошли оригинальный вокалист, гитарист и композитор</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff> <STRONG>El Cochino</STRONG> (в миру <STRONG>Martin Schirenc</STRONG>), а также два новых участника -&nbsp;<STRONG>Danny Vacuum</STRONG> (<STRONG>GENOCIDE SS</STRONG>, <STRONG>THE ACCIDENTS</STRONG>) на басу и вокале и&nbsp;<STRONG>Mike G. Mayhem</STRONG> (<STRONG>HOLLENTHON</STRONG>, <STRONG>COLLAPSE 7</STRONG>)&nbsp;на барабанах.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дабы избежать различных конфликтов и судебных разбирательств в отношении использования оригинального имени “<STRONG>PUNGENT STENCH</STRONG>”, новообразование планирует выступать под вывеской: <STRONG>"THE CHURCH OF PUNGENT STENCH"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Фэны наконец-то получат то, о чём они спрашивали в течении долгого времени - сет-лист, состоящий из редких и даже&nbsp;никогда не исполнявшихся песен, таких как, треки с совместной пластинки 89&nbsp;года&nbsp;с <STRONG>DISHARMONIC ORCHESTRA</STRONG>, а так же, лучшие и&nbsp;убойные хиты с наших трёх первых альбомов!"</EM> - гласит пресс-релиз нового проекта.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютное выступление обновлённой группы состоится 13 декабря на голландском фестивале <STRONG>Eindhoven Metal Meeting</STRONG>.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26122.jpg" width=650 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Новый HOLLENTHON - альбом июня!

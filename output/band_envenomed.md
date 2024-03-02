@@ -12,6 +12,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.09.2015 news ENVENOMED на Punishment 18
+
+<P>Набирающий обороты итальянский лэйбл <STRONG>Punishment 18</STRONG> объявил о переиздании дебютного альбома австралийской thrash-metal команды <STRONG>ENVENOMED "Evil Unseen"</STRONG>. Видео-клип на песню с этого альбома "<STRONG>Within Me</STRONG>" можно посмотреть ниже.</P>
+<P>Трек-лист:</P>
+<P><STRONG>“Evil Unseen”<BR>“Will Of Man”<BR>“Spoils Of Victory”<BR>“Burn The Sun”<BR>“Falling”<BR>“Within Me”<BR>“Disobey The Beast”<BR>“Mechanical Enemy”<BR>“The Shadowland”<BR>“Spirit Machine”<BR>“Demonocracy”<BR>“Global Deception”</STRONG></P>
+<P><STRONG><center><IMG border=0 src="/images/news_rus/2015.09/28270.jpg" width=640 height=640></STRONG></P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/6_yFMkgqKjo" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

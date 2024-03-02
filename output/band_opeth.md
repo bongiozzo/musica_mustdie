@@ -194,6 +194,698 @@ Recorded at Rockfield Studios in Monmouth, Wales, UK.
 
 * C группой "Bloodbath" Mikael Akerfeldt
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Одна из групп, которую продюсирует Питер Тартгрен (Hypocrisy), Amon Amarth записывает новый альбом "The Avenger". Новый death-metal опус выйдет в августе. Группу покинул барабанщик Мартин Лопез, который влотную решил занятся своей другой группой Opeth. На его место пришёл Фредде из недавно распавшегося Canourous Quintet.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Английский лэйбл Peaceville заключил контракт с Katatonia и Opeth. Новый альбом Katatonia выйдет в конце лета, и, как сообщалось, барабанщиком на нём будет Дэн Свано. Opeth начали работу над новым альбомом, который выйдет ранней осенью.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>Новый альбом Opeth будет называться "Still Life" и выйдет 4 октября. Будет всего семь песен более, чем на 60 минут.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Миньон группы Bloodbath выйдет на Century Media. В эту группу входят Дэн Свано и члены Opeth и Katatonia. Группа представит нашего вниманию дэт-металл в духе ранних Death и Entombed.</p>
+
+Автор: Vit Belov
+
+### 10.08.2000 news Пятый альбом Opeth.
+
+<p> Подтверждено, что пятый альбом Opeth будет называться "Blackwater Park". Альбом должен быть записан в течение семи недель в Fredman studios, начиная с 14-ого августа. Скорее всего, он будет содержать восемь треков, среди которых 12-минутное эпическое произведение с одноименным названием. Материал, как утверждают, получится замороченным, замешанным на шизоидных, навеваюших воспоминания риффах и аранжировках, и вместе с тем перенасышенным эмоциями. Как вам такое? "Blackwater Park" будет выпущен в течение февраля 2001 года.</p>
+
+Автор: Morsus
+
+### 10.08.2000 news The 5th Opeth album.
+
+<p> It is now confirmed that the title of the 5th Opeth album will be "Blackwater Park". The album is due to be recorded during 7 weeks at Fredman studios starting on the 14th of August. It will most probably feature 8 titles, amongst them a 12 minute epic bearing the album title. The material is said to be a twisted and schizophrenic blend of evocative riffs and arrangements put together with an overload of sheer emotion. How about that? "Blackwater Park" will be released during February of 2001.</p>
+
+Автор: Morsus
+
+### 03.10.2000 news 
+
+<p> Opeth на семь недель засели в Studio Fredman и занимаются записью нового альбома. Он будет называться "Blackwater Park" и выйдет в начале следующего года на Music For Nations.</p>
+
+Автор: Nybras
+
+### 27.10.2000 news Информация о новом альбоме Opeth
+
+<p>Новый альбом "Blackwater Park" уже записан и почти готов к выпуску. Новинка состоит из восьми треков, один из которых инструментальный, а общая длительность релиза составит более 67 минут, что делает его самым длинным альбомом группы на данный момент. Продюсингом на этот раз занимался Steven Wilson, известный своей группой Porcupine Tree, и, по предварительным данным, после выхода альбома мы сможем оценить Stevenа не только как продюсера, но и как музыканта/вокалиста. Также обещается, что на альбоме будут присутствовать одни из самых тяжелых арранжировок, когда-либо произведенных группой.</p>
+
+Автор: Phantom Lord
+
+### 29.11.2000 news Новый альбом Opeth
+
+<p>Новый альбом Opeth "Black Water Park" выйдет на лэйбле Music For Nations в начале 2001 года. Сейчас, группа собирается переписать заново несколько композиций.</p>
+
+Автор: Yermola
+
+### 09.01.2001 news Трек лист нового альбома Opeth
+
+<p>Опубликован трек-лист нового альбома Opeth: 1)The Leper Affinity 2)Bleak 3)Harvest 4)The Drapery Falls 5)Dirge For November 6)The Funeral Portrait 7)Patterns In The Ivy 8)Blackwater Park. Кроме того, на сайте Music For Nations http://www.music-for-nations.co.uk/ можно скачать MP3 "The Drapery Falls".</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>После проведения однодневных Dynamo Open в последние годы, в этом году принято решение все-таки вернуться к трехдневной форме. Шестнадцатый фестиваль будет проходить на "De Schans" в Lichtenvoorde с 24 по 26 мая 2001. Уже подтвердили свое участие: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER и WICKED MYSTIC. Не пропустите!</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>After last years one day-Dynamo we strike back with a full three day -event, with campsite at "De Schans" in Lichtenvoorde. Our 16th edition will simply crush all other summerfestivals this year and takes place on the 24th, 25th and 26th of MAY … Bands Scheduled To Appear: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER feat. Arjen Lucassen, WICKED MYSTIC</p>
+
+Автор: Yermola
+
+### 24.04.2001 reviews Парк Черной Воды
+
+<p> Думаю, ОПЕТ нельзя назвать законсервировавшейся в рамках стиля группой ибо при всей похожести его альбомов (да отдельных композиций), друг на друга музыканты умудряются добавить в звучание что-то такое, из-за чего точно такая же музыка звучит и воспринимается немного по-другому, а не как самоплагиат.</p>
+<p> Новый релиз группы по характеру ближе всего, пожалуй, к их же последней Still Life, но сыгран, как мне показалось, более техничнее и интереснее. Обещанной когда-то "самой тяжелой композиции группы за всю историю" так и не усмотрел - все сыграно довольно ровно и мягко и самым тяжелым, пожалуй, остается альбом My Arms, Your Hearse (при всем его однообразии и простоте). Зато на новом альбоме присутствует обещанная баллада, сыгранная почти целиком на акустической гитаре - неплохо и интересно, и что самое главное, при всей НЕпохожести по стилю и звучанию на другие треки совсем не выглядит белой вороной.</p>
+<p> Итого имеем довольно интересный и неплохой для своего стиля альбом может и не сильно, но, пожалуй, все-таки превосходящий предыдущий (по крайней мере по восприятию: диск совсем не кажется нудным и затянутым, не смотря на внушительную продолжительность) и способный порадовать фанов данного прогрессив-направления.</p>
+<p> Оговорюсь - творчество ОПЕТ мною во многом очень и очень неприемлимо: ну НЕ нормально это, когда во время мощного, кое-где почти что блэкового, рубилова иногда вдруг неожиданно врубается чистый мальчишечий слащавый до мерзости вокал, торчащий тут совершенно не в тему, или не воспринимается совершенно когда в начале 8-10 минутной композиции музыканты без пения минуты 3-4 а то и 5-6 разыгрываются на акустике (хоть и довольно технично). И все равно при всей моей глубокой неприязни к подобной манере игры и построения композиций просто свинством будет не отметить технику и мастерство гитаристов очень даже положительной оценкой.</p>
+
+Автор: Alexey Pitirimov
+
+### 15.01.2002 news OPETH: Two Studio Albums On The Way...
+
+<p>Sweden's OPETH have confirmed via their official web site that the group are currently writing the material for not only one, but two full-length CDs that will receive a simultaneous release in late 2002 or early 2003. According to a statement from the band, “the plan is to release separate CDs at the same time, one heavy, one mellow. The heavy CD will be typical OPETH with all its ingredients, including mellow parts, while the 'mellow' CD will have more laid-back material.” As reported her a few days ago, OPETH have been nominated in the category "Best Hard Rock" at the upcoming Swedish “Grammy” Awards, which are due to be held at Globen in Stockholm on February 14th. Other nominees in the “Best Hard Rock” category are ENTOMBED, SAHARA HOTNIGHTS and BACKYARD BABIES.<BR><BR> Also on the OPETH front, the group has posted the following recap of their recent European tour with KATATONIA and NOVEMBRE: “22 gigs across Europe was the schedule that OPETH with support from KATATONIA and NOVEMBRE had to undertake. The bands were extremely happy with the turnout and the support for this package. OPETH have stated that their favorite gigs for this tour was Milano/Italy and London/UK. Some shows didn't turn out the way the band expected as Mikael got ill and lost his voice. <BR><BR> “The Osnabruck/Germany show was a total disaster performing wise due to this, and the next day in Hamburg, OPETH did a instrumental set with guest vocals from the support bands. Blakkheim from KATATONIA sang 'Forest of October', Jonas from KATATONIA did his take on 'Credence', Carmelo from NOVEMBRE did a 'Advent' version while everybody rushed the stage for the finale with 'Demon Of The Fall'. The rest of the songs played that night were sung by...yes, the audience! Weird? Yes, but also a classic show in the history of OPETH.”</p>
+
+Автор: Yermola
+
+### 15.01.2002 news OPETH готовят два студийных альбома...
+
+<p>"OPETH" официально подтвердили, что сейчас работают над двумя полноформатниками которые должны выйти в конце 2002 / начале 2003. По заявлению команды: "мы планируем выпустить эти диски одновременно. Один - тяжелый, один - легкий. Тяжелый будет типичным для OPETH со всеми элементами, в т.ч. и аккустическими, а второй будет очень спокойным...". <BR><BR> Из других новостей, группа номинирована в категории "Best Hard Rock" для шведской “Grammy” Awards, которая будет проходить в Стокгольме 14-го февраля. Другие номинанты в категории ENTOMBED, SAHARA HOTNIGHTS и BACKYARD BABIES.</p>
+
+Автор: Yermola
+
+### 23.08.2002 news OPETH To Begin Mixing In September
+
+<p>The two full-length albums currently being recorded by Sweden's OPETH at Nacksving/Maestro Music studios with producer Fredrik Nordstrom are scheduled to be mixed during September - the "heavy" one under the watchful eye of Andy Sneap (i.e. MACHINE HEAD, SKINLAB, NEVERMORE) and the "mellow" one by PORCUPINE TREE frontman Steve Wilson.</p>
+<p> As previously reported, the heavy CD - due worldwide on October 28th - will be typical OPETH with all its ingredients, including mellow parts, while the "mellow" CD - set for release in March 2003 - will contain more laid-back material.</p>
+
+Автор: Dimas
+
+### 24.08.2002 news Новые альбомы OPETH
+
+<p>Шведская группа OPETH в настоящее время находится в Nacksving/Maestro Music studios. Там группа работает сразу над двумя альбомами. Вместе с музыкантами в качестве продюссера работает Fredrik Nordstrom. После записи микшированием этих двух альбомов займутся разные люди. Над первым (так называем heavy альбомом) будет неусыпно работать Andy Sneap (MACHINE HEAD, SKINLAB, NEVERMORE), а над вторым (так называемым mellow альбомом) поработает фронтмэн PORCUPINE TREE Steve Wilson.</p>
+<p> Предварительно известно, что heavy альбом должен выйти 28 октября 2002 года. Это будет типичный для OPETH продукт со всеми фирменными и свойственными группе ингредиентами. Второй mellow альбом должен выйти в марте 2003 года. Этот альбом будет содержать несвойственный группе непринужденный и достаточно легкий материал.</p>
+
+Автор: Dimas
+
+### 05.09.2002 news Проклятие и Избавление...
+
+<p>OPETH выбрали название "Deliverance" для своего "тяжелого" диска который выходит в продажу 28-го октября и "Damnation" для акустического (дата выхода март 2003). На тяжелом диске будет пять песен и один инструментал, а на легком собрате - 10 спокойных песен.</p>
+
+Автор: Yermola
+
+### 05.09.2002 news OPETH Reveal Titles For Upcoming Albums ....
+
+<p>OPETH have set Deliverance as the title of their forthcoming "heavy" CD, which is due on October 28th, while the more "mellow" follow-up will be called Damnation. As previously reported, Damnation is tentatively set for release in March 2003. <BR><BR> OPETH have spent the last two months recording their two-album project in Gothenburg, Sweden with producer Steven Wilson (PORCUPINE TREE). Five songs plus a short instrumental have been cut for the heavy album while another 10 were laid down for the more mellow record.</p>
+
+Автор: Yermola
+
+### 13.12.2002 news Новости от OPETH
+
+<p>Стал известен трэк-лист нового "мягкого" альбома шведской группы OPETH под названием "Damnation". В альбом войдут:</p>
+<p> 1. Windowpane <BR> 2. In My Time Of Need <BR> 3. Death Whispered A Lullaby <BR> 4. Closure <BR> 5. Hope Leaves <BR> 6. To Rid The Disease <BR> 7. Ending Credits <BR> 8. Weakness</p>
+<p> Микшированием альбома займется фронтмэн PORCUPINE TREE Steven Wilson. Выход альбома намечен на март-апрель 2003 года.</p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 23.10.2003 news OPETH выпускают DVD
+
+<B>OPETH</B> выпускают DVD под названием "<B>Lamentations - Live At Shepherds Bush Empire" </B>на <B>MUSIC FOR NATIONS</B> 24 ноября. На диск войдут запись концерта 25 сентября в Лондоне, где группа играет как акустическую, так и тяжёлую программу, при чём каждая длиться около часа. Плюс 65 минут видео-материалов об истории группы и процессе создания последних альбомов.
+Автор: Vit Belov
+
+### 16.11.2003 news Вокалист OPETH примет участие в записи нового альбома AYREON
+
+<B>Mikael &Aring;kerfeldt</B> принял участие в записи новой пластинки <B>AYREON "The human equation". Mikael</B> уже записал партии вокала вместе с <B>Arjen Lucassen</B> в его студии<B>.</B>
+Автор: Vit Belov
+
+### 19.02.2005 news OPETH готовятся войти в студию
+
+<P>15 марта<STRONG> OPETH</STRONG> войдут в <STRONG>Fashination Street Studios</STRONG> для записи своего восьмого, пока не названного, альбома. Никакие другие подробности пока не сообщаются.</P>
+Автор: Vit Belov
+
+### 19.04.2005 news Сделка OPETH с Roadrunner Records
+
+<P><IMG height=131 alt="" hspace=25 src="/images/news_rus/2005.04/8328.jpg" width=246 align=left border=0>Шведский коллектив&nbsp;<B>OPETH</B> подписал соглашение с гранд-лейблом <B>Roadrunner Records</B>. Музыканты планируют вскоре войти в шведскую студию <B>Fascination Street</B> для записи своего восьмого альбома, выход которого намечен на конец 2005 года.<BR></P>
+Автор: Dimas
+
+### 02.06.2005 news Новый альбом OPETH назван
+
+<P>Новый альбом <STRONG>OPETH</STRONG>, который выйдет на <STRONG>Roadrunner</STRONG>, будет называться <STRONG>"Ghost Reveries".</STRONG></P>
+Автор: Vit Belov
+
+### 24.06.2005 news OPETH закончили запись нового альбома
+
+<P><STRONG>OPETH</STRONG> закончили запись нового альбома "<STRONG>Ghost Reveries</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>Ghost of perdition</STRONG><BR>2. <STRONG>The baying of the hounds</STRONG><BR>3. <STRONG>Beneath the mire<BR></STRONG>4. <STRONG>Atonement<BR></STRONG>5. <STRONG>Reverie/Harlequin forest<BR></STRONG>6. <STRONG>Hours of wealth<BR></STRONG>7.<STRONG> The grand conjuration</STRONG><BR>8. <STRONG>Isolation years</STRONG></P>
+<P>Альбом выйдет в августе-сентябре на <STRONG>Roadrunner</STRONG>. Общая длительность пластинки: 65 минут.</P>
+Автор: Vit Belov
+
+### 02.12.2005 news Звёзды metal называют любимые альбомы в 2005 году
+
+<P>Шведский журнал <STRONG>Close-Up</STRONG> попросил известных музыкантов назвать любимые альбомы в 2005 году. Единодушия среди артистов не возникло. Только несколько пластинок было названо в тройки несколькими голосовавшими. Например, альбом <STRONG>OPETH "Ghost Reveries"</STRONG> назвали <STRONG>Leif Edling</STRONG> (<STRONG>CANDLEMASS</STRONG>) и <STRONG>Anders Nystrom</STRONG> (<STRONG>KATATONIA</STRONG>), а альбом <STRONG>SYSTEM OF A DAWN</STRONG> "<STRONG>Mesmerize</STRONG>" - <STRONG>Nergal </STRONG>(<STRONG>BEHEMOTH</STRONG>) и <STRONG>Robert Flynn</STRONG> (<STRONG>MACHINE HEAD</STRONG>). Также по нескольку раз упоминались альбомы <STRONG>SOILWORK</STRONG>&nbsp;и&nbsp;<STRONG>SPIRITUAL BEGGARS</STRONG>.</P>
+<P>В остальном выбор звёзд был хаотичен и слишком разнообразен по стилевым направлениям.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.12.2005 news Лучшие металл-альбомы 2005 года
+
+<P>Стали известны номинанты шведской премии <B>Grammy</B> в категории "best metal album". Ими стали следующие альбомы: <STRONG>OPETH</STRONG> <B>"Ghost Reveries", </B><B>CANDLEMASS</B> <B>"Candlemass"</B>, <B>HAMMERFALL</B> <B>"Chapter V: Unbent, Unbowed, Unbroken"</B>, <B>HARDCORE SUPERSTAR</B> <STRONG>"Hardcore Superstar"</STRONG>&nbsp;и&nbsp;<B>MESHUGGAH</B> <B>"Catch Thirty Three".</B>&nbsp;</P>
+Автор: Dimas
+
+### 08.02.2006 news CANDLEMASS выиграли приз
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CANDLEMASS</STRONG> выиграли шведскую Grammy, как лучшая hard-rock команда. В своей номинации легендарные думстеры опередили <STRONG>HAMMERFALL</STRONG>, <B>HARDCORE SUPERSTAR</B>, <B>MESHUGGAH</B>&nbsp;и <STRONG>OPETH.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В номинации "Лучшее музыкальное DVD" были номинированы <STRONG>EVERGREY</STRONG>, но они проиграли<STRONG> ABBA</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 26.02.2006 news CULT OF LUNA примет участие в фестивале Close Up
+
+<P>Служители апокалиптического метала шведы <B>CULT OF LUNA</B>, новейший альбом которых, <B>"Somewhere Along The Highway"</B>, увидит свет на <B>Earache</B> 24 апреля, выступят на фестивале <B>Close Up Festival</B> 15 апреля.</P>
+<P>Двухдневный фест, организованный журналом <B>Close Up</B>, пройдет 15 и 16 апреля в столице Швеции Стокгольме. Там также примут участие такие команды, как <B>OPETH, EVERGREY, BOLT THROWER, BLINDSIDE, AMON AMARTH</B>.</P>
+Автор: Ixtiandr
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 10.05.2006 news OPETH - видео в сети
+
+Трехминутное видео <STRONG>OPETH</STRONG> с фестиваля <STRONG>Close-Up</STRONG> (16 апреля, Стокгольм) можно скачать по этому адресу <A href="http://www.opeth.com/video_clip.html">http://www.opeth.com/video_clip.html</A>
+Автор: Bizarre
+
+### 13.09.2006 news OPETH выпускают CD&#x2F;DVD
+
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2006.09/10711.jpg" width=259 align=right border=5>31 октября <STRONG>Roadrunner</STRONG> выпускает специальное двухдисковое издание последнего альбома <STRONG>OPETH&nbsp;"Ghost Reveries</STRONG>".&nbsp;На первый аудио-диск в качестве бонуса попадёт кавер&nbsp;на песню <STRONG>DEEP PURPLE</STRONG> "<STRONG>Soldier Of Fortune</STRONG>".&nbsp;А на второй DVD-диск&nbsp;войдут 40-минутный документальный фильм, видео-клип "<STRONG>The Grand Conjuration</STRONG>", а также альбом смикшированный в 5.1.&nbsp;</P>
+Автор: Vit Belov
+
+### 19.05.2007 news OPETH поменяли гитариста
+
+<P>Гитарист <STRONG>Peter Lindgren</STRONG> покинул <STRONG>OPETH</STRONG>. <STRONG>Peter</STRONG> объяснил своё решение утерей интереса к группе. На его место взят бывший музыкант <STRONG>ARCH ENEMY Fredrik Ekesson</STRONG>. Лидер <STRONG>OPETH Mikael Ekerfeldt</STRONG> называет <STRONG>Fredrik</STRONG> в числе трёх лучших гитаристов Швеции.</P>
+Автор: Vit Belov
+
+### 21.08.2007 news OPETH выпускают концертник
+
+<P>Шведские экспериментаторы <STRONG>OPETH</STRONG> 22 октября на <STRONG>Peaceville</STRONG> выпускают двойной концертник <STRONG>'The Roundhouse Tapes'. </STRONG>На него попало выступление в Лондоне 9 ноября 2006 года. Трэк-лист:</P>
+<P>CD1: <BR>01. <B>When</B><BR>02. <B>Ghost Of Perdition</B><BR>03. <B>Under The Weeping Moon</B><BR>04. <B>Bleak</B><BR>05. <B>Face Of Melinda</B><BR>06. <B>Thw Night And The Silent Water</B><BR><BR>CD2: <BR>01. <B>Windowpane</B><BR>02. <B>Blackwater Park</B><BR>03. <B>Demon of the Fall</B> </P>
+Автор: Vit Belov
+
+### 20.12.2007 reviews Первый концертный блин совершенно не комом
+
+<P>Наверное, покажется странным, что шведские дум-дэт прогстеры Opeth лишь в 2007-ом году выпускают свой первый концертный альбом (до этого, правда, выходил концертный DVD "Lamentations" в 2004-ом году), тогда как их история начинается аж в 1990-ом. Впрочем, это и своеобразный плюс для Mikael Akerfeldt & Co, так как сегодня многие группы уже записывают концертники, имея в багаже всего один-два студийных альбома. Другими словами, эта работа должна была быть хорошо продумана. И это оказалось действительно так. На двойнике "The Roundhouse Tapes" (явный намек на первую запись Iron Maiden, ЕР "The Soundhouse Tapes", и эта была единственная, между прочим,&nbsp;запись, где они выступают квартетом) представлены одной-двумя вещами все студийные альбомы Opeth, кроме "Deliverance". Записан альбом в лондонском Camden Roundhouse 9-го ноября 2006-го года. Что ж, Opeth вживую хороши не меньше, чем Opeth в студийном варианте. Дополнительный шарм записи придают и юморные высказывания Акерфельдта; например, перед исполнением 'Under The Weeping Moon' с первого полноформатника группы "Orchid", он говорит: "This song has some lyrics, that are absolute Black metal nonsense..." Интересно это выступление еще и тем, что это последний альбом с участием Петера Линдгрена, который в в 2007-ом покинул группу (его заменил Фредрик Акессон, игравший до этого в Arch Enemy), а также здесь представлен новый барабанщик Opeth Martin "Axe" Axenrot (Bloodbath, Satanic Slaughter, Witchery), заменивший Мартина Лопеса. Говорить, что альбом удался - это не сказать ничего. Прекрасное исполнение, удачный - по мнению многих поклонников - выбор треков, великолепная атмосфера. Фанаты купят диск по-любому, но даже для неофитов это неплохая возможность всего за 95 минут&nbsp;ознакомиться с творчеством шведов со всех альбомов. А в начале 2008-го года должен выйти и одноименный DVD, так что копите денежки, ну а пока наслаждайтесь музыкой одной из самых примечательных команд на современной метал-сцене! Кстати, любопытный момент: "The Roundhouse Tapes" вышел на британском Peaceville (а подписаны Opeth сейчас на Roadrunner), своеобразный реверанс лейблу, на котором группа выпустила в 1999-ом альбом "Still Life".</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.02.2008 news Новый альбом OPETH
+
+<P>2 июня на <STRONG>Roadrunner </STRONG>выходит новый альбом <STRONG>OPETH</STRONG> <STRONG>"Watershed"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Coil</B><BR>02. <B>Heir Apparent</B><BR>03. <B>The Lotus Eater</B><BR>04. <B>Burden</B><BR>05. <B>Porcelain Heart</B><BR>06. <B>Hessian Peel</B><BR>07. <B>Hex Omega</B></P>
+Автор: Vit Belov
+
+### 31.03.2008 news Новый альбом OPETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.03/12414.jpg" width=400 align=right border=5>Новый альбом<STRONG> OPETH "Watershed"</STRONG> выходит 2 июня на <STRONG>Roadrunner</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Coil</B><BR>02. <B>Heir Apparent</B><BR>03. <B>The Lotus Eater</B><BR>04. <B>Burden</B><BR>05. <B>Porcelain Heart</B><BR>06. <B>Hessian Peel</B><BR>07. <B>Hex Omega</B></P>
+Автор: Vit Belov
+
+### 14.11.2008 news Новое видео OPETH
+
+<P><STRONG>OPETH</STRONG> выложили в сеть новое видео на песню <STRONG>"Burden". </STRONG>Над клипом работал датский режиссёр <STRONG>Lasse Hoile</STRONG> (<B>DREAM THEATER</B>, <B>PORCUPINE TREE</B>, <B>STEVEN WILSON</B>).</P>
+<P>
+<CENTER>
+<OBJECT height=346 width=420><PARAM NAME="movie" VALUE="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/2362"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/2362" type="application/x-shockwave-flash" allowfullscreen="true" width="420" height="346"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 16.11.2008 news OPETH выступят в России
+
+<P>И вновь новости от<STRONG> OPETH</STRONG>. Группа запланировала два концерта в России. 20 февраля состоится концерт в Москве, а 21 февраля - в Санкт-Петербурге.</P>
+Автор: Vit Belov
+
+### 13.03.2009 news Норвежцы спонсируют OPETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время проходит тур <STRONG>OPETH</STRONG> по Норвегии. Трасса пролегла как по крупным городам страны, так и по "районным" центрам. Организацией события занялась государственная компания <STRONG>Rikskonsertene</STRONG>, которая обычно работает с джазом и роком. Задачей организации является просвещение молодёжи даже в таких городах, где местные промоутеры не могут устраивать качественных концертов. </FONT></P>
+Автор: Vit Belov
+
+### 28.05.2009 news Candlelight переиздадут OPETH
+
+<P>Трёхдисковый box-set <STRONG>OPETH "The Candlelight Years"</STRONG> выйдет 13 июля на<STRONG> Candlelight</STRONG>. На диск попадут первые три альбома шведов:</P>
+<P>"<STRONG>Orchid</STRONG>" (1995):<BR>01.<STRONG> In Mist She Was Standing</STRONG><BR>02. <STRONG>Under the Weeping Moon</STRONG><BR>03. <STRONG>Silhouette</STRONG><BR>04. <STRONG>Forest of October</STRONG><BR>05. <STRONG>The Twilight Is My Robe<BR></STRONG>06. <STRONG>Requiem<BR></STRONG>07. <STRONG>The Apostle in Triumph</STRONG><BR>08. <STRONG>Into The Frost of Winter</STRONG></P>
+<P>"<STRONG>Morningrise</STRONG>" (1996):<BR>01. <STRONG>Advent<BR></STRONG>02. <STRONG>The Night and the Silent Water</STRONG><BR>03. <STRONG>Nectar<BR></STRONG>04. <STRONG>Black Rose Immortal</STRONG><BR>05. <STRONG>To Bid You Farewell</STRONG><BR>06. <STRONG>Eternal Soul Torture</STRONG></P>
+<P>"<STRONG>My Arms, Your Hearse</STRONG>" (1998):<BR>01. <STRONG>Prologue<BR></STRONG>02. <STRONG>April Ethereal</STRONG><BR>03. <STRONG>When</STRONG><BR>04. <STRONG>Madrigal<BR></STRONG>05. <STRONG>The Amen Corner</STRONG><BR>06. <STRONG>Demon of the Fall</STRONG><BR>07. <STRONG>Credence<BR></STRONG>08. <STRONG>Karma</STRONG><BR>09. <STRONG>Epilogue<BR></STRONG>10. <STRONG>Circle of The Tyrant</STRONG><BR>11. <STRONG>Remember Tomorrow</STRONG> </P>
+Автор: Vit Belov
+
+### 03.03.2010 news Металисты поддержали игру
+
+<P>2 марта на<STRONG> Roadrunner</STRONG> вышло специальное EP, посвящённое выходу мегаблокбастера <STRONG>"God of War III"</STRONG>. Этот сборник из шести песен будет доступен в качестве бонуса к специальному изданию этой игры для<STRONG> Sony Playstation</STRONG>. Вот трэк-лист:</P>
+<P>01. <B>KILLSWITCH ENGAGE</B> - "My Obsession"<BR>02. <B>TRIVIUM</B> - "Shattering The Skies Above"<BR>03. <B>DREAM THEATER</B> - "Raw Dog"<BR>04. <B>TAKING DAWN</B> - "This Is Madness"<BR>05. <B>OPETH</B> - "The Throat Of Winter"<BR>06. <B>MUTINY WITHIN</B> - "The End"</P>
+<P><STRONG>TRIVIUM </STRONG>выложили в сеть видео на свою песню, которое можно посмотреть чуть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.05.2010 news Akerfeldt, Portnoy и Wilson готовят новый проект
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Steven Wilson (PORCUPINE TREE), Mikael Akerfeldt (OPETH)</STRONG> и <STRONG>Mike Portnoy (DREAM THEATER)</STRONG> заняты сощданием музыки для своего&nbsp;совместного проекта. Сообщается, что <STRONG>Wilson</STRONG> и <STRONG>Akerfeldt</STRONG> уже работали вместе в Лондоне и&nbsp;сочинили где-то 15 минут материала. Лидер<STRONG> PORCUPINE TREE</STRONG> утверждает, что результат будет сюрпризом для слушателей. Музыка этого проекта остаётся роком в общем понимании, но материал очень разнообразен и необычен для музыкантов.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отметим, что основные группы вышеуказанных музыкантов подписаны на<STRONG> Roadrunner Records</STRONG>. Вполне логично предположить, что это лэйбл принял некое участие в инициации этого проекта.</FONT></P>
+Автор: Vit Belov
+
+### 04.12.2010 news OPETH войдут в студию в январе
+
+<P><IMG height=245 alt="" hspace=0 src="/images/news_rus/2010.12/17735.jpg" width=200 align=right border=0>Шведы <STRONG>OPETH</STRONG> забронировали на 31 января 2011 года студийное время в <STRONG>Atlantis</STRONG> studios в Стокгольме. Десятый альбом группы должен выйти следующей осенью на <STRONG>Roadrunner Records</STRONG>. <STRONG>Jens Bogren</STRONG> (<B>SOILWORK</B>, <B>KATATONIA</B>, <B>PARADISE LOST</B>, <B>BLOODBATH</B>) запишет это пластинку, а сведение выполнит <STRONG>Steven Wilson</STRONG> из <STRONG>PORCUPINE TREE</STRONG>.</P>
+<P>Предыдущий альбом коллектива <STRONG>"Watershed" </STRONG>вышел в 2008 году и попал на 23 место в чартах <STRONG>Billboard</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.12.2010 news Итоги 2010 года от артистов лейбла Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Roadrunner</STRONG> опубликовал топ-листы своих сотрудников и некоторых музыкантов лейбла. Среди прочих, там можно отыскать лучшие альбомы 2010 года по мнению:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17981.jpg" width=180 height=180><U>Dave Ellefson</U></STRONG><U> (<STRONG>MEGADETH</STRONG>)</U>:</FONT></P>
+<P>10. <STRONG>MOTORHEAD</STRONG> - The World Is Yours <BR>09. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare <BR>08. <STRONG>THERION</STRONG> - Sitra Ahra <BR>07. <STRONG>SOULFLY</STRONG> - Omen <BR>06. <STRONG>PANTERA</STRONG> - A Decade of Dominance <BR>05. <STRONG>HALFORD</STRONG> - Halford IV, Made of Metal <BR>04. <STRONG>DISTURBED</STRONG> - Asylum <BR>03. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>02. <STRONG>MEGADETH</STRONG> - Rust In Peace Live&nbsp; <BR>01. <STRONG>The Big Four</STRONG>: Live From Sofia, Bulgaria (DVD) </P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17982.jpg" width=180 height=180><U>Joel O’Keeffe</U></STRONG><U> (<STRONG>AIRBOURNE</STRONG>)</U>:</P>
+<P>10. <STRONG>TOM PETTY AND THE HEARTBREAKERS</STRONG> - Mojo<BR>09. <STRONG>JERRY LEE LEWIS</STRONG>&nbsp;- Last Man Standing<BR>08. <STRONG>AC/DC </STRONG>- Backtracks<BR>07. <STRONG>RATT</STRONG> - Infestation<BR>06. <STRONG>BRUCE SPRINGSTEEN</STRONG>&nbsp;- The Promise<BR>05. <STRONG>LYNYRD SKYNYRD</STRONG> - God & Guns<BR>04.&nbsp;<STRONG>KISS</STRONG> - Sonic Boom<BR>03. <STRONG>THE POOR</STRONG> - Round One<BR>02. <STRONG>SLASH</STRONG> - Slash <BR>01. <STRONG>MEAT LOAF</STRONG> - Hang Cool Teddy Bear</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17983.jpg" width=180 height=180><U>Mikael Akerfeldt</U></STRONG><U> (<STRONG>OPETH</STRONG>)</U>: </P>
+<P>10. <STRONG>TEARS FOR FEARS</STRONG> - Seeds of Love<BR>09. <STRONG>TOSHI ICHIYANAGI</STRONG> - Flowers<BR>08. <STRONG>THE DREAM</STRONG> - Get Dreamy<BR>07. <STRONG>YONIN BAYASHI</STRONG> - Isshoku Sokuhatsu<BR>06. <STRONG>SERGE GAINSBOURG</STRONG>&nbsp;- Historie de Melody Nelson<BR>05. <STRONG>PAIN OF SALVATION</STRONG> - Road Salt Pt. 1<BR>04. <STRONG>THE CHURCHILLS</STRONG> - s/t<BR>03. <STRONG>VASHTI BUNYAN</STRONG> - Just Another Diamond Day<BR>02. <STRONG>WIL MALONE</STRONG> - Wil Malone <BR>01. <STRONG>DAVID CROSBY</STRONG> - If I Could Only Remember My Name</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17984.jpg" width=180 height=180><U>JB</U></STRONG><U> (<STRONG>GRAND MAGUS</STRONG>)</U>:</P>
+<P>10. <STRONG>PAUL GILBERT</STRONG> - Fuzz Universe<BR>09. <STRONG>JOHN NORUM</STRONG> - Play Yard Blues<BR>08. <STRONG>CATHEDRAL</STRONG> - The Guessing Game<BR>07. <STRONG>DARKTHRONE</STRONG> - Circle The Wagons<BR>06. <STRONG>WITCHERY</STRONG> - Witchkrieg<BR>05. <STRONG>SPIRITUAL</STRONG> <STRONG>BEGGARS</STRONG> - Return To Zero<BR>04. <STRONG>WATAIN</STRONG> - Lawless Darkness<BR>03. <STRONG>NECRONAUT</STRONG> - Necronaut<BR>02. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>01. <STRONG>UNLEASHED</STRONG> - As Yggdrasil Trembles</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17985.jpg" width=180 height=180><U>Steven Wilson</U></STRONG><U> (<STRONG>PORCUPINE TREE</STRONG>)</U>:</P>
+<P>10. <STRONG>MASSIVE ATTACK</STRONG> - Heligoland<BR>09. <STRONG>NECRO</STRONG> <STRONG>DEATHMORT</STRONG> - This Beat is Necrotronic<BR>08. <STRONG>OCEANSIZE</STRONG> - Self Preserved While the Bodies Float Up<BR>07. <STRONG>SALEM</STRONG> - King Night<BR>06. <STRONG>CHROME HOOF</STRONG> - Crush Depth<BR>05. <STRONG>LCD</STRONG> <STRONG>SOUNDSYSTEM</STRONG> - This is Happening<BR>04. <STRONG>ORGANUM</STRONG> - Sorow<BR>03. <STRONG>FOALS</STRONG> - Total Life Forever<BR>02. <STRONG>HANS ZIMMER</STRONG> - Inception Soundtrack <BR>01. <STRONG>SHEARWATER</STRONG> - The Golden Archipeligo</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17986.jpg" width=180 height=180><U>Matt Heafy</U></STRONG><U> (<STRONG>TRIVIUM</STRONG>)</U>:</P>
+<P>10. <STRONG>RATATAT</STRONG> - LP4<BR>09. <STRONG>VAMPIRE WEEKEND</STRONG> - Contra<BR>08. <STRONG>ANIMALS AS LEADERS</STRONG>&nbsp;- Wave Of Babies<BR>07. <STRONG>AS I LASY DYING</STRONG> - The Powerless Rise<BR>06. <STRONG>A DAY TO REMEMBER</STRONG> - What Separates Me From You<BR>05. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare<BR>04. <STRONG>MY CHEMICAL ROMANCE</STRONG> - Danger Days...<BR>03. <STRONG>STONE SOUR</STRONG> - Audio Secrecy<BR>02. <STRONG>BLIND GUARDIAN</STRONG> - At The Edge Of Time <BR>01. <STRONG>TIMES OF GRACE</STRONG> - The Hymn Of A Broken Man</P>
+Автор: Headcrusher
+
+### 27.05.2011 news OPETH назвали альбом
+
+<P>Шведы <STRONG>OPETH</STRONG> назвали свой десятый альбом <STRONG>"Heritage". </STRONG>Пластинка выйдет в сентябре на <STRONG>Roadrunner</STRONG>. Альбом был записан в<STRONG> Atlantis Studios</STRONG> в Стокгольме, его сведением занимались <STRONG>Steven Wilson</STRONG> (<B>PORCUPINE TREE</B>) и вокалист группы <STRONG>Mikael &#197;kerfeldt</STRONG>. Сами музыканты характеризуют новую работу одним словом - "хорошая". Трек-лист:</P>
+<P>01. <B>Heritage</B> <BR>02. <B>The Devil's Orchard</B><BR>03. <B>I Feel The Dark</B><BR>04. <B>Slither</B> <BR>05. <B>Nepenthe</B><BR>06. <B>Haxprocess</B> <BR>07. <B>Famine</B> <BR>08. <B>The Lines In My Hand</B> <BR>09. <B>Folklore</B> <BR>10. <B>Marrow Of The Earth</B></P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2011.05/19526.jpg" width=327 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.07.2011 news Лимитированные издание нового OPETH
+
+<P>Новый альбом <STRONG>OPETH "Heritage"</STRONG> выходит 19 сентября на <STRONG>Roadrunner Records</STRONG>. Лэйбл уточнил детали лимитированных изданий этого альбома. Кроме оригинального 1CD издания, будет доступен CD/DVD с двумя бонусами и альбомом в формате 5.1. Также будет доступен специальный набор для коллекционеров: CD/DVD, двйной винил, семидюймовка с двумя бонусами, расширенный буклет и цифровая версия альбома за день до мирового релиза.</P>
+<P><center><IMG height=326 src="/images/news_rus/2011.07/20345.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 14.08.2011 news Концертник OPETH
+
+<P><IMG height=485 alt="" hspace=0 src="/images/news_rus/2011.08/20584.jpg" width=475 align=right border=0>Сентябрьский выпуск немецкого журнала Rock Hard будет содержать эксклюзивный компакт-дис с концертным альбомом OPETH <STRONG>The Devil's Orchard - Live At Rock Hard Festival", </STRONG>который не будет продаваться в магазинах как отдельный CD. 50-минутное выступление, состоявшееся в немецком Гельзенкирхене в 2009 году. Также на диск попадёт сингл <STRONG>"The Devil's Orchard", </STRONG>первая проба нового альбома шведской группы <STRONG>"Heritage"</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <B>Heir Apparent</B> <BR>02. <B>Ghost Of Perdition</B><BR>03. <B>The Leper Affinity</B><BR>04. <B>Hessian Peel</B> <BR>05. <B>Deliverance</B></P>
+<P><STRONG>"Heritage" </STRONG>выйдет 20 сентября на<STRONG> Roadrunner</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.09.2011 news Новый клип OPETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-ролик на песню с нового альбома <STRONG>OPETH "Devil's Orchad" </STRONG>можно посмотреть ниже. "<STRONG>Heritage</STRONG>" вышел 20 сентября на<STRONG> Roadrunner</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<p><CENTER><iframe src="http://player.vimeo.com/video/29445535?portrait=0" width="480" height="270" frameborder="0" webkitAllowFullScreen allowFullScreen></iframe>
+</CENTER>
+Автор: Vit Belov
+
+### 17.06.2016 news OPETH на Nuclear Blast
+
+<p><strong>OPETH</strong> заключили контракт с<strong> Nuclear Blast</strong>. Новый альбом "<strong>Sorceress</strong>" выйдет на лэйбле музыкантов <strong>Moderbolaget Records</strong> и будет распространяться немецким гигантом.</p><p>Группа сейчас в студии с продюсером <strong>Tom Dalgety</strong>, где заканчивает запись.</p><p><center><img width="735" height="490" src="/images/news_rus/2016.06/29373.jpg" border="0">&nbsp;</p>
+Автор: Vit Belov
+
+### 17.06.2016 news OPETH sigh with Nuclear Blast
+
+<p><strong>OPETH</strong> has signed a contract with <strong>Nuclear Blast</strong>. New album "<strong>Sorceress</strong>" will be released on the label of musicians <strong>Moderbolaget Records</strong> and will be distributed by the German giant.</p><p>The band are currently in the studio with producer<strong> Tom Dalgety</strong>.</p><p><center><img width="735" height="490" src="/images/news_rus/2016.06/29373.jpg" border="0">&nbsp;<p></p></center>
+Автор: Vit Belov
+
+### 19.07.2016 news Новый альбом OPETH выйдет 30 сентября
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">В этом году выходит новый альбом<strong> OPETH</strong>. Одна из самых бесстрашных и экспериментальных групп в тяжёлом метале объявила датой выхода новой работы "<strong>Sorceress</strong>" 30 сентября. Коллектив выложил в сеть обложку и трек-лист этого альбома.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Двенадцатый альбом коллектива стал первым для <strong>Nuclear Blast</strong>. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>Mikael Akerfeldt</strong>: "<em>Новый альбом "Sorceress" станет нашим двенадцатым за всю историю существования с 1990 года. Мне тяжело себе представить, что мы существуем уже 26 лет, создали 12 альбомов, которыми я очень горжусь. "Soreceress" не исключение. Я люблю этот альбом, равно как и вся группа. Я написал всю музыку за 5-6 месяцев, но в&nbsp;Rockfield Studio в Уэльсе&nbsp;мы провели только 12 дней. Мне кажется, очередной раз мы сделали шаг вперёд. Или назад, или вбок... В общем, новый альбом отличается от предыдущего. Он очень разнообразен. И если вам нужно моё мнение, он очень хорош. Мне кажется правильным утверждать, что лучше меня никто на планете не знает эту группу. Также я всегда пытаюсь слушать наши альбомы не как музыкант, а как фэн. Этот сейчас мой любимый. Конечно, так ведь и должно быть? Он одинаково свежий и старый, прогрессивный и старомодный, тяжёлый и спокойный. Такой, какой мы любим. Надеюсь, будут ещё люди по всему миру, разделяющие это мнение. Мы&nbsp;получили удовольствие, записывая его</em>"</font><font color="#ffffff" style="background-color: rgb(0, 0, 0);">.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Студия <strong>Rockfield </strong>в Уэльсе также была домом для классических записей QUEEN, RUSH и JUDAS PRIEST. Там же&nbsp;OPETH записывали предыдущий альбом "Pale Communion". </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">В ноябре группа отправится в тур по Европе.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>1. Persephone<br>2. Sorceress<br>3. The Wilde Flowers<br>4. Will O The Wisp<br>5. Chrysalis<br>6. Sorceress 2<br>7. The Seventh Sojourn<br>8. Strange Brew<br>9. A Fleeting Glance<br>10. Era<br>11. Persephone (Slight Return)&nbsp;</p><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.07/29616.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.07.2016 news OPETH - to release 12th studio album »Sorceress« on September 30th!
+
+<p>2016 marks the monumental return of one of heavy rock’s most unique, revered and fearless bands of the last three decades, <strong>OPETH</strong>. Over the years, the experimental, prog veterans have continuously reinvented themselves, pushing the boundaries of their craft and expectations of fans and critics alike. Today, OPETH announces their 12th album, »<strong>Sorceress</strong>«, will be released on September 30th and have unveiled the artwork and track list for their imminent masterpiece.</p><p>OPETH’s new album, »Sorceress«, their first for<strong> Nuclear Blast</strong> via the band’s imprint label <strong>Moderbolaget Records</strong>, is proof chief architect<strong> Mikael Еkerfeldt</strong> has a near-endless well of greatness inside. From the album’s opener '<strong>Persephone</strong>' to <strong>'The Wilde Flowers'</strong> and <strong>'Strange Brew'</strong> to the album’s counterpart title tracks <strong>'Sorceress'</strong> and <strong>'Sorceress II'</strong>, OPETH’s twelfth full-length is an unparalleled adventure, where visions cleverly and secretly change, colors mute as if weathered by time, and sounds challenge profoundly.</p><p><em>”The new album »Sorceress« is our 12th studio album since our beginnings in 1990,” says Еkerfeldt. “I find it difficult to understand that we’ve been going on for 26 years, let alone that we’ve made 12 records now, all of which I am very proud of. ”Sorceress” is no exception. I love this album, as does the whole band. I wrote the music during 5-6 months and we spent only 12 days recording it at Rockfield studios in Wales. I find that once again we’ve taken a step forward. Or sideways, Or backwards. Somewhere!? It’s different! It’s extremely diverse. And if I may say so myself, extremely good. I feel the right to say that since I like to think I know this band better than anyone on the planet. Also, I always manage to detach myself from the record and listen as a fan. It’s a fine little record. My favorite in our discography right now. Of course. That’s how it should be, right? It’s both fresh and old, both progressive and rehashed. Heavy and calm. Just the way we like it. Hopefully there’ll be others around the globe sharing this opinion. It was a joy to make it. A fucking joy to record it, and a sheer joy listening to it. So there you have it!”</em></p><p>For »Sorceress«, OPETH returned to <strong>Rockfield Studios</strong> in Wales, also home to pivotal releases from Queen, Rush and Judas Priest, where the Swedes had tracked »Pale Communion« in 2014 with Tom Dalgety. The band spent 12 days recording at the countryside venue among its serene and inspiring surroundings. The result is nothing short of a powerful and intriguing record that will add yet another layer to the band’s celebrated career.</p><p>OPETH will return to Europe this November for a spectacular headline tour.</p><p>»Sorceress« Track List:<br>1. Persephone<br>2. Sorceress<br>3. The Wilde Flowers<br>4. Will O The Wisp<br>5. Chrysalis<br>6. Sorceress 2<br>7. The Seventh Sojourn<br>8. Strange Brew<br>9. A Fleeting Glance<br>10. Era<br>11. Persephone (Slight Return)</p><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.07/29616.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 01.08.2016 news Новый сингл OPETH
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Как уже сообщалось, двенадцатый альбом<strong> OPETH "Sorceress"</strong> выйдет 30 сентября на<strong> Nuclear Blast</strong>. Группа опубликовала на сайте журнала <strong>Rolling Stones</strong> заглавный трек с этого альбома.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="580" height="326" src="https://www.youtube.com/embed/LhqijfqecvA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 01.08.2016 news OPETH - reveal title track &#39;Sorceress&#39; from upcoming album at rollingstone.com!
+
+<p>As the heavy-rock and metal scenes brace for one of the year’s most anticipated albums, experimental prog pioneers <strong>OPETH</strong> has declared the wait is over. Today, the band has partnered with <strong>RollingStone.com</strong> to unveil the first new song and title track, '<strong>Sorceress</strong>', from their upcoming, 12th studio album that’s due out on September 30th via the band’s imprint label <strong>Moderbolaget Records</strong> with <strong>Nuclear Blast Entertainment</strong>.</p><p>&nbsp;<center><iframe width="580" height="326" src="https://www.youtube.com/embed/LhqijfqecvA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 05.09.2016 news OPETH выложили второй сингл
+
+<p>Вторым синглом с нового альбома<strong> OPETH "Sorceress"</strong> стала вещь "<strong>Will O The Wisp</strong>". Её можно услышать в лирик-видео ниже. Новый альбом выйдет 30 сентября на <strong>Nuclear Blast</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Kfpnwk-DXrA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 05.09.2016 news OPETH released second single
+
+<p>The second single from the new album <strong>OPETH "Sorceress"</strong> became a track "<strong>Will O The Wisp</strong>". It can be heard in a lyric video below. The new album will be released September 30 via <strong>Nuclear Blast</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Kfpnwk-DXrA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.09.2016 news Третий сингл OPETH
+
+<p>Новый альбом<strong> OPETH "Sorceress"</strong> выходит 30 сентября на <strong>Nuclear Blast</strong>. Третий сингл с этой работы "<strong>The Wilde Flowers</strong>" можно послушать ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/O9vA6dJJX-8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.09.2016 news OPETH released third single
+
+<p>Sweden’s musical alchemists,<strong> OPETH</strong>, have premiered a new song called <strong>'The Wilde Flowers'</strong> today. The track is featured on the band’s highly anticipated, 12th studio album, »<strong>Sorceress</strong>«, which is scheduled for release on September 30th via the band’s imprint label <strong>Moderbolaget Records</strong> with <strong>Nuclear Blast</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/O9vA6dJJX-8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Opeth

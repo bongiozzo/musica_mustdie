@@ -47,6 +47,19 @@ Inexorable
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2011 news Новый клип CROWN THE LOST
+
+<P>Новый видео-клип трешеров <STRONG>CROWN THE LOST</STRONG> на песню <STRONG>'Separate Blood From Waste'</STRONG> можно посмотреть ниже. Трек взят с новейшей пластинки коллектива "<STRONG>Cold Pestilent Hope</STRONG>", которая вышла вчера на <STRONG>Gas Can Music</STRONG>. Новая работа коллектива представляет новых музыкантов вокалиста<STRONG> Leon Mallah</STRONG>,&nbsp;басиста <STRONG>Timothy Boyle</STRONG> и барабанщика<STRONG> Argel Marchelletta</STRONG>. Продюсером пластинки выступил<STRONG> Dave Watson (MANTIC RITUAL, ICARUS WITCH)</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/pJhQ17obN7U?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/pJhQ17obN7U?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

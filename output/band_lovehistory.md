@@ -56,6 +56,27 @@ Cover artwork by Roman.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2000 reviews Старый материал звучащий по-новому
+
+<p>Старый материал звучащий по-новому. Прежде, чем официально выйти, этот материал находился в подвешенном состоянии более трех лет. Такое надо было выпускать сразу! В 1996-1997 годах этот альбом был бы бомбой. Этот шедевр уже собрал бы много денег. Потрясающий сознание альбом. Атмосферный супермелодичный death-doom metal с радующими слух гроулингом и превосходными синтезаторными миксами. Частые меланхолично-акустические инструментальные вставки создают готическую атмосферу. Настойчивые и смелые часто переплетающиеся гитарные риффы придают красоту и торжественность общему музыкальному настроению альбома.Очень сильная работа чешских музыкантов, учитывая что это их дебютная работа (если не считать вышедшего в 1996 году мини-альбома). Актуальная и интересная даже в сегодняшний день.</p>
+
+Автор: Dimas
+
+### 27.08.2000 reviews Aged stuff sounding in a new fashion
+
+<p>Aged stuff sounding in a new fashion. Before officially to leave, this stuff was in the hanged condition more than three years. Such was necessary to let out at once! In 1996-1997 years this album would be a bomb. This masterpiece already would collect many money. An album, startling consciousness. Atmospheric supermelodious death-doom metal with pleasing audition grawls and topping synthesizers mix. The often melancholic - acoustic instrument inserts create Gothic atmosphere. Persevering and courageous often interlaced guitar rhyphs give beauty and solemnity to general musical mood of an album. Very strong activity of the Czech musicians, allowing what is it their debut activity (short of the mini-album, which has issued in 1996,). Actual and interesting even per today.</p>
+
+Автор: Dimas
+
+### 27.10.2000 news Love History выпускают новый альбом
+
+<p>Официальная дата выхода нового альбома под названием "Anasazi" назначена на седьмое ноября. Это будет первый релиз группы на ee новом лейбле The End Records. Стилевое направление "Anasazi" предварительно описывается как "avant-garde progressive death metal".</p>
+
+Автор: Phantom Lord
+
+
 ## Обсуждения
 
 

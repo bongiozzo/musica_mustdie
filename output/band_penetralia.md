@@ -16,6 +16,21 @@ atmospheric black-metal
 * C группой "Midnattsol" Daniel Droste
 * C группой "Ahab" Daniel Droste
 
+## Публикации
+
+### 07.07.2000 reviews Этот альбом - яркий пример того, как всего лишь один инструмент может повлиять на звучание альбома в целом
+
+<p>Этот альбом - яркий пример того, как всего лишь один инструмент может повлиять на звучание альбома в целом. Честно говоря, эта немецкая black-metal группа меня несколько разочаровала. Их предыдущий альбом звучал интереснее и имел гораздо больше музыкальных находок. "Seelenkrank" же - довольно безликий альбом, с однородными и монотонными гитарными партиями, совершенно немелодичный. Единственное, что его спасает, это партии клавишных. Именно они являются ведущим инструментом. Они создают атмосферу и придают музыке мелодичный настрой. В принципе, довольно интересно послушать такое сочетание мелодичных клавиш и отмороженных гитар, но явно не многим такое способно понравиться.</p>
+
+Автор: Dimas
+
+### 07.07.2000 reviews This album - vivid example, how only one tool can influence sounding of an album as a whole
+
+<p>This album - vivid example, how only one tool can influence sounding of an album as a whole. To tell the truth, this german black-metal group has disappointed me a little. Their previous album sounded more interestingly and had much more than musical finds. "Seelenkrank" - rather featureless album, with homogeneous and monotonic guitar crews, completely not melodious. Alone, that salvages it, it is crews keyboard. They are the leading tool. They create atmosphere and give to music melodious customize. Basically, such combination of melodious keys and frost-bitten guitars is rather interesting to listen, but such is obvious not much is capable to like.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

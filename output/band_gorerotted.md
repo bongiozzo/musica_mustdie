@@ -42,6 +42,64 @@ JUNKY JON (aka Rushy Insane) - Skunk And Skins - (drums)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.07.2003 news GOREROTTED на Metal Blade Records
+
+<p>Дэтграйндеры GOREROTTED заключили контракт с рекорд-лейблом Metal Blade Records. По словам Metal Blade: "Группа привлекла наше внимание еще на фестивале брутальной музыки "Fuck The Commerce". Они были чертовски мощны и стали самой лучшей командой на всем фестивале. Их дебютный альбом "Mutilated In Minutes" оказался на редкость хорошим творением в стиле gore-grind-death. У этих ребят отличный имидж, а их музыка просто феноменальна. Для нашего лейбла это большая честь, и мы очень рады, что они решили заключить контракт именно с нашим лейблом." Сама группа просто на седьмом небе от счастья. Гитарист Fluffy говорит: "Это чертовски здорово записываться на том же лейбле, на котором когда-то записывались команды, на которых мы росли и от которых мы брали вдохновение." Второй альбом дэтграйндеров "Only Tools And Corpses" уже на финальной стадии записи и должен выйти в ноябре текущего года. Альбом обещается содержать девять композиций, содержащих огромное количество крови и зверской брутальности.</p>
+
+Автор: Darkfall
+
+### 18.09.2003 news GOREROTTED will tour Europe together with PUNGENT STENCH...
+
+On November 3rd Metal Blade Records Europe will release the second album from the European masters of gore, the almighty GOREROTTED! "Only Tools And Corpses" will be a total blast of infernal death detal mixed with grindcore and over-the-top lyrics. Be prepared for a metal tornado! <br><br>
+
+To support "Only Tools And Corpses", GOREROTTED will tour Europe together with PUNGENT STENCH. These are the confirmed dates:<br><br>
+
+19. November 2003 t.b.a. - t.b.a., Austria or Germany<br>
+20. November 2003 Rockfabrik - Ludwigsburg, Germany<br>
+21. November 2003 Forellenhof - Salzgitter, Germany<br>
+22. November 2003 Burgerweeshuis - Deventer, Holland<br>
+23. November 2003 Effenaar - Eindhoven, Holland<br>
+24. November 2003 The Electrowerkz - London, England<br>
+25. November 2003 Bahndamm - Wermelskirchen, Germany<br>
+26. November 2003 Marx - Hamburg, Germany<br>
+27. November 2003 Easy Schorre - Halle, Germany<br>
+28. November 2003 East Club - Bischofswerda, Germany<br>
+29. November 2003 Arena - Wien, Austria
+Автор: Yermola
+
+### 29.09.2003 news GOREROTTED закончили запись нового альбома
+
+3 ноября на <B>Metal Blade Records</B> cостоится релиз второго альбома грайндкорщиков <B>GOREROTTED "Only Tools And Corpses"</B>. Для поддержки материала нового альбома группа отправится в турне по Европе вместе с пресловутыми <B>PUNGENT STENCH</B>.
+Автор: Darkfall
+
+### 19.11.2003 news Обновление официального сайта GOREROTTED
+
+<P>Уже завершена работа над модернизацией официального веб-сайта английских брутальщиков <B>GOREROTTED</B>. Загляните на <B>http://www.gorerotted.com</B>.</P>
+Автор: Darkfall
+
+### 25.08.2004 news Изменения состава в GOREROTTED
+
+<P>Brutal death metal секстет <STRONG>GOREROTTED</STRONG> лишился одного из двух своих вокалистов <STRONG>Mr. Gore</STRONG>. Группа продолжит свое турне впятером, а вокальные партии для скриминга будут исполняться гроул-вокалистом <STRONG>Goreskin</STRONG> и басистом <STRONG>Wilson</STRONG>, пока не будет найдена замена. Слова солиста <STRONG>Goreskin</STRONG>: <EM>"Уход Mr. Gore для группы огромная потеря. Он является основателем проекта, и именно он вдохновил меня на работу над вокалом вместе с ним. Его уход был по обоюдному согласию обеих сторон. Но нет худа без добра: когда он уходил, у нас было такое ощущение, словно, мы выпускаем зверя из клекти в его привычную дикую стихию".</EM></P>
+<P>&nbsp;</P>
+Автор: Darkfall
+
+### 12.02.2005 reviews У-у-у, паталогоанатомия! Изучи её до конца
+
+<P>If you want blood...you've got it!</P>
+<P>Когда-то именно так пел Бон Скотт. Перефразируя легенду мирового рока, можно сказать:"If you want blood and gore...you've got it!"</P>
+<P>GOREROTTED подписались на Metal Blade и, благодаря этому, мы имеем лицензию второго альбома от этих выходцев с Туманного Альбиона. В группе шесть участников, включая аж двух вокалистов. Почти все лысые, черти. И валят джентельмены брутальный дэт, без тени смущения заимствуя всё лучшее у классиков жанра. Рецепт у ребят простой. Возмите брутальность CANNIBAL CORPSE времён Барнса, смешайте с безумием CRYPTOPSY и добавьте наследие легендарной ливерпульской четвёрки, нет-нет, я имею ввиду не BEATLES, а паталогоанатомов из CARCASS. Всё это заправить кроваво-тошнотворной лирикой и блюдо готово. Подавать к столу в холодном виде.</P>
+<P>"Are you ready to rock'n'roll?"-спрашивает нас в начале альбома небезызвестный Хранитель Склепа. "Конечно"-отвечаем мы. И получаем порцию задорного и весёлого дэта.</P>
+<P>Диск Предоставлен <A href="http://www.fono.ru/">ФОНО</A></P>
+Автор: Graver
+
+### 14.03.2006 news Определились участники фестиваля Neurotic Deathfest
+
+<P>Определились участники фестиваля <B>Neurotic Deathfest</B>, который пройдет 13 мая в голландском городе Эйндховен. Ранее фестиваль был известен под названием <B>Rotterdam Deathfest</B>, но в этом году его было решено провести в другом городе. На двух сценах выступят 15 дэт-металических команд, а посетители смогут также облегчить свои кошельки на большом "металическом рынке". Вот кто будет развлекать зрителей: шведы <B>ANATA</B>, британцы <B>GOREROTTED</B> и <B>SARPANITUM</B>, австрийцы <B>PSYCROPTIC</B>, испанцы <B>AVULSED</B>, голландцы <B>DISAVOWED</B>, <B>ARSEBREED</B> и&nbsp;<B>PROSTITUTE DISFIGUREMENT</B>, американцы <B>INSIDIOUS DECREPANCY</B>, японцы <B>INFECTED MALIGNITY</B>, словаки <B>SANATORIUM</B>, чехи <B>GODLESS TRUTH</B>, итальянцы <B>VOMIT THE SOUL</B>,&nbsp;бразильцы <B>MENTAL HORROR</B> и бельгийцы <B>EMETH</B>.</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2010 news Дебютный альбом FRIGHT NIGHT
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.02/16129.jpg" width=400 align=right border=5>01.02.2010 лэйбл <STRONG>Jetnoise records</STRONG> выпустил дебютный альбом московской группы <STRONG>FRIGHT NIGHT "The Play Of Pain".</STRONG> По сообщению в пресс-релизе, стиль группы варьируется от энергичного oldschool gothic до романтичного, нетяжелого gothic metal в духе <STRONG>SCREAM SILENCE</STRONG> и<STRONG> DREADFUL SHADOWS</STRONG>. Также в альбом включена кавер-версия на песню "<STRONG>Rainbow Demon</STRONG>" британской группы<STRONG> URIAH HEEP</STRONG>. </P>
+<P>Пресс-релиз:</P>
+<P>"<EM>Стильные англоязычные тексты сочетаются с мелодичностью и драматизмом музыки, выраженном в красивейших клавишных партиях. Глубокий, низкий мужской вокал дополняет лёгкий и меланхоличный женский. Музыканты удачно соединили мрачную тематику песен с драйвом, романтику - с агрессией. Всё это делает данный альбом действительно значимым, ярким явлением на российской тёмной сцене</EM>".</P>
+<P>Сайт группы: <A href="http://www.frightnight.ru/">http://www.frightnight.ru/</A></P>
+Автор: Vit Belov
+
+### 05.11.2010 news Видео от FRIGHT NIGHT
+
+<P>Московская готик-рок группа <STRONG>FRIGHT NIGHT</STRONG> представляет свой видеоклип на песню&nbsp;"<STRONG>The Blood</STRONG>". Эта песня вошла в дебютный альбом группы "<STRONG>The Play Of Pain</STRONG>",&nbsp;который был издан в феврале 2010 года на<STRONG> Jetnoise records</STRONG>. Режиссер клипа -&nbsp;&nbsp;<STRONG>Юлия Сергеева</STRONG>, оператор - <STRONG>Михаил Блинцов</STRONG>, над монтажом работал <STRONG>Владимир&nbsp;Непевный</STRONG>.&nbsp;Видео уже поступило в ротацию интернет-канала Female Metal tv.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/6s630rR9uVw?fs=1&hl=ru_RU"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed  src="http://www.youtube.com/v/6s630rR9uVw?fs=1&hl=ru_RU"
+  type="application/x-shockwave-flash" allowscriptaccess="always"
+  allowfullscreen="true" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

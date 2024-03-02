@@ -75,6 +75,26 @@ Casey Grillo - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.11.2009 news Новый сольник Ian Parry
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист<STRONG> ELEGY Ian Parry</STRONG> начинает работу над пятой частью своего проекта<STRONG> CONSORTIUM PROJECT</STRONG> <STRONG>"Species"</STRONG>. Это часть станет заключительной. В записи ему помогут барабанщик <STRONG>KAMELOT</STRONG> <STRONG>Casey Grillo, </STRONG>гитарист<STRONG> INFINITY OVERTURE</STRONG> <STRONG>Niels Vejlyt </STRONG>и басист <STRONG>DAWN OF DESTINY</STRONG> <STRONG>Jens Faber</STRONG>. На альбоме появятся две новые вокалистки: певица из Болгарии <STRONG>Anna Lozanova </STRONG>и gothic-metal дива <STRONG>Lene Petersen</STRONG> (<B>INFINITY OVERTURE</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Работу над альбомом<STRONG> Ian</STRONG> планирует закончить в середине следующего года.</FONT></P>
+Автор: Vit Belov
+
+### 05.07.2011 news Пятый альбом CONSORTIUM PROJECT от Ian Parry
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>ELEGY Ian Parry</STRONG> выпускает пятый альбом своего фантастического проекта <STRONG>CONSORTIUM PROJECT</STRONG> <STRONG>"Species" </STRONG>15 июля на <STRONG>Lion Music</STRONG>. Музыкант обещает нам лучший вариант gothic-power-metal. Что это такое в его понимании, мы узнаем уже совсем скоро. Как и в прошлые разы, Ian призвал под свои знамёна полчища известных музыкантов - это гитаристы <B itxtHarvested="0" itxtNodeId="77">Stephan Lill</B> (<B itxtHarvested="0" itxtNodeId="76">VANDEN PLAS</B>), <B itxtHarvested="0" itxtNodeId="75">Niels Vejlyt</B> (<B itxtHarvested="0" itxtNodeId="74">INFINITY OVERTURE</B>)&nbsp;и <B itxtHarvested="0" itxtNodeId="73">Veith Offenbacher</B> (<B itxtHarvested="0" itxtNodeId="72">DAWN OF DESTINY</B>),&nbsp;басисты <B itxtHarvested="0" itxtNodeId="71">Kris Gildenlow</B> (<B itxtHarvested="0" itxtNodeId="70">PAIN OF SALVATION</B>)&nbsp;и <B itxtHarvested="0" itxtNodeId="69">Jens Faber</B> (<B itxtHarvested="0" itxtNodeId="68">DAWN OF DESTINY</B>), барабанщик&nbsp;<B itxtHarvested="0" itxtNodeId="67">Casey Grillo</B> (<B itxtHarvested="0" itxtNodeId="66">KAMELOT</B>). Также в<STRONG> CONSORTIUM PROJECT</STRONG> есть и новые имена: вокалистки <STRONG>Lene Petersen</STRONG> и <B itxtHarvested="0" itxtNodeId="64">Ani Lozanova</B> (<B itxtHarvested="0" itxtNodeId="63">ANI LOZANOVA PROJECT</B>), а также клавишники&nbsp;<B itxtHarvested="0" itxtNodeId="62">Kalin Jechev</B> (<B itxtHarvested="0" itxtNodeId="61">ANI LOZANOVA PROJECT</B>)&nbsp;и <B itxtHarvested="0" itxtNodeId="60">Peter-Jan Kleevens</B>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtHarvested="0" itxtNodeId="38">Epilogue</B> (storyteller)<BR itxtNodeId="37">02. <B itxtHarvested="0" itxtNodeId="36">Life On Earth</B><BR itxtNodeId="35">03. <B itxtHarvested="0" itxtNodeId="34">Origins Of Mankind</B><BR itxtNodeId="33">04. <B itxtHarvested="0" itxtNodeId="32">The Worst Has Yet To Come</B><BR itxtNodeId="31">05. <B itxtHarvested="0" itxtNodeId="30">An Untold Message</B><BR itxtNodeId="29">06. <B itxtHarvested="0" itxtNodeId="28">To The Earth And Back</B><BR itxtNodeId="27">07. <B itxtHarvested="0" itxtNodeId="26">Sirens</B><BR itxtNodeId="25">08. <B itxtHarvested="0" itxtNodeId="24">Pitch Black</B><BR itxtNodeId="23">09. <B itxtHarvested="0" itxtNodeId="22">Silence Calling</B><BR itxtNodeId="21">10. <B itxtHarvested="0" itxtNodeId="20">Species</B><BR itxtNodeId="19">11. <B itxtHarvested="0" itxtNodeId="18">Enemy Within</B><BR itxtNodeId="17">12. <B itxtHarvested="0" itxtNodeId="16">Oracle</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR itxtNodeId="59">
+<CENTER>
+<OBJECT height=81 width="100%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F17735626&"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F17735626&" type="application/x-shockwave-flash" width="70%"></embed></OBJECT></FONT></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

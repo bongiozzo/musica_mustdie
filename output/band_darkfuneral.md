@@ -203,6 +203,345 @@ Recorded at the Dugout Studios in Uppsala.
 * C группой "Defleshed" Matte Modin (drums)
 * C группой "Firespawn" Matte Modin (drums)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новости от Тома Ангелриппера из SODOM. Его соло проект сменил название на ONKEL TOM и выпустит новый альбом в феврале-марте, который будет называться "Ein Strauss Bunter Melodien". А новый альбом SODOM в середине мая, как бонус к нему появится трибьют к группе, на котором засветятся CRADLE OF FILTH, VADER, BRUTAL TRUTH, DARK FUNERAL и другие.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Новый альбом Sodom будет называться "Code Red" и выйдет 17 мая. На альбоме будет 12 песен плюс бонус-кавер на песню Accept "I'm a Rebel". В паре с этим альбомом выйдет трибьют к самой группе "Homage To The Gods". На работе засветятся Cradle Of Filth, Impaled Nazarene, Dark Funeral, Atanatos, Enthroned, Brutal Truth и другие.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Dark Funeral записали в знаменитой студии Abyss четыре кавера на песни Sodom, Slayer, King Diamond и Mayhem. Команда работала с продюсером Томми Тагтгреном, братом знаменитого Питера. Эти кавера увидят (-или) свет в этом году на сборниках, посвящённых вышеперечисленным великим группам.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Объявлено о новой группе Dominion Caligula, в состав которой войдут члены Dark Funeral и Hypocrisy. Это Эмперор Магус Калигула (DF), Доминион (DF), Гаанфауст (DF) и Микаэль Хедлунд (Hypocrisy).</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Новый миньон Dark Funeral "Teach Children To Worship Satan" выйдет в феврале и будет содержать одну новую песню и четыре кавера, Mayhem, Slayer, King Diamond и Sodom.</p>
+
+Автор: Vit Belov
+
+### 26.06.2000 news Dark Funeral Look Out for a new drummer
+
+<p>Dark Funeral are currently looking for a new permanent "DRUMMER". If you have the skills, the right attitude and are interested to try out for the band. You should contact them directly at darkfuneral@chello.se or at the bands official PO Box address. The band are confirmed for 4 festivals this summer; WIth Full Force Festival, June 23 (DE), Silesia II (CZH), july 14, Dist 2000, July 21-22 (SE) and Wacken Open air (DE), August 4th. See the full version of Dark Funeral live video on their new song "An Apprentice Of Satan" at SufferMag.com.</p>
+
+Автор: Vit Belov
+
+### 30.06.2000 news Dark Funeral ищут нового постоянного барабанщика.
+
+<p>dark Funeral ищут барабанщика, если Вы чувствуете в себе силы обращайтесь на E-mail группы darkfuneral@chelo.se Из остальных новостей, группа выступит на четырёх фестах в Европе этим летом.</p>
+
+Автор: Vit Belov
+
+### 30.06.2000 news Новый трибьют King Diamond
+
+<p>Necropolis Records планирует к выпуску трибьют King Diamond. Вот некоторые песни и исполнители: DARK FUNERAL - 'The Trial', DAMNATION - 'Mansion In Darkness', IN AETERNUM - 'Abigail', USURPER - 'Charon', EXHUMED - 'No Presents For Christmas', AURORA - 'Eastman's Cure', DESTINY'S END - 'Dressed In White', ANCIENT - 'Halloween', FALLEN EMPIRE - 'The Exorcist', ENTHRAL - 'The Portrait' and AGGRESSOR - 'Welcome Home'.</p>
+
+Автор: Vit Belov
+
+### 13.07.2000 news Новости от Dark Funeral.
+
+<p> Dark Funeral возвратились на родину после успешного выступления на With Full Force Festival в Лейпциге. Группа планирует этим летом отыграть ещё на трёх фестивалях, после чего они займутся репетицией материала для своего нового полноразмерного альбома. Они намереваются отправится в Abyss Studio в январе - феврале 2001 года. Группа все ещё ищет замену барабанщику. Пока не будет найден постоянный драммер, с группой будет работать сессионный музыкант Matte Modim (Defleshed).</p>
+
+Автор: Morsus
+
+### 13.07.2000 news News from Dark Funeral.
+
+<p> Dark Funeral have returned back home from their very successful show at the With Full Force Festival (Leipzig). The band have still 3 festivals to do this summer. After the band have completed these festivals dates they will lock themself in in the rehearsal room to write and complete a new full-length album. They are scheduled to enter the Abyss Studio mid January-mid February, 2001. The band still are looking for a replacement to Gaahnfaust (Drums). They will work with Matte Modim (Defleshed) as a session drummer, until a permanent drummer have been found.</p>
+
+Автор: Morsus
+
+### 27.07.2000 news Dark Funeral нашли себе драммера
+
+<p> Dark Funeral, похоже, окончательно решили проблемы с поиском барабанщика. Драммер Defleshed Матте Модин, недавно присоединившийся к Dark Funeral в качестве сессионного музыканта, весьма не плохо зарекомендовал себя за месяцы концертных выступлений, и теперь, скорее всего, надолго останется в постоянном составе группы. А пока группа приступила к сочинению материала для нового альбома и в январе 2001-го года отправится записывать его в Abyss Studios.</p>
+<p></p>
+
+Автор: Nybras
+
+### 27.10.2000 news Новый материал Dark Funeral
+
+<p>После ряда успешных выступлений на различных летних фестивалях Dark Funeral приступили к репетициям над новым материалом для нового полнометражного альбома. На середину января они запланировали поход в Abyss Studio чтобы записать свою третью (пока еще не названную) Сатанинскую Симфонию</p>
+
+Автор: Dimas
+
+### 27.10.2000 news Dark Funeral new album
+
+<p>After some very successful summer festival appearences, Dark Funeral are back in the rehearsal room working to complete the material for a new full-length album. Although Dark Funeral has still one more festival to play this summer, (namely Wacken Open Air on August 4th.) They are scheduled to enter the Abyss Studio mid January 2001 to record their yet untitled third (and long awaited) Satanic Symphony.</p>
+
+Автор: Dimas
+
+### 07.02.2001 news DIABOLIS INTERIUM
+
+<p>DARK FUNERAL entered (for a month) the Abyss Studio for recording their long awaited third full-length album "DIABOLIS INTERIUM" for No Fashion Records/MNW. Peter Tagtgren is working with the band as a producer, and not as on previous recordings, when he only have worked with the band as a sound engineer. The band says their new album will include lots of surprises, and is both technically, but also musically, a huge improvement from their previous musical works.</p>
+
+Автор: Yermola
+
+### 07.02.2001 news DIABOLIS INTERIUM
+
+<p>DARK FUNERAL на месяц засели в Abyss Studio для записи долгожданного полноформатника "DIABOLIS INTERIUM". Выпускающий лэйбл - No Fashion Records/MNW. Peter Tagtgren работает с командой в качестве продюссера, а не звукоинженера, как на предыдущих записях. По словам команды альбом будет содержать несколько сюрпризов и будет более технически и музыкально совершенен, по сравнению с предыдущими.</p>
+
+Автор: Yermola
+
+### 10.04.2001 news Мрачное погребение....
+
+<p>Шведы "DARK FUNERAL" опубликовали трек-лист своего третьего полноформатника: 01. The Arrival Of Satan’s Empire 02. Hail Murder 03. Goddess Of Sodomy 04. Diabolis Interium 05. An Apprentice Of Satan 06. Thus I Have Spoken 07. Armageddon Finally Comes 08. Heart Of Ice.</p>
+
+Автор: Yermola
+
+### 25.07.2001 news Новый альбом Dark Funeral
+
+<p>Dark Funeral выпустят новый альбом 24 сентября. Трэклист: 1) The Arrival Of Satan's Empire (3:47) 2) Hail Murder (5:02) 3) Goddess Of Sodomy (4:12) 4) Diabolis Interium (4:20) 5) An Apprentice Of Satan (6:05) 6) Thus I Have Spoken (4:59) 7) Armageddon Finally Comes (3:22) 8) Heart Of Ice (4:34) Записано всё с Питером Тагтгреном.</p>
+
+Автор: Vit Belov
+
+### 25.07.2001 news New album of Dark Funeral
+
+<p>Dark Funeral's new album will be out 24th of September in Europe. Track List: 1) The Arrival Of Satan's Empire (3:47) 2) Hail Murder (5:02) 3) Goddess Of Sodomy (4:12) 4) Diabolis Interium (4:20) 5) An Apprentice Of Satan (6:05) 6) Thus I Have Spoken (4:59) 7) Armageddon Finally Comes (3:22) 8) Heart Of Ice (4:34) Producer Peter Tagtgren.</p>
+
+Автор: Vit Belov
+
+### 07.12.2001 news Волчье Сообщество...
+
+<p>Нашумевший в свое время проект участников DARK FUNERAL, ACHERON, INCANTATION и THE ELECTRIC HELLFIRE CLUB - "WOLFEN SOCIETY" переиздает свой дебютный MCD "Conquer Divine". В Европе альбом выйдет в январе на "No Fashion Records", а в штатах тогда же через House Of Death Records. Из других новостей, команду по непонятным причинам оставили Thomas Thorn (клавиши) и Ricktor Ravenbruck (гитара). Новым клавишником стал Aaron Werner из ACHERON, гитарист пока не найден...</p>
+
+Автор: Yermola
+
+### 07.12.2001 news WOLFEN SOCIETY, the much-talked-about project...
+
+<p>WOLFEN SOCIETY, the much-talked-about project that in its early incarnation featured DARK FUNERAL’s Lord Ahriman, ACHERON’s Vincent Crowley, INCANTANTION’s Kyle Severn and THE ELECTRIC HELLFIRE CLUB’s Thomas Thorn & Ricktor Ravensbruck, will finally issue its debut MCD, entitled Conquer Divine, through No Fashion Records in Europe in January and House Of Death Records in the USA. In other news, Thomas Thorn (keyboards) and Ricktor Ravenbruck (guitars) have officially left the band for unspecified reasons, with Thorn having been replaced by ACHERON’s Aaron Werner and the group currently on the lookout for a new lead guitarist. <BR> <BR> In related news, after two long years of silence, ACHERON has returned with a brand new 7-inch release, entitled Xomaly, which is available through Italy’s Warlord Records (www.warlordrecords.com). The band also has a South American show scheduled for December 8th, 2001 in Caracas, Venezuela at Teatro Sala Cadafe with special guests STRATUZ and LEAVES.</p>
+
+Автор: Yermola
+
+### 11.07.2003 reviews Мрачные похороны. Акт третий
+
+<P>Шведам Dark Funeral уже в третий раз удалось доказать, что они являются одним из лучших современных исполнителей true black metal. Адская ярость вокала, небывалая скорость ударных и стена мощнейшего гитарного звука - все те качества, которые присущи лишь одному единственному стилю, сыгранному на этой планете - тру блэку. Правда, прошлый релиз квартета - 'Vobiscum Satanas' (1998) - мне понравился куда больше, но не потому что этот плох, а потому что тот был истинным шедевром. Но времена меняются, состав группы за три года тоже претерпел явные изменения - гитариста Thyphos и барабанщика Alzazmon заменили Dominion и Matte Modin соответственно. Помимо перемены состава, изменилось и звучание - ребята записывались на No Fashion и, по словам лидера группы Emperor Magus Caligula, примером хорошего звучания для них послужил альбом Rammstein 'Mutter' (2001). Представляете? И звук стал заметно лучше и качественнее. Это одно из достоинств альбома как блэкового. Что приятно еще, так это то, что высокоскоростные брутальные вещи разбавляются среднетемповыми. Например, после двух запоминающихся "The Arrival Of Satan's Empire" и "Hail Murder" идет медленная и атмосферная "Goddess Of Sodomy". Второй и последней медленной вещью на альбоме является "Heart Of Ice", заключающая альбом. А все остальное осталось неизменным, так что Dark Funeral не разочаровали меня нисколько, и все надежды, которые я на них возлагал, не оказались тщетными. И если вы любите в музыке бешеную скорость, адскую атмосферу и оголтелый сатанизм в лирике, то этот пластиковый блин для вас, господа. Скорее, пока этот альбом не попал в плохие руки!</P>
+Автор: Darkfall
+
+### 08.10.2003 news DARK FUNERAL выпустят концертник
+
+В конце лета - начале осени <B>DARK FUNERAL</B> проехались с концертами по Южной Америке. В течение этого тура были записаны несколько шоу. <B>Lord Ahriman</B> сообщил, что материала хватит на целых два полноценных альбома. В настоящий момент группа приступает к сведению первого. Вот его трэк-лист:<BR><B>01. The Arrival Of Satan's Empire<BR>02. An Apprentice Of Satan<BR>03. The Dawn No More Rises<BR>04. Thy Legions Come<BR>05. Hail Murder<BR>06. Goddess Of Sodomy<BR>07. The Secrets Of The Black Arts<BR>08. Vobiscum Satanas<BR>09. Shadows Over Transylvania<BR>10. Open The Gates<BR>11. Ineffable Kings Of Darkness<BR>12. Thus I Have Spoken<BR>14. My Dark Desires<BR>15. Armageddon Finally Comes</B><BR><B>DARK FUNERAL</B> официально расстались с лэйблом <B>No Fashion Records</B> и собираются найти новый, для выпуска концертного альбома (-ов).
+Автор: Vit Belov
+
+### 16.01.2004 news Dark Funeral MEXICAN TOUR 2004
+
+2004.02.11&nbsp; Toluca (Mexico)<BR>2004.02.12&nbsp; Puebla - La Ciricua (Mexico)<BR>2004.02.13 Monterrey, Nuevo Leon - Gimnasio Factores Mutuos (Mexico)<BR>2004.02.14&nbsp; San Luis Potos? - Huerta del STIC (Mexico)<BR>2004.02.15&nbsp; Mexico City - Circo Volador (Mexico)
+Автор: Bizarre
+
+### 19.09.2004 news DARK FUNERAL проедутся с туром по России-Украине
+
+<STRONG>DARK FUNERAL</STRONG> объявили, что предварительно запланировали мини-тур по России и Украине в декабре.
+Автор: Vit Belov
+
+### 23.09.2004 news DARK FUNERAL объявили даты в СНГ
+
+Dec. 01 - Arctica Club - Saint-Petersburg, RUS<BR>Dec. 02 - Tochka Club – Moscow, RUS<BR>Dec. 03 – TBA – Kiev, UKR
+Автор: Vit Belov
+
+### 21.01.2005 news DARK FUNERAL перезаключили сделку с Regain
+
+<P><STRONG>DARK FUNERAL</STRONG> перезаключили сделку с <STRONG>Regain Records</STRONG>. Группа начала сочинять материал для нового альбома.</P>
+Автор: Vit Belov
+
+### 21.01.2005 news DARK FUNERAL re-sign with Regain Records
+
+<P><STRONG>DARK FUNERAL</STRONG> re-sign with<STRONG> Regain Records</STRONG>. Here is update from their site:</P>
+<P>"<EM>We have just signed a new record deal with Regain Records, not a day too late! We are currently busy setting up plans for the future of the band among many other things. We will also start finalizing the material and songs for the new album. We want to hit the studio ASAP! Anyway, lots of things are happening right now, finally!. From now on we will do our best to keep you as up to date as possible, with the progress on the new album etc.... </EM></P>
+<P><EM>We have also confirmed to play this years edition of Metal Mind Festival in Poland (March 12). And on the 13th we begin the 16 date No Mercy Festival tour, with Six Feet Under, Nile among others. This tour will however not affect our song writing process. We have already made arrangements for this and will set up a small but decent studio on the tour bus so we can work effectively on the new album while on tour</EM>." </P>
+Автор: Vit Belov
+
+### 08.03.2005 news DARK FUNERAL активно сочиняют материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK FUNERAL</STRONG> активно сочиняют материал для нового альбома. В конце мая группа войдёт в <STRONG>Dug Out Studio</STRONG> вместе с продюсером <STRONG>Daniel Bergstad</STRONG> (<STRONG>IN FLAMES, MESHUGGAH</STRONG>) для записи пока не названного альбома, который выйдет осенью на <STRONG>Regain</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 20.05.2005 news DARK FUNERAL начинают запись!
+
+<P>В понедельник&nbsp;<STRONG>DARK FUNERAL</STRONG>&nbsp;начнут запись в&nbsp; <STRONG>Dug Out Studios</STRONG> с продюсером&nbsp;&nbsp;<STRONG>Daniel Bergstrand</STRONG> (<STRONG>Meshuggah, Strapping Young Lad, In Flames, Behemoth</STRONG>) для записи новой, пока еще не названной "Сатанистской Симфонии".&nbsp; Запись продлиться с 23 мая по 1 июля.<BR>Музыканты обещают сделать более сложные, чем обычно партии ударных и гитар. "<EM>Некоторые из мелодий являются самыми быстрыми, что я когда-либо писал</EM>" - <STRONG>Лорд Ариман</STRONG>.&nbsp;<BR> За ходом записи можно будет следить на форуме <A href="http://www.statikmajik.com/gd/forums">http://www.statikmajik.com/gd/forums</A></P>
+<P><A href="http://www.darkfuneral.se">www.darkfuneral.se</A></P>
+Автор: Bizarre
+
+### 30.05.2005 news Министр культуры Швеции любит DARK FUNERAL
+
+<P><IMG height=210 alt="Министр культуры Швеции" hspace=0 src="/images/news_rus/2005.05/8551.jpg" width=375 align=left border=5>Министр культуры Швеции <STRONG>Leif Pagrotsky</STRONG> приобрёл себе напульсник с пентаграммой и лого <STRONG>DARK FUNERAL</STRONG> и с удовольствием позировал с ним перед фото-камерами. Напомню, что <STRONG>DARK FUNERAL</STRONG> являются сатанистами. Вот до чего доводит демократия:)</P>
+<P>Сама же группа опубликовала на своём&nbsp;официальном форуме&nbsp;первый небольшой&nbsp;репортаж о записи пластинки. </P>
+Автор: Vit Belov
+
+### 20.06.2005 news DARK FUNERAL: Новое слово в мерчандайзе
+
+<P><STRONG><IMG height=301 alt="" hspace=0 src="/images/news_rus/2005.06/8811.jpg" width=300 align=left border=5>DARK FUNERAL</STRONG> продолжают удивлять своих поклонников. Совсем недавно была опубликована фотография министра культуры Швеции в напульснике от этой "сатанистской" группы. А теперь в продажу выходят армейские жакеты и "бермуды" с символикой коллектива.</P>
+Автор: Vit Belov
+
+### 11.08.2005 news Новый DARK FUNERAL: уже скоро!
+
+<P>Стало известно, что новый студийный альбом злобных шведов <STRONG>DARK FUNERAL</STRONG> будет называться <STRONG>"Attero Totus Sanctus". </STRONG>Выйдет он 24 октября на <STRONG>Regain Records</STRONG> (позднее, выйдет российское издание на <STRONG>CD-Maximum</STRONG>).&nbsp;&nbsp;Он был записан в шведской <STRONG>Dug-Out</STRONG> studios при помощи продюсера <STRONG>Daniel Bergstrand</STRONG> (<B>MESHUGGAH</B>, <B>STRAPPING YOUNG LAD</B>, <B>IN FLAMES</B>, <B>BEHEMOTH</B>). В записи, помимо основного состава группы (вокалист-басист <B>Emperor Magnus Caligula</B>,&nbsp;гитаристы <B>Lord Ahriman</B> и&nbsp;<B>Chaq Mol</B>, ударник <STRONG>Matte Modin</STRONG>),&nbsp;&nbsp;принял участие бывший басист <STRONG>MESHUGGAH</STRONG> <B>Gustaf Hielm</B>. </P>
+Автор: Dimas
+
+### 22.08.2005 news Подробности о новом альбоме DARK FUNERAL
+
+<P>Стал известен трек-лист нового альбома шведских злобных блэкстеров <STRONG>DARK FUNERAL</STRONG>:</P>
+<P>1. <B>King Antichrist</B> (04:39)<BR>2. <B>666 Voices Inside</B> (04:38)<BR>3. <B>Attero Totus Sanctus</B> (05:37)<BR>4. <B>Godhate</B> (05:06)<BR>5. <B>Atrium Regina</B> (05:33)<BR>6. <B>Angel Flesh Impaled</B> (05:53)<BR>7. <B>Feed on the Mortals</B> (05:41)<BR>8. <B>Final Ritual</B> (05:44)<BR>Напомним, что он будет называться <STRONG>"Attero Totus Sanctus". </STRONG>Выйдет он 24 октября на <STRONG>Regain Records</STRONG> (позднее, выйдет российское издание на <STRONG>CD-Maximum</STRONG>) и 29 ноября в Америке через <STRONG>Candlelight Records USA</STRONG>.&nbsp;&nbsp;Альбом был записан в шведской <STRONG>Dug-Out</STRONG> studios при помощи продюсера <STRONG>Daniel Bergstrand</STRONG> (<B>MESHUGGAH</B>, <B>STRAPPING YOUNG LAD</B>, <B>IN FLAMES</B>, <B>BEHEMOTH</B>). Мастеринг выполнил <STRONG>Tomas Eberger</STRONG>&nbsp;в шведской студии&nbsp;<B>Cutting Room. </B>В записи, помимо основного состава группы (вокалист-басист <B>Emperor Magnus Caligula</B>,&nbsp;гитаристы <B>Lord Ahriman</B> и&nbsp;<B>Chaq Mol</B>, ударник <STRONG>Matte Modin</STRONG>),&nbsp;&nbsp;принял участие бывший басист <STRONG>MESHUGGAH</STRONG> <B>Gustaf Hielm</B>. </P>
+Автор: Dimas
+
+### 14.10.2006 news DARK FUNERAL отличились в Перу
+
+<P>8 октября шведы <STRONG>DARK FUNERAL</STRONG> дали полностью инструментальное шоу на своём последнем концерте в рамках южноамериканского тура в Перу. Это произошло, из-за болезни вокалиста группы <STRONG>Emperor Magnus Caligula. </STRONG>Фанаты остались недовольны подобным перфомансом и устроили небольшой погром (видео здесь: <A href="http://www.youtube.com/watch?v=BEXRWhZBl_g">http://www.youtube.com/watch?v=BEXRWhZBl_g</A>). </P>
+<P>Вот как объясняет ситуацию гитарист группы <STRONG>Lord Ahriman</STRONG>: "<EM>После концерта в Чили Caligula приболел. Это чудо, что приболел только он один. Условия во время этого тура были ужасающие. Поздние шоу и перелёты ранним утром оставляли нам на сон только 1-2 часа. И так каждый день. Конечно, так можно работать несколько дней и даже неделю, но больше двух недель невозможно. По приезду в Перу Caligula лихорадило, и он полностью потерял голос. Доктор сообщил, что он не сможет петь в течение 14 дней. Локальный промоутер отказался отменять концерт и предложил нам отыграть без вокала. В начале концерта мы попытались найти человека, говорящего по-испански, чтобы он объяснил публике ситуацию. На это нам ответили, что лучше бы мы сами объяснялись с фэнами. Мы предположили, что публика не поймёт английского и были правы! Мне кажется, беспорядки были спланированны заранее и были никак не связаны с отсутствием нашего вокалиста. Говорят, в Перу часто происходит подобное во время концертов Европейских коллективов. После всего случившегося скажу, что решение, принятое нами в Перу, не было самым умным. Мы, конечно, могли отменить шоу, но спасло бы это от беспорядков? Нет! После шоу большая часть нашего оборудования была конфискована полицией, и если мы не получим его обратно в самое ближайшее время, следующие концерты будут отменены</EM>". </P>
+Автор: Vit Belov
+
+### 20.02.2007 news DARK FUNERAL и BELPHEGOR вместе...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK FUNERAL</STRONG> и <STRONG>BELPHEGOR</STRONG> вместе выступят в Москве и Санкт-Петербурге, соответственно 14 и 13 апреля. </FONT></P>
+Автор: Vit Belov
+
+### 22.03.2007 articles BELPHEGOR и DARK FUNERAL на одной сцене
+
+<P>BELPHEGOR И DARK FUNERAL НА ОДНОЙ СЦЕНЕ!!!</P>
+<P>13 и 14 апреля у российских поклонников экстремальной музыки есть уникальная возможность вновь увидеть один из самых мощных европейских black-death коллективов – австрийцев BELPHEGOR и легендарных шведских блэкарей DARK FUNERAL. Обе группы возвращаются в Россию с новыми программами и дадут два совместных концерта!!!</P>
+<P>13 апреля – Санкт-Петербург, клуб Порт<BR>14 апреля – Москва, клуб Точка </P>
+<P>BELPHEGOR</P>
+<P>BELPHEGOR – одни из самых экстремальных представителей современной death-black металлической сцены. Сами участники группы характеризуют свое творчество как "Supreme Death/Black Metal Art”. <BR>Начиная с 1993 года, эти австрийцы заработали любовь поклонников тремя шикарными полноформатными релизами: «The Last Supper» (1995, Lethal Records), «Blutsabbath» (1997,&nbsp; Last E. Records) и в особенности «Necrodaemon Terrorsathan» (2000, Last E. Records). <BR>С каждым альбомом команда заметно прибавляла в технике, ударные постепенно превращались в оглушительные бластбиты, гитарные партии становились все сложнее, таким образом, начав как блэк-металлический коллектив, музыканты неизбежно двигались к death metal (напрашивается аналогия с BEHEMOTH). В декабре 2003, BELPHEGOR предстали перед публикой со своим четвертым студийным альбомом «Lucifer Incestus», альбом вышел на лэйбле Napalm Records. В рамках последующего тура коллектив впервые посетил многие европейские страны.<BR>Следующий альбом, «Goatreich-Fleshcult», был выпущен Napalm Records 28 февраля 2005. Диск ознаменовал дальнейшее развитие группы как дэт-металлического коллектива. Есть и весьма неожиданное обстоятельство – присутствие песни&nbsp; “Sepulture of Hypocrisy”, выдержанной в традициях death-doom metal.<BR>В рамках тура в поддержку этого альбома группа впервые посетила Россию и дала концерт в Московском «Релаксе» 10 февраля 2006 года.<BR>После гастролей группа вновь меняет лэйбл и на сегодняшний день коллектив находится под крылом у Nuclear Blast, на котором и был выпущен 6-ой студийный диск, "Pestapokalypse VI", последний на сегодняшний день. Этот релиз стал просто кульминационным для BELPHEGOR, ни один их диск ещё не сочетал в себе столько достоинств. Мощнейший, оглушительный и сверхскоростной death metal, приправленный блэк-металлической энергией злобы и мрака, 9 убийственных композиций не оставят равнодушным ни одного поклонника экстремальных металлических жанров.<BR>В ноябре 2006 года впервые за свою историю музыканты посетили Северную Америку и дали 11 концертов в США. Спустя два месяца, уже в этом году, коллектив вернулся на американские земли, чтобы дать ещё свыше 30 концертов в Канаде и США. В Европе пока что было дано всего пять концертов в поддержку нового альбома, так что предстоящие выступления в России можно считать одними из первых.</P>
+<P>DARK FUNERAL</P>
+<P>Все началось в Швеции в 1993 году, когда Лорд Ариман (наст. имя Микке Сванберг) и Блэкмун положили начало инфернальному нашествию, которое мы теперь знаем как DARK FUNERAL, наравне с MARDUK, ставшими наиболее известными представителями шведского блэк-металла, некогда зачатого великим Куортоном из BATHORY. В январе 1994 года DARK FUNERAL записали мини-альбом на студии Дана Свано (EDGE OF SANITY, NIGHTINGALE и др.) Вскоре группа подписалась на лэйбл No Fashion Records и начала работать над своим первым полноформатником. Альбом "The Secrets Of The Black Arts" появился в январе 1996, запись и сведение материала проходило на Abyss Studio Петера Тагтгрена (HYPOCRISY, PAIN). Вскоре к коллективу присоединился вокалист Эмперор Магус Калигула (наст. имя Массе Бромберг). Впервые он выступил с группой на фестивале в Берлине, который закрепил успех DARK FUNERAL и их альбома, вскоре после этого фестиваля группа совершила первый тур по Европе в качестве хэдлайнера.<BR>С тех пор произошло много разных событий. Состав коллектива неоднократно менялся, однако неизменной в течение многих лет остается пара Лорд Ариман – Калигула. За эти годы DARK FUNERAL объездили более тридцати стран, выступив вместе с такими прославленными коллективами как DIMMU BORGIR, CANNIBAL CORPSE, DEICIDE, IMMORTAL и многими другими. В 1998 году вышел второй альбом коллектива «Vobiscum Satanas». Спустя два года появились два сингла, а ещё через год новый, третий по счету полноформатник группы "Diabolis Interium" был номинирован как лучший металлический дидск на P3 Guld awards. В октябре 2002 DARK FUNERAL&nbsp; стали первой зарубежной группой, выступившей в Сингапуре за 10 лет (до этого лишь METALLICA выступала там в начале 90-х). В 2004 году вышел долгожданный концертник коллектива "De Profundis Clamavi ad te Domine", он был выпущен в Европе лэйблом Regain Records и вскоре был издан на лицензии во многих странах. В том же году группа впервые посетила Россию и Украину, дав концерты в Москве, Санкт-Петербурге и Киеве. <BR>В январе 2005 DARK FUNERAL подписали контракт с Regain Records на новую запись, в конце мая группа оказалась в Dug Out Studios вместе с продюсером Даниэлем Бергстрандом (MESHUGGAH, IN FLAMES, STRAPPING YOUNG LAD, BEHEMOTH a.s.o.) и начали запись новой «сатанинской симфонии». Прошло полтора месяца и в середине июля она была завершена. В начале августа коллектив вернулся в студию, чтобы наложить оставшиеся вокальные партии и закончить&nbsp; микширование альбома. Наконец, 18 августа работа над новым диском DARK FUNERAL "Attero Totus Sanctus" была закончена. Прошло ещё немного времени и 24 октября альбом появился в продаже.<BR>Первая часть тура ATTERA ORBIS TERRARUM TOUR прошла в Европе в феврале-марте 2006 года. Осенью того же года группа продолжила тур в Центральной и Южной Америке, а в январе 2007-го года настал черед и США с Канадой. Всего коллектив дал уже более 70 концертов в поддержку диска. Теперь настала очередь российских столиц!</P>
+<P>© Ахметов Алан</P>
+Автор: Vit Belov
+
+### 27.03.2007 news DARK FUNERAL готовят DVD
+
+<P><STRONG>DARK FUNERAL</STRONG> работают над двумя двойными концертными DVD. Первый из них выйдет 18 июня на <STRONG>Regain</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.04.2007 news DARK FUNERAL + BELPHEGOR + GROM в Москве
+
+<CENTER><IMG height=282 src="/images/news_rus/2007.03/11490.jpg" width=400 border=0></CENTER>
+<CENTER><SPAN class=tit1>
+<CENTER><SPAN class=tit3>
+<CENTER>В концерте принимают участие <A href="/ru/band/grom">GROM</A>!!!</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Уважаемые поклонники группы DARK FUNERAL!<BR>В связи с болезнью барабанщика, группа отменила свои концерты в России и Украине.<BR>Концерты BELPHEGOR и разогревающих отечественных коллективов в Санкт-Петербурге и в Москве состоятся.<BR>В день концерта цена входного билета в Москве будет 600 руб., в Питере - 400руб. При входе будут выдаваться купоны. Они будут действительны с доплатой 200 руб. в день концерта DARK FUNERAL, который состоится в течении месяца. <BR>Телефон для справок: 76 77 037</CENTER>
+<CENTER>Компании SPIKA Concert Agency приносит свои извинения всем поклонникам группы DARK FUNERAL за неудобства, связанные с переносом концерта.</CENTER></SPAN></CENTER></SPAN></CENTER>
+Автор: Vit Belov
+
+### 09.08.2007 news DARK FUNERAL выпускают DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK FUNERAL</STRONG> выпускают своё первое DVD <STRONG>"Attera Orbis Terrarum - Part 1" </STRONG>15 октября на <STRONG>Regain Records</STRONG>. На диск попадут три концерта и некоторое количество редких и любительских съёмок, в том числе с первого выступления группы, состоявшегося 4 мая 1994 года в Осло. Трэк-листы:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=569 alt="" hspace=0 src="/images/news_rus/2007.08/11800.jpg" width=400 align=right border=5>March 5, 2006 in Tilburg, Netherlands at 013:<BR>01. <B>Intro</B><BR>02. <B>King Antichrist</B><BR>03. <B>Diabolis Interium</B><BR>04. <B>Ravenna Strigoi Mortii</B><BR>05. <B>The Arrival Of Satans Empire</B><BR>06. <B>Open The Gates</B><BR>07. <B>Vobiscum Satanas</B><BR>08. <B>666 Voices Inside</B><BR>09. <B>Attera Totus Sanctus</B><BR>10. <B>Bloodfrosen</B><BR>11. <B>Hail Murder</B><BR>12. <B>Atrum Regina</B><BR>13. <B>My Dark Desires</B><BR>14. <B>An Apprentice Of Satan</B><BR>Details: <BR>* Professionally Filmed With 4 Cameras <BR>* Directed By: <B>Maurice Swinkels</B> [Lowlifemedia Prod] <BR>* Edited By: <B>Maurice Swinkels</B> [Lowlifemedia Prod] <BR>* Sound Engineer: <B>Markus Miljand </B><BR>* Audio Recording By: <B>Martin </B><BR>* Mixed By: <B>Erik Sj&#246;lander</B> & <B>&#214;rjan &#214;rnkloo</B> in <B>Studio Wasteland</B> [Uppsala, Sweden] <BR>* Running Time: 67 minutes <BR><BR>March 17, 2006 in Paris, France at La Locomotive:<BR>01. <B>Intro</B><BR>02. <B>King Antichrist</B><BR>03. <B>Diabolis Interium</B><BR>04. <B>Ravenna Strigoi Mortii</B><BR>05. <B>The Arrival Of Satans Empire</B><BR>06. <B>Open The Gates</B><BR>07. <B>Vobiscum Satanas</B><BR>08. <B>666 Voices Inside</B><BR>09. <B>Attera Totus Sanctus</B><BR>10. <B>Bloodfrosen</B><BR>11. <B>Hail Murder</B><BR>12. <B>Atrum Regina</B><BR>13. <B>My Dark Desires</B><BR>14. <B>An Apprentice Of Satan</B><BR>Details: <BR>* Professionally Filmed With 3 Cameras <BR>* Directed By: <B>Bernard</B> [Escape Prod, France] <BR>* Edited By: <B>Magnus Gillberg</B> [Gillberg Films, Sweden] <BR>* Sound Engineer: <B>Markus Miljand</B> <BR>* Audio Recording By: <B>Bernard</B> [Escape Prod, France] <BR>* Mixed By: <B>Erik Sj&#246;lander</B> & <B>&#214;rjan &#214;rnkloo</B> in <B>Studio Wasteland</B> [Uppsala, Sweden] <BR>* Running Time: 69 minutes <BR><BR>March 12, 2005 in Katowice, Poland at Metalmania:<BR>01. <B>Bleed For Satan</B> (intro)<BR>02. <B>The Arrival Of Satans Empire</B><BR>03. <B>Ravenna Strogoi Mortii</B><BR>04. <B>The Secrets Of The Black Arts</B><BR>05. <B>Hail Murder</B><BR>06. <B>Open The Gates</B><BR>07. <B>Thus I Have Spoken</B><BR>08. <B>An Apprentice Of Satan</B><BR>09. <B>Goddess Of Sodomy</B><BR>10. <B>When Angels Forever Die</B><BR>11. <B>Armageddon Finally Comes </B><BR>Details: <BR>* Professionally Filmed With 7 Cameras <BR>* Produced By: <B>Tomasz Dziubinski</B> [Metal Mind Prod] <BR>* Directed By: <B>Grzegorz Kupiec</B><BR>* Edited By: <B>Artur Wojewoda</B> & <B>Waldemar Szwajda</B> <BR>* Sound Engineer: <B>Piotr Brzezinski</B><BR>* Audio Recording By: <B>Piotr Brzezinski</B><BR>* Mixed By: <B>Erik Lidbom</B> [Hitfire Production, Sweden] <BR>* Running Time: 42 minutes <BR>Bonus material:<BR>* Video Clips <BR>* <B>"Atrum Regina"</B>, amateur footage, previously unreleased amateur footage spanning <B>DARK FUNERAL</B>'s entire career, from the very first, and nowadays legendary, show in Oslo, Norway on May 4, 1994 up until today. <BR>Running Time: 40 minutes </FONT></P>
+Автор: Vit Belov
+
+### 07.01.2009 news David Parland организует проект
+
+<P><IMG height=267 alt="" hspace=0 src="/images/news_rus/2009.01/13313.jpg" width=200 align=right border=5>Бывший гитарист <STRONG>NECROPHOBIC, DARK FUNERAL</STRONG> и <STRONG>INFERNAL David Parland</STRONG> сообщил о создании нового проекта:</P>
+<P>"<EM>После небольшого отдыха я возвращаюсь к активной музыкальной деятельности с новым проектом. Пока названия у этого проекта нет, но уже могу сообщить некоторые подробности. Во-первых, я возвращаюсь вновь к death-metal звучанию, пластинка будет тяжёлой и мелодичной. Во-вторых, могу сообщить, что барабанщиком станет <STRONG>Tomas Asklund</STRONG> (ex-<B>DARK FUNERAL</B>, <B>DISSECTION</B>, <B>INFERNAL</B>)</EM>".</P>
+<P>Напоследок <STRONG>David </STRONG>высказался о деле <STRONG>GORGOROTH</STRONG>:</P>
+<P>"<EM>В этом месяце суд вынесет решение по делу GORGOROTH, и я надеюсь, имя останется у Infernus. Если же этого не случится, то получится, что каждый может стырить имя группы независимо от своего в ней положения. Независимо от того, кто основал группу. В любом случае я говорю 'Fuck Off' версии GORGOROTH от King Ov Hell/Gaahl</EM>".</P>
+Автор: Vit Belov
+
+### 10.02.2009 news DARK FUNERAL определились со студией
+
+<P><STRONG>DARK FUNERAL</STRONG> сочиняют материал для нового альбома. Пока не записано даже демо, но группа уже определилась со студией, в которой будет записываться новая пластинка. Через восемь лет после альбома "<STRONG>Diabolis Interium</STRONG>" группа возвращается в <STRONG>Abyss Studio</STRONG> к <STRONG>Peter Tagtgren</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.06.2009 news DARK FUNERAL войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK FUNERAL</STRONG> войдут в студию для записи нового альбома 10 июля. Работа будет проведена вместе с <STRONG>Peter Tagtgren</STRONG> в <STRONG>Abyss Studio</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 01.09.2009 news DARK FUNERAL назвали новый альбом
+
+<P>Новый альбом<STRONG> DARK FUNERAL</STRONG> будет называться <STRONG>"Angelus Exuro pro Eternus". </STRONG>Пластинка выйдет 18 ноября.</P>
+Автор: Vit Belov
+
+### 05.10.2009 news Новое видео DARK FUNERAL
+
+<P><STRONG>DARK FUNERAL</STRONG> опубликовали видеоклип на песню <STRONG>"My Funeral"</STRONG>&nbsp;с нового альбома <STRONG>"Angelus Exuro Pro Eternus"</STRONG>. {Внимание! Видео содержит сцены насилия и подходит не для всех возрастов}</P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=63835907,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=63835907,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.10.2009 news Видео DARK FUNERAL убрали с MySpace
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После трёх дней и 30000 просмотров на <STRONG>MySpace</STRONG> запретили новое видео <STRONG>DARK FUNERAL "My Funeral"</STRONG>. "Нерезанную" версию этого ролика можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=225 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=6896417&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=6896417&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="225"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.10.2009 news Обложка нового альбома DARK FUNERAL
+
+<P>18 ноября на <STRONG>Regain Records</STRONG> выйдет новый альбом <STRONG>DARK FUNERAL "Angelus Exuro Pro Eternus"</STRONG>. Обложка пластинки появилась в сети.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.10/15309.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 04.11.2009 news Новая песня DARK FUNERAL
+
+Новую песню <STRONG>DARK FUNERAL</STRONG> <STRONG>"Stigmata" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/darkfuneral">http://www.myspace.com/darkfuneral</A>
+Автор: Vit Belov
+
+### 20.02.2010 reviews Болезненный и монументальный альбом
+
+<P>Новый альбом одной из лучших функционирующих групп в black-death-metal несомненно должен привлечь внимание слушателей. В настоящее время техника этих шведов достигла таких высот, что их музыка будет интересна не только любителям ортодоксального сатанинского true black-metal.</P>
+<P>Кажется, что DARK FUNERAL являются незыблемыми легендами стиля, а, между тем, этот альбом у коллектива лишь пятый полноформатный. Описывать этот альбом бесполезно. Фирменные зубодробильные боевики с неуловимой мелодикой, затаённой в самой глубине звуковой стены. Этот альбом живой пример того, как надо играть тяжело и мелодично, не увлекаясь чистыми вокалами или излишне показной тупостью. Эта работа наполнена такой свойственной «сатанистам» грустью, которую никогда не смогут передать суицидальные ANATHEMA или KATATONIA. Это грусть, смешанная со злобой на всё живое. Это грусть человека, который, пусть и не сдаётся, но понимает, что его дело проиграно навсегда. </P>
+<P>Отличный монументальный и болезненный альбом. DARK FUNERAL работают на самых высоких оборотах. Возможно лучший альбом в стиле в прошлом году.</P>
+Автор: Vit Belov
+
+### 27.07.2010 news Emperor Magus Caligula женился и потерял титул
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=456 alt="" hspace=0 src="/images/news_rus/2010.07/16959.jpg" width=400 align=right border=5>Вокалист<STRONG> DARK FUNERAL</STRONG> <STRONG>Emperor Magus Caligula </STRONG>объявил об уходе. Последний концерт с группой музыкант даст 21 августа на фестивале <STRONG>Summer Breeze</STRONG> в Германии. Причиной этого решения певец назвал свою женитьбу, которая вынуждает его сменить приоритеты в жизни. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер группы гитарист <STRONG>Lord Ahriman</STRONG> заявил, что благодарит <STRONG>Caligula</STRONG> за 15 лет совместной работы и принимает его решение. В настоящее время группа начинает поиск нового фронтмена, а после выступления 21 августа<STRONG> DARK FUNERAL</STRONG> начнут работу над новым материалом.</FONT></P>
+<P><STRONG>Magnus "Masse" Broberg</STRONG> (a.k.a. <B>Emperor Magus Caligula</B>) пришёл в <STRONG>DARK FUNERAL</STRONG> в 1995 году, заменив<STRONG> Themgoroth</STRONG>. До 2001 года<STRONG> Caligula</STRONG> играл также и на басу. Все номерные альбомы шведов, кроме дебюта "<STRONG>The Secrets Of The Black Arts</STRONG>",&nbsp;были записаны с этим певцом.</P>
+Автор: Vit Belov
+
+### 01.07.2011 news DARK FUNERAL взяли нового вокалиста
+
+<P>Новым вокалистом шведов<STRONG> DARK FUNERAL</STRONG> стал <STRONG>Nachtgarm</STRONG> (<B>NEGATOR</B>). Лидер группы <STRONG>Lord Ahriman</STRONG> посетовал, что нелегко было найти замену <STRONG>Emperor Magus Caligula</STRONG>, который отыграл в коллективе 15 лет. Но за 10 месяцев поисков из 1000 претендентов нужный человек для <STRONG>DARK FUNERAL</STRONG> был найден.</P>
+<P><center><IMG height=294 src="/images/news_rus/2011.07/19830.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 17.05.2012 news DARK FUNERAL на Century Media
+
+<P>Шведские сатанисты<B> DARK FUNERAL</B> заключили трёхальбомную сделку с<B> Century Media</B>. Новый адьбом, который выйдет в 2013 в год 20-летнего юбилея коллектива, станет дебютом для нового певца <B>Nachtgarm</B> (<B itxtHarvested="0" itxtNodeId="42">NEGATOR</B>).</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.05/23944.jpg" width=475 height=315></P>
+Автор: Vit Belov
+
+### 01.06.2016 news Новое видео DARK FUNERAL
+
+<p>Шведские классики black metal <strong>DARK FUNERAL</strong> опубликовали новый видео-клип на песню с выходящего альбома «<strong>Unchain My Soul</strong>”. Послезавтра на<strong> Century Media</strong> выходит долгожданный альбом «<strong>Where Shadows Forever Reign</strong>”. Пластинка была записана в <strong>Dugout Studio, Uppsala</strong>, и была совместно спродюсирована лидером коллектива <strong>Lord Ahriman</strong> и <strong>Daniel Bergstrand</strong> (In Flames, Dimmu Borgir, Behemoth). Обложку нарисовал<strong> Necrolord</strong> (Dissection, Necrophobic, Emperor). </p><p>Трек-лист:</p><p>“Unchain My Soul”<br>“As One We Shall Conquer”<br>“Beast Above Man”<br>“As I Ascend”<br>“Temple Of Ahriman”<br>“The Eternal Eclipse”<br>“To Carve Another Wound”<br>“Nail Them To The Cross”<br>“Where Shadows Forever Reign”</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/Qmk_PXtem4E" frameborder="0" allowfullscreen=""></iframe>;<p></p><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.06/29229.jpg" border="0"></p></center>
+Автор: Vit Belov
+
+### 01.06.2016 news DARK FUNERAL: New video
+
+<p>Classic Swedish black metal band <strong>DARK FUNERAL</strong> have released a new video clip for the song from the forthcoming studio album "<strong>Unchain My Soul</strong>". The day after tomorrow on<strong> Century Media</strong> will be released long awaited album "<strong>Where Shadows Reign Forever</strong>". The album was recorded at<strong> Dugout Studio</strong>, Uppsala, and was co-produced by band leader<strong> Lord Ahriman</strong> and<strong> Daniel Bergstrand</strong> (In Flames, Dimmu Borgir, Behemoth). Cover artwork by <strong>Necrolord</strong> (Dissection, Necrophobic, Emperor).</p><p>Track-list:</p><p>“Unchain My Soul”<br>“As One We Shall Conquer”<br>“Beast Above Man”<br>“As I Ascend”<br>“Temple Of Ahriman”<br>“The Eternal Eclipse”<br>“To Carve Another Wound”<br>“Nail Them To The Cross”<br>“Where Shadows Forever Reign”</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/Qmk_PXtem4E" frameborder="0" allowfullscreen=""></iframe><p></p><p><center>&nbsp;<img width="500" height="500" src="/images/news_rus/2016.06/29229.jpg" border="0"></center><p></p></center>
+Автор: Vit Belov
+
+### 30.06.2016 reviews DARK FUNERAL будут с нами вечно
+
+<p>Шведы DARK FUNERAL без сомнения являются живими легендами современного black metal наряду с IMMORTAL или MARDUK. Удивительно осозновать, что «Where Shadows Forever Reign” лишь шестой альбом группы за более чем 20 лет существования. Этого альбома фэны ждали шесть лет (!!!), самый большой промежуток между альбомами DARK FUNERAL в истории.</p><p>Видимо, этот перерыв связан с некоторыми изменениями в составе коллектива, самым заметным из которых стало появление нового вокалиста Heljarmadr, а перд ним два года певцом числился Nachtgarm, но что-то не срослось. Эти люди сменили «основного» певца Emperor Magus Caligula, который решил заняться личной жизнью. Сразу отмечу, что смена вокалиста никак DARK FUNERAL не повредила, Heljarmadr скримит прекрасно. За этот период шведы также сменили лэйбл, теперь их домом является Century Media, а предыдущая контора Regain пошла ко дну. Пользуясь случаем, DARK FUNERAL к настоящему моменту переиздали всю свою дискографию на CD и виниле под вывеской Century Media. Все необходимые подготовительные процедуры были проделаны, нужно было выпускать новый альбом.</p><p>«Where Shadows Forever Reign” получился очень хорошим. Очень хорош он с точки зрения тяжёлой музыки, с точки зрения мелодичного black metal, но преданным поклонникам коллектива нужно будет к нему попривыкнуть. В принципе, в отличии от соотечественников MARDUK, DARK FUNERAL всегда были мелодичны. Несмотря на всю этот «чернушный» антураж, коллектив всегда играл музыку для души и не пытался запугивать слушателя глубинами ада. Естественно, чтобы это понять требовалась недюжинная слуховая подготовка, но настоящими сатанистами — нигилистами DARK FUNERAL никогда в музыкальном плане не были. Творчество группы как бы поясняло, что Сатана хоть и падший, но всё-таки ангел. Я думаю, вы уже поняли, к чему я клоню. Пока я слушал альбом, мне казалось, что Peter Tagtgren наконец-то победил black metal в DARK FUNERAL. Выяснилось, что за звук на этом альбоме отвечает Daniel Bergstrand (DIMMU BORGIR, IN FLAMES, BEHEMOTH), но дела это не меняет. HYPOCRISY лезет на «Where Shadows Reign” из каждого аккорда, а уж баллада «As I Ascend” просто разрывает сердце в прямом и переносном смысле. Безусловно, на альбоме присутствует несколько традиционных для black metal боевиков, но в этот раз, готовя свою музыку в творческом тигле, Lord Ahriman явно не пожалел мелодических приправ, а с black metal заваркой что-то не задалось.</p><p>Я уверен, что уже некоторое количество читателей этой заметки ринулись в магазин. HYPOCRISY занимают совершенно особое положение на шведской сцене, а black metal HYPOCRISY (PAIN) это вообще что-то с чем-то. DARK FUNERAL открывают с этим альбомом новою главу в собственной истории и дальше уж, как пойдёт. Либо музыканты сами испугаются собственной смелости и лет через 8-10 вернутся с настоящим 'true' альбомом, либо перед ними будут в агонии биться целые стадионы и авиаполя, набитые молодыми девушками и парнями с неустойчивой психикой. Преданные фанаты DARK FUNERAL послушают этот альбом, они будут разочарованы, но затем им этот альбом понравится, и они будут слушать его втайне. </p><p>Долгое ожидание новой музыки DARK FUNERAL оправдало себя. Шведы создали совершенный эпический black metal альбом. Ну, в конце-то концов не вечно же поедать младенцев и жечь церкви, на старости лет можно и оглянуться с грустью назад, оценить собственные провалы и достижения и... Надеюсь, это не последняя работа DARK FUNERAL, группа заслуживает того, чтобы быть с нами вечно.</p>
+Автор: Vit Belov
+
+### 01.07.2016 reviews DARK FUNERAL will be with us forever
+
+<p>Sweden's DARK FUNERAL are without doubt living legends of black metal along with IMMORTAL or MARDUK. It's amazing to realize that "Where Shadows Reign Forever" only the sixth studio album for more than 20 years of existence. Fans have been waiting for this albums six years (!!!), biggest gap between albums of DARK FUNERAL in history.</p><p>Apparently, this break is associated with some changes in the line-up of the band, the most notable of which was the emergence of a new vocalist Heljarmadr, and before him for two years singer Nachtgarm was listed, but something did not grow together. These people substituted the "main" singer Emperor Magus Caligula, who decided to take personal life. Just note that the change of vocalist doesn't hurt DARK FUNERAL, Heljarmadr screams fine. During this period, the Swedes also changed the label, now their home is a Century Media and Regain the previous label went down. Seizing the opportunity, DARK FUNERAL has now re-released their entire discography on CD and vinyl under the mark of Century Media. All the necessary preparatory procedures were done, it was time to release a new album.</p><p>"Where Shadows Reign Forever" is very good. It's very good from the view of heavy music, from the view of melodic black metal, but loyal fans of the band will need to get used to it. In principle, unlike their compatriots MARDUK, DARK FUNERAL has always been melodic. Despite all this "black" environment, the band always played music for the soul and not tried to frighten the listener to the depths of hell. Naturally, to understand it required a remarkable auditory training, but DARK FUNERAL were never real Satanists - nihilists in musical terms. The creativity of the group would like to explain that Satan, though fallen, but still an angel. I think you already understand what I mean. While I listened to the album, I thought Peter Tagtgren finally defeated black metal in DARK FUNERAL. It turned out that the sound on this album was done by Daniel Bergstrand (DIMMU BORGIR, IN FLAMES, BEHEMOTH), but it does not change. 'HYPOCRISY' is get out in each chord on "Where Shadows Reign", and even the ballad "As I Ascend" just breaks the heart in literal and figurative sense. Of course, the album includes several traditional black metal hits, but this time Lord Ahriman is preparing his music in the creative crucible with big amount of melodic spices, and with black metal welding something has not worked.</p><p>I'm sure a number of readers of this article rushed to the store. HYPOCRISY is a very special title fo Swedish scene, and black metal HYPOCRISY (PAIN) is generally something with something. DARK FUNERAL open with this album a new Chapter in their history and then how it goes. Either the musicians themselves are frightened of own boldness and will be back with 'true' album after 8-10 years, or entire stadiums and airfields full of young girls and boys with unstable mentality will be in agony in front of them. Hardcore fans of DARK FUNERAL will listen to this album, they will be disappointed, but then they'll enjoy this album and they will listen to it in secret.</p><p>The long wait for new music of DARK FUNERAL paid off. The Swedes have created the perfect epic black metal album. Well, after all it can't always be eating babies and burning churches, old age is possible to look sadly back, to rate your own failures and achievements and... I Hope it's not the last work of DARK FUNERAL, the band deserves to be with us forever.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### DARK FUNERAL

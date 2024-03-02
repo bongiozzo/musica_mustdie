@@ -72,6 +72,47 @@ Lucky - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2013 news Немецкие трэшеры DARKNESS снова собрались
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Немецкие трэшеры <strong>DARKNESS</strong> снова вместе!</font></p>
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">В очередную реинкарнацию группы вошло два оригинальных участника - это <strong>Andreas "Lacky" Lakaw</strong> (барабаны) и <strong>Arnd Klink</strong> (вокал), плюс трое новичков - <strong>Christian "Speesy" Giesler</strong> (бас, также в <strong>KREATOR</strong>), <strong>Bony Fertigmensch</strong> (гитара, ex-<strong>JAPANISCHE KAMPFH&#214;RSPIELE</strong>) и <strong>Meik Heitkamp</strong> (гитара, <strong>TRAPPED INSANITY</strong>).</font></p>
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Дебютное выступление обновлённой группы, состоиться на бельгийском&nbsp;фестивале <strong>Ages Of Metal</strong> (<a href="http://www.agesofmetal.be/">www.agesofmetal.be</a>), который пройдёт 27 и 28 сентября этого года.</font></p>
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">В планы группы также входит запись нового материала. </font></p>
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>DARKNESS</strong> на <strong>Facebook</strong>: <a href="http://www.facebook.com/darknessdeathsquad">www.facebook.com/darknessdeathsquad</a></font></p>
+<p>
+<center><img width="650" height="433" src="/images/news_rus/2013.08/26111.jpg" border="0"> 
+<p></p></center>
+Автор: Headcrusher
+
+### 26.12.2013 news DARKNESS: новый трек &quot;Hate Is My Engine&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реанимированные, в очередной раз, немецкие трэшеры <STRONG>DARKNESS</STRONG>, представили на суд публики свой&nbsp;новый трек <STRONG>"Hate Is My Engine"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=166 src="https://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F126513812&show_artwork=true" frameBorder=no width="100%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 08.08.2016 news DARKNESS возвращаются
+
+<p>Классические немецкие трешеры <strong>DARKNESS</strong> выпускают новый альбом "<strong>The Gasoline Solution</strong>" 7 октября на <strong>High Roller Records</strong>. Это первый студийный полноформатный альбом с 1989 года, когда вышел "<strong>Conclusion & Revival</strong>". Звуком занимался <strong>Patrick W. Engel</strong>. Обложку создал<strong> Alexander Von Wieding</strong>.</p><p>Трек лист:</p><p>01 Tinkerbell Must Die<br>02 Another Reich<br>03 Freedom on Parole<br>04 Welcome to Pain<br>05 LAW<br>06 Pay A Man<br>07 The Gasoline Solution<br>08 Dressed in Red<br>09 This Bullet's for You</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29766.jpg" border="0"><p></p></center><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/cU2Kvs1K1QM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 08.08.2016 news Classic thrashers DARKNESS will release new album
+
+<p>Classic German thrashers <strong>DARKNESS</strong> release their new album, "<strong>The Gasoline Solution</strong>" on October 7 at <strong>High Roller Records</strong>. This is the first Studio album since 1989, when they published "<strong>Conclusion & Revival</strong>". Sound worked by <strong>Patrick W. Engel</strong>. The cover artwork was created by <strong>Alexander Von Wieding</strong>.</p><p>Track list:</p><p>01 Tinkerbell Must Die<br>02 Another Reich<br>03 Freedom on Parole<br>04 Welcome to Pain<br>05 LAW<br>06 Pay A Man<br>07 The Gasoline Solution<br>08 Dressed in Red<br>09 This Bullet's for You</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29766.jpg" border="0"><p></p></center><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/cU2Kvs1K1QM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 07.09.2016 news DARKNESS выпустили клип
+
+<p>Новый ролик возвратившихся к жизни немецких трешеров<strong> DARKNESS "Tinkerbell Must Die"</strong> можно посмотреть ниже. Новый альбом коллектива "<strong>The Gasoline Solution</strong>" выйдет на <strong>High Roller Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/TUT0mbpg6JQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 07.09.2016 news DARKNESS released clip
+
+New video of returned to the life German thrashers <strong>DARKNESS "Tinkerbell Must Die"</strong> can be viewed below. The band's new album "<strong>The Gasoline Solution</strong>" will be released on<strong> High Roller Records</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/TUT0mbpg6JQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Beauty in Darkness vol.4

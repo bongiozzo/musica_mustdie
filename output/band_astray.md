@@ -12,6 +12,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2000 reviews Атмосферно-мелодичный black-death
+
+<p>Атмосферно-мелодичный black-death. На этом мини-альбоме финской группы предпринята попытка скрестить атмосферный black-metal с шведским death-metal. Получилось вроде неплохо, но не особо высокое качество записи и малая продолжительность не позволяют пока делать каких-то определенных выводов. Музыка интересна, но не хватает некоторого разнообразия. Вот...Больше, пожалуй, и не знаю, что тут еще добавить.</p>
+
+Автор: Dimas
+
+### 21.11.2000 reviews Atmospheric-melodious black-death
+
+<p>Atmospheric-melodious black-death. On this mini-album of the Finnish group the attempt is undertaken to cross atmospheric black-metal with Swedish death-metal. It has turned out like not bad, but not especially high quality of record and small duration do not allow while to make of any certain conclusions. Music is interesting, but there is no some variety.... It is more, perhaps, and I do not know what here still to add.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

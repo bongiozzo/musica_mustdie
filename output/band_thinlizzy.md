@@ -406,6 +406,35 @@ Marco Mendoza  -  Bass, Vocals
 
 * C группой "Moore, Gary" Gary Moore
 
+## Публикации
+
+### 23.07.2002 news THIN LIZZY: живой DVD...
+
+<p>Ветераны "THIN LIZZY" решили выпустить на DVD концерт 1978 года в Австраллийском Sydney Opera House перед 26 000 фанатов, назвав его "The Boys Are Back In Town"... Диск представит восемь песен сыгранных в "золотом" составе: вокалист-бассист Phil Lynott, гитаристы Gary Moore и Scott Gorham и барабанщикMark Nauseef. Трек-лист: <BR><BR> 01. Jailbreak<BR> 02. Bad Reputation<BR> 03. Cowboy Song<BR> 04. The Boys Are Back In Town<BR> 05. Waiting For An Alibi<BR> 06. Are You Ready<BR> 07. Me And The Boys<BR> 08. Baby Drives Me Crazy</p>
+
+Автор: Yermola
+
+### 27.01.2009 news Классический концертник THIN LIZZY
+
+<P><IMG height=396 alt="" hspace=0 src="/images/news_rus/2009.01/13455.jpg" width=400 align=right border=5>3 марта на <STRONG>VH1 Classic Records </STRONG>выходит редкий концерт<STRONG> THIN LIZZY</STRONG> <STRONG>"Still Dangerous: Live At The Tower Theater Philadelphia 1977"</STRONG>. Классический состав группы исполняет следующие песни:</P>
+<P>01. <B>Soldier Of Fortune</B><BR>02. <B>Jailbreak</B><BR>03. <B>Cowboy Song</B><BR>04. <B>The Boys Are Back In Town</B><BR>05. <B>Dancing In The Moonlight</B><BR>06. <B>Massacre</B><BR>07. <B>Opium Trail</B><BR>08. <B>Don't Believe A Word</B><BR>09. <B>Baby Makes Me Cry</B><BR>10. <B>Me And The Boys</B></P>
+Автор: Vit Belov
+
+### 08.01.2011 news THIN LIZZY снова в пути
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18092.jpg" width=272 height=400>После почти 25 лет прошедших со дня смерти легендарного ирландского рокера Фила Лайнота (<STRONG>Phil Lynott</STRONG>), группа <STRONG>THIN LIZZY</STRONG> снова отправилась на гастроли. На этот раз, место за микрофонной стойкой&nbsp;занял <STRONG>Ricky Warwick </STRONG>(на фото),&nbsp;фронтмен группы <STRONG>THE ALMIGHTY</STRONG>.</FONT></P>
+<P><STRONG>Warwick</STRONG>, которому сейчас 44 года, замемил Фила Лайнота (<FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>Phil Lynott</STRONG>) в самой последней реинкарнации </FONT></FONT><B itxtvisited="1">THIN LIZZY</B>, примкнув к прежним участникам группы - Скотту Горэму (гитара,&nbsp;<B itxtvisited="1">Scott Gorham</B>), Браяну Доуни (ударные,&nbsp;<B itxtvisited="1">Brian Downey</B>) и Даррену Вортену (клавиши, <B itxtvisited="1">Darren Wharton</B>). Так же, в нынешний состав <STRONG>THIN LIZZY</STRONG> входят гитарист <B itxtvisited="1">DEF LEPPARD </B>Вивиан Кэмпбелл (<B itxtvisited="1">Vivian Campbell</B>) и бывший басист <B itxtvisited="1">WHITESNAKE</B> Марко Мендоза (<B itxtvisited="1">Marco Mendoza</B>).</P>
+<P>Первый концерт европейского тура состоялся 6 января в <STRONG>Aberdeen Music Hall</STRONG>, Англия.</P>
+Автор: Headcrusher
+
+### 27.07.2011 news Portnoy будет работать с Sykes
+
+<P>Бывший барабанщик<STRONG> DREAM THEATER Mike Por</STRONG>tnoy и гитарист/вокалист <STRONG>John Sykes</STRONG> (<B>WHITESNAKE</B>, <B>BLUE MURDER</B>, <B>THIN LIZZY</B>) объявили о создании нового проекта. Пока не названо имя басиста этого трио, но новообразованный коллектив уже записывает музыку в студии в Лос-Анджелесе.</P>
+<P><STRONG>Portnoy </STRONG>назвал музыку смесью <STRONG>LED ZEPPILIN, BLACK SABBATH, PINK FLOYD</STRONG> и <STRONG>DEEP PURPLE</STRONG>.</P>
+<P><center><IMG height=600 src="/images/news_rus/2011.07/20332.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

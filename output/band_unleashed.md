@@ -314,6 +314,482 @@ Composition Rickard Albinsson
 * C группой "Firespawn" Fredrik Folkare (guitar)
 * C группой "Siebenburgen" Fredrik Folkare (guitar)
 
+## Публикации
+
+### 21.03.2001 news Реинкарнация UNLEASHED...
+
+<p>Шведская death metal легенда - UNLEASHED реформировались и планируют запись нового студийного альбома уже до конца 2001. Это будет первое творение после "Victory" 1995 года. Уже достигнуто соглашение с Century Media Records, так же в планах переиздание ранних "классических" творений во многом повлиявших на формирование современного death металла.</p>
+
+Автор: Yermola
+
+### 21.03.2001 news UNLEASHED have reportedly reformed....
+
+<p>Swedish death metal legends UNLEASHED have reportedly reformed and are planning on releasing a brand new studio album (the group’s first since 1995’s Victory) at the end of this year or in early 2002. This surprising development coincides with Century Media Records’ plans to reissue some of the group’s early recordings, several of which are still considered to be among the genre’s all-time classics. The following is a part of "open letter" to the group's fans written by UNLEASHED bassist/vocalist Johnny Hedlund regarding the upcoming re-issues: "Way back then, in the mid ‘80s, when death metal was still not a commercial form of music, I can assure you folks that there were far more death metal parties to attend than concerts. Death metal was more a lifestyle than anything else really. Bands formed all around the world and traded tapes and shirts with one another. Obviously, the ultimate goal would be to record a full-length album and go on tour to meet all the people you've been writing letters to all these years..."</p>
+
+Автор: Yermola
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads....
+
+<p><font size="2" face="Arial, Helvetica, sans-serif">...And Oceans - <a href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</a><br> Avantasia - <a href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</a><br> Dark Tranquillity - <a href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</a><br> Into Eternity - <a href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</a><br> Lacuna Coil - <a href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</a><br> Nocturnal Rites - <a href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</a><br> Rotting Christ - <a href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</a><br> Shadows Fall - <a href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</a><br> Unleashed - <a href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</a></font><br> <SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif">Yakuza - <a href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</a></font></SPAN></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads...
+
+<P><FONT face="Arial, Helvetica, sans-serif" size=2>...And Oceans - <A href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</A><BR>Avantasia - <A href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</A><BR>Dark Tranquillity - <A href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</A><BR>Into Eternity - <A href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</A><BR>Lacuna Coil - <A href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</A><BR>Nocturnal Rites - <A href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</A><BR>Rotting Christ - <A href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</A><BR>Shadows Fall - <A href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</A><BR>Unleashed - <A href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</A></FONT><BR><SPAN style="FONT-FAMILY: Arial"><FONT face="Arial, Helvetica, sans-serif" size=2>Yakuza - <A href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</A></FONT></SPAN></P></>
+
+Автор: Yermola
+
+### 20.05.2004 news UNLEASHED выпускают новый альбом
+
+<P>Новый альбом <B>UNLEASHED</B> будет называться <B>"Sworn Allegiance" </B>и выйдет 26 июля на <B>Century Media</B>. Трэк-лист:</P>
+<P>01. <B>Winterland</B><BR>02. <B>Destruction (Of The Race Of Men)</B><BR>03. <B>Only The Dead</B><BR>04. <B>The Longships Are Coming</B><BR>05. <B>Helljoy</B><BR>06. <B>Insane For Blood</B><BR>07. <B>I Bring You Death</B><BR>08. <B>Attack!</B><BR>09. <B>CEO</B><BR>10. <B>One Night In Nazareth</B><BR>11. <B>Praised Be The Lord</B><BR>12. <B>Metalheads</B><BR>13. <B>To Miklag&#229;rd</B><BR>14. <B>Long Live The Beast</B><BR></P>
+Автор: Vit Belov
+
+### 29.10.2004 reviews Популярный death-metal
+
+<P><STRONG>UNLEASHED</STRONG> играют популярный death-metal на своём седьмом альбоме. Популярный, в хорошем смысле слова. Их музыка заставит не только трясти башкой, но и «подпевать».</P>
+<P>14 разнообразных цепляющих композиций с интересными рифами, отличной ритм-секцией и, как это не странно звучит для death-metal, великолепным набором мелодий. Любители брутального death-metal могут смело пропустить этот альбом. Никакого gore- или grind Вы здесь не найдёте. Остальным, менее упёртым, любителям тяжёлой музыки советую послушать этот альбом. Не удивлюсь, если этот альбом оживит даже «героических» power-metal’истов, не говоря уже о любителях doom и thrash (это в особенности).</P>
+<P><STRONG>‘Sworn Allegiance’</STRONG> напомнил мне <STRONG>‘Massive Killing Capacity’</STRONG> от <STRONG>DISMEMBER</STRONG>. Такая же ритмичная «танцевальная» музыка с запоминающимися рефренами. Не думайте, что звучат <STRONG>UNLEASHED</STRONG> легко – это совсем не так, но что они не зацикливаются на одном – это точно.</P>
+<P>P.S.: Для любителей почитать тексты полезными будут пояснения группы, данные к каждой песне.<BR></P>
+Автор: Vit Belov
+
+### 08.11.2004 articles TOP-50 лицензионных дисков по продажам за октябрь 2004 года*
+
+<TABLE cellSpacing=0 cellPadding=0 width=700 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 213pt; mso-width-source: userset; mso-width-alt: 10386" width=284>
+<COL style="WIDTH: 216pt; mso-width-source: userset; mso-width-alt: 10532" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 213pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=284><STRONG><FONT face=Arial size=2>RAMMSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 216pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=288><STRONG><FONT face=Arial size=2>REISE REISE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>BMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>RHAPSODY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SYMPHONY OF ENCHANTED LANDS, PART II</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DARKTHRONE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SARDONIC WRATH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>STORMWARRIOR</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NORTHERN RAGE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>FEINSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THIRD WISH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PUNGENT STENCH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMPEAUTY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHAPE OF DESPAIR</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ILLUSION'S PLAY</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>9 (19)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THROES OF DAWN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DOWN BELOW</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SILENT WINGS:ETERNITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>11 (6)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHITE SKULL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE XIII SKULL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWALLOW THE SUN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE MOURNING NEVER CAME</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VICTOR SMOLSKI</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAJESTY AND PASSION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BENEATH THE SHINING WATER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (3)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAKE OF TEARS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>18 (27)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>19 (15)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>20 (17)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>OCEAN MACHINE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>22 (30)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B (2 CD +<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>slipcase)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHAMBER</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MILES AWAY - A PREMONITION OF SOLITUDE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PAIN OF SALVATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="BE "><FONT size=2><FONT face=Arial>BE<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SPASTIC INK</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INK COMPATIBLE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNLEASHED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWORN ALLEGIANCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HEART</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>JUPITER's DARLING</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>29 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA:GLUT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>31 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LACUNA COIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>COMALIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (7)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALTARIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIVINITY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (2)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SAXON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LIONHEART</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>34 (16)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>35 (11)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNHEILIG</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS 2 GEBOT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MONSTERS OF METAL</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE ULTIMATEL METAL COMPILATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (8)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>39 (43)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE + WISH I HAD AN ANGEL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANOREXIA NEVROSA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRUDENHAUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALAN PARSONS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>A VALID PATH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEAD SOUL TRIBE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE JANNUARY TREE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PHYSICIST</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>GRAVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIENDISH REGRESSION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AYREON</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRACONIAN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHERE LOVERS MOURN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOKEN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PUNCH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ESTAMPIE</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIGNUM</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (32)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>*по результатам продаж в магазине 'Metal&Progressive' в Рубине</P>
+Автор: Vit Belov
+
+### 30.06.2005 news UNLEASHED отснимут DVD
+
+<P><STRONG>UNLEASHED</STRONG> будут снимать концертное DVD на <STRONG>With Full Force Open Air</STRONG> в Германии. Никаких подробностей пока не сообщается.</P>
+Автор: Vit Belov
+
+### 30.06.2005 news UNLEAHED will record DVD
+
+<P><STRONG>UNLEASHED</STRONG> will record live-DVD at <STRONG>With Full Force Open Air</STRONG> in Germany Friday, July, 1. Mo info later.</P>
+Автор: Vit Belov
+
+### 03.04.2006 news UNLEASHED в студии!
+
+<P align=justify><STRONG>Johnny Hedlund</STRONG> (басс, вокал) опубликовал следующее сообщение на сайте группы:</P>
+<P align=justify>"<STRONG>UNLEASHED</STRONG> сейчас находятся в студии, и заканчивают препродакшен восьмого альбома. Я уверен что этот альбом будет лучшим в нашей дискографии. Наша миссия заключается в том, чтобы создать одну из самых значимых записей в истории <STRONG>Death Metal</STRONG>!!!"<BR></P>
+<P><BR>&nbsp;</P>
+Автор: Bizarre
+
+### 20.07.2006 news Новый альбом UNLEASHED выйдет на SPV
+
+<P><B>UNLEASHED</B> на SPV - новый альбом родоначальников скандинавского Death Metal!<BR><BR><B>Джонни Хедлунд</B> и его бригада варят медовуху - новый альбом группы, <B>"Midvinterblot"</B>, выйдет осенью. Свежеиспеченная сделка с одним из крупнейших игроков музыкального рынка -<B> SPV/Steamhammer</B> - позволит диску найти слушателя даже в самых недоступных уголках земного шара.<BR><BR>Мастерство, артистизм и увлечение суровой культурой викингов во все времена отличали <B>UNLEASHED</B> от большинства коллег по цеху. И на восьмом по счету полноформатнике шведские музыканты лишь усилили проверенную годами формулу. <I>"Вас ожидает самый мощный релиз в истории дэт-метала! </I>- говорит <B>Хедлунд</B>. -<I> Сотрудничество с <B>SPV</B> открывает для нас новые двери. Мы уверены, с выходом <B>"Midvinterblot"</B> в мире экстремальной музыки настанет новая эпоха - эпоха воина!"</I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>Известно, что группа планирует мировое турне в конце 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков) </P>
+<P><BR><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 20.10.2006 reviews Death Metal - no compromise!
+
+<P>46 минут бескомпромиссного дэт-метала - вот что предлагают нам на своем уже восьмом студийнике под названием "Midvinterblot" шведы Unleashed. Прошло уже примерно 16 лет&nbsp;с того момента, когда вокалист и басист Джонни Хэглунд оставил Nihilist и основал Unleashed. За эти годы группа стала одной из ведущих команд шведской "смертельной" сцены. Новая работа квартета отнюдь не является тупым долбиловом, как это нередко бывает у их коллег по жанру. Перебравшись на новый (и довольно "жирный") лэйбл Steamhammer/SPV, группа сразу взяла быка за рога и выдала отличный образчик тяжелой музыки. Дэт-метал как он есть, без всяких модных веяний, но зато с трэшевыми риффами в более быстрых вещах и отточенными соляками, мощным (но без надрыва) гроулом, разнотемповыми вещами, плотной стеной звука. Две первые песни, 'Blood Of Lies' и 'This Is Our World Now', это настоящий дэтовый ад, и они задают настроение на весь альбом. Отличной получилась и заглавная вещь, эдакий дэтовый марш (здесь они мне почему-то напомнили их польских коллег Vader). Да, старички не подкачали, и фраза из&nbsp;рефрена песни 'In Victory Of Defeat' 'death metal - no compromise!' наиболее точно отражает суть данной работы. До конца года остается немногим более двух месяцев, и Unleashed со своим "Midvinterblot" делают серьезную заявку на один из лучших альбомов жанра в 2006-ом.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 03.12.2006 articles TRAIL OF TEARS надорвались в Мексике - UNLEASHED будут в death-metal ещё 15 лет - Секреты Yngwie Malmsteen
+
+<P><EM><IMG height=327 alt="" hspace=0 src="/images/articles_rus/2006.12/11013.jpg" width=400 align=left border=5>TRAIL OF TEARS надорвались в Мексике</EM></P>
+<P>На прошлой неделе появились сообщения о распаде норвежской группы TRAIL OF TEARS. Правда, само сообщение об этом событии на официальном сайте группы было несколько странным. Сообщалось, что группу покинули практически все участники, и из-за этого коллектив распался. Но ведь надо кого-то покинуть, а кого покидать, если группа не существует. Оказалось, есть ещё одна сторона у этого события, вокалист-основатель Ronny Thorsen, который чуть позже также выступил через официальную страничку TRAIL OF TEARS. В своём сообщении Ronny признался, что ему нелегко говорить о ситуации в группе, но он вынужден это делать, чтобы пресечь слухи, циркулирующие вокруг. «26 ноября группа закончила своё десятидневное турне по Мексике», - начинает Ронни. «Этот тур был очень неудачно организован, и все, кто принимали участие в нём, потеряли деньги. В результате я был вызван в отель 28 ноября, где остальные музыканты группы заявили, что, из-за сложившейся ситуации, они прекращают деятельность TRAIL OF TEARS немедленно. Это решение было принято без моего участия, поэтому я заявляю, TRAIL OF TEARS НЕ ПРЕКРАЩАЮТ СВОЕГО СУЩЕСТВОВАНИЯ, а возродятся в новой форме и составе». Ронни рассказывает, что пытался договориться с музыкантами, но ничего не вышло. Он даже предлагал возместить коллегам тысячные убытки из собственного кармана, но всё было бесполезно. Лидер TOT возмущается непреклонностью бывших коллег, которые кинули своим решением не только его, но и лэйбл, который выпускает новый альбом “Existentia” и не будет иметь должной раскрутки, из-за отсутствия концертов, фэнов и многих других. Нам же остаётся только всплеснуть руками и удивиться. Даже группы, крепкие европейские середнячки, вынуждены вкладывать собственные деньги для раскрутки собственных имён. Что уж говорить о наших соотечественниках и наших лейблах.</P>
+<P><EM><IMG height=267 alt="" hspace=0 src="/images/articles_rus/2006.12/11014.jpg" width=400 align=right border=5>UNLEASHED будут в death-metal ещё 15 лет</EM></P>
+<P>Новый альбом легендарных шведских дэтстеров UNLEASHED “Midvinterblot” вышел совсем недавно на SPV/Союз. Чтобы сообщить некоторые подробности о настоящем положении дел в UNLEASHED, мы обратили внимание на интервью, данное басистом/вокалистом группы Johnny Hedlund журналу Voices From The Darkside. Джонни предстал несколько уставшим от происходящего (интервью с ночи до утра) и, первым делом, рассказал о недавнем трёхлетнем отпуске группы. «Нам был необходим этот перерыв после 8 лет непрерывного тура и записей. Главное, что с выпуском новых пластинок мы стали сильнее, и этот отпуск пошёл нам на пользу», - говорит Джонни. «Я верю, что UNLEASHED – группа будущего death-metal. Я думаю, мы переведём стиль на новый уровень. Мы хорошо отдохнули, и организация нашего дела позволяет нам говорить о следующих 15 годах плодотворного существования группы. Мне кажется, у нас множество возможностей развивать стиль, не выходя за его рамки. Использование агрессии, мрачности… Трэшовые риффы тоже не говорят о предательстве дэт-металлической стилистики». На новейших альбомах UNLEASHED сменили продюсера. Они покинули знаменитого в 90-х годах Waldemar Sorychta, и продюсированием пластинок, начиная с “Hell’s Unleashed”, занялся гитарист группы Fredrik Folkare. Мы сменили Вальдемара потому, что хотели получить другой звук. Все идеи по звучанию наших работ исходят от Фредерика, он главный в группе в этом вопросе. Часы его работы не пропали даром. Я считаю, что его результаты гораздо лучше, чем у Сорихты», - объясняет Джонни. Группы-ветераны, такие, как UNLEASHED, в которых музыканты перешагнули уже 30-летний рубеж, обзавелись семьями, детьми, всё равно продолжают работать в этом бизнесе. Что меняется, когда проходит столько времени? Отвечает Джонни: «Конечно, у всех разные истории. Но главное в том, что приходится оплачивать больше счетов, появляется больше обязанностей. Я, например, работаю финансовым директором, и это отнимает много времени. С другой стороны есть и плюсы. Я теперь получаю большее удовольствие от живых выступлений. Не волнуюсь, из-за оборудования, из-за нерадивых инженеров, которые плохо делают свою работу. Я просто играю и пою наши песни с сотнями друганов по всему миру. Люди, которые устали от секса, должны просто послушать death-metal». Мне думается, поэтому Джонни и планирует свою деятельность в death-metal на 15 лет вперёд.</P>
+<P><EM><IMG height=277 alt="" hspace=0 src="/images/articles_rus/2006.12/11015.jpg" width=200 align=left border=5>Секреты Yngwie Malmsteen</EM></P>
+<P>Что-то захотелось нам вспомнить о шведском виртуозе Yngwie Malmsteen. Ингви дал интервью австралийскому журналу X-Press Online, в котором рассказал немного о своём «звёздном» творчестве. «Я был младшим ребёнком в семье», - начинает господин Мальмстин свою историю. «У меня были старший брат, старшая сестра. У меня были мама, папа, дяди, тёти…», - продолжается повествование. «…Все родственники – музыканты. Мой дедушка был барабанщиком! Это, как музыка, музыка, музыка везде… Музыка и искусство!». Мама дала маленькому Ингви гитару, когда ему исполнилось пять лет. И понеслось. Когда ему было семь, он увидел Джимми Хендрикса по телевизору. Показывали, как он сжигает свою гитару. Это так увлекло маленького Мальмстина, что он запомнил точную дату чернокожего видения. 18 сентября 1970 года – день окончания борьбы за звание лучшего гитариста мира. Через год старшая сестра Лулу подарила начинающему музыканту альбом DEEP PURPLE “Fireball”. «Все влияния классической музыки на моё творчество пришло не от DEEP PURPLE. Все так считают, но это неправда. Эта группа - моя любимая. Но любовь к классике пришла не от них, а вот любовь к тяжёлой музыке от них. Как-то я увидел по телевизору парня-скрипача, который играл Паганини, и я подумал, вот то, что нужно сыграть на гитаре. Моё творчество на 99 процентов состоит из Паганини, Вивальди и Чайковского… Плюс немного Баха и тяжёлый звук». Триллер! Несчастный мальчик в семье, состоящей из одних музыкантов, с дедушкой-барабанщиком, с кучей дядь и тёть, и, главное, с телевизором, где услышал Паганини первый раз только лет в восемь-десять. Вот как происходят генетические нарушения, дающие миру таких гениев, как Ингви Мальмстин! «Первым концертом, который я посетил в своей жизни, стало шоу Ritchie Blackmore’s RAINBOW в составе: Dio, Blackmore, Powell… Я был в шоке. Позже я работал с Кози Пауэллом на альбоме “Facing The Animal”. Ian Paice из DEEP PURPLE отличный музыкант, но Кози… Он был, как несущийся поезд». Выводом из всей этой истории стали поучительные напутственные&nbsp; слова, адресованные будущим поколениям. «Продолжайте работать! Не знаю, как выразить словами. Работайте. Не могу выразиться точнее, но моя книга расскажет об этом лучше». В остальных словах Ингви запугивает поколение матерными словами и туманными перспективами. В книге, которая, к сожалению, пока недоступна российским гитаристам, наверняка всё рассказано более точно. Так что будем ждать. Мой же совет гитаристам: побольше смотрите телевизор, желательно на канале «Культура», или «Спорт» на худой конец, заимейте дедушку-барабанщика, можно не родного, и, главное, запоминайте все вехи своей биографии, чтобы рассказать потомкам.</P>
+Автор: Vit Belov
+
+### 19.12.2006 news Вышел новый номер ALIVE #4 (26), 2006!
+
+<IMG height=339 alt="" hspace=50 src="/images/news_rus/2006.12/11107.jpg" width=250 align=right border=0>Вышел новый номер ALIVE #4 (26), 2006!<BR><BR>В этом номере ALIVE вы сможете прочитать о <B>RAMMSTEIN, RHAPSODY, AUDIOSLAVE, HELLOWEEN, LAKE OF TEARS, HADES, THE ARROW, UNLEASHED, WALTARI, "ФАКТОР СТРАХА", DIAMOND NIGHTS, END OF YOU, YENZ LEONHARDT</B> и <B>ENS COGITANS</B>.<BR><BR>Помимо изменений в дизайне и верстке, с этого номера журнал стал более разнообразным: наряду с интервью и рецензиями в журнале появились аналитические материалы, авторские колонки, эссе, а также возрождены парочка "старых" рубрик - Fire & Ice и Kulture Klub.<BR><BR>Традиционные разделы новостей и рецензий на CD и DVD дополнены обзором наиболее интересных кинолент последних месяцев (Kulture Klub).<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR>
+Автор: Ixtiandr
+
+### 05.01.2007 reviews Нордическая суровость
+
+<P>Коммерческие приемы и элементы, по полной программе проявляющиеся в творчестве коллективов исполняющих шведский дэт метал, нисколько не коснулись ветеранов сцены Unleashed. Новая работа группы “Midvinterbolt” – жесткий дэт с элементами трэша, без всяких намеков на приставку «мелодик». Тяжелые, скоростные риффы, навороченные соляки, характерный вокал – все в лучших традициях жанра. Трэшевые элементы в духе Slayer-Sodom только добавляют звучанию интересную окраску и делают музыку более разнообразной. От себя могу добавить, что пластинка реально цепляет, что для дэтового релиза 2006 года, выдержанного в олдскульных традициях, уже более чем неплохо. Рынок металлической музыки сейчас переполнен, и выпустить по-настоящему интересный альбом удается немногим. Шведы Unleashed в их числе. Отличная работа!</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 26.12.2007 news UNLEASHED готовы к записи
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>UNLEASHED</STRONG> сочинили песни для нового альбома и войдут в студию в январе 2008 года. Дата релиза, названияальбома и песен пока неизвестны.</FONT></P>
+Автор: Vit Belov
+
+### 21.01.2008 news Название нового UNLEASHED
+
+<P><STRONG>UNLEASHED</STRONG> назвали свой новый альбом <STRONG>"Hammer Battalion". </STRONG>Пластинка выйдет в этом году на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.03.2008 news UNLEASHED начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>UNLEASHED</STRONG> вощли в студию для записи девятого альбома <STRONG>"Hammer Battalion", </STRONG>который выйдет в этом году на <STRONG>SPV</STRONG>. Ориентировочный трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>The Greatest Of All Lies</B><BR>02. <B>Long Before Winter's Call</B><BR>03. <B>Your Children Will Burn</B><BR>04. <B>Hammer Battalion</B><BR>05. <B>This Day Belongs To Me</B><BR>06. <B>Marching Off To War</B><BR>07. <B>Entering The Hall Of The Slain</B><BR>08. <B>Black Horizon</B><BR>09. <B>Carved In Stone</B><BR>10. <B>Warriors Of Midgard</B><BR>11. <B>Midsummer Solstice</B><BR>12. <B>Home Of The Brave</B><BR>13. <B>I Want You Dead</B><BR></FONT></P>
+Автор: Vit Belov
+
+### 03.04.2008 news Дата релиза UNLEASHED
+
+<P><STRONG>UNLEASHED </STRONG>назначили датой релиза своего нового альбома <STRONG>"Hammer Battalion" </STRONG>9 июня. Пластинка выйдет на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.04.2008 news Новые песни UNLEASHED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что 9 июня на <STRONG>SPV</STRONG> выходит новый альбом<STRONG> UNLEASHED</STRONG> "<STRONG>Hammer Batallion</STRONG>". Группа выложила в сеть две новых песни, которые вы можете послушать на нашем сайте.</FONT></P>
+Автор: Vit Belov
+
+### 28.05.2008 reviews Шведские молот(к)обойцы опять с заявкой на победу
+
+<P>Вот уже почти двадцать лет шведские дэт-металисты Unleashed (можно перевести как "спущенные с привязи") остаются верными выбранному раз и навсегда жанру. И ведь за эти годы состав группы практически не претерпел изменений, трое из квартета, Johnny Hedlund (voc, b), Tomas Masgard (g) и Anders Schultz (dr), играют там с момента основания, а такие постоянства многого стоят. Девятый студийник шведов, "Hammer Battalion", целиком и полностью оправдывает своё название. Брутальные и мелодичные - насколько это возможно в рамках жанра - шведы каждым номером с альбома словно вколачивают огромным молотком свои злобные риффы в голову слушателя, не опускаясь при этом до бестолкового долбилова. Гитарные сольные проходы красивы и логичны, звериный рычащий вокал зубаст и клыкаст, а ритм-секция чётко и ярко выполняет отведенную ей роль. Риффы порой похожи на работу пулемёта (послушайте, к примеру, 'Marching Off To War'). Многим, возможно, кажется, что подобных релизов тьма-тьмущая, однако опытное ухо сразу отделяет зёрна от плевк..., простите, от плевел. Музыкальная картина одновременно мощная и яркая, тяжелая и прозрачная. И даже отъявленный скептик не станет отрицать, что участники Unleashed вкладывают всю душу, всё сердце в свою музыку. Как сказал Джонни Хэдлунд про новую пластинку, "our music is a way of life", и с этим трудно поспорить. Среди чёртовой дюжины номеров с "Hammer Battalion" трудно выделить какие-то отдельные вещи, эта пластинка практически без слабого материала, и если та или иная песня вам понравится больше, то это уже будет просто дело личных пристрастий. Честно говоря, даже удивительно, что сегодня в жанре можно выпускать такие сильные альбомы, ведь, казалось бы, всё уже сыграно-переиграно, тем более в шведском дэте, а вот поди ты... Пока за первые пять месяцев этого года данный релиз является одним из главных кандидатов на альбом-2008 в жанре. Уверен, что с "Hammer Battalion" Unleashed еще прочнее закрепились под мощным крылом Steamhammer/SPV, и нам лишь остается ждать, чем ответят конкуренты - а у&nbsp;них теперь задача не из простых.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 15.07.2008 reviews UNLEASHED забуксовали
+
+<P>Шведы UNLEASHED выпустили свой девятый альбом. В сопроводительных промо-интервью, которые музыканты раздавали перед выпуском этой пластинки, они рассказывали о том, что на их долю достанет интересного материала, чтобы играть death-metal до конца жизни. Прослушав “Hammer Battalion”, посмею усомниться в этом их утверждении.</P>
+<P>Последние альбомы группы, честно говоря, меня радовали. Обозреваемая пластинка выполнена в том же ключе, что “Sworn Allegiance” и “Midvinterblot”. Забойные риффы, прямолинейные мелодии, «качовая» ритмичность. Особенно отмечу работу соло-гитариста. Все проигрыши на этом альбоме выполнены на очень высоком уровне. К плюсам пластинки можно отнести и не слишком высокую длительность отдельных трэков, «куски мяса» не успевают надоесть, и песня сменяет песню с нужной частотой. Однако же, как я уже написал, позволю себе не согласиться с большинством ораторов. Альбомы UNLEASHED становятся с каждым разом чуть хуже. “Hammer Battalion” уступает предшественникам, на нём недостаточное количество «хитового» запоминающегося материала. Несмотря на частую смену темпа, откладываться в памяти новые песни UNLEASHED не спешат. Я редко заглядываю в тексты, но в этот раз не удержался. Вокалист коллектива Джонни описывает свои шедевры, один из которых посвящён расследованию и поиску реальной даты рождения Иисуса Христа. В том смысле, что если вас даже обманули с датой рождения вашего Бога, о чём мы можем говорить. Честно говоря, подобные темы песен наталкивают на мысль о некоторой вымученности всего материала. Лирику ребятам сочинять уже надоело.</P>
+<P>Мне очень понравился альбом UNLEASHED 2004 года. “Hammer Battalion” не оставил сколько-нибудь заметного следа в моей памяти. Надеюсь, я ошибаюсь, но, в отличие от Ихтиандра, я не прогнозирую группе долгой и счастливой старости.</P>
+Автор: Vit Belov
+
+### 26.07.2009 news UNLEASHED на Nuclear Blast
+
+<P><STRONG>UNLEASHED </STRONG>подписали контракт на выпуск нового альбома с Nuclear <STRONG>Blast</STRONG>. Пластинка выйдет в октябре/ноябре этого года.</P>
+Автор: Vit Belov
+
+### 29.11.2009 news UNLEASHED начали запись
+
+<P><STRONG>UNLEASHED</STRONG> вошли в студию своего гитариста <STRONG>Fredrik Folkare </STRONG>для записи десято альбома, который выйдет в начале будущего года на <STRONG>Nuclear Blast</STRONG>. Музыкально эта работа станет логическим продолжением двух предыдущих пластинок.</P>
+Автор: Vit Belov
+
+### 18.12.2009 news UNLEASHED назвали альбом
+
+<P><STRONG>UNLEASHED</STRONG> записывают новый альбом для релиза на<STRONG> Nuclear Blast</STRONG> в начале следующего года. Пластинка получила название "<STRONG>Yggdrasil Trembles</STRONG>".</P>
+Автор: Vit Belov
+
+### 02.02.2010 news Новая песня UNLEASHED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Десятый альбом <STRONG>UNLEASHED</STRONG> <STRONG>"As Yggdrasil Trembles" </STRONG>выйдет в начале 2010 года на <STRONG>Nuclear Blast</STRONG>. Новую песню <STRONG>"Wir Kapitulieren Niemals" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/nuclearblasteurope">http://www.myspace.com/nuclearblasteurope</A></FONT></P>
+Автор: Vit Belov
+
+### 09.02.2010 news Дата релиза UNLEASHED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Nuclear Blast</STRONG> определили дату релиза для нового альбома <STRONG>UNLEASHED</STRONG> <STRONG>"As Yggdrasil Trembles". </STRONG>Альбом выйдет 19 марта.</FONT></P>
+Автор: Vit Belov
+
+### 26.04.2010 reviews Играют ли UNLEASHED viking-metal?
+
+<P>Шведы UNLEASHED выпустили свой десятый юбилейный альбом, который стал первым выпущенным на Nuclear Blast. Эта легендарная группа продолжает своё существование, но сейчас для неё наступили нелёгкие времена. Проблемы у UNLEASHED в «голове». Всем известно, что эти музыканты стали одной из первых экстремальных групп, эксплуатирующих viking-темы в своём творчестве. В наши дни этот трэнд наконец получил должную коммерческую отдачу, но никто не воспринимает UNLEASHED как представителей этого направления.</P>
+<P>А UNLEASHED обидно! Они же уже давно в бизнесе. Теперь перед выпуском новейшего альбома “As Yggdrasil Trembles” лидер группы Johnny Hedlund больше рассказывал о своих языческих концепциях, а не о музыке. Честно говоря, о музыке и рассказывать было нечего. UNLEASHED уже несколько последних альбомов двигаются в заданном направлении. Группа оставляет в стороне UG death-metal забой и обращает своё взор на драйв и мелодии. Новый альбом коллектива один из самых «лёгких» и мелодичных в истории группы. Звучание его не слишком плотное, и это выдвигает на передний план мелодичные соло, которые всегда присутствовали на последних альбомах шведов, но выглядели раньше не столь вычурно. </P>
+<P>Переход на новый лэйбл не слишком помог UNLEASHED. Несолидно на третьем десятке менять своё звучание. Быть может, это некий неуклюжий реверанс в сторону любителей viking-metal, но эта задумка группы вряд ли принесёт ей шумный успех.</P>
+Автор: Vit Belov
+
+### 05.11.2011 news UNLEASHED записывают альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>UNLEASHED</STRONG> вошли в студию для записи своего одиннадцатого альбома, который выйдет весной на <STRONG>Nuclear Blast</STRONG>. Предыдущая работа музыкантов <STRONG>"As Yggdrasil Trembles" </STRONG>вышла в апреле 2010 года.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=299 src="/images/news_rus/2011.11/21845.jpg" width=450 border=0></FONT></P>
+Автор: Vit Belov
+
+### 25.01.2012 news UNLEASHED назвали альбом
+
+<P>Новый альбом <STRONG>UNLEASHED </STRONG>получил название "<STRONG>Odalheim</STRONG>". CD выйдет на<STRONG> Nuclear Blast</STRONG> 20 апреля. Пластинка была записана гитаристом шведов<STRONG> Fredrik</STRONG> в собственной<STRONG> Chrome Studios</STRONG>.</P>
+<P><center><IMG height=267 src="/images/news_rus/2012.01/22763.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 23.02.2012 news Обложка нового UNLEASHED
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.02/23115.jpg" width=475 align=right border=0>Новый альбом шведов<STRONG> UNLEASHED "Odalheim"</STRONG> выйдет 20 апреля на <STRONG>Nuclear Blast</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="67">Fimbulwinter</B><BR itxtNodeId="66">02. <B itxtHarvested="0" itxtNodeId="65">Odalheim</B><BR itxtNodeId="64">03. <B itxtHarvested="0" itxtNodeId="63">White Christ</B><BR itxtNodeId="62">04. <B itxtHarvested="0" itxtNodeId="61">The Hour Of Defeat</B><BR itxtNodeId="60">05. <B itxtHarvested="0" itxtNodeId="59">Gathering The Battalions</B><BR itxtNodeId="58">06. <B itxtHarvested="0" itxtNodeId="57">Vinland</B><BR itxtNodeId="56">07. <B itxtHarvested="0" itxtNodeId="55">Rise Of The Maya Warriors</B><BR itxtNodeId="54">08. <B itxtHarvested="0" itxtNodeId="53">By Celtic And British Shores</B><BR itxtNodeId="52">09. <B itxtHarvested="0" itxtNodeId="51">The Soil Of Our Fathers</B><BR itxtNodeId="50">10. <B itxtHarvested="0" itxtNodeId="49">Germania</B><BR itxtNodeId="48">11. <B itxtHarvested="0" itxtNodeId="47">The Great Battle Of Odalheim</B></P>
+Автор: Vit Belov
+
+### 08.03.2012 news Новая песня UNLEASHED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трек<STRONG> UNLEASHED&nbsp;"Rise Of The Maya Warriors"&nbsp;</STRONG>с выходящего альбома "<STRONG>Odalheim</STRONG>" можно послушать ниже. Альбом выйдет в апреле на<STRONG> Nuclear Blast</STRONG>.</FONT></P>
+<P><center><iframe width="100%" height="166" scrolling="no" frameborder="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F38893048%3Fsecret_token%3Ds-EQmOi&#038;show_artwork=true&#038;secret_url=true"></iframe></P>
+Автор: Vit Belov
+
+### 11.02.2015 news UNLEASHED: новый альбом &quot;Dawn Of The Nine&quot; в конце апреля
+
+<P>Шведские death metal воины <STRONG>UNLEAHSED</STRONG> возвращаются со своим новым альбомом под названием <STRONG>"Dawn Of The Nine"</STRONG>! </P>
+<P>Обложку для двенадцатого студийного диска <STRONG>UNLEASHED</STRONG>&nbsp;создал <STRONG>Par Olofsson</STRONG> (<A href="http://www.parolofsson.se/">www.parolofsson.se</A>).&nbsp;Дата выхода  <STRONG>"Dawn Of The Nine"</STRONG> запланирована на 24 апреля&nbsp;на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Трек-лист:<BR>01. A<STRONG> New Day Will Rise</STRONG> | 02. <STRONG>They Came To Die</STRONG> | 03. <STRONG>Defenders Of Midgard</STRONG> | 04. <STRONG>Where Is Your God Now?</STRONG> | 05. <STRONG>The Bolt Thrower</STRONG> | 06. <STRONG>Let The Hammer Fly</STRONG> | 07. <STRONG>Where Churches Once Burned</STRONG> | 08. <STRONG>Land Of The Thousand Lakes</STRONG> | 09. <STRONG>Dawn Of The Nine</STRONG> | 10. <STRONG>Welcome The Son Of Thor!</STRONG></P>
+<P>В качестве продюсера диска выступил <STRONG>Fredrik Folkare</STRONG> (гитарист <STRONG>UNLEASHED</STRONG>).</P>
+<P>Предзаказ&nbsp;альбома&nbsp;доступен по ссылке: <A href="http://bit.ly/UNLEASHED-DawnAlbum"><U><FONT color=#0000ff>http://bit.ly/UNLEASHED-DawnAlbum</FONT></U></A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.02/27629.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.05.2015 news UNLEASHED переиздадут 2 первые демо-записи на виниле
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Floga Records</STRONG> переиздаёт на виниле два первых демо&nbsp;(<STRONG>"The Utter Dark"</STRONG> и <STRONG>"Reveng..."</STRONG>)&nbsp;шведских дет-металлистов <STRONG>UNLEASHED</STRONG>. Релиз запланирован на 28 августа этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложка пластинки: <STRONG>Juanjo Castellano</STRONG> | <A href="http://www.facebook.com/juanjo.castellanorosado">www.facebook.com/juanjo.castellanorosado</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.05/28049.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Посоветуйте тройку лучших альбомов UNLEASHED

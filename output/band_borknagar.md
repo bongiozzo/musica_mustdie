@@ -221,6 +221,985 @@ Mixed and mastered at Fascination Street Studios in Orebro, Sweden.
 * C группой "ICS Vortex" Jens F. Ryland (guitar)
 * C группой "Artisan" Jens F. Ryland (guitar)
 
+## Публикации
+
+### 26.03.1999 news 
+
+<p>Borknagar пишут песни для своего нового альбома. Три песни уже написаны, а остальные будут готовы в скором будущем. Группа уже нашла несколько кандидатов на замену своих басиста и барабанщика Кая и Грима, но не хочет торопится с этим.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Borknagar не начнут запись нового альбома до конца года, так как их вокалист Симен будет гастролировать вместе с Dimmu Borgir. Смешная новость о группе: американский порно-журнал Hustler собирается написать статью о Borknagar, и даже пошлёт специального репортёра в Норвегию в мае.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Барабанщик Ник Бэйкер, известный по Dimmu Borgir и Сradle Of Filth, поможет Borknagar во время их тура, а также при записи следующего альбома.</p>
+
+Автор: Vit Belov
+
+### 25.08.1999 news 
+
+<p>Borknagar находятся в туре по США вместе с Emperor. По возвращении группа начнёт записывать новый альбом в Abyss Studio вместе с Питером Тагтгреном.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Borknagar нашли нового клавишника. Им стал Лазар из Solefald.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Совершил самоубийство ещё один музыкант. На этот раз это Грим (Эрик). Он известен по участию в группах Borknagar, Gorgoroth, Immortal, Ancient. Новости из лагеря Borknagar^ Ник Бэйкер не будет записывать с ними новый альбом, а уедет в Англию, где сконцентрируется на работе в Dimmu Borgir и Lock Up.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Borknagar нашли нового постоянного барабанщика. Его имя Асгейр. Сейчас группа репетирует в Осло с новым музыкантом, чтобы в январе войти в студию к Питеру Тагтгрену для записи новой пластинки.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Новый альбом Borknagar выйдет в мая и будет называться "Quintessence".</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>На 8-е мая на Century Media намечен релиз нового альбома Borknagar 'Quintessence'. По словам Oystein G. Brun'a этот альбом "определенно должен быть хорошим продолжением наших предыдущих работ". Вот трэк-лист альбома: 'Rivalry of Phantoms', 'The Presence is Ominus', 'Ruins of Future', 'Inner Landscape', 'Colossus', 'Genesis Torn', 'Invincible', 'Icon Dreams', 'Revolt' и 'Embers'.</p>
+
+Автор: Vit Belov
+
+### 16.06.2000 articles Квинтэссенция боркнагаровского бытия
+
+<p> Ойстен, по сравнению с предыдущими пластинками, Ваш новый альбом "Quintessence" заметно тяжелее, агрессивнее и быстрее. Почему Вы выбрали путь утяжеления своего звучания ?</p>
+<p> Это было естественным шагом с нашей стороны. После выхода альбома "The Arcaic Course" мы подумали, что будет самым лучшим в следующий раз сделать нечто свежее и спонтанное... и та агрессивность , о которой ты упомянул - это и есть последствия этого выбора.</p>
+<p> Ссылаясь на предыдущие Ваши работы, ты отметил, что у них есть некоторые слабые места; так какие они?</p>
+<p> Я имел ввиду быстрые части (я думаю, их было не достаточно в наших старых песнях). Во время записи двух ранних альбомов мы по существу не могли нормально играть! Я помню, как после записи последней песни для альбома "The Olden Domain", которая начинается с бласт-битов, мы сказали "какую же фигню мы сделали!". Со временем мы набрались опыта и "Quintessence" этому доказательство.</p>
+<p> Каковы по твоему мнению лучшие стороны на новом альбоме?</p>
+<p> Ой, я даже не знаю... Может быть "химическая реакция" среди музыкантов. Так же альбом хорош, в целом, и материал более зрелый по сравнению с предшествующими работами.</p>
+<p> Я думаю, что есть две вещи, которые в наибольшей степени характеризуют ваше звучание - это прекрасный голос Вортекса (Vortex) и сложные гитарные аранжировки. Ты согласишься со мной?</p>
+<p> Довольно тяжело анализировать вещи в такой ситуации... а Вортекс действительно обалденный вокалист.</p>
+<p> Сколько времени заняла аранжировка песен?</p>
+<p> Где-то два-три месяца.</p>
+<p> Альбом "Quintessence" был записан в студии Питера Тагтгрена (Peter Tagtgren) Abyss Studios. Какое влияние на вас оказал Питер в процессе записи?</p>
+<p> В действительности альбом был спродюссирован нами, в то время как Питер в основном работал как звукоинженер, помогая нам подобрать хорошее звучание, особенно для барабанов и гитар. У него замечательная студия: впервые мы смогли работать с людьми, которые действительно разбираются в подобной музыке и способны реализовать все наши потребности. Работать с такими профессионалами было большим удовольствием.</p>
+<p> Принимая во внимание то, что сейчас в Abyss Studios записываются много групп, не боялись ли Вы, что получите на альбоме обычное, уже стандартизированное звучание?</p>
+<p> В чем-то ты прав! Но мы имели весьма четкое представление о том, как альбом должен звучать. Еще нас успокаивал тот факт, что мы сами продюссируем альбом и поэтому делаем то, что хотим. Я думаю, что в результате все получилось лучше, чем на наших ранних работах. И я очень доволен результатом.</p>
+<p> Музыка каких групп послужила фундаментом для создания Вашей группы?</p>
+<p> Я вырос, слушая музыку таких групп, как Iron Maiden, Kreator, Metallica и Pink Floyd, а также классическую музыку.</p>
+<p> Какой музыке ты отдаешь предпочтение сейчас?</p>
+<p> В данный момент это новый альбом Smashing Pumpkins. Я бы не назвал его гениальным, но он мне нравится.</p>
+<p> А что ты думаешь о их нашумевшей пластинке "Adore"?</p>
+<p> Я думаю, что это превосходный альбом!</p>
+<p> Сменим тему: как Вы пишите Ваши песни?</p>
+<p> Обычно это я занимаюсь тем, что придумываю рифы, делаю простые аранжировки (часто используя для этого простую акустическую гитару) и записываю всё на ленту, добавляя компьютерные барабанные партии. Затем я даю послушать запись остальным членам группы, и мы начинаем работать над песнями вместе, так, что каждый может предложить свои идеи. Обычно конечный результат сильно отличается от стартовой идеи, благодаря участию каждого из нас. Я очень доволен результатом нашей работы, как хорошей группы. Мы очень много работали над звучанием и аранжировками.</p>
+<p> Вы, в большей степени, заботитесь о гитарных партиях или уделяете много внимания и другим инструментам?</p>
+<p> В основном я работаю над мелодическими и гармоническими основами, в том числе и над гитарными партиями.</p>
+<p> Что является Вашими основными источниками вдохновения?</p>
+<p> Я не могу ответить однозначно на этот вопрос. Возможно это совокупность различных факторов: эмоций, жизненного опыта, идей, взятых из книг....</p>
+<p> Есть ли на альбоме песня, появлению которой способствовало какое-то реальное событие?</p>
+<p> Нету...</p>
+<p> Новый альбом презентует также новый состав группы. Микельсон (Mickelson) весьма квалифицированный барабанщик: что ты думаешь о его работе с группой Spiral Architect?</p>
+<p> Я не люблю такую музыку, но в любом случае это интересный материал для его ультра-техники.</p>
+<p> Микельсон попал к Вам в группу, после того, как Вы услышали Spiral Architect или после обычного прослушивания?</p>
+<p> Наш второй гитарист рассказал нам о нем. До того момента я ничего не слышал о группе Spiral Architect, но мы связались с Микельсоном и на первой же репетиции увидели, что он классный барабанщик. Он принял наше предложение и проделал с нами в студии действительно огромную работу.</p>
+<p> По твоему мнению новый состав группы хороший?</p>
+<p> Конечно! Этот состав самый лучший со времен появления группы. Между всеми нами отличные взаимоотношения. И я думаю, что в этом же составе будет записан наш следующий альбом.</p>
+<p> Что означает название "Quintessence"?</p>
+<p> Если ты посмотришь в словарь, то увидишь, что это слово имеет различные значения. Его значение в полной мере выражено в нашей музыке.</p>
+<p> Что ты можешь сказать о таком пессимистичном названии, как "The Ruins of the Future"?</p>
+<p> Я даже не знаю... Это как бы взгляд в будущее человечества.</p>
+<p> Что означает слово "Borknagar"?</p>
+<p> Это слово не имеет конкретного значения. Если кто-то выбирает себе название с определенным значением слова, то он рискует повлиять на мнение потенциального слушателя еще до того, как он услышит музыку. Еще название группы может влиять на стиль музыки, ограничивая его. Мы же выбрали название "Borknagar" чтобы не устанавливать какие-либо границы вокруг себя и иметь возможность как музыканты делать то, что нам по душе.</p>
+<p> Вы уже запланировали турне в поддержку нового альбома?</p>
+<p> У нас пока нет еще конкретных планов: возможно, мы примем участие в нескольких летних фестиваля в Германии и собираемся принять участие в нескольких телевизионных шоу. Мы начнем планировать что-то лишь после того, как получим первые сведения о реакции нашей аудитории, чтобы знать, куда лучше всего отправиться с концертами.</p>
+<p> Какой самый странный случай произошел с тобой за твою карьеру?</p>
+<p> Вероятно, когда мы как-то раз выступали в США: во время выступления мы увидели в зале, среди народа, несколько индейцев!! Мы были в шоке!</p>
+<p> И последний вопрос: что способствовало тому, что ты стал музыкантом?</p>
+<p> Это была просто музыка. Она дала многие чувства, свойственные мне, чтобы погрузиться в этот мир, начав играть и писать. Это всё, ничего странного.</p>
+<p> Fulvio Araya</p>
+<p> перевод Nybras</p>
+<p></p>
+
+Автор: Nybras
+
+### 23.07.2000 news Mayhem собираются в турне в поддержку своего нового альбома
+
+<p> Mayhem собираются в турне по странам Европы в поддержку своего последнего альбома "Grand Declaration Of War". Вместе с Mayhem отправятся группы Borknagar, Red Harvest и Griffin. Первое их выступление состоится 8-го сентября в Нидерладнах, а последнее - 24-го числа этого же месяца во Франции. В ходе турне будет снято официальное видео.</p>
+
+Автор: Nybras
+
+### 11.08.2000 news Vortex уходит из Borknagar.
+
+<p> К сожалению, Borknagar вынуждены отменить запланированный европейский тур с Mayhem, Red Harvest и Griffin после того, как Simen Hestnaes (Vortex) решил полностью сконцентрироваться на Dimmu Borgir и заняться работой над их предстоящим альбомом. Остальная часть группы - все еще хорошие друзья с Simen ..., но теперь они заняты трудными поисками способного человека, кто сможет играть на басу, исполнять вокальные партии и будет на 100 % преданным Borknagar.</p>
+
+Автор: Morsus
+
+### 11.08.2000 news Vortex leaves Borknagar.
+
+<p> Unfortunately Borknagar had to cancel their scheduled European tour with Mayhem, Red Harvest and Griffin after Simen Hestnaes aka Vortex decided to fully concentrate on his duties with Dimmu Borgir and work on their forthcoming album. The rest of the band is still good friends with Simen... but now they is trying hard to find capable persons who can do the bass and vocals and are 100% dedicated to Borknagar.</p>
+
+Автор: Morsus
+
+### 22.08.2000 news Tyr - новый басист Borknagar.
+
+<p> Официально подтверждены ходившие слухи о том, что Tyr будет новым постоянным басистом Borknagar. Он уже был приглашенным музыкантом в Satyricon, а также играет в Emperor. В прошлые выходные Borknagar впервые репетировали с Tyr, и это получилось весьма хорошо. Группа все еще ищет нового вокалиста.</p>
+
+Автор: Morsus
+
+### 22.08.2000 news Tyr is the new bassist from Borknagar.
+
+<p> There were already some rumors, but now it's made official. Tyr is the new permanent bassist from Borknagar. He already was a session member for Satyricon and he also plays in Emperor. The band rehearsed last weekend for the first time with Tyr and the chemistry is very good. The band is still searching for a new vocalist.</p>
+
+Автор: Morsus
+
+### 08.10.2000 news Borknagar готовят новый альбом.
+
+<p> Borknagar закончили сочинение песен для следующего альбома. Он будет содержать приблизительно 10 композиций. Теперь остаётся репетировать материал и вносить заключительные поправки. Музыкально новый альбом будет продолжением "Quintessence", по-прежнему таким же тяжелым, но более мелодичным и с большим количеством акустических деталей. Альбом планируется записать в начале весны следующего года, но студия пока ещё не выбрана. Borknagar все ещё имеют проблемы с вокалистом, но в настоящее время ведутся переговоры с двумя заинтересованными кандидатами, так что всё вероятно будет улажено в не столь отдаленном будущем.</p>
+
+Автор: Morsus
+
+### 08.10.2000 news Borknagar prepare a new album.
+
+<p> Borknagar are finished with writing songs for the next album. It will contain about 10 songs. So what remains is that the band has to rehearse and do the final arrangements. Musically the new album is a continuation of "Quintessence", still as heavy but more melodic and more accoustic parts this time. The basic plan is to record the album early next spring, but no studio is booked yet. Borknagar still have the problems with vocalist, but the band is currently in contact with two highly interested candidates. Things will probably be settled in the not so distant future.</p>
+
+Автор: Morsus
+
+### 28.11.2000 news Borknagar представляют нового вокалиста.
+
+<p>Borknagar с гордостью представляют нового вокалиста. Вы не могли не слышать о нем прежде, поскольку его имя - Vintersorg! С этого дня он берет на себя обязанности нового постоянного вокалиста Borknagar. Сотрудничество основано на взаимных музыкальных интересах, общих взглядах и дружбе. Фэны группы Vintersorg при этом могут не волноваться, поскольку группа не прекращает своего существования и ей не наносится никакого ущерба.</p>
+
+Автор: Morsus
+
+### 28.11.2000 news Borknagar announce new vocalist.
+
+<p>Borknagar are proud to present new vocalist. You might have heard of him before, as his name is Vintersorg! From this day forth he will take on the duty of being the new permanent vocalist in Borknagar. The collaboration is based on mutual musical interests, visions and friendship. Fans of the band Vintersorg should not worry, as this will not interfere, stop or cripple this band in any way.</p>
+
+Автор: Morsus
+
+### 27.12.2000 news Номинирование Borknagar
+
+<p>Альбом норвежских блэк-металлеров BORKNAGAR номинирован как лучший металлический релиз 2000 года у себя на родине для Alternative music award. Вы можете проголосовать на сайте: http://www.alarmweb.org.</p>
+
+Автор: Yermola
+
+### 11.03.2001 news Более эпичный чем Quintessence...
+
+<p>В настоящий момент команда готовится к записи еще не названного полноформатника. Продюссером будет Borge Finnstad, а студия Fagerborg и Top Room studios. Finnstad был продюссером на альбоме MAYHEM "Grand Declaration of War". Говорит Oysten G. Brun: "Продюссирование на Declaration - просто невероятное!". Новый релиз будет также испытанием для вновьпришедших Tyr (bass) и Vintersorg (vocal).</p>
+
+Автор: Yermola
+
+### 11.03.2001 news Slightly More Epic Than Quintessence....
+
+<p>BORKNAGAR will record their yet-to-be titled album at the end of May. The band is set to work on their fifth full-length with co-producer Borge Finnstad at Fagerborg and Top Room studios. Finnstad handled the production duties for MAYHEM's Grand Declaration of War.<BR><BR>"I look forward to working with Borge Finnstad because he seems to be very professional and we have the best recording facilities available," said ringleader Oysten G. Brun. "Production wise we'll head for the best to date possible!" The new album is also the first release with newcomers Tyr (bass) and Vintersorg (vocals). "I am exited in the sense that it will be a great recording session," Brun confirmed. "I am fully convinced that the costellation will result in a killer album!" There are a myriad of new forces in the Borknagar camp, but Brun reaffirmed that the album will still retain the essence of Borknagar. "Nobody should be afraid that we'll do a sudden change of style or something," the guitarist said. "Compared to Quintessence it will be a bit more diverse. There will be a bit more of everything really. I think the new album will be slightly more epic than Quintessence, and a bit more complex as well. But how the final result comes out in the end of the day, we have to see as well."</p>
+
+Автор: Yermola
+
+### 14.03.2001 news Новости от Vintersorg...
+
+<p>Vintersorg практически заканчивает запись своего нового альбома 'Visions From The Spiral Generator'. Трек-лист: "E.S.P. Mirage (Visions From The Spiral Generator," "The Explorer," "Vem Styr Symmetrin," "A Metaphysical Drama," "Universums Dunkla Alfabet," "Spegelsfaren," и "Star-Guarded Coronation." Кроме того певец записал вокальные партии для нового альбома Borknagar: "Gods Of My World," "The Stellar Dome," "Liberated," и "The Black Canvas." И собственный и Боркнагаровский альбомы выходят до конца этого года.</p>
+
+Автор: Yermola
+
+### 14.03.2001 news The busy, busy life of Vintersorg...
+
+<p>Newly-appointed Borknagar vocalist Vintersorg has been very busy as of late. Napalm Records has just issued his fourth release, 'Cosmic Genesis,' and he is scheduled to play the Metal Meltdown in New Jersey in April, in addition to some select Canadian dates. He has also finished writing most of the next Vintersorg album, which is tentatively titled 'Visions From The Spiral Generator.' Some new songtitles include "E.S.P. Mirage (Visions From The Spiral Generator," "The Explorer," "Vem Styr Symmetrin," "A Metaphysical Drama," "Universums Dunkla Alfabet," "Spegelsfaren," and "Star-Guarded Coronation." Meanwhile, Vintersorg has finished writing vocal patterns for four new Borknagar songs: "Gods Of My World," "The Stellar Dome," "Liberated," and "The Black Canvas." New Vintersorg and Borknagar albums will be available by the end of the year...</p>
+
+Автор: Yermola
+
+### 18.05.2001 news Новый альбом BORKNAGAR
+
+<p> Borknagar начнет записывать их следующий, пока что без названия альбом 8 июня. На сей раз группа в качестве продюссера работает с Borge Finnstad. Именно он продюссировал последний альбом группы MAYHEM "Grand Declaration of War". Группа засядет в студию с двумя новыми музыкантами группы - это Tyr и Vintersorg. Уже известны названия некоторых вещей с альбома - это "The Genuine Pulse", "The Stellar Dome", "Gods of my World", "Liberated and Soul Sphere".</p>
+<p></p>
+
+Автор: Dimas
+
+### 18.05.2001 news Borknagar&#39;s new album
+
+<p>Borknagar will start recording their next, still untitled, album at the 8th of june. The album will be mixed in july. This time the band choose Borge Finnstad as co-producer. You might know him from the last Mayhem album (Grand Declaration of War). Borknagar will also use the same recording facilities called "Fagerborg" and "Top Room". This will be the first time that, both newcomers, Tyr and Vintersorg will appear on a Borknagar album. Songs that will appear on the album are: The Genuine Pulse, The Stellar Dome, Gods of my World, Liberated and Soul Sphere.</p>
+
+Автор: Dimas
+
+### 05.06.2001 news Получил название новый альбом Borknagar.
+
+<p> Пятый альбом Borknagar будет называться "Empiricism". В него войдут 9 новых песен общей продолжительностью около 45 минут. Порядок песен на альбоме пока ещё не определён, но известны названия : "Liberated", "Gods of My World", "The Stellar Dome", "The Genuine Pulse", "Inherit the Earth", "The Black Canvas", "The View of Everlast", "Soul Sphere" и "Four Element Syncronocity". Дата выхода также пока не известна.</p>
+
+Автор: Morsus
+
+### 07.06.2001 news The new album of Borknagar get name.
+
+<p> The fifth Borknagar album will be called "Empiricism". You can expect 9 great new songs with a total running</p>
+<p> time from about 45 minutes. The titles of the songs are, in no particular order: "Liberated", "Gods of My World", "The Stellar Dome", "The Genuine Pulse", "Inherit the Earth", "The Black Canvas", "The View of Everlast", "Soul Sphere" and "Four Element Syncronocity". There is no releasedate set yet.</p>
+
+Автор: Morsus
+
+### 04.07.2001 news Материализм и Эмпириокритицизм ... от BORKNAGAR
+
+<p>Вслед за бородатым основоположником марксизма-энгельсизма, порассуждать о эмпирицизме решились норвежцы "BORKNAGAR". Новый альбом на данную тему успешно пишется в Fagerborg/Top Room Studio в Осло. Общее время звучания будет 45 минут. Уточненный трек-лист выглядит следующим образом: 01. Liberated 02. Gods of My World 03. The Stellar Dome 04. The Genuine Pulse 05. Inherit the Earth 06. The Black Canvas 07. The View of Everlast 08. Soul Sphere 09. Four Element Syncronocity.</p>
+
+Автор: Yermola
+
+### 04.07.2001 news According to mainman Шystein, the recording process for the fifth BORKNAGAR album...
+
+<p>According to mainman Шystein, the recording process for the fifth BORKNAGAR album, Empiricism, at Oslo’s Fagerborg/Top Room Studio, is “running smoothly… It seems like the result will be way better than we dared to imagine, the sound is just amazing!". As previously reported, a total of nine songs with a running time of about 45 minutes are expected to be laid down, with the following song titles set to appear on the finished release: 01. Liberated 02. Gods of My World 03. The Stellar Dome 04. The Genuine Pulse 05. Inherit the Earth 06. The Black Canvas 07. The View of Everlast 08. Soul Sphere 09. Four Element Syncronocity. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 31.08.2001 news Готов новый альбом Borknagar
+
+<p> Работа над записью "Empiricism" подошла к концу. Альбом появится в Европе 22-ого октября на Century Media.</p>
+
+Автор: Morsus
+
+### 31.08.2001 news Borknagar has finished to record the new album
+
+<p> The recordings of "Empiricism" are finished. The album is due to be released through Century Media Records at the 22nd of October in Europe.</p>
+
+Автор: Morsus
+
+### 21.01.2002 reviews Очаровательный прогрессивный art-black metal
+
+<P>Очаровательный прогрессивный art-black metal. Почему black? Ну, во-первых, за былые заслуги, она уже ассоциируется просто-напросто, с black metal. Ну, а во-вторых, здесь часто слышен скриминг и отмороженные жужжащие риффы, хотя, я понимаю, что это не повод. А потому, на самом деле, никакой это, конечно же, не black metal. Но, как назвать все это - ума не приложу. Очень мелодичная интеллектуальная и многослойная микстура арт-роковых наворотов в виде некоторых гитарных заигрываний и соло hammond органа, фортепианными вставками, с гитарным death-black звучанием и с большим количеством чистого (Винтерсорговского) вокала. Звучит все достаточно оригинально и свежо. Думаю, группе удалось сказать определенное новое слово в музыке. Блестящий комплексный альбом из десяти полноценных вещей. Винтерсорг, на мой взгляд, очень удачно заменил Вортекса. Музыка не сделана по стандартам и это выгодно ее отличает средь современного изобилия подобной музыки. Чем больше слушаешь эту динамичную атмосферную музыку, тем больше она нравится, приобретая все большую красоту и осмысленность. Возможно, многим музыка покажется слишком обработанной и чрезмерно отполированной, но это звездная продукция, а потому должна быть на высочайшем уровне. Очень советую прослушать этот альбом, но предупреждаю, что многим старым фэнам группы такая музыка вряд ли понравится.</P>
+<P><EM><STRONG>Диск предоставлен фирмой <a href="http://www.fono.ru">ФОНО</a></STRONG></EM></P>
+Автор: Dimas
+
+### 22.01.2002 news Borknagar выпускают альбом, пишут новые песни и номинируются на музыкальные премии
+
+<p>Пятый альбом Borknagar "Empiricism" вышел сегодня в США. Специально для терпеливых американских фэнов, ждавших выхода альбома на два месяца дольше остальных, будет бонус - видео на песню "Inherit The Earth".<BR> В настоящее время Borknagar работают над материалом для следующего альбома, который пока ещё не имеет названия. Как говорит Oystein G. Brun: "Большинство материала уже написано и, по грубым прикидкам, поход в студию состоится осенью 2002 года. Мы собираемся воспользоваться той же самой студией и услугами того же звукоинженера, что и при записи "Empiricism". В музыкальном плане это будет продолжение последнего альбома."<BR> Помимо номинации в категории "лучший металлический альбом" премии Alarm, Borknagar также выдвинут на премию Spellemannsprisen в категории "хард-рок". Это самая солидная премия в Норвегии, существующая с конца шестидесятых годов. Другие претенденты - Dimmu Borgir и Emperor.</p>
+
+Автор: Morsus
+
+### 22.01.2002 news News from Borknagar
+
+<p>Borknagar's fifth release "Empiricism" is released in the USA today. The album includes a bonus for the patient American fans, who had to wait a couple of months for the release. A great video from the song "Inherit The Earth" is included.<BR> Borknagar is currently working on new material for the next album, which is still untitled, according to Oystein G. Brun. "Most of the material is written with the rough plan for studio time in autumn 2002. We intend to use the same studio and engineer as on Empiricism. Musically it will be a continuation of the latest effort."<BR> And if one nomination for best metal album isn't enough (Alarm awards), Borknagar is also nominated for the Spellemannsprisen in the Hard Rock catagory. This is the "biggest" award in Norway , and has existed since the late sixties. Other nominees are Dimmu Borgir and Emperor.</p>
+
+Автор: Morsus
+
+### 16.03.2002 news OTYG news
+
+<p>OTYG, the side project of VINTERSORG/BORKNAGAR vocalist Vintersorg and VINTERSORG guitarist Mattias Marklund, has been officially “put to sleep”, according to an official statement from the duo.</p>
+
+Автор: Dimas
+
+### 16.03.2002 news OTYG заморозили
+
+<p>По обоюдному официальному заявлению Vintersorg'a (вокалист VINTERSORG и BORKNAGAR) и Mattias Marklund'a (гитарист VINTERSORG), их сайд-проект OTYG заморожен на неопределенное времяв связи с отсутствием в настоящий момент полноценных идей и желания записывать подобную музыку.</p>
+
+Автор: Dimas
+
+### 20.05.2002 news Elitist Records c гордостью объявляют о подписании.....
+
+<p>Elitist Records c гордостью объявляют о подписании еще одной замечательной progressive / black / death-metal группы Lunaris. <BR> <BR> Родом из Норвегии, Lunaris включает участников Borknagar, 1349 и Spiral Architect. Однако это не "супер-группа" или "сайд-проджект". Lunaris - полноценный работающий музыкальный коллектив, со своими амбициями и планами. Группа закончила работу над своим дебютным альбомом "The Infinite", выход пластинки запланирован в августе месяце этого года.. <br>Альбом "The Infinite" был записан в составе - ударник Asgeir Mickelson (Spiral Architect & Borknagar), гитаристы Azarak (Spiral Architect и Satyricon) и M (также back-вокал), басист и вокалист Maztema (Spiral Architect), вокалист Balfori (ex-1349) и клавишник Ray. Однако, Mickelson уже ушел из группы, его заменил Janos Di Croce. Сейчас уже идет работа над несколькими песнями для следующего альбома, и Рэй обещал в будущем еще более технический и агрессивный подход к исполняемому материалу.</p>
+
+Автор: Yermola
+
+### 13.06.2002 reviews Art-black metal? Probably
+
+<p>Art-black metal? Probably. I don’t really like the way "Empiricism" was executed, however it doesn't matter afterall… This CD picks up where "Quintessence" left off, thus you know what to expect, huh? Of course, it’s more or less different and, therefore, artistic stagnation is no synonym for BORKNAGAR. By the way, what’s strangely enough, the replacement of Vortex with Vintersorg on vocals isn’t as evident as I expected it to be. All in all, a fine work of art within the bounds of black metal… even though I wouldn’t say I fell in love with it. Definitely not.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.10.2002 articles Новинки лицензионного рынка (21.10 - 28.10)
+
+<p>В данных заметках, мы постараемся доносить до Вас всё то, новое, что Вы можете обнаружить на прилавках магазинов на этой неделе. Оценок не ждите… Всё в рубрике рецензии.</p>
+<p> Начнём по алфавиту. ART Music Group на прошлой неделе представила на наш суд четыре новые позиции.<IMG SRC="/images/articles_rus/2002.10/3294.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> <IMG SRC="/images/articles_rus/2002.10/3295.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">Сенсацией стало появление на лицензии по вполне доступным ценам нового альбома Kingdom Come “Independent”. Можно не разбираться в рок-музыке прошлого века, но не знать этого коллектива нельзя. Оценивать новое творение, оставим специалистам, но не признать того, что Ленни Волф – новая величина на лицензионном рынке нельзя. Спасибо AMG! Второй новиной, по известности, стал новый альбом Mystic Circle “Damien”. На прошлом альбоме группа отошла от black в сторону death. Что сейчас? Читайте <a href=”http://musica.mustdie.ru/ru/band/mystic_circle/6603/#reviews”>здесь</a>. И две последние не вполне известные группы. Medusa со своим sympho-power и Inner Shrine с gothic-metal.</p>
+<p> CD-Maximum представят на этой неделе нашему вниманию две новинки. <IMG SRC="/images/articles_rus/2002.10/3296.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">.<IMG SRC="/images/articles_rus/2002.10/3293.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> Trollheim's Grott "Bizzare Troll Technology" – альбом 2001 года, анонсирован, как нестандартный black-metal. И новый альбом группы Arwen, представляющий собой power-metal с прогрессивными элементами. Эти испанцы из конюшни Arise Records, на которой могут быть, как очень хорошие группы, так и откровенно слабые, но всё равно любителям power стоит попробовать.</p>
+<p> Следом идёт Fono, со своими новинками прошлой недели. Во-первых, это новый альбом Rotting Christ. Если Вы ещё его не купили на пиратке, купите лучше на лицензии. И ещё одна новинка по лицензии Century Media Borknagar “Quintessence”. Альбом начала этого года уже стал редкостью на рынке пиратов. Вперёд black-metal!</p>
+<p> Irond Records – контора, у которой без новинок не проходит ни одна неделя.<IMG SRC="/images/articles_rus/2002.10/3297.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="left">.<IMG SRC="/images/articles_rus/2002.10/3298.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="right"> На этот раз настоящей бомбой станет новый альбом Lake Of Tears “Neonai”. Пускай его уже тысячными тиражами продают пираты, настоящий любитель ждёт именно этого релиза. Вторым по значению стал подарок фэнам немецкой folk музыки – новый альбом Morgenstern, которые продолжают гнуть свою “In Extremo” подобную линию. Два следующих релиза Frown и Poema Arcanus представляют собой практически идентичные альбомы в жанре doom-metal – тяжёлые и медленные. Ну и напоследок Abaddon Incarnate. Irond не стесняется указывать весьма средние оценки в прессе для этого альбома, ведь это death-grind “молотилово», кто его поймёт кроме самого преданного фэна.</p>
+<p> Ну и последними по алфавиту стали и, видимо, останутся Soyuz, которые продолжают разрабатывать ниву Inside Out Records. На этой неделе всё-таки выйдут два старых альбома Symphony X. А на прошлой появились три старых альбома My Dying Bride, и альбом Anathema “Silent Enigma” (это уже, естественно, Peaceville).</p>
+<p>Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 21.02.2003 news Jens F. Ryland ушёл из Borknagar
+
+<p>Гитарист Jens F. Ryland покинул Borknagar по причинам личного характера. Это ни коим образом не отразится на записи следующего альбома, которая начнётся, как и было запланировано, в середине марта в студии Toproom и продлится до конца июля. Альбом можно ждать к концу года.</p>
+
+Автор: Morsus
+
+### 21.02.2003 news Jens F. Ryland leaving Borknagar
+
+<p>Second guitarist Jens F. Ryland has decided to leave Borknagar. His decision is based on various personal reasons. This will have no effect on the recording of new album. Borknagar will start recording the album at Toproom Studios in mid- march and they will record sporadically till the end of July. Expect a late year release!</p>
+
+Автор: Morsus
+
+### 04.07.2003 news BORKNAGAR в студии
+
+<p>Норвежская формация BORKNAGAR продолжает тяжелую работу в Toproom и Fagerborg Studios с продюсером Borge Finstad (MAYHEM, SOLEFALD) над своим новым альбомом, выход которого ожидается в начале 2004 года на Century Media Records.</p>
+
+Автор: Dimas
+
+### 04.03.2004 news BORKNAGAR заканчивают новый альбом
+
+<P><B>BORKNAGAR</B> почти закончили запись нового альбома "<B>Epic</B>", который выйдет в июне на <B>Century Media</B>. В это время, из-за личных проблем, группу покинул басист <B>Tyr</B>. Все партии баса на альбоме исполнил барабанщик <B>Asgeir Mickelson.</B></P>
+Автор: Vit Belov
+
+### 07.04.2004 news Новый альбом BORKNAGAR
+
+<P>Новый альбом <B>BORKNAGAR 'Epic'</B> выйдет в июне-июле на <B>CENTURY MEDIA</B>. Трэк-лист:</P>
+<P>01. <B>Future Reminiscence</B> (5:26)<BR>02. <B>Traveller</B> (5:03)<BR>03. <B>Origin</B> (4:58)<BR>04. <B>Sealed Chambers of Electricity</B> (4:12)<BR>05. <B>The Weight of Wind</B> (3:58)<BR>06. <B>Resonance</B> (4:28)<BR>07. <B>Relate</B> (Dialogue)(4:28)<BR>08. <B>Cyclus</B> (5:25)<BR>09. <B>Circled</B> (4:45)<BR>10. <B>Inner Ocean Hypothesis</B> (5:10)<BR>11. <B>Quintessence</B> (5:31)<BR>12. <B>The Wonder</B> (4:16)<BR></P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 14.09.2004 articles TOP-50 продаж лицензионных компакт-дисков за июль-август 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=661 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 44pt; mso-width-source: userset; mso-width-alt: 2157" width=59>
+<COL style="WIDTH: 202pt; mso-width-source: userset; mso-width-alt: 9837" span=2 width=269>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2>1 (1)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>2 (2)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LEMURIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>3(3)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SIRIUS B</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269 x:str="DIO "><STRONG><FONT size=2><FONT face="Arial CYR">DIO<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>MASTER OF THE MOON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SOPOR AETERNUS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LA CHAMBRE D ECHO</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>FLOWER KINGS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>ADAM & EVE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ENSEFERUM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>IRON</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>THRESHOLD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SUBSURFACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ASIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SILENT NATION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>12 (4)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LOVELORN</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>JORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>OUT OF EVERY NATION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DREAM EVIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE BOOK OF HEAVY METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>METAL CHURCH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LACRIMAS PROFUNDERE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AVE END</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HAGGARD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>18 (8)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATROCITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATLANTIS + multimedia section</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DIABOLICAL BREED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>COMPENDIUM INFERNUS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BORKNAGAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPIC</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THERION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRIUS B & LEMURIA LTD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DARK TRANQUILLITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EXPOSURES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>23 (18)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EDGUY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>24 (11)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>FINNTROLL</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NATTFODD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>25 (26)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MONSTERS OF METAL - 2</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE ULTIMATE METAL COMPILATION (2 DVD)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MALEVOLENT CREATION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WARKULT</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>GRAVEWORM</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AS THE ANGELS… / ETERNAL WINDS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>28 (6)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AYREON</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>29 (30)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FLAMES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>30 (13)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SUSPERIA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UNLIMITED</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>32 (21)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AETERNITAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LA DANSE MACABRE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>33 (15)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CREMATORY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>REVOLUTION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DE/VISION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>6 FEET UNDERGROUND</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>35 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CATHARSIS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" x:str="ПРИЗРАЧНЫЙ СВЕТ +multimedia "><FONT size=2><FONT face="Arial CYR">ПРИЗРАЧНЫЙ СВЕТ +multimedia<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>KEVIN DUBROW (ex-QUIET RIOT)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FOR THE KILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DVAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>TAAI LIIRA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>VOODOO HILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WALTARI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>RARE SPECIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UMBRA ET IMAGO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MEMENTO MORI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MISANTHROPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SADISTIC SEX DAEMON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>42 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>RHAPSODY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE DARK SECRET EP</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>43 (9)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>MOTORHEAD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>INFERNO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>44 (12)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IMPERANON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>STAINED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SERAPHIM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>SHYLOCK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>WELCOME TO ILLUSION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>POWERQUEST</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NEVERWORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ASTARTE (DIMMU BORGIR)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SYRENS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>49 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THEATRES DES VAMPIRES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NIGHTBREED OF MACABRIA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>50 (32)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE 69 EYES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BLESSED BE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR></TBODY></TABLE>* - в магазин Metal&Progressive в ТВЦ Рубин
+Автор: Vit Belov
+
+### 28.09.2004 reviews Нетривиальный взгляд на black metal
+
+<P>На мой субъективный взгляд, стилистика black metal настолько гибка, что позволяет музыкантам идти на самые смелые эксперименты, оставаясь при этом в стилистических рамках. Достаточно вспомнить Arcturus, Solefald, Ulver, Peccatum и даже Opeth – группы совершенно разные, при этом каждая из них выстраивает свои причудливые музыкальные конструкции на едином для всех монолитном фундаменте black metal. </P>
+<P>Норвежская группа Borknagar, безусловно, относится к числу новаторов от блэка. Основной композитор группы, гитарист Ойстен Брюн активно внедряет в музыку Borknagar элементы скандинавского фольклора и прогрессива семидесятых. От альбома к альбому фольклора становится всё меньше, а прогрессивных веяний - всё больше, что, впрочем, идёт группе только на пользу: пластинки Borknagar разнообразны и не приедаются со временем. </P>
+<P>The Olden Domain – второй альбом группы. Не сказать, что это лучшее произведение Borknagar, всё-таки с фольковыми элементами случился явный перебор, да и звук, честно говоря, подкачал. Тем не менее, здесь есть, что послушать. Прежде всего – гитарную работу Брюна. Описывать то, что он проделывает со своей гитарой, я не стану, ибо занятие это неблагодарное. Как говаривал Фрэнк Заппа, «Writing about music is like dancing about architecture» - «Писать о музыке - всё равно, что танцевать об архитектуре». Но поверьте на слово, послушать это стоит. Человек чувствует гитару, факт. В целом, диск производит сильное впечатление. Нетрадиционные композиторские решения, интересная, я бы даже сказал, выпендрёжная игра музыкантов – всего этого на альбоме в избытке. Любители экспериментов и нетривиальной музыки останутся довольны. </P>
+<P>Диск предоставлен компанией Fono</P>
+Автор: Ruslan
+
+### 28.09.2004 reviews Архаичным курсом группа идти отказалась.
+
+<P>Переломный для группы альбом. И, наверное, лучший. </P>
+<P>Накануне записи пластинки в составе Borknagar произошли значительные изменения. Во-первых, из группы ушёл вокалист Гарм, и на микрофонную вахту заступил некто I.C.S. Vortex, он же Симен Хестнес. С уходом Гарма из музыки Borknagar стала стремительно улетучиваться викинговщина и фольклорные прибамбасы. Разухабистую манеру пения сменили более упорядоченные вокальные пассажи, и, на мой вкус, звучание группы в целом от этого только выиграло. Во-вторых, в состав вписался второй гитарист, Jens F. Ryland. Группа зазвучала ещё плотнее, гитарная вязь стала ещё заковыристее. </P>
+<P>The Archaic Course записывал в студии Woodhouse звукорежиссёр Матиас Клинкман, а это вам не хухры-мухры: пластинки мэтров Therion и Sentenced – его рук дело. Звук на альбоме вышел отнюдь не архаичный тру-блэковый, а кристально чистый и прозрачный. Получился блэковый альбом, как ни странно, имеющий мало общего с блэком. Вылизанная запись – раз, композиторская вакханалия – два, вокалист, умеющий петь, а не только верещать от натуги – три. Слушаешь и недоумеваешь: ну где здесь блэк? Но вот на фоне закрученной поросячим хвостиком музыки вороном закаркал вокалист. Зажужжали гитары, отбойным молотком застучал барабанщик. Оп! И снова на первый план выходят гитарные хитросплетения, а слушатель недоумевает: это Enslaved или всё-таки King Crimson?</P>
+<P>Диск предоставлен компанией Fono</P>
+Автор: Ruslan
+
+### 12.10.2004 reviews Прогрессивность. Народность. Трудноусвояемость.
+
+<P>Пятый альбом. Третий по счёту вокалист. Очередная корректировка стилистики. Иного и быть не могло: Винтерзорг, заменивший у микрофонной стойки отчалившего в Dimmu Borgir Вортекса, пришёл в Borknagar сформировавшейся личностью с устоявшимися вкусовыми пристрастиями. Почти испарившиеся на Quintessence фольковые мотивы с новой силой зазвучали на Empiricism’е. Возврат к корням группы? Как бы не так! Если на первых двух пластинках кондовая и неотёсанная народность пёрла из всех щелей, ломая к чёртовой матери милые сердцу Ойстена Брюна прогрессивные структуры, то с появлением Винтерзорга фольклорное буйство удалось упорядочить, плавно вплести в структуру композиций. </P>
+<P>Недостатков в альбоме нет. Технически безупречная гитарная работа. Разнообразный, профессиональный вокал. Изобретательная и очень техничная ритм-секция. Стилистика альбома простирается от скандинавского фольклора до авангардного блэка. Тем не менее, с грустью и печалью вынужден констатировать: продукт получился трудноусвояемый. С первого раза может не зацепить, нужно прослушать альбом несколько раз. И ещё не факт, что зацепит... </P>
+<P>...В общем, имеем некий концентрат. Жрать его ложками – живот заболит. Употреблять понемногу – не наешься. Нужно привыкнуть. Приучить к нему свой организм постепенно. Терпеливые будут вознаграждены, поверьте. </P>
+<P>Диск предоставлен компанией Fono.</P>
+Автор: Ruslan
+
+### 03.03.2005 news Следующий альбом BORKNAGAR будет акустическим
+
+<P><STRONG>BORKNAGAR</STRONG> собираются записать новый альбом в мае этого года в <STRONG>Toproom Studio</STRONG> для выпуска осенью. На этот раз группа решила сконцентрироваться на своей эпической и прогрессивной части, поэтому альбом станет полностью акустическим. </P>
+<P>Это не будет постоянной сменой стиля, но группа хочет попробовать себя.</P>
+Автор: Vit Belov
+
+### 03.03.2005 news BORKNAGAR in acoustic mode
+
+<P><STRONG>BORKNAGAR</STRONG> have informed that next album will be recorded this spring fior releasing in autumn. Acoustioc album&nbsp;will be recorded in <STRONG>Toproom Studio</STRONG> in Norway.&nbsp;<STRONG>BORKNAGAR</STRONG> want to concentrate on epic and progressive part of their music.</P>
+<P>&nbsp;That will not be constant change of style. Just musical quest for band.</P>
+Автор: Vit Belov
+
+### 03.06.2005 news Вышел новый номер журнала Rock Oracle!
+
+<SPAN class=bb><SPAN class=crem>
+<P><SPAN class=banddesc><SPAN class=bb><SPAN class=crem><B><SPAN class=nav><B><IMG height=326 alt="" hspace=10 src="/images/news_rus/2005.06/8730.jpg" width=227 align=right border=1>Второй номер журнала Rock Oracle уже в продаже!</B></P>
+<P></SPAN></B><SPAN class=crem><SPAN class=banddesc><SPAN class=crem><SPAN class=tit1><SPAN class=crem><SPAN class=banddesc><SPAN class=lyrica style="COLOR: #ff0000">Спрашивайте в магазинах единственное отечественное рок-издание с компакт-диском!</P><SPAN class=pna>
+<P>Вас ожидают:</P>
+<UL>
+<LI></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>&nbsp;Эксклюзивное интервью с&nbsp;Lacrimosa (подготовьтесь к приезду легенды готической сцены в Москву!); 
+<LI>&nbsp;Отчеты с московских концертов Crematory, Behemoth, Rage, Ensiferum, To/Die/For; 
+<LI>&nbsp;Свежая информация из жизни Obituary, Borknagar, Moonsorrow, Sentenced, Samsas Traum; 
+<LI>&nbsp;Познавательная статьи о развитии готической культуры; 
+<LI>&nbsp;Как всегда куча свежих новостей, рецензий на музыкальные диски, книги и видео</LI></UL><SPAN style="COLOR: #ff0000"><B><SPAN class=tit1><B><SPAN class=banddesc><B><SPAN class=tracks><B><SPAN class=h1><B><SPAN class=total><B><SPAN class=bb><B><SPAN class=band><B><SPAN class=tit1><B><SPAN class=lyrica><B><SPAN class=lyrica><B><SPAN class=banddesc>
+<P class=pna><B>+ компакт-диск - "нарезка" из хитов самых популярных новинок музыкального рынка</B></P></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B>
+<P class=pna></SPAN></B></SPAN></P></SPAN></SPAN>
+Автор: Soubbterranean
+
+### 30.08.2006 news Новый экспериментальный BORKNAGAR
+
+<P>30 октября на <STRONG>Century Media</STRONG> выходит седьмой альбом норвежской формации <STRONG>BORKNAGAR</STRONG> под названием <STRONG>'Origin'.</STRONG> Как и сообщалось еще полтора года назад, когда музыканты только начали работу над альбомом, он будет экспериментальным и полностью атмосферно-акустическим. В записи были использованы также флейты и скрипичные инструменты.</P>
+Автор: Dimas
+
+### 23.05.2008 news Asgeir Mickelson покинул BORKNAGAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Asgeir Mickelson </STRONG>покинул <STRONG>BORKNAGAR</STRONG>, из-за музыкальных разногласий.</FONT></P>
+Автор: Vit Belov
+
+### 07.01.2009 news BORKNAGAR анонсировали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BORKNAGAR</STRONG> рассказали о ситуации с новым альбомом:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Мы закончили сочинение нового материала. Уже сейчас можно сказать, что это будет монументальный альбом по многим аспектам. Он будет эпичным, грандиозным, тяжёлым, превосходным и атмосферным, созданным в ключе BORKNAGAR. Наш новый барабанщик <STRONG>David Kinkade</STRONG> [<B>ARSIS</B>, <B>MALEVOLENT CREATION</B>, <B>DIVINE EMPIRE</B>, <B>COUNCIL OF THE FALLEN</B>] приедет в Норвегию на несколько недель и начнёт запись пластинки 19 января. Запись вновь пройдёт в студии Toproom с продюсером Borge Finstad</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 28.01.2009 news BORKNAGAR записали барабаны
+
+<P><STRONG>BORKNAGAR </STRONG>закончили запись барабанов для своей новой работы. Сессия продолжится в середине февраля, когда будут записаны гитары. Окончательно альбом должен быть записан в апреле.</P>
+Автор: Vit Belov
+
+### 13.04.2009 news BORKNAGAR - &#39;Universal&#39;
+
+<P>Норвежцы <STRONG>BORKNAGAR</STRONG> назвали свой новый альбом <STRONG>"Universal"</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.10.2009 news Дата релиза BORKNAGAR
+
+<P>После большой задержки новый альбом <STRONG>BORKNAGAR "Universal"</STRONG> назначен к релизу на 22 февраля. На <STRONG>Indie Recordings</STRONG> будут доступны обычный CD, Digi-pack, Лимитированный бокс и винил.</P>
+Автор: Vit Belov
+
+### 26.11.2009 news Новый альбом BORKNAGAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=340 alt="" hspace=0 src="/images/news_rus/2009.11/15614.jpg" width=340 align=right border=5>Новый альбом <STRONG>BORKNAGAR "Universal"</STRONG> выходит 22 февраля на <STRONG>Indie Recordings</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Havoc</B><BR>02. <B>Reason</B><BR>03. <B>The Stir of Seasons</B><BR>04. <B>For a Thousand Years to Come</B><BR>05. <B>Abrasion Tide</B><BR>06. <B>Fleshflower</B><BR>07. <B>Worldwide</B><BR>08. <B>My Domain</B> (feat. guest vocals by I.C.S Vortex)<BR></P>
+Автор: Vit Belov
+
+### 11.06.2010 news I.C.S. Vortex вернулся в BORKNAGAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уволенный из<STRONG> DIMMU BORGIR</STRONG> басист/вокалист <STRONG>I.C.S. Vortex</STRONG>&nbsp;вернулся в <STRONG>BORKNAGAR</STRONG>. В настоящее время группа собирается в тур, а её нынешний фронтмэн <STRONG>Vintersorg</STRONG> не сможет в нём принять участия по личным причинам. На его место принят бывший участник, но сам <STRONG>Vintersorg</STRONG> сообщает, что группу не покидает, а просто немного занят в настоящий момент на работе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом группы <STRONG>"Universal" </STRONG>вышел в этом году и был издан в России на<STRONG> Союзе</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 19.07.2011 news BORKNAGAR сочиняют материал
+
+<P>Лидер <STRONG>BORKNAGAR Oystein G. Brun </STRONG>работает в собственной домашней студии над материалом к новому альбому, который выйдет в феврале 2012 года на <STRONG>Century Media</STRONG>. Сведение и мастеринг новой работы проделает <STRONG>Jens Bogren</STRONG> в студии <STRONG>Fascination Street Studios.</STRONG></P>
+<P>Музыкант сообщил, что заранее в восторге от качества реализации будущего альбома <STRONG>BORKNAGAR</STRONG>, и за счёт этого группа сделает большой шаг вперёд.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 19.07.2011 news BORKNAGAR сочиняют материал
+
+<P>Лидер <STRONG>BORKNAGAR Oystein G. Brun </STRONG>работает в собственной домашней студии над материалом к новому альбому, который выйдет в феврале 2012 года на <STRONG>Century Media</STRONG>. Сведение и мастеринг новой работы проделает <STRONG>Jens Bogren</STRONG> в студии <STRONG>Fascination Street Studios.</STRONG></P>
+<P>Музыкант сообщил, что заранее в восторге от качества реализации будущего альбома <STRONG>BORKNAGAR</STRONG>, и за счёт этого группа сделает большой шаг вперёд.</P>
+<P><center><IMG height=300 src="/images/news_rus/2011.07/20224.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 15.01.2012 news BORKNAGAR закончили альбом
+
+<P>Норвежцы<STRONG> BORKNAGAR</STRONG> закончили сведение нового альбома "<STRONG>Urd</STRONG>" в студии <STRONG>Fascination Street</STRONG> с продюсером<STRONG> Jens Bogren</STRONG>. Альбом выйдет 26 марта на<STRONG> Century Media</STRONG>. </P>
+<P><center><IMG height=294 src="/images/news_rus/2012.01/22628.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 11.07.2012 news Видео от BORKNAGAR
+
+<P>Новый клип <STRONG>BORKNAGAR</STRONG> на песню <STRONG>"The Earthling" </STRONG>можно посмотреть ниже. Трек взят с альбома норвежцев <STRONG>"Urd", </STRONG>который вышел в марте.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/MNESu-ChMXY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.01.2016 news Десятый альбом BORKNAGAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> BORKNAGAR "Winter Thrice"</STRONG> выходит 22 января на<STRONG> Century Media</STRONG>. Видео-клип на заглавный трек можно посмотреть ниже. Трек-лист:</FONT></P>
+<P>“The Rhymes Of The Mountain”<BR>“Winter Thrice”<BR>“Cold Runs The River”<BR>“Panorama”<BR>“When Chaos Calls”<BR>“Erodent”<BR>“Noctilucent”<BR>“Terminus”</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/NDrrKv2wjvk" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### BORKNAGAR News

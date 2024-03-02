@@ -55,6 +55,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.10.2015 news Пятый альбом итальянцев ECNEPHIAS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В начале года на итальянском лэйбле <STRONG>MY KINGDOM MUSIC</STRONG> вышел пятый альбом dark-metal команды <STRONG>ECNEPHIAS "Ecnephias"</STRONG>. Великолепный мрачный и мелодичный материал для всех поклонников <STRONG>MOONSPELL</STRONG> и<STRONG> DARKSEED</STRONG>. </FONT></P>
+<P>Приобретай фирменный digipak по 499 рублей здесь: <A href="http://escapemind.ru/goods/ECNEPHIAS-Ecnephias-digi">http://escapemind.ru/goods/ECNEPHIAS-Ecnephias-digi</A></P>
+<P>Лирик-видео:</P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/FSUaQ0pxcIk" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/me1_SimbASg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER></CENTER>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/iTy6stZUCXc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

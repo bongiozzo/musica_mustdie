@@ -56,6 +56,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2002 news CEREBRAL EFFUSION NEWS...
+
+<p>The band has finished the recording (Tala Studios) and mixing (Cybermusic) of their second effort, no entitled yet, will contain 9 tracks included a new recording of "Human Butchery". <BR> The new album will be out for late November early December, with professional recording and artwork. Expect this yearґs sickest Brutal Death releases!!!!!</p>
+
+Автор: Yermola
+
+### 13.12.2002 news New release from Cerebral Effusion
+
+<p>CEREBRAL EFFUSIONґs new album "Violence in Motion" will be released early next year through UNMATCHED BRUTALITY RECORDS (BRODEQUIN, RETCH...) <br>Check the bandґs website for samples and cover artwork www.cerebraleffusion.xrs.net</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

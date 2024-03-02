@@ -59,6 +59,9 @@ Ron Thal : Engineer, Main Performer, Mixing, Producer
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

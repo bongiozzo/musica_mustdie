@@ -25,6 +25,9 @@ drum tracks recorded at nova studios,guitar,bass keyboards and vocals recorded a
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

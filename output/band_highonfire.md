@@ -56,6 +56,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.09.2016 news Новое видео HIGH ON FIRE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Мультипликационное видео <strong>HIGH ON FIRE</strong> на песню "<strong>The Black Plot</strong>" можно посмотреть ниже. Режиссёром ролика выступил <strong>Skinner</strong> (MASTODON). Трек взят с последнего альбома американцев <strong>"Luminiferous"</strong>, который вышел в прошлом году на <strong>Century media</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/sP52b11cLNY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 16.09.2016 news HIGH ON FIRE unleash stunning animated video for &quot;The Black Plot&quot;
+
+<p>Prior to returning to Europe in November/December, <strong>HIGH ON FIRE</strong> presents an epic, animated video for "<strong>The Black Plot</strong>". Directed by visionary art freak, <strong>Skinner</strong> (Mastodon) and visual effects team, Hey Beautiful Jerk (Run the Jewels, NIN), "The Black Plot" video is a visual tour de force and a wild, psychedelic fantasy epic. "The Black Plot" is taken from HIGH ON FIRE's latest album, “<strong>Luminiferous</strong>”, which was released in Europe via <strong>Century Media</strong> in 2015.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/sP52b11cLNY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

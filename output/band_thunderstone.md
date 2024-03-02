@@ -147,6 +147,669 @@ Will also be released via Sakara Records/Sony Music in Finland and via Marquee I
 
 * C группой "Kotipelto" Mirka Rantanen
 
+## Публикации
+
+### 16.09.2003 news THUNDERSTONE начали микширование альбома
+
+THUNDERSTONE микшируют свой новый альбом "The Burning" в Finnvox Studios с Mikko Karmila (NIGHTWISH, CHILDREN OF BODOM). Трэк-лист альбома, который выйдет в 2003-2004 годах через NUCLEAR BLAST: 
+<P>01. Until We Touch The Burning Sun<BR>02. Mirror Never Lies<BR>03. Break the Emotion <BR>04. Drawn To The Flames <BR>05. Side By Side <BR>06. Forth Into The Black <BR>07. Tin Star Man </P>
+Автор: Vit Belov
+
+### 20.09.2003 news THUNDERSTORM&#39;s new album
+
+<P align="center"><SPAN lang=EN-GB><SPAN lang=EN-GB>The mixing of Thunderstone's second album named "The Burning" has begun at Finnvox Studios on the 9th of September. The mixing duties are handled by the one and only Mikko Karmila (Nightwish, Children of Bodom) who also did the mixing on the debut album. </SPAN>A partial list of titles includes the following:<SPAN><BR>Until we Touch the Burning Sun - Mirror Never Lies - Break the Emotion - Drawn to the Flames - Side by Side - Forth into the Black - Tin Star Man<SPAN><BR></SPAN>Complete list of songs and the release date will be announced soon.</SPAN></SPAN></P>
+Автор: Vit Belov
+
+### 12.01.2004 news Новое видео и альбом от THUNDERSTONE
+
+Финская&nbsp;melodic-power группа&nbsp;<B>THUNDERSTONE</B>&nbsp;закончила работу над видео&nbsp;<B>"Until We Touch The Burning Sun"</B>. Песня&nbsp;<B>"Until We Touch The Burning Sun"</B>&nbsp;есть на альбоме&nbsp;<B>THUNDERSTONE</B> <B>"The Burning"</B>, который выходит сегодня,&nbsp; 12&nbsp;января на&nbsp;<B>Nuclear Blast Records</B>.<BR><BR>
+Автор: Uneral
+
+### 16.02.2004 reviews Это не STRATOVARIUS #2!!!
+
+<DIV><I>Группа, которую называют <B>STRATOVARIUS #2</B>. Развенчаем миф - если это и <B>STRATOVARIUS</B>, то номер 3. <B>STRATOVARIUS #2</B> - это <B>SONATA ARCTICA</B>.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Честно говоря, после второго альбома этого финского коллектива хочется снять ярлык причастности к творчеству <B>Timo Tolkki</B>. Да, по прежнему встречаются соло на клавишах сходные с творчеством <B>Jens Johansson</B> в <B>STRATOVARIUS</B>, но музыка <B>THUNDERSTONE</B> стала гораздо разнообразнее и вызывает несколько другие ассоциации. Это и плохо, и хорошо... С одной стороны хороший клон обречён на успех, пусть не такой сильный, как у оригинала, но вполне весомый. С другой же, с&nbsp;творческой стороны всегда приятней иметь дело с разносторонними группами. У <B>THUNDERSTONE</B> появилась вторая сторона медали, они дали крен в progressive. Вернее, в ту его часть, где по-прежнему властвуют <B>ROYAL HUNT</B>. Стало больше "роковых" композиций, которые уже к <B>STRATOVARIUS</B> не имеют никакого отношения. Даже первая песня - не быстрый хит, как принято у power-metal групп, а среднетемповая мелодичная композиция.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Единственное, чего не хватает <B>THUNDERSTONE</B>, чтобы их альбом можно было причислить к "отличникам" стиля, достаточного количества интересных мелодий. Крепкая професиональная команда, но с таким положением дел оценивается только из "8".</DIV>
+Автор: Vit Belov
+
+### 12.03.2004 news Iced Earth, Thunderstone and Primal Fear in Europe
+
+<B>18.03. NL-Tilburg - 013<BR>19.03. B-Antwerpen - Hof Ter Loo<BR>20.03. NL-Hardenberg - Podium<BR>21.03. UK-London - Mean Fiddler<BR>22.03. F-Paris - Elysee Montmatre<BR>24.03. E-Madrid - Aqualung<BR>25.03. E-Valencia - Republicca<BR>26.03. E-Barcelona - Razzmatazz<BR>27.03. E-Bergara - Sala Jam<BR>29.03. I-Mailand - Rolling Stone<BR>30.03. CH-Pratteln - Z7<BR>01.04. D-K&ouml;ln - E-Werk<BR>02.04. D-N&uuml;rnberg - L&ouml;wensaal<BR>03.04. D-Filderstadt - Filharmonie<BR>04.04. A-Wien - Planet Music<BR>06.04. D-Hamburg - Grosse Freiheit<BR>07.04. S-Malm&ouml; - KB<BR>08.04. S-G&ouml;teborg - Karen<BR>09.04. S-Stockholm - Arenan<BR>11.04. FIN-Helsinki - Nosturi</B><BR>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 28.08.2004 news THUNDERSTONE пишут новые песни
+
+<P><STRONG>THUNDERSTONE</STRONG> заняты написанием песен для нового альбома, который выйдет на <STRONG>Nuclear Blast</STRONG> следующей весной. В настоящее время группа в <STRONG>Sonic Pump</STRONG> <STRONG>studios</STRONG>, где записывает три новых песни для демо, настоящая запись будет проделана в октябре/ноябре.</P>
+Автор: Vit Belov
+
+### 08.11.2004 news THUNDERSTONE начали запись нового альбома
+
+<P><STRONG>THUNDERSTONE</STRONG> начали запись нового альбома в <STRONG>Sonic Pump Studio</STRONG>. Пластинка будет готова к выходу на <STRONG>Nuclear Blast</STRONG> в апреле 2005 года.</P>
+Автор: Vit Belov
+
+### 08.11.2004 news THUNDERSTONE has begun recordings
+
+<P><STRONG>THUNDERSTONE</STRONG> has begun recording the follow-up to the highly acclaimed self-titled debut album and last year's "<STRONG>The Burning</STRONG>". The recordings take place at the familiar<STRONG> Sonic Pump Studios</STRONG> in Helsinki and will last until the end of the year. The planned release date for the album is in April 2005.</P>
+Автор: Vit Belov
+
+### 13.01.2005 news Подробности о новом альбоме THUNDERSTONE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>THUNDERSTONE</STRONG> находится на стадии микса. Процесс проходит в студии <STRONG>Timo Tolkki</STRONG> (<STRONG>STRATOVARIUS</STRONG>), и его проводит гитарист/продюсер <STRONG>Nino Laurenne</STRONG>. Полный трэк-лист и название альбома пока не известны, но есть некоторые песни, которые точно войдут в альбом:</FONT></P>
+<P>1. <STRONG>Welcome to the real</STRONG> <BR>2. <STRONG>I will come again<BR></STRONG>3. <STRONG>Land of innocence<BR></STRONG>4. <STRONG>Feed the fire</STRONG></P>
+Автор: Vit Belov
+
+### 04.02.2005 news Новый альбом THUNDERSTONE
+
+<P>Новый альбом <STRONG>THUNDERSTONE 'Tools Of Destruction'</STRONG> выходит 18 апреля на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Tool Of The Devil<BR></STRONG>2. <STRONG>Without Wings<BR></STRONG>3. <STRONG>Liquid Of The Kings<BR></STRONG>4. <STRONG>I Will Come Again<BR></STRONG>5. <STRONG>Welcome To The Real<BR></STRONG>6. <STRONG>The Last Song<BR></STRONG>7. <STRONG>Another Time<BR></STRONG>8. <STRONG>Feed The Fire<BR></STRONG>9. <STRONG>Weight Of The World<BR></STRONG>10. <STRONG>Land Of Innocence</STRONG></P>
+<P>На digi-pack версию пластинки войдут два бонуса/видео, а на японскую версию кавер <STRONG>DIO</STRONG> <STRONG>'Rainbow In The dark'</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.02.2005 news THUNDERSTONE new album
+
+<P>New album of <STRONG>THUNDERSTONE 'Tools Of Destruction'</STRONG> will be released April 18th in Europe through <STRONG>Nuclear Blast</STRONG>. Track-list:</P>
+<P>1. <STRONG>Tool Of The Devil<BR></STRONG>2. <STRONG>Without Wings<BR></STRONG>3. <STRONG>Liquid Of The Kings<BR></STRONG>4. <STRONG>I Will Come Again<BR></STRONG>5. <STRONG>Welcome To The Real<BR></STRONG>6. <STRONG>The Last Song<BR></STRONG>7. <STRONG>Another Time<BR></STRONG>8. <STRONG>Feed The Fire<BR></STRONG>9. <STRONG>Weight Of The World<BR></STRONG>10. <STRONG>Land Of Innocence</STRONG></P>
+Автор: Vit Belov
+
+### 19.11.2006 articles Оля Романова: за и против - ARCANE GRAIL презентовали дебют - HAMMERFALL не интересуются Евровидением, а THUNDERSTONE интересуются - Rock TV выгнал Сатанизм из эфира - OZZY благословил Iommi и Dio на HEAVEN AND HELL
+
+<P><EM><IMG height=448 alt="" hspace=0 src="/images/articles_rus/2006.11/10904.jpg" width=200 align=left border=5>Оля Романова: за и против</EM></P>
+<P>В прошлое воскресенье в клубе ИКРА на Курской прошла презентация нового альбома Ольги Романовой, именующей себя Dark Princess, “Stop My Heart”. Поддержка малоизвестной итальянской команды DOMINA NOCTIS не помогла артистке собрать хоть сколько-нибудь значительную аудиторию. По билетам концерт посетило около 40 человек. Ольга Романова и этот концерт – тема для очень большой статьи. Попробуем разобраться…</P>
+<P>Я не случайно назвал госпожу Романову Олей в подзаголовке. Это не из-за моей излишней фамильярности, и не из-за попытки унизить певицу. Девушка производит именно такое впечатление. На Ольгу она не тянет, а уж тем более не тянет на Dark Princess. Молоденькая учительница математики, коей она и является, которая совсем неплохо поёт, но почему-то решила, что может стать в России готической принцессой. Безусловно, у нас нет собственной готической принцессы, но всё же не надо нас за лохов считать. При этом весь негатив наваливается после посещений живых выступлений Dark Princess, и если вы пока не попали на её выступление, не ходите, слушайте записи и не портите себе впечатления. Ведь записи Dark Princess очень неплохи, и об этом я писал в рецензии на альбом Ольги. Рыжая (уже перекрасится пора давно), худая, немодно румяная, совсем непластичная, с куцым концертным опытом. Ольга по-прежнему прячется за своих молодых музыкантов и не понимает, что ей надо делать. Даже на уровне начинающих музыкантов из DOMINA NOCTIS она выглядит бледно.</P>
+<P>А тем временем, складывается впечатление,&nbsp;кто-то осваивает немаленькие деньги мужа госпожи Романовой. Рекламой её альбома пестрят все журналы, концерт активно рекламируется, Ольга смотрит на нас со стен гаражей и с плафонов эскалаторов в метро. Лэйбл заявляет о великих продажах дебютной работы, а на концерты никто не ходит. Правда в Питере, говорят, было 150 человек, а вот концерт в Туле отменили, якобы, Dark Princess не понравилась площадка. Причина проста. Металлистов не так просто надуть, о чём тоже говорили много раз. Можно надуть любителя АРИИ или КИПЕЛОВА, разместив везде рекламу новых русскоязычных heavy-power’щиков, но впарить англоязычный gothic-metal альбом с женским вокалом не так просто. «Тёмными принцессами» так просто не становятся. Деньги тут совсем не главное. Нужно поиграть по клубам, набраться опыта. Здесь вам не «Фабрика звёзд». При этом я даже не заикаюсь об окупаемости проекта, здесь даже речь об этом не идёт. Этого не случится никогда! Также хочу развеять все надежды госпожи Романовой. Популярной на Западе она не станет, на концерт в Италии придут ещё меньшее количество фэнов, чем в Москве. Что может организовать DOMINA NOCTIS, которая была настолько рада «на шару» побывать в Москве, что готова пообещать, что угодно? Как и во многих других областях бизнеса, здесь кто-то осваивает чужие бабки. Хватит уже вкладывать деньги и пудрить всем мозги. Работайте с тем, что есть.</P>
+<P>Каков вывод? Вывод таков. Не открою вам глаза, если скажу, что металлическая музыка не является тем полигоном для бизнеса, на котором можно реально заколачивать деньги. Все успехи локальны и не имеют ничего общего с долгосрочным и стабильным заработком. Скупать рекламу в известных журналах можно только для локальной популярности, к заработкам это никогда не приведёт. Товар, который предлагают металлисты не ликвиден, рынок не эластичен. В настоящее время появляются предпосылки к тому, чтобы обычный фэн тяжёлой музыки подумал, что heavy приобретает повышенную популярность. Это не что иное, как PR-акция, такая же, как реклама Ольги Романовой. Ничего плохого в этом, кстати, нет. Просто хочется разрушить иллюзии бизнесменов от музыки, которые тоже захотят вкладывать огромные деньги в металл.</P>
+<P>Что же ЗА? А ЗА – отличная музыка от Михаила Гуза, вокал Ольги, она уделала Edera из DOMINA NOCTIS. Не надо нам только ничего показывать. Лучше быть загадочной студийной принцессой… И ради Бога, перекрасьте волосы. Боюсь только, уже поздно и комедийный имидж рыжеволосой «Тёмной принцессы» обретён Романовой навсегда.</P>
+<P><EM><IMG height=402 alt="" hspace=0 src="/images/articles_rus/2006.11/10905.jpg" width=200 align=right border=5>ARCANE GRAIL презентовали дебют</EM></P>
+<P>Ещё одно шоу, которое я посетил на неделе, было презентацией нового альбома москвичей ARCANE GRAIL “Mysteries Of Ancient Charnel”, вышедшего на MUSICA Production в августе. Народа на ARCANE GRAIL, SPAINT, STIGMATIC CHORUS и др. пришло побольше, чем на Романову, но не слишком. «Релакс» посетило, по моим прикидкам, около 100 человек. Хочется поговорить о выступлениях SPAINT и героев вечера. Во-первых, SPAINT (ex-WEEDS IN VOGUE). Группа сменила название, вслед за сменой музыкального направления. Mike и друзья решили двинуться в сторону более современного звучания. Качовые риффы, мелодика, эмоциональный вокал вперемешку со скримингом. Шоу от SPAINT очень энергично. Их выступление позволит оторваться даже самым скованным и трезвым. Мои рекомендации. Интересно же то, что на записи музыка SPAINT таких эмоций не вызывает. Почему так происходит? Схожие проблемы есть у нескольких отечественных коллективов, включая MELANCHOLY. После концерта появляется дикий восторг, запись же вызывает&nbsp;несколько другие чувства. При этом группы записываются в не самых худших студиях. Ещё одним сходством этих коллективов являются попытки играть в более модном «МТИВИшном» ключе. Энергия же в студии растворяется и должной популярностью у покупателей CD ребята не получают.</P>
+<P>У ARCANE GRAIL другие проблемы. Я бы сказал обратные проблемы. Студийное звучание коллектива приближается к мировым стандартам, а на концерте&nbsp;группа звучит слишком сложно для восприятия. Вернее музыка ARCANE GRAIL слишком сложная для восприятия звукорежиссёром. Оттенки, слышные на записи, теряются в стенах «Релакса». И зачастую рядовому слушателю, незнакомому с оригинальным CD, непонятно, что, вообще, происходит. Как сочетаются женский и мужской вокалы, например? Где клавишные, а где гитара? Кстати, отмечу две вещи: великолепный мужской вокал и артистизм певицы, платье которой хоть и не вышло из под швейной машинки личного дизайнера, как у Ольги Романовой, сидит не в пример лучше, а поведение на сцене более раскованное. Может в Arcane Grail поёт Dark Princess? Нет, воздержимся от столь громких титулов. Там поёт просто Натали.</P>
+<P><EM><IMG height=194 alt="" hspace=0 src="/images/articles_rus/2006.11/10906.jpg" width=112 align=left border=5>HAMMERFALL не интересуются Евровидением, а THUNDERSTONE интересуются</EM></P>
+<P>Вернёмся к зарубежным событиям. Совсем недавно увидел свет новый альбом шведов HAMMERFALL “Threshold”. Новый альбом группы должен продолжить победную поступь коллектива по всему миру. Материал пластинки не оставляет никаких сомнений, что фанаты группы получат то, что искали. Стабильное положение HAMMERFALL в табели о рангах современного power-metal позволяет группе осваивать новые рынки, выпускать синглы, снимать видеоклипы. Клип с нового альбома на песню “Natural High” группа снимала с новыми людьми. Впервые с 2000 года HAMMERFALL сменили режиссёра. Забавно, что новой Меккой для видео от металлистов становится Сербия, где и был снят ролик. Кстати, там же свои видеоклипы будет снимать и SIRENIA. “Лирически песня рассказывает о вампирах», - показывает певец Joacim Cans. «Мы попросили ребят снять нам ролик, где сюжет развивается рука об руку с текстом песни. Мы хотели иметь что-то похожее на «Блэйд»». После победы LORDI на Евровидении в прессе государств северной Европы стали появляться слухи об участии тех или иных металлических групп в конкурсе будущего года. Подобные же слухи коснулись HAMMERFALL. «Это не правда. Подобная информация появилась только в разделе слухов одной из шведских газет. Интересно, что, увидев в Интернете эту информацию, боссы нашего лэйбла Nuclear Blast предложили нам участвовать в отборе. Мы всё равно отказались. Во-первых, мы не хотим исполнять чужую песню (странно, LORDI играли свою, прим. авт.), и не видим, кто бы мог написать нам её», - опровергает «утку» Cans. Подобные проблемы не взволновали другую группу из конюшни Nuclear Blast, THUNDERSTONE из Финляндии, которые вошли в число 12 претендентов на представление Финляндии в финале Евровидения, который пройдёт в Хельсинки в 2007 году. Названия песен, которые будут исполняться конкурсантами, будут названы в январе 2007 года, а сам отбор пройдёт в феврале.</P>
+<P><EM>Rock TV выгнал Сатанизм из эфира</EM></P>
+<P>Итальянский кабельный канал Rock TV закрыл программу “Extreme Metal” и уволил её ведущего Aleister, который является гитаристом ANCIENT. Это произ<IMG height=400 alt="" hspace=0 src="/images/articles_rus/2006.11/10907.jpg" width=300 align=right border=5>ошло после того, как один из гостей передачи ответил на вопрос, посланный в эфир телезрителем. Зритель спрашивал, являются оккультные символы, которые использует музыкант только элементами шоу, или он использует их с каким-то подтекстом. Неназванный гость передачи ответил, что это не шоу, он всегда на своих альбомах рассказывает о Сатанизме и не желает скрывать этого. В течение 24 часов Aleister был уволен со всех должностей на Rock TV. Ведущий приглашал в шоу underground группы, которые не имели доступа на телевидение. Он успел показать 14 коллективов, остальные, видимо, так на телевидение не попадут. Вот так вот:) Нам-то эти проблемы не ведомы.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P><EM>OZZY благословил Iommi и Dio на HEAVEN AND HELL</EM> </P>
+<P>Совсем недавно американские СМИ сообщили о воссоединении Tony Iommi и Dio в группе под названием HEAVEN AND HELL. В группу также войдут Geezer Butler и Bill Ward. Уже объявлено, что группа выступит на фестивале Monsters of Rock в Великобритании. Dio подтвердил эту информацию в интервью Classic Rock: «Кроме концерта на фестивале, мы дадим несколько других шоу в США и Великобритании. Ozzy благословил нас на этот проект. Он очень очень особенная личность. Он один из создателей heavy-metal музыки. Он заслуживает мощнейших аплодисментов. Он великолепный человек, и я желаю ему всего наилучшего. Надеюсь, он и Шарон очень очень счастливы». Ronnie провёл в Англии несколько дней, сочиняя новые песни с Iommi, которые войдут на грядущий сборник “Black Sabbath: The Dio Years”. Позже в 2007 BLACK SABBATH объединятся в классическом составе: Osbourne, Iommi, Butler и Ward. Фэнов ждёт новый тур и новый альбом, первый в таком составе с 1978 года.&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>На следующей неделе: интервью с гитаристом Doug Aldrich, вокалистами Mark “Barney” Greenway, Jon Oliva, Johnny Hedlund, а также Yngwie Malmsteen.</P>
+Автор: Vit Belov
+
+### 08.12.2006 news THUNDERSTONE назвали альбом
+
+<P>Новый альбом <STRONG>THUNDERSTONE</STRONG> <STRONG>"Evolution 4.0" </STRONG>выйдет 14 марта на<STRONG> Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.02.2007 news Новый THUNDERSTONE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=298 alt="" hspace=0 src="/images/news_rus/2007.02/11278.jpg" width=300 align=right border=5>Как мы уже сообщали, новый альбом <STRONG>THUNDERSTONE "Evolution 4.0"</STRONG> выходит 14 марта на <STRONG>Nuclear Blast</STRONG>. Стал известен трэк-лист пластинки:</FONT></P>
+<P>1. <STRONG>Evolution 4.0<BR></STRONG>2. <STRONG>Forevermore<BR></STRONG>3. <STRONG>Roots of anger<BR></STRONG>4. <STRONG>10 000 ways <BR></STRONG>5. <STRONG>Holding on to my pain<BR></STRONG>6. <STRONG>Swirled<BR></STRONG>7. <STRONG>Down with me<BR></STRONG>8. <STRONG>Face in the mirror<BR></STRONG>9. <STRONG>Solid ground<BR></STRONG>10. <STRONG>The source<BR></STRONG>11. <STRONG>Great man down</STRONG></P>
+Автор: Vit Belov
+
+### 31.08.2007 news THUNDERSTONE поменяли вокалиста
+
+<P><STRONG>THUNDERSTONE</STRONG> сообщили, что вокалист <STRONG>Pasi Rantanen </STRONG>и клавишник <STRONG>Kari Tornack</STRONG> больше не являются членами группы. Им быстро была найдена замена, чтобы не сорвался ближайший тур. Клавишником стал музыкант <STRONG>STRATOVARIUS Jens Johansson</STRONG>, а вокалистом второй певец <STRONG>TAROT</STRONG> <STRONG>Tommi 'Tuple' Salmela.</STRONG>&nbsp;</P>
+Автор: Vit Belov
+
+### 15.02.2009 news Новая песня THUNDERSTONE
+
+<P><STRONG>THUNDERSTONE </STRONG>выложили на свою<STRONG> MySpace</STRONG> страничку новую песню "<STRONG>Star</STRONG>" с будущего пока не названного альбома. Эта композиция считается тяжелейшей в истории группы, в её записи принимал участие вокалист <STRONG>AMORPHIS</STRONG> <STRONG>Tomi Joutsen</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/thunderstoneband">http://www.myspace.com/thunderstoneband</A></P>
+Автор: Vit Belov
+
+### 04.04.2009 news Новый альбом THUNDERSTONE перенесён
+
+<P>Финны <STRONG>THUNDERSTONE</STRONG> перенесли релиз своего нового альбома на сентябрь. Группе понадобилось время, чтобы завершить над ним работу.</P>
+Автор: Vit Belov
+
+### 20.06.2009 news THUNDERSTONE на Sony
+
+<P><STRONG>THUNDERSTONE </STRONG>заключили контракт с финским подразделением <STRONG>Sony Music</STRONG>. Их новый альбом <STRONG>"Dirt Metal" </STRONG>выйдет 9 сентября. </P>
+Автор: Vit Belov
+
+### 11.08.2009 news Новый альбом THUNDERSTONE
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.08/14790.jpg" width=200 align=right border=5>Мы уже сообщали, что новый альбом <STRONG>THUNDERSTONE</STRONG> <STRONG>"Dirt Metal" </STRONG>выйдет 9 сентября на финском подразделении <STRONG>Sony Music</STRONG>. Стал известен трэк-лист этого альбома:</P>
+<P>01. <B>Rebirth</B><BR>02. <B>I Almighty</B><BR>03. <B>Dirt Metal</B><BR>04. <B>Star</B><BR>05. <B>Ghosts Of Youth</B><BR>06. <B>Counting Hours</B><BR>07. <B>Dodge The Bullet</B><BR>08. <B>Deadlights</B><BR>09. <B>At The Feet Of Fools</B><BR>10. <B>Suffering Songs</B></P>
+Автор: Vit Belov
+
+### 27.03.2010 news THUNDERSTONE выйдет на SPV
+
+<P><STRONG><IMG height=399 alt="" hspace=0 src="/images/news_rus/2010.03/16464.jpg" width=400 align=right border=5>THUNDERSTONE </STRONG>выпустят свой последний альбом <STRONG>"Dirt Metal"</STRONG> в Европе 24 мая на <STRONG>SPV</STRONG>. В Финляндии этот альбом вышел в прошлом сентябре. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Rebirth</B><BR itxtvisited="1">02. <B itxtvisited="1">I Almighty</B><BR itxtvisited="1">03. <B itxtvisited="1">Dirt Metal</B><BR itxtvisited="1">04. <B itxtvisited="1">Star</B><BR itxtvisited="1">05. <B itxtvisited="1">Ghosts Of Youth</B><BR itxtvisited="1">06. <B itxtvisited="1">Counting Hours</B><BR itxtvisited="1">07. <B itxtvisited="1">Dodge The Bullet</B><BR itxtvisited="1">08. <B itxtvisited="1">Deadlights</B><BR itxtvisited="1">09. <B itxtvisited="1">At The Feet Of Fools</B><BR itxtvisited="1">10. <B itxtvisited="1">Suffering Songs</B></P>
+Автор: Vit Belov
+
+### 09.01.2016 news THUNDERSTONE возвращаются
+
+<P>Финны<STRONG> THUNDERSTONE</STRONG>, известные по работе с <STRONG>Nuclear Blast</STRONG> и <STRONG>Sony Music</STRONG>, подписали контракт с <STRONG>AFM</STRONG>. Первая за семь лет работа коллектива выйдет уже 1 апреля. В группу вернулся оригинальный вокалист <STRONG>Pasi Rantanen</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2016.01/28675.jpg" width=645 height=363></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

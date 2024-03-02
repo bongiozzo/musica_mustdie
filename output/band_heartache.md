@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.08.2016 news Новое видео HEARTACHE
+
+<p>Новый ролик итальянской progressive rock/metal команды <strong>HEARTACHE "Breaking News"</strong> можно посмотреть ниже. Трек войдёт в новый альбом "<strong>Skyscrapers and Firefalls</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/VRU1EceDdYM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news New video by HEARTACHE
+
+<p>A new video of the Italian progressive rock/metal band <strong>HEARTACHE "Breaking News"</strong> can be viewed below. The track will be included in the new album "<strong>Skyscrapers and Firefalls</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/VRU1EceDdYM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -19,6 +19,40 @@
 * C группой "Otyg" A. Hedlund
 * C группой "Fission" A. Hedlund
 
+## Публикации
+
+### 04.07.2000 reviews Группа, состоящая из Marcus Norman (Ancient Wisdom&#x2F;Bewitched), Andreas Hedlund (Otyg&#x2F;Vintersorg) и Morgan Hansson (Naglfar).
+
+<p>Группа, состоящая из Marcus Norman (Ancient Wisdom/Bewitched), Andreas Hedlund (Otyg/Vintersorg) и Morgan Hansson (Naglfar). Вы думаете это какое-нибудь подобие black-metal? Нет, великолепный gothic-rock в духе первого альбома Nightingale и Dreadful Shadows. Меланхоличные музыка и вокал, драм-машина и програмные эффекты, возвышенные хоры создают великолепную атмосферу, альбом хочется слушать и слушать, особенно если подходящее настроение. Здесь есть всё, начиная от почти танцевальной 'The Watcher', заканчивая обилием медленных песен, пронизанных тоской, иногда даже появляются баллады, которые отдают каким-нибудь power-metal, что очень оригинально в данном стиле музыки. Очень подходяще оформлен кавер, космическая тематика, что-то похожее на чёрную дыру, в которую понемногу опускаешься, слушая данный CD. Просто потрясающая, талантливая работа, которая мне понравилась много больше последнего CD Love Like Blood. Советую немедленно приобрести всем, кто любит и ценит подобную музыку.</p>
+
+Автор: Vit Belov
+
+### 04.07.2000 reviews Group consisting of Marcus Norman (Ancient Wisdom&#x2F;Bewitched), Andreas Hedlund (Otyg&#x2F;Vintersorg) and Morgan Hansson (Naglfar)
+
+<p>Group consisting of Marcus Norman (Ancient Wisdom/Bewitched), Andreas Hedlund (Otyg/Vintersorg) and Morgan Hansson (Naglfar). You think this any similarity black-metal? Is not present, magnificent gothic-rock in spirit of the first album Nightingale and Dreadful Shadows. Melancholic music and vocal, drum - machine and programing effects, the raised choruses create a magnificent atmosphere, it would be desirable to listen and to listen to an album, especially if approaching mood. Here is everything, beginning from almost dancing ' The Watcher ', finishing an abundance of slow songs pierced by melancholy, sometimes even there are ballads, which return any power-metal, that is very original in the given style of music. Very suitably is made out cover-paint, space subjects, something similar to a black hole, in which fall, listening given CD. Simply startling, talented work, which has liked me much more than latter CD Love Like Blood. I advise immediately to acquire by everyone, who loves and appreciates similar music.</p>
+
+Автор: Vit Belov
+
+### 15.07.2002 news HAVAYOTH news
+
+<p>HAVAYOTH, featuring Vintersorg (i.e. VINTERSORG, BORKNAGAR), Vargher (i.e. BEWITCHED) and Mad Morgan (i.e. NAGLFAR), have completed six cuts for their sophomore full-length album, tentatively entitled A Journey Called Dreams. At the moment, the group are negotiating a new record deal following their recent split with Hammerheart Records, the label that issued HAVAYOTH's debut, His Creation Reversed.</p>
+
+Автор: Dimas
+
+### 15.07.2002 news Три богатыря
+
+<p>Vintersorg (VINTERSORG, BORKNAGAR), Vargher (BEWITCHED) и Mad Morgan (NAGLFAR), а все вместе - суперпроект HAVAYOTH записали шесть вещей для своего второго альбома под названием "A Journey Called Dreams". В настоящий момент, музыканты переоформляют свой контракт с Hammerheart Records, где вышел их дебют "His Creation Reversed".</p>
+
+Автор: Dimas
+
+### 02.09.2003 reviews Музыка прохладного летнего дня
+
+<p>Андерс Хедлунд, также известный как Vintersorg. Маркус Норман, лидер ANCIENT WISDOM. Морган Ханссон, басист NAGLFAR. Эти люди собрались вместе и записали обозреваемый альбом. Что вышло? Black? Pagan? Ответ неверный. Ни к блэку, ни к пэйгану эта работа не имеет ровным счётом никакого отношения. Равно как и к экстремальной музыке вообще. В последнее время такую музыку принято называть «готикой» или «готическим металлом» - надо полагать, в виду отсутствия нормальных определений. Не вижу в музыке HAVAYOTH ничего особо готичного. Безумно красивая, атмосферная музыка с великолепными гитарными гармониями и чертовски прилипчивыми мелодиями, - это готика? Нет, не подумайте, что HAVAYOTH – из лагеря последователей HIM и иже с ними. Этот альбом имеет ровно также же отношение к love metal’у, как, например, DARKTHRONE – к трансу. «Красивая музыка» и «прилипчивые мелодии» отнюдь не подразумевают… ну, вы поняли. В заключение хотелось бы отметить, что Vintersorg отнюдь не автор музыки HAVAYOTH (цитата из пресс-релиза: «Компания “ФОНО” предоставляет всем поклонникам творчества известного шведского музыканта Vintersorg’a познакомиться с еще одним проявлением его многогранного таланта»). Автор всех песен – ни кто иной как Маркус Норман. Впрочем, это заметно невооружённым глазом (ухом). Во всяком случае, уши тех, кто знаком с творчеством ANCIENT WISDOM, определённо заметят некоторое сходство. Ещё раз скажу: красивая, безумно красивая, словно воздушная музыка, предназначенная для прохладных летних деньков…</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

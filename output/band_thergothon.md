@@ -25,6 +25,16 @@ Patrikainen October+November 1993
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.11.2009 news Tribute To Thergothon - Rising Of Yog-Sothoth
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.11/15576.jpg" width=400 align=right border=5>Solitude Productions</STRONG> выпускает "<STRONG>Tribute To Thergothon</STRONG>". В трибьюте приняли участие семнадцать групп различных стилистических направлений, из разных стран - Великобритании, Финляндии, России, США, Нидерландов, Австралии, Германии и Канады. Трэк-лист:</FONT></P>
+<P>CD1<BR>1. <STRONG>Asunder - Who Rides the Astral Wings</STRONG><BR>2. <STRONG>Officium Triste - Crying Blood and Crimson Snow</STRONG><BR>3. <STRONG>Evoken - Yet the Watchers Guard</STRONG><BR>4. <STRONG>Imindain - Everlasting</STRONG><BR>5. <STRONG>Colosseum - The Unknown Kadath in the Cold Waste</STRONG><BR>6. <STRONG>Mournful Congregation - Elemental<BR></STRONG>7. <STRONG>Worship - Evoken</STRONG><BR>8. <STRONG>Umbra Nihil - The Twilight Fade</STRONG><BR>9. <STRONG>Persistence In Mourning - Dancing In The Realm Of Shades</STRONG></P>
+<P>CD2:<BR>1. <STRONG>Nojda - Evoken</STRONG><BR>2. <STRONG>Otzepenevshiye - The Unknown Kadath in the Cold Waste</STRONG><BR>3. <STRONG>Krohm - Everlasting</STRONG><BR>4. <STRONG>Inter Arbores - Who Rides the Astral Wings</STRONG><BR>5. <STRONG>Astral Sleep - Yet the Watchers Guard</STRONG><BR>6. <STRONG>Aarni - Verivaikerrus - Hurmehanki</STRONG><BR>7. <STRONG>Axis Of Advance - Elemental</STRONG><BR>8. <STRONG>Singultus - The Twilight Fade</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -270,6 +270,32 @@ Erin Conigliaro  -  Graphic Design
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.08.2001 news Возрождение Y&amp;T...
+
+<p>Супер-популярная группа 80-х - "Y&T" возрождается в оригинальном составе: Dave Meniketti - вокал, Stef Burns - гитара, Leonard Haze - барабаны и бассист Phil Kennemore. Команда собирается отыграть семь американских шоу уже осенью, предваряя выход диска Best Of—Ultimate Collection на Universal Records.</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Y&amp;T will reportedly reunite for...
+
+<p>In the wake of the recent release of Universal Records’ Best Of—Ultimate Collection CD, ‘80s rockers Y&T will reportedly reunite for up to seven shows in Northern California in November. According to a message board posting by singer Dave Meniketti at www.meniketti.com, he will join guitarist Stef Burns (currently in Huey Lewis’ band), drummer Leonard Haze, and bassist Phil Kennemore for shows in Modesto on November 8th, Sacramento on November 9th and Petaluma on November 10th, with additional dates to be announced for San Francisco and San Jose. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

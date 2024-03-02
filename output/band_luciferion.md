@@ -58,6 +58,45 @@ VI. And All The Waste Will Fade
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.06.2001 news DIMENSION ZERO - новый мелодик дэс из Швеции...
+
+<p>Участники проектов "IN FLAMES" и "MARDUK" создали команду с целью поиграть мелодик дэс метал. В окончательный состав "DIMENSION ZERO" вошли Jocke G&ouml;thberg (ex-MARDUK) - вокал, Hasse Nilsson (LUCIFERION, DIABOLIQUE) - барабаны, Glenn Ljungstr&ouml;m (IN FLAMES) и Jesper Str&ouml;mblad (IN FLAMES) - гитары и басс. Команда уже подписала контракт с пока еще не названным лэйблом и сейчас планирует запись дебютного полноформатника. Сессия будет проходить во Fredman Studios в Gothenburg (Швеция), где был записан EP "Penetrations From the Lost World".</p>
+
+Автор: Yermola
+
+### 06.06.2001 news Sweden&#39;s DIMENSION ZERO....
+
+<p>Sweden's DIMENSION ZERO—featuring IN FLAMES guitarist Jesper Strцmblad and ex-IN FLAMES axeman Glenn Ljungstrцm—are reportedly "only days away" from signing on the dotted line with an as-yet-unspecified record label, and rehearsals will begin in the coming weeks for the recording of the band's debut full-length album, the group's first release in six years. The DIMENSION ZERO line-up for the forthcoming CD will be as follows: Jocke Gцthberg (ex-MARDUK) on vocals, Hasse Nilsson (LUCIFERION, DIABOLIQUE) behind the drums, Glenn Ljungstrцm on guitars and Jesper Strцmblad will play guitars and bass. Recording will take place in September when they again return to Fredman Studios in Gothenburg / Sweden were they recorded the 1996 Penetrations From the Lost World EP. The as-yet-untitled album is expected to emerge in early 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 25.12.2001 news Новый диск гиперскоростных LUCIFERION
+
+<p>По поступившей от Микке Никлассена (бассист Luciferion, Dark Tranquillity) информации, в течении 6 лет спавший монстр проснулся! В будущем году ожидается новый полноформатный диск LUCIFERION, название которого пока не придумано. Это будет ещё более скоростной (!!!), агрессивный и техничный материал. Mikke пообещал сенсацию в мире Death Metal.</p>
+
+Автор: ZYKLON
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+### 27.07.2003 reviews Экстремальные отступники
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" width="100%" UNSELECTABLE="on"></TR>
+<TR UNSELECTABLE="on" hb_tag="1"></TR></TBODY></TABLE>
+<BLOCKQUOTE id=3f3f9cff>
+<P>Воспитаники Сатаны Wojtek Lisicki (ex-LOST HORIZON) и Michael Nicklasson (DARK TRANGUILLITY) вернулись спустя восемь лет с новым чумовым творением. Они вернулись не одни, а с двумя новыми музыкантами - басист Martin Furangen (LOST HORIZON) и ударник Hans Nilsson (DIABOLIQUE, DIMENSION ZERO). В начале 1995 года, LUCIFERION взволновали мировую музыкальную общественность своим грандиозным дебютом "Demonication (The Manifest)", выдержанным в духе экстремального скоростного death black metal с нереальными гитарными соло и гипнотизирующими мелодиями. Новый альбом состоит как бы из трех частей. Первая часть включает в себя новый материал, написанный в период с 1996 по 2001 год (период, когда группа находилась в замороженном состоянии), представляющий собой превосходную комбинацию раннего творчества группы с современными возможностями звукозаписи. Вторая часть - это кавер-версия "Cyrcle Of The Tyrants" на CELTIC FROST, записанная в отвратительном качестве, но тем не менее, представляющая ценность для поклонников группы. И заключительная часть - это ремастированный демо-материал 1994 года "The Demon", включающий в себя демо-версии пяти вещей с дебютного альбома LUCIFERION в соответствующем тому времени качеством. Новый материал показывает явственный музыкальный прогресс группы, что не позволяет говорить о неудачном реюнионе группы. Новые вещи такие же мрачные, брутальные, мелодичные, на варьируемых скоростях, со сложными и техничными гитарно-клавишными соло, бешеной ритм-секцией и адским вокалом. Альбом полон свежих идей и экстремальной атмосферы. И насколько мне известно, этот альбом - лишь мостик от прошлого группы к ее будущему. Недаром, совсем недавно Wojtek Lisicki покинул LOST HORIZON. Теперь, он решил полностью посвятить себя LUCIFERION. Не за горами, новый полноценный альбом шведских музыкантов. А пока, в его ожидании, предлагаю всем ознакомиться с этим оригинальным творением, способным подарить целый час интересной и необычной брутальной музыки.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P></BLOCKQUOTE>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

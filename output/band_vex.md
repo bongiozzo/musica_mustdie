@@ -30,6 +30,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.06.2016 reviews Поэтичный атмосферный black metal
+
+<p>А бывает, вообще, в Техасе дождь? Я думаю, каждый, кто никогда не бывал в этом штате США, задумается над этим вопросом. Кажется, в этой области всегда яркое солнце, знойные испаноязычные жители страны и тако. Если это так, следует прийти в восторг от художественного воображения американской atmospheric black metal банды VEX, ведь их третий альбом «Sky Exile” вгоняет в такое меланхоличное настроение, какое могут воссоздавать только на севере Европы, да и то музыканты не каждой национальности.</p><p>Новый альбом VEX “Sky Exile” вышел в середине июня на лэйбле Eihwaz Recordings. Для меня этот коллектив стал настоящим открытием. С творчеством американцев до этого момента я знаком не был, и послушав альбом несколько раз с большим удовольствием, я порадовался за себя и заранее порадовался за читателей нашего сайта. «Sky Exile” должны оценить все любители меланхоличной и атмосферной black death metal музыки. Великолепные мелодии, неподражаемое настроение безнадёги и конечности жизни. Среднетемповый black metal с большим количеством лирических отступлений и вкраплениями чистого вокала и акустической гитары. Отдельно следует отметить тексты VEX. Дело не столько в смысловой нагрузке, но в том, что лирика явно стихотворная, а это даже при использовании скриминга создаёт дополнительный поэтический эффект, дополняющий впечатление от музыкального материала.</p><p>Великолепный альбом без всяких вариантов. Каждая песня представляет свою собственную музыкальную историю, явно треки не вылеплены по какому-то единому шаблону, а это в наше время «фабричной» музыки можно встретить практически только на малоизвестных лэйблах с низким бюджетом. Надеюсь, мой скромный вклад в популяризацию отличного альбома VEX не пропадёт даром. Оцените «Sky Exile”, он понравится всем любителям атмосферной и мелодичной тяжёлой музыки.</p>
+Автор: Vit Belov
+
+### 27.06.2016 reviews Poetic atmospheric black metal
+
+<p>Is the rain in Texas sometimes, actually? I think everyone who has never been in this state of USA will think about this question. It seems that in this area is always bright sun, the sultry Hispanic residents and tacos. If it's so, you should come to the delight from the artistic imagination of the American atmospheric black metal band VEX, as their third album "Sky Exile" drives in such a melancholy mood, which can replicate only in the North of Europe, and even not from musicians of every nationality.</p><p>VEX's new album “Sky Exile”, was released in mid-June on the label Eihwaz Recordings. For me, this band became a real discovery. I didn't meet with the works of the Americans up to this point, and after listening to the album several times with great pleasure, I was glad for myself and in advance happy for our readers. "Sky Exile" should be appreciated by all fans of melancholic and atmospheric black death metal music. Gorgeous melodies, and inimitable mood of hopelessness and extremity of life. Midtempo black metal with lots of lyrical digressions and interspersed with clean vocals and acoustic guitars. Special note to lyrics of VEX. It's not only meaning, but that the lyrics are obviously poetic, and even using the screaming it creates an additional poetic effect, complementing the impression of the musical material.</p><p>A great album without any options. Each song is its own musical history, obviously the tracks are not moulded in a single template, and it is in our time of "factory" music can be found almost exclusively on the little-known label with a low budget. I hope my modest contribution to the promotion of an album of VEX is not in vain. Rate the "Sky Exile", it will appeal to all fans of atmospheric and melodic heavy music.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

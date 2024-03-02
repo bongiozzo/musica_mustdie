@@ -33,6 +33,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news BROKEN MELODY взяли музыкантов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянская melodic heavy-metal команда <STRONG>BROKEN MELODY</STRONG> объявида имена двух новых музыкантов. К группе присоединились гитарист <STRONG>Cristian Sotgiu</STRONG> (ex-<STRONG>RED WARLOCK</STRONG>)&nbsp;и клавишник<STRONG>&nbsp;Giulio Fanelli</STRONG>. Трейлер, посвящённый этому событию можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний на сегодня альбом итальянцев "<STRONG>Mirroring Identities</STRONG>" вышел в 2009 году на <STRONG>Copro Records</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Qdr0b0-DWKg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Qdr0b0-DWKg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

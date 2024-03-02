@@ -80,6 +80,22 @@ I Of The Storm
 
 * C группой "Dead Soul Tribe" Buddy Lackey
 
+## Публикации
+
+### 09.03.2008 news DEVON GRAVES (BUDDY LACKEY)  продюсирует вокал нового альбома NOVA ART
+
+<P>Московская группа<STRONG> NOVA ART</STRONG> сообщает о том что с 16 по 22 февраля на студии <STRONG>DEADSOUL TEMPLE</STRONG> (Австрия) отписаны все мужские вокальные партии для готовящегося альбома.&nbsp; Продюсировал вокал легендарный человек в мире прогрессивной музыки <STRONG>Devon Graves aka BUDDY LACKEY</STRONG> - основатель культовой американской группы<STRONG> PSYCHOTIC WALTZ</STRONG>. Сейчас<STRONG> Devon Graves</STRONG> работает в Австрии со своим сольным проектом <STRONG>DEADSOUL TRIBE</STRONG>.</P>
+<P>Ссылки:<BR><A href="http://www.nova-art.ru/">http://www.nova-art.ru</A><BR><A href="http://www.deadsoultribe.com/">http://www.deadsoultribe.com</A></P>
+Автор: Vit Belov
+
+### 17.09.2010 news PSYCHOTIC WALTZ вернулись
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2010.09/17191.jpg" width=300 align=right border=5>Официально объявлено о возрождении культовой prog-команды <STRONG>PSYCHOTIC WALTZ</STRONG>. В настоящее время в коллективе 4/5 оригинального состава:</P>
+<P>* <B>Devon Graves</B> (a.k.a. Buddy Lackey) - Vocals<BR>* <B>Brian McAlpin</B> - Guitar<BR>* <B>Steve Cox</B> - Guitar<BR>* <B>Ward Evans</B> - Bass<BR>* <B>Norman Leggio</B> - Drums</P>
+<P>В ре-юнионе не принял участия гитарист <STRONG>Dan Rock, </STRONG>которого заменил <STRONG>Steve Cox</STRONG>, игравший в коллективе в 1996 году. Последний студийный альбом <STRONG>PSYCHOTIC WALTZ</STRONG> <STRONG>"Bleeding" </STRONG>вышел также в 1996 году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Psychotic Waltz

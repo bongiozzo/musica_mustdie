@@ -392,6 +392,15 @@ Mike Rutherford  -  Bass, Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.09.2002 news MP3 новой песни GORDIAN KNOT...
+
+<p>Проговая супер-группа "GORDIAN KNOT" состоящяя из бывших участников культовых "CYNIC" Sean Malone (басс), Jason Gobel (гитара) и Sean Reinert вместе с гитаристом "GENESIS" Steve Hackett выложили в сети MP3 песни "Muttersprache" взятой с еще не вышедшего альбома группы названного Emergent. Скачать ее можно здесь: <A HREF="http://www.seanmalone.net/mp3/Muttersprache.mp3">http://www.seanmalone.net/mp3/Muttersprache.mp3</A></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

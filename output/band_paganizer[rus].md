@@ -26,6 +26,17 @@ band from Nizhniy Tagil
 * C группой "Deranged" Rogga Johansson
 * C группой "Ribspreader" Rogga Johansson
 
+## Публикации
+
+### 26.01.2013 news Paul Speckmann + Rogga Johansson
+
+<P><STRONG>Paul Speckmann</STRONG> (<STRONG>MASTER</STRONG>, <STRONG>ABOMINATION</STRONG>, <STRONG>DEATH STRIKE</STRONG>)&nbsp;и <STRONG>Rogga Johansson</STRONG> (<STRONG>BONE GNAWER</STRONG>, <STRONG>DEMIURG</STRONG>, <STRONG>PAGANIZER</STRONG>, <STRONG>RIBSPREADER</STRONG>)&nbsp;в скором времени выпускают свой совместный проект <STRONG>"Sulphur Skies"</STRONG>. Диск выйдет в количестве 1000 экземпляров на <STRONG>Vic Records</STRONG>. Автор обложки: <STRONG>Arvin Palma</STRONG> (<A href="http://www.facebook.com/TorturedPalmArtOfficial">www.facebook.com/TorturedPalmArtOfficial</A>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25369.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

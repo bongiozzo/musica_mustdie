@@ -312,6 +312,1071 @@ Mixed and mastered at Fascination Street Studios in Orebro, Sweden.
 * C группой "Ebony Tears" Richard Evensand (drums)
 * C группой "Terror 2000" Bjorn Speed Strid
 
+## Публикации
+
+### 23.02.2001 news Портрет Хищника на прилавках...
+
+<p>Третий альбом шведов Soilwork уже появился на прилавках Европы... Похоже что сотрудничество с крупным лэйблом пошло на пользу музыкантам. По словам гитариста Peter Wichers "Первые два альбома, особенно второй, по мелодике были как Slayer. А для Портрета мы хотели получить более тяжелый саунд, но экспериментировали с мелодичным вокалом. Я знаю, что некоторым людям которым нравились наши старые альбомы, новый может не понравиться, но мы делали этот альбом прежде всего для себя и мы очень горды им."</p>
+
+Автор: Yermola
+
+### 23.02.2001 news A Predator&#39;s Portrait
+
+<p>A Predator's Portrait is Soilwork's third release, and easily their best. Thanks to a big label push this time around there's little doubt the Swedish outfit will reach a wider audience. Guitarist Peter Wichers does not discount the first two albums as being of worth, but he believes the band has progressed by leaps and bounds since their beginnings.<BR><BR>"The first two albums, especially the second one, was like Slayer with melodies," he laughs. "For this album we wanted to do heavier stuff, but experiment with melodic vocals. I know that some people who liked the older albums won't like the new stuff, but we made this album for ourselves and we're very proud of it."<BR><BR>As for what instigated the change, particularly in the vocal department: "We didn't think about doing something that might be a little more commercial or whatever. It's fun to play this kind of stuff. I've been playing since 1995 and it's always been the growling vocals. It was like, 'Aw, come on, I want something different!' and our vocalist wanted to be recognized as a real singer this time around."</p>
+
+Автор: Yermola
+
+### 25.03.2001 news Изменения в Soilwork...
+
+<p>После выхода "Портрета Хищника" из группы ушел клавишник Carlos Del Olmo Holmberg. По его словам он больше не мог участвовать в продолжительных турне. Несмотря на уход между членами группы остались хорошие отношения и Карлос будет и в дальнейшем делать артворк для альбомов.</p>
+
+Автор: Yermola
+
+### 25.03.2001 news Soilwork Lose Keyboardist
+
+<p>Just after the release of their third full-length album, A Predator's Portrait, keyboardist Carlos Del Olmo Holmberg decided he no longer wanted to be a part of Soilwork.<BR><BR>"I've decided to leave Soilwork," said Del Olmo Holmberg in a recent Soilwork press release. "I've had many thoughts about the touring life and I found out that i'm not the touring kind of guy."<BR><BR>However, the keyboardist did reaffirm fans that he'll still be a part of the band in a non-musical capacity.<BR><BR>"But I'm still going to be a diehard Soilworker (I personally think Soilwork is the best metalband around) and as they are my best freinds not very much will change, exept that I donґt play in the band," Carlos said regarding his position outside Soilwork. "I'm still going to be (sic) activ on the forum, keep all thoose news about Soilwork posted as soon as there is some and i'm going to (hopefully) continue doing the artwork for them."</p>
+
+Автор: Yermola
+
+### 22.05.2001 reviews Хор мальчиков-зайчиков
+
+<P>Эх, не хотел я рецензировать этот, кххммм..., альбом, но все-таки это необходимо сделать, дабы уберечь других от своих же ошибок при покупке. Предыдущих работ этих менестрелей мне слышать не довелось, поэтому буду говорить только об этом диске, а говорить тут много нечего: музыкально сей опус один-в-один с точностью до ноты передер с легендарных AT THE GATES (работа из разряда "Мы тоже так хочи-и-им!!!"), а за то, чтобы ребят не привлекли к ответственности за плагиат, они для разнообразия ввели некоторые свои нововведения по вокальной части (хотя лучше бы они это и не делали!). Итак, все самое неприятное заключается в том, что добрая половина материала (припевы - так практически все...) спета эдаким ДЕПЕШ-МОДОВСКИМ мажорно-слащавым MTV-шным подвыванием, которое можно услышать включив в любое время это самое "музыкальное телевидение" и слыша которое с трудом сдерживаешь рефлекторное желание с размаху бросить пивной бутылкой в усилитель (Право же, на мажорном "One Second" у PARADISE LOST вокал и то брутальнее звучит...). Облегчение - процесс, конечно, полезный и нужный, но только для человеческого организма, а когда же дело касается музыки, то его лучше избегать. А таким хоровым распевкам "мальчиков-зайчиков" не место на DEATH-овом альбоме, пусть даже он и "мелодик шведский"; этим подвыванием только "Богородицу" в пресветерианском храме петь, а не "смертельный металл". Итого за зеркально-точное и качественное копирование без нот и партитуры мэтров жанра можно бы альбом этот и положительно оценить (музыкально-то он, можно сказать, очень даже неплох и слушабелен - оно и понятно: передрали родоначальников направления здОрово, просто один-в-один), но как вспомню, что я после ихнего воКАЛа чуть усилка не лишился, так прямо этих паршивцев все туалеты бы в ихней студии звукозаписи вылизать бы заставил! Выше жиденькой троечки поставить не могу - сплошное издевательство и насмешка над классиками жанра. А покупать диск или нет - решайте сами на свой страх и риск.</P>
+Автор: Alexey Pitirimov
+
+### 29.05.2001 news Новый шведский проект THE DEFACED....
+
+<p>Богатая на таланты Швеция разродилась новым проектом "THE DEFACED". В состав вошли барабанщик "SOILWORK" Henry Ranta и гитарист "DARKANE" Klas Ideberg (оба они также участвовали в дебютнике "Slaughterhouse Supremacy" команды TERROR 2000). В Октябре в Европе появится первый альбом "Domination Commence", японский релиз выйдет на месяц раньше и будет иметь бонус "When The Levee Breaks" - LED ZEPPELIN. Стиль группы обещает быть смесью между MACHINE HEAD, MESHUGGAH и TESTAMENT.</p>
+
+Автор: Yermola
+
+### 29.05.2001 news Sweden&#39;s THE DEFACED....
+
+<p>Sweden's THE DEFACED, featuring SOILWORK drummer Henry Ranta and DARKANE guitarist Klas Ideberg (both of whom were also involved with the TERROR 2000 debut album Slaughterhouse Supremacy), are due to release their first album, entitled Domination Commence, in Europe in October, while the Japanese release is scheduled for September and will include as a bonus track the group's cover of LED ZEPPELIN's "When The Levee Breaks". THE DEFACED's musical style is being described as "an incredible thrash-tornado mixing influences from early MACHINE HEAD, MESHUGGAH and TESTAMENT." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.08.2001 news Новости SOILWORK ...
+
+<p>Надежда шведского дэта "SOILWORK" на собственно официальном сайте подтвердили, что ко-продюссером следующего альбома вместе с Fredrik Nordstr&ouml;m будет мэйнмэн STRAPPING YOUNG LAD - Devin Townsend. По словам команды: "Дэвин будет работать в студии с первого до последнего дня. Мы очень рады этому и хотим поработать с ним!!! Не ждите от нас ничего другого кроме как "безумного куска музыкального исскуства"... Это будет более высокий уровень по сравнению с Predator’s Portrait ..."</p>
+
+Автор: Yermola
+
+### 23.10.2001 news SOILWORK have almost completed laying down the drums ...
+
+<p>Swedish melodic deathsters SOILWORK have almost completed laying down the drums for their their as-yet-untitled new album with producers Devin Townsend (of STRAPPING YOUNG LAD fame) and Fredrik Nordstrom at Gothenurg’s Studio Fredman and are currently tracking the rest of the instruments before beginning to mix the effort in late December. According to vocalist Bjцrn "Speed" Strid, “Peter has also started to record some rhythm guitars, so everything’s working out really good. Both [Fredrik’s] and Devin’s head are packed with ideas, so everything’s really exciting right now.... I’m heading for the studio on Tuesday, and I guess I will start recording the vox pretty soon... Looking forward!!!” Due to be released in early 2002 through Nuclear Blast Records, the upcoming CD will include the following working song titles, among others: <BR> 01. The Bringer <BR> 02. Blackstar Deceiver <BR> 03. As We Speak <BR> 04. No More Angels <BR> 05. Follow The Hollow <BR>Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Барабаны уже записаны...
+
+<p>"SOILWORK" уже закончили запись барабанов и сейчас пишут партии ритм-гитар. Процесс продвигается хорошо и к декабрю уже будет проходить микширование. Уже стали известны названия некоторых треков: <BR> 01. The Bringer <BR> 02. Blackstar Deceiver <BR> 03. As We Speak <BR> 04. No More Angels <BR> 05. Follow The Hollow</p>
+
+Автор: Yermola
+
+### 21.11.2001 news Speaking of SOILWORK...
+
+<p>Speaking of SOILWORK, the Swedish melodic deathsters have announced a couple festival appearances for the next spring/summer, after the release of the group’s forthcoming studio opus through Nuclear Blast Records. The confirmed dates so far are as follows:<BR><BR> April 4-7 – Worcester, MA @ New England Metal & Hardcore Fest. <BR> May 18 – Bengtfors, SWE @ Decibel Festival <BR> July 5-7 – Flugplatz, Roitzschjora, GER @ With Full Force Fest.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news Bjцrn &quot;Speed&quot; Strid will be traveling up to Gothenburg ...
+
+<p>Bjцrn "Speed" Strid will be traveling up to Gothenburg this weekend to put the final touches on the vocals before mixing begins on December 11th. Devin Townsend, who is producing the new disc, joined in with Speed on the song "Black Star Deceiver" for what Speed describes as "a vocal 'trade off' type of thing…[that] turned out very cool." Mixing will run through December 20th and the finished masterpiece will hit the stores this spring. Other songs on the disc include "The Flameout," "No More Angels," "Follow the Hollow," "Mercury Shadow," and "As We Speak." <BR> <BR> In other news, Soilwork is already scheduled to play the 4th annual New England Hardcore and Metal Festival in April, as well as an appearance at With Full Force Festival (Germany) and Decibel 2001 (Sweden). In preparation, Speed says, "we will start to rehearse the new material in a few weeks to make sure that weґre ready to hit the roads in March or April with a skullcrushing setlist." Be ready!</p>
+
+Автор: Yermola
+
+### 07.12.2001 news SOILWORK готовят бомбу...
+
+<p>Bjоrn "Speed" Strid вылетает в Готенбург на этот уик-енд, что бы добавить последние штрихи к вокальным линиям перед микшированием, которое начинается 11-го декабря. Продюссер Devin Townsend соединит свои усилия с Бьорном в работе над песТней "Black Star Deceiver". Все должно быть закончено к 20-му декабря. Готовый продукт будет штурмовать прилавки уже весной. Известно, что также на диске будут "The Flameout," "No More Angels," "Follow the Hollow," "Mercury Shadow," и "As We Speak". <BR> Из других новостей, команда готовится принять участие в 4-м ежегодном New England Hardcore and Metal Festival в Апреле и в With Full Force Festival (Германия) и Decibel 2001 (Швеция). Окажетесь в Швеции - не пропустите! :-))</p>
+
+Автор: Yermola
+
+### 03.01.2002 news Хаос созданный естественным путем....
+
+<p>Новый альбом "SOILWORK" будет называться - "Natural Born Chaos" и войдут на него следующие песни: <BR><BR> 01. Follow The Hollow<BR> 02. As We Speak<BR> 03. The Flameout<BR> 04. Natural Born Chaos<BR> 05. Mindfields<BR> 06. The Bringer<BR> 07. Blackstar Deceiver (с участием Devin Townsend)<BR> 08. Mercury Shadow<BR> 09. No More Angels<BR> 10. Song Of The Damned<BR> 11. Mercury Shadow (Swedish version—Japanese bonus track)<BR><BR> В продаже альбом появится в марте через Nuclear Blast Records.</p>
+
+Автор: Yermola
+
+### 03.01.2002 news SOILWORK Get &quot;Chaotic&quot; In March, Pursue Side Projects ....
+
+<p>SOILWORK's upcoming fourth full-length album will be entitled Natural Born Chaos, and it will feature the following track listing:<BR><BR> 01. Follow The Hollow<BR> 02. As We Speak<BR> 03. The Flameout<BR> 04. Natural Born Chaos<BR> 05. Mindfields<BR> 06. The Bringer<BR> 07. Blackstar Deceiver (feat. Devin Townsend)<BR> 08. Mercury Shadow<BR> 09. No More Angels<BR> 10. Song Of The Damned<BR> 11. Mercury Shadow (Swedish version—Japanese bonus track)<BR><BR> As previously reported, Natural Born Chaos was recorded at Studio Fredman in Gothenburg, Sweden with producers Devin Townsend (STRAPPING YOUNG LAD) and Fredrik Nordstrom, and it is tentatively scheduled for a March release through Nuclear Blast Records.<BR><BR> In related news, TERROR 2000—the side project of SOILWORK vocalist Bjцrn "Speed" Strid and DARKANE guitarist Klas Ideberg—are currently laying down drum tracks for their sophomore CD, tentatively titled Faster Disaster, for a spring release through Italy's Scarlet Records (Nuclear Blast Records in the USA). The follow-up to 2000's Slaughterhouse Supremacy will be the band's first effort with new drummer Erik Thyselius (ex-CONSTRUCDEAD), who replaced Henry Ranta (SOILWORK) early last year.<BR><BR> In other related news, THE DEFACED, featuring Ranta and Ideberg (both of whom were also involved with the aformenentioned TERROR 2000 debut), have inked a deal with Nuclear Blast for the US release of their debut album, entitled Domination Commence. The CD is expected to be issued domestically on February 19th.</p>
+
+Автор: Yermola
+
+### 04.02.2002 news Real Audio SOILWORK....
+
+<p><A HREF="http://www.nuclearblast.de/media/NB_0581.ram">Здесь </A>можно послушать песню "SOILWORK" - “Black Star Deceiver” с еще не вышедшего альбома "Natural Born Chaos". В качестве гостя присутствует участник STRAPPING YOUNG LAD - Devin Townsend.</p>
+
+Автор: Yermola
+
+### 04.02.2002 news SOILWORK&#39;s &quot;Black Star Deceiver&quot; Available For Online Listening ...
+
+<p>SOILWORK's “Black Star Deceiver”, taken from the group's upcoming Natural Born Chaos CD and featuring a guest appearance from STRAPPING YOUNG LAD mastermind Devin Townsend (who co-produced the record), can be heard in streaming Real Audio at <A HREF="http://www.nuclearblast.de/media/NB_0581.ram">this location. </A></p>
+
+Автор: Yermola
+
+### 17.02.2002 reviews Natural Corn Spoiledwork  :) или добрый мальчик Chaos от лысых папашек
+
+<p>Впервой я услыхал сей шедевр в изрядном подпитии, из-за расставания с очередной пассией, в тот момент хотелось всех и вся сокрушить, забить, уничтожить и сдать на мясокомбинат. Но тут мой дружбан подсовывает мне сей альбом с таким видом, типа - “на дитятя утешься, токмо не плачь и не буянь”. Предвкушая нечто в ультраскоростном зубодробильном стиле их первых двух альбомов в смеси с шизовым угаром от музик кутюр Таунсенда из Strapping Young Lad, (как всем известно, он сей альбомец и продюссировал), я заорал благим матом. Но вскоре мой неуёмный энтузиазм сменился на ярость. Под влиянием бродящего в голове алкоголя, “чувства утраты” и желания “кому нибудь настучать по репе”, диск мне показался страшно сопливым, трендовым и медленным. Посему неотходя от кассы, я накрапал на http://www.soilworkers.com гневный отзыв, обматюгав их последними словами в стиле “подайте шляпу и пальто – имел я ваши имянины”. Протрезвев и проспавшись, находясь в весьма меланхоличном настроении, прослушал его снова. Мнение кардинально изменилось, захотелось даже извиниться, но “гордость” не позволила. Мне кажется что есть две разные группы с теми же музыкантами и названием : первая группа поднялa и с честью несла знамя геройски павшего At The Gates. Вторая же появилась вместе с третим альбомом “The Predator’s Portrait”. Музыка сбавила “обороты”, также появился “чистый” вокал напоминающий вышеупомянутого „HeavyDevy”. <BR> Новый альбом звучит в традициях своего предшественника, только ещё больше снижены обороты и задушевнее звучит ангельский голосок Бьорна. Мне они почему то очень напомнили последнюю работу Gardenian - “Sindustries” . Сыграно всё без сучка и задиринки. Скажем так, если новоприрождённый Хаос там и есть, то он видно очень послушный мальчик и орёт только по команде своего лысого папы. Влияние великого и горластого Девина выражено на данном альбоме его великолепнейшей продюссерской работой. Звук просто бесподобен ! А вот Таунсендовский вокал в песне Black Star Deciever, настолько сливается в дуэте со Стридом, что сам чёрт неразберёт где один, а где другой. <BR> Выделить где песня лучшая, где худшая – невозможно, все они по своему прекрасны. Но вот выделим особо Follow the Hollow – там такой весёлый гроулинг (такого у них ещё небыло ). Подводим итоги – слушаю пятый день и нравится всё БОЛЬШЕ и БОЛЬШЕ ! <BR> Если кинет вдруг подруга, слушай Soilwork. И печаль вся сгинет и тоска пройдёт ! :)<BR> За продюссерскую работу и качество звучания – 10 За вокалы – 10 За остальные инструменты -10 За задушевность – 10 За облегчание – 2 Суммируем , делим и получаем – 8 И кто сказал, что я предвзят и необъективен ?!?????</p>
+
+Автор: ZYKLON
+
+### 31.03.2002 news Подарочек ко дню рождения Ильича
+
+<p>К 132 годовщине со дня рождения великого пролетарского вождя Владимира Ильича Ульянова-Ленина, шведские комсомольцы-трэшеры TERROR 2K приготовили зубодробильный привет-подарочек Ильичу под названием 'Faster Disaster'. <BR> Официальный трэклист утренника : Back With Attack, Formula Flame Feast, Headrush, Infernal Outlaw, Burn-Out In Blood, Faster Disaster, Menace Of Brutality, Stalkers In The Night, I'm Speed At Night, Killing Machine. Японский вариант 'Faster Disaster' будет содержать бонустрэк 'Mental Machinery' (Live). Итак, по заверениям подпольной молодёжной организации Scarlet Records - земля задрожит 22 апреля 2002 года.</p>
+
+Автор: ZYKLON
+
+### 22.01.2003 news Новый альбом Soilwork...
+
+<p>Шведы SOILWORK сейчас в Геттенбергской Studio Fredman записывают альбом продолжение нашумевшего "Natural Born Chaos" для выхода на Nuclear Blast Records в Апреле. <BR><BR> Трек-лист:<BR><BR> 01. Downfall 24<BR> 02. Brickwalker<BR> 03. Cranking the Sirens<BR> 04. Departure Plan<BR> 05. Overload<BR> 06. Rejection Role<BR><BR> Вокалист Bjоrn "Speed" Strid так прокомментировал процесс записи: <BR><BR> "Всем привет! Всю последнюю неделю я записывал вокалы в Studio Fredman и все получилось достаточно быстро. Поскольку Devin'a Townsend'a (продюссера) в студии не было и никто не давил на меня я просто постарался сделать все возможное со своей стороны."</p>
+
+Автор: Yermola
+
+### 22.01.2003 news SOILWORK: New Songtitles Revealed!
+
+<p>Sweden's SOILWORK are in the process of tracking lead vocals at Gothenburg's Studio Fredman for the much-anticipated follow-up to last year's "Natural Born Chaos", due in April through Nuclear Blast Records. <BR><BR> Among the cuts set to appear on the as-yet-untitled effort are:<BR><BR> 01. Downfall 24<BR> 02. Brickwalker<BR> 03. Cranking the Sirens<BR> 04. Departure Plan<BR> 05. Overload<BR> 06. Rejection Role<BR><BR> Vocalist Bjцrn "Speed" Strid posted the following studio update yesterday (Jan. 20) via the group's official web site:<BR><BR> "Hi everyone! I've been recording the vocals now for one week at Studio Fredman and everything is running pretty fast. As [STRAPPING YOUNG LAD frontman] Devin [Townsend, producer of 'Natural Born Chaos'] is not in the studio this time to push me, I have to push myself really hard to give the best possible contribution to the album. I have [producer] Fredrik Nordstrцm's outstanding assistant to help me, which works out really good. I feel more comfortable than ever in the studio and I'm very happy with the result as this album has been a REAL challenge for me and the guys."</p>
+
+Автор: Yermola
+
+### 16.02.2003 news Фигура номер пять
+
+<p>Окончательно прояснилась ситуация с новым альбомом группы SOILWORK. Окончательное название альбома - "Figure Number Five". Альбом выйдет на Nuclear Blast Records 21 апреля 2003 года в Европе и 5 мая в Северной Америке. Окончательный трэк-лист альбома выглядит так:</p>
+<p> 01. Rejection Role <BR> 02. Overload <BR> 03. Figure Number Five <BR> 04. Strangler <BR> 05. Light the Torch <BR> 06. Departure Plan <BR> 07. Cranking the Sirens<BR> 08. Brickwalker<BR> 09. The Mindmaker<BR> 10. Distortion Sleep <BR> 11. Downfall 24</p>
+
+Автор: Dimas
+
+### 24.04.2003 reviews Экпсперименты в melodic-death-metal продолжаются
+
+<p>Шведская группа Soilwork продолжила свои изыскания на ниве шведского же melodic death-metal. Со времен альбома 'Predator's Portrait', который первый был издан в России всего около двух с половиной лет назад, музыка группы сильно изменилась. Пытаясь выковать что-то новое из застывшего монумента, оставленного родоначальниками стиля In Flames и Dark Tranquillity, Soilwork щедро добавляют в свою музыку псевдо-готические и альтернативные элементы. К сожалению, после добавления всех этих специй вкус основного блюда практически неразличим. 'Figure number five' можно смело отнести к интересным экспериментальным работам, но никак не к очень хорошим в музыкальном плане. Более того неудовлетворённые вопли вокалиста, сменяемые меланхоличным чистым вокалом, в конце концов утомляют. Всё-таки на предыдущей пластинке 'Natural Born Chaos' пропорции были распределены более вкусно.</p>
+
+Автор: Vit Belov
+
+### 08.06.2003 news HENRY RANTA покинул SOILWORK
+
+<p>Ударник Henry Ranta покинул шведскую супергруппу SOILWORK, чтобы иметь больше времени на свою личную жизнь. С этих пор, его игру можно будет услышать только на студийных работах в разных проектах, среди которых также THE DEFACED.</p>
+
+Автор: Dimas
+
+### 14.06.2003 news Новый ударник SOILWORK
+
+<p>Новым ударником SOILWORK стал Richard Evensand (EBONY TEARS, DOG FACED GODS, SORCERER)</p>
+
+Автор: Dimas
+
+### 22.06.2003 news Новости от SOILWORK
+
+<p>Новым ударником шведской группы SOILWORK, вместо ушедшего Henry Ranta, стал Richard Evensand (EBONY TEARS).</p>
+
+Автор: Dimas
+
+### 18.07.2003 news Видео Soilwork
+
+<p>Soilwork сняли видеоклип на песню "Light The Torch". Скачать можно <A HREF="http://student.sofe.nu/da02maje/LTT/download.html">здесь</A>.</p>
+
+Автор: Morsus
+
+### 18.07.2003 news Soilwork video
+
+<p>Soilwork has finished the recording of their new video for the song "Light The Torch", you can download this video <A HREF="http://student.sofe.nu/da02maje/LTT/download.html">here</A>.</p>
+
+Автор: Morsus
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 12.10.2003 news SOILWORK реализуют EP
+
+<B>SOILWORK </B>выпускают мини-альбом раритетов в следующем месяце на своём прошлом лэйбле <B>LISTENABLE</B>. На альбом войдут старые нереализованный вещи группы:<BR><B>01. Burn (DEEP PURPLE cover)<BR>02. Disentigrated Skies<BR>03. Shadow Child (original version)<BR>04. Egypt (MERCYFUL FATE cover)<BR>05. The Aardvark Trail (live)</B>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 15.11.2003 news У SOILWORK новый барабанщик
+
+<B>SOILWORK</B> объявили имя нового барабанщика. Им стал <B>Richard Evensand</B>, известный по работе в <B>EBONY TEARS</B>. Он же будет барабанить и на новом альбоме <B>THERION</B>.
+Автор: Vit Belov
+
+### 03.01.2004 reviews Песни с соляных работ
+
+<P>Чёрт! Скажите мне, пожалуйста, как это называть? Современный melodic-death-metal? Если бы мне дали этот диск лет пять назад, сказав, что это <B>Soilwork</B>, то я бы не поверил. В первую очередь меня воротит от вокала, гнусного и грубого одновременно. Это что угодно, но не гроулинг. Постоянные клавиши подстать вокалу. Ужас!</P>
+<P>Такую оценку я поставил по двум причинам. Во-первых, аранжировки мне показались интересными, свежими и неожиданными. Во-вторых, я готов поверить, что этот диск мог бы получиться много-много хуже и скучнее.</P>
+Автор: Uneral
+
+### 11.02.2004 news Soilwork опять потеряли барабанщика
+
+<P><B><IMG height=135 alt="" hspace=0 src="/images/news_rus/2004.02/5988.jpg" width=200 align="left" border=0>Richard Evensand</B>, который пришёл в <B>SOILWORK</B> несколько месяцев назад, покинул группу. Сессионным барабанщиком стал <B>Dirk Verbeuren (SCARVE).</B> </P>
+Автор: Vit Belov
+
+### 11.02.2004 news SOILWORK has lost their drummer again
+
+<SPAN lang=EN-GB><B><IMG height=135 alt="" hspace=0 src="/images/news/2004.02/5987.jpg" width=200 align="left" border=0>Richard Evensand</B>, drummer of the Swedish Melodic Death machinery <B>SOILWORK</B>, has left the band as a good friend. For the upcoming European tour the band could hire <B>Dirk Verbeuren</B> of <B>SCARVE</B> as their drummer.</SPAN>
+Автор: Vit Belov
+
+### 06.04.2004 news Disarmonia Mundi выпускают второй альбом
+
+<P>Новый альбом итальянцев <B>DISARMONIA MUNDI</B> <B>"Fragments Of D-Generation" </B>выйдет 17 мая на <B>Scarlet</B>. На этом альбоме гостит вокалист <B>SOILWORK</B> <B>Bj&#246;rn "Speed" Strid.</B> Трэк-лист:</P>
+<P>01. <B>Common State Of Inner Violence</B><BR>02. <B>Morgue Of Centuries</B><BR>03. <B>Red Clouds</B> <BR>04. <B>Quicksand Simmetry</B> <BR>05. <B>Swallow The Flames</B><BR>06. <B>OceanGrave</B> <BR>07. <B>A Mirror Behind</B><BR>08. <B>Come Forth My Dreadful One</B> <BR>09. <B>Shattered Lives And Broken Dreams</B> <BR>10. <B>Colors Of A New Era</B> </P>
+Автор: Vit Belov
+
+### 19.06.2004 news Tuska Open Air in Finland
+
+The seventh annual Tuska Open Air Metal Festival has now confirmed its first artists for the 2004 festival. <BR><BR>The headliner for Saturday, the 17th of July, will be Nightwish, who will release their much-anticipated new album, "Once" in June. Nightwish will be mainly touring Europe and the United States next summer and their Tuska-performance is going to be one of their three finnish shows.<BR><BR>Another headliner at Tuska during 16.-18.7.2004 will be the legendary King Diamond. This pioneer of black metal has been touring the world for almost three decades, sold millions of records and inspired four generations of metalheads. Also appearing at Kaisaniemi Park are swedish melodic-deathmetal groups Soilwork and Dark Tranquility and german thrashers Dew-Scented.<BR><BR>Besides Nightwish, Tuska-festival will once again present the hottest finnish metal acts. During the weekend, performances by Impaled Nazarene, Sonata Arctica, Sinergy, Suburban Tribe, Mokoma, Kotiteollisuus and Timo Rautiainen & Trio Niskalaukaus will be taking place. The new generation of finnish metal will be represented by the highly acclaimed Swallow the Sun, Diablo, Machine Men, Kilpi and Twilightning.<BR><BR>Over the course of three days more than 30 bands will be appearing on three different stages. <BR><BR>In addition to the festival itself, the evening-clubs will entertain the festival crowd from Thursday through Sunday on four different locations. More than 30 up-and-coming acts will be performing in the evening-clubs, styles ranging from deathmetal to goth, industrial and cover-material.<BR><BR>Tickets for Tuska 2004 will go on sale in May through Tiketti (<A href="http://www.tiketti.fi/"><U>www.tiketti.fi</U></A>), Lippupalvelu (<A href="http://www.lippupalvelu.fi/"><U>www.lippupalvelu.fi</U></A>) and the new addition of Menolippu (<A href="http://www.menolippu.fi/"><U>www.menolippu.fi</U></A>). Tickets will also be available at selected record stores. Tuska 2004 is an all-ages festival.
+Автор: Vit Belov
+
+### 14.09.2004 news SOILWORK начали запись
+
+<P><STRONG>SOILWORK</STRONG> вошли в студию <STRONG>Dug-Out Productions </STRONG>вместе с продюсером <STRONG>Daniel Bergstrand</STRONG> (<B>MESHUGGAH</B>, <B>IN FLAMES</B>, <B>STUCK MOJO</B>) для записи шестого альбома, который выйдети в начале следующего года на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.09.2004 news SOILWORK begin to record
+
+<P>Swedish melodic death thrashers <B>SOILWORK</B> have entered <B>Dug-Out Productions</B> in Uppsala, Sweden with producer <B>Daniel Bergstrand</B> (<B>MESHUGGAH</B>, <B>IN FLAMES</B>, <B>STUCK MOJO</B>) to begin recording their sixth album, tentatively due in early 2005 through <B>Nuclear Blast Records</B>. Next week, the recording sessions will be moving to the <B>Fascination Street</B> studios in Цrebro.</P>
+Автор: Vit Belov
+
+### 20.11.2004 news SOILWORK подготовили новый альбом
+
+<P>Новый альбом <STRONG>SOILWORK 'Stabbing The Drama'</STRONG> выходит 28 февраля на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.11/7386.jpg" width=200 align=right border=5>1. <STRONG>Stabbing The Drama</STRONG><BR>2. <STRONG>One With The Flies</STRONG><BR>3. <STRONG>Weapon Of Vanity</STRONG><BR>4. <STRONG>The Crestfallen</STRONG><BR>5. <STRONG>Nerve<BR></STRONG>6. <STRONG>Stalemate<BR></STRONG>7. <STRONG>Distance<BR></STRONG>8. <STRONG>Observation Slave</STRONG><BR>9. <STRONG>Fate In Motion<BR></STRONG>10.<STRONG> Blind Eye Halo</STRONG><BR>11. <STRONG>If Possible</STRONG><BR><BR>Bonus:<BR>12. <STRONG>Wherever Thorns May Grow</STRONG> (on lim. Edition US/Europe + bonus for Japan)<BR>13. <STRONG>Killed By Ignition</STRONG> (Bonus for Japan only)<BR></P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 03.02.2005 articles SOILWORK: &quot;Некоторые говорят, что новый альбом более мелодичный. Возможно, это так&quot;.
+
+<P><IMG height=135 alt="" hspace=0 src="/images/articles_rus/2005.02/7832.jpg" width=200 align=left border=5>Новый альбом SOILWORK ‘Stabbing The Drama’ выходит на Nuclear Blast 28 февраля. Клавишник Sven Karlsson рассказал журналу Live 4 Metal о новой работе и новом барабанщике.</P>
+<P>Вопрос: Как ты можешь определить новый альбом? Он чем-то отличается от Ваших старых работ?</P>
+<P>Ответ: Я думаю, отличий много. Этот альбом более непосредственный. В прошлом мы испытывали гораздо больше давления, сейчас работа проходила более расслаблено. Мы провели огромное количество времени в турах с разными группами и были очень вдохновлены для записи новых песен. Всё это было сочинено без каких-либо дополнительных усилий с нашей стороны.</P>
+<P>Вопрос: Daniel Bergstrand продюсировал этот альбом. Как Вам с ним работалось?</P>
+<P>Ответ: Мы работали с Daniel до этого, SOILWORK записывали барабаны для прошлого альбома вместе с ним. Он сделал классную работу, и мы собирались записывать с ним барабаны и для новой работы. В тоже время мы стали подумывать о том, чтобы использовать одного продюсера, а не несколько, как раньше. Были и другие кандидаты на&nbsp; эту роль, например, Devin Townsend, но он был слишком занят с другими своими проектами. Таким образом, все отпали, и Daniel стал естественным выбором.</P>
+<P>Вопрос: Некоторые, говорят, что новый альбом более мелодичный и отполированный, чем Ваши старые пластинки. Это естественное развитие или коммерческий шаг?</P>
+<P>Ответ: Ха-ха, вопрос на миллион долларов. Я понимаю, почему некоторые люди утверждают, что мы продались, но в тоже время мы – группа, которая никогда не повторяет сама себя. Мы находимся в процессе постоянного развития, всегда достаточно сильно экспериментируем со своим звуком. Мы просто не можем находиться в статическом положении, это не наш выбор. Некоторые группы используют одну и ту же формулу раз от раза, но мы не из таких.</P>
+<P>Вопрос: После того, как Вас покинул барабанщик Ricky Evensand Вы взяли музыканта из SCARVE. Это постоянная замена?</P>
+<P>Ответ: Это подвешенная ситуация. Он записался для нового альбома, он поехал с нами в европейский тур, но он остаётся членом SCARVE. Он не хочет уходить из этой группы, и мы его понимаем, так как он был одним из основателей той группы. Нам необходим постоянный участник, поэтому мы ждём, что он решит. </P>
+Автор: Vit Belov
+
+### 03.02.2005 news Новый альбом SOILWORK
+
+<P>Новый альбом <STRONG>SOILWORK</STRONG> выходит 28 февраля на <STRONG>Nuclear Blast</STRONG>. Подробнее об этой пластинке можно почитать здесь: <A href="/ru/articles/1/53649/">http://musica.mustdie.ru/ru/articles/1/53649/</A></P>
+Автор: Vit Belov
+
+### 14.02.2005 news Новая песня SOILWORK
+
+<P><STRONG>Nuclear Blast</STRONG> выложили новую песни <STRONG>SOILWORK 'Nerve'</STRONG> по адресу: <A href="http://www.nuclearblast.de/media/NB_1377.ram">http://www.nuclearblast.de/media/NB_1377.ram</A></P>
+Автор: Vit Belov
+
+### 14.02.2005 news New song of SOILWORK to download
+
+<P><STRONG>Nuclear Blast</STRONG> uploaded new song of <STRONG>SOILWORK 'Nerve'</STRONG> to their official site: <A href="http://www.nuclearblast.de/media/NB_1377.ram">http://www.nuclearblast.de/media/NB_1377.ram</A></P>
+Автор: Vit Belov
+
+### 05.03.2005 news Видео SOILWORK on-line
+
+<P>Видео на песню "<STRONG>Stabbing The Drama</STRONG>" с нового альбома <STRONG>SOILWORK</STRONG> можно посмотреть здесь: <A href="http://www.nuclearblast.de/media/video/NB_1377.ram">http://www.nuclearblast.de/media/video/NB_1377.ram</A></P>
+Автор: Vit Belov
+
+### 17.03.2005 news Еще один проект от известных музыкантов
+
+<P>Вокалист<STRONG> SOILWORK</STRONG>&nbsp;<B>Bjorn "Speed" Strid</B>&nbsp;и ударник&nbsp;<B>BLIND GUARDIAN</B> <B>Thomen Stauch</B> основали проект, пока не имеющий названия. По словам музыкантов, их музыкальная направленность&nbsp;- музыка в духе <B>RAMMSTEIN</B>&nbsp;и <B>ALICE IN CHAINS</B>. К концу года планируется записать дебютный альбом этого проекта.</P>
+Автор: Dimas
+
+### 18.03.2005 news SOILWORK выпустят DVD
+
+<P><STRONG>SOILWORK</STRONG> планируют выпустить DVD, в ознаменование 10-летия коллектива. "<EM>Мы отснимем несколько концертов, добавим туда съёмки в тур-автобусе и "за сценой""</EM>, - говорит вокалист коллектива<STRONG> Bjorn Strid</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.05.2005 reviews SOILWORK идут своей дорогой
+
+<P>Хорошая в принципе группа SOILWORK продолжает шагать своей дорогой. Эта дорога ведёт их в пропасть поп-музыки. При этом под поп-музыкой следует понимать не только облегченное звучание или элементы рэпа, но и отсутствие интересных мелодий и кустарность материала. "Stabbing The Drama" не произвёл на меня никакого впечатления.</P>
+<P>При всей моей приверженности к старому доброму металлу я приветствую новые ощущения и оригинальные ходы в музыке. У SOILWORK не получается сочетать death-metal с современными веяними, как IN FLAMES. В этом их главная проблема. Новый альбом представляет всю ту же смесь чистовокальных напевов и агрессивных качовых риффов, как и раньше. Только пропорция изменилась в сторону чистоголосых партий, а элементы классического металла пропали вовсе. Даже гитары звучат как-то пластмассово, акцент делается на электронную их основу. Кроме этого, шведы явно переборщили с медленными и среднетемповыми композициями.</P>
+<P>Безусловно SOILWORK нельзя рекомендовать поклонникам pop-музыки. Их сможет оценить только подготовленный слушатель. Вот только на "Stabbing The Drama" отсутствует как драйв, так и запоминающиеся мелодии.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A>.</P>
+Автор: Vit Belov
+
+### 12.12.2005 news SOILWORK покинул гитарист
+
+<P>Гитарист<STRONG> Peter Wichers</STRONG> покинул <STRONG>SOILWORK</STRONG>, из-за недостатка времени. За 10 лет группа достигла такого уровня, на который <STRONG>Peter</STRONG> не рассчитывал и теперь не имеет возможности продолжать. В то же время барабанщик <STRONG>Dirk Verbeuren</STRONG> переведён из временных в постоянные участники коллектива.</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 26.07.2007 news Новый альбом SOILWORK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SOILWORK</STRONG>, выходящий 19 октября на <STRONG>Nuclear Blast</STRONG>, будет называться <STRONG>"Sworn to a Great Divide". </STRONG>Трэк-лист:</FONT></P>
+<P><IMG height=232 alt="" hspace=0 src="/images/news_rus/2007.07/11740.jpg" width=228 align=right border=5>01. <B>Sworn To A Great Divide</B><BR>02. <B>Exile</B><BR>03. <B>Breeding Thorns</B><BR>04. <B>Your Beloved Scapegoat</B><BR>05. <B>The Pittsburgh Syndrome</B><BR>06. <B>I, Vermin</B><BR>07. <B>Light Discovering Darkness</B><BR>08. <B>As The Sleeper Awakes</B><BR>09. <B>Silent Bullet</B><BR>10. <B>Sick Heart River</B><BR>11. <B>20 More Miles</B></P>
+Автор: Vit Belov
+
+### 19.09.2008 news Peter Wichers вернулся в SOILWORK
+
+<P><STRONG>SOILWORK </STRONG>сообщили о возвращении в состав гитариста <STRONG>Peter Wichers</STRONG>, который покинул коллектив в конце 2005 года.</P>
+Автор: Vit Belov
+
+### 28.01.2009 news Новое видео SOILWORK
+
+<P>Новый видеоклип шведов<STRONG> SOILWORK</STRONG> на песню <STRONG>"20 More Miles"</STRONG> можно посмотреть ниже. Ролик был записан в течение последнего европейского тура группы, включая концерт в Мадриде, где <STRONG>SOILWORK</STRONG> делили сцену с <STRONG>METALLICA</STRONG>. Режиссёром выступил <STRONG>Olle Carlsson</STRONG>.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=50860015">SOILWORK - 20 More Miles</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=50860015,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=50860015,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.02.2009 news SOILWORK хотят лучшего
+
+<P><STRONG>SOILWORK </STRONG>начнут запись нового альбома в конце этого года. Группа планирует выпустить лучший альбом в своей истории, поэтому уменьшит количество живых выступлений до минимума.</P>
+Автор: Vit Belov
+
+### 27.03.2009 news Listenable переиздадут SOILWORK
+
+<P><STRONG>SOILWORK </STRONG>переиздадут два первых альбома <STRONG>"Steelbath Suicide"</STRONG> (1998)&nbsp;и <B>"The Chainheart Machine"</B> (1999)&nbsp;на<STRONG> Listenable</STRONG>. В качестве бонусов на этом издании будут записи с концерта в Тилбурге в 1999 году.</P>
+Автор: Vit Belov
+
+### 22.05.2009 news Бывший барабанщик SOILWORK угодил в тюрьму
+
+<P>Бывший барабанщик <STRONG>SOILWORK</STRONG> <STRONG>Henry Ranta </STRONG>попал на месяц в тюрьму. Он был остановлен за превышение скорости, у него не оказалось прав, а при обыске полицейский обнаружил большой нож, ношение которогго в общественном месте по швецким законам запрещено.</P>
+Автор: Vit Belov
+
+### 05.06.2009 news Фронтмэн SOILWORK анонсировал соло-проект
+
+<P>Вокалист<STRONG> SOILWORK</STRONG> <STRONG>Bjorn "Speed" Strid</STRONG> объявил о создании нового проекта<STRONG>,</STRONG> который пока не получил названия. Музыкант хочет играть музыку в духе <STRONG>KISS, AEROSMITH</STRONG> и <STRONG>BOSTON</STRONG>. Классический hard-rock!!!</P>
+Автор: Vit Belov
+
+### 03.11.2009 news SOILWORK войдут в студию
+
+<P><STRONG>SOILWORK</STRONG> планируют войти в студию в января для записи нового альбома. Продюсером этой работы выступит гитарист коллектива <STRONG>Peter Wichers</STRONG>, а смикшироет её <B>Jens Bogren</B> (<B>OPETH</B>, <B>KATATONIA</B>, <B>PARADISE LOST</B>, <B>BLOODBATH</B>).</P>
+Автор: Vit Belov
+
+### 23.01.2010 news SOILWORK назвали альбом
+
+<P>Новый альбом <STRONG>SOILWORK</STRONG> будет называться <STRONG>"The Panic Broadcast". </STRONG>работа выйдет в этом году на<STRONG> Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.04.2010 news Обложка нового SOILWORK
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.04/16585.jpg" width=400 align=right border=5>Новый альбом <STRONG>SOILWORK</STRONG> <STRONG>"The Panic Broadcast" </STRONG>выходит 25 июня на <STRONG>Nuclear Blast</STRONG>. Альбом был&nbsp;сведён в <STRONG>Fascination Street</STRONG> продюсером <STRONG>Jens Bogren</STRONG> (<B>OPETH</B>, <B>KATATONIA</B>, <B>PARADISE LOST</B>, <B>BLOODBATH</B>). Трэк-лист:</P>
+<P>01. <B>Late For The Kill, Early For The Slaughter</B><BR>02. <B>2 Lives Worth Of Reckoning</B> <BR>03. <B>The Thrill</B> <BR>04. <B>Deliverance Is Mine</B> <BR>05. <B>Night Comes Clean</B> <BR>06. <B>King Of The Threshold</B> <BR>07. <B>Let This River Flow</B> <BR>08. <B>Epitome</B> <BR>09. <B>The Akuma Afterglow</B> <BR>10. <B>Enter Dog Of Pavlov</B></P>
+Автор: Vit Belov
+
+### 18.05.2010 news Новая песня SOILWORK
+
+<P>Новый альбом <STRONG>SOILWORK</STRONG> <STRONG>"The Panic Broadcast" </STRONG>выходит 2 июля на<STRONG> Nuclear Blast</STRONG>. Возвращать былую славу шведы будут вместе с двумя новыми гитаристами. Первый из них, новый старый музыкант <STRONG>Peter Wichers</STRONG>&nbsp;спродюссировал альбом. <STRONG>Peter</STRONG> рассказал, что будущая работа звучит так, что понравится и старым и новым поклонникам шведов. Это, как мне думается, должно насторожить обе эти группы слушателей <STRONG>SOILWORK</STRONG>.</P>
+<P>Новую вещь <STRONG>"Two Lives Worth Of Reckoning" </STRONG>можно оценить на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/soilwork">http://www.myspace.com/soilwork</A></P>
+Автор: Vit Belov
+
+### 21.07.2010 news SOILWORK попали в чарты
+
+<P>Новый альбом <STRONG>SOILWORK</STRONG> <STRONG>"The Panic Broadcast" </STRONG>попал в чарты во многих странах Европы. Вот список позиций:</P>
+<P>Finland: #17<BR>Germany: #24 (week 1), #80 (week 2)<BR>Sweden: #37 (week 1), #29 (week 1)<BR>U.K.: #42<BR>Austria: #47 <BR>Switzerland: #60<BR>Europe (Billboard): #67</P>
+<P>Пластинка вышла на прошлой неделе и в России на <STRONG>Irond Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.07.2010 news Новый клип SOILWORK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео&nbsp;<STRONG>SOILWORK </STRONG>на песню <STRONG>"Deliverance Is Mine" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Ivan Colic</STRONG> (<B>EX DEO</B>, <B>TYPE O NEGATIVE</B>, <B>UNLEASHED</B>). Песня взята с новейшего альбома шведов <STRONG>"The Panic Broadcast"</STRONG>, который вышел несколько недель назад на <STRONG>Nuclear Blast/Irond</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=105994975,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=105994975,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.08.2010 reviews SOILWORK идут под парусами тенденций
+
+<P>Шведская melodic death-metal группа SOILWORK чутко следит за тенденциями в современной тяжёлой музыке. Образовавшись в 1995 году, музыканты начали играть актуальную версию стиля и довольно быстро дослужились до Nuclear Blast. Менялся стиль, менялась и группа. IN FLAMES запели чистым вокалом, прорезался голос и у Bjorn Strid, добавили за океаном большую дозу «кора» в музыку, SOILWOK не отстали. В настоящее время американский подвид metalcore, близкий по звучанию к европейскому melodic death-metal, резко утяжеляется. Оставляя чистый вокал, группы в этом стиле черпают вдохновение в старом hardcore и deathcore. </P>
+<P>Новый альбом SOILWORK “The Panic Broadcast” начинается с прямолинейного hardcore на “Late For The Kill, Early For The Slaughter”. Это можно было бы считать большим сюрпризом, если бы не вышеизложенные соображения о тенденциях развития стиля. Уже на следующих трэках вокалист SOILWORK начинает петь чистым голосом, что также неудивительно. Bjorn обладает приятным тембром голоса, и считать его выступления большим недостатком музыки шведов было бы неправильно. Есть даже несколько вещей исключительно лирического свойства, которые своей мелодией захватывают настолько, что удивляешься собственной мягкотелости. Шведские death-metal группы часто радуют подобными композициями, достаточно вспомнить EDGE OF SANITY и Dan Swano, и многое станет ясно. </P>
+<P>В общем и целом, новый альбом SOILWORK удался. Правильное сочетание тяжести и мелодизма без лишних готических выкрутасов позволяют металистам слушать эту музыку без содрогания. Каких-то шедевров от шведов давно не ждут, но свою работу они выполняют&nbsp; грамотно.</P>
+Автор: Vit Belov
+
+### 25.02.2011 news Новое видео SOILWORK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>SOILWORK</STRONG> <STRONG>"Let This River Flow" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Tommy Jones. </STRONG>Песня была взята с последнего альбома группы <STRONG>"The Panic Broadcast".</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/kgoxIBv6dxs?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/kgoxIBv6dxs?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.12.2012 news Новая песня SOILWORK
+
+<P>Новый трек <STRONG>SOILWORK</STRONG> <STRONG>"Spectrum Of Eternity" </STRONG>можно послушать в клипе ниже. Трек взят с нового альбома <STRONG>"The Living Infinite"</STRONG>, который выйдет 1 марта на <STRONG>Nuclear Blast</STRONG>. Продюсером работы выступил <STRONG>Jens Bogren</STRONG> (<B>OPETH</B>, <B>AMON AMARTH</B>, <B>BLOODBATH</B>). Трек-лист:</P>
+<P>CD 1<BR>01. <B>Spectrum Of Eternity</B><BR>02. <B>Memories Confined</B><BR>03. <B>This Momentary Bliss</B><BR>04. <B>Tongue</B><BR>05. <B>The Living Infinite I</B><BR>06. <B>Let The First Wave Rise</B><BR>07. <B>Vesta</B><BR>08. <B>Realm Of The Wasted</B><BR>09. <B>The Windswept Mercy</B><BR>10. <STRONG>Whispers And Lights</STRONG></B><BR><BR>CD 2<BR>01. <B>Entering Aeons</B><BR>02. <B>Long Live The Misanthrope</B><BR>03. <B>Drowning With Silence</B><BR>04. <B>Antidotes In Passing</B><BR>05. <B>Leech</B><BR>06. <B>The Living Infinite II</B><BR>07. <B>Loyal Shadow</B><BR>08. <B>Rise Above The Sentiment</B><BR>09. <B>Parasite Blues</B><BR>10. <B>Owls Predict, Oracles Stand Guard</B></P>
+<P><STRONG>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.12/25168.jpg" width=480 height=476></STRONG> 
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/jR1ka4K_CoU?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P></CENTER>
+Автор: Vit Belov
+
+### 03.02.2013 news Новый клип SOILWORK
+
+<P>Новое видео <STRONG>SOILWORK</STRONG> на песню <STRONG>"Rise Above The Sentiment" </STRONG>можно посмотреть ниже. Трек войдёт на новый, двухдисковый, альбом шведов <STRONG>"The Living Infinite", </STRONG>который выйдет в первый день весны.</P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/_LEKU7cBOak?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.04.2013 news SOILWORK: видеоклип &quot;Spectrum Of Eternity&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская melodic death metal бригада <STRONG>SOILWORK</STRONG> презентовала сегодня своё новое видео. Им стал клип на песню <STRONG>"Spectrum Of Eternity"</STRONG>. Приятного просмотра!</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/-1uj4PntkOY" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 04.09.2015 reviews Спасибо, что не двойной
+
+<P>Удивительное рядом. Шведская группа SOILWORK выпустила на минувшей недели уже десятый альбом. Если учесть, что первая работа группы вышла в 1998 году, плодовитость поражает.</P>
+<P>Как правило в подобных случаях страдает качество. Столько материала на одном уровне и с должным разнообразием могут насочинять только гении, к каковым SOILWORK, безусловно, не относятся. Стараясь не потерять контракт с Nuclear Blast и не надоесть своим фэнам, шведы активно пользуются методом смены формы, но не содержания. Вначале ребята много кричали, потом стали чаще петь, даже выпустили двойной альбом с этими песнопениями, а в текущем году на счету SOILWORK целых два релиза — концертный DVD/Blu-Ray/CD “Live In The Heart Of Helsinki” и обозреваемый новый опус «The Ride Majestic”. Приятно, что он вышел не на двух CD, ведь прошлую работу «The Living Infinite” дослушать до конца было не реально, вставить второй диск в проигрыватель просто не хватало силы воли. Других каких-то особых отличий от предыдущего альбома мне обнаружить не удалось, но его сократившаяся длительность пошла группе на пользу, работа кажется более цельной, и хорошие мелодии, которые, конечно же, здесь присутствуют, не размазаны как манная каша по тарелке.</P>
+<P>Естественно, тем, кто уважает только раннее творчество SOILWORK, здесь делать нечего. Много чистого вокала, атмосферики, и редкие вкрапления жёсткого вокала не спасают для тру-металистов ситуации. Любители же modern death-metal останутся довольны.</P>
+Автор: Vit Belov
+
+### 09.06.2016 news SOILWORK выпускают коллекцию раритетов
+
+<p><strong>SOILWORK</strong> выпустят коллекцию раритетов под названием "<strong>Death Resonance</strong>" 19 августа на <strong>Nuclear Blast</strong>. На альбом попадут 15 редких вещей, которые в основном выходили в Азии, два новых трека и 5 перезаписанных.</p><p>Подробности последуют.</p><p><center><img width="645" height="363" src="/images/news_rus/2016.06/29282.jpg" border="0"></p><p>&nbsp;</p>
+Автор: Vit Belov
+
+### 09.06.2016 news SOILWORK will release collection of raritetes
+
+<p>Swedish metallers <strong>SOILWORK</strong> have announced a special collection of rarities "<strong>Death Resonance</strong>" out on August 19th via <strong>Nuclear Blast Records</strong>.</p><p>Band: "<em>Attention Soilwork fans! Although The Tour Majestic is far from over, we've put together a very special release for you all. Death Resonance compiles fifteen rare and unreleased tracks ranging all the way back to Stabbing The Drama. Many of these tracks were previously only available in Asia. Two songs are brand new and five others have been remixed for your listening pleasure. More details to follow soon. Stay tuned</em>!"</p><p><center><img width="645" height="363" src="/images/news_rus/2016.06/29282.jpg" border="0"><p></p><p>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 15.06.2016 news Подробности о сборнике SOILWORK
+
+<p>Как уже сообщалось, 19 августа на <strong>Nuclear Blast</strong> выйдет сборник редких вещей <strong>SOILWORK "Death Resonance"</strong>. Стал известен трек-лист этого релиза:</p><p>“Helsinki” (new song)<br>“Death Resonance” (new song)<br>“The End Begins Below The Surface” (The Ride Majestic Japan bonus track)<br>“My Nerves, Your Everyday Tool” (Beyond The Inifite Japan-only EP)<br>“These Absent Eyes” (Beyond The Inifite Japan-only EP)<br>“Resisting The Current” (Beyond The Inifite Japan-only EP)<br>“When Sound Collides” (Beyond The Inifite Japan-only EP)<br>“Forever Lost In Vain” (Beyond The Inifite Japan-only EP)<br>“Sweet Demise” (The Panic Broadcast Japan bonus track)<br>“Sadistic Lullabye” (re-recorded, The Panic Broadcast Japan bonus track)<br>“Overclocked” (2016 mix, Sworn A Great Divide Japan bonus track)<br>“Martyr” (2016 mix, Sworn A Great Divide Japan bonus track)<br>“Sovereign” (2016 mix, Sworn A Great Divide Japan bonus track)<br>“Wherever Thorns May Grow” (2016 mix, Stabbing The Drama Japan bonus track)<br>“Killed By Ignition” (2016 mix, Stabbing The Drama Japan bonus track)</p><p><center><img width="640" height="640" src="/images/news_rus/2016.06/29364.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 15.06.2016 news SOILOWORK: Track listing of new compilation
+
+As previously reported, <strong>SOILWORK</strong> will release a compilation of rare tracks "<strong>Death Resonance</strong>" on August 19 via <strong>Nuclear Blast records</strong>. Track listing of this album have just revealed:<p>“Helsinki” (new song)<br>“Death Resonance” (new song)<br>“The End Begins Below The Surface” (The Ride Majestic Japan bonus track)<br>“My Nerves, Your Everyday Tool” (Beyond The Inifite Japan-only EP)<br>“These Absent Eyes” (Beyond The Inifite Japan-only EP)<br>“Resisting The Current” (Beyond The Inifite Japan-only EP)<br>“When Sound Collides” (Beyond The Inifite Japan-only EP)<br>“Forever Lost In Vain” (Beyond The Inifite Japan-only EP)<br>“Sweet Demise” (The Panic Broadcast Japan bonus track)<br>“Sadistic Lullabye” (re-recorded, The Panic Broadcast Japan bonus track)<br>“Overclocked” (2016 mix, Sworn A Great Divide Japan bonus track)<br>“Martyr” (2016 mix, Sworn A Great Divide Japan bonus track)<br>“Sovereign” (2016 mix, Sworn A Great Divide Japan bonus track)<br>“Wherever Thorns May Grow” (2016 mix, Stabbing The Drama Japan bonus track)<br>“Killed By Ignition” (2016 mix, Stabbing The Drama Japan bonus track)</p><p><center><img width="640" height="640" src="/images/news_rus/2016.06/29364.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 16.07.2016 news Барабанщик Dirk Verbeuren присоединился к MEGADETH на постоянной основе
+
+<p>Барабанщик <strong>SOILWORK Dirk Verbeuren</strong> присоединился к <strong>MEGADETH </strong>на постоянной основе. По этой причине он покинул состав SOILWORK, а временным барабанщиком у шведов будет Bastian <strong>Thusgaard</strong>.</p><p>&nbsp;<center><img width="749" height="499" src="/images/news_rus/2016.07/29601.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 16.07.2016 news Dirk Verbeuren Exits SOILWORK to Join MEGADETH as Full-Time Drummer
+
+<p>With their full support behind him, <strong>SOILWORK</strong> announces the departure of longtime drummer <strong>Dirk Verbeuren</strong> as he joins heavy metal legends <strong>MEGADETH</strong> as their new full-time drummer. Verbeuren has been performing with MEGADETH for months - his first show with the band was at Rock on The Range festival in May, where he performed to a crowd of 40,000 concertgoers.<br>&nbsp;<br>SOILWORK vocalist<strong> Bjorn "Speed" Strid</strong> offers up his encouragement, "<em>In regards to the statement MEGADETH released yesterday, confirming that Dirk will join them as their full time drummer, I just want to take the time to wish Dirk good luck on this new venture and thank him for 12 great years together. Together we have created a beast of a band and have pushed the limits musically further than we ever could have imagined</em>."<br>&nbsp;<br>Strid continues to state that SOILWORK is charging forward, continually progressing their performance but not straying too far from their defining, signature sound, "<em>In the recent years SOILWORK have found new ways of expressing ourselves and as much as of a clichй it is, I strongly believe that this is very much of a new era for us and that we still have so much left to say, whether it being with or without Dirk. This band has grown to be quite a metal collective and an institution that paves the way creatively and we hope that you, the fans, can feel the presence and the heart in our music still to this day. Believe me, it's there. I can assure that you will forever get 100% SOILWORK, as long as we release albums. We aim to surprise ourselves and the listeners by constantly developing our sound and songwriting, something I believe we have succeeded in doing and yet remained true to our roots. That is something to be proud of and we are. We appreciate all our loyal fans and are excited that so many of you share our musical vision</em>.<br>&nbsp;<br>Touring drummer <strong>Bastian Thusgaard</strong> is more-than-worthily filling in the ranks behind the kit this summer.<br>&nbsp;<br>Strid adds, "<em>Meanwhile, I'm sure many of you have seen us at a festival in Europe this summer with our friend, Bastian Thusgaard filling in on drums and I'm sure we can all agree on what a monster he is. Thank you Bastian, you are absolutely killing it. Check out the remaining festival dates and come see us. We'll be there. Thank you</em>."<br>&nbsp;<br>Departing drummer Dirk Verbeuren has this to say, "<em>They say the biggest decisions in life are the hardest to make. This decision falls under that category. As a drummer I've always enjoyed the evolution of my path. The past twelve years with Soilwork have been incredible, a portion of my life I honor with pride. When I was approached to join MEGADETH- a childhood dream come true and something I never anticipated- I was beyond excited to even consider the realm of possibility. But truth be told, I couldn't have rightfully made this step without the support and blessing of my SOILWORK family. For that I owe a huge thank you to Bjorn, Sven, David, Sylvain and Markus. You have allowed me to see what lies ahead, and you're my brothers in metal. Chris Adler, thank you for introducing me to MEGADETH and for your encouragement and support. Dave, David and Kiko, I'm thankful for your warm welcome and thrilled to perform and create badass music with you guys. To the fans, this is a new chapter for us; I hope we can enjoy this ride together!</em>"<br>&nbsp;<br>Stay tuned for more news on upcoming SOILWORK tour dates, music and more - the ride continues!<br>&nbsp;<br>Pre-order SOILWORK's new rarities collection<strong> Death Resonance</strong> in CD digipak or clear vinyl formats here: <a href="http://nblast.de/SoilworkDResonanceNB">http://nblast.de/SoilworkDResonanceNB</a></p><p>&nbsp;<center><img width="749" height="499" src="/images/news_rus/2016.07/29601.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Soilwork '2001

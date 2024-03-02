@@ -228,6 +228,734 @@ Chris Gripp - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.11.2002 reviews Металлический гамбургер
+
+<p>Определяющими чертами этого альбома можно назвать, Гамбург и Piet Sielck. Пит, который продюсировал такие мощные коллективы, как Blind Guardian, Gamma Ray и Grave Digger, нарулит power кому угодно. Paragon, конечно, не из премьер-лиги, но одни из лидеров первой, с хорошим тренером. Бескомпромиссный тевтонский метал старой школы, больше всего напоминает Grave Digger, правда уровня последних работ. В первую очередь наличием большого количества среднетемповых композиций и голосом вокалиста по фамилии Бабушкин (лётчик?). Paragon схлопатали высокие оценки во многих немецких журналах, что нестранно... Я думаю, что после 12 лет существования, группа сможет перейти в высший дивизион, если попробует сотворить что-нибудь своё, хотя бы минутки на две... А так твёрдая четвёрка, такая же твёрдая, как и у последних работ Криса Болтендаля и компания.</p>
+
+Автор: Vit Belov
+
+### 26.11.2002 reviews Metal Hamburger
+
+<p>As determining features of this album it is possible to name, Hamburg and Piet Sielck. Piet, which produced such powerful collectives, as Blind Guardian, Gamma Ray and Grave Digger, do power to any band. Paragon, certainly, not from premiere - league, but one of the leaders in first division, with the good coach. Non-compromiss old school tevtonic metal, most of all reminds Grave Digger, in level of last albums. First of all by presence of a plenty middle-tempo compositions and voice of singer on a surname Babuschkin (pilot?). Paragon have gotten high estimations in many German magazines, that's not strange... I think, that after 12 years of existence, the group can proceed in higher division, if will try to create something new, even two minutes... And so... Good, same as well as at last works by Chris Bolthendahl and Co.</p>
+
+Автор: Vit Belov
+
+### 05.06.2003 news Новый альбом PARAGON
+
+<p>28 июля на Remedy Records выходит новый альбом германских мелодистов PARAGON "The Dark Legacy". В альбом войдут следующие вещи:</p>
+<p> 1. The Legacy <BR> 2. Mirror Of Fate <BR> 3. Breaking Glass <BR> 4. Black Hole <BR> 5. Eye Of The Storm <BR> 6. Maze Of Dread <BR> 7. The Afterlife <BR> 8. Green Hell <BR> 9. Back From Hell <BR> 10. Into The Black (digipack bonus track) <BR> 11. Metal Invaders (Japan bonus track)</p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 04.10.2003 reviews Продолжение
+
+<P>Совсем недавно мы рецензировали прошлый весьма успешный альбом немецкой группы PARAGON. На своём новом творении ребята продолжают линию 'Law Of The Blade'. Тот же продюсер Piet Sielk, та жа музыка. Вы без труда сможете отыскать в нашей базе данных мою прошлогоднюю рецензию и прочитать там об этих симпатичных парнях и их true heavy-metal. Все любители MANOWAR уже бегут в магазин, а остальные читают другие рецензии.</P>
+<P>Диск предоставлен точкой B2-100</P>
+<CENTER><IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 06.08.2004 news Новости от PARAGON
+
+<P>Германские power металеры <B>PARAGON</B> готовят к выпуску в начале 2005 года свой новый альбом <B>"Revenge",</B> который выйдет на<B> Remedy Records</B>. Запись альбома начнется в середине августа в <B>Karo Studio</B>. Кроме того, во время этой студийной сессии, группа запишет кавер-версии <B>SAXON</B> (<B>"20,000 Feet"</B>)&nbsp;и <B>RUNNING WILD</B> (<B>"Iron Heads"</B>)&nbsp;для трибьютных альбомов этим командам, которые также выйдут на <B>Remedy Records</B> в конце этого года.</P>
+Автор: Дофф
+
+### 05.12.2004 news PARAGON объявили трэк-лист
+
+<P><STRONG>PARAGON</STRONG> объявили трэк-лист своего нового альбома '<STRONG>Revenge</STRONG>', который выйдет на <STRONG>Remedy</STRONG> в ближайшее время. Трэк-лист:</P>
+<P>1. <STRONG>Impaler<BR></STRONG>2. <STRONG>Assassins<BR></STRONG>3. <STRONG>Traitor<BR></STRONG>4. <STRONG>Master Of Seas<BR></STRONG>5. <STRONG>Revenge<BR></STRONG>6. <STRONG>Symphony Of Pain <BR></STRONG>7. <STRONG>Beyond The Veil<BR></STRONG>8. <STRONG>Battle Rages On<BR></STRONG>9. <STRONG>Art Of War<BR></STRONG>10. <STRONG>Empire Of The Lost</STRONG><BR>11. <STRONG>The Gods Made Heavy-Metal</STRONG> (bonus track -&nbsp;<STRONG>MANOWAR</STRONG> coverversion)</P>
+Автор: Vit Belov
+
+### 05.12.2004 news PARAGON set track-list
+
+<P><STRONG>PARAGON</STRONG> have announced track-list of their future album '<STRONG>Revenge</STRONG>'. Track-list:</P>
+<P>1. <STRONG>Impaler<BR></STRONG>2. <STRONG>Assassins<BR></STRONG>3. <STRONG>Traitor<BR></STRONG>4. <STRONG>Master Of Seas<BR></STRONG>5. <STRONG>Revenge<BR></STRONG>6. <STRONG>Symphony Of Pain <BR></STRONG>7. <STRONG>Beyond The Veil<BR></STRONG>8. <STRONG>Battle Rages On<BR></STRONG>9. <STRONG>Art Of War<BR></STRONG>10. <STRONG>Empire Of The Lost</STRONG><BR>11. <STRONG>The Gods Made Heavy-Metal</STRONG> (bonus track -&nbsp;<STRONG>MANOWAR</STRONG> coverversion)</P>
+Автор: Vit Belov
+
+### 09.01.2005 news PARAGON назначили дату релиза
+
+<P>Как уже сообщалось, новый альбом <STRONG>PARAGON</STRONG> <STRONG>'Revenge'</STRONG> уже готов. Стало известно, что он выйдет 18 апреля на <STRONG>Remedy</STRONG>. Группа сменит художника-оформителя на этой пластинке. Теперь дизайнером стал аргентинец <STRONG>Valgorth</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.09.2005 reviews Сто процентов немецкой стали
+
+<P>Ох, и непростая судьба сложилась у PARAGON! Сформировавшись в далеком 1990 году, группа записывала демо, долго и безуспешно искала выпускающий лейбл, пыталась реализовать дебютный миньон собственными силами, утрясала проблемы с составом, - но все это время, несмотря на проблемы, упорно пробивалась вперед. Признание пришло лишь в 99-ом – с альбомом “Chalice Of Steel”. Да, немало лет понадобилось для прорыва… Последний на сегодняшний день альбом немецких металлистов не сказать, чтобы превзошел их предыдущие работы, но, безусловно, поддержал тот высокий исполнительский и композиторский уровень, достигнутый PARAGON.<BR>Начну с самого, пожалуй, характерного фактора – продюсировал, микшировал и сводил “Revenge” прекрасно всем известный лысик по имени Пит Силк (или как там правильно произносится его фамилия?) из IRON SAVIOR. Более того, в первом же трэке (“Impaler”), насколько я понял, –&nbsp; поет тоже он (как и в многочисленных хорах – их на альбоме в изобилии). А голос вокалиста группы Андреаса Бабушкина (а что же, настоящая немецкая фамилия!) практически неотличим от вокальных данных Пита… Ну как, говорит о чем-нибудь? Намек ясен? Проще говоря, PARAGON на сегодняшний день – это младший брат IRON SAVIOR, разве что с более угловатым, металлизированным саундом и малость попримитивней и понапористей в мелодике. Однако же – не IRON SAVIOR’ом единым, как говорится: например, в композиции “Traitor” очень хорошо прослеживаются все тайные и явные кумиры «парагонов» - это и GRAVE DIGGER, и – обязательно! – IRON SAVIOR, и GAMMA RAY, и SINNER, и даже немного PRIMAL FEAR… словом, вся классика германского тяжеляка. <BR>Гитарные дуэли на высоких скоростях, сменяющиеся маршевыми темами, преисполненные патетики припевы, жесткая ритмика, «мой меч поразит всех врагов» в лирике, топоры и черепушки в оформлении, – вот что такое “Revenge”. Никаких новаций здесь нет и в помине, но, тем не менее, в рамках своего стиля PARAGON все-таки умудряются избегать тотального однообразия. Поначалу длина диска меня озадачила – целый час подобной музыки может оказаться неплохим снотворным, но все оказалось вполне пристойно –&nbsp; одиннадцать песен пролетели на одном дыхании. И не надоели. Настоящий true-speed-power metal без затей – но мне, признаться, такая музыка по вкусу.<BR>В качестве бонус-трэка на диске присутствует кавер. Это творение нудистов-культуристов из MANOWAR - песнь “The Gods Made Heavy Metal”, – но сыгран этот кавер, к большому моему сожалению, без малейшей фантазии и максимально приближенно к оригиналу. За что, соответственно, похвалить «парагонов» я никак не могу…</P>
+Автор: Dr. Grandma
+
+### 24.09.2008 news Новый альбом PARAGON
+
+<P>Немцы<STRONG> PARAGON</STRONG> выпускают свой новый альбом "<STRONG>Screenslaves</STRONG>" в ноябре на<STRONG> Massacre Records</STRONG>. Продюсером работы стал бывший гитарист <STRONG>GRAVE DIGGER</STRONG> <STRONG>Uwe Lullis. </STRONG>Трэк-лист:</P>
+<P>01. <B>Hellgore</B><BR>02. <B>Disconnected</B><BR>03. <B>Entombed</B><BR>04. <B>Screenslaves</B><BR>05. <B>Bloodfeast</B><BR>06. <B>The Blade In The Dark</B><BR>07. <B>Death Next Door</B><BR>08. <B>The Killing Hand</B><BR>09. <B>Waxworks</B><BR>10. <B>Larger Than Life</B><BR>11. <B>L' Eredita</B></P>
+Автор: Vit Belov
+
+### 17.02.2009 reviews True, true, true…
+
+<P>Немцы PARAGON давно стучатся в дверь премьер-лиги современного heavy-power-metal. Их альбомы ожидаемы любителями стиля по всему Миру. С новым альбомом PARAGON сменили заштатный лэйбл Remedy на более известный Massacre Records, и теперь их дела должны пойти в гору.</P>
+<P>PARAGON – настоящие ветераны немецкого цеха. Группа существует 1990-го года. С каждым новым альбомом их звучание становится всё мощнее и тяжелее. На “Screenslaves” музыканты намеренно пытаются сделать больно всем поклонникам HELLOWEEN и EDGUY. Несмотря на то, что все эти группы наряду с PARAGON можно обозвать power-metal, если неподготовленный товарищ включит последних, он будет уничтожен. «Мерзкая» тяжёлая музыка в true-старом духе, дребезжащая ритм-секция, низкий строй гитар. О вокале Andreas Babuschkin я уж молчу. Всё самое ужасное, что есть в арсенале Udo и Bobby ‘Blitz’ смешалось в его голосе. Он настолько отвратительно скрипуч, что фанаты old school heavy-speed-metal придут в восторг. Тоже самое и с мелодиями. Они здесь, несомненно, есть, но они настолько бескомпромиссны, что становится жутко. Здесь нужно наслаждаться просто самим звучанием гитары и баса, а не подпевать запоминающийся рефрен голосистому вокалисту. Прибавьте к этому превосходные соло, о которых слишком часто стали нынче забывать музыканты, играющие подобную музыку. Отличный диск для ценителей.</P>
+<P>PARAGON, хоть и роются в покрытых пылью пластинках классиков speed-metal, звучат очень современно. Взять хотя бы гроулинг в одной из вещей. Немцы не просто ограничены в своём восприятии тяжёлой музыки, они не признают ничего, что выходит за рамки их понимания.</P>
+Автор: Vit Belov
+
+### 03.11.2009 news PARAGON уволили басиста и гитариста
+
+<P>Немцы <STRONG>PARAGON </STRONG>в честь своего 20-летнего юбилея решили восстановить состав 2002 года, который записал альбом "<STRONG>Law Of The Blade</STRONG>". Музыканты планируют играть этот альбом на концертах будущего тура целиком. Группа была вынуждена расстаться с басистом <STRONG>Dirk Seifert </STRONG>и вторым гитаристом <STRONG>Gunny Kruse</STRONG>. Соответственно в <STRONG>PARAGON</STRONG> вернулся басист <STRONG>Jan Bunning.</STRONG></P>
+Автор: Vit Belov
+
+### 28.11.2010 news PARAGON вернулись к Piet Sielck
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>PARAGON</STRONG> объявили, что на новом альбоме будут работь с продюсером <STRONG>Piet Sielck</STRONG>, с которым группа записывала альбомы <STRONG>'Steelbound', 'Law Of The Blade', 'The Dark Legacy' </STRONG>и <STRONG>'Revenge'. </STRONG>Музыканты собираются записывать old-school альбом и считают, что человек, работавший с <STRONG>BLIND GUARDIAN</STRONG> и<STRONG> SAXON</STRONG>, знает, как он должен звучать.</FONT></P>
+Автор: Vit Belov
+
+### 07.07.2012 news PARAGON ищут лэйбл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=317 alt="" hspace=0 src="/images/news_rus/2012.07/24314.jpg" width=475 align=right border=0>Немцы <STRONG>PARAGON</STRONG> закончили запись альбома и ищут подходящего издателя. Сведением новой работы вновь занимался Piet Sielck,&nbsp;басист коллектива сравнивает её звучание с альбомами коллектива "<STRONG>Revenge</STRONG>" и "<STRONG>Law Of The Blade</STRONG>". Трек-лист:</FONT></P>
+<P>01. <B>Last Day On Earth</B> (intro)<BR>02. <B>Iron Will</B><BR>03. <B>Tornado</B><BR>04. <B>Gods Of Thunder</B><BR>05. <B>Bulletstorm</B><BR>06. <B>Blood & Iron</B><BR>07. <B>Blades Of Hell</B><BR>08. <B>Dynasty</B><BR>09. <B>Rising From The Black</B><BR>10. <B>Demon's Lair</B><BR>11. <B>Secrecy</B></P>
+<P>Обложку альбома создал <STRONG>Dirk Illing</STRONG> (<B>SCORPIONS</B>, <B>RUNNING WILD</B>).</P>
+Автор: Vit Belov
+
+### 03.08.2012 news PARAGON подписались на Napalm
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.08/24540.jpg" width=300 height=300>Одна из самых тяжёлых команд в power-metal<STRONG> PARAGON</STRONG> подписала контракт с <STRONG>Napalm Records</STRONG>. Десятый альбом немцев <STRONG>"Force Of Destruction" </STRONG>выйдет в конце октября. Продюсером пластинки вновь выступил <STRONG>Piet Sielck</STRONG> (<B>GAMMA RAY</B>, <B>BLIND GUARDIAN</B>, <B>IRON SAVIOUR</B>). В качестве бонуса на альбом будет добавлен трек <STRONG>"Blood & Iron", </STRONG>на котором впервые за долгое время дуэтом спели<STRONG> Sielck</STRONG> и <STRONG>Kai Hansen (GAMMA RAY)</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Last Day On Earth</B> (intro)<BR>02. <B>Iron Will</B><BR>03. <B>Tornado</B><BR>04. <B>Gods Of Thunder</B><BR>05. <B>Bulletstorm</B><BR>06. <B>Blood & Iron</B><BR>07. <B>Blades Of Hell</B><BR>08. <B>Dynasty</B><BR>09. <B>Rising From The Black</B><BR>10. <B>Demon's Lair</B><BR>11. <B>Secrecy</B></P>
+<P>Обложку группе из Гамбурга нарисовал <STRONG>Dirk Illing</STRONG> (<B>SCORPIONS</B>, <B>RUNNING WILD</B>).</P>
+Автор: Vit Belov
+
+### 05.01.2013 reviews Четыре года молчания
+
+<P>Немецкие металисты PARAGON молчали четыре года. Предыдущая работа “Screenslaves” вышла в 2008 году на Massacre Records. Теперь тевтонские воины тяжёлого метала перескочили на Napalm Records и, видимо, открывают новую главу в истории. </P>
+<P>Скорее всего, PARAGON решили перелистнуть несколько страниц назад в собственной биографии, иначе чем объяснить возврат коллектива к продюсеру Piet Sielk (IRON SAVIOR), с которым PARAGON записывали альбомы ещё для лэйбла Remedy Records. Не знаю, чем не понравился ужасающе тяжёлый саунд прошлой работы, созданный Uwe Lulis (ex-GRAVE DIGGER, ex-REBELLION), но новая работа немцев звучит очень «олдово». Плюс это или минус решает каждый для себя сам, но&nbsp;продюсирование Piet Sielk, придающее звуку альбомов музейный лоск, уже давно вызывала зевоту. “Force Of Destruction” являют собой типичный образец подобного творчества – резкий, глухой звук контрастирует с работами ведущих коллективов в современном heavy-metal. Что касается наполнения пластинки, то никаких откровений PARAGON нам не предлагают – зажигательные и драйвовые боевики, которые нас радуют уже более десяти лет. Следует отметить, трек “Blood And Iron”, на котором отметились два друга: Kai Hansen и Piet Sielk. Что ж, слыхали мы, как Kai поёт и более приятные в мелодическом плане вещи.</P>
+<P>К сожалению, четыре года PARAGON потратили впустую. Вернувшись к своему коренному звучанию, коллектив ничего не приобрёл в музыкальном плане, и, если предыдущий альбом стал причиной четырёхлетнего перерыва, обозреваемая работа может поставить жирный крест на творчестве группы.</P>
+Автор: Vit Belov
+
+### 30.03.2016 news Новые релизы Escapemind.ru
+
+<P><SPAN class=tit3><IMG border=0 hspace=0 alt="" src="/images/news_rus/2016.03/29060.jpg" width=280 align=right height=280>EPD 16.11 MYSTIC PROPHECY “War Brigade” (escapemind.ru / musica prod. / massacre records)</SPAN></P>
+<P>-power metal; Девятый альбом немецких power metal'истов. Самая тяжёлая и мрачная power metal группа. Почти все альбомы коллектива были изданы в России по лицензии. Последние две работы выпустил новый лицензионный лэйбл escapemind.ru при поддержке Musica Production. Трек-лист:</P>
+<P><STRONG>1. Follow The Blind<BR>2. Metal Brigade<BR>3. Burning Out<BR>4. The Crucifix<BR>5. Pray For Hell<BR>6. 10000 Miles Away<BR>7. Good Day To Die<BR>8. The Devil Is Back<BR>9. War Panzer<BR>10. Fight For One Nation<BR>11. War Of Lies</STRONG></P>
+<P><STRONG>The Crucifix</STRONG> video: </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/k1xm4JzmnQw" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P><STRONG>Metal Brigade</STRONG> video: </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/fxfNOVZh4B4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P>Интернет-продажа: <A href="http://escapemind.ru/goods/MYSTIC-PROPHECY-War-Brigade">http://escapemind.ru/goods/MYSTIC-PROPHECY-War-Brigade</A></P>
+<P><SPAN class=tit3>EPD 16.12 PARAGON “Hell Beyond Hell” (escapemind.ru / musica prod. / remedy records)</SPAN></P>
+<P>-heavy power metal; Одиннадцатый альбом немецкой heavy metal команды, известной по сотрудничеству с Irond и Mazzar Records. На новом альбоме, вышедшем в марте, группа возвращается на Remedy Records. Ещё более бескомпромиссный и мелодичный материал. Любителям Manowar и Iron Savior. В сочинении музыки и текстов принял участие <STRONG>Piet Sielck (Iron Savior)</STRONG>. Он же выступил и продюсером пластинки. Трек-лист:</P>
+<P><STRONG>1. Rising Forces<BR>2. Hypnotized<BR>3. Hell Beyond Hell<BR>4. Heart Of The Black<BR>5. Stand Your Ground<BR>6. Meat Train<BR>7. Buried In Black<BR>8. Devil's Waitingroom</STRONG></P>
+<P><STRONG>Hell Beyond Hell</STRONG>: </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/or76sgv7We0" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P>Интернет-продажа: <A href="http://escapemind.ru/goods/PARAGON-Hell-Beyond-Hell">http://escapemind.ru/goods/PARAGON-Hell-Beyond-Hell</A></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

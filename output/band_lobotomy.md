@@ -33,6 +33,45 @@ Daniel Strachal - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.1999 news 
+
+<p>Вышел новый альбом группы Lobotomy "Born In Hell". Он представляет собой дэт старой шкролы, по сообщению тех же No Fashion. Также осенью выйдет миньон группы "Muerte-Holy Shit".</p>
+
+Автор: Vit Belov
+
+### 18.08.2000 news Lobotomy репитируют новый материал.
+
+<p>Lobotomy репитируют новый материал. Запись его планируется на зиму. Альбом будет называться "Dislocated In Emptiness". Перед альбомом выйдет миньон с оригинальным названием "Holy Shit". Группа была вынуждена отменить тур по Израилю, из-за политической обстановки в этой стране.</p>
+
+Автор: Vit Belov
+
+### 18.08.2000 news Lobotomy is rehearsing new songs.
+
+<p>After a very successful mini-tour throughout the Benelux countries Lobotomy are back home again rehearsing songs that will appear on the bands up-coming full-length album "Dislocated In Emptiness". It is planned to be recorded during the winter 2000/2001. The new album is said to be more old school death metal but will still bring the music into a new dimension. The new songs are more metallic and evil sounding and will definitely put the band in a new light. Before they release the full-length album, they will release a MCD of 5 killer tracks. The MCD is titled "Holy Shit" and its release date will soon be announced. Due to the political and unstable situation in Israel the bands is forced to cancel/postpone their planned dates in Israel. The band hope to be back on tour throughout Europe soon!</p>
+
+Автор: Vit Belov
+
+### 03.10.2000 news 
+
+<p> Lobotomy разучивают новый материал, который ляжет в основу нового альбома "Dislocated In Emptiness". Затем, зимой 2000-2001 гг., ребята отправятся в студию.</p>
+
+Автор: Nybras
+
+### 23.04.2001 news Проблемы у LOBOTOMY ....
+
+<p>Изменения в составе у шведских дэтстеров - Lars Jelleryd покинул команду и замена ему пока не найдена. В связи с этим выпуск полноформатника "Dislocated..." отложен на неопределенное время...</p>
+
+Автор: Yermola
+
+### 23.04.2001 news LOBOTOMY....
+
+<p>Line-up-change in the camp of the Swedes. Lars Jelleryd is no longer part of the band, a successor hasn't been named yet. Because of this, the recording of their fourth album "Dislocated..." has been postponed.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

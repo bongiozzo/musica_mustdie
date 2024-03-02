@@ -35,6 +35,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2016 news Ветераны метала QUARTZ возвращаются
+
+<p>Классическая группа NWOBHM<strong> QUARTZ</strong>, чей последний альбом вышел в 1983 году, возвращается с новым материалом. Студийный альбом "<strong>Fear No Evil</strong>" увидит свет 29 октября на<strong> High Roller Records</strong>. </p><p>Трек лист:</p><p>01 Fear No Evil<br>02 Rock Bottom<br>03 The Stalker<br>04 Rapture<br>05 Zombie Resurrection<br>06 Barren Land<br>07 Walking on Holy Water<br>08 Dangerous Game<br>09 Born to Rock the Nation<br>10 Riot in the City<br>11 Dead Man's World<br>12 Scream at the Devil</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29771.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 08.08.2016 news QUARTZ will return with new material
+
+<p>Classic NWOBHM band<strong> QUARTZ</strong>, whose latest album was released in 1983, is back with new material. Studio album "<strong>Fear No Evil</strong>" will be released on October 29 on <strong>High Roller Records</strong>.</p><p>Track list:</p><p>01 Fear No Evil<br>02 Rock Bottom<br>03 The Stalker<br>04 Rapture<br>05 Zombie Resurrection<br>06 Barren Land<br>07 Walking on Holy Water<br>08 Dangerous Game<br>09 Born to Rock the Nation<br>10 Riot in the City<br>11 Dead Man's World<br>12 Scream at the Devil</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29771.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

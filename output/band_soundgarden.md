@@ -213,6 +213,84 @@ Matt Cameron - Drums, Percussion
 
 * C группой "Audioslave" Chris Cornell
 
+## Публикации
+
+### 28.02.1999 news 
+
+<p>Бывший бас-гитарист американской группы Soundgarden Бен Шеферд и экс-вокалист Hazel Пит Кребс, создавшие проект Pete Krebs & The Gossamer Wings, планируют выпустить дебютный альбом "Sweet Ona Rosa" 6 апреля. Диск, записанный в стиле "фолк-рок", выйдет на лейбле Cavity Search Records, расположенном в Портленде (штат Орегон, США). Помимо Шеферда и Кребса, в состав новой группы вошли гитарист Билли Кеннеди и барабанщик Джон Моэн. Группа Hazel записала три альбома, два из которых вышли на альтернативном лейбле Subpop в начале 90-х годов, а последний увидел свет в 1997 году на фирме Candy Ass Records. Кроме того, вокалист Hazel Пит Кребс выпустил два сольника: "Brigadier" (1995) и "Western Electric" (1997). Оба диска вышли на Cavity Search Records.</p>
+
+Автор: Vit Belov
+
+### 12.03.2001 news Chris Cornell и Rage Against the Machine
+
+<p>Три оставшихся члена Rage Against the Machine и Chris Cornell (ex-Soundgarden) объединили свои силы и сейчас записываются в студии. К большому огорчению Rage, Chris не согласился стать новым вокалистом группы. Но по словам басиста Timmy будет создана новая команда с другим названием.</p>
+
+Автор: Yermola
+
+### 12.03.2001 news Chris Cornell and Rage Record Again
+
+<p>The three remaining members of Rage Against the Machine and Chris Cornell (ex-Soundgarden) have hit the studio once again to jam. Rage has stressed that Chris will NOT be the new singer of Rage, but bassist Timmy has said that the four have formed a brand new group under a different name. No word on if their material will ever be released.</p>
+
+Автор: Yermola
+
+### 09.04.2001 news Новый проект...
+
+<p>Экс участники "ALICE IN CHAINS", "SPONGE" и "QUEENSRYCHE" создали новый проект - "SPYS4DARWIN" (Интересно, Чарльз Дарвин, что ли?). Ритм секция - Sean Kinney (барабаны) и Mike Inez (басс), вокал - Vin Dombroski и гитара - Chris DeGarmo. Группа уже записала шестипесенный ЕР "Microfish" который скоро будет доступен через Pied Viper label. Микширование проходило в сиэтлской Studio X, на разные кнопочки нажимал Adam Kasper (FOO FIGHTERS, SOUNDGARDEN).</p>
+
+Автор: Yermola
+
+### 09.04.2001 news SPYS4DARWIN.....
+
+<p>More information has surfaced about SPYS4DARWIN, the new project consisting of the ALICE IN CHAINS rhythm section Sean Kinney (drums) and Mike Inez (bass), ex-SPONGE vocalist Vin Dombroski, and ex-QUEENSRYCHE guitarist Chris DeGarmo. According to sources, the group’s recently-recorded debut EP, entitled Microfish, will initially be available only via the band’s official web site, but will shortly thereafter find its way into stores on the Pied Viper label. The EP's six tracks were reportedly mixed at Seattle's Studio X, with Adam Kasper (FOO FIGHTERS, SOUNDGARDEN) twisting the knobs. A full-length album is expected to come out later this year.</p>
+
+Автор: Yermola
+
+### 26.03.2002 news Еще один супер-проект распался....
+
+<p>Jim Guerinot - менежер ex-вокалиста "SOUNDGARDEN" - Chris Cornell подтвердил уход Криса из им же созданного проекта с участниками "RAGE AGAINST THE MACHINE" - Tim Commerford (басс), Brad Wilk (барабаны) и Tom Morello (гитара). Команда успела поработать над записью альбома и собиралась участвовать в Американском Ozzfest.....</p>
+
+Автор: Yermola
+
+### 26.03.2002 news CHRIS CORNELL&#39;s Manager Confirms Singer&#39;s Departure From Supergroup ...
+
+<p>Jim Guerinot, the manager of ex-SOUNDGARDEN frontman Chris Cornell, has confirmed that the singer has left the new supergroup he formed with former RAGE AGAINST THE MACHINE members Tim Commerford (bass), Brad Wilk (drums), and Tom Morello (guitar). The unnamed band had originally started work on their never-completed debut album early last year and were due to perform at this year's US Ozzfest dates. An official announcement is expected in the coming days.</p>
+
+Автор: Yermola
+
+### 10.09.2002 news Новый проект Криса Корнелла...
+
+<p>После нескольких месяцев слухов, участники SOUNDGARDEN и RAGE AGAINST THE MACHINE решили объявить о создании совместног проекта. В группу назвавшуюся "AUDIOSLAVE" входят ex-SOUNDGARDEN вокалист Chris Cornell и ex-RAGE AGAINST THE MACHINE бассист Tim Commerford, Brad Wilk (барабаны) и Tom Morello (гитара). Уже запущен официальный веб-сайт <A HREF="http://www.audioslavemusic.com/">http://www.audioslavemusic.com/</A>, правда еще с малым количеством информации. <BR><BR> "AUDIOSLAVE" уже подписали контракт с The Firm (работающей с KORN и LIMP BIZKIT) и сейчас готовят дебютный альбом для выхода весной 2003.</p>
+
+Автор: Yermola
+
+### 10.09.2002 news CHRIS CORNELL&#x2F;RAGE AGAINST THE MACHINE Select New Name, Launch Web Site...
+
+<p>After months of rumors, it appears that AUDIOSLAVE has been officially selected as the name of the new project featuring ex-SOUNDGARDEN frontman Chris Cornell and former RAGE AGAINST THE MACHINE members Tim Commerford (bass), Brad Wilk (drums), and Tom Morello (guitar). A web site residing on the Sonymusic.com servers has been launched at <A HREF="http://www.audioslavemusic.com/">www.audioslavemusic.com</A>, containing four small, blurry photos of the group's members, as well as a form which you can use to sign up for an official online newsletter. <BR> <BR> As previously reported, AUDIOSLAVE recently signed a management deal with The Firm (i.e. KORN, LIMP BIZKIT, etc.) and are readying the release of their much-anticipated debut album, which is now not expected to surface before early 2003. <BR> <BR> The band once rumored to be called CIVILIAN had originally started work on their debut album early last year and were due to perform at this year's US Ozzfest dates. Shortly after announcing the tour, Cornell left the group, due in part to the differences stemming from the two parties having separate management deals. However, the band recently reunited and was seeking a neutral third party for management of the project. Previously, the RATM members were with Peter Mensch and Cliff Burnstein's management company Q-Prime, while Cornell was managed by Jim Guerinot's Rebel Waltz.</p>
+
+Автор: Yermola
+
+### 01.11.2002 articles Рабы шоу-бизнеса: классовая борьба продолжается!
+
+<p><B>Коммунизм бессмертен. RAGE AGAINST THE MACHINE, главные проповедники этой доктрины, готовы выпустить новый диск, чтобы доказать это в очередной раз</B>.<BR> И хотя группа сменила имя на AUDIOSLAVE ("Раб звука") и вокалиста (теперь у микрофонной стойки Крис Корнелл, лидер звезд 90-х SOUNDGARDEN), суть музыки осталась прежней - жесткий рок с разными примесями, изображающими гнев и социальную ответственность в различных формах и соотношениях. Выход диска "Audioslave" состоится 19 ноября, а пока группа снимает клипы на новые песни. Один из них, "Cochese", произвел настоящий фурор даже на съемках: <BR> - Все сейчас настолько озабочены войной с терроризмом и пытаются в каждом разглядеть посланца "Аль-Каеды", что я решил сыграть на этом - построить клип на максимальном использовании пиротехники, - рассказывает гитарист Том Морелло. - Снимали все это в одном из пригородов Лос-Анджелеса - местная полиция и новостные каналы получили несколько тысяч звонков от горожан, которые решили, что стали объектом очередного террористического акта. На какое-то время большинство дорог было заблокировано полицией - парни в мундирах также совершенно серьезно отнеслись к нашим съемкам. Правда, кончилось все хорошо… <BR> Съемки второго клипа AUDIOSLAVE запланированы на 8-9 ноября - очевидно, имеет смысл оповестить полицию, телеканалы и всех горожан об этом заранее. Как бы чего не вышло…<BR> У группы имеется и другая провокация - уже полностью готов материал ко второму диску, хотя первый только-только увидит прилавки. Так уж получилось - менеджеры остатков RAGE AGAINST THE MACHINE (RATM) и Криса Корнелла целый год выясняли отношения и только-только нашли компромисс, а все это время готовый материал пылился на полках, музыканты же успели написать новые песни. Музыканты оказались заложниками той самой капиталистической системы шоу-бизнеса, которую клеймили в каждой песне: пока боссы ругаются и делят прибыль, работа стоит. Компромисс все же нашелся: первый диск группы выйдет на фирме Epic (с ней по контракту связаны RATM), второй - на Interscope (с ней связан Корнелл). Так что в следующем году группа не заставит фэнов скучать - новая пластинка, мировое турне и какие-нибудь новые провокации. Это и есть свидетельство бессмертия коммунизма - хотя бы в рок-музыке. Жаль, Ленин не знал, какое искусство на самом деле важнейшее... <BR></p>
+
+Автор: Tornado
+
+### 02.01.2010 news SOUNDGARDEN вернулись
+
+<P>Вокалист <STRONG>Chris Cornell </STRONG>сообщил, что <STRONG>SOUNDGARDEN </STRONG>официально возродились после 12-летнего перерыва. </P>
+Автор: Vit Belov
+
+### 02.12.2010 news Номинанты &quot;Грэмми&quot; за этот год
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2010.12/17727.jpg" width=400 align=right border=0>Объявлены номинанты музыкальной премии<STRONG> "Грэмми"</STRONG> за 2010 год. 53 церемония вручения наград состоится 13 февраля 2011 года в <STRONG>Staples Center</STRONG> в Лос-Анджелесе. </P>
+<P>На звание лучшей 'hard-rock' команды претендуют следующие&nbsp;песни и исполнители:</P>
+<P>* <B>ALICE IN CHAINS</B> - "A Looking In View" (from "Black Gives Way to Blue")<BR>* <B>OZZY OSBOURNE</B> - "Let Me Hear You Scream" (from "Scream")<BR>* <B>SOUNDGARDEN</B> - "Black Rain" (from "Telephantasm")<BR>* <B>STONE TEMPLE PILOTS</B> - "Between The Lines" (from "Stone Temple Pilots")<BR>* <B>THEM CROOKED VULTURES</B> - "New Fang" (from "Them Crooked Vultures")</P>
+<P>На премию в категории "метал" номинированы:</P>
+<P>* <B>IRON MAIDEN</B> - "El Dorado" (from "The Final Frontier")<BR>* <B>KORN</B> - "Let The Guilt Go" (from "Korn III: Remember Who You Are")<BR>* <B>LAMB OF GOD</B> - "In Your Words" (from "Wrath")<BR>* <B>MEGADETH</B> - "Sudden Death" (from "Guitar Hero: Warriors Of Rock")<BR>* <B>SLAYER</B> - "World Painted Blood" (from "World Painted Blood")</P>
+<P>На заветный "граммофон" могут претендовать исполнители, выпустившие новую музыку с 1 сентября 2009 года по 30 сентября 2010 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

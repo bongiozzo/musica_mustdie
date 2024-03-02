@@ -127,6 +127,131 @@ All keyboards and female vocals performed by S.Reichl
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2006 reviews Смертельный мелодичный тупик
+
+<P>Второй полнометражный альбом немецких музыкантов. Пресс-релизы оценивают его как гениальное сочетание мелодики <STRONG>IN FLAMES</STRONG>, агрессивности <STRONG>DIMMU BORGIR</STRONG> и красоты <STRONG>LACUNA COIL</STRONG>. Обещаются море мелодий, ультрабыстрые гитарные риффы, помпезные оркестровые аранжировки, душераздирающий скриминг и потрясающий женский вокал на подпевках. Мало я что нашел из творчества вышеозначенных групп, скорее нашел отголоски <STRONG>CRADLE OF FILTH</STRONG> (да и то, из-за&nbsp;относительной похожести риффов). Но, вот все остальное: мелодии, оркестровки и красивый женский вокал, действительно имеют место быть. Мрачный, но красивый и мелодичный материал на стыке шведского melodic death и атмосферно-симфоничного dark metal, с обилием гитарных соло и густой клавишной атмосферой. К тому же, альбом является концептуальным. Мир, который мы знаем, постоянно эксплуатируется и опустошается современным человечеством. Это ведет к хаосу и полному разрушению его. Потом, возникает новая эра, земля восстает против человечества и все встает на свои места. Вот такие дела. Несмотря на заезженность&nbsp;смешиваемых группой стилей, их материал звучит довольно свежо и предельно интересно. Добавим сюда отличное качество продукции и наилучшие рекомендации от любителей мелодичного экстрима.</P>
+<P>Диск предоставлен компанией <STRONG>MYSTIC EMPIRE</STRONG></P>
+Автор: Dimas
+
+### 10.08.2007 reviews В modern-melodic-death-metal добавили красивую девушку
+
+<P>Немецкая группа DEADLOCK выпускает уже второй альбом за два года. Российский лэйбл Mystic Empire выбрал их в качестве главного хита из своей обоймы однотипных зарубежных melodic-death-metal команд, залицензированных по соглашению с Lifeforce.</P>
+<P>Забавно, что раскрутить DEADLOCK им в некотором смысле удалось. Группой заинтересовались даже российские промоутеры, и уже в сентябре коллектив приедет в Москву. Понятно, что кем сейчас только промоутеры не интересуются, да и вряд ли группа соберёт достаточную аудиторию, но как факт успеха Mazzar/Mystic Empire это событие рассматривать можно. Предыдущую пластинку, несмотря на агрессивную рекламу, я не удосужился послушать. В то время, когда вышел дебют DEADLOCK для российского рынка, лэйбл выпустил целую пачку из FEAR MY THOUGHTS, CIPHER SYSTEM, WITHERED и других столь же известных команд. </P>
+<P>DEADLOCK на новой работе “Wolves” пытаются выделиться из общей массы команд. Главным козырем немцев является вокалистка Sabine Weniger. Дело, конечно же, не в её достаточно обычных вокальных данных, и уж точно не в достаточно милой внешности, а в том, что чистый женский вокал, как ведущий, в melodic death-metal использовать не принято. Хотя этот шаг очень логичен. Современные melodic death коллективы широко употребляют чистый вокал в припевах песен с подачи IN FLAMES. Так вот в DEADLOCK эти припевы пропевает Сабина. В остальном, никаких новшеств. Типичный альбом в стиле ныне популярном. Кроме этого, «интересности» добавляют межпесенные проигрыши с элементами неоклассики. Но это так детали.</P>
+<P>Если вам понравились последние релизы IN FLAMES, BLINDED COLONY, SONIC SYNDICATE и добрый десяток других альбомов, “Wolves” для вас.</P>
+Автор: Vit Belov
+
+### 31.08.2008 news DEADLOCK назвали альбом
+
+<P><STRONG>DEADLOCK</STRONG> назвали свой новый альбом, который выйдет осенью/зимой. Концептуальная пластинка получила странное название "'<STRONG>...drumrrrrrrrrrolllllll...' Manifesto</STRONG>".</P>
+Автор: Vit Belov
+
+### 25.09.2008 news Новый альбом DEADLOCK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DEADLOCK "Manifesto"</STRONG> выходит 17 ноября на<STRONG> Lifeforce</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>The Moribund Choir vs. The Trumpets Of Armageddon</B><BR>02. <B>Martyr To Science</B><BR>03. <B>Slaughter’s Palace</B><BR>04. <B>The Brave / Agony Applause</B><BR>05. <B>Deathrace</B><BR>06. <B>Fire At Will</B><BR>07. <B>Seal Slayer</B><BR>08. <B>Manifesto</B><BR>09. <B>Dying Breed</B><BR>10. <B>Altruism</B><BR>11. <B>Temple Of Love</B></P>
+Автор: Vit Belov
+
+### 12.10.2008 news RASTA и DEADLOCK готовят тур по России
+
+<P>Менеджмент белорусских modern synth metal монстров<STRONG> RASTA</STRONG> готовит для группы российский тур на февраль 2009. Уже известно, что в качестве приглашенного гостя в этом туре появится немецкий <STRONG>DEADLOCK</STRONG>, который, кстати, будет промоутировать новый альбом "<STRONG>Manifesto</STRONG>" на одной сцене с <STRONG>RASTA</STRONG>. Первые даты уже должны быть объявлены совсем скоро.</P>
+Автор: Vit Belov
+
+### 18.10.2008 news Новая песня DEDLOCK
+
+<P>Мы уже сообщали о скором выходе нового альбома <STRONG>DEADLOCK "Manifesto"</STRONG>. Группа выложила на свою<STRONG> MySpace</STRONG> страничку песню <STRONG>"The Brave / Agony Applause" </STRONG>с этого альбома.</P>
+<P>Ссылка: <A href="http://www.myspace.com/xdeadlockx">http://www.myspace.com/xdeadlockx</A></P>
+Автор: Vit Belov
+
+### 23.01.2009 reviews Очень оригинально
+
+<P>Немецкая melodic-death-metal команда DEADLOCK лёгкая цель для рецензента. Их музыка настолько напоминает конструктор, что её описание сводится к простому перечислению старых и новых элементов. В данном случае группа добавила столько несвойственных стилю кирпичиков, что проблем и с буквенным объёмом заметки не возникнет.</P>
+<P>Новый альбом немцев “Manifesto” плотно ударит по их имиджу, как представителей стиля, хоть как-то связанного с death-metal. Если на предыдущей работе группа ограничивалась использованием женского вокала в качестве мелодичного чистого голоса в припеве, положенного музыке по стилевому клише, то в этот раз нововведения валятся, как из рога изобилия. Начинается всё с интро в стиле «техно», плавно переходящего в death-metal «молотилово» под электронный барабан. Тут же появляется и девушка, которая затем поёт чуть ли не больше основного «гроулера». На полях сразу отмечу, что в больших порциях Sabine Woniger переносится с трудом. Пение её достаточно однотипно, но когда она пытается его разнообразить получается совсем забавно. Переломным является трэк, который завершается двухминутной хип-хоп композицией. Без всяких гитар или нововведений, просто негритянский рэп. К чему он там, я вообще не понял, и уж совсем расстроился, представив себя сосредоточенно сидящим перед магнитофоном, из которого доносится нечто подобное. Дальше госпожа Woniger попыталась выступить в духе времени и исполнить нечто в манере современных R’n’B певиц, африканского происхождения. Это убило окончательно. Ни тембр голоса, ни талант не позволили ей приблизиться к качеству средней американской певицы. С другой стороны, было бы совсем страшно, если бы вслед хип-хопу DEADLOCK замочили ещё и R’n’B. Заканчивается всё кавером на песню “Temple of Love”, которую я впервые услышал у CREMATORY, с лидирующим женским вокалом.</P>
+<P>Прибавьте к этому саксофон в одной из песен, и вы получите нечто сверхоригинальное. К сожалению, где-то половина из предложенных компонентов этой музыки не вызывают у меня ничего кроме изумления. По этой причине я не могу причислить “Manifesto” к числу своих любимых альбомов.</P>
+Автор: Vit Belov
+
+### 12.04.2009 news DEADLOCK нашли басиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым басистом <STRONG>DEADLOCK</STRONG> стал <STRONG>John Gahlert</STRONG> (<B itxtvisited="1">FALL OF SERENITY</B>, <B itxtvisited="1">STOLEN PLEASURE</B>, <B itxtvisited="1">BURIED GOD</B>).</FONT></P>
+Автор: Vit Belov
+
+### 17.12.2010 news Новый альбом DEADLOCK
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.12/17855.jpg" width=400 align=right border=0>28 февраля на <STRONG>Lifeforce Records</STRONG> выходит новый альбом <STRONG>DEADLOCK</STRONG> <STRONG>"Bizarro World". </STRONG>Пластинка была записана в студии <STRONG>Slaughter's Palace </STRONG>лидером коллектива <STRONG>Sebastian Reichl</STRONG>. Трэк-лист:</P>
+<P>01. <B>Virus Jones</B><BR>02. <B>State Of Decay</B><BR>03. <B>Falling Skywards</B> <BR>04. <B>Earthlings</B> <BR>05. <B>You Left Me Dead</B><BR>06. <B>Brutal Romance</B><BR>07. <B>Alienation</B><BR>08. <B>Renegade</B><BR>09. <B>Htrae</B> <BR>10. <B>Bizarro World</B><BR>11. <B>Paranoia Extravaganza</B></P>
+<P>Предыдущая пластинка немцев <STRONG>"Manifesto" </STRONG>вышла в ноябре 2008 года.</P>
+Автор: Vit Belov
+
+### 17.02.2011 news Новое видео DEADLOCK
+
+<P>Новый клип<STRONG> DEADLOCK</STRONG> <STRONG>"Virus Jones" </STRONG>можно посмотреть ниже. Ролик был снят в Лейпциге режиссёрами <STRONG>Philipp Hirsch</STRONG>&nbsp;и <B>Heiko Tippelt</B> (<B>HEAVEN SHALL BURN</B>, <B>TRIPTYKON</B>, <B>AMON AMARTH</B>). В небольшом видео<STRONG> DEADLOCK</STRONG> попытались рассказать историю, скрытую за лирикой этой песни и повествующую о беотехнологиях.</P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=d08f1f1e7244f663b470" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.06.2013 news Новый альбом DEADLOCK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая работа немцев <STRONG>DEADLOCK</STRONG> <STRONG>"The Arsonist" </STRONG>выйдет 26 июля на <STRONG>Napalm Records</STRONG>. Сведение сделал <STRONG>Eike Fresse</STRONG> (<B>CALLEJON</B>, <B>OOMPH!</B>, <B>GAMMA RAY</B>), а мастеринг <STRONG>Olman Viper</STRONG> (<B>CALIBAN</B>, <B>EMIL BULLS</B>, <B>ZSK</B>). Обложку нарисовал <STRONG>Niklas Sundin</STRONG> (<B>DARK TRANQUILITY</B>). Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>The Great Pretender</B><BR>02. <B>I'm Gone</B><BR>03. <B>Dead City Sleepers</B><BR>04. <B>The Arsonist</B><BR>05. <B>Darkness Divine</B><BR>06. <B>As We Come Undone</B><BR>07. <B>Hurt</B><BR>08. <B>The Final Storm</B><BR>09. <B>Small Town Boy</B> (BRONSKI BEAT cover)<BR>10. <B>My Pain</B><BR>11. <B>Dead City Sleepers</B> (Erode Remix)(bonus track)<BR>12. <B>As We Come Undone</B> (Philip Abbas Remix) (bonus track)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/cGjOHcDGDpw?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG border=0 src="/images/news_rus/2013.06/25803.jpg" width=480 height=480></P>
+<P><BR></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 03.08.2013 news Видео новинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26013.jpg" width=200 height=285>В этом постинге&nbsp;опубликованы ссылки на 10 самых последних видео новинок от&nbsp;&nbsp;тяжёлых групп, которые так или иначе заслуживают внимание:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLACK TUSK</STRONG> "Truth Untold": <A href="http://youtu.be/yJXIvu4HqiY">http://youtu.be/yJXIvu4HqiY</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRING ME THE HORIZON</STRONG> "Go To Hell, For Heaven's Sake": <A href="http://youtu.be/9xLiI_-N4Hc">http://youtu.be/9xLiI_-N4Hc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CATTLE DECAPITATION</STRONG> "Your Disposal": <A href="http://youtu.be/szOlMfoN-jU">http://youtu.be/szOlMfoN-jU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> "All That's Left Is Blood": <A href="http://youtu.be/9OCh9hIGbGo">http://youtu.be/9OCh9hIGbGo</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEADLOCK</STRONG> "I'm Gone": <A href="http://youtu.be/R7M97B7bLZU">http://youtu.be/R7M97B7bLZU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEBAUCHERY</STRONG> "Let There Be Blood": <A href="http://youtu.be/7W8EU9HykoI">http://youtu.be/7W8EU9HykoI</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KILLSWITCH ENGAGE</STRONG> "Always": <A href="http://youtu.be/xcZIwXABBKA">http://youtu.be/xcZIwXABBKA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY RUIN</STRONG> "Moriendo Renascor": <A href="http://youtu.be/wNP_nITIuyQ">http://youtu.be/wNP_nITIuyQ</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEWSTED</STRONG> "Above All": <A href="http://youtu.be/6AWprBmbyuU">http://youtu.be/6AWprBmbyuU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TERROR</STRONG> "I'm Only Stronger": <A href="http://youtu.be/Gnx6ZusJbE4">http://youtu.be/Gnx6ZusJbE4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приятного просмотра!</FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 11.06.2016 news Новый альбом DEADLOCK
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом немцев <strong>DEADLOCK "Hybris"</strong> выйдет 8 июля на<strong> Napalm Records</strong>. В группе дебютирует вокалистка <strong>Margie Gerlitz</strong>, которая заменила ушедшую по личным причинам <strong>Sabine Scherer</strong>. Коллектив обещает новое рождение для DEADLOCK с этим альбомом.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>“Epitaph”<br>“Carbonman”<br>“Berserk”<br>“Blood Ghost”<br>“Hybris”<br>“Wrath / Salvation”<br>“Backstory Wound”<br>“Ein Deutsches Requiem”<br>“Vergebung”<br>“Welcome Deathrow”<br>“Uncivil Hands” (Bonus Track)<br>“Fight Song” (Bonus Track)</p><p><center><img width="640" height="592" src="/images/news_rus/2016.06/29311.jpg" border="0"></p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/HAzZ0iAzYl4" frameborder="0" allowfullscreen></iframe></p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/3Ai52qswy9Q" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 11.06.2016 news DEADLOCK: New album soon
+
+<p>New album from Germany's <strong>DEADLOCK "Hybris"</strong> will be released on July 8 via<strong> Napalm Records</strong>. Vocalist <strong>Margie Gerlitz</strong> will debut on this CD. She replaced the departed for personal reasons<strong> Sabine Scherer</strong>. The band promises a new birth for a DEADLOCK with this album.</p><p>Track listing:</p><p>“Epitaph”<br>“Carbonman”<br>“Berserk”<br>“Blood Ghost”<br>“Hybris”<br>“Wrath / Salvation”<br>“Backstory Wound”<br>“Ein Deutsches Requiem”<br>“Vergebung”<br>“Welcome Deathrow”<br>“Uncivil Hands” (Bonus Track)<br>“Fight Song” (Bonus Track)</p><p><center><img width="640" height="592" src="/images/news_rus/2016.06/29311.jpg" border="0"><p></p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/HAzZ0iAzYl4" frameborder="0" allowfullscreen=""></iframe><p></p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/3Ai52qswy9Q" frameborder="0" allowfullscreen=""></iframe><p></p></center></center></center>
+Автор: Vit Belov
+
+### 30.06.2016 reviews Новый альбом от классиков мелодет в стиле «красавица и чудовище»
+
+<p>Немцы DEADLOCK пережили серьёзную трагедию в 2014 году. От рака скончался один из основателей коллектива барабанщик Tobias Graf. Это очень сильно повлияло на группу при сочинении нового материала. «Hybris” стал новым рождением DEADLOCK и попыткой осознать скоротечность жизни.</p><p>Ещё одним заметным событием в жизни DEADLOCK стала замена вокалистки. В 2004 году немецкая группа сорвала банк, добавив в состав женщину-вокалистку Sabine Scherer. Теперь навсегда группы, в которых чистый вокал в melodic death/metalcore исполняется девушкой, будут сравниваться с DEADLOCK. Как стиль «красавица и чудовище» в gothic doom ассоциируется с THEATRE OF TRAGEDY, так стиль «красавица и чудовище» в melodic death навечно связан с DEADLOCK.</p><p>Но вернёмся к новому альбому и новой вокалистке. Ею стала Margi Gerlitz. Быть может во мне говорит мужчина, но каждый раз, когда я слушаю метал с женским солирующим вокалом или даже просто с женскими подпевками, первым делом я обращаю внимание на него. Тем более DEADLOCK не прячут Margi. Она запевает практически с первых тактов, а на альбоме есть такие соло в её исполнении, которые пропустить просто невозможно. Например, последние несколько десятков секунд песни «Carbonman” или неоклассическая «Ein Deutsches Requiem”, где Margi просто блистает классическим вокалом. В остальном её вокал более эстрадный и сначала кажется, что он DEADLOCK не подходит. Грубый гроул, много забойных, практически death metal мест на этом альбоме, а певица подпевает как солистка поп-группы 90-х или даже 80-х. Но дальше понимаешь, что в этом есть определённая фишка «Hybris”. Здесь нет саксофона или рэпа, как бывало раньше, но этот вокал вкупе с попсовыми гармониями звучит очень интересно.</p><p>Остальная музыка на новом альбоме DEADLOCK тоже весьма разнообразна. Встречаются как тяжёлые композиции с deathcore проигрышами, так и более лирические и где-то даже готические вещи. DEADLOCK, которые почему-то до сих пор считаются молодой группой, задают высокую планку на своих альбомах и ниже не опускаются, что делает им честь.</p><p>Очень разнообразный и креативный альбом. DEADLOCK в высшей лиге современного европейского metalcore, и от этого уже никуда не деться. Я искренне желаю немцам удачи и надеюсь на прорыв с «Hybris” вместе с ними.</p>
+Автор: Vit Belov
+
+### 01.07.2016 news Новое видео DEADLOCK
+
+<p>Новый видео-клип<strong> DEADLOCK</strong> на песню "<strong>Backstory Wound</strong>" можно посмотреть ниже. Трек взят с альбома "<strong>Hybris</strong>", который выходит 8 июля на <strong>Napalm Records</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/yqqU5Key-4E" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 01.07.2016 news New video of DEADLOCK
+
+<p>A new video clip of <strong>DEADLOCK </strong>for the song <strong>"Backstory Wound"</strong> can be viewed below. The track is taken from the album "<strong>Hybris</strong>", which will come out on July 8 via<strong> Napalm Records</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/yqqU5Key-4E" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 01.07.2016 reviews The new album from the classics of melodeath in the style of &quot;beauty and the beast&quot;
+
+<p>The Germans DEADLOCK has experienced a significant tragedy in 2014. One of the founders of the band drummer Tobias Graf died from cancer. This greatly influenced the band when writing new material. "Hybris" was a new birth of DEADLOCK and attempt to understand the transience of life.</p><p>Another notable event in the life of DEADLOCK was the replacement of female vocalist. In 2004, the German group has hit the jackpot, adding to the line-up a female vocalist Sabine Scherer. Now any group in which clean vocals in melodic death/metalcore sung by a girl, will be compared to DEADLOCK. As the style "beauty and the beast" in gothic doom is associated with THEATRE OF TRAGEDY, so the style "beauty and the beast" in melodic death forever linked with DEADLOCK.</p><p>Let's back to the new album and new vocalist. She is named Margi Gerlitz. Perhaps the man says in me, but every time I listen to metal with female solo vocals or even just with female backvocals, the first thing I pay attention to it. Moreover, the DEADLOCK does not hide Margi. She sings almost from the first notes, and there is solo of her performance that you simply cannot miss on this album. For example, the last few dozen seconds of the song "Carbonman" or neo-classic "Ein Deutsches Requiem", where Margi just shines with classic vocals. Otherwise, her vocals are more pop and at first it seems that it is not suitable to DEADLOCK. A rough growl, a lot of hard, almost death metal sound on this album, and the singer sings like the lead singer of pop group of the 90s or even 80s. But then realize that there is a certain trick of "Hybris". There is no saxophone or rap, as has happened before, but the vocals, combined with pop harmonies sounds is very interesting.</p><p>The rest of the music on the new album DEADLOCK is also very diverse. There are as a heavy composition with deathcore riffs and more lyrical and even gothic stuff. DEADLOCK, which for some reason is still considered as a young group, setting the bar high on their albums and do not fall below, which does them honor.</p><p>Very diverse and creative album. DEADLOCK are in the top league of modern European metalcore, and there's nowhere to go. I sincerely wish the Germans good luck and hope for a breakthrough with "Hybris" with them.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

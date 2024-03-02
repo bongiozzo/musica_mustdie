@@ -43,6 +43,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.06.2012 news DICTATOR на More Hate
+
+<P><STRONG><IMG height=390 alt="" hspace=0 src="/images/news_rus/2012.06/24117.jpg" width=390 align=right border=0>More Hate Productions</STRONG> выпустили третий альбом <STRONG>DICTATOR "Stay Brutal, Baby"</STRONG>. Пресс-релиз:</P>
+<P>"<EM>Stay Brutal, Baby -это ядерная смесь old school и модных современных музыкальных течений. На лицо ярко выраженная мощь death metal, скорость thrash и ярость black metal, которые щедро аранжированы клавишными партиями, скрейчами, брейк даунами и электроникой. Мощная, быстрая и техничная музыка, свежее звучание и масса новых и еще незаезженных идей – все это вылилось в 3-й полноформатный альбом, который выводит Dictator на новый уровень</EM>".</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Intro<BR></STRONG>2. <STRONG>Ba’al</STRONG><BR>3. <STRONG>Underground<BR></STRONG>4. <STRONG>Evil</STRONG><BR>5. <STRONG>My Little Pride</STRONG><BR>6. <STRONG>Hymn of Golden Sun<BR></STRONG>7. <STRONG>I beseech you to die</STRONG><BR>8.<STRONG> Stay brutal, baby<BR></STRONG>9. <STRONG>In Hell</STRONG><BR>10. <STRONG>Cold</STRONG><BR>11. I<STRONG> hate you all</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

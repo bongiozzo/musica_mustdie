@@ -62,6 +62,35 @@ Band Residence: USA.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2003 news DEEDS OF FLESH news
+
+<P><SPAN style="COLOR: #ffffff"><B><IMG height=140 alt="" hspace=0 src="/images/news/2003.11/5446.jpg" width=140 align="left" border=0>DEEDS OF FLESH</B> has moved their site to </SPAN><SPAN style="COLOR: #ffffff"><A href="http://www.deedsofflesh.net/">www.deedsofflesh.net</A>. European tour dates are up now! Deeds is currently working on a new album. The album w! ill contain a number of cover tunes from the likes of Carcass, Napalm Death, Deicide, Kreator and many others. There will also be a number of new Deeds of Flesh songs on the album. Deeds has confirmed a tour for New Zealand and Australia in June/July 2004. </SPAN></P>
+Автор: Vit Belov
+
+### 14.11.2003 news DEEDS OF FLESh работают над новым альбомом
+
+<P><B><IMG height=140 alt="" hspace=0 src="/images/news_rus/2003.11/5447.jpg" width=140 align="left" border=0>DEEDS OF FLESH</B> работают над новым альбомом. На альбом войдут некоторое количество каверов на такие группы, как <B>Carcass, Napalm Death, Deicide, Kreator</B>, а также новые песни. Кроме этого коллектив собирается в тур по Австралии и Новой Зеландии.</P>
+Автор: Vit Belov
+
+### 25.11.2003 news Внимание организаторам концертов
+
+ВНИМАНИЕ огранизаторы!<BR>В январе 2004 года состоиться еропейский тур монстров мирового death/grind групп <B>DYING FETUS, DEEDS OF FLESH и HATE ETERNAL</B>! Америкиканские команды проедут по основным городам Европейских стран. Страны совка могут стать не исключением, и также при желании смогут увидеть легиндарные команды. Екс-лидер <B>Morbid Angel</B> и <B>Deeds Of Flesh</B>, а сейчас лидер <B>HATE ETERNAL</B> Ерик Рутан не против проехаться по странам ex-USSR.<BR>Желающие увидеть команды для подробной информации пишите на <A href="mailto:hunger_dispatch@ukrpost.net"><U>hunger_dispatch@ukrpost.net</U></A><BR>
+Автор: Vit Belov
+
+### 28.12.2007 news DEEDS OF FLESH закончили барабаны
+
+<P>Американские "дэтстеры" <STRONG>DEEDS OF FLESH</STRONG> находятся в студии, где записывают материал для нового альбома <STRONG>"Of What's to Come"</STRONG>,&nbsp;который выйдет весной на <STRONG>Unique Leader Records</STRONG>. Запись барабанов уже закончена.</P>
+Автор: Vit Belov
+
+### 01.01.2012 news Обложка нового DEEDS OF FLESH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Детстеры <STRONG>DEEDS OF FLESH</STRONG> опубликовали обложку нового альбома "<STRONG>Portals To Canaan</STRONG>", принадлежащую кисти <STRONG>Raymond Swanland</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=320 src="/images/news_rus/2012.01/22436.jpg" width=320 border=0></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Deads of Flesh

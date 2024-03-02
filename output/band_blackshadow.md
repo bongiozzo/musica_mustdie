@@ -99,6 +99,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.01.2012 news Новый альбом BLACK SHADOW
+
+<P><IMG height=418 alt="" hspace=0 src="/images/news_rus/2012.01/22654.jpg" width=418 align=right border=0>Восьмой альбом российских богохульников <STRONG>BLACK SHADOW "Пробуждение Чёрного Дракона"</STRONG> был переиздан в начале 2012 года на <STRONG>More Hate Productions</STRONG>. До это альбом был доступен только через музыкантов коллектива. Пресс-релиз: "<EM>Профессиональное переиздание альбома 2011 года от одной из лучших отечественных black metal комманд! Чистейший true black metal, пропитанный ненавистью к богу и человечеству, демонстрирующий полное презрение к всевозможным трэндам и прогрессивным влияниям! Только первородное Зло и Тьма!!!</EM> "</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Сила Слепого Дракона</STRONG> <BR>02. <STRONG>Трансформация <BR></STRONG>03. <STRONG>Кровь Кингу <BR></STRONG>04. <STRONG>Несокрушимый Натиск Тьмы <BR></STRONG>05. <STRONG>Пробуждение Чёрного Дракона <BR></STRONG>06. <STRONG>Древо Жизни Должно Быть Уничтожено</STRONG> <BR>07. <STRONG>Вечная Ночь</STRONG> <BR>08. <STRONG>Выход - Лишь Смерть! <BR></STRONG>09. <STRONG>Властелин Сферы Тагирион <BR></STRONG>10. <STRONG>Свет Люцифера <BR></STRONG>11. <STRONG>Этот Мир Не Для Меня</STRONG></P>
+Автор: Vit Belov
+
+### 01.04.2012 news Новый альбом BLACK SHADOW
+
+<P><STRONG><IMG height=401 alt="" hspace=0 src="/images/news_rus/2012.04/23388.jpg" width=400 align=right border=0>More Hate</STRONG> представляют новый альбом от ветеранов отечественного black metal движения <STRONG>BLACK SHADOW</STRONG>! Музыкальный материал как и прежде, выдержан в ключе безкомпромиссного и интенсивного black metal&nbsp; с влиянием гитарно-мелодических линий в шведском стиле (Setherial, Dissection, Lord Belial, etc). Плюс, к уже сложившемуся&nbsp; и узнаваемому стилю, группа добавила еще ритмические структуры, характерные для old school thrash metal.&nbsp; </P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Меч Асмодея</STRONG><BR>2. <STRONG>Несущий Дар Запретного Ремесла<BR></STRONG>3. <STRONG>Воспламеняющийся Гнев Ада<BR></STRONG>4. <STRONG>Люцифуг Рофокаэль</STRONG><BR>5. <STRONG>Падение Нефилимов</STRONG><BR>6. <STRONG>Тщеславие — Вечные Оковы Творца</STRONG><BR>7. <STRONG>Эзотерика</STRONG><BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Вышел 3й альбом группы Black Shadow - Царство Зла

@@ -183,6 +183,136 @@ Joe Allen  Bass
 * C группой "Faust [ITA]" Steve DiGiorgio (bass)
 * C группой "Dragonlord" Steve DiGiorgio (bass)
 
+## Публикации
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 05.09.2002 news Сквозь смертельные удары...
+
+<p>"ABSCESS" имеющие в своем составе культового барабанщика — Chris Reifert (ex-DEATH/AUTOPSY), Clint Bower (гитара/вокал, ex-HEXX), Danny Coralles (гитара, ex-AUTOPSY) и Joe Allen (басс, ex-VON) — 23-го сентября выпускают новый альбом "Through the Cracks of Death". После при поддержке лэйбла Peaceville Records пройдет Европейский тур.</p>
+
+Автор: Yermola
+
+### 05.09.2002 news ABSCESS To Release New CD, Tour Europe ...
+
+<p>ABSCESS—consisting of Chris Reifert (drums/vocals, ex-DEATH/AUTOPSY), Clint Bower (guitar/vocals, ex-HEXX), Danny Coralles (guitar, ex-AUTOPSY), and Joe Allen (bass, ex-VON)—will issue their new album, entitled Through the Cracks of Death, on September 23rd via Peaceville Records. A European tour is likely to follow a short time later.</p>
+
+Автор: Yermola
+
+### 02.09.2003 news Будет выпущен концертник AUTOPSY
+
+<p>Necroharmonic Records сообщила о планах по выпуску концертника легендарных AUTOPSY 'Dead As Fuck'. На том же лэйбле выйдет сборник ABSCESS (участвуют Chris Reifert (drums/vocals, ex-DEATH/AUTOPSY), Clint Bower (guitar/vocals, ex-HEXX), Danny Coralles (guitar, ex-AUTOPSY) и Joe Allen (bass, ex-VON)) "Thirst for Blood... Hunger for Flesh".</p>
+
+Автор: Vit Belov
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 04.06.2010 news ABSCESS превратился в AUTOPSY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа барабанщика и вокалиста<STRONG> Chris Reifert ABSCESS</STRONG> закончила своё существование. Причиной распада стал уход гитариста <STRONG>Clint Bower, </STRONG>без которого, по словам барабанщика, <STRONG>ABSCESS</STRONG> не могут существовать. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Между тем, <STRONG>Chris Reifert</STRONG> объявил о реактивации <STRONG>AUTOPSY</STRONG> в следующем составе: на гитарах <STRONG>Eric Cutler</STRONG> и <STRONG>Danny Coralles, </STRONG>на басу <STRONG>Joe Trevisano</STRONG> (бывший <STRONG>Joe Allen</STRONG> из <STRONG>ABSCESS) </STRONG>и, естественно, сам <STRONG>Reifert</STRONG>. Группа уже работает над новыми EP и альбомом, а также над документальным DVD, которые выйдут на <STRONG>Peaceville Records</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом<STRONG> ABSCESS</STRONG> <STRONG>"Dawn Of Inhumanity" </STRONG>вышел 15 марта на <STRONG>Tyrant Syndicate Productions</STRONG>, лэйбле гитариста/вокалиста <STRONG>DARKTHRONE Nocturno Culto</STRONG>. В России эта пластинка пока не выходила.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом <STRONG>AUTOPSY "Shitfun"</STRONG> вышел 12 сентября 1995 года на<STRONG> Peaceville Records</STRONG>, в России его переизданием занимался <STRONG>Союз</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 31.07.2010 news AUTOPSY подготовили к выпуску миньон
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16984.jpg" width=400 height=400>Американские маньяки <B itxtvisited="1">AUTOPSY</B> закончили запись своих новых песен,&nbsp;которые войдут в миньон коллектива, получивший название&nbsp;<B itxtvisited="1">"The Tomb Within"</B>. Запись происходила в середине июля в <B itxtvisited="1">Fantasy Studios</B>, со звукорежессёром <STRONG>Adam Munoz.</STRONG> На данный момент в составе группы три оригинальных участника: <STRONG>Chris Reifert</STRONG>, <STRONG>Danny Coralles,</STRONG> <STRONG>Eric Cutler</STRONG> и примкнувший к ним басист <STRONG>Joe Trevisano</STRONG> (ex-<STRONG>ABSCESS</STRONG>).</P>
+<P><STRONG>"The Tomb Within"</STRONG> будет выпущен 13 сентября на CD и 27 сентября на 12" виниле на <B itxtvisited="1">Peaceville Records</B>. Обложка нарисована фантазийным художником&nbsp; <B itxtvisited="1">Matt Cavotta </B>(<A href="http://www.cavotta.com/">www.cavotta.com</A>). </P>
+<P>12" винил увидет свет в количестве 1000 пронумерованных экземпляров&nbsp;и&nbsp;будет&nbsp;укомплектован&nbsp;бесплатным&nbsp;постером с обложкой альбома.&nbsp;CD&nbsp;версия&nbsp;<B itxtvisited="1">"The Tomb Within"</B>, доступная для предварительных заказов на сайте лейбла, будет снабжена лимитированной почтовой открыткой. </P>
+<P>Трек лист:<BR itxtvisited="1">01. <B itxtvisited="1">The Tomb Within</B><BR itxtvisited="1">02. <B itxtvisited="1">My Corpse Shall Rise</B><BR itxtvisited="1">03. <B itxtvisited="1">Seven Skulls</B><BR itxtvisited="1">04. <B itxtvisited="1">Human Genocide</B><BR itxtvisited="1">05. <B itxtvisited="1">Mutant Village</B></P>
+Автор: Headcrusher
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 09.01.2011 news AUTOPSY готовятся к записи
+
+<P>Легендарная группа&nbsp;<B itxtvisited="1">AUTOPSY</B> готовится войти в студию <STRONG>Fantasy</STRONG>&nbsp;(г. Брекли, Калифорния) в начале февраля,&nbsp;чтобы начать запись нового альбома, получившего название <B itxtvisited="1">"Macabre Eternal"</B>. Релиз альбома запланирован на весну 2011, на лейбле <B itxtvisited="1">Peaceville</B>. </P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.01/18118.jpg" width=450 height=300> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.03.2011 news Обложка нового AUTOPSY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.03/18971.jpg" width=400 align=right border=0>Первый за 16 лет новый студийный альбом<STRONG> AUTOPSY</STRONG> <STRONG>"Macabre Eternal" </STRONG>выходит 31 мая на <STRONG>Peaceville Records</STRONG>. Альбом был записан в <STRONG>Fantasy Studios </STRONG>в беркли, Калифорния. Трек-лист:</FONT></P>
+<P>01. <B>Hand Of Darkness</B><BR>02. <B>Dirty Gore Whore</B><BR>03. <B>Always About To Die</B><BR>04. <B>Macabre Eternal</B><BR>05. <B>Deliver Me From Sanity</B><BR>06. <B>Seeds Of The Doomed</B><BR>07. <B>Bridge Of Bones</B><BR>08. <B>Born Undead</B><BR>09. <B>Sewn Into One</B><BR>10. <B>Bludgeoned and Brained</B><BR>11. <B>Sadistic Gratification</B><BR>12. <B>Spill My Blood</B></P>
+Автор: Vit Belov
+
+### 16.04.2011 news AUTOPSY: видеоклип на песню &quot;My Corpse Shall Rise&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Калифорнийцы <STRONG>AUTOPSY</STRONG> вынеcли на суд общественности свой первый видеоклип на песню <STRONG>"My Corpse Shall Rise"</STRONG>. Данный трек вышел на прошлогоднем миньоне группы <STRONG>"The Tomb Within"</STRONG>.</FONT></P>
+<CENTER>
+<OBJECT width=640 height=390><PARAM NAME="movie" VALUE="http://www.youtube.com/v/uWdkgoEIIwg&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/uWdkgoEIIwg&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 28.01.2012 news Обложка и трек-лист сборника AUTOPSY
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.01/22842.jpg" width=400 height=400>Ветераны<STRONG> AUTOPSY</STRONG> подготовили к выходу новый сборник "<STRONG>All Tommorow's Funerals</STRONG>". Альбом выйдет 28 февраля на<STRONG> Peaceville</STRONG>. Он будет содержать ремастированные версии всех миньонов коллектива, а также четыре новых вещи. Трек-лист:</P>
+<P>1. <STRONG>All Tomorrow’s Funerals</STRONG> (new track) <BR>2. <STRONG>Broken People</STRONG> (new track) <BR>3. <STRONG>Mauled To Death</STRONG> (new track) <BR>4. <STRONG>Maggot Holes</STRONG> (new track) <BR>5. <STRONG>The Tomb Within</STRONG><BR>6. <STRONG>My Corpse Shall Rise</STRONG><BR>7. <STRONG>Seven Skulls<BR></STRONG>8. <STRONG>Human Genocide<BR></STRONG>9. <STRONG>Mutant Village</STRONG><BR>10. <STRONG>Horrific Obsession<BR></STRONG>11. <STRONG>Feast Of The Graveworm<BR></STRONG>12. <STRONG>Funereality<BR></STRONG>13. <STRONG>Fiend For Blood<BR></STRONG>14. <STRONG>Keeper Of Decay<BR></STRONG>15. <STRONG>Squeal Like A Pig<BR></STRONG>16. <STRONG>Ravenous Freaks<BR></STRONG>17. <STRONG>A Different Kind of Mindfuck<BR></STRONG>18. <STRONG>Dead Hole<BR></STRONG>19. <STRONG>Retribution For The Dead<BR></STRONG>20. <STRONG>Destined To Fester<BR></STRONG>21.<STRONG> In The Grip of Winter<BR></STRONG>22. <STRONG>Sign Of The Corpse</STRONG></P>
+Автор: Vit Belov
+
+### 16.02.2012 news AUTOPSY: клип на трек &quot;All Tomorrow&#39;s Funerals&quot;
+
+<P>Новый клип <STRONG>AUTOPSY</STRONG> на трек<STRONG> "All Tomorrow's Funerals"</STRONG>, можно посмотреть ниже. Песня вошла на одноимённый сборник, который выйдет на лейбле <STRONG>Peaceville</STRONG> 28 февраля.</P>
+<CENTER>
+<OBJECT width=550 height=368><PARAM NAME="movie" VALUE="http://ictv-bd-ec.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/ce2800e5210a995bbb0bc9b97ce001de/11/0/defaultPlayer%5Eplayer.swf"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://ictv-bd-ec.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/ce2800e5210a995bbb0bc9b97ce001de/11/0/defaultPlayer%5Eplayer.swf" type="application/x-shockwave-flash" allowFullScreen="true" allowscriptaccess="always" width="550" height="368"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 07.04.2012 news AUTOPSY: новый DVD &quot;Born Undead&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.04/23423.jpg" width=349 height=500>Легендарный gore grind ансамбль <STRONG>AUTOPSY</STRONG> выпускает DVD, получивший название <STRONG>"Born Undead"</STRONG>. Даты релиза запланированны на 28 мая (для Европы) и&nbsp;на 5 июня (для С.Ш.А.) на <STRONG>Peaceville Records</STRONG>.</P>
+<P>DVD <STRONG>"Born Undead"</STRONG>&nbsp;включает в себя историю о рождении, смерти и воскрешении&nbsp;<STRONG>AUTOPSY</STRONG>, а так же, обширную документальную часть, в которой участники группы расскажут, как группа появилась на свет и о влиянии её музыки на мир металла на протяжении вот&nbsp;уже более 20 лет. На <STRONG>"Born Undead" </STRONG>вы сможете увидеть группу&nbsp;на сцене и в студии сразу после её возрождения. </P>
+<P>Съёмки с&nbsp;концертов <STRONG>AUTOPSY</STRONG> после её воссоединения в&nbsp;2010 году, во время которых, оригинальным участникам группы -&nbsp; <STRONG>Chris Reifert</STRONG>, <STRONG>Eric Cutler</STRONG> и <STRONG>Danny Coralles</STRONG>, помогал бас-гитарист&nbsp;<STRONG>Dan Lilker</STRONG> (<STRONG>NUCLEAR ASSAULT</STRONG>, <STRONG>BRUTAL TRUTH</STRONG>), так же, можно будет найти на DVD.</P>
+<P>Обложку <STRONG>"Born Undead" </STRONG>нарисовал <STRONG>Kent Mattieu</STRONG>.</P>
+Автор: Headcrusher
+
+### 25.04.2013 news AUTOPSY: шестой студийный альбом этим летом
+
+<P>24 июня (2 июля для США) станет днём возвращения для <STRONG>AUTOPSY</STRONG>, американских мастеров брутальности. В этот день группа выпустит свой шестой студийный опус полный&nbsp;ужаса и безумия, получивший название <STRONG>"The Headless Ritual"</STRONG>. </P>
+<P>Альбом был записан и сведён в <STRONG>Fantasy Studios</STRONG> (California) под присмотром <STRONG>Adam Munoz </STRONG>и выйдет на лейбле <STRONG>Peaceville</STRONG>.&nbsp;Обложку для <STRONG>"The Headless Ritual"</STRONG>&nbsp;нарисовал&nbsp;<STRONG>Joe Petagno</STRONG> (<A href="http://www.petagno.dk/">www.petagno.dk</A>).</P>
+<P>Комментарии группы о новом диске:<BR><EM>“Не ждите ничего кроме чудовищной брутальности, за которую известны <STRONG>AUTOPSY</STRONG>.&nbsp;Не будет никакого почивания на лаврах, никаких следований тенденциям&nbsp;и никакого&nbsp;милосердия. Отметьте на календарях месяц июнь и выберите себе гроб, чтобы лечь и умереть в нём.&nbsp;Тьма и смерть ждёт.....”</EM></P>
+<P>Трек-лист альбома: </P>
+<P>01. <STRONG>Slaughter At Beast House </STRONG>| 02. <STRONG>Mangled Far Below </STRONG>| 03. <STRONG>She Is A Funeral </STRONG>| 04. <STRONG>Coffin Crawlers </STRONG>| 05. <STRONG>When Hammer Meets Bone </STRONG>| 06. <STRONG>Thorns And Ahes </STRONG>| 07. <STRONG>Arch Cadaver </STRONG>| 08. <STRONG>Flesh Turns To Dust </STRONG>| 09. <STRONG>Running From The Goathead </STRONG>| 10.<STRONG> The Headless Ritual</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.04/25644.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 22.02.2014 news AUTOPSY: подробности седьмого альбома
+
+<P>Легенда death metal,&nbsp;группа <STRONG>AUTOPSY</STRONG>,&nbsp;закончила работу над своим седьмым студийным альбомом, который называется <STRONG>"Tourniquets, Hacksaws & Graves"</STRONG>.&nbsp;Его выход запланирован на&nbsp;21 апреля в Европе и 29 апреля&nbsp;в США на&nbsp;<STRONG>Peaceville Records</STRONG>.</P>
+<P><STRONG>"Tourniquets, Hacksaws & Graves"&nbsp;</STRONG>был записан в&nbsp;<STRONG>Fantasy Studios</STRONG> с продюсером Адамом Мунозом (<STRONG>Adam Munoz</STRONG>). Обложку нарисовал <STRONG>Wes Benscoter</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.02/26684.jpg" width=500 height=504> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.03.2014 news Новая песня AUTOPSY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, 21 апреля на <STRONG>Peaceville</STRONG> выходит новый альбом <STRONG>AUTOPSY "Tourniquets, Hacksaws & Graves"</STRONG>. Песню с этого альбома можно послушать ниже:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=166 src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/141336893%3Fsecret_token%3Ds-ZAr2I&color=ff5500&auto_play=false&hide_related=false&show_artwork=true" frameBorder=no width=410 scrolling=no></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### FINAL HOLOCAUST records

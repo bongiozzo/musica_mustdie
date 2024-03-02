@@ -35,6 +35,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.01.2005 reviews Зловещие мертвецы: Иногда они возвращаются
+
+<P>Умели же в 80-е оформлять&nbsp; обложки альбомов. Хоть и немного наивно, никакой тебе компьютерной графики, зато весело и позитивно. С обложки альбома 89-го года банды Evildead на нас взирает, улыбаясь до ушей и выпучив глаза без зрачков, лысоватый дедуля в плавках и с коктейлем в руке. Действие происходит на пляже, загрязненном радиоактивными отходами, вдали коптят небо домны заводов, у берега разливается нефть из затонувшего танкера. Красота, да и только! Теперь перейдем к музыкальному содержанию. Что могли нарезать в конце 80-х музыканты в Америке? Конечно же, 100%-ный бескомпромиссный трэш-метал. С высокоскоростными, жесткими рифами и виртуозными гитарными поливами. На очень высоком уровне, прошу заметить. Жаль, что коллектив распался, так и не добравшись до высшей лиги трэша. С таким потенциалом можно было бы смело составить конкуренцию таким монстрам стиля, как Anthrax, Testament или Exodus.</P>
+<P>Диск предоставлен концерном Группа Союз</P>
+Автор: Fucker
+
+### 06.05.2011 news Новая песня от EVILDEAD
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.05/19419.jpg" width=500 height=321> 
+<P></P>
+<P>Лосанжелеские трэшеры <STRONG>EVILDEAD</STRONG>, которые не так давно возобновили свою деятельность, записали и выложили в сеть свой первый официальный студийный трек, после более чем 20 лет молчания. &nbsp;Песня, получившая название&nbsp;<STRONG>“Blasphemy Divine”</STRONG>, была спродюсирована Джоржом Пайоном&nbsp;(<STRONG>George Pajon</STRONG>) и доступна для прослушивания онлайн и бесплатного скачивания. В данный момент компания <STRONG>SPV/Steamhammer</STRONG> <STRONG>Records</STRONG> ведёт переговоры по переизданию&nbsp;студийного&nbsp;бэк-каталога группы, который включает в себя&nbsp;альбомы <STRONG>“Annihilation of Civilization”</STRONG>, <STRONG>“The Underworld”</STRONG> и классический миньон <STRONG>“Rise Above”</STRONG>. Группа в настоящий момент работает над материалом для нового диска. В её состав входят оригинальные участники: <STRONG>Juan Garcia </STRONG>– гитара (<STRONG>AGENT STEEL</STRONG>), <STRONG>Mel Sanchez </STRONG>– бас (<STRONG>ABATTOIR</STRONG>), <STRONG>Albert Gonzales </STRONG>– гитара (<STRONG>EVILDEAD</STRONG> / <STRONG>DEATH</STRONG>), <STRONG>Rob Alaniz </STRONG>– барабаны (<STRONG>NOCTUARY</STRONG>, <STRONG>WINTERHALL</STRONG>, <STRONG>DESPISE YOU</STRONG>), а так&nbsp;же,&nbsp;новый вокалист <STRONG>Steve Nelson </STRONG>(<STRONG>WINTERHALL</STRONG>, <STRONG>NOCTUARY</STRONG>).</P>
+<P>Песню можно прослушать и скачать по ссылке: &nbsp;<A href="http://soundcloud.com/evildead-1/blasphemy-divine" rel=nofollow target=_blank><U><FONT color=#810081>http://soundcloud.com/evildead-1/blasphe<WBR>my-divine</FONT></U></A><BR>Для получения&nbsp;большей информации о <STRONG>EVILDEAD</STRONG>, поситите официальный сайт: <A href="http://www.evildeadofficial.com/" rel=nofollow target=_blank><U><FONT color=#0000ff>www.evildeadofficial.com</FONT></U></A></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2011 news MUSICA DIABLO расстались с вокалистом
+
+<P><IMG height=218 alt="" hspace=0 src="/images/news_rus/2011.07/20362.jpg" width=475 align=right border=0>Проект вокалиста<STRONG> SEPULTURA</STRONG> <STRONG>Derrick Green MUSICA DIABLO </STRONG>расстался с... самим <STRONG>Derrick Green. </STRONG>Это решение вызвано недостатком времени на концертные выступления, который имеет место у певца, из-за большой занятости в основной группе.</P>
+<P>Одноимённый дебют<STRONG> MUSICA DIABLO</STRONG> вышел в 2010 году на&nbsp;<STRONG>SAOL</STRONG>&nbsp;/ <B>H'Art</B> / <B>Zebralution</B>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

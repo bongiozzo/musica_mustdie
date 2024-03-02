@@ -8,6 +8,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2011 news Переиздание дебюта BITCH
+
+<P>2 августа на <B>Metal Blade</B> выйдет переиздание дебютного альбома <B>BITCH</B> 1981 года <B>"Be My Slave"</B>. В качестве бонуса лэйбл добавит EP<B> "Damnation Alley" </B>и DVD с ре-юнион шоу <B>BITCH</B> на фесте Keep It True в апреле этого года. Ниже можно послушать песню<B> 'Ride In Thunder'</B>:</P>
+<P>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F16478627&secret_token=s-ERc2a&color=111111"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F16478627&secret_token=s-ERc2a&color=111111" type="application/x-shockwave-flash" width="100%"></embed></OBJECT>
+<P></P>
+<P>Клип выступления на фестивале <STRONG>Keep It True</STRONG>.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/X8ICZM44x_s" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

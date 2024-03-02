@@ -35,6 +35,38 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2009 reviews Нестандартный подход к развлечению
+
+<P>Шведская группа DIABLO SWING ORCHESTRA является довольно примечательным персонажем на тяжёлой сцене. Их второй альбом&nbsp; “Sing Along Songs for The Damned and Delirious” только что вышел и поразил неустойчивые умы любителей оригинальной музыки.</P>
+<P>Во-первых, о том, что собой представляет этот альбом. Здесь представлена музыка 30-х-40-х годов с тяжёлой гитарой и соответствующими эпохе вокалами. Не сказать, что совсем аутентичными, несколько пародийными, но я думаю, можно предположить, что так пели подобную музыку в ресторанах средней руки в ту эпоху. Танго, твист, свинг… Всё с примоченной гитарой и дурными протяжными псевдоэстрадными вокалами. Безусловно, слышать подобное необычно и смешно. Я, к сожалению, оказался не столь подготовленным слушателем, и от постоянной улыбки у меня заболел череп. Есть, кстати, ещё один способ весело провести время при прослушивании этой работы. Можно танцевать. Как-нибудь также, с коленцами. Люди, наблюдающие за вами, получат удовольствие. В следующем году этот коллектив приедет в Москву с концертом. Будет забавно посмотреть на публику и послушать.</P>
+<P>Этот диск привлекает к себе внимание покупателя. Мало того, что он выпущен в диги-паке, так ещё и звучит очень забавно. Мало, кто удержится от покупки. Но слушать это часто вряд ли возможно. Только для друзей поставить, ради смеха.</P>
+Автор: Vit Belov
+
+### 20.01.2010 news DIABLO SWING ORCHESTRA взяли бывшего барабанщика THERION
+
+<P>Новым барабанщиком<STRONG> DIABLO SWING ORCHESTRA</STRONG> стал <STRONG>Petter Karlsson</STRONG> (ex-<B>THERION</B>, <B>HOLOCOASTER</B>). Он заменил ушедшего по личным причинам <STRONG>Andreas Halvardsson.</STRONG></P>
+Автор: Vit Belov
+
+### 11.04.2012 news DIABLO SWING ORCHESTRA: первый сингл и обложка нового альбома &quot;Pandora&#39;s Pinata&quot;
+
+<P>Шведы <STRONG>DIABLO SWING ORCHESTRA</STRONG> выпускают свой новый альбом 22 мая на <STRONG>Candlelight Records</STRONG> (UK/EU) и <STRONG>The Laser's Edge/Sensory Records</STRONG> (USA/Can). <STRONG>"Pandora's Pinata"</STRONG> - такое название получил третий релиз группы.&nbsp;&nbsp;Первый сингл&nbsp;<STRONG>"Voodoo Mon Amour"</STRONG> доступен для прослушивания по адреcу: <A href="http://www.youtube.com/watch?v=m2mZVOd0jWY">www.youtube.com/watch?v=m2mZVOd0jWY</A></P>
+<P>Обложку альбома&nbsp;авторства Питера Бергтинга&nbsp;(<STRONG>Peter Bergting</STRONG>; <A href="http://www.bergting.com">www.bergting.com</A>)&nbsp;можно увидеть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.04/23462.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 18.02.2013 news DIABLO SWING ORCHESTRA: видеоклип на песню &quot;Black Box Messiah&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведский октет <STRONG>DIABLO SWING ORCHESTRA</STRONG> выпустил в прошлом году свой третий полноформатник <STRONG>"Pandora's Pinata"</STRONG>. Предлагаем вашему вниманию дебютный видеоклип с этого альбома на песню <STRONG>"Black Box Messiah"</STRONG>. Режиссёр видео: <STRONG>Klas Hjertberg</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже на этой неделе каждый желающий сможет&nbsp;увидеть <STRONG>DIABLO SWING ORCHESTRA</STRONG> живьём на российских концертных площадках:</FONT></P>
+<P><STRONG>22 февраля</STRONG> - г. Москва - "Москва Hall" | <A href="http://moscowhall.com/" target=_blank><U><FONT color=#0000ff>http://moscowhall.com</FONT></U></A><BR><STRONG>23 февраля</STRONG> - г. Санкт-Петербург - "Аврора" | <A href="http://avrora-zal.ru/" target=_blank><U><FONT color=#0000ff>http://avrora-zal.ru</FONT></U></A></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/WU1dtLsNHSQ" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### DIABLO SWING ORCHESTRA в России (22, 23 февраля 2013)

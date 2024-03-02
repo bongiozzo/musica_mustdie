@@ -39,6 +39,9 @@ Michael Olivieri - Background Vocals
 * C группой "Seven Witches" Wade Black
 * C группой "Black Reign" Wade Black
 
+## Публикации
+
+
 ## Обсуждения
 
 

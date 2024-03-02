@@ -100,6 +100,28 @@ Jerry Neumann - Voice-Over
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.03.2001 news Выход диска IMPALED отложен...
+
+<p>Релиз нового диска больных американских чуваков IMPALED - Choice Cuts отложен по производственным причинам. Как бы то ни было после 20 марта мы ожидаем его выход. Трек-лист: Nightsoil (новая песня), Until Death (новая песня), Carneous Cacoffiny (Carcass cover), I Work for the Streetcleaner (Impetigo cover), All That Rots (demo version), Spirits of the Dead (demo version), Immaculate Defecation ('From Here to Colostomy'), Flesh & Blood ('From Here to Colostomy'), Fecal Rites ('From Here to Colostomy'), From Here to Colostomy, With Shit, I am Adorned ('From Here to Colostomy'), The Ingestion of Colotomic Funk (From a '97 promo) With Shit, I am Adorned (The original, also from the same promo).</p>
+
+Автор: Yermola
+
+### 06.03.2001 news IMPALED&#39;s Choice Cuts will be delayed....
+
+<p>The release of IMPALED's Choice Cuts album will be delayed due to a squeamish manufacturing plant. The manufacturer deemed the cover artwork too disgusting and offensive to work with. Guitarist and vocalist Sean 'Bloodbath' McGrath stated: "It's always been my dream to make underpaid factory workers curse my name while shaking their tiny fists in the air. Today my dream has come true." Adorned with images of a woman's legs and a baby whose throat is about to be cut, this cover is sick. The album hasn't even hit stores, and the censors are already at it again. The album features new material from the vinyl only split with ENGORGED, tribute compilation tracks from the IMPETIGO and CARCASS tributes, unreleased versions of songs from their debut album and the underground classic demo recordings for the first time ever on CD.</p>
+
+Автор: Yermola
+
+### 09.06.2008 reviews Угарно и с кишками
+
+<P>Американцы IMPALED – не очень типичный death-metal коллектив для своей страны. В США, где предпочитают кристальную реализацию, мощный забой и техничность музыкантов, IMPALED вряд ли считаются серьёзной группой. Им даже лэйбла там не нашлось, выходят альбомы этих «кишочных» маньяков в Англии на Candlelight. Родина CARCASS!</P>
+<P>Музыка IMPALED скорее европейская. На нашем континенте в death-metal не настолько ценится рафинированная тяжесть и филигранная техника. Настроение, вот, что главное… UNLEASHED, CARCASS, DISMEMBER – угарные, заводные коллективы. IMPALED можно отнести сюда же. Быстрые, припанкованные трэки с болтовнёй между песнями. У IMPALED отсутствуют комплексы по поводу владения инструментами и качества записи. Они дают угар. К сожалению, здесь есть и минусы, вытекающие из плюсов, как обычно. Рубиться «попьяни» под IMPALED может и хорошо, но воспринимать их творчество, как нечто цельное не удаётся. Да и всё-таки не стоит унижать CARCASS, например. Играть они, что ни говори, умеют. IMPALED настолько сильно хотят «загрязнить» свой саунд, что понять что-либо об их умениях довольно сложно.</P>
+<P>Угарный альбом с кишками на обложке. Можно поживиться, но до оригиналов ему всё-таки далеко.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

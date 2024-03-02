@@ -110,6 +110,235 @@ Siggi Bemm - additional bass
 * C группой "Arcturus" Sverd (keys)
 * C группой "Shining" Hellhammer
 
+## Публикации
+
+### 05.03.1999 news 
+
+<p>Covenant вынуждены сменить своё имя, так как существует группа с таким же названием, которая играет электронную музыку. Ребята находятся в поисках нового имени.</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>Covenant записали новый альбом "Prophecies Of Fire". Сообщается о некоторых изменениях в звуке группы. Два изменения коснулись имён участников группы. Бывший член Dimmu Borgir Нагаш взял имя Lex Icon, а Black Heart стал Psy Coma.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Covenant приостановили запись альбома, из-за болехни вокалиста Lex Icon. Запись возобновится в конце июня. Группу покинул Astennu, чтобы уделять больше внимания Dimmu Borgir.</p>
+
+Автор: Vit Belov
+
+### 23.08.1999 news 
+
+<p>Emperor готовят новое видео, в которое войдут записи с концерта в Асстории в Лондоне, а также записи из жизни музыкантов между концертами. Видео выйдет в конце года. Candlelight Records переиздаст последний альбом группы "IX Equillibrium". На него войдут несколько различных версий песен. Например, Трикстер Джи (Ulver, Arcturus) работает над ремиксом песни "Sworn". Для наших фэнов будет интересно, что группа выступит на фестивале в Польше 9 октября вместе с Peccatum, Limbonic Art, Hypocrisy, The Kovenant (новое название Covenant). Концертный клавишник Emperor Шарман Гримлох выпусти свой сольный альбом "The Red Jewel" в сентябре.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Covenant были вынуждены изменить своё имя на The Kovenant, из-за того, что существует электронная группа Covenant. Скоро выйдет их новый альбом "Aenimatronik".</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>The Kovenant должны были выступить в вечернем шоу на норвежском телевидении, как лучшая метал-группа года в стране. Но продюсер канала не пустил шоу в эфир, так как оно показалось ему очень "экстравагантным".</p>
+
+Автор: Vit Belov
+
+### 25.11.1999 reviews 
+
+<p>Сovenant сменили своё название, но не стиль. Причины смены названия ищите в разделе новостей на страничке, а сейчас о музыке. Это не блэк, а если и блэк, то не в сегодняшнем "опошленном" норвегами понимании. В общем, данный альбом представляет собой логичное продолжение предыдущего альбома. Правда рифы стали чуть более вылизанными, да в некоторых песнях добавлены компьютерные эффекты, но достаточно ненавязчиво. Те же заводные песни, тот же напевающий женский вокал, те же прикольные клавиши. Обалденный альбом. Честно говоря, очень это всё выделяется из сегодняшней массы однообразия. Единственным недостатком можно считать довольно длительное звучание (51 минута), так как к концу пластинки энергия куда-то потерялась и почувствовалась некоторая вторичность материала. А так, всё отлично. Не даром The Kovenant признаны лучшей металл-командой в Норвегии, а там, как говорится, есть на что посмотреть, и что послушать.</p>
+<P> 9 из 10</>
+<P> Диск предоставлен фирмой "Спюрк".</>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>В Норвегии премия Грэмми не была вручена The Kovenant. Их обскакала группа, играющая кавера Black Sabbath в номинации "Лучшая металл команда".</p>
+
+Автор: Vit Belov
+
+### 05.07.2001 news The Kovenant работают над новым альбомом.
+
+<p> The Kovenant сейчас погружены в работу над своим следующим альбомом. Предположительно, называться он будет S.E.T.I. (The Search For Extraterestial Existence), что означает название программы NASA по наблюдению за сигналами из космоса.</p>
+
+Автор: Morsus
+
+### 05.07.2001 news The Kovenant are working on new album.
+
+<p> The Kovenant are currently busy working on their new album. The working title so far is S.E.T.I. ( The Search For Extraterestial Existence), which is the name of the Nasa Space observation program, to monitor alien communication.</p>
+
+Автор: Morsus
+
+### 19.07.2001 news Поиск внепланетного разума продолжается....
+
+<p>THE KOVENANT продолжают поиск внепланетных цивилизаций... Уже опубликован трек-лист: 01. Planet of the Apes 02. Hollow Earth 03. GenTech Ranch 04. The Perfect End 05. Camp Narssiscius 06. Strange Days (THE DOORS кавер)</p>
+
+Автор: Yermola
+
+### 19.07.2001 news The Search For Extraterestial Intelligence...
+
+<p>THE KOVENANT’s upcoming studio album, tentatively titled S.E.T.I. (The Search For Extraterestial Intelligence), will contain the following working titles, among others: 01. Planet of the Apes 02. Hollow Earth 03. GenTech Ranch 04. The Perfect End 05. Camp Narssiscius 06. Strange Days (THE DOORS cover). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.07.2002 news The Kovenant записывают новый альбом
+
+<p>The Kovenant сейчас находятся в известной германской студии Woodhouse и записывают новый альбом под названием "Cybertrash".</p>
+
+Автор: Morsus
+
+### 03.07.2002 news The Kovenant are recording their new album
+
+<p>The Kovenant are right now recording their new album "Cybertrash" at the well known Woodhouse studios in Germany.</p>
+
+Автор: Morsus
+
+### 10.07.2002 news Lex “Space Commander” Icon has this to say ...
+
+<p>Lex “Space Commander” Icon has this to say about the new The Kovenant record: <BR><BR> “By the time you all read this, we will already be in Woodhouse Studios, recording our new album. You can follow the process via the webcameras that have been put up throughout the studio. So click in on: www.woodhouse.de.<BR><BR> On the new album we have been fortunate enough to be accompanied by a string-quartet and a few sopranos. The style of the album is, as always, hard to describe, since the overall sound picture changes a lot after the album is done. One could categorize it as cybertrash/electro-rock/metal. I guess you'll just have to wait for a little while to find out. But then again, so do we… hahaha.<BR><BR> We are also planning to release a DVD/VHS at the beginning of next year. It will be put together as a sort of ‘Rockumenatry.’ It will feature live clips, backstage stuff, festivals, tour stuff, music videos, interviews with all the members, fan stuff, pictures, personal video material, ‘X-rated’ stuff and a whole lot more... I think the fans will really enjoy what we are putting together. And, since next year will be our 10th anniversary, we will also release a remix album, featuring a lot of major bands and persons in the music scene.”<BR><BR> The Kovenant’s new album S.E.T.I. is tentatively scheduled for a late 2002 European release followed by an early 2003 North American release.</p>
+
+Автор: Yermola
+
+### 18.10.2002 news Former YNGWIE MALMSTEEN Singer Parts With Solo Band ....
+
+<p>Former YNGWIE MALMSTEEN and current MASTERPLAN frontman Jorn Lande has parted ways with his solo backing band, which included current MAYHEM/KOVENANT drummer Hellhammer. Personal differences are being blamed for the split, which coincides with Lande's announced departure from WILD WILLY'S GANG, the "just-for-fun" project of ex-ROAD drummer Willy Bendiksen and his friends.</p>
+
+Автор: Yermola
+
+### 18.10.2002 news Йорн Ланде покинул свой соло проект...
+
+<p>Бывший вокалист Ингви Мальмстина и нынешний участник "MASTERPLAN" - Йорн Ланде покинул свой соло проект организованный совместно с барабанщиком MAYHEM/KOVENANT - Hellhammer'ом. Также им оставлен проект "WILD WILLY'S GANG" с членами "ROAD"...</p>
+
+Автор: Yermola
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 07.01.2003 news THE KOVENANT Set Release Date For &#39;S.E.T.I.&#39;
+
+<p>Norway's THE KOVENANT have set Mar. 31 as the European release date through Nuclear Blast Records for their long-awaited new album, "S.E.T.I. (The Search For Extraterestial Intelligence)" . The CD was recorded at Woodhouse Studios in Hagen, Germany and will feature 12 of the 14 songs tracked during the sessions, including "Cybertrash", "Planet of the Apes", "Hollow Earth", "GenTech Ranch", "The Perfect End", "Camp Narssiscius", and "Strange Days" (THE DOORS cover).</p>
+
+Автор: Yermola
+
+### 26.04.2003 reviews Безумие продолжается
+
+<p>Одни из самых популярных норвежцев в мировой музыке, на сегодняшний день, продолжают прорубать себе дорогу от metal-стороны через дебри industrial к electro-pop музыке. Их мачете пока ещё не затупились и продвижение осуществляется довольно быстрыми темпами. На каждом новом творении группа реинкарнируется в новом виде. На этот раз, к металлу уже возврата нет. Техно-ритмы окончательно подмыли тяжёлое начало, и если на Animatronic гитара играла основную роль, здесь она довольно сильно заглушена. Не это главное. Музыка коллектива стала более атмосферной, rammstein'оподобное рубилово теперь очень редко. Преимущество отдаётся чистому вокалу, даже не потому, что его чуть-чуть больше, сама музыкальная политика ведёт к этому. Теперь перейдём к более субъективным вещам, как воспринимается музыка? Прошлый альбом был более заводной и хитовый! Мне показался материал скучноватым, пусть и насквозь пропитанным экспериментами. Вывод сделать сложно, но скорее всего 'Seti' не ждёт оглушительный успех у фэнов metal-музыки.</p>
+
+Автор: Vit Belov
+
+### 14.05.2003 articles &quot;We failed to find any kind of intelligence here, down on Earth...&quot; (Lex Icon @ THE KOVENANT)
+
+<p><I>Band: THE KOVENANT<BR> Country of origin: Norway<BR> Style: cyber metal<BR> Questions by: Kai Mathias Stalhammar<BR> Answers supplied by: Lex Icon</I></p>
+<P> <B>First of, would you please introduce us your newest album...</B></>
+<P> - It's called "S.E.T.I.", which means "The Search for Extra-Terrestrial Intelligence". It's our fourth album. Actually, I don't really know what to say… I mean, if you heard THE KOVENANT before, you know what to expect.</>
+<P> <B>Why "S.E.T.I." not "Cybertrash" as it'd been planned originally?</B></>
+<P> - Well, there's a band called ZEROMANCER and they had an album called "Eurotrash". It started making us problems even before our latest CD was actually recorded. And finally we decided to switch name back to "S.E.T.I." which was the original title.</>
+<P> <B>And why exactly "S.E.T.I."? Are you freaks on that NASA program, or was it some kind of a weird joke… or what?</B></>
+<P> - Yes, it's also a little bit of joke (*laughs*). I mean, we failed to find any kind of intelligence here, down on Earth so we had to look elsewhere (*laughs*). Actually, it's longing and willingness to explore new paths, to go beyond what is accepted… accepted norms of our existence.</>
+<P> <B>What about going Space one day? If someone had invited you on such a trip, would you agree?</B></>
+<P> - Yeah, of course. I would leave immediately (*laughs*). I'm a fucking hijack (*laughs*).</>
+<P> <B>OK, and now most important question: what movies "starring" alien invaders would you name the best ones ever shot?</B></>
+<P> - Science-fiction from 60's, I guess.</>
+<P> <B>What about your image? Why exactly this kind of look? I guess you know that your band had been compared to Marylin Manson numerous times… and I guess you get compared all the time just because of the way you look like.</B></>
+<P> - It's normal to compare. Besides, Marilyn Manson is a great artist, so I take that as a compliment. This is a "cybertrash", "cyberpunk" style. You know, like some Japanese cartoons and Mad Max movie.</>
+<P> <B>What's your attitude to minor kinds of violence, such as street gangs, for instance?</B></>
+<P> - Ehh… nothing good to say about it, actually…</>
+<P> <B>Is there anyone you'd like to see dead? Perhaps, some of your acquaintances… musicians… politicians… maybe the guys from SATYRICON…? </B></>
+<P> - (*laughs out loud*) Well… I'm not gonna say too much about that… I'd like to see Sadham Hussein dead pretty quickly. The SATYRICON guys might be the good choice as well. In fact, this is not what I get asleep with…</>
+<P> <B>What kind of weapon do you consider most perfect at the moment? "Most perfect" in terms of killing capacity, of course. Biological…? Chemical…? Genetic…?</B></>
+<P> - Religion. It would kill more people than any weapon in the whole history (*laughs*). But if seriously, it's the nuclear weapon… obviously. Religion has killed much more people, however.</>
+<P> <B>The rumors say that Hellhammer had parted ways with you guys. What do you have to say on this matter?</B></>
+<P> - There's not really much to say… There's about 472 bands he's playing in (*giggles*) and it simply didn't leave him enough time for his main bands: THE KOVENANT and ARCTURUS. It's the same problem I had with DIMMU BORGIR when I played with 'em. I didn't have enough time for both bands. So I had to choose… and I made my choice. So many things are happening now with THE KOVENANT, and I need everyone to be 101% dedicated to the band… and Hellhammer wasn't able to do that. We're still good friends and there weren't any hard feelings; we've just come to the point when either he quits THE KOVENANT, or… THE KOVENANT splits up. I guess all of us knew that this is exactly what's going to happen.</>
+<P> <B>Have you found the replacement?</B></>
+<P> - Yeah.</>
+<P> <B>Who's that?</B></>
+<P> - I'm not sure you ever heard about Norwegian band called LANDSET…</>
+<P><B>Never heard about it.</B></>
+<P> - … our drummer comes from that band.</>
+<P><B>What's up with your sickness?</B></>
+<P> - ???</>
+<P> <B>The rumors say that you had some serious problems with your health…</B></>
+<P> - (*giggles*) where have you heard that? (*giggles again*)</>
+<P> <B>I can't quite remember… a couple of magazines, I guess… They were saying you have sort of a brain tumor… </B></>
+<P> - That's not true.</>
+<P> <B>Good to hear that. Now off to live performances. What's your problem with that?</B></>
+<P> - Well, there wasn't much sense in touring before "S.E.T.I." comes out. But now it's out and we're doing our best in putting together a tour. We're planning to go touring the whole Europe. I hope we'll play in Russia some day… We don't have a manager at the moment. No manager, no agent, no one. Obviously, that causes some problems. We'll see what's going to happen. Hopefully we'll be touring a lot. At the moment, we have come to an agreement with PAIN from Sweden, so they're going on tour with us. However; there're no concrete plans so far.</>
+<P><B>Where do you think is the best and the worst crowd?</B></>
+<P> - It's hard to say… all the countries are so different. I think Germany has become very… hmm… boring. There're so many concerts, so many metal shows, that people are a bit of tired. But anyway, all the people of all the world are so different. For example, when you tour America, you know that they don't care about the band's philosophy or anything – they only want to hear extreme music. And when you play, for instance, in Scandinavia, you face this "true-false" kind of crap. I guess the best crowd is in middle-Europe. We haven't been to Russia, however. So we don't know what's your people like… (*laughs*)</>
+<P><B>Do you guys have any problems with either drugs or alcohol? I guess all of you know what happened to Somnium from FINNTROLL.</B></>
+<P> - No. Can you tell me?</>
+<P> <B>Well, he fell from the bridge being drunk… and died. Don't you fear you'll end your lives the way he did? </B></>
+<P> - No. I mean, FINNTROLL are Finnish, aren't they?</>
+<P> <B>Do you still pay any kind of interest to black metal?</B></>
+<P> - Sure. I have a side-project called TROLL, and it's black metal. Generally speaking, I don't pay any attention to whatever's happening in the black metal scene. As to the new bands, I really liked the Swedish combo called CRAFT. They have an album called "Terror Propaganda" which really good. You should check these Swedes.</>
+<P> <B>What's your opinion on homo's, lesbians, all kinds of sexual perverts, y'know?</B></>
+<P> - I think it's wrong. Not really sick, but… something really-really wrong. I'm much against it – I mean, people can do whatever they fucking want to, but these ones… Again, it's not disease, but… In my opinion, if you're a homo, you shouldn't walk around being fucking proud of it, because it's definitely not what you can be proud of!</>
+<P> <B>Do you have children? </B></>
+<P> - No.</>
+<P> <B>But I guess, you're going to…</B></>
+<P> - (*giggles*) Probably.</>
+<P> <B>And what if your son (daughter) once tells you he (she) is a homosexual (lesbian)? How would you act?</B></>
+<P> - Well, it's nothing I can do about it. Whether I like it or not, I cannot change it. I guess I'll just have to live with it. That's why I support genetic engineering and genetic technologies – when something's wrong, you just remove the damage cell (*giggles*). Are you a homo?</>
+<P> <B>(*shocked*) Eh… No. I'm hetero. </B></>
+<P> - Good for you.</>
+<P> <B>Do you know anything about Russia? </B></>
+<P> - Russia? Well, I know that there's a lot of Russian mafia (*laughs*). And you have a former KGB agent as a president. That's all I know.</>
+<P> <B>Have you heard any of our metal bands?</B></>
+<P> I guess, NOKTURNAL MORTUM is a Russian band or something…</>
+<P> <B>Ukrainian. Did you like 'em?</B></>
+<P> - No. I haven't heard 'em – I've heard ABOUT them.</>
+<P> <B>OK. It's time to wrap up our chat. Final words, please.</B></>
+<P> - Final words… Well… That's the hardest question you can ask, actually… OK. Listen here: THE KOVENANT is very ANTI-religious band but we don't have anything to do with satanists, because it's also a kind of religion. For example, I would never die for my beliefs 'cause they might be wrong (*giggles*). I'd rather have my mind open by wonders than closed by beliefs. It's true that certain believer can be happier than certain sceptic, however a drunken man is also happier than a sober man. That's all I have to say. Oh, almost forgot: please, buy the album. And please, don't buy the pirate copies – otherwise we can't come to you and play. Thank you!</>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.08.2003 news Новые проростки от THE KOVENANT
+
+<p>Норвежцы THE KOVENANT объявили, что их новый альбом будет называться "The Dreaming Spires". Его выход ожидается в начале 2004 года на Nuclear Blast Records. Новый альбом будет более гитарно ориентированным и более мрачным. Группу покинул ударник Von Blomberg (a.k.a. Hellhammer). Новым ударником коллектива стал Kuth (RAM-ZET), а новым клавишником Geir Bratland (APOPTYGMA BERZERK).</p>
+
+Автор: Dimas
+
+### 07.09.2004 news THE KOVENANT войдут в студию
+
+<P><STRONG>THE KOVENANT</STRONG> войдут в студию этой зимой для записи альбома, запланированного на середину 2005 года. <STRONG>"The Dreaming Spires" </STRONG>приблизительное название этой пластинки, и она станет последней для группы вместе с <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.09.2004 news THE KOVENANT will enter to the studio
+
+<P>Norway's <B>THE KOVENANT</B> will enter the studio this winter to begin recording the follow-up to last year's <B>"S.E.T.I."</B> (Search For Extraterrestrial Intelligence), tentatively due mid-2005 through <B>Nuclear Blast Records</B>.<BR><BR>"We are now set with all guns blazing towards completing the most exciting, surprising, energetic and accomplished <B>KOVENANT</B> record so far," the band write on their web site. "Again, this will be a drastic detour from our ever so unpredictable path, and our ideas are set to fill you with wonder and amazement. Old fans, as well as more recently acquired listeners will certainly find this to be a very characteristic <B>KOVENANT</B> record, and we are most pleased to say that with our emerging creation, we will reclaim our position as a force of innovation and aspiration, not just for ourselves, but for the entire scene."<BR><BR>The forthcoming CD, tentatively titled <B>"The Dreaming Spires"</B>, will reportedly be <B>THE KOVENANT</B>'s last for <B>Nuclear Blast</B>. One new songtitle has thus far been revealed: <B>"Radiation King"</B>. Also planned for release is a DVD containing footage spanning the band's entire career.<BR></P>
+Автор: Vit Belov
+
+### 08.05.2006 news THE KOVENANT выйдет до конца года
+
+<P>Новый альбом <STRONG>THE KOVENANT</STRONG> выйдет до конца года. Пластинка будет называться "<STRONG>Aria Galactica</STRONG>". Группа выложила инструментальный трэк с фрагментами многих песен с альбома: <A href="http://my.opera.com/thekovenant/homes/blog/Demo%20preview%201.mp3">http://my.opera.com/thekovenant/homes/blog/Demo%20preview%201.mp3</A></P>
+Автор: Vit Belov
+
+### 06.06.2007 news THE KOVENANT продолжают работу над альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>THE KOVENANT Psy Coma</STRONG> наконец-то выступил с апдэйтом, касающимся нового альбома группы "<STRONG>Aria Galactica</STRONG>". Музыкант не имел возможности работать над пластинкой в течение года, из-за личных проблем. В настоящее время он вновь начинает работу. Новой даты релиза пока не названо.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Выбери песню для следующего альбома The Kovenant

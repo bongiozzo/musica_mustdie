@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.09.2016 news Новый клип ATROPAS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип швейцарской melodeath/metalcore команды <strong>ATROPAS </strong>на песню "<strong>Alone</strong>" можно посмотреть ниже. Композиция взята с последнего альбома коллектива "<strong>Episodes Of Solitude</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/FtSdNiSl8Vk" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 05.09.2016 news Atropas present their new official video &quot;Alone&quot;
+
+<p>New clip of the Swiss melodeath/metalcore band <strong>ATROPAS</strong> for the song "<strong>Alone</strong>" can be viewed below. Song taken from their latest album, "<strong>Episodes Of Solitude</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/FtSdNiSl8Vk" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

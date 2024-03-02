@@ -99,6 +99,27 @@ All bassparts on this album played by Jens Lohner
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.06.2003 reviews Pop-Black-Metal
+
+<p>Медленная, мелодичная и успокаивающая музыка от этой немецкой группы не ставит себе целью бороться с такими титанами, как Cradle Of Filth и Dimmu Borgir. Им не до их инфернальных страстей. Скорее возникает вопрос, зачем ребята используют некое подобие скриминга, как основной вокал. Гораздо эффекнее это выглядело бы с чистыми песнопениями в духе death-doom. Вообще же, перлы от Cryptic Wintermoon не лишены очарования, но всё-таки находятся вне стилевых рамок, что в данном случае, скорее всего, озадачит слушателя. Вокал от black-metal, клавишные от death-doom-metal и гармонии от viking-pagan-metal и даже индустриальные фишки (совсем не true). Неплохой коктейль, неплохое качество, неплохая оценка... Можно употреблять в пищу. О, на Covenant 'Nexus Polaris' похоже. (после нескоьких прослушиваний)</p>
+
+Автор: Vit Belov
+
+### 25.11.2004 news Запись нового альбома CRYPTIC WINTERMOON почти закончена
+
+<P>Запись нового альбома <STRONG>CRYPTIC WINTERMOON 'Of Shadows'</STRONG> почти закончена. "<STRONG>Of Shadows...and the dark things you fear</STRONG>", вот полное название пластинки, выйдет ориентировочно в марте-апреле 2005 года на <STRONG>Massacre</STRONG>. Вот некоторые названия песен:</P>
+<P>1. <STRONG>Once in the Windblasted North</STRONG><BR>2. <STRONG>Portals of Nightfall</STRONG><BR>3. <STRONG>Open Fire<BR></STRONG>4. <STRONG>Grave without a Name<BR></STRONG>5. <STRONG>Synthetic God</STRONG><BR>6. <STRONG>Thrashomatic Overdrive</STRONG></P>
+Автор: Vit Belov
+
+### 25.11.2004 news CRYPTIC WINTERMOON are finishing new album
+
+<P>Recordings for the news <STRONG>CRYPTIC WINTERMOON</STRONG> album are almost completed. In December the mastering will take place once again at <STRONG>Danse Macabre Studios</STRONG>, Bayreuth. "<STRONG>Of Shadows...and the dark things you fear</STRONG>" will be released aprrox. March/April 2005. Here are some song titles in advance:</P>
+<P>1. <STRONG>Once in the Windblasted North</STRONG><BR>2. <STRONG>Portals of Nightfall</STRONG><BR>3. <STRONG>Open Fire<BR></STRONG>4. <STRONG>Grave without a Name<BR></STRONG>5. <STRONG>Synthetic God</STRONG><BR>6. <STRONG>Thrashomatic Overdrive</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

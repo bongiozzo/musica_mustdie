@@ -34,6 +34,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2011 news Новый альбом EXECRATION
+
+<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.07/20186.jpg" width=300 align=right border=0></P>
+<P>Новый альбом норвежских брутальщиков<STRONG> EXECRATION "Odes Of The Occult"</STRONG> выходит на<STRONG> Duplicate Records</STRONG>. Альбом был записан и смикширован самой группой при помощи <STRONG>Andreas Tylden</STRONG>&nbsp;из <STRONG>ALTAAR</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Ode To Obscurity</STRONG><BR itxtNodeId="95">2. <STRONG>Unction<BR itxtNodeId="94"></STRONG>3. <STRONG>Entheogen<BR itxtNodeId="93"></STRONG>4. <STRONG>Intermezzo I<BR itxtNodeId="92"></STRONG>5. <STRONG>A Crutch For Consolation</STRONG><BR itxtNodeId="91">6. <STRONG>Soul Maggot</STRONG><BR itxtNodeId="90">7. <STRONG>Grains<BR itxtNodeId="89"></STRONG>8. <STRONG>Obsession0<BR itxtNodeId="88"></STRONG>9. <STRONG>Intermezzo Ii1</STRONG> <BR itxtNodeId="87">10.<STRONG> Left In Scorn</STRONG><BR itxtNodeId="86">11. <STRONG>High Priest</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

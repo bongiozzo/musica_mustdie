@@ -127,6 +127,239 @@ Lars Lindйn - Bass
 * C группой "Asperity" Petri Kuusisto
 * C группой "Construcdead" Johan Magnusson
 
+## Публикации
+
+### 20.07.2001 news Пожалуйста...сдохни!?
+
+<p>Именно так будет называться новый альбом "CARNAL FORGE". Please....Die! - выходит на Century Media Records в самое ближайшее время. Трек-лист будет таким: 01. Everything Dies 02. No Resurrection 03. A World All Soaked In Blood 04. Fuel For Fire 05. Welcome To Your Funeral 06. Please...Die! (Aren't You Dead Yet) 07. A Higer Level Of Pain 08. Hand Of Doom 09. Becoming Dust 10. Butchered, Slaugthered, Strangled, Hanged 11. Totalitarian Torture 12. Slaves. Одним словом, дело At The Gates - живет и побеждает...</p>
+
+Автор: Yermola
+
+### 20.07.2001 news Please....Die!
+
+<p>CARNAL FORGE’s upcoming album, entitled Please....Die!, will be released through Century Media Records in the fall. The full track listing for the effort is as follows: 01. Everything Dies 02. No Resurrection 03. A World All Soaked In Blood 04. Fuel For Fire 05. Welcome To Your Funeral 06. Please...Die! (Aren't You Dead Yet) 07. A Higer Level Of Pain 08. Hand Of Doom 09. Becoming Dust 10. Butchered, Slaugthered, Strangled, Hanged 11. Totalitarian Torture 12. Slaves. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 24.10.2001 news Новости CARNAL FORGE
+
+<p>Гитарист Johan Magnusson покинул группу CARNAL FORGE, а бас гитарист Petri Kuusisto занял его место. Новый басист группы - Lars Linden (ex-Rosicrusian и Slapdash). Группа закончила запись нового альбома - Please… Die! в Studio Underground. Трэк лист выглядит следующим образом - "Everything Dies", "No Resurrection", "A World All Soaked In Blood", "Fuel For Fire", "Welcome To Your Funeral", "Please...Die! (Aren't You Dead Yet)", "A Higher Level Of Pain", "Hand Of Doom", "Becoming Dust", "Butchered, Slaughtered, Strangled, Hanged", "Totalitarian Torture" and "Slaves".</p>
+
+Автор: Vic Thor
+
+### 24.10.2001 news CARNAL FORGE news
+
+<p>Guitarist Johan Magnusson have left the band CARNAL FORGE, the former bass player Petri Kuusisto took his place as guitarist. The new bass player in the band is Lars Linden (ex-Rosicrusian and Slapdash). Carnal Forge has finished recording their new album, Please… Die!, at Studio Underground. The song-titles are: "Everything Dies", "No Resurrection", "A World All Soaked In Blood", "Fuel For Fire", "Welcome To Your Funeral", "Please...Die! (Aren't You Dead Yet)", "A Higher Level Of Pain", "Hand Of Doom", "Becoming Dust", "Butchered, Slaughtered, Strangled, Hanged", "Totalitarian Torture" and "Slaves".</p>
+
+Автор: Vic Thor
+
+### 26.10.2001 reviews Смерть в плотской кузнице
+
+<p>Смерть в плотской кузнице. Третий альбом неистовых шведов играющих бесшабашный death-thrash metal. Как и на предыдущих двух альбомах, музыка группы наполнена тяжеловесными быстрыми риффами, энергетикой и техничностью. Это музыка для любителей таких групп как Slayer, The Haunted и At The Gates. Прекрасная смесь thrash metal и мелодичного шведского death metal. Прекрасный вокал и уничтожающий все живое (под стать названию альбома) дух музыкального материала не позволяют отзываться нелестно об этом материале. Сырые и бритвенно-отточенные риффы, мелодичные (иногда двойные) гитары, ломаные и искрометные соло в слэйеровском духе, демонические настроения. Отвязная музыка, сильная и мощная, радующая слух и навеваюшая пламенные и живые воспоминания о восьмидесятых.</p>
+
+Автор: Dimas
+
+### 11.12.2001 news Sweden&#39;s In Thy Dreams, featuring members of Carnal Forge and Dellamorte....
+
+<p>Sweden's In Thy Dreams, featuring members of Carnal Forge and Dellamorte, are strongly rumored to have disbanded after the release of Highest Beauty. <BR> <BR> It appears guitarist Jari Kuusisto and drummer Stefan Westerberg aren't interested in pursuing the project anymore and want to focus more on Carnal Forge. However, the chance is likely that guitarist Hakan Stuvemark and bassist Petri Kuusisto will continue the outfit with vocalist Thomas Lindfors. Apparently, there's a lot of debate on the status of the band. <BR> <BR> We'll have more confirmed news on In Thy Dreams as we get it, but if you haven't check out the band's latest album, Highest Beauty. The release is out now on Century Media Records.</p>
+
+Автор: Yermola
+
+### 11.12.2001 news Мечта сбывается и не сбывается...
+
+<p>Шведы "In Thy Dreams" (имеющие в своем составе участников "Carnal Forge" и "Dellamorte") решили разойтись после выпуска альбома "Highest Beauty". Похоже, что гитарист Jari Kuusisto и барабанщик Stefan Westerberg больше не заинтересованы в этом проекте и собираются сфокусироваться на "Carnal Forge". Возможно дело "In Thy Dreams" захотят продолжить оставшиеся гитарист Hakan Stuvemark, бассист Petri Kuusisto и вокалист Thomas Lindfors. Подождем дополнительной информации от команды...</p>
+
+Автор: Yermola
+
+### 07.01.2002 news CENTURY MEDIA TOUR UPDATE....
+
+<p>CARNAL FORGE <BR> (European Tour with Mortician, Yattering and Tidfall) <BR> 1/5 BRADFORD - RIO UK <BR> 1/6 GLASGOW - CATHOUSE SCH <BR> 1/7 NEWCASTLE - TRILLIANS UK <BR> 1/8 LONDON - UNDERWORLD UK <BR> 1/9 PARIS - GIBUS FR <BR> 1/10 ROTTERDAM - BAROEG NL <BR> 1/11 HARDENBERG - PODIUM NL <BR> 1/12 DEINZE - BRIELJANT BL <BR> 1/13 EINDHOFEN - EFFENAAR NL <BR> 1/14 ESSEN - ZECHE CARL D <BR> 1/15 BERLIN - KNAACK D <BR> 1/16 HAMBURG - MARX D <BR> 1/17 PRAHA - BLACK PESS CZ <BR> 1/18 ZWICKAU - ALARM D <BR> 1/19 VIENNA - ARENA A <BR> 1/20 MILANO - INDIAN'S SALOON ITA <BR> 1/21 ZAGREB - MOCVARA T.B.A. CRO <BR> 1/23 PERPIGNAN - CROCK-MORE FR <BR> 1/24 BARCELONA - MEPHISTO SP <BR> 1/25 MURCIA - GAMMA SP <BR> 1/26 MADRID - EL-GRITO SP <BR> 1/27 IRUN - TUNK SP <BR> 1/29 LYON - REAL THEATRE FR <BR> 1/30 WIL - REMISE CH <BR> 1/31 OSNABRUCK - WORKS D <BR> 2/1 OFFENBACH - HAFENBAHN D <BR> 2/2 VOSSELAAR - BIEBOB BL <BR> 2/3 GRONINGEN - VERA NL <BR><BR> CRYPTOPSY <BR> (With Dimmu Borgir, Krisiun and Diabolic) <BR> Dates and venues to be announced shortly <BR><BR> GOD FORBID <BR> (With Hatebreed, Poison The Well and Sworn Enemy) <BR> 1/8 Detroit, MI - St. Andrews Hall <BR> 1/9 Columbus, OH - Al Rosa Villa <BR> 1/10 Huntington, WV - YWCA <BR> 1/11 Pittsburgh, PA – Club Laga <BR> 1/12 Cincinnati, OH - Bogart's <BR> 1/13 Nashville, TN – Exit In <BR> 1/14 Sauget, IL - Pop's <BR> (With Gwar and Soilent Green) <BR> 1/16 Norva Theatre – Norfolk, VA <BR> 1/17 Ziggy’s – Winston-Salem, NC <BR> 1/18 House Of Blues – N. Myrtle Beach, SC <BR> 1/19 Masquerade – Atlanta, GA <BR> 1/20 Floyd’s Music Store – Tallahassee, FL <BR> 1/21 Marquee – Jacksonville, FL <BR> 1/23 Orbit – Boyston Beach, FL <BR> 1/24 Neptunes – Ft. Myers, FL <BR> 1/25 Masquerade – Tampa, FL <BR> 1/26 House Of Blues – Lake Buena Vista, FL <BR> 1/28 House Of Blues – New Orleans <BR><BR> SCAR CULTURE <BR> 1/25 North Six in Brooklyn, NY (With Dillinger Escape Plan, Darkest Hour and All Else Failed)<BR></p>
+
+Автор: Yermola
+
+### 16.01.2002 news Новости от Darkside
+
+<p><IMG SRC="/images/news_rus/2002.01/2317.JPG" ALT="pho" width="200" height="206" hspace="15" vspace="5" border="1" align="left" /> Австрийская группа Darkside подписала контракт с Season Of Mist и выпустила новый альбом "Cognitive Dissonance" в 2001 году. В январе этого года группа отправилась в турне вместе с Mortician, Carnal Forge, Arkhon Infaustus.</p>
+
+Автор: Vit Belov
+
+### 16.01.2002 news Darkside news
+
+<p><IMG SRC="/images/news_rus/2002.01/2317.JPG" ALT="pho" width="200" height="206" hspace="15" vspace="5" border="1" align="right" /> Austrian death-metal band DARKSIDE released their new album "Cognitive Dissonance" in 2001. In January Band is on tour with Mortician, Carnal Forge, Arkhon и Infaustus. Tour dates:</p>
+<p>17.01.02 Praha (CZ) Black Pess</p>
+<p>18.01.02 Zwickau (DE) Alarm</p>
+<p>19.01.02 Wien (AU) Arena</p>
+<p>20.01.02 Milano (IT) Indian's Saloon</p>
+<p>21.01.02 Zagreb (HR) Mocvara (tbc)</p>
+<p>23.01.02 Perpignan (FR) Crock More</p>
+<p>24.01.02 Barcelona (ES) Mephisto</p>
+<p>25.01.02 Murcia (ES) Gamma</p>
+<p>26.01.02 Madrid (ES) El Grito</p>
+<p>27.01.02 Irun (ES) Tunk</p>
+<p>29.01.02 Lyon (FR) Real Theatre</p>
+<p>30.01.02 Wil (CH)Remise</p>
+<p>31.01.02 Osnabruck (DE) Works</p>
+<p>01.01.02 Offenbach (DE) Hafenbahn</p>
+<p>02.02.02 Vosselaar (BE) Biebob</p>
+<p>03.02.02 Groningen (NL) Vera</p>
+
+Автор: Vit Belov
+
+### 22.08.2002 news Carnal Forge update straight from guitarist Jari Kuusisto....
+
+<p>Here's a Carnal Forge update straight from guitarist Jari Kuusisto: <BR><BR> "We just finished all songs for the next album. The songs sounds killer and the album will contain about 12-13 songs. We had 17 songs before we stopped writing for this album. But then we had to say 'enough' and we decided to record only 14 of them. <BR><BR> We will once again enter Studio Underground and the date is set for 9/16.<BR><BR> Some of the songs titles are:<BR><BR> "Destroy Life"<BR> "Into Oblivion"<BR> "My Bloody Rampage"<BR> "Baptized In Fire"<BR> "Bulletproof Godmaterial"<BR><BR> We have let some of our closest friends listen to the new material and they think that it is the best songs we've ever written. So I hope that you will enjoy the new album when it's released and I hope to see you on the road in the near future."<BR><BR> It isn't too late to pick up Carnal Forge's Please...Die! In stores everywhere!<BR><BR> "Carnal Forge have set themselves the task of resurrecting the trad-thrash scene, and one listen to their third album Please…Die! should serve to convince any devotee of this genre that this four-piece have managed to realize their ambitious goal." - Kerrang</p>
+
+Автор: Yermola
+
+### 09.11.2002 news Новости от CARNAL FORGE
+
+<p>Новый альбом шведской группы CARNAL FORGE получил название "The More You Suffer…". Это будет уже четвертый альбом команды. Выйдет альбом в начале 2003 года на Century Media Records. В альбом войдут следующие вещи:</p>
+<p> 01. Divine Killing Breed Machine<BR> 02. Deep Rivers Of Blood <BR> 03. Destroy Life <BR> 04. Bullet Proof God Material <BR> 05. Deathblow <BR> 06. Cursed<BR> 07. Breaking Boundaries <BR> 08. Ripped & Torn <BR> 09. Hits You Like A Hammer<BR> 10. Baptized In Fire <BR> 11. H.B.F. Suicide <BR> 12. My Bloody Rampage<BR> 13. Into Oblivion <BR> 14. Let Me Bleed</p>
+
+Автор: Dimas
+
+### 09.11.2002 news CARNAL FORGE news
+
+<p>Sweden's CARNAL FORGE have set "The More You Suffer…" as the title of their fourth full-length album, which was recently tracked at Studio Underground and Black Lounge studios for an early 2003 release through Century Media Records. The complete track listing for the album is as follows:</p>
+<p> 01. Divine Killing Breed Machine <BR> 02. Deep Rivers Of Blood<BR> 03. Destroy Life <BR> 04. Bullet Proof God Material<BR> 05. Deathblow <BR> 06. Cursed<BR> 07. Breaking Boundaries<BR> 08. Ripped & Torn <BR> 09. Hits You Like A Hammer <BR> 10. Baptized In Fire <BR> 11. H.B.F. Suicide <BR> 12. My Bloody Rampage <BR> 13. Into Oblivion <BR> 14. Let Me Bleed</p>
+
+Автор: Dimas
+
+### 11.11.2002 news CARNAL FORGE have just wrapped up the recording and mixing process ....
+
+<p>The band have just wrapped up the recording and mixing process at Studio Underground in Sweden for their fourth full-length release tentatively due for release early 2003. Appropriately titled The More You Suffer, you can expect the classic CARNAL FORGE uncompromising Swedish slab of brutality, as only they can so ferociously deliver. Titles include “Divine Killing Breed Machine”, “Destroy Life”, “Deathblow” and “Let Me Bleed”. With two members of the band working in a mental institution in Sweden you can easily see where they get their lyrical inspiration. This promises to be their most vicious offering to date and we will hopefully be bringing them over to the US sometime next year.</p>
+
+Автор: Yermola
+
+### 21.02.2003 news CARNAL FORGE news...
+
+<p>Pain is usually associated with suffering, but in the case of the new CARNAL FORGE release, The More You Suffer, this brand of agony will bring more pleasure than anguish. These Scandinavian thrash heavyweights have returned to assault the world with their unrelenting form of aggression. This band will grab you by the throat and only tighten their grip with each track that goes by. If you can make it though this 12-song jaunt unscathed, consider yourself lucky. <BR> <BR> CARNAL FORGE will be making their first U.S. appearance at this year’s March Metal Meltdown in Irvington, NJ March 7 - 9 and hopefully there will be something left of the state once they are done. With three members currently employed at a mental institution, it is easy to see where they receive their lyrical inspiration for tracks such as “H.B.F. Suicide,” Ripped and Torn” and “My Bloody Rampage.” This is thrash metal the way it was meant to be played: brutally fast, extremely aggressive and totally uncompromising. On April 22nd, let the suffering begin. Consider this your first and only warning.</p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+### 06.05.2003 reviews Очередной образчик трэш-дэта по-шведски
+
+<p>"Чем больше ты страдаешь…" Тем больше я… что «я»? Нет ответа. "The More You Suffer" – очередной образчик вроде бы модного на сей день трэш-дэта по-шведски. Двукратное "увы" и троекратное "ах" – ни DARKANE, ни прочие CARNAL FORGE ничем особо не примечательны. Быстро, технично, в меру тупо. Новый лик трэша? Как-то не вдохновляюще выглядит этот лик. Серенький он какой-то. Впрочем, кому-то этот альбом наверняка понравится. И, скорее всего, даже не "кому-то", а "многим". В конце концов, даже я прослушал этот диск без скрежета зубовного. В смысле – не напрягает. А душевная лирика и полу-хардкоровые / полу-nu-metal'лические ходы в "Baptized in Fire" чудо как хороши.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 14.05.2003 news CARNAL FORGE were finally able to bring their abrasive thrash assault to the U.S.
+
+<p>The aggressive Swedish quintet CARNAL FORGE were finally able to bring their abrasive thrash assault to the U.S. as part of the Metal Gods tour featuring Halford, Testament, Immortal, Amon Amarth, Primal Fear and Pain Museum. This was possibly the most metal package that could be put together and after a week of sold-out shows the tour came to a complete halt. Unfortunately, due to varying issues the tour was abruptly cancelled in New York to every band’s dismay. CARNAL FORGE had responded with the following comments regarding the tour’s cancellation.<BR> <BR> “Well, well, well... I guess nobody has missed it. The Metal Gods Tour is off! CARNAL FORGE would like to send their deepest regrets to all fans that had already bought tickets and expected to see the band on The Metal Gods tour. The reason for cancelling the tour was something that we couldn’t do anything about. We will do everything to come back to the U.S. as soon as possible, so hopefully you will be able to see us on the road soon again. CARNAL FORGE would also like to thank everybody that got the chance to see us live for their fantastic support. See you again soon!!!<BR><BR> Yours Sincerely,<BR> Carnal Forge”<BR><BR> This October the band will embark on the Bonded By Metal Over Europe tour alongside Exodus, Nuclear Assault and BEHEMOTH among others. Look for the group to make their return to the U.S. very soon and their new thrash metal masterpiece, The More You Suffer, is now available.<BR><BR> “The long dependable CARNAL FORGE are probably the top band on the planet merging the worlds of Scandinavian and American death.”<BR> -- Brave Words; May 2003<BR><BR> “Where most have failed in recent memory, CARNAL FORGE picks up the slack with their most varied effort to date.”<BR> -- Ubermetal.com; May 2003</p>
+
+Автор: Yermola
+
+### 06.06.2003 articles Metal Gods Tour 2003 &#x3D; Long Live Rock&#39;N&#39;Roll
+
+<p><i>Отмены туров, концертов… Как это всё знакомо нам! Наибольший резонанс вызывают отмены крупных концертов. Например, наш любимый Long live Rock’n’Roll в Москве. В прошлом месяце подобная ситуация возникла в США!</i></p>
+<p>Главным организатором Metal Gods Tour (такое же пафосное название) выступил менеджемент «голоса heavy-metal» Роба Хэлфорда. Намечалось нечто грандиозное, как говориться, наш ответ Ozzfest. Были приглашены, кроме HALFORD, TESTAMENT, IMMORTAL, PRIMAL FEAR, CARNAL FORGE и AMON AMARTH. Великолепный набор групп с двух континентов и практически из всех жанров классического METAL. Но после всего семи шоу, всё неожиданно закончилось 2 мая. Музыканты были срочно отправлены по домам, без всякой надежды вернуться. Интересно узнать, кто виноват в данном событии, которое, не побоюсь этого слова, потрясло североамериканскую металлическую тусовку.</p>
+<p> <b>(3 мая)</b> Джон Бакстер (менеджер Хэлфорда): «<b>Существует единственный виновник крушения нашего турне. Агентство Universal Attraction было просто не в курсе, чем занимались его работники в течение последней недели. Смысл этого, в конце концов, дошёл до меня во время начавшейся трассы. Мне приходилось работать очень напряжённо, чтобы решить все возникающие проблемы. Любой лэйбл или менеджер поймёт, что невозможно решить все проблемы уже во время события, но я старался… Я начал работать над этим туром ещё в прошлом сентябре, это был мой ребёнок…</b>» <br> Позже упоминались какие-то «контрактные сложности», которые не позволили продолжить выступления. Практически на следующий день после отмены шоу TESTAMENT и HALFORD выдвинули предложение наверстать упущенное в июне/июле.</p>
+<p> <b>(4 мая)</b> Дж. Бакстер: «<b>Я и менеджмент TESTAMENT договорились провести тур в июне/июле в усечённом составе. Мы постараемся охватить все города, но это не очень легко, так как надо обновлять договорённости по клубам для выступления</b>».<br> <IMG SRC="/images/articles_rus/2003.06/4394.jpg" ALT="pho" width=225 height=169 hspace="15" vspace="5" border="1" align="left">Фил Арнольд (менеджер TESTAMENT): «<b>Слухи, слухи, слухи… Самое главное, что никто сейчас не может сказать, отчего отменили тур. Даже я, как участник событий, не могу в точности объяснить происходящее. Никто не имея полной информации, не может сообщить ничего кроме слухов. Единственно, что точно ясно, что TESTAMENT отыграли несколько концертов, и они были великолепны. За ответами нам всем следует обратиться к UNIVERSAL ATTRACTION INC. и METAL GODS INC.</b>»<br> Кстати, действительно ходило много слухов. Доходило даже до предположения, что во всём виновата атипичная пневмония (SARS).</p>
+<p> <b>(8 мая)</b> Дж. Бакстер: «<b>Главный менеджер Universal Attraction Джефф Аллен сообщил мне, что его подчинённый агент Томас Паскуаль перезаключил некоторые контракты без нашего участия, чем подорвал наше финансовое положение. Простыми словами, мы были вынуждены предложить группам работать за меньший гонорар. Они отказались, так как для них оказалось важнее собственное финансовое благополучие, а не благополучие Metal Gods Tour. В итоге <i>Я</i> прекратил этот тур</b>»</p>
+<p>. <b>(9 мая)</b> Домой наконец доехала группа PRIMAL FEAR. <br> <IMG SRC="/images/articles_rus/2003.06/4395.jpg" ALT="pho" width=150 height=225 hspace="15" vspace="5" border="1" align="right">PRIMAL FEAR: «<b>Мы потратили очень много денег, но главное это не деньги, а то, что мы потеряли всякое желание иметь дело с бизнесменами в США. В первую очередь мы хотим отметить, что не хотим снимать ответственности ни с Universal Attraction, ни с Metal Gods Tour (менеджмент Хэлфорда). Расследование продолжится, но это не изменит положения вещей. Нам надоели извинения. Мы, например, слышали, что отмени Хэлфорд лишь один из трёх своих ночных автобусов, тур можно было бы сохранить. Ещё одно, мы анонсируем наши даты в Европе за четыре месяца, здесь же турне не было спланировано и в два раза меньшие сроки. Кстати, Delta Airlines требовала с каждого из нас по 2000 долларов за то, чтобы вылететь в Германию из Нью-Йорка, где всё закончилось, вместо Далласа, где всё должно было закончиться</b>». <br> Кстати, Primal Fear отменили свой концерт 17 апреля в Германии, чтобы попасть на этот тур… А в это время фэны в сети уже предлагают назвать тур Little Babies of Metal Tour 2003. Группа Роба Хэлфорда, состоящая из пяти человек, передвигалась по стране на трёх автобусах, в каждом из которых обычно спят по 18-20 человек. Также говорят, что у группы был ещё один, специально для их оборудования. Не удивительно, что тур прогорел…</p>
+<p> <b>(24 мая)</b> Ну и, в конце концов, тур перенесли на осень. При чём HALFORD, скорее всего в нём участия не примет.<br> Дж. Бакстер: «<b>Наше новое агентство сообщило нам, что вынуждено перенести тур на cентябрь/октябрь, но это слишком поздно для нас. Нам надо записывать новый альбом, кроме того, у нас намечались туры по Южной Америке, Азии и Австралии</b>».</p>
+<p> Вам это всё ничего не напоминает? Должно быть, известная нам личность переехала в США и стала там менеджером Роба Хэлфорда. Американцы так сильно возмущены происходящим, но если их окунуть в нашу действительность, где пять стоящих концертов в год, да и то половину отменяют… Ну, ничего… Билеты в Питер уже куплены, будем смотреть финнов.</p>
+
+Автор: Vit Belov
+
+### 18.06.2003 news Swedish thrash quintet are waiting for U.S. touring...
+
+<p>The maniacal, abrasive Swedish thrash quintet are currently waiting patiently for another U.S. touring opportunity. Plans are to bring them back over by the end of the year to continue the support for the critically acclaimed album The More You Suffer, released this past April. <BR><BR> Guitarist Jari Kuusisto recently checked in with the following report:<BR><BR> “Because of the cancelled Metal Gods U.S. tour Carnal Forge have already started to write some new material. It is even stronger than The More You Suffer, and we promise that you fans won’t get disappointed. At this moment we are working on getting back to U.S as soon as possible. Nothing at this moment is for sure, but maybe we will come to back in the summer to rip everyone’s soul to pieces ones again.<BR><BR> CARNAL FORGE also would like to thank all their fans for the support after the cancelled tour. A big HAIL to everyone who deserves it.”<BR><BR> “The More You Suffer is a blistering grab-you-by-the-throat thrash metal record that spews evil, anger and hatred with calculated intensity.”<BR> - Metal Maniacs, May 2003</p>
+
+Автор: Yermola
+
+### 16.10.2003 news CARNAL FORGE to record new album
+
+<DIV class=theText id=storyRepeater__ctl4_storyPanel>Swedish thrashers <B>CARNAL FORGE</B> will enter <B>Studio Underground</B> on February 3 to begin recording their fifth full-length release, tentatively due next summer through <B>Century Media Records</B>. 12-13 songs will be recorded for the follow-up to this year's <B>"The More You Suffer"</B>, and will feature a musical direction described by guitarist <B>Jari Kuusisto</B> as "[<B>picking] up from where the last album stopped. The new songs are a little bit more aggressive, but all of you that liked our previous albums won't get disappointed.</B>" </DIV>
+Автор: Vit Belov
+
+### 16.10.2003 news CARNAL FROGE готовятся к записи нового альбома
+
+<P><B>CARNAL FORGE</B> войдут в <B>Studio Underground</B>&nbsp; для записи нового пятого альбома 3 февраля. Будет записано 12-13 песен, которые предположительно выйдут следующим летом на <B>Century Media.</B></P>
+Автор: Vit Belov
+
+### 28.11.2003 news Переиздания классиков шведского death black metal
+
+<P><LABEL id=HbSession SessionId="1740891749">Лэйбл Regain Records приготовил подарок всем любителям шведятины. Компания выпустила шесть классических альбомов шведских групп, выпускавших альбомы на WAR Music в девяностых годах.</LABEL></P>
+<P><LABEL SessionId="1740891749"><B>Naglfar - Diabolical<BR></B>Ремастированная версия второго альбома группы 1998 года. Классический black death metal.<BR><B>Darkane - Rusted Angel</B><BR>Ремастированная версия дебюта группы 1998 года с тремя бонус-трэками. Техничный и мелодичный death metal. </LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL><LABEL SessionId="1740891749"><B>Carnal Forge - Whos Gonna Burn</B><BR>Ремастированная версия дебютного альбома группы 1998 года. <BR><B>Defleshed - Fast Forward</B><BR>Третий альбом шведов в ремастированном виде с четырьмя бонус-трэками. <BR><B>Dimension Zero - Penetrations from the Lost World</B><BR>Переиздание мини-альбома 1997 года, с семью бонус-трэками, среди которых две студийные нереализованные вещи и пять концертных, записанных в ходе японского тура 2002 года. .<BR><B>Eucharist - Mirrorworlds</B><BR>Ремастированный второй альбом 1997 года пионеров Swedish melodic death metal.</LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL>&nbsp;</P>
+<P><LABEL SessionId="1740891749">В нашем разделе mp3 можно ознакомиться с некоторыми песнями с этих альбомов.<BR>Есть надежда, что все эти альбомы выйдут по лицензии на российский рынок.</P></LABEL>
+Автор: Dimas
+
+### 19.12.2003 news Новости от ASPERITY
+
+<P>Дебютный альбом шведской группы <B>ASPERITY</B> "<B>The Final Demind</B>" выйдет на <B>Arise Records</B> в марте 2004 года. В составе группы - музыканты дэтовой формации <B>CARNAL FORGE</B>: ударник <B>Stefan Westerberg</B> и гитарист <B>Petri Kuusisto</B>. материал группы представляет собой гимноподобный heavy metal. В альбом войдут следующие вещи:</P>
+<P><B>1-Pleasure and pain </B></P>
+<P><B>2- The pray </B></P>
+<P><B>3- Past life </B></P>
+<P><B>4- The man with 1000 faces </B></P>
+<P><B>5- Rebellion </B></P>
+<P><B>6- Soul collector </B></P>
+<P><B>7- Sad eyes </B></P>
+<P><B>8- I`ll never understand </B></P>
+<P><B>9- Will they come? </B></P>
+<P><B>10- Final demand</B>
+Автор: Dimas
+
+### 04.04.2004 news Carnal Forge назвали новый альбом
+
+<P>Новый альбом <B>CARNAL FORGE</B> выйдет в июне на <B>Century Media</B>. Группа назвала его "<B>Aren't You Dead Yet". </B>Трэк-лист:</P>
+<P>01. <B>Decades of Despair</B><BR>02. <B>My Suicide</B><BR>03. <B>Burn Them Alive</B><BR>04. <B>Waiting For Sundown</B><BR>05. <B>Exploding Veins</B><BR>06. <B>Sacred Flame</B><BR>07. <B>Inhuman</B><BR>08. <B>The Final Hour</B><BR>09. <B>Totally Worthless</B><BR>10. <B>The Strength of Misery</B><BR>11. <B>Ruler of Your Blood</B> (Japan only) </P>
+Автор: Vit Belov
+
+### 13.08.2004 news CARNAL FORGE поменяли вокалиста
+
+Новым вокалистом <STRONG>CARNAL FORGE</STRONG> стал <STRONG>Jens C. Mortensen</STRONG> (<B>LEECH</B>, ex-<B>REVOLVER</B>, <B>SLAPDASH</B>), он заменил <STRONG>Jonas Kjellgren,</STRONG> который провёл в группе семь лет и выпустил с ней пять альбомов.
+Автор: Vit Belov
+
+### 25.10.2004 reviews Обычный альбом в популярном сегодня жанре
+
+<P>Шведы из <STRONG>CARNAL FORGE</STRONG> продолжают наступление на melodic death-thrash фронте. Нельзя сказать, что группы с этого фронта сильно разнообразны, но качественны они – это точно.</P>
+<P>Отличительной чертой нового альбома <STRONG>CARNAL FORGE</STRONG> является, большее, чем положено, наличие мелодичных отрывков. Члены коллектива пробуют свои силы в различных мелодичных проектах, вплоть до heavy-metal в <STRONG>ASPERITY</STRONG>. Это, видимо, повлияло на их музыку на новом альбоме. Непрекращающийся thrash-death забой иногда разбавляется мелодичными гитарными соло-проигрышами. И это выделяет этот альбом из массы подобных.</P>
+<P>Никаких новомодных фишек, как у <STRONG>DARKANE</STRONG> или <STRONG>IN FLAMES</STRONG>, мною найдено не было, хотя на это и намекалось в пресс-релизе выпускающего лэйбла. Быть может, будь эти черты, и у ‘<STRONG>Aren’t Dead Yet’</STRONG> было бы больше возможности получить хороший балл. А так только удовлетворительно, уж слишком альбом обычен.</P>
+Автор: Vit Belov
+
+### 25.02.2007 news Новый альбом CARNAL FORGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая пластинка <STRONG>CARNAL FORGE "Testify For My Victims" </STRONG>выходит в мае на <STRONG>Candlelight</STRONG>. Стал известен трэк-лист работы:</FONT></P>
+<P>01. <STRONG>Testify For My Victims</STRONG><BR>02. <STRONG>Burning Eden</STRONG><BR>03. <STRONG>Numb (The Dead)<BR></STRONG>04. <STRONG>Godsend Gods End<BR></STRONG>05. <STRONG>End Game<BR></STRONG>06. <STRONG>Questions Pertaining The Ownership Of My Mind</STRONG><BR>07. <STRONG>Freedom By Mutilation</STRONG><BR>08. <STRONG>Subhuman<BR></STRONG>09. <STRONG>No Longer Bleeding</STRONG><BR>10. <STRONG>Biological Waste Matter</STRONG><BR>11. <STRONG>Lost Legion</STRONG><BR>12. <STRONG>Ante Mori</STRONG></P>
+Автор: Vit Belov
+
+### 20.12.2007 news CARNAL FORGE выложили видео
+
+<P><STRONG>CARNAL FORGE</STRONG> выложили в сеть видео на песню <STRONG>"Numb (The Dead)". </STRONG>Ролик рассказывает об одной богатой семье, которая ради удовольствия содержит своих детей запертыми в подвале.</P>
+<P>
+<CENTER>
+<OBJECT height=373 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-XIqEbmhTLk&rel=1&border=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/-XIqEbmhTLk&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 04.02.2008 news Новый вокалист в CARNAL FORGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший певец <STRONG>CONSTRUCDEAD</STRONG> <STRONG>Peter Tuthill </STRONG>занял место фронтмэна в <STRONG>CARNAL FORGE</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 14.01.2009 news CARNAL FORGE начинают работу
+
+<P>Шведы <STRONG>CARNAL FORGE</STRONG> высказали недовольство прошедшим годом, который не принёс этой группе славы, в своём обращении. Коллектив начинает медленную работу над новым материалом, который должен вылиться в альбом в январе 2010 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

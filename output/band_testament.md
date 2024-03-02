@@ -321,6 +321,1012 @@ Paul Bostaph - Drums
 * C группой "Hatriot" Steve 'Zetro' Souza (vocal)
 * C группой "Tenet" Steve 'Zetro' Souza (vocal)
 
+## Публикации
+
+### 22.05.1999 news 
+
+<p>Control Denied покинул басист Скотт Кленденин. Чак Шульдинер уже нашёл замену - это Стив ДиДжорджио, известный по работе с Sadus и Testament. Также рассматривается возможности игры Стива на будущем альбоме Death.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Для тех кому недостаточно Grip Inc, Testament и Fantomas для наслаждения мастерством Дэйва Ломбардо новая группа Kkleq Muzil, с которой Дэйв запишет трёхпесенной демо. В группу также входят музыканты из Civil Defiance.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Testament отправились в тур вместе с The Haunted. Тем временем The Haunted покинул барабанщик Адриан Эрландссон, который влился в ряды Cradle Of Filth. Новым стукачом стал Пер Мёллер Йенсен.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Джеймс Мёрфи покинул Testament. Заменой ему стал Стив Смит.</p>
+
+Автор: Vit Belov
+
+### 21.10.1999 reviews Слушать и слушать однозначно
+
+<P>Вот держу я в руках этот альбом и думаю: "Экий матерый альбомище, экая глыба, кого рядом с ним поставить? - Да некого!". Chuck Billy & Dave Lombardo - сотоварищи выдали на гора супер альбом!!! Я такого от TESTAMENT не ожидал. Сильнейший эмоциональный саунд, круче уже некуда. Lombardo стучит так, что можно рекомендовать этот альбом в качестве пособия для барабанщиков. Billy после долгого перерыва выпустил альбом, оправдывающий годы ожиданий и даже безвременных похорон TESTAMENT. Слушать и слушать однозначно. Отмечу интересный рисунок на обложке альбома. Чистая 10!</P>
+Автор: Alexey Pitirimov
+
+### 24.10.1999 news 
+
+<p>Стив Якоб (ex-Forbidden) стал новым барабанщиком Testament, сменив на этом посту Дэйва Ломбардо.</p>
+
+Автор: Vit Belov
+
+### 25.10.1999 reviews 
+
+<p>Великолепный альбом, возрождение старого американского трэша. Не хочу спорить с коллегой Сепультуровым, а хочу добавить кое-что о музыке. После предыдущего дэт-альбома группа вернулась к трэшу, оставив от Demonic великолепное качество звука. Песни стали более разнообразными, а материал можно сравнить почти с любым старым альбомом, только, если учесть, что все компоненты более техничны и лучше. Музыканты тоже не подкачали, да и как они могли подкачасть, такие люди этого не умеют. Многие критики сравнивают работу со старыми альбомами Metallica. Я не стану этого делать, ибо на таком основании можно сравнивать все альбомы различных групп, работающих в одном направлении. 9 из 10 (Очень люблю testament)</p>
+
+Автор: Vit Belov
+
+### 29.10.1999 news 
+
+<p>Появился новый проект с участием известных музыкантов Syclone. По слухам в нём примут участие Самот и Трим из Emperor, а также Чак Билли из Testament.</p>
+
+Автор: Vit Belov
+
+### 05.12.2000 news Хорошее приобретение для &quot;ICED EARTH&quot;
+
+<p>Хорошее приобретение для "ICED EARTH". Помимо нового драммера Richard Christy (DEATH и CONTROL DENIED) в команде появился супер-басист Steve DiGiorgio (SADUS, TESTAMENT). Кроме того, уже практически закончена работа над полноформатником "Horror Show", дата релиза которого передвинута на май 2001.</p>
+
+Автор: Yermola
+
+### 17.01.2001 articles TESTAMENT: проповедники единства
+
+<p> Культовая трэш-метал-группа Testament 8 июня 1999 года выпустила альбом, который можно скромно назвать шедевром звукового бомбометания. Творение, озаглавленное “The Gathering” тем летом неплохо штурмовало хит-парады альтернативной музыки Европы и Америки, и даже MTV начинает присматриваться к группе.</p>
+<p> После нескольких лет экспериментов и поисков, расколовших поклонников команды на критиков и преданных фэнов, группа вернулась к тому, с чего и начинала – яркий агрессивный зубодробительный трэш-метал с долей мелодики и четкой ритмикой. По словам гитариста, Эрика Петерсона, «это возвращение к корням на новом техническом уровне – яростной атаке, мощному драйву и мрачному потустороннему звуку». Скоростные композиции сменяются размеренным среднетемповым «танковым» давлением, где наиболее ярко проявляется сильный глубокий голос Чака Билли. Сам Чак Билли, двухметровый индеец с потенциалом оперного певца, считает, что с точки зрения вокала это наиболее совершенный альбом Testament, где его голос проявляется и в мелодике, и в звуковом давлении на слушателя, и в открытом «балладном» исполнении. “The Gathering” записывался в собственной студии Testament, что не замедлило сказаться на качестве исполнения – в музыке не чувствуется никакого давления извне, в то время как внутренняя раскованность музыкантов просто зашкаливает, создавая особую атмосферу. Не было никакой специальной работы над структурой композиций типа «здесь быть соло, а здесь обязательно смена ритма» – все было совершенно спонтанно, и рождалось едва ли не вовремя самой записи. В итоге – энергия, бьющая через край и высочайший уровень технического мастерства.</p>
+<p> Предпоследний альбом группы, “Demonic”, оказался одновременно самым тяжелым и самым коммерчески успешным, (чего у группы не было уже лет десять - на сегодня его тираж более 200.000 копий), что само по себе противоречиво. Testament зашли на территорию ритмичного и напористого дэс-метал, что обычно денег приносит мало. Действительно, это понравилось не всем прежним поклонникам (Бобби «Блитц» Эллсворт назвал этот альбом «почти Анти-Тестамент»)- но взамен появились новые фэны, и их оказалось гораздо больше. Но не тут-то было. Вопреки коммерческому успеху Testament столкнулись с большими проблемами – дистрибьюторы их альбомов обанкротились и в определенный момент группа оказалась и без организационной поддержки, и без денег. Прямо посреди турне. Testament продолжили концерты на свои последние деньги и… вышли победителями – тур принес доходы, музыканты еще больше поверили в себя и не замедлили выразить это чувство победителя в неравной борьбе в музыке нового альбома, который удовлетворит всех: здесь есть и грубый звук, отвязный гитарный напор дэс-метал, яркая трэшевая мелодика и ритмичность композиций.</p>
+<p> . “The Gathering” по сути демонстрирует совершенство группы в трэш-метал. И одна из причин этого – уникальный состав Testament, которым это творение было записано. Помимо ветеранов Чака Билли и Эрика Петерсона, находящихся в группе со дня ее основания, это гитарист Джеймс Мерфи, бас-гитарист Стив Диджорджио и легендарный барабанщик Дэйв Ломбардо, с которым связывают лучшие годы в карьере культового трэш-хардкорового коллектива SLAYER. По словам вокалиста Чака Билли название работы, «Собрание», имеет двойной смысл: «Это собрание великолепных инструменталистов, мастеров трэша и собрание всех сильных сторон Testament в одно целое. Хотя есть и третья причина такого названия – наступает конец тысячелетия и мир словно сошел с ума: бомбардировки, рост расовой и национальной напряженности, множество ураганов, землетрясений… Словно все зло мира стремится воссоединится сегодня – в ответ на это мы все также должны собрать свои силы и направить их на лучшее применение».</p>
+<p></p>
+
+Автор: Tornado
+
+### 31.01.2001 news Testament готовят новый альбом. И не только.
+
+<p> Testament, завершив свое мировое турне "Over The Wall", в котором группа играла SLIPKNOT, IN FLAMES, MAYHEM, KORN, KOVENANT, MACHINE HEAD, ENTOMBED, SLAYER, IRON MAIDEN, в настоящее время готовят материал к новому альбому. Пока же музыканты с удовольствием говорят о том, сколько много новой «тяжести» они услышали в Европе и особенно восхищаются шведами SOILWORK и THE HAUNTED.</p>
+<p> Также группа в настоящее время переписывает старые песни с альбомов "The Legacy" и "The New Order" - в современном звучании, приближенном к последнему студийному альбому "The Gathering". В этой записи им помогает Алекс Сколник, покинувший группу почти восемь лет назад! Этот сборник ремиксов будет озаглавлен "First Strike is Deadly".</p>
+<p></p>
+
+Автор: Tornado
+
+### 26.03.2001 news Проблемы у TESTAMENT....
+
+<p>По сообщению официального сайта TESTAMENT вокалист Чак Билли имеет большие проблемы со здоровьем, а именно - по заключению врачей у него обнаружен рак. Работа над проектами пока продолжается и к концу года мы ождаем новый СД группы. Пожелаем Чаку скорейшего и полного выздоровления.</p>
+
+Автор: Yermola
+
+### 26.03.2001 news Chuck Billy has been recently diagnosed with cancer...
+
+<p>According to the official TESTAMENT web site, vocalist Chuck Billy has been recently diagnosed with cancer. Fortunately, the doctors have caught it in the earliest stages, and Chuck is very healthy and strong, so the prognosis is excellent. At this time, Chuck's family and friends would like to ask for all the fans’ support and prayers. The web site goes on to mention that “work on the upcoming projects will still go on as planned,” which presumably means that a new TESTAMENT CD is still expected out before the end of the year. On behalf of everyone reading this, BLABBERMOUTH.NET would like to extend our wishes to Chuck for a smooth and speedy return to form.</p>
+
+Автор: Yermola
+
+### 27.03.2001 news Реформация DISINCARNATE...
+
+<p>Участник супер-проектов TESTAMENT / DEATH / OBITUARY - гитарист Джэймс Мэрфи совместно с вокалистом Tomas Lindberg (AT THE GATES / THE CROWN) возродили проект DISINCARNATE. Оригинальный вокалист Bryan Cegon исполнит только партии бэк-вокала при записи. Мэрфи пришлось переехать во Флориду из Калифорнии где он работал с демо SKINLAB и несколькими проектами Shrapnel Records.</p>
+
+Автор: Yermola
+
+### 27.03.2001 news DISINCARNATE reformed...
+
+<p>Further to the news item that was posted here about the whereabouts of former TESTAMENT / DEATH / OBITUARY guitarist James Murphy, it now appears that he is in fact still attempting to enlist former AT THE GATES and current THE CROWN vocalist Tomas Lindberg to sing on the upcoming CD from the reformed DISINCARNATE, while former DISINCARNATE vocalist Bryan Cegon will reportedly only be contributing backing vocals during the album’s recording. Murphy has recently relocated to Florida after a lengthy stint in the California, where he tried his hand at production work, having worked on an early SKINLAB demo and several Shrapnel Records projects.</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Петерс Поп Шоу продолжается...
+
+<p>Бэй Ариа легенда Эрик Петерсон ("Testament") родил новый проект "DRAGONLORD". Уже достигнута договоренность со "Spitfire Records" на выпуск дебютника "Rapture" летом 2001. Эрику помогают братья по оружию: Jon Allen ("Sadus") - барабаны, Lyle Livingston ("Psypheria") - оркестровки, Steve Smyth ("Vicious Rumors") - соло гитара и сам Петерсон - вокал и ритм гитара. "Идея Dragonlord появилась у меня еще во время записи 'The Gathering' в 1998 году" - говорит Эрик. "Я кое что делал вместе с Дэйвом Ломбардо и ему очень понравился мой вокал. "Ты должен создать собственный проект!" - сказал он."</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Testament&#39;s Eric Peterson forges his own musical vision with DRAGONLORD
+
+<p>As the founding guitarist of Bay Area metal legends Testament, Eric Peterson has helped to keep the heavy metal flame burning for nearly two decades. Spitfire Records is proud to announce plans for Peterson's brand new project, DRAGONLORD. The bands debut album, "Rapture", is scheduled for a summer 2001 release.<BR><BR>Brought to life with comrades Jon Allen (Sadus) on drums, Lyle Livingston (Psypheria) on orchestrated keys of oblivion, Steve Smyth (Vicious Rumors) on lead guitar, Steve DiGiorgio (who needs no introduction) on fretless bass guitar and Peterson on vocals and rhythm/lead guitar, DRAGONLORD monolithically embraces classical and goth, while simultaneously dealing out some deathened blackness to provide controlled melodic insanity.<BR><BR>"Dragonlord was an idea I had floating around at about the time Testament was getting ready to record 'The Gathering' in mid 98," says Peterson. "I was playing some stuff for (drummer) Dave Lombardo and he was like 'dude that's you singing? You should do a project!' He kinda sparked the idea for me again. I wanted to do something more goth mixed with classical influences, more Euro sounding type stuff. I didn't want to lay that down on Testament since we got our knack back, so I decided to form Dragonlord. Now that the songs are born and I'm hearing them, they are exactly the way I pictured them! Beautifully eerie!"</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Заявление Steve DiGiorgio ....
+
+<p>Супер-пупер бассист Steve DiGiorgio (TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) опубликовал на своем сайте следующее заявление: "Альбом "ICED EARTH" - Horror Show готов и ждет своего релиза на Century Media в июне. Я больше не работаю в проекте SPASTIC INK (с гитаристом WATCHTOWER - Ron Jarzombek). Не спрашивайте почему... Запись нового СД CONTROL DENIED пока приостановлена из за проблем с графиком. Но многое уже сделано и вообще работа будет завершена в ближайшие месяцы. Также сейчас мы где-то посередине процесса записи альбома DRAGONLORD (почти все участники TESTAMENT кроме Чака). Барабаны и гитары уже записаны. В течении следующей недели я буду записывать басс (одновременно с клавишами). Сами TESTAMENT отказались от участия в шоу до выздоровления Чака. Также я и Darren сочиняем материал для нового альбома SADUS...."</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Steve DiGiorgio has posted the following update on his official site....
+
+<p>Bassist extraordinaire Steve DiGiorgio (i.e. TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) has posted the following update on his official web site: “The ICED EARTH album, Horror Show is done and awaiting a mid June release on Century Media. I am no longer working on [WATCHTOWER guitarist Ron Jarzombek’s] SPASTIC INK project... Don't ask. CONTROL DENIED's newest recording is still in limbo because of some weird scheduling problems. But some of it is done, and we'll be finishing it up in the coming months. We're right in the middle of the recording of DRAGONLORD [featuring TESTAMENT’s Eric Peterson on guitar/vocals, plus most of the remaining TESTAMENT members, minus vocalist Chuck]. Drums and most of the guitars are done. I'll be starting bass this week sharing time with Lyle's keyboards. TESTAMENT hasn't officially pulled out of the shows coming up at the end of May/early June [in Europe]. We're waiting on Chuck [Billy]'s word and condition. For those of you who don't know about what's befallen Chuck, you can read all about it on www.testamentlegions.com. Writing is still going on between me and Darren for the new SADUS album. Slowly, but slowly.”</p>
+
+Автор: Yermola
+
+### 24.04.2001 news TESTAMENT - духовное исцеление...
+
+<p>По сообщению официального сайта TESTAMENT - дела у Чака Билли в последнее время идут немного лучше. Сейчас Чак постоянно находится в кругу любящей семьи. Так же он встретился с экстрасенсом и сейчас занимается медитацией и позитивной визуализацией (...?). Чак чувствует себя лучше и передает благодарность фэнам за их письма с поддержкой.</p>
+
+Автор: Yermola
+
+### 24.04.2001 news TESTAMENT - Spiritual Healing.....
+
+<p>The following was posted at the TESTAMENT website, www.testamentlegions.com, on April 4th. &#8992;Hello! Just a little update to let you know that Chuck is doing well. He's been taking it easy and spending time with his loved ones. Chuck has also been meeting with a Spiritual Healer. He told me a little about it, and I was blown away - talk about some deep stuff! Part of Chuck's healing regimen consists of meditating and positive visualization. He's feeling great and sends his thanks to you fans for your wonderful messages! I will keep you up to date right here.„ </p>
+
+Автор: Yermola
+
+### 07.05.2001 news Концерт для Чака...
+
+<p>Walter Morgan и участники нескольких известных команд организуют концерт в поддержку вокалиста "TESTAMENT" - Chuck Billy в Сан-Франциско в начале Июля. Уже подтвердили свое участие: возрожденные LEGACY (pre-TESTAMENT) с Zetro Souza (vocals), Eric Peterson (guitars), Alex Skolnick (guitars), plus Steve DiGiorgio (bass), John Tempesta (drums) и Steve Smyth (guitars), возрожденные EXODUS в составе Bonded By Blood (с вокалистом Paul Baloff), VIO-LENCE reunion (без Robb Flynn; с Ray Vegas - гитара), SKINLAB, LAAZ ROCKIT, SADUS. Также ведутся переговоры с DEATH ANGEL, FORBIDDEN и MACHINE HEAD.</p>
+
+Автор: Yermola
+
+### 07.05.2001 news Upcoming benefit show for TESTAMENT vocalist Chuck Billy....
+
+<p>More information has surfaced regarding the upcoming benefit show for TESTAMENT vocalist Chuck Billy, who was recently diagnosed with cancer. According to benefit organizer and Chuck's roommate Walter Morgan, the following artists/musicians have agreed to take part in the event, which will be tentatively taking place in San Francisco, California during the first week of July: * LEGACY (pre-TESTAMENT) reunion, featuring Zetro Souza (vocals), Eric Peterson (guitars), Alex Skolnick (guitars), plus Steve DiGiorgio (bass), John Tempesta (drums) and Steve Smyth (guitars) * EXODUS reunion of Bonded By Blood line-up (feat. Paul Baloff on vocals) * VIO-LENCE reunion (minus Robb Flynn; with Ray Vegas on guitars) + SKINLAB, LAAZ ROCKIT reunion, SADUS. Other bands who have said 'Maybe', or haven't been contacted yet but are being approached include: DEATH ANGEL reunion, FORBIDDEN reunion, MACHINE HEAD. More info as it becomes available. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 19.07.2001 news First Strike Is Deadly....
+
+<p>По словам бассиста Steve DiGiorgio запись нового альбома "TESTAMENT" - "First Strike Is Deadly" пройдет с 27 июля 13 августа при участии самого Ди Джорджио (басс), Chuck Billy (вокал), Eric Peterson (гитара), Alex Skolnick (гитара) и John Tempesta (ROB ZOMBIE; барабаны). Опус будет содержать тринадцать переработанных треков из предыдущих альбомов: 01. Over The Wall 02. Into The Pit 03. The Haunting 04. Reign Of Terror 05. Burnt Offerings 06. First Strike Is Deadly 07. Alone In The Dark 08. C.O.T.L.O.D. 09. Disciples Of The Watch 10. Eerie Inhabitants 11. New Order 12. The Preacher 13. Trial By Fire. Продюссером/саунд-инженером "Первого Удара" будет Дуг Холл, который работал с "IRON MAIDEN" на концертах и записывал с "TESTAMENT" - Demonic 1997 года. Релиз ожидается в октябре.</p>
+
+Автор: Yermola
+
+### 19.07.2001 news TESTAMENT&#39;s upcoming collection of re-workings...
+
+<p>According to TESTAMENT/SADUS bassist Steve DiGiorgio, the recording process for TESTAMENT’s upcoming collection of re-workings of early original compositions, entitled First Strike Is Deadly, will begin during the two-week period between July 27th and August 13th, and it include the recording line-up of DiGiorgio (bass), Chuck Billy (vocals), Eric Peterson (guitars), Alex Skolnick (guitars), and John Tempesta (ROB ZOMBIE; drums). Thirteen songs will reportedly be tracked during the sessions, including six songs off 1997’s The Legacy and six songs off 1998’s New Order. The full track listing for the effort is as follows: 01. Over The Wall 02. Into The Pit 03. The Haunting 04. Reign Of Terror 05. Burnt Offerings 06. First Strike Is Deadly 07. Alone In The Dark 08. C.O.T.L.O.D. 09. Disciples Of The Watch 10. Eerie Inhabitants 11. New Order 12. The Preacher 13. Trial By Fire. First Strike Is Deadly will be co-produced/engineered by Doug Hall, who has worked with IRON MAIDEN as the band’s live sound engineer and who had previously collaborated with TESTAMENT on their 1997 Demonic CD. An October release is expected. In other DiGiorgio news, the bassist will be performing two sets during the upcoming Thrash Of The Titans benefit concert for TESTAMENT vocalist Chuck Billy, who was recently diagnosed with cancer. Due to take place at San Francisco’s Maritime Hall on Saturday, August 11th, the concert will see DiGiorgio taking the stage with SADUS and LEGACY (pre-TESTAMENT), with SADUS going on early (in the first- or second-act slot) and LEGACY featuring a rotating line-up that will include mainstays Eric Peterson (guitars) and Zetro Souza (ex-EXODUS; vocals) alongside Alex Skolnick (ex-TESTAMENT; guitars), Derek Ramirez (ex-TESTAMENT; bass), Jon Allen (SADUS, TESTAMENT; drums), John Tempesta (ROB ZOMBIE, ex-EXODUS, ex-TESTAMENT; drums), Paul Bostaph (SLAYER, ex-FORBIDDEN; drums), Louie Clemente (GALLERY OF SUICIDE, ex-TESTAMENT; drums), DiGiorgio and possibly Greg Christian (ex-TESTAMENT; bass). LEGACY will reportedly perform a host of songs based around TESTAMENT’s Legacy album, which was written while the group was still called LEGACY and when it featured Zetro Sousa on vocals (Sousa eventually quit to join EXODUS shortly before Legacy was recorded). And lastly, DiGiorgio has confirmed the rumors of an impending project involving himself, TESTAMENT vocalist Chuck Billy and SADUS guitarist Darren Travis. According to the Steve, the as-yet-unnamed band began its life as a Billy solo project late last year, but quickly evolved into more of a “group” entity once the three had started coming together to compose material. As a result, work on a new SADUS album has been on hold again while DiGiorgio and Travis “are enjoying a refreshing outlet to work on some ideas we had brewing”. Described as “a good mix of aggression, speed, heaviness, and new catchy parts - typical to all good metal offerings”, the new project hope to squeeze in the recording of its debut album between the aforementioned re-recordings of old TESTAMENT songs and the recordings sessions for the upcoming “proper” TESTAMENT album, which is not due to be released until sometime next year. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.08.2001 news Школьные новости ...
+
+<p>После долгого затишья дал о себе знать экс Тестаментовско/Саватажевский гитарист - Алекс Скольник. На днях он открыл собственный веб-сайт во всемирной паутине: <a href="http://www.alexskolnick.com/">http://www.alexskolnick.com/</a>. В ближайшее время Алекс примет участие в записи Тестаментовской коллекции ранних песен "First Strike Is Deadly", также он выступит в концерте "Thrash Of The Titans" который будет проводиться в пользу больного раком вокалиста Чака Билли. Скольник сыграет с командой "LEGACY" (предшественником TESTAMENT!). Также будет оригинальный вокалист Steve Sousa, после перешедший в "EXODUS". Если же вы живете поблизости от Нью-Йорка, вы сможете сегодня поймать Алекса с его джазовым составом "funky ‘70s jazz". Концерт пройдет в Triad Lounge (72nd Street и Broadway) New York City.</p>
+
+Автор: Yermola
+
+### 02.08.2001 news Alex Skolnick has launched an official...
+
+<p>Former TESTAMENT/SAVATAGE guitarist Alex Skolnick has launched an official web site at www.alexskolnick.com. As previously reported, the six-stringer will be partaking in the recording of TESTAMENT’s upcoming collection of reworkings of early originals, entitled First Strike Is Deadly and due in October. Skolnick will also be making an appearance at next week’s Thrash Of The Titans benefit concert for TESTAMENT vocalist Chuck Billy—who was recently diagnosed with cancer—where Alex will be performing with LEGACY, the band that preceded TESTAMENT and featured in its ranks vocalist Steve Sousa, who later left the group to join EXODUS. If you live in the New York area (where Skolnick is presently based), you can also catch the guitarist with his “funky ‘70s jazz” project SKOL PATROL at The Triad Lounge (formerly Dark Star) on Thursday, August 2nd. The Triad Lounge is located at 72nd Street and Broadway in New York City. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Это становится заразным...
+
+<p>Известный гитарист James Murphy (TESTAMENT/DEATH/OBITUARY) при медицинском обследовании получил диагноз "опухоль мозга" неопределенного типа и сейчас у себя дома во Флориде готовится к операции... До злополучного анализа Джэймс собирался активно заниматься работой со своим дэс металлическим проектом "DISINCARNATE"... <br><br> Да уж, климат у них что-ли такой?!?!</p>
+
+Автор: Yermola
+
+### 26.09.2001 news James Murphy has reportedly been diagnosed with...
+
+<p>Former TESTAMENT/DEATH/OBITUARY guitarist James Murphy has reportedly been diagnosed with an undisclosed type of brain tumor and is said to be at home in Florida recovering from a recent emergency operation that is believed to have successfully prevented the disease from progressing to a more advanced stage. At the time of Murphy’s diagnosis, the axeman was said to be working on the material for a long-awaited sophomore offering from his death metal project DISINCARNATE—also set to feature an appearance by former AT THE GATES and current THE CROWN frontman Tomas Lindberg—for a 2002 release through Nuclear Blast Records. It is presently unclear what impact this latest development will have on the guitarist’s future recording plans. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 15.10.2001 news TWO James Murphy benefits...
+
+<p>TWO benefits are set to go for James Murphy former guitarist of testament, death & obituary, who recently had a brain tumor removed. james has a good outlook on the situation but has been devastated financialy due to this tragedy. On nov. 16th @ The Hard Luck Saloon in sac. ca. Symphonice Metal Giants PSYPHERIA are hosting part one of this 2 day 2 city event, headlined by Psypheria, also on the bill are LD50 ( featuring former members of testament, forbidden evil & geezar ) kuru ( featuring ex eulogy member ) berkeley`s Mastema & misanthrop. And then on nov. 17th @ the Poundsf in san francisco ca. Dragonlord ( eric peterson`s side projest with members of psypheria, death, testament & sadus ) will headline with impaled supporting then technocracy ( phil demmel from vio-lence ) LD50, Imagica & berkeley`s Mastema opening that show also. To add insult to injury, concert promoter spoke with james and found out that before he left Oakland awhile back to go to florida where he know resides, someone stole and pilffered $30.000 worth of everything james owned, his guitars and additional recording equipment, many masters demos & collectibles he had saved. We`re just a bunch of crazy people out here in calif. that will do whatever it takes to help a brother when he is down, if someone would like to help, we have a bank account set up for james, you can contact scary gary ( thats me ) via my webiste and e-mail www.kidgloveentertainment.com - thank you.</p>
+
+Автор: Yermola
+
+### 30.10.2001 news Video footage of the reunited San Francisco Bay Area thrashers VIO-LENCE ...
+
+<p>Video footage of the reunited San Francisco Bay Area thrashers VIO-LENCE performing their tracks “Serial Killer” and “Officer Nice”, filmed at the Thrash Of The Titans benefit concert for TESTAMENT vocalist Chuck Billy back on August 11th, is now available for download from the following locations: <BR><BR> <A HREF="http://www.assistinvestigations.com/images/Serial.mpg">"Serial Killer"</A><BR> <A HREF="http://www.assistinvestigations.com/images/Officer.mpg">"Officer Nice" </A><BR><BR> Both of these cuts were shot and edited together by Jerry Allen and his Tales From The Pit crew, who filmed the entire show and are currently editing the remainder of the footage for possible release at a later date.</p>
+
+Автор: Yermola
+
+### 30.10.2001 news Новое видео VIO-LENCE...
+
+<p>Видео-съемку трэшеров "VIO-LENCE" снятую во время концерта "Thrash Of The Titans" 11-го Августа вы можете посмотреть здесь....<BR><BR> <A HREF="http://www.assistinvestigations.com/images/Serial.mpg">"Serial Killer"</A><BR> <A HREF="http://www.assistinvestigations.com/images/Officer.mpg">"Officer Nice" </A><BR><BR> Оба трека были сняты Jerry Allen и его командой работающей над "Байками из склепа"...</p>
+
+Автор: Yermola
+
+### 31.10.2001 news Раковые клетки продолжают косить ряды металлистов...
+
+<p>Chuck Billy, вокалист Testament, в начале октября был прооперирован по поводу онкологического заболевания. Врачи смогли удалить только 90% опухоли из-за её близости к жизненноважным органам. В дальнейшем Чаку предстоит сеанс химиотерапии. И когда эта напасть закончится?!</p>
+
+Автор: Odiumaniac
+
+### 21.11.2001 news Новый сайт Джэймса Мэрфи...
+
+<p>Ныне болеющий той же Флоридской болезнью рок-музыкантов James Murphy (TESTAMENT/DEATH/OBITUARY), что и Шульдинер и Чак Билли, так же как и они нуждается в помощи. Более подробно вы можете прочитать обо всем на новом сайте <A HREF="http://www.msanthrope.com/jamesmurphy/">гитариста...</A></p>
+
+Автор: Yermola
+
+### 21.11.2001 news James Murphy needs your help...
+
+<p>Former TESTAMENT/DEATH/OBITUARY guitarist James Murphy needs your help. After being diagnosed with a benign brain tumor back in August, James is presently undergoing treatment in Lakeland, Florida and is in desperate need of donations to help him out with medical expenses. More information can be obtained through Murphy’s newly-launched official web site at: <A HREF="http://www.msanthrope.com/jamesmurphy/">http://www.msanthrope.com/jamesmurphy/</A></p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 05.03.2002 news Пол Бостаф стал новым барабанщиком SYSTEMATIC....
+
+<p>Бывший участник "SLAYER", а также "FORBIDDEN" и "TESTAMENT" - Paul Bostaph официально присоединился к бэй-ариа трэшерам "SYSTEMATIC". Бостаф стал заменой ушедшему Shaun Bannon, который повредил руку на съемках видео "Deep Colors Bleed"....</p>
+
+Автор: Yermola
+
+### 05.03.2002 news Former SLAYER Drummer Officially Joins SYSTEMATIC....
+
+<p>Former SLAYER drummer Paul Bostaph has officially joined San Francisco Bay Area's SYSTEMATIC. As exclusively reported here on January 4th, Bostaph (who had also played with FORBIDDEN and TESTAMENT) has joined SYSTEMATIC as a replacement for Shaun Bannon, who was forced to leave the group last summer after sustaining an arm injury during the making of the "Deep Colors Bleed" video.<BR> <BR> Bostaph is no stranger to the SYSTEMATIC guys, having played with the latter band's guitarist Adam Ruppell in a previous project prior to re-joining SLAYER in 1996. Paul, who has reportedly chopped off most of his long hair, played his first gig as a member of SYSTEMATIC on New Year's Eve (December 31st) in Modesto, California at a show sponsored by local rock station KMRQ (Rock 96.7).<BR><BR> Here is an update on the band's activities, as posted by Ruppel: <BR><BR> “Hey Kids,<BR><BR> “Just writing to keep everyone up to date with what's going on. First and foremost, the band is writing our asses off. Our goal is to have thirty songs to choose from to make the next album. So far the material is great. If I can say anything about it, it's that it's SYSTEMATIC, but a lot more focused. I say that because the band is now more focused than ever, but I guess a year and a half on the road will do that to you. We are looking at getting into the studio sometime in March, and as a promise to our fans, we will make a great record for us, you and no one else. There is a lot to look forward to in the world of SYSTEMATIC.<BR><BR> We are also proud to say that SYSTEMATIC finally have a drummer. Old family member Paul Bostaph, who was with us in the beginning, is now back and putting an end to our search for a drummer. Paul is a great guy and an amazing drummer, so SYSTEMATIC fans have a lot to look forward to. We would also like to say thanks to Larry 'the kid' Horn for filling in and doing a great job. Larry is family now and we wish him the best, he deserves it. I also wanted to let everyone know that Larry got ripped off the picture in Metal Edge is Larry and not Shaun.<BR><BR> “In not so positive news, long time friend and bassist, Nick St. Dennis has departed ways with SYSTEMATIC. Nick will be moving on to pursue guitar playing. Nick, who was originally a guitarist, joined SYSTEMATIC playing the bass. As every guitar player out there knows, it's a hard thing to set your true desires aside. We do thank Nick for doing the job he did and for being a part of the family. We all know that family is family and we will always be bound together, offering helping hands to each other at any point. We would all like to wish Nick the very best in music and in life. Go get em' brother!! <BR><BR> “Let's all look forward to the future and as promised SYSTEMATIC will deliver. Stay up to date on our website and we will make sure we keep you all posted on things to come! <BR><BR> “Adam R.— SYSTEMATIC”</p>
+
+Автор: Yermola
+
+### 26.03.2002 reviews Трэш, твою мать...
+
+<p>Великолепный подарок фэнам заслуженного коллектива. На данном релизе нашему вниманию представлены композиции с первых двух альбомов группы в перезаписанном варианте. Если раньше эти композиции вызывали интерес лишь с композиционной точки зрения, то сейчас вы имеете возможность получить полное удовлетворение и от звука. Великолепный трэш. Зубодробительные риффы, завораживающие соло, разнообразный вокал... Что уж тут рассказывать... Особенно можно порекомендовать тем, кто не имеет в коллекции первых альбомов. Супер, Супер, Супер!</p>
+
+Автор: Vit Belov
+
+### 29.03.2002 reviews F*** Thrash!!!
+
+<p>Magnificent gift to fans of the deserved collective. On given release the compositions from the first two first albums of group in the rewritten variant are submitted to our attention. If earlier these compositions caused interest, only from the composite point of view, now you have an opportunity to receive complete satisfaction and from a sound. Magnificent thrash. Toothbroken riffes, bewitching solo, various vocal... What here to tell... It is especially possible to recommend to the one who has no in a collection of the first albums. Super, Super, Super....</p>
+
+Автор: Vit Belov
+
+### 29.03.2002 reviews Трэш-ностальгия
+
+<p>Единственное объяснение, обвинение и оправдание этому альбому – ностальгия. TESTAMENT, трэш-профессионалы и одни из столпов жанра, решили переиграть свою классику с современным звуком. В целом получилось удачно. Первые хиты группы, скорострельные трэшевые боевики, звучат по-прежнему убийственно, что и отражено в названии. Интересно, что все песни остались нетронутыми с точки зрения аранжировки – даже те фрагменты, что сегодня звучат наивно, музыканты оставили без малейших изменений. Зато многократно выиграли агрессия и напор.</p>
+<p>И все же придраться есть к чему – порой кажется, что с ностальгией TESATAMENT хватают лишку. Практически тот же набор песен группа продемонстрировала на концертниках "Return to the Apocalyptic City" 1993 года и "Live At The Fillmore" 1995-го. И теперь вот – снова то же самое, только в студийной версии, словно после 1988 года группа ничего достойного не создала. Для записи двух вещей ("Alone In The Dark" и "Reign Of Terror") ребята пригласили даже Стива "Зетро" Сузу – некогда он пел в TESTAMENT (собственно, Стив – соавтор этих песен), но прославился в другой трэш-легенде, EXODUS. Результат сотрудничества оказался достаточно спорным – все-таки голос двухметрового индейца Чака Билли стал фирменным знаком группы, а "Alone In The Dark" в исполнении Стива звучит скушновато. </p>
+<p>Еще один вопрос – к чему все это? Ну, понятное дело, та же ностальгия заставила вернутся (но только ради этого альбома!) мастера красивых соло, ныне джазмена Алекса Сколника, Эрик Петерсон и Чак Билли, креативный мотор группы, просто в восторге от новых европейских блэк-дэс-групп, энтузиазма выше крыши, но… В принципе, предыдущий диск группы, "The Gathering" 1999 года, с совершенно свежими песнями звучит точно также, а сам материал все-таки на порядок сильнее – как никак десять лет разницы плюс накопленные опыт и мастерство.</p>
+<p>Получается, что особого смысла в этом альбоме и нет. Возможно, это попытка напомнить и старым фэнам о своем существовании, и показать молодежи корни металла? Как бы то ни было, получилось более чем достойно. Но, скорее всего, только старые фэны это и оценят. Правда, в комментариях к записи и сами TESTAMENT отмечают, что это запись прежде всего для них. Так что все честно.</p>
+
+Автор: Tornado
+
+### 17.05.2002 news JAMES MURPHY BENEFIT SHOW 2002....
+
+<P>JAMES MURPHY BENEFIT SHOW 2002-INDIANAPOLIS, AT-EMERSON THEATER </P></>
+<P>FOR FOR TICKETS CALL ABYSS RECORDS!!! CASH ONLY!!!! </P></>
+<P> </P></>
+<P>THIS SUNDAY - MAY 19TH: DeathMetalFest 2002 </P></>
+<P>-A Benefit For James Murphy- </P></>
+<P>SPECIAL GUEST: JAMES MURPHY will be SIGNING AUTOGRAPHS at 11 A.M. at Abyss Records </P></>
+<P> </P></>
+<P>12:00-12:30 BLOKHED (IN) </P></>
+<P>12:45-1:15 RUNE (OH) </P></>
+<P>1:30-2:00 INPIECES (IL) </P></>
+<P>2:15-2:45 FREEK (PA) </P></>
+<P>3:00-3:30 SUMMER DYING (MI) </P></>
+<P>3:45-4:15 REPROBATION (IL) </P></>
+<P>4:30-5:00 SOULLESS (OH) </P></>
+<P>5:15-5:45 DWELLING MADNESS (MD) Ex-PESSIMIST Members </P></>
+<P>6:00-6:30 SKULLVIEW (IN) </P></>
+<P>6:45-7:15 DEAD OF NIGHT (OH) </P></>
+<P>7:30-8:00 FLESHGRIND (IL) </P></>
+<P>8:15-8:45 SERBERUS (CO) </P></>
+<P>9:00-9:30 SUMMON (MI) </P></>
+<P>9:45-10:15 GORGASM (IL) </P></>
+<P>10:30-11:00 CORPSEVOMIT (IL) </P></>
+<P> </P></>
+<P>15 BANDS!!!! ALL AGES!!!! </P></>
+<P>DOORS 11 A.M. STARTS NOON - TICKETS $20 ADV. or D.O.S. </P></>
+<P>TICKETS ON SALE NOW!!! </P></>
+<P>ABYSS RECORDS (317) 353-2460 </P></>
+<P>VIBES MUSIC (317) 576-0404 </P></>
+<P>EMERSON THEATER, 4630 E 10th St. Indianapolis, IN 46201 </P></>
+<P> </P></>
+<P>SPONSERS: CENTURY MEDIA FAMILY (CA), METAL MANIACS </P></>
+<P>ONLINE (www.metalmaniacs.com), GUITAR CENTER-(N. OLMSTED, </P></>
+<P>OH), GUITAR CENTER-(INDIANAPOLIS, IN), RAVEN RECORDS (IL), </P></>
+<P>MUSIC'S BOTTOM LINE-(TWINSBURG, OH), NUVO WEEKLY (IN), </P></>
+<P>WFBQ 94.7 F.M.-(INDIANAPOLIS, IN), SIGNAGE PLUS GRAPHICS </P></>
+<P>(IN), VIBES MUSIC (IN), LEIGH MARINO-FLYERS/POSTERS (IN), </P></>
+<P>& PUCCHINI'S-PIZZA&PASTA (INDIANAPOLIS, IN). </P></>
+<P> </P></>
+<P>WIN!!!! AUTOGRAPHED IBANEZ-RG 470 </P></>
+<P>GUITAR!!!! </P></>
+<P>AUTOGRAPHED by JAMES MURPHY </P></>
+<P>FREE-ENTRY TO WIN GUITAR WITH EACH TICKET </P></>
+<P>PURCHASED, GOOD LUCK!!!! </P></>
+
+Автор: Yermola
+
+### 13.06.2002 news NEVERMORE взяли гитариста TESTAMENT ....
+
+<p>"NEVERMORE" взяли в состав гитариста "TESTAMENT" - Steve Smyth (также в DRAGONLORD) в качестве временной замены Curran Murphy который вынужденно оставил группу и присоединился к ANNIHILATOR....</p>
+
+Автор: Yermola
+
+### 13.06.2002 news It&#39;s Official: TESTAMENT&#39;s STEVE SMYTH Joins NEVERMORE .....
+
+<p>NEVERMORE have officially recruited TESTAMENT guitarist Steve Smyth (also in DRAGONLORD) as a temporary replacement for former touring axeman Curran Murphy, who left the group in order to join Canada's ANNIHILATOR and continue work on his own AGGRESSION CORE project. <BR><BR> Here is NEVERMORE's official statement on the matter:<BR><BR> "We just want to clear up some confusion regarding Steve Smyth's involvement with us. He hasn't left TESTAMENT or DRAGONLORD to join NEVERMORE. He's just helping us out with these upcoming European festivals and US Warped tour dates. We need two guitars players live, so when our previous touring guitarist got himself a full-time gig, we immediately asked Steve. He'd always come out and see us play when we were in town. We'd do the same when he'd come through Seattle. He's really been a great friend of ours for years and we're lucky to get to do some shows with him now. We need to send out special thanks to [TESTAMENT vocalist] Chuck [Billy] and [guitarist] Eric [Peterson] for their support in this and allowing Steve to help us out."<BR><BR> Smyth added: "I've always been a NEVERMORE fan and look forward to playing with them. I want to thank Chuck, Eric, Stevie D, Jon and Lyle for all their support."<BR><BR> Steve will be accompanying NEVERMORE on the following dates: <BR><BR> Jun. 28-29 – Balingen, GER @ Bang Your Head<BR> Jul. 01-03 – Athens, GRE @ Athens Rock Wave<BR> July 20, 2002 - Quincy, WA @ Gorge Amphitheatre<BR> July 22, 2002 - Billings, MT @ Oscar Park Amph.<BR> July 23, 2002 - Fargo, ND @ Fargodome</p>
+
+Автор: Yermola
+
+### 28.03.2003 news Former TESTAMENT Guitarist Keeps Busy Despite Medicine ...
+
+<p>Former TESTAMENT/DEATH guitarist James Murphy, who is currently receiving treatment for a massive brain tumor with which he was diagnosed in August 2001, has sent us the following update on his recent activities: <BR><BR> "I am home after over 3 months in NY, where I was meant to run a studio for a friend of mine. I did take over the day-to-day operation of the studio and all was well on that front except that I never had much time to work on my DISINCARNATE material. That's just one of the unfortunate realities of doing business sometimes. I ultimately decided that the best place for me to be able to complete that writing was here in Florida, in my own environment, with no other responsibilities over my head, and where I wasn't intruding on others' space, time, and resources. Besides those reasons, and more importantly, I was having trouble to get my medicine in NY. I had bought a few months supply with the generous donations from my fans who have helped me but I ran out of both my prescriptions while up there, and I am still out now. i hope to be able to get more very soon, and in fact it's very, very important that I find some way to do so because stopping the use of Parlodel, my primary medication, can lead to rapid regrowth of the tumor. Anyway, everything was left on good terms in NY and the door is open for me to return to do more work in the studio. in fact i may return briefly shortly after I can get some more medicine in order to perform some more guitar (I have already recorded several rhythm/harmony parts) on the upcoming debut release of HAVOCHATE, should they decide they need more parts from me, and/or any production assistance.<BR><BR> "The last job i completed before returning home was to mix and master the upcoming debut release on Crash, Inc./Pavement Records of the band SINGLE BULLET THEORY from Pennsylvania. It came out great despite me having limited time to do it and will be out fairly soon.<BR><BR> "These guys' music struck a chord in me right off the bat, and I was very happy to be able to mix their album but it almost didn't happen... because of the problems re-filling my medicine in NY, and it looked like I would have to return to FL before I would have a chance to do the mix. Luckily, at the last minute I was able to stay longer but I had lost a lot of time and had to really knuckle down to get the job done. It was long, long hours but it didn't seem like work... it was just fun, as it always is for me when I enjoy a band's music. Matt and the other guys in SBT showed a lot of faith in me, only the second band to do so since my recovery from a life threatening illness and surgery, when they could have gone to a bigger studio. I am so happy to know that they are so pleased with the results I got for them."</p>
+
+Автор: Yermola
+
+### 06.06.2003 articles Metal Gods Tour 2003 &#x3D; Long Live Rock&#39;N&#39;Roll
+
+<p><i>Отмены туров, концертов… Как это всё знакомо нам! Наибольший резонанс вызывают отмены крупных концертов. Например, наш любимый Long live Rock’n’Roll в Москве. В прошлом месяце подобная ситуация возникла в США!</i></p>
+<p>Главным организатором Metal Gods Tour (такое же пафосное название) выступил менеджемент «голоса heavy-metal» Роба Хэлфорда. Намечалось нечто грандиозное, как говориться, наш ответ Ozzfest. Были приглашены, кроме HALFORD, TESTAMENT, IMMORTAL, PRIMAL FEAR, CARNAL FORGE и AMON AMARTH. Великолепный набор групп с двух континентов и практически из всех жанров классического METAL. Но после всего семи шоу, всё неожиданно закончилось 2 мая. Музыканты были срочно отправлены по домам, без всякой надежды вернуться. Интересно узнать, кто виноват в данном событии, которое, не побоюсь этого слова, потрясло североамериканскую металлическую тусовку.</p>
+<p> <b>(3 мая)</b> Джон Бакстер (менеджер Хэлфорда): «<b>Существует единственный виновник крушения нашего турне. Агентство Universal Attraction было просто не в курсе, чем занимались его работники в течение последней недели. Смысл этого, в конце концов, дошёл до меня во время начавшейся трассы. Мне приходилось работать очень напряжённо, чтобы решить все возникающие проблемы. Любой лэйбл или менеджер поймёт, что невозможно решить все проблемы уже во время события, но я старался… Я начал работать над этим туром ещё в прошлом сентябре, это был мой ребёнок…</b>» <br> Позже упоминались какие-то «контрактные сложности», которые не позволили продолжить выступления. Практически на следующий день после отмены шоу TESTAMENT и HALFORD выдвинули предложение наверстать упущенное в июне/июле.</p>
+<p> <b>(4 мая)</b> Дж. Бакстер: «<b>Я и менеджмент TESTAMENT договорились провести тур в июне/июле в усечённом составе. Мы постараемся охватить все города, но это не очень легко, так как надо обновлять договорённости по клубам для выступления</b>».<br> <IMG SRC="/images/articles_rus/2003.06/4394.jpg" ALT="pho" width=225 height=169 hspace="15" vspace="5" border="1" align="left">Фил Арнольд (менеджер TESTAMENT): «<b>Слухи, слухи, слухи… Самое главное, что никто сейчас не может сказать, отчего отменили тур. Даже я, как участник событий, не могу в точности объяснить происходящее. Никто не имея полной информации, не может сообщить ничего кроме слухов. Единственно, что точно ясно, что TESTAMENT отыграли несколько концертов, и они были великолепны. За ответами нам всем следует обратиться к UNIVERSAL ATTRACTION INC. и METAL GODS INC.</b>»<br> Кстати, действительно ходило много слухов. Доходило даже до предположения, что во всём виновата атипичная пневмония (SARS).</p>
+<p> <b>(8 мая)</b> Дж. Бакстер: «<b>Главный менеджер Universal Attraction Джефф Аллен сообщил мне, что его подчинённый агент Томас Паскуаль перезаключил некоторые контракты без нашего участия, чем подорвал наше финансовое положение. Простыми словами, мы были вынуждены предложить группам работать за меньший гонорар. Они отказались, так как для них оказалось важнее собственное финансовое благополучие, а не благополучие Metal Gods Tour. В итоге <i>Я</i> прекратил этот тур</b>»</p>
+<p>. <b>(9 мая)</b> Домой наконец доехала группа PRIMAL FEAR. <br> <IMG SRC="/images/articles_rus/2003.06/4395.jpg" ALT="pho" width=150 height=225 hspace="15" vspace="5" border="1" align="right">PRIMAL FEAR: «<b>Мы потратили очень много денег, но главное это не деньги, а то, что мы потеряли всякое желание иметь дело с бизнесменами в США. В первую очередь мы хотим отметить, что не хотим снимать ответственности ни с Universal Attraction, ни с Metal Gods Tour (менеджмент Хэлфорда). Расследование продолжится, но это не изменит положения вещей. Нам надоели извинения. Мы, например, слышали, что отмени Хэлфорд лишь один из трёх своих ночных автобусов, тур можно было бы сохранить. Ещё одно, мы анонсируем наши даты в Европе за четыре месяца, здесь же турне не было спланировано и в два раза меньшие сроки. Кстати, Delta Airlines требовала с каждого из нас по 2000 долларов за то, чтобы вылететь в Германию из Нью-Йорка, где всё закончилось, вместо Далласа, где всё должно было закончиться</b>». <br> Кстати, Primal Fear отменили свой концерт 17 апреля в Германии, чтобы попасть на этот тур… А в это время фэны в сети уже предлагают назвать тур Little Babies of Metal Tour 2003. Группа Роба Хэлфорда, состоящая из пяти человек, передвигалась по стране на трёх автобусах, в каждом из которых обычно спят по 18-20 человек. Также говорят, что у группы был ещё один, специально для их оборудования. Не удивительно, что тур прогорел…</p>
+<p> <b>(24 мая)</b> Ну и, в конце концов, тур перенесли на осень. При чём HALFORD, скорее всего в нём участия не примет.<br> Дж. Бакстер: «<b>Наше новое агентство сообщило нам, что вынуждено перенести тур на cентябрь/октябрь, но это слишком поздно для нас. Нам надо записывать новый альбом, кроме того, у нас намечались туры по Южной Америке, Азии и Австралии</b>».</p>
+<p> Вам это всё ничего не напоминает? Должно быть, известная нам личность переехала в США и стала там менеджером Роба Хэлфорда. Американцы так сильно возмущены происходящим, но если их окунуть в нашу действительность, где пять стоящих концертов в год, да и то половину отменяют… Ну, ничего… Билеты в Питер уже куплены, будем смотреть финнов.</p>
+
+Автор: Vit Belov
+
+### 18.09.2003 news TESTAMENT работают над новым альбомом
+
+TESTAMENT работают над новым альбомом. Вот, что сообщает Steve DiGiorgio: "<B>У нас не запланировано никаких туров в ближайшие месяцы, и мы можем сконцентрироваться на новом альбоме. Eric (Peterson, guitars) уже передал Chuck (Billy, vocals) плёнку с песнями, и Чак пишет тексты в данный момент. Всё ещё на начальной стадии, но я могу сказать, что альбом будет в стиле "The Gathering". Мы нацелились на релиз в начале 2004 года." </B>Касаемо своей работы в DRAGONLORD&nbsp;Steve сказал: "<B>У них будет новый материал, но я уже не являюсь членом группы. TESTAMENT - мой приоритет, и времени на DRAGONLORD просто нет</B>."
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 25.02.2004 news Paul Bostaph присоединился к TESTAMENT
+
+Барабанщик <B>Paul Bostaph (SLAYER, FORBIDDEN)</B> присоединился к <B>TESTAMENT</B>. В настоящий момент группа состоит, кроме него,&nbsp;из <B>Chuck Billy (v), Eric Peterson (g), Steve Smyth (g)&nbsp;</B>и<B> Steve DiGiorgio (b). </B><BR>
+Автор: Vit Belov
+
+### 25.02.2004 news Paul Bostaph in TESTAMENT!!!
+
+<B>Paul Bostaph (ex-SLAYER)</B> has beame new drummer of <B>TESTAMENT</B>.
+Автор: Vit Belov
+
+### 30.03.2004 news Лечение опухоли при помощи трибьюта  DEATH
+
+На прошлой неделе свой вклад в трибьют альбом группе <B>DEATH</B> под названием <B>"Within The Mind - In Homage To The Musical Legacy Of Chuck Schuldiner" </B>внесли <B>Matt Thompson </B>из <B>KING DIAMOND </B>(барабаны) и <B>Mark Hunter </B>of <B>CHIMAIRA</B> (вокал). <BR><BR>Проект трибьюта был запущен Дероном Миллером (<B>Deron Miller </B>(гитара/вокал <B>CKY</B>) с целью помочь в сборе денег на оплату счетов за лечение обширной опухоли мозга [которую диагносцировали в 2001-ом году ] у <B>James Murphy </B>(ex-<B>TESTAMENT</B>, <B>DEATH</B>, <B>OBITUARY</B>). В записи альбома кроме Миллера и Мёрфи примут участие следующие гости: <B>Richard Christy </B>(<B>ICED EARTH</B>, ex-<B>DEATH</B>, <B>CONTROL DENIED</B>), <B>Thompson Matt DiFabio</B> (ex-<B>PISSING RAZORS</B>, <B>SINGLE BULLET THEORY</B>), <B>Dave Culross </B>(<B>MALEVOLENT CREATION</B>, <B>SUFFOCATION</B>), <B>Luc Lemay </B>(<B>GORGUTS</B>), <B>Patrick Mameli </B>(ex-<B>PESTILENCE</B>), <B>Nick Barker</B> (ex-<B>CRADLE OF FILTH</B>, <B>DIMMU BORGIR</B>), <B>Jean-Francois Dagenais</B> (<B>KATAKLYSM</B>), <B>Mikael Thomson </B>(<B>SLIPKNOT</B>), <B>Paul Gray </B>(<B>SLIPKNOT</B>), <B>Brett Hoffmann </B>(ex-<B>MALEVOLENT CREATION</B>), <B>Ross Dolan </B>(<B>IMMOLATION</B>), <B>Mike Chlasciak </B>(<B>PAINMUSEUM</B>, ex-<B>HALFORD</B>) и <B>Terry Butler </B>(<B>SIX FEET UNDER</B>, ex-<B>DEATH</B>, <B>MASSACRE</B>). <BR>К этому внушительному списку возможно добавятся и другие музыканты, если им позволит гастрольный календарь. Вот они: <B>Peter T&#228;gtgren </B>(<B>HYPOCRISY</B>, <B>PAIN</B>), <B>Chuck Billy </B>(<B>TESTAMENT</B>), <B>Eric Peterson </B>(<B>TESTAMENT</B>, <B>DRAGONLORD</B>), <B>Andy LaRocque </B>(<B>KING DIAMOND</B>), а также <B>Ryan</B> и <B>Chad</B> из <B>MUDVAYNE</B>. <BR><BR>Релиз альбома намечен на это лето в голландском отделении <B>Mascot Records</B>
+Автор: Omon Ra
+
+### 20.04.2004 news TESTAMENT расстались со Steve Smyth
+
+<B>TESTAMENT</B> покинул гитарист <B>Steve Smyth</B>. Группа начала поиск нового музыканта. Сообщается, что первым в списке кандидатов значится <B>"Metal" Mike Chlasciak</B>&nbsp;(<B>ex-HALFORD</B>).
+Автор: Vit Belov
+
+### 18.02.2005 news Еще одно воссоединение
+
+<P>Музыканты<STRONG> TESTAMENT</STRONG> анонсировали европейский реюнион-тур, в который отправится следующий состав: вокалист&nbsp;<STRONG>Chuck Billy, </STRONG>гитаристы <STRONG>Eric Peterson</STRONG> и<STRONG> Alex Skolnick</STRONG>, басист <B>Greg Christian</B> (<B>HAVOCHATE</B>) и ударник <B>Johnny Tempesta</B> (<B>HELMET</B>, ex-<B>ROB ZOMBIE</B>). Он начнется 7 мая и закончится 15 мая. Планируется дать девять концертов. К сожалению, у многих музыкантов свои группы, проекты и записи, поэтому время тура настолько ограничено. Музыканты счастливы, что спустя столько лет, их поклонники снова увидят всех вместе.&nbsp;</P>
+Автор: Dimas
+
+### 26.02.2005 articles Alex Skolnik: &quot;С нетерпением жду re-union TESTAMENT&quot;.
+
+<P><IMG height=456 alt="" hspace=0 src="/images/articles_rus/2005.02/7993.jpg" width=300 align=left border=5>На прошлой неделе появилось сообщение о воссоединении TESTAMENT в классическом составе для небольшого тура. Главное неожиданностью стало появление в составе трэшеров Alex Skolinik, который не очень хорошо покинул коллектив в своё время, а сейчас занимается музыкой малосвязанной с металлом. Интервью с ним опубликовал сайт Blasting-Zone.com</P>
+<P>Blasting-Zone: Как ты можешь охарактеризовать свои отношения с бывшими коллегами в настоящее время?</P>
+<P>«Они хорошие… Каждый раз, когда ребята появляются в городе, мы встречаемся. Только Chuck Billy и Eric Peterson остались от оригинального состава. Оригинальный барабанщик Louie Clemente живёт сейчас на Лонг-Айленде, и мы иногда хорошо проводим время вместе. Басиста Greg Christian я в первый раз увидел несколько месяцев назад. У него новая группа HAVOCHATE. Пожелаем ему удачи!»</P>
+<P>Blasting-Zone: «Радует, что Ваши отношения такие, но когда Вы покидали TESTAMENT, дела были не столь радужны?»</P>
+<P>«Точно… Мне кажется, теперь я понял, почему они были так расстроены, и почему им было так сложно понять. В тоже время, они выросли, чтобы понять мою точку зрения в этом вопросе. Никто теперь не желает никому плохого. Просто мы не могли работать вместе. Даже если бы я остался в heavy-metal, я не уверен, что мы смогли бы, по крайней в то время. Подобное случается с группами любого уровня… подобное случается с человеческими отношениями любого уровня».</P>
+<P>Blasting-Zone: «Для меня это звучит так, что вам был необходим перерыв в отношениях».</P>
+<P>«Да… Также тогда было очень тяжёлое время для музыкальной индустрии. Неожиданно мы были оттеснены в тень альтернативными коллективами. Поначалу, мы приняли NIRVANA за наших друзей. Эта агрессивная, тяжёлая музыка играла по всем мейнстрим радиостанциям, мы думали, что выиграем от этого».</P>
+<P>Blasting-Zone: «Каковы причины Вашего предыдущего ре-юниона для записи «First Dtrike Still Deadly»?»</P>
+<P>«Chuck Billy заболел раком… Бог благословил его, ему стало много лучше, похоже, он прошёл через это. Это объединило нас и многих других людей металл-сообщества вместе. Мы все сплотились за спиной Chuck. Мы провели благотворительный концерт в его честь под названием ‘Thrash Of Titans’ в Сан-Франциско в 2001 году. Много старых групп выступили вместе: S.O.D., EXODUS (это было одно из последних выступлений Paul Baloff с группой), ANTHRAX. Это был великолепный момент. В то время TESTAMENT работали над переозвучанием песен с первых двух альбомов. Это было, как дань Chuck. Мы здорово поработали вместе, было классно, вернуться к этой музыке и дать ей более современное звучание».</P>
+<P>А здесь последнее заявление Alex Skolnik для прессы, которое непосредственно касается ре-юнион TESTAMENT в составе Alex Skolnik, Eric Peterson, Greg Christian, Chuck Billy... За барабанами будет Johnny Tempesta.&nbsp; </P>
+<P>«С глубоким воодушевлением и удовлетворением я анонсирую своё участие в ре-юнион туре TESTAMENT. Это означает, что мы все нашли точки соприкосновения, как на музыкальном уровне, так и на личностном. Настало время вернуться к тому, что начиналось около 20 лет назад. TESTAMENT всегда был и останется частью меня. Всё, что я сейчас делаю, стало возможно, благодаря моему участию в TESTAMENT. Я этого никогда не забуду, верят мне или нет. Как моя соло-карьера никогда не была заменой TESTAMENT, так и наше нынешнее воссоединение не станет заменой моей соло-карьере. Годы назад, моё сердце предложило мне услышать мой голос. И сейчас я нашёл то, что искал. Настало время окунуться обратно в TESTAMENT и получить от этого удовольствие. </P>
+<P>Конечно, это событие порождает вопросы. Что это означает? Будут ли ещё туры? Запись альбома? Честно говоря, мы не знаем чётко. И было бы нечестным отвечать на эти вопросы сейчас. Посмотрим, как пойдут дела. Чему я научился, так это тому, что не надо думать о том, что случится или могло бы случиться, нужно жить тем, что происходит сейчас. А сейчас я с нетерпением жду момент, когда снова сыграю музыку с этими парнями».&nbsp;&nbsp;&nbsp; </P>
+Автор: Vit Belov
+
+### 26.02.2006 news DECAPITATED выступят на Metal Camp Festival
+
+<P>Польские мастера дэт-метала <B>DECAPITATED</B>&nbsp;выступят 22 июля на фестивале <B>Metal Camp Festival</B>, который пройдет в Словении, в городе Толмин, с 21 по 23 июля. Об участии в этом музыкальном празднике также заявили такие монстры, как <B>DIMMU BORGIR, SAXON, TESTAMENT, AMON AMARTH, MY DYING BRIDE, HYPOCRISY, EDGUY, GOREFEST</B>.</P>
+<P>Подробности смотрите на: <A href="http://www.metalcamp.com/"><U>http://www.metalcamp.com/</U></A></P>
+Автор: Ixtiandr
+
+### 14.03.2007 news TESTAMENT выступят в России
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё одна легенда посетит Россию. Американские "трэшеры" <STRONG>TESTAMENT </STRONG>дадут три концерта:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>3 июля - Воронеж</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>4 июля - Саратов</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>5 июля - Москва</FONT></P>
+Автор: Vit Belov
+
+### 30.06.2007 news TESTAMENT на Nuclear Blast!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ветераны thrash-metal <STRONG>TESTAMENT</STRONG> подписали контракт с<STRONG> Nuclear Blast</STRONG>. Группа войдёт в студию в конце лета - начале осени, где запишет свой долгожданный новый альбом в "золотом" составе. Пластинка планируется к выходу в марте 2008 года. </FONT></P>
+Автор: Vit Belov
+
+### 16.11.2007 news TESTAMENT назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>TESTAMENT</STRONG>, выходящий в 2008 году на <STRONG>Nuclear Blast</STRONG>, будет называться <STRONG>"The Formation of Damnation". </STRONG>В настоящее время вернувшийся в группу барабанщик <STRONG>Paul Bostaph </STRONG>записывает свои партии в <STRONG>Fantasy Studios</STRONG>&nbsp;с продюсером <STRONG>Andy Sneap</STRONG> (<B>MACHINE HEAD</B>, <B>EXODUS</B>, <B>ARCH ENEMY</B>, <B>NEVERMORE</B>).</FONT></P>
+Автор: Vit Belov
+
+### 08.02.2008 news TESTAMENT в России?
+
+<P><STRONG>TESTAMENT </STRONG>опять анонсировали две даты в России. По планам группы, концерты состоятся в клубе "Тень" в Москве 1 июня,&nbsp;и 3 июня&nbsp;в клубе "Порт" в СПб.</P>
+Автор: Vit Belov
+
+### 20.02.2008 news Новый альбом TESTAMENT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=322 alt="" hspace=0 src="/images/news_rus/2008.02/12272.jpg" width=360 align=right border=5>Новый альбом<STRONG> TESTAMENT</STRONG> "<STRONG>The Formation Of Damnation</STRONG>" выходит весной. Стал известен трэк-лист этого альбома:</FONT></P>
+<P>01. <B>For The Glory Of</B> <BR>02. <B>More Than Meets The Eye</B> <BR>03. <B>The Evil Has Landed</B> <BR>04. <B>Formation Of Damnation</B> <BR>05. <B>Dangers of The Faithless</B> <BR>06. <B>The Persecuted Won't Forget</B> <BR>07. <B>Henchman</B> <BR>08. <B>Killing Season</B> <BR>09. <B>Afterlife</B> <BR>10. <B>F.E.A.R.</B> <BR>11. <B>Leave Me Forever</B></P>
+Автор: Vit Belov
+
+### 10.03.2008 news Новая песня TESTAMENT
+
+<P>Все уже знают, что 29 апреля на <STRONG>Nuclear Blast</STRONG> выходит новый альбом<STRONG> TESTAMENT</STRONG> <STRONG>"The Formation of Damnation". </STRONG>Группа выложила новую песню <STRONG>"More Than Meets The Eye" </STRONG>на своей <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/testamentlegions">http://www.myspace.com/testamentlegions</A></P>
+Автор: Vit Belov
+
+### 28.04.2008 news Американская trash-metal легенда TESTAMENT в России!!!
+
+<P><STRONG>TESTAMENT</STRONG> - американская thrash metal легенда, входящая в американскую пятерку самых известных и уважаемых thrash metal групп мира (<STRONG>Metallica, Megadeth, Slayer, Testament, Anthrax</STRONG>), наконец-то, официально объявила даты своих выступлений в России. Достоверно известно, что за барабанной установкой свое место займет легендарный<STRONG> Paul Bostaph</STRONG> (ex-<STRONG>Slayer</STRONG>), заменивший, выступавшего в прошлом году, так же известного экстремального барабанщика<STRONG> Ника Баркера</STRONG>.<BR>Разогревать американских трэшеров в России будет не менее уважаемая на просторах СНГ российская группа <STRONG>GRENOUER</STRONG>, которая будет презентовать свой новый альбом "<STRONG>Lifelong Days</STRONG>", премьера которого состоится в июне во всей Европе через <STRONG>Locomotive Records</STRONG>.<BR>17.06.08 - Санкт-Петербург "Орландина"<BR>18.06.08 - Москва "Точка"</P>
+Автор: Vit Belov
+
+### 08.05.2008 news TESTAMENT попали в чарт
+
+<P>В первую неделю новый альбом<STRONG> TESTAMENT</STRONG> <STRONG>"The Formation of Damnation"</STRONG> был продан в Штатах в количестве 11400 копий и попал в чарт<STRONG> Billboard</STRONG> под номером 59.</P>
+Автор: Vit Belov
+
+### 24.05.2008 news TESTAMENT в Москве
+
+<center><IMG height=300 src="/images/news_rus/2008.05/12537.jpg" width=400 border=0></center>
+Автор: Vit Belov
+
+### 26.05.2008 reviews Живая классика жанра
+
+<P>90-е годы не стали триумфальными для TESTAMENT. Выпустив в 1990-м “Souls Of Black” и закончив первый этап своего существования не очень удачным альбомом “The Ritual” в 1992-м, группа на некоторое время ушла в тень. В те времена thrash-metal не пользовался той же популярностью, в США в моду вошли grunge и alternative.</P>
+<P>Именно тогда группу покинул один из основных гитаристов Alex Skolnik. Он начал достаточно успешную карьеру джазового гитариста, а TESTAMENT потихонечку принялись искать себя. Экспериментировать с death-metal, менять состав… К тому же у певца Chuck Billy был обнаружен рак. Последний полноценный альбом TESTAMENT вышел в 1999 году, на “The Gathering” произошла попытка возврата к старому звучанию, которую фэны встретили довольно сдержано, не пришло ещё время этой группы. Был, правда, записан ещё один альбом “First Strike Still Deadly”, группа переиграла в максимально тяжёлом звучании свои хиты 15-летней давности. Думается, именно тогда и был задуман ре-юнион в классическом составе. Группа проехала с туром по миру и записала новейший альбом “The Formation Of Damnation”, вышедший в конце апреля.</P>
+<P>Любопытно было бы узнать, чего фэны группы ожидали от этого альбома. Такой вопрос хочется поставить хотя бы потому, что существует несколько вариантов ответа. Я, например, отчего-то ждал мегаугарного альбома с тяжеленным звуком и забоем в духе “First Strike Still Deadly”. При этом я совершенно точно понимал, что тот альбом не является классическим для TESTAMENT, в 80-е предпочитавших «атмосферный» саунд и мелодичные припевы. По этой причине при беглом прослушивании нового альбома я был слегка разочарован. «Трэш-угара» в духе EXODUS или SLAYER здесь не наблюдалось. Любые попытки ритм-секции «понагнать страху» на слушателя бесцеремонно прерывались мелодичным припевом или слишком техничным для забойной музыки соло на гитаре. </P>
+<P>Лишь через несколько дней я вернулся к TESTAMENT во всеоружии. Оставив глупые ожидания и вспомнив классику группы, я подошёл к “The Formation Of Damnation” с другой меркой. И признаться, полностью поменял своё мнение. Тяжёлый, мелодичный, техничный, качественный, а уже после этого и забойный, и прямолинейный. На этом альбоме музыканты выложились по полной, представив нам всё то мастерство, которое они приобрели за годы карьеры. Я без труда обнаружил на этом альбоме несколько хитов, достойных украсить собой концертный сэт группы, что сделать довольно сложно уже после 1990-го года.</P>
+<P>Все фэны TESTAMENT останутся довольны, я уверен. Да и тем, кто не слышал об этой группе ни разу или же слушал только альбомы 90-х, рекомендую обратить внимание на эту пластинку. Именно на ней вы поймёте, что из себя представляют TESTAMENT.</P>
+Автор: Vit Belov
+
+### 02.06.2008 news TESTAMENT прокомментировали свой предстоящий визит в Россию
+
+<P><STRONG>Chuck Billy</STRONG>, вокалист легендарных американских трэшеров <STRONG>TESTAMENT</STRONG>, так прокомментировал июньский визит группы в Россию: "<EM>Все что я слышал ранее от других групп, которые уже играли в России, у вас огромное количество сумасшедших фэнов. Это всегда потрясающее ехать куда-то в первый раз. И это, конечно, заставляет выступить как можно лучше, т.к. мы будем играть перед людьми, которые нас никогда не видели. Не могу дождаться этого визита в Россию и ударить с новым альбомом The Formation of Damnation!"</EM></P>
+<P>Напоминаем, что единственный концерт в России состоится 18 июня 2008 в московском клубе "ТОЧКА" при поддержке <STRONG>GRENOUER</STRONG> и <STRONG>MANIC DEPRESSION</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.06.2008 news Сэт-лист TESTAMENT
+
+<P>3 июня <STRONG>TESTAMENT</STRONG> выступили в Эйндховене. В преддверии концерта в Москве 18 июня&nbsp;мы публикуем сэт-лист группы:</P>
+<P>01. <B>Over The Wall</B><BR>02. <B>Into The Pit</B> <BR>03. <B>Apocalyptic City</B> <BR>04. <B>Practice What You Preach</B> <BR>05. <B>New Order</B> <BR>06. <B>Electric Crown</B> <BR>07. <B>More Than Meets The Eye</B> <BR>08. <B>Low</B> <BR>09. <B>Trail Of Tears</B> <BR>10. <B>Henchmen Ride</B> <BR>11. <B>Souls Of Black</B> <BR>12. <B>The Preacher</B> <BR>13. <B>D.N.R</B> <BR>14. <B>3 Days In Darkness</B> <BR>15. <B>Alone In The Dark</B> <BR>16. <B>Disciples Of The Watch</B></P>
+Автор: Vit Belov
+
+### 24.06.2008 articles TESTAMENT в Москве: недостойное выступление великой группы
+
+<P>Классики американского thrash-metal TESTAMENT, воссоединившись в своём классическом составе, продолжают зарабатывать на этом славу и деньги. В настоящем году свет увидел отличный альбом “The Formation Of Damnation”, в недалёком прошлом группа выпустила очень хороший концертный DVD “Live In London”, и вот, на фоне этих успехов, скажу сразу, одной из любимейших моих групп, музыканты сподобились посетить и нашу страну. 18 июня коллектив почтенных дядечек должен был сокрушить московский клуб «Точка».</P>
+<P>1 марта, во время фестиваля “Wacken Road Show”, Москву посетили ещё одни классики thrash-metal OVERKILL. Под впечатлением от их феноменального выступления, которое смело можно назвать лучшим в этом году в Москве, я ждал чего-то подобного и от TESTAMENT. Согласитесь, по заслугам эти два коллектива уж точно находятся на одной ступени. Немного нагнетал обстановку ранее анонсированный концерт SLAYER, в тех же числах, но «главные по thrash-metal» не приехали, и TESTAMENT остались единственными потенциальными королями столичной сцены этим летом. Кто не читал моих заметок раньше, тот вряд ли поймёт моё возбуждённое состояние перед этим концертом, но кто в курсе моего видения тяжёлой музыки, тот знает, почему я ожидал, что этот день войдёт в историю. По моему глубокому убеждению, самым выигрышным стилем тяжёлой музыки при исполнении вживую является, как раз, «трэш», и от кого после этого ждать незабываемого «отрыва», как не от TESTAMENT, да ещё в классическом составе?</P>
+<P>Перейдём к делу. Концерт должны были открывать две отечественные группы – GRENOUER и MANIC DEPRESSION. Насколько я не люблю первых, настолько я люблю вторых. К сожалению, по вине техников группы TESTAMENT, концерт&nbsp; задержался на полтора часа, и MANIC DEPRESSION не смогли выступить. По слухам, именно техники американцев что-то не поделили с москвичами, и от этого наших прогнали со сцены, не дав немного нас порадовать. В принципе, расстраиваться мы не стали, так как TESTAMENT были теми, кого все ждали, а MANIC DEPRESSION мы послушаем в другой раз. GRENOUER же не впечатлили собравшуюся публику. Не знаю, чем берут бывшие пермяки, но я ни разу не видел восторженной реакции на их выступления в новой истории коллектива. Новая история началась, когда они, забросив death-metal, начали играть новомодный math-metal. С тех пор мои дорожки не пересекаются с любителями подобной музыки. Не пересеклись дорожки и в этот вечер, как я уже говорил. Фанаты «трэш-угара» еле дотерпели до конца выступления GRENOUER и бросились в туалетно-барное отделение клуба «Точка». Дальше был незаметный глазу инцидент с MANIC DEPRESSION и где-то в десятом часу на сцене появились Боги. Ну, по крайней мере, я так думал. Тот набор песен, который мы должны были услышать в этот вечер, не мог оставить меня равнодушным. Я уже предвкушал, как буду орать-подпевать мощному Индейцу Chuck Billy, и моя шея уже заранее болела в ожидании расправы от моей головы. Но магической вспышки не произошло. Прошла одна песня, вторая, третья… Музыканты рубились на сцене Точки, как живые, а рубиться и петь в ответ не хотелось. Такого поганого, не побоюсь этого слова, звука я не слышал уже давно. Даже наши закритикованные в пух и прах группы, звучат в несколько раз мощнее и самое главное понятнее и разборчивее. Хорошо, что не у кого в этот вечер не пошла кровь ушами, потому что кашка была забористая. Вернее так, какашка была забористая.</P>
+<P>Я уверен, что, если бы группа отыграла свой концерт на высшем уровне, я бы не писал этот абзац. Я бы не вспоминал о ссоре техников с MD, я бы не писал об их опоздании, я бы не заметил коридор безопасности, который выстроила группа перед сценой, отгородившись от своих фэнов, я бы не вспомнил того, что когда-то смотрел видео с фестиваля Wacken, где TESTAMENT звучали жидко и неинтересно, и уж тем более я бы не стал сомневаться в уважении, которое группа уровня TESTAMENT испытывает к своим старым фанатам. А теперь… Давайте побьём американских звукоинженеров, у которых вдруг в ушах возникли бананы, но разве сама группа не могла определиться с качеством исполнения своей музыки в этот вечер? Разве не сама группа набирала этих горе-товарищей, которые испортили нам весь кайф? А быть может, TESTAMENT не так хороши на сцене, поэтому и впаривают нам такой сырой продукт вместо мощного ураганного шоу? Ни на какие вопросы ответа я не знаю. Знаю только, что, несмотря на всю свою любовь к «студийникам» этой группы, я смело могу сказать: «Концерт TESTAMENT – не самое лучшее времяпрепровождение для летнего вечера!». К тому же сборная России по футболу, как назло, в тот вечер выиграла. :))</P>
+Автор: Vit Belov
+
+### 31.07.2008 news Новый альбом TESTAMENT понравился нашим читателям
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В течение последних двух месяцев на нашем сайте проходило голосование, посвящённое новому альбому <STRONG>TESTAMENT </STRONG>"<STRONG>The Formation Of Damnation</STRONG>". Наши посетители признали, что этот альбом оправдал их ожидания, за это проголосовало 58.49 процента, остались к этой работе, да и к самой группе, равнодушными 25.66 процента, а разочаровались новейшим альбомом монстров американского thrash-metal - 15,85 процента проголосовавших.</FONT></P>
+Автор: Vit Belov
+
+### 05.12.2008 news Новое видео TESTAMENT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип на песню<STRONG> TESTAMENT</STRONG> <STRONG>"More Than Meets The Eye" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:322866 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A322866%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A322866" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 30.12.2008 news Christmas Metal Symphony в Тилбурге
+
+<P>В Тилбурге, Голландия 28 декабря прошёл уникальный концерт&nbsp;<STRONG>Christmas Metal Symphony</STRONG>.&nbsp;В компании с симфоническим оркестром на сцене появились&nbsp;<STRONG>Doro Pesch</STRONG>, <B itxtvisited="1">Chuck Billy</B> (<B itxtvisited="1">TESTAMENT</B>), <B itxtvisited="1">Russell Allen</B> (<B itxtvisited="1">SYMPHONY X</B>), <B itxtvisited="1">Mats Leven</B> (<B itxtvisited="1">THERION</B>, <B itxtvisited="1">YNGWIE MALMSTEEN</B>), <B itxtvisited="1">Johan Edlund</B> (<B itxtvisited="1">TIAMAT</B>), <B itxtvisited="1">Ian Parry</B> (<B itxtvisited="1">CONSORTIUM PROJECT</B>, <B itxtvisited="1">ELEGY</B>), <B itxtvisited="1">Marcela Bovio</B> (<B itxtvisited="1">STREAM OF PASSION</B>, <B itxtvisited="1">AYREON</B>), <B itxtvisited="1">Floor Jansen</B> (<B itxtvisited="1">AFTER FOREVER</B>) and <B itxtvisited="1">George Oosthoek</B> (<B itxtvisited="1">ORPHANAGE</B>). В качестве сопровождающей группы выступили:</P>
+<P><STRONG>Koen Herfst</STRONG> (EPICA) - Drums<BR itxtvisited="1"><B itxtvisited="1">Marcel Coenen</B> (SUN CAGED) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Johan Van Stratum</B> (STREAM OF PASSION) - Bass<BR itxtvisited="1"><B itxtvisited="1">Frank Schiphorst</B> (CONTROL HUMAN DELETE) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Jeffrey Revet</B> (STREAM OF PASSION) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Joost van den Broek</B> (AFTER FOREVER) ЁC Keyboards</P>
+<P>Музыканты исполнили heavy-metal классику прошлых лет:</P>
+<P>01. <B itxtvisited="1">Blood Of Kingu</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">02. <B itxtvisited="1">Victim Of Changes</B> (JUDAS PRIEST) (feat. Mats Leven)<BR itxtvisited="1">03. <B itxtvisited="1">Son Of The Staves Of Time</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">04. <B itxtvisited="1">Passion</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">05. <B itxtvisited="1">Out In The Real World</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">06. <B itxtvisited="1">Enter Sandman</B> (METALLICA) (feat. Ian Parry)<BR itxtvisited="1">07. <B itxtvisited="1">Paranoid</B> (BLACK SABBATH) (feat. Ian Parry)<BR itxtvisited="1">08. <B itxtvisited="1">Breaking The Law</B> (JUDAS PRIEST) (feat. Doro Pesch)<BR itxtvisited="1">09. <B itxtvisited="1">All We Are</B> (DORO) (feat. Doro Pesch, Floor Jansen)<BR itxtvisited="1">10. <B itxtvisited="1">I Rule The Ruins</B> (DORO) (feat. Doro)<BR itxtvisited="1">11. <B itxtvisited="1">Souls Of Black</B> (TESTAMENT) (feat. Chuck Billy)<BR itxtvisited="1">12. <B itxtvisited="1">Return To Serenity</B> (TESTAMENT) (feat. Chuck Billy, Mats LevЁ¦n)<BR itxtvisited="1">13. <B itxtvisited="1">More Than Meets The Eye</B> (TESTAMENT) (feat. Chuck Billy, George Oosthoek)<BR itxtvisited="1">14. <B itxtvisited="1">Arise</B> (SEPULTURA) (feat. George Oosthoek)<BR itxtvisited="1">15. <B itxtvisited="1">Mountains Of Madness</B> (ORPHANAGE) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">16. <B itxtvisited="1">A New Level</B> (PANTERA) (feat. George Oosthoek)<BR itxtvisited="1">17. <B itxtvisited="1">Cain</B> (TIAMAT) (feat. Johan Edlund)<BR itxtvisited="1">18. <B itxtvisited="1">Brighter Than The Sun</B> (TIAMAT) (feat. Johan Edlund, Marcela Bovio)<BR itxtvisited="1">19. <B itxtvisited="1">When The Smoke Is Going Down</B> (SCORPIONS) (feat. Johan Edlund)<BR itxtvisited="1">20. <B itxtvisited="1">My Pledge Of Allegiance No. 1</B> (AFTER FOREVER) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">21. <B itxtvisited="1">Equally Destructive</B> (AFTER FOREVER) (feat. Floor Jansen)<BR itxtvisited="1">22. <B itxtvisited="1">The Evil That Man Do</B> (IRON MAIDEN) (feat. Floor Jansen)<BR itxtvisited="1">23. <B itxtvisited="1">Intro Based on "The Odyssey"</B> (SYMPHONY X) (orchestra only)<BR itxtvisited="1">24. <B itxtvisited="1">Evolution</B> (The Grand Design) (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">25. <B itxtvisited="1">Paradise Lost</B> (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">26. <B itxtvisited="1">Dawn Of A Million Souls</B> (AYREON) (feat. Russell Allen)<BR itxtvisited="1">27. <B itxtvisited="1">Phantom Of The Opera</B> (NIGHTWISH version) (feat. Russell Allen, Floor Jansen)</P>
+<P>Видео&nbsp;<STRONG>"Souls Of Black"</STRONG> (TESTAMENT) (feat. Chuck Billy) (video by Mark van Nierop):</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 08.01.2009 news TESTAMENT отыграют специальное шоу в Лондоне
+
+<P><STRONG>TESTAMENT </STRONG>анонсировали специальное шоу в Лондоне 25 марта наступившего года. На концерте из серии <STRONG>'Metal Hammer presents</STRONG>" американцы отыграют целиком два своих первых альбома "<STRONG>The Legacy</STRONG>" и "<STRONG>The New Order</STRONG>".</P>
+Автор: Vit Belov
+
+### 11.02.2009 news Chuck Billy и DEATH ANGEL исполнили песню METALLICA
+
+<P>29 ноября 2008 года на концерте в Сан-Франциско, в помощь басисту <STRONG>DEFTONES</STRONG> <STRONG>Chi Cheng, </STRONG>к <STRONG>DEATH ANGEL</STRONG> на сцене присоединился вокалист <STRONG>TESTAMENT Chuck Billy</STRONG>. Группа исполнила песню <STRONG>METALLICA "Trapped&nbsp;Under Ice"</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/XuDTgettpz4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/XuDTgettpz4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.02.2009 news Архивный концертник TESTAMENT
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.02/13613.jpg" width=400 align=right border=5>14 апреля на <STRONG>Prosthetic Records</STRONG> выходит архивный концертный альбом <STRONG>TESTAMENT</STRONG> <STRONG>"Live at Eindhoven '87". </STRONG>На него попало выступление группы на фестивале <STRONG>Dynamo Open Air</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Disciples of the Watch</B><BR itxtvisited="1">02. <B itxtvisited="1">The Haunting</B><BR itxtvisited="1">03. <B itxtvisited="1">Apocalyptic City</B><BR itxtvisited="1">04. <B itxtvisited="1">First Strike Is Deadly</B><BR itxtvisited="1">05. <B itxtvisited="1">Burnt Offerings</B><BR itxtvisited="1">06. <B itxtvisited="1">Alex Skolnick Guitar Solo</B><BR itxtvisited="1">07. <B itxtvisited="1">Over The Wall</B><BR itxtvisited="1">08. <B itxtvisited="1">Do Or Die</B><BR itxtvisited="1">09. <B itxtvisited="1">Curse of the Legion of Death (C.O.T.L.O.D.)</B><BR itxtvisited="1">10. <B itxtvisited="1">Reign of Terror</B></P>
+Автор: Vit Belov
+
+### 22.06.2011 news Gene Hoglan запишется с TESTAMENT
+
+<P><STRONG>TESTAMENT</STRONG> вошли в студию с британским продюсером <STRONG>Andy Sneap</STRONG> (<B>MEGADETH</B>, <B>ARCH ENEMY</B>, <B>NEVERMORE</B>, <B>MACHINE HEAD</B>) для записи нового альбома, который должен выйти в этом году. В связи с серьёзной травмой барабанщика коллектива <STRONG>Paul Bostaph </STRONG>он не примет участия в записи. Его временно заменит другой "мастер палочки" <STRONG>Gene "The Atomic Clock" Hoglan</STRONG> (ex-<B>DARK ANGEL</B>, ex-<B>STRAPPING YOUNG LAD</B>, <B>FEAR FACTORY</B>, <B>DETHKLOK</B>), также в записи участие примет <STRONG>Chris Adler </STRONG>из <STRONG>LAMB OF GOD</STRONG>. </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Hoglan уже записывал один альбом с <STRONG>TESTAMENT</STRONG>, <STRONG>"Demonic" </STRONG>в 1997 году. </FONT></P>
+<P><center><IMG height=600 src="/images/news_rus/2011.06/19707.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 14.07.2011 news TESTAMENT назвали альбом
+
+<P>Новый альбом <STRONG>TESTAMENT</STRONG> получил название "<STRONG>The Dark Roots Of Earth</STRONG>". Пластинка должна выйти в октябре на <STRONG>Nuclear Blast</STRONG>. Запись сейчас проходит вместе с продюсером <STRONG>Andy Sneap (MEGADETH, EXODUS, ARCH ENEMY, NEVERMORE).</STRONG> </P>
+<P>Из других новостей. В недавнем интервью вокалист группы <STRONG>Chuck Billy</STRONG>&nbsp;сообщил, что осенью<STRONG>&nbsp;TESTAMENT</STRONG> собираются в тур вместе с <STRONG>ANTHRAX, DEATH ANGEL</STRONG>&nbsp;и <STRONG>OVERKILL</STRONG>.</P>
+<P><center><IMG height=557 src="/images/news_rus/2011.07/20132.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 16.07.2011 news TESTAMENT в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TESTAMENT</STRONG> продолжают запись нового альбома <STRONG>"The Dark Roots Of Earth" </STRONG>вместе с продюсером <STRONG>Andy Sneap. </STRONG>Ниже можно увидеть репортаж о записи барабанных партий для этой пластинки. Это проделал знаменитый барабанщик <STRONG>Gene "The Atomic Clock" Hoglan</STRONG> (ex-<B>DARK ANGEL</B>, ex-<B>STRAPPING YOUNG LAD</B>, <B>FEAR FACTORY</B>, <B>DETHKLOK</B>), который заменил приболевшего <STRONG>Paul Bostaph.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/MCLHOlr9oMQ?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/MCLHOlr9oMQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.12.2011 news Барабанщик Paul Bostaph покинул TESTAMENT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Paul Bostaph</STRONG>&nbsp;официально прекратил сотрудничество с <STRONG>TESTAMENT. </STRONG>Из-за серьёзной травмы музыкант не записывал с группой новый альбом <STRONG>"The Dark Roots Of Earth", </STRONG>который выйдет в апреле на <STRONG>Nuclear Blast</STRONG>. Сейчас барабанщик поправился, но в<STRONG> TESTAMENT</STRONG> назад не вернулся.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время <STRONG>Paul Bostaph</STRONG> занят с несколькими собственными проектами, один из которых <STRONG>HAIL! </STRONG>посетит Москву 11 декабря.</FONT></P>
+<P>
+<CENTER><IMG height=445 src="/images/news_rus/2011.12/22243.jpg" width=300 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.12.2011 news Супергруппа HAIL! в Москве 11 декабря
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22281.jpg" width=390 height=520>Уже в это воскресенье в московском клубе <STRONG>"Hleb"</STRONG> состоиться выступление супергруппы <STRONG>HAIL!</STRONG>, в состав которой входят <STRONG>Paul Bostaph</STRONG> (ударные, <STRONG>FORBIDDEN</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>TESTAMENT</STRONG>), <STRONG>Glen Drover</STRONG> (гитара, <STRONG>EIDOLON</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>KING DIAMOND</STRONG>), <STRONG>Tim "Ripper" Owens</STRONG> (вокал, <STRONG>JUDAS PRIEST</STRONG>,<STRONG> ICED EARTH</STRONG>, <STRONG>YNGWIE MALMSTEEN</STRONG>) и <STRONG>James Lomenzo</STRONG> (бас, <STRONG>WHITE LION</STRONG>, <STRONG>BLACK</STRONG> <STRONG>LABEL SOCIETY</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>DAVID LEE ROTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На своих концертах группа <STRONG>HAIL!</STRONG> исполняет хиты различных металлических коллективов первой величины. Песни, которые поклонники тяжелой музыки любят с детства и знают наизусть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен сет-лист, который группа отыграла в городе Иркутск 2 декабря:</FONT></P>
+<P>01. <STRONG>Stand Up & Shout</STRONG> (<STRONG>DIO</STRONG>)<BR>02. <STRONG>Flight Of Icarus</STRONG> (<STRONG>IRON MAIDEN</STRONG>)<BR>03. <STRONG>Seek & Destroy</STRONG> (<STRONG>METALLICA</STRONG>)<BR>04. <STRONG>World Painted Blood</STRONG> (<STRONG>SLAYER</STRONG>)<BR>05.<STRONG> Wake Up Dead</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>06. <STRONG>Mob Rules</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>07. <STRONG>Burn In Hell</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>08. <STRONG>Another Thing Coming</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>09. <STRONG>Symphony Of Destruction</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>10. <STRONG>Heaven & Hell</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>11. <STRONG>Walk</STRONG> (<STRONG>PANTERA</STRONG>)<BR>12. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>----------<BR>13. <STRONG>Ace Of Spades</STRONG> (<STRONG>MOTORHEAD</STRONG>)<BR>14. <STRONG>Creeping Death</STRONG> (<STRONG>METALLICA</STRONG>)<BR>15. <STRONG>Peace Sells</STRONG> (<STRONG>MEGADETH</STRONG>)</P>
+<P>Адрес клуба <STRONG>"Hleb"</STRONG>: г. Москва, Звенигородское шоссе, д. 11</P>
+Автор: Headcrusher
+
+### 16.05.2012 news TESTAMENT: обложка  &quot;The Dark Roots Of Earth&quot;
+
+<P><STRONG>TESTAMENT</STRONG> опубликовали обложку своего нового альбома <STRONG>"The Dark Roots Of Earth"</STRONG>. Её автор, как и&nbsp;обложки&nbsp;предыдущего полноформатника <STRONG>"The Formation Of Damnation"</STRONG>, <STRONG>Eliran Kantor</STRONG>.</P>
+<P>Даты выхода <STRONG>"The Dark Roots Of Earth"</STRONG>: 27 июля 2012 г. (Европа) и 31 июля 2012 г. (Северная Америка). За выпуск ответственнен лейбл <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.05/23941.jpg" width=500 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 02.07.2012 news TESTAMENT опубликовали первый трек с выходящего альбома &quot;Dark Roots Of Earth&quot;
+
+<P><STRONG>TESTAMENT</STRONG>&nbsp;опубликовали первый трек с выходящего в конце июля альбома&nbsp;<STRONG>"Dark Roots Of Earth"</STRONG>.&nbsp;Им стала песня&nbsp;<STRONG>"True American Hate"</STRONG>. Все желающие также могут изучить или даже спеть её лирику.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/DtP6Brv6CCM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 19.07.2012 news TESTAMENT: &quot;Native Blood&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё один трек с выходящего в конце этого месяца альбома <STRONG>TESTAMENT</STRONG> <STRONG>"Dark Roots Of Earth"</STRONG>, доступен для прослушивания.</FONT></P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F52544825&show_artwork=true" frameBorder=no width="80%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 31.07.2012 news TESTAMENT: видеоклип на песню &quot;Native Blood&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заслуженные трэшеры <STRONG>TESTAMENT</STRONG> представили видеоклип на песню <STRONG>"Native Blood"</STRONG>. Чак Билли (<STRONG>Chuck Billy</STRONG>), вокалист <STRONG>TESTAMENT</STRONG>,&nbsp;при помощи режиссёра Майка Слоата (<STRONG>Mike Sloat</STRONG>), отдал дань уважения своему роду - индейцам племени <STRONG>Pomo</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Часть клипа была снята на ранчо Билли, в местечке <STRONG>Hopland</STRONG> (Калифорния).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Native Blood" -</STRONG> это видео о том, как&nbsp;проходит&nbsp;взросление&nbsp;северо-американских индейцев&nbsp;уже на протяжении многих лет.&nbsp;О том, как они&nbsp;противостоят ненависти, расизму и преследованиям.</FONT></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/gpNMyoO37vo?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.01.2014 news TESTAMENT: Greg Christian покинул группу, Steve DiGiorgio вернулся
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.01/26520.jpg" width=300 height=400>TESTAMENT</STRONG> объявили, что бас-гитарист <STRONG>Greg Christian</STRONG> покинул коллектив по обоюдному согласию сторон. </P>
+<P>На его место группа уже нашла замену, ею стал&nbsp;<STRONG>Steve DiGiorgio</STRONG> <EM>(на фото)</EM>, который ранее уже был членом <STRONG>TESTAMENT</STRONG>&nbsp;и принимал участие в записи дисков <STRONG>"The Gathering"</STRONG> (1999)&nbsp;и <STRONG>"First Strike Still Deadly"</STRONG> (2001).</P>
+<P>Также среди заслуг Стива работа с такими коллективами, как <STRONG>SADUS</STRONG>, <STRONG>DEATH</STRONG>, <STRONG>AUTOPSY</STRONG>, <STRONG>ICED EARTH</STRONG>, <STRONG>VINTERSORG</STRONG> и многоими другими.</P>
+<P>Официальный сайт: <A href="http://www.stevedigiorgio.com/">www.stevedigiorgio.com</A> </P>
+Автор: Headcrusher
+
+### 28.06.2016 news TESTAMENT назвали дату релиза
+
+<P>Одиннадцатый альбом легендарных трешеров <STRONG>TESTAMENT "The Brotherhood Of The Snake"</STRONG> выйдет 28 октября на <STRONG>Nuclear Blast</STRONG>. Гитарист <STRONG>Eric Peterson</STRONG> заявил, что пластинка записана и отправлена на сведение к <STRONG>Andy Sneap</STRONG>. </P>
+<P><STRONG>TESTAMENT</STRONG> выступят в Москве в клубе <STRONG>Yotaspace</STRONG> 19 июля.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.06/29503.jpg" width=650 height=380> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.06.2016 news TESTAMENT will release new album at October, 28
+
+<p>The eleventh album from legendary thrashers <strong>TESTAMENT "The Brotherhood Of The Snake"</strong> will be released October 28 via<strong> Nuclear Blast records</strong>. Guitarist <strong>Eric Peterson</strong> stated that the album is recorded and sent to <strong>Andy Sneap</strong> for mixing. </p><p>TESTAMENT will perform in Moscow at the club<strong> Yota Space</strong> on July 19.</p><p><center><img width="490" height="735" src="/images/news/2016.06/29497.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 29.07.2016 news TESTAMENT выступили в Москве
+
+<P>19 июля в московском <STRONG>"Yotaspace"</STRONG> состоялось выступление легенд thrash metal <STRONG>TESTAMENT</STRONG>. На нашем сайте вы можете увидеть <A href="/ru/galleries/1/1764/">фоторепортаж с этого события.</A></P>
+<P>28 октября на<STRONG> Nuclear Blast</STRONG> выйдет новый альбом коллектива "<STRONG>The Brotherhood Of Snake</STRONG>".</P>
+<P> 
+<CENTER><IMG border=0 src="/images/news_rus/2016.07/29695.jpg" width=600 height=400> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.07.2016 news TESTAMENT in Moscow: photo-set
+
+<p>There was a performance of thrash metal legends<strong> TESTAMENT</strong> on July 19 at <strong>Yota Space</strong>, Moscow, Russia. You can see photos from this event <a href="/en/galleries/1/1764/">on our site.</a></p><p>New album of <strong>TESTAMENT "The Brotherhood Of Snake"</strong> will be released on October 28 via<strong> Nuclear Blast records</strong>.</p><p>&nbsp;<center><img width="600" height="400" src="/images/news_rus/2016.07/29695.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 12.08.2016 news Обложка нового TESTAMENT
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>TESTAMENT </strong>выложили обложку нового альбома "<strong>The Brotherhood Of The Snake</strong>", который выйдет 28 октября на <strong>Nuclear Blast</strong>. Создал "пэйнт" <strong>Eliran Kantor</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.08/29798.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 12.08.2016 news Cover art of new TESTAMENT
+
+<p><strong>TESTAMENT</strong> have posted the cover artwork for their new album "<strong>The Brotherhood Of The Snake</strong>" which will be released on October 28 via <strong>Nuclear Blast records</strong>. Paint was created by <strong>Elinar Kantor</strong>.</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.08/29798.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 19.08.2016 articles Владимир &#39;Impaler&#39; Миловидов: &quot;Как слушателя меня METALLICA не интересует&quot;.
+
+<p><em><center><img width="500" height="500" src="/images/articles_rus/2016.08/29831.jpg" border="0"></em></p><p><em>Продолжаем пока нашу не названную рубрику интервью с главным редактором журнала In Rock Владимиром 'Impaler' Миловидовым. Главной темой беседы стал выход на этой неделе нового номера издания.</em></p><p><strong>На этой неделе вышел третий в этом году номер InRock. Не могу не начать с поздравлений и разговора об этом номере. Обрисуй вкратце, на что должен обратить внимание читатель в этот раз.</strong></p><p>Спасибо! В этом номере, как всегда, много странного и малоизвестного. Например, итальянский прогрессивный "многостаночник" Фабио Дзуффанти - у него больше десятка групп, в которых он играет в разных стилях, от классического прог-рока до нойза... Или история стил-гитариста группы Juicy Lucy Гленна Кемпбелла, которую наш автор Пётр Кулеш готовил, на моей памяти, лет пять! Такие персонажи, может быть, не так на слуху, но их жизнь, со всеми поворотами, удачами и неудачами - отражение того безумного интересного времени. Я рад тем интервью, которые у меня получились - почему-то в основном с металлистами. Особенно Эрик Питерсон из Testament - и про трэш рассказал, и про стрельбу из лука, и даже про Трампа. Вкратце - вот.</p><p><strong>Да. С удовольствием почитал и TESTAMENT, и IRON SAVIOR. Как ты относишься к этим группам и их современному творчеству?</strong></p><p>Testament я начал слушать с диска "The Gathering", до сих пор мой любимый, хотя сказать, что я сильно углубился в их творчество и знаю всё наизусть, не могу. Просто хорошая группа, честная, со своим лицом, и с гениальным Сколником в составе. Одно жаль - интервью сделал, а на концерт так и не попал из-за другой своей работы. Бывает. Что касается Iron Savior, то я очень любил и люблю Helloween и всю их музыкальную семейку, и Пит Зилк занимает в ней достойное место. На мой взгляд, у них был грандиозный дебют, хороший второй альбом, потом всё пошло на спад, а затем - очень сильный альбом-возвращение "The Landing". Следующие два снова вышли более формальные, что ли. В интервью, на мой взгляд, Пит сказал одну вещь, которую я раньше нигде не встречал - что история "Железного спасителя" вдохновлена немецкоязычной фантастической серией "Perry Rhodan", что-то типа печатного сериала, который выходит с 1961 года и уже опубликовано 2800 выпусков, и Пит их все или почти все читал! Вот это настоящее, хорошее безумие. И, я так понял, мыслящий космический корабль там тоже есть.</p><p><strong>В последнее время InRock выходит не так регулярно, как некоторое время назад. Читатели волнуются. Что можешь им сказать?</strong></p><p>Shit happens, что тут сказать. Но пока нет оснований, чтобы сдохнуть - во всяком случае, читательское ядро сохраняется. С другой стороны, есть целая масса факторов, которые играют против - это и конкуренция сетевых СМИ (тут надо не бороться, а, наоборот, вливаться в их число, что мы и делаем), это и общий спад интереса к чтению, и закат эры "классического рока", и ухудшение экономической обстановки, и даже банальная ликвидация газетных ларьков в подземных переходах. Главная причина, наверное, в том, что почти три года назад я устроился работать у нас в Троицке в местную городскую газету журналистом, и теперь полжизни как минимум посвящены ей, и на журнал сил и мыслей остается всё меньше. Но, в общем, у нас все авторы пишут в свободное от основной работы время, чем я лучше их? :)))</p><p><strong>Ну, поговорим о "современных тенденциях", так сказать. В чём они в тяжёлой музыке сегодня, на твой взгляд?</strong></p><p>С этим смешная штука - обычно мы всегда пишем о позапрошлых тенденциях. Когда что-нибудь выходит из моды - значит, оно состоялось. Недавно побывал на концерте прекрасной прогметал-группы Tesseract, посреди лета - полный зал юных фэнов, ну, думаю, классно, стиль жив, а потом товарищ мне пишет, мол, да это же джент, он давно уже застрял в развитии и погряз в самоповторах. Ну, думаю, ладно, раз устарел - значит, велкам. Если серьезно, то, с одной стороны, есть много экспериментальных метал-команд, часто инструментальных, которые, к удивлению, не воспринимаются публикой как эспериментальные - люди радостно скачут, рубятся и приходят в восторг под их музыку. Из примеров - недавно слушал Between The Buried And Me. Интересно, но для меня - слишком дико. Еще недавно у нас появился прекрасный автор Алексей Евдокимов, знаток стоунера и дума, среди того, что он пишет, встречаются классные имена... Мне не близок сам стоунер как музыка, но нравится, что его слушатели всегда горячо откликаются на музыку, поддерживают своих исполнителей, покупают мерч и так далее. Наверное, в этом тенденция - появление множества маленьких музыкальных ниш со своими преданными фэнами. Еще соглашусь с коллегой Барониным - есть ренессанс старого хард-рока и традиционного хэви, но в лице новых героев. Недавний Airbourne - отличный пример. Или Lost Society. Или, скажем, Sabaton - группа выросла буквально за несколько лет до стадионных масштабов, а ведь это по музыке совершеннейшее ретро! Здесь есть некий парадокс - ведь на сцене хватает и ветеранов, играющих ту же музыку, но совершенно не прославившихся, но музыкальная индустрия почему-то выводит на авансцену новых персонажей. Я бы назвал это "героезамещением" - понятно, что со временем уйдут и AC/DC, и даже Iron Maiden, и надо готовить новых персонажей для их аудиторий, а зачем "вкладываться" в ветеранов, когда есть молодежь, с одной стороны, она посговорчивее, с другой, молодая публика гораздо охотнее влюбится в молодых же исполнителей. И это нормально. Смежная тенденция - это обилие кавер-, трибьют-, или, как сейчас говорят, legacy bands, которые уже не воспринимаются как простые кабацкие лабухи, это серьезные проекты, с шоу, c договорённостями о правах, с гастролями по всему миру. Иногда там бывают какие-нибудь "экс-участники составов экс-участников"... И еще одна вещь, ровно противоположная - грубо говоря, поп-музыка в метал-обрамлении. Ультрасовременный звук, все достижения саунд-продюсировния, прилипчивые мелодии, актуальные тексты. Самый яркий пример, наверное, Amaranthe. Или, из нового, я был поражен, причем в хорошем смысле, проектом Babymetal. Ты видел их дуэт с Хэлфордом? Радует, когда у людей есть чувство юмора. А с другой стороны, там и с музыкой всё в порядке, и с самоотдачей "исполнительниц". Когда-то Юрий Мелисов, помнится, мечтал спеть песню про мамонтёнка в стиле пауэр-метал. Вот это примерно оно же, только с японской сумасшедшинкой.</p><p><strong>Меня, честно говоря, пугает их энтузиазм:) Вот, кстати, про Tesseract, есть у меня несколько читателей журнала, которые задают тебе вопрос, почему мало пишете про современный progressive?</strong></p><p>Смотря что считать современным. Тот же Стивен Уилсон с обложки позапрошлого номера - вполне современный... хотя, наверное, уже не такой молодой, как он выглядит. Новые артисты в ретро-жанрах у нас появляются регулярно (скажем, тот же Дзуффанти). А из не-ретро мы писали про Alcest, про Textures... А если говорить именно про джент, пост-метал и т.д., то весь вопрос в том, кто про них грамотно напишет. Журнал устроен так, что каждый автор исследует своё поле, пишет про тех, кто ему нравится и в чём он разбирается. Появится автор, который в теме современного прога - значит, будут и эти группы.</p><p><strong>Поговорим о чём-то более приземлённом. Сегодня вышел первый сингл METALLICA. Ты ждёшь их новый альбом или тебе это уже не интересно?</strong></p><p>Как журналисту интересно, как слушателю - нет. Сингл еще не успел послушать, но сейчас это сделаю:) </p><p><strong>А как слушателю тебе что-то интересно из выходящего в ближайшие пару месяцев? Что-нибудь ждёшь с юношеским нетерпением?</strong></p><p>Ох... Задумался. Сейчас интригуют работы друзей. Скажем, очередной альбом Александра Кулака из Azazello - он присылал несколько вещей, и они прекрасные... Судя по всему, он будет инструментальным. А из грандов - скоро выходит новый Van der Graaf Generator, думаю, это будет очень серьезно! Готовит новый альбом Стив Хаккет, это музыкант, у которого всегда происходит чудо... Интересно, какой будет новый Flying Colors. До сих пор чего-то жду от Кена Хенсли. Мечтаю, что еще будет когда-нибудь новый диск King Crimson. А из недавних релизов меня поразил "Аукцыон" "На Солнце". Это&nbsp; красивейшая музыка, я бы сказал, экзистенциальная - чистая энергия и поэзия. На этом фоне новая песня "Металлики" кажется какой-то пыльной декорацией. Хотя и она своих слушателей порадует, а если люди испытывают радость - это главное...</p><p><strong>А метал уже никакой не интересует? Устарел?</strong></p><p>Интересует, конечно! Просто не могу вспомнить, что выходит прямо вот сейчас. Но скажу, что жду с интересом концерта группы Vektor, очень любопытная команда, возрождающая прогрессивный трэш-метал на каком-то новом уровне... Всегда прекрасные вещи делает Девин Таунсенд. Из прогметаллистов очень порадовал новый диск Myrath. Да и просто честного мелодичного пауэра хорошего уровня сейчас довольно много.</p><p><strong>Что скажешь о RAGE? Как тебе их возвращение к корням?</strong></p><p>К стыду своему, еще не слушал. Но творческая ситуация в позднесмольском составе была тупиковая, думаю, возврат к формату "Black in Mind" только к лучшему...</p><p><strong>Сейчас выходит новый EVERGREY. Может ли эта команда что-то интересное ещё сделать?</strong></p><p>О, я делал интервью с ними позавчера! Будет в следующем номере. Каких-то откровений в разговоре не припомню, разве только под конец, когда я спросил Энглунда, какую роль он бы сыграл, будь не певцом, а актёром. Ожидал чего-то трагического, а он сказал, что предпочел бы сыграть Дональда Дака. Что касается нового альбома, он весьма хорош, на мой взгляд. Хотя я никогда от них сильно не фанател, считаю их мрачность несколько деланной, что ли, и чересчур однотонной. Во всяком случае, возвращение (еще на прошлом диске) гитариста и барабанщика пошло группе на пользу, оживило ее музыку. А гостевое участие Флор Янсен в двух песнях сделало диск разнообразнее.</p><p><strong>Прочёл в новом номере впечатления от прогового фестиваля в Барселоне. Как ты думаешь, возможно ли нечто подобное в России? Знаю, что ты задумывался об этом. Какие сделал выводы?</strong></p><p>Нет, невозможно. Мне вспоминается замечательный фестиваль "ProgPower Moscow", в приснопамятном клубе "ХО", когда в публике было человек 50, я стоял и думал: как хорошо, что это не я делаю! Вообще, надо, чтобы сначала выросло поколение ребят, которым не надо париться ни о чём, не надо ездить по два часа каждый день в институт и на работу, которым не забивают мозг всякой пафосной белибердой, которых не окружает атмосфера загнанности, усталости и ненависти, и может, лет через 15 тут будут большие фестивали на все вкусы и цвета. В том числе и прогрессивные. А зачатки хорошего у нас были и есть. Это и "хипповые" опен-эйры во главе с "Пустыми Холмами", но их время, к сожалению, ушло, потому что инициатива снизу в нашей стране совсем не приветствуется... А недавно я побывал на "хипстерском" "Ahmad Music Festival", с Пи Джей Харви в хедлайнерах - отлично! Только надо понимать, что такие вещи существуют, пока этого хотят спонсоры, или на бюджет города... Если вдруг власть полюбит прогрессив, будут и прог-фестивали. Вспомни опен-эйры в Казани, которые делал Чепарухин! Вот что значит хорошее дело в хороших руках. Но надо понимать, что такие сочетания - случайны и недолговечны. И лучше, чтобы прогрессив жил сам по себе...</p><p><strong>Ну и последний вопрос. Пишет нам постоянный читатель вашего журнала Алексей. Он спрашивает, до какой поры у вас будут такие странные обложки, до какой поры вы будете писать о всяческой неизвестной и неактуальной ерунде и до какой поры вы будете игнорировать группу HALESTORM?</strong></p><p>Начну с последней части вопроса. Про Halestorm мы писали, по крайней мере, были репортажи с концертов, а с интервью тогда дело не сложилось, и в ближайшее время это вряд ли будет реально. Лично мне эта группа не нравится, но в журнале много раз были случаи, когда я публиковал статьи о музыке, мне неблизкой, потому что наши авторы и люди, чье мнение я высоко ценю, считали ее достойной. Но с Halestorm как-то не сложилось. Увы. Есть много достойного, что проходит мимо в силу тех или иных причин, мир музыки огромен... Еще хочу сказать Алексею, что коль скоро он является нашим постоянным читателем, наверное, наша "неизвестная и неактуальная ерунда" его в какой-то степени интересует. Значит, такова наша ниша - писать о вещах неизвестных и неактуальных, потому что об актуальной ерунде не пишет только ленивый. Мне не раз говорили читатели, что ценят "ИнРок" за то, что мы можем написать о каких-то вещах, которых никогда не найдешь в других журналах. Абсолютно небанальных и не от мира сего. Мне нравится в журнале это состояние свободы, возможность импровизировать, незавязанность на моде и трендах. Конечно, я стараюсь держать баланс, чтобы часть героев номера была всё же узнаваемой... А насколько это удается, судить публике.</p>
+Автор: Vit Belov
+
+### 20.08.2016 news Трек-лист нового альбома TESTAMENT
+
+<p>Новый альбом <strong>TESTAMENT "Brotherhood Of The Snake"</strong> выйдет 28 октября на <strong>Nuclear Blast</strong>. Стал известен трек-лист этой работы:</p><p>“Brotherhood Of The Snake”<br>“The Pale King”<br>“Stronghold”<br>“Seven Seals”<br>“Born In A Rut”<br>“Centuries Of Suffering”<br>“Neptune's Spear”<br>“Black Jack”<br>“Canna-Business”<br>“The Number Game”</p><p><center><img width="600" height="400" src="/images/news_rus/2016.08/29834.jpg" border="0"></p><p>&nbsp;</p>
+Автор: Vit Belov
+
+### 20.08.2016 news Track-list of new TESTAMENT
+
+<p>New <strong>TESTAMENT</strong> album "<strong>Brotherhood Of The Snake</strong>" will be released October 28 via <strong>Nuclear Blast records</strong>. The track listing of this work became known:</p><p>“Brotherhood Of The Snake”<br>“The Pale King”<br>“Stronghold”<br>“Seven Seals”<br>“Born In A Rut”<br>“Centuries Of Suffering”<br>“Neptune's Spear”<br>“Black Jack”<br>“Canna-Business”<br>“The Number Game”</p><p><center><img width="600" height="400" src="/images/news_rus/2016.08/29834.jpg" border="0"><p></p><p>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 03.09.2016 news TESTAMENT выпустили lyric video
+
+<h1>НОВОСТЬ ДНЯ!!!</h1><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новая музыка<strong> TESTAMENT</strong> вышла сегодня! Лирик-видео на песню "<strong>Brotherhood of the Snake</strong>" можно послушать ниже. Песня станет заглавной на новом альбоме, который выйдет 28 октября на <strong>Nuclear Blast</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>01. Brotherhood of the Snake<br>02. The Pale King<br>03. Stronghold<br>04. Seven Seals<br>05. Born In A Rut<br>06. Centuries Of Suffering<br>07. Neptune’s Spear<br>08. Black Jack<br>09. Canna Business<br>10. The Number Game</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/OeIgFsU0x4I" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 03.09.2016 news New music from TESTAMENT
+
+<h1>NEWS OF THE DAY!!!</h1><p>Legendary bay area thrash metal giants <strong>TESTAMENT</strong> have released the title track for their upcoming 12th album, »<strong>Brotherhood Of The Snake</strong>«, which will be released on October 28, 2016 via<strong> Nuclear Blast</strong>.</p><p>Watch the lyric video for <strong>'Brotherhood Of The Snake'</strong>.</p><p>Track list:</p><p>01. Brotherhood of the Snake<br>02. The Pale King<br>03. Stronghold<br>04. Seven Seals<br>05. Born In A Rut<br>06. Centuries Of Suffering<br>07. Neptune’s Spear<br>08. Black Jack<br>09. Canna Business<br>10. The Number Game</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/OeIgFsU0x4I" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 23.09.2016 news TESTAMENT: онлайн-игра в преддверии нового альбома
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Лейбл<strong> Nuclear Blast</strong> опубликовал онлайн-игру для поклонников группы <strong>TESTAMENT</strong>, чтобы те могли скоротать время в ожидании&nbsp;выхода&nbsp;нового альбома<strong> "Brotherhood Of The Snake"</strong>, который&nbsp;появится на&nbsp;свет 28 октября!</font></p>
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Поиграть в игру: <a href="http://media.nuclearblast.de/bands/games/testament/">http://media.nuclearblast.de/bands/games/testament/</a></font></p>
+<p>
+<center><img width="660" height="452" src="/images/news_rus/2016.09/30008.jpg" border="0"> 
+<p></p>
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>
+<p></p></center>
+Автор: Headcrusher
+
+### 12.10.2016 news Новый трек TESTAMENT
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый сингл <strong>TESTAMENT "Stronghold"</strong> можно послушать в видео ниже. Песня попадёт в новый альбом коллектива "<strong>Brotherhood Of The Snake</strong>", который выйдет в конце октября на<strong> Nuclear Blast</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zvUcLcqwSzw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 12.10.2016 news New single of TESTAMENT
+
+<p><strong>TESTAMENT</strong>'s new single "<strong>Stronghold</strong>" can be streamed in the video below. The song will be in the new album, "<strong>Brotherhood Of The Snake</strong>" will be released in late October via <strong>Nuclear Blast</strong> records.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zvUcLcqwSzw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 31.10.2016 reviews Новый альбом живых классиков треша 
+
+<p>Двенадцатый альбом TESTAMENT “Brotherhood Of The Snake” вышел в год тридцатилетнего юбилея коллектива. После возрождения в золотом составе в 2005 году прошло уже более десяти лет, и этот альбом третий по счёту. Группа полноценно вернулась на thrash metal сцену, но новые альбомы уже не вызывают былого ажиотажа.</p><p>Строго говоря, уже и состав TESTAMENT не тянет на звание «золотого». Да, по-прежнему в строю гитарист Alex Skolnick, но ритм-секция сменилась полностью. Отметим, что пришли не чужие для группы люди — барабанщик Gene Hoglan и басист Steve DiGiorgio, которые играли в группе в 90-х, когда американцы баловались death metal. В любом случае, только умопомешанный будет утверждать, что Steve и Gene могут что-то испортить. Так вот, после ре-юниона TESTAMENT взялись за старое, то есть коллектив сознательно облегчил собственное звучание, с целью достичь настоящего thrash metal саунда на новом витке качества звукозаписи. Безусловно, у музыкантов это получилось, по другому и быть не могло, теперь TESTAMENT можно смело именовать классической американской thrash metal группой с некоторой мелодической составляющий и без различных брутальных компонентов. «The Formation Of Damnation” стал откровением, на «Dark Roots Of Earth” было несколько сногсшибательных хитов... Что нас ждало на «Brotherhood Of The Snake”?</p><p>Хотелось бы сейчас вынуть из кармана какой-то обезоруживающий аргумент и представить этот альбом вехой в истории TESTAMENT, но ничего на ум не приходит. Эта работа не плохая и не хорошая, она обыкновенная. Я заметил на нём только два несомненных хита - «Stronghold” и «Seven Seals”, остальные треки никак не отметились в памяти, кроме откровенных провалов, к которым я могу отнести пржде всего несколько мелодичных соло на гитаре, которым не место на альбомах TESTAMENT, как мне кажется. Вероятно, кому-то будет интересно послушать тексты, повествующие о всяких «анунаках», но я, как обычно, на лирику особого внимания не обращаю. </p><p>Что ж, четыре года и всего две отличных песни, довольно средняя, мягко говоря, производительность труда. TESTAMENT я желаю дальнейшего процветания, и что-то советовать тут бессмысленно. Живые классики треша не могут оставлять равнодушным, и кажется музыканты успели «забронзоветь» и не стремятся далее продвигаться в своём саунде. Быть может, это и правильно, судя по реакции широкой публики на «Demonic” в конце прошлого века. С другой стороны, слушать это становится уже слегка скучновато.</p><p>Приобретайте лицензионный digipak на сайте Escapemind.ru: <a href="http://escapemind.ru/goods/TESTAMENT-Brotherhood-Of-The-Snake-2016-digi">http://escapemind.ru/goods/TESTAMENT-Brotherhood-Of-The-Snake-2016-digi</a></p>
+Автор: Vit Belov
+
+### 03.11.2016 news Новый ролик TESTAMENT
+
+<p>Новое видео <strong>TESTAMENT </strong>на песню "<strong>The Pale King</strong>" можно посмотреть ниже. Трек взят с нового альбома американской thrash metal группы "<strong>Brotherhood of the Snake</strong>", который вышел в прошлую пятницу на<strong> Nuclear Blast</strong> и Союзе.</p><p>Приобретайте лицензионный digipak в магазине Escapemind.ru: <a href="http://escapemind.ru/goods/TESTAMENT-Brotherhood-Of-The-Snake-2016-digi">http://escapemind.ru/goods/TESTAMENT-Brotherhood-Of-The-Snake-2016-digi</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wkHT86Ei7DY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 03.11.2016 news New video by TESTAMENT
+
+<p>Legendary bay area thrash metal giants<strong> TESTAMENT</strong>, release their brand new album, »<strong>Brotherhood Of The Snake</strong>« this past Friday via Nuclear Blast. The band also kicked off their European tour with AMON AMARTH and label mates GRAND MAGUS the same day.</p><p>Today, they have released the music video for the brand new song, 'The Pale King', here. The hi-tech clip was directed, shot and edited by<strong> Tommy Jones </strong>(SLAYER, DEATH ANGEL, KATAKLYSM) for <strong>Videohammer Studios</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wkHT86Ei7DY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### BILLY SHEEHAN, JAMES MURPHY, JOHN WEST - сольники ?

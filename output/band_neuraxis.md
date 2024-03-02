@@ -63,6 +63,38 @@ Techno Death Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.08.2005 news Новая работа канадских технарей
+
+<P>Канадские мастера techno death metal <STRONG>NEURAXIS</STRONG> готовят к выпуску свое&nbsp;четвертое творение <STRONG>"Trilateral Progression"</STRONG>,&nbsp;дата выхода - 13 сентября на <B>Willowtip Records</B>. Чуть позже, ожидается европейский релиз на <B>Earache Records</B>. В альбом войдут следующие вещи:</P>
+<P><IMG height=255 alt="" hspace=15 src="/images/news_rus/2005.08/9103.jpg" width=250 align=left border=0>1. <B>Introspect</B><BR>2. <B>Clarity (<A href="/samples/n/neuraxis/2005_1622.mp3">mp3</A>)</B><BR>3. <B>Thought Adjuster</B><BR>4. <B>Shatter The Wisdom</B><BR>5. <B>Monitoring The Mind</B><BR>6. <B>A Currative Struggle</B><BR>7. <B>Chamber Of Guardians</B><BR>8. <B>Caricature</B><BR>9. <B>Axioms</B><BR>10. <B>The Apex</B><BR></P>
+Автор: Dimas
+
+### 03.07.2006 reviews Окупившиеся старания
+
+<P>Канадцы Neuraxis со своим новым творением "Trilateral Progression" доказали, что они не собираются засиживаться на "скамейке запасных сборной дэт-метала". Очень технично исполненный, в меру брутальный вариант смертельного жанра ставит их в один ряд с лучшими исполнителями Америки и Европы. Яростные&nbsp;и злые пассажи сочетаются с акустическими проигрышами и мелодичными вставками, никакой тупой долбежки (что является пределом фантазии многих дэт-металических команд) тут и в помине нет. Плюс отличная запись, к которой приложили руку Jason Suecof (Capharnaum, mix), Scott Hull (Pig Destroyer, mastering) и Yannick St Amand (Despised Icon, engineer). Не обошлось и без "гостей-музыкантов", среди которых, в частности, Jason Netherton (Misery Index) и Alex Erian (Despised Icon). Так что ребятки потрудились на славу, выдав один из самых примечательных релизов 2005-года в дэт-метале. Как уже сто раз отмечалось, в этом жанре наивно ожидать каких-то крутых поворотов и нововведений, откровений и сюрпризов. Но ведь всё познается в сравнении, а Neuraxis обошли с "Trilateral Progression" многих своих коллег по цеху. Большого разнообразия песен вы тут, естественно, не найдете, но вышеперечисленные плюсы&nbsp; не оставляют сомнений в том, что этот канадский квинтет еще может заявить о себе на уровне лучших мировых дэт-металических коллективов. Очень достойная работа!</P>
+<P>Альбьом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 02.02.2007 news NEURAXIS покинул вокалист
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Ian Campbell</STRONG> перестал быть вокалистом канадцев <STRONG>NEURAXIS</STRONG>. Группа уже объявила, что сессионником в ближайшие тура с ними поедет&nbsp;<STRONG>Alex Leblanc&nbsp;(ATHERETIC</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 30.01.2009 news Новое видео NEURAXIS
+
+Новое видео <STRONG>NEURAXIS</STRONG> <STRONG>"Darkness Prevails" </STRONG>можно посмотреть ниже.&nbsp; 
+<CENTER><EMBED pluginspage=http://www.macromedia.com/go/getflashplayer align=middle src=http://www.metalinjection.net/tv/flvplayer.swf width=450 height=370 type=application/x-shockwave-flash scale="exactfit" allowScriptAccess="always" allowFullScreen="true" loop="false" bgcolor="#000000" quality="high" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=4abff8b0b61b87597de7"></CENTER>
+Автор: Vit Belov
+
+### 08.12.2010 news Обложка нового NEURAXIS
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2010.12/17762.jpg" width=300 align=right border=0>Новый альбом <STRONG>NEURAXIS</STRONG> <STRONG>"Asylon" </STRONG>выходит в Северной Америке 15 февраля 2011 года. Группа опубликовала обложку, нарисованную <STRONG>Dennis Sibeijn, </STRONG>который также работал и на предыдущем альбоме коллектива. Новая работа канадцев была записана в <STRONG>Wildsound Studio </STRONG>продюсером <STRONG>Chris Donaldson</STRONG> (<B>CRYPTOPSY</B>, <B>THE LAST FELONY</B>, <B>THE AGONIST</B>).</P>
+<P>После выхода пластинки<STRONG> NEURAXIS</STRONG> запланировали тур по своему континету в компании с <STRONG>SEPULTURA</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

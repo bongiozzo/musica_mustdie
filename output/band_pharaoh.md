@@ -72,6 +72,20 @@ Chris Black - drums
 
 * C группой "Control Denied" Tim Aymar (vocals)
 
+## Публикации
+
+### 16.09.2003 reviews Отличный кусок неактуальной музыки
+
+Хороший heavy-metal играют эти американские ребята! Играть нечто подобное в наше время, да ещё и в США по меньшей мере странно, но PHARAOH с успехом&nbsp;делают это. Правда справедливости ради, надо отметить, что альбом вышел в Италии. SAXON, IRON MAIDEN, может быть ещё несколько коллективов, но нового уже давно ничего не было, да, в общем-то, и не надо было никому. Американской группе с Tim Aymar (CONTROL DENIED) за микрофонной стойкой предстоит доказывать свою нужность, нам же остаётся высоко оценить их творчество. Чистый и мягкий звук, запоминающиеся мелодии, хорошее владение инструментами... Всё это добавляет PHARAOH шансов. Что перевесит? А так рекомендую...
+Автор: Vit Belov
+
+### 17.01.2012 news Новый альбом PHARAOH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.01/22677.jpg" width=475 align=right border=0>Американская heavy-metal банда <STRONG>PHARAOH</STRONG> с участием вокалиста <STRONG>CONTROL DENIED Tim Aymar</STRONG> подготовила к выпуска на испанском лэйбле <STRONG>Cruz Del Sur</STRONG> новый альбом "<STRONG>Bury The Light</STRONG>". Работа выйдет 24 февраля, в записи альбома приняли участие <STRONG>Mike Wead (KING DIAMOND)</STRONG> и <STRONG>Jim Dofka (DOFKA)</STRONG>. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Leave Me Here To Dream<BR></STRONG>02. <STRONG>The Wolves<BR></STRONG>03. <STRONG>Castles in the Sky<BR></STRONG>04. <STRONG>The Year of the Blizzard</STRONG><BR>05. <STRONG>The Spider’s Thread</STRONG><BR>06. <STRONG>Cry<BR></STRONG>07. <STRONG>Graveyard of Empires</STRONG><BR>08. <STRONG>Burn With Me<BR></STRONG>09. <STRONG>In Your Hands</STRONG></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

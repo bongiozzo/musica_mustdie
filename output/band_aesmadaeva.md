@@ -40,6 +40,29 @@ Darkness (Stromkern)
 
 * C группой "Visions of Atlantis" Melissa Forlaak (female vocal)
 
+## Публикации
+
+### 20.06.2000 reviews Группа, состоящая из трёх человек: инструменталиста, барабанщика-программиста и девушки
+
+<p>Группа, состоящая из трёх человек: инструменталиста, барабанщика-программиста и девушки с какими-то прикольными именами, типа N. Copernicus. Всё очень загадочно: название пластинки, название альбома, псевдонимы... На деле же это, собрание наворотов, связанных с тяжёлой музыкой и приносящих ей коммерчиский успех. Испытанный коктейль, женское сопрано и электроника. Начинается всё довольно тяжело, но когда вступает драм-машина и электронный штучки становится зябко и противно. Да, девушка поёт очень хорошо, но музыканты загубили всё в корне. На альбоме слишком много атмосферы, которая заставляет задремать, пока это слушаешь. Нет, конечно, всё готически красиво, но электроника всё портит, при чём совсем. Тяжёлые отрывки на этом альбоме есть, но отдают они неживым звучанием. Не знаю, к какому стилю это можно это отнеести, но по большому счёту, это мусор основанный на смеси попсы и тяжёлой музыки. Ставлю довольно большой балл, только из-за красивого вокала.</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 reviews Group consisting of three persons: instumentalist, drummer-programmer and girl with funny names
+
+<p>Group consisting of three persons: instumentalist, drummer-programmer and girl with funny names, such as N. Copernicus. Everything is very mysterious: a title of a plate, title of an album, pseudonyms... On business it, convention of things, connected with heavy music and bringing to it comercial success. The tested cocktail, female-soprano and electronic. Begins it rather hardly, but when the drum - machine enters and electronic things becomes oppositely. Yes, the girl sings very well, but musicians brake everything in the radical. On an album it is too much an atmosphere, which forces to sleep, while to it listen. Is not present, certainly, it is Gothicly beautiful, but the electronics engineering everithing spoils, for want of than absolutely. The heavy fragments on this album are, but they return by lifeless sounding. I do not know, to what style it is, but under the large account, it is garbage based on a mixture of pop and heavy music. I put the rather large number, only because of beautiful vocal.</p>
+
+Автор: Vit Belov
+
+### 02.12.2002 reviews Leave it for mentally retarded
+
+<p>WHAT. THE. HELL. IS. THIS. “The second full length release from this internationally acclaimed composer / musician is so truly great that it is difficult to try and convey the awesome power this album has to draw the listener back again and again”?! What a nonsense. “Words like grandiose, majestic, dark, beautiful, deep, epic, or even “classical-gothic-metal-hybrid” hardly scratches the surface of even draw near to describing it’s driving ferociousness or hidden secrets”?!? I always knew I shouldn’t trust promo sheets, however I never even supposed they could be so far from the real state of things. “This fantastic release will unfortunately go unheard by the mass majority”?!?!? Well, I hope it will! For it’s utterly disgusting. ‘Love or hate it’ kind of CD, y’know. And sorry, I hate it. Don’t even think AESMA DAEVA is some one-man THERION’s twin. Since it isn’t. “Classical-gothic-metal-hybrid”? Well, fuck it. It’s not ‘classical’, it’s not ‘gothic’, it’s not ‘metal’, it’s not ‘hybrid’. More likely, a completely miserable attempt to come up with it. Amateurishly arranged, badly played and horribly produced. Incomprehensible is the word which popped in my mind at once. Once again: fuck it. I don’t need this kind of ‘music’. Leave it for mentally retarded.</p>
+<P> Website: <A HREF="http://rootofallevil.com">http://rootofallevil.com</A></>
+<P>Email: <A HREF="mailto:root@rootofallevil.com">root@rootofallevil.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

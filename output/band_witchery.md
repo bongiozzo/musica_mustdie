@@ -96,6 +96,114 @@ Martin Axe - Drums
 
 * C группой "King Diamond" Sharlee d'Angelo
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<P>Это один из лучших релизов в стиле black-thrash за последние годы. Музыка напоминающая KREATOR и SLAYER образца 1990 года сопровождается black-вокализациями. Скорости воспроизведения варьируются от умеренных до сверхбыстрых. Иногда это напоминает более трэшовый вариант IN FLAMES. Этот альбом также , в какой-то мере, вызывает ностальгию по концу 80-х. Но в то же время, интересен он будет далеко не всем. Поэтому рекомендаций не даю. Если вам захочется это послушать, то вы послушаете. А если вы так и не послушаете его, то вы ничего не потеряете.</P>
+Автор: Dimas
+
+### 05.03.1999 news 
+
+<p>Witchery закончили запись своего мини-альбома "Witchburner". Новая работа выйдет в марте и будет содержать кавер-версии WASP, Black Sabbath, Judas Priest и Accept. Также на альбоме будет три новых песни. В данный момент группа работает над новым полнометражным альбомом "Dead, Hot and Ready".</p>
+
+Автор: Vit Belov
+
+### 01.06.1999 reviews 
+
+<p>Мини-альбом новой команды, состоящей из известных музыкантов. Например, Йенсен замечен по участию в The Haunted и.т.д. Альбом выдержан в том же стиле, что и дебютная работа группы, вышедшая в прошлом году. Это вариацции на тему старого доброго трэша а-ля Kreator и Slayer. Но чем особенно заметен этот альбомчик, так это тем, что он больше, чем наполовину состоит из каверов. Witchery перепели песни таких монстров металла, как WASP, Black Sabbath, Accept, Judas Priest. В общем, довольно интересно послушать эти песни в таком настроении. Несколько собственных песен Witchery тоже не портят картину. Очень интересная работа.</p>
+
+Автор: Dimas
+
+### 21.06.1999 news 
+
+<p>После выхода нового альбома Mercyful Fate "9" в студии появится группа King Diamond. King Diamond сказал, что это будет лучший альбом в его истории, довольно смелое заявление.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Новым басистом Dismember стал Шарли Д'Анджело (Arch Enemy, Witchery, Mercyful Fate). Группа записывает новый альбом, который выйдет осенью.</p>
+
+Автор: Vit Belov
+
+### 20.08.1999 reviews 
+
+<p>За период продолжительностью в один год эта группа выпускает уже третий альбом. Но если на предыдущих двух творениях был далеко не самый свежий материал, то на этом альбоме самая что ни на есть свежатина. В принципе, это здорово заметно. Альбом звучит более технически совершенно, более выверенно, более чисто, в общем всё со знаком плюс , если сравнивать с предыдущими альбомами. Ну а материал выдержан всё в том же духе. Мощнейший быстрый thrash-black с задушенным неистовым вокалом. Группа явно дала понять, что не пойдёт ни на какие эксперименты, а будет и в дальнейшем придерживаться своего фирменного стиля, постоянно его совершенстьвуя. (7,5)</p>
+
+Автор: Dimas
+
+### 03.10.2000 news 
+
+<p> Дэт-трэш легенда Witchery сейчас записывают новый альбом. Записано уже восемь песен, и, по сообщению группы, они немного тяжелее, чем композиции с предыдущего альбома.</p>
+
+Автор: Nybras
+
+### 11.03.2001 news Очарование продолжается...
+
+<p>WITCHERY официально объявили об открытии web-сайта. Добро пожаловать на www.witchery.org. Также команда продолжает работу над новым альбомом с рабочим названием "It's an Early Grave...". Дата релиза - лето 2001. Трек-лист: Wicked, Omens, None Buried Deeper, Inquisition, Called for by Death, Bonemill, The Storm, Shallow Grave, Unholy Wars, Hearse of the Pharaohs (Приглашенный гость Hank Sherman, Mercyful Fate). По словам лидера команды Patrik Jensen (также THE HAUNTED) из команды ушел оригинальный барабанщик Mique. Временная замена ему уже найдена в лице Martin Axe (of Nifelheim/Satanic Slaughter fame).</p>
+
+Автор: Yermola
+
+### 11.03.2001 news WITCHERY news...
+
+<p>Swedish metal godz WITCHERY have launched their own website to promote their forthcoming and long awaited third full length album for Necropolis Records. Their domain, www.witchery.org, launched today as part of the promotion since the band have recorded their newest album. Band leader, and brand new Swedish grammy winner, Patrik Jensen (also of THE HAUNTED) said that drummer Mique left the band. A permanent replacement has been found in Martin Axe (of Nifelheim/Satanic Slaughter fame). Patrik Jensen: "Ah...yes....a new full length album from Witchery. We entered Berno Studio on January 29th and we finished it up on the 10th of February. We're aiming for a release early this summer. There's no definite album title yet, but we are using the name "It's an Early Grave..." at the moment. This specific title refers to how incredibly hard it is to get everyone together to pull off a new album or to tour... So, to get this new album done we've been forced to work around the clock during the few days we had at our disposal... and we are VERY happy with how it turned out and we're very anxious to get this album into YOUR HANDS...!"<BR><BR>The tentative songtitles are as follows for WITCHERY's third album...(in no specific order):<BR>Wicked<BR>Omens<BR>None Buried Deeper<BR>Inquisition<BR>Called for by Death<BR>Bonemill<BR>The Storm<BR>Shallow Grave<BR>Unholy Wars<BR>Hearse of the Pharaohs (Guest appearance by Hank Sherman, Mercyful Fate)"</p>
+
+Автор: Yermola
+
+### 17.10.2001 news THE HAUNTED have announced the dates for their forthcoming US tour ...
+
+<p>Swedish thrashers THE HAUNTED have announced the dates for their forthcoming US tour with WITCHERY (THE HAUNTED guitarist Jensen's other band), CATASTROPHIC (featuring ex-OBITUARY guitarist Trevor Peres) and MARTYR AD. The details are as follows: <br> Nov. 02 – South Amboy, NJ - Krome <br> Nov. 03 - Worcester, MA - Palladium <br> Nov. 04 - New London, CT - El N Gee <br> Nov. 05 - Alexandria, VA - Jaxx Night Club <br> Nov. 06 - Winston-Salem, NC - Ziggy's <br> Nov. 07 - Cleveland, OH - Agora <br> Nov. 08 - Detroit, MI - I Rock <br> Nov. 09 - Aurora, IL - Riley's Rock House <br> Nov. 10 - Minneapolis, MN - 1st Avenue <br> Nov. 11 - Milwaukee, WI - The Rave Bar <br> Nov. 13 - Denver, CO - Ogden Theatre <br> Nov. 15 - Seattle, WA - Graceland <br> Nov. 16 – Vancouver, B.C. - Studabakers <br> Nov. 17 - Portland, OR - Meow Meow <br> Nov. 18 - San Francisco, CA - The Pound <br> Nov. 19 - Los Angeles, CA - The Whiskey <br> Nov. 20 - Santa Ana, CA - Galaxy <br> Nov. 21 - Tempe, AZ - Bostons <br> Nov. 23 - Arlinton, TX - Dream World <br> Nov. 24 - Houston, TX - Cardi's<br><br> More dates will be announced shortly. In other news, THE HAUNTED are reportedly mixing a live recording of the group’s performances in Japan for a live CD that will allegedly accompany a reissue of the band’s acclaimed THE HAUNTED Made Me Do It release, which is due out shortly. All the mixing sessions are taking place at the Danish studio of KONKHRA mainman Anders Lundemark, Starstruck. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.07.2003 news Новости от WITCHERY
+
+<p>Шведская группа WITCHERY приступила к записи своего нового альбома, выход которого планируется в начале 2004 года.</p>
+
+Автор: Dimas
+
+### 26.01.2005 news Новости от WITCHERY
+
+<P>Появились подробности о новом альбоме группы<STRONG> WITCHERY,</STRONG> в состав которой входят гитарист <STRONG>Patrik Jensen</STRONG>&nbsp;(<B>THE HAUNTED</B>) и басист <STRONG>Sharlee D'Angelo (KING DIAMOND, MERCYFUL FATE). </STRONG>Он уже записан, сведен, отмастерен и готов к выпуску, хотя и не имеет пока окончательного названия. Альбом был записан в шведской <B>Berno Studios</B>, прошел микширование и мастеринг под руководством <B>Tue Madsen</B>&nbsp;в датской <B>Antfarm</B> <STRONG>studios</STRONG>. Гостевое участие в его записи приняли бывший гитарист <STRONG>THE CROWN</STRONG> <STRONG>Marcus Sunesson,</STRONG> гитарист <STRONG>MERCYFUL FATE</STRONG> <STRONG>Hank Shermann </STRONG>и вокалист<STRONG>&nbsp;SEANCE</STRONG> <STRONG>Johan Larsson. </STRONG>В&nbsp;альбом войдут следующие вещи:<BR>1. <B>Disturbing the Beast</B><BR>2. <B>Stigmatized</B><BR>3. <B>Draw Blood</B><BR>4. <B>Ritual</B><BR>5. <B>Ashes</B><BR>6. <B>Plague Rider</B><BR>7. <B>Damned in Hell</B><BR>8. <B>Crossfixation</B> <BR>9. <B>The Wait of the Pyramids</B> <BR>10. <B>Immortal Death</B> <BR>11. <B>Styx</B><BR>12. <B>Warpiece</B><BR>13. <B>Cannonfodder</B><BR>На данный момент группа находится в поисках лейбла для выпуска своего нового альбома. Заинтересованным - просьба писать предложения по адресу <A href="mailto:info@talent-trust.se">info@talent-trust.se</A></P>
+Автор: Dimas
+
+### 17.03.2007 reviews Evilюция Потрошителя
+
+<P>Давненько, а точнее пять лет, ничего не было слышно об этой шведской звездной формации, в составе которой <STRONG>Patrik Jensen</STRONG> из <STRONG>THE HAUNTED</STRONG> и <STRONG>BRUJERIA</STRONG>, <STRONG>Sharlee D'Angelo</STRONG> из <STRONG>ARCH ENEMY</STRONG> и <STRONG>MERCYFUL FATE</STRONG>, <STRONG>Martin Axe</STRONG>&nbsp; из <STRONG>BLOODBATH</STRONG> и <STRONG>OPETH</STRONG>, а также бывшие музыканты<STRONG> SEANCE</STRONG> и<STRONG> SATANIC SLAUGHTER.</STRONG>&nbsp;Прежде они радовали нас бескомпромиссным и олдскульным thrash metal, смешивающим европейские и американские традиции. Их новая работа более серьезная, обстоятельная и с современным звучанием. Здесь преобладает не скоростной, а среднетемповый материал с тяжелыми риффами, без того крышесносительного угара, что был раньше. Иногда, даже прослеживается атмосфера последних работ <STRONG>DIMMU BORGIR</STRONG>. Именно атмосфера, не более. Хорошо это или плохо, решать каждому в отдельном случае. Лично я, ждал продолжения того, что было раньше. Это не тот коллектив, от которого ждешь развития и прогрессивных идей. Тем не менее, очевидно, что подобная пятерка профессионалов не могла записать совсем уж отвратный материал. По качеству и технике он просто безупречен. Вот еще бы сделать его получасовым и совсем было бы хорошо. Рекомендую всем поклонникам среднетемпового атмосферного heavy metal.</P>
+<P>Диск предоставлен компанией <STRONG>MYSTIC EMPIRE</STRONG></P>
+Автор: Dimas
+
+### 17.04.2010 news WITCHERY вернулись
+
+<P>Новый альбом <STRONG>WITCHERY</STRONG> <STRONG>"Witchkrieg" </STRONG>выйдет в июле на <STRONG>Century Media</STRONG>. Этот диск станет дебютом для нового вокалиста группы <STRONG>Legion</STRONG> (<B>MARDUK</B>, <B>DEVIAN</B>).&nbsp;Пластинка была сведена в <STRONG>Antfarm</STRONG> studios&nbsp;продюсером <B>Tue Madsen</B> (<B>DARK TRANQUILLITY</B>, <B>THE HAUNTED</B>, <B>HEAVEN SHALL BURN</B>). Новую вещь <STRONG>"The Reaver"&nbsp;</STRONG>с участием гитаристов<STRONG> EXODUS</STRONG> <STRONG>Gary Holt</STRONG>&nbsp;и <B>Lee Altus</B> можно послушать на <STRONG>MySpace</STRONG>:&nbsp;<A href="http://www.myspace.com/witcherytheband">http://www.myspace.com/witcherytheband</A></P>
+Автор: Vit Belov
+
+### 12.11.2010 reviews Возвращение «приблэкованных» шведских трэшеров
+
+<P>Шведская группа WITCHERY была одной из самых активных на европейской метал-сцене на рубеже веков. Такое впечатление складывалось от того, что лидер коллектива гитарист Jensen активно использовал в своей раскрутке тогда ещё новый способ – Интернет. Будучи связанным с тяжёлыми новостями, я постоянно наталкивался на упоминания о WITCHERY. Правда, в ту пору шведская группа привлекала внимание больше тем, что Jensen играл в THE HAUNTED, а THE HAUNTED считались наследниками почивших AT THE GATES.</P>
+<P>Собственно было, что сказать и о музыке. Первые релизы WITCHERY представляли тогда ещё невиданную брутальную форму thrash-metal. Музыканты стали одними из первых в этом жанре, который затем на некоторое время занял такие же позиции, как metalcore сейчас. Мощные риффы с брутальным, практически «блэковым» вокалом, натуральные и постоянные переходы от thrash-metal к death-metal, а от death-metal к old-school black-thrash-metal завораживали своей злобной энергетикой. Потом популярность стиля, а следом и WITCHERY пошла на спад, и группа на некоторое время прекратила своё существование. Но в этом году после трёхлетнего перерыва коллектив неожиданно вернулся с новым вокалистом. Да с каким!!! Новым фронтмэном стал сатанист Legion, известный широкой публике по работе в MARDUK. Теперь творчество WITHCERY окончательно приняло антихристианско-инфернальный характер. Забавно, что музыка группы изменилась несильно, но вокал Легиона, как оказалось, подходит к ней идеально. Чтобы сделать возвращение боле шумным, шведы привлекли к записи очень известных приглашённых музыкантов, к примеру Kerry King из SLAYER и Gary Holt из EXODUS.</P>
+<P>Хороший, очень качественный и забойный альбом для всех поклонников самых брутальных вариантов thrash-metal. Эта музыка не слишком запоминается своими мелодиями, но, безусловно, запоминается своим драйвом.</P>
+Автор: Vit Belov
+
+### 16.07.2011 news Caligula передумал уходить со сцены
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист <STRONG>DARK FUNERAL</STRONG> <STRONG>Emperor Magus Caligula </STRONG>присоединился к<STRONG> WITCHERY</STRONG>, сменив у микрофона бывшего фронтмена <STRONG>MARDUK Legion</STRONG>. Интересно, что музыкант объявил об уходе не только из <STRONG>DARK FUNERAL</STRONG>, но и из тяжёлой музыки вообще. Это решение в прошлом году он объяснял собственной женитьбой.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний на сегодня альбом <STRONG>WITCHERY</STRONG> <STRONG>"Witchkrieg" </STRONG>вышел в прошлом году на <STRONG>Century Media/Mazzar</STRONG>.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=556 src="/images/news_rus/2011.07/20170.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 21.10.2016 news WITCHERY опубликовали первый сингл с нового альбома
+
+<p>Новый альбом <strong>WITCHERY “In His Infernal Majesty’s Service”</strong> выйдет 25 ноября на<strong> Century Media</strong>. В лирик-видео ниже группа опубликовала первый сингл с этой работы "<strong>Nosferatu</strong>". </p><p>Трек лист:</p><p>1. Lavey-athan<br>2. Zoroast<br>3. Netherworld Emperor<br>4. Nosferatu<br>5. The Burning Of Salem<br>6. Gilded Fang<br>7. Empty Tombs<br>8. In Warm Blood<br>9. Escape From Dunwich Valley<br>10. Feed The Gun<br>11. Oath Breaker</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ZyyZlSw0yNs" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 21.10.2016 news WITCHERY launch first song “Nosferatu” off new album
+
+<p>Swedish blackened Metallers WITCHERY are gearing up for the release of their long-awaited 6th studio album, programmatically entitled “In His Infernal Majesty’s Service”, all across the world on November 25th, 2016 via Century Media Records.<br>&nbsp;<br>Therefore, the album’s first new track, “Nosferatu”, is being launched today via a lyric video as well as on all major digital outlets as online single. Check it out in the clip produced by Cloud Music Typography here:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ZyyZlSw0yNs" frameborder="0" allowfullscreen></iframe></p><p>Track list:</p><p>1. Lavey-athan<br>2. Zoroast<br>3. Netherworld Emperor<br>4. Nosferatu<br>5. The Burning Of Salem<br>6. Gilded Fang<br>7. Empty Tombs<br>8. In Warm Blood<br>9. Escape From Dunwich Valley<br>10. Feed The Gun<br>11. Oath Breaker</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -58,6 +58,16 @@ heavy-metal from Germany
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.06.2011 news STEELPREACHER выпустили четвёртый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.06/19808.jpg" width=200 align=right border=0>Пивное heavy-metal трио <STRONG>STEELPREACHER</STRONG> в мае выпустило четвёртый альбом "<STRONG>Hellraiser</STRONG>". "<EM>Если вы поклонники IRON MAIDEN, JUDAS PRIEST, ACCEPT и... METALUCIFER, эти немецкие животные для вас</EM>", - говорится в пресс-релизе. Трек-лист:</FONT></P>
+<P>1. <STRONG>The Dreamweaver</STRONG>&nbsp; 04:32&nbsp;&nbsp;&nbsp; <BR>2. <STRONG>We want Metal (We want beer)</STRONG>&nbsp; 03:49 <BR>3. <STRONG>Give 'em hell</STRONG>&nbsp; 04:05&nbsp;&nbsp; <BR>4. <STRONG>Forces of hell</STRONG>&nbsp; 05:26&nbsp;&nbsp;&nbsp; <BR>5. <STRONG>Route 666</STRONG> (re-recording)&nbsp; 04:51&nbsp; <BR>6. <STRONG>To hell and back</STRONG>&nbsp; 04:23 <BR>7. <STRONG>Locked and loaded</STRONG>&nbsp; 04:32<BR>8. <STRONG>Atlantean Dawn</STRONG>&nbsp; 04:18&nbsp;&nbsp;&nbsp; <BR>9. <STRONG>Hellraiser</STRONG>&nbsp; 04:44 <BR>10. <STRONG>Bitchcraft&nbsp;</STRONG> 03:31&nbsp;&nbsp; <BR>11. <STRONG>Heavy Metal Hunter</STRONG> (Metalucifer cover)&nbsp; 05:02 </P>
+<P><A href="http://www.steelpreacher.de/">http://www.steelpreacher.de/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

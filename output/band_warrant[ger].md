@@ -43,6 +43,17 @@ The Rack (Live)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.09.2014 news Немцы WARRANT выпускают первый альбом за 30 лет
+
+<P>Немецкий speed-metal коллектив <STRONG>WARRANT</STRONG> выпускает 31 октября на<STRONG> Pure Steel Records</STRONG> первый студийный альбом за последние три десятилетия, получивший название "<STRONG>Metal Bridge</STRONG>".&nbsp;Трек-лист:</P>
+<P><STRONG>"Intro"<BR>"Asylum"<BR>"Come And Get It"<BR>"You Keep Me In Hell"<BR>"Blood In The Sky"<BR>"Face The Death"<BR>"All The Kings Horses"<BR>"Nyctophobia"<BR>"Helium Head"<BR>"Don't Get Mad Get Even"<BR>"Eat Me Alive"<BR>"Immortal"<BR>"Ordeal Of Death 2014"<BR>"The Enforcer 2014"<BR>"Labyrinth Of The Lost"</STRONG>&nbsp;</P>
+<P>В составе группы из классического состава остался только вокалист-гитарист <STRONG>Jorg Juraschek</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.09/27317.jpg" width=400 height=400></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

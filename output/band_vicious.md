@@ -34,6 +34,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.03.2004 news Sound Riot Records to release debut VICIOUS album
+
+<P><B><IMG height=281 alt="" hspace="15" vspace="5" src="/images/news/2004.03/6269.jpg" width=283 align="right" border=0>Sound Riot Records</B> will release debut album of melodic death/thrash band from Sweden <B>VICIOUS "Vile, Vicious & Victorious" </B>on 22nd of March. Vocal on thic album was recorded by <B>Henrik Wenngren</B> of <SPAN style="COLOR: #ffffff"><B>SKYFIRE</B>. Also guest appearance by <B>P. Kuusisto (CARNAL FORGE), M. Sцderman (LOST SOULS)</B> and <SPAN lang=EN-GB><B>Tony Freed (GODHATE/THRONEAEON</B>). Track-list:</SPAN></SPAN><SPAN style="COLOR: #ffffff"><SPAN lang=EN-GB><SPAN lang=EN-GB><SPAN lang=EN-GB>&nbsp;</P>
+<DIV><B>01. Beast</B></DIV>
+<DIV><B>02. Trigger Needs Some Action</B></DIV>
+<DIV><B>03. High On Fire<BR>04. Deadicate<BR>05. Life Corrupted<BR>06. Deathrash</B></DIV>
+<DIV>
+<DIV><B>07. Boots Of Led</B></DIV></DIV>
+<DIV><B>08. A Vicious Mind<BR>09. The Feeder Of Evil</B></DIV></SPAN></SPAN></SPAN></SPAN>
+Автор: Vit Belov
+
+### 31.05.2005 reviews SMDM покоряет Португалию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не ожидал подобного релиза от португальской конторы Sound Riot. Шведский коллектив VICIOUS не изобретает велосипед и играет мощный вариант мелодичного death-metal, распространённого у них на Родине. Этот стиль никак не являлся определяющим в работе Sound Riot, но неважно...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Vile, vicious & victorius" - трэшовое название, не правда ли? Я думаю, Вам не слишком придётся напрягаться в поисках элементов этого стиля на этом альбоме. Melodic death&nbsp;от VICIOUS&nbsp;построен на чётких практически thrash-риффах.&nbsp;Кроме этого, группа не брезгует очень чётковыделенными соляками, которые также свойственны "самому металлическому" стилю металла...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Безусловно здесь никак не обходится&nbsp;без SMDM, но, признаться, явных заимствований, которые многих раздражают я здесь не заметил. Стоит также отметить участие в записи пластинки Petri Kuusisto (CARNAL FORGE) и Tony Freed (GODHATE/ex-THRONEAEON), а также мастеринг от Peter In de Betou. В итоге имеем качественную, мелодичную и динамичную пластинку, которая придётся по вкусу любителям стиля.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -50,6 +50,9 @@ Hans-Peter Frey - Drums
 * C группой "Iron Savior" Tomas Stauch
 * C группой "Blind Guardian" Andr&eacute; Olbrich
 
+## Публикации
+
+
 ## Обсуждения
 
 

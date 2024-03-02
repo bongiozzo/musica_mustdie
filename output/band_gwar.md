@@ -176,6 +176,111 @@ Mastered By Howie Weinberg Of Masterdisk Inc.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.01.2002 news God Forbid Tour with GWAR and Goatwhore ...
+
+<p>Fresh off of a tour with Hatebreed, Poison The Well and Sworn Enemy, God Forbid will now be the direct support for GWAR. Soilent Green, originally scheduled to take part in the tour, have been replaced by Goatwhore following the body and equipment damage Soilent Green incurred in a van accident a few months ago. Some of the dates/venues have been shuffled since the last time I sent these out -- here's the latest list. More dates/venues to be announced shortly. <BR><BR> GOD FORBID with GWAR & GOATWHORE <BR> *** indicates change <BR><BR> 1/16 Norfolk, VA Norva Theater <BR> 1/17 Winston-Salem, NC Ziggy's <BR> 1/18 Myrtle Beach, SC House Of Blues <BR> 1/19 Atlanta, GA The Chamber *** <BR> 1/20 Tallahasse, FL Floyd's Music Store <BR> 1/21 Jacksonville, FL Marquee <BR> 1/23 Boynton Beach, FL Orbit <BR> 1/24 Ft.Myers, FL Neptunes <BR> 1/25 Tampa, FL Masquerade <BR> 1/26 Lake Buena Vista, FL House Of Blues <BR> 1/28 New Orleans, LA House Of Blues <BR> 1/29 Houston, TX Engine Room <BR> 1/30 Dallas, TX Deep Ellum Live <BR> 2/01 Lubbock, TX The Pavillion *** <BR> 2/06 Santa Ana, CA Galaxy Concert Theatre <BR> 2/08 Ventura, CA Ventura Theater *** <BR> 2/09 Petaluma, CA Phoenix Theater *** <BR> 2/11 Portland, OR Roseland Theatre <BR> 2/12 Seattle, WA Showbox <BR> 2/15 Denver, CO Ogden Theatre <BR> 2/19 Minneapolis, MN First Avenue <BR> 2/20 Milwaukee, WI The Rave <BR> 2/21 Chicago, IL Vic Theatre <BR> 2/22 Detroit, MI Harpo's <BR> 2/23 Cleveland, OH Agora Theatre <BR> 2/24 Columbus, OH Newport Music Hall *** <BR> 2/27 Pittsburgh, PA Metropol *** <BR> 2/28 Philadelphia, PA Electric Factory *** <BR> 3/02 Worcester, MA Palladium ***<BR></p>
+
+Автор: Yermola
+
+### 14.09.2004 reviews Коррозия Металла по-американски.
+
+<P>Название GWAR расшифровывается так: God What an Awful Racket (Боже, что за ужасный грохот). Легенда гласит, что участники группы – межпланетная мразь самого подлого пошиба, пришельцы, прибывшие на Землю, чтобы сексуально поработить род человеческий. На самом деле всё не так романтично: группу создали студенты-гуманитарии Университета Содружества Вирджинии. Ребята придумали себе звучные псевдонимы (подпевалка Даниэль Стамп, к примеру, стала Хитроменструальной Целкой – Slymenstra Hymen), и замутили дикий замес из самого примитивного пауэра и трэша, приправив свое варево изрядной щепотью веномозного угара. На сцене группа выступала в причудливых костюмах, сделанных из латекса и папье-маше, а само действо представляло собой американизированный вариант классического концерта Коррозии Металла. И даже в музыке этих коллективов было что-то общее. </P>
+<P>Scumdogs Of The Universe – второй альбом группы. Любая из песен – потенциальный хит. Несложные, запоминающиеся с первого раза мелодии, припевы, которым легко и весело подпевать дурниной, прыгая козликом и радостно мотая головой. Metal Blade наварила на этой пластинке немало денег – дистрибуцией Scumdogs Of The Universe занимались мегамажорные Warner Bros. Только в Америке пластинка выдержала четыре переиздания. Европейцы, надо сказать, отнеслись к GWAR несколько скептически, но в России, думается, публика будет более благосклонна к группе. У нас ведь так любят Коррозию Металла… </P>
+<P>Диск выпущен по лицензии компанией Фоно </P>
+Автор: Ruslan
+
+### 14.09.2004 reviews Америку не уничтожили, но пошумели изрядно.
+
+<P>«Америка должна быть уничтожена». Патриотичное название, правда? Не удивительно, что власть предержащие симпатий к группе не питали и, при каждой возможности старались устроить группе какую-нибудь пакость. В Северной Каролине, к примеру, вокалиста Урунгуса оштрафовали за непристойное поведение на сцене (говорят, во время действа он, таки да, вынимал и показывал) и запретили группе выступать в штате в течение года, а в Джорджии местная полиция сорвала один из концертов. На растущей популярности группы эти мелкие пакости не отразились, GWAR активно концертировали и продавали свои альбомы сотнями тысяч экземпляров. В 1993 году группа удостоилась национальной премии Грэмми за видео «Фаллос в Стране чудес». </P>
+<P>Третий альбом группы, изданный в сентябре 1991 года, не стал особым откровением: всё те же трэшевые попевки с нарочито глупыми, а местами циничными текстами. Звук, правда, несколько уплотнился, но и только. Впрочем, в Штатах диск пользовался не меньшей популярностью, чем Scumdogs. Переслушивал пластинку и думал: почему в России GWAR так и не стали, что называется, «культовой группой»? Мелодичные, запоминающиеся песни. Ломовой звук. Даже с точки зрения дня сегодняшнего музыка группы не воспринимается, как архаика. Чего ещё-то нужно? Серьёзности? Хотя… Мы же не удивляемся тому, что Коррозию Металла не знают в Америке… </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 14.05.2009 news GWAR вновь на Metal Blade
+
+<P><STRONG>GWAR </STRONG>заключили контракт с <STRONG>Metal Blade</STRONG>. Новый альбом группы "<STRONG>Lust In Space</STRONG>" выйдет в августе. Трэк-лист:</P>
+<P>01.<STRONG> Lust in Space</STRONG><BR>02. <STRONG>Let Us Slay</STRONG><BR>03. <STRONG>Damnation Under God</STRONG><BR>04. <STRONG>The UberKlaw</STRONG><BR>05. <STRONG>Lords and Masters</STRONG><BR>06. <STRONG>Metal Metal Land</STRONG><BR>07. <STRONG>The Price of Peace</STRONG><BR>08. <STRONG>Where is Zog?<BR></STRONG>09. <STRONG>Make a Child Cry</STRONG><BR>10. <STRONG>Release the Flies</STRONG><BR>11. <STRONG>Parting Shot</STRONG><BR>12. <STRONG>GWARnography</STRONG> *</P>
+<P>* Bonus track для покупателей on-line</P>
+Автор: Vit Belov
+
+### 24.07.2009 news GWAR на AFM
+
+<P>Новый альбом <STRONG>GWAR "Lust in Space" </STRONG>в Европе выйдет на <STRONG>AFM</STRONG> 21 августа. В США пластинка появится на три дня раньше через <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.01.2010 reviews Любителям «фриков»
+
+<P>Извращенцы из группы GWAR возвращаются к нам со своим новым альбомом. Я всегда с подозрением относился к группам, члены которых выступают в масках. Эти подозрения не позволяли мне полюбить SLIPKNOT, которые впечатлили меня своим последним альбомом. Может стоило и раньше послушать GWAR?</P>
+<P>Думаю, не стоило. Утверждается, что этот коллектив играет thrash-metal. Всё возможно, но я подобную музыку thrash-metal не называл бы. Утяжелённый heavy-metal американского образца с мелодиями в стиле punk и отвратительно тупым текстом. Этот самый текст, который кому-то напоминает времена молодости, когда артисты, шокирующие публику, расходились «на ура», и представляет главное достоинство GWAR в глазах их поклонников. Так как нам, узколобым россиянам, неохота слушать и разбирать лирику, повествующую о злобных инопланетянах, порабощающих наш разум, этот несомненный плюс теряет для нас всякую ценность. С музыкальной же точки зрения этот коллектив и его новый альбом “Lust In Space” не представляет никакого интереса. Забавно, что это поняли даже на Metal Blade, выпустив этот диск только для Америки. GWAR никогда не перейдут океан, их завоевания ограничатся только США и окрестностями.</P>
+<P>Пластинка для людей, обожающих «фриков». Им есть, где разгуляться. Поклонники тяжёлой музыки могут легко этот самый GWAR пропускать мимо ушей.</P>
+Автор: Vit Belov
+
+### 28.10.2010 news &quot;Зомби маршируют&quot; от GWAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Костюмированная thrash-metal команда <STRONG>GWAR </STRONG>опубликовала свой новый клип на песню <STRONG>"Zombies, March!".</STRONG></FONT></P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/7Uid93jUrf0&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/7Uid93jUrf0&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.11.2010 news CRADLE OF FILTH попали в чарты Billboard
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Darkly, Darkly, Venus Aversa"</STRONG>, вышедший в Штатах на прошлой неделе, попал в чарты <STRONG>Billboard 200</STRONG> на 99-ое место. В первую неделю было продано 5800 копий, что почти в два раза меньше, чем у предшественника <STRONG>"Godspeed On The Devil's Thunder"</STRONG>, проданного тиражом 11000 копий.</P>
+<P>Новый альбом <STRONG>GWAR</STRONG> <STRONG>"Bloody Pit Of Horror" </STRONG>был продан тиражом 2800 копий. Также первая неделя продаж случилась у нового альбома <STRONG>ATHEIST "Jupiter"</STRONG>, который продался удручающим тиражом 500 копий. Более приемлемый результат продемонстрировали<STRONG> HELLOWEEN</STRONG> с новым хитом "<STRONG>7 Sinners</STRONG>" - продано 1900 копий. </P>
+<P>Хороших продаж добились со своим вторым альбомом <STRONG>"Contagion"</STRONG>&nbsp;<STRONG>OCEANO</STRONG> - 3000 копий. </P>
+Автор: Vit Belov
+
+### 03.12.2010 news GWAR &quot;убили&quot; Sarah Palin
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В течение всей своей карьеры инопланетные "трэшеры" <STRONG>GWAR</STRONG> на своих концертах делают мир чище, убивая различный деятелей политики и культуры. В последнем туре <STRONG>"Bloody Tour of Horror" </STRONG>досталось певице <STRONG>Lady Gaga</STRONG> и бывшему кандидату в вице-президенты США от республиканской партии <STRONG>Sarah Palin</STRONG>. Как это происходит на шоу <STRONG>GWAR</STRONG> можно посмотреть в ролике, представленном ниже.&nbsp;Республиканская партия высказала своё неудовольствие происходящим.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист<STRONG> Oderus Urungus</STRONG> ответил на эти нападки: "<EM>Куда катится американская политика? Мы "убивали" всех президентов США, начиная с Рейгана, независимо от политической принадлежности,&nbsp;и лишь сейчас нам высказали протест. И кто? Этот человек даже не&nbsp;занимает никаких постов. И эту женщины воспринимают как потенциального кандидата в президенты?</EM>"</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/D6VCQgA9FnI&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/D6VCQgA9FnI&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.12.2010 news GWAR продолжают прикалываться
+
+<P>Группа инопланетных гуманоидов <STRONG>GWAR </STRONG>разместила в Интернет ролик, в котором "уродцы" празднуют Рождество.</P>
+<P>
+<CENTER>
+<OBJECT id=1968895 type=application/x-shockwave-flash height=289 alt="EMBED-Christmas With Gwar free videos" width=464 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="movie" VALUE="http://embed.break.com/MTk2ODg5NQ=="><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://embed.break.com/MTk2ODg5NQ==" type="application/x-shockwave-flash" allowScriptAccess=always width="464" height="289"></embed></OBJECT><BR><FONT size=1><A href="http://www.break.com/break-originals/other-funny-stuff/christmas-with-gwar-1968895" target=_blank>EMBED-Christmas With Gwar</A> - Watch more <A href="http://www.break.com/" target=_blank>free videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.06.2013 news GHOUL: клип &quot;Americanized&quot;
+
+<P>Американские весельчаки&nbsp;<STRONG>GHOUL</STRONG>, выпустили видеоклип на песню <STRONG>"Americanized"</STRONG>. Гостевое участие на этом треке принял <STRONG>Oderus Urungus</STRONG> (вокалист <STRONG>GWAR</STRONG>), сама же песня является кавером на трек всё тех же <STRONG>GWAR</STRONG>,&nbsp;вошедший в&nbsp;их&nbsp;дебютный альбом 1988 года <STRONG>"Hell-O"</STRONG>.&nbsp;&nbsp;</P>
+<P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/fglfnPrfLvc" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 24.03.2014 news GWAR: умер David Brockie 
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.03/26771.jpg" width=300 height=299>Печальная новость пришла к нам этим днём - в минувшее воскресенье был найден&nbsp;мёртвым&nbsp;<STRONG>David Brockie</STRONG> (известный под сценическим псевдонимом "<STRONG>Oderus Urungus"</STRONG>), один из основателей и лидер американского ансамбля <STRONG>GWAR</STRONG>.&nbsp;&nbsp;</P>
+<P>Причина смерти пока не известна. Ему было 50 лет.</P>
+<P>Группа <STRONG>GWAR</STRONG> была образована в 1984 году в американском городе Ричмонд. В прошлом году у них вышел 13 альбом.</P>
+Автор: Headcrusher
+
+### 22.05.2014 news GWAR в пластмассе
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.05/27012.jpg" width=400 height=453>Компания <STRONG>Aggronautix</STRONG> в содружестве со <STRONG>Slave Pit Inc.</STRONG>, выпускает набор фигурок <STRONG>GWAR</STRONG> под названием&nbsp;<STRONG>"The Jaws Of Death"</STRONG>. В него войдут фигуры двух участников&nbsp;коллектива - <STRONG>Oderus Urungus</STRONG> (настоящее имя - <STRONG>David Brockie*</STRONG>)<STRONG> </STRONG>и <STRONG>Balsac</STRONG>.</P>
+<P><STRONG>Oderus</STRONG> - ведущий вокалист&nbsp;<STRONG>GWAR</STRONG> и умелый меченосец, будет&nbsp;6.5 дюймов (16.5 см.) в высоту, тогда как&nbsp;<STRONG>Balsac</STRONG>, гитарист <STRONG>GWAR</STRONG>,&nbsp;будет высотой в&nbsp;7.5 дюймов&nbsp;(19.05 см.). </P>
+<P>Часть вырученных средств с продаж этого набора пойдёт в Фонд Дейва Броки (<STRONG>Dave Brockie Fund</STRONG>), который планирует заниматься продвижением музыки, картин и других проявлений исскуства. Фонд будет стремиться поощрять перспективные таланты, а также хранить наследие работ, созданных Дейвом.&nbsp;Страница фонда: <A href="http://www.gwar.net/dave-brockie-fund">www.gwar.net/dave-brockie-fund</A></P>
+<P>100 наборов этой серии, будут подписаны лично участниками <STRONG>GWAR</STRONG> и появятся в продаже только на официальном сайте &nbsp;<A href="http://www.gwar.net/">www.gwar.net</A></P>
+<P>Предварительный заказ набора&nbsp;уже&nbsp;доступен по ссылке: <A href="http://www.aggronautix.com/products.cfm?productid=109">www.aggronautix.com/products.cfm?productid=109</A><BR>Примерная дата отправки - конец июля 2014 г.</P>
+<P><STRONG>*</STRONG><EM>23 марта 2014&nbsp;г.&nbsp;Дейвид Броки был найден мёртвым у себя дома. Причина его&nbsp;смерти, на данный момент, не установлена.</EM></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Кому нравятся Slipknot и GWAR?

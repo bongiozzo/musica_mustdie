@@ -68,6 +68,33 @@ Rob Urbinati - Guitars & Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2009 news Возвратившиеся SACRIFICE пишут альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=239 alt="" hspace=0 src="/images/news_rus/2009.02/13520.jpg" width=360 align=left border=5>Реактивированные канадские 'трэшеры' <STRONG>SACRIFICE</STRONG> записывают новый альбом <STRONG>"The Ones I Condemn" </STRONG>в студии <STRONG>Rouge Valley Studio. </STRONG>Пластинка выйдет весной на бразильском лэйбле <STRONG>Marquee Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа также планирует выпустить DVD <STRONG>"Live Reanimation"</STRONG> с записью ре-юнион шоу в сентябре 2006 года, где современный состав исполнил классику группы с альбомов <STRONG>"Torment In Fire"</STRONG> (1986), <B>"Forward To Termination"</B> (1987)&nbsp;и <B>"Soldiers of Misfortune"</B> (1990).<BR></P></FONT>
+Автор: Vit Belov
+
+### 18.06.2009 news SACRIFICE: новая песня, трэк-лист и оформление альбома.
+
+<P><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.06/14189.jpg" width=400 align=right vspace=5 border=0>Канадский ВИА <STRONG>SACRIFICE</STRONG> выложил очередную песню с, готовящегося к выходу, нового альбома.<BR>Трек&nbsp;под названием <STRONG>Hiroshima</STRONG> можно прослушать по следующему адресу: <A href="http://www.myspace.com/sacrificecanada">http://www.myspace.com/sacrificecanada</A><BR>Так же стало известно, что&nbsp;лейблом <STRONG>Marquee Records</STRONG> будет выпущено лимитированное (2000 копий) издание альбома в слипкейсе, дополненное пятью бонус трэками.</P>
+<P>Трек-лист:</P>
+<P>01. We Will Prevail<BR>02. The Ones I Condemn<BR>03. Give Me Justice<BR>04. The Great Wall<BR>05. Tetragrammaton<BR>06. Atrocity<BR>07. Hiroshima<BR>08. The Devil’s Martyr (feat. Jed Simon and Dave Hewson)<BR>09. Ultimate Power Corrupts<BR>10. Desolation Alive</P>
+<P>Бонус треки:</P>
+<P>11. The Devil’s Martyr (Rob Urbinati's vocals) <BR>12. Burned At The Stake (Rerecording 2009) <BR>13. The Entity (Rerecording 2009) <BR>14. Forever Enslaved (Live 2007) <BR>15. Necronomicon (Live 2007)</P>
+Автор: Headcrusher
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

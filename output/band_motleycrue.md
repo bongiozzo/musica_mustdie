@@ -146,6 +146,219 @@ Vince Neil - Vocals
 * C группой "Methods of Mayhem" Tommy Lee
 * C группой "Brides Of Destruction" Nikki Sixx
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Motley Crue и Scorpions в июле-августе проедутся по США и Канаде.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Скандально известный барабанщик Томми Ли покинул Motley Crue, где он проиграл 18 лет. Причиной этого, стало желание Томми быть хорошим отцом.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Во время одного из концертов на той неделе басиста Motley Crue Никки Сикса арестовали за поощерение насилия. Полицейский офицер заявил, что Сикс плохо влиял на 8-тысячнуй аудиторию. Когда остальные три участника группы попытались помешать настырному лейтенанту, он их тоже быстренько арестовал.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Ники Сикс обратился с официальным заявлением по поводу группы Томми Ли Methods Of Mayhem. Вкратце, он выразил надежду на то, что Томми будет сопутствовать удача и просил никого на него не наезжать. В частности, группу Limp Bizkit.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Motley Crue записывают новый альбом, первый с новым барабанщиком Рэнди Кастиллио.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Motley Crue продолжают работу над новой пластинкой с барабанщиком Рэнди Кастиллио. Никки Сикс сообщил, что новый альобом будет избавлен от новомодных веяний, та будут только бас, гитара, вокал и барабаны.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Motley Crue находятся в студии вместе с продюсеров Майком Клинком, где записывают новую пластинку под названием "New Tatoo".</p>
+
+Автор: Vit Belov
+
+### 03.05.2001 news Судебное разбирательство с Томми Ли....
+
+<p>Не успел бравый муж Памелы Андерсон и по совместительству барабанщик Motley Crue надышаться воздухом свободы, как на него уже заведено новое дело. Шведская звукозаписывающая компания подала в суд на команду "METHODS OF MAYHEM" и лэйбл Universal/MCA Records обвиняя последних в присвоении собственно названия METHODS OF MAYHEM, которое первоначально было использовано на диске с звуковыми образцами в 1995 и запатентовано (Браво" предусмотрительные шведы....). На прошедшем судебном заседании сам Томми Ли уже успел назвать судью "идиотом"...</p>
+
+Автор: Yermola
+
+### 03.05.2001 news The lawsuit brought against METHODS OF MAYHEM .....
+
+<p>The lawsuit brought against METHODS OF MAYHEM and the group's label Universal/MCA Records by a Swedish sound-effects company claiming that MOM mainman Tommy Lee stole his band's name from a disc of sound samples created in 1995 has been settled out of court for an undisclosed sum. After finding out that the jury was about in Lee's favor when the lawyer for Universal/MCA decided to settle the case despite Tommy's objections, the MOM frontman called the attorney an "idiot" before leaving the courtroom. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Масло в огонь или лей-лей не жалей...
+
+<p>Песня Металлики “Fuel For Fire” (измененная версия с другой лирикой песни “Fuel” с альбома "Reload") в начале недели вышла на диске "NASCAR: Full Throttle" через Hybrid Recordings и в сотрудничестве с NASCAR, Turner Broadcasting, и NBC Sports. Кроме Метелицы на диске представлены SAMMY HAGAR, CREED, THE CULT, MOTLEY CRUE, и THE GRATEFUL DEAD.</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Fuel For Fire
+
+<p>METALLICA’s “Fuel For Fire” (a demo version with different lyrics of the song “Fuel” off Reload; this version originally appeared on the European single release of "The Memory Remains") appears on an album entitled NASCAR: Full Throttle, issued this week via Hybrid Recordings, in association with NASCAR, Turner Broadcasting, and NBC Sports. Other artists appearing on Full Throttle include SAMMY HAGAR, CREED, THE CULT, MOTLEY CRUE, and THE GRATEFUL DEAD. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 07.03.2002 news INSANIA  начнет запись нового альбома
+
+<p>Шведская группа INSANIA не смогла отправиться в европейский тур в качестве поддержки группы M&Ouml;TLEY CRUE из-за тяжелой болезни одного из участников американской команды. Теперь группа планирует отправиться в Finnvox Studios в Хельсинки, где 26 июня вместе с продюссером Mikko Karmila начнет запись своего третьего альбома. Предварительное название альбома - "Fantasy". Выпуск альбома планируется в конце 2002 года на No Fashion Records. Во время трехнедельной сессии музыканты готовят записать 10-13 песен, среди которых одна не войдет в основной выпуск альбома, а будет включена бонусом в японское издание нового альбома</p>
+
+Автор: Dimas
+
+### 07.03.2002 news INSANIA news
+
+<p>Sweden's INSANIA have pulled out of their scheduled European tour as the support act for MOTLEY CRUE frontman Vince Neil due to an undisclosed member's illness. The band are scheduled to enter Finnvox Studios in Helsinki, Finland with producer Mikko Karmila on June 26th to begin recording their third album, tentatively titled Fantasy, for a late 2002 release through No Fashion Records. Around 10-13 songs will be recorded during the three-week session, with the possibility of additional material being recorded for inclusion as bonus tracks on the Japanese version of the upcoming CD.</p>
+
+Автор: Dimas
+
+### 19.03.2002 news Новый проект Томми Ли...
+
+<p><IMG SRC="/images/news_rus/2002.03/2533.jpg" ALT="Tommy" width="200" height="200" hspace="15" vspace="5" border="0" align="left" /> Бывший барабанщик "MOTLEY CRUE" и основатель "METHODS OF MAYHEM" &ndash; Tommy Lee &ndash; собрал новый проект на обломках "Методов". К нему присоединились гитарист J3, барабанщик Will Hunt (SKRAPE, ex-STUCK MOJO) и бассист KILGORE &ndash; Marty O'Brien. Новая инкарнация команды приготовила диск "Never A Dull Moment" для релиза на MCA Records 21-го мая.</p>
+
+Автор: Yermola
+
+### 19.03.2002 news TOMMY LEE Secures New Band Line-Up...
+
+<p><IMG SRC="/images/news_rus/2002.03/2533.jpg" ALT="Tommy" width="200" height="200" hspace="15" vspace="5" border="0" align="left" /></p>
+<P>Former MOTLEY CRUE drummer Tommy Lee has been joined by new guitarist J3 and drummer Will Hunt (SKRAPE, ex-STUCK MOJO) in the latest incarnation of his solo band (previously known as METHODS OF MAYHEM), whose sophomore CD, entitled Never A Dull Moment, is due to be released through MCA Records on May 21st. </P></>
+<P>In related news, SKRAPE (featuring the aforementioned Hunt on drums) have parted ways with guitarist Brian Milner and have replaced him with ex-GHETTOBLASTER axeman Randy Melsner. Prior to Hunt's decision to link up with Lee, SKRAPE was working on the material for the group's second album, which is still believed to be in the planning stage for a late 2002 release through RCA Records. </P></>
+<P>Interesting fact: Will Hunt had listed MOTLEY CRUE's Shout At The Devil as one of his top five recordings of all-time in the “personal bio” section of SKRAPE's official web site at www.skrape.com. </P></>
+
+Автор: Yermola
+
+### 28.03.2002 news Скончался RANDY CASTILLO
+
+<P>Скончался барабанщик Рэнди Кастилло, участник проектов OZZY OSBOURNE/MOTLEY CRUE. Причина смерти &ndash; та же, что и у Чака Шульдинера &ndash; рак. До самой смерти Castillo работал над новым проектом с ex-ALICE IN CHAINS бассистом Mike Inez. </P></>
+<P>Карьера Кастилло начиналась в 1984 году с Литой Форд (альбом Dancin' On The Edge), после которого он был барабанщиком OZZY OSBOURNE на пяти альбомах: 1986 &ndash; Ultimate Sin, 1989 &ndash; No Rest For The Wicked, 1990 &ndash; Just Say Ozzy, 1991 &ndash; No More Tears и 1993 &ndash; Live & Loud. </P></>
+
+Автор: Yermola
+
+### 28.03.2002 news Randy Castillo reportedly passed away....
+
+<P>Former OZZY OSBOURNE/MOTLEY CRUE drummer Randy Castillo reportedly passed away yesterday due to complications stemming from his long-running battle with cancer. Castillo was 51 years old. </P></>
+<P> </P></>
+<P>MOTLEY CRUE bassist Nikki Sixx posted the following message at www.motley.com following Randy's death: “You used to joke around with me all the time, saying that we had 'dented halo's'. I'll miss you my friend, and I love you.” </P></>
+<P> </P></>
+<P>Prior to his passing, Castillo was reportedly working with ex-ALICE IN CHAINS bassist Mike Inez and an undisclosed guitarist in a new project, which was in the process of writing music and checking out prospective singers. </P></>
+<P> </P></>
+<P>It was only this past November that Castillo proclaimed himself to be “100% back, strong & kicking” in an interview posted at CRUE's official web site. The drummer seemed to be particularly excited about the new band and called the experience of working with Inez “very refreshing and satisfying”. </P></>
+<P> </P></>
+<P>Castillo's recording career began with the 1984 LITA FORD album Dancin' On The Edge, after which the drummer joined OZZY OSBOURNE for a total of five albums—1986's Ultimate Sin, 1989's No Rest For The Wicked, 1990's Just Say Ozzy, 1991's No More Tears, and 1993's Live & Loud. </P></>
+<P> </P></>
+<P>Castillo underwent emergency surgery after suffering a ruptured stomach ulcer in the weeks following the completion of the most recent MOTLEY CRUE album, 2000's New Tattoo. He was subsequently replaced in CRUE's touring line-up by HOLE drummer Samantha Maloney. </P></>
+<P> </P></>
+<P>Randy learned that he had cancer shortly after the above-mentioned operation, and immediately began an intensive radiation-and-chemotherapy program. Subsequent messages from Castillo indicated that his condition was improving, with one such posting, back in April of 2001, stating in no uncertain terms that the drummer had "won the battle against the big C!" </P></>
+<P> </P></>
+<P>Rest in peace, Randy. You will be missed. </P></>
+
+Автор: Yermola
+
+### 10.08.2004 reviews Пестрая компания Live
+
+<P>Не вижу особого смысла в написании рецензии на данный альбом. Кому интересен “Motley Crue”, возьмет этот альбом по любому. Как-никак это единственная концертная запись легендарного коллектива, на которой можно услышать группу в период пика их популярности. Так же слушателю предоставлена уникальная возможность попробовать уловить разницу в звуке между ранними – 1982-1985 годов и поздними – 1998-1999 - записями. Разница минимальная. Разве что гитара раньше звучала погрязнее. На двойнике представлены, к сожалению, не все хитовые песни с первых пяти альбомов грандов глэм-рока. Порожняка хватает. Относительного, конечно. У меня отношение то к группе предвзятое. Но всё равно, даже я, как давнишний не любитель этих крашенных американцев с удовольствием прослушал оба CD и почти проронил слезу умиления услышав “With Out You” и “Home Sweet Home”, которые звучали у меня дома в последний раз лет 10-12 назад. Забавное было время… </P>
+<P>P.S. Тронуло до глубины души.&nbsp;Строка в буклете:&nbsp;"Thanks&nbsp;to all groupies, it's been fuckin' wild!" :^))))</P>
+Автор: Дофф
+
+### 17.08.2006 reviews Сто минут глэма, разве этого мало?
+
+<P>После выхода в прошлом году DVD "Carnival Of Sins" одной из известнейших глэмовых групп Motley Crue было решено выпустить и одноименный аудиовариант концерта в Grand Rapids, штат Мичиган (апрель 2005-го года). Концерт тот проходил в рамках тура Red, White & Crue, ознаменовавшего собой реюньон великой команды. DVD я не видел, так что о данном концерте - только, так сказать, акустические впечатления. Лично мне показалось, что ребята всё же звучат несколько устало. Вполне возможно, что визуально это совсем не так, но вот звучанию не хватает драйва. Именно драйва, присущего Motley Crue. Вероятно, все-таки возраст да и не совсем, скажем так, праведный образ жизни сказались. Такие вещи очень сложно объяснить словами, это, скорее, впечатления на чисто интуитивном уровне. Хотя, по большому счету, придраться особо не к чему, да и прежние заслуги группы имеют, как ни крути, немалое значение. Обрадовали очень неплохо сделанные кавера на 'Helter Skelter' и 'Anarchy In The UK'. Двухдисковый альбом включает также два концертных бонус-видео, 'Too Fast For Love' и 'Dr. Feelgood' (отмечу завидное постоянство, с которым камера выхватывает из многотысячной толпы симпатичных грудастых зрительниц). Думаю, что любители Motley Crue и глэм-рока вообще с удовольствием послушают эту пластинку, а вот неофитам я бы не стал советовать знакомиться с творчеством группы посредством "Carnival Of Sins".</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 07.09.2006 reviews Возвращение легенды.
+
+<P>Аудио-версия одноименного DVD, записанного на концерте в Мичигане во время реюнион-тура величайших звезд глем-рока Motley Crue. Сразу хочется отметить , что звук на пластинках (а их, в данном случае, две) стопроцентно живой, а не переписанный в студии, как это часто делают со многими live-альбомами, и отлично передает всю энергетику концерта. Продюсировали Carnival Of Sins непосредственно участники группы и знаменитый Боб Рок.</P>
+<P>Первый диск охватывает период ранних работ группы и на 50% состоит из композиций с альбома 1983 года "Shout At The Devil", давшего Crue мировую известность.Вторая пластинка получилась&nbsp; лиричнее и пропитана более поздним творчеством.Закрывают альбом кавера на битловскую "Helter Skelter" и секспистоловскую "Anarchy In The U.K.", которым Motley Crue еще на номерных альбомах придали свою фирменную окраску.</P>
+<P>Одним словом- отличный подарок всем фэнам группы, ждавшим возвращения на сцену своих кумиров в "золотом" составе. Единственное слабое звено в диске - буклет с нечеткими затемненными фотографиями, выдержанными в черно-бело-коричневых тонах. Понятно, что для DVD такой буклет подошел бы вполне- ведь там есть полный видеоряд, а вот в CD-версии можно было бы и добавить красок.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 12.06.2008 news Новая песня MOTLEY CRUE
+
+<P><STRONG>MOTLEY CRUE</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке новую песню <STRONG>"Mutherfucker Of The Year"</STRONG>, которая войдёт на новый альбом группы <STRONG>"Saints of Los Angeles"</STRONG>, выходящий 18 июня в Японии.</P>
+<P>Ссылка: <A href="http://www.myspace.com/motleycrue">http://www.myspace.com/motleycrue</A></P>
+Автор: Vit Belov
+
+### 26.08.2009 news Книга фотографий о MOTLEY CRUE.
+
+<P>Легендарный рок-фотограф <STRONG>Neil Zlozower</STRONG> и издательство <STRONG>Chronicle Books</STRONG> выпустили книгу фотографий&nbsp;<STRONG>"M&#246;tley Cr&#252;e: A Visual History, 1983-2005"</STRONG>. Книга выполнена на 232 страницах, в твёрдой обложке и содержит&nbsp;предисловие, написанное бас-гитаристом группы <STRONG>Nikki Sixx</STRONG>.</P>
+<P><IMG height=484 alt="" hspace=100 src="/images/news_rus/2009.08/14934.jpg" width=400 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 25.02.2010 news Новый сольник вокалиста MOTLEY CRUE
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.02/16283.jpg" width=265 height=348>"Tattoos And Tequila"</STRONG> - заглавный трек с нового сольного альбома вокалиста&nbsp;<STRONG>MOTLEY CRUE</STRONG>&nbsp; <STRONG>Vince Neil</STRONG>'а, а так же, клип на эту песню доступен&nbsp;для бесплатного скачивания на&nbsp;офицальном сайте певца по адресу: <A href="http://www.vinceneil.net/">www.vinceneil.net</A>.</P>
+<P>Выпуск альбома <STRONG>"Tattoos And Tequila"</STRONG> ожидается в начале мая. Диск был записан с басистом <STRONG>Dana Strum</STRONG>, гитаристом&nbsp;<STRONG>Jeff Blando</STRONG> (оба из группы <STRONG>SLAUGHTER</STRONG>)&nbsp;и ударником&nbsp;<STRONG>Zoltan Chaney</STRONG>. Возможно, что на диск войдут две кавер версии,&nbsp;записанные во время студийных сессий к новому&nbsp;альбому&nbsp;— <STRONG>"Who'll Stop The Rain?"</STRONG> (<STRONG>CREEDENCE CLEARWATER REVIVAL</STRONG>) и&nbsp; <STRONG>"No Feelings"</STRONG> (<STRONG>SEX PISTOLS</STRONG>).</P>
+<P>Видео "<STRONG>Tattoos And Tequila</STRONG>" на YouTube: </P>
+<P><A href="http://www.youtube.com/watch?v=Y1EYkZjWYFE&feature=player_embedded">http://www.youtube.com/watch?v=Y1EYkZjWYFE</A></P>
+Автор: Headcrusher
+
+### 09.11.2010 news Vince Neil готовится к шоу на льду
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17576.jpg" width=263 height=300>Вокалист <STRONG>M&#214;TLEY CR&#220;E</STRONG> Винс Нил (<B itxtvisited="1">Vince Neil</B>) станет одной из шести знаменитостей, которая примет участие в новом шоу <B itxtvisited="1">"Skating With The Stars" </B>("На льду со звёздами"),&nbsp;которое описывается как шоу&nbsp;<B itxtvisited="1">"Dancing With The Stars"</B> ("Танцы со звёздами")&nbsp;на льду и производится той же командой продюсеров. Другие участники шоу - актёр <B itxtvisited="1">Sean Young</B> (<B itxtvisited="1">"Blade Runner"</B>, <B itxtvisited="1">"No Way Out"</B>),&nbsp;<STRONG>Bethenny Frankel </STRONG>(звезда реалити-шоу), обладатель золотой олимпийской медали по бегу на лыжах <B itxtvisited="1">Jonny Moseley</B>, <STRONG>Rebecca Budig </STRONG>(актриса телесериала <STRONG>"All My Children"</STRONG>)&nbsp;и <B itxtvisited="1">Brandon Mychal Smith</B> из&nbsp;&nbsp;сериала <STRONG>"Sonny With a Chance" </STRONG>на канале<STRONG>&nbsp;Disney</STRONG>.<BR itxtvisited="1"></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Я катался на коньках, когда мне было 12"</EM> - сказал <STRONG>Vince</STRONG> <B itxtvisited="1">Neil</B> сайту <B itxtvisited="1">People.com</B>. "<EM>Когда они (организаторы шоу) позвонили людям в моём офисе (с предлжением об участии),&nbsp;те рассмеялись,&nbsp;но я сказал им: 'Я на самом деле катался на коньках. Но не делал этого уже очень, очень долгое время.&nbsp;Мне нравится заниматься прикольными вещами, а это проект выглядит именно таким."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Меня знают, как одного из самых плохих парней в рок-н-ролле",</EM> -&nbsp;сказал <STRONG>Neil</STRONG>&nbsp;в промо-ролике к шоу. <EM>"Но теперь я собираюсь оставить всё это позади&nbsp;и буду самым плохим парнем на льду."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Промо-ролик к&nbsp;шоу можно посмотреть по ссылке: <A href="http://www.youtube.com/watch?v=7wTk0jm_hTc">http://www.youtube.com/watch?v=7wTk0jm_hTc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый эпизод <STRONG>"Skating With The Stars" </STRONG>выйдет в эфир в понедельник, 22 ноября на канале&nbsp;<B itxtvisited="1">ABC</B>.<BR itxtvisited="1"><BR itxtvisited="1"><BR itxtvisited="1"></P></FONT>
+Автор: Headcrusher
+
+### 23.11.2010 news Vince Neil прикатил последним
+
+<P>Мы уже сообщали о том, что вокалист <STRONG>MOTLEY CRUE Vince Neil</STRONG> подписал контракт на участие в новом сезоне американской версии шоу "<STRONG>Звёзды на Льду</STRONG>". В&nbsp;прошедшие выходные состоялся дебют музыканта на льду, который можно посмотреть ниже. К сожалению, <STRONG>Vince</STRONG> и его партнёрша заняли последнее место по результатам&nbsp;судейских оценок, набрав всего 28 очков из 60 возможных. Судьбу участников решают зрители.</P>
+<P>
+<CENTER>
+<OBJECT width=640 height=390><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Jn4epOCtpbY&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Jn4epOCtpbY&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.12.2010 news Nikki Six и Denise Richards
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17873.jpg" width=264 height=400>Согласно сайту&nbsp;<A href="http://www.usmagazine.com/healthylifestyle/news/denise-richards-is-dating-nikki-sixx-20101512" target=_blank><U><FONT color=#0000ff>UsMagazine.com</FONT></U></A>, басист <B itxtvisited="1">Nikki Sixx</B> (<STRONG>M&#214;TLEY CR&#220;E</STRONG>) в настоящее время встречается с&nbsp;актрисой <STRONG>Denise Richards</STRONG> <EM>(на фото)</EM>&nbsp;<STRONG>-</STRONG> бывшей пассией Ричи Самбора (<B itxtvisited="1">Richie Sambora</B> , <STRONG>BON JOVI</STRONG>) и бывшей женой актёра Чарли Шина&nbsp;(<B itxtvisited="1">Charlie Sheen</B>). </P>
+<P>В недавно вышедшей биографии <STRONG>"Tattoos & Tequila: To Hell and Back with One of Rock's Most Notorious Frontmen"</STRONG>, вокалист&nbsp;<B itxtvisited="1">M&#214;TLEY CR&#220;E</B> Винс Нил (<STRONG>Vince Neil</STRONG>) так описывает увлечения своего&nbsp;согруппника: <EM>"Так же, как и <B itxtvisited="1">Tommy</B> [<B itxtvisited="1">Lee</B>, ударник <B itxtvisited="1">M&#214;TLEY CR&#220;E</B>], [<B itxtvisited="1">Nikki</B>] ещё один парень, который любит всё то, что связанно с известностью. Он не встречался бы с Кэт Фон Ди (<B itxtvisited="1">Kat Von D</B>), если бы она не была знаменита. И с Донной Ди'Эррико [<STRONG>Donna D'Errico</STRONG>, актриса сериала <B itxtvisited="1">'Baywatch'</B>]&nbsp; до неё; она была большой звездой в&nbsp;то время, когда он женился на ней.&nbsp;Ему просто нравится видеть своё лицо в газетах. Ему нравятся сплетни в прессе. Ему нравится быть тем парнем в группе, у которой знаменитая подружка." </EM></P>
+Автор: Headcrusher
+
+### 16.01.2011 news Nikki Sixx (MOTLEY CRUE&#x2F;SIXX: A.M.): новая книга в апреле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18202.jpg" width=358 height=500>Бас-гитарист <B itxtvisited="1">Nikki Sixx</B> (<STRONG>M&#214;TLEY CR&#220;E</STRONG>/<B itxtvisited="1">SIXX: A.M.</B>) подготовил к выходу свою&nbsp;новою книгу, получившая название&nbsp;<B itxtvisited="1">"This Is Gonna Hurt: Music, Photography And Life Through The Distorted Lens Of Nikki Sixx"</B>, она увидет свет 12 апреля. В данный момент на книгу можно сделать предзаказ на сайте <A href="http://www.amazon.com/This-Gonna-Hurt-Photography-Distorted/dp/0062061879/ref=sr_1_1?ie=UTF8&qid=1295118062&sr=8-1" target=_blank><U><FONT color=#0000ff>Amazon.com</FONT></U></A>.</P>
+<P><STRONG>"This Is Gonna Hurt"</STRONG> является частично фотокнигой, частично дневником,&nbsp;но вся она о Никки Сиксе. </P>
+<P>Это коллекция неотразимых снимков и историй, которые охватывют гнев, любовь, оптимизм, темноту и решительность,&nbsp;придающих форму его работе. </P>
+<P>Повествуя с&nbsp;сырой подлинностью,&nbsp;так же, присущей его предыдущей книге <STRONG>"The Heroin Diaries"</STRONG>,<STRONG> </STRONG>книга рассказывает о его самых ранних годах, наполненных токсичными отходами, успехе с <STRONG>M&#214;TLEY CR&#220;E</STRONG>, смерти от&nbsp;передозировки и о возрождение его пристрастия к музыке, фотографии и любви.</P>
+Автор: Headcrusher
+
+### 16.07.2012 news Секс от MOTLEY CRUE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24373.jpg" width=300 height=300>Группа <STRONG>MOTLEY CRUE</STRONG> представила общественности свою новую песню. Трек получил название <STRONG>"Sex"</STRONG> и стал первой новинкой группы со времени выпуска ею альбома <STRONG>"Saints Of Los Angeles"</STRONG> в июне 2008 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Sex"</STRONG> был записан в начале этого года&nbsp;в калифорнийской&nbsp;студии "<STRONG>The Atrium</STRONG>", принадлежащей барабанщику группы <STRONG>Tommy Lee</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Послушать песню можно по ссылке: <A href="http://www.reverbnation.com/play_now/song_13889865">www.reverbnation.com/play_now/song_13889865</A></FONT></P>
+Автор: Headcrusher
+
+### 19.11.2013 news Кофе от Джона Кораби
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>John Corabi</STRONG>, бывший фронтмен <STRONG>MOTLEY CRUE</STRONG>, <STRONG>UNION</STRONG>, <STRONG>THE SCREAM</STRONG>, а также участник многих других проектов, совместно с лейблом <STRONG>Rat Pak</STRONG>, выпустил свою собственную марку кофе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кофе, получивший название <STRONG>"Panama Gold"</STRONG>, расфасован в теплоизолирующие пакеты и доступен в двух видах - молотом и цельнозерновом. Вес упаковки:&nbsp;12 унций (~340 грамм)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказать эту красоту можно по ссылке: <A href="http://www.ratpakrecordsamerica.com/john-corabi">www.ratpakrecordsamerica.com/john-corabi</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.11/26359.jpg" width=550 height=466> 
+<P></P></CENTER>
+Автор: Tess
+
+
 ## Обсуждения
 
 ### MOTLEY CRUE в Москве 2 июня

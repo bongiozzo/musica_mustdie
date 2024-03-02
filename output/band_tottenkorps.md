@@ -12,6 +12,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.11.2002 reviews Does &quot;Tottenkorps&quot; stand for &quot;bad luck&quot;?
+
+<p>What an album title!… Well, believe me, the song titles aren’t worse (read – no less pompous and incomprehensible) ;-). It seems like there’s quite a lot of bands of South American origin, who’re fond of choosing more or less pompous moniker, fond of giving the albums and songs of theirs ridiculously thundering titles, fond of compiling equally high-flown words in order to come up with an utterly incomprehensible text (just to recall MYTHOLOGICAL COLD TOWERS, MYSTIFIER or PENTACROSTIC). Well… I wouldn’t say it’s THAT important – AND I haven’t made myself acquainted with a lyrical canvas “Tharnheim…” is based upon. All I know is that this album has been in works for a very-very long time… unfortunately not because these guys have been polishing each and every riff. “Tharnheim…” was originally recorded in Summer of 1998, however… the production was disastrous. Both sides, the band and the label, decided to postpone the release of the CD. Therefore, TOTTENKORPS, after having endured some lineup changes, entered the studio again, this time in January of 2000. The second try was more or less successful, however… the actual CD was made available almost a year and a half after it’s been complete. Looks like “TottenKorps” stands for ‘bad luck’, huh? Nevertheless, the album is finally released (did I say I found it in my mailbox only a year after the official release date?)… but does it have anything to excite us? Well, most possibly yes. TOTTENKORPS deliver obscure, diabolical death metal at hellish speed, simultaneously reminding of INTERNAL SUFFERING and early IMMOLATION. Technical and, despite it is mostly fast-paced, intelligent. And did I say, it’s all soaked with grim ambiences even though they haven’t incorporated keyboards whatsoever? Quite an impressive offering… Let’s hope that next time TOTTENKORPS will have at least just a bit more of luck.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

@@ -62,6 +62,280 @@ Photos by Ulf Thurmann, Germany.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.05.2004 reviews 15 лет не прошли даром для EVERON
+
+<P><I><B>EVERON</B> - progressive группа с 15-летним стажем не очень популярна даже в рядах любителей стиля. Дело тут, скорее всего, не в качестве материала, а в не progressiveности их лэйбла <B>Mascot</B>.</I></P>
+<P>Материал, который предлагает слушателю эта голландская группа не отличается особенной оригинальностью. Не очень тяжёлый progressive-metal с обилием оркестровых и сэмпловых арранжировок. Материал коллектива не особенно сложен, но очень мелодичен.&nbsp;</P>
+<P>Нашему вниманию представлен последний альбом группы <B>'Flesh'</B>, который вышел недавно на <B>Irond</B>.&nbsp;Лэйбл утверждает, что пластинка 2004 года, но на сайте <B>EVERON</B>&nbsp;указано, что&nbsp;альбом 2002 года.&nbsp;Материал голландцев я бы сравнил с недавно прослушанным мною альбомом <B>EVERGREY</B>, но только сами мелодии&nbsp;у <B>EVERON</B> более меланхоличны и лиричны. Встречаются куски совсем без "громких" инструментов, что, правда, вряд ли отпугнёт любителей стиля. Мне лично, немного не понравился вокал, который запросто можно приписать Славе Петкуну, исполнитилю роли горбуна в известном мюзикле.</P>
+<P>Качественнейшая пластинка достойная внимания всех, кому небезразличен мелодичный progressive.</P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

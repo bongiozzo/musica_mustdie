@@ -48,6 +48,54 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.06.2007 reviews Коровые ребята мочат коры?
+
+<P>Как только, простите, не обзывают стиль, в котором уже более 15 лет трудятся бостонцы Converge. Metalcore, deathcore, sludgecore, noiserock, mathcore, new school hardcore... Впрочем, наверное, все эти любители классификаций по-своему правы, ибо элементов вышеназванного тут хватает с избытком (а 'Grim Heart / Black Rose' может вообще напомнить о старых добрых Black Sabbath!). В общем,&nbsp;по всем своим параметрам они неплохо подходят под свой лэйбл Epitaph Records, хотя с таким&nbsp;же успехом могли бы выходить, к примеру,&nbsp;и на&nbsp;Relapse. Казалось бы, всё прекрасно, и любителям вышеуказанных жанров можно маршировать вперед в магазин за седьмым уже по счетом студийником группы под названием "No Heroes"... Но. Почему-то эта работа совершенно не берет за душу (а я тоже люблю все эти стили, за исключением разве что металкора). Вопли вокалиста с трудом прорываются сквозь мощную стену почти что какофонического саунда. Орать ради того чтобы просто орать? Не вижу особого смысла... Если у других команд эмоции (неважно какого порядка) хлещут через край, то данный релиз оставляет какое-то странное чувство из серии "ребята отработали свой гонорар". Может, виной тому тот самый "недушевный" вокал, может, слишком быстрый темп - с моей точки зрения - они взяли для большинства вещей, трудно сказать однозначно. Признаюсь честно, с прошлыми работами Converge я знаком слабо, посему не могу судить, каков их вклад во все коровые (неважно с каким префиксом) дела. Но при всем, казалось бы, высоком профессионализме данной работы, она оставила меня практически равнодушным. Надеюсь, что окажусь достаточно объективным, поставив "No Heroes" 6,5 баллов из 10. И не в последнюю очередь за честное название альбома: действительно, ничего героического в данном творении нет.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 05.01.2012 news CONVERGE назвали новый альбом
+
+<P>Новый альбом<STRONG> CONVERGE</STRONG> получил название "<STRONG>All We Love We Leave Behind</STRONG>". Пластинка выйдет в конце весны/начале лета на <STRONG>Epitaph</STRONG>. </P>
+<P>Предыдущая работа хардокрщиков "<STRONG>Axe to Fall</STRONG>" вышла в 2009 году на том же лэйбле.</P>
+<P><center><IMG height=307 src="/images/news_rus/2012.01/22494.jpg" width=460 border=0></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 06.06.2012 news Совместный сплит CONVERGE и NAPALM DEATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24123.jpg" width=300 height=300>Группы <STRONG>NAPALM DEATH</STRONG> и <STRONG>CONVERGE</STRONG> готовят совместный сплит на 7" виниле. На него войдёт 4 трека - по 2 от каждой группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За выпуск винила ответственен лейбл <STRONG>Deathwish Inc</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Трек-лист</U>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сторона <STRONG>NAPALM DEATH</STRONG>:</FONT></P>
+<P>01. <STRONG>Will By Mouth<BR></STRONG>02. <STRONG>No Impediment To Triumph</STRONG> (Bhopal)</P>
+<P>Сторона <STRONG>CONVERGE</STRONG>:</P>
+<P>01. <STRONG>No Light Escapes<BR></STRONG>02. <STRONG>Wolverine Blues</STRONG> (<STRONG>ENTOMBED cover</STRONG>)</P>
+<P>В записи кавера на песню&nbsp;<STRONG>ENTOMBED</STRONG>, гостевое участие примут <STRONG>Tomas Lindberg</STRONG> (<STRONG>DISFEAR</STRONG>, <STRONG>AT THE GATES</STRONG>, <STRONG>LOCK UP</STRONG>), <STRONG>Aaron Turner</STRONG> (<STRONG>ISIS</STRONG>, <STRONG>OLD MAN GLOOM</STRONG>, <STRONG>SPLIT CRANIUM</STRONG>), <STRONG>Kevin Baker</STRONG> (<STRONG>ALL PIGS MUST DIE</STRONG>, <STRONG>THE HOPE CONSPIRACY</STRONG>), <STRONG>Brian Izzi</STRONG> (<STRONG>TRAP THEM</STRONG>) и другие. Этот трек станет своеобразным ответом поп-гимну 80-х <STRONG>"We Are The World"</STRONG>.</P>
+Автор: Headcrusher
+
+### 21.04.2014 news CONVERGE: видеоклип &quot;All We Love We Leave Behind&quot;
+
+<P>Американская&nbsp;группа <STRONG>CONVERGE</STRONG>, смешивающая в своём творчестве множество&nbsp;различных&nbsp;экстремальных стилей музыки, порадовала своих поклонников новым видеоклипом. Песня <STRONG>"All We Love We Leave Behind"</STRONG>, на которую снято видео, вошла в одноимённый альбом группы, вышедший в октябре 2012 года.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/akG2cFldO6I" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

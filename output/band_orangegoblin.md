@@ -100,6 +100,34 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.10.2011 news Новый альбом ORANGE GOBLIN
+
+<P><IMG height=345 alt="" hspace=0 src="/images/news_rus/2011.10/21464.jpg" width=385 align=right border=0>Новая пластинка stoner-metal группы <STRONG>ORANGE GOBLIN</STRONG> получил название "<STRONG>A Eulogy For The Damned</STRONG>". Альбом был записан в студии <STRONG>Animal Farm</STRONG> в Лондоне и выйдет в 2012 году на <STRONG>Candlelight</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>Red Tide Rising<BR></STRONG>02. <STRONG>Stand For Something</STRONG><BR>03. <STRONG>Acid Trial<BR></STRONG>04. <STRONG>The Filthy & The Few</STRONG><BR>05. <STRONG>Save Me From Myself</STRONG><BR>06.<STRONG> The Fog<BR></STRONG>07. <STRONG>Return To Mars<BR></STRONG>08. <STRONG>Death Of Aquarius</STRONG><BR>09. <STRONG>The Bishops Wolf</STRONG><BR>10. <STRONG>A Eulogy For The Damned</STRONG></P>
+Автор: Vit Belov
+
+### 06.01.2012 news ORANGE GOBLIN: альбом &quot;A Eulogy For The Damned&quot; в продаже 14 февраля
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22534.jpg" width=400 height=400>Британцы <STRONG>ORANGE GOBLIN</STRONG>&nbsp;выпускают свой новый альбом&nbsp;<B itxtHarvested="0" itxtNodeId="57">"A Eulogy For The Damned"</B> 14 февраля на <B itxtHarvested="0" itxtNodeId="56">Candlelight Records</B>. </P>
+<P>Десять треков этого альбома были записаны в Южном Лондоне на студии <B itxtHarvested="0" itxtNodeId="55">The Animal Farm</B> с <B itxtHarvested="0" itxtNodeId="54">Jamie Dodd</B> в качестве продюсера и инжинера. Мастерингом занимался двукратный номинант премии&nbsp;<B itxtHarvested="0" itxtNodeId="53">Grammy </B>- <B itxtHarvested="0" itxtNodeId="51">Andy Jackson</B> (<B itxtHarvested="0" itxtNodeId="50">Tube Mastering</B>).</P>
+<P><B itxtHarvested="0" itxtNodeId="44">Трек-лист</B>:<BR itxtNodeId="43"><BR itxtNodeId="42">01. <B itxtHarvested="0" itxtNodeId="41">Red Tide Rising</B><BR itxtNodeId="40">02. <B itxtHarvested="0" itxtNodeId="39">Stand For Something</B><BR itxtNodeId="38">03. <B itxtHarvested="0" itxtNodeId="37">Acid Trial</B><BR itxtNodeId="36">04. <B itxtHarvested="0" itxtNodeId="35">The Filthy & The Few</B><BR itxtNodeId="34">05. <B itxtHarvested="0" itxtNodeId="33">Save Me From Myself</B><BR itxtNodeId="32">06. <B itxtHarvested="0" itxtNodeId="31">The Fog</B><BR itxtNodeId="30">07. <B itxtHarvested="0" itxtNodeId="29">Return To Mars</B><BR itxtNodeId="28">08. <B itxtHarvested="0" itxtNodeId="27">Death Of Aquarius</B><BR itxtNodeId="26">09. <B itxtHarvested="0" itxtNodeId="25">The Bishops Wolf</B><BR itxtNodeId="24">10. <B itxtHarvested="0" itxtNodeId="23">A Eulogy For The Damned</B></P>
+Автор: Headcrusher
+
+### 07.02.2012 news Новое видео ORANGE GOBLIN
+
+<P>Новый клип<STRONG> ORANGE GOBLIN</STRONG> на песню "<STRONG>Red Tide Rising</STRONG>" можно посмотреть ниже. Трек войдёт на новый альбом коллектива "<STRONG>A Eulogy For The Damned</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/kHxiouKy8Ho?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 24.09.2014 news Новинки видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27304.jpg" width=200 height=140>В этом постинге предлагаем вам&nbsp;ознакомится с&nbsp;десятью&nbsp;модными видеоклипами в металлической и не только музыке, которые появились за последний месяц на просторах интеренета и заслуживают вашего самого пристального внимания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>1349 "Slaves"</STRONG> : <A href="http://youtu.be/ajvLJPzgL_o">http://youtu.be/ajvLJPzgL_o</A><BR>02. <STRONG>ACHERON "Satan Holds Dominion"</STRONG> : <A href="http://youtu.be/dIoQHF4YIC8">http://youtu.be/dIoQHF4YIC8</A><BR>03. <STRONG>AMON AMARTH "Deceiver of the Gods" </STRONG>: <A href="http://youtu.be/CpAcxbtXUgQ">http://youtu.be/CpAcxbtXUgQ</A><BR>04. <STRONG>CORROSION OF CONFORMITY "On Your Way"</STRONG> : <A href="http://youtu.be/H5RdqR6I8Uw">http://youtu.be/H5RdqR6I8Uw</A><BR>05. <STRONG>CRUCIFIED BARBARA "I Sell My Kids For Rock'N'Roll"</STRONG> : <A href="http://youtu.be/oVU_8D1aJoU">http://youtu.be/oVU_8D1aJoU</A><BR>06. <STRONG>MORTALS "View From A Tower"</STRONG> : <A href="http://youtu.be/mHPh_aUfGD8">http://youtu.be/mHPh_aUfGD8</A><BR>07. <STRONG>NOCTEM "The Adamantine Doors"</STRONG> : <A href="http://youtu.be/rsNQonZdRNM">http://youtu.be/rsNQonZdRNM</A><BR>08. <STRONG>ORANGE GOBLIN "Sabbath Hex"</STRONG> : <A href="http://youtu.be/2l4Ts2p7jPE">http://youtu.be/2l4Ts2p7jPE</A><BR>09. <STRONG>SPIDERS "Shake Electric"</STRONG> : <A href="http://youtu.be/4IlpVlGTjbA">http://youtu.be/4IlpVlGTjbA</A><BR>10. <STRONG>THE HAUNTED "Eye Of The Storm"</STRONG> : <A href="http://youtu.be/uNAwrj1EUo8">http://youtu.be/uNAwrj1EUo8</A></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

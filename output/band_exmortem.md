@@ -29,6 +29,74 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.02.2002 news EXMORTEM разорвали отношения с лэйблом...
+
+<p>Датчане "EXMORTEM" официально разорвали отношения с Hammerheart Records и сейчас ищут лэйбл для выпуска нового альбома который будет готов к Июлю. В планах группы также переиздание на виниле Berzerker Legions ...</p>
+
+Автор: Yermola
+
+### 07.02.2002 news EXMORTEM Part With Hammerheart....
+
+<p>Denmark's EXMORTEM have officially parted ways with Hammerheart Records and are currently seeking a new label home prior to the recording of their next studio effort, which is tentatively due to be tracked during July. In other news, EXMORTEM are still looking for a possible label to release the Berzerker Legions album on vinyl.</p>
+
+Автор: Yermola
+
+### 18.03.2002 news EXMORTEM подписались с Osmose....
+
+<p>Датчане "EXMORTEM" подписали сделку с Osmose Productions. "Мы очень горды заявить, что являемся частью Osmose Warriors Group..." сообщила группа в официальном письме. "Озмоуз это один из лэйблов которые и делали тяжелую музыку на протяжении лет..."</p>
+
+Автор: Yermola
+
+### 15.04.2003 reviews И снова качественный датский дэт...
+
+<p>Очередная "новинка" далеко не первой свежести. Впрочем, коллективу ФОНО всё равно надо бы сказать спасибо, ибо назвать барахлом "Berzerker Legions" язык не повернётся. Ах, вы не знаете, кто это такие? Что же, поясню: EXMORTEM – заслуженные датские сталевары, а уж в Дании с дэтовой сценой проблем отродясь не было. Точнее – не со сценой, а с представителями оной. В первую очередь, речь, конечно, о дэтовых командах, коей является и EXMORTEM. Стоит ли приобретать этот альбом? Безусловно, стоит. Найдёте вы ли здесь что-либо новое? Сомневаюсь. Но игнорировать творчество датчан по этой причине, поверьте, не надо.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 14.11.2003 news EXMORTEM signed for USA
+
+<B>EXMORTEM</B> from Denmark is signing to <B>Unique Leader</B> for the license of "<B>Pest Campaign</B>". The album will contain 18 tracks of total brutality and will be released for distribution in the United States and other worldwide territories.
+Автор: Vit Belov
+
+### 23.06.2004 news Exmortem выпускают новый альбом
+
+<P><B>EXMORTEM </B>записали новый, пока неназванный, альбом. Трэк-лист:</P>
+<P>01. <B>Parasite Paradise</B><BR>02. <B>Flesh Havoc</B><BR>03. <B>Black Walls Of Misery</B><BR>04. <B>The Human Rape Symphony</B><BR>05. <B>Division Of Genocide Pleasure</B><BR>06. <B>Bitter Discipline</B><BR>07. <B>Fix Of Negativity </B><BR>08. <B>Graveside Mourning Ritual </B><BR>09. <B>Symbols of inhumanity</B><BR><B>EXMORTEM</B> расстались с Osmose и теперь ищут новый контракт.</P>
+Автор: Vit Belov
+
+### 09.10.2004 news EXMORTEM на EARACHE&#x2F;WICKED WORLD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Death-metal группа <STRONG>EXMORTEM</STRONG> подписала контракт на выпуск нового альбома <STRONG>'Nihilistic Contentment'</STRONG> с <STRONG>Earache/Wicked World</STRONG>. Новая работа выйдет в начале 2005 года. Пластинка была записана в <STRONG>Antfarm Studio</STRONG> вместе с <STRONG>Tue Madsen</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.10.2004 news EXMORTEM on WICKED WORLD&#x2F;EARACHE
+
+<P>Wicked World&nbsp;sign <STRONG>EXMORTEM </STRONG>to a multi-album worldwide recording deal.&nbsp;New album, <STRONG>'Nihilistic Contentment'</STRONG>, already recorded, the band are looking to open 2005. The album was recorded at <STRONG>Antfarm Studios</STRONG> in Denmark by <STRONG>Tue Madsen (The Haunted, Hatesphere. Mnemic</STRONG>).</P>
+Автор: Vit Belov
+
+### 11.11.2004 news Подробности о новом альбоме EXMORTEM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, новый альбом <STRONG>EXMORTEM</STRONG> "<STRONG>Nihilistic Contentment</STRONG>" выходит 17 января на <STRONG>Earache</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.11/7354.jpg" width=200 align=right border=5>01. <STRONG>Flesh Havoc</STRONG> <BR>02. <STRONG>Bitter Disciplin</STRONG> <BR>03. <STRONG>The Human Rape Symphony</STRONG> <BR>04. <STRONG>Black Walls of Misery <BR></STRONG>05. <STRONG>Division of Genocide Pleasure</STRONG> <BR>06. <STRONG>Swamp of Decadence</STRONG><BR>07. <STRONG>Symbols of Inhumanity</STRONG> <BR>08. <STRONG>Fix of Negativity <BR></STRONG>09. <STRONG>Graveside Mourning Ritual</STRONG><BR>10. <STRONG>Parasite Paradise</STRONG> &nbsp;</P>
+<P>MP3: <A href="/samples/e/exmortem/2005_1236.mp3">http://musica.mustdie.ru/samples/e/exmortem/2005_1236.mp3</A></P>
+Автор: Vit Belov
+
+### 14.12.2004 reviews А наш МORTEM все ж милее
+
+<P>Невольно подумалось, что данное название пришлось бы впору бывшим музыкантам наших соотечественников Mortem, задумай они собрать собственную банду. Но, как говорится - поздно пить боржоми, поезд уже ушел. Забиты теплые места. Так что&nbsp; нам могут предложить хлопцы из Эксмортема? Надпись на альбоме гласит, что в составе группы рубит бывший барабанщик Dimmu Borgir - Reno. Ну что же, техникой его игры я смог насладиться по достоинству- это бешенные бласт - биты, сдвоенные бочки на запредельных скоростях, чумовейшие брейки. Вот пожалуй и все. Гитарист и басист играют стандартные заежженые фишки, которые до них переиграли уже тысячу раз более достойные дэт - коллективы. Очень однообразно. К концу прослушивания я непроизвольно начал зевать. Это при общей-то продолжительности альбома&nbsp; без малого 33 минуты. Пожалуй, подойдет только упертым фанатам стиля.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ" </P>
+Автор: Fucker
+
+### 21.01.2005 reviews Учитесь правильно подражать классикам жанра
+
+<P>Датчане Exmortem относятся у меня к той категории относительно старых уже групп (а начинали они еще в 1992 году, правда, под названием Mordor), названия которых я слышал неоднократно, но вот с альбомами которых мне ознакомиться как-то не доводилось. Exmortem играют весьма мощный дэт-метал, находясь под влиянием таких фигур "смертельной" сцены, как Morbid Angel и Immolation, и получается это у них весьма неплохо. Они не стали изобретать велосипед и пошли по хорошо проторенной дорожке, поставив в очередной раз вопрос: что хуже (или лучше?) - хорошо играть то, что до них давно придумали другие, или плохо исполнять нечто своё, оригинальное. В умении играть датчанам не откажешь, вокал на высоте, запись тоже (продюсер Tue Madsen, также The Haunted, Mnemic - но звук никакой не "модерновый"). Конечно, жаль, что в ходе получасового прослушивания крышесносящего дэт-метала в исполнении Exmortem мы не услышим каких-либо оригинальных ходов, да и песни похожи одна на другую (за исключением разве что 'Black Walls Of Misery', самой интересной вещи на пластинке с явными реверансами в сторону Morbid Angel), но всё же стопроцентная отдача и подкупающая искренность, помноженные на небольшую продолжительность альбома, позволяют закрыть глаза на указанные минусы. Рекомендую "Nihilistic Contentment" всем любителями жанра - хотя бы ради того, чтобы послушать, как нужно умело подражать классикам дэт-метала.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

@@ -112,6 +112,14 @@ Recorded & Mixed At Windings Studio, Wales In July 1993
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.06.2008 news LAWNMOWER DETH возвращаются
+
+<P>Популярная в начале 90-х hardcore/thrash-metal группа <STRONG>LAWNMOWER DETH</STRONG> объявила о своей реформации на один концерт в Великобритании в этом году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

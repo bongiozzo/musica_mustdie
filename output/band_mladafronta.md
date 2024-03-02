@@ -16,6 +16,16 @@ dark electro
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.11.2002 reviews Strange sounds for the strange people of the strange world
+
+<p>This is what Darren Aronofsky’s “Requiem For A Dream” and “n” should be accompanied with. Just my personal point of view, of course. However, not only music, but also the fabulous artwork both double (!) digipacks (!) - i.e. "FE2 O3" (2001) and "Oxydes" (2002) - come with, fit the ambiences Mr.Aronofsky’s dramaturgy is filled with to a maximum extent. As anxious and as obnoxious. As twisted and as surreal. Basically, this is all-electro music, transmitting a wide variety of sensations. From anxiety to bewitchment. Strange sounds for the strange people of the strange world… we’re all actually living in. I always confront the same problem facing releases like these (even though MLADA FRONTA doesn’t sound similar to anyone)… and the problem is: it’s incredibly hard to define this kind of music. Dark electro? No. Minimal electro? Definitely not. Some weirder sort of “blah-blah-blah/wave”? Not at all. Then what?! Who knows… What I know for sure, this music is equally enigmatic and of unsound mind. Insanely variable. Besides that…, and what I simply can’t leave unnoticed, is the photographic work both CDs come with. Expecting to get a proper description at least here? Nah. There won’t be any. It’s just stupendous. Unique. A brilliant compliance of music to it’s visual appearance. Hope that’s enough. And just by the way: “Oxydes” also features no less than six remixes of MLADA FRONTA’s works by GOM, TARMVRED, MILLIGRAMME, DITHER, MIMETIC and DATA RAPER, as well as some previously unreleased video tracks. This is a must have… unless you aren’t those of open-minded.</p>
+<P>Website: <A HREF="http://www.parametric.info">http://www.parametric.info</A>; <A HREF="http://www.mlada-fronta.com">http://www.mlada-fronta.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

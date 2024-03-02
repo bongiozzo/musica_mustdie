@@ -171,6 +171,76 @@ Steffen Theurer - Drums
 
 * C группой "Brainstorm" Andy B. Franck
 
+## Публикации
+
+### 07.08.2003 news SYMPHORCE начинают запись нового альбома
+
+<p>Германские power металлисты из SYMPHORCE готовы войти в студию для записи своего нового альбома "Twice Second". Запись пройдет в House Of Music studios с продюсером Achim Kohler (BRAINSTORM, PRIMAL FEAR). Выход альбома запланирован на январь 2004 года через Metal Blade Records.</p>
+
+Автор: Dimas
+
+### 18.09.2003 news SYMPHORCE is a very special guest...
+
+SYMPHORCE have been confirmed as the very special guest on the forthcoming GRAVE DIGGER "Rheingold" tour through Germany, Switzerland and Austria in January 2004! Around the same time the band (feat. BRAINSTORM singer Andy B. Franck and FREEDOM CALL guitarist Cede Dupont) will release their brand new studio effort "Twice Second"! The band is busy recording the album as you read this!<br><br>
+
+The confirmed tourdates are:<br><br>
+
+January 6 - Osnabr&uuml;ck (Hydepark) - GERMANY<br>
+January 7 - Andernach (JUZ Live-Club) - GERMANY<br>
+January 8 - Pratteln (Z7) - SWITZERLAND<br>
+January 9 - Lichtenfels (Stadthalle) - GERMANY<br>
+January 10 - Wien (Planet Music) - AUSTRIA<br>
+January 11 - Ludwigsburg (Rockfabrik) - GERMANY<br>
+January 12 - Bochum (Zeche) - GERMANY<br>
+January 13 - Hamburg (Markthalle) - GERMANY<br>
+January 14 - Berlin (Columbia Fritz) - GERMANY<br>
+January 15 - Hannover (Musik Zentrum) - GERMANY<br>
+January 16 - Langen (Stadthalle) - GERMANY<br>
+January 17 - Glauchau (Alte Spinnerei) - GERMANY<br>
+January 18 - M&uuml;nchen (New Backstage) – GERMANY
+Автор: Yermola
+
+### 17.10.2003 news SYMPHORCE закончили запись нового альбома
+
+<P><B>SYMPHORCE</B> закончили запись нового альбома "<B>Twice Second". </B>Альбом был записан в <B>House Of Music</B> с продюсером <B>Achim Kuller (BRAINSTORM, PRIMAL FEAR)</B> и выйдет 12 января на <B>METAL BLADE</B>. Трэк-лист:</P>
+<P>01. <B>Fallen</B> <BR>02. <B>Tears</B> <BR>03. <B>Whatever Hate Provides</B><BR>04. <B>Cause Of Laughter</B> <BR>05. <B>In The Cold</B><BR>06. <B>Take What's Mine</B> <BR>07. <B>Face Of Pain</B><BR>08. <B>Searching</B> <BR>09. <B>Two Seconds To Live</B> <BR>10. <B>Cry On My Shoulder</B> <BR>11. <B>Under The Curse</B> (bonus track – digipak only)</P>
+Автор: Vit Belov
+
+### 20.11.2006 news Новый альбом SYMPHORCE
+
+<P>Немецкая&nbsp;power metal группа&nbsp;<B>SYMPHORCE</B>,&nbsp;в составе которых значится фронтмен&nbsp;<B>BRAINSTORM</B> <B>Andy B. Franck</B>,&nbsp;подготовились к записи свего нового альбома в студии&nbsp;<B>House of Music</B> с продюсером <B>Dennis Ward.</B> Релиз под названием <B>"Become Death"</B> должен выйти в феврале-марте 2007 года на <B>Metal Blade Records</B>.&nbsp;Обложку для него рисует&nbsp;<B>Thomas Ewerhard</B>. Это будет дебют для нового ударника коллектива <STRONG>Steffen Theurer.</STRONG> Трек-лист альбома:<BR><BR>1. <B>Ancient Prophecies</B><BR>2. <B>In The Hopes Of A Dream</B><BR>3. <B>Towards The Light</B><BR>4. <B>Suffocation</B><BR>5. <B>Darkness Fills The Sky</B><BR>6. <B>Condemned</B><BR>7. <B>Death Has Come</B><BR>8. <B>No Final Words To Say</B><BR>9. <B>Lies</B><BR>10. <B>Lost But Found</B><BR><BR><BR></P>
+Автор: Dimas
+
+### 20.01.2009 news SYMPHORCE сочинили песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SYMPHORCE</STRONG> сочинили новую музыку. Группа собирается выпустить новый альбом в этом году.</FONT></P>
+Автор: Vit Belov
+
+### 02.03.2010 news Andy будет работать с Manni
+
+<P>Вокалист <STRONG>BRAINSTORM Andy B. Franck</STRONG> сообщил о своих ближайших планах. Только что закончена работа над новым альбомом <STRONG>SYMPHORCE</STRONG>, но в планах уже следующий проект. Andy будет работать с известным гитаристом <STRONG>Manni Schmidt</STRONG> (ex-<STRONG>GRAVE DIGGER</STRONG>/ex-<STRONG>RAGE</STRONG>). Дуэт уже сочиняет музыку для пока не названной группы.</P>
+Автор: Vit Belov
+
+### 27.03.2010 news SYMPHORCE на AFM
+
+<P><STRONG>SYMPHORCE</STRONG> заключили контракт с <STRONG>AFM</STRONG>. Группа работает над новым альбомом, который выйдет в августе.</P>
+Автор: Vit Belov
+
+### 22.12.2010 reviews Andy B. Frank продолжает стругать
+
+<P>Группу SYMPHORCE организовал в 1999 году вокалист Andy B. Franck. Примерно в те же годы он присоединился к BRAINSTORM. За последние 11 лет он записал с SYMPHORCE 7 альбомов и с BRAINSTORM 5 альбомов. Немалая загрузка. Чтобы выполнить такую большую работу на хорошем уровне, требуется не только высокая работоспособность, но и недюжинный талант.</P>
+<P>Радует, что музыка у BRAINSTORM и SYMPHORCE немного разная, что добавляет шансов на удачное разрешение вышеприведённой задачи. SYMPHORCE представляют американизированный heavy-power-metal. Ближайшим аналогом представленной на “Unrestricted” музыке является ICED EARTH. Мощные «притрэшованные» проходы и мелодичные припевы, вот за что мы любим творчество Jon Schaffer. Andy B. Franck любит сейчас его творчество только за мелодичные припевы. Из этих припевов и состоит обозреваемый альбом. Признаюсь, мне тоже не чужда мелодичная музыка, но тяжёлому металу необходимы не только мелодии, но и напор, которого новейшая музыка SYMPHORCE лишена напрочь. Вот так и размазывает свой маргарин Andy по буханке несвежего хлеба. Поёт себе, поёт, распевается. Даже представить себе не могу, кому этот альбом может понравиться.</P>
+<P>Типичная проходная продукция для коллекционеров. SYMPHORCE за 7 альбомов так и не добились популярности. Думается, не поможет им её обрести и новый лэйбл AFM. Здесь дело явно не в дистро или промоции, а в самом музыкальном материале.</P>
+Автор: Vit Belov
+
+### 20.10.2011 news SYMPHORCE приказали долго жить
+
+<P>Немцы <STRONG>SYMPHORCE </STRONG>прекратили своё существование. Группа выпустила за 12 лет семь альбомов на таких лэйблах, как<STRONG> Metal Blade</STRONG> и<STRONG> AFM</STRONG>, а теперь развалилась из-за недостатка мотивации.</P>
+<P>Последний альбом <STRONG>SYMPHORCE "Unrestricted</STRONG>" вышел 15 октября прошлого года на <STRONG>AFM Records</STRONG>.</P>
+<P><center><IMG height=316 src="/images/news_rus/2011.10/21632.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

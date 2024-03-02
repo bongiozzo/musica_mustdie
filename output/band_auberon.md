@@ -28,6 +28,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2001 news AUBERON &quot;Crossworld&quot;
+
+<p>Шведские мелодик-дэтстеры AUBERON в апреле выпускают второй альбом "Crossworld". По обещаниям группы он будет: "быстрее, выше, сильнее...". Трек-лист: "The Crossworld", "Vanities Fall (Carmina Burana 2000)", "The Beast Within", "Hellborn", "Ex Oblivion", "Gaia", "I See", "A Bleeding Work Of Art" и "Forbidden".</p>
+
+Автор: Yermola
+
+### 26.03.2001 news AUBERON &quot;Crossworld&quot;
+
+<p>April will see the release of the second album of Swedish Melodic Deathsters AUBERON. "Crossworld" is said to be rawer, faster, heavier and still catchier than the debut. The tracklist? Here it is: "The Crossworld", "Vanities Fall (Carmina Burana 2000)", "The Beast Within", "Hellborn", "Ex Oblivion", "Gaia", "I See", "A Bleeding Work Of Art" and "Forbidden".</p>
+
+Автор: Yermola
+
+### 03.06.2001 reviews Melodic-death-black-metal из Швеции
+
+<p>Melodic-death-black-metal из Швеции. Знакомая ситуация. Представьте себе At The gates и добавьте к нему чистый мужской и женский вокалы и клавиши. Достаточно мелодичная и быстрая музыка. Вызывает некоторые сомнения не очень чёткий мастеринг, в остальном же работа слушается, достаточно бодренько. Шведы знают, чего делают, забойный куплет, запоминающийся припев, плюс стандартное время звучания 31 минута, не дают соскучиться. Другой вопрос, что это не ново, да и группы такие присутствуют в некотором количестве.Стоит обратить внимание на композицию Gaia. Стандартная, стабильно-хорошистская работа без изысков. Не для гурманов!</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.09.2016 news WISHING WELL выпустили видео-клип
+
+<p>Финская hard rock банда<strong> WISHING WELL</strong> выпустила видео на песню "<strong>Luck Is Blind</strong>". Трек вышел на последнем альбоме коллектива "<strong>Chasing Rainbows</strong>" посредством <strong>Inverse Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9HxWCCjs3iM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.09.2016 news New video from Wishing Well!
+
+<p>Finnish hard rockers <strong>Wishing Well</strong> have released a video for the song “<strong>Luck Is Blind</strong>” from their critically acclaimed “<strong>Chasing Rainbows</strong>” album, which was released in February 2016 by <strong>Inverse Records</strong>.</p><p>“<em>We are still promoting the album and we thought that this time it would be good to come out with a little softer song. ‘Luck’ is a melodic and catchy tune with serious lyrics about injustice and inequality of the world. The song also features some cool keyboards by Juha “The Undertaker” Huhta and that gives the song some extra character. We’re even considering of using Hammond organ all the way on our next album</em>”, says <strong>Anssi Korkiakoski</strong>, guitar player and songwriter of Wishing Well.</p><p>“<em>We didn’t want the video to be too complicated but decided that simple but well recorded stage video should do the trick. We shot and cut the video all by ourselves in Helsinki and it’s just us performing our music. We shall come up with more videos from the album and next time we’ll do something different</em>.”</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9HxWCCjs3iM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

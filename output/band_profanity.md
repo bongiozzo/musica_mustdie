@@ -31,6 +31,33 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.08.2002 news Profanity split from their label...
+
+<p>- Profanity split from their label<BR><BR> Profanity are not longer singned by Cudgel Agency - the band choose as band to split from the label. This was done with the agreement of both sides in a friendly way. We thank Jens and Besen for their support and wish them the best for their label and all future activities.<BR><BR> - Continoue songwriting for next CD "HateRed Hell Within"<BR><BR> After 24 days on "The Art of Sickness" european Tour with Cryptopsy, Haemorrhage and Spawn we continoue the songwriting for our next release "HateRed Hell Within". The material will be more technical and brutal but also more musically than our last record "Slaughtering Thoughts". "HateRed Hell Within" will be the next step forward in our vision of extreme music.<BR><BR> - New MP3s on www.profanity.de <BR><BR> Check the free MP3-stuff on our homepage: Our coverversion of -The Exorcist- (Possessed), -Fear of Napalm- (Terrorizer), a part of our latest song -Humade Me Flesh- and more soundfiles..... feel free and check our vision of brutality on <A HREF="http://www.profanity.de/">www.profanity.de</A></p>
+
+Автор: Yermola
+
+### 14.08.2002 news Profanity покинули лэйбл...
+
+<p>Немцы "Profanity" ушли с лэйбла "Cudgel Agency". Расставание произошло по согласованию сторон и в дружественной обстановке. Сейчас после 24-х дневного Европейского тура "The Art of Sickness" с Cryptopsy, Haemorrhage и Spawn команда готовит материал для своего следующего альбома "HateRed Hell Within". На официальном сайте группы <A HREF="http://www.profanity.de">www.profanity.de </A>можно скачать в MP3 новые вещи: -The Exorcist- (Possessed), -Fear of Napalm- (Terrorizer) и -Humade Me Flesh-</p>
+
+Автор: Yermola
+
+### 21.08.2002 news Profanity сели в студию.
+
+<p>Немецкие ребята Profanity пишут материал для нового альбома, который будет назван "HateRed Hell Within". Материал станет более техничным и брутальным, чем на "Slaughtering Thoughts", частично потому, что группа находится в стадии экспериментов со звучанием и новым оборудованием.</p>
+
+Автор: Midnight Vampire
+
+### 21.08.2002 news Profanity write the new material
+
+<p>At the moment Profanity continues songwriting for the next album entiteld "HateRed Hell Within". The material will be more technical and brutal and also more musically than the group's last record "Slaughtering Thoughts" - for this vision of our music they are experimenting with new equipment and new sounds... extreme and profane sounds!!!</p>
+
+Автор: Midnight Vampire
+
+
 ## Обсуждения
 
 

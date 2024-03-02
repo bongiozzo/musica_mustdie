@@ -20,6 +20,16 @@ Czech Black Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.10.2002 reviews Czech black metal
+
+<p>Czech black metal. And if it’s Czech… guess what I’m going to say? Exactly: it’s distinctively of Czech origin, though simultaneously sounding way more European (=bound to cliches East European combos aren’t too known for). Not really original and obviously not outstanding at all, it still is pretty much enjoyable. Performed by two men. Well performed. Equally well executed. The closing track is a cover from TORR’s “Kladivo Na Carodejnice”. Enough said.</p>
+<P> Snail mail: c/o Michal Dedek / Husitske Man 537 / 43601 Zatec / Czech Republic</>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

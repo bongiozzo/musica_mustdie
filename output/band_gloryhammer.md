@@ -22,6 +22,17 @@ The band was formed by Christopher Bowes, lead singer and keyboardist of Alestor
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.09.2015 news Новое видео GLORYHAMMER
+
+<P>Новый ролик<STRONG> GLORYHAMMER</STRONG> на песню "<STRONG>Rise Of The Chaos Wizards</STRONG>" можно посмотреть ниже. Трек войдёт во второй альбом группы клавишника <STRONG>ALESTORM "Space 1992: Rise Of The Chaos Wizards".</STRONG></P>
+<P>
+<CENTER><IFRAME height=360 src="https://www.youtube.com/embed/YGV6bCTMM5w?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

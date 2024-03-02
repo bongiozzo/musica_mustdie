@@ -149,6 +149,415 @@ Extra Bonus Track
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.02.2003 reviews Очередная порция идиотизма
+
+<p>Помню, какой восторг я испытал, когда услышал первые перлы Кирилла Немоляева и его группы Бони Нем. Тогда известные поп-песни перефразируемые этим выдумщиком звучали свежо, плюс к тому, эти песни я, как и многие другие металлисты, слушал в годы детства (молодости). Последний альбом обозреваемой группы вызвал уже только натянутую улыбку, так как фантазии хватило только на несколько песен. На новом же творении чувствуется увлечение Немоляевым Rammstein-оподобной музыкой, что не скрою, "вдуло" :)) порцию свежего воздуха на это кладбище несостоявшихся хитов. Большинство песен сыгранных здесь не представляют никакого интереса лично для меня. Кто такой C. Крутиков, а кто М. Фадеев? Это прорыв на отечественный поп-рынок? Если вы не слышали никогда Бони Нем, купите приколитесь... А так, прошлые альбомы были более живые и весёлые. Мне кажется, шутка затянулась... Перечислю песни, подвергшиеся превращению в Rammstein: "Увезу тебя я в тундру", "Нас не догонят", "Сука - Любовь", "Ты скажи", "Песня первоклассника", "Без тебя", "Беги по небу", "Только этого мало", "Чито-грито-маргалито", "Пропала собака".</p>
+
+Автор: Vit Belov
+
+### 18.04.2003 news Нас не догонят!
+
+<p>20 апреля 2003 года (на 19 дней раньше!) в городе-герое Москве, в клубе "Б-2" (Большая Садовая, 8, м. "Маяковская") состоится празднование "Дня Победы". <BR> Ансамбль Бони НЕМ исполнит старые добрые и новые злые шлягеры, включая "Нас не догонят", "Чито-грито маргалито", "Песня первоклассника", "Только этого мало" и др. <BR> Начало брутального ретро-шоу в 21.00 <BR> Билеты продаются в рок-галерее "Зиг-заг" и в клубе "Б-2" в день концерта</p>
+
+Автор: Dimas
+
+### 09.06.2003 news Старые песни на новый лад
+
+<p><IMG SRC="/images/news_rus/2003.06/4392.gif" ALT="pho" width=300 height=225 hspace="15" vspace="5" border="1" align="left">15 июня в клубе Б-2 состоится совместный концерт групп БОНИ НЕМ и ПРИКЛЮЧЕНИЯ ЭЛЕКТРОНИКОВ<BR> Начало в 21.00<BR> Также перед концертом состоится долгожданная премьера видеоклипа «Чита-Грита-Маргалито».<BR> Билеты продаются в кассе клуба и в рок-магазинах.<BR> Адрес клуба: м. Маяковская, ул. Большая Садовая, 6</p>
+
+Автор: Dimas
+
+### 03.09.2003 news Boney NEM Ателье
+
+<p ALIGN="CENTER"><IMG SRC="/images/news_rus/2003.09/4782.jpg" ALT="pho" width=400 height=273 hspace="15" vspace="5" border="1" align="center"></p>
+
+Автор: Dimas
+
+### 05.11.2003 news Презентации нового альбома Бони НЕМ
+
+<P><LABEL id=HbSession SessionId="3176361145"><IMG height=225 alt="" hspace=10 src="/images/shows_rus/2003.12/5629.gif" width=300 align="left" border=0>4 декабря 2003 года в клубе Б-2 состоится концерт-презентация нового альбома группы <B>BONEY'NEM</B> "Romantic collection". Будет представлена новая концертная программа.</LABEL></P>
+<P><LABEL SessionId="3176361145">Начало концерта в 20 часов.</LABEL></P>
+<P><LABEL SessionId="3176361145">Билеты продаются в кассе клуба и рок-галерее "Зиг-Заг".</LABEL></P>
+<P><LABEL SessionId="3176361145">Адрес клуба: м.Маяковская, ул. Б. Садовая, д.8</LABEL></P>
+Автор: Dimas
+
+### 30.11.2003 news Презентация нового альбома Бони Нем
+
+<P><IMG height=188 alt="" hspace=0 src="/images/news_rus/2003.11/5564.jpg" width=200 align="left" border=0>Презентация нового альбома <B>BONEY NEM</B> <B>'Romantic Collection'</B> состоится <B>30 ноября</B> в <B>ТВЦ 'Рубин'</B> в магазине <B>Metal&Progressive</B> <B>B2-100</B> в <B>14-00</B>. <B>Кирилл Немоляев</B> пообщается с поклонниками и оставит автографы на "пикантной"... обложке нового альбома.</P>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 09.12.2003 reviews Регина Дубовицкая, обратите внимание!
+
+<DIV>Продолжая творчество на ниве пародистов-юмористов, Кирилл Немоляев никак не добьётся популярности сравнимой с известностью Максима Галкина. Тот на центральных федеральных каналах, а Кирилла и с радиоволн выгнали (вместе с радиостанцией), да и ДТВ не является самым крупным каналом (скорее, наоборот). Romantic Collection - это сборник, приправленный несколькими новыми песнями. Любовь к RAMMSTEIN не остывает в душе группы. Единственной смешной композицией с натяжкой можно назвать 'Кострома', да и тут юмор какой-то припанкованный, больше понятный в состоянии алкогольного опьянения. В середину пластинки включены старые вещи, на которых Бони Нем более творчески подходили к озвучиванию старых хитов. </DIV>
+<DIV>Как можно оценить этот компакт-диск? К музыке они не имеют отношения, да и юмор:))) Их надо в программу "Аншлаг, Аншлаг", может после этого они успокоятся и перестанут штопать пластинки одну за одной.</DIV>
+Автор: Vit Belov
+
+### 21.12.2003 reviews Халтура!
+
+<P>Не успел <B>Кирилл Немоляев</B> насладиться успехом “<B>Дня Победы</B>”, как настало время выпустить новый альбом. Вернее время еще могло бы подождать, но несколько песен уже были записаны. Тут и пришла идея выпустить альбом, содержащий какую-нибудь творческую нить. А о чём петь, когда петь собственно не о чем? Конечно же, о любви! За один оставшийся в студии день были записаны “<B>Ну где же вы, девчонки</B>?”, “<B>Как же тебе повезло, моей невесте</B>!”, “<B>Я буду вместо нее</B>!”. Сразу после выхода “<B>Дня Победы</B>” я случайно услышал о <B>Бони Нем</B> на одной из радиостанций, что самое важное и сложное для группы - обложка диска. Черт, как это верно!</P>
+<P>Называть это альбом новым очень большое преувеличение, если учесть, что новыми песнями на нем является ровно половина. Честно говоря, новый материал вполне силен, если исключать песни по 10 секунд, которые я песнями не считаю, извините.</P>
+<P>Пройдет немногим больше полугода. На творческом совещании участников группы будет вынесено решение о выходе нового альбома. (Как проходят подобные собрания несложно догадаться всем, кто слышал песню “<B>Пропала Собака</B>”) На этот альбом войдут только песни на английском языке, новыми из них будут 3-4, называться диск будет, скажем <B>Excursion on England</B>. Халтура.</P>
+Автор: Uneral
+
+### 10.02.2006 news Русское нашествие от CD-Maximum
+
+<P>Зимой-весной 2006 года, компания <B>CD-MAXIMUM</B> выпустит несколько релизов известных российских коллективов. Уже готовы к производству и скоро выйдут: </P>
+<P><B>АЛЕКСЕЙ СТРАЙК - Время полной луны</B> (melodic heavy metal)<BR><B>ЧЁРНЫЙ ОБЕЛИСК - Зелёный альбом</B> (heavy metal)<BR><B>СЕРГЕЙ МАВРИН - Откровение</B> (melodic heavy metal)<BR><B>НАТИСК - Второе дыхание</B> (hard'n'heavy)<BR>
+<P>Кроме того, в 2006 году планируются к выходу новые альбомы групп <STRONG>АРТЕРИЯ, BONEY'NEM, АРДА</STRONG> и<STRONG> РОГАТЫЕ ТРУПОЕДЫ</STRONG>, концертный альбом группы <B>ЛЕГИОН</B>, концертный альбом и dvd группы <B>КИПЕЛОВ</B>, а также dvd группы <B>ЭПИДЕМИЯ</B>. 
+<P>Помимо этого, готовятся к выходу альбомы еще некоторых российских коллективов. </P>
+Автор: Dimas
+
+### 26.02.2006 news Новости от Кирилла НЕМоляева
+
+<P><IMG height=171 alt="" hspace=10 src="http://www.nem.ru/images/pauk.jpg" width=120 align=left border=0>Ансамбль <STRONG>Бони'НЕМ</STRONG> заканчивает работу над юбилейным сборником "<STRONG>Нас не догонят</STRONG>". Релиз планируется на вторую половину марта</P>
+<P>В разгаре работа над новым альбомом группы <STRONG>ФАКТОР СТРАХА</STRONG> - проекта музыкантов группы <STRONG>ТРИЗНА</STRONG> и <STRONG>Кирилла НЕМоляева</STRONG>. На данный момент записаны барабаны. С 25-го по 27-е февраля <STRONG>Константин Селезнев</STRONG> записывает гитарные партии. На альбоме будет 11 треков. Выход альбома "<STRONG>Театр военных действий. Акт 2</STRONG>" ожидается осенью 2006-го года. </P>
+<P>Восемнадцатого февраля у <STRONG>Кирилла НЕМоляева</STRONG> родилась дочка АНТОНИНА! </P>
+<P>Поздравляем!</P>
+Автор: Dimas
+
+### 17.05.2006 reviews Если у вас нету.... нового материала
+
+<P>Что ж, уже черте какой по счету релиз стёбного проекта Кирилла Немоляева Бони Нем оказывается при ближайшем рассмотрении просто компиляцией творчества группы за последние десять лет, посему он и оказывается как бы "юбилейным". Среди 21 перепевки известных песен здесь всего восемь новых. Поэтому возникает естественный вопрос: просто не хватило материала и новых идей или как? Наверное, всё же первое. Как ни крути, с "мелодиями и ритмами зарубежной эстрады" у Бони Нем получалось лучше. Здесь же Немоляев и Со понадёргали своих обработок с прошлых релизов, да добавили "новинок" (слабоватых, кстати сказать). Как говорится, вроде всё так, да чего-то не хватает. Получился альбом как бы "отписка" - типа, мы еще творим на этом поприще, но отстаньте. Странно, ей Богу, слушается данная компиляция. Нет тут былой целостности. Новые "стёбности" натыканы куда попало, половина из них вообще идет бонус-трэками. Ну да не будем докапываться до причин. По всей видимости, новые вещички вряд ли попадут в следующий (если он вообще будет) альбом коллектива, так что получается, что фанатам группы придется покупать почти две трети материала как бы во второй раз, что вряд ли их обрадует. Учитвая прошлые заслуги коллектива Бони Нем и не очень-то интересные "бонусы", воздержусь от оценки.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 27.10.2006 news БОНИ &#39;НЕМ: скоро новый альбом
+
+<P><STRONG>Кирилл Немоляев</STRONG> и его проект <B>БОНИ 'НЕМ </B>закончили работу над своим новым альбомом под названием «<B>Тяжелые песни о Главном. Часть первая</B>». Его выход запланирован на <B>CD-MAXIMUM</B> в конце 2006 - начале 2007 года. В следующем году планируется выпуск второй части альбома. Особенностью обоих альбомов является то, что их трек-листы определяются по голосованию поклонников коллектива на сайте проекта.</P>
+Автор: Dimas
+
+### 30.01.2007 news Новый альбом БОНИ&#39; НЕМ
+
+<P>Компания <B>CD-Maximum</B> готовит к изданию в феврале новый альбом культовой стебной группы под руководством заслуженного деятеля культуры <B>Кирилла НЕМоляева</B> <B>БОНИ' НЕМ</B> под названием "<B>Тяжелые песни о главном. Часть 1</B>". Русская и зарубежная классика и хиты советских времен, пропущенные через тяжелые риффы и искрометное чувство юмора. Как всегда, неожиданный взгляд на знакомые песни. Предположительный трек-лист альбома (он может незначительно&nbsp;измениться до выхода альбома):</P>
+<P><B><IMG height=300 alt="" hspace=50 src="/images/news_rus/2007.01/11232.jpg" width=300 align="right" border=0>1. Не думай о секундах свысока<BR>2. Aint nobodies business<BR>3. Широка река<BR>4. Бу-Ра-То!<BR>5. Владивосток 2006<BR>6. Хэви нагила<BR>7. Остров невезения (Bad Luck Island)<BR>8. Boys<BR>9. Москва<BR>10. Я пью до дна!<BR>11. Течет Волга<BR>12. Этот поезд в огне! (Полковник Васин)<BR>13. Х#й, говно и муравей</B> (Внимание! Ненормативная лексика)<BR><B>14. Хлопай ресницами</B> (bonus track)<BR></P>
+Автор: Dimas
+
+### 09.02.2007 news Наша экология души - 5
+
+<CENTER><IMG height=320 src="/images/shows_rus/2007.03/11299.jpg" width=600 border=0></CENTER>
+Автор: Dimas
+
+### 21.03.2007 news День рождения клуба
+
+<CENTER><IMG height=353 src="/images/shows_rus/2007.04/11436.jpg" width=500 border=0></CENTER>
+Автор: Dimas
+
+### 08.05.2007 reviews Халтурная работа, часть N
+
+<P>Знаете, что меня больше всего ужаснуло при первом взгляде на новый опус Бони Нем "Тяжёлые песни о главном. Часть 1"? Эта самая "Часть 1". Значит, минимум будет еще и часть 2. То что группа давно уже исписалась, отмечал в последнее время не только я. Исписалась, естественно, в том смысле, что Кирилл Немоляев и Со уже не могут прибавить. Не могут вдохнуть хоть сколько-нибудь свежий ветер в свои тяжелые перепевки известных хитов. И никакого "неожиданного взгляда на незнакомые песни", как повествует нам в очередной раз "честная" аннотация, тут и в помине нет. Да, когда-то это было смешно, весело и интересно, теперь же ничего, кроме откровенной зевоты и ежеминутного желания нажать на пимпу "скип" не вызывает. Ведь известно, что даже самая удачная шутка когда-нибудь да надоест. Да и набор песенок несколько странный. Лепить в один котёл 'Не думай о секундах свысока' и 'Х.., гавно и муравей', по меньшей мере, нелепо. Впрочем, фэны у группы есть, значит, всё это еще кому-то надо. Посему не буду больше останавливаться на отдельных номерах данного альбома. Всё это начинает, простите, смахивать на какую-то халтуру; притом&nbsp;данное слово&nbsp;касается и оформления альбома Лексом Плотниковым - мы знаем, на что способен этот талантливый человек, а то, что налеплено в буклете и обложке "Тяжёлых песен..." - даже учитывая всю стёбность данного проекта - кроме как халтурой не назовешь. Я искренне удивлюсь, если "часть 2", которая по идее должна появиться рано или поздно, будет хоть на йоту лучше данной работы. Оставляю альбом без оценки - думаю, всё скажет заголовок к рецензии.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 05.10.2008 news БОНИ НЕМ: Тяжелые Песни О Главном-2 на CD-Maximum
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2008.10/12905.jpg" width=250 align=right border=5>В ближайшее время на <STRONG>CD-Maximum</STRONG> запланирован выход нового альбома <STRONG>Бони НЕМ</STRONG> "<STRONG>Тяжелые Песни О Главном-2</STRONG>". Трек-лист издания:<BR>&nbsp;<BR>1. <STRONG>Манхэтан? <BR></STRONG>2. <STRONG>Вологда-гда!<BR></STRONG>3. <STRONG>Наш адрес – Советский Союз<BR></STRONG>4. <STRONG>Боль моя<BR></STRONG>5. <STRONG>Мы начинаем КВН</STRONG><BR>6. <STRONG>Ну-ка мечи стаканы на стол</STRONG><BR>7. <STRONG>Я – Кипелов!!!!!!!!!!!!!!!</STRONG> <BR>8. <STRONG>Песня Красной Шапки</STRONG><BR>9. <STRONG>Рейкьявик<BR></STRONG>10. <STRONG>Три коня</STRONG><BR>11. <STRONG>Валенки<BR></STRONG>12. <STRONG>Каламбия Пичкерс Охреневает! <BR></STRONG>13. <STRONG>Эй, ухнем!<BR></STRONG>бонус треки:<BR>14. <STRONG>Воля и разум<BR></STRONG>15. <STRONG>Новорожденный огонь</STRONG> <BR>&nbsp;<BR>По адресу <A href="http://www.nem.ru/mp3/tpog2_megamix.mp3">http://www.nem.ru/mp3/tpog2_megamix.mp3</A> можно ознакомиться с миксом из песен с готовящегося к выходу альбома.</P>
+Автор: Vit Belov
+
+### 23.12.2008 reviews Теперь даже не смешно
+
+<P>Писать рецензии на новые опусы БОНИ НЕМ с некоторых пор дурное занятие. Что можно рассказать об этих работах, чем можно отчитаться за появление этих странных заметок о популярном коллективе под управлением Кирилла Немоляева? Да ничем… Выпускают же БОНИ НЕМ дурацкие альбомы. Вот мы и публикуем дурацкие заметки.</P>
+<P>В прошлом я уподоблял господина Немоляева знаменитому советскому stand-up комику Евгению Петросяну. В то время это было актуально. Сейчас уже нет. Во-первых, на телеканалах появилось столько «петросянов», что тот, первый, кажется образцом остроумия. Во-вторых, сами БОНИ НЕМ уже не дотягивают по уровню шуток до тех альбомов. Я противился уже самому перевоплощению любимых мною БОНИ НЕМ, игравших металл-кавера на зарубежные поп-песни, в группу, пародирующую отечественных исполнителей, о существовании которых я даже и не подозревал. Ну, это ладно… Это было хоть иногда смешно. Чем сейчас занимается группа, я отказываюсь понимать. Например, на новом хит-альбоме «Тяжёлые песни о главном, часть 2» Немоляев перепевает текст гимна СССР, или песню КВНщиков, или «Эй, ухнем», или «Валенки». Чего в этом смешного, кроме самого факта существования людей, готовых платить деньги за диск, на котором всё это записано, я не врубаюсь.</P>
+<P>Должно быть, в связи с кризисом БОНИ НЕМ скоро будут выпускать по два альбома в год, методично обрабатывая все песни, выходившие в СССР на пластинках фирмы «Мелодия». При этом сами кавер-версии можно ставить на поток, просто пошумев немного на гитарах и добавив гроулинг. Довольно просто.</P>
+<P>P.S.: Можно, ещё, кстати, в нужных местах вставить в текст выражение «Твою Мать!». </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Tribute to Boney Nem

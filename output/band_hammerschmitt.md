@@ -28,6 +28,25 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.10.2001 reviews Молоток с немецкой наковальни
+
+<p>Молоток с немецкой наковальни. Очень неплохой материальчик представляющий собой сплав готического рока и раммштейнообразных риффов. Немецкоязычная лирика и жесткие риффы делают музыку похожей на Rammstein, но у Hammerscmitt музыка будет поразнообразней и с большим количеством эффектов и мелодий. Постоянные акустические гитары, обособленные басы и размеренные ритмы делают эту музыку также близкой к darkwave, а иногда можно услышать и мотивы stoner-rock. Так что по разнообразию Hammerschmitt опередил своих земляков, а вот по хитовости материала они наравне, зато Hammerschmitt явно проигрывает в монолитности и жесткости. Следует отметить удачные находки с женским вокалом в одной из вещей и с детским хором в другой. Неплохой альбомчик, любителям немецкоязычной музыки должен понравится.</p>
+
+Автор: Dimas
+
+### 25.07.2016 news Новый клип HAMMERSCHMITT
+
+<p>Новый альбом немцев<strong> HAMMERSCHMITT "Still On Fire"</strong> выйдет 26 августа на<strong> Massacre Records</strong>. Клип на песню "<strong>Metalheadz</strong>" можно посмотреть ниже. Продюсер альбома<strong> Bobby Altvater</strong> и сведение и мастеринг <strong>Mario Lochert. Markus Salmanir</strong> нарисовал обложку.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zvt1MNIYoaQ" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 25.07.2016 news New video by HAMMERSCHMITT
+
+<p><strong>HAMMERSCHMITT </strong>just released the official video clip for the brand new song "<strong>Metalheadz</strong>"! Enjoy it below.</p><p>The song is featured on the upcoming album "<strong>Still On Fire</strong>", which will be released on August 26, 2016 via <strong>Massacre Records</strong>. The album was recorded by <strong>Bobby Altvater</strong>, and mixed and mastered by <strong>Mario Lochert</strong>. <strong>Markus Salmanir</strong> is responsible for the cover artwork.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zvt1MNIYoaQ" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

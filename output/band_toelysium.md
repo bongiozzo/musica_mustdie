@@ -16,6 +16,67 @@ Gothic-doom from Holland
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.04.2002 reviews Третий gothic-doom metal коллектив из Голландии.
+
+<p>Есть ещё After Forever и Within Temptation. Группа представляет свою версию стандартной модели "красавица и чудовище". Ну представьте себе старый Theatre Of Tragedy только growling изредка сменяется screaming'om. Девушка поёт очень высоким голосом, правда в одной тональности, что напрягает немного. Но есть то, чего тотально не хватает этой пластинке... Интересных мелодических решений. Вроде бы всё интересно, стандартно и правильно, да не цепляет. Стоит купить только тем, кто скучает по тем временам, когда таких групп был, хоть отбавляй, а сейчас ещё поискать. Не худший вариант...</p>
+
+Автор: Vit Belov
+
+### 16.04.2002 reviews Third gothic-doom metal collective from Holland.
+
+<p>There are still After Forever and Within Temptation. The group represents the version of standard model "beauty and the beast ". Well, imagine old Theatre Of Tragedy only growling occasionally is replaced by screaming. The girl sings by a very high vote, the truth in one key, that strains slightly. But there is what is total does not suffice to this CD... Interesting melodic decisions. Like everything is interesting, it is standard and correctly, yes does not cling. It is necessary to buy only by the one who misses for those times, when such groups was, though take away. Not the worse variant...</p>
+
+Автор: Vit Belov
+
+### 15.11.2002 news Cold Blood Industries News
+
+<p>CBI have announced 2 new signings. There are death-black-thrash mix KATAFALK and CRUSTACHEAN (Dutch thrashers). Their albums will be released in early 2003. Here is tourdates from this label: <BR> I.N.R.I. <BR> november 15 De Klos, Emmeloord NL <BR> november 17 013, Tilburg NL (+ Katafalk & Monastery) <BR> november 23 Babylon Woerden NL <BR> december 13 MetalFront, Coevorden NL (+ Katafalk & Monastery) <BR> december 19 Podium, Hardenberg ( + EXODUS & Dead Head)</p>
+<P> The Wounded <BR> november 8 Baroeg, Rotterdam NL (+ Agathodaimon (Dld) & Serenade of Darkness) <BR> november 16 The Event, Geel Belgium <BR> november 9 So What, Ede NL <BR> november 29 De Kelder, Amersfoort NL</>
+<P> Dead Head <BR> december 19 Podium, Hardenberg ( + EXODUS & INRI)</>
+<P> To Elysium <BR> december 7 Broerenkerk, Zwolle NL (+Novemberrain, After Forever, Autumn and Penumbra)</>
+<P> Katafalk <BR> 17 november 013, Tilburg NL (+ INRI & Monastery) <BR> november 23 Blanco, Emmen NL ( + Cantara & Dark Mythology) <BR> december 13 Metalfront, Coevorden NL (+ INRI & Monastery)</>
+
+Автор: Vit Belov
+
+### 06.04.2003 news To Elysium записывают новый альбом
+
+<p>Немного известная у нас голландская группа To Elysium записывает сейчас нвый альбом, который будет называться 'Nightmare's Nest' и выйдет осенью на Cold Blood Industries.</p>
+
+Автор: Vit Belov
+
+### 06.04.2003 news To Elysium and The Wounded record new album for Cold Blood Industries
+
+<p>Atmospheric Metallers To Elysium are currently recording their new studioalbum at Franky's Recording Kitchen, Holland. The working title of the album is " Nightmare's Nest ". Watch out for an early Fall release…</p>
+<p>Gothic Rockband The Wounded will be recording their new album this Spring, also at Franky's recording Kitchen. Working title: Atlantic. Watch out for an early Fall release…</p>
+
+Автор: Vit Belov
+
+### 06.10.2003 news Новости от TO ELISIUM
+
+<P>Новый студийный альбом голландцев <B>TO ELYSIUM</B> под названием <B>"Nightmare's Nest"</B> готов и ждет выхода 5 декабря на <B>Cold Blood Industries</B>.</P>
+Автор: Dimas
+
+### 20.11.2003 news To Elysium and Epica in Gouda, NL
+
+19 Dec So What!, Gouda NL
+Автор: Vit Belov
+
+### 16.01.2005 news Конец TO ELYSIUM
+
+<P>Голландские готик металеры&nbsp;<B>TO ELYSIUM</B> распались из-за внутренних разногласий в группе. После двух великолепных альбомов, музыканты решили пойти каждый своей&nbsp;дорогой.<BR>Последний альбом<STRONG> TO ELYSIUM "Nightmare's Nest"</STRONG>, был выпущен в 2004 году на лэйбле <B>Ebony Tears Records</B>. Вскоре, этот альбом будет выпущен по лицензии российской компанией <STRONG>CD-MAXIMUM</STRONG>.<BR></P>
+Автор: Dimas
+
+### 28.10.2005 reviews Попытка замены дара популярными схемами
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Три года назад мне казалось, что gothic-doom'а не хватает, я и сейчас&nbsp;так считаю, но назвать <STRONG>TO ELYSIUM</STRONG> чем-то заслуживающим внимания я не могу.&nbsp;По-прежнему слабо реализованная, слабо исполненная музыка,&nbsp;но ведь это уже не дебют, надо двигаться куда-то вперёд!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подойдём к этой пластинке со всей&nbsp;строгостью. Мелодии отсутствуют напрочь, девушка голосит&nbsp;хоть и высоко, но бездарно,&nbsp;даже гроулер и тот какой-то невнятный.&nbsp;Такое даже любителям стиля посоветовать тяжело. "Красавица и чудовище"&nbsp;- это оно, конечно... Да, вот только обидно, что талантом <STRONG>TO ELYSIUM</STRONG> кто-то обделил,&nbsp;и приходится, им бедным, выезжать за счёт стандартных популярных у населения схем.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За время прошедшее с выхода первого альбома<STRONG> TO ELYSIUM</STRONG> я узнал множество голландских готично-металлических коллективов, и всем им <STRONG>TO ELYSIUM</STRONG> проигрывают c&nbsp;большим отрывом. В отстой!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен CD-Maximum</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

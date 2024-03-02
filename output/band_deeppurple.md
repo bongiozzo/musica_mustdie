@@ -483,6 +483,453 @@ Fools (bonus)
 * C группой "Glover, Roger" Roger Glover (bass)
 * C группой "Whitesnake" David Coverdale (vocal)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>В прошлом году SINNER участвовал в концертах DEEP PURPLE на разогреве. Ян Гиллан сказал, что у них не было такой классной поддержки последние десять лет. Также SINNER записал песню группы ACCEPT "Ball To The Wall". Она выйдет на сборнике NUCLEAR BLAST в этом году.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Ebony Tears закончили запись нового альбома "A Handful Of Nothing". Новый альбом более брутальный и быстрый. Выпуск CD намечен на конец апреля. На японском варианте будет кавер Deep Purple "Bloodsucker".</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Helloween объявили приблизительный трэклист своего альбома каверов "Metal Jukebox". Присутствуют: ABBA, The Beatles, а также Дэвид Боуи, Deep Purple, Jethro Tull, Faith No More, Scorpions и другие. В Штатах будут переизданы альбомы Helloween "Master Of The Ring" и "Time Of The Oath". Также в Японии будет переиздан альбом "Pink Bubbles Go Ape" с бонус-трэком "Shit And Lobster". Вейки начал написание нового материала как для сольника, так и для нового альбома Helloween, позже к нему присоединятся другие участники коллектива. А тем временем бывший вокалист этой группы Михаэль Киске, а теперь сольный музыкант, потерял свой контракт в Японии.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>Deep Purple дали концерт с Лондонским симфоническим оркестром. В концерте принимал участие Ронни Джеймс ДИО.</p>
+
+Автор: Vit Belov
+
+### 13.09.2000 news Новая группа Cornerstone
+
+<p> Steen Mogensen (экс-Royal Hunt) и Dougie White (экс-Deep Purple) вместе, под именем Cornerstone, выпускают дебютный альбом 20-го ноября. Говорят, эта музыка будет представлять собой нечто среднее между Royal Hunt и Deep Purple :)</p>
+
+Автор: Nybras
+
+### 02.04.2001 news Альбом о Мишеле Нострадамусе...
+
+<p>Новый проект с участием известных музыкантов. Гитарист Nikolo Kotzev и команда "NOSTRADAMUS" записали рок-оперу (еще одна!!!) посвященную известному астрологу. Двойной альбом выходит через немецкую SPV Records в Европе 21 мая. Японский релиз ожидается 5 апреля, дата американского еще не уточнена. Более 100 минут музыки и симфонический оркестр из 35 человек. Среди вокалистов: G&ouml;ran Edman (GLORY / ex-YNGWIE MALMSTEEN), Glenn Hughes (ex-DEEP PURPLE / BLACK SABBATH), J&oslash;rn Lande (YNGWIE MALMSTEEN / ARK / MILLENNIUM), Joe Lynn Turner (ex-RAINBOW / YNGWIE MALMSTEEN), Doogie White (ex-RAINBOW), Alannah Myles, Sass Jordan. Более подробная информация на сайте www.nostramusic.com.</p>
+
+Автор: Yermola
+
+### 02.04.2001 news Michel de Nostredame....
+
+<p> NOSTRADAMUS, guitarist Nikolo Kotzev's rock opera about the famous Michel de Nostredame, will be released through Germany’s SPV Records in Europe on May 21st. The Japanese release date is set for April 5th, while the American details are still being worked out. Nostradamus will be released on a double CD and will contain more than 100 minutes of music, featuring a 35-piece symphonic orchestra along with a hard rock band and the following seven singers:</p>
+<p></p>
+<p> Gцran Edman (GLORY / ex-YNGWIE MALMSTEEN)</p>
+<p></p>
+<p> Glenn Hughes (ex-DEEP PURPLE / BLACK SABBATH)</p>
+<p></p>
+<p> Jшrn Lande (YNGWIE MALMSTEEN / ARK / MILLENNIUM)</p>
+<p></p>
+<p> Joe Lynn Turner (ex-RAINBOW / YNGWIE MALMSTEEN)</p>
+<p></p>
+<p> Doogie White (ex-RAINBOW)</p>
+<p></p>
+<p> Alannah Myles</p>
+<p></p>
+<p> Sass Jordan</p>
+<p></p>
+<p> More information can be obtained by visiting the official NOSTRADAMUS web site: www.nostramusic.com.</p>
+<p></p>
+
+Автор: Yermola
+
+### 18.04.2001 news DEEP PURPLE, LYNYRD SKYNYRD and TED NUGENT North American tour....
+
+<p> DEEP PURPLE, LYNYRD SKYNYRD and TED NUGENT are joining forces for a North American tour in June. Here are the confirmed dates so far:</p>
+<p> June 02 - Tinley Park, IL @ Tweeter Center</p>
+<p></p>
+<p> June 07 - Bossier City, LA @ CenturyTel Center</p>
+<p></p>
+<p> June 08 - Valley Center, KS @ Kansas Coliseum</p>
+<p></p>
+<p> June 09 - Council Bluffs, IA @ Westfair Amphitheatre</p>
+<p></p>
+<p> June 10 - St. Paul, MN @ Xcel Energy Center</p>
+<p></p>
+<p> June 12 - Scranton, PA @ Coors Light Amph.</p>
+<p></p>
+<p> June 14 - Wantagh, NY@ Jones Beach Amph.</p>
+<p></p>
+<p> June 15 - Holmdel, NJ @ P.N.C. Bank Arts Center</p>
+<p></p>
+<p> June 16 - Mansfield, MA @ Tweeter Center</p>
+<p></p>
+<p> June 17 - Saratoga Springs, NY @ Performing Arts Center</p>
+<p></p>
+<p> June 19 - Toronto, ON @ Molson Amphitheatre</p>
+<p></p>
+<p> June 20 - Cuyahoga Falls, OH @ Blossom Music Center</p>
+<p></p>
+<p> June 22 - Burgettstown, PA @ Post-Gazette Pavilion</p>
+<p></p>
+<p> June 23 - Hartford, CT @ ctnow.com Meadows Music</p>
+<p></p>
+<p> June 24 - Darien Center, NY @ Darien Lake Six Flags P.A.C.</p>
+<p></p>
+<p> June 26 - Cincinnati, OH @ Riverbend Music Center</p>
+<p></p>
+<p> June 28 - Clarkston, MI @ DTE Energy Music Theatre</p>
+<p></p>
+<p> June 29 - Noblesville, IN @ Verizon Wireless Music Center</p>
+<p></p>
+<p> June 30 - Columbus, OH @ Polaris Amphitheater</p>
+<p></p>
+<p> July 01 - Trinity, NC @ Kyle Petty Farm</p>
+<p></p>
+<p> July 03 - Bonner Springs, KS @ Sandstone Amphitheatre</p>
+<p></p>
+<p> July 05 - Tulsa, OK @ Mohawk Park</p>
+<p></p>
+<p> Source: BLABBERMOUTH.NET</p>
+<p></p>
+<p> July 06 - Dallas, TX @ Smirnoff Music Centre</p>
+<p></p>
+<p> July 07 - Schertz, TX @ Verizon Wireless Amphitheatre</p>
+<p></p>
+<p> July 08 - Spring, TX @ C.W. Mitchell Pavilion</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 21.05.2001 news DEEP PURPLE выступят с Паваротти....
+
+<p>"DEEP PURPLE" согласились участвовать в шоу "Паваротти и друзья" в Parco Novi Sad Modena 29 мая. Группа собирается исполнить несколько песен. Кроме того вокалист Йэн Гиллан вместе с Луччано споет песню "Nessun Dorma".</p>
+
+Автор: Yermola
+
+### 29.05.2001 news Сольный альбом Роджера Гловера...
+
+<p>Басс-гитарист "DEEP PURPLE" - Roger Glover записывает сольный альбом. Это будет первый опус считая с "The Mask" 1984 года. Дата выхода - 2002.</p>
+
+Автор: Yermola
+
+### 29.05.2001 news DEEP PURPLE bassist Roger Glover has reportedly .....
+
+<p>DEEP PURPLE bassist Roger Glover has reportedly been making progress on a new solo album, his first since The Mask back in 1984 (discounting the GILLAN/GLOVER project). Not many details have surfaced so far, but reports suggest that he has been working with Rufus Thomas' daughter, among others. A 2002 release is expected. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.06.2001 news Гленн Хьюз строит машину...
+
+<p>Бывший участник DEEP PURPLE/BLACK SABBATH вокалист GLENN HUGHES выпускает свой новый студийный альбом "Building The Machine". Диск выходит на SPV/Steamhammer Records 20-го августа. Полный трек-лист: 01. Can't Stop The Flood 02. Inside 03. Out On Me 04. I Just Want To Celebrate 05. Don't Let It Slip Away 06. Feels Like Home 07. Highball Shooter 08. When You Fall 09. I Will Follow You 10. Beyond The Numb 11. Big Sky</p>
+
+Автор: Yermola
+
+### 27.06.2001 news GLENN HUGHES will be issuing his brand new studio album....
+
+<p>Former DEEP PURPLE/BLACK SABBATH frontman GLENN HUGHES will be issuing his brand new studio album, Building The Machine, via SPV/Steamhammer Records on August 20th. The full track listing for the album is as follows: 01. Can't Stop The Flood 02. Inside 03. Out On Me 04. I Just Want To Celebrate 05. Don't Let It Slip Away 06. Feels Like Home 07. Highball Shooter 08. When You Fall 09. I Will Follow You 10. Beyond The Numb 11. Big Sky. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Проблемы Джона Лорда...
+
+<p>Клавишник "DEEP PURPLE" Джон Лорд вынужден был прервать тур с командой из за проблем с коленом (ему понадобилось срочное хирургическое вмешательство) и сможет присоединиться к "темно-лиловым" только к итальянским гастролям. Пока же его обязанности будет выполнять экс-Рэйнбоу/Блэк Саббат клавишник - Don Airey.</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Due to a recent knee surgery, DEEP PURPLE keyboardist ...
+
+<p>Due to a recent knee surgery, DEEP PURPLE keyboardist Jon Lord will not be joining the rest of the band until after the German shows of the current tour. Former RAINBOW/BLACK SABBATH keyboardist Don Airey will continue to handle the keyboards in his place. Jon Lord hopes to re-join DEEP PURPLE for the Italian dates, possibly also the Monaco shows. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 01.11.2001 news DEEP PURPLE have announced the following UK dates ...
+
+<p>DEEP PURPLE have announced the following UK dates for February/March 2002: <BR><BR> Feb. 03 - TBA - Belfast, IRE <BR> Feb. 04 - TBA - Dublin, IRE <BR> Feb. 06 - Auditorium – Grimsby, UK <BR> Feb. 07 - Royal Concert Hall – Nottingham, UK <BR> Feb. 08 - Apollo - Manchester, UK <BR> Feb. 10 - Apollo - Oxford, UK <BR> Feb. 11 - Cliffs Pavilion - Southend, UK <BR> Feb. 12 - Regent - Ipswich, UK <BR> Feb. 14 - City Hall - Sheffield, UK <BR> Feb. 15 - Empire - Liverpool, UK <BR> Feb. 16 - NEC - Birmingham, UK <BR> Feb. 18 - International Centre - Bournemouth, UK <BR> Feb. 19 - TBA - Brighton, UK <BR> Feb. 20 - TBA - Cardiff, UK <BR> Feb. 22 - Hammersmith Apollo - London, UK <BR> Feb. 23 - Hammersmith Apollo - London, UK <BR> Feb. 24 - Hammersmith Apollo - London, UK <BR> Feb. 26 - St. Georges Hall - Bradford, UK <BR> Feb. 27 - City Hall - Newcastle, UK <BR> Feb. 28 - Clydebank Arena - Glasgow, UK <BR> Mar. 02 - Leisure Centre - Hereford, UK <BR> Mar. 03 - Colston Hall - Bristol, UK <BR> Mar. 04 - Pavilions - Plymouth, UK</p>
+
+Автор: Yermola
+
+### 16.01.2002 news Есть еще порох в пороховницах и ягоды в ягодицах....
+
+<p>Заслуженный рок-динозавр Роджер Гловер (DEEP PURPLE) приготовил четвертый соло-альбом "Snapshot". Записанный в Acme Studios (Нью-Йорк) и смикшированный Peter Denenberg (который делал юбилейное ремикширование альбома "Machine Head") релиз выйдет в продажу до конца 2002 года. Часть песен написана в соавторстве с Randall Bramblett. Трек-лист: <BR><BR> 01. If I Could Fly<BR> 02. Nothing Else<BR> 03. What You Don't Say<BR> 04. The Bargain Basement<BR> 05. It Could've Been Me<BR> 06. Burn Me Up Slowly<BR> 07. Some Hope<BR> 08. It's Only Life<BR> 09. Beyond Emily<BR> 10. My Turn<BR> 11. Queen Of England<BR><BR> На записи участвовали гостевые музыканты: Randall Bramblett (вокал, клавиши, саксофон), Joe Bonadio (ударные), Eran Tabib (гитара), Nick Moroch (гитара), Larry Saltzman (гитара), Warren Haynes (слайд гитара), Joe Mennonna (саксофон/тромбон), Vaneese Thomas и Deena Miller (бэк-вокалы) и Gillian Glover (вокал).</p>
+
+Автор: Yermola
+
+### 16.01.2002 news DEEP PURPLE Bassist To Issue Solo CD ...
+
+<p>DEEP PURPLE bassist Roger Glover is set to issue his latest solo effort, tentatively entitled Snapshot, at the end of the year. Recorded at Acme Studios in Mamaroneck, New York, and engineered by Peter Denenberg (who helped on the 25th anniversary remixes for Machine Head), the album will contain fourteen original songs, some co-written with Randall Bramblett. Song titles set to appear on the CD include the following: <BR><BR> 01. If I Could Fly<BR> 02. Nothing Else<BR> 03. What You Don't Say<BR> 04. The Bargain Basement<BR> 05. It Could've Been Me<BR> 06. Burn Me Up Slowly<BR> 07. Some Hope<BR> 08. It's Only Life<BR> 09. Beyond Emily<BR> 10. My Turn<BR> 11. Queen Of England<BR><BR> In addition to Roger, the core musicians appearing on the CD include Randall Bramblett (vocals, keyboards, saxophone) and Joe Bonadio (drums and percussion). Among the guests taking part on the CD are: Eran Tabib (guitar), Nick Moroch (guitar), Larry Saltzman (guitar), Warren Haynes (slide guitar), Joe Mennonna (saxophone/trombone), Vaneese Thomas and Deena Miller (backing vocals) and Gillian Glover (vocals, backing vocals).</p>
+
+Автор: Yermola
+
+### 25.01.2002 news DEEP PURPLE, THE SCORPIONS and DIO To Team Up For US Tour ...
+
+<p>DEEP PURPLE's official web site has confirmed that the PURPLE men will be embarking on an eight-week US co-headlining tour with THE SCORPIONS in June that will include DIO in the opening slot. Exact dates and venues will be announced in the weeks to come.</p>
+
+Автор: Yermola
+
+### 20.03.2002 news Джон Лорд покинул Deep Purple ....
+
+<P>Друзья, так уж получается, что мы должны сообщить вам грустную сенсацию: Джон Лорд ушел из группы. Об этом стало известно из интервью Иэна Гиллана «Открытому Радио» (102,5 FM). Спустя короткое время после этого, промоутеры российского тура получили официальное письмо от менеджмента Deep Purple, подписанное Роджером Гловером. Приводим его целиком: </P></>
+<P>«Я должен вас проинформировать, что Джон рассказал нам о своих планах отойти от активного участия в деятельности "Deep Purple". Мы желаем ему самого наилучшего. </P></>
+<P>Этот момент не может остаться без личного комментария. Очень жаль, что Джон принял такое сложное решение, но каждый из нас уважает его право распоряжаться собственной жизнью. Я столь многому у него научился, что вряд ли смогу по достоинству оценить это. </P></>
+<P>С настоящего момента нашим клавишником будет Дон Эйри. Мы приветствуем его в группе. </P></>
+<P>Роджер Гловер». </P> <IMG SRC="/images/news_rus/2002.03/2537.jpg" ALT="pho" width="358" height="232" hspace="5" vspace="5" border="0" align="left" /></>
+<P> Кажется, комментарии излишни. Текст письма, впрочем, оставляет вопросы относительно того, будет или нет участвовать Джон Лорд в записи нового альбома группы, как это предполагалось раньше. Остается дождаться приезда музыкантов и их пресс-конференции в Москве. Пока же нам остается лишь представить вашему вниманию промо-фотографию нового Deep Purple, присланную менеджментом группы. </P></>
+<p> Ресурс: <A HREF="http://www.deep-purple.ru/">www.deep-purple.ru</A> </p>
+
+Автор: Yermola
+
+### 20.03.2002 bios Биографии участников Deep Purple...
+
+<P>Иэн Гиллан (Ian Gillan) </P></>
+<P> </P></>
+<P> Иэн Гиллан родился 19 августа 1945 г. в Хаунслоу, Миддлсекс, Великобритания. Там же начал выступать в любительской группе The Moonshiners затем перебрался в The Javelins, часто выступая под псевдонимами (Garth Rockett, Jess Thunder, Jess Gillan). Профессиональную карьеру начал в 1965 г. в группе Episode Six, где встретился с Роджером Гловером. Летом 1969 г. был приглашен в Deep Purple. В октябре 1970 г. записал прославленную партию Иисуса Христа в рок-опере "Jesus Christ Superstar" (по легенде всего за 3 часа). Покинув в результате конфликта Deep Purple в 1973 г. пытался посвятить себя бизнесу (производство мотоциклов, студия звукозаписи, отель), но - безуспешно. В 1975 -82 г.г. вел интенсивную концертную деятельность и выпустил богатую дискографию в рамках проектов Ian Gillan Band и Gillan. В течение двух лет работал с Black Sabbath, с которыми записал альбом "Born Again". В 1984 г. стал инициатором воссоединения Deep Purple в классическом составе. В 1988 г. совместно с Р. Гловером выпустил новаторский альбом "Accidentally on Purpose". Покинул Deep Purple со скандалом в 1989 г. В том же году создал группу, которой дал старое название Garth Rockett & the Moonshiners и впервые совершил памятное турне по СССР. В 1990 г. принял участие в записи сингла "Smoke on the water" в пользу жертв землетрясения в Армении (1988 г.). В этом проекте также приняли участие: Ричи Блэкмор(Ritchie Blackmore), Джон Лорд (Jon Lord), Брайан Адамс (Bryan Adams), Джеф Бошам (Geoff Beauchamp), Брюс Дикинсон (Bruce Dickinson), Джеф Даунс (Geoff Downes), Кит Эмерсон (Keith Emerson), Дэвид Гилмор (David Gilmour), Джон Пол Джонс (John Paul Jones), Тони Айоми (Tony Iommi), Алекс Лайфсон (Alex Lifeson), Брайан Мэй (Brian May), Пол Роджерс (Paul Rodgers), Крис Сквайр (Chris Squire), Роджер Тэйлор (Roger Taylor). В 1991 г. выпустил очередной сольный альбом "Tool Box" под маркой Gillan. В 1992 г. возвратился в Deep Purple. В 1993 г. издал автобиографическую книгу "Child In Time" (переиздана в октябре 1998 г.). В 1996 г. выпустил сингл "Smoke On The Water" в рэп-аранжировке, в 1997 г. - в сотворчестве с гитаристом Стивом Моррисом (Steve Morris) (не путать со Стивом Морсом!) сольный альбом "Dreamcatcher". Один из хитов этого альбома был размещен на сайте Гиллана Интернете (задолго до аналогичного и разрекламированного опыта Д. Боуи). В сентябре 1999 г. Гиллан принял участие в юбилейном, 30-летнем "Концерте для группы с оркестром" и последовавшем в 2000 г. межконтинентальном турне с симфоническими оркестрами. 29 мая 2001 г. в Модене, Италия, в рамках музыкального фестиваля "Pavarotti and Friends", организованного в помощь детям Афганистана, Иэн Гиллан исполнил дуэтом с Лучано Паваротти арию "Nessun Dorma". Осенью 2001 г. Гиллан вновь поместил на своем сайте в интернете трек, записанный вместе со Стивом Моррисом, который возможно является предвестником будущего сольного альбома. В декабре 2001 г. принадлежащая Иэну Гиллану престижная музыкальная премия была продана на аукционе в пользу Фонда помощи детям, страдающим хроническим артритом. </P></>
+<P> </P></>
+<P>Роджер Гловер (Roger Glover) </P></>
+<P> </P></>
+<P> Роджер Гловер родился 30 ноября 1945 г. в Бреконе, Южный Уэльс, Великобритания. Изучая искусство в Harrow County School, играл в местной любительской группы The Madisons, а затем - The Lightnings. В результате слияния этих команд в 1963 г. была образована группа The Episode Six, к которой в 1965 г. присоединился Иэн Гиллан. Вслед за ним в 1969 г. Гловер перешел в Deep Purple и практически вместе с ним покинул группу в 1973 г. С этого момента по 1978 г. Гловер посвятил себя профессиональной продюсерской работе. Его услугами пользовалось огромное количество известных исполнителей, в том числе -Барби Бэнтон (Barbie Benton), Джо Брин (Joe Breen), Elf, Ian Gillan Band, Whitesnake, Рори Галлахер (Rory Gallagher), Hardin & York, Judas Priest, Nazareth, Status Quo, Young & Moody и многие другие. В 1974 г. Гловер написал музыку к мультфильму "Butterfly Ball", которая выросла в самостоятельное произведение и исполнялась "живьем" при участии таких известных музыкантов, как Тони Эштон (Tony Ashton), Дэвид Ковердэйл (David Coverdale,) Ронни Джеймс Дио (Ronnie James Dio), Рэй Фенвик (Ray Fenwick), Майк Гайлс (Mike Giles), Джон Густафсон (John Gustafson), Эдди Хардин (Eddie Hardin), Глен Хьюз (Glenn Hughes), Эдди Джобсон (Eddie Jobson), Нил Ланкастер (Neil Lancaster), Джон Лотон (John Lawton), Майк Моран (Mike Moran), Микей Ли Соул (Mickey Lee Soule), а также была издана отдельным диском. В 1978 г. Гловер был приглашен в качестве продюсера в группу Ричи Блэкмора Rainbow, где он вскоре также заменил бас-гитариста. В 1983 г. Гловер выпустил два сольных диска "The Mask" и "Elements". С 1984 г. снова постоянно играет в Deep Purple, являясь (до последнего времени) одновременно продюсером группы. В 1987 - 88 г.г. вместе с Иэном Гилланом записывает альбом "Accidentally on Purpose". В сентябре 1999 г. принял участие в юбилейном, 30-летнем "Концерте для группы с оркестром" и последовавшем в 2000 г. межконтинентальном турне с симфоническими оркестрами. В последние несколько лет Гловер много сил отдал ремастированию и переизданию альбомов Второго состава Deep Purple и дал согласие проделать такую же работу в отношении альбома "Burn". В 2001 г. Гловер участвовал в записи альбома американской группы "Gov't Mule". В октябре 2001 г. после двух лет работы Роджер Гловер полностью завершил запись и сведение своего сольного альбома с рабочим названием "Snapshot" (в качестве одной из вокалисток в записи приняла участие дочь Гловера - Гиллиан). Альбом, возможно, будет издан в этом году. </P></>
+<P> </P></>
+<P>Джон Лорд (Jon Lord) </P></>
+<P> </P></>
+<P> Джон Дуглас Лорд родился 9 июня 1941 г. в Лестере, Великобритания. С девяти лет начал играть на фортепиано, поскольку отец решил, что он должен стать профессиональным музыкантом. В начале 60-х годов в Лондоне, обучаясь в Central School Of Speech And Drama начал работать с группой The Bill Ashton Combo. В 1964 г. выступал с The Kinks, затем перешел в The Artwoods. В феврале 1968 г. Лорд оказался первым музыкантом в составе Roundabout, группы, переименованной месяц спустя в Deep Purple. В 1969 г. Лорд написал и "Концерт для группы и оркестра", исполненный совместно Deep Purple и Лондонским филармоническим оркестром. В 1971 г. с Лондонским симфоническим оркестром и частью музыкантов Deep Purple записал "Gemini Suite". Вплоть до роспуска Deep Purple в 1976 г. Лорд наряду с работой в группе выступал в составе трио "Ashton, Gardner & Dyke", а также записал вместе с Мюнхенским оркестром камерной оперы в 1974 г. сольный альбом "Windows", а в 1976 г. альбом "Sarabande". В 1976 - 77 г.г. работал в составе группы "Paice, Ashton & Lord", а с 1978 г. по 1984 г. играл в "Whitesnake" Дэвида Кавердэйла. В этот же период Лорд записал сольный альбом "Before I Forget", а также участвовал в записях альбомов многих известных музыкантов, среди которых - Мэгги Белл (Maggie Bell), Джо Брин (Joe Breen), Берни Марсден (Bernie Marsden), Грэм Боннет (Graham Bonnet), Джордж Харрисон (George Harrison), Кози Пауэлл (Cozy Powell), Дэвид Гилмор (David Gilmour) и другие. С 1984 г. Лорд - снова в составе Deep Purple, кроме того, он продолжает сессионную работу, помогая на записях альбомов Сэм Браун (Sam Brown), Кози Пауэлл (Cozy Powell), Алвин Ли (Alvin Lee) и другим. В октябре 1998 г. вышел сольный альбом Джона Лорда "Pictured Within". В 1999 г. в сопровождении друзей-музыкантов, принимавших участие в записи, среди которых Сэм Браун и Миллер Андерсон (Miller Anderson), Лорд совершил европейское турне с материалом сольного альбома. Тогда же, благодаря самоотверженной помощи молодого голландского композитора Марко де Гоэй (Marco de Goeij) , фактически восстановившего утраченную партитуру "Концерта для группы и оркестра" (1969 г.), Джон Лорд переработав этот материал подготовил его юбилейное (30 лет) исполнение в лондонском зале "Royal Albert Hall". Концерт был исполнен в сопровождении Лондонского симфонического оркетсра в сентябре 1999 г., а осенью и зимой 2000 г. последовало межконтинетальном турне, в котором кроме музыкантов Deep Purple и нескольких симфонических оркестров приняли участие многие известные исполнители, в т.ч. Ронни Дио, Эдди Хардин, Грэм Прескет (Graham Preskett), Пит Браун (Pete Brown), Сэм Браун, Миллер Андерсон, Стив Моррис. Осенью 2000 г. в лондонской церкви Св. Девы Марии был исполнен написанный Лордом хорал "From Darkness To Light". Летом и осенью 2001 г. Джон Лорд не смог участвовать в европейском турне группы из-за операции на колене, и его подменял Дон Эйри (известный клавишник, игравший, в частности, в Rainbow Ричи Блэкмора). Однако 4 ноября 2001 в Лондоне Лорд все-таки вышел на сцену на концерте памяти скончавшегося в том же году Тони Эштона (близкого друга и участника проекта "Paice, Ashton & Lord"). В настоящее время Джон Лорд работает над новым симфоническим проектом, который, как предполагается, может быть завершен и записан в исполнении Лондонского симфонического оркестра в течение предстоящих двух лет. </P></>
+<P> </P></>
+<P>Иэн Пэйс (Ian Paice) </P></>
+<P> </P></>
+<P> Иэн Пэйс родился 29 июня 1948 г. в Нотингеме, Великобритания. Он начал играть на ударных с 15 лет и помогал отцу в оркестре, сопровождавшем танцевальные вечера. В первой половине 60-х годов Пэйс играл в разнообразных любительских группах - Georgie & the Rave-Ons, The Shindigs. В 1965 г. Пэйс начал профессиональную карьеру в группе The MI 5, которая в 1967 г. была переименована в The Maze. В этой команде Пэйс познакомился и работал с Родом Эвансом, который и привел его год спустя на прослушивание в Deep Purple. Там выяснилось, что Ричи Блэкмор знаком с его игрой, и с февраля - марта 1968 г. Пэйс стал бессменным барабанщиком Deep Purple. Вплоть до роспуска группы в 1976 г. он участвовал также в проектах Джона Лорда, а также в сессионной работе с такими музыкантами, как Эдди Хардин (Eddie Hardin), Рэй Фенвик (Ray Fenwick), Пит Йорк (Pete York). В 1976 г. Пэйс вместе с Лордом основал "Paice, Ashton & Lord". С 1977 г. до 1979 г. он работал на записи альбомов с Мэгги Белл (Maggie Bell), Тони Эштоном (Tony Ashton), Плом Мартинесом (Paul Martinez), Берни Марсденом (Bernie Marsden), Кеном Хенсли (Ken Hensley). В 1979 г. Пэйс присоединился в Whitesnake Д. Ковердэйла, где играл до 1982 г. С 1982 г. по 1984 г. он был ударником Gary Moore Band. C 1984 г. - вновь в составе Deep Purple. В конце 80-х годов Пэйс принимал участие в сессионной работе с такими музыкантами как Пит Йорк и Джордж Харрисон. В 1999 г. Пол МакКартни пригласил Пэйса на запись своего альбома "Run Devil Run", после чего состоялась серия совместных концертов, увенчавшаяся символическим выступлением 14 декабря 1999 года в знаменитом ливерпульском клубе "The Cavern". В концерте, помимо самого МакКартни и Иэна Пэйса, так же принимал участие гитарист Pink Floyd Дэвид Гилмор (David Gilmour). В сентябре 1999 г. Пэйс участвовал в юбилейном, 30-летнем "Концерте для группы с оркестром" и последовавшем в 2000 г. межконтинентальном турне с симфоническими оркестрами. 17 сентября 2000 г. в австрийском городе Gmunden Иэн Пэйс вместе с лучшими барабанщиками мира выступил на фестивале "Superdrumming 2000". В последние четыре года Иэн Пэйс периодически выступает в рамках проекта "Ian Paice Drum Clinic", который является его персональным мастер-классом. В марте 2001 г. Иэн Пэйс и Стив Морс провели несколько совместных мастер-классов в австралийских городах. 4 ноября 2001 года в Лондоне Иэн Пэйс выступил на концерте памяти скончавшегося в том же году Тони Эштона (близкого друга и участника проекта "Paice, Ashton & Lord"). В течение 2001 г. Пэйс в качестве сессионного музыканта принял участие в проектах таких музыкантов как Джим Каппалди (Jim Cappaldi), Макс Маганьи (Max Magagni ) и Марио Фашиано (Mario Fasciano). В декабре 2001 г. Пэйс и известный барабанщик Пит Йорк в сопровождении некольких музыкантов выступили с серией концертов в Германии. В прошедшем году также появились данные о том, что Иэн Пэйс в кампании нескольких старых друзей работает над проектом, который может вырасти в первый сольный альбом барабанщика Deep Purple или трансформироваться в изданный на DVD уникальный учебный комплекс ударного мастерства. </P></>
+<P> </P></>
+<P>Стив Морс (Steve Morse) </P></>
+<P> </P></>
+<P> Cтив Морс родился 28 июня 1954 г. в Хэмилтоне, Огайо, США. Во время обучения в Академической военной школе в Аугусте в конце 60-х годов вместе с одним из сокурсников Энди Уэстом он основал группу "Dixie Grits". В 70-х годах Морс и Уэст перебрались в Майами, где в местном университете учились на курсе классической и джазовой гитары. Там же появилась на свет группа Dixie Dregs, которая постепенно переросла в профессиональную команду. В 1983 г. Морс начинает сольную карьеру, создав Steve Morse Band. С 1982 г. по 1986 г. Морс ежегодно признавался читателями авторитетного журнала "Guitar Player" лучшим гитаристом по совокупности показателей. Репутация Морса как музыканта-виртуоза так высока, что ему принадлежит авторство серии видеокассет с записями уроков гитарного мастерства. Его приглашают в турне Джон Маклафлин (John McLaughlin_, Эл Ди Меола (Al Di Meola), Пако де Люсия (Paco de Lucia). В 1986 - 87 г.г. Морс работает вместе с группой Kansas. В 1989 г., устав от шоу-бизнеса, Стив Морс неожиданно уходит со сцены и становится пилотом на внутренних рейсах в одной из американских авиакомпаний. В 1994 г. Морс возвращается к Steve Morse Band, записывает в 1995 г. альбом "StressFest". В ноябре 1994 г. Морс приглашен в Deep Purple. После нескольких концертов он становится постоянным гитаристом группы. Он также работает с другими знаменитыми гитаристами, среди которых Стив Вай (Steve Vai), Джеф Бек (Jeff Beck), Эрик Джонсон (Eric Johnson), Алкс Лайфсон (Alex Lifeson), Джо Перри (Joe Perry), Ричи Самбора (Richie Sambora), Джо Сатриани (Joe Satriani), Brian Setzer Orchestra, Кенни Уэйн Шепард (Kenny Wayne Shepherd). В конце 1997 г. Морс участвует вместе с большинством из этих музыкантов в записи альбома рождественских мелодий. В течение первой половины 1999 г. Морс приглашает знаменитых мастеров гитары Эл Ди Меола, Питер Фрэмптон (Peter Frampton), Марти Фридман (Marty Freedman), Стив Хоу (Steve Howe), Йорма Кауконен (Jorma Kaukonen), Алберт Ли (Albert Lee), Джон Петручи (John Petrucci), Тревор Рабин (Trevor Rabin), майк Стерн (Mike Stern), Дуизил Заппа (Dweezil Zappa) записать альбом с исполнением арнжировок классической музыки. В сентябре 1999 г. Морс принял участие в юбилейном, 30-ти летнем "Концерте для группы с оркестром" и последовавшем в 2000 г. межконтинентальном турне с симфоническими оркестрами. Одновременно с работой в Deep Purple Морс периодически устраивает концертные турне в составе Dixie Dregs или Steve Morse Band. В 2000 г. вышел сольный альбом Стива Морса "Major Impacts", в записи которого приняли участие музыканты Steve Morse Band. В марте 2001 г. Стив Морс и Иэн Пэйс провели несколько совместных мастер-классов в австралийских городах. В течение прошедшего года Стив Морс принял участие в записях сольных проектов таких музыкантов, как Джордан Рудэс (Jordan Rudess) и Мануэль Баррэко (Manuel Barrueco). В 2002 г. ожидается выход записей новых сольных работ Стива Морса. </P></>
+<P> </P></>
+<P>Дон Эйри (Don Airey) </P></>
+<P> </P></>
+<P> Дон Эйри родился в июне 1948 г. в Сандерленде, Великобритания. Закончил музыкальную школу по классу фортепиано одновременно увлекаясь джазом и роком. Тогда же Дон начал выступать в барах и клубах, играя на органе "Хаммонд". Закончил Ноттингемский университет, а также получил диплом Королевского северного музыкального колледжа. С 1972 г. начал карьеру профессионального музыканта и некоторое время зарабатывал на жизнь игрой на круизных лайнерах и курортах в Африке, Флориде и на Дальнем Востоке. В 1974 г. Дон обосновался в Лондоне и стал участником группы Hammer, которую основал известный барабанщик Кози Пауэлл (Cozy Powell). Там же играл гитарист Берни Мардсена (Bernie Marsden), прославившийся впоследствии в составе Whitesnake Д. Ковердэйла. Группа успешно гастролировала, после чего Кози Пауэлл был приглашен в Rainbow Ричи Блэкмора, а Дон Эйри оказался в рядах культовой британской фьюжн-команды Colosseum II, с которой записал три альбома: "Strange New Flesh" (1976), Electric Savage (1976) и Wardance (1977). Тогда же Дон начал многолетнее сотрудничество с такими музыкантами, как Гэри Мур (Gary Moore) и Нил Мюррей (Neil Murray) (впоследствии - Whitesnake, Black Sabbath, Peter Green, Brian May и др.). В 1977 г. Дон принял участие в записи альбома Эндрю Ллойд Уэббера (Andrew Lloyd Webber) "Variations", а также первого сольного альбома Гэри Мура "Back on the Streets" (Дону, в частности, принадлежит аранжировка темы, превратившейся в дальнейшем в знаменитый блюзовый хит "Parisienne Walkways"). В 1978 г. Colosseum II распался, а Дон Эйри присоединился к Black Sabbath для записи альбома "Never Say Die". Вскоре Кози Пауэлл пригласил Дона в Rainbow, и в конце 1978 г. Дон стал полноценным участником группы. С Rainbow он записал альбомы "Down To Earth" (1979) и "Difficult To Cure" (1981), после чего в конце 1981 г Ричи очередной раз решил влить в Rainbow свежую кровь, и Дон оставил группу, чтобы присоединиться к новому проекту, во главе которого стоял Оззи Осборн (Ozzy Osborne) (еще в период работы в Rainbow Дон записал клавишные для его первого сольного альбома "Blizzard of Oz", а также играл на дебютном альбоме Michael Schenker Group (1980), сольном альбоме Кози Пауэлла Cozy Powell "Over the Top" и сольном альбоме Берни Мардсена "And About Time, Too"). С 1981 г. по 1985 г. Дон работал с Оззи Осборном (с его участием был записан альбом "Bark at the Moon"). После этого Дон работал с Гэри Муром, Alaska (группа Берни Мардсена) и др.. В 1987 г. Дон записывает клавишные партии для самого успешного в коммерческом отношении альбома Whitesnake ("Whitesnake'87"), участвует в гастролях легендарной Jethro Tull и участвует в записи их альбома "Crest of a Knave", заслужившего премию Грэмми. В начале 1988 г. Дон приступил к работе над долгожданным сольным альбомом "K2", в записи которого приняли участие Гэри Мур и Кози Пауэлл (альбом потерпел коммерческую неудачу и вышел в 1989 г. лишь ограниченным тиражом в Германии и Японии). Дон вернулся к сотрудничеству с Whitesnake и участвовал в записи их следующего альбома, "Slip of the Tongue" (1990). Осенью 1989 г. Дон снова присоединяется к Гэри Муру в работе над альбомами "After the War" (1989) и "Still Got the Blues" (1990), где он записал все партии Хаммонда и сделал оркестровки. В 90-х годах Дон продолжал записываться и гастролировать с Брайаном Мэйем ("Back to the Light", 1993), Кози Пауэллом ("The Drums are Back", 1992), Judas Priest ("Painkiller", 1990), Гленном Типтоном ("Baptizm of Fire", 1997), Микки Муди ("I Eat them for Breakfast", 2000), Ули Джон Ротом ("Transcendental Sky Guitar", 2000), G3 и многими другими. В 1997 г. он даже отметился на фестивале Евровидения, где сделал оркестровку и дирижировал оркестром во время выступления Katrina & the Waves, занявших первое место. В 1999 г. вышел ремастированный альбом Дона "K2". В последние два года Дон сотрудничал с группой Company of Snakes (Берни Мардсен, Микки Муди и Нил Мюррей). Летом 2001 г. Роджер Гловер предложил Дону подменить на гастролях Джона Лорда, перенесшего операцию на колене. В результате Дон Эйри весьма успешно выступил на европейском туре Deep Purple. 2001 г. Дон завершил, гастролируя с Грэмом Боннетом (Graham Bonnet - вокалист Rainbow в 79-80 г.г.) под названием Graham Bonnet & Don Airey Band. </P></>
+<P> </P> Ресурс: <A HREF="http://www.deep-purple.ru/artists/bios.html">http://www.deep-purple.ru/artists/bios.html</A></>
+
+Автор: Yermola
+
+### 13.05.2002 news DEEP PURPLE будут работать с Michael Bradford из KID ROCK?!?
+
+<p>В интервью опубликованном на сайте <A HREF="http://www.stevemorse.com">www.stevemorse.com</A> нынешний гитарист Стив Морс поделился идеей привлечения Michael Bradford из KID ROCK к работе над следующим альбомом динозавров: "Уже записано достаточно много материала, но только сейчас мы нашли продюссера который всем нам понравился. Это американец Michael Bradford и он играет в KID ROCK и также хорошо известен как продюссер. Ему нравится DEEP PURPLE и он хотел бы поработать с нами..." <BR> <BR> Да уж... No comments, как говорится...</p>
+
+Автор: Yermola
+
+### 27.06.2002 news Iain Robertson сыграет Ричи Блэкмора в фильме...
+
+<p>Актер Iain Robertson сыграет роль легендарного гитариста "DEEP PURPLE" - Ричи Блэкмора в фильме "Telstar". Режиссером будет игравший в "Lock Stock" и "Two Smoking Barrels" - Nick Moran. Это будет его дебют в данном качестве.</p>
+
+Автор: Yermola
+
+### 27.06.2002 news Former DEEP PURPLE Guitarist To Be Portrayed In Movie ....
+
+<p>British newspaper Sunday Mail reports: "Rising star Iain Robertson is to play guitar legend and DEEP PURPLE founder Ritchie Blackmore in a new rock movie, Telstar. Robertson, who was in SMALL FACES, will appear with ex-Eastender Paul Nicholls as a member of THE TORNADOS, who had a hit with Telstar. Lock Stock and Two Smoking Barrels actor Nick Moran will make his directing debut for the movie."</p>
+
+Автор: Yermola
+
+### 04.06.2003 news DEEP PURPLE &quot;Bananas&quot;
+
+<p>Легенды мирового хард-рока DEEP PURPLE работают над своим новым студийным альбомом под названием "Bananas", который должен выйти в августе через Spitfire Records.</p>
+
+Автор: Dimas
+
+### 17.06.2003 news Новый альбом DEEP PURPLE
+
+<p>Стал известен трэк-лист нового альбома DEEP PURPLE под названием "Bananas", который выйдет 25 августа через EMI Records. В него войдут следующие вещи:</p>
+<p> 1. House of Pain <BR> 2. Sun Goes Down <BR> 3. Haunted <BR> 4. Razzle Dazzle <BR> 5. Silver Tongue <BR> 6. Walk On <BR> 7. Pictures of Innocence <BR> 8. I've Got Your Number <BR> 9. Never A Word <BR> 10. Bananas <BR> 11. Doing It Tonight <BR> 12. Contact Lost</p>
+<p> Альбом записывается в Лос-Анджелесе с продюсером Michael Bradford, до этого работавшим с KID ROCK.</p>
+
+Автор: Dimas
+
+### 22.10.2003 news Tribute to Riychie Blackmore
+
+<P><B>Tribute To Ritchie Blackmore</B> выйдет в ноябре на Lion Music и будет называться "<B>Blackmore's Castle: A Tribute to Deep Purple and Rainbow"</B>. Трэк-лист:</P>
+<P>01. <B>MISTER KITE</B> – Bloodsucker<BR>02. <B>TRANSCENDENCE</B> – Perfect Strangers<BR>03. <B>ARABESQUE</B> – STARGAZER<BR>04. <B>LARS ERIC MATTSSON</B> – Self Portrait<BR>05. <B>REIGN OF TERROR</B> – Sixteenth Century Greensleeves<BR>06. <B>IRON MASK</B> – Gates of Babylon<BR>07. <B>HEADLINE</B> – Battle Rages On<BR>08. <B>CONDITION RED</B> – Black Night<BR>09. <B>TORBEN ENEVOLDSEN</B> – Space Truckin'<BR>10. <B>ERIC ZIMMERMANN</B> – Man on the Silver Mountain<BR>11. <B>WINTERLONG</B> – Highway Star<BR>12. <B>JASON RICHARDSON</B> – Lazy<BR>13. <B>CONDITION RED</B> – Still I'm Sad&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 16.03.2004 news DEEP PURPLE снова приедут к нам в октябре
+
+<P><B>DEEP PURPLE</B> опубликовали даты своего турне по России в октябре:</P>
+<P>7 -&nbsp;Екатеринбург <BR>8 -&nbsp;Кемерово <BR>9 -&nbsp;Красноярск<BR>11 -&nbsp;Хабаровск<BR>12 -&nbsp;Владивосток<BR>14 -&nbsp;Иркутск<BR>16 -&nbsp;Новосибирск<BR>17 -&nbsp;Челябинск <BR>19 -&nbsp;Ярославль<BR>21 -&nbsp;Москва (с/к Олимпийский)&nbsp;<BR>22 -&nbsp;Санкт-Петербург<BR>24 -&nbsp;Казань<BR>25 -&nbsp;Самара<BR>26 -&nbsp;Ростов-На-Дону&nbsp;<BR><BR></P>
+Автор: Vit Belov
+
+### 01.06.2004 news Ian Gillan лишён водительских прав
+
+<P><B>Ian Gillan</B> был задержан за вождение автомобиля в нетрезвом состоянии. Так как это произошло уже во второй раз, <B>Gillan</B> лишён прав на 16 месяцев и оштрафован на 500 фунтов.</P>
+Автор: Vit Belov
+
+### 29.06.2005 news DEEP PURPLE назвали новый альбом
+
+<P>Новый альбом <STRONG>DEEP PURPLE</STRONG> выйдет в октябре. Только что, группа придумала ему название - <STRONG>"Rapture of the Deep"</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.06.2005 news DEEP PURPLE named new album
+
+<P>New album of <STRONG>DEEP PURPLE</STRONG> will be named <STRONG>"Rapture of the Deep". </STRONG>It will be released in october.</P>
+Автор: Vit Belov
+
+### 23.08.2005 news Подробности о новом альбоме DEEP PURPLE
+
+<P>Новый альбом корифеев тяжелой сцены<STRONG> DEEP PURPLE</STRONG> под названием <B>"Rapture of the Deep"</B> увидит свет 21 октября на <B>Edel Records</B>.&nbsp;Продюсером&nbsp;выступил&nbsp;<B>Mike Bradford</B>. Альбом будет немного тяжелее предыдущего релиза <B>"Bananas"</B>. Трек-лист выглядит следующим образом:</P>
+<P><IMG height=150 alt="" hspace=50 src="/images/news_rus/2005.08/9197.jpg" width=150 align=right border=0>1. <B>Back to Back</B><BR>2. <B>Before Time Began</B><BR>3. <B>Clearly Quite Absurd</B><BR>4. <B>Don’t Let Go</B><BR>5. <B>Girls Like That</B><BR>6. <B>Rapture of the Deep</B><BR>7. <B>MTV</B> (European bonus track)<BR>8. <B>Money Talks</B><BR>9. <B>Kiss Tomorrow Goodbye</B><BR>10. <B>Junkyard Blues</B> (Japanese bonus track)<BR>11. <B>Things I Never Said</B><BR>12. <B>Wrong Man</B><BR></P>
+Автор: Dimas
+
+### 12.10.2005 articles Ян Гиллан и Роджер Гловер об альбоме Rapture of the deep
+
+<P><IMG height=261 alt="" hspace=0 src="/images/articles_rus/2005.10/9521.jpg" width=400 align=left border=5>1.&nbsp;“Rapture of the Deep” – настоящий роковый альбом.<BR>Роджер: «Deep purple – это рок-группа, мы привыкли к дороге. Мы начали записывать этот альбом после двухлетнего тура с альбомом «Bananas». Отыграв столько концертов по всему миру, мы почувствовали стойкое желание вернуться в студию и написать новую музыку. Но сама запись поисходит неосознанно. Мы не решаем, в каком направлении будет написан новый альбом. Мы просто начинаем писать с чистого листа.&nbsp; На запись влияет настроение группы. Мы не стараемся продумывать это. И если вы говорите, что альбом звучит тяжелее, звучит как хард-рок, то замечательно».</P>
+<P>2.&nbsp;Ян о значении названия «Rapture of the deep».<BR>“Эта фраза была придумана Жаком Кусто, чтобы обозначить странное состояние, которое испытывает водолаз, погружаясь на три атмосферы, что равно 30ти метрам или сотне футов. Он испытывает чувство эйфории. Это производит странный психологический эффект на мозг и общее функционирование организма. Немного похожее на то, когда ты пьян или под кайфом – но я, конечно, не знаю, как это (смеётся). Один поклонник прислал нам фотографию: в небольшом английском городке был пруд, посреди которого стояла табличка “Осторожно - глубоко” (“Danger – deep water”). И кто-то зачеркнул слово «water» и на его месте написал «purple». Это постоянно крутилось у нас в голове и фраза “Rapture of the deep” очень хорошо описывала то, что я думал в то время: если ты находишься в таком состоянии, ты начинаешь по-другому думать обо всём. И, безусловно, основная тема слов четырёх или пяти песен содержит в себе много тонкого и духовного. Не надо принимать это буквально – это образ”.</P>
+<P>3.&nbsp;Ян Гиллан о песне “Junkyard Blues” (1).<BR>«Это один из моих любимых трэков на альбоме. Он напоминает мне о времени, когда я был ребёнком. Мы играли на свалках и спали в старых машинах, собаки лаяли…Маленькие вещи, все аккуратно разложенные, были ничейными до тех пор, пока кто-нибудь не находил им применение – детали электроприборов, старые ковры, холодильники и кости! Откуда они все появлялись? Меня это пленяло и очаровывало».</P>
+<P>4.&nbsp;Ян Гиллан о песне “Junkyard Blues” (2).<BR>«Мы выросли на блюзе, хотя он был очень редок в Европе, а в Англии тем более. Мы слушали записи, которые попадали к нам через маленькие джазовые и блюзовые рекорд-лейблы – всё это происходило в послевоенной Англии, и у нас многого не было, но мы слушали эту музыку: три аккорда, простой ритм, простые истории. И, конечно, его было просто освоить при наличии гитары. Скоро это стало очень модно: блюзовые группы пришли на смену традиционным джаз-бэндам. И это был существенный шаг в истории рок-н-ролла. Однажды я разговаривал со своим другом, и он сказал: белые парни не могут играть блюз, и даже не должны играть блюз – так какое право они имеют играть его? Я ответил: послушай, я знаю много блюзовых записей и не все они о рабстве и тому подобном. Огромное количество блюзовых песен написано об алкоголе и женщинах, сказал я ему, в блюзе есть много простых вещей…Это замечательно, вы можете прочувствовать блюз в «Black Night», “Strange Kind of Woman”, или в “When a <IMG height=534 alt="" hspace=0 src="/images/articles_rus/2005.10/9522.jpg" width=400 align=right border=5>Blind man cries”. Для меня – они красивы, так о чём же тут беспокоиться?&nbsp; Когда плачет слепой – тогда стоит переживать!»</P>
+<P>5.&nbsp;Роджер о своих любимых песнях.<BR>«Ох, это трудный вопрос – каждый день по-разному. На самом деле я не слушал альбом уже две недели. Мне очень нравится “Junkyard Blues”. Иногда я понимаю, что напеваю странные вещи: “MTV”, “Clearly Quite Absurd” – я просыпаюсь с этими мелодиями в голове. Думаю, что песня,&nbsp; которая мне даёт энергию – “Wrong Man” – очень драйвовый рифф и его здорово играть».</P>
+<P>6.&nbsp;Ян о бонус-трэке “MTV”.<BR>«Эта песня на самом деле о радио формата «Классик Рок». Я пришёл к выводу, что большинство автокатастроф происходят из-за такого радио больше, чем из-за&nbsp; вождения в нетрезвом состоянии – люди просто засыпают за рулём от невыносимой скуки, потому что постоянно крутятся одни и те же песни. Однажды Роджер давал интервью на радио в северной части штата Нью-Йорк. В течение получаса он говорил об альбоме «Bananas», но девушки постоянно возвращались в разговоре к классическим роковым вещам, и в конце интервью одна из них сказала: «Удачи Вам с новым альбомом и спасибо, что зашли, а сейчас послушаем Deep Puprple. Да. Песня “Smoke on the water”». Они так и не поставили новую композицию! Мне кажется, что это нормально - не уважать подобные вещи и немного подшучивать над ними”.</P>
+<P>7.&nbsp;Роджер о радиоформате и новом продукте.<BR>“Обычно у нас не очень получается выбирать синглы. Мы всё время делаем неправильный выбор. Думаю, что с альбомом “Bananas” Майкл Брэдфорд (продюсер) лучше знал, что, возможно, будет иметь успех на радио, а в этот раз он предоставил выбор нам и наши песни не играют на радио, кроме классических рок-радиостанций, где в любом случае ставят только “Smoke on the water“. Для нас не первостепенно иметь эфиры на радио. В первую очередь важны песни, которые что-то значат для нас и которые будут хорошо звучать вживую”.</P>
+<P>8.&nbsp;Ян о песне “Money Talks”.<BR>«Песня основана на том принципе, что деньги как валюта являются важным инструментом цивилизации. Тем не менее, когда деньги становятся самоцелью, они приобретают очень опасное свойство. Когда люди заинтересованы только в деньгах с целью сделать их ещё больше, кто-то должен платить за это! Разговор именно об этом, разговор о разложении. Я имею в виду, что нет ничего плохого в том, чтобы зарабатывать деньги, нет ничего плохого в том, чтобы наслаждаться жизнью. Я говорю о жадности и разложении, которые существуют только для того, чтобы умножать состояние за счёт других людей, о том,&nbsp; когда на тарелке больше еды чем нужно, и можно ни о чём не волноваться, потому что у двери стоит телохранитель. Деньги идут к деньгам, деньги делают деньги, и они шепчут мне в уши и смеются мной. Это разложение».</P>
+<P>9. Роджер о продюсере.<BR>“Майкл Брэдфорд – организатор, композитор, басист, гитарист, у него получается много вещей. Кроме того, он приятный собеседник и очень хороший шеф”.</P>
+<P>10.&nbsp;Ян и Роджер о звукозаписывающей студии.<BR>“Альбом был записан на студии Майкла Брэдфорда в Лос-Анджелесе. Он переехал в новый дом с очень хорошей обстановкой. Маленькая комната с кухней, где мы стояли и писали слова к песням, и маленький сад снаружи, где мы могли отдохнутьи посидеть на солнце, попить пива. Мы работали там с полудня до 6 вечера – 6 дней в неделю, по воскресеньям мы не работали, Майклу нужен был выходной, полезно было освежить голову. Всё заняло 5 недель. Да, было очень интересно, очень спонтанно. Когда-то мы делили работу на стадию написания музыки, когда мы сочиняли песни, и непосредственно записи. Этот альбом был сделан в общем-то сразу: мы приходили, писали идею песни и тут же шли в студию и записывали её. У Майкла очень хорошо получалось вовремя нас остановить, чтобы мы не перестарались. Обычно это было всего два подхода и всё. Мы все играли вместе и весь альбом пропитан ощущением спонтанности, которое мы бы потеряли, повторяя всё несколько раз. Именно поэтому он несовершенен”.</P>
+<P><IMG height=297 alt="" hspace=0 src="/images/articles_rus/2005.10/9523.jpg" width=400 align=left border=5>11.&nbsp;Ян и Роджер об обложке и названии альбома.<BR>“Человек стоит, и у него с двух сторон деревья, а он выглядит, как отражение. Но если вы посмотрите на воду, то деревья там&nbsp; искривлены, а он стоит прямо. Это подталкивает к размышлениям, вот и вся идея. Наслаждение – это состояние счастья, состояние, в котором вы хотели бы оказаться, но чем счастливее вы становитесь, тем более оно опасно”.</P>
+<P>12.&nbsp;Ян сравнивает новый и пердыдущий альбомы.<BR>”Я люблю альбом “Bananas”. У меня дома и у моих друзей он играл дольше, чем любой другой альбом в истории Deep Purple. Но он был ещё одним переходом, потому что это была первая полноценная запись, сделанная с Доном Эйри, хотя вначале мы его рассматривали просто как музыканта, который заменит Джона Лорда. На этой пластинке он звучит более смело. Он сделал большой вклад в пердыдущий альбом, но мне кажется, за последние два года он особенно проявил себя как личность и, как следствие, подействовал на остальных ребят в группе. Это и создало то замечательное&nbsp; гармоничное звучание клавиш Дона Эйри и гитары Стива Морзе. Наверное, в предыдущем альбоме было больше гитары, этот – более гармоничен”.</P>
+<P>13.&nbsp;Роджер о необычной ритм-секции<BR>“Это приятный комплимент, спасибо. Пэйс – необыкновенный ударник. Сложно выразить свою индивидуальность через инструмент, по которому приходится молотить что есть мочи. Поэтому большинство барабанщиков звучат более или менее одинаково. Они играют по одной модели, боготворят одних и тех же гениальных ударников. Их проигрыши звучат похоже. Пэйс совершенно другой. Я понял это, когда делал ремикс на песню “Highway star”. Даже если слушать его партию изолированно от остальных, она качает!»</P>
+<P>14.&nbsp;Роджер Гловер (и Ян) о сольных альбомах.<BR>«Стив пришёл в группу с другим своим проектом – The Steve Morse Band and the Dixie Dregs, и он до сих пор продолжает его. В Dep Purple всегда кто-то занимался сольными проектами время от времени. Я думаю, это нормально: потом ты возвращаешься в группу со свежими идеями и желанием снова играть с ребятами. “Living Loud”&nbsp; - это также проект Дона Эйри. Хорошо, что каждый занимается чем-то своим. Пэйс работал с Полом Маккартни, я делал “Snapshot”, работаю над другим альбомом, это всё – самовыражение. Ты не просто приходишь домой и прекращаешь писать. Я имею в виду, я не прекращаю писать. Роджер занимается чем-то творческим каждый день. Это либо дизайн обложки к новому альбому, либо стихи, живопись, фотография, написание песен, запись – что угодно. Это то, чем мы занимаемся. Я иду домой и пишу песни. Это здорово!»</P>
+Автор: Vit Belov
+
+### 19.10.2005 news Deep Purple
+
+<P><IMG style="WIDTH: 381px; HEIGHT: 343px" height=350 alt="" hspace=15 src="/images/news_rus/2005.10/9520.jpg" width=350 align=left border=5>13 октября 2005 года&nbsp;состоялась мировая премьера альбома легендарной группы DEEP PURPLE “Rapture Of The Deep”.</P>
+<P>Подробнее об альбоме.<BR>ЯН ГИЛЛАН ПОЗНАЛ ГЛУБИНЫ ЭКСТАЗА. И ГОТОВ ПОДЕЛИТЬСЯ Нравится ли вам слушать, как поёт 60-летний дядька?<BR>Не торопитесь с ответом, поскольку речь идёт о Яне Гиллане - вокалисте одной из самых значительных команд в истории мирового рока. И о новой пластинке этой команды DEEP PURPLE - “Rapture Of The Deep”… <BR>Альбом уже готов и дожидается лишь официальной даты европейского релиза - 21 октября. В реальности же мы имеем дело с беспрецедентным фактом: в России релиз этой пластинки состоялся уже 13 октября, то есть впереди планеты всей почти на полторы недели! Такое решение принято в связи с промо-визитом, который Ян Гиллан нанес в Москву 12-14 октября, чтобы поучаствовать в акциях вокруг альбома. И это не случайно. Для российских меломанов зрелого возраста DEEP PURPLE – один из самых “священных” коллективов, любовь к которому крепла десятилетиями! <BR>Несмотря на то, что уже второй член легендарной группы перешагнет в этом году 60-летний рубеж, все пятеро участников бэнда по-прежнему бодро правят своей непотопляемой лодкой, и результат их совместных усилий превосходен. Альбом “Rapture of the Deep” способен вызвать чувство глубокого экстаза, полностью оправдывая своё название. Новый диск следует за большим количеством блестящих предшественников, которые продались миллионами копий, и лишний раз подтверждает: ветераны хард-рока без труда перешагнут из семидесятых - в десятые и останутся на коне.<BR>DEEP PURPLE пережили впечатляющий ряд творческих изменений в своей карьере, пройдя от грандиозного прогрессив-рока до экспансивного хэви-металла и вернувшись к “золотой середине”. Сегодня DEEP PURPLE - это целый институт британского хард-рок-сообщества, ведь без них не состоялись бы ни Ричи Блэкмор, ни Дэвид Ковердэйл, ни, собственно, Ян Гиллан… Каждую песню в новом альбоме он поёт всем сердцем и душой, как никогда открыто демонстрируя чувства. Что это - возрастная сентиментальность или мудрость небожителя? У вас есть шанс спросить об этом лично у самого Яна, а заодно и получить автограф рок-легенды… <BR>Альбом выходит в нескольких версиях - лицензионной (Cоюз), фирменной (Edel), Ltd-edition (Edel), LP (Edel).</P>
+<P><A href="/ru/articles/1/55268/">Подробнее...</A></P>
+Автор: Vit Belov
+
+### 06.12.2005 reviews Не стареют душой ветераны
+
+<P>Очередной релиз от ветеранов рок сцены, можно сказать, живых легенд - Deep Purple. Альбом достаточно ровный, не лучше, но и не хуже того, что коллектив выпускал за последнее время. Если вы ждали чего-то особенного от этой пластинки, то, к сожалению, должен вас разочаровать – прорыва, как скажем, в 1984 году, не получилось. Но, пожалуй, начнем по порядку:</P>
+<P>Money Talks – среднетемповая, качовая композиция с довольно мелодичным припевом и лордовскими…ой, простите, дон эйриевскими клавишными в начале. Стоит заметить, что Дон Эйри играет один в один все фишки своего предшественника – видать, запретили ему импровизировать. Слава Богу, что Морса не заставляют копировать Блэкмора. Для песни, открывающей альбом, довольно медленно – это вам не Highway Star.</P>
+<P>Girls Like That – более быстрая тема, классический Пепл с коронными визгами Гиллана, клавишным соло с фирменным хаммондовским звуком и опять очень мелодичный, прямо попсовый припев.</P>
+<P>Wrong Man – одна из самых ярких вещей на альбоме. Настоящее мясо! Жесткие риффы и навороченное гитарное соло.</P>
+<P>Rapture Of The Deep – одноименная с альбомом вещица, начинающаяся с восточной темы. Забавно, но песня не совсем в духе Deep Purple. В нее бы гитару попрозрачнее и Планта на вокал – и я бы точно сказал, что это Цеппелины.</P>
+<P>Clearly Quite Absurd - баллада. Довольно красивая, но не шедевр. В авторстве и аранжировке явно угадывается почерк Морса, некоторые моменты просто слизаны с сольника Стива “StressFest”. </P>
+<P>Don’t Let Go – заводная композиция, с основным гитарным риффом а-ля конец 60-х. Песня словно возвращает группу во времена “Hush”, когда задора было больше, а денег значительно меньше. Да и здоровья было не занимать. Очень удачное соло, построенное на блэкморовских заточках, но обыгранное в морсовской манере.</P>
+<P>Back To Back перебрасывает нас во времена “In Rock” и “Mashine Head” – классика жанра, стопроцентный Deep Purple, правда с нетипичным современным соло на гитаре и клавишных. Вот уж где относительно новые участники группы дали оторваться.</P>
+<P>Kiss Tomorrow Goodbye – начинается вещица с барабанов и структурно больше выдержана в духе последних альбомов группы – этакий традиционный хард в современной аранжировке. </P>
+<P>Junkyard Blues – очередная среднетемповая композиция, с мелодичным припевом – это что, диагноз?. Кристальное гитарное соло с легким сустейном перекликается с чистым звуком фортепиано.</P>
+<P>Before Time Began – закрывает альбом довольно спокойная песня, с легким налетом психоделики, которая разгоняется в середине и возвращается в свое русло к коде.</P>
+<P>В целом пластинка получилась неплохая, хотя и не особо оригинальная, но с учетом огромной любви к данному коллективу в России, на территории нашей страны Rapture Of The Deep может запросто получить платиновый статус.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 31.01.2007 reviews Там где родилась &#39;Smoke On The Water&#39;
+
+<P>В биографии великих&nbsp;Deep Purple швейцарский город Монтрё занимает очень важное место. В декабре 1971 там в зале "Казино"&nbsp;проходил концерт Фрэнка Заппы и его The Mothers Of Invention. По вине одного из фэнов в зале произошел пожар, и "Казино" выгорело дотла, а ведь именно там Deep Purple планировали записывать свой очередной альбом "Machine Head"! Но главное в том, что именно этот пожар вдохновил группу на написание песни, ставшей, возможно, самым известным ее номером - 'Smoke On The Water'... Но довольно воспоминаний. В июле 1996 года Deep Purple выступали на всемирно известном джазовом фестивале в Монтрё, имея за плечами новый логплей "Purpendicular", а также нового гитариста Стива Морса. "Purpendicular", впрочем, оказался представлен на концерте всего двумя вещами, а все остальные - это уже проверенные временем бессмертные хиты группы. Пожалуй, во всём этом действе есть - и пусть фэны DP в меня кидаются камнями - всего лишь один положительный момент: игра Стива Морса. В общем и целом же выступление носит характер "мы Deep Purple,&nbsp;и этиим сказано всё, поэтому будьте довольны тем, что мы перед вами вообще выступаем". Отсутствие драйва, бездушная игра Лорда, ленивое пение Гиллана, порой с какими-то невразумительными завываниями&nbsp;(то ли просто не хочет, то ли уже не может); один лишь Морс старается вовсю, доказывая - и не безуспешно - что не только Блэкмор&nbsp;достоин играть на гитаре в составе этих легенд хард-рока. Впрочем, я на 100% уверен, что фанаты группы воспримут этот альбом на ура, но на то они и фэны. Не могу сказать, что я прослушал огромное количество концертников Deep Purple, но данное выступление в Монтрё я никак не могу отнести к их лучшим. А одного только Морса маловато будет, чтобы ставить данному альбому высокую оценку. А низкую - рука не поднимается. Так что оставляю "Live At Montreux" без балла. Добавлю, что бонусами на этот релиз добавлены еще две песни, и тоже с выступления Deep Purple на джазовом фестиваля в Монтрё, только четырьмя годами позже. Также вы может купить этот концертник и на DVD.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 29.02.2008 news Очередной тур DEEP PURPLE
+
+<P><STRONG>DEEP PURPLE</STRONG> посетят с концертами Россию и Украину осенью:</P>
+<P>Oct. 06 - Киев<BR>Oct. 07 - Одесса<BR>Oct. 09 - Ростов-На-Дону<BR>Oct. 10 - Волгоград<BR>Oct. 12 - Воронеж<BR>Oct. 14 - Казань<BR>Oct. 15 - Екатеринбург<BR>Oct. 17 - Новокузнецк<BR>Oct. 18 - Красноярск<BR>Oct. 20 - Владивосток<BR>Oct. 21 - Хабаровск<BR>Oct. 23 - Иркутск<BR>Oct. 25 - Новосибирск<BR>Oct. 27 - Москва<BR>Oct. 29 - Санкт-Петербург</P>
+Автор: Vit Belov
+
+### 23.06.2008 news Старички решили заработать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывшие члены <STRONG>BLACK SABBATH</STRONG>, <STRONG>DIO</STRONG>, <STRONG>RAINBOW</STRONG> и <STRONG>DEEP PURPLE</STRONG> объявили о создании новой супер-группы <STRONG>PURPLE RAINBOW</STRONG>. В её состав войдут:</FONT></P>
+<P><STRONG>Joe Lynn Turner</STRONG> (RAINBOW, DEEP PURPLE, YNGWIE MALMSTEEN) - Vocals<BR itxtvisited="1"><B itxtvisited="1">Bobby Rondinelli</B> (RAINBOW, BLACK SABBATH) - Drums<BR itxtvisited="1"><B itxtvisited="1">Tony Carey</B> (RAINBOW, PLANET P. PROJECT) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Craig Goldy</B> (DIO) - Guitar</P>
+<P>Ни о каком студийном альбоме речь не идёт. Группа принимает заявки на выступления с классикой жанра в течение 2009 года.</P>
+Автор: Vit Belov
+
+### 06.01.2009 news Lars Ulrich хочет в DEEP PURPLE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=301 alt="" hspace=0 src="/images/news_rus/2009.01/13301.jpg" width=200 align=right border=5>В разных интервью февральскому выпуску <STRONG>Classic Rock</STRONG> <STRONG>David Coverdale</STRONG> (vocals), <B>Glenn Hughes</B> (bass, vocals)&nbsp;и <B>Jon Lord</B> (keyboards) рассказали о возможности ре-юниона <STRONG>DEEP PURPLE</STRONG> в составе 1973 года. Музыканты утверждают, что ведут переговоры с <STRONG>Ritchie Blackmore</STRONG> о воссоединении. Единственной загвоздкой может стать отсутствие барабанщика, <STRONG>Ian Paice</STRONG> единственный из того состава, кто играет в настоящем составе <STRONG>DEEP PURPLE</STRONG>, и ему может быть неудобно присоединиться к этому ре-юниону.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На выручку уже спешит барабанщик <STRONG>METALLICA Lars Ulrich</STRONG>, являющийся 'hardcore' фэном<STRONG> DEEP PURPLE</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я знаю о разговорах, которые ведутся вокруг этого ре-юниона. Все эти музыканты не в составе DEEP PURPLE сейчас, им может понадобиться ударник. Я готов вызваться добровольцем. Если что, у David есть мой номер</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 07.01.2009 news Jon Lord прокомментировал
+
+<P><IMG height=301 alt="" hspace=0 src="/images/news_rus/2009.01/13312.jpg" width=300 align=left border=5>Бывший клавишник <STRONG>DEEP PURPLE Jon Lord</STRONG> прокомментировал возможность ре-юниона <STRONG>DEEP PURPLE</STRONG> в составе 1973 года, о котором мы сообщали вчера вслед за журналом <STRONG>Classic Rock</STRONG>. Также он коснулся возможного участия в проекте в качестве барабанщика <STRONG>Lars Ulrich</STRONG> из<STRONG> METALLICA</STRONG>:</P>
+<P>"<EM>Для меня это какие-то дикие спекуляции и слухи. Если ко мне обратятся с предложением войти в этот проект, я буду думать. В этом предложении есть как очень хорошие моменты, так и очень нехорошие. Что касается Lars Ulrich, я всегда очень хорошо относился к нему и к его работе в METALLICA, но мне думается, такой проект&nbsp;надо осуществлять только с участием Ian Paice</EM>".</P>
+Автор: Vit Belov
+
+### 16.01.2009 news Ian Gillan: &quot;Glenn Hughes копирует Steve Wonder&quot;.
+
+<P>Вокалист <STRONG>DEEP PURPLE Ian Gillan</STRONG> в интервью журналу <STRONG>Classic Rock</STRONG> поделился своим мнением о модификациях группы без его участия:</P>
+<P>"<EM>Мне они не интересны. Это как видеть свою девушку с другим парнем. Как назывались те альбомы? "Burn"? "Strongbow"? Glenn Hughes, один из самых одарённых музыкантов, но он до сих пор копирует Steve Wonder, я не думаю, что эту манеру можно назвать подходящей для DEEP PURPLE. Это как футбольная команда, можно накупить игроков на 100 миллионов, но она не заиграет</EM>".</P>
+Автор: Vit Belov
+
+### 22.03.2009 news А Gillan и Blackmore всё ещё собачатся
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Совсем недавно в журнале <STRONG>Classic Rock</STRONG> вышла статья, вновь рассказывающая о <STRONG>DEEP PURPLE</STRONG> и тех временах, когда в группе одновременно были<STRONG> Ian Gillan</STRONG> и <STRONG>Ritchie Blackmore</STRONG>. Интересно, что в статье представлено только мнение вокалиста о тех временах. По какой-то причине <STRONG>Ian Gillan</STRONG> решил построить свою промо-кампанию на воспоминаниях о тех нелёгких для команды временах и с завидным постоянством прохаживается на счёт господина <STRONG>Blackmore</STRONG>. На этот раз знаменитый певец дал интервью греческому веб-зину <STRONG>Rockpages.gr</STRONG>, в котором рассказал о некоторых нелицеприятных вещах. Например, господин <STRONG>Gillan</STRONG> сообщил, что перед своим уходом из <STRONG>DEEP PURPLE</STRONG> в начале 90-х <STRONG>Blackmore</STRONG> требовал полмиллиона долларов за отказ от этого намерения. Также интересно утверждение о том, что господин <STRONG>Blackmore</STRONG> запретил размещать свою фотографию на майке <STRONG>'Machine Head'</STRONG>, которую группа продавала в последнем туре.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Забавно, что <STRONG>Ritchie</STRONG> ответил своему вечному опоненту через своих адвокатов. Он официально заявил, что на майке его лицо не появилось только потому, что менеджмент <STRONG>DEEP PURPLE</STRONG> отказался выплатить ему положенный гонорар, такой же, как и у остальных товарищей, чьи лица заметны на этой T-Shirt. Касаемо тех денег из 90-х, <STRONG>Blackmore</STRONG> просто заявил, что деньги он получил с лэйбла, как плату за продолжение творчества в рамках <STRONG>DEEP PURPLE</STRONG>, но никак не требовал их персонально.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Быть может, <STRONG>Ian Gillan</STRONG> этими нападками поднимает интерес к своему сольнику? Не знаю. Сколько уже можно "кидаться калом"? Пожилые же уже люди.</FONT></P>
+Автор: Vit Belov
+
+### 08.10.2010 news Iommi и Gillan помогают Армении
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=202 alt="" hspace=0 src="/images/news_rus/2010.10/17349.jpg" width=300 align=right border=5>Гитарист <STRONG>BLACK SABBATH/HEAVEN & HELL Tony Iommi</STRONG> и вокалист <STRONG>DEEP PURPLE Ian Gillan</STRONG> вместе с бывшим клавишником тех же <STRONG>DEEP PURPLE Jon Lord</STRONG> и барабанщиком <STRONG>IRON MAIDEN Nicko McBrain</STRONG> записали в студии новую песню <STRONG>"Out Of My Mind", </STRONG>вырученные средства от которой пойдут на перестройку одной армянской музыкальной школы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Iommi </STRONG>и <STRONG>Gillan</STRONG> активно помогают юным музыкантам Армении, а началось всё с перезаписанной ими в 1988 году знаменитой песни <STRONG>DEEP PURPLE "Smoke On The Water"</STRONG>, появление которой было вызвано землетрясением в тогда ещё советской Армении.</FONT></P>
+Автор: Vit Belov
+
+### 10.04.2011 articles DEEP PURPLE, Москва, СКК &quot;Олимпийский&quot;, 23 марта, 2011
+
+<P><U>Deep Purple, Москва, СКК "Олимпийский", 23 марта, 2011</U></P>
+<P>Группу <STRONG>Deep Purple</STRONG> у нас в стране любят настолько, что даже несмотря на то, что она&nbsp; приезжает&nbsp; с концертами очень и очень часто, на концертах этих непременные аншлаги. Не стал исключением и этот, уже не первый концерт <STRONG>Deep Purple</STRONG> в Олимпийском. Ещё на подходе к зданию спорткомплекса можно было наблюдать длинные змейки стоящих в очереди на вход фанатов группы. Был очевидный аншлаг, многие привели своих детей. Да и просто подростков на концерте было много,&nbsp; вообще, кажется только в России на группы классического рока типа <STRONG>Deep Purple</STRONG>, <STRONG>Nazareth</STRONG> и <STRONG>Uriah Heep</STRONG> существует такой спрос среди подрастающего поколения, боюсь что на Родине этих групп ситуация выглядит совершенно иначе, там на подобных мероприятиях преобладает публика в основном строго за 40. Так что остаётся только порадоваться за подрастающее поколение молодых россиян!</P>
+<P>В мучительных поисках гардероба, относящегося к сектору, соответствующему моему билету на концерт, я пропустил разогрев <STRONG>Deep Purple</STRONG> в виде знакомой&nbsp; мне лично ещё с середины 90-х отечественной брит-поп группы <STRONG>Blast</STRONG>, которым вообще не привыкать к тому чтобы разогревать концерты именитых западных групп.</P>
+<P><STRONG>Deep Purple</STRONG> не заставили себя очень долго ждать и появились на сцене под удлинённое вступление своего золотого боевика <STRONG>“Highway Star”</STRONG>. Сцена, на которой играли легендарные англичане (плюс один американец), была оформлена задником с изображением античных колонн, напомнившему автору этих строк берлинские Бранденбургские ворота, на фоне этих колонн красовался фирменный логотип <STRONG>Deep Purple</STRONG>. По бокам сцены висели на удивление небольшие экраны, на которые проецировалось всё происходящее на сцене.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2011.04/19123.jpg" width=500 height=333> 
+<P></P>
+<P>Концерт продолжили такие обожаемые поклонниками группы песни как <STRONG>"Maybe I’m a Leo"</STRONG> и <STRONG>"Strange Kind of Woman"</STRONG>. Вокалист <STRONG>Ян Гиллан</STRONG> пел, конечно, уже далеко не так здорово, как в свои золотые годы. Хотя он и старался вытягивать многие высокие ноты, но чувствовалось, что даётся это ему ой как нелегко. В некоторых моментах он и вовсе переходил на речитатив, что твой Лу Рид. И всё таки всё равно здорово лицезреть именно <STRONG>Гиллана</STRONG> на вокале современных <STRONG>Deep Purple</STRONG>, ибо именно с его голосом ассоциируются в массовом сознании главные хиты группы, и вряд ли кто-то хотел бы их слышать в исполнении других вокалистов, особенно когда речь идёт о хитах периода «второго созыва» <STRONG>Deep Purple</STRONG>.</P>
+<P><STRONG>Гиллан</STRONG> общался с публикой между песнями, щедро благодарил своих фанатов словами: "Superb! Fantastic!". В моменты инструментальных соло своих коллег по группе, он скромно удалялся за сцену, каждый раз вновь появляясь на ней в нужный момент. Представляя заглавную песню с последнего на сегодня альбома <STRONG>Deep Purple</STRONG> -&nbsp; <STRONG>Rapture of the Deep</STRONG>, который вышел, не много не мало, шесть лет тому назад, <STRONG>Ян Гиллан</STRONG> сказал, что в настоящее время группа трудится над своим новым диском. Вообще, на концерте прозвучали не только старые хиты Пёрпл, но и целый ряд песен с недавних альбомов, так альбом <STRONG>"Bananas"</STRONG> был представлен песнями <STRONG>"Silver Tongue"</STRONG> и <STRONG>"Contact Lost"</STRONG>, а период&nbsp; творчества группы девяностых годов был представлен одной лишь<STRONG> "Almost Human"</STRONG>, к сожалению песня <STRONG>"Sometimes I Feel Like Screaming"</STRONG> на этот раз не была исполнена. Несмотря на небольшие перемены, в общих чертах сет-листы последних российских концертов <STRONG>Deep Purple</STRONG> не блещут особой оригинальностью, как правило они составлены из самых знаменитых хитов группы. Вот и на этот раз снова прозвучали проверенные времен «нержавейки», такие как <STRONG>"Lazy"</STRONG>, <STRONG>"When a Blind Man Cries"</STRONG> и <STRONG>"Space Truckin’"</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2011.04/19124.jpg" width=500 height=333> 
+<P></P>
+<P>Конечно же не обошлось и без сольных выходов главных инструменталистов <STRONG>Deep Purple</STRONG>. Как всегда красивым сольным номером порадовал гитарист <STRONG>Стив Морс</STRONG>, продемонстрировавший, кроме прочего, великолепную технику игры на гитаре с использованием ручки громкости, излюбленный трюк его знаменитого предшественника – <STRONG>Ричи Блэкмора</STRONG>.&nbsp; Также не могу не отметить, что в один из моментов концерта <STRONG>Стив</STRONG> процитировал знаменитую песню <STRONG>ZZ Top</STRONG> – <STRONG>"La Grunge"</STRONG>.</P>
+<P>Ожидаемо замечательный сольный номер исполнил и другой инструменталист-виртуоз нынешнего состава <STRONG>Deep Purple</STRONG> – клавишник <STRONG>Дон Эйри</STRONG>. Он начал своё соло с красивых пассажей на органе,&nbsp; затем уже фортепианным звуком было исполнено много вариаций, в том числе и на тему <STRONG>Чайковского</STRONG> и <STRONG>«Подмосковных вечеров»</STRONG>,&nbsp; именно эту знаменитую рус скую песню точно также любит цитировать на гастролях по России предшественник <STRONG>Эйри</STRONG> – легендарный <STRONG>Джон Лорд</STRONG>. А закончилось клавишное соло бойким буги-вуги и позывными, которыми земляне приветствовали космический корабль пришельцев из старого фильма <STRONG>Стивена Спилберга</STRONG> <STRONG>«Близкие контакты третьей степени»</STRONG>. Вообще надо сказать, что виртуозные партии <STRONG>Дона</STRONG> весь концерт соперничали с гитарными соло <STRONG>Морса</STRONG>, даже иногда казалось что <STRONG>Дон</STRONG> настолько укрепил свои позиции в группе, что клавишных соло стало даже ещё больше чем раньше. Ну и по старой традиции, клавишное соло плавно перешло во вступление к песне <STRONG>"Perfect Strangers"</STRONG>, которая представляла на этом концерте <STRONG>Deep Purple</STRONG> периода 80-х.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2011.04/19125.jpg" width=500 height=333> 
+<P></P>
+<P>Закончился основной сет группы песней, которую не сыграть было никак нельзя, конечно же это знаменитая<STRONG> "Smoke on the Water"</STRONG>, встреченная особо рьяно – не исключаю, что на концерте присутствовали и такие зрители, которые не знакомы с творчеством <STRONG>Deep Purple </STRONG>вовсе, но вот эту самую песню знали даже они, пусть даже и не сознавая этого. После исполнения самого знаменитого своего хита&nbsp; группа покинула сцену, и кто-то из публики потянулся было на выход, однако бис был неизбежен: а на бис была сыграна песня<STRONG> "Hush"</STRONG>, которую <STRONG>Deep Purple</STRONG> так любят исполнять в последнее время, причём не обошлось также без реверанса в сторону ливерпульской четвёрки – была исполнена <STRONG>"Back in the USSR"</STRONG>, инструментально, а жаль – было бы очень интересно послушать эту песню с вокалом <STRONG>Яна Гиллана</STRONG>!</P>
+<P>Далее последовало соло басиста <STRONG>Роджера Гловера</STRONG>, которое он виртуозно исполнил в компании бессменного барабанщика <STRONG>Deep Purple</STRONG> – <STRONG>Яна Пейса</STRONG>. Ну и под занавес была исполнена последняя песня вечера – <STRONG>"Black Night"</STRONG>, после чего, наверное, ни один истинный поклонник группы не ушёл недовольным.</P>
+<P>Tекст: Алексей Виноградов.</P>
+<P>Фото: Анна Ходакова (Санкт-Петербург, СКК "Ледовый дворец", 21.03.2011)</P></CENTER></CENTER></CENTER>
+Автор: Headcrusher
+
+### 10.08.2011 news У Jon Lord диагностирован рак
+
+<P>Бывший клавишник<STRONG> DEEP PURPLE Jon Lord</STRONG> сообщил о приостановке любой музыкальной деятельности, из-за тяжёлого заболевания. У музыканта диагностирован рак.<STRONG> Jon Lord</STRONG> пройдёт все положенные процедуры и планирует вернуться здоровым в следующем году.</P>
+<P>20 октября знаменитый музыкант выступил в <STRONG>Крокус Сити Холл</STRONG> в Москве в сопровождении<STRONG> Симфонического Оркестра Москвы "Русская Филармония"</STRONG>. Кадры этого выступления можно посмотреть здесь: <A href="/ru/galleries/1/682/">http://musica.mustdie.ru/ru/galleries/1/682/</A></P>
+<P><center><IMG height=525 src="/images/news_rus/2011.08/20534.jpg" width=350 border=0></P>
+Автор: Vit Belov
+
+### 20.07.2012 news Jon Lord: 9 июня 1941 – 16 июля 2012
+
+<P><SPAN class=hps closure_uid_eryd70="154" Sc="null"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24375.jpg" width=302 height=429>В&nbsp;понедельник,</SPAN> <SPAN class=hps closure_uid_eryd70="155" Sc="null">16 июля в</SPAN> <SPAN class=hps closure_uid_eryd70="156" Sc="null">лондонской</SPAN> <SPAN class=hps closure_uid_eryd70="157" Sc="null">клинике</SPAN><SPAN closure_uid_eryd70="158" Sc="null">, после</SPAN> <SPAN class=hps closure_uid_eryd70="159" Sc="null">долгой борьбы с</SPAN> <SPAN class=hps closure_uid_eryd70="160" Sc="null">раком поджелудочной железы, ушёл из жизни <STRONG>Jon Lord</STRONG>.</SPAN> <SPAN class=hps closure_uid_eryd70="161" Sc="null">Джон</SPAN> умер в <SPAN class=hps closure_uid_eryd70="162" Sc="null">окружении</SPAN> <SPAN class=hps closure_uid_eryd70="163" Sc="null">своей </SPAN><SPAN class=hps closure_uid_eryd70="164" Sc="null">семьи.</SPAN><BR closure_uid_eryd70="221" Sc="null"><BR closure_uid_eryd70="222" Sc="null"><SPAN class=hps closure_uid_eryd70="165" Sc="null"><STRONG>Jon Lord</STRONG></SPAN><SPAN closure_uid_eryd70="166" Sc="null">, легендарный</SPAN> <SPAN class=hps closure_uid_eryd70="167" Sc="null">клавишник и участник <SPAN class=hps closure_uid_eryd70="168" Sc="null"><STRONG>DEEP PURPLE</STRONG></SPAN></SPAN><SPAN class=hps closure_uid_eryd70="168" Sc="null">, был</SPAN> <SPAN class=hps closure_uid_eryd70="170" Sc="null">соавтором</SPAN> <SPAN class=hps closure_uid_eryd70="171" Sc="null">многих</SPAN> известных <SPAN class=hps closure_uid_eryd70="174" Sc="null">песен группы, в том числе и </SPAN><STRONG>"<SPAN class=hps closure_uid_eryd70="175" Sc="null">Smoke On The Water"</SPAN></STRONG><SPAN class=hps closure_uid_eryd70="176" Sc="null">. </SPAN></P>
+<P><SPAN class=hps closure_uid_eryd70="176" Sc="null">На протяжении своей <SPAN class=hps closure_uid_eryd70="180" Sc="null">карьеры,&nbsp;<STRONG>Jon</STRONG></SPAN> переиграл</SPAN> <SPAN class=hps closure_uid_eryd70="177" Sc="null">с большим количеством групп</SPAN> <SPAN class=hps closure_uid_eryd70="178" Sc="null">и&nbsp;соло исполнителей</SPAN><SPAN class=hps closure_uid_eryd70="180" Sc="null">.</SPAN></P>
+<P><SPAN class=hps closure_uid_eryd70="180" Sc="null"><A href="http://www.jonlord.org/">www.jonlord.org</A></SPAN><BR closure_uid_eryd70="224" Sc="null"></P>
+Автор: Headcrusher
+
+### 24.04.2013 news DEEP PURPLE: &quot;Now What!?&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже через два дня, 26 апреля, состоится выход нового альбома <STRONG>DEEP PURPLE</STRONG> под названием <STRONG>"Now What!?"</STRONG>. Это будет первый студийный экзерсис группы за 8 лет.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказать <STRONG>"Now What!?" </STRONG>в нескольких вариантах,&nbsp;узнать точные даты его выхода по всему Миру, а также&nbsp;прослушать пару композиций с альбома, можно по адресу: <A href="http://www.deeppurple-nowwhat.com/order/">www.deeppurple-nowwhat.com/order/</A></FONT></P>
+<P>Трек-лист: 01. <STRONG>A Simple Song</STRONG> | 02. <STRONG>Weirdistan </STRONG>| 03. <STRONG>Out Of Hand</STRONG> | 04. <STRONG>Hell To Pay</STRONG> | 05. <STRONG>Body Line</STRONG> | 06. <STRONG>Above And Beyond</STRONG> | 07. <STRONG>Blood From A Stone</STRONG> | 08. <STRONG>Uncommon Man</STRONG> | 09. <STRONG>Aprs Vous</STRONG> | 10. <STRONG>All The Time In The World</STRONG> | 11. <STRONG>Vincent Price</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.04/25637.jpg" width=450 height=446>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 22.05.2013 news DEEP PURPLE: клип &quot;Vincent Price&quot;
+
+<P>Легендарная хард-рок группа <STRONG>DEEP PURPLE</STRONG> представила видеоклип на песню<STRONG> "Vincent Price"</STRONG>. Этот трек можно найти на новейшем альбоме коллектива <STRONG>"Now What?!"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/BEWYRRaxFhU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 10.03.2017 news DEEP PURPLE: клип &quot;All I Got Is You&quot;
+
+<P><STRONG>DEEP PURPLE</STRONG> опубликовали видео на песню<STRONG> "All I Got Is You"</STRONG>. В ней можно услышать как <STRONG>Ian Gillan</STRONG> ругается матом. Ищите этот&nbsp;трек на новом&nbsp;альбоме легендарного коллектива, <STRONG>"InFinite"</STRONG>, который выйдет 7 апреля. 
+<P>&nbsp;</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/HzavoVQhlOA" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Deep Purple в Самаре

@@ -43,6 +43,68 @@ Nacho Arriaga: Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.10.2002 reviews Между любовью и ненавистью
+
+<p>Очень даже неплохой дебют испанской команды. ARWEN состоит из восьми музыкантов, причем в группе два клавишника (мужчина и женщина) и два вокала (мужской и женский). Правда, женский вокал звучит всего в одной вещи, в остальных - на подпевках. А вот мужской вокал очень напоминает Андре Матоса, да и сама музыка - power с элементами progressive metal, немного смахивает на ранние работы ANGRA, но кажется более простой, с большим количеством клавишных и отсутствием фолковых дел. Качество записи оставляет хорошие впечатления. Оба гитариста потрясают своими сольными выкладками. Богато аранжированный, мелодичный power metal. Однако, в техническом плане, здесь есть еще над чем поработать. Песни ритмичные, красивые, мелодичные, но хитами я бы их не назвал. Сразу в мозгу они не откладываются, несмотря на всю свою простоту. Но в своем жанре - это очень неплохой альбом. Всем любителям данного стиля понравится этот альбом. Группа имеет огромный потенциал и если будет продолжать идти правильной дорогой, то вполне может добиться в будущем успеха. Рискну, пожалуй, с некоторой натяжкой поставить альбому хорошую оценку. За энтузиазм.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 22.10.2002 articles Новинки лицензионного рынка (21.10 - 28.10)
+
+<p>В данных заметках, мы постараемся доносить до Вас всё то, новое, что Вы можете обнаружить на прилавках магазинов на этой неделе. Оценок не ждите… Всё в рубрике рецензии.</p>
+<p> Начнём по алфавиту. ART Music Group на прошлой неделе представила на наш суд четыре новые позиции.<IMG SRC="/images/articles_rus/2002.10/3294.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> <IMG SRC="/images/articles_rus/2002.10/3295.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">Сенсацией стало появление на лицензии по вполне доступным ценам нового альбома Kingdom Come “Independent”. Можно не разбираться в рок-музыке прошлого века, но не знать этого коллектива нельзя. Оценивать новое творение, оставим специалистам, но не признать того, что Ленни Волф – новая величина на лицензионном рынке нельзя. Спасибо AMG! Второй новиной, по известности, стал новый альбом Mystic Circle “Damien”. На прошлом альбоме группа отошла от black в сторону death. Что сейчас? Читайте <a href=”http://musica.mustdie.ru/ru/band/mystic_circle/6603/#reviews”>здесь</a>. И две последние не вполне известные группы. Medusa со своим sympho-power и Inner Shrine с gothic-metal.</p>
+<p> CD-Maximum представят на этой неделе нашему вниманию две новинки. <IMG SRC="/images/articles_rus/2002.10/3296.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">.<IMG SRC="/images/articles_rus/2002.10/3293.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> Trollheim's Grott "Bizzare Troll Technology" – альбом 2001 года, анонсирован, как нестандартный black-metal. И новый альбом группы Arwen, представляющий собой power-metal с прогрессивными элементами. Эти испанцы из конюшни Arise Records, на которой могут быть, как очень хорошие группы, так и откровенно слабые, но всё равно любителям power стоит попробовать.</p>
+<p> Следом идёт Fono, со своими новинками прошлой недели. Во-первых, это новый альбом Rotting Christ. Если Вы ещё его не купили на пиратке, купите лучше на лицензии. И ещё одна новинка по лицензии Century Media Borknagar “Quintessence”. Альбом начала этого года уже стал редкостью на рынке пиратов. Вперёд black-metal!</p>
+<p> Irond Records – контора, у которой без новинок не проходит ни одна неделя.<IMG SRC="/images/articles_rus/2002.10/3297.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="left">.<IMG SRC="/images/articles_rus/2002.10/3298.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="right"> На этот раз настоящей бомбой станет новый альбом Lake Of Tears “Neonai”. Пускай его уже тысячными тиражами продают пираты, настоящий любитель ждёт именно этого релиза. Вторым по значению стал подарок фэнам немецкой folk музыки – новый альбом Morgenstern, которые продолжают гнуть свою “In Extremo” подобную линию. Два следующих релиза Frown и Poema Arcanus представляют собой практически идентичные альбомы в жанре doom-metal – тяжёлые и медленные. Ну и напоследок Abaddon Incarnate. Irond не стесняется указывать весьма средние оценки в прессе для этого альбома, ведь это death-grind “молотилово», кто его поймёт кроме самого преданного фэна.</p>
+<p> Ну и последними по алфавиту стали и, видимо, останутся Soyuz, которые продолжают разрабатывать ниву Inside Out Records. На этой неделе всё-таки выйдут два старых альбома Symphony X. А на прошлой появились три старых альбома My Dying Bride, и альбом Anathema “Silent Enigma” (это уже, естественно, Peaceville).</p>
+<p>Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 22.10.2002 bios ARWEN
+
+<p> В середине 1996 года историю Arwen начали Jose A. Garrido (гитара) и Luis M. Hernandez (бас), преследовавшие мысль играть современный и техничный Heavy Metal. В 1997 году к группе присоединился Nacho Ruiz в качестве гитариста и вокалиста, но позже он посвятил себя исключительно вокалу. M. Carmen Castano присоединилась к группе как вокалистка, поскольку команде был нужен мягкий женский голос для бэк-вокала. <BR> В 1999 году Nacho Arriaga (Ударные), Rosalva Alonso (Клавишные) и Alberto Aviles (Гитара) стали новыми участниками Arwen. <BR> В таком основном составе группа начала развивать своё звучание. Именно тогда команда Arwen и была дополнена вторым клавишником Jonathan Zapatero. Этот необычный для Heavy Metal группы основной состав (8 участников) обязан своим появлением тому факту, что команда стремится играть все партии своих песен "живьём", не довольствуясь простыми записями. <BR> Arwen подписали контракт с Arise Records в 2001, "Memories Of A Dream" является их дебютным альбомом, записанным в мае 2002 года. Альбом сведён руками Mika Jussila на Finnvox, а Kris Verwimp (Old Man's Child, Arch Enemy) нарисовал для него обложку. Группа записала фантастическую кавер-версию песни Helloween, которая войдёт в сборник The Keepers Of Jericho Part II - A Tribute To Helloween - (Arise Records). <BR> "Memories Of A Dream" представляет нам группу со свежими идеями, своим собственным звучанием и многими другими качествами, необычными для современной металлической сцены.</p>
+
+Автор: Dimas
+
+### 16.11.2002 reviews Between love and hatred
+
+<p>A quite good debut of the Spanish band. ARWEN consists of eight musicians, and in group two keyboardists (man and woman) and two vocals (man's and female). The truth, female вокал sounds all in one track, in others - on back. And man's vocal very much reminds of Andre Matos, and music - power with elements of progressive metal, brushes away on early works of ANGRA, but it seems more simple, with a plenty keyboard and absence of folk businesses. The quality of record leaves good impressions. Both guitarists shake by the solo calculations. Richly arranged, melodious power metal. However, in the technical plan, here is above what to work. Songs rhythmical, beautiful, melodious, but as hits I would not name them. At once in a brain they are not postponed, despite of all simplicity. But in the genre is a very quite good album. All fans of the given style will like this album. The group has huge potential and if will continue to go by a correct road, quite can achieve in the future of success. Perhaps, with some correction to put to an album a good estimation. For enthusiasm.</p>
+
+Автор: Dimas
+
+### 02.06.2003 news Новости Arise Records
+
+<p>Бывшие участники DARK MOOR - вокалистка Elisa C.Martin, гитарист Albert Maroto и ударник Jorge Saez, образовали новую формацию DREAMAKER. Кроме них, в состав входят гитарист Matias Sosa, басист Carlos Pena и клавишник Roberto P.Camus (тоже некогда игравший в DARK MOOR). Группа запишет свой дебютный альбом в сентябре-октябре, в Финляндии. Ближе к концу года, он выйдет на Arise Records.</p>
+<p> Heavy metal проект из Швеции WIZ с участием гитариста NOSTRADAMEUS Jake Freden тоже подписал контракт с Arise Records. Новый альбом должен выйти там в конце года.</p>
+<p> Новым гитаристом DARK MOOR стал участник ARWEN Jose Garrido. Первый альбом в новом составе и с новым вокалистом увидит свет в октябре-ноябре этого года.</p>
+<p> FRETERNIA работает над своим третьим альбомом. В группе новый гитарист - Niclas Karlsson (ex-Zonata).</p>
+<p></p>
+
+Автор: Dimas
+
+### 19.08.2004 news ARWEN заканчивают запись нового альбома
+
+<P>Испанская power-metal команда <STRONG>ARWEN </STRONG>заканчивает запись своего второго альбома "<STRONG>Illusions</STRONG>". Пластинка увидит свет в ноябре, вот некоторые названия песен: <STRONG>Illusions, One Reason To Live &shy;Keltia, Touch The Sky, Infinity &nbsp;& Lullaby</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.08.2004 news ARWEN are finishing sophomore album
+
+<P>Spanish power-metal band <STRONG>ARWEN</STRONG> are finishing their second album '<STRONG>Illusions</STRONG>', which will be released in november through <STRONG>Arise Records</STRONG>. Some titles from CD: <STRONG>Illusions, One Reason To Live &shy;Keltia, Touch The Sky,&nbsp;Infinity & Lullaby</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.04.2005 reviews Очередный испанские power-metal самородки
+
+<P>Очередные испанские "самородки", которым "путёвку в жизнь" выписал лэйбл Arise records. Это уже их второй альбом, но CD-Maximum утверждает, что коллектив постиг значительный прогресс. Нет причин им не верить, просто не понятно, что тогда представлял из себя дебютник "эльфийской принцессы".</P>
+<P>Новая работа ARWEN - "очень южная". Коллектив мечется от одного стиля heavy-metal к hard-rock, потом обратно, но уже к другому стилю heavy-metal. Некоторые песни напоминают ANGRA, некоторые - HELLOWEEN. Также альбом "пропитан" насквозь балладами, как правило, в исполнении девушки-вокалистки. Всё это было бы привлекательно для любого поклонника heavy-power-metal, если бы не одно но... Общий уровень альбом находится на глубоком среднем уровне. Не очень "мощная" реализация, слабые вокальные данные певцов (обоих полов), невнятные мелодии, да и какого-то шедеврального исполнительского мастерства здесь тоже нет. Обычный "порожняк".</P>
+<P>13 трэков подобного "ни рыба, ни мясо" выдержит не каждый, поэтому не рискну советовать этот альбом никому. Разве, что любителям юношеского испанского power-metal.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

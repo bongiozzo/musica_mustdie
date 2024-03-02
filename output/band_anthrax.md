@@ -386,6 +386,853 @@ Frank Bello - Bass
 * C группой "White Zombie" John Tempesta (drums)
 * C группой "Zombie, Rob" John Tempesta (drums)
 
+## Публикации
+
+### 21.04.1999 news 
+
+<p>Вокалист Anthrax Джон Буш вернулся в Armored Saint для записи нового альбома, который выйдет в следующем году.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Anthrax пригласили в студию бывшего своего фронтмэна Джоя Белладонну для записи кавера песни The Temtation, где он споёт дуэтом с Джоном Бушем.</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>Подтвердилась информация о том, что в Anthrax приглашён их бывший вокалист Джо Беладонна. Он запишет одну студийную песню и проедется с командой в туре. Правда окончательного его возвращения в группу не предполагается.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Джоей Белладонна отказался от тура вместе с Anthrax, во время которого он должен был совместить обязанности фронтмэна с Джоном Бушем. Ходят слухи, что стороны не сошлись в финансовых вопросах. Барабанщик Anthrax Чарли Бенанте от комментариев отказался.</p>
+
+Автор: Vit Belov
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 21.03.2001 news Святой вооружается....
+
+<p>ARMORED SAINT с вокалистом John Bush (ANTHRAX) в своих стройных рядах 11 июня выпускают CD раритетов "Nod To The Old School". Альбом выйдет в виде двойника и только в Европе (через Metal Blade Records). Трек-лист: 01. Swagger (новая песня) 02. Unstable (новая песня) 03. Day Of The Eagle (ROBIN TROWER cover) 04. Never Satisfied (JUDAS PRIEST cover) 05. March Of The Saint (новая 2001 версия) 06. Creepy Feelings (Live) 07. After Me The Flood (Live) 08. Tainted Past (акустическая версия) 09. Lesson Well Learned (EP версия) 10. False Alarm (EP версия) 11. On The Way (EP версия) 12. Stricken By Fate (from EP sessions) 13. Reign Of Fire (1989 studio demo w/ Dave Prichard) 14. People (1989 4 track demo) 15. Pirates (1989 4 track demo) 16. Midieval Nightmares (1989 4 track demo) 17. Nothing Between The Ears (1989 4 track demo) 18. Get Lost (1989 4 track demo) + CDROM files: 19. Live video (from the Whiskey 2000) 20. Live video (from the Whiskey 2000) 21. Reign Of Fire (video) 22. Last Train Home (video)</p>
+
+Автор: Yermola
+
+### 21.03.2001 news Nod To The Old School...
+
+<p>ARMORED SAINT, featuring ANTHRAX vocalist John Bush, will be issuing a CD of rarities through the European branch of Metal Blade Records on June 11th. Titled Nod To The Old School, the CD’s first edition will be a double-CD limited to 10,000 copies. When that one is sold out there will be only the normal CD-version with less tracks and video-clips. Here is the full track listing to the Europe-only, “limited” edition version of Nod To The Old School: 01. Swagger (new song) 02. Unstable (new song) 03. Day Of The Eagle (ROBIN TROWER cover) 04. Never Satisfied (JUDAS PRIEST cover) 05. March Of The Saint (new 2001 version) 06. Creepy Feelings (Live) 07. After Me The Flood (Live) 08. Tainted Past (acoustic version) 09. Lesson Well Learned (original EP version) 10. False Alarm (original EP version) 11. On The Way (original EP version) 12. Stricken By Fate (from EP sessions) 13. Reign Of Fire (1989 studio demo w/ Dave Prichard) 14. People (1989 4 track demo) 15. Pirates (1989 4 track demo) 16. Midieval Nightmares (1989 4 track demo) 17. Nothing Between The Ears (1989 4 track demo) 18. Get Lost (1989 4 track demo) CDROM files: 19. Live video (from the Whiskey 2000) 20. Live video (from the Whiskey 2000) 21. Reign Of Fire (video) 22. Last Train Home (video)</p>
+
+Автор: Yermola
+
+### 10.04.2001 news Новости ANTHRAX ...
+
+<p>По сообщению Scott Ian, ANTHRAX очень близок к подписанию нового контракта с Beyond / BMG (они получили уже на руки финальную версию для согласования). В июне команда планирует запись студийного альбома для дальнейшего релиза до конца 2001.</p>
+
+Автор: Yermola
+
+### 10.04.2001 news ANTHRAX have just received the final drafts of their contract...
+
+<p>According to ANTHRAX guitarist Scott Ian, the band have just received the final drafts of their Beyond / BMG contract and are expecting to sign to the label shortly. ANTHRAX are looking to start recording the next studio album in June, for a late 2001 release.</p>
+
+Автор: Yermola
+
+### 28.04.2001 news ANTHRAX подписались с Beyond&#x2F;BMG Records......
+
+<p>Спустя каких-то 15 месяцев - "ANTHRAX" подписали таки контракт с Beyond/BMG Records по распространению дисков в США. Сейчас команда ждет возвращения барабанщика Charlie Benante для продолжения работы. В Европе продавать продукцию "ANTHRAX" будут Nuclear Blast.</p>
+
+Автор: Yermola
+
+### 28.04.2001 news ANTHRAX have signed a US record deal with Beyond&#x2F;BMG Records....
+
+<p>ANTHRAX have signed a US record deal with Beyond/BMG Records. According to guitarist Scott Ian, "the deal's done. Amazing. It only took, like, 15 months. Now we just have to hope they don't go out of business like Ignition [Records did]. We're going to get to work, finally, after [drummer] Charlie [Benante] gets back from his honeymoon. If miracles exist, we could have a new record for Halloween. We do have a jump on things as far as writing is concerned. We've got two things together from last year that are killer. I'm sure we'll do some rearranging once we get going. We also plan on using some of the stuff we came up with for [the] Ghosts Of Mars [movie soundtrack]. Damn if we didn't write some heavy sh.t. The cool thing is that some of the parts go by quickly so that it won't be like we're ripping ourselves off. The sh.t is brutal." As previously reported, ANTHRAX are now signed to Nuclear Blast Records for the European territory.</p>
+
+Автор: Yermola
+
+### 18.10.2001 articles Жертвы инфекции
+
+<p>"Сибирская язва" распространена в США на миллионах компакт-дисков</p>
+<p> От сибирской язвы пострадали четверо музыкантов. Потому что сами они – язвы и насмешники, циники и нигилисты. 20 лет назад их угораздило назвать свой коллектив ANTHRAX – американское название злополучной инфекции. И если тогда им приходилось объяснять необразованным соотечественникам в каждом интервью, что это за зараза, то теперь с помощью Бен Ладена и программ новостей это узнали все без исключения. К неописуемому горю самих музыкантов, которые теперь вынуждены подумывать о смене вывески.<br> Хотя не так-то просто отказаться от названия, которое красуется на нескольких миллионах копий компакт-дисков, и под которым было сыграно несколько тысяч концертов и заработан не один миллион долларов… <br> Пока ANTHRAX не отменили ни одного концерта, но музыканты уже чувствуют нервозность организаторов концерта по этому поводу. Вы только представьте себе афиши "Сегодня в нашем городе – СИБИРСКАЯ ЯЗВА!" <br> Люди просто ринутся прочь из "инфицированного города" Есть подозрение, что всяк, кто увидит такие надписи окрестное население ринется из города куда глаза глядят. <br> - Мы не хотели бы добиваться всеобщего внимания таким вот образом, – говорит Скот Ян Розенфельд, гитарист ANTHRAX - Это все равно, что кто-нибудь в 1937 году назвал бы свою команду "Джаз-квартет Фредди Гитлера". Мы даже не думали, что когда-нибудь наше название обретет столь зловещий смысл – для нас всегда это был синоним всеобщей истерии и паранойи… Возможно теперь мы сменим имя – что-нибудь вроде "Корзинка с щеночками"! (Хотя лучше бы ребята переименовались в "АНТИБИОТИКИ" – красиво и злободневно! – Авт.)<br> Надо признать, что судьба поступила с ANTHRAX просто по-скотски – по признанию того же Скота, сам он узнал о сибирской язве только в колледже, а до того он даже не слышал об этой болячке: "Мне показалось это хорошим названием для рок-группы – во всяком случае, лучше, чем "Разрушители" или "Убийцы". ANTHRAX звучало очень необычно и никто даже не знал, что это такое! Но зато теперь… Я включаю телевизор, слышу слово ANTHRAX и думаю – черт, да это же о нас! Вот она, слава!" Дудки – это все о террористах. Ни слова о четырех симпатягах их Нью-Йорка, которым к тому же пришлось из-за терактов отменить турне с JUDAS PRIEST по всей Америке. А теперь еще и эта напасть… <br> "Многие сейчас нас спрашивают – а что, если вы сами заразитесь сибирской язвой? Даже мамочка моей подруги пошла и накупила антибиотиков. Но, думаю, наше название нас и защитит – во всяком случае, я не собираюсь умирать и давать повод для иронии". <br> Умирать и вправду не стоит – несостоявшийся концертный тур в компании с теми же JUDAS PRIEST теперь просто перенесен на январь. Насмешник Скот Ян считает, что большинство шоу пройдут с аншлагом – лучшей рекламы и не придумаешь: "Уверен, все инциденты с сибирской язвой скоро прекратятся, мы все вместе пройдем через это и станем сильнее и взрослее. Ну и немного прибавим в весе!"</p>
+<p></p>
+
+Автор: Tornado
+
+### 22.10.2001 news Спасибо Усаме Бен Ладену от.... Скотта Иэна.
+
+<p>За последние две недели официальный сайт команды "ANTHRAX" (<a href="http://www.anthrax.com/">www.anthrax.com</a>) посетили более восьми миллионов человек, хотя прежде, "в хорошие месяцы" - как выразился веб-мастер сайта число посещений доходило только до 50 000... Благодарить за это участникам команды следует саудовского мульти-миллионера Усаму Бен Ладена, пославшего в американские города несколько писем со странным белым порошком... ANTHRAX, кстати, в переводе с английского означает "сибирская язва".</p>
+
+Автор: Yermola
+
+### 22.10.2001 news ANTHRAX on the WEB...
+
+<p>The official web site of the heavy metal band ANTHRAX at <a href="http://www.anthrax.com/">www.anthrax.com </a>has reportedly received 8 million hits in the last two weeks, with 325,000 unique visitors connecting to the site in the wake of the recent anthrax bacteria terrorist scare that has sent fear and panic through the streets of America. According to the site’s webmaster, prior to the aforementioned terrorist attacks, ANTHRAX’s web site was averaging around 50,000 visitors “on a good month”. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.11.2001 news Еще один герой....
+
+<p>"ANTHRAX" выбрали "Супергероя" в качестве названия для нового студийного альбома, который уже пишется в Нью-Йоркской Beartracks Studios для мартовского релиза на Nuclear Blast Records в Европе и Beyond/BMG Records в штатах. Трек-лист: <BR><BR> 01. Superhero <BR> 02. What Doesn't Die <BR> 03. Strap On My Old School <BR> 04. Taking The Music Back <BR> 05. Nobody Knows Anything <BR> 06. Expiration<BR><BR> По словам Скотта Иэна новая запись будет: "возвращением к мощным жирным риффам и мощному загружалову...". "Superhero" - дебют для нового гитариста Rob Caggiano, заменившего летом Пола Крука. Caggiano также продюссирует альбом, поскольку работал в команде Scrap 60 Productions и обладает достаточным опытом...</p>
+
+Автор: Yermola
+
+### 27.11.2001 news ANTHRAX have apparently set Superhero as the working title ...
+
+<p>ANTHRAX have apparently set Superhero as the working title for their forthcoming studio CD, which is currently being recorded at Beartracks Studios in Suffern, New York for a March release through Nuclear Blast Records in Europe and Beyond/BMG Records in the US. Among the known song titles that are set to appear on the effort are the following: <BR><BR> 01. Superhero<BR> 02. What Doesn't Die <BR> 03. Strap On My Old School <BR> 04. Taking The Music Back <BR> 05. Nobody Knows Anything <BR> 06. Expiration<BR><BR> Although very little information about the nature of the material has been leaked so far, guitarist Scott Ian has gone on record as saying that the new songs represent a “return to big fat riffs and really great grooves.” Superhero marks the recording debut with the band of new guitarist Rob Caggiano, who replaced longtime stand-in Paul Crook during the summer. Caggiano is also reportedly co-producing the effort, a role that he has grown accustomed to as one-third of the Scrap 60 Productions team that was recently responsible for producing a host of albums for the Roadrunner label, including those from 36 CRAZYFISTS, ILL NINO and DRY KILL LOGIC.</p>
+
+Автор: Yermola
+
+### 30.11.2001 news Сибирская Язва меняет адрес...
+
+<p>После посылок от доброго дядюшки Бен Ладена и вызванного ими обвального интереса к теме, группа "ANTHRAX" была вынуждена сменить адрес официального сайта с <A HREF="http://www.anthrax.com ">anthrax.com </A>на <A HREF="http://www.anthraxtheband.com ">anthraxtheband.com </A> Смены названия группы, вопреки циркулирующим слухам, так и не произошло.</p>
+
+Автор: Yermola
+
+### 30.11.2001 news ANTHRAX has changed the url...
+
+<p>The band has changed the url for its website from <A HREF="http://www.anthrax.com ">anthrax.com </A>to <A HREF="http://www.anthraxtheband.com ">anthraxtheband.com </A>as their site was getting an overwhelming amount of hits due to the recent anthrax attacks in the US.</p>
+
+Автор: Yermola
+
+### 05.12.2001 news Забирая музыку назад...
+
+<p>"ANTHRAX" сменили название нового альбома. Вместо "Супергероя", как это сообщалось раньше это будет "Taking The Music Back". На диске будут следующие песни: <BR><BR> 01. Superhero <BR> 02. What Doesn't Die <BR> 03. Strap On My Old School <BR> 04. Taking The Music Back <BR> 05. Nobody Knows Anything <BR> 06. Expiration <BR> 07. Think About An End <BR> 08. Refuse To Be Denied <BR> 09. Safe Home</p>
+
+Автор: Yermola
+
+### 05.12.2001 news Taking The Music Back ...
+
+<p>According to guitarist Scott Ian, ANTHRAX have set Taking The Music Back (not Superhero, as we previously reported) as the tentative title of their forthcoming album, which is currently being recorded at Beartracks Studios in Suffern, New York for a March release through Nuclear Blast Records in Europe and Beyond/BMG Records in the US. The axeman has also gone on record as saying that the album contains three or four of their best-written songs, yet is also "faster and thrashier" than anything they did in the Eighties. Among the known song titles that are set to appear on the effort are the following: <BR><BR> 01. Superhero <BR> 02. What Doesn't Die <BR> 03. Strap On My Old School <BR> 04. Taking The Music Back <BR> 05. Nobody Knows Anything <BR> 06. Expiration <BR> 07. Think About An End <BR> 08. Refuse To Be Denied <BR> 09. Safe Home <BR><BR> Taking The Music Back is being produced by Scrap 60 Productions, the New York-based team that includes newest ANTHRAX member, guitarist Rob Caggiano, which was responsible for producing a host of albums for the Roadrunner label (among others), including those from 36 CRAZYFISTS, ILL NINO and DRY KILL LOGIC. <BR><BR> In other news, you can check out pictures of ANTHRAX taken at last week’s New York Steel benefit concert for New York City firefighters (where they appeared alongside TWISTED SISTER, OVERKILL, SEBASTIAN BACH, ACE FREHLEY and others) at this location. VH1's Rock Show will also have a special New York Steel edition this Friday (December 7th), with coverage of the event, including footage of TWISTED SISTER and other aforementioned acts performing live.</p>
+
+Автор: Yermola
+
+### 25.01.2002 news Трэш-маньяки на острие атаки!!!
+
+<p>Небезизвестный Dan Lilker намерен собрать в оригинальном составе легендарных трэшеров NUCLEAR ASSAULT, чьё существование было пренесено в жертву BRUTAL TRUTH. Пока речь идёт о нескольких выступлениях на летних фестивалях, а там уж чем чёрт не шутит...</p>
+
+Автор: Odiumaniac
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 17.04.2002 news Мы здесь для всех вас....
+
+<p>Вот так вот прямо и заявили музыканты группы ANTHRAX выбрав название "We've Come For You All" для своего следующего альбома. Спродюссированный Scrap 60 Productions (гитарист ANTHRAX Rob Caggiano, Eddie Wohl и Steve Regina) релиз атакует прилавки Европы и США летом. Трек-лист: <BR><BR> 01. Black Dahlia<BR> 02. Refuse To Be Denied<BR> 03. Superhero<BR> 04. Safe Home<BR> 05. What Doesn't Die<BR> 06. Strap On My Old School <BR> 07. Taking The Music Back <BR> 08. Nobody Knows Anything <BR> 09. Expiration <BR> 10. Think About An End <BR><BR> B-sides/Bonus Tracks:<BR> 01. Exit (U2 cover)<BR> 02. Next To You (THE POLICE cover)<BR> 03. We're A Happy Family (THE RAMONES cover)<BR></p>
+
+Автор: Yermola
+
+### 17.04.2002 news ANTHRAX Set &quot;We&#39;ve Come For You All&quot; As Title ....
+
+<p>ANTHRAX have set We've Come For You All All as the title of their forthcoming ninth studio CD, which is scheduled to surface this summer through Nuclear Blast Records in Europe and Sanctuary Records in the US. Produced by Scrap 60 Productions (i.e. ANTHRAX guitarist Rob Caggiano, Eddie Wohl, and Steve Regina), We've Come For You All will feature the following cuts, among others: <BR><BR> 01. Black Dahlia<BR> 02. Refuse To Be Denied<BR> 03. Superhero<BR> 04. Safe Home<BR> 05. What Doesn't Die<BR> 06. Strap On My Old School <BR> 07. Taking The Music Back <BR> 08. Nobody Knows Anything <BR> 09. Expiration <BR> 10. Think About An End <BR><BR> B-sides/Bonus Tracks:<BR> 01. Exit (U2 cover)<BR> 02. Next To You (THE POLICE cover)<BR> 03. We're A Happy Family (THE RAMONES cover)<BR></p>
+
+Автор: Yermola
+
+### 23.07.2002 news We&#39;ve Come For You All...
+
+<p>Полностью и давно готовый альбом ANTHRAX - "We've Come For You All" будет выпущен в штатах на Beyond Records, к которым музыканты перешли после разрыва отношений с Sanctuary Records...<BR> <BR> Что касается Европы, Nuclear Blast Records передвинул дату выпуска на начало 2003 года...</p>
+
+Автор: Yermola
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 22.03.2003 reviews Очень утомительно...
+
+<p>Самое простое, а может самое сложное, отругать старую заслуженную группу, страдающую от отсутствия хороших идей уже лет 10. Одни из корифеев американской thrash-metal сцены 80-х оставили свои успехи в далёком прошлом. Девятый альбом ANTHRAX явно не принесёт им никаких лавров. Очень утомительная, и в тоже время трэндовая музыка, которая не дотягивает ни до современных стандартов NU-metal, ни до стандартов старого доброго металла. Что нам остаётся? Снять шляпу? Но если группа будет и дальше выпускать подобные шлягеры, никаких шляп не хватит. Пора заканчивать...</p>
+
+Автор: Vit Belov
+
+### 04.05.2003 reviews Cтарики-разбойники
+
+<p><B>ANTHRAX, несколько лет назад впав в детство (или старческий маразм – кому как нравится) с пластинкой "Volume 8", сегодня даже в этой ипостаси звучат настолько забавно и привлекательно, что их новому диску можно пророчить успех.</B> <BR> Само по себе это удивительно. Худший пример такого заболевания навевает тоску смертную – легендарная METALLICA, несколько лет назад вдруг заиграв невозможно старую и невыносимо скучную музыку, одновременно объяснять всем подряд, что на самом деле очень здорово и круто научиться тырить идеи у ископаемых групп: BLACK SABBATH, DEEP PURPLE, RAINBOW, DIO и прочих. Но у ANTHRAX все иначе – то ли заболевание приняло несколько иную форму, то ли кумиры у нью-йоркского квинтета в детстве были весельчаками.<BR> Плотность звучания, деланная агрессия некоторых песен делает пластинку похожей на прежний шедевр ANTHRAX "Sound of White Noise" и просто ударный диск "Stomp 442", но вот рок-н-ролльный дух большинства песен сразу же выдает ностальгию ANTHRAX по музыке детства – недаром изначально пластинку хотели назвать "Верните музыку назад!". Но финальное название получилось гораздо более точным: "Мы пришли за вами!" Этакие разудалые старички-разбойнички, которые оккупировали парк отдыха и теперь так и норовят молодым подножку поставить, яблоком в голову кинуть или хором похабную песню вслед влюбленной парочке спеть. <BR> В-общем, покоя от таких пенсионеров "металлического" фронта не будет (правда, и особого всплеска адреналина в крови они тоже не вызовут). И, тем не менее, процесс наблюдения за тем, как люди не сдаются возрасту (группа работает под девизом: "седину брить налысо!") и живут в свое удовольствие, не обременяя себя и окружающих серьезным отношением к миру и просто старческим нытьем, доставляет огромное удовольствие. Так что советую диск купить – и повод для веселья найдется, и пенсию достойным людям обеспечите.</p>
+
+Автор: Tornado
+
+### 20.06.2003 reviews Very tiring CD...
+
+<p>The simplest or may be the hardest thing is give scolding to old famous band, which suffers from absence of good ideas almost for 10 years. One of liders of American thrash-metal scene leaved their succeses in ancient times. The 9th studio-album by ANTHRAX must not add some glory to theit name. Very tiring and in the same time trend music, which don't make neither standarts of NU-metal nor standrts of OLD-metal. What can we do? Take off our hats? But if band would go on to release same CDs, we will not able to find this quality of hats. History of ANTHRAX must come to the end.</p>
+
+Автор: Vit Belov
+
+### 31.08.2003 news ANTHRAX обвиняют американцев в тупости
+
+<p>Барабанщик ANTHRAX Charlie Benante в интервью одной из американских газет объяснил низкие продажи своей последней пластинки "We've Come For You All" в США. Он обвинил в своём провале тренды в американской pop-музыке. "<b>Я считаю, что люди в Америке просто тупые. Они не как европейцы...</b>"</p>
+
+Автор: Vit Belov
+
+### 30.09.2003 news ANTHRAX in USA
+
+10.10.2003 MONTREAL, QUE - Le Spectrum ( USA) <BR>11.10.2003 QUEBEC CITY, QUE - Salle de la Canardi&egrave;re ( USA) <BR>12.10.2003 BANGOR, ME - Russell's ( USA) <BR>14.10.2003 BUFFALO, NY - The Continental ( USA) <BR>15.10.2003 FARMINGDALE, NY - Downtown ( USA) <BR>17.10.2003 OLD BRIDGE, NJ - Birch Hill ( USA) <BR>18.10.2003 LANCASTER, PA - Chameleon ( USA) <BR>19.10.2003 PROVIDENCE, RI - Lupo's Heartbreak Hotel ( USA) <BR>20.10.2003 WEST SPRINGFIELD, VA - Jaxx ( USA) <BR>22.10.2003 FAYETTEVILLE, NC - Jester's Pub ( USA) <BR>24.10.2003 NORTH MYRTLE BEACH, SC - House Of Blues ( USA) <BR>29.10.2003 LAKE BUENA VISTA, FL - House Of Blues ( USA) <BR>31.10.2003 HATO REY, PR - Ampiteatro Tito Puente ( USA)
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 04.03.2004 news Frank Bello покинул ANTHRAX?
+
+Из неподтверждённых источников стало известно, что басист <B>Frank Bello </B>покинет <B>ANTHRAX</B>, чтобы присоединиться к реформированным <B>HELMET</B>. Впеменной заменой ему в группе станет <B>Joey Vera</B> (<B>ARMORED SAINT</B>, <B>FATES WARNING</B>).
+Автор: Vit Belov
+
+### 23.03.2004 news ANTHRAX выпускают DVD
+
+<P><B><IMG height=480 alt="" hspace=0 src="/images/news_rus/2004.03/6277.jpg" width=300 align="right" border=0>ANTHRAX</B> выпустят DVD <B>Music Of Mass Destruction</B> в Европе на <B>Nuclear Blast</B>. Трэк-лист:</P>
+<P>01. <B>What Doesn't Die</B> <BR>02. <B>Got The Time</B> <BR>03. <B>Caught In A Mosh</B> <BR>04. <B>Safe Home</B> <BR>05. <B>Room For One More</B> <BR>06. <B>Antisocial</B> <BR>07. <B>Nobody Knows Anything</B> <BR>08. <B>Belly Of The Beast</B> <BR>09. <B>Inside Out</B> <BR>10. <B>Refuse To Be Denied</B> <BR>11. <B>I Am The Law</B> <BR>12. <B>Only</B> <BR>13. <B>Be All End All</B><BR>14. <B>Indians</B><BR>15. <B>Bring The Noise</B> <BR><BR>Bonus Tracks:<BR><BR>16. <B>Fueled</B> <BR>17. <B>Metal Thrashing Mad</B><BR><BR>The CD counterpart contains:<BR><BR>01. <B>What Doesn't Die</B><BR>02. <B>Got The Time</B><BR>03. <B>Caught In A Mosh</B><BR>04. <B>Safe Home</B><BR>05. <B>Antisocial</B><BR>06. <B>Nobody Knows Anything</B><BR>07. <B>Belly of the Beast</B><BR>08. <B>Inside Out</B><BR>09. <B>Refuse To Be Denied</B><BR>10. <B>I Am The Law</B><BR>11. <B>Only</B><BR>12. <B>Fueled</B><BR>13. <B>Metal Thrashing Mad</B><BR></P>
+Автор: Vit Belov
+
+### 19.06.2004 articles Хроника: Счастливые мгновения из жизни Rob Halford – Chris Poland не присоединялся к MEGADETH – Улица имени AC&#x2F;DC – Charlie Benante хочет в предвыборный штаб – Некролог Quorthon – Скупой Glenn Benton и жадная Metalysee
+
+<P><I>Счастливые мгновения из жизни </I><B><I>Rob </I><I>Halford </I></B><I>– </I><B><I>Chris </I><I>Poland </I></B><I>не присоединялся к </I><B><I>MEGADETH </I></B><I>– Улица имени </I><B><I>AC/</I><I>DC </I></B><I>– </I><B><I>Charlie Benante </I></B><I>хочет в предвыборный штаб – Некролог </I><B><I>Quorthon</I></B><I> – Скупой </I><B><I>Glenn Benton </I></B><I>и жадная </I><B><I>Metalysee</I></B><I></I></P>
+<P>Одним из самых значимых событий за последнее время в metal-музыке стало воссоединение <B>JUDAS PRIEST</B>с <B>Rob Halford</B>. В интервью журналу <B>Revolver Rob </B>поделился своими мыслями по поводу этого события. «<I>В 1997 году, когда вышел ‘</I><B><I>Jugulator</I></B><I>’ я подумал, что шансов на воссоединение у нас не осталось. Они выпустили альбом с </I><B><I>Tim </I><I>Owens</I></B><I>, поехали в тур… Я никогда не рассказывал об этом, но ещё во время записи первого альбома </I><B><I>FIGHT</I></B><I> я подумывал о возвращении в </I><B><I>JUDAS </I><I>PRIEST</I></B><I>, я связался с одним человеком, близким к группе, но получил отказ. Мне тогда показалось, что моими бывшими коллегами владело чувство обиды</I>», - рассказывает <B>Rob</B>. Также <B>Halford </B>описал сам момент возрождения группы в классическом составе: «<B><I>Sony</I></B><I> собралась выпустить коллекцию </I><B><I>JUDAS </I><I>PRIEST</I></B><I> на четырёх дисках ‘</I><B><I>Metalogy</I></B><I>’, и мы все вместе собрались, чтобы отобрать песни для этих дисков. Мы сидели на моей кухне, и когда основное дело было кончено, мы посмотрели друг другу в глаза и сказали: «Ну, что Вы думаете о </I><I>re-</I><I>union?». Мы решили, что если это не случится сейчас, это не случится никогда. Все разъехались в разных направлениях, а я сидел дома и повторял: «Я снова в группе! Я снова в группе!»</I>». За всей этой мелодраматической историей заметна тень <B>Sony Music</B>, которым очень выгодно воссоединения «бедного» <B>Halford </B>со своим друзьями-врагами. Альбом будет записан осенью, а в настоящее время группа даёт свои первые концерты в обновлённом составе. Вот сэт-лист одного из них в Ганновере:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2004.06/6633.jpg" width=300 align="right" border=0>01. <B>Hellion</B><SPAN><BR>02. <B>Electric Eye</B> <BR>03. <B>Metal Gods</B> <BR>04. <B>Heading Out to the Highway</B> <BR>05. <B>The Ripper</B> <BR>06. <B>Touch of Evil</B> <BR>07. <B>The Sentinel</B> <BR>08. <B>Turbo Lover</B> <BR>09. <B>Victim of Changes</B> <BR>10. <B>Diamonds and Rust</B> <BR>11. <B>Breaking the Law</B> <BR>12. <B>Beyond the Realms of Death</B> <BR>13. <B>The Green Manalishi (With the Two Pronged Crown)</B><BR>14. <B>Painkiller</B> <BR>Encore:<BR>15. <B>Hell Bent For Leather</B> <BR>16. <B>Living After Midnight</B> <BR>17. <B>United</B> <BR>18. <B>You Got Another Thing Coming</B> </SPAN></P>
+<P><B>MEGADETH </B>записали новую пластинку. В записи <B>Dave Mustain </B>помогал его бывший коллега по группе <B>Chris Poland</B>, который дал на прошлой неделе интервью<B> <SPAN><A href="http://dallasmusicguide.com/" target=_blank><SPAN style="COLOR: #ffffff">Dallas Music Guide</SPAN></A></SPAN></B>, в котором рассказал немного об этой свой работе. «<B><I>Dave</I></B><I> позвонил мне и попросил записать соло для своей новой работы, которая должна была стать либо новым альбомом </I><B><I>MEGADETH</I></B><I>, либо сольной пластинкой </I><B><I>Dave </I><I></I><I>Mustain</I></B><I><SPAN>. Одной из основных причин моего согласия стала наличие за барабанной стойкой <B>Vinnie Colaiuta, </B>фэном которого я являюсь долгое время</SPAN></I>». Также <B>Chris </B>сообщил, что не собирается присоединяться к <B>MEGADETH </B>на постоянной основе, так как в настоящее время он предпочитает играть другой сорт музыки. Вот как <B>Poland </B>описывает будущий альбом <B>MEGADETH</B><SPAN>: «<I>Новая пластинка – это смесь </I></SPAN><B><I>Rust </I><I></I><I>In </I><I></I><I>Peace</I></B><I> и </I><B><I>Peace </I><I></I><I>Sells</I></B><I>… Также есть некоторые черты первого альбома. Многие песни необходимо слушать несколько раз, так как врубиться в них с первого раза тяжеловато. Гитарные партии очень сложные, я не могу вспомнить, что я играл на этом альбоме, для каждой песни собственное сложное соло. Вы можете ожидать нечто подобное, но каждый составит своё мнение после прослушивания этого альбома</I>».</P>
+<P>Почётная, и одновременно забавная, новость пришла из Австралии. По сообщению <B>CNN</B>, власти города Мельбурн собираются переименовать одну из улиц города <B>Corporation Lane </B><SPAN>в (угадайте!!!) <B>AC/DC Lane. </B>«<I>Они, возможно, самая успешная австралийская группа</I>», - говорят в мэрии города. «<I>Рок’н’ролл сообщество города ищет возможность воздать должное группе. Тем более, один из клипов </I></SPAN><I>AC/</I><I>DC<B>"</B></I><B><I>It'</I><I>s </I><I>A </I><I>Long </I><I>Way </I><I>to </I><I>the </I><I>Top"</I></B><I> снимался на улицах Мельбурна</I>», - заканчивают своё выступление государственные деятели. <B>CNN </B>напоминает, что улица имени <B>AC/DC </B>уже есть в Мадриде.</P>
+<P>Бывшие thrash-metal’исты <B>ANTHRAX </B>продолжают привлекать к себе внимание общественности разнообразными высказываниями в прессе. В интервью своему немецкому фэн-клубу все другие заявления, включая мнение музыкантов о новом-старом басисте <B>ANTHRAX Joey Vera</B>, затмили очередные «предвыборные заявления». <B>Charlie Benante</B>: «<I>Я с самого первого дня ненавидел самою мысль, что </I><B><I>Bush</I></B><I> будет нашим президентом. Подобные чувства вселили действия, которые он и его группа идиотов производили. Я американец и горжусь этим, но одна мысль не даёт мне покоя: «Что думают о нас люди со всего мира, если мы выбрали себе такого президента?» Мы не такие, как он!!! Я за мир во всём мире и буду бороться за это</I>». Не иначе, как дела в группе идут не очень хорошо, и <B>Charlie </B>захотел подработать на стороне в предвыборном штабе <B>John Kerry</B>. </P>
+<P>7 июня скончался <B>Thomas "Quorthon" Forsberg </B>лидер и один из основателей <B>BATHORY</B>. У него просто остановилось сердце на сороковом году жизни после многолетней борьбы с сердечным недугом. Таковы скудные подробности случившегося. Многие известные музыканты выступили с заявлением по поводу кончины <B>Thomas</B><SPAN>. Одним из них стал <B>Jonas </B></SPAN><B>Akerlund, </B>который основал <B>BATHORY </B>вместе с <B>Quorthon </B>в начале 80-х, а затем успешно занимался клипмейкерством. Среди исполнителей, работавших с ним, <B>METALLICA, Madonna </B>и <B>U2</B><SPAN>. «<I>Это так грустно. Он мог столько ещё всего написать</I>», - говорит </SPAN><B>Jonas</B>. “<B><I>BATHORY</I></B><I> появились на сцене очень рано, и многие коллективы вдохновлялись песнями </I><B><I>Quorthon</I></B><I>. Парни из </I><B><I>METALLICA</I></B><I> и многие другие группы рассказывали мне, что слушали </I><B><I>BATHORY</I></B><I>. </I><B><I>Quorthon</I></B><I> имел культовый статус. Его не интересовало, что слушают люди, он просто сочинял музыку</I>». Ещё один «некролог» пришёл из Норвегии. <B>Satyr (SATYRICON):</B><SPAN> «<I>Услышать о смерти было очень грустно, ему было всего 39 лет… </I></SPAN><B><I>BATHORY</I></B><I> оказали огромное влияние на меня и </I><B><I>Frost</I></B><I>, когда мы основывали </I><B><I>SATYRICON</I></B><I><SPAN>. Первый кавер, который записала наша группа, был <B>'Born For Burning'. </B>Не многие люди встречались с </SPAN></I><B><I>Quorthon</I></B><I><SPAN>, он был замкнут и не являлся частью норвежской металл-сцены. Мы разговаривали с ним по телефону несколько раз в середине 90-х, и я рад даже такому общению с этой культовой фигурой. В первый раз мы говорили три часа, и я нашёл его очень дружелюбным и приветливым человеком. Наш режиссер клипов <B>Jonas </B></SPAN></I><B><I>A</I><I>kerlund </I></B><I>рассказывал много интересного о своей работе с </I><B><I>Quorthon</I></B><I> над первым альбомом </I><B><I>BATHORY</I><I>. </I></B><I>Спасибо за всё, что ты сделал для музыки, </I><B><I>Quorthon</I></B><I>! Все, зажгите 13 свечей и включите альбом </I><B><I>BATHORY</I></B><I>, чтобы помянуть короля</I>». R.I.P.</P>
+<P>После такой грустной темы надо немного разрядиться, и на этот случай у меня припасена история «<B>DEICIDE и Metalysee Booking Agency</B>». Напомню, что, именно, <B>Metalysee </B>были одним из организаторов приезда в Россию группы <B>MARDUK</B>, отсутствие которой на сцене ДК им. Горбунова повлекло за собой беспорядки среди фэнов и фактическое разорение Эджен Price и его лэйбла <B>Metalagen</B>. Совсем недавно <B>DEICIDE </B>отменили своё турне по Европе. Такое случается, но <B>Metalysee </B><SPAN>не дали спустить это дело на тормозах и выступили с обличительным заявлением. «<I>Вчера, 8 июня, </I></SPAN><B><I>DEICIDE </I><I></I></B><I>скоропостижно отменили свой европейский тур. В этот день они должны были играть в Лондоне, но вместо этого группа ожидала рейса в США в аэропорту Хитроу. Все проблемы начались за неделю до этого, когда </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> потребовал значительного увеличения гонорара за каждое шоу, в противном случае </I><B><I>DEICIDE</I></B><I> отказывались выступать. Мы были вынуждены принять их условия, так как не могли отменить этот тур. Однако 8 июня группа потребовала ещё больших денег. Дошло до того, что они просили двойного увеличения первоначальной суммы. Мы не стали выполнять эти просьбы. Наряду с финансовыми разногласиями </I><B><I>DEICIDE</I></B><I> не понравились условия транспортировки, в автобусе был сломан кондиционер. В конце концов, группа развернулась и улетела домой, оставив три группы, участвующих с ними в трассе, агентов, промоутеров и, конечно же, обманутых зрителей</I>». Ответ <B>Glenn Benton </B><SPAN>не заставил себя ждать: «<I>Во-первых, мы прервали своё сотрудничество с </I></SPAN><B><I>Metalysee</I></B><I> много лет назад, из-за ущемления прав групп, практикуемых на этой фирме. Сейчас мы вновь связались с этой конторой, считая, что многое должно измениться, например, трансферы. Замечу, что мы требовали всего 400 долларов за шоу. Но когда поняли, что за эти деньги нам придётся провести 4 недели в автобусе вместе с ещё 20 людьми, немного расстроились. Теперь автобус… Мы провели ночь на стоянке, дожидаясь его. </I><B><I>Johan</I></B><I> (босс </I><B><I>Metalysee</I></B><I>) врал нам, что он сломался, что неудивительно, когда пытаешься сэкономить на всём, чтобы заработать побольше, не считаясь с удобствами музыкантов. Автобус показался, опоздав на 7 с половиной часов… И у него не было кондиционера. Он не был сломан, его просто не было. Дохлые жучки повсюду, неубранные за прошлой группой помои. В контракте был указан «хороший автобус», этот не был таковым. Это же опасно для здоровья. Я вернулся домой с лёгочной инфекцией. После нескольких часов езды мы все были больны, запах моноксида углерода доконал нас. Я уже говорил </I><B><I>Johan</I></B><I>, что мы не можем путешествовать на подобных автобусах. Поверьте, нам не доставляет удовольствия отменять тур. Дал бы нам другой автобус или хотя бы почистил этот! А так, нам пришлось истратить 5000 долларов своих личных денег, чтобы вернуться домой, и ночевать на полу в аэропорту</I>». <B>Metalysee </B><SPAN>немедленно ответили на эти заявления: «<I>То, что сказал этот парень, может сказать только идиот. Мы работаем с лучшими </I></SPAN><I>black</I><I>-</I><I>death</I><I><SPAN> коллективами и никогда не кидаем своих партнёров. Касаемо транспорта, мы работаем только с лучшим перевозчиком в Европе <B>Starline-De Wit-Gaanon. </B>Мы все просто счастливы, что отделались от </SPAN></I><B><I>DEICIDE</I></B><I>. Многие локальные промоутеры больше не будут работать с этой группой. Посмотрим, какое ещё агентство обеспечит все требования </I><B><I>DEICIDE</I></B><I>: перелёт, трансфер, бэклайн и многое другое. </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> самый отвратительный тип, с которым я работал. Желаю ему, всего наилучшего</I>». Начитавшись подобных заявлений, к схватке присоединился бывший гитарист <B>HADES Dan Lorenzo</B><SPAN>: “<I>Никогда бы не подумал, что поддержу </I></SPAN><B><I>Glenn </I><I></I><I>Benton</I></B><I>. Но, прочитав его заявление, я вспомнил то, о чём редко рассказывал. Одной из главных причин распада </I><B><I>HADES</I></B><I> сразу после европейского тура 1989 года была работа </I><B><I>Metalysee</I></B><I>. У нас было огромное количество народу в автобусе, который был рассчитан всего на 8 человек. Мы не могли никому высказать претензии, так как </I><B><I>Johan</I><I></I></B><I>просто исчез. После 10 дней мучений мы уже решили не продолжать </I><B><I>HADES</I></B><I>, но всё-таки доиграли тур, чтобы не кидать наших фэнов</I>». Многие группы были переломаны под колёсами этого автобуса, который носится по Европе битком набитый отбросами и black-death коллективами. Кстати, теперь понятно, почему <B>MARDUK </B><SPAN>не приехали. Видимо, они были настолько измотаны подобными переездами, что просто не смогли справиться ещё и с нашими неурядицами. Для полноты картины приведу здесь высказывания <B>Евгения Аксёнова (</B></SPAN><B>Metalagen)</B> о несостоявшихся концертах <B>MARDUK</B>: «<I>Я, как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством <B>Metalysee</B>. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали <B>Pro-Pain & Co</B>. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт <B>Marduk & Co</B>. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае, сейчас я просто ничего не соображаю, но <B>Metalagen</B> больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего</I>». </P>
+Автор: Vit Belov
+
+### 27.08.2004 articles Хроника: Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах
+
+<P>Хроника: <EM>Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах</EM></P>
+<P>Мы возвращаемся из отпуска с очередной серией Хроники. На прошлой неделе Alice Cooper обрушился с критикой на рок-звёзд, которые агитируют в США за демократического кандидата John Kerry на выборах президента (а таких, кстати, большинство). Он назвал, подобные вещи «преступлением против рок’н’ролла», который по определению должен быть вне политики. «Когда мы начинали играть эту музыку, мы сбегали из школы, чтобы волочиться за девочками, пить пиво, а не читать Washington Journal». «Если Вы прислушиваетесь к rock star, голосуя на выборах, Вы больший дурак, чем они. Почему мы Rock star? Да, потому что мы дураки!» «Это не значит, что меня не волнует, что ждёт нашу страну, это значит, что я не считаю, что моё мнение должно что-то значить для Вас». Alice занял нейтралитет и просто продолжает свой американский тур.</P>
+<P>Некогда metal-hard rock журнал Kerrang! назвал лауреатов прошедшего сезона. Лучшей группой на планете стала METALLICA, которая обошла в этой номинации SLIPKNOT, THE DARKNESS, H.I.M., RED HOT CHILLI PEPPERS и BLINK 182. Лучшим новичком года названа банда VELVET REVOLVER, состоящая из бывших участников GUNS’N’ROSES и STONE TEMPLE PILOTS. Настоящий прорыв совершили THE DARKNESS, которые стали обладателями двух наград, как лучшая британская группа и как лучший концертный состав. Из других лауреатов: лучший альбом - MUSE "Absolution", лучшее видео - H.I.M. – "Funeral of Hearts", зал славы – GREEN DAY, дух рока – ANTHRAX.</P>
+<P>Вчера в Тель-Авиве состоялся второй Metalist fest, хэдлайнерами которого должны были стать шведы EVERGREY. К несчастью даже за рубежом тяжёлый шоу-бизнес находится в таком плачевном состоянии, что организаторы и группы продолжают терять достаточно большие деньги. Из официального заявления Oron Tonami из Metalist Productions: «EVERGREY не вылетели из Швеции, из-за того, что, якобы, им не были предоставлены обратные билеты на ночь с 28 на 29 августа. Мы отсылали уведомления о приобретении этих билетов по факсу дважды, поэтому я думаю, что это объяснение не выдерживает никакой критики. А ведь только в вечер накануне вылета менеджмент группы подтверждал намерение EVERGREY вылететь в то утро. Тысячи людей, которых EVERGREY кинули, очень расстроены этим событием». Мне думается, что тысячи людей расстроены, а Oron потерял ещё и кучку денег, которые являются основной причиной этого заявления. EVERGREY не замедлили ответить, в своём сообщении они рассказали, что купленные обратные билеты были не на тот день, который им надо. После этого невнятного оправдания на группу обрушились с критикой все фэны, обвинявшие их во всём от сионизма до антисемитизма. Tom Englund (гитара/вокал): «Я вынужден более подробно объяснить ситуацию. Мы были очень впечатлены предложением выступить в Израиле, такой возможности нам может больше не представится. Мы назначили очень маленький для нас гонорар 700 долларов, кроме этого, организатор по контракту должен был приобрести нам билеты на самолёт из Гётеборга в обе стороны и оплатить проживание. Всё дело в том, что мы должны были вернуться в ночь с пятницы на субботу, а не с субботы на воскресение. Мы заняты записью и в субботу должны работать со струнным квартетом и солистами. Началось всё с того, что нам был забронирован самолёт из Стокгольма, до которого 6 часов пути (540 км). Мы договорились, что организатор заплатит нам ещё 1000 долларов на автобус и водителя до Стокгольма (поверьте, это стоит гораздо дороже). Уже в Стокгольме в шесть часов утра мы узнали, что возвращаемся не в тот день. Поменять билеты не удалось, и мы не вылетели». Здесь пресс-релиз в сокращённом варианте. В оригинале Tom беспрестанно объясняется в любви к израильтянам. Конечно, чувствует, что попал. Пускай, контракт не соблюли в Metalist Production (Englund обещал его предъявить, в случае чего), надо понимать, КОГО он кинул. Могли не поехать, куда угодно, но только не в Израиль. Я думаю, их теперь живьём съедят, а продажи в США резко упадут.</P>
+<P><BR>Бывший барабанщик EMPEROR Bard "Faust" Eithun ответил на этой неделе на многочисленные вопросы фэнов, скопившиеся в гостевой на его сайте. Вот некоторые из наиболее интересных его ответов: «Все, кто хоть как-то связан с музыкой, переживают смерть Quorthon из BATHORY. После его смерти появилось множество публикаций, в которых Quorthon идеализируется и идолизируется. Я не большой сторонник подобных вещей. Мне просто нравилась музыка BATHORY и печально, что умер один из основателей true black-metal. Именно, поэтому я приму участие в одном all-star проекте. На фестивале в Bergen Hole In The Sky я выйду на сцену вместе с&nbsp; Samoth, Apollyon, Grutle, Satyr, Abbath, Gaahl, Nocturno Culto и Ivar, чтобы сыграть классические вещи BATHORY». Кроме этого, Faust заявил, что не участвует сейчас больше не в каких проектах, так как основная их цель обыденный заработок денег и сиюминутное привлечение внимания к своей персоне. «Я не верю в re-union EMPEROR со мной. Во-первых, нет никаких предпосылок к возрождению группы, а во-вторых, в любом случае Trym будет более подходящей кандидатурой, так как он записывал с группой всю классику».&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 29.11.2004 news Anthrax выпускают &quot;The best of&quot;
+
+<P><STRONG>ANTHRAX</STRONG> выпускают сборник своих лучших вещей под названием "<STRONG>The Greater Of Two Evils</STRONG>", который включает в себя 14 песен, заново записанных и заново спетых. В сборник войдут хиты группы с таких альбомов, как "<STRONG>Fistful Of Metal</STRONG>" (1984), "<STRONG>Spreading The Disease</STRONG>" (1985), "<STRONG>Among The Living</STRONG>" (1987), "<STRONG>State Of Euphoria</STRONG>" (1988) и&nbsp;"<STRONG>Persistance Of Time</STRONG>" (1990). Пластинка появится в магазинах сегодня, 29 ноября 2004 года.</P>
+Автор: Ixtiandr
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 24.01.2005 reviews Живой штамм сибирской язвы
+
+<P>За последние пару лет практически все трэшевые коллективы умудрились отметиться концертными альбомами. Не миновала чаша сия и ветеранов движения, нью-йоркцев Anthrax. Вот только непонятно мне, почему всего одна пластинка? С таким багажом альбомов за плечами как минимум нужно было выпускать двойник. Ответ на этот вопрос пусть останется на совести музыкантов и издающего лейбла, а мы перейдем к музыкальной составляющей зальника. 12 забойных хитов из разного периода творчества группы, хотя основной упор сделан на последний полноформатник, который представлен здесь четырьмя трэками. Не забыты и знаменитые кавера Got The Time и Antisocial. Вообще, подборка песен отличная, жаль, что их так мало. Подкупает в этом альбоме то, что это действительно настоящий live. Никаких перезаписей, никаких студийных наложений и перепевов. Почувствуйте&nbsp; натуральный драйв живьем из Чикаго. Местами слышно, как Джону Бушу не хватает дыхания, чтоб пропеть то или иное место. Все инструменты звучат именно так, как они звучат на концертных площадках. Это еще раз подчеркивает, что&nbsp; Anthrax абсолютно честны со своими поклонниками, а мастерство группы играть четко и слаженно, да при этом еще и рубиться на сцене - вне всяких похвал. Отличный подарок для фэнов.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Fucker
+
+### 05.02.2005 reviews Старые песни на новый лад
+
+<P>Данная пластинка представляет собой перезаписанные старые композиции коллектива с новым вокалистом. Причем, песни отбирались путем голосования на сайте группы. И, да простят меня поклонники раннего творчества Anthrax, которое я сам очень люблю, но Джон Буш в качестве вокалиста сей формации меня иногда радует больше, чем Белладонна. На диске собраны только лучшие хиты группы за все время существования, разве что не хватает знаменитых каверов. Deathrider, Among The Living, I Am The Law - что ни вещь, то боевик. Буш отлично справился с заданием, хотя в некоторых песнях его голос звучит несколько необычно. Не то, чтоб плохо, но, как бы это сказать, по-другому. Несомненно, работа очень интересная, и позволит всем фэнам команды взглянуть на старый материал новым взглядом и провести сравнительный тест. Я так и не смог отдать свой голос в пользу того или иного фронтмена Anthrax. Попробуйте разобраться сами.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond&nbsp;</A> </P>
+Автор: Fucker
+
+### 30.03.2005 news Joey Vera покинул ANTHRAX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В&nbsp;прошлом году временным музыкантом <STRONG>ANTHRAX</STRONG> стал басист <STRONG>FATES WARNING Joey Vera</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>За 26 дней я проделал 21 перелёт (чтобы успеть на все концерты <STRONG>FATES WARNING</STRONG> и <STRONG>ANTHRAX</STRONG>, прим. авт.). Кто-нибудь, разбудите меня</EM>", - рассказывает <STRONG>Joey</STRONG>. "<EM>У нас было классное время вместе с <STRONG>ANTHRAX</STRONG> в последний год, но я должен заявить, что моё время в группе закончилось. Как Вы знаете, группа намечает re-union тур, и мы расстаёмся друзьями</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 06.04.2005 articles ANTHRAX: &quot;Ре-юнион состава времён &quot;Among The Living&quot;. Затянувшаяся первоапрельская шутка?&quot;
+
+<P>Re-union’ы продолжают сыпаться, как из рога изобилия. Вслед за thrash-metal легендой TESTAMENT на этот шаг решилась другая легенда ANTHRAX. Примечательной чертой обоих событий является факт, благополучного существования группы по сей день. TESTAMENT ради тура перетряхнули свой современный состав, пригласив «динозавров» из начала 90-х. Этим же занялся ANTHRAX.</P>
+<P>Итак, группа из Нью-Йорка собирается в тур в классическом составе времён “Among The Living” 13-летней давности: Joey Belladona (вокал), Scott Ian (гитара), Dan Spitz (гитара), Frank Bello (бас) и Charlie Benante (барабаны). Из современного состава в ANTHRAX участвуют только Ian и Benante. Последним, кто покинул коллектив совсем недавно, был Bello, ушедший в HELMET. 1 апреля (!!!) музыканты собрали пресс-конференцию, где рассказали о своём решении. Scott Ian утверждает, что это событие 100% естественное, старые и новые члены коллектива находятся в отличных отношениях. Уже утверждено порядка 20 дат как в Европе, так и в Штатах, где ностальгирующие любители thrash смогут увидеть ANTHRAX и Belladona вновь на одной сцене. Самым интересным является то, что John Bush (нынешний вокалист) не уходит из группы. Он остаётся членом ANTHRAX. Как всё это возможно? Пока не понятно.</P>
+<P>В тот же «день дураков» ANTHRAX в новом составе появились на одном из вечерних шоу на радио Нью-Йорка. Группа озвучила свои ближайшие планы. Из них следовало, что сначала ANTHRAX отправляются в тур, никаких решений о новом альбоме в этом составе не принято, но он не исключается. Подтверждено, что John Bush и Rob Caggiano (гитарист) остаются в «семье». Группа планирует выпустить DVD об этом ре-юнионе, а в Европе отправится в тур вместе с MEGADETH.</P>
+<P>Всё это звучит как-то странно, и очень походит на шутку, но… Слухи об этом событии распространялись по Интернету ещё задолго до 1 апреля. Уже 6 апреля, а сообщения никуда не пропали, более того, появляются новые.</P>
+<P>Напомню, что последним релизом ANTHRAX “The Greater of Two Evils” – сборник из вещей времён Belladona в исполнении Bush. Я не очень верю, что Bush появится у микрофонной стойки «сибирской язвы» в скором будущем. Возможно, только после того, как «старые друзья» вновь поссорятся. В этом свете альбом 2005 года является очень символичным. Мы все можем оценить чувство юмора Scott Ian и Charlie Benante.</P>
+<P>ХОТЯ МОЖЕТ ЭТО ВСЁ-ТАКИ ШУТКА?<BR>&nbsp;</P>
+Автор: Vit Belov
+
+### 04.05.2005 news Сэт-лист ре-юнион шоу ANTHRAX
+
+<P>Как уже сообщалось, <STRONG>ANTHRAX</STRONG> объединились для тура в своём классическом составе. Вот сэт-лист шоу в Детройте 29 апреля:</P>
+<P>01. <STRONG>Blues Brothers Intro</STRONG><BR>02. <STRONG>Among the Living</STRONG><BR>03. <STRONG>Got the Time</STRONG><BR>04. <STRONG>Metal Thrashing Mad<BR></STRONG>05. <STRONG>Caught in a Mosh<BR></STRONG>06. <STRONG>AIR<BR></STRONG>07. <STRONG>Keep It in the Family<BR></STRONG>08. <STRONG>Antisocial<BR></STRONG>09. <STRONG>Indians<BR></STRONG>10. <STRONG>Armed and Dangerous<BR></STRONG>11. <STRONG>Deathrider<BR></STRONG>12. <STRONG>Medusa<BR></STRONG>13. <STRONG>Efilnikufesin (NFL)<BR></STRONG>14. <STRONG>Intro to Reality/Belly of the Beast<BR></STRONG>15.<STRONG> I Am the Law</STRONG></P>
+<P>Encore:<BR>16. <STRONG>Be All, End All<BR></STRONG>17. <STRONG>I'm the Man<BR></STRONG>18. <STRONG>Gung-ho</STRONG></P>
+Автор: Vit Belov
+
+### 19.05.2005 reviews Очередная компиляция
+
+<P>Всем фэнам Anthrax бить в ладоши и радоваться полчаса. Для вас предлагается компиляция 1999 года. Сколько их было за последнее время – не перечесть: концертник, старые песни о главном, перепетые новым вокалистом, сингл. И куда только смотрят лейблы, которые издают весь этот стафф? Ведь кроме прожженного поклонника вряд ли кто приобретет данный альбом. Return Of The Killer A’s – сборник хитов группы от раннего периода до 1998 года плюс пару ремиксов, плюс кавера, один из которых записан с Public Enemy, а еще один с Белладонной на подпевках. Вот, пожалуй, и все достопримечательности. Буклет более чем скромен – единственное его украшение это комментарии к песням.</P>
+<P>Для фэна группы – отличный подарок, но в коммерческом плане альбом, скорее всего, обречен. « Язвенники» это вам не Мерлин Менсон и не Раммштайн.</P>
+<P>Диск предоставлен СД - Максимум</P>
+Автор: Fucker
+
+### 14.07.2005 news Новый DVD от Anthrax
+
+<P><STRONG>Universal Music&nbsp;</STRONG> подтвердили выпуск CD/DVD от <STRONG>ANTHRAX,</STRONG> который будет называться "<STRONG>Anthralogy: The Best Of Anthrax (1985- 1991)"&nbsp; и</STRONG> будет включать в себя два аудиодиска с материалом 1985-1991 годов и DVD диск со старыми выступлениями группы. </P>
+Автор: Bizarre
+
+### 11.12.2007 news Новый певец ANTHRAX
+
+<P>После неудавшегося ре-юнион с <STRONG>Joey Belladonna, ANTHRAX</STRONG> нашли нового певца. Им стал <STRONG>Dan Nelson, </STRONG>выступавший до этого в малоизвестных коллективах <STRONG>DEVILSIZE</STRONG>&nbsp;и <STRONG>ME, MY ENEMY</STRONG>. Артисты подтвердили своё решение во время чата со своими поклонниками на сайте фэн-клуба. В частности, музыканты заявили, что <STRONG>John Bush</STRONG> покинул группу, из-за своего нежелания быть певцом, а с <STRONG>Belladonna</STRONG> у них были проблемы личного характера.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.03.2008 news Blitz, Portnoy и Bello поют &quot;Overkill&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ниже можно посмотреть отрывок из шоу "<STRONG>Talking Metal on Fuse</STRONG>", в котором джэм-группа<STRONG> TURTLEHEAD</STRONG>, в составе которой вокалист<STRONG> OVERKILL Bobby Blitz</STRONG>, басист <STRONG>ANTHRAX Frank Bello</STRONG> и барабанщик <STRONG>DREAM THEATER Mike Portnoy</STRONG>, исполняет классическую вещь <STRONG>MOTORHEAD "Overkill</STRONG>".</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/QWUH2k9B4R0&hl=en"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/QWUH2k9B4R0&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 12.08.2008 news ANTHRAX собираются в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ANTHRAX</STRONG> сообщили, что собираются начать запись нового альбома в октябре. Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 21.10.2008 news ANTHRAX войдут в студию
+
+<P>4 ноября <STRONG>ANTHRAX</STRONG> войдут в студию для записи новой пластинки <STRONG>'Worship Music'</STRONG>, которая предположительно выйдет в мае.</P>
+Автор: Vit Belov
+
+### 27.01.2009 news ANTHRAX выпускают новый альбом
+
+<P><IMG height=379 alt="" hspace=0 src="/images/news_rus/2009.01/13454.jpg" width=300 align=left border=5>В июне на <STRONG>Megaforce</STRONG> выходит новый альбом <STRONG>ANTHRAX "Worship Music"</STRONG>. Пластинка приурочена к 25-летию коллектива и станет первой работой с новым певцом <STRONG>Dan Nelson. </STRONG>Говорит барабанщик <STRONG>Charlie Benante</STRONG>:</P>
+<P>"<EM>Мы работали над альбомом два с половиной или даже три года. Когда закончился наш ре-юнион тур, мы все пошли разными путями. Я начал писать музыку, но у меня в голове не было голоса, так как мы не знали, кто будет новым вокалистом. Работа над пластинкой была похожа на работу над <STRONG>'Spreading the Disease'</STRONG>, когда мы тоже не знали, кто будет новым певцом</EM>". </P>
+Автор: Vit Belov
+
+### 14.04.2009 news ANTHRAX в октябре
+
+<P>Гитарист <STRONG>Scott Ian</STRONG> сообщил, что новый альбом<STRONG> ANTHRAX</STRONG> выйдет в октябре.</P>
+Автор: Vit Belov
+
+### 22.04.2009 news ANTHRAX начинают сведение
+
+<P><STRONG>ANTHRAX</STRONG> начинают сведение своего нового альбома "<STRONG>Worship Music</STRONG>" в начале мая.</P>
+Автор: Vit Belov
+
+### 17.07.2009 news Дата релиза ANTHRAX
+
+<P>Новый альбом <STRONG>ANTHRAX "Worship Music"</STRONG> выйдет 23 октября на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.07.2009 news Проблемы в ANTHRAX
+
+<P><IMG height=300 alt="" hspace=5 src="/images/news_rus/2009.07/14704.jpg" width=225 align=right vspace=5 border=0>На прошлой неделе было анонсировано, что&nbsp;трэш легенды <STRONG>ANTHRAX</STRONG> отменили первые три концерта второй части европейского тура по причине неожиданной болезни нового вокалиста <STRONG>Dan Nelson</STRONG>. В дополнении ко всему, было отменено ещё семь выступлений, которые должны были пройти с 22 по 30 июля. <STRONG>ANTHRAX</STRONG> с волнением сообщают, что 1 августа они выйдут на сцену фестиваля <STRONG>Sonisphere</STRONG> (Англия), со своим хорошим другом <STRONG>John Bush</STRONG>, который займёт место вокалиста во время данного выступления.</P>
+<P>Участники группы <STRONG>ANTHRAX</STRONG> подтвердили отставку вокалиста <STRONG>Dan Nelson</STRONG> (на фото). В свете этого события, совместные выступления <STRONG>ANTHRAX</STRONG> и <STRONG>SLIPKNOT</STRONG> намеченные на август, так же, отменяются. В настоящее время <STRONG>ANTHRAX</STRONG> находятся в активных поисках нового певца и надеются снова отправиться в тур до конца года.<BR></P>
+Автор: Headcrusher
+
+### 10.05.2010 news Belladonna вновь вернулся в ANTHRAX
+
+<P>Вокалист <STRONG>Joey Belladonna</STRONG> вновь присоединился к <STRONG>ANTHRAX</STRONG>, которые готовятся к летнему туру по Европе в рамках "бродячего" <STRONG>Sonicsphere Festival</STRONG>. Во время этой поездки<STRONG> ANTHRAX</STRONG> выступят на одное сцене с другими членами 'Большой Четвёрки thrash-metal' <STRONG>MEGADETH, METALLICA</STRONG> и <STRONG>SLAYER</STRONG>. </P>
+<P><STRONG>Joey Belladonna</STRONG> является основным певцом <STRONG>ANTHRAX </STRONG>в их истории. Вместе с ним были записаны классические альбомы группы с 1985 по 1992 год. В 2005 году он уже возвращался в<STRONG> ANTHRAX</STRONG>, с которыми проехался в "ре-юнион" туре, но в 2007 году он вновь расстался со своими коллегами. </P>
+<P><STRONG>ANTHRAX</STRONG> не реализовали ни одной студийной записи с 2003 года, когда на <STRONG>Nuclear Blast</STRONG> вышел альбом "<STRONG>We've Come for You All</STRONG>" с <STRONG>John Bush</STRONG> у микрофона. С 2007 год по 2009 в группе числился певец <STRONG>Dan Nelson</STRONG>, с которым группа не выпустила стиудийных альбомов. Теперь ранее сочинённый материал будет записан с <STRONG>Joey Belladonna</STRONG>. Новый номерной альбом <STRONG>ANTHRAX</STRONG> ожидается в начале 2011 года.</P>
+<P>5 августа <STRONG>ANTHRAX </STRONG>выступят в Москве в клубе <STRONG>Б1 Максимум</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.08.2010 news &quot;Большая четвёрка&quot; на DVD и Blu-ray
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17107.jpg" width=300 height=403>Universal Music</STRONG> выпускает&nbsp;двухдисковый&nbsp;DVD "Большой четвёрки", снятый в рамках проходившего в Софии (Болгария) фестиваля "<STRONG>Sonisphere</STRONG>"&nbsp;(22 июня, 2010). Видео, так же, будет издано в формате Blu-ray. Как известно, в концерте приняли участие звёзды thrash metal: <STRONG>METALLICA</STRONG>, <B itxtvisited="1">SLAYER</B>, <B itxtvisited="1">MEGADETH</B>&nbsp;и <B itxtvisited="1">ANTHRAX</B>. Помимо выступлений групп, на&nbsp;дисках можно будет увидеть&nbsp;закулисные съёмки и интервью.</P>
+<P>&nbsp;<B itxtvisited="1">"The Big Four: Live From Sofia, Bulgaria"</B> выйдет 15 октября в Северной Европе, 18 октября большинстве остальных стран и 19 октября в Северной Америке.</P>
+<P>Ко всему прочему, ограниченным тиражём выйдет&nbsp;"Super deluxe"&nbsp;издание,&nbsp;в которое&nbsp;войдут&nbsp;концерт на DVD, 5 компакт дисков с выступлениями участников фестиваля, буклет в 24 страницы, постер, фотографии каждой группы и медиатор "Большой четвёрки".<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 11.09.2010 news Компания &quot;Bif Bang Pow!&quot; выпустила фигурку гиатриста ANTHRAX Скотта Яна
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17162.jpg" width=244 height=350>Компания "<STRONG>Bif Bang Pow!</STRONG>" выпустила фигурку гитариста <STRONG>ANTHRAX</STRONG> Скотта Яна. Размер фигуры 8 дюймов (20,32 см.).</P>
+<P>Заказать её можно по адресу: </P>
+<P><A href="http://www.entertainmentearth.com/prodinfo.asp?number=BBP04002">http://www.entertainmentearth.com/prodinfo.asp?number=BBP04002</A></P>
+<P><A href="http://www.entertainmentearth.com/prodinfo.asp?number=BBP04002#desc" _fcksavedurl="http://www.entertainmentearth.com/prodinfo.asp?number=BBP04002#desc"><U><FONT color=#0000ff></FONT></U></A></P>
+Автор: Headcrusher
+
+### 15.12.2010 news Дебютный видеоклип THE DAMNED THINGS
+
+<P><STRONG>"We've Got A Situation Here"</STRONG> -&nbsp;первый видеоклип проекта <B itxtvisited="1">THE DAMNED THINGS</B>, созданного музыкантами <B itxtvisited="1">FALL OUT BOY</B> (<B itxtvisited="1">Joe Trohman</B>, <B itxtvisited="1">Andy Hurley</B>), <B itxtvisited="1">ANTHRAX</B> (<B itxtvisited="1">Scott Ian</B>, <B itxtvisited="1">Rob Caggiano</B>) и <B itxtvisited="1">EVERY TIME I DIE</B> (<B itxtvisited="1">Keith Buckley</B>, <B itxtvisited="1">Josh Newton</B>), можно посмотреть ниже. Сценарий клипа и режиссура пренадлежат Брендану Смоллу (<B itxtvisited="1">Brendon Small)</B>, одному из создателей мультфильма&nbsp;<B itxtvisited="1">"Metalocalypse"</B>.</P>
+<P>Дебютный альбом <STRONG>THE DAMNED THINGS&nbsp;"Ironiclast"</STRONG>, увидел свет 14 декабря на лейбле <STRONG>Island</STRONG>/<B itxtvisited="1">Def Jam</B>.</P>
+<CENTER>
+<OBJECT width=640 height=390><PARAM NAME="movie" VALUE="http://www.youtube.com/v/XMANR-wrg7o&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/XMANR-wrg7o&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 26.03.2011 news Andreas Kisser заменит гитариста ANTHRAX на концертах в июле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18963.jpg" width=234 height=350>Гитарист <STRONG>SEPULTURA</STRONG> Андреас Киссер (<B itxtNodeId="391" itxtHarvested="1">Andreas Kisser</B>, на фото)&nbsp;отыграет 8 концертов с группой <B itxtNodeId="390" itxtHarvested="1">ANTHRAX</B> в июле 2011,&nbsp;в&nbsp;том числе и на нескольких выступлениях, которые пройдут в Европе в рамках фестиваля <STRONG>Sonisphere</STRONG>. Андреас станет временной заменой Скотту Иану (<B itxtNodeId="389" itxtHarvested="1">Scott Ian</B>), который в это время, вместе со своей женой <B itxtNodeId="388" itxtHarvested="1">Pearl Aday</B>, будет ожидать рождение первого ребёнка. </P>
+<P>Дочь легендарного певца&nbsp;<B itxtNodeId="385" itxtHarvested="1">Meat Loaf</B>, <B itxtNodeId="384" itxtHarvested="1">Pearl</B> получила своё имя в честь <B itxtNodeId="383" itxtHarvested="1">Janis Joplin</B><EM> (<STRONG>Pearl</STRONG> - кличка и название 4 альбома Джоплин),</EM>&nbsp;её крёстницой&nbsp;является&nbsp;американская фолк-певица <STRONG>Maria Muldaur</STRONG>. Ко всему прочему, <STRONG>Pearl Aday</STRONG> некоторое время гостролировала с группой <B itxtNodeId="381" itxtHarvested="1">M&#214;TLEY CR&#220;E </B>в качестве бэк вокалистки, а&nbsp;её сольная&nbsp;группа открывала концерты перед&nbsp;<B itxtNodeId="380" itxtHarvested="1">VELVET REVOLVER</B>.</P>
+Автор: Headcrusher
+
+### 24.06.2011 news ANTHRAX: Обложка сингла &quot;Fght &#39;Em &#39;Til You Can&#39;t&quot;
+
+<P><SPAN class=messageBody data-ft='{"type":3}'><STRONG>ANTHRAX</STRONG> опубликовали обложку своего нового сингла <STRONG>"Fght 'Em 'Til You Can't"</STRONG>.</SPAN></P>
+<P><SPAN class=messageBody data-ft='{"type":3}'>Вот что рассказал про неё барабанщик группы Чарли Бененте (<STRONG>Charlie Benante</STRONG>):</SPAN></P>
+<P><SPAN class=messageBody data-ft='{"type":3}'><EM>Обложка для <STRONG>"Fight 'Em"</STRONG> была выполнена Алексом Россом (<STRONG>Alex Ross</STRONG>), он самый лучший&nbsp;на мой взгляд. Его внимание к деталям, это то, что мне нравится в его работах. Я хотел показать участников группы борящихся со своими Зомби-двойниками. Я действительно считаю, что это одна из моих любимых обложек. Чуть позже ждите новую футболку и сингл. Спасибо и извините, что вам пришлось ждать так долго."</EM></SPAN></P>
+<P><SPAN class=messageBody data-ft='{"type":3}'>
+<CENTER><IMG height=500 src="/images/news_rus/2011.06/19715.jpg" width=500 border=0></SPAN> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 13.07.2011 news Обложка долгожданного ANTHRAX
+
+<P>Обложку нового альбома <STRONG>ANTHRAX</STRONG> <STRONG>"Worship Music" </STRONG>можно увидеть ниже. Альбом, выходящий осенью, станет первым для группы за последние восемь лет и ознаменует возвращение к микрофону <STRONG>Joey Belladonna. </STRONG>Таким образом группа хочет отпраздновать свой 30-летний юбилей.</P>
+<P>Представленную картину нарисовал <STRONG>Alex Ross, </STRONG>работавший ранее с комиксами Марвел. Этот человек уже работал с<STRONG> ANTHRAX</STRONG> над несколькими предыдущими альбомами.</P>
+<P><center><IMG height=464 src="/images/news_rus/2011.07/20100.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 09.08.2011 news Andreas Kisser: новое тату в память о выступлениях в составе ANTHRAX
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20523.jpg" width=372 height=491>Andreas Kisser</STRONG>, гитарист группы <STRONG>SEPULTURA</STRONG>, сделал себе на руке памятное тату о своих недавних выступлениях в составе <STRONG>ANTHRAX</STRONG>, в ходе которых он заменял Сотта Иана (<STRONG>Scot Ian</STRONG>), занятого&nbsp;заботами о своём&nbsp;первенце.</P>
+<P>Напомним, что новый альбом <STRONG>ANTHRAX "Worship Music"</STRONG> выйдет в Европе 16 сентября на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Headcrusher
+
+### 14.08.2011 news Гитарист ANTHRAX сыграл зомби в теле-сериале &quot;&#39;The Walking Dead&quot;
+
+<P>12 августа на своей странице в<STRONG> Twitter</STRONG> гитарист <STRONG>ANTHRAX</STRONG> Скотт Иан (<B>Scott Ian</B>) сообщил, что сбылась его мечта стать зомби. Скотт сыграл роль немёртвого в сериале, основанном на книге комиксов - <B>"The Walking Dead"</B>.</P>
+<P>Фотографию Скотта в зомби-макияже можно посмотреть ниже. </P>
+<P><B>"The Walking Dead"</B> - это ежемесячный чёрно-белый комикс, публикуемый&nbsp;компанией <B>Image Comics</B>&nbsp;начиная с&nbsp;2003 года. Комикс был создан писателем&nbsp;Робертом Киркмэном (<B>Robert Kirkman</B>) и художником Тони Муром (<B>Tony Moore</B>), которого, начиная с 7 выпуска, заменил <B>Charlie Adlard</B>.<BR><BR><STRONG>"The Walking Dead"</STRONG>&nbsp;рассказывает историю группы&nbsp;людей, которые пытаются выжить в мире полном зомби.&nbsp; Анонс теле-версии комикса состоялся 11 августа 2009 года, а премьерный показ -&nbsp;31 октября 2010 на канале <B>AMC</B>. В 2010 году сериал&nbsp;получил награду <B>Eisner Award</B> в номинации <STRONG>"Best Continuing Series"</STRONG> на фестивале <B>San Diego Comic-Con International</B>.</P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20578.jpg" width=400 height=299></CENTER>
+Автор: Headcrusher
+
+### 21.10.2011 reviews Анекдот от ANTHRAX
+
+<P>Ситуация в легендарной группе ANTHRAX в последние лет семь носит явно анекдотический характер. В последний раз мы встречались с этим коллективом у полок магазина в далёком уже 2004 году, когда музыканты выпустили сборник перепевок “The Greater Of Two Evils”. В тот момент у микрофона в ANTHRAX находился певец John Bush, выступавший с группой к тому времени уже двенадцать лет. За прошедшее с того момента время случилось многое.</P>
+<P>ANTHRAX успели совершить полуторагодичный «ре-юнион» тур с классическим вокалистом Joey Beladonna и классическим гитаристом Dan Spitz. Заработав таким образом некоторое количество денег, в 2007 году ANTHRAX приступили к записи нового альбома. Для этой цели музыканты рекрутировали ещё одного вокалиста Dan Nelson. Промучившись с ним пару лет, они так ничего и не записали, зато разругались с Dan в пух и прах. Затем в группу был вновь приглашён John Bush, но в 2010 году возникла возможность сгонять в масштабный тур большой четвёрки американского треша вместе с METALLICA, MEGADETH и SLAYER. Организаторы этого действа, видимо, хотели видеть у микрофона Joey Beladonna, который незамедлительно был призван под знамёна, а Bush вновь отставлен. Отыграв с большим успехом на разогреве у MEGADETH, SLAYER и METALLICA, ANTHRAX вернулись в студию, где наконец-то закончили запись обозреваемой пластинки с Beladonna в составе. Что ж, сам этот факт уже является достаточным поводом для приобретения этой работы всеми поклонниками классического thrash-metal, ведь последний раз Joey записывался с ANTHRAX в 1990 году для альбома “Persistence Of Time”. Начинается “Worship Music” очень бодро – жёсткий и качественно реализованный thrash-metal с вокалом в духе Dave Mustaine привлекает. Безусловно, назвать начальные треки этого альбома несомненными хитами не получится, но зачин очень приятный. Однако во второй половине пластинки ANTHRAX скатываются в какое-то среднетемповое мракобесие с примесью альтернативы, а завершается работа кавером на песню REFUSED, который больше подошёл бы к альбому с вокалом John Bush.</P>
+<P>Неужели ANTHRAX не смогли сочинить материала на полноценный качественный альбом в одном стиле за восемь лет простоя? Похоже этой проблемой они просто не озабочивались. Постоянно меняя вокалистов и меняя треки под их разные голоса, главные сонграйтеры коллектива не смогли создать однородную и мощную работу. Пуcть на “Worship Music” явно не хватает хитов, к концу этого альбома его становится слушать попросту скучно, и это главная проблема.</P>
+Автор: Vit Belov
+
+### 26.10.2011 news ANTHRAX: доски для скейта в следующем месяце
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В следующем месяце <STRONG>ANTHRAX</STRONG> обещают порадовать всех своих фанатов досками для скейта имени самих себя.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подобные доски можно будет приобрести в официальном интеренет магазине группы по адресу: <A href="http://shop.anthrax.com/">http://shop.anthrax.com</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.10/21751.jpg" width=390 height=520></CENTER>
+Автор: Headcrusher
+
+### 25.01.2012 news Новое видео ANTHRAX на песню &quot;The Devil You Know&quot;
+
+<P>Новый ролик <STRONG>ANTHRAX</STRONG> на песню "<STRONG>The Devil You Know</STRONG>" можно посмотреть ниже. </P>
+<P>
+<CENTER><iframe width="560" height="315" src="http://www.youtube.com/embed/3X_WZMcrng4" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 29.01.2012 news Dani Filth работает с гитаристом ANTHRAX и бывшим басистом GORGOROTH
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2012.01/22846.jpg" width=400 align=right border=0>TEMPLE OF THE BLACK MOON</STRONG> - так называется новый проект, в состав которого входят вокалист <STRONG>Dani Filth (CRADLE OF FILTH)</STRONG>, гитарист <STRONG>Rob Caggiano (ANTHRAX)</STRONG>, басист<STRONG> Tom Cato Visnes</STRONG> (aka King Ov Hell; <STRONG>OV HELL, GOD SEED, GORGOROTH</STRONG>), барабанщик <STRONG>John Tempesta (THE CULT, ex-WHITE ZOMBIE)</STRONG> и гитарист <STRONG>Arve "Ice Dale" Isdal (ENSLAVED)</STRONG>. Музыканты поработали над материалом в Норвегии и дали интервью на радио, где представили новый материал.</P>
+<P>Вот названия некоторых песен: <STRONG>'Beautifully Perverse', 'Into The Void', 'Don't Call Up What You Can't Put Down', 'Infernal Desire Machine', 'Alchemy, Myself And I', 'Dark Eyes For Trouble', 'C.N.T (All That's Missing Is You)', 'Persephone', 'Last Of The Vampire Playboys', 'Another Dead Thing Between Us'</STRONG> и<STRONG> 'Catch'</STRONG>.</P>
+<P>Группа находится в стадии переговоров по контракту с лэйблом. Подробности последуют.</P>
+<P>Послушать отрывок передачи можно здесь: <A href="http://p3.no/pyro/the-first-interview-ever-with-temple-of-the-black-moon/">http://p3.no/pyro/the-first-interview-ever-with-temple-of-the-black-moon/</A></P>
+Автор: Vit Belov
+
+### 23.06.2012 news ANTHRAX работают над EP
+
+<P><STRONG>ANTHRAX</STRONG> работают над&nbsp;созданием&nbsp;EP, куда войдут их собственные версии песен таких групп, как&nbsp;<STRONG>RUSH</STRONG>, <B>THIN LIZZY</B>, <B>BOSTON</B> и <B>JOURNEY</B>. Дата выпуска диска запланирована на сентябрь 2012 г.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.06/24231.jpg" width=550 height=330> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.01.2013 news Rob Caggiano покинул ньюйоркских трэшеров ANTHRAX
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25231.jpg" width=356 height=408>Гитарист <STRONG>Rob Caggiano</STRONG> покинул ансамбль <STRONG>ANTHRAX</STRONG>. </P>
+<P>По этому поводу, группа сделала следующее заявление на свой странице в соц. сети Facebook:</P>
+<P><EM>"<STRONG>Rob</STRONG> был неотъемлемой частью&nbsp;<STRONG>ANTHRAX</STRONG> в течение многих лет, в качестве нашего гитариста, нашего продюсера, но в&nbsp;большей степени, как наш близкий друг. Его вклад в группу был огромен. Нам грустно, что он уходит, и мы желаем ему больших успехов в будущем, и надеемся, что ещё выступим с ним на одной сцене при случае.</EM></P>
+<P><EM>Мы уже&nbsp;рассматриваем несколько вариантов на его место, т.к. тур <STRONG>"Metal Alliance"</STRONG>&nbsp;маячит на горизонте,&nbsp;и в скором времени сделаем по этому поводу заявление."</EM></P>
+<P><STRONG>Rob</STRONG> <STRONG>Caggiano</STRONG> был участником <STRONG>ANTHRAX</STRONG>&nbsp;с 2001 года, оставив лишь её однажды,&nbsp;с 2005 по 2007 гг., когда в группу на время возвращался <STRONG>Dan Spitz</STRONG>, оригинальный гитарист коллектива.</P>
+Автор: Headcrusher
+
+### 11.01.2013 news Jon Donais (SHADOWS FALL) стал временной заменой в ANTHRAX
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25294.jpg" width=300 height=400>ANTHRAX</STRONG> объявили, кто станет временной заменой недавно ушедшему гитаристу Робу Каджиано (<STRONG>Rob Caggiano</STRONG>). Счастливчиком стал <STRONG>Jon Donais</STRONG> <EM>(на фото),</EM> гитарист американской metalcore&nbsp;группы<STRONG> SHADOWS FALL</STRONG>. Джон выйдет на сцену с <STRONG>ANTHRAX</STRONG> на их предстоящих выступлениях в Индии,&nbsp;&nbsp;австралийской части фестивалей <STRONG>Soundwave</STRONG> и северо-американском туре <STRONG>Metal Alliance</STRONG>.</P>
+<P><EM>"Я вырос слушая <STRONG>ANTHRAX</STRONG>, они часть thrash сцены, они одни из Большой Четвёрки, я должен быть ненормальным, чтобы не хотеть сыграть с ними,"</EM> - комментирует <STRONG>Donais</STRONG>. <EM>"Первоначально</EM> <EM><STRONG>Rob</STRONG> позвонил мне и сказал, что он покидает группу и спросил, было бы мне интересно подменить его. Затем <STRONG>Scott&nbsp;Ian</STRONG>&nbsp;обратился ко мне с тем же самым вопросом и всё получилось как нельзя лучше. <STRONG>Rob</STRONG> был так добр, что поработал со мной над соло и другими гитарными партиями через Skype. Так же я хочу поблагодарить участников своей группы, которые поддержали меня и воодушивили на этот поступок."</EM></P>
+<P>Группа <STRONG>SHADOWS FALL</STRONG> уже несколько раз выручала <STRONG>ANTHRAX</STRONG> в прошлом, когда их барабанщик <STRONG>Jason Bittner</STRONG> временно заменял<STRONG> Charlie Benante</STRONG>.</P>
+Автор: Headcrusher
+
+### 25.10.2013 news Зимние шапки от ANTHRAX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ансамбль <STRONG>ANTHRAX</STRONG> и компания <A href="http://www.backstreetmerch.com/">Backstreet Merch</A>&nbsp;выпускают весёлые шапочки к зимнему сезону. Благодаря им, будущую зиму должен пережить каждый, купивший их, трэшер. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предварительный заказ уже можно сделать по ссылке: <A href="http://www.backstreetmerch.com/official_anthrax_bobble-hat_pentagram-christmas-bobble-hat_anth147.html/">http://www.backstreetmerch.com</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В продажу они поступят начиная с 4 ноября этого года.</FONT></P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.10/26284.jpg" width=400 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 30.12.2013 news Рождественские свитера от SLAYER, MOTORHEAD и ANTHRAX
+
+<P>Фирма <STRONG>Locoape</STRONG>, являющаяся подразделением <STRONG>Toynk Toys LLC</STRONG>, заключила договор с компанией<STRONG> Global Merchandising Services</STRONG> на выпуск "рождественских свитеров" групп <STRONG>SLAYER</STRONG>, <STRONG>ANTHRAX</STRONG>&nbsp;и&nbsp;<STRONG>MOTORHEAD</STRONG>. </P>
+<P>После успеха рождественского свитера <STRONG>SLAYER</STRONG>, увидевшего свет к новогодним праздникам, в конце 2012, <STRONG>Locoape</STRONG> решили удовлетворить желание фэнов и выпустить более широкую линейку свитеров с символикой их любимых коллективов.&nbsp;Так, в&nbsp;конце 2013 года в продажу поступили свитера <STRONG>SLAYER</STRONG>, <STRONG>ANTHRAX</STRONG>&nbsp;и&nbsp;<STRONG>MOTORHEAD</STRONG>.&nbsp;</P>
+<P>В новом году фирма&nbsp;&nbsp;<STRONG>Locoape</STRONG> обещает пополнить список групп, которые смогут порадовать своих поклонников&nbsp;рождественским свитером со своей символикой.&nbsp;</P>
+<P>Приобрести свитера&nbsp;можно в официальных интернет-магазинах групп или на сайте:<STRONG> </STRONG><A href="http://www.toynk.com/">www.toynk.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.12/26466.jpg" width=660 height=226> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 29.05.2014 news ANTHRAX: концертное DVD &quot;Chile On Hell&quot; в сентябре
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.05/27025.jpg" width=300 height=402>ANTHRAX</STRONG>&nbsp;анонсировали концертное DVD под названием<STRONG> "Chile On Hell"</STRONG>.&nbsp;Дата выхода намечена на 16 сентября 2014 года. &nbsp;</P>
+<P>Запись концерта была сделана 10 мая 2013 г.&nbsp;во время выступления <STRONG>ANTHRAX</STRONG> в поддержку альбома <STRONG>"Worship Music"</STRONG>&nbsp;на площадке <STRONG>Teatro Caupolican</STRONG>&nbsp;города Сантьяго (Чили).</P>
+<P>Рассказывает барабанщик <STRONG>Charlie Benante</STRONG>: </P>
+<P><EM>"Сантьяго - это прекрасное место, чтобы снять шоу для DVD. Когда, в предыдущие разы, мы выступали там, то всегда после&nbsp;выхода на&nbsp;бис и нашего ухода в гримёрку, фэны продолжали кричать и хлопать. Я имею ввиду, что они продолжали и продолжали, не останавливаясь.&nbsp;Однажды Скотт и я выглянули сбоку сцены, чтобы посмотреть, что происходит. Это было захватывающе. Так почему же&nbsp;мы не должны хотеть снять&nbsp;свой&nbsp;DVD перед такой аудиторией". </EM></P>
+<P>В качестве дизайнера обложки DVD выступил <STRONG>Stephen Thompson</STRONG>.</P>
+Автор: Headcrusher
+
+### 26.09.2014 news Первый вокалист ANTHRAX присоединился к ONSLAUGHT
+
+<P>Вокалист <STRONG>Neil Turbin</STRONG>, бывший вокалистом на первом альбоме<STRONG> ANTHRAX "Fistful Of Metal"</STRONG>, станет концертным певцом в <STRONG>ONSLAUGHT</STRONG> во время их тура по США и Канаде в октябре-ноябре вместе с <STRONG>ARTILLERY</STRONG>. Основной фронтмен британцев <STRONG>Sy Keeler</STRONG> не сможет выехать вместе с <STRONG>ONSLAUGHT</STRONG>, из-за проблем со здоровьем у его сына.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.09/27316.jpg" width=410 height=846> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.10.2015 news ANTHRAX: новый трек
+
+<P><STRONG>ANTHRAX</STRONG> опубликовали песню под названием <STRONG>"Evil Twin"</STRONG>. Она войдёт в грядущий, пока ещё безымянный альбом, который группа планирует выпустить в 2016 году.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/xPmLkF3e6Fc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 20.11.2015 news ANTHRAX: свитер к Хануке
+
+<P><STRONG>ANTHRAX</STRONG> выпустили уродливый&nbsp;свитер к Хануке*. В этом году Ханука празднуется 7 декабря.</P>
+<P>Купить свитер можно по ссылке: <A href="http://www.rockabilia.com/browse/artists-groups/a/anthrax/anthrax-hanukkah-sweatshirt-272587.html">http://www.rockabilia.com</A></P>
+<P>*<EM>Ханука - это еврейский праздник свечей, которые зажигают в честь чуда, происшедшего при освящении Храма после победы войска Иегуды Маккавея над войсками царя Антиоха в 164 году до нашей эры. Этот праздник начинается 25-го числа еврейского месяца кислева и длится восемь дней.</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.11/28537.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.03.2016 news ANTHRAX: видеоклип &quot;Blood Eagle Wings&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>ANTHRAX</STRONG> опубликовала эпический видеоклип на не менее эпическую песню длиною в восемь с лишним минут под названием <STRONG>"Blood Eagle Wings"</STRONG>. Данная композиция взята с новейшего альбома <STRONG>"For All Kings"</STRONG>, который вышел в конце прошлого месяца. </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Режиссёр видео: <STRONG>Jack Bennett</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/LuLvfm5yDlw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 21.06.2016 news ANTHRAX выпустили лирик-видео
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый текстовой клип<strong> ANTHRAX</strong> на песню “<strong>Zero Tolerance</strong>” можно посмотреть ниже. Трек взят с февральского альбома группы "<strong>For All Kings</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="640" height="360" src="https://www.youtube.com/embed/T1_HKsoql1Y?feature=player_embedded" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 21.06.2016 news ANTHRAX: One more lyric-video
+
+A new lyric video from<strong> ANTHRAX</strong> for the song “<strong>Zero Tolerance</strong>” can be viewed below. The track is taken from the February album, "<strong>For All Kings"</strong>.<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="640" height="360" src="https://www.youtube.com/embed/T1_HKsoql1Y?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 15.08.2016 articles Всеволод Баронин: «Самоценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы»
+
+<p><em></em><center><em><img width="392" height="600" src="/images/articles_rus/2016.08/29810.jpg" border="0"></em><p></p></center><p><em>Мы начинаем регулярную рубрику на нашем сайте. У неё пока нет названия. Но есть идея, общаться с знатоками тяжёлой музыки в нашей стране и за её пределами, стараясь разобраться в актуальных течениях и тенденциях. В общем, что надо слушать, а что не надо. Первым нашим собеседником стал <strong>Всеволод Баронин</strong>, музыкальный эксперт.</em></p><p><strong>Какие, по-твоему, основные тенденции в тяжёлой музыке в августе 2016 года? На что стоит обратить внимание нашим читателям?</strong></p><p>Нужно говорить отдельно о Европе и Америке. И там, и там значительно вырос интерес к традиционным хэви-составам, что бы под этой традиционностью не понималась (от совершенно традиционного HMR до симфонического пауэр-метала) – может, стилистику подобных групп можно даже назвать ретро-металом, если мы говорим, допустим, о последнем миньоне Candlemass. В Америке же к этой традиционной составляющей добавляются группы вроде Fallujah, которые сочетают в своем материале брутальность и обильную клавишную и неклавишную электронику. Пока еще эти, условно говоря, новые бруталисты не очень известны в Европе и вообще за пределами США (хотя у себя дома они вполне звезды), но мне кажется, что в ближайшие полгода ситуация изменится.</p><p><strong>Какие бы ты назвал примеры традиционных HMR составов, которые набирают сейчас популярность?</strong></p><p>Мне кажется, что в ближайшие месяцы во всяком случае вернет себе популярность White Wizzard, к которым сейчас вернулся первый вокалист, и альбом на подходе. Также очень радует возвращение тех же Candlemass с Матсом Левеном у микрофона. Если говорить о музыке чуть радикальнее, то одним из событий ближайших месяцев станет выход альбом индийских трэш-металлистов Kryptos "Burn Up The Night". Ретро-трэш такой степени достоверности в рок-метрополиях ныне просто не играют.</p><p><strong>А что скажешь о Blues Pills?</strong></p><p>По-моему, это такая игра в конец 60-х и начало 70-х. То есть обычно эта ниша заполняется в наше время кавер-группами, но здесь группа играет свой собственный материал, пусть и похожий сразу на многое из той эпохи. А раз такая музыка понятным образом уже проходит по ведомству вечных ценностей, то успех группы понятен.</p><p><strong>Но с точки зрения музыкальной&nbsp; ценности эта группа имеет какое-то значение? Вообще, чем вызвана такая повальная мода на подобную музыку сейчас?</strong></p><p>Именно САМОценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы, однако спрос на них вызван смутной ностальгией по всей рок-эпохе 70-х, когда "трава была зеленее". При том, что я очень сомневаюсь, что поклонники групп вроде Blues Pills или Radio Moscow хоть что-то слышали про прототипы почти полувековой давности, таких, как Bakerloo или Cressida. Разве только про Cream знают… В любом случае Blues Pills и составы, им подобные, очень хорошо заполняют нишу спроса на старомодный хард-рок, поскольку работоспособность групп-ветеранов сейчас находится под большим вопросом.</p><p><strong>Но ведь, по идее, подобную музыку должны любить уже люди старшего возраста, но судя по продажам, молодёжь тоже прониклась.</strong></p><p>Это как раз неудивительно – группа молодая, и играет музыку, которую молодой слушатель никогда не слыхал. Если только из коллекции родителей, но это довольно редкая ситуация. То есть это классический случай того, как новым оказывается ОЧЕНЬ хорошо забытое старое.</p><p><strong>Но ведь музыка развивается? Почему вдруг мы вернулись на 40 лет назад?</strong></p><p>Получилось то, о чём я говорил выше: все новые брутальные имена для молодежи сосредоточены в США, а ретро-рок там популярен у аудитории хорошо за 30, а то и за 40, Blackberry Smoke тому примером. И эту брутальную молодежь в Европу что-то особо не возят. И на самом деле просто нужно признать, что рок стал ровно такой же институцией, как классика или джаз, то есть дальнейшее развитие стиля вглубь, как мне кажется, не очень вероятно. Так что масса молодых групп предпочитает идти по чужим следам, а не изобретать что-то своё.</p><p><strong>Что скажешь о Thrash metal? В этом году вышло много альбомов классических коллективов. Megadeth, Anthrax, Destruction, Death Angel. Что скажешь о них?</strong></p><p>А вот это именно тот случай – ещё один случай, когда субстиль очень хорошо чувствует себя именно за счёт интереса публики всех возратов. Не секрет, что все главные имена трэш-метала – это ветераны, а кому ж неохота услышать новую работу мастеров или прийти на их концерт?</p><p><strong>Но они все разные. Вот, например, Anthrax тяжело теперь назвать Thrash.</strong></p><p>Весь феномен, который англичане называют Thrashback!, основан в первую очередь на том, что люди покупают носители и идут на концерт не из-за музыки, а из-за имени. Тем более, что толковых молодых имён в трэш-метале так и не появилось – разве только Vektor.</p><p><strong>Не уходи от вопроса. Как тебе последний Anthrax?</strong></p><p>Мне альбом НЕ понравился. Как мне кажется, Джой Белладонна перетянул одеяло на себя, и в результате альбом стал похож на его невразумительные сольные работы. А Скотт Ян, по-моему, пытался сочинить каких-то условно модных песен – но именно таких, как он сам это "модное" понимает. Только его точка зрения не совпадает с точкой зрения аудитории. Печально.</p><p><strong>А что насчёт Megadeth? Все в восторге.</strong></p><p>Именно тот случай, когда группа приподнесла стопроцентно предстказуемый альбом. Только вот звук и игра гитариста Кико Лорейро вызывает значительно больше восторга, чем качество материала. Хитов-то нет! Но у Megadeth так дела обстоят года с 1997.</p><p><strong>А что насчёт RAGE? Их возвращение к корням и уход Смольского широко обсуждался.</strong></p><p>В общем-то аналогично ситуации с Megadeth – Rage вернулись в 1993 год и ранее. Хотя возвращение вышло несколько формальным – я не расслышал, чтобы новый гитарист принес в группу какие-то свои идеи. Он пока рад-радёшенек косить своей композиторской и исполнительской манерой под Манни Шмидта. Это вполне естественно, так что для оценки уровня его собственных амбиций и направления развития Rage нам нужно будет дождаться их следующего альбома.</p><p><strong>И немного заглянем в будущее. Что ждёшь от Running Wild?</strong></p><p>Опять же воспроизведения всех, абсолютно всех клише группы. Странно было бы ждать от Running Wild чего-то другого. А уж хиты – это как получится.</p><p><strong>А Sodom?</strong></p><p>Та же ситуация, что с Running Wild. Песни всем – и группе, и её поклонникам – нужны абсолютно такие же, как и ранее. Такими и будут. Что же касается звучания альбома, то может произойти его лёгкая коррекция, но так бывало и ранее, и это никого не обижало.</p><p><strong>Ну, а кто-то из ветеранов творит? Или все "шаблонят"?</strong></p><p>Как мы уже говорили выше, сравнивая Anthrax и Megadeth, писать сейчас альбомы, схожие с иными собственными творениями – скорее доблесть, нежели наоборот. Поскольку, как в случае с Anthrax, новые подходы ветеранов к материалу, оказываются мало кому нужными. Подозреваю, что такая же неприятность приключится с новым альбомом группы Джеффа Тэйта Operation: Mindcrime.</p><p><strong>Ну и что тогда лучше? Штамповать или экспериментировать?</strong></p><p>Как мне кажется – музыкантам сейчас придерживаться собственных корней и одновременно экспериментировать со студийным звучанием, но опять же в разумных пределах.</p><p><strong>Ну и последний вопрос. Metallica.</strong></p><p>А тут как раз – полная непредсказуемость. То есть понятно, что стилистика группы сильно не изменится, но вот какой звук они нарулят в студии? Это будет интересно услышать. Правда. В прошлый раз все странности следовали даже не от студийного звука, а от мастеринга, сделанного под размещение музыки в Интернете и прослушивании её на i-устройствах. Мне лично кажется, что материал с музыкальной точки зрения будет всё же похож на "Death Magnetic" – такой группе нет причин экспериментировать, тем более в условиях современного спроса на трэш-метал. Но со звуком могут быть сюрпризы.</p><p>Прочитать рецензии Всеволода можно в его ЖЖ по адресу: <a href="http://vs-baronin.livejournal.com/">http://vs-baronin.livejournal.com/</a></p>
+Автор: Vit Belov
+
+### 27.08.2016 news ANTHRAX выпустили новое видео
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>ANTHRAX</strong> выпустили новый видео-клип на песню "<strong>Monster At The End</strong>". Трек взят с вышедшего в начале года альбома "<strong>For All Kings</strong>".</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/vcseSPDpslg" frameborder="0" allowfullscreen></iframe><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p>
+Автор: Vit Belov
+
+### 27.08.2016 news New clip of ANTHRAX
+
+<p><strong>ANTHRAX</strong> has released a new video clip for the song "<strong>Monster At The End</strong>". The track is taken from released in the beginning of the year of the album "<strong>For All Kings</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/vcseSPDpslg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Ваше отношение к ANTHRAX 93 "SOUND OF WHITE NOISE"

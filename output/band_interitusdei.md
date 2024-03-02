@@ -50,6 +50,21 @@ Sympho-power-doom-metal from Romania
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.02.2002 reviews Коктейль &quot;Всё лучшее!&quot;
+
+<p>Именно это первая мысль, приходящая на ум после прослушивания этого опуса. Группа из Румынии, и это, по-моему, первая банда из этой страны, которую я послушал, оставила очень хорошее впечатление. Музыканты взяли за основу всё лучшее, что есть в современной металлической музыке, а точнее, всё самое популярное. Местами, "Unholy" напоминает Nightwish, местами Therion, местами Haggard. Неплохой женский вокал, хоры, скрипка, гроулинг, а иногда даже псевдо-progressive элементы (тоже очень популярная сейчас вещь). То есть настоящий металлический мэйнстрим. Интересная, разнообразная музыка, приятные мелодии, можно посоветовать всем любителям мелодичных произведений. Едиственный недостаток, пожалуй, не очень хороший гроулинг. А в остальном... Сладкая-сладкая конфетка.</p>
+
+Автор: Vit Belov
+
+### 02.03.2002 reviews Cocktail &quot;The best!&quot;
+
+<p>It is the first idea coming on mind after listening to this opus. Group from Romania, and it, in my opinion, first band from this country, which I have listened to, has left very good impression. The musicians have taken for a basis the best, that is in modern metal music, to be exact, everything that most popular. By places, "Unholy" reminds Nightwish, places Therion, places Haggard. Quite good female vocal, choruses, violin, growling, and sometimes even pseudo-progressive elements ( very popular thing now too). That is present metal mainstream. Interesting, various music, pleasant melodies, is possible to advise to all fans of melodious products. Only lack, perhaps, not so good growling. And in rest... Sweet - sweet candy.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### А вот вы бы пашли на концэрт группы TVANGESTE?

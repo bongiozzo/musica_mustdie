@@ -103,6 +103,30 @@ It never meant as much as it does right now
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.01.2001 reviews Ещё один американский hard-core
+
+<p>Еще один старый Hard core коллектив из далекой америки, который никогда особо не вызывал к себе пристального внимания из за отсутствия какой либо оригинальности в своем творчестве. Но вот наступило новое тысячелетие и Downset, наконец, отличились. Новый альбом с первых аккордов засасывает в свои музыкальные сети, умело расставленные музыкантами. Хотя музыка на этой пластинке не является для нас большим открытием, но профессионализм, с которым все сделано - очень подкупает. Вокалист помимо выкрикивания слов типа "motherfucker",еще и запел, причем так что ему может позавидовать сам "король" латинских задниц - Рики Мартын. Минус альбома: После 30 мин. прослушивания откровенно начинает надоедать. Плюс: Суперхит - Together</p>
+
+Автор: Hostile Breed
+
+### 26.03.2002 news CHRIS CORNELL&#39;s Manager Confirms Singer&#39;s Departure From Supergroup ...
+
+<p>Jim Guerinot, the manager of ex-SOUNDGARDEN frontman Chris Cornell, has confirmed that the singer has left the new supergroup he formed with former RAGE AGAINST THE MACHINE members Tim Commerford (bass), Brad Wilk (drums), and Tom Morello (guitar). The unnamed band had originally started work on their never-completed debut album early last year and were due to perform at this year's US Ozzfest dates. An official announcement is expected in the coming days.</p>
+
+Автор: Yermola
+
+### 26.08.2013 news DOWNSET снова в строю
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26107.jpg" width=300 height=300>Тогда, как одни герои уходят в небытьё, другие, напротив, возвращаются к жизни. </P>
+<P>Лосанджелеская rapcore формация <STRONG>DOWNSET</STRONG>, известная&nbsp;даже самым равнодушным к подобной музыке фэнам благодаря своему хиту <A href="http://youtu.be/H6IQxhkVIEw">"Anger"</A>, решила снова вернуться на музыкальную сцену после распада в мае&nbsp;2009 года.</P>
+<P>Около месяца назад группа выпустила новую песню под названием <STRONG>"Forgotten"</STRONG> и отправилась в европейский тур.</P>
+<P>Гостевое участние в записи <STRONG>"Forgotten"</STRONG> приняли <STRONG>Sen Dog</STRONG> (<STRONG>CYPRESS HILL</STRONG>) и <STRONG>George Lynch</STRONG> (<STRONG>DOKKEN</STRONG>, <STRONG>LYNCH MOB</STRONG>).&nbsp;Послушать трек можно здесь: <A href="http://music.yandex.ru/#!/album/1513329">http://music.yandex.ru/#!/album/1513329</A></P>
+<P>Hынешний состав <STRONG>DOWNSET</STRONG> включает в себя двоих оригинальных у частников -&nbsp;это&nbsp;<STRONG>Rogelio Lozano</STRONG> (гитара), <STRONG>Chris Lee</STRONG> (барабаны), а также двоих новичков - <STRONG>Neil Roemer</STRONG> (вокал) и<STRONG> J.D.</STRONG> <STRONG>Manhart</STRONG> (бас).</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### DOWNSET - ценители имеюца?

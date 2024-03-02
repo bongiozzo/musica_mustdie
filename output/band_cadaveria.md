@@ -54,6 +54,386 @@ Hypnotic Psychosis
 
 * C группой "Opera IX" Cadaveria
 
+## Публикации
+
+### 09.10.2001 news Новая группа бывшей вокалистки Opera IX
+
+<p>Певица Cadaveria и барабанщик Flegias, покинувшие Opera IX, организовали новый проект, простенько названный Cadaveria. Ещё в апреле 2001 года разногласия творческого и личного плана в Опера IX сделали невозможной дальнейшую совместную работу. По этим причинам Cadaveria и Flegias ушли из группы. В то время как остальная часть команды предпочла замалчивать сей факт, Cadaveria и Flegias начали потихоньку работать над новым проектом и теперь, после нескольких месяцев инкубации, объявили о создании новой группы. В неё вошли Cadaveria (вокал), Frank Booth (гитара), Killer Bob (бас), Baron Harkonnen (клавиши) и Marcelo Santos (ударные). Группа Cadaveria сейчас сочиняет песни и ищет лейбл.</p>
+
+Автор: Morsus
+
+### 09.10.2001 news New project of former Opera IX vocalist
+
+<p>Former Opera IX vocalist Cadaveria and drummer Flegias have formed a brand new project entitled simply Cadaveria. In April 2001 there have been some artistic and personal incomprehensions inside Opera IX that annihilating every possibility to continue to create music together. For these reasons Cadaveria and Flegias decided to leave the band. While the rest of band preferred to keep the event secret, Cadaveria and Flegias started working on a new musical project and now, after some months of incubation, they are proud to announce the world a new band was founded. Comprised of Cadaveria (vocals), Frank Booth (guitar), Killer Bob (bass), Baron Harkonnen (keyboards), and Marcelo Santos (drums), Cadaveria is now working on compositions and is looking for a label.</p>
+
+Автор: Morsus
+
+### 23.01.2002 news CADAVERIA подписались со Scarlet Records....
+
+<p>Итальянцы "CADAVERIA" имеющие в своем составе вокалистку OPERA IX - Cadaveria и ex-OPERA IX/NECRODEATH барабанщика Marcelo Santos (aka Flegias) подписали контракт со Scarlet Records. Дебютный альбом "The Shadows' Madame" был записан в Capt. Woofer Studios с продюссером John DNA и содержит следующие треки: <BR><BR> 01. Spell<BR> 02. Declaration of Spiritual Independence<BR> 03. In Memory of Shadows' Madame<BR> 04. Circle of Eternal Becoming<BR> 05. The Magic Rebirth<BR> 06. Black Glory<BR> 07. Absolute Vacuum<BR><BR> "The Shadows' Madame" выходит в продажу в марте...</p>
+
+Автор: Yermola
+
+### 23.01.2002 news CADAVERIA Ink Deal With Scarlet...
+
+<p>Italy's CADAVERIA, featuring former OPERA IX vocalist Cadaveria and ex-OPERA IX drummer/NECRODEATH vocalist Marзelo Santos (aka Flegias), have signed with Scarlet Records. CADAVERIA's debut album for the label, entitled The Shadows' Madame, was recorded at Capt. Woofer Studios with producer John DNA and contains the following seven cuts:<BR><BR> 01. Spell<BR> 02. Declaration of Spiritual Independence<BR> 03. In Memory of Shadows' Madame<BR> 04. Circle of Eternal Becoming<BR> 05. The Magic Rebirth<BR> 06. Black Glory<BR> 07. Absolute Vacuum<BR><BR> The Shadows' Madame is scheduled for release in March.</p>
+
+Автор: Yermola
+
+### 29.07.2002 reviews Проповедь с ускользающим смыслом.
+
+<p>Проект бывшей вокалистки довольно известного итальянского black-metal акта Opera IX. При взгляде на фотографию группы начинаешь задумываться, что могут играть люди, одетые, как глэм-рокеры 80-х плюс ко всему, каждый собой символизирует, что-то своё. Сама Сadaveria покрыта белой пудрой, и видимо символизирует black-metal начало (немного похожа на вокалиста наших The Demons), барабанщик относит нас к Мерилину Мэнсону, гитарист со своим Ibanez напоминает Ральфа Шенкера из Scorpions в своём нынешнем ущербно-модном виде (хотя у него вроде не эта гитара), басист явно косит под группу Misfits в полном составе, и в довершение клавишник чем-то напоминает Люку Турилли. Вот и музыка такая, начинается всё с отрывка из Травиатты Верди, продолжается melodic-death риффом, удлиняет наши мучения тупым набором аккордов, а заканчивает блэковыми всплесками. На фоне этого вокалистка зачитывает некоторые текста, то хрипя, то крича, а иногда даже сбиваясь на обыденное пение. Представьте себя среднетемповую «мелодию» иногда прорезаемую соло-гитарой и участками в стиле Cradle Of Filth (очень маленькими) с монотонной проповедью. Да, чуть не забыл, помножьте всё это на семь по количеству песен. Очень сложная для восприятия оригинальная музыка, заставляющая задуматься, а стоит ли требовать от групп неординарности. Вдруг получишь такое.</p>
+
+Автор: Vit Belov
+
+### 02.12.2002 reviews &quot;Maleventum&quot; vs. &quot;The Shadows&#39; Madame&quot;. Equally stunning.
+
+<p>Honestly speaking, I didn’t expect that Cadaveria would ever come up with a CD which is no worse than “Maleventum” (OPERA IX’s latest). Well, she didn’t gain anything by leaving the band (the moniker of which, in fact, always has been associated with her name), however nor she did fail. “The Shadows’ Madame” features a bit less stunning sound execution. “The Shadows’ Madame” features a couple of chaps from Italy’s own death metal cult (read – NECRODEATH). And finally, “The Shadows’ Madame” features… Cadaveria. Which, surprisingly enough, contrived to bring forth the light a CD which is no way similar to OPERA IX. Moreover; it’s a stunning cross between gothic, heavy, thrash and black metal, fresh and somewhat innovative… where only Cadaveria’s voice makes me recall OPERA IX. Nothing else does, though. I bet “The Shadows’ Madame” was worth leaving the band this girl spent many years with.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 06.10.2003 news Новый альбом CADAVERIA
+
+<P>Итальянская формация <B>CADAVERIA</B>, в рядах которой числятся вокалистка <B>Cadaveria</B> (ex-<B>OPERA IX)&nbsp;</B>и ударник <B>Marсelo Santos</B>&nbsp;(<B>NECRODEATH</B>), готовит&nbsp;к выпуску 24 ноября&nbsp;через <B>Scarlet Records</B> свой новый альбом <B>"Far Away From Conformity". </B>Он был записан в итальянской <B>Capitan Woofer Studio</B> и прошел мастеринг в шведской <B>Mastering Room</B>. Трэк-лист выглядит следующим образом:</P>
+<P>1. Blood And Confusion<BR>2. Eleven Three O Three<BR>3. Irreverent Elegy<BR>4. The Divine Rapture<BR>5. Omen Of Delirium<BR>6. Call Me<BR>7. Out Body Experience<BR>8. Prayer Of Sorrow<BR>9. Vox Of Anti-Time</P>
+Автор: Dimas
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 15.04.2007 news Новый альбом CADAVERIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом бывшей вокалистки <STRONG>OPERA IX CADAVERIA "In Your Blood"</STRONG> выходит 21 мая на <STRONG>Season Of Mist</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=203 alt="" hspace=0 src="/images/news_rus/2007.04/11554.jpg" width=200 align=right border=5>1. <STRONG>100.000 Faces <BR></STRONG>2. <STRONG>The Dream</STRONG> <BR>3. <STRONG>Anagram <BR></STRONG>4. <STRONG>Memento Audere Semper</STRONG> <BR>5. <STRONG>Laying in Black <BR></STRONG>6. <STRONG>Queen of forgotten <BR></STRONG>7. <STRONG>Exorcism to Chaos <BR></STRONG>8. <STRONG>Uneven like Clouds <BR></STRONG>9. <STRONG>Before the Apes came <BR></STRONG>10. <STRONG>Virtual Escape from Tragedy</STRONG> <BR>11. <STRONG>Atypical Suggestions by a dead Artist</STRONG> <BR>12. <STRONG>Enlightened </STRONG></P>
+Автор: Vit Belov
+
+### 01.09.2008 reviews Эпатаж с лэйбла Season Of Mist
+
+<P>Певица CADAVERIA была известна, как вокалистка в меру интересной итальянской группы OPERA IX. В те времена, когда люди увлекались этим коллективом, были редкостью орущие девушки. Прямо скажем, и сейчас их не так, чтобы уж много, но нам хватает. Всё-таки занятие это для слабого пола не самое подобающее, бегать по сцене и орать дурным голосом. Одно дело, если этим занят какой-нибудь бугай с пузом, это страшно и захватывает. Другое дело, когда надрывается маленькая девочка, да ещё и без пуза. Непорядок.</P>
+<P>В общем, все и помнили OPERA IX, как sympho-black-metal группу с подобное девушкой, то есть с CADAVERIA. Как я уже выше заметил, времена изменились и группа OPERA IX ушла в прошлое, но итальянка не хочет успокаиваться и работает под своим именем над сольным проектом. В прошлом певица пробовала себя в чём-то похожем на death-thrash-black-metal без внятных мелодий. На новой работе «In Your Blood» артистка решила полностью порвать с металлической музыкой, как к самоцелью. Она вообразила себя помесью Bjork и Marylin Manson, надела кукольное платье, раскрасила лицо под труп, не хочется верить, что она так на самом деле плохо выглядит, и вдарила нам по мозгам акльтернативной мелодичной, но тяжёлой музыкой. Честно говоря, этот шаг логичен. Уже раньше мы поняли, что с композицией у девушки проблемы, поэтому надо брать чем-то другим. Легко эпатировать почтенную публику, когда ты орёшь, как осатанелая, и броско одеваешься. Музыка в этом случае отходит на второй, а то и на третий план. К сожалению, не только музыка, но и исполнение. Здесь CADAVERIA много поёт чистым вокалом, и, скажу вам откровенно, это ужасно.</P>
+<P>Очень слабая работа, целью которой является попадание на MTV в раздел «и такое бывает». Не знаю, как у них, но у нас попасть на MTV даже в этот раздел с лэйбла уровня Season Of Mist невозможно. Поэтому группе только и остаётся рассчитывать на любителей орущих девушек, которые всё-таки среди фэнов тяжеляка существуют.</P>
+Автор: Vit Belov
+
+### 23.01.2009 news CADAVERIA взяли нового гитариста
+
+<P><STRONG>CADAVERIA</STRONG> приняли в свой состав ещё одного гитариста. Им стал концертный музыкант группы <STRONG>Dick Laurent</STRONG>.</P>
+Автор: Vit Belov
+
+### 01.07.2011 news Новый альбом CADAVERIA готов
+
+<P>Новый альбом группы бывшей вокалистки <STRONG>OPERA IX CADAVERIA</STRONG> уже записан. В настоящий момент материал проходит мастеринг. На пока не названную пластинку попадёт 11 треков. Ниже можно посмотреть ролик, посвящённый этой работе.</P>
+<P>Предыдущий альбом <STRONG>CADAVERIA "In Your Blood"</STRONG> вышел в 2007 году.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-wFXI3QCyOs?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/-wFXI3QCyOs?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.11.2011 news CADAVERIA на Bakerteam
+
+<P><STRONG>Bakerteam Records</STRONG> подписали контракт с группой бывшей вокалистки <STRONG>OPERA IX CADAVERIA</STRONG>. Новая работа итальянцев выйдет в 2012 году.</P>
+<P>Последний на сегодня альбом<STRONG> CADAVERIA "In Your Blood"</STRONG> вышел в 2007 году на <STRONG>Season Of Mist</STRONG>.</P>
+<P><center><IMG height=266 src="/images/news_rus/2011.11/22013.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 27.11.2011 news Обложка новой CADAVERIA
+
+<P><IMG height=220 alt="" hspace=0 src="/images/news_rus/2011.11/22119.jpg" width=250 align=right border=0>Новый альбом <STRONG>CADAVERIA "Horror Metal"</STRONG> выходит 31 января на<STRONG> Bakerteam Records</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Flowers in Fire</STRONG><BR>2. <STRONG>The Night’s Theatre</STRONG><BR>3. <STRONG>Death Vision<BR></STRONG>4. <STRONG>Whispers of Sin<BR></STRONG>5. <STRONG>Assassin<BR></STRONG>6. <STRONG>The Days of the After and Behind<BR></STRONG>7. <STRONG>Apocalypse</STRONG><BR>8. <STRONG>The Oracle (of the Fog)<BR></STRONG>9. <STRONG>Requiem<BR></STRONG>10. <STRONG>This is Not the Silence<BR></STRONG>11. <STRONG>Hypnotic Psychosis</STRONG></P>
+Автор: Vit Belov
+
+### 17.11.2012 news Новый ролик CADAVERIA
+
+<P>Новое видео сольного проекта бывшей вокалистки <STRONG>OPERA IX CADAVERIA</STRONG> на песню <STRONG>"Flowers In Fire" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/NaIb-UBcjmo?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.10.2014 news CADAVERIA выпустит &quot;Тишину&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Horror-metal группа <STRONG>CADAVERIA</STRONG> подготовила к выпуску новый альбом "<STRONG>Silence</STRONG>". Диск увидит свет 18 ноября на <STRONG>Scarlet Records</STRONG>. Трек-лист:</FONT></P>
+<P><STRONG>1. Velo (The Other Side Of Hate)<BR>2. Carnival Of Doom<BR>3. Free Spirit<BR>4. The Soul That Doesn't Sleep<BR>5. Existence<BR>6. Out Loud<BR>7. Death, Again<BR>8. Exercise1<BR>9. Almost Ghostly<BR>10. Loneliness<BR>11. Strangled Idols</STRONG></P>
+<P><A href="http://www.cadaveria.com/">www.cadaveria.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.10/27334.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.06.2016 news CADAVERIA и NECRODEATH выпускают совместный EP
+
+<p>Итальянские группы <strong>CADAVERIA</strong> и <strong>NECRODEATH</strong> объединили усилия для выпуска мини-альбома "<strong>Mondoscuro</strong>". Группы совместно сочиняли материал и совместно его записывали. На релиз войдёт шесть треков: две совместные песни, две кавер-версии (<strong>THE BEATLES</strong> и <strong>TYPE O NEGATIVE</strong>) и два перекрёстных трека, где CADAVERIA исполнит классическую песню NECRODEATH, а NECRODEATH споют что-то из CADAVERIA.</p><p>Кроме этого, в записи приняла участие вокалистка<strong> CRADLE OF FILTH Lindsay Schoolcraft</strong>. Обложку нарисовал<strong> Paolo Perrotta Mazza</strong>. Релиз намечен на это лето на лэйбле<strong> Black Tears Of Death</strong>.</p><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29434.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 22.06.2016 news MONDOSCURO: cover, content details and a special guest revealed!
+
+<p>This is the explicit cover artwork for <strong>"MONDOSCURO</strong>", the announced EP co-starring <strong>CADAVERIA</strong> and<strong> NECRODEATH</strong>, both as distinct bands and as authors of new songs, composed and played together.</p><p>In detail, the EP will contain six tracks: two brand new and co-written songs, two covers (one of The Beatles and one of Type O Negative) and two unusual “exchange of roles”, that will see CADAVERIA reinterpreting a classic by NECRODEATH and NECRODEATH performing a CADAVERIA hit.<br>&nbsp;<br>Among the other surprises of "MONDOSCURO" there is the participation of <strong>Lindsay Schoolcraft</strong> from <strong>CRADLE OF FILTH</strong>, as special guest on vocals.<br>&nbsp;<br>"MONDOSCURO" cover artwork was designed by Italian-Venezuelan digital artist<strong> Paolo Perrotta Mazza</strong>.</p><p>The release of "MONDOSCURO" on <strong>Black Tears of Death</strong> label is expected late this Summer.</p><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29434.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

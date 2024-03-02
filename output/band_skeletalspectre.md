@@ -29,6 +29,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.09.2011 news Новый альбом SKELETAL SPECTRE
+
+<P><IMG height=318 alt="" hspace=0 src="/images/news_rus/2011.09/20859.jpg" width=320 align=right border=0>Ещё один проект шведского гитариста <STRONG>Rogga Johansson (PAGANIZER, DEMIURG, RIBSPREADER, THE 11TH HOUR, ex-DERANGED) SKELETAL SPECTRE</STRONG> выпустил второй альбом "<STRONG>Occult Spawned Premonitions</STRONG>" на <STRONG>Razorback Recordings</STRONG>. В этой группе музыкант представляет тяжёлый death-doom вместе с певицей <STRONG>Vanessa Nocera (SCAREMAKER, WOODEN STAKE)</STRONG>. Материал <STRONG>SKELETAL SPECTRE</STRONG> предназначен поклонникам <STRONG>CELTIC FROST, HOODED MENACE, ASPHYX, GRAVE</STRONG> и&nbsp;<STRONG>CATHEDRAL</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Scalped</STRONG>&nbsp; 05:32&nbsp; <BR>2. <STRONG>Master Of The Muck</STRONG>&nbsp; 04:52&nbsp; <BR>3. <STRONG>Sekhmet Prowls The Azure Night</STRONG>&nbsp; 05:09&nbsp;&nbsp; <BR>4. <STRONG>Raw Head & Bloody Bones</STRONG>&nbsp; 05:56 <BR>5. <STRONG>Untimely Tomb</STRONG>&nbsp; 05:36&nbsp; <BR>6. <STRONG>Screams From The Asylum</STRONG>&nbsp; 04:08 <BR>7. <STRONG>Occult Spawned Premonitions</STRONG>&nbsp; 03:53 <BR>8. <STRONG>Domain Of The Fleshless Ones</STRONG>&nbsp; 09:17 </P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/skeletalspectre">http://www.myspace.com/skeletalspectre</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

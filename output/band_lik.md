@@ -12,6 +12,23 @@ Sweden death metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.11.2015 news Дебютный альбом LIK
+
+<P>16 октября на лэйбле <STRONG>War Anthem</STRONG> вышел дебютный альбом шведской группы <STRONG>LIK "Mass Funeral Evocation"</STRONG>. Альбом записан группой известных музыкантов с участием барабанщика <STRONG>Christofer Barkensjo (The Resistanse, ex-Construcdead, ex-Grave, ex-Carnal Forge)</STRONG>, гитариста <STRONG>Niklas Sandin (Katatonia)</STRONG>. Отличный образец шведского death-metal в духе Dismember и Entombed: <A href="http://escapemind.ru/goods/LIK-Mass-Funeral-Evocation-CD">http://escapemind.ru/goods/LIK-Mass-Funeral-Evocation-CD</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/KwPfac7xX98" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/dxKhj-Ja-28" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/mi6EUColPds" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

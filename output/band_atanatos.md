@@ -16,6 +16,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Новый альбом Sodom будет называться "Code Red" и выйдет 17 мая. На альбоме будет 12 песен плюс бонус-кавер на песню Accept "I'm a Rebel". В паре с этим альбомом выйдет трибьют к самой группе "Homage To The Gods". На работе засветятся Cradle Of Filth, Impaled Nazarene, Dark Funeral, Atanatos, Enthroned, Brutal Truth и другие.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.08.2016 news KINGDOM подписали контракт c Godz Ov War
+
+<p>Польская black death metal команда <strong>KINGDOM</strong> подписала контракт с лэйблом <strong>Gods Ov War</strong> на выпуск третьего альбома <strong>'Sepulchral Psalms from the Abyss of Torment'</strong>. Ниже можно услышать первый сингл с этого альбома <strong>"Black Rain upon the Mountain of Doom".</strong></p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/277243454&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 17.08.2016 news KINGDOM sign with Godz Ov War
+
+<p>Polish black death metal band<strong> KINGDOM</strong> signed a contract with the label <strong>Gods Ov War</strong> for the releasing of band's third album, <strong>'Sepulchral Psalms from the Abyss of Torment'</strong>. Below you can hear the first single from the album, <strong>"Black Rain upon the Mountain of Doom</strong>".</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/277243454&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

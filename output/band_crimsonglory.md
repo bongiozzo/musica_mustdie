@@ -77,6 +77,74 @@ Jeff Lords - Bass
 * C группой "Leatherwolf" Wade Black
 * C группой "The Ben Jackson Group" Ben Jackson (guitar)
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Black Sun Records сообщила о новой группе под своим крылом. Sins Of Omission играют мелодичный шведский дэт-металл. Дебютный альбом этой группы "The Creation" вышел 15 марта. На японской версии этого альбома присутствует кавер Crimson Glory "Red Sharks". В группе уже сменился вокалист. Новым членом коллектива стал Мертен из Canourous Quintet, а предыдущий вокалист Тони собирается сконцентрироваться на гитаре.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Crimson Glory выпускают новый миньон из пяти песен в поддержку тура, новый же альбом начнёт записываться после нахождения клавишника. В планах группы запись тридцати песен на 90 минут, и выход всего этого на двойном CD.</p>
+
+Автор: Vit Belov
+
+### 14.11.2000 news Вокалист Crimson Glory Миднайт обзавелся собственным web-сайтом
+
+<p> 31-го октября по адресу http://www.sorcerystudios.com/midnight открылся личный сайт вокалиста группы Crimson Glory.</p>
+
+Автор: Nybras
+
+### 14.11.2000 news Original Crimson Glory vocalist Midnight has a brand new Official Website
+
+<p> Original Crimson Glory vocalist Midnight has a brand new Official Website that debuted at the stroke of midnight October 31st 2000. The website will feature rare audio mp3's, as well as all the current news on Midnight's new solo album venture, exclusive photographs, interviews and much more. For more info go to: http://www.sorcerystudios.com/midnight</p>
+
+Автор: Nybras
+
+### 12.03.2001 news Семь ведьм производят шум...
+
+<p>Семь самураев...ой, простите, ведьм подписали контракт (видимо кровью?) с Noise на выпуск их третьего альбома. В настоящий момент состав выглядит так: Jack Frost (METALLIUM), Tim Mallare (OVERKILL), Billy 'The Kid' Mez и новый вокалист Wade Black (ex-CRIMSON GLORY).</p>
+
+Автор: Yermola
+
+### 12.03.2001 news 7 Witches On Noise
+
+<p>7 WITCHES have inked a deal with Noise for their third album. The band's line-up includes: Jack Frost (METALLIUM), Tim Mallare (OVERKILL), Billy 'The Kid' Mez and new singer Wade Black (ex-CRIMSON GLORY).</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Новый проект Luca Turilli.....
+
+<p>Участник "CRIMSON GLORY" вокалист Midnight работает с гитаристом Luca Turilli ("RHAPSODY") над совместным проектом. Но по сообщению сайта певца работа продвигается очень медленно из-за занятости обоих участников. Кроме того, Midnight работает с гитаристом "CRIMSON GLORY" Jon Drenning над другим сольником.</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Luca Turilli&#39;s forthcoming project....
+
+<p>Former CRIMSON GLORY vocalist Midnight is still slated to work with guitarist Luca Turilli from Italy’s RHAPSODY on a forthcoming project, but according to the singer’s official web site, “things have slowed while the two parties work out contracts to make the project workable.” In other Midnight news, no progress has been made on the writing or recording front for the planned project between Midnight and CRIMSON GLORY guitarist Jon Drenning. However, Midnight remains fairly adamant that he is in no way interested in a CRIMSON GLORY reunion with him on vocals, and is continuing work on a solo album, which will reportedly feature guest musicians.</p>
+
+Автор: Yermola
+
+### 17.12.2005 news CRIMSON GLORY назвали ре-юнион альбом
+
+<P>Гитарист воссоединившихся <STRONG>CRIMSON GLORY</STRONG> <STRONG>Jon Drenning</STRONG> сообщил, что ре-нион альбом будет называться <STRONG>"Divine Chaos"</STRONG> и выйдет в 2007 году.</P>
+Автор: Vit Belov
+
+### 08.07.2009 news Скончался оригинальный вокалист CRIMSON GLORY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=280 alt="" hspace=5 src="/images/news_rus/2009.07/14493.jpg" width=180 align=right vspace=5 border=0>Midnight</STRONG> (настоящее имя <STRONG>John Patrick Jr. McDonald</STRONG>), оригинальный вокалист <STRONG>CRIMSON GLORY</STRONG>, скончался сегодня в госпитале <STRONG>"St. Anthony" </STRONG>(Санкт-Петербург, штат Флорида) после полного отказа работы почек и печени. Ему было 47 лет.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По словам гитариста&nbsp;<STRONG>Matt LaPorte</STRONG>&nbsp;(<STRONG>JON OLIVA'S PAIN</STRONG>) который играл на некоторых из недавних сольных записях <STRONG>Midnight</STRONG>'а, певец провёл свои последние часы в окружении совей матери, брата и дочери, а так же, участников групп <STRONG>CRIMSON GLORY</STRONG>, <STRONG>SAVATAGE и JON OLIVA'S PAIN</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 10.02.2012 news CRIMSON GLORY работают над DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американцы <STRONG>CRIMSON GLORY</STRONG> готовят к релизу полноформатный концертный DVD, основанный на съёмках, сделанных на фестивале <STRONG>Bang Your Head! </STRONG>в прошлом году. Подробности последуют.</FONT></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/0bbU6CTm3t8?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Творчество Crimson Glory

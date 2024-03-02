@@ -30,6 +30,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.05.2002 news Maze Of Torment закончили работу над новым альбомом
+
+<p>Maze Of Torment закончили работу над своим очередным альбомом "The Unmarked Graves". Запись проходила в знаменитой студии Abyss с Томми Тагтгреном за звукорежиссёрским пультом. Альбом появится на свет этим летом.</p>
+
+Автор: Morsus
+
+### 31.05.2002 news Maze Of Torment have finished work on their new album
+
+<p>Maze Of Torment have finished work on their upcoming album "The Unmarked Graves". The record was produced by Tommy Tagtgren at the renowned Abyss Studios. The album will be released this summer.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

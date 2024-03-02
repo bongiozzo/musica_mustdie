@@ -8,6 +8,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.01.2013 news BACK DOOR TO ASYLUM: видео &quot;Entozoic&quot;
+
+<P><STRONG>"Entozoic"</STRONG>, дебютное видео московской technical death metal группы <STRONG>BACK DOOR TO ASYLUM</STRONG>, доступно для просмотра ниже. Этот трек взят с альбома <STRONG>"Akathisia"</STRONG>, выпущенного в 2012 году на японском лейбле <STRONG>Amputated Vein Records</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/R1kjXrw7UbE" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.10.2013 news BACK DOOR TO ASYLUM представляют дизайн и трек-лист своего нового альбома
+
+<P>Московская technical death metal формация <STRONG>BACK DOOR TO ASYLUM</STRONG> представила обложку и трек-лист 2-го альбома под названием <STRONG>"Cerberus Millenia"</STRONG>, который выйдет в начале 2014 года на японском лейбле <STRONG>Amputated Vein Records</STRONG>.</P>
+<P>На новый альбом войдут 9 мощнейших треков, принципиально отличающихся от материала на дебютном <STRONG>"Akathisia"</STRONG>.</P>
+<P>В роли гостевых вокалистов на <STRONG>"Cerberus Millenia"</STRONG> выступили:<BR>- <STRONG>Sven De Caluwe</STRONG> (<STRONG>ABORTED</STRONG>)<BR>- <STRONG>Julien Truchan</STRONG> (<STRONG>BENIGHTED</STRONG>)<BR>- <STRONG>Fabio Marin</STRONG> (<STRONG>INTERNAL SUFFERING</STRONG>)</P>
+<P>Дизайн исполнен мастером <STRONG>DaeMorph</STRONG>.<BR>Сведение и мастеринг будут выполнены Сашей из <STRONG>TsunTsun Productions</STRONG>.</P>
+<P>Трек-лист <STRONG>"Cerberus Millenia"</STRONG>:</P>
+<P>1. <STRONG>Manifestations </STRONG>|<STRONG> </STRONG>2. <STRONG>Auroral Plasmagenesis </STRONG>| 3. <STRONG>Inception To Genocide </STRONG>| 4. <STRONG>Unconditional Devoration </STRONG>| 5. <STRONG>Gravity Inverse </STRONG>| 6. <STRONG>Pitch Black Purity </STRONG>| 7. <STRONG>Threads Of The Wounded </STRONG>| 8. <STRONG>Cerberus Paradigm </STRONG>| 9. <STRONG>The Convergence Process</STRONG></P>
+<P>Послушать трек <STRONG>"Unconditional Devoration"</STRONG>, можно по ссылке: <A href="http://youtu.be/HJmqaFhnpV8">http://youtu.be/HJmqaFhnpV8</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.10/26278.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

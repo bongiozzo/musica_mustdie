@@ -94,6 +94,17 @@ Diego Marin - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2012 news UNDERCROFT на Season Of Mist
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Чилийские легенды death-thrash-metal <STRONG>UNDERCROFT </STRONG>подписали контракт с <STRONG>Season Of Mist</STRONG>. Шестой альбом коллектива <STRONG>"Ruins Of Gomorrah" </STRONG>выйдет в конце сентября. Продюсером альбома выступил <STRONG>Daniel Bergstrand (IN FLAMES</STRONG>, <STRONG>SOILWORK</STRONG>, <STRONG>STRAPPING YOUNG LAD</STRONG>, <STRONG>DARKANE</STRONG>, <STRONG>MESHUGGAH).</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG height=316 src="/images/news_rus/2012.07/24342.jpg" width=475 border=0></FONT></STRONG> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

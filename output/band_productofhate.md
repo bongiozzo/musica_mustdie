@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.09.2016 news PRODUCT OF HATE выпустили видео
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип американской thrash death metal команды <strong>PRODUCT OF HATE "...As You Kingdom Falls" </strong>можно посмотреть ниже. Дебютный альбом коллектива "<strong>Buried In Violence</strong>" вышел 5 февраля на <strong>Napalm Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/SqtQPSvICgo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 21.09.2016 news PRODUCT OF HATE released video
+
+<p>New video of the American thrash death metal band<strong> PRODUCT OF HATE "...As You Kingdom Falls"</strong> can be viewed below. Debut album "<strong>Buried In Violence</strong>" came out February 5 via <strong>Napalm Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/SqtQPSvICgo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

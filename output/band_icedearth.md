@@ -443,6 +443,1521 @@ Freddie Vidales - Bass
 * C группой "Sons Of Liberty" 
 * C группой "Ashes Of Ares" 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Что-то всё-таки случилось в этом мире. Не было ещё такого, чтобы в течение одного месяца выходило не один, не два, и даже не три, а несколько альбомов-предентендов на звание лучшего альбома года! Данный альбом также из разряда шедевров. Ветераны американской сцены выпустили свой пятый студийный альбом. Музыка здесь, как и на предыдущих адьбомах, представляет собой очень интересный techno-thrash. Однако если на двух последних альбомах группы прослеживалась тендеция к смягчению материала в сторону обычного heavy, то на данном альбоме John Schaffer (автор музыки и лидер группы) решил вспомнить дебютные работы группы. Поэтому воздух при прослушивании альбома сотрясают мощнные techno-thrash риффы в духе раннего Annihilator и Iced Earth. Скоростные, динамичные композиции сменяются спокойными композициями с безумно тяжёлыми и мелодичными риффами.В альбом вошло 13 композиций, характеризующихся кружевами изобретательных гитарных соло, перекрёстной постановкой риффов, красивыми акустическими вставками и сменами ритма. Удивительный альбом!</p>
+
+Автор: Dimas
+
+### 01.01.1999 reviews Something Wicked This Way Comes
+
+<P>Прежде, чем купить этот альбом я много интересного прочитал про него. В основном это были хвалебные отзывы в журналах и Internet. Действительно, то, что я прослушал заслуживает всего этого. Немного общих слов о группе. ICED EARTH появились в обойме лучших команд после своего предыдущего альбома "The Dark Saga". Это был великолепно-бескомпромисный heavy metal, в котором можно было обнаружить черты как американской школы (сама группа из США), так и европейской. Но главное, что было на этой работе это смесь агрессивности и мелодизма. Чем же новый альбом отличается от предыдущего. Во-первых очень сильно разнообразилась музыка. Очень много стало присутствовать акустической гитары, присутствовал женский вокал (на подпевках), а также добавлены партии классических инструментов. Вместе с тем осталась характерное для группы звучание, которого добивается продюсер Jim Moris из Morissound Studio в Tampa (легендарная студия, в которой записывали свои первые работы CANNIBAL CORPSE и другие монстры&nbsp;death metal. Представте себе смесь всех этих черт и бегите в магазин.</P>
+Автор: Vit Belov
+
+### 12.02.1999 news 
+
+<p>Группа с огромным успехом выступила в Греции, где был записан концертник под названием "Live In Athens", который выйдет где-то в конце лета. Начиная с сегодняшнего дня группа гастролирует по США, а перед этим ребята записали миньон, предназначенный для радио. В него вошли кавер-версии на песни DIO и BAD COMPANY.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Iced Earth собирается в тур по США, который будет самым большим за всю историю группы. Destiny's End будут их сопровождать и на первых датах поучаствуют Nevermore. Концертный альбом выйдет скорее всего в июне на двух дисках. Ну и новости о ожидаемом проекте Джона Шаффера и Ханси Кюрша (Blind Guardian). С ними будет работать продюсер Джим Моррис и с ним Джон уже записал несколько демо-вещей в своём подвале в Индиане. Ханси и Джон уже записали свои партии и собираются начать окончательные работы в июле в Тампе. Затем группа займётся поиском лэйбла. Я думаю проблем с этим у них не возникнет.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Iced Earth выпустят свой концертник на Century Media в скором будущем. Он будет доступен как на трёх CD, так и на пяти виниловых пластинках. Также Джон намерен тв скором будущем приступить к записи альбома нового коллектива Demons&Wizards.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Iced Earth выпустили свой концертник "Live In Athens" на трёх компакт дисках.</p>
+
+Автор: Vit Belov
+
+### 27.10.1999 articles Концертное нашествие
+
+<p>Iced Earth являются "лучом света в тёмном царстве" хэви-пауэр металла США. Они умело сочетают в себя по-американски вылизанные рифы и европейскую мелодичность. На протяжении многих лет продолжают радовать своих поклонников по всему миру добротными пластинками. Летом этого года Century Media выпустили концертник группы "Live In Athens" на трёх компакт-дисках или пяти виниловых пластинках, что тоже является некоторым достижением, так как немногие группы смогли бы продать такой объёмный, а, следовательно, и дорогостоящий, концертный материал. С вопроса цены и качества всего этого дела мы и начнём слушать фронтмэна группы Мэта Барлоу.</p>
+<P> Мэт: "Мы выпустили такой огромный концертник, потому что это то, о чём все мы думали. Мы поговорили с Century Media об этом, так как хотели удержать цену на приличном уровне. Ну, например, на уровне двойного компакта, ведь нам всё равно пришлось бы делать двойник, так как было записано очень много материала. Century Media приняла наши доводы, и мы имеем тройной CD по цене доступной нашим фэнам."</>
+<P> Обычно группы, записывая концертный альбом, выбирают только лучшие композиции. Iced Earth же использовала все. Неужели все песни настолько хороши?</>
+<P> Мэт: "Нет. У нас всё, как и у остальных групп. В живом исполнении есть, как хорошие, так и плохие композиции, но мы решили выпустить все, чтобы слушатели смогли почувствовать атмосферу шоу."</>
+<P> А почему вы поменяли порядок песен, и шли они не как на концерте?</>
+<P> Мэт: "Мы сделали это, потому что было отыграно два различных сета в Афинах. Мы расставили их по тем местам, как, если бы мы отыграли всё в одном шоу. Всё было сделано для слушателей, чтобы они лучше ощущали дух, и им легче давалось прослушивание пластинки."</>
+<P> А почему альбом был записан в Греции, ведь не сказать, что это самое металлизированное место на планете?</>
+<P> Мэт: "Всё просто, в Греции просто великолепные фэны. Они обеспечили великолепную поддержку, и это очень заметно на этом альбоме. Я думаю, что каждая частичка энергии, которую мы выплёскивали на них, возвращалась к нам от них сполна."</>
+<P> Да, в этом с Мэтом не согласиться нельзя. Греки исполняли все песни вместе с группой, порой заглушая их игру. Записывала ли группа когда-либо ещё концертники?</>
+<P> Мэт: "Нет, мы не записывали ничего официально, но были, конечно же, кое-какие записи, но это всё больше похоже на бутлеги."</>
+<P> Как ощущаешь себя, когда знаешь, что шоу записывается. Это сложнее, чем во время обычных концертов?</>
+<P> Мэт: "Знаете, мы были настолько сконцентрированы на том, чтобы порадовать собравшуюся публику, что времени, чтобы думать о записи не оставалось. Я настолько был заворожен фэнами, что мне не о чём больше думать не хотелось. Так всегда, когда я в Греции. Когда публика заряжает тебя такой энергией, как можно обращать внимание на такую мелочь, как запись."</>
+<P> Помнится, было очень много скандалов вокруг живых альбомов многих групп, в связи с тем, что якобы они всё корректировали в студии. Но никто никогда не сознаётся даже в мелочах. Что же нам скажет Мэт?</>
+<P> Мэт: "Они лукавят. Всегда есть маленькие детальки, которые стоило бы подкорректировать. Это не всегда важно в отношении самого выступления, скорее чисто технические штучки. Всегда есть какое-нибудь жужжание или что-нибудь с микрофоном, как это было у меня в этот раз. Был какой-то звук на заднем плане, непонятно, но надо это убрать, так как нехорошо, чтобы люди платили за продукт, который звучит, как дерьмо. И когда кто-то говорит, что никак не корректирует концертные записи, значит он полон дерьма."</>
+<P> Была ли запись на видеокамеры этого концерта?</>
+<P> Мэт: "Нет. Была запись только для VIVA, но они записывают практически все шоу. Может быть когда-нибудь мы выпустим концертное видео, но не сейчас. Если и сделаем, то оно будет основано на концерте в Афинах."</>
+<P> Интересно ли работать было вашему продюсеру Джиму Моррису?</>
+<P> Мэт: "Да. Это был некий новый опыт для него. Он был в фургоне, вне зала. И потерял одну песню во время первого шоу, так как кто-то его обесточил, пришлось её переиграть на второй день. Также он был приятно удивлён приёмом афинской публики."</>
+<P> Перейдём к дальнейшим планам группы. Когда следует ждать нового студийного альбома группы, и началась ли уже работа над ним?</>
+<P> Мэт: "Он выйдет весной следующего года, но работа над ним ещё не начата. Идеи витают где-то рядом, но до музыки дело ещё не доходило. Джон занят на своём сайд проекте вместе с Ханси Кюршем из Blind Guardian, а он у нас основной сочинитель песен. Когда он закончит, мы через месяц и приступим к новому альбому."</>
+<P> Джон работает в группе Demons & Wizards, а Мэт занят где-нибудь?</>
+<P> Мэт: "Нет, ничего такого нет. Мы с Джоном хотели сделать что-нибудь непохожее на Iced Earth, но всё это повисло и неизвестно, когда осуществится. Если я всё-таки когда-то возьмусь за другой проект, он не будет сильно отличаться от основной группы, разве что изменю немного звук и поэкспериментирую."</>
+<P> Ну вот и поговорили. Хотелось бы послушать концертник, но только я не представляю, как это смогут сделать обычные российские фэны группы, так как родные компакты слишком для них дороги, а на кассетах вряд ли кто-то это сможет записать (я мягко выражаюсь). Поэтому будем ждать новую студийную пластинку, которая, надеюсь, несмотря на миллениум всё-таки появится в продаже.</>
+<P> По материалам зарубежной Веб-прессы, Вит Белов.</>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 03.11.1999 news 
+
+<p>Blind Guardian собираются выпустить новый альбом лишь в 2001 году. Ханси полностью оправился от болезни уха, но занят на записи своего сайд-проекта Demons & Wizards вместе с Джоном Шаффером из Iced Earth, альбом которого выйдет в начале следующего года. Сообщается, что новый альбом Blind Guardian будет симфоническим.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Iced Earth покинул барабанщик Брент Смедлей, из-за персональных проблем. Сейчас происходит прослушивание новых кандитатов, и группа просит не беспокоится своих фэнов по этому поводу. Тем временем команда собирается войти в студию в марте этого года, чтобы записать новую пластинку.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Последний концертник Iced Earth "Alive In Athens" стал золотым и приближается к платиновому рубежу.</p>
+
+Автор: Vit Belov
+
+### 19.07.2000 news Iced Earth возобновили работу.
+
+<p> Iced Earth возобновили работу после паузы, вызванной участием их лидера Джона Шаффера в успешном сайд-проекте Demons & Wizards. В группе теперь играет новый барабаншик Ричард Христи, который выступал на концертах вместе с Demons & Wizards, но больше известен своей работой в Death и Control Denied. Несмотря на проблемы со здоровьем у Джона Шаффера, Iced Earth выступят на фестивале Wacken Open Air в Германии перед отправкой в студию для записи следующего альбома "Horror Show", который будет концептуальным, посвящённым таким позорным монстрам как Дракула, Франкенштейн, Мумия, Оборотень, Призрак Оперы, Человек-невидимка, Джек-потрошитель и им подобным. Новый альбом, как ожидается, будет выпущен в феврале 2001 года.</p>
+
+Автор: Morsus
+
+### 19.07.2000 news Iced Earth have reconvened.
+
+<p> Iced Earth have reconvened after guitarist/band leader Jon Schaffer's successful side-project Demons & Wizards. The band are now joined by new drummer Richard Christy who did live shows with Demons & Wizards but is more known as the backbone for Death and Control Denied. Despite of problems with health at Jon Schaffer, Iced Earth will be performing at this year's Wacken Open Air Festival in Germany before hitting the studio to record their next album, "Horror Show", which is a themed album based on such infamous monsters as Dracula, Frankenstein, The Mummy, The Wolfman, The Phantom Of The Opera, The Invisible Man, Jack The Ripper and more. The new album is expected to be released in February 2001.</p>
+
+Автор: Morsus
+
+### 06.09.2000 news Хорошие и плохие новости от Iced Earth
+
+<p> Выход нового мини-CD Iced Earth "Melancholy" откладывается с октября на январь следующего года по неизвестным причинам. А пока группа вовсю трудится над композициями к новому полноформатному альбому "Horror Show", который мы услышим в апреле 2001-го.</p>
+
+Автор: Nybras
+
+### 06.09.2000 news Bad and good news from Iced Earth
+
+<p> Bad news from the camp of Iced Earth: The "Melancholy"-EP will not be available in October, but only in January 2001. But the good news are that they are busy working on "Horror Show", their upcoming full-length-album, which should be out by April 2001</p>
+
+Автор: Nybras
+
+### 05.12.2000 news Хорошее приобретение для &quot;ICED EARTH&quot;
+
+<p>Хорошее приобретение для "ICED EARTH". Помимо нового драммера Richard Christy (DEATH и CONTROL DENIED) в команде появился супер-басист Steve DiGiorgio (SADUS, TESTAMENT). Кроме того, уже практически закончена работа над полноформатником "Horror Show", дата релиза которого передвинута на май 2001.</p>
+
+Автор: Yermola
+
+### 10.02.2001 news Новый альбом Iced Earth
+
+<p> Новый альбом Iced Earth "Horrorshow" уже полностью записан и сейчас находится на стадии сведения. Официальный релиз - в апреле.</p>
+
+Автор: Nybras
+
+### 12.03.2001 news Немного об Iced  Earth
+
+<p> Долгожданный альбом американцев из Iced Earth наконец сведен. Он содержит 10 треков с "миленькими" названиями: "Wolf", "Damien", "Jack", "Ghost of Freedom", "Mummy", "Jeckyl & Hyde", "Creature", "Frankenstein", "Dracula" и "The Opera Ghost". К сожалению, окончательная дата релиза еще не установлена, но есть надежда, что он появится в конце мая - начале июня. Также готовится к изданию limited-edition этого диска в виде двойника, где на втором диске будет часовое интервью и кавер песни Iron Maiden "Transilvania". В довершение всего группа планирует организовать специальное шоу в Чикаго, по случаю выхода альбома.</p>
+
+Автор: Helloween
+
+### 11.04.2001 news Заявление Steve DiGiorgio ....
+
+<p>Супер-пупер бассист Steve DiGiorgio (TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) опубликовал на своем сайте следующее заявление: "Альбом "ICED EARTH" - Horror Show готов и ждет своего релиза на Century Media в июне. Я больше не работаю в проекте SPASTIC INK (с гитаристом WATCHTOWER - Ron Jarzombek). Не спрашивайте почему... Запись нового СД CONTROL DENIED пока приостановлена из за проблем с графиком. Но многое уже сделано и вообще работа будет завершена в ближайшие месяцы. Также сейчас мы где-то посередине процесса записи альбома DRAGONLORD (почти все участники TESTAMENT кроме Чака). Барабаны и гитары уже записаны. В течении следующей недели я буду записывать басс (одновременно с клавишами). Сами TESTAMENT отказались от участия в шоу до выздоровления Чака. Также я и Darren сочиняем материал для нового альбома SADUS...."</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Steve DiGiorgio has posted the following update on his official site....
+
+<p>Bassist extraordinaire Steve DiGiorgio (i.e. TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) has posted the following update on his official web site: “The ICED EARTH album, Horror Show is done and awaiting a mid June release on Century Media. I am no longer working on [WATCHTOWER guitarist Ron Jarzombek’s] SPASTIC INK project... Don't ask. CONTROL DENIED's newest recording is still in limbo because of some weird scheduling problems. But some of it is done, and we'll be finishing it up in the coming months. We're right in the middle of the recording of DRAGONLORD [featuring TESTAMENT’s Eric Peterson on guitar/vocals, plus most of the remaining TESTAMENT members, minus vocalist Chuck]. Drums and most of the guitars are done. I'll be starting bass this week sharing time with Lyle's keyboards. TESTAMENT hasn't officially pulled out of the shows coming up at the end of May/early June [in Europe]. We're waiting on Chuck [Billy]'s word and condition. For those of you who don't know about what's befallen Chuck, you can read all about it on www.testamentlegions.com. Writing is still going on between me and Darren for the new SADUS album. Slowly, but slowly.”</p>
+
+Автор: Yermola
+
+### 02.05.2001 news Ди Джорджио уходит....
+
+<p>Steve DiGiorgio больше не является участником формации "Iced Earth". На днях Jon Schaffer получил факс от менеджмента бассиста с отказом от участия. Теперь Century Media придется переделывать уже запущенную в производство обложку диска "Horror Show" и писать "guest musician" - напротив фамилии Стива. Сейчас команда находится в лихорадочном поиске замены перед туром и грядущей записью нового СД с каверами AC/DC, JUDAS PRIEST, BLACK SABBATH, KISS и IRON MAIDEN. Как заявил Шэффер этот релиз будет частью мульти-дискового бокса с полной историей группы, ремиксами Джима Морриса первых трех альбомов с новым артворком и демо "Enter The Realm". В настоящее время команда собирается перейти с Century Media на Sanctuary Records. Предварительная договоренность уже достигнута. Выход блокбастера "Horrorshow" передвинут на 25 Июня.</p>
+
+Автор: Yermola
+
+### 02.05.2001 news ICED EARTH - DiGiorgio Out....
+
+<p>It appears Steve DiGiorgio is no longer a member of Iced Earth. A few weeks back, Jon Schaffer received a fax from management, telling him that DiGiorgio had no intention of touring. Since that was initially a stipulation for the bassist becoming a member of IE, his status on the forthcoming Horror Show has been changed to "guest musician." Needless to say, Schaffer is not very happy, as once again they are searching for a bassist. In the months before an anticipated Fall tour, the band will hit the studio, to record a CD worth of cover songs, including AC/DC, JUDAS PRIEST, BLACK SABBATH, KISS and IRON MAIDEN. Schaffer says this will be part of a multi-disc box set, to commemorate the history of the band, which will include Jim Morris remixes of the first three CDs, with redone artwork and liner notes, period photos, as well as the Enter The Realm demo pressed on CD. The box set is compensation for the Iced Earth back catalog, which the band wants prior to leaving Century Media. The band are currently in serious negotiations with Sanctuary Records, but nothing is definite. Iced Earth's forthcoming blockbuster, Horrorshow, has been postponed a week and will now be out on June 25th.</p>
+
+Автор: Yermola
+
+### 15.05.2001 news Новый басист ICED EARTH ...
+
+<p>По сообщению официального сайта группы заменой ушедшему Стиву Ди Джорджио стал James MacDonough, который отправляется в ближайшее турне с перспективой стать полноценным членом команды. Кроме того подходит к концу контракт с Century Media и ICED EARTH ведут активные поиски новой сделки.</p>
+
+Автор: Yermola
+
+### 15.05.2001 news James MacDonough return as a touring bassist....
+
+<p>ICED EARTH have issued the following statament via their official web site regarding the group's recent and upcoming activities: "ICED EARTH will no longer be working with [bassist] Steve DiGiorgio. He recently backed out of a previous commitment to tour with the band, and thus his association with ICED EARTH will be limited to a 'guest musician' spot on Horror Show. Currently, plans are forming to have James MacDonough return as a touring bassist, with the potential for him to appear on future recordings as well. "The European release of Horror Show has been moved back a week to June 25th, matching it up with U.S. release a day later. After the release in late June, ICED EARTH plans to begin a world tour to promote the album in August. Unfortunately the hoped-for record release party in Chicago will not be taking place. "Finally, despite reports to the contrary on the Internet, ICED EARTH is not close to signing with any new record label. Although the band's deal with Century Media is coming to an end, and they will likely be talking with many labels in the coming months, no official talks have begun with anyone yet." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.08.2001 reviews Шоу ужасов с земли покрытой льдом
+
+<p>Шоу ужасов с земли покрытой льдом. Три года ожидания не прошли даром. Новый альбом группы посвящен всевозможным кошмарам, чудовищам и ужасам взятых как из легенд, литературы, так и из реальной жизни. Он является как бы возвращением к корням, так и большим шагом вперед по сравнению с предыдущими релизами. Альбом переполнен мрачной, убийственной и холодной атмосферой, отягощаемой мистическими и темными хоралами и оркестром. Сама музыка представляет собой техничный американский power metal наполненный медленными и вялыми, но тяжелыми и агрессивными гитарными риффами, сквозь которые сквозит менланхолия и отчаяние, попутно перемежаемых с классными мелодиями. Очень высококачественная продукция, но, однако, этот альбом нельзя назвать лучшим в дискографии группы. Это довольно сложная и навороченная музыка недоступная широким массам после одного прослушивания. Мелодичный и сокрушительный материал. Потрясает нереальная ритмичность. Каждая песня требует внимания и детального с ней ознакомления. Очень порадовал Matthew Barlow. На каждом новом альбоме у него наблюдается некоторый рост, и эта тенденция подтверждается и на "Horror Show", где он максимально использует все возможности своего сильного голоса, напряженного и немного зверского. Технические возможности музыкантов (Jon Schaffer, Larry Tarnowski, Steve DiGiorgio, Richard Christy) достойны восхищения и преклонения. Разнообразный и, несомненно, достойный всеобщего внимания альбом. Добро пожаловать на выставку ужасов!</p>
+
+Автор: Dimas
+
+### 26.09.2001 news MEGADETH&#x2F;ICED EARTH US dates:
+
+<p>ICED EARTH will be the opening act at two weeks’ worth of dates on MEGADETH’s headlining US tour, starting on October 20th in Cedar Point, North Carolina. According to MEGADETH bassist Dave Ellefson, "we figured it best to continue a good thing with this than take a break and come back with a second leg [of our headlining tour] and I think ICED EARTH will rock everyone's world." Here are the confirmed MEGADETH/ICED EARTH US dates: <br> Oct. 20 - Cedar Point, NC @ 105/101 Pure Rock Bash <br> Oct. 21 – Norfolk, VA @ The Norva <br> Oct. 22 – Atlanta, GA @ Roxy Theater <br> Oct. 24 – Poughkeepsie, NY @ The Chance <br> Oct. 25 - Clifton Park, NY @ Northern Lights <br> Oct. 27 - Ft. Wayne, IN @ Pieres <br> Oct. 28 – Cincinnati, OH @ Bogarts <br> Oct. 30 - La Crosse, WI @ Hollywood Theater <br> Oct. 31 – Wausau, WI @ Bases Loaded <br> Nov. 01 – Rockford, IL @ The Times Theater <br> Nov. 02 - Combined Locks, WI @ Ryan's Ballroom <br> Nov. 03 – Lafayette, IN @ Riehle Brothers Pavillion. <br> In other news, ICED EARTH will now NOT be able to join JUDAS PRIEST on the latter band’s rescheduled US tour, because of ICED EARTH’s previous European touring commitments. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.12.2001 news Iced Earth - NEW ALBUM
+
+<p>Beautiful surprise... but don't get too excited soon! They recorded new album, yes, that's exctaly what they did. But... on this compilated "work" are 5 albums. Only one of them is "the new one". It's a <B>Tribute to the Gods</B>. 1.) Creatures Of The Night (Kiss) 2.) Number Of The Beast (Iron Maiden) 3.) Highway To Hell (AC/DC) 4.) Burnin' For You (Blue Oyster Cult) 5.) God Of Thunder (Kiss) 6.) Screaming For Vengence (Judas Priest) 7.) Dead Babies (Alice Cooper) 8.) Cities On Flame (Blue Oyster Cult) 9.) Long Way To The Top (AC/DC) 10.) Black Sabbath (Black Sabbath) 11.) Hallowed Be Thy Name (Iron Maiden) Other 4 albums are old: - Iced Earth - Night of the Stormrider - Burnt Offerings - Enter the Realm</p>
+
+Автор: Immortal
+
+### 10.01.2002 reviews &quot;Комната страха&quot; для Джона Шэффера....
+
+<p>Никогда не мог понять людей причисляющих ICED EARTH к пауэру. Не выходили еще из стен флоридской "Моррисаунд Студио" звуки подобные Хэлловин или Рапсоди. Что способен записать и спродюссировать "культовый" Джим Моррис, кроме высококачественного дэта американского разлива? Вот и первая вещь "WOLF" начинается, практически, как ненаписанная песня "Death" (R.I.P.). И дальше .... На протяжении всего альбома - плотные десово-трэшевые гитары + пение а-ля "Слепой Гвардеец". Видимо, сотрудничество с Ганси Хрюшем (ой!) - Ханси Кюршем так повлияло на лидера команды Джона Шэффера, что вокальные линии "Horror Show" уже не отличимы от опусов Blind Guardian. <BR><BR> Ужастийная концепция альбома оставила меня равнодушным. Настолько "заезженная" тема... Еще бы по мотивам комиксов лирику написали...<BR><BR> Скучно. Быстро надоедает...Слушается хуже даже совместного "Demons and Wizards", не говоря уж об великолепном "Something Wicked The Way Comes".<BR><BR> P.S. На записи отметились несколько интересных музыкантов: Юнхуи Персифилд (во, имечко!) - голос Кристин в "The Phantom Opera Ghost" и сам Джим Моррис - гитарное соло в "Ghost Of Freedom".</p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 04.06.2002 articles ICED EARTH&#39;s JON SCHAFFER: Everyone In My Band Is Replaceable ...
+
+<P>ICED EARTH mainman Jon Schaffer recently sat down for a lengthy interview with <A HREF="http://www.metalreview.com/">MetalReview </A>in which he discussed a number of topics ranging from the group's tour with MEGADETH to ICED EARTH's next studio album. Here are some of the highlights from the interrogation: </P></>
+<P> </P></>
+<P>On death metal: </P></>
+<P> </P></>
+<P>MetalReview: With the ever-growing death metal scene in Europe and the states, where do foresee power metal five years from now? </P></>
+<P>Jon Schaffer: Ever-growing death metal? It's dead. It's been dead since the early nineties. When it took off in the late '80s, early '90s in Europe, that's when it peaked. I'd say since '95, '96, it's been on a steady stream downward, those guys aren't selling shit anymore. Those guys from OBITUARY and all them they can't sell records anymore. That scene's dead, I don't agree with that at all. I know the numbers, and power metal or whatever is taking over. </P></>
+<P> </P></>
+<P>On MEGADETH: </P></>
+<P> </P></>
+<P>M.R.: Did you see [Dave Mustaine's] shit falling off after Rust in Peace? </P></>
+<P>J.S.: I was never a fan anyway. Cool guy, good band, and a good player, whatever. It's not my thing man, never has been, I like Dave as a person but I'm just not a fan of his music. </P></>
+<P> </P></>
+<P>On ICED EARTH frontman, and Schaffer's brother-in-law, Matt Barlow: </P></>
+<P> </P></>
+<P>M.R.: At this point one could believe everyone in ICED EARTH beside you is expendable. I personally think at this point though Matt is not. </P></>
+<P>J.S.: I've worked with Matt and coached him through every single thing. Matt doesn't have the kind of personality that he would have done this if it wouldn't have been with someone behind him. I can do that with anybody. Take [JUDAS PRIEST frontman] Tim Owens, if we did a project together, I'll show you something that dude didn't even know he had inside of him, that's the way I work. I can pull shit out of people they don't even know they had. I'll push you to the limit. As far as that goes, everybody is replaceable including Matt and he knows that. Does that mean I'm going to fire him next week? No, as long as he does a good job and works hard and is dedicated while doing the right things, then he's in. We have a very good relationship, he feels fortunate to be here. He knows it wouldn't be if it weren't for me. It's become a vehicle that he can do things he enjoys to do. He's a performer not a songwriter. </P></>
+<P> </P></>
+<P>On ICED EARTH drummer Richard Christy and the rest of the band members' status as "musicians-for-hire": </P></>
+<P> </P></>
+<P>M.R.: Do you plan on bringing in Christy for the recording of the new DEMONS & WIZARDS album? </P></>
+<P>J.S.: Richard's going to do everything I will do probably. Every project I do, and every album. </P></>
+<P> </P></>
+<P>M.R.: You guys are pretty tight now? </P></>
+<P>J.S. : Richard's my guy. Everybody in ICED EARTH is on contract. Nobody is a member or a "percentage owner" of the company, it doesn't work like that. As long as these guys work hard and stay focused and do their parts, I don't ask much… well, actually, I do ask a lot. I ask of 100% of all of them. Show up, do you parts, do your job, be reliable, and no drinking before the show, none of that kind of shit. Everything else is pretty cool. Then they have the vehicle to go out and play music in front of huge crowds and make money at something they always dreamed of doing. If they fuck up and cross that line to where it costs me money, causes headaches and problems, then we have problems. I think at this point though I've got a group of guys that have been around long enough that know this is a great opportunity for them. </P></>
+<P> </P></>
+<P>On the forthcoming ICED EARTH album: </P></>
+<P> </P></>
+<P>J.S.: I'm going to be writing both DEMONS [& WIZARDS]and ICED EARTH through the summer. The new [ICED EARTH] album will not be a concept album. When the album comes out, it has to be done just right. Any time I don't follow my gut, I fuck myself. It's going to be an album of like 12 or 13 songs, strong songs. No concept, no theme. I'm done with Horror Show, I have been since we finished it. It's a good record, but it's not personal enough. That's something about the album that just bothers me. I had all this shit going on in my personal life and that's usually when the best shit comes out. I was fighting lyrically, because I had already announced that we were going to do this theme record. I'm going to write about fucking monsters. I wasn't into it. I didn't want to write about monsters. That's why I handed over a lot of the lyrical duties to Matt, because it was like, 'Fuck this.' The Mummy, I'm not in the mood to write about the mummy. I'm done with it. The next album I can probably say there will be some very strong ballads in there, but some really intense dark stuff, too. One song, I already have chunks of it recorded. I decided to keep it off the Horror Show album because I didn't think Century Media had the vision for it and I didn't want to waste it. It's called "Hollow Man", it's one I'm actually going to be doing lead vocals on. It's very powerful and very dark, but it's a cool ballad. It will be our "I Die For You"/"Melancholy", that strong of song. There will be a few of those on the next album but it's going have some very heavy and intense stuff as well. It's going be similar vibe-wise to Something Wicked as far as the rollercoaster of emotions go. There's a lot of stuff I need to get off my chest and it's going to be a good strong album. DEMONS AND WIZARDS, like I said, I'll be working on both kind of parallel. I would like to have ICED EARTH released 2003 in the spring and DEMONS & WIZARDS in the fall. That could change, if we get offered a big major tour through the summer than we will go out on the road for three months then, which will postpone everything. I'm not one of those guys that can go out on the road and write in a hotel room. I need to be locked up in my basement. I get very intense and weird when I write. That's probably one of these reasons why I'm not married anymore. </P></>
+<P> </P></>
+<P>To read the entire interview, visit MetalReview at <A HREF="http://www.metalreview.com/">this location</A>. </P></>
+
+Автор: Yermola
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 05.09.2002 news График релизов CENTURY MEDIA RECORDS....
+
+<p>Сент. 3 NOCTURNAL RITES - Shadowland<BR> Сент. 3 …AND OCEANS - Cypher<BR> Сент. 3 INTO ETERNITY - Dead Or Dreaming<BR> Сент. 17 SHADOWS FALL - The Art of Balance<BR> Окт. 15 YAKUZA - Way of the Dead<BR> Окт. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Окт. 29 LACUNA COIL - Comalies<BR> Окт. 29 ROTTING CHRIST - Genesis<BR> Нояб. 12 ICED EARTH - Tribute To The Gods<BR> Нояб. 12 BLOODBATH - Resurrection Through Carnage<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news Tribute To The Gods ...
+
+<p>With re-mixed & re-mastered versions of Iced Earth, Night Of The Storm Rider, and Burnt Offerings scheduled for re-release with all new artwork on October 1st, the history of ICED EARTH--one of the prides of the metal underground--will be recirculated. As with everything else in the natural world, everything has its roots. In the upcoming Tribute To The Gods album (due out on November 12th), founding member, songwriter and guitarist Jon Schaffer shares some gems in his ticket stub collection and digs a bit deeper to reveal his very personal stories surrounding the bands he grew up listening to. For example: <BR><BR> "Iron Maiden came through Fort Wayne supporting Number Of The Beast opening for .38 Special, but I was grounded. You won't believe how many cool concerts I missed because I was grounded [laughs]. The next year [1983] with Piece Of Mind, they came through and headlined in Fort Wayne, and that's the ticket stub fans will see in the liner notes. School was already out for summer and whatever it was me and my buddies were doing, we left early and walked to the venue, The Fort Wayne Coliseum, from our neighborhood. That was quite a hike. We left at 11 in the morning. The crew guys were outside taking a break, they were passing around a bottle of Jack Daniels and playing frisbee. We were hanging out talking to them, doing a couple of shots of whiskey trying to be cool, and then I remember the band pulling up in their bus a few hours later. They all got off the bus and I was having a hard time speaking. At that point, I was just this gigantic fan, of Steve Harris especially, because with Number Of The Beast, it just intrigued me... Who is writing this shit? As I was reading the lyrics and the liner notes and seeing Harris everywhere, I was like, 'This guy is the fuckin' MAN.' So when it came time to try to speak to him, I just couldn't. I had this homemade shirt on, where I had taken my mom's red fingernail polish and had drawn the Killers logo dripping in blood on this white t-shirt, and I think I said something like, 'Can you sign my Killers... I mean, my shirt?' I felt like an idiot. I was shaking. It was a big deal to me, getting to talk to him for just a few seconds, shake his hand, get his autograph... it's something you hold onto forever. I was down in the 2nd or 3rd row that night, and I was completely, absolutely mesmerized by him, the way he played and his intensity. I've never been the same since."<BR><BR> The tracklisting for Tribute To The Gods is:<BR><BR> 01. Creatures Of The Night (KISS)<BR> 02. Number Of The Beast (IRON MAIDEN)<BR> 03. Highway To Hell (AC/DC)<BR> 04. Screaming For Vengeance (JUDAS PRIEST)<BR> 05. Hallowed Be Thy Name (IRON MAIDEN)<BR> 06. God Of Thunder (KISS) -- featuring Jon Schaffer on vocals<BR> 07. Burnin' For You (Blue Цyster Cult)<BR> 08. Black Sabbath (BLACK SABBATH)<BR> 09. It's A Long Way To The Top (If You Wanna Rock 'n' Roll) (AC/DC)<BR> 10. Dead Babies (ALICE COOPER)<BR> 11. Cities On Flame With Rock & Roll (Blue Цyster Cult)<BR><BR> Jon has confirmed that he will be attending the upcoming ProgPower Festival in Atlanta, Georgia. Stay tuned for an autograph session announcement.</p>
+
+Автор: Yermola
+
+### 06.09.2002 news Воздаяние Богам...
+
+<p>"ICED EARTH" опубликовали трек-лист своего альбома "Tribute To The Gods":<BR><BR> 01. Creatures Of The Night (KISS)<BR> 02. Number Of The Beast (IRON MAIDEN)<BR> 03. Highway To Hell (AC/DC)<BR> 04. Screaming For Vengeance (JUDAS PRIEST)<BR> 05. Hallowed Be Thy Name (IRON MAIDEN)<BR> 06. God Of Thunder (KISS) -- featuring Jon Schaffer on vocals<BR> 07. Burnin' For You (Blue &Ouml;yster Cult)<BR> 08. Black Sabbath (BLACK SABBATH)<BR> 09. It's A Long Way To The Top (If You Wanna Rock 'n' Roll) (AC/DC)<BR> 10. Dead Babies (ALICE COOPER)<BR> 11. Cities On Flame With Rock & Roll (Blue &Ouml;yster Cult)<BR></p>
+
+Автор: Yermola
+
+### 30.10.2002 articles Новинки лицензионного рынка (29.10 - 03.11)
+
+<p>На этой неделе затишье в двух конторах Art Music Group и Soyuz, поэтому обратимся к оставшимся трём лэйблам.<br> Cd-Maximum добавляют очередную порцию underground metal. Альбом 2001 года финской группы Alghazanath “Osiris - Typhon Unmasked” являет собой малоизвестный мелодичный black-metal. В пресс-релизе советуют обратить внимание на «старомодную игру музыкантов, которая проявляется при более тщательном прослушивании». Далее Dominium “Psycho Path Fever” – группа относит себя к progressive-metal, но критики отмечают, что это heavy metal с death-metal вокалом. И третья новинка, о которой нам стало известно к данному моменту довольно известная группа Love Lies Bleeding со свежим релизом, который может порадовать всех любителей мелодичного black’а.<br> Fono продолжают окучивать свой новый контракт с Century Media, но почему-то выходят старые альбомы. Senteced “Amok” 1995 года выпуска и Iced Earth “Something Wicked This Way Comes” 1999 года в рекомендациях не нуждаются. Новый альбом brutal-death формации Dies Irae, в которой можно встретить участников Vader для любителей данного стиля. Также как и новый альбом старой heavy metal группы Riot.<br> Единственная металл-бомба этой недели вновь вышла на Irond. Новый альбом шведов Hammerfall порадует по крайней мере тем, что группа не отходит от своих истоков (хит недели). Альтернативная музыка на Nuclear Blast, скорее всего, продаётся везде кроме России. Группа с названием Prime Sth вряд ли будет пользоваться популярностью. Dominion III представляют «шедевр электронной апокалиптической музыки», играют участники Antichrisis и Dargaard. Проект Sieben представляет собой neo folk от скрипача Мэтта Хоудена, который засветился во множестве проектов. И напоследок Black Heaven, в котором участники Mantus «радуют» нас электронно-танцевальными экспериментами.<br> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 24.11.2002 news Malevolent Creation выступят на Wacken Open Air 2003
+
+<p>Malevolent Creation анонсировали своё участие в легендарном фестивале Wacken Open Air в 2003 году. Уже известно, что наряду с ними будут участвовать Iced Earth, Stratovarius, Nile, Gamma Ray и Dark Angel. После выхода восьмого студийного альбома группа планирует отправится в массивный тур, в том числе по Штатам вместе с Cannibal Corpse.</p>
+
+Автор: Vit Belov
+
+### 07.01.2003 articles Matt Barlow рассказывает...
+
+<p>В октябре минувшего года на Century Media были переизданы все альбомы американских power-металлистов Iced Earth. Фэны во всём мире получили в подарок новые кавер-обложки и ремастированный звук. Вокалист Matt Barlow совершает экскурс в историю при помощи Jedd Beaudoin из электронного журнала Ytsejam.Com</p>
+<p> (Burnt Offerings) ‘Это было довольно сложное время для группы. Процесс записи оставил плохие воспоминания для Джона (Джон Шаффер – лидер группы и основной композитор, прим. авт.), хотя он и гордится этим альбомом. У меня же остались двоякие воспоминания, с одной стороны всей группе было нехорошо, но с другой… Это был мой дебют в Iced Earth, и я всегда буду с теплотой вспоминать этот альбом. Мы знаем, что данная пластинка – фаворит у фэнов, особенно в США. Но эта работа, гораздо более мрачная, чем весь наш остальной материал. Там слишком много ненависти, настоящей ненависти. Это чувство глубоко сидело в Джоне и вылилось в альбом. Всё это являлось полной противоположностью тому, что было, когда он писал ‘Dark Saga’. На предыдущем альбоме он ещё видел ‘свет’… ‘Dark Saga’ благодаря этому снискал любовь фэнов в Европе’.</p>
+<P> (Days Of Purgatory) ‘Этот сборник принёс мне довольно много счастливых мгновений. Мне представилась возможность записать старый материал, который я постоянно исполнял на концертах. Нам казалось, что слушатель получит удовольствие от новой обложки и новых версий наших классических вещей’.</>
+<P> (Something Wicked…) ‘Крутая запись! Она стоит особняком. Альбом не был концептуальным, хотя и имел в конце трилогию. Но песни в основном были очень личностными. ‘Melancholy’, ‘Watching Over Me’, ‘Stand Alone’… все эти песни полны нашими собственными переживаниями'.<BR> JB: ‘Что изменилось в группе с момента Вашего прихода?’ <BR> MB: ‘Написание песен почти целиком сконцентрировалось в руках Джона, в то время как на первых альбомах, в сочинении музыки участвовали все. Я думаю, что это лучше для Iced Earth, потому что Джон всегда был движущей силой группы. То, что он пишет – это сердце нашего звука. Это не означает, что саунд всегда будет одинаковым, но это делает связь между альбомами более тесной, а это всегда хорошо’.</>
+<P> (Horror Show) ‘Отклик на альбом сформировался ещё до того, как все его услышали. ‘Horror Show’ должен был получится дурацким, потому что всегда есть вероятность сделать что-то очень плохое, когда придерживаешься подобных концепций. Но мы всё равно решили пойти этим путём, так как верили, что существует возможность хорошо прописать каждый характер. Мы не сделали что-то похожее на последнюю идиотскую ‘Мумию’. Мы хотели сделать этого главного героя, потому что в нём есть отражения нашей собственной жизни. Мы все изгои… Часто всех этих монстров не понимают и большинство людей, не важно признают они чудовищ или нет, приписывают им характер Дракулы. Из-за этого, эти герои и так часто упоминаются в нашей литературе. Природа человека - разрушать то, что не понимаешь. Это и является главной мыслью данного повествования’.</>
+
+Автор: Vit Belov
+
+### 16.01.2003 news Новый контракт ICED EARTH
+
+<p>Флоридские металлеры ICED EARTH расставшись с Century Media Records, подписали новый контракт с SPV/Steamhammer Records. Именно на этом лэйбле и выйдет новый альбом группы над которым она сейчас работает. Он называется "Glorious Burden" и готовится к выходу в мае-июне 2003 года.</p>
+
+Автор: Dimas
+
+### 28.03.2003 news ICED EARTH Split With Guitarist, Begin Recording New CD ...
+
+<p>ICED EARTH have parted ways with guitarist Larry Tarnowski on the eve of the recording sessions for the group's new CD, tentatively titled "Glorious Burden". "[Larry] will continue his studies and we wish him all the best for his future endeavors," ICED EARTH mainman Jon Schaffer wrote on the band's official web site. "There will be a few different guest appearances on the record for the solo's and we will be deciding on a touring replacement in the near future. I'll be making that decision after the recording and will let [everyone] know who it will be in the next few months." <BR><BR> "Next week we begin recording drum tracks and the next [ICED EARTH album] is fully underway," Schaffer revealed. "We will be doing everything but the drums in my studio. The drums and the mix will be done in Tampa at Morrisound [Studios]. [Producer] Jim Morris and I will be flying to Prague to record the symphony in mid-May as it stands right now. I'm very much looking forward to that. We are kicking around the idea of a full surround sound mix of 'Gettysburg' on the DVD audio format as a bonus disc. We are checking on costs and all that fun stuff now to see if it's possible. I've always wanted to do this and this epic is the perfect choice for it. <BR><BR> "Also, we will be auctioning off the [ICED EARTH] drum kit for charity on ebay, but it will have to be after the recording due to my intense schedule."<BR><BR> ICED EARTH's follow-up to 2001's "Horror Show" is due in late August/early September through SPV/Steamhammer Records.</p>
+
+Автор: Yermola
+
+### 28.03.2003 news ICED EARTH расстались с гитаристом...
+
+<p>ICED EARTH расстались с гитаристом Larry Tarnowski в середине записи нового альбома группы "Glorious Burden". Тарновский собрался продолжить свою учебу и это мешало его участию в команде. Джон Шэффер пожелал ему всяческих успехов и сказал, что в ближайшее время будет выбрана замена из числа тех кто играл гостевые соло на альбоме. <BR><BR> "Glorious Burden" запланирован к выходу на SPV/Steamhammer Records в конце Августа.</p>
+
+Автор: Yermola
+
+### 02.06.2003 news Matt Barlow покинул ICED EARTH
+
+<p>Вокалист ICED EARTH Matt Barlow покинул свою группу. Он решил посвятить себя карьере административного работника в департаменте национальной безопасности. Подробности на официальном сайте группы.</p>
+
+Автор: Dimas
+
+### 17.06.2003 news Новый гитарист в ICED EARTH
+
+<p>Новым вторым гитаристом ICED EARTH официально стал Ralph Santolla (ex-DEATH, MILLENIUM) заменивший Larry Tarnowski, покинувшего недавно команду.</p>
+
+Автор: Dimas
+
+### 01.08.2003 news Новый вокалист ICED EARTH
+
+<p>Новым вокалистом американской thrash-power формации ICED EARTH стал Tim Owens (ex-JUDAS PRIEST). Именно его голос будет звучать на новом альбоме группы под названием "The Glorious Burden". Работа над ним уже завершена. По <A HREF="http://www.icedearth.com/html/sounds.htm/">этому</A> адресу можно послушать фрагменты некоторых композиций с нового альбома.</p>
+
+Автор: Dimas
+
+### 11.08.2003 news Tim Owens всего лишь гость
+
+<p>По словам мастермайнда ICED EARTH Jon Schaffer'а, Tim "Ripper" Owens записавший партии вокала для нового альбома группы "The Glorious Burden", выступает на альбоме только в качестве сессионного вокалиста, но не как постоянный участник группы. Релиз назначен на осень через SPV Records.</p>
+
+Автор: Dimas
+
+### 07.09.2003 news Iced Earth in Europe
+
+Mar. 19 – Antwerpen, BEL - Hof Ter Loo<BR>Mar. 20 – Hardenberg, NETH - Podium<BR>Mar. 21 – London, UK - Mean Fiddler<BR>Mar. 22 – Paris, FRA - Elysee Monmatre<BR>Mar. 23 – Lyon, FRA - Transbordeur<BR>Mar. 25 – Madrid, SPA - Aqualung<BR>Mar. 26 – Bergara, SPA - Sala Jam<BR>Mar. 27 – Barcelona, SPA - Razzmatazz<BR>Mar. 29 – Milan, ITA - Rolling Stone<BR>Mar. 30 – Pratteln, SWI - Z7<BR>Apr. 01 – K&ouml;ln, GER - E-Werk<BR>Apr. 02 – N&uuml;rnberg, GER - L&ouml;wensall<BR>Apr. 03 – Filderstadt, GER - Filharmonie<BR>Apr. 04 – Wien, AUT - Planet Music<BR>Apr. 06 – Hamburg, GER - Docks<BR>Apr. 07 – Malm&ouml;, SWE - KB<BR>Apr. 08 – Gothenburg, SWE - Karen<BR>Apr. 09 – Stockholm, SWE - Arenan<BR>Apr. 11 – Helsinki, FIN - Nosturi
+Автор: Vit Belov
+
+### 20.09.2003 news Новый альбом ICED EARTH передвинут на январь
+
+<IMG height=200 alt="" hspace=0 src="/images/news_rus/2003.09/4838.jpg" width=200 align="left" border=0>Дата выхода нового альбома ICED EARTH 'The Glorious Burden' официально передвинута на 13 января 2004 года. Сингл, который будет доступен 27 октября, содержит следующие трэки: "The Reckoning (Don't Tread On Me)", "When The Eagle Cries" (Unplugged), "Valley Forge" и "Hollow Man". На альбом же войдут следующие песни: 
+<P>01. Star Spangled Banner<BR>02. Declaration Day<BR>03. When The Eagle Cries<BR>04. The Reckoning (Don't Tread On Me)<BR>05. Attila<BR>06. Red Baron/Blue Max<BR>07. Hollow Man<BR>08. Waterloo<BR>09. Valley Forge<BR>10. Gettysburg (1863)<BR>11. The Devil To Pay<BR>12. Hold At All Costs<BR>13. High Water Mark</P>
+Автор: Vit Belov
+
+### 13.11.2003 reviews Новобранец не ко двору
+
+<DIV id=0></DIV><BR><BR><SPAN id=hbblock><LABEL id=HbSession SessionId="976816460"></LABEL>
+<P>Как известно, в составе любимой многими в нашей стране команды ICED EARTH произошло небольшое, но очень важное изменение. Ушедшего&nbsp;Барлоу сменил за микрофонной стойкой Тим Оуэнс "Риппер", до этого голосивший в JUDAS PRIEST на месте недавно вернувшегося в родную обитель Хэлфорда. Признаюсь, что как и многие другие, я весьма опасался за будущее группы, последний полноформатник которой и так был уже полслабее своих предшественников. Опасения оправдались. На минике из четырех вещей только одна слушабельна (даже я бы сказал, весьма хороша) - акустическая баллада When The Eagle Cries. А остальные... Мало того, что вокалист-новобранец поет так же отвратно, как и в "Пристах", пытаясь при этом вытянуть ноты, которые ему явно не под силу, так и музыка группы стала заметно слабее. Если остальные треки в грядущем лонгплее The Glorius Burden будут под стать данному ЕР, то пластинку можно будет совершенно спокойно не покупать, несмотря на обещанное издание deluxe (наверняка по меньшей мере digi-book). Стоит ли группе уйти на покой, или заняться поиском нового певца, или же попробовать переосмыслить свои музыкальные идеи - решать, конечно же, самой "Замерзшей Землице". А нам пока приходится только констатировать, что команда сделала еще один шаг назад, и все же надеяться, что данные треки окажутся самыми неудачными и на полноформатнике. Если б не вышеназванная баллада - даже не знаю, сколь низкой могла бы быть моя оценка...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P></SPAN>
+Автор: Ixtiandr
+
+### 14.01.2004 reviews Отличное начало года
+
+<P>Первым альбомом 2004 года, доступным нашим слушателям, стал новейший опус от американцев <B>ICED EARTH</B>. Россия - первая страна, в которой вышел этот альбом. </P>
+<P><B>'The Glorious Burden'</B> стал дебютом в группе <B>Tim 'Ripper' Owens (ex-Judas Priest).</B> Его появление стало основным фактором, характеризующим этот альбом. По музыке этот CD - настоящий альбом <B>ICED EARTH</B>. Заменив лиричного <B>Mat Barlow</B> на техничного <B>Tim Owens, Jon Schaffer</B> немного изменил внешность группы. "Жертва <B>Halford</B>'a" справляется со своими обязанностями безукоризненно, но его голос, по моему мнению, не то, что нужно группе. Несколько сумбурной музыке <B>ICED EARTH</B> больше подходят лирические вокалисты. А здесь, порой, кажется, что за высоким сильным вокалом не скрывается ничего, кроме этого самого голоса. </P>
+<P>Музыкально альбом очень разнообразен и достаточно интересен. 70 минут музыки пролетают незаметно. Хотя и встречаются не очень сильные песни (сингловая <B>The Reckoning</B>), они стираются в памяти после прослушивания шикарного 30-минутного опуса <B>Gettysburg 1863</B>. Сага о гражданской войне в Штатах, в записи которой принял участия Пражский симфонический оркестр, знакомый по работе с <B>RAGE</B>. </P>
+<P>Радостное начало года, которое может настроить на оптимистичный лад даже такого скептика, как я.</P>
+Автор: Vit Belov
+
+### 03.02.2004 reviews Песни американсих патриотов или вроде того
+
+<P>Из колонок моего проигрывателя зазвучала “Declaration Day”, первая песенка этого опуса…. Прошло 20 секунд…. Не может этого быть, Мэтью Барлоу! Нет, Я обознался, это не он, он так не визжал….</P>
+<P>Во-первых, этот диск на голову сильнее “Horror Show” по общему уровню композиций, вокальной и инструментальной работе. Как только я узнал о смене вокалиста, я был уверен, что единственный путь удержаться группе на плаву, а то и закрепиться, – это сделать по настоящему качественный альбом по звуку, инструменталу, сведению. От вокала, если бы он получился не гармоничный или попросту скверный, можно было бы откреститься (“Мол, первый альбом в новом составе”). Эта задача выполнена на все 100%. Вокал и в правду получился на любителя, но сами хоровые вставки и т.д. максимально приближены к звучанию предыдущих трех дисков. А музыка получилась вполне коммерческая, a-la “Something Wicked This Way Comes”.</P>
+<P>Во-вторых, это единственный диск за всю дискографию Iced Earth, на котором нет ни одного настоящего хита. С композиторством не получилось нынче.</P>
+<P>В-третьих, я очень уважительно отношусь к американской истории, но подобная концепция мне кажется не совсем оправданной или даже бессмысленной. Впрочем, как и любая концепция дисков “I.E.”.</P>
+<P>И, наконец, в-четвёртых, я очень порадовался оформлению вообще и отсутствию фотографий нового состава команды в частности. Группа, всегда несколько спекулировавшая на мрачности (сказать «готичности» язык не поворачивается), очень комично бы смотрелась с новым вокалистом около очередного какого-нибудь мраморного креста.</P>
+<P>Итого крепкая четвёрка.</P>
+Автор: Uneral
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 16.02.2004 reviews Земля совсем замёрзла
+
+<P>Два наиболее важных события, произошедших за последнее время в лагере "Замерзшей Землицы" -&nbsp;это смена вокалиста и смена лейбла. Хорошо, хоть Трэвис Смит как "главный оформитель" остался. После более чем сомнительного Horror Show начали закрадываться сомнения насчет успешного будущего группы. Когда ушел Барлоу и на его место пророчили партнера Шаффера по Demons & Wizards, легендарного певца Blind Guardian Ханзи Кюрша, многие стали хвататься за головы. Но результат "превзошел" все ожидания: в группе вокалистом стал бесталанный крикун от хэви-метала, Тим Оуэнс "Рипер", знакомый по неудачной работе с Judas Priest, откуда он и был выгнан ради камбэка самого известного гомосексуалиста тяжелой музыки. Рипер "отличился" и в Iced Earth, и его "работа" уже на ЕР-шнике прошлого года The Reckoning давала понять, что ничего хорошего от грядущего лонгплея группы ждать не приходится. Так и получилось. Несмотря на отдельные радующие душу напоминания о "старых ершах", альбом получился откровенно проходным, благодаря, в основном, вокалу того самого Рипера. Весьма неплохая unplugged-баллада (на ЕР) When The Eagle Cries стала на диске уже неакустической, что окончательно испортило свежайший релиз группы. Помощь десятка сессионщиков и Пражского филармонического оркестра дело не спасла - The Glorious Burden является в музыкальном плане самой слабой пластинкой коллектива за всю его историю (имхо, естественно). Максимум, что за нее можно поставить - это 6 из 10, и то благодаря оформлению (кстати, на союзовском варианте диска булкет легко влезает назад, если его, так сказать, "вставлять с противоположной стороны").</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 12.03.2004 news Iced Earth, Thunderstone and Primal Fear in Europe
+
+<B>18.03. NL-Tilburg - 013<BR>19.03. B-Antwerpen - Hof Ter Loo<BR>20.03. NL-Hardenberg - Podium<BR>21.03. UK-London - Mean Fiddler<BR>22.03. F-Paris - Elysee Montmatre<BR>24.03. E-Madrid - Aqualung<BR>25.03. E-Valencia - Republicca<BR>26.03. E-Barcelona - Razzmatazz<BR>27.03. E-Bergara - Sala Jam<BR>29.03. I-Mailand - Rolling Stone<BR>30.03. CH-Pratteln - Z7<BR>01.04. D-K&ouml;ln - E-Werk<BR>02.04. D-N&uuml;rnberg - L&ouml;wensaal<BR>03.04. D-Filderstadt - Filharmonie<BR>04.04. A-Wien - Planet Music<BR>06.04. D-Hamburg - Grosse Freiheit<BR>07.04. S-Malm&ouml; - KB<BR>08.04. S-G&ouml;teborg - Karen<BR>09.04. S-Stockholm - Arenan<BR>11.04. FIN-Helsinki - Nosturi</B><BR>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 12.04.2004 news SIRENIA первая в марте и по итогам первого квартала
+
+<P>Так выглядит десять лучших позиций по итогам продаж в магазине <B>B2-100 'Metal & Progressive'</B> в "Горбушкином Дворе" в марте:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=481 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD></TR></TBODY></TABLE></P>
+<P>Феноменальные продажи нового альбома <B>Morten Veland (ex-Tristania)</B> и его группы <B>SIRENIA </B>позволили им занять первое место по итогам квартальных продаж. А вот как выглядит десятка по итогам первого квартала 2004 года:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=563 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 154pt" width=205>
+<COL style="WIDTH: 269pt" width=358>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=205 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=358><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ЭПИДЕМИЯ</B></TD>
+<TD><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ICED EARTH</B></TD>
+<TD><B>GLORIOUS BURDEN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>MY DYING BRIDE</B></TD>
+<TD><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 14.05.2004 news Новый tribute to Black Sabbath
+
+<P><B>Cleopatra Records</B> выпускает новый tribute to <B>BLACK SABBATH</B>. Трэк-лист:</P>
+<P><IMG height=217 alt="" hspace=0 src="/images/news_rus/2004.05/6513.jpg" width=216 align="right" border=5>01. <B>ICED EARTH</B> - "Black Sabbath"<BR>02. <B>PRIMAL FEAR</B> - "Die Young"<BR>03. <B>JAG PANZER</B> - "Children Of The Sea"<BR>04. <B>RACER X</B> - "Children Of The Grave"<BR>05. <B>LYNCH/NEIL</B> - "Paranoid"<BR>06. <B>ICARUS WITCH</B> - "Falling Off The Edge Of The World"<BR>07. <B>FOREVER SAY DIE!</B> - "Sabbath Bloody Sabbath"<BR>08. <B>ORDER OF NINE</B> - "Disturbing The Priest"<BR>09. <B>STEEL PROPHET</B> - "Neon Knights"<BR>10. <B>AGENT STEEL</B> - "Hole In The Sky"<BR>11. <B>DOFKA</B> - "N.I.B."<BR>12. <B>TWISTED TOWER DIRE</B> - "Glory Ride"<BR>13. <B>OCTOBER 31</B> - "Danger Zone"<BR></P>
+Автор: Vit Belov
+
+### 19.05.2004 news ICED EARTH поменяли барабанщика
+
+<P><B>Richard Christy</B> покинул <B>ICED EARTH</B>. Уже названа замена на его роль в sold-out шоу этого лета - <B>Bobby Jarzombek</B> (<B>HALFORD, RIOT</B>).</P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 04.07.2004 news ICED EARTH покинул гитарист
+
+<B>Ralph Santolla</B> покинул <B>ICED EARTH</B>, чтобы присоединиться к группе <B>Sebastian Bach</B>. Причины<B> Ralph</B> назвать отказался, но он надеется, что они остануться в тайне.
+Автор: Vit Belov
+
+### 13.09.2004 news James MacDonough перешёл в MEGADETH
+
+<P>Басист <STRONG>James MacDonough</STRONG>&nbsp;официально перешёл из <STRONG>ICED EARTH</STRONG> в <STRONG>MEGADETH</STRONG>.&nbsp;<STRONG>James</STRONG> просто называет <STRONG>MEGADETH</STRONG> своей любимой группой, поэтому он не задумываясь кинул бывших коллег.&nbsp;</P>
+Автор: Vit Belov
+
+### 26.01.2005 news ICED EARTH выпускают DVD
+
+<P>В ближайшее время свет увидит необычный DVD-релиз от <STRONG>ICED EARTH 'Gettysburg'</STRONG>. На этот альбом войдёт сам эпик с последнего альбома, при чём в металл и оркестровом варианте, а также комментарии специалистов об этой знаменательной битве. Также мы сможем посмотреть интервью с <STRONG>Jon Schaffer</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.01.2005 news ICED EARTH to release DVD
+
+<P><STRONG>ICED EARTH</STRONG> to release&nbsp;the long-awaited '<STRONG>Gettysburg</STRONG>' DVD. This unique release will feature the epic work<STRONG> "Gettysburg (1863)"</STRONG> from 2004's <STRONG>'The Glorious Burden'</STRONG> stepping out of its stereo confines and expanding into a powerful 5.1-channel surround-sound mix. In fact, there will be two different surround-sound mixes (one "metal" and one "theatrical"), set to moving images. Additionally, the DVD will feature a historical commentary from the Gettysburg battlefield, and an in-depth interview with <STRONG>Jon Schaffer</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.05.2006 news Грандиозные планы Jon Schaffer
+
+<P>После почти годового молчания вновь обновлен сайт <STRONG>ICED EARTH</STRONG>, на котором появилось обращение лидера группы<STRONG> Jon Schaffer</STRONG>. <STRONG>Jon</STRONG> сообщил, что практически закончил сочинение грандиознейшего альбома из двух частей, который продолжит коцепцию пластинки <STRONG>ICED EARTH "Something Wicked...".</STRONG> История будет разделена на два альбома, дата релиза которых пока не называется.</P>
+<P>Также <STRONG>Jon</STRONG> поделился планами записи концертного альбома <STRONG>DEMONS & WIZARDS</STRONG>. Здесь тоже пока ничего не ясно, так как второй участник группы <STRONG>Hansi (BLIND GUARDIAN)</STRONG> очень занят со своей основной группой.</P>
+Автор: Vit Belov
+
+### 05.07.2006 news ICED EARTH назвали имя гитариста
+
+<P>Новым гитаристом<STRONG> ICED EARTH</STRONG> стал <STRONG>Ernie Carletti</STRONG>. Лидер группы <STRONG>Jon Schaffer</STRONG> назвал его лучшим после прослушивания нескольких музыкантов.</P>
+Автор: Vit Belov
+
+### 12.10.2006 news ICED EARTH вернули барабанщика
+
+<P>Новым старым барабанщиком<STRONG> ICED EARTH</STRONG> стал <STRONG>Brent Smedley. </STRONG>Тем временем группа потеряла недавно приобретённого гитариста <STRONG>Ernie Carletti, </STRONG>который в настоящее время предстал перед судом по обвинению в изнасиловании 19-летней студентки. Также несостоявшегося члена<STRONG> ICED EARTH</STRONG> обвиняют в незаконном хранении оружия и похищении людей.</P>
+Автор: Vit Belov
+
+### 14.10.2006 news Новый гитарист ICED EARTH
+
+<P>Новым гитаристом <STRONG>ICED EARTH</STRONG> стал англичанин <STRONG>Tim Mills</STRONG>. Музакант никогда не играл в профессиональных группах и занимался бизнесом. Надеемся, <STRONG>Jon Schaffer</STRONG> повезёт с ним, и он не окажется насильником, как предыдущий кандидат на должность гитариста некто <STRONG>Ernie Carletti.</STRONG></P>
+Автор: Vit Belov
+
+### 05.01.2007 news ICED EARTH начинают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ICED EARTH</STRONG> начнут запись второй части эпохального альбома "<STRONG>Something Wicked This Way Comes</STRONG>" первого февраля. Уже в июне на <STRONG>SPV</STRONG> выйдет перезаписанная версия трилогии, оригинально выходившей в 1998 году, будучи частью одноимённого альбома. Три песни с альбома 1998 года <STRONG>"Prophecy", "Birth of the Wicked"</STRONG> и <STRONG>"The Coming Curse</STRONG>", а также одна с новой пластинки составят трэк-лист этого мини-альбома.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Осенью на<STRONG> SPV</STRONG> выйдет&nbsp;первая часть&nbsp;альбома "<STRONG>Something Wicked Part I</STRONG>", а&nbsp;вторая часть выйдет только в 2008 году.&nbsp;Трэк-лист:</FONT></P>
+<P><STRONG>Something Wicked - Part 1<BR></STRONG>1. <STRONG>Overture <BR></STRONG>2. <STRONG>Something Wicked (Part 1)<BR></STRONG>3. <STRONG>Invasion<BR></STRONG>4. <STRONG>Man's Motivation <BR></STRONG>5. <STRONG>The Setian Massacre</STRONG><BR>6.<STRONG> Ghost Dance Ritual<BR></STRONG>7. <STRONG>Reflections <BR></STRONG>8. <STRONG>Ten Thousand Strong</STRONG><BR>9. <STRONG>Execution <BR></STRONG>10. <STRONG>Order of the Rose<BR></STRONG>11. <STRONG>The Clouding<BR></STRONG>12. <STRONG>Infiltrate and Assimilate<BR></STRONG>13. <STRONG>Retribution From the Shadows</STRONG><BR>14. <STRONG>Something Wicked (Part 2)<BR></STRONG>15. <STRONG>The Domino Decree<BR></STRONG>16. <STRONG>The Division of Religion (Man Needs God)<BR></STRONG>17. <STRONG>Novo Ordo Seclorum (Cycle Of A New Age)</STRONG></P>
+<P><STRONG>Something Wicked - Part 2<BR></STRONG>1. <STRONG>The Sacred Flames</STRONG> <BR>2. <STRONG>Behold the Wicked Child<BR></STRONG>3. <STRONG>Minions of the Watch<BR></STRONG>4. <STRONG>A Gift Or A Curse?<BR></STRONG>5. <STRONG>I Walk Among You<BR></STRONG>6. <STRONG>My Burden, My Honor</STRONG><BR>7. <STRONG>Ancient Rage of the High Priest<BR></STRONG>8. <STRONG>A Gathering Threat <BR></STRONG>9. <STRONG>Time Marches On<BR></STRONG>10. <STRONG>Sacrificial Kingdoms<BR></STRONG>11.<STRONG> Something Wicked (Part 3)<BR></STRONG>12. <STRONG>Divide Devour<BR></STRONG>13. <STRONG>Conspiracy / A Charge to Keep<BR></STRONG>14. <STRONG>Come What May (Mankind Is Lost)&nbsp;</STRONG></P>
+Автор: Vit Belov
+
+### 23.05.2007 news ICED EARTH назвали гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Jon Schaffer</STRONG> назвал имя нового гитариста. Им стал некто <STRONG>Troy Seele</STRONG>, которого Jon представил, как своего старого друга и лучшего гитариста в Индионаполисе. Надеюсь, его не посадят в тюрьму, как предыдущего гитарного героя<STRONG> ICED EARTH</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 24.05.2007 reviews Увертюра грядущих альбомов вселяет надежду
+
+<P>Главное действующее лицо американцев Iced Earth Джон Шаффер не сидел эти годы сложа руки. Совсем уже скоро поклонники этого выдающегося коллектива смогут услышать двухдисковое продолжение истории, начатой в 1998-ом году на блестящем альбоме "Something Wicked This Way Comes". Первая часть будет называться "Framing Armageddon (Something Wicked part 1)", вторая - &nbsp;"Revelation Abomination (Something Wicked part 2)". Дабы скрасить фанатам ожидание, Iced Earth выпускают макси-сингл "Overture Of The Wicked", на который вошла новая вещь 'Ten Thousand Strong' с первой части грядущего альбома (но ее версия будет немного отличаться от сингловой) и полностью перезаписанная "Something Wicked Trilogy" из трех песен, которая знакома слушателям по уже упоминавшемуся релизу 1998-го года. Что касается "новой старой трилогии", то данный вариант довольно сильно отличается от оригинала, хотя, думаю, здесь больше речь идет о том, который из вокалистов группы, бывший Мэтью Барлоу или нынешний Тим "Риппер" Оуэнс, вам больше по душе. Лично я всегда голосовал обеими руками за первого, а про "пение" второго неоднократно высказывался, так что не буду повторяться. Новая же песня может вселить надежду в тех, кто почти уже поставил на группе крест после последней пока что студийной работы Iced Earth "The Glorious Burden", которую многие по праву считают самой слабой пластинкой коллектива, ибо 'Ten Thousand Strong' сделана как раз скорее в духе лучших релизов группы. Я тоже надеюсь на грядущие альбомы, хотя вокал "Риппера" может, к сожалению, испортить всю музыкальную составляющую. Что ж, поживем - услышим.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 04.07.2007 news Новый альбом ICED EARTH
+
+<P>Новый полноформатник <STRONG>ICED EARTH</STRONG> <STRONG>"Framing Armageddon - Something Wicked Part 1"</STRONG> выходит 10 сентября на <STRONG>SPV</STRONG>. Уже готовится вторая часть альбома <STRONG>"Revelation Abomination - Something Wicked Part 2", </STRONG>которая выйдет весной. Трэк-листы:</P>
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.07/11695.jpg" width=400 align=right border=5>"Framing Armageddon - Something Wicked Part 1"</STRONG> :<BR>01. <B>Overture</B><BR>02. <B>Something Wicked (Part 1)</B><BR>03. <B>Invasion</B><BR>04. <B>Man's Motivation</B><BR>05. <B>The Setian Massacre</B><BR>06. <B>A Charge to Keep</B><BR>07. <B>Reflections</B><BR>08. <B>Ten Thousand Strong</B><BR>09. <B>Execution</B><BR>10. <B>Order of the Rose</B><BR>11. <B>The Clouding</B><BR>12. <B>Infiltrate and Assimilate</B><BR>13. <B>Retribution Through the Ages</B><BR>14. <B>Something Wicked (Part 2)</B><BR>15. <B>The Domino Decree</B><BR>16. <B>Framing Armageddon</B><BR>17. <B>When Stars Collide (Born is He)</B><BR>18. <B>The Awakening</B><BR><BR><B>"Revelation Abomination - Something Wicked Part 2"</B> :<BR>01. <B>The Sacred Flames</B><BR>02. <B>Behold the Wicked Child</B><BR>03. <B>Minions of the Watch</B><BR>04. <B>A Gift or a Curse</B><BR>05. <B>I Walk Among You</B><BR>06. <B>Harbinger of Fate</B><BR>07. <B>Ancient Rage of the High Priest</B><BR>08. <B>A Gathering Threat / Time Marches On</B><BR>09. <B>Sacrificial Kingdoms</B><BR>10. <B>Something Wicked (Part 3)</B><BR>11. <B>Divide Devour</B><BR>12. <B>Conspiracy / Pilgrimage In Guile</B><BR>13. <B>Come What May</B></P>
+Автор: Vit Belov
+
+### 29.08.2007 reviews Подогревая интерес...
+
+<P>Собственно, писать про данный промо-сингл практически нечего. Мистер Шаффер и Со продолжают подогревать интерес к выходу своего нового альбома "Framing Armageddon", который должен появиться на полках магазинов в сентябре. На этот раз нам представлены всего две песни, 'Setian Massacre' и&nbsp;'Ten Thousamd Strong' (на этот раз уже в альбомной версии, в отличие от недавнего макси-сингла).&nbsp; Хорошо, что ждать полноформатника осталось уже не больше месяца, а то бы мы получили по две версии всех номеров пластинки, а фанаты сбились бы с ног, разыскивая все варианты и промо-диски. Так что пока нам приходится только ждать, а уже после появления "Framing Armageddon" мы сможем оценить работу, которую проделали Iced Earth за последнее время. Отдельные же песни, хоть и не давая представления об альбоме в целом, внушают надежду, что наши ожидания будут не напрасными.</P>
+<P>Альбом представлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 16.10.2007 reviews Неоправдавшиеся ожидания
+
+<P>Iced Earth это одна из тех команд, чьи новые альбомы ожидают с наибольшим нетерпением. Даже после таких неубедительных работ, как "Horror Show" или, тем более,&nbsp;"The Glorious Burden". Фанаты, они, знаете ли, всегда верят и ждут. Бессменный лидер группы, Джон Шеффер, активно подогревал выход нового альбома Iced Earth, периодически делая заявления то о смене его названия, то о трек-листе, то о грядущем последователе нового релиза, то выпуская "разогревающие" ЕР и промо-синглы. Последним его "достижением" стал промо-диск, где голос Шеффера слышен просто постоянно (voiceover promo cd), что очень мешает прослушивать сам альбом. Не могу сказать, что все эти ужимки и прыжки были так нужны, ибо "Framing Armageddon (Something Wicked Part I)" не стал пластинкой, которую можно отнести к лучшим работам команды. Intro, outro, интермеццо... где же мы это недавно всё слышали? Аааа, да на последнем опусе самой тру-метал-команды планеты Manowar! Все эти вставки и переходы сделаны из рук вон плохо - они слушаются какими-то отдельными пьесками и абсолютно не выполняют свою роль, то есть не связывают элегантно композиции между собой, хотя Шеффер наверняка думает по-другому. Кстати, Джон и самый известный бесталанный вокалист тяжелой сцены Тим Риппер Оуэнс остались единственными, кто принимал участие в записи предыдущего полноформатника Iced Earth, остальные же - свежие рекруты в составе американских монстров пауэр-трэш-метала. Жаль, что поклонники группы оказались немного обманутыми, и не они первые, такой выкрутас с названием альбома недавно провернули Helloween&nbsp;(и на подходе Gamma Ray), ибо сравнивать великолепный&nbsp;"Something Wicked This Way Comes" (а вся история с новыми альбомами началась именно тогда, почти 10 лет назад) с "Framing Armageddon" просто смешно. Да, время от времени мы узнаем традиционный, фирменный, риффинг "Ершей", но ни одного хита им на этот раз создать не удалось. Пожалуй, звездная болезнь сыграла свою печальную роль. И зачем было устраивать много шума из-за ничего? Как ни странно, наиболее удачной песней оказалась балладоподобная 'The Clouding', которую, впрочем, "гений вокала" Оуэнс умудрился всё равно испортить. К минусам отнесу еще и продюсирование, звук можно было сделать намного мощнее и сочнее, хотя, быть может, это издержки промо-диска, но у меня такой надежды нет. Отнюдь, "Framing Armageddon" нельзя назвать плохим альбомом, но памятуя о том, на что были способны Iced Earth раньше... Что ж, подождем Part II, тогда и будем делать выводы, ставить ли нам на Iced Earth жирный крест или нет. Полбалла накидываю за симпатичного волка (который справа) на обложке.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 24.10.2007 reviews Первая часть, которая должна стать последней
+
+<P>О концептуальных альбомах мы говорили уже не раз. Все эти сиквелы, приквелы, оперы, «шмоперы». Иногда группе удаётся сочинять подобные альбомы без ущерба для качества музыкального материала. В этом случае обычно коллектив или отдельный композитор не зацикливаются на всяких звуках и сэмплах, увертюрах и интродукциях, а описывают выбранную историю с помощью привычных для стиля инструментов, будь-то progressive, power или даже black-metal. Некоторые коллективы предпочитают воспользоваться подручными средствами и впихнуть в свой альбом всё, что было не свойственно им ранее. Так викинги TURISAS играют «танцы южных славян», а MANOWAR открывают альбом многоминутной симфонической увертюрой, вгоняющей в ступор. Описываемая группа ICED EARTH уже имела опыт концептуального сочинительства. Например, классическая работа американцев “Something Wicked This Way Comes” заканчивалась большой одноимённой композицией, или прошлая успешная пластинка “The Glorious Burden” завершалась концептуальной вещью об одном из главных сражений гражданской войны. Видимо, окрылённый успехом подобных опытов лидер ICED EARTH Jon Schaffer и задумал записать большую концептуальную работу, растянутую на несколько альбомов. За основу была взята как раз тема из альбома 1998 года, пользовавшегося в своё время недюжинной популярностью.</P>
+<P>Обычный рок’н’ролл Джону разонравился. От него сбежали в MEGADETH почти все музыканты. Новые работники находились с трудом. Например, один гитарист, взятый в группу, оказался мошенником-уголовником. Вот и замкнулся Джон в себе, сочиняя этот эпос и выдавая периодически всё новые и новые глобальные подробности. В итоге мы получили альбом, который слушается очень трудно. Неплохие куски чередуются с растянутыми проигрышами, разнообразными стуками-криками и переборами на акустической гитаре. Отдельно стоит отметить вокалиста Reaper Owens (ex-JUDAS PRIEST), который поёт неплохо, но отнюдь не воскрешает воспоминаний о классике 1998 года. Быть может, если кто-то зафанатеет от идей Шаффера настолько, что захочет вчитаться в тексты, он, этот кто-то, получит недюжинное удовольствие от этой работы. Я же, если захочу получить историю, прочту книгу, а не пойду в магазин за диском.</P>
+<P>Печально, что лидер ICED EARTH переоценил свои композиторские возможности. Хорошая самобытная power-thrash команда превратилась в недоделанную рок-оперу. При этом нас ждёт долгий путь, ведь обозреваемый альбом является только первой частью чего-то ужасно огромного.</P>
+Автор: Vit Belov
+
+### 12.12.2007 news Matt Barlow вернулся в ICED EARTH!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер<STRONG> ICED EARTH</STRONG> <STRONG>Jon Schaffer</STRONG>&nbsp;объявил о возвращении вгруппу прежнего вокалиста <STRONG>Matt Barlow</STRONG>. Напомним, что<STRONG> Matt</STRONG> покинул<STRONG> ICED EARTH</STRONG>, уйдя из музыкального бизнеса. <STRONG>Jon</STRONG> сообщил, что решил пригласить<STRONG> Matt</STRONG> обратно после того, как узнал, что певец вернулся к творческой деятельности. Также побудительным мотивом для господина <STRONG>Schaffer </STRONG>стали просьбы фэнов. Matt споёт уже на второй части концептуального альбома <STRONG>'Something Wicked'</STRONG>. Причины же отставки <STRONG>Tim Owens</STRONG> не сообщаются.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Jon Schaffer: </STRONG>"<EM>Настоящий ICED EARTH вернулся</EM>!"</FONT></P>
+Автор: Vit Belov
+
+### 21.01.2008 news Бывший гитарист ICED EARTH осуждён
+
+<P>Закончился суд по делу бывшего гитариста<STRONG> ICED EARTH</STRONG> <STRONG>Ernie Carletti</STRONG>, который был приговорён к 33 года за похищение, изнасилование и пытки. <STRONG>Ernie</STRONG> был гитаристом <STRONG>ICED EARTH</STRONG> в течение нескольких месяцев в 2006 году, пока не выяснилось его тяжёлое наследие, и его не забрали.</P>
+Автор: Vit Belov
+
+### 15.03.2008 news ICED EARTH выпускают сингл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=298 alt="" hspace=0 src="/images/news_rus/2008.03/12379.jpg" width=300 align=right border=5>ICED EARTH</STRONG> выпускают очередной сингл&nbsp; <STRONG>"I Walk Alone" </STRONG>в июне 2008 года на <STRONG>SPV</STRONG>. На диск войдёт одноимённая&nbsp;новая вещь и три трэка с предыдущего альбома <STRONG>"Framing Armageddon (Something Wicked Part 1)",</STRONG>&nbsp;перепетые новым старым вокалистом <STRONG>Matt Barlow. </STRONG>Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>I Walk Alone</B><BR>02. <B>Setian Massacre</B><BR>03. <B>The Clouding</B><BR>04. <B>A Charge to Keep</B> (exclusive iTunes track) </FONT></P>
+Автор: Vit Belov
+
+### 05.04.2008 news Сэмплы ICED EARTH
+
+<P><STRONG>ICED EARTH</STRONG> выложили на своей MySpace страничке сэмплы песен, которые войдут на новый сингл <STRONG>"I Walk Among You", </STRONG>выходящий на <STRONG>SPV</STRONG> 9 июня. </P>
+<P>Ссылка: <A href="http://www.myspace.com/icedearth">http://www.myspace.com/icedearth</A></P>
+Автор: Vit Belov
+
+### 20.06.2008 news Дата релиза нового ICED EARTH
+
+<P>Новый альбом <STRONG>ICED EARTH</STRONG> <STRONG>"The Crucible of Man (Something Wicked Part II)"</STRONG> выйдет 8 сентября на<STRONG> SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.07.2008 news Трэк-лист нового ICED EARTH
+
+<P>Мы уже сообщали, что новый альбом <STRONG>ICED EARTH</STRONG> <STRONG>"The Crucible of Man (Something Wicked Part II)" </STRONG>выходит 8 сентября на <STRONG>SPV</STRONG>. Стал известен трэк-лист этой пластинки:</P>
+<P>01. <B>In Sacred Flames</B><BR>02. <B>Behold The Wicked Child</B><BR>03. <B>Minions Of The Watch</B><BR>04. <B>The Revealing</B><BR>05. <B>A Gift Or A Curse</B><BR>06. <B>Crown Of The Fallen</B><BR>07. <B>The Dimensional Gauntlet</B><BR>08. <B>I Walk Alone</B><BR>09. <B>Harbinger Of Fate</B><BR>10. <B>Crucify The King</B><BR>11. <B>Sacrificial Kingdoms</B><BR>11. <B>Something Wicked (Part 3)</B><BR>12. <B>Divide And Devour</B><BR>14. <B>Come What May</B><BR>15. <B>Epilogue</B></P>
+Автор: Vit Belov
+
+### 29.08.2008 news Сэмплы нового ICED EARTH
+
+<P>8 сентября на <STRONG>SPV</STRONG> выйдет новый альбом<STRONG> ICED EARTH</STRONG> <STRONG>"The Crucible of Man (Something Wicked Part II)". </STRONG>Сэмплы с этой пластинки можно послушать на <STRONG>MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/icedearth">http://www.myspace.com/icedearth</A></P>
+Автор: Vit Belov
+
+### 24.09.2008 reviews Welcome back, Iced Earth!
+
+<P>Итак, трехчастная сага "Something Wicked" завершена. Jon Schaffer, бессменный лидер и мастермайнд американцев Iced Earth, может слегка отдохнуть от сочинительства новых композиций, ибо таковых он в последние годы произвел на свет даже больше, чем нужно. Последняя часть этой самой саги, начало которой было положено 10 лет назад на блестящей пластинке "Somehting Wicked This Way Comes", под названием "The Crucible Of Man (Something Wicked Part 2)" получилась намного ближе по духу к том самой "первой" части, чем часть вторая ("Framing Armageddon (Something Wicked Part 1)") год назад. Главным&nbsp;же событием оказалось возвращение в строй вокалиста Мэтью Барлоу и, соответственно, отставка Тима Риппера Оуэнса, которую так ждали все фанаты Iced Earth, да и просто поклонники нормального голоса... Впрочем, это во многом дело личных симпатий, но Риппер, простите, подходил группе как корове седло. Может быть, Шаффер поступил и не очень хорошо с ним (Тим сейчас, кстати,&nbsp;трудится бок о бок с Ингви Мальмстином), но это уже совсем другая история. Многие считают что, мол, Барлоу совсем не в той форме, что был 10 лет назад, но, во-первых, это и понятно, во-вторых, даже такая не 100%-ая форма по-любому лучше любой формы Риппера. Безусловно, "The Crucible Of Man", на обложке которого вновь красуется милая фигура по имени Set Abominae, не дотягивает до уровня ранних творений Iced Earth, но этот альбом, без всяких сомнений, можно назваться лучшим среди последних работ коллектива (и еще неизвестно, что лучше, он или "Horrow Show"). Мощнейшие вещи как, например, 'Crucify The King', или баллада&nbsp;'A Gift For A Curse', или эпик 'Come What May', показывают, что Шаффер пока еще не разучился писать хорошие песни (а Барлоу - петь их, что бы ни говорили завистники и почитатели Риппера). Скажу даже, что "The Crucible Of Man" вполне возможно не понравится вам с первого прослушивания; я, например, стал в него "въезжать" раза с третьего. Кстати, Шаффер имеет планы выпустить бокс из двух последних дисков (т.е. Something Wicked Part 1 и Something Wicked Part 2) с добавлением нескольких песен для второй части и перепетой Барлоу первой частью (и неспроста это, ой неспроста); эта работа должна появиться под Рождество или в начале следующего года. Возможно, 8 баллов это и многовато для данной пластинки, но все-таки столь ощутимой оказалась разница в хотя бы лишь вокальном плане, что я решил не мелочиться. Welcome back, Iced Earth, мы так долго вас ждали! Добавлю, что хотя басист Freddie Vidales и указан на альбоме, он в записи участия не принимал; партии баса записаны частично Деннисом Хейесом, принимавшем участие в Part 1, и частично самим Шаффером.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 12.11.2008 reviews Мелодичный альбом ICED EARTH
+
+<P>Американские оригиналы от power-thrash-metal ICED EARTH судорожно пытаются сохранить свои позиции. Нет, немного неуважительно звучит. Дело, прежде всего в том, что лидер коллектива Jon Schaffer долгое время считал статус своей группы неприкасаемым, но после серии неудач в недавнем прошлом, связанными не только с музыкой, но и с составом, позиции ICED EARTH пошатнулись. Jon решил, что пришло время встряхнуться.</P>
+<P>Честно говоря, я считаю, что у ICED EARTH было и так всё в порядке. Новый певец Tim Owens вписался в жёсткое thrash-metal звучание американцев, а так же привлёк новых фэнов из стана поклонников JUDAS PRIEST. Как композитор Jon тоже не сильно сдал. Концептуальность, сложность, мелодику и тяжесть ему удавалось сочетать в своей музыке по-прежнему. Начались пертурбации в составе, и, видимо, находясь в некоторой депрессии от открывшихся перспектив развития группы, Schaffer анонсировал концептуальное продолжение успешнейшего альбома “Something Wicked This Way Comes”. Результаты, достигнутые с первой частью продолжения, вышедшей в прошлом году, мастермайнда не устроили, и под гром аплодисментов в группу был возвращён прежний вокалист Matt Barlow. Очень забавно начать концепцию с одним певцом, а закончить с другим, хотя услышать Matt снова в ICED EARTH было приятно. Несмотря на всю эту заслуженную критику, Jon Schaffer удалось сочинить хороший материал, и все эти «вынужденные» ходы лишь подогрели к нему интерес публики. Что же вышло? “Something Wicked’98” стал самым мелодичным альбомом группы. Некоторая «прогрессивность» звучания, свойственная ICED EARTH, была нивелирована на той работе балладами и обилием мелодических проигрышей. Сравниться по звучанию с ICED EARTH могут наверное только BLIND GUARDIAN, да и у тех композиция всё-таки более простая, забойный куплет – мелодичный припев. ICED EARTH удивляли, как своим thrash-metal звучанием, так и неожиданными гипермелодичными акустическими проигрышами. Интересно, что поклонники американцев делятся на несколько категорий. Кому-то больше импонирует их тяжесть, кому-то эпичность… Есть, конечно же, и те, которые обожают ICED EARTH целиком, но они уже купили фирменный диск этого альбома. Тем же, кто сомневается, сообщаю, что “The Crucible Of Man” очень мелодичен. В аранжировки были добавлены и симфонические инструменты, звучание «вылизано» очень сильно, и «thrash-metal грязи» почти не осталось. Добавьте к этому отличное оформление с говорящими иллюстрациями истории, и вы получите диск, которые очень приятно слушать и иметь в своей коллекции.</P>
+<P>Это хороший альбом. Пускай, несколько компромиссный, но зато качественный и ровный. ICED EARTH в своём узнаваемом репертуаре, да ещё и Matt Barlow вернулся. Ничего нам сирым больше и не надо.</P>
+Автор: Vit Belov
+
+### 25.03.2009 news ICED EARTH выпустят DVD
+
+<P><STRONG>ICED EARTH</STRONG> готовят DVD <STRONG>'Festivals Of The Wicked', </STRONG>которое должно выйти летом этого года. На издание попадут концерты на фестивалях. Основным станет шоу на <STRONG>Wacken 2007</STRONG> вместе с <STRONG>Tim Owens</STRONG>. Также мы увидим<STRONG> Rockhard 2008</STRONG> и <STRONG>Metal Camp 2008</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей. <STRONG>Jon Schaffer</STRONG> планирует начать запись нового альбома<STRONG> DEMONS & WIZARDS</STRONG> вместе с <STRONG>Hansi Kursch</STRONG> в конце этого года. Пластинка планируется на середину 2010.</FONT></P>
+Автор: Vit Belov
+
+### 30.04.2010 news ICED EARTH вернулись на Century Media
+
+<P><STRONG>Jon Schaffer</STRONG> подписал контракт с <STRONG>Century Media</STRONG> от лица двух своих проектов<STRONG> ICED EARTH</STRONG> и <STRONG>SONS OF LIBERTY</STRONG>. Пластинка <STRONG>SONS OF LIBERTY "Brush Fires of The Mind"</STRONG>, на которой <STRONG>Jon</STRONG> сыграл на всех инструментах и спел, выйдет уже 12 июля. Альбом посвящён Гражданской войне в США.</P>
+Автор: Vit Belov
+
+### 17.12.2010 news ICED EARTH выпускают DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый DVD <STRONG>ICED EARTH</STRONG> <STRONG>"Festivals Of The Wicked" </STRONG>выйдет в ближайшее время на <STRONG>Century Media</STRONG>. На релиз попадут три концерта группы и документальный фильм. Поклонники американцев смогут увидеть шоу <STRONG>Wacken</STRONG> 2007 года с вокалистом <STRONG>Tim "Ripper" Owens </STRONG>у микрофона, а также два выступления с новым старым певцом <STRONG>Matt Barlow - </STRONG>на <STRONG>Rock Hard Festival 2008 </STRONG>и <STRONG>Metalcamp 2008.</STRONG></FONT></P>
+<P><center><IMG height=588 src="/images/news_rus/2010.12/17856.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 04.03.2011 news Matt Barlow вновь уходит
+
+<P>Вокалист<STRONG> ICED EARTH Matt Barlow</STRONG> объявил о своём скором уходе из группы. Причины всё те же, что и в 2003 году. <STRONG>Matt</STRONG> заявил, что группа требует от него слишком много времени, что никак не стыкуется с его личной жизнью. Музыкант отыграет все запланированные<STRONG> ICED EARTH</STRONG> концерты на фестивалях в 2011 году, а потом уйдёт.</P>
+<P>Лидер коллектива гитарист <STRONG>Jon Schaffer </STRONG>сообщил, что уже имеет в уме несколько кандидатур на замещение вакантной должности, но называть конкретные имена отказался.</P>
+<P><center><IMG height=299 src="/images/news_rus/2011.03/18790.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 16.03.2011 news Stu Block станет новым вокалистом ICED EARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18891.jpg" width=244 height=350>Группа <STRONG>ICED EARTH</STRONG> анонсировала имя человека, который будет заменой Мэтту Бэрлоу (<STRONG>Matt Barlow</STRONG>). Им стал вокалист группы&nbsp;<STRONG>INTO ETERNITY</STRONG> Стю Блок (<STRONG>Stu Block</STRONG>, на фото).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Stu Block </STRONG>приступит к своей работе после выступлений <STRONG>ICED EARTH</STRONG> на летних фестивалях в Европе, которые станут последними для Мэтта Барлоу в составе группы.</FONT></P>
+<P>Гитарист и лидер <STRONG>ICED EARTH</STRONG> Джон Шаффер (<STRONG>Jon Schaffer</STRONG>) вспоминает одну ночь в сентябре 2008, когда <FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>INTO ETERNITY</STRONG> выступали в роли разогревающей группы перед <STRONG>ICED EARTH</STRONG>:</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"<STRONG>ICED EARTH</STRONG> были за кулисами и готовились к своему выходу на сцену. И тут мы услышали невероятный вопль Стю. Я помню, что повернулся к Мэтту и сказал: 'Чёрт, у этого чувака очень широкий вокальный диапазон'".</EM></FONT></P>
+Автор: Headcrusher
+
+### 16.06.2011 news ICED EARTH назвали альбом
+
+<P>Новый альбом<STRONG> ICED EARTH</STRONG> получил название <STRONG>"Dystopia". </STRONG>Пластинка, которая станет дебют для нового певца <STRONG>Stu Block</STRONG> (<B>INTO ETERNITY</B>), должна выйти до конца года на <STRONG>Century Media</STRONG>. Лидер группы <STRONG>Jon Schaffer </STRONG>вновь вспомнил свой классический альбом 1998 года выпуска "<STRONG>Something Wicked This Way Comes", </STRONG>описыва новые песни.</P>
+<P>Бывший певец коллектива <STRONG>Matt Barlow </STRONG>продолжает выступать с группой на всех летних фестивалях.</P>
+<P><center><IMG height=308 src="/images/news_rus/2011.06/19660.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.07.2011 news ICED EARTH вошли в студию
+
+<P><STRONG><IMG height=208 alt="" hspace=0 src="/images/news_rus/2011.07/20099.jpg" width=300 align=right border=0>ICED EARTH</STRONG> вошли в студию для записи нового альбома <STRONG>"Dystopia"</STRONG>, который предположительно выйдет до конца года. Пластинка станет дебютом для нового вокалиста американской группы <STRONG>Stu Block</STRONG> (<B>INTO ETERNITY</B>). Названия песен, которые записываются сейчас вместе с продюсером <STRONG>Jim Morris</STRONG>:</P>
+<P>* <B>Dystopia</B><BR>* <B>Anthem</B><BR>* <B>Days of Rage</B><BR>* <B>Soylent Green</B><BR>* <B>V</B><BR>* <B>Boiling Point</B><BR>* <B>Tragedy and Triumph</B><BR>* <B>Anguish of Youth</B><BR>* <B>Iron Will</B></P>
+Автор: Vit Belov
+
+### 29.07.2011 news Дата релиза ICED EARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.07/20348.jpg" width=475 align=right border=0>Десятый студийный альбом <STRONG>ICED EARTH</STRONG> <STRONG>"Dystopia" </STRONG>выйдет 17 октября на <STRONG>Century Media</STRONG>. Названия пеен, которые появятся на альбоме:</FONT></P>
+<P>* <B>Dystopia</B><BR>* <B>Anthem</B><BR>* <B>Days of Rage</B><BR>* <B>Soylent Green</B><BR>* <B>V</B><BR>* <B>Boiling Point</B><BR>* <B>Anguish of Youth</B><BR>* <B>Iron Will</B><BR>* <B>Dark City</B><BR>* <B>End of Innocence</B><BR>* <B>Equilibrium</B><BR>* <B>Tragedy and Triumph</B></P>
+Автор: Vit Belov
+
+### 05.11.2011 news Новый видео-клип ICED EARTH
+
+<P>Новое видео<STRONG> ICED EARTH</STRONG> на заглавную песню с нового альбома "<STRONG>Dystopia</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<iframe width="560" height="315" src="http://www.youtube.com/embed/zuwW9IVwZ0U" frameborder="0" allowfullscreen></iframe></CENTER>
+Автор: Vit Belov
+
+### 08.12.2011 news Супергруппа HAIL! в Москве 11 декабря
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22281.jpg" width=390 height=520>Уже в это воскресенье в московском клубе <STRONG>"Hleb"</STRONG> состоиться выступление супергруппы <STRONG>HAIL!</STRONG>, в состав которой входят <STRONG>Paul Bostaph</STRONG> (ударные, <STRONG>FORBIDDEN</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>TESTAMENT</STRONG>), <STRONG>Glen Drover</STRONG> (гитара, <STRONG>EIDOLON</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>KING DIAMOND</STRONG>), <STRONG>Tim "Ripper" Owens</STRONG> (вокал, <STRONG>JUDAS PRIEST</STRONG>,<STRONG> ICED EARTH</STRONG>, <STRONG>YNGWIE MALMSTEEN</STRONG>) и <STRONG>James Lomenzo</STRONG> (бас, <STRONG>WHITE LION</STRONG>, <STRONG>BLACK</STRONG> <STRONG>LABEL SOCIETY</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>DAVID LEE ROTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На своих концертах группа <STRONG>HAIL!</STRONG> исполняет хиты различных металлических коллективов первой величины. Песни, которые поклонники тяжелой музыки любят с детства и знают наизусть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен сет-лист, который группа отыграла в городе Иркутск 2 декабря:</FONT></P>
+<P>01. <STRONG>Stand Up & Shout</STRONG> (<STRONG>DIO</STRONG>)<BR>02. <STRONG>Flight Of Icarus</STRONG> (<STRONG>IRON MAIDEN</STRONG>)<BR>03. <STRONG>Seek & Destroy</STRONG> (<STRONG>METALLICA</STRONG>)<BR>04. <STRONG>World Painted Blood</STRONG> (<STRONG>SLAYER</STRONG>)<BR>05.<STRONG> Wake Up Dead</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>06. <STRONG>Mob Rules</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>07. <STRONG>Burn In Hell</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>08. <STRONG>Another Thing Coming</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>09. <STRONG>Symphony Of Destruction</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>10. <STRONG>Heaven & Hell</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>11. <STRONG>Walk</STRONG> (<STRONG>PANTERA</STRONG>)<BR>12. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>----------<BR>13. <STRONG>Ace Of Spades</STRONG> (<STRONG>MOTORHEAD</STRONG>)<BR>14. <STRONG>Creeping Death</STRONG> (<STRONG>METALLICA</STRONG>)<BR>15. <STRONG>Peace Sells</STRONG> (<STRONG>MEGADETH</STRONG>)</P>
+<P>Адрес клуба <STRONG>"Hleb"</STRONG>: г. Москва, Звенигородское шоссе, д. 11</P>
+Автор: Headcrusher
+
+### 25.01.2012 news ICED EARTH: видеоклип на песню &quot;Anthem&quot;
+
+<P>Группа <STRONG>ICED EARTH</STRONG> презентовала видеоклип на песню<STRONG>&nbsp;"Anthem"</STRONG>, который был снят во время европейской части мирового тура в городе Кёльн, Германия.&nbsp;</P>
+<P>Ответственность за создание видео лежит на компании&nbsp;<STRONG>Kosch Fabian Film</STRONG>. <STRONG>"Anthem"</STRONG> - это уже второй музыкальный клип с десятого студийного альбома группы&nbsp;<STRONG>"Dystopia"</STRONG>.</P>
+<P>
+<CENTER><iframe width="640" height="360" src="http://www.youtube.com/embed/UIDdEwEYNTw?feature=player_embedded" frameborder="0" allowfullscreen></iframe></CENTER>
+Автор: Headcrusher
+
+### 14.07.2012 news Бывшие участники ICED EARTH и NEVERMORE в новом проекте
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24363.jpg" width=250 height=311>Мэтт Барлоу (<STRONG>Matt Barlow</STRONG> <EM>(на фото))</EM>,&nbsp;бывший вокалист <STRONG>ICED EARTH</STRONG>, соединил свои силы с барабанщиком Вэном Виллиамсом (<STRONG>Van Williams</STRONG>, ex-<STRONG>NEVERMORE</STRONG>) и бас-гитаристом Фредди Видалесом (<STRONG>Freddie Vidales</STRONG>,&nbsp;ex-<STRONG>ICED EARTH</STRONG>) в создании нового,&nbsp;пока безымянного&nbsp;проекта. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В данный момент музыканты работают над сочинением композиций для новой группы.</FONT></P>
+Автор: Headcrusher
+
+### 18.12.2012 news ICED EARTH: обложка DVD &quot;Live In Ancient Kourion&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ICED EARTH</STRONG> опубликовали обложку своего нового DVD <STRONG>"Live In Ancient Kourion"</STRONG>, который планируется к выходу в начале апреля 2013 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Авторы рисунка: <STRONG>Nathan Perry</STRONG> и <STRONG>Felipe Machado Franco</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На данный DVD войдут съёмки шоу, состоявшегося 19 августа 2012 года на Кипре. Процес записи&nbsp;этого трёх часового&nbsp;концерта контролировал сам <STRONG>Jim Morris</STRONG> (<STRONG>Morrisound Studios</STRONG>).</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.12/25176.jpg" width=450 height=563> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 11.05.2013 news ICED EARTH: замена барабанщика
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.05/25682.jpg" width=260 height=335>Группа <STRONG>ICED EARTH</STRONG> объявила о том, что барабанщик <STRONG>Brent Smedley</STRONG> <EM>(на фото)</EM> покидает коллектив по семейным обстоятельствам. </P>
+<P>Уже стало известно имя того, кто придёт на его замену. Им стал <STRONG>Raphael Saini</STRONG>. Он будет выступать с коллективом начиная&nbsp;с этого лета.</P>
+<P><EM>"У меня есть пожилые и немощные&nbsp;члены семьи, которым требуется моя помощь здесь, в Джексонвилле"</EM> - говорит Brent Smedley - <EM>"Это было одно из самых трудных решений в моей жизни, но я просто не могу принять на себя обязательства, соответствующие концертному графику группы, посему попросил разрешения уйти в отставку."</EM></P>
+<P>В течении этого лета группа <STRONG>ICED EARTH</STRONG> планирует записать и свести свой новый альбом, который уже получил название<STRONG> "Plagues Of Babylon"</STRONG>.</P>
+Автор: Headcrusher
+
+### 26.09.2013 news ICED EARTH: обложка и трек-лист альбома &quot;Plagues Of Babylon&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ICED EARTH</STRONG> закончили работу над новым альбомом, получившим название<STRONG> "</STRONG></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Plagues Of Babylon"</STRONG>. Группа опубликовала его трек-лист и обложку.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000"><FONT color=#ffffff>Автор обложки: Eliran Kantor | <A href="http://www.elirankantor.com/">www.elirankantor.com</A></FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000"><FONT color=#ffffff>Выход <STRONG>"</STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Plagues Of Babylon"</STRONG> запланирован на начало 2014 года на лейбле<STRONG> Century Media</STRONG>.</FONT></FONT><BR></P></FONT>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Plagues Of Babylon</STRONG> | 2. <STRONG>Democide</STRONG> | 3. <STRONG>The Culling</STRONG> |&nbsp;4. <STRONG>Among The Living Dead</STRONG> |&nbsp;5. <STRONG>Resistance</STRONG> | 6. <STRONG>The End?</STRONG> | 7. <STRONG>If I Could See You</STRONG> | 8. <STRONG>Cthulhu</STRONG> | 9. <STRONG>Peacemaker</STRONG> | 10. <STRONG>Parasite</STRONG> | 11. <STRONG>Spirit Of The Times</STRONG> | 12. <STRONG>Highwayman</STRONG></FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.09/26203.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 23.08.2016 news ICED EARTH потеряли гитариста
+
+<p>Гитарист<strong> ICED EARTH Troy Seele</strong> объявил об уходе из группы по семейным обстоятельствам. После почти 10 лет в группе музыкант был вынужден уйти, так как у него ребёнок с аутизмом, и он требует повышенного внимания.</p><p>Последнее шоу с ICED EARTH Troy даст 16 октября. Группа уже объявила прослушивание на вакантное место.</p><p>&nbsp;<center><img width="480" height="320" src="/images/news_rus/2016.08/29846.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 23.08.2016 news ICED EARTH guitarist Troy Seele announces departure from the band due to family responsibilities
+
+<p>“<em>After close to ten years as a guitarist in Iced Earth, the time has come for me to step away.&nbsp; Some of you know, but many do not, that I have a child with Autism.&nbsp; In the past I had a great support system that has allowed me to pursue a career in music. That is no longer the case and it has forced me to make a difficult decision. I’ve always believed that family comes first, and now it is time for me to focus on that.&nbsp;</em></p><p><em>The demanding life style of being in a professional heavy metal band is no longer an option for me. Knowing the band is focused on a new album and touring cycle, and given my circumstances, this is the best time for me to step down.&nbsp;</em></p><p><em>Playing in Iced Earth has been a great experience. It’s taken me around the world many times and given me the chance to meet many of my heroes, as well as play in front of crowds larger than I ever dreamed of.</em></p><p><em>I personally want to thank Jon and the guys for the music and the amazing times through the years.&nbsp; Thank you to the fans for understanding and for your support.”</em><br><strong>Troy Seele</strong></p><p><strong>ICED EARTH</strong> singer <strong>Stu Block</strong> remarks on Seele’s departure, “<em>It’s very sad that Troy is leaving.&nbsp; He will be missed and will always be considered family to us.&nbsp; I wish him the best of luck in everything he does.</em>”</p><p><strong>Jon Schaffer</strong>, ICED EARTH founder, states, “<em>Troy was a good friend before he became a part of the team, and always will be.&nbsp; I understand and respect his decision.&nbsp; We shared some of the most amazing times of our lives together.&nbsp; We laughed hard, and we laughed often.&nbsp; Be well brother.&nbsp; We all wish you the very best</em>.”</p><p>Troy Seele’s last gig with the band will be Knotfest in Mexico City, October 16th 2016.</p><p>For those guitarists who think they’ve got what it takes to be in the studio and on stage with ICED EARTH, send your audition video and contact info to the following link.</p><p><a href="https://www.dropbox.com/request/OTbbKP82hQoFOocKUn25">https://www.dropbox.com/request/OTbbKP82hQoFOocKUn25</a></p><p>&nbsp;<center><img width="480" height="320" src="/images/news_rus/2016.08/29846.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Где достать клипы Blind Guardian, Gamma Ray, Iced Earth, D&W и т. д.?

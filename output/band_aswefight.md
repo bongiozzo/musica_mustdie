@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.05.2009 news Новый альбом AS WE FIGHT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AS WE FIGHT</STRONG> выложили на<STRONG> MySpace</STRONG> страничке свой новый альбом "<STRONG>Meet Your Maker</STRONG>", вышедший вчера на <STRONG>Dockyard 1</STRONG>. Пластинка была записана с продюсером <STRONG>Jacob Bredahl</STRONG> (<STRONG>HATESPHERE, KOLDBORN</STRONG>) и стала дебютом для вокалиста <STRONG>Esben Elnegaard Kjaer Hansen</STRONG> (<STRONG>NUMBNUTS</STRONG>, ex-<STRONG>STOMPED</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.myspace.com/aswefight">http://www.myspace.com/aswefight</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

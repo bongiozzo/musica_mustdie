@@ -12,6 +12,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.11.2002 reviews A grimmer kind of bewitchment
+
+<p>"The main thing which separates us from the rest is our lyrics; they are extremely well written and very lyrical…"? I hardly believe anyone's word, therefore I just opened the booklet (an astoundingly designed one, by the way… actually, it's overall appearance somehow made me recall Niklas Sundin's works) and examined the lyrics myself. Well, these guys aren't any liars – the lyrical canvas is doubtlessly worth acquainting with it. In fact, so is the music. Have you ever heard anything regarding so-called "Danish death metal"? If you haven't… well, you missed a lot. The chance still remains, though. KOLDBORN would be a right band to start with. Yes, this is death metal, and yes, it's distinctively Danish. Obviously, both production and performance are beyond excellence. Obviously, it's imaginative. Obviously, it's quite versatile. I'd even say, surprisingly versatile (please take into account the fact we're dealing with death metal here). Versatile, although definitely not eclectic. KOLDBORN sometimes cross the borders of SMDM (actually, very rarely) and doom metal (check out the song #8, "Sunbroken"). Hey, they even have female voice put in here and there! Does it drop few points? No! For it only adds more to overall bewitchment. A grimmer kind of bewitchment. KOLDBORN deliver extremely brutal death metal anyway. Anyone disagreed? No? I knew no one would.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

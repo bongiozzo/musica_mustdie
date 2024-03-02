@@ -196,6 +196,260 @@ Mastered by Mika Jussila at Finnvox Studios, Helsinki
 * C группой "Frosen Soul" Deadly Kristin
 * C группой "Blood Stained Dusk" Profana (drums)
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Ancient полностью укомплектовали свой состав! Новой вокалисткой стала девушка под псевдонимом Deadly Kristin. Афазел играет на гитаре и поёт, Кригсе стучит, Скорпиос играет на басе, а Jesus Christ играет терзает клавиши. Группа сейчас записывает новую работу где-то в снежных Альпах. По всей вероятности этот альбом будет называться "The Halls Of Eternity". На релизе будет 12-13 песен, написанных Афазелом на стихи, которые группа писала вместе. Также группа планирует снять видео в течение этой весны. В планы группы входит переиздание своего старого миньона "Trolltaar" вместе с другими ранее неиздавашимися вещами. Летом группа отправится в тур.</p>
+
+Автор: Vit Belov
+
+### 24.05.1999 reviews 
+
+<p>Вот и новый старый альбом норвежцев. Новый он, потому что содержит композиции, ранее не издававшиеся. А старый, потому что содержит материал записанный в 1993-1994 годах. Именно за эти песни группу и полюбили. Великолепный pagan-viking-ancient-black-metal. Вот так начиналось творчество чтимой сейчас группы. Конечно же, сразу обращает на себя внимание качество записи и неотточенность некоторых гитарных партий. Но зато какая атмосфера, какая таинственность и загадочность. Эта музфка написана под огромным впечатлением о сказаниях про викингов и троллей. Оригинальны и тематика песен, и музыкальный материал, даже на сегодняшний день. Очень полезно будет послушать особенно тем, кто хочет узнать как зачинался мелодичный блэк металл.</p>
+
+Автор: Dimas
+
+### 24.10.1999 news 
+
+<p>Совершил самоубийство ещё один музыкант. На этот раз это Грим (Эрик). Он известен по участию в группах Borknagar, Gorgoroth, Immortal, Ancient. Новости из лагеря Borknagar^ Ник Бэйкер не будет записывать с ними новый альбом, а уедет в Англию, где сконцентрируется на работе в Dimmu Borgir и Lock Up.</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news New mini-CD of Ancient
+
+<p>"God Loves The Dead is the title of the upcoming mini album with Ancient. The title track has previously been released on the LP version of "The Halls Of Eternity" but not elsewhere. The mini album will also include live recordings, remixes, a new version on "Trolltaar" as well as a cover song. The disc will also include 2 videos for PC of the songs "God Loves The Dead" and "Um Sonho Psycodelico", both previously unreleased. A video for "I, Madman" will also be done during the summer. Aphazel and Deadly Kristin are almost ready with the recordings of their side- project Dreamlike Horror. This is a kind of gothic/ ambient/ horror project with some black metal parts. There has not been signed any record- contract yet, but we will soon get some more news on this. A release of this should be out sometime after the summer. At last There is new drummer Grom in the band.</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news Новый мини-СD Ancient.
+
+<p>"God Loves The Dead" так будет называться новый мини-CD Ancient. На него войдут: титульный трэк, который выходил только на виниле "The Halls Of Eternity", концертные записи, ремиксы, а также новая версия композиции Trolltaar и кавер-версия. На этом CD два видео для PC. Видео на "I, Madman" будет снято в течение лета. Также в группе появился новый барабанщик Grom. А Aphazel и Deadly Kristin почти готовы к записи своего сайд-проекта Dreamlike Horror. Это будет группа в стиле gothic/ ambient/ horror. Ещё нет контракта ни с одной фирмой и, естественно, нет даты релиза.</p>
+
+Автор: Vit Belov
+
+### 30.06.2000 news Новый трибьют King Diamond
+
+<p>Necropolis Records планирует к выпуску трибьют King Diamond. Вот некоторые песни и исполнители: DARK FUNERAL - 'The Trial', DAMNATION - 'Mansion In Darkness', IN AETERNUM - 'Abigail', USURPER - 'Charon', EXHUMED - 'No Presents For Christmas', AURORA - 'Eastman's Cure', DESTINY'S END - 'Dressed In White', ANCIENT - 'Halloween', FALLEN EMPIRE - 'The Exorcist', ENTHRAL - 'The Portrait' and AGGRESSOR - 'Welcome Home'.</p>
+
+Автор: Vit Belov
+
+### 12.09.2000 news Новости из логова Ancient
+
+<p> 23-го октября культовая норвежская группа Ancient выпускает мини-альбом под названием "God Loves The Dead". На диске, кроме заглавной композиции, будут еще пять концертных трэков, ремиксы и новая версия песни "Trolltaar", а также два PC-видео клипа на песни "God Loves The Dead" и "Um Sonho Psycodelico". Еще стало известно, что из-за личных и творческих разногласий группу покинул драммер Krigse, которого заменил некто GroM.</p>
+
+Автор: Nybras
+
+### 13.09.2000 news Some news from Ancient
+
+<p> Ancient will release a mini-album named "God Loves The Dead" on October 23. The title-track already had been released on the LP-version of "The Halls Of Eternity", but nowhere else. You'll also get live-tracks, remixes and a new recording of "Trolltaar", as well as two PC-videos of "God Loves The Dead" and "Um Sonho Psycodelico". Due to personal and musical differences drummer Krigse also was replaced by GroM.</p>
+
+Автор: Nybras
+
+### 22.09.2000 news О релизах Metal Blade до конца 2000-го  года
+
+<p> Европейский отдел Metal Blade афишировал список своих релизов, запланированных до конца этого года. Итак:<br>25.09.00 CANNIBAL CORPSE Live Cannibalism (новый альбом)<br> 25.09.00 CANNIBAL CORPSE Live Cannibalism (новое видео)<br> 09.10.00 LIZZY BORDEN Deal With The Devil (новый альбом)<br> 23.10.00 ANCIENT God Loves The Dead (новый мини-диск)<br> 23.10.00 SIX FEET UNDER Graveyard Classics (новый альбом)<br> 06.11.00 IMMOLATION Close To A World Below (новый альбом)<br> 06.11.00 VOMITORY Revelation Nausea (новый альбом)<br> 20.11.00 DIES IRAE Immolated (новый альбом)<br> 20.11.00 VADER Reign Forever World (новый альбом)<br> 20.11.00 CHINCHILLA Madness (новый альбом)<br></p>
+
+Автор: Nybras
+
+### 27.11.2000 news Выход мини-CD Ancient задерживается.
+
+<p>Как предполагалось, новый MCD Ancient выйдет в октябре, но произошел ряд непонятных препятствий в производстве этого несчастного релиза. Новая дата выпуска "God Loves The Dead" установлена на 5-ое февраля 2001 года. Ancient извиняются за задержку.</p>
+
+Автор: Morsus
+
+### 27.11.2000 news The release of Ancient&#39;s mini-CD is delayed.
+
+<p>Ancient's new MCD was supposed to be released in october but several unexplained obstacles have taken place in the production of this seemingly cursed release. The new release date of "God Loves The Dead" has been set for February 5th 2001. Ancient apologise for the delay.</p>
+
+Автор: Morsus
+
+### 11.04.2001 news Новый альбом Ancient на подходе
+
+<p> Ancient cейчас в студии GroM'а работают над материалом к новому альбому, релиз которого намечен на октябрь этого года. По словам самого ГроМа новый альбом должен быть самым лучшим в истории группы. С 2-го мая Ancient отправятся в студию Los Angered, где под руководством Энди ЛаРок'а (King Diamond) до начала лета постараются записать новый материал.</p>
+
+Автор: Nybras
+
+### 20.05.2001 news Ancient закончили запись альбома.
+
+<p> Новый альбом Ancient будет называться "Proxima Centauri" и должен выйти где-то в пределах первых двух недель октября. Группа к настоящему времени уже закончила запись в престижной студии Энди ЛаРока Los Angered в Швеции. Микширование 10 треков начнется на этой неделе, а мастеринг сделают в студии Sterling Sound в Нью-Йорке в первой неделе июня.</p>
+
+Автор: Morsus
+
+### 20.05.2001 news Ancient have completed the recordings of the album.
+
+<p> The new Ancient album will carry the title "Proxima Centauri" and is due to be released within the first two weeks of October. The band has currently completed the recordings of the album at Andy Larocque's prestigious Los Angered Studios in Sweden. Mixing of the 10 tracks contained on the record will commence this week and the band is due to master at Sterling Sound, New York City, in the first week of June.</p>
+
+Автор: Morsus
+
+### 25.06.2001 reviews Христианский бог любит мертвых...
+
+<P>Видимо, всего лишь для того, чтобы порепетировать новым составом древняя и уважаемая группа ANCIENT решила выпустить ма-а-аленький такой мини диск, и заодно поведать всем давно известный факт про то, что христианский бог любит мертвых, поголовно и без разбору умерщвляя живых. В итоге имеем одну оч-ч-чень даже интересную и неплохую, безупречно сыгранную песню, вроде как даже ранее нигде толком и не издававшуюся, дописанную скромными двадцатью минутами различных каверов своих же собственных песен, плюс известный "Powerslave" IRON MAIDEN, сыгранных, конечно, безукоризненно (за исключением того, что у предпоследнего трека конец как-то странно и неожиданно обрывается в тишину, словно пленку резанули...), но каких-то особо заметных и прелестных отличий от оригиналов не имеющих, что для кавера "Железной Девы" большой плюс, а для собственных - большой минус. Для владельцев персональных калькуляторов IBM на диске добавлена пара неизданных ранее видеоклипов (один из которых снят на заглавный трек), которые, впрочем, как кинематографическое искусство, особой ценности не представляют: сочинять и играть музыку у "Древних" получается куда лучше, чем снимать кино. А оценивать предназначенный сугубо для поклонников коротенький сборничек нереализованного материала хоть каким-то баллом смысла просто не имеет, ибо работа хоть и мастерски сыграна, но ничем иным, как наглым вытягиванием денег из фанатов ее назвать нельзя. То, что на Metal Blade собрались люди деловые, которые просто делают бизнес, вполне понятно, но зачем и без того известной и уважаемой группе опускаться до столь дешевой саморекламы - совершенно неясно: неужели нельзя было один-то трек для очереного полноформатного альбома придержать, а видео туда как бонусы тиснуть? Тем более, что он уже должен быть не за горами. Ждем-съ!...</P>
+Автор: Alexey Pitirimov
+
+### 25.09.2001 news Дети Сатаны...
+
+<p>Хотите получить порцию мрачного и садистского блэк-металлического угара? Тогда вам <a href="http://www.metalblade.de/mp3/ancient_satanschildren.mp3">сюда</a>... МР3 вещи "SATAN'S CHILDREN" с только что вышедшего альбома "Proxima Centauri" от "Ancient". Кстати трек-лист и картинка:</p>
+<p> <img src=/images/news_rus/2001.09/1732.jpg border=0 align=right width=150 height=150 hspace="20"> 1) A lurking threat<br> 2) Proxima Centauri<br> 3) The ancient horadrim<br> 4) in the abyss of the cursed souls<br> 5) the witch<br> 6) apophis<br> 7) Satan's children<br> 8) beyond the realms of insanity<br> 9)Audrina my sweet...<br> 10) on blackest wings<br> 11) eyes of the dead<br> 12) incarnating the malignant deity...</p>
+
+Автор: Yermola
+
+### 25.09.2001 news SATAN&#39;S CHILDREN...
+
+<p>Ancient's first release "Canian Chronicle" was a first for Metal Blade. It was their first venture in the world of Black Metal. And one of the earliest releases for the genre domestically as well. Paving the way for the uprising of the genre as a whole, Ancient released 2 more CD's on Metal Blade, bringing us to the new CD "Proxima Centauri". Proxima Centauri upholds the dark, sadistic nature of ANCIENT, but it has brought the band to a new level, with the help of Andy Laroque from King Diamond, as well as having the album mastered at Sterling Sound in New York. Proxima Centauri has brought out the true horrifying nature of this band who has been a slumbering giant over the past few years, waiting for their chance to strike and feast on the remains of a dying scene. Ancient have written a classic Black Metal record, but not straying off from classic Metal influences such as Mercyful Fate, Slayer and Venom to name a few. Here is a link to an MP3 for a new Ancient song entitled: <a href="http://www.metalblade.de/mp3/ancient_satanschildren.mp3">SATAN'S CHILDREN</a>. Album track listing: 1) A lurking threat 2) Proxima Centauri 3) The ancient horadrim 4) in the abyss of the cursed souls 5) the witch 6) apophis 7) Satan's children 8) beyond the realms of insanity 9)Audrina my sweet... 10) on blackest wings 11) eyes of the dead 12) incarnating the malignant deity<img src=/images/news/2001.09/1733.jpg border=1 align=left width=200 height=200 ></p>
+
+Автор: Yermola
+
+### 10.01.2002 reviews Дети Сатаны
+
+<p>Дети Сатаны. В который раз они возвращаются из недр ада со своим сыровато-мелодичным просатанинским и, в какой-то степени, злым black-metal'ом. Афазель почти в корне поменял свою компанию, поэтому на новом альбоме группа несколько изменила свое звучание, но не во всем в лучшую сторону. Видно, американская прописка пошла не на пользу группе. Стало поменьше злости и агрессивности, меньше запоминающихся моментов, музыка усложнилась, стала более техничной и замедлилась, стало больше клавишных и женского вокала (порой даже рычащего). В целом же, материал узнаваемый, группа уже давно выработала свой фирменный стиль с резкими темпопереходами, высокоскоростными мелодичными проходами сменяемых акустическими проигрышами и шипящим скримингом Афазеля. Лично у меня, альбом оставил небольшой горечный осадок. Раньше мне было намного интереснее слушать материал этой группы. Сейчас, временами, при прослушивании этого альбома у меня ощущалось напряженное состояние недопонимания этой музыки, но это было очень редко, к чести заметить. Нельзя не признать, что этот альбом - большой прыжок для группы во всех отношениях. Мощный, прекрасно обработанный звук, оригинальная новаторская музыка. Ну что еще говорить... Слушать надо.</p>
+
+Автор: Dimas
+
+### 17.05.2002 news Ancint+Stormlord tour Dates in Spain
+
+<p><B>ANCIENT + STORMLORD + NUMEN + OBLIVION</B></p>
+<P>30.05.02 Barcelona - Mephisto Tickets: 14 / 16 Ђ <BR> 31.05.02 Murcia - Tнa Marнa Tckets:14 / 16 Ђ <BR> 01.06.02 Madrid - Ritmo & Compбs Tickets:14 / 16 Ђ <BR> 02.06.02 Irъn (Gipuzkoa, Basque Country) - Tunk! Tickets14 / 16 Ђ (*) Ancient-Stormlord and Numen only</>
+
+Автор: Vit Belov
+
+### 29.08.2002 news ANCIENT&#39;s DEADLY KRISTIN Launches FROZEN SOUL....
+
+<p>FROZEN SOUL is the name of a newly-formed death metal band featuring Deadly Kristin (ANCIENT, DREAMLIKE HORROR) "on growls, lyrics and production, Tom Sibrеn Van Iersel as main composer on guitars and growls, and Bjцrn Jonsson on bass guitar," according to a statement posted on Kristin's official web site. "A steady drummer has not been picked up yet, but we have some important names hiding in the shadows, who may wanna join this deadly project. The music is simply old school brutal death metal, with some innovative ideas and some black metal influences as well. Just one word to describe the project: fucking SICK!!! <BR><BR> "To prevent any kind of inappropriate rumor, Deadly Kristin is NOT leaving ANCIENT or DREAMLIKE HORROR," continues the statement. "This is just an extra music project, to which you can bet she will give all her energy and devotion for her favorite music genre, death metal!"</p>
+
+Автор: Yermola
+
+### 30.08.2002 news Замерзшая душа DEADLY KRISTIN ...
+
+<p>"FROZEN SOUL" так называется новая дэт-металлическая формация созданная участницей ANCIENT и DREAMLIKE HORROR - Deadly Kristin. Сама она будет ответственна в группе за вокал и тексты, Tom Sibrаn Van Iersel - основной композитор и гитары, а Bjоrn Jonsson - бас гитара. Барабанщика до сих пор нет. Стилем команда избрала брутальный дэс старой школы. Посмотрим, что из этого получится... <BR><BR> Deadly Kristin - не покидает ANCIENT или DREAMLIKE HORROR, говорится в официальном заявлении.</p>
+
+Автор: Yermola
+
+### 11.05.2003 news Ancient готовят новый альбом
+
+<p>Новый альбом Ancient находится в процессе разработки. Запись намечена на конец августа в Дании с продюсером Джекобом Хансеном, который продюсировал прошлый альбом "Proxima Centauri".</p>
+
+Автор: Morsus
+
+### 22.07.2003 reviews Хороший диск сомнительного происхождения
+
+<p>Этот диск вызывает двоякие ощущения… С одной стороны, он включает в себя, пожалуй, один из наиболее удачных релизов ANCIENT – мини-альбом “Trolltaar”, в оригинале выпущенный крохотным (и насколько мне известно, уже не существующим) голландским лейблом (Damnation Records), а посему до выхода в свет “Det Glemte Riket” считавшийся редкостью. Так что надо бы сказать Hammerheart’ам и ФОНО большое человеческое спасибо… Но с другой стороны, релиз этот на 100% пиратский. Ибо а) сама группа о нём ничего не знала вплоть до выхода диска; б) Афазелю и компанию Hammerheart не заплатили ни копейки. Такая вот проблемка. Хотя ФОНО здесь, конечно же, не причём. И если вы всё-таки намерены приобрести “Det Glemte Riket”, то вам следует знать, что он включает в себя следующее: а) четыре песни с вышеупомянутого миньона “Trolltaar”; б) две композиции с дебютной работы ANCIENT – весьма удачной семидюймовки, носящей одно название с обозреваемым диском; в) три ранее нереализованных песни, одна из которых является неплохим кавером “Sweet Leaf”. В итоге получаем весьма любопытный диск… вот только его происхождение по-прежнему смущает…</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.09.2003 news ANCIENT войдут в студию в ноябре
+
+ANCIENT войдут в студию для записи нового альбома для METAL BLADE RECORDS в ноябре. CD будет "доведён до ума" в студиях Mirage, Alpha-Omega и Studio Fredman. Вот названия некоторых песен: 
+<P>01. Envision The Beast<BR>02. Fuel The Flames<BR>03. Raping The Children Of Abel<BR>04. Night Visit 
+<P>ANCIENT только что вернулись из короткого тура по Восточной Европе, правда концерт в Белграде был отменён, из-за проблем с организацией.</P>
+Автор: Vit Belov
+
+### 02.10.2003 news ANCIENT in Romania
+
+<DIV align=justify>Negura MUSIC presents:<BR><BR><B>Ancient</B> (Norway)<BR><B>The Stone </B>(Serbia)<BR><B>Womb of Maggots</B> (Greece)<BR><B>Taine </B>(Romania)<BR><BR>Saturday November 1 2003, 19:00<BR>Timisoara, Sport Hall Nr. 2<BR>ticket: 7 EU</DIV>
+<DIV align=justify>&nbsp;</DIV>
+<DIV align=justify>After concert Party in Club Cargo!<BR>&nbsp;</DIV>
+<DIV align=justify>More infos on the bands performing at:<BR><A href="http://www.ancientband.com/"><U>www.ancientband.com</U></A></DIV>
+<DIV align=justify><A href="http://www.the-stone.cjb.net/"><U>www.the-stone.cjb.net</U></A></DIV>
+<DIV align=justify><A href="http://www.wombofmaggots.com/"><U>www.wombofmaggots.com</U></A></DIV>
+<DIV align=justify><A href="http://www.taine.ro/"><U>www.taine.ro</U></A></DIV>
+Автор: Vit Belov
+
+### 22.10.2003 news ANCIENT To Enter Studio In January
+
+<DIV class=theText id=storyRepeater__ctl2_storyPanel>Norwegian black metallers <B>ANCIENT</B> will enter the studio in January to record their new album, tentatively due in the spring through <B>Metal Blade Records</B>. The CD will be recorded at <B>Mirage</B> and <B>Alpha-Omega</B> studios and the mixing and mastering will take place in early February at <B>Studio Fredman</B> in Gothenburg, Sweden. <BR><BR>The as-yet-untitled follow-up to 2001's <B>"Proxima Centauri"</B> will contain 10 new tracks — three written by <B>Jesus Christ</B> and the remaining seven by <B>Aphazel</B>, <B>Dhilorz</B> and <B>Grom</B>. A video to promote the album will be shot in London in February.<BR><BR>Among the songtitles set to appear on the CD are the following:<BR><BR>01. <B>Envision The Beast</B><BR>02. <B>Fuel The Flames</B><BR>03. <B>Raping The Children Of Abel</B><BR>04. <B>Night Visit</B><BR><BR>"The new album will show a somewhat new musical direction for the band, although with a good amount of the typical <B>ANCIENT</B> sound as always," the group write on their web site. "The band has been focusing more on dynamics and power this time, in order to make it an album very catchy and interesting. As usual the songs are all rather diverse, resulting in an album to not be bored of easily." </DIV>
+Автор: Vit Belov
+
+### 22.10.2003 news Ancient начнут запись в январе
+
+<P><B>ANCIENT</B> решили войти в студию не в ноябре, как ранее сообщалось, а в январе. Группа запишет новый альбом, который выйдет в 2004 году на <B>Metal Blade</B>.</P>
+Автор: Vit Belov
+
+### 02.03.2004 news ANCIENT закончили запись новой пластинки
+
+<P><B>ANCIENT</B> закончили запись нового альбом под названием <B>'Night Visit'</B>. Пластинка была записана в Италии, а смикширована в <B>Studio Fredman</B>. Альбом выйдет 1 июня на <B>Metal Blade</B>.</P>
+Автор: Vit Belov
+
+### 30.04.2004 news Новый альбом ANCIENT
+
+<P><B>ANCIENT</B> выпускают новый альбом <B>"Night Visit"</B> 1 июня на <B>Metal Blade</B>. Трэк-лист:</P>
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2004.04/6467.jpg" width=269 align="right" border=5>01. <B>Envision the Beast</B><BR>02. <B>Rape the Children of Abel</B><BR>03. <B>Horroble</B><BR>04. <B>Night Visit</B><BR>05. <B>Lycanthropy</B><BR>06. <B>Night of the Stygian Souls</B><BR>07. <B>Fuel the Flames</B><BR>08. <B>The Truth Unveiled</B><BR>Bonus tracks:<BR>09. <B>The Arctic Mirage</B><BR>10. <B>Out in the Haunted Woods</B><BR><BR></P>
+Автор: Vit Belov
+
+### 11.08.2004 reviews &#39;Night Visit&#39; никому не пригодится
+
+<P><I><B>ANCIENT</B>, бывший норвежский, а ныне американский коллектив, продолжает транжирить "капитал", заработанный на ранних альбомах.</I></P>
+<P>Оригинальные пластинки второй половины 90-х, на которых группа замешивала сырой black-metal с мелодичными вкраплениями, деградировали в <B>'Night Visit'</B>. <B>ANCIENT</B> уже никогда не быть даже в высшем дивизионе. Есть группы и помелодичнее, и побрутальнее. Новый же альбом группы проигрывает и в том, и в этом компоненте. Однообразное среднетемповое молотилово, записанное недостаточно плотно для black-metal, с редкими мелодичными вставками и женским пришёптыванием, опять же, недостаточно симфоничным, и оригинальным.</P>
+<P><B>ANCIENT</B> типичная "группа одной фишки". Эта "фишка" уже себя изжила, а новой придумать не удалось. И так, коллектив продержался довольно долго где-то около подиума. Боюсь, что <B>'Night Visit' </B>уже&nbsp;никому не пригодится.</P>
+<P><I><B>Диск предоставлен фирмой <A href="http://www.fono.ru/">ФОНО</B></I></A></P>
+Автор: Vit Belov
+
+### 10.09.2005 news Концерт ANCIENT в Москве
+
+<CENTER><IMG height=283 src="/images/shows_rus/2005.09/8963.jpg" width=400 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>В концертах в Москве и Санкт-Петербурге принимает участие группа DRAMA - альбом которой "Winds Choir Opera" выпустили MUSICA Production!!! На концерте в Москве будут продаваться альбомы DRAMA, ANCIENT, INSIDE YOU по специальным ценам 130 рублей</CENTER>
+Автор: Vit Belov
+
+### 16.09.2005 articles ANCIENT в Москве: Очередной концерт, где разогрев &quot;убрал&quot; западного хэдлайнера
+
+<P><IMG height=247 alt="" hspace=0 src="/images/articles_rus/2005.09/9318.jpg" width=200 align=left border=5>Нас ждут благословенные времена… Нет, они уже почти настали. Каждый уик-энд к нам приезжают «крупные» группы, но вот если ещё и такие коллективы, как ANCIENT будут приезжать с турами по нашим городам, мы получим полный ассортимент. Как в Европе… Вот только ещё клубы подтянуть до такого же уровня и будет нам всем счастье.</P>
+<P>Псевдонорвежцы ANCIENT прилетели к нам из Италии. На пятый день тура был намечен концерт в клубе «Релакс» в Москве. Металлистов собралось немного, скорее всего, посещаемость была самая низкая за весь тур – около 200 человек. Разогрев был заявлен достаточно весомый: STIGMATIC CHORUS, EDUCATED SCUM, DRAMA, INSIDE YOU. EDUCATED SCUM отказались от выступления ещё за неделю до концерта, а INSIDE YOU где-то задержались в пути, что вызвало серию недоразумений, которая вылилась в отмену и их выступления. В итоге концерт начался почти с трёхчасовой задержкой, и первыми на сцену вышли STIGMATIC CHORUS.</P>
+<P>Публика была не слишком обозлена, благо в Релаксе при такой посещаемости ещё есть чем дышать. STIGMATIC CHORUS представляли свой новый альбом “Autodafe”, который был выпущен месяц назад Союзом после годовой задержки. Политика лэйбла по отношению к этой sympho-black-metal группе непонятна. Мало того, что альбом уже покрылся пылью за это время, так и достать его где-то практически <IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.09/9317.jpg" width=250 align=right border=5>невозможно. Коллектив выступил на хорошем клубном уровне. По какой-то причине SC выступали без грима, в прошлый раз, когда я их видел, несколько лет назад – грим был. Нельзя сказать, что «Хорусы» совершили революцию, но, думается, любители sympho-black могут обратить внимание на них.</P>
+<P><IMG height=280 alt="" hspace=0 src="/images/articles_rus/2005.09/9316.jpg" width=200 align=left border=5>А вот кто совершил революцию, так это DRAMA. Их первое выступление в Москве произвело сильное впечатление. Видно, что группа обращает особое внимание на перфоманс. Грим под BEHEMOTH, синхронное рубилово, задник, интро… Всё, как у них&#61514; В концертном варианте группа звучит более брутально, но песни с новейшего “Winds Choir Opera” узнаются без труда. Мне показалось, что DRAMA дают одно из лучших представлений в black-metal в нашей стране, и тут дело совсем не в кривляниях или пиротехнике, просто в энергетике. Что ж, будем надеяться, что группа посетит Москву ещё раз в ближайшем будущем.</P>
+<P>А вот ANCIENT совсем не порадовали. Пожалуй, худшая группа вечера. Единственное, что обратило на себя внимание – это грим под Иисуса Христа у их лидера, а вот музыка и качество… Звук был худшим среди всех выступающих, из-за этого все песни смешались в одну кашу, так более того не тяжёлую кашу, а жужжащую кашу. Я думаю, у тех, кто внимательно слушал, могла заболеть голова. Выступление их закончилось уже после 12-00 и оставшаяся публика бодро сбежала в метро.</P>
+<P>В завершение выражу лёгкую надежду, что нас будут посещать более качественные команды европейского UG-металла. Тур ANCIENT показал, что люди в глубинке готовы ходить даже на ANCIENT. А что если им привезти более популярную команду?&nbsp; </P>
+Автор: Vit Belov
+
+### 06.10.2005 news Grom покинул ANCIENT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Grom</STRONG> покинул <STRONG>ANCIENT</STRONG>, из-за разногласий с остальными участниками группы. Однако, он продолжит исполнять обязанности драммера до тех пор, пока коллектив не подберёт нового музыканта.</FONT></P>
+Автор: Vit Belov
+
+### 19.11.2006 articles Оля Романова: за и против - ARCANE GRAIL презентовали дебют - HAMMERFALL не интересуются Евровидением, а THUNDERSTONE интересуются - Rock TV выгнал Сатанизм из эфира - OZZY благословил Iommi и Dio на HEAVEN AND HELL
+
+<P><EM><IMG height=448 alt="" hspace=0 src="/images/articles_rus/2006.11/10904.jpg" width=200 align=left border=5>Оля Романова: за и против</EM></P>
+<P>В прошлое воскресенье в клубе ИКРА на Курской прошла презентация нового альбома Ольги Романовой, именующей себя Dark Princess, “Stop My Heart”. Поддержка малоизвестной итальянской команды DOMINA NOCTIS не помогла артистке собрать хоть сколько-нибудь значительную аудиторию. По билетам концерт посетило около 40 человек. Ольга Романова и этот концерт – тема для очень большой статьи. Попробуем разобраться…</P>
+<P>Я не случайно назвал госпожу Романову Олей в подзаголовке. Это не из-за моей излишней фамильярности, и не из-за попытки унизить певицу. Девушка производит именно такое впечатление. На Ольгу она не тянет, а уж тем более не тянет на Dark Princess. Молоденькая учительница математики, коей она и является, которая совсем неплохо поёт, но почему-то решила, что может стать в России готической принцессой. Безусловно, у нас нет собственной готической принцессы, но всё же не надо нас за лохов считать. При этом весь негатив наваливается после посещений живых выступлений Dark Princess, и если вы пока не попали на её выступление, не ходите, слушайте записи и не портите себе впечатления. Ведь записи Dark Princess очень неплохи, и об этом я писал в рецензии на альбом Ольги. Рыжая (уже перекрасится пора давно), худая, немодно румяная, совсем непластичная, с куцым концертным опытом. Ольга по-прежнему прячется за своих молодых музыкантов и не понимает, что ей надо делать. Даже на уровне начинающих музыкантов из DOMINA NOCTIS она выглядит бледно.</P>
+<P>А тем временем, складывается впечатление,&nbsp;кто-то осваивает немаленькие деньги мужа госпожи Романовой. Рекламой её альбома пестрят все журналы, концерт активно рекламируется, Ольга смотрит на нас со стен гаражей и с плафонов эскалаторов в метро. Лэйбл заявляет о великих продажах дебютной работы, а на концерты никто не ходит. Правда в Питере, говорят, было 150 человек, а вот концерт в Туле отменили, якобы, Dark Princess не понравилась площадка. Причина проста. Металлистов не так просто надуть, о чём тоже говорили много раз. Можно надуть любителя АРИИ или КИПЕЛОВА, разместив везде рекламу новых русскоязычных heavy-power’щиков, но впарить англоязычный gothic-metal альбом с женским вокалом не так просто. «Тёмными принцессами» так просто не становятся. Деньги тут совсем не главное. Нужно поиграть по клубам, набраться опыта. Здесь вам не «Фабрика звёзд». При этом я даже не заикаюсь об окупаемости проекта, здесь даже речь об этом не идёт. Этого не случится никогда! Также хочу развеять все надежды госпожи Романовой. Популярной на Западе она не станет, на концерт в Италии придут ещё меньшее количество фэнов, чем в Москве. Что может организовать DOMINA NOCTIS, которая была настолько рада «на шару» побывать в Москве, что готова пообещать, что угодно? Как и во многих других областях бизнеса, здесь кто-то осваивает чужие бабки. Хватит уже вкладывать деньги и пудрить всем мозги. Работайте с тем, что есть.</P>
+<P>Каков вывод? Вывод таков. Не открою вам глаза, если скажу, что металлическая музыка не является тем полигоном для бизнеса, на котором можно реально заколачивать деньги. Все успехи локальны и не имеют ничего общего с долгосрочным и стабильным заработком. Скупать рекламу в известных журналах можно только для локальной популярности, к заработкам это никогда не приведёт. Товар, который предлагают металлисты не ликвиден, рынок не эластичен. В настоящее время появляются предпосылки к тому, чтобы обычный фэн тяжёлой музыки подумал, что heavy приобретает повышенную популярность. Это не что иное, как PR-акция, такая же, как реклама Ольги Романовой. Ничего плохого в этом, кстати, нет. Просто хочется разрушить иллюзии бизнесменов от музыки, которые тоже захотят вкладывать огромные деньги в металл.</P>
+<P>Что же ЗА? А ЗА – отличная музыка от Михаила Гуза, вокал Ольги, она уделала Edera из DOMINA NOCTIS. Не надо нам только ничего показывать. Лучше быть загадочной студийной принцессой… И ради Бога, перекрасьте волосы. Боюсь только, уже поздно и комедийный имидж рыжеволосой «Тёмной принцессы» обретён Романовой навсегда.</P>
+<P><EM><IMG height=402 alt="" hspace=0 src="/images/articles_rus/2006.11/10905.jpg" width=200 align=right border=5>ARCANE GRAIL презентовали дебют</EM></P>
+<P>Ещё одно шоу, которое я посетил на неделе, было презентацией нового альбома москвичей ARCANE GRAIL “Mysteries Of Ancient Charnel”, вышедшего на MUSICA Production в августе. Народа на ARCANE GRAIL, SPAINT, STIGMATIC CHORUS и др. пришло побольше, чем на Романову, но не слишком. «Релакс» посетило, по моим прикидкам, около 100 человек. Хочется поговорить о выступлениях SPAINT и героев вечера. Во-первых, SPAINT (ex-WEEDS IN VOGUE). Группа сменила название, вслед за сменой музыкального направления. Mike и друзья решили двинуться в сторону более современного звучания. Качовые риффы, мелодика, эмоциональный вокал вперемешку со скримингом. Шоу от SPAINT очень энергично. Их выступление позволит оторваться даже самым скованным и трезвым. Мои рекомендации. Интересно же то, что на записи музыка SPAINT таких эмоций не вызывает. Почему так происходит? Схожие проблемы есть у нескольких отечественных коллективов, включая MELANCHOLY. После концерта появляется дикий восторг, запись же вызывает&nbsp;несколько другие чувства. При этом группы записываются в не самых худших студиях. Ещё одним сходством этих коллективов являются попытки играть в более модном «МТИВИшном» ключе. Энергия же в студии растворяется и должной популярностью у покупателей CD ребята не получают.</P>
+<P>У ARCANE GRAIL другие проблемы. Я бы сказал обратные проблемы. Студийное звучание коллектива приближается к мировым стандартам, а на концерте&nbsp;группа звучит слишком сложно для восприятия. Вернее музыка ARCANE GRAIL слишком сложная для восприятия звукорежиссёром. Оттенки, слышные на записи, теряются в стенах «Релакса». И зачастую рядовому слушателю, незнакомому с оригинальным CD, непонятно, что, вообще, происходит. Как сочетаются женский и мужской вокалы, например? Где клавишные, а где гитара? Кстати, отмечу две вещи: великолепный мужской вокал и артистизм певицы, платье которой хоть и не вышло из под швейной машинки личного дизайнера, как у Ольги Романовой, сидит не в пример лучше, а поведение на сцене более раскованное. Может в Arcane Grail поёт Dark Princess? Нет, воздержимся от столь громких титулов. Там поёт просто Натали.</P>
+<P><EM><IMG height=194 alt="" hspace=0 src="/images/articles_rus/2006.11/10906.jpg" width=112 align=left border=5>HAMMERFALL не интересуются Евровидением, а THUNDERSTONE интересуются</EM></P>
+<P>Вернёмся к зарубежным событиям. Совсем недавно увидел свет новый альбом шведов HAMMERFALL “Threshold”. Новый альбом группы должен продолжить победную поступь коллектива по всему миру. Материал пластинки не оставляет никаких сомнений, что фанаты группы получат то, что искали. Стабильное положение HAMMERFALL в табели о рангах современного power-metal позволяет группе осваивать новые рынки, выпускать синглы, снимать видеоклипы. Клип с нового альбома на песню “Natural High” группа снимала с новыми людьми. Впервые с 2000 года HAMMERFALL сменили режиссёра. Забавно, что новой Меккой для видео от металлистов становится Сербия, где и был снят ролик. Кстати, там же свои видеоклипы будет снимать и SIRENIA. “Лирически песня рассказывает о вампирах», - показывает певец Joacim Cans. «Мы попросили ребят снять нам ролик, где сюжет развивается рука об руку с текстом песни. Мы хотели иметь что-то похожее на «Блэйд»». После победы LORDI на Евровидении в прессе государств северной Европы стали появляться слухи об участии тех или иных металлических групп в конкурсе будущего года. Подобные же слухи коснулись HAMMERFALL. «Это не правда. Подобная информация появилась только в разделе слухов одной из шведских газет. Интересно, что, увидев в Интернете эту информацию, боссы нашего лэйбла Nuclear Blast предложили нам участвовать в отборе. Мы всё равно отказались. Во-первых, мы не хотим исполнять чужую песню (странно, LORDI играли свою, прим. авт.), и не видим, кто бы мог написать нам её», - опровергает «утку» Cans. Подобные проблемы не взволновали другую группу из конюшни Nuclear Blast, THUNDERSTONE из Финляндии, которые вошли в число 12 претендентов на представление Финляндии в финале Евровидения, который пройдёт в Хельсинки в 2007 году. Названия песен, которые будут исполняться конкурсантами, будут названы в январе 2007 года, а сам отбор пройдёт в феврале.</P>
+<P><EM>Rock TV выгнал Сатанизм из эфира</EM></P>
+<P>Итальянский кабельный канал Rock TV закрыл программу “Extreme Metal” и уволил её ведущего Aleister, который является гитаристом ANCIENT. Это произ<IMG height=400 alt="" hspace=0 src="/images/articles_rus/2006.11/10907.jpg" width=300 align=right border=5>ошло после того, как один из гостей передачи ответил на вопрос, посланный в эфир телезрителем. Зритель спрашивал, являются оккультные символы, которые использует музыкант только элементами шоу, или он использует их с каким-то подтекстом. Неназванный гость передачи ответил, что это не шоу, он всегда на своих альбомах рассказывает о Сатанизме и не желает скрывать этого. В течение 24 часов Aleister был уволен со всех должностей на Rock TV. Ведущий приглашал в шоу underground группы, которые не имели доступа на телевидение. Он успел показать 14 коллективов, остальные, видимо, так на телевидение не попадут. Вот так вот:) Нам-то эти проблемы не ведомы.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P><EM>OZZY благословил Iommi и Dio на HEAVEN AND HELL</EM> </P>
+<P>Совсем недавно американские СМИ сообщили о воссоединении Tony Iommi и Dio в группе под названием HEAVEN AND HELL. В группу также войдут Geezer Butler и Bill Ward. Уже объявлено, что группа выступит на фестивале Monsters of Rock в Великобритании. Dio подтвердил эту информацию в интервью Classic Rock: «Кроме концерта на фестивале, мы дадим несколько других шоу в США и Великобритании. Ozzy благословил нас на этот проект. Он очень очень особенная личность. Он один из создателей heavy-metal музыки. Он заслуживает мощнейших аплодисментов. Он великолепный человек, и я желаю ему всего наилучшего. Надеюсь, он и Шарон очень очень счастливы». Ronnie провёл в Англии несколько дней, сочиняя новые песни с Iommi, которые войдут на грядущий сборник “Black Sabbath: The Dio Years”. Позже в 2007 BLACK SABBATH объединятся в классическом составе: Osbourne, Iommi, Butler и Ward. Фэнов ждёт новый тур и новый альбом, первый в таком составе с 1978 года.&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>На следующей неделе: интервью с гитаристом Doug Aldrich, вокалистами Mark “Barney” Greenway, Jon Oliva, Johnny Hedlund, а также Yngwie Malmsteen.</P>
+Автор: Vit Belov
+
+### 01.07.2016 news Новая музыка ANCIENT
+
+<p><strong>ANCIENT</strong> выпускают первый за 12 лет новый студийный альбом <strong>"Back To The Land Of The Dead"</strong> 16 сентября на <strong>Soulseller Records</strong>. Стал известен трек-лист этого альбома, а новую композицию <strong>"Land Of The Dead</strong>" можно послушать ниже.</p><p>Трек лист:</p><p>“Land Of The Dead”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“Beyond The Blood Moon”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“The Sempiternal Haze”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“The Empyrean Sword”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“The Ancient Disarray”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“Occlude The Gates”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </p><p>The Excruciating Journey:<br>“Part I - Defiance And Rage” <br>“Part II - The Prodigal Years” <br>“Part III - The Awakening”&nbsp;&nbsp; <br>“Death Will Die”&nbsp;&nbsp; <br>“The Spiral”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“Petrified By Their End” </p><p>Bonus track:<br>“13 Candles” (Bathory cover)</p><p><center><iframe style="border: 0; width: 100%; height: 120px;" src="https://bandcamp.com/EmbeddedPlayer/track=2182721404/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" seamless><a href="http://ancient2.bandcamp.com/track/land-of-the-dead">Land Of The Dead by Ancient</a></iframe>
+Автор: Vit Belov
+
+### 01.07.2016 news New music by ANCIENT
+
+<p><strong>ANCIENT's</strong> first studio release in 12 years, "<strong>Back To The Land Of The Dead</strong>" will be out on September 16 on <strong>Soulseller Records</strong>. Track listing for the album became known and new song "<strong>Land Of The Dead</strong>" can be streamed below.</p><p>“Land Of The Dead”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“Beyond The Blood Moon”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“The Sempiternal Haze”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“The Empyrean Sword”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“The Ancient Disarray”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“Occlude The Gates”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </p><p>The Excruciating Journey:<br>“Part I - Defiance And Rage” <br>“Part II - The Prodigal Years” <br>“Part III - The Awakening”&nbsp;&nbsp; <br>“Death Will Die”&nbsp;&nbsp; <br>“The Spiral”&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>“Petrified By Their End” </p><p>Bonus track:<br>“13 Candles” (Bathory cover)</p><p><center><iframe src="https://bandcamp.com/EmbeddedPlayer/track=2182721404/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" style="border: 0px currentColor; width: 100%; height: 120px;" seamless="">&amp;amp;amp;amp;lt;a href="http://ancient2.bandcamp.com/track/land-of-the-dead"&amp;amp;amp;amp;gt;Land Of The Dead by Ancient&amp;amp;amp;amp;lt;/a&amp;amp;amp;amp;gt;</iframe></center>
+Автор: Vit Belov
+
+### 23.08.2016 news Новый сингл ANCIENT
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый трек <strong>ANCIENT "Death Will Die"</strong> можно послушать ниже. Песня войдёт в долгожданный новый альбом норвежцев "<strong>Back To The Land Of The Dead</strong>", который выйдет 16 сентября на <strong>Soulseller Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/278066828&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+### 23.08.2016 news New single of ANCIENT
+
+<p>New <strong>ANCIENT</strong> track "<strong>Death Will Die</strong>" can be streamed below. The song will be included in the long-awaited new album of the Norwegians "<strong>Back To The Land Of The Dead</strong>", which will be released September 16 on<strong> Soulseller Records</strong>.</p><p>&nbsp;<center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/278066828&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### 10 сентября, Релакс ANCIENT

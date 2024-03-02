@@ -33,6 +33,9 @@ Rami Ali - Drums
 * C группой "Evidence One" Robby Bobel (guitars)
 * C группой "Talon" Robby Bobel (guitars)
 
+## Публикации
+
+
 ## Обсуждения
 
 

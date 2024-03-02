@@ -147,6 +147,93 @@ Subtopia.
 * C группой "Arcturus" Sverd (keys)
 * C группой "Kovenant" Sverd (keys)
 
+## Публикации
+
+### 23.08.1999 news 
+
+<p>Emperor готовят новое видео, в которое войдут записи с концерта в Асстории в Лондоне, а также записи из жизни музыкантов между концертами. Видео выйдет в конце года. Candlelight Records переиздаст последний альбом группы "IX Equillibrium". На него войдут несколько различных версий песен. Например, Трикстер Джи (Ulver, Arcturus) работает над ремиксом песни "Sworn". Для наших фэнов будет интересно, что группа выступит на фестивале в Польше 9 октября вместе с Peccatum, Limbonic Art, Hypocrisy, The Kovenant (новое название Covenant). Концертный клавишник Emperor Шарман Гримлох выпусти свой сольный альбом "The Red Jewel" в сентябре.</p>
+
+Автор: Vit Belov
+
+### 19.11.2001 reviews Музыка к собственному фильму написанная в городе Погибель
+
+<p>Музыка к собственному фильму написанная в городе Погибель. Да...только в городе с подобным названием можно было написать такую безумную, не поддающуюся описанию музыку. Что же делается в мире... Сплошная деградация хороших некогда групп. В данном случае, уподобление Ulver их земляку Гришнаку. Но только в более экстремальной степени. От Black metal через прогрессивную музыку к бесшумной ambient музыке, тотально наэлектроризованной, с больной атмосферикой навеваемой саксофонными партиями, фортепианными вставками, обилием сэмплов с промышленными звуками и редкостными чистовокальными песнопениями. Большей степенью - это фоново-нойзовая музыка. Извините, но я такую музыку никогда не мог слушать долго и вряд ли мне это удастся в будущем. Очень сложная, грузящая музыка представляющая собой сумасшедший стилистический коктейль. Такие альбомы надо слушать по песенке в день, не более, дабы не слишком утомляться. Однако , чтобы иметь полное представление об альбоме, его обязательно нужно прослушать целиком, так как все музыкальные темы разнообразны и отличны друг от друга. Поэтому, в данном случае для написания рецензии мне пришлось его прослушать целиком и даже два раза подряд. Но исходя из субъективного (собственного) мировоззрения и музыкального воспитания, больше двух с половиной баллов поставить альбому я не могу...</p>
+
+Автор: Dimas
+
+### 01.12.2001 reviews Music for own film, what was written in city &quot;Perdiction&quot;
+
+<p>Music for own film, what was written in city "Perdiction". Yes... Only in city with the similar name it was possible to write such mad, not giving in to the description, music. What has done in the world? Continuous degradation of good bands. In this case, Ulver is like at their fellowcountryman Grishnak. But only it's in more extreme degree. From Black metal through progressive music to silent ambient music, total stress, with the patient atmosphere, blowing by saxaphone parties, by piono inserts, abundance of samples with industrial sounds and rare clean vocal. It is background noise music in greater degree. Excuse, but I never could listen such music long and hardly it will be possible to me in the future. Very difficult music, representing a mad stylistic cocktail. It is necessary to listen to such albums for one song per day, no more, not too to be tired. However, to have complete representation about an album, it should be heard wholly, as all musical themes are various and are different from each other. Therefore, in this case for a spelling of the review I had to listen to it wholly and even two times in succession. But proceeding from subjective (own) outlook and musical education I can not put to this album more than 2.5 points.</p>
+
+Автор: Dimas
+
+### 09.11.2002 news ULVER news
+
+<p>The End Records are very proud to announce they are releasing ULVER from Jester Records for North America. This the original ULVER soundtrack for the Swedish short film LYCKANTROPEN, produced and directed by Steve Ericsson. The ten themes are improvisations over three chords produced on mobile ULVER equipment. The focal points were laid down in Oslo and developed further in cooperation with the director and film editor in Stockholm. "The final results are an exciting blend and experimental soundscapes, dark undertones and haunting passages ... Perfection for the visual content of Lyckantropen." Release Date: January 14th, 03.</p>
+
+Автор: Dimas
+
+### 09.11.2002 news Новости от ULVER
+
+<p>14 января 2003 года на The End Records выходит новый релиз группы ULVER "Lyckantropen Themes". Это будет оригинальная звуковая дорожка к короткометражному шведскому фильму "Lyckantropen". В альбом войдут десять основных музыкальных тем фильма. Ожидается экспериментальная смесь звуковых гамм, мрачных оттенков и спокойных переходов.</p>
+
+Автор: Dimas
+
+### 05.08.2003 reviews Музыка мегаполисов
+
+<p>...Глаза закрываются, в них нет ничего, что остановит на себе взгляд. На обратной стороне век темно и шумно, тепло и шумно. Только ломит виски. Я вижу дорогу, мелькающую разметку, влажный пористый асфальт цвета мокрого асфальта. Кто-то ехал в моей голове, опустив вниз включенную видеокамеру...<BR> ...Глаза открываются, мелькают пыльные темные стены и маячат, качаясь в такт бледные пятна лиц. Тот же шум. Глаза закрываются...<BR> ...Дорога обрывается вспышкой света... Это оранжевый саксофон и сиреневый женский вокал без слов... Я плыву между пульсирующих облаков лупов... Падаю, проскальзываю между облаков, упругих, плотных и холодных... На них крапинки ржавчины, она остается на руках, она терпкая на вкус...<BR> ..Голос, неприятный голос, заставляет распахнуть глаза... Зачем он здесь? Я уже давно не слушаю гранж, Лейн умер... Глаза медленно закрываются... <BR> ...Хаотичные вспышки звука... Так умирают?.. Или засыпают... Тонут в холодной воде... Навсегда - очень холодное слово. Смерть - намного теплее, она как истлевшая тряпка. Пыльная тряпка на свежевыпавшем снегу. Наверху идет снег, перпендикулярно земле, параллельно свету... Я внизу, лечу перпендикулярно свету вдоль тьмы...<BR> ...Наверху ветер... Он томится между линий желтого света и траекторий снежинок. Он стянут, недвижим... Он энергия, готовая превратиться в звук, но он будет лишь там, где нет траекторий и линий, где мягкая холодная тьма, где можно лететь и не видно конца, не чувствуешь дна... Он ритмика движений, монотонных, незаметных, как дыхание и движения глаз под закрытыми веками. Сбивчивое дыхание непонятных снов, утренних снов, коротких и ярких. Размеренность непостижимого, округлость головной боли... Ветер, ждущий, когда кончится сон...<BR> ...Снег тает на лице, оставляя запах утра... Завтрашнего утра, вчерашнего утра, серого утра, когда тоже шел снег... Внутри открывает глаза волк... Желтые немигающие глаза, вспышки боли и света, адреналин мягко толкает в затылок. Сердце хочет лететь, но уже не боится... Волк смотрит, не отрывая взгляда. Он не разглядывает, просто смотрит сквозь. Внутрь и извне...<BR> ...Извне мир, искаженный тьмой, пронизанной желтыми нитями мертвого света. Бетонные деревья и электрическая луна. Снег делает их знакомыми. Они тут, вокруг, они неопасны, но чужды, они слишком близко, чтобы отвернуться... Волк смотрит... Они дышат рядом, они говорят. Не знают, что мертвы и пусты. Их желтые глаза внутри погасли, зверь умер... Ушел, уснул... Корни высохли... Они ходят под бетонными деревьями, они живут в полных желтого мертвого света логовах, они пахнут чужими запахами... Они вокруг, но отделены стенами желтого света...<BR> ...Волк зевает и отворачивается, желтый внимательный взгляд исподлобья. Глаза закрыты... Я пуст... Звук грязен, свет грязен... Один щелчок и тьма.<BR> ...Две таблетки избавят от снов, боль уйдет сама...</p>
+
+Автор: 50206
+
+### 23.09.2003 news Ulver сменили название своего будущего альбома
+
+<B>ULVER</B> работают над новой пластинкой. Только что было сообщено, что он будет называться "<B>Heart</B>", вместо планировавшегося ранее "<B>Utopian Enterprise</B>".
+Автор: Vit Belov
+
+### 17.02.2005 news Новости от ULVER
+
+<P>Эксцентричные норвежцы <STRONG>ULVER</STRONG> готовят к выходу в апреле 2005&nbsp;года через <STRONG>Jester Records</STRONG> свой новый альбом под названием "<STRONG>Blood Inside</STRONG>". С помощью него, музыканты планируют войти в новое измерение, доказывающее сумасшествие их музыкальной гениальности. Уже сейчас, можно ознакомиться с отрывками из каждой композиции альбома, кликнув на ее название. Трек-лист выглядит следующим образом:</P>
+<P><STRONG><IMG height=250 alt="" hspace=20 src="/images/news_rus/2005.02/7947.gif" width=250 align=left border=0>1. <A href="http://www.jester-records.com/mp3/ulver/blood/1.mp3">Dressed in black</A> <BR>2. <A href="http://www.jester-records.com/mp3/ulver/blood/2.mp3">For the love of God </A><BR>3. <A href="http://www.jester-records.com/mp3/ulver/blood/xmas.mp3">Christmas</A> <BR>4. <A href="http://www.jester-records.com/mp3/ulver/blood/4.mp3">Blinded by blood </A><BR>5. <A href="http://www.jester-records.com/mp3/ulver/blood/5.mp3">It is not sound</A> <BR>6. <A href="http://www.jester-records.com/mp3/ulver/blood/6.mp3">The truth </A><BR>7. <A href="http://www.jester-records.com/mp3/ulver/blood/7.mp3">In the red </A><BR>8. <A href="http://www.jester-records.com/mp3/ulver/blood/8.mp3">Your call </A><BR>9. <A href="http://www.jester-records.com/mp3/ulver/blood/9.mp3">Operator</A></STRONG><FONT color=#666666></FONT></P>
+Автор: Dimas
+
+### 04.05.2005 news Ulver -  новый альбом уже скоро.
+
+<P>Новый альбом&nbsp;<STRONG>ULVER</STRONG> "<STRONG>Blood Inside</STRONG>"&nbsp;выходит 6 июня.</P>
+<P>Трэк-лист<BR>01. <STRONG>Dressed In Black<BR></STRONG>02. <STRONG>For the Love of God</STRONG><BR>03. <STRONG>Christmas <BR></STRONG>04. <STRONG>Blinded by Blood <BR></STRONG>05. <STRONG>It Is Not Sound<BR></STRONG>06. <STRONG>The Truth</STRONG><BR>07. <STRONG>In the Red<BR></STRONG>08. <STRONG>Your Call<BR></STRONG>09. <STRONG>Operator</STRONG></P>
+<P>Фрагменты песен можно скачать по ссылке </P>
+<P><A href="http://www.jester-records.com/releases_sub.php?ID=39">http://www.jester-records.com/releases_sub.php?ID=39</A></P>
+<P>Кроме того, с сайта <STRONG>The End Records</STRONG> можно скачать клип на песню с нового альбома </P>
+<P><A href="http://media.theendrecords.com/ulver_itisnotsound_55mb.mov">http://media.theendrecords.com/ulver_itisnotsound_55mb.mov</A></P>
+<P>&nbsp;</P>
+<P>&nbsp;</P>
+Автор: Bizarre
+
+### 29.11.2010 news ULVER назвали новый альбом
+
+<P><IMG height=186 alt="" hspace=0 src="/images/news_rus/2010.11/17682.jpg" width=250 align=right border=1>Новый альбом<STRONG> ULVER</STRONG> получил название <STRONG>"Critical Geography". </STRONG>Пластинка должна выйти в 2011 году.</P>
+<P>Последняя на сегодня пластинка норвежцев "<STRONG>Shadows Of The Sun</STRONG>" вышла в 2007 году на<STRONG> Jester Records</STRONG>. Коллектив давно уже отошёл от своего изначального black-metal звучания и является одной из ведущих dark experimental групп нашего времени.</P>
+Автор: Vit Belov
+
+### 05.11.2011 news ULVER выпускают DVD
+
+<P>28 ноября на <STRONG>KScope</STRONG> выходит новый DVD норвежцев<STRONG> ULVER "Live In Concert: The Norwegian National Opera"</STRONG>. Группа, начавшая выступать с концертами лишь в мае 2009 года, подготовила двухчасовой сет. Трек-лист:</P>
+<P>01. <STRONG>Moon Piece <BR></STRONG>02. <STRONG>Eos <BR></STRONG>03. <STRONG>Let The Children Go</STRONG> <BR>04. <STRONG>Little Blue Bird</STRONG> <BR>05. <STRONG>Rock Massif Part 2</STRONG> <BR>06. <STRONG>For The Love Of God</STRONG> <BR>07. <STRONG>Operator <BR></STRONG>08. <STRONG>In The Red <BR></STRONG>09.<STRONG> England <BR></STRONG>10. <STRONG>Funebre</STRONG> <BR>11. <STRONG>Hallways Of Always</STRONG> <BR>12. <STRONG>Theme From Silence Teaches You How To Sing <BR></STRONG>13. <STRONG>A Cold Kiss (Porn Piece Part 2) <BR></STRONG>14. <STRONG>A Memorable Fancy (The Marriage Of Heaven And Hell, Plates 16-17) <BR></STRONG>15. <STRONG>Like Music</STRONG> <BR>16. <STRONG>Not Saved <BR></STRONG>17. <STRONG>Legs Piece</STRONG> </P>
+<P><center><iframe src="http://player.vimeo.com/video/28817241?title=0&byline=0&portrait=0" width="400" height="225" frameborder="0" webkitAllowFullScreen allowFullScreen></iframe></P>
+Автор: Vit Belov
+
+### 21.04.2012 news ULVER пройдутся по классике
+
+<P><STRONG><IMG height=299 alt="" hspace=0 src="/images/news_rus/2012.04/23627.jpg" width=400 align=right border=0>ULVER</STRONG> выпустят новый альбом <STRONG>"Childhood's End" </STRONG>в этом году. Группа пересмотрела классику 60-х годов в своём уникальном мрачном звучании. Норвежцы записали кавера на <STRONG>THE 13TH FLOOR ELEVATORS</STRONG>, <B itxtHarvested="0" itxtNodeId="107">ELECTRIC PRUNES</B>, <B itxtHarvested="0" itxtNodeId="106">JEFFERSON AIRPLANE</B>, <STRONG>THE PRETTY THINGS </STRONG>и других. Подный трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="85">Bracelets Of Fingers</B> (originally recorded by THE PRETTY THINGS) <BR itxtNodeId="84">02. <B itxtHarvested="0" itxtNodeId="83">Everybody's Been Burned</B> (THE BYRDS) <BR itxtNodeId="82">03. <B itxtHarvested="0" itxtNodeId="81">The Trap</B> (BONNIWELL'S MUSIC MACHINE) <BR itxtNodeId="80">04. <B itxtHarvested="0" itxtNodeId="79">In The Past</B> (CHOCOLATE WATCHBAND) <BR itxtNodeId="78">05. <B itxtHarvested="0" itxtNodeId="77">Today</B> (JEFFERSON AIRPLANE) <BR itxtNodeId="76">06. <B itxtHarvested="0" itxtNodeId="75">Can You Travel In The Dark Alone?</B> (GANDALF) <BR itxtNodeId="74">07. <B itxtHarvested="0" itxtNodeId="73">I Had Too Much To Dream Last Night</B> (ELECTRIC PRUNES) <BR itxtNodeId="72">08. <B itxtHarvested="0" itxtNodeId="71">Street Song</B> (THE 13TH FLOOR ELEVATORS) <BR itxtNodeId="70">09. <B itxtHarvested="0" itxtNodeId="69">66-5-4-3-2-1</B> (THE TROGGS) <BR itxtNodeId="68">10. <B itxtHarvested="0" itxtNodeId="67">Dark Is The Bark</B> (LEFT BANKE) <BR itxtNodeId="66">11. <B itxtHarvested="0" itxtNodeId="65">Magic Hollow</B> (BEAU BRUMMELS) <BR itxtNodeId="64">12. <B itxtHarvested="0" itxtNodeId="63">Soon There'll Be Thunder</B> (COMMON PEOPLE) <BR itxtNodeId="62">13. <B itxtHarvested="0" itxtNodeId="61">Velvet Sunsets</B> (MUSIC EMPORIUM) <BR itxtNodeId="60">14. <B itxtHarvested="0" itxtNodeId="59">Lament Of The Astral Cowboy</B> (CURT BOETTCHER) <BR itxtNodeId="58">15. <B itxtHarvested="0" itxtNodeId="57">I Can See The Light</B> (LES FLEUR DE LYS) <BR itxtNodeId="56">16. <B itxtHarvested="0" itxtNodeId="55">Where Is Yesterday</B> (UNITED STATES OF AMERICA) </P>
+Автор: Vit Belov
+
+### 12.05.2012 news Новое видео ULVER
+
+<P>Мы уже сообщали, что <STRONG>ULVER</STRONG> выпускают альбом кавер-версий "<STRONG>Childhood's End</STRONG>". Группа опубликовала видео на один из треков "<STRONG>Magic Hollow</STRONG>", его можно увидеть ниже.</P>
+<P><center><iframe src="http://player.vimeo.com/video/41836114?title=0&byline=0&portrait=0&color=ffffff" width="400" height="300" frameborder="0" webkitAllowFullScreen mozallowfullscreen allowFullScreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ULVER

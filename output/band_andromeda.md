@@ -67,6 +67,49 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.02.2003 news ANDROMEDA news...
+
+<p>The Swedish quintet are about to unleash their second full-length recording, II=I, and they have truly outdone themselves. This is the first album to feature new vocalist David Fremberg and his dynamic range allows this unit to explore the vast musical universe knowing no limitations. Johan Reinholdz (also in NonExist) is a maniacal guitar shredder who continues to expand his musical boundaries with each release. II=I contains every trademark that fans of pure progessive rock expect to hear: emotional, perfectly arranged guitar work, complex keyboard solos and varied drumming precision that makes this music for both your mind and your soul. Look for II=I on March 11th and strap yourself in for a wild ride. <BR><BR> "Johan Reinholdz is an amazing musical craftsman, and not to mention stellar guitarist. ANDROMEDA could very well be one of the most talented bands out there today."<BR> --Metalreigns.com Feb 2003</p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+### 18.06.2003 news ANDROMEDA news...
+
+<p>Guitar virtuoso Johan Reinholdz had just compiled an extensive series of online guitar lessons that are now posted on the Century Media website. Click here to check them out. On II=I, the band’s second full-length release, this Swedish mastermind further displays his numerous talents resulting in creative, original musical journey that will leave any listener left in disbelief.</p>
+
+Автор: Yermola
+
+### 22.07.2008 news Новый альбом ANDROMEDA
+
+<P>Шведская группа <STRONG>ANDROMEDA</STRONG> подготовила новый альбом <STRONG>"The Immunity Zone"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Recognizing Fate</B> <BR>02. <B>Slaves Of The Plethoria Season</B> <BR>03. <B>Ghosts On Retinas</B> <BR>04. <B>Censoring Truth</B> <BR>05. <B>Worst Enemy</B> <BR>06. <B>My Star</B> <BR>07. <B>Another Step</B> <BR>08. <B>Shadow Of Lucent Moon</B> <BR>09. <B>Veil Of Illumination</B></P>
+Автор: Vit Belov
+
+### 11.11.2011 news Новый видео-клип ANDROMEDA
+
+<P>Новый ролик шведских прогеров<STRONG> ANDROMEDA</STRONG> на песню "<STRONG>Preemptive Strike</STRONG>" можно посмотреть ниже. Трек взят с нового альбома коллектива "<STRONG>Manifest Tyranny</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/uiSaakTpZ-o?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/uiSaakTpZ-o?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

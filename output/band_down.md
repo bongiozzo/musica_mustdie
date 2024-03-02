@@ -74,6 +74,174 @@ Jim Bower - Drums
 * C группой "Southern Isolation" Phil Anselmo
 * C группой "Superjoint Ritual" Phil Anselmo
 
+## Публикации
+
+### 28.02.1999 news 
+
+<p>Бассист Pantera - Rex присоеденился к группе Down.</p>
+
+Автор: Vit Belov
+
+### 30.10.2001 news DOWN, featuring PANTERA vocalist Philip Anselmo...
+
+<p>The tentative title of the forthcoming sophomore effort from New Orleans’ DOWN, featuring PANTERA vocalist Philip Anselmo, PANTERA bassist Rex Brown, C.O.C. drummer Jimmy Bower, C.O.C. guitarist Pepper Keenan, and CROWBAR guitarist Kirk Windstein, is The Backwood Heavies. As previously reported, The Backwood Heavies will be recorded during November/December at former UGLY KID JOE guitarist Dave Fortman’s Balance Studios in New Orleans, where CROWBAR laid down their most recent effort, Sonic Excess In Its Purest Form. <BR> <BR> In related news, New Orleans’ SOUTHERN ISOLATION (formerly BODY & BLOOD), which features in its ranks Phil Anselmo on guitar, Phil’s girlfriend Stephanie Opal on vocals, “Big” Ross Karpelman (CHRIST INVERSION) on keyboards, Kevin Bond (i.e. CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) on bass, and Sid Montz on drums, will be issuing their self-titled MCD on October 30th via Baphomet/Housecore Records. The full track listing for the effort is as follows: <BR><BR> 01. Blue Bird (Make You Shine) <BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)<BR> <BR></p>
+
+Автор: Yermola
+
+### 30.10.2001 news Неугомонный Филипп Ансельмо...
+
+<p>Нью-Орлеанский проект "DOWN", имеющий в своем составе вокалиста "PANTERA" - Philip Anselmo, бассиста "PANTERA" - Rex Brown, барабанщика "C.O.C." - Jimmy Bower, гитариста "C.O.C." - Pepper Keenan и гитариста "CROWBAR" - Windstein - объявил название для своего нового альбома - "The Backwood Heavies". Писаться это творение будет в Ноябре/Декабре в студии участника "UGLY KID JOE" - Dave Fortman - Balance Studios (в ней записывались "CROWBAR" - альбом "Sonic Excess In Its Purest Form")... <BR><BR> Из родственных новостей, команда "SOUTHERN ISOLATION" состоящая из Фила Ансельмо (гитара!!!), его подружки Stephanie Opal (вокал), “Big” Ross Karpelman ("CHRIST INVERSION") - клавиши, Kevin Bond (CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) - басс и Sid Montz (барабаны), тридцатого октября выпустили альбом с аналогичным названием на Baphomet/Housecore Records. Трек-лист релиза: <BR> <BR> 01. Blue Bird (Make You Shine)<BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)</p>
+
+Автор: Yermola
+
+### 06.02.2002 news Новые песни DOWN он-лайн...
+
+<p>Нью-Орлеанская дева (ой!) супергруппа "DOWN" опубликовала три трека в МР3 с грядущей пластинки "Down II: Bustle In The Hedgerow": <BR><BR> <A HREF="http://www.streetteam.net/downtracks.mp3">01. Ghosts Along the Mississippi</A><BR> 02. The Seed<BR> 03. Where I'm Going <BR></p>
+
+Автор: Yermola
+
+### 06.02.2002 news DOWN New Song Samples Online....
+
+<p>New Orleans supergroup DOWN, who feature in their ranks PANTERA's Philip Anselmo (vocals), C.O.C.'s Pepper Keenan (guitars), EYEHATEGOD's Jimmy Bower (drums), PANTERA's Rex Brown (bass) and CROWBAR's Kirk Windstein (guitars), have posted samples of three tracks from their forthcoming Down II: Bustle In The Hedgerow CD—due on March 26th through Elektra Records—<A HREF="http://www.streetteam.net/downtracks.mp3">at this location</A>. The tracks available for preview are: <BR><BR> 01. Ghosts Along the Mississippi<BR> 02. The Seed<BR> 03. Where I'm Going <BR></p>
+
+Автор: Yermola
+
+### 28.02.2002 news Демки DOWN в МР3...
+
+<p><A HREF="http://www.telepolis.com/cgi-bin/t30/DISTRITOLIB?carpeta=/mp3/Down_-_Demos&distrito=Metal+XXI">Здесь </A>можно послушать МР3 демок "DOWN" 1992 и 1993 годов....</p>
+
+Автор: Yermola
+
+### 28.02.2002 news DOWN Demos Available For Download ....
+
+<p>Less-than-stellar copies of DOWN's 1992 and 1993 demos have been made available for download online <A HREF="http://www.telepolis.com/cgi-bin/t30/DISTRITOLIB?carpeta=/mp3/Down_-_Demos&distrito=Metal+XXI">at this location....</A></p>
+
+Автор: Yermola
+
+### 29.03.2002 news Очередные откровения Ансельмо
+
+<p>"К черту современную музыку – я ее не слушаю. Я предпочитаю вещи 20-30-летней давности. Я не слушаю современных групп, ничего из того жанра, который я сам и помогал создавать. Если кто-то сдирает риффы с PANTERA, поет поверх этого рэп, прыгает при этом… Меня этим не впечатлить... На мой взгляд, группы типа CREED нужно тащить в суд – за то, что они внаглую воруют у PEARL JAM”.</p>
+
+Автор: Tornado
+
+### 05.04.2002 news Новый альбом DOWN попал в Billboard Chart ....
+
+<p>Альбом нью-орлеанской супергруппы DOWN за первую неделю продаж был продан в количестве 31 430 копий и занял 44 место в Биллбордовском Чарте Поп Альбомов...</p>
+
+Автор: Yermola
+
+### 05.07.2002 reviews Мега-хит не состоялся
+
+<p>Это одна из наиболее долгожданных пластинок 2002 года. Впрочем, не только 2002-го – первый альбом DOWN вышел аж в 1995 году и вот с тех самых пор фанаты каждый год ждали второй серии. Дождались.<BR><BR> DOWN не просто группа – это организованный в свободное от основной работы время проект музыкантов культовых американских групп CORROSION OF CONFORMITY, CROWBAR и мультиплатиновых королей «сердитого металла» PANTERA. Главной звездой является вокалист последних, харизматичный Филипп Ансельмо. Еще до выхода диска Фил успел всему свету прожужжать уши: мол, новый диск великолепен, и в случае чего, ежели публика пластинку примет хорошо, то плюну я на PANTERA и буду петь да орать вот эту вот смесь южного рока, блюза и "металла", и ничего мне от жизни боле не надо. Рубаха-парень! Коллеги Фила по PANTERA заявление оставили без комментариев – пусть перебесится, а там видно будет. И правильно сделали – второй блин от DOWN, с первой же недели влетевший в шестой десяток хит-парада самых продаваемых дисков планеты, постепенно оттуда вылетел.<BR><BR> Ставим объект препарации в CD-вертушку и выясняем почему. Первое впечатление – пять человек разом хотят рассказать вам какую-то жутко интересную и захватывающую историю о жизни, смерти, палящем солнце и вечной печали. А в итоге ни черта не понятно – действительно интересные фрагменты окружает такой шум и гвалт, что через несколько минут вы уже ни о чем думать не можете, кроме как о благословенной тишине. Впрочем, местами рассказчики и сами устают от такой неразберихи, и вот тогда начинается сказка. “A Stained Glass Cross” - почти буги-хит, “New Orleans is a dying whore” и “The Seed” порадуют вас крепким драйвом, грязные блюзы “Learn from this Mistake”, “Lies” – достойный повод откупорить пару бутылок пива. Неподдельный восторг вызывает и великолепно аранжированный финал альбома, мистическая баллада "Landing On The Mountain Megiddo" (где без труда можно расслушать заимствования у LED ZEPPELIN) – эта вещь наверняка заставит вас поставить диск еще раз. Только вот вопрос – будете ли вы его опять слушать с самого начала и целиком? <BR><BR> Пластинка получилась из тех, что начинают нравиться с пятого-шестого прослушивания. Дело хозяйское – значит, музыкантам так надо. Вопрос только в том, сколько людей захотят это делать? Оттого и в массовый успех этого диска, а значит, и в обещания Фила Ансельмо верится с трудом.</p>
+
+Автор: Tornado
+
+### 24.09.2002 news SLAYER, SOULFLY, MOTORHEAD, DOWN Among Artists Confirmed For Japan&#39;s BEAST FEAST 2002 ...
+
+<p>SLAYER, SOULFLY, MOTORHEAD, DOWN, HATEBREED, and ARCH ENEMY are among the artists confirmed to appear at Beast Feast 2002, a two-day festival set to take place on December 14-15 at Makuhari Messe Event Hall in Tokyo, Japan. <BR><BR> The full lineup of acts currently scheduled to perform at the event is as follows:<BR><BR> SLAYER<BR> SOULFLY<BR> MOTORHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN</p>
+
+Автор: Yermola
+
+### 24.09.2002 news Фестиваль Зверя в Японии...
+
+<p>SLAYER, SOULFLY, MOTОRHEAD, DOWN, HATEBREED и ARCH ENEMY уже окончательно подтвердили свое участие в японском фестивале Beast Feast 2002. Двухдневное шоу будет проходить 14-15 декабря в зале Makuhari Messe Event Hall в Токио. <BR><BR> Состав участников на сегодняшний день:<BR><BR> SLAYER<BR> SOULFLY<BR> MOT&Ouml;RHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN<BR><BR> Более подробную информацию смотрите на сайте фестиваля: <A HREF="http://www.beastfeast.net/">http://www.beastfeast.net/</A></p>
+
+Автор: Yermola
+
+### 02.04.2009 news DOWN планируют студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DOWN</STRONG> сообщили, что войдут в студию в октябре этого года для записи нового альбома.</FONT></P>
+Автор: Vit Belov
+
+### 27.06.2011 news Rex Brown ушёл из DOWN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=447 alt="" hspace=0 src="/images/news_rus/2011.06/19759.jpg" width=300 align=right border=0>Басист <STRONG>Rex Brown</STRONG> объявил о своём уходе из<STRONG> DOWN</STRONG>. Последние несколько лет музыкант не принимал участие в активной деятельности этой группы, из-за личных проблем и проблем со здоровьем. Некоторое время его заменял басист&nbsp;<STRONG>CROWBAR</STRONG> <STRONG>Patrick Bruders</STRONG>, который, судя по всему, теперь станет постоянным участником коллектива.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Rex Brown</STRONG> решил сконцентрироваться на новой группе <STRONG>KILL DEVIL HILL</STRONG>, в которой он сотрудничает с барабанщиком <STRONG>Vinny Appice</STRONG> (<B itxtHarvested="0" itxtNodeId="76">HEAVEN & HELL</B>, <B itxtHarvested="0" itxtNodeId="75">BLACK SABBATH</B>, <B itxtHarvested="0" itxtNodeId="74">DIO</B>), гитаристом <STRONG>Mark Zavon</STRONG> (<B itxtHarvested="0" itxtNodeId="71">RATT</B>, <B itxtHarvested="0" itxtNodeId="70">W.A.S.P.</B>, <B itxtHarvested="0" itxtNodeId="69">40 CYCLE HUM</B>) и вокалистом <STRONG>Jason "Dewey" Bragg</STRONG> (<B itxtHarvested="0" itxtNodeId="67">PISSING RAZORS</B>). Музыка этой группы, по словам самого <STRONG>Rex Brown</STRONG>,&nbsp;совмещает в себе<STRONG>&nbsp;BLACK SABBATH</STRONG> c&nbsp;<STRONG>ALICE IN CHAINS</STRONG> и <STRONG>LED ZEPPELIN</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Третий альбом <STRONG>DOWN "III - Over the Under" </STRONG>вышел в 2007 году.</FONT></P>
+Автор: Vit Belov
+
+### 29.06.2011 news DOWN издадут четыре миньона
+
+<P>Американцы<STRONG> DOWN</STRONG> приняли довольно оригинальное решение выпустить четыре отдельных миньона в ближайшие несколько лет, не записывая при этом полноформатный альбом. По словам гитариста коллектива <STRONG>Kirk Windstein </STRONG>на это есть две причины.</P>
+<P>Первая, творческая - в музыке<STRONG> DOWN</STRONG> много различных элементов, и разбиение альбома на четыре части позволит сделать релизы более однородными. Вторая, коммерческая - люди перестали покупать альбомы, и EP выглядит более дешёвым вариантом. "<EM>Они хотят получать музыку бесплатно, мы делаем им шаг навстречу, шесть песен будут дешевле</EM>", - заявляет гитарист.</P>
+<P>На этой неделе было объявлено, что <STRONG>DOWN</STRONG>&nbsp;покинул басист <STRONG>Rex Brown</STRONG> (ex-<STRONG>PANTERA</STRONG>). Ниже вы можете посмотреть фрагмент выступления группы 19 июня на <STRONG>Hellfest</STRONG> во Франции.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/yVt-smwMNf0?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/yVt-smwMNf0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 29.06.2011 news DOWN издадут четыре миньона
+
+<P>Американцы<STRONG> DOWN</STRONG> приняли довольно оригинальное решение выпустить четыре отдельных миньона в ближайшие несколько лет, не записывая при этом полноформатный альбом. По словам гитариста коллектива <STRONG>Kirk Windstein </STRONG>на это есть две причины.</P>
+<P>Первая, творческая - в музыке<STRONG> DOWN</STRONG> много различных элементов, и разбиение альбома на четыре части позволит сделать релизы более однородными. Вторая, коммерческая - люди перестали покупать альбомы, и EP выглядит более дешёвым вариантом. "<EM>Они хотят получать музыку бесплатно, мы делаем им шаг навстречу, шесть песен будут дешевле</EM>", - заявляет гитарист.</P>
+<P>На этой неделе было объявлено, что <STRONG>DOWN</STRONG>&nbsp;покинул басист <STRONG>Rex Brown</STRONG> (ex-<STRONG>PANTERA</STRONG>). Ниже вы можете посмотреть фрагмент выступления группы 19 июня на <STRONG>Hellfest</STRONG> во Франции.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/yVt-smwMNf0?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/yVt-smwMNf0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 29.06.2011 news DOWN издадут четыре миньона
+
+<P>Американцы<STRONG> DOWN</STRONG> приняли довольно оригинальное решение выпустить четыре отдельных миньона в ближайшие несколько лет, не записывая при этом полноформатный альбом. По словам гитариста коллектива <STRONG>Kirk Windstein </STRONG>на это есть две причины.</P>
+<P>Первая, творческая - в музыке<STRONG> DOWN</STRONG> много различных элементов, и разбиение альбома на четыре части позволит сделать релизы более однородными. Вторая, коммерческая - люди перестали покупать альбомы, и EP выглядит более дешёвым вариантом. "<EM>Они хотят получать музыку бесплатно, мы делаем им шаг навстречу, шесть песен будут дешевле</EM>", - заявляет гитарист.</P>
+<P>На этой неделе было объявлено, что <STRONG>DOWN</STRONG>&nbsp;покинул басист <STRONG>Rex Brown</STRONG> (ex-<STRONG>PANTERA</STRONG>). Ниже вы можете посмотреть фрагмент выступления группы 19 июня на <STRONG>Hellfest</STRONG> во Франции.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/yVt-smwMNf0?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/yVt-smwMNf0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.06.2011 news DOWN издадут четыре миньона
+
+<P>Американцы<STRONG> DOWN</STRONG> приняли довольно оригинальное решение выпустить четыре отдельных миньона в ближайшие несколько лет, не записывая при этом полноформатный альбом. По словам гитариста коллектива <STRONG>Kirk Windstein </STRONG>на это есть две причины.</P>
+<P>Первая, творческая - в музыке<STRONG> DOWN</STRONG> много различных элементов, и разбиение альбома на четыре части позволит сделать релизы более однородными. Вторая, коммерческая - люди перестали покупать альбомы, и EP выглядит более дешёвым вариантом. "<EM>Они хотят получать музыку бесплатно, мы делаем им шаг навстречу, шесть песен будут дешевле</EM>", - заявляет гитарист.</P>
+<P>На этой неделе было объявлено, что <STRONG>DOWN</STRONG>&nbsp;покинул басист <STRONG>Rex Brown</STRONG> (ex-<STRONG>PANTERA</STRONG>). Ниже вы можете посмотреть фрагмент выступления группы 19 июня на <STRONG>Hellfest</STRONG> во Франции.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/yVt-smwMNf0?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/yVt-smwMNf0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 04.10.2012 news DOWN: клип &quot;Witchtripper&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Коллектив <STRONG>DOWN</STRONG>,&nbsp;приютивший под своим крылом&nbsp;бывших и нынешних участников таких групп, как <STRONG>PANTERA</STRONG>, <STRONG>EYEHATEGOD</STRONG>, <STRONG>CROWBAR</STRONG>, <STRONG>CORROSION OF CONFORMITY</STRONG>,&nbsp;обнародовал клип на трек <STRONG>"Witchtripper"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это песня вошла в их новый миньон под незамысловатым названием<STRONG> "Down IV part&nbsp;I&nbsp;- The Purple EP"</STRONG>, вышедший в первой половине сентября этого года.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/nl0ge0frzqc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.05.2013 news Phil Anselmo: подробности дебютного сольного альбома &quot;Walk Through Exits Only&quot;
+
+<P><STRONG>"Walk Through Exits Only"</STRONG> - такое название получил первый сольный альбом вокалиста <STRONG>Фила Ансельмо</STRONG>&nbsp;(Philip Anselmo; <STRONG>DOWN</STRONG>, <STRONG>PANTERA</STRONG>, <STRONG>SUPERJOINT RITUAL</STRONG>). Сам проект носит название <STRONG>Philip H. Anselmo & the Illegals</STRONG>, а его выход намечен на 16 июля на <STRONG>Housecore Records</STRONG>.</P>
+<P>Продюсерами&nbsp;альбома, в который вошло 8 песен,&nbsp;стали: <STRONG>Philip Anselmo</STRONG> и <STRONG>Michael Thompson</STRONG>. Запись <STRONG>"Walk Through Exits Only" </STRONG>происходила в течении двух&nbsp;лет в <STRONG>"Nodferatu’s Lair"</STRONG>, собственной студии Фила, расположенной в Новом Орлеане.&nbsp;Помимо Фила в записи диска приняли участие: гитарист <STRONG>Marzi Montazeri</STRONG> и барабанщик <STRONG>Jose Manuel “Blue” Gonzales</STRONG>. </P>
+<P>Трек с альбома, под названием<STRONG> "Usurper’s Bastard Rant"</STRONG>, уже сейчас можно послушать&nbsp;на сайте журнала&nbsp;<STRONG>Revolver</STRONG>: <A href="http://www.revolvermag.com/news/philip-h-anselmo-the-illegals-debut-new-song-usurpers-bastard-rant.html">http://www.revolvermag.com</A>.</P>
+<P>Вот, что сам <STRONG>Ансельмо</STRONG> говорит&nbsp;о <STRONG>"Walk Through Exits Only"</STRONG>:<EM>&nbsp;"Это самый злой альбом, на который я был способен. Я не вижу никого вокруг, кто мог бы так же орать о том дерьме, о котором я ору на этом альбоме. На этом альбоме нет никакой игры слов, нет никакого скрытого послания;&nbsp;весь смысл прямо перед вами."</EM></P>
+<P><EM>
+<CENTER></EM><IMG border=0 src="/images/news_rus/2013.05/25705.jpg" width=450 height=450>&nbsp;
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 09.07.2013 news Philip H. Anselmo &amp; The Illegals: клип &quot;Bedridden&quot;
+
+<P><STRONG>Phil Anselmo</STRONG>&nbsp;представил видеоклип на трек <STRONG>"Bedridden"</STRONG>,&nbsp;взятый&nbsp;со своего сольного альбома под названием <STRONG>"Walk Through Exits Only"</STRONG>. Клип можно заценить ниже. Выход же самого альбома намечен на 16 июля.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/_PGOk_6Jgm8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 04.10.2013 news Kirk Windstein покинул DOWN
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.10/26246.jpg" width=309 height=318>Kirk Windstein</STRONG> опубликовал заявление, что покидает проект <STRONG>DOWN</STRONG> для того чтобы полностью посветить всё своё время своему детищу, пионерам sludge метала, группе <STRONG>CROWBAR</STRONG>. </P>
+<P>В то время, как басист <STRONG>Patrick Bruders</STRONG> последнего состава <STRONG>CROWBAR</STRONG>,&nbsp;также являющийся участником <STRONG>DOWN</STRONG>, остаётся на своём месте и о возвращении в <STRONG>CROWBAR</STRONG> не помышляет. Его место в <STRONG>CROWBAR</STRONG> займёт никому не известный<STRONG>&nbsp;Jeff Golden</STRONG>, тогда как самого Виндштейна в <STRONG>DOWN</STRONG> заменит <STRONG>Bobby Landgraf</STRONG>, ещё совсем недавно работавший там менеджером сцены.</P>
+<P>16 декабря&nbsp;<STRONG>CROWBAR</STRONG> отправляются в студию, чтобы записать свой новый альбом, который планируют выпустить в конце весны следующего года на лейбле <STRONG>E1</STRONG>. После чего группа отправится в тур, чтобы презентовать его и отметить свой 25 летний юбилей.</P>
+Автор: Headcrusher
+
+### 17.05.2014 news DOWN: видеоклип &quot;We Knew Him Well&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип коллектива <STRONG>DOWN</STRONG> можно посмотреть ниже. Песня <STRONG>"We Knew Him Well"</STRONG> вошла на EP <STRONG>"Down IV, Part II"</STRONG>, вышедший 13 мая этого года.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/rJ1T4F9tT5g" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.06.2014 news Автобиография Фила Ансельмо в начале 2015 г.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.06/27046.jpg" width=300 height=450>По&nbsp;информации c&nbsp;сайта <STRONG>Amazon.com</STRONG>, издательство <STRONG>Gallery Books</STRONG>,&nbsp;выпускает автобиографию Фила Ансельмо (<STRONG>Philip H. Anselmo</STRONG>, <STRONG>DOWN</STRONG>, <STRONG>PANTERA</STRONG>, <STRONG>SUPERJOINT RITUAL</STRONG>), которая получила название <STRONG>"Mouth For War: Pantera And Beyond"</STRONG>. </P>
+<P>Дата выхода книги: 15 января 2015 г.</P>
+<P>В качестве соавтора автобиографии выступил журналист сайта <STRONG>Bloodydisgusting.com</STRONG> Кори Митчелл (<STRONG>Corey Mitchell</STRONG>).</P>
+<P>Предварительный заказ можно сделать по ссылке: <A href="http://www.amazon.com/Mouth-War-Philip-H-Anselmo/dp/1476730504">www.amazon.com</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Megadeth: "Youthanasia" супротив "Countdown To Extinction"

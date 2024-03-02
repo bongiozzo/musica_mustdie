@@ -37,6 +37,67 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.01.2009 news DESPISED ICON выпускают DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дата релиза нового DVD <STRONG>DESPISED ICON</STRONG> <STRONG>"Montreal Assault Live" </STRONG>перенесена на неопределённый срок. Одну песню с будущего издания можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qSabNFbHJrA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/qSabNFbHJrA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.02.2009 news DESPISED ICON войдут в студию
+
+<P><STRONG>DESPISED ICON</STRONG> войдут в студию 7-го марта для записи своего четвёртого альбома.</P>
+Автор: Vit Belov
+
+### 04.06.2009 news Новый альбом DESPISED ICON
+
+<P>Новая работа <STRONG>DESPISED ICON</STRONG> будет называться "<STRONG>Day Of Mourning</STRONG>" и выйдет 22 сентября на <STRONG>Century Media</STRONG>. Сведение выполнил <STRONG>Chris "Zeuss" Harris</STRONG> (<STRONG>HATEBREED, THE ACACIA STRAIN, WHITECHAPEL</STRONG>), а мастеринг - <STRONG>Alan Douches</STRONG> (<STRONG>MASTODON, THE DILLINGER ESCAPE PLAN, NILE</STRONG>).</P>
+Автор: Vit Belov
+
+### 01.10.2009 news DESPISED ICON попали
+
+<P>Новый альбом <STRONG>DESPISED ICON</STRONG> <STRONG>"Day Of Mourning" </STRONG>продался в количестве 3000 штук и попал в чарты <STRONG>Billboard </STRONG>на 162-ое место.</P>
+Автор: Vit Belov
+
+### 23.11.2009 reviews Канадцы продрейфовали мимо «золотой середины»
+
+<P>DESPISED ICON – многообещающая канадская команда, представляющая материал на стыке брутального hardcore и death-metal с обилием современных элементов тяжёлой музыки. Четвёртая работа коллектива “Day Of Mourning” должна была утвердить влияние этой группы на тяжёлой сцене.</P>
+<P>В этом же году DI выпустили DVD, да и, вообще, широкая известность к ним пришла с прошлой работой “The Ills Of Modern Man”. Тогда мне они даже показались предтечами современного brutal death-metal, которые мешали в своей музыке классические “death-metal” элементы с популярными заокеанскими ритмами. Удавалось им это сделать так аккуратно, что потенциально та работа могла понравиться буквально всем поклонникам самых тяжёлых направлений в метале. К сожалению, их новый альбом демонстрирует движение в сторону ещё большей актуальности звучания. Если открывающий трэк просто-таки пышет энергией, которая передаётся слушателю, последующие песни чересчур медленные. Обращаю внимание на популярность среди metalcore исполнителей не просто среднетемповых композиций, но просто медленных. С какими-то странными перегруженными гитарами, как будто обычные риффы проигрывают на замедленной скорости. Хватает этого добра и на обозреваемом альбоме. С другой стороны, DESPISED ICON продолжают удачно смешивать в своей музыке все возможные варианты брутального метала.</P>
+<P>Я не большой любитель замедления ритмов в музыке многих современных групп, при этом они делают это не за счёт каких-то композиционных решений, а просто играют медленнее и всё. Любителям OCEANO или SUICIDE SILENCE этот альбом должен понравиться очень-очень. Я же остался несколько разочарованным.</P>
+Автор: Vit Belov
+
+### 08.04.2010 news DESPISED ICON развалились
+
+<P>Канадцы <STRONG>DESPISED ICON</STRONG> объявили о прекращении своего существования. Главной причиной этого решения стала занятость музыкантов "реальной" жизнью, у них просто не осталось времени на группу.</P>
+<P>Это заявление<STRONG> DESPISED ICON</STRONG> появилось на их MySpace страничке. Теперь оно оттуда исчезло. Быть может, это запоздалая первоапрельская шутка?</P>
+Автор: Vit Belov
+
+### 11.06.2016 news Новое видео DESPISED ICON
+
+<p>Новый клип возродившихся <strong>DESPISED ICON</strong> на песню "<strong>The Aftermath</strong>" можно посмотреть ниже. Дебют канадцев для<strong> Nuclear Blast "Beast"</strong> выйдет 22 июля.</p><p>Трек-лист:</p><p>“The Aftermath”<br>“Inner Demons”<br>“Drapeau Noir”<br>“Bad Vibes”<br>“Dedicated To Extinction”<br>“Grind Forever”<br>“Time Bomb”<br>“One Last Martini”<br>“Doomed”<br>“Beast”</p><p>&nbsp;<center><img width="640" height="634" src="/images/news_rus/2016.06/29313.jpg" border="0"></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/AECzwseIYwo" frameborder="0" allowfullscreen></iframe></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/4xFgaXl93vQ" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 11.06.2016 news DESPISED ICON: New video for &quot;The Aftermath&quot;
+
+<p>New clip of reborn <strong>DESPISED ICON</strong> for the song <strong>"The Aftermath</strong>" can be viewed below. The debut of the Canadians for a <strong>Nuclear Blast "Beast"</strong> will be released on July 22.</p><p>Track listing:</p><p>“The Aftermath”<br>“Inner Demons”<br>“Drapeau Noir”<br>“Bad Vibes”<br>“Dedicated To Extinction”<br>“Grind Forever”<br>“Time Bomb”<br>“One Last Martini”<br>“Doomed”<br>“Beast”</p><p>&nbsp;<center><img width="640" height="634" src="/images/news_rus/2016.06/29313.jpg" border="0"><p></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/AECzwseIYwo" frameborder="0" allowfullscreen=""></iframe><p></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/4xFgaXl93vQ" frameborder="0" allowfullscreen=""></iframe>&nbsp;<p></p></center></center></center>
+Автор: Vit Belov
+
+### 15.07.2016 news Ещё один клип DESPISED ICON
+
+<p>В следующую пятницу выходит новый альбом <strong>DESPISED ICON "Beast"</strong>. Ещё одно промо-видео с этого альбома на песню "<strong>Bad Vibes</strong>" можно посмотреть ниже.</p><p>&nbsp;<center><iframe width="420" height="315" src="https://www.youtube.com/embed/spDK2MedUYY" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 15.07.2016 news One more clip from DESPISED ICON new album
+
+<p>Next Friday, the new album of <strong>DESPISED ICON "the Beast"</strong> will be released by <strong>Nuclear Blast</strong>. Another promo video from the album for the song "<strong>Bad Vibes</strong>" can be viewed below.</p><p>&nbsp;<center><iframe width="420" height="315" src="https://www.youtube.com/embed/spDK2MedUYY" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

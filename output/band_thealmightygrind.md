@@ -8,6 +8,9 @@ Original Band. Hard Core with groove
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

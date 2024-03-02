@@ -24,6 +24,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.09.2011 news OF THE WAND &amp; THE MOON: новый aльбом &quot;The Lone Descent&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/20991.jpg" width=400 height=400>Новый aльбом выдающейся датской неофолк-группы <STRONG>:OF THE WAND & THE MOON:</STRONG> <STRONG>"The Lone Descent"</STRONG> ("Одинокий спуск"), <BR>презентация которого состоится в Рoссии (17 сентября - Москва / 16 сентября - Екатеринбург),&nbsp;увидит свет 12 сентября благодаря усилиям таких лейблов как <STRONG>Heidrunar Myrkrunar</STRONG>&nbsp;и <STRONG>Tesco</STRONG>. </P>
+<P>Больше не будет радостных песен! - долгожданный 5 полноформатный альбом <STRONG>:OF THE WAND & THE MOON:</STRONG> преподнесёт немало сюрпризов для поклонников коллектива. Новая работа Ларсена отличается от предыдущих серьёзным влиянием эстрадной музыки 60-х (Ли Хэзлвуд и Серж Генсбур) и, по все видимости, станет самой меланхоличной в истории проекта. В записи пластинки принимал участие весь цвет датской нео-психоделической сцены, а также давние соратники - <STRONG>John Murphy</STRONG> (<STRONG>DEATH IN JUNE</STRONG>, <STRONG>KNIFELADDER</STRONG>, <STRONG>NICO</STRONG>, <STRONG>SPK</STRONG>) и <STRONG>John van der Lieth</STRONG> (<STRONG>SONNE HAGAL</STRONG>).</P>
+<P><STRONG>Tesco</STRONG> максимально серьёзно подошел к изданию : к CD прилагается дигипак с печатью лаком и буклет на 24 страницы. Двойной винил лимитирован 500 копиями. Виниловая версия выходит с бонус-треком <STRONG>A Pyre Of Black Sunflowers</STRONG>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### OF THE WAND &amp; THE MOON в Москве (17 сентября, 2011)

@@ -66,6 +66,55 @@ Wolfgang Sussenbeck - lead vocals, keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.10.2000 news Darkside готовы записать свой четвертый альбом
+
+<p> Darkside полностью готовы для того, чтобы приступить к записи своего нового, четвертого по счету, альбома "Cognitive Dissonance". Альбом будет состоять из десяти новых песен, а также кавер версии "Someone Else" группы Queensryche. Вокальные пертии разделят между собой певец Питер Дарст, клавишник Вольфганг Сассенбэк и Мартина Хорнбахен (Therion / Alas).</p>
+
+Автор: Nybras
+
+### 07.10.2000 news Darkside will record their 4th album
+
+<p> Darkside is finally preparing to start the recordings for their fourth full-length album "Cognitive Dissonance". The album will feature ten new songs, amongst others titles like: Pontifex, Cognitive Dissonance, Fifth and Caress Of The Sleeping Giant. A cover version of Queensryche's "Someone Else" sees the vocal parts split up between singer Peter Durst, keyboarder Wolfgang Sussenbeck and Martina Hornbacher (Therion / Alas).</p>
+
+Автор: Nybras
+
+### 16.01.2002 news Новости от Darkside
+
+<p><IMG SRC="/images/news_rus/2002.01/2317.JPG" ALT="pho" width="200" height="206" hspace="15" vspace="5" border="1" align="left" /> Австрийская группа Darkside подписала контракт с Season Of Mist и выпустила новый альбом "Cognitive Dissonance" в 2001 году. В январе этого года группа отправилась в турне вместе с Mortician, Carnal Forge, Arkhon Infaustus.</p>
+
+Автор: Vit Belov
+
+### 16.01.2002 news Darkside news
+
+<p><IMG SRC="/images/news_rus/2002.01/2317.JPG" ALT="pho" width="200" height="206" hspace="15" vspace="5" border="1" align="right" /> Austrian death-metal band DARKSIDE released their new album "Cognitive Dissonance" in 2001. In January Band is on tour with Mortician, Carnal Forge, Arkhon и Infaustus. Tour dates:</p>
+<p>17.01.02 Praha (CZ) Black Pess</p>
+<p>18.01.02 Zwickau (DE) Alarm</p>
+<p>19.01.02 Wien (AU) Arena</p>
+<p>20.01.02 Milano (IT) Indian's Saloon</p>
+<p>21.01.02 Zagreb (HR) Mocvara (tbc)</p>
+<p>23.01.02 Perpignan (FR) Crock More</p>
+<p>24.01.02 Barcelona (ES) Mephisto</p>
+<p>25.01.02 Murcia (ES) Gamma</p>
+<p>26.01.02 Madrid (ES) El Grito</p>
+<p>27.01.02 Irun (ES) Tunk</p>
+<p>29.01.02 Lyon (FR) Real Theatre</p>
+<p>30.01.02 Wil (CH)Remise</p>
+<p>31.01.02 Osnabruck (DE) Works</p>
+<p>01.01.02 Offenbach (DE) Hafenbahn</p>
+<p>02.02.02 Vosselaar (BE) Biebob</p>
+<p>03.02.02 Groningen (NL) Vera</p>
+
+Автор: Vit Belov
+
+### 12.02.2002 reviews Познавательная экскурсия по ту сторону мира
+
+<p>Познавательная экскурсия по ту сторону мира. Четвертый альбом австрийской команды играющей несколько оригинальный и неортодоксальный avantgarde-death metal. Мощные гитарные риффы, изобилие нестандартных рваных ходов, угнетающие клавишные, сумасшедшая ритм-секция и истерично-демонический гроулинг. Изредка, проскакивают неплохие мелодии, но, в целом, эту иузыку нельзя назвать мелодичной, но и овербрутальной ее не назовешь. Новый альбом группы немного отличается от того материала, что был ранее. Музыка стала менее мелодична, менее меланхолична, но более атмосферна и супертехнична. Однако, прогресс группы почти не заметен. Уже десять лет существует группа, выпустила уже четыре довольно ровных, но средненьких, ничем не выдающихся альбома. Каждый их альбом переполнен экспериментами не приводящими к успеху. Очень хорошие идеи группы тонут в очень глубокомысленном исполнении их. Очень жаль... Потенциал у команды был приличный, да и сейчас он есть, но воплотить его музыкантам никак не удается. А потому имеем то, что имеем.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### DARKSIDE

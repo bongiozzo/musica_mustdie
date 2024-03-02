@@ -12,6 +12,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.03.2006 news Определились участники фестиваля Neurotic Deathfest
+
+<P>Определились участники фестиваля <B>Neurotic Deathfest</B>, который пройдет 13 мая в голландском городе Эйндховен. Ранее фестиваль был известен под названием <B>Rotterdam Deathfest</B>, но в этом году его было решено провести в другом городе. На двух сценах выступят 15 дэт-металических команд, а посетители смогут также облегчить свои кошельки на большом "металическом рынке". Вот кто будет развлекать зрителей: шведы <B>ANATA</B>, британцы <B>GOREROTTED</B> и <B>SARPANITUM</B>, австрийцы <B>PSYCROPTIC</B>, испанцы <B>AVULSED</B>, голландцы <B>DISAVOWED</B>, <B>ARSEBREED</B> и&nbsp;<B>PROSTITUTE DISFIGUREMENT</B>, американцы <B>INSIDIOUS DECREPANCY</B>, японцы <B>INFECTED MALIGNITY</B>, словаки <B>SANATORIUM</B>, чехи <B>GODLESS TRUTH</B>, итальянцы <B>VOMIT THE SOUL</B>,&nbsp;бразильцы <B>MENTAL HORROR</B> и бельгийцы <B>EMETH</B>.</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

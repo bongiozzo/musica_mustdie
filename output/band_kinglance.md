@@ -38,6 +38,18 @@ Mistheria (Bruce Dickinson and MANY others)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.10.2011 news LANCE KING выпускает дебютный сольник
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.10/21610.jpg" width=400 align=right border=0>Бывший вокалист<STRONG> PYRAMAZE</STRONG> и <STRONG>BALANCE OF POWER Lance King</STRONG> подготовил к релизу свой дебютный сольный альбом "<STRONG>A Moment In Chiros</STRONG>". Пластинка выйдет 11 ноября на <STRONG>Nightmare Records</STRONG>. Музыкант сообщает, что его работа понравится поклонникам <STRONG>SYMPHONY X, DREAM THEATER</STRONG> и <STRONG>REDEMPTION</STRONG>. </P>
+<P>Продюсерами альбома выступили <STRONG>Kim Olesen (Anubis Gate)</STRONG> и <STRONG>Jacob Hansen (Volbeat, Heathen, TYR, Amaranthe, Communic, Mercenary, Onslaught, Rob Rock, Blotted Science, Raunchy, Pretty Maids, Cryoshell).</STRONG></P>
+<P>Трек-лист:</P>
+<P>111.<STRONG> A Sense of Urgency</STRONG><BR>222. <STRONG>Awakening&nbsp; <BR></STRONG>333. <STRONG>Manifest Destiny</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>444. <STRONG>A Given Choice</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>555. <STRONG>A Moment in Chiros</STRONG> <BR>666. <STRONG>Dance of Power<BR></STRONG>777. <STRONG>Kibou<BR></STRONG>888. <STRONG>Infinity Divine</STRONG><BR>999. <STRONG>Joy Everlasting</STRONG><BR>10:10 <STRONG>Sacred Systems</STRONG><BR>11:11 <STRONG>Transformation</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="https://www.myspace.com/lancekingvox">https://www.myspace.com/lancekingvox</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

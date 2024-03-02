@@ -41,6 +41,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2008 reviews Nextgen thrash-metal
+
+<P>Нью-йоркская команда SWORN ENEMY достигла некоторого успеха у себя на Родине. В нашей стране группа была совершенно неизвестна, пока не выпустила в этом году на Century Media новый альбом “Maniacal”, который стал доступен в России и СНГ через Mazzar/Mystic Empire. Здесь есть, что послушать.</P>
+<P>Забавно, что поначалу наш лэйбл позиционировал SWORN ENEMY, как modern metal. С этой же биркой на той же неделе на Mystic Empire вышла уже описанная мной группа SUICIDE SILENCE. Такого разного modern metal мне слышать ещё не приходилось. Новомодный MESHUGGAH-подобный SUICIDE SILENCE и притрэшованный SWORN ENEMY, при всей их непохожести, можно было отнести к modern-metal, только с разных позиций. Музыка SWORN ENEMY действительно modern, это nextgen thrash-metal. Thrash-metal – наиболее брутальный, наиболее быстрый и наиболее тяжёлый, но всё ещё thrash-metal. Не death-thrash, как у SEPULTURA или DEW-SCENTED, а thrash-metal, самой прямолинейной немецкой школы, типа классики DESTRUCTION или KREATOR, но звучащий раза в полтора мощнее. “Maniacal” должен понравиться всем любителям трэша 80-х, которые хотят получить чего-то нового. Великолепная стилизация.</P>
+<P>Качественный, мощный, интересный, без явных недостатков материал, демонстрирующий развитие звуковых возможностей в пределах одного довольно старого стиля. Прикоснитесь к прекрасному.</P>
+Автор: Vit Belov
+
+### 06.03.2009 news SWORN ENEMY назвали диск
+
+<P>Новый альбом<STRONG> SWORN ENEMY</STRONG>, который выйдет летом на <STRONG>Century Media</STRONG>, будет называться <STRONG>"Total World Domination". </STRONG>Пластинка была записана с вокалистом <STRONG>AS I LAY DYING</STRONG> <STRONG>Tim Lambesis </STRONG>в качестве продюсера.</P>
+Автор: Vit Belov
+
+### 14.05.2009 news Обложка нового SWORN ENEMY
+
+<P><STRONG>SWORN ENEMY</STRONG> опубликовали обложку своего нового альбома <STRONG>'Total World Domination'</STRONG>, который выходит 22 июня на <STRONG>Century Media</STRONG>.</P>
+<P><center><IMG height=340 src="/images/news_rus/2009.05/14091.jpg" width=340 border=0></P>
+Автор: Vit Belov
+
+### 05.12.2009 news SWORN ENEMY покинул гитарист
+
+<P>Гитарист <STRONG>Lorenzo Antonucci</STRONG>&nbsp;покинул<STRONG> SWORN ENEMY. </STRONG>Музыкант решил сконцентрироваться на своём новом проекте <STRONG>SMASHFACE: <A href="http://www.myspace.com/smashfaceband">http://www.myspace.com/smashfaceband</A></STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

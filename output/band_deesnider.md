@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.09.2016 news DEE SNIDER опубликовал лирик-видео на заглавную композицию с сольного альбома
+
+<p>Лидер и вокалист <strong>TWISTED SISTER&nbsp;Dee Snider</strong>&nbsp;выложил в сеть лирик-видео на заглавную песню с нового сольного альбома "<strong>We Are The Ones</strong>", который выйдет 21 октября.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/tRLLHYN2vMM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.09.2016 news DEE SNIDER released title track from solo album
+
+<p>The leader and singer of <strong>TWISTED SISTER Dee Snider </strong>has posted a lyric video for the title track from the new solo album "<strong>We Are The Ones</strong>", which will be released October 21.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/tRLLHYN2vMM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -44,6 +44,135 @@ Produced, mixed, engineered and mastered by Lazar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.01.2002 reviews Так, всё-таки, траур в моде?
+
+<p>Очень красивое название, которое обратило на себя моё внимание, как только диск попал ко мне в руки. Траур в моде, прикольно... Диск был записан в CDM под руководством Лазаря из Rossomahaar, что ещё больше заинтриговало. Красивое клавишное интро Under the veil of dusk and sorrow, затем мелодично-меланхоличное начало первой вещи Necrodance... И всё, пожалуй, только outro напоминает о названии сей группы. Основной материал представляет довольно примитивный doom-death metal в духе Darkseed и Paradise Lost '95. Неприятно бьют по ушам искусственные барабаны, не очень ладно вклинивающиеся в музыку. К сожалению, ни одна мелодия по настоящему не зацепила, но группа пытается добавить разнообразия проигрышами, соло, а также блэковыми вставками. На концерте должно быть данный материал понравился бы больше, но видимо группа не выступает. Ребятам в первую очередь надо поработать над качеством реализации, и они вполне могут рассчитывать на успех.</p>
+
+Автор: Vit Belov
+
+### 12.08.2002 news Сборник Hellfire-5 окончательно укомплектован
+
+<p>В виду большой длительности (2,5 часа) сборник выйдет в двух частях. <BR> Приблизительное время реализации: сентябрь-октябрь 2002 г.</p>
+<P> Трэк-лист:</>
+<P> Часть первая: "Russian Black Metal"</>
+<P> 1. ROSSOMAHAAR "Praising The Departure Of Spiritual Strength" (г. Москва) <BR> 2. CRYSTAL ABYSS "First Born Snow" (г. Москва) <BR> 3. WEEDS IN VOGUE "Witchcunt" (г. Москва) <BR> 4. MIND ECLIPSE "Martyr Of The Sky"(г. Ярославль) <BR> 5. STIGMATIC CHORUS "Казнь Изгнанницы" (г.Москва) <BR> 6. PAGAN REIGN "Смерть - Дар богов" (г. Тверь) <BR> 7. ASHEN LIGHT "Бесноватая" (г. Москва) <BR> 8. GROM "Hatred" (г.Щелково) <BR> 9. THERM.EYE.FLAME "Waking The Creatures" (г.Сочи) <BR> 10. DEVIL-MAY-CORE "Call Me When I Die" (г. Мичуринск) <BR> 11. RADIGOST "Year3000" (г. Зеленоград) <BR> 12. FUNERAL POETRY "Очи Мора" (г. Москва) <BR> 13. ENSHADE "Out Of Life" (г. Новосибирск) <BR> 14. KATAR "Paradigma Digitized" (г. Москва)</>
+<P> Часть вторая: "Slavonic Power"</>
+<P> 1. ROSSOMAHAAR "Crescent Moon (The Final Celebration)" (г. Москва ) <BR> 2. ATOL NERAT "Doors Of Perception" (г. Пермь) <BR> 3. MIND ECLIPSE "We Are Not Messiahs" (г. Ярославль) <BR> 4. THERM.EYE.FLAME "Threshold" (г.Сочи) <BR> 5. DEVIL-MAY-CORE "Darkness" (г. Мичуринск) <BR> 6. ENSHADE "Crying Soul" (г. Новосибирск) <BR> 7. FUNERAL POETRY (г. Москва ) <BR> 8. CAPITOLIUM "The Will And The Order" (г. Львов) <BR> 9. BLUT FORMICARIUM "Black Metal" (г. Москва ) <BR> 10. GOLDPREAK "Ушанаванне залатому Ярылу" (г. Витебск) <BR> 11. MARTIAL ART "Perverted Goat Messiah" (г. Ярославль)</>
+<P> Bonus track: ROSSOMAHAAR "Sacred War"</>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.08.2002 news MassaBrutto Radioshow #99, 16 Aug 2002.
+
+<p>Playlist:<br> <br> 1. CONTRABANDA - To The Sun (Moon Recs)<br> 2. SOCIAL DEFORMITY - Blood For Blood (Fatal Forum Prods)<br> 3. CUMDEO - Always The Cross (Rest In Peace Prods)<br> 4. СЕРДЦЕ - Не Молчи (band)<br> 5. INFESTUM - Wolfish Nocturne (Battle Hymn Recs)<br> 6. WEEPING TWILIGHT - Грэх?! (band)<br> 7. AMBASSADOR 21 - Догма (Invasion Wreck Chords)<br> 8. WEEDS IN VOGUE - Necrodance (band)<br> 9. WEEDS IN VOGUE - The Bitchripper (band)<br><br> massaradio@yandex.ru<br> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 16.08.2002 news MassaBrutto Radioshow #99, 16 Aug 2002.
+
+<p>Playlist: <BR><BR> 1. CONTRABANDA - To The Sun (Moon Recs)<BR> 2. SOCIAL DEFORMITY - Blood For Blood (Fatal Forum Prods)<BR> 3. CUMDEO - Always The Cross (Rest In Peace Prods)<BR> 4. СЕРДЦЕ - Не Молчи (band)<BR> 5. INFESTUM - Wolfish Nocturne (Battle Hymn Recs)<BR> 6. WEEPING TWILIGHT - Грэх?! (band)<BR> 7. AMBASSADOR 21 - Догма (Invasion Wreck Chords)<BR> 8. WEEDS IN VOGUE - Necrodance (band)<BR> 9. WEEDS IN VOGUE - The Bitchripper (band)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 11.10.2002 news MassaBrutto Radioshow #115, 11 Oct 2002.
+
+<p>Гости программы: Александр и Денис из коллектива POSTHUMOUS BLASPHEMER [christfuck@tut.by]<BR><BR> Playlist:<BR><BR> 1. RASTA - None (Moon Recs)<BR> 2. DR.FAUST - ...In The Name Of Me... (Soyuz)<BR> 3. POSTHUMOUS BLASPHEMER - Virgin's Sweat (DAC Prods)<BR> 4. POSTHUMOUS BLASPHEMER - Christall Mountain [by DEATH] (DAC Prods)<BR> 5. POSTHUMOUS BLASPHEMER - Lord Of The Eternal Hatred (DAC Prods)<BR> 6. POSTHUMOUS BLASPHEMER - Off The Ark (DAC Prods)<BR> 7. POSTHUMOUS BLASPHEMER - Burial Of Divinity (DAC Prods)<BR> 8. POSTHUMOUS BLASPHEMER - Damned Christian Flesh (DAC Prods)<BR> 9. ZNICH - Купала На Йвана (band)<BR> 10. WEEDS IN VOGUE - Stolen By Heaven (band)</p>
+
+Автор: Yermola
+
+### 10.11.2002 news ABDUCTED FOREVER
+
+<p><IMG SRC="/images/news_rus/2002.11/3339.jpg" ALT="pho" width=245 height=174 hspace="15" vspace="5" border="1" align="left">17 ноября 2002 года в Р-Клубе состоится концерт, посвященный старой доброй шведской группе HYPOCRISY. В концерте принимают участие <B>ARTEMESIA </B>(melodic death), <B>EVERLOST </B>(melodic death), <B>BY AUTUMN EMBRACED </B>(death-black) и <B>WEEDS IN VOGUE </B>(death-doom). <BR> Проезд: 4-й Рощинский проезд дом 19/21, м.Тульская - пешком, м.Шаболовская - тр.26 до остановки "Духовской переулок". <BR> Начало в 18-00.<BR> Цена билета в предварительной продаже - 100 рублей, в день концерта - 120 рублей. <BR> Информационная поддержка: http://musica.mustdie.ru</p>
+
+Автор: Dimas
+
+### 18.11.2002 news HELLFIRE - 5
+
+<p><IMG SRC="/images/news_rus/2002.11/3402.jpg" ALT="pho" width=224 height=250 hspace="15" vspace="5" border="1" align="left">В пятницу 22 ноября в клубе ЭСТАКАДА состоится презентация black metal сборника HELLFIRE vol. 5. В акции примут участие группы <I><B>ROSSOMAHAAR, CRYSTAL ABYSS, RADIGOST, GROM, MIND ECLIPSE, STIGMATIC CHORUS, WEEDS IN VOGUE, BLUT FORMICARIUM</B></I>. <BR> Начало концерта в 18:00. <BR> Цена билета в предварительной продаже - 100 рублей.<BR> В день концерта - 150 рублей, по флаеру - 120 рублей.<BR> Билеты продаются в кассе клуба, рок-галерее "Зиг-Заг" и рок-магазине "У дяди Бори".<BR> Адрес клуба: Рязанский проспект, д. 39, ДК 40-летия Октября <BR> Проезд: м. Марксистская, далее авт. 51, тролл. 63 или м.такси 63, или м. Рязанский проспект, далее авт. 169, 143, 29, 160, 725, тролл. 63, или м. Текстильщики, далее авт. 29, 160, 725, тролл. 63 или м.такси 63 до остановки "Ул. Стахановская" <BR> Информационная поддержка - MUSICA.MUSTDIE.RU</p>
+
+Автор: Dimas
+
+### 20.11.2002 reviews WEEDS IN VOGUE переехали на ПМЖ в Швецию?
+
+<p>WEEDS IN VOGUE переехали на ПМЖ в Швецию? Нет? Странно. Почему странно? Да потому, что “The Bitchripper” звучит так, словно эта команда никогда не играла весьма достойную помесь дума и блэка. Словно никогда и не было прошлогоднего демо, выполненного как раз таки в стиле сильно придумованного блэка (или приблэкованного дума?). Нет; при прослушивании “The Bitchripper” складывается такое впечатление, будто Myke сотоварищи родились в Гётеборге, где жили и благополучно живут до сих пор. Уж не знаю, чем вызваны такие стилистические метаморфозы, но теперь WEEDS IN VOGUE играют ни что иное, как самый настоящий СМДМ. Да-да, тот самый, что я обычно называю power’ом с блэковым вокалом, – потому как с дэтом такая музыка имеет столько же общего, сколько я с китайским мандарином. СМДМ, кстати говоря, весьма недурственный. Не всем же выпускать на рынок второсортные копии худших работ DARK TRANQUILLITY. WEEDS IN VOGUE и не выпускают. И всё бы было замечательно, если бы не эта ублюдочная драм-машинка. Господа – чёрт вас побери! – найдите себе, наконец, барабанщика и – вперёд, в студию, записывать дебютный полноформатник. Благо вы к этому вполне готовы.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.01.2003 news MassaBrutto Radioshow #139, 3 Jan 2003.
+
+<p>Playlist: <BR><BR> 1. MORTIFER - Beggar (Soyuz)<BR> 2. DIVINA ENEMA - Nightmare (Eldritch Music)<BR> 3. AMBASSADOR 21 - Dogma (Invasion Wreck Chords)<BR> 4. LEAD WEIGHT - Omen (CD-Maximum Ltd)<BR> 5. DARK DELIGHT - Neverending Life (band)<BR> 6. VESTIBULUM - Grugan Stogne (band)<BR> 7. IMPRUDENCE - Imprudence (band)<BR> 8. WEEDS IN VOGUE - The Bitchripper (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 03.01.2003 news MassaBrutto Radioshow #139, 3 Jan 2003.
+
+<p>Playlist:<BR><BR> 1. MORTIFER - Beggar (Soyuz)<BR> 2. DIVINA ENEMA - Nightmare (Eldritch Music)<BR> 3. AMBASSADOR 21 - Dogma (Invasion Wreck Chords)<BR> 4. LEAD WEIGHT - Omen (CD-Maximum Ltd)<BR> 5. DARK DELIGHT - Neverending Life (band)<BR> 6. VESTIBULUM - Grugan Stogne (band)<BR> 7. IMPRUDENCE - Imprudence (band)<BR> 8. WEEDS IN VOGUE - The Bitchripper (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 30.04.2003 news BLACK DEATH METAL FEST
+
+<p>Дрозд Корпорейшн представляет З мая в 15:00, в клубе Релакс, праздничный фестиваль с участием:<BR> SEDUCER'S EMBRACE<BR> DESPAIR <BR> WEEDS IN VOGUE<BR> AD ASTRA <BR> NEMETON <BR> ARKONA <BR> ELFSWORD<BR> Специальный гость - супер-группа S.H.I.T.<BR> Речь на праздничном концерте - Мераб.<BR> На концерте будут приколы от Мераба и Р. Дрозда, призы и для многих незабываемые подарки при входе.<BR> Адрес: м. Севастопольская (м. Каховская), гостиничный комплекс "Севастополь", корпус 6, дверь номер 1, этаж 4.<BR></p>
+
+Автор: Dimas
+
+### 26.09.2003 news Презентация нового альбома ROSSOMAHAAR
+
+<P>25 октября в Р-клубе состоится презентация нового студийного альбома группы <B>ROSSOMAHAAR</B> "Regnum Somni" </P>
+<P>Концерт пройдёт при поддержке следующих коллективов:</P>
+<P><B><IMG height=180 alt="" hspace=10 src="/images/shows_rus/2003.10/5048.jpg" width=300 align="left" border=0>SEDUCER’S EMBRACE</B> (Первое выступление в новом составе)</P>
+<P><B>ETERNAL SICK</B></P>
+<P><B>AMBER</B></P>
+<P><B>WEEDS IN VOGUE</B></P>
+<P>Начало – <B>18:30</B></P>
+<P>Цена билета в день концерта в кассе клуба – <B>180</B>р.; </P>
+<P>с флаером – <B>160</B>р.; в предпродаже («У дяди Бори») – <B>140</B>р. </P>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21
+Автор: Dimas
+
+### 29.01.2004 news Проводы зимы
+
+<P><A href="http://jcsound.darkside.ru/">JC-SOUND PROD</A>. представляет: <BR><IMG height=201 alt="" hspace=10 src="/images/shows_rus/2004.02/6064.jpg" width=300 align="right" border=0>28 февраля в московском Р-Клубе состоится кавер-фестиваль 'Проводы Зимы'. В концерте подтвердили своё участие группы <B>Samhain, Melancholy, Weeds in Vogue, Пилигрим, Elfsword, Анексия, Мозгиблин</B>. Группы попрощаются с зимой и встретят долгожданную весню, порадовав вас, исполнением ваших самых любимых песен <B>Metallica, Арии, Queen, Blind Guardian, Manowar, Helloween, Paradise Lost, Slayer</B> и многих-многих других!</P>
+<P>Начало концерта в <B>18:00!<BR></B>Цена билетов в день концерта в кассе клуба по флаеру - <B>120</B>р.; без - <B>150</B>р.</P>
+<P>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21</P>
+Автор: Dimas
+
+### 04.02.2005 reviews Любимая группа? DARKSEED
+
+<P>Московскую группу WEEDS IN VOGUE почему-то очень часто пытаются отнести к melodic death-metal. Я посмею возразить и возразить резко. Совершенно никаких причин относить группу к этому стилю не существует. Действительно, подобную музыку никто сейчас не играет, но тем, кто увлекается тяжеляком лет 10, не трудно будет назвать любимые коллективы музыкантов.</P>
+<P>А самый любимый, наверное, DARKSEED со своим легендарным, не побоюсь этого слова, альбомом ‘Spellcraft’. Быстрые, мелодичные, аккордные, с красивыми проигрышами песни и грубый кричаще-страдающий вокал. Всё это есть у WEEDS IN VOGUE, и всё это было у DARKSEED. </P>
+<P>Дебютный альбом столичной группы достаточно разнообразен, даже более разнообразен, чем прототип, но… Качество реализации, к сожалению, подкачало. Гитара звучит недостаточно плотно, да и барабаны, как неживые. Хотя я не знаток, может они и неживые:) Для «пробы пера» альбом очень неплох, но чтобы добиться успеха в таком неактуальном на сегодня стиле, коллективу придётся очень постараться.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A>.</P>
+Автор: Vit Belov
+
+### 09.02.2005 articles WEEDS IN VOGUE: &quot;Краткость - сестра таланта&quot;.
+
+<P>В конце прошлого года свет увидел дебютный альбом московской команды WEEDS IN VOGUE. Мы попросили сказать несколько слов одного из лидеров коллектива Mike Krasnov. Вот, что он смог поведать.</P>
+<P>Вопрос: Мне показалось, Ваша группа очень похожа на DARKSEED. Как ты к этому относишься? С чем бы ты сравнил WEEDS IN VOGUE? Как ты относишься к тому, что лэйбл позиционирует Вас, как melodic death?</P>
+<P>Ответ: Я допускаю некие аналогии с DARKSEED в некоторых вокальных партиях, но идеи&nbsp; закоса&nbsp; при сочинении материала не было и в помине. Тем более что все участники группы, кроме меня, даже не в курсе, что это за группа такая. Сравнить WEEDS IN VOGUE с кем-то конкретно затрудняюсь, поскольку в рамках каждой песни мы всегда стараемся замесить некий органичный музыкальный коктейль, что прежде всего позволяет максимально удовлетворить собственные вкусы. Ну melo-death, наверное, тоже присутствует в разумных дозах, хотя CD-MAXIMUM вроде&nbsp; окрестил&nbsp; нас dark metal. Почему бы и нет?...</P>
+<P>Вопрос: Довольны ли Вы записью в CDM? Чтобы Вы поменяли будь у Вас побольше денег и опыта?</P>
+<P>Ответ: Записались настолько хорошо, насколько смогли на тот момент. Как обычно при записи имел место определенный финансово-временной лимит помноженный на недостаток опыта в некоторых вопросах. В любом случае, сейчас менять бы ничего не стали, так как, во-первых, нет предела совершенству, а во-вторых, лучше набарыжить где-нибудь бабла и использовать его вместе с приобретенным опытом при записи новых эстрадно-металлических шлягеров.&nbsp; </P>
+<P>Вопрос: Какие Ваши планы на ближайшее будущее?</P>
+<P>Ответ: Играть по кабакам и готовить новый материал.</P>
+Автор: Vit Belov
+
+### 17.02.2005 news WEEDS IN VOGUE на радио
+
+<P>В ночь с&nbsp;16 на 17 февраля 2005 года на волнах радиостанции "Эхо Москвы" (на частотах 91.2 FM и 73.82 УКВ в Москве) Вас ожидает прямой эфир с группой <STRONG>WEEDS IN VOGUE </STRONG>в программе "Хранитель снов". В течение первого часа передачи (с часу до двух ночи) Вам представится возможность ознакомиться с дебютным альбомом российской группы <B>"Buried Until Now"</B>. Альбом выпущен компанией <STRONG>CD-MAXIMUM</STRONG>. Кроме того, состоится интересное общение с музыкантами коллектива и розыгрыш их альбома.</P>
+Автор: Dimas
+
+### 21.04.2005 reviews Серьезная заявка
+
+<P>Шведский мелодик - дэт с финскими элементами. Именно такие ассоциации возникли у меня при прослушивании этого альбома. Но конкретного&nbsp;объекта для сравнения найти не удалось. Материал Weeds In Vogue&nbsp;достаточно самобытен и имеет собственное лицо. Стоит заметить, что&nbsp;исполнено все на очень высоком уровне - музыканты довольно прилично владеют&nbsp;инструментами, а уж басист Иван Изотов на сегодняшней российской сцене один из&nbsp;сильнейших, если не брать в расчет таких ветеранов жанра, как Даниил&nbsp;Захаренков или Алик Грановский. По качеству записи никаких претензий,&nbsp;Лазарь, продюсировавший этот диск, справился с заданием на 5 с&nbsp;минусом. Минус в том, что, как мне показалось, саунду&nbsp; чуть-чуть не&nbsp;хватает некоторой плотности, этакого гитарного мяса. В любом&nbsp;случае, для дебютного альбома этот релиз звучит более чем неплохо и с&nbsp;Buried Until Now коллектив сделал довольно серьезную заявку на&nbsp;российской металлической сцене.<BR></P>
+Автор: Fucker
+
+### 20.09.2005 news WEEDS IN VOGUE -&gt; SPAINT
+
+<P>Группа <STRONG>WEEDS IN VOGUE</STRONG> официально объявляет о смене названия. С настоящего момента коллектив будет обозначать себя шифром <STRONG>SPAINT</STRONG>. Данное решение было для музыкантов нелегким, но тщательно взвешенным и обдуманным. Речь не идет о новом проекте или кардинально новой стилистике. Группа не отрекается от своего прошлого, однако считает, что новое название будет в большей степени соответствовать ее дальнейшему творчеству. Сейчас коллектив занят написанием материала для нового альбома и уже в самое ближайшее время представит обновленную концертную программу.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Эстакада. Пятница, 22 ноября.

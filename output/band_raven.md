@@ -114,6 +114,60 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.1999 news 
+
+<p>Raven закончили запись своего нового студийного альбома. Альбом называется "To Be Broken" и увидит свет в августе.</p>
+
+Автор: Vit Belov
+
+### 16.11.2001 news Wacken Festival...
+
+<p>Знаменитый "Wacken Festival" в следующем году будет проходить со 2-го по 3-е августа в Вакен (Германия). Уже заявлены следующие участники: <BR><BR> BLIND GUARDIAN <BR> RAVEN <BR> PUNGENT STENCH <BR> DIMPLE MINDS <BR> KREATOR <BR> DESTRUCTION <BR> J.B.O <BR> IN EXTREMO <BR> FALCONER <BR> AMON AMARTH</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 25.03.2009 news RAVEN выпускают раз в 10 лет
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.03/13819.jpg" width=400 align=right border=5>Новый альбом <STRONG>RAVEN</STRONG> <STRONG>"Walk Through Fire" </STRONG>выйдет 25 марта в Японии. Пластинка была записана в <STRONG>Assembly Line Studios </STRONG>вместе с&nbsp;инженером <STRONG>Kevin 131</STRONG> (<B>PROJECT: FAILING FLESH</B>, <B>DECEASED</B>, <B>DYSRYTHMIA</B>, <B>GARDEN OF SHADOWS</B>). Трэк-лист:</P>
+<P>01. <B>Intro</B><BR>02. <B>Against The Grain</B><BR>03. <B>Breaking You Down</B><BR>04. <B>Under Your Radar</B><BR>05. <B>Walk Through Fire</B><BR>06. <B>Bulldozer</B><BR>07. <B>Long Day's Journey</B><BR>08. <B>Trainwreck</B><BR>09. <B>Grip</B><BR>10. <B>Running Around In Circles</B><BR>11. <B>Hard Road</B><BR>12. <B>Armageddon</B><BR>13. <B>Attitude</B><BR>14. <B>Necessary Evil</B> (Japan-only bonus track)<BR>15. <B>Space Station #5</B> (MONTROSE cover)</P>
+Автор: Vit Belov
+
+### 18.05.2010 reviews Если бы молодость знала, если бы старость могла
+
+<P>Британская команда RAVEN выпустила свой первый альбом “Rock Until You Drop” в 1981 году и заслуженно считается одной из легенд NWOBHM. Безусловно, этой группе не сравниться в популярности с IRON MAIDEN, но где-нибудь в Японии их имена запросто могут стоять в одном ряду. Неслучайно первый за девять лет студийный альбом RAVEN “Walk Through Fire” вышел сначала в Японии, а уж затем пластинка была переиздана в Европе на SPV.</P>
+<P>Обозреваемый альбом – двенадцатый в дискографии братьев Gallagher, которые всегда были основной составляющей RAVEN. Менялись барабанщики, но братья оставались у руля. Нельзя сказать, что кто-то кроме true-фанатов коренного heavy-metal ожидал с нетерпением эту пластинку. Основные хиты RAVEN отзвучали в 80-е годы, и сейчас они известны только «историкам» стиля. В XXI веке вообще о RAVEN не вспоминали, и вот новый альбом. Группа призналась, что все её музыканты пережили непростые времена перед записью этой пластинки. Почему-то особый упор был сделан на смерть ближайших родственников (отцов, матерей и.т.д.) участников RAVEN. Несмотря на почтенный возраст обоих братьев Gallagher, музыку они играют с 1974 года, скорбь прервала деятельность группы на неопределённый срок.</P>
+<P>Если бы молодость знала, если бы старость могла. Это крылатое выражение приходит на ум при прослушивании “Walk Through Fire”. Стаж RAVEN позволяет с закрытыми глазами играть боевики такого качества, которое и не приснится их молодым последователям. Отличная реализация, каждая нота на своём месте, запоминающиеся рефрены, но… Восхититься этим альбомом никак не получается. Чувствуется, что свой пик RAVEN прошли уже четверть века назад, и юношеского энергетического заряда им явно не хватает. И если первые вещи британцам удаётся вытянуть на классе, к концу альбома накатывает беспросветная скука. К сожалению для RAVEN, сочинение музыки не является тем же самым, что и сборка конструктора, здесь надо приложить ещё кое-что кроме профессионализма.</P>
+<P>Альбом, который мог бы выйти в конце 80-х. Не в начале того десятилетия, а в конце. Когда уважаемые группы под натиском новых стилей либо начинали придумывать что-то новое, либо пытались по-быстрому соорудить альбом в старом духе для верных фанатов. В обоих случаях коллективы не получали должного успеха. RAVEN решили сделать альбом в старом духе, который, будучи насквозь им пропитанным, совершенно не заряжает энергетикой. Получился генетически модифицированный heavy-metal 80-х годов, без которого мы легко можем и обойтись.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Raven!!

@@ -8,6 +8,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2011 news Новая группа участников THE DILLINGER ESCAPE PLAN и MUNICIPAL WASTE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>MUNICIPAL WASTE</STRONG> <STRONG>Dave Witte, </STRONG>бывший вокалист<STRONG> THE DILLINGER ESCAPE PLAN</STRONG> <STRONG>Dimitri Minakakis</STRONG> объединились в новой группе <STRONG>ARGONAUTS</STRONG>. Группа собирается пойти своим собственным курсом в тяжёлой музыке. Состав:</FONT></P>
+<P><STRONG>Dimitri Minakakis</STRONG> (ex-THE DILLINGER ESCAPE PLAN) - Vocals<BR><B>John Adubato</B> (ex-BURNT BY THE SUN) - Guitar<BR><B>Brett Bamberger</B> (EAST OF THE WALL) - Bass<BR><B>Dave Witte</B> (MUNICIPAL WASTE, ex-BURNT BY THE SUN) – Drums</P>
+<P>Facebook: <A href="http://www.facebook.com/pages/Argonauts/">http://www.facebook.com/pages/Argonauts/</A></P>
+<P><center><IMG height=367 src="/images/news_rus/2011.08/20388.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

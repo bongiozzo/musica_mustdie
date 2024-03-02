@@ -22,6 +22,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.07.2017 news Дебют JOSH TODD &amp; THE CONFLICT
+
+<DIV class=ArtistName>Группа <STRONG>JOSH TODD & THE CONFLICT</STRONG>, в состав которой входят два участника <STRONG>BUCKCHERRY</STRONG> - вокалист <STRONG>Josh Todd</STRONG> и гитарист <SPAN id=ctl00_CenterContent_Members_Repeater1_ctl02_Label1><STRONG>Stevie D</STRONG>., готовит к выпуску дебютный альбом под навзанием <STRONG>"Year Of The Tiger"</STRONG>. Пластинка выйдет 15 сентября на лейбле <STRONG>Century Media</STRONG>.</SPAN></DIV>
+<DIV class=ArtistName><SPAN></SPAN>&nbsp;</DIV>
+<DIV class=ArtistName><SPAN>А пока предлагаем вам посмотреть два видеоклипа на песни с этого диска.</SPAN></DIV>
+<DIV class=ArtistName><SPAN></SPAN>&nbsp;</DIV>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/9w51PWyikrI" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<DIV class=ArtistName><SPAN></SPAN>&nbsp;</DIV>
+<DIV class=ArtistName><SPAN></SPAN>&nbsp;</DIV></CENTER>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/ZFddN7zKzMQ" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Дебют JOSH TODD &amp; THE CONFLICT

@@ -128,6 +128,152 @@ Deconstruction Macabre
 
 * C группой "Julie Laughs Nomore" Ronnie Bergerstahl (drums)
 
+## Публикации
+
+### 05.02.2001 reviews Новый альбом адской бригады из Швеции
+
+<p>Новый альбом адской бригады из Швеции. С каждым новым альбомом эта группа пытается измениться в лучшую сторону. Но успеха на этом поприще за восемь лет творчества так и не добилась. Этот альбом, безусловно неплох, на высоком качественном уровне, но...чего-то не хватает. Мало того, материал тоже несколько вторичный. Агрессивнейший зубодробительный, но мелодичный шведский death-metal, с экскурсиями в black-metal. Когда-то давно, более пяти лет назад все это уже отыграли Unanimated и Dissection. Но то были первопроходцы и мастодонты. А Centinex - середнячок, но очень крепкий. Любители шведской агрессии будут рады...</p>
+
+Автор: Dimas
+
+### 12.02.2001 reviews New album of hellbrigade from Sweden
+
+<p>New album of hellbrigade from Sweden. With each new album this group attempts to change in the best party. But success on this field for eight years of creativity and has not achieved. This album, unconditionally not bad, at a high qualitative level, but... Something does not suffice. Mahlo that, stuff too a little bit secondary. Aggressive and extremal, but melodious Swedish death-metal, with excursions in black-metal. At one time for a long time, more than five years back already has won back all this Unanimated and Dissection. But that were the pioneers and grands. And Centinex - mean, but very robust. The fans of the Swedish aggression will be rads...</p>
+
+Автор: Dimas
+
+### 05.10.2001 news Дьявольское Опустошение....
+
+<p>Шведские дэтстеры "Centinex" завершили труды над своим дебютником для "Candlelight Records" - названным "Diabolical Desolation". Трэклистинг: 01. Demonic Warlust 02. Forthcoming Terror 03. Spawned To Destroy 04. Soulcrusher 05. Diabolical Desolation 06. On Violent Soil 07. Total Misanthropia 08. The Bloodline 09. A War Symphony 10. Hellfire Twilight. Ожидаемые даты релиза - Январь для Европы и Февраль для Америки. Начиная уже с Ноября команда отправляется в европейский тур с Extreme Noise Terror и Cadaver Inc...</p>
+
+Автор: Yermola
+
+### 05.10.2001 news Diabolical Desolation....
+
+<p>Centinex have finished the recording, mixing and mastering of their Candlelight Records debut - "Diabolical Desolation" (Candle 065 CD). <br> The tracklisting: <br> 01. Demonic Warlust <br> 02. Forthcoming Terror<br> 03. Spawned To Destroy<br> 04. Soulcrusher<br> 05. Diabolical Desolation<br> 06. On Violent Soil<br> 07. Total Misanthropia<br> 08. The Bloodline<br> 09. A War Symphony<br> 10. Hellfire Twilight<br><br> The expected release months are January for Europe and February for America. Centinex will tour in Europe together with Extreme Noise Terror and Cadaver Inc between November 17th and December 3d. Dates and places will be announced soon. For all the latest news please check out the website(s): <br> http://www.centinex.org <br> http://www.candlelightrecords.co.uk</p>
+
+Автор: Yermola
+
+### 21.12.2001 news Centinex news...
+
+<p>We have secured Johan Ahlberg - from the band Subdive - to fill in as the new session guitarist. At the moment we are busy rehersing both new, old and very old material for upcoming shows and tours. The first confirmed dates for 2002 will be revealed soon. <BR> <BR> The releasedates for "Diabolical Desolation" (Candle 065) are set to March 11th in Europe and March 19th in America.</p>
+
+Автор: Yermola
+
+### 21.12.2001 news Изменения состава у Centinex ...
+
+<p>Centinex наняли Johan Ahlberg (из команды Subdive) в качестве сессионного гитариста. Сейчас группа усиленно разучивает старый и новый материал для участия в грядущих шоу и туре. <BR> <BR> Дата выхода - "Diabolical Desolation" (Candle 065) - 11 марта в Европе и 19-е марта в Америке.</p>
+
+Автор: Yermola
+
+### 18.02.2002 news CENTINEX w&#x2F; DIABOLICAL...
+
+<p>01.03.02 Sweden - Gцteborg - Belsepub <BR> 16.03.02 Sweden - Finspеng - Rockbageriet<BR> 22.03.02 Sweden - Stockholm - Kafe 44<BR> 23.03.02 Sweden - Vдsterеs - Bankiren<BR> 11.04.02 Sweden - Falun - Shopen<BR></p>
+
+Автор: Yermola
+
+### 10.03.2002 reviews Шведская жвачка
+
+<p> Вынужден признаться, что слышал только предыдущий альбом этой команды. Но этого, по-моему, вполне достаточно, чтобы оценить новое творение этих дэтстеров. Шведский дэт в лучших традициях, как и на предыдущем альбоме. Записан хорошо, сыгран хорошо, вообще ВСЁ хорошо. Но не более. Подобных групп &ndash; вагон и маленькая тележка. Смысла в выпуске этого альбома я не вижу, поскольку всё настолько вторично, что тоска берет. Из всего альбома выделяется только "On Violent Soil", которая наводит на мысль (только не смейтесь), что группа могла бы играть достаточно неплохой симфо-блэк, что в принципе тоже было бы бессмысленным, так как и таких групп тоже туева хуча. Возможно еще "Soul Crusher" может понравиться, ибо до боли в печени напоминает Hypocrisy. Пластинка из разряда "послушал-и-забыл". Она обречена пылится у кого-нибудь на полке среди Skymning-ов, Xenomorph-ов и прочих подобных шведских поделок среднего пошиба. Все идет к тому, что фанаты этого стиля скоро будут похоронены под возом однообразных пластинок одинаковых группок с гордой надписью "True Sweden Death Metal" на груди. Ставить совсем уж низкий балл этому альбому я не буду, так как отрицательных эмоций он не вызывает. Он не вызывает ВООБЩЕ никаких эмоций. По этому &ndash; пятерка, но только за запись и "верность себе" (ха-ха)! </p>
+
+Автор: Gonetz
+
+### 12.08.2002 news Centinex will tour with Deicide...
+
+<p>Centinex will tour with Deicide (+ others) throughout Europe during November. <BR><BR> Candlelight Records have bought the rights for "Hellbrigade", "Bloodhunt", "Reborn Through Flames" and "Malleus Maleficarum". The albums will be re-released - with new artwork, layout, bonus tracks etc - early next year. <BR><BR> The vinyl version of "Diabolical Desolation" should be out during August through Finland's Northern Sound Records. The release will be limited to 1000 copies featuring new artwork and layout.<BR><BR> Still waiting for the Centinex/Nunslaughter split picture 10" !! Yeah, it has turned into a ten inch now. Release date ? No idea....<BR><BR> SHOWS:<BR><BR> Deicide - Mystic Circle - Centinex - Antaeus european tour <BR><BR> 06.11 UK Bradford - Rio<BR> 07.11 UK London - Mean Fiddler<BR> 08.11 NL Helmond - Plato<BR> 09.11 D Trier - Exil *<BR> 10.11 BL Vosselaar - Biebob *<BR> 11.11 D Essen - Zeche Carl *<BR> 12.11 FR Paris - La Locomotive *<BR> 13.11 FR Amneville - After Club *<BR> 14.11 Day-off<BR> 15.11 D Engelsdorf - Hellraiser<BR> 16.11 Day-Off<BR> 17.11 D tba **<BR> 18.11 Day-off<BR> 19.11 A Salzburg - Rock House<BR> 20.11 D Ludwigsburg - Rock Fabrik<BR> 21.11 CZ Brno - Similaso<BR> 22.11 PL Wroclaw - Radio Keller<BR> 23.11 PL Warszawa - Proxima<BR> 24.11 D Bischofswerda - East Club<BR> 25.11 CH Pratteln - Z7 <BR> 26.11 IT Milano - Transilvenia <BR> 27.11 IT Florence - Tenax <BR> 28.11 FR Marseille - Mirabeau <BR><BR> * + Behemoth - Destroyer 666 - Diabolic<BR> ** Only Centinex - Antaeus</p>
+
+Автор: Yermola
+
+### 01.10.2002 news CENTINEX are NOT off the DEICIDE-tour!!!
+
+<p>On the contrary to some rumours during the past days, CENTINEX are NOT off the DEICIDE-tour !! <BR> Of the six scheduled bands three are off, namely INSISION, ANTAEUS and latest additions BLOOD RED THRONE. <BR> The final (updated) listing: <BR> CENTINEX (w/ DEICIDE + MYSTIC CIRCLE) <BR> 06.11 United Kingdom - Bradford - Rio<BR> 07.11 United Kingdom - London - Mean Fiddler<BR> 08.11 The Neatherlands - Helmond - Plato<BR> 09.11 Germany - Trier - Exil *<BR> 10.11 Belgium - Vosselaar - Biebob * <BR> 11.11 Germany - Essen - Zeche Carl *<BR> 12.11 France - Paris - La Locomotive **<BR> 13.11 France - Amneville - After Club *<BR> 15.11 Germany - Engelsdorf - Hellraiser<BR> 19.11 Austria - Salzburg - Rock House<BR> 20.11 Germany - Ludwigsburg - Rock Fabrik<BR> 21.11 Czech Rep - Brno - Similaso<BR> 22.11 Poland - Wroclaw - Radio Keller<BR> 23.11 Poland - Warszawa - Proxima<BR> 24.11 Germany - Bischofswerda - East Club<BR> 25.11 Switzerland - Pratteln - Z7 <BR> 26.11 Italy - Firenze - Tenax<BR> 27.11 Italy - Milano - Transilvania ***<BR> * + Behemoth - Destroyer 666 - Diabolic<BR> ** Deicide - Mystic Circle - Behemoth - Centinex<BR> *** Deicide - Mystic Circle - Centinex - Belphegor</p>
+
+Автор: Vit Belov
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 04.04.2003 news CENTINEX NEWS
+
+<p>Centinex have set "Decadence - Prophecies Of Cosmic Chaos" as the title for next full lenght album. The CD will include nine tracks, one being an instrumental piece written and performed by Peter Pettersson from swedish goth/industrial act Arcana. The album will be recorded & mixed at Black Lounge studios between June 23d and July 20th for a October release through Candlelight Records. <BR><BR> Among the titles tentatively set to appear on the CD are the following:<BR><BR> Cold Deep Supremacy<BR> Misanthropic Darkzone<BR> A Dynasty Of Obediance<BR> New World Odyssey<BR><BR> "The album will be the hardest Centinex release ever, but it will also mark a new direction for the band. The new tracks are still good old swedish death metal but with a modern touch. I'm not talking about industrial influences or things like that - even if the songtitles might indicate something towards those dimensions - no, basically the material is just death metal for the new millennium. Lyrically we have moved away from the WW II era, the whole lyrical concept is actually based upon the forthcoming downfall of mankind. So the lyrics are still brutal, as it should be in this kind of music".<BR><BR> ** UPCOMING CENTINEX SHOWS **<BR><BR> July 11th Czech Republic, Trutnov - Obscene Extreme Fest<BR> July 12th Austria, Spital Am Semmering - Kaltenbach Open Air<BR><BR> Due to the recording of the new album all shows have been postponed, but during the fall they hope to tour as much as possible. Centinex are already working on several possible dates/countries. All inquires and offers should be sent to Dreamtide Music.</p>
+
+Автор: Yermola
+
+### 30.04.2003 news Пророчество космического хаоса
+
+<p>Шведская группа CENTINEX готова к записи своего нового альбома, название которому "Decadence - Prophecies Of Cosmic Chaos". Он будет записываться в Black Lounge Studios в июне-июле этого года, а выход его запланирован в октябре на Candlelight Records. В альбом войдут девять трэков, в том числе инструментал написанный by Peter Pettersson'ом из другой шведской gothic industrial группы ARCANA. оформление альбома поручено Per Gustafson'у (CULT OF LUNA).</p>
+
+Автор: Dimas
+
+### 12.09.2003 news Новый альбом CENTINEX
+
+<P>Шведские музыканты из CENTINEX завершили работу над своим новым альбомом "Decadence - Prophecies Of Cosmic Chaos". Он выйдет в начале 2004 года через Candlelight Records. В него войдут следующие вещи:</P>
+<P>1 - Arrival Of The Spectrum Obscure<BR>2 - Misanthropic Darkzone<BR>3 - Hollowsphere<BR>4 - Target: Dimension XII<BR>5 - Deathstar Unmasked<BR>6 - A Dynasty Of Obedience<BR>7 - Mechanical Future<BR>8 - Cold Deep Supremacy<BR>9 - New World Odyssey<BR></P>
+Автор: Dimas
+
+### 22.09.2003 news Centinex new album
+
+<P align="center"><SPAN lang=EN-GB><SPAN lang=EN-GB>The new <B>Centinex</B> album is - finaly - completly recorded and ready. Full <BR>tracklisting for "<B>Decadence - Prophecies Of Cosmic Chaos</B>" is:<BR>1 - Arrival Of The Spectrum Obscure<BR>2 - Misanthropic Darkzone<BR>3 - Hollowsphere<BR>4 - Target: Dimension XII<BR>5 - Deathstar Unmasked<BR>6 - A Dynasty Of Obedience<BR>7 - Mechanical Future<BR>8 - Cold Deep Supremacy<BR>9 - New World Odyssey<BR></SPAN></SPAN></P>
+<P align="center"><SPAN lang=EN-GB><SPAN lang=EN-GB>The album will be released in early 2004 through <B>Candlelight Records</B> </SPAN></SPAN></P>
+Автор: Vit Belov
+
+### 22.10.2003 news Centinex recruit new drummer
+
+<IMG height=200 alt="" hspace=0 src="/images/news/2003.10/5188.jpg" width=200 align="left" border=0>Sweden's <B>CENTINEX</B> have announced the addition of drummer <B>Ronnie Bergerst&aring;hl</B> (<B>JULIE LAUGHS NO MORE</B>, <B>AMARAN</B>, <B>MYNJUN</B>) to the group's ranks.<BR><BR>"We are very proud to have [<B>Ronnie</B>] on board," bassist <B>Martin Schulman</B> said in a statement. "He is an excellent skinsman and devoted to the scene so we are ready to strike, deadlier than ever."<BR><BR>As previously reported, <B>CENTINEX</B>'s new album, <B>"Decadence - Prophecies Of Cosmic Chaos"</B> is due in early 2004 through <B>Candlelight Records</B>.
+Автор: Vit Belov
+
+### 22.04.2005 news Новый альбом CENTINEX
+
+<P>Шведские мелодик-дэтстеры&nbsp;<B>CENTINEX</B>&nbsp;работают над своим новым альбомом&nbsp;<B>"World Declension"</B>, выход которого ожидается в этом году через <B>Cold</B>/<B>Regain Records</B>. Запись проходит в студии <STRONG>Black Lounge</STRONG>, там же, где был записан и предыдущий альбом группы. Североамериканский релиз альбома выйдет на&nbsp;<B>Candlelight Records USA</B>. <BR>Трек-лист альбома:<BR>1. <B>Victorious Dawn Rising</B><BR>2. <B>Purgatorial Overdrive</B><BR>3. <B>The Destroyer</B><BR>4. <B>As Legions Come</B><BR>5. <B>Sworn</B><BR>6. <B>Synthetic Sin Zero</B><BR>7. <B>Flesh Is Fragile</B><BR>8. <B>Wretched Cut</B><BR>9. <B>Deconstruction Macabre</B><BR></P>
+Автор: Dimas
+
+### 08.03.2006 reviews Падение мира... но не шведского дэта
+
+<P>К сожалению, до сего момента я как-то не был знаком с творчеством шведской дэт-метал группы Centinex. А ведь "World Declension" уже восьмой их студийный альбом. Почему "к сожалению"? Да потому что сей квинтет исполняет отличный дэт шведской школы, и поставить их рядом с Entombed или ранними Dismember не будет преувеличением. Высокие скорости, плотнейшая стена звука, отличная техника, зубодробительные риффы, захватывающие гитарные соляки, очаровательный (насколько тут вообще уместно это слово) дэт-метальный рык вокалиста - всё на месте, да еще и какого качества. При всем при этом группе удается вплетать весьма мелодичные куски в свою пулеметную структуру песен. Больше всего меня поразили агрессия и напор, дикий "кач" и драйв, бескомпромиссность и самоотдача. Записано и сведено всё так, что кажется порой - чего-то большего и лучшего уже не надо. Слушая "World Declension", не хочется даже искать какие-то минусы или недоработки - вихрь смертельного метала подхватывает тебя с самых первых секунд и крутит, не переставая, все недолгие 39 минут, пока длится альбом. Да, ничего здесь нового нет. Да, никакой оригинальностью Centinex не блещут. Но данный релиз относится к тем дискам, о которых мы говорим: вот чертовски цепляет, а почему - объяснить не могу. Возможно, это какое-то индивидуальное восприятие на подсознательном уровне, возможно, это нехватка столь качественного материала в последнее время (это опять-таки для каждого индивидуально) - не могу сказать. Ведь проходило через мой многострадальный CD-плейер немало действительно хороших дэтовых альбомов, но мало какие из них оставляли столь сильное впечатление. И даже более чем скромный буклетик этого впечатления не испортил. Не удивлюсь, если кто-то из вас, прослушав "World Declension", просто пожмет плечами - типа, ну альбом как альбом, чем тут восхищаться? Кто-то может сказать, а чем, мол, те же их соотечественники The Crown хуже? Нет, не расспрашивайте - не скажу ничего. И даже пусть это мое впечатление от всего пары прослушиваний данной пластинки - тем хуже для меня. И только один неприятный осадок остается на душе после прослушивания этого диска - ну почему, черт подери, у нас не могут записывать такие альбомы???</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 24.09.2014 news Шведская death metal банда CENTINEX возвращается с новым альбомом
+
+<P>После семи с лишним лет отпуска, группа <STRONG>CENTINEX</STRONG> решила возобновить свою деятельность. Новый альбом под названием <STRONG>"Redeeming Filth"</STRONG> выйдет 21 ноября в Европе и 9 ноября в Северной Америке на <STRONG>Agonia Records</STRONG>.</P>
+<P>Обложку нарисовал <STRONG>Costin Chiorenau</STRONG> (<A href="http://www.twilight13media.com/">www.twilight13media.com</A>).</P>
+<P>Лирик-видео на новую композицую, <STRONG>"Moist Purple Skin"</STRONG>, можно посмотреть по ссылке: <A href="http://youtu.be/jsDoC6xg2Aw">http://youtu.be/jsDoC6xg2Aw</A></P>
+<P>Предыдущий альбом <STRONG>CENTINEX</STRONG>,&nbsp;названный <STRONG>"World Declension"</STRONG>, вышел в июне 2005 года на <STRONG>Candlelight Records</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.09/27297.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 01.06.2016 news Новый альбом CENTINEX
+
+<p>8 июля на польском лэйбле <strong>Agonia Records</strong> выходит девятый альбом шведской команды<strong> CENTINEX “Doomsday Rituals”</strong>. Группа была образована в 1990 году и играет рифф-ориентированный шведский death metal. В 2005 году коллектив распался, но в 2014 году CENTINEX вернулись в обновленном составе: басист <strong>Martin Schulman</strong> (Demonical), гитарист <strong>Sverker Widgren</strong> (Demonical, Diabolical), вокалист<strong> Alexander Hogbom</strong> (October Tide, Spasmodic) и барабанщик <strong>Kennet Englund</strong> (Interment, Centinex 1999-2003). Сразу в 2014 вышел ре-юнион альбом «<strong>Redeeming Filth</strong>”, а уже в этом году появится следующий альбом.</p><p>Вот как описывает новую работу Martin Schulman: “<em>Тяжёлые риффы, глубокий брутальный вокал, всё от среднетемпового до быстрого материала, совершенный микс флоридского дэта 90-х и стокгольмской школы</em>».</p><p>Альбом был записан в<strong> Wing Studios</strong> с продюсером <strong>Sverker Widgren&nbsp;</strong>(Centinex,&nbsp;Demonical,&nbsp;Diabolical). Обложка -<strong> Bahrull Marta</strong>&nbsp;of&nbsp;Abomination Imagery. </p><p>Трек-лист:</p><p>1. Flesh Passion</p><p>2. From Intact to Broken</p><p>3. Dismemberment Supreme</p><p>4. Generation of Flies</p><p>5. The Shameful Few</p><p>6. Doomsday</p><p>7. Exist to Feed</p><p>8. Death Decay Murder</p><p>9. Sentenced to Suffer</p><p>10. Faceless </p><p><center><img width="500" height="500" src="/images/news_rus/2016.06/29231.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/bObLAYYQnrc" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+### 01.06.2016 news CENTINEX: New album in July
+
+<p>Ninth album from the Swedish death metal band <strong>CENTINEX “Doomsday Rituals”</strong> will be released on July 8 via Polish label <strong>Agonia Records</strong>.</p><p>CENTINEX originated in 1990 as a riff-oriented part of the classic Swedish death metal movement and disbanded in 2005 after releasing eighth full-length albums. In 2014 they surprisingly resurfaced with a refreshed line-up of <strong>Martin Schulman</strong> (Demonical) on bass, <strong>Sverker Widgren</strong> (Demonical, Diabolical) on guitars, <strong>Alexander Hogbom</strong> (October Tide, Spasmodic) on vocals and <strong>Kennet Englund</strong> (Interment, Centinex 1999-2003) on drums. Year 2014 also saw the release of their come-back record, <strong>"Redeeming Filth</strong>".</p><p>The band dosen't want the fans to be kept waiting another near-decade for a new album. Titled "Doomsday Rituals",&nbsp; the record is a natural follow-up to "Redeeming Filth". Martin Schulman (bass) commented: "Heavy riffing, deep brutal vocals, everything from slow via mid-tempo to faster stuff, a perfect mix of the early 90's Florida and Stockholm sound".</p><p>"Doomsday Rituals" was recorded at <strong>Wing Studios</strong> with <strong>Sverker Widgren</strong> (Centinex, Demonical, Diabolical) behind the knobs. The cover artwork was made by <strong>Bahrull Marta</strong> of Abomination Imagery.</p><p>Tracklist:<br>1. Flesh Passion<br>2. From Intact to Broken<br>3. Dismemberment Supreme<br>4. Generation of Flies<br>5. The Shameful Few<br>6. Doomsday<br>7. Exist to Feed<br>8. Death Decay Murder<br>9. Sentenced to Suffer<br>10. Faceless</p><center><img width="500" height="500" src="/images/news_rus/2016.06/29231.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/bObLAYYQnrc" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+### 03.06.2016 reviews Время для CENTINEX
+
+<p>Шведы CENTINEX неожиданно возродились в январе 2014 года и прописались на польском лэйбле Agonia Records. При этом музыканты довольно успешно существовали как DEMONICAL, но творческих сил оказалось достаточно на две группы.</p><p>В том же 2014 году вышел ре-юнион альбом «Redeeming Filth”, а в июле этого года выйдет новая работа «Doomsday Rituals”. CENTINEX не стали выдумывать велосипед и обратили свой взор на старый добрый шведский death metal, в котором они большие специалисты. Новый альбом, продолжающий традиции возрождённого CENTINEX, доверху наполнен энергичными риффами и мрачными мелодиями с текстами про деградирующее человечество и мучительные страдания. Я не могу быть достаточно независимым в своём суждении, так как шведский death metal вызывает во мне только самые добрые чувства, но, безусловно, «Doomsday Rituals” звучит просто отлично. Такая музыка не надоедает, 32 минуты пролетают незаметно, пора включать диск заново. </p><p>Пока DISMEMBER отсутствуют, а GRAVE совсем засыпают на ходу, на передний край выходят CENTINEX, и, кажется, в этот раз у них действительно может получиться пробиться в первый ряд.</p>
+Автор: Vit Belov
+
+### 03.06.2016 reviews Time for CENTINEX
+
+<p>The Swedes CENTINEX unexpectedly revived in January 2014 and have signed to the Polish label Agonia Records. The musicians quite successfully existed as DEMONICAL, but the creative force was enough for two groups.</p><p>In 2014 the same year came the re-union album "Redeeming Filth", and in July of this year will be a new work, "Doomsday Rituals". CENTINEX did not invent a bicycle and turned its eyes on the old good Swedish death metal in which they are experts. The new album, continuing the tradition reborn CENTINEX, brim full of energetic riffs and dark melodies with lyrics about degrading humanity and a painful punishment. I can't be quite independent in my judgment, as the Swedish death metal gives me only the most good feelings, but, of course, "Doomsday Rituals" sounds just fine. This music is not boring, 32 minutes flied unnoticed, it's time to play the disc again. </p><p>While DISMEMBER and VOMITORY are not exist, and GRAVE completely asleep on their feet, CENTINEX come on the cutting edge, and I think this time they really may be able to get into the first row.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

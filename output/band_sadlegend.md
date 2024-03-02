@@ -24,6 +24,9 @@ Melodic Black Metal Band from South Korea, Seoul
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

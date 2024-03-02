@@ -26,6 +26,36 @@
 
 * C группой "Onkel Tom Angelripper" 
 
+## Публикации
+
+### 13.12.2005 news DESPERADOZ на AFM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Одна из групп <STRONG>Дяди Тома Angelripper'a</STRONG> <STRONG>DESPERADOZ</STRONG> (именно так теперь называются <STRONG>DESPERADOS</STRONG>) заключила контракт с<STRONG> AFM</STRONG>. Второй альбом коллектива будет называться "<STRONG>The Legend And The Truth</STRONG>" и выйдет 31 марта.</FONT></P>
+Автор: Vit Belov
+
+### 26.07.2007 news DESPERADOZ в Питере
+
+<CENTER><IMG height=450 src="/images/shows_rus/2007.08/11804.jpg" width=319 border=0></CENTER>
+Автор: Dimas
+
+### 06.02.2008 news Новый альбом DESPERADOZ
+
+<P>11 апреля на <STRONG>AFM</STRONG> выходит третий альбом "вестерн-металл" коллектива <STRONG>DESPERADOZ</STRONG> (ex-<STRONG>DESPERADOS</STRONG>) <STRONG>"An Eye For An Eye"</STRONG>. Трэк-лист:</P>
+<P>01. <B>An Eye For An Eye</B><BR>02. <B>Hate</B><BR>03. <B>Days Of Thunder</B><BR>04. <B>Wild Bunch</B><BR>05. <B>Wild Times</B><BR>06. <B>Riders On The Storm</B> (THE DOORS)<BR>07. <B>Here Comes The Pain</B> (with Tom Angelripper)<BR>08. <B>Don't Give Up</B><BR>09. <B>May Heaven Strike Me Down</B><BR>10. <B>When The Circus Comes To Town</B><BR>11. <B>Tooth For A Tooth</B><BR>12. <B>25 Minutes To Go (Mr. Johnny Cash)</B></P>
+<P>Новую песню "<STRONG>Days Of Thunder</STRONG>" можно послушать по нижеприведённой ссылке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/dezperadoz">http://www.myspace.com/dezperadoz</A></P>
+Автор: Vit Belov
+
+### 05.08.2013 news Alex Kraft покинул проект ONKEL TOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26018.jpg" width=256 height=425>Гитарист и вокалист <STRONG>Alex Kraft</STRONG> объявил о том, что он покидает проект <STRONG>ONKEL TOM</STRONG>, чтобы посвятить больше времени другим своим группам.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальное заявление Алекса по этому поводу:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Дорогие друзья, фанаты и товарищи.<BR>По прошествии 18 лет, многочисленных пьяных&nbsp;альбомов, DVD, вечеринок и концертов на дороге, ведущей через все тяжкие, которые я провёл&nbsp;с моим хорошим старым другом, компаньоном и приятелем Томом Энжелриппером, настало время в моей жизни, чтобы двигаться вперёд и следовать другому пути&nbsp;- посвятить себя в полной мере своим собственным группам.<BR></EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Именно по этой причине я решил покинуть группу <STRONG>ONKEL TOM</STRONG>. Я желаю ему всего самого налучшего и хочу поблагодарить его и всех вас за дружбу на протяжении всех этих лет проведённых вместе. </EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>До скорого и всего наилучшего!<BR>Алекс Крафт."</EM></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

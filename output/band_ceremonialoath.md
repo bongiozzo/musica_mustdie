@@ -68,6 +68,9 @@ Recorded at Studio Fredman
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### ceremonial oath

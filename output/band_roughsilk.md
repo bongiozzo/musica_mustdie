@@ -212,6 +212,68 @@ Ralf Schwertner
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.02.1999 news 
+
+<p>Барабанщик Helloween Ули Кюш, объявил состав музыкантов, которые примут участии на организованном им проекте "Tribute to Rainbow". На проекте засветятся Ральф Шипперс из Primal Fear, члены Helloween Маркус Гроскопф, Михаэль Вейкат, Анди Дерис, Роланд Грапов. А также клавишники Фредди Донберг(Rough Silk), Аксел Маттенрок(Punch), бассисты Йенс Бекер (Grave Digger), Уве Вессел (ex-Gamma Ray) и гитарист Хеньо Рихтер (Gamma Ray).</p>
+
+Автор: Vit Belov
+
+### 04.04.2002 news ROUGH SILK news
+
+<p>Germany's ROUGH SILK are currently in the studio recording their new album, entitled End Of Infinity, for a September release.</p>
+
+Автор: Dimas
+
+### 04.04.2002 news Новости от ROUGH SILK
+
+<p>Германская группа ROUGH SILK в данный момент находится в студии, где записывает свой новый альбом под названием "End Of Infinity" выпуск которого планируется в сентябре 2002 года.</p>
+
+Автор: Dimas
+
+### 31.05.2006 news Умер оригинальный гитарист ROUGH SILK
+
+<P>Гитарист<STRONG> Hilmer Staacke</STRONG>, один из основателей<STRONG> ROUGH SILK</STRONG>, умер на прошлой неделе от приступа астмы. RIP.</P>
+Автор: Vit Belov
+
+### 16.02.2009 news ROUGH SILK вернулись
+
+<P>20 марта на <STRONG>Dockyard 1</STRONG> выходит новый альбом <STRONG>ROUGH SILK</STRONG> <STRONG>"A New Beginning". </STRONG>Группа возвращается с новым составом, в котором к клавишнику <STRONG>Ferdy Doernberg </STRONG>присоединились молодые музыканты <STRONG>Andre Hort</STRONG> (бас), <B itxtvisited="1">Mike Mandel</B> (гитара)&nbsp;и <B itxtvisited="1">Alex Wenn</B> (барабаны). Альбом быс спродбсирован самим Ferdy в <STRONG>Droehnwerk Studios</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Temple Of Evil</B><BR itxtvisited="1">02. <B itxtvisited="1">Home Is Where The Pain Is</B><BR itxtvisited="1">03. <B itxtvisited="1">Reborn To Wait</B><BR itxtvisited="1">04. <B itxtvisited="1">The Roll Of The Dice</B><BR itxtvisited="1">05. <B itxtvisited="1">When The Circus Is Coming To Town</B><BR itxtvisited="1">06. <B itxtvisited="1">Sierra Madre</B><BR itxtvisited="1">07. <B itxtvisited="1">A New Beginning</B><BR itxtvisited="1">08. <B itxtvisited="1">Warpaint</B><BR itxtvisited="1">09. <B itxtvisited="1">Black Leather</B><BR itxtvisited="1">10. <B itxtvisited="1">We've Got A File On You</B> (feat. SUBCULTURE SQUAD)<BR itxtvisited="1">11. <B itxtvisited="1">Deadline</B><BR itxtvisited="1">12. <B itxtvisited="1">We All Need Something To Hold On To In This Life</B><BR itxtvisited="1">13. <B itxtvisited="1">A Song For Hilmer</B></P>
+<P>Сэмплы: <A href="http://www.myspace.com/roughsilkmusic">http://www.myspace.com/roughsilkmusic</A></P>
+Автор: Vit Belov
+
+### 18.06.2009 news Новое видео ROUGH SILK
+
+<P>Новое видео<STRONG> ROUGH SILK</STRONG> на песню <STRONG>"Reborn To Wait" </STRONG>можно посмотреть ниже:</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=59078639">Rough Silk - Reborn to wait (Videoclip)</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=59078639,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=59078639,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.08.2009 reviews Чего-то не хватило
+
+<P>Прошло шесть лет с предыдущего альбома ROUGH SILK “End Of Infinity”, и этот альбом действительно можно считать «новым началом». Особенно если учесть, что лидер коллектива клавишник, гитарист и вокалист Ferdy Doenrberg полностью поменял состав, набрав молодых музыкантов.</P>
+<P>За прошедшее время о группе ROUGH SILK, которая была несомненным событием в тяжёлой музыке 90-х стали забывать. Ferdy некоторым стал даже более известен как участник группы AXEL RUDI PELL или других популярных проектов, таких как EDEN’S CURSE, например. Стиль ROUGH SILK никогда нельзя было обозначить одним словосочетанием. В их музыке смешаны и progressive, и melodic hard-rock, и даже power-metal. “New Beginning” показался мне похожим на позднее творчество SAVATAGE, быть может, из-за вокала Ferdy, который напомнил мне Jon Oliva. В подобном стиле всё решает музыка, как таковая. Невозможно выехать только за счёт драйва или какой-то харизмы. Требуется набор из песен-хитов с узнаваемыми элементами и мелодической динамикой. С узнаваемыми элементами и динамикой у ROUGH SILK всё в порядке. Ferdy играет на огромном количестве разнообразных гитар, здесь есть и забой, и кантри, и баллады, и ещё чёрт знает что. А вот с хитами у ROUGH SILK вышла напряжёнка. Первая половина альбома захватывает, и вам даже кажется, что вы получили несомненный хит в свою коллекцию, но дальше от навязчивой манеры вокалиста становится уже несколько скучно. Такое впечатление, что не во всех местах Ferdy выступает искренне, а просто копирует известных мастеров, которых на своём веку он повидал и послушал достаточно.</P>
+<P>Страстные поклонники ROUGH SILK не пропустят этот альбом. Остальным он будет полезен только в общепознавательных целях.<BR></P>
+Автор: Vit Belov
+
+### 19.10.2009 news Ferdy подготовил сольник
+
+<P>Лидер <STRONG>ROUGH SILK Ferdy Doernberg</STRONG> подготовил сольный альбом, который выйдет в декабре. "<STRONG>Travelling Light</STRONG>" был записан в Гамбурге вместе с гитаристом <STRONG>HOLY MOSES Michael Hankel</STRONG>. Также на альбоме одну песню спела <STRONG>Sabina Classen</STRONG>. Музыкант обещает рок-альбом с обилием акустики. Подробный трэк-лист:</P>
+<P>1. <STRONG>Does A Dobro Rust When You Play It In The Rain?</STRONG> (instrumental) <BR>2. <STRONG>Shed A Tear</STRONG><BR>3. <STRONG>In Search Of A Catchy Chorus</STRONG><BR>4. <STRONG>E.T. Phone Home</STRONG><BR>5. <STRONG>A No-haired Hippie Like Me</STRONG><BR>6. <STRONG>Keep Me In Your Heart When I'm Gone</STRONG><BR>7. <STRONG>Along The Road</STRONG><BR>8. <STRONG>May God Save Us From Religion</STRONG> (duet with Joseph Parsons) <BR>9. <STRONG>Jugband</STRONG><BR>10. <STRONG>All The Things You Do</STRONG> <BR>11. <STRONG>Integrity </STRONG>(featuring Sabina Claassen & Michael Hankel) <BR>12. <STRONG>You Don't Know What You've Got 'Till It's Gone</STRONG> <BR>13. <STRONG>Wah-Whoopf</STRONG> ( instrumental ) <BR>14. <STRONG>Travelling Light<BR></STRONG>15. <STRONG>The Suburbs Of Paradise</STRONG><BR>16. <STRONG>Django Meets The Undead Scotsman</STRONG> ( instrumental ) <BR>17. <STRONG>Mutants At The Shopping-Mall</STRONG> (duet with Johnny Gioeli) </P>
+Автор: Vit Belov
+
+### 11.01.2011 news ROUGH SILK назвали альбом
+
+<P>Новый альбом<STRONG> ROUGH SILK</STRONG> получил название <STRONG>"The Good, The Bad & The Undead". </STRONG>Пластинка выйдет 23 марта на <STRONG>Rock It Up Records</STRONG>. Обложку альбома можно увидеть ниже. Предыдущий альбом немцев вышел в 2009 году на<STRONG> Dockyard 1</STRONG>.</P>
+<P><center><IMG height=420 src="/images/news_rus/2011.01/18146.jpg" width=420 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

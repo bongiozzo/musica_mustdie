@@ -52,6 +52,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2011 news RECKON WITH ONE работают над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадские трешеры<STRONG> RECKON WITH ONE</STRONG> работают над новым альбомом "<STRONG>Tornadic</STRONG>". Работа проходит в <STRONG>NIMBUS recording studio</STRONG>. Подробности последуют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/reckonwithone">http://www.facebook.com/reckonwithone</A></FONT></P>
+<P><center><IMG height=234 src="/images/news_rus/2011.07/20294.jpg" width=312 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

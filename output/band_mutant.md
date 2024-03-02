@@ -21,6 +21,21 @@ Abduct to Mutate
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2000 reviews Взрывной атакующий black-death metal
+
+<p>Взрывной атакующий black-death metal. Давненько я не слыхал такого брутального и быстрейшего металла в таком приличном качестве. На слушателя обрушиваются баррикады бласт-битов, подкрепляемые клавишной атмосферщиной. Хорошая гитарная работа - короткие, сочные и злые риффы разрезающие плотную звуковую стену. Группа является проектом музыкантов шведской экстравагантной death-metal группы Theory In Practice (новый альбом которой, кстати, тоже только что вышел). Очень интересная, бескомпромиссная музыка, в меру мелодичная, очень злая и жесткая. Советую прослушать!</p>
+
+Автор: Dimas
+
+### 04.07.2000 reviews Explosive attacking black-death metal
+
+<p>Explosive attacking black-death metal. For a long time I've not heard such brutal and fastest metal in such decent quality. Upon the listner fall barricades of blast-bits substantiated keyboard atmosphere. Good guitar work - short, juicy and malicious riffes cutting a dense sound wall. The group is the project of the musicians Swedish extravaganza death-metal group Theory In Practice (which new album, by the way, too just has left). Very interesting, non-compromise music, in a measure melodious, very malicious and rigid. I advise to hear!</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

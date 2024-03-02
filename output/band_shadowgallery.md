@@ -85,6 +85,58 @@ Rain
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2001 reviews Долгожданный шедевр
+
+<p>Долгожданный шедевр. Эта команда имеет привычку выпускать альбомы с большими перерывами. Но, каждое их творение заслуживает всяческих похвал и становится событием для любителей прогрессивной металлической музыки. Виртуозно-фантастическая игра музыкантов, приятнейшие мелодии, драматизм и напряжение, эпичность, соразмерный вокал и клавишно-симфонические обработки. Шесть великолепнейших вещей держат во внимании все семьдесят минут звучания. Несмотря на недостаточно обработанный и отполированный звук, как на предыдущем альбоме "Tyranny", к нему почти невозможно придраться. Вот что значит, высокий класс музыкантов. Мелодичная, инструментально ориентированная работа. Вокал очень хорош, особенно хороши хоральные работы всех музыкантов группы. Это, на мой взгляд, лучшая работа группы, сделанная в лучших традициях Rush и Marillion с более тяжелым звуком и более ярко выраженной мелодикой. Плотный звук, перемежаемость музыкальных тем, яркие гитарные работы. Блестящая работа, достойная высокой оценки.</p>
+
+Автор: Dimas
+
+### 18.03.2004 news SHADOW GALLERY начинают запись
+
+<B>SHADOW GALLERY</B> начинают запись нового альбома 18 марта в студии в Сан-Диего. Название пластинки пока не определено.&nbsp;
+Автор: Vit Belov
+
+### 02.12.2004 news InsideOut: &quot;собиратели земель прогрессивных&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>InsideOut </STRONG>подписали контракт с <STRONG>SHADOW GALLERY</STRONG>. В настоящее время группа записывает свой пятый альбом <STRONG>'Room Five'</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 19.04.2005 news Новый альбом SHADOW GALLERY
+
+<P>Американские гранды прогрессивной музыки <STRONG>SHADOW GALLERY</STRONG> готовят к выпуску свой долгожданный альбом <STRONG>"Room Five",</STRONG> являющийся продолжением концептуальной истории, начатой еще на альбоме<STRONG>&nbsp;"Tyranny"</STRONG>. Европейская версия альбома выйдет 30 мая на <STRONG>InsideOut Music</STRONG>, там же выйдет и американская версия, но 7 июня. Трек-лист альбома:</P>
+<P><STRONG><IMG height=280 alt="" hspace=50 src="/images/news_rus/2005.04/8327.jpg" width=280 align=right border=0>1. Manhunt 02:07<BR>2. Comfort Me 06:49<BR>3. The Andromeda Strain 06:44<BR>4. Vow 08:25<BR>5. Birth of has Daughter 02:38<BR>6. Death of has Mother 02:13<BR>7. Lamentia 01:02<BR>8. Seven Years 03:35<BR>9. Dark 01:01<BR>10. Torn 08:21<BR>11. The Archer of Ben Salem 07:26<BR>12. Encrypted 07:59<BR>13. Room V 07:42<BR>14. Rain 08:59</STRONG></P>
+Автор: Dimas
+
+### 01.11.2008 news Умер певец SHADOW GALLERY
+
+<P>Певец <STRONG>Michael A. Baker, </STRONG>один из основателей <STRONG>SHADOW GALLERY</STRONG>, скончался 29 октября в возрасте 45 лет от сердечнго приступа.</P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+### 26.07.2009 news SHADOW GALLERY закончили запись альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SHADOW GALLERY</STRONG> закончили работу над новым альбомом, который начал сочиняться ещё при жизни умершего в прошлом году вокалиста <STRONG>Michael A. Baker. </STRONG>Некоторые песни на этой работе исполнит <STRONG>D.C. Cooper</STRONG> (<B>SILENT FORCE</B>, ex-<B>ROYAL HUNT</B>).</FONT></P>
+Автор: Vit Belov
+
+### 20.09.2009 news SHADOW GALLERY возвращаются
+
+<P>Progressive группа<STRONG> SHADOW GALLERY</STRONG> возвращается с новым альбомом <STRONG>"Digital Ghosts", </STRONG>который выйдет 26 октября на<STRONG> InsideOut</STRONG>. Группа рекрутировала нового вокалиста <STRONG>Brian Ashland</STRONG>, который заменит трагически умершего в прошлом году <STRONG>Mike Baker</STRONG>. В записи пластинки приняли участие гостевые певцы <STRONG>Ralf Scheepers</STRONG> (<B>PRIMAL FEAR</B>)&nbsp;и <B>Clay Barton</B> (<B>SUSPYRE</B>). О сообщавшемся ранее <STRONG>D.C. Cooper</STRONG> в новом пресс-релизе ничего не говорится. Трэк-лист:</P>
+<P>01. <B>With Honor</B><BR>02. <B>Venom</B><BR>03. <B>Pain</B><BR>04. <B>Gold Dust</B><BR>05. <B>Strong</B><BR>06. <B>Digital Ghost</B><BR>07. <B>Haunted</B></P>
+Автор: Vit Belov
+
+### 02.02.2010 news Клип SHADOW GALLERY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Прогеры" <STRONG>SHADOW GALLERY</STRONG> выложили в сеть свой новый клип <STRONG>"Gold Dust". </STRONG>Режиссёром ролика выступил басист коллектива <STRONG>Carl Cadden-James. </STRONG></FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/M580kCiIh2M&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/M580kCiIh2M&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

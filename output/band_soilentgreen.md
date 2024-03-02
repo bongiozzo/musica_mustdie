@@ -80,6 +80,51 @@ Formats: CD, LP
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2001 news Удаленная Симфония для падших....
+
+<p>Во вторник 18-го сентября Relapse Records выкладывают на прилавки новый альбом потрясающих "Soilent Green" - "A Deleted Symphony for the Beaten Down". Доступные в Сети фрагменты просто поражают. Такой смеси грайнд-кора, дэса, блэка, блюза и Южного рока я еще не слышал... Не пропустите! <img src=/images/news_rus/2001.09/1712.gif border=1 align=left width=216 height=216 ></p>
+
+Автор: Yermola
+
+### 18.09.2001 news SOILENT GREEN have cited the departure of guitarist ...
+
+<p>SOILENT GREEN have cited the departure of guitarist Ben Stout as the primary reason for their decision to pull out of the Metallenium Tour, which is scheduled to go ahead with DIMMU BORGIR, NAPALM DEATH, LAMB OF GOD, DARKEST HOUR, SIX FEET UNDER, WITCHERY and GOD FORBID on the bill. "Stout was dismissed for his lack of dedication to SOILENT GREEN and the touring commitments that being in this band entails," vocalist Benjamin Falgoust told Digitalmetal. SOILENT GREEN will reportedly not tour without a second guitarist, forcing them to cancel their involvement with the aforementioned trek. The band are currently auditioning for a second guitarist, and expect to find a replacement for Stout shortly. The band are, however, confirmed to appear on the Holidays In Hell tour with MORBID ANGEL, DEICIDE and ZYKLON starting November 20th in Houston, Texas. SOILENT GREEN's A Deleted Symphony For the Beaten Down comes out September 18th on Relapse Records. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.09.2001 news SOILENT GREEN уволили гитариста...
+
+<p>"SOILENT GREEN" уволили гитариста Бена Стаута, причиной для чего послужил отказ онного от участия в туре "Metallenium" с DIMMU BORGIR, NAPALM DEATH, LAMB OF GOD, DARKEST HOUR, SIX FEET UNDER, WITCHERY и GOD FORBID. Как заявил журналу "Digitalmetal" вокалист Benjamin Falgoust: "Стаут был уволен из-за своего отношения и из-за проблем возникающих с расписанием...". Сейчас команда усиленными темпами прослушивает толпы вторых гитаристов и уже к 20-му ноября обещает поехать на гастроли с Holidays In Hell tour (совместно с MORBID ANGEL, DEICIDE и ZYKLON), который стартует в Хьюстоне (Техас)...</p>
+
+Автор: Yermola
+
+### 28.10.2001 reviews Грязно-зеленые возвращаются или Симфония падших...
+
+<p>"Что же меня ждет на этот раз?!?" - думал я распаковывая аппетитный желтый конвертик с пупырышками. Долбанная местная почта и в этот раз не порадовала - коробка от CD оказалась разбитой, а вот содержимое...<BR> Более причудливого коктейля из дэса, блэка, грайнда и южного рока мне еще не доводилось слышать. Хотя, спасибо Интернету, с МР3 группы я уже был знаком, но послушать целый альбом - впечатляет...<BR> Представляете, если бы Пантера, вдруг, заиграла блэк? Развитие песен довольно непредсказуемое. Начинаться тема может как дэс, затем появляются блэковые бласт-биты и в конце...медленный тягучий грайнд. Интересная особенность - отсутствие соло. В случае применения разных вокалов - получился бы приграйндованный Opeth, но вместо этого вокалист использует не очень низкий гроулинг и иногда скриминг и мы в результате имеем SOILENT GREEN! <BR> Рекомендую. Очень интересно. Если бы множество групп вместо клепания безликих и ничем не выдающихся клишированных альбомов занялось бы подобными экспериментами - от этого бы выиграли и слушатели и сами они. А название для стиля после придумают.... критики.</p>
+
+Автор: Yermola
+
+### 28.10.2001 news EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001
+
+<p>EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001 <BR> featuring MORBID ANGEL, Deicide, Soilent Green, Zyklon & Exhumed<BR> <BR> November 2001 <BR> 11/20/01 - CARDI'S - HOUSTON, TX <BR> 11/21/01 - VILLA REAL CONVENTION CENTER - McALLEN, TX <BR> 11/22/01 - OFF <BR> 11/23/01 - SUNSET STATION - SAN ANTONIO, TX <BR> 11/24/01 - CANYON CLUB - DALLAS, TX <BR> 11/25/01 - EL REY THEATRE - ALBUQUERQUE, NM <BR> 11/26/01 - TBA <BR> 11/27/01 - TBA <BR> 11/28/01 - GALAXY THEATRE - SANTA ANA, CA <BR> 11/29/01 - THE PALACE - HOLLYWOOD, CA <BR> 11/30/01 - THE POUND - SAN FRANCISCO, CA<BR> <BR> December 2001 <BR> 12/01/01 - THE POUND - SAN FRANCISCO, CA <BR> 12/02/01 - OFF <BR> 12/03/01 - CATWALK - SEATTLE, WA <BR> 12/04/01 - OFF <BR> 12/05/01 - OGDEN THEATRE - DENVER, CO <BR> 12/06/01 - OFF <BR> 12/07/01 - FIRST AVENUE - MINNEAPOLIS, MN <BR> 12/08/01 - VIC THEATRE - CHICAGO, IL <BR> 12/09/01 - AGORA - CLEVELAND, OH <BR> 12/10/01 - M (Formerly Metropol) - PITTSBURGH, PA <BR> 12/11/01 - TBA <BR> 12/12/01 - THE WORLD - NEW YORK, NY <BR> 12/13/01 - THE PALLADIUM - WORCESTER, MA <BR> 12/14/01 - JAXX - SPRINGFIELD, VA <BR> 12/15/01 - TBA <BR> 12/16/01 - TROCADERO - PHILADELPHIA, PA</p>
+
+Автор: Yermola
+
+### 01.11.2001 reviews Cocktail from Death, Black, Grind and Southern Rock...
+
+<p>" What's gonna come up this time?!?!" - this was my first idea during unpacking yellow mail package... Fxxxing local mail has not pleased me again - box from CD has appeared broken, but content... I did not hear yet more strange cocktail from Death, Black, Grind and Southern Rock. Though, thanks to the Internet, with group's МР3 I was already familiar, but listening of whole album - it's impressing. Imagine "Pantera" which playing Black metal?!?! Development of songs is rather unpredictable. Theme can start from Death, than blast-beats occur and in the end... slow viscous grind. Interesting feature - absence of solo. In case of different vocals application - it would turn out grinding "Opeth", but instead of it singer uses growling and sometimes screaming and as result we have SOILENT GREEN! I recommend. Very interesting.</p>
+
+Автор: Yermola
+
+### 21.01.2002 news SOILENT GREEN RECOGNIZED IN ROLLING STONE FOR SECOND TIME...
+
+<p>SOILENT GREEN have been lauded in the pages of Rolling Stone magazine for the econd time in as many albums. The legendary music tome named SOILENT GREEN as, "The quintessential underground-metal band," in their year-end music issue, referencing SOILENT alongside hard music notables Ozzy Osbourne, System of a Down and Slipknot. <BR> <BR> As well, the band is recovering from injuries induced during the van accident that occurred on December 4th while the band traveled as part of the "Extreme Music for Extreme People" tour. "SOILENT GREEN is currently in a healing tate," vocalist Benjamin Falgoust commented. "Brian and Scott are doing better and should be back at it by the end of February. Everyone else is fine and as soon as Brian and Scott are ready, we will be at it again." <BR> <BR> In the interim, SOILENT GREEN will release a split 7" EP with fellow Louisiana natives EYEHATEGOD on Falgoust's new label, Incision Records. SOILENT GREEN will appear on the EP with the brand new track, "They Lie to Hide the Truth" mand will embark on a Japanese tour with EHG in late March in continued support of their latest Relapse release, A Deleted Symphony for the Beaten Down.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

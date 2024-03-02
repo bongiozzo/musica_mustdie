@@ -161,6 +161,49 @@ Zoltan Schonberger - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 30.08.2004 reviews Венгерские black-metal&#39;исты играют на тромбоне
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Заслуженная венгерская группа <STRONG>SEAR BLISS</STRONG> выпустила свой очередной альбом, главным достоинством которого является качество.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>С первой же песни обращает на себя внимание присутствие в их музыке духового инструмента - это тромбон.&nbsp;Его слышно, но наличие трубы не столь вычурно, как было на прошлом альбоме <STRONG>ROSSOMAHAAR</STRONG>. Он вплетён в музыку органично и заменяет собой партии клавишных. Естественно, никаких ска-панк&nbsp;проигрышей Вы здесь не найдёте.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SEAR BLISS</STRONG>&nbsp;играют среднетемповый мелодичный и тяжёлый&nbsp;black-metal. Качество продюсирования на самом высоком уровне. С мелодиями&nbsp;у ребят тоже всё в порядке, иногда встьупает чисто-кричащий вокал, правда, на <STRONG>'Birth Of Eternity'</STRONG> мелодия напоминает одну из песен <STRONG>MOONSPELL</STRONG>, но достаточно отдалённо. Партии гостевого вокала исполнил <STRONG>Atilla (ABORYM, MAYHEM).</STRONG></FONT></P>
+<P><STRONG>'Glory And Perdition'</STRONG> советую к приобретению любителям мрачного и мелодичного black-metal, не разочаруетесь.&nbsp;</P>
+Автор: Vit Belov
+
+### 04.09.2004 reviews Hungarian black-metal band plays on trumpet
+
+<P><EM>Honored Hungarian band <STRONG>SEAR BLISS</STRONG> released their new album, and its main worth is quality.</EM></P>
+<P>Presence of wind instrument in their music pays attention right from the first song. It's trumpet. It can be heard, but availability of trumpet is not so ornate as on the last album by <STRONG>ROSSOMAHAAR</STRONG>. It entwine with music naturally and replace keyboard parties.</P>
+<P><STRONG>SEAR BLISS</STRONG> plays middle pace and heavy black-metal. Quality of producing is on the highest level. Guys have good melodies too. Sometimes clean-scream vocal is entering, but melody on <STRONG>'Birth Of Eternity'</STRONG> reminds of one of the song by <STRONG>MOONSPELL.</STRONG> Guest parties of vocal are perfomed by <STRONG>Atilla (ABORYM, MAYHEM).</STRONG></P>
+<P>I recommend <STRONG>'Glory and Perdition'</STRONG> to buy&nbsp;to fans of dark and melodic black-metal. You will not be disappointed.&nbsp;</P>
+Автор: Vit Belov
+
+### 29.03.2007 news SEAR BLISS начали запись
+
+<P><STRONG>SEAR BLISS</STRONG> начали запись нового альбома "<STRONG>The Arcane Odyssey</STRONG>", который выйдет в июне на <STRONG>Candlelight</STRONG>. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 06.01.2008 reviews Black-metal похоронного марша
+
+<P>Венгерская группа SEAR BLISS выпустила свой шестой альбом на английском лэйбле Candlelight. Пожалуй, этот коллектив один из немногих, которые развиваются поступательно. “The Arcane Odyssey” – лучший на сегодня альбом группы.</P>
+<P>Мы уже рассказывали об этой группе. Первое, что приходит на ум при упоминании SEAR BLISS, это тромбон. Этот духовой инструмент своим низким гудением придаёт этому венгерскому black-metal особое настроение. Среднетемповые black-metal марши, вот как можно охарактеризовать музыку SEAR BLISS. Некоторые песни в своей мелодике и помпезности поднимаются до монументальности похоронного марша. Честно говоря, вспомнить что-то подобное мне не удастся. В случае же с новым альбомом все эти отличительные особенности группы дополнены и очень не плохими мелодиями. SEAR BLISS уже не стремятся достигнуть тяжести собратьев по стилю, они предпочитают вербовать поклонников своим необычным настроением. Долгие акустические проигрыши, атмосферные куски, а напоследок, в качестве бонус-трэка, фолковая вещь “Path To The Motherland”.</P>
+<P>“The Arcane Odyssey” не сразит вас попсовостью мелодий или забойными риффами. Венгры берут настроением своей музыки, которое захватывает и доставляет немалое удовольствие. Этот альбом пока не заслуживает высшего балла, но что-то мне подсказывает, что эта группа продолжит своё движение и своего достигнет.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

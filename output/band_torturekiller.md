@@ -45,6 +45,33 @@ Tuomo Latvala-Drums
 * C группой "Cannibal Corpse" Chris Barnes moved to Six Feet Under at 1995.
 * C группой "Six Feet Under" Chris Barnes moved to Six Feet Under at 1995.
 
+## Публикации
+
+### 01.02.2008 news Chris barnes Больше не в TORTURE KILLER
+
+<P>Вокалист <STRONG>SIX FEET UNDER Chris Barnes</STRONG> объявил, что больше не является членом финской команды <STRONG>TORTURE KILLER</STRONG>. С группой работает новый певец <STRONG>Juri Sallinen.</STRONG></P>
+Автор: Vit Belov
+
+### 05.12.2008 news TORTURE KILLER на Dynamic Arts
+
+<P><STRONG>TORTURE KILLER</STRONG> подписали контракт с <STRONG>Dynamic Arts</STRONG> на выпуск в конце февраля альбома "<STRONG>Sewers</STRONG>".</P>
+Автор: Vit Belov
+
+### 24.02.2010 reviews Тупо и круто
+
+<P>Финская команда TORTURE KILLER является группой, созданной только для одной цели. В начале своей карьеры ребята выступали как кавер-группа SIX FEET UNDER. Продолжив уже со своим материалом, финны сохранили свою страсть к творчеству бывшего вокалиста CANNIBAL CORPSE Chris Barnes.</P>
+<P>Более того, сам господин Barnes спел на прошлом альбоме группы “Swarm!”. Получился такой европейский филиал SFU. Новый альбом продолжает эту традицию, Chris уже нет, но штатный вокалист Juri Sallinen справляется со своей работой также хорошо. Этот короткий энергичный альбом описать очень легко. Мощный ритм и гроулинг. Думается, концерты TORTURE KILLER проходят очень зажигательно. Кое-кто может назвать музыку этой группы death’n’roll, и этот кое-кто тоже не будет слишком далеко от истины.</P>
+<P>Забавно, что музыка TORTURE KILLER непроходимо тупа, но слушать этот альбом по-настоящему круто. Можно ткнуть наугад в любой трэк, и ритм и звучание гитар захватывают мгновенно. Безусловно, этот альбом нельзя рекомендовать гурманам, эта музыка подойдёт тем, для кого тяжёлый метал – это хлеб насущный.</P>
+Автор: Vit Belov
+
+### 17.02.2012 news Новая песня TORTURE KILLER
+
+<P>Финские 'последователи SIX FEET UNDER' <STRONG>TORTURE KILLER</STRONG> выложили в сеть новую песню "<STRONG>I Chose Death</STRONG>", которая выйдет на одноимённом мини-альбоме 7 марта. Трек-лист:</P>
+<P>01. <STRONG>All Will End In Terror<BR></STRONG>02. <STRONG>Succumb To Dark</STRONG><BR>03. <STRONG>I Chose Death</STRONG></P>
+<P><center><iframe width="60%" height="166" scrolling="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F36784974&show_artwork=true" frameborder="0" ></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

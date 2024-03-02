@@ -8,6 +8,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.02.2009 news Сольник Ian Gillan
+
+<P><IMG height=268 alt="" hspace=0 src="/images/news_rus/2009.02/13564.jpg" width=400 align=right border=5>31 марта на<STRONG> Eagle</STRONG> выходит сольный альбом вокалиста <STRONG>DEEP PURPLE Ian Gillan</STRONG> <STRONG>"One Eye To Morocco". </STRONG>Первый "номерной" альбом певца за десять лет. Список музыкантов банды:</P>
+<P><STRONG>Michael Lee Jackson</STRONG> - Guitar<BR><B>Rodney Appleby</B> - Bass<BR><B>Howard Wilson</B> - Drums<BR><B>Joe Menonna</B> - Saxophone<BR><B>Lance Anderson</B> - Hammond Organ<BR><B>Jesse O'Brien</B> - Keyboards</P>
+<P>Трэк-лист:</P>
+<P>01. <B>One Eye To Morocco</B><BR>02. <B>No Lotion For That</B><BR>03. <B>Don't Stop</B><BR>04. <B>Change My Ways</B><BR>05. <B>Girl Goes To Show</B><BR>06. <B>Better Days</B><BR>07. <B>Deal With It</B><BR>08. <B>Ultimate Groove</B><BR>09. <B>The Sky Is Falling Down</B><BR>10. <B>Texas State Of Mind</B><BR>11. <B>It Would Be Nice</B><BR>12. <B>Always The Traveler</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

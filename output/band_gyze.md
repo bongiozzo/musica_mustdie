@@ -8,6 +8,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.09.2015 news Новое видео GYZE
+
+<P>Отличная melodic death-metal команда из Японии <STRONG>GYZE</STRONG> выпустила новый видео-клип на песню “<STRONG>Julius</STRONG>”. Второй альбом группы "<STRONG>Black Bride</STRONG>" вышел в июне.</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/xslynG9cGFQ" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.10.2015 news Видео от GYZE
+
+<P>Новый альбом японской команды <STRONG>GYZE "Black Bride"</STRONG> вышел на итальянском лэйбле <STRONG>Coroner Records</STRONG>. Melodic death-metal в стиле CHILDREN OF BODOM. Альбом в формате digipak можно приобрести здесь: <A href="http://escapemind.ru/goods/GYZE-Black-Bride-CD">http://escapemind.ru/goods/GYZE-Black-Bride-CD</A></P>
+<P>Видео-клип на песню "<STRONG>Black Bride</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME height=360 src="https://www.youtube.com/embed/qbZyqRWDI4c?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

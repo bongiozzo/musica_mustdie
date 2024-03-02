@@ -8,6 +8,26 @@ prog-metal from Australia
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.06.2011 news CIRCLES выпустили EP
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=274 alt="" hspace=0 src="/images/news_rus/2011.06/19809.gif" width=275 align=right border=0>Австралийские prog-metal'исты<STRONG> CIRCLES</STRONG> подготовили нашему вниманию второй EP <STRONG>"The Compass"</STRONG>. На него попали 6 вещей:</FONT></P>
+<P>1. <STRONG>The Frontline<BR></STRONG>2. <STRONG>Clouds Are Gathering</STRONG><BR>3. <STRONG>Act III</STRONG><BR>4. <STRONG>Eye Embedded</STRONG><BR>5. <STRONG>The Design<BR></STRONG>6. <STRONG>Ruins</STRONG></P>
+<P>Группа начала работу над дебютным альбомом.</P>
+<P><A href="http://www.circlesband.com/">http://www.circlesband.com</A></P>
+Автор: Vit Belov
+
+### 09.11.2011 news Новый клип CIRCLES
+
+<P>Австралийская prog-metal группа <STRONG>CIRCLES</STRONG> опубликовала клип на песню <STRONG>"Eye Embedded</STRONG>". Песня взята с новейшего миньона коллектива "<STRONG>Compass</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT id=muzuplayer-metalhammer-1320859628343 height=323 width=482><PARAM NAME="movie" VALUE="http://www.muzu.tv/player/getPlayer/a/Niw7WamZz7/includeAll=n&partnerId=fp112-1&vidId=1197294"><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.muzu.tv/player/getPlayer/a/Niw7WamZz7/includeAll=n&partnerId=fp112-1&vidId=1197294" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" width="482" height="323" name="muzuplayer-metalhammer-1320859628343"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

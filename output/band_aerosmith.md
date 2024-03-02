@@ -234,6 +234,121 @@ Brad Whitford - Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.1999 news 
+
+<p>Новые новости об Оззи и Black Sabbath от Ярослава Прокоптчука:</p>
+<p>В Америке в продажу скоро должен поступить Aerosmith tribute-альбом под названием "Back In The Saddle". В записи принимали участие бывшие/нынешние участники сольных проектов Оззи Осборна. Rudy Sarzo записывал партию баса на "Back In The Saddle", Mike Inez & Randy Castillo играли в песне "Draw The Line", Tommy Aldridge барабанил в "Last Child".</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Aerosmith работают над новым альбом под названием "Does The Noise In My Head Bother You ?".</p>
+
+Автор: Vit Belov
+
+### 31.08.2000 news Новости от Aerosmith
+
+<p> Ребята из Aerosmith решили собственноручно спродюсировать свой следующий альбом, релиз которого, ориентировочно, состоится в марте 2001-го года.</p>
+
+Автор: Nybras
+
+### 08.01.2002 news Немецкие Media Control Чарты превращаются в попсу...
+
+<p>Одного взгляда на Германский Media Control (Top 100) chart за неделю по 7-е января достаточно, чтобы понять - миром правит попса... или по крайней мере рэп-кор: <BR><BR> 17. LIMP BIZKIT - New Old Songs <BR> 22. LINKIN PARK - Hybrid Theory<BR> 26. CREED - Weathered <BR> 31. KID ROCK - Cocky <BR> 41. NICKELBACK - Silver Side Up <BR> 42. LENNY KRAVITZ - Lenny <BR> 57. H.I.M. - Deep Shadows And Brilliant... <BR> 58. SUM 41 - All Killer No Filler <BR> 59. FARIN URLAUB - Endlich Urlaub <BR> 60. RAMMSTEIN - Mutter<BR> 84. STAIND - Break The Cycle <BR> 99. AEROSMITH - Young Lust <BR></p>
+
+Автор: Yermola
+
+### 08.01.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending January 7th (as reported by Rock Hard magazine): <BR><BR> 17. LIMP BIZKIT - New Old Songs <BR> 22. LINKIN PARK - Hybrid Theory<BR> 26. CREED - Weathered <BR> 31. KID ROCK - Cocky <BR> 41. NICKELBACK - Silver Side Up <BR> 42. LENNY KRAVITZ - Lenny <BR> 57. H.I.M. - Deep Shadows And Brilliant... <BR> 58. SUM 41 - All Killer No Filler <BR> 59. FARIN URLAUB - Endlich Urlaub <BR> 60. RAMMSTEIN - Mutter<BR> 84. STAIND - Break The Cycle <BR> 99. AEROSMITH - Young Lust <BR></p>
+
+Автор: Yermola
+
+### 15.04.2002 news AEROSMITH победители Boston Music Awards ...
+
+<p>Старые перцы "AEROSMITH" получили парочку статуэток на прошедшей церемонии "Boston Music Awards. Альбом "Just Push Play" стал лучшим альбомом года, а видео "Jaded" стало видео года....</p>
+
+Автор: Yermola
+
+### 23.05.2002 news Двойной &quot;Best Of&quot; от AEROSMITH.....
+
+<p>AEROSMITH объявили трек-лист для нового сборника "Best Of" который выйдет 25-го июня на Columbia Records. На него войдут следующие песни:<BR> <BR> Диск №1<BR> 01. Mama Kin<BR> 02. Dream On<BR> 03. Same Old Song and Dance<BR> 04. Seasons of Wither<BR> 05. Walk This Way<BR> 06. Big Ten Inch Record<BR> 07. Sweet Emotion<BR> 08. Last Child<BR> 09. Back in the Saddle<BR> 10. Draw the Line (remix)<BR> 11. Dude (Looks Like a Lady) <BR> 12. Angel<BR> 13. Rag Doll<BR> 14. Janie's Got a Gun<BR> 15. Love in an Elevator<BR> 16. What It Takes<BR><BR> Диск №2<BR> 01. The Other Side<BR> 02. Livin' on the Edge<BR> 03. Cryin'<BR> 04. Amazing<BR> 05. Deuces Are Wild<BR> 06. Crazy<BR> 07. Falling in Love (Is Hard on the Knees)<BR> 08. Pink (South Beach remix)<BR> 09. I Don't Want To Miss a Thing<BR> 10. Jaded<BR> 11. Just Push Play (radio remix)<BR> 12. Walk This Way<BR> 13. Girls of Summer (new)<BR> 14. Lay It Down (new)<BR></p>
+
+Автор: Yermola
+
+### 23.05.2002 news AEROSMITH Finalize &quot;Best Of&quot; Track Listing ....
+
+<p>AEROSMITH have finalized the track listing for their as-yet-untitled greatest hits collection, due out n June 25th through Columbia Records. It is as follows: <BR><BR> Disc One:<BR> 01. Mama Kin<BR> 02. Dream On<BR> 03. Same Old Song and Dance<BR> 04. Seasons of Wither<BR> 05. Walk This Way<BR> 06. Big Ten Inch Record<BR> 07. Sweet Emotion<BR> 08. Last Child<BR> 09. Back in the Saddle 10. Draw the Line (remix)<BR> 11. Dude (Looks Like a Lady) <BR> 12. Angel<BR> 13. Rag Doll<BR> 14. Janie's Got a Gun<BR> 15. Love in an Elevator<BR> 16. What It Takes<BR><BR> Disc Two:<BR> 01. The Other Side<BR> 02. Livin' on the Edge<BR> 03. Cryin'<BR> 04. Amazing<BR> 05. Deuces Are Wild<BR> 06. Crazy<BR> 07. Falling in Love (Is Hard on the Knees)<BR> 08. Pink (South Beach remix)<BR> 09. I Don't Want To Miss a Thing<BR> 10. Jaded<BR> 11. Just Push Play (radio remix)<BR> 12. Walk This Way<BR> 13. Girls of Summer (new)<BR> 14. Lay It Down (new)<BR><BR> In other news, AEROSMITH have confirmed a June 27th concert in Tokyo as part of the festivities surrounding this year's World Cup soccer tournament.</p>
+
+Автор: Yermola
+
+### 12.06.2002 news AEROSMITH получил платину...
+
+<p>Классический альбом "AEROSMITH" - Toys in the Attic (Columbia Records) получил восьмикратную платину Записывающей Ассоциации Америки (RIAA). Со времени выхода в 1975 году было отпечатано и продано более 8 000 000 копий. <BR><BR> Из других новостей, гитарист Joe Perry сейчас находится на домашнем лечении и восстанавливается после хирургической операции на его правом колене. Проходящее лечение никак не отразится на концертных планах команды, причем Perry также будет принимать участие в туре используя специальное поддерживающее устройство для ноги... В планах группы тур по Японии в июне и Северо-Американский тур в августе...</p>
+
+Автор: Yermola
+
+### 12.06.2002 news AEROSMITH Get Certified, Recover From Surgery ...
+
+<p>AEROSMITH's classic Columbia Records album Toys in the Attic has been certified eight times platinum by the Recording Industry Association of America (RIAA). Featuring the Boston-based band's immortal tracks "Sweet Emotion" and "Walk This Way", the set has shipped eight million copies to U.S. retailers since its April 1975 release. <BR><BR> In other news, AEROSMITH guitarist Joe Perry is reportedly recovering at home after undergoing arthroscopic knee surgery last month to repair a torn meniscus and trashed ACL in his right knee.<BR><BR> Despite Perry's condition, tour plans are apparently still going ahead for the group. To help his knee heal properly, for the first part of the tour, Perry will be wearing a three-quarter, carbon-fiber knee brace that may limit the amount of running and jumping that fans are accustomed to seeing from him. AEROSMITH's tour plans include a trip to Japan at the end of June and a North American Tour commencing on August 13th in Holmdel, New Jersey.</p>
+
+Автор: Yermola
+
+### 25.05.2008 news Солист AEROSMITH лег в наркологическую клинику
+
+<P>Солист группы <B>AEROSMITH</B>, <B>Steven Tyler</B>,&nbsp;лег на лечение в наркологическую клинику. 60-летний рокер обратился в клинику в Пасадене (Калифорния). О какой зависимости идет речь, пока неизвестно. В клинике Aurora работает крупный специалист-нарколог Дрю Пински, который уже занимался лечением многих знаменитостей.</P>
+<P>В начале мая <B>Steven Tyler</B> выступал в Голливуде с концертом по сбору средств в пользу музыкантов, страдающих разными формами зависимости. Он давно приводит в пример свой собственный опыт борьбы с наркотиками. </P>
+Автор: Ixtiandr
+
+### 13.03.2009 news AEROSMITH накопили новую музыку
+
+<P><STRONG>AEROSMITH</STRONG> готовы войти в студию с продюсером <STRONG>Brendan O'Brien </STRONG>в конце этого месяца. Гитарист<STRONG> Brad Whitford</STRONG> заявил, что поражён количеством накопленной <STRONG>AEROSMITH</STRONG> новой музыки.</P>
+Автор: Vit Belov
+
+### 08.11.2009 news Steven Tyler покинул AEROSMITH?
+
+<P>Гитарист <STRONG>AEROSMITH Joe Perry</STRONG> рассказал, что певец <STRONG>Steven Tyler</STRONG> ушёл из группы. "<EM>После концерта в Абу-Даби Steven сказал, что покидает группу"</EM>, - заявил музыкант в интервью <STRONG>Las Vegas Sun</STRONG>. При этом <STRONG>Joe</STRONG> не знает ушёл <STRONG>Steven</STRONG> навсегда или лишь на время. Господин<STRONG> Tyler</STRONG> не отвечает на телефонные звонки, которые гитарист делает ему, чтобы выяснить подробности их совместного будущего. <STRONG>Joe Perry</STRONG> также сказал, что сохранит <STRONG>AEROSMITH</STRONG>, будет в нём <STRONG>Tyler</STRONG> или нет.</P>
+<P>Проблемы в группе начались после того, как на одном из выступлений знаменитый певец свалился со сцены и его увезли прямиком в госпиталь. С тех пор группа постоянно отменяла концерты, а теперь и вовсе может прекратить существование в привычном виде.</P>
+Автор: Vit Belov
+
+### 10.11.2009 news Барабанщик не подтверждает ухода Tyler
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>AEROSMITH Joey Kramer</STRONG> дал интервью радиостанции<STRONG> WPLR</STRONG>, в котором не подтвердил, но и не опровергнул слухи об уходе из группы вокалиста <STRONG>Steven Tyler</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Все цитаты Joe Perry и Steven Tyler были выдернуты из контекста, и я не буду делать никаких заявлений на радио, но группа не распадалась. Мы вместе</EM>", - сказал музыкант. По его словам, группу можно сравнить с семьёй, в которой супругам иногда полезно посидеть подумать в разных комнатах.</FONT></P>
+<P>В любом случае, <STRONG>Joey Kramer</STRONG> не тот человек, который смог бы что-то решать в <STRONG>AEROSMITH</STRONG>, и нам остаётся только ждать, когда <STRONG>Joe</STRONG> и <STRONG>Steven</STRONG> разберутся между собой. Гитарист <STRONG>Joe Perry</STRONG>, тем временем, назначил множество сольных концертных дат в США.</P>
+Автор: Vit Belov
+
+### 10.11.2009 news Joe Perry выступил в Twitter
+
+<P>Гитарист <STRONG>AEROSMITH Joe Perry</STRONG> написал на своей страничке в <STRONG>Twitter</STRONG>, что <STRONG>Steven Tyler</STRONG> покинул группу. "<EM>Нас осталось четверо, и мы в отличной форме. Мы не можем бросить всё это после 40 лет, поэтому AEROSMITH продолжает существование и ищет нового певца. Нашим песням просто необходимо живое исполнение</EM>".</P>
+<P>Напомним<STRONG> Steven Tyler</STRONG> покинул группу, чтобы заняться "собственным брэндом".</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 11.11.2009 news Steven Tyler отказывается уходить
+
+<P>10 ноября может войти в историю <STRONG>AEROSMITH</STRONG>. Много интересного, связанного с этой группой,&nbsp;происходило вчера. На концерте сольной группы <STRONG>JOE PERRY BAND</STRONG>, состоявшемся вчера в Нью-Йорке, на сцену поднялся вокалист<STRONG> AEROSMITH Steven Tyler</STRONG> и исполнил вместе с музыкантами классику "<STRONG>Walk This Way</STRONG>". По свидетельствам очевидцев, он закончил своё выступление сообщением, что несмотря на слухи, он не покидал <STRONG>AEROSMITH</STRONG>.</P>
+<P>Следом певец отпраился на награждение "<STRONG>Глумурной женщины года</STRONG>", где пояснил причины происходящего корреспондентам журнала <STRONG>OK!</STRONG> "<EM>Вся эта шумиха раздута лэйблом, выпускающим сольный альбом Joe Perry, чтобы привлечь к нему внимание</EM>", - объяснил <STRONG>Steven</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.12.2009 news Tyler опять в &quot;рехабе&quot;
+
+<P>Вокалист <STRONG>AEROSMITH Steven Tyler</STRONG> в очередной раз отправился в реабилитационный центр. На этот раз его беспокоят проблемы зависимости от болеутолящих, которые он принимает последние 10 лет, чтобы избавиться от боли, связанной с "увечьями" от концертной деятельности.</P>
+<P>В сопроводительном заявлении <STRONG>Steven</STRONG> сообщил, что ждёт с нетерпением возврата к концертной деятельности с <STRONG>AEROSMITH</STRONG>, от которых он вроде бы ушёл несколько месяцев назад.</P>
+Автор: Vit Belov
+
+### 09.07.2011 news AEROSMITH попозировали с Кубком Стэнли
+
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2011.07/20015.jpg" width=320 align=right border=0>Во второй раз в своей истории величайший трофей в истории хоккея <STRONG>Кубок Стэнли</STRONG>&nbsp;побывал в студии&nbsp;<STRONG>Pandora's Box, </STRONG>где записывают свои альбомы <STRONG>AEROSMITH</STRONG> вместе с продюсером <STRONG>Jack Douglas. </STRONG>В первый раз кубок привёз уроженец Бостона хоккеист <STRONG>Jay Pandolfo, </STRONG>выигравший его вместе с командой Нью-Джерси Дэвилс.</P>
+<P>Теперь повод более приятный для работников студии из штата Массачусетс.</P>
+<P><STRONG>AEROSMITH </STRONG>в эти дни записывают свой новый альбом.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Золотая кладовая мирового рока!

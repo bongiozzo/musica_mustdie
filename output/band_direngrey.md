@@ -40,6 +40,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.07.2011 news Новый клип DIR EN GREY
+
+<P>Видео-ролик японцев <STRONG>DIR EN GREY</STRONG> на их песню <STRONG>"Different Sense" </STRONG>можно посмотреть ниже. Восьмой студийный альбом группы <STRONG>"Dum Spiro Spero" </STRONG>выйдет в начале августа на<STRONG> End Records</STRONG>. Трек-лист:</P>
+<P>01. <B>Kyoukotsu No Nari</B><BR>02. <B>The Blossoming Beelzebub</B><BR>03. <B>Different Sense</B><BR>04. <B>Amon</B><BR>05. <B>"Yokusou Ni Dreambox" Aruiwa Seijuku No Rinen To Tsumetai Ame</B><BR>06. <B>Juuyoku</B><BR>07. <B>Shitataru Mourou</B><BR>08. <B>Lotus</B><BR>09. <B>Diabolos</B><BR>10. <B>Akatsuki</B><BR>11. <B>Decayed Crow</B><BR>12. <B>Hageshisa To, Kono Mune No Naka De Karamitsuita Shakunetsu No Yami</B><BR>13. <B>Vanitas</B><BR>14. <B>Ruten No Tou</B><BR>Deluxe edition bonus tracks:<BR>15. <B>Rasetsukoku</B><BR>16. <B>Amon</B> (symphonic version)</P>
+<P>
+<CENTER>
+<OBJECT id=IvaPlayer height=301 width=480 name=IvaPlayer><PARAM NAME="movie" VALUE="http://www.videodetective.net/flash/players/?customerid=120000&playerid=302&publishedid=310290&playlistid=0&pversion=4.6&videokbrate=750&sub="><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed  id="IvaPlayer" name="IvaPlayer" src="http://www.videodetective.net/flash/players/?customerid=120000&playerid=302&publishedid=310290&playlistid=0&pversion=4.6&videokbrate=750&sub=" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" AllowNetworking="all" width="480px" height="301px" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

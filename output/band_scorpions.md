@@ -365,6 +365,1042 @@ Swedish producers Mikael "Nord" Andersson and Martin Hansen.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Motley Crue и Scorpions в июле-августе проедутся по США и Канаде.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Новый альбом Scorpions "Eye II Eye" стал платиновым в Малайзии, где группа собирается записать видео для нового сингла "A Moment In A Million Years".</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Helloween объявили приблизительный трэклист своего альбома каверов "Metal Jukebox". Присутствуют: ABBA, The Beatles, а также Дэвид Боуи, Deep Purple, Jethro Tull, Faith No More, Scorpions и другие. В Штатах будут переизданы альбомы Helloween "Master Of The Ring" и "Time Of The Oath". Также в Японии будет переиздан альбом "Pink Bubbles Go Ape" с бонус-трэком "Shit And Lobster". Вейки начал написание нового материала как для сольника, так и для нового альбома Helloween, позже к нему присоединятся другие участники коллектива. А тем временем бывший вокалист этой группы Михаэль Киске, а теперь сольный музыкант, потерял свой контракт в Японии.</p>
+
+Автор: Vit Belov
+
+### 21.08.1999 reviews 
+
+<p>Очередной альбом классиков жанра из Германии, который показал, что команда не собирается сдаваться и складывать оружие. Несмотря на свой "пляжный" вид Scorpions продолжают поиск в музыкальном плане. Так на этом альбоме очень много используются индустриальные фишки, и музыка звучит очень ново и современно, но всё равно ощущается, что это старые добрые "скарпы". Наряду с уже раскрученным синглом "To Be Number One" на альбоме присутствует довольно много хороших песен. Единственным минусом является отсутствие столь любимых народом хитовых баллад. То есть баллады-то есть, но они вряд ли дотягивют до "Still Loving You" и "Holiday". В заключение могу порекомендовать хотя бы послушать всем, кто любит -ил Scorpions, чтобы не пропустить то поворот в их творчестве, который понравится именно Вам. Я думаю, что эта группа ещё будет развиваться. 8 из 10</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Scorpions, Judas Priest и Nazareth собираются записать симфонический концерт в Вене, а затем выпустить Unplugged.</p>
+
+Автор: Vit Belov
+
+### 05.09.2000 news Новый альбом Scorpions
+
+<p> На днях появился в продаже новый альбом группы Scorpions. "Moment of Glory" был записан вместе с Берлинским Филармоническим оркестром, одним из самых известных оркестров в мире.</p>
+
+Автор: Nybras
+
+### 06.09.2000 news Scorpions comments the new live album with orchestra
+
+<p> Scorpions comments the new live album with orchestra, "Moment of Glory": The latest release from the Scorpions takes the band in an entirely new direction. Moment Of Glory, which came out August 29 in the U.S., unites one of hard rock's best-loved bands with the Berlin Philharmonic, known as one of the greatest orchestras in the world. Moment Of Glory features Scorpions standards like "Big City Nights," "Wind Of Change," and "Rock You Like A Hurricane," which has been retitled "Hurricane 2000."</p>
+
+Автор: Nybras
+
+### 14.09.2000 news Новый альбом Six Feet Under
+
+<p> Новый альбом Six Feet Under будет называться "Graveyard Classics", и это будет сборник кавер-версий песен таких групп, как: Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix и Venom.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news New album of Six Feet Under
+
+<p> The new album of Six Feet Under will be titled "Graveyard Classics" and it will be a covers album with the band paying tribute to the bands that influenced them. The album will feature songs from Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix and Venom.</p>
+
+Автор: Nybras
+
+### 13.03.2001 news Война и Мир...
+
+<P>Сольный проект басиста DOKKEN - Jeff Pilson "WAR & PEACE" в конце Апреля выпускает новый альбом символично названный "Light At The End Of The Tunnel". Материал состоит из песен неиспользованных для Dokken и других ранее незавершенных треков. В записи помогали барабанщик SCORPIONS - James Kottak. На двух треках играл Reb Beach, на одном - John Norum и Paul Gilbert. Также отметились Richie Kotzen, Jon Levin (WARLOCK). Сам Pilson исполнил соло в 'Playing God Again'.</P>
+Автор: Yermola
+
+### 13.03.2001 news WAR &amp; PEACE - Tunnel Vision!
+
+<p>DOKKEN bassist Jeff Pilson, who fronted his own band, WAR & PEACE, in the late '80s, is revisiting that band again with a new album, Light At The End Of The Tunnel, due out in late April/May. The material consists of some songs intended for but not used by Dokken, songs Pilson had never finished, and others he did that appeared elsewhere. Pilson, who sings and plays all the basic tracks on it, gets assistance from SCORPIONS drummer James Kottak on all but two of the ten songs, and from a lineup of solo-contributing guitarists. Reb Beach plays on two tracks, John Norum plays on one as does Paul Gilbert, who recorded his performance in Japan and air expressed it to Pilson. Gilbert's MR. BIG replacement Richie Kotzen plays on two cuts, and Jon Levin, the WARLOCK guitarist-turned-lawyer who actually did one fill-in date with Dokken, is also heard on one track. Pilson himself contributes the solo to 'Playing God Again'. "Best solo I've ever done," he says proudly.</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Аккустика SCORPIONS ....
+
+<p>Нестареющие хард-попсеры "SCORPIONS" разродились новым антиэлектрическим альбомом "Acoustica". Дата выхода - 14 мая. Кроме известных и набивших оскомину слезливых боевиков ("Wind Of Change", "Still Loving You", "You And I" и "Holiday") будут представлены шесть новых песен.</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Acoustica SCORPIONS.....
+
+<p>The forthcoming SCORPIONS unplugged live album, Acoustica, is scheduled for release on May 14th, and it will reportedly feature six brand new songs (among them the current single "When Love Kills Love") as well as classic hits like "Wind Of Change", "Still Loving You", "You And I" and "Holiday". Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 26.04.2001 news SAXON&#39;s upcoming studio album Killing Ground...........
+
+<p>SAXON's upcoming studio album, Killing Ground, will be released in September through Steamhammer/SPV Records. Among the tracks set to appear on the CD are: "Dragon's Lair", "Deeds Of Glory" and "Call Of The Crimson King". Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 25.01.2002 news DEEP PURPLE, THE SCORPIONS and DIO To Team Up For US Tour ...
+
+<p>DEEP PURPLE's official web site has confirmed that the PURPLE men will be embarking on an eight-week US co-headlining tour with THE SCORPIONS in June that will include DIO in the opening slot. Exact dates and venues will be announced in the weeks to come.</p>
+
+Автор: Yermola
+
+### 19.03.2002 news Планы SCORPIONS на ближайшее будущее....
+
+<P> Наверняка многие уже в курсе, что группа посетит Россию с концертами. Планируется один концерт в Ледовом Дворце Санкт-Петербурга 20 апреля и два концерта в ГКД в Москве 22 и 23 апреля. С концертом в Санкт-Петербурге уже более-менее всё ясно &ndash; во всяком случае появился анонс концерта. С концертами же в Москве полная неразбериха. Во-первых, до сих пор концерт не анонсирован в СМИ, хотя официальный сайт упорно утверждает, что концерты будут, во-вторых, в кассах дают противоречивую информацию о концертах. Мы постараемся Вас держать в курсе дела, если произойдут какие-либо изменения относительно концертов в России. </P></>
+<P>Теперь, собственно, о новостях творческого плана. 3 марта группа вновь воссоединилась со своим "долгоигравшим" в прошлом продюсером группы Дитером Дирксом в надежде выпустить с его помощью нормальный рок-альбом. Группа планирует засесть в студии после летнего американского тура с "Deep Purple". Выход нового альбома теперь откладывается на 2003 год. В то же время работа над полной антологией группы "30 Years Box" отошла на второй план, уступив место концертной деятельности, т.е. группа по возможности будет заниматься собранием своих сочинений в короткие передышки между концертами. Также нам стала известна одна новость, которая наверняка шокирует каждого старого рокера: в 2004 году SCORPIONS представят в Берлине... мюзикл "Wind Of Change". Специально для этого будут написаны новые песни, также мюзикл будет включать в себя композиции в стиле рэп (!) и хардкор (!!). Как говорится, no comments... Чувствую, что с 2004 года придется забыть что когда-то была такая РОК-группа SCORPIONS. Печально :( </P></>
+<P>Ресурс:<a href="http://www.scorpions.ru/news/news.pl" target="blank">Русский сервер о Scorpoins</a>. </P></>
+
+Автор: Yermola
+
+### 21.06.2002 news Скорпионы отправятся в тур по СНГ....
+
+<p>Стареющие хард-попс-рокеры "SCORPIONS" осенью отправятся в тур по СНГ. Даты концертов: <BR><BR> Oct. 02 – Екатеринбург<BR> Oct. 04 - Иркутск<BR> Oct. 06 - Владивосток<BR> Oct. 08 - Красноярск<BR> Oct. 10 - Новосибирск<BR> Oct. 11 - Томск<BR> Oct. 13 - Омск<BR> Oct. 15 - Уфа<BR> Oct. 17 - Пермь<BR> Oct. 19 - Набережные Челны<BR> Oct. 21 - Нижний Новгород<BR> Oct. 23 - Самара<BR> Oct. 25 - Волгоград<BR> Oct. 27 - Ростов-На-Дону<BR> Oct. 29 – Харьков<BR> Oct. 30 - Днепропетровск<BR> Nov. 01 - Одесса<BR> Nov. 03 - Львов<BR> Nov. 05 – Минск<BR> Nov. 07 – Вильнюс<BR> Nov. 08 – Рига</p>
+
+Автор: Yermola
+
+### 06.03.2004 news Новый альбом SCORPIONS выйдет в апреле
+
+<P><B>SCORPIONS</B> выпустят новый альбом "<B>Unbreakable" </B>в апреле. В это же время группа работает над DVD. Трэк-лист нового альбома:</P>
+<P>01. <B>New Generation</B><BR>02. <B>Love 'em Or Leave 'em</B><BR>03. <B>Deep And Dark</B><BR>04. <B>Borderline</B><BR>05. <B>Blood Too Hot</B><BR>06. <B>Maybe I Maybe You</B> <BR>07. <B>Someday Is Now</B> <BR>08. <B>My City My Town</B><BR>09. <B>Through My Eyes</B><BR>10. <B>Can You Feel It</B><BR>11. <B>This Time</B><BR>12. <B>She Said</B><BR>13. <B>Remember The Good Times</B> </P>
+Автор: Vit Belov
+
+### 04.04.2004 news SCORPIONS выступят в Одессе и Киеве
+
+<P><B>SCORPIONS</B> объявили даты Европейского тура в поддержку грядущего альбома '<B>Unbreakable</B>". Пока подтверждены только две даты на территории бывшего СССР. 28 апреля немцы выступят в Одессе, а 30 апреля в Киеве.</P>
+Автор: Vit Belov
+
+### 26.05.2004 articles Хроника: AMORPHIS в Москве – Презентация FORGIVE-ME-NOT – Thrash-революция – SCORPIONS ищут свои корни – THERION приедут в Москву?
+
+<P><B><I>AMORPHIS в </I><I>Москве</I><I> – Презентация</I><I> FORGIVE-ME-NOT – Thrash-революция</I><I> – SCORPIONS ищут свои корни – </I><I>THERION приедут в Москву?</I></B></P>
+<P>На прошлой неделе Москву во второй раз посетили <B>AMORPHIS</B>. На этот раз группа выступала в <B>СДК «МАИ»,</B> совместно с которым приезд звёзд вновь организовали <B>Felee Management</B>. <B>AMORPHIS </B>соответствовали своему статусу, их выступление было очень профессионально. Группа отыграла 17 песен, среди которых можно было найти даже одну вещь с первого альбома ‘<B>Karelian Isthmus’</B> и некоторое количество композиций со второй и третьей пластинок. Именно эти альбомы сделали <B>AMORPHIS </B>столь популярными в среде металлистов. Не буду повторяться и рассказывать о Калевале в death-doom обработке и многом другом, что Вы можете прочитать в любой статье, посвящённой группе. Нынешняя музыка <B>AMORPHIS </B>вызывает стандартное количество нареканий со стороны любителей группы середины 90-х, мы же назовём новый материал просто не концертным, не вдаваясь в полемику. Простой пример: две подряд баллады, одна с новых альбомов, другая с ‘<B>Elegy</B>’ – в старой песне нашлось место и смене ритма, и чередованию мелодий и вокалов, в новой же это невозможно. Что Вы от меня ещё ждёте? Каких-то эксклюзивных подробностей? Откуда? С пресс-конференции? PR-manager <B>СДК МАИ Дарья Серебренник</B> коротко и ясно попросила всех журналистов, задавать вопросы побыстрее и по-английски (кстати, это не единственный прокол организаторов, публика так и не дождалась обещанной автограф-сессии). Безусловно, все пишущие о такой продвинутой музыке просто обязаны знать этот язык ((с) <B>Lemmy</B>), но мне думается, что вопросов было бы больше, и они были бы интереснее, разорись организаторы на переводчика. А так, всё общение велось от лица 2-3-х продвинутых граждан, которые задали по множеству вопросов и просто-таки спасли честь пишущей братии. Были ещё две девушки с какого-то российского сайта, посвящённого финской рок-музыке, о котором до этого дня никто не слышал. Они тоже задавали оригинальные вопросы, например, серьёзно ли увлечена группа Калевалой, висит ли у них в спальне портрет Маннергейма, и какой их любимый клуб в Хельсинки? Единственным вопросом-ответом, который давал пищу для размышления, стал, как ни странно, стандартный интерес одного товарища с сайта <B>darkside.ru </B>к благосостоянию музыкантов. Они обмолвились, что могут существовать безбедно, только давая большое количество концертов. Почерпнув ещё и информацию о финском концерте <B>AMORPHIS </B>у моего коллеги Морсуса, где группа играла множество старых вещей, которые, по их утверждению, им уже неинтересны, я уверено могу назвать <B>AMORPHIS </B>кавер-группой самих себя. И даже исполнение каверов на свои старые песни у них не получается безупречно. В частности, слушателям пришлось в этот раз домысливать, что на <B>‘Karelian Isthmus’</B> коллектив играл death-metal, где не использовалась квакающая ритм-гитара, и что на легендарном альбоме ‘<B>Talesfrom The Thousand Lakes</B>’ клавиши создавали особую «морозную» атмосферу, а вокал был задвинут далеко назад. В общем, 21 мая зрители могли послушать старые вещи <B>AMORPHIS</B> в новом исполнении от группы, которая таким образом зарабатывает деньги, что тоже неплохо, так как этих денег она достойна. (Фото Morsus <A href="/ru/galleries/1/114">http://musica.mustdie.ru/ru/galleries/1/114</A>)</P>
+<P>Ещё одним знаковым событием этой недели стала «всенародная» презентация нового альбома в ТЦ «<B>Горбушкин Двор</B>» тульской gothic-rock команды <B>FORGIVE-ME-NOT</B>, на которой присутствовало 50 человек, включая самих музыкантов, организаторов концерта, и не считая публики, которая жадно поглощала шашлык и пила пиво за столикамив это время. В свете такой великолепной организации сего сейшена хочется обратить внимание благодарного читателя на топик, который находится по этой ссылке http://musica.mustdie.ru/ru/topic/119637/ . Для тех, кто не в курсе, в этом топике некий promoter-инкогнито, несомненно, относящийся к лэйблу <B>Soyuz</B>, пропагандирует полезность концертов для промоушена группы. Кто же с ним спорит? Вот только, почему на бесплатный концерт не самого бесталанного и неизвестного коллектива, выпускающегося на <B>Soyuz</B>, собралось такое скромное количество народу? Двух мнений по этому вопросу быть не может. Promoter-инкогнито истратил все свои силы на спор с неким shulze, который по непроверенной информации тоже имеет отношение к <B>Soyuz</B>. В этой ситуации больше всего жаль саму группу, которая вынуждена была терпеть на себе недовольные взгляды питающихся граждан, не получая за это никакой прибыли, в виде отлично продающегося нового диска ‘<B>Heavenside</B>’. Кстати, в творчестве группе наметился некий регресс, <B>FORGIVE-ME-NOT </B>топчутся на месте, не продвигаясь вперёд (не будем считать подобным продвижением картонный слим-бокс на новом альбоме), наверное, тулякам стоит рискнуть и уйти с нынешнего лэйбла. Но об этом подробнее в рецензии.</P>
+<P>В этом году наметилось большое количество thrash-metalрелизов, как и в мире в целом, так и у нас в России. Великолепные альбомы <B>EXODUS </B>и <B>DEATH ANGEL </B>пробуждают от спячки и наших «мастеров жанра». Про <B>MANIC DEPRESSION</B>писать не будем, потому что их альбом вряд ли связан с бумом. Они так долго его вынашивали, что могло пройти несколько бумов за это время. На прошедшей неделе мне довелось послушать новый альбом московской группы <B>ЗАТМЕНИЕ</B>, а <B>Soyuz </B>объявил о скором выпуске альбомов <B>АРБИТРАТОР</B> и <B>ДИВЕРСИЯ</B>. К двум последним мы вернёмся после выхода пластинок, а вот о <B>ЗАТМЕНИЕ</B> хочется поговорить уже сейчас. Сопровождался этот релиз довольно агрессивными заявлениями, типа «…<I>просто саунд и музыка такие же качественные как у Металлики!!! Епс.....попробуйте так же качественно записать</I>....», - сообщает некая FRIDA13, близкая к группе (<A href="/ru/topic/119622/"><U>http://musica.mustdie.ru/ru/topic/119622/</U></A>). Несмотря на то, что само по себе это утверждение не слишком конкретно, попробуем его прокомментировать. Группа <B>ЗАТМЕНИЕ</B> действительно записалась очень неплохо, но что можно сказать о материале? Если бы подобные песни <B>METALLICA </B>выдавали бы, хотя бы одну на альбом, им бы не пришлось сейчас воевать с <B>Napster</B>. Этот <B>Napster </B>просто бы пожалел место под подобные шедевры. Кроме беспримерной однообразности, группа <B>ЗАТМЕНИЕ</B> удивляет слушателя и текстами на русском языке. «И это в стране Пушкина (-ой) и Есенина!!!», - восклицаем мы. Подобный thrash не пройдёт. Надеюсь <B>АРБИТРАТОР</B> и <B>ДИВЕРСИЯ</B>, столь же бойко анонсируемые сейчас, также не расстроят нас потом.</P>
+<P>Пусть не столь быстро, как хотелось бы, но неотвратимо, меня посетили мысли, связанные с новым альбом <B>SCORPIONS ‘Unbreakable’</B>. Самым лучшим вариантом для всех без исключения легенд было бы распасться совсем, либо остаться только концертирующим составом, но если так нельзя, то… То путь <B>SCORPIONS</B>, выбранный ими на этом альбоме самый лучший. Узнаваемые песни с плотным современным звуком, вот то, что нужно всем фэнам коллектива. Пускай, этот альбом даже близко не дотягивает до альбомов коллектива 70-х – 80-х и порой звучит, как пародия на <B>SCORPIONS</B>, но (см. в начало абзаца) нельзя распасться, так нельзя. Особого упоминания заслуживает «великолепное» лицензионное издание от <B>BMG Russia</B>. На бумагу для текстов фирма не разорилась, зато реклама звонков для сотовых телефонов уместилась, хорошо хоть состав группы и список песен указали, поучились бы у пиратов:)</P>
+<P>Ну, и напоследок приятная новость. На прошлой неделе <B>Nuclear Blast </B>распространила сообщение о том, что вслед за своими коллегами по лэйблу <B>HYPOCRISY </B>и <B>GRAVE DIGGER</B>, Москву посетят <B>THERION</B>, любимейшая группа для многих и многих любителей МУЗЫКИ. Подробности самого концерта пока неизвестны, но из проверенных источников получена информация, что концерт состоится не 18 октября, как сообщили немцы, а в субботу 9 октября. Также просочилась информация, что примерно в те же сроки Москва увидит <B>LAKE OF TEARS, ATROCITY, LEAVES’ EYES (Live Kristine (ex-THEATRE OF TRAGEDY)) </B>и, вновь, <B>Kari Rueslatten</B>.</P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 15.09.2004 articles Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста
+
+<P><EM>Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста</EM></P>
+<P>DIMMU BORGIR только что закончили тур по Америке в рамках Ozzfest. Это большой прорыв для норвежской black-metal команды. Вот отрывки из интервью, которое дал Shagrath журналу Metal-Exiles.com:<BR>Q: Почему группу покинул Nick Barker? <BR>Огромное количество времени у нас были проблемы на личном уровне. Нам было необходимо разойтись, чтобы не произошло чего-нибудь более плохого. Он очень отличался от остальных членов группы, но это нисколько не умаляет его профессионализма. Я очень уважаю его и желаю ему всего наилучшего, но он больше не DIMMU.<BR>Q: Он сам ушёл или его уволили?<BR>Он был уволен.<BR>Q: Что дальше после Ozzfest?<BR>Мы собираемся отправиться домой, где отдохнём несколько месяцев. Побудем с семьями, и быть может, начнём сочинять новый материал. Некоторое время ничего происходить не будет, мы не будем давать концертов в течение двух лет. Мы просто выжжены сейчас, нам нужен перерыв.<BR>Q: Вы были в туре около года?<BR>Да, и это время для нового альбома и более расслабленного времяпрепровождения.</P>
+<P>Classic Rock Revisited недавно взяли интервью у фронтмэна UFO Phil Mogg, который рассказал о будущем группы и своих размолвках с бывшим товарищем Michael Schenker:<BR>Q: Michael Schenker недавно рассказал нашему журналу о разладе в UFO. “Phil всегда был драчуном. Он всё время устраивал стычки, и я сказал ему, что если он меня хоть пальцем тронет, я уйду из группы. Он ударил, и я ушёл”. Что Вы можете на это ответить?<BR>Я слышал нечто такое, и это уже не новость для меня. Он покидал группу пол дюжины раз, он уходил из SCORPIONS дважды, и даже умудрился покинуть свою собственную группу. Поэтому причины этого неважны, всегда кто-то был виноват. В основном все наши проблемы возникали, из-за финансовых вопросов. Мы вкладывали все деньги в группу, а он был этим недоволен.<BR>Q: Писал ли он письмо в Kerrang! В начале 80-х, где протестовал против возрождения группы?<BR>Честно говоря, я не знаю ничего про это, но столько сумасшедших историй связано с ним, что нам не хватит и дня, чтобы всё обсудить. Это продолжалось всегда. Мне очень нравится, как Michael играет, и я принимаю 80% его натуры.<BR>Q: Вы делали хорошую музыку вместе. Вы сожалели когда-нибудь, что не смогли сохранить деловые отношения?<BR>Самым большим разочарованием стало наше воссоединение в 1995 году. У меня были такие ожидания! У нас был менеджмент, а я хотел только петь, играть и сочинять музыку. Мы поехали в тур, и он умудрился покинуть группу три раза. Первый раз в Modesto, Калифорния, второй раз в Токио, где он ушёл в середине шоу, а аудитория просто осталась стоять в тишине, а третий раз -&nbsp; в Манчестере. Мы собирались творить вместе, а он просто нас кинул. </P>
+<P>Американский сайт InsidePulse.com определил список&nbsp; десяти лучших вокалисток в современном металле:<BR>01. Cristina Scabbia (LACUNA COIL)<BR>02. Angela Gossow (ARCH ENEMY)<BR>03. Anneke van Giersbergen (THE GATHERING )<BR>04. Tanja Lainio (LULLACRY)<BR>05. Anita Auglend (SINS OF THY BELOVED)<BR>06. Candace Kucsulain (WALLS OF JERICHO)<BR>07. Otep Shamaya (OTEP)<BR>08. Morgan Lander (KITTIE)<BR>09. Jonna Enckell (THE PROJECT HATE)<BR>10. Amy Lee (EVANESCENCE)<BR>Любопытно, что Amy Lee только на десятом месте, а возглавляет список Европейская девушка. Кроме этого, в списке нет, сами знаете кого.</P>
+<P>Малазийские исламские фундаменталисты выступили в правительстве страны против концерта SCORPIONS, которые, по их мнению, развращают молодёжь. «Подобные концерты – катализаторы гедонизма и зла в обществе», - заявил Salahuddin Haji Ayub, молодёжный лидер Пан-Малазийской исламской партии. «Исследования показали, что падает собственное достоинство и самооценка от подобных вызывающих программ», - говорится в заявлении. Сообщается также, что эти активисты протестовали по поводу концертов Michael Jackson, Mariah Carey и LINKIN PARK, но не один концерт так и не был запрещён.</P>
+<P>Doro Pesch дала интервью греческому журналу Metal-Temple.com, в котором рассказала о первом альбоме для AFM ‘Classic Diamonds’, на котором она перепевает классику из творчества DORO, а также исполняет некоторые новые песни. В записи альбома Doro помогали Blaze Bayley (BLAZE, ex-IRON MAIDEN), Kai Hansen (GAMMA RAY, ex-HELLOWEEN) и Udo Dirkschneider (U.D.O., ex-ACCEPT).<BR>«Мне предложили поработать с Metal Classic Night Orchestra, на предмет переработки нескольких моих старых хитов. У меня уже был подобный опыт с Dusseldorf Symphony Orchestra, и это было очень интересно. Мы дали концерт, на котором исполнили многие вещи из классики heavy-metal. Например, с Blaze Bayley мы исполняли ‘Fear Of The dark’, и это получилось так хорошо, что мы решили это записать. В январе мы уже записали много песен: 'All We Are', 'Fur Immer' and 'Breaking the Law' JUDAS PRIEST. На вопрос, с кем бы Doro хотела ещё поработать, она ответила: «Да. Я хотела бы поработать с Tarja из NIGHTWISH. В ближайшее время мы начинаем работу над новой пластинкой, и было бы здорово спеть дуэтом с другой певицей. Я уже джэмовала с Sabina Classen (HOLY MOSES) на Wacken, где мы исполнили 'Too Drunk To Fuck', что всех впечатлило.</P>
+<P>Буквально на днях стало известно, что из EXODUS уволен вокалист Steve "Zetro" Souza. Вот, что сказал Gary Holt на официальном форуме группы: «Он (Souza) отказался лететь в Мексику всего лишь за 24 часа до концерта. Сказал, что не полетит с нами в Мексику, а присоединится к группе уже в туре по Южной Америке. Он наврал нашему менеджеру, что сказал мне об этом раньше – это откровенная ложь. После этого Steve пропал и не отвечал на телефонные звонки, а промоутер в Мексике уже заплатил 8 тысяч долларов!!! Организатор разорился бы, но его это не волновало, этот кусок дерьма думает только о себе и о своих деньгах. Слышали бы Вы, что он говорил последние два года. «Почему басист Jack Gibson получает столько же, сколько я? Кто он такой? Давайте наймём телохранителей в Южной Америке. Если фэны хотят услышать больше 12 песен, они должны заплатить больше. Почему Gary находится спереди на наших промо-фотографиях, там должен быть я. Видели бы Вы, как этот motherfucker сидел за кулисами на одном фесте в Финляндии и орал, как котёнок. Теперь он может оставить свою толстую задницу дома!!! EXODUS продолжают существовать, это моя группа!!!»&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 11.04.2005 news Планы SCORPIONS
+
+<P><STRONG>SCORPIONS</STRONG> собираются выпустить DVD в ближайшее время. На него войдёт шоу в Вене и документальные съёмки. Кроме этого, группа планирует выпустить новый альбом до конца года.</P>
+Автор: Vit Belov
+
+### 30.05.2005 news SCORPIONS выступят в Казани
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальный сайт <STRONG>SCORPIONS</STRONG> сообщает, что 1 июля у группы запланирован концерт в Казани с "классической" программой. Видимо, это означает выступление с симфоническим оркестром.</FONT></P>
+Автор: Vit Belov
+
+### 08.06.2005 news Подробности о DVD SCORPIONS
+
+<P>Мы уже сообщали, что 27 июня выходит DVD от <STRONG>SCORPIONS "One Night In Vienna</STRONG>". Стал известен трэк-лист концерта, записанного в Вене:</P>
+<P><IMG height=287 alt="" hspace=0 src="/images/news_rus/2005.06/8753.jpg" width=208 align=right border=5>1. <STRONG>New Generation</STRONG> 05:01<BR>2. <STRONG>Love 'em Or Leave 'em</STRONG> 04:32 <BR>3. <STRONG>Bad Boys Running Wild</STRONG> 03:56 <BR>4. <STRONG>The Zoo</STRONG> 06:21 <BR>5. <STRONG>Deep And Dark</STRONG> 03:59 <BR>6. <STRONG>Coast To Coast</STRONG> 04:33 <BR>7. <STRONG>Holiday</STRONG> 04:25 <BR>8. <STRONG>Through My Eyes</STRONG> 05:02 <BR>9. <STRONG>Blackout</STRONG> 03:56 <BR>10. <STRONG>Blood Too Hot</STRONG> 04:11 <BR>11. <STRONG>Big City Nights</STRONG> 05:25 <BR>12. <STRONG>Still Loving You</STRONG> 06:14 <BR>13. <STRONG>Wind Of Change</STRONG> 05:21 <BR>14. <STRONG>Rock You Like A Hurricane</STRONG> 07:21 <BR>15. <STRONG>A German Rock Legend</STRONG> 08:05 <BR>16. <STRONG>Remember The Good Times</STRONG> 03:17</P>
+Автор: Vit Belov
+
+### 20.06.2005 news Концерт SCORPIONS в Казани перенесён
+
+<P>Ранее анонсированный концерт <STRONG>SCORPIONS</STRONG> в Казани перенесён на конец августа.</P>
+Автор: Vit Belov
+
+### 05.10.2006 news SCORPIONS начинают запись
+
+<P>9 октября немецкие ветераны<STRONG> SCORPIONS</STRONG> прибудут в Лос-Анжелес, где с продюсером <STRONG>Desmond Child</STRONG> (<STRONG>AEROSMITH, BON JOVE, CHER, RICKY MARTIN</STRONG>) начнут запись нового альбома.</P>
+Автор: Vit Belov
+
+### 13.02.2007 news Новый альбом SCORPIONS
+
+<IMG height=227 alt="" hspace=0 src="/images/news_rus/2007.02/11300.jpg" width=228 align=right border=5>14 мая на <STRONG>BMG </STRONG>выйдет новый альбом <STRONG>SCORPIONS</STRONG> "<STRONG>Humanity - Hour 1</STRONG>".
+Автор: Vit Belov
+
+### 06.06.2007 news SCORPIONS выступят в Питере
+
+<P>В ближайшие выходные на экономическом форуме в Санкт-Петербурге выступят<STRONG> SCORPIONS</STRONG> и <STRONG>BEE GEES</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.07.2007 reviews SCORPIONS живы, а это уже много
+
+<P>Легендарные немцы SCORPIONS заслуживают всяческого уважения. Группу хоронили уже не однажды, а музыканты продолжают своё существование и даже умудряются находиться в поиске, прибавляя к своей музыке небольшие штрихи, которые отличают один альбом от другого. Не беда, что на “Humanity Hour 1” этими штрихами стали современное оформление и более брутальный саунд на нескольких вещах.</P>
+<P>Понятно, что изменяться до неузнаваемости SCORPIONS не могут. Ещё десять лет назад группа могла записывать подобные экспериментальные альбомы, но сейчас нет. Пенсия на горизонте и ради собственной прихоти терять поклонников слишком расточительно. Но приступим к штрихам… Голая девушка в буклете! При этом не какая-то голая, как с картины, а голая и уродливая с невзрачной грудью и страшным лицом. Это уже концепция! И второе – индустриальный саунд… Оговоримся, что он появляется местами, напоминая нам, что SCORPIONS не чужды современные веяния. В остальном, мы имеем набор стандартных для группы боевиков, приправленный парочкой баллад.</P>
+<P>Безусловно, даже в последние годы группа выпускала более сильные альбомы. Например, прошлый, который пусть и не достигал вершины творчества, но давал почувствовать уже забытый дух классики группы 70-80-х. Этот альбом слишком мрачный для этого. Скажу больше, этот альбом слишком «мутный» для этого. Понимайте, как знаете.</P>
+Автор: Vit Belov
+
+### 22.10.2007 news SCORPIONS выпускают DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В ноябре выходит новые DVD <STRONG>SCORPIONS</STRONG> <STRONG>"Live At Wacken Open Air 2006: A Night To Remember - A Journey Through Time".</STRONG> Как следует из названия, "кино" было отснято на прошлогоднем фесте <STRONG>Wacken Open Air</STRONG>. Именно на этом выступлении с группой отыграли бывшие участники <STRONG>Uli Jon Roth</STRONG>, <B>Michael Schenker</B>&nbsp;и <B>Herman Rarebell</B>. Трэк-лист:</FONT></P>
+<P>01. <B>Coming Home</B> <BR>02. <B>Bad Boys Running Wild</B> <BR>03. <B>The Zoo</B> <BR>04. <B>Loving You Sunday Morning</B> <BR>05. <B>Make It Real</B> <BR>06. <B>Picture Life</B> (with Uli John Roth) <BR>07. <B>Speedy's Coming</B> (with Uli John Roth) <BR>08. <B>Dark Lady</B> (with Uli John Roth) <BR>09. <B>We'll Burn The Sky</B> (with Uli John Roth) <BR>10. <B>Love 'em Or Leave 'Em</B> <BR>11. <B>Don't Believe Her</B> <BR>12. <B>Tease Me Please Me</B> <BR>13. <B>Coast To Coast</B> (with Michael Schenker) <BR>14. <B>Holiday</B> (with Michael Schenker) <BR>15. <B>Lovedrive</B> (with Michael Schenker) <BR>16. <B>Another Piece Of Meat</B> (with Michael Schenker) <BR>17. <B>James Kottak's Drum Solo</B> <BR>18. <B>Blackout</B> (with Herman Rarebell) <BR>19. <B>No One Like You</B> (with Herman Rarebell) <BR>20. <B>Matthias Jabs' Guitar Solo</B> <BR>21. <B>Big City Nights</B> <BR>22. <B>Can't Get Enough</B> <BR>Encore 1:<BR>23. <B>Still Loving You</B> <BR>24. <B>In Trance</B> (with Uli John Roth, Michael Schenker) <BR>25. <B>He's A Woman She's A Man</B> (with Uli John Roth, Michael Schenker) <BR>26. <B>In Search Of The Peace Of Mind</B> (with Uli John Roth, Michael Schenker and Tyson Schenker) <BR>Encore 2:<BR>27. <B>Dynamite</B> <BR>Encore 3:<BR>28. <B>Rock You Like A Hurricane</B></P>
+Автор: Vit Belov
+
+### 15.12.2007 news SCORPIONS на боксе
+
+<P>В прошлую субботу<STRONG> SCORPIONS</STRONG> своей песней "<STRONG>Game Of Life</STRONG>" сопровождали выход на ринг армянско-немецкого боксёра <STRONG>Артура Абрахама</STRONG> в бою за звание чемпиона в среднем весе с англичанином <STRONG>Wayne Elcock. </STRONG>Видео этого выступления можно посмотреть ниже. Артур выиграл, если кому интересно.</P>
+<P><center><object width="425" height="355"><param name="movie" value="http://www.youtube.com/v/ycK9UAed8lY&rel=1&border=0"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/ycK9UAed8lY&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></object></center></P>
+Автор: Vit Belov
+
+### 11.01.2008 news DVD от Scorpions
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=425 alt="" hspace=0 src="/images/news_rus/2008.01/12130.jpg" width=300 align=right border=5>Мы уже сообщали о выходе эпохального DVD от <STRONG>SCORPIONS</STRONG> <STRONG>"Live At Wacken Open Air 2006: A Night To Remember - A Journey Through Time". </STRONG>На сцене к группе присоединялись музыканты, в разное время входившие в её состав. Ниже можно посмотреть отрывок этого выступления с песней "<STRONG>Rock You Like A Hurricane</STRONG>" и выездом на сцену механического скорпиона. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Coming Home</B><BR>02. <B>Bad Boys Running Wild</B><BR>03. <B>The Zoo</B><BR>04. <B>Loving You Sunday Morning</B><BR>05. <B>Make It Real</B><BR>06. <B>Pictured Life</B> (with Uli John Roth)<BR>07. <B>Speedy's Coming</B> (with Uli John Roth)<BR>08. <B>We'll Burn The Sky</B> (with Uli John Roth)<BR>09. <B>Love 'Em Or Leave 'Em</B><BR>10. <B>Don't Believe Her</B><BR>11. <B>Tease Me Please Me</B><BR>12. <B>Coast To Coast</B> (with Michael Schenker)<BR>13. <B>Holiday</B> (with Michael Schenker)<BR>14. <B>Lovedrive</B> (with Michael Schenker)<BR>15. <B>Another Piece Of Meat</B> (with Michael Schenker)<BR>16. <B>Kottak Attack</B> (James Kottak drum solo)<BR>17. <B>Blackout</B> (with Herman Rarebell)<BR>18. <B>No One Like You</B> (with Herman Rarebell)<BR>19. <B>Six String Sting</B><BR>20. <B>Big City Nights</B><BR>21. <B>Can't Get Enough</B><BR>22. <B>Still Loving You</B><BR>23. <B>In Trance</B> (with Uli John Roth, Michael Schenker)<BR>24. <B>Bolero</B><BR>25. <B>Ready To Sting</B> (Appearance of the Scorpion)<BR>26. <B>Rock You Like A Hurricane</B></FONT></P>
+<P>
+<CENTER>
+<OBJECT height=373 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/yzeUeB2ASkc&rel=1&border=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/yzeUeB2ASkc&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></OBJECT></CENTER>
+<P></P></FONT>
+Автор: Vit Belov
+
+### 19.02.2008 news SCORPIONS предлагают голосовать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SCORPIONS </STRONG>предлагают нам, российским фэнам, выбрать песни, которые мы хотим услышать во время тура знаменитых немцев по нашей стране. Каждый может пройти по ссылке и проголосовать.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.the-scorpions.com/phpbb3/viewtopic.php?f=2&t=23911">http://www.the-scorpions.com/phpbb3/viewtopic.php?f=2&t=23911</A></FONT></P>
+Автор: Vit Belov
+
+### 03.05.2008 news Документальный клип от SCORPIONS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На канале <STRONG>Deutsche Welle </STRONG>прошёл сюжет на английском языке о туре <STRONG>SCORPIONS</STRONG> по России, прошедшем в конце апреля. Смотрите ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/HitltdNSR38&rel=0&hl=en"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/HitltdNSR38&rel=0&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 09.05.2008 news ФБР вышло на след SCORPIONS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По сообщению американских новостных агентств, ФБР имеет претензии к сайту <STRONG>Wikipedia </STRONG>за размещение кавер-изображения с альбома <STRONG>SCORPIONS</STRONG> "<STRONG>Virgin Killer</STRONG>". Сайт, а следом, видимо, и группа, обвиняются в распространении детской порнографии. Напомним, что в первой версии этой обложки была изображена 10-летняя девочка в голом виде.&nbsp;Мы не в курсе американских законов, но, возможно, <STRONG>SCORPIONS</STRONG> теперь привлекут за педофилию? Или срок давности вышел?&nbsp;А у нас эти злостные совратители малолетних в Кремле выступают...</FONT></P>
+Автор: Vit Belov
+
+### 03.01.2009 news Гитарист SEPULTURA выступил со SCORPIONS
+
+<P>Ниже можно посмотреть профессиональные съёмки бразильского телевидения с концерта <STRONG>SCORPIONS</STRONG> 7 сентября 2008 года в Ресифе. На сцене к знаменитым немцам присоединился гитарист <STRONG>SEPULTURA</STRONG> <STRONG>Andreas Kisser</STRONG>. Кроме него приняли участие различные перкуссионисты и девушки на подпевках.</P>
+<P><STRONG>"Always Somewhere"</STRONG>:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9ovWgW1Xq-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/9ovWgW1Xq-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+<P><STRONG>"Rock You Like a Hurricane"</STRONG>:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/iw_4ZCilpes&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/iw_4ZCilpes&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 07.03.2009 news SCORPIONS объявили даты мегатура
+
+<P><STRONG>SCORPIONS</STRONG> выложили на своём сайте даты тура по России, в который они поедут вместе с <STRONG>KINGDOM COME</STRONG>, <STRONG>THE RASMUS</STRONG> и <STRONG>ALICE COOPER</STRONG>.</P>
+<P>15.06 - Санкт-Петербург, СКК<BR>16.06 - Ростов-На-Дону, Стадион СКА<BR>18.06 - Екатеринбург, ДС<BR>20.06 - Новосибирск, Ипподром<BR>22.06 - Хабаровск, Платинум Арена<BR>24.06 - Красноярск, Стадион "Центральный"<BR>26.06 - Владивосток, Стадион "Динамо"<BR>28.06 - Москва, Олимпийский</P>
+Автор: Vit Belov
+
+### 03.04.2009 news SCORPIONS начнут запись
+
+<P><STRONG>SCORPIONS </STRONG>войдут в студию в конце этого года для записи нового альбома, который выйдет в 2010.</P>
+Автор: Vit Belov
+
+### 01.06.2009 articles Фестивальный Тур &quot;Монстры Рока&quot;, пресс-релиз
+
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><IMG height=177 alt="" hspace=5 src="/images/articles_rus/2009.06/14186.jpg" width=400 align=right vspace=5 border=0>Scorpions/ Alice Cooper/ The Rasmus/ Kingdom Come</SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><?xml:namespace prefix = o ns = "urn:schemas-microsoft-com:office:office" /><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">28 </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">июня</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> 2009/ </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Москва</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">/ </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">СК</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> «</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Олимпийский</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">»<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Концертное</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">агентство</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Talent Concert International (T.C.I.) </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">объявляет</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">даты</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">грандиозных</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">концертов</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">с</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">участием</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">лидеров</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">мировой</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">музыкальной</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">рок</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">-</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">сцены</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">групп</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Scorpions, Alice Cooper, The Rasmus </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">и</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Kingdom Come. </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Выступления пройдут на главных спортивных аренах городов вместимостью до 30,000 человек. В рамках беспрецедентного по своим масштабам российского тура, который охватит семь крупнейших городов страны, участники представят свои новые концертные программы в поддержку свежих релизов, а также сыграют самые яркие хиты из золотых архивов.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Идейными вдохновителями предстоящих концертов, в ходе которых зрители увидят выступления сразу четырех популярнейших рок-групп, стали участники группы Scorpions. Российский тур 2008 года, в рамках которого команда отыграла в 12 городах страны, показал, что Scorpions являются одной из лучших концертных групп в мире и как никогда востребованы у российских слушателей. В этот раз немцы решились инициировать еще более масштабное шоу, для участия в котором пригласили своих талантливых коллег из Alice Cooper, The Rasmus и Kingdom Come.<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>Выпустив новые пластинки, участники этих коллективов принялись шлифовать новый материал и вспоминать старый.<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>И не случайно - хард-рок волна накроет Россию уже в июне.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Концерты во всех городах тура откроет своим выступлением Kingdom Come, основанная еще в 1980-х Ленни ВУЛФОМ (Lenny WOLF) и быстро завоевавшая себе место под американским солнцем рока. В настоящий момент немцы заканчивают работу над своим новым альбомом "Magnified", релиз которого в России, по информации "CD-Maximum", состоится 5 марта. На новой пластинке музыканты синтезировали современный индастриал и мистику с традиционным гитарным звучанием Kingdom Come. В программу выступления войдут лучшие композиции с предыдущих альбомов группы. Также группа порадует поклонников новинками с последнего альбома.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Вторыми выступят The Rasmus. Главные финские поп-рокеры по-прежнему одеты в черное и не пренебрегают игрой с готическим антуражем. В прошлом году группа выпустила альбом "Black Roses", продюсерами которого стали Дезмонд ЧАЙЛД (Desmond CHILD) и Гэрри СОММЕРДАЛЬ (Harry SOMMERDAHL), и тут же отправилась в турне в поддержку нового альбома. На предстоящих концертах The Rasmus представят российским поклонникам программу нового альбома, а также сыграют излюбленные миллионами поклонников по всему миру "In theShadows", "First Day of My Life", "Funeral Song" и другие не менее яркие композиции.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Эстафету The Rasmus передадут королю ужасов Alice Cooper. Уже более 30 лет группа уверенно занимает свое место в ряду самых ярких участников мировой рок-сцены, регулярно записывает альбомы и ездит по всему миру с концертами, не переставая удивлять эпатажным перфомансом старых поклонников и завоевывать новых. «До того, как король шок-рока из Детройта напряг свое &lt;...&gt; воображение и поставил гастроли на поток, рок-концерты представляли собой вполне приличные мероприятия», - пишет журнал "Classic Rock". И добавляет: «Все это кануло в небытие после появления Элиса с его сценическим обезглавливанием, электрическим стулом, отрубанием голов куклам Барби, швырянием петухами и казнью через повешенье». Среди ближайших друзей и почитателей творчества Alice Cooper группы Kiss, Marilyn Manson, David BOWIE, Nine Inch Nails, Metallica, Iggy & The Stooges, Lou REED, Slade, T. Rex, The Runaways, Guns N' Roses, Aerosmith, Sex Pistols, Ramones, Twisted Sister, Megadeth, Мадонна, W.A.S.P. и The Rolling Stones. Alice Cooper автор десятков мировых хитов и музыкальных бестселлеров.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Новый шок-рок альбом "Along Came A Spider" группа представила в августе прошлого года. В записи пластинки приняли участие барабанщик Эрик СИНГЕР (Eric SINGER) (Kiss, Ex-Black Sabbath, Ex-Badlands), СЛЭШ (SLASH) (Velvet Revolver, Ex-Guns'n'Roses) исполнил соло в "Vengeance Is Mine", а в "Wake The Dead" на губной гармошке сыграл Оззи ОСБОРН (OzzyOSBOURNE), который также выступил одним из соавторов трэка. Продюсерами альбома стали Грег ХЭМПТОН (Greg HAMPTON) и Денни СЭЙБЕР (Danny SABER), ранее работавшие с The Rolling Stones, Оззи ОСБОРНОМ, Дэвидом БОУИ (David BOWIE) и Мадонной. В рамках летнего тура Alice Cooper представит российским зрителям программу нового альбома и сыграет хиты прежних лет, в том числе "Poison" , "No More Mr. Nice Guy", "Billion Dollar Babies" и другие.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Завершится концерт полуторачасовым выступлением легендарных Scorpions. Завоевавший ни один континент и миллионы сердец слушателей по всему миру замечательный голос вокалиста Клауса МАЙНЕ (Klaus MEINE) с его яркой экспрессией, необычайно мощные рифы и ослепительные витиеватые соло гитаристов Рудольфа ШЕНКЕРА (Rudolf SCHENKER) и Матиаса ЯБСА (Matthias JABS), ураганная энергетика Джеймса КОТТАКА (James KOTTAK) - привычные характеристики знаменитых немцев, которые достались им более чем за три десятилетия уверенного пребывания на олимпе мировой музыкальной индустрии. В 1988 году Scorpions стали первой западной рок-группой, разбившей вдребезги «Железный занавес». Тогда группа при полном аншлаге выступила в Ленинграде с десятью концертами. Последнюю пластинку группы 2007 года, получившую название "Humanity Hour 1", спродюсировал Джеймс МАЙКЛ (James MICHAEL), сопродюсером и соавтором ряда песен стал Дезмонд ЧАЙЛД (Desmond CHILD), ранее работавший с группами Aerosmith, Bon Jovi, Alice Cooper, Kiss, Ricky Martin, Cher и Bonnie Tyler. Неожиданный дуэт Клауса МАЙНЕ и фронтмена группы The Smashing Pumpkins Билли КОРГАНА (Billy CORGAN) можно услышать в бонус-трэке «The Cross». Так или иначе Scorpions в очередной раз удалось создать мощный, тяжёлый альбом, превосходно совместив элементы хард-рока с балладным звучанием. На предстоящих российских концертах Scorpions исполнят незаменимые "Wind Of Change", "Still Loving You", "Rock You Like A Hurricane", "Send Me An Angel", "You And I", "Holiday", "The Zoo", "Bad Boys Running Wild" и другие хиты разных лет, в том числе с последнего альбома. <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Для перевозки музыкантов и оборудования будет задействовано звено чартерной авиации, в том числе два грузовых самолета, а также порядка десяти траков.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Для технического обеспечения предстоящих концертов потребуются тонны сценического, звукового и светового оборудования, соответствующего мировым стандартам качества. Продакшн-партнером T.C.I. в течение всего тура станет компания JSA.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Организация предстоящего тура поднимет российскую концертную индустрию на принципиально иной уровень. Грандиозные концерты в восьми крупнейших городах России, тур фестивального масштаба, Scorpions, Alice Cooper, The Rasmus и Kingdom Come на одной сцене - такого в России еще не было. Всероссийская рок-терапия - уже в июне!<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><SPAN style="mso-spacerun: yes">&nbsp;</SPAN><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">График тура:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">14 июня 2009/ Санкт-Петербург<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">16 июня 2009/ Ростов-на-Дону<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">18 июня 2009/ Екатеринбург<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">20 июня 2009/ Новосибирск <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">22 июня 2009/ Хабаровск<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">24 июня 2009/ Владивосток<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">26 июня 2009/ Красноярск<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">28 июня 2009/ Москва<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><SPAN style="mso-spacerun: yes"></SPAN><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Участники тура / составы:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Scorpions: <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Klaus MEINE - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Matthias JABS - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Rudolf SCHENKER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">James KOTTAK - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Pawel MACIWODA - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Alice Cooper: <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Alice Cooper/Vincent FURNIER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Kerri KELLI - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Jason HOOK - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Erik SINGER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Chuck GARRIC - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Calico COOPER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><SPAN style="mso-spacerun: yes">&nbsp;</SPAN></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">The Rasmus: <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Lauri Ylonen - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Pauli Rantasalmi - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Eero Heinonen - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Aki Markus Hakala - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Kingdom Come: </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Lenny WOLF - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Eric FOERSTER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Frank BINKE - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Hendrik THIESBRUMMEL - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">сайт</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Scorpions: <A href="http://www.the-scorpions.com/">www.the-scorpions.com</A></SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">&nbsp;/ <A href="http://www.scorps.ru/">www.scorps.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный сайт Alice Cooper: <A href="http://www.alicecooper.com/">www.alicecooper.com</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">&nbsp;/ <A href="http://www.alicecoopernet.narod.ru/">www.alicecoopernet.narod.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный сайт The Rasmus: <A href="http://www.therasmus.com/">www.therasmus.com</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">&nbsp;/ <A href="http://www.therasmusworld.narod.ru/">www.therasmusworld.narod.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный сайт Kingdom Come: <A href="http://www.lennywolf.com/">www.lennywolf.com</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">; <A href="http://www.kingdmcome.de/">www.kingdmcome.de</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">&nbsp;/ <A href="http://www.kingdomcome.ru/">www.kingdomcome.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">© Ссылка на концертное агентство T.C.I. при использовании материалов обязательна. <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">За дополнительной информацией (в том числе фотоматериалами, комментариями представителей компании) обращайтесь:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">тел.: +7 (499) 973 3434</SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><A href="http://www.tci.ru/">www.tci.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"></SPAN>&nbsp;</P>
+Автор: Headcrusher
+
+### 16.08.2009 news Klaus Meine спел на AVANTASIA
+
+<P><STRONG><IMG height=291 alt="" hspace=0 src="/images/news_rus/2009.08/14821.jpg" width=300 align=left border=5>Tobias Sammet</STRONG> продолжает сериал "Кто спел на новой AVANTASIA". Только вчера мы сообщили о постоянном герое этой пьесы <STRONG>Jorn Lande</STRONG>, и вот новое сообщение. Дуэтом с <STRONG>Tob</STRONG>i спел вокалист <STRONG>SCORPIONS Klaus Meine</STRONG>!</P>
+Автор: Vit Belov
+
+### 23.11.2009 news SCORPIONS назвали альбом
+
+<P>Новый альбом <STRONG>SCORPIONS </STRONG>будет называться <STRONG>"Sting In The Tail". </STRONG>Пластинка записывается в двух студиях в Ганновере и Швеции с продюсерами <STRONG>THE RASMUS</STRONG> <STRONG>Mikael "Nord" Andersson</STRONG>&nbsp;и <B>Martin Hansen.</B></P>
+<P>Альбом выйдет в начале 2010 года и в него войдут 12 новых песен.</P>
+Автор: Vit Belov
+
+### 09.01.2010 news Обложка нового SCORPIONS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> SCORPIONS</STRONG>&nbsp; <B>"Sting In The Tail" </B>выйдет 19 марта. Группа опубликовала обложку этого альбома.</FONT></P>
+<P><center><IMG height=300 src="/images/news_rus/2010.01/15951.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 25.01.2010 news SCORPIONS заканчивают!
+
+<P>Знаменитые немцы <STRONG>SCORPIONS</STRONG> объявили о грядущем окончании своей карьеры. </P>
+<P>"<EM>Мы всегда получали большое удовольствие от нашей деятельности. Работа в студии, концертные выступления - это наша жизнь. Работая над нашим&nbsp;новым альбомом последние месяцы, мы понимали, насколько мощной и интересной получается наша музыка, и какое большое удовольствие мы всё ещё получаем от своего творчества. Но было и кое-что ещё - мы хотим закончить нашу экстраординарную картеру на высокой ноте</EM>".</P>
+<P>Музыканты сообщают об окончании своего пути. Группа закончит карьеру альбомом, который она считает лучшим за последние годы.&nbsp;Кроме этого,<STRONG> SCORPIONS</STRONG> отправляются в тур, который продлится несколько лет и затронет пять континентов.</P>
+Автор: Vit Belov
+
+### 05.02.2010 news Tarja Turunen спела для SCORPIONS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На новом альбоме <STRONG>SCORPIONS</STRONG>&nbsp;<STRONG>"Sting In The Tail" </STRONG>гостевое участие приняла бывшая вокалистка <STRONG>NIGHTWISH Tarja Turunen</STRONG>. Певица спела на песне <STRONG>"The Good Die Young"</STRONG>. Альбом выйдет 23 марта на <STRONG>Universal.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 03.03.2010 news Klaus Meine поёт для AVANTASIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня<STRONG> AVANTASIA</STRONG> <STRONG>"Dying For An Angel" </STRONG>с участием вокалиста <STRONG>SCORPIONS Klaus Meine</STRONG> доступна к прослушиванию чуть ниже. Трэк попадёт на новую работу проекта <STRONG>Tobias Sammet</STRONG>, выходящий 3 апреля на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Z_JXFOcfvLw&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Z_JXFOcfvLw&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.03.2010 news SCORPIONS выступили с Tarja
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В субботу 27 марта <STRONG>SCORPIONS</STRONG> выступили на немецком телевидении в программе <STRONG>"Wetten, Dass..?". </STRONG>Видео песни <STRONG>"The Good Die Young", </STRONG>где <STRONG>Klaus Meine</STRONG> поёт дуэтом с бывшей вокалисткой <STRONG>NIGHTWISH Tarja Turunen</STRONG> можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/hKoVPKaKhTc&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/hKoVPKaKhTc&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.04.2010 news SCORPIONS попали в чарты
+
+<P>Новый альбом <STRONG>SCORPIONS</STRONG> <STRONG>"Sting In The Tail" </STRONG>был продан в США в количестве 18500 копий в первую неделю реализации. Это позволило ветеранам попасть в чарты <STRONG>Billboard 200</STRONG> на 23 место. Этот результат заметно лучше предыдущего, в 2007 году <STRONG>"Humanity - Hour 1"</STRONG> "открылся" с 10500 копий и 62 местом.</P>
+Автор: Vit Belov
+
+### 26.04.2010 reviews Не лучший, но последний
+
+<P>SCORPIONS подготовили нашему вниманию свой последний в истории альбом “Sting In The Tail”. Отношения у фанатов с группой, возраст которой зашкалил за 30 лет, всегда неоднозначные. В первую очередь, при оценке новых пластинок коллектива многим слушателям не хватает объективности, что естественно, когда проводишь в компании музыкантов множество приятных часов и даже дней своей жизни, все её художественные приёмы тебе прекрасно знакомы и просто не могут не вызывать инстинктивного восторга. С другой стороны, очевидно, что новейшие альбомы группы сильно уступают её классике.</P>
+<P>К сожалению, “Sting In The Tail” не станет лучшим альбомом в дискографии немцев. По моему мнению, он даже не приблизится к десятке лучших. Нельзя говорить, что SCORPIONS исписались, это было бы некорректно, но живости восприятия собственной музыки немцам явно не хватает. Если на предыдущем альбоме “Humanity, Hour 1” коллектив немного поэкспериментировал с мрачным звучанием, и это новшество многим понравилось, текущий альбом выполнен в стандартном для последних 20 лет ключе. Несколько баллад, быстрые «рок»-вещи, стандартная лирика про ‘love’ и ‘rock’. К сожалению, по-настоящему зацепило немногое, а в некоторых трэках заметно даже самокопирование. Например, в начале одной из медленных композиций вспоминается собственная «нетленка» SCORPIONS “Holiday”. </P>
+<P>Но главное, за что мы слушали последние альбомы SCORPIONS, сохранилось. Это голос Klaus Meine и типичное звучание, по которому сразу узнаётся группа. Чувствуется, что своё дело музыканты знают досконально. В этом свете кажется странными пенсионные заявления SCORPIONS. Таких пластинок они могли бы ещё навыпускать ни один десяток, а покупатели на них всегда найдутся.</P>
+Автор: Vit Belov
+
+### 21.10.2010 news &quot;Премиум-эдишн&quot; от SCORPIONS
+
+<P>2&nbsp; ноября на <STRONG>Sony </STRONG>увидит свет новое "премиум" издание последнего альбома <STRONG>SCORPIONS</STRONG> <STRONG>"Sting In The Tail". </STRONG>Альбом будет содержать 5 бонус-трэков и DVD. Трэк-лист:</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17438.jpg" width=300 height=223>01. <B itxtvisited="1">Raised On Rock</B><BR itxtvisited="1">02. <B itxtvisited="1">Sting In The Tail</B><BR itxtvisited="1">03. <B itxtvisited="1">Slave Me</B><BR itxtvisited="1">04. <B itxtvisited="1">The Good Die Young</B><BR itxtvisited="1">05. <B itxtvisited="1">No Limit</B><BR itxtvisited="1">06. <B itxtvisited="1">Rock Zone</B><BR itxtvisited="1">07. <B itxtvisited="1">Lorelei</B><BR itxtvisited="1">08. <B itxtvisited="1">Turn You On</B><BR itxtvisited="1">09. <B itxtvisited="1">Let's Rock</B><BR itxtvisited="1">10. <B itxtvisited="1">SLY</B><BR itxtvisited="1">11. <B itxtvisited="1">Spirit Of Rock</B><BR itxtvisited="1">12. <B itxtvisited="1">The Best Is Yet To Come</B><BR itxtvisited="1">13. <B itxtvisited="1">Dreamers</B><BR itxtvisited="1">14. <B itxtvisited="1">Too Far</B><BR itxtvisited="1">15. <B itxtvisited="1">Miracle</B> (regular version)<BR itxtvisited="1">16. <B itxtvisited="1">The Good Die Young</B> (new version)<BR itxtvisited="1">17. <B itxtvisited="1">Thunder And Lightning</B><BR itxtvisited="1"><BR itxtvisited="1">Bonus DVD<BR itxtvisited="1"><BR itxtvisited="1">01. Sting In The Tail</B itxtvisited="1"> (live video San Antonio)<BR itxtvisited="1">02. <B itxtvisited="1">The Best Is Yet To Come</B> (live video Prague)<BR itxtvisited="1">03. <B itxtvisited="1">Sting In The Tail</B> (Video Message - EPK)</P>
+Автор: Vit Belov
+
+### 29.11.2010 news Долгая агония SCORPIONS продолжится в России
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news_rus/2010.11/17684.jpg" width=300 align=right border=1>Немецкие легенды<STRONG> SCORPIONS</STRONG> продолжают свой масштабный, мировой и прощальный концертный тур. Группа объявила о своём намерении прекратить своё существование сразу по окончании этой трассы в поддержку последней пластинки "<STRONG>Sting In The Tail</STRONG>". Немцы уже выступали в Москве "под этим соусом", но теперь объявлен тур по России, который состоится в мае будущего года:</FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>12.05 - Санкт-Петербург, Ледовый Дворец</FONT><BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>14.05 - Ростов-На-Дону, Дворец Спорта "ДОН"</FONT> <BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>15.05 - Казань, ТатНефть Арена</FONT> <BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>17.05 - Красноярск, Дворец Спорта Ярыгина</FONT> <BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>19.05 - Хабаровск, Платинум Арена</FONT> <BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>21.05 - Владивосток, Римско Холл</FONT> <BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>23.05 - Новосибирск, Дворец Спорта&nbsp;Сибирь</FONT> <BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>24.05 - Екатеринбург, ДИВ Спорт</FONT> <BR><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>26.05 - Москва, СК Олимпийский</FONT> 
+<P></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И это ещё не конец!</FONT></P>
+Автор: Vit Belov
+
+### 15.12.2010 news Michael Schenker снова работает с Herman Rarebell и Pete Way
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Michael Schenker (MICHAEL SCHENKER GROUP, UFO, SCORPIONS), </STRONG>барабанщик <STRONG>Herman Rarebell (SCORPIONS), </STRONG>басист <STRONG>Pete Way (UFO) </STRONG>и вокалист <STRONG>Michael Voss (CASANOVA,SILVER, MAD MAX) </STRONG>организовали новую группу <STRONG>STRANGERS IN THE NIGHT. </STRONG>Музыканты в настоящее время работают над дебютным альбомом в Брайтоне, Англия. Ниже можно посмотреть клип на песню коллектива <STRONG>"Saturday Night".</STRONG></FONT></P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/4C4kWDLzHLE&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/4C4kWDLzHLE&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.01.2011 news SCORPIONS споют для Михаила Горбачёва
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=303 alt="" hspace=0 src="/images/news_rus/2011.01/18258.jpg" width=300 align=right border=0>Немецкие рокеры <STRONG>SCORPIONS</STRONG> споют на 80-летнем юбилее единственного Президента СССР <STRONG>Михаила Горбачёва</STRONG>. Концерт, посвящённый этому событию, состоится 30 марта в <STRONG>Royal Albert Hall</STRONG> в Лондоне. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня <STRONG>SCORPIONS</STRONG> <STRONG>"Wind Of Change" </STRONG>являлась одним из символов Перестройки, осуществляемой в СССР в период правления М.С. Горбачёва. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Цены на билеты на грядущее шоу варьируются от 35 до 100000 фунтов.</FONT></P>
+Автор: Vit Belov
+
+### 09.04.2011 news SCORPIONS запишут ещё один альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По сообщению польского басиста <STRONG>SCORPIONS</STRONG> <STRONG>Pawel Maciwoda</STRONG>, группа, находящаяся уже второй год в прощальном турне, войдёт в студию этой осенью для записи нового альбома. Немцы перезапишут свою классику и выпустят новый сборник в начале следующего года. </FONT></P>
+<P><center><IMG height=305 src="/images/news_rus/2011.04/19105.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 29.06.2011 news SCORPIONS вновь выступят с оркестром
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие легенды<STRONG> SCORPIONS</STRONG> анонсировали выступление с оркестром <STRONG>Babelsberg </STRONG>в рамках <STRONG>Berlin Classic Open Air</STRONG> 2011. Концерты этого фестиваля проходят каждое лето, в его рамках даются не только классические выступления, но и разнообразные "кроссовер" акции. Одной из них станет выступление <STRONG>SCORPIONS</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие ветераны продолжают свой мегауспешный прощальный тур.</FONT></P>
+<P><center><IMG height=329 src="/images/news_rus/2011.06/19796.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.07.2011 news SCORPIONS перейдут в 3D
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уходящие на пенсию <STRONG>SCORPIONS</STRONG> продолжают радовать своих поклонников новыми проектами. На этот раз разговор идёт о новом концертном DVD в популярном формате 3D. На этот релиз попадёт концерт в Германии. Таким образом <STRONG>SCORPIONS</STRONG> станут своеобразными пионерами нового поветрия.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также до конца года выйдет сборник переигранной классики <STRONG>SCORPIONS</STRONG>.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=320 src="/images/news_rus/2011.07/20106.jpg" width=230 border=0></FONT></P>
+Автор: Vit Belov
+
+### 30.09.2011 news &quot;Comeblack&quot; от SCORPIONS
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/21334.jpg" width=300 height=300>4 ноября на лейбле <STRONG>Sony</STRONG>&nbsp;выйдет новый релиз группы <B>SCORPIONS</B>. На альбом, получивший название <B>"Comeblack"</B>, войдут перезаписанные варианты классических песен немецкой группы. </P>
+<P><STRONG>"Comeblack" </STRONG>будет доступен &nbsp;на CD и двойном виниле.</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 08.10.2011 news SCORPIONS обнародовали трек-лист
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.10/21467.jpg" width=300 align=right border=0>SCORPIONS</STRONG> опубликовали трек-лист своего альбома "перепевок" "<STRONG>Comeblack</STRONG>", который выйдет 4 ноября на <STRONG>Sony</STRONG>. </P>
+<P>Re-recordings:</P>
+<P>01. <STRONG>Rhythm Of Love</STRONG><BR>02. <STRONG>No One Like You</STRONG><BR>03. <STRONG>The Zoo</STRONG><BR>04. <STRONG>Rock You Like A Hurricane</STRONG><BR>05. <STRONG>Blackout<BR></STRONG>06. <STRONG>Still Loving You</STRONG><BR>07. <STRONG>Wind Of Change</STRONG></P>
+<P>Covers:</P>
+<P>08. <STRONG>Tainted Love</STRONG> (GLORIA JONES)<BR>09. <STRONG>Children Of The Revolution</STRONG> (T. REX)<BR>10. <STRONG>Across The Universe</STRONG> (THE BEATLES)<BR>11. <STRONG>Tin Soldier</STRONG> (SMALL FACES)<BR>12. <STRONG>All Day And All Of The Night</STRONG> (THE KINKS)<BR>13. <STRONG>Ruby Tuesday</STRONG> (THE ROLLING STONES)</P>
+Автор: Vit Belov
+
+### 06.01.2013 news SCORPIONS передумали уходить
+
+<P>Через три года после объявления о собственной отставке и глобальном прощальном туре вокалист <STRONG>SCORPIONS Klaus Meine</STRONG> намекнул, что группа изменила своё первоначальное решение и остаётся с нами. Основной причиной этого решения стал успех последней студийной работы немецкого коллектива "<STRONG>Sting In The Tail</STRONG>", который принёс <STRONG>SCORPIONS</STRONG> много новых фэнов.</P>
+<P>В настоящее время коллектив работает над альбомом нереализованного материала. Песни, не вошедшие в классические альбомы SCORPIONS, будут заново записаны. Позже немцы готтовы и к записи альбома с полностью новым материалом.</P>
+<P>"Я передумал уходить на пенсию, ведь вы все меня так любите и не сможете без меня обойтись", - поговаривал один персонаж известной советской комедии.</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25255.jpg" width=475 height=316></P>
+Автор: Vit Belov
+
+### 29.04.2014 news James Kottak (SCORPIONS) осуждён на месяц тюремного заключения в городе Дубай
+
+<P>Как сообщает эмиратская газета <STRONG>The National</STRONG>, 29 апреля ударник группы <STRONG>SCORPIONS</STRONG> Джеймс Коттак (<STRONG>James Kottak</STRONG>,&nbsp;ex-<STRONG>KINGDOM COME</STRONG>)&nbsp;осужден на месяц тюремного заключения в городе Дубай за оскорбление ислама.</P>
+<P>Приговор вступил в силу во вторник утром. Причиной тюремного заключения стало поведение музыканта во время авиаперелета из Москвы в Дубай 3 апреля. Музыкант направлялся транзитом через Дубай в Бахрейн, где его группа должна была выступить на этапе гонок Формулы-1, но был задержан в дубайском аэропорту.</P>
+<P>Как пишет газета, <STRONG>James</STRONG> показывал непристойные жесты пассажирам-мусульманам, употреблял алкоголь и стягивал с себя штаны. За распитие спиртных напитков он был также оштрафован на 2 тысячи дирхамов (около 500 долларов). После отбывания наказания музыкант будет депортирован на родину. Во время суда обвиняемый отрицал то, что оскорблял своим поведением чувства мусульман, но признал употребление алкоголя.</P>
+<P>Адвокат музыканта заявил, что его клиент не хотел совершать ничего предосудительного, а просто хотел показать татуировку у себя на спине окружающим.</P>
+<P><STRONG>James Kottak</STRONG> стал учатником группы <STRONG>SCORPIONS</STRONG> в 1996 году, когда её покинул ударник <STRONG>Herman Rarebell</STRONG>. И принял участие в записи пяти студийных альбомов&nbsp;немецкого коллектива.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26952.jpg" width=630 height=378> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 20.12.2014 news SCORPIONS: детали альбома &quot;Return To Forever&quot;
+
+<P>Немецкий хард-рок-ансамбль <STRONG>SCORPIONS</STRONG>&nbsp;снова выпускает студийный альбом. В сети уже появились обложка и трек-лист диска, который будет называться <STRONG>"Return To Forever"</STRONG> и выйдет в феврале 2015 года.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Going Out With A Bang </STRONG>| 02. <STRONG>We Built This House </STRONG>| 03. <STRONG>Rock My Car </STRONG>| 04. <STRONG>House Of Cards </STRONG>| 05. <STRONG>All For One </STRONG>| 06. <STRONG>Rock’n’Roll Band </STRONG>| 07. <STRONG>Catch Your Luck And Play </STRONG>| 08. <STRONG>Rollin' Home </STRONG>| 09. <STRONG>Hard Rockin' The Place </STRONG>| 10. <STRONG>Eye Of The Storm </STRONG>| 11. <STRONG>The Scratch </STRONG>| 12. <STRONG>Gypsy Life </STRONG>| 13. <STRONG>The World We Used To Know</STRONG> (Deluxe Edition bonus) | 14. <STRONG>Dancing With The Moonlight</STRONG> (Deluxe Edition bonus) | 15. <STRONG>When The Truth Is A Lie </STRONG>(Deluxe Edition bonus) | 16.<STRONG> Who We Are</STRONG> (Deluxe Edition bonus) | 17. <STRONG>Delirious</STRONG> (iTunes bonus)</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.12/27514.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 18.01.2015 news SCORPIONS опубликовали трек &quot;We Built This House&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SCORPIONS</STRONG> опубликовали трек <STRONG>"We Built This House"</STRONG> с грядущего альбома <STRONG>"Return To Forever"</STRONG>, который выходит 20 февраля 2015 года.</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/UALNE6-sjoU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 01.06.2016 news Michael Schenker вновь кое-что вспомнил
+
+<p>Давненько что-то мы не вспоминали про бывшего гитариста <strong>UFO</strong> и <strong>MSG Michael Schenker</strong>. Его творчество не так что бы очень интересно нашему изданию, но говорит Michael всегда очень гладко, а, главное, без обиняков. В настоящее время гитарист раскручивает свою новую работу, DVD-концерт в Мадриде с коллективом<strong> TEMPLE OF ROCK “On A Mission: Live in Madrid”</strong>, который был снят в ноябре прошлого года, а был издан 6 мая. На сцене вместе с Michael Schenker выступили вокалист<strong> Doogie White</strong> (ex-RAINBOW) и бывшая ритм-секция<strong> SCORPIONS</strong> басист <strong>Francis Buchholz</strong> и барабанщик <strong>Herman Rarebell</strong>. Были исполнены вещи UFO, MSG и SCORPIONS, при этом, кроме привычных для младшего Шенкера <strong>«Lovedrive</strong>” и «<strong>Coast To Coast</strong>”, были сыграны «<strong>Rock You Like A Hurricane</strong>” и «<strong>Blackout</strong>” из арсенала других немецких музыкантов.</p><p>В общем-то, и всё, но Michael Schenker так не умеет. В своих многочисленных интервью, посвящённых выходу DVD, он зачем-то постоянно рассказывает про SCORPIONS и своего старшего брата <strong>Rudolf Schenker</strong>. Сначала он сказал, что никогда не вернётся в SCORPIONS, так как не любит своего старшего родственника. Якобы ещё после записи «Lovedrive”, на котором он подменил только что пришедшего в группу <strong>Matthias Jabs</strong>, издающий лэйбл умолял оставить в группе младшего Шенкера, так как именно с ним были связаны надежды магнатов на успех в США. После того, как не случилось долгосрочного сотрудничества, Rudolf переписал все песни, которые сочинил Michael, на себя, а теперь в юбилейном переиздании «Lovedrive” имя младшего Шенкера не упоминается с должной степенью уважения. Повторюсь, всё это Michael Schenker рассказывает в поддержку собственного DVD. </p><p>SCORPIONS на эти нападки не отвечают. Если кто не в курсе, многочисленные прощальные туры ветеранов закончились тем, что... группа передумала уходить на покой. Мол, вы все нас так любите, как вы без нас-то? Напоминает сюжет известного фильма «Старики-разбойники». В нём, правда, расчувствовавшегося пенсионера всё-таки выперли на заслуженный отдых, со SCORPIONS так вряд ли получится. Ведь группе настолько ловко удалось умереть, не умирая, что теперь зарабатывают популярность не только сами участники коллектива, но и бывшие музыканты, которые вспоминают скандалы, интриги и расследования 35-летней давности.</p><p><center><img width="615" height="411" src="/images/news_rus/2016.06/29227.jpg" border="0"><p></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/EJkMqUCuS14" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 01.06.2016 news Michael Schenker remembered something again
+
+<p>We haven't thought about former <strong>UFO</strong> and<strong> MSG</strong> guitarist <strong>Michael Schenker</strong> for a long time. His work is not so interested for our publication, but Michael always speaks very smoothly, and, most importantly, without equivocation. Currently the guitarist promotes his new work, a DVD of the concert in Madrid with the band <strong>TEMPLE OF ROCK “On A Mission: Live in Madrid”</strong>, which was filmed in November of last year, and was released on the May, 6. Michael Schenker was on the stage with vocalist <strong>Doogie White</strong> (ex-RAINBOW) and the former rhythm section of the <strong>SCORPIONS</strong> bassist <strong>Francis Buchholz</strong> and drummer <strong>Herman Rarebell</strong>. Songs of UFO, MSG and SCORPIONS were performed, in addition to the usual younger Schenker "<strong>Lovedrive</strong>" and <strong>"Coast To Coast</strong>", have been played "<strong>Rock You Like A Hurricane</strong>" and "<strong>Blackout</strong>" from the arsenal of other German musicians.</p><p>In General, that is all, but Michael Schenker doesn't do that. For some reason he constantly talks about SCORPIONS and his older brother <strong>Rudolf Schenker</strong> in his many interviews on the DVD release. First, he said he will never return to the SCORPIONS, because he does not like his older brother. Label begged to leave junior Schenker in a band after the recording of "Lovedrive" on which he replaced new SCORPIONS' guitarist <strong>Matthias Jabs</strong>. He was associated with hopes of the magnates of success in the United States. Rudolf rewrote all the songs composed by Michael to himself, and now in the anniversary reissue of "Lovedrive" name of the younger Schenker was not mentioned with the necessary degree of respect. Again, all of this Michael Schenker talks in support of their DVDs. </p><p>SCORPIONS do not respond. If someone does not know, numerous farewell tours of veterans caused to... the group decided to not retire. Like, you all love us so, how will you be without us? Reminiscent of the plot of the famous Russian film "Old men-robbers". However, sentimentality pensioner was still kicked on a holiday, it is unlikely to succeed with the SCORPIONS. Because the group is so deftly managed to die without dying, now that is earning popularity not only for band members but also for former musicians who remember the scandals, intrigues and investigations 35 years ago.</p><p><center><img width="615" height="411" src="/images/news_rus/2016.06/29227.jpg" border="0"><p></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/EJkMqUCuS14" frameborder="0" allowfullscreen=""></iframe></center></center><p></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Scorpions Acoustica

@@ -34,6 +34,117 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.12.2008 news ТРОЯ на MUSICA Production
+
+<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><SPAN class=h1>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><SPAN class=tit1><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=381 alt="" hspace=0 src="/images/news_rus/2008.12/13238.jpg" width=400 align=right border=5>MUSICA Production</STRONG> представляет</FONT></SPAN></STRONG></FONT></P>
+<P></SPAN></STRONG></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit2></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit2><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>последний релиз в этом году</FONT></SPAN></FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>новогодний подарок всем любителям отчественного heavy-metal!</FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Долгожданный дебютный альбом<STRONG> ТРОЯ "Мир В Огне"</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отличный мелодичный материал в духе лучших представителей отечественного heavy-power-metal цеха - CATHARSIS, ЭПИДЕМИЯ и, конечно же, АРИЯ. Дебютный альбом ТРОЯ понравится всем любителям стиля. Захватывающие мелодии, проникновенные баллады, выраженная тяжесть материала. "Мир В Огне" должен был выйти ещё полгода назад, но несмотря на задержку, материал этого альбома нисколько не пострадал. Группа активно концертирует, дошла до финала конкурса "На Взлёт!". Коллектив уже работает над новым альбомом. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Мир В Огне<BR></STRONG>2. <STRONG>Звезда Надежды<BR></STRONG>3. <STRONG>После Нас<BR></STRONG>4. <STRONG>Империя<BR></STRONG>5. <STRONG>Кривое Озеро<BR></STRONG>6. <STRONG>Призрак в Пустоте<BR></STRONG>7. <STRONG>Против Гордых Богов<BR></STRONG>8. <STRONG>Вспоминай Обо Мне<BR></STRONG>9. <STRONG>Троя</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сайт лэйбла: <A href="http://mp.musica.mudstdie.ru/">http://mp.musica.mudstdie.ru</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сайт группы: <A href="http://troy-band.ru/">http://troy-band.ru/</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный альбом группы <STRONG>ТРОЯ</STRONG>, равно как и все релизы <STRONG>MUSICA Production</STRONG>, можно всегда приобрести на точке "<STRONG>Metal&Progressive/Irond</STRONG>" на Горбушке (B2-074).</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=352 src="/images/news_rus/2008.12/13221.jpg" width=400 border=0></FONT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 05.02.2009 news TROYA on MUSICA Production
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit1><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=5 hspace=0 alt="" src="/images/news/2009.02/13571.jpg" width=400 align=right height=381>MUSICA PRODUCTION presents:</FONT></SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Long-awaited debut album&nbsp;"<STRONG>Mir V Ogne (World in Flames)</STRONG>" of heavy-metal band <STRONG>TROYA</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Excellent melodic material in a vein of the best bands of Russian heavy-metal like CATHARSIS, ARIYA and EPIDEMIYA. TROYA's debut album is for all fans of this style. Breathtaking melodies, heartfelt ballads, heaviness of material. "World in Flames" had to release half year ago, but despite of delay, labum's music didn't suffer. The band give many gigs, they achieved final of russian "To Launch!" contest last year. Group already work on new CD. Track-list:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Mir V Ogne (World in Flames)<BR></STRONG>2. <STRONG>Zvezda Nadezhdy (Star of Hope)</STRONG><BR>3. <STRONG>Posle Nas (After us)<BR></STRONG>4. <STRONG>Imperiya (Empire)<BR></STRONG>5. <STRONG>Krivoe Ozero (Crooked Lake)<BR></STRONG>6.<STRONG> Prizrak v Pustote (Ghost in the Emptiness)<BR></STRONG>7.<STRONG> Protiv Gordyh Bogov (Against the Proud Gods)<BR></STRONG>8. <STRONG>Vspominay Obo Mne (Remeber Me)<BR></STRONG>9. <STRONG>Troya (Troy)</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Labelsite: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Bandsite: <A href="http://troy-band.ru/">http://troy-band.ru</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>MP3: <A href="/en/band/troja/14158/">http://musica.mustdie.ru/en/band/troja/14158/</A></FONT></P>
+<p><center><form target="paypal" action="https://www.paypal.com/cgi-bin/webscr" method="post">
+<input type="hidden" name="cmd" value="_s-xclick">
+<input type="hidden" name="hosted_button_id" value="QU3FVAXBJ439G">
+<input type="image" src="https://www.paypalobjects.com/en_GB/i/btn/btn_cart_LG.gif" border="0" name="submit" alt="PayPal – The safer, easier way to pay online.">
+<img alt="" border="0" src="https://www.paypalobjects.com/ru_RU/i/scr/pixel.gif" width="1" height="1">
+</form>
+Автор: Vit Belov
+
+### 17.02.2009 news В ТРОЯ новый гитарист
+
+<P><IMG height=375 alt="" hspace=0 src="/images/news_rus/2009.02/13603.jpg" width=250 align=left border=5>Новым участником московской power-metal группы<STRONG> ТРОЯ</STRONG> стал гитарист-виртуоз<STRONG> Алексей Подгорный</STRONG> (ex- "<STRONG>Revival</STRONG>", ех-"<STRONG>Ретрием</STRONG>", ex-"<STRONG>Д.И.В.А</STRONG>"). <STRONG>Алексей</STRONG> и ранее имел опыт сотрудничества с группой, записав соло в заглавной песне с первого альбома&nbsp;<STRONG>ТРОЯ "Мир в огне</STRONG>". И теперь, доукомплектовав состав,<STRONG>&nbsp;ТРОЯ</STRONG> приступает к записи нового полноформатного альбома, который получил рабочее название "<STRONG>Воздушные Замки</STRONG>" и будет содержать 10 треков. По словам музыкантов, новый диск получается более тяжёлым и разнообразным, чем его предшественник, но, в то же время, корней своих группа забывать не намерена.</P>
+<P>А пока<STRONG> ТРОЯ</STRONG> представляет на суд слушателей одну забавную композицию из своего личного архива. Это кавер-версия хита культовой группы времён перестройки "<STRONG>Коррозия Металла</STRONG>". Трек "<STRONG>Фантом</STRONG>" был записан специально для сборника-трибьюта КМ, но КТР так и не выпустила этот альбом - Пауку помешали тёмные силы, замутившие мировой финансовый кризис. Так, что теперь трек доступен для свободного скачивания в интернете.</P>
+<P>Песня: <A href="http://troy-band.ru/files/fantom.mp3">http://troy-band.ru/files/fantom.mp3</A></P>
+Автор: Vit Belov
+
+### 05.10.2009 articles ТРОЯ: «Отечественный power скоро станет европейским».
+
+<P><IMG height=231 alt="" hspace=0 src="/images/articles_rus/2009.10/15220.jpg" width=400 align=right border=5>Дебютный альбом отечественной группы ТРОЯ «Мир в Огне» вышел на рубеже этого и прошлого годов. Вышел он на CD, но в сети уже давно можно было скачать эту пластинку в оригинальном качестве. Не многие отечественные тяжёлые группы решаются на подобный шаг. Мы связались с барабанщиком Анатолием Малиновским и обсудили этот и другие вопросы.</P>
+<P><STRONG>В: Расскажи для начала историю вашей группы, которая может быть интересна нашим читателям. Откуда появилось название вашей группы?</STRONG></P>
+<P>-В общем, выбор названия для группы был не простым, но весьма забавным занятием. Мы исходили из того что, название должно быть коротким и начинаться на согласную букву (для более четкой произносимости и звонкости), перебрав все возможные варианты и проанализировав все названия музыкальных коллективов нам известных, пришли к выводу, что мы зашли в тупик! Вроде, что может быть проще: придумать название группы? На все про все мы потратили неделю, и на очередном "съезде" отцов основателей группы, один из них именуемый Волосом (Андрей Малиновский) вдруг прозрел и выдал, наконец, свои идеи по это вопросу. УРА! воскликнули мы! ТРОЯ! Да будет так. Вот так было найдено название. </P>
+<P><STRONG>В: Понятно, что heavy-power-metal на русском языке не нуждается в дополнительных рекомендациях, но хотелось бы углубить ваше стилистическое определение. На какую музыку вы ориентируетесь в своём творчестве? С кем ты мог бы сравнить вашу музыку, чтобы быть более точным?</STRONG></P>
+<P>-Сравнивать можно с кем угодно и сколько угодно. Ответ в том, что кто-то сравнивает нас с одними, а другие с другими соответственно :). А с кем бы я мог сравнить нашу музыку, то я думаю, что с EDGUY, хотя на них мы серьезно не ориентировались, просто знали, что есть такая группа, и они играют клёвую музыку.</P>
+<P><STRONG>В: Возможно ли что-то новое в вашем стиле музыки? Каждый скажет, что в heavy-power-metal уже всё придумано. Ставите ли вы себе какие-то подобные цели или просто концентрируетесь на сочинении хороших песен?</STRONG></P>
+<P>-Конечно же, первая и основная наша миссия это писать хорошие песни! А в каком они будут стиле Power, Death, Black и.т.п. нам уже не так важно. Если на репетициях, всех музыкантов прет какой-то рифф или кусок музыкальной фразы, то все рамки и границы стилей для нас стираются. Пока нам нравиться играть то, что играем, а что будет дальше - посмотрим.</P>
+<P><STRONG>В: Можешь ли ты сравнить отечественный и европейский power-metal? Какую музыку вы в ТРОЕ слушаете? Стремитесь ли к фирменному европейскому или может даже американскому звучанию?</STRONG></P>
+<P>- С полной уверенностью могу сказать, что отечественный power-metal скоро станет европейским! :) А сравнивать пока рано, так как не все отечественные коллективы, которые можно было бы сравнить с европейскими, полностью расправили свои крылья. Слушаем мы в основном, конечно же, метал, во всех его направлениях и разновидностях, а так же классику и инструментальную музыку. К американскому звучанию точно не стремимся, а к европейскому по мере сил.</P>
+<P><STRONG>В: Вы выложили свой дебютный диск "Мир В Огне" в сеть ещё до релиза без потери качества. В чём причина этого оригинального решения? Сказалось ли это как-то на продажах? Рассчитываете ли вы, вообще, продавать ваши альбомы на физических носителях или будете и далее просто их выкладывать в свободном доступе?</STRONG></P>
+<P>- Причина в том, что мы не могли двигаться дальше, не засвидетельствовав миру свое первое творение, так как уже был материал на второй полноформатник и надо было отчитаться перед людьми, которые ждали этот альбом, за проделанную работу :). На продажах это сказалось - они выросли. Поэтому в дальнейшем будем и продавать и выкладывать в интернеты.</P>
+<P><STRONG>В: Вы принимали участие в конкурсе, организованном Андреем Ковалёвым "На Взлёт!". Как можете оценить его результаты? Чем вам он помог? Как вы к подобным конкурсам относитесь? Как вы относитесь к тому, чем занимается Ковалёв и его ПИЛИГРИМ? Нравится ли вам их музыка?</STRONG></P>
+<P>- Результат очень положительный для нашего коллектива, так как о нас узнало больше людей, и, стало быть, больше народу стало нас слушать. Я думаю, что если бы людям, имея возможности Андрея Аркадьевича, предложили бы делать то для молодых групп, что делает он (халявные базы, концерты и.т.д.), очень многие сочли бы это напрасной тратой времени, и поэтому очень уважаю его стремление вытащить российскую метал сцену на новый уровень, хотя бы давая группам в данном стиле возможность где-то засветиться. А на счет музыки, есть пару песен группы "Пилигрим", которые действительно хороши, но, в общем, их музыка мне не близка.</P>
+<P><STRONG>В: На что рассчитывает ТРОЯ в своей деятельности? У нас есть примеры мегапопулярных АРИИ и КИПЕЛОВА. Возможно ли молодым командам достичь подобных вершин? Или музыка для вас просто хобби?</STRONG></P>
+<P>- Достичь можно всего чего пожелаешь, главное этого действительно хотеть и предпринимать всё возможное для осуществления своих целей. Музыка для нас сама жизнь.</P>
+<P><STRONG>В: И о планах, как всегда. Что нас ждёт в ближайшем будущем? Когда будет альбом?</STRONG></P>
+<P>- В ближайшем будущем выйдет наш второй альбом под названием "Воздушные Замки". Планируется большая презентация сего релиза, а так же череда веселых и приятных сюрпризов!</P>
+Автор: Vit Belov
+
+### 16.10.2009 news ТРОЯ: обложка, треклист и первый интернет-сингл с нового альбома.
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.10/15283.jpg" width=400 align=right border=5>ТРОЯ</STRONG> предлагает вниманию слушателей обложку, трэк-лист и первый интернет-сингл с симоличным названием "<STRONG>Герой интернета</STRONG>" с нового альбома "<STRONG>Воздушные замки</STRONG>", который выйдет в самом ближайшем времени.</P>
+<P>01. <STRONG>Серые дни</STRONG><BR>02. <STRONG>Герой интернета</STRONG><BR>03. <STRONG>Воздушные замки<BR></STRONG>04. <STRONG>Формула счастья</STRONG><BR>05. <STRONG>Осень </STRONG>(инструментал)<BR>06. <STRONG>Позиция один</STRONG><BR>07. <STRONG>Крылья собственной веры</STRONG><BR>08. <STRONG>Умчаться вдаль</STRONG><BR>09. <STRONG>Где-то...<BR></STRONG>10. <STRONG>Брошенный рай<BR></STRONG>11. <STRONG>Поля у Атенрай</STRONG></P>
+<P>Ссылка: <A href="/ru/band/troja/15224/#samples">http://musica.mustdie.ru/ru/band/troja/15224/#samples</A></P>
+Автор: Vit Belov
+
+### 18.11.2009 news Ещё один трэк ТРОЯ
+
+<P>Москвоская группа <STRONG>ТРОЯ</STRONG> предлагает вниманию слушателей ещё одну песню с грядущего в скором времени нового альбома. Песня называется "<STRONG>Крылья собственной веры</STRONG>". В записи трэка принял участие вокалист группы<STRONG> НАТИСК Алексей Тышкевич</STRONG>. Помимо этого, <STRONG>Алексей</STRONG> записал весь вокал для песни "<STRONG>Где-то...</STRONG>", которая тоже войдёт в новый альбом.</P>
+<P>Новый альбом "<STRONG>Воздушные Замки</STRONG>" выйдет в декабре на<STRONG> Musica Production</STRONG>.</P>
+<P>Слушать здесь: <A href="/ru/band/troja/15224/#samples">http://musica.mustdie.ru/ru/band/troja/15224/#samples</A></P>
+Автор: Vit Belov
+
+### 26.12.2009 news Новогодние подарки от MUSICA Production
+
+<P><SPAN class=tit1>MUSICA PRODUCTION представляет</SPAN></P>
+<P><SPAN class=tit2>Новогодние подарки для всех любителей мелодичного метала</SPAN></P>
+<P><SPAN class=tit3><SPAN class=tit1><IMG height=295 alt="" hspace=0 src="/images/news_rus/2009.12/15860.jpg" width=300 align=right border=5></SPAN>Два новейших релиза </SPAN></P>
+<P><STRONG>MP038 BLACKTHORN "Аранеум</STRONG>"</P>
+<P>-sympho-gothic-metal; Великолепный дебют для всех любителей gothic-metal с женским вокалом. Группа, состоящая из одних (!!!!) девушек представляет незабываемый материал. Симфонические аранжировки и мрачная атмосфера, чарующий голос и мистическая русскоязычная лирика. Запись <STRONG>EM-Sound</STRONG> и <STRONG>Зверинец</STRONG>. При участии <STRONG>Алексея Арзамазова (SHADOW HOST)</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Где под вуалью тонких паутин в бессмертниках стоит твоя гробница</STRONG><BR>2. <STRONG>Одем<BR></STRONG>3. <STRONG>Некроманс</STRONG><BR>4. <STRONG>Чары Безумной Луны</STRONG><BR>5. <STRONG>Сатурния</STRONG><BR>6. <STRONG>Терновая Зима<BR></STRONG>7. <STRONG>Таящийся во тьме<BR></STRONG>8. <STRONG>Аранеум<BR></STRONG>9. <STRONG>Блуждающий Огонь</STRONG><BR>10. <STRONG>И тишь падёт на лес как саван белоснежный</STRONG></P>
+<P>MySpace: <A href="http://myspace.com/blackthornian">http://myspace.com/blackthornian</A></P>
+<P><STRONG><IMG height=293 alt="" hspace=0 src="/images/news_rus/2009.12/15861.jpg" width=300 align=left border=5>MP039 ТРОЯ "Воздушные Замки"</STRONG></P>
+<P>-power-metal; Второй альбом отечественной группы<STRONG> ТРОЯ,</STRONG> который заявляет о своих претензиях&nbsp;на лидерство в "трудном" жанре русскоязычного heavy-power-metal. Зажигательные мелодии, отличная вокальная работа и разнообразные материал. Настоящий подарок для всех любителей подобной музыки. Запись <STRONG>KIV Records</STRONG>. При участии <STRONG>Алексея Тышкевича</STRONG> и <STRONG>Андрея Малиновского</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Серые Дни</STRONG><BR>2. <STRONG>Герой интернета</STRONG><BR>3. <STRONG>Воздушные замки</STRONG><BR>4. <STRONG>Формула счастья</STRONG><BR>5. <STRONG>Осень </STRONG>(инструментал)<BR>6. <STRONG>Позиция один</STRONG><BR>7. <STRONG>Крылья собственной веры</STRONG><BR>8. <STRONG>Умчаться вдаль<BR></STRONG>9. <STRONG>Где-то...</STRONG><BR>10. <STRONG>Брошенный рай</STRONG><BR>11. <STRONG>Поля у Атенрай</STRONG></P>
+<P>MySpace: <A href="http://myspace.com/troyrus">http://myspace.com/troyrus</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru">http://mp.musica.mustdie.ru</A></P>
+<P>Все наши диски, а так же диски нашей дистрибьюции всегда без проблем можно приобрести в нашем Интренет-магазине: <A href="/ru/shop/">http://musica.mustdie.ru/ru/shop/</A></P>
+Автор: Vit Belov
+
+### 25.07.2010 news ТРОЯ расстались с вокалистом
+
+<P><IMG height=479 alt="" hspace=0 src="/images/news_rus/2010.07/16945.jpg" width=359 align=right border=5>Группа<STRONG> ТРОЯ</STRONG> и вокалист <STRONG>Дмитрий Аргенто</STRONG> прекратили совместную деятельность. К сожалению, переезд <STRONG>Аргенто</STRONG> на постоянное проживание в ныне тропический город Санкт-Петербург сильно затруднил активную концертную деятельность, а с появлением перспективы написания материала к третьему полноформатному альбому, а также записи оного, проблемы только усугубились. В итоге, музыканты решили не осложнять друг другу жизнь и разойтись.</P>
+<P>Два первых альбома <STRONG>ТРОЯ "Мир В Огне"</STRONG> и<STRONG> "Воздушные Замки"</STRONG> вышли на<STRONG> MUSICA Production</STRONG> и их можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+### 11.07.2011 news ТРОЯ недосчитались музыкантов
+
+<P>Московскую melodic-metal команду<STRONG> ТРОЯ</STRONG> по личным причинам покинули басист <STRONG>Константин Сидельников</STRONG> и вокалист <STRONG>Алексей Тышкевич (НАТИСК)</STRONG>. По заявлениям оставшихся участников группы, несмотря на это, отмен концертов не будет и новый, третий по счёту, альбом группы выйдет, как и планировалось, в текущем году.</P>
+<P>Первый два альбома<STRONG> ТРОЯ "Мир В Огне"</STRONG> и <STRONG>"Воздушные Замки"</STRONG> вышли на <STRONG>MUSICA Production</STRONG> и доступны в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P><center><IMG height=293 src="/images/news_rus/2011.07/20063.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

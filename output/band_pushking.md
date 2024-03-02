@@ -72,6 +72,33 @@ Fabrizio Grossi - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2009 news PUSHKING выпустят дуэты
+
+<P>Отечественная hard-rock группа <STRONG>PUSHKING</STRONG> сообщила о выпуске нового альбома "<STRONG>Pushking - Duets</STRONG>", на котором группа перепоёт свои песни в компании с известнейшими вокалистами мировой сцены. Среди участников этого проекта: <STRONG>Glenn Hughes, Jorn Lande, Joe Bonamassa, John Lawton, Alice Cooper, Jeff Scott Soto, Eric Martin, Steve Lukather</STRONG>, <STRONG>Dan McCafferty</STRONG>, <STRONG>Graham Bonnet</STRONG>, <STRONG>Joe Lynn Turner</STRONG> и <STRONG>Udo Dirkschneider</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.01.2011 news Billy F. Gibbons и Nuno Bettencourt в клипе PUSHKING
+
+<P>Отечественная группа<STRONG> PUSHKING</STRONG> вновь собирается порадовать поклонников мелодичного hard-rock по всему миру. Новый альбом коллектива <STRONG>"The World As We Love It" </STRONG>выйдет 1 февраля на <STRONG>Eagle Rock</STRONG>. Пластинка представит перезаписанные версии хитов<STRONG> PUSHKING</STRONG> с участием массы приглашённых звёзд мировой рок-музыки. Вот их список: <STRONG>Paul Stanley</STRONG> (<B>KISS</B>), <B>Billy F. Gibbons</B> (<B>ZZ TOP</B>), <B>Alice Cooper</B>, <B>Steve Vai</B>, <B>Glenn Hughes</B> (<B>DEEP PURPLE</B>), <B>Joe Lynn Turner</B> (<B>RAINBOW</B>), <B>Keri Kelli</B> (<B>ALICE COOPER</B>), <B>Steve Stevens</B> (<B>BILLY IDOL</B>)&nbsp;и <B>Nuno Bettencourt</B> (<B>EXTREME</B>). Прод.сером альбома выступил <STRONG>Fabrizio Grossi</STRONG> (<B>GLENN HUGHES</B>, <B>ALICE COOPER</B>, <B>DAVE NAVARRO</B>, <B>TOTO</B>).</P>
+<P>Ниже можно увидеть видео-клип на песню <STRONG>"It'll Be OK", </STRONG>в съёмках которого приняли участие певец <STRONG>ZZ TOP</STRONG> <STRONG>Billy F. Gibbons</STRONG>&nbsp;и гитарист<STRONG> EXTREME</STRONG>&nbsp;<B>Nuno Bettencourt.</B></P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/dnOInTFOwD4&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/dnOInTFOwD4&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.02.2011 reviews Последний и бронебойный выстрел PUSHKING
+
+<P>Группу из Санкт-Петербурга PUSHKING можно смело называть «динозаврами советской тяжёлой музыки». Пускай коллектив был образован, когда СССР уже был разрушен, методы раскрутки PUSHKING очень схожи с&nbsp; продюсированием самых успешных на Западе советских проектов ПАРК ГОРЬКОГО и КРУИЗ. Стоит отметить, что PUSHKING изначально ориентировались на зарубежного слушателя. Практически сразу коллектив получил локальную известность в Европе, но до успеха аутентичных советских рок-коллективов музыканты явно не дотягивали.</P>
+<P>Интересно, что это не остановило лидера PUSHKING Коху Шустарева. С переменным успехом питерская группа просуществовала до сегодняшнего дня. В 2007 году музыканты выпустили рок-сюиту “Freddie”, посвящённую вокалисту QUEEN Freddie Mercury. Этот релиз должен был стать знаковым в истории PUSHKING, но не стал. По крайней мере, в нашей стране. И вот в прошлом году музыканты зарядили в свои орудия всё, что осталось в арсеналах, и сделали последний и решающий рывок к общемировой популярности. Альбом “The World As We Love It”, вышедший в этом году, должен разнести имя PUSHKING по всему свету. Прямо на обложке этой пластинки указаны имена, которые приведут в трепет всех фэнов hard-rock: Paul Stanley, Billy F. Gibbons, Alice Cooper, Glenn Hughes, Jorn Lande и ещё несколько десятков монстров, вошедших в историю мировой музыки. Все эти музыканты помогли переписать лучшие хиты PUSHKING. Теперь даже ненавистники отечественного производителя будут вынуждены послушать альбом PUSHKING.</P>
+<P>Несколько слов о музыке. Питерская группа играет американизированный мелодичный hard-rock с изрядной долей glam-rock. Такая музыка приводила всех в восторг на рубеже 80-х и 90-х, её некоторая легковесность компенсировалась «хитовостью» материала. PUSHKING заняли своими песнями CD под завязку. К сожалению, хитов на 78 минут им не хватает. Минут 30 очень хороших песен PUSHKING записать удалось бы, но почти 80 минут звучания это лишнее. Несколько баллад очень легко было бы выкинуть из середины альбома. </P>
+<P>Безусловно, приятно, что наши музыканты сотрудничают с такими монстрами рока, но отделаться от странного чувства мне не удалось. Кажется, что большинство этих звёзд не знали о такой группе как PUSHKING даже во время записи. Это как Tony Iommi, играющий на юбилее группы ЗЕМЛЯНЕ. Он улыбается, кланяется, даёт интервью на Первом Канале, но песню «Трава у Дома» он никогда не слышал.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

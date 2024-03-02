@@ -172,6 +172,30 @@ copies, special vinyl remix + 20-page full-colour booklet
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.10.2008 news BULLDOZER возвращаются
+
+<P>Вновь собравшиеся <STRONG>BULLDOZER</STRONG> заключили контракт с <STRONG>Scarlet Records</STRONG> на выпуск в апреле нового альбома <STRONG>"Unexpected Fate". </STRONG></P>
+Автор: Vit Belov
+
+### 01.05.2009 news Обложка нового альбома BULLDOZER!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=450 alt="" hspace=5 src="/images/news_rus/2009.05/14046.jpg" width=451 align=right vspace=5 border=0>Стала доступна обложка нового альбома итальянцев <STRONG>BULLDOZER</STRONG>! </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск <STRONG>"Unexpected Fate",</STRONG>&nbsp;возродившихся в прошлом году трэшеров, должен выйти в течении мая на <STRONG>Scarlet Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэк-лист альбома:</FONT></P>
+<P>1. Unexpected Fate<BR>2. Aces Of Blasphemy<BR>3. Salvation For Sale<BR>4. Use Your Brain<BR>5. Micro VIP<BR>6. Bastards<BR>7. Buried Alive By Thrash<BR>8. The Counter-Crusade<BR>9. The Prediction<BR>10. In The Name</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа на данный момент состоит из двух оригинальных участников - басист/вокалист <STRONG>Alberto Contini</STRONG>, гитарист <FONT color=#ddd9d0><STRONG>Andy Panigada</STRONG>&nbsp;и новичка за барабанами по имени</FONT></FONT>&nbsp;<B itxtvisited="1">Manu</B> (ex-<B itxtvisited="1">DEATH MECHANISM</B>).</P>
+Автор: Headcrusher
+
+### 18.05.2010 reviews BULLDOZER по-прежнему мощный
+
+<P>Итальянская thrash metal группа BULLDOZER возродилась несколько лет назад практически в оригинальном составе. Все выжившие участники записи первого альбома гитарист Andy Panigada и вокалист-басист AC Wild, пригласив нового барабанщика, наглядно показали, как надо играть подобную музыку, не задумываясь о трэндах.</P>
+<P>“Unexpected Fate” безумно мрачен, а забой, свойственный подобным группам в 80-е, ощущается практически физически. Здесь нет сверхзапоминающихся мелодий или филигранных соло. BULLDOZER возрождались совсем не для этого. Музыканты решили просто отыграть несколько тем, которые заставят слушателя вступить в неравный бой с силой тяжести, попрыгать, энергично покивать головой, состроить ужасную рожу, массируя правой рукой живот в попытке имитировать действия гитариста. С этой задачей группа справилась на отлично. Не думаю, что итальянцев ждёт славное будущее. Скорее всего, группа вновь развалится, выпустив несколько альбомов. Понятно, что этот thrash-metal никому сейчас не нужен, но любить его нам не запретишь.</P>
+<P>Отличный альбом для всех любителей old-school звучания. BULLDOZER напомнили всем, для чего изобретался стиль thrash-metal.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

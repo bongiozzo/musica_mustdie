@@ -101,6 +101,38 @@
 
 * C группой "Adnauseam" Steve Goldberg, Zac Joe
 
+## Публикации
+
+### 09.10.2009 news Новое видео CEPHALIC CARNAGE
+
+<P>Новое видео <STRONG>CEPHALIC CARNAGE</STRONG> на песню <STRONG>"Vaporized" </STRONG>можно посмотреть ниже. Клип был снят <STRONG>Brian Kotal</STRONG> из <B>SILENCER</B>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/f7nTENPKStg&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/f7nTENPKStg&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.05.2010 news CEPHALIC CARNAGE начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CEPHALIC CARNAGE</STRONG> начали запись нового альбома на своей собственной студии с продюсером <STRONG>Dave Otero</STRONG>.<STRONG> </STRONG>Пластинка выйдет на <STRONG>Relapse Records</STRONG> осенью.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские techno-grindcore'щики приезжали в Москву 23 февраля 2009 года. Фоторепортаж об их выступлении можно посмотреть здесь: <A href="/ru/galleries/1/298/">http://musica.mustdie.ru/ru/galleries/1/298/</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущий студийный альбом группы <STRONG>"Xenosapien" </STRONG>вышел на <STRONG>Relapse/Irond</STRONG> в 2007 году. Российский тираж пластинки уже давно распродан. На лицензионных компакт-дисках доступны остаются три издания <STRONG>CEPHALIC CARNAGE</STRONG>: первый альбом "<STRONG>Conforming Of Abnormality</STRONG>" на <STRONG>Irond</STRONG>, Второй альбом "<STRONG>Exploiting Dysfunction</STRONG>" и третий альбом "<STRONG>Lucid Interval</STRONG>" на <STRONG>Mazzar Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 28.06.2010 news CEPHALIC CARNAGE: Misled By Certainty.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.06/16863.jpg" width=362 height=362>Дес/грайндеры из Денвера <B>CEPHALIC CARNAGE</B> назвали свой новый альбом <B>«Misled By Certainty»</B>. Его выпуск намечен на 31 августа на <B>Relapse Records</B>. Диск был записан на собственной студии группы с режиссёром и продюсером <STRONG>Дейвом Отеро</STRONG> (Dave Otero).</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Headcrusher
+
+### 26.08.2010 news Новый альбом CEPHALIC CARNAGE на MySpace
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>CEPHALIC CARNAGE</STRONG> <STRONG>"Misled By Certainty" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/cephaliccarnage">http://www.myspace.com/cephaliccarnage</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пластинка выйдет 31 августа на <STRONG>Relapse Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Cephalic Carnage - Xenosapien 2007

@@ -392,6 +392,338 @@ First 2000 copies are in transparent red jewel cases.
 * C группой "Diabolos Rising" Mika Luttinen
 * C группой "Raism" Mika Luttinen
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Новый альбом Sodom будет называться "Code Red" и выйдет 17 мая. На альбоме будет 12 песен плюс бонус-кавер на песню Accept "I'm a Rebel". В паре с этим альбомом выйдет трибьют к самой группе "Homage To The Gods". На работе засветятся Cradle Of Filth, Impaled Nazarene, Dark Funeral, Atanatos, Enthroned, Brutal Truth и другие.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Новый сплит на виниле выйдет в октябре. Это будет совместное творчество Driller Killer и Impaled Nazarene.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Impaled Nazarene выпустят новый альбом "Nihil" в январе 2000 года.</p>
+
+Автор: Vit Belov
+
+### 23.06.2000 news IMPALED NAZARENE Video Banned!!!!
+
+<p>Osmose Records: IMPALED NAZARENE new promo video Cogito Ergo Sum was banned right away in Finland. The TV producers of the music program Jyrki couldn' t handle the subject matter of the video, snuff films. The band has the following to say : "This is bullshit, again we see the modern society going backwards. All the images in the said video are subliminal and we feel it should have been broadcasted without any trouble". Soviet Finland Perkele anyone?????</p>
+
+Автор: Vit Belov
+
+### 26.06.2000 news Видео Impaled Nazarene запретили в Финляндии.
+
+<p>Промо-видео Impaled nazarene "Cogito Ergo Sum" запретили в Финляндии. Группа была очень недовольна, выражалась нецензурно и обвиняла продюсеров в том, что они насаждают обычаи СССР.</p>
+
+Автор: Vit Belov
+
+### 02.12.2000 news Лейбл Osmose Records анонсировал выход нового диска Impaled Nazarene
+
+<p> Лейбл Osmose Records анонсировал выход нового диска Impaled Nazarene - сборника редкого и ранее не издававшегося материала. На "Decade Of Decadence" войдут вещи с демо группы под названием "Shemhamforash", "Goat Preversion" EP, 4 не изданные ранее песни и др.</p>
+
+Автор: Nybras
+
+### 02.12.2000 news Osmose Records announces a compilation of rare material of Impaled Nazarene
+
+<p> Osmose Records announces a compilation of rare material of Impaled Nazarene: To celebrate 10 years of Impaled Nazarene, we proudly presents Decade Of Decadence. The CD include the very rare Shemhamforash demo, four unreleased studio songs, Goat Preversion EP, ect.</p>
+
+Автор: Nybras
+
+### 16.04.2001 news Отсутствие войны не означает мира....
+
+<p>Финские "Назаретяне" произвели существенную перестановку кадров. На смену бассисту Jani Lehtosaari и гитаристу Alexi Laiho ("CHILDREN OF BODOM") рекрутированы Mikael Arnkil и Teemu Raimoranta. Также команда перезаключила контракт с Osmose Productions на выход еще двух альбомов и сейчас готовит материал для очередного (седьмого по счету) студийного творения "Absence Of War Does Not Mean Peace". На него войдут следующие песни: 01. Absence Of War Does Not Mean Peace 02. The Madness Behind 03. Never Forgive 04. The Lost Art Of Goat Sacrificing 05. Nyrkill&auml; Tapettava Huora 06. Prequel To Bleeding (Angels III). В июле поклонники Иисуса садятся в Astia Studio с продюссером Mikko Karmila (STRATOVARIUS, NIGHTWISH, CHILDREN OF BODOM). Ожидаемая дата выхода - Октябрь.</p>
+
+Автор: Yermola
+
+### 16.04.2001 news IMPALED NAZARENE news...
+
+<p> Finland's IMPALED NAZARENE have canceled their scheduled appearance at Cortina Metal Festival in Sweden on May 26th "due to the insane nature of the event / contract. The festival is alcohol-free (including bands / backstage!!), and that alone means it's impossible to be in there for the band + the advance ticket sales are not looking too promising either...so forget, we ain't no STRYPER, damnit!!"</p>
+<p> In other IMPALED NAZARENE news, the band have replaced bassist Jani Lehtosaari and guitarist Alexi Laiho with Mikael Arnkil and Teemu Raimoranta, respectively. The band have also re-signed with Osmose Productions for two more albums, and currently busy rehearsing and writing material for their seventh studio album, tentatively titled Absence Of War Does Not Mean Peace. Working song titles include the following:</p>
+<p></p>
+<p> 01. Absence Of War Does Not Mean Peace</p>
+<p></p>
+<p> 02. The Madness Behind</p>
+<p></p>
+<p> 03. Never Forgive</p>
+<p></p>
+<p> 04. The Lost Art Of Goat Sacrificing</p>
+<p></p>
+<p> 05. Nyrkillд Tapettava Huora</p>
+<p></p>
+<p> 06. Prequel To Bleeding (Angels III)</p>
+<p></p>
+<p> If everything goes according to plan, IMPALED NAZARENE will enter Astia Studio in late July to record the new album, and it will be mixed a short time later at Finnvox Studio by Mikko Karmila (STRATOVARIUS, NIGHTWISH, CHILDREN OF BODOM). An early October release is expected. Source: BLABBERMOUTH.NET</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 09.08.2001 news Новый альбом Impaled Nazarene почти готов
+
+<p> Запись нового шедевра Impaled Nazarene подходит к концу. Седьмой студийный альбом "Absence Of War Does Not Mean Peace" выйдет 5-го ноября 2001 года на Osmose Productions.</p>
+
+Автор: Morsus
+
+### 09.08.2001 news The new Impaled Nazarene album are almost done
+
+<p> Recordings for the new Impaled Nazarene album are almost done. Seventh studio album "Absence Of War Does Not Mean Peace" will be released on 5th of November 2001 through Osmose Productions.</p>
+
+Автор: Morsus
+
+### 17.09.2001 news &quot;Absence Of War&quot;  на прилавках с первого октября...
+
+<p>Уточнена дата появления в продаже "Absence Of War Does Not Mean Peace" от "IMPALED NAZARENE". Через Spinefarm Records альбом появится уже первого октября, а на Osmose Productions, как уже сообщалось он выйдет 5-го ноября. Окончательный трек-лист: 01. Stratagem 02. Absence Of War Does Not Mean Peace 03. The Lost Art Of Goat Sacrificing 04. Prequel To Bleeding 05. Hard Boiled And Still Hellbound 06. Into The Eye Of Storm 07. Before The Fallout 08. Humble Fuck Of Death 09. Via Dolorosa 10. Nyrkill&auml; Tapettava Huora 11. Never Forgive 12. Satan Wants You Dead 13. The Madness Behind...</p>
+
+Автор: Yermola
+
+### 17.09.2001 news IMPALED NAZARENE will be releasing their brand ...
+
+<p>Finland’s IMPALED NAZARENE will be releasing their brand new studio opus, entitled Absence Of War Does Not Mean Peace, on October 1st in Finland via Spinefarm Records and November 5th in the rest of the world (through Osmose Productions). The full track listing for the album is as follows: 01. Stratagem 02. Absence Of War Does Not Mean Peace 03. The Lost Art Of Goat Sacrificing 04. Prequel To Bleeding 05. Hard Boiled And Still Hellbound 06. Into The Eye Of Storm 07. Before The Fallout 08. Humble Fuck Of Death 09. Via Dolorosa 10. Nyrkillд Tapettava Huora 11. Never Forgive 12. Satan Wants You Dead 13. The Madness Behind Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 14.01.2002 news Видео IMPALED NAZARENE....
+
+<p><A HREF="http://personal.inet.fi/musiikki/arc/hardboiled/impnaz_hellbound.mpeg">Здесь </A>вы можете скачать видеоклип снятый на песню IMPALED NAZARENE - "Hardboiled And Still Hellbound"...<BR><BR> Из других новостей, группа в конце февраля запишет ЕР "To Fuck Off And Die" и после этого отправится с гастролями в Россию (!), Италию и Португалию.</p>
+
+Автор: Yermola
+
+### 14.01.2002 news IMPALED NAZARENE&#39;s &quot;Hardboiled And Still Hellbound&quot; download...
+
+<p>There's a high quality video clip of IMPALED NAZARENE's "Hardboiled And Still Hellbound" downloadable from <A HREF="http://www.sfperkele.net/vkvideo.html">here...</A> IMPALED NAZARENE will record a brand new 7"EP titled To Fuck Off And Die tentatively the end of February. The band will have a couple of shows coming up in Russia, Italy and Portugal, please visit www.impnaz.com for further details.</p>
+
+Автор: Yermola
+
+### 11.03.2002 reviews Пособие для начинающих извращенцев
+
+<p> Мда, альбомчик получился интересный. Гитарки жужжат, барабанчики стучат, Луттинен визжит всякие пристойности. Занятно даже. Честно говоря, из всей дискографии Impaled Nazarene слышал только последнее их творение, но и этого вполне хватило. Обещанный satanic black metal, крышеносный и запородробительный - это не про Absence Of War... Я так и не понял, где там блэк вообще. Что-то притрэшованное до безобразия, от блэка разве что вокал Мики остался (или так всегда и было?)... Тем более, что под такую музычку хочется только пиво ПИТ и водку ЖРАТ. О том, чтобы пойти в лес и прикопать очередной монашеский трупец речь даже не идет... В общем с музыкой более-менее разобрались. Тексты? О, тексты!!! Пик луттиненовского излияния души. Сплошные fuck, cock, suck и размышления на тему "As I masturbate in front of the mirror..." Простенько, но со вкусом. </p>
+<p> В общем тем, кто ждет от этого альбома месилова в духе последнего Dark Funeral, советую поэкономить деньжата, а остальные-вперед. Вибратор ждет, хе-хе... </p>
+
+Автор: Blackvdaergl
+
+### 09.04.2002 articles Soumi Finland Perkele: Finntroll и Impaled Nazarene в Москве
+
+<P> <img src="/images/articles_rus/2002.04/2584.jpg" width="210" height="258" align="left" vspace="10"> Обе команды &ndash; и Finntroll, и Impaled Nazarene приехали к нам не впервые. Impaled Nazarene выступали в Петербурге в апреле 1998 года вместе с Children Of Bodom, Finntroll также играли в северной столице 5 мая прошлого года. У обеих команд есть в России своя аудитория, но точно можно сказать &ndash; почитателей Finntroll на концерте в ДК МАИ было больше. Видимо, всё дело в финской хумппе, так по душе пришедшейся русскому слушателю, в сочетании с непосредственным угаром и весельем.</P></>
+<P>Шоу началось ещё в фойе, где узнаваемый с первого взгляда лысый Мика Луттинен, фронтмэн Impaled Nazarene, фотографировался со всеми желающими, строя похабные рожи и демонстрируя неприличные жесты, раздавал автографы, расписываясь на буклетах, на билетах, на обрывках бумаги, на руках, на животах и вообще на чём попало. Хоть внешне он и вполне приличный, невысокого роста, немного застенчивый парень, но что-то в его облике и взгляде сквозило такое, что становилось ясно, отчётливо ясно &ndash; у этого человека ничего святого нет. Сущий чёрт!</P></>
+<P>Между тем, наверху уже начинался концерт. На сцену взобрались лохматые тролли и с ходу, без долгих предисловий, принялись выдавать энергичный плясовой хумппа-металл. Публика плотной волной зашевелилась и запрыгала в такт, причём не только первые ряды, но почти до самой задней стенки зала. Катла, мотая башкой из стороны в сторону словно дикий боров, заводил народ. Жаль, но голос его пока не восстановился после операции и звучал заметно слабее, чем на прошлогоднем выступлении в Петербурге и чем в студийной записи. Те, кто не слышал альбомов Finntroll и не был на питерском концерте, могли этого и не заметить, настолько угарным был Катла и настолько компенсировал он потери в вокале безумными перемещениями по сцене и постоянным ритмичным скандированием: "Хэй! Хэй!". Somnium, переглядываясь с Катлой, довольный обилием народа и столь тёплым приёмом, подхватывал речёвку и поддерживал угар. Но, пожалуй, с технической стороны лучше всех показал себя клавишник Trollhorn. Все хумпповые плясовые заморочки, фирменный стиль Finntroll, были исполнены великолепно. Менее заметны были гитары, иногда их и вовсе не было слышно. Местами пропадал даже вокал. Да, ценители качественного звука остались разочарованными. Зато любители попрыгать перед сценой и поугарать получили всё, что хотели. Сет-лист выступления в основном был построен на вещах с последнего альбома и нескольких песнях с первого. Ничего нового, к сожалению, сыграно не было, как будто за год, прошедший с прошлого концерта в России, парни ничего не написали. Отыграв около часа, усталые Finntroll'и сошли со сцены, уступив место Impaled Nazarene.</P></>
+<P>Многие после Finntroll покинули ДК МАИ и ряды публики поредели. Напрасно. Впереди ещё ждало немало интересного. Музыка у этих злобных богохульников прямая, бескомпромиссная. Может даже показаться, что песни все похожи одна на другую с минимальными отличиями. Чумовой бульдозерный блэк. Звук на Impaled Nazarene стал немного получше, но всё равно весьма далёк от идеального и даже от хорошего. Но что сразу бросалось в глаза &ndash; это заметно более высокий профессиональный уровень по сравнению с предыдущей командой. Как ни хороши и ни близки нам по духу тролли, но опыт музыкантов Impaled Nazarene и слаженность команды видны во всём. Обязательно стоит отметить вокал Мики Луттинена &ndash; феноменальный, мощный, орёт так, что просто жутко становится. При том, что в Impaled Nazarene все достойные музыканты, Мика &ndash; безусловный лидер, шоумен и, прежде всего, его поведение на сцене заряжает публику. В составе Impaled Nazarene засветился и один из троллей &ndash; Somnium. Попал он туда вполне обычно. "Позвонили и попросили сыграть, ну я и согласился", &ndash; пояснил Somnium уже после концерта.</P></>
+<P>Завершилось выступление весьма неожиданно и экстремально. Когда всё уже подходило к концу и не предвещало неожиданностей, Мика стащил с себя ботинки, носки... и пока все силились понять смысл происходящего, в одно мгновение остался совершенно без ничего. Голый, бледнокожий, продолжал ходить по сцене и орать песни. Мало того, и остальные музыканты, продолжая играть, поскидывали с себя одежду. И так, голышом, доиграли до конца. Somnium тоже, хоть и с видимой неохотой, принял участие в этом болт-шоу. А как же, назвался груздем &ndash; полезай в кузов. Даже звукорежиссёр не остался в стороне от перформанса. Один только барабанщик так и не показал, что у него спрятано под штанами. Прикольно, но вот если бы в команде были девушки... нет, если бы вся группа состояла из девушек... вот это дааа... это было бы дело. А так-то что.</P></>
+<P>По окончании концерта в зале началась попсовая дискотека, а в гримёрке продолжилось спонтанное общение, раздача автографов, фотографирование на память. Охотнее всего общался с народом звукорежиссёр Impaled Nazarene, большой и добродушный мужик со смешным ником Kurva Bicha. Звуком он остался недоволен. Да, всё было говно. Но, впрочем, он по ходу дела уже был изрядно выпимши и не придавал этому слишком большого значения. Кстати, этот же мужик делал звук на концерте Nightwish и ещё многим другим группам. Звукорежиссёр Finntroll, он же вебмастер официального сайта, на вопросы о качестве звука отвечал, что клавиши выведены вперёд намеренно, поскольку именно так должна звучать музыка группы, как он это понимает. Ну а вообще конечно же, с гитарами вышла фигня в силу разных технических причин. В целом же общее мнение таково, что ведь не в консерваторию же все пришли. Концерт состоялся и угар получился нешуточный &ndash; а это главное.</P></>
+<P>Ну а затем, вместо того чтобы спокойно отправиться домой, как обычно меня понесло... зачем-то поехал с троллями в гостиницу на какой-то теплоход, пришвартованный к причалу на Москве-реке. Бар в каюте. Водка, пиво, жареная курятина. Ох и весёлый же они народ, эти финны. Поначалу ещё сохраняли остатки приличия, ну а потом, переместившись из бара в фойе, дебоширили до семи утра. Беспрерывно пили. Научились говорить нужные русские слова "жопа", "пидор" и тому подобные. Опрокинули все кресла. В общем, развлекались весело и непринуждённо. И ещё знаете, это такой смешной звук получается, когда пакет с чипсами попадает прямо по лысой голове. Как говорится, не пытайтесь это повторить в домашних условиях.</P></>
+<p>Благодарю всех мастдайцев, пришедших на концерт, за компанию. Сергею "Sarquanaar" и Маше отдельное спасибо за "ночь с финнтроллями". И конечно же, самые большие благодарности организаторам концерта Fono Ltd., без которых бы вообще ничего не состоялось.</p>
+
+Автор: Morsus
+
+### 28.09.2002 news Новости от IMPALED NAZARENE
+
+<p>Финские экстремальные металлисты IMPALED NAZARENE начнут запись своего нового восьмого альбома в Astia studio с продюссером Anssi Kippo. Выход альбома намечен на конец лета 2003 года.</p>
+
+Автор: Dimas
+
+### 19.03.2003 news Смерть гитариста FINNTROLL &#x2F; IMPALED NAZARENE ...
+
+<p>В воскресенье 16 марта в возрасте 25 лет скончался гитарист FINNTROLL / IMPALED NAZARENE Teemu "Somnium" Raimoranta. Косвенной причиной смерти явился алкоголь. Сейчас оставшиеся FINNTROLL'цы завершают работу над аккустическим диском "Visor Om Slutet". Вопрос о европейском туре с KATATONIA пока остается открытым.</p>
+
+Автор: Yermola
+
+### 19.03.2003 news FINNTROLL Guitarist&#39;s Death Alcohol-Related ...
+
+<p>FINNTROLL/IMPALED NAZARENE guitarist Teemu "Somnium" Raimoranta died Sunday morning (March 16) of injuries sustained in an alcohol-related accidental fall, it has been officially announced. Teemu was 25 years old.<BR><BR> As previously reported, FINNTROLL recently completed work on an "acoustic/experimental" CD, titled "Visor Om Slutet" (the group's first with new singer Tapio Wilska), and were set to embark on a European tour next month with KATATONIA. It is not presently clear if the band will proceed with their touring plans in light of Somnium's passing.</p>
+
+Автор: Yermola
+
+### 21.03.2003 news Финляндия скорбит по Сомниуму...
+
+<p>Финская крупнейшай газета Helsingin Sanomat сообщает, что в течение последних нескольких дней на хельсинкском мосту Pitkasilta наблюдается "море свечей" в память о Теему "Сомниум" Раиморанта. Гитарист Finntroll и Impaled Nazarene упал с этого моста на лёд, будучи в состоянии алкогольного опьянения. Друзья умершего планируют концерт памяти Сомниума, который состоится 25 марта в Хельсинки. Будут участвовать: Barathrum, Ensiferum, Impaled Nazarene, Finntroll. Также возможно выступление Children Of Bodom, но переговоры продолжаются. Билеты будут стоить 10 Евро, и вся выручка пойдёт семье погибшего. На концерте не будет продаваться алкоголь по просьбе матери Теему. Похороны состоятся 29 марта в Хельсинки.</p>
+
+Автор: Vit Belov
+
+### 21.03.2003 news Finland cries for Somnium
+
+<p>Helsingin Sanomat, Finland's biggest daily newspaper, reports in today's edition that "there has been a 'sea of candles' on Helsinki's Pitkдsilta (Long Bridge) during the last few days. All of them respect the memory of Teemu 'Somnium' Raimoranta.</p>
+<p> "FINNTROLL's and IMPALED NAZARENE's guitarist died when he fell from the bridge into the ice."</p>
+<p> More details have emerged about the memorial concert for FINNTROLL/IMPALED NAZARENE guitarist Teemu "Somnium" Raimoranta, who died Sunday morning (March 16) from injuries sustained in an accidental fall he took while intoxicated.</p>
+<p> The gig will take place on Tuesday, March 25 at Nosturi in Helsinki and will feature the following lineup:</p>
+<p> 09:00 p.m. BARATHRUM<br> 10:00 p.m. ENSIFERUM <br> 11:00 p.m. IMPALED NAZARENE<br> 12:00 a.m. FINNTROLL</p>
+<p>CHILDREN OF BODOM are rumored to be making an appearance as well, but their participation has yet to be officially confirmed. There will be a voluntary entrance fee of 10 euros, with all proceeds going to Teemu's family to cover various expenses. No alcohol will be sold at the event, at the request of Teemu's mother. Raimoranta's funeral will be held on Saturday, March 29 in Helsinki.</p>
+
+Автор: Vit Belov
+
+### 18.04.2003 news Impaled Nazarene: Всё, чего вы боитесь
+
+<p>Impaled Nazarene 1 июля идут в студию записывать продолжение нашумевшего релиза "Absence Of War Does Not Mean Pease". Альбом с названием "All That You Fear" станет восьмым полноформатником в дискографии группы. Записан он будет продюсером Anssi Kippo (Children Of Bodom) в студии Astia и смикширован Mikko Karmila (Nightwish, Stratovarius) в студии Finnvox. В записи альбома покажет себя новый гитарист команды Tuomo Louhio (ex-Antidote). "Это мощный чувак! Мы взяли его после первой же репетиции и это уже о многом говорит," - представил его Mikka Luttinen. Сейчас группа занимается сочинением нескольких последних песен для альбома. Уже готовы следующие вещи: "Suffer In Silence", "All That You Fear", "Kohta Ei Naura Enaa Jesuskaan" и "Urgent Need To Kill". По поводу будущего альбома Luttinen высказался оптимистично: "Я не могу дождаться, когда мы начнём запись этого нового материала, у нас действительно потрясающие песни. Больше разнообразия, больше агрессии, всё очень круто." Свежак "All That You Fear" выйдет на Osmose Productions в конце октября 2003 года.</p>
+
+Автор: Morsus
+
+### 18.04.2003 news Impaled Nazarene: All That You Fear
+
+<p>Impaled Nazarene will enter studio to record their follow-up to the highly acclaimed "Absence Of War Does Not Mean Pease" album on July 1st. "All That You Fear" will be Impaled Nazarene's 8th studio album and will be recorded by Anssi Kippo (Children Of Bodom) at Astia Studio and be mixed by Mikko Karmila (Nightwish, Stratovarius) at Finnvox studios. "All That You Fear" will feature the band's new lead guitarist Tuomo Louhio (ex-Antidote). The band is busy writing the last few songs for the album at the moment. Some song titles are: "Suffer In Silence", "All That You Fear", "Kohta Ei Naura Enaa Jesuskaan" & "Urgent Need To Kill". Says vocalist Luttinen: "I can't wait to record this new stuff, we have really killer songs ready and more are coming. More variety, more power, more everything." Of the new leader guitarist Tuomo, Luttinen says: "Well, this guy just kills. We had only one rehearsal with him and he got the job right away. That should tell you enough." "All That You Fear" will be out on Osmose Productions late October 2003.</p>
+
+Автор: Morsus
+
+### 17.07.2003 news IMPALED NAZARENE расскажут обо всех твоих страхах
+
+<p>Финская коммандос IMPALED NAZARENE завершила запись своего восьмого творения под названием "All That You Fear". Альбом был записан в Astia studios с продюсером Anssi Kippo (CHILDREN OF BODOM) и смикширован при участии Mikko Karmila (NIGHTWISH, STRATOVARIUS) в Finnvox studios. Альбом содержит тринадцать убойных вещей. Его выход запланирован в октябре на Osmose Productions.</p>
+
+Автор: Dimas
+
+### 12.01.2004 news Клип IMPALED NAZARENE выложен в сети
+
+<B>IMPALED NAZARENE</B>&nbsp;опубликовали видео&nbsp;<B>"Nyrkill&auml; Tapettava Huora"</B>&nbsp;с концерта 9-го января&nbsp;<A target=_blank href="http://www.impnaz.com/hardboiled/Impaled%20Nazarene%20-%20Nyrkill%20Tapettava%20Huora%20(live).avi"><U>здесь</U></A> (.avi format, approx. 22 MB). <BR>
+Автор: Uneral
+
+### 18.06.2004 reviews All that you fear?
+
+<I>
+<P align=justify>All that you fear? Прошу прощения, но это явно не ко мне. В смысле, у меня, как и у всех, есть свои страхи. Но IMPALED NAZARENE я как-то не боюсь. Равно как не испугало меня и содержимое этого альбома :-). К счастью ли, к сожалению, но со временем IMPALED NAZARENE стали слишком чистенькими, даже в своём роде прилизанными. Нет больше того панковского угара, панковского же раздолбайства, и прочая, и прочая. И если “Absence of War Doesn’t Mean Peace” немного удивили чуть ли не хэви-металлическими проходами, то во время прослушивания “All That You Fear” удивлению места не нашлось. Хороший, качественный, более чем узнаваемый блэк. В меру мелодичный, в меру бронебойный. Плюс - собственное лицо; IMPALED NAZARENE, пожалуй, не спутаешь ни с кем даже в абсолютно невменяемом состоянии. Минус - отсутствие у “All That You Fear” изюминки. Сути это всё равно не меняет: в меру хороший, крепкий альбом.</P><B>
+<P>Диск предоставлен компанией ФОНО</P></B></I>
+Автор: Kai Mathias Stalhammar
+
+### 19.06.2004 news Tuska Open Air in Finland
+
+The seventh annual Tuska Open Air Metal Festival has now confirmed its first artists for the 2004 festival. <BR><BR>The headliner for Saturday, the 17th of July, will be Nightwish, who will release their much-anticipated new album, "Once" in June. Nightwish will be mainly touring Europe and the United States next summer and their Tuska-performance is going to be one of their three finnish shows.<BR><BR>Another headliner at Tuska during 16.-18.7.2004 will be the legendary King Diamond. This pioneer of black metal has been touring the world for almost three decades, sold millions of records and inspired four generations of metalheads. Also appearing at Kaisaniemi Park are swedish melodic-deathmetal groups Soilwork and Dark Tranquility and german thrashers Dew-Scented.<BR><BR>Besides Nightwish, Tuska-festival will once again present the hottest finnish metal acts. During the weekend, performances by Impaled Nazarene, Sonata Arctica, Sinergy, Suburban Tribe, Mokoma, Kotiteollisuus and Timo Rautiainen & Trio Niskalaukaus will be taking place. The new generation of finnish metal will be represented by the highly acclaimed Swallow the Sun, Diablo, Machine Men, Kilpi and Twilightning.<BR><BR>Over the course of three days more than 30 bands will be appearing on three different stages. <BR><BR>In addition to the festival itself, the evening-clubs will entertain the festival crowd from Thursday through Sunday on four different locations. More than 30 up-and-coming acts will be performing in the evening-clubs, styles ranging from deathmetal to goth, industrial and cover-material.<BR><BR>Tickets for Tuska 2004 will go on sale in May through Tiketti (<A href="http://www.tiketti.fi/"><U>www.tiketti.fi</U></A>), Lippupalvelu (<A href="http://www.lippupalvelu.fi/"><U>www.lippupalvelu.fi</U></A>) and the new addition of Menolippu (<A href="http://www.menolippu.fi/"><U>www.menolippu.fi</U></A>). Tickets will also be available at selected record stores. Tuska 2004 is an all-ages festival.
+Автор: Vit Belov
+
+### 24.08.2004 articles ARMAGEDDON OVER RUSSIA TOUR 2004 IMPALED NAZARENE
+
+<B>
+<P align=center>Концертное агентство JC-SOUNDPROD. и METALKINGS.RU представляют:</P></B>
+<P align=center><B>30 октября 2004 г. в московском Р-клубе в рамках&nbsp; ARMAGEDDON OVER RUSSIA TOUR<SPAN> 2004 <BR></SPAN>состоится концерт известных финских брутальщиков&nbsp; </B>IMPALED NAZARENE</P>
+<P>Давным-давно, когда в Финляндии еще был «сухой закон», а Мика Луттинен носил хаер, холодным февралем 1991 года новоявленная команда IMPALED NAZARENE записала свое первое репетиционное демо подназванием Shemhamforash, а уже весной 1992 года представила написанный материал на первом в своей истории концерте. И не беда, что в зале было человек восемьдесят от силы. Начало тому грозному и бесшабашному коллективу, который мы знаем и любим, было положено. За почти 13-летнюю историю IMPALED NAZARENE были взлеты и падения, были альбомы, которые фэны превозносили до небес и называли культовыми, а были диски, которые критики втаптывали в грязь и требовали запретить к продаже. Были смены состава, сопровождавшиеся неизменным мордобоем и резкими заявлениями, были потери – в прошлом году ушел из жизни гитарист Сомниум. Но несгибаемая воля, неистребимая тяга к женщинам и алкоголю, нечеловеческая работоспособность и безграничный талант вывели этих горячих парней в десятку самых известных в мире финских коллективов. IMPALED NAZARENE – это то, чего вы боялись; это то, о чем вы не скажете своей маме; это то, от чего будет набожно креститься ваша бабушка; это то, что вы никогда не поставите в плейере своей девушке, это то, что принадлежит только вам. </P>
+<P>Итак, 30 октября в московском Р-клубе самая брутальная команда Финляндии IMPALED NAZARENE отыграет расширенный сет, включающий как композиции с нового альбома «All That You Fear», так и проверенные временем боевики. Разумеется, специально для российских фанатов готовятся сюрпризы. Приходите и взгляните в лицо своему страху. </P>
+<P>Концерт проходит при поддержке групп: </P>
+<P><B>РОГАТЫЕ ТРУПОЕДЫ, SEDUCER’S EMBRACE, THE NEVERLAND, DARK INFINITY</B></P>
+<P><B>По вопросам аккредитаций и прочим просьба обращаться: <A href="http://www.jcsound.ru/">http://www.jcsound.ru</A> 8-916-5543869 - Андрей</B></P>
+Автор: Дофф
+
+### 30.08.2004 news IMPALED NAZARENE запишут концертник. Не в России!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>IMPALED NAZARENE</STRONG> запишут концертный альбом с 17 по 19 сентября на трёх шоу в Италии вместе со своим звукоинженером <STRONG>Tapio Pennanen</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Мы празднуем 15-летие группы и решили записать best of live-CD. Мы отрепетировали 28-30 песен за весь период нашего существования</EM>", - пишет группа на своём сайте.</FONT></P>
+Автор: Vit Belov
+
+### 31.10.2004 articles IMPALED NAZARENE в Москве: сомнительное шоу
+
+<P>Событие: концерт IMPALED NAZARENE в Москве в рамках ‘Armageddon Over Russia Tour<BR>Участники: DARK INFINITY, THE NEVERLAND, SEDUCER’s EMBRACE, РОГАТЫЕ ТУРПОЕДЫ, IMPALED NAZARENE<BR>Организатор: JC Sound<BR>Место: Р-Клуб, Москва</P>
+<P>30 октября Москву вновь посетили финские маньяки-алкоголики IMPALED NAZARENE. Уже в первый раз их выступление запомнилось только массовым стриптизом на сцене СДК МАИ, поэтому изначально от этого концерта ждали, прежде всего, подобных представлений, а не музыкальных откровений. Ожидания оправдались лишь отчасти, но, как всегда, сначала.</P>
+<P>Вечер начался так же, как и закончился. Бездарно, но смешно. Black-metal коллектив DARK INFINITY нашёл деньги, чтобы выступить перед кумирами пьяной молодёжи, но не нашёл барабанщика. К сожалению, в Р-клубе не нашлось нужной аппаратуры, чтобы воспроизвести их MIDI, поэтому слушатели, пришедшие к началу в 17-00, могли увидеть уникальное выступление. True Black Metal без барабанов, вообще. Завораживающие звуки. Сразу хочется выть на луну и кого-то ударить (а может спалить церковь?). Вполне вероятно, это будущее стиля, и DARK INFINITY – первопроходцы. Скоро мы будем слушать блэкарей в корпс-пэйнте под одну гитару. А если серьёзно, то группе стоило отказаться от выступления, чем позориться в таком виде.</P>
+<P>В отличие от THE NEVERLAND, которых я слушаю в этом году регулярно, поэтому и пропускаю в отчёте, выступления SEDUCER’s EMBRACE проходили мимо меня последнее время. Что ж, группа сделала ощутимый шаг вперёд. Звук на этом выступлении SE был просто безупречным, а главное, новый материал. Более взрослый, более металлический. Это уже не просто набор мелодий, хороших и не очень, а построение композиции на уровне лучших авторов жанра. Приятно удивили несколько забойных вещей, которые уже можно сравнивать не с IN FLAMES, а с KATAKLYSM, например. Ждём новый альбом, который имеет все шансы при грамотной реализации. В качестве некоторого PS. Последний кавер на песню Nick Cave с Некрозавром в одной из ролей впечатляет, но в концовке не мешало бы добавить скорости и превратить её в death-metal. </P>
+<P>Сольник РОГАТЫХ ТРУПОЕДОВ описывался мною совсем недавно. Добавлю несколько слов. Несмотря на то, что шоу и подача материала у ребят, одни из лучших на московской сцене, им не стоит думать, что их собственное творчество заслуживает столь же высокого внимания. Взялся играть «тупо» и «забойно», перестань сочинять песни на 3-4 минуты. Пары минут на каждый набросок, типа ‘Die, Die, Bitch’ вполне хватило бы. Энтузиазм фэнов изрядно страдал, когда РТ начинали третий или четвёртый куплет в своих песнях. А так, всё прекрасно, например, многим группам не помешало бы включить в свой сэт песни нон-стоп, как у Некрозавра и компании.</P>
+<P>Во время выступления ТРУПОЕДОВ выяснилось, что к широкой группе «отключенцев», валяющейся по всему клубу, добавился один член, который мог запросто разрушить идиллию в карманах местных промоутеров. Из VIP отделения Р-клуба, есть и такое, вынесли Mika Luttinen и утащили прямиком на улицу. Поползли слухи, что фронтмэну финнов требуется врачебное вмешательство, но всё оказалось банальнее и ограничилось занюхиваниями и полосканиями. Mika выглядел плачевно. Еле держался на ногах и чего-то вякал на финском наречии. Выступление хэдлайнеров задерживалось, из-за того, что рвота никак не проходила. Уж не знаю, то ли это происшествие выбило IMPALED NAZARENE, то ли группа сама такая, но их выступление стало таким же true, как шоу DARK INFINITY, только с барабанами. Luttinen как-то дополз до сцены, но держался на ногах очень некрепко, всё время норовил упасть и что-то бурчал себе под нос, видимо считая это пением. Остальные музыканты, хоть и держались в стоячем положении, мало, чем отличались от «сладкоголосого». Их музыка напоминала скорее punk, при чём punk самого низкого пошиба. Невеселый, неугарный, кашеобразный. Думается мне, что теперь никто не захочет вести IN в Москву. Несколько неприятных минут организаторам, думается, пришлось провести, да и зрителей не заманишь теперь только голыми задницами и блевотиной во дворе.&nbsp;&nbsp; </P>
+<P>Сслыки по теме:</P>
+<P><A href="/ru/topic/120766/">http://musica.mustdie.ru/ru/topic/120766/</A> - обсуждение в форуме</P>
+Автор: Vit Belov
+
+### 11.03.2005 news Первый концертник IMPALED NAZARENE
+
+<P>Финские экстремальщики <STRONG>IMPALED NAZARENE</STRONG> наконец-то закончили работу над своим первым концертным альбомом, которому дано название <STRONG>"Death Comes In 26 Carefully Selected Pieces". </STRONG>Альбом был записан в прошлом декабре в одном из хельсинкских клубов, прошел микширование в студии <STRONG>Sonic Pump</STRONG> и мастеринг в<STRONG> Finnvox</STRONG> studio под руководством <STRONG>Mika Jussila.</STRONG> В него войдут следующие вещи:</P>
+<P>1. <B>Intro</B><BR>2. <B>The Horny And The Horned</B><BR>3. <B>Armageddon Death Squad</B><BR>4. <B>Goat Perversion</B><BR>5. <B>1999: Karmageddon Warriors</B><BR>6. <B>Motorpenis</B><BR>7. <B>Kohta Ei Naura En&#228;&#228; Jeesuskaan</B><BR>8. <B>The Endless War</B><BR>9. <B>Sadhu Satana</B><BR>10. <B>Ghettoblaster</B><BR>11. <B>Coraxo</B><BR>12. <B>Soul Rape</B><BR>13. <B>Sadistic 666/Under A Golden Shower</B><BR>14. <B>Zero Tolerance</B><BR>15. <B>The Maggot Crusher</B><BR>16. <B>Let's Fucking Die</B><BR>17. <B>Tribulation Hell</B><BR>18. <B>We're Satan's Generation</B><BR>19. <B>Cogito Ergo Sum</B><BR>20. <B>Goat Seeds Of Doom</B><BR>21. <B>Condemned To Hell</B><BR>22. <B>Intro S.F.P.</B><BR>23. <B>Sadogoat</B><BR>24. <B>Vitutuksen Multihuipennus</B><BR>25. <B>The Lost Art Of Goat Sacrificing</B><BR>26. <B>Total War – Winter War</B><BR></P>
+<P>Выход альбома ожидается в конце мая на<STRONG> Osmose Productions</STRONG>. </P>
+Автор: Dimas
+
+### 05.07.2005 news Новости от IMPALED NAZARENE
+
+<P><STRONG>IMPALED NAZARENE</STRONG> перезаключили сделку с <STRONG>Osmose</STRONG> на выпуск ещё двух альбомов. 21 ноября группа войдёт в <STRONG>Sonic Pump Studio</STRONG>, где с <STRONG>Tapio Pennanen</STRONG> запишет новые песни. Кроме этого, в планах коллектива переиздания с новыми арт-ворками и в ремастированном виде двух старых альбомов "<STRONG>Rapture</STRONG>" и "<STRONG>Latex Cult</STRONG>".</P>
+Автор: Vit Belov
+
+### 05.07.2005 news IMPALED NAZARENE news
+
+<P><STRONG>IMPALED NAZARENE</STRONG> re-signed with <STRONG>Osmose</STRONG> for two more albums. On 21st of november band will enter <STRONG>Sonic Pump Studio</STRONG> with producer<STRONG> Tapio Pennanen</STRONG>, where will be recorded new album. Also<STRONG> IN</STRONG> plan to re-release with new art-works and remastered two old albums <STRONG>"Latex Cult"</STRONG> and "<STRONG>Rapture</STRONG>".</P>
+Автор: Vit Belov
+
+### 07.11.2005 news IMPALED NAZARENE запишут новый альбом
+
+<P><STRONG>IMPALED NAZARENE</STRONG> решили назвать новый альбом "<STRONG>Pro Patria Finlandia</STRONG>". Группа засядет в студию <STRONG>Sonic Pump</STRONG> в середине ноября, чтобы выпустить работу 28 марта на <STRONG>Osmose</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.12.2005 news Новый альбом IMPALED NAZARENE
+
+<P>Финские беспредельщики <STRONG>IMPALED NAZARENE</STRONG>&nbsp;закончили запись своего девятого альбома под названием&nbsp;<B>"Pro Patria Finlandia"</B> в студии&nbsp;<B>Sonic Pump</B> с продюсером <STRONG>Tapio Pennanen. </STRONG>Микширование альбома заплданировано на январь. Процесс мастеринга намечен на март 2006 года под руководством <STRONG>Mika Jussila</STRONG>&nbsp;в студии&nbsp;<B>Finnvox</B>. 28 марта 2006 года альбом увидит свет на <STRONG>Osmose Productions. </STRONG>Трек-лист альбома:</P>
+<P><STRONG>1.Weapons to Tame a Land<BR>2.Something Sinister<BR>3.Contempt<BR>4.For Those Who Have Fallen<BR>5.Cancer<BR>6.Neighbourcide<BR>7.This Castrated World<BR>8.Leucorrhea<BR>9.Kut<BR>10.I Wage War<BR>11.Goat Sodomy<BR>12.One Dead Nation Under Dead God<BR>13.Psykosis<BR>14.Hate Despise Arrogance</STRONG></P>
+Автор: Dimas
+
+### 10.02.2006 news Новый альбом IMPALED NAZARENE
+
+<P>28 марта на <STRONG>Osmose</STRONG> выходит новый девятый альбом <STRONG>IMPALED NAZARENE</STRONG> <STRONG>"Pro Patria Finlandia". </STRONG>Стал известен трэк-лист альбома:</P>
+<P>01. <B>Weapons To Tame A Land</B><BR>02. <B>Something Sinister</B><BR>03. <B>Goat Sodomy</B><BR>04. <B>Neighbourcide</B><BR>05. <B>One Dead Nation Under Dead God</B><BR>06. <B>For Those Who Have Fallen</B><BR>07. <B>Leucorrhea</B><BR>08. <B>Kut</B><BR>09. <B>This Castrated World</B><BR>10. <B>Psykosis</B><BR>11. <B>Contempt</B><BR>12. <B>I Wage War</B><BR>13. <B>Cancer</B><BR>14. <B>Hate – Despise – Arrogance</B></P>
+Автор: Vit Belov
+
+### 09.03.2006 reviews Suomi Finland perkele - for fans only
+
+<P>Не думаю, что данный релиз будет интересен кому-либо, кроме упертых&nbsp;фанатов группы Impaled Nazarene. 26 песенок, записанных под Рождество 2004 года в хельсинском клубе Tavastia и доведенные "до ума"&nbsp;потом в Finnvox силами Мики Юссила являют собой некую ретроспективу группы, но особого впечатления не оставляют. Хотя ответственным за запись воздадим должное: они и не отполировали звук до студийного, но и не оставили явные лажи звука концертного. Так что панк-блэкстеры могут быть довольны: 26 убойных песен из обоймы Impaled Nazarene им понравятся. Равнодушные же к этой группе могут спокойно обходить этот релиз стороной - любой концерт Motorhead даст 1000 очков вперед этим финским недопанкам-недометалистам. Да, энергия прет, безусловно, но на фоне жуткой однообразности и примитивности исполняемых песен, она быстренько складывается и оставляет только одно впечатление - это просто серый, средненький концертник. Кому слушать и покупать, а кому нет - смотрите выше.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 18.01.2007 news IMPALED NAZARENE приступили к работе над новым альбомом
+
+<P>Финские экстремалы <STRONG>IMPALED NAZARENE</STRONG> приступили к работе над своим десятым альбомом. Он будет называться "<STRONG>Manifest". </STRONG></P>
+<P>В ближайшее же время, музыканты планируют выпуск ремастированных под руководством <STRONG>Mika Jussila</STRONG>&nbsp;&nbsp;на <STRONG>Finnvox records</STRONG> альбомов "<B>Latex Cult"</B> (1996) и "<B>Rapture"</B> (1998), которые будут дополнены множеством бонус-треков, и будут содеражть полностью новое оформление.</P>
+<P></P>
+Автор: Dimas
+
+### 02.06.2007 news IMPALED NAZARENE закончили запись
+
+<P><STRONG>IMPALED NAZARENE</STRONG> закончили запись нового альбома "<STRONG>Manifest</STRONG>" в <STRONG>Sonic Pump Studio</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Intro: Greater Wrath</STRONG> <BR>2. <STRONG>The Antichrist Files</STRONG> <BR>3. <STRONG>Pandemia <BR></STRONG>4. <STRONG>Mushroom Truth<BR></STRONG>5. <STRONG>Die Insane<BR></STRONG>6. <STRONG>Blueprint For Your Cultureґs Apocalypse <BR></STRONG>7. <STRONG>Funeral For Despicable Pigs <BR></STRONG>8. <STRONG>Goat Justice <BR></STRONG>9. <STRONG>Dead Return <BR></STRONG>10. <STRONG>Suicide Song <BR></STRONG>11. <STRONG>Pathogen <BR></STRONG>12. <STRONG>The Calling <BR></STRONG>13. <STRONG>Planet Nazarene <BR></STRONG>14. <STRONG>You Donґt Rock Hard <BR></STRONG>15. <STRONG>When Violence Commands The Day <BR></STRONG>16. <STRONG>Original Pig Rig </STRONG></P>
+Автор: Vit Belov
+
+### 01.04.2010 news IMPALED NAZARENE запишут юбилейный альбом
+
+<P>В конце лета финны <STRONG>IMPALED NAZARENE</STRONG> войдут в студию <STRONG>Hellhole </STRONG>в Хельсинки для записи своего 11 альбома, который станет юбилейным, так как приурочен в 20-летию группы. Знаменательное событие произойдёт в ноябре этого года. Альбом вновь выйдет на<STRONG> Osmose</STRONG>. Также в планах группы съёмка концертного DVD на юбилейном концерте в Куопио, который состоится 20 ноября.</P>
+Автор: Vit Belov
+
+### 20.07.2010 news Новости от IMPALED NAZARENE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16923.jpg" width=168 height=250>Фины <STRONG>IMPALED NAZARENE</STRONG> опубликовали несколько новостей на своём сайте:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После 18 лет сотдрудичества группу покинул гитарист&nbsp;<STRONG>Jarno</STRONG>&nbsp;<STRONG>Anttila </STRONG>(на фото).&nbsp;Причиной послужила большая занятость на работе и в семье.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>IMPALED NAZARENE</STRONG> продолжат деятельность в формате квартета.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом месяце группа садится в студию "<STRONG>Hellhole"</STRONG> для записи своего 11 альбома.&nbsp;Этот альбом, получивший название "<B itxtvisited="1">Road To The Octagon</B>", увидит свет в ноябре 2010 года на <STRONG>Osmose Productions</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 08.10.2010 news 11-й студийный альбом IMPALED NAZARENE
+
+<P><B itxtvisited="1"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17353.jpg" width=400 height=400>IMPALED NAZARENE</B> выпускают свой 11 полнометражный альбом, <B itxtvisited="1">"Road To The Octagon"</B>, 20 ноября. CD был записан в студии <B itxtvisited="1">Hellhole</B> (Helsinki) со&nbsp;звукорежиссёром группы&nbsp;<B itxtvisited="1">Tero Kostermaa</B>. За мастеринг ответственнен <B itxtvisited="1">Mika Jussila</B>. Обложка для альбома была создана студией <B itxtvisited="1">Darkgrove Design</B>.<BR itxtvisited="1"><BR itxtvisited="1">Трек-лист <STRONG>"Road To The Octagon"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Enlightenment Process</B> (2:19)<BR itxtvisited="1">02. <B itxtvisited="1">The Day Of Reckoning</B> (2:26)<BR itxtvisited="1">03. <B itxtvisited="1">Corpses</B> (2:46)<BR itxtvisited="1">04. <B itxtvisited="1">Under Attack</B> (2:45)<BR itxtvisited="1">05. <B itxtvisited="1">Tentacles Of The Octagon</B> (1:33)<BR itxtvisited="1">06. <B itxtvisited="1">Reflect On This</B> (2:17)<BR itxtvisited="1">07. <B itxtvisited="1">Convulsing Uncontrollably</B> (2:14)<BR itxtvisited="1">08. <B itxtvisited="1">Cult Of The Goat</B> (3:10)<BR itxtvisited="1">09. <B itxtvisited="1">Gag Reflex</B> (3:01)<BR itxtvisited="1">10. <B itxtvisited="1">The Plan</B> (2:00)<BR itxtvisited="1">11. <B itxtvisited="1">Silent And Violent Type</B> (2:18)<BR itxtvisited="1">12. <B itxtvisited="1">Execute Tapeworm Extermination</B> (2:11)<BR itxtvisited="1">13. <B itxtvisited="1">Rhetoric Infernal</B> (4:24)<BR itxtvisited="1"><BR itxtvisited="1">Общее время звучания: 33:30<BR itxtvisited="1"><BR itxtvisited="1"><STRONG>"Road To The Octagon"</STRONG> будет доступен в трёх форматах: компакт диск,&nbsp;&nbsp;gatefold LP и цифровой.</P>
+Автор: Headcrusher
+
+### 09.10.2010 news Новое видео IMPALED NAZARENE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип финнов <STRONG>IMPALED NAZARENE</STRONG> на песню <STRONG>"Enlightenment Process" </STRONG>можно посмотреть ниже. Режиссёрами ролика выступили <STRONG>Aki Maki </STRONG>и<STRONG> Aski Tolonen. </STRONG>Песня попадёт на новый альбом музыкантов <STRONG>"Road To The Octagon", </STRONG>который выйдет 20 ноября на Osmose. Альбом был записан в Хельсинки на студии <STRONG>Hellhole. </STRONG>Мастеринг выполнил известный продюсер <STRONG>Mika Jussila.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/8sF1jUWMwsU&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/8sF1jUWMwsU&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.10.2012 news IMPALED NAZARENE: DVD &quot;1990 - 2012&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.10/24883.jpg" width=300 height=424>Финские&nbsp;дебоширы&nbsp;<STRONG>IMPALED NAZARENE</STRONG>, выпускают двойной DVD, безхитростно названный <STRONG>"1990 - 2012"</STRONG>. На него войдут профессиональные съёмки двух концертов группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>1 диск:</STRONG> </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Юбилейное шоу, посвящённое 20 летию группы в клубе<STRONG> Henry's Pub</STRONG> (Kuopio, Финляндия, 20 ноября 2010).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>2 диск:</STRONG>&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выступление на фестивале&nbsp;<STRONG>Steelfest</STRONG> (Hyvink&#228;&#228;, Финляндия, 18 мая 2012).</FONT></P>
+<P>Ответственный за выход диска <STRONG>Osmose Productions</STRONG>, &nbsp;обещает&nbsp;пустить его в продажу 31 октября 2012&nbsp;по цене 12€!</P>
+Автор: Headcrusher
+
+### 06.03.2014 news IMPALED NAZARENE выпускают свой 12 студийный альбом 
+
+<P>Финские экстрималы&nbsp;<STRONG>IMPALED NAZARENE</STRONG> выпускают свой 12 студийный альбом <STRONG>"Vigorous And Liberating Death"</STRONG> 14 апреля на <STRONG>Osmose Productions</STRONG>. Обложку альбома нарисовал <STRONG>Taneli Jarva</STRONG> (оригинальный вокалист <STRONG>SENTENCED</STRONG>, а также участник групп <STRONG>CHAOSBREED</STRONG> и <STRONG>THE BLACK LEAGUE</STRONG>). Её можно увидеть ниже.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>King Reborn</STRONG> | 02. <STRONG>Flaming Sword Of Satan</STRONG> | 03. <STRONG>Pathological Hunger For Violence</STRONG> | 04.<STRONG> Vestal Virgins</STRONG> | 05. <STRONG>Martial Law</STRONG> | 06. <STRONG>Riskiarvio</STRONG> | 07. <STRONG>Apocalypse Principle</STRONG> | 08. <STRONG>Kuoleman Varjot</STRONG> | 09. <STRONG>Vigorous And Liberating Death</STRONG> | 10. <STRONG>Drink Consultation</STRONG> | 11. <STRONG>Dystopia A. S.</STRONG> | 12. <STRONG>Sananvapaus</STRONG> | 13. <STRONG>Hostis Humani Generis</STRONG></P>
+<P>Альбом <STRONG>"Vigorous And Liberating Death"</STRONG> был записан в студиях <STRONG>City Lights</STRONG> и <STRONG>S/Mental</STRONG>. И в настоящее время сводится в <STRONG>Studio Fungus</STRONG>&nbsp;звукорежиссёром по имени&nbsp;<STRONG>Max "Kosher/Kebab" Kostermaa</STRONG>, который также работал над альбомом <STRONG>"Road To The Octagon"</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.03/26720.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Кто идет на Finntroll/Impaled Nazarene?

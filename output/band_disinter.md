@@ -360,6 +360,14 @@ We Shall Forever Fight With Strength and Honour!!
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.10.2003 news DISINTER расстались с вокалистом
+
+<B>DISINTER</B> объявили о расставании со своим вокалистом <B>Zion</B>. Группа ищет нового певца, а последний концерт со старым состоится 6 декабря в Чикаго. <B>DISINTER</B> закончили запись нового альбома "<B>As We Burn</B>" в <B>Studio One</B>. Трэк-лист:<BR>01. Go Away and Rot!!!<BR>02. As We Burn<BR>03. Visions of Murder<BR>04. Born to Darkness<BR>05. When I Die (Dig Me No Grave)<BR>06. Murals of Horror<BR>07. The Pillars of Nosgoth<BR>08. Within These Walls<BR>09. Black Seas of Infinity<BR>10. Burn With Me
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

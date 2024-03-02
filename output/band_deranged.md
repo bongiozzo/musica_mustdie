@@ -137,6 +137,135 @@ booklet art / layout: Sven for dirge design
 * C группой "Edge Of Sanity" Rogga Johansson
 * C группой "Ribspreader" Rogga Johansson
 
+## Публикации
+
+### 28.11.2002 reviews Brutal, grinding... and boring
+
+<p>This is the first CD by DERANGED I got acquainted with, and probably also the last one. Many of you (TOO many, in fact) might consider it excellent piece of shredding death metal and therefore praise Sweden’s DERANGED for being one of the best DM combos around these days. Well, I won’t. Wanna know why? Well, “Deranged” simply lacks anything I used to estimate in this kind of music. It’s just boring, monotonous and… too polished. Yes, too polished, even though you must have noticed I don’t have anything against clean sound in case with death metal. The problem is, it’s just another example of what “boredom” really means. Brutal? Yes. Grinding? Yes. Lacking any alien influences? Yes. But somehow I think I had to pass on it in order to escape yet one more disappointment. Better go and listen to the latest work by SINISTER. Or in the worst case, SIX FEET UNDER. Those ones SMOKE. This one doesn’t.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 04.02.2003 reviews Не читайте тексты!!!
+
+<p>Совсем распоясались эти death-metal'исты. За один альбом умудряются обдать всех зловонной жижей. На этом альбоме Dearanged две больные темы: антихристинаство (в меньшей степени) и озабоченности сексуальными извращениями (в большей). Лучше это не читать - "я трясу своими яйцами у твоего подбородка, когда какаю тебе на лицо" или "член перезарядился...". Чёрт дёрнул меня заглянуть в буклет, ведь раньше как-то без этого обходился. В музыкальной же части мы имеем дело с хорошим таким death-молотиловом, правда немного однообразным и с не очень качественным вокалом. Любителям стиля...</p>
+
+Автор: Vit Belov
+
+### 21.03.2003 reviews Don&#39;t read the lyrics!
+
+<p>This death-metallers are totally crazy. They can sluice everybody by their fetid liquid manure. There are two sick themes: antichristianity (in small part) and sexual preoccupations (in big part) on this album by DERANGED. I think, 'cock reloaded...' or something better don't read. Why did i look in a booklet? We have deal with good death-metal in musical part. I think, not very different and not very quality vocal. To the fans of style...</p>
+
+Автор: Vit Belov
+
+### 05.04.2004 news Ещё одна новая группа
+
+<P>Новая группа, созданная известными музыкантами называется <B>FEARED CREATION</B>. Участвуют:</P>
+<P><B>Anders Sj&#246;holm</B> (<B>THE FORSAKEN</B>) - Vocals<BR><B>Calle F&#228;ldt</B> (<B>DERANGED</B>) - Lead Guitar<BR><B>John Huldt</B> - Lead Guitar<BR><B>Magnus Gillberg</B> (<B>MISTELTEIN</B>) - Bass<BR><B>Sebastian Westberg</B> - Drums </P>
+<P>Коллектив обсуждает контракты с известными лэйблами, а музыкальным направлением&nbsp; <B>FEARED CREATION</B> станет thrash.</P>
+Автор: Vit Belov
+
+### 11.07.2005 news DERANGED запишут новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DERANGED</STRONG> планируют выпустить новый альбом в январе. Пока неизвестны ни названия песен, ни название самой пластинки. </FONT></P>
+Автор: Vit Belov
+
+### 11.07.2005 news DERANGED will record new album
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Here is update from <STRONG>Rikard (DERANGED</STRONG>):</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Yes, the rumour is true… We have started to work on a new full length! We’re planning to record it sometime in January next year. No titles whatsoever yet... Either song titles or name of the actual album. It’ll come... We’ve got 6 new tracks so far. The plan right now is to have 10 songs on the new disc. We’ll soon record some kind of demo of the new songs... We always do that, record a rough demo whenever we have a bunch of new songs. Just to have something when we’re working on lyrics and vocal patters. Unless you’ve been living a cave and never ever read an interview with a band that will soon have or have most recently released a new disc, you haven’t heard the following before... Anyway, it’s been said a million of times before but... Most of the times it’s fucking wannabee and rock star bull shit but this time around it’s true though... The new material is indeed some of the best musical work I have ever been part of and I can’t wait to have it all properly recorded and nicely commercially packed. It’s fucking Deranged we’re talking about and we have not gone soft and all commercially sloppy. Why should we? Haven’t done so yet and can’t see any sense in doing it now either... Deranged have never been about faking shit... The new shit (!) is extremely fast, mean and brutal as a new years day hang over. If you have been into what we’ve done under the name Deranged earlier you’ll fucking get a hard-on and shit your pants... Further on we’ll do a bunch of gigs the autumn... See you later...” Rikard Wermйn / dEranGed – July ґ05</EM>"</FONT></P>
+Автор: Vit Belov
+
+### 23.08.2005 news DERANGED назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DERANGED</STRONG> назвали свой будущий альбом <STRONG>'Obscenities In B Flat'</STRONG>. Группа планирует записать его в январе 2006 года, и на нём будут песни с названиями <STRONG>'Alive...Swarming With Flies'</STRONG>, <STRONG>'Body Fluids From Unkonown Source'</STRONG> and <STRONG>'Long Live The New Flesh'</STRONG>.&nbsp; </FONT></P>
+Автор: Vit Belov
+
+### 23.08.2005 news DERANGED named new album
+
+<P><STRONG>DERANGED</STRONG> have announced the title of their new album <STRONG>'Obscenities in B flat'</STRONG> to be recorded in January 2006 featuring some song titles like : '<STRONG>Alive...swarming with flies</STRONG>', <STRONG>'Body fluids from unkonown source'</STRONG> and <STRONG>'Long live the new flesh'</STRONG>. The band is also confirmed for the popular extreme metal festival Fuck The Commerce in 2006 which they played the first edition in 1997.</P>
+Автор: Vit Belov
+
+### 19.01.2006 reviews И шведам не дают спать каннибалы
+
+<P>Второй альбом шведских бруталеров Deranged представляет собой почти пятидесятиминутное молотилово без тени так любимых многими и типичных для представителей этой страны мелодий. Всё сделано, конечно, по-скандинавски добротно и качественно, но не лучше ли послушать тех же Cannibal Corpse? Ничего интересного или новационного шведы не привнесли, вокалист у них так же донельзя стандартен, а зачем надо было добавлять два бонуса с переигранными вещами с этого же альбома - только версии 2003 года - вообще непонятно. К тому же, иногда создается впечатление, что музыканты так разгоняются, что даже не успевают друг за другом. Альбом исключительно для ценителей подобной музыки, остальные могу спокойно потратить свои кровные на что-то более интересное.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 12.04.2006 news DERANGED поменяли вокалиста
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2006.04/10223.jpg" width=200 align=left border=5>Басист/вокалист <STRONG>DERANGED Calle Faldt</STRONG> покинул группу по личным мотивам. Новым певцом стал <STRONG>Martin Schonherr</STRONG>, поиски басиста продолжаются.</P>
+<P>Тем временем, назначена дата релиза нового альбома "<STRONG>Obscenitie sin B Flat</STRONG>", который выйдет 29 мая на <STRONG>Listenable</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.11.2007 news Новые сэмплы DERANGED
+
+<P><STRONG>DERANGED</STRONG> выложили четыре новых сэмпла на своей <STRONG>MySpace</STRONG> страничке. Эти трэки войдут на новый альбом группы <STRONG>"The Redlight Murder Case"</STRONG>,&nbsp;выходящий в феврале на <STRONG>Regain</STRONG>. Трэк-лист:</P>
+<P>01. <B>Watch Me When I Kill</B><BR>02. <B>Strip Nude For Your Killer</B><BR>03. <B>Gently Before She Dies</B><BR>04. <B>Redlight Murderess</B><BR>05. <B>So Sweet, So Dead</B><BR>06. <B>The Killer Wore Black Gloves</B><BR>07. <B>Formula For A Murder</B><BR>08. <B>Death Walks On High Heels</B><BR>09. <B>Body Puzzle</B></P>
+<P>Адрес: &nbsp;<A href="http://www.myspace.com/stabandhack">http://www.myspace.com/stabandhack</A></P>
+Автор: Vit Belov
+
+### 05.02.2008 reviews Бюджет и пластинка - как близнецы-братья
+
+<P>Шведским мясникам Deranged, взявшим себе название по одноименному культовому фильму про маньяка, снятому еще&nbsp;в&nbsp;1974-м году (в русском варианте "Ненормальный"), годы нипочем. С 1991-го они упорно строгают брутальные ошметки, отдавая предпочтение классическому американскому дэту в смеси с более мелодичным вариантом дэт-метала своих соотечественников. Шестой полноформатник группы под названием "Obscenities In B-Flat" полон всем соответствующим арсеналом, от тупой долбежки ударных до рыгающих злобой соло и звериного рыка вокалиста. Deranged продолжают гнуть свою линию, и никакие тренды их не интересуют. Насколько будет подобная музыка востребована сегодня - вопрос, скорее, риторический. Адепты жанра, умудряющиеся различать подобные команды между собой, с радостью приобретут еще один кусок мяса в свой соскучившийся по свежей крови холодильник, остальные же плюнут и лучше в очередной раз поставят Cannibal Corpse и иже с ними. Эту пластинку можно рекомендовать лишь тем, кто собирает всё в этом жанре, ибо хотя&nbsp;с технической стороны придраться вроде бы не к чему, но ничего нового и свежего вы тут не найдете. Жалкий двухстраничный буклет почему-то навязчиво говорит о том, что бюджет был слабоватым - как и сама музыка...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 31.03.2008 news DERANGED распались
+
+<P>Шведы<STRONG> DERANGED</STRONG> прекратили своё существование, из-за нежелания барабанщика <STRONG>Rikard Werman </STRONG>и гитариста <STRONG>Johan Axelsson</STRONG>&nbsp;продолжать деятельность в рамках группы.</P>
+Автор: Vit Belov
+
+### 15.11.2011 news Новый клип DERANGED
+
+<P>Новый ролик<STRONG> DERANGED</STRONG> на песню "<STRONG>Depraved and Zombified</STRONG>" можно посмотреть ниже. Трек взят с последнего альбома шведов "<STRONG>Cut, Carve, Rip, Serve</STRONG>", который вышел в мае на <STRONG>Sevared</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2r70_4SUyjA?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2r70_4SUyjA?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.09.2016 news Новый альбом DERANGED
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом шведской death metal группы &nbsp;<strong>DERANGED</strong> получил название "<strong>Struck By A Murderous Siege</strong>"&nbsp;и выйдет 28 октября на&nbsp;<strong>Agonia Records</strong>.Первый за пять лет и девятый в их дискографии альбом записан в<strong>&nbsp;Berno Studio</strong> (Amon Amarth, The Crown, Witchery). Обложку нарисовал <strong>Mike Hrubovcak</strong> (Grave, Six Feet Under, Sinister).</font></p><p>В этот же день выйдет сборник DERANGED, содержащий редкий материал:</p><p>- "...the confessions of a necrophile" (Demo 1-92),<br>- "...the confessions continues" 7" (single 1-93),<br>- "Upon the medical slab" 7" (single 2-94),<br>- untitled and never officially released 97 demo,<br>- rare versions of old classic songs along with three cover tracks</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист альбома:<br>1. The frail illusion of osteology<br>2. Hello from the gutters<br>3. Reverent decomposition <br>4. Shivers down your broken spine<br>5. Cold icy hands<br>6. Struck by a murderous siege<br>7. Toy box torture chamber<br>8. Undead instrument by grim ascendancy</font></p><p><center><img width="500" height="500" src="/images/news_rus/2016.09/29941.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 07.09.2016 news New album by DERANGED
+
+<p>Cult Swedish death metallers<strong> DERANGED</strong> will release a new full-length album, <strong>"Struck By A Murderous Siege</strong>", on October 28th via <strong>Agonia Records</strong>. It is the band's first studio album in five years, and their ninth altogether, that was recently completed at <strong>Berno Studio</strong> (Amon Amarth, The Crown, Witchery) in their hometown Malmц. The album's cover artwork is a visiual depiction of its title, and it was created by<strong> Mike Hrubovcak</strong> (Grave, Six Feet Under, Sinister). </p><p>Despite of DERANGED's roots, their sound is more associated with American death metal rather than the early 90's Swedish death metal scene they originated from, and can be described as technical and brutal death/grind with several groove influences. </p><p>Guitar player & main songwriter, Thomas Ahlgren, commented on the album: </p><p>"<em>The new Deranged album, titled "Struck by a murderous siege" is a blend of classical Deranged brutality with a bit of new elements that will fit perfectly both old and new Deranged fans. You can be sure about that! The album, consisting of five fast, grinding and shredding songs and three heavy mid-tempo tunes, will give the listener the most interesting and varied Deranged album so far. Prepare to hear the echoes of serial killers and brutality!</em>"</p><p>The successor to "Cut Carve Rip Serve" from 2011 will feature 8 new tracks with a playing time of roughly 40 minutes.</p><p>On October 28th, DERANGED will also release a special compilation album, "Postmortem Rituals", that will feature a collection of rare demo tapes and 7" singles, that have never been released on CD or on any other format than the original media (or that have never been released at all). The entire compilation has been newly remastered from original DAT tapes and includes:</p><p>- "...the confessions of a necrophile" (Demo 1-92),<br>- "...the confessions continues" 7" (single 1-93),<br>- "Upon the medical slab" 7" (single 2-94),<br>- untitled and never officially released ґ97 demo,<br>- rare versions of old classic songs along with three cover tracks.</p><p>New album tracklist:<br>1. The frail illusion of osteology<br>2. Hello from the gutters<br>3. Reverent decomposition <br>4. Shivers down your broken spine<br>5. Cold icy hands<br>6. Struck by a murderous siege<br>7. Toy box torture chamber<br>8. Undead instrument by grim ascendancy</p><p><center><img width="500" height="500" src="/images/news/2016.09/29942.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 13.09.2016 news Новый трек DERANGED
+
+<p>Новая песня шведской death metal команды<strong> DERANGED "Reverent Decomposition"</strong> доступна в клипе ниже. Как уже сообщалось, новая работа коллектива "<strong>Struck By A Murderous Siege</strong>" выйдет 28 октября на<strong> Agonia Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/GhpCegVlN8M" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.09.2016 news DERANGED debut first song from new album
+
+<p>Cult Swedish death metallers<strong> DERANGED</strong> have revealed the first song from their upcoming new album, "<strong>Struck By A Murderous Siege</strong>", due out on October 28th via<strong> Agonia Records</strong>. Listen to the track "<strong>Reverent Decomposition</strong>" below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/GhpCegVlN8M" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.10.2016 news DERANGED выпустили лирик-видео на песню &quot;The Frail Illusion Of Osteology&quot;
+
+<p>Как уже сообщалось, новый альбом шведов <strong>DERANGED "Struck By A Murderous Siege"</strong> выходит 28 октября на <strong>Agonia Records</strong>. Новое лирик-видео death metal коллектива "<strong>The Frail Illusion Of Osteology</strong>" можно посмотреть ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/lBsbIpyH7rg" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 06.10.2016 news DERANGED released new lyric video
+
+<p>Long-running Swedish death metallers <strong>DERANGED</strong> have premiered a lyric video for their new track "<strong>The Frail Illusion Of Osteology</strong>", featured on the band's upcoming album "S<strong>truck By A Murderous Siege</strong>". The album is scheduled for an October 28th release on <strong>Agonia Records</strong>. </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/lBsbIpyH7rg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.10.2016 news DERANGED выложили новый альбом
+
+<p>Новый альбом <strong>DERANGED "Struck By A Murderous Siege"</strong> можно послушать в официальном стриме ниже за три дня до даты релиза на <strong>Agonia Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wWOCr7LunnQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.10.2016 news DERANGED are steaming new album
+
+<p>Swedish death metallers <strong>DERANGED</strong> are streaming their new album "<strong>Struck By A Murderous Siege</strong>" prior to its release date. The album officially drops on October 28th via <strong>Agonia Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wWOCr7LunnQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

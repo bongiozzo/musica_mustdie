@@ -8,6 +8,25 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.04.2009 news Выход  альбома ASTEL OSCORA на MSR Productions
+
+<P><STRONG><IMG height=401 alt="" hspace=0 src="/images/news_rus/2009.04/13998.jpg" width=400 align=right border=5>MSR Productions</STRONG> спешит порадовать всех поклонников чёрного искусства новостью о выходе дебютного альбома московской группы <STRONG>ASTEL OSCORA</STRONG>! Материал "<STRONG>Wormshire</STRONG>" не вписывается в привычное понятие sympho-black metal. Его холодная, притягательная музыка в сочетании с образной и философской лирикой рисует&nbsp; образы&nbsp; блуждающих ветров среди мёртвых ветвей древнего леса, где капли воды, срываясь с почерневших ветвей, и, будто плача, разбиваются о покров прогнивших листьев…</P>
+<P>Трэк-лист:<BR>1.&nbsp; <STRONG>Intro<BR></STRONG>2.&nbsp; <STRONG>Blazing Inferno</STRONG><BR>3.&nbsp; <STRONG>Abyss</STRONG><BR>4.&nbsp; <STRONG>Winter Sunset</STRONG><BR>5.&nbsp;<STRONG> Angels Are Sinful Too</STRONG><BR>6.&nbsp; <STRONG>Cave<BR></STRONG>7.&nbsp; <STRONG>The Land Of Worms<BR></STRONG>8.&nbsp; <STRONG>Ночной Кошмар<BR></STRONG>9.&nbsp;<STRONG> Языки Пламени</STRONG><BR>10. <STRONG>Outro</STRONG></P>
+<P>Композицию “<STRONG>Blazing Inferno</STRONG>” можно скачать отсюда: <A href="http://openfile.ru/266338/">http://openfile.ru/266338/</A></P>
+<P><A href="http://www.astel-oscora.com/">http://www.astel-oscora.com/</A><BR><A href="http://vkontakte.ru/club2038302">http://vkontakte.ru/club2038302</A></P>
+<P>По всем интересующим вопросам пишите на <A href="mailto:msrprod@mail.ru">msrprod@mail.ru</A></P>
+Автор: Vit Belov
+
+### 10.05.2010 news Второй альбом ASTEL OSCORA
+
+<P><IMG height=407 alt="" hspace=0 src="/images/news_rus/2010.05/16689.jpg" width=400 align=right border=5>В канун Вальпургиевой ночи 30 апреля 2010 года, благодаря <STRONG>Graillight Productions</STRONG> свет увидела второй альбом от московской Symphonic Depressive Black Metal группы<STRONG> ASTEL OSCORA</STRONG> под названием «<STRONG>Eridan</STRONG>». Пресс-релиз: "<EM>Атмосфера и звучание сего творения призваны унести слушателя прочь от земной суеты, в сверкающую высь - к древнему созвездию мифической реки. Провести сквозь пространство в новые неизведанные миры… И в тоже время этот полёт – обращение к самому себе и к древней истории своего мира. Таким образом, Eridan – это философская книга бытия, сказочная летопись судьбы человечества</EM>". Трэк-лист:</P>
+<P>1. <STRONG>Исток</STRONG> <BR>2. <STRONG>Амулет</STRONG> <BR>3. <STRONG>Черта Мироздания</STRONG> <BR>4. <STRONG>Фаэтон</STRONG> <BR>5. <STRONG>Бог Мёртвых Снов</STRONG> <BR>6. <STRONG>Нимфа Камней</STRONG> <BR>7. <STRONG>Родник</STRONG> <BR>8. <STRONG>Море Порока</STRONG> <BR>9. <STRONG>Багровый мир</STRONG> <BR>10. <STRONG>Душа Изувера</STRONG> <BR>11. <STRONG>Эridan</STRONG></P>
+<P><A href="http://vkontakte.ru/club2038302">http://vkontakte.ru/club2038302</A><BR><A href="http://www.myspace.com/asteloscora">http://www.myspace.com/asteloscora</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

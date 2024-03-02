@@ -59,6 +59,60 @@ Re-issue of first demo-album
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.02.2008 news НЕЧИСТЬ - новинка от MUSICA Production!
+
+<P><STRONG><IMG height=378 alt="" hspace=0 src="/images/news_rus/2008.02/12223.jpg" width=400 align=right border=5>MUSICA Production</STRONG> представляет!</P>
+<P>Дебютный CD-альбом группы из Подмосковья<STRONG> НЕЧИСТЬ «12 Жертв</STRONG>». Великолепный и качественный, мелодичный и забойный sympho-black-metal с примесью pagan-black-metal. Русскоязычная лирика, интересные находки, запись: <STRONG>Navaho Hut</STRONG> (<STRONG>GROM, SINFUL, ACT OF GOD, MIND ECLIPSE</STRONG>). Лёгкий налёт фолка позволит <STRONG>НЕЧИСТИ</STRONG> понравиться и любителям популярной ныне языческой музыки. Трэк-лист:</P>
+<P>1. <STRONG>Demon Est Deu Inversus</STRONG><BR>2. <STRONG>12 Жертв</STRONG><BR>3. <STRONG>Упырь<BR></STRONG>4. <STRONG>Тень<BR></STRONG>5. <STRONG>Мрачнее<BR></STRONG>6. <STRONG>Жажда<BR></STRONG>7. <STRONG>Они<BR></STRONG>8. <STRONG>Падение Богов<BR></STRONG>9. <STRONG>Renaissance<BR></STRONG>10. <STRONG>Пророчество Волхва</STRONG><BR>11. <STRONG>Чума<BR></STRONG>12. <STRONG>Песнь о Россах</STRONG></P>
+<P>MP3: <A href="/ru/band/nechist/13520/#samples">http://musica.mustdie.ru/ru/band/nechist/13520/#samples</A><BR>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P><SPAN class=tit1><SPAN class=h><SPAN class=crem>
+<P>Всегда в продаже: Москва, м. Багратионовская, ТЦ "Горбушкин Двор", магазин "Metal&Progressive, Irond" (B2-074)</P></SPAN></SPAN></SPAN>
+Автор: Vit Belov
+
+### 30.09.2010 news Новый альбом НЕЧИСТЬ
+
+<P><IMG height=406 alt="" hspace=0 src="/images/news_rus/2010.09/17286.jpg" width=400 align=right border=5>Новая работа российской группы<STRONG> НЕЧИСТЬ "Начало Дороги"</STRONG> выходит 7 октября на <STRONG>MUSICA Production</STRONG>. Пластинка была записана в студии<STRONG> Primordial Studio</STRONG> с октября 2009 года по марта 2010 года. "<EM>Новый альбом НЕЧИСТИ звучит более эпично, более торжественно и симфонично</EM>", - говорится в пресс-релизе.</P>
+<P>CD-дебют от <STRONG>НЕЧИСТЬ "12 Жертв"</STRONG> вышел в 2008 году на <STRONG>MUSICA Production</STRONG>. </P>
+<P>Песню с нового альбома "<STRONG>В Последний Бой</STRONG>" можно скачать здесь: <A href="/ru/band/nechist/16264/#samples">http://musica.mustdie.ru/ru/band/nechist/16264/#samples</A></P>
+<P>Трэк-лист:</P>
+<P>1. <STRONG>Черти</STRONG><BR>2. <STRONG>Расплата<BR></STRONG>3. <STRONG>За Русь<BR></STRONG>4. <STRONG>В Последний Бой</STRONG><BR>5. <STRONG>Догмат<BR></STRONG>6. <STRONG>Отреченный<BR></STRONG>7. <STRONG>Смерть Старца</STRONG></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<P>Альбом доступен к предзаказу в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+### 15.05.2011 news Время Серпа пришло!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit1><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>ВРЕМЯ СЕРПА наступило в пятницу 13 мая!!!</FONT></SPAN></FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><SPAN class=tit2><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Именно в этот день свет увидел долгожданный новый альбом <STRONG>DEMONS OF GUILLOTINE</STRONG> "<STRONG>Время Серпа</STRONG>"!</FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=h2><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.05/19481.jpg" width=300 align=right border=0>MP050 DEMONS OF GUILLOTINE "Время Серпа"</FONT></SPAN></FONT></SPAN></SPAN></FONT></SPAN></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>-black-death-metal; Яростные служители мизантропичного культа black-metal возвращаются. 13 новых треков, почти 70 минут звучания, 24-страничный буклет. Час гибели всего человечества настал. Запись, сведение и мастеринг: студия <STRONG>NavahoHut</STRONG>, инженер <STRONG>Аркадий Навахо</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Время Серпа</STRONG><BR>2. <STRONG>Оседлай Бензопилу<BR></STRONG>3. <STRONG>На Фрегате Мертвецов</STRONG><BR>4. <STRONG>Демоны Гильотины</STRONG><BR>5. <STRONG>Не Вижу Зла</STRONG><BR>6. <STRONG>909</STRONG><BR>7. <STRONG>Преподобный Джим</STRONG><BR>8. <STRONG>Ненависти Чёрное Пламя</STRONG><BR>9. <STRONG>Межзеркалье</STRONG><BR>10. Навий Народ<BR>11. <STRONG>Viva, Балканы</STRONG>!<BR>12. <STRONG>Красный Зверь</STRONG><BR>13. <STRONG>Меднокрылая</STRONG></P>
+<P>Сайт группы: <A href="http://www.demonsofguillotine.com/">http://www.demonsofguillotine.com</A></P>
+<P><SPAN class=tit2>Также в продаже!!!</SPAN></P>
+<P><SPAN class=tit2>MP048 НЕЧИСТЬ "Сквозь Тернии Мрака"</SPAN></P>
+<P>-pagan-black-metal; Первый, ранее не изданный альбом группы<STRONG> НЕЧИСТЬ</STRONG>. Запись студия <STRONG>NavahoHut</STRONG>. Мелодичный black-metal с органичными вкраплениями в духе ранних <STRONG>ASHEN LIGHT</STRONG>. Настоящий подарок всем поклонникам русскоязычного блэка. Трек-лист:</P>
+<P>1. <STRONG>Скрытая Угроза</STRONG><BR>2. <STRONG>Нечисть</STRONG><BR>3. <STRONG>Кровавая Сеча</STRONG><BR>4. <STRONG>Поклонение</STRONG><BR>5. <STRONG>Смерть Старца</STRONG><BR>6. <STRONG>Рождение</STRONG><BR>7. <STRONG>Воскресший Мертвец</STRONG><BR>8. <STRONG>Любовь К Жизни</STRONG><BR>9. <STRONG>Волчий Пир</STRONG><BR>10. <STRONG>Вечность</STRONG></P>
+<P>Сайт группы: <A href="http://www.myspace.com/nechist">http://www.myspace.com/nechist</A></P>
+<P>Оба диска уже в продаже в нашем магазине по демократичной цене 160 рублей: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P></FONT>
+Автор: Vit Belov
+
+### 25.05.2011 news НЕЧИСТЬ в Точке
+
+<center><IMG height=353 src="/images/news_rus/2011.05/19519.jpg" width=500 border=0>
+Автор: Vit Belov
+
+### 15.06.2013 news Новый альбом НЕЧИСТЬ
+
+<P><SPAN class=tit1><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2013.06/25816.jpg" width=500 height=507>MUSICA Production представляет</SPAN></P>
+<P><SPAN class=tit3>новый альбом группы НЕЧИСТЬ "Прозрение"!</P>
+<P></SPAN>Лучший альбом известного московского коллектива до сегодняшнего момента. Четвёртый альбом, демонстрирующий большой прогресс коллектива. Великолепная реализация, симфонические вставки, прямолинейный и тяжёлый сатериал для поклонников <STRONG>BEHEMOTH</STRONG>, раннего <STRONG>BUTTERFLY TEMPLE</STRONG> и<STRONG> DIMMU BORGIR</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>1.<STRONG> Знамение</STRONG><BR>2. <STRONG>Душегуб<BR></STRONG>3. <STRONG>Культ Огня</STRONG><BR>4. <STRONG>Изувер</STRONG><BR>5. <STRONG>Мщение</STRONG><BR>6. <STRONG>Сумасшествие</STRONG><BR>7. <STRONG>Прозрение<BR></STRONG>8. <STRONG>Звериный Дух</STRONG></P>
+<P>Лучшая цена в магазине <A href="http://escapemind.ru/">http://escapemind.ru</A><BR>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

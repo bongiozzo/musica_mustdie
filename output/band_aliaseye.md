@@ -43,6 +43,43 @@ Produced by Christian Schimanski.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.10.2002 news Alias Eye сочиняют новые песни
+
+<p>Немецкие прог-рокеры Alias Eye заняты сочинением песен для второго альбома. Поход в студию Blue Sky, где будет записываться альбом, планируется этой зимой. Группа собирается записать в своих композициях разнообразные и самые неожиданные инструменты. Кроме того, 19-го октября Alias Eye выступят в Лейпциге на крупном фестивале вместе с Vanden Plas.</p>
+
+Автор: Morsus
+
+### 22.10.2002 news Alias Eye are writing new songs
+
+<p>Alias Eye are writing new songs for their second album. Band are planning to record the album in winter 2002/2003. Alias Eye have already finished five songs and will record these at Blue Sky Studios. The songs will feature a variety of different (and whacky!) instruments. Also Alias Eye have play on a big festival in Leipzig in October 19th with Vanden Plas.</p>
+
+Автор: Morsus
+
+### 14.01.2003 news Alias Eye начали запись нового альбома...
+
+<p>Немецкая art-rock группа Alias Eye начала запись нового альбома под названием 'A Different Point Of You'. Группа рассказывает, что всё идёт хорошо, и материал звучит, как типичный Alias Eye, но с небольшой новизной.</p>
+
+Автор: Vit Belov
+
+### 14.01.2003 news ALIAS EYE HAS STARTED RECORDINGS NEW ALBUM
+
+<p>German artrock band Alias Eye have recently started the recordings for their new album, entitled "A Different Point Of You". According to the band everything goes very well, it all sounds typicall Alias Eye but in a "fresh" way. The band will have a few try-out gigs this spring, on 31.03.2003 as support act of Arena in Paderdorn, Germany and on 05.04.2003 in Reichenbach, Germany.</p>
+
+Автор: Vit Belov
+
+### 19.10.2003 news Alias Eye new album
+
+<SPAN style="COLOR: #ffffff"><IMG height=170 alt="" hspace=0 src="/images/news/2003.10/5121.gif" width=178 align="left" border=0>New album by <B>ALIAS EYE 'A Different Point of You'</B> will be released in Germany on the 1st of december 2003. Other European countries will follow soon.&nbsp;The CD will probably be released in the U.S. in spring 2004.</SPAN>
+Автор: Vit Belov
+
+### 19.10.2003 news Новый альбом ALIAS EYE
+
+<P><IMG height=170 alt="" hspace=0 src="/images/news_rus/2003.10/5122.gif" width=178 align="right" border=0>Новый альбом <B>ALIAS EYE 'A Different Point of You'</B> выйдет в Германии 1 декабря. В остальных странах Европы пластинка будет реализована чуть позже. Америке же придётся ждать до весны.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

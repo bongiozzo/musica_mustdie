@@ -8,6 +8,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.11.2011 news MAD MAX возвращаются в оригинальном составе
+
+<P>Спустя 25 лет после выпуска легендарного альбома <B itxtHarvested="0" itxtNodeId="57">"Night Of Passion"</B>, немецкая хард-рок группа <STRONG>MAD MAX </STRONG>возвращается к жизни в оригинальном составе: <B itxtHarvested="0" itxtNodeId="55">Michael Voss</B> (вокал, гитара), <B itxtHarvested="0" itxtNodeId="54">Jurgen Breforth</B> (ритм гитара), <B itxtHarvested="0" itxtNodeId="53">Roland Bergmann</B> (бас, вокал) и <B itxtHarvested="0" itxtNodeId="52">Axel Kruse</B> (барабаны) и с новым студийным альбомом <B itxtHarvested="0" itxtNodeId="51">"Another Night Of Passion"</B>, выпуск которого запланирован на конец марта&nbsp;2012 на <B itxtHarvested="0" itxtNodeId="50">SPV</B>/<B itxtHarvested="0" itxtNodeId="49">Steamhammer</B>. Диск был записан&nbsp;в <B itxtHarvested="0" itxtNodeId="48">Kidroom Studio</B>, хозяином которой является <B itxtHarvested="0" itxtNodeId="47">Michael Voss</B> и где уже было записано множество альбомов, в том числе, это диски таких артистов, как <B itxtHarvested="0" itxtNodeId="46">Michael Schenker</B>, группа <STRONG>VENGEANCE</STRONG> и <B itxtHarvested="0" itxtNodeId="44">Gary Barden</B>. </P>
+<P>Комментирует <B itxtHarvested="0" itxtNodeId="37">Olly Hahn </B>(представитель отдела A&R лейбла <B itxtHarvested="0" itxtNodeId="36">Steamhammer</B>): <EM>"Я видел группу живьём в 1987, когда они выступали в качестве&nbsp;разогрева <B itxtHarvested="0" itxtNodeId="35">STRYPER</B>, и они снесли мне башню. <BR itxtNodeId="34"><BR itxtNodeId="33">"<B itxtHarvested="0" itxtNodeId="32">'Night Of Passion'</B> - это жемчужина жанра хард-рок и я уверен, что <B itxtHarvested="0" itxtNodeId="31">'Another Night Of Passion'</B> не разочарует фэнов музыки, которым нравится классический мелодичный хард-рок."</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.11/21946.jpg" width=475 height=356> 
+<P></P>
+<P>На фото (слева на право): <B itxtHarvested="0" itxtNodeId="8">Roland Bergmann</B> (<STRONG>MAD MAX</STRONG>), <B itxtHarvested="0" itxtNodeId="7">Axel Kruse</B> (<STRONG>MAD MAX</STRONG>), <B itxtHarvested="0" itxtNodeId="6">Olly Hahn</B> (A&R, <STRONG>Steamhammer</STRONG>), <B itxtHarvested="0" itxtNodeId="5">Michael Voss</B> (<STRONG>MAD MAX</STRONG>), <B itxtHarvested="0" itxtNodeId="4">Jurgen Breforth</B> (<STRONG>MAD MAX</STRONG>).<BR itxtNodeId="2"></P></CENTER>
+Автор: Headcrusher
+
+### 22.12.2011 news Новый альбом MAD MAX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=359 alt="" hspace=0 src="/images/news_rus/2011.12/22380.jpg" width=400 align=right border=0>Спустя четверть века после релиза легендарного четвёртого альбома <STRONG>MAD MAX "Night Of Passion"</STRONG> группа возвращается в оригинальном составе с новой работой "<STRONG>Another Night Of Passion</STRONG>", который выйдет 26 марта на<STRONG> SPV</STRONG>. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>CD1 <BR>1. <STRONG>Rocklahoma<BR></STRONG>2. <STRONG>40 Rock<BR></STRONG>3. <STRONG>Metal Edge <BR></STRONG>4. <STRONG>You Decide<BR></STRONG>5. <STRONG>Welcome To Rock Bottom</STRONG><BR>6.<STRONG> Fallen From Grace<BR></STRONG>7. <STRONG>Black Swan<BR></STRONG>8. <STRONG>Back And Alive<BR></STRONG>9.<STRONG> The Chant <BR></STRONG>10. <STRONG>Fever Of Love</STRONG><BR>11. <STRONG>True Blue</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>CD2 (Bonus: Official Bootleg – Live In Berlin) <BR>1. <STRONG>Where The Wind Blows<BR></STRONG>2. <STRONG>Here We Are<BR></STRONG>3. <STRONG>Night Of Passion<BR></STRONG>4. <STRONG>Family Of Rock</STRONG> <BR>5. <STRONG>Little Princess<BR></STRONG>6. <STRONG>Say Goodbye To Hollywood</STRONG><BR>7. <STRONG>Open The Eyes</STRONG><BR>8. <STRONG>Don`t Talk It All Over<BR></STRONG>9. <STRONG>Homeless<BR></STRONG>10. <STRONG>Hope To See You <BR></STRONG>11. <STRONG>Fox On The Run</STRONG></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

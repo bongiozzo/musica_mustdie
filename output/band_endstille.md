@@ -95,6 +95,64 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2008 reviews Black-metal бомбардировка
+
+<P>У немецкой black-metal машины ENDSTILLE “Endstilles Reich” уже пятый полноформатный альбом. Пеняя на свою безграмотность, сообщаю, что ни одного из предыдущих четырёх релизов обозреваемой группы я не слышал. Да и не очень-то хочется.</P>
+<P>ENDSTILLE типичная хорошая группа из европейского black-metal underground. С хорошей правильной реализацией, правильной же текстовой нагрузкой (ENDSTILLE исполняют военный black-metal со всеми атрибутами оного в буклете: танки, самолёты, пехота времён второй мировой), но с полным отсутствием оригинальности и запоминаемости. Новый альбом немцев не впечатлил меня совсем. Ни своей атмосферой, ни, упаси Господь, мелодией. Монотонное жужжащее «рубилово», которое приятно слушать только первые 10 минут. Оно вгоняет в свой особенный black-metal транс, из которого обычному фанату тяжёлой музыки уже не выбраться до конца дня, а вот фэны такой музыки получат гарантированное, но не слишком оригинальное удовольствие. Кто-то даже назовёт это удовольствие извращённым, но я сейчас не об этом. В связи с летом многие лэйблы выбрасывают на рынки позиции, которые в другой сезон просто не могут выйти. Тот же, CD-Maximum, на котором вышел обозреваемый альбом, последние несколько недель производит очень много black-metal. Обещаю рассказать вам о более интересных коллективах, вышедших в эти дни, в ближайшее время. А ENDSTILLE предложим только фанатам жанра.</P>
+<P>Классический war black-metal. Средней тяжести, средней мелодичности и среднего же качества. Фанатам на заметку.</P>
+Автор: Vit Belov
+
+### 02.01.2009 news ENDSTILLE войдут в студию
+
+<P>Black-metal'исты <STRONG>ENDSTILLE</STRONG> войдут в студию <STRONG>Jak's Hell </STRONG>в этом году для записи нового альбома <STRONG>"Verfuhrer". </STRONG>Пластинка выйдет весной-летом на <STRONG>Regain Records</STRONG>. Осенью коллектив отправится в тур.</P>
+Автор: Vit Belov
+
+### 17.02.2009 news Картинка нового ENDSTILLE
+
+<P>Новый альбом<STRONG> ENDSTILLE</STRONG> <STRONG>"Verfuhrer" </STRONG>выходит в апреле на <STRONG>Regain</STRONG>. Группа опубликовала обложку.</P>
+<P><center><IMG height=346 src="/images/news_rus/2009.02/13592.jpg" width=355 border=0></P>
+Автор: Vit Belov
+
+### 26.10.2009 news Новое видео ENDSTILLE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Black-metal группа <STRONG>ENDSTILLE </STRONG>выложила в сеть клип на песню "<STRONG>Depressive / Abstract / Banished / Despised</STRONG>" с последнего альбома "<STRONG>Verfuhrer</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/0mAh_NSe9gY&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/0mAh_NSe9gY&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.12.2009 news ENDSTILLE взяли нового вокалиста
+
+<P>Новым певцом в немецкой black-metal банде <STRONG>ENDSTILLE&nbsp;</STRONG>стал <STRONG>Zingultus</STRONG> (ex-<B>NAGELFAR</B>).</P>
+Автор: Vit Belov
+
+### 05.01.2011 news ENDSTILLE перешли на Season Of Mist
+
+<P><IMG height=180 alt="" hspace=0 src="/images/news_rus/2011.01/18013.jpg" width=300 align=right border=0>Немецкие маргиналы <STRONG>ENDSTILLE</STRONG> заключили контракт с<STRONG> Season Of Mist</STRONG>. Седьмой альбом группы должен выйти весной. </P>
+<P>Предыдущий альбом группы с провокационным названием <STRONG>"Verfuhrer" </STRONG>вышел в апреле 2009 года на <STRONG>Regain Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.03.2011 news Новый альбом ENDSTILLE
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.03/18874.jpg" width=450 align=right border=0>Немцы <STRONG>ENDSTILLE</STRONG> подготовили седьмой альбом <STRONG>"Infektion 1813" </STRONG>17 мая на <STRONG>Season Of Mist</STRONG>. Трек-лист:</P>
+<P>01. <B>Anomie</B><BR>02. <B>Trenchgoat</B><BR>03. <B>Bloody H (The Hurt-Gene)</B><BR>04. <B>The Deepest Place in Earth</B><BR>05. <B>When Kathaaria Falls</B><BR>06. <B>Satanarchie</B><BR>07. <B>World Aflame</B><BR>08. <B>Wrecked</B><BR>09. <B>Endstille (V&#246;lkerschl&#228;chter)</B></P>
+Автор: Vit Belov
+
+### 17.05.2011 news Новый клип ENDSTILLE
+
+<P>Новое видео немецких "блекеров" <STRONG>ENDSTILLE</STRONG> на песню <STRONG>"Anomie" </STRONG>можно посмотреть ниже. Трек взят с новейшего альбома группы <STRONG>"Infektion 1813"</STRONG>, который вышел на <STRONG>Season Of Mist</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT id=flashObj codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0 height=412 width=486 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="12859"><PARAM NAME="_cy" VALUE="10901"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="Src" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE="http://admin.brightcove.com"><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="FFFFFF"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="0"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashVars="videoId=945313475001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.2011 news TOMMY VITALY собирает друзей
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=205 alt="" hspace=0 src="/images/news_rus/2011.08/20784.jpg" width=300 align=right border=0>Гитарист итальянской группы <STRONG>SEVEN GATES TOMMY VITALY</STRONG> продолжает объявлять музыкантов, принимающих участие в записи его сольного альбома "<STRONG>Hanging Rock</STRONG>". Очередным "приглашённым" стал вокалист <STRONG>VIRGIN STEELE David DeFeis</STRONG>. Обложку для альбома, который выйдет в начале следующего года на <STRONG>IceWarrior Records</STRONG>, нарисует <STRONG>Felipe Machado Franco (HAPSODY, AXEL RUDI PELL, BLIND GUARDIAN, AXENSTAR, ICED EARTH)</STRONG>. Список заявленных участников проекта:</FONT></P>
+<P><STRONG>Tommy Vitaly</STRONG> (SEVEN GATES) - Guitars<BR><STRONG>David DeFeis</STRONG> (VIRGIN STEELE) - Vocals<BR><STRONG>Zak Stevens</STRONG> (CIRCLE II CIRCLE, ex SAVATAGE) - Vocals<BR><STRONG>Michele Luppi</STRONG> (THAUROROD, ex VISION DIVINE) - Vocals<BR><STRONG>Carsten Lizard-Schulz</STRONG> (EVIDENCE ONE, ex DOMAIN) - Vocals<BR><STRONG>Andrea "Tower" Torricini</STRONG> (ex VISION DIVINE, ex SHADOWS OF STEEL) - Bass<BR><STRONG>Norifumi Shima</STRONG> (CONCERTO MOON) - Guitars<BR><STRONG>David Shankle</STRONG> (DSG, ex MANOWAR) - Guitars<BR><STRONG>Rhino</STRONG> (ex MANOWAR, ex HOLY HELL) - Drums</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

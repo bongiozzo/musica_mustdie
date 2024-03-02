@@ -17,6 +17,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.12.2011 news VOLTURE: видеоклип &quot;Rulebreaker&quot;
+
+<P>Американская группа <STRONG>VOLTURE</STRONG>, исполняющая традиционный метал с явным влиянием <STRONG>NWOBHM</STRONG>, представила на суд видеоклип на песню <STRONG>"Rulebreaker"</STRONG>. Стоит так же отметить, что в состав <STRONG>VOLTURE </STRONG>входят музыканты принимающие участие и в других коллективах,&nbsp;таких как <STRONG>CANNABIS CORPSE </STRONG>и <STRONG>MUNICIPAL WASTE</STRONG>.</P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/ms4wMtxZ460" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

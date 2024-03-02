@@ -104,6 +104,355 @@ Label: FUEL Records
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.01.2002 reviews Драматический death metal
+
+<p>Драматический death metal. Дебютный альбом этих ребят должен заинтересовать всех ценителей melodic death metal, особенно нас, русских. Музыка итальянцев полна драматизма навеваемого скрипичными партиями и использованием героического русского фольклора. Вернее, не русского, а скорее советского. Имеют место сэмплы песни "Полюшко-поле (Красной Армии герои)" на русском языке (просто убойная вещь - "Forlorn"). Ну и вот такие песни, как "Stalingrad" и "Varen'ka". Много классических инфлюенций, в записи альбома принял участие струнный квартет, задействован женский хор и все это сопровождается энергично-мелодичной тяжелой музыкой. Длится альбом больше часа, но ни разу не хочется прервать его прослушивание. Совершенно нескучный альбом. Оригинальный современный материал. Теперь есть и симфонический melodic death metal. Даже не знаю, с кем сравнить это. Что-то от IN FLAMES, а кое-что, например, от HAGGARD, ANGIZIA и DARK TRANQUILLITY. Но, в целом, материал альбома не похож ни на кого. Вот такие дела. Не пауэром единым оказывается жива Италия. Советую послушать, хотя бы из чувства патриотизма, даже если вы и не любитель подобной музыки. Жаль, что до такого не додумались наши группы...</p>
+
+Автор: Dimas
+
+### 08.04.2002 reviews Итальянское великолепие
+
+<p> Господа, я в шоке. Кто бы мог подумать, что итальянская металлическая сцена способна рождать такие шедевры. Ничего подобного мне слышать еще не приходилось. Автор предыдущей рецензии на данный альбом очень правильно подметил, что это именно ‘’драматический’’ Death Metal. Итак, что мы имеем? А имеем мы превосходный Death, возможно, с некоторым думоподобным налетом, со скрипками и женским хором. Звучит это все просто превосходно: и хор, и скрипки совершенно не раздражают, они лишь дополняют и подчеркивают трагичность и драматургию этого альбома, который, кстати, посвящен советскому фольклору времен Второй мировой. Совершенно потрясающий коктейль из агрессии и мелодичности. Вся музыка пронизана потрясающей атмосферой страха, холода и войны, а скрипки лишь добавляют истеричности. Каждая песня – это маленький металлический шедевр, который хочется слушать снова и снова. Исполнение также находится на высоком уровне: очень грамотно соблюден баланс между гитарами, смычком и хором, так что все это смело можно назвать Death Metal, без каких-либо скидок и натяжек. Наибольшее впечатление на меня произвела композиция “Stalingrad”, в которой столько трагедии и красоты, что внутри все просто переворачивается. Блестяще! Я не ставлю десятку лишь потому, что, на мой взгляд, на фоне Stalingrad остальные песни звучат менее шедеврально. С нетерпением буду ожидать следующего альбома этого коллектива и, надеюсь, ребята продолжат гнуть начатую в этом альбоме линию, тем более, что получается у них это великолепно. </p>
+
+Автор: Davor
+
+### 23.07.2002 news MassaBrutto Radioshow #92, 22-23 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. CRUACHAN - The Children Of Lir (Hammerheart)<BR> 2. DARK LUNACY - Stalingrad (Fuel/Ablaze)<BR> 3. DEMIMONDE - Black Ring Theatre (Epidemie Recs)<BR> 4. SATARIEL - Coffin Gateways (Hammerheart)<BR> 5. SATARIEL - Holy Trinity (Hammerheart)<BR> --- --- ---<BR> новости<BR> --- --- ---<BR> 6. COMPOS MENTIS - Beyond Salvation (band)<BR> 7. SANATORIUM - Postmortal Goreaphobia (Forensick Music)<BR> 8. TYPHOID - Killed For Killing (Immortal Souls Prods)<BR> 9. PATHOLOGY STENCH - God-Faith-Prostitution (Shindy Prods/Obscene)<BR> 10. MITHOTYN - From The Frozen Plains (Invasion/Ablaze)<BR> 11. BRAVE - I Believe (Dark Symphonies)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 23.07.2002 news MassaBrutto Radioshow #92, 22-23 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. CRUACHAN - The Children Of Lir (Hammerheart)<BR> 2. DARK LUNACY - Stalingrad (Fuel/Ablaze)<BR> 3. DEMIMONDE - Black Ring Theatre (Epidemie Recs)<BR> 4. SATARIEL - Coffin Gateways (Hammerheart)<BR> 5. SATARIEL - Holy Trinity (Hammerheart)<BR> --- --- ---<BR> новости<BR> --- --- ---<BR> 6. COMPOS MENTIS - Beyond Salvation (band)<BR> 7. SANATORIUM - Postmortal Goreaphobia (Forensick Music)<BR> 8. TYPHOID - Killed For Killing (Immortal Souls Prods)<BR> 9. PATHOLOGY STENCH - God-Faith-Prostitution (Shindy Prods/Obscene)<BR> 10. MITHOTYN - From The Frozen Plains (Invasion/Ablaze)<BR> 11. BRAVE - I Believe (Dark Symphonies)<BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 15.04.2003 news Новый альбом DARK LUNACY
+
+<p>На конец весны 2003 года запланирован выход нового альбома итальянской melodic death metal формации DARK LUNACY. Альбом под названием "Forget-Me-Not" был спродюссирован участниками группы и, как и дебют группы, выйдет в качестве self release.</p>
+
+Автор: Dimas
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 26.02.2008 articles Turisas&#x2F;Orphaned Land&#x2F;Dark Lunacy на праздновании 10-илетия DARKSIDE.RU, пресс-релиз
+
+<A href="http://www.darkside.ru/" target=_blank><U>DARKSIDE.ru</U></A> в этом году отмечает свой юбилей - вот уже на протяжении 10 лет мы стараемся, чтобы вы всегда были в курсе событий мира тяжелой музыки, а также могли найти исчерпывающую информацию о любимых группах и музыкантах! Приглашаем вас отметить это событие вместе с нами и тремя наиболее яркими представителями металл-сцены: 
+<P>
+<CENTER><IMG height=30 src="/images/articles_rus/2008.02/12303.gif" width=206 border=0></CENTER>
+<P>
+<CENTER>Battle Metal (Финляндия)</CENTER>
+<P>
+<CENTER><IMG height=38 src="/images/articles_rus/2008.02/12304.gif" width=201 border=0></CENTER>
+<P>
+<CENTER>Ethno Doom/ Progressive Metal (Израиль)</CENTER>
+<P>
+<CENTER><IMG height=49 src="/images/articles_rus/2008.02/12305.gif" width=206 border=0></CENTER>
+<P>
+<CENTER>Dramatic Death Metal (Италия)
+<P> 
+<CENTER><B>12 апреля </B>- Москва, клуб <A href="http://www.clubtochka.ru/" target=_blank><U>"Точка"</U></A> <BR><B>13 апреля </B>- Санкт-Петербург, <A href="http://www.roksclub.com/" target=_blank><U>клуб "Roks"</U></A> </CENTER>
+<P>Мы не случайно собрали три такие разные группы вместе - каждая из них обладает ярко выраженной индивидуальностью и исполняет оригинальную и красивую музыку! 
+<P><A href="http://www.darkside.ru/10/#Turisas"><U>TURISAS</U></A> смело смешивают в своей музыке фольклорные темы, симфонические аранжировки и эпику viking metal, ярко выделяясь среди коллег по цеху. 
+<P>ORPHANED LAND поразят вас фантастическим смешением тяжелых риффов и фольклорных мелодий, исполненных на традиционных ближневосточных инструментах. 
+<P>DARK LUNACY обладают собственным уникальным стилем dramatic death metal, сочетающим музыкальные гармонии, свойственные русской классической музыке XIX века, и риффы, характерные для melodic death. </P></CENTER>
+<P>
+<CENTER><IMG height=30 src="/images/articles_rus/2008.02/12303.gif" width=206 border=0></CENTER>
+<P>
+<DIV align="right">&nbsp;</DIV>
+<P><IMG height=375 src="/images/articles_rus/2008.02/12306.jpg" width=250 align="left" border=5>Драккар под гордым именем "TURISAS" был заложен в финском городе Хяменнлинна двумя гордыми потомками викингов Матиасом Нюгордом (вокал) и Юсси Викстрёмом (гитара) в далеком уже 1997 году. Но прежде чем отправиться в первое плавание, их кораблю пришлось пройти нелегкие испытания. Демо-период затянулся на весьма значительное время, и группе никак не удавалось подписать первый контракт. Зато уже первый полноценный альбом оправдал все ожидания. Вышедший в 2004 году на Century Media диск "Battle Metal " в полной мере оправдал надежды музыкантов и явил миру тот самый истинный "боевой металл", о котором говорил титул пластинки. 10 боевых гимнов с прологом и эпилогом, наполненных скальдической эпикой, нордической мощью и гимноподобной мелодикой показали недюжинный потенциал группы. Потенциал, который в полной мере был реализован на альбоме "Varangian Way " ("Путь из Варяг в Греки"). Пройдя вместе со своими героями путь от Скандинавии до Константинополя через земли Древней Руси, музыканты TURISAS словно бы создали музыкальную хронику этого путешествия. Слушая этот альбом, можно окунуться в мир наших предков, едва ли не воочию представить шумные ярмарки Великого Новгорода, богатство великокняжеского Киева, опасности днепровских порогов, разноязыкий блеск Царьграда: TURISAS смело смешивают в своей музыке фольклорные темы, симфонические аранжировки и эпику викинг-металла, создавая свое собственное, ярко выделяющееся среди своих коллег по сцене лицо. Их песни западают в память всерьез и надолго, и каждое шоу - это окно в эпоху, "когда деревья были большими". Ну а на землях той самой Гардарики, по которой путешествуют герои их последней саги, оно и подавно должно оказаться чем-то необыкновенным. </P>
+<P>Официальный сайт: <A href="http://www.turisas.com/" target=_blank><U>www.turisas.com</U></A><BR>MySpace страница: <A href="http://www.myspace.com/turisasofficial" target=_blank><U>www.myspace.com/turisasofficial</U></A> </P>
+<P>
+<CENTER><IMG height=38 src="/images/articles_rus/2008.02/12304.gif" width=201 border=0></CENTER>
+<DIV align="left">&nbsp;</DIV>
+<P><IMG height=300 src="/images/articles_rus/2008.02/12307.jpg" width=400 align="right" border=5>Когда в далеком 1991 году несколько молодых израильтян решили играть тяжелую музыку, едва ли они рассчитывали на то, что их проект с течением времени превратится в одну из самых уважаемых и ценимых любителями интеллигентного хэви-металл групп. И это при том, что за все время своего существования ORPHANED LAND выпустили всего три полнометражных альбома. Зато каких! Уже первая работа молодых музыкантов ("Sahara") обратила на себя внимание фэнов и специалистов нестандартным подходом к взятому группой за основу для своего творчества doom/death metal, заключавшемся в смелом использовании ближневосточных мелодий и гармоний, что сразу же выделило их среди прочих исполнителей этого жанра. И это при том, что сами израильтяне никогда не отрицали, что в то время на них сильнейшее влияние оказывали PARADISE LOST. Но все же, эффект, произведенный второй работой группы, названной "El Norra Alila ", был куда более сильным: здесь влияние арабской и еврейской традиционной музыки оказалось уже куда заметнее, но вместе с ним израильтяне использовали и элементы европейской классики, тесно вплетя их во все ту же doom/death metal основу. Альбом получил массу восторженных отзывов в прессе, завоевал множество фанатов, после чего: группа успешно канула в лету: Проблемы с армейской службой, разногласия в стане коллектива, активное увлечение главного идеолога ORPHANED LAND, вокалиста Коби Фархи, религиозной философией, - все это привело к тому, что израильтяне замолчали и надолго. Следующего альбома пришлось ждать целых восемь лет. Зато ожидания эти полностью оправдались. Третий альбом группы ("Mabool") стал не только лучшим в ее истории, но и одним из лучших за всю историю жанра. Фантастическое смешение тяжелых риффов, фольклорных мелодий, исполненных на традиционных ближневосточных инструментах, гармоний, свойственных, как восточной, так и западной музыке, оказалось настолько совершенным, что израильтяне были единодушно причислены всеми музыкальными специалистами к числу "живых классиков", что создало им все условия, чтобы почить на лаврах. Что те и не замедлили сделать - Коби Фархи, в частности, занялся написанием литературного труда: И, тем не менее, сейчас, спустя "всего" четыре года после "Mabool" группа подготовила новый альбом, названный "Between God and Satan", и готова вернуться к активной деятельности, имея в своей основе все тот же состав, что и в самом начале своего существования: Коби Фархи (вокал), Йосси Сасси (гитара), Матти Сватицки (гитара) и Ури Зельха (бас). Но ведь никто не даст гарантии, что через пару месяцев они вновь не исчезнут куда-нибудь. Так что, надо спешить, пока есть возможность увидеть концерт одной из самых уникальных команд, когда-либо существовавших на тяжелой сцене. 
+<P>Официальный сайт: <A href="http://www.orphaned-land.com/" target=_blank><U>www.orphaned-land.com</U></A><BR>MySpace страница: <A href="http://www.myspace.com/orphanedmyspace" target=_blank><U>www.myspace.com/orphanedmyspace</U></A> </P>
+<P>
+<CENTER><IMG height=49 src="/images/articles_rus/2008.02/12305.gif" width=206 border=0></CENTER>
+<DIV align="right">&nbsp;</DIV>
+<P><IMG height=320 src="/images/articles_rus/2008.02/12308.jpg" width=250 align="right" border=5> Пожалуй, одна из самых оригинальных и недооцененных групп на современной металл-сцене была основана в Парме в 1996 году вокалистом Майком и гитаристом Эномисом, которые и по сей день составляют основную креативную силу коллектива. Поскольку оба этих молодых человека увлекались одновременно классической музыкой и дэт-металлом, то и группа, созданная ими, сразу же взяла курс на совмещение этих двух музыкальных направлений. В результате получился уникальный стиль, окрещенный его создателями dramatic death metal и представляющий собой сочетание классических музыкальных гармоний, свойственных в первую очередь, русской классической музыке XIX века, и риффов, характерных для melodic death. При этом симфонической музыкой интерес итальянцев к России не ограничивается. Уже с первого альбома ("Devoid") темы, заимствованные из русской литературной классики и российской истории, становятся в их творчестве основными. Ну а последний альбом ("The Diarist") полностью посвящен героической обороне Ленинграда во время Великой Отечественной войны. В этой работе музыканты очень органично сумели вплести в свою музыку фрагменты из советской песенной классики, от чего она приобрела еще больший драматизм и эпический размах. "Мы посвятили "The Diarist" русским людям, потому что они способны любить свою Родину так, как не способны ни итальянцы, ни какие-либо другие нации", - говорит Эномис. На сегодняшний день за спиной у пармезанцев три полнометражных альбома и множество концертов в Европе и Латинской Америке, вместе с такими монстрами, как NIGHTWISH, DARK TRANQUILLITY, JUDAS PRIEST, RAGE, ANATHEMA. Тем удивительнее, что до сих пор группа ни разу не была в России - в стране, которая стала для них главным источником вдохновения. Настало время исправить это недоразумение. 
+<P>Официальный сайт: <A href="http://www.darklunacy.com/" target=_blank><U>www.darklunacy.com</U></A><BR>MySpace страница: <A href="http://www.myspace.com/darklunacy" target=_blank><U>www.myspace.com/darklunacy</U></A> </P>
+<P>Более подробная информация: <A href="http://www.darkside.ru/10/">http://www.darkside.ru/10/</A></P>
+<DIV></DIV>
+Автор: Ixtiandr
+
+### 07.04.2008 news 10 лет Darkside.ru
+
+<P>
+<CENTER><IMG height=400 src="/images/shows_rus/2008.02/12285.jpg" width=267 border=0> </CENTER>
+<P></P>
+Автор: Dimas
+
+### 25.10.2010 news Новый альбом DARK LUNACY
+
+<P>9 ноября выйдет четвертая работа итальянских мастеров dramatic death metal <STRONG>DARK LUNACY</STRONG> под названием "<STRONG>Weaver Of Forgotten</STRONG>". Альбом был записан, сведен и отмастерен летом в генуэзской Nadir Studio под руководством <STRONG>Tommy Talamanca</STRONG>. Как и прежние альбомы, эта работа будет выпущена лейблом <STRONG>Fuel Records</STRONG> (<STRONG>SELF-Distribution</STRONG>). Надо отметить, что это будет первая работа сделанная в одиночку вокалистом коллектива <STRONG>Michele Belli</STRONG>, известного как <STRONG>Mike Lunacy</STRONG>, после одновременного ухода из коллектива остальных музыкантов. В записи альбома приняли участие музыканты <STRONG>INFERNAL POETRY</STRONG> и <STRONG>SADIST</STRONG>, ставшие постоянными участниками группы. Трек-лист альбома:<BR><STRONG><IMG border=0 hspace=20 alt="" vspace=20 align=left src="/images/news_rus/2010.10/17467.jpg" width=300 height=300>1. Epitaph<BR>2. Archangel'sk<BR>3. Curtains<BR>4. Epiclesis<BR>5. Masquerade<BR>6. Afraid<BR>7. Mood<BR>8. Sybir<BR>9. Snow<BR>10. Forgotten<BR>11. Weaver<BR></STRONG></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Dark Lunacy. Кто знает?!

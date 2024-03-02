@@ -174,6 +174,411 @@ Jurgen Wiehler - drums
 * C группой "Jaded Heart" Michael Bormann
 * C группой "Charade" Michael Bormann
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Bonfire выпускают новый альбом "Daytona Nights" в июне.</p>
+
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 10.08.2004 news В Москву приезжают BONFIRE!!!
+
+<P>25 сентября на сцену <B>СДК МАИ</B> выйдет немецкая hard'n'heavy легенда <B>BONFIRE</B>. Выступление состоится в рамках их <B>FREE EUROPEAN TOUR 2004</B>.</P>
+<DIV>Начало в 21.00</DIV>
+<DIV><SPAN>
+<DIV>Билеты:</DIV>
+<DIV>450 р. - студентам МАИ и владельцам ISIC-карт.</DIV>
+<DIV>650 р. - танцпартер (предпродажа в CDK МАИ)</DIV>
+<DIV>700 р. - танцпартер (стоимость в городских кассах&nbsp;и&nbsp;в CDK МАИ в день концерта)</DIV>
+<DIV>1500 р. - балкон</DIV></SPAN></DIV>
+Автор: Vit Belov
+
+### 10.08.2004 articles BONFIRE в Москве, пресс-релиз
+
+<DIV>ВПЕРВЫЕ В РОССИИ!!!<BR>25 сентября 2004<BR>BONFIRE<BR>«FREE EUROPEAN TOUR»</DIV>
+<DIV>«МАИ тур-сервис» с гордостью представляет единственный концерт легендарной культовой немецкой хард-н-хэви группы BONFIRE.</DIV>
+<DIV>25 сентября 2004 г. шоу одних из родоначальников немецкого «тяжеляка» состоится в CDK МАИ.</DIV>
+<DIV><BR>BONFIRE<BR></DIV>
+<DIV>Биография</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Claus Lessmann - вокал<BR>Hans Ziller - гитара<BR>Uwe K&#246;hler - бас<BR>J&#252;rgen "Bam Bam" Wiehler - барабаны</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Будь то в Германии, Европе или в США BONFIRE (Костер) был&nbsp; и останется&nbsp; среди гигантов рока. Без их вклада в арсенал рок-мелодий, важная глава в международной истории рок-музыки осталась бы ненаписанной. Независимо от того, что принесет будущее, ясна одно – гастроли сменяют гастроли, билеты раскуплены, и гитары раскалены - BONFIRE все еще горит!</DIV>
+<DIV>Вокалист Claus Lessmann и гитарист Hans Ziller собрали хард-роковый квинтет "Cacumen" в начале 1980-ых в Ингольштадте. Квинтет сначала выпустил два альбома Cacumen (в 1981) и Bad Widow (в 1983) на разных инди-лейблах. Cacumen обрушился на поклонников hard-and-heavy музыки словно шторм, но потребовалось еще три года до абсолютного прорыва творческого дуэта Лессманн/Зиллер, когда они изменили название своего проекта на “BONFIRE".</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Дебютный альбом “BONFIRE " Don't Touch the Light (1986) стал одним из самых успешных дебютных релизов среди немецких групп этого жанра, благодаря его великолепному коктейлю из прекрасных мелодий и и кристально-чистой освежающей рок-музыки.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Последующий альбом Fireworks, выпущенный один год спустя, оставался в немецких чартах альбомов в течение тридцати недель и считается классикой Хард-рока "Сделано в Германии"&nbsp; и в настоящее время. Кроме того, “BONFIRE” подтвердили репутацию великолепных концертирующих исполнителей во время обширных турне по Европе - с ZZ Top и Judas Priest. На концертах, “BONFIRE” может завести не только&nbsp; поклонников heavy-metall, но и более спокойную аудиторию, ориентированную на интеллектуальную музыку.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Но в середине работы над третьим альбомом Point Blank - который, как и более ранние альбомы, продюсировался Michael Wagener - гитарист Hans Ziller, ушел из&nbsp; “BONFIRE” из-за непреодолимых разногласий с Менеджментом и начал собственный проект, названный "EZ Livin'". Тем временем, певец, Claus Lessmann and Co. укрепил реноме группы, которое они создавали все эти годы,&nbsp; выпуском альбома Point Blank. Билеты на их тур по Европе в конце 1989 были полностью распроданы за долго до начала и после окончания&nbsp; турне оставило незабываемые воспоминания о концертах.</DIV>
+<DIV>В 1991, “BONFIRE”&nbsp; записал четвертый альбом Knockout, под руководством опытного продюсера Mack (Queen&nbsp; и др.). Knockout более мелодичен, более спокоен, чем его предшественники, но тем не менее было продано более чем 60 000 копий альбом поклонникам настоящего Рока, не смотря на повышающийся тогда бум в музыке Grunge.</DIV>
+<DIV>После двухлетнего отдыха, вокалист Claus Lessmann и его старый партнер&nbsp; и автор песен Hans Ziller опять объединились, чтобы создать еще один шедевр немецкого рока – Макси-single "Glaub' dran" В конце работы они заявили: "Этот эксперимент доказал нам, что мы должны придерживаться того, что мы делаем лучше всего - острый мелодичный Хард-рок, который идет прямо в ваше сердце!"</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В том же 1997, был выпущен ограниченное издание немецкого альбома "Freudenfeuer". Поскольку “BONFIRE”&nbsp;&nbsp; опять объединились, 10 000 копий альбома были проданы в мгновение ока, и альбом теперь считается коллекционным.</DIV>
+<DIV>Таким образом, выпуск в 1996 Feels Like Coming Home&nbsp; - альбома, который также включает материал Glaub dran, теперь полностью перестроенный и усиленный английской лирикой, может рассмотреться как возвращение к старому стилю и как заключительная репетиция к возвращению на большую сцену, которое “BONFIRE” произвел год спустя с Rebel Soul - альбомом записанным теми же музыкантами, которые представляют группу и сегодня.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Альбом Rebel Soul оказался прорывом, которым дуэт Lessmann/Ziller и другие члены группы ясно дали понять, что "Хард-рок из Германии" является более живым чем когда-либо, даже при том, что некоторые холодные ветра,&nbsp; пытаются принести&nbsp; в эту специфическую область музыки бизнес.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В 1999, квинтет успешно напомнил поклонникам "старые добрые времена" своим новым альбомом Fuel to the Flames, и они вернули&nbsp; к жизни дух альбомов типа Don't Touch the Light и Fireworks. И хотя, хотя бизнес-атмосфера для традиционного рока была едва ли оптимистическая в то время, Fuel to the Flames, вошел в немецкие Чарты альбомов сразу же на 32 место и оставался в Чарте в течение семи недель.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Strike X, записанный в Студии Sator Мюнхена и выпущенный 2 апреля 2001, бескомпромиссно соответствует геральдическому девизу этих четырех музыкантов из Ингольштадта - "назад к корням". Первый трэк Under Blue Skies очаровывает слушателя симбиозом темных и тяжелых ударов, напоминая о Black Sabbath, и его эпических монументальных нюансах с одной стороны, в то же время&nbsp; щемящий вокал с другой стороны. Успешный европейский тур последовал за выпуском этого альбома.</DIV>
+<DIV>2002 год увидел выпуск долгожданного двойного альбома и DVD "29 Golden Bullets " - The Very Best of BONFIRE, к восхищению старых и новых поклонников. Выпуском этого альбома “BONFIRE”&nbsp; стал еще раз&nbsp; Первым номером на рок-сцене и провел обширное турне "29 Golden Bullets " по Европе.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Несмотря на многочисленные успехи и ясное многообещающее будущее, Chris Lausmann решает расстаться с группой после двенадцати лет совместной работы из-за личных причин. Растущий интерес поклонников к новому концертному альбому достиг пика в этом году и в результате альбом, “Live over Europe” был выпущен в ноябре вместе с открытием нового отмеченного наградами вебсайта группы "The-Flame.com".</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Новый альбом, выпущенный 6.10.2003, называется FREE, с различными музыкальными стилями. FREE демонстрирует группу с другой стороны….но BONFIRE все еще классика рока. Даже если некоторые песни звучат как Led Zeppelin, Queen, R.E.M. Tom Petty, The Beatles или AC/DC, это только вопрос влияния…………это не может быть плохо……..</DIV>
+<DIV>Поэтому группа прорвалась Top 100 в Германии через 1 неделю после выпуска альбома……………</DIV>
+<DIV>К декабрю 2003 BONFIRE продали более чем 250.000 копий альбома FIREWORKS –&nbsp; в Германии&nbsp; и получили за это GOLDEN RECORD AWARD.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>B O N F I R E<BR></DIV>
+<DIV>Факты 2003-2004</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>GOLD RECORD AWARD за более чем 250.000 проданных копий CD&nbsp; FIREWORKS</DIV>
+<DIV>Номинанты German Music Award 2003</DIV>
+<DIV>Новый альбом “FREE” <BR>вышел 06.10.2003<BR>и попал в TOP 100-Charts<BR>через 1 неделю после релиза!!!!!</DIV>
+<DIV>Специальные гости и поддержка WHITESNAKE с 27 мая по 4 июня 2003</DIV>
+<DIV>Европейское турне 2003 с 6 июня по 23 декабря 2003<BR>(Испания, Великобритания, Голландия, Австрия, Швейцария, Италия, Греция)</DIV>
+<DIV>Более чем 5,2 миллионов проданных альбомов по всему миру</DIV>
+<DIV>Более 1.000 «живых» концертов за последние 10 лет</DIV>
+<DIV>10 студийных альбомов, 4 альбома «The Best Of…» и 2 концертных CD с момента основания группы в 1986</DIV>
+<DIV>Все CD группы попали в чарты с 32 по 9 место</DIV>
+<DIV>Мировые турне, включая Японию, США и всю Европу</DIV>
+<DIV>Поддержка Judas Priest в Европе</DIV>
+<DIV>Поддержка ZZ TOP в Европе и США</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Вход открыт с 20:00. Начало концерта в 21:00.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Стоимость билетов:<BR>450 р. – студентам МАИ и владельцам ISIC-карт,<BR>650 р. – танцпол (предварительная продажа в CDK МАИ),<BR>700 р. – танцпол (стоимость в городских кассах и в CDK МАИ в день концерта)<BR>1500 р. – балкон</DIV>
+<DIV>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A><BR></DIV>
+Автор: Vit Belov
+
+### 10.07.2006 reviews Попадание в десятку. Два раза.
+
+<P>Свой двадцатилетний юбилей творческий дуэт Lessman-Ziller отметили новым полноформатником с символическим названием “Double X”.</P>
+<P>“Х”, в данном случае, совсем не большая русская буква «х», намекающая на качество сего продукта, а римская цифра 10. Словом на букву «х», в плохом смысле, эту работу ветеранов немецкого мелодичного метала назвать никак нельзя. Композиторский дуэт Lessman-Ziller оказался снова на высоте. Подбросили старички, так сказать,&nbsp;&nbsp;полешек сосновых, смолянистых, в костерок, и полыхнуло пламя, и полетели искры. Проходных песен на диске не обнаружено. Стилистически «Двойная десятка» является непрямым продолжением альбома трехлетней давности “Free”. То есть диск с явной ориентацией на американского слушателя. Много глэма, много сладеньких песен в стиле Bon Jovi (“Blink Of An Eye” прям копия). Но и о настоящем, классическом Bonfire не забыли. Мощная, самая тяжелая на альбоме, “Day 911” (единственное, что неформатно на ней, так это чисто паверные гитарные соло. Не понятно, кто с ума сошел, сам ли Ziller, либо новому гитаристу Крису Лимбургу дали пошалить), “What’s On Your Mind?”, “Wings To Fly”, “So What?” - как раз и есть то, что ждут от группы её преданные фанаты. Надеюсь, что следующий Костер будет более тру, и никогда, в отличие от "машиновременьского", никогда не отгорит.</P>
+<P>Стоит отметить, что состав "Bonfire" не потерпел глобальных изменений, кроме появления вышеупомянутого гитариста молодого, из группы ещё поперли клавишника. Да и хрен с ним. Не нужен он.</P>
+<P>PS Отдельно выражается благодарность за песенку «Рэп-это кал». Злобненькая такая песенка.</P>
+<P>Диск предоставлен <A href="http://www.darkdivision.ru/">Dark Division</A></P>
+Автор: Дофф
+
+### 06.08.2007 reviews Немецкие мелодик-рокеры unplugged
+
+<P>Вот и немецкие мелодик-рокеры Bonfire добрались до unplugged. Двойной концертник "One Acoustic Night" был сыгран и записан в дортмундском "The Private Music Club Studio". Разумеется, это получился своеобразный и очередной the best of, но как раз всё дело в том, что фанатам той или иной группы зачастую очень интересно услышать, как их любимые песни звучат в акустическим варианте, притом именно боевики, быстрые номера, а не баллады. В данном случае не надо ходить вокруг и около, что-то сравнивать, над чем-то долго раздумывать. Bonfire прекрасно справились со своей задачей, доказав, что и без электроинструментов они способны завести публику и отработать концерт на все 100. На двух дисках общей продолжительностью 112 минут группа поет только свои песни, за исколючением 'Sweet Home Alabama' от Lynyrd Skynyrd. 'Hot To Rock', 'S.D.I.', 'Proud On My Country', 'Sweet Obsession', 'Under Blue Skies', Rock'n'Roll Cowboy' - всё это присутствует в программе. Эта пластинка будет интересна как фанатам Bonfire, так и любителям акустических концертов. Так же добавлю, что есть и двойной DVD с таким же названием, ну а смотреть ли вам или только слушать - вы решите для себя сами.</P>
+<P>Альбом предоставлен концреном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 08.02.2008 news Новый альбом BONFIRE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>BONFIRE "The Rauber"</STRONG> выходит 15 февраля на собственном лэйбле музыкантов <STRONG>LZ Records</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>The R&#228;uber</B><BR>02. <B>Bells of Freedom</B><BR>03. <B>Refugee Of Fate</B><BR>04. <B>The Oath</B><BR>05. <B>Blut und Tod</B><BR>06. <B>Love Don’t Lie</B><BR>07. <B>Black Night</B><BR>08. <B>Hip Hip Hurray</B><BR>09. <B>Do You Still Love Me</B><BR>10. <B>Let Me Be Your Water</B><BR>11. <B>Lass die Toten schlafen</B><BR>12. <B>The Good Die Young</B><BR>13. <B>Time</B><BR>14. <B>Father’s Return</B><BR>15. <B>Love Don’t Lie</B> (Acoustic Mix)<BR>16. <B>Do You Still Love Me</B> (Acoustic Mix)<BR>17. <B>Hip Hip Hurray</B> (dt. Version)</P>
+Автор: Vit Belov
+
+### 04.07.2016 news Michael Borman вернулся в BONFIRE
+
+<p><strong>BONFIRE</strong> объявили о расставании с вокалистом <strong>David Reece</strong> (ex-ACCEPT). С ним группа выпустила два альбома<strong> Glorious</strong> (2015)&nbsp;и<strong> Pearls</strong> (2016). В группу вернулся <strong>Michael Borman</strong>, который пел у немцев в 1993-1994 годах.</p><p>Последнее время Michael известен своим участием в шоу "Голос".</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/0a7tzOcSAO0" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 04.07.2016 news Michael Borman has returned to BONFIRE
+
+<p><strong>BONFIRE </strong>have announced the departure of vocalist <strong>David Reece</strong> (ex-ACCEPT). Band released two albums, <strong>Glorious</strong> (2015) and<strong> Pearls</strong> (2016) with him. <strong>Michael Borman</strong> has returned to the band, he sang in BONFIRE in 1993-1994.</p><p>The last time Michael is known for his participation in the show "the Voice."</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/0a7tzOcSAO0" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

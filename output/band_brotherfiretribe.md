@@ -9,6 +9,16 @@
 
 * C группой "Leverage" Pekka Heino (vocal)
 
+## Публикации
+
+### 04.04.2006 news Новый проект гитариста NIGHTWISH
+
+<P><STRONG>BROTHER FIRETRIBE</STRONG>, финский AOR/hard rock коллектив, в составе которого гитарист <B>NIGHTWISH </B><B>Emppu Vuorinen</B>, подписал соглашение со <STRONG>Spinefarm Records</STRONG> на выпуск своего дебютного альбома под названием <STRONG>"False Metal"</STRONG>. &nbsp;Как гласит пресс-релиз, это музыка в лучших традициях восьмидесятых и таких коллективов, как <STRONG>VAN HALEN</STRONG> и&nbsp;<STRONG>JOURNEY</STRONG>, с убийственными вокальными гармониями, бесподобными клавишными и потрясающей гитарной работой, при этом, с узнаваемым саундом напоминающим<STRONG> NIGHTWISH</STRONG>. Дата релиза - 7 июня 2006 года. Трек-лист альбома:</P>
+<P><IMG height=238 alt="" hspace=15 src="/images/news_rus/2006.04/10196.jpg" width=400 align=right border=0>1. <B>Break Out</B> (4:43)<BR>2. <B>Valerie</B> (4:51)<BR>3. <B>I'm On Fire</B> (4:59)<BR>4. <B>Love Goes Down</B> (5:02)<BR>5. <B>Devil’s Daughter</B> (4:12)<BR>6. <B>Midnite Queen</B> (4:26)<BR>7. <B>One Single Breath</B> (4:23)<BR>8. <B>Lover Tonite</B> (3:46)<BR>9. <B>Spanish Eyes</B> (4:47)<BR>10. <B>Kill City Kid</B> (3:38)<BR></P>
+<P><BR>Кроме того,&nbsp;17 мая&nbsp;планируется выпуск сингла <STRONG>"One Single Breath".</STRONG> Его трек-лист:<BR>1. <B>One Single Breath</B> (edit) (3:56)<BR>2. <B>Mighty Wings</B> (4:14)</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

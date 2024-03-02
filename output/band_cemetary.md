@@ -144,6 +144,37 @@ Produced by Mathias Lodmalm
 * C группой "Beseech" Manne Engstrцm
 * C группой "Fatal Embrace" Manne Engstrцm
 
+## Публикации
+
+### 23.11.1999 news 
+
+<p>Sundown закончили своё существование. Группа решила переименоваться в Cemetary 1213 и вернуться ко временам Cemetary. Группа записывает альбом, на котором будет представлен классический готик-металл.</p>
+
+Автор: Vit Belov
+
+### 29.10.2003 news Новый альбом CEMETARY
+
+<B>Mathias Lodmalm</B>&nbsp; сообщил на сайте <B>CEMETARY</B>, что он отправляется в Гонк-Конг для завершения своего альбома '<B>Phatasma</B>', который выйдет в апреле 2004 года на <B>Black Mark</B>. &nbsp;
+Автор: Vit Belov
+
+### 13.04.2005 news CEMETARY пишут новую пластинку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Mathias Lodmalm</STRONG> опубликовал заявление на официальном сайте <STRONG>CEMETARY</STRONG>. Приводить его пространное заявление не имеет смысла, вот сухой остаток. Во-первых, новый альбом "<STRONG>Phantasma</STRONG>" вышел. Во-вторых, группа работает над новым альбомом "<STRONG>Burial Theme</STRONG>", который будет очень экспериментальным. И главное, с этим альбомом <STRONG>CEMETARY</STRONG> заканчивают сотрудничество с <STRONG>Black Mark</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 30.05.2005 news Mathias Lodmalm покинул металл-сцену
+
+<P><STRONG>Mathias Lodmalm</STRONG> закончил свою деятельность на музыкальной сцене. Соответственно, и его основной проект<STRONG> CEMETARY</STRONG> теперь прекратит существование. Основной причиной своего решенеия он назвал отсутствие места для творчества в современном шоу-бизнесе. "<EM>Всё решают деньги</EM>", - заявил <STRONG>Mathias</STRONG> на своём официальном сайте.</P>
+<P>В своём пространном заявлении <STRONG>Lodmalm</STRONG> также отметил, что единственным светлым пятном во всём этом являются его поклонники.&nbsp;</P>
+Автор: Vit Belov
+
+### 05.01.2007 news CEMETARY вернулись!!!
+
+<P><STRONG>CEMETARY</STRONG> выложили в сеть несколько новых песен. Судя по всему, лидер коллектива <STRONG>Mathias Lodmalm</STRONG> решил вернуться к классическому тяжёлому звучанию. Также в новом году ожидается альбом нового проекта музыканта<STRONG> DOMAIN AD</STRONG>.</P>
+<P>Качайте новые песни на нашем сайте: <A href="/ru/band/cemetary/12872/">http://musica.mustdie.ru/ru/band/cemetary/12872/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

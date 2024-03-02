@@ -453,6 +453,21 @@ Mikey Dread: Additional Vocals on 11
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.12.2002 news JOE STRUMMER DEAD
+
+<p>Former Clash frontman Joe Strummer is dead. He was 50. <BR> A spokesperson for the star, one of the most influential artists of all time, confirmed he died at his home yesterday. He is thought to have suffered a heart attack. <BR> A posting on his official site today (December 23) reads: "Joe Strummer died yesterday. Our condolences to Luce and the kids, family and friends." Messages and tributes can be left on the Joe Strummer Tribute Board by clicking http://microsites.nme.com/cgi-bin/forums/postlist.pl?Cat=&Board=joeatrummer</p>
+
+Автор: Vit Belov
+
+### 29.12.2002 news Умер Джо Страммер.
+
+<p>23 декабря в своём доме скончался от сердечного приступа фронтмэн легендарной панк-рок группы The Clash - Джо Страммер. Написать тёплые слова по умершему вы сможете на трибьютной доске по адресу: <a href="http://microsites.nme.com/cgi-bin/forums/postlist.pl?Cat=&Board=joeatrummer">http://microsites.nme.com/cgi-bin/forums/postlist.pl?Cat=&Board=joeatrummer</a></p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

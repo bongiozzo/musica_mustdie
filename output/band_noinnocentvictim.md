@@ -24,6 +24,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.02.2001 news NO INNOCENT VICTIM заканчивают запись альбома
+
+<p>NO INNOCENT VICTIM заканчивают запись альбома "Tipping The Scales". Дата выхода май 2001 года.</p>
+
+Автор: Yermola
+
+### 16.02.2001 news NO INNOCENT VICTIM album
+
+<p>NO INNOCENT VICTIM has completed the recording of their upcoming album, entitled "Tipping The Scales". The album will be released in May of 2001. Check out their site at www.sdhxc.com.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

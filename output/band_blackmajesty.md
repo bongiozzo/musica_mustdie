@@ -35,6 +35,46 @@ Silent Company (bonus video)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.01.2008 news Видео от BLACK MAJESTY
+
+<P>Австралийская heavy-metal группа <STRONG>BLACK MAJESTY</STRONG> выложила в сеть промо-видео на песню <B>"Forever Damned"</B>, отснятое на <STRONG>Benatska Noc Festival</STRONG>&nbsp;в Чехии.</P>
+<P><center><object width="425" height="373"><param name="movie" value="http://www.youtube.com/v/uhDjn6m1J5Q&rel=1&border=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/uhDjn6m1J5Q&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></object></center></P>
+Автор: Vit Belov
+
+### 11.05.2009 news BLACK MAJESTY войдут в студию
+
+<P>Австралийцы <STRONG>BLACK MAJESTY</STRONG> войдут в студию в августе для записи нового альбома <STRONG>"Tomorrowland"</STRONG>, который выйдет в начале 2010 года на<STRONG> Limb Music</STRONG>. </P>
+Автор: Vit Belov
+
+### 20.11.2009 news BLACK MAJESTY назвали альбом
+
+<P>Новый альбом<STRONG> BLACK MAJESTY</STRONG> будет называться <STRONG>"In Your Honour". </STRONG>Его сведением займётся бывший гитарист <STRONG>HELLOWEEN Roland Grapow</STRONG> в своей собственной студии в Словакии. Альбом выйдет в начале 2010 года на <STRONG>Limb Music</STRONG>. Вот названия некоторых песен: <STRONG>"Far Beyond"</STRONG>, <B itxtvisited="1">"Millenium"</B>, <B itxtvisited="1">"Further Than Insane"</B>, <B itxtvisited="1">"End of Time"</B>и<B itxtvisited="1">"Break These Chains"</B>. </P>
+Автор: Vit Belov
+
+### 29.04.2011 news Видео-клип от BLACK MAJESTY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>BLACK MAJESTY</STRONG> на песню "<STRONG>Further Than Insane</STRONG>" можно посмотреть ниже. Песня взята с последнего альбома австралийской группы "<STRONG>In Your Honour</STRONG>", который вышел в мая прошлого года на<STRONG> Limb Music</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME title="YouTube video player" src="http://www.youtube.com/embed/uhs9JcHoihs" frameBorder=0 width=480 height=300 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.02.2012 news BLACK MAJESTY назвали альбом
+
+<P>Австралийцы <STRONG>BLACK MAJESTY</STRONG> назвали новый альбом "<STRONG>Stargazer</STRONG>". Пластинка выйдет в мае на <STRONG>Limb Music</STRONG>. Запись пластинки была начата в студии гитариста<STRONG> MASTERPLAN Roland Grapow</STRONG> в октябре 2011 года. </P>
+<P>Названия некоторых песен: <STRONG>"The Fallen", "Edge Of The World", "The Killing Hand", "Lykan"</STRONG> и <STRONG>"Journey To The Soul".</STRONG> &nbsp;</P>
+<P><center><IMG height=257 src="/images/news_rus/2012.02/22903.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 07.06.2012 news Обложка нового BLACK MAJESTY
+
+<P>Новый альбом <STRONG>BLACK MAJESTY</STRONG> <STRONG>"Stargazer" </STRONG>выйдет 20 июля на<STRONG> Limb Music</STRONG>. Обложку для релиза создал <STRONG>Dirk Illing</STRONG> (<B itxtHarvested="0" itxtNodeId="47">SCORPIONS</B>, <B itxtHarvested="0" itxtNodeId="46">WIZARD</B>). </P>
+<P><center><IMG border=0 src="/images/news_rus/2012.06/24134.jpg" width=403 height=403></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -40,6 +40,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.10.2011 news DISGUISE на My Kingdom Music
+
+<P><STRONG>My Kingdom Music</STRONG> объявили о подписании контракта с итальянской black-death-metal группой<STRONG> DISGUISE</STRONG>. Третий альбом коллектива "<STRONG>Second Coming</STRONG>" выйдет 16 января 2012 года. Издающий лэйбл сравнивает музыку коллектива с <STRONG>SATYRICON</STRONG> и <STRONG>MARDUK</STRONG>.</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/disguisesite">http://www.myspace.com/disguisesite</A></P>
+<P><center><IMG height=288 src="/images/news_rus/2011.10/21590.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

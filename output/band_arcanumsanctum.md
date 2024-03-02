@@ -19,6 +19,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.02.2010 news Новый релиз на More Hate Prod.
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.02/16297.jpg" width=400 align=left border=5>15 февраля на <STRONG>More Hate Prod.</STRONG> вышел новый релиз: дебютный альбом талантливой группы из Комсомольска-на-Амуре (Хабаровский край) <STRONG>ARCANUM SANCTUM "Fidus Achates"</STRONG>.&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пресс-релиз: "<EM>Оригинальное сочетание old school melodic death metal и техничного thrash metal позволяет говорить о новом направлении в рамках стиля в противовес трендовым metalcore и modern metal извращениям и значительно обогащает музыкальный арсенал группы запоминающимися мелодиями и мощными риффами. Бешеная динамика, цепляющие тексты на русском и английском языках, качественное исполнение и неординарный подход к написанию композиций</EM>!"</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Контактный e-mail: <A href="mailto:arcanum-sanctum@yandex.ru">arcanum-sanctum@yandex.ru</A> <BR>Сайт группы: <A href="http://www.myspace.com/arcanumsanctum">http://www.myspace.com/arcanumsanctum</A> <BR></P></FONT>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

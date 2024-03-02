@@ -60,6 +60,32 @@ Ballad Of A Thin Man
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.03.2002 news Всадник без головы
+
+<p><IMG SRC="/images/news_rus/2002.03/2473.jpg" ALT="The Headless Horseman coverart" width="170" height="170" hspace="15" vspace="5" border="0" align="right" /> Питомцы Nuclear Blast - австралийцы "PEGAZUS" выпускают новый альбом "The Headless Horseman" 11-го марта. Трек-лист: <BR><BR> 01. Intro<BR> 02. The Headless Horseman<BR> 03. Nightstalker<BR> 04. A Call To Arms<BR> 05. The Patriot<BR> 06. Look To The Stars<BR> 07. Dragon Slayer<BR> 08. Spread Your Wings<BR> 09. Forever Chasing Rainbows<BR> 10. Victim<BR> 11. Neon Angel<BR> 12. Ballad Of A Thin Man<BR></p>
+
+Автор: Yermola
+
+### 01.03.2002 news PEGAZUS Go &quot;Headless&quot; In Early March ...
+
+<p>Australia's PEGAZUS will release their new album, entitled The Headless Horseman, on March 11th via Nuclear Blast Records. The full track listing for the CD is as follows: <BR><BR> 01. Intro<BR> 02. The Headless Horseman<BR> 03. Nightstalker<BR> 04. A Call To Arms<BR> 05. The Patriot<BR> 06. Look To The Stars<BR> 07. Dragon Slayer<BR> 08. Spread Your Wings<BR> 09. Forever <BR> 10. Victim<BR> 11. Neon Angel<BR> 12. Ballad Of A Thin Man<BR></p>
+
+Автор: Yermola
+
+### 06.09.2003 news PEGAZUS выпустят концертник
+
+<p>В ноябре этого года выйдет концертник PEGAZUS 'PEGAZUS - Live Thunder Down Under'. На альбом войдут 13 живых трэков и 3 бонус-трэка. Бонус-трэки - редкие демо-версии песен с 'The Headless Horseman'.</p>
+
+Автор: Vit Belov
+
+### 14.02.2009 news В PEGAZUS вернулся вокалист
+
+<P>Австралийцы <STRONG>PEGAZUS</STRONG> вернули своего оригинального вокалиста <STRONG>Justin Fleming</STRONG>. </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

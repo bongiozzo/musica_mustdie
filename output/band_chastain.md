@@ -118,6 +118,24 @@ Ken Mary - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2004 reviews Странная работа мнимого виртуоза
+
+<P>Честно говоря, я не думал, что знаменитый в кругах металлистов, true-heavy-металлистов, <STRONG>David T. Chastain</STRONG> окажется таким true в своём сольном проекте. Настолько true, что и гитаристом-виртуозом назвать его нельзя, да и по качеству звучания и разнообразию он не дотягивает даже до своих лучших подопечных, таких, как <STRONG>FIREWIND</STRONG>, например.</P>
+<P><STRONG>In A Outrage</STRONG> – не очень хорошо записан, совсем не оригинален, а главное… напряжный вокал девушки. Кричит, воет, иногда даже хрюкает, но не поёт, отнюдь. Если Вы не прониклись творчеством <STRONG>CHASTAIN</STRONG> до этого времени, не могу Вам посоветовать слушать эту пластинку. Я вот послушал и для себя понял, что больше не буду даже стараться слушать старые альбомы группы. Этот CD – очень невыразителен, как в плане музыки, так в плане исполнительского мастерства коллектива.</P>
+<P>Средняя работа, которая сильно подмачивает репутацию <STRONG>David T. Chastain</STRONG>. Хотя может она мнимая?</P>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">Art-Music</P></A>
+Автор: Vit Belov
+
+### 18.08.2011 news David T. Chastain: новый альбом &quot;Civilized Warfare&quot; уже в продаже
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20654.jpg" width=400 height=400>На лейбле <STRONG>Diginet Music</STRONG> вышел новый альбом Дэвида Чэстейна (<STRONG>David T. Chastain</STRONG>) под названием <STRONG>"Civilized Warfare"</STRONG>. Диск содержит только&nbsp;инструменьтальные композиции. Другими музыкантами, принявшими участие в записи&nbsp;<STRONG>"Civilized Warfare"</STRONG>, стали барабанщик <B itxtHarvested="0" itxtNodeId="17">Mike Haid</B> и басист <STRONG>Steven Taylor</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Civilized Warfare<BR></STRONG>2. <STRONG>Exile Of Yesterday<BR></STRONG>3. <STRONG>Fortitude<BR></STRONG>4. <STRONG>Angry Amplitude <BR></STRONG>5. <STRONG>Expected Turbulence <BR></STRONG>6. <STRONG>After The World Goes <BR></STRONG>7. <STRONG>Grandeur Guilt<BR></STRONG>8. <STRONG>Exemplified Existence</STRONG></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

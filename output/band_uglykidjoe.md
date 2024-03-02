@@ -112,6 +112,45 @@ Mixed By Phil Nicolo.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.03.2001 news MEDICATION...
+
+<p>Выходцы из MACHINE HEAD, SOULFLY и UGLY KID JOE замутили проект MEDICATION. Участники: гитарист Logan Mader (ex-MACHINE HEAD / SOULFLY), вокалист Whitfield Crane (ex-UGLY KID JOE / LIFE OF AGONY), второй гитарист Blunt (ex-ADAYINTHELIFE) и барабанщик Roy Mayorga (ex-SOULFY). Команда финансировала запись дебютного полноформатника, который и собирается выпустить позднее в этом году. Трек-лист: 01. Clouded 02. Something New 03. Number 8 04. Underwater 05. I Am The Same 06. Chosen 07. Xanax</p>
+
+Автор: Yermola
+
+### 19.03.2001 news MEDICATION...
+
+<p>Los Angeles' MEDICATION, featuring former MACHINE HEAD / SOULFLY guitarist Logan Mader, ex-UGLY KID JOE / LIFE OF AGONY vocalist Whitfield Crane, ex-ADAYINTHELIFE guitarist Blunt, and ex-SOULFY drummer Roy Mayorga, are reportedly self-financing the recording of a full-length CD, to be released through an as-yet-undetermined label later in the year. Song titles set to appear on the as-yet-untitled CD include: 01. Clouded 02. Something New 03. Number 8 04. Underwater 05. I Am The Same 06. Chosen 07. Xanax</p>
+
+Автор: Yermola
+
+### 29.03.2001 news Новый альбом &quot;CROWBAR&quot;
+
+<p>Нью-Орлеанцы "CROWBAR" завершают работу над очередным студийным творением, кторое будет микшироваться гитаристом "UGLY KID JOE" North Shore в его собственной студии. Пока еще не названный альбом будет испытанием для новичка - барабанщика Tony Costanza (ex-CRISIS / MACHINE HEAD).</p>
+
+Автор: Yermola
+
+### 29.03.2001 news CROWBAR are completing work....
+
+<p>New Orleans’ CROWBAR are completing work on the material for their forthcoming studio album, which will reportedly be tracked and mixed at former UGLY KID JOE guitarist 's North Shore Recording Studio. The as-yet-untitled effort—the group’s first with new drummer Tony Costanza (ex-CRISIS / MACHINE HEAD)—is tentatively due to be released at the end of the year.</p>
+
+Автор: Yermola
+
+### 30.10.2001 news DOWN, featuring PANTERA vocalist Philip Anselmo...
+
+<p>The tentative title of the forthcoming sophomore effort from New Orleans’ DOWN, featuring PANTERA vocalist Philip Anselmo, PANTERA bassist Rex Brown, C.O.C. drummer Jimmy Bower, C.O.C. guitarist Pepper Keenan, and CROWBAR guitarist Kirk Windstein, is The Backwood Heavies. As previously reported, The Backwood Heavies will be recorded during November/December at former UGLY KID JOE guitarist Dave Fortman’s Balance Studios in New Orleans, where CROWBAR laid down their most recent effort, Sonic Excess In Its Purest Form. <BR> <BR> In related news, New Orleans’ SOUTHERN ISOLATION (formerly BODY & BLOOD), which features in its ranks Phil Anselmo on guitar, Phil’s girlfriend Stephanie Opal on vocals, “Big” Ross Karpelman (CHRIST INVERSION) on keyboards, Kevin Bond (i.e. CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) on bass, and Sid Montz on drums, will be issuing their self-titled MCD on October 30th via Baphomet/Housecore Records. The full track listing for the effort is as follows: <BR><BR> 01. Blue Bird (Make You Shine) <BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)<BR> <BR></p>
+
+Автор: Yermola
+
+### 30.10.2001 news Неугомонный Филипп Ансельмо...
+
+<p>Нью-Орлеанский проект "DOWN", имеющий в своем составе вокалиста "PANTERA" - Philip Anselmo, бассиста "PANTERA" - Rex Brown, барабанщика "C.O.C." - Jimmy Bower, гитариста "C.O.C." - Pepper Keenan и гитариста "CROWBAR" - Windstein - объявил название для своего нового альбома - "The Backwood Heavies". Писаться это творение будет в Ноябре/Декабре в студии участника "UGLY KID JOE" - Dave Fortman - Balance Studios (в ней записывались "CROWBAR" - альбом "Sonic Excess In Its Purest Form")... <BR><BR> Из родственных новостей, команда "SOUTHERN ISOLATION" состоящая из Фила Ансельмо (гитара!!!), его подружки Stephanie Opal (вокал), “Big” Ross Karpelman ("CHRIST INVERSION") - клавиши, Kevin Bond (CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) - басс и Sid Montz (барабаны), тридцатого октября выпустили альбом с аналогичным названием на Baphomet/Housecore Records. Трек-лист релиза: <BR> <BR> 01. Blue Bird (Make You Shine)<BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -26,6 +26,27 @@ Sympho-Black
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.10.2000 news Новый альбом Obsidian Gate.
+
+<p> Новый альбом Obsidian Gate "Colossal Christhunt" должен появиться в октябре-ноябре этого года.</p>
+
+Автор: Morsus
+
+### 05.10.2000 news The new album of Obsidian Gate.
+
+<p> The new album of Obsidian Gate entitled "Colossal Christhunt" will be released in October/November 2000.</p>
+
+Автор: Morsus
+
+### 28.06.2002 news Очередной опус Obsidian Gate
+
+<p>Obsidian Gate с 20 июля начнут записывать свой третий альбом. Опус с названием "Disequilibrium" будет содержать десять симфо-блэковых композиций.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

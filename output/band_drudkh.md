@@ -69,6 +69,31 @@ depressive Black Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.09.2009 reviews Атмосферное и созерцательное путешествие
+
+<P>Украинская группа DRUDKH, образованная участниками ASTROFAES и HATE FOREST, недостаточно известна в России. Её альбомы выходили на английском UG-лейбле Supernal и были доступны у нас только коллекционерам. Понятно, что DRUDKH относятся к так называемой харьковской pagan-black-metal сцене, и многие поклонники идеологически ориентированного творчества разыскивали их альбомы, но мне думается, что DRUDKH достойны внимания не только поклонников pagan-направления.</P>
+<P>Более того, к pagan-black-metal относить DRUDKH, по-моему, несколько опрометчиво. Если любовь к родной природе, любовь к родному краю, любовь к национальной поэзии и музыке являются признаками pagan, то что же делать остальным конфессиям? Музыка DRUDKH пробудила во мне всё самое лучшее, она заставила заглянуть в себя и почувствовать окружающую природу. Не знаю, но так бывает… Когда, в общем-то, достаточно простая и незамысловатая музыка, black-metal музыка, поражает и завораживает. Вот и здесь, начиная и заканчивая атмосферными фолковыми интро и аутро, продолжая тремя песнями на стихи украинских поэтов и несколькими инструменталами, выполненными в жанре классического black-metal, DRUDKH удаётся полностью погрузить слушателя в свою атмосферу. А так как вряд ли кому-то может не понравиться тихая осень или грустный вечер, практически каждый воспримет этот альбом. Для меня в первую очередь “Microcosmos” это философское повествование о чём-то, что не сразу понятно, но зато очень комфортно и загадочно.</P>
+<P>Эту пластинку выпустил Союз по лицензии Season Of Mist. Это очень важный шаг для DRUDKH к широкому признанию, не знаю, правда, нужно ли оно группе. Советую всем любителям black-metal, да и просто поклонникам хорошей музыки.</P>
+Автор: Vit Belov
+
+### 16.09.2016 news Новый трек DRUDKH
+
+<p>Новая песня украинцев<strong> DRUDKH "Autumn In Sepia"</strong> доступна в клипе ниже. Трек войдёт в новый релиз группы, split альбом с группой <strong>GRIFT "Betrayed By The Sun"</strong>, который выйдет сегодня на <strong>Season of Mist</strong>.</p><p>Купи фирменные альбомы DRUDKH на сайте <strong>Escapemind.ru</strong>: <a href="http://escapemind.ru/search?q=Drudkh">http://escapemind.ru/search?q=Drudkh</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zOykJflQo1s" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 16.09.2016 news New song by DRUDKH
+
+<p>New song of Ukrainians <strong>DRUDKH "Autumn In Sepia" </strong>is available in the clip below. The track will be included in the new album, a split album with the band<strong> GRIFT "Betrayed By The Sun"</strong>, which will be released today on <strong>Season of Mist</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zOykJflQo1s" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 07.01.2017 news Первый сингл WINDSWEPT
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Первая песня black metal коллектива <strong>WINDSWEPT "Blinding and Bottomless Abyss Is Howling"</strong> доступна в ролике ниже. Трек войдёт в дебютный альбом украинской black metal банды <strong>"The Great Cold Steppe</strong>", который выйдет 31 марта на<strong> Season Of Mist</strong>. WINDSWEPT является проектом лидера<strong> DRUDKH Романа Саенко</strong>.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mP1H0MVZCFQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

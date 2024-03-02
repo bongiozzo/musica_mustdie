@@ -19,6 +19,152 @@ Ein, Zwei Polizei
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.10.2004 reviews Кибер-метал из России. Пока неудача!
+
+<P><EM><STRONG>XE-NONE</STRONG> - группа из Кирова, играющая тяжёлую музыку с большим количеством электроники. Мода докатилась и до окраин! Четыре композиции, у которых достаточно мало общего между собой. </EM></P>
+<P>Первая <STRONG>'Slave On Line'</STRONG> представляет мелодичный industrial-black-metal с постоянными женскими подпевками (девушке респект). Песня очень хорошая, цепляющая, но есть один большой недостаток - даже мелодия близка к альбому '<STRONG>Animatronic</STRONG>' одной известной группы. Дальше начинаются эксперименты. <STRONG>'Digital Fucker'</STRONG> и <STRONG>'Crazy Shit'</STRONG> звучат под стать своему называнию - цифровой трахер и сумасшедшее дерьмо. Набор индустриальных риффов обильно сдобренных электоникой, невнятные вокалы. Пожалуй, только на 'Crazy <STRONG>Shit'</STRONG> можно отметить некоторые куски, а <STRONG>'Digital Fucker'</STRONG> остался мною непонятым. Четвёртая вещь - это кавер <STRONG>'Ein, Zwei Polizei',</STRONG> была такая попсовая вещь в своё время. Так вот она звучит, как оригинал, последовательно переписанный с кассеты на кассету несколько раз. Такая же попса, только дурно записанная.</P>
+<P>Главным же недостатком этого EP является запись. Какое-то компьютерное звучание всех инструментов, включая гитару, не выглядит готовым к употреблению широким кругом слушателей.</P>
+<P>Достаточно высокая оченка только за хитовый <STRONG>'Slave On Line'</STRONG>, который мы не станем преждевременно причислять к плагиату и обратим внимание коллектива на то, что им необходимо записать пяток таких песен, чтобы они продались вместе с такими нехорошими композициями, как "<STRONG>Дерьмо..."</STRONG> и <STRONG>"Трахер...".</STRONG></P>
+<P>[+] - хитовая мелодия и работа вокалистки в <STRONG>'Slave On Line'</STRONG></P>
+<P>[-] - плохая запись, плохиме остальные песни</P>
+Автор: Vit Belov
+
+### 23.11.2005 news Xe-NONE - Blood Rave залит в Сеть
+
+<P>Кировский Industrial Dance Metal бэнд<STRONG> Xe-NONE</STRONG> закончил работу над своим вторым EP названным "<STRONG>Blood Rave</STRONG>" и выложил его в Сеть.&nbsp; Трэк-лист:</P>
+<P>1. <STRONG>All Exits Closed</STRONG> (<A href="http://www.xe-none.com/mp3/bloodrave/xe-none_01_all_exits_closed.mp3">http://www.xe-none.com/mp3/bloodrave/xe-none_01_all_exits_closed.mp3</A>)<BR>2. <STRONG>Blood Rave</STRONG> (<A href="http://www.xe-none.com/mp3/bloodrave/xe-none_02_blood_rave.mp3">http://www.xe-none.com/mp3/bloodrave/xe-none_02_blood_rave.mp3</A>)<BR>3. <STRONG>No Limits</STRONG> (<A href="http://www.xe-none.com/mp3/bloodrave/xe-none_03_no_limits.mp3">http://www.xe-none.com/mp3/bloodrave/xe-none_03_no_limits.mp3</A>)<BR>4. <STRONG>Transgressing</STRONG> (<A href="http://www.xe-none.com/mp3/bloodrave/xe-none_04_transgressing.mp3">http://www.xe-none.com/mp3/bloodrave/xe-none_04_transgressing.mp3</A>)<BR>5. <STRONG>Decay Dance</STRONG> (<A href="http://www.xe-none.com/mp3/bloodrave/xe-none_05_decay_dance.mp3">http://www.xe-none.com/mp3/bloodrave/xe-none_05_decay_dance.mp3</A>)<BR>6. <STRONG>Stars</STRONG> (<A href="http://www.xe-none.com/mp3/bloodrave/xe-none_06_stars.mp3">http://www.xe-none.com/mp3/bloodrave/xe-none_06_stars.mp3</A>)</P>
+<P>Детали на <A href="http://www.xe-none.com/">www.xe-none.com</A></P>
+Автор: Vit Belov
+
+### 08.01.2006 news Сборник Legacy Of Metall
+
+<P>Лейбл <STRONG>Резонанс Music Inc.</STRONG> выпустил свой первый тяжелый релиз - сборник металла "<STRONG>Legacy of Metall</STRONG>" (????, прим. авт.). Трэк-лист:</P>
+<P>1. <STRONG>ATOMICA - "Waarom? "<BR></STRONG>2. <STRONG>DarkSide - "Нечего терять"<BR></STRONG>3.<STRONG> ITEM - "All Away"<BR></STRONG>4. <STRONG>Tartharia - "Vanguard extremenation"<BR></STRONG>5. <STRONG>Магистериум (Омск) - "Чёрный Дождь"<BR></STRONG>6. <STRONG>Xe-None (Киров) - "Stars"<BR></STRONG>7. <STRONG>Death Rattle - "Feel the Madness"<BR></STRONG>8. <STRONG>Кровавый Бал (Норильск) - "Восход черного солнца"<BR></STRONG>9. <STRONG>ЭПАТАЖ - "Зверь"<BR></STRONG>10. <STRONG>Balfor (Тверь) - "Знамение"<BR></STRONG>11. <STRONG>ЗОВ - "Ветер Смерти"<BR></STRONG>12. <STRONG>ARVARALDA (Донецк) - "Leaves Of Rivendell"<BR></STRONG>13. <STRONG>О.Х. - "Something wrong" (кавер на группу "Кому")<BR></STRONG>14. <STRONG>Apokefale (Томск) - "Absorb the astral dimension"<BR></STRONG>15. <STRONG>Empire of Crimes - "Отречение"<BR></STRONG>16.<STRONG> КОМА - "Way of illusions"<BR></STRONG>17. <STRONG>Abnormal feat Севирный Мидветь - "I have no masters"<BR></STRONG>18. <STRONG>FM-2000 (Finland) - "Ammu ja lataa"</STRONG></P>
+<P>Контакт: <A href="mailto:pressa@pushkinmedia.ru">pressa@pushkinmedia.ru</A>, <A href="mailto:robert_gray@mail.ru">robert_gray@mail.ru</A> </P>
+Автор: Vit Belov
+
+### 12.06.2007 news Xe-NONE - интернет-сингл Angels в сети
+
+<P>Dance-metal бэнд<STRONG> Xe-NONE</STRONG> (г.Киров) закончили запись демо Angels, которое в настоящее время полностью выложено и на официальном <STRONG>MySpace</STRONG> группы (<A href="http://myspace.com/xenonerus">http://myspace.com/xenonerus</A>), так и на официальном сайте (<A href="http://www.xe-none.com/">http://www.xe-none.com</A>) в виде интернет-сингла.</P>
+<P>1. <STRONG>Angels </STRONG>(<A href="http://www.xe-none.com/mp3/2007/xe-none_01_angels.mp3">http://www.xe-none.com/mp3/2007/xe-none_01_angels.mp3</A>)<BR>2. <STRONG>Digital Fucker AD</STRONG> (<A href="http://www.xe-none.com/mp3/2007/xe-none_02_digital_fucker_ad.mp3">http://www.xe-none.com/mp3/2007/xe-none_02_digital_fucker_ad.mp3</A>)<BR>3. <STRONG>Slave On_Line</STRONG> (<A href="http://www.xe-none.com/mp3/2007/xe-none_03_slave_on_line.mp3">http://www.xe-none.com/mp3/2007/xe-none_03_slave_on_line.mp3</A>)</P>
+<P><STRONG>Xe-NONE</STRONG>: "<EM>В конце прошлого года мы произвели успешный апгрейд системы. Немного изменили форму, немного содержание. Запись этого релиза открывает новый этап в студийной деятельности нашего бэнда, а также во многом определяет дальнейшее развитие нашего стиля. Мы не планируем коммерческого распространения этих записей на концертах или в магазинах. Но очень надеемся, что благодаря этим 3 трекам дата выхода нашего дебютника будет обозначена более конкретно. А пока - до встречи на концертах</EM>!"</P>
+Автор: Vit Belov
+
+### 06.11.2007 news Xe-NONE - видео Angels на подходе!
+
+<P>Боевая dance metal машина <STRONG>Xe-NONE</STRONG> в ближайшее время заканчивает работу над своим первым видеоклипом.</P>
+<P><STRONG>Xe-NONE</STRONG>: "<EM>Это наше первое постановочное видео. Съемки прошли в два дня. Мы работали в павильоне, арендовали ночной клуб, гоняли на лимузине и собрали массовку из абсолютно безбашенных девчонок, которые устроили ломовой dance-угар. По славной советской традиции, выход видео на песню Angels приурочен к неотвратимо наступающему Новому Году, а также завершению работы над дебютным полноформатником!"</EM></P>
+<P>Трейлер видео <STRONG>Angels</STRONG> выложен ТУТ: <A href="http://www.xe-none.com/news.php">http://www.xe-none.com/news.php</A></P>
+Автор: Vit Belov
+
+### 27.02.2008 news Xe-NONE - обложка и название альбома
+
+<P>Dance-metal бэнд <STRONG>Xe-NONE</STRONG> обнародовали обложку и трек-лист, готовящегося к выходу альбома. Обложку альбома "<STRONG>Dance Metal [Rave]olution</STRONG>" можно посмотреть здесь (<A href="http://www.xe-none.com/pigs/art/dancemetalraveolution_cover.jpg">http://www.xe-none.com/pigs/art/dancemetalraveolution_cover.jpg</A>)</P>
+<P>Вот что говорят по поводу названия альбома сами <STRONG>Xe-NONE</STRONG>: "<EM>Скорее всего, мы затруднимся ответить на вопрос "почему альбом назван именно так?", но самый ближайший ответ на данный вопрос прозвучит примерно таким образом "эти 3 слова наилучшим образом описывают то, что Вы все услышите на этом диске</EM>".</P>
+<P>Трек-лист "<STRONG>Dance Metal [Rave]olution</STRONG>" выглядит так:</P>
+<P>01 | <STRONG>[Rave]olution<BR></STRONG>02 | <STRONG>Angels<BR></STRONG>03 | <STRONG>Digital Fucker A.D.<BR></STRONG>04 | <STRONG>Decay Dance</STRONG><BR>05 | <STRONG>Collapse<BR></STRONG>06 |<STRONG> [Play]station</STRONG><BR>07 | <STRONG>Amnesthesia<BR></STRONG>08 | <STRONG>Day of the Dead<BR></STRONG>09 | <STRONG>Slave On Line</STRONG><BR>10 | <STRONG>Heaven Awaits</STRONG></P>
+<P>Комментарий от <STRONG>Lexy Dance</STRONG> (vocal/programming): "<EM>Мы постарались сделать этот альбом максимально разнообразным. Слушатель найдёт здесь как стопроцентные dance-metal боевики вышибающие диффузоры ваших акустических систем, так и более лиричные композиции, демонстрирующие эмоциональные грани нашего творчества. А также жесточайшие кислотные экскурсы в середину симфоблэковых девяностых!</EM>"</P>
+<P>В настоящее время помимо работы над окончанием альбома <STRONG>Xe-NONE</STRONG> активно готовятся к выступлению на Dark Stage fest'е, который состоится 29 февраля в московском клубе "Релакс". Все подробности на официальном сайте группы (<A href="http://www.xe-none.com/">http://www.xe-none.com</A>)</P>
+Автор: Vit Belov
+
+### 03.04.2008 news Xe-NONE: новые треки в сети
+
+<P>Кировский dance-metal бэнд <STRONG>Xe-NONE</STRONG> опубликовал на своей <STRONG>MySpace</STRONG>-странице демо-миксы треков <STRONG>[Play]station</STRONG> и <STRONG>Heaven Awaits</STRONG>, который войдут в дебютный полноформатник. </P>
+<P>Комментирует <STRONG>Lexy Dance</STRONG> (vocal): "<EM>В определённой степени альбом Dance Metal [Rave]olution пропитан атмосферой 90'х годов. Это и послужило причиной того, что эти два трека были выбраны для Вашего внимания. Потому что именно они отлично показывают корни нашего творчества, уходящие в eurodance и sypho-black тех лет. Check this out</EM>!"</P>
+<P>Ссылка: <A href="http://www.myspace.com/xenonerus">http://www.myspace.com/xenonerus</A></P>
+Автор: Vit Belov
+
+### 30.09.2008 news Xe-NONE: видеоклип Digital Fucker A.D. в сети
+
+<P>Группа <STRONG>XE-NONE</STRONG> закончила работу над видеоклипом к треку <STRONG>Digital Fucker A.D</STRONG>. с дебютного альбома "<STRONG>Dance Metal [Rave]olution</STRONG>", выпущенного в мае сего года.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3X5T93eJBIc&hl=ru&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/3X5T93eJBIc&hl=ru&fs=1"; type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 17.02.2009 news XE-NONE на фестивале Aaltjesrock
+
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2009.02/13596.jpg" width=300 align=left border=5>На официальном сайте набирающего силу голандского metal-феста<STRONG> Aaltjesrock</STRONG> появилось следующее сообщение: "<EM>Да! Мы наконец сделали это. Мы заполучили Xe-NONE! С тех пор как мы первый раз услышали эту группу мы знали, что рано или поздно, но пригласим их. И вот, встречайте, из России с любовью - Xe-NONE! Мы надеемся, что и вы врубитесь в эту банду!</EM>"</P>
+<P>В настоящее время<STRONG> Xe-NONE</STRONG> активно работают над новый материалом как для пары новых EP , так и для второго полноформатного альбома, который будет развивать направление прошлогоднего дебютника "<STRONG>Dance Metal [Rave]olution</STRONG>". </P>
+<P>Несколько новых треков группа отыграет&nbsp; в московском клубе "<STRONG>Релакс</STRONG>" на своём первом московском сольнике! Который состоится в ночь с 21 на 22 февраля! </P>
+Автор: Vit Belov
+
+### 25.03.2009 news Garage Days от Xe-NONE
+
+<P>Разминаясь перед началом работы над своим следующим полноформатным альбомом, кировская dance metal группа <STRONG>Xe-NONE</STRONG>, известная уже не только в России, но и за рубежом, решила записать мини-альбом - дань памяти и уважения популярной танцевальной музыке 90-х.</P>
+<P>Вот что группа сообщила по этому поводу: </P>
+<P><EM>«С самого начала своей деятельности мы регулярно играли на концертах разные песни из творческого наследия "евродэнсовых" 90-х. Нам это всегда было по кайфу, и слушателям, судя по их реакции на концертах, тоже. Нас постоянно спрашивают после выступлений: когда мы уже запишем тот или иной кавер из тех, что мы исполняем на концертах? «Ну когда-же, когда-же уже наконец?!» - вот в таком роде. </EM></P>
+<P><EM>Вот поэтому необходимость записи данного мини-альбома была для нас вполне очевидна, и это было лишь вопросом времени. Сегодня можно с уверенностью сказать, что время пришло! В настоящий момент полным ходом идет пре-продукция этого, безусловно, долгожданного релиза. </EM></P>
+<P><EM>Мы хотим сразу сказать, что это не будет диск с шуточными или стебными каверами, так широко ныне распространенными среди наших коллег по цеху. Каждый наш кавер, это в первую очередь настоящее уважение и неподдельная любовь к самой жизнерадостной музыке на свете. </EM></P>
+<P><EM>Мы обещаем, что приложим все усилия, для того чтобы этим летом у наших слушателей был просто офигенский саундтрек для активного отдыха и позитивного труда!»</EM></P>
+<P>Подробности на <A href="http://www.xe-none.com/">http://www.xe-none.com</A></P>
+Автор: Vit Belov
+
+### 26.10.2009 news Xe-NONE приступили к записи второго альбома
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.10/15368.jpg" width=400 align=left border=5>Выразив свои респекты ушедшей эпохе 90-х на мини-альбоме «<STRONG>Dance Inferno Resurrection</STRONG>», <STRONG>Xe-NONE</STRONG> принялись за запись второго полноформатника. </P>
+<P>Вот что по этому поводу сообщает группа: «<EM>Да, действительно, мы основательно засели за наш второй альбом. Обычно многие группы в подобных случаях начинают толкать телеги на тему «мы так волнуемся» или «нам не терпится скорее представить результаты слушателям». Мы будем проще. </EM></P>
+<P><EM>У нас есть примерно 15 треков в разработке и 10 из них войдут в наш второй альбом. Некоторые из них мы уже играли на наших концертах, и реакция публики говорит, что мы на правильном пути. Восемь песен будут очередным этапом&nbsp; развития стиля "dance metal" в нашем понимании, одна будет крайне атмосферным медляком и еще одна – скоростным индустриально-блэковым эпиком. Примерно так. </EM></P>
+<P><EM>Ну и, конечно, мы просто обязаны сказать, что наш следующий альбом будет гораздо быстрее и тяжелее своего предшественника!</EM>"</P>
+<P>Официальный сайт: <A href="http://www.xe-none.com/">http://www.xe-none.com</A></P>
+Автор: Vit Belov
+
+### 08.04.2010 news Новый интернет - сингл Xe-NONE
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.04/16494.jpg" width=400 align=right border=5>1 апреля группа <STRONG>Xe-NONE</STRONG> выложили для свободного скачивания сингл «<STRONG>Cyber Girl</STRONG>». Трэк-лист сингла:</P>
+<P>1. <STRONG>Cyber Girl</STRONG><BR>2. <STRONG>Summertime</STRONG><BR>3. <STRONG>North Capital</STRONG><BR>4. <STRONG>Cyber Girl</STRONG> (remix)</P>
+<P><STRONG>Newman</STRONG> (Xe-NONE, synths and samples): "<EM>В данный момент мы достаточно плотно работаем над нашим вторым полноформатным альбомом. И этот сингл мы выпустили, чтобы наши слушатели не забывали о нас, не думали, что мы забыли о них в процессе нашей студийной работы. Мы определенно достигли нового уровня, и важно его зафиксировать, заявить, что бы уже на альбоме продемонстрировать качество еще выше того, чем мы сами ожидаем от себя!</EM>"</P>
+<P>Скачать сингл вы можете здесь: <A href="http://www.xe-none.com/cgs.rar">http://www.xe-none.com/cgs.rar</A></P>
+Автор: Vit Belov
+
+### 17.10.2010 news Xe-NONE подписались на Chaotic Noiz
+
+<P><IMG border=0 hspace=10 alt="" align=left src="/images/news_rus/2010.10/17391.jpg" width=400 height=266>Российская Industrial Dance Metal - группа&nbsp;<STRONG>Xe-NONE</STRONG> подписала контракт на издание второго полноформатного альбома с лейблом <STRONG>CHAOTIC NOIZ</STRONG> (подразделение <STRONG>СОЮЗ</STRONG>).<BR><BR>Комментирует <STRONG>Lexy Dance</STRONG>: «Подписание контракта с лейблом <STRONG>CHAOTIC NOIZ</STRONG> на издание нашего второго полноформатника «<STRONG>Dancefloration</STRONG>» - большой шаг для <STRONG>Xe-NONE</STRONG>. Нам очень приятно это доверие со стороны лейбла и мы более чем уверены, что это начало большой и крепкой дружбы! Выход на новый уровень заставил нас более ответственно подойти к нашему материалу и способу его реализации, поэтому мы немного выбились из графика, но, уже сейчас прослушивая предварительные миксы, я более чем уверен, что наш новый альбом будет гораздо мощнее всего, что мы делали раньше. Я думаю, что это именно та пластинка, на которой мы, наконец, нашли нужный баланс между танцевальной и экстремальной составляющей нашей музыки. Да, в некотором роде мы изменились, но в то же время <STRONG>Xe-NONE</STRONG> остаётся <STRONG>Xe-NONE</STRONG>, и наш новый альбом станет очередным безумным и угарным трипом на музыкальные территории, куда немного кто отважился отправиться в здравом уме и твёрдой памяти!»<BR><BR>Выход релиза запланирован на январь 2011 года в рамках серии релизов лейбла под названием «<STRONG>Cyber Revolution</STRONG>», подробности которой будут позже! Следите за новостями!<BR><BR></P>
+Автор: Dimas
+
+### 15.11.2010 news Xe-NONE - российские победители конкурса DEATHSTARS
+
+<P><IMG height=292 alt="" hspace=0 src="/images/news_rus/2010.11/17606.jpg" width=330 align=right border=5>Делюкс-издание последнего релиза <STRONG>DEATHSTARS "Night Electric Night"</STRONG> под кодовым названием "<STRONG>Platinum Edition</STRONG>" помимо оригинального альбома включает бонус-диск с ранее непубликовавшимися треками группы, а также с ремиксами на нетленки&nbsp;<STRONG>DEATHSTARS</STRONG> от таких групп как <STRONG>The Kovenant, Sybreed, Dope Stars Inc</STRONG> и <STRONG>Xe-NONE</STRONG>. Последние стали одними из трёх победителей проводимого<STRONG>&nbsp;DEATHSTARS</STRONG> конкурса ремиксов со своим видением композиции "<STRONG>Last Ammunition</STRONG>"</P>
+<P>Диск продаётся в он-лайн магазине <STRONG>Nuclear Blast</STRONG>:</P>
+<P><A href="http://www.nuclearblast.de/showDynamicPage.php?ident=releasedetail&rid=2063">http://www.nuclearblast.de/showDynamicPage.php?ident=releasedetail&rid=2063</A></P>
+Автор: Vit Belov
+
+### 22.12.2010 news Xe-NONE опубликовали  обложку и трек-лист второго полноформатника
+
+<P><STRONG><IMG border=0 hspace=10 alt="" vspace=10 align=right src="/images/news_rus/2010.12/17921.jpg" width=300 height=300>Xe-NONE</STRONG> опубликовали обложку и трек-лист готовящегося к выходу второго полноформатного альбома «<STRONG>Dancefloration</STRONG>». </P>
+<P>Трэк-лист «<STRONG>Dancefloration</STRONG>» выглядит так:</P>
+<P>01. <STRONG>Heartcore<BR></STRONG>02. <STRONG>Summertime<BR></STRONG>03. <STRONG>Dreamcity</STRONG><BR>04.<STRONG> Dance Row</STRONG><BR>05. <STRONG>Faceless</STRONG><BR>06. <STRONG>I Seek You</STRONG><BR>07. <STRONG>Cyber Girl</STRONG><BR>08. <STRONG>Black Hole Time</STRONG><BR>09. <STRONG>VHS</STRONG><BR>10. <STRONG>Blood Fire Snow</STRONG></P>
+<P>Выход альбома запланирован на январь 2011 года на лейбле <STRONG>Chaotic Noiz/СОЮЗ.</STRONG></P>
+<P>Официальный сайт группы: <A href="http://www.xe-none.com/">http://www.xe-none.com</A></P>
+Автор: Vit Belov
+
+### 22.03.2011 news Xe-NONE выпустили второй полноформатный альбом
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.03/18920.jpg" width=400 align=right border=0>22 марта на российском лейбле <STRONG>Chaotic Noiz</STRONG> вышел второй полноформатный альбом кировской industrial-dance-metal группы <STRONG>Xe-NONE "Dancefloration"</STRONG>. Трек-лист альбома выглядит так:</P>
+<P>01. <STRONG>Heartcore</STRONG><BR>02. <STRONG>Summertime<BR></STRONG>03. <STRONG>Dreamcity<BR></STRONG>04. <STRONG>Dance Row</STRONG><BR>05. <STRONG>Faceless<BR></STRONG>06. <STRONG>I Seek You</STRONG><BR>07. <STRONG>Cyber Girl</STRONG><BR>08. <STRONG>Black Hole Time</STRONG><BR>09. <STRONG>VHS<BR></STRONG>10. <STRONG>Blood Fire Snow</STRONG></P>
+<P>Альбом был записан в основном силами группы. Реампинг гитар был выполнен на <STRONG>God n Devil Studio Сергеем "ID" Боголюбским</STRONG> (<STRONG>СЛОТ</STRONG>). Сведение и мастеринг, по-традиции, выполнил <STRONG>Lexy Dance</STRONG> на базе собственной <STRONG>RefLEXYa Prod</STRONG>. Продолжая линию дебютного альбома, <STRONG>Xe-NONE</STRONG> сделали упор на еще более отвязное, рваное и мощное звучание и еще более продуманные аранжировки.</P>
+<P>Сайт группы: <A href="http://www.xe-none.com/">http://www.xe-none.com</A><BR>Группа вКонтакте: <A href="http://vkontakte.ru/club42960">http://vkontakte.ru/club42960</A></P>
+Автор: Vit Belov
+
+### 05.10.2011 news Xe-NONE представляют нового гитариста
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.10/21417.jpg" width=300 align=right border=0>В связи с резким поворотом стилистики группы<STRONG> Xe-NONE</STRONG> в оголтелый cyber-шансон и ресторанный поп, группу покинули вокалистка<STRONG> EvilAnn</STRONG> и гитарист<STRONG> Fucker</STRONG>. В связи с этим в группу был рекрутирован <STRONG>Лев Негодяев (гр. Центр Тяжести)</STRONG>, мастерски исполнивший на кастинге такие треки как "<STRONG>Кольщик</STRONG>", "<STRONG>3 сентября</STRONG>" и, конечно же, "<STRONG>Мой номер 245</STRONG>". В настоящее время группа не вылазит из многочисленных кировских кабаков, внимательно отслушивая всех поющих девочек. Имя новой вокалистки будет анонсировано по итогам поисков.</P>
+<P>Последние концерты <STRONG>Xe-NONE</STRONG> с участием <STRONG>EvilAnn</STRONG> и <STRONG>Fucker</STRONG>'a состоятся в в Санкт-Петербурге (28 октября) и Москве (29 октября).</P>
+<P>Сайт группы:&nbsp; <A href="http://www.xe-none.com/">www.xe-none.com</A><BR><STRONG>Xe-NONE</STRONG> вКонтакте: <A href="http://www.vk.com/xe_none">www.vk.com/xe_none</A></P>
+Автор: Vit Belov
+
+### 01.04.2012 news Xe-NONE записали кавер на Сектор Газа
+
+<P><IMG height=267 alt="" hspace=0 src="/images/news_rus/2012.04/23386.jpg" width=400 align=right border=0>В честь неотвратимо наступающей весны, а также Дня Дурака российские первопроходцы, флагманы и просто Короли жанра Dance Metal – группа<STRONG> Xe-NONE</STRONG> записали кавер на одну из лучших песен о любви – трек «<STRONG>Вечером на лавочке</STRONG>» группы «<STRONG>СЕКТОР ГАЗА</STRONG>». Пусть эта песня наполнит сердца наших слушателей верой в то, что настоящая любовь и взаимопонимание были, есть и будут!</P>
+<P>Скачать кавер Вы можете здесь: <A href="http://www.xe-none.com/m/Xe-NONE_VnL.rar">http://www.xe-none.com/m/Xe-NONE_VnL.rar</A></P>
+<P>Официальный сайт группы: <A href="http://www.xe-none.com/">www.xe-none.com</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Xe-NONE - Angels: видео онлайн!

@@ -86,6 +86,67 @@ Erkki Silvennoinen - bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.03.2005 reviews Аморальные метаморфозы
+
+<P>Дебютное творение финской группы. Ребята пытаются смешать воедино melodic death, techno death,&nbsp;thrash&nbsp;и progressive metal. Первоначально, этот альбом вышел на <STRONG>Rage Of Achilles</STRONG> в начале 2004 года. После того, как прошлой осенью, <STRONG>Rage Of Achilles</STRONG> приостановил свою деятельность, музыкантами было принято решение переиздать свою работу на местном лейбле <STRONG>Spikefarm</STRONG>. Именно этот вариант вышел в России по лицензии. Материал был записан в довольно известной финской <FONT color=#c0c0c0><STRONG>Sonic Pump Studios,</STRONG> а мастеринг выполнил<STRONG> Mika Jussila</STRONG> в студии <STRONG>Finnvox.</STRONG> Плотный звук, сочные гитары, однако, на мой взгляд, качество музыки на этом альбоме не так уж и безупречно,&nbsp;тем не менее,&nbsp;нельзя не отметить высокий профессионализм и технику самих музыкантов. Кроме того,&nbsp;все партии баса для этого альбома записал <STRONG>Ville Sorvali (MOONSORROW).</STRONG> Ну вот, пожалуй, и все околоальбомные подробности. Перейдем к самой музыке. Описать ее довольно трудно, пока не прослушаешь несколько раз. Представьте себе смесь <STRONG>SOILWORK, DREAM THEATER, MEGADETH&nbsp;и DECAPITATED</STRONG>. И это еще не все. Здесь сплетаются мелодичные соло с&nbsp;короткими жесткими риффами, смены темпа&nbsp;с рваными&nbsp;сбивками, воздушная атмосферика с отполированной сухостью. Мелодичный, техничный и&nbsp;разнообразный материал. При этом, несколько скучноватый и надоедающий спустя определенное время. Сразу целиком слушать его не советую. А вот по частям, очень даже ничего.</FONT></P>
+<P><FONT color=#c0c0c0>Диск предоставлен <A href="http://www.fono.ru/">ФОНО</A></FONT></P>
+Автор: Dimas
+
+### 15.01.2009 news AMORAL выпускают сингл
+
+<P>Финны <STRONG>AMORAL</STRONG> выпускают новый сингл <STRONG>"Year Of The Suckerpunch" </STRONG>11 февраля. Это первая работа группы с новым певцом <STRONG>Ari Koivunen. </STRONG>Кроме заглавной песни на сингл попадёт кавер на <STRONG>MISFITS</STRONG> <STRONG>"Dig Up Her Bones"</STRONG>. В настоящее время <STRONG>AMORAL</STRONG> сводят свой пока не названный альбом для релиза в мае.</P>
+Автор: Vit Belov
+
+### 22.01.2009 news Новая песня AMORAL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый сингл <STRONG>AMORAL</STRONG> <STRONG>"Year Of The Suckerpunch" </STRONG>выложен на их <STRONG>MySpace</STRONG> страничке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/amoralweb">http://www.myspace.com/amoralweb</A></FONT></P>
+Автор: Vit Belov
+
+### 28.02.2009 news AMORAL назвали альбом
+
+<P>Новый альбом <STRONG>AMORAL </STRONG>будет называться <STRONG>"Show Your Colors" </STRONG>и выйдет в мае. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Random Words</B><BR itxtvisited="1">02. <B itxtvisited="1">Release</B><BR itxtvisited="1">03. <B itxtvisited="1">A Shade of Gray</B><BR itxtvisited="1">04. <B itxtvisited="1">Year of the Suckerpunch</B><BR itxtvisited="1">05. <B itxtvisited="1">Perfection Design</B><BR itxtvisited="1">06. <B itxtvisited="1">Sex N' Satan</B><BR itxtvisited="1">07. <B itxtvisited="1">Song for the Stubborn</B><BR itxtvisited="1">08. <B itxtvisited="1">Vivid</B><BR itxtvisited="1">09. <B itxtvisited="1">Gave Up Easy</B><BR itxtvisited="1">10. <B itxtvisited="1">Last October</B><BR itxtvisited="1">11. <B itxtvisited="1">Exit</B></P>
+<P>Две композиции с альбома можно послушать здесь: <A href="http://www.myspace.com/amoralweb">http://www.myspace.com/amoralweb</A></P>
+Автор: Vit Belov
+
+### 29.04.2009 news Альбом AMORAL
+
+Новый альбом <STRONG>AMORAL</STRONG> <STRONG>"Show Your Colors" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/amoralweb">http://www.myspace.com/amoralweb</A>
+Автор: Vit Belov
+
+### 11.11.2009 reviews Не AMORAL ни разу
+
+<P>Финская группа AMORAL взяла в 2008 году в свой состав самопровозглашённую икону финского метала певца Ari Koivunen. С тех пор фанаты этой группы, если таковые имелись, могут забыть о существовании этого коллектива.</P>
+<P>Честно говоря, с трудом верится, что AMORAL за время своего существования заработали такое имя, что расстаться с ним не представляется возможным. А только этим фактом можно объяснить досадное желание группы играть hard’n’heavy/AOR с примесями progressive под вывеской techno-death-metal команды. Стоит пожалеть тех, кто купит новый диск AMORAL, руководствуясь их прежней репутацией. Финнам придётся услышать в свой адрес массу пренеприятнейших выражений, потому что тот стиль, который я указал выше, на этом альбоме и обнаруживается. Без всяких прикрас или возможных утяжелённых вариантов. Просто хорошая мелодичная музыка из 80-х годов с приятным вокалом и гитарными соло. В принципе, мне всё равно, что слушать. Можно и heavy-metal, тем более, когда он профессионально сыгран, а с этим здесь проблем нет. Но вот поклонники… В общем, я уже об этом говорил…</P>
+<P>Неплохая работа, которая не является альбомом группы AMORAL. Но оценку мы ставим не за то, что это AMORAL, а за музыку. А музыка здесь очень не плохая.</P>
+Автор: Vit Belov
+
+### 06.08.2011 news Новая песня AMORAL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>AMORAL</STRONG> <STRONG>"(Won't Go) Home" </STRONG>можно послушать ниже. Песня взята с нового альбома финнов <STRONG>"Beneath"</STRONG>, который выйдет в октябре. Пластинка была записана в студии <STRONG>Sound Supreme.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT height=136 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Fplaylists%2F991232&"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="136" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Fplaylists%2F991232&" type="application/x-shockwave-flash" width="100%"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 01.06.2012 news Новый клип AMORAL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>AMORAL </STRONG>на песню <STRONG>"Wrapped In Barbwire" </STRONG>можно посмотреть ниже. Трек взят с пятого альбома коллектива <STRONG>"Beneath", </STRONG>который вышел в этом году на <STRONG>Фоно</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/kfv1hb37j9M?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 26.03.2014 news Новый клип AMORAL
+
+<P>Новое видео <STRONG>AMORAL </STRONG>на песню <STRONG>'Blueprints'&nbsp;</STRONG>можно посмотреть ниже. Трек войдёт на новый альбом финнов "<STRONG>Fallen Leaves & Dead Sparrows</STRONG>", выходящий в конце марта.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26782.png" width=410 height=410></P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/_MthLoHeclg?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

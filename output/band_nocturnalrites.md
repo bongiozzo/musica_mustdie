@@ -204,6 +204,438 @@ Mixed by Mattias Eklund and Nocturnal Rites at Toontrack Music, January—Februa
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2001 news NOCTURNAL RITES пишут новый альбом.....
+
+<p>Мелодичные шведские металлеры "NOCTURNAL RITES" пишут материал к пятому студийному альбому запланированному к выходу на начало 2002. Уже четыре песни полностью готовы и как сказал Nils Eriksson "...у нас целый вагон идей". Помимо записи NOCTURNAL RITES собираются участвовать в ряде фестивалей, среди которых Sweden Rock Festival (участники W.A.S.P., U.D.O., HELLOWEEN, DOKKEN, GARY MOORE и другие).</p>
+
+Автор: Yermola
+
+### 29.05.2001 news NOCTURNAL RITES are currently writing material.....
+
+<p>Swedish melodic metal gods NOCTURNAL RITES are currently writing material for their fifth studio album, which is tentatively scheduled to be recorded at the end of the year for an early 2002 release. About four songs have been completed, according to bassist Nils Eriksson, "plus a truckload of ideas". NOCTURNAL RITES are making a number of festival appearances during the summer, including one at the Sweden Rock Festival this coming weekend, where they will be performing alongside W.A.S.P., U.D.O., HELLOWEEN, DOKKEN, GARY MOORE and many others. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 21.11.2001 news NOCTURNAL RITES are due to enter Dug-Out Studios...
+
+<p>Swedish power metal gods NOCTURNAL RITES are due to enter Dug-Out Studios in Uppsala, Sweden with producer Daniel Bergstrand (i.e. STRAPPING YOUNG LAD, STUCK MOJO, MESHUGGAH) later this month to begin recording their as-yet-untitled brand new CD, which is tentatively due to be released through Century Media Records in the spring. Among the song titles that are set to appear on the effort are: <BR><BR> 01. Underworld <BR> 02. Vengeance <BR> 03. Shadowland <BR> 04. Faceless God</p>
+
+Автор: Yermola
+
+### 21.11.2001 news NOCTURNAL RITES в студии...
+
+<p>"NOCTURNAL RITES" собираются засесть в Dug-Out Studios (Швеция) с продюссером Daniel Bergstrand (MESHUGGAH, STRAPPING YOUNG LAD, STUCK MOJO) для записи пока-еще-не-названного диска, который должен выйти через Century Media Records весной. Уже известны названия некоторых песен: <BR><BR> 01. Underworld <BR> 02. Vengeance <BR> 03. Shadowland <BR> 04. Faceless God</p>
+
+Автор: Yermola
+
+### 05.03.2002 news Shadow Land ...
+
+<p>Swedish power metallers Nocturnal Rites confirm that Shadow Land is the title of the follow-up to 2000's Afterlife opus. <BR><BR> Recorded with Daniel Bergstrand (In Flames, Meshuggah) at Dug-Out Studios in Uppsala, Sweden, Nocturnal Rites cite their new material is "evil shit" and that fans can expect "a few surprises." <BR><BR> The following is confirmed track list: "Eyes Of The Dead," "Shadowland," "Invincible," "Revelation," "Never Die," "Underworld," "Vengeance," "Faceless God," "Birth Of Chaos" and "The Watcher." <BR><BR> Nocturnal Rites Shadow Land is expected to drop sometime in the summer on Century Media Records.</p>
+
+Автор: Yermola
+
+### 05.03.2002 news Тенистая Страна Ночных Ритуалов...
+
+<p>"Nocturnal Rites" подтвердили название "Shadow Land" для нового альбома. Трек-лист: <BR><BR> "Eyes Of The Dead" <BR> "Shadowland" <BR> "Invincible" <BR> "Revelation" <BR> "Never Die" <BR> "Underworld" <BR> "Vengeance" <BR> "Faceless God <BR> "Birth Of Chaos"<BR> "The Watcher" <BR><BR> "Тенистая Страна" выйдет летом на Century Media Records.</p>
+
+Автор: Yermola
+
+### 24.06.2002 reviews Крепкие середнячки Melodic Power
+
+<p>"Shadowland" - новый альбом шведской Melodic Power группы "Nocturnal Rites". Знаете такую? Честно говоря, после ухода их лидер-вокалиста по имени Anders Zackrisson и достаточто средненького альбома "Afterlife" я не ожидал, что эти шведы столь серьезно подойдут к своему новому детищу. Вышел он не где-нибудь, а на скандинавском суперлейбле Century Media. Состав остался прежним: Johnny Lindkvist – (vocals ), Fredrik Mannberg – (lead guitar), Nils Norberg – (rhythm guitar), Nils Eriksson – (bass) Owe Linghvall – (drums)Matthias Bernhardsson – (keyboards). Теперь о музыке: хорошо звучащие жесткие гитары, грамотные соло партии, четкий вокал. Чуть слышные бек-клавиши… Похоже это и на Hammerfall и еще на кучу других групп. Похожа на многие даже их обложка: слева – солнце, справа – тьма, посредине – маг-кудесник с посохом. Такой вот Сумеречный Мир ("Shadowland") в исполнении художника Leo Hao… Что еще сказать хорошего про этот диск ? Может, дело в том, что подобных ему альбомов сейчас выпускают предостаточно. Альбомы-близнецы уже начинают нам надоедать. А вот раньше... Ранние альбомы тех же "Nocturnal Rites" на Горбушке шли "на ура". Теперь можно только сказать про них: крепкие середнячки. Неплохое приобретение для тех, кто занимается коллекционированием дисков. Из песен наиболее запомнившихся: Invincible, Vengeance, Birth of Chaos.</p>
+
+Автор: Msparrow
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 05.09.2002 news График релизов CENTURY MEDIA RECORDS....
+
+<p>Сент. 3 NOCTURNAL RITES - Shadowland<BR> Сент. 3 …AND OCEANS - Cypher<BR> Сент. 3 INTO ETERNITY - Dead Or Dreaming<BR> Сент. 17 SHADOWS FALL - The Art of Balance<BR> Окт. 15 YAKUZA - Way of the Dead<BR> Окт. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Окт. 29 LACUNA COIL - Comalies<BR> Окт. 29 ROTTING CHRIST - Genesis<BR> Нояб. 12 ICED EARTH - Tribute To The Gods<BR> Нояб. 12 BLOODBATH - Resurrection Through Carnage<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads....
+
+<p><font size="2" face="Arial, Helvetica, sans-serif">...And Oceans - <a href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</a><br> Avantasia - <a href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</a><br> Dark Tranquillity - <a href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</a><br> Into Eternity - <a href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</a><br> Lacuna Coil - <a href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</a><br> Nocturnal Rites - <a href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</a><br> Rotting Christ - <a href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</a><br> Shadows Fall - <a href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</a><br> Unleashed - <a href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</a></font><br> <SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif">Yakuza - <a href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</a></font></SPAN></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads...
+
+<P><FONT face="Arial, Helvetica, sans-serif" size=2>...And Oceans - <A href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</A><BR>Avantasia - <A href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</A><BR>Dark Tranquillity - <A href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</A><BR>Into Eternity - <A href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</A><BR>Lacuna Coil - <A href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</A><BR>Nocturnal Rites - <A href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</A><BR>Rotting Christ - <A href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</A><BR>Shadows Fall - <A href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</A><BR>Unleashed - <A href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</A></FONT><BR><SPAN style="FONT-FAMILY: Arial"><FONT face="Arial, Helvetica, sans-serif" size=2>Yakuza - <A href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</A></FONT></SPAN></P></>
+
+Автор: Yermola
+
+### 11.01.2003 news Saxon, Wolf, Nocturnal Rites and Evidence One tour...
+
+<p>HEAVY METAL THUNDER TOUR 2003<BR> SAXON<BR> WOLF<BR> Nocturnal Rites<BR> Evidence One</p>
+<P>January 17th 2003 Halle Gartlage - OsnabrЭck - Germany<BR> January 18th 2003 013 - Tilburg - Netherlands<BR> January 19th 2003 Turbinenhalle - Oberhausen - Germany<BR> January 20th 2003 Babylon - MЭnchen - Germany<BR> January 21st 2003 LЖwensaal - NЭrnberg - Germany<BR> January 22nd 2003 Hugenottenhalle - Neu-Isenburg - Germany<BR> January 23rd 2003 Z7 - Pratteln - CH<BR> January 24th 2003 Elysee Montmatre - Paris - France<BR> January 25th 2003 Ancienne Belgique - BrЭssel - Belgium<BR> January 26th 2003 Astoria - London - England</>
+
+Автор: Vit Belov
+
+### 31.08.2003 news NOCTURNAL RITES войдут в студию в ноябре
+
+<p>NOCTURNAL RITES войдут в студию в ноябре для записи нового альбома, который увидит свет на CENTURY MEDIA когда-то в 2004 году. Рабочие названия песен: "Against the World", "New World Messiah" и "The Icon". Nils Eriksson (бас): "<b>Новый материал очень похож на наши предыдущие работы... Быть может, чуть-чуть лучше.</b>"</p>
+
+Автор: Vit Belov
+
+### 28.12.2003 news Новый альбом  Nocturnal Rites
+
+<P><B>NOCTURNAL RITES </B>радуют нас известием о выходящем в скором времени новом альбоме. Диск получил название <B>"New World Messiah" </B>и выйдет в начале 2004-го года на <B>Century Media Records. </B>Альбом будет включать такие песни как <B>"Against the World"</B> и<B> "The Icon".</B></P>
+Автор: Uneral
+
+### 05.05.2004 reviews Добротно, но без изюминки
+
+<P><I><B>NOCTURNAL RITES</B> не прыгнули выше головы с новым альбомом. Группе этого достаточно, чтобы продать большое количество пластинок, но недостаточно, чтобы их работу можно было причислить к лучшим в жанре.</I></P>
+<P>Трудно представить фэна power-metal, который смог бы назвать <B>NOCTURNAL RITES</B> своей любимой группой. Шведы могут ходить в фаворитах, но только,&nbsp;как одни из многих. Добротный power-metal, достаточно мягкий, чтобы понравиться фанатам из Европы, и достаточно прямолинейный, чтобы полюбиться и по ту сторону океана. Группу можно причислить и к числу хороших мелодистов, но не более, чем хороших. Вообще, все эпитеты, которые можно употребить к <B>NOCTURNAL RITES</B> сводятся к "не более, чем хороший". Мною не было обнаружено&nbsp;ни одного хита на <B>'New World Messiah'</B>, а к концу пластинки даже показалось, что она излишне затянута.</P>
+<P>Очередная новинка 'only for fans', добротная, но без изюминки.</P>
+<P><EM><STRONG>Диск предоставлен фирмой <a href="http://www.fono.ru">ФОНО</a></STRONG></EM></P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 08.10.2004 news Барабанщик NOCTURNAL RITES почти потерял глаз
+
+<P>Барабанщик <STRONG>NOCTURNAL RITES</STRONG> <STRONG>Owe</STRONG> стал жертвой несчастного случая, в результате которого почти лишился глаза. В настоящее время он в больнице ждёт операции. Группа надеется на его быстрое выздоровление.</P>
+Автор: Vit Belov
+
+### 08.10.2004 news Drummer NOCTURNAL RITES involved in accident
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Statement from <STRONG>NOCTURNAL RITES</STRONG> official site: </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>A few days ago our drummer Owe was invloved in an accident at his summer house, casuing him to almost loose an eye. He is now in the hospital and will undergo surgery tomorrow, Thursday. Owe is a true fighter and we are confident he will have a speedy recovery and will be up and running soon again</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 23.11.2004 news NOCTURNAL RITES переиздадут ранние альбомы к своей годовщине
+
+<P>Два первых альбома <STRONG>NOCTURNAL RITES 'In A Time Of Blood and Fire'</STRONG> и <STRONG>'Tales Of Mystery and Imaginations'</STRONG> будут переизданы в издании <STRONG>"Lost in Time: The Early Years of Nocturnal Rites" </STRONG>на двух компакт-дисках 21 февраля на <STRONG>Century Media</STRONG> в ознаменование 10-летнего юбилея группы.</P>
+Автор: Vit Belov
+
+### 04.01.2005 news Видео Nocturnal Rites
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>NOCTURNAL RITES</STRONG> на песню <STRONG>'Against The World'</STRONG> можно скачать на их сайте: <A href="http://130.240.223.48:81/video/against.mpg">http://130.240.223.48:81/video/against.mpg</A></FONT></P>
+Автор: Vit Belov
+
+### 14.02.2005 news NOCTURNAL RITES выступят с симфоническим оркестром
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NOCTURNAL RITES</STRONG> сообщили, что отыграют два эксклюзивных шоу с симфоническим оркестром в своём родном городе Уми в Швеции. Выступления будут иметь место 1 и 2 апреля в местном драматическом театре.</FONT></P>
+Автор: Vit Belov
+
+### 14.02.2005 news NOCTURNAL RITES will permorm with orchestra
+
+<P><STRONG>NOCTURNAL RITES</STRONG> announced two shows with symphonic orchestra in their native town Umee, Sweden. The gigs will take place in theatre on April 1st and April 2nd.</P>
+Автор: Vit Belov
+
+### 20.05.2005 news NOCTURNAL RITES начали запись нового альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NOCTURNAL RITES</STRONG> начали запись нового альбома в шведском Umea. Подробности пока не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 25.07.2005 news Новый альбом NOCTURNAL RITES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>NOCTURNAL RITES</STRONG> выходит 19 сентября на <STRONG>Century Media</STRONG>. Пластинка уже записана, и в процессе приняло участие много известных музыкантов: <STRONG>Stefan Elmgren (HAMMERFALL), Jens Johansson (STRATOVARIUS), Henrik Danhage (EVERGREY), Kristoffer W. Olivius (NAGLFAR</STRONG>). На лимитированное издание попадёт бонус-DVD, на котором можно будет увидеть 3 видео-клипа и отрывки выступления группы с симфоническим оркестром. Трэк-лист:</FONT></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.07/9033.jpg" width=200 align=right border=5>1. <STRONG>Fools Never Die</STRONG> (3:54) <BR>2. <STRONG>Never Trust</STRONG> (4:43) <BR>3. <STRONG>Still Alive</STRONG> (4:02) <BR>4. <STRONG>Something Undefined</STRONG> (4:08) <BR>5. <STRONG>Our Wasted Days</STRONG> ((5:17) <BR>6. <STRONG>Cuts Like A Knife</STRONG> (5:10) <BR>7. <STRONG>End Of Our Rope</STRONG> (5:26) <BR>8. <STRONG>Never Ending</STRONG> (4:29) <BR>9. <STRONG>One By One</STRONG> (4:23) <BR>10. <STRONG>Deliverance</STRONG> (5:00) </P>
+Автор: Vit Belov
+
+### 25.07.2005 news New album of NOCTURNAL RITES
+
+<P><STRONG>NOCTURNAL RITES</STRONG> finished the work on the seventh studio album “<STRONG>Grand Illusion</STRONG>”, recorded and mixed at <STRONG>Toontrack Studio</STRONG> in Umea. A lot of well known musicians appeared as guests on the great new output, namely <STRONG>Stefan Elmgren</STRONG> (<STRONG>HAMMERFALL</STRONG>), <STRONG>Jens Johansson</STRONG> (<STRONG>STRATOVARIUS</STRONG>), <STRONG>Henrik Danhage</STRONG> (<STRONG>EVERGREY</STRONG>), <STRONG>Kristoffer W. Olivius</STRONG> (<STRONG>NAGLFAR</STRONG>).</P>
+<P>The finished album, in stores September 19th 2005, will contain a limited bonus DVD enclosing the 3 videos from "<STRONG>New World Messiah</STRONG>", the brand-new "<STRONG>Fools Never Die</STRONG>" video, a "<STRONG>Making Of Grand Illusion</STRONG>" and extra footage from the "<STRONG>Demons Of The Opera</STRONG>" show. </P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news/2005.07/9034.jpg" width=200 align=right border=5>Tracklist “<STRONG>Grand Illusion</STRONG>”: </P>
+<P>1. <STRONG>Fools Never Die</STRONG> (3:54) <BR>2. <STRONG>Never Trust</STRONG> (4:43) <BR>3. <STRONG>Still Alive</STRONG> (4:02) <BR>4. <STRONG>Something Undefined</STRONG> (4:08) <BR>5. <STRONG>Our Wasted Days</STRONG> ((5:17) <BR>6. <STRONG>Cuts Like A Knife</STRONG> (5:10) <BR>7. <STRONG>End Of Our Rope</STRONG> (5:26) <BR>8. <STRONG>Never Ending</STRONG> (4:29) <BR>9. <STRONG>One By One</STRONG> (4:23) <BR>10. <STRONG>Deliverance</STRONG> (5:00) </P>
+Автор: Vit Belov
+
+### 06.02.2006 news Пауэр-фест в Чикаго - последние новости
+
+<P>7 и 8 апреля в Mr. Kelley's Music Box, Чикаго, штат Иллинойс, пройдет четвертый ежегодный фестиваль&nbsp;<B>Chicago Powerfest</B>. В нем принимают участие как ветераны, так и новички метальной сцены. Билеты сразу на два дня стоят (такой вариант будет возможен только для 600 счастливчиков) пятьдесят долларов. Состав участников:</P>
+<P>7 апреля, пятница:<BR>&nbsp;<BR><B>ELDRITCH<BR>BIOMECHANICAL<BR>AGENT STEEL<BR>GRACEPOINT<BR>WITHERING SOUL</B><BR>&nbsp;<BR>8 апреля, суббота:<BR>&nbsp;<BR><B>MORGANA LEFAY<BR>NOCTURNAL RITES<BR>ION VEIN<BR>TWELFTH GATE<BR>MIRROR BLACK</B></P>
+<P>Послушать аудио-сэмплы и получить иную информацию можно на сайте фестиваля <A href="http://www.chicagopowerfest.com/"><U>http://www.ChicagoPowerfest.com</U></A></P>
+Автор: Ixtiandr
+
+### 21.03.2007 news Новый альбом NOCTURNAL RITES
+
+<P>28 мая на <STRONG>Century Media</STRONG> выходит новый альбом <STRONG>NOCTURNAL RITES "The 8th Sin</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>Call Out To The World</STRONG> <BR>2. <STRONG>Never Again <BR></STRONG>3. <STRONG>Not The Only <BR></STRONG>4. <STRONG>Tell Me <BR></STRONG>5. <STRONG>Not Like You <BR></STRONG>6. <STRONG>Leave Me Alone <BR></STRONG>7. <STRONG>Till I Come Alive <BR></STRONG>8. <STRONG>Strong Enough</STRONG> <BR>9. <STRONG>Me <BR></STRONG>10. <STRONG>Pain & Pleasure</STRONG> <BR>11. <STRONG>Fools Parade</STRONG> (Outro) </P>
+<P>Пластинка была спродюсирована самим музыкантами.</P>
+Автор: Vit Belov
+
+### 23.06.2008 news NOCTURNAL RITES покинул гитарист
+
+<P>Гитарист <STRONG>Nils Norberg</STRONG> покинул<STRONG> NOCTURNAL RITES</STRONG>, желая отдохнуть от гитары, которой "он посвятил более 20 лет своей жизни". Группа заявляет о дружеских отношениях, сохранившихся с <STRONG>Nils</STRONG>, и начинает поиски нового музыканта.</P>
+Автор: Vit Belov
+
+### 06.05.2009 news NOCTURNAL RITES сочиняют
+
+<P>Шведы<STRONG> NOCTURNAL RITES</STRONG> сочиняют материал для нового альбома. Сообщается, что группа смешает мрачность альбома 2000 года "<STRONG>Afterlife</STRONG>" со стандартными цепляющими мелодиями.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

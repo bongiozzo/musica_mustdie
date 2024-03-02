@@ -350,6 +350,274 @@ A video was made for the title track.
 * C группой "Sorcerer" Johnny Hagel
 * C группой "Lucyfire" Edlund
 
+## Публикации
+
+### 21.06.1999 news 
+
+<p>Новый альбом Tiamat "Skeleton Skeletron" выйдет в августе. Некоторые источники сообщают о возврате к тяжёлым истокам в сочетании с атмосферностью.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 reviews 
+
+<p>Этого альбома, я думаю, ждут многие. И не зря. После неординарно воспринятого "A Deeper Kind Of Slumber", группа обязана была реабилитироваться в глазах её старых поклонников, и не только их. Думаю, это им удалось. По-прежнему, материал на альбоме сильно отличается от предыдущих работ. У TIAMAT'a не было ещё двух похожих друг на друга альбомов. За это их конечно стоит похвалить. Другое дело, что не всегда эти альбомы были хороши. Этот альбом можно назвать мешаниной из всех предыдущих работ группы, кроме самых ранних (до 1992 года), а также добавлены музыкальные фрагменты, схожие с последними работами ANATHEMA и PARADISE LOST. В целом, альбом звучит довольно тяжело, живые гитарные риффы, немного электроники для разнообразия, клавиши, даже скрипки, и душевный вокал в духе предыдущего альбома. Хотя, во второй песне можно услышать даже рыковый вокал и на его фоне женские подпевки. Прямо-таки, "Wildhoney" пахнет. Так что, неплохо-неплохо, но это далеко не лучшее, что создала группа за своё существование.(8 из 10)</p>
+
+Автор: Dimas
+
+### 21.10.1999 reviews Плохой альбом...
+
+<P>Альбом явно хуже чем "Deeper Kind of Slumber". Он прямо таки ниже среднего уровня. Ну скрипочки, гитары и клавишные пассажи, женский вокал Brigit Zacher, неповторимая атмосфера TIAMAT - все это серо и тускло. Электроника просто добивает. Полу-гроулинг на "Brighter Than the Sun" звучит как насмешка над фанами DOOM. Вернулось старое доброе лого - с крыльями, пентаграммой и крестами(правда на пиратском CD). А вот на фирменном CD, оформленном как реклама к фильму опять лицезреем странный имидж Johan'a Edlund'а. Не нравится мне и название - лучше уж оставили бы старое - "Children of the Underwood". В общем плохой альбом.</P>
+Автор: Alexey Pitirimov
+
+### 11.04.2000 news 
+
+<p>Tiamat закончили тур вместе с Anathema и Tristania. Йохан Эдлунд уже работает над новым материалом.</p>
+
+Автор: Vit Belov
+
+### 06.03.2001 news Йохан Эдлунд готовит сольныый альбом.
+
+<p> Вокалист Tiamat Йохан Эдлунд занимается своим сольным проектом LucyFire. Дебютный альбом получил название "This Dollar Saved My Life At Whitehorse". По словам Йохана, это будет прямолинейный рок-альбом без какого-либо специального смысла. Выпуск "This Dollar Saved My Life At Whitehorse" намечен на 23 апреля. Предварит его выходящий 26 марта сингл "The Pain Song".</p>
+
+Автор: Morsus
+
+### 06.03.2001 news Johan Edlund is preparing a solo album.
+
+<p> The singer of Tiamat, Johan Edlund, is preparing a solo project. The name of the project is LucyFire and the debut album will be titled "This Dollar Saved My Life At Whitehorse". According to Johan it will be a straight forward rock album without any special meaning or something. The release of "This Dollar Saved My Life At Whitehorse" has been pushed to 23rd of April. The first single "The Pain Song" will be released 26th of March.</p>
+
+Автор: Morsus
+
+### 26.08.2001 news Tiamat собираются в студию
+
+<p> Начиная с сентября Tiamat приступят к работе над следующим альбомом. Продюссировать его будет Ларс Ниссен. Дата выпуска - 28 января 2002 года.</p>
+
+Автор: Morsus
+
+### 26.08.2001 news Tiamat are going to hit studio
+
+<p> Tiamat will be working on a new album from September. The new Tiamat album will be produced by Lars Nissen. Release date: 28th of January 2002.</p>
+
+Автор: Morsus
+
+### 16.11.2001 news Иуда Христос...
+
+<p>Йохан Эдлунд со-товарищи как никогда близки к завершению работы над долгожданным студийником "Judas Christ", который появится в продаже 18 февраля через Century Media Records. Сингл и видео-клип будут представлены на суд публики 28-го января. Как уже сообщалось, продюссировал "Иуду" датчанин Lars Nissen в копенгагенской Puk Studios, а микширование проходит в Sun...</p>
+
+Автор: Yermola
+
+### 16.11.2001 news Judas Christ...
+
+<p>TIAMAT are due to release their long-awaited new studio opus, entitled Judas Christ, on February 18th through Century Media Records. A single and a video clip will precede the release on January 28th. Judas Christ was produced by acclaimed Danish producer Lars Nissen at Copenhagen’s Puk Studios, and is currently being mixed at the Sun facility.</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Иуда Христос (часть вторая)...
+
+<p>Шведы "TIAMAT" опубликовали трек-лист альбома "Judas Christ": <BR><BR> (spinae)<BR> 01. The Return Of The Son Of Nothing<BR> 02. So Much For Suicide<BR> 03. Vote For Love<BR> 04. The Truthґs For Sale<BR> (tropic of venus)<BR> 05. Fireflower<BR> 06. Sumer By Night<BR> 07. Love Is As Good As Soma<BR> (tropic of capricorn)<BR> 08. Angel Holograms<BR> 09. Spine<BR> 10. I Am In Love With Myself<BR> (casadores)<BR> 11. Heaven Of High<BR> 12. Too Far Gone<BR><BR> Альбом выходит в Европе 18-го февраля через Century Media Records. Также, еще до конца января, группа планирует выпуск сингла: <BR><BR> 01. Vote For Love (измененная версия)<BR> 02. So Much For Suicide (альбомная версия)<BR> 03. Cold Last Supper (трек не вошедший в альбом)<BR> 04. Brighter Than The Sun (видео клип)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news TIAMAT Finalize Album, Single Track Listing ...
+
+<p>Sweden's TIAMAT have set the final track listing for their upcoming Judas Christ CD, which is scheduled to be issued in Europe on February 18th through Century Media Records. It is as follows:<BR><BR> (spinae)<BR> 01. The Return Of The Son Of Nothing<BR> 02. So Much For Suicide<BR> 03. Vote For Love<BR> 04. The Truthґs For Sale<BR> (tropic of venus)<BR> 05. Fireflower<BR> 06. Sumer By Night<BR> 07. Love Is As Good As Soma<BR> (tropic of capricorn)<BR> 08. Angel Holograms<BR> 09. Spine<BR> 10. I Am In Love With Myself<BR> (casadores)<BR> 11. Heaven Of High<BR> 12. Too Far Gone<BR><BR> TIAMAT will be issuing a single in Europe on January 28th containing the following tracks:<BR><BR> 01. Vote For Love (edit version)<BR> 02. So Much For Suicide (album version)<BR> 03. Cold Last Supper (non-album track)<BR> 04. Brighter Than The Sun (video clip enhancement)<BR><BR> As previously reported, Judas Christ was produced by acclaimed Danish producer Lars Nissen at Copenhagen's Puk Studios, and was mixed at the Sun facility. TIAMAT will be embarking on a European tour during March/April with Portugal's MOONSPELL and another as-yet-undisclosed act.</p>
+
+Автор: Yermola
+
+### 18.03.2002 reviews Обретение своего &quot;я&quot; после долгих поисков
+
+<p> Обретение своего "я" после долгих поисков. TIAMAT начинал как death metal band, проходя путь через death-doom и psychodelic synth-gothic metal. Новый альбом группы, похоже, конец всех экспериментов. Группа сконденсировала все свои предыдущие опыты и записала почти что совершенный готический альбом, очень разнообразный и по настроениям, и по музыкальному материалу. </p>
+<p> Первые две вещи возвращают нас во времена "Wildhoney" с его задумчивой атмосферой и протяжными риффами, с органично вплетенными скрипками и душевным вокалом Эдлунда. Затем следует безусловный хит "Vote For Love" с женским бэк-вокалом и ритмичной основой, напоминающий немного SISTERS OF MERCY и немецкий проект Эдлунда LUCYFIRE. После следуют три спокойные, но не самые лучшие вещи, также напоминающие классический TIAMAT 1994 года не с самой лучшей стороны. Их сменяют три ритмичных gothic-darkwave хита, в которых чувствуется немалое влияние H.I.M. и финского gothic metal в целом. А под завязку &ndash; ещё два спокойных, почти акустических трэка, всё более и более напоминающих H.I.M. Обладатели альбома в box-version могут еще в конце посмотреть видеоклип "Vote for Love" и ознакомиться с двумя бонус-трэками, возвращающими нас ко временам "A Deeper Kind Of Slumber". Честно говоря, можно было бы и без них обойтись. Они только место на альбоме занимают. </p>
+<p> "Judas Christ" &ndash; один из тех альбомов, который можно слушать много раз, не теряя к нему интерес. Он легко слушается, непринуждённо, многие мотивы запоминаются сходу, в нём всё тщательно проработано, от вокалов и музыки до сюрреалистической лирики. Довольно тяжёлые и мечтательные риффы и броские припевы, воздушный gothic-rock с отголосками классического готического наследия. Хотя, конечно, такая музыка для многих вовсе не metal, а скорее pop music, но давайте не будем столь категоричны и резки. Такая специфическая "тяжелая" музыка тоже имеет право на жизнь и признание. Если бы не немного невзрачная середина и бонусная концовка альбома, то ему можно было бы поставить очень высокий балл. И к чему этот ковбойский имидж? Учитывая все это, общий балл снижается до оценки "просто хорошо".</p>
+<p></p>
+
+Автор: Dimas
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 28.08.2003 news Скоро выйдет новый альбом TIAMAT
+
+<p>Свежий альбом TIAMAT под названием "Prey" почти готов. Он поступит в продажу 27 октября, а сингл к нему выйдет месяцем раньше 29 сентября. Альбом продюссировался собственными силами, микширование и мастеринг проходили в студии Finnvox. Альбом не является концептуальным, но тем не менее общая тема проходит сквозь каждый из 13 треков.</p>
+
+Автор: Morsus
+
+### 28.08.2003 news The new album of Tiamat is almost finished
+
+<p>The new album of Tiamat is almost finished. The album will be titled "Prey" and is scheduled for an October 27th release while a single will be released on September 29th. The self-produced album was mixed and mastered at Finnvox Studios. It's not a concept album, but there is a strong unifying theme running through each of the 13 tracks.</p>
+
+Автор: Morsus
+
+### 15.10.2003 news Новый альбом TIAMAT
+
+<P>27 октября 2003 года на <B>Century Media Records</B> выходит восьмой альбом шведских музыкантов <B>TIAMAT</B> под предводительством <B>Johan Edlund</B>'а. Альбом был записан на собственной студии музыканта, а микшировался и проходил мастеринг в <B>Finnvox Studios</B>. В альбом под названием <B>"Prey"</B> войдут следующие вещи:</P>
+<P><IMG height=250 alt="" hspace=100 src="/images/news_rus/2003.10/5074.jpg" width=250 align="right" border=0>1. Cain<BR>2. Ten Thousand Tentacles<BR>3. Wings Of Heaven (<A href="/samples/t/tiamat/2003_62.mp3">mp3</A>)<BR>4. Love In Chains<BR>5. Divided<BR>6. Carry Your Cross And I'll Carry Mine<BR>7. Triple Cross<BR>8. Light In Extension<BR>9. Prey<BR>10. The Garden Of Heathen<BR>11. Clovenhoof<BR>12. Nihil<BR>13. The Pentagram</P>
+Автор: Dimas
+
+### 17.12.2003 reviews Рецепт простоты от TIAMAT
+
+<DIV><B>Johan Edlund</B> нашёл рецепт успеха. Холодный вокал, простые, но запоминающиеся мелодии, и потрясающее качество записи и исполнения. Многие тысячи нового диска '<B>Prey</B>' разойдутся по всему миру, и это заслуженно. Все песни на этом альбоме -&nbsp;потенциальные хиты. Хвалить гораздо сложнее, чем ругать, но здесь придраться не к чему. Разве, что к мнимой простоте, но в этом случае следует задаться вопросом: "Почему так мало групп, которые заслужили популярность в этом стиле?"&nbsp;Почему так часто хочется сказать, что альбом неплох, вот только запоминающихся мелодий нет, а здесь этих мелодий&nbsp;ровно столько, что хватает на весь альбом? Если его послушать почаще, можно, вообще, все трэки наизусть напевать. У&nbsp;<B>Edlund</B>'a открылось второе дыхание, и побуксовав немного после&nbsp;'<B>Wildhoney</B>', он готов к новым свершениям. Рекомендую, так как мелодичная музыка, хоть немного, но нравится абсолютно всем!</DIV>
+Автор: Vit Belov
+
+### 15.01.2004 reviews Постоянное стремление к совершенству
+
+С первых же секунд понятно, что это тотже самый современный Tiamat, с тем же самым безэмоциональным и до сих пор лысым Эдлундом. Готическая музыка с депрессивным оттенком ... Казалось бы тоже самое, что и Judas Christ, но ничего подобного, музыка на новом альбоме медленнее, спокойнее, предсказуемее и наконец красивее. Композиции насыщенны разнообразными сэмплами, модными синтезаторными штучками. Но самое главное, очень кстати, присутствует женский вокал. Именно женское подпевание передаёт ту грусть, которую несёт в себе музыка Tiamat. Альбом очень ровный. В нём нет неожиданных подъёмов и неприятных подений. В целом - очень хорошая работа. Постоянное стремление к совершенству от альбома к альбому - Вот за что я люблю Tiamat.
+Автор: Peter Priest
+
+### 16.11.2005 articles Tiamat в Москве: &quot;Неконцертная эстетика death-doom групп середины 90-х&quot;
+
+<P>11 ноября Москву во второй раз посетили TIAMAT. Любовь к группам, прославившихся в середине 90-х годов прошлого века, в России незыблема. Вслед за PARADISE LOST и SENTENCED, TIAMAT собрали достаточное количество народу (~1000) в ДК им. Горбунова, что по нынешним временам очень даже неплохо. А если учесть, что с момента последнего приезда шведов прошло, не так много времени, подобный результат можно считать очень приличным.</P>
+<P>Концерт открывали INSIDE YOU, которых последнее время можно встретить везде. Истринцы активно продвигают свой новый альбом, и в этот раз их выступление было достаточно интересным. Поругать их просто не за что, вот только на концерте подобный материал звучит скучновато, но эти претензии стандартны. Ещё раз посоветую всем любителям TIAMAT или CREMATORY периода 1995 года.</P>
+<P>Мне кажется, надо очень сильно любить TIAMAT или редко ходить на концерты, чтобы назвать прошедшее шоу феерическим и лучшим за последний год. Соревноваться шведы будут с PARADISE LOST и KATATONIA за место в числе 15 лучших – это точно. Поговаривают, что лидер коллектива Johan Edlund прилетел в Москву буквально накануне шоу. Если это так, то этим можно объяснить вялость и безразличие, с которым он начал сэт. Весь его арсенал сводился к припаданию на одно колено, ссутулившись в позе «heavy-metal». Все первые песни прошли в едином порыве. Немного скучном, немного занудном. Исключение делалось только для старых вещей. Например, “In A Dream” на этом фоне прозвучала несколько неожиданно. Правда прозвучала она, как-то непонятно. Ну, как мелодия для мобильного телефона – плоско и монотонно. В дальнейшем действо продолжило нравиться преданным поклонникам группы, мне же оставалось только развести руками и придаваться грустным думам.</P>
+<P>Я сам вырос на death-doom музыке середины 90-х. Вероятно, посети я в то время выступления PARADISE LOST или TIAMAT, я бы не заметил никаких недостатков, а получил бы удовольствие. TIAMAT и сейчас любимы мной, но назвать этот концерт интересным я не смогу. Послушать в подобном исполнении трэки я могу и на CD. Более того, все песни, которые я послушаю, будут нравиться мне на 100 процентов. Есть концертные группы, а есть неконцертные. Со мной никто не будет спорить. TIAMAT – неконцертная группа и хорошо, что они разыгрались под конец, в начале же зрелище было очень тоскливое.</P>
+<P>Кидайте в меня тухлыми помидорами, но лучше сходите на ONKEL TOM’a или CANDLEMASS, чтобы понять о чём я говорю. </P>
+Автор: Vit Belov
+
+### 22.02.2006 news DVD от TIAMAT
+
+<P>24 апреля выходит DVD <STRONG>TIAMAT</STRONG> <STRONG>"The Church of Tiamat". </STRONG>Трэк-лист:</P>
+<P>Live In Krakow, Poland - January 2005 (mixed in stereo and 5.1 surround): <BR><BR>01. <B>Vote For Love</B><BR>02. <B>Children Of The Underworld</B><BR>03. <B>Cain</B> <BR>04. <B>Brighter Than The Sun</B> <BR>05. <B>To Have And Have Not</B> <BR>06. <B>Whatever That Hurts</B> <BR>07. <B>I Am In Love With Myself</B> <BR>08. <B>In A Dream</B> <BR>09. <B>Wings Of Heaven</B> <BR>10. <B>Cold Seed</B> <BR>11. <B>Clovenhoof</B> <BR>12. <B>As Long As You Are Mine</B> <BR>13. <B>Love Is As Good As Soma</B> <BR>14. <B>The Sleeping Beauty</B> <BR>15. <B>Gaia</B> <BR><BR>Bonus Section: <BR><BR>01. <B>Where The Serpents Ever Dwell</B> (home video from the first TIAMAT show ever) <BR>02. <B>Undressed</B> (home video from the "Wildhoney" tour in 1995) <BR>03. <B>Whatever That Hurts</B> (video clip) <BR>04. <B>Gaia</B> (videoclip) <BR>05. <B>The Ar</B> (home video from the "Wildhoney" tour in 1995) <BR>06. <B>Do You Dream Of Me?</B> (animation clip) <BR>07. <B>Cold Seed</B> (videoclip) <BR>08. <B>Alteration X 10</B> (making of "A Deeper Kind Of Slumber" studio session)<BR>09. <B>Phantasma De Luxe</B> (home video from the "Judas Christ" tour 2002) <BR>10. <B>Brighter Than The Sun</B> (video clip) <BR>11. <B>Vote For Love</B> (video clip) <BR>12. <B>Angel Holograms</B> (home video from the "Judas Christ" tour 2002) <BR>13. <B>Cain</B> (video clip) </P>
+Автор: Vit Belov
+
+### 25.02.2006 news TIAMAT сочиняют новый материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TIAMAT</STRONG> сочинили уже 5 новых песен. В настоящее время группа ищет новый лэйбл. Контракт с <STRONG>Century Media</STRONG> закончился.</FONT></P>
+Автор: Vit Belov
+
+### 08.05.2006 news Утверждены участники MHM VII
+
+<P>Отбор коллективов на фестивль <STRONG>MHM-VII</STRONG> завершен.<BR>Финальный список выглядит так:<BR>1.&nbsp;&nbsp;<STRONG>TIAMAT</STRONG> (SW)<BR>2.&nbsp; <STRONG>HOLY MOSES</STRONG>&nbsp;(GER) <BR>3.&nbsp; <STRONG>CEREBRAL TURBULENCY</STRONG>&nbsp;(CZ) <BR>4.&nbsp; Wasteform (US)<BR>5.&nbsp; Alienation Mental (CZ) <BR>6.&nbsp; Mncing Fury And Guttural Clamour Of Queer Decay&nbsp; (CZ) <BR>7.&nbsp; Imperial Foeticide (CZ) <BR>8.&nbsp; Smashed Face (CZ) <BR>9.&nbsp; Despice (CZ) <BR>10. Surgical Dissection&nbsp; (SL)<BR>11. Moonfog (SL)<BR>12. Sickbag (FR) <BR>13. Trepan Dead (FR)<BR>14. Infliction (IT) <BR>15. Deformed (PL)<BR>16. Gutted (HG) <BR>17. Deepred (FIN)<BR>18. Incarnated (PL)<BR>19. Dead Infection (PL)<BR>20. Mental Demise (UA) <BR>21. Dawn of&nbsp; fate (GER)<BR>22. Nokturnal Mortum (UA)<BR>23. Devilyn (PL)<BR>24. Anabiose (RU)<BR>25. Crionics (PL)<BR>26. Thy Disease (PL)<BR>27. Illidiance (RU) <BR>28. Фантасмагория (UA)<BR>29. Amoral Craft (RU)<BR>30. Paranormal Activity (UA)<BR>31. Little dead Bertha (RU)<BR>32. Neuromist (Mol)<BR>33. Balfor (RUS)<BR>34. Gangrena (RU)<BR>35. Mad V (RU)<BR>36. Capellan (RU)<BR>37. Kratos (RO)<BR>38. Mortuary (UA)</P>
+<P>Ждем вас всех на фестивале с 11 по 13 августа!!!<BR>Всю последнюю информацию вы всегда сможете найти на нашем Официальном сайте: <A href="http://www.mhm-fest.com/">www.mhm-fest.com</A></P>
+Автор: Vit Belov
+
+### 14.07.2006 news Metal Heads Mission в Крыму
+
+<CENTER><IMG height=591 src="/images/shows_rus/2006.05/10365.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 06.12.2006 news Новый LUCYFIRE
+
+<P>Лидер<STRONG> TIAMAT</STRONG> <STRONG>Johan Edlund </STRONG>работает над новым альбомом своего сайд-проекта<STRONG> LUCYFIRE</STRONG>, который выйдет в 2007 году.</P>
+Автор: Vit Belov
+
+### 26.06.2007 news TIAMAT на Nuclear Blast
+
+<P><STRONG>TIAMAT</STRONG> подписали контракт с <STRONG>Nuclear Blast</STRONG>. Никаких подробностей пока не сообщается.</P>
+Автор: Vit Belov
+
+### 20.11.2007 news Дата релиза TIAMAT
+
+<P>Новый альбом<STRONG> TIAMAT</STRONG> <STRONG>"Amanethes" </STRONG>выходит 18 ноября на <STRONG>Nuclear Blast</STRONG>. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 13.02.2008 news Новый альбом TIAMAT
+
+<P>Новый альбом<STRONG> TIAMAT</STRONG> <STRONG>"Amanethes" </STRONG>выходит 18 апреля на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Temple Of The Crescent Moon</B><BR>02. <B>Equinox Of The Gods</B><BR>03. <B>Until The Hellhounds Sleep Again</B><BR>04. <B>Will They Come?</B><BR>05. <B>Lucienne</B><BR>06. <B>Summertime Is Gone</B><BR>07. <B>Katarraktis Apo Aima</B><BR>08. <B>Raining Dead Angels</B><BR>09. <B>Misantropolis</B><BR>10. <B>Amanitis</B><BR>11. <B>Meliae</B><BR>12. <B>Via Dolorosa</B><BR>13. <B>Circles</B><BR>14. <B>Amanes</B></P>
+Автор: Vit Belov
+
+### 21.05.2008 reviews Подарок от «мира металла»
+
+<P>TIAMAT не выпускали новых альбомов на протяжении четырёх лет. Достаточный срок для того, чтобы поменять свои взгляды на собственное звучание. К радости поклонников группы, изменения в стиле TIAMAT не стали столь радикальными, как в случае с отпуском после релиза альбома “Wildhoney”.</P>
+<P>Понятно, что бесследно такой перерыв пройти не мог, и новые поклонники TIAMAT могли не на шутку испугаться, ведь уже вторая песня на “Amanethes” возвращает нас в далёкое прошлое. В то прошлое, когда TIAMAT играли death-metal. Правда длится этот момент не столь долго, но изрядно распугать поклонников gothic-metal он способен. Уже в отзыве на предыдущий альбом шведов я указывал на то, что, в отличие от большинства gothic-metal групп, мелодии у TIAMAT более «взрослые» и интересные. При прослушивании музыки на ум с большей вероятностью приходят PINK FLOYD, но не HIM. Условность названия стиля, в котором творят TIAMAT, лишь подтверждается на новой работе группы. После столь бурного начала шведы начинают играть меланхоличную интересную музыку, которую довольно сложно подогнать под какие-либо определения, свойственные современному metal сообществу. Думается, творчество TIAMAT уже окончательно созрело для того, чтобы занять своё место в коллекциях любителей art-rock или progressive. Себя я к любителям этих стилей не отношу, поэтому, можно предположить, что этот альбом TIAMAT мне не понравился. Это не так. Шведы не увлекаются «техничностью» звучания и не стараются покорить нас своим мастерством владения музыкальными инструментами. Их музыка достаточно проста и мелодична, но от этого не менее интересна.</P>
+<P>Подарок от «мира металла» «миру art-rock и классического gothic-rock». Мы уже делали такие подарки не раз, и этот подарок - лишний ответ тем, кто не считает metal серьёзной музыкой. :)</P>
+Автор: Vit Belov
+
+### 21.08.2008 news TIAMAT лишились гитариста
+
+<P>Гитарист <STRONG>TIAMAT</STRONG> <STRONG>Thomas Wyreson </STRONG>покинул группу по персональным причинам.</P>
+Автор: Vit Belov
+
+### 12.11.2008 news TIAMAT везут бывшего гитариста THERION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В пятницу шведы <STRONG>TIAMAT</STRONG> вылетают в Россию для тура по городам нашей страны. Место гитариста во время этих шоу займёт бывший музыкант <STRONG>THERION</STRONG> <STRONG>Johan Nieman. </STRONG>Группа даст самые длинные концерты в своей истории во время этого тура.</FONT></P>
+Автор: Vit Belov
+
+### 30.12.2008 news Christmas Metal Symphony в Тилбурге
+
+<P>В Тилбурге, Голландия 28 декабря прошёл уникальный концерт&nbsp;<STRONG>Christmas Metal Symphony</STRONG>.&nbsp;В компании с симфоническим оркестром на сцене появились&nbsp;<STRONG>Doro Pesch</STRONG>, <B itxtvisited="1">Chuck Billy</B> (<B itxtvisited="1">TESTAMENT</B>), <B itxtvisited="1">Russell Allen</B> (<B itxtvisited="1">SYMPHONY X</B>), <B itxtvisited="1">Mats Leven</B> (<B itxtvisited="1">THERION</B>, <B itxtvisited="1">YNGWIE MALMSTEEN</B>), <B itxtvisited="1">Johan Edlund</B> (<B itxtvisited="1">TIAMAT</B>), <B itxtvisited="1">Ian Parry</B> (<B itxtvisited="1">CONSORTIUM PROJECT</B>, <B itxtvisited="1">ELEGY</B>), <B itxtvisited="1">Marcela Bovio</B> (<B itxtvisited="1">STREAM OF PASSION</B>, <B itxtvisited="1">AYREON</B>), <B itxtvisited="1">Floor Jansen</B> (<B itxtvisited="1">AFTER FOREVER</B>) and <B itxtvisited="1">George Oosthoek</B> (<B itxtvisited="1">ORPHANAGE</B>). В качестве сопровождающей группы выступили:</P>
+<P><STRONG>Koen Herfst</STRONG> (EPICA) - Drums<BR itxtvisited="1"><B itxtvisited="1">Marcel Coenen</B> (SUN CAGED) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Johan Van Stratum</B> (STREAM OF PASSION) - Bass<BR itxtvisited="1"><B itxtvisited="1">Frank Schiphorst</B> (CONTROL HUMAN DELETE) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Jeffrey Revet</B> (STREAM OF PASSION) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Joost van den Broek</B> (AFTER FOREVER) ЁC Keyboards</P>
+<P>Музыканты исполнили heavy-metal классику прошлых лет:</P>
+<P>01. <B itxtvisited="1">Blood Of Kingu</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">02. <B itxtvisited="1">Victim Of Changes</B> (JUDAS PRIEST) (feat. Mats Leven)<BR itxtvisited="1">03. <B itxtvisited="1">Son Of The Staves Of Time</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">04. <B itxtvisited="1">Passion</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">05. <B itxtvisited="1">Out In The Real World</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">06. <B itxtvisited="1">Enter Sandman</B> (METALLICA) (feat. Ian Parry)<BR itxtvisited="1">07. <B itxtvisited="1">Paranoid</B> (BLACK SABBATH) (feat. Ian Parry)<BR itxtvisited="1">08. <B itxtvisited="1">Breaking The Law</B> (JUDAS PRIEST) (feat. Doro Pesch)<BR itxtvisited="1">09. <B itxtvisited="1">All We Are</B> (DORO) (feat. Doro Pesch, Floor Jansen)<BR itxtvisited="1">10. <B itxtvisited="1">I Rule The Ruins</B> (DORO) (feat. Doro)<BR itxtvisited="1">11. <B itxtvisited="1">Souls Of Black</B> (TESTAMENT) (feat. Chuck Billy)<BR itxtvisited="1">12. <B itxtvisited="1">Return To Serenity</B> (TESTAMENT) (feat. Chuck Billy, Mats LevЁ¦n)<BR itxtvisited="1">13. <B itxtvisited="1">More Than Meets The Eye</B> (TESTAMENT) (feat. Chuck Billy, George Oosthoek)<BR itxtvisited="1">14. <B itxtvisited="1">Arise</B> (SEPULTURA) (feat. George Oosthoek)<BR itxtvisited="1">15. <B itxtvisited="1">Mountains Of Madness</B> (ORPHANAGE) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">16. <B itxtvisited="1">A New Level</B> (PANTERA) (feat. George Oosthoek)<BR itxtvisited="1">17. <B itxtvisited="1">Cain</B> (TIAMAT) (feat. Johan Edlund)<BR itxtvisited="1">18. <B itxtvisited="1">Brighter Than The Sun</B> (TIAMAT) (feat. Johan Edlund, Marcela Bovio)<BR itxtvisited="1">19. <B itxtvisited="1">When The Smoke Is Going Down</B> (SCORPIONS) (feat. Johan Edlund)<BR itxtvisited="1">20. <B itxtvisited="1">My Pledge Of Allegiance No. 1</B> (AFTER FOREVER) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">21. <B itxtvisited="1">Equally Destructive</B> (AFTER FOREVER) (feat. Floor Jansen)<BR itxtvisited="1">22. <B itxtvisited="1">The Evil That Man Do</B> (IRON MAIDEN) (feat. Floor Jansen)<BR itxtvisited="1">23. <B itxtvisited="1">Intro Based on "The Odyssey"</B> (SYMPHONY X) (orchestra only)<BR itxtvisited="1">24. <B itxtvisited="1">Evolution</B> (The Grand Design) (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">25. <B itxtvisited="1">Paradise Lost</B> (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">26. <B itxtvisited="1">Dawn Of A Million Souls</B> (AYREON) (feat. Russell Allen)<BR itxtvisited="1">27. <B itxtvisited="1">Phantom Of The Opera</B> (NIGHTWISH version) (feat. Russell Allen, Floor Jansen)</P>
+<P>Видео&nbsp;<STRONG>"Souls Of Black"</STRONG> (TESTAMENT) (feat. Chuck Billy) (video by Mark van Nierop):</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 20.01.2009 news Клавишник DARK TRANQUILLITY едет с TIAMAT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клавишник <STRONG>DARK TRANQUILLITY</STRONG> <STRONG>Martin Brandstrom </STRONG>поедет в европейский тур вместе с <STRONG>TIAMAT</STRONG>. Группа начнёт своё путешествие 7 февраля в Стокгольме.</FONT></P>
+Автор: Vit Belov
+
+### 20.09.2011 news TIAMAT на Napalm Records
+
+<P>Шведские легенды <STRONG>TIAMAT </STRONG>заключили контракт с австрийским лэйблом <STRONG>Napalm Records</STRONG>. Группа работает над новым альбмом, который выйдет в начале 2012 года. </P>
+<P>Фотографии с выступления коллектива на фестивале Wave Gotik Treffen в июне этого года можно посмотреть в нашей галерее: <A href="/ru/galleries/1/763">http://musica.mustdie.ru/ru/galleries/1/763</A></P>
+<P><center><IMG height=600 src="/images/news_rus/2011.09/21158.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 22.09.2011 news WAVE GOTIK TREFFEN &#39;2011: фото-репортаж
+
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">
+<CENTER><IMG border=0 hspace=5 alt="" src="/images/news_rus/2011.09/21131.jpg" width=468 height=60></SPAN> 
+<P></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">С 10 по 13 июня в городе Лейпциге (Германия)&nbsp;прошёл очередной, двадцатый по счёту, фестиваль <STRONG>Wave Gotik Treffen</STRONG>. Являясь самым большим и<SPAN style="mso-spacerun: yes">&nbsp;</SPAN>знаменитым фестивалем<SPAN style="mso-spacerun: yes">&nbsp;"</SPAN>Тёмной<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>Сцены"<SPAN style="mso-spacerun: yes"> </SPAN>не только в Европе, но и в Мире,<SPAN style="mso-spacerun: yes"><STRONG> </STRONG></SPAN><STRONG>WGT</STRONG> ежегодно собирает от 15.000 до 25.000 зрителей. На фестивале выступило огромное количество разноплановых музыкальных коллективов. Вашему вниманию предлагается фото-репортаж с этого грандиозного мероприятия.</SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>DAS ICH</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>SWEET WILLIAM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>OSWALD HENKE</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/757">http://musica.mustdie.ru/ru/galleries/21/757</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>SARAH JEZEBEL DEVA</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CHTHONIC</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/758">http://musica.mustdie.ru/ru/galleries/21/758</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>GOTHMINISTER</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>UMBRA ET IMAGO</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DIORAMA</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/759">http://musica.mustdie.ru/ru/galleries/21/759</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>ANATHEMA</STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG>: <A href="/ru/galleries/21/760">http://musica.mustdie.ru/ru/galleries/21/760</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>EMPYRIUM</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>HELHEIM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DORNENREICH</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/762">http://musica.mustdie.ru/ru/galleries/21/762</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>LAKE OF TEARS</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TIAMAT</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/763">http://musica.mustdie.ru/ru/galleries/1/763</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>WAVES UNDER WATER</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TROBAR DE MORTE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>BEATI MORTUI</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>KILLING JOKE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>FIELDS OF NEPHILIM</STRONG></SPAN></STRONG>:</FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><A href="/ru/galleries/1/768">http://musica.mustdie.ru/ru/galleries/1/768</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>NORTHLAND</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>COPPELIUS</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CRIMFALL</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/769">http://musica.mustdie.ru/ru/galleries/1/769</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>MEDIAEVAL BAEBES</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>ELUVEITIE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>MISFITS</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/770">http://musica.mustdie.ru/ru/galleries/1/770</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN>: <A href="/ru/galleries/1/772">http://musica.mustdie.ru/ru/galleries/1/772</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN> <STRONG><SPAN style="BACKGROUND: #009966">(часть 2)</SPAN>:</STRONG> <A href="/ru/galleries/1/773">http://musica.mustdie.ru/ru/galleries/1/773</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0></FONT></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0>Автор всех фотографий - <STRONG>Юлия Бучацкая</STRONG> (кроме <STRONG>MISFITS</STRONG> - <STRONG>Альберт Бучацкий</STRONG>).</FONT></SPAN></P></CENTER>
+Автор: Tess
+
+### 21.04.2012 news TIAMAT назвали альбом
+
+<P>Новый альбом<STRONG> TIAMAT</STRONG> получил название "<STRONG>The Scarred People</STRONG>". Пластинка сейчас записывается в<STRONG> Woodhouse Studio</STRONG> вместе с продюсером<STRONG> Siggi Bemm</STRONG> и выйдет в октябре текущего года на <STRONG>Napalm Records</STRONG>.</P>
+<P><center><IMG height=230 src="/images/news_rus/2012.04/23625.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 13.10.2012 news Новое видео TIAMAT
+
+<P>Новый ролик шведов <STRONG>TIAMAT</STRONG> на заглавную песню с нового альбома <STRONG>"The Scarred People" </STRONG>можно посмотреть ниже. Десятый альбом шведского коллектива выходит в начале ноября на <STRONG>Napalm Records</STRONG>. Трек-лист:</P>
+<P>01. <B>The Scarred People</B> <BR>02. <B>Winter Dawn</B> <BR>03. <B>384 - Kteis</B><BR>04. <B>Radiant Star</B> <BR>05. <B>The Sun Also Rises</B> <BR>06. <B>Before Another Wilbury Dies</B> <BR>07. <B>Love Terrorists</B> <BR>08. <B>Messinian Letter</B> <BR>09. <B>Thunder & Lightning</B> <BR>10. <B>Tiznit</B> <BR>11. <B>Born To Die</B> (digipack bonus track) <BR>12. <B>The Red Of The Morning Sun</B> <BR>13. <B>Paradise</B> (digipack bonus track) <BR>14. <B>Divided</B> (live) (digipack bonus track) <BR>15. <B>Cain</B> (live) (digipack bonus track) </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/-rsyk5QVv5A?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.10/24930.jpg" width=400 height=400></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.10/24931.jpg" width=475 height=475></P>
+Автор: Vit Belov
+
+### 01.03.2013 news TIAMAT: клип на песню &quot;384&quot;
+
+<P>Шведы <STRONG>TIAMAT</STRONG> презентовали своё новое видео на песню <STRONG>"384"</STRONG>. Режиссёр клипа - <STRONG>Ioanna Lampropoulou</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/r5e2e4X5Y18" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 09.04.2014 news Johan Edlund покидает TIAMAT
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.04/26859.jpg" width=300 height=385>Johan Edlund</STRONG>, вокалист и гитарист <STRONG>TIAMAT</STRONG>, сделал сегодня&nbsp;заявление на официальной странице&nbsp;&nbsp;группы в социальной сети Facebook, что он покидает коллектив в связи с проблемами со здоровьем и прочим. Также он написал, что будет не против, если группа найдёт ему замену и продолжит выступать без него.</P>
+<P><STRONG>Johan</STRONG> пообещал принять участие в выступлениях <STRONG>TIAMAT</STRONG> на четырёх летних фестивалях, которые уже запланированы.</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 07.09.2016 news TIAMAT станут гостями московской Musikmesse
+
+<p><strong>Spika Concert Agency</strong> даёт эксклюзивный шанс сфотографироваться с музыкантами и взять автограф перед концертом в рамках Международной Музыкальной выставки<strong> NAMM Musikmesse</strong>!</p><p>Начало автограф-сессии: 18 сентября в 13:00 (продолжительность 1 час 15 мин)<br>Адрес выставки: КВЦ Сокольники, 5ый Лучевой просек, дом 7, стр.1, Павильон 4.1. <br>Подробнее читать здесь - <a href="http://www.spika.org">www.spika.org</a></p><p>Концерты TIAMAT состоятся 15 сентября в Киеве, 16 сентября в Минске, 17 сентября в Санкт-Петербурге, 18 сентября в Москве, 19 сентября в Екатеринбурге.</p><p>Подробнее в нашем разделе shows: <a href="/ru/shows/#71599">http://musica.mustdie.ru/ru/shows/#71599</a></p><p>&nbsp;<center><img width="600" height="350" src="/images/news_rus/2016.09/29938.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### new Tiamat album

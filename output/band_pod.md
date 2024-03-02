@@ -139,6 +139,39 @@ Payable On Death
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.06.2013 news Автограф-сессия группы P.O.D. | Москва, 12 июня
+
+<P>Уже два десятилетия прошли с того момента, как возникла группа <STRONG>P.O.D.</STRONG> Название этой четверки из Сан-Диего представляет собой аббревиатуру словосочетания <STRONG>"Payable On Death"</STRONG> («Выплата в случае смерти»). Сегодня на их счету уже 10 миллионов проданных альбомов по всему миру, масштабные туры, номинации на <STRONG>Грэмми</STRONG>.</P>
+<P>Группа впервые приезжает в Москву, чтобы выступить с концертом в клубе <STRONG>Arena Moscow</STRONG>. А перед концертом <STRONG>P.O.D.</STRONG> раздаст автографы поклонникам своего творчества в магазине <STRONG>Media Markt</STRONG>.</P>
+<P>Место и время проведения автограф-сессии:</P>
+<P>12 июня 2013, 13:30, мегамагазин <STRONG>Media Markt</STRONG> | г. Москва, Варшавское шоссе, д. 97, ТЦ «Ритейл Парк».</P>
+<P>Подробная информация о концерте в разделе "Shows": <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.06/25787.jpg" width=634 height=248> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.06.2013 news Конкурс P.O.D.
+
+<P>Наш портал, совместно с сетью магазинов <STRONG>"Media Markt"</STRONG>, представляет конкурс, посвящённый группе <STRONG>P.O.D.</STRONG>, московский концерт которой состоялся 12 июня в клубе <STRONG>"Arena Moscow"</STRONG>.</P>
+<P><U>Условия конкурса</U>:</P>
+<P><STRONG>Пятый</STRONG> по счёту,&nbsp;правильно ответивший&nbsp;на все три вопроса, получит лицензионный диск с альбомом <STRONG>"Payable On Death"</STRONG> (2003) c автографами всех музыкантов. Плюс рекламную открытку последнего альбома с автографами всех музыкантов и сет-лист московского концерта, написанный от руки вокалистом <STRONG>P.O.D.</STRONG> Сонни Сандовалом.</P>
+<P><STRONG>Пятнадцатый</STRONG> по счёту, правильно ответивший на все три вопроса, получит лицензионный диск с альбомом <STRONG>"Testify"</STRONG> (2006) также c автографами всех музыкантов. Плюс рекламную открытку последнего альбома,&nbsp;подписанную всеми музыкантами.</P>
+<P><STRONG>В конкурсе могут принимать участие только жители Москвы.</STRONG></P>
+<P>Ответы принимаются до 27 июня на e-mail: <A href="mailto:mustdiekon@yandex.ru">mustdiekon@yandex.ru</A></P>
+<P><U>Вопросы конкурса</U>:</P>
+<P>1) Ремикс какой песни <STRONG>P.O.D.</STRONG> вошёл в музыку к фильму <STRONG>"Лара Крофт: Расхитительница гробниц -2"</STRONG>.<BR>2) Как назывался первый сингл с альбома <STRONG>"When Angels & Serpents Dance"</STRONG>.<BR>3) Известно, что барабанщик <STRONG>Noah "Wuv" Bernardo</STRONG> водит дружбу со звездой рестлинга <STRONG>"WWE"</STRONG>, как его имя?</P>
+<P>Диски <STRONG>P.O.D.</STRONG> предоставлены сетью магазинов <STRONG>"Media Markt"</STRONG> (<A href="http://www.mediamarkt.ru/">www.mediamarkt.ru</A>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.06/25837.jpg" width=606 height=491> 
+<P></P>
+<P>Фоторепортаж о пребывании <STRONG>P.O.D.</STRONG> в Москве, можно посмотреть по ссылке:<BR><A href="/ru/galleries/1/1267/">http://musica.mustdie.ru/ru/galleries/1/1267/</A></P>
+<P>Благодарим концертное агенство <STRONG>Delta Mekong Concerts</STRONG> (<A href="http://www.deltamekong.ru/">www.deltamekong.ru</A>) за концерт и гостеприимство.</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### P.O.D. в Москве, 12 июня, &quot;Arena Moscow&quot;

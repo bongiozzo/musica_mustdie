@@ -266,6 +266,202 @@ Alwin Zuur - bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.1999 news 
+
+<p>Пожар в доме, где находилась репитиционная база команды Asphyx уничтожил их оборудование, а также материал, записанный для новой пластинки. Группа всё равно продолжит работу и выпустит новый альбом в феврале-марте 2000 года.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>"Chaos In The Flesh" - так называется новый альбом Asphyx, который выйдет в марте 2000 года.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 reviews Это уж слишком.
+
+<p>Это уж слишком. Я не знал, что такую музыку ещё кто-то слушает. Экскурсия в прошлое. Великолепный death-metal без компромиссов. Вы получите полный заряд энергии. Современное звучание с потугами на разнообразие. В середине даже есть акустический инструментал. Всё сделано по давно знакомым рецептам: гроулинг, злые среднетемповые аккорды. Музыка для глубокого андеграунда, для подпольных клубов почему-то оттуда вылезла. Советую тем, кто ностальгирует, мне же понравилось, хотя и не шедевр, правда французкий Agressor много лучше.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 reviews It too. I did not know, that such music has listeners
+
+<p>It too. I did not know, that such music has listeners. Excursion in the past. Magnificent death-metal without the compromises. You receive a complete charge of energy. Modern sounding with tries on variety. In a middle even is acoustic instrumental. All is made under the for a long time familiar recipes: growling, malicious middle-tempo chords. Music for deep underground, for underground clubs for some reason therefrom stand up. I advise the one who remember, was pleasant to me, though and not a masterpiece, the truth french Agressor is much better.</p>
+
+Автор: Vit Belov
+
+### 13.09.2000 news Asphyx распадаются
+
+<p> Как заявила Century Media Records, группа Asphyx прекращает своё существование. Основная причина этого в том, что гитарист Эрик Дэниэлс больше не может совмещать свое пребывание в группе и основную работу.</p>
+
+Автор: Nybras
+
+### 15.01.2007 news ASPHYX возвращаются
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легендарные голландцы <STRONG>ASPHYX</STRONG> возвращаются в таком составе: <STRONG>Martin van Drunen</STRONG> (vocals), <STRONG>Bob Bagchus</STRONG>&nbsp;(drums),&nbsp;<STRONG>Wannes Gubbels</STRONG>&nbsp;(bass). В роли гитариста выступит участник <STRONG>THANATOS Paul Baayens</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме прочего, вокалист <STRONG>ASPHYX</STRONG> примет участие в новой супер-группе. В составе, кроме него, оба гитариста<STRONG> THANATOS</STRONG>, барабанщик <STRONG>GOREFEST Ed Warby</STRONG> и бывший басист <STRONG>HOUWITSER Theo van Eekelen</STRONG>. Группа пока не имеет названия.</FONT></P>
+Автор: Vit Belov
+
+### 04.01.2008 news ASPHYX запишут две песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Возрождённые брутальщики <STRONG>ASPHYX</STRONG> войдут в студию для записи двух песен в конце января. Группа запишет кавер на песню<STRONG> CELTIC FROST</STRONG> <STRONG>'Os Abysmi Vel Daath' </STRONG>с последнего альбома "<STRONG>Monotheist</STRONG>" и одну новую вещь <STRONG>'Death... The Brutal Way'</STRONG>. Куда войдут эти трэки, группа пока не сообщает.</FONT></P>
+Автор: Vit Belov
+
+### 08.02.2008 news Новая песня ASPHYX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Неотмастерённая версия новой песни <STRONG>ASPHYX</STRONG> <STRONG>'Death... The Brutal Way' </STRONG>доступна к прослушиванию на официальной страничке группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/officialasphyx">http://www.myspace.com/officialasphyx</A></FONT></P>
+Автор: Vit Belov
+
+### 29.07.2008 news ASDPHYX запишут альбом
+
+<P><STRONG>ASPHYX </STRONG>спустя год после воссоединения сочинили 8 песен, который войдут на новый полноформатный альбом. Пластинка ожидается в 2009 году на <STRONG>Century Media</STRONG>, но записывать её музыканты ещё не начали.</P>
+Автор: Vit Belov
+
+### 06.01.2009 news ASPHYX продолжают работу
+
+<P>Реформированные голландцы <STRONG>ASPHYX </STRONG>продолжают работу над новым альбомом. Уже сочинены и частично записаны 10 новых песен. Дата релиза пока не сообщается, но уже известно, что в качестве бонуса на пластинку попадёт DVD с выступлением группы на фестивале <STRONG>Party.Sun</STRONG> в 2007 году - первое ре-юнион шоу <STRONG>ASPHYX</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.02.2009 news Название нового ASPHYX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ASPHYX </STRONG>назвали свой ре-юнион альбом <STRONG>"Death...The Brutal Way". </STRONG>Пластинка выйдет в мае/июне на<STRONG> Century Media</STRONG>. Сведением пластинки будет заниматься <STRONG>Dan Swano</STRONG>. Группа считает новый альбом тяжелейшим в своей истории.</FONT></P>
+Автор: Vit Belov
+
+### 10.03.2009 news ASPHYX закончили запись
+
+<P>Реформированные <STRONG>ASPHYX</STRONG> закончили запись нового альбома <STRONG>"Death...The Brutal Way", </STRONG>который выйдет в мае/июне на<STRONG> Century Media</STRONG>. Вот названия некоторых песен: <STRONG>'Death...The Brutal Way'</STRONG>, <B>'Cape Horn'</B>, <B>'Der Eisenbahnm&#246;rser'</B>, <B>'Scorbutics'</B>, <B>'Riflegun Redeemer'</B>, <B>'Black Hole Storm'</B>, <B>'Asphyx II'</B>, <B>'(They Died As They Marched)'</B>.</P>
+Автор: Vit Belov
+
+### 08.05.2009 news Дата релиза ASPHYX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом-возвращение от голландских дэтстеров <STRONG>ASPHYX</STRONG> <STRONG>"Death...The Brutal Way" </STRONG>выйдет 22 июня на <STRONG>Century Media</STRONG>. Пластинка была записана в <STRONG>Sonic Assault</STRONG>&nbsp;с продюсером <STRONG>Frank Klein Douwel</STRONG>, а смикширована в <STRONG>Unisound Dan Swano</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 11.05.2009 news Обложка и трэк-лист ASPHYX
+
+<P><IMG height=380 alt="" hspace=0 src="/images/news_rus/2009.05/14076.jpg" width=380 align=right border=5>Мы уже сообщали, что 22 июня на <STRONG>Century Media</STRONG> выходит новый альбом <STRONG>ASPHYX</STRONG> <STRONG>"Death...The Brutal Way". </STRONG>Стал известен трэк-лист этой работы:</P>
+<P>01. <B>Scorbutics</B><BR>02. <B>The Herald</B><BR>03. <B>Bloodswamp</B><BR>04. <B>Death…The Brutal Way</B><BR>05. <B>Asphyx II (They Died As They Marched)</B><BR>06. <B>Eisenbahnmorser</B><BR>07. <B>Black Hole Storm</B><BR>08. <B>Riflegun Redeemer</B><BR>09. <B>Cape Horn</B><BR>10. <B>The Saw, The Torture, The Pain</B></P>
+Автор: Vit Belov
+
+### 13.05.2009 news Новая песня ASPHYX
+
+<P>Новую песню <STRONG>ASPHYX "Scorbutics"</STRONG> с выходящего альбома "<STRONG>Death...The Brutal Way</STRONG>" можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/officialasphyx">http://www.myspace.com/officialasphyx</A></P>
+Автор: Vit Belov
+
+### 26.06.2009 news Новое видео от ASPHYX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип <STRONG>ASPHYX</STRONG> на песню <STRONG>"Death...The Brutal Way" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/XNChRN79Z7E&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/XNChRN79Z7E&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.12.2009 reviews Экспонаты из музея тяжёлой музыки
+
+<P>Голландская группа ASPHYX со сложной судьбой вновь воссоединилась и приветствует нас своим новым альбомом “Death… The Brutal Way”. Уже невозможно сосчитать, сколько раз этот коллектив возрождался из пепла, но отличительной особенностью этого ре-юниона является наличие в составе классического вокалиста Martin Van Drunen.</P>
+<P>Группа рассказала, что не собиралась выпускать новый альбом, из-за невозможности достичь уровня первых двух пластинок, но всё-таки решилась на этот шаг. Причиной этого события стало качество нового материала. Чтобы оценить это самое качество, нужно быть фанатом старого европейского death-metal с изрядной добавкой doom-metal. Среднетемповый напористый материал с редкими брутальными взрывами, вот рисунок этой музыки. Безусловно, этот альбом стоило выпускать, подобной музыки сейчас производится крайне мало, но назвать “Death… The Brutal Way” шедевром я бы не смог. После приятного и тёплого чувства ностальгии, связанного со старомодным звучанием (продюсер Dan Swano), возникает некоторое недоумение. Мы все теперь привыкли к более разнообразной музыке. Мы буквально избалованы этим разнообразием, а ASPHYX представляют материал для крепкого деревенского желудка. Риффы, риффы, риффы и средний темп. </P>
+<P>Любители такого death-metal должны этот альбом послушать, коллекционеры приобрести, а поклонники тяжёлой музыки без стажа заинтересоваться. ASPHYX когда-то привлекали к себе всеобщее внимание, сейчас же они похожи на экспонат музея тяжёлой музыки.</P>
+Автор: Vit Belov
+
+### 01.12.2011 news Обложка нового ASPHYX
+
+<P>Голландские ветераны old-school death-metal <STRONG>ASPHYX </STRONG>выпускают новый альбом <STRONG>"Deathhammer" </STRONG>28 февраля на<STRONG> Century Media</STRONG>. Обложку для альбома нарисовал долговременный партнёр музыкантов <STRONG>Axel Hermann</STRONG>.</P>
+<P><center><IMG height=417 src="/images/news_rus/2011.12/22189.jpg" width=417 border=0></P>
+Автор: Vit Belov
+
+### 10.01.2012 news ASPHYX выпустили 7&#39;&#39; винил
+
+<P>В преддверии выхода нового альбома "<STRONG>Deathhammer</STRONG>" голландцы<STRONG> ASPHYX</STRONG> выпустили 7'' EP "<STRONG>Reign Of The Brute</STRONG>", на который войдёт одна песня, которая не войдёт в новый альбом.</P>
+<P>
+<CENTER><IMG height=397 src="/images/news_rus/2012.01/22579.jpg" width=397 border=0> 
+<P></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/sZTH05z3BLo?version=3&feature=player_embedded"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/sZTH05z3BLo?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT></CENTER></CENTER>
+Автор: Vit Belov
+
+### 17.02.2012 news Новый клип ASPHYX
+
+<P>Новый ролик <STRONG>ASPHYX</STRONG> на вещь "<STRONG>Deathhammer</STRONG>" можно посмотреть ниже. Новый альбом голландских ветеранов old school death-metal с одноимённым названием выйдет в конце текущего месяца на <STRONG>Century Media</STRONG>.</P>
+<P><center><object id="flashObj" width="486" height="412" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" /><param name="bgcolor" value="#FFFFFF" /><param name="flashVars" value="videoId=1455269232001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" /><param name="base" value="http://admin.brightcove.com" /><param name="seamlesstabbing" value="false" /><param name="allowFullScreen" value="true" /><param name="swLiveConnect" value="true" /><param name="allowScriptAccess" value="always" /><embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashVars="videoId=1455269232001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></object></P>
+Автор: Vit Belov
+
+### 04.04.2012 reviews Удушающий death-metal
+
+<P>Голландцы ASPHYX выпустили второй альбом после своего возвращения к жизни с пластинкой 2009 года “Death.. The Brutal Way”. И на новейшем релизе “Deathhammer” коллектив продолжает утверждать своё старомодное видение death-metal.</P>
+<P>По мнению, голландских корифеев стиля death-metal не может существовать без doom-metal. ASPHYX не стремятся к запредельным скоростям современного мира, они медленно, но верно вгоняют свои песни-штыри в мозг слушателя, удивляя собственной стойкостью и выдержанностью. Новый альбом коллектива, как всегда, можно разделить на две условные части. В первую можно отнести, так называемые, боевики – среднетемповые, но энергичные композиции с чётким ритмом, которые вызывают выделение слюны у каждого поклонника европейского death-metal начала 90-х годов прошлого века. Во вторую часть относятся композиции в стиле бескомпромиссного doom-metal – медленные, акцентированные с понятной атмосферой. ASPHYX продолжают «удушать» слушателя, а нам это нравится.</P>
+<P>Конечно же, подобную музыку вряд ли можно отнести в авангарду сегодняшней тяжёлой сцены. Более того, голландцы отчаянно пытаются оставаться в арьергарде и топчутся на месте ради себя и своих верных фэнов, которые наверняка с восторгом воспримут этот релиз. Мне же показалось, что ASPHYX нужно всё-таки немного изменить себе. В начале обозреваемого альбома я щурился от восторга и урчал, но ближе к концу моё состояние уже начало приближаться к летаргическому.</P>
+Автор: Vit Belov
+
+### 27.07.2013 news HAIL OF BULLETS закончили запись третьего альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Датская death metal бригада&nbsp;<STRONG>HAIL OF BULLETS</STRONG>, в которую входят участники <STRONG>ASPHYX</STRONG>, <STRONG>GOREFEST</STRONG>&nbsp;и&nbsp;<STRONG>THANATOS</STRONG>, закончила запись своего третьего, пока безымянного, альбома. Сведением и мастерингом занимался <STRONG>Dan</STRONG> <STRONG>Swan&#246;</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выход диска планируется на октябрь - ноябрь этого года на <STRONG>Metal Blade</STRONG>.</FONT></P>
+<P><A href="http://www.reverbnation.com/hailofbullets">www.reverbnation.com/hailofbullets</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25944.jpg" width=650 height=364> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 22.04.2016 news Песня ASPHYX на &#39;гибком диске&#39;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сайт журнал <STRONG>Decibel</STRONG> опубликовал песню <STRONG>"Dethibel</STRONG>"&nbsp;голландских дет-металлистов <STRONG>ASPHYX</STRONG>, которая будет выпущена на 'гибком диске', как бесплатное приложению к новому номеру.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Послешать её можно по ссылке: <A href="http://soundcloud.com/asphyx-deathibel-db0666">http://soundcloud.com/asphyx-deathibel-db0666</A></FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2016.04/29156.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 19.07.2016 news ASHYX объявили подробности нового альбома и дату релиза
+
+<h1>НОВОСТЬ ДНЯ!</h1><p>Голландские doom death пионеры <strong>ASPHYX</strong> анонсировали выход нового студийного альбома. После четырехлетнего ожидания 30 сентября на <strong>Century Media</strong> увидит свет CD "<strong>Incoming Death</strong>", который уже записан. </p><p>Вокалист <strong>Martin van Drunen</strong>: "<em>Через четыре с половиной года после выхода альбома "Deathhammer" мы наконец закончили запись следующей работы. Она выйдет 30 сентября, как всегда, на нашем любимом лэйбле Century Media. Ожидайте 11 беспощадных забойных трека в духе ASPHYX, но имейте в виду, что этот материал самый разнообразный в нашей истории без потери сырости звучания, брутальности и тяжести. Альбом будет называться "Incoming Death", и это фраза, которая, как и "Deathhammer", не существует. Она имеет отношение к тому, что кричат окопавшиеся солдаты под артиллерийским огнём. Так что "Incoming Death" станет ещё одной неумолимой бомбардировкой death doom&nbsp;metal от ASPHYX.</em></p><p><em>Альбом записан в разных студиях в 2016 году, сведение и мастеринг вновь сделал Dan "The Man" Swano. Серьёзное ушное кровотечение гарантировано. Альбом стал первым для нового барабанщика Husky, который с нами уже два с половиной года. Мы очень гордимся лучшим в истории ASPHYX альбомом, и мы уверены, что наши преданные фанаты по всему миру также будут горды нами. Позже мы выступим на всех континентах, предлагая наше фирменное шоу</em>".</p><p>Подробности последуют.</p><p>&nbsp;<center><img width="525" height="469" src="/images/news_rus/2016.07/29614.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.07.2016 news ASPHYX – Announce new studio album title and release date!
+
+<h1>NEWS OF THE DAY!</h1><p>Dutch Doom Death Metal pioneers <strong>ASPHYX</strong> are ready to announce their new studio album release, following up on 2012’s acclaimed “<strong>Deathhammer</strong>” record. The new album has just been finished in recordings, will be entitled “<strong>Incoming Death</strong>” and will be released worldwide on September 30th, 2016 via Century Media Records.</p><p>Vocalist <strong>Martin van Drunen</strong> checked in with the following status report:</p><p>“<em>Four and a half years after the release of “Deathhammer” we finally managed to finish its long awaited successor. It will be out on September the 30th,&nbsp; as always on our beloved label Century Media. Expect 11 unmerciful battering tracks in the typical ASPHYX death/doom style, but also the most varied ASPHYX material up to date without losing our rawness, brutality and heaviness. The album will be entitled “Incoming Death”. And like “Deathhammer”, it's a phrase that doesn't really exist, but refers to what entrenched soldiers cry out when under severe artillery fire. Thus “Incoming Death” implies another relentless bombardment of monstrous ASPHYX death/doom metal!</em></p><p><em>Recorded on diffferent locations throughout 2016 and once more mixed and mastered by the mighty Dan "The Man" Swanц. Serious ear bleedings guaranteed! It’s also our first record also featuring "Husky" on drums, who is now with us for already two and a half years molesting the pig skins with the absolute perfect ASPHYX attitude, passion, pride and mayhem. We are very proud of this best ASPHYX album ever! And knowing our dedicated fans worldwide, they will be proud of us as well! Soon we will hit the stages on every continent to do what we do best; Intense, loud, sweaty, filthy and ruthless live performances!”</em></p><p>And here is a list of upcoming ASPHYX shows for ASPHYX in 2016:</p><p>ASPHYX – Live 2016/2017:<br>23.07.2016 Ostrэ Grъn (Slovakia) - Gothoom Open Air<br>03.09.2016 Essen (Germany) - Turock Open Air<br>10.09.2016 Hьttikon (Switzerland) - Meh Suff Fest<br>17.09.2016 Pьchersreuth (Germany) - Storm Crusher Festival<br>19.11.2016 Ostrava (Czech Republic) - Dolnн oblast Vнtkovice<br>26.11.2016 Bucharest (Romania) - November To Dismember Festival<br>03.-04.03.2017 Umea (Sweden) - House Of Metal Festival</p><p>More dates to be announced soon…</p><p>Upon release, ASPHYX’s latest album “Deathhammer” entered the official sales charts in Germany on position # 67 and amazingly ranked as “Album Of The Month” in the German publications Rock Hard Magazine, Heavy Magazine and also Legacy Magazine. A video for the album’s title track “Deathhammer”, shot by Maurice Swinkels / Younique Film (Exodus, Masterplan, Kataklysm, etc.), can still be viewed here: <a href="http://www.youtube.com/watch?v=IXhyzGc7_pc">http://www.youtube.com/watch?v=IXhyzGc7_pc</a></p><p>Most recently, ASPHYX also launched a very special new track dubbed “Deathibel” on a flexi single in co-operation with US magazine Decibel. You can still check out the track here: <a href="https://soundcloud.com/decibelmagazine/asphyx-deathibel-db0666">https://soundcloud.com/decibelmagazine/asphyx-deathibel-db0666</a></p><p>More news on ASPHYX and “Incoming Death” soon…</p><p>ASPHYX line-up 2016:<br>(From left to right on new photo by Negakinu.com)</p><p>Paul Baayens – Guitars<br>Alwin Zuur – Bass<br>Martin van Drunen – Vocals<br>Stefan “Husky“ Hьskens – Drums</p><p>&nbsp;<center><img width="525" height="469" src="/images/news_rus/2016.07/29614.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 25.07.2016 news Обложка нового ASPHYX
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Мы уже сообщали, что 30 сентября на <strong>Century Media</strong> выходит новый альбом <strong>ASPHYX "Incoming Death"</strong>. Группа поделилась обложкой новой работы, которую нарисовал постоянный партнёр голландцев художник <strong>Axel Hermann</strong> (Sodom, Grave, Morgoth, etc.).</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Также стал известен трек-лист "Incoming Death":</font></p><p>1. Candiru<br>2. Division Brandenburg<br>3. Wardroid<br>4. The Feeder<br>5. It Came From The Skies<br>6. The Grand Denial<br>7. Incoming Death<br>8. Forerunners Of The Apocalypse<br>9. Subterra Incognita<br>10. Wildland Fire<br>11. Death: The Only Immortal</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29671.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 25.07.2016 news ASPHYX – “Incoming Death” album artwork and tracklisting revealed
+
+<p>In light of the upcoming release of their new studio album “<strong>Incoming Death</strong>” on September 30th, 2016 via <strong>Century Media Records</strong>, Dutch Doom Death Metal division <strong>ASPHYX</strong> are now revealing the album’s cover artwork and its tracklisting:</p><p>ASPHYX – “Incoming Death”:<br>1. Candiru<br>2. Division Brandenburg<br>3. Wardroid<br>4. The Feeder<br>5. It Came From The Skies<br>6. The Grand Denial<br>7. Incoming Death<br>8. Forerunners Of The Apocalypse<br>9. Subterra Incognita<br>10. Wildland Fire<br>11. Death: The Only Immortal<br>&nbsp;<br>ASPHYX vocalist <strong>Martin van Drunen</strong> checked in with the following comment about the album: <em>“Incoming Death”, the third ASPHYX album after our resurrection in 2007, contains 11 furious songs in the traditional death/doom style which we are known for so well. Only more unmerciful than ever! Lyrical themes include gore humor, death, doom, war, sci-fi, the varying trustworthy ASPHYX subjects, each fusing perfectly with the metal of the tracks.</em></p><p><em>The album title already existed two or three years ago, being a phrase that doesn't really exist but refers to what entrenched soldiers cry out when under severe artillery fire. Thus “Incoming Death” implies another relentless bombardment of monstrous ASPHYX death/doom metal!”</em></p><p>The album’s artwork (which can be seen below!) was once more created by longtime design-ally <strong>Axel Hermann</strong> (Sodom, Grave, Morgoth, etc.), who commented on the artwork approach as follows: <em>“Incoming Death” is my tenth collaboration with ASPHYX. Instead of visualizing the obvious, which would have been a reaper just collecting the soul of a dying man on his deathbed, I tried a maybe more sinister approach, simply by giving the concept a slightly different twist. A demon-infested living cemetery filled with decaying souls, forever being tortured with their own consciousness...or worse</em>!”</p><p>And Martin van Drunen added the following: <em>“Of course no ASPHYX release without the magnificent cover art of Axel Hermann, whose interpretation of the title fits superb with the atmosphere of the recordings. His demons are ours and soon they will be yours too!”</em></p><p>More info on Axel Hermann’s work can be found here: <a href="https://www.facebook.com/The-Art-Of-Axel-Hermann-226860420813751/">https://www.facebook.com/The-Art-Of-Axel-Hermann-226860420813751/</a></p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29671.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 26.08.2016 news ASPHYX выложили первую песню
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом голландцев <strong>ASPHYX "Incoming Death"</strong> выходит 30 сентября на <strong>Century Media</strong>. Заглавный трек с этого альбома можно послушать ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/AYNkQh6VDNk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news ASPHYX – debut title track of “Incoming Death” album; Album formats and release shows announced! 
+
+<p>Death is coming nearer with the release of the long awaited new studio album by Dutch Doom Death Metal division <strong>ASPHYX</strong> on September 30th, 2016 worldwide via <strong>Century Media Records</strong>.</p><p>Consequently, it’s about time to launch a first song off “<strong>Incoming Death</strong>”, so check out the relentless title track here now:</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/AYNkQh6VDNk" frameborder="0" allowfullscreen></iframe></p><p>The clip enhancing the song was edited by Carl Assault and features live-footage from the band’s performance at Brutal Assault Open Air 2015.</p><p>ASPHYX vocalist Martin van Drunen checked in to comment on the song as follows: “<em>’Incoming Death’ was musicwise composed in perhaps 10 minutes when Husky and Paul were checking the sound in the Perle am Rhein studio for the flexi recordings. When we all freaked out on it, we knew we had the title track for the album. It's so typical our ASPHYX death metal style. Straight forward, no nonsense, three riff, in-your-face death metal. Not that we were looking for a title track that would be in the tradition of ‘Death The Brutal Way’ or ‘Deathhammer’. It just came out like this. It's a damn neckbreaker to raise hell to when playing live and that's why the choice for the track was only natural. Stanza, chorus, repeat, bridge, stanza, chorus, end. That's how it's done. On Instinct. Lyricwise three times death and gore by plague, aliens and zombies. And some metalbeasts are even shorter than two minutes! So grab a beer, bang that head and scream along. This is fucken ASPHYX and we always deliver the goods</em>! “</p><p>The album’s track listing reads as follows:</p><p>ASPHYX – “Incoming Death”:<br>1. Candiru<br>2. Division Brandenburg<br>3. Wardroid<br>4. The Feeder<br>5. It Came From The Skies<br>6. The Grand Denial<br>7. Incoming Death<br>8. Forerunners Of The Apocalypse<br>9. Subterra Incognita<br>10. Wildland Fire<br>11. Death: The Only Immortal</p><p>Next to the album’s standard version on CD, Gatefold LP (with poster) and Digital Download, “Incoming Death” will also be as a limited edition 2-Disc Mediabook (with 3 stickers), including two bonus cover versions (“Servants Of The Warsmen” by Winter and “Master” by Master) as well as a DVD including the ASPHYX liveshows at Czech Republic’s Brutal Assault Open Air 2015, France’s Hellfest 2016 and the videoclip for “Deathhammer”.</p><p>The album’s vinyl version will be issued in the following versions</p><p>Black vinyl – Unlimited<br>White vinyl – Limited to 200x via CMR Europe Webshop<br>“Death Stench” green vinyl – Limited to 200x via CMR USA<br>Transparent Red vinyl – Limited to 500x via CMR Distro Europe<br>Clear vinyl – Limited to 300x via High Roller Records<br>Picture Disc Winter Camouflage – Limited to 500x via Nuclear Blast Records<br>The pre-sale via CMR Distro for Europe starts on Friday, September 2nd, so stay tuned…<br>On the live-front, ASPHYX have confirmed some more shows, including a second special “Incoming Death” album release show at the Turock venue in Essen, Germany for Thursday, October 6th, the day before the other previously announced album release at the Willemeen venue in Arnhem, The Netherlands. Grab your tickets cheaply while supply lasts! Here are all the next ASPHYX live-shows:</p><p>ASPHYX – Live:<br>03.09.2016 Essen (Germany) - Turock Open Air<br>10.09.2016 Hьttikon (Switzerland) - Meh Suff Fest<br>17.09.2016 Pьchersreuth (Germany) - Storm Crusher Festival<br>06.10.2016 Essen (Germany) - Turock / Album release show!<br>07.10.2016 Arnhem (The Netherlands) - Willemeen / Album release show!<br>19.11.2016 Ostrava (Czech Republic) - Dolnн oblast Vнtkovice<br>26.11.2016 Bucharest (Romania) - November To Dismember Festival<br>14.01.2017 Berlin (Germany) - Slaughterhouse<br>04.03.2017 Umea (Sweden) - House Of Metal Festival<br>16.04.2017 Mьnchen (Germany) - Dark Easter Metal Meeting<br>More dates to be announced soon…</p><p>“Incoming Death”, once again mixed and mastered by Dan Swanц at Unisound, is the follow-up releaser to 2012’s acclaimed “Deathhammer” album, which entered the official sales charts in Germany on position # 67 and amazingly ranked as “Album Of The Month” in the German publications Rock Hard Magazine, Heavy Magazine and also Legacy Magazine.</p>
+Автор: Vit Belov
+
+### 22.09.2016 news ASPHYX выпустили клип
+
+<p>Новый клип <strong>ASPHYX</strong> на песню “<strong>Forerunners Of The Apocalypse</strong>” можно посмотреть ниже. Трек войдёт в выходящий через неделю на <strong>Century Media</strong> новейший альбом легендарных голландцев "<strong>Incoming Death</strong>". Режиссёр ролика <strong>Maurice Swinkels / Younique Film</strong> (Exodus, Kataklysm, etc.), который уже работал с коллективом на прошлом альбоме "<strong>Deathhammer</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/BFaiGiWcyY8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.09.2016 news ASPHYX – Debut “Forerunners Of The Apocalypse” video clip;
+
+<p>Only about a week left to go until the long awaited new studio album “<strong>Incoming Death</strong>” by Dutch Doom Death Metal division <strong>ASPHYX</strong> is released worldwide on September 30th, 2016 via <strong>Century Media</strong> <strong>Records</strong>. Therefore, ASPHYX are pleased to debut a promotional video clip for the new album’s track “<strong>Forerunners Of The Apocalypse</strong>” today…</p><p>Directed by <strong>Maurice Swinkels</strong> / Younique Film (Exodus, Kataklysm, etc.), who already worked on the “<strong>Deathhammer</strong>” clip by ASPHYX, and featuring conceptual illustrations by Roberto Toderico, you can check out the video and the track here:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/BFaiGiWcyY8" frameborder="0" allowfullscreen></iframe></p><p>ASPHYX vocalist <strong>Martin van Drunen</strong> checked in with the following comment about the video: <em>“Forerunners Of The Apocalypse” is the first official video from the “Incoming Death” album. Done on a hot Thursday night at the Turbinenhalle in Oberhausen, Germany, where massive credits go out to the crew there. Lots of sweat, beers, laughter and probably the loudest playback session ever in metal! Filmed and edited by the one and only Maurice Swinkels, who probably went deaf after this. A grand cheerz also goes out to Roberto Toderico for the great Mongol warrior drawings! It was the last track written for the album, about genocidal ruler Genghis Khan. Especially about the sacking of Urgench, where 1.2 million were decapitated without mercy. A fucken stampede of a headbanger, so break your necks on this one!”</em></p>
+Автор: Vit Belov
+
+### 25.09.2016 reviews Франшиза ASPHYX знает своё дело
+
+<p>Мало таких групп, как ASPHYX, которые настолько нечувствительны к смене составов. Сколько человек поиграло в голландском коллективе, сколько раз группа распадалась и возрождалась, но звучание оставалось таким, что каждый поклонник death metal сразу понимает, какую группу он слушает. </p><p>Последний раз ASPHYX возродились из пепла в 2007 году. В то время в реюнионе приняли участие три музыканта, чьи имена были крепко связаны с историей коллектива, в первую очередь это один из основателей группы барабанщик Bob Bagchus и классический вокалист Martin Van Drunen, спевший до этого всего на двух альбомах «The Rack” и «Last One On Earth”. Правда, эти работы по праву считаются основными в дискографии ASPHYX. После выхода второго после воссоединения альбома, предыдущего «Deathhammer” в 2012 году, группу покинул барабанщик Bob Bagchus, который не смог совмещать личную жизнь с растущей концертной активностью группы, которая обрела, что называется вторую жизнь, её популярность сильно выросла, и ASPHYX стали превращаться в настоящий бизнес. Bob отправился возрождать свою запасную группу SOULBURN, в ближайшее время выходит уже второй альбом в её новой истории, а Martin Van Drunen остался единственным боссом в ASPHYX. Не подумайте чего плохого, ушедший основатель группы благословил выживших на дальнейшую деятельность и призвал укрепить общий успех.</p><p>Новый альбом ASPHYX “Incoming Death” выходит в пятницу 30 сентября на Century Media. Музыкантам полностью удалось сохранить атмосферу голландского death doom metal, которая давно стала фирменным знаком на европейской сцене, а ASPHYX олицетворяют её как никто другие. Медленный и мрачный материал, чередующийся с безбашенными death metal проходами, с орущим, бешенно истеричным вокалом Van Drunen. На новом альбоме одиннацать треков, из них три прекрасных «баллады». Вообще, мне кажется, оставшиеся музыканты ASPHYX ощущают некую ответственность за результат. У них за спиной стоят бывшие участники коллектива, тот же Bob Bagchus или гитарист Eric Daniels, который не вошёл в нынешний состав ASPHYX, но присоединился к барабанщику в SOULBURN, и новая музыка группы под легендарной вывеской не может отходить от канонов, иначе музыкантов призовут к ответу, отнимут лицензию, а ASPHYX опять распадутся. Но, кажется, «Incoming Death” доказывает, что это никогда не произойдёт, ребята явно знают, что делают и экспериментировать не намерены.</p><p>Отличный альбом ASPHYX, как и все после воссоединения. Здесь есть и дум, и дэт, и мелодия, и драйв. Каждый поклонник стиля коллектива останется доволен, и история голландской группы продолжится. Порой мне кажется, на качество существования голландцев не повлияет даже уход Van Drunen.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ASPHYX

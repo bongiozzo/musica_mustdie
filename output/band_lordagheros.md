@@ -66,6 +66,19 @@ ambient black-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.06.2016 news LORD AGHEROS перенисли дату релиза
+
+<p>Ambient black metal проект из Италии <strong>LORD AGHEROS</strong> перенёс дату релиза пятого альбома "<strong>Nothing At All</strong>"&nbsp;на 2 сентября текущего года. Трейлер альбома можно посмотреть по ссылке: <a href="http://smarturl.it/LOAG_trailer">http://smarturl.it/LOAG_trailer</a></p><p>Трек лист:</p><p>1. The Last Memories&nbsp;&nbsp; <br>2. Lake Water&nbsp;&nbsp; <br>3. Mankind Arise&nbsp;&nbsp; <br>4. No More Rules&nbsp;&nbsp; <br>5. Life and Death&nbsp;&nbsp; <br>6. The Day to Die&nbsp;&nbsp; <br>7. On the Shore&nbsp;&nbsp; <br>8. Idiocracy&nbsp;&nbsp; <br>9. What We Deserve&nbsp;&nbsp; <br>10. Final Thoughts&nbsp;&nbsp; <br>11. Nothing at All</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.06/29421.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 20.06.2016 news LORD AGHEROS push back releasedate
+
+<p>Ambient black metal project from Italy<strong> LORD AGHEROS</strong> pushed back the release date of their fifth album "<strong>Nothing At All</strong>" on 2nd of September. A trailer for the album can be viewed at the link: <a href="http://smarturl.it/LOAG_trailer">http://smarturl.it/LOAG_trailer</a></p><p>Track listing:&nbsp;</p><p>1. The Last Memories&nbsp;&nbsp; <br>2. Lake Water&nbsp;&nbsp; <br>3. Mankind Arise&nbsp;&nbsp; <br>4. No More Rules&nbsp;&nbsp; <br>5. Life and Death&nbsp;&nbsp; <br>6. The Day to Die&nbsp;&nbsp; <br>7. On the Shore&nbsp;&nbsp; <br>8. Idiocracy&nbsp;&nbsp; <br>9. What We Deserve&nbsp;&nbsp; <br>10. Final Thoughts&nbsp;&nbsp; <br>11. Nothing at All</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.06/29421.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

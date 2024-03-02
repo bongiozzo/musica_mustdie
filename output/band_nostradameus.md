@@ -124,6 +124,128 @@ Jesse Lindskog: Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.09.2000 reviews Умопомрачительный альбом
+
+<p>Умопомрачительный альбом! Опять начался выброс на гора большого потока правильных и грамотных альбомов. Особенно в power-metal. Дебютный альбом шведской power-speed-metal надежды. Музыкальный материал Nostradameus заставляет нас вспомнить творчество Hammerfall и Judas Priest. Потрясающий мелодизм, забойная музыка, двойные гитарные соло, отсутствие клавиш. Этакий true-power-speed-metal. Без всяких компромиссов. Да и вокалист хорош. Даже не знаю что еще сказать об этом альбоме. Все сделано хорошо, добротно и профессионально. Хороший друг группы Joacim Cans (Hammerfall) исполнил вокальные партии на завершающей гимновой вещи "One For All, All For One". Слушайте и наслаждайтесь.</p>
+
+Автор: Dimas
+
+### 03.04.2001 news Nostradameus представляет...
+
+<p> Шведские мелодик-пауэрщики NOSTRADAMEUS готовы к бою. Их новый релиз под названием "Prophet Of Evil" появится 20 августа сего года. Кроме всего прочего группа объявится не где-нибудь, а на Wacken Open Air Festival этим летом. Спешите видеть (и слышать)!</p>
+
+Автор: Helloween
+
+### 11.07.2001 news Предсказания Nostradameus
+
+<p> Окончательно подтверждено название нового альбома Nostradameus “Prophet of Evil” и дата релиза - 20 августа. Записано и сие действо (как собственно и предыдущее) было в Finnvox Studio. А раз так, то ежику станет понятно, что за микшерским пультом потрудился кто? Правильно, Mikko Karmila. Обложку сотворил Jean Pascal Fournier (Edguy, Immortal). Японский релиз конечно же ожидается раньше общемировой премьеры. Слушателей (всех, а не только узкоглазых) ожидает сюрприз в виде кавера на песню очень известной шведской хард-роковой группы (и кто бы это мог быть?), хотя это не самая известная их песня.</p>
+
+Автор: Helloween
+
+### 10.01.2002 reviews Металлические пророки
+
+<p>Металлические пророки. Второй альбом шведов получился одновременно лучше и хуже прошлогоднего дебютного альбома "Words of Nostradameus". Несмотря на то, что из прошлогоднего состава осталось только двое человек (вокалист и гитарист), материал группы ничуть не изменился. Все тот же мелодичный и скоростной heavy-power до боли напоминающий Hammerfall. По-прежнему, музыканты пропагандируют тру-музыку без клавиш и гитарно ориентированную. На мой взгляд, музыка стала заметно разнообразнее и мелодичнее, но оригинальность исчезла совершенно. Да, музыка сделана по шаблонам, но все сделано и воспроизведено с такой мощностью и умением, что поневоле заставляет относиться к этой группе с определенной долей уважения. Похвальная работа во многих планах, но тем не менее со своими недостатками. У ребят одинаково хорошо получаются и обычные номера с тяжелыми гитарными риффами и объемными хорусами, и баллады и эпические длинные вещи. Каждый любитель power-metal наверняка останется доволен этим альбомом.</p>
+
+Автор: Dimas
+
+### 09.07.2002 news Еще одно пророчество...
+
+<p>Шведы NOSTRADAMEUS сейчас в KEG-House studio записывают свой третий полноформатник названный "The Third Prophecy" для выхода в Октябре через германскую AFM Records. Трек-лист: <BR><BR> 01. Far Too Strong<BR> 02. Randall Flagg <BR> 03. Those Things You Did <BR> 04. The Future Will Show <BR> 05. If We Believe (In Our Dreams) <BR> 06. 1986 <BR> 07. Revenge Is Mine <BR> 08. HMS Ulysses <BR> 09. In Harmony <BR> 10. Towards The Sleep (Stalingrad)<BR><BR> По словам вокалиста Freddy Persson: "никаких интро, никакой концепции, баллад и прочего дерьма! Только МИ-И-И-ТАЛЛЛ!!!"</p>
+
+Автор: Yermola
+
+### 09.07.2002 news NOSTRADAMEUS Enter Studio To Record &quot;The Third Prophecy&quot;....
+
+<p>Sweden's NOSTRADAMEUS are currently at KEG-House studio recording their third full-length album, entitled The Third Prophecy, for an October release through Germany's AFM Records. Among the titles set to appear on the CD are the following: <BR><BR> 01. Far Too Strong<BR> 02. Randall Flagg <BR> 03. Those Things You Did <BR> 04. The Future Will Show <BR> 05. If We Believe (In Our Dreams) <BR> 06. 1986 <BR> 07. Revenge Is Mine <BR> 08. HMS Ulysses <BR> 09. In Harmony <BR> 10. Towards The Sleep (Stalingrad)<BR><BR> According to vocalist Freddy Persson, the upcoming album will contain "no intro, no concept, no ballads, no bullshit, JUST METAL!!!"</p>
+
+Автор: Yermola
+
+### 22.12.2002 news Новое пророчество Нострадамуса
+
+<p>27 января 2003 года на AFM Records выходит третий альбом шведской группы NOSTRADAMEUS под названием "The Third Prophecy". Альбом был записан и смикширован в Studio Fredman под чутким руководством Fredrik Nordstrоm'а.</p>
+
+Автор: Dimas
+
+### 09.03.2003 reviews Третье пророчество Нострадамуса
+
+<p>Третий труд шведских музыкантов. Если первые работы мне приходило на ум сравнивать с уже известными коллективами, один из которых HAMMERFALL, то по поводу нового альбома сравнения даже не приходят на ум. Хочется просто сказать, что это альбом в духе NOSTRADAMEUS, только более четкий, более выверенный в техническом и композиторском плане. Самая лучшая и самая серьезная работа группы прочно занявшей свою нишу в мире euro power metal. Как и прежде, во главе угла потрясающий мелодизм, запоминающаяся забойная музыка приятная для слуха, двойные гитарные соло, отсутствие клавиш, отличный вокал превосходно подходящий к данной музыке и великолепный хор из пяти вокалистов. На этот раз было принято решение сменить студию, а соответственно и человека занимающегося звуком на альбоме. Им стал хозяин Studio Fredman, где и произошла запись нового альбома - Fredrik Nordstrom, проделавший безупречную работу и создавший звук, с помощью которого материал группы уже не слушается как шаблонно-стандартный. Режущий гитарный звук, горы мелодий и запоминающиеся рефрены слушаются обособленно также благодаря гармоничному дуэту гитаристов группы. Десять трэков тотального несопливого power metal без всяких баллад и даже намеков на них. Плюс к ним, бонусом - концертная версия хита с дебютного альбома "One For All, All For One". Любители power metal будут в восторге.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 15.09.2003 news NOSTRADAMEUS снова в студии
+
+Шведские мелодичные пауэр металлисты из <B>NOSTRADAMEUS</B> начнут в ноябре запись своего четвертого альбома. Его выход ожидается в начале весны 2004 года на немецком лэйбле <B>AFM Records</B>.
+Автор: Dimas
+
+### 19.12.2003 news Шоковая терапия от WIZ
+
+<P>Новый альбом шведской команды <B>WIZ</B> под названием "<B>Shattered-Mind-Therapy</B>" выйдет в марте 2004 года на <B>Arise Records</B>. В составе команды двое участников акта <B>NOSTRADAMEUS</B>: вокалист <B>Freddy Person</B> и гитарист <B>Jake Freden</B>. Они представляют классический heavy power metal с несколько сыроватым звуком. В альбом войдут следующие вещи:</P>
+<P><B>1.Mr Sandman </B></P>
+<P><B>2.In Your Eyes </B></P>
+<P><B>3.Super Psychic Woman </B></P>
+<P><B>4.One Chapter Of A Fairyland </B></P>
+<P><B>5.Sun Moon Stars </B></P>
+<P><B>6.Down </B></P>
+<P><B>7.Understand </B></P>
+<P><B>8.Return Of Atlantis </B></P>
+<P><B>9.Empty Words </B></P>
+<P><B>10.From The Ashes We Rise</B>
+Автор: Dimas
+
+### 14.04.2004 news NOSTRADAMEUS готовят новый альбом
+
+<P><B>NOSTRADAMEUS</B> записывают новый альбом&nbsp; “<B>Hellbound</B>”, который выйдет в августе на<B> AFM</B>.</P>
+Автор: Vit Belov
+
+### 26.08.2004 news Новый альбом NOSTRADAMEUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>NOSTRADAMEUS</STRONG> <STRONG>"Hellbound" </STRONG>выходит 18 октября на <STRONG>AFM</STRONG>. Пластинка была записана в <STRONG>RoastingHouse Studios</STRONG> вместе с <STRONG>Anders "Theo" Theander. </STRONG>Трэк-лист:</FONT></P>
+<P>01. <B>Never Turning Back</B><BR>02. <B>Your Betrayal</B><BR>03. <B>The Reapers Image</B><BR>04. <B>Hellbound</B><BR>05. <B>One Step Away</B><BR>06. <B>Fight</B><BR>07. <B>Cuts Like Blades</B><BR>08. <B>Seven</B><BR>09. <B>One World To Live In</B><BR>10. <B>I Am Free</B> </P>
+Автор: Vit Belov
+
+### 30.09.2004 news Вокалист NOSTRADAMEUS хочет стать... полицейским
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист power-metal группы <STRONG>NOSTRADAMEUS Freddy Persson</STRONG> начал свою учёбу в полицейской академии. Это не помешает ему продолжить выступления в группе. </FONT></P>
+Автор: Vit Belov
+
+### 30.09.2004 news NOSTRADAMEUS singer will be cop!
+
+<P><STRONG>NOSTRADAMEUS</STRONG> singer <STRONG>Freddy Persson</STRONG> will start a professional training at the swedish police academy to impose law and order in the future.</P>
+<P>Of course he will also stay in <STRONG>NOSTRADAMEUS</STRONG> and continue his singer job without any abstrictions.</P>
+<P>Also, the songwriting for the new <STRONG>NOSTRADAMEUS</STRONG> CD “<STRONG>Hellbound</STRONG>” didnґt suffer from this job changing. The album, that has been produced in the <STRONG>Roasting House Studios</STRONG> in Malmц (Sweden) by <STRONG>Anders "Theo" Theander</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.06.2005 reviews NOSTRADAMEUS оккупируют &quot;чужое&quot; название
+
+<P>NOSTRADAMEUS - очень хорошее название для power-metal группы. Это просто отличное название для power-metal группы. Уже четыре альбома это название оккупируют обозреваемые шведы. История сей группы началась в конце 90-х, когда стиль был на очевидном подъёме. Теперь power не так популярен, но AFM с упорством выпускают их пластинки.</P>
+<P>Чем могут оправдать своё существование подобные коллективы мне непонятно. Стандартнейший, застойнейший материал, который напоминает всех монстров power-metal одновременно, но не дотягивает по качеству&nbsp;и до половины любого из этих монстров. Мне больше всего увиделись в "Hellbound" черты HAMMERFALL и HELLOWEEN. У других наверняка будут и другие ассоциации.</P>
+<P>Вам будет тяжело подавить зевоту, если вы всё-таки решитесь приобрести новый альбом NOSTRADAMEUS. Мне так даже несмешно. Только фанатам, сметающим всё и вся... с прилавков магазина.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 03.08.2006 news Новости от NOSTRADAMEUS
+
+<P>Шведские музыканты&nbsp;<STRONG>NOSTRADAMEUS</STRONG> закончили запись своего пятого альбома под названием <STRONG>"Pathway". </STRONG>В альбом войдут следующие вещи:<BR><BR>1. <B>Wall of Anger</B> <BR>2. <B>No Trace of Madness</B> <BR>3. <B>Not Only Women Bleed</B> <BR>4. <B>MDCC Pt. 1</B> <BR>5. <B>MDCC Pt. 2</B> <BR>6. <B>The Untouchebles</B> <BR>7. <B>Death by My Side</B> <BR>8. <B>Until the End</B> <BR>9. <B>Demon Voices</B> <BR>10. <B>Welcome to Living</B> <BR>11. <B>P.I.R</B> <BR></P>
+Автор: Dimas
+
+### 25.08.2007 reviews Удовлетворительно, но не более
+
+<P>Очередная работа шведов ничего не символизирует. Ничего не изменилось. Это просто пятый альбом NOSTRADAMEUS.</P>
+<P>В рецензии на прошлый альбом группы “Hellbound” я сообщил, что не смог найти ничего интересного при прослушивании данного диска. Не знаю, зачем я взялся за написание новой заметки, но уж почему-то задумал я сей диск отрецензировать. Эта группа является ветераном лэйбла AFM. Многие «ветераны» этой немецкой конторы уже покинули их стан. Кто-то, как EDGUY, ушли на повышение, а кто-то, как STEEL ATTACK, перескакивают с лэйбла на лэйбл, не радуя никого. NOSTRADAMEUS повторят судьбу STEEL ATTACK, когда у них закончится контракт с AFM. Где-нибудь на Massacre их примут с распростёртыми объятиями.</P>
+<P>Что ж, попытаюсь послушать “Pathway” беспристрастно. Честно говоря, начинается всё вполне не плохо. Жёсткий рифф, записанный по всем правилам современной звукозаписывающей науки, напористый грамотный вокал. Вот только, как обычно, с мелодиями проблема, что понимаешь уже на «открывашке». При этом ничего у группы не получается даже в балладах, где задеть слушателя заживое гораздо легче.</P>
+<P>Нет, нет и ещё раз нет… Удовлетворительно, но не более того…</P>
+Автор: Vit Belov
+
+### 16.10.2009 news NOSTRADAMEUS в ноябре
+
+<P>Новый альбом <STRONG>NOSTRADAMEUS</STRONG> <STRONG>"Illusion's Parade" </STRONG>выйдет 13 ноября на <STRONG>AFM</STRONG>. </P>
+<P><center><IMG height=400 src="/images/news_rus/2009.10/15282.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

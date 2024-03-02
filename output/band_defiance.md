@@ -51,6 +51,24 @@
 
 * C группой "Skinlab" Steve Esquivel (aka Steev)
 
+## Публикации
+
+### 02.02.2009 news DEFIANCE готовят новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Воскресшие трэшеры <STRONG>DEFIANCE</STRONG> полностью записали 11 новых песен для первого за 15 лет альбома. Пластинка должна выйти в середине года на <STRONG>Candlelight</STRONG>, а одну новую песню можно послушать на <STRONG>MySpace</STRONG> страничке группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/defiancemetal">http://www.myspace.com/defiancemetal</A></FONT></P>
+Автор: Vit Belov
+
+### 08.09.2009 news Трек-лист и обложка нового альбома DEFIANCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реформированые трэшеры <STRONG>DEFIANCE</STRONG> делают последние штрихи&nbsp;к новому альбому <STRONG>"The Prophecy"</STRONG>.</FONT></P>
+<P>Диск выйдет 19 октября на <STRONG>Candlelight Records</STRONG>. Это будет первая студийная работа группы, за более чем 15 лет.</P>
+<P>Запись <STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"The Prophecy" </FONT></STRONG>проходила в калифорнийских студиях <STRONG>Trident</STRONG> и <STRONG>Greendot</STRONG>. Обложку альбома выполнил, известный многим художник, <STRONG>Travis Smith</STRONG>.</P>
+<P><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.09/15022.jpg" width=400 align=right vspace=5 border=0>Трек-лист альбома:</P>
+<P>01. <STRONG>Prion</STRONG><BR>02. <STRONG>The Prophecy</STRONG><BR>03. <STRONG>Bastard Son<BR></STRONG>04. <STRONG>The War Inside</STRONG><BR>05. <STRONG>Fuel The Fire</STRONG><BR>06. <STRONG>Eschaton</STRONG><BR>07. <STRONG>Sloth</STRONG><BR>08. <STRONG>Desert Sands</STRONG><BR>09. <STRONG>Dissolving Around You</STRONG><BR>10. <STRONG>Asthmaphere</STRONG><BR>11. <STRONG>Eyes Of The Front</STRONG></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -60,6 +60,19 @@ Hellcop - The Strongest Drummer In The Universe
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2016 news GEHENNAH: новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская группа <STRONG>GEHENNAH</STRONG>, очнувшаяся от летаргического сна, выпускает свой первый полноформатник с 1997 года. Диск получил название <STRONG>"Too Loud to Live, Too Drunk to Die" </STRONG>и выйдет 12 февраля на лейбле <STRONG>Metal Blade</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А пока, кому не терпится, может послушать его на сайте журнала <STRONG>Decibel</STRONG>: <A href="http://decibelmagazine.com/">http://decibelmagazine.com</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28743.jpg" width=500 height=500> 
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

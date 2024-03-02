@@ -26,6 +26,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.04.2008 news Вышел первый альбом нового проекта музыкантов Comatose Vigil и Twilight Is Mine - Abstract Spirit &quot;Liquid Dimensions Change&quot;!
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.04/12432.jpg" width=400 align=right border=5>Solitude Productions</STRONG> представляет cайд-проект подмосковной black metal группы <STRONG>TWILIGHT IS MINE</STRONG>, музыканты которой известны по участию в концертном составе известной московской funeral doom metal группы <STRONG>COMATOSE VIGIL</STRONG> - это <STRONG>Stellarghost</STRONG> (клавиши) и <STRONG>Hater</STRONG> (гитары, бас). В состав <STRONG>ABSTRACT SPIRIT</STRONG> вошёл и действующий вокалист <STRONG>COMATOSE VIGIL</STRONG> - <STRONG>А.К</STRONG>., взявший на себя также обязанности барабанщика. Первый полноценный альбом "<STRONG>Liquid Dimensions Change</STRONG>" включил в себя шесть песен, общей продолжительностью около 60 минут. Это классический funeral doom metal в духе <STRONG>Shape Of Despair</STRONG>, <STRONG>Colosseum</STRONG> и близкий по духу основному проекту музыкантов - <STRONG>COMATOSE VIGIL</STRONG>, но отличающийся большим разнообразием и тяготением к более суровому, немелодичному звучанию. </P>
+<P><STRONG>Solitude Productions</STRONG><BR><A href="http://www.solitude-prod.com/">http://www.solitude-prod.com</A><BR><A href="http://myspace.com/solitudeprod">http://myspace.com/solitudeprod</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

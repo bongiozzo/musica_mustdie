@@ -20,6 +20,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.01.2011 news SADISTIC INTENT: окончание сотрудничества с Деффом Бекеррой и новый барабанщик
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18164.jpg" width=268 height=290>Дес-металлисты из&nbsp;<B itxtvisited="1">SADISTIC INTENT</B> анонсировали&nbsp;имя&nbsp;нового участника группы, им стал известный убийца барабанных палочек, по имени <B itxtvisited="1">Nick Barker</B> (на фото, <B itxtvisited="1">CRADLE OF FILTH</B>, <B itxtvisited="1">BRUJERIA</B>, <B itxtvisited="1">DIMMU BORGIR</B>, <B itxtvisited="1">LOCK UP</B>), который заменил недавно ушедшего&nbsp;Эмилио Маркиза (<B itxtvisited="1">Emilio Marquez</B>). Музыканты <STRONG>SADISTIC INTENT</STRONG>, так же, завершили&nbsp;своё сотрудничество с&nbsp;Джеффом Бекеррой&nbsp;(<B itxtvisited="1">Jeff Becerra</B>, оригинальный вокалист <STRONG>POSSESSED</STRONG>), с которым они, в течении нескольких лет,&nbsp;выступали под вывеской&nbsp;<B itxtvisited="1">POSSESSED</B>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

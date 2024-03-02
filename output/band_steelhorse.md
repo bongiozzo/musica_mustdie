@@ -24,6 +24,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.08.2011 news Новый сингл STEEL HORSE
+
+<P>Испанцы <STRONG>STEEL HORSE</STRONG> подготовили к релизу свой новый сингл “<STRONG>Land Of The Wolves</STRONG>”, который будет издан в виде семидюмового винила. На диске будет представлен материал со второго полноформатного альбома коллектива "<STRONG>In The Storm</STRONG>".</P>
+<P>Ниже можно послушать материал<STRONG> STEEL HORSE</STRONG> в клипе.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/W0_0vFAgjH4?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/W0_0vFAgjH4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

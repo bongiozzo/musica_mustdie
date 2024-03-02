@@ -8,6 +8,9 @@ mega blasting gore grinding from Indonesia, now R.I.P.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

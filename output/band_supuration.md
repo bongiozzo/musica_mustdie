@@ -33,6 +33,15 @@ ex-Sup
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.09.2011 news SUPURATION возвращаются
+
+<P>Французы<STRONG> SUPURATION</STRONG>, состаящие из музыкантов<STRONG> SUP/S.U.P.</STRONG>, возвращаются с новым сборником "<STRONG>Back From The Crematory</STRONG>". на диск попадут ранние и самые брутальные композиции группы: дебютный мини-альбом "<STRONG>Sultry Obsession</STRONG>", демо "<STRONG>Official Rehearsal</STRONG>", а так же демо группы-предшественника <STRONG>ETSICROXE "Haunted"</STRONG>. Материал прошёл полный ремастеринг.</P>
+<P><center><IMG height=250 src="/images/news_rus/2011.09/21241.jpg" width=250 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

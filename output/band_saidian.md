@@ -69,6 +69,14 @@ Total playing time 56:04
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2009 news Новый альбом SAIDIAN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Третий альбом <STRONG>SAIDIAN</STRONG> <STRONG>"Evercircle"</STRONG>&nbsp;выйдет 29 мая на <STRONG>Blistering Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

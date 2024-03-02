@@ -49,6 +49,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2003 reviews Хрю-блэк, действие второе
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off">Хрю-блэк, действие второе. Снова Moribund, снова банальность, возведённая в абсолют. Правда, на сей раз из Америки. И, увы, совсем не смешная. Думается, о том, каких высот достигла эта команда, и насколько музыканты в ней играющие творчески мыслят, видно из названия. Сколько LEVIATHAN’ов вы знаете? Лично я – не менее десятка. _Этот_ выносит на суд бож… (простите, дьявольский) медленный, тягучий блэк. Вполне себе мрачный и вполне себе атмосферный. Слушаешь и думаешь: а ведь неплохо! Правда, уже спустя час после прослушивания, вспомнить, что же такое американский LEVIATHAN не представляется возможным.</TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE>
+<BLOCKQUOTE id=ecdb2c70>
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off">&nbsp;</TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE></BLOCKQUOTE>
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

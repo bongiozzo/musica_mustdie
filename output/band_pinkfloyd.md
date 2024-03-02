@@ -159,6 +159,14 @@ CD2:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2006 news Умер Syd Barret
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В возрасте 60 лет в Кембридже скончался основатель PINK FLOYD Syd Barret. R.I.P.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Каков Ваш любимый альбом группы Pink Floyd?

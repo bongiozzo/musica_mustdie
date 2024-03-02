@@ -51,6 +51,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.06.2016 reviews Дрейф в сторону мелодики закончился в самом нужном месте
+
+<p>Первые два альбома немцев DAWN OF DISEASE выходили на NoiseArt Records. Видимо Napalm Records, занимающиеся дистрибуцией этого лэйбла, посмотрели-посмотрели на хорошие продажи коллектива, да и забрали его себе. «Worship The Grave” вышел на австрийском лэйбле сегодня.</p><p>Первые две работы DAWN OF DISEASE демонстрировали приверженность группы к шведскому звучанию в death metal. При этом за ориентир принимались группы более прямолинейного направления по типу DISMEMBER или CENTINEX. Третий альбом показал, что ничто мелодичное этой группе не чуждо. Открывается работа самым забойным треком «Worship The Grave”, но уже где-то в середине этой песни коллектив сдаёт оружие и переходит на сторону melodic death metal. Если в первой половине альбома DAWN OF DISEASE напоминают AT THE GATES, то ближе к концу CD это уже матёрый старорежимный IN FLAMES с отличными, но читаемыми мелодичными ходами. К счастью, на этой работе группа не пошла дальше, никто не поёт чистым голосом и не используются core-элементы. Возможно, это в будущем?</p><p>Да ладно, будущее будет в будущем, а в настоящем мы имеем отличный альбом в тяжёлом варианте melodic death metal. Отличные соло, приятные уху любого фэна со стажем риффы, участки классического death metal, которые совсем не портят, а даже наоборот разнообразят этот альбом. Обратить внимание всем поклонникам шведского melodic death metal. На этот раз из Германии.</p>
+Автор: Vit Belov
+
+### 24.06.2016 reviews Drift in the direction of the melody ended in the right place
+
+<p>The first two album from Germany's DAWN OF DISEASE released on NoiseArt Records. Apparently Napalm Records dealing with the distribution of this label, look for a good sale of the band, and took it. "Worship The Grave" was released on the Austrian label today.</p><p>The first two works of DAWN OF DISEASE have demonstrated the commitment of the group to the Swedish sound in the death metal. Groups of more straightforward direction like DISMEMBER or CENTINEX were adopted as guidline. The third album showed that nothing melodic is not alien to this band. Open track "Worship The Grave" of this work is the most brutal for all album, but somewhere in the middle of this song the band surrender their weapons and moves to the side of melodic death metal. If in the first half of the album DAWN OF DISEASE are reminiscent of AT THE GATES, closer to the end of the CD is already mature old-regime IN FLAMES with wonderful but read melodic passages. Fortunately, in this album group did not go beyond, no one sings clean vocals and does not use core elements. Perhaps is it in the future?</p><p>Oh well, the future will be in the future and in the present, we have a great record in the heavy version of melodic death metal. Great solo, nice riffs to ear of any fan with experience, classic death metal sections that don't spoil, but on the contrary it's plus to diversify of this album. Pay attention to all fans of Swedish melodic death metal. This time from Germany.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

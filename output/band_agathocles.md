@@ -415,6 +415,19 @@ Steve AG - Mincing 6 Strings And Throat
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.08.2008 news Скончался басист AGATHOCLES
+
+<P>Басист бельгийской группы <STRONG>AGATHOCLES</STRONG> <STRONG>Tony Schepkens </STRONG>скончался 1 августа сего года в возрасте 35 лет. Причины смерти не сообщаются. R.I.P.</P>
+Автор: Vit Belov
+
+### 25.02.2010 news Новый релиз от AGATHOCLES
+
+<P>Лейбл <STRONG>Selfmadegod Records</STRONG> готовит к выпуску компакт диск <B itxtvisited="1">"Peel Sessions"</B> бельгийской культовой грайндкор банды <B itxtvisited="1">AGATHOCLES</B>. Намеченный&nbsp;на март CD будет содержать 15 прежде неопубликованных песен, записанных на радио&nbsp;<B itxtvisited="1">BBC</B> в Лондоне легендарным <STRONG>John'</STRONG>ом&nbsp;<STRONG>Peel'</STRONG>ом в 1997 году!</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

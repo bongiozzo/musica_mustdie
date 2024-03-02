@@ -44,6 +44,15 @@ Trigger
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.02.2003 news Death Dies news
+
+<p><IMG SRC="/images/news/2003.02/3843.jpg" ALT="pho" width=200 height=115 hspace="15" vspace="5" border="1" align="left">DEATH DIES in late march will enter Infernal Recording Studios near Padova (where EVOL recorded "Portraits" album) to record their second full-lenght album titled "Product of hate". B.T.O.D. will release this new Black opus during 2003.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

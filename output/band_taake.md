@@ -60,6 +60,21 @@ Hoest - Vocals, All Instruments
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.09.2011 news Новый альбом TAAKE
+
+<P><STRONG><IMG height=428 alt="" hspace=0 src="/images/news_rus/2011.09/21124.jpg" width=475 align=right border=0>TAAKE </STRONG>работают над новым альбомом <STRONG>"Noregs Vaapen", </STRONG>который выйдет 1 ноября на <STRONG>Candlelight</STRONG>. Продюсером пластинки выступил <STRONG>Bjornar E. Nilsen</STRONG> (<B>DEAD TO THIS WORLD</B>, <B>THE BATALLION</B>, <B>HELHEIM</B>, <B>VULTURE INDUSTRIES</B>) и содержит контрибуции от <STRONG>Nocturno Culto</STRONG> (<B>DARKTHRONE</B>), <B>Attila Csihar</B> (<B>MAYHEM</B>)&nbsp;и <B>Demonaz</B> (<B>IMMORTAL</B>). Трек-лист:</P>
+<P>01. <B>Fra Vadested Til Vaandesmed</B><BR>02. <B>Orkan</B><BR>03. <B>Nordbundet</B><BR>04. <B>Du Ville Ville Vestland</B><BR>05. <B>Myr</B><BR>06. <B>Helvetesmakt</B><BR>07. <B>Dei Vil Alltid Klaga Og Kyta</B></P>
+Автор: Vit Belov
+
+### 30.09.2011 news TAAKE: клип на песню &quot;Nordbundet&quot;
+
+<P><STRONG>"Nordbundet"</STRONG> - новый видео клип норвежских блек металлистов <B itxtHarvested="0" itxtNodeId="35">TAAKE</B>, доступен для просмотра.&nbsp;Режиссёром видео стал&nbsp;<B itxtHarvested="0" itxtNodeId="34">Torgeir Ness Sundli</B>. Пятый полноформатник <B itxtHarvested="0" itxtNodeId="28">TAAKE</B> <B itxtHarvested="0" itxtNodeId="27">"Noregs Vaapen"</B>, куда вошла песня <STRONG>"Nordbundet"</STRONG>, был выпущен в Европе 20 сентября на <B itxtHarvested="0" itxtNodeId="26">Dark Essence Records</B>.&nbsp;Альбом, так же, увидит свет в США в первый день ноября.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/OAIIbnrYC7Q" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

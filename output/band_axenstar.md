@@ -120,6 +120,362 @@ Adam Lindberg - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.10.2002 reviews Сплошные сумерки
+
+<p>С самых первых секунд альбома, сразу становится ясно, что это за музыка и с чем ее слушают. Шведская группа демонстрирует нам свое умение сочинять и играть европейский power metal. Стандартный, похожий на ранние творения STRATOVARIUS, немного на HAMMERFALL. Но в целом, это еще одна группа, типа NOSTRADAMEUS, даже может менее интересная. Влияния всех этих групп сквозят в каждом риффе группы, в каждой мелодии. Тем не менее, особой неприятности от этого не испытываешь. Музыка профессионально записана, содержит массу интересных, хотя и не оригинальных фрагментов, музыканты демонстрируют хорошую технику владения своими инструментами. Тяжелый скоростной материал с неплохим вокалом. И все-таки, здесь нет ничего необычного...От этого альбом и находится в проигрышной позиции. Он будет подарком только для непритязательных поклонников подобной музыки и для коллекционеров, несмотря на все свои достоинства. Однократное прослушивание этого альбома вряд ли кто посчитает потерянным временем. Потому, попробуйте, а вдруг вам понравится.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 02.02.2003 news Новости от Arise Records
+
+<p>Шведская группа AXENSTAR усиленно работает над сочинением своего нового альбома, выпуск которого запланирован на осень 2003 года.</p>
+<p> Испанская команда VHALDEMAR разъезжает по турам, давая концерты как у себя на родине и не только. Вместе с тем, идет работа над новым материалом. Выпуск нового альбома планируется в октябре 2003 года.</p>
+<p> 21 апреля 2003 года выйдет давно ожидаемый альбом группы DARK MOOR под названием "Between Light and Darkness". Это будет специальное издание для фэнов группы содержащее четыре акустических трэка записанных специально для этого релиза, оркестровую версию "Dies Irae" и три нереализованных трэка.</p>
+<p> Между тем DARK MOOR уже сочинили песни для своего следующего альбома, запись которого начнется в июне, а выход альбома намечается в октябре 2003 года.</p>
+
+Автор: Dimas
+
+### 03.09.2003 news Axenstar выпустили второй альбом
+
+<p>Axenstar выпустили второй альбом 'Far From Heaven'. Альбом был записан в Underground studio и отмастерен Peter In de Betou (Amon Amarth, Hypocrisy). Трек-лист:</p>
+<p> 1. The Descending (intro) 2. Infernal Angel 3. Bling Leading the Blind 4. Don&acute;t Hide Your Eyes 5. Far From Heaven 6. Abandoned 7. Children Forlorn 8. Death Denied 9. Blackout 10. Northen Sky</p>
+
+Автор: Vit Belov
+
+### 06.09.2003 news AXENSTAR releases their second album
+
+<p>AXENSTAR releases their second album іFar From HeavenІ in November. The album was recorded at Underground Studios and mastered by Peter In de Betou (Amon Amarth, Hypocrisy). <br> "Far From Heaven" tracklisting:</p>
+<p> 1. The Descending (intro) 2. Infernal Angel 3. Bling Leading the Blind 4. Donґt Hide Your Eyes 5. Far From Heaven 6. Abandoned 7. Children Forlorn 8. Death Denied 9. Blackout 10. Northen Sky</p>
+<p> In November, the band will play 3 shows in Spain with Red Wine and Dreamaker.</p>
+
+Автор: Vit Belov
+
+### 30.10.2003 news Falconer, DoomSword &amp; Axenstar on tour
+
+06.01.2004 &nbsp;&nbsp;&nbsp;I-Bergamo, Motion<BR>07.01.2004 &nbsp;&nbsp;&nbsp;A-Vienna, t.b.a.<BR>09.01.2004 &nbsp;&nbsp;&nbsp;SLOV-Ljubljana, Orto Bar<BR>08.01.2004 &nbsp;&nbsp;&nbsp;HU-Budapest, E-Klub<BR>10.01.2004 &nbsp;&nbsp;&nbsp;A-Innsbruck, Hafen<BR>11.01.2004 &nbsp;&nbsp;&nbsp;D-M&uuml;nchen, Garage<BR>12.01.2004 &nbsp;&nbsp;&nbsp;D-Essen, Zeche Carl<BR>13.01.2004 &nbsp;&nbsp;&nbsp;D-Bielefeld, Live Arena<BR>14.01.2004 &nbsp;&nbsp;&nbsp;D-Hamburg, Markthalle<BR>15.01.2004 &nbsp;&nbsp;&nbsp;D-Heidelberg, Schwimmbad Musikclub<BR>16.01.2004 &nbsp;&nbsp;&nbsp;D-Berlin, Halford<BR>17.01.2004 &nbsp;&nbsp;&nbsp;D-Aalen, Rock It<BR>18.01.2004 &nbsp;&nbsp;&nbsp;CH-Pratteln, Konzertfabrik Z7<BR>
+Автор: Vit Belov
+
+### 21.01.2004 reviews Ненапряжная такая музычка
+
+<P>Второй альбом группы ранее известной как Powerage. За год, прошедший со дня выпуска дебютного “Perpetual Twilight”, качественных изменений в составе не произошло, и лишь вокалист, сковав себя брачными узами, взял фамилию жены. Теперь он не какой-нибудь Мангус Иоханссон, каких еще несколько десятков тысяч в Швеции, а целый Мангус Винтеруайлд!! Звучит? </P>
+<P>Возможно, это радостное событие и повлияло на качество песен на альбоме. С первым его даже лучше и не сравнивать. Нет, музыканты не записали ничего оригинального. Всё тот же картун-павер, стратовариусообразный. Но, по крайней мере, их творчество теперь меня совершенно не раздражает. Да, вторая лига. Да, стандартная, как кирпич, музыка. А играют хорошо, гитара пищит, клавиши задорненько насвистывают что-то своё, и вот гнусавый вокал даже как бы к месту. Не режет слух. Да и мелодии есть. В “Abandoned” она не просто есть, а вообще заслушаешься. Да и “Northern Sky” хороша. Очень хороший фоновый метальчик. Живенький такой.</P>
+<P>Вот только кавер на “Twilight Of The Gods” они зря сделали. Сразу вся пионерская сущность&nbsp;вылезает.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 08.02.2005 news Новый альбом AXENSTAR
+
+<P><STRONG>AXENSTAR</STRONG> закончили работу над новым альбомом <STRONG>'The Inqusition'</STRONG> в <STRONG>Underground Studios</STRONG>. В ближайшие дни альбом будет отмастерен <STRONG>Peter in de Betou</STRONG> (<STRONG>Amon Amarth, Hypocrisy</STRONG>). Трэк-лист:</P>
+<P>1. <STRONG>The Fallen One<BR></STRONG>2. <STRONG>Under Black Wings<BR></STRONG>3. <STRONG>Salvation<BR></STRONG>4. <STRONG>Inside Your Mind<BR></STRONG>5. <STRONG>Daydreamer<BR></STRONG>6. <STRONG>Drifting<BR></STRONG>7.<STRONG> The Burning<BR></STRONG>8. <STRONG>Run or Hide<BR></STRONG>9. <STRONG>The Sands of Time<BR></STRONG>10. <STRONG>Imaginary World</STRONG> (Japanese bonus track)</P>
+Автор: Vit Belov
+
+### 08.02.2005 news AXENSTAR new album
+
+<P><STRONG>AXENSTAR</STRONG> has just finished the recording / mixing of their third album “<STRONG>The Inquisition</STRONG>” at <STRONG>Underground Studios</STRONG>. The album will be mastered by <STRONG>Peter in de Betou</STRONG> (<STRONG>Amon Amarth, Hypocrisy</STRONG>) in the next days. <BR>Cover artwork is alredy done by <STRONG>Toxic Angel</STRONG> (<STRONG>Sonata Arctica, Children Of Bodom</STRONG>). “<STRONG>The Inquisition</STRONG>” will be released in May.</P>
+<P>1. <STRONG>The Fallen One<BR></STRONG>2. <STRONG>Under Black Wings<BR></STRONG>3. <STRONG>Salvation<BR></STRONG>4. <STRONG>Inside Your Mind<BR></STRONG>5. <STRONG>Daydreamer<BR></STRONG>6. <STRONG>Drifting<BR></STRONG>7.<STRONG> The Burning<BR></STRONG>8. <STRONG>Run or Hide<BR></STRONG>9. <STRONG>The Sands of Time<BR></STRONG>10. <STRONG>Imaginary World</STRONG> (Japanese bonus track)</P>
+Автор: Vit Belov
+
+### 23.08.2005 reviews Настоящий финский power metal из … Швеции
+
+<P>Пожалуй, сейчас никого уже не увидишь тем, что некоторые деятели вместо оригинала копируют (или, если угодно, подражают – для любителей политкорректности) вторичный клон. Но лично для меня остается удивительным тот факт, что шведы, у которых power-metal сцена весьма сильна и развита (HAMMERFALL, NOCTURNAL RITES, INSANIA etc.), почему-то избрали своим «светом в ночи» коллектив из соседней Финляндии – речь здесь идет о SONATA ARCTICA. Именно на нее похожа музыка AXENSTAR. А почему я про благородное искусство клонирования в начале упомянул – так и СОНАТА, простите, тоже далека от оригинальности, и там тоже вполне понятно, откуда торчат ушки… </P>
+<P>Ничего нового и интересного я в этой рецензии не напишу. Не потому, что не хочу, не потому, что не могу, и даже не потому, что музыка не понравилась. Я просто не вижу смысла высасывать из пальца (или еще откуда – мы обитаем в свободной стране, и у каждого есть право выбора) информацию и придумывать несуществующие подробности.<BR>Итак, что мы имеем? Имеем мелодичный power metal финского образца, сыгранный шведами (“The Inquisition” – уже третий по счету в дискографии AXENSTAR). Power metal аккуратненький, чистенький, максимально приглаженный, с нейтральным саундом – не перегруженным (а ля «дань современности») и не сухой (а ля true). Ибо все должно быть прилично, и не дай Босх впендюрить в общий котел хоть каплю оригинальности. Резвые гитары, сыплющие риффами, как горохом из банки, выверенные соло (здесь нет места импровизации… а жаль),&nbsp; обязательные клавиши (и я бы ОЧЕНЬ удивился, если бы их не было), ничем не примечательный вокал – который, разумеется, вовсю взаимодействует с бэк-вокалами… Стопроцентная стерильность. Стандарт современности.<BR>&nbsp;<BR>Послушал я для полноты картины эту самую «Инквизицию» несколько раз (поверьте, это не сложно, никаких усилий над собой) – отторжения не вызывает, привыкания не вызывает, отрицательных или положительных эмоций – тоже не вызывает. Как фон – вообще идеально. Ибо не напрягает… А одна песня даже понравилась – это “Daydreamer”. Хоть сейчас на какой-нибудь сборник. Засим все.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+### 07.11.2005 news AXENSTAR на Massacre
+
+<P><STRONG>Massacre</STRONG> подписала контракт с шведской power-metal группой <STRONG>AXENSTAR</STRONG>. Группа запишет четвёртый альбом в апреле.</P>
+<P>Из других новостей. Группу покинули гитаристы <STRONG>Peter Johansson</STRONG> и <STRONG>Thomas Eriksson</STRONG>. Уже объявлена замена - это некто <STRONG>Joakim Jonsson</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.12.2006 news Очередные перестановки в составе AXENSTAR
+
+<P>Шведский&nbsp;power metal акт&nbsp;<B>AXENSTAR</B> покинули басист <B>Magnus Ek</B> и ударник <B>Pontus Jansson</B>.&nbsp;Заменой им стали басист&nbsp;<B>Henrik Sedell</B>&nbsp;и ударник&nbsp;<B>Thomas Ohlsson</B>.<BR></P>
+Автор: Dimas
+
+### 02.02.2010 news Новое видео AXENSTAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>AXENSTAR</STRONG> выложили клип на песню <STRONG>"Tears Of The Sun", </STRONG>снятый режиссёром <STRONG>Dino Medanhodzic</STRONG>. Песня попадёт на пятый альбом группы, который выйдет этим летом на пока не названном лэйбле.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/s80y22ChGuo&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/s80y22ChGuo&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 11.01.2011 news Новое видео AXENSTAR
+
+<P>28 января на<STRONG> Rock It Up</STRONG> выходит новый альбом <STRONG>AXENSTAR "Aftermath"</STRONG>. Клип на заглавную песню можно посомтреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/fjeai7REPxU?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/fjeai7REPxU?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

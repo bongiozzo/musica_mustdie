@@ -201,6 +201,73 @@ Mads Lauridsen - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.11.1999 news 
+
+<p>Napalm Death выпустили новый альбом "Leaders Not Followers". На него вошли кавера таких групп, как Raw Power, Incenterator, Pentagram, Repulsion, Death и Dead Kennedys. Группа находится сейчас в 6-недельном туре вместе с Konkhra.</p>
+
+Автор: Vit Belov
+
+### 15.05.2001 news Датский Демон...
+
+<p>Датские дэтстеры "DAEMON" (имеющие в своем составе мэйнмена "KONKHRA" - Anders Lundemark и барабанщика "STRAPPING YOUNG LAD" - Gene Hoglan) завершили запись третьего альбома и будут микшировать его в самое ближайшее время. Скорее всего релиз (как и предыдущие два) выйдет на Diehard Records.</p>
+
+Автор: Yermola
+
+### 15.05.2001 news KONKHRA ...
+
+<p>"KONKHRA" пишут материал для нового альбома, который запланирован к выходу на начало 2002 года. По словам Андерса "Сейчас мы заботимся о том, что бы все получилось очень круто и брутально. Мы полностью завершили уже четыре песни и еще три уже почти готовы. Контракт? Да, у нас есть два очень серьезных предложения, но мы подождем пока запись будет на 100% готова и затем аннонсируем новый лэйбл..."</p>
+
+Автор: Yermola
+
+### 15.05.2001 news DAEMON, the Danish project featuring KONKHRA .....
+
+<p>DAEMON, the Danish project featuring KONKHRA mainman Anders Lundemark and STRAPPING YOUNG LAD drummer Gene Hoglan, have completed recording their third full-length album and will have it mixed in early June. However, according to Lundemark, the CD may or may not be issued through Diehard Records (who released the group's first two recordings), pending the label's commitment to supporting the album with a tour. "I'm sure as hell not interested in releasing this record as a goddamn secret with poor exposure touring wise and what have you!" Anders reasoned. In related news, KONKHRA are in the process of writing the material for their forthcoming album, which will likely be released in early 2002 through an as-yet-undetermined label. According to Anders, "we are very careful to make everything as downright mean and brutal as can be. We are finished with four songs and have three more cooking right now. Deal? Yeah, we have two serious and OK offers, but we are waiting until the record is 100% done and then we'll announce our new label. We ain't rushing this. This time (like every time), we want the record to be the best it can be." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.09.2001 news Новый альбом KONKHRA ....
+
+<p>Появились новости об так и не названном пятом альбоме датчан "KONKHRA". Сейчас полностью готовы уже восемь песен, среди которых: 01. Parasite 02. Hellhound On My Trail 03. Grapes Of Wrath 04. Shut Up. Уже на начало октября зарезервирована Starstruck Studio, в которой и будет проходить запись. Релиз ожидается в середине 2002 года на до сих пор еще не поименованном лэйбле...</p>
+
+Автор: Yermola
+
+### 18.09.2001 news KONKHRA are hoping to begin recording ...
+
+<p>Danish metallers KONKHRA are hoping to begin recording their as-yet-untitled fifth album shortly at Starstruck Studio, which has apparently been booked for the next few months as the band complete work on the material for the effort. So far, eight songs have been finished, among them the following: 01. Parasite 02. Hellhound On My Trail 03. Grapes Of Wrath 04. Shut Up. A mid-2002 release through an as-yet-undetermined label is expected. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.10.2001 news THE HAUNTED have announced the dates for their forthcoming US tour ...
+
+<p>Swedish thrashers THE HAUNTED have announced the dates for their forthcoming US tour with WITCHERY (THE HAUNTED guitarist Jensen's other band), CATASTROPHIC (featuring ex-OBITUARY guitarist Trevor Peres) and MARTYR AD. The details are as follows: <br> Nov. 02 – South Amboy, NJ - Krome <br> Nov. 03 - Worcester, MA - Palladium <br> Nov. 04 - New London, CT - El N Gee <br> Nov. 05 - Alexandria, VA - Jaxx Night Club <br> Nov. 06 - Winston-Salem, NC - Ziggy's <br> Nov. 07 - Cleveland, OH - Agora <br> Nov. 08 - Detroit, MI - I Rock <br> Nov. 09 - Aurora, IL - Riley's Rock House <br> Nov. 10 - Minneapolis, MN - 1st Avenue <br> Nov. 11 - Milwaukee, WI - The Rave Bar <br> Nov. 13 - Denver, CO - Ogden Theatre <br> Nov. 15 - Seattle, WA - Graceland <br> Nov. 16 – Vancouver, B.C. - Studabakers <br> Nov. 17 - Portland, OR - Meow Meow <br> Nov. 18 - San Francisco, CA - The Pound <br> Nov. 19 - Los Angeles, CA - The Whiskey <br> Nov. 20 - Santa Ana, CA - Galaxy <br> Nov. 21 - Tempe, AZ - Bostons <br> Nov. 23 - Arlinton, TX - Dream World <br> Nov. 24 - Houston, TX - Cardi's<br><br> More dates will be announced shortly. In other news, THE HAUNTED are reportedly mixing a live recording of the group’s performances in Japan for a live CD that will allegedly accompany a reissue of the band’s acclaimed THE HAUNTED Made Me Do It release, which is due out shortly. All the mixing sessions are taking place at the Danish studio of KONKHRA mainman Anders Lundemark, Starstruck. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.10.2001 news Третья мировая война от KONKHRA ...
+
+<p>Помимо зарабатывания зеленых бумажек с побочными проектами (The Haunted и т.п.) главарь "KONKHRA" - Anders Lundemark не забывает и про собственную группу. Сейчас датчане садятся в его студию Starstruck для записи пятого альбома названного "Third World War". На диске будут: <br> 01. Fear Of God <br> 02. Warmonger <br> 03. Grapes Of Wrath <br> 04. Parasite <br> 05. Hellhound on my Trail <br> 06. Eye Of Horus <br> 07. Straitjacket Blues <br> 08. Shut Up</p>
+
+Автор: Yermola
+
+### 17.10.2001 news KONKHRA are preparing to enter mainman Anders Lundemark?s Starstruck Studio ...
+
+<p>Danish metallers KONKHRA are preparing to enter mainman Anders Lundemark’s Starstruck Studio to begin recording their fifth album, tentatively titled Third World War, which is tentatively scheduled for release through an as-yet-undetermined label in mid-2002. According to Anders, “we'll start recording drums for the next KONKHRA record as soon as [drummer] Johnny feels 100% ready” following his upcoming operation for hernia, which is due to take place sometime in November. Inspired lyrically by “the recent events in world history”, Third World War will contain the following cuts, among others: <br> 01. Fear Of God <br> 02. Warmonger <br> 03. Grapes Of Wrath <br> 04. Parasite <br> 05. Hellhound on my Trail <br> 06. Eye Of Horus <br> 07. Straitjacket Blues <br> 08. Shut Up <br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 09.02.2005 news KONKHRA взяли перерыв
+
+<P>Впервые в своей истории <STRONG>KONKHRA</STRONG> взяли перерыв, то есть на время прекратили своё существование по персональным причинам. Подробности не сообщаются.</P>
+Автор: Vit Belov
+
+### 31.05.2005 news KONKHRA - перерыв закончился
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KONKHRA</STRONG> закончили отдыхать и вновь приступили к работе. В настоящее время практически сочинён материал для нового альбома, который получил рабочее название <STRONG>'Doctrines Of Death'</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

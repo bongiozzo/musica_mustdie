@@ -61,6 +61,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.08.2011 news EMMURE: видео на песню &quot;Children Of Cybertron&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не так давно посетившие Москву звуковые террористы <STRONG>EMMURE</STRONG>, опубликовали видео на песню <STRONG>"Children Of Cybertron"</STRONG> со своего последнего альбома <STRONG>"Speaker Of The Dead"</STRONG>.</FONT></P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=349 src="http://www.youtube.com/embed/wEX7RsUp7dA" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.07.2012 news EMMURE: видео на песню &quot;MDMA&quot;
+
+<P>Американская deathcore банда <STRONG>EMMURE</STRONG>, выпустила видео на песню<STRONG> "MDMA"</STRONG>. Трек входит в последний альбом&nbsp;коллектива - <STRONG>"Slave To The Game"</STRONG> (10 апреля 2012 г., <STRONG>Victory Records</STRONG>).</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/78LJyOUMrD8" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

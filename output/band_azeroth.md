@@ -58,6 +58,16 @@ Recorded and mixed in 1998/99 at E.S.L.Y. studio
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.05.2001 news Banzai Metal Fest
+
+<p> Финская gothic/dark metal группа LET ME DREAM выступит живьем в России, в Санкт-Петербурге в рамках Banzai Metal Fest в клубе Полигон. Фестиваль состоится в пятницу 25 мая 2001 года. В нем принимают участие LET ME DREAM (gothic-dark metal), еще одна финская группа DEEP RED(death metal), а также российские команды AZEROTH, СЕВЕРНЫЕ ВРАТА и PSYLOCIBE LARVAE. Также планируется участие еще нескольких российских команд.</p>
+<p></p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Что лучше - AZEROTH или SATARIAL?

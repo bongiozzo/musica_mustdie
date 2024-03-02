@@ -10,6 +10,14 @@ Candlemass side project
 * C группой "Candlemass" Lars Johansson (guitar)
 * C группой "Candlemass" Jan Lindh (drums)
 
+## Публикации
+
+### 05.04.2004 news Side-project Candlemass
+
+<P>Гитарист и барабанщик <B>CANDLEMASS</B> <B>Lars Johansson</B> и <B>Jan Lindh</B>&nbsp;организовали новую группу <B>CREOZOTH. </B>Коллектив уже пишет новый альбом. Кроме вышеозначенных участвуют: вокалист <B>Michael Storck</B> (<B>X-PLODE</B>) и басист <B>Tobbe Moen</B> (ex-<B>REDFUN</B>, <B>OZ</B>).</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

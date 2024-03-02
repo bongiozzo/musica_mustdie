@@ -51,6 +51,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.09.2002 reviews И за рубежом делают это...
+
+<p>Признаться меня расстроило то, что я услышал на этом демо. Расстроило так, что я не притрагивался к этой записи несколько месяцев, но нетерпение пославшей стороны заставило вернутьься к прослушиванию этого "шедевра". Если отечественным группам ещё можно простить некоторую лажу со звуком, то прощать это благополучным западным музыкантам не хочется. Есть такие группы, по записи которых невозможно понять, в каком жанре они выступают. Особенно, много их в неизбалованном высокими технологиями ex-СССР. Methedros сколотили наверное выходцы отсюда, либо нищие музыканты с Сицилии. Непонятно зачем пересылать такое на такое огромное расстояние. Потратили бы лучше деньги на хорошую звуковую карту. Меня озарило, что скорее всего это мелодичный thrash американской школы (a-la последние работы Megadeth), но гарантировать не берусь. Единственное светлое пятнышко - это соло-гитарист, да и тот, далеко не виртуоз. Разглядеть никакого смысла не удалось...</p>
+
+Автор: Vit Belov
+
+### 28.09.2002 reviews And foreigners also do it...
+
+<p>I was upset, when I have heard this demo. I was upset so, that I did not touch this record some months, but the impatience of the sent label has forced to return to listening this "masterpiece". If i could forgive the domestic groups some faults with a sound, but i can't forgive it to safe western musicians, it would not be desirable. There are such groups, on which record it is impossible to understand, in what genre they play. Especially, it is a lot of them in notspoiling by high technologies ex-USSR. Methedros have began by probably peasant from here, or poor musicians from Sicily. Not clearly what for to send such on such huge distance. They Would spend money for a good sound card. I was lighted up, that most likely is melodious thrash of the American school (a-la last works by Megadeth), but to guarantee I am not taken. Unique light point is solo-guitarist, and that, is far from being the virtuoso. To make out of any sense it was not possible...</p>
+
+Автор: Vit Belov
+
+### 07.11.2002 news Mae Productions tourdates in ITALY
+
+<p>SUMMONER<BR> 03 November - La Sfinge, Brescia<BR> 24 November - Transilvania, Lipomo (Co)<BR> 29 November - Motorock As, Mozzate (Va)<BR> 28 Dicember - Il Ristoro, Oriago di Mira (Ve)<BR> LIFEND (Inner Death Hybrid)<BR> 30 November - @ La Capannina, San Nazzaro Sesia (No) + Greyswan + In Depth<BR> 07 Dicember - @ Eagle's Pub, Samone (To) + Ophydian<BR> 11 Jan - @ Il Ristoro, Oriago di Mira (Ve) + Chronic<BR> 17 Jan - @ Motorock As, Mozzate (Va) + Guest<BR> 5 Feb - @ West Coast, Grandate (Co) + Greyswan<BR> METHEDRAS<BR> 15 Novembre -@ Indian's Saloon, Bresso (MI)</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

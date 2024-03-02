@@ -49,6 +49,21 @@ Encore:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.02.2001 news Концертник группы Into The Abyss
+
+<p>Into The Abyss выпустили свой первый концертный альбом "adrenochrome". Альбом был записан на первом выступлении группы в Греции и вышел на независимом греческом лэйбле.</p>
+
+Автор: Vit Belov
+
+### 18.02.2001 news Live-album by Into The Abyss
+
+<p>The brand-new CD release by into the abyss is entitled "adrenochrome" and was recorded live at the band's first live appearance in Greece, on April 24, 2000 at the Athens AN CLUB. This is the first live album to be released by an independent record company in Greece.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -77,6 +77,31 @@ sPaG - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.08.2003 reviews Смертельная доза
+
+<P>Обилие нью-металлических банд, а в особенности отсутствие разницы между ними уже давно перешло всякие границы. Mudvayne (также как и Slipknot) относятся к тем группам, на которые равняется молодое поколение музыкантов, рассуждая о том, что им все же играть. Взяв многое из классических тем научной фантастики, уроженцы Иллинойса создают особый сорт агрессивной музыки, что выделяет их из толпы собратьев по nu-metal жанру. Альбом переполнен басовыми забоями, извивающимися подобно змее гитарными риффами, безошибочными ритмами ударных и множеством спектров вокала. Создается головокружительный эффект. 'L.D.' расшифровывается как 'Lethal Dose' (Смертельная доза). Альбом соответствует названию. Целых семнадцать трэков нью-металлического хаоса. Есть песни, которые начинаются медленной балладой с красивым пением вокалиста Када. Они позволяют отдохнуть слушателю, но после первой же минуты пение мгновенно переростает в&nbsp; бешеный долбеж, а потом снова - хаос резко прекращается и нежное спокойное пение. Такое разнообразие позволяет прослушать альбом целиком без напряжения. "Сырой", агрессивный и лирический, 'L.D. 50' заслуживает большой похвалы и внимания любого металхэда, не испытывающего неприязнь к подобного рода музыке.</P>
+Автор: Darkfall
+
+### 03.08.2003 reviews Смертельная доза 2
+
+<P>Менее "сырой", менее запутанный и более внушительный - именно таким предстал перед нами второй полноформатник Иллинойских нью-металлистов Mudvayne. Титульная обложка, нагло откопированная с бессмертного шедевра Малевича, говорит о том, что группа решила не задумываться над тем, что будет поверх диска. Но зато музыкальная часть альбома, то бишь самая важная, была отработана на все сто. Звук стал чище, мелодии более четкие и безошибочные. Трэков на четыре меньше, нежели на прошлом релизе, но они более полноценные - каждый из них имеет начало и некую завершенность. Заметно поубавилось количество ругательных слов. Как музыка группы стала лучше, так же и лирика вокалиста стала глубже и серьезнее. В основном речь идет о внутреннем мире человека и об его взаимодействии со всей окружающей его реальностью. 'The End Of All Things To Come' - сильный и атмосферный альбом, так что пусть вся толпа нью-металлистов равняется именно на такую манеру исполнения жанра, тогда мы не успеем и глазом моргнуть, как безобразные и безидейные проекты начнут превращаться в талантливые группы, наполняющие "тяжелую" музыку массой новаторских идей.</P>
+Автор: Darkfall
+
+### 30.09.2003 news Mudvayne in USA
+
+Oct. 10 - Hartford, CT @ Webster Theatre<BR>Oct. 11 - Clifton Park, NY @ Northern Lights<BR>Oct. 12 - Old Bridge, NJ @ Krome<BR>Oct. 14 - Worcester, MA @ The Palladium<BR>Oct. 15 - Poughkeepsie, NY @ The Chance<BR>Oct. 17 - Columbus, OH @ Promowest Pavillion<BR>Oct. 18 - Greenville, SC @ Pickens Speedway<BR>Oct. 19 - Lake Buena Vista, FL @ House Of Blues<BR>Oct. 21 - Saint Petersburg, FL @ Jannus Landing<BR>Oct. 22 - Boynton Beach, FL @ Ovation<BR>Oct. 23 - Ft. Myers, FL @ Neptunes<BR>Oct. 25 - Fort Worth, TX @ Ridglea Theatre<BR>Oct. 26 - McAllen, TX @ Villa Real<BR>Oct. 28 - El Paso, TX @ Club X Cape<BR>Oct. 29 - Oklahoma City, OK @ Bricktown Events Center<BR>Oct. 30 - Denver, CO @ The Fillmore Auditorium<BR><BR>2003 Mexico Dates (w/ <B>KORN</B>, <B>MARILYN MANSON</B>):<BR><BR>Nov. 05 - Monterrey Nueva Leon, MEX @ Auditorio Coca-Cola<BR>Nov. 07 - Mexico City, MEX @ Foro Sol/Autodromo Hermanos
+Автор: Vit Belov
+
+### 18.06.2012 news HELLYEAH: обложка и трек-лист третьего полноформатника.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24219.jpg" width=400 height=400>Третий полноформатник группы <STRONG>HELLYEAH</STRONG>, в которую входят бывшие и нынешние участники таких групп, как <STRONG>PANTERA</STRONG>, <STRONG>MUDVAYNE</STRONG>, <STRONG>DAMAGEPLAN</STRONG>&nbsp;и <STRONG>NOTHINGFACE</STRONG>,&nbsp;выйдет 17 июля&nbsp;на новом для&nbsp;группы лейбле <STRONG>Eleven Seven Music</STRONG>. Диск был записан в городе Даллас, (штат Техас), на студиях, принадлежащих барабанщику группы. Продюсер и инженер альбома - <B itxtHarvested="0" itxtNodeId="65">Jeremy Parker</B> (<B itxtHarvested="0" itxtNodeId="64">GODSMACK</B>, <B itxtHarvested="0" itxtNodeId="63">EVANESCENCE</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лиcт:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtHarvested="0" itxtNodeId="57">War In Me</B><BR itxtNodeId="56">02. <B itxtHarvested="0" itxtNodeId="55">Band Of Brothers</B> <BR itxtNodeId="54">03. <B itxtHarvested="0" itxtNodeId="53">Rage/Burn</B> <BR itxtNodeId="52">04. <B itxtHarvested="0" itxtNodeId="51">Drink Drank Drunk</B><BR itxtNodeId="50">05. <B itxtHarvested="0" itxtNodeId="49">Bigger God</B> <BR itxtNodeId="48">06. <B itxtHarvested="0" itxtNodeId="47">Between You And Nowhere</B><BR itxtNodeId="46">07. <B itxtHarvested="0" itxtNodeId="45">Call It</B><BR itxtNodeId="44">08. <B itxtHarvested="0" itxtNodeId="43">Why Does It Always</B><BR itxtNodeId="42">09. <B itxtHarvested="0" itxtNodeId="41">WM Free</B><BR itxtNodeId="40">10. <B itxtHarvested="0" itxtNodeId="39">Dig Myself A Hole</B><BR itxtNodeId="38">11. <B itxtHarvested="0" itxtNodeId="37">What It Takes To Be Me</B><BR itxtNodeId="61">&nbsp;</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

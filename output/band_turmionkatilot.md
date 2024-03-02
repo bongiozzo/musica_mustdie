@@ -28,6 +28,9 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### Oktobierfest 2012: KNORKATOR (Гер.) / TURMION KATILOT (Фин.) / HANZEL UND GRETYL (С.Ш.А.)

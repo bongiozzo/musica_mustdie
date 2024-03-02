@@ -34,6 +34,27 @@ epic black metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.10.2000 news Bloodthorn выпускают новый альбом.
+
+<p> Bloodthorn сменили лейбл Season Of Mist на Red Stream. Запись их нового альбома "Under The Reign Of Terror" состоялась в августе при содействии Алекса из Aggressor на ведущей гитаре и Джемода из Perished на ударных. Выпуск релиза запланирован на ноябрь.</p>
+
+Автор: Morsus
+
+### 04.10.2000 news Bloodthorn release new album.
+
+<p> Bloodthorn have left Season Of Mist and joined Red Stream. The recording of their next album "Under The Reign Of Terror" took place in August where the band has been supported by Alex of Aggressor on lead guitar and Jehmod of Perished on the drums. The release is planned for November.</p>
+
+Автор: Morsus
+
+### 19.01.2006 news Новый альбом BLOODTHORN
+
+<P>20 февраля на <STRONG>Morningstar Records</STRONG> выходит новый альбом <STRONG>BLOODTHORN "Genocide</STRONG>". Трэк-лист:</P>
+<P>01. <B>...For Those Whose Time Has Come</B> (intro)<BR>02. <B>Blood and Iron</B><BR>03. <B>Invoking the Apocalypse</B><BR>04. <B>Nightmare of Violence</B><BR>05. <B>They Will Arise</B><BR>06. <B>Forced Selfmutilation</B><BR>07. <B>Sacrifical Slaughter</B><BR>08. <B>Hell on the Eastern Front</B><BR>09. <B>Monolith of the Dead</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

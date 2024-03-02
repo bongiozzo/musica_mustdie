@@ -17,6 +17,22 @@ Hollow Craving promo CD
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.06.2004 news Official Site of SoulRelic is open
+
+<DIV>
+<DIV><IMG height=280 alt="" hspace=0 src="/images/news/2004.06/6635.jpg" width=350 align="left" border=5>The official website of the new Goth-flavoured melodic rock band <B>SoulRelic</B> is open!</DIV>
+<DIV>In <B>SoulRelic</B> play band members of the former <B>Eternal Tears of Sorrow</B>, of <B>SnakeGod</B> and of <B>Reflexion</B>. <B>SoulRelic</B> has recorded&nbsp;a first&nbsp;promo, containing three songs and the video "<B>Hollow Craving</B>."&nbsp;Co-starring in the video&nbsp;is <B>Sabina</B>, a popular Finnish sexstar. Samples of the songs and the video can be downloaded from the website <A href="http://www.soulrelicband.com/"><U>www.soulrelicband.com</U></A> </DIV></DIV>
+Автор: Vit Belov
+
+### 21.07.2004 reviews Трепещите, херки!
+
+<P><B>Похоже, новая надежда финской поп-готики. Химочки нервно теребят подолы юбчонок и томно постанывают в ожидании. Antza Talala– гитара («Fleshtone», «Eternal Tears Of Sorrow»), Tommy Suomala– вокал («Bleak Crowd»), Jay Holli– клавиши («Snake God», «Technical Justice», «LeeWings»), Raymond Pohjola– ударные («Reflexion») и Pecu Talala– бас. Вот они – будущие герои. Морды у всех симпатичные. Играют здорово. Басист и гитарист просто очень хороши. Вокалист поет чистым томным голосом. Девушка на бэк-вокале. Все три песни – хиты. Аранжировки отличные. Масса предпосылок для того, чтоб потеснить «вилливалу» на вершине пьедестала романтического поп метала. </B></P>
+<P><B>Ничего оригинального, зато как грамотно и душевно! Успешного им контракта и больших денег.</B></P>
+Автор: Дофф
+
+
 ## Обсуждения
 
 

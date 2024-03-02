@@ -156,6 +156,74 @@ Alessandro "Bix" Bissa - Drums
 * C группой "Labyrinth" Fabio Lione
 * C группой "Athena" Fabio Lione
 
+## Публикации
+
+### 22.02.2002 reviews О, боже, пошли мне ангела
+
+<p>О, боже, пошли мне ангела... Это уже второй альбом итальянского суперпроекта двух известных музыкантов Olaf Thorsen (LABYRINTH) и Fabio Lione (RHAPSODY, ATHENA). Трудно сказать, лучше ли он дебюта двух-трехлетней давности или нет. В чем-то он лучше, но по некоторым параметрам уступает своему предшественнику. В любом случае, материал альбома - явно не то, что можно было ожидать от этого тандема. Несмотря на профессионализм и технические способности музыкантов, тем не менее, качество самой записи немного не соответствует уровню команд, выходцами из которых являются эти одаренные музыканты. Иногда, складывается впечатление, что это какое-то демо музыкантов. Не знаю в чем причина, может материал был записан в слишком поспешных условиях или финансовые недостатки не позволили сделать более лучшую запись. Хотя, может быть, это уже излишняя придирчивость. Но речь, не об этом. Сам музыкальный материал представляет собой обычный (местами, типично итальянский) melodic heavy-power, отчасти прогрессивный, с богатым клавишным рядом, применением женского бэк-вокала в некоторых песнях, несколькими компьютерными вставками, интересными гитарными соло и вокальными партиями. Но, в общем, музыка VISION DIVINE довольно стандартна, не особо разнообразна и особого впечатления не производит. Не захватывает, так сказать. Ну прослушал альбом и прослушал. Хороший крепкий альбом. Но никаких особых впечатлений он не производит: ни восхищения, ни негодования. Альбом, конечно же, выделяется из общего потока power metal продукции, но не настолько, чтобы причислять группу к высшей лиге power metal. Концовка альбома - оригинальный кавер известного хита от A-HA "Take On Me".</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 24.12.2003 news Новый альбом VISION DIVINE
+
+Итальянская melodic&nbsp;power metal формация <B>VISION DIVINE</B> подписала договор с итальянским лейблом <B>Scarlet Records</B>, где в апреле 2004 года выйдет третий альбом группы "<B>Stream Of Consciousness</B>". В составе группы новый вокалист <B>Michelle Luppi</B>, заменивший <B>Fabio Lione (RHAPSODY).</B> Это будет концептуальная история на целый час из четырнадцати частей неразрывных друг с другом. Трэк-лист включает в себя следующие вещи:</P>
+<P>Chapter I: <B>Stream of Unconsciousness</B><BR>Chapter II: <B>Secret of Life</B><BR>Chapter III: <B>Colours Of My World</B><BR>Chapter IV: <B>In The Light</B><BR>Chapter V: <B>The Fallen Feather</B><BR>Chapter VI: <B>La Vita Fugge</B><BR>Chapter VII: <B>Versions Of The Same</B><BR>Chapter VIII: <B>Through The Eyes Of God</B><BR>Chapter IX: <B>Shades</B><BR>Chapter X: <B>We Are, We Are Not</B><BR>Chapter XI: <B>Fool's Garden</B><BR>Chapter XII: <B>The Fall Of Reason</B><BR>Chapter XIII: <B>Out Of The Maze</B><BR>Chapter XIV: <B>Identities... </B>
+Автор: Dimas
+
+### 09.01.2005 news VISION DIVINE выпустят DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В апреле 2005 года на <STRONG>Scarlet</STRONG> увидит свет официальный DVD <STRONG>VISION DIVINE</STRONG>. На него войдут выступление группы во время последнего тура, нереализованный материал, а также обещаются сюрпризы.</FONT></P>
+Автор: Vit Belov
+
+### 20.06.2005 news Новый альбом VISION DIVINE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=188 alt="" hspace=0 src="/images/news_rus/2005.06/8814.jpg" width=250 align=left border=5>Новый альбом <STRONG>VISION DIVINE "The Perfect Machine"</STRONG> будет записываться с продюсером <STRONG>Timo Tolkki</STRONG> (<STRONG>STRATOVARIUS</STRONG>). Альбом увидит свет в октябре на <STRONG>Scarlet</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 29.04.2008 news VISION DIVINE уволили вокалиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Michelle Luppi</STRONG> больше не является вокалистом<STRONG> VISION DIVINE</STRONG>. Новый певец будет назван 1 мая.</FONT></P>
+Автор: Vit Belov
+
+### 29.05.2008 news Fabio Lione вернулся в VISION DIVINE
+
+<P>Вокалист <STRONG>RHAPSODY OF FIRE Fabio Lione</STRONG> вернулся в <STRONG>VISION DIVINE</STRONG>. Он уже работал с группой на первых трёх альбомах. <STRONG>Olaf Thorsen</STRONG>, лидер коллектива, сообщает, что <STRONG>Fabio</STRONG> стал постоянным участником <STRONG>VD</STRONG> и будет работать в группе на общих основаниях, включающих сочинение материала и работу на сцене.</P>
+Автор: Vit Belov
+
+### 28.11.2008 news VISION DIVINE на Frontiers
+
+<P><STRONG><IMG height=265 alt="" hspace=0 src="/images/news_rus/2008.11/13077.jpg" width=265 align=right border=5>VISION DIVINE</STRONG> заключии мультиальбомную сделку с <STRONG>Frontiers</STRONG>. Новый альбом группы <STRONG>"9 Degrees West of the Moon"</STRONG>&nbsp;выйдет 23 января. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Letter To My Child Never Born</B><BR itxtvisited="1">02. <B itxtvisited="1">Violet Loneliness</B><BR itxtvisited="1">03. <B itxtvisited="1">Fading Shadow</B><BR itxtvisited="1">04. <B itxtvisited="1">Angels In Disguise</B><BR itxtvisited="1">05. <B itxtvisited="1">The Killing Speed of Time</B><BR itxtvisited="1">06. <B itxtvisited="1">The Streets Of Laudomia</B><BR itxtvisited="1">07. <B itxtvisited="1">Fly</B><BR itxtvisited="1">08. <B itxtvisited="1">Out In Open Space</B><BR itxtvisited="1">09. <B itxtvisited="1">9 Degrees West of The Moon</B><BR itxtvisited="1">10. <B itxtvisited="1">A Touch Of Evil</B><BR itxtvisited="1">11. <B itxtvisited="1">Fading Shadow</B> (demo version - bonus track)</P>
+<P>Напомним, что в группу вернулся вокалист <STRONG>RHAPSODY OF FIRE Fabio Lione</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.03.2009 reviews Fabio Lione вернулся и поможет
+
+<P>Группа VISION DIVINE была образована, как сольный проект гитариста LABYRINTH Olaf Thorsen. На первых двух альбомах пел вокалист RHAPSODY Fabio Lione. Потом он ушёл, но группа превратилась в регулярный коллектив. К сожалению, популярность и качество альбомов авторства Olaf Thorsen стали падать. Ни VISION DIVINE, ни LABYRINTH не снискали особой славы в последние годы. Тем временем и у RHAPSODY дела приостановились. На новом альбоме Fabio Lione вернулся в VISION DIVINE, и это главная новость от этой группы за всю её историю.</P>
+<P>Особенных слов сказать об этой пластинке у меня не получится. Мягкий, интеллигентный heavy-metal с приятными мелодиями и качественным исполнением. Есть несколько вещей, которые запоминаются, но ураганных хитов и цепких рефренов я не заметил. Вероятно, они здесь и не требуются. Альбом слушается очень легко и оставляет приятное впечатление, он должен понравиться и любителям мелодичного hard-rock. Есть несколько агрессивных мест, но их звучание старается не акцентировать внимание на своём металлическом происхождении. Отмечу, исполнение господина Lione. Некоторым, в том числе и мне, его манера петь в RHAPSODY казалась излишне надрывной. Я думал, что это его единственно возможное звучание. Оказалось, нет. В VISION DIVINE он совсем не форсирует вокал, но отлично вписывается в общую пасторальную картину этого альбома.</P>
+<P>Хороший melodic heavy-metal, который запомнится, прежде всего, звёздным составом исполнителей. Приятный, но не гениальный альбом.</P>
+Автор: Vit Belov
+
+### 10.06.2012 news VISION DIVINE в сентябре
+
+<P><IMG height=304 alt="" hspace=0 src="/images/news_rus/2012.06/24163.jpg" width=475 align=right border=0>Итальянцы<STRONG> VISION DIVINE</STRONG> заключили контракт с немецким лэйблом <STRONG>earMUSIC, </STRONG>на котором в сентябре выпустят новый альбом <STRONG>"Destination Set To Nowhere". </STRONG>На альбоме гитарист <STRONG>Olaf Thorsen</STRONG> (<B>LABYRINTH</B>) вновь будет работать с вокалистом <STRONG>Fabio Lione</STRONG> (<B>RHAPSODY OF FIRE</B>). Трек-лист:</P>
+<P>01. <B>S'io Fosse Foco</B><BR>02. <B>The Dream Maker</B><BR>03. <B>Beyond The Sun And Far Away</B><BR>04. <B>The Ark</B><BR>05. <B>Mermaids From Their Moons</B><BR>06. <B>The Lighthouse</B><BR>07. <B>Message To Home</B><BR>08. <B>The House Of The Angels</B><BR>09. <B>The Sin Is You</B><BR>10. <B>Here We Die</B><BR>11. <B>Destination Set To Nowhere</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

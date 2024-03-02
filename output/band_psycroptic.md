@@ -107,6 +107,40 @@ The album was recorded at Joe Haley's home studio.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.03.2006 news Определились участники фестиваля Neurotic Deathfest
+
+<P>Определились участники фестиваля <B>Neurotic Deathfest</B>, который пройдет 13 мая в голландском городе Эйндховен. Ранее фестиваль был известен под названием <B>Rotterdam Deathfest</B>, но в этом году его было решено провести в другом городе. На двух сценах выступят 15 дэт-металических команд, а посетители смогут также облегчить свои кошельки на большом "металическом рынке". Вот кто будет развлекать зрителей: шведы <B>ANATA</B>, британцы <B>GOREROTTED</B> и <B>SARPANITUM</B>, австрийцы <B>PSYCROPTIC</B>, испанцы <B>AVULSED</B>, голландцы <B>DISAVOWED</B>, <B>ARSEBREED</B> и&nbsp;<B>PROSTITUTE DISFIGUREMENT</B>, американцы <B>INSIDIOUS DECREPANCY</B>, японцы <B>INFECTED MALIGNITY</B>, словаки <B>SANATORIUM</B>, чехи <B>GODLESS TRUTH</B>, итальянцы <B>VOMIT THE SOUL</B>,&nbsp;бразильцы <B>MENTAL HORROR</B> и бельгийцы <B>EMETH</B>.</P>
+Автор: Ixtiandr
+
+### 13.11.2008 reviews Nuclear Blast повернулся уже вполоборота к любителям techno-death
+
+<P>Релиз нового альбома ARSIS на Nuclear Blast, как мне показалось тогда, носил единичный характер. Мы все уже привыкли, что молодым и не очень известным группам на этом немецком лэйбле делать нечего, если только они не играют на стыке modern death-metal/metalcore. Новый альбом группы с Тасмании PSYCROPTIC, конечно же, ничего не доказывает. Мало ли совпадений. Но приятно, чёрт возьми, если вдруг популярная контора полюбила подобную нестандартную музыку в жанре death-metal. Будем ждать ещё качественных релизов за пределами популярных нынче стилей.</P>
+<P>PSYCROPTIC уже не новички в жанре брутальной аннигиляции наших ушей. Обозреваемый “Ob(Servant)” уже четвёртый альбом коллектива. Мощно реализованный techno death-metal с интересными ходами, двумя типами вокалов и разнообразным «сонграйтингом». Я мог бы сказать, что давненько такого мощного материала не слушал, но это было бы не очень объективное утверждение, так как, волею судеб, в мой проигрыватель попадают в основном лицензионные пластинки, но люди, увлечённые данным стилем серьёзно, прослушивают достаточное количество подобных альбомов на «фирме». В любом случае послушать PSYCROPTIC любопытно.</P>
+<P>Пластинка довольно чётко выполняет все условия жанра, в котором она записана. Мощные брутальные риффы, смены темпа, ломанная структура композиции, неожиданные повороты, эксперименты со звуком. Хорошо, очень хорошо.</P>
+Автор: Vit Belov
+
+### 09.11.2009 news PSYCROPTIC покорили Австрию
+
+<P>7 ноября была вручена премия Австрийской ассоциации heavy-metal. В шести номинациях победили<STRONG> PSYCROPTIC</STRONG>. Они получили приз за лучшие мерч, обложку альбома, группу, видео, иностранную группу и концертную группу. </P>
+Автор: Vit Belov
+
+### 08.12.2011 news Обложка нового PSYCROPTIC
+
+<P><IMG height=447 alt="" hspace=0 src="/images/news_rus/2011.12/22276.jpg" width=450 align=right border=0>Новый альбом <STRONG>PSYCROPTIC "The Inherited Repression" </STRONG>выйдет 10 февраля на <STRONG>Nuclear Blast</STRONG>. Трек-лист:</P>
+<P>01. <B>Carriers Of The Plague</B><BR>02. <B>Forward To Submission</B> <BR>03. <B>Euphorinasia</B> <BR>04. <B>The Throne Of Kings</B> <BR>05. <B>Unmasking The Traitors</B> <BR>06. <B>Become The Cult</B> <BR>07. <B>From Scribe To Ashes</B> <BR>08. <B>Deprivation</B> <BR>09. <B>The Sleepers Have Awoken</B></P>
+Автор: Vit Belov
+
+### 06.01.2012 news Новый трейлер PSYCROPTIC
+
+<P>Новый трейлер к новому альбому австралийских технарей <STRONG>PSYCROPTIC "The Inherited Repression"</STRONG> можно посмотреть ниже. Пластинка выйдет на <STRONG>Nuclear Blast</STRONG> 10 февраля. </P>
+<P>
+<CENTER><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/GCmJ-H5mJIk?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/GCmJ-H5mJIk?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Crator, 2016, The Ones Who Create The Ones Who Destroy

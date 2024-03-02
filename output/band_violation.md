@@ -12,6 +12,21 @@ Swedish Death Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2000 reviews Все здорово на этом альбоме
+
+<p>Все здорово на этом альбоме. Начиная с оформления этого диска, заканчивая его содержимым. очень пробила меня эта музычка. Второй, кстати, альбом уже у группы. Сногсшибательный и душещипательный death-metal шведского розлива в духе Dismember и Gates Of Ishtar. Быстро, мелодично, с прекраснейшим звуком (запись происходила в новой студии Peter Tagtgren'a - Abyss II, под его же руководством). Альбом захватывает своими бешенством и ритмом с первых нот, пролетая на одном дыхании. Время проходит незаметно, но впечатлений масса. Нет, не скоро настанет конец такой музыке. Да не выдохнется шведский death-metal!</p>
+
+Автор: Dimas
+
+### 22.07.2000 reviews All is cool on this album
+
+<p>All is cool on this album. Since design of this disk, finishing its kept in repair. This very much has punched me music. Second, by the way, album already for group. Amazing and souldeeper death-metal of the Swedish spreading capacity in spirit Dismember and Gates Of Ishtar. Fast, is melodious, the record descended to a most perfect note (in new studio Peter Tagtgren'a - Abyss II, under his management). The album catches by the rabies and rhythm from the maiden notes, flying by on one breathing. The time passes weight is inconspicuous, but impressions. No, is not coming the end to such music. Yes will not exhaust Swedish death-metal!</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

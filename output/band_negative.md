@@ -94,6 +94,117 @@ Disc 1 total running time: 3h 29min
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.04.2004 news Вокалист SENTENCED споёт на новом альбоме от NEGATIVE
+
+Вокалист <B>SENTENCED</B> <B>Ville Laihiala</B>&nbsp; записал партии гостевого вокала для нового альбома <B>NEGATIVE</B>, который выйдет осенью этого года.
+Автор: Vit Belov
+
+### 17.11.2004 news 
+
+NEGATIVE<SPAN lang=RU> "</SPAN>SWEET & DECEITFULL<SPAN lang=RU>"</SPAN> 
+<P align=center><B><SPAN lang=RU>Долгожданный второй альбом новых финских героев,</SPAN></B></P>
+<P align=center><B><SPAN lang=RU>Концерты в Москве и Санкт-Петербурге в поддержку нового альбома</SPAN></B></P>
+<P align=center><B></B></P>
+<P><B></B></P>
+<P><B><SPAN lang=RU>Долгожданный второй альбом </SPAN>Negative<SPAN lang=RU>. Война за любовь продолжается: "Сладкий и гадкий" - достойный преемник дебютного </SPAN>WarOfLove<SPAN lang=RU>. Яркие и красивые мальчики, песни про несчастную и странную любовь тинейджеров, юношеский и страдальческий голос, грязноватый мелодичный глэм. Включает хит-сингл </SPAN>FrozenToLoseItAll<SPAN lang=RU>. Песня </SPAN>UntilYou<SPAN lang=RU>'</SPAN>reMine<SPAN lang=RU> записана вместе с вокалистом </SPAN>Sentenced<SPAN lang=RU> - Вилле Лайхиалой (</SPAN>VilleLaihiala<SPAN lang=RU>).</SPAN></B></P>
+<P><B></B></P>
+<P align=center><B><SPAN lang=RU>Концерты </SPAN>NEGATIVE<SPAN lang=RU> в России -</SPAN></B></P><SPAN lang=RU style="COLOR: white">Москва - 16 декабря, 2004, клуб ТОЧКА</SPAN> 
+<P align=center><B><SPAN lang=RU>Санкт-Петербург - 17 декабря, 2004, клуб ПОРТ</SPAN></B></P>
+<P><B></B></P>
+<P><B><U><SPAN lang=RU>История </SPAN></U><U>Negative</U><U></U></B></P>
+<P><SPAN lang=RU>Музыканты молодой финской группы </SPAN>Negative<SPAN lang=RU> уверены: чтобы группа имела успех, она должна не только хорошо играть и красиво петь, но еще и привлекательно выглядеть. </SPAN>«I like to look pretty», - <SPAN lang=RU>часто</SPAN><SPAN lang=RU>повторяет</SPAN><SPAN lang=RU>солист</SPAN> Negative <SPAN lang=RU>Йонне</SPAN><SPAN lang=RU>Аарон</SPAN> (Jonne Aaron). <SPAN lang=RU>Еще бы. В свои юные годы пятеро тинейджеров из Тампере уже весьма ловко обращались с подводкой для глаз, тушью для ресниц и тенями для век. У каждого из них – в группе на данный момент, кроме Йонне, играют еще гитаристы Ларри Лав (</SPAN>LarryLove<SPAN lang=RU>) и Кристус (</SPAN>Christus<SPAN lang=RU>), басист Антти Анатомии (</SPAN>AnttiAnatomi<SPAN lang=RU>), драммер Джей Слэммер (</SPAN>JaySlammer<SPAN lang=RU>) и клавишник Снэк (Snack) – в шкафах много яркой и блестящей одежды, разноцветных обтягивающих штанов и ремней с большими пряжками. </SPAN>Negative<SPAN lang=RU> уже придумали название своего стиля музыки – </SPAN>emotionalrock<SPAN lang=RU>’</SPAN>n<SPAN lang=RU>’</SPAN>roll<SPAN lang=RU>.</SPAN></P>
+<P><SPAN lang=RU>Началось все в 1997 году. Тогда Йонне Аарон увидел Аксля Роуза (</SPAN>AxlRose<SPAN lang=RU> / </SPAN>Guns<SPAN lang=RU>’</SPAN>N<SPAN lang=RU>’</SPAN>Roses<SPAN lang=RU>), захотел стать таким же и для осуществления этой мечты решил собрать группу. Первым, кто пришел в группу, стал Джей Слэммер, который учился в той же школе, что и Йонне. Первые шаги грандж-группа </SPAN>Negative<SPAN lang=RU> делала под каверы песен </SPAN>Nirvana<SPAN lang=RU>. Однако нашлись люди, которые дали понять, что на каверах далеко не уйдешь, и в 14-летнем возрасте Йонне начал пытаться писать свои собственные песни.</SPAN></P>
+<P><SPAN lang=RU>Время шло, музыка </SPAN>Negative<SPAN lang=RU> менялась. Группа дала сильный крен в сторону, казалось, давно забытого глэм-рока – с яркими одеждами и зажигательными мелодиями рок-н-ролла. Первый концерт состоялся в Вальпургиеву ночь в 1998 году. Группа начала выступать в актовых залах местных школ, чуть позже стали поступать приглашения из других городов Финляндии. Тем временем музыканты </SPAN>Negative<SPAN lang=RU> не оставляли надежду записать альбом. Однако демо-записи (их было как минимум три) не устраивали ни одну рекорд-компанию. Все они отказывали группе, давая понять, что у </SPAN>Negative<SPAN lang=RU> нет будущего.</SPAN></P>
+<P><SPAN lang=RU>В 2001 году, сдавшись, из группы ушел гитарист. На его место как раз и взяли талантливого Ларри Лава, который тут же вписался в имидж группы. А следом за ним летом 2002 года пришел очаровательный сэр Кристус. Группа в обновленном составе и с новыми силами взялась репетировать новые песни для своего первого альбома, судьба которого так и оставалась неясной. Однако время </SPAN>Negative<SPAN lang=RU>, наконец, пришло.</SPAN></P>
+<P><SPAN lang=RU>В конце 2002 года во время записи очередной демо-пластинки в </SPAN>CosmicStidio<SPAN lang=RU> на </SPAN>Negative<SPAN lang=RU> обратил внимание владелец компании </SPAN>GBfamRecords<SPAN lang=RU>. Он сразу же пригласил ребят к себе.</SPAN></P>
+<P><SPAN lang=RU>В январе 2003 года был запущен в ротацию сингл </SPAN>TheMomentofOurLove<SPAN lang=RU>, который довольно быстро взлетел на вершину финского хит-парада, а уже через несколько месяцев получил в Финляндии золотой статус, что случается не так уж часто.</SPAN></P>
+<P><SPAN lang=RU>Рекорд-компания не ослабевала наступление на публику, и в марте 2003 года на прилавках финских магазинов появился столь долгожданный дебютный альбом </SPAN>Negative<SPAN lang=RU> – </SPAN>WarofLove<SPAN lang=RU>. Название в полной мере соответствовало содержанию. Милым дополнением стала обложка диска, на которой изображена одна из лучших фотографий группы. Что касается содержимого, то все песни - о любви, красивые и интересные, резвые, бойкие, печальные и депрессивные. Бонусом к пластинке стал видео-файл с клипом </SPAN>TheMomentofOurLove<SPAN lang=RU>.</SPAN></P>
+<P><SPAN lang=RU>Началась тяжелая работа с увеличившейся в сотни раз аудиторией. Едва ли можно вспомнить газету, журнал, радио- или телепередачу, где </SPAN>Negative<SPAN lang=RU> не дали бы интервью и не засветились на обложках и в заставках. Интервью у Йонне и Ларри взяли такие именитые и серьезные издания, как </SPAN>Soundi<SPAN lang=RU>, </SPAN>Imperiumi<SPAN lang=RU>, </SPAN>Rockunited<SPAN lang=RU>, </SPAN>Mesta<SPAN lang=RU>. Не забывают о них и более популярные журналы - </SPAN>Mix<SPAN lang=RU> и </SPAN>Suosikki<SPAN lang=RU>. Несмолкаемый шум вокруг группы происходил на фоне совершенно невероятного концертного тура по родной Финляндии. Случались дни, когда </SPAN>Negative<SPAN lang=RU> давал за день по два концерта – например, один в какой-нибудь школе в 17.00, а второй – в соседнем городе в ночном клубе в 23.00. Таким образом, </SPAN>Negative<SPAN lang=RU> закрепили за собой славу не только группы, в которой красивые мальчики поют красивые рок-н-ролльные песни, но и группы, котораялюбит и умеет выступать живьем.</SPAN></P>
+<P><SPAN lang=RU>В 2004 году </SPAN>Negative<SPAN lang=RU> выпустили еще один сингл </SPAN>FrozentoLoseItAll<SPAN lang=RU>, песня попала в финские чарты и моментально стала номером один. </SPAN>Negative<SPAN lang=RU> - на пике популярности. В сентябре 2004 года вышел их второй альбом </SPAN>Sweet<SPAN lang=RU> & </SPAN>Deceitful<SPAN lang=RU> ("Сладкий и гадкий"). Песня Until You're Mine записана вместе с вокалистом Sentenced - Вилле Лайхиалой (Ville Laihiala).</SPAN><B></B></P>
+<P><SPAN lang=RU>В декабре </SPAN>Negative<SPAN lang=RU> представит новый альбом в России. 16 декабря в Москве в клубе «Точка», и 17 декабря в клубе «Порт» в Санкт-Петербурге.</SPAN></P>
+<P><SPAN lang=RU>Концерт в Москве открывает группа </SPAN>Repentance<SPAN lang=RU> ( </SPAN><SPAN><A href="http://www.repentance.ru/"><U><SPAN style="COLOR: white">www</SPAN><SPAN lang=RU style="COLOR: white">.</SPAN><SPAN style="COLOR: white">repentance</SPAN><SPAN lang=RU style="COLOR: white">.</SPAN><SPAN style="COLOR: white">ru</SPAN></U></A></SPAN><SPAN lang=RU>).</SPAN></P>
+<P><SPAN lang=RU>Концерт в Санкт-Петербурге открывает группа </SPAN>Lady<SPAN lang=RU>`</SPAN>sMan<SPAN lang=RU> (<SPAN><SPAN style="COLOR: white"><A href="http://www.ladysman.ru/"><SPAN style="COLOR: white"><U>www.ladysman.ru</U></SPAN></A><U>).</U></SPAN></SPAN></SPAN></P>
+<P><SPAN lang=RU>В подготовке пресс-релиза использована информация сайта <A href="http://www.negative.crimsondawn.ru/"><SPAN style="COLOR: white"><U>http://www.negative.crimsondawn.ru/</U></SPAN></A>.</SPAN></P>
+<P><B><SPAN lang=RU>Новый альбом </SPAN>NEGATIVE<SPAN lang=RU> "</SPAN>SWEET<SPAN lang=RU> & </SPAN>DECEITFULL<SPAN lang=RU>" (а также дебютный альбом </SPAN>NEGATIVE<SPAN lang=RU> “</SPAN>WAROFLOVE<SPAN lang=RU>”) Вы уже можете заказать в торговом отделе нашего Департамента. Ждём Ваших предзаказов.</SPAN></B></P>
+<P><B><SPAN lang=RU>С уважением:</SPAN></B></P>
+<P><B><SPAN lang=RU>Былкин Максим</SPAN></B></P>
+<P><B>SOYUZMUSIC</B></P>
+<P><B><SPAN lang=RU>Департамента по иностранному репертуару Концерна "Группа СОЮЗ":</SPAN></B></P>
+<P><B><SPAN lang=RU>Телефон/факс (095) 267-6910,</SPAN></B></P><B>e<SPAN lang=RU>-</SPAN>mail<SPAN lang=RU>: </SPAN>sales<SPAN lang=RU>@</SPAN>cd<SPAN lang=RU>.</SPAN>soyuz<SPAN lang=RU>.</SPAN>ru<SPAN lang=RU>, </SPAN>ivanov<SPAN lang=RU>@</SPAN>audio<SPAN lang=RU>-</SPAN>label<SPAN lang=RU>.</SPAN>soyuz<SPAN lang=RU>.</SPAN>ru</B>
+Автор: Ixtiandr
+
+### 12.01.2005 reviews Страдающим от несчастной любви посвящается
+
+<SPAN lang=RU><SPAN style="COLOR: #ffffff">
+<P><SPAN lang=RU>Вы страдаете от несчастной любви? И не хватает романтики? Если в вашей жизни мало позитива, попробуйте средство </SPAN>Negative<SPAN lang=RU> – решение всех ваших проблем. Если вы девушка и любите акты типа земляков </SPAN>Negative, финнов HIM,<SPAN lang=RU> и мелодичные глэмовые дела, если вам по душе худенькие и немного слащавые мальчики, поющие о любви и прочих глупостях (ах ах!), то вам сия пластинка наверняка понравится. Если вы молодой человек, таккую музыку не любите, но ваша подружка без ума от </SPAN>love metal,<SPAN lang=RU> то вам опять-таки повезло: купите ей этот диск, и все ваши ссоры тут же сами собой прекратятся, и если представится возможность послушать этот альбом с ней в интимной обстановке, то, возможно, сбудутся ваши даже самые смелые фантазии. Ну а если ты, скажем, рокер со стажем, и твоя сорокалетняя подруга сможет исполнить на балалайке чикагский блюз намного эротичнее и проникновеннее, чем все химы и негативы вместе взятые, то... Знаешь, не всегда эксперименты хороши. Тебя могут просто неверно понять, дружище...</SPAN></P>
+<P><SPAN lang=RU>Да, пара деталей. Это 2-ой альбома </SPAN>Negative после прошлогоднего “War Of Love”; ребят теперь шестеро, добавился клавишник; в записи участвовал солист Sentenced Ville Laihiala<SPAN lang=RU> (хотя конкретно об этом в буклете ничего не говорится; вообще, какое-то странное в булете расположение текстов, как будто странички перепутали); есть кавер на вещицу </SPAN>‘My My / Hey Hey (Out Of The Blue)’<SPAN lang=RU> Нила Янга. Ну вот теперь вроде всё.</SPAN></P>
+<P><SPAN lang=RU>Альбом предоставлен концерном "Группа СОЮЗ"</SPAN></P></SPAN></SPAN>
+Автор: Ixtiandr
+
+### 14.12.2005 news И NEGATIVE в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финны <STRONG>NEGATIVE</STRONG> тоже вошли в студию, где работают над пока не названным альбомом. Выход его назначен на начало следующего года.</FONT></P>
+Автор: Vit Belov
+
+### 14.08.2006 articles NEGATIVE в России, пресс-релиз
+
+<P>20 октября- Санкт-Петербург, клуб «Порт»<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 21 октября- Москва, клуб «Точка»</P>
+<P>Три составляющие успеха: чарующая музыка, завораживающий вокал, неповторимая внешность! Красавчики Negative понимают это как никто другой! Яркая блестящая одежда - sex, glamour, rock-n-roll- они перед вами! Харизматичный вокалист Йонне Аарон (Jonne Aaron)-белокурый ангел с красивым незабываемым голосом, гитаристы Ларри Лав (Larry Love)- Slash нового поколения - Кристус (Christus)- очаровательный развратник, басист Антти Анатоми (Antti Anatomi) -24 часа энергии и драйва, драммер Джей Сламмер (Jay Slammer) –пожалуй, лучший в своём деле, Snack- великолепный клавишник!<BR>1997 год-точка отсчёта.&nbsp; Йонне Аарон, увидев Аксля Роуза из Guns'N'Roses, захотел стать таким же. А как известно - мечты сбываются! Йонне собирает группу. Первые шаги грандж-группа Negative делала под каверы песен Nirvana. В 14-летнем возрасте Йонне начал пытаться писать свои собственные песни. <BR>Всё течёт, всё меняется: музка Negative обретала новые формы. Первый концерт состоялся в Вальпургиеву ночь в 1998 году. Но успех и удача, казалось, забыли дорогу в блестящий мир Negative.<BR>&nbsp;Звездный час группы настал в 2002 году:&nbsp; ребята подписали контракт с GBFam Records. <BR>Альбом War Of Love увидел свет в марте 2003 года. В альбом вошло 11 искренних, эмоциональных и вместе с тем зажигательных песен о любви. Сингл The Moment of Our Love получил в Финляндии золото. <BR>Началась тяжелая работа: за выходом альбома последовал тур, в течение которого Negative выступили практически во всех крупных (и не очень) городах Финляндии. Концерт за концертом, завоеванные сердца широкой аудитории, растущая армия поклонников!&nbsp; <BR>В первый день осени 2004 года был выпущен долгожданный второй альбом группы – Sweet And Deceitful, звучащий гораздо более «взросло» и зрело, но все также искренне, как его предшественник. После релиза альбома Negative снова отправились в тур. Группа отыграла два великолепных концерта&nbsp; в России, представив фееричные, чарующие, трогательные шоу в Москве и Санкт-Петербурге. </P>
+<P>Этой осенью Negative готовы представить своё новое творение- альбом “ANORECTIC”. И уже в октябре группа снова посетит Россию, чтобы поразить своих поклонников яркостью завораживающего, усыпанного блёстками шоу!</P>
+<P>&nbsp;</P>
+<P>Официальный сайт:<BR><A href="http://www.gbfam.com/negative/">http://www.gbfam.com/negative/</A></P>
+<P>Телефон для справок:<BR>8-495-76-77-037</P>
+Автор: Vit Belov
+
+### 16.10.2006 news NEGATIVE в России
+
+<P><STRONG><SPAN class=h1><STRONG>
+<CENTER>NEGATIVE в России</STRONG></SPAN></STRONG></CENTER>
+<P></P>
+<P>&nbsp;</P>
+<P>
+<CENTER>20 октября- Санкт-Петербург, клуб «Порт»<BR>21 октября- Москва, клуб «Точка» </CENTER>
+<CENTER>&nbsp;</CENTER>
+Автор: Vit Belov
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 10.01.2008 news NEGATIVE выпускают DVD
+
+<P><STRONG>NEGATIVE</STRONG> выпускают DVD <STRONG>"In the Eye of the Hurricane" </STRONG>26 января на <STRONG>Hype Records Oy</STRONG>. Трэк-лист:</P>
+<P><IMG height=533 alt="" hspace=0 src="/images/news_rus/2008.01/12125.jpg" width=390 align=right border=5>Disc 1:<BR>Live At Pakkahuone, Tampere, Finland, December 8, 2006:<BR>01. <B>Glory of the Shame</B><BR>02. <B>My My Hey Hey (Out of the Blue)</B><BR>03. <B>Last Hero</B><BR>04. <B>Reflections</B><BR>05. <B>Sinners' Night</B> / <B>Misty Morning</B><BR>06. <B>Naive</B><BR>07. <B>Embracing Past</B><BR>08. <B>Frozen to Love It All</B><BR>09. <B>Lost Soul</B> (instrumental)<BR>10. <B>One Last Shot</B><BR>11. <B>Planet of the Sun</B><BR>12. <B>L.A Freeding Fire</B><BR>13. <B>The Moment of Our Love</B><BR>14. <B>In Memorian (Immortal Song)</B><BR>15. <B>Still Alive</B> / <B>A Song for the Broken Hearted</B><BR>16. <B>Until Your're Mine</B><BR>17. <B>In My Heaven</B><BR><BR>Disc 2:<BR>Music Videos:<BR>* <B>The Moment of Our Love</B><BR>* <B>Frozen to Lose It All</B> + Making Of<BR>* <B>In My Heaven</B> + Making of<BR>* <B>Planet of the Sun</B> + Making of<BR>* <B>Sinners' Night</B> / Misty Morning</B><BR>Extras:<BR>* Interview 2007 18min<BR>* Around The World Documentary 1h 44min<BR>* Fan Video Live at Konzerthaus Schuur, Lucerne, Switzerland, November 16, 2006<BR>* Fan Photos<BR>* Photo Gallery<BR>+ Hidden Links</P>
+Автор: Vit Belov
+
+### 31.03.2008 news Новый альбом NEGATIVE
+
+<P>"Любимцы девочек" финны<STRONG> NEGATIVE</STRONG> выпустят свой новый альбом <STRONG>"Karma Killer" </STRONG>7 мая в Финляндии. Даты релиза на остальных территориях уточняются.</P>
+Автор: Vit Belov
+
+### 09.09.2009 news NEGATIVE записывают альбом
+
+<P><STRONG>NEGATIVE</STRONG> находятся в Лос Анджелесе, где с продюсерами <STRONG>Warren Riker</STRONG> (<B>MICHAEL JACKSON</B>, <B>KORN</B>, <B>SANTANA</B> etc.)&nbsp;и <B>Jimmy Westerlund</B> (music, TV and film productions) записывают новый альбом, который выйдет в начале следующего года на <STRONG>Warner Music</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.03.2010 news Новый альбом NEGATIVE
+
+<P>Финны <STRONG>NEGATIVE</STRONG> готовят к выпуску свой новый альбом <STRONG>"Neon"</STRONG>. Пластинка была записана в студии <STRONG>Broken Wave</STRONG>, Лос Анджелес вместе с продюсером <STRONG>Jimmy Westerlund </STRONG>и инженером <STRONG>Warren Riker</STRONG>. Адьбом выйдет 2 июня на <STRONG>Warner/JVC</STRONG>. Трэк-лист:</P>
+<P>01. <B>No One Can Save Me Tonight</B> <BR>02. <B>End Of The Line</B> <BR>03. <B>Love That I Lost</B> <BR>04. <B>Blood On Blood</B> <BR>05. <B>Believe</B> <BR>06. <B>Celestial Summer</B> <BR>07. <B>Jealous Sky</B> <BR>08. <B>Days I'm Living For</B> <BR>09. <B>Since You've Been Gone</B> <BR>10. <B>Kiss Of Hope</B> <BR>11. <B>Fucking Worthless</B> <BR>12. <B>Neon Rain</B></P>
+Автор: Vit Belov
+
+### 31.08.2011 news Новый клип NEGATIVE
+
+<P>Новый ролик финов <STRONG>NEGATIVE</STRONG> на песню <STRONG>"Believe" </STRONG>можно увидеть ниже. Песня попала на пятый альбом группы <STRONG>"Neon"</STRONG>, который вышел в прошлом июне.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/Hwt2HA2ZD_w" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

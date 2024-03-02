@@ -63,6 +63,77 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.06.2002 reviews Обещанные забытые сказки
+
+<p>Дебютный альбом канадской команды, которую откопала российская компания CD-MAXIMUM подписав с ней контракт. Благодаря этой компании, мы имеем возможность ознакомиться с этим эксклюзивным материалом. Симфонический и неоклассический power metal с женским вокалом, напоминающий одновременно STRATOVARIUS, NIGHTWISH и EDGUY. Женский вокал сильный, и отнюдь не слащавый, как можно подумать. Мелодичные риффы, двойные соло-гитары, классические охватывающие клавишные партии. Но, тем не менее, эту группу, помимо женского вокала, мало что выделяет на общем фоне подобных ей европейских команд. Да, альбом просто напичкан прекрасными мелодиями, продолжительными зажигательными соло и интересными ходами, но все это является транскрипцией, как-будто уже где-то слышанным. Такое впечатление иногда создается, что просто слушаешь чьи-то кавер-версии, но не можешь вспомнить какой именно группы и какой-именно песни. Хотя, это неизбежность, подобное можно сказать про многие группы, даже известные. Трудно что-либо новенькое придумать, а потому давайте довольствоваться и наслаждаться тем, что есть.</p>
+<p> Диск выпущен по эксклюзивной лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 30.11.2005 news FORGOTTEN TALES на Musica Production
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2005.11/9782.jpg" width=400 align=right border=5><IMG height=361 alt="" hspace=0 src="/images/news_rus/2005.11/9783.jpg" width=150 align=left border=5>MUSICA Production</STRONG> сообщает о выходе второго альбома канадской power-metal группы <STRONG>FORGOTTEN TALES "All The Sinners</STRONG>". Диск будет интересен любителям <STRONG>HELLOWEEN, GAMMA RAY</STRONG> и <STRONG>DARK MOOR</STRONG>. Вокал канадской "Жанны Д'Арк" <STRONG>Sonia Pinault</STRONG> и цепляющие мелодии. Первый альбом "<STRONG>The Promise</STRONG>" доступен в нашей стране через <STRONG>CD-Maximum</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>The hideaway</STRONG> (1:53) <BR>2. <STRONG>Lady of the forest</STRONG> (5:00) <BR>3.<STRONG> All The Sinners</STRONG> (4:02) <BR>4.<STRONG> Wind Oh Wind</STRONG> (6:09) <BR>5. <STRONG>The message</STRONG> (4:44) <BR>6. <STRONG>March for freedom</STRONG> (4:25) <BR>7. <STRONG>Three wishes</STRONG> (8:47) <BR>8.<STRONG> Fairytales</STRONG> (5:11)<BR>9. <STRONG>My soul</STRONG> (6:42) <BR>10. <STRONG>Magic fountain</STRONG> (4:28) </P>
+<P>MP3: <A href="/ru/band/forgotten_tales/11994/#samples">http://musica.mustdie.ru/ru/band/forgotten_tales/11994/#samples</A></P>
+<P>Сайт группы: <A href="http://www.forgottentales.com/">http://www.forgottentales.com</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+Автор: Vit Belov
+
+### 10.03.2006 reviews Забытые сказки о грешниках.
+
+<P>Тут такое дело… Надо бы о художественных достоинствах представленного диска поговорить, а начать хочется вовсе не с этого. </P>
+<P>Российские компании, выпускающие компакт-диски западных исполнителей, время от времени дарят нам сюрпризы. Редко, правда. Помните, как Irond выпустил никому не известную, и никем на тот момент не "подписанную" Antimatter? Но, увы, наши крупные лэйблы предпочитают штамповать лицензионную продукцию от известных и не очень западных производителей, не слишком увлекаясь поиском перспективных исполнителей, выпускающих пластинки на сверхмалых записывающих фирмах. И вот тут бы и подсуетиться отечественным лэйблам поменьше. Подхватить то, до чего не дошли руки у "мажоров". Ведь мимо них (и мимо нас) просачиваются отличные альбомы, и найти их бывает крайне тяжело. Возьмём, к примеру, дебютник Daylight Dies или четвёртый альбом хорошо известных у нас Scream Silence, их так и не выпустили в России. "Мажоры" эти позиции проигнорировали, в отличие от значительного числа отечественных меломанов, которые бы их с радостью приобрели. Таким образом, создается поле деятельности для небольших лэйблов, которые могут договариваться с музыкантами (или другими фирмами, не суть важно) о выпуске тех или иных альбомов, выпавших из виду у "мажоров". Разве плохо? </P>
+<P>Новый альбом канадцев Forgotten Tales выпущен небольшим, но уже хорошо известным лэйблом Musica Production. Группа эта у нас известна – ещё пять лет назад одну из её пластинок щедро отпиратили. Тираж, к слову, быстро рассосался, и на распродажах дисков б/у этот альбом почти не появляется, значит, хорошая была пластинка. </P>
+<P>All The Sinners – европауэр с женским вокалом, сдобренный интересными аранжировками. Слушал и ловил себя на мысли, что уши улавливают не мелодии, а именно инструментальные хитросплетения. Всякие фишечки-рюшечки. Но и с мелодиями всё в порядке, слушая "Забытые сказки о грешниках", любители европауэра не разочаруются. На Nightwish, что бы там не говорили, это совсем не похоже. И для меня это дополнительный аргумент "за". Приятный тембр голоса девушки Сони – ещё один плюсик. </P>
+<P>Крепкая пластинка, стократ превосходящая десятки стилистически схожих релизов, издающихся "мажорами". </P>
+<P>Ну, с почином, Musica Production. Так держать.</P>
+<P>Диск предоставлен Musica Production</P>
+Автор: Ruslan
+
+### 29.03.2006 reviews Power metal’лические истории от канадских грешников
+
+<P>Ну, вот и подоспел новый, второй по счету, альбом канадской группы FORGOTTEN TALES (первый вышел в 2001-м, назывался “The Promise” и был пролицензирован отечественной конторой CD-MAXIMUM). Коллектив образовался в 1999-м году, и за время своего существования музыканты успели сыграть на одной сцене с такими именитыми бандами, как EDGUY, NIGHTWISH и GAMMA RAY.<BR>Материал нового альбома “All The Sinners” – достаточно бодрый heavy-power metal европейских стандартов в духе GAMMA RAY и DARK MOOR, не без клавиш, разумеется, но зато с тяжеленными напористыми гитарами и грубоватым шершавым саундом. Очень понравилась вокалистка Соня Пино (Sonia Pineault). Она не копирует набившую оскомину гражданку Чухляндии Тарью Турунен – а то что-то всех фемин на оперу потянуло!.. - но обладает сильным низким голосом, отдаленно напоминающим двух прекрасных тевтонских метал-фрау – Доро Пеш (DORO, WARLOCK) и Ютту Вейнхольд (VELVET VIPER, ZED YAGO).</P>
+<P>Тематически альбом разделен на две части: первая – концептуальная история “Pagan Chronicles” из шести песен про всяких лесных ведьм и прочих антисоциальных элементов, и вторая – никак не связанные между собой четыре композиции (тоже, впрочем, про всякие сказки). Лучшие трэки – титульная вещь “All The Sinners” (где талант Сони раскрывается в полной мере), великолепный скоростной инструментал “The Message” (вах, какие тут гитары!!!) и заключительный “Magic Fountain”. Я, признаться, в последнее время от подобной музыки несколько отошел, но эта группа и этот альбом мне действительно показались интересными… это power metal – такой, каким он и должен быть. Рекомендую</P>
+Автор: Dr. Grandma
+
+### 05.01.2009 news FORGOTTEN TALES работают
+
+<P>Возобновили активную деятельность канадцы <STRONG>FORGOTTEN TALES</STRONG>. Они работают над третьим альбомом.</P>
+Автор: Vit Belov
+
+### 31.08.2011 news Новинки MUSICA Production
+
+<P><SPAN class=tit1>29 августа 2011 года на MUSICA Production вышло два новых релиза:</SPAN></P>
+<P><SPAN class=tit2><SPAN class=tit1><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.08/20840.jpg" width=300 align=right border=0></SPAN>MP049 GODHATER "Odium"</SPAN></P>
+<P>-black-metal; <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мрачный, злой и энергичный black-metal с элементами thrash-metal впечатлит всех любителей брутальных стилей тяжёлой музыки. Русскоязычный антихристианские тексты, убийственная бескомпромисность материала. Записана работа в тверской Craft Studio. Трек-лист:</P>
+<P>01.<STRONG> Intro</STRONG><BR>02. <STRONG>Последний Рассвет (На Кол!)<BR></STRONG>03. <STRONG>Хранитель Кубка</STRONG><BR>04. <STRONG>Князь Зла<BR></STRONG>05. <STRONG>Зов Мёртвых</STRONG><BR>06. <STRONG>Пропитанный Тьмой<BR></STRONG>07. <STRONG>Вера - Грех<BR></STRONG>08. <STRONG>Крещение Кровью</STRONG><BR>09. <STRONG>Beyond The Grave </STRONG>(Tsjuder cover)<BR>10. <STRONG>Изморозь</STRONG></P>
+<P>Vkontakte: <A href="http://vkontakte.ru/club19807790">http://vkontakte.ru/club19807790</A></P>
+<P><SPAN class=tit2>MP051 FORGOTTEN TALES "We Shall See The Light"</SPAN></P>
+<P><IMG height=316 alt="" hspace=0 src="/images/news_rus/2011.08/20841.jpg" width=300 align=left border=0>-power-metal; Третий альбом канадской power-metal группы вновь на <STRONG>MUSICA Production</STRONG>. Через шесть лет после выхода великолепной второй работы "<STRONG>All The Sinners</STRONG>" группа с вокалисткой <STRONG>Sonia Pineault</STRONG> возвращается к нам. Более симфоничный, более мелодичный и зрелый материал несомненно понравится всем любителям sympho-power-metal. Трек-лист:</P>
+<P>1. <STRONG>We Shall See The Light</STRONG>&nbsp; 05:25&nbsp;&nbsp; <BR>2. <STRONG>Guardian Angel</STRONG>&nbsp; 05:09 <BR>3. <STRONG>Keepers Of The Field</STRONG>&nbsp; 05:15&nbsp;&nbsp; <BR>4. <STRONG>The Reaper</STRONG>&nbsp; 05:05&nbsp;&nbsp; <BR>5. <STRONG>Diviner</STRONG>&nbsp; 06:22&nbsp; <BR>6.<STRONG> The Calling</STRONG>&nbsp; 05:40 <BR>7. <STRONG>Howling At The Moon</STRONG>&nbsp; 05:20 <BR>8. <STRONG>Broken Wings</STRONG>&nbsp; 05:26 <BR>9. <STRONG>Angel Eyes</STRONG>&nbsp; 04:55 </P>
+<P>Официальный сайт: <A href="http://www.forgottentales.com/">http://www.forgottentales.com</A></P>
+<P>Диски можно приобрести в нашем интернет-магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P>Оптовые покупатели могут обращаться на <STRONG>Soundage</STRONG> и <STRONG>Фоно</STRONG>.</P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P></FONT>
+Автор: Vit Belov
+
+### 05.09.2011 news FORGOTTEN TALES on Musica Production
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=0 alt="" src="/images/news/2011.09/20913.jpg" width=400 align=right height=426>FORGOTTEN TALES</STRONG> has just released their latest album "<STRONG>We Shall See The Light</STRONG>" in Russia through<STRONG> MUSICA Production</STRONG>. Majestic and powerful material with greatest female vocal from <STRONG>Sonia Pineault</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Last album of this Canadian band "<STRONG>All The Sinners</STRONG>"&nbsp;was also released via <STRONG>MUSICA</STRONG> in 2004 under license from <STRONG>Union Metal</STRONG>. Track-list:</FONT></P>
+<P>1. <STRONG>We Shall See The Light</STRONG>&nbsp; 05:25&nbsp;&nbsp; <BR>2. <STRONG>Guardian Angel</STRONG>&nbsp; 05:09 <BR>3. <STRONG>Keepers Of The Field</STRONG>&nbsp; 05:15&nbsp;&nbsp; <BR>4. <STRONG>The Reaper</STRONG>&nbsp; 05:05&nbsp;&nbsp; <BR>5. <STRONG>Diviner</STRONG>&nbsp; 06:22&nbsp; <BR>6.<STRONG> The Calling</STRONG>&nbsp; 05:40 <BR>7. <STRONG>Howling At The Moon</STRONG>&nbsp; 05:20 <BR>8. <STRONG>Broken Wings</STRONG>&nbsp; 05:26 <BR>9. <STRONG>Angel Eyes</STRONG>&nbsp; 04:55 </P>
+<P>Label Site: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<p><center><form target="paypal" action="https://www.paypal.com/cgi-bin/webscr" method="post">
+<input type="hidden" name="cmd" value="_s-xclick">
+<input type="hidden" name="hosted_button_id" value="7WFSRCSUG4DHJ">
+<input type="image" src="https://www.paypalobjects.com/en_GB/i/btn/btn_cart_LG.gif" border="0" name="submit" alt="PayPal – The safer, easier way to pay online.">
+<img alt="" border="0" src="https://www.paypalobjects.com/ru_RU/i/scr/pixel.gif" width="1" height="1">
+</form>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -88,6 +88,25 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.07.2011 news Новый альбом CLITEATER
+
+<P><IMG height=405 alt="" hspace=0 src="/images/news_rus/2011.07/20213.jpg" width=450 align=right border=0>Четвёртый альбом голландской brutal death-metal команды <STRONG>CLITEATER "The Great Southern Clitkill"</STRONG> увидел свет в 2010 году на<STRONG> War Anthem Records</STRONG>. Представленный на пластинке grindcore рекомендуется поклонникам <STRONG>REGURGITATE, MORTICIAN, C.B.T., DEAD INFECTION, GUT</STRONG> и&nbsp;<STRONG>GENERAL SURGERY</STRONG>. В составе <STRONG>CLITEATER</STRONG> вокалист <STRONG>INHUME Joost Silvrants</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Now I Lay Me Down to Cheat</STRONG>&nbsp; 01:00 <BR>2. <STRONG>Crime Scene Cleaner</STRONG>&nbsp; 01:42<BR>3. <STRONG>Daryl Rhea</STRONG>&nbsp; 02:31 <BR>4. <STRONG>F.F. (Fuckin' Faggot)</STRONG>&nbsp; 02:22<BR>5. <STRONG>I Hypochondriac</STRONG>&nbsp; 01:49 <BR>6. <STRONG>The Great Southern Clitkill</STRONG>&nbsp; 01:38 <BR>7. <STRONG>Cellar Dweller</STRONG>&nbsp; 01:40&nbsp; <BR>8. <STRONG>La Bestia</STRONG>&nbsp; 01:14&nbsp;&nbsp; <BR>9. <STRONG>Fred Shipman (a Sick Man)</STRONG>&nbsp; 02:01 <BR>10. <STRONG>Saturday Night Beaver</STRONG>&nbsp; 01:30 <BR>11. <STRONG>Gruntlichkeit</STRONG>&nbsp; 00:40 <BR>12. <STRONG>Glory Hole</STRONG>&nbsp; 02:36 <BR>13. <STRONG>In-Diana Jones</STRONG>&nbsp; 01:46&nbsp;&nbsp; <BR>14. <STRONG>Family Ties</STRONG>&nbsp; 01:20 <BR>15. <STRONG>Positive Aspects of Collective Chaos (Part IV)</STRONG>&nbsp; 02:10&nbsp; <BR>16. <STRONG>Knoxville Horror Mutilations</STRONG>&nbsp; 02:47 <BR>17. <STRONG>BTS (Biomedical Tissue Services)</STRONG>&nbsp; 03:55 </P>
+Автор: Vit Belov
+
+### 16.10.2012 news CLITEATER: обложка &quot;Clitean Back To Life&quot;
+
+<P>Голландская goregrind-бригада <STRONG>CLITEATER</STRONG> опубликовала обложку своего будущего альбома<STRONG> "Clitean Back To Life"</STRONG>.</P>
+<P>Автор художества - <STRONG>Luisma</STRONG> (гитарист испанцев <STRONG>HAEMORRHAGE</STRONG>). Его кисти пренадлежат и&nbsp;3&nbsp;предыдущие обложки полноформатников <STRONG>CLITEATER</STRONG>.</P>
+<P>Диск <STRONG>"Clitean Back To Life"</STRONG> выйдет в 2013 году на лейбле <STRONG>War Anthem</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.10/24938.jpg" width=550 height=504> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

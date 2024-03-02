@@ -60,6 +60,28 @@ Mixed and Mastered at Unisound
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.01.2012 news Второй альбом BARREN EARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финны<STRONG> BARREN EARTH</STRONG> объявили о выходе своего второго альбома "<STRONG>Devil's Resolve</STRONG>" 13 марта на <STRONG>Peaceville Records</STRONG>. Обложку для пластинки нарисовал <STRONG>Paul Romano (MASTODON)</STRONG>. Сведением занимался <STRONG>Dan Swano (EDGE OF SANITY)</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/BarrenEarth">http://www.facebook.com/BarrenEarth</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=267 src="/images/news_rus/2012.01/22578.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 12.01.2012 news Обложка и трек-лист BARREN EARTH
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22602.jpg" width=400 align=right border=0>Новый альбом финнов <STRONG>BARREN EARTH "The Devil's Resolve"</STRONG> выходит 13 марта на <STRONG>Peaceville Records</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Passing Of The Crimson Shadows</STRONG><BR>2. <STRONG>The Rains Begin <BR></STRONG>3. <STRONG>Vintage Warlords <BR></STRONG>4. <STRONG>As It Is Written</STRONG><BR>5. <STRONG>The Dead Exiles<BR></STRONG>6. <STRONG>Oriental Pyre<BR></STRONG>7. <STRONG>White Field<BR></STRONG>8. <STRONG>Where All Stories End <BR></STRONG>9. <STRONG>Martyrs of Devotion</STRONG> (Special Edition) <BR>10. <STRONG>World in Haze</STRONG> (Special Edition) </P>
+Автор: Vit Belov
+
+### 01.03.2012 news Новое видео BARREN EARTH
+
+<P>Новый клип 'последователей AMORPHIS' <STRONG>BARREN EARTH "The Rains Begin"</STRONG> можно посмотреть ниже. Трек взят с второго альбома финского коллектива "<STRONG>The Devil's Resolve</STRONG>", который выйдет в марте на <STRONG>Peaceville</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/rcFpXSTbHrI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

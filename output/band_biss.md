@@ -29,6 +29,9 @@ Lars Bilke - Bass
 
 * C группой "Krokus" Mark Storace
 
+## Публикации
+
+
 ## Обсуждения
 
 

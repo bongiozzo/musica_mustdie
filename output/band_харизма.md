@@ -52,6 +52,51 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.05.2006 news Вторая часть сборника клипов российских команд
+
+<P>В ближайшее время, на <STRONG>CD-Maximum</STRONG> выйдет вторая часть сборника клипов ведущих групп российского тяжметмузпрома от <STRONG>Music Infection</STRONG> под навзанием "<STRONG>Totum Dissemination, Vol.2</STRONG>". В него войдут следующие работы:</P>
+<P><STRONG>1. INSIDE YOU - In A Winter Wood<BR>2. MELANCHOLY - Die, Forgive<BR>3. КОМА - Какая разница?!<BR>4. RASTA - New God<BR><IMG height=362 alt="" hspace=50 src="/images/news_rus/2006.05/10418.jpg" width=250 align=right border=0>5. ANAL NOSOROG - Vagina Says<BR>6. ШМЕЛИ - Стриптиз интеллекта<BR>7. КУВАЛДА - Das Fleisch<BR>8. SHADOW HOST - Before The Storm<BR>9. HOSTILE BREED - V.I.P.<BR>10. KOMMANDA ГУ - Эпизод<BR>11. МАСТЕР - 33 жизни<BR>12. АРТЕРИЯ - Один на один<BR>13. SATARIAL - Шлюха-смерть<BR>14. BESTIAL DEFORM - Jesus Is Dead<BR>15. K.G.B. - The Barren Sycamine<BR>16. BUTTERFLY TEMPLE - Время Мары<BR>17. MURK EXORBITANCE - Desecrated Reality<BR>18. ХАРИЗМА - Охотник<BR>19. TARTHARIA - Crowned By Name<BR>20. S.C.A.R.T. - The Last<BR>21. ЧЕРНЫЙ КОФЕ - Церквушки<BR>22. KRUGER - Нация РОК!<BR>23. Э.С.Т. - Катюша - live in Тушино'91 (bonus)<BR>24. ROSSOMAHAAR - Praise Departure Of Spiritual Streinch - live (bonus)<BR>25. АРКОНА - Восстание Рода - live (bonus)</STRONG></P>
+Автор: Dimas
+
+### 01.12.2006 news Новый год с группами KRUGER и ХАРИЗМА
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <IMG height=469 src="/images/shows_rus/2006.12/11124.jpg" width=670 border=0>
+Автор: Dimas
+
+### 21.03.2007 news День рождения клуба
+
+<CENTER><IMG height=353 src="/images/shows_rus/2007.04/11436.jpg" width=500 border=0></CENTER>
+Автор: Dimas
+
+### 28.04.2007 news Новый альбом ХАРИЗМЫ
+
+<P>В ближайшее время, на лейбле <STRONG>CD-MAXIMUM</STRONG> выйдет второй долгожданный альбом московской супергруппы <STRONG>ХАРИЗМА</STRONG> под лаконичным названием "<STRONG>II</STRONG>". В составе коллектива собрались музыканты, хорошо известные поклонникам стиля, среди которых гитарист и автор всей музыки&nbsp;<STRONG>Лео Фомин</STRONG> (экс-<STRONG>МАСТЕР</STRONG>), басист <STRONG>Василий Марченко</STRONG> (<STRONG>ARCHONTES</STRONG>), ударник <STRONG>Влад Алексеенко</STRONG> (экс-<STRONG>АРДА</STRONG>)&nbsp;и незаурядный вокалист <STRONG>Деймон Авраменко</STRONG>. Продюсер и автор текстов - <STRONG>Александр Елин</STRONG> (автор многих хитов группы <STRONG>АРИЯ</STRONG> и <STRONG>МАСТЕР</STRONG>). Альбом был записан в студии <STRONG>Gigant-Records</STRONG>, в которой был записан альбом "<STRONG>Реки времен</STRONG>" группы <STRONG>КИПЕЛОВ</STRONG>. Сведение и мастеринг альбома прошли в студии "<STRONG>Чёрный Обелиск</STRONG>" под руководством <STRONG>Дмитрия Борисенкова</STRONG> (<STRONG>ЧЁРНЫЙ ОБЕЛИСК</STRONG>). Гостевое участие в записи альбома приняли <STRONG>Сергей Терентьев (АРТЕРИЯ), Андрей Ищенко (HIERONYMUS BOSCH, RD), Дмитрий Борисенков (ЧЁРНЫЙ ОБЕЛИСК), Александр Дронов (ВАЛКИРИЯ</STRONG>) и <STRONG>Владимир "Сокол" (ex-PARANOIA).</STRONG> В альбом вошли следующие композиции:</P>
+<P><STRONG><IMG height=350 alt="" hspace=10 src="/images/news_rus/2007.04/11586.jpg" width=350 align=left border=0>1. Знамение<BR>2. Харизма<BR>3. Выбирай<BR>4. Иду на свет<BR>5. Я буду здесь<BR>6. Огонь<BR>7. Месть<BR>8. Стой, пока живой!<BR>9. Тайна<BR>10. Зона X</STRONG></P>
+Автор: Dimas
+
+### 26.07.2007 news Рок-фестиваль &quot;СЛАВА РОССИИ!&quot;
+
+<P>
+<CENTER><IMG height=251 src="/images/shows_rus/2007.08/11780.jpg" width=450 border=0></CENTER>
+<P></P>
+Автор: Dimas
+
+### 23.08.2007 news Дроздофест 66
+
+<P>
+<CENTER><IMG height=224 src="/images/shows_rus/2007.09/11781.jpg" width=367 border=0></CENTER>
+Автор: Dimas
+
+### 15.11.2007 news Сольный концерт ХАРИЗМА
+
+<P>
+<CENTER><IMG height=450 src="/images/shows_rus/2007.12/12012.jpg" width=317 border=0></CENTER>
+<P></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Мото-Малоярославец' 2011 (24 - 26 июня)

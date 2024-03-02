@@ -71,6 +71,32 @@ Epic Pagan Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.08.2006 reviews Кровавые сказочки из страны опозоренных
+
+<P><STRONG>WOLFCHANT</STRONG> -&nbsp;баварский коллектив, образованный в 2003 году и сразу взявший паган металлический курс по мотивам северной мифологии. В 2004 году коллектив выпустил целых два самиздатовских альбома, после чего и привлек внимание местного лейбла <STRONG>CCP Records</STRONG>. Там и вышел, по сути дела, дебютный полнометражник коллектива "<STRONG>Bloody Tales of Disgraced Lands</STRONG>". Концептуальная работа, рассказывающая о вражде двух соседних стран. Подробную историю можно прочитать на специальном сайте, адрес которого дан в буклете. В самом буклете подробного рассказа об этом нет, как нет и лирики к альбому. А ведь интернет есть далеко не у всех. Ну да ладно, оставим это на совести самих музыкантов. После непродолжительного интро, музыканты сразу окунают нас в беззаботное море веселья и празднества, которое по ходу действия частенько сменяется совершенно противоположными эмоциями. Энергичный и очень мелодичный folk epic pagan black&nbsp;metal, по настроению сравнимый с работами <STRONG>FINNTROLL</STRONG> и <STRONG>ENSIFERUM,</STRONG> а временами не только по настроению. Очень интересный материал, к сожалению, не блещет идеальным качеством. Несколько приглушенный гитарный звук и сыроватая атмосфера немного раздражают.&nbsp;Несмотря на не лучший саунд, чувствуется здесь искра и разнообразие, это и заставляет слушать альбом до конца, несмотря на его часовую продолжительность, и не раз. Любителям паган блэка, по-любому, будет достаточно интересно это творение и они незамедлительно приобретут его в свою коллекцию.</P>
+<P>Диск предоставлен компанией <STRONG>Mystic Empire</STRONG></P>
+Автор: Dimas
+
+### 29.01.2009 news WOLFCHANT работают над альбомом
+
+<P>Немцы <STRONG>WOLFCHANT</STRONG> работают над третьим альбомом <STRONG>"Determined Damnation"</STRONG>, который выйдет 24 апреля на <STRONG>Massacre Records</STRONG>. Инженером на этой работе выступил <STRONG>Uwe Lulies</STRONG> (<B itxtvisited="1">REBELLION</B>), а гостевое участие в записи приняли <STRONG>Chrigel Glanzmann</STRONG> (<B itxtvisited="1">ELUVEITIE</B>) и <B itxtvisited="1">Michael Seifert</B> (<B itxtvisited="1">REBELLION</B>).</P>
+Автор: Vit Belov
+
+### 19.02.2009 news Трэк-лист нового WOLFCHANT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.02/13614.jpg" width=400 align=right border=5>Стал известен перечень песен нового альбома<STRONG> WOLFCHANT</STRONG> <STRONG>"Determined Damnation"</STRONG>, который выйдет 24 апреля на<STRONG> Massacre</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtvisited="1">Determination Begins</B><BR itxtvisited="1">02. <B itxtvisited="1">World In Ice</B><BR itxtvisited="1">03. <B itxtvisited="1">Until The End</B><BR itxtvisited="1">04. <B itxtvisited="1">Determined Damnation</B><BR itxtvisited="1">05. <B itxtvisited="1">In War</B><BR itxtvisited="1">06. <B itxtvisited="1">Fate Of The Fighting Man</B><BR itxtvisited="1">07. <B itxtvisited="1">Kein Engel H&#246;rt Dich Flehen</B><BR itxtvisited="1">08. <B itxtvisited="1">A Raven's Flight</B><BR itxtvisited="1">09. <B itxtvisited="1">Never Too Drunk</B><BR itxtvisited="1">10. <B itxtvisited="1">Schwerter Der Erde</B><BR itxtvisited="1">11. <B itxtvisited="1">Auf Blut Gebaut</B><BR itxtvisited="1">12. <B itxtvisited="1">Under The Wolves Banner</B><BR itxtvisited="1">13. <B itxtvisited="1">Devour</B> (digipack bonus)<BR itxtvisited="1">14. <B itxtvisited="1">Warcry</B> (digipack bonus)<BR itxtvisited="1"></FONT></P>
+Автор: Vit Belov
+
+### 24.03.2009 news &quot;Мир Во Льду&quot; от WOLFCHANT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<STRONG>World In Ice</STRONG>" - так называется новая песня <STRONG>WOLFCHANT</STRONG>, которую можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/wolfchant">http://www.myspace.com/wolfchant</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом немцев выйдет 24 апреля на <STRONG>Massacre Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

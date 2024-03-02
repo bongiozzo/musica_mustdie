@@ -391,6 +391,1687 @@ Exclusive song that will not appear on the Feel the Misery album
 * C группой "Anathema" Martin Powell
 * C группой "Cradle of Filth" Martin Powell
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Вот и вышел пятый полноформатник ветеранов британской сцены, группы стоявшей у истоков современного doom-death metal. Ну и что же? - скажете вы. И будете совершенно правы. Новый альбом группы сделан всё в том же ключе унылой меланхолии. Альбом очень напоминает творение группы 95 года "The Angel And The Dark River". По существу, альбом предназначен только для упёртых фэнов dooma и My Dying Bride, каковым я и являюсь(отчасти). Таков был мой вывод после первого прослушивания. Однако после повторного прослушивания, я понял, что всё не так уж и плохо. Также я нашёл на альбоме несколько новых фишек. "Сэмплированный" местами вокал, более "нервное" звучание скрипок, обилие акустики, множество технических индустриальных фишек. Так что творчество группы не стоит на месте. Жаль вот только, что все эти нововведения не добавляют привлекательности звучанию. Хотя, местами проскакивают такие фрагменты, что за душу хватаешься, правда тут же следом идёт такой фрагмент, что всё мгновенно опускается (ха-ха). Но в принципе не самый плохой альбом, хотя и ничем не выдающийся.</p>
+
+Автор: Dimas
+
+### 12.02.1999 news 
+
+<p>Бывший скрипач MY DYING BRIDE Мартин Пауэлл принял участие в группе CRYPTAL DARKNESS из Австралии.</p>
+
+Автор: Vit Belov
+
+### 15.02.1999 articles My Dying Bride: Apocalypse... Complete...
+
+<p>Итак, можно уже с уверенностью сказать, что 1998 год подошел к концу. Для металлической сцены этот год оказался весьма плодотворным, я не буду сейчас перечислять все группы, выпустившие свои альбомы, которые все как один можно смело занести в анналы тяжелого рока. Ниже у нас пойдет речь о группе, которую многие музыкальные критики и фэны относят к эталону жанра doom-metal. Имя же этой группы My Dying Bride.</p>
+<P> На сей раз я не буду углубляться в историю, как это обычно делаю. И дело даже не в том, что об этом меня попросил наш главный редактор, а, скорее всего, в том, что история этой группы и так достаточно хорошо всем известна.</>
+<P> Итак, в этом году My Dying Bride выпустили свое очередное произведение, которое после выхода альбомов 'Alternative 4' Anathema и 'Aegis' Theatre Of Tragedy все ожидали с особым нетерпением. И вот, наконец, фэны и критики получили в свое распоряжение диск под названием '34.788%...Complete'. Наверняка многих уже заинтересовало такое название альбома, поэтому не будем тянуть кота за хвост и обратимся с этим вопросом к Аарону Стэйнтхорпу (Aaron Stainthorpe), являющимся вокалистом данной формации.</>
+<P> "Мы всегда называем свои альбомы таким образом, чтобы они заинтересовывали наших слушателей, и я думаю, что это один из самых интересных заголовков за всю нашу историю. Основной идеей этой цифры является тот факт, что 34.778% - это та часть времени, которое человечество прожило на Земле, и сейчас человечеству осталось 66% или что-то около того. Как-то раз Кальвину, нашему гитаристу, снился сон, так вот на протяжении всего сна эта цифра крепко сидела в его голове. Ему приснилось, что человечество прожило уже 34.788% отпущенного ему времени на Земле. Это, конечно, самая настоящая фантазия, которая приснилась Кальвину; ему приснилось, что человечество придет к технологическому Армагеддону. Он считает, что наша жизнь постоянно ускоряется, происходит убыстрение всех процессов, сами поглядите как развиваются компьютерные технологии и как от этого становится зависим человек. Ему кажется, что со временем, когда человечество станет полностью зависимым от компьютеров, то какая-нибудь террористическая группа сможет заразить все сети каким-нибудь вирусом и вся компьютерная система просто рухнет и наступит время тотальной тьмы. Собственно, мы понимаем, что это совершенно безумный апокалиптический сон, но это было так интересно, что мы решили вынести эту идею в качестве названия нашего нового альбома".</>
+<P> Дааа...В последнее время что-то очень популярными становятся идеи по поводу грядущего компьютерного Апокалипсиса, достаточно вспомнить альбом этого же года группы Fear Factory 'Obsolete'. Честно говоря, когда совершенно разным людям в головы приходят практически схожие мысли, то поневоле начинаешь задумываться, а нет ли здесь зерна истины. Ну, будем надеяться, что мы не успеем дожить до этого компьютерного конца света, а потому вернемся к самому альбому. На каждой своей новой работе группа представала перед своими слушателями в совершенно новом облике. Так случилось и на сей раз. Как же сами музыканты оценивают свой новый альбом с музыкальной точки зрения?</>
+<P> "Мы никогда специально не старались; пожалуй, единственной нашей работой на сегодняшний момент, когда мы что-то пытались сделать сознательно, был альбом 'Like Gods of the Sun'. Мы всегда стремились делать наши работы по-настоящему металлическим, тяжелыми, но в то же время и простыми. При работе над последним альбомом мы никогда сознательно не задумывались над тем, как он должен звучать. Гитаристы приходили с парой риффов, затем мы на них накладывали какие-то ударные партии, у меня у самого совершенно не было идей по поводу того, как должен звучать мой собственный вокал... Иногда сперва в голову приходили тексты, иногда музыка... Вообще, процесс написания альбома более всего походил на тотальную джем-сессию и в конце концов получился альбом. Мы только сейчас начинаем осознавать, что мы записали самый настоящий альбом, потому что когда ты создаешь песню с одной единственной ноты, ты не можешь полноценно оценить ее, так как ты знаешь, как должна звучать каждая нота в этой песне. Так мы анализируем и критикуем наши работы, мы их фактически не слушаем, потому что слушать и получать настоящее удовольствие от них могут только наши фэны. Мы сами не можем получать удовольствие от нашей музыки, потому что мы сами и создаем ее. Я могу в своей голове создать картину для каждого нашего альбома, но только не для последнего. Но на самом деле это здорово, потому что это означает то, что это не обычный рок-альбом".</>
+<P> Совершенно замечательный подход к своему произведению. Но, раз сами музыканты не могут сказать, что они чувствуют при прослушивании этого альбома, то, может быть, они могут сказать, что могут услышать и какие эмоции могут получить люди, которые прослушают этот альбом?</>
+<P> "Совершенно различные, потому что каждая песня на этом альбоме совершенно индивидуальна. Люди нам говорили, что при прослушивании нашего последнего альбома 'Like Gods of the Sun' у них возникало такое впечатление, что они слушают одну массивную песню, один гигантский металлический трэк, и мы решили не допускать подобной ситуации с нашим новым альбомом, поэтому каждая песня с него микшировалась отдельно от других и мы никогда не допускали, чтобы у нас получилось хотя бы две одинаковых песни. Мы хотели, чтобы каждая песня оставляла свой собственный след и мы не хотели, чтобы нам снова говорили, что весь альбом звучит словно одна большая песня. Когда я писал лирику, то я старался писать о совершенно разных вещах, я хотел их сделать как можно более интересными. И опять же на этом альбоме я постарался сделать тексты более простыми. Это опять же был эксперимент, и я не могу сказать, что я счастлив на 100%, но могу гарантировать только одно - наш следующий альбом будет совершенно отличаться от этой работы. Хотя сейчас я совершенно не представляю, как будет звучать, сейчас мне трудно сказать что-либо определенное по этому поводу".</>
+<P> Итак, данная работа предлагает нам взглянуть на группу несколько с иной стороны. Изменился подход к написанию музыки, изменился подход к написанию текстов... Но изменилось и еще кое-что... My Dying Bride в своих альбомах ранее очень активно использовали скрипку, причем использовали настолько изысканно, что это привносило дополнительный шарм в их музыку, и при этом группу можно было легко отличить от других групп, которые также начали активно эксплуатировать этот инструмент, да и другие нетрадиционные для металлической сцены инструменты. Но на новом альбоме скрипка исчезла...То есть абсолютно...Чем был вызван подобный шаг? Группа решила отойти от ставшего уже стандартным звучания или это что-то иное?</>
+<P> "Ну...Я полагаю...Честно говоря, я даже и не знаю, что тут можно ответить... Я думаю, что мы решили просто побольше поэкспериментировать. Я думаю, что это связано с альбомом 'Like Gods of the Sun', когда этот альбом раскритиковали за отсутствие новых идей, да и наши фэны нас стали просить более нетрадиционных вещей... Я думаю, что в основном мы не прислушиваемся к мнению наших фэнов, нам нравится писать ту музыку, которую нам самим приятно слушать, нам, собственно, все равно, что о нас думают люди - но в этот раз мы решили прислушаться к критике в адрес последнего альбома. Людям он нравится за его тяжесть, но он не является чем-то новым, а слушатели требуют большего. Я не знаю, почему, но наши эксперименты на новом альбоме не были ориентированы на doom. В прошлом мы всегда хотели писать только doom, нам нравилась подобная музыка, но теперь мы понимаем, что для того, чтобы развиваться дальше, нельзя замыкаться исключительно на нем, надо пробовать использовать другие стили и направления. Та же песня 'Heroin Chic' - это ведь совершенно необычная песня для металлической группы, но это и не счастливая песня; это очень мрачная, очень необычно звучащая песня; это не меланхоличная, но отчаянно злая, это очень черная печальная песня".</>
+<P> Так, так, так... Вот мы и подобрались к самой необычной песне с этого альбома. Эта песня действительно поражает своим необычным депрессивным настроем, если внимательно прослушать эту песню, то, кажется, ты сам погружаешься в черный и безысходный мир героя этой песни... Героино - эротический шок...</>
+<P> "О, нам очень нравится эта песня, мы хотели сделать песню, которая по-настоящему шокировала бы всех, мы хотели сделать песню, о которой бы говорили все - но не потому, что она плохая или хорошая, а потому что она действительно интересная. Когда нам в голову пришла идея этой песни, мы подумали: "А можем ли мы это сделать? Ведь каждый потом нас распнет..." А потом мы подумали: "Вот именно поэтому мы и напишем такую песню!" Нам не нужны деньги, нам на это наплевать; мы подумали: "Какого черта! Она шокирует всех - старых фэнов, новых фэнов, рекорд-лэйбл, журналы, всех. Так давайте же напишем эту песню". И мы записали ее, и мы действительно довольны, что сделали ее; мы даже думаем о том, как нам исполнить ее на концертах. О, да - независимо от того, нравится она нашим фэнам или нет!"</>
+<P> Замечательная история, ничего не скажешь... Своеобразный пинок замшелому законсервированному обществу... Что ж, оно того вполне заслуживает.</>
+<P> Но вернемся к самой группе. В последнее время в ней произошли важные изменения. В частности, из группы ушел оригинальный ударник Рик (Rick Myah), и теперь за ударной установкой восседает Билл Лоу (Bill Law), участник распавшейся на данный момент формации Dominion. Как произошла сия замена и как группа относится к своему новому ударнику?</>
+<P> "Билл просто великолепен. У Рика начала со временем прогрессировать болезнь. На каждом турне Рик серьезно заболевал, и нам даже приходилось отменять многие концерты из-за его болезни, потому что Рик просто не мог играть. Турне просто убивали его. На наших последних выступлениях с Дио в Америке, а это было очень долгое турне, нам приходилось его буквально доносить до кровати, он был совершенно разбит. Некоторое время он мог играть, но потом он становился совершенно белым и просто не мог самостоятельно передвигаться, его замучила дикая бессонница... Мы показали его доктору и он сказал, что Рику нельзя ничем заниматься, по меньшей мере, два месяца. И тогда он сказал: "Послушайте, эти турне убивают меня. Я должен остановиться". Тогда мы собрались все вместе, чтобы обсудить создавшееся положение и Рик тогда сказал всем нам: "Я хочу уйти из группы, я не могу больше в ней оставаться; если я буду продолжать играть, то я не смогу выступать, а я не желаю, чтобы группа из-за меня останавливалась". Тогда мы ответили: "Все хорошо, если ты хочешь покинуть группу, то ты можешь сделать это...". Но для нас это было очень трудным решением, потому что Рик играл в группе с самого первого дня. Ну и когда Рик оставил группу, мы стали подбирать себе нового ударника и остановились на Билле..."</>
+<P> Итак, группа нашла себе нового ударника, но является ли он сессионным музыкантом или теперь он уже полноправный участник группы?</>
+<P> "Нет, теперь он в группе. Мы достаточно давно знаем Била, потому что мы были хорошими друзьями с его группой. Мы видели, как он работает, и решили, что он нас полностью устраивает, и мы попросили его помочь нам. Мы узнали мнение других участников Dominion, и они ответили что все в порядке и что это все очень круто. Ну а когда Dominion распались, я предложил ему стать полноправным участником нашей группы и он согласился. Билл принес с собой много интересных идей, потому что он совершенно новый человек в My Dying Bride, в его идеях очень много интересного, многое нам даже не приходило в голову. Он просто великолепен".</>
+<P> Итак, мы выяснили, что произошло с ударником, теперь обратимся к другому персонажу - Мартину Пауэллу (Martin Powell), теперь уже бывшему скрипачу и клавишнику группы. Когда он покинул My Dying Bride, в прессе стали усиленно муссироваться слухи, что он присоединился к группе Anathema. Как может прокомментировать данную ситуацию Аарон?</>
+<P> "Хорошо, он-не-является-участником-Anathema. Мы читали все эти статьи, но все, что там написано, совершенно не соответствует действительности. Но мне никто не верит. Я разговаривал с Дэйвом, который сейчас играет в Anathema (Dave Pybus, новый басист, заменивший Данкана); мы с ним старые друзья, он даже живет неподалеку. Я спросил его по этому поводу, и он ответил, что это полнейшая чушь. Anathema никогда не приглашали Мартина стать участником группы, они просто хотят пригласить его для записи следующего студийного альбома и хотят, чтобы он выступил с ними в поддержку этого альбома на концертах. Но они никогда не приглашали стать его участником группы, да и сам Мартин не желает этого. Поэтому мы были совершенно ошарашены, когда прочитали в прессе, что Мартин стал участником Anathema..."</>
+<P> Группу Anathema часто называют "братской группой" по отношению к My Dying Bride. А как сами музыканты относятся друг к другу?</>
+<P> "Мы их не любим... Мы не любим их, потому что считаем их законченными идиотами. Я могу это сказать открыто, потому что они знают об этом. Потому что мы не раз буквально дрались с ними, потому что они абсолютно сумасшедшие. Люди думают, что раз мы записываемся на одном лэбле, играем похожую музыку, то мы должны быть большими фэнами, но мы ненавидим этих парней. Не поймите меня неправильно, я думаю, что Дэнни (Каванах) просто фантастичен, я могу пойти и пропустить с ним пару пива, и это будет здорово, он действительно интеллигентный парень. Но вот когда вся Anathema в сборе и когда My Dying Bride все вместе, то мы просто ненавидим друг друга".</>
+<P> Anathema и My Dying Bride заключили пожизненные контракты с Peaceville. Может ли произойти что-то такое, что группа в один прекрасный момент уйдет на более крупный лэйбл?</>
+<P> "Я не думаю, что такое может произойти. Было такое, что Music For Nations и Peaceville просили написать нас песни покороче, чтобы их можно было крутить по радио. Тогда мы рассмеялись им в лицо, потому что My Dying Bride никогда не пишет что-либо по чьей-либо указке, мы всегда пишем только собственное дерьмо. Поэтому я не думаю, что подобное может когда-нибудь произойти. Мы никогда не сможем перейти под более крупный лэйбл, а вот под более мелкий - это более вероятно".</>
+<P> Что Аарон думает о будущем группы, что будут они играть лет через пять?</>
+<P> "Я даже и не знаю, очень сложно ответить на подобный вопрос, мы никогда не планируем подобные вещи. Мне очень нравится делать по-настоящему печальные альбомы, но это очень сложно. Мы все в группе очень любим действительно тяжелый гитарный звук, и иногда бывает очень здорово вставить в песню какой-нибудь быстрый кусок или сделать звучание как на 'Master of Puppets', это просто классика тяжелых гитарных риффов, мы все очень любим подобные вещи. Я знаю очень много команд и все они говорят, что очень сложно играть тяжелые риффы очень медленно, потому что такой темп очень сложно выдержать... Так что об этом пока рано говорить... Может быть, можно было бы сделать что-нибудь в таком вампирическом стиле... Но сейчас подобное дерьмо играют Cradle Of Filth и если мы и запишем подобный альбом, все станут говорить, что мы копируем Cradle, поэтому мы вряд ли запишем подобный альбом... Но я думаю, что мы станем больше экспериментировать, нам очень нравиться делать что-то безумное... Но сейчас невозможно сказать, что ожидает нас в бдущем".</>
+<P> И несколько слов напоследок...</>
+<P> "Ну, даже и не знаю... Хорошо, я хочу сказать следующее: не пугайтесь нашего нового альбома. Я знаю, что название альбома и его обложка могут заставить подумать наших старых фэнов, что мы стали исполнять techno или какое-нибудь подобное дерьмо, но это не так; это все еще My Dying Bride".</>
+<P> "This night. This night is hot Hope it rains. Hope it rains a lot" Heroin Chic</>
+
+Автор: TiamaT
+
+### 19.02.1999 news 
+
+<p>My Dying Bride сочиняют новый альбом, из-за этого тур отложен. За запись группа сядет 7 июня.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>В My Dying Bride "смена составов". Уволен "новый" барабанщик Билл Лоу, который так и не смог заменить бывшего "стукача" Рика. Замена Биллу нашлась моментально - это бывший барабанщик Anathema Шон Стилс. Написание нового материала продолжается, он обещает быть выдержан в духе старого творчества группы.</p>
+
+Автор: Vit Belov
+
+### 08.06.1999 news 
+
+<p>Келвин Робертшоу покинул My Dying Bride, по личным причинам. Из-за этих причин, он теперь не может уделять группе 100% своего внимания, и поэтому уходит. Группа продолжает сотрудничество с Келвином, но не на музыкальном поприще. Группа начала репетиции с новым гитаристом, и по всей видимости, им станет Ли Бэйнс из группы Khang, также известный по группе Serenity.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Новый альбом My Dying Bride "The Light At The End Of The World" выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Новый альбом Bal-Sagoth "The Power Cosmic" выйдет 11 октября. Ещё одной новостью является то, что их клавишник Джонни Маудлинг принял участие в записи нового альбома My Dying Bride. А в My Dying Bride вновь появиться скрипач Мартин Пауэлл.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Новый альбом появится в продаже 25 октября и будет называться "The Light At The End Of The World". Он будет включать в себя 9 песен на 71 минуту.</p>
+
+Автор: Vit Belov
+
+### 21.10.1999 reviews 
+
+<p>Непостижимо!!! Я не верю ушам своим! Я даже не мог предположить, что услышу что-либо подобное в период повального опопсения известнейших команд. До сих пор, MY DYING BRIDE были , наверное, единственной командой эпохи зарождения doom-death'a. которая старалась обходить стороной эксперименты, правда, на последнем альбоме они не выдержали и ввели некоторые эксперименты с индустриальной электронщиной. Поэтому, в общем-то, я ждал от них продолжения экспериментов, тотального облегчения и дальнейшего скатывания вниз в музыкальной культуре. Но ребята меня неожиданно порадовали. Мне до сих пор не верится , что это их новый альбом. Такое впечатление, что музыканты достали незнамо откуда свои записи 1992-1993 годов и решили их выпустить для всеобщего прослушивания. Музыка в духе "Turn Loose The Swans", тот же неподражаемо печальный вокал со всеми сохранившимися интонациями (именно это и наводит на мысль, что эти записи из архива). Часто можно услышать и (приготовились?) гроулинг-вокал!!! Вы могли представить себе, что Aaron снова зарычит? Так вот, наслаждайтесь. Тем более, что альбом длинный. А значит удовольствие будете получать долго. (10)</p>
+
+Автор: Dimas
+
+### 23.11.1999 news 
+
+<p>Вот тебе и уважаемый журнал Террорайзер. Мартин Пауэлл не возвращался в My Dying Bride и даже не собирался этого делать. Сейчас Мартин находится в туре вместе с Anathema.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 reviews 
+
+<p>Я ждал этого альбома и я был вознагражден за терпение. После совершенейшего отстоя в лице альбома "34.778%...Complete" MY DYING BRIDE вернулись и вернулись триумфально. Цветы увяли, Ангел бродит вдоль Темной Реки и Боги Солнца уводят нас к Свету у Конца Мира. Хорошо, что у ребят хватило ума понять, что прошлый альбом был... Впрочем хватит о грустном. Итак - на новом альбоме 9 композиций. И я опишу каждую их них. 1. Открывает альбом "Sshe Is A Dark" - после стонущего вступления идет мощнейший doom-угар, который сменяется шаманством, а оно в свою очередь депрессией, далее опять doom-угар и снова депрессия. 2. "Edenbeast" - ветер и восточная мелодия уводит слушателей в царство ритма и тяжести. И затем этот ритм растворяется в бесконечности меланхолии. 3. "The Night He Died" - это классическая doom от MY DYING BRIDE вот и все. 4. Титульная вещь "The Light At The End Of The World" - самая длинная и навороченная. Переходы от медленной тягучести к жестким ритмам, затем открытый чистый вокал и скрипящие гитары. Обилие клавишей, музыкальная тема из "Sear Me", образца 1993 года и proclamation вокал. Потрясающе сильная вещь, вмещающая в себя все лучшее из прошлых альбомом с привлеченим новаторских фишек и наворотов. 5. "The Fever Sea" - самая быстрая, агрессивная и тяжелая вещь на альбоме. Начинается с гроулинга - шепот - пауза - чистый вокал - опять гроулинг - и обрыв песни. Круть невероятная. 6. "Into The Lake Of Ghosts" - название говорит само за себя - это погружение в Озеро Призраков. Очень спокойная и медленная 1 часть и тяжелая и гнетущая 2 часть. Затем части меняются местами, чередуются и в их сплетении ощущаешь силу и мощь истинного doom'а. 7. "The Isis Script" - самая мрачная и тяжелая песня с обилием гроулинга и шутовского вокала. Оканчивается оборванным рыком. Давай-давай !!! 8. "Christliar" - начинается с подкрадывающейся депрессии, затем следует мелодичная вставка, басовый перебор струн с хором на заднем плане. Все это переходит уже в обволакивающую тебя депрессию и оканчивается мощным гроулингом. 9. "Sear Me III" - дань знаменитой "Sear Me MCMXCIII" с легендароного "Turn Loos The Swans" 1993 года. Правда на новой вещи меньше депрессии. Начинается это все с тягучей и однообразной тоски, затем идет тема из "Sear Me MCMXCIII" и транс-вокал. К сожалению нет скрипки, но грусть-печаль-тоску нагоняет гитара. Такой вот неслабый альбом, со старым лого, типичным для MY DYING BRIDE размытым оформлением: море, идет дождь и летит ангел с факелом. Оценка данному творению 10 из 10 и мои поздравления с возвращением. Невеста все умирает и умирает, а MY DYING BRIDE её все хоронят и хоронят. P.S. Жаль, что из четырех столпов doom 90-х годов: PARADISE LOST, ANATHEMA, TIAMAT & MY DYING BRIDE, которые поднимали Doom, росли вместе с ним и сделали для развития этого стиля очень много, верными себе остались только MY DYING BRIDE.</p>
+
+Автор: Dimas
+
+### 25.09.2000 news My Dying Bride пишут материал для нового альбома.
+
+<p> My Dying Bride в настоящее время работают над материалом для нового альбома. Пока ещё нет никакой информации, когда выйдет альбом и как он будет называться. Группа планирует 4 ноября отыграть концерт в Лондоне вместе с The Gathering.</p>
+
+Автор: Morsus
+
+### 25.09.2000 news My Dying Bride is writing material for a new album.
+
+<p> My Dying Bride is currently busy writing material for a new album. There is, as yet, no information on when this will be released or what it is going to be called. The band is set to play in London, with The Gathering, on November 4.</p>
+
+Автор: Morsus
+
+### 04.10.2000 news My Dying Bride работает над новой компиляцией
+
+<p> My Dying Bride в скором времени выпустит первый из двух дисков, являющихся их хронологией работы с Peaceville. "Meisterwerk I" будет содержать редкие трэки, демо-трэки, несколько концертных записей и видео. Релиз состоиится 23-го октября, естественно, на Peaceville. Трэк-лист диска такой: 'Symphonaire Infernus Et Spera Empyrium' (demo), 'Crown Of Sympathy', 'The Grief Of Age' (demo), 'A Kiss To Remember', 'Grace Unhearing (Portishell)', 'For You', 'Unreleased Bitterness' и 'Sear Me 3'. Видео-трэком будет клип на песню 'Cry Of Mankind'.</p>
+
+Автор: Nybras
+
+### 12.11.2000 news My Dying Bride заключили контракт с Peaceville
+
+<p> My Dying Bride опять заключили контракт с лейблом Peaceville и сейчас пишут материал для нового альбома. Тем временем группа еще выпустила сборник редких/ретроспективных вещей под названием "Meisterwerk". Его трэк-лист таков: 'Symhonaire Infernus Et Spera Empyrium', 'The Crown Of Sympathy', 'The Grief Of Age', 'A Kiss To Remember', 'Grace Unhearing' (Portishell Mix), 'For You', 'Unreleased Bitterness', 'Sear Me III' и 'The Cry Of Mankind'.</p>
+
+Автор: Nybras
+
+### 12.11.2000 news My Dying Bride re-signed to Peaceville
+
+<p>My Dying Bride have just re-signed to Peaceville and the band are writing material for their next album. Also the band has released rarities album called Meisterwerk with the following tracklisting: 'Symhonaire Infernus Et Spera Empyrium', 'The Crown Of Sympathy', 'The Grief Of Age', 'A Kiss To Remember', 'Grace Unhearing', 'For You', 'Unreleased Bitterness', 'Sear Me III' and 'The Cry Of Mankind'.</p>
+
+Автор: Nybras
+
+### 28.03.2001 news MY DYING BRIDE....
+
+<p>После участия в разных фестах MY DYING BRIDE вернулись домой и уже в июне планируют сесть в студию для записи пока еще не названного продолжения "The Light At the End Of The World". Дата выхода - Октябрь.</p>
+
+Автор: Yermola
+
+### 28.03.2001 news MY DYING BRIDE....
+
+<p>After a brief interruption to accommodate the band’s recent Peacefest appearances, MY DYING BRIDE have returned home and begun writing the follow-up to 1999’s The Light At the End Of The World album. If all goes well, the band is expecting to start recording the as-yet-untitled effort in June, and are aiming for an album release in early October. Attendees at the aforementioned Peacefest gigs were provided with a taste of what the new album will be like when MY DYING BRIDE played one new song in their set, titled "A Cruel Taste of Winter". In other MY DYING BRIDE news, the release of the second part of the Meisterwerk compilation has been scheduled for June as well. Two more rare demo tracks as well as the song "Follower" (which was until now only released as a bonus track on Japanese editions of 34.788%...) will be included on this release.</p>
+
+Автор: Yermola
+
+### 04.08.2001 news My Dying Bride заканчивают работу над новым альбомом
+
+<p> В настоящее время My Dying Bride заканчивают запись своего седьмого альбома в Academy Studios. Пока ещё неназванный релиз планируется выпустить 22-ого октября на Peaceville Records.</p>
+
+Автор: Morsus
+
+### 04.08.2001 news My Dying Bride are currently completing work on new album
+
+<p> My Dying Bride are currently completing work on their seventh studio album at Academy Studios. The untitled epic will be released on October 22nd through Peaceville Records.</p>
+
+Автор: Morsus
+
+### 27.08.2001 news Моя Умирающая Невеста...
+
+<p>ЗаДУМчивые англичане "MY DYING BRIDE" начали микширование альбома-продолжения для "Light at the End of the World" - названного "The Dreadful Hours". По словам гитариста Andrew Craighan, саунд можно описать как: "... намного, намного более мрачный и интуитивный!". Записанный в Academy Studios с продюссером Mags диск выйдет в октябре на Peaceville Records.</p>
+
+Автор: Yermola
+
+### 27.08.2001 news The Dreadful Hours ...
+
+<p>England's MY DYING BRIDE have starting mixing the follow-up to Light at the End of the World, entitled The Dreadful Hours, the sound on which is being described as "much much darker and more foreboding" than that of its predecessor by guitarist Andrew Craighan. Recorded at Academy Studios with Mags at the production helm, The Dreadful Hours is due to emerge through Peaceville Records sometime this October. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 06.12.2001 articles My Dying Bride Interview
+
+<p>As you may be aware, we arranged this interview a while ago, and planned to make it a two-part one, with the second batch of questions being based on the initial answers. However, after receiving them our editor Venitia, who was conducting it, mysteriously disappeared without a trace. We're sure she'll come back to us one day and we'll be able to finish this, but with the material contained in this interview being very time-sensitive, we decided to go ahead and post whatever we have right now. (And we've had it for a couple of weeks already).<BR><BR> This part of the interview consists entirely of Potrokh's questions to Andrew, MDB's main guitarist and composer. Our apologies to all who aren't going to see their questions here, we'll post them eventually. <BR><BR> Potrokh: I can't help asking what your response has been to the latest events in America? Are you with the majority who favor war? Do you think it'll make the world safer?<BR><BR> Andrew: I don't think all out traditional style war is the answer here. I mean, where is the enemy exactly, are all talibans terrorists? I do believe though in a covert side to it track key people and kill them, i also think stopping the flow of drug money from these countries who favour terrorism is good and agree whole-heartedly in their destruction. Then close down the from the outside all those who actively speak out in favour of terrorism. I do think it totally ironic how the Americans are flying the world flag of anti terrorism now, considering how a great deal of them have helped in keeping the IRA's bomb cupboard full for quite some time. Remember this next time the tin is shaken. <BR><BR> P: Correct me if I'm wrong - was it Bradford where serious ethnic clashes happened just a month or two ago? Do you feel those might be all parts of one big picture - Bosnia, Chechnya, Macedonia, and now the World Trade Center attack? <BR><BR> A: I don't see the idiots in Bradford at that scale just yet, but in time that is exactly what will happen. They cheered a lot when the news broke about the terrorist attack, and fired fireworks in the air. They make me fucking puke! <BR><BR> P: You are obviously old enough to have witnessed the drastic changes the world has gone through in the past 10 - 15 years - demise of ideologies and tyrants, collapse of empires, great hopes in the beginning and bitter disillusions by now... Don't you find it ironic that after ALL that big fuss it looks like it's all going to end in a clash of the oldest (and, after all, the most ultimate) ideologies ever - religions? That after some 800 years of renaissance, revolutions, science and political correctness the cycle has ended exactly where Richard Lionheart and company started it? Does a prospect of living in such a world make you feel disgusted? Are you pessimistic or optimistic about it? <BR><BR> A: If you want blood and all that... we should allow them all to marytred it's what they would like after all. <BR><BR> P: Speaking of ideology - is there such a thing as "My Dying Bride ideology"? Let me elaborate, to make my point clearer -- most of you have been together for many years and don't show signs of anymosity toward each other, which suggests you are more than just "guys playing in the same band". Therefore, there have got to be things that bond you as friends and partners! (Or is it just booze? :)) Most doom bands are known to be on the "hippie" side, After all, label names like Peaceville don't just happen out of the blue! Do you believe in any kind of stuff like that? Also, I know you are not big fans of religion, is that common with you all, as well? <BR><BR> A: We don't have a set philosphy in the band that has to be adhered to, we do fortunately follow similar mindsets regarding the execution of our music and what we as people choose have around us. We like dark music and yet are not dark people. We do beleive that if you remove religion there will be not a great deal to divide us by, as a race of people on one planet. <BR><BR> P: There was one exception, to the hippie looks, however - Calvin looked... (a bit too trendy, maybe?) to mix in, am I right? Do you think he wasn't too interested in what you guys were doing at that point already? Could you provide us with some details on what led to the departure of three out of six founding members? We all know Rick got sick (you ALL looked very tired at that Dio show, yet played like gods despite that!) and you guys don't like talking about it, but - is he OK, at least? Are you still seeing each other? Is it the same with Martin and Calvin? Are you still friends? Are they playing anywhere? <BR><BR> A: Calvin rebeled against the band in that way, it wasn't that he wasn't with us at that time mentally he just chose to be different. I can't really talk for Calvin as he may want his private life, you know private. But we are still very much in contact as he does our tour managing now. He left us at that time as he was simply burnt out and not interested in MDB anymore it was not a fall out or anything like that. Rick too was a bit disillusioned with the band after the American tour with Dio he saw the band putting in serious hours to very little back from the record company and no financial gain. (We don't live from this) and chose back then to leave, his departure was not so pleasant though but we have since got over that and are moving on. We are still good friends with Martin and wish him all the best with Ladle of Pils his new drinking band. <BR><BR> P: You once said that the experimental nature of "34.8.. complete" wasn't exactly your fault, and you're perfectly happy returning to the heavier roots. Was it mainly Calvin's influence, then, given that you two were the primary composers in the band at that time? And what is the situation like now? Do any of the other members write music? And is it because of you that we're starting to hear more and more black overtones? And if so, are we going to hear something similar to Cradle Of Filth in your next work? :) <BR><BR> A: Yeah, 34% was not something i would take on again. It was a very difficult time for the band and not everybody was involved in the recording of the l.p. I myself only played on one track and Calvin did the rest. We did write the l.p. together though, but difficulties with Bill caused me to take a step back, something i have lived to regret but will never repeat. It is a strong record for very different reasons though, and it is surprising how many people who were unsure back then, now rave about it, simply because it is so different but they still have the dark doomy MDB to fall back on. I prefer the darker songs I admit but you have to see some light just to know where the real darkness lies. I wrote 99% of "The Light at The End Of The World" but the new guys get some bits in on the new one, simply because they have good idea's. No Cradle though for me, I like their racket but I consider MDB to be a lot more eloquent and with more sublety than them. <BR><BR> P: I likened you to the "doom" ilk above, I know it might sound wrong, as you're much more than that, but - what do you classify yourselves as nowadays? You denied any gothic influence in the past, yet now that the term has expanded tremendously, you admit to it. At the same time, doom doesn't just mean bands like Cathedral anymore... Is "Gothic Doom" an appropriate definition? <BR><BR> A: I think Dark Metal is pretty much where we dwell now, as crap as it sounds on paper. We are not straight Goth or Doom not even Death metal works for us anymore can we not just be a metal band. <BR><BR> P: Ironically, whatever it is, MDB certainly wins fans' credit for being THE true metal band after all these years, yet another cycle that brings us back in history... you used to call yourselves a METAL band above all, and that's truly what you are - I can't think of a bigger and more respectable one! And here we come to another comparison from the past. I remember, a few years back everybody liked to compare you to your "older peers", namely, Paradise Lost. Do you think they may have made a wrong turn back then? I can't tell for sure from across the ocean, but what's their situation now? Are they big? Better known? Made more money? Do you think you might want to follow suit? We know of at least one other band of the "British Big Three" who did... (I still can't stop laughing thinking of Aaron cringing whenever that band's name came up in our conversation!) <BR><BR> A: Right then, Metal band it is. Considering the tone of this question. Regarding Paradise Lost there can be no doubt that they have made some fucking very good decisions, both musically and financially. They were a top metal but i have to admit in not knowing a lot about their music even though I regularly see Gregg in the pub. Talk of the other band is simply that we think they are avante -garde. Nuff said. <BR><BR> P: Well, being the kings of metal alone still doesn't make you a living. Or does it? Is your new contract with Peaceville going to provide you with a nice retirement package after all? I was shocked to learn that Aaron quit school at the age of 15, is it similar with the rest of you? Have you always known you'd be a rock star and never bothered with education or a daytime job? And do you hope to be doing this until you are the Rolling Stones of metal, or have you considered any other options like Aaron and his art, for example? <BR><BR> A: Kings of nothing. We work hard for a living and the band is not it. We have secret lives. We are educated enough now but never thought we would become rockstars and never will. No matter how many records we sell we will still be mad as fuck punters getting in your way after the gig at the bar. You ask anyone. On the question of art, I think a lot of it is just rich kids shit, the rest is poor kids shit. But what do I know. <BR><BR> Ok if you want to elaborate on one or two points I am willing to bore you more. <BR><BR> Thanks again <BR><BR> And Darkest Regards <BR><BR> Andrew<BR><BR> <a href="http://www.666metal.com/interviews/showinterview.cfm?interID=2174AFB7-BEC2-11D5-83F900010274F205">http://www.666metal.com/</a></p>
+
+Автор: Yermola
+
+### 13.12.2001 reviews Знакомые до боли мелодии
+
+<p>Знакомые до боли мелодии. Именно это вы услышите при знакомстве с новым альбомом британцев - классиков жанра death-doom metal. Музыканты группы по-прежнему продолжают развивать свои старые незабываемые идеи, достигая их совершенства и блеска, не вдаваясь в новаторские эксперименты, как это было с ними ранее. Все те же плотные тяжелые гитарные риффы и мелодии в минорной тональности, а также плаксиво-мученический чистый вокал Аарона пугающего при гроулинговых партиях. Пожалуй, группа прибавила в атмосферности, готические образы так и витают вокруг при прослушивании. Но, материал целиком на любителей пофилософствовать и пожить в своем "мире". Другим же эта музыка покажется занудной и скучной, излишне однообразной. Музыка очень печальная и жалобная, для прослушивания ее необходимо особое серьезное настроение. Серая и мрачная, на целых семьдесят минут. Зато, она идеально подходит как фон к разного рода умственной работе. Пожалуй, на сегодняшний день, никто не играет подобную музыку лучше, чем My Dying Bride. А вот в переработке "The Return To The Beautiful", я не заметил ничего особо нового, скорее это не переработка, а перезапись этой классической композиции. Мастерская соразмерность и трагическая меланхолия с контрастным звуком и безошибочным вокалом. Только не слушайте этот альбом очень часто, за последствия я не ручаюсь...</p>
+
+Автор: Dimas
+
+### 03.01.2002 news MY DYING BRIDE Tentative Tour Dates Announced ....
+
+<p>Britain's MY DYING BRIDE have announced the first several unconfirmed dates for their upcoming world tour. They are as follows: <BR><BR> Apr. 19 - Lisbon, POR @ TBA<BR> Apr. 20 - Porto, POR @ TBA <BR> Apr. 23 – London, UK @ The Mean Fiddler <BR> May ?? - Mexico City, MEX @ TBA <BR></p>
+
+Автор: Yermola
+
+### 19.02.2002 reviews Melodies, familiar up to a pain
+
+<p>Melodies, familiar up to a pain. You will hear it at acquaintance to a new album of British classics of a death-doom metal genre. The musicians of band still continue to develop the old unforgettable ideas, reaching their perfection and shine, not pressing in innovative experiments, as it was with them earlier. Same dense heavy guitar riffes and melody in minor, and also crying-martyr's clean vocal by Aaron frightening during growling parties. Perhaps, the group has added atmosphere, Gothic images hover around, when you are listening. But, a material wholly to the fans of philosophize and to live in "world" of themself. This music will seem to anothers tiresome and boring, too much monotonous. Music is very sad and plaintive, for listening it is necessary the special serious mood. Grey and gloomy, on the whole seventy minutes. But, it ideally approaches as a background to different sorts intellectual work. Perhaps, for today, nobody plays similar music better, than My Dying Bride. And in processing of " The Return To The Beautiful ", I have not noticed anything especially new, faster it not processing, and rewriting of this classical composition. Workshop harmony and tragical melancholy with a contrast sound and correct vocal. Only do not listen this album very much frequently, for consequences I do not warrant...</p>
+
+Автор: Dimas
+
+### 04.03.2002 news Hовости от MY DYING BRIDE
+
+<p>MY DYING BRIDE отыграют шоу в Лондоне впервые за последние 2 года. Концерт пройдет 27 апреля 2002 года. Специальные гости - ROTTING CHRIST. <BR> Перед этим, 22 апреля группа выпустит полнометражное DVD "For Darkest Eyes", которое уже выходило на кассетах. Оно включает все видеоклипы группы и концерт в Кракове 1996 года. <BR> А спустя два дня, после шоу в Лондоне, 29 апреля 2002 года выйдет новый альбом группы под названием "Voice Of The Wretched (Live)”. Материал альбома был записан в марте 2001 года с концертов в Голландии.</p>
+
+Автор: Dimas
+
+### 04.03.2002 news MY DYING BRIDE NEWS
+
+<p>My Dying Bride are to play their first London show in over 2 years. The gig will take place on Saturday April 27th at The Mean Fiddler. Special guests Rotting Christ will join MDB. The gig will be MDB’s ONLY UK show of the year, and they’ll be showcasing material from their highly acclaimed last album The Dreadful Hours for the very first time. One not to be missed. <BR> April 22nd sees the release of the My Dying Bride longform "For Darkest Eyes" on DVD for the very first time. The release contains all MDB’s promo video’s to date. "For Darkest Eyes" also contains a full live set, filmed in Krakow Poland in 1996, MDB were on a European tour with then label mates Anathema. The show contains 10 tracks, and features the classic MDB line-up, with original drummer Rick Miah and Martin Powell, now with Cradle Of Filth. <BR> Carrying on this slurry of Bride activity, the band will be releasing a brand new live album, entitled “Voice Of The Wretched (Live)”. The album will hit the shops 2 days after the London gig on Monday 29th April. The album was recorded live at 013 in Tilburg Holland in March 2001 and was the bands stunning climax to the 3 day Peacefest shows that took place in 3 countries over a manic weekend in March 2001.</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 15.04.2002 news Мрачнейшие глаза от MY DYING BRIDE
+
+<P>29-го апреля наконец-то выходит DVD-видео "MY DYING BRIDE" &ndash; For Darkest Eyes &ndash; трек-лист: </P></>
+<P>Willem II, Den, Bosch, Голландия &ndash; 07/11/93 </P></>
+<P>01. The Songless Bird<br> 02. The Snow in my Hand<br> 03. The Crown of Sympathy<br> 04. The Thrash of Naked Limbs<br> 05. I Am the Bloody Earth<br> 06. Symphonaire Infernus et Spera Empyrium<br> 07. Turn Loose the Swans<br> 08. Sear me MCMXCIII </P></>
+<P>Simplon, Groningen, Голландия 1995 </P></>
+<P>09. Sear Me </P></>
+<P>Dynamo Open Air, Eindhoven, Голландия 1995 </P></>
+<P>10. Your River<br> 11. The Songless Bird<br> 12. A Sea to Suffer In<br> 13. The Cry of Mankind </P></>
+
+Автор: Yermola
+
+### 20.08.2002 news MassaBrutto Radioshow #100, 19-20 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. REBAELLIUN - Rebellious Vengeance (Hammerheart)<BR> 2. DENIAL OF GOD - Funeral Fog [by MAYHEM] (Oupiric Prods)<BR> 3. THE BERZERKER - Forever (Earache/Soyuz)<BR> 4. OBTEST - 997 (Wolf Music/Miriquidi Prods)<BR> 5. OBTEST - Anapus Nemuno (Ledo Takas Recs)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 6. BURNT BY THE SUN - Dracula With Glasses (Relapse)<BR><BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Reek Of Putrefaction", 1988, Earache]<BR><BR> 7. CARCASS - Genital Grinder<BR> 8. CARCASS - Regurgitation Of Giblets<BR> 9. CARCASS - Frenzied Detruncation<BR> 10. CARCASS - Vomited Anal Tract<BR> 11. CARCASS - Festerday<BR> 12. CARCASS - Foeticide<BR> 13. CARCASS - Psychopathologist<BR> 14. COBOLT 60 - Salvation Principle Result (Head Not Found/VME)<BR> 15. MY DYING BRIDE - My Hope The Destroyer (Peaceville)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news MassaBrutto Radioshow #100, 19-20 Aug 2002.
+
+<p>Playlist: <BR><BR> 1. REBAELLIUN - Rebellious Vengeance (Hammerheart)<BR> 2. DENIAL OF GOD - Funeral Fog [by MAYHEM] (Oupiric Prods)<BR> 3. THE BERZERKER - Forever (Earache/Soyuz)<BR> 4. OBTEST - 997 (Wolf Music/Miriquidi Prods)<BR> 5. OBTEST - Anapus Nemuno (Ledo Takas Recs)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 6. BURNT BY THE SUN - Dracula With Glasses (Relapse)<BR><BR> "Kilo-Metre" section [CARCASS, "Reek Of Putrefaction" album, 1988, Earache]<BR><BR> 7. CARCASS - Genital Grinder<BR> 8. CARCASS - Regurgitation Of Giblets<BR> 9. CARCASS - Frenzied Detruncation<BR> 10. CARCASS - Vomited Anal Tract<BR> 11. CARCASS - Festerday<BR> 12. CARCASS - Foeticide<BR> 13. CARCASS - Psychopathologist<BR><BR> 14. COBOLT 60 - Salvation Principle Result (Head Not Found/VME)<BR> 15. MY DYING BRIDE - My Hope The Destroyer (Peaceville)</p>
+
+Автор: Yermola
+
+### 15.09.2002 reviews Концертный альбом от лидеров английского дума
+
+<p>Написание этой рецензии сходу было отложено в дальний ящик. Что, в общем-то, легко объяснимо. Концертники вообще сложно оценивать, а если это ещё и концертник MY DYING BRIDE… руки опускаются сами собой. Одно ясно: подвергать такой вот "шедевр" критике бессмысленно. Поклонники группы и "просто" думстеры так или иначе пополнят им свою коллекцию. Плох ли "Voice Of The Wretched", хорош ли – дело десятое. И скажите ещё, что я не прав. Сложность заключается и в том, что меня с лёгкостью можно причислить к вышеупомянутым личностям (читай – поклонникам творчества Аарона и компании). Так что любой объективизм в данном случае пресекается на корню. Альбом неплох. Вполне возможно, что даже хорош. В конце концов, вряд ли кто ожидал, что MY DYING BRIDE вживую коверкают собственные композиции до неузнаваемости, а до кучи ещё и угорают почище THE EXPLOITED. Пресловутого угара – ноль. Каких-либо изменений в исполненных песнях – ноль. Импровизации? Да вы шутите! НО. Скажите на милость, были бы "май дайинг брайд" "май дайинг брайдами", если бы на их концернике присутствовало хоть что-то из вышеперечисленного? Нет. Не были бы. Находясь на сцене, Аарон и музыканты практически ни на шаг не отступают от "альбомных" версий своего творчества, и спасибо им за это огромное. MY DYING BRIDE – не та группа, от "живого" выступления которых ожидаешь чего-либо неожиданного. Более того – и не хочешь ожидать. Публика? А что публика? Она спокойна как удав. Что также никак не походит на откровение. Дум он и в Африке (в данном случае – в Голландии) дум. Звук исключительно чёток – видимо, как и многие другие концертники, этот не обошёлся без основательной доводки в студии. Игра музыкантов на пару с вокалом Аарона давят любую критику в зародыше. Единственный, и к сожалению, достаточно серьёзный минус, заключается в том, что ставка была сделана на свежие и относительно свежие вещи. Где, чёрт возьми, "Sear Me MCMXCIII"? Где "The Crown Of Sympathy"? Где "Sear Me"? Где "The Forever People"? Плохо. С другой стороны, могло быть хуже – ведь есть-таки на альбоме "The Snow In My Hand", "Turn Loose The Swans", "Your River". "Symphonaire Infernus Et Spera Empyrium", наконец. Так что в общем и целом, затея с выпуском концертника на поверку оказалась довольно удачной. Приятных сновидений…</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR><BR> + конкурс от HATE и Moral Insanity Prods [email: moralinsanity@tut.by]<BR><BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.10.2002 articles Новинки лицензионного рынка (21.10 - 28.10)
+
+<p>В данных заметках, мы постараемся доносить до Вас всё то, новое, что Вы можете обнаружить на прилавках магазинов на этой неделе. Оценок не ждите… Всё в рубрике рецензии.</p>
+<p> Начнём по алфавиту. ART Music Group на прошлой неделе представила на наш суд четыре новые позиции.<IMG SRC="/images/articles_rus/2002.10/3294.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> <IMG SRC="/images/articles_rus/2002.10/3295.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">Сенсацией стало появление на лицензии по вполне доступным ценам нового альбома Kingdom Come “Independent”. Можно не разбираться в рок-музыке прошлого века, но не знать этого коллектива нельзя. Оценивать новое творение, оставим специалистам, но не признать того, что Ленни Волф – новая величина на лицензионном рынке нельзя. Спасибо AMG! Второй новиной, по известности, стал новый альбом Mystic Circle “Damien”. На прошлом альбоме группа отошла от black в сторону death. Что сейчас? Читайте <a href=”http://musica.mustdie.ru/ru/band/mystic_circle/6603/#reviews”>здесь</a>. И две последние не вполне известные группы. Medusa со своим sympho-power и Inner Shrine с gothic-metal.</p>
+<p> CD-Maximum представят на этой неделе нашему вниманию две новинки. <IMG SRC="/images/articles_rus/2002.10/3296.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">.<IMG SRC="/images/articles_rus/2002.10/3293.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> Trollheim's Grott "Bizzare Troll Technology" – альбом 2001 года, анонсирован, как нестандартный black-metal. И новый альбом группы Arwen, представляющий собой power-metal с прогрессивными элементами. Эти испанцы из конюшни Arise Records, на которой могут быть, как очень хорошие группы, так и откровенно слабые, но всё равно любителям power стоит попробовать.</p>
+<p> Следом идёт Fono, со своими новинками прошлой недели. Во-первых, это новый альбом Rotting Christ. Если Вы ещё его не купили на пиратке, купите лучше на лицензии. И ещё одна новинка по лицензии Century Media Borknagar “Quintessence”. Альбом начала этого года уже стал редкостью на рынке пиратов. Вперёд black-metal!</p>
+<p> Irond Records – контора, у которой без новинок не проходит ни одна неделя.<IMG SRC="/images/articles_rus/2002.10/3297.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="left">.<IMG SRC="/images/articles_rus/2002.10/3298.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="right"> На этот раз настоящей бомбой станет новый альбом Lake Of Tears “Neonai”. Пускай его уже тысячными тиражами продают пираты, настоящий любитель ждёт именно этого релиза. Вторым по значению стал подарок фэнам немецкой folk музыки – новый альбом Morgenstern, которые продолжают гнуть свою “In Extremo” подобную линию. Два следующих релиза Frown и Poema Arcanus представляют собой практически идентичные альбомы в жанре doom-metal – тяжёлые и медленные. Ну и напоследок Abaddon Incarnate. Irond не стесняется указывать весьма средние оценки в прессе для этого альбома, ведь это death-grind “молотилово», кто его поймёт кроме самого преданного фэна.</p>
+<p> Ну и последними по алфавиту стали и, видимо, останутся Soyuz, которые продолжают разрабатывать ниву Inside Out Records. На этой неделе всё-таки выйдут два старых альбома Symphony X. А на прошлой появились три старых альбома My Dying Bride, и альбом Anathema “Silent Enigma” (это уже, естественно, Peaceville).</p>
+<p>Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 29.10.2002 news My Dying Bride начали готовить новый альбом
+
+<p>После завершения серии удачных концертов в Европе My Dying Bride вернулись домой и начали сочинять песни для нового альбома.</p>
+
+Автор: Morsus
+
+### 29.10.2002 news My Dying Bride starts writing new album
+
+<p>After finishing a set of excellent concerts in Europe, My Dying Bride are now back home and have started writing for a new album.</p>
+
+Автор: Morsus
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 11.02.2003 news My Dying Bride вовсю сочиняют песни
+
+<p>My Dying Bride всю предстоящую весну будут заняты сочинением песен для уже восьмого по счёту альбома. В июне группа собирается записать своё новое творение в Academy Studios и выпустить готовый продукт к осени. Также не за горами новые концерты.</p>
+
+Автор: Morsus
+
+### 11.02.2003 news My Dying Bride are busy writing their 8th studio album
+
+<p>My Dying Bride are busy writing their 8th studio album through the spring. Hopefully the band will enter Academy Studios in June for an Autumn release. Live dates are also on the horizon, so stay tuned.</p>
+
+Автор: Morsus
+
+### 10.04.2003 news Переиздание классики doom-death metal
+
+<p>Peaceville Records анонсировали выпуск трех классических doom-death альбомов в формате диджипаков в ремастированном виде и с дополнительными бонусами. Выбор лэйбла выпал на такие альбомы, как MY DYING BRIDE "The Angel And the Dark River", PARADISE LOST "Gothic" и ANATHEMA "The Silent Enigma". Все три альбома выйдут в новом виде летом 2003 года.</p>
+
+Автор: Dimas
+
+### 11.07.2003 news Тринадцатая Глава
+
+<p>Угрюмые англичане My Dying Bride начали запись нового альбома в Academy Studios, который будет продолжением их предыдущего релиза 2001 года 'The Dreadful Hours'. На данный момент новый опус не имеет официального названия, но группа этим альбомом отмечает свой тринадцатый релиз, поэтому рабочее название нового диска 'The Thirteenth Chapter' (Тринадцатая глава). Говорят, что новая работа будет очень "темной и запутанной". Запись будет закончена в августе, в настоящее время релиз запланирован на 20 октября.</p>
+
+Автор: Darkfall
+
+### 11.07.2003 news MY DYING BRIDE...
+
+<p>Yorkshire's best bitter men are holed up in Academy Studio's recording the follow up to 2001's massive The Dreadful Hours album. No title as yet, but as the band recently celebrated their 13th anniversary the working title is The Thirteenth Chapter. We've lurked around the studio a couple of times for a sneak preview & can report back that it's sounding very dark & very twisted. The session ends in August with the album set for release on October 20th. A one off UK show at The Astoria on Halloween will celebrate the release. <BR> <BR> The band also take a couple of breaks from recording in July to play the 'With Full Force Festival' (Germany) on the 6th. 'The Skeleton Bash Festival' (Austria) on the 26th July & 'Sziget Festival' (Hungary) on the 31st.</p>
+
+Автор: Yermola
+
+### 03.10.2003 news MY DYING BRIDE tour dates (w&#x2F; THE PROPHECY)
+
+Oct. 31 – London, UK @ Astoria<BR>Nov. 01 – Utrecht, NETH @ Tivoli <BR>Nov. 02 – Antwerp, BEL @ Hof Ter Lo
+Автор: Vit Belov
+
+### 07.10.2003 news MY DYING BRIDE откладывается
+
+Из-за проблем с артворком, выпуск нового альбома британских думстеров <B>MY DYING BRIDE</B> <B>"The Thirteenth Chapter" </B>отложен на&nbsp;февраль 2004 года. Релиз ожидается на <B>Peaceville Records.</B>
+Автор: Dimas
+
+### 15.01.2004 news Последние новости от MY DYING BRIDE
+
+<P><B>MY DYING BRIDE</B>&nbsp;окончательно определились в ситуации со своим восьмым альбомом <B>"Songs Of Darkness, Words Of Light"</B>. Он выйдет 9 марта 2004 года на&nbsp;<B>Peaceville Records. </B>Альбом был записан в <B>Academy Studios</B> с продюсером по имени <B>Mags. </B>Окончательный трек-лист альбома:</P>
+<P>1. <B>The Wreckage of My Flesh</B><BR>2. <B>The Scarlet Garden</B><BR>3. <B>Catherine Blake</B><BR>4. <B>My Wine in Silence</B><BR>5. <B>The Prize of Beauty</B><BR>6. <B>Blue Lotus</B><BR>7. <B>And My Fury Stands Ready</B><BR>8. <B>A Doomed Lover</B></P>
+Автор: Dimas
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.03.2004 reviews Этот альбом не будет лучшим у MDB никогда
+
+<DIV><I>Великолепные, классические, шедевральные... Это всё они!!! Романтический Doom-metal в своём лучшем виде.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>MY DYING BRIDE</B> выпустили новый альбом. На дворе 2004 год, и их уже называют живыми классиками стиля, более того, даже большинство их многочисленных последователей уже не существует. Англичане на протяжении всей своей истории (кроме одного альбома) находятся в определённых рамках, за пределы которых не выходят. Лишь только от альбома к альбому&nbsp;переходят&nbsp;от самых "брутальных" и тяжёлых для восприятия форм своей музыки (прошлый альбом "<B>Dreadful Hours</B>") до более мелодичных. Это метание началось после провальной пластинки "<SPAN style="COLOR: #ffffff"><A href="/ru/band/my_dying_bride/2961/">34.788%... Complete</A></SPAN>". С тех пор каждый новый альбом принято сравнивать с одним из классических с 1992 по 1996.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Новейшая работа заслуживает сравнения с&nbsp;<B>'Like gods Of The Sun'</B>, который&nbsp;не является&nbsp;самым сильным альбомом группы, но он вполне заслуженно относится к классике doom-metal.&nbsp;На новой работе мелодии достаточно хороши, вокал, как обычно, потрясающий (встречается гроулинг), &nbsp;но чего-то не хватает.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Чего не хватает? Скрипки, конечно же... Ведь и она была отличительной чертой классики <B>MDB</B>. Есть клавишные, но они не играют ведущей роли, и звучат посредственно. Для кого как, но для меня, группа теряет довольно много от отсутствия ведущего мелодичного инструмента.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>'Songs Of Darkness'</B> - всё равно очень хорош, но ... Его надо с чем-то сравнивать, как самостоятельное произведение он вряд ли будет котироваться, и&nbsp;этот альбом&nbsp;никак не окажется лучшим альбомом <B>MY DYING BRIDE</B>.</DIV>
+Автор: Vit Belov
+
+### 31.03.2004 reviews Невеста никак не умрет
+
+<P>Каких мы ждем альбомов от исполнителей формата My Dying Bride? Или шедевров, или, по крайней мере, хороших, крепких работ. Новый релиз МДБ шедевром, безусловно, не назовешь, но хорошей пластинкой - вполне.&nbsp;От этой группы вряд ли можно ожидать теперь экспериментов (помните, как провалились "Проценты", хотя немалая часть фанатов "Невесты" считает этот альбом чуть ли не лучшим в их дискографии), и в этот раз мы получаем... просто еще один альбом My Dying Bride. Стандартный дум со стандартным "поюще-разговаривающим" вокалом Аарона, который кто-то считает лучшим в стиле, а кто-то называет "слезно-сопливым". Может, в свое проклятое время МДБ установили планку для&nbsp;их музыки так высоко, что теперь уже, постарев и заматерев, просто не могут до нее допрыгнуть? Рекомендуется, конечно же, всем фанатам "Моей умирающей", но я не стал бы советовать начинать знакомиться с творчеством этих англичан с данного альбома. Тем, кто любит рассматривать буклетики, могу сказать, что оформление сделано в лучших традициях жанра.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 12.04.2004 news SIRENIA первая в марте и по итогам первого квартала
+
+<P>Так выглядит десять лучших позиций по итогам продаж в магазине <B>B2-100 'Metal & Progressive'</B> в "Горбушкином Дворе" в марте:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=481 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD></TR></TBODY></TABLE></P>
+<P>Феноменальные продажи нового альбома <B>Morten Veland (ex-Tristania)</B> и его группы <B>SIRENIA </B>позволили им занять первое место по итогам квартальных продаж. А вот как выглядит десятка по итогам первого квартала 2004 года:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=563 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 154pt" width=205>
+<COL style="WIDTH: 269pt" width=358>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=205 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=358><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ЭПИДЕМИЯ</B></TD>
+<TD><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ICED EARTH</B></TD>
+<TD><B>GLORIOUS BURDEN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>MY DYING BRIDE</B></TD>
+<TD><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 24.01.2005 news MY DYING BRIDE пишут новый материал
+
+<P><STRONG>MY DYING BRIDE</STRONG> сейчас активно сочиняют новый материал и готовятся к живым выступлениям.&nbsp;На Рождество повредил руку барабанщик группы <STRONG>Shaun</STRONG>, пока он не выздоровеет, его место займёт<STRONG> John</STRONG> из группы <STRONG>THE PROPHECY</STRONG>.&nbsp;&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 24.01.2005 news Update from MY DYING BRIDE
+
+<P>Drummer of <STRONG>MY DYING BRIDE</STRONG> <STRONG>Shaun Steels</STRONG> has injured his ankle in a canoeing accident before Christmas. At first it was thought to be not very serious, but at the recent filming of <STRONG>The Blue Lotus</STRONG> video it turned out that the drumming has caused the injury to reappear. <STRONG>John</STRONG> from <STRONG>THE PROPHECY</STRONG> has agreed to stand in until <STRONG>Shaun</STRONG> has recovered. The band is now actively writing new stuff, rehearsing for and organising gigs.</P>
+Автор: Vit Belov
+
+### 18.02.2005 news MY DYING BRIDE выпускают второй DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<STRONG>Sinamorata</STRONG>" - так будет называться новое DVD от <STRONG>MY DYING BRIDE</STRONG>. На него войдут: 12-песенный концерт в Антверпене, снятый в конце 2003 года, а также 2 промо-видео группы и 2 видео снятых фэнами.</FONT></P>
+Автор: Vit Belov
+
+### 19.02.2006 news MY DYING BRIDE войдут в студию
+
+<P><STRONG>MY DYING BRIDE</STRONG> войдут в студию в апреле для записи нового альбома, который выйдет в этом году.</P>
+Автор: Vit Belov
+
+### 26.02.2006 news DECAPITATED выступят на Metal Camp Festival
+
+<P>Польские мастера дэт-метала <B>DECAPITATED</B>&nbsp;выступят 22 июля на фестивале <B>Metal Camp Festival</B>, который пройдет в Словении, в городе Толмин, с 21 по 23 июля. Об участии в этом музыкальном празднике также заявили такие монстры, как <B>DIMMU BORGIR, SAXON, TESTAMENT, AMON AMARTH, MY DYING BRIDE, HYPOCRISY, EDGUY, GOREFEST</B>.</P>
+<P>Подробности смотрите на: <A href="http://www.metalcamp.com/"><U>http://www.metalcamp.com/</U></A></P>
+Автор: Ixtiandr
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 10.05.2006 news MY DYING BRIDE записывают новые песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY DYING BRIDE</STRONG> уже записали пять песен для своей новой пластинки. Никаких подробностей не сообщается, известно только, что барабанные партии записал сессионный музыкант <STRONG>John (THE PROPHECY)</STRONG>, основной барабанщик <STRONG>MY DYING BRIDE Shaun</STRONG> продолжает мучаться с локтем, который травмировал ещё в прошлом году.</FONT></P>
+Автор: Vit Belov
+
+### 08.08.2006 news Новый альбом MY DYING BRIDE
+
+<P>Новый альбом британского коллектива <STRONG>MY DYING BRIDE</STRONG> будет называться <STRONG>'A Line Of Deathless Kings'. </STRONG>Он записывается в <STRONG>Academy Studios, </STRONG>а микширование пройдет в<STRONG>&nbsp;Chapel Studios</STRONG>. Выход альбома ожидается в конце 2006 года.</P>
+Автор: Dimas
+
+### 21.08.2006 news MY DYING BRIDE выйдет в октябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=407 alt="" hspace=0 src="/images/news_rus/2006.08/10625.jpg" width=400 align=right border=5>MY DYING BRIDE</STRONG> объявили дату выхода нового альбома "<STRONG>A Line Of Deathless Kings</STRONG>". Пластинка увидит свет 9 октября на<STRONG> Peaceville</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>To Remain Tombless</STRONG> 6:06 <BR>2. <STRONG>L'Amour Detruit</STRONG> 9:08 <BR>3. <STRONG>I Cannot Be Loved</STRONG> 7:04 <BR>4. <STRONG>And I Walk With Them</STRONG> 6:37 <BR>5. <STRONG>Thy Raven Wings</STRONG> 5:22 <BR>6. <STRONG>Love's Intolerable Pain</STRONG> 6:14 <BR>7. <STRONG>One of Beauty's Daughters</STRONG> 5:40 <BR>8. <STRONG>Deeper Down</STRONG> 6:28 <BR>9. <STRONG>The Blood, The Wine, The Roses</STRONG> 8:21 </P>
+<P>18 сентября выйдет сингл "<STRONG>Deeper Down</STRONG>", на который кроме новой вещи войдут эксклюзивный трэк "<STRONG>The Child Of Eternity</STRONG>" и концертная версия "<STRONG>A Kiss To Remember</STRONG>".</P>
+Автор: Vit Belov
+
+### 07.11.2006 reviews Практически сплошное занудство, увы...
+
+<P>На своем очередном студийном альбоме ветераны британского дума My Dying Bride решили практически полностью отказаться от гроулинга/скриминга, и почти всё время, что длится "A Line Of Deathless Kings" мы слышим чистый вокал Аарона, нравится нам это или нет (лично мне - нет). Честно скажу, первая вещица на этой пластинке под названием 'To Remain Tombless' вселила какую-то надежду, ибо ничего особо интересного от "Умирающей невесты" я не ждал. А тут интересный рифф, хорошая мелодия. Однако надежда развеялась по почти уже зимнему ветру, дующему сегодня за окном в этот морозный и неприятный ноябрьский день, уже на следующей песне. И началась тягомотина, да простят меня фанаты группы за столь обидное определение. Альбом стал превращаться в одну длинную тягучую песню, причем совсем не в лучшем смысле этого слова, так как подобные эпитеты для дума дело вполне нормальное и даже естественное.&nbsp;От страдающе-рыдающе-плачуще-ревущей музыки ничего не осталось, теперь это философски отстраненное созерцание происходящего вокруг. От грусти и меланхолии MDB на "A Line Of Deathless Kings" не щемит сердце, по телу не бегут мурашки, не хочется ни выть, ни плакать, ни любить, ни ненавидеть, хочется лишь только, чтобы эта пластинка побыстрее закончилась. Я питаю достаточное уважение к этой группе, иначе я бы высказался просто двумя словами - сплошное занудство. И после четырех прослушиваний данного релиза я не нашел, увы и к сожалению, ничего такого, чем чуть ли не с пеной у рта восхищаются мои коллеги по задурманиванию вам мозгов своими рецензиями. Не скажу, что это худшая работа My Dying Bride, но до собственных шедевров времен уже давно ушедших им очень далеко...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 25.02.2007 news Смены состава в MY DYING BRIDE
+
+<P>По разным причинам<STRONG> MY DYING BRIDE</STRONG> покинули басист <STRONG>Adrian Jackson</STRONG> и барабанщик <STRONG>John Bennet</STRONG>. На их места уже найдены замены. Имя басиста пока не называется, а новым барабанщиком <STRONG>MY DYING BRIDE</STRONG> стал <STRONG>Dan Mullins</STRONG> (<STRONG>BAL-SAGOTH</STRONG>).</P>
+Автор: Vit Belov
+
+### 26.03.2008 news MY DYING BRIDE вошли в студию
+
+<P><STRONG>MY DYING BRIDE</STRONG> вошли в студию для записи нового альбома. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 11.04.2008 news Концертник MY DYING BRIDE
+
+<P>28 апреля на <STRONG>Peaceville</STRONG> выходит новое CD/DVD <STRONG>MY DYING BRIDE</STRONG> <STRONG>"An Ode to Woe". </STRONG>На digi-pack издание попадёт концерт, отснятый в апреле прошлого года в Амстердаме. Трэк-лист:</P>
+<P>01. <B>To Remain Tombless</B><BR>02. <B>My Hope, The Destroyer</B> <BR>03. <B>For You</B><BR>04. <B>The Blue Lotus</B> <BR>05. <B>Like Gods Of The Sun</B> <BR>06. <B>Catherine Blake</B> <BR>07. <B>The Cry Of Mankind</B> <BR>08. <B>The Whore, The Cook & the Mother</B> <BR>09. <B>Thy Raven Wings</B> <BR>10. <B>The Snow In My Hand</B> <BR>11. <B>She Is The Dark</B> <BR>12. <B>The Dreadful Hours</B> <BR>13. <B>The Forever People</B> * (on DVD only)</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/R7cESfia67k&hl=en"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/R7cESfia67k&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 28.06.2008 news MY DYING BRIDE взяли скрипача
+
+<P><STRONG>MY DYING BRIDE</STRONG> объявили имя нового музыканта группы. Англичане вновь взяли в состав скрипача, который уже работает над новым альбомом вместе с остальными. Имя? <STRONG>Katie Stone</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.11.2008 news Новый альбом MY DYING BRIDE
+
+<P>Новый альбом <STRONG>MY DYING BRIDE</STRONG> должен выйти в начале 2009 года на <STRONG>Peaceville</STRONG>. Пластинка получила название <STRONG>"For Lies I Sire". </STRONG>Трэк-лист:</P>
+<P>01. <B>Fall With Me</B><BR>02. <B>My Body, A Funeral</B><BR>03. <B>The Lies I Sire</B><BR>04. <B>Bring Me Victory</B> <BR>05. <B>Echoes From A Hollow Soul</B> <BR>06. <B>ShadowHaunt</B> <BR>07. <B>Santuario Di Sangue</B> <BR>08. <B>A Chapter in Loathing</B> <BR>09. <B>Death Triumphant</B> </P>
+Автор: Vit Belov
+
+### 16.01.2009 news Премьера новой песни MY DYING BRIDE
+
+<P>Новую песню <STRONG>MY DYING BRIDE</STRONG> <STRONG>"My Body, A Funeral" </STRONG>можно послушать ниже в радио-качестве. Её премьера состоялась позавчера на шоу "<STRONG>Tinitus</STRONG>". Новый альбом <STRONG>"For Lies I Sire" </STRONG>выйдет 23 марта на <STRONG>Peaceville</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CTW-RfKG_Js&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/CTW-RfKG_Js&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.01.2009 news Обложка MY DYING BRIDE
+
+<P>Новый альбом <STRONG>MY DYING BRIDE</STRONG> <STRONG>"For Lies I Sire" </STRONG>выходит 23 марта на<STRONG> Peaceville</STRONG>. В сети появилась обложка этой работы.</P>
+<P><center><IMG height=394 src="/images/news_rus/2009.01/13442.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.02.2009 news Превью нового MY DYING BRIDE
+
+<P>Новый <STRONG>MY DYING BRIDE</STRONG> <STRONG>"For Lies I Sire" </STRONG>выходит 23 марта на <STRONG>Peacevill</STRONG>e. Группа выложила превью этой пластинки на своём сайте.</P>
+<P>Ссылка: <A href="http://www.mydyingbride.org/samples.php">http://www.mydyingbride.org/samples.php</A></P>
+Автор: Vit Belov
+
+### 04.04.2009 news MY DYING BRIDE покоряют Финляндию
+
+<P>Новый альбом <STRONG>MY DYING BRIDE</STRONG> <STRONG>"For Lies I Sire" </STRONG>попал в финские чарты на 24-ое место.</P>
+Автор: Vit Belov
+
+### 12.04.2009 reviews Неужели MY DYING BRIDE концертная группа?
+
+<P>MY DYING BRIDE были одной из моих любимых групп с самого начала. Первые четыре альбома до странного «процентного» альбома позволили причислить англичан к этому списку. Оригинальный вокал, великолепные мелодии, скрипка… Но даже в то голодное до концертов время я вряд ли предположил бы, что MDB жгут на концерте. В то время продавалась какая-то видеокассетка, где скрипач Martin Powell забавно рубился между своими партиями, но всё это воспринималась, как шутка. Кто может провести полтора часа в зале, слушая такой “кошмар”.</P>
+<P>Сейчас я пришёл к мысли, что слушать death-doom на концерте, за редким исключением, не рекомендуется вовсе. Тем страннее тот факт, что MY DYING BRIDE выпускают уже второй концертник за шесть лет, а кроме этого в дискографии англичан можно обнаружить две видеокассеты и два DVD. Странное желание выставить на всеобщее обозрение своё незабываемое шоу. В этот раз в кадр попало выступление MY DYING BRIDE в Амстердаме в 2007 году. Большой зал, всё в дыму, витражи на заднике и вокалист Aaron. Вот в принципе и всё. Дым и задник быстро надоедают, поэтому есть смысл предположить, что основным действующим лицом является вокалист группы, рыцарь печального образа. Свои стихи он зачитывает с неизменным выражением и подпитывает мрачное настроение своей актёрской игрой и измазанными в чём-то чёрном руками. Не подумайте чего плохого, но мне действительно странно наблюдать за людьми, которые с затаённым дыханием наблюдают за этим «перформансом». На сцене практически ничего не происходит, глубоко личная музыка MY DYING BRIDE вряд ли располагает к прослушиванию её в тесной толпе перед сценой. Лично для меня было бы, вообще, приятнее не видеть этих рук в ваксе, чтобы не портить впечатление от местами действительно прекрасной музыки. И отмечу отсутствие скрипки, которая сейчас вернулась в музыку MDB, но на концерте новой девушки ещё не было.</P>
+<P>Можно ли называть своей любимой группу, у которой нравятся все четыре альбома из четырёх? Можно ли называть любимой группу, у которой нравится четыре альбома из десяти? К сожалению, с середины 90-х MY DYING BRIDE не удалось выпустить ни одного альбома, который без натяжки можно было бы сравнивать с дебютными работами. На концерте это также прекрасно заметно. Те ПЕСНИ узнаются без труда. Сейчас MDB превратились больше в группу текстов Aaron, сопровождаемую музыкой, которая устраивает старых поклонников, не выбиваясь за рамки стиля. Былого шарма уже не осталось. Теперь коллектив выпускает концертники, сборники… Обычная история. </P>
+Автор: Vit Belov
+
+### 10.06.2009 news MY DYING BRIDE поменяли скрипача
+
+<P>Скрипачка/клавишница <STRONG>Katie Stone</STRONG> покинула <STRONG>MY DYING BRIDE</STRONG>, чтобы сконцентрироваться на своей карьере психолога. Новым музыкантом стал <STRONG>Shaun Macgowan, </STRONG>который пока не является постоянным участником коллектива.</P>
+Автор: Vit Belov
+
+### 11.08.2009 news MY DYING BRIDE готовят миньон
+
+<P><STRONG>MY DYING BRIDE</STRONG> сейчас находятся в студии <STRONG>Futureworks, </STRONG>где записывают новый мини-альбом <STRONG>"Bring Me Victory", </STRONG>который выйдет в октябре. На альбом попадут две кавер-версии <STRONG>"Scarborough Fair"</STRONG>&nbsp;и <B>THE SWANS</B>' <B>"Failure"</B>. </P>
+Автор: Vit Belov
+
+### 12.10.2009 news Видео MY DYING BRIDE
+
+<P>Новый клип <STRONG>MY DYING BRIDE</STRONG> на песню <STRONG>"Bring Me Victory" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/kImi2HvrRx8&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/kImi2HvrRx8&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.04.2011 news MY DYING BRIDE выпустят юбилейный альбом
+
+<P><IMG height=427 alt="" hspace=0 src="/images/news_rus/2011.04/19101.jpg" width=450 align=right border=0>31 мая на <STRONG>Peaceville</STRONG> выйдет двойной альбом, посвящённый 20-летнему юбилею <STRONG>MY DYING BRIDE</STRONG>. Релиз получил название <STRONG>"Evinta", </STRONG>и это специальный проект британцев. На нём они переработают свои известные мелодии в симфоническом ключе. В записи альбома, помимо вокалиста группы <STRONG>Aaron Stainthorpe, </STRONG>принял клавишник <STRONG>BAL-SAGOTH</STRONG> <STRONG>Johnny Maudling, </STRONG>создавший классические аранжировки, а так же несколько музыкантов, не имеющих отношения к тяжёлой музыке. Например,&nbsp;профессиональная оперная певица&nbsp;<STRONG>Lucie Roche</STRONG>. Трек-лист (мелодии получили новые названия):</P>
+<P>Disc 1 <BR>01. <B>In Your Dark Pavilion</B> <BR>02. <B>You Are Not The One Who Loves Me</B> <BR>03. <B>Of Lilies Bent With Tears</B> <BR>04. <B>The Distance, Busy With Shadows</B> <BR>05. <B>Of Sorry Eyes In March</B> <BR><BR>Disc 2 <BR>01. <B>Vanite Triomphante</B> <BR>02. <B>That Dress And Summer Skin</B> <BR>03. <B>And Then You Go</B><BR>04. <B>A Hand Of Awful Rewards</B></P>
+Автор: Vit Belov
+
+### 01.08.2011 news MY DYING BRIDE запишут EP
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Боги doom-metal<STRONG> MY DYING BRIDE</STRONG> готовятся войти в <STRONG>Futureworks Studios </STRONG>в конце августа для записи нового EP, который выйдет в этом году. Продюсером как всегда выступит <STRONG>Mags</STRONG>. Миньон представит одну большую концептуальную вещь на 25 минут, разделённую на три части.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=309 src="/images/news_rus/2011.08/20386.jpg" width=450 border=0></FONT></P>
+Автор: Vit Belov
+
+### 31.07.2012 news MY DYING BRIDE: трек-лист и обложка альбома &quot;A Map Of All Our Failures&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24462.jpg" width=450 height=450>Группа <STRONG>MY DYING BRIDE</STRONG> заканчивает работу над новым студийным альбомом. Стали известны трек-лист и обложка альбома, который получил название <STRONG>"A Map Of All Our Failures"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Релиз состоится на <STRONG>Peaceville Records</STRONG> в середине октября 2012 г.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор обложки: <STRONG>Gyula Havancsak</STRONG> (<A href="http://hjules.com/">http://hjules.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. <STRONG>Kneel Till Doomsday<BR></STRONG>2. <STRONG>The Poorest Waltz<BR></STRONG>3. <STRONG>A Tapestry Scorned<BR></STRONG>4. <STRONG>Like A Perpetual Funeral<BR></STRONG>5. <STRONG>A Map Of All Our Failures<BR></STRONG>6. <STRONG>Hail Odysseus<BR></STRONG>7. <STRONG>Within The Presence Of Absence<BR></STRONG>8. <STRONG>Abandoned As Christ</STRONG></P>
+Автор: Headcrusher
+
+### 26.08.2012 news MY DYING BRIDE выйдет в октябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.08/24681.jpg" width=475 height=475>Новый альбом британских легенд gothic-doom-metal <STRONG>MY DYING BRIDE</STRONG> получил название <STRONG>"A Map Of All Our Failures". </STRONG>Альбом выйдет в середине октября на<STRONG> Peaceville</STRONG> и будет доступен на виниле, CD и в специальном CD/DVD digi-pack. Пластинка была сведена и записана в <STRONG>Futureworks Studios </STRONG>в Манчестере постоянным продюсером коллектива <STRONG>Rob "Mags" Magoolagan. </STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Согласно пресс-релизу, новый альбом шагает вперёд и оправдывает ещё более высокие ожидания, чем предшественник <STRONG>'For Lies I Sire'. </STRONG>Работа продолжает путешествие в тёмные глубины человеческой натуры, религии, фольклора, любви и смерти. Гитарист группы <STRONG>Andrew Craighan </STRONG>считает лучшей работой MY DYING BRIDE и описывает её, как "контролируемое разрушение всех надежд".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <B>Kneel Till Doomsday</B><BR>02. <B>The Poorest Waltz</B><BR>03. <B>A Tapestry Scorned</B><BR>04. <B>Like A Perpetual Funeral</B><BR>05. <B>A Map Of All Our Failures</B><BR>06. <B>Hail Odysseus</B><BR>07. <B>Within The Presence Of Absence</B><BR>08. <B>Abandoned As Christ</B></P>
+<P>Песню <STRONG>"Kneel Till Doomsday" </STRONG>можно послушать, используя виджет ниже. </P>
+<P>
+<CENTER><IFRAME height=400 src="http://emailunlock.com/peaceville-burning-shed/my-dying-bride-kneel-till/widget" frameBorder=0 width=300 allowTransparency scrolling=no></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.10.2012 reviews Пропади пропадом эти эксперименты
+
+<P>Ещё одни Боги gothic-doom-metal MY DYING BRIDE создали новый альбом в этом году. “A Map Of All Our Failures” стал очередным гимном безнадёжности в исполнении этой британской группы. Уже двенадцатый полноформатный гимн, считая прошлогоднюю “Evinta”, а поклонники коллектива всё никак не покончат с собой.</P>
+<P>Предыдущий сборник “Evinta” был некоторым образом новаторским в дискографии группы. Переработанные хиты за всю историю, в симфоническом варианте предстали практически неузнаваемыми. Видимо, MDB израсходовали весь новаторский запал с этим альбомом, как израсходовали они его с кошмарным “34.78 %” в 1998 году. Следующий альбом получается в этом случае у группы настолько обычным и приятным слуху, что даже где-то не по себе от этой обычности. Обозреваемая работа английской команды предлагает практически всё, что требуется её «олдскульным» фанатам. На мой вкус, побольше бы скрипочки, но в остальном в стилистической форме никакого изъяна не обнаруживается. С мелодической точки зрения у MY DYING BRIDE не всё так хорошо. Запоминающих хитов, какими прославились классические работы коллектива, здесь явно не хватает. За душу берут лишь несколько фрагментов, а в остальном группа предлагает мрачное думовое рубилово, на котором даже нашлось маленькое местечко гроулингу.</P>
+<P>Прорыва от MY DYING BRIDE, пожалуй, сейчас ждут лишь самые восторженные натуры. Группа, как принято сейчас говорить, достаточно давно исписалась, но, придерживаясь собственного стиля, музыканты продолжают радовать своих самых преданных поклонников.</P>
+Автор: Vit Belov
+
+### 04.01.2013 news Новый клип MY DYING BRIDE
+
+<P>Новый клип британских думстеров <STRONG>MY DYING BRIDE</STRONG> на песню <STRONG>"The Poorest Waltz". </STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/DHx1YdhrEAQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 10.06.2014 news MY DYING BRIDE: изменения в составе
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.06/27054.jpg" width=306 height=435>Doom-гранды&nbsp;<STRONG>MY DYING BRIDE</STRONG>&nbsp;сообщили о своём расставании с гитаристом Хэмишом Гленкроссом&nbsp;(<STRONG>Hamish Glencross</STRONG>, на фото). В качестве причины указанны "непримиримые разногласия".</P>
+<P>Также <STRONG>MY DYING BRIDE</STRONG> обещают, что данное проишествие никак не повлияет на все три&nbsp;их&nbsp;выступления, запланированные на 2014 г.:</P>
+<P>Фестиваль "Copenhell", 13&nbsp;июня&nbsp;Friday the 13th June<BR>Фестиваль "Metaldays", 25 июля<BR>Фестиваль "Brutal Assault", 9 августа</P>
+<P>В качестве замены, на этих шоу, выступит <STRONG>Robb Philpotts</STRONG>, гитарный техник группы&nbsp;в течении уже многих лет.</P>
+<P>Помимо этого, <STRONG>MY DYING BRIDE</STRONG> заявили о возвращении в состав Кэлвина Робертшоу (<STRONG>Calvin Robertshaw</STRONG>) <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>и сделала следующее &nbsp;заявление по этому поводу:</FONT></P>
+<P><EM>"Что ещё мы можем добавить к этому. Calvin - один из наших&nbsp;оригинальных гитаристов, который помог&nbsp;MY DYING BRIDE&nbsp;стать теми, кем они являются сейчас. Его уход после печально&nbsp;извсетного альбома "34.788% Complete", потряс нас всех, но сейчас мы убедили его вернуться и уверены, что его возвращение пройдёт успешно."</EM></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Лучший альбом My dying bride

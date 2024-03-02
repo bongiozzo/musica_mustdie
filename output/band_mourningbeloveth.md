@@ -127,6 +127,129 @@ Nothing (The March of Death)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.10.2001 news MOURNING BELOVETH...
+
+<p>Mourning Beloveth are currently writing more new songs for their next recording which will be their 2nd Album. They have 6 new songs completed at this stage and 2 more started. With 6 months to go until the planned recording date of the end of April 2002, MB hope to have plenty of new songs to pick from for the recording, with some left over for some planned 7„ and split releases. With more emphasis on song structure and varying moods within the new songs , this will see Mourning Beloveth heading in the direction of their newer and richer sound which was shown on the last song from DUST „ All Hope Is Pleading„  , but still continuing the Slow Heavy and Hypnotic base structure. After releasing their debut CD themselves on a limited budget and taking care of all promotion/sales themselves Mourning Beloveth have indeed made an impact. The long forgotten Doom Metal scene of early ;92/93 was reawakened and the appreciation of what MB does shows in the amazing reviews and sales reaching all parts of the world. There are talks with 2 labels who are interested in working with Mourning Beloveth and hopefully will help them release their 2nd cd.<br> Check out their website at www.clubi.ie/primordial/beloveth <br> Contact mourningbeloveth@ireland.com<br> New T-shirts Available<br> They are still looking for more distributers/interviews etc.<br><br> Recent reviews:<br> Terrorizer UK 7/10<br> Undertow Webzine 8/10<br> Spin City Belgium 16/20<br> Metal Coven Webzine 9/10<br> Tadas Lithuania 10/13<br></p>
+
+Автор: Yermola
+
+### 17.09.2002 news MassaBrutto Radioshow #108, 16-17 Sep 2002.
+
+<p>Playlist:<BR><BR> 1. CORPORATION 187 - Untitled (Earache)<BR> 2. MOURNING BELOVETH - In Mourning My Days (Sentinel Recs)<BR> 3. SCARIOT - Inside The Frame (band)<BR> 4. CARCASS - Buried Dreams (Earache)<BR> 5. CARCASS - Carnal Forge (Earache)<BR> 6. CARCASS - Death Certificate (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Радиопремьера HATE ETERNAL "King Of All Kings"<BR><BR> 7. HATE ETERNAL - King Of All Kings (Earache/Soyuz)<BR> 8. HATE ETERNAL - Born By Fire (Earache/Soyuz)<BR> 9. HATE ETERNAL - Rising Legions Of Black (Earache/Soyuz)<BR> 10. HATE ETERNAL - Chants In Declaration (Earache/Soyuz)<BR> 11. HATE ETERNAL - The Obscure Terror (Earache/Soyuz)<BR> 12. HATE ETERNAL - Powers That Be (Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 17.09.2002 news MassaBrutto Radioshow #108, 16-17 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. CORPORATION 187 - Untitled (Earache)<BR> 2. MOURNING BELOVETH - In Mourning My Days (Sentinel Recs)<BR> 3. SCARIOT - Inside The Frame (band)<BR> 4. CARCASS - Buried Dreams (Earache)<BR> 5. CARCASS - Carnal Forge (Earache)<BR> 6. CARCASS - Death Certificate (Earache)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> Presentation of HATE ETERNAL "King Of All Kings"<BR><BR> 7. HATE ETERNAL - King Of All Kings (Earache/Soyuz)<BR> 8. HATE ETERNAL - Born By Fire (Earache/Soyuz)<BR> 9. HATE ETERNAL - Rising Legions Of Black (Earache/Soyuz)<BR> 10. HATE ETERNAL - Chants In Declaration (Earache/Soyuz)<BR> 11. HATE ETERNAL - The Obscure Terror (Earache/Soyuz)<BR> 12. HATE ETERNAL - Powers That Be (Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Wake Up And Smell The Carcass", 1996]<BR><BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 13.11.2002 reviews One&#39;s own apocalypse
+
+<p>Strangely enough, a lot of doom metal efforts happened to come and cross my way lately. And not just ‘doom’ or this mainstream ‘doom / goth’ thing, but pure doom metal, which I'm sure most of you must have forgotten about. Or should I tell you, what happened to this genre lately? Yes, it currently seems to be almost nonexistent. Excluding MY DYING BRIDE, who would you name? SHAPE OF DESPAIR? DESIRE? A re-release of demo works and difficult-of-access CD by America's DUSK? THIS TANGLED WEB's promo single? A couple more? Well, this is only a few. However, today this “few” seem to be “a lot”. So well, isn't then “Dust's” re-issue a reason to rejoice? Since sorrowful, grievous doom metal deeply rooted in early nineties is exactly what these Irish offer anyone worthy enough to stand this soundtrack to a personal apocalypse. “Dust” is not just a regular re-edition; besides six original tracks (recorded at Academy in 2000, and made available a year later), it also features a song taken from the '98 demo as well as an unmixed song from forthcoming CD (“The Sullen Sulcus”, available approximately later this year). And needless to say, all the nine are excellent. Mostly slow as snail, it's surprisingly variable and thus exciting all the way through. Add fascinating “clean” (male) vocals, growling which is doubtlessly one of the most impressive I've ever heard and enigmatic arrangements, and… what will you get? MOURNING BELOVETH's “Dust”. A synonym for ‘doom’. A synonym for ‘perfection’.</p>
+<P>Website: <A HREF="http://www.mourningbeloveth.com">http://www.mourningbeloveth.com</A></>
+<P>Email: <A HREF="mailto:adrian@mourningbeloveth.com">adrian@mourningbeloveth.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+### 27.08.2003 reviews Вы соскучились по 90-м?
+
+<p>Признаться, я иногда скучаю по тем временам начала-середины 90-х годов, когда на пике популярности находились doom-death metal группы, которые покоряли сердца меланхолически настроенных слушателей. Медленные и тяжёлые, мелодичные и угарные композиции с шепчуще-плачущим чистым вокалом, классным гроулингом и звучанием гитар от Academy Studio или от Dan'a Swano. Именно, в первой и записан 'Dust', заставляеющий нас отправиться в путешествие "по волнам нашей памяти". Грустный, аккордный без явных всплесков, с вкаратчивыми соло-проигрышами. Ух! Так и хочется медленно опускать и поднимать голову с закрытыми глазами, наслаждаясь приятными воспоминаниями. Правда Mourning Beloveth явно не хватает скрипки или фортепиано, но это не отпугнёт всех любителей подобной музыки. Тем же, кому ничего не говорят мои сравнения, посоветую сначала послушать MY DYING BRIDE или ANATHEMA тех годов, всё-таки они по-хитовее.</p>
+
+Автор: Vit Belov
+
+### 12.05.2004 news Новый контракт Mourning Beloveth
+
+<B>Mourning Beloveth</B> заключили контракт на четыре альбома с <B>Grau Records</B>, подразделением <B>Prophecy</B>. Группа собирается записывать новый альбом в октябре.
+Автор: Vit Belov
+
+### 21.11.2004 news MOURNING BELOVETH готвятся к записи
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MOURNING BELOVETH</STRONG> сочинили пять новых песен для своего будущего альбома, который пока не получил названия. Коллектив готов войти в студию в ближайшие недели. Альбом выйдет в марте на <STRONG>Prophecy</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 21.11.2004 news MOURNING BELOVETH are ready for record
+
+<P><STRONG>MOURNING BELOVETH</STRONG> have 5 new songs, which they are going to record in near weeks. Album will be ready to release on March 2005 through <STRONG>Prophecy</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.12.2004 news MOURNING BELOVETH выпускают новый альбом
+
+<P>Новый альбом <STRONG>MOURNING BELOVETH 'A Murderous Circle'</STRONG> выходит в марте на <STRONG>Grau</STRONG>, подразделении <STRONG>Prophecy</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>The Apocalypse Machine</STRONG><BR>2. <STRONG>Elemental Nausea<BR></STRONG>3. <STRONG>The Crashing Wave</STRONG><BR>4. <STRONG>Nothing (The March of Death)<BR></STRONG>5. <STRONG>…yet Everything </STRONG></P>
+<P>Общее время звучания: 75 минут.</P>
+Автор: Vit Belov
+
+### 20.02.2006 reviews Убийственный ирландский цирк (не шапито)
+
+<P>5 трэков на 75 минут - как оно вам? А "оно" - это третий уже по счету альбом ирландского дэт-думового квинтета Mourning Beloveth. Не слышал их предыдущих релизов, "Dust" и "The Sullen Sulcus", но говорят, что они наделали немало шума на мировой дум-сцене. Группу стали даже называть "спасителями" дэт-дума. Но, может быть, всё-таки не надо торопиться? "Он всё время рвётся кого-то спасать" (с) товарищ Саахов. Но шутки в сторону. На самом деле, "A Murderous Circus" действительно хорош. Нельзя его назвать чем-то оригинальным, он просто построен по классическим правилам жанра, если можно так выразиться. Всё в миноре, многократные повторения одних и тех же тем, гудящие гитары, медленный темп, поюще-говорящий вокал (от гроула до чистого), очень длинные по времени композиции, соответствующие тексты, мрачноватый черно-белый буклет (кстати, очень стильный), общее настроение нескончаемой меланхолии и грусти, это более чем часовое путешествие по самым мрачным закуткам человеческой души. Не хочется приводить здесь сравнений с другими группами, иначе это может неточно передать общую атмосферу альбома, лучше его все же послушать вам самим. Не буду называть "A Murderous Circus" шедевральным или, как пишут некоторые критики, лучшим думовым релизом последних лет, но любители стиля должны его оценить. Тем же, кому понятие дум-метал еще мало знакомо, не советую начинать приобщаться к этому жанру с данной пластинки, она может показаться слишком затянутой, нудной и однообразной. Возможно, будь у Mourning Beloveth еще и какие-то свои фишки, я бы поставил им на балл больше...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 29.11.2006 news MOURNING BELOVETH остались без басиста
+
+<P>Ирландские титаны doom metal&nbsp;<B>MOURNING BELOVETH</B> расстались со своим басистом <STRONG>Adrian Butler</STRONG>, который сменил место жительства и больше не может уделять время коллективу.</P>
+Автор: Dimas
+
+### 23.03.2007 news Новости от MOURNING BELOVETH
+
+<P>Басист <STRONG>Adrian</STRONG> покинул ряды doom-стеров <STRONG>MOURNING BELOVETH</STRONG>. Тем временем группа планирует записать новый альбом в октябре.</P>
+Автор: Vit Belov
+
+### 30.10.2007 news Новый альбом MOURNING BELOVETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MOURNING BELOVETH</STRONG> <STRONG>'A Disease for the Ages'</STRONG>&nbsp;будет содержать пять песен и длиться 56 минут. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>The Sickness</B><BR>02. <B>Trace Decay</B><BR>03. <B>Primeval Rush</B><BR>04. <B>The Burning Man</B><BR>05. <B>Poison Beyond All</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пластинка выйдет в феврале.<BR></P></FONT>
+Автор: Vit Belov
+
+### 03.12.2008 news THE PROPHECY выступят на Moscow Doom Fest
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>THE PROPHECY</STRONG> объявила об участии в <STRONG>Moscow Doom Fest 2009</STRONG>. По сообщению этой группы, в этом пока не анонсированном событии примут участие <STRONG>MOURNING BELOVETH</STRONG> и <STRONG>MOURNFUL CONGREGATION</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 10.01.2013 news MOURNING BELOVETH выйдет в феврале
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом ирландских думстеров <STRONG>MOURNING BELOVETH "Formless"</STRONG> выйдет 22 февраля на <STRONG>Grau Music</STRONG>. Двухдисковое издание будет содержать следующие треки:</FONT></P>
+<P>Disc 1 <BR>01. <B>Theories of Old Bones</B><BR>02. <B>Ethics on the Precipice</B><BR>03. <B>Old Rope</B> <BR>04. <B>Dead Channel</B><BR>05. <B>Nothing Has a Centre</B> <BR><BR>Disc 2 <BR>01. <B>Transmissions</B></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25288.jpg" width=475 height=471></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/YH0mkunkvlc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 20.01.2016 news Новый альбом MOURNING BELOVETH
+
+<P>22 января на немецком лэйбле<STRONG> Van Records</STRONG> выйдет новый альбом ирландских death-doom metal'истов <STRONG>MOURNING BELOVETH "Rust & Bone"</STRONG>. Лимитированный digibook с золотым теснением уже сейчас можно приобрести в магазине escapemind.ru: <A href="http://escapemind.ru/goods/MOURNING-BELOVETH-Rust-Bone-digibook">http://escapemind.ru/goods/MOURNING-BELOVETH-Rust-Bone-digibook</A></P>
+<P>Трек-лист:</P>
+<P>1. Godether<BR>2. Rust<BR>3. The Mantle Tomb<BR>4. Bone<BR>5. A Terrible Beauty Is Born</P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/Qp9XR87zwhY" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.01.2016 reviews Атмосферное вступление к будущим альбомам
+
+<P>Ветераны death doom metal из Ирландии выпустили в начале этого года шестой альбом «Rust & Bone”. Первый альбом музыкантов «Dust” вышел ещё в 2001 году, был издан у нас на лицензии дважды (!!!), и группа получила заслуженную известность среди поклонников стиля. Классическое звучание на грани с funeral doom, но не лишённое мелодичности, заставляло раскупать тиражи всех фэнов тяжеляка со стажем.</P>
+<P>После серии отличных альбомов классического звучания группа не слишком смело, но планомерно стала включать в свои альбомы небольшое количество экспериментов. И вот, во второй раз сменив лэйбл, на этот раз MB обосновались на «полуандеграундном» Van Records, коллектив решил немного разнообразить своё звучание. «Rust & Bone” содержит пять треков, два из которых инструментальные. Три оставшихся композиции по длительности звучания вполне тянут на полноценный альбом, но в этот раз классический death doom разбавлен чистоголосым вокалом и атмосферными вставками. Это отправляет альбом в категорию «не для всех», и людям, которые в своих музыкальных вкусах придерживаются нордических пристрастий к определённым стилям, пластинка может показаться малоконкретной. Чувствуется, что MOURNING BELOVETH собираются рассказывать историю, и текущий альбом лишь первая глава её, а может и просто вступление.</P>
+<P>Хороший альбом для любителей death doom с атмосферой и разнообразным подходом к звучанию. Если же вы терпеть не можете атмосферные вставки, чистый вокал и лирические отступления, вы можете разочароваться.</P>
+<P>Купить на <A href="http://escapemind.ru/goods/MOURNING-BELOVETH-Rust-Bone-digibook">Escapemind.ru</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

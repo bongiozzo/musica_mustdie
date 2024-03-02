@@ -83,6 +83,378 @@ NS Pagan Folk Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.05.2003 reviews Бездарность под маской патриотизма
+
+<p>Хочу сразу сказать, что незавуалированный фашизм, которым наполнен буклет, прилагающийся к данному произведению, совсем не повлиял на мою рецензию. У нас музыкальный журнал, и в политику мы не лезем. Обратимся к музыке... Музыки здесь нет! Начнём с вступления и заключения. Почти 10 минут "бодяги" в виде однотонного звучания клавишных - уровень детского сада. Песни же выражают собой "гордость за русский фолклор"... Чёрт, вряд ли, появились бы здесь Чайковский и Мусоргский, если бы вся наша музыка росла из подобного "фолклора". Бестолковое пиликанье и дудение на трёх нотах, вот и вся музыка Temnozor. "Могучее баритональное пение", "мощные гитарные риффы", "аутеничные духовые инструменты"... Пропаганда CD-Maximum на уровне "гебельсовской" (простите за "неуместный каламбур"). Хочется объяснить людям, что данная музыка не имеет никакого отношения к гордости за народ. Это скорее оскорбительно для народа, иметь подобных гимно-сочинителей. Никакая работа...</p>
+
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 22.01.2004 articles Настоящий русский металл
+
+<P><B>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Последний альбом группы ТЕМНОЗОРЬ, несмотря на весьма своеобразную идеологию, в минувшем году побил все рекорды продаж, вызвав небывалый интерес у слушателей.&nbsp;Это сподвигло меня&nbsp;побеседовать с руководителем коллектива, чье имя, как, впрочем, и имена остальных музыкантов, пусть останутся анонимными.</B></P>
+<P align="center"><IMG height=375 alt="" hspace=10 src="/images/articles_rus/2004.01/5889.jpg" width=250 align="left" border=0></P>
+<P><B></B>&nbsp;</P>
+<P><B>-&nbsp;Немного о группе. Когда, где и зачем была дана жизнь проекту ТЕМНОЗОРЬ?</B></P>
+<P>С момента основания проекта в 1996-ом году (в г.Обнинск) было записано несколько репетиционных лент, а двумя годами позже (весной 98-го) состоялась запись дебютного демо - альбома <B>ТЕМНОЗОРЬ </B>"Ведовством Крепка Чёрная Слава Руси". Ровно год спустя данный релиз был профессионально выпущен в кассетном формате через Stellar Winter Records. Несмотря на изоляционистскую политику проекта, сознательное отсутствие рекламы, крайне радикальную лирику и позицию участников, за три прошедших с момента выхода "Ведовством…" года эта кассета разошлась тиражом в три тысячи копий без учёта многочисленных случаев пиратства. На протяжении всей истории группы (как до, так и после записи дебюта) <B>ТЕМНОЗОРЬ</B> сотрясали как внутренние конфликты, так и проблемы с законом некоторых участников проекта. В 1999 и 2000 годах проект перебазировался в Москву, было предпринято несколько попыток реформации группы, однако результатом этого была лишь ещё пара репетиционных записей, да продолжение затянувшихся проблем. В ходе всех этих пертурбаций большая часть первоначального состава <B>ТЕМНОЗОРЬ</B> постепенно покинула и проект, и сцену как таковую, а в группу влилась свежая кровь. </P>
+<P>Среди белых пустошей Зимы 2000\2001, после трёх лет вынужденной самоизоляции и музыкальной стагнации, <B>ТЕМНОЗОРЬ </B>возвращается с пламенем, ненавистью и убийством. Состав группы частично пополняется за счёт штурмовиков других широко известных Русских банд, так что Осенью 2001 и Зимой 2001 / 2002 были подготовлены сразу две оглушительные атаки. Первая из них, 35-минутный миньон "Фрагменты", олицетворяет странную теневую сторону творчества <B>ТЕМНОЗОРЬ</B>, которая отмечена полнотой призрачных, амбиентально - атмосферных элементов, не столь обычных для музыки проекта в целом. С другой стороны, второй релиз, записанный в это же время – полнометражный альбом "Горизонты…", – по своему духу намного ближе к фольк - металлическим гимнам с дебютной работы этой группы. Здесь могучее баритональное пение сплетается с рёвом Языческой Пропаганды, а блицкриги мощных гитарных риффов сопровождаются стилизованными древнеславянскими мелодиями на акустике, флейтах и аутентичных духовых инструментах… </P>
+<P>В декабре 2002, после многочисленных задержек, североамериканский лейбл Haken Kreuz Prod. выпускает 70-минутный сплит - CD <B>ТЕМНОЗОРЬ</B> "Sorcery of Fragments", на котором в полном объёме представлено переиздание дебютного демо "Ведовством…" вместе с новым миньоном атмосферной музыки "Фрагменты". В марте 2003 на канадском лейбле Ascent Prod. наконец-то состоялся выпуск зарубежной CD-версии полнометражного альбома <B>ТЕМНОЗОРЬ</B> "Горизонты…", а в мае один из ведущих российских лейблов, CD-Maximum, выпустил локальную версию данного диска. Несмотря на ряд бойкотов, этот релиз побывал в топ-30 продаж сентября самого большого металл-магазина рынка на Горбухе, и полтора месяца в топ-10 ведущего интернет-магазина тяжёлой музыки <SPAN><A href="http://www.soundcheck.ru/"><U>www<SPAN lang=RU>.</SPAN>soundcheck<SPAN lang=RU>.</SPAN>ru</U></A></SPAN>. Также сейчас подготавливаются два CD-переиздания «Ведовством…» для России (на Русском Stellar Winter) и “Горизонты…” для Европы (на Германском лейбле Nebelfee Klangwerke). Помимо этого, в настоящее время проектом уже практически полностью подготовлен материал сразу к двум новым альбомам. Первый из них будет называться “Folk Storm” / «Ополчение», и запись его запланирована на Зиму – Весну 2004-го года. Второй из новых альбомов ещё не был наречён именем. Эти новости когда-нибудь огласят холодные ветра в пространстве грядущего. Как Эхо Славы и Древних Клятв… </P>
+<P><B>-&nbsp;Каков сейчас состав группы и окончательный ли это вариант?</B></P>
+<P>На данный момент в составе группы более 10 человек, считая сессионных музыкантов. </P>
+<P>У ТЕМНОЗОРЯ нет постоянного состава. Имена написаны на воде…</P>
+<P><B>-&nbsp;Какие команды в числе наиболее почитаемых Вами?</B></P>
+<P><IMG height=300 alt="" hspace=10 src="/images/articles_rus/2004.01/5890.jpg" width=200 align="right" border=0>В смысле единства музыки и идейно-концептуального стержня творчества, это, вне всякого сомнения, BURZUM, GRAVELAND, ABSURD, VELES, FOREST, NOKTURNAL MORTUM, DERSTURMER, CAPRICORNUS, SKREWDRIVER, RAHOWA, BOUNDFORGLORY, HONOR, ULTIMATHULE и целый ряд других команд. Многие из этих бригад находятся в глубоком подполье, а потому, к сожалению, незнакомы большей части русской металл-аудитории. Если же брать чисто творческий аспект, то нам по душе весьма широкий спектр музыки: BATHORY, DARKTHRONE, ILDJARN, IMMORTAL, ISENGARD, STORM, ENSLAVED, ранний SATYRICON \ WONGRAVEN, ранний EMPEROR, MAYHEM, GORGOROTH, CRUACHAN, EINHERJER, ранний ULVER, ранний CARPATHIAN FOREST, ранний INTHEWOODS, ранний BORKNAGAR, первый альбом ARCTURUS, первые два альбома DIMMU BORGIR, OTYG \ VINTERSORG и.т.д. Из условно не-металлической музыки имеет смысл назвать: LED ZEPPELIN, DEEP PURPLE, RAINBOW, PINK FLOYD, IN EXTREMO, DER BLUTARSCH, совсем немного из RAMMSTEIN, кое-что из германской техно-музыки (гл. образом старая сцена, до прихода негроидных ритмики и мелодики), европейская фольклорная музыка (скандинаво-германская, славянская, кельтская), современная нео-кельтика, нео-фольк, классические композиторы: Вагнер, Григ, Бетховен, Бах, Лист, Мусоргский, Шопен и ряд других. Как видите, слишком много, чтобы уместить всех в одном небольшом интервью.</P>
+<P><B>-&nbsp;Как оцениваете уровень своей группы и российской сцены в целом?</B></P>
+<P>Уровень нашей группы следует оценивать не нам, а нашим слушателям. </P>
+<P>Уровень же российской сцены в целом, к сожалению, крайне низок.</P>
+<P><B>-&nbsp;Расскажите подробности создания нового материала? Что это будет за работа?</B></P>
+<P><IMG height=300 alt="" hspace=10 src="/images/articles_rus/2004.01/5891.jpg" width=200 align="left" border=0>К Лету 2003 проектом уже полностью подготовлен материал к новому альбому «Ополчение» / “Folk Storm”, запись которого запланирована на Зиму / Весну 2004 года. Материал данного CD станет логическим продолжением нашего пути по непроторенным дорогам «Горизонтов…» с поправкой на углублённое, пространственно-ландшафтное звучание. Безусловной новостью станет очередная смена чистого вокалиста, а соответственно, стилистики голосовых партий в общем шквале рокота наших атак. Помимо этого, с недавнего момента мы полнокровно сотрудничаем с одним из ведущих отечественных нео-фольк коллективов, так что партии народных инструментов на следующем альбоме станут более целостными, мощными и концептуальными. Здесь будет заложен очередной музыкальный прорыв танковых дивизий льдистого Металла в заповедные бездны природно-фолькового подсознания. </P>
+<P>Помимо разработки этого блицкрига, уже запущен процесс создания ещё одного альбома, который станет своего рода атавизмом в просторы времён нашего дебюта «Ведовством…». Этот материал будет, в известной степени, более сырым, резким и гитарно-ориентированным, нежели «Горизонты…» и «Ополчение», в тоже время, вероятно, более мелодичным (в духе «Дид-Дуб-Сноп» с нашей дебютной работы). Хотя, безусловно, фольклорность атмосферы и распевный вокал останутся незыблемы, как и прежде, вечными монолитами посреди душераздирающих метелей и штормов… Возможно, данный альбом будет записан одновременно со следующим, или сразу же после него. Все прочие вести будут оглашены ветрами в пространстве грядущего.</P>
+<P><B>-&nbsp;Ваш первый альбом не самого лучшего качества. Не планируется ли его перезапись с нынешними участниками коллектива и с новыми техническими возможностями?</B></P>
+<P><IMG height=300 alt="" hspace=10 src="/images/articles_rus/2004.01/5892.jpg" width=200 align="right" border=0>Нет. Мы в курсе того, что запись 98’го года очень сырая. Она соответствовала духу своего времени, и тогда мы добились именно того, чего хотели. По популярности у слушателяэтот альбом мало чем уступает «Горизонтам…». Как говорилось в ответе на предыдущий вопрос, с момента издания «Ведовством…» в 99’ом было распространено не менее 3&nbsp;000 копий этой кассеты. Альбом (в паре с нашим более поздним миньоном «Фрагменты») выдержал уже два CDпереиздания на североамериканском андерграундном лейбле Haken kreuz Prod. общим тиражом более 1 000 копий, и сейчас готовится уже для нового переиздания в России на CD-дисках (1000 копий) и на кассетах (2&nbsp;000 экз.). Вряд ли некачественный материал обрёл бы такую широкую аудиторию. Так что вопрос уместно ставить о специфическом качестве записи, а не о качестве альбома как музыкального материала. Полная перезапись «Ведовством…» была бы нелогичным шагом, так как этот альбом принадлежит своему времени, он (как единое целое) замечателен тем, что соответствует духу прошлого, там он и останется. Тем не менее, как говорится в моем ответе на другой вопрос данного интервью, в концертную обойму ТЕМНОЗОРЬ входят 2 песни из материалов нашего дебютного альбома, поэтому вполне возможно, что в скором времени мы перезапишем и включим в новый альбом хотя бы одну из них в качестве эксперимента над временем.</P>
+<P><B>-&nbsp;Концерты - одна из основных составляющих промо-компании коллектива. </B></P>
+<P><B>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Планируется ли концертная деятельность группы? И как скоро? </B></P>
+<P>В данный момент наша бригада разрабатывает план звукового штурма площадок и «живых» наступлений на публику. Пока в наш боекомплект входят песни «Вервольф» и “Fatherland” из материалов «Горизонты…», «Дид-Дуб-Сноп» и «Масленица» из «Ведовством…», одна совсем ещё новая вещь под названием «Аркона» и несколько кавер-версий (DARKTHRONE, LANDSER, SKREW DRIVER). 22 декабря этого года ТЕМНОЗОРЬ даст своё первое публичное выступление на пятом фестивале Языческой музыки в г. Харьков.</P>
+<P><B>-&nbsp;Как проходит творческий и репетиционный процесс в коллективе?</B></P>
+<P><IMG height=300 alt="" hspace=10 src="/images/articles_rus/2004.01/5893.jpg" width=200 align="left" border=0>Прежде всего, оба процесса - это две абсолютно разные вещи. Репетиции – это повседневный труд, связанный с нелёгкой и подчас монотонной работой, с усложнённойкоординацией действиями множества вовлечённых в проект людей…Иногда это головная боль, а иногда дух товарищества и упоение работой чётко отлаженной боевой машины. А творчество - это вдохновение… Пламя Сияющих Небес в наших Сердцах… Холод Ночи и Дым… Рассвет в Густеющем Сумраке… Ледяная Сталь Битв… Вестник Грядущих Пожарищ… Поэзия Войны… Песня Молодых и Храбрых…</P>
+<P><B>-&nbsp;По вашему, на какого слушателя рассчитана ваша музыка?</B></P>
+<P>Наша музыка звучит для тех молодых, в чьём сердце вечно живут ландшафты нашей общей праматери Европы от Волжских просторов и Валдайских холмов до обледенелых гор Исландии и взморий Атлантики, от льдяно-синих фьёрдов Норвегии и лесов Померании до древних скал и тёмных волн Эгейского и Средиземного морей. Для тех, в ком ещё горит Огонь. Для тех, кто не хочет забыть героическое прошлое нашего Рода. Для тех, кому тошно жить в обществе, где попраны законы Природы, а на их место поставлены вырожденческие принципы и идеалы обывательства. Для Детей Родных Краев. Для Сердец Кровных Идеалов. </P>
+<P><B>-&nbsp;Музыка для Вас - это основное в вашем творчестве или всего лишь способ пробудить интерес к идеологии коллектива?</B></P>
+<P>Для нас важно и то, и другое. Творчество – как самовыражение, а пропаганда – как средство достиженияпоставленных целей. Здесь всё взаимосвязано.</P>
+<P><B>-&nbsp;Ваше отношение к язычеству?</B></P><SPAN style="COLOR: black"><SPAN style="BACKGROUND: #000000"><SPAN style="COLOR: black"><SPAN style="COLOR: #ffffff">
+<P><SPAN style="BACKGROUND: none transparent scroll repeat 0% 0%">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<IMG height=300 alt="" hspace=10 src="/images/articles_rus/2004.01/5894.jpg" width=200 align="right" border=0> Во-первых, мы говорим не о обрядово-традиционном язычестве, которое давным-давно выродилось и погибло со всей его мишурой и фетишами. Мы говорим о первородном Языческом Духе, который продолжает жить в наших Сердцах и Душах, в нашей Крови, в наших Мыслях и Поступках. Сегодня Дух Язычества снова медленно начинает разгораться, маленькие язычки его пламени с трудом набирают силу. Он – это самое прекрасное в нас, Европейцах. Этот дух, суть расы сегодня выражается таким явлением, как Национал-Социализм, который есть прямое продолжение святой веры наших предков.</SPAN></P>
+<P><SPAN style="COLOR: black">&nbsp;&nbsp;<SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff">&nbsp;&nbsp; В крови Ария находятся законы (14 слов), по которым ему, Белому Человеку, должно жить. Для каждого Арийца будет преступлением предать эту святыню, восстать против божественного закона природы и эволюции. Кровь определяет направление, указывает жизненный путь, говорит, как нужно жить и выживать. Она говорит о ценностях тела и духа. Ценности духа – это честь, гордость, знание, смелость; ценности тела – это воля, физическая сила, живучесть. Каждому необходимо развивать эти способности в себе. Действенность, крепость, размах – эти признаки характеризуют Белого Человека. </SPAN></P>
+<P></SPAN></SPAN><SPAN style="COLOR: #ffffff"><SPAN style="COLOR: #ffffff">&nbsp;&nbsp;&nbsp;&nbsp; Природа велит нам жить ее правилами. Расовый дух Язычества отражает тождественность народов Европы, указывает на их общий корень. Сегодня образы мифологии наших предков должны перестать быть просто «сказкой» или «диким поверьем» и перейти в статус символов и архетипов, определяющих цели и взгляды народного движения. Отрицание христианства, возведенного в статус «единственно истиной веры», не означает уход в атеизм. Мы – пантеисты, видящие в древних богах образы лучших представителей своего народа, своей Расы. Наши боги&nbsp; –&nbsp; это наши предки-герои. <BR>&nbsp;&nbsp;&nbsp; Мы верим, что наш бог – это космическая сила, <I>энергия, которая сотворила мир и которая этот мир наполняет</I>. Наш бог вездесущ, во всем присутствует элемент божества. Поэтому мы чувствуем близость с природой, с ее законами эволюции. Мы верим, что мы – Полубоги. Мы творцы, и вера наша – почитание творческих сил Космоса. Вера в высшее призвание к преображению – ключевой момент нашей веры. Мы не считаем себя «избранным народом», но желаем идти своей собственной дорогой, соответствующей направлению&nbsp; эволюции роста творческой воли. Когда, действуя, мы ощущаем, как разгорается&nbsp; в нас божественное, тогда можем быть уверены, что это верная дорога к Сверхчеловеку… <BR>&nbsp;&nbsp;&nbsp;&nbsp; Для Язычника-Ария обыденное понятие «человек» не может звучать гордо. Человек должен стать смутным воспоминанием, начальным этапом пути. Наши боги – это этические символы, это юнговские архетипы Анимуса и Анимы. Эти архетипы есть четыре лика (воплощения) Свентовита, воплощение борьбы и творения для мужчины, очага и плодородия для женщины. Наши боги – это часть нас, они наше дополнение, то, к чему мы стремимся. Чтобы быть ближе к ним, мы должны находить радость и истину в их атрибутах – каждый воин должен представлять жизнь, как битву, идти дорогой Бога Войны, пользуясь тем самым его силой, становясь его частью и делая его частью себя. </SPAN></P>
+<P></SPAN></SPAN>&nbsp;&nbsp;&nbsp;&nbsp; <IMG height=300 alt="" hspace=10 src="/images/articles_rus/2004.01/5895.jpg" width=200 align="left" border=0>Святыня каждого Европейца – его кровь. В этой святыне сокрыт секрет творения. В ней пульсирует мощь эволюции, творческая красота природы. Это бегущий поток эволюции от первой клетки до Белого Человека, и от человека до Сверхчеловека. Кровь – это основа наследия расы, которая должна оберегаться и передаваться следующим поколениям так же, как была передана нам предками. Осознание святости этого наследия – ключевой момент на пути возвращения к истокам. Каждый, кто обладает сознанием этого, может гордо славить всех великих предков нашего народа и расы. Именно кровь дает ни с чем не сравнимое чувство связи со всем великим, гордым и значительным прошлого и настоящего. Языческая вера Ариев – это сбалансированная совокупность духовной и материальной составляющих, гармония святости духа и святости материи (силы). </P>
+<P></SPAN></SPAN><SPAN style="BACKGROUND: #000000">&nbsp;&nbsp;&nbsp;&nbsp; Наша Вера не нуждается в том, чтобы в неё верили. Наши боги живут в нас. Их воля должна стать нашей волей. Из культурного небытия мы должны вступить на дорогу предков, чтобы Священный огонь осветил небо над нашей землей. Это священный долг, приказ гордости и чести наших Богов – приказ, данный через стальную кровь Национал Социализма. «В Наследии Времен ты видишь прах иль монолит? Набор неясных знаков иль Символы Борьбы?»</SPAN></P></SPAN></SPAN>
+<P><B>-&nbsp;Куда движется ТЕМНОЗОРЬ?</B></P>
+<P>Только вперёд. </P>
+<P><B>-&nbsp;Довольны ли вы сотрудничеством с CD-Maximum?</B></P>
+<P>Мы однозначно довольны оперативностью выпуска нашего диска, а также качеством исполнения данного тиража. В то же время, хочется всё-таки пожелать лейблу лучшей дистрибьюции, раскрутки и промотирования собственных групп и релизов. </P>
+Автор: Dimas
+
+### 30.06.2005 news В России куют металл!!!
+
+<P>В ближайшее время, компания <B>CD-MAXIMUM</B> планирует порадовать многих любителей тяжелой музыки "<B>made in Russia</B>". <BR><BR>Первыми ласточками станут долгожданные альбомы&nbsp;групп <B>HIERONYMUS BOSCH "Artificial Emotions"</B> (дата релиза - <B>11 июля</B>) и <B>ТЕМНОЗОРЬ "Вольницей В Просинь Ночей"</B> (дата релиза - <B>18 июля</B>). <BR><BR>Также, в течение <B>июля-августа</B>, выйдут:<BR><BR>- ремастированные переиздания двух альбомов талантливых выборгских музыкантов <B>PSILOCYBE LARVAE "Stigmata"</B> и <B>"Agony"</B>, которые будут дополнены бонусом и мультимедиа-секцией. Превосходный black doom европейского образца. <BR><BR>- ремастированное переиздание второго альбома ярославских музыкантов <B>MIND ECLIPSE "Chaos Of Chronicles"</B> с бонусами и совершенно новым оформлением. И, конечно, новый альбом группы <B>"Utopia: Formula Of God"</B>. Высококачественный, сверхскоростной и мегабрутальный death black metal.<BR><BR>- новый альбом беларусов <B>ASGUARD "Dreamslave"</B>. Скоростной, агрессивный и очень мелодичный death black metal с оркестровой секцией струнных и духовых инструментов.<BR><BR>- дебютный альбом истринской группы <B>INSIDE YOU "Lost In The Faith"</B>. Атмосферный gothic doom death metal, напоминающий лучшие образцы классики стиля середины девяностых.<BR><BR>- новый концептуальный и эпохальный супер-альбом легендарных королей дизель-рока <B>KRUGER "Душа Изувера"</B>. <BR><BR>- мини-альбом группы <B>АРДА</B> (открытие 2004 года по опросу читателей DARK CITY) <B>"Экзорцист"</B>. Fantasy power metal. В релиз войдут пять новых песен, из которых только одна войдет в полнометражную работу группы, которая должна выйти в конце 2005 года.<BR><BR>- новый альбом московской группы <B>MORTEM "Corpsophagia"</B>. Зачинатели отечественного brutal death обещают очень жирное мясцо с крутым звуком.<BR><BR><B>5 сентября</B> - официальная дата релиза дебютного альбома группы <B>ФАКТОР СТРАХА "Театр военных действий. Акт первый"</B>. Это совместный проект <B>Кирилла НЕМоляева </B>и группы <B>ТРИЗНА</B>. Вас ждет modern metal с тяжёлыми запевами и очень мелодичными припевами, аналогов которому нет. Альбом записан при участии <B>Дмитрия Борисенкова (ЧЕРНЫЙ ОБЕЛИСК)</B> и <B>Максима Самосвата (ЭПИДЕМИЯ, MECHANICAL POET)</B>.<BR></P>
+Автор: Dimas
+
+### 11.08.2005 news ТЕМНОЗОРЬ - &quot;Вольницей В Просинь Ночей&quot;
+
+<P><IMG height=300 alt="" hspace=15 src="/images/news_rus/2005.08/9085.jpg" width=300 align=left border=0> <STRONG><A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></STRONG> представляет долгожданное издание новейшей работы культовых российских язычников <STRONG>ТЕМНОЗОРЬ "Вольницей В Просинь Ночей".</STRONG></P>
+<P>Этот альбом был когда-то кован&nbsp;льдистою сталью Зимы. Был вспоен росами весенних полей и чистым берёзовым соком, он закалялся пламенем летних закатов, а духи осенних вечеров колдовали над ним дымом еловых пожаров, горечью полынного хмеля и кровавыми рунами по чёрной сырой земле октября. Сквозь иней и лёд ещё одной зимы, в дождях и грозах этой Весны, он уже здесь...</P>
+<P>&nbsp;Защитники чистоты Pagan Metal сцены, которых заботят реальные проблемы русского народа, они стараются пробудить Древнюю Гордость в тех, кому не безразлична судьба Руси... Предрассветные сумерки густых лесов земли русской порою рождают необычные и красивые сюрпризы... Вас ждет музыка, полная гордости за свою нацию; это музыка Воинов, которым не чужды жестокость и злость, которые находятся в борьбе за чистоту идеалов. Звуковое полотно из глубинных корней языческого мировоззрения, из бескрайних хвойных лесов, из мрака древних курганов и холода лезвий чёрного металла. Осталась лишь вереница из последних ночей этой весны. Слушайте неприкаянный голос земли... глядите на самое дно.</P>
+<P>Диск можно приобрести в "Горбушкином Дворе" в магазине <STRONG>Metal & Progressive</STRONG> (м. Багратионовская) и в интернет-магазинах <A href="/ru/shop/">musica</A> и <A href="http://www.soundcheck.ru/">soundcheck</A>. Также, спрашивайте в магазинах своего города.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Темнозорь - Настоящий Русский Металл

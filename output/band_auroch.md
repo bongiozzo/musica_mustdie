@@ -22,6 +22,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.07.2011 news Канадцы AUROCH выложили песню
+
+<P>Канадская death-metal команда<STRONG> AUROCH</STRONG> предложила к свободному скачиванию свою новую песню "<STRONG>Astral King</STRONG>": <A href="http://auroch1.bandcamp.com/track/astral-king">http://auroch1.bandcamp.com/track/astral-king</A></P>
+<P>Песня приурочена к новому туру группы по городам Канады, который пройдёт в августе. Единственный на сегодняшний день альбом коллектива "<STRONG>Stranger Aeons</STRONG>" вышел в 2010 году. Музыканты адресуют своё творчество поклонникам <STRONG>MORBID ANGEL</STRONG> и <STRONG>DEATH.</STRONG></P>
+<P><center><IMG height=681 alt="" hspace=0 src="/images/news_rus/2011.07/20219.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

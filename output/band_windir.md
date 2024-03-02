@@ -33,6 +33,49 @@ Norwegian folk black metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.03.2001 news Windir отныне имеет постоянный состав.
+
+<p> Прежде Windir был проектом одного человека по прозвищу Valfar. Но теперь, после слияния с другой норвежской black metal командой Ulcus, Windir имеет постоянный состав из шести человек. В июне Windir отправятся в студию Akkerhaugen в Норвегии и запишут новый CD, который предполагается выпустить на Head Not Found/Voices Of Wonder в сентябре. Новый материал несомненно удовлетворит почитателей прежних альбомов Windir, но также покажет группу с более агрессивной, мощной и зрелой стороны.</p>
+
+Автор: Morsus
+
+### 10.03.2001 news Windir now has a permanent line-up.
+
+<p> Windir has previously been a one mans band lead by Valfar. Now Windir has merged with another Norwegian black metal band, Ulcus. This means that Windir now has a permanent line-up consisting of six members. Windir will enter Akkerhaugen studio in Norway in June to record their new CD, it is set to be released through Head Not Found/Voices Of Wonder in September. The new material will definitely satisfy the fans of the previous Windir albums, but it will also show a more aggressive, powerful and mature side of the band.</p>
+
+Автор: Morsus
+
+### 10.11.2002 reviews Норвежцы не сдаются
+
+<p>Великолепнейший folk black metal. Нет, лучше так – ВЕЛИКОЛЕПНЕЙШИЙ folk black metal. За штурвалом этого драккара (кстати, ранее известного как SOKNARDALR) по-прежнему стоит один человек, и поневоле удивляешься, как он умудряется создавать настолько качественные музыкальные полотна. Каждая песня – маленький шедевр, но этого Valfar’у мало! Он ещё и на всех инструментах сыграл так, как большинству блэковых (а также дэтовых, думовых, и т.д.) команд и не снилось. А чего стоят аккордеонные вставки! Была б моя воля, поставил бы 100 из десяти.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 06.01.2004 news WINDIR заключили новый контракт и сочиняют песни
+
+<P>Сразу после выпуска последнего альбома "Likferd" норвежские блэкстеры WINDIR получили массу предложений от самых разных лейблов и после тщательного рассмотрения выбор был остановлен на TABU Recordings. Это дочернее подразделение TUBA Records - одного из ведущих норвежских музыкальных дистрибуторов На TABU Recordings подписаны такие команды как Einherjer, Lumsk и Susperia. Кое-какой материал для нового альбома уже написан и работа продолжается. Записываться на этот раз будут не в Akkerhaugen Studio, а в новом месте - на май-июнь забронирована Abyss Studio. Выход готового альбома намечен на октябрь 2004 года.</P>
+Автор: Morsus
+
+### 04.02.2004 news Windir потеряли вокалиста
+
+Вокалист <B>Windir Terje "Valfar" Bakken</B> был найден мёртвым 17 января. Врачи констатировали смерть от гипотермии (он попросту замёрз в снегу).
+Автор: Vit Belov
+
+### 04.03.2004 news Windir всё-таки распались
+
+<B>WINDIR</B> всё-таки решили не продолжать совместное творчество после трагической смерти вокалиста и основателя группы <B>Terje "Valfar" Bakken</B>. Группа выпустит последний релиз на двух дисках в память о <B>Valfar</B>'e. На первый диск войдут нереализованные вещи, кавера и многое другое, что не было доступно слушателям до этого. Второй диск будет сборник лучших вещей, созданных <B>Valfar</B>.
+Автор: Vit Belov
+
+### 20.09.2004 news VREID - проект музыкантов WINDIR
+
+<P><STRONG>VREID</STRONG>, так называется новая группа, в которую вошли бывшие члены <STRONG>WINDIR</STRONG>: <STRONG>Hv&#225;ll</STRONG> (bass), <B>Steingrim</B> (drums) and <B>Sture</B> (vocals, guitar), заключила контракт на три альбома с <STRONG>Tabu Recordings</STRONG>. Дебютный альбом '<STRONG>Kraft</STRONG>' уже записан. Трэк-лист:</P>
+<P>01. <B>Wrath of Mine</B><BR>02. <B>Raped by Light</B><BR>03. <B>Helvete</B><BR>04. <B>Unholy Water</B><BR>05. <B>Eldast, Utan &#197; Gro</B><BR>06. <B>Evig Pine</B><BR>07. <B>Empty</B><BR>08. <B>Songen &#197;t Fangen</B> </P>
+<P>Музыка описывается, как смесь <STRONG>WINDIR</STRONG>, норвежского black-metal и <STRONG>MOTORHEAD</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Умер Terje &quot;Valfar&quot; Bakken (Windir)

@@ -328,6 +328,552 @@ Mastered at Enormous Door Mastering, Austin, TX.
 * C группой "Sarke" Nocturno Culto
 * C группой "Fenriz' Red Planet" Fenriz
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>DARK THRONE собираются в студию, чтобы записать нечто, что может стать их последним релизом.</p>
+
+Автор: Vit Belov
+
+### 01.04.1999 news 
+
+<p>Dark Throne засядут в июне в студию для записи нового альбома "Ravishing Grimness".</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Объявлено о новом all star проекте Eibon, в который войдут Killjoy из Necrophagia, Fenriz из Dark Throne, Blasphemer и Maniack из Mayhem и Satyr из Satyricon. Как вы догадываетесь группа будет играть блэк.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Новый альбом Dark Throne называется "Ravishing Grimness" и представляет собой, по словам группы, блэк старой школы.</p>
+
+Автор: Vit Belov
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 01.10.2000 news Новый альбом Darkthrone выйдет не раньше, чем через год
+
+<p> Darkthrone уже отрепетировали несколько новых песен, которые планируют включить в свой пятый альбом, выходящий на Moonfog. Ребята не особо торопятся и отправятся в студию только летом следующего года.</p>
+
+Автор: Nybras
+
+### 05.10.2000 news Старые, редкие и ранее не изданные вещи группы Darkthrone скоро выйдут на одном диске
+
+<p> В скором времени на Peaceville состоится релиз нового диска Darkthrone. Он будет содержать старые, редкие и ранее не изданные вещи группы: 'Transilvanian Hunger', 'Snowfall', 'Archipelago', 'I En Hall Med Flesk Og Mjod', 'The Pagan Winter', 'Grave With A View', 'Eon/Thulcandra' (live), 'Soria Moria' (live), 'Natassja In Eternal Sleep', 'Cromlech', 'In The Shadow Of The Horns', 'Neptune Towers' (live), 'Under A Funeral Moon', 'Skald Av Satans Sol' и 'Iconoclasm Sweeps Cappadocia'.</p>
+
+Автор: Nybras
+
+### 11.04.2001 news Новый альбом Darkthrone
+
+<p> Darkthrone в конце июня отправятся в студию для записи своего нового альбома. Его рабочее название "Corporal Punishment".</p>
+
+Автор: Nybras
+
+### 16.07.2001 news Готов к выходу новый альбом Darkthrone
+
+<p> Новый альбом Darkthrone "Plaguewielder" должен выйти в сентябре на Moonfog Records в виде дигипака, обычного CD и LP.</p>
+
+Автор: Morsus
+
+### 16.07.2001 news Darkthrone&#39;s new album is ready
+
+<p> Darkthrone's new album "Plaguewielder" is due to be released in September through Moonfog Records on Digipack, CD and LP.</p>
+
+Автор: Morsus
+
+### 17.07.2001 news Plaguewielder...
+
+<p>Опубликован трек-лист грядущего альбома "DARKTHRONE" - "Plaguewielder": 01. Weakling Avenger 02. Raining Murder 03. Sin Origin 04. Command 05. I, Voidhanger 06. Wreak. Песни Weakling Avenger и Sin Origin в виде МР3 (с низким качеством) можно скачать на сайте <a href="http://www.moonfog.no/artists.asp?id=64&art=2">Moonfog Records</a>. Также можно посмотреть артворк обложки. Из других новостей, группа подписала "пожизненный" контракт с Мунфогами, по этому поводу менеджер Satyr Wongraven прокомментировал: "Я беспредельно счастлив тем что мы подписали DARKTHRONE - это одна из моих любимых групп... Unholy Black Metal forever!"</p>
+
+Автор: Yermola
+
+### 17.07.2001 news DARKTHRONE&#39;s forthcoming Plaguewielder ....
+
+<p>DARKTHRONE’s forthcoming Plaguewielder CD is due to be released in September through Moonfog Records on Digipack, CD and LP. The full track listing for the album is as follows: 01. Weakling Avenger 02. Raining Murder 03. Sin Origin 04. Command 05. I, Voidhanger 06. Wreak. Excerpts of the songs "Weakling Avenger" and “Sin Origin" are now available for download from the Moonfog Records web site at this location. You can also view the album’s cover artwork on the same page. In other news, DARKTHRONE have extended their current deal with Moonfog Records into what could be a called a “lifetime deal”. ”Both the contract and the signing itself was a splendid delight”, stated DARKTHRONE’s Fenriz of the contract inking, which took place outdoors (in the woods). Moonfog label manager Satyr Wongraven commented: “I am extremely pleased to have re-signed DARKTHRONE, as it is one of my favorite bands ever and they are also special to me in the way that it was the first real band I signed. I know that my co-workers at Moonfog are also very pleased about the continued relationship with DARKTHRONE. Unholy Black Metal forever!” Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.09.2001 reviews Возвращение отцов True Norwegian Black Metal
+
+<p>Возвращение отцов True Norwegian Black Metal. Должен признаться, что когда-то я наслаждался подобной тру-музыкой, но в последнее время она мне порядком надоела. Очень трудно слушать подобное, где мало того, что нет ничего нового, но еще и нет совершенно никакого намека на мелодизм, кроме двух-трех соло-партий. Сплошные сырые и злобные риффы на одной и той же быстрой скорости и равномерные хлесткие ударные, темная атмосфера. Этот альбом уже не вызывает тех эмоций, которые бы он вызвал у меня еще года три назад. Тогда я бы посчитал его просто чумовым. Как это было с "Total Death" или "Panzerfaust". "Plague Wielder" является продолжением "Ravishing Grimness". Мрачная отмороженная музыка норвежцев способна пробудить эмоции только у самых ярых фанатов black-metal. Именно им я и рекомендую этот альбом. Ибо в мире true black metal за последнее время не выходило ничего более интересного и симпатичного. Завершающий трэк - "Wreak" - бесспорно, лучшая и самая достойная вещь альбома.</p>
+
+Автор: Dimas
+
+### 21.05.2002 news DARKTHRONE news
+
+<p>DARKTHRONE have commenced the writing process for their forthcoming CD, tentatively titled Leper Unction, which they hope to record in September/October for an early 2003 release through Moonfog Records. Among the cuts set to appear on the upcoming CD are "Rust" and "Fucked Up And Ready To Die". According to a statement posted on the band's recently-launched official web site at www.darkthrone.no, "the new album seems to develop into another state of soul-binding art (at least for us it is), black & white album design, dark-edge primitive metal. This time around we'll make sure that we show everybody where we will stand in the future…As already everybody knows, DARKTHRONE stands for nothing 'new and fresh', prog-metal is a totally different musical world for us, we live and breathe for the real thing."</p>
+
+Автор: Dimas
+
+### 21.05.2002 news Вести из норвежских лесов
+
+<p>Ветераны норвежского black metal DARKTHRONE начали процесс написания материала для своего нового альбома, который будет называться "Leper Unction". Запись альбома начнется в сентябре-октябре, а выход альбома планируется в начале 2003 года на Moonfog Records. Нас снова ждет черно-белое оформление альбома и примитивный black metal.</p>
+
+Автор: Dimas
+
+### 11.05.2003 news Планы DARKTHRONE
+
+<p>Культовые норвежские блэкстеры из DARKTHRONE не успев выпустить в свет свое новое творение "Hate Them", уже приступили к работе над следующим опусом. Новая работа получила название "Sardonic Wrath" и планируется к выходу на Moonfog Productions в самом начале 2004 года.</p>
+
+Автор: Dimas
+
+### 27.08.2003 news Будет снят фильм о норвежской black-metal сцене
+
+<p>SATYRICON, DARKTHRONE и GORGOROTH станут героями документального фильма о Норвежской black-metal сцене. Съёмки пройдут на одном из фестевалей в Норвегии в конце этой недели. Подробности последуют...</p>
+
+Автор: Vit Belov
+
+### 09.09.2003 reviews Гении тру блэка
+
+<P>Новинки, да новинки... А иногда ведь и полезно заглянуть в прошлое, в те времена, когда все только зарождалось и начинало свое развитие. Конечно, 'Panzerfaust' далеко не самый первый альбом новрежских блэкарей, a если быть точным, то пятый, но он гениален, и его примитивность c музыкальной точки зрения тому подтверждение. Участники новрежского дуэта Darkthrone не играют виртуозно или технично, как многие "классики" тяжелой музыки, а исполняют музыку довольно примитивно, что выделяет их из толпы собратьев по "черному делу". Итак, шесть трэков самого промозглого и жуткого true black metal, который кроме Darkthrone никто не делал, не делает и вряд ли будет делать. По звучанию он похож разве что на его современников, двух альбомов Burzum: 'Hvis Lyset Tar Oss' (1994) и 'Filosofem' (1996). Хотя на этих альбомах используются клавишные, качество записи музыки Варга Викернеса весьма лучше, и оно не сопровождается уже надоевшим фоновым шипением, которое мы можем услышать при прослушивании аудио-кассет. Отмечу еще то, что по сравнению с предыдущими альбомами, на опусе 'Panzerfaust' гитары настроены ниже, а слова в вокальных партиях звучат более отчетливо - теперь среди нечеловеческих воплей Nocturno Culto можно прослушать отдельные слова, чего никак не добьешься, скажем, на 'Under A Funeral Moon' (1993). И не каждый поймет, в чем же здесь фишка, в чем гениальность такой музыки: жуткое качество записи, отсутствие техничности, риффы просты и однообразны, причем не изменяются в течении почти всей песни, а зловреднейший скриминг вокалиста/гитариста Nocturno придает всему этому хаосу еще более ужасающий вид. Но это и есть блэк. Именно тот блэк, который именуется грозным названием "norwegian true black metal". Именно тот блэк, который сейчас уже никто не играет. Жаль, что среди современных исполнителей "черной музыки" true black metal уже не актуален, как это было десять лет назад, но, к счастью, прошлое оставило нам много сочных плодов, вкусом которых мы можем наслаждаться и по сей день.</P>
+Автор: Darkfall
+
+### 22.03.2004 news DARKTHRONE войдут в студию
+
+Норвежцы <B>DARKTHRONE</B> войдут в студию 4 апреля для записи нового альбома.
+Автор: Vit Belov
+
+### 07.07.2004 news DARKTHRONE выпускают новый альбом
+
+<P><IMG height=260 alt="" hspace=0 src="/images/news_rus/2004.07/6688.jpg" width=250 align="left" border=5>Новый альбом <B>DARKTHRONE</B> <B>"Sardonic Wrath" </B>выйдет в сентябре на <B>Moonfog</B>. Пластинка будет содержать 9 композиций, а обложку для нового творения легенд black-metal нарисовал молодой итальянский художник <B>Lorenzo Mariani</B> (<B>MARDUK</B>, <B>ABORYM</B>). Трэк-лист:</P>
+<P>01. <B>Information Wants To Be Syndicated</B> (4:20)<BR>02. <B>Sjakk Matt Jesu Krist</B> (4:03) <BR>03. <B>Straightening Sharks</B> (3:26) <BR>04. <B>Alle Gegen Alle</B> (3:21) <BR>05. <B>Mann Tanker Sitt</B> (3:04) <BR>06. <B>God Of Doubt</B> (4:33) <BR>07. <B>Silent Majority</B> (3:56) </P>
+Автор: Vit Belov
+
+### 08.11.2004 articles TOP-50 лицензионных дисков по продажам за октябрь 2004 года*
+
+<TABLE cellSpacing=0 cellPadding=0 width=700 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 213pt; mso-width-source: userset; mso-width-alt: 10386" width=284>
+<COL style="WIDTH: 216pt; mso-width-source: userset; mso-width-alt: 10532" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 213pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=284><STRONG><FONT face=Arial size=2>RAMMSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 216pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=288><STRONG><FONT face=Arial size=2>REISE REISE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>BMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>RHAPSODY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SYMPHONY OF ENCHANTED LANDS, PART II</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DARKTHRONE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SARDONIC WRATH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>STORMWARRIOR</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NORTHERN RAGE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>FEINSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THIRD WISH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PUNGENT STENCH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMPEAUTY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHAPE OF DESPAIR</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ILLUSION'S PLAY</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>9 (19)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THROES OF DAWN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DOWN BELOW</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SILENT WINGS:ETERNITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>11 (6)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHITE SKULL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE XIII SKULL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWALLOW THE SUN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE MOURNING NEVER CAME</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VICTOR SMOLSKI</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAJESTY AND PASSION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BENEATH THE SHINING WATER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (3)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAKE OF TEARS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>18 (27)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>19 (15)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>20 (17)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>OCEAN MACHINE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>22 (30)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B (2 CD +<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>slipcase)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHAMBER</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MILES AWAY - A PREMONITION OF SOLITUDE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PAIN OF SALVATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="BE "><FONT size=2><FONT face=Arial>BE<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SPASTIC INK</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INK COMPATIBLE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNLEASHED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWORN ALLEGIANCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HEART</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>JUPITER's DARLING</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>29 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA:GLUT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>31 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LACUNA COIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>COMALIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (7)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALTARIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIVINITY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (2)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SAXON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LIONHEART</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>34 (16)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>35 (11)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNHEILIG</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS 2 GEBOT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MONSTERS OF METAL</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE ULTIMATEL METAL COMPILATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (8)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>39 (43)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE + WISH I HAD AN ANGEL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANOREXIA NEVROSA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRUDENHAUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALAN PARSONS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>A VALID PATH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEAD SOUL TRIBE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE JANNUARY TREE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PHYSICIST</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>GRAVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIENDISH REGRESSION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AYREON</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRACONIAN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHERE LOVERS MOURN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOKEN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PUNCH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ESTAMPIE</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIGNUM</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (32)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>*по результатам продаж в магазине 'Metal&Progressive' в Рубине</P>
+Автор: Vit Belov
+
+### 03.08.2005 news Новый альбом DARKTHRONE
+
+<P>Закончена запись новейшего творения культовых норвежцев <STRONG>DARKTHRONE "The Cult Is Alive".</STRONG> Выход альбома планируется в конце осени на <STRONG>Peaceville Records</STRONG>.</P>
+Автор: Dimas
+
+### 14.12.2005 news DARKTHRONE выпускают первый сингл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Peaceville </STRONG>объявили о выпуске первого сингла<STRONG> DARKTHRONE</STRONG> <STRONG>"Too Old, Too Cold" </STRONG>23 января 2006 года. Трэк-лист:</FONT></P>
+<P>01. <B>Too Old, Too Cold</B><BR>02. <B>High on Cold War</B> (feat. Grutle from ENSLAVED on guest vocals) (exclusive to this single)<BR>03. <B>Love in a Void</B> (SIOUXSIE & THE BANSHEES cover, exclusive to this single)<BR>04. <B>Graveyard Slut</B> (Nocturno on vocals, exclusive to this single)<BR>Полноформатник увидит свет 27 февраля и будет называться "<STRONG>The Cult Is Alive</STRONG>". Трэк-лист:</P>
+<P>01. <B>The Cult Of Goliath</B><BR>02. <B>Too Old, Too Cold</B><BR>03. <B>Atomic Coming</B><BR>04. <B>Graveyard Slut</B> (Fenriz on vocals)<BR>05. <B>Underdogs And Overlords</B><BR>06. <B>Whiskey Funeral</B><BR>07. <B>De Underjordiske</B><BR>08. <B>Tyster P&#229; Gud</B><BR>09. <B>Shut Up</B><BR>10. <B>Forebyggende Krig</B></P>
+Автор: Vit Belov
+
+### 27.01.2006 news Кавер-арт DARKTHRONE
+
+<P>
+<CENTER><STRONG>DARKTHRONE</STRONG> опубликовали кавер нового альбома <STRONG>"The Cult Is Alive", </STRONG>который выйдет 27 февраля на <STRONG>Peaceville</STRONG>.</CENTER>
+<P></P>
+<P>
+<CENTER><IMG height=248 src="/images/news_rus/2006.01/9967.jpg" width=250 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 03.04.2006 reviews Поздно, братцы, виски-то уже выпили...
+
+<P>Дать мне на рецензию блэк-металическую пластинку означает похоронить оную с минимальным количеством баллов. Ибо то, что сейчас считают "черным" металом, имхо,&nbsp;иначе оценить нельзя. Однако с новейшим релизом культовой формацией Darkthrone с весьма претенциозным названием "The Cult Is Alive" не всё так просто оказалось. Дуэт, имеющий более чем пятнадцатилетнюю историю, на данном релизе исполняет музыку, которую блэком считали лишь на заре его зарождения. Подобное играли когда-то Celtic Frost&nbsp;(слушайте типичные "uh!") или Venom,&nbsp;и это было хорошо. Если убрать вокал - то вообще получится практически Motorhead, только послабее раз в миллион. Звук сырой, грязный, непричесанный, почти панк-рок в его лучшем варианте. Только опять с оговоркой - намного слабее. Но раз уж один из столпов стиля решил вернуться к корням - значит, в современном блэковом королевстве не так всё и хорошо. Однако, поздно - Фенриза и Культо уже давно опередили. И виски уже весь ('Whisky Funeral') выпили до них. Сегодня "The Cult Is Alive" слушается каким-то реликтом, но особого интереса не вызывает. Похоже, одни из первопроходцев жанра решили выплыть на волне ретро, но насколько это им удастся - судить фэнам. Впрочем, за успех альбома беспокоиться не нужно: блэковые неофиты купят его по-любому (из-за культовости Darkthrone),&nbsp;и им могут помочь блэковые ортодоксы, для которых карканье вокалиста и невменяемая музыкальная звуковая стена еще не значат "блэк-метал". Так что можно порадоваться за группу - ведь и скудное, неинтересное и неоригинальное оформление буклета вряд ли скажется на продажах этого, в общем и целом, довольно проходного альбома...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 23.06.2007 news DARKTHRONE продолжают сходить с ума
+
+<P>Уже этим летом в продаже появится новый EP от D<STRONG>ARKTHRONE</STRONG> с названием "<STRONG>NWOBHM</STRONG>" (New Wave Of Black Heavy Metal), а в сентябре нас ждёт полноформатный диск от классиков норвежского блэка с не менее интригующим названием "<STRONG>F.O.A.D</STRONG>.". Трэк-лист:</P>
+<P>01. <B>These Shores Are Damned</B><BR>02. <B>Canadian Metal</B><BR>03. <B>The Church Of Real Metal</B><BR>04. <B>The Banners Of Old</B><BR>05. <B>Fuck Off And Die</B><BR>06. <B>Splitkein Fever</B><BR>07. <B>Raised On Rock</B><BR>08. <B>Pervertor Of The 7 Gates</B><BR>09. <B>Wisdom Of The Dead</B> </P>
+Автор: Vit Belov
+
+### 04.02.2008 news DARKTHRONE назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Nocturno Culto</STRONG>&nbsp;из<STRONG> DARKTHRONE</STRONG> раскрыл название нового альбома, для которого уже записано четыре песни. Пластинка ветеранов black-metal будет называться <STRONG>'Dark Thrones And Black Flags'</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 19.05.2008 news DARKTHRONE рубят бабло!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежские true-black металлисты <STRONG>DARKTHRONE</STRONG> продолжают радовать своих поклонников изданием редкого и лучшего. 23 июня на <STRONG>Peaceville</STRONG> выходит трёхдисковое издание, на которое войдут все четыре демки группы, редкий концертник и репетеционная версия альбома "<STRONG>Goatlord</STRONG>". Трэк-лист:</FONT></P>
+<P>Disc 1:<BR><B>"Land Of Frost"</B> Demo (1988) <BR>01. <B>Land of Frost</B> <BR>02. <B>Winds of Triton</B> <BR>03. <B>Forest of Darkness</B> <BR>04. <B>Odyssey of Freedom</B> <BR>05. <B>Day of the Dead</B> <BR><B>"A New Dimension"</B> Demo (1988) <BR>06. <B>Intro: Twilight Dimension</B> <BR>07. <B>Snowfall</B> <BR><B>"Thulcandra"</B> Demo (1989) <BR>08. <B>Eon</B> <BR>09. <B>Thulcandra</B> <BR>10. <B>Archipelago</B> <BR>Extra track: <B>"Soria Moria"</B><BR><BR>Disc 2:<BR><B>"Cromlech"</B> Demo (1989)<BR>01. <B>The Watchtower</B><BR>02. <B>Accumulation of Generalization</B><BR>03. <B>Sempiternal Past/Presence View Sepulchrality</B> <BR>04. <B>Iconoclasm Sweeps Cappadocia</B> <BR>Live From Denmark 1990:<BR>05. <B>Cromlech</B><BR>06. <B>Sunrise over Locus Mortis</B> <BR>07. <B>Soulside Journey</B> <BR>08. <B>Accumulation of Generalization</B> <BR>09. <B>Sempiternal Past/Presence View Sepulchrality</B><BR>10. <B>Iconoclasm Sweeps Cappadocia</B><BR>11. <B>Neptune Towers</B><BR><BR>Disc 3:<BR><B>"Goatlord"</B> – Rare Instrumental Version (1991) <BR>01. <B>Rex</B> <BR>02. <B>Pure Demoniac Blessing</B> <BR>03. <B>(The) Grimness of which Shepherds Mourn</B> <BR>04. <B>Sadomasochistic Rites</B> <BR>05. <B>As Desertshadows</B> <BR>06. <B>In his Lovely Kingdom</B> <BR>07. <B>Black Daimon</B> <BR>08. <B>Toward(s) the Thornfields</B> <BR>09. <B>(Birth of Evil) Virgin Sin</B> <BR>10. <B>Green Cave Float</B> <BR>11. <B>A Blaze In The Northern Sky</B> <BR>12. <B>Fenriz Drum Solo</B></P>
+Автор: Vit Belov
+
+### 24.07.2008 news Дата релиза нового DARKTHRONE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> DARKTHRONE</STRONG> <STRONG>"Dark Thrones & Black Flags" </STRONG>выходит 20 октября на <STRONG>Peaceville</STRONG>. Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 18.03.2009 reviews Что такое хорошо, и что такое плохо?
+
+<P>Кто-то скажет, что DARKTHRONE ему надоели. Быть может, он, этот кто-то, употребит более крепкое словцо. Если раньше творчество Nocturno Culto и Fenris можно было в какой-то мере признать чем-то серьёзным, то уже несколько альбомов назад произошёл перелом. DARKTHRONE принесли свою душу в жертву «богам металла» и занимаются сейчас только тем, что отвязно ностальгируют по временам винилов и подвальных записей.</P>
+<P>Теперь музыканты могут выпускать по несколько альбомов в год, благо особо напрягаться не приходится. В этот раз ребята сочинили и записали по пять композиций в жанре punk-rock с ужасающим качеством записи и беспредельно грязным вокалом. Эти композиции донельзя тупы, но от них веет (даже воняет) пофигизмом, за который любили и продолжают любить оставшихся в живых классиков панка 70-х – 80-х. DARKTHRONE идут по их стопам. Их новый альбом очень энергичен, но не представляет собой никакой музыкальной ценности. Все мы в своё время просто кайфовали от звучания гитары. У нас с друзьями была одна на троих, при этом играть на ней умел только один, если можно конечно назвать умением те три аккорда, которые он выдавал нам присоединив несчастный инструмент к моему музыкальному центру через какую-то примочку. Мы сидели, открыв рот, и яростно мотали бошками в предвкушении всемирной славы. Думается, именно искренняя любовь к тому, что они делают, и спасает группы типа DARKTHRONE. Достаточно почитать интервью Fenriz, в которых он рассказывает о каких-то неизвестных, но жутко трушных ансамблях, которые нам всем необходимо послушать, чтобы приобщиться к настоящей тяжёлой музыке. </P>
+<P>Музыка DARKTHRONE олицетворяет собой всё то, что называется «настоящей» тяжёлой музыкой. Без дорогих продюсеров и инженеров, без навороченных инструментов и симфонических аранжировок, даже без четырёхядерного процессора в домашнем компьютере. Такую музыку может играть каждый любитель тяжёлой музыки. Он может себя почувствовать одним целым со всей историей любимого стиля. В этом и есть, как мне кажется, сам смысл термина ‘true’. Другой вопрос, возможно ли покупать и слушать такие аутентичные затрапезные работы в XXI веке? Возможно ли настолько проникнуться транслируемой идеей, чтобы сознательно оскорбить свой слух звуками, которые запросто может издавать и магнитофон «Электроника»? Каждый решит сам. Есть профессиональный спорт, а есть студенческие соревнования. Выбор за вами!</P>
+Автор: Vit Belov
+
+### 02.02.2010 news DARKTHRONE выпустят очередной альбом в апреле
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2010.02/16128.jpg" width=200 align=right border=5>5 апреля на <STRONG>Peaceville Records</STRONG> выходит новый альбом <STRONG>DARKTHRONE</STRONG> <STRONG>"Circle The Wagons". </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Those Treasures Will Never Befall You</B><BR itxtvisited="1">02. <B itxtvisited="1">Running For Borders</B><BR itxtvisited="1">03. <B itxtvisited="1">I Am The Graves Of The 80s</B><BR itxtvisited="1">04. <B itxtvisited="1">Stylized Corpse</B><BR itxtvisited="1">05. <B itxtvisited="1">Circle The Wagons</B><BR itxtvisited="1">06. <B itxtvisited="1">Black Mountain Totem</B><BR itxtvisited="1">07. <B itxtvisited="1">I Am The Working Class</B><BR itxtvisited="1">08. <B itxtvisited="1">Eyes Burst At Dawn</B><BR itxtvisited="1">09. <B itxtvisited="1">Br&#228;nn Inte Slottet</B></P>
+<P><STRONG>Nocturno Culto</STRONG> рассказал в недавнем интервью, что на новой работе он ориентировался на heavy-metal и rock'n'roll.</P>
+Автор: Vit Belov
+
+### 26.04.2010 reviews Археология от DARKTHRONE
+
+<P>В наушниках раздаётся шипение, «one-two-three», чёткий ритм, дикие вопли… Безусловно, существуют такие рисунки, которые сходу вдохновляют поклонников «коренной» тяжёлой музыки: thrash-metal и punk-rock. К сожалению, многим не удаётся построить свои альбомы на чистом угаре и пофигизме, но DARKTHRONE относятся к тем группам, которые стараются.</P>
+<P>После последнего альбома знаменитых норвежцев прошло два года, но я как-то не успел соскучиться. При прослушивании новых работ этой группы практически всегда сочувствуешь столь беззаветной преданности DARKTHRONE старинным идеалам, но полюбить их альбом настолько, чтобы вернуться к нему, никогда не получается. В этот раз эти поклонники VENOM несколько даже ослабили натиск. Ураганные и безбашенные трэки слишком часто сменяются медленными, которые уже не вызывают инстинктивного восторга при прослушивании. </P>
+<P>DARKTHRONE заняты тем, что им нравится. Хорошо, что находятся ещё и слушатели, которым нравится то же. Себя я назвать фанатом подобной археологии не могу.</P>
+Автор: Vit Belov
+
+### 16.11.2010 news Журнал Decibel выпустил специальный коллекционный номер, посвящённый стилю Black Metal
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17617.jpg" width=320 height=429>В специальный выпуск журнала <STRONG>Decibel</STRONG>, получивший название "<STRONG>Black Metal Hall Of Fame</STRONG>", вошло восемь историй из общирного склепа стиля&nbsp;<STRONG>Black Metal</STRONG>.&nbsp;Выпуски журнала&nbsp;серии <STRONG>"Hall Of Fame"</STRONG> рассказывают об истории создания наиболее важных альбомов экстремальной музыки, а так же, содержат интервью с музыкантами, принимавшими участие в записи каждого&nbsp;конкретного альбома.&nbsp;</P>
+<P>Перечень историй вошедших в журнал:</P>
+<P><STRONG>BURZUM</STRONG> - "Filosofem" (1996) *<BR itxtvisited="1"><B itxtvisited="1">DARKTHRONE</B> - "Transilvanian Hunger" (1994)<BR itxtvisited="1"><B itxtvisited="1">EMPEROR</B> - "In The Nightside Eclipse" (1995)<BR itxtvisited="1"><B itxtvisited="1">ENSLAVED</B> - "Frost" (1995)<BR itxtvisited="1"><B itxtvisited="1">IMMORTAL</B> - "At The Heart Of Winter" (1999)<BR itxtvisited="1"><B itxtvisited="1">ROTTING CHRIST</B> - "Thy Mighty Contract" (1993) *<BR itxtvisited="1"><B itxtvisited="1">SATYRICON</B> - "Nemesis Divina" (1996) *<BR itxtvisited="1"><B itxtvisited="1">VENOM</B> - "Welcome To Hell" (1981)<BR itxtvisited="1">*<EM>прежде никогда не публиковались.<BR itxtvisited="1"></P></EM>
+<P>Данный номер журнала не доступен для подписчиков. Его можно преобрести в некоторых розничных магазинах или&nbsp;заказать онлайн по адресу: <A href="http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue">http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue</A></P>
+Автор: Headcrusher
+
+### 16.12.2010 news Конкурс от DARKTHRONE
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17849.jpg" width=265 height=400>Норвежская группа <B itxtvisited="1">DARKTHRONE</B> и английский независимый лейбл <STRONG>Peaceville</STRONG> продолжат переиздавать классические альбомы&nbsp;<B itxtvisited="1">DARKTHRONE</B> в новом оформлении. В ближайшем времени будут изданы два альбома из каталога&nbsp;<B itxtvisited="1">Moonfog Productions</B>&nbsp;- <STRONG>"Goatlord" </STRONG>(1996)&nbsp;и <STRONG>"Ravishing Grimness"</STRONG> (1999). Группа и лейбл просят поучаствовать фанатов в создании нового оформления к ставшим уже классическими альбомам. </P>
+<P>Гитарист/вокалист <STRONG>DARKTHRONE</STRONG>&nbsp;Ноктюрно Культо (<B itxtvisited="1">Nocturno Culto</B>) опубликовал следующее заявление: </P>
+<P><EM>"Мы рады анонсировать, что лейбл&nbsp; <B itxtvisited="1">Peaceville</B>/<B itxtvisited="1">Snapper</B> купил права на альбомы <STRONG>DARKTHRONE</STRONG>, выходившие на <B itxtvisited="1">Moonfog</B>. Это, в общей сложности, семь альбомов. Планируется издать их в течении следующего года [...].</EM></P>
+<P><EM>Два альбома -&nbsp; <B itxtvisited="1">'Ravishing Grimness'</B> и <STRONG>'Goatlord'</STRONG>,<STRONG> </STRONG>получат абсолютно новые обложки. Мы приняли это решение совместно с Фенризом (<B itxtvisited="1">Fenriz</B>). И идея состоит в том, чтобы сделать из этого конкурс. Если вы чуствуете достаточно сил&nbsp;для участия в этом конкурсе, то&nbsp;присылайте свои художества в&nbsp;&nbsp;<B itxtvisited="1">Peaceville</B>. Только серьёзные работы будут рассмотрены мной и Фенризом (<B itxtvisited="1">Fenriz</B>). Заранее спасибо, мы будем очень ждать."</EM></P>
+<P>Присылайте свои рисунки до 31 января 2011&nbsp;года&nbsp;на e-mail: <A href="mailto:competition@peaceville.co.uk">competition@peaceville.co.uk</A> </P>
+<P>С полным перечнем правил и условий этого конкурса можно ознакомиться по адресу:</P>
+<P><A href="http://www.peaceville.com/darkthrone/design-competition/terms-and-conditions.html">www.peaceville.com/darkthrone/design-competition/terms-and-conditions.html</A></P>
+Автор: Headcrusher
+
+### 26.03.2011 news DARKTHRONE: новые обложки для альбомов &quot;Goatlord&quot; и &quot;Ravishing Grimness&quot;
+
+<P><STRONG>DARKTHRONE</STRONG> и лейбл <STRONG>Peaceville</STRONG> анонсировали победителей конкурса, в котором надо было нарисавать новые обложки для переизданий альбомов "<STRONG>Goatlord</STRONG>" (1996) и "<STRONG>Ravishing Grimness</STRONG>" (1999). </P>
+<P><U>Ими стали</U>:</P>
+<P>Обложка "<STRONG>Goatlord</STRONG>":&nbsp;<STRONG>Linda K Roed</STRONG> (Норвегия)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.03/18964.jpg" width=400 height=400> 
+<P></P>
+<P><EM>"Фантастическая работа. Странная и сложная.&nbsp;Она отлично соответствует альбому!"</EM> - <STRONG>Nocturno</STRONG></P>
+<P>Обложка "<STRONG>Ravishing Grimness</STRONG>":&nbsp;<STRONG>Costin Alexandru Chioreanu</STRONG> (Румыния, <A href="http://twilight13media.com/">http://twilight13media.com</A>)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.03/18965.jpg" width=400 height=400> 
+<P></P>
+<P><EM>"Ravishing Grimness: Наконец-то этот альбом полностью закончен! Больше нечего добавить" -</EM> <STRONG>Nocturno</STRONG></P></CENTER></CENTER>
+Автор: Headcrusher
+
+### 08.08.2011 news DARKTHRONE переиздадут с новой обложкой
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.08/20497.jpg" width=300 align=right border=0>Седьмой альбом <STRONG>DARKTHRONE</STRONG> <STRONG>"Ravishing Grimness" </STRONG>будет переиздан Peaceville Records 5 сентября. Издание будет содержать новую обложку и бонус-диск с комментариями <STRONG>Fenriz</STRONG> и <STRONG>Nocturno Culto</STRONG>. Трек-лист:</P>
+<P><STRONG>Disc 1: <BR>01. Lifeless <BR>02. The Beast <BR>03. The Claws of Time</STRONG> <BR>04. <B>Across the Vacuum</B> <BR>05. <B>Ravishing Grimness</B> <BR>06. <B>To the Death (Under the King)</B><BR><BR>Disc 2: <BR>* As above, including commentary from <B>Fenriz</B> and <B>Nocturno Culto</B></P>
+Автор: Vit Belov
+
+### 10.01.2012 news DARKTHRONE издадут демо
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2012.01/22573.jpg" width=300 align=right border=0>20 февраля выйдет свет новый CD-альбом норвежцев <STRONG>DARKTHRONE</STRONG>, содержащий четыре культовых демо, записанных в 1988-89 годах. Пластинка получила название "<STRONG>Sempiternal Past</STRONG>" и будет содержать следующие работы: "<STRONG>Land of Frost</STRONG>", "<STRONG>A New Dimension</STRONG>", "<STRONG>Thulcandra</STRONG>" и "<STRONG>Cromlech</STRONG>".</P>
+<P>Каждая запись была востановлена с оригинальных плёнок и ремастирована. Трек-лист:</P>
+<P>1. <STRONG>Land Of Frost<BR></STRONG>2. <STRONG>Winds Of Triton<BR></STRONG>3. <STRONG>Forest Of Darkness <BR></STRONG>4. <STRONG>Odyssey Of Freedom</STRONG><BR>5. <STRONG>Day Of The Dead<BR></STRONG>6. <STRONG>Intro<BR></STRONG>7. <STRONG>Snowfall<BR></STRONG>8. <STRONG>Eon<BR></STRONG>9. <STRONG>Thulcandra <BR></STRONG>10. <STRONG>Archipelago<BR></STRONG>11. <STRONG>The Watchtower<BR></STRONG>12. <STRONG>Accumulation Of Generalization<BR></STRONG>13. <STRONG>Sempiternal Past / Presence View Sepulchrality<BR></STRONG>14. <STRONG>Iconoclasm Sweeps Cappadocia</STRONG><BR>15. <STRONG>Soria Moria Slott</STRONG> (Oslo TV 1989) <BR>16. <STRONG>Eon / Thulcandra</STRONG> (Oslo TV 1989) <BR>17. <STRONG>God Of Disturbance And Friction</STRONG></P>
+Автор: Vit Belov
+
+### 15.12.2012 news Новый альбом DARKTHRONE
+
+<P>Новая работа <STRONG>DARKTHRONE</STRONG> <STRONG>"The Underground Resistance"</STRONG> выйдет 26 февраля на <STRONG>Peaceville</STRONG>. </P>
+<P><center><IMG border=0 src="/images/news_rus/2012.12/25152.jpg" width=472 height=472></P>
+Автор: Vit Belov
+
+### 08.01.2013 news Лучшие альбомы 2012 года от Fenriz&#39;а
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25268.gif" width=250 height=247>Известный&nbsp;любитель дикой природы и классических форм металла, а также по совместительству барабанщик <STRONG>DARKTHRONE</STRONG>, мистер <STRONG>Fenriz</STRONG>, поделился своим мнением относительно десяти лучших альбомов ушедшего 2012 года. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этот список в произвольном порядке вошли:</FONT></P>
+<P>01. <STRONG>VOMITOR "The Escalation"</STRONG> (<STRONG>Invictus Productions</STRONG>)</P>
+<P>02. <STRONG>GOAT "World Music"</STRONG> (<STRONG>Stranded Rekords</STRONG>)</P>
+<P>03. <STRONG>HOUR OF 13 "333"</STRONG> (<STRONG>Earache</STRONG>)</P>
+<P>04. <STRONG>CHRISTIAN MISTRESS "Possession"</STRONG> (<STRONG>Relapse</STRONG>)</P>
+<P>05. <STRONG>NEKROMANTHEON "Rise, Vulcan Spectre"</STRONG> (<STRONG>Indie Recordings</STRONG>)</P>
+<P>06. <STRONG>DEATHHAMMER "Onward To The Pits"</STRONG> (<STRONG>Hells Headbangers</STRONG>)</P>
+<P>07. <STRONG>GOLD "Interbellum" </STRONG>(<STRONG>Van</STRONG>)</P>
+<P>08. <STRONG>VANDERBUYST "Flying Dutchmen"</STRONG> (<STRONG>Van</STRONG>)</P>
+<P>09. <STRONG>ROYAL THUNDER "CVI"</STRONG> (<STRONG>Relapse</STRONG>)</P>
+<P>10. <STRONG>SHIPWRECKED "The Last Pagans"</STRONG> (<STRONG>Crucial Response</STRONG>)</P>
+<P>Также,&nbsp;по его мнению,&nbsp;заслуживают внимания альбомы 2012 года от следующих групп: <STRONG>TURBONEGRO</STRONG>, <STRONG>HOODED MENACE</STRONG>, <STRONG>AURA NOIR</STRONG>, <STRONG>WITCHCRAFT</STRONG>, <STRONG>YEAR OF THE GOAT</STRONG>, <STRONG>EL DOOM & THE BORN ELECTRIC</STRONG>, <STRONG>VETTER</STRONG>, <STRONG>BURZUM</STRONG>, <STRONG>THE SABBATH ASSEMBLY</STRONG>, <STRONG>GRAVEYARD</STRONG> и <STRONG>JESS AND THE ANCIENT ONES</STRONG>.</P>
+Автор: Headcrusher
+
+### 10.08.2016 news Новый альбом DARKTHRONE
+
+<p>Новая работа норвежцев <strong>DARKTHRONE "Arctic Thunder"</strong> выйдет 14 октября на <strong>Peaceville</strong>. На альбом войдут восемь треков. Подробности последуют.&nbsp;</p><center><img width="600" height="600" src="/images/news_rus/2016.08/29785.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 10.08.2016 news New album by DARKTHRONE
+
+<p>New work by Norwegians DARKTHRONE "Arctic Thunder" will be released on October 14 via Peaceville. The album will include eight tracks. The details will follow.</p><center><img width="600" height="600" src="/images/news_rus/2016.08/29785.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 18.08.2016 news Новая музыка DARKTHRONE
+
+<p>Мы уже сообщали, что новый альбом <strong>DARKTHRONE "Arctic Thunder"</strong> выходит 14 октября на<strong> Peaceville</strong>. Ниже можно услышать первый сингл с этого альбома "<strong>Tundra Leech</strong>". </p><p>Трек лист:</p><p>1. Tundra Leech <br>2. Burial Bliss <br>3. Boreal Fiends <br>4. Inbred Vermin <br>5. Arctic Thunder&nbsp; <br>6. Throw Me Through the Marshes <br>7. Deep Lake Tresspass&nbsp; <br>8. The Wyoming Distance</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Lwz7gucE7x0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 18.08.2016 news New single by DARKTHRONE
+
+<p>We have already reported that the new <strong>DARKTHRONE</strong> album "<strong>Arctic Thunder</strong>" comes out on 14 October via <strong>Peaceville</strong>. Below you can hear the first single from this album "<strong>Tundra Leech</strong>".</p><p>Track list:</p><p>1. Tundra Leech <br>2. Burial Bliss <br>3. Boreal Fiends <br>4. Inbred Vermin <br>5. Arctic Thunder&nbsp; <br>6. Throw Me Through the Marshes <br>7. Deep Lake Tresspass&nbsp; <br>8. The Wyoming Distance</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Lwz7gucE7x0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

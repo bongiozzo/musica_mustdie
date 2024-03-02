@@ -105,6 +105,44 @@ Hans in ‘t Zandt – Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.04.2003 reviews Путешествие начинается...
+
+<p>Новейшее творение старейшей группы. PRAYING MANTIS была образована еще в 1977 году братьями греками Tino и Chris Troy. Уже первые записи группы причислили ее к высшей лиге стиля New Wave Of British Heavy Metal. Просуществовав успешно до 1985 года, группа распалась и реформировалась в 1990 году. Но хватит истории... Новый альбом группы представляет группу в несколько ином виде. Музыка группы полегчала, стала более мелодичной и среднетемповой, чем ранее. Я бы даже сказал, она стала явно коммерческой. Альбом интересен тем, что разные песни поют на нем разные вокалисты. Помимо членов группы (Chris Troy, Dennis Stratton, Tino Troy) в качестве вокалистов на альбоме записались John Sloman (GARY MOORE) и Dougie White (CORNERSTONE, MALMSTEEN). Музыка представляет собой melodic rock смешивающий традиции семидесятых от URIAH HEEP и THIN LIZZY с современными стандартами мелодичного рока от CORNERSTONE и ROYAL HUNT. Особо на альбоме выделяются испанские гитары, атмосферные клавишные пассажи, AOR-гармонии и хуки, мелодичный хор вокалистов и гитарные соло братьев Трой. Качественная и очень интересная работа рекомендуемая всем поклонникам melodic rock и AOR.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 14.04.2009 news Новый альбом PRAYING MANTIS
+
+<P><IMG height=243 alt="" hspace=0 src="/images/news_rus/2009.04/13952.jpg" width=223 align=right border=5>5 июня на <STRONG>Frontiers</STRONG> выходит новый альбом <STRONG>PRAYING MANTIS</STRONG> <STRONG>"Sanctuary"/ </STRONG>Пластинка была записана в Атланте, штат Джорджия вместе с продюсером/инженером <STRONG>Andy Reilly</STRONG> (<B>ASIA</B>, <B>THE CULT</B>, <B>BRUCE DICKINSON</B>, <B>FM</B>, etc). Трэк-лист:</P>
+<P>01. <B>In Time</B><BR>02. <B>Restless Heart</B><BR>03. <B>Tears In The Rain</B><BR>04. <B>So High</B><BR>05. <B>Lonely Way Home</B><BR>06. <B>Touch The Rainbow</B><BR>07. <B>Threshold of a Dream</B><BR>08. <B>Playing God</B><BR>09. <B>Highway</B><BR>10. <B>Sanctuary</B></P>
+<P>Сэмплы: <A href="http://www.frontiers.it/Default.aspx?tabid=85&pl=P">http://www.frontiers.it/Default.aspx?tabid=85&pl=P</A></P>
+<P>Состав:</P>
+<P><STRONG>Tino Troy</STRONG> - Guitar, Backing Vocals<BR><B>Chris Troy</B> - Bass, Backing Vocals<BR><B>Benjy Reid</B> - Drums<BR><B>Andy Burgess</B> - Guitar, Backing Vocals<BR><B>Mike Freeland</B> - Lead Vocals</P>
+Автор: Vit Belov
+
+### 16.05.2009 news Новое видео PRAYING MANTIS
+
+<P>Видео<STRONG> PRAYING MANTIS</STRONG> на песню <STRONG>"Turn The Tide" </STRONG>доступно в сети. Песня попадёт на новый альбом "<STRONG>Sanctuary</STRONG>", выходящий 5 июня на<STRONG> Frontiers</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/bXA2XkWb4dk&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/bXA2XkWb4dk&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.03.2013 news Умер Clive Burr
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25529.jpg" width=310 height=399>12 марта, в возрасте 56 лет,&nbsp;ушёл из жизни барабанщик&nbsp;<STRONG>Clive Burr</STRONG>. Он долгое время страдал от Рассеяного склероза <EM>(серьёзное прогрессирующее заболевание с многочисленными очагами поражений центральной нервной системы)</EM>&nbsp;и умер во сне, находясь у себя дома.</P>
+<P><STRONG>Clive</STRONG> записал&nbsp;барабаны на&nbsp;трёх первых альбомах <STRONG>IRON MAIDEN</STRONG>, к которым присоеденился в 1979 году.</P>
+<P>А также был участником <STRONG>SAMSON</STRONG>, <STRONG>TRUST</STRONG>, <STRONG>ELIXIR</STRONG>, <STRONG>PRAYING MANTIS</STRONG> и <STRONG>GOGMAGOG</STRONG>. </P>
+<P><STRONG>Steve Harris</STRONG>: <EM>"Это ужасная новость. <STRONG>Clive</STRONG> был нашим&nbsp;старым другом. Он был прекрасным человеком и удивительным барабанщиком, который&nbsp;внёс неоценимый вклад&nbsp;в <STRONG>MAIDEN</STRONG>, на ранних годах существования&nbsp;группы.&nbsp;Сегодня очень печальный день для каждого из нас и для всех его близких. Наши соболезнования его жене <STRONG>Mimi</STRONG> и всей его семье."</EM></P>
+<P><STRONG>Bruce Dickinson</STRONG>:<EM> "Первый раз я встретил Клайва в тот момент, когда он покинул <STRONG>SAMSON</STRONG> и присоеденился к <STRONG>IRON MAIDEN</STRONG>.&nbsp;Он был клёвым парнем и человеком, который&nbsp;жил на полную катушку. Даже в самые тяжёлые дни его болезни, Клайв никогда не терял своего чувства юмора.&nbsp;Сегодня очень печальный день и все наши мысли с <STRONG>Mimi</STRONG>&nbsp;и его родными."</EM></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -46,6 +46,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.07.2011 news CORPUS MORTALE в студии
+
+<P>Датские death-metal'исты <STRONG>CORPUS MORTALE</STRONG> находятся в студии вместе с продюсером<STRONG> Jacob Olsen (PANZERCHRIST)</STRONG>, где записывают новый альбом, который должен выйти до конца года. Коллектив планирует закончить всю работу, включая сведение в августе.</P>
+<P>Предыдущий альбом <STRONG>CORPUS MORTALE</STRONG> вышел в 2007 году на <STRONG>Neurotic</STRONG>.</P>
+<P><center><IMG height=300 src="/images/news_rus/2011.07/20129.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

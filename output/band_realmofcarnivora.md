@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.10.2003 reviews Очень сырой black-metal из Эстонии
+
+Сырой..., очень сырой black-metal. такой сырой, что уж лучше его в 21 веке не выпускать. REALM OF CARNIVORA образовалась в 1998 году, что слишком поздно для подпольных записей и слишком рано для того, чтобы не научиться играть. К сожалению, этот коллектив не собирается радовать фэнов качеством записи, что скажется на их количетсве. У меня заболела голова от перебора басов. Слушать это не просто сложно, а невозможно. Как такая пластинка могла попасть на немецкий лэйбл, вообще, непонятно?&nbsp;Ничего хорошего про этот альбом сказать нельзя, поэтому отправим его в black-metal'ический мусор.
+Автор: Vit Belov
+
+### 29.10.2003 reviews Very raw black-metal from Estonia
+
+Raw..., very raw black-metal. It's so raw, that i recommend better to not release it in XXI century. REALM OF CARNIVORA was found in 1998. It's too late for underground records and too early for not learning to play on instruments. Unfortunatly this band don't try to gladden fans by quality of recording. Quantity of this fans depends from this quality. I have headache, 'cause this album has very many basses and deepest sound. I just could not listen to it. How could so CD release on German label? It's not understanding.&nbsp;I can say&nbsp;nothing good about this&nbsp;CD, that' why let's send it to black-metal trash.&nbsp;
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

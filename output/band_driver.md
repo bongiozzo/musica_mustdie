@@ -29,6 +29,17 @@ Aaron Samson - bass guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.05.2012 news Новый альбом DRIVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2012.05/23758.jpg" width=300 align=right border=0>Воссоединившееся <STRONG>DRIVER</STRONG> выпускают второй альбом новое эры <STRONG>"Countdown"</STRONG> в конце месяца на<STRONG> Metal Heaven</STRONG>. В составе коллектива вокалист <STRONG>Rob Rock</STRONG> и известный продюсер <STRONG>Roy Z</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Return To The Sky</B><BR>02. <B>Rising Son</B><BR>03. <B>Countdown</B><BR>04. <B>Hollywood Shooting Star</B><BR>05. <B>Thief In The Night</B><BR>06. <B>Cry Of The Wounded</B><BR>07. <B>Always On My Mind</B><BR>08. <B>Feel The Fire</B><BR>09. <B>Destiny</B><BR>10. <B>Running From The Darkness</B><BR>11. <B>Babylon</B> (exclusive European bonus track) </P>
+<P>Состав группы:</P>
+<P><STRONG>Rob Rock</STRONG> - Vocals<BR><B>Roy Z</B> - Guitars<BR><B>Reynold "Butch" Carlson</B> - Drums<BR><B>Ed Roth</B> - Keyboards<BR><B>Aaron Samson</B> - Bass</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

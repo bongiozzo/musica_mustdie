@@ -117,6 +117,169 @@ Tobias Gustafsson - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.05.1999 reviews 
+
+<p>Этот альбом я послушал не без удовольствия. Давненько не слышал ничего такого хорошего и брутально дэтового. В этом году даже ничего такого хорошего и не выходило, кроме INFESTDEAD. Очень тяжело, мощно и брутально, что самое главное ещё и мелодично, т.е. это не просто долбёжка. Если приводить сравнения, то этот альбом скорее похож на супербрутально-дэтовую версию SLAYER. SLAYER славился своей скоростью, у VOMITORY те же скорости, та же мелодичность, но плюс к этому повышенная тяжесть и мощь несущегося вперёд паровоза, ну и, естесственно, утробно-рычащий вокал. Иногда хочется потрясти башкой и выплеснуть злобную энергию. В такой момент, этот альбом как нельзя кстати.</p>
+
+Автор: Dimas
+
+### 20.09.2000 news Группа Vomitory подписала контрат с Metal Blade
+
+<p> Группа Vomitory подписала контрат с Metal Blade, на котором выпустит свой третий диск 'Revelation Nausea'.</p>
+
+Автор: Nybras
+
+### 22.09.2000 news О релизах Metal Blade до конца 2000-го  года
+
+<p> Европейский отдел Metal Blade афишировал список своих релизов, запланированных до конца этого года. Итак:<br>25.09.00 CANNIBAL CORPSE Live Cannibalism (новый альбом)<br> 25.09.00 CANNIBAL CORPSE Live Cannibalism (новое видео)<br> 09.10.00 LIZZY BORDEN Deal With The Devil (новый альбом)<br> 23.10.00 ANCIENT God Loves The Dead (новый мини-диск)<br> 23.10.00 SIX FEET UNDER Graveyard Classics (новый альбом)<br> 06.11.00 IMMOLATION Close To A World Below (новый альбом)<br> 06.11.00 VOMITORY Revelation Nausea (новый альбом)<br> 20.11.00 DIES IRAE Immolated (новый альбом)<br> 20.11.00 VADER Reign Forever World (новый альбом)<br> 20.11.00 CHINCHILLA Madness (новый альбом)<br></p>
+
+Автор: Nybras
+
+### 10.12.2001 news Vomitory have finished the recordings of their upcoming album...
+
+<p>Swedish death metal stalwarts Vomitory have finished the recordings of their upcoming album, Blood Rapture. "Now it's done! We're really excited to have this Death Metal Bomb released!," said drummer Tobias Gustafsson. "Everything turned out great in the end, but it took us a little extra time during the mix than it use to to achieve the final crushing result. This is the best sounding Vomitory album so far, without doubt! The guitars are really heavy and "meaty" and Erik's vocals will make anyone shit in their pants!" <BR><BR> Blood Rapture tracklisting is: "Chaos Fury," "Hollow Retribution," "Blessed And Forsaken," "Madness Prevails," "Redeemed In Flames," "Nailed, Quartered, Consumed," "Rotting Hill," "Blood Rapture" and and untitled song. <BR><BR> In similar news, Vomitory has joined Cannibal Corpse, Nile, Kreator, Marduk, Dark Funeral and Krisiun for this year's X-Mass Festivals. The festival starts on December 11 in Osnabruck, Germany and ends December 22 in Zwickau, Germany. <BR><BR> Look for Vomitory's Blood Rapture out April 22 in Europe and May 21 in North America.</p>
+
+Автор: Yermola
+
+### 10.12.2001 news Кровавый Экстаз...
+
+<p>Шведские металлурги "Vomitory" завершили запись альбома "Blood Rapture". По словам барабанщика Tobias Gustafsson: "Это лучший по звуку альбом Vomitory на сегодняшний день, без сомнений! Гитары звучат тяжело и мясисто, а вокал Эрика заставит кое-кого испачкать штанишки!". Трек-лист: <BR><BR> "Chaos Fury" <BR> "Hollow Retribution" <BR> "Blessed And Forsaken" <BR> "Madness Prevails" <BR> "Redeemed In Flames" <BR> "Nailed, Quartered, Consumed" <BR> "Rotting Hill" <BR> "Blood Rapture" <BR><BR> Дата выхода - 22 апреля для Европы и 21 мая для США. С 11-го декабря команда участвует в Рождественском фестивале с Cannibal Corpse, Nile, Kreator, Marduk, Dark Funeral и Krisiun.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 12.08.2002 news THRASH&#39;EM ALL FESTIVAL 2002 ...
+
+<p>MONSTROSITY, VOMITORY, TRAUMA, SCEPTIC, LOST SOUL, DISSENTER & CONTEMPT <BR><BR> 1.10. WARSZAWA - Proxima <BR> 2.10. LУDZ - Dekompresja <BR> 3.10. POZNAN - Eskulap <BR> 4.10. WROCLAW <BR> 5.10. KATOWICE - Mega Club <BR> 6.10. KRAKУW - Rotunda <BR> 7.10. RZESZУW <BR> 8.10. LUBLIN - Graffiti <BR> 9.10. GDANSK - Kwadratowa <BR> 10.10. OLSZTYN - Come In</p>
+
+Автор: Yermola
+
+### 22.10.2002 bios VOMITORY
+
+<p>История Vomitory началась в октябре 1989 года, когда started гитарист Urban Gustafsson и басист DLer Ronnie Olson решили организовать группу в стиле DLed – то есть бескомпромиссную, быструю и брутальную команду. Основные влияния – Sodom, Slayer, Celtic frost, Entombed и Napalm death, и именно благодаря этим группам ребята сразу поняли в каком направлении им нужно двигаться. Вскоре брат Urbans, Tobias, который тогда играл вместе с DLed в СПИД-металл группе Eureka, присоединился к команде в качестве ударника. В апреле 1990, в своём родном городке Forshaga, Vomitory дали свой первый концерт. Вскоре после этого Ronnie почувтсовал, что хочет заниматься исключительно вокалом, и Bengt Sund присоединился к группе в качестве басиста. Чтобы добиться для нового материала того звучания, которое он заслуживал, Vomitory понадобился второй гитарист, которым стал приятель Bengts Ulf Dalegren в июне 1991. Теперь основной состав был полностью сформирован.</p>
+<p> Первая студийная запись вышла в виде демо-плёнки весной 1992, и после этого выпуска имя Vomitory стало хорошо известно всей андеграундной сцене. После выпуска одноимённой демо, между Vomitory и Witchhunt records, Швейцария, возникли деловые отношения. Позднее, в июне 1993 года, Witchhunt records выпустили сингл Vomitory, под названием "Moribund". За первые два месяца было продано 1600 - 2000 копий. Обложка первого тиража так ни разу и не переиздавалась, а потому сейчас считается раритетом. Прошло немного времени после выхода сингла, и Bengt Sund «попросили» из группы. Так он и сделал, а на его место пришёл Thomas Bergqvist, который вместе с DLing и Ulf Dalegren играл в дум-металл группе Nezgaroth.</p>
+<p> После выпуска сингла интерес к Vomitory проявили сразу несколько звукозаписывающих компаний, так что ребята в новом составе отправились в студию для записи рекламной плёнки из 5 песен для будущего сотрудничества. Однако, ничего не произошло. Поэтому вместо того, чтобы глупо ждать предложения, Vomitory в марте 1994 года записали демо-плёнку "Through sepulchral shadows". Благодаря ей Vomitory получили массу положительных отзывов в журналах со всего мира. Было продано 1000 копий.</p>
+<p> В апреле 1995 группа отправилась в Польшу, для небольшого, но очень успешного турне по всей стране. Впервые Vomitory покинули пределы Швеции, и это стало очень важным опытом для команды, ибо польские фанаты вели себя просто великолепно!</p>
+<p> В начале 1996 Vomitory подписали контракт с Fadeless records, Нидерланды, и в апреле записали свой первый полноценный диск под названием "Raped in their own blood". Он вышел в апреле того же года. После выпуска "Raped in their own blood" Thomas и Ronnie покинули Vomitory. Их заменили Erik Rundqvist (бас) и Jussi Linna (вокал).</p>
+<p> В июле 1998 Vomitory наконец-то записали свой второй альбом "Redemption", но он не был выпущен до марта 1999 года. Этим релизом Vomitory ещё раз доказали, что они верны своему стилю: дэт-металлу старой школы, - и по прежнему не согласны идти на компромисс. За последние два года Vomitory два раза были в европейских турне – два путешествия, когда они смогли познакомиться со всеми своими поклонниками, которые помогли им просуществовать целых 10 лет.</p>
+
+Автор: Dimas
+
+### 12.10.2003 news VOMITORY ищут вокалиста
+
+<B>VOMITORY</B> войдут в <B>Studio Kuling</B> вместе с продюсером <B>Henrik Larsson</B> в декабре. Альбом планируется к выходу на <B>METAL BLADE</B> в 2004 году. В тоже время басист/вокалист команды <B>Erik Rundqvist</B> решил сосредоточится на игре на басу, поэтому <B>VOMITORY</B> ищут нового певца.<BR>
+Автор: Vit Belov
+
+### 16.12.2003 news Новый альбом VOMITORY
+
+<P>Шведский death metal коллектив <B>VOMITORY</B> войдет в студию <B>Studio Kuling</B> 8 декабря с продюсером <B>Henrik Larsson</B> для записи своего пятого альбома <B>"Primal Massacre"</B>. Запись будет продолжаться в течение двух недель. Смиксован альбом будет в Helsingborg в январе во главе с <B>Henrik Larsson</B>. Обложку нарисует <B>Juanjo Castellano</B>.</P>
+Автор: Darkfall
+
+### 06.10.2004 reviews Стагнация VOMITORY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Вот альбом, про который ничего рассказать просто невозможно. Стагнация <STRONG>VOMITORY</STRONG>! Отсутствие свежих идей при некоторой запылённости старой death-metal идеи.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская группа не радует нас разнообразием на своём пятом альбоме <STRONG>'Primal Massacre'</STRONG>, но их материал добротен. Эту пластинку фэн death-metal может приобрести, только в случае отсутствия других стоящих новинок. А death-metal маньяки альбом и так уже купили. Не стоит думать, что новый альбом <STRONG>VOMITORY</STRONG> плох, но и интересной эту пластинку назовёт только глухой. Кроме прочего, отмечу явную нехватку скоростей, что в death-metal, простите за каламбур, смертельно.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A></FONT></P>
+Автор: Vit Belov
+
+### 21.10.2005 news VOMITORY покинул гитарист
+
+<P><STRONG>VOMITORY</STRONG> покинул гитарист<STRONG> Ulf Dalegren</STRONG> после 15 лет совместного творчества. </P>
+Автор: Vit Belov
+
+### 05.01.2009 news VOMITORY вошли в студию
+
+<P>Шведы <STRONG>VOMITORY</STRONG> вошли в <STRONG>Leon Music Studios</STRONG> в Карлстаде, Швеция для записи своего седьмого альбома <STRONG>"Carnage Euphoria" </STRONG>с продюсером <STRONG>Rikard Lofgren</STRONG>. Альбом выйдет в конце весны/начале лета на <STRONG>Metal Blade</STRONG>. </P>
+Автор: Vit Belov
+
+### 26.03.2009 news VOMITORY закончили седьмой альбом
+
+<P><IMG height=298 alt="" hspace=0 src="/images/news_rus/2009.03/13844.jpg" width=300 align=right border=5>11 мая на <STRONG>Metal Blade</STRONG> выходит седьмой альбом <STRONG>VOMITORY</STRONG> <STRONG>"Carnage Euphoria".</STRONG> Трэк-лист:</P>
+<P>01. <B>The Carnage Rages On</B><BR>02. <B>Serpents</B><BR>03. <B>A Lesson In Virulence</B><BR>04. <B>Ripe Cadavers</B><BR>05. <B>Rage Of Honour</B><BR>06. <B>The Ravenous Dead</B><BR>07. <B>Deadlock</B><BR>08. <B>Rebirth Of The Grotesque</B><BR>09. <B>Possessed</B><BR>10. <B>Great Deceiver</B></P>
+<P><STRONG></STRONG>&nbsp;</P>
+Автор: Vit Belov
+
+### 03.07.2009 reviews VOMITORY обратились к классическому звучанию
+
+<P>Шведская группа VOMITORY один из тех середняков death-metal сцены, которые практически никогда не подводят. Вот и на этот раз, хотя музыканты и изменили слегка своё звучание, альбом получился крепким и профессиональным.</P>
+<P>Предыдущая работа VOMITORY поражала просто запредельной тяжестью звучания, что для шведов было, в общем-то, не очень свойственно. «Открывашка» с “Terrorize Brutalize Sodomize” просто прошивала на вылет. Сходу даже было не понять, что хотят сказать VOMITORY. Новая работа получилась гораздо более дружественной к неподготовленному слушателю. Появились мелодичные соло, да и само построение стало больше походить на классический шведский death-metal в духе DISMEMBER и GRAVE. Некоторые песни мне напомнили поздний мелодичный DEICIDE и KATAKLYSM. Это конечно не плохо, но попробовав раз тяжелейшего и обжигающего блюда от VOMITORY, мне хотелось продолжить знакомство с музыкой в этом духе. В этом смысле я был слегка разочарован, но в остальном VOMITORY порадовали. Ритмичная запоминающаяся музыка, за которую и полюбили этот стиль.</P>
+<P>Любители группы с «открытым сознанием» оценят эту пластинку. Всё-таки хоть она и легче предшественницы, она ещё death-metal.</P>
+Автор: Vit Belov
+
+### 23.11.2010 news VOMITORY записывают новый альбом
+
+<P>Шведы <STRONG>VOMITORY</STRONG> находятся в студии <STRONG>Leon Music </STRONG>в Швеции, где вместе с продюсером <STRONG>Rikard Lofgren </STRONG>записывают новый альбом, который выйдет весной на <STRONG>Metal Blade</STRONG>. Этот же&nbsp;продюсер записывал и два предыдущих альбома группы.</P>
+Автор: Vit Belov
+
+### 02.03.2011 news Новый альбом VOMITORY
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.03/18764.jpg" width=200 align=right border=0>26 апреля на <STRONG>Metal Blade</STRONG> выйдет новый альбом шведов <STRONG>VOMITORY</STRONG> <STRONG>"Opus Mortis VIII". </STRONG>Продюсером пластинки выступил <STRONG>Rikard Lofgren, </STRONG>записавший диск в своей студии <STRONG>Leon Music Studios. </STRONG>Трек-лист:</P>
+<P>01. <B>Regorge In The Morgue</B><BR>02. <B>Bloodstained</B><BR>03. <B>They Will Burn</B><BR>04. <B>The Dead Awaken</B><BR>05. <B>Hate In A Time Of War</B><BR>06. <B>Torturous Ingenious</B><BR>07. <B>Forever Damned</B><BR>08. <B>Shrouded In Darkness</B><BR>09. <B>Combat Psychosis</B><BR>10. <B>Requiem For The Fallen</B><BR><BR>Bonus tracks:<BR>11. <B>Nervegasclouds 2011</B><BR>12. <B>Raped In Their Own Blood 2011</B><BR>13. <B>Redemption 2011</B><BR>14. <B>The Voyage 2011</B></P>
+Автор: Vit Belov
+
+### 08.05.2011 news Новый клип VOMITORY
+
+<P>Шведские детстеры <STRONG>VOMITORY</STRONG> выпустили клип <STRONG>"Regorge In The Morgue". </STRONG>Трек попал на новый альбом группы <STRONG>"Opus Mortis VIII"</STRONG>, вышедший в конце апреля на <STRONG>Metal Blade</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/LGCqe-WQkKs?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/LGCqe-WQkKs?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.06.2011 reviews Мы мертвы, но мы живее всех живых
+
+<P>И вновь салют! Четыре мёртвых джентльмена в военной форме исполняют что-то на заснеженном поле битвы на струнных инструментах. «Пускай, мы мертвы от рождения, но наш death-metal пробудит в вас самые низменные инстинкты и заставит отчаянно молотить головой о косяк двери вашей комнаты», - будто бы поют эти пехотинцы. Так и VOMITORY, в трижды похороненном стиле музыки они каждый раз умудряются отыскать те звуки, которые пробуждают в нашей душе эстетическо-звериное удовольствие.</P>
+<P>На своём восьмом альбоме VOMITORY решили отпраздновать свой юбилей. Не беда, что восемь это ещё не десять, но звучание этого альбома предполагает именно большой и чудный праздник, в честь которого музыканты и вспомнили все, чем славна их музыка и шведский death-metal в целом. Уже с первых звуков понятно, что экспериментировать с бруталом, как на прошлой работе, музыканты не будут. Бульдозерный ритм, бас-гитара… и понеслось. Лёгкий закос в thrash-metal и doom-metal, как положено, мощный драйв, размеренные соло, даже микроскопические проигрыши на акустике, и вот мы получаем классический шведский death-metal проверенный временем и улучшенный современными технологиями реализации звука. Практически классика.</P>
+<P>Безусловно, на шедевр “Opus Mortis” не тянет. Вернее так, в моём субъективном понимании этому альбому VOMITORY чего-то не хватает, но это вовсе не значит, что в чьём-то другом субъективном понимании этот альбом не получит высочайшей оценки.</P>
+Автор: Vit Belov
+
+### 13.03.2013 news VOMITORY: 1989 - 2013
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25526.jpg" width=350 height=350>Шведская death metal банда <STRONG>VOMITORY</STRONG>, после 24 лет существования и 8 студийных альбомов, заявила о своём грядущем&nbsp;распаде. </P>
+<P>Участник группы приняли коллективное решение, что&nbsp;на исходе&nbsp;2013 г. <STRONG>VOMITORY </STRONG>придёт конец. </P>
+<P>А пока они собираются отыграть столько много концертов,&nbsp;насколько это будет возможно.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -29,6 +29,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2016 reviews Польская «мессопотамщина»
+
+<p>Очаровательное название нового альбома польской death metal группы HELLSPAWN “There Has Never Been A Son Of Me” многое рассказывает об убеждениях этой группы. Похоже это не сатанизм, а оригинальная собственная религия, никак не связанная с современной распространённой мифологией. Поют ребята о чём-то другом, но звучат так, как звучат коллективы, поющие о том самом. Для примера BEHEMOTH.</p><p>BEHEMOTH времён увлечения Nergal группой NILE. Жёсткие, маршеобразные риффы, гроулинг и редкие мелодические и даже симфонические вставки, нагнетающие атмосферу злобы и страдания. Записан альбом в собственной студии музыкантов, но звучит великолепно и поддерживает репутацию польской death metal сцены с её великолепной продукцией. Инфернальный HELLSPAWN слушается с большим удовольствием, в нём есть некоторая примесь black metal, но в основном связанная с избранной лирической тематикой. </p><p>Очень качественный и хороший альбом в традиционном для поляков стиле с изрядной долей «мессопотамщины». Особенно диск понравится любителям польского тяжёлого метала в духе BEHEMOTH и HATE.</p>
+Автор: Vit Belov
+
+### 18.07.2016 reviews Polish &quot;Mesopotamian&quot; music
+
+<p>The charming title of the new album from Polish death metal band HELLSPAWN “There Has Never Been A Son Of Me” tells a lot about the beliefs of this group. That is not Satanism, as original own religion, nothing to do with modern common mythology. The guys sing about something else, but sound as sound bands singing about the same. For example BEHEMOTH.</p><p>BEHEMOTH in the times when Nergal like NILE. Hard march riffs, growling vocals and a rare melodic and even symphonic inserts, to the atmosphere of anger and suffering. Musicicans recorded the album in his own Studio, but it sounds great and supports the reputation of the Polish death metal scene with its splendid products. Infernal HELLSPAWN is listened with great pleasure, there is some admixture of black metal, but mostly related to their chosen lyrical theme. </p><p>Very high quality and a good album in the traditional style of poles with a fair share of "Mesopotamia". Especially the CD will appeal to fans of the Polish death metal in the vein of BEHEMOTH and HATE.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

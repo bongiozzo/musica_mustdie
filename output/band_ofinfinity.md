@@ -12,6 +12,9 @@ Dark Powerful Female-Fronted Melodic Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

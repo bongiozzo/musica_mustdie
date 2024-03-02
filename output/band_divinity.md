@@ -53,6 +53,28 @@ maxwell-lyster (www.myspace.com/autobodycalgary)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2008 reviews Попытка не пытка
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>DIVINITY – ещё одна группа, которая, как мне кажется, на Nuclear Blast не задержится на долгое время. Уже было немало таких коллективов, которые выпускали свои дебюты для этого мощного лэйбла, а потом скатывались в небытие. Ну, не в небытие, конечно же, но переходили на менее амбициозные фирмы. Среди таких, RAUNCHY, OMNIUM GATHERUM и другие молодые группы. Немецкий лэйбл может позволить себе экспериментировать.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа DIVINITY тоже экспериментирует на стыке metalcore, thrash-metal, modern-death и melodic-death. Получается что-то экспрессивное и оригинальное, рваное и малопонятное. Здесь и чистый вокал, и ломанные риффы, и «трэшовый» забой, и вопли какие-то не понятные… Впрочем амбиции DIVINITY мне понятны. Попытка не пытка! Так, кажется, это называется. Мы намешаем что-нибудь такого амелодичного и забойного, а там, глядишь, публике понравится. Усилий почти никаких, зато вторыми KREATOR или IN FLAMES никто не назовёт. Возможно, второй MESHUGGAH, но это совсем другое дело.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ничего плохого в подобных попытках я не вижу. Кто думает, что ему может понравиться материал, который нельзя назвать обычным, тот послушает и оценит, а фэнам, привыкшим к стандартным металлическим звукам и не считающим себя знатоками современных стилей, покупать это не рекомендуется.</FONT></P>
+Автор: Vit Belov
+
+### 22.01.2009 news DIVINITY записывают новый альбом
+
+<P>Канадцы <STRONG>DIVINITY</STRONG> записывают новый альбом. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 02.12.2009 news DIVINITY можно послушать
+
+<P><IMG height=395 alt="" hspace=0 src="/images/news_rus/2009.12/15637.jpg" width=400 align=right border=5>Новый альбом<STRONG> DIVINITY</STRONG> <STRONG>"The Singularity" </STRONG>выходит на<STRONG> Nuclear Blast</STRONG>. Целиком эту пластинку можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/divinitymetal">http://www.myspace.com/divinitymetal</A></P>
+<P>Трэк-лист:</P>
+<P>01. <B>Abiogenesis</B><BR>02. <B>Beg To Consume</B><BR>03. <B>Lay In The Bed You've Made</B><BR>04. <B>Emergent</B><BR>05. <B>Transformation</B><BR>06. <B>Monsters Are Real</B><BR>07. <B>Embrace the Uncertain</B><BR>08. <B>Formless Dimension</B><BR>09. <B>Approaching The Singularity</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

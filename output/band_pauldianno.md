@@ -43,6 +43,63 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.03.2006 news Новый сольник Paul DiAnno
+
+<P>
+<CENTER>"<STRONG>The Living Death</STRONG>" - так называется новый сольник <STRONG>Paul DiAnno</STRONG>, который выйдет в марте в Японии, а в мае в США на <STRONG>Cleopatra</STRONG>.</CENTER>
+<P></P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2006.03/10139.jpg" width=400 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 14.02.2011 news Paul DiAnno может сесть
+
+<P><IMG height=272 alt="" hspace=0 src="/images/news_rus/2011.02/18577.jpg" width=200 align=right border=0>Согласно сообщению британской газеты <STRONG>Daily M</STRONG>ail бывший вокалист <STRONG>IRON MAIDEN Paul DiAnno</STRONG> может быть приговорён к тюремному заключению в ближайшее время. Музыкант обвиняется правительством Великобритании в налоговых преступлениях. Точнее<STRONG> Paul</STRONG> неверно информировал соответствующие органы о своей болезни. Ещё точнее он попросту солгал, сообщив в своих декларациях, что является нетрудоспособным, из-за серьёзного нервного&nbsp;расстройства в области&nbsp;спины. </P>
+<P>По материалам следствия, <STRONG>Paul Andrews (</STRONG>настоящее имя певца)<STRONG>&nbsp;</STRONG>уклонился от выплаты 45000 фунтов в казну королевства, ссылаясь на свою нетрудоспособность. Следователи использовали в своих доказательствах видео-ролики с сайта <STRONG>YouTube</STRONG>,&nbsp;на которых<STRONG>&nbsp;Paul</STRONG> отчаянно бегает по сцене, чего он не мог бы делать, имея столь серьёзное нервное расстройство. На заседании суда 10 февраля судья предупредил <STRONG>Paul DiAnno</STRONG>, что за такое серьёзное нарушение налогового законодательства Великобритании полагается тюремное заключение, и призвал певца не удивляться суровому приговору.</P>
+<P>Оглашение оного состоится 11 марта.</P>
+Автор: Vit Belov
+
+### 13.03.2011 news Paul DiAnno в тюрьме
+
+<P><IMG height=267 alt="" hspace=0 src="/images/news_rus/2011.03/18858.jpg" width=400 align=right border=0>Мы уже сообщали, что бывший вокалист <STRONG>IRON MAIDEN Paul DiAnno</STRONG> обвиняется в уклонении от уплаты налогов в Великобритании. <STRONG>Paul </STRONG>указывал в своих декларациях, что является ограниченно трудоспособным, из-за перенесённой болезни. Специальный департамент английского правительства завёл на музыканта дело, когда получил анонимное уведомление о том, что <STRONG>Paul DiAnno</STRONG> даёт концерты. Доказательством послужили видео на<STRONG> YouTube</STRONG>.</P>
+<P>52-летний <STRONG>Paul Andrews </STRONG>(настоящее имя певца) был осуждён на 9 месяцев тюрьмы в пятницу 11 марта.&nbsp;"<EM>Ваша жадность нанесла стране большой денежный ущерб, поэтому я назначаю наказание, связанное с лишением свободы</EM>", - заявила судья <STRONG>Jane Miller. </STRONG>Вокалист утаил налоги на сумму 45000 фунтов.</P>
+<P>Бывший вокалист <STRONG>IRON MAIDEN</STRONG> может выйти на свободу после отбытия половины срока заключения.</P>
+<P>Бывшие коллеги <STRONG>Paul DiAnno</STRONG> тем временем отменили свои концерты в Японии, из-за продолжающихся землетрясений.</P>
+Автор: Vit Belov
+
+### 09.11.2011 news Paul Di&#39;Anno: демо-трек новой песни &quot;Black Boots&quot;
+
+<P>Бывший вокалист <STRONG>IRON MAIDEN</STRONG> <B>Paul Di'Anno</B> опубликовал демо трек на песню <B>"Black Boots"</B>, которая возможно появится на его новом студийном&nbsp;альбоме.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/uzUvyjBTtCk?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P>&nbsp;</P>
+<P>В 2006 году лейбл <STRONG>Cleopatra Records</STRONG> переиздал альбом&nbsp;<STRONG>Di'Anno</STRONG> <STRONG>"Nomad"</STRONG> (2000) под названием <B>"The Living Dead"</B>, снабдив его несколькими бонус-треками, а так же DVD диском,&nbsp;куда вошёл клип на песню <B>"The Living Dead"</B> и эксклюзивное интервью, в котором <B>Di'Anno</B> рассуждал времени проведённом в составе <B>IRON MAIDEN</B>.</P></CENTER>
+Автор: Headcrusher
+
+### 25.11.2011 news Первый совместный тур бывших вокалистов IRON MAIDEN
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.11/22109.jpg" width=500 height=340> 
+<P></P>
+<P>В февраля 2012 года, Россию, с совместными концертами, посетят&nbsp;два бывших вокалиста <STRONG>IRON MAIDEN</STRONG> -&nbsp;<STRONG>Paul DiAnno</STRONG> и <STRONG>Blaze Bayley</STRONG>.</P>
+<P><U>Даты тура</U>:</P>
+<P>22 февраля - <STRONG>Санкт-Петербург</STRONG>, "Орландина" (<A href="http://www.orlandina.ru/">www.orlandina.ru</A>)<BR>23 февраля - <STRONG>Ставрополь</STRONG>, "Мажор"<BR>24 февраля - <STRONG>Ростов-на-Дону</STRONG>, ДК "Ростсельмаш"<BR>25 февраля - <STRONG>Краснодар</STRONG>, "Мавзолей"<BR>26 февраля - <STRONG>Москва</STRONG>, "План Б" (<A href="http://www.planbclub.ru/">www.planbclub.ru</A>)<BR>+ ещё два города</P>
+<P>В состав их&nbsp;аккомпанирующей группы войдут:</P>
+<P><STRONG>Андрей Смирнов</STRONG> (<STRONG>EVERLOST</STRONG>, ex-<STRONG>МАСТЕР</STRONG>) - гитара<BR><STRONG>Илья Мамонтов</STRONG> (<STRONG>ЭПИДЕМИЯ</STRONG>) - гитара<BR><STRONG>Николай Коршунов</STRONG> (<STRONG>КРЕМАТОРИЙ</STRONG>, ex-<STRONG>АРТЕРИЯ</STRONG>) - бас<BR><STRONG>Андрей Ищенко</STRONG> (<STRONG>ASHEN LIGHT</STRONG>, ex-<STRONG>CATHARSIS</STRONG>) - ударные</P></CENTER>
+Автор: Headcrusher
+
+### 11.07.2012 news Paul DiAnno заканчивает концертную деятельность
+
+<P>Бывший вокалист<STRONG> IRON MAIDEN Paul DiAnno</STRONG> сообщил, что, из-за проблем со здоровьем, он заканчивает концертную деятельность в следующем году. Певцу требуется операция на колене, и он имеет также другие проблемы со здоровьем. </P>
+<P>Естественно, мы ещё увидим массивный прощальный тур, в рамках которого певец возможно заедет и к нам.</P>
+<P>
+<CENTER><IMG height=602 src="/images/news_rus/2012.07/24333.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ###  	 Paul DiAnno + Blaze Bayley (ex-IRON MAIDEN) в Москве (17 ноября)

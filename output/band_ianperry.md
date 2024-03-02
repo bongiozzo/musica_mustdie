@@ -9,6 +9,14 @@ ELEGY frontman
 
 * C группой "Elegy" 
 
+## Публикации
+
+### 19.01.2006 news Ian Perry выпускает новый сольник
+
+<P><STRONG>Ian Perry</STRONG> выпускает свой новый сольник "<STRONG>Visions</STRONG>" 21 февраля на английской <STRONG>Escape Music</STRONG>. Согласно пресс-релизу, певец решил записать этот диск, основываясь на многочисленных просьбах фэнов. На "<STRONG>Visions</STRONG>" будут элементы старого творчества <STRONG>Perry</STRONG>. Стандартный power-heavy-metal будет замешан с gothic-rock и grunge. На пластинке отметятся известные музыканты: барабанщик <STRONG>Ivar de Graaf</STRONG> (ex-<STRONG>WITHIN TEMPTATION</STRONG>), барабанщик <STRONG>Casey Grillo</STRONG> (<STRONG>KAMELOT</STRONG>), гитарист <STRONG>Stephan Lill</STRONG> (<STRONG>VANDEN PLAS</STRONG>).</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

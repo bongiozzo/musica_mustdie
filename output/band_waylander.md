@@ -33,6 +33,20 @@ Plague of Ages
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.05.2005 news WAYLANDER продолжают работать над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>WAYLANDER </STRONG>сочиняют песни для нового альбома "<STRONG>Honour Amongst Chaos</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 20.05.2012 news WAYLANDER выпускают альбом
+
+<P><IMG height=480 alt="" hspace=0 src="/images/news_rus/2012.05/23983.jpg" width=480 align=right border=0>Новая работа ирландских&nbsp;folk-metal'истов <STRONG>WAYLANDER</STRONG> <STRONG>"Kindred Spirits" </STRONG>выходит 16&nbsp;июня на<STRONG>&nbsp;Listenable</STRONG>.&nbsp;Мастеринг альбома был сделан в &nbsp;<STRONG>Finnvox</STRONG> <STRONG>studio</STRONG> (<B itxtHarvested="0" itxtNodeId="45">CHILDREN OF BODOM</B>, <B itxtHarvested="0" itxtNodeId="44">NIGHTWISH</B>). Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="38">Echoes Of The Sidhe</B> <BR itxtNodeId="37">02. <B itxtHarvested="0" itxtNodeId="36">Lamh Dearg</B> <BR itxtNodeId="35">03. <B itxtHarvested="0" itxtNodeId="34">Twin Fires Of BeltЁЄne</B> <BR itxtNodeId="33">04. <B itxtHarvested="0" itxtNodeId="32">Of Fear And Fury</B> <BR itxtNodeId="31">05. <B itxtHarvested="0" itxtNodeId="30">Grave Of Giants</B> <BR itxtNodeId="29">06. <B itxtHarvested="0" itxtNodeId="28">A Path Well Trodden</B> <BR itxtNodeId="27">07. <B itxtHarvested="0" itxtNodeId="26">Quest For Immortality</B> <BR itxtNodeId="25">08. <B itxtHarvested="0" itxtNodeId="24">Erdath</B> <BR itxtNodeId="23">09. <B itxtHarvested="0" itxtNodeId="22">Kindred Spirits</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

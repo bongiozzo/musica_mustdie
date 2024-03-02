@@ -200,6 +200,282 @@ Cover art created by Travis Smith (Opeth, Katatonia).
 * C группой "Sanctuary" Warrel Dane (vocal)
 * C группой "Ashes Of Ares" 
 
+## Публикации
+
+### 19.02.1999 news 
+
+<p>Новый альбом Nevermore "Dreaming Neon Black" пользуется большим успехом в Европе. В официальном чарте Германии он стартовал с 80 места, также вошёл в голландский альтернативный чарт. Во многих журналах Германии, Голландииб Франции, Греции и Венгрии альбом назван альбомом месяца. Группа сейчас продолжает гастролировать вместе с Nocturnal Rites.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Iced Earth собирается в тур по США, который будет самым большим за всю историю группы. Destiny's End будут их сопровождать и на первых датах поучаствуют Nevermore. Концертный альбом выйдет скорее всего в июне на двух дисках. Ну и новости о ожидаемом проекте Джона Шаффера и Ханси Кюрша (Blind Guardian). С ними будет работать продюсер Джим Моррис и с ним Джон уже записал несколько демо-вещей в своём подвале в Индиане. Ханси и Джон уже записали свои партии и собираются начать окончательные работы в июле в Тампе. Затем группа займётся поиском лэйбла. Я думаю проблем с этим у них не возникнет.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Mercyful Fate и Amorphis проехались с туром по США в конце сентября - начале октября. Также сообщается о присутствии в сэте группы Nevermore.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Басист Nevermore Джим Шеппард повредил палец во время тура с Arch Enemy. Дверь автобуса захлопнулась и прищемила ему палец.</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Уоррел Дэйн сочиняет песни для нового альбома Nevermore.</p>
+
+Автор: Vit Belov
+
+### 23.07.2000 news Nevermore записывают новый альбом
+
+<p> Nevermore сейчас в студии, в Эль Пасо (Техас), записывают свою новую пластинку. Помогает им в этом продюссер Энди Снип (Andy Sneap). Альбом будет наываться "Dead Heart In A Dead World".</p>
+<p></p>
+
+Автор: Nybras
+
+### 23.07.2000 news Nevermore are currently recording their new album
+
+<p> Nevermore are currently recording in El Paso, with producer Andy Sneap. In a message to fans, frontman Warrel Dane said, - "Hey Neverheadz! We arrived in Texas at Village productions yesterday and are currently starting day one of studio sessions. Hung out with a couple guys from PISSING RAZORS last night and had a great time at some club called The Stadium. Nothing crazy has happened yet but rest assured chaos will ensue at some point! Andy Sneap is a great guy and he'll be helping us make what is without a doubt our heaviest record yet. Brace yourselves it's gonna be quite a ride.". This album will be called Dead Heart In A Dead World.</p>
+
+Автор: Nybras
+
+### 08.11.2000 reviews Nevermore&#39;00 &quot;Dead Heart in a Dead World&quot;
+
+<p>Когда купив четвертый полноформатный диск этого коллектива, и открыв вкладку, не обнаружил в составе музыкантов, одного из своих любимых гитаристов-Tim Calvert (ex.Forbidden), который принимал участие в записи предыдущего альбома, разочарованию моему не было предела. Но стоило мне вставить пластинку в проигрыватель, мое разочарование сменилось восторгом . Кристально чистый и очень мощный звук, (не зря группа записывала этот альбом под руководством одного из самых модных продюсеров в металической среде- Andy Sneap). Безупречно продуман материал, складывается впечатление что альбом буквально пульсирует каждой нотой. Очень пришлись в пору модно-экстремальные гитарные рифы, (пример трек N3-Inside four walls). С середины альбома мощь первых композиций очень плавно переходит в более лирическое русло, что никак не портит впечатление, а наоборот предает особую изюминку. Достойное завершение альбома последняя песня "Dead heart in a dead world". На мой взгляд этот альбом - лучшая работа группы. Кстати диск содержит еще 2 видеоклипа с первых альбомов Nevermore.</p>
+
+Автор: Hostile Breed
+
+### 09.02.2001 news Видео NEVERMORE
+
+<p>На германском сайте Century Media Records выложено новое видео NEVERMORE "Believe In Nothing". Кому интересно смотрите www.centurymedia.de</p>
+
+Автор: Yermola
+
+### 09.02.2001 news New video NEVERMORE
+
+<p>On the German homepage of Century Media Records www.centurymedia.de there is the exclusive new video "Believe In Nothing". You can watch it in three different quality-levels.</p>
+
+Автор: Yermola
+
+### 16.11.2001 news Bang Your Head Festival...
+
+<p>Вот список артистов уже подтвердивших свое участие в фестивале "Bang Your Head", который пройдет в Балингене (Германия) с 28 по 29 июня 2002: <BR><BR> GAMMA RAY <BR> MAGNUM <BR> SYMPHONY X <BR> TITAN FORCE (с участием фронтмэна JAG PANZER - Harry Conklin) <BR> RHAPSODY <BR> NEVERMORE <BR> OVERKILL <BR> VANDEN PLAS <BR> JAG PANZER <BR> TANKARD <BR> PARADOX <BR> IRON SAVIOR <BR> RAWHEAD REXX <BR> S.A. ADAMS <BR> RIVAL</p>
+
+Автор: Yermola
+
+### 29.11.2001 news Пробуждая Ярость...
+
+<p>Гитарист Curran Murphy официально покинул "NEVERMORE" и присоединился к "ANNIHILATOR". Теперь команда имеет в своих рядах: Joe Comeau (вокал), Russ Bergquist (басс), Jeff Waters (гитара), Curran Murphy (гитара) и Randy Black (барабаны). Новый альбом канадцев "Waking The Fury" уже практически готов - микширование закончится в середине Декабря. Полный трек-лист: <BR><BR> 01. My Precious Lunatic Asylum <BR> 02. Nothing To Me <BR> 03. Ritual <BR> 04. Striker <BR> 05. The Blackest Day <BR> 06. Cold Blooded <BR> 07. Torn <BR> 08. Fire Power <BR> 09. Ultra-Motion <BR> 10. Prime-Time Killing <BR><BR> "Waking the Fury" выйдет в Европе и Японии в марте. Дата американского релиза пока неизвестна...</p>
+
+Автор: Yermola
+
+### 29.11.2001 news Waking The Fury...
+
+<p>Guitarist Curran Murphy has officially left NEVERMORE to join ANNIHILATOR. The band's current line-up consists of Joe Comeau (vocals), Russ Bergquist (bass), Jeff Waters (guitar), Curran Murphy (guitar) and Randy Black (drums). According to www.bravewords.com, ANNIHILATOR's forthcoming album, Waking The Fury, is nearly complete, with the mixing/mastering due to be done around mid-December. The full track listing for the CD is as follows: <BR><BR> 01. My Precious Lunatic Asylum <BR> 02. Nothing To Me <BR> 03. Ritual <BR> 04. Striker <BR> 05. The Blackest Day <BR> 06. Cold Blooded <BR> 07. Torn <BR> 08. Fire Power <BR> 09. Ultra-Motion <BR> 10. Prime-Time Killing<BR><BR> Waking the Fury is set to be issued in Japan and Europe in late March in Japan and Europe; a North American release should take place shortly thereafter.</p>
+
+Автор: Yermola
+
+### 30.11.2001 news Жертва или Враг?
+
+<p>"AGGRESSION CORE" ведомые гитаристом Curran Murphy (ANNIHILATOR и NEVERMORE ) записывают новый альбом "Victim Or Enemy" в собственной студии Мэрфи Smiley Sounds Studios. Микшировать все это дело будет главарь "ANNIHILATOR" - Jeff Waters. На диск войдут следующие песни: <BR><BR> <IMG SRC="/images/news/2001.11/2113.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> 01. Dreaming of Murder <BR> 02. Talk To Me <BR> 03. Victim or Enemy <BR> 04. Dethroned <BR> 05. Life Sentence <BR> 06. (F.ck You) Nazi Boy <BR> 07. Shine <BR> 08. Broken Back <BR> 09. I Hate You <BR> 10. Drunk (instrumental)<BR><BR> Лэйбл для выпуска релиза пока не найден, но уже проведены предварительные переговоры с Century Media и Nuclear Blast.</p>
+
+Автор: Yermola
+
+### 30.11.2001 news Victim Or Enemy...
+
+<p>Despite having just joined the ranks of Canada’s ANNIHILATOR, former NEVERMORE axeman Curran Murphy has no intention of leaving his longtime outfit AGGRESSION CORE, which is currently in the process of recording its sophomore CD, according to a statement sent by the guitarist to BLABBERMOUTH.NET. The upcoming CD, entitled Victim Or Enemy (the projected artwork for which can be viewed here), is presently being tracked at Murphy’s own Smiley Sounds Studios, and will likely be mixed by either ANNIHILATOR mainman Jeff Waters or STRAPPING YOUNG LAD mastermind Devin Townsend, if Curran has his way. Among the tracks that are tentatively set to appear on Victim Or Enemy are the following: <IMG SRC="/images/news/2001.11/2113.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> <BR><BR> 01. Dreaming of Murder <BR> 02. Talk To Me <BR> 03. Victim or Enemy <BR> 04. Dethroned <BR> 05. Life Sentence <BR> 06. (F.ck You) Nazi Boy <BR> 07. Shine <BR> 08. Broken Back <BR> 09. I Hate You <BR> 10. Drunk (instrumental)<BR><BR> According to Curran, two additional, as-yet-untitled cuts will appear on the CD, both of which feature a “more powerful and melodic style” than what the group has done in the past. Although no record deal has yet been secured for the group, Murphy has apparently been “talking with Century Media as well as Nuclear Blast, and we are hoping that through the ANNIHILATOR connection, as well as my history of kicking the sh.t out of people live with NEVERMORE, this will generate the kind of buzz and interest to have one of these labels pick us up and have us tour ourselves to f.cking death!” For more information, and regular studio updates, visit the band’s official web site at www.aggressioncore.com. <BR><BR> Murphy also commented on his departure from NEVERMORE by saying that “I came to the decision to leave the NEVERMORE fold after Jeff Waters offered to have me join ANNIHILATOR as an equal member and to actually get to record on the record with him. In the NEVERMORE zone, it is really all about Jeff, Van, and Jim doing the music, and Warrel doing his lyric work. I don't know of anybody out there who wants to stay in any kind of a job where you can never get a raise or advance your position or do anything to improve your career situation. So I went with ANNIHILATOR.”</p>
+
+Автор: Yermola
+
+### 01.05.2002 news NEVERMORE записались для очередного трибьюта METALLICA
+
+<p>NEVERMORE закончили запись кавер-версии METALLICA "Fight Fire With Fire" для очередного трибьютного альбома METALLICA, который должен выйти в конце 2002 года на Nuclear Blast Records.</p>
+
+Автор: Dimas
+
+### 01.05.2002 news NEVERMORE news
+
+<p>Nevermore will reportedly be recording a cover version of Metallica's "Fight Fire With Fire" for an upcoming Metallica tribute album, due out through Nuclear Blast Records later in the year.</p>
+
+Автор: Dimas
+
+### 13.06.2002 news NEVERMORE взяли гитариста TESTAMENT ....
+
+<p>"NEVERMORE" взяли в состав гитариста "TESTAMENT" - Steve Smyth (также в DRAGONLORD) в качестве временной замены Curran Murphy который вынужденно оставил группу и присоединился к ANNIHILATOR....</p>
+
+Автор: Yermola
+
+### 13.06.2002 news It&#39;s Official: TESTAMENT&#39;s STEVE SMYTH Joins NEVERMORE .....
+
+<p>NEVERMORE have officially recruited TESTAMENT guitarist Steve Smyth (also in DRAGONLORD) as a temporary replacement for former touring axeman Curran Murphy, who left the group in order to join Canada's ANNIHILATOR and continue work on his own AGGRESSION CORE project. <BR><BR> Here is NEVERMORE's official statement on the matter:<BR><BR> "We just want to clear up some confusion regarding Steve Smyth's involvement with us. He hasn't left TESTAMENT or DRAGONLORD to join NEVERMORE. He's just helping us out with these upcoming European festivals and US Warped tour dates. We need two guitars players live, so when our previous touring guitarist got himself a full-time gig, we immediately asked Steve. He'd always come out and see us play when we were in town. We'd do the same when he'd come through Seattle. He's really been a great friend of ours for years and we're lucky to get to do some shows with him now. We need to send out special thanks to [TESTAMENT vocalist] Chuck [Billy] and [guitarist] Eric [Peterson] for their support in this and allowing Steve to help us out."<BR><BR> Smyth added: "I've always been a NEVERMORE fan and look forward to playing with them. I want to thank Chuck, Eric, Stevie D, Jon and Lyle for all their support."<BR><BR> Steve will be accompanying NEVERMORE on the following dates: <BR><BR> Jun. 28-29 – Balingen, GER @ Bang Your Head<BR> Jul. 01-03 – Athens, GRE @ Athens Rock Wave<BR> July 20, 2002 - Quincy, WA @ Gorge Amphitheatre<BR> July 22, 2002 - Billings, MT @ Oscar Park Amph.<BR> July 23, 2002 - Fargo, ND @ Fargodome</p>
+
+Автор: Yermola
+
+### 07.03.2003 news NEVERMORE news...
+
+<p>NEVERMORE are currently in the studio with producer Kelly Grey (Queensrяche, Dokken) recording Enemies Of Reality, their follow-up album to 2000's critically-acclaimed Dead Heart In A Dead World. <BR><BR> Vocalist Warrel Dane provides an update on the progress made:<BR><BR> "EoR is well underway, sorry it took so long to get started with the studio report but this time we are all still working our regular jobs and recording so things are a bit hectic. All the drum tracks are done. All the bass tracks as well as the main guitar tracks are done. Jeff [Loomis] is doing solos as we speak. I have 3 main vocals done and things are going very good. [Producer] Kelly [Grey] is really easy to work with... so put your fears to rest!! Be patient... the enemy awaits..."<BR><BR> In addition to playing at the BW&BK 6-Pack Weekend (June 13th & 14th in Cleveland, Ohio), NEVERMORE are also confirmed to play Friday night at the New England Metal & Harcore Fest in Worcester, Massachusetts on May 16th.</p>
+
+Автор: Yermola
+
+### 04.05.2003 news Enemies Of Reality is in its final mixing stage...
+
+<p>The news you've been waiting for: Enemies Of Reality is in its final mixing stage. <BR><BR> NEVERMORE are confirmed to play the New England Metal & Hardcore Festival the weekend of May 16th & 17th; the Rock Hard Festival in Gelsenkirchen, Germany the weekend of June 7th & 8th; and the first annual Brave Words & Bloody Knuckles' 6-Pack Weekend festival at The Odeon in Cleveland, Ohio the weekend of June 13th & 14th, where they will debut material from the new album. Tickets to the festival are on sale NOW through TicketMaster and www.bravewords.com. For a limited time, every ticket ordered through the Brave Words website will receive a "BW&BK" logo pin (for your leather jacket, of course). The best news: one ticket is good for BOTH days! In addition to the live performances, there will vendors, giveaways, meet & greet and signing sessions. Doors are at 5 p.m. each day and show time is 6 p.m.<BR><BR> GUITAR FANS: To see more of your underground heroes featured in Guitar World, go to their website message board at http://guitarworld.com/mboard/ and tell them about NEVERMORE's Jeff Loomis!</p>
+
+Автор: Yermola
+
+### 31.05.2003 news Новый альбом NEVERMORE
+
+<p>29 июля на Century Media Records выходит новый альбом NEVERMORE "Enemies Of Reality". Запись была сделана в Seattle studio с продюсером Kelly Gray (QUEENSRYCHE, SLAVE TO THE SYSTEM, DOKKEN). Трэк-лист альбома включает в себя следующие вещи:</p>
+<P><IMG SRC="/images/news_rus/2003.05/4360.jpg" ALT="pho" width=250 height=250 hspace="15" vspace="5" border="1" align="left"> 1. Enemies of Reality <BR> 2. Ambivalent <BR> 3. Never Purify <BR> 4. Tomorrow Turned Into Yesterday <BR> 5. I, Voyager <BR> 6. Create The Infinite <BR> 7. Who Decides<BR> 8. Noumenon <BR> 9. Seed Awakening</p>
+
+Автор: Dimas
+
+### 22.09.2003 reviews Один из лучших релизов года
+
+<P>“Dead Heart in a Dead World” был первым. Этот – второй. Тот самый случай, когда после ознакомления с двумя&nbsp;альбомами какой-либо команды появляется желание скупить всю их дискографию. Для тех, кто в танке, поясню – NEVERMORE играют трэш. Трэш, впрочем, не похожий ни на что, ранее мной слышанное. Правда, в этом нет ничего удивительного – я не очень люблю этот стиль и не так уж хорошо в нём разбираюсь, чтобы знать всех и вся. Исключение, как водится, лишь подтверждает правило: трэш в целом не представляет для меня ровным счётом никакого интереса, однако последний альбом авторства NEVERMORE (группа, которую, пусть и достаточно условно, можно отнести к этому стилю) получит девять из десяти. Почему? Потому что это шикарный диск. Интереснейшая, сложная музыка. Блестящие музыканты. Талантливый вокалист, чей голос сложно спутать с чьим-либо ещё. Два намертво врезающиеся в память трэка – “Enemies of Reality” и “Ambivalent” (притом, что хитами их назвать невозможно – ибо музыка NEVERMORE по своей сути НЕ может быть хитовой). И… неистребимое желание дать звукоинженеру в морду. Этот гаденький, модный нынче звук «а-ля гараж» (вспомним последний «альбом» Металлики)! Впрочем, даже он не может испортить впечатление от, не побоюсь этого слова, одного из лучших релизов года. </P>
+<P><I>Диск предоставлен компанией <B><A href="http://www.fono.ru/">ФОНО</A></B></I></P>
+Автор: Kai Mathias Stalhammar
+
+### 24.04.2004 news Steve Smyth (ex-Testament) присоединился к NEVERMORE
+
+<P>Только что ушедший из <B>TESTAMENT</B> гитарист <B>Steve Smyth</B> присоединился к <B>NEVERMORE</B>&nbsp;в качестве второго гитариста. </P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 19.01.2005 news NEVERMORE заняты в студии
+
+<P><STRONG>NEVERMORE</STRONG> сочиняют песни для нового альбома, который выйдет летом на <STRONG>Century Media</STRONG>. В феврале коллектив отправится в <STRONG>BackStage Studio</STRONG> в Англии, где вместе с продюсером <STRONG>Andy Sneap</STRONG> (<STRONG>Arch Enemy, Killswitch Engage, Opeth</STRONG>), запишет этот альбом.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также группа перемикширует свое предыдущий альбом <STRONG>'Enemies Of Reality'</STRONG> - этим также занят <STRONG>Andy Sneap</STRONG>. Новая версия заменит в магазинах старую уже в марте. В качестве бонуса там можно будет найти 2 видео-клипа.</FONT></P>
+Автор: Vit Belov
+
+### 18.02.2005 news Подробности о новом альбоме NEVERMORE
+
+<P>Стало известно, что&nbsp;следующий студийный&nbsp;альбом группы <STRONG>NEVERMORE</STRONG> будет называться <B>"This Godless Endeavor"</B>. Он выйдет весной на <B>Century Media Records</B>. Запись пройдет в английской <B>Backstage Studios</B> с продюсером <B>Andy Sneap</B> (<B>ARCH ENEMY</B>, <B>KILLSWITCH ENGAGE</B>, <B>OPETH</B>). Это будет дебют для&nbsp;нового гитариста группы <B>Steve Smyth</B> (ex-<B>TESTAMENT</B>).&nbsp;Уже известны названия некоторых песен:&nbsp;<B>"This Godless Endeavor"</B>, <B>"The Psalm of Lydia"</B>, <B>"Killing Time for the Pretty Ones"</B>, <B>"Sell My Heart for Stones"</B>, <B>"Sentient 6 (The Learning Part 2)"</B>&nbsp;и <B>"Bittersweet Feast"</B>. Кроме того, планируется записать кавер-версию <B>OZZY OSBOURNE</B> <B>"Revelation (Mother Earth)".</B><BR>Помимо этого, в планах группы переиздание альбома <B>"Enemies of Reality"</B>, который перемикшировал все тот же <STRONG>Andy</STRONG>&nbsp;<STRONG>Sneap, </STRONG>с новым оформлением, двумя видеоклипами и концертным видео с прошлогоднего&nbsp;<STRONG>Wacken Open Air</STRONG>. Новая версия <B>"Enemies of Reality"</B> поступит в продажу в начале марта.</P>
+Автор: Dimas
+
+### 11.01.2007 news Steve Smyth перенёс операцию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Steve Smyth</STRONG> (<STRONG>NEVERMORE, VICIOUS RUMORS, DRAGONLORD</STRONG>, ex-<STRONG>TESTAMENT</STRONG>) в декабре перенёс операцию по пересадке почки. <STRONG>Steve</STRONG> чувствует себя хорошо и собирается вернуться к работе в ближайшие месяцы.</FONT></P>
+Автор: Vit Belov
+
+### 29.08.2008 news DVD от NEVERMORE
+
+<P><IMG height=565 alt="" hspace=0 src="/images/news_rus/2008.08/12789.jpg" width=400 align=right border=5>20 октября на <STRONG>Century Media</STRONG> выходит DVD<STRONG> NEVERMORE</STRONG> <STRONG>"The Year Of The Voyager". </STRONG>Основным шоу этой пластинки стал концерт в Германии, отснятый в октябре 2006 года. В качестве бонуса на DVD попадут концерты <STRONG>Metal Mania 2006</STRONG>, <STRONG>Gigantour 2005</STRONG> и <STRONG>Wacken 2006</STRONG>. Трэк-лист:</P>
+<P>DVD1:<BR itxtvisited="1">Main Show - Live at the Zeche Bochum, Germany, October 11, 2006:<BR itxtvisited="1">01. <B itxtvisited="1">Intro</B><BR itxtvisited="1">02. <B itxtvisited="1">Final Product</B><BR itxtvisited="1">03. <B itxtvisited="1">My Acid Words</B><BR itxtvisited="1">04. <B itxtvisited="1">What Tomorrow Knows/Garden Of Grey</B><BR itxtvisited="1">05. <B itxtvisited="1">Next In Line</B><BR itxtvisited="1">06. <B itxtvisited="1">Enemies Of Reality</B><BR itxtvisited="1">07. <B itxtvisited="1">I, Voyager</B><BR itxtvisited="1">08. <B itxtvisited="1">The Politics Of Ecstasy</B><BR itxtvisited="1">09. <B itxtvisited="1">The River Dragon Has Come</B><BR itxtvisited="1">10. <B itxtvisited="1">I Am The Dog</B><BR itxtvisited="1">11. <B itxtvisited="1">Dreaming Neon Black</B><BR itxtvisited="1">12. <B itxtvisited="1">Matricide</B><BR itxtvisited="1">13. <B itxtvisited="1">Dead Heart In A Dead World</B><BR itxtvisited="1">14. <B itxtvisited="1">Noumenon</B> (from tape)<BR itxtvisited="1">15. <B itxtvisited="1">Inside Four Walls</B><BR itxtvisited="1">16. <B itxtvisited="1">The Learning</B><BR itxtvisited="1">17. <B itxtvisited="1">Sentient</B><BR itxtvisited="1">18. <B itxtvisited="1">Narcosynthesis</B><BR itxtvisited="1">19. <B itxtvisited="1">The Heart Collector</B><BR itxtvisited="1">20. <B itxtvisited="1">Born</B><BR itxtvisited="1">21. <B itxtvisited="1">This Godless Endeavor</B><BR itxtvisited="1">Audio sound: 2.0 and 5.1 mixed by <B itxtvisited="1">Andy Sneap</B><BR itxtvisited="1"><BR itxtvisited="1">DVD2: <BR itxtvisited="1">* Gigantour – Live at the Bell Centre, Montreal, Canada, September 2, 2005:<BR itxtvisited="1">01. <B itxtvisited="1">Born</B><BR itxtvisited="1">02. <B itxtvisited="1">Enemies Of Reality</B><BR itxtvisited="1">* Metal Mania Festival – Live at the Spodek, Katowice, Poland, March 4, 2006:<BR itxtvisited="1">01. <B itxtvisited="1">Final Product</B><BR itxtvisited="1">02. <B itxtvisited="1">The Heart Collector</B><BR itxtvisited="1">03. <B itxtvisited="1">Enemies Of Reality</B><BR itxtvisited="1">04. <B itxtvisited="1">The Seven Tongues Of God</B><BR itxtvisited="1">* Wacken – Live at the Wacken Open Air, Germany, August 4, 2006:<BR itxtvisited="1">01. <B itxtvisited="1">Final Product</B><BR itxtvisited="1">02. <B itxtvisited="1">Narcosynthesis</B><BR itxtvisited="1">03. <B itxtvisited="1">Engines Of Hate</B><BR itxtvisited="1">04. <B itxtvisited="1">Born</B><BR itxtvisited="1">Bonus Material: <BR itxtvisited="1">* Century Media USA 10th Anniversary Party - Live at The Roxy, Los Angeles, September 28, 2001:<BR itxtvisited="1">01. <B itxtvisited="1">Engines Of Hate</B><BR itxtvisited="1">02. <B itxtvisited="1">Beyond Within</B><BR itxtvisited="1">* Promo videos: <BR itxtvisited="1">01. <B itxtvisited="1">What Tomorrow Knows</B><BR itxtvisited="1">02. <B itxtvisited="1">Next In Line</B><BR itxtvisited="1">03. <B itxtvisited="1">Believe In Nothing</B><BR itxtvisited="1">04. <B itxtvisited="1">I, Voyager</B><BR itxtvisited="1">05. <B itxtvisited="1">Enemies Of Reality</B><BR itxtvisited="1">06. <B itxtvisited="1">Final Product</B><BR itxtvisited="1">07. <B itxtvisited="1">Born</B><BR itxtvisited="1">08. <B itxtvisited="1">Narcosynthesis</B> (live promo video)<BR itxtvisited="1">* Interview with <B itxtvisited="1">Warrel Dane</B><BR itxtvisited="1">* Trailers:<BR itxtvisited="1"><B itxtvisited="1">NEVERMORE</B> - "The Year Of The Yoyager" trailer<BR itxtvisited="1"><B itxtvisited="1">PARADISE LOST</B> - "Over The Madness" trailer<BR itxtvisited="1"><B itxtvisited="1">STRAPPING YOUNG LAD</B> - "1994 - 2006 Chaos Years" trailer</P>
+Автор: Vit Belov
+
+### 18.05.2009 news NEVERMORE назвали альбом
+
+Новый альбом<STRONG> NEVERMORE</STRONG>, который выйдет в конце этого или начале следующего года, будет называться <STRONG>"The Obsidian Conspiracy".</STRONG>
+Автор: Vit Belov
+
+### 05.06.2009 news NEVERMORE войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEVERMORE</STRONG> начнут запись нового альбома в августе с продюсером <STRONG>Peter Wichers, </STRONG>гитаристом <STRONG>SOILWORK</STRONG>. <STRONG>Peter</STRONG> работал с вокалистом американцев <STRONG>Warrel Dane</STRONG> на его последнем сольнике. Пластинка выйдет в 2010 году.</FONT></P>
+Автор: Vit Belov
+
+### 05.08.2009 news NEVERMORE войдут в студию послезавтра
+
+<P><STRONG>NEVERMORE</STRONG> начнут запись барабанов для нового альбома <STRONG>"The Obsidian Conspiracy" </STRONG>в своём родном Сиэтле 7 августа. Все остальные инструменты будут прописаны в студии продюсера новой работы гитариста <STRONG>SOILWORK</STRONG> <STRONG>Peter Wichers</STRONG>&nbsp;в Северной Каролине. Сведение выполнит <STRONG>Andy Sneap</STRONG> (<B>MEGADETH</B>, <B>ARCH ENEMY</B>, <B>EXODUS</B>, <B>MACHINE HEAD</B>). Альбом должен выйти в начале 2010 года на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.11.2009 news Warrel Dane: &quot;Я буду в шоке, если кому-то не понравится новый NEVERMORE&quot;.
+
+<P>Вокалист <STRONG>NEVERMORE Warrel Dane</STRONG> в своём интервью изданию <STRONG>Cerebral Metalhead</STRONG> рассказал о новом альбоме <STRONG>NEVERMORE</STRONG>, работа над которым ведётся: "<EM>Наша семья снова вместе. Не хочется опережать события, но я действительно в очень хорошем настроении. Мы в прекрасном месте, мы что-то создаём, и это удивит людей. Возможно, не шокирует, но я буду сам в шоке, если кого-то разочарует новый альбом NEVERMORE</EM>".</P>
+<P>Музыкант обещал, что группа не изменит своего направления, несмотря на "шокирующие" настроения. Ведь все, и слушатели, и сами музыканты,&nbsp;могут оказаться в шоке, а это не шутка. "<EM>Никаких изменений в стиле</EM>", - продолжает <STRONG>Warrel.</STRONG> "<EM>Просто музыка будет более прогрессивная, вся прогрессивность, которую мы порождали все эти годы, выльется в этот альбом. И ещё эта пластинка будет "брутальная". Я тут с нашим продюсером Peter Wichers послушал несколько трэков, которые записал наш гитарист Jeff Loomis и был поражён: "О, мой Бог! Этот рифф такой брутальный". И что же я буду петь там? Что-нибудь очень мелодичное, так никто не делал!</EM>"</P>
+<P><STRONG>Примечание:</STRONG> <EM>Википедия: Шок (от англ. shock — удар, потрясение) — патологический процесс, развивающийся в ответ на воздействие чрезвычайных раздражителей и сопровождающийся прогрессивным нарушением жизненно важных функций нервной системы, кровообращения, дыхания, обмена веществ и некоторых других функций. По сути, это срыв компенсаторных реакций организма в ответ на повреждение.</EM></P>
+Автор: Vit Belov
+
+### 08.04.2010 news NEVERMORE: подробности о новом альбоме
+
+<P><IMG height=252 alt="" hspace=5 src="/images/news_rus/2010.04/16499.jpg" width=250 align=right vspace=5 border=0>Новый альбом <STRONG>NEVERMORE</STRONG> <STRONG>"The Obsidian Conspiracy" </STRONG>выйдет на лейбле <STRONG>Century Media</STRONG> 31 мая в Европе и 8 июня в Северной Америке.</P>
+<P>Микшированием альбома снова занимался <STRONG>Andy Sneap</STRONG>. А за оформление альбома, как и раньше, ответственен <STRONG>Travis Smith</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Termination Proclamation</B><BR>02. <B>Your Poison Throne</B><BR>03. <B>Moonrise (Through Mirrors Of Death)</B><BR>04. <B>And The Maiden Spoke</B><BR>05. <B>Emptiness Unobstructed</B><BR>06. <B>The Blue Marble And The New Soul</B><BR>07. <B>Without Morals</B><BR>08. <B>The Day You Built The Wall</B><BR>09. <B>She Comes In Colors</B><BR>10. <B>The Obsidian Conspiracy</B></P>
+Автор: Headcrusher
+
+### 02.05.2010 news Новый концертный гитарист для NEVERMORE
+
+<P><B itxtvisited="1"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.05/16653.jpg" width=167 height=250>NEVERMORE</B> озвучили имя нового концертного гитариста для грядущего тура. Им стал <EM>"очень талантливый" </EM>венгерский парень по имени <STRONG>Attila Voros </STRONG>(на фото). </P>
+<P>Группа рассказала, что <EM>"<B itxtvisited="1">Attila</B> уже играл на концертах&nbsp;в сольном проекте&nbsp;<B itxtvisited="1">Warrel Dane</B> [вокалист <STRONG>NEVERMORE</STRONG>] и осознав на сколько он хорош, мы решили, что он будет превосходным дополнением на летних фестивалях, которые мы собираемся сыграть в Европе." </EM></P>
+<P><EM><FONT color=#ffffff></FONT></EM>&nbsp;</P>
+Автор: Headcrusher
+
+### 16.06.2010 news Новое видео NEVERMORE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на песню <STRONG>NEVERMORE</STRONG> <STRONG>"Emptiness Unobstructed" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Nigel Crane, </STRONG>работавший ранее с <STRONG>PARADISE LOST</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня попала на новый альбом группы <STRONG>"The Obsidian Conspiracy"</STRONG>,&nbsp;который зарегистрировал следующие позиции в чартах Европы:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Germany - #13 <BR>Austria - #34 <BR>Switzerland - #40 <BR>Netherlands - #69 (Dutch Alternative Chart - #10) <BR>Belgium - #87 <BR>Denmark - #91 </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лицензионный digi-pack от <STRONG>Mazzar</STRONG> можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR>
+<CENTER>
+<OBJECT height=254 width=450><PARAM NAME="movie" VALUE="http://ictv-bd-ec.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/4c179dcf17d4e/10/0/defaultPlayer-player.swf"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://ictv-bd-ec.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/4c179dcf17d4e/10/0/defaultPlayer-player.swf" type="application/x-shockwave-flash" allowFullScreen="true" allowscriptaccess="always" width="450" height="254"></embed></OBJECT>
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 25.08.2010 reviews Музыка про progressive
+
+<P>После пятилетнего перерыва американская группа NEVERMORE подготовила нам свой новый седьмой по счёту альбом. В настоящее время музыку этого коллектива достаточно сложно классифицировать, отнеся к какому-то определённому стилю, поэтому для обобщённого определения “The Obsidian Conspiracy” используем малопонятное, но донельзя общее слово progressive.</P>
+<P>Музыканты окончательно отказались от тяжёлых риффов и перегрузок в собственном звучании, и основным блюдом, представляемом слушателю, станет вокал бессменного певца Warrel Dane и гитара такого же бессменного гитариста Jeff Loomis. Музыкально NEVERMORE в их нынешнем состоянии можно сравнивать с поздним SAVATAGE, который опустил все возможные рамки и сконцентрировался на простом сочинении музыки. У NEVERMORE этот процесс проходит ни шатко, ни валко. На новейшем альбоме присутствуют как настоящие хиты, так и (ненастоящие(???)) откровенно проходные мелодии, которые понравятся только продвинутым поклонникам американцев. На мой вкус, NEVERMORE не хватает драйва, а их музыка слишком камерная и негромкая. Вокалиста слишком много, что безусловно понравится его поклонникам, но людям, относящимся к нему ровно, может и поднадоесть. Кроме этого, NEVERMORE явно не хватает комплексности лучших progressive-metal групп, что в нынешнем их состоянии может считаться серьёзным дефектом.</P>
+<P>Оригинальный коллектив, музыка которого приглянётся поклонникам progressive-metal без излишних выкрутасов. Также не в накладе останутся и преданные поклонники NEVERMORE.</P>
+Автор: Vit Belov
+
+### 17.02.2011 news Jim Sheppard перенёс операцию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>NEVERMORE Jim Sheppard</STRONG> вчера перенёс операцию по удалению доброкачественной опухоли мозга. Мы все желаем ему скорейшего возвращения в строй.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=336 src="/images/news_rus/2011.02/18631.jpg" width=252 border=0></FONT></P>
+Автор: Vit Belov
+
+### 21.04.2011 news Гитарист Jeff Loomis и барабанщик Van Williams покинули группу NEVERMORE
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.04/19274.jpg" width=500 height=312> 
+<P></P>
+<P>Гитарист <STRONG>Jeff Loomis</STRONG> <EM>(слева)</EM>&nbsp;и барабанщик <STRONG>Van Williams</STRONG> <EM>(справа)</EM>&nbsp;покинули группу <STRONG>NEVERMORE</STRONG>. В сети появилось слудующее заявление по этому поводу:</P>
+<P><EM>"По взаимному решению, <STRONG>Jeff Loomis</STRONG> и <STRONG>Van Williams</STRONG> решили покинуть <STRONG>NEVERMORE</STRONG>. Пришло время, следовать своими путями, вне группы.&nbsp;Из-за&nbsp;разногласий и продолжающихся проблем внутри группы, мы чувствуем, что сейчас правильное время, для того, чтобы двигаться вперёд. Мы хотели бы поблагодарить всех наших фэнов по всему миру за их годы любви, поддержки и энтузиазма. Это не было лёгким решением, но очень необходимым в данный момент, возможно мы встретимся когда-нибудь снова".</EM></P>
+<P><STRONG>Loomis</STRONG> и <STRONG>Williams</STRONG> были в составе <STRONG>NEVERMORE</STRONG>&nbsp;с момента образования группы.&nbsp;</P>
+<P>Недавно <STRONG>NEVERMORE</STRONG> анонсировали отмену своего совместного тура с <STRONG>Symphony X</STRONG>.</P></CENTER>
+Автор: Headcrusher
+
+### 30.06.2011 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" align=right src="/images/news_rus/2011.06/19820.jpg" width=250 height=250>Чешский фестиваль <STRONG>Brutal Assault</STRONG> опубликовал ещё несколько имён участников, которые выступят на его сцене в этом году, это - брутальные канадцы&nbsp;<STRONG>CRYPTOPSY</STRONG>,&nbsp;death/thrash металлисты из Соеденённых Арабских Эмиратов - <STRONG>NERVECELL</STRONG>, ещё одни канадцы - <STRONG>KATAKLYSM</STRONG>, викинги&nbsp;<STRONG>TYR</STRONG>, французская эмбиент/эксперементальная группа <STRONG>UNEVEN STRUCTURE</STRONG>, а так же,&nbsp;вперые на фестивале&nbsp;выступят немецкие трэшеры <STRONG>KREATOR</STRONG>.&nbsp;</P>
+<P>К сожалению, по причине того, что группу <STRONG>NEVERMORE</STRONG>&nbsp;покинили двое её участников -&nbsp;&nbsp;<STRONG>Jeff Loomis</STRONG> и <STRONG>Van Williams</STRONG>, ей пришлось отменить все ранее запланированные выступления, в том числе и на фестивале<STRONG> Brutal Assault</STRONG>' 2011.&nbsp;&nbsp;И ещё одной отменой стали фины <STRONG>NORTHER</STRONG>, которые не смогут принять участие в фестивале по причине непрофессиональной работы своего&nbsp;агента.</P>
+Автор: Headcrusher
+
+### 05.07.2011 news NEVERMORE будет жить
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В апреле этого года<STRONG> NEVERMORE</STRONG> покинули гитарсит <FONT color=#ddd9d0><STRONG>Jeff Loomis</STRONG> и барабанщик <STRONG>Van Williams. </STRONG>Тем временем, басист<STRONG> Jim Sheppard</STRONG> и вокалист <STRONG>Warrel Dane</STRONG> воссоединились в<STRONG> SANCTUARY</STRONG>, heavy-thrash-metal группе, выпустившей два альбома в конце 80-х годов. Возникли определённые сомнения в жизнеспособности <STRONG>NEVERMORE</STRONG>. <STRONG>Warrel Dane</STRONG> заявил, что <STRONG>NEVERMORE</STRONG> будет жить.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000">Тем временем<STRONG> SANCTUARY</STRONG> готовят новый материал. Видео их выступления можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000"></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/BfKf0SVwZjQ?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/BfKf0SVwZjQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.07.2012 news Бывшие участники ICED EARTH и NEVERMORE в новом проекте
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24363.jpg" width=250 height=311>Мэтт Барлоу (<STRONG>Matt Barlow</STRONG> <EM>(на фото))</EM>,&nbsp;бывший вокалист <STRONG>ICED EARTH</STRONG>, соединил свои силы с барабанщиком Вэном Виллиамсом (<STRONG>Van Williams</STRONG>, ex-<STRONG>NEVERMORE</STRONG>) и бас-гитаристом Фредди Видалесом (<STRONG>Freddie Vidales</STRONG>,&nbsp;ex-<STRONG>ICED EARTH</STRONG>) в создании нового,&nbsp;пока безымянного&nbsp;проекта. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В данный момент музыканты работают над сочинением композиций для новой группы.</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Nevermore - where the hell have I been all this time?

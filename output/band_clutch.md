@@ -111,6 +111,58 @@ Chris Sherman  -  Lighting
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.11.2001 news CLUTCH headlining tour, also featuring BIOHAZARD and CANDIRIA....
+
+<p>More dates have been announced for the forthcoming CLUTCH headlining tour, also featuring BIOHAZARD and CANDIRIA. They are as follows: <BR><BR> Nov. 15 - L'Amour - Brooklyn, NY <BR> Nov. 16 - The Asylum - Portland, ME <BR> Nov. 17 - Jarrod's Place - Allteboro, MA <BR> Nov. 18 - Chantille's - Manchester, NH <BR> Nov. 19 - Armory High - Syracuse, NY <BR> Nov. 20 - Pierre's - Fort Wayne, IN <BR> Nov. 21 - Harpo's - Detroit, MI <BR> Nov. 23 - First Avenue - Minneapolis, MN <BR> Nov. 24 - Hairy Mary's - Des Moines, IA <BR> Nov. 25 - TBA TBA <BR> Nov. 26 - TBA TBA <BR> Nov. 27 - TBA TBA <BR> Nov. 28 - Royal Albert - Winnipeg, MB <BR> Nov. 29 - The State - Regina, SK <BR> Nov. 30 - MacEwan Hall Ballroom - Calgary, AB <BR> Dec. 01 - Dinwoodie Student Union - University of Alberta Edmonton, AB <BR> Dec. 03 - Commodore - Vancouver, BC <BR> Dec. 04 - TBA - Spokane, WA <BR> Dec. 05 - Graceland - Seattle, WA <BR> Dec. 06 - TBA - Portland, OR <BR> Dec. 07 - TBA - Santa Rosa, CA <BR> Dec. 08 - TBA - San Francisco, CA <BR> Dec. 09 - TBA - TBA <BR> Dec. 11 - TBA - Las Vegas, NV <BR> Dec. 12 - TBA - Salt Lake City, UT <BR> Dec. 13 - TBA - Colorado Springs, CO <BR> Dec. 14 - TBA - Tulsa, OK</p>
+
+Автор: Yermola
+
+### 12.04.2006 news CLUTCH в Москве
+
+<P><IMG height=320 alt="" hspace=0 src="/images/news_rus/2006.04/10222.jpg" width=400 align=left border=5>ROCK FURY ПРЕДСТАВЛЯЕТ<BR>An evening with<BR>CLUTCH<BR>легенда стоунер-рока<BR>16 апреля, клуб «АПЕЛЬСИН»<BR>двухчасовая сольная программа с антрактом</P>
+<P>К сожалению, в нашей стране, в силу разных причин, группу CLUTCH знает довольно небольшой круг людей. Хотя, несомненно, эта группа заслуживает внимания и во всем мире считается легендой стоунер-рока. Да и сам стоунер-рок и группы, играющие в этом стиле, не очень известны российской аудитории (за исключением мейнстримовых QUEENS OF THE STONE AGE и MONSTER MAGNET).<BR>CLUTCH сочетают в своем творчестве элементы хард-рока LED ZEPPELIN и металла HELMET и PANTERA. Их фирменное звучание строится на рваных гитарных и басовых риффах и фанковых барабанных партиях. Все это довершается оригинальным вокалом Нила Фэллона. <BR>CLUTCH – это набор стилей и экспериментов. Кто-то слышит в их песнях мелодику LED ZEPPELIN и динамику Джона Колтрэйна, кто-то – эксцентричность&nbsp; Фрэнка Заппы и блюзовую душевность Элмора Джеймса, а кто-то – текстовую изобретательность Чака&nbsp; Ди. Но назвать музыку CLUTCH вторичной было бы ошибкой. CLUTCH – это энциклопедия музыкальных стилей, каждую страницу которой они превращают в золото. CLUTCH – это звуковая алхимия.<BR>Группа образовалась 15 лет назад в городе Germantown, штат Meryland. С тех пор они выпустили семь студийных альбомов, последним из которых стал “Robot Hive/Exodus” 2005 года, два лайв альбома, несколько EP, их песни попадали на саундтреки к фильмам, видеоиграм и на множество сборников. А живые выступления CLUTCH стали легендой. Они выступали везде – от студенческих баров до переполненных стадионов, делили сцену с LIMP BIZKIT, PANTERA, SEVENDUST, SLAYER, SYSTEM OF A DOWN, FEAR FACTORY, DEFTONES, IRON MAIDEN и многими другими. По сей день они продолжают собирать любителей различных музыкальных стилей на своих концертах и каждый раз, когда вы думаете, что знаете о них все – они снова удивляют вас. Их поклонники приходят посмотреть на эксперимент под названием CLUTCH из года в год, из десятилетия в десятилетие. Спустя пятнадцать лет, выпустив семь альбомов, дав более двух тысяч концертов, CLUTCH продолжают прокладывать свой собственный уникальный курс сквозь музыкальную галактику.<BR>16 апреля и у российских зрителей появится возможность увидеть выступление команды, которую газета The New York Times назвала “идеальной рок-группой начала нового тысячелетия”. <BR>Для московского концерта CLUTCH приготовили специальную двухчасовую программу.<BR>Надеемся, что это станет одним из самых ярких событий для любителей рок-музыки.</P>
+<P>Официальный сайт группы – <A href="http://www.pro-rock.com/">www.pro-rock.com</A><BR>Сайт клуба «АПЕЛЬСИН» – <A href="http://www.apelsinclub.ru/">www.apelsinclub.ru</A><BR>Билеты уже в продаже!<BR>Телефон для справок: 253-02-53 / 253-20-00</P>
+<P>Билеты можно приобрести в кассе клуба, театральных кассах (МДТЗК) на <A href="http://www.parter.ru,ТЦ/">www.parter.ru,ТЦ</A> "Горбушкин Двор" павильоны:Irond: B-2 74,Indie-go: B-2 238, G-2 198,Chamber 83: B-2 068<BR>партер-800 р.<BR>VIP-1500(только в кассе клуба Апельсин)</P>
+Автор: Vit Belov
+
+### 27.03.2007 news Видео от CLUTCH
+
+<P><IMG height=311 alt="" hspace=0 src="/images/news_rus/2007.03/11514.jpg" width=340 align=left border=5>В преддверии выпуска своего нового альбома&nbsp;"<STRONG>From Beale Street to Oblivion"</STRONG> стонер-легенды <STRONG>CLUTCH</STRONG> сняли видеоклип на песню "<STRONG>Electric Worry"</STRONG>. Клип&nbsp; отлично передает энергетическую мощь&nbsp; группы и многими экспертами уже признан едва ли не эталонным произведением&nbsp; в рок-музыке.<BR>Посмотреть видео можно здесь : <BR><A href="http://www.youtube.com/watch?v=yRA9kYK96ts">http://www.youtube.com/watch?v=yRA9kYK96ts</A></P>
+Автор: Vit Belov
+
+### 08.04.2009 news CLUTCH выпустят альбом
+
+<P>7 июля <STRONG>CLUTCH</STRONG> выпустят новый альбом <STRONG>"Strange Cousins From The West"</STRONG>&nbsp;на собственном лэйбле <STRONG>Weathermaker Music</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Motherless Child</B><BR itxtvisited="1">02. <B itxtvisited="1">Struck Down</B><BR itxtvisited="1">03. <B itxtvisited="1">Unstoppable Watts</B><BR itxtvisited="1">04. <B itxtvisited="1">Abraham Lincoln</B><BR itxtvisited="1">05. <B itxtvisited="1">Metroliner Special</B><BR itxtvisited="1">06. <B itxtvisited="1">Minotaur</B><BR itxtvisited="1">07. <B itxtvisited="1">The Amazing Kreskin</B><BR itxtvisited="1">08. <B itxtvisited="1">Witchdoctor</B><BR itxtvisited="1">09. <B itxtvisited="1">Let a Poor Man Be</B><BR itxtvisited="1">10. <B itxtvisited="1">Freakonomics</B><BR itxtvisited="1">11. <B itxtvisited="1">Algo Ha Cambiado</B><BR itxtvisited="1">12. <B itxtvisited="1">Sleestak Lightning</B></P>
+Автор: Vit Belov
+
+### 06.05.2009 news CLUTCH выпустят альбом
+
+<P><STRONG><IMG height=214 alt="" hspace=0 src="/images/news_rus/2009.05/14062.jpg" width=240 align=right border=5>CLUTCH </STRONG>заканчивают работу над новым альбомом "<STRONG>Strange Cousins From the West</STRONG>". Пластинка выйдет на собственном лэйбле группы <STRONG>Weathermaker Music</STRONG> 7 июля. Трэк-лист:</P>
+<P>01. <STRONG>Motherless Child</STRONG><BR>02. <STRONG>Struck Down</STRONG><BR>03. <STRONG>50,000 Unstoppable Watts<BR></STRONG>04. <STRONG>Abraham Lincoln</STRONG><BR>05. <STRONG>Minotaur</STRONG><BR>06. <STRONG>The Amazing Kreskin</STRONG><BR>07. <STRONG>Witchdoctor<BR></STRONG>08. <STRONG>Let a Poor Man Be</STRONG><BR>09. <STRONG>Freakonomics</STRONG><BR>10. <STRONG>Algo Ha Cambiado</STRONG><BR>11. <STRONG>Sleestak Lightning</STRONG></P>
+Автор: Vit Belov
+
+### 15.01.2013 news CLUTCH: подробности &quot;Earth Rocker&quot;
+
+<P>Стоунер рокеры <STRONG>CLUTCH</STRONG> опубликовали титульную песню&nbsp;со своего, пока ещё невышедшего альбома <STRONG>"Earth Rocker"</STRONG>. Её можно послушать в плеере ниже.</P>
+<P>Дата выпуска диска запланированна на 19 марта.</P>
+<CENTER><IFRAME height=166 src="https://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F74128503" frameBorder=no width="80%" scrolling=no></IFRAME>
+<P>Обложку для <STRONG>"Earth Rocker"</STRONG> выполнил&nbsp;<STRONG>Nick Lakiotes</STRONG>, работавший прежде с <STRONG>CLUTCH</STRONG> над оформлением их полноформатников, в том числе <STRONG>"Robot Hive/Exodus" </STRONG>и <STRONG>"Strange Cousins From The West"</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25312.jpg" width=500 height=500> 
+<P></P></CENTER></CENTER>
+Автор: Headcrusher
+
+### 29.07.2015 news CLUTCH: клип &quot;X-Ray Visions&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>CLUTCH</STRONG> представила видеоклип на песню <STRONG>"X-Ray Visions"</STRONG>. Новый альбом группы, под названием <STRONG>"Psychic Warfare"</STRONG>,&nbsp;выйдет 2 октября на их собственном лейбле,&nbsp;<STRONG>Weathermaker Music</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложку и трек-лист диска можно посмотреть здесь: <A href="/ru/band/clutch/21226/">http://musica.mustdie.ru/ru/band/clutch/21226/</A></FONT></P>
+<CENTER><iframe width="560" height="315" src="https://www.youtube.com/embed/X8cmbmwFAl8" frameborder="0" allowfullscreen></iframe>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

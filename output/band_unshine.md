@@ -12,6 +12,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.06.2008 reviews Druid-metal, вот так…
+
+<P>Сами музыканты группы UNSHINE, выпустившей свой второй альбом “The Enigma Of Immortals”, называют свою музыку druid-metal. Прослушав обозреваемый альбом несколько раз, ваш корреспондент не смог обнаружить никаких отличий между druid-metal и gothic-doom-metal с женским вокалом.</P>
+<P>Медленная, меланхоличная музыка с мизерной долей фолка, вот, что такое новый альбом группы UNSHINE. Разговоры о всяких друидах и прочих подозрительных личностях лишь попытка привлечь к себе дополнительное внимание слушающей публики. Мне же кажется, что этого можно было и не делать. Такой спокойной печальной музыки с нежным женским вокалом сейчас на рынке не так много, и «путать мозги» своим потенциальным поклонникам всякой нечистью не стоило. “The Enigma Of Immortals” – очень не плохой ровный альбом, способный понравиться любителям стиля, он совсем не сложный и достаточно обычный, но неплохие мелодии на нём встречаются довольно часто. Каких-то ураганных эмоций эта работа у меня не вызвала, но дополнением к коллекциям фэнов женского вокала пластинка может послужить.</P>
+<P>Обратите внимания на UNSHINE, но чего-то феерического не ждите. С другой стороны, они вас не подведут: акустические гитары, незатейливые симфо-аранжировки и приятная финская девушка здесь присутствуют. </P>
+Автор: Vit Belov
+
+### 08.11.2009 news Видеоклип UNSHINE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео<STRONG> UNSHINE </STRONG>на песню <STRONG>"My King" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/4sppvQRfWkI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/4sppvQRfWkI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

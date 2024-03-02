@@ -28,6 +28,34 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.02.2010 news Новости от INFERNAL MAJESTY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадские ветераны <STRONG>INFERNAL MAJESTY</STRONG> вернулись на сцену впервые за последние три года. Произошло это в прошедшую пятницу (25 февраля) в зале <STRONG>"The Red Room"</STRONG>, Ванкувер, Канада. Что бы сделать своё выступление особенным, группа целиком исполнила альбом 1987 года <STRONG>"None Shall Defy".</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Профессионально снятое видео с этого концерта&nbsp;на песню<STRONG> "S.O.S."</STRONG> можно посмотреть по ссылке:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.youtube.com/watch?v=TGWubhenHV4">http://www.youtube.com/watch?v=TGWubhenHV4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Съёмка&nbsp;данного концерта войдёт в офицальный DVD <STRONG>INFERNAL MAJESTY</STRONG>, который должен выйти позже в этом году.</FONT></P>
+Автор: Headcrusher
+
+### 27.06.2011 news INFERNAL MAJESTY выступят с Corpsegrinder
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реформированные канадские трешеры<STRONG> INFERNAL MAJESTY</STRONG> анонсировали специальный концерт, на котором они вновь исполнят свой классический дебют <STRONG>"None Shall Defy" </STRONG>целиком. Вокальные партии для группы исполнит вокалист <STRONG>CANNIBAL CORPSE George "Corpsegrider" Fisher</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Концерт состоится 20 августа в канадском Ванкувере.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=309 src="/images/news_rus/2011.06/19744.jpg" width=200 border=0></FONT></P>
+Автор: Vit Belov
+
+### 08.08.2016 news Переиздание INFERNAL MAJESTY
+
+<p>Переиздание дебютного альбома канадской thrash metal банды<strong> INFERNAL MAJESTY "None Shall Defy"</strong> появиться в продаже 29 октября на виниле и CD. Альбом был ремастирован <strong>Patrick W. Engel</strong>.</p><p>Трек лист:</p><p>- Overlord<br>- R.I.P.<br>- Night of the Living Dead<br>- S.O.S.<br>- None Shall Defy<br>- Skeletons in the Closet<br>- Anthology of Death<br>- Path of the Psyco</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29769.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 08.08.2016 news Debut album of INFERNAL MAJESTY will be on sale again
+
+<p>Reissue of the debut album of the canadian thrash metal band INFERNAL MAJESTY "None Shall Defy" to be on sale on 29 October on vinyl and CD. The album was remastered by Patrick W. Engel.</p><p>Track list:</p><p>- Overlord<br>- R.I.P.<br>- Night of the Living Dead<br>- S.O.S.<br>- None Shall Defy<br>- Skeletons in the Closet<br>- Anthology of Death<br>- Path of the Psyco</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29769.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

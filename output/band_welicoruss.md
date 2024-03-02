@@ -37,6 +37,106 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.04.2008 news WELICORUSS записали альбом
+
+<P>Новосибирская symphonic pagan metal <STRONG>WELICORUSS</STRONG> закончила работу над сведением и мастерингом первого полноформатного альбома, которое выполнил<STRONG> Elias</STRONG> - барабанщик групп <STRONG>WelicoRuss</STRONG> и <STRONG>Ungraved</STRONG>. На данный момент времени идет создание оформления и буклета альбома. Промо вариант доступен для скачивания в разделе дискография официального сайта группы:</P>
+<P>Ссылка: <A href="http://www.welicoruss.com/">http://www.welicoruss.com</A><BR></P>
+Автор: Vit Belov
+
+### 12.04.2008 bios WELICORUSS биография
+
+<P>Заснеженные просторы Сибирской Земли&nbsp; вкупе с чарующими голосами ветров и магическим притяжением луны создают ощущение отрешенности и&nbsp; одиночества, в объятиях которого возникают невероятные образы прошлого и будущего Земли Русской: то, что было, но о чем никто ничего не знает и то, что ожидает нас и что творим своими руками ежечасно. Но причудливый узор надежд и желаний живет и дышит полной грудью, сердце горит и трепещет при мысли о грядущем и о едином Пути, ведущего в Бесконечность. Взгляд изнутри наружу, взгляд из своей животной сущности на будущее сверхсущество – удивительное сопоставление несочетаемого. Взаимодействие с мистическими силами зимней стихии и первозданной Природы позволяют проникнуть в глубь веков и ощутить тонкую нить понимания окружающего мира нашими предками, давали возможность творить незримую Красоту, пытаясь хоть в какой то мере&nbsp; передать свой Восторг, Благоговение и склонение перед Величием Земли Русской!</P>
+<P>Все это, преплетаясь, создает то, что называют музыкой WelicoRuss`а. Очередная попытка объять необъятно, осознать неосознаваемое, прыгнуть, туда, где ничего нет. Абстракция и в то же время достаточно конкретные мысли были сформированы уже в 2002 году, когда идейный лидер и вдохновитель коллектива Алексей начал слагать из разрозненных кусков звуков общее музыкальное полотно будущей группы. В то время он не задумывался о том, что все это может перерасти во что то большее чем просто проект одного человека, но, тем не менее, что то двигало им на создание и эксперименты. Именно этим иностранным словом&nbsp; собственно и можно назвать все, то, что тогда было представлено на первом демо «WinterMoon Symphony» (2002).<BR>Сочетание black metal и pagan довольно убедительно перетекали в область электронной музыки dark ambient и experimental electro. Все достаточно сумбурно, но, тем не менее, очень атмосферно.</P>
+<P>Время шло своим чередом, со временем стало ясно, что концепция Зимней Симфонии не раскрыта в полном виде на первом демо, поэтому Алексеем было принято решение переписать и дописать альбом, в результате чего в итоге получилось второе демо с тем же названием «WinterMoon Symphony» (2004). Концепция была теперь более оформлена, добавились новые композиции, изменилось звучание.</P>
+<P>Одна из композиций в последствии была представлена на сборнике "Siberian xXx-Treme"-II. </P>
+<P>В результате творческих поисков и размышлений Алексей все больше склонялся к необходимости создания полноценной группы, что в последствии было реализовано. Работа с музыкантами началась с конца 2005 года, когда в группе появился PauLAric и SAD. За непродолжительный период состав менялся два раза, но к концу 2007 года он стал более стабильный: WelicoRuss – концепция, гитара, вокал, Elias – ударные, PaulAric – клавишные, вокал, DarkLight – гитара, Dizharmony – бас. </P>
+<P>В этом составе на студиях MegaTon, WelicoRuss HomeStudio и Elias HomeStudio был записан полноформатный концептуальный альбом «WinterMoon Symphony». Композиции претерпели некоторые изменения, получили новое звучание и на этот раз основная идея получило свое полное, конечное воплощение. </P>
+<P><BR>В апреле 2007 года был выпущен первый видео клип на композицию «Славянская Сила».<BR>«Апейрон» - та композиция, которая была отобрана для сборника Siberian Death Metal, а песня «Русалка» - на компиляцию «Агарта. Молодой рок Сибири».<BR>В период с 2006-2008 год было дано более 20 концертов в родном городе и в близлежащих.&nbsp; 3 марта 2008 года успешно прошел сольный концерт группы, на котором были представлены все композиции с будущего полноформатного альбома, а так же студийный клип на «Метель».<BR></P>
+Автор: Vit Belov
+
+### 19.11.2008 reviews Симфонический black-metal саундтрэк к компьютерной игре в стиле фэнтази
+
+<P>Группа со странным и торжественным названием WELICORUSS выпустила свой дебютник «Зимняя Лунная Симфония» на CD-Maximum. Коллектив уже приобрёл некоторую известность в отечественном UG, в частности, группа дала чуть ли не сольный концерт в «Точке». Я понимал, как даются подобные концерты, и дело тут вовсе не в популярности, а в попытке её приобретения, но эта пластинка меня приятно порадовала.</P>
+<P>Конечно же, самостоятельно собирать «Точки» с успехом для собственного кармана WELICORUSS никогда не будут, но закрепиться на уровне «Релакса» им вполне по силам. Я попытался разобраться, что есть такого в их музыке, что позволяет лэйблу справедливо называть их оригиналами. Мелодичный black-metal, созданный, по большей части, в подпольных условиях, с патриотическими текстами и симфоническими «подкладками», сделанными на компьютере. Возможно, дело в мелодиях. Я мог бы сравнить музыку WELICORUSS с саундтрэком к какой-нибудь игре фэнтази-тематики. Не подумайте, что это наезд. Те, кто пробовали играть в Heroes, например, знают какая там цепляющая и лиричная музыка. Вот и у WELICORUSS с их помпезными, но малобюджетными симфониями выходит нечто. Добавьте к этому цепляющие мелодии, к месту использованный красивый женский голос, интересные тексты, и вы получите «Зимнюю Лунную Симфонию». Она, хоть и замешана на UG black-metal звучании, оправдывает своё “симфоническое” название. Ну, и главное здесь есть мощный хит с программным названием «Слава Руси»: цепляющая мелодия, сочетание грубого и почти оперного вокалов. Несмотря на простоту текста в этой песне, глазки любого русского человека загорятся, да и не только русского</P>
+<P>Интересное решение в реализации этого альбома при не очень высоком его бюджете лишь подчёркивает талант самой группы. Становится ясно, что даже при таком подпольном подходе музыка найдёт своего слушателя, если она хороша, конечно же.</P>
+Автор: Vit Belov
+
+### 21.12.2008 news WELICORUSS в студии
+
+<P><IMG height=500 alt="" hspace=0 src="/images/news_rus/2008.12/13219.jpg" width=309 align=right border=5>В данный момент <STRONG>WELICORUSS</STRONG> начали запись нового EP, который будет иметь название "<STRONG>Апейрон</STRONG>" и состоять из 7 композиций. По сути он будет предворять второй полноценный концептуальный альбом и является своеобразным мостом между "<STRONG>Зимней Лунной Симфонией</STRONG>" и будущим творением. Примерный трэк-лист:</P>
+<P>1. <STRONG>Апейрон<BR></STRONG>2. <STRONG>К дальним мирам</STRONG><BR>3. <STRONG>Танец Рыцарей</STRONG> (оригинальная версия - Прокофьев "Ромео и Джульетта")<BR>4. <STRONG>Слава Руси</STRONG> (в новом звучании)<BR>5. <STRONG>Слава Руси</STRONG> (piano-версия в сопровождении струнного квинтета и с оперным вокалом в исполнении Айгуль Бралиновой)<BR>6. <STRONG>Славянская Сила</STRONG> (remix подготовил Dobro из Infernal Commander)<BR>7. <STRONG>Соцветие вселенной</STRONG>.</P>
+<P>В записи альбома помимо оригинального состава <STRONG>WELICORUSS</STRONG> примут участие музыканты из небезызвестных новосибирских групп<STRONG> SILENZIUM</STRONG> и <STRONG>INFERNAL COMMANDER</STRONG>. Оформлением альбома так же займеться <STRONG>Юрий Jurius Козиков</STRONG>. Выход релиза намечен на конец апреля на <STRONG>CD-MAXIMUM</STRONG>.</P>
+<P>Ресурсы группы:<BR><A href="http://www.welicoruss.com/">www.welicoruss.com</A><BR><A href="http://www.myspace.com/welicoruss">www.myspace.com/welicoruss</A><BR><A href="http://vkontakte.ru/club587295">http://vkontakte.ru/club587295</A></P>
+Автор: Vit Belov
+
+### 30.04.2009 news Можно скачать WELICORUSS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое демо <STRONG>WELICORUSS "Апейрон"</STRONG> доступно для свободного скачивания. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Апейрон<BR></STRONG>2. <STRONG>К Дальним Мирам</STRONG><BR>3. <STRONG>Слава Руси</STRONG> (исполнено гр. Silenzium)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://ifolder.ru/11879850">http://ifolder.ru/11879850</A></FONT></P>
+Автор: Vit Belov
+
+### 14.08.2009 news HELHEIM в Новосибирске
+
+<P>
+<CENTER><IMG border=0 src="/images/shows_rus/2009.08/14792.jpg" width=350 height=500></CENTER>
+<P></P>
+Автор: Dimas
+
+### 08.11.2009 news Новый альбом WELICORUSS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=389 alt="" hspace=0 src="/images/news_rus/2009.11/15481.jpg" width=400 align=right border=5>В прошлом месяце на <STRONG>CD-Maximum</STRONG> вышел новый альбом <STRONG>WELICORUSS "Апейрон"</STRONG>. Пресс-релиз: "<EM>Новая работа молодого новосибирского коллектива, который уже покорил поклонников pagan black metal в России и за рубежом. Со времени выпуска своего дебютного альбома, коллектив активно выступал по всей России, в том числе на поддержке легендам норвежского viking metal Helheim. Песни группы попали в ротацию зарубежных металлических онлайн-радиостанций. Альбом записан и сведен в период с ноября 2008 по апрель 2009 года на студии TonHammer Studio под руководством Чурсина Ильи</EM>".</FONT></P>
+<P>Состав группы:</P>
+<P><STRONG>Алексей "WelicoRuss" Боганов</STRONG> - концепция, гитара, вокал<BR><STRONG>Александр "Dizharmony" Головин</STRONG> - бас<BR><STRONG>Илья "Elias" Чурсин</STRONG> - ударные<BR><STRONG>Павел "PauLAriC" Филюхин</STRONG> - клавишные, вокал<BR><STRONG>Макс "SoWeR" Фомин</STRONG> - гитара</P>
+<P>Трэк-лист:</P>
+<P>1. <STRONG>Апейрон</STRONG><BR>2. <STRONG>К дальним мирам<BR></STRONG>3. <STRONG>Blud flower</STRONG><BR>4. <STRONG>Слава Руси<BR></STRONG>5. <STRONG>Слава Руси (версия 2)</STRONG><BR>6. <STRONG>Славянская сила</STRONG><BR>7. <STRONG>Соцветие вселенной</STRONG></P>
+<P>Из других новостей. В связи со сменой профессиональной деятельности группу покидает клавишний <STRONG>Павел PaulAric Филюхин</STRONG>. Музыканты&nbsp;<STRONG>WELICORUSS </STRONG>выражают благодарность за 4 года работы в составе и желают Павлу всего наилучшего в будущем. Место за клавишной стойкой займет <STRONG>Дмитрий "Демид" Полянский</STRONG>, известный по работе в heavy-metal группе <STRONG>ДЕВЯТЫЙ ВАЛ</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.04.2010 news WELICORUSS выступят на Metal Camp 2010
+
+<P>Подтверждено участие новосибирской symphonic pagan/black metal группы <STRONG>WELICORUSS</STRONG> в европейском фестивале тяжелой музыки <STRONG>METAL CAMP 2010</STRONG>, который пройдет с 5 по 10 июля в городе Толмин (Словения). Группа выступит 5 июля.</P>
+<P>Информацию о выступающих группах можно узнать на официальном сайте фестиваля: <A href="http://www.metalcamp.com/index.php?page=program">http://www.metalcamp.com/index.php?page=program</A></P>
+<P>Ресурсы группы:<BR><A href="http://www.welicoruss.com/">www.welicoruss.com</A><BR><A href="http://www.myspace.com/welicoruss">www.myspace.com/welicoruss</A><BR><A href="http://vkontakte.ru/club587295?f=1">http://vkontakte.ru/club587295?f=1</A></P>
+<P>Добступно для скачивания промо с двух альбомов:<BR><A href="http://www.welicoruss.com/downloads/music/wms/WelicoRuss-WinterMooSyphony(promo).rar">http://www.welicoruss.com/downloads/music/wms/WelicoRuss-WinterMooSyphony(promo).rar</A><BR><A href="http://www.welicoruss.com/downloads/music/apeiron/WelicoRuss-Apeiron(promo).rar">http://www.welicoruss.com/downloads/music/apeiron/WelicoRuss-Apeiron(promo).rar</A></P>
+Автор: Vit Belov
+
+### 04.07.2011 news Изменения в составе WELICORUSS
+
+<P><IMG height=329 alt="" hspace=0 src="/images/news_rus/2011.07/19879.jpg" width=450 align=right border=0>Осенью 2010 года&nbsp;<STRONG>WELICORUSS</STRONG> покинули клавишник <STRONG>Демид Полянский</STRONG> и бас-гитарист <STRONG>Александр Головин</STRONG> в связи с занятостью в других сферах. Продолжительное время искалась замена и к данному моменту она найдена: место за клавишной стойкой займет <STRONG>Борис «SENS» Восколович</STRONG>, а пять толстых струн теперь будет истязать <STRONG>Алексей «ALEX» Болдин</STRONG>! </P>
+<P>Алексей, лидер группы: «<EM>С Борисом мы начали работать еще осенью и я полностью доволен его подходом и творческим потенциалом. Этот парень - будущий Warman! С Алексеем м ыпознакомились несколько позднее, это отзывчивый позитивный парень, который так же весьма креативен и техничен. В данный момент мы занимаемсязаписью нашего третьего альбома и в этом деле принимают участие все члены группы, это отличительная черта нового материала – музыку сочиняют все. То, что сейчас получается очень мне нравится и радует – это достойное продолжение концепции наших предыдущих альбомов!</EM>»</P>
+<P>Последним на сегодня релизом группы является EP "<STRONG>Apeiron</STRONG>", который вышел на <STRONG>CD-Maximum </STRONG>в 2009 году.</P>
+<P><A href="http://welicoruss.com/">http://welicoruss.com/</A></P>
+Автор: Vit Belov
+
+### 04.07.2011 news WELICORUSS: Line-up changes
+
+<P><IMG height=329 alt="" hspace=0 src="/images/news/2011.07/19880.jpg" width=450 align=right border=0>Band from Siberia <STRONG>WELICORUSS</STRONG> have parted ways with <STRONG>Demid Polyanskiy</STRONG> (keayboards) and <STRONG>Alexander Golovin</STRONG> (bass). The group already found new musicians - <STRONG>Boris "Sens" Voskolovich</STRONG> and <STRONG>Alexey "Alex" Boldin</STRONG>.</P>
+<P>"<EM>Boris has great potential. He is a future Janne Warman from CHILDREN OF BODOM</EM>" is said by <STRONG>WELICORUSS</STRONG> members. <STRONG>WELICORUSS</STRONG>&nbsp;are writing new material and everybody is working on new music. It is the first time for <STRONG>WELICORUSS</STRONG>.</P>
+<P>Latest release by <STRONG>WELICORUSS "Apeiron EP"</STRONG> was released in 2009 via <STRONG>CD-Maximum</STRONG>. </P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/welicoruss">http://www.myspace.com/welicoruss</A></P>
+Автор: Vit Belov
+
+### 02.09.2011 news WELICORUSS выпустили интернет-сингл
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.09/20857.jpg" width=400 align=right border=0>WELICORUSS </STRONG>подготовили вашему вниманию новый интернет-сингл "<STRONG>Карна</STRONG>". Лидер группы <STRONG>Алексей</STRONG>: "<EM>После длительного затишья мы рады представить первые результаты наших трудов перед выходом полноформатного альбома. В сочинении приняли участия все члены группы, но особенно я хотел бы отметить работу нового клавишника Бориса SENS Восколовича, а так же ударника и саундпродюссера по совместительству Ильи ELIAS Чурсина. Все соло партии на этот раз написаны и исполнены Максом SOWER Фоминым. В записи сингла приняли участие приглашенные музыканты: Тарас Шеньшин спел в «Карне», а Анастасия Сергеева в «Дольмене». Этот мини-релиз является новой ступенью в развитии нашего творчества и уже можно понять, что в итоге мы услышим на новом альбоме!</EM>»</P>
+<P>Скачать можно тут:<BR><A href="http://www.filedropper.com/welicoruss-kharnhasingle2011">http://www.filedropper.com/welicoruss-kharnhasingle2011</A><BR><A href="http://www.filefactory.com/file/cda9581/n/WELICORUSS_-_Kharnha_(single_2011).rar">http://www.filefactory.com/file/cda9581/n/WELICORUSS_-_Kharnha_(single_2011).rar</A><BR><A href="http://depositfiles.com/files/via1nvrl7">http://depositfiles.com/files/via1nvrl7</A></P>
+Автор: Vit Belov
+
+### 14.12.2011 news Новое видео WELICORUSS
+
+<P>Новосибирская symphonic metal группа <STRONG>WELICORUSS</STRONG> завершила работу над своим новым видео на композицию «<STRONG>Карна</STRONG>» с одноименного сингла. Клип сняли<STRONG> IMPERIUM STUDIOS</STRONG> под руководством <STRONG>Александра Цурупа</STRONG> и <STRONG>Александра Семко</STRONG>.</P>
+<P>Напоминаем, что сингл «<STRONG>Карна</STRONG>» предвещает новый релиз группы, выход которого запланирован на весну 2012.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ne_Y5hLNOlc?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ne_Y5hLNOlc?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

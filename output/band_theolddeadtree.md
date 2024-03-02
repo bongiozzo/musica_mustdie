@@ -65,6 +65,48 @@ Mastered by Goran Finnberg at The Mastering Room.
 * C группой "Ommatidia" Nicolas Chevrollier (guitar)
 * C группой "Ommatidia" Vincent Danhier (bass)
 
+## Публикации
+
+### 10.06.2003 reviews Безымянная болезнь
+
+<p>Дебютный концептуальный альбом французской формации THE OLD DEAD TREE. Путь группы к его выпуску был долгим и тернистым. Работа над альбомом началась еще в 1999 году. И надо так было случиться, что не успев начать запись альбома, группа теряет ударника, который покончил жизнь самоубийством. Это предопределило дальнейшее углубление музыкантов в пучины депрессивности. В итоге получилась мрачноватая и разнообразная музыка, меланхоличная и печальная, чувственная и эмоциональная. Стиль в котором выдержан материал THE OLD DEAD TREE трудно классифицировать однозначно. Он довольно оригинален и уникален. Смесь мелодичного death metal с dark metal и gothic rock, со свежим, агрессивным, мощным и современным саундом. При прослушивании альбома, на ум приходят такие коллективы, как OPETH, PARADISE LOST и TO/DIE/FOR. Вокалист прекрасно владеет своим голосом, как чистым, так и экстремальным. В студии над альбомом поработал Andy Classen, потому качество продукции на самом высшем уровне. Рекомендую поклонникам красивой и меланхоличной музыки.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 02.03.2004 news Old Dead Tree покинул барабанщик
+
+Барабанщик THE OLD DEAD TREE <B>Franck M&#233;tayer</B> покинул группу, чтобы сконцентрироваться на своей личной жизни. Интересно, что оригинальный барабанщик коллектива<B> Fr&#233;d&#233;ric Guillemot</B> покончил жизнь самоубийством в 1999 году.
+Автор: Vit Belov
+
+### 02.03.2004 news THE OLD DEAD TREE Part Ways With Drummer, Seek Replacement
+
+<DIV class=theText id=storyRepeater__ctl19_storyPanel>French gothic metallers <B>THE OLD DEAD TREE</B> have parted ways with drummer <B>Franck M&#233;tayer</B>. <B>Franck</B>, who has been with the band since 1999, "decided to leave <B>THE OLD DEAD TREE</B> in order to better be able to devote himself to his personal life," reads a post on the group's web site. "His powerful and inspired way of playing drums counted much in the musical choices we adopted during the composition of <B>'The Nameless Disease'</B>, debut album of the band.<BR><BR>"This separation was carried out in good conditions and the remainder of the band wishes him all the best for the future. Nevertheless, <B>Franck</B> will stay with us for the upcoming concerts until the arrival of his successor. The band invites all the interested drummers to contact us by using the following address: info@theolddeadtree.com."<BR><BR><B>THE OLD DEAD TREE</B>'s original drummer, <B>Fr&#233;d&#233;ric Guillemot</B>, committed suicide in 1999, shortly after the release of the group's debut mini-CD, <B>"The Blossom"</B>. </DIV>
+Автор: Vit Belov
+
+### 08.09.2004 news THE OLD DEAD TREE назвали имя нового барабанщика
+
+Новым барабанщиком французов&nbsp;<STRONG>THE OLD DEAD TREE</STRONG> стал <STRONG>Foued Moukid</STRONG> (ex-<B>HORRESCO REFERENS</B>).
+Автор: Vit Belov
+
+### 21.08.2006 reviews Хорошо ли вечно двигаться?
+
+<P>Французская формация The Old Dead Tree стилистически находится где-то между готик-роком и дум-дэтом аля Opeth. Но... мечется мечется, не зная, к какому брегу ей прибиться. Так и болтается, как потерявшая управление шлюпка. Вокалист группы Manuel Munoz явно бравирует тем, что может петь как чистым вокалом, так и гроулингом, но до "Мишки" из Opeth ему ой как далеко, потому что тот делает это со знанием дела, а не просто так, чисто пофорсить. "The Perpetual Motion" в каком-то смысле оправдывает своё название. Музыка всё время в движении, она не останавливается ни на минуту, но вот определиться "а что же мы, черт возьми, играем" группа не в состоянии. Она болтается (да, именно так) между теми же Opeth, Katatonia и Anathema, привлекая еще немало чего от готик-рока, но не может найти себе пристанища. Говоря о втором (если не ошибаюсь) альбоме The Old Dead Tree, мы можем утверждать, что это зрелая, хорошая работа, которую - в силу некоторых особенностей - никак не ждешь от французов в данном жанре, но пока этот релиз слишком далек от того, чтобы его можно было превозносить, как, скажем,&nbsp;последнюю работу Antimatter. Впрочем, любители перечисленных выше групп могут совершенно спокойно рискнуть - в "The Perpetual Motion" есть свой шарм...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 05.09.2006 news В THE OLD DEAD TREE новый гитарист
+
+<P>В рядах французского коллектива <B>THE OLD DEAD TREE</B> появился новый гитарист <B>Gilles Moinet</B> (<B>LUX INCERTA</B>), на которого остальные участники коллектива возлагают большие надежды, так как считают, что его композиторские таланты позволят еще более разнообразить музыку группы.&nbsp;Его дебют состоится 23 сентября на концерте коллектива&nbsp;в Женеве.</P>
+Автор: Dimas
+
+### 19.11.2009 news THE OLD DEAD TREE развалились
+
+<P>Французская gothic-metal группа <STRONG>THE OLD DEAD TREE</STRONG> прекратила своё существование. "<EM>Не хотел бы никогда произносить тех слов, которые скажу сейчас. Но ничто не вечно. В последние несколько месяцев появились некоторые разногласия внутри команды, касающиеся направления, в котором надо двигаться на нашем четвёртом альбоме. В конце концов, эти разногласия привели к полной невозможности дальнейшего существования группы</EM>", - рассказал фронтмэн<STRONG> Manuel</STRONG>.</P>
+<P>Также вокалист сказал, что за 12 лет существования в группе происходило множество смен состава, и очередной смены он не хочет.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

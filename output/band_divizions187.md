@@ -23,6 +23,9 @@ ASHEN LIGHT project
 * C группой "Stigmatic Chorus" Alex
 * C группой "Изморозь" Alex
 
+## Публикации
+
+
 ## Обсуждения
 
 

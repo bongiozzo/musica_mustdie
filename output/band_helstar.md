@@ -189,6 +189,62 @@ The first press includes three bonus tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.03.2001 news Адская звезда засияет вновь...
+
+<p>James Rivera (вокалист Destiny's End) решил возродить из пепла команду Helstar. Уже принято решение участвовать в немецком фестивале Bang Your Head в Балингене. "Оторвать этих ребят от барбекью и софтбола было нелегко" - говорит Джэймс. Новый состав выглядит следующим образом: Andre Corbin (Nosferatu), Russell Deleon (барабаны, ex-Multiples Of Black), Aaron Garza (ex-Multiples Of Black) и Jerry Abarca. Сейчас группа сидит в Хьюстоне и репетирует.</p>
+
+Автор: Yermola
+
+### 12.03.2001 news HELSTAR is back...
+
+<p>Destiny's End vocalist James Rivera has decided to play the annual Bang Your Head festival, in Balingen, Germany with a reunited Helstar, despite the fact his current outfit has released Transition, the strongest platter of their career. The diminutive man with the giant voice explains how it came to pass. "The whole came about because Destiny's End did Bang Your Head last year. I did the grand finale, getting onstage with the Scorpions and singing 'He's A Woman, She's A Man'. Right after the show, the response from the chief of staff was great and they don't like to have the same bands every year. WatchTower did a reunion, then the organizers approached me that night, 'Do you know who we want to do the reunion show next year? Helstar' I told them I'd see what I could do."<BR><BR>"Getting these guys away from their barbecue pits and softball games, was a hard deal. I couldn't get one, exact line-up, so this Helstar is going to be made up of members from all the different years. They've all been working, just doing what I call the Beaver Cleaver life. They've been playing on there own. I know for a fact, Larry still has three (Marshall) stacks sitting in a little jam room, with memorabilia. They're not doing anything musically. I'm the only one who said, 'I've already wasted all these years of my life, I might as well keep going.' The line-up will be Andre Corbin, who was on Nosferatu, on drums will be Russell Deleon, who was on Multiples Of Black and my Vigilante career, Aaron Garza, the same deal and Jerry Abarca. We're all Houstonians. We've been rehearsing and try to get together at least two times a week, until June. When the time comes, we'll have the show down so tight, it will be incredible."<BR><BR>While there's currently no plans to release any new Helstar material, Rivera is thinking ahead, spurred in part by the reception given to last year's live, bootleg quality, T'was The Night Of A Hellish Xmas CD. "Metal Blade had that idea and I thought it was good, just to keep something of James Rivera going, while there was a gap between Destiny's End records. It was actually taken from a video, which is why it has such a horrible sound. It's as raw as raw can be. I'm thinking about sending an offer to Century Media, Nuclear Blast and Metal Blade, 'Why don't you record this reunion show at Bang Your Head (in Germany, June 2001) and put it out as a live thing?'"</p>
+
+Автор: Yermola
+
+### 11.08.2008 reviews Повылазили всякие
+
+<P>Ну всё, приехали. Поднявшаяся в последнее время популярность speed/thrash-metal повлекла возрождение множества групп. Среди них есть и монстры, EXODUS и ONSLAUGHT, о последних стоило услышать, если кто до сего момента не слышал, есть и середнячки, типа DEATH ANGEL. HELSTAR – первая группа из прошлого в этом жанре, о которой можно забыть сразу после возвращения.</P>
+<P>Я никогда об этих американцах ранее не слышал. Возможно, это мой самый ужасный просчёт за всё время увлечения тяжёлым металлом, но новый релиз HELSTAR в этом не убеждает. На пластинку “Sins Of The Past” попали перезаписанные хиты из прошлого. Приготовившись к звуковому пиршеству, я был разочарован. Несмотря на то, что песни HELSTAR теперь звучат достаточно актуально в плане реализации, я не смог обнаружить на этом сборнике лучших вещей ни одного хита. Speed-metal с высоким вокалом известного по участию в SEVEN WITCHES James Rivera, прямолинейные риффы и полное отсутствие запоминающихся мелодий и интересных ходов. Для любителей этой группы отмечу, что HELSTAR записали ещё две новые вещи, и они вполне вписываются в серую палитру этого альбома. Я не отрицаю, что найдутся эти самые любители, которые слушали американцев ещё на разнообразных винилах, они предадут меня анафеме за эти слова. Советую им трезво взглянуть на HELSTAR, сравнить их музыку с современными работами TESTAMENT или AGENT STEEL и постараться избежать ностальгических приливов при прослушивании “Sins Of The Past”. В этом случае, думается, они не будут со мной слишком спорить.</P>
+<P>Группа второго эшелона, которой стоило бы оставаться в забвении и не пытаться заработать на своей «легендарности» и «олдскульности».&nbsp; </P>
+Автор: Vit Belov
+
+### 08.01.2009 news Новое видео HELSTAR
+
+<P><STRONG>HELSTAR</STRONG> выложили в сеть новое видео на песню <STRONG>"Pain Will Be Thy Name",</STRONG>&nbsp;которая вошла на последний альбом группы <STRONG>"The King of Hell"</STRONG>, вышедший на<STRONG> AFM</STRONG> 26 сентября прошлого года.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=49816516">Helstar - Pain Will Be Thy Name</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=49816516,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=49816516,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.02.2011 reviews Привет из 80-х
+
+<P>Американцы HELSTAR прожили свои лучшие годы в 80-х. Их speed-thrash-metal звучал в то время очень свежо и энергично. Группа не слишком заморачивалась мелодиями, предпочитая брать своё экстремальным по тем временам прямолинейным звучанием и пронзительным вокалом.</P>
+<P>Как и многие коллективы того времени, HELSTAR вернулись на волне интереса к thrash-metal во второй половине прошлого десятилетия. Заявить о себе группа сначала решила мощным сборником «перепевок» “Sins Of The Past”. Уже тогда стало понятно, что творчество американской группы уже не актуально. Безусловно, поклонники подобной музыки со стажем должны были остаться довольны, но те фэны thrash-metal, которые развивались вместе со стилем, замерли в недоумении. Пронзительные крики и мощные риффы, вот, что представляют собой HELSTAR. Что ж, оставалось надеяться, что музыканты, находясь вне группы, следили за развитием метала в мире, и новый материал это докажет. К сожалению, надежды оказались напрасными. HELSTAR продолжили своё дело, неся знамя высоко. Вокалист James Rivera поражает своей бескомпромиссностью, а музыка группы представляет собой «трушный» speed-metal без изысков. Естественно, если вы “true”, изыски вам ни к чему, они для вас смертельны. На альбоме также представлены два бонус-трэка – кавера на SAXON “Heavy Metal Thunder” и SCORPIONS “Animal Magnetism”. Это надо уметь, даже такие хиты отыграть на одной мощной thrash-metal ноте.</P>
+<P>HELSTAR поразили меня своей преданностью корням. Если вы впали в летаргический сон в середине 80-х, а сейчас очнулись, вам необходимо приобрести “Glory Of Chaos”. Звучание этого альбома позволит безболезненно привыкнуть к современному ритму жизни.</P>
+Автор: Vit Belov
+
+### 03.01.2012 news HELSTAR запишут DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ветераны американского speed-metal <STRONG>HELSTAR</STRONG>, празднуя своё тридцатилетие, 24 марта текущего года запишут концерт в Хьюстоне для CD/DVD. В качестве супорта на этом шоу выступят <STRONG>METALLOYD, LEGION, KNOTURNAL MADNESS, EPIC</STRONG>&nbsp;и<STRONG> METAVENGE</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом <STRONG>HELSTAR "Glory Of Chaos"</STRONG> вышел в ноябре 2010 года на <STRONG>AFM</STRONG>.</FONT></P>
+<P><center><IMG height=388 src="/images/news_rus/2012.01/22457.jpg" width=398 border=0></P>
+Автор: Vit Belov
+
+### 24.08.2016 news HELSTAR выпускают &quot;Vampiro&quot;
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">В пятницу на лэйбле басиста <strong>MEGADETH Ellefson Music Productions</strong> выходит новый альбом <strong>HELSTAR "Vampiro".</strong></font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1. Awaken into Darkness <br>2. Blood Lust&nbsp; <br>3. To Dust You Will Become <br>4. Off With His Head &nbsp; <br>5. From the Pulpit to the Pit&nbsp; <br>6. To Their Death Beds They Fell <br>7. Malediction <br>8. Repent in Fire <br>9. Abolish the Sin&nbsp; <br>10. Black Cathedral&nbsp; <br>11. Dreamless Sleep </p><p><center><img width="383" height="383" src="/images/news_rus/2016.08/29859.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 24.08.2016 news New album of HELSTAR
+
+<p>The new <strong>HELSTAR</strong> album "<strong>Vampiro</strong>" will be released this Friday through<strong> MEGADETH</strong> bassist<strong> Ellefson Music Productions</strong>.</p><p>Track list:</p><p>1. Awaken into Darkness <br>2. Blood Lust&nbsp; <br>3. To Dust You Will Become <br>4. Off With His Head &nbsp; <br>5. From the Pulpit to the Pit&nbsp; <br>6. To Their Death Beds They Fell <br>7. Malediction <br>8. Repent in Fire <br>9. Abolish the Sin&nbsp; <br>10. Black Cathedral&nbsp; <br>11. Dreamless Sleep </p><p><center><img width="383" height="383" src="/images/news_rus/2016.08/29859.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

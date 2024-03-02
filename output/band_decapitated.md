@@ -122,6 +122,526 @@ Suffer The Children (Napalm Death's cover)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.11.2001 news Нигилизм сменивший ветер созидания...
+
+<p>Разочаровавшись в созидании после альбома "Winds of Creation", дэтстеры "DECAPITATED" решили назвать новый альбом "Нигилизм"... Запись полностью завершена, Европейский и Американский релизы намечены на начало 2002 года. По словам Earache Records: "...альбомом Nihility, DECAPITATED ставят себя в высшую лигу дэс-металла..." Полный трек-лист: <BR> <BR> 01. Perfect Dehumanisation (The Answer?) <BR> 02. Eternity Too Short <BR> 03. Mother War <BR> 04. Nihility (Anti-Human Manifesto) <BR> 05. Names <BR> 06. Spheres of Madness <BR> 07. Babylon's Pride <BR> 08. Symmetry of Zero</p>
+
+Автор: Yermola
+
+### 12.11.2001 news DECAPITATED have completed the recording of Nihility...
+
+<p>Poland's death metal prodigies DECAPITATED have completed the recording of Nihility, the much-anticipated follow-up to their 1999 Earache/Wicked World debut, Winds of Creation. US and European release is set for early 2002. Here is a report from the UK office of Earache Records: "The hottest new Death Metal band on the planet have completed their second album, and what a storming record it is! Titled Nihility, the recording sees DECAPITATED reach a new found maturity and should see them establish themselves in the Death Metal Premier League. Make no mistake, this is up there with the very best DM releases of recent years - DECAPITATED have honed their style into one that doesn't borrow from the competition, it buries them! Relying on a varied use of tempo, and intricately layered use of guitars, Nihility twists and turns from start to finish, and resolutely avoids comparisons with any contemporaries. The precise nature of the musicianship at times defies logic - the obvious enthusiasm and respect they have for the Death Metal genre only serves to make Nihility more convincing - this is genuine Death Metal played from the heart. If you were one of the many who enjoyed Winds of Creation, prepare yourself for a simply breathtaking record which no real Death Metal fan can afford to miss!" The full track listing for Nihility is as follows:<BR> <BR> 01. Perfect Dehumanisation (The Answer?) <BR> 02. Eternity Too Short <BR> 03. Mother War <BR> 04. Nihility (Anti-Human Manifesto) <BR> 05. Names<BR> 06. Spheres of Madness <BR> 07. Babylon's Pride <BR> 08. Symmetry of Zero</p>
+
+Автор: Yermola
+
+### 12.11.2001 bios DECAPITATED
+
+<p>The trio of Vogg (g), Vitek (dr), and Sauron (voc) formed DECAPITATED in 1996, which probably makes them the youngest death metal outfit in the world. In early 1997 Martin (bg) completed the line-up which has remained steady since. The beginnings would not have been any different from those of hundreds of other bands if it hadn't been for the members' age. When DECAPITATED congealed, Vogg, Vitek, Sauron, and Martin were respectively 15, 12, 15, and 13 years old.<BR><BR> June 1997 marked the recording of their debut demo titled "Cemeteral Gardens" which comprised of an intro and 4 tracks. Even though the tape received a handful of positive reviews, nobody really took the band seriously - they were simply too young. Their early recordings were heavily inspired and influenced by VADER, a debt the DECAPITATED members readily acknowledge. On the other hand, all four musicians attend music schools - a rarity in the metal scene which gives them solid musical background and virtuoso musicianship. The natural talent and constant progression inform the band's second demo titled "The Eye of Horus", which was recorded in October 1998 in the Manek Studio. The tape featured 4 new tracks and Slayer's "Mandatory Suicide" cover, Eventually, it secured the foursome a contract with Massive Management, whose artist roster consists of such bands as VADER, THE MOON, TOWER, YATTERING and many others.<BR><BR> On 15 April 1999 DECAPITATED entered the Selani Studio to record their debut album. Titled "Winds of Creation", it was produced by Peter (VADER), who also debuted as a sound engineer, and graphically designed by Jacek Wisniewski, who had been previously responsible for several Vader's cover artwork ("Kingdom," "Black to the Blind," " Live In Japan"). All along, the band had been active in the live circuit, mainly in small clubs, but in August 1999 they appeared in front of 2,000 fans during the Thrash'em All Festival 99, where they were received very enthusiastically.<BR><BR> The band has also supported VADER on numerous occasions. In mid 1999 Relapse Records expressed their interest in "The Eye of Horus" material, which in December 1999 will appear on the label's "Polish Assault" compilation. Beside DECAPITATED the compilation will feature three other Polish bands, including YATTERING.<BR><BR> Following the promotional mailing of "Winds of Creation" the band received a number of contract offers from such labels as Century Media, Season of Mist, Osmose, and Listenable. It was, however, Wicked World/Earache Records (the label that launched VADER's career) that won the race for the band. The debut album is scheduled for release on 17 April 2000. The album itself comprises 9 cuts, including a new rendering of Slayer's "Mandatory Suicide". DECAPITATED are also preparing for their first Polish tour with LUX OCCULTA, HATE, and YATTERING.<BR><BR> Despite their young age DECAPITATED play highly efficient, ferociously technical, and extremely energetic death metal. Vogg, the band's leader, is considered to be one of the best young guitar players in Poland and his talents are only budding. Stand by to listen to one of the most talked-about young bands on the circuit.<BR><BR></p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> LABELS, if you want Belarusian metalheads to be acquainted with your releases we recommend you to put MassaBrutto Radioshow address in your promo and mailing lists. <BR><BR> All kinds of quiz actions featuring your products as prizes can be performed in MassaBrutto. You may discuss all conditions with us by using any way of connection.<BR><BR> Nevertheless we live in ex-Soviet state where music piracy dwells, MASSA BRUTTO RADIOSHOW DOESN'T SUPPORT ANY KIND OF MUSIC PIRACY ON PRINCIPLE !!! <BR> So, you may be sure that:<BR> - there wasn't and there won't any of illegal CDs broadcasted within MassaBrutto Radioshow;<BR> - any of official or licensed CDs sent to MassaBrutto will not become the property of music pirates.<BR><BR> If you or someone that you know is in a band that is interested in getting some guaranteed airplay on a radio station in Belarus then all you need to do is to get in contact with us. <BR><BR> If there are any questions - feel free to ask.<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 09.09.2003 news DECAPITATED закончили запись альбома
+
+<p>DECAPITATED закончили запись нового альбома под названием "The Negation" в польской Hertz Studio с инженерами Slawek и Wojtek Wieslawski. Микширование альбома начнётся не раньше октября, пока группа не закончит турне с VADER. Среди названий: "The Negation", "Long Desired Dementia", "Three-Dimensional Defect", "The Fury" и "Sensual Sickness". CD выйдет в феврале на Earache Records.</p>
+
+Автор: Vit Belov
+
+### 25.12.2003 news Новый альбом DECAPITATED
+
+Польская брутальная группа <B>DECAPITATED</B> готовит к выпуску 9 марта 2004 года через <B>Wicked World/Earache Records</B> свой третий полнометражный альбом <B>"The Negatron".</B> В качестве бонус-трэка, на диск войдет кавер-версия ранней вещи <B>DEICIDE "Lunatic Of God's Creation".</B> На нашем сайте можно ознакомиться с первой композицией альбома под названием <B>"The Fury" (<A href="/samples/d/decapitated/2004_726.mp3">mp3</A>).</B> В альбом войдут следующие вещи:</P>
+<P>1. <B>The Fury</B><BR>2. <B>Three-Dimensional Defect</B><BR>3. <B>Sensual Sickness</B><BR>4. <B>Calling</B><BR>5. <B>The Negation</B><BR>6. <B>Long-Desired Dementia</B><BR>7. <B>The Empty Throne</B><BR>8. <B>Lying And Weak</B><BR>9. <B>Lunatic Of God's Creation</B>
+Автор: Dimas
+
+### 10.04.2004 reviews Драйва не хватило!!!
+
+<DIV><I>Польская группа <B>Decapited</B>, одна из тех death-metal команд, которым посчастливилось заключить&nbsp;хороший контракт на выпуск своих альбомов.</I></DIV>
+<DIV><I></I>&nbsp;</DIV>
+<DIV>По каким параметрам можно оценивать подобные пластинки? Тяжесть? Разнообразие? Техника? Мне кажется, все эти понятия не играют главной роли в оценке подобного "мяса".&nbsp;<B>DECAPITATED </B>умеют играть, очень хорошо записаны... Но, это не главное. Главное, как мне кажется, это, так называемый,&nbsp;"забой" или "драйв". Вот с этим, к сожалению, у <B>DECAPITATED</B> не всё в порядке. Ведь Вы death-metal покупаете не для того, чтобы соло слушать.&nbsp;<B>'The Negation'</B> не хватает скорости... Поэтому в плане брутальности они сильно проигрывают другим подобным&nbsp;командам,&nbsp;а с другой стороны&nbsp;альбом никак не&nbsp;назовёшь&nbsp;очень техничным. Вот так и подвисает эта пластинка между направлениями.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Довольно скучный, но качественный death-альбом, который явно не дотягивает до почётного "звания" brutal.</DIV>
+Автор: Vit Belov
+
+### 23.04.2004 reviews Roll over, Vader!
+
+<P>Третий альбом польских головорезов Decapitated, пожалуй, лучший в их дискографии. После чрезвычайно откровенного, наполненного искренней злобой и агрессией, но все же сырого по качеству записи (вспомним особенно вокал) дебютника "Winds of Creation" и намного более техничного, но именно из-за этой "сплошной" техники и намного более скучного "Nihility", квартет наших братьев-славян (кстати, забавно, что вокалист постригся наголо) выдал свой третий полноформатный получасовой блин - и, конечно же, блин этот не комом. Всё стало еще лучше: и техника, и качество записи и продюсирования, но главное, что "Обезглавленные" поняли, что на прежнем релизе их повело не в ту сторону. Мощная стена дэт-метала, которая, видимо, прижимает к полу и стенам зрителей на концертах, великолепная игра музыкантов (бля, где ж они таких классных ударников находят?), впечатляющий вокал (как будто он поет в полсилы, а если уж по полной разойдется, то всем тогда и полный пи...ц), бешено ухающий бас плюс стильный буклет (думаю, ясно, кто над ним работал)... Остается только снять шляпу перед этими юными музыкантами. Похоже, ветеранам польской дэт-сцены Vader, да и другим местным известностям, вроде&nbsp;Dies Irae, придется вскоре посторониться, чтобы пропустить вперед молодую поросль в лице Decapitated. Время покажет...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 05.07.2005 news DECAPITATED поменяли вокалиста
+
+<P>Новым вокалистом <STRONG>DECAPITATED</STRONG> стал <STRONG>Covan</STRONG> (<STRONG>ATROPHIA RED SUN</STRONG>). Он заменил ушедшего по собственной инициативе <STRONG>Sauron</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.07.2005 news DECAPITATED to change singer
+
+<P><STRONG>Covan (ATHROPIA RED SUN)</STRONG> has became new singer of <STRONG>DECAPITATED</STRONG>. He replaced<STRONG> Sauron</STRONG>, leaving band for "personal reasons".</P>
+Автор: Vit Belov
+
+### 21.07.2005 news DECAPITATED&#39;s new album
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Polish <STRONG>DECAPITATED</STRONG> will enter <STRONG>Herz Studio</STRONG> to record next album "<STRONG>Organic Hallucinosis</STRONG>" at 1st of August. Album will be released in the begining of 2006.</FONT></P>
+Автор: Vit Belov
+
+### 21.07.2005 news Новый альбом DECAPITATED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поляки<STRONG> DECAPITATED</STRONG> собираются войти в&nbsp;<STRONG>Herz Studio</STRONG>&nbsp;1 августа для записи новой пластинки "<STRONG>Organic Hallucinosis</STRONG>".&nbsp;Пластинка выйдет в следующем году.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 09.02.2006 news DECAPITATED: новый альбом скоро в продаже
+
+<P>Польские дэтстеры <B>DECAPITATED</B> выпускают свой новый альбом на <B>Earache</B> под названием <B>"Organic Hallucinosis"</B>. Он выйдет в двух форматах: обычный CD и как Limited Edition Dual Disc, который будет дополнительно включать DVD с записанным концертом группы в Нью-Йорке 25 ноября 2005 года. Если же вам посчастливилось жить в Великобритании, то вас ждет еще один сюрприз: вы можете получить бонусом к указанным выше форматам дополнительный DVD с записью концерта в Ноттингеме 20 декабря 2004 года. Данный бонусный диск оформлен как CD-ROM. <B>"Organic Hallucinosis" </B>появится в продаже 13 февраля.</P>
+Автор: Ixtiandr
+
+### 26.02.2006 news DECAPITATED выступят на Metal Camp Festival
+
+<P>Польские мастера дэт-метала <B>DECAPITATED</B>&nbsp;выступят 22 июля на фестивале <B>Metal Camp Festival</B>, который пройдет в Словении, в городе Толмин, с 21 по 23 июля. Об участии в этом музыкальном празднике также заявили такие монстры, как <B>DIMMU BORGIR, SAXON, TESTAMENT, AMON AMARTH, MY DYING BRIDE, HYPOCRISY, EDGUY, GOREFEST</B>.</P>
+<P>Подробности смотрите на: <A href="http://www.metalcamp.com/"><U>http://www.metalcamp.com/</U></A></P>
+Автор: Ixtiandr
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 30.03.2006 news DECAPITATED сняли новый клип
+
+<P>Польские мясники <B>DECAPITATED</B> всю прошлую неделю были заняты съемкой клипа к песне <B>'Day 69'</B> с их свежайшего альбома <B>"Organic Hallucinosis"</B>. Увидеть отдельные фрагменты видео и прочитать новости о группе вы можете здесь: <A href="http://www.earache.com/news_stories/decapitated.html#69vid">http://www.earache.com/news_stories/decapitated.html#69vid</A></P>
+Автор: Ixtiandr
+
+### 06.07.2006 reviews Polish death metal modern
+
+<P>Польские дэтстеры Decapitated не слывут особенно продуктивными, свои альбомы они выпускают раз в два года. Но ожидание это, как правило, оправдывается, каждая очередная работа отличается от предыдущей, а это означает, что группа не стоит на месте, ищет своё звучание, так или иначе развивается. То же самое вышло и с новым опусом поляков, "Organic Hallucinosis". Прежде всего отмечу, что у этого квартета сменился вокалист. Честно могу сказать, что Sauron мне нравился больше, чем занявший теперь место у микрофона Cavon. Но это уже предмет лчиных, так сказать, пристрастий. Тем более, что голос Covan'а как нельзя лучше подошел той музыке, что предподносят нам Decapitated на "Organic Hallucinosis". А она уже совсем не та, что была на, скажем, предыдущей работе "The Negation" (которую я в своё время оценил очень высоко). Да, безусловно, это всё еще дэт-метал, но, думаю, мы будем недалеки от истины, если назовем такой саунд "Polish death meets Meshuggah". Шаг это вперед или назад (но не топтание на месте, это уж точно), каждый решит для себя сам. По мне, так "Organic Hallucinosis" уступает своему предшественнику. Он менее разнообразен. Вокал заметно слабее (хотя, как я уже упоминал, он здорово подходит такой музыке). Слишком большой упор сделан на технику, а это не всегда есть гут, про сонграйтинг тоже не надо забывать. И с тем, что новый материал стал якобы более качёвым, я несогласен. Да и такое "модерновое" звучание я тоже не очень люблю, и к включению почти коровых фишек отношусь с небольшой симпатией. И хотя вполне вероятно, что данное творение Decapitated сможет привлечь новых поклонников, давайте всё-таки Decapitated отдельно и&nbsp;Meshuggah отдельно. Ни в коем случае не хочу сказать, что альбом получился плохим или средним, совсем нет. У него очень много плюсов, но просто кому-то по душе более современное звучание, а кому-то больше нравится старая школа. В данном конкретном случае я отношу себя ко вторым. Не знаю, стоит ли теперь говорить о своеобразном соревновании Vader - Decapitated, ибо последние перешли как бы в иную весовую категорию. Долго ли они там продержатся и продержатся ли вообще - покажет время. Я не удивлюсь, если на следующем альбоме (который, по идее, должен теперь выйти опять-таки через два года) Decapitated предложат нам совсем иную музыку.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 26.09.2007 news DECAPITATED собираются к нам
+
+<P><IMG height=303 alt="" hspace=0 src="/images/news_rus/2007.09/11895.jpg" width=400 align=left border=5>Польский <STRONG>DECAPITATED</STRONG> готовится к своему первому Восточно-Европейскому туру в октябре 2007. Впервые группа появится на площадках России, Беларуси, а также Прибалтики со своим высококачественным death metal, который покорил уже весь мир. За последний год группа успела побывать с многочисленными турами в США, Австралии и Южной Америке.<BR>Теперь <STRONG>DECAPITATED</STRONG> приедет и к нам. Саппортировать группе будут их земляки из <STRONG>CRIONICS</STRONG>, недавно выпустившие новый альбом на великобританском <STRONG>Candlelight</STRONG>.</P>
+<P>Extreme Hallucinosis Eastern Tour 2007<BR>DECAPITATED + CRIONICS<BR>18.10 - Калининград (Россия) "Tower"<BR>19.10 - Вильнюс (Литва) "Mulen Ruzas"<BR>20.10 - Рига (Латвия) "Melna Piektdiena"<BR>21.10 - Санкт-Петербург (Россия) "Орландина"<BR>23.10 - Ярославль (Россия) "Партизан"<BR>24.10 - Воронеж (Россия) "Сити"<BR>25.10 - Ростов-на-Дону (Россия) "Подземка"<BR>26.10 - Краснодар (Россия) "Орбита"<BR>27.10 - Москва (Россия) "Plan B"<BR>28.10 - Рязань (Россия) "Планетарий"<BR>30.10 - Гомель (Беларусь) "ГЦК"</P>
+<P>более подробная информация и тур постер на <A href="http://www.theflamingarts.org/">www.theflamingarts.org</A></P>
+Автор: Vit Belov
+
+### 30.09.2007 news Российский тур DECAPITATED и CRIONICS
+
+<BR>
+<CENTER><IMG height=341 src="/images/shows_rus/2007.10/11928.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 30.10.2007 news DECAPITATED и CRIONICS попали в аварию
+
+<P>На пути в Гомель, во время тура<STRONG> CRIONICS</STRONG> и <STRONG>DECAPITATED</STRONG> по СНГ, автобус с группами попал в аварию. По неподтверждённым данным, два участника <STRONG>DECAPITATED</STRONG> находятся в больнице в реанимационном отделении. </P>
+<P>Желаем музыкантам благополучного и скорейшего выздоровления.</P>
+Автор: Vit Belov
+
+### 31.10.2007 news Подробности о DECAPITATED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как выяснилось, серьёзно пострадали при столкновении автобуса&nbsp;с грузовиком, перевозившим лес,&nbsp;вокалист поляков <STRONG>DECAPITATED</STRONG>&nbsp;<STRONG>Covan</STRONG> (<STRONG>Adrian Kowanek) </STRONG>и&nbsp;барабанщик <STRONG>Vitek</STRONG> (<STRONG>Witold Kieltykaand).</STRONG> Музыкантов с серьёзными травмами головы уже перевезли в клинику в Москве, куда к ним уже выехали их родственники из Польши.</FONT></P>
+Автор: Vit Belov
+
+### 03.11.2007 news Vitek умер!
+
+<P>Барабанщик <STRONG>DECAPITATED Witold 'Vitek' Kieltyka</STRONG>&nbsp;скончался от травм головы, полученных во время ДТП в России. Ему было всего 23. Музыкант также играл в <STRONG>DIES IRAE</STRONG>, <STRONG>PANZER X</STRONG>. </P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+### 21.11.2007 news Flaming Arts собирают деньги для Витека
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Белорусское агентство<STRONG> Flaming Arts</STRONG>, организатор тура<STRONG> DECAPITATED</STRONG> и<STRONG> CRIONICS</STRONG> по нашей стране, распространило следующее заявление:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Мы снова возобновляем работу после страшной аварии произошедшей с нами в туре с DECAPITATED и CRIONIS. Хотим выразить огромную благодарность всем тем, кто переживал и помогал нам. Мы никогда этого не забудем. Witold "Vitek" Kieltyka - наш брат и дорогой друг погиб в результате страшной аварии, которая произошла во время российского тура группы на трассе Брянск - Гомель. Он был&nbsp; одним из наиболее молодых и выдающихся барабанщиков на мировой metal сцене, кроме Decapitated игравший также в таких проектах, как Dies Irae и Panzer X. Мы будем всегда помнить его, как выдающегося человека. Скорбим с семьей и всеми друзьями. ВНИМАНИЕ!!! Для добрых людей, которые хотят помочь жене и маленькой дочери Витека в этой трудной ситуации, ниже приведены банковские данные, на которые можно сделать перевод любого размера. </EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Recipient's name: Anna Kieltyka<BR>Account number: 70 1050 1458 10 0000 2293 2551 01<BR>Bank swift code: INGBPLPW <BR>Bank name: ING Bank Slaski<BR>Bank address: Rynek 8, 38-400 Krosno, Poland</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Пожалуйста, добавляйте слово "Vitek" в назначении перевода.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Для помощи семье Covana, который находится сейчас в больнице используйте следующие данные:<BR>Recipient's name: Adrian Kowanek<BR>Account number: 05 1240 1431 1111 0000 0999 2870<BR>Bank swift code: PKOPPLPW<BR>Bank name: PEKAO I O. Krakow<BR>Bank address: Rynek Glowny 31, 31-010 Krakow, Poland<BR>Пожалуйста, добавляйте слово "Covan" в назначении перевода.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>КРОМЕ ТОГО, если у вас нет возможности высылать деньги посредством банка, тогда вы сможете выслать деньги на свой страх и риск хорошо спрятанными в заказном письме на адрес менеджмента группы в Восточной Европе. Все деньги будут незамедлительно переправлены жене Витека.<BR>Адрес для почтовых отправлений:<BR>Вадим Хомич, а/я 40, Брест 224023 РБ</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 23.11.2007 news Covan проперирован
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист<STRONG> DECAPITATED</STRONG> <STRONG>Adrian "Covan" Kowanek</STRONG>, попавший в аварию во время тура по России и Беларуси, продолжает восстановление. Его родные сообщили, что он был прооперирован в Кракове, и его состояние расценивается врачами, как "очень серьёзное, но стабильное".</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 07.01.2009 news Семья вокалиста DECAPITATED просит помощи
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По прошествии года после аварии на границе России и Беларуси, в которой погиб барабанщик <STRONG>DECAPITATED</STRONG>&nbsp; <STRONG>Witold "Vitek" Kieltyka, </STRONG>а певец этой же группы <STRONG>Adrian Kowanek</STRONG>&nbsp;получил серьёзные травмы и до сих пор проходит лечение, семья господина<STRONG> Kowanek</STRONG> просит помощи, из-за того, что медицинское обслуживание в Польше очень дорогое. Узнать подробности о пожертвованиях можно на <STRONG>MySpace</STRONG> страничке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/decapitated">http://www.myspace.com/decapitated</A></FONT></P>
+Автор: Vit Belov
+
+### 10.03.2009 news DECAPITATED продолжат
+
+<P>Гитарист <STRONG>DECAPITATED</STRONG>&nbsp;<STRONG>Waclaw "Vogg" Kieltyka, </STRONG>брат погибшего на наших дорогах в 2007 года&nbsp;барабанщика <STRONG>Witold "Vitek" Kieltyka, </STRONG>решил продолжить существование группы. Объявлено прослушивание для барабанщиков и вокалистов.</P>
+Автор: Vit Belov
+
+### 01.08.2009 news DECAPITATED взяли барабанщика
+
+<P>Австрийский музыкант <STRONG>Kerim "Krimh" Lechner </STRONG>заменил в составе поляков <STRONG>DECAPITATED</STRONG> погибшего на наших дорогах <STRONG>Witold "Vitek" Kieltyka.</STRONG></P>
+Автор: Vit Belov
+
+### 20.11.2009 news DECAPITATED назвали состав
+
+<P>Польская группа <STRONG>DECAPITATED</STRONG> объявила новый состав, который отправится в тур в феврале будущего года. Единственным оригинальным участником остался гитарист <STRONG>Waclaw "Vogg" Kieltyka</STRONG>. Вот список нового личного состава группы:</P>
+<P>* <B itxtvisited="1">Kerim "Krimh" Lechner</B> (THORNS OF IVY, TONE INTIMACY) - Drums<BR itxtvisited="1">* <B itxtvisited="1">Rafal Piotrowski</B> (KETHA, FORGOTTEN SOULS) - Vocals<BR itxtvisited="1">* <B itxtvisited="1">Filip "Heinrich" Halucha</B> (VESENIA, ROOTWATER, UNSUN, MASACHIST) - Bass</P>
+<P>Напомним, что во время тура по дорогам России и Беларуси в 2007 году&nbsp;<STRONG>DECAPITATED</STRONG> попали в дорожную аварию, в которой погиб барабанщик коллектива <STRONG>Witold "Vitek" Kieltyka. </STRONG>Также серьёзно пострадал вокалист поляков <STRONG>Adrian Kowanek.</STRONG></P>
+Автор: Vit Belov
+
+### 25.07.2010 news DECAPITATED на виниле
+
+<P>Два альбома<STRONG>&nbsp;"Winds Of Creation"</STRONG> (2000)&nbsp;и <STRONG>"Organic Hallucinosis"</STRONG> (2006) поляков <STRONG>DECAPITATED</STRONG> впервые&nbsp;увидели свет на виниле. Эти релизы являются частью компании лейбла <STRONG>Earache</STRONG>, которая носит название <STRONG>"First Time on Vinyl"</STRONG> ("Впервые на виниле") и в ходе которой, будут выпущены альбомы из каталога фирмы, прежде не выходившие в этом формате.</P>
+<P>Оба диска выйдут в нескольких цветовых вариантах и&nbsp;будут упакованы в deluxe gatefold конверт с двухсторонним постером-буклетом.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16950.jpg" width=400 height=429><U>Цветовые вариации и количество</U>:<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">"Winds Of Creation"</B>:<BR itxtvisited="1"><BR itxtvisited="1">100 - <STRONG>Fire & Brimstone<BR itxtvisited="1"></STRONG>200 - <STRONG>Tooth White</STRONG><BR itxtvisited="1">300 - <STRONG>Burning Red</STRONG><BR itxtvisited="1">900 - <STRONG>Black</STRONG><BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">"Organic Hallucinosis"</B>:<BR itxtvisited="1"><BR itxtvisited="1">100 - <STRONG>Crumbling Rust</STRONG><BR itxtvisited="1">200 - <STRONG>Stainless Grey<BR itxtvisited="1"></STRONG>300 - <STRONG>Organic Green<BR itxtvisited="1"></STRONG>900 - <STRONG>Black</STRONG><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 12.05.2011 news Обложка нового DECAPITATED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятый альбом <STRONG>DECAPITATED</STRONG> <STRONG>"Carnival Is Forever" </STRONG>выйдет в июле на Nuclear Blast. Обложку, нарисованную<STRONG> Lukasz Jaszak</STRONG>, можно посмотреть ниже. </FONT></P>
+<P><center><IMG height=475 src="/images/news_rus/2011.05/19441.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 29.06.2011 news Новая песня DECAPITATED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>DECAPITATED</STRONG> <STRONG>"Homo Sum" </STRONG>можно послушать ниже. Трек попадёт на новый альбом польской группы <STRONG>"Carnival Is Forever"</STRONG>, который выйдет этим летом на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Radio Gdansk Studio </STRONG>продюсером <STRONG>Wacek Kieltyka</STRONG> и инженером <STRONG>Arkadiusz "Malta" Malczewski</STRONG>. Сведение проделал <STRONG>Daniel Bergstrand</STRONG> (<B>BEHEMOTH</B>, <B>MESHUGGAH</B>, <B>DIMMU BORGIR</B>, <B>KEEP OF KALESSIN</B>, <B>DEFLESHED</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После аварии во время тура по России и Беларуси в<STRONG> DECAPITATED</STRONG> остался лишь один оригинальный участник <STRONG>Waclaw "Vogg" Kieltyka.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG><center><object height="81" width="100%"> <param name="movie" value="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18008526%3Fsecret_token%3Ds-CHAes&secret_url=true" /> <param name="allowscriptaccess" value="always" /> <embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18008526%3Fsecret_token%3Ds-CHAes&secret_url=true" type="application/x-shockwave-flash" width="100%"></embed> </object></P>
+Автор: Vit Belov
+
+### 29.06.2011 news Новая песня DECAPITATED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>DECAPITATED</STRONG> <STRONG>"Homo Sum" </STRONG>можно послушать ниже. Трек попадёт на новый альбом польской группы <STRONG>"Carnival Is Forever"</STRONG>, который выйдет этим летом на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Radio Gdansk Studio </STRONG>продюсером <STRONG>Wacek Kieltyka</STRONG> и инженером <STRONG>Arkadiusz "Malta" Malczewski</STRONG>. Сведение проделал <STRONG>Daniel Bergstrand</STRONG> (<B>BEHEMOTH</B>, <B>MESHUGGAH</B>, <B>DIMMU BORGIR</B>, <B>KEEP OF KALESSIN</B>, <B>DEFLESHED</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После аварии во время тура по России и Беларуси в<STRONG> DECAPITATED</STRONG> остался лишь один оригинальный участник <STRONG>Waclaw "Vogg" Kieltyka.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT height=81 width="80%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18008526%3Fsecret_token%3Ds-CHAes&secret_url=true"><PARAM NAME="allowscriptaccess" VALUE="always">
+   <embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18008526%3Fsecret_token%3Ds-CHAes&secret_url=true" type="application/x-shockwave-flash" width="100%"></embed> </OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.07.2011 reviews В аварии погиб DECAPITATED
+
+<P>В конце 90-х была очень известна польская группа DECAPITATED. Музыканты позиционировались лэйблом как самая молодая группа в death-metal. Эти ребята нарезали такую мощную и заводную музыку, что поклонники традиционного death-metal прониклись к ним тёплой и искренней любовью. К сожалению, история коллектива прервалась самым трагическим образом. Во время тура по нашей общей стране в 2007 году автобус с DECAPITATED угодил в ужасное ДТП на дороге под Гомелем. В результате аварии погиб барабанщик Vitek, а вокалист Covan, видимо, навсегда останется инвалидом. Казалось, что история DECAPITATED закончена, но…</P>
+<P>Гитарист Vogg возродил DECAPITATED в новом составе. Не все были рады этому его решению, но отказать оригинальному участнику группы вряд ли кто-то мог. Набрав состав, благо в Польше хватает квалифицированных музыкантов, Vogg подписал своё детище на Nuclear Blast. Новый альбом со странным названием “Carnival Is Forever” увидел свет несколько недель назад. Честно говоря, прослушав эту работу, я лишний раз убедился во мнении, что DECAPITATED не надо было возрождать. Vogg за это время сменил свои музыкальные ориентиры, теперь DECAPITATED адресованы поклонникам современного deathcore, а это немного не то, чего ожидали услышать все преданные поклонники польской группы. Среднетмповый и тягучий саунд, обилие атмосферных зарисовок, полное отсутствие энергичных и зажигательных death-metal номеров. Такое впечатление, что прослушиваешь новую работу SUICIDE SILENCE или даже OCEANO. DECAPITATED всегда были сильны несколько другой музыкой.</P>
+<P>В этом свете ещё более странным выглядит сохранение имени этим новообразованным коллективом. Видимо, нужно было придумывать что-то новое и покорять американского слушателя с большим шансом на успех, не разочаровывая старых поклонников.</P>
+Автор: Vit Belov
+
+### 28.03.2012 news DECAPITATED: клип на песню &quot;Pest&quot;.
+
+<P>Сайт&nbsp;<A href="http://www.metal-hammer.de/">www.Metal-Hammer.de</A> представляет новый клип польских death металлистов <STRONG>DECAPITATED</STRONG>&nbsp;на песню&nbsp;<STRONG>"Pest"</STRONG>.</P>
+<P>Видео было снято 10 февраля, фирмой <STRONG>Grupa 13</STRONG> (<STRONG>BEHEMOTH</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>SONATA ARCTICA</STRONG>). В качестве режиссёра выступил&nbsp;<STRONG>Dariusz Szermanowicz</STRONG>.</P>
+<P>&nbsp;</P>
+<CENTER>
+<OBJECT id=flashObj codeBase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0" classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000 width=486 height=412><PARAM NAME="_cx" VALUE="12858"><PARAM NAME="_cy" VALUE="10900"><PARAM NAME="FlashVars" VALUE="videoId=1519632522001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true"><PARAM NAME="Movie" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="Src" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE="http://admin.brightcove.com"><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="FFFFFF"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="0"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashVars="videoId=1519632522001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 28.04.2012 news Новое видео DECAPITATED
+
+<P>Новый клип поляков <STRONG>DECAPITATED </STRONG>на песню "<STRONG>Homo Sum</STRONG>" можно посмотреть ниже. Трек взят с альбома польской группы 2011 года выпуска "<STRONG>Carnival Is Forever</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/-KFObx3n2K0?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 04.07.2013 news DECAPITATED: видеоклип &quot;404&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Польские death metal маньяки <STRONG>DECAPITATED</STRONG>&nbsp;представили на обозрение свой новый видеоролик на трек <STRONG>"404"</STRONG>. Режиссёром этого концертного видео стал <STRONG>Anthony Dubois</STRONG> (<A href="http://www.anthonydubois.fr/">www.anthonydubois.fr</A>). Песня взята с альбома <STRONG>"Carnival Is Forever"</STRONG>, который был выпущен в июле 2011 года на лейбле <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P>Не так давно группа выпустила видео&nbsp;ещё и на однооимённый с альбомом трек. Посмотреть его можно по ссылке: <A href="http://youtu.be/m1Wpo8j1Ta0">http://youtu.be/m1Wpo8j1Ta0</A></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/UIIrygLDfGA?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 11.10.2014 news Новый клип DECAPITATED
+
+<P>Поляки<STRONG> DECAPITATED</STRONG> выложили в сеть новый клип на песню "<STRONG>Instinct</STRONG>". Трек взят с новейшего альбома коллектива "<STRONG>Blood mantra</STRONG>", который вышел на<STRONG> Nuclear Blast</STRONG> и Союзе.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/nPc2UamnwBI" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.05.2016 articles DECAPITATED, Москва, &quot;Volta&quot;, 06.05.2016
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2016.08/29757.jpg" width=300 height=422>После приезда Decapitated в Россию в 2007-м году по воле злого рока группа, согласно своему названию, практически была обезглавлена: в автокатастрофе погиб барабанщик и практически стал инвалидом вокалист… Под угрозой оказалось само существование талантливого коллектива, и перспективы снова увидеть их в нашей многострадальной стране были весьма туманны. Но всё-таки лидер группы гитарист Wac&#322;aw "Vogg" Kie&#322;tyka смог собрать новый состав и вывести Decapitated на новый уровень в творческом плане, записав два абсолютно убойнейших альбома Carnival Is Forever (2011) и Blood Mantra (2014). Именно их я считаю главными достижениями поляков на музыкальной ниве, этот материал, сотканный из различных стилистических течений, явил новое лицо группы и доказал, что эксперименты не всегда являются признаком творческого упадка, а развитие не всегда сопряжено с коммерциализацией. Хотя многие со мной не согласятся, но лично мне безумный и крайне оригинальный синтез «пантеровского» groove metal, вышедшего из него «мешуговского» math metal (уже, по сути, переименованного в djent) с традиционными польскими death metal-фишками, technical death-наворотами, а также вкраплениями классического thrash metal показался весьма удачным направлением и, к тому же, весьма перспективным.</P>
+<P>Так или иначе, мой энтузиазм по поводу приезда поляков, увы, разделило весьма скромное количество изъявивших прийти в тот празднично-майский день в клуб Volta. К моменту моего появления в клубе, который совпал с окончанием выступления питерцев Narada (весьма порадовавших меня своим дебютным альбомом!) и выходом на сцену cамарцев God Syndrome, клуб выглядел довольно пустынно – едва ли в нём присутствовало более ста человек… Но, правда, к выходу хедлайнеров народ, что называется, «подтянулся», но всё равно его численности едва ли хватило, чтобы заполнить зал на треть. Причины тому весьма ясны: праздники, традиционное пренебрежение к разогревающим коллективам и прочее. Что ж, если о перфомансе Narada я не могу сказать абсолютно ничего в силу отсутствия в данный момент «на месте», то God Syndrome произвели на меня хорошее впечатление – хотя самарцы позиционируют свою музыку как melodic death, стилистические рамки их значительно шире и не поддаются точной классификации. Скорее это всё-таки death metal, но со сложными, хорошо продуманными и относительно длинными композициями, интересными аранжировками и профессиональной подачей материала. </P>
+<P>Не удивительно, что группа и звучит в студии, и держится на сцене так уверенно – в её состав входят гитарист и барабанщик уже очень опытной команды Devilish Distance, удачно нарезающей мощный дэт польской школы в духе Vader! Их новое детище God Syndrome не столь брутально, но достаточно разнообразно по музыке, единственным минусом которой я бы назвал не самые хитовые вокальные партии. За плечами коллектива всего один полноформатный альбом, так что, есть все основания надеяться, что группа ещё раскроет свой творческий потенциал в будущем и запишет не один интересный диск. Также отмечу, что звук был не совсем разборчив, в результате чего многие примечательные детали музыки самарцев были размыты и недостаточно чётко прослушивались. Так или иначе, выступление God Syndrome было настолько же сильным, насколько и уместным на разогреве у Decapitated и, надеюсь, помогло им приобрести новых поклонников, порадовав уже имеющихся.</P>
+<P>С выходом хедлайнеров, как я уже сказал, немногочисленная, но преданная публика уже заняла места у сцены, чтобы лицезреть практически идеальное death metal-выступление! На мой взгляд, кроме звука, который просто мог бы быть чуть получше, хотя и обладал достаточной разборчивостью, других изъянов я просто не заметил: отдача публики была на самом высоком уровне, музыканты выкладывались на полную, техника исполнения не вызывала никаких претензий, а сетлист был просто идеальным. Опять же, это лишь моё сугубо личное мнение, но удовольствие, полученное на этом концерте, могло сравниться только с посещённым ранее в этом году трибьют-шоу Чаку Шульдинеру под маркой Death To All, которое тоже не был во всём идеальным, но принёсло массу положительных впечатлений, близких к чистому восторгу. Самым главным вопросом, который меня волновал перед концертом, это насколько чётко поляки смогут воплотить на сцене все детали своей филигранно сыгранной и отлично записанной музыки, продемонстрировав правильную подачу материала и, что называется, угар. Но всё было, что называется, без сучка и задоринки – звукоизвлечение было мощным и чистым, отрывистые риффы в духе покойного Даймбэга Даррелла звучали как надо, все паузы и акценты выдержаны безупречно, в общем, группа звучала и выглядела слаженной убойной death-машиной!</P>
+<P>Особо порадовал в плане угара вокалист Rafa&#322; Piotrowski, который не только хорошо справился с исполнением своих вокальных партий (причём, его голос живьём мне показался более олдовым, чем на студийных записях), но и отменно рубился, не стеснённый внушительной длиной своих дредов. Также, как и многие другие иностранные музыканты, он порадовал и знаниями русского языка, выдав не только традиционное «Спасибо», но даже сконструировав пару фраз посложнее – как ни крути, а наследие соцлагеря в этом смысле было ему в помощь. Самому юному участнику группы – драммеру Micha&#322; "M&#322;ody" &#321;ysejko всё же не удалось превзойти своего талантливого предшественника Kerim’a Lechner’ aka "Krimh", чьи партии он упрощал «под себя», но всё же и он порадовал взрывными бластбитами и не особо виртуозными, но зато собственными наработками. Ну, и «босс» Vogg, своим видом напоминавший слегка похудевшего гитариста Exodus/Slayer Gary Holt’a впечатлил как вышеупомянутой техникой, так и угаром. И хотя в концертном исполнении некоторые песни страдали из-за отсутствия второго гитариста, Vogg довольно легко переключался с чёткого отрывистого риффинга на соляки, местами производившими просто гипнотический эффект.</P>
+<P>Но главное, конечно, это сама музыка, которая должна была довести до всепоглощающего экстаза любого фаната (скорее позднего) Decapitated! Слегка монотонное начало «открывашки» с последнего альбома «Blood Mantra» под названием Exiled In Flesh именно в живом исполнении оказалось уместным в качестве разогрева публики для дальнейшего звукового напора – вслед за ней последовала термоядерная сверхскоростная The Blasphemous Psalm to the Dummy God Creation и далее заглавная вещь с последнего альбома Blood Mantra с грувово-пантеровскими риффами и угарной трэш-панковой концовкой, под которую наблюдался самый быстрый и подвижный сёрклпит за весь концерт. В сетлисте нашлось место и трём вещам с более ранних альбомов, записанных ещё в предыдущем составе, (из них две - с «Organic Hallucinations») но основным костяком, конечно, были два последних релиза, пестрящие разнообразием стилистических экзерсисов – тут вам и модерновые 404 и Veins (с абсолютно неожиданным развитием композиции и уходом в середине чуть ли не в funeral doom), и «математическая» Nest c цепляющими рваными ритмами, сложная «Carnival Is Forever» с двумя ярко-выраженными медитативными фрагментами, и, конечно, под конец мой фаворит – «Homo Sum» c того же альбома, с абсолютно потрясающими соло в середине, воскрешающими в памяти стиль гитариста Томаса Веттерли из славной швейцарской команды Coroner (времён альбома «Grin» 93-го года).</P>
+<P>Хотя сет не отличался рекордной продолжительностью, под конец выступления Decapitated я чувствовал тотальную ментальную капитуляцию и насыщение их музыкой в полной мере. И лишь не мог избавиться от ощущения некой досады, что такой феерически-мощный концерт посетило такое скромное количество людей&nbsp; – ведь, я уверен, даже приверженцы более раннего творчества поляков смогли бы оценить ураганную живую энергетику, которую несут концертные выступления Vogg&Co. В любом случае, вряд ли кто-то остался разочарован, потому что все козыри Decapitated были представлены в лучшем виде – тут вам и брутальность, и драйв, и нестандартные стилистические решения, которые я бы даже назвал прогрессивными, и оригинальность – тот путь, который группа выбрала во имя развития и исследования новых горизонтов, достижения новых творческих высот. Путь, который многих может и не устраивать, но всё же найдёт отклик среди тех, кто ценит креатив без коммерческих клише и поиск не ради упрощения и большей доступности для широких масс. Нет, это не деградация и не опопсение, что ценно – по крайней мере, таково моё скромное мнение, которое, надеюсь, разделяют все те счастливчики, которые оказались в клубе “Volta” в тот майский день.</P>
+<P>Setlist:</P>
+<P>Exiled in Flesh<BR>The Blasphemous Psalm to the Dummy God Creation<BR>Blood Mantra<BR>Post(?) Organic<BR>404<BR>Day 69<BR>Carnival is Forever<BR>Nest<BR>Veins<BR>Spheres of Madness<BR>Homo Sum</P>
+<P>Текст: Дмитрий Dimebag Дасов</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Earache Extreme Metal Racing

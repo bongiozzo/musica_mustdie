@@ -24,6 +24,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.2016 news Новая песня KEE MARCELLO
+
+<p>Новый сольный альбом бывшего участника <strong>EUROPE Kee Marcello "Scaling Up"</strong> выходит на<strong> Frontiers Records</strong>. Заглавную песню с альбома можно послушать в клипе ниже.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/6nMmLlkYjQ4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.08.2016 news New song by KEE MARCELLO
+
+New solo album of former<strong> EUROPE</strong> member <strong>Kee Marcello "Scaling Up"</strong> will be out on <strong>Frontiers Records</strong>. The title track from the album can be streamed in the clip below.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/6nMmLlkYjQ4" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

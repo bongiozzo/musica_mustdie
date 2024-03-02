@@ -186,6 +186,509 @@ Cover art & layout by Martin Schirenc
 * C группой "Hollenthon" 
 * C группой "Collapse 7" Mario Klausner
 
+## Публикации
+
+### 09.08.2001 news Pungent Stench записали новый альбом
+
+<p> Короли porno death metal недавно закончили запись своего нового альбома, который непременно должен привести в восторг поклонников экстремальной музыки. Альбом появится в начале ноября и, как рассчитывают музыканты Pungent Stench, вернёт группу к былому величию старых добрых времён. Кроме того, классические альбомы "Been Caught Buttering" и "Dirty Rhymes and Psychotic Beats" будут переизданы в заново сведённом виде в серии Nuclear Blast Classics.</p>
+
+Автор: Morsus
+
+### 09.08.2001 news Pungent Stench have recorded the new album
+
+<p> The kings of splatter and porno death metal have just finished the recording of their new album, which every fan of extreme music will be enthusiastic about. The album will appear at the beginning of November, when Pungent Stench will re-establish themselves to the heights of their glorious old times. Furthermore, the old classics "Been Caught Buttering" and "Dirty Rhymes and Psychotic Beats" will be available once again remastered in Nuclear Blast Classics series.</p>
+
+Автор: Morsus
+
+### 16.11.2001 news Wacken Festival...
+
+<p>Знаменитый "Wacken Festival" в следующем году будет проходить со 2-го по 3-е августа в Вакен (Германия). Уже заявлены следующие участники: <BR><BR> BLIND GUARDIAN <BR> RAVEN <BR> PUNGENT STENCH <BR> DIMPLE MINDS <BR> KREATOR <BR> DESTRUCTION <BR> J.B.O <BR> IN EXTREMO <BR> FALCONER <BR> AMON AMARTH</p>
+
+Автор: Yermola
+
+### 07.12.2001 news The unrivaled masters of the extreme grotesque....
+
+<p>The unrivaled masters of the extreme, grotesque, and controversial return with unprecedented musical vengeance and their unparalleled brand of dark humor. Masters of Moral - Servants of Sin was recorded in July 2001 and features 10 new tracks, including classics such as "Loot Shoot Electrocute," Rex Paedophilus," and "Suffer the Little Children to Come Unto Me." Look for this sick and twisted disc when it is released on January 22nd and be sure to check out the band's amazing <A HREF="http://www.pungentstench.net/ ">new website</A>.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news CENTURY MEDIA RECORDS Release Schedule...
+
+<p>January 22nd, 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> February 5th, 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> February 19th, 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence <BR><BR> March 5th, 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 07.12.2001 news Мастера Морали - Слуги Греха...
+
+<p>Мастера экстремального гротеска возвращаются с беспрецендентным материалом полным черного юмора. "Masters of Moral - Servants of Sin" был записан в июле 2001 и содержит 10 новых треков и классику, такую как: "Loot Shoot Electrocute," Rex Paedophilus," и "Suffer the Little Children to Come Unto Me." Ищите этот неординарный диск в магазинах начиная с 22-го января.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news График релизов Century Media Records ...
+
+<p>22-е января 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> 5-е февраля 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> 19-е февраля 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence<BR><BR> 5-е марта 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 16.01.2002 reviews Возвращение мастеров
+
+<p>Возвращение мастеров. Легендарные австрияки радующие нас своей музыкой и нецензурными текстами спустя семь лет собрались почти в оригинальном составе и совершенно неожиданно выпустили новый ударный материал. Злая и агрессивная музыка с изрядной долей мелодизма, смело и умело соединяющая в себе death metal в духе Benediction и Napalm Death и thrash-элементы от Slayer с искрометными соляками. Теперь они осмеивают религию и ее поборников с присущей им развязностью. Первый трэк альбома совершенно не впечатляет, но он быстро проходит и начинается второй трэк, который сразу приведет в восторг всех любителей реального и бодрого death metal. Положительные впечатления будут усиливаться при дальнейшем прослушивании, но преодолев некий рубеж, начнется их угасание, которое под конец альбома может создать неверную иллюзию однообразности прослушанного материала. Музыка Острого Зловония совершенно ничего не потеряла в своей тяжести и болезненности. Все та же авангардная музыка с кровавым черным юмором. Я никогда не был особо большим поклонником творчества группы, но она мне нравилась и вселяла уважение к себе. Я с удовольствием прослушал этот альбом, но если бы он не вышел, то я бы немного потерял. Но это мое субъективное мнение. Уверен, что многие со мной не согласятся. Вот именно им я и рекомендую прослушать это прекрасное творение.</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 18.03.2002 reviews Шутите, вам зачтется!
+
+<p>Этот диск создан исключительно для фанатов музыкального "железа". Все остальные возьмут коробочку, повертят ее в руках, да и поставят назад на полку. И совершенно правильно сделают. Классический death metal. Нет даже намека на мелодику или жесткость и напор американских адептов стиля. Просто ровный, ритмичный, жесткий и грохочущий death metal. <BR><BR> Альбом не войдет ни в список шедевров тяжелой музыки, ни даже в тройку лучших творений самих PUNGENT STENCH. Хотя и худшим не будет – альбом настолько ровный по качеству и звуку, что выделять отдельные песни не имеет смысла. Ничего не запоминается, но и ничего не раздражает. Ничего не надоедает, но и не заставляет биться сердце в предынфарктном экстазе. Просто death metal. Диск только для фэнов PUNGENT STENCH и «смерть-металла». Не больше и не меньше. Хотя, честно говоря, немного жаль – ранние хиты-"молотилки" австрийского трио настолько хороши, что хочется продолжения банкета. Но не на этот раз. <BR><BR> Единственное, что заставит вас вновь посмеяться, это буклет. Австрийские забияки и ненавистники церкви учредили собственную религию, что и проиллюстрировали на многочисленных фото, очень тонко подкалывающих католиков. Шутка удалась. Жаль только, музыка оказалась не столь выразительной и остроумной.</p>
+
+Автор: Tornado
+
+### 26.08.2002 articles Paedophile Rex: see you somewhere in Russia!
+
+<p>В настоящее время легенды австрийского bizzarre-death metal Pungent Stench продолжают свой европейский тур Holy Inquisition tour 2002. 9 сентября группа попадёт на просторы бывшего СССР. Расписание шоу Вы сможете найти в новостной секции, а мы в предверии концертов связались с Alex Stench и задали ему несколько вопросов, которые родились в умах постоянных пользователей нашего форума.<br> - Почему Вы не используете старую добрую sado-mazo-bizzarre-тематику в новых песнях?<br> - Мы меняли наши темы постоянно от записи к записи. К тому же мы начали свою деятельность после пятилетнего перерыва, поэтому пришло время как-то измениться.<br> - Что Вы думаете о современной death-black сцене?<br> - Да, технические стандарты на очень высоком уровне, продукция становится всё лучше и лучше, но с другой стороны слишком много групп звучит одинаково. Мне не хватает оригинальных групп!!! Плюс слишком много трэндов, всё равно, что в death, что в black-metal.<br> - Верите ли Вы в Бога? Любите ли детей?<br> - Конечно, я верю в Бога!!! Мы посылаем хвалу Господу и воспеваем наши песнопения любви и вере. Почитай тексты и ты поймёшь какого Бога восхваляем. И, конечно же, я люблю детей, возможно даже больше, чем другие люди, почему ты думаешь меня называют Paedophile Rex?!?! <br> - Есть ли какие-нибудь влияния на Вашу музыку со стороны австрийской культуры?<br> - Нет.<br> - Есть ли у Вас какие-нибудь проблемы, из-за дизайна ваших пластинок? <br> - Нет, какие проблемы? <br> - Где Вы живёте в Австрии? На каком диалекте разговариваете? <br> - Мы из столицы, Вены. Мы говорим на австрийском немецком, венский диалект. <br> - Делаете ли Вы в реальности что-нибудь из Ваших песен? <br> - Все тексты основаны на реальных событиях, особенно на новом альбоме!!!!! <br> - Какая Ваша песня самая скандальная? <br> - Какие скандальные песни? Никаких скандалов, только чистейшая любовь к Богу!!! <br> - Не могли бы Вы сообщить приблизительный трэк-лист Вашего шоу? <br> - Viva il Vaticano <br> Shrunken & mummified Bitch <br> For God your Soul.... <br> Blood Pus & Gastric Juice <br> True Life <br> Viva la Muerte <br> Extreme Deformity <br> Klyster Boogie <br> Rex Paedophilus <br> Splatterday Nightfever <br> Molecular Disembowlment <br> И многие другие, если люди захотят. <br> Надеюсь, увидеться во время тура, где-нибудь в России. <br></p>
+
+Автор: Vit Belov
+
+### 26.08.2002 articles Paedophile Rex: see you somewhere in Russia!
+
+<p>Now legends of Austrian bizzarre-death metal Pungent Stench continues the European Holy Inquisition tour 2002. September 9 group will get on open spaces of former USSR. The time-table of show you can find in news section, and we have contacted with Alex Stench in promotion of concerts and have asked to him some questions, which were born in minds of the constant users of our forum. <br> Q: Why don't you use in your newest songs old sado-mazo-bizzarre? <br> As you can see if you look over our existence we always changed somehow from record to record with our toppics. Plus we had a new fresh start after a 5 year break so it definately was time for something different. <br> Q: What do you think about modern death-black scene? <br> Well, the technical standard is very high, the productions are getting better & better but on the other side many bands sound too much the same! I miss bands which are different!!! Plus too much stuff is too trendy nowadays, doesnґt matter if death or balck metal. <br> Q: Do you trust in God? Do you love kids? <br> Of course I trust in God! We are sent to praise God and to spread our gospels of love and faith. Please read our lyrics than you know know which God we praise! And of course I love kids, more than other people probably, why do you think they call me Paedophile Rex?!?! <br> Q: Have you some influences from Austrian culture? <br> No, not at all! <br> Q: Have you some problems from design of your albums? <br> No, what problems? <br> Q: Where do you live in Austria and On What language dialect do you speak? <br> We are from Vienna the capitol. We speak german with an austrian viennese dialect. <br> Q: Did you do in reality something from your songs? <br> All lyrics are based on real happenings especially of the new record!!!! <br> Q: What song is most scandal? <br> No scandal, only pure love for God! <br> Q: Can you give Approximate track-list of your show for our web-zine? <br> Viva il Vaticano <br> Shrunken & mummified Bitch <br> For God your Soul.... <br> Blood Pus & Gastric Juice <br> True Life <br> Viva la Muerte <br> Extreme Deformity <br> Klyster Boogie <br> Rex Paedophilus <br> Splatterday Nightfever <br> Molecular Disembowlment <br> and some more if people want! <br> Ok, hope all was clear. I guess I see you s</p>
+
+Автор: Vit Belov
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Necroticism-Descanting The Insalubrious", 1991, Earache]<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 09.09.2002 news Инквизиция продолжается....
+
+<p>В воскресенье 15 сентября 2002 года в клубе "Свалка", к величайшему сожалению, концерт легендарной австрийской команды <A HREF="http://musica.mustdie.ru/ru/band/pungent_stench/">PUNGENT STENCH</A> <b> не состоится.</b> <BR> Тур отменён из-за болезни гитариста.<BR> ДЕНЬГИ ЗА БИЛЕТЫ НА PUNGENT STENCH БУДУТ ВОЗВРАЩАТЬСЯ В МЕСТАХ ИХ ПРИОБРЕТЕНИЯ</p>
+<p> В результате, вместо этого состоится концерт с участием некоторых российских команд, таких как <B>MERLIN, ETERNAL SICK </B>и др. Вас ждут множество конкурсов, игр и всевозможные сюрпризы. <BR> Начало концерта в 19:00 <BR> Билеты будут продаваться непосредственно перед концертом. Цена билета - 100 рублей.<BR> Адрес клуба: Профсоюзная ул., д. 27/1 <BR> Проезд: м. Профсоюзная, (1-ый вагон из центра), далее 5 минут пешком от центра.</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 13.09.2002 articles Концерты: расчитывайте на чистоплотность промоутера!
+
+<p>05.09.02: Мероприятие: концерт Dio <br> Дата проведения: 15 октября 2002 г.<br> Место проведения: Дворец Спорта «Лужники» <br> Начало концерта: 19:30 <br> Организатор: компания JSA, директор Александр Стрижак<br> 10.09.02: Как нам стало известно только что, в гастрольные планы группы ДИО (DIO) внесены изменения. <br> Агентство, представляющее интересы группы уведомило нас, что насыщенный график предстоящего азиатского тура не оставляет времени для ранее запланированного концерта 15 октября 2002г. в Москве. <br> Ронни Джеймс Дио и сопровождающие его музыканты, а также менеджмент ДИО выражают сожаление в связи с тем, что долгожданная встреча с российскими зрителями откладывается. <br> Нам ничего не остается, как присоединиться к этим словам и надеяться, что поклонники таланта Ронни Джеймса Дио запасутся терпением, чтобы дождаться приезда своего кумира. <br> Вот такие письма я получил с интервалом в пять дней от организаторов концерта. Ну, чего не бывает, вот только, складывается очень неприятная тенденция, практически ни один концерт в последнее время не прошёл без каких-либо накладок. Казалось бы, итог один: недовольные фэны, финансовые потери промоутеров, отмена и перенос концертов… Итог-то один, а вот все случаи очень разные.<br> Приведённый мною самый свежий пример с отменой-переносом концерта DIO самый простой. Облом пришёл на ранней стадии, билеты не успели поступить в продажу. К компании JSA претензий быть не может, ну кто, в конце концов знает, что на уме у менеджеров Ронни Джеймса Дио? Кто знал заранее о насыщенном графике азиатского турне или о том, где, вообще, находится Москва? Наверное, просто поставили концерт между Токио и Сеулом, короче не разобрались…<br> Ну, раз уж начали с хорошего, то помянем добрым словом (в который уж раз) Эджена Прайса. Уж сколько всего у него пообламывалось, но никто не сможет «кинуть в него камнем». Он попадал, и сильно попадал (вспомним Mayhem, Marduk, Pro-pain), но деньги за билеты и какие-то возмещения ущерба всегда присутствовали. Можно рассуждать о непрофессионализме, но в честности товарищу Аксёнову не откажешь.<br> Что ж, обратим свой взор на компанию GOST Music. Сказать по совести, они провели довольно много успешных акций в последнее время. Только, хочу сразу заметить, что нам надо избавляться от чисто «совковской» привычки благодарить всех за то, что они сделали… Благодарить мента, что не отправил в обезьянник, благодарить врача за то, что вылечил, а не угробил, благодарить учителя за то, что не ругается матом на уроках, благодарить промоутера за то, что организовал концерт. Нет, конечно же, должна быть некая благодарность, но не прощать же всё на свете. За 500 рублей, вполне можно рассчитывать на приятное времяпрепровождение. Вернёмся в начало лета – конец весны, когда Gost начали активную рекламную кампанию супер-проекта Long Love R’n’R. Скажу сразу, с нашим ресурсом общался некий Fingolfin, который в резкой форме потребовал всеобщей поддержки знакового события, что и было сделано. Меня же изначально мучили сомнения, сколько же нужно собрать народу на ВВЦ, чтобы окупить такую кучу звёзд. Одно проживание и питание для такой оравы. И ни билеты по 400 руб на открытую площадку, ни проплаты российских групп за участие не помогли бы GOST Music в этом занятии. Единственное на что можно было, по-моему, рассчитывать, это пиво на концерте, но до этого надо было ещё дойти. Первая отмена феста была навеяна погромами футбольных болельщиков, правда, не случись этого, скорее всего, сослались бы на разбушевавшихся нацистов и.т.п. Кстати, в этот же день на ВВЦ выступали гораздо более близкие к народу команды, например, Мистер Твистер. Кто-нибудь был на концерте этой заслуженной команды? Могу Вас уверить, пьют там и буянят почище нашего… А уж когда перетасовали состав, да ещё объявили, что билеты действительны, стало предельно ясно к чему контора клонит. Искренне жаль тех простачков, кто купили билеты в августе. Теперь же на сайте многоуважаемого промоутера нет ни слова о возврате билетов, по нашим данным, они вообще ещё не принимаются, зато есть реклама будущих концертов DORO, BLAZE, GRAVEDIGGER, BLIND GUARDIAN. Мы обратились за комментариями в компанию GOST MUSIC, но ответа так и не последовало. А теперь мой сугубо субъективный диагноз, организаторы рассчитывали на ураганную продажу билетов, но её не последовало (очень многие заплатят 400 рублей, чтобы тусоваться на жаре вдали от сцены?) ни после анонса, ни после первой отмены концерта. Финансов на возмещение издержек не хватает, вот и билеты принимать назад не спешат, скорее всего, попытаются дотянуть до новых концертов. Беда Gost Music в том, что невозможно сходу провести такое шоу, на неизвестной площадке на свежем воздухе и за такие деньги. Всё должно развиваться последовательно, вряд ли на Вакене в первый год было столько классных команд, а если и было, мы не в Германии живём. Возникает ещё один вопрос, моральной ответственности СМИ. Ведь там, в большинстве своём, работают опытные люди, которым наверняка стало понятно то, что стало понятно мне в середине августа. При этом я не снимаю ответственности и с нашего ресурса. Но есть и другие мнения, вот, например, что сказал мне Максим Былкин из компании Союз, которые очень активно всё это «добро» продвигали: «Отмена фестиваля - комплекс объективных и субъективных причин и поводов. То, что он отменился - прискорбно, однако ГОСТ обещал привезти артистов по отдельности в течение осени, так что об окончательной отмене говорить рано - просто работа приобретает другую форму. По поводу возврата денег за билеты - о задержках СОЮЗ несколько не в курсе, это вопрос к ГОСТАМ. Негативных мыслей нет - возникают отдельные рабочие вопросы, которые видоизменяются и решаются с каждым следующим сотрудничеством. Проблема - не первая, не ошибается тот, кто ничего не делает, да и не к лицу коллег "поливать грязью". Так что будем сотрудничать».<br> Но самая крутая история происходит на этой неделе. В настоящее время вовсю должен «греметь» по просторам нашей Родины тур Pungent Stench “Holy Inquisition 2002”. Вы будете плакать, но гитарист этой группы находится в больнице, и тур отменён. Организаторы же концерта в Москве сообщают, что не всё ещё потеряно. Выйдя из больницы, надо понимать, Мартин бросит всё, возьмёт в охапку своих друзей и кинется в Москву. Ну, в крайнем случае, послушаете в этот раз MERLIN, а билеты обязательно будут действительны на следующий концерт Pungent Stench, который состоится… А когда он состоится? Да неизвестно, когда он состоится. В клубе Свалка нам сообщили, что концерт по их данным состоится, и билеты расходятся хорошо. Ну, и Слава Богу…<br> Ходите люди на концерты, а главное заранее покупайте билеты, а то, как говорят, в этом-то наша проблема, что мало в предварительной продаже билетов продаётся. А главное, рассчитывайте на чистоплотность организатора.</p>
+
+Автор: Vit Belov
+
+### 28.07.2003 news PUNGENT STENCH берёт реванш!
+
+<p>Легендарные австрийские death/grind извращенцы PUNGENT STENCH доедут-таки в скором времени с концертами до наших земель. Гитарист/вокалист Мартин Ширенк окончательно оправился после своих хворей, и вся группа полна решимости и энтузиазма снова отправиться в СНГ. Вот, что по этому поводу говорит драммер PUNGENT STENCH Алекс Ванк aka Rector Stench: "После печальной отмены нашего тура год назад мы очень рады и горды снова иметь возможность посетить ваши страны и сыграть эти концерты! Ожидайте Pungent Stench в конце сентября - начале октября. Мы обещаем Вам классные шоу и хорошее время. До встречи, пишите нам и - Enjoy the Stench!"</p>
+<p> В данный момент уточняются окончательные даты тура. Подробности вскоре.</p>
+<p> Контакт с организаторами: eugen@moral-insanity.org</p>
+
+Автор: Dimas
+
+### 27.08.2003 news PUNGENT STENCH &#39;Holy Inquisition 2003 Tour&#39; по СНГ
+
+26.09.2003&nbsp; Брест - Зио Пепе<BR>27.09.2003&nbsp; Санкт-Петербург - Орландина<BR>28.09.2003&nbsp; Череповец - Инферно<BR>29.09.2003&nbsp; Ярославль - Партизан<BR>30.09.2003&nbsp; Москва - Релакс<BR>02.10.2003&nbsp; Самара - Манхэттен<BR>04.10.2003&nbsp; Томск - Диктатура<BR>05.10.2003&nbsp; Барнаул - Мельница<BR>07.10.2003&nbsp; Тула - Серп и Молот<BR>09.10.2003&nbsp; Киев - Утюги<BR>10.10.2003&nbsp; Винница - ГДИ "Заря"<BR>12.10.2003&nbsp; Минск - Реактор
+Автор: Vit Belov
+
+### 01.09.2003 news PUNGENT STENCH в Москве
+
+<P>30 сентября 2003 года&nbsp;в клубе «RELAX», Brutal DJ Productions представляет концерт легендарной австрийской команды</P>
+<P><B>PUNGENT STENCH</B></P>
+<P>Кроме того, в концерте примут участие группы:<IMG height=200 alt="" hspace=100 src="/images/news_rus/2003.09/4845.gif" width=284 align="right" border=0></P>
+<P>MERLIN<BR>ARCANE GRAIL<BR>MORGUES CHILD<BR>HATESTORM </P>
+<P>Начало концерта в 20:00 </P>
+<P>Стоимость билета: 500 руб., в предварительной продаже - 400 руб.<BR>Билеты продаются только в клубе "RELAX".</P>
+<P><BR>Адрес клуба: г. Москва, м. "Севастопольская" или "Каховская", Большая Юшуньская ул. 1а, гостиница "Севастополь", корпус 6<BR></P>
+Автор: Dimas
+
+### 10.09.2003 news Фестиваль тяжелого рока &quot;Corefest&quot;
+
+<P><U><IMG height=353 alt="" hspace=0 src="/images/shows_rus/2003.10/4907.jpg" width=250 align="right" border=0>Девятого октября 2003</U> года в киевском клубе <U>"Утюги"</U> пройдет фестиваль "Corefest". Данное мероприятие является преемником "Тhe Great Commandment Fest" и проводится с 1998 года. Хедлайнерами выступят родоначальники европейского gore metal - одного из самых скандальных направлений экстремальной музыки 90-х - "Pungent Stench". Первый "Corefest" представит элиту украинской тяжелой музыки - "Te Deum", "Inferno", "Conquest", "Борщ" . Кроме того, выступят и молодые группы из Украины, России и Беларуси. </P>
+<P>Впервые на Украине выступят <B>"Pungent Stench"</B>. Кроме того, на сцену поднимутся одни из лидеров украинской heavy metal сцены "Te Deum", а также трио "Борщ", среди участников которого - музыканты "ВВ" и "ТНМК". Неслучайно и появление команды "Conquest" в списке принимающих участие в фестивале групп. Это украинский прорыв года, в 2003 году альбом коллектива переиздавался в Бразилии крупным местным метал-лейблом "Megahard Records" и попал на 18-е место латиноамериканских метал-чартов. Выступят на фестивале и "Inferno" - патриархи украинского gothic metal. </P>
+<P>Также примут участие: BURIAL CRAPE (Киев); SUBMIND (Киев); Ambivialence (Львов)</P>
+<P>БИЛЕТЫ УЖЕ В ПРОДАЖЕ в м-не "CORE" ул.Златоустовская 30</P>
+<P>цена 20 гр.</P>
+Автор: Vit Belov
+
+### 18.09.2003 news GOREROTTED will tour Europe together with PUNGENT STENCH...
+
+On November 3rd Metal Blade Records Europe will release the second album from the European masters of gore, the almighty GOREROTTED! "Only Tools And Corpses" will be a total blast of infernal death detal mixed with grindcore and over-the-top lyrics. Be prepared for a metal tornado! <br><br>
+
+To support "Only Tools And Corpses", GOREROTTED will tour Europe together with PUNGENT STENCH. These are the confirmed dates:<br><br>
+
+19. November 2003 t.b.a. - t.b.a., Austria or Germany<br>
+20. November 2003 Rockfabrik - Ludwigsburg, Germany<br>
+21. November 2003 Forellenhof - Salzgitter, Germany<br>
+22. November 2003 Burgerweeshuis - Deventer, Holland<br>
+23. November 2003 Effenaar - Eindhoven, Holland<br>
+24. November 2003 The Electrowerkz - London, England<br>
+25. November 2003 Bahndamm - Wermelskirchen, Germany<br>
+26. November 2003 Marx - Hamburg, Germany<br>
+27. November 2003 Easy Schorre - Halle, Germany<br>
+28. November 2003 East Club - Bischofswerda, Germany<br>
+29. November 2003 Arena - Wien, Austria
+Автор: Yermola
+
+### 29.09.2003 news GOREROTTED закончили запись нового альбома
+
+3 ноября на <B>Metal Blade Records</B> cостоится релиз второго альбома грайндкорщиков <B>GOREROTTED "Only Tools And Corpses"</B>. Для поддержки материала нового альбома группа отправится в турне по Европе вместе с пресловутыми <B>PUNGENT STENCH</B>.
+Автор: Darkfall
+
+### 02.10.2003 articles Pungent Stench в Москве
+
+<P><I><B>30 сентября, в рамках своего тура </B></I><I><B>‘Holy Inquisition’ по странам бывшего СССР, Москву посетила австрийская группа PUNGENT STENCH. </B></I><I><B>Единственный концерт имел место в маленьком клубе “Релакс”.</B></I></P>
+<P><B>Музыка не для молодёжи</B></P>
+<P>Если кто не был в этом славном заведении, хочется описать его местоположение. Находится “Релакс” на четвёртом этаже гостиницы “Севастополь”, проживают в которой в основном приезжие из стран Средней Азии и из других неблагополучных районов арабского Востока. Вечером во вторник в потёмках, обходя сидящих на корточках и парапетах гостей столицы, небольшое количество металлистов пробиралось к дальнему корпусу гостиницы. Публика, посетившая этот концерт, отличалась от обычных завсегдатаев московских металл-клубов. Суровые мужики угрюмо заправлялись пивом, плюс не было, обычных для столичных сейшенов, групп молодёжи. Сразу создалось стойкое ощущение настороженности и угрюмости. Концерт начинался в 20-00, а ещё должны были выступить четыре разогревающих коллектива. Вечер обещал быть долгим.</P>
+<P><B>Редкие финансовые потоки, текущие против русла</B></P>
+<P>Если участие в программе группы MERLIN не могло вызвать каких-либо нареканий со стороны эстетствующих любителей экстремальной музыки, то первые три команды не являлись обязательным оформлением этого вечера рабочего дня. Усталые люди вряд ли пришли бы на концерт, если бы знали, что PUNGENT STENCH выйдут на сцену уже за полночь, а до этого всем придётся присутствовать на клубном концерте не очень высокого уровня. Частое использование малоквалифицированных команд на разогреве у зарубежных звёзд наводит на некоторые мысли. Я думаю, мы можем смело исключить возможность какого-либо творческого конкурса на право открытия подобных концертов. Остаются лишь две причины. Вероятно у Brutal DJ Production великолепные отношения со всеми подобными коллективами. И ладно бы какие-то локальные концерты, но ведь прослушивание всех друзей упомянутой организации вечером во вторник, лишь из-за того, что тебе обещают заезжих звёзд ночью? Признаться, это очень тяжело. Предлагаю, оставить в покое финансовые вопросы “зверского ди-джея”, обратимся к группам, которые стимулируют эту дружбу. Каждая из выступавших вчера банд могла бы с бОльшей пользой использовать этот вечер. Совершенно не обязательно отягощать слух и разум публики, когда можно обойтись аудиторией любой маленькой репетиционной базы. Глупо тратить последние средства на то, чтобы выступить перед 100 фэнами, которых от твоих запилов просто тошнит.</P>
+<P><B>Тур андеграундной команды по клубам СНГ</B> </P>
+<P>Хотелось бы, выразить свою благодарность организаторам тура в лице Евгения Бересневича. Подобные туры могли бы сильно помочь нашему развивающемуся металл-сообществу. Посмотреть в живую, не только “звёзд” мирового масштаба, но и группы среднего эшелона. Послушать, как можно звучать не только на сцене Горбушки, но и в клубных условиях, было бы полезно всем. Тем паче, что группа заедет в города, где не часто балуют зрителя подобными концертами. Воздержусь от восторженных эпитетов по поводу выступления австрияков. Перед нами выступила группа твёрдого европейского уровня, которая умудрилась завести скучающий полуспящий зал. И пускай понять их юмор молодому поколению, незнакомому с их творчеством, было бы сложно, есть вещи, которые объяснять не надо. Как я уже написал, много молодежи на концерте не было, поэтому большинство скромной аудитории оттягивалось по полной. После второй песни PUNGENT STENCH разделись до плавок, но после стрип-шоу IMPALED NAZARENE подобный перфоманс не смог удивить. После того как музыканты заголились, на сцену вылезла какая-то полупьяная девка (скорее всего из местных), и стала, вызывающе виляя бёдрами, стягивать трусы с гитариста, который не поддался на её поползновения, и скандального продолжения вечера не получилось. В своём интервью перед позже перенесённым туром Alex Stench сообщал о неких неожиданностях ждущих посетителей их шоу. Забавная кавер-версия какой-то попсовой Мамбы вряд ли претендовала на звание сюрприза. Бони Нем, например, умудряются подобные Мамбы в течение всего вечера исполнять. Порадовала подвыпившая вокалистка MERLIN, которая после исполнения вместе с группой одной из композиций, долго пыталась запихнуть микрофон на стойку обратной стороной. На этом все особенности выступления группы исчерпываются. Все немногочисленные персональные фанаты группы получили непередаваемое удовольствие, а просто любопытствующие рысцой побежали в сторону метро, успеть на которое, им видимо было не суждено.</P>
+Автор: Vit Belov
+
+### 14.05.2004 news PUNGENT STENCH покинул Mario Klausner
+
+<B>Mario Klausner</B> покинул <B>PUNGENT STENCH</B>, чтобы полностью сконцентрироваться на своей новой группе <B>COLLAPSE 7</B>, альбом которой "<B>In Deep Silence</B>" вышел 3 мая на <B>Napalm</B>. Mario продолжает выступать с <B>PUNGENT STENCH</B> до тех пор, пока группа не найдёт нового музыканта.
+Автор: Vit Belov
+
+### 08.11.2004 articles TOP-50 лицензионных дисков по продажам за октябрь 2004 года*
+
+<TABLE cellSpacing=0 cellPadding=0 width=700 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 213pt; mso-width-source: userset; mso-width-alt: 10386" width=284>
+<COL style="WIDTH: 216pt; mso-width-source: userset; mso-width-alt: 10532" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 213pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=284><STRONG><FONT face=Arial size=2>RAMMSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 216pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=288><STRONG><FONT face=Arial size=2>REISE REISE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>BMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>RHAPSODY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SYMPHONY OF ENCHANTED LANDS, PART II</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DARKTHRONE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SARDONIC WRATH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>STORMWARRIOR</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NORTHERN RAGE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>FEINSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THIRD WISH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PUNGENT STENCH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMPEAUTY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHAPE OF DESPAIR</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ILLUSION'S PLAY</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>9 (19)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THROES OF DAWN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DOWN BELOW</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SILENT WINGS:ETERNITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>11 (6)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHITE SKULL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE XIII SKULL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWALLOW THE SUN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE MOURNING NEVER CAME</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VICTOR SMOLSKI</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAJESTY AND PASSION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BENEATH THE SHINING WATER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (3)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAKE OF TEARS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>18 (27)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>19 (15)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>20 (17)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>OCEAN MACHINE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>22 (30)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B (2 CD +<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>slipcase)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHAMBER</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MILES AWAY - A PREMONITION OF SOLITUDE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PAIN OF SALVATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="BE "><FONT size=2><FONT face=Arial>BE<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SPASTIC INK</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INK COMPATIBLE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNLEASHED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWORN ALLEGIANCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HEART</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>JUPITER's DARLING</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>29 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA:GLUT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>31 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LACUNA COIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>COMALIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (7)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALTARIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIVINITY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (2)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SAXON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LIONHEART</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>34 (16)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>35 (11)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNHEILIG</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS 2 GEBOT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MONSTERS OF METAL</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE ULTIMATEL METAL COMPILATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (8)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>39 (43)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE + WISH I HAD AN ANGEL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANOREXIA NEVROSA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRUDENHAUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALAN PARSONS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>A VALID PATH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEAD SOUL TRIBE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE JANNUARY TREE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PHYSICIST</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>GRAVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIENDISH REGRESSION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AYREON</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRACONIAN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHERE LOVERS MOURN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOKEN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PUNCH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ESTAMPIE</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIGNUM</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (32)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>*по результатам продаж в магазине 'Metal&Progressive' в Рубине</P>
+Автор: Vit Belov
+
+### 01.02.2005 reviews Нет рук, нет ног - а что же есть?
+
+<P>Помните, совсем недавно я описывал обложку сплита Russian Maniaxxx? Ну да, ту самую, с голой девкой без ног. Так вот, обложечка&nbsp; та просто отдыхает по сравнению с буклетом нового творения австрийских маньяков Pungent Stench "Ampeauty" (как я понял, в названии альбома завуалированы слова "ампутация" и "красавица"). Весь буклет переполнен изображениями девушек без различных частей тела, а так же и самих музыкантов типа с протезами. Скажу честно - последний раз я слушал этот коллектив где-то в середине 90-х и особого впечатления он на меня не произвел. А вот новый релиз оказался местами довольно интересен. Начну с того, что я не смог стилистически классифицировать сие творение. Смесь дэта с вяжущим, тягучим блюзом, типа&nbsp; Вайлдовского Black Label Society, только жестче и тяжелее. Можно конечно условно попробовать назвать&nbsp; материал группы дэт-н-роллом, хотя это будет тоже не совсем верно. Вот этим - то альбом и подкупает: довольно странным симбиозом&nbsp; музыкальных направлений. Интересный эксперимент, в очередной раз доказывающий, что даже в довольно ограниченной рамками музыке можно ломать все стереотипы.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Fucker
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+### 18.08.2007 news PUNGENT STENCH распались
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист/гитарист<STRONG> PUNGENT STENCH Martin Schirenc</STRONG> сообщил через официальный сайт группы, что коллектив распался, из-за внутренних разногласий. Музыканты собираются выпустить свой "посмертный" альбом, который уже записан. Трэк-лист:</FONT></P>
+<P>01. <B>Opus Dei – Glorified Be Pain!</B><BR>02. <B>The King Of Smut</B><BR>03. <B>Devil's Work & Our Contribution</B><BR>04. <B>Aztec Holiday (Heartless In Tenochtitlan)</B><BR>05. <B>Planet Of The Dead</B><BR>06. <B>Persona Non Grata</B><BR>07. <B>Suicide Bombshell</B><BR>08. <B>Me, Gonzo</B><BR>09. <B>Brute</B><BR>10. <B>I Require Death Sentence (We Must Clean House!)</B></P>
+Автор: Vit Belov
+
+### 24.08.2007 news Alex Wank объясняет
+
+<P>Барабанщик<STRONG> PUNGENT STENCH Alex Wank</STRONG> выступил с заявлением, в котором объяснил причины распада группы.&nbsp;Главной причиной стали разногласия между ним и фронтмэном коллектива <STRONG>Martin Schirenc</STRONG>, ранее как раз и объявившем о развале коллектива. В своём довольно запальчивом&nbsp;сообщении<STRONG> Alex</STRONG> рассказал, кто всё это время держал<STRONG> PUNGENT STENCH</STRONG> на плаву (естественно он),&nbsp;и кто занимался всеми вопросами, связанными с группой. Естественно забесплатно!!! Попытавшись восстановить экономическую справедливость, <STRONG>Alex </STRONG>столкнулся с сопротивлениемя со стороны&nbsp;<STRONG>Martin</STRONG>,&nbsp;который не хотел отдавать часть выручки...</P>
+<P>Вот так и распадаются группы, просуществовавшие столько лет.</P>
+<P>Напомним, что из-за психического расстройства <STRONG>Martin</STRONG> как-то сорвался тур группы по России и СНГ. Он просто не пришёл к отправлявшемуся к нам автобусу.&nbsp;</P>
+Автор: Vit Belov
+
+### 29.08.2013 news Martin Schirenc собрал PUNGENT STENCH под новой вывеской
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Австрийский ансамбль <STRONG>PUNGENT STENCH</STRONG>, распавшийся в 2007 году (во второй раз)&nbsp;по причине разногласий между двумя оригинальными участниками, объявил о своей очередной реинкарнации!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На этот раз в состав группы вошли оригинальный вокалист, гитарист и композитор</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff> <STRONG>El Cochino</STRONG> (в миру <STRONG>Martin Schirenc</STRONG>), а также два новых участника -&nbsp;<STRONG>Danny Vacuum</STRONG> (<STRONG>GENOCIDE SS</STRONG>, <STRONG>THE ACCIDENTS</STRONG>) на басу и вокале и&nbsp;<STRONG>Mike G. Mayhem</STRONG> (<STRONG>HOLLENTHON</STRONG>, <STRONG>COLLAPSE 7</STRONG>)&nbsp;на барабанах.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дабы избежать различных конфликтов и судебных разбирательств в отношении использования оригинального имени “<STRONG>PUNGENT STENCH</STRONG>”, новообразование планирует выступать под вывеской: <STRONG>"THE CHURCH OF PUNGENT STENCH"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Фэны наконец-то получат то, о чём они спрашивали в течении долгого времени - сет-лист, состоящий из редких и даже&nbsp;никогда не исполнявшихся песен, таких как, треки с совместной пластинки 89&nbsp;года&nbsp;с <STRONG>DISHARMONIC ORCHESTRA</STRONG>, а так же, лучшие и&nbsp;убойные хиты с наших трёх первых альбомов!"</EM> - гласит пресс-релиз нового проекта.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютное выступление обновлённой группы состоится 13 декабря на голландском фестивале <STRONG>Eindhoven Metal Meeting</STRONG>.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26122.jpg" width=650 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### PUNGENT STENCH отменили тур

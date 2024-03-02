@@ -197,6 +197,63 @@ Recorded at Spin Recording Studios in Long Island City, New York
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.02.2008 reviews Музыка Смерти
+
+<P>"The Link" является переизданием второго полноформатника французской команды Gojira 2003-го года. Кстати, Gojira есть ничто иное, как аутентичное название японского монстра, известного нам под именем Godzilla (а раньше они так и назывались, между прочим). Понятное дело, что никакой легкой развлекаловки тут быть просто не может. К прослушиванию предлагается прогрессивный дэт-метал весьма высокой пробы, здесь и сбивки ритма а-ля Death, и математическое безумие от Meshuggah, и вязкие, как болото, композиции в духе&nbsp;Crowbar и Neurosis. Работающие в металлопрокатном цеху с 1996 года, французы Gojira не преподносят нам легкую пищу для ушей. Здесь нет ни безумного долбилова в духе Cannibal Corpse, ни крышесносящих скоростей, но есть зубодробительные риффы и всёсокрушающая, как удары отбойного молотка, ритмика. С каждой секундой своей музыки Gojira медленно, но верно вколачивают и вколачивают вас с землю, не уступая в мрачности тугого звукового полотна таким командам, как, например, Cult Of Luna. Пощады не будет и никакого выхода тоже. Это Музыка Смерти, где нет места даже для слабого лучика надежды, где гниль и сырость подземелья властвуют в своих страшных пещерах, это не пытки тела раскаленными докрасна щипцами - вам просто выворачивают наизнанку душу инструментами совсем иного рода. После прослушивания альбома "The Link" (который, кстати, выходит и в лимитированном издании с бонусным DVD) остается только одно - полное опустошение. Ваш взгляд тупо упирается в стену, не замечая более ничего вокруг. А стоило ли вообще жить в этом мире, вкрадывается подленький вопрос. - Да, стоило, - тут же возникает ответ, - хотя бы ради того, чтобы послушать это творение. Детям, беременным, сердечникам и прочим нежным созданиям настоятельно рекомендуется держаться подальше от этой пластинки...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 12.01.2009 news Новое видео GOJIRA
+
+<P><STRONG>GOJIRA</STRONG> выложили новое мультипликационное видео на песню <STRONG>"All The Tears"</STRONG>, снятое французским художником <STRONG>Jossie Malis. </STRONG>Барабанщик <STRONG>Mario Duplantier:</STRONG></P>
+<P>"<EM>Мы сами нашли Jossie, и этот художник нам очень подошёл. Он объединяет в своём творчестве&nbsp;разные стили, мы тоже пытаемся этим заниматься в своей музыке</EM>".</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=50053269">All The Tears</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=50053269,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=50053269,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.08.2009 news GOJIRA уйдут в отпуск
+
+<P>Гитарист/вокалист <STRONG>GOJIRA</STRONG> <STRONG>Joseph Duplantier </STRONG>сообщил, что в 2010 году группа возьмёт перерыв на полгода. </P>
+Автор: Vit Belov
+
+### 07.04.2010 news FEAR FACTORY и GOJIRA выступят с METALLICA
+
+<P>Как уже сообщалось, <STRONG>METALLICA</STRONG> дадут два концерта в Москве в спорткомплексе "Олимпийский" 24 и 25 апреля. Стало известно, что в качестве суппорта перед thrash-metal звёздами выступят <STRONG>FEAR FACTORY</STRONG> и <STRONG>GOJIRA</STRONG>. Такой же подарок ждёт посетителей концертов в Риге, Вильнюсе и Таллине.</P>
+Автор: Vit Belov
+
+### 18.04.2010 news Вулкан не остановит METALLICA!
+
+<P><STRONG>METALLICA</STRONG> и <STRONG>FEAR FACTORY</STRONG> всё-таки добрались до Риги из Осло, несмотря на отмену всех авиарейсов, связанную с извержением вулкана в Исландии. Более 50 человек обслуживающего персонала и сами музыканты проследовали на автобусах. Поездка заняла более 24 часов. Таким образом, концерты в Москве состоятся!!!</P>
+Автор: Vit Belov
+
+### 25.05.2012 news Новый клип GOJIRA
+
+<P>Новое видео французов<STRONG> GOJIRA</STRONG> на песню <STRONG>"L'Enfant Sauvage" </STRONG>можно посмотреть ниже. 26 июня на <STRONG>Roadrunner</STRONG> выйдет одноимённый новый альбом группы.</P>
+<P><center><object id="flashObj" width="480" height="270" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" codebase="http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0"><param name="movie" value="http://c.brightcove.com/services/viewer/federated_f9?isVid=1&isUI=1" /><param name="bgcolor" value="#FFFFFF" /><param name="flashVars" value="@videoPlayer=1645191885001&playerID=589143912001&playerKey=AQ~~,AAAAAyiIY-k~,nwbxG65xosVESevOQH-7LGuix-5N4jam&domain=embed&dynamicStreaming=true" /><param name="base" value="http://admin.brightcove.com" /><param name="seamlesstabbing" value="false" /><param name="allowFullScreen" value="true" /><param name="swLiveConnect" value="true" /><param name="allowScriptAccess" value="always" /><embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1&isUI=1" bgcolor="#FFFFFF" flashVars="@videoPlayer=1645191885001&playerID=589143912001&playerKey=AQ~~,AAAAAyiIY-k~,nwbxG65xosVESevOQH-7LGuix-5N4jam&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="480" height="270" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" allowScriptAccess="always" swLiveConnect="true" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></object> </P>
+Автор: Vit Belov
+
+### 26.03.2014 news Мультик от GOJIRA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>GOJIRA</STRONG> на песню <STRONG>'Born In Winter'</STRONG> можно увидеть ниже. Трек взят с альбома 2012 года выпуска "<STRONG>L’Enfant Sauvage</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="//www.youtube.com/embed/suG-c_i2fBQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 09.07.2016 news Новое видео GOJIRA
+
+<p><strong>GOJIRA</strong> опубликовали новый клип на песню "<strong>Low Lands</strong>". Трек взят с альбома "<strong>Magma</strong>", который вышел на Roadrunner и занял первое место в рок-чартах <strong>Billboard</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/7j03lu6SBR8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 09.07.2016 news New video of GOJIRA
+
+<p><strong>GOJIRA</strong> has released a new video for the song "<strong>Low Lands</strong>". The track is taken from the album "<strong>Magma</strong>", which was released on <strong>Roadrunner</strong> and took first place in the rock charts of<strong> Billboard</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/7j03lu6SBR8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

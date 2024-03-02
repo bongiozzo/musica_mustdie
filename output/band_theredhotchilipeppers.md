@@ -260,6 +260,42 @@ Chad Smith - Drums
 
 * C группой "Chickenfoot" Chad Smith
 
+## Публикации
+
+### 17.04.2002 news Красные Горячие Перцы придумали название альбома....
+
+<P>"RED HOT CHILI PEPPERS" выбрали название "By The Way" в качестве названия для своего нового альбома который должен в августе выйти на Warner Bros. Records. </P></>
+<P> </P></>
+<P>"Мы уже должны были закончить, но мы не сделали этого..." говорит фронтмен Anthony Kiedis. "Мы просто продолжаем. Я имею ввиду, что у нас уже достаточно материала чтобы закончить, но вместо этого мы продолжаем работать. Просто потому что мы не можем остановиться..." </P></>
+<P> </P></>
+<P>Мда-а-а. Отличный комментарий. Браво, Энтони! </P></>
+<P> </P></>
+
+Автор: Yermola
+
+### 17.04.2002 news RED HOT CHILI PEPPERS Set Album Title...
+
+<P>RED HOT CHILI PEPPERS have set By The Way as the title to their brand new album, which is tentatively due in August through Warner Bros. Records. </P></>
+<P> </P></>
+<P>“We could be [done], but we're not,” frontman Anthony Kiedis told MTV. “We just keep going. I mean, we have enough to be done and finished, but instead we just keep going further. Just because we don't stop. We can't stop.” </P></>
+<P> </P></>
+<P>Guitarist John Frusciante added: “It's much deeper, I would say, than the last record. There's a lot going on, I mean, [on] some songs. When it's the right thing, it's just the four of us playing, but there's a lot of overdubs and a lot of work has gone into the production of it.” </P></>
+
+Автор: Yermola
+
+### 18.07.2002 news Металл&#x2F;Хард Рок в Германских чартах Медиа Контрол...
+
+<p>Представляем вашему вниманию жанр Металл/Хард Рок в Германских Медиа Контрол чартах (топ 100) по состоянию на текущюю неделю: <BR><BR> 01. (новичок) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) B&Ouml;HSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> Число в скобках показывает позицию на прошлой неделе...</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart* for the week ending July 22nd (as reported by Rock Hard magazine): <BR><BR> 01. (new) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) BЦHSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Auswдrtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> * number in parenthesis indicates last week's chart position</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -100,6 +100,204 @@ Anders "Blakkheim" Nystrцm - Guitars, Vocals (backing)
 * C группой "Katatonia" Anders Nystrom
 * C группой "Diabolical Masquerade" Anders Nystrom
 
+## Публикации
+
+### 11.10.2001 news Bloodbath собираются записать полный альбом
+
+<p>Bloodbath, шведский звёздный проект в составе Mikael Еkerfeldt (Opeth), Jonas Renkse (Katatonia, October Tide), Anders Nystrom (Katatonia, Diabolical Masquerade) и Dan Swano (ex Edge Of Sanity), в ближайшем будущем собираются записать полноформатный CD. Выход альбома ожидается в следующем году.</p>
+
+Автор: Morsus
+
+### 11.10.2001 news Bloodbath will record a full-length album
+
+<p>Bloodbath, the Swedish project featuring Mikael Еkerfeldt (Opeth), Jonas Renkse (Katatonia, October Tide), Anders Nystrom (Katatonia, Diabolical Masquerade) and Dan Swano (ex Edge Of Sanity), will record a full-length CD in the near future. A 2002 release is expected.</p>
+
+Автор: Morsus
+
+### 25.03.2002 news Новый альбом BLOODBATH
+
+<p>DAN SWANO и его друзья из KATATONIA заперлись наглухо в студии, чтобы через некоторое время представить на всеобщий суд новое полнометражное творение своего брутального проекта BLOODBATH.</p>
+<P> Также в этом году ожидаются новые работы основных групп музыкантов. KATATONIA планирует выпуск своего нового творения к концу 2002 года, а летом 2002 года должен выйти новый альбом NIGHTINGALE (суперпроект DAN SWANO).</>
+
+Автор: Dimas
+
+### 28.03.2002 news BLOODBATH news
+
+<p>The BLOODBATH album "Ressurection Through Carnage" have been completed. Just the mixing left. It kicks ass...say no more!!!</p>
+
+Автор: Dimas
+
+### 28.03.2002 news Новый альбом BLOODBATH-II
+
+<p>Новый альбом BLOODBATH под названием "Ressurection Through Carnage" уже записан! Осталось только свести его. Это будет нечто!!!</p>
+
+Автор: Dimas
+
+### 01.06.2002 news Дебютный полноформатник Кровавой Бани
+
+<p>Из стана Дана Свано пришло сообщение, что allstars band Bloodbath только что завершила работу над своим первым полноформатным альбомом "Resurrection Through Carnage". Альбом содержит 10 зубодробильных песен в лучших традициях зубодробильного brutal death metal конца 80'ых. Названия некоторых трэков "So You Die", "Buried By The Dead", "Like Fire", "Bathe In Blood". Состав группы остался неизменным со времён миниальбома "Breeding Death", всё те же злобные шведы:<br> Mike Akerfeldt (Opeth) - Vocals<br> Anders Nystrom (Diabolical Masquerade, Katatonia) - Guitar<br> Jonas Renkse (Katatonia, ex-October Tide) - Bass<br> Dan Swano (Nightingale, ex- Edge Of Sanity) - Drums<br> Диск спродюссирован на "The Hellfactory" и на домашней студии Дана Свано "The Room". Графику для альбома создал <A HREF="http://www.seempieces.com/">Mr. Travis Smith</A>. Альбом выйдет в свет на Centurymedia до конца нынешнего года.</p>
+
+Автор: ZYKLON
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 05.09.2002 news График релизов CENTURY MEDIA RECORDS....
+
+<p>Сент. 3 NOCTURNAL RITES - Shadowland<BR> Сент. 3 …AND OCEANS - Cypher<BR> Сент. 3 INTO ETERNITY - Dead Or Dreaming<BR> Сент. 17 SHADOWS FALL - The Art of Balance<BR> Окт. 15 YAKUZA - Way of the Dead<BR> Окт. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Окт. 29 LACUNA COIL - Comalies<BR> Окт. 29 ROTTING CHRIST - Genesis<BR> Нояб. 12 ICED EARTH - Tribute To The Gods<BR> Нояб. 12 BLOODBATH - Resurrection Through Carnage<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news BLOODBATH are ready to dish out ...
+
+<p>After two years of listening to fans plea for a second serving, the history-conscious project and preservationist society that is BLOODBATH are ready to dish out exactly what the masses have asked for. Vocalist Mikael Еkerfeldt calls Resurrection Through Carnage "ten tracks of purest-form winterlike death metal." With Anders Nystrцm on guitars, Jonas Renske on bass, and Dan Swanц rounding out the line-up on drums, there will be no denying it when you hear it: this is blissfully savage album recalling the death metal glory days of old. <BR><BR> The tracklisting Resurrection Through Carnage, scheduled for release on November 12th, is as follows (extra credit to those who read the titles out loud with their death metal voice):<BR><BR> 01. Ways To The Grave<BR> 02. So You Die<BR> 03. Mass Strangulation<BR> 04. Death Delirium<BR> 05. Buried By The Dead<BR> 06. The Soulcollector<BR> 07. Bathe In Blood<BR> 08. Trail Of Insects<BR> 09. Like Fire<BR> 10. Cry My Name</p>
+
+Автор: Yermola
+
+### 06.09.2002 news Воскрешение через кровавую бойню...
+
+<p>После двух лет ожидания фэны BLOODBATH наконец-то, получат то чего хотели. Альбом "Resurrection Through Carnage" появится в продаже 12-го ноября. По словам вокалиста Майкла Аккерфельда: "...это десять треков настоящего зимнего дэс-металла...". Окончательный список песен: <BR><BR> 01. Ways To The Grave<BR> 02. So You Die<BR> 03. Mass Strangulation<BR> 04. Death Delirium<BR> 05. Buried By The Dead<BR> 06. The Soulcollector<BR> 07. Bathe In Blood<BR> 08. Trail Of Insects<BR> 09. Like Fire<BR> 10. Cry My Name</p>
+
+Автор: Yermola
+
+### 03.02.2003 reviews Готика? Дум? Прог? Чёрта с два!
+
+<p>Ставим эксперимент. <BR> Берём диск "Resurrection Through Carnage". Подходим к знакомому ценителю тяжмета. Спрашиваем: <BR> - Слышал?<BR> - Не-а, - доносится в ответ. <BR> Радостно потираем ручки, открываем буклет и зачитываем состав группы: Майк Акерфельдт (OPETH) – вокал, Андерс Нистром (KATATONIA) – гитара, Йонас Ренксе (KATATONIA) – бас-гитара, Дэн Свано – барабаны. <BR> Спрашиваем:<BR> - Уважаемый, что, думаешь, играют эти люди?<BR> - Гхм. Готику?<BR> - Нет. <BR> - Дум?<BR> - Нет.<BR> - Быть может… прог?<BR> - Нет. <BR> Повторяем эксперимент на ещё нескольких "ценителях". Правильно ответа так и не дожидаемся. А он, между тем, прост донельзя: BLOODBATH играют дэт. Брутальный, грязный дэт шведской школы. Нет, не надо плеваться. СМДМ'ом здесь и не пахнет. А под "дэтом шведской школы" подразумевается музыка в духе ранних EDGE OF SANITY, только куда прямолинейнее, грубее и жёстче. Звук явно не Фредмановский. Гитара Нистрома звучит так, словно парень решил не заморачиваться на тему "куда бы ещё пихнуть парочку интересных риффов", и плюнул на изобретательность вообще. Вместо этого – гитарное жужжание в худших традициях DISMEMBER. Удивительно, но факт: несмотря на наличие пресловутого "жужжания", альбом слушается практически на одном дыхании, а музыка, представленная на нём, достаточно интересна. Ей-богу, не ожидал, что подобный релиз может выйти на Century Media…</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 05.03.2004 news BLOODBATH начинают запись нового альбома
+
+<P><B>BLOODBATH</B> начинают запись нового альбома. В группе остались <B>Anders "Blakkheim" Nystr&#246;m</B> (<B>KATATONIA</B>, <B>DIABOLICAL MASQUERADE</B>, <B>BEWITCHED</B>), <B>Jonas Renkse</B> (<B>KATATONIA</B>, <B>OCTOBER TIDE</B>)&nbsp;и <B>Dan Swan&#246;</B> (<B>NIGHTINGALE</B>, <B>DAN SWAN&#214;</B>, <B>UNICORN</B>, <B>EDGE OF SANITY</B>, <B>INFESTDEAD</B>, <B>ODYSSEY</B>, <B>PAN-THY-MONIUM</B>). Парни ищут нового вокалиста, вместо <B>Mike Akerfeldt</B> [<B>OPETH</B>], а также нового барабанщика, так как Swano будет теперь играть на гитаре.</P>
+Автор: Vit Belov
+
+### 11.03.2004 news Новости из Швеции - одной строкой
+
+<P>Выход нового альбома <B>KATATONIA</B> запланирован на осень 2004 года.</P>
+<P>Реанимировавшиеся недавно <B>BLOODBATH</B> нашли нового вокалиста и нового ударника. Это известные в мире death metal личности, но их имена пока держатся в большом секрете. Запись нового альбома уже начата.</P>
+<P>Из-за занятости в <B>BLOODBATH</B>, <B>Blakkheim</B> и <B>Dan Swano</B> приостановили работу над новым альбомом <B>DIABOLICAL MASQUERADE</B>.</P>
+<P><B>AMON AMARTH</B> приступили к сочинению песен для нового альбома.</P>
+Автор: Dimas
+
+### 30.03.2004 news BLOODBATH укомплектован
+
+<P>Наконец-то стали известны имена новых вокалиста и ударника шведской death metal супергруппы <B>BLOODBATH</B>. Новым вокалистом стал <B>Peter Tagtgren</B> (<B>HYPOCRISY</B>, <B>PAIN</B>), а новым ударником <B>Martin "Axe" Axenrot</B> (<B>WITCHERY</B>, <B>SATANIC SLAUGHTER</B>, <B>NEPEHENZY</B> <B>CHAOS ORDER</B>). Напомню, что остальными участниками коллектива являются гитарист <B>Anders "Blakkheim" Nystrom</B> (<B>KATATONIA</B>, <B>DIABOLICAL MASQUERADE</B>, <B>BEWITCHED</B>), басист <B>Jonas Renske</B> (<B>KATATONIA</B>, <B>OCTOBER TIDE</B>)&nbsp;и гитарист <B>Dan Swano</B> (<B>NIGHTINGALE</B>, <B>DAN SWANO</B>, <B>UNICORN</B>, <B>EDGE OF SANITY</B>, <B>INFESTDEAD</B>, <B>ODYSSEY</B>, <B>PAN-THY-MONIUM</B>). Именно в таком составе и будет записан новый шедевр группы.</P>
+Автор: Dimas
+
+### 30.04.2004 news Bloodbath опубликовали трэк-лист
+
+<P><B>BLOODBATH</B> опубликовали трэк-лист своего второго альбома "<B>Nightmares Made Flesh"</B>, который выйдет на <B>CENTURY MEDIA</B>. Трэк-лист:</P>
+<P>01. <B>Outnumbering The Day</B> <BR>02. <B>Year Of The Cadaver Race</B> <BR>03. <B>Draped In Disease</B> <BR>04. <B>Cancer Of The Soul</B> <BR>05. <B>The Ascension</B> <BR>06. <B>Eaten</B> <BR>07. <B>Brave New Hell</B> <BR>08. <B>Stillborn Saviour</B> <BR>09. <B>Feeding The Undead</B> <BR>10. <B>Bastard Son Of God</B> <BR>11. <B>Soul Evisceration</B> <BR>12. <B>Blood Vortex</B> </P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 01.02.2005 news BLOODBATH выходят на арену
+
+<P>Если верить написаному на официальном сайте шведской супергруппы <STRONG>BLOODBATH</STRONG>, в состав которой входят такие монстры, как <B>Anders "Blackheim" Nystrom</B> (<B>KATATONIA</B>, <B>DIABOLICAL MASQUERADE</B>, <B>BEWITCHED</B>), <B>Peter Tagtgren</B> (<B>HYPOCRISY</B>, <B>PAIN</B>), <B>Jonas Renske</B> (<B>KATATONIA</B>, <B>OCTOBER TIDE</B>)&nbsp;и <B>Dan Swano</B> (<B>NIGHTINGALE</B>, <B>DAN SWANO</B>, <B>UNICORN</B>, <B>EDGE OF SANITY</B>, <B>INFESTDEAD</B>, <B>ODYSSEY</B>, <B>PAN-THY-MONIUM</B>), музыканты планируют свой концертный дебют в этом году на <B>Wacken Open Air</B>! Это будет крутой эксклюзив!<BR><BR></P>
+Автор: Dimas
+
+### 12.02.2005 reviews Памяти Квортона посвящается...
+
+<P>Второй полноформатник шведской all-stars band посвящён крёстному отцу black\death & viking metal, основателю легендарной группы BATHORY Квортону Сэтту, скончавшегося в прошлом году. R.I.P.</P>
+<P>Со времён дебютника состав претерпел незначительные изменения и теперь это вездес(с)ущий Дэн Свано (Edge Of Sanity, Nightingale, Second Sкy и т.д,и т.п.) на гитаре, барабанными палочками заправляет Мартин Аксенрот (Witchery,Satanic Slautgher), на басухе наяривает Йонас Ренксе (Katatonia), второй гитарой рулит Андерс Нистрём (Katatonia, Diabolical Masquerade), а место у микрофоной стойки,вместо выбывшего Майка Акерфелдта, занял никто иной, как Петька Тагтгрен. Хм... Ну-ну.</P>
+<P>Материал на "Nightmares Made Flesh" представляет собой шведский олд-скульный дэт-металл с налётом американовщины, донельзя примитивный, без какой-либо идеи и оригинальности. Собственно проект ради всего этого и мутился, если кто-то ещё не знает. Конечно, тандем Свано\Тагтгрен это уже интересно само по себе, но думаю, что именно тлетворное влияние последнего отразилось на конечном результате продукта. Дело в том, что призрак HYPOCRISY летает по всему альбому из песни в песню, чему также способствует вокал Петрухи и выкристализованный, по сравнению с дебютником, саунд. Ну как тут не вспомнить "лицемеров"! Кроме того альбом затянут и пару-тройку треков можно было выкинуть со спокойной душой.</P>
+<P>Но в конце-концов всё не так плохо. И среднестатистический металхэд, покупая этот диск, приобретает крепкий образец олд-скульного дэт-металла, сработанного настоящими знатоками своего дела. По-шведски.Качественно.</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">ФОНО</A>.</P>
+Автор: Graver
+
+### 16.02.2005 news BLOODBATH произвели обратную замену
+
+<P><STRONG>Peter Tagtgren</STRONG> покинул <STRONG>BLOODBATH</STRONG>, из-за конфликта графиков с его другими группами. Вокалистом группы во время ближайшего выступления на <STRONG>Wacken Open Air</STRONG> станет "возвращенец"<STRONG> Mikael Akerfeldt</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.02.2005 news BLOODBATH снимут концертное DVD
+
+<P>Как уже сообщалось, дебютным концертным выступлением для <STRONG>BLOODBATH</STRONG> станет участие в Wacken этого года. Кроме этого, концерт может стать последним в истгории группы, поэтому было решено отснять его для выпуска на DVD.</P>
+Автор: Vit Belov
+
+### 29.11.2006 news BLOODBATH переиздают миньон
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLOODBATH</STRONG> собственными силами переиздали миньон <STRONG>"Breeding Death", </STRONG>изданный в оригинале в 1999 году. Пластинка вышла с новым оформлением и двумя демо-бонусами. Диск можно заказть прямо у группы: <A href="http://bloodbath.biz/merch.html">http://bloodbath.biz/merch.html</A></FONT></P>
+Автор: Vit Belov
+
+### 29.03.2007 news BLOODBATH возвращаются к жизни
+
+<P><STRONG>BLOODBATH </STRONG>возвращаются к нам с новым мини-альбомом, который будет записан и реализован собственными силами группы. Интересно, что сообщается о новом составе группы, но имена участников пока не называются.</P>
+Автор: Vit Belov
+
+### 01.02.2008 news BLOODBATH выпустят новый миньон
+
+<P>Новый миньон <STRONG>BLOODBATH</STRONG> <STRONG>'Unblessing of Purity'</STRONG>&nbsp;выйдет в этом году. Примечательно, что после чехарды с певцами партии вокала на этой работе исполнил певец <STRONG>OPETH</STRONG> <STRONG>Mikael Ekerfeldt</STRONG>, который уже являлся членом этого коллектива на более ранних этапах его развития.&nbsp;</P>
+Автор: Vit Belov
+
+### 13.02.2008 news Миньон от BLOODBATH
+
+<P><IMG height=364 alt="" hspace=0 src="/images/news_rus/2008.02/12251.jpg" width=400 align=right border=5>Мы уже сообщали, что новый мини-альбом <STRONG>BLOODBATH</STRONG> <STRONG>"Unblessing The Purity"</STRONG> выходит 10 марта на<STRONG> Peaceville</STRONG>. Стал известен трэк-лист этой работы:</P>
+<P>01. <B>Blasting The Virginborn</B> (Music & Lyrics by Renkse)<BR>02. <B>Weak Aside</B> (Music & Lyrics by Nystr&#246;m)<BR>03. <B>Sick Salvation</B> (Music by Eriksson, Lyrics by Renkse)<BR>04. <B>Mouth Of Empty Praise</B> (Music by Eriksson/Renkse, lyrics by Renkse)</P>
+Автор: Vit Belov
+
+### 21.07.2008 news Трэк-лист нового BLOODBATH
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.07/12623.jpg" width=400 align=right border=5>BLOODBATH</STRONG> опубликовали обложку и трэк-лист нового альбома <STRONG>"The Fathomless Mastery", </STRONG>который выходит 6 октября на <STRONG>Peaceville</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">At The Behest Of Their Death</B><BR itxtvisited="1">02. <B itxtvisited="1">Mock The Cross</B><BR itxtvisited="1">03. <B itxtvisited="1">Iesous</B><BR itxtvisited="1">04. <B itxtvisited="1">Wretched Human Mirror</B><BR itxtvisited="1">05. <B itxtvisited="1">Treasonous</B><BR itxtvisited="1">06. <B itxtvisited="1">Devouring The Feeble</B><BR itxtvisited="1">07. <B itxtvisited="1">Hades Rising</B><BR itxtvisited="1">08. <B itxtvisited="1">Slaughtering The Will To Live</B><BR itxtvisited="1">09. <B itxtvisited="1">Earthrot</B><BR itxtvisited="1">10. <B itxtvisited="1">Process Of Disillumination</B><BR itxtvisited="1">11. <B itxtvisited="1">Drink From The Cup Of Heresy</B></P>
+Автор: Vit Belov
+
+### 03.12.2008 reviews Хватило только на три песни
+
+<P>BLOODBATH – death-metal хобби ведущих музыкантов KATATONIA и OPETH. Безусловно, шведов всегда тянет на брутальную и мелодичную музыку национального образца. Не стали исключением и эти уважаемые музыканты. В группе также участвовали в разное время Peter Tagtgren и Dan Swano, поэтому BLOODBATH можно считать и их забавой.</P>
+<P>Группа выпустила два полноформатных альбома несколько лет назад и вроде бы прекратила своё существование. Те работы были образцом старого доброго шведского death-metal с великолепным мясным звуком и точными простыми хит-мелодиями. По какой-то причине BLOODBATH возродились в прошлом году и анонсировали описываемый альбом. В принципе было уже ясно и на тех пластинках, что музыканты хотят сказать, третьей серии для понимания ситуации не требовалось. Понятно, что BLOODBATH не является основным проектом для его участников, и они собираются только дурака повалять, а основные творческие силы прикладывают в OPETH и KATATONIA. К сожалению, на этом они и прокололись. При всей своей перспективности “The Fathomless Mastery” оказался не самым сильным альбомом. Задора и идей у музыкантов хватило только на несколько первых вещей, а потом осталась простая и малоинтересная долба. Очень жаль</P>
+<P>Средний альбом, что можно считать провалом для BLOODBATH. Подобные группы оправдывают своё существование, только выдавая мегахитовый материал.</P>
+Автор: Vit Belov
+
+### 15.01.2009 news BLOODBATH сняли первый клип
+
+<P><STRONG>BLOODBATH </STRONG>закончили работу над своим первым официальным видео на песню "<STRONG>Hades Rising</STRONG>" с последнего альбома. Ролик был снят вместе с режисёром <STRONG>Owe Lingwall </STRONG>в пригороде Стокгольма. Нам обещают "много крови" и&nbsp;"настоящую грязь".</P>
+Автор: Vit Belov
+
+### 27.01.2009 reviews Будущее руководство по death metal
+
+<P>После выхода дебютника шведской дэтовой супергруппы Bloodbath "Resurrection Through Carnage" (2002) ваш покорный слуга, грешным делом, подумал, что это будет проект одного альбома, ибо когда в одном коллективе сталкиваются такие величины, как Микаэль Акерфельдт (Opeth)&nbsp;и Дэн Сванё, то жди беды, то бишь распада банды. И я оказался одновременно прав и неправ. Второй альбом уже записывался без Акерфельдта, его на вокале заменил никто иной как еще одна звезда шведской тяжелой сцены, "Петька" Тагтгрен, но позже Петер ушел, как, впрочем,&nbsp;и Сванё, а Микаэль вновь занял место у микрофонной стойки. Из первого состава Bloodbath остались гитарист Андерс Нистрём и басист Йонас Ренксе (оба Katatonia) - впрочем, они участвовали и в других проектах. Звёздный состав доукомплектован в настоящий момент барабанщиком Мартином Аксенротом (Opeth) и менее известным среди всей этой веселой компании гитаристом Пером Эрикссоном (ex-21 Lucifers, Genocrush Ferox). В итоге на третьем полноформатнике "Кровавой бани" под названием "The Fathomless Mastery" мы получаем 40 минут дэт-метала чистой воды, притом эти ребятки умудрились весьма гармонично смешать олдскульную классику шведской и американской школ, что-то типа Unleashed meets Malevolent Creation. Разумеется, ничего нового тут изобретено не было (да и не могло быть изобретено), но результат получился весьма и весьма впечатляющим. Наверное, никогда Акерфельдт не орал с такой злобой, да и остальная компания не подкачала. Это классический дэт-метал до такой степени, что по нему можно писать руководство, как играть и петь в этом стиле. Правда, плох он тем же, чем и хорош, то есть своей некой стандартностью, хотя вышеуказанная смесь двух школ может в данном случае выступать и как доказательство оригинальности - ну, таков уж этот стиль. Так что будущие звезды жанра могут совершенно спокойно брать "The Fathomless Mastery" за основу и бросаться в неспокойную пучину "смертельного метала". А уж удастся ли им выдать продукт качества Bloodbath, зависит исключительно и только от них самих.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 31.05.2009 news Новое видео BLOODBATH
+
+<P>Видеоклип <STRONG>BLOODBATH</STRONG> на песню "<STRONG>Hades Rising</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=300 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=4881940&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=4881940&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="300"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 25.06.2011 news Peaceville переиздадут последний альбом BLOODBATH
+
+<P><IMG height=320 alt="" hspace=0 src="/images/news_rus/2011.06/19719.jpg" width=320 align=right border=0>Альбом шведской all-star группы<STRONG> BLOODBATH "The Fathomless Mastery"</STRONG> будет переиздан<STRONG> Peaceville</STRONG> 28 июня. В качестве бонуса будут представлены четыре трека с миньона "<STRONG>Unblessing The Purity</STRONG>", который вышел в 2007 году. Трек-лист переиздания: </P>
+<P>1. <STRONG>At The Behest Of Their Death</STRONG><BR>2. <STRONG>Process Of Disillumination</STRONG><BR>3. <STRONG>Slaughtering The Will To Live</STRONG><BR>4. <STRONG>Mock The Cross</STRONG><BR>5. <STRONG>Treasonous<BR></STRONG>6. <STRONG>Iesous<BR></STRONG>7. <STRONG>Drink From The Cup Of Heresy<BR></STRONG>8. <STRONG>Devouring The Feeble</STRONG><BR>9. <STRONG>Earthrot<BR></STRONG>10. <STRONG>Hades Rising</STRONG><BR>11. <STRONG>Wretched Human Mirror</STRONG><BR>12. <STRONG>Blasting The Virginborn</STRONG><BR>13. <STRONG>Weak Aside</STRONG><BR>14. <STRONG>Sick Salvation</STRONG><BR>15. <STRONG>Mouth Of Empty Praise</STRONG></P>
+<P>В записи этого альбома принимали участие вокалист <STRONG>OPETH Mikael Akerfeldt</STRONG>, гитарист <STRONG>KATATONIA Anders Nystrom</STRONG>, басист той же <STRONG>KATATONIA Jonas Renkse</STRONG> и барабанщик <STRONG>OPETH Martin Axenrot</STRONG>. В России оригинальный альбом вышел на<STRONG> Союзе</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.09.2014 news BLOODBATH возвращаются с вокалистом PARADISE LOST
+
+<P>Четвёртый альбом шведской death-metal группы <STRONG>BLOODBATH "Grand Morbid Funeral"</STRONG> выходит 18 ноября на <STRONG>Peaceville</STRONG>. Проект был создан лидерами <STRONG>OPETH</STRONG> и <STRONG>KATATONIA</STRONG> для пропаганды классического шведского death-metal звучания. На новом альбоме к своим корням прильнёт вокалист <STRONG>PARADISE LOST Nick Holmes</STRONG>, ведь именно он является новым вокалистом BLOODBATH. Интересно, если он снова полюби рычать, чего он не помог своему гитаристу Greg Makintosh в VALLENFIRE?&nbsp;Трек-лист:</P>
+<P><STRONG>"Let The Stillborn Come To Me"<BR>"Total Death Exhumed"<BR>"Anne"<BR>"Church Of Vastitas"<BR>"Famine Of God`s Word"<BR>"Mental Abortion"<BR>"Beyond Cremation"<BR>"His Infernal Necropsy"<BR>"Unite In Pain"<BR>"My Torturer"<BR>"Grand Morbid Funeral"</STRONG></P>
+<P>Трек "Unite In Pain" слушаете здесь: <A href="https://soundcloud.com/peaceville/bloodbath-unite-in-pain-from-bloodbath-grand-morbid-funeral/s-NcU88">https://soundcloud.com/peaceville/bloodbath-unite-in-pain-from-bloodbath-grand-morbid-funeral/s-NcU88</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.09/27319.png" width=410 height=410></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

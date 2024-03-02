@@ -91,6 +91,53 @@ Recorded, mixed and mastered at Wing Studios.
 * C группой "Bloodbath" Jonas Renkse
 * C группой "Trees of Eternity" 
 
+## Публикации
+
+### 22.12.1999 reviews 
+
+<p>Второй альбом OCTOBER TIDE выдержан в том же духе, что и дебютный. Медленный депрессивный и мелодичный doom-death. Напомню, что в группе играют гитарист-вокалист и ударник из KATATONIA. Видимо им иногда хочется вспомнить былое и нарезать что-то в духе дебютного альбома KATATONIA (Кстати, их партнер по KATATONIA - Blackheim, делает это в DIABOLICAL MASQUERADE). В рамках их основной группы делать это несерьезно, учитывая их сегодняшнюю эволюцию. Вот и приходится создавать побочный проект. Надо признать, что делают они это не зря. Тем кому нравится тяжелая мрачная музыка останутся довольны материалом альбома.(8)</p>
+
+Автор: Dimas
+
+### 12.09.2006 news Peaceville переиздаст наследие KATATONIA
+
+<P>Нынешний лэйбл<STRONG> KATATONIA Peaceville</STRONG> приобрёл права на бэк-каталог <STRONG>KATATONIA</STRONG> и периздаст старые работы группы в формате Digi-pack с бонусами. Первенцем станет переиздание "<STRONG>Brave Murder Day</STRONG>", которое выйдет 23 октября. Также английский лэйбл купил права на альбомы сайд-проектов участников <STRONG>KATATONIA</STRONG>: <STRONG>DIABOLICAL MASQUERADE</STRONG> и <STRONG>OCTOBER TIDE</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.12.2007 news Дебют OCTOBER TIDE переиздадут
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Dan Swano</STRONG> в настоящее время работает в своей студии над ремастерингом дебютной работы<STRONG> OCTOBER TIDE</STRONG> <STRONG>"Rain Without End"</STRONG>. Альбом будет переиздан в 2008 году на <STRONG>Vic Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 24.03.2010 news OCTOBER TIDE на Candlelight
+
+<P>Реформированные <STRONG>OCTOBER TIDE</STRONG> заключили контракт с <STRONG>Candlelight,</STRONG> на котором выйдет и новый альбом и переиздание дебюта <STRONG>"Rain Without End"</STRONG>. В составе коллектива сейчас гитарист <STRONG>Fredrik Norrman </STRONG>из <STRONG>KATATONIA</STRONG>, вокалист <STRONG>Tobias Netzell </STRONG>и басист <STRONG>Robin Bergh.</STRONG></P>
+Автор: Vit Belov
+
+### 06.02.2012 news OCTOBER TIDE перетряхнули состав
+
+<P>Вокалист<STRONG> Tobias Netzell</STRONG> и басист <STRONG>Pierre Stam</STRONG> покинули <STRONG>OCTOBER TIDE</STRONG> по личным мотивам. Группа назвала имена новых музыкантов, на замену вышли <STRONG>Mattias Norrman (ex-KATATONIA)</STRONG> и <STRONG>Alexander Hogbom (VOLTURYON, SPASMODIC)</STRONG>.</P>
+<P>Группа займётся записью нового альбома летом и выпустит его до конца года.</P>
+<P><center><IMG height=300 src="/images/news_rus/2012.02/22952.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 12.04.2012 news OCTOBER TIDE на Pulverised
+
+<P><STRONG>OCTOBER TIDE</STRONG> заключили соглашения с <STRONG>Pulverised Records</STRONG>. Шведы войдут в студию<STRONG> Black Lounge</STRONG> с продюсером<STRONG> Jonas Kjellgren</STRONG> и запишут альбом, который выйдет в этом году. </P>
+<P><center><IMG height=317 src="/images/news_rus/2012.04/23466.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 17.06.2016 reviews OCTOBER TIDE давно не про KATATONIA
+
+<p>OCTOBER TIDE всегда были на слуху, как сайд-проект KATATONIA. Группа была образована в 1994 году вокалистом Jonas Renkse и гитаристом Fredrik Norrman. Выпустив в 90-е два очень хороших альбома дуэт распался. Возродившись в 2009 году, OCTOBER TIDE потеряли Jonas Renkse, который окончательно потерял интерес к тяжёлой музыке, зато Fredrik собрал полноценный состав из матёрых шведов из групп CENTINEX, IN MOURNING и THIS ENDING.</p><p>Новый альбом «Winged Waltz” уже третий после возрождения группы. Это дебют шведов для польского лэйбла Agonia Records, который собрал отличную шведскую компанию, включающую IN MOURNING и CENTINEX. OCTOBER TIDE выпустили великолепный альбом в жанре death doom metal. Медленный, печальный, очень тяжёлый и атмосферный. Великолепный вокал певца CENTINEX Alexander Hogbom, который ни капли не смягчает свой великолепный гроулинг. Просто идеальный альбом для всех поклонников классики 90-х годов.</p><p>OCTOBER TIDE уже давно не про KATATONIA. Новый альбом коллектива представляет собой самостоятельную величину. На нынешней бедной на большие имена death doom metal сцене OCTOBER TIDE имеют все шансы засиять.</p>
+Автор: Vit Belov
+
+### 17.06.2016 reviews OCTOBER TIDE is not about KATATONIA
+
+<p>OCTOBER TIDE were always on the ear, as a side-project of KATATONIA. The band was formed in 1994 by vocalist Jonas Renkse and guitarist Fredrik Norrman. Releasing in the ' 90s, two very good album, the Duo split up. Revived in 2009, OCTOBER TIDE lost Jonas Renkse, who eventually lost interest in heavy music, but Fredrik had amassed a full line-up of experienced Swedes from groups like CENTINEX, IN MOURNING and THIS ENDING.</p><p>New album "Winged Waltz" is the third after the revival of the group. This is the debut of the Swedes for the Polish label Agonia Records, who put together a great Swedish company that includes IN MOURNING and CENTINEX. OCTOBER TIDE released a great album in the genre of death doom metal. A slow, sad, very heavy and atmospheric. The gorgeous vocals of singer of CENTINEX Alexander Hogbom, which nothing softens his magnificent growling. Just a perfect album for all fans of the classics of the 90-ies.</p><p>OCTOBER TIDE is not about KATATONIA for a long time. The band's new album represents an independent value. At the current poor for great names death doom metal scene OCTOBER TIDE have a chance to shine.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### &quot;Родные&quot; и &quot;Лицензия&quot; October Tide

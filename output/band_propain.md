@@ -428,6 +428,190 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.04.1999 reviews 
+
+<p>Четвёртый альбом одной из самых агрессивных групп современного heavy. Альбом продолжает традиции этой команды. Трэш произошёл от панка, по крайней мере многие это утверждают. Так вот эта работа подтверждает этот тезис. Группа нарезает очень агрессивный и целеустремлённый панк-трэш нового поколения. 40 минут довольно коротких прямолинейных композиций (12 песен) с ёмкими названиями, типа "Time will Tell", "Love And War", "Burn" и.т.д. Думаю, этот альбом по звучанию и настрою можно поставить в один ряд с такими классиками жанра, как Slayer и Kreator. Хочется отметить отличный звук, который сделали гитарист Том Климчук и Эрик Клингер. Советую всем любителям aggresive-punk-thrash-metal ("стиль дело десятое").</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Iron Monkey заменили своего гитариста Джеймса Рашби на бывшего музыканта группы Acrimony, которая распалась, Стюарта О'Хара и отправились в тур по Европе вместе с Pro-Pain. Pro-Pain, кстати проедутся с концертами по странам бывшего СССР в начале июля (Беларусь, Россия, Литва, Латвия), возможно с ними поедут и Iron Monkey. По сообщению устроителей концертов в России компании MetalAgen, рассматриваются два варианта концерта в Москве 3 июля, либо он состоится в Горбушке, либо в Парке им. Горького совместно с фестивалем "Учитесь плавать". Также в Москве появятся Pissing Razors.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>Pro-Pain отменил концерты в России и обвиняет в этом принимающую сторону. В ближайшее время попробую обратиться с вопросами к Евгению Аксёнову из MetalAgen.</p>
+
+Автор: Vit Belov
+
+### 09.11.2000 reviews Новейшее творение американских ветеранов hardcore
+
+<p>Новейшее творение американских ветеранов hardcore. Эти четыре толстоватых и лысоватых бородача, между прочим, скоро отметят свое десятилетие. И подкрепляют они сей факт выпуском своего шестого альбома. Как всегда, в музыке и текстах группы - безумная ярость и необузданная агрессия. Жесткие цепляющие риффы, темп выше среднего и мощнейший вокал Billy Milano. Альтернативный thrash-metal с примесью angry. Техника извлечения звука и мастерство исполнения музыкантов на самом высшем уровне. Очень качественная запись. На мой взгляд, это лучшее творение группы. Честно говоря, до этого альбома я относился к этой группе с некоторой прохладцей. Особого энтузиазма их музыка у меня не вызывала. Но этот альбом заставил меня одуматься и отнестись к этим товарищам с большим уважением. Такая музыка не надоедает даже при многократном прослушивании. Попробуйте...</p>
+
+Автор: Dimas
+
+### 09.11.2000 reviews The newest creation of the American veterans hardcore
+
+<p>The newest creation of the American veterans hardcore. These four thick and bald beardeds, by the way, soon will note the decade. They also support this fact with release of the sixth album. As always, in music and texts of group - mad fury and unrestrained aggression. Rigid riffes, the rate is above the average also most powerful vocal by Billy Milano. Alternative thrash-metal with an impurity angry. Engineering of extraction of a sound and skill of performance of the musicians on the highest level. Very qualitative record. On my sight, this best creation of group. To tell the truth, up to this album I concerned to this group with some scepsis. The special enthusiasm their music at me did not cause. But this album has forced me to think again and to consider these comrades with the large respect. Such music not boring even at repeated listening. Try...</p>
+
+Автор: Dimas
+
+### 13.01.2001 reviews Лучшая музыка для мальчишника с пивом, выбитыми стеклами и скальпами недругов
+
+<p>Практически все песни одинаковы, как четыре лысо-бородатые головы участников группы. Но… Нью-йоркские музыканты на своем шестом альбоме прекратили все заигрывания с рэп-кором и поняли, что классический хардкор развивать бесполезно и бессмысленно – жанр ограниченный, но и самодостаточный. Разбить это правило смогли только Slayer, за что им вечная любовь и признание. А Pro-Pain менее талантливы, зато не менее агрессивны, напористы и бескомпромиссны. Что в хардкоре есть самое главное. К черту все новаторство, интриги, претензии — разбить всем морды в кровь, сорвать голос, разодрать пальцы о струны и пробить пол сцены безумными прыжками!!! Сырой убойный звук, хриплый крик, способный взять всего две ноты, но как!!! Безостановочный барабанщик, гитаристы с крепкими кулаками – чего еще надо-то?! Именно такие ребята, как Pro-Pain, способны заставить поверить весь мир – рок-н-ролл не просто жив, он еще вам нос свернет и девчонку уведет. В крови таких хулиганов рок существует вечно — выжать всего три аккорда и сыграть их так, словно все… Да нет не словно – действительно все остальной пох... Жизнь идет, есть адреналин, есть те, кому стоит набить морду, есть где купить пиво и, значит, есть ради чего жить. И поэтому стоит играть именно так: быстро и жестко. С минимумом мелодий и с максимумом околопанковского напора. А если вам надо настоящей разнообразной и красивой музыки – чешите скорее в консерваторию: никакие ингви мальмстины вам таковой не заменят. А вот такого мяса, как у Pro-Pain, стоит поискать. Так что у непревзойденных королей английского хардкора Exploited появились серьезные конкуренты. А у отцов-оснвателей хардкора американского Black Flag – достойные наследники. И это просто замечательно. Остается надеяться, что классический хардкор возвращается – и это не может не радовать. И панки, и металлисты, и просто анархисты получили новый повод к объединению для прыжков со сцены, безумного концертного слэма и гордости собственной исключительностью: Pro-Pain: Round 6.</p>
+
+Автор: Tornado
+
+### 12.12.2001 news Про- Боль...
+
+<p>"Pro-Pain" как никогда близки к завершению работы над альбомом "Shreds of Diginity". "Мы очень рады, что закончили эту запись" - говорит вокалист Gary Meskil. "Shreds of Diginity" - будет самым тяжелым нашим альбомом на сегодняшний день...". Трек-лист: <BR><BR> "Kill Or Be Killed" <BR> "Shreds Of Dignity" <BR> "24/7" <BR> "Down For The Cause" <BR> "Casualties Of War" <BR> "Walk Away" <BR> "No Way Out" <BR> "The Shape Of Things To Come" <BR> "Gone Fishin’" <BR> "Lock N’ Load" <BR> "Fuck Off And Die" <BR> "Justice Must Be Done." <BR><BR> В Северной Америке "Shreds of Diginity" выйдет через Spitfire Records в начале 2002 года. Вв Германии альбом напечатает Nuclear Blast Records.</p>
+
+Автор: Yermola
+
+### 12.12.2001 news Shreds of Diginity...
+
+<p>Pro-Pain are nearing completion on their forthcoming full-length album, Shreds of Diginity, for New York's Spitfire Records. "We are very pleased with the way the recording has turned out thus far," said vocalist/bassist Gary Meskil. "Shreds of Diginity will prove to be our heaviest and strongest effort to date. With regard to our touring plans: We will support our new record with a European Club Tour that will most likely run through March and April of next year. Also, be on the lookout for Pro-Pain at select Summer Open Air Festivals throughout Europe. A United States Tour should commence immediately following our initial Euro dates. That’s all for now. We would like to wish you all a happy holiday season, and we look forward to seeing you again in the new year!" <BR><BR> So for the album contains the following songtitles: "Kill Or Be Killed," "Shreds Of Dignity," "24/7," "Down For The Cause," "Casualties Of War," "Walk Away," "No Way Out," "The Shape Of Things To Come," "Gone Fishin’," "Lock N’ Load," "Fuck Off And Die" and "Justice Must Be Done." <BR><BR> Expect to see Shreds of Diginity out sometime in early 2002 on Spitfire Records in North America and Nuclear Blast Records in Germany.</p>
+
+Автор: Yermola
+
+### 22.10.2004 reviews Не лучшая пластинка PRO-PAIN
+
+<P><EM><STRONG>PRO-PAIN</STRONG> продолжают оставаться на одном определённом уровне. После странного альбома каверов, где группа исполнила сомнительные шлягеры своей молодости, оригиналы которых, в своей массе, не представляют интереса для современных слушателей, <STRONG>PRO-PAIN</STRONG> уже подготовили и новую пластинку.</EM></P>
+<P>Сразу скажу, что ничего нового на ‘<STRONG>Fistful Of Hate’</STRONG> поклонники группы не найдут. Стандартный для <STRONG>PRO-PAIN</STRONG> качовый thrash с хорошими мелодиями. Единственное, что хочется отметить, некоторое общее замедление материала, что сильно ударило по энергетическому заряду, который Вы можете получить. <STRONG>PRO-PAIN</STRONG> не хватает дикой злобы<STRONG> SOULFLY</STRONG>, например, или забоя классического thrash-metal. В последнее время выходит (в России) немного пластинок подобного рода, поэтому фэны стиля должны оценить этот альбом. В мастерстве же музыкантам <STRONG>PRO-PAIN</STRONG> нельзя было отказать никогда. Запись альбома под стать музыкальному материалу, чересчур мягкая. Все эти недостатки отсутствовали на старых пластинках группы, благо <STRONG>Irond</STRONG> их переиздал и каждый может сравнить.</P>
+<P>Далеко не лучший альбом группы, который всё равно позволяет <STRONG>PRO-PAIN</STRONG> безошибочно попадать в коллекции любителей стиля.</P>
+Автор: Vit Belov
+
+### 03.03.2005 news Новости от PRO-PAIN
+
+<P>Новый альбом <STRONG>PRO-PAIN "Prophets Of Doom"</STRONG> выйдет в июне в США. Также 19 апреля свет увидит первый&nbsp;для США&nbsp;DVD группы "<STRONG>Raw video</STRONG>", которое в Европе вышло 4 года назад.&nbsp;</P>
+<P>А пока группа отправляется в тур по США вместе с <STRONG>KREATOR</STRONG>, где заменит <STRONG>DEATH ANGEL</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 03.03.2005 news PRO-PAIN news
+
+<P>New album by <STRONG>PRO-PAIN "Prophets Of Doom"</STRONG> will be released on June 14 in USA. Also first DVD of the band "<STRONG>Raw Video</STRONG>" will be released April, 19.</P>
+<P>Other news: <STRONG>PRO-PAIN</STRONG> will head on US tour with <STRONG>KREATOR</STRONG>, replacing <STRONG>DEATH ANGEL</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.03.2005 news Новости от PRO-PAIN
+
+<P><STRONG>PRO-PAIN</STRONG>&nbsp;опубликовали трек-лист своего нового альбома под названием&nbsp;<STRONG>"Prophets Of Doom"</STRONG>, выход которого ожидается 14 июня 2005 года через <STRONG>Candlelight Records</STRONG>. В него войдут следующие вещи:<BR>1. <STRONG>Neocon<BR></STRONG>2. <STRONG>Un-American<BR></STRONG>3. <STRONG>Hate Marches On<BR></STRONG>4. <STRONG>One World Ain't Enough<BR></STRONG>5. <STRONG>Getting Over<BR></STRONG>6. <STRONG>Operation Blood For Oil<BR></STRONG>7. <STRONG>Torn<BR></STRONG>8. <STRONG>Death Toll Rises<BR></STRONG>9. <STRONG>The Prisoner<BR></STRONG>10. <STRONG>Days Of Shame</STRONG></P>
+Автор: Dimas
+
+### 28.07.2005 reviews Новый альбом PRO-PAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Что рассказывать о новом альбоме PRO-PAIN, никто не знает... "Prophets Of Doom", их новое творение, впишется в рамки, созданные группой, на все 100 процентов. Великолепный thrash-hardcore с остросоциальными текстами. Группа немного возвращается к hardcore, добавляет речетативы, да и музыка становится более качовой и менее угарной. Также хочется отметить слишком мягкий и отполированный звук для PRO-PAIN, который сделал Eric Klinger в своей собственной студии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В остальном, всё отлично. Глядя на картинки в буклете, живо представляешь себя на выступлении коллектива. Тебя "жмут в толпе", а на сцене "позируют" здоровенные накаченные мужики... Это я к чему? А к тому, что сие творчество не надо рассматривать под микроскопом. Здесь важен ритм... Здесь важен текст. "You're unamerican" (так и хочется добавить, йоу)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кстати, о текстах. В них жёсткой критике подвергается нынешний режим в США. Критикуются войны, жертвы и всё такое. Интересно, а есть у нас в России тяжёлые группы, способные на подобную критику? Рассказать, например, про войну в Чечне, про третий президентский срок или, возможно, про всеобщую воинскую повинность.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Prophets Of Doom" - отличный подарок всем любителям PRO-PAIN, группы которая уже оставила значительный след на мировой metal-сцене.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></FONT><FONT size=+0><BR></P></FONT>
+Автор: Vit Belov
+
+### 26.01.2006 news PRO-PAIN вновь пишут материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>PRO-PAIN</STRONG> пишут материал для нового альбома, который выйдет уже до конца года.</FONT></P>
+Автор: Vit Belov
+
+### 03.05.2007 news Новости киевского Extreme Power Fest
+
+<P>Датчане <STRONG>HATESPHERE</STRONG> и <STRONG>ILLDISPOSED</STRONG>, a также <STRONG>PRO-PAIN</STRONG> из США стали первыми участниками подтвердившими свое участие на<STRONG> EXTREME POWER Open</STRONG> Air, который состоится 15-го сентября этого года в Киеве и станет логическим продолжением недавно прогремевшего в стенах Киевского "Дворца Спорта" первой части фестиваля. В этот раз орагнизаторы пригласят еще больше именитых команд со всего мира и при этом сделают фестиваль доступным для всех металхэдов СНГ! Место встречи Киев, 15 сентября!!!&nbsp;&nbsp; <BR><A href="http://www.extremepowerfestival.com/">http://www.extremepowerfestival.com</A>&nbsp; </P>
+Автор: Vit Belov
+
+### 04.08.2007 news PRO-PAIN поменяли гитариста
+
+<P>Гитарист <STRONG>Eric Klinger</STRONG> покинул <STRONG>PRO-PAIN</STRONG>. <STRONG>Marshall Stephens</STRONG> стал новым музыкантом группы, он играл в одной группе с нынешним барабанщиком <STRONG>PRO-PAIN JC</STRONG> <STRONG>Dwyer</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 09.08.2007 news Extreme Power Metal Fest отменён
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фестиваль <STRONG>Extreme Power Metal</STRONG> в Киеве, намеченный на 15 сентя</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>бря, отменён. Напомним, там должны были выступить <STRONG>KREATOR, PRO-PAIN</STRONG> и др. Организаторы объяснили этот факт назначенными на 30 сентября выборами в Верховную Раду Украины. Из-за политического кризиса на Украине, организаторы не смогли получить разрешающие документы от проверяющих организаций. "<EM>Все заняты выборами, ни у кого нет времени подписать эти документы</EM>", - жалуются промоутеры. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Организаторы планируют провести фест весной 2008 года. </FONT></P>
+Автор: Vit Belov
+
+### 28.06.2008 news Новый альбом PRO-PAIN
+
+<P>Новый альбом <STRONG>PRO-PAIN</STRONG> <STRONG>"No End In Sight" </STRONG>выходит 22 августа на <STRONG>Soulfood</STRONG>/<STRONG>Rawhead, Inc. </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Let The Blood Run Through The Streets</B><BR itxtvisited="1">02. <B itxtvisited="1">Halo</B><BR itxtvisited="1">03. <B itxtvisited="1">Hour Of The Time</B> (feat. Stephan Weidner)<BR itxtvisited="1">04. <B itxtvisited="1">To Never Return</B><BR itxtvisited="1">05. <B itxtvisited="1">Where We Stand</B><BR itxtvisited="1">06. <B itxtvisited="1">Phoenix Rising</B> (feat. Rob Barrett)<BR itxtvisited="1">07. <B itxtvisited="1">Go It Alone</B><BR itxtvisited="1">08. <B itxtvisited="1">All Rise</B><BR itxtvisited="1">09. <B itxtvisited="1">God's Will</B><BR itxtvisited="1">10. <B itxtvisited="1">The Fight Goes On</B><BR itxtvisited="1">11. <B itxtvisited="1">Where We Stand</B> (Ream Mix) (Bonus Track) </P>
+Автор: Vit Belov
+
+### 01.12.2008 reviews PRO-PAIN удивили. Возможно, в первый раз…
+
+<P>Хотя с первого взгляда американская hardcore команда PRO-PAIN и производит впечатление топчущегося на месте человека, это не так. Болтаясь в рамках одного стиля, группе удаётся выпускать разные по настроению и даже по звучанию альбомы. То их заносит в речитативы, то в жесточайший thrash-metal. На мой вкус именно thrash-metal альбомы PRO-PAIN составляют их самый ценный багаж. В этот раз с новым альбомом “No End In Sight” группа, кажется, выпрыгнула за пределы своего стиля.</P>
+<P>Эта пластинка представляет нам совершенно новый PRO-PAIN. Возможно, где-то в дебрях их дискографии и можно отыскать некоторые песни, похожие на то, что вы услышите здесь, но такого мелодичного альбома в целом у группы точно не было. Что хотели сказать этим музыканты, не знаю, но некоторые поклонники точно будут разочарованы. Пожалуй, только первая вещь отвечает высоким стандартам hardcore. Дальше начинаются: чистый мелодичный вокал, punk-rock мелодии, даже скриминг откуда-то появился в одном трэке. Вот именно этот скриминг и натолкнул меня на мысль, уж не пытаются ли PRO-PAIN «влупить» модный нынче metalcore. Если это так, они будут разочарованы приёмом публики. На metalcore это ни капли не похоже. Это похоже на не самый худший мелодичный альтернативный панк с редкими вкраплениями hardcore. При всё при том, пластинка производит неплохое впечатление. Это, конечно, не тот PRO-PAIN, который мы любим, но интересные моменты отыскать на “No End In Sight” возможно.</P>
+<P>Поклонники hardcore будут разочарованы, но любители тяжёлой музыки, как искусства, возможно, отыщут здесь интересные моменты. В любом случае подобные стилевые катаклизмы на старости лет не пойдут на пользу в коммерческом плане ни одной команде.</P>
+Автор: Vit Belov
+
+### 24.03.2010 news Новый альбом PRO-PAIN
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2010.03/16460.jpg" width=300 align=right border=5>Новый альбом <STRONG>PRO-PAIN</STRONG> <STRONG>"Absolute Power" </STRONG>выходит 7 мая. Трэк-лист:</P>
+<P>01. <B>Unrestrained</B><BR>02. <B>Destroy The Enemy</B><BR>03. <B>Stand My Ground</B> (feat. Schmier of DESTRUCTION)<BR>04. <B>Road To Nowhere</B><BR>05. <B>AWOL</B><BR>06. <B>Hell On Earth</B><BR>07. <B>Divided We Stand</B><BR>08. <B>Gone Rogue (I Apologize)</B><BR>09. <B>Rise Of The Antichrist</B><BR>10. <B>Hate Coalition</B></P>
+Автор: Vit Belov
+
+### 05.08.2010 reviews PRO-PAIN перестали стонать
+
+<P>Американскую группу PRO-PAIN сейчас вполне заслуженно относят к живым легендам hardcore. Во-первых, не так много групп осталось в живых за прошедшие годы с момента расцвета стиля. Во-вторых, выпуская свой тринадцатый альбом, коллектив остаётся верен, в той или иной степени, своим старым идеалам.</P>
+<P>Наибольшую пробоину эти самые идеалы получили на прошлом альбоме 2008 года “No End In Sight”. Музыканты решили слегка отвлечься и добавить в собственную музыку немного чего-то такого, чего от них никто не ждал. Чистый вокал и клавишные. Слышать это было достаточно противно. Дело не в том, что я упёртый поклонник hardcore, просто такие группы как PRO-PAIN в первую очередь привлекают своей преданностью стилю. От них никогда не ждёшь чего-то нового или особо оригинального, но некоторую упёртость всегда прощаешь, уважая убеждения. Ведь hardcore это не только прямолинейная и энергичная музыка, это ещё и остросоциальная лирика, которая будоражит кровь своей провокативностью и восторженной «революционностью». Клавиши здесь не к месту. PRO-PAIN, видимо, и сами поняли это, и новый альбом “Absolute Power” расставляет всё на свои места. С первых аккордов мы слышим натуральный агрессивный hardcore, стандартный для современного творчества группы. В реализации собственных задумок американцам помогают подкинутые лэйблом AFM звёзды, среди которых важное место занимает Schmier из DESTRUCTION, который своей вокальной манерой помогает полностью забыть как страшный сон предыдущие экзерсисы. К сожалению, ближе к концу альбома можно услышать современное «блеяние», но оно довольно быстро проходит и не позволяет испортить настроение от убойных первых трэков.</P>
+<P>PRO-PAIN не надо экспериментировать, и всё будет хорошо. Мощный кассовый успех этой группе в любом случае не грозит, как бы она не старалась, поэтому нечего копья ломать, пугая собственных поклонников. Хотелось бы, конечно, услышать от PRO-PAIN ещё чего-нибудь в духе альбома “Act Of God” с большой примесью thrash-metal, но это пока только мечты.</P>
+Автор: Vit Belov
+
+### 08.05.2011 news Tom Klimchuck ушёл из PRO-PAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>PRO-PAIN</STRONG> вынужденно расстались с лид-гитаристом <STRONG>Tom Klimchuck. Tom</STRONG> не сможет принять участие в массивном юбилейном туре, посвящённом 20-летию группы, во время которого коллектив будет исполнять целиком свой классический дебют <STRONG>"Foul Taste Of Freedom"</STRONG> (1992). С благословения самого <STRONG>Tom</STRONG> к группе присоединился новый музыкант <STRONG>Adam Phillips</STRONG> (<B>INDORPHINE</B>).</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=450 src="/images/news_rus/2011.05/19422.jpg" width=300 border=0></FONT></P>
+Автор: Vit Belov
+
+### 15.07.2011 news PRO-PAIN отпразднуют юбилей
+
+<P><IMG height=473 alt="" hspace=0 src="/images/news_rus/2011.07/20150.jpg" width=475 align=right border=0>Легендарные хардкорщики&nbsp;<STRONG>PRO-PAIN</STRONG> празднуют в этом году 20-летний юбилей своего существования. Дабы отметить эту годовщину группа подготовила специальное издание&nbsp;CD/DVD <STRONG>"20 Years Of Hardcore"</STRONG>, которое выйдет в августе на&nbsp;<STRONG>AFM</STRONG>. На ауди-диск попадут четыре новых вещи, 4 перезаписанных вещи, одна кавер-версия и концертник в чешском городе Брно.&nbsp;На DVD&nbsp;поклонники <STRONG>PRO-PAIN</STRONG>&nbsp;обнаружат более&nbsp;90 мину материала, включающего разнообразные концертные записи и материал "за сценой". Трек-лист:</P>
+<P>CD:<BR>New tracks:<BR>01. <B>Damnation</B><BR>02. <B>Hands In The Jar</B><BR>03. <B>Someday Bloody Someday</B><BR>04. <B>True Liberation</B><BR>Re-recorded tracks:<BR>05. <B>Foul Taste Of Freedom 2011</B><BR>06. <B>Make War (Not Love) 2011</B><BR>07. <B>Denial 2011</B><BR>08. <B>Shine 2011</B><BR>Cover track:<BR>09. <B>Keine Amnestie fur MTV</B><BR>Live In Brno (CZ)<BR>10. <B>Unrestrained</B><BR>11. <B>Three Minutes Hate</B><BR>12. <B>Can You Feel It</B><BR>13. <B>UnAmerican</B><BR>14. <B>Neocon</B><BR>15. <B>No Way Out</B><BR>16. <B>F*ck It</B><BR>17. <B>Draw Blood</B><BR>18. <B>The Shape Of Things To Come</B><BR>19. <B>In For The Kill</B><BR>20. <B>Let The Blood Run Through The Streets</B><BR>21. <B>Foul Taste Of Freedom</B><BR>22. <B>All For King George</B><BR>23. <B>Destroy The Enemy</B><BR><BR>DVD:<BR>Beograd Concert - SKC 1998:<BR>01. <B>Shine</B><BR>02. <B>Make War (Not Love)</B><BR>03. <B>State Of Mind</B><BR>04. <B>The Stench Of Piss</B><BR>05. <B>Life's Hard</B><BR>06. <B>Get Real</B><BR>07. <B>Time</B><BR>08. <B>Foul Taste Of Freedom</B><BR>09. <B>Crush</B><BR>10. <B>Box City</B><BR>11. <B>Blood Red</B><BR>12. <B>Bad Blood</B><BR>Live at With Full Force:<BR>01. <B>Casualties Of War</B> - 2002<BR>02. <B>UnAmerican</B> - 2005<BR>03. <B>Fuck It</B> - 2007<BR>Live at Lausitzring 2005:<BR>01. <B>Neocon</B><BR>02. <B>One World Ain't Enough</B><BR>03. <B>Left For Dead</B><BR>04. <B>Life's Hard</B><BR>05. <B>Get Real</B><BR>Fan-filmed footage:<BR>01. <B>Iraqnophobia</B> 1993<BR>02. <B>Johnny Black</B> 1996<BR>03. <B>Act Of God</B> 1999<BR>04. <B>Smokin' Gun</B> 1999<BR>05. <B>Implode</B> 2005<BR>* Rare clips from the vault: A montage of old rare footage<BR>* Official promo video: <B>"Down For The Cause"</B></P>
+Автор: Vit Belov
+
+### 10.08.2012 news Новый альбом PRO-PAIN &quot;Straight To The Dome&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.08/24621.jpg" width=400 height=400>Группа<STRONG> PRO-PAIN</STRONG> подготовила к выпуску новый альбом. </P>
+<P>Получивший название<STRONG> "Straight To The Dome"</STRONG>, диск выйдет 9 сентября на лейбле<STRONG> Sunny Bastards</STRONG> в Европе и 25 сентября на лейбле <STRONG>Goomba Music</STRONG> в Соеденённых Штатах.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Straight To The Dome<BR></STRONG>02. <STRONG>Payback<BR></STRONG>03. <STRONG>Nothing Left<BR></STRONG>04. <STRONG>Bitter Pill<BR></STRONG>05. <STRONG>Pure Hatred<BR></STRONG>06. <STRONG>Sucks To Be You<BR></STRONG>07. <STRONG>Bloodlust For War<BR></STRONG>08. <STRONG>A Good Day To Die<BR></STRONG>09. <STRONG>Fallen Son<BR></STRONG>10. <STRONG>Judge<BR></STRONG>11. <STRONG>Zugabe!</STRONG></P>
+<P>Несколько песен с нового альбома можно прослушать на сайте <STRONG>Goomba Music:</STRONG></P>
+<P><A href="http://www.goombamusic.com/goomba-music-artist-promo.html">www.goombamusic.com/goomba-music-artist-promo.html</A></P>
+Автор: Headcrusher
+
+### 19.11.2013 news PRO-PAIN: новый альбом уже в эту пятницу
+
+<P>22 ноября (в Германии)&nbsp;группа<STRONG> PRO-PAIN</STRONG> выпускает свой новый альбом, получивший название&nbsp;<STRONG>"The Final Revolution"</STRONG>. В остальной Европе диск увидет свет на три дня позже, а на территории Америки и Канады - 3 декабря.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Deathwish</STRONG> | 02. <STRONG>One Shot One Kill</STRONG> | 03. <STRONG>Southbound</STRONG> | 04. <STRONG>Problem Reaction Solution</STRONG> | 05. <STRONG>The Final Revolution</STRONG> | 06. <STRONG>Can't Stop The Pain</STRONG> | 07. <STRONG>All Systems Fail</STRONG> | 08. <STRONG>Want Some?</STRONG> | 09. <STRONG>Fall From Grace</STRONG> | 10. <STRONG>Emerge</STRONG> | 11. <STRONG>Mass Extinction</STRONG> | 12. <STRONG>Under The Gun</STRONG>&nbsp;| 13. <STRONG>Life's Hard</STRONG> - Live 2010 <EM>(bonus track digi) </EM>| 14. <STRONG>Get Real</STRONG> - Live 2010 <EM>(bonus track digi) </EM>| 15. <STRONG>Party In Paris</STRONG> - <STRONG>U.K. SUBS</STRONG> cover<EM> (bonus track digi)</EM></P>
+<P>За&nbsp;запись, сведение и мастеринг альбома отвечал <STRONG>V.O. Pulver</STRONG> (<STRONG>GURD</STRONG>, <STRONG>POLTERGEIST</STRONG>).&nbsp;Работа над созданием <STRONG>"The Final Revolution"</STRONG> проходила в швейцарской студии <STRONG>Little Creek</STRONG> с 18 по 29 августа 2013.</P>
+<P>Обычное издание альбома будет содержать 12 треков. <STRONG>"The Final Revolution"</STRONG> также&nbsp;будет выпущен в формате&nbsp;digipack (который будет содержать на три песни больше) и на виниле.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.11/26357.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Tess
+
+### 14.05.2015 news PRO-PAIN: новый альбом &quot;Voice Of Rebellion&quot; в июне
+
+<P>Группа <STRONG>PRO-PAIN</STRONG> подготовила к выпуску новый альбом под названием<STRONG> "Voice Of Rebellion"</STRONG>. &nbsp;Его выход состоится на лейбле <STRONG>SPV/Steamhammer</STRONG> в следующие даты: 17 июня&nbsp;в странах Скандинавии, 19 июня в Германии, 22 июня в остальных странах Европы и 23 июня в США. Пластинка будет доступна в следующих форматах:</P>
+<P>* издание в стекле<BR>* digipak, выпущенный ограниченным тиражом (с тремя доп. треками и двухсторонним постером)<BR>* красный винил, выпущенный ограниченным тиражом<BR>* интернет скачивание</P>
+<P>Трек-лист издания в digipak:</P>
+<P>01. <STRONG>Voice Of Rebellion</STRONG> | 02. <STRONG>No Fly Zone</STRONG> | 03. <STRONG>Righteous Annihilation</STRONG> | 04. <STRONG>Souls On Fire</STRONG> | 05. <STRONG>Take It To The Grave</STRONG> | 06. <STRONG>Age Of Disgust </STRONG>| 07. <STRONG>Bella Morte</STRONG> | 08. <STRONG>Cognitive Dissonance</STRONG> | 09. <STRONG>Blade Of The Cursed</STRONG> | 10. <STRONG>Crushed To Dust</STRONG> | 11. <STRONG>Enraged</STRONG> | 12. <STRONG>Hellride</STRONG> | 13. <STRONG>DNR (Do Not Resuscitate)</STRONG> | 14. <STRONG>Fuck This Life</STRONG> | 15. <STRONG>Johnny Black 2015</STRONG> (bonus track) | 16. <STRONG>Stand Tall</STRONG> (live 2013) (bonus track) | 17. <STRONG>Make War</STRONG> (Not Love) (live 2013) (bonus track)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.05/27994.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 07.07.2017 news Gary Meskil (PRO-PAIN) подвергся ограблению
+
+<P><STRONG>Gary Meskil</STRONG>, лидер группы <STRONG>PRO-PAIN</STRONG>,&nbsp;подвергся нападению.&nbsp;Произошло это ночью минувшего понедельника в&nbsp;г. Брюссель (Бельгия). У музыканта&nbsp;отобрали все наличные, паспорт, кредитную карту и ударили по голове ледорубом. Полиции удалось&nbsp;конфисковать оружие преступников&nbsp;и установить личности некоторых из них. К счастью,&nbsp;<STRONG>Gary</STRONG> оперативно попал в отделение интенсивной терапии после&nbsp;инцидента:&nbsp;перелом нескольких лицевых костей, челюсти и массивная потеря крови.&nbsp;В данный момент его состояние стабилизировалось. Возможно потребуется операция. К сожалению, группа отменила свои концерты в городах Roeselare (7 июля) и Osnabruck (8 июля). В данный момент <STRONG>PRO-PAIN</STRONG> находится в самом начале своего европейского тура. И пока не известно, будет ли он продолжен чуть позже&nbsp;или группе придётся экстренно его завершить.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.07/30616.jpg" width=500 height=743> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### PRO-PAIN в России 27-28 октября

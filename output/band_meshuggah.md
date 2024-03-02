@@ -356,6 +356,392 @@ Bonus:
 * C группой "In Flames" Dick Lovgren (bass)
 * C группой "Arch Enemy" Dick Lovgren (bass)
 
+## Публикации
+
+### 26.02.1999 news 
+
+<p>Meshuggah и Slayer проедут с небольшим туром по США.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Aghora работает над новым альбомом с продюсером Нейлом Керноном. Группа интересна тем, что на альбоме в качестве приглашённых музыкантов появятся Пол Масвидал (ex-Cynic), Шон Мэлоун (ex-Cynic & Gordian Knot), а также неповторимый Фредрик Тордендаль (Meshuggah).</p>
+
+Автор: Vit Belov
+
+### 22.02.2001 news Новости от MESHUGGAH
+
+<p>По многочисленным просьбам ТРУдящихся (Илья Ключинский, Гром и т.д.) публикуем новости о супер-проекте MESHUGGAH: 1) Команда подтвердила свое участие в New England Metal & Hardcore Фестивале в Апреле. Это будет первый американский концерт после Chaosphere tour (со Slayer!) в 1999 году. 2) Уже полностью готов к печати долгожданный CD "Rare Tracks" содержащий редкие b-sides версии, демо и одну новую песню. Дата выхода - лето 2001.</p>
+
+Автор: Yermola
+
+### 22.02.2001 news MESHUGGAH - Back On North American Soil
+
+<p>MESHUGGAH are confirmed to play New England Metal &amp; Hardcore Fest on the April 13 &amp; 14. The band will play Saturday night. This will be their first trip back to the US after their Chaosphere tour supporting Slayer back in 1999. They've also finished their much anticipated new CD titled, Rare Tracks. The album features rare b-sides, demo songs, one brand new song and a CDROM portion. Look for a summer release.</p>
+
+Автор: Yermola
+
+### 16.03.2001 reviews Бесчеловечные эксперименты продолжаются
+
+<p>Очередная (и на данный момент пока последняя) серия бесчеловечных экспериментов над слушателями от группы Meshuggah, датированная 98-м годом прошлого века, в которой извращенный подход группы поднимается на новые высоты. Представтье себе, что вы попали внутрь огромного адского механизма, валы и шестерни которого перемалывают ваши кости и плоть. Точно так же безжалостная ритмическая мясорубка Meshuggah перемалывает ваши мозги. Намеки на мелодию, которые кое-где слабо проглядывали на предыдущих альбомах, теперь полностью изжиты. Гитары, барабаны и вокал порой одновременно существуют в совершенно разных, каждый в своем, ритмических измерениях, оставляя в голове слушателя мучительный вопрос, как такое вообще возможно?! Надо отметить, что музыка Meshuggah придется по вкусу только действительно извращенному ценителю (такому как например я), всем же остальным прослушивание этого альбома можно порекомендовать разве что для того, чтобы "жизнь медом не казалась".</p>
+
+Автор: Martin
+
+### 19.04.2001 news Фобос и Деимос....
+
+<p>Мощный толстяк Messiah Marcolin (CANDLEMASS / MEMENTO MORI) позволил себя уговорить ушлым парням из "SATARIEL" и теперь его луженная глотка будет слышна в треке "The Holy Trinity / Menage A Trois" на новом альбоме шведов "Phobos & Deimos". Диск был записан в Uppsala's Dug-Out Studios с продюссером "MESHUGGAH" и "STUCK MOJO" - Daniel Bergstrand. Также гостем был фронтмен "HYPNOSIA" Lenny.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news Phobos &amp; Deimos.....
+
+<p>Former CANDLEMASS / MEMENTO MORI vocalist Messiah Marcolin will reportedly be guesting on the track "The Holy Trinity / Menage A Trois" on the upcoming album from Sweden's SATARIEL, tentatively titled Phobos & Deimos. The CD, which is currently being recorded at Uppsala's Dug-Out Studios with producer Daniel Bergstrand (i.e. STUCK MOJO, MESHUGGAH, STRAPPING YOUNG LAD), will also include an appearance by HYPNOSIA frontman Lenny. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.06.2001 news Meshuggah хотят выпустить компиляцию
+
+<p> Meshuggah намерены выпустить сборник своих редких и ранее неизданных вещей. Диск выйдет 13-го августа на Nuclear Blast/Century Media.</p>
+
+Автор: Nybras
+
+### 24.07.2001 news Изменения состава у MESHUGGAH...
+
+<p>Культовые "MESHUGGAH" распростились с басистом Gustaf Hielm. Сейчас команда срочно ищет замену...</p>
+
+Автор: Yermola
+
+### 24.07.2001 news MESHUGGAH have parted ways ...
+
+<p>MESHUGGAH have parted ways with bassist Gustaf Hielm. The band is currently seeking a replacement. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 21.08.2001 news MESHUGGAH have been confirmed as the support band for TOOL....
+
+<p>Sweden’s high-tech thrashers MESHUGGAH have been confirmed as the support band for TOOL’s upcoming headlining US tour, beginning with the September 6th show in St. Paul, Minnesota. Here are the announced dates for the trek: <br> Sept. 06 - St. Paul, MN @ Xcel Energy Center <br> Sept. 07 - Madison, WI @ Alliant Energy Center <br> Sept. 08 - Noblesville, IN @ Verizon Wireless Music Center <br> Sept. 09 - Rosemont, IL @ Allstate Arena <br> Sept. 11 - Grand Rapids, MI @ Van Andel Arena <br> Sept. 12 - Dayton, OH @ Ervin J. Nutter Center <br> Sept. 14 - Columbus, OH @ Schottenstein Center <br> Sept. 15 - Cleveland, OH @ CSU Convocation Center <br> Sept. 16 - Auburn Hills, MI @ Palace Of Auburn Hills <br> Sept. 18 - Toronto, ON @ Air Canada Centre <br> Sept. 19 - Montreal, QC @ Molson Centre<br> It is presently unclear if MESHUGGAH will be joining TOOL for the remainder of the latter band’s headlining tour, which includes dates in Boston, Portland (Maine) and Wilkes-Barre, among others. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.08.2001 news Буря от MESHUGGAH ...
+
+<p>Новый (студийный!) альбом MESHUGGAH - "Turbulence" увидит свет уже весной 2002!!!</p>
+
+Автор: Yermola
+
+### 27.08.2001 news Turbulence...
+
+<p>Look for MESHUGGAH’s next studio effort, tentatively titled Turbulence, in the spring of 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.10.2001 news Видео MESHUGGAH...
+
+<p>Посмотреть видео культовейших "MESHUGGAH" - вошедшее на только что вышедший в Европе альбом "Rare Trax" можно <a href="http://www.meshuggah.net/disco/rare/">здесь........ </a></p>
+
+Автор: Yermola
+
+### 30.10.2001 news MESHUGGAH will be performing alongside MACHINE HEAD ...
+
+<p>Swedish high-tech thrashers MESHUGGAH will be performing alongside MACHINE HEAD and P.M.T. at the Vernier sur Rock Festival in Geneve, Switzerland on Sunday, November 11th. For more info, go to: <A HREF="http://www.vernier-sur-rock.ch/">http://www.vernier-sur-rock.ch/</A></p>
+
+Автор: Yermola
+
+### 30.10.2001 news MESHUGGAH выступят вместе с MACHINE HEAD...
+
+<p>Шведские техно-трэшеры "MESHUGGAH" выступят вместе с "MACHINE HEAD" и "P.M.T." на Женевском рок-фестивале "Vernier sur Rock Festival" 11-го ноября. Более подробно читайте здесь: <A HREF="http://www.vernier-sur-rock.ch/">http://www.vernier-sur-rock.ch/</A></p>
+
+Автор: Yermola
+
+### 17.05.2002 news Хорошие вести от MESHUGGAH!!!!
+
+<p>Короли замороченной музыки "MESHUGGAH" объявили дату выхода своего четвертого полноформатника названного "Nothing". Это произойдет 6-го августа через лэйбл Nuclear Blast Records. Это первый диск группы содержащий новый материал с 1998 года и выхода Chaosphere. Альбом продюссировался самими MESHUGGAH в шведской студии Dug-Out Studios (Uppsala). Трек-лист: <BR><BR> 01. Perpetual Black Second<BR> 02. Straws Pulled at Random<BR> 03. Rational Gaze<BR> 04. Stengah<BR> 05. Closed Eye Visuals<BR> 06. Spasm<BR> 07. Assembly<BR> 08. Path of the Frightened<BR> 09. Scorned Shadows<BR> 10. Glints Collide<BR></p>
+
+Автор: Yermola
+
+### 10.07.2002 news Meshuggah will have completed work on their highly anticipated disc...
+
+<p>By the time you read this, Meshuggah will have completed work on their highly anticipated disc, Nothing. Midway through their Ozzfest venture, Nothing will crash onto the scene. Fans attending Ozzfest can pre-order the disc for 5 bucks at the FYE booth. Not only will that reserve a copy of Nothing, but those that pre-order will also receive a free Nothing booklet right then to have the band autograph at one of the many signings held everyday on Ozzfest. What a deal! <BR><BR> Nothing will be released on August 6th.</p>
+
+Автор: Yermola
+
+### 30.07.2002 news MESHUGGAH Guitarist Speaks Out On OZZFEST 2002 ....
+
+<p>MESHUGGAH guitarist Mеrten Hagstrцm recently spoke to MTV.com about the experience of playing the second stage at this year's Ozzfest and the unusual amount of support the band have received from other artists and musicians—a list that includes TOOL, SLAYER and SYSTEM OF A DOWN, among others. <BR><BR> "I heard that Jack Osbourne really wanted us to be on the second stage, which is of course a big help," Mеrten said.<BR><BR> "It feels kind of good," Hagstrцm said of being one of the more aggressive bands on the touring festival bill. "Because you know that every night you're gonna be one of the hardest acts and there's always people out there wanting to catch the hardest act. It's kind of a good thing, I think. It works to our advantage." <BR><BR> "What we do is strict metal, but still it has some overtone or vibe to it that doesn't really apply to other bands," the guitarist said. "I don't know why that is, it just comes out that way. The first time you hear us it's like, 'What's happening? What's going on?' People kind of go like that. But after a while, it kind of grows on you and I think that's our approach." <BR><BR> MESHUGGAH recently completed a new album, Nothing, which will be released on August 6th through Nuclear Blast Records.<BR><BR> To read the whole MTV.com article, click <A HREF="http://www.mtv.com/news/articles/1456313/20020726/meshuggah.jhtml?headlines=true">here. </A></p>
+
+Автор: Yermola
+
+### 02.09.2002 articles Керри Кинг: Дайте шанс LINKIN PARK!
+
+<p>SLAYER сейчас в бесконечном турне, а у фэнов и журналистов, как всегда, море вопросов. Керри Кинг, гитарист трэш-легенды, в недавнем интервью www.metalupdate.com ответил на некоторые из них. Вот наиболее интересные откровения: <BR> - <I>Что ты думаешь об ARCH ENEMY?</I> <BR> - Это евро-метал. Возможно, это будет следующим этапом развития, многие люди скажут это, но мне хочется слышать больше агрессии.<BR> - <I>Как ты сам определяешь евро-метал</I>?<BR> - Более мелодичный. Заваренный на IRON MAIDEN. <BR> - <I>Тебе больше нравится евро-метал или nu-metal</I>?<BR> - Ни то, ни другое. Трэш!<BR> - <I>Что ты думаешь о тенденциях развития рэп-металла</I>?<BR> - Необходимое зло – нужно привнести жизнь в возможно умирающий жанр.... LINKIN PARK пишут цепляющие риффы для очень юной аудитории. Молодые люди очень восприимчивы к тому, что слушают их друзья. LINKIN PARK их и цепляют, так что дайте им шанс!<BR> - <I>SLAYER что-нибудь позаимствуют у LINKIN PARK</I>?<BR> - Не думаю, хотя я и слушаю их. Я пытаюсь понять, почему они столь значимы сегодня. Парень, что кричит в группе, черт, как его имя?… Он делает это убийственно – правда каждый раз, когда я натыкаюсь на них по радио, я переключаю канал – я слышал это слишком много.<BR> - <I>Есть люди, которые наверняка начнут подлизываться к тебе, узнав о том, что ты одобрил LINKIN PARK… </I><BR> - Это не одобрение – я просто сказал, что их крикун может хорошо кричать! (смеется). Себастьян Бах тоже мог делать это, но то, что он стал петь позже… Какого черта?!<BR> - <I>Что ты думаешь о MESHUGGAH</I>?<BR> - Они действительно хорошая группа. Слушаешь и думаешь – черт, да что же они делают?!<BR> - <I>Если бы пришлось называть группы, близкие к SLAYER – не точно такие же, а именно близкие, то</I>…<BR> - Один ответ на все времена – PANTERA. В них есть что-то – я не знаю, что именно. Они более блюзовые, у них есть южный кач, а "Becoming" – одна из лучших песен, когда либо написанных.<BR> - <I>Ты чувствуешь обязательства перед своими фэнами</I>?<BR> - Никаких обязательств – я и сам фэн! И я знаю, что хочу услышать.<BR> - <I>Худшая песня SLAYER</I>?<BR> - Моя худшая песня? Это с SOUTH OF HEAVEN, я всегда забываю ее название, так ее ненавижу! (смеется). "Cleanse The Soul" – ненавижу эту песню.<BR> - <I>Но "South of Heaven" – великий альбом</I>!<BR> - Правильно! Мне просто не нравится эта песня!<BR> Полный текст интервью доступен по адресу: <A HREF="http://www.metalupdate.com/features.htm">www.metalupdate.com/features.htm</A></p>
+
+Автор: Tornado
+
+### 09.09.2002 news MESHUGGAH in Billboard Top 200...
+
+<p>MESHUGGAH recently became the first band in the history of Nuclear Blast Records to crack the Billboard Top 200, landing at #165 with their latest effort, Nothing. They also secured spots on a few other Billboard charts including #30 on the Hard Music chart, #9 at the Core Hard Music stores and #6 on the Heatseekers. Although the band has moved out of the Top 200, after four weeks they continue to chart on the Hard 100, Core Hard Music stores and Heatseekers. <BR><BR> In related news, MESHUGGAH also became the first Nuclear Blast band to be reviewed in Rolling Stone magazine.<BR><BR> MESHUGGAH will spend the next month at home in Sweden before returning to North America on October 2nd for an eight-week tour supporting TOOL.</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MESHUGGAH попали в Billboard Top 200....
+
+<p>"MESHUGGAH" стали первой командой из обоймы лэйбла Nuclear Blast попавшей в престижный Billboard Top 200. Последний альбом "Nothing" разместился на 165 позиции. Кроме того альбом проник в Биллбордовскую 30-ку Hard Music chart, на #9 в Core Hard Music и #6 в Heatseekers. Также "MESHUGGAH" стали первой группой Nuclear Blast отрецензированной в журнале "Rolling Stone".</p>
+
+Автор: Yermola
+
+### 10.09.2002 articles На что будет похожа новая Metallica?
+
+<p>Ансамбль Metallica записывает новую пластинку, ну и слава Создателю, главное, чтобы процесс записи не затянулся на неопределённое время, как скажем у Guns’N’Roses. Прошли вроде бы казусы с алкоголизмом у мистера Hatfield’а, всякими рэпперскими замутами, и вот остаётся чистое творчество… На что будет похож новый альбом этой легендарной группы? Пусть не все, но многие задаются этим вопросом… Ведь согласитесь простор для фантазии, куда как широк. И вот в самый последний день лета на свет выползли постинги из форума на официальном сайте Metallica.<br> Kirk Hammett (08/29/2002 3:52:00 PM): Пришли мы сегодня в студию и работаем над песней Du Jour, Никлас (web-master) принёс новый CD Meshuggah. Мы решили приостановить работу и прослушать его, потому что каждый засранец на Ozzfest говорил, как чертовски хороши они были. Ну, мы это послушали и были шокированы, как это близко к нашему новому материалу. Я люблю Meshuggah!!!…<br> Lars Ulrich (08/29/2002 5:26:00 PM): Привет! Здесь Ларс! Мы провели очень хороший денёк в студии. Кстати, я считаю, аналогии с Meshuggah, которые провёл Кирк, слегка заужены. Я слышу некоторые черты Entombed и Hatebreed в нашей музыке также…<br> Вот так-то. В новостях Вы могли прочитать, что альбом Meshuggah “Nothing” вошёл в чарты Billboard, что является блестящим достижением. Вот только возникает уже другой вопрос, Metallica Бог с ней, они «далеко», а вот Meshuggah? Что же ждёт нас на этом альбоме, если он штурмует чарты в Америке и очень нравится Кирку Хэммету? Всё-таки музыка шведов никогда не была настолько проста, чтобы так полюбиться публике в Новом Свете. Ждём ответа от Irond, ведь они должны донести до нас это чудо в скором времени. Релиз в Европе – 16 сентября.</p>
+
+Автор: Vit Belov
+
+### 10.09.2002 articles Kirk Hammett: &quot;I Love Meshuggah&quot;
+
+<p>The ensemble Metallica writes down a new CD, well and glory to the God, main, that the process of record was not delayed on uncertain time, as we shall tell at Guns'N'Roses. Would pass like things as alcoholism of Mr. Hatfield, rap influences, and pure creativity stay there. On what will the new album of this legendary group be similar? Not everbody, but many are set by this question. You agree, open space for imagination, where as is wide. And per the latest day of summer on light have crept out postings from forum on an official site of Metallica.<br> Kirk Hammett (08/29/2002 3:52:00 PM): So we came in today and we were working on the song 'Du Jour' when [webmaster] Niclas walked in with the new MESHUGGAH CD. We decided to stop what we were doing and throw it on because every motherfucker at Ozzfest kept on telling us how kick-ass they were. When we heard it, we were shocked to find out how similar it was to our new material, even the 8 radio songs we have. I love MESHUGGAH!<br> Lars Ulrich (08/29/2002 5:26:00 PM): Hey, it's Lars checking in on the way out. We had a nice ugly day in the studio. Lots of nastiness and misery. I'm psyched! BTW, I think Kirk's MESHUGGAH comparison is a little limiting. I hear shades of HATEBREED and ENTOMBED in there also. <br> So. In news you could read, that the album of Meshuggah "Nothing" has come in Billboard, that is brilliant achievement. Only there is already other question, Metallica the God with them, they are "far", and Meshuggah? What waits for us on this album, if it storms charts in America and it is pleasant to Kirk Hammett very much? Music of the swedes was never so simple, that so to be grown fond to public in USA. We look forward to hearing from Nuclear Blast, they should inform up to us this miracle shortly. Release in Europe - September 16.</p>
+
+Автор: Vit Belov
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 21.11.2002 reviews Высшая математика и простейшая музыка
+
+<p>MESHUGAH – шведская группа с 13-летним стажем, все эти годы прозябавшая в безвестности. Но вот пришел успех – доказательство всемогущества коммерческой логики. <BR> Видимо, устав от культового, но безденежного статуса, заработанного годами и безумными экспериментами в дэс-метал, квинтет решил пойти другим путем. Немного подкорректировали свое творчество с учетом моды (много низких частот и совсем немного речитатива – KORN умрет от зависти) и накатали достойный бизнес-план, с успехом реализованный. Хотите детали? Пожалуйста – скопили денег, оплатили участие в популярнейшем американском фестивале OZZFEST и оказались самой тяжелой командой в этой обойме, что публика и оценила по достоинству. Продажи пластинки сразу же пошли вверх и теперь даже мэтры из METALLICA говорят: "O, MESHUGGAH! Хотим играть так же!".<BR> Что же касается собственно музыки, то… Очень грубый и при этом чистый звук перегруженных гитар, обилие низких частот и средних темпов. Потенциальные хиты – "Perpetual Black Second" и "Spasm", в котором можно даже расслышать намек на рэп. Если MESHUGGAH когда-нибудь решаться так же вольно и нагло обращаться с мелодией и гармонией, как они делают это с ритмикой, спор о лучшей группе всех времен и народов прекратится раз и навсегда. К счастью, этого не произойдет никогда – шведы настолько увлечены ломанными ритмами и безумным синкопированием, низкочастотной атакой и технической полировкой жестких песен, что вряд ли помнят о существовании каких-то там мелодий. В итоге материал получился монотонным. Где-то после третьей вещи теряешь счет времени и паузам между почти одинаковыми треками: "Надеюсь, это уже последняя песня? Ах, черт, всего лишь четвертая…". <BR> Но даже несмотря на это пластинку следует оценить как неординарную – где вы еще найдете столько сбивок на одну минуту и музицирование ритм-секции и гитар параллельно в разных размерах (фокус из области фантастики)? Конечно, можно было бы сказать, что подобные научные исследования в музыке имеют ценность только для специалистов, однако безусловный коммерческий успех этой пластинки чего-то да стоит.<BR> Влюбиться в такую музыку сложно – но вот найти изюминку для себя вполне реально, тем более, что таковых музыканты напихали в диск по самое "не хочу" – и собственно экспериментальные песни, и концептуальное оформление, и мультимедийная часть диска. Так что возьмите диск хотя бы ради любопытства. В крайнем случае, соседей помучаете.</p>
+
+Автор: Tornado
+
+### 11.02.2003 news MESHUGGAH Announce Swedish Dates ...
+
+<p>MESHUGGAH have announced the following Swedish dates in March: <BR><BR> Mar. 18 - Malmo, SWE @ Kulturbolaget <BR> Mar. 29 - Umea, SWE @ Umea Open<BR><BR> In other news, MESHUGGAH guitarist Marten Hagstrom has posted the following message via the band's official web site:<BR><BR> "Hey everyone! Mеrten here. Just writing to apologize for not updating the page and checking in with you all in such a long fucking time. We are as usual real lazy and since we came home from the US tours we've been taking some time off to clear our heads. We had a blast going through the States on both the Ozzfest and opening up for TOOL. Its great for us to have been able to meet and play in front of so much people during this Summer/Fall. <BR><BR> "As always, being on the road with TOOL is just insanely fun. Nice guys, great crew! Plus they're an incredible band. The Ozzfest was FUCKING hot. Being from freezing Sweden the heat was probably the only thing we had a hard time dealing with on that tour. The whole tour is just a big party and something quite unique to have been a part of. As for the future we're looking at a small Scandinavian tour in March followed by a US Headline tour as soon as we can get around to it. After that we're planning to tour Europe at long last! It's been a while so we're really looking forward to that. <BR><BR> "Anyway we're going to get off our asses and give you guys more frequent updates in the future! Hope to see you guys on tour! Later!"</p>
+
+Автор: Yermola
+
+### 24.09.2003 news Соло-проект участника DARKANE
+
+<B>NON-HUMAN LEVEL</B> так будет называться группа, которую сколотил гитарист <B>DARKANE Christofer Malmstr&ouml;m</B>. Также участвуют: басист <B>MESHUGGAH Gustaf Hielm</B>, барабанщик <B>DARKANE Peter Wildoer</B> (он будет петь) и барабанить будет <B>Ryan Van Poederooyen (THE DEVIN TOWNSEND BAND/GOD AWAKENS PETRIFIED).</B> <B>Ryan</B> в сообщении на своём сайте обещает тотальное безумие и очень навороченную музыку.
+Автор: Vit Belov
+
+### 04.10.2003 news MESHUGGAH выпустят EP весной
+
+<B>MESHUGGAH</B> выпустят новый EP через <B>Fractured Transmitter Records</B> весной. Диск будет длиться около 20 минут.
+Автор: Vit Belov
+
+### 07.10.2003 news IN FLAMES в студии
+
+<B>Daniel Bergstrand (MESHUGGAH, STRAPPING YOUNG LAD)</B> и <B>Orjan Ornkloo (ex-MISERY LOVES CO.)</B> спродюсируют новый альбом <B>IN FLAMES</B>, который уже записывается участниками в Дании и выйдет в начале 2004 года на <B>Nuclear Blast Records</B>.
+Автор: Darkfall
+
+### 19.11.2003 news Готов новый альбом IN FLAMES
+
+<P>Последователем релиза 2002 года <B>"Reroute To Remain"</B> станет новый полноформатник шведов <B>"Soundtrack To Your Escape"</B>. Он был записан в студии в Дании вместе с продюсерами <B>Daniel Bergstrand</B> (<B>DARKANE</B>, <B>MESHUGGAH</B>, <B>STRAPPING YOUNG LAD</B>) и <B>Orjan Ornkloo</B> (ex-<B>MISERY LOVERS CO.</B>) и смиксован в <B>Galaxy Studios</B> в Бельгии (<B>IRON MAIDEN</B>, <B>MANOWAR</B>, <B>RAMMSTEIN</B>). Мастеринг альбома будет проходить в <B>Cutting Room</B> в столице Швеции, Стокгольме.<BR><BR>Трэк-лист:<BR><BR>01. <B>F(r)iend</B><BR>02. <B>The Quiet Place</B><BR>03. <B>Borders And Shading</B><BR>04. <B>Discover Me Like Emptiness</B><BR>05. <B>Touch Of Red</B><BR>06. <B>Bottled</B><BR>07. <B>Dead Alone</B><BR>08. <B>Superhero Of The Computer Rage</B><BR>09. <B>Like You Better Dead</B><BR>10. <B>Dial 595-Escape</B><BR>11. <B>Evil In A Closet</B><BR>12. <B>In Search For I</B><BR>13. <B>My Sweet Shadow</B><BR><BR>Европейский релиз альбома состоится 29 марта 2004 года на <B>Nuclear Blast Records</B>.</P>
+Автор: Darkfall
+
+### 25.02.2004 news Новый басист в MESHUGGAH
+
+<B>Dick Lovgren (Arch Enemy, In Flames)</B> заменил <B>Gustaf Hielm</B> и стал новым басистом <B>MESHUGGAH</B>.
+Автор: Vit Belov
+
+### 25.02.2004 news New bass-player in MESHUGGAH
+
+<B>Dick L&#246;vgren (Arch Enemy, In Flames)</B> has became new bassist in <B>MESHUGGAH</B>. He replaced <B>Gustaf Hielm</B>.
+Автор: Vit Belov
+
+### 28.02.2004 news MESHUGGAH назвали альбом
+
+<B>MESHUGGAH</B> работают над новым альбомом, который выйдет осенью на Nuclear Blast. Недавно пластинке было придумано название <B>'Catch 33'</B> (???).
+Автор: Vit Belov
+
+### 27.06.2004 news Выходит новый EP MESHUGGAH
+
+<P><B><IMG height=244 alt="" hspace=0 src="/images/news_rus/2004.06/6652.jpg" width=241 align="left" border=5>MESHUGGAH</B> выпускают новый EP <B>'I'</B> 13 июля на <B>Fractured Transmitter Records. </B>На CD войдёт один трэк длиной 21 минута.</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 12.01.2005 news MESHUGGAH заканчивают запись
+
+<P><STRONG>MESHUGGAH </STRONG>заканчивают запись нового альбома <STRONG>'Catch 33'</STRONG>. Никаких других подробностей группа не сообщает.</P>
+Автор: Vit Belov
+
+### 04.02.2005 news MESHUGGAH опять записали одну песню
+
+<P><STRONG>MESHUGGAH</STRONG> сообщили подробности о новом альбоме <STRONG>'Catch 33'</STRONG>, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. Это будет, как и на предыдущем EP, одна большая песня на 47 минут в тринадцати частях.</P>
+Автор: Vit Belov
+
+### 17.03.2005 news Подробности о новом альбоме MESHUGGAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыканты шведской экспериментально-экстремальной формации <STRONG>MESHUGGAH</STRONG> опубликовали трек-лист к своему новому альбому под названием <B>"Catch 33"</B>, выход которого запланирован на 16 мая через <B>Nuclear Blast Records</B>. В альбом войдет одна композиция на 47 минут, состоящая из 13 частей:</FONT></P>
+<P><IMG height=250 alt="" hspace=100 src="/images/news_rus/2005.03/8137.jpg" width=250 align=right border=0>1. <B>Autonomy Lost</B> <BR>2. <B>Imprint Of The Un-Saved</B> <BR>3. <B>Disenchantment</B> <BR>4. <B>The Paradoxical Spiral</B> <BR>5. <B>Re-Inanimate</B> <BR>6. <B>Entrapment</B> <BR>7. <B>Mind's Mirrors</B> <BR>8. <B>In Death - Is Life</B> <BR>9. <B>In Death - Is Death</B> <BR>10. <B>Shed</B> <BR>11. <B>Personae Non Gratae</B> <BR>12. <B>Dehumanization</B> <BR>13. <B>Sum</B> <BR>В музыкальном плане, альбом будет полной противоположностью последней работы группы - мини-альбома <STRONG>"I".</STRONG></P>
+Автор: Dimas
+
+### 19.12.2005 news Лучшие металл-альбомы 2005 года
+
+<P>Стали известны номинанты шведской премии <B>Grammy</B> в категории "best metal album". Ими стали следующие альбомы: <STRONG>OPETH</STRONG> <B>"Ghost Reveries", </B><B>CANDLEMASS</B> <B>"Candlemass"</B>, <B>HAMMERFALL</B> <B>"Chapter V: Unbent, Unbowed, Unbroken"</B>, <B>HARDCORE SUPERSTAR</B> <STRONG>"Hardcore Superstar"</STRONG>&nbsp;и&nbsp;<B>MESHUGGAH</B> <B>"Catch Thirty Three".</B>&nbsp;</P>
+Автор: Dimas
+
+### 08.02.2006 news CANDLEMASS выиграли приз
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CANDLEMASS</STRONG> выиграли шведскую Grammy, как лучшая hard-rock команда. В своей номинации легендарные думстеры опередили <STRONG>HAMMERFALL</STRONG>, <B>HARDCORE SUPERSTAR</B>, <B>MESHUGGAH</B>&nbsp;и <STRONG>OPETH.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В номинации "Лучшее музыкальное DVD" были номинированы <STRONG>EVERGREY</STRONG>, но они проиграли<STRONG> ABBA</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 13.11.2007 news Название MESHUGGAH
+
+<P>Новый альбом <STRONG>MESHUGGAH</STRONG> <STRONG>"obZen" </STRONG>выйдет в начале 2008 года на <STRONG>Nuclear Blast</STRONG>. </P>
+Автор: Vit Belov
+
+### 03.12.2007 news Новый альбом MESHUGGAH
+
+<P>7 марта 2008 года на<STRONG> Nuclear Blast</STRONG> выходит новый альбом <STRONG>MESHUGGAH</STRONG> <STRONG>"obZen". </STRONG>Стал известен трэк-лист 55-минутной пластинки:</P>
+<P>01. <B>Combustion</B> <BR>02. <B>Electric Red</B> <BR>03. <B>Bleed</B> <BR>04. <B>Lethargica</B> <BR>05. <B>ObZen</B> <BR>06. <B>This Spiteful Snake</B> <BR>07. <B>Pineal Gland Optics</B> <BR>08. <B>Pravus</B> <BR>09. <B>Dancers To A Discordant System</B></P>
+Автор: Vit Belov
+
+### 06.02.2008 news MESHUGGAH выложили песню
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MESHUGGAH </STRONG>выложили на своей<STRONG> MySpace</STRONG> страничке новую песню "<STRONG>Bleed</STRONG>", которая попадёт на выходящий 11 марта альбом "<STRONG>obZen</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/meshuggah">http://www.myspace.com/meshuggah</A></FONT></P>
+Автор: Vit Belov
+
+### 27.09.2008 news MESHUGGAH уже в октябре
+
+<P>Стало известно, что <STRONG>MESHUGGAH </STRONG>выступят в Москве и Питере в начале октября. Четвёртого числа состоится концерт в "Точке", а пятого - в "Орландине".</P>
+Автор: Vit Belov
+
+### 05.02.2009 news MESHUGGAH готовят DVD
+
+<P>В интервью <STRONG>The Hornet</STRONG> барабанщик<STRONG> MESHUGGAH</STRONG> <STRONG>Tomas Haake</STRONG> сообщил, что весной или осенью группа выпусти концертное DVD, а к записи нового альбома шведы не приступят до 2010 года.</P>
+Автор: Vit Belov
+
+### 08.12.2009 news MESHUGGAH выпускают концертник
+
+<P><IMG height=330 alt="" hspace=0 src="/images/news_rus/2009.12/15689.jpg" width=330 align=right border=5>5 февраля выходит DVD/CD <STRONG>MESHUGGAH "Alive"</STRONG>. На DVD попали 105 минут материала, отснятого в разных местах, а на CD - около 60 минут. Трэк-лист:</P>
+<P>CD:<BR>01. <B>Perpetual Black Second</B> (Tokyo)<BR>02. <B>Electric Red</B><BR>03. <B>Rational Gaze</B><BR>04. <B>Pravus</B><BR>05. <B>Lethargica</B><BR>06. <B>Combustion</B><BR>07. <B>Straws Pulled At Random</B><BR>08. <B>New Millenium Cyanide Christ</B><BR>09. <B>Stengah</B><BR>10. <B>The Mouth Licking What You've Bled</B><BR>11. <B>Humiliative</B><BR>12. <B>Bleed</B><BR><BR>DVD:<BR>01. <B>Begin</B><BR>02. <B>Perpetual Black Second</B> (Tokyo)<BR>03. <B>Twenty Two Hours</B> <BR>04. <B>Pravus</B> (Tokyo)<BR>05. <B>Dissemination</B><BR>06. <B>Bleed</B> (NYC)<BR>07. <B>Ritual</B><BR>08. <B>New Millenium Cyanide Christ</B> (Montreal)<BR>09. <B>Cleanse</B> <BR>10. <B>Stengah</B> (Montreal) <BR>11. <B>The Mouth Licking What You've Bled</B> (Montreal)<BR>12. <B>Machine</B><BR>13. <B>Electric Red</B> (Tokyo)<BR>14. <B>Solidarius</B><BR>15. <B>Rational Gaze</B> (Tokyo)<BR>16. <B>Moment</B><BR>17. <B>Lethargica</B> (Toronto)<BR>18. <B>Communicate</B><BR>19. <B>Combustion</B> (Toronto) <BR>20. <B>Humiliative</B> (Montreal) <BR>21. <B>Infinitum</B> <BR>22. <B>Straws Pulled At Random</B> (Toronto) <BR>23. <B>End</B><BR><BR>Bonus: <BR>01. <B>"Bleed"</B> Music Video<BR>02. The Making Of <B>"Bleed"</B><BR>03. Micha Guitar Tour<BR>04. Tomas Drum Tour</P>
+Автор: Vit Belov
+
+### 25.01.2011 news Tomas Haake женился
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18322.jpg" width=147 height=250>Барабанщик шведской группы <B itxtvisited="1">MESHUGGAH</B> Томас Хааке (<STRONG>Tomas Haake</STRONG>) женился на басистке&nbsp;по имени&nbsp;<B itxtvisited="1">Ida Evileye</B> (на фото, по паспорту: <B itxtvisited="1">Ida Stenbacka</B>) из шведской девчачьей группы <B itxtvisited="1">CRUCIFIED BARBARA</B>. Произошло это на прошлой неделе в Лас Вегасе.</P>
+Автор: Headcrusher
+
+### 17.08.2011 news Фотографии с фестиваля &quot;TUSKA OPEN AIR&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20609.jpg" width=212 height=282>С 22 по 24 июля в городе Хельсинки,&nbsp;Финляндия, прошёл 14 по счёту фестиваль <STRONG>"Tuska Open Air"</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За эти три дня&nbsp;в нём приняло участие&nbsp;более 50 металических&nbsp;групп со всего света, вот только несколько имён: <STRONG>AMON AMARTH</STRONG>, <STRONG>TURISAS</STRONG>, <STRONG>BLIND GUARDIAN</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>MORBID ANGEL</STRONG>, <STRONG>AT THE GATES</STRONG>.</FONT></P>
+<P>Фотографии некоторых из участников фестиваля можно посмотреть в галерее нашего сайта по адресу: </P>
+<P><A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></P>
+<P>Автор всех фотографий: Анна Ходакова</P>
+<P>Сайт фестиваля <STRONG>"Tuska Open Air"</STRONG>: <A href="http://www.tuska-festival.fi/">www.tuska-festival.fi</A></P>
+Автор: Headcrusher
+
+### 05.01.2012 news MESHUGGAH назвали дату релиза
+
+<P>Новый альбом <STRONG>MESHUGGAH</STRONG> записан. Группа планирует выпустить новинку на рынок 27 марта. Подробности последуют.</P>
+<P><center><IMG height=300 src="/images/news_rus/2012.01/22495.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 14.01.2012 news MESHUGGAH назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MESHUGGAH</STRONG> получил название "<STRONG>Koloss</STRONG>". Пластинка выйдет 27 марта на <STRONG>Nuclear Blast</STRONG>. Подробности последуют.</FONT></P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2012.01/22624.jpg" width=303 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.01.2012 news Обложка новой MESHUGGAH
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22695.jpg" width=400 align=right border=0>Восьмой студийный альбом <STRONG>MESHUGGAH "Koloss"</STRONG> выйдет 23 марта на <STRONG>Nuclear Blast</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>I Am Colossus<BR></STRONG>2. <STRONG>The Demon’s Name Is Surveillance<BR></STRONG>3. <STRONG>Do Not Look Down<BR></STRONG>4. <STRONG>Behind The Sun<BR></STRONG>5. <STRONG>The Hurt That Finds You First<BR></STRONG>6. <STRONG>Marrow<BR></STRONG>7. <STRONG>Break Those Bones Whose Sinews Gave It Motion<BR></STRONG>8. <STRONG>Swarm<BR></STRONG>9. <STRONG>Demiurge<BR></STRONG>10. <STRONG>The Last Vigil</STRONG></P>
+Автор: Vit Belov
+
+### 14.02.2012 news Новая музыка MESHUGGAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео с песней с нового альбома<STRONG> MESHUGGAH "Break Those Bones Whose Sinews Gave It Motion" </STRONG>можно посмотреть ниже. Трек войдёт на новый альбом<STRONG> MESHUGGAH "Koloss"</STRONG>, который выйдет 26 марта на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/P68fmKQJ-6g?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 31.03.2012 news Новый клип MESHUGGAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик шведов <STRONG>MESHUGGAH</STRONG> на песню "<STRONG>Break These Bones Whose Sinews Gave It Motion</STRONG>". Трек взят с новейшего альбома <STRONG>MESHUGGAH "Koloss"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/m9LpMZuBEMk?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 27.10.2012 news Новое видео MESHUGGAH
+
+<P>Новый ролик <STRONG>MESHUGGAH</STRONG> на песню <STRONG>"Demiurge" </STRONG>можно увидеть ниже. Трек взят с альбома <STRONG>"Koloss"</STRONG>, который вышел в марте.</P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/UISjgLu8zBA?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.08.2016 news MESHUGGAH объявили дату релиза нового альбома
+
+<p>Новый альбом <strong>MESHUGGAH "The Violent Sleep Of Reason"</strong> выходит 7 октября на <strong>Nuclear Blast</strong>. Название альбома вдохновлено названием картины Гойи "Сон Разума Рождает Чудовищ". Ниже можно увидеть первый трейлер альбома.</p><p>Трек лист:</p><p>1. Clockworks<br>2. Born in Dissonance<br>3. MonstroCity<br>4. By the Ton<br>5. Violent Sleep of Reason<br>6. Ivory Tower<br>7. Stifled<br>8. Nostrum<br>9. Our Rage Won’t Die<br>10. Into Decay</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/Au5ix3aL2xM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.08.2016 news MESHUGGAH - announce their 8th studio album &quot;The Violent Sleep Of Reason&quot;!
+
+<p>The Swedish extreme tech-metal pioneers<strong> MESHUGGAH</strong> have revealed the title of their upcoming eighth album, <strong>"The Violent Sleep Of Reason</strong>". Inspired by a Goya painting called,"The Sleep Of Reason Produces Monsters", the album will be released on October 7th via <strong>Nuclear Blast Records</strong>.</p><p>Watch the album reveal video below.</p><p>Track list:</p><p>1. Clockworks<br>2. Born in Dissonance<br>3. MonstroCity<br>4. By the Ton<br>5. Violent Sleep of Reason<br>6. Ivory Tower<br>7. Stifled<br>8. Nostrum<br>9. Our Rage Won’t Die<br>10. Into Decay</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Au5ix3aL2xM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 26.08.2016 news Первый сингл MESHUGGAH
+
+<p>Новый альбом шведов <strong>MESHUGGAH "The Violent Sleep of Reason"</strong> выходит 7 октября на<strong> Nuclear Blast</strong>. Вчера прошла премьера нового сингла "<strong>Born In Dissonance</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/xtO3VCu5wv4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news First single of MESHUGGAH
+
+<p>The Swedish extreme tech-metal pioneers<strong> MESHUGGAH</strong> will release their upcoming eighth album, <strong>"The Violent Sleep Of Reason</strong>" on October 7th via <strong>Nuclear Blast</strong>. Today, the band premieres their first single "<strong>Born In Dissonance</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/xtO3VCu5wv4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 16.09.2016 news Новое лирик-видео MESHUGGAH
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом<strong> MESHUGGAH "The Violent Sleep Of Reason"</strong> выходит 7 октября на <strong>Nuclear Blast</strong>. Ниже можно посмотреть 360-градусное лирик-видео на песню "<strong>Nostrum</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/V3vxIoCOvxQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 16.09.2016 news MESHUGGAH - 360 lyric video and second single &quot;Nostrum&quot; released
+
+<p>The Swedish extreme tech-metal pioneers <strong>MESHUGGAH</strong> will release their upcoming eighth album, <strong>The Violent Sleep Of Reason</strong> on October 7th via <strong>Nuclear Blast</strong>. Now, the band released the 360 lyric video of the song "<strong>Nostrum</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/V3vxIoCOvxQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.10.2016 news MESHUGGAH выпустили новый альбом и новый клип
+
+<p>Шведы<strong> MESHUGGAH</strong> выпустили вчера на <strong>Nuclear Blast</strong> новый альбом "<strong>The Violent Sleep Of Reason</strong>". В России диск в формате digipak появится в продаже в понедельник на <strong>Союзе</strong>. Группа отпраздновала выход альбома релизом нового клипа на песню "<strong>Clockworks</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oFiDcazicdk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.10.2016 news MESHUGGAH released new album and new video
+
+<p>The Swedes <strong>MESHUGGAH</strong> released yesterday on<strong> Nuclear Blast</strong> new album, <strong>"The Violent Sleep Of Reason</strong>". The group celebrated the album release with the new video for the song "<strong>Clockworks</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oFiDcazicdk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 17.10.2016 news MESHUGGAH вышла на Союзе в digipak
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Одна из самых оригинальных металических групп современности <strong>MESHUGGAH </strong>выпустила новый альбом "<strong>The Violent Sleep Of Reason</strong>" 7 октября на <strong>Nuсlear Blast</strong>.&nbsp;Ниже можно услышать вышедшие синглы с этого альбома. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">В России диск издан на <strong>Soyuz Music</strong> в шикарном digipak с выборочным лаком. Покупайте это издание пока не закончилось в нашем магазине на Горбушке (<strong>B2-230,&nbsp;"Горбушкин Двор"</strong>, метро Багратионовская) или в магазине Escapemind.ru: <a href="http://escapemind.ru/goods/MESHUGGAH-The-Violent-Sleep-of-Reason-digi">http://escapemind.ru/goods/MESHUGGAH-The-Violent-Sleep-of-Reason-digi</a></font></p><p><center><img width="300" height="169" src="/images/news_rus/2016.10/30086.jpg" border="0"><img width="300" height="169" src="/images/news_rus/2016.10/30087.jpg" border="0"><p></p></center><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/xtO3VCu5wv4" frameborder="0" allowfullscreen></iframe></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oFiDcazicdk" frameborder="0" allowfullscreen></iframe></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/V3vxIoCOvxQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 18.10.2016 reviews Музыка для собаки Павлова
+
+<p>Шведы MESHUGGAH одна из самых старых инновативных групп в брутальном метале. Уже в начале 90-х годов эти музыканты раздражали «метальный» люд. Вроде бы рычат, вроде бы звучат тяжело, но что-то не так. При чём не так настолько серьёзно, что, например, в моём окружении того времени этот коллектив был одним из самых ненавистных.</p><p>Это уже потом стало известно, что MESHUGGAH основали новое направление рок-музыки. На самом деле они продвинулись на десяток лет вперёд, и сознание обывателей было просто не готово воспринимать эти ритмы и звучание. Строго говоря, творчество шведов построено не на музыкальной составляющей как таковой, а предлагает возбудитель для нервной системы человека, основанный на его безусловных рефлексах. Неслучайно на современных концертах MESHUGGAH с группой ездит специальный человек, отвечающий за соответствующее световое оформление каждой песни. Видимо, подобная находка вгоняет фэнов в совсем уж безсознательный транс, и в этом случае концерты проходят с большим успехом.</p><p>Новый альбом музыкантов прекрасно укладывается в рамки их творчества. Великолепная технологичная реализации. Должный набор крышесрывающих кривых риффов. Проверено на себе, они действительно погружают в транс даже в общественном месте. По этой причине диск не рекомендуется к прослушиванию за рулём и в местах скопления полиции, которая может принять вас за перебравшего дури наркомана. Поклонники MESHUGGAH останутся очень довольны услышанным, это обязательно.</p><p>Приобретайте в магазине Escapemind.ru: <a href="http://escapemind.ru/goods/MESHUGGAH-The-Violent-Sleep-of-Reason-digi">http://escapemind.ru/goods/MESHUGGAH-The-Violent-Sleep-of-Reason-digi</a></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### MESHUGGAH

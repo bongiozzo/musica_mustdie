@@ -26,6 +26,14 @@ Fotis - Drums & Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.04.2005 news Новый проект бывших музыкантов SEPTIC FLESH
+
+<P><STRONG>THE DEVILWORX</STRONG>, так называется новый проект, основанный бывшими музыкантами греческой&nbsp;группы <STRONG>SEPTIC FLESH. </STRONG>В него входят басист-вокалист <STRONG>Spiros Antoniou, </STRONG>гитарист <STRONG>Chris Antoniou</STRONG> и ударник <STRONG>Fotis </STRONG>(задействованный также в <STRONG>NIGHTRAGE</STRONG>). Группа записывает новый материал, вместе с московским <STRONG>Symphonic Film Orchestra</STRONG> (который принимал участие в записи музыки к фильму "Восставший из ада - 4". Уже сейчас можно скачать предварительные миксы двух композиций <STRONG>"<A href="http://www.thedevilworx.com/wrath.mp3">Wrath</A>"</STRONG> и<B>"<A href="http://www.thedevilworx.com/sloth.mp3">Sloth</A>".</B></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

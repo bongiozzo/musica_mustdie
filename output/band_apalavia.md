@@ -8,6 +8,9 @@ brutal genital grindcore from France
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

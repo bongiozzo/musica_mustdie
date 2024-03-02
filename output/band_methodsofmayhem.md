@@ -36,6 +36,24 @@ Steve Duda  -  Programming
 
 * C группой "Motley Crue" Tommy Lee
 
+## Публикации
+
+### 19.03.2002 news Новый проект Томми Ли...
+
+<p><IMG SRC="/images/news_rus/2002.03/2533.jpg" ALT="Tommy" width="200" height="200" hspace="15" vspace="5" border="0" align="left" /> Бывший барабанщик "MOTLEY CRUE" и основатель "METHODS OF MAYHEM" &ndash; Tommy Lee &ndash; собрал новый проект на обломках "Методов". К нему присоединились гитарист J3, барабанщик Will Hunt (SKRAPE, ex-STUCK MOJO) и бассист KILGORE &ndash; Marty O'Brien. Новая инкарнация команды приготовила диск "Never A Dull Moment" для релиза на MCA Records 21-го мая.</p>
+
+Автор: Yermola
+
+### 19.03.2002 news TOMMY LEE Secures New Band Line-Up...
+
+<p><IMG SRC="/images/news_rus/2002.03/2533.jpg" ALT="Tommy" width="200" height="200" hspace="15" vspace="5" border="0" align="left" /></p>
+<P>Former MOTLEY CRUE drummer Tommy Lee has been joined by new guitarist J3 and drummer Will Hunt (SKRAPE, ex-STUCK MOJO) in the latest incarnation of his solo band (previously known as METHODS OF MAYHEM), whose sophomore CD, entitled Never A Dull Moment, is due to be released through MCA Records on May 21st. </P></>
+<P>In related news, SKRAPE (featuring the aforementioned Hunt on drums) have parted ways with guitarist Brian Milner and have replaced him with ex-GHETTOBLASTER axeman Randy Melsner. Prior to Hunt's decision to link up with Lee, SKRAPE was working on the material for the group's second album, which is still believed to be in the planning stage for a late 2002 release through RCA Records. </P></>
+<P>Interesting fact: Will Hunt had listed MOTLEY CRUE's Shout At The Devil as one of his top five recordings of all-time in the “personal bio” section of SKRAPE's official web site at www.skrape.com. </P></>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -44,6 +44,27 @@ Barry Sparks  -  Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.03.2002 news ROYAL HUNT: Solo Releases, European Tour Announced ....
+
+<p>ROYAL HUNT leader and main songwriter Andre Andersen will issue his second solo CD, entitled Black On Black, via Frontiers Records/Now & Then Productions in June. Featuring appearances by ELEGY singer Ian Parry, plus Rene Rieland on guitars and Kaj Laege on drums, the album will include the following tracks: <BR><BR> 01. Coming Home<BR> 02. Tell Me Why<BR> 03. Arena<BR> 04. Desperate Times<BR> 05. Life<BR> 06. Black On Black<BR> 07. Eclipse<BR> 08. Sail Away<BR> 09. Piece Of My Heart<BR><BR> In other ROYAL HUNT-related news, the new solo project from singer John West, dubbed EARTHMAKER, will issue its debut CD in late summer through Frontiers Records/Now & Then Productions. Featuring appearances by Chris Caffery (SAVATAGE) and Mike Chlasciak (HALFORD) on lead guitars, Lonnie Park (COZY POWELL, JOHN WEST) on keyboards, Ray Riendau (HALFORD) on bass, and Bobby Jarzombek (HALFORD) on drums, the album will include the following cuts, among others:<BR><BR> 01. Sleep of The Dead<BR> 02. Earthmaker<BR> 03. Soul To Soul<BR> 04. Love Is Pain<BR> 05. Stand Sentinel<BR> 06. Soul Of The Beast<BR> 07. Warrior Spirit<BR> 08. White Man Red Man<BR> 09. Mystic Wings<BR> 10. When Worlds Collide<BR><BR> Also on the ROYAL HUNT front, the group will be supporting PRETTY MAIDS on the latter group's upcoming European tour. The tentative dates are as follows:<BR><BR> Apr. 04 – Sшnderborg, DEN @ Sшnderborghus <BR> Apr. 05 - Еrhus, DEN @ Train <BR> Apr. 06 - Copenhagen, DEN @ Pumpehuset <BR> Apr. 08 – Hamburg, GER @ Markthalle <BR> Apr. 09 - Bochum, GER @ Zeche <BR> Apr. 10 - Verviers, BEL @ Spirit of 66 *<BR> Apr. 11 - Mьnchen, GER @ Georg-Elser Halle <BR> Apr. 12 – Pratteln, SWI @ Z7 <BR> Apr. 13 - Offenbach, GER @ Hafenbahn <BR> Apr. 15 - Ulm, GER @ Take Off <BR> Apr. 16 - Nьrnberg, GER @ Hirsch <BR> Apr. 17 - Ludwigsburg, GER @ Rockfabrik <BR> Apr. 19 – Barcelona, SPA @ Mephisto <BR> Apr. 20 – Bergara, SPA @ Jam <BR> Apr. 21 – Madrid, SPA @ Ritmo Y Compas <BR> Apr. 23 - Milan, ITA @ Indian's Saloon *<BR> Apr. 24 – ITA @ TBA *<BR> Apr. 25 – FRA @ TBA *<BR> Apr. 26 - FRA @ TBA *<BR> Apr. 27 - FRA @ TBA *<BR> Apr. 28 – Paris, FRA @ Elysee Montmartre (w/VANDEN PLUS, TEN) <BR><BR> * ROYAL HUNT only</p>
+
+Автор: Yermola
+
+### 24.04.2006 news Новый сольник John West
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Четвёртый сольник <STRONG>John West "Long Time... No Sing"</STRONG> выходит 9 июня на <STRONG>Frontiers</STRONG>. В работе над альбомом приняли участие музыканты <STRONG>SAVATAGE</STRONG>:<STRONG> Chris Caffery</STRONG> (клавиши, гитара)&nbsp;и&nbsp;<STRONG>Jeff Plate</STRONG> (барабаны). Трэк-лист:</FONT></P>
+<P><IMG height=183 alt="" hspace=0 src="/images/news_rus/2006.04/10281.jpg" width=183 align=right border=5>1. <STRONG>Let Us Pray</STRONG><BR>2. <STRONG>Fade: Set Me Free</STRONG><BR>3. <STRONG>Give Me A Sign</STRONG><BR>4. <STRONG>Highway Roppongi</STRONG><BR>5.<STRONG> Over My Head</STRONG><BR>6. <STRONG>The One That Got Away</STRONG><BR>7. <STRONG>Falling Down <BR></STRONG>8. <STRONG>Slipping Away</STRONG> <BR>9. <STRONG>One More Lie</STRONG><BR>10.<STRONG> Better Believe</STRONG> <BR>11. <STRONG>Puerto Amor</STRONG>&nbsp;</P>
+Автор: Vit Belov
+
+### 06.09.2006 reviews Повесть о настоящем индейце
+
+<P>Новый альбом вокалиста Royal Hunt Джона Веста разительно отличается от его прошлой работы “Earth Maker”. Смыл Джон боевую раскраску с лица и зарыл топор войны. Сразу подобрел, и бросил заниматься всякими глупостями – играть сумбурную безхитовую бестолковую музыку. В настоящее время Вест значительно облегчил саунд – вышло нечто среднее между современным мелодик роком и классическим хардом. На альбоме всего одна, относительно тяжелая вещь – вязкая с модными элементами эмо-кора (очень хотелось вставить хоть куда-нибудь этот прогрессивный и актуальный термин, уж простите, если что не так :) “One More Lie”. Ну и самое главное, Джон сильно поднапрягся и написал массу отличных мелодий. Одни из них могут быть охарактеризованы как мегарулезные. Такие как (примеры) - ультрамелодичные “Give Me a Sign” и “Set Me Free”, почти копия одной известной «белозмейной» блюз-баллады “Highway To Roppоngi”, «диппёполоподобная» “Falling Down”, красивейшая балладка “Better Believe” и воздушная инструменталка “Puerto Amor” (гитара автора, те J. Веста). Другие, т.е. остальные, песни стоит признать зачётными и годными для многоразового прослушивания. И никаких исключений и провалов. Альбом явно удался, и даже не на фоне беззубого и незатейливого «Землесоздателя», а вообще. Значительное культурное достижение, или близкое к этому&nbsp;:)</P>
+<P>Диск предоставлен <A href="http://www.darkdivision.ru/">Dark Division</A></P>
+Автор: Дофф
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.05.2010 news Новый альбом AEON NOCTIS 
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2010.05/16682.jpg" width=400 align=right border=5>23 апреля на <STRONG>Grailight Productions</STRONG> вышел второй альбом белорусской Symphonic Dark Black Metal группы<STRONG> AEON NOCTIS</STRONG> – “<STRONG>Between Thorns and Silence</STRONG>”! </P>
+<P>Пресс-релиз: "<EM>Интереснейшие, лишенные едкого пафоса клавишные аранжировки, неумолимая агрессия классического Black Metal, нестандартность от стиля Darkwave, разнообразие и авангардность композиционного построения – альбом, безусловно, привлечёт к себе пристальное внимание любителей мелодичного экстремального и нестандартного метала!</EM>"</P>
+<P>Диск вышел в формате эксклюзивного коллекционного шестипанельного digipack с красивым оригинальным оформлением. </P>
+<P>Трэк-лист:</P>
+<P>1.<STRONG> Pad Zorkai Praklionu (Under the Star of Damnation) <BR></STRONG>2. <STRONG>Shades of Frozen Sunset</STRONG><BR>3. <STRONG>Intra Hostis<BR></STRONG>4. <STRONG>…As Times of Eclipse Come</STRONG><BR>5. <STRONG>Пагоня (The Chase)<BR></STRONG>6. <STRONG>Spells of Solitude</STRONG><BR>7. <STRONG>Behold as Dying Leaves Fall Down</STRONG><BR>8. <STRONG>Autumn Pyre Renaissance</STRONG><BR>9. <STRONG>The Dawn of Twilight Aeon</STRONG><BR>10. <STRONG>Sword of Time</STRONG></P>
+<P><A href="http://www.myspace.com/grailight">www.myspace.com/grailight</A><BR><A href="http://www.myspace.com/aeonnoctis">www.myspace.com/aeonnoctis</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

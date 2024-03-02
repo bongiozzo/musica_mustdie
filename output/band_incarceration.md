@@ -21,6 +21,19 @@ X - Into the Blackest Void
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.08.2016 news Лирик-видео INCARCERATION
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Лирик-видео <strong>"Evoking The Possession"</strong> с дебютного альбома бразильской death metal банды <strong>INCARCERATION "Catharsis"</strong>, который выйдет 28 октября на <strong>FDA Rekotz</strong>, доступно к просмотру ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>I - The Beckoning<br>II - Evoking the Possession<br>III - Devouring Darkness<br>IV - Infernal Suffering<br>V - Chaos and Blasphemy<br>VI - Purification<br>VII - Obsessed by Death<br>VIII - Neverending Agony<br>IX - Resignation<br>X - Into the Blackest Void</p><p>center><iframe width="560" height="315" src="https://www.youtube.com/embed/sxo_vpwzmSE" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 23.08.2016 news Lyric video of INCARCERATION
+
+<p>Lyric video "<strong>Evoking The Possession</strong>" from the debut album of the Brazilian death metal band <strong>INCARCERATION</strong>, "<strong>Catharsis</strong>", which will be released October 28 on <strong>FDA Rekotz</strong>, is available for viewing below.</p><p>Track list:</p><p>I - The Beckoning<br>II - Evoking the Possession<br>III - Devouring Darkness<br>IV - Infernal Suffering<br>V - Chaos and Blasphemy<br>VI - Purification<br>VII - Obsessed by Death<br>VIII - Neverending Agony<br>IX - Resignation<br>X - Into the Blackest Void</p><p>center><iframe width="560" height="315" src="https://www.youtube.com/embed/sxo_vpwzmSE" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

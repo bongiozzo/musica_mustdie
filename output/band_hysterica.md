@@ -22,6 +22,31 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.03.2011 news Девушки зажигают!
+
+<P>Совсем скоро, накануне 8 марта состоится российский тур<STRONG> Metal Valkyries</STRONG> в рамках которого нашу страну посетят шведские металлистки - <STRONG>Hysterica</STRONG> (heavy metal) и <STRONG>Frantic Amber</STRONG> (melodic death metal). Апогеем этого тура станет<STRONG> фестиваль Железные Девы</STRONG>, который уже в пятый раз пройдёт в Калуге. Россию на этом фестивале представят группы <STRONG>Вольная Стая</STRONG> (heavy metal),<STRONG> Blackthorn</STRONG> (sympho metal) и <STRONG>Little Black Dress</STRONG> (gothic metalcore). Примечательно, в составах всех пяти групп, принимающих участие в фестивале, метал нарезают очаровательные девушки, ни одного мужчины!</P>
+<P>Не пропустите этот уникальный металлический праздник металла с женским лицом!</P>
+<P>5 марта - Рязань, клуб Hollywood<BR>6 марта - Тула, ДК Машзавода<BR>7 марта - Калуга, ОМЦ, Фестиваль Железные Девы-5<BR>8 марта - Москва, клуб Каста</P>
+<P><STRONG><A href="http://rockaluga.ru/2011/afisha/7-03-kaluga-zheleznyie-devyi-2/">http://rockaluga.ru/2011/afisha/7-03-kaluga-zheleznyie-devyi-2/</A></STRONG></P>
+<P>&nbsp;</P>
+<P>
+<CENTER><IMG height=381 src="/images/news_rus/2011.03/18788.jpg" width=604 border=0><IMG height=285 src="/images/news_rus/2011.03/18787.jpg" width=604 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.04.2011 news Концертное видео FRANTIC AMBER
+
+<P>Профессиональное видео шведских death metal валькирий<STRONG> FRANTIC AMBER</STRONG> на песню <STRONG>"Bloodlust"</STRONG>, которое было снято 7 марта 2011 года во время выступления группы на фестивале Железные Девы в Калуге, доступно для просмотра ниже. Напомним,<STRONG> FRANTIC AMBER</STRONG>, в обойме со шведскими heavy-металлистками <STRONG>HYSTERICA</STRONG>, посетили Россию с туром <STRONG>Metal Valkyries</STRONG> в марте этого года. Апофеозом этого тура и стало выступление на фестивале Железные Девы в Калуге перед шестью сотнями металхэдов!</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2b9cMVq41E8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2b9cMVq41E8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

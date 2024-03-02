@@ -41,6 +41,35 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2011 news Новое видео BLINDEAD
+
+<P>Новый клип группы <SPAN><SPAN class=whiteMedium><STRONG>BLINDEAD </STRONG>на песню <STRONG>"Affliction XXVII II MMIX" </STRONG>можно посмотреть ниже. В состав коллектива входит бывший гитарист<STRONG> BEHEMOTH</STRONG> <STRONG>Mateusz "Havoc" Smierzchalski. </STRONG>Режиссёром ролика выступил <STRONG>Roman Przylipiak.</STRONG></SPAN></SPAN></P>
+<P><SPAN><SPAN class=whiteMedium>Третий альбом <STRONG>BLINDEAD "Affliction XXIX II MXMVI", </STRONG>с которого взята эта песня, вышел а апреле прошлого года на <STRONG>Mystic Production</STRONG>.</SPAN></SPAN></P>
+<P><SPAN><SPAN class=whiteMedium></SPAN></SPAN>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/VBCYnKooC-I?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/VBCYnKooC-I?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.11.2011 news BLINDEAD: обращение в преддверии концертов в России 
+
+<P>В преддверии концертов в России поляки BLINDEAD записали короткое обращение:</P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/-97x66GpdGk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;</CENTER>
+<DIV align=left>Концерты состоятся:</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>19.11 - <STRONG>СПб</STRONG> @ АрктикА: <A href="http://vkontakte.ru/event30782660">http://vkontakte.ru/event30782660</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>20.11 -&nbsp;<STRONG>Мск</STRONG> @ Plan B: <A href="http://vkontakte.ru/event30784184">http://vkontakte.ru/event30784184</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

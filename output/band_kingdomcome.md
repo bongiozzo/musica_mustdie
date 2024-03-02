@@ -264,6 +264,490 @@ Feeding The Flame
 * C группой "At Vance" Mark Cross (Drums)
 * C группой "Nightfall" Mark Cross (Drums)
 
+## Публикации
+
+### 06.09.2001 news Новый барабанщик HELLOWEEN ...
+
+<p>Судя по циркулирующим в сети слухам, новым барабанщиком "HELLOWEEN" станет Mark Cross (METALIUM/ex-KINGDOM COME). Правда в настоящее время он занят записью третьего диска METALIUM - "Chapter III". Официальных заявлений по этому поводу пока не было...</p>
+
+Автор: Yermola
+
+### 06.09.2001 news Mark Cross is strongly rumored to have joined HELLOWEEN ....
+
+<p>METALIUM/ex-KINGDOM COME drummer Mark Cross is strongly rumored to have joined HELLOWEEN as a replacement for the recently departed Uli Kusch, who is presently playing in a new band with ex-HELLOWEEN guitarist Roland Grapow. At the time of his alleged departure from METALIUM, Cross had been working with the band on their upcoming third full-length CD, tentatively titled Chapter III, which is scheduled for an early 2002 release through Locomotive Music. No official statement has yet been issued by either camp. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Независимый...
+
+<p><IMG SRC="/images/news_rus/2002.08/3043.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> Немцы "KINGDOM COME" во главе с Ленни Вольфом завершили работу над третьим альбомом "Independent". Диск писался в Гамбургской Impuls studio и выйдет в продажу 14 октября через новый лэйбл UlfTone Music.....</p>
+
+Автор: Yermola
+
+### 20.08.2002 news KINGDOM COME Complete Work On &quot;Independent&quot; ...
+
+<p><IMG SRC="/images/news_rus/2002.08/3043.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> Germany's KINGDOM COME, led by frontman Lenny Wolf, have completed work on their new album, entitled Independent, at Hamburg's Impuls studio for an October 14th release through new label UlfTone Music (based out of Berlin).</p>
+
+Автор: Yermola
+
+### 22.10.2002 articles Новинки лицензионного рынка (21.10 - 28.10)
+
+<p>В данных заметках, мы постараемся доносить до Вас всё то, новое, что Вы можете обнаружить на прилавках магазинов на этой неделе. Оценок не ждите… Всё в рубрике рецензии.</p>
+<p> Начнём по алфавиту. ART Music Group на прошлой неделе представила на наш суд четыре новые позиции.<IMG SRC="/images/articles_rus/2002.10/3294.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> <IMG SRC="/images/articles_rus/2002.10/3295.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">Сенсацией стало появление на лицензии по вполне доступным ценам нового альбома Kingdom Come “Independent”. Можно не разбираться в рок-музыке прошлого века, но не знать этого коллектива нельзя. Оценивать новое творение, оставим специалистам, но не признать того, что Ленни Волф – новая величина на лицензионном рынке нельзя. Спасибо AMG! Второй новиной, по известности, стал новый альбом Mystic Circle “Damien”. На прошлом альбоме группа отошла от black в сторону death. Что сейчас? Читайте <a href=”http://musica.mustdie.ru/ru/band/mystic_circle/6603/#reviews”>здесь</a>. И две последние не вполне известные группы. Medusa со своим sympho-power и Inner Shrine с gothic-metal.</p>
+<p> CD-Maximum представят на этой неделе нашему вниманию две новинки. <IMG SRC="/images/articles_rus/2002.10/3296.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">.<IMG SRC="/images/articles_rus/2002.10/3293.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> Trollheim's Grott "Bizzare Troll Technology" – альбом 2001 года, анонсирован, как нестандартный black-metal. И новый альбом группы Arwen, представляющий собой power-metal с прогрессивными элементами. Эти испанцы из конюшни Arise Records, на которой могут быть, как очень хорошие группы, так и откровенно слабые, но всё равно любителям power стоит попробовать.</p>
+<p> Следом идёт Fono, со своими новинками прошлой недели. Во-первых, это новый альбом Rotting Christ. Если Вы ещё его не купили на пиратке, купите лучше на лицензии. И ещё одна новинка по лицензии Century Media Borknagar “Quintessence”. Альбом начала этого года уже стал редкостью на рынке пиратов. Вперёд black-metal!</p>
+<p> Irond Records – контора, у которой без новинок не проходит ни одна неделя.<IMG SRC="/images/articles_rus/2002.10/3297.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="left">.<IMG SRC="/images/articles_rus/2002.10/3298.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="right"> На этот раз настоящей бомбой станет новый альбом Lake Of Tears “Neonai”. Пускай его уже тысячными тиражами продают пираты, настоящий любитель ждёт именно этого релиза. Вторым по значению стал подарок фэнам немецкой folk музыки – новый альбом Morgenstern, которые продолжают гнуть свою “In Extremo” подобную линию. Два следующих релиза Frown и Poema Arcanus представляют собой практически идентичные альбомы в жанре doom-metal – тяжёлые и медленные. Ну и напоследок Abaddon Incarnate. Irond не стесняется указывать весьма средние оценки в прессе для этого альбома, ведь это death-grind “молотилово», кто его поймёт кроме самого преданного фэна.</p>
+<p> Ну и последними по алфавиту стали и, видимо, останутся Soyuz, которые продолжают разрабатывать ниву Inside Out Records. На этой неделе всё-таки выйдут два старых альбома Symphony X. А на прошлой появились три старых альбома My Dying Bride, и альбом Anathema “Silent Enigma” (это уже, естественно, Peaceville).</p>
+<p>Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 28.08.2003 news KINGDOM COME вошли в студию для записи нового альбома
+
+<p>KINGDOM COME войдут в студию сегодня для записи своей новой пластинки, которая выйдет в начале 2004 года на UlfTone Music. Говорит брат Lenny Wolf, а по совместительству и web-master их сайта, Marko: "<b>Для меня лично это лучший материал, который когда-либо записывала группа. На новой записи будут песни, похожие на 'Mother' и 'Religion Needs No Winner' с прошлого альбома 'Independent'. От атмосферности до гитар из ада. Произошли такие изменения, что я просто не могу их описать.</b>"</p>
+
+Автор: Vit Belov
+
+### 18.03.2004 news Kingdom Come назвали новый альбом
+
+KINGDOM COME закончили запись нового альбома. Ему дано название <B>"Perpetual",</B> и он выйдет летом на <B>UlfTone Music</B>.
+Автор: Vit Belov
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 17.10.2004 reviews Вечный Ленни
+
+<P><B>Новейший альбом культового проекта “Kingdom Come” сделан по рецепту предыдущего, многими, мягко скажем, нелюбимого альбома “Independent”. Плохо это или хорошо, решает каждый сам для себя. Но могу сказать с уверенностью, что тех, кто хочет от Лени «работы над ошибками» и бодренького блюз-хардового диска, в духе ранних дисков, ждет встреча с красивой птичкой обломинго, с пестрым оперением. Кажется,&nbsp;ему наплевать на фанатов. Он делает то, что считает нужным и нравится лично ему.</B></P>
+<P><B>“Perpetual” так же медленен и тягуч, как и «Independent». Зануден, скажут многие. Ну, для кого-то и дум-метал кажется занудным. Плюс к тягучести, “Perpetual” еще и тяжелее. По звучанию гитары с пониженным строем и мощным, близким к инфразвуку, басам, можно проверять на качество домашнюю акустику. </B></P>
+<P><B>Стоит отметить, что мелодий на “Perpetual” все ж побольше. Один потенциальный хит – “Silhouette Paintings” - точно есть. Да и остальные песни вполне симпатичны. Особенно на первой половине. Зацепил меня этот альбом. Еще недавно, как все, я считал “Independent” провалом, а, находясь под впечатлением от новейшего творения Ленни, переслушал его, и словно заново услышал. А потом поставил любимейший “Hands Of Time”, и как то совсем не пошло. Сопли…</B></P>
+<P><B>Время идет всё меняется. И вкусы тоже…</B></P>
+<P><B>PS. Ну как не высказать благодарность музыканту за песню “Crown Of Moscow”. Помнится, еще на сцене Кремлевского дворца Ленни выразил своё восхищение своим пребыванием в самом центре России. Это и нашло своё отражение в этой великолепной песне. Респект.</B></P>
+<P><I>Диск выпущен по лицензии компанией <A href="http://artmusic-group.ru/" target=_blank>AMG</A></I></P>
+Автор: Дофф
+
+### 04.05.2005 news Lenny опять кормит обещаниями
+
+<P>Лидер <STRONG>KINGDOM COME Lenny Wolf</STRONG> сообщил, что начинает работать над новым альбомом группы. В этот раз обещается&nbsp;более риффоориентированная пластинка.&nbsp;</P>
+Автор: Vit Belov
+
+### 05.04.2006 news Новости от KINGDOM COME
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выход долгожданного нового альбома немецких хар</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>д-рокеров <STRONG>KINGDOM COME</STRONG> намечен на 15 сентября 2006 года. После чего, музыканты отправятся в американское турне вместе с <STRONG>HELLOWEEN</STRONG>.</FONT></P>
+Автор: Dimas
+
+### 25.07.2006 news KINGDOM COME анонсировали название своего нового альбома
+
+<P><IMG height=204 alt="" hspace=10 src="/images/news_rus/2006.07/10558.jpg" width=300 align=left border=0>Новый альбом группы<STRONG> KINGDOM COME</STRONG> будет называться <STRONG>"Ain't Crying for the Moon". </STRONG>Ранее сообщалось, что европейский релиз альбома запланирован на 15 сентября. Теперь, дата релиза отложена на 13 октября. Однако, российские поклонники <STRONG>KINGDOME COME</STRONG> могут не волноваться. <STRONG>CD-Maximum</STRONG> выпустит новый альбом, как и обещалось, на месяц раньше официального релиза.<BR>Из других новостей: в группу вернулся басист <B>Frank Binke</B>. В октябре, коллектив отправится в турне вместе с <STRONG>HELLOWEEN</STRONG>. Российский тур коллектива запланирован на ноябрь.</P>
+Автор: Dimas
+
+### 27.07.2006 news Подробности о новом альбоме KINGDOM COME
+
+<P><STRONG>Frontiers Records</STRONG> анонсировал дату выхода нового альбома <STRONG>KINGDOM COME "Ain't Crying For The Moon"</STRONG> - 20 октября. Новый альбом, по словам Ленни Вольфа будет самым тяжелым в дискографии коллектива, комбинацией плотного гитарного звука и воздушной атмосферы, без всяких экспериментов в том числе блюзовых. Помимо новых песен, в него войдет записанный заново хит <STRONG>"Get It On"</STRONG> с дебютного альбома группы 1988 года. Окончательный трек-лист альбома:</P>
+<P><BR><IMG height=233 alt="" hspace=50 src="/images/news_rus/2006.07/10567.jpg" width=257 align=right border=0>1. <B>Two Legged Sheep</B><BR>2. <B>Not Here To Be Your Friend</B><BR>3. <B>Same Old Stars</B><BR>4. <B>Ain't Crying For The Moon</B><BR>5. <B>Perfect Citizen</B><BR>6. <B>This Is My Life</B><BR>7. <B>Bon Scott</B><BR>8. <B>Removed The Sting</B><BR>9. <B>Friends In Spirit</B><BR>10. <B>Darkroom</B><BR>11. <B>Look At You</B><BR>12. <B>Across The Universe</B><BR>13. <B>Get It On</B> (2006 version)</P>
+<P><BR>Напомним, что российский релиз на <STRONG>CD-Maximum</STRONG> увидит свет 18 сентября, на месяц раньше, чем во всем остальном мире.</P>
+Автор: Dimas
+
+### 01.02.2007 reviews Плохой театр одного плохого актера
+
+<P>Вот уже практически 20 лет носится уроженец Гамбурга Ленни Вольф со своим детищем под названием Kingdom Come. "Ain't Crying For The Moon" это, если не ошибаюсь, десятая студийная работа данного проекта (ибо о группе как таковой говорить сейчас не приходится). Сам Вольф называет "Ain't Crying For The Moon" самым тяжелым альбомом за всю историю Kingdom Come. Да и пожалуйста, нам от этого ни жарко, ни холодно. После некоторых экспериментов на предыдущих релизах Ленни вернулся, как говорят, к корням. Но никакого успеха ему ждать с этой работой не придется. Вымученные песни, неоригинальные риффы, перепродюсирование записи (какой-то примодерненный хард-рок получился, простите за дурацкое слово, притом с альтернативным привкусом), ужасное оформление буклета (я б на месте Томаса Эверхарда сгорел от позора за такое убожество)... А перевод куплета из перепевки старого хита 'Get It On' на русский вам как? Да за такое прилюдно пороть надо. Эксклюзивчик, блин. "И время щас пришло..."&nbsp;Хорошо, что хоть битловскую 'Across The Universe' умудрились неокончательно испоганить...&nbsp;Стоит ли говорить, что ни одна песня не запомнилась, не зацепила? И всё это безобразие длится к тому же больше часа. Не уверен, что даже упертые фанаты Kingdom Come будут рады этому альбому...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 02.11.2007 news KINGDOM COME в Москве
+
+<CENTER><IMG height=284 src="/images/shows_rus/2007.12/11995.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 13.11.2007 news KINGDOM COME едут в Россию!
+
+<P><STRONG>KINGDOM COME</STRONG> объявили даты тура по России. Интересно, что группа выступит 26 ноября в Хабаровске, 27 ноября во Владивостоке, а 29 ноября в Доме Офицеров Петропавловска-Камчатского. Отдыхать музыканты приедут 1 декабря в Москву и второго декабря в Санкт-Петербург.</P>
+Автор: Vit Belov
+
+### 30.11.2008 news KINGDOM COME закончили запись
+
+<P>Новый альбом <STRONG>KINGDOM COME</STRONG> записан. Подробности пока не сообщаются, но предположительно пластинка выйдет в феврале. Также на официальном сайте группы написано, что <STRONG>Lenny </STRONG>споёт одну песню дуэтом с&nbsp;женщиной.</P>
+Автор: Vit Belov
+
+### 20.01.2009 news Новый альбом KINGDOM COME
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.01/13404.jpg" width=300 align=right border=5>Новый альбом <STRONG>KINGDOM COME</STRONG> <STRONG>"Magnified" </STRONG>выйдет 27 февраля на <STRONG>Planet Music</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Living Dynamite</B><BR>02. <B>No Murderer I Kiss</B><BR>03. <B>24 Hours</B><BR>04. <B>So Unreal</B><BR>05. <B>When I Was</B><BR>06. <B>Over You</B><BR>07. <B>Sweet Killing</B><BR>08. <B>Unwritten Language</B><BR>09. <B>Hey Mama</B><BR>10. <B>The Machine Inside</B><BR>11. <B>Feeding The Flame</B></P>
+Автор: Vit Belov
+
+### 02.02.2009 news Сэмплы KINGDOM COME
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>KINGDOM COME "Magnified"</STRONG> выходит 27 февраля. Сэмплы пяти новых вещей <STRONG>Lenny Wolf</STRONG> можно послушать на его <STRONG>MySpace</STRONG> страничке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/lennywolf">http://www.myspace.com/lennywolf</A></FONT></P>
+Автор: Vit Belov
+
+### 07.03.2009 news SCORPIONS объявили даты мегатура
+
+<P><STRONG>SCORPIONS</STRONG> выложили на своём сайте даты тура по России, в который они поедут вместе с <STRONG>KINGDOM COME</STRONG>, <STRONG>THE RASMUS</STRONG> и <STRONG>ALICE COOPER</STRONG>.</P>
+<P>15.06 - Санкт-Петербург, СКК<BR>16.06 - Ростов-На-Дону, Стадион СКА<BR>18.06 - Екатеринбург, ДС<BR>20.06 - Новосибирск, Ипподром<BR>22.06 - Хабаровск, Платинум Арена<BR>24.06 - Красноярск, Стадион "Центральный"<BR>26.06 - Владивосток, Стадион "Динамо"<BR>28.06 - Москва, Олимпийский</P>
+Автор: Vit Belov
+
+### 01.06.2009 articles Фестивальный Тур &quot;Монстры Рока&quot;, пресс-релиз
+
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><IMG height=177 alt="" hspace=5 src="/images/articles_rus/2009.06/14186.jpg" width=400 align=right vspace=5 border=0>Scorpions/ Alice Cooper/ The Rasmus/ Kingdom Come</SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><?xml:namespace prefix = o ns = "urn:schemas-microsoft-com:office:office" /><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">28 </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">июня</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> 2009/ </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Москва</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">/ </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">СК</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> «</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Олимпийский</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">»<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Концертное</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">агентство</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Talent Concert International (T.C.I.) </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">объявляет</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">даты</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">грандиозных</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">концертов</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">с</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">участием</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">лидеров</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">мировой</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">музыкальной</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">рок</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">-</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">сцены</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">групп</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Scorpions, Alice Cooper, The Rasmus </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">и</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Kingdom Come. </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Выступления пройдут на главных спортивных аренах городов вместимостью до 30,000 человек. В рамках беспрецедентного по своим масштабам российского тура, который охватит семь крупнейших городов страны, участники представят свои новые концертные программы в поддержку свежих релизов, а также сыграют самые яркие хиты из золотых архивов.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Идейными вдохновителями предстоящих концертов, в ходе которых зрители увидят выступления сразу четырех популярнейших рок-групп, стали участники группы Scorpions. Российский тур 2008 года, в рамках которого команда отыграла в 12 городах страны, показал, что Scorpions являются одной из лучших концертных групп в мире и как никогда востребованы у российских слушателей. В этот раз немцы решились инициировать еще более масштабное шоу, для участия в котором пригласили своих талантливых коллег из Alice Cooper, The Rasmus и Kingdom Come.<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>Выпустив новые пластинки, участники этих коллективов принялись шлифовать новый материал и вспоминать старый.<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>И не случайно - хард-рок волна накроет Россию уже в июне.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Концерты во всех городах тура откроет своим выступлением Kingdom Come, основанная еще в 1980-х Ленни ВУЛФОМ (Lenny WOLF) и быстро завоевавшая себе место под американским солнцем рока. В настоящий момент немцы заканчивают работу над своим новым альбомом "Magnified", релиз которого в России, по информации "CD-Maximum", состоится 5 марта. На новой пластинке музыканты синтезировали современный индастриал и мистику с традиционным гитарным звучанием Kingdom Come. В программу выступления войдут лучшие композиции с предыдущих альбомов группы. Также группа порадует поклонников новинками с последнего альбома.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Вторыми выступят The Rasmus. Главные финские поп-рокеры по-прежнему одеты в черное и не пренебрегают игрой с готическим антуражем. В прошлом году группа выпустила альбом "Black Roses", продюсерами которого стали Дезмонд ЧАЙЛД (Desmond CHILD) и Гэрри СОММЕРДАЛЬ (Harry SOMMERDAHL), и тут же отправилась в турне в поддержку нового альбома. На предстоящих концертах The Rasmus представят российским поклонникам программу нового альбома, а также сыграют излюбленные миллионами поклонников по всему миру "In theShadows", "First Day of My Life", "Funeral Song" и другие не менее яркие композиции.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Эстафету The Rasmus передадут королю ужасов Alice Cooper. Уже более 30 лет группа уверенно занимает свое место в ряду самых ярких участников мировой рок-сцены, регулярно записывает альбомы и ездит по всему миру с концертами, не переставая удивлять эпатажным перфомансом старых поклонников и завоевывать новых. «До того, как король шок-рока из Детройта напряг свое &lt;...&gt; воображение и поставил гастроли на поток, рок-концерты представляли собой вполне приличные мероприятия», - пишет журнал "Classic Rock". И добавляет: «Все это кануло в небытие после появления Элиса с его сценическим обезглавливанием, электрическим стулом, отрубанием голов куклам Барби, швырянием петухами и казнью через повешенье». Среди ближайших друзей и почитателей творчества Alice Cooper группы Kiss, Marilyn Manson, David BOWIE, Nine Inch Nails, Metallica, Iggy & The Stooges, Lou REED, Slade, T. Rex, The Runaways, Guns N' Roses, Aerosmith, Sex Pistols, Ramones, Twisted Sister, Megadeth, Мадонна, W.A.S.P. и The Rolling Stones. Alice Cooper автор десятков мировых хитов и музыкальных бестселлеров.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Новый шок-рок альбом "Along Came A Spider" группа представила в августе прошлого года. В записи пластинки приняли участие барабанщик Эрик СИНГЕР (Eric SINGER) (Kiss, Ex-Black Sabbath, Ex-Badlands), СЛЭШ (SLASH) (Velvet Revolver, Ex-Guns'n'Roses) исполнил соло в "Vengeance Is Mine", а в "Wake The Dead" на губной гармошке сыграл Оззи ОСБОРН (OzzyOSBOURNE), который также выступил одним из соавторов трэка. Продюсерами альбома стали Грег ХЭМПТОН (Greg HAMPTON) и Денни СЭЙБЕР (Danny SABER), ранее работавшие с The Rolling Stones, Оззи ОСБОРНОМ, Дэвидом БОУИ (David BOWIE) и Мадонной. В рамках летнего тура Alice Cooper представит российским зрителям программу нового альбома и сыграет хиты прежних лет, в том числе "Poison" , "No More Mr. Nice Guy", "Billion Dollar Babies" и другие.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Завершится концерт полуторачасовым выступлением легендарных Scorpions. Завоевавший ни один континент и миллионы сердец слушателей по всему миру замечательный голос вокалиста Клауса МАЙНЕ (Klaus MEINE) с его яркой экспрессией, необычайно мощные рифы и ослепительные витиеватые соло гитаристов Рудольфа ШЕНКЕРА (Rudolf SCHENKER) и Матиаса ЯБСА (Matthias JABS), ураганная энергетика Джеймса КОТТАКА (James KOTTAK) - привычные характеристики знаменитых немцев, которые достались им более чем за три десятилетия уверенного пребывания на олимпе мировой музыкальной индустрии. В 1988 году Scorpions стали первой западной рок-группой, разбившей вдребезги «Железный занавес». Тогда группа при полном аншлаге выступила в Ленинграде с десятью концертами. Последнюю пластинку группы 2007 года, получившую название "Humanity Hour 1", спродюсировал Джеймс МАЙКЛ (James MICHAEL), сопродюсером и соавтором ряда песен стал Дезмонд ЧАЙЛД (Desmond CHILD), ранее работавший с группами Aerosmith, Bon Jovi, Alice Cooper, Kiss, Ricky Martin, Cher и Bonnie Tyler. Неожиданный дуэт Клауса МАЙНЕ и фронтмена группы The Smashing Pumpkins Билли КОРГАНА (Billy CORGAN) можно услышать в бонус-трэке «The Cross». Так или иначе Scorpions в очередной раз удалось создать мощный, тяжёлый альбом, превосходно совместив элементы хард-рока с балладным звучанием. На предстоящих российских концертах Scorpions исполнят незаменимые "Wind Of Change", "Still Loving You", "Rock You Like A Hurricane", "Send Me An Angel", "You And I", "Holiday", "The Zoo", "Bad Boys Running Wild" и другие хиты разных лет, в том числе с последнего альбома. <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Для перевозки музыкантов и оборудования будет задействовано звено чартерной авиации, в том числе два грузовых самолета, а также порядка десяти траков.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Для технического обеспечения предстоящих концертов потребуются тонны сценического, звукового и светового оборудования, соответствующего мировым стандартам качества. Продакшн-партнером T.C.I. в течение всего тура станет компания JSA.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Организация предстоящего тура поднимет российскую концертную индустрию на принципиально иной уровень. Грандиозные концерты в восьми крупнейших городах России, тур фестивального масштаба, Scorpions, Alice Cooper, The Rasmus и Kingdom Come на одной сцене - такого в России еще не было. Всероссийская рок-терапия - уже в июне!<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><SPAN style="mso-spacerun: yes">&nbsp;</SPAN><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">График тура:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">14 июня 2009/ Санкт-Петербург<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">16 июня 2009/ Ростов-на-Дону<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">18 июня 2009/ Екатеринбург<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">20 июня 2009/ Новосибирск <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">22 июня 2009/ Хабаровск<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">24 июня 2009/ Владивосток<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">26 июня 2009/ Красноярск<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">28 июня 2009/ Москва<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><SPAN style="mso-spacerun: yes"></SPAN><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Участники тура / составы:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Scorpions: <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Klaus MEINE - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Matthias JABS - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Rudolf SCHENKER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">James KOTTAK - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Pawel MACIWODA - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Alice Cooper: <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Alice Cooper/Vincent FURNIER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Kerri KELLI - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Jason HOOK - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Erik SINGER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Chuck GARRIC - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Calico COOPER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><SPAN style="mso-spacerun: yes">&nbsp;</SPAN></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">The Rasmus: <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Lauri Ylonen - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Pauli Rantasalmi - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Eero Heinonen - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Aki Markus Hakala - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Kingdom Come: </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Lenny WOLF - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">вокал</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Eric FOERSTER - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">гитара</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Frank BINKE - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">бас</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">Hendrik THIESBRUMMEL - </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">ударные<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">сайт</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Scorpions: <A href="http://www.the-scorpions.com/">www.the-scorpions.com</A></SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">&nbsp;/ <A href="http://www.scorps.ru/">www.scorps.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный сайт Alice Cooper: <A href="http://www.alicecooper.com/">www.alicecooper.com</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">&nbsp;/ <A href="http://www.alicecoopernet.narod.ru/">www.alicecoopernet.narod.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный сайт The Rasmus: <A href="http://www.therasmus.com/">www.therasmus.com</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">&nbsp;/ <A href="http://www.therasmusworld.narod.ru/">www.therasmusworld.narod.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальный сайт Kingdom Come: <A href="http://www.lennywolf.com/">www.lennywolf.com</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">; <A href="http://www.kingdmcome.de/">www.kingdmcome.de</A></SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">&nbsp;/ <A href="http://www.kingdomcome.ru/">www.kingdomcome.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">© Ссылка на концертное агентство T.C.I. при использовании материалов обязательна. <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">За дополнительной информацией (в том числе фотоматериалами, комментариями представителей компании) обращайтесь:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">тел.: +7 (499) 973 3434</SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><A href="http://www.tci.ru/">www.tci.ru</A></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"></SPAN>&nbsp;</P>
+Автор: Headcrusher
+
+### 17.12.2010 news Новый альбом KINGDOM COME
+
+<P><IMG height=391 alt="" hspace=0 src="/images/news_rus/2010.12/17853.jpg" width=394 align=right border=0>28 марта на<STRONG> SPV/Steamhammer</STRONG> выходит новый альбом <STRONG>KINGDOM COME</STRONG> <STRONG>"Rendered Waters". </STRONG>11&nbsp;песен было записано в студии лидера коллектива <STRONG>Lenny Wolf</STRONG> <STRONG>Two Square Noise Factory </STRONG>в Гамбурге. На альбом попадут 3 новые вещи и 8 перезаписанных старых хитов немцев. Трэк-лист:</P>
+<P>01. <B>Can't Deny</B> (newly recorded version)<BR>02. <B>The Wind</B> (newly recorded version)<BR>03. <B>Blue Trees</B> (brand new song)<BR>04. <B>Should I</B> (newly recorded version)<BR>05. <B>I've Been Trying</B> (newly recorded version)<BR>06. <B>Pushing Hard</B> (newly recorded version)<BR>07. <B>Seventeen</B> (newly recorded version)<BR>08. <B>Is It Fair Enough</B> (brand new song)<BR>09. <B>Living Out Of Touch</B> (newly recorded version)<BR>10. <B>Don't Remember</B> (brand new song)<BR>11. <B>Break Down The Wall</B> (newly recorded version)</P>
+Автор: Vit Belov
+
+### 08.05.2013 news KINGDOM COME: клип &quot;God Does Not Sing Our Song&quot;
+
+<P>26 апреля ансамбль <STRONG>KINGDOM COME</STRONG>&nbsp;под управлением вокалиста и гитариста&nbsp;<STRONG>Ленни Вольфа</STRONG> (Lenny Wolf)&nbsp;выпустил свой новый альбом. Диск, получивший название <STRONG>"Outlier"</STRONG>, вышел на немецком лейбле<STRONG> SPV</STRONG>.</P>
+<P>Ниже вам предлагается посмотреть дебютный видеоклип&nbsp;c&nbsp;этого альбома&nbsp;на песню <STRONG>"God Does Not Sing Our Song"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/LCTS0mdbyYk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Первый топег о Kingdom come

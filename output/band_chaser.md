@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.08.2016 news Музыка CHASER будет издана спустя 30 лет
+
+<p>Одна из малоизвестных групп NWOBHM <strong>CHASER</strong>, выпустившая в 1984 году лишь один сингл "<strong>Raiders</strong>", будет иметь в своей дискографии полноценный альбом. В 80-е коллектив записал 15 песен для полноценного альбома, который так и не увидел свет. В этом году на<strong> Skol Records</strong> выйдет первый релиз CHASER "<strong>Raider - The Anthology</strong>", на который войдут записанные песни, ремастированные <strong>Bart Gabriel</strong> (CIRITH UNGOL, MYTHRA).</p><p>Обложку для альбома создал<strong> Roberto Toderico</strong>.</p><p><center><img width="600" height="600" src="/images/news_rus/2016.08/29840.jpg" border="0"></p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/279222690&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+### 22.08.2016 news CHASER To Release &quot;Raiders - The Anthology&quot; On Skol Records
+
+<p>The term "NWoBHM" - what's a shortcut for the New Wave Of British Heavy Metal - electrify Metal fans around the globe for already more than 30 years. No wonder, as not only it's a goldmine of great bands, albums, riffs and spectacular live shows, but also something that influenced and still influence the entire Metal world, and the biggest Metal bands that ever existed, including METALLICA, whose members are known as a huge NWoBHM enthusiasts. Probably all the fans know such NWoBHM acts as IRON MAIDEN, SAXON or DIAMOND HEAD, but those who dig deeper, know that there is still a lot to discover.</p><p>One of the best kept secrets of the NWoBHM was<strong> CHASER</strong>. Back in the day, in 1984, the Ipswich, Suffolk based band released just one single titled "Raiders" (which nowadays is a highly sought after collectors item). But between 1984 and 1986, they actually managed to professionally record 15 tracks, worth of an album release. This never happened, and the recordings got buried for the next 30 years. Now the recordings will be heard and officially released for the first time ever. The limited edition CD entitled "<strong>Raiders - The Anthology</strong>", which will include all the 15 tracks, with new dynamic mastering by <strong>Bart Gabriel</strong> (CIRITH UNGOL, MYTHRA, SATAN'S HOST) will be released on October 28, 2016, on <strong>Skol Records</strong>. Album's cover artwork was created by <strong>Roberto Toderico</strong>, Italian artist known from his cooperation with such NWoBHM acts as TYGERS OF PAN TANG, QUARTZ and MYTHRA.</p><p><center><img width="600" height="600" src="/images/news/2016.08/29841.jpg" border="0"></p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/279222690&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

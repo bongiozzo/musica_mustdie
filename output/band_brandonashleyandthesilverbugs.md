@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.01.2009 news BRANDON ASHLEY AND THE SILVERBUGS - world tour 2009
+
+<P><IMG height=202 alt="" hspace=0 src="/images/news_rus/2009.01/13373.jpg" width=300 align=left border=5>Новый артист <STRONG>THE FLAMING ARTS MANAGEMENT</STRONG>, итальянская gothic electro glam/core сенсация начинает свое мировое турне в феврале 2009 года. Группа приглашена разогревать единственный концерт легендарных<STRONG> IRON MAIDEN</STRONG> в Бангалоре, Индии, 15 февраля 2009 года. После чего сразу поступило предложение о большом европейском туре совместно с финскими монстрами<STRONG> LORDI</STRONG>, тем самым итальянцы за февраль и март выступят более чем 20 крупных площадках Европы. Менеджмент группы готовит также сейчас австралийский релиз, зачем последуют туры по Австралии и Азии. Напомним, что питерский лейбл <STRONG>КАПКАН Рекордс</STRONG> буквально на днях выпустил и СНГ версию дебютного альбома "<STRONG>Nothing Lasts Forever</STRONG>", поэтому группа обещает появиться в Москве и Санкт-Петербурге в ближайшее время.</P>
+<P>Даты можно посмотреть на официальной myspace странице: <A href="http://www.myspace.com/brandonashleyandthesilverbugs">www.myspace.com/brandonashleyandthesilverbugs</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

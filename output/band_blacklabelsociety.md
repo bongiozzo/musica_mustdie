@@ -166,6 +166,223 @@ Disc 2
 * C группой "Megadeth" James Lomenzo (bass)
 * C группой "White Lion" James Lomenzo (bass)
 
+## Публикации
+
+### 08.05.2001 news Zakk Wylde заправляется алкоголем....
+
+<p>"BLACK LABEL SOCIETY" во главе с Zakk Wylde выпускают на этой неделе альбом Alcohol Fueled Brewtality, содержащий всякие живые и редкие штучки. Трек-лист: Disc-1 01. Low Down 02. 13 Years of Grief 03. Stronger Than Death 04. All For You 05. Superterrorizer 06. Phoney Smiles, Fake Hellos 07. Lost My Better Half 08. Bored To Tears 09. A.N.D.R.O.T.A.Z. (guitar solo) 10. Born To Booze 11. World of Trouble 12. No More Tears 13. The Beginning... At Last Disc-2 01. Heart Of Gold 02. Snowblind 03. Like A Bird 04. Blood In The Wall 05. The Beginning... At Last (acoustic version)</p>
+
+Автор: Yermola
+
+### 08.05.2001 news Zakk Wylde&#39;s BLACK LABEL SOCIETY .....
+
+<p> Zakk Wylde's BLACK LABEL SOCIETY is currently in Japan, where they're performing live shows through May 10th. In the meantime, here is the track listing for BLACK LABEL SOCIETY's Alcohol Fueled Brewtality Live +5 CD, which is due to be released this week: Disc-1</p>
+<p></p>
+<p> 01. Low Down</p>
+<p></p>
+<p> 02. 13 Years of Grief</p>
+<p></p>
+<p> 03. Stronger Than Death</p>
+<p></p>
+<p> 04. All For You</p>
+<p></p>
+<p> 05. Superterrorizer</p>
+<p></p>
+<p> 06. Phoney Smiles, Fake Hellos</p>
+<p></p>
+<p> 07. Lost My Better Half</p>
+<p></p>
+<p> 08. Bored To Tears</p>
+<p></p>
+<p> 09. A.N.D.R.O.T.A.Z. (guitar solo)</p>
+<p></p>
+<p> 10. Born To Booze</p>
+<p></p>
+<p> 11. World of Trouble</p>
+<p></p>
+<p> 12. No More Tears</p>
+<p></p>
+<p> 13. The Beginning... At Last</p>
+<p></p>
+<p> Disc-2</p>
+<p></p>
+<p> 01. Heart Of Gold</p>
+<p></p>
+<p> 02. Snowblind</p>
+<p></p>
+<p> 03. Like A Bird</p>
+<p></p>
+<p> 04. Blood In The Wall</p>
+<p></p>
+<p> 05. The Beginning... At Last (acoustic version)</p>
+<p></p>
+<p> Source: BLABBERMOUTH.NET</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 05.10.2001 news Общество Черной Метки...
+
+<p>Закк Уальд и его "Общество Черной Метки" выпускают новый альбом. Названный "Deathcore War Machine Eternal" релиз выйдет на Spitfire Records в феврале 2002. Кроме того Закк будет участвовать в записи Оззиевского "Down To Earth" и поедет с ним в тур "A Night Of Merry Mayhem" (так же будут ROB ZOMBIE, MUDVAYNE and SOIL). Также Оззи сотоварищи выступят на "The Tonight Show" - 12 октября и на "Late Night With Conan O'Brien" - 19-го.</p>
+
+Автор: Yermola
+
+### 05.10.2001 news BLACK LABEL SOCIETY will be issuing its next studio effort...
+
+<p>Zakk Wylde’s BLACK LABEL SOCIETY will be issuing its next studio effort, entitled Deathcore War Machine Eternal, through Spitfire Records in February 2002. Along with re-joining OZZY OSBOURNE for the recording of OZZY's new Down To Earth album (due on October 16th), Zakk will be the guitarist for OZZY's upcoming A Night Of Merry Mayhem tour which runs from October 31st through December 31st (also featuring ROB ZOMBIE, MUDVAYNE and SOIL). OZZY OSBOURNE will be appearing on The Tonight Show on October 12th and the Late Night With Conan O'Brien show on October 19th. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.11.2001 news Военная Машина Закка Уальда...
+
+<p>Spitfire Records определились с датой выхода следующего альбома "BLACK LABEL SOCIETY" - "Deathcore War Machine Eternal", это произойдет 19-го февраля 2002. Полный трек-лист таков: <BR> <BR> 01. Bleed For Me <BR> 02. Lords of Destruction <BR> 03. Life/Birth/Blood/Doom <BR> 04. Demise of Sanity <BR> 05. Lost Heaven <BR> 06. Battering Ram <BR> 07. Speedball <BR> 08. Graveyard Disciples <BR> 09. Genocide Junkies <BR> 10. Bridge To Cross <BR> 11. Refuse To Bow Down <BR> 12. Berserkers</p>
+
+Автор: Yermola
+
+### 07.11.2001 news Deathcore War Machine Eternal...
+
+<p>BLACK LABEL SOCIETY’s brand new CD, entitled Deathcore War Machine Eternal, is tentatively scheduled for a February 19th release through Spitfire Records. The full track listing for the effort is as follows: <BR> <BR> 01. Bleed For Me <BR> 02. Lords of Destruction <BR> 03. Life/Birth/Blood/Doom <BR> 04. Demise of Sanity <BR> 05. Lost Heaven <BR> 06. Battering Ram <BR> 07. Speedball <BR> 08. Graveyard Disciples <BR> 09. Genocide Junkies <BR> 10. Bridge To Cross <BR> 11. Refuse To Bow Down <BR> 12. Berserkers</p>
+
+Автор: Yermola
+
+### 07.01.2002 news Новый MP3 от BLACK LABEL SOCIETY.....
+
+<p>Вы можете скачать МР3 песни “Bleed For Me” - BLACK LABEL SOCIETY с нового альбома "1919 Eternal" <A HREF="http://www.streetteam.net/BleedForMe.mp3">здесь.....</A> <BR> <BR> Сам диск выходит на Spitfire Records 5-го марта.</p>
+
+Автор: Yermola
+
+### 07.01.2002 news BLACK LABEL SOCIETY &quot;Bleed For Me&quot; Download Available...
+
+<p>The BLACK LABEL SOCIETY track “Bleed For Me”, culled from the group's upcoming 1919 Eternal CD, is available for download from <A HREF="http://www.streetteam.net/BleedForMe.mp3">this location. </A><BR> <BR> 1919 Eternal CD will be issued through Spitfire Records on March 5th.</p>
+
+Автор: Yermola
+
+### 15.01.2002 news ZAKK WYLDE Gets &quot;Head&quot; From Marshall ....
+
+<p>OZZY OSBOURNE/BLACK LABEL SOCIETY guitarist Zakk Wylde has had a Signature Amplifier Head issued by Marshall, featuring Zakk's signature bulls-eye graphic on the front panel. Product will be in extremely limited production (only 200 heads will be released in the U.S.). The details are follows:<BR><BR> Product number: 2203ZW/JCM WYLDE <BR> Retail: $2,499.99 <BR> Appoximate Sale Price: $1,999.99 <BR> Availibility: May 2002 – Dec. 2002</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Marshall выпустили усилитель посвященный ZAKK WYLDE ....
+
+<p>Известные производители музыкального оборудования "Marshal" выпустили гитарный усилитель (модель 2203ZW/JCM WYLDE) посвященный гитаристу OZZY OSBOURNE / BLACK LABEL SOCIETY - Zakk Wylde. На передней панели будет представлен автограф музыканта. Усилитель выпущен ограниченным тиражом - в штатах будет продано только 200 копий...</p>
+
+Автор: Yermola
+
+### 02.07.2002 reviews Пора зарядить аккумуляторы, Зэкк!
+
+<p>Как известно, чем дольше выдержка виски, тем этот напиток вкуснее и ценнее. <BR> С BLACK LABEL Зэкка Уайлда, незаменимого гитариста Оззи, ситуация диаметрально противоположная. За взрывным дебютным альбомом `Sonic Brew` 98-го года( где Зэкк предстаёт во всей красе не только как искусный гитарист, но и как отличный певец) следует суховатый`Stronger than death` в 2000г.(впрочем, эта “сухость” оправдана тем, что альбом намного тяжелее прошлого и тем самым менее мелодичен), год спустя - откровенно провальный живой альбом, и вот теперь - `1919 Eternal`…<BR> <BR> С каждым последующим альбомом BLS становятся всё тяжелее и мрачнее. И это касается не только звучания, но и текстов. Чего стоят хотя бы `Bleed for me`, `Mass murder machine` или `Lords of destruction` - уже сами названия песен бросают в дрожь. Такое впечатление, что при написании песен к `Eternal 1919` Зэкк концентрировался исключительно на достижении максимально резкого и тяжёлого звука, на написании самых жёстких риффов, и при этом, что естественно, меньшее внимание уделял мелодичности песен. <BR> Порой вокал Уайлда звучит настолько невыразительно и блекло, что кажется, что пение ему просто-напросто наскучило и не доставляет былого удовольствия. А ведь голос Зэкка, который звучит как смесь Роба Зомби и жёсткого Everlast`a вовсе не плох… Но даже самое опасное оружие Уайлда( а именно, его виртуозная игра на гитаре) на этом альбоме затупилось. Риффы совершенно не впечатляют (ещё бы - после гениальных, просто убйственных риффов на `Stronger than death`), а соляки уж слишком визжаще-режущи для слуха. Некоторые композиции откровенно запороты барабанщиком, который использует уже до тошноты заезженные риффы-штампы. И даже очень интересные по своей задумке и исполнению `Bleed for me` и `Berserkers` не могут изменить ужасное впечатление от альбома в целом. От гитариста такого калибра, как ты, все ожидали большего… Пора зарядить аккумуляторы, Зэкк.</p>
+
+Автор: Natural born loser
+
+### 10.07.2002 news Поздравим Закка Уайльда....
+
+<p>Поздравим гитариста BLACK LABEL SOCIETY/OZZY OSBOURNE - Закка Уайльда - вчера у него родился третий ребенок простенько названный Hendrix Halen Michael Rhodes Wylde.... Ох уж эти гитаристы... :-))</p>
+
+Автор: Yermola
+
+### 09.09.2003 reviews Иммунитет ко времени
+
+<p>Занудство молодежь не красит, но все же может помочь в карьере. Закк Уайлд и его сольный проект BLACK LABEL SOCIETY неплохое тому доказательство. Уже который год Закк играет на гитаре у великого и старого Оззи Осборна и все это время слегка ворчит на матерых композиторов, что помогают дедушке писать песни. Недавно Закк пообещал разогнать всех этих помощников к чертям собачьим и самостоятельно написать для старика лучший диск всех времен и народов. Между тем сольные пластинки грозного мистера Уайлда прямо указывают на то, что из этого получится, - BLACK SABBATH. И весь вопрос лишь в том, насколько эта миллиардная копия, пусть даже с голосом Осборна, будет лучше… В чем-то будет лучше обязательно - звуком, виртуозной гитарной игрой и качеством записи. В общем, техническая сторона сомнений не вызывает. А вот творческая - на любителя. Закку непостижимым образом удается заинтриговать слушателя с началом каждой песни и по прошествии всего двух минут неожиданно вогнать его в скуку. Талант! Для удобства рот можно вовсе не закрывать, чтоб не тратить время и силы на мгновенные переходы от восхищения к зевоте и обратно. Диск идеален, потому что стопроцентно выражает характер своего создателя - слегка нудного ретрограда и настоящего мастера гитары, знающего толк в гармониях, отрицающего все новые веяния и находки. Закк словно живет в конце 70-х - начале 80-х, прекрасно это понимает и выбираться оттуда не собирается ни за что - все несогласные идут куда подальше. Такая стопроцентная уверенность в себе и иммунитет к моде не может не восхищать, равно как и смешить - все-таки не о 80-летнем старике идет речь… Оценивать этот диск по большому счету бессмысленно - промахи если и есть, то намерены, а достоинства новизной не блещут. Так что вопрос в том, понравится ли работа слушателю, - проблема самоопределения такового. Если нравится рокочущий хэви-металл старой школы и высшей пробы, запах нафталина не смущает - диск ваш! Судя по тому, что пластинка даже засветилась в Billboard Top 200, число таких людей в последнее время выросло, хотя и в недостаточных размерах, чтобы вернуть стиль на пик моды. Впрочем, судя по словам самого Уайлда, его это нисколько не интересует - так что все в порядке.</p>
+
+Автор: Tornado
+
+### 06.03.2004 news Новый альбом Black Label Society
+
+<P>Группа <B>Zakk Wylde Black Label Socie</B>ty подготовила к выпуску новый альбом <B>"Hangover Music Vol. VI".</B> Трэк-лист:</P>
+<P>01. <B>Crazy or High</B><BR>02. <B>Queen of Sorrow</B><BR>03. <B>Steppin' Stone</B><BR>04. <B>Yesterday, Today, Tomorrow</B><BR>05. <B>Takillya (Estyabon)</B><BR>06. <B>Won't Find It Here</B><BR>07. <B>She Deserves A Free Ride (Val's Song)</B><BR>08. <B>House of Doom</B><BR>09. <B>Damage is Done</B><BR>10. <B>Layne</B><BR>11. <B>Woman Don't Cry</B><BR>12. <B>No Other</B><BR>13. <B>Whiter Shade Of Pale</B> (<B>PROCOL HARUM</B> cover)<BR>14. <B>Once More</B><BR>15. <B>Fear</B></P>
+<P>Альбом выйдет 20 апреля на <B>Spitfire</B>. Пластинка акустически-фортепианная, как сольный альбом Закка 1996 года <B>'Book Of Shadows'</B>. </P>
+Автор: Vit Belov
+
+### 12.11.2004 reviews Похмельные аккорды меланхоличного блюз-рока
+
+<P>Шестой альбом проекта гитариста Оззи Осборна Зака Уайлда Black Label Society будет интересен, скорее всего, любителям тяжеленького американского рока, а также тем, кто не прочь послушать на досуге "Великого и Ужасного" или, к примеру, Nazareth, а может и группы американского южного рока или даже блюзы. Измученный "нарзаном" голос Зака звучит несколько устало и меланхолично, порой отстраненно, но временами и достаточно эмоционально. Он словно небрежно бренчит на гитаре, большей частью акустической, зачастую в сопровождении фортепиано. Трудновато выделить на данном альбоме какую-либо песню, материал достаточно ровный, но и чего-либо выдающегося тут тоже нет. Имеется кавер на 'Whiter Shade Of Pale' Procol Harum, но мне данная версия не понравилась. Подобные песенки действительно неплохо пойдут с похмелья, когда в принципе всё равно что слушать, лишь бы не напрягало. Вот таков "Hangover Music" и есть. Если вам хочется живой, драйвовой, агрессивной, заводной либо же задумчивой, высокоэмоциональной, навороченной, умной музыки, то можете особо не расстраиваться, если вам не удастся послушать сей релиз.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 12.01.2005 news BLACK LABEL SOCIETY записали новый альбом
+
+Новый альбом <STRONG>BLACK LABEL SOCIETY 'Mafia'</STRONG> выходит 8 марта на <STRONG>Artemis Records</STRONG>.
+Автор: Vit Belov
+
+### 18.08.2005 news Компиляция BLACK LABEL SOCIETY
+
+<P><B>Spitfire Records</B> выпустят 4 октября двухдисковую&nbsp;компиляцию <STRONG>BLACK LABEL SOCIETY "Kings of Damnation - Era '98-'04",</STRONG> которая даст четкое представление об эволюции Закка Уайлда, его прогрессе как музыканта.&nbsp;На первый диск&nbsp;войдут как уже известные вещи коллектива, так и четыре трека, ранее нигде нереализованных. Второй диск будет содержать записанные музыкантом уникальные кавер-версии известных песен таких исполнителей, как <STRONG>OZZY OSBOURNE</STRONG>, <B>PROCOL HARUM</B>, <B>THE BEATLES</B>, <STRONG>NEIL YOUNG</STRONG> и других. Трек-лист альбома:<BR>1. <B>Losing Your Mind</B><BR>2. <B>Horse Called War</B><BR>3. <B>Between Heaven and Hell</B><BR>4. <B>Sold My Soul</B><BR>5. <B>Spoke In The Wheel</B> (acoustic version recorded in UK) <BR>6. <B>TAZ</B> <BR>7. <B>Counterfeit God</B> <BR>8. <B>Stronger Than Death</B> <BR>9. <B>Bleed For Me</B> <BR>10. <B>Demise Of Sanity</B> <BR>11. <B>Bridge To Cross</B> (acoustic version recorded in UK) <BR>12. <B>We Live No More</B> <BR>13. <B>Stillborn</B> (Slightly Amped) <BR>14. <B>The Blessed Hellride</B> (Slightly Amped) <BR>15. <B>Crazy Or High</B> <BR>16. <B>House Of Doom</B> <BR><BR>Bonus disc:<BR>1. <B>No More Tears</B> <BR>2. <B>Whiter Shade Of Pale</B> <BR>3. <B>Heart Of Gold</B> <BR>4. <B>Snowblind</B> <BR>5. <B>The Wizard</B> <BR>6. <B>In My Time Of Dyin'</B><BR>7. <B>Come Together</B> </P>
+Автор: Dimas
+
+### 22.03.2006 news BLACK LABEL SOCIETY на Roadrunner
+
+<P><STRONG>Roadrunner </STRONG>объявили о подписании контракта с <STRONG>BLACK LABEL SOCIETY</STRONG>, чей новый альбом "<STRONG>Shot To Hell</STRONG>" выйдет летом.</P>
+Автор: Vit Belov
+
+### 29.06.2006 news BLACK LABEL SOCIETY подготовили к выходу новый альбом
+
+<P><IMG height=250 alt="" hspace=20 src="/images/news_rus/2006.06/10494.jpg" width=250 align=left border=0>19 сентября на <STRONG>Roadrunner Records</STRONG> выходит новый альбом <STRONG>Закка Уайлда</STRONG> и его группы <STRONG>BLACK LABEL SOCIETY</STRONG>&nbsp;под названием&nbsp;<STRONG>"Shot to Hell".&nbsp;</STRONG>Продюсерами&nbsp;записи стали сам&nbsp;<STRONG>Zakk</STRONG>&nbsp;и <STRONG>Michael Beinhorn</STRONG> (<STRONG>OZZY</STRONG>, <STRONG>KORN</STRONG>, <STRONG>SOUNDGARDEN</STRONG>). Это будет мощный хард-рок в духе двух последних работа музыканта. Коктейль из сумасшедших мелодий и квакающих гитар. Известны названия некоторых песен: <STRONG>"Concrete Jungle"</STRONG>, <B>"Blood Is Thicker Than Water"</B>, <B>"Give Yourself To Me"</B>, <B>"Lead Me To Your Door"</B> и <B>"Sick Of It All".</B></P>
+Автор: Dimas
+
+### 10.08.2006 news BLACK LABEL SOCIETY выпускают двд
+
+<P><STRONG>BLACK LABEL SOCIETY</STRONG>&nbsp;готовят к выходу концертный двд&nbsp;<STRONG>"The European Invasion – Doom Troopin'".</STRONG> Дата релиза - 22 августа на <B>Eagle Vision</B>. В него войдут концертные выступления коллектива в ходе прошлогоднего европейского тура. Основу его составят записи с парижского концерта, кроме того будут записи с лондонского концерта. Также, в двухдисковое&nbsp;издание войдут съемки о ходе тура, три промо-клипа и документальный фильм о создании клипа&nbsp;<B>"Suicide Messiah"</B>. Трек-лист:<BR>Диск 1<BR>Paris:<BR>1. <B>Stoned and Drunk</B><BR>2. <B>Destruction Overdrive</B><BR>3. <B>Been A Long Time</B><BR>4. <B>Funeral Bell</B><BR>5. <B>Suffering Overdue</B><BR>6. <B>In This River</B><BR>7. <B>Suicide Messiah</B><BR>8. <B>Demise Of Sanity</B><BR>9. <B>Spread Your Wings</B><BR>10. <B>Solo Acoustic Jam</B><BR>11. <B>Spoke In The Wheel</B><BR>12. <B>Fire It Up</B><BR>13. <B>Stillborn</B><BR>14. <B>Genocide Junkies</B><BR>London:<BR>1. <B>Been a Long Time</B><BR>2. <B>Suicide Messiah</B><BR>3. <B>Stillborn</B><BR>4. <B>Genocide Junkies</B><BR>Диск 2:<BR><STRONG>Дополнительные материалы</STRONG><BR><BR></P>
+Автор: Dimas
+
+### 22.02.2009 news Ещё один сборник BLACK LABEL SOCIETY
+
+<P>21 апреля выходит новый сборник<STRONG> BLACK LABEL SOCIETY</STRONG> <STRONG>"Skullage". </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Machine Gun Man</B><BR itxtvisited="1">02. <B itxtvisited="1">Dead As Yesterday</B><BR itxtvisited="1">03. <B itxtvisited="1">All For You</B><BR itxtvisited="1">04. <B itxtvisited="1">13 Years of Grief</B><BR itxtvisited="1">05. <B itxtvisited="1">Bleed for Me</B><BR itxtvisited="1">06. <B itxtvisited="1">Doomsday Jesus</B><BR itxtvisited="1">07. <B itxtvisited="1">Stillborn</B><BR itxtvisited="1">08. <B itxtvisited="1">Won't Find It Here</B><BR itxtvisited="1">09. <B itxtvisited="1">Suicide Messiah</B><BR itxtvisited="1">10. <B itxtvisited="1">In This River</B><BR itxtvisited="1">11. <B itxtvisited="1">Fire It Up</B><BR itxtvisited="1">12. <B itxtvisited="1">New Religion</B><BR itxtvisited="1">13. <B itxtvisited="1">Instrumental Intro</B> (acoustic)<BR itxtvisited="1">14. <B itxtvisited="1">The Blessed Hellride</B> (acoustic)<BR itxtvisited="1">15. <B itxtvisited="1">Spoke in the Wheel</B> (acoustic)<BR itxtvisited="1">16. <B itxtvisited="1">Stillborn</B> (acoustic)<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">"Skullage"</B> standalone DVD<BR itxtvisited="1">* <B itxtvisited="1">All For You</B> (from "Boozed Broozed & Broken-Boned")<BR itxtvisited="1">* <B itxtvisited="1">13 Years of Grief</B> (from "Boozed Broozed & Broken-Boned")<BR itxtvisited="1">* <B itxtvisited="1">Bleed For Me</B> (from "Boozed Broozed & Broken-Boned")<BR itxtvisited="1">* <B itxtvisited="1">Stillborn</B> (Video)<BR itxtvisited="1">* <B itxtvisited="1">Suicide Messiah</B> (Video)<BR itxtvisited="1">* <B itxtvisited="1">In This River</B> (Video)<BR itxtvisited="1">* <B itxtvisited="1">Fire It Up</B> (Video)<BR itxtvisited="1">* <B itxtvisited="1">Acoustic</B> (Live)<BR itxtvisited="1">* <B itxtvisited="1">Instrumental Intro</B> (Live in Lehigh Valley) (4:59)<BR itxtvisited="1">* <B itxtvisited="1">The Blessed Hellride</B> (Live in Lehigh Valley) (5:47)<BR itxtvisited="1">* <B itxtvisited="1">Spoke In The Wheel</B> (Live in Lehigh Valley) (5:32)<BR itxtvisited="1">* <B itxtvisited="1">We Live No More</B> (Live in Lehigh Valley) (10:29)<BR itxtvisited="1">* <B itxtvisited="1">Stillborn</B> (Live in Lehigh Valley) (6:12)<BR itxtvisited="1">* <B itxtvisited="1">New Religion</B> (New Footage) (4:04)<BR itxtvisited="1">* <B itxtvisited="1">Welcome to The Compound</B> (New Footage) (29:50)</P>
+Автор: Vit Belov
+
+### 30.04.2009 news Компиляция BLACK LABEL SOCIETY попала в чарты
+
+<P>Новый сборник<STRONG> BLACK LABEL SOCIETY</STRONG> <STRONG>"Skullage" </STRONG>продался в количестве 4600 штук в США и попал в чарты <STRONG>BillBoard</STRONG> на 111 место.</P>
+Автор: Vit Belov
+
+### 25.01.2010 news BLACK LABEL SOCIETY на Roadrunner Records
+
+<P><STRONG>Roadrunner Records</STRONG> заключили новое соглашение с <STRONG>BLACK LABEL SOCIETY</STRONG>. Новый альбом выйдет летом этого года. </P>
+Автор: Vit Belov
+
+### 18.05.2010 news Обложка нового BLACK LABEL SOCIETY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=275 alt="" hspace=0 src="/images/news_rus/2010.05/16723.jpg" width=277 align=left border=5>Новый альбом группы бывшего гитариста <STRONG>Ozzy Osbourne Zakk Wylde BLACK LABEL SOCIETY</STRONG> <STRONG>"Order Of The Black" </STRONG>выходит 10 августа в Северной Америке. Изданием этой работы в Европе будет заниматься <STRONG>Roadrunner</STRONG>, но дата релиза пока не объявлена. Опубликована обложка этой работы. Группу не обошла мода на разлиичные кавер-пэйнты для разных территорий. Какая из обложек попала в сеть, пока не известно, но, думается, легко представить, чем будут они различаться.</FONT></P>
+<P><STRONG>"Order Of The Black" </STRONG>станет первой работой гитариста после того, как его уволил <STRONG>Ozzy Osbourne</STRONG>. <STRONG>Zakk </STRONG>обещает самые сексуальные номера за всю историю своего коллектива. Не знаю, что означает этот термин в отношении тяжёлого метала, но господин <STRONG>Wylde</STRONG> использовал ещё слова Берсерк и симфонизм. Также новый альбом станет премьерой для нового барабанщика коллектива <STRONG>Will Hunt</STRONG> (<B>EVANESCENCE</B>, <B>STATIC-X</B>, <B>DARK NEW DAY</B>, <B>TOMMY LEE</B>, <B>STUCK MOJO</B>).</P>
+Автор: Vit Belov
+
+### 18.08.2010 news BLACK LABEL SOCIETY попали в четвёрку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>BLACK LABEL SOCIETY</STRONG> <STRONG>"Order Of The Black" </STRONG>продался в количестве 33000 экземпляров в первую неделю продаж в США и дебютировал на четвёртом месте в чартах<STRONG> Billboard</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущая работа музыкантов "<STRONG>Shot To Hell</STRONG>" продавалась на таком же уровне.</FONT></P>
+Автор: Vit Belov
+
+### 14.03.2011 news BLACK LABEL SOCIETY: &quot;The Song Remains Not The Same&quot;
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18862.jpg" width=400 height=400>BLACK LABEL SOCIETY</STRONG> выпускают очередной релиз. Диск, названный <B>"The Song Remains Not The Same"</B>, увидет свет 3 мая на лейбле <STRONG>Entertainment One Music</STRONG> (<STRONG>E1 Music</STRONG>)&nbsp;и будет содержать несколько треков с предыдущего альбома группы <B>"Order Of The Black"</B>, сыгранных в акустике, а так же, материал записаный для <B>"Order Of The Black"</B>, но не вошедший в него. <B>"The Song Remains Not The Same"</B> был задуман и составлен, непосредственно, самим Закком Вайлдом&nbsp;(<STRONG>Zakk Wylde</STRONG>),&nbsp;а его название, конечно же, намекает на одну из любимых групп Закка, <STRONG>LED ZEPPELIN</STRONG>.</P>
+<P>Трек-лист <STRONG>"The Song Remains Not The Same"</STRONG>:<BR><BR>01. <B>Overlord</B> (Unplugged version)<BR>02. <B>Parade Of The Dead</B> (Unplugged version)<BR>03. <B>Riders Of The Damned</B> (Unplugged version)<BR>04. <B>Darkest Days</B> (Unplugged version)<BR>05. <B>Juniors Eyes</B><BR>06. <B>Helpless</B><BR>07. <B>Bridge Over Troubled Water</B><BR>08. <B>Can't Find My Way Home</B><BR>09. <B>Darkest Days</B> (featuring John Rich)<BR>10. <B>The First Noel</B></P>
+Автор: Headcrusher
+
+### 08.12.2011 news Супергруппа HAIL! в Москве 11 декабря
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22281.jpg" width=390 height=520>Уже в это воскресенье в московском клубе <STRONG>"Hleb"</STRONG> состоиться выступление супергруппы <STRONG>HAIL!</STRONG>, в состав которой входят <STRONG>Paul Bostaph</STRONG> (ударные, <STRONG>FORBIDDEN</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>TESTAMENT</STRONG>), <STRONG>Glen Drover</STRONG> (гитара, <STRONG>EIDOLON</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>KING DIAMOND</STRONG>), <STRONG>Tim "Ripper" Owens</STRONG> (вокал, <STRONG>JUDAS PRIEST</STRONG>,<STRONG> ICED EARTH</STRONG>, <STRONG>YNGWIE MALMSTEEN</STRONG>) и <STRONG>James Lomenzo</STRONG> (бас, <STRONG>WHITE LION</STRONG>, <STRONG>BLACK</STRONG> <STRONG>LABEL SOCIETY</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>DAVID LEE ROTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На своих концертах группа <STRONG>HAIL!</STRONG> исполняет хиты различных металлических коллективов первой величины. Песни, которые поклонники тяжелой музыки любят с детства и знают наизусть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен сет-лист, который группа отыграла в городе Иркутск 2 декабря:</FONT></P>
+<P>01. <STRONG>Stand Up & Shout</STRONG> (<STRONG>DIO</STRONG>)<BR>02. <STRONG>Flight Of Icarus</STRONG> (<STRONG>IRON MAIDEN</STRONG>)<BR>03. <STRONG>Seek & Destroy</STRONG> (<STRONG>METALLICA</STRONG>)<BR>04. <STRONG>World Painted Blood</STRONG> (<STRONG>SLAYER</STRONG>)<BR>05.<STRONG> Wake Up Dead</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>06. <STRONG>Mob Rules</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>07. <STRONG>Burn In Hell</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>08. <STRONG>Another Thing Coming</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>09. <STRONG>Symphony Of Destruction</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>10. <STRONG>Heaven & Hell</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>11. <STRONG>Walk</STRONG> (<STRONG>PANTERA</STRONG>)<BR>12. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>----------<BR>13. <STRONG>Ace Of Spades</STRONG> (<STRONG>MOTORHEAD</STRONG>)<BR>14. <STRONG>Creeping Death</STRONG> (<STRONG>METALLICA</STRONG>)<BR>15. <STRONG>Peace Sells</STRONG> (<STRONG>MEGADETH</STRONG>)</P>
+<P>Адрес клуба <STRONG>"Hleb"</STRONG>: г. Москва, Звенигородское шоссе, д. 11</P>
+Автор: Headcrusher
+
+### 20.03.2013 news Zakk Wylde: книга &quot;Bringing Metal to the Children&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25555.jpg" width=300 height=453>В апреле месяце&nbsp;<STRONG>Zakk Wylde</STRONG> отправляется в&nbsp;акустический тур по Северной Америке.&nbsp;В ходе этих выступлений <STRONG>Zakk</STRONG> также будет отвечать на вопросы, связанные с его книгой,&nbsp;полное название которой&nbsp;<STRONG>"Bringing Metal to the Children (The Complete Berzerker’s Guide to World Tour Domination)"</STRONG>. </P>
+<P>Напомним, что это книга вышла 10 апреля 2012 года. <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И в ней, лидер</FONT> <STRONG>BLACK LABEL SOCIETY</STRONG> и бывший гитарист группы Оззи Осборна (<STRONG>Ozzy Osbourne</STRONG>), рассказывает, что в действительности происходит за окнами гастрольного автобуса и дверьми за кулисы.&nbsp;&nbsp;Книга была издана компанией <STRONG>William Morrow</STRONG> и написана в соавторстве с Эриком Хендриксом (<STRONG>Eric Hendrikx</STRONG>).</P>
+<P><EM>"Это точное изложение того, что в действительности происходит во время турне популярной металлической группы",-</EM> написал главный редактор журнала <STRONG>"Revolver"</STRONG>, <STRONG>Brad Tolinski</STRONG>,&nbsp;об этой книге.</P>
+Автор: Headcrusher
+
+### 04.04.2016 news Zakk Wylde: видео &quot;Sleeping Dogs&quot;
+
+<P><STRONG>Zakk Wylde</STRONG> опубликовал видео на грустную песню <STRONG>"Sleeping Dogs"</STRONG>. Ищите этот трек на его диске <STRONG>"Book Of Shadows II"</STRONG>, который выходит уже через четыре дня на лейбле <STRONG>E1 Entertainment</STRONG>.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/_dtxOKXo9aI" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Участники Judas Priest, White Lion, Megadeth, Slayer с проектом HAIL! снова в Москве (11 декабря)

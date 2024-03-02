@@ -64,6 +64,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.09.2011 news EXXPLORER возвращаются
+
+<P><IMG height=471 alt="" hspace=0 src="/images/news_rus/2011.09/20942.jpg" width=475 align=right border=0>Американцы<STRONG> EXXPLORER</STRONG> выпустят свой первый за 15 лет студийный альбом <STRONG>"Vengeance Rides An Angry Horse" </STRONG>21 октября на <STRONG>Pure Steel Records</STRONG>. Трек-лист:</P>
+<P>01. <B>Gypsy</B><BR>02. <B>Glory Hunter</B><BR>03. <B>Chasing The High</B><BR>04. <B>The Vengeance</B><BR>05. <B>As The Crow Flies</B><BR>06. <B>S.N.O.E</B><BR>07. <B>Valley Of Doom</B><BR>08. <B>Spirits Of The Wind</B> <BR>09. <B>Freight Train To Hell</B> <BR>10. <B>Return Of The Cycle</B></P>
+<P>Группа выпустила до этого три альбома: в 1984, 1994 и 1996 годах.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -38,6 +38,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.08.2016 news Новый сингл IMPERIUM DEKADENZ
+
+<p><strong>IMPERIUM DEKADENZ</strong> выложили в сеть заглавный трек с нового альбома "<strong>Dis Manibvs</strong>", выходящего 26 августа на <strong>Season Of Mist</strong>. </p><p>Трек лист:</p><p>01. In Todesbanden<br>02. Only Fragments Of Light<br>03. Still I Rise<br>04. Dis Manibvs<br>05. Pantheon Spells<br>06. Vae Victis<br>07. Volcano<br>08. Somnia<br>09. Pure Nocturnal Rome<br>10. Seikilos</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/99CenHyJQRQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.08.2016 news New singl by IMPERIUM DEKADENZ
+
+<p><strong>IMPERIUM DEKADENZ </strong>have released the title track from the new album "<strong>Dis Manibvs</strong>", coming out August 26 on <strong>Season Of Mist</strong>.</p><p>01. In Todesbanden<br>02. Only Fragments Of Light<br>03. Still I Rise<br>04. Dis Manibvs<br>05. Pantheon Spells<br>06. Vae Victis<br>07. Volcano<br>08. Somnia<br>09. Pure Nocturnal Rome<br>10. Seikilos</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/99CenHyJQRQ" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 13.10.2016 reviews Практически идеальный atmospheric black metal 
+
+<p>Дуэт из Германии IMPERIUM DEKADENZ выпустил в конце августа пятый альбом «Dis Manibvs”. Два лесника из Германии продолжают очаровывать слушателей своим незатейливым атмосферным black doom metal, черпая вдохновение в 90-х годах и осваивая технику заливания отличных мелодий отборным black metal. В итоге получается монолитный фундамент, на котором немцам удаётся построить очень крепкое здание собственной музыки.</p><p>Описывать каждый альбом IMPERIUM DEKADENZ не имеет никакого смысла. Дуэт представляет классический лесной black metal, замедленный до состояния doom metal и снабжённый прекрасными мелодиями. Музыка коллектива строится из наслаивающихся друг на друга «чернушных» гитарах, мрачного скриминга, атмосферы лесной чащи, из которой как отзвуки слышны завораживающие неспешные мелодии. Я большой поклонник раннего творчества KATATONIA, IMPERIUM DEKADENZ удаётся повторить творчество шведов на новом продвинутом уровне, где метал — это метал, а скриминг не только декорация, но органично подходит к музыке. «Dis Manibvs” состоит исключительно из отличных песен и обязательно понравится всем фэнам красивого атмосферного материала в жанре black metal.</p><p>Немцы продолжают подтверждать свой класс. Их альбомы составляют золотой фонд современного atmospheric black metal, и надо делать всё возможное для их продвижения, IMPERIUM DEKADENZ достойны всяческого внимания.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -174,6 +174,68 @@ TV series Twin Peaks
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.06.2008 reviews Неожиданный подарок фэнам black-metal
+
+<P>Немецкая black-metal банда DARK FORTRESS демонстрирует редкий для металлической сцены вариант развития. Выпустив несколько альбомов на крупном, но UG-лэйбле, Baphomet/Red Stream, немцы скакнули на металлический major Century Media. Этот вариант выглядит особенно сенсационным при ближайшем рассмотрении музыки группы и направления её нынешнего лэйбла.</P>
+<P>Century Media уже давно не занималась новыми black-metal группами. В этой немецкой конюшне находятся либо старые раскрученные коллективы, либо новомодные metalcore звёзды. Каким образом сюда вписывается DARK FORTRESS, мне не очень понятно. Пускай издающий лэйбл позиционирует музыку DF, как sympho-black. Мне кажется, что стиль, в котором играют немцы, перестали называть sympho-black после появления DIMMU BORGIR и CRADLE OF FILTH. Немцы играют мощный, забойный black-metal с небольшим вкраплением клавишных, за которые их в 1995 году заклеймили бы приставкой sympho-, но в 2008 году эта невинная шалость уже никого не раздражает. Крепкий black-metal с интересными переходами и длинными песнями, за время которых группе удаётся показать себя с самой лучшей стороны.</P>
+<P>К сожалению, чисто субъективно мне не очень понравился “Eidolon”. Я не могу сказать, что этот диск будет часто оказываться в моём плэйере, более того, волею моей работы новый альбом DARK FORTRESS там больше не окажется никогда, но порадоваться тому, что по лицензии выходит хоть немного материала, пригодного в пищу фэнам настоящего black-metal, это мне не помешает.</P>
+Автор: Vit Belov
+
+### 30.07.2009 news DARK FORTRESS начали запись
+
+<P>Несколько дней назад <STRONG>DARK FORTRESS</STRONG> вошли в студию <STRONG>V. Santura</STRONG>'s <B>Woodshed Studio</B>&nbsp;для записи своего шестого альбома. Пластинка ожидается в 2010 году на <STRONG>Century Media.</STRONG></P>
+Автор: Vit Belov
+
+### 24.11.2009 news DARK FORTRESS в январе
+
+<P>Новый альбом немецких black-metal'истов<STRONG> DARK FORTRESS "Ylem"</STRONG> выйдет 25 января на <STRONG>Century Media</STRONG>. Сообщается, что в отличие от предыдущей работы <STRONG>"Eidolon"</STRONG> новая пластинка не концептуальная. Альбом был записан в студии <STRONG>V. Santura</STRONG> (<STRONG>TRIPTYKON, NONEUCLID, CELTIC FROST</STRONG>) <STRONG>Woodshed</STRONG>.</P>
+<P><center><IMG height=300 src="/images/news_rus/2009.11/15600.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 04.12.2009 news Новая песня DARK FORTRESS
+
+<P>Новую песню<STRONG> DARK FORTRESS</STRONG> <STRONG>"The Valley"&nbsp;</STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/darkfortress">http://www.myspace.com/darkfortress</A></P>
+<P>Песня попадёт на новый альбом группы <STRONG>"Ylem".</STRONG></P>
+Автор: Vit Belov
+
+### 29.01.2010 news Новое видео DARK FORTRESS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>DARK FORTRESS</STRONG> на песню <STRONG>"Hirundineans" </STRONG>можно посмотреть ниже. Песня попала на альбом <STRONG>"Ylem", </STRONG>вышедший 22 января на<STRONG> Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/x401frOxlAM&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/x401frOxlAM&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.03.2010 reviews Солянка отборная мясная
+
+<P>Немецкие black-metal ветераны существуют с 1994 года, но новая эпоха в их истории началась всего четыре года назад, когда на DARK FORTRESS обратили внимание на Century Media. До этого группа выходила на таких лэйблах, как Black Attakk и Red Stream, но что-то в их музыке привлекло более известный лэйбл.</P>
+<P>Мы рассказывали о предыдущей пластинке этих немцев “Eidolon”, на которой музыкантам удавалось комбинировать исконную тяжесть black-metal с приятными мелодиями, не ударяясь в излишний симфонизм. На свежайшей работе DARK FORTRESS продолжили в этом же духе, но в традиционных рамках black-metal им держаться расхотелось. На “Ylem” они щедро приправляют своё творчество элементами thrash-metal, doom-metal и даже какими-то мелодичными ингредиентами, которые совсем не хочется называть gothic-metal. Именно это и делает эту пластинку очень спорной. Когда вокалист начинает петь чистым голосом, слушатель, любящий black-metal, может задастся вопросами, что это и зачем я это слушаю. Безусловно, обозреваемый альбом понравится поклонникам мелодичного и брутального метала, но фанаты каких-то определённых направлений в тяжёлой музыке могут сильно расстроиться.</P>
+<P>Солянка отборная мясная. Именно такое блюдо изготовили нам DARK FORTRESS. Они взяли все тяжёлые и не очень стили, свалили их в одну кучу, разболтали и подали к нашему столу. Подобные деликатесы присутствуют в меню почти всех пунктов общественного питания на постсоветском пространстве. Вопрос в том, что вы предпочитаете, это вариативное блюдо с неизвестным послевкусием или обычный традиционный мясной борщ.</P>
+Автор: Vit Belov
+
+### 08.10.2010 news Новое видео DARK FORTRESS
+
+<P>Клип на заглавную песню с последнего альбома <STRONG>DARK FORTRESS "Ylem"</STRONG> можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/dNloyxCofts&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/dNloyxCofts&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.10.2014 news Новый клип DARK FORTRESS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-работу немцев <STRONG>DARK FORTRESS "Chrysalis"</STRONG> можно посмотреть ниже. Музыка взята с нового альбома группы <STRONG>"Venereal Dawn"</STRONG>, который вышел на <STRONG>Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/gyAEsnVM_HA" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

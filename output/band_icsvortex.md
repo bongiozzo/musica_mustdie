@@ -58,6 +58,26 @@ Written and performed by ICS Vortex.
 * C группой "Borknagar" Jens F. Ryland (guitar)
 * C группой "Artisan" Jens F. Ryland (guitar)
 
+## Публикации
+
+### 29.06.2011 news Новая песня ICS VORTEX
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню с дебютника бывшего музыканта <STRONG>DIMMU BORGIR</STRONG> <STRONG>ICS VORTEX "The Blackmobile" </STRONG>можно послушать в <STRONG>YouTube</STRONG> клипе ниже. Первый альбом <STRONG>"Storm Seeker" </STRONG>выйдет 22 августа. В составе группы:</FONT></P>
+<P>* <B itxtHarvested="0" itxtNodeId="18">ICS Vortex</B> (ex-DIMMU BORGIR, BORKNAGAR, ARCTURUS) - Vocals<BR itxtNodeId="17">* <B itxtHarvested="0" itxtNodeId="16">Asgeir Mickelson</B> (SARKE, SPIRAL ARCHITECT, ex-BORKNAGAR, ex-TESTAMENT) - Drums<BR itxtNodeId="15">* <B itxtHarvested="0" itxtNodeId="14">Terje "Cyrus" Andersen</B> (SUSPERIA, ex-SATYRICON, ex-DIMMU BORGIR) - Guitar<BR itxtNodeId="13">* <B itxtHarvested="0" itxtNodeId="12">Jens F. Ryland</B> (BORKNAGAR) - Guitar<BR itxtNodeId="11">* <B itxtHarvested="0" itxtNodeId="10">Steinar "Azarak" Gundersen</B> (SPIRAL ARCHITECT, ex-SATYRICON) - Bass</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/nH7kx9QUPkI?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/nH7kx9QUPkI?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.07.2011 news Обложка ICS VORTEX
+
+<P><IMG height=374 alt="" hspace=0 src="/images/news_rus/2011.07/20147.jpg" width=374 align=right border=0>22 августа на <STRONG>Century Media</STRONG> выйдет дебютный альбом <STRONG>"Storm Seeker", </STRONG>бывшего участника <STRONG>DIMMU BORGIR</STRONG>, а ныне участника <STRONG>BORKNAGAR</STRONG> <STRONG>ICS VORTEX. </STRONG>Стал известен трек-лист пластинки:</P>
+<P>01. <B>The Blackmobile</B><BR>02. <B>Odin's Tree</B><BR>03. <B>Skoal!</B><BR>04. <B>Dogsmacked</B><BR>05. <B>Aces</B><BR>06. <B>Windward</B><BR>07. <B>When Shuffled Off</B><BR>08. <B>Oil In Water</B><BR>09. <B>Storm Seeker</B><BR>10. <B>Flaskeskipper</B><BR>11. <B>The Sub Mariner</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -312,6 +312,205 @@ DVD:
 * C группой "Kingdom Come" Allan Tschicaja
 * C группой "Royal Hunt" Allan Tschicaja
 
+## Публикации
+
+### 03.03.1999 reviews Классическая металлическая работа
+
+<P>Эту группу можно отнести к очень титулованой компании, в которую входят такие монстры рока, как Iron Maiden и Black Sabbath. Pretty Maids начинали в ранних восьмидесятых и входили в число команд, представляющих, зарождавшуюся тогда, новую волну heavy metal. Группа до сих пор продолжает поставлять великолепный металл, при чём не в каком-то доисторическом стиле, который был популярен в начале 80-х. Звук - очень современен и на первый взгляд не скажешь, что группа пришла к нам из прошлого. Сейчас Pretty Maids уже дошли до очень качественного power metal, но чувствуется, что это не предел и, если надо, то группа сможет добавить в качестве звука. Обратимся к самому альбому. Это классическая металлическая работа, лично мне очень понравилась заглавная композиция, но и остальные композиции очень убойны. Также есть красивая баллада "With This Eyes", в общем, всё, как положено. Можно адресовать эту работу всем любителям мелодичного, отлично записанного Хэви.</P>
+Автор: Vit Belov
+
+### 13.09.2000 news Новый альбом Pretty Maids
+
+<p> Новый альбом датских металлеров Pretty Maids "Carpe Diem" c 23-го октября появится в продаже.</p>
+
+Автор: Nybras
+
+### 13.09.2000 news The new album of Pretty Maids
+
+<p> The new album of the Danish Metallers finally has a name "Carpe Diem". From October 23 it should be available in the shops.</p>
+
+Автор: Nybras
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 26.04.2002 reviews Планета в панике
+
+<p>Что случилось с этой классической группой? Почему она не смогла удержаться на приличествующем ей уровне? Почему такая нестабильность от альбома к альбому? Столько вопросов на которые трудно дать однозначный ответ...</p>
+<P> Одиннадцатый альбом датской melodic heavy-metal команды вышел несколько суховатым и полным экспериментов с электронными звуками на фоне ортодоксального среднетемпового хэви-метал. Группа, естественно не хочет играть то же самое, что и 15-20 лет назад и хочет звучать современно. Ей удается модернизировать звук, но немногим это может понравиться. Саунд, действительно получился новомодным и очень неплохим. Жесткие, иногда даже брутальные гитары, временами искаженный вокал, электронные вставки: все это местами очень кстати. А в общем-то, музыкальный материал и мелодика совершенно типичные для этой группы. То, чем всегда славилась эта датская команда присутствует и на этом альбоме. Материал довольно ровный, сложно выделить какие-либо песни, после прослушивания, все равно, ни одна из них не вспоминается. Отмечу лишь "Virtual Brutality" и "Worthless". Настоящие поклонники команды останутся довольны, другие же могут поморщить нос и ...послушать чего-нибудь получше, тем более, что выбор велик.</>
+
+Автор: Dimas
+
+### 14.07.2006 news PRETTY MAIDS на Frontiers
+
+<P><STRONG>Frontiers</STRONG> заключили мультиальбомную сделку с <STRONG>PRETTY MAIDS</STRONG>. Новый альбом группы "<STRONG>Wake Up To The Real World</STRONG>" выйдет этой осенью. Эта работа станет первой в составе группы для бывшего барабанщика <STRONG>ROYAL HUNT</STRONG> и <STRONG>KINGDOM COME Allan Tschicaja</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.09.2006 news Новый альбом PRETTY MAIDS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=238 alt="" hspace=0 src="/images/news_rus/2006.09/10682.jpg" width=243 align=right border=5>Новый альбом<STRONG> PRETTY MAIDS</STRONG> <FONT color=#ddd9d0>"<STRONG>Wake Up To The Real World</STRONG>" выходит осенью на <STRONG>Frontiers</STRONG>. Трэк-лист:</FONT></FONT></P>
+<P>1. <STRONG>Wake Up To The Real World</STRONG><BR>2. <STRONG>All In The Name of Love</STRONG><BR>3. <STRONG>I Am The End<BR></STRONG>4. <STRONG>As Guilty As You<BR></STRONG>5. <STRONG>Why Die For A Lie<BR></STRONG>6. <STRONG>Such A Rush<BR></STRONG>7. <STRONG>Where True Beauty Lies</STRONG><BR>8. <STRONG>Brave Young New Breed<BR></STRONG>9. <STRONG>Terminal Violence</STRONG><BR>10. <STRONG>Perfect Strangers</STRONG><BR>11. <STRONG>Another Shot Of You Love</STRONG></P>
+Автор: Vit Belov
+
+### 28.05.2009 news PRETTY MAIDS готовятся к записи
+
+<P><STRONG>PRETTY MAIDS</STRONG> готовятся к записи нового альбома, который должен выйте в начале следующего года. Группа пока не имеет контракта на Европу и Азию на выпуск будущей работы.</P>
+Автор: Vit Belov
+
+### 22.11.2009 news PRETTY MAIDS войдут в студию
+
+<P>Датские ветераны <STRONG>PRETTY MAIDS</STRONG> готовятся войти в студию в январе будущего года. Ориентировочно новая пластинка выйдет весной/летом 2010 года. Группа ведёт переговоры о новом контракте для Европы и Азии.</P>
+Автор: Vit Belov
+
+### 30.03.2010 news Новый альбом PRETTY MAIDS
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.03/16469.jpg" width=400 align=right border=5>14 мая на<STRONG> Frontiers</STRONG> выходит новый альбом<STRONG> PRETTY MAIDS</STRONG> <STRONG>"Pandemonium". </STRONG>Трэк-лист:</P>
+<P>01. <B>Pandemonium</B><BR>02. <B>I.N.V.U.</B><BR>03. <B>Little Drops of Heaven</B><BR>04. <B>One World One Truth</B><BR>05. <B>Final Day of Innocence</B><BR>06. <B>Cielo Drive</B><BR>07. <B>It Comes at Night</B><BR>08. <B>Old Enough to Know</B><BR>09. <B>Beautiful Madness</B><BR>10. <B>Breathless</B><BR>11. <B>It Comes at Night</B> (remix)*</P>
+Автор: Vit Belov
+
+### 15.04.2010 news Новое видео PRETTY MAIDS
+
+<P>Новый клип <STRONG>PRETTY MAIDS</STRONG> на песню <STRONG>"Little Drops of Heaven" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/aotCYzUeV2Q&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/aotCYzUeV2Q&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.09.2010 reviews Очередная работа датской иконы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Для обладателей культового статуса у себя на Родине в Дании ветеранов тяжёлой музыки PRETTY MAIDS уже давно не существует никаких секретов в творчестве. Коллектив под управлением вокалиста Ronnie Atkins и гитариста Ken Hammer с лёгкостью воспроизводят любую музыку в диапазоне от melodic rock до heavy-metal. Новый альбом PRETTY MAIDS “Pandemonium” доказывает это в полной мере.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обозреваемая пластинка выполнена в том же ключе, что и последние работы группы. Альбом составлен из мощных melodic heavy-metal боевиков и проникновенных рок-баллад с лёгкой примесью популярного ныне melodic rock и даже AOR. Особенно обращают на себя внимание хиты в первой половине альбома: “Pandemonium”, “I.N.V.U.”, “Little Drops Of Heaven”. Ближе к концу звучания пластинки PRETTY MAIDS уже не представляют столь ярких композиций, но профессионализм музыкантов позволяет группе не опускаться ниже определённого очень высокого уровня.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Перейдя на Frontiers, PRETTY MAIDS вернули в свою музыку элементы более мелодичной и лиричной музыки. Во время пребывания под флагом металической Massacre Records датчане предпочитали более тяжёлое звучание. Подобные трансформации лишний раз доказывают состоятельность музыкантов, что гарантирует приятное времяпрепровождение при прослушивании их работ.</FONT></P>
+Автор: Vit Belov
+
+### 13.07.2011 news PRETTY MAIDS выпустят CD&#x2F;DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.07/20098.jpg" width=450 align=right border=0>Датские ветераны <STRONG>PRETTY MAIDS</STRONG> снимут своё шоу 1 октября в Швейцарии для релиза в качестве DVD. В этот вечер музыканты планируют сыграть вещи, демонстрирующие&nbsp;всю&nbsp;30-летней карьеру коллектива. Выходящий в 2012 году CD/DVD станет первым официальным видео-материалом, изданным группой.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Настоящий состав <STRONG>PRETTY MAIDS</STRONG>:</FONT></P>
+<P><STRONG>Ronnie Atkins</STRONG>: Vocals <BR><B>Ken Hammer</B>: Guitar <BR><B>Rene Shades</B>: Bass <BR><B>Morten Sandager</B>: Keyboards <BR><B>Allan Tschicaja</B>: Drums</P>
+Автор: Vit Belov
+
+### 15.01.2013 news PRETTY MAIDS: некоторые подробности альбома &quot;Motherland&quot;
+
+<P>Датская легендарная группа <STRONG>PRETTY MAIDS</STRONG> заканчивает работу над новым студийным альбомом. Стали известны некоторые подробности о диске. </P>
+<P>Тринадцатый&nbsp;полноформатник <STRONG>PRETTY MAIDS</STRONG> получил название<STRONG> "Motherland"</STRONG> и будет выпущен 22 марта в Европе и 26 марта в Северной Америке.</P>
+<P>В альбом <STRONG>"Motherland"</STRONG> войдут следующие треки:<BR><STRONG>Mother Of All Lies</STRONG>; <STRONG>To Fool A Nation</STRONG>; <STRONG>Confession</STRONG>; <STRONG>The Iceman</STRONG>;<STRONG> Sad To See You Suffer</STRONG>; <STRONG>Hooligan</STRONG>; <STRONG>Infinity</STRONG>; <STRONG>Why So Serious</STRONG>; <STRONG>Motherland</STRONG>; <STRONG>I See Ghosts</STRONG>; <STRONG>Bullet For You</STRONG>; <STRONG>Who What Where When Why</STRONG>; <STRONG>Wasted</STRONG>.</P>
+<P>Обложку&nbsp;диска можно увидеть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25310.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 21.01.2013 news PRETTY MAIDS: видеоклип &quot;Mother Of All Lies&quot;
+
+<P>Новый видеоклип на песню <STRONG>"Mother Of All Lies"</STRONG> датской легенды <STRONG>PRETTY MAIDS</STRONG> доступен для просмотра ниже.</P>
+<P>Тринадцатый&nbsp;полноформатник <STRONG>PRETTY MAIDS</STRONG> получил название<STRONG> "Motherland"</STRONG> и будет выпущен 22 марта в Европе и 26 марта в Северной Америке.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/OZrmVdsKoqw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 03.02.2014 news Новый релиз от PRETTY MAIDS
+
+<P>Датчане <STRONG>PRETTY MAIDS</STRONG> выпускают новый релиз под названием&nbsp;<STRONG>"Louder Than Ever"</STRONG>. На него войдут 8 перезаписанных песен периода 1995 - 2006 годов,&nbsp;ставшие уже&nbsp;классикой, а также 4 совершенно новых трека, которые группа специально сочинила для данного диска.&nbsp;Выход <STRONG>"Louder Than Ever" </STRONG>запланирован на 21 марта в Европе и на 25 марта в&nbsp;Северной Америке.</P>
+<P>Помимо этого, <STRONG>"Louder Than Ever" </STRONG>будет включать в себя дополнительный DVD диск, на котором вы сможете найти архивные съёмки из 80-х, совсем новые интервью с группой, а также кучу всего другого.</P>
+<P><EM>"Было две основные причины для выпуска этого диска" </EM>-&nbsp;объясняет вокалист <STRONG>Ronnie Atkins</STRONG>.<EM> "Прежде всего, мы хотим оставаться на виду и выпустить что-нибудь между нашим последним и будущим полноценными студийными альбомами. Потом нам было любопытно, как некоторые из наших старых песен будут звучать, если записать&nbsp;их сегодняшним составом и&nbsp;при помощи&nbsp;нашего нынешнего продюсера Якоба Хансена (<STRONG>Jacob Hansen</STRONG>). Изначально мы хотели включить в диск перезаписанные песни, треки с новым сведением, кавера и новые песни, но потом решили оставить только новые и перезаписанные вещи. Мы сознательно не стали перезаписывать песни из 80-х и начала 90-х годов, т.к. они являются своего рода "священными", как для нас, так и для наших поклонников."</EM></P>
+<P>Трек-лист CD:</P>
+<P>01. <STRONG>Deranged</STRONG> (новая песня) | 02. <STRONG>Playing God </STRONG>| 03. <STRONG>Psycho Time Bomb Planet Earth </STRONG>| 04. <STRONG>My Soul To Take</STRONG> (новая песня) | 05. <STRONG>He Who Never Lived </STRONG>| 06. <STRONG>Virtual Brutality </STRONG>| 07. <STRONG>Tortured Spirit </STRONG>| 08. <STRONG>With These Eyes </STRONG>| 09. <STRONG>Nuclear Boomerang</STRONG> (новая песня) | 10. <STRONG>Snakes In Eden </STRONG>| 11. <STRONG>Wake Up To The Real World </STRONG>| 12. <STRONG>A Heart Without A Home</STRONG> (новая песня)</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.02/26587.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 10.02.2014 news PRETTY MAIDS: клип &quot;Nuclear Boomerang&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>PRETTY MAIDS</STRONG> на песню <STRONG>"Nuclear Boomerang"</STRONG> можно посмотреть ниже. Трек войдёт в новый релиз группы под названием <STRONG>"Louder Than Ever"</STRONG>. Дата его выхода запланирована на 21 марта в Европе и на 24 марта в Северной Америке.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/JjuigyXRn3Q" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 18.03.2014 news PRETTY MAIDS: клип &quot;My Soul To Take&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё один видеоклип<STRONG> PRETTY MAIDS</STRONG> c альбома <STRONG>"Louder Than Ever"</STRONG>. На этот раз на песню <STRONG>"My Soul To Take"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск <STRONG>"Louder Than Ever"</STRONG> выходит 21 марта в Европе, а 25 марта на территории Северной Америки.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/tQ1FUkxgWZc" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 18.08.2016 news PRETTY MAIDS объявили дату релиза
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Классики heavy metal/hard rock<strong> PRETTY MAIDS</strong> выпустят новый альбом <strong>"Kingmaker"</strong> 4 ноября на<strong> Frontiers</strong>. Также стал известен трек-лист альбома:</font></p><p>1. When God Took A Day Off<br>2. Kingmaker<br>3. Face The World<br>4. Humanize Me<br>5. Last Beauty On Earth<br>6. Bull's Eye<br>7. King Of The Right Here And Now<br>8. Heavens Little Devil<br>9. Civilized Monsters<br>10. Sickening<br>11. Was That What You Wanted</p><p><center><img width="600" height="600" src="/images/news_rus/2016.08/29823.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 18.08.2016 news New album from PRETTY MAIDS
+
+<p>Classic heavy metal/hard rock band<strong> PRETTY MAIDS</strong> will release their new album "<strong>Kingmaker</strong>" on 4 November via <strong>Frontiers records</strong>. Also became known the track listing for the album:</p><p>1. When God Took A Day Off<br>2. Kingmaker<br>3. Face The World<br>4. Humanize Me<br>5. Last Beauty On Earth<br>6. Bull's Eye<br>7. King Of The Right Here And Now<br>8. Heavens Little Devil<br>9. Civilized Monsters<br>10. Sickening<br>11. Was That What You Wanted</p><p><center><img width="600" height="600" src="/images/news_rus/2016.08/29823.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 29.08.2016 news Новое видео PRETTY MAIDS
+
+<p>Новый альбом<strong> PRETTY MAIDS "Kingmaker"</strong> выходит 4 ноября на<strong> Frontiers</strong>. Дебютный сингл с этого альбома "<strong>Face The World</strong>" можно послушать в видео-клипе ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/gR6hWoRgBDQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.08.2016 news PRETTY MAIDS released new video
+
+<p>New<strong> PRETTY MAIDS</strong> album "<strong>Kingmaker</strong>" comes out November 4 via <strong>Frontiers records</strong>. Debut single from the album "<strong>Face The World</strong>" can be streamed in the video clip below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/gR6hWoRgBDQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 20.09.2016 news Второй сингл с нового альбома PRETTY MAIDS &quot;Kingmaker&quot;
+
+<p>Новый альбом датчан <strong>PRETTY MAIDS "Kingmaker"</strong> выходит 4 ноября на<strong> Frontiers Records</strong>. Вторым синглом с этой работы стал трек "<strong>Humanize Me</strong>". </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/1GbwIimwtaE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 20.09.2016 news Second single from the new album of PRETTY MAIDS
+
+<p>The new album of the Danes<strong> PRETTY MAIDS "Kingmaker"</strong> will be released 4th of November on <strong>Frontiers Records</strong>. The second single from this work is the track "<strong>Humanize Me</strong>". </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/1GbwIimwtaE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.10.2016 news Третий сингл PRETTY MAIDS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новую песню<strong> PRETTY MAIDS "Heaven's Little Devil"</strong> можно послушать ниже. Трек выйдет на новом альбоме коллектива "<strong>Kingmaker</strong>", который выйдет 4 ноября на <strong>Frontiers Music</strong>. Лицензионную версию для России выпустит<strong> Irond</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/BNBQ-Pbfguw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.10.2016 news PRETTY MAIDS released third single
+
+<p>New song of<strong> PRETTY MAIDS "Heaven's Little Devil"</strong> can be streamed below. The track will be released on a new album, "<strong>Kingmaker</strong>", which will be released on 4 November via <strong>Frontiers Music</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/BNBQ-Pbfguw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 24.10.2016 news Новый клип PRETTY MAIDS
+
+<p>Новое видео<strong> PRETTY MAIDS</strong> на заглавную вещь с нового альбома "<strong>Kingmaker</strong>" можно посмотреть ниже. Новый CD выйдет в России и Европе в один день 4 ноября.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/EV6ebCgH-dI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 24.10.2016 news PRETTY MAIDS released video for title track
+
+<p><strong>PRETTY MAIDS</strong>' new video for title track from new album "<strong>Kingmaker"</strong> can be viewed below. The new CD will be released in Russia and Europe in one day on 4 November.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/EV6ebCgH-dI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.11.2016 reviews Самая недооценённая группа на мировой hard rock сцене?
+
+<p>Очень редко группы второго эшелона имеют такую насыщенную творческую историю как PRETTY MAIDS. Датчане всегда были великой группой у себя на родине, но уже ближе к концу прошлого века коллектив ушёл на второй план вместе с контрактом с металическим лэйблом Massacre Records. Новый виток карьеры у ветеранов наступил вместе с началом сотрудничества с Frontiers Records, где сейчас собрались все большие имена старого hard rock. Большие, но не великие, как PRETTY MAIDS.</p><p>Вероятно, этот коллектив можно назвать недооценённым на мировой hard rock сцене. Безусловно, это связано прежде всего с национальной принадлежностью музыкантов. Все другие компоненты для успеха у PRETTY MAIDS присутствуют. Их музыка мелодичная, запоминающаяся, отличный вокал бессменного певца Ronnie Atkins, безупречное продюсирование... Более того, датчане умеют играть как AOR, так и более тяжёлый материал вплоть до heavy metal. Интересно, что именно соотношение на альбомах тех или иных стилей рок музыки разделяет творчество музыкантов на различные неравные периоды. К сожалению для меня, как любителя тяжёлой музыки, сейчас PRETTY MAIDS в очередном AOR/hard rock периоде, в музыке на новом альбоме «Kingmaker” практически отсутствуют элементы метала. В принципе это единственная претензия к этой работе. Пластинка состоит из хороших крепких композиций, которые украсят любой альбом в стиле мелодичного hard rock.</p><p>Поклонники группы со стажем не пропустят «Kingmaker”, благо в нашей стране любителей PRETTY MAIDS полно, почти все альбомы выходили даже по лицензии. Те же, кто по каким-то причинам не знаком с творчеством датского коллектива и при этом любит hard rock, добро пожаловать. В рядах Ваших фаворитов прибудет совершенно точно.</p><p>Покупайте на Escapemind.ru: <a href="http://escapemind.ru/goods/PRETTY-MAIDS-039-Kingmaker">http://escapemind.ru/goods/PRETTY-MAIDS-039-Kingmaker</a></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

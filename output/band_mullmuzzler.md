@@ -22,6 +22,33 @@
 
 * C группой "Dream Theater" (Dream Theater)
 
+## Публикации
+
+### 20.03.2001 news MULLMUZZLER часть 2-я....
+
+<p>По сообщению официального сайта, James LaBrie сотоварищи закончил запись вокала и инструментальных линий для нового MULLMUZZLER CD. С 10 марта ведется микширование альбома (за пультом - Steven Wilson из PORCUPINE TREE). Артворк релиза выполнит Dave McKean известный по работе с DREAM THEATER (альбом Scenes From A Memory).</p>
+
+Автор: Yermola
+
+### 20.03.2001 news MULLMUZZLER Part II!
+
+<p>According to an update from James LaBrie on his official site, the vocals and instruments for the new MULLMUZZLER CD have all been recorded. Mixing started on March 10th. Steven Wilson of PORCUPINE TREE was originally going to mix the new album. Unfortunately, James was unable to get the recordings to Steven before Porcupine Tree's current European tour. Instead, the album will be mixed by Victor Florencia. According to the DREAM THEATER vocalist, "He is an incredible mixer and is very similar to Steven in that he is young and innovative with the sonics of music." Dave McKean will be doing the cover artwork for the album. He also did the artwork for Scenes From A Memory and the first Mullmuzzler album. In related news, abrand new trailer for Dream Theater's Metropolis 2000 DVD/Video is now available at http://www.dreamtheater.net/trailer.htm. The trailer is in RealVideo format, and requires that you have RealPlayer 8.0 or higher installed. The trailer has been zipped and is 3.56 MB in size. The release date for the DVD and Video is April 24th.</p>
+
+Автор: Yermola
+
+### 13.08.2001 news Второй сольник Джэймса Ля Бри...
+
+<p>Вокалист "DREAM THEATER" - Джэймс Ля Бри 11 сентября выпускает второй сольник своего проекта "James LaBrie’s MULLMUZZLER" - Mullmuzzler II через Magna Carta Records. Трек-лист: 01. Afterlife 02. Venice Burning 03. Confronting The Devil 04. Falling 05. Stranger 06. A Simple Man 07. Save Me 08. Believe 09. Listening 10. Tell Me</p>
+
+Автор: Yermola
+
+### 13.08.2001 news James LaBrie&#39;s MULLMUZZLER.....
+
+<p>DREAM THEATER singer James LaBrie will release his second solo album, entitled Mullmuzzler II (and appearing under the name James LaBrie’s MULLMUZZLER) on September 11th through Magna Carta Records. The full track listing for the album is as follows: 01. Afterlife 02. Venice Burning 03. Confronting The Devil 04. Falling 05. Stranger 06. A Simple Man 07. Save Me 08. Believe 09. Listening 10. Tell Me. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

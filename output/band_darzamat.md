@@ -226,6 +226,510 @@ The album will be released in Japan via Spiritual Beast.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.10.2002 news Darzamat возвращаются с новым альбомом
+
+<p>Darzamat после продолжительной паузы вернулись к жизни и наконец записали следующий альбом в своей дискографии, "Oniriad". Альбом содержит 9 композиций общей продолжительнотью более 42 минут и будет выпущен в конце этого года. Причина столь долгой задержки в том, что группа занялась постройкой собственной студии звукозаписи. В группе произошли также перемены в составе. Барабанщик Ковальски ушёл в Eclipse и его заменил Павел Чудиски (ex-Mastiphal). Сразу после записи "Oniriad" группу покинула Катаржина Банасак, уехавшая в Америку, и вместо неё теперь будет Каролина Видера.</p>
+
+Автор: Morsus
+
+### 20.10.2002 news Darzamat have finished their new album
+
+<p>Darzamat have finally finished their longawaited 3rd album, titled "Oniriad". The reason for the delay was the fact that the band was trying to finish their own recording studio and record the album there. The album contains 9 pieces (over 42 minutes) and will be released in the end of this year. The band also experienced some line-up changes. Kowalski left the band (now in Eclipse) and Pawel Chudzicki (ex-Mastiphal) became the new drummer. After recording of “Oniriad” Katarzyna Banaszak went to the States and was replaced by Karolina Widera.</p>
+
+Автор: Morsus
+
+### 24.01.2003 reviews Переиздание культа
+
+<p>Перед нами переиздание культового мини-альбома польской группы DARZAMAT 1998 года. В него вошли все пять вещей с мини-альбома прошедших ремастеринг, а также ремикс "Ancient Philosophy" записанный в 2002 году. Но лучше бы этого ремикса, представляющего собой нойзово-амбиентную версию очень даже неплохой вещи, в помине бы и не было. Расположенный в конце альбома, он только портит положительное впечатление от альбома. Впрочем, всегда ведь можно нажать кнопку стоп и не слушать его, а потому поговорим об альбоме, не учитывая его. А альбом-то, надо признать, один из лучших sympho metal альбомов с элементами gothic-black metal. Это звучит примерно как смесь "Theli" от THERION с "Widow Weeds" от TRISTANIA с отголосками LACUNA COIL. Также в отдельных фрагментах наблюдается схожесть с еще массой групп. Потому, материал получился довольно разнообразным и с оригинальной изюминкой. Очень профессиональная работа. прекрасная вокальная работа. Нежный женский вокал переходящий в сопрано, чистый мужской переходящий в булькающий скриминг и смешанный хор. Атмосфера мечтательности и синтезаторная полифоничность, скрипичные дела, арфа, флейта и акустические пассажи. Очаровательная музыка не лишенная экстремальности. Перспективная группа, ждать нового творения которой осталось совсем недолго.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 31.08.2003 reviews Переиздание раннего альбома культовой польской группы DARZAMAT
+
+<p>Я в шоке!!! Как ЭТО могло попасть на прилавки наших магазинов? У нас что уже и делать нечего? Сделаны все классики жанра, сделаны все начинающие российские коллективы, также сделаны все коллективы из стран бывшего СССР. И вот мы с радостью начинаем делать все раритетные записи групп из Польши. DARZAMAT - великолепный коллектив с множеством легендарных альбомов решил переизать свои ранние альбомы. На них Вы встретите и забитые барабаны, и дерьмовый звук гитар, и какие-то утробные крики вокалиста... Подвернулся лучший металл-лэйбл IROND и сделал ЭТО. По-моему, даже SAMHAIN лучше... Чтобы быть справедливым, отмечу, что мелодии неплохи. Но нельзя же делать, всё подряд, лучше издайте таких же наших!!! Провал промо-менеджеров IROND RECORDS!!!</p>
+
+Автор: Vit Belov
+
+### 20.09.2003 reviews DARZAMAT нового века
+
+<P>Прослушивая предыдущие работы этого польского коллектива, можно было смело заявлять, что интересны они, как представители своего времени, то есть серидины 90-х. Подписавшись на крупный европейский лэйбл (Avantgarde), DARZAMAT выдали альбом, который заслуживает особого внимания и в тоже время является ярким представителем gothic-metal-музыки нового десятилетия. Проблемы со звучанием и аранжировки ушли в прошлое. Более того, именно аранжировки и оркестровки, сделанные на компьютере, являются основным достоинством альбома. Чистейшее звучание фортепьяно и псевдо-классических инструментов создают неподражаемую атмосферу прозрачности звука. Тяжесть звучания была принесена в жертву звуковой концепции, которая позволяет более полно раскрыть замысел сочинителя песен. Каждая из них представляет полноценный рисунок. Иногда этот рисунок может не нравиться, как, например, чересчур занудная 'The Longest Journey'&nbsp;или&nbsp;электронная 'Time', но&nbsp;если вас зацепит, то не отпустит&nbsp;долго.&nbsp;К минусам можно отнести мужской вокал, который проигрывает с огромным&nbsp;разрывом женскому пению. Рекомендую всем, кто может оценить мелодии и форму...</P>
+<P>Диск предоставлен магазином B2-100 в ТВЦ "Рубин"</P>
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 23.02.2004 news Darzamat will be one of the headliners of the metal-gothic festival in Moscow...
+
+Darzamat will be one of the headliners of the metal-gothic festival in Moscow, which will take place on the 6th of March at the Estakada venue. Beside Darzamat other bands to take part in the festival are: Entwine from Finland, Macbeth from Italy and Shabash from Estonia. The agency responsible for the concert is a well-known Russian company – Roxx Music, which, among others, has organized gigs for such great names as Glenn Hughes, Amorphis, The 69 Eyes or Moonspell. Darzamat will appear live with a brand new line-up. Daamr (musician, who worked with Darzamat during the recording of the second album “In The Opium Of Black Veil”) re-joined vocalist Flauros and guitarist Chris. Both of guitarists are now responsible for composing. They prepare also bass sections as well. Following new musicians to strengthen the band are Golem (drummer known from band Dragon) and Spectre, who takes care of keyboards. And finally Nera from Midnightdate is now a new female vocalist. - Thanks to new musicians current band’s visions are more mature. Songs combine gloomy atmosphere with truly aggressive guitars. To tell the truth the new stuff doesn’t remind anything Darzamat has recorded so far – says Flauros, band’s vocalist. <br><br>
+
+    The same line-up will enter the studio in May to record band’s fourth album. Avantgarde Records will release the album at the end of the year. A few of the titles from new album are already known: “Era Aggression”, “From Beyond” and “Time Of Obscure Emotions”.    <br><br>
+
+- During the gig we’ll play mainly the material, which is prepared for the new album. The stuff is harder than all of the previous Darzamat’s albums. But the music is still fulfilled with those dark emotions, which brought Darzamat to live – ensures Chris, band’s guitarist. <br><br>
+
+“Moscow After Midnight”<br>
+Moscow, Russia (Estakada Club)<br>
+Date: 6th of March 2004<br>
+Macbeth (Italy), Darzamat (Poland), Shabash (Estonia), Satarial (Russia)<br>
+
+Date: 7th of March 2004<br>
+Entwine (Finland), Deadbabes (Finland), Para Bellum (Russia), Dopelganger (Russia)
+Автор: Yermola
+
+### 28.02.2004 news Готик-метал фестиваль. 6 марта. Клуб Эстакада.
+
+<DIV><IMG height=400 alt="" hspace=0 src="/images/shows_rus/2004.03/6098.jpg" width=300 align="left" border=0>Концертное агентство ROXX Music и Радио-1&nbsp; представляют Первый Международный Фестиваль “MOSCOW AFTER MIDNIGHT”, на котором выступят звезды готической&nbsp;и лав-метал сцены ENTWINE (Финляндия), DARZAMAT (Польша), DEADBABES (Финляндия), DOPPELGANGER (Россия).</DIV>
+<P>В программе:&nbsp;</P>
+<P>- сеты от&nbsp;известных московских&nbsp;DJ-ев&nbsp;Riper и Asmodeus- представителей готического Интернет-портала The Crypt,</P>
+<P>- Gothic Fashion Show,</P>
+<P>- бесплатный готический макияж всем желающим,</P>
+<P>- конкурс на лучший готический&nbsp; костюм,</P>
+<P>- выборы Мисс «After Midnight». </P>
+<P>Победители конкурсов получат призы от организаторов и спонсоров фестиваля – ювелирной компании «Alchemy Gothic» (Великобритания) и культовой обувной фирмы «New Rock» (Испания), чью обувь с удовольствием носят музыканты групп Rammstein, The 69 Eyesи др. </P>
+<DIV>&nbsp;</DIV>
+<DIV>&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; 7 марта. Клуб Эстакада. 16.00</DIV>
+<DIV>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Адрес клуба: Рязанский проспект, д.39, ДК 40-летия Октября.&nbsp; Проезд: м.Рязанский проспект, 1-й вагон из центра, авт. 169, 143, 29, 725, 160,тролл.63 до ост. "Ул.Стахановская". </DIV>
+Автор: Дофф
+
+### 28.02.2004 articles Информация о группах, выступающих на Moscow After Midnight.
+
+<P><B>ENTWINE</B></P>
+<P><B></B></P>
+<P>История ENTWINE восходит к 1995 году, когда A.Hanttu (ударные), T-I Mikkola(гитара и время от времени вокал) и T.Taipale (бас) только начинали свои музыкальные опыты под всевозможными названиями. Death-metal, который они пытались играть в то время, сильно отличался от того готического сияния, что отличает ENTWINE сегодня. Возможно, по мере развития навыков владения инструментами, а может ещё по какой причине, дюйм за дюймом отходили они от U.S. death-metal стандарта, музыка становилась легче, мелодии богаче и к 1997 году ENTWINE обрели нынешнюю музыкальную форму. Чтобы соответствовать найденному музыкальному стилю, группа нуждалась в новом вокалисте, наличие второго гитариста и клавишника тоже сочли необходимым и поиск новых участников был объявлен . Основная проблема была решена, когда в конце 1997 года к группе присоединился P.William. </P>
+<P>В декабре'97 группа сделала первую запись под именем ENTWINE, которая содержала 4 трека gothik atmospheric metal и называлась "Divine Infinity". Отзывы получились самые высокие и имя ENTWINE довольно быстро стало известно в кругах metal underground. В феврале '98 R. Heikkonen пришёл в группу, чтобы занять место клавишника, и ENTWINE, наконец, получили возможность играть живые концерты. В 1999 году ENTWINE заимели контракт со Spikefarm Records и в сентябре того же года увидел свет их дебютный альбом "The Treasures within Hearts", вновь получивший хорошие отзывы. P. William оставил группу в апреле 2000 и тогда же ENTWINE принимают решение заменить басиста. Новый вокалист Mika Tauriainen и басист Joni Miettinen приходят в мае 2000. </P>
+<P>После трёх месяцев репетиций ENTWINE вошли в студию и записали свой второй альбом -"Gone". Cингл "New Dawn" с этого gothic-metall'ического шедевра ворвался в финские чарты сразу же после выхода. Такая же судьба постигла и вышедший в январе 2001 сам альбом. Jaani Kahkonen присоединился к группе, как сессионный гитарист, но уже через пол-месяца стал её полноправным участником. </P>
+<P>А через год, в январе 2002 , ENTWINE вновь в Astia-Studio. Результат этого -третий по счёту альбом "Time of Despair". И вновь они демонстрируют все блестящие грани своего таланта, привлекшие некогда Spikefarm. Их марка готического металла очаровательна по своей красоте, трогательно эмоциональна и, главное, тяжела. </P>
+<P>И, наконец, в марте 2004 года на прилавках музыкальных магазинов должен появиться новый альбом группы "diEversity", который несомненно докажет репутацию ENTWINE, как одной из самых ярких звёзд на небесах gothic metal. </P>
+<P>Дискография</P>
+<P><B>'Divine Infinity'</B> 1997 (demo)</P>
+<P><B>'The Treasures within Hearts' </B>CD 1999</P>
+<P><B>“Gone”</B> CD 2001</P>
+<P><B>“Time Of Despair”</B> CD 2002</P>
+<P><B>“diEversity”</B>CD 2004 </P>
+<P>Официальный сайт: <SPAN><A href="http://www.entwine.org/"><U>www<SPAN lang=RU>.</SPAN>entwine<SPAN lang=RU>.</SPAN>org</U></A></SPAN></P>
+<P><B></B></P><SPAN lang=EN-US>DEADBABES</SPAN> 
+<P>Deadbabes – одно из новых слов в финской тяжелой музыке. Финляндия неутомимо поставляет молодые и талантливые коллективы. Вот и пятеро юношей из Хельсинки нашли, что сказать миру.</P>
+<P>&nbsp;Началом своей истории группа Deadbabes считает ноябрь 2001, когда Лассе и его друг Иллу сыграли вместе несколько песен. Иллу тогда считался лучшим гитаристом в своей среде, и у него давно зрели планы о группе. Оба юноши сочли дуэт удачным и решили продолжать в том же духе. Они хотели, чтобы их группа приобрела мрачный, пугающий ареол, музыканты видели себя только в черных одеждах, а свою музыку представляли красивой, мелодичной и, естественно, депрессивной. </P>
+<P>Ласcе, Иллу и бас-гитарист Юха усиленно репетировали несколько месяцев и даже провели несколько концертов, прежде чем решили немного обновить состав. Основателям группы казалось, что прежние драммер и клавишник слишком застряли в музыке 80-х годов. Deadbabes очень повезло, что им удалось переманить на свою сторону драммера Яани, который уже был занят в нескольких, весьма успешных проектах. Его друг Карл счел за честь приглашение стать клавишником Deadbabes. С тех пор состав группы не меняется:</P>
+<P>&nbsp;вокалист Лассе Эрьямо \ LasseErjamo (день рождения – 5 августа 1976 г.) </P>
+<P>басист Юсси Оскари Аалтонен \ JussiOskariAaltonen (день рождения – 1 октября 1978 г.)</P>
+<P>гитарист Анти Хармайнен akaIllu \ AnttiHarmainen (день рождения – 22 января 1981 г.)</P>
+<P>драммер Яани Пеуху \ JaaniPeuhu (день рождения – 17 августа 1978 г.)</P>
+<P>клавишник Карл Хуттунен \ KarlHuttunen (день рождения – 5 июня 1976 г.)</P>
+<P>На сегодняшний день в активе группы только одна пластинка – EPc мрачным названием TheDrug. В данный момент группа записывает свой первый полноценный альбом, релиз которого запланирован на апрель 2004 года.</P>
+<P>Несомненный плюс Deadbabes в том, что сейчас в Финляндии никто такую музыку не играет. «Мертвые детки», выросшие на мрачной электронике конца прошлого века, представляют собой модернизированное, адаптированное к современной любовно-метально-готической молодежи перевоплощение TheCure. Никаких истошных гитарных соло и вокальных завываний, но лишь четкий ритм, мрачный грустный голос, красивые клавишные и много эхо. Вот он – музыкальный декаданс начала нынешнего столетия. Финские журналисты называют музыку Deadbabes – darkpop.</P>
+<P>Сами музыканты говорят, что наибольшее влияние на их творчество оказали AC/DC, Guns’N’Roses, AliceCooper, Queen и MotleyCrue. Однако с самого начала Deadbabes хотели делать свою музыку, не похожую, на их вдохновителей. Вокалист Лассе говорит, что по началу он перенимал манеру пения у таких вокалистов, как DavidGahan, Bono, IanAstbury (theCult) и, конечно же, у великого Элвиса.</P>
+<P>Официальный сайт: <SPAN><A href="http://www.deadbabes.net/"><U>www<SPAN lang=RU>.</SPAN>deadbabes<SPAN lang=RU>.</SPAN>net</U></A></SPAN></P><SPAN lang=EN-US>DARZAMAT</SPAN> 
+<P><SPAN>Польская группа <B>Darzamat</B> образовалась в 1995 году. В 1996-ом они записали первый альбом под названием <I>"In The Flames Of Black Art"</I>, который получил много хороших отзывов со стороны критиков. В</SPAN> 1998-ом Darzamat выпустилиальбом<SPAN> <I><SPAN lang=EN-US>"In The Opium Of Black Veil"</SPAN></I><SPAN lang=EN-US>. </SPAN></SPAN>В 2002 оба альбома были переизданы. Запись последнего диска "Oniriad" состоялась только через два года, так как группа была занята обустройством собственной студии. Нынешний стиль группы можно охарактеризовать как gothic-doommetal. Музыканты еще ни разу не были в нашей стране и вот сейчас, благодаря компании ROXX Music российским поклонникам предоставляется возможность увидеть группу в расцвете сил и в новом составе. Музыканты исполнят вещи как со старых альбомов, так и свежий материал, который ляжен в основу нового, четвертого альбома группы.</P>
+<P>Дискография: </P>
+<P><B>Oniriad CD(2003)</B><SPAN><BR><B>In the Opium of Black Veil CD (1999)</B></SPAN></P>
+<P><B>In the Flames of Black Art (1997)</B></P>
+<P><B></B></P>
+<P><B><SPAN>Официальный сайт: <A href="http://www.darzamat.art.pl/"><U>http://www.darzamat.art.pl</U></A></SPAN></B></P>
+<P><B></B></P>
+<P><B></B></P>
+<P><B>DOPELGANGER</B></P>
+<P><B></B></P>
+<P>"" DoppelgangeR "" - в переводе с немецкого, означает "двойник". Наверное именно это название и повлияло на дальнейшую творческую направленность группы и судьбу коллектива в целом - очень неодназнучную.</P>
+<P>Doppelganger был образован в 1994 Андреем Малиновским и Александром Климовым. В 1995 году был выпущен первый альбом под одноименным названием – “Doppelganger” на лейбле “Angel”. В альбоме отсутствовала единая концепция - использовались такие разные стили, как doom metall/hard-core/gothic metall. Несмотря на свою многогранность, альбом получил неплохие отзывы в адерграундной металлической тусовке Москвы. Следующий альбом под названием "Serpent's Land" вышел в следующем 1996-ом году. Этот альбом выходит на том же лейбле в июне. Несотря на то, что группа придерживалась все тех же разносторонних музыкальных направлений, что и на первом альбоме, команда начинает выступать в клубах Москвы, гастролировать по России, имея неплохой успех среди любителей, как и тяжелой музыки (hard-core, doom metal), так и любителей более лирических стилей (gothic-metal, gothic-doom). В том же 1996-ом году группа принимает участие в поистине феерическом международном фестивале “Deathrider4” в Беларуссии, с такими признанными коллективами, как Mental Home, Brain Storm и др. После этого мероприятия группа получает предложение от компании "Metal Agen/Союз" о выпуске альбома, но, по разным причинам, из группы уходит лидер Александр Климов, его место занимает Дмитрий “Flo” Тишин, но группа на некоторое время перестает давать концерты и вынуждена отказатся от услуг "Metal Agen/Союз".... </P>
+<P>Но в 2000-ом году Андрей Малиновский и Дмитрий "Flo" Тишин решили воссоздать группу. Было принято решение играть более концептуальную музыку, в духе Katatonia, Anaphema и др. Новым гитаристрм группы стал Юрий "Nikniki". Были сделаны несколько каверов на тех же Anaphema и Katatonia. После неудачных поисков клавишника, в группу приходит второй гитарист Антонио. В таком составе группа просуществовала год и дала всего три концерта в нескольких клубах Москвы. В 2001 году из группы ушел Антонио, а на следующий же день группа нашла вокалиста в лице Юрия "Gatan". Через три месяца была сделана первая demo-запись, при участии гитариста Максима Федосеева. Промо получило название "Love Is like Sucide". К сожалению, музыканты не смогли добится нужного звучания, так как она производилась в домашней студии. Поэтому, мнения о материале разделилсь - кто-то называл его хоть и "самобытным продуктом", но при этом подчеркивали явную металлическую основу в звучании, кто-то просто обвинял группу в подражании финской love-metall группе H.I.M, но не этого ждали музыканты. С каждой репетицеей они облегчали звучание, вносили изменения в музыку песен, начало чувствоватся влияние "Sisters of Mercy", "Fields of Nephilim", "The69eyes" и др. готик-рок команд. </P>
+<P>В конце 2002, после долгого периода бездействия, группу покидает один из ее основателей - барабанщик Андрей Малиновский. Несмотря на всю трагичность случившегося, уже на следующий день (!) вакантное место Андрея занял Илья Алексеенко и вскоре состав был полностью укомплектован клавишницей Еленой Кузнецовой. Юрий "Gatan" - вокал, Дмитрий "Flo" Тишин - бас, Юрий "Nikniki" - гитара, Илья "Drummer" Алексеенко - ударные и Елена Кузнецова - клавишные. В таком составе коллектив начал упорно репетировать, песни как-будто писались заново, появились концерты, команда даже приняла участие в нескольких музыкальных телепрограммах и уже через месяц группа "заперлась" в студии для записи полноформатного альбома "Desire Lost forever?..."</P>
+<P>Альбом получил неоднозначные отзывы в прессе. Но, тем не менее,именно этот альбом повлиял на дальнейшую судьбу группы. В течение считаных месяцев группа превратилась в любимцев московской готической публики – на их концертах всегда можно увидеть как толпыдевушек , страстно взирающих на своих кумиров, так и мужскую часть аудитории поклонников готик-рока. Группа выступила на разогреве у признанных лидеров финской лав-метал сцены Charon во время их московских гастролей, активно гастролирует по России и является на данный момент одной из самых интересных на сцене отечественного готик-рока.</P>
+<P>Дискография:</P>
+<P>"Desire lost Forever?" СD 2003</P>
+<P>“Serpent's Land” СD 1996</P>
+<P>“Doppelganger” CD 1995</P>
+<P>Официальный сайт: http://www.doppelganger.hotmail.ru</P>
+Автор: Дофф
+
+### 19.03.2004 articles Фестиваль с трудной судьбой.
+
+<P>Так уж получилось, что c самого начала фестиваль “MoscowAfterMidnight”, проводимый фирмой Roxx, сопровождался большим количеством мелких и не очень скандалов и скандальчиков. Возмущался народ выбором «роксами» места проведения фестиваля – клуба на окраине Москвы, бывшего ДК «40-летия Октября», куда добираться надо на оленьих упряжках. А ведь на самом деле зал-сцена-звук-свет в «Эстакаде» на высоте, а доехать до него гораздо удобнее и быстрее на маршрутке от метро «Марксистская», чем тащится от указанного на афишах и билетах «Рязанского проспекта». Потом тру-готы оборались из-за возмутительного использования священного слова «готика» вкупе с ненавистными им металическими командами. А особо умных оскорбила ассоциация названия шоу с группой «LondonAfterMidnight». Но это всё мелочи, как говорится, собака лает, караван держит свой путь в Багдад. </P>
+<P>Реальные проблемы начались, когда рухнула крыша аквапарка в Ясенево. Перепуганные&nbsp;поляки из “Artrosis” отказались от участия в фестивали. Трусы, не мужики. Потом к составу выступающих команд был добавлен “Cатариал», что для готов как красная тряпка. Но вроде проблема с забастовавшими диджеями была решена без драк. Почти в последний момент сорвался приезд самой интересной из заявленных групп – &nbsp;"Macbeth". Проблемы с билетами на самолет. Видно с ночи очередь в кассу не заняли. </P>
+<P>В итоге вместо двух дней программу сократили до одного. Что, возможно, и к лучшему.</P>
+<P>Ибо толпы у ДК не было. Вряд ли у интересующихся подобной музыкой хватило бы денег на билеты на оба концерта. </P>
+<P>Но вот уже суббота, и, как последние лохи, поверив напечатанному на билете -&nbsp;начало в 16.00 - &nbsp;мы, изрядно промокнув, на подплавленных не ласковыми лучами солнца, нечищенных, заснеженных дорожках (снегоуборочная техника в такую глухомань не добирается), мы прибыли к входу во Дворец Культуры. Там собралась толпа человек&nbsp;в сто, мирно попивающих горячительные напитки. Без них, как оказалось, выдержать полтора часа на пронзительном, явно не весеннем ветру, было тяжеловато. Бедные девушки в виниле и латексе… Похоже, задержка концертов становится фирменным знаком компании “Roxx”. </P>
+<P>Внутри клуба была обнаружена точка, продающая цацки, наверное, от заявленных «Alchemy Gothic», куча пиратской продукции. Смело. Обуви “NewRock” замечено не было. Скупили на корню первые из прорвавшихся, что ль? </P>
+<P>Бар был неплох, все дорого и пафосно. Что не соответствует антуражу. </P>
+<P>Первыми выступали, естественно, отечественные производители, и куча молоденьких готочек их с удовольствием поддержала. “Доппельгангеры» представили общественности новую программу. Пять новых песен. “10 years”, “Leaves”, “Killing Machine”, “Pain of Feeling”, “City Of Sex”. Хорошие. Умеренно-хитовые. Трудно что-то понять сразу после первого, да ещё концертного прослушивания. Одно ясно: группа не пошла по очевидному пути и не заиграла сладенький лав-метал. Под радостные девичьи вопли после традиционной мадонновской “Frozen”, «самая готичная группа фестиваля» с триумфом покинула сцену.</P>
+<P>Начинающие финские парни из “Deadbabes” мне совершенно не понравились. Чмошный внешний вид, нехаризматичная внешность вокалиста, не обладающего, к тому ж, хотя бы приличным голосом. Ну и серенькие песенки. Послушал три вещи и свалил, пиво допивать, что в баре осталось… </P>
+<P>Поляки “Darzamat” оказались настоящим открытием вечера. Успешно разогнав всю готичную тусовку тяжелыми гитарами и зверским рыком они выдали отлично сыгранный, драйвовый дет-блэк. И звук у них был самым лучшим. Не зря они столько времени потратили на саундчек. Почему такую неформатную группу пригласили на фестиваль так и осталось для меня загадкой. Но, по-любому, спасибо организаторам. Вряд ли еще когда мы увидим сей достойный коллектив на московской сцене. От души порубившись среди ещё человек 30, понимающих, что на самом деле является хорошей музыкой, я побрел в бар поглощать уже крепкие напитки, ибо пивной запас клуба оказался невелик. </P>
+<P>Вследствие этого появление хэдлайнеров (судя по наполнившемуся сразу залу), бенда “Entwine”, я встретил с энтузиазмом. Который, правда, потихоньку начал утихать. Ибо эти звезды лав-метала, оказались группой одного хита. Весь остальной репертуар, нормально слушающийся дома, оказался неинтересным в живом виде. Публика моего мнения не разделяла и отрывалась по полной. Ну и ладно. Мне они больше, чем Charon в Б2 понравились, по-любому.</P>
+<P>Итог. Вполне… хорошо провёл выходной. Когда MAM2?</P>
+<P>ЗЫ. Ну и рожа у этвайновского вокалиста. Вылитый кот из «Возвращения блудного попугая»…</P>
+<P>ЗЫ2. Роксы обещали привести Дарзаматов ещё. Ура!!</P>
+Автор: Дофф
+
+### 20.06.2004 news DARZAMAT начали запись нового альбома
+
+<P><B>DARZAMAT</B> Начали запись нового альбома '<B>Semidevilish</B>'. Трэк-лист:</P>
+<P><B>Demise </B><BR><B>In Red Iris</B><BR><B>Fistful of Ashes</B><BR><SPAN style="COLOR: #ffffff"><B>Absence of Light</B></SPAN> <BR><B>From Beyond</B> <BR><B>Time of Obscure Emotions </B><BR><B>Dusk</B> <BR><B>Era Aggression</B> <BR><B>The Darkest One</B> <BR><B>In its Cobweb</B></P>
+Автор: Vit Belov
+
+### 20.06.2004 news DARZAMAT begins to record
+
+<P><B>DARZAMAT</B> begin to record new album '<B>Semidevilish</B>'. Track-list:</P>
+<P><B>Demise </B><BR><B>In Red Iris</B><BR><B>Fistful of Ashes</B><BR><SPAN style="COLOR: #ffffff"><B>Absence of Light</B></SPAN> <BR><B>From Beyond</B> <BR><B>Time of Obscure Emotions </B><BR><B>Dusk</B> <BR><B>Era Aggression</B> <BR><B>The Darkest One</B> <BR><B>In its Cobweb</B></P>
+Автор: Vit Belov
+
+### 28.09.2004 news Новый альбом DARZAMAT готов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DARZAMAT 'Semidevilish'</STRONG> уже готов. Пластинка была записана в Mamut Studio с инженером <STRONG>Maciej Mularczyk</STRONG>. Трэк-лист:</FONT></P>
+<P><STRONG><IMG height=227 alt="" hspace=0 src="/images/news_rus/2004.09/7181.jpg" width=250 align=right border=5>Intro<BR>In Red Iris<BR>Era Aggression<BR>Time of Obscure Emotions<BR>Fistful of Ashes<BR>Demise<BR>Absence of Light<BR>The Darkest One<BR>Dusk<BR>From Beyond<BR>In its Cobweb<BR>Videoclip:<BR>Era Aggression – (live from Brutal Assault festival)</STRONG></P>
+Автор: Vit Belov
+
+### 28.09.2004 news New album by DARZAMAT is ready
+
+<P>The fourth album of <STRONG>Darzamat</STRONG>, entitled “<STRONG>Semidevilish</STRONG>”, is now complited. The material has been recorded and mixed at <STRONG>Mamut Studio</STRONG> by <STRONG>Maciej Mularczyk</STRONG>.</P>
+<P>"<EM>The recording session has proceeded without any significant problems and very soon we have found the sound that was suitable for what today’s Darzamat represents</EM>" – says <STRONG>Flauros</STRONG>, band’s vovalist.</P>
+<P>The album will also include a concert videoclip of the song “<STRONG>Era Aggression</STRONG>”, filmed at the 9th edition of “<STRONG>Brutal Assault</STRONG>” festival in Czech Republic, where <STRONG>Darzamat</STRONG> appeared directly before <STRONG>Cannibal Corpse</STRONG>.</P>
+<P>Flauros comments on the new album:&nbsp;"<EM>This is the hardest material Darzamat has ever made and at the same time, the first step in a new direction which is to open a successive chapter in band’s history. “Semidevilish” is a confirmation that Darzamat still presents metal music never deprive of feelings, hate, anger, passion and experimental approach</EM>".</P>
+<P>According to a deal with <STRONG>Metal Mind Production</STRONG> the album will be released on October 18th 2004. Track list:<BR><STRONG><IMG height=227 alt="" hspace=0 src="/images/news/2004.09/7182.jpg" width=250 align=right border=5>Intro<BR>In Red Iris<BR>Era Aggression<BR>Time of Obscure Emotions<BR>Fistful of Ashes<BR>Demise<BR>Absence of Light<BR>The Darkest One<BR>Dusk<BR>From Beyond<BR>In its Cobweb<BR>Videoclip:<BR>Era Aggression – (live from Brutal Assault festival)</STRONG></P>
+Автор: Vit Belov
+
+### 06.05.2005 news Русский тур DARZAMAT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В конце мая польская группа <STRONG>DARZAMAT</STRONG> собирается посетить Россию с мини-туром в поддержку своего нового альбома "<STRONG>Semidevilish</STRONG>", который в то же время выйдет на <STRONG>CD-Maximum</STRONG>. Коллектив посетит пять&nbsp;российских городов. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<IMG height=264 src="/images/news_rus/2005.05/8428.jpg" width=400 border=0></FONT< body></FONT></P>
+Автор: Vit Belov
+
+### 18.10.2005 news DARZAMAT начали запись новой пластинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARZAMAT</STRONG> начали запись нового альбома под названием "<STRONG>Transkarpatia</STRONG>". Продюсером пластинки выступает гитарист<STRONG> KING DIAMOND Andy LaRoque</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 08.01.2006 news DARZAMAT выпустили новый альбом
+
+<P><IMG height=269 alt="" hspace=0 src="/images/news_rus/2006.01/9910.jpg" width=300 align=right border=5>В конце прошлого года на <STRONG>Metal Mind</STRONG> вышел очередной новый альбом <STRONG>DARZAMAT "Transkarpatia</STRONG>". В нашей стране он выйдет на <STRONG>CD-Maximum</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Sanguinarius</STRONG> (Intro)<BR>2. <STRONG>Vampiric Prose</STRONG><BR>3. <STRONG>Hallucinations<BR></STRONG>4. <STRONG>Inhumatus</STRONG> (Intro)<BR>5. <STRONG>The Burning Times</STRONG><BR>6. <STRONG>Letter from Hell</STRONG><BR>7. <STRONG>Blackward<BR></STRONG>8. <STRONG>Recurring Yell<BR></STRONG>9. <STRONG>Araneum</STRONG> (Intro)<BR>10. <STRONG>Labyrinth of Anxiety</STRONG><BR>11. <STRONG>Virus<BR></STRONG>12. <STRONG>The Old Form of Worship</STRONG><BR>13. <STRONG>Tempted by Rot<BR></STRONG>14. <STRONG>Tribute to...</STRONG></P>
+Автор: Vit Belov
+
+### 13.08.2008 news DARZAMAT готовят концептуальный альбом
+
+<P>Поляки<STRONG> DARZAMAT</STRONG> готовят к выходу в следующем году концептуальный альбом под названием <STRONG>"Solfernus' Path". </STRONG>Трэк-лист:</P>
+<P>01. <B>False Sleepwalker</B><BR>02. <B>Vote for Heresy</B><BR>03. <B>Final Conjuration</B><BR>04. <B>Pain Collector</B><BR>05. <B>Gloria Inferni</B><BR>06. <B>Solfernus' Path</B><BR>07. <B>Lunar Silhouette</B><BR>08. <B>King of Burning Anthems</B><BR>09. <B>Chimera</B><BR>10. <B>A Mesmeric Seance</B></P>
+Автор: Vit Belov
+
+### 24.06.2009 news DARZAMAT на Massacre Records
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.06/14219.jpg" width=400 align=right border=5>28 августа на<STRONG> Massacre Records</STRONG> выйдет новый альбом <STRONG>DARZAMAT</STRONG> <STRONG>"Solfernus' Path". </STRONG>Трэк-лист:</P>
+<P>01. <B>False Sleepwalker</B><BR>02. <B>Vote for Heresy</B><BR>I: Devium<BR>03. <B>Pain Collector</B><BR>04. <B>Final Conjuration</B><BR>II: Fumus<BR>05. <B>Gloria Inferni</B><BR>III: Venenum<BR>06. <B>Solfernus Path</B><BR>07. <B>Lunar Silhouette</B><BR>08. <B>King of the Burning Anthems</B><BR>IV: Spectaculum<BR>09. <B>Chimera</B><BR>10. <B>Mesmeric Seance</B> </P>
+Автор: Vit Belov
+
+### 31.08.2009 news Новая песня DARZAMAT
+
+<P><STRONG>DARZAMAT</STRONG> выложили новую песню "<STRONG>Chimera</STRONG>" на своей <STRONG>MySpace</STRONG> страничке: <A href="http://www.myspace.com/darzamat">http://www.myspace.com/darzamat</A></P>
+<P>Новый альбом группы "<STRONG>Solfernus' Path" </STRONG>вышел 28 августа на <STRONG>Massacre Records</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Фотографии &quot;Moscow After Midnight&quot; (Doppelganger, Deadbabes, Darzamat, Entwine и прочее)

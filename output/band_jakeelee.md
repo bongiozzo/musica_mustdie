@@ -26,6 +26,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.09.2001 news OZZY OSBOURNE&#39;s news....
+
+<p>Тринадцатый сольник Оззи - "Down To Earth" уже прошел мастеринг и запланирован к выходу на 16-е октября. Продюссировал альбом Тим Палмер. Трек-лист: 01. Gets Me Through 02. Something That I Never Had 03. Dreamer 04. Easy Way Out 05. Facing Hell 06. You Know... 07. Junkie 08. Running Out of Time 09. Black Illusion 10. Alive 11. Can You Hear Them? Также были записаны две B-sides которые будут использованы в дальнейшем в виде бонус-треков. Кроме того, MTV готовит получасовую передачу на 16 сентября предваряющую мировую премьеру клипа к синглу "Gets Me Through". <br><br> _________________________________________________ <br> Из других новостей, экс-OZZY OSBOURNE/BADLANDS гитарист Jake E. Lee записал композицию "Surfing With The Alien" для трибьют альбома "Little Guitars: A Tribute to Joe Satriani and Steve Vai", который выйдет на Versailles Records в январе 2002.</p>
+
+Автор: Yermola
+
+### 04.09.2001 news OZZY OSBOURNE&#39;s 13th solo album.....
+
+<p>OZZY OSBOURNE’s 13th solo album, entitled Down To Earth, was officially mastered on Wednesday, August 29th, and is on schedule to make the October 16th street date. Produced by Tim Palmer, Down To Earth will include the following track listing: 01. Gets Me Through 02. Something That I Never Had 03. Dreamer 04. Easy Way Out 05. Facing Hell 06. You Know... 07. Junkie 08. Running Out of Time 09. Black Illusion 10. Alive 11. Can You Hear Them? Two B-sides have also been recorded and will be issued as overseas bonus tracks. Meanwhile, MTV will air a half-hour special on OZZY on September 16th, followed by the world premiere of the clip for the album’s first single, "Gets Me Through", which was directed by acclaimed Swedish director (and former CANDLEMASS roadie!) Jonas Akerlund (i.e. METALLICA, MADONNA, THE PRODIGY, U2). Last week, amidst his hectic schedule of photo shoots, interviews, and recording sessions, OZZY also sat down with VH-1 to tape more interview footage for his Behind the Music episode to be used to complement the original 1998 Behind the Music, which was reportedly one of the bio-program's top-rated episodes. <br> _________________________________________________ <br> Former OZZY OSBOURNE/BADLANDS guitarist Jake E. Lee has covered the JOE SATRIANI track Surfing With The Alien for the upcoming SATRIANI/STEVE VAI tribute album entitled Little Guitars: A Tribute to Joe Satriani and Steve Vai, which is due through Versailles Records in January 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

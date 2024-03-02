@@ -31,6 +31,154 @@
 * C группой "Drama" D. Nox
 * C группой "Ulvdalir" D. Nox
 
+## Публикации
+
+### 27.02.2007 news Новые релизы от MUSICA production
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=298 alt="" hspace=0 src="/images/news_rus/2007.02/11361.jpg" width=300 align=right border=5>MUSICA Production</STRONG> представляет первые релизы в 2007 году. Группы-тёзки из Нововоронежа и Ейска <STRONG>RAGOR</STRONG> и <STRONG>RAXA</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом<STRONG> RAXA "Rabinal Achi"</STRONG> - этнический death-doom-metal от известного Нововоронежского самородка <STRONG>Левши</STRONG> (<STRONG>Lefthander</STRONG>) (<STRONG>SEA OF DESPERATION, TENOCHITLAN</STRONG>). Очередной проект, осваивающий культуру древних народностей Южной Америки. В записи пластинки приняла участие вокалистка <STRONG>THEODOR BASTARD Yana Veva</STRONG>. Дизайн - <STRONG>Senmuth</STRONG>. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>U NABE BANBAL</STRONG><BR>2. <STRONG>U NABEMUL CA CHAU QUECHE-ACHI<BR></STRONG>3. <STRONG>U CAMUL CA CHAU RABINAL ACHI</STRONG><BR>4. <STRONG>MUN<BR></STRONG>5. <STRONG>U CAMUL CA CHAU QUECHE ACHI</STRONG><BR>6. <STRONG>ROXMUL CA CHAU RABINAL ACHI</STRONG><BR>7. <STRONG>ROXMUL CA CHAU QUECHE ACHI<BR></STRONG>8. <STRONG>U CAHMUL CA CHAU RABINAL ACHI</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>MP3: <A href="/ru/band/raxa/13004/#samples">http://musica.mustdie.ru/ru/band/raxa/13004/#samples</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=298 alt="" hspace=0 src="/images/news_rus/2007.02/11360.jpg" width=300 align=left border=5>Альбом <STRONG>RAGOR "Закат Кровавым Мечом"</STRONG> - black-metal из Ейска, записанный с участием музыкантов уже известной по двум альбомам <STRONG>DRAMA</STRONG>. Тяжёлый, но мелодичный материал. Русскоязычная лирика. Альбом довольно долго шёл к своему слушателю, любителям black-metal есть что послушать. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Крылом Развеет Ветер...<BR></STRONG>2. <STRONG>Пришла Беда<BR></STRONG>3. <STRONG>Когда Туман...<BR></STRONG>4. <STRONG>Суровый Ветер<BR></STRONG>5. <STRONG>Закат Кровавым Мечом...</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>MP3: <A href="/ru/band/ragor/13005/#samples">http://musica.mustdie.ru/ru/band/ragor/13005/#samples</A>&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сайт лэйбла : <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;<BR></P></FONT>
+Автор: Vit Belov
+
+### 22.02.2008 news RAGOR сочиняют новый материал
+
+<P>Black-metal коллектив из Ейска <STRONG>RAGOR</STRONG> работает над новым материалом. По словам лидера группы <STRONG>Go</STRONG>r'a, музыканты ещё не определились со стилистикой альбома. Некоторые новые вещи выполнены в стандартном black-metal ключе, на других же заметно влияние death-metal.&nbsp;Подробности последуют.&nbsp;</P>
+Автор: Vit Belov
+
+### 30.08.2008 news DRAMA и RAGOR поддержат GORGOROTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Российские Black-metal группы <STRONG>DRAMA</STRONG> и<STRONG> RAGOR</STRONG> выступят 20 октября&nbsp;в Санкт-Петербурге вместе с норвежцами <STRONG>GORGOROTH</STRONG> в рамках их визита в Россию.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей. <STRONG>DRAMA </STRONG>выложили на своей<STRONG> MySpace</STRONG> страничке концертное видео с концерта в Минске. Питерцы исполняют песню "<STRONG>Assault by Chaos Hysteria</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/dramastorm">http://www.myspace.com/dramastorm</A> </FONT></P>
+Автор: Vit Belov
+
+### 30.08.2008 news DRAMA and RAGOR to support GORGOROTH
+
+<P>Russian Black-metal bands <STRONG>RAGOR</STRONG> and <STRONG>DRAMA </STRONG>to support <STRONG>GORGOROTH</STRONG> in St. Petersburg, Russia on 20th of October. <STRONG>GORGOROTH</STRONG> will play two shows in Moscow and St. Petersburg in October.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>In other news, <STRONG>DRAMA</STRONG> have posted new live-video "<STRONG>Assault by Chaos Hysteria</STRONG>"&nbsp;from Minsk, Belarus&nbsp;on their <STRONG>MySpace</STRONG> page.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Link: </FONT><A href="http://www.myspace.com/dramastorm">http://www.myspace.com/dramastorm</A> </P>
+Автор: Vit Belov
+
+### 26.11.2008 news RAGOR заканчивают работу над альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ейская black-metal группа <STRONG>RAGOR </STRONG>заканчивает работу над новым альбомом с рабочим названием "<STRONG>За Гранью Света</STRONG>". Пластинка уже записана в студиях <STRONG>Grindsound</STRONG> (Санкт-Петербург) и студии города Ейска. В настоящее время заканчивается сведение. Трэк-лист (неокончательный порядок):</FONT></P>
+<P>1. <STRONG>Кругом лишь мрак</STRONG><BR>2. <STRONG>Сгорает время<BR></STRONG>3. <STRONG>Отчаенье<BR></STRONG>4. <STRONG>За гранью света</STRONG><BR>5. <STRONG>Зима идёт<BR></STRONG>6. <STRONG>Погребальным костром...<BR></STRONG>7. <STRONG>Стонет печаль</STRONG><BR>8. <STRONG>Проснувшись в недрах искорёженной земли...</STRONG></P>
+<P>В настоящее время в составе группы:</P>
+<P><STRONG>GOR</STRONG> - басс, вокал<BR><STRONG>HAVROG</STRONG> - гитара<BR><STRONG>AFTER DEATH</STRONG> - гитара<BR><STRONG>STYM</STRONG> - барабаны</P>
+Автор: Vit Belov
+
+### 26.11.2008 news RAGOR are finishing work on new album
+
+<P>Southrussian black-metal band <STRONG>RAGOR</STRONG> are working on a new album. The CD was recorded in <STRONG>Grindhous Studio</STRONG> (St. Peterburg). Workname of this album "<STRONG>Za Gran'yu Sveta</STRONG>" (<STRONG>After Edge of the Light</STRONG>). Track-list (no particular order):</P>
+<P>1. <STRONG>Krugom Lish' Mrak (Only Dark is Around)<BR></STRONG>2. <STRONG>Sgoraet Vremya (The Time is Burning)<BR></STRONG>3. <STRONG>Otchaenie (Despairation)<BR></STRONG>4. <STRONG>Za Gran'yu Sveta (After the Edge of the Light)<BR></STRONG>5. <STRONG>Zima Idyot (The Winter is Going)<BR></STRONG>6. <STRONG>Pogrebal'nym Kostrom (Of Funeral Fire)<BR></STRONG>7. <STRONG>Stonet Pechal' (The Grief is Groaning)<BR></STRONG>8. <STRONG>Prosnuvshis' v nedrah iskoriozhennoy zemli (Awaked in the Depths of Broken Earth)</STRONG></P>
+<P>Actual Line-Up:</P>
+<P><STRONG>GOR</STRONG> - bass, vocal<BR><STRONG>HAVROG</STRONG> - guitar<BR><STRONG>AFTER DEATH</STRONG> - guitar<BR><STRONG>STYM</STRONG> - drums</P>
+<P>The debut CD of <STRONG>RAGOR</STRONG> "<STRONG>Zakat Krovavym Mechom</STRONG>" was released in 2006 via <STRONG>MUSICA Production</STRONG>. Members of highly acclaimed black-metal band&nbsp;<STRONG>DRAMA</STRONG> were in the line-up, recording first CD.</P>
+<P>More information and MP3 here: <A href="/ru/band/ragor/13005/">http://musica.mustdie.ru/ru/band/ragor/13005/</A></P>
+Автор: Vit Belov
+
+### 04.05.2009 news Новинки от MUSICA Production
+
+<P><SPAN class=h1>MUSICA Production представляет</SPAN></P>
+<P><SPAN class=h2>Весенняя атака на уши слушателей!!!</SPAN></P>
+<P><SPAN class=tit2>Сразу три релиза в популярнейших стилях тяжёлого металла...</SPAN></P>
+<P><SPAN class=tit3><IMG height=381 alt="" hspace=0 src="/images/news_rus/2009.05/14058.jpg" width=400 align=right border=5>MPЗ3 MONASTERY DEAD "Victims Of Senseless Massacre"</P>
+<P></SPAN>-death-metal; Дебютная работа перспективной группы из Питера. Подарок всем любителям old school death-metal без 'metalcore' соплей, но с яркой и запоминающейся суровой мелодикой. Группа придётся по вкусу любителям <STRONG>MALEVOLENT CREATION</STRONG>, <STRONG>KATAKLYSM</STRONG> и <STRONG>GOREFEST</STRONG>. Трэк-лист:</P>
+<P>1.<STRONG> The awakening</STRONG> (intro)<BR>2. <STRONG>Songs of the dead</STRONG><BR>3. <STRONG>Punishment<BR></STRONG>4. <STRONG>Spirit of time</STRONG><BR>5. <STRONG>Feasting on the blood</STRONG><BR>6. <STRONG>Dead city</STRONG><BR>7. <STRONG>Overthrown god</STRONG><BR>8. <STRONG>Revenge</STRONG><BR>9. <STRONG>Unavoidable death</STRONG><BR>10. <STRONG>Victims of senseless massacre</STRONG><BR>11. <STRONG>Deprived of the last hope</STRONG><BR>12. <STRONG>One more interrupted life</STRONG><BR>13. <STRONG>Expectation of death</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/monasterydead">http://www.myspace.com/monasterydead</A></P>
+<P><SPAN class=tit3>MP34 RAGOR "За Гранью Света"</SPAN></P>
+<P>-black-metal; Великолепный второй альбом традиционной black-metal группы из Ейска. В составе больше нет членов<STRONG> DRAMA</STRONG>, но правильная и холодная музыка осталась. Эпические black-metal мелодии, атмосфера безнадёжности и великолепная русскоязычная лирика <STRONG>Gor</STRONG>'a. Рекомендации всем любителям black-metal, неразбавленного различными новомодными веяними. <STRONG>RAGOR</STRONG> закрепили успех своего дебютного альбома "<STRONG>Закат Кровавым Мечом</STRONG>", который вышел на <STRONG>MUSICA Production</STRONG> в 2007-ом. Трэк-лист:</P><STRONG>
+<P>1. <STRONG>Кругом лишь мрак</STRONG><BR>2. <STRONG>Погребальным Костром<BR></STRONG>3. <STRONG>Отчаяние<BR></STRONG>4. <STRONG>Проснувшись в недрах искорёженной земли...</STRONG><BR>5. <STRONG>За Гранью Света<BR></STRONG>6. <STRONG>Стонет Печаль...<BR></STRONG>7. <STRONG>Сгорает Время...</STRONG><BR>8. <STRONG>Зима Идёт</STRONG></P>
+<P><SPAN class=tit3><IMG height=399 alt="" hspace=0 src="/images/news_rus/2009.05/14057.jpg" width=400 align=right border=5>MP35 ARCANE GRAIL "Arya Marga"</P>
+<P></SPAN><STRONG>-opera gothic-black-metal; </STRONG>Последний релиз по порядку, но точно не по значению. Юбилейный 35-ый альбом в дискографии <STRONG>MUSICA Production</STRONG> и второй в дискографии одной из самых активных и успешных московских групп<STRONG> ARCANE GRAIL</STRONG>. "<STRONG>Arya Marga</STRONG>" - гигантский шаг вперёд по сравнению с очень хорошим дебютным альбомом. Альбом был записан в <STRONG>KIIV Records Игорем Королёвым</STRONG> (<STRONG>STIGMATIC CHORUS, KARTIKEYA</STRONG>). Отличный 20-страничный буклет, созданный вокалисткой <STRONG>Натали</STRONG> с обложкой авторства <STRONG>Игорь Savas</STRONG>. В записи альбома приняло участие множество приглашённых музыкантов, в том числе <STRONG>Фёдор Ветров</STRONG> из фолк-группы <STRONG>ВЕТЕР ВОДЫ</STRONG>. Музыка <STRONG>ARCANE GRAIL</STRONG> стала более величественной, более симфоничной, более мелодичной... Трэк-лист:</P>
+<P>1. <STRONG>Arcane Grail</STRONG> <BR>2. <STRONG>of Snake and Raven</STRONG> <BR>3. <STRONG>Autumn Wed Us, Sinned and Lone</STRONG> <BR>4. <STRONG>Renaissant the Reverie</STRONG> <BR>5. <STRONG>Sorrow of Forgotten Pride</STRONG> <BR>6.<STRONG> Imprisoned in the Greatest War</STRONG> <BR>7. <STRONG>Die Sonnenhymne</STRONG> <BR>8.<STRONG> Iniquitous Yoke</STRONG> <BR>9. <STRONG>Святой Грааль</STRONG> </P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/arcanegrail">http://www.myspace.com/arcanegrail</A></P></STRONG>
+Автор: Vit Belov
+
+### 06.06.2014 news Новые релизы MUSICA Production
+
+<STRONG>Escapemind.ru <SPAN lang=ru-RU>и </SPAN>MUSICA Production <SPAN lang=ru-RU>представляют новые совместные релизы</SPAN></STRONG> 
+<P lang=en-US style="MARGIN-BOTTOM: 0cm"><BR></P>
+<P lang=en-US style="MARGIN-BOTTOM: 0cm"><STRONG>EPD 14.8/FO1061CD ALGHAZANTH “Wreath Of Thevetat”</STRONG></P>
+<P lang=en-US style="MARGIN-BOTTOM: 0cm">-melodic sympho-black-metal; <SPAN lang=ru-RU>Пятый альбом знаменитой финской группы. Великолепный мелодичный </SPAN>black-metal <SPAN lang=ru-RU>для всех поклонников </SPAN>EMPEROR, LIMBONIC ART <SPAN lang=ru-RU>и </SPAN>CATAMENIA. <SPAN lang=ru-RU>Первая часть трилогии, законченной недавно изданным в России альбомом «</SPAN>Three-Faced Pilgrim”. <SPAN lang=ru-RU>В составе вокалист </SPAN>SWALLOW THE SUN Mikko Kotamaki. </P>
+<P lang=en-US style="MARGIN-BOTTOM: 0cm"><BR></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Трек-лист:</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">1. Moving Mountains </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">2. The Kings to Come </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">3. The Phosphorescent </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">4. On Blackening Soil </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">5. Rain of Stars </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">6. Twice-Born </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">7. Future Made Flesh </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">8. As Nothing Consumes Everything</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><BR></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Лучшая цена на сайте <A href="http://escapemind.ru/"><SPAN lang=en-US><U><FONT color=#000080>http://escapemind.ru</FONT></U></SPAN></A></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Оптовая дистрибуция: <A href="http://www.fono.ru/"><SPAN lang=en-US><U><FONT color=#000080>http://www.fono.ru</FONT></U></SPAN></A></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><STRONG><BR></STRONG></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US>MP-69 OGNIVIR “I”</SPAN></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US>-black-metal; </SPAN>Дебютный альбом группы из украинского Бердянска. Мелодичный антихристианский <SPAN lang=en-US>black-metal </SPAN>с примесью <SPAN lang=en-US>pagan </SPAN>для поклонников как отечественной, так и зарубежной <SPAN lang=en-US>black-metal </SPAN>сцены. </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">&nbsp;</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Трек-лист:</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><BR></P>
+<OL>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Легион</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Под Знаменем Сатаны</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Ода Чёрному Огню</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Королева Грёз (Ч.1)</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Привратник Смерти (Ч.2)</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Симфония Тьмы</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Зов Бесконечности</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Огонь Мщения</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Кровавый Век</P></LI></OL>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US></SPAN>
+<CENTER><IFRAME height=255 src="//www.youtube.com/embed/1xYlJB5zrgo" frameBorder=0 width=425 allowfullscreen></IFRAME>
+<P></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US>MP-71 RAGOR “</SPAN>Миг Рождения Бури»</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">-<SPAN lang=en-US>atmospheric black-metal; </SPAN>Долгожданный третий альбом коллектива из России. Мощны и красивый <SPAN lang=en-US>black-metal </SPAN>с великолепной русскоязычной лирикой. Среднетемповые композиции в классическом духе с величественными мелодиями. </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Трек-лист:</P>
+<OL>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Миг Рождения Бури</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Яростным Криком</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Узоры Будущей Судьбы</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Взорвавшись Небо</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Вновь Догорает Закат</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Великая Ночь</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Забвение</P></LI></OL>
+<P>
+<CENTER><IFRAME height=255 src="//www.youtube.com/embed/wshcRVpbZS4" frameBorder=0 width=425 allowfullscreen></IFRAME>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Лучшая цена на сайте <A href="http://escapemind.ru/"><SPAN lang=en-US><U><FONT color=#000080>http://escapemind.ru</FONT></U></SPAN></A></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27048.jpg" width=450 height=450><IMG border=0 src="/images/news_rus/2014.06/27049.jpg" width=450 height=433> 
+<P></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27050.jpg" width=500 height=451> 
+<P></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><STRONG><BR></STRONG></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Сайт лэйбла <SPAN lang=en-US>http://mp.musica.mustdie.ru</SPAN></P></CENTER></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

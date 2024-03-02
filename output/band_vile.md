@@ -44,6 +44,69 @@ Death/Grind
 
 * C группой "Exodus" Jack Gibson
 
+## Публикации
+
+### 09.03.2003 reviews Рубка продолжается
+
+<p>Еще один super brutal gore death metal релиз от Listenable Records. Второй альбом калифорнийского коллектива играющего тяжелую и бескомпромиссную музыку в духе MORBID ANGEL и CANNIBAL CORPSE. При этом делает группа все качественно и технично, выдавая интересный слушабельный материал на полчаса. Девять трэков высокоскоростного сверхзвукового брутала в лучших традициях стиля насквозь пропитанного яростью и ненавистью. Каждая из песен альбома представляет собой атаку на психику слушателя, эту музыку можно прочувствовать буквально каждой частью тела, настолько она мощна и разрушительна. Впечатляет жирный звук гитар на альбоме, сумасшедшие бластбиты сочных ударных и хороший гроулинг вокалиста. Многочисленные смены ритма от грайнда к хэви, резкие переходы. Ничего нового и оригинального, но сделано качественно и с душой. Рекомендую всем поклонникам MA и CC, а также просто тем, кто любит тяжелейшую и брутальную музыку без дураков.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 15.05.2003 news VILE остались без вокалиста
+
+<p>Калифорнийские дэтстеры VILE расстались со своим вокалистом Juan Urteaga. На ближайших концертах группы его заменит James Lee из ORIGIN.</p>
+
+Автор: Dimas
+
+### 14.11.2003 news VILE покинул гитарист
+
+Вслед за вокалистом <B>Juan Urteaga VILE</B> покинул и гитарист <B>Aaron Strong</B>. В настоящее время группа ищет замену обоим музыкантам. "<B>Когда ты становишься популярнее и популярнее, группа требует всё больше и больше времени. нам нужны музыканты, которые сделают VILE номер один в своей жизни</B>." В настоящее время группа&nbsp;сочиняет новый материал.
+Автор: Vit Belov
+
+### 14.11.2003 news Vile splited with guitarist and vocalist
+
+<B>VILE</B> have lost their lead guitarist <B>Aaron Strong</B> and lead singer <B>Juan Urteaga</B>.&nbsp;They are looking for permamant or temporary replacements. "<B>As this band gets more and more popular the demands on the players to modify their lifestyle increases. Vile is looking to find a stable partnership with talented musicians that have the drive and will to make this project number one in their lives</B>". Contact guitarist <B>Colin Davis</B> through the <B>Vile </B>website at <A href="http://www.vilestench.com/"><U>www.vilestench.com</U></A> &nbsp;. A major US tour is being planned for Spring 2004 and the third Vile album is being written now. <BR>
+Автор: Vit Belov
+
+### 05.12.2004 news VILE выпустят новый альбом весной
+
+<P>Весной 2005 года на <STRONG>Listenable </STRONG>увидит свет новый альбом<STRONG> VILE</STRONG>, который группа собирается записывать в марте. Уже сейчас можно скачать демо-версию одной новй песни на сайте группы <A href="http://www.vilestench.com/">http://www.vilestench.com/</A></P>
+Автор: Vit Belov
+
+### 05.12.2004 news VILE will release new album at spring
+
+<P><STRONG>VILE </STRONG>will release new album through<STRONG> Listenable</STRONG> at spring of 2005. Recordings will begin in 1st of March. You can download demo-version of new song from <STRONG>VILE</STRONG> official site: <A href="http://www.vilestench.com/">http://www.vilestench.com/</A></P>
+Автор: Vit Belov
+
+### 28.01.2005 news К VILE присоединился басист EXODUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>VILE</STRONG> объявили о появлении в группе нового басиста. Им стал <STRONG>Jack Gibson</STRONG> из <STRONG>EXODUS</STRONG>. <STRONG>Jack</STRONG> не ушёл из своей прежней группы, но будет записывать с <STRONG>VILE</STRONG> их новый альбом <STRONG>'The New Age Of Chaos'</STRONG> и поедет в тур, если графики не будут накладываться с основной группой. Новая работа <STRONG>VILE</STRONG> выйдет в мае-июне на <STRONG>Listenable</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 28.01.2005 news VILE : THE NEW AGE OF CHAOS !!
+
+<P><STRONG>Colin Davis</STRONG> (guitars) has announced a line up change in California's most brutal outfit<STRONG> VILE's</STRONG> line up :<BR>"<EM>New VILE line up addition! VILE are proud to announce the entrance of bassist Jack Gibson of the Bay Area thrash band EXODUS. Jack has agreed to be the bass player on the upcoming VILE release "The New Age of Chaos". He will also do some touring with us as long as it does not interfere with his schedule with Exodus. Jack is a phenominal player and VILE is perfect for showcasing his talents."<BR>"The New Age of Chaos" is slated for a May/june release on Listenable Records.<BR>Full U.S. and European tours will be planned for fall / Winter 2005</EM>."</P>
+Автор: Vit Belov
+
+### 22.06.2005 news Новый сэмпл от VILE в сети!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По данной ссылке вы можете скачать песню с нового альбома&nbsp;калифорнийских мясников <STRONG>VILE</STRONG>: &nbsp;&nbsp;<A href="http://www.vilestench.com/thenewageofchaos.mp3">http://www.vilestench.com/thenewageofchaos.mp3</A></FONT></P>
+Автор: Bizarre
+
+### 24.01.2007 reviews Не самое лучшее продолжение смертельного банкета
+
+<P>Американские дэтстеры Vile не очень продуктивны. "The New Age Of Chaos" всего лишь третий их полноформатник за практически десятилетнюю историю существования группы. Я очень ждал этого релиза после великолепного "Depopulate" 2002-го года, но был разочарован. Возможно, Vile поступили в коммерческом плане правильно, обогатив свой брутальный дэтовый саунд модерновыми фишками и блэковыми элементами, но, по моему скромному мнению, сама музыка от этого пострадала. В результате Vile стало просто скучно слушать. Возможно, это связано и с тем, что концертный и студийный составы у группы различаются (в частности, бас записывался на альбоме никем иным, как Джеком Гибсоном из Exodus). А может быть, группа просто решила, что им всё равно не допрыгнуть до славы Cannibal Corpse или Deicide, поэтому надо что-то менять. Нет, не могу сказать, что "The New Age Of Chaos" неудачный альбом, просто это немного другой Vile, к которому многие уже привыкли. Да и всего 30 минут нового материала за три года - не ахти какое достижение. Впрочем, группе виднее, в каком направлении ей двигаться дальше. Однако лично мне такие вот подвижки отдельных коллективов в угоду моде совершенно не нравятся. Так сделали&nbsp;недавно, к примеру, польские дэтстеры&nbsp;Decapitated и немецкие ветераны трэша Sodom. В результате получились совершенно невразумительные релизы. Куда дальше пойдут Vile, сейчас сказать сложно, тем более, что, судя по всему, их следующий альбом выйдет не раньше 2008-го года, а за это время может многое измениться...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 12.01.2009 news VILE начинают запись
+
+<P><STRONG><IMG height=259 alt="" hspace=0 src="/images/news_rus/2009.01/13350.jpg" width=250 align=left border=5>VILE</STRONG> 25 января войдут в студию <STRONG>Imperial Mastering </STRONG>для записи нового альбома. Комментирует гитарист коллектива <STRONG>Colin Davis</STRONG>:</P>
+<P>"<EM>В настоящее время мы находимся без контракта, и всегда открыты для переговоров, но пока ситуация идёт к тому, что мы выпустим альбом сами. Музыка сейчас находится в on-line, поэтому мы считаем, что старые пути промоции больше не работают так, как хотелось бы</EM>".</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -37,6 +37,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.06.2012 news Новый альбом DISAFFECTED
+
+<P>Новый клип<STRONG> DISAFFECTED</STRONG> на песню <STRONG>"The Rebirth Of..." </STRONG>можн посмотреть ниже. Трек взят с нового альбома португальской techno-death команды <STRONG>"Rebirth</STRONG>", который только что вышел на<STRONG> Massacre Records</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/s_IR7OIaEMY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

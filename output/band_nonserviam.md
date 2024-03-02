@@ -52,6 +52,9 @@ Daniel "Janos" Andersson - Guitar, clean vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

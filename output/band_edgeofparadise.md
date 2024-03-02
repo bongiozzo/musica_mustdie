@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.08.2016 news Новое видео рок группы с женским вокалом EDGE OF PARADISE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый сингл группы <strong>EDGE OF PARADISE "Shade Of Crazy"</strong> можно услышать в видео-клипе ниже. Режиссёр клипа <strong>Val Rassi</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/TcpKlGH0vdw" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 10.08.2016 news EDGE OF PARADISE unveil music video for their latest single &quot;Shade Of Crazy&quot;
+
+<p>California based rockers <strong>EDGE OF PARADISE</strong> release a new single "<strong>Shade Of Crazy</strong>" since their latest album<strong> Immortal Waltz</strong>. The band is sounding heavier while still showcasing their symphonic and theatrical edge! </p><p>“<em>We’re excited to share the evolution of our sound, it’s been fun exploring the heavier side of Paradise! We had a great time creating this song and video! We’re all a shade of crazy one way or another, and get ourselves in situations or relationships that can drive us out of our minds, but something about that, can be enticingly addicting</em>!”</p><p>Song produced by <strong>Chuck Johnson</strong> and mixed by<strong> Jay Ruston</strong>. Music video directed by <strong>Val Rassi</strong>, Cinematography by Paradox. </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/TcpKlGH0vdw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

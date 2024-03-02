@@ -325,6 +325,294 @@ DVD2:
 * C группой "Solution 13" Sami Kukkohovi
 * C группой "Poisonblack" Ville Laihiala
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Ну что можно сказать... Sentenced мне всегда нравился. И ранний - периода techno-death, и, заметно облегчавший, поздний. Предыдущий альбом, я поначалу невысоко оценил, но процесс неоднократного прослушивания расставил всё по своим местам. Хотя, я продолжаю утверждать, что вокал Taneli Jarva на порядок выше чем у Ville Laihiala. Новый же альбом я ждал с любопытством. Я был уверен, что следуя тенденции изменяться с каждым новым альбомом, Sentenced представит нам что-то новенькое. Кто-то говорил, что это будет в духе "(Re)Load" Metallic'и, а кто-то говорил, что на альбоме будет полно электронщины. Но теперь то ясно как все ошибались. Музыканты сделали альбом в духе предыдущего, но всё сделано с наивысшим профессионализмом. Вокал стал богаче и колоритней. Проходы соло-гитары просто божественны и вообще настроение альбома превосходит все предыдущие записи. Этот альбом просто не способен нагнать тоску. Он прослушивается на одном дыхании. Всё происходит так быстро, что неуспеваешь понять - неужели уже прошло 50 минут? Отголосков Iron Maiden уже почти и не замечаешь, зато стали проскакивать отголоски поздней Metallica. Но это совсем не похоже на "(Re) Load". В общем если вы хотите купить новую запись, но боитесь пустой траты денег, то этот альбом для вас - не пожалеете.</p>
+
+Автор: Dimas
+
+### 12.02.1999 news 
+
+<p>В феврале выйдет новая версия альбома SENTENCED "Frozen". В неё войдут бонус-трэки: кавера на песни FAITH NO MORE "Digging the Grave", WASP "I Wanna Be Somebody", RADIOHEAD "Creep" и ANIMALS "House Of Rising Sun".</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Sentenced начали написание песен для нового альбома. Источники близкие к группе сообщают, что уже написано четыре новых песни.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Закончилась запись нового альбома Sentenced. Он выйдет в начале следующего года и будет называться "Crimson".</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 reviews 
+
+<p>Да, уж - теперь они играют gothic death. Мелодии абсолютно опопсели, гитары звучат a la ВИА "Юность". Попытка замешать всю эту дрянь на основе из grindcore не удалась. Оригинальность здесь и не ночевала, а стиль группа так и не выработала: беготня от death к intence от sympho к hard ни кчему не привела. Опопсение и полная деградация. Если группа и имела всой стиль, то переход и работа с CENTURY MEDIA убили ее. Раньше это было неинтересно, но оригинально, а сейчас и неинтересно и неоригинально. А лучшим их альбомом был пожалуй "Down", 1996 года, когда после Taneli Jarva микрофон отдали человеку, который умеет таки петь - Ville Laihiala. Новый же "Crimson" похож на очень плохо сделанную подделку. Альбом EDGE OF SANITY 1996 года с аналогичным названием лучше разов в 127. Оригинальность здесь и не ночевала, а стиль группа так и не выработала: бегают от death к intence от sympho к hard. 4 из 10</p>
+
+Автор: Dimas
+
+### 31.08.2000 news Dark Tranquillity в сентябре отправятся в турне
+
+<p> Dark Tranquillity в сентябре отправятся в европейское турне вместе с Sentenced, In Flames и To Die For. А пока Century Media готовит к выпуску на территории США двух альбомов группы "Skydancer" и "Of Chaos And Eternal Night".</p>
+
+Автор: Nybras
+
+### 17.03.2001 news Jesper Stromblad &amp; Ville Laihiala в новой группе!
+
+<p> Гитарист IN FLAMES Jesper Stromblad и вокалист SENTENCED Ville Laihialla создали совместный проект, не имеющий пока никакого названия. Сейчас они пишут материал для дебютного альбома, выпустить который планируется в начале 2002 года.</p>
+<p></p>
+
+Автор: Vic Thor
+
+### 17.03.2001 news Jesper Stromblad &amp; Ville Laihiala in new band!
+
+<p> The guitarist Jesper Stromblad of the Swedish band In Flames and the singer Ville Laihiala of the Finnish band Sentenced have started a new band, they have no name on the band at the moment, but they are right now writing the material for a album that should be recorded sometime this year and hopfully released in the beginning of 2002.</p>
+
+Автор: Vic Thor
+
+### 25.03.2001 news THE BLACK LEAGUE
+
+<p>Финны THE BLACK LEAGUE, имеющие в составе вокалиста Taneli Jarva (SENTENCED) 2 мая выпускают новый диск "The Doomsday Sun". В него войдут прежде нереализованные вещи, ковер Ника Кэйва и ремикс ранее доступный только на виниловой версии Ichor. Трек-лист: 01. Monster Truckin' 02. City of Refuge 03. Black Java 04. Many A Good Man 05. Sanguinary Blues 06. The Everlasting Pt. III (remix)</p>
+
+Автор: Yermola
+
+### 25.03.2001 news The Doomsday Sun...
+
+<p>Finland's THE BLACK LEAGUE, featuring former SENTENCED vocalist Taneli Jarva, will have a new EP, entitled The Doomsday Sun, released on May 2nd. The Doomsday Sun includes four previously unreleased original tracks, a cover of NICK CAVE’s “City Of Refuge”, and a remix of the song “The Everlasting Pt. III”, which was previously only available on the vinyl version of Ichor (the group’s full-length debut). Here is the full track listing: 01. Monster Truckin' 02. City of Refuge 03. Black Java 04. Many A Good Man 05. Sanguinary Blues 06. The Everlasting Pt. III (remix)</p>
+
+Автор: Yermola
+
+### 04.07.2001 news SENTENCED садятся в студию...
+
+<p>"SENTENCED" садятся в "Tico-Tico Studios" в Кеми (Финляндия) для записи следующего и пока еще не названного полноформатника. Микширование будет проходить в студии Finnvox. Трек-лист: 01. Neverlasting 02. Aika Multaa Muistot (Everything Is Nothing) 03. Excuse Me While I Kill Myself 04. Losing My Faith 05. Wither 06. Blood & Tears 07. Man In The Bottle.</p>
+
+Автор: Yermola
+
+### 04.07.2001 news SENTENCED will enter Tico-Tico Studios ...
+
+<p>Finland’s SENTENCED will enter Tico-Tico Studios in Kemi, Finland in December to record their next studio effort, for which no producer has yet been chosen. The as-yet-untitled CD will reportedly be tracked and mixed over a three-month period, with the mixing sessions due to take place at Finnvox Studios. Working song titles for the album include the following: 01. Neverlasting 02. Aika Multaa Muistot (Everything Is Nothing) 03. Excuse Me While I Kill Myself 04. Losing My Faith 05. Wither 06. Blood & Tears 07. Man In The Bottle. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.02.2002 news Альбом почти готов...
+
+<p>"SENTENCED" завершили запись нового альбома и сейчас собираются заниматься микшированием Finnvox Studios (Хельсинки). Релиз появится в продаже в конце весны на Century Media Records. Трек-лист: <BR><BR> 01. Guilt And Regret <BR> 02. As Hard As I Try <BR> 03. At Your Grave <BR> 04. You Are The One <BR> 05. Neverlasting <BR> 06. Aika Multaa Muistot (Everything Is Nothing) <BR> 07. Excuse Me While I Kill Myself <BR> 08. Losing My Faith <BR> 09. Wither <BR> 10. Blood & Tears <BR> 11. Man In The Bottle <BR></p>
+
+Автор: Yermola
+
+### 04.02.2002 news SENTENCED To Begin Mixing New CD ...
+
+<p>Finland's SENTENCED have finished recording their brand as-yet-untitled album and are due to enter Helsinki's Finnvox Studios today to begin mixing the effort late a late spring release through Century Media Records. In other news, SENTENCED have selected Pasi Pauni, who was responsible for the “Killing Me, Killing You” clip, to direct the group's next video for an as-yet-undetermined cut off the new CD. <BR> <BR> As previously reported, SENTENCED started recording their latest album at Finnvox Studios, where they tracked all drums and bass with producer Hiili Hiilesmaa (who collaborated with the group on their Crimson opus) before moving over to Mastervox Studios in Oulu, Finland for the remainder of the recording process. Song titles set to appear on the album include the following:<BR> <BR> 01. Guilt And Regret <BR> 02. As Hard As I Try <BR> 03. At Your Grave <BR> 04. You Are The One <BR> 05. Neverlasting <BR> 06. Aika Multaa Muistot (Everything Is Nothing) <BR> 07. Excuse Me While I Kill Myself <BR> 08. Losing My Faith <BR> 09. Wither <BR> 10. Blood & Tears <BR> 11. Man In The Bottle <BR></p>
+
+Автор: Yermola
+
+### 18.02.2002 news The Cold White Light ...
+
+<p>Finland's SENTENCED have set The Cold White Light as the title of their forthcoming studio CD, which has just been mastered in Helsinki for a mid-May release through Century Media Records. A single will be released before the album comes out and an accompanying video clip will be shot in March. SENTENCED are tentatively scheduled to perform several gigs in their home country in the spring, to be followed by select festival appearances during the summer. A full European tour is unlikely to take place before the fall. Among the titles set to appear on The Cold White Light are the following: <BR><BR> 01. Guilt And Regret<BR> 02. As Hard As I Try <BR> 03. At Your Grave <BR> 04. You Are The One <BR> 05. Neverlasting <BR> 06. Aika Multaa Muistot (Everything Is Nothing) <BR> 07. Excuse Me While I Kill Mysel<BR> 08. Losing My Faith <BR> 09. Wither <BR> 10. Blood & Tears <BR> 11. Man In The Bottle<BR><BR> As previously reported, The Cold White Light was recorded in part at Finnvox Studios, where SENTENCED tracked all drums and bass with producer Hiili Hiilesmaa (who collaborated with the group on their Crimson opus) before moving over to Mastervox Studios in Oulu, Finland for the remainder of the recording process.</p>
+
+Автор: Yermola
+
+### 18.02.2002 news Холодный белый свет...
+
+<p>Финны "SENTENCED" выбрали "The Cold White Light" в качестве названия нового альбома, который должен выйти в середине мая на Century Media Records. Сингл и видео-клип выйдут уже в марте.</p>
+
+Автор: Yermola
+
+### 21.05.2002 news Century Media is pleased to announce the scheduling of the new Sentenced album....
+
+<p><IMG SRC="/images/news/2002.05/2767.jpg" ALT="pho" width=200 height=217 hspace="15" vspace="5" border="1" align="left"> Century Media is pleased to announce the scheduling of the new Sentenced album, The Cold White Light, for North American release on July 9th, 2002. <BR><BR> "The 2-year break since Crimson was not only intentional but very necessary as well," states guitarist and founding member Sami Lopakka from his home in Oulu, Finland. "We needed a long break to calm our nerves and to regain some energy after touring. It got ugly at one point. The alternative besides the break was to split up, but none of us were willing or ready to do that. The break turned out to be the wisest band decision in our history. When we started rehearsing again after seven months of silence, the songs came out easily and naturally, and faster than ever before. The band is fresh and relaxed, and you can hear that in what we're doing." <BR><BR> The Cold White Light marks the second time Sentenced has worked with producer Hiili Hiilesmaa. What he's been able to capture on this album suggests a stronger bond than the usual producer/artist rapport. Sami elaborates: <BR><BR> "We have a strong bond with him as he's a sick bastard like the rest of us [laughs]. For example, the perverted ass-clapping in "Neverlasting" (after the solo) was originally his idea. It's very important that you are able to forget about the recordings when you finish your day at the studio, and with Hiili we can always truly do that. As he lives 400 miles away from our home town, we don't see each other that much when we're not recording, but it always at once feels like we have known him forever." <BR><BR> For music fans who are also literary enthusiasts, the track "Brief Is The Light" was inspired by these passages from Edward Fitzgerald's translation of the Rubaiyat of Omar Khayyam of Naishapur: <BR><BR> You know how little while we have to stay,<BR> And, once departed, may return no more.<BR> (I:3) <BR><BR> Ah, make the most of what we yet may spend,<BR> Before we too into the Dust descend;<BR> Dust into Dust, and under Dust to lie,<BR> Sans Wine, sans Song, sans Singer, and - sans End!<BR> (V:24) <BR><BR> Keep in mind, any music born in a region close to the Arctic Circle that receives very little sunlight during the winter months and where temperatures fall ridiculously below freezing is a ripe breeding place for anthems of despair, self-doubt, and suicide. Sentenced are highly skilled in resignation and pessimism, and have a long-standing association with self-destruction. Allow them to share their authentically haunted expertise with you, as it will only validate your personal despair and keep you one with your misery. <BR><BR> The final tracklisting for The Cold White Light is:<BR><BR> 1. Konevitsan Kirkonkellot <BR> 2. Cross My Heart And Hope To Die <BR> 3. Brief Is The Light <BR> 4. Neverlasting <BR> 5. Aika Multaa Muistot [Everything Is Nothing] <BR> 6. Excuse Me While I Kill Myself <BR> 7. Blood & Tears <BR> 8. You Are The One <BR> 9. Guilt And Regret <BR> 10. The Luxury Of A Grave <BR> 11. No One There<BR></p>
+
+Автор: Yermola
+
+### 21.05.2002 news Sentenced объявили дату выхода альбома...
+
+<p>Sentenced объявили дату выхода альбома "The Cold White Light" - 9-е июля 2002. "2-х летний перерыв после Crimson был просто необходим для нас" - говорит гитарист Sami Lopakka. "Нам нужно было время чтобы восстановить наши нервы и накопить энергию после тура...." <BR><BR> На "The Cold White Light" вот уже второй раз работает продюссер Hiili Hiilesmaa. Sami продолжает: "Мы имели мощную поддержку от Hiili, поскольку он такой же больной ублюдок как и все мы... Ха-ха-ха." Трек "Brief Is The Light" был вдохновлен фразой из перевода Омар Хайама - Edward Fitzgerald. <IMG SRC="/images/news/2002.05/2767.jpg" ALT="pho" width=200 height=217 hspace="15" vspace="5" border="1" align="right"> <BR><BR> Трек-лист:<BR><BR> 1. Konevitsan Kirkonkellot <BR> 2. Cross My Heart And Hope To Die <BR> 3. Brief Is The Light <BR> 4. Neverlasting <BR> 5. Aika Multaa Muistot [Everything Is Nothing] <BR> 6. Excuse Me While I Kill Myself <BR> 7. Blood & Tears <BR> 8. You Are The One <BR> 9. Guilt And Regret <BR> 10. The Luxury Of A Grave <BR> 11. No One There<BR></p>
+
+Автор: Yermola
+
+### 24.05.2002 news SENTENCED в чартах...
+
+<p>Последний альбом SENTENCED - "The Cold White Light" попал на 45 позицию в германских чартах Media Control Album и продолжает оставаться №1 в Finnish Album chart....</p>
+
+Автор: Yermola
+
+### 24.05.2002 news SENTENCED Debut At German #45!
+
+<p>SENTENCED's latest CD, The Cold White Light, has entered the German Media Control Album chart at position #45. As previously reported, the album debuted on the Finnish Album chart at position #1.</p>
+
+Автор: Yermola
+
+### 28.05.2002 news German Media Control Chart ...
+
+<p>Вот так представлены хард-рок/метал в German Media Control (Top 100) chart по состоянию за прошедшую неделю: <BR><BR> 04. BОHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending May 27th (as reported by Rock Hard magazine): <BR><BR> 04. BЦHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 05.06.2002 reviews Холодный белый свет
+
+<p>Финский gothic metal во всей его красе. Восьмой альбом группы доносит до нас всю печаль и меланхолию, скопившуюся в сердцах финнов. Музыка группы стала помягче и заметно энергичнее и интенсивнее. Унынием и тоской здесь уже не пахнет. Зато по-прежнему полно суицидальных настроений и глубокой печали. У вокалиста появились черты Ville Valo, но уникальность вокала сохранилась. Его голос наполнен отчаянием, мучением и болью, о которых большая часть лирики. Сильный материал, который проникает при прослушивании в подсознание и овладевает разумом, проникая глубже в спинной мозг, разливая по телу приятный холодок. Меланхоличная и чрезмерно сентиментальная музыка полная интересных ненавязчивых мелодий и приятных акустических переливов. Обращает на себя внимание полное отсутствие клавишного ряда. Это выделяет группу среди остальных финских команд, которые без клавиш просто не могут обходиться. Не так то просто создать подобную красоту без клавишной атмосферы и вкраплений. SENTENCED это вполне удается. Превосходный мелодичный и страстный gothic metal. Все поклонники группы будут в восторге от нового материала Самых Северных Убийц. Особо рекомендую послушать этот альбом поклонникам H.I.M., чтобы понять who is who.</p>
+
+Автор: Dimas
+
+### 21.08.2002 news Sentenced will make a tour with Lacuna Coil, In Flames &amp;  Killswitch Engage.
+
+<p>On the official homepage of the band is the program of a European tour: <BR><BR> September 2002:<BR><BR> 9/16 SLIM’S – SAN FRANCISCO, CA <BR> 9/17 GLASSHOUSE – POMONA, CA <BR> 9/18 BASH ON ASH – TEMPE, AZ <BR> 9/20 FOX THEATER – BOULDER, CO <BR> 9/21 BOTTLENECK – LAWRENCE, KS <BR> 9/22 THE RAVE – MILWAUKEE, WI <BR> 9/23 I-ROCK – DETROIT, MI <BR> 9/24 AGORA BALLROOM – CLEVELAND, OH <BR> 9/25 TROCADERO – PHILADELPHIA, PA <BR> 9/26 JAXX – W. SPRINGFIELD, VA <BR> 9/27 BIRCH HILL – OLD BRIDGE, NJ <BR> 9/28 LUPO’S – PROVIDENCE, RI <BR><BR> Oktober 2002:<BR><BR> Thu 24 Copenhagen (DK) Loppen <BR> Fri 25 Helsingborg (S) Tivoli <BR> Sat 26 Oslo (N) John Dee <BR> Sun 27 Gothenburg (S) Musikens Hus <BR> Tue 29 Dordrecht (NL) Bibelot <BR> Wed 30 Lille (F) Le Splendid <BR> Thu 31 London (GB) Mean Fiddler <BR><BR> November 2002:<BR><BR> Fri 01 Vosselaar (B) Biebob <BR> Sat 02 Haarlem (NL) Patronaat <BR> Sun 03 Eindhoven (NL) Effenaar <BR> Mon 04 Essen (D) Zeche Carl <BR> Tue 05 Paris (F) La Locomotive <BR> Wed 06 Montpellier (F) Rockstore <BR> Thu 07 Barcelona (E) Razzmattazz 2 <BR> Fri 08 Bilbao (E) Bilborock <BR> Sat 09 Valencia (E) Sala Roxi <BR> Sun 10 Granada (E) La Copera <BR> Tue 12 Milan (I) Transilvania <BR> Wed 13 Rome (I) Blackout <BR> Thu 14 Cesena (I) Vidia <BR> Fri 15 Treviso (I) New Age <BR> Sat 16 Salzburg (A) Rockhaus <BR> Sun 17 Vienna (A) Planet Music <BR> Mon 18 Nьrnberg (D) Hirsch <BR> Tue 19 Pratteln (CH) Z7 <BR> Wed 20 Frankfurt (D) Batschkapp <BR> Thu 21 Halle (D) Easy Schorre <BR> Fri 22 Hamburg (D) Markthalle <BR><BR> Sat 23* Thessaloniki (GR) Hydrogios <BR> Sun 24* Athens (GR) Gagarin 205 sl <BR><BR> *In two last gigs will participate only Sentenced</p>
+
+Автор: Midnight Vampire
+
+### 30.10.2002 articles Новинки лицензионного рынка (29.10 - 03.11)
+
+<p>На этой неделе затишье в двух конторах Art Music Group и Soyuz, поэтому обратимся к оставшимся трём лэйблам.<br> Cd-Maximum добавляют очередную порцию underground metal. Альбом 2001 года финской группы Alghazanath “Osiris - Typhon Unmasked” являет собой малоизвестный мелодичный black-metal. В пресс-релизе советуют обратить внимание на «старомодную игру музыкантов, которая проявляется при более тщательном прослушивании». Далее Dominium “Psycho Path Fever” – группа относит себя к progressive-metal, но критики отмечают, что это heavy metal с death-metal вокалом. И третья новинка, о которой нам стало известно к данному моменту довольно известная группа Love Lies Bleeding со свежим релизом, который может порадовать всех любителей мелодичного black’а.<br> Fono продолжают окучивать свой новый контракт с Century Media, но почему-то выходят старые альбомы. Senteced “Amok” 1995 года выпуска и Iced Earth “Something Wicked This Way Comes” 1999 года в рекомендациях не нуждаются. Новый альбом brutal-death формации Dies Irae, в которой можно встретить участников Vader для любителей данного стиля. Также как и новый альбом старой heavy metal группы Riot.<br> Единственная металл-бомба этой недели вновь вышла на Irond. Новый альбом шведов Hammerfall порадует по крайней мере тем, что группа не отходит от своих истоков (хит недели). Альтернативная музыка на Nuclear Blast, скорее всего, продаётся везде кроме России. Группа с названием Prime Sth вряд ли будет пользоваться популярностью. Dominion III представляют «шедевр электронной апокалиптической музыки», играют участники Antichrisis и Dargaard. Проект Sieben представляет собой neo folk от скрипача Мэтта Хоудена, который засветился во множестве проектов. И напоследок Black Heaven, в котором участники Mantus «радуют» нас электронно-танцевальными экспериментами.<br> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 13.11.2002 reviews Good enough to listen to once in a year
+
+<p>“Cross my heart and hope to die / May my end come tonight / Across the dark, into the light / May death again us unite”. Ha, I bet these guys are MUCH better in composing _music_. If you still don’t know what the hell is going on over here, go and re-listen some fucking LIMP BIZKIT. Even if many consider SENTENCED more or less commercialized combo and their products – some pseudo-metal garbage, I would dare to disagree. I always considered ‘em uttermost sincere and surprisingly or not, still do. This time Finns came up with a really-really good CD, however if compared to “Crimson” or “Frozen”, “The Cold White Light” inevitably would be named a piece that’s a bit worse than those two former works by SENTENCED. This CD features a couple of absolutely breathtaking tunes, such as brilliant, piano-spiced “Guilt And Regret” – in my view, one of the best songs SENTENCED ever wrote, as well as opening “Cross My Heart And Hope To Die”, gloomy “The Luxury Of A Grave” and seemingly typical “Excuse Me While I Kill Myself”. As to others… well, they sound excellent when you listen to them, however once they’re over, you can’t even merely recall what they were like. Besides that, let me point out that I completely dislike the sound for it has too many low frequencies – and that truly bothers… Or do I just have a wasted CD? Nevertheless, “The Cold White Light” is good enough to check it out.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 02.04.2004 news Вокалист SENTENCED споёт на новом альбоме от NEGATIVE
+
+Вокалист <B>SENTENCED</B> <B>Ville Laihiala</B>&nbsp; записал партии гостевого вокала для нового альбома <B>NEGATIVE</B>, который выйдет осенью этого года.
+Автор: Vit Belov
+
+### 15.06.2004 news SENTENCED готовятся к записи альбома
+
+<P>SENTENCED определились с выбором продюсера для очередного альбома. Им станет Hiili Hiilesmaa, который продюсировал два последих альбома группы - "Crimson" и "The Cold White Light". Сейчас SENTENCED работают над новым материалом и в начале осени отправятся в студию. Готовый альбом должен выйти в начале 2005 года.</P>
+Автор: Morsus
+
+### 15.06.2004 news SENTENCED has chosen producer for the next album
+
+<P>SENTENCED has chosen producer for the next album. Producer is Hiili Hiilesmaa who has also produced their last two albums (Crimson, TCWL). Band are working with new material and will enter studios in the beginning of autumn. New SENTENCED album should be out in the beginning of 2005.</P>
+Автор: Morsus
+
+### 24.12.2004 news Стали известны подробности о новом альбоме SENTENCED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом SENTENCED выйдет в апреле 2005 года на Century Media. Пластинка была записана вместе с <STRONG>Hiili Hiilesmaa</STRONG> (<B>H.I.M.</B>, <B>MOONSPELL</B>, <B>THE 69 EYES</B>). Трэк-лист:</FONT></P>
+<P>1. <B>May Today Become the Day</B> (4:00) <BR>2. <B>Ever-frost</B> (4:19) <BR>3. <B>We Are but Falling Leaves</B> (4:28) <BR>4. <B>Her Last 5 Minutes</B> (5:40) <BR>5. <B>Where Waters Fall Frozen</B> (0:56) <BR>6. <B>Despair-ridden Hearts</B> (3:41) <BR>7. <B>Vengeance Is Mine</B> (4:15) <BR>8. <B>A Long Way to Nowhere</B> (3:27) <BR>9. <B>Consider Us Dead</B> (4:51) <BR>10. <B>Lower the Flags</B> (3:34) <BR>11. <B>Drain Me</B> (4:34) <BR>12. <B>Karu</B> (1:04) <BR>13. <B>End of the Road</B> (5:00) <BR><BR></P>
+Автор: Vit Belov
+
+### 04.02.2005 news Новый альбом SENTENCED будет &quot;посмертным&quot;
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news_rus/2005.02/7841.jpg" width=250 align=right border=5>Новый альбом <STRONG>SENTENCED</STRONG> будет называться <STRONG>'The Funeral Album'</STRONG> и станет для группы финальным. Решение о распаде группы было принято ещё в 2004 году. После выхода альбома коллектив даст некоторое количество прощальных шоу. После этого - КОНЕЦ. Никаких ре-юнионов не обещается.</P>
+<P>Подробнее здесь: <A href="/ru/articles/1/53674/">http://musica.mustdie.ru/ru/articles/1/53674/</A></P>
+Автор: Vit Belov
+
+### 04.02.2005 news SENTENCED will split up after new album
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news/2005.02/7842.jpg" width=250 align=right border=5>Here is statement from <STRONG>SENTENCED</STRONG> official site:</P>
+<P>"<EM>We’d better put this out in the open before you hear it somewhere else. <BR>The title of the new album is ”The Funeral Album”, and with it we, SENTENCED, are coming to the end of our road. This album will be our last one. </EM></P>
+<P><EM>The decision is mutual, thoroughly thought over and final. </EM></P>
+<P><EM>Metaphorically speaking, this is a mass suicide of 5, and the new album is the kind of note we want to leave behind. One last time around for good-byes. </EM></P>
+<P><EM>The decision was made during 2004. The reasons are many, and I don’t feel any need to go into details here. I will say however, that everyone will walk away as friends. In my eyes we are even not splitting up, but ending our recording career together. And there is major difference between those two. Our wish was always to go out with style and at the peak of our so called success. I think with ”The Funeral Album” we will do exactly that. </EM></P>
+<P><EM>Once the album is released, there will be an undefined number of farewell shows. When, where and how many, those are questions that at this point remain open. Intense and long touring, however, will unfortunately not follow, and most of these shows will take place on festivals where we can reach as much people as possible at one time. At the moment it seems that all of these funeral shows will be in Europe. </EM></P>
+<P><EM>If everything goes as planned, we will also make a live-DVD out of those last shows and include a lot of stuff from the past on it. Not to mention all the music-videos we have done during the years. The working title for the DVD is ”Buried Alive”. </EM></P>
+<P><EM>After that SENTENCED is no more. </EM></P>
+<P><EM>And: THIS IS IT. There will not be a re-union, come-back, or any other pathetic and soap-operish circus that seems to be in fashion these days. SENTENCED will rest in peace. </EM></P>
+<P><EM>We will make the most out of the band’s last year, and hope you will all join us. </EM></P>
+<P><EM>See you on the last run.<BR>/Lopakka & SENTENCED</EM> "</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 04.02.2005 articles SENTENCED: &quot;Не будет никаких ре-юнионов, кам бэков и других патетических цирковых номеров из репертуара мыльных опер&quot;.
+
+<P><IMG height=500 alt="" hspace=0 src="/images/articles_rus/2005.02/7844.jpg" width=365 align=left border=5>Как только что стало известно, после выхода нового альбома ‘The Funeral Album’ распадётся финская группа SENTENCED. Здесь Вы сможете прочесть заявление группы по этому поводу.</P>
+<P>«Лучше мы это опубликуем сами, чем Вы услышите новость где-то ещё. </P>
+<P>Название новой пластинки будет ‘The Funeral Album’ и после этого мы, SENTENCED, подходим к окончанию нашего пути. Этот альбом будет нашим последним. </P>
+<P>Решение общее, тщательно обдуманное и окончательное.</P>
+<P>Метафорически выражаясь, это массовое самоубийство пяти человек, и новый альбом, некоторым образом, наша предсмертная записка. Последнее время, сказать «до свидания».</P>
+<P>Это решение было принято в середине 2004 года. Причин много, и я не считаю нужным излагать их все здесь. Скажу, однако, что все пойдут своей дорогой, но мы остались друзьями. В моих глазах, мы даже не распадаемся, а просто заканчиваем совместное существование. И между этими двумя вещами огромная разница. Наше желание всегда было покинуть стиль на пике нашего, так называемого, успеха. Мне кажется, с ‘The Funeral Album’ мы это и сделаем.</P>
+<P>После выхода альбома будет неопределённое количество прощальных шоу. Когда, где и как много – эти вопросы пока без ответов. Насыщенного тура, однако, не планируется, и большинство выступлений&nbsp;будет на фестивалях, где мы сможем достичь, как можно большего количества фэнов единовременно. Это означает, что все прощальные шоу состоятся в Европе.</P>
+<P>Если всё пойдёт по плану, мы также запишем концертный DVD во время этих прощальных шоу, на который также войдут съёмки из нашего прошлого. Это не означает все видео за нашу историю. Рабочее название DVD – ‘Buried Alive’.</P>
+<P>После этого SENTENCED больше не будет. </P>
+<P>И ЭТО ВСЁ. Не будет никаких ре-юнионов, кам бэков и других патетических цирковых номеров из репертуара мыльных опер, которые так модны в наши дни. SENTENCED будет покоится с миром. </P>
+<P>Мы сделаем максимум, что возможно, в течение последнего года жизни группы, и надеемся, что Вы нас поддержите». </P>
+Автор: Vit Belov
+
+### 03.06.2005 news Вышел новый номер журнала Rock Oracle!
+
+<SPAN class=bb><SPAN class=crem>
+<P><SPAN class=banddesc><SPAN class=bb><SPAN class=crem><B><SPAN class=nav><B><IMG height=326 alt="" hspace=10 src="/images/news_rus/2005.06/8730.jpg" width=227 align=right border=1>Второй номер журнала Rock Oracle уже в продаже!</B></P>
+<P></SPAN></B><SPAN class=crem><SPAN class=banddesc><SPAN class=crem><SPAN class=tit1><SPAN class=crem><SPAN class=banddesc><SPAN class=lyrica style="COLOR: #ff0000">Спрашивайте в магазинах единственное отечественное рок-издание с компакт-диском!</P><SPAN class=pna>
+<P>Вас ожидают:</P>
+<UL>
+<LI></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>&nbsp;Эксклюзивное интервью с&nbsp;Lacrimosa (подготовьтесь к приезду легенды готической сцены в Москву!); 
+<LI>&nbsp;Отчеты с московских концертов Crematory, Behemoth, Rage, Ensiferum, To/Die/For; 
+<LI>&nbsp;Свежая информация из жизни Obituary, Borknagar, Moonsorrow, Sentenced, Samsas Traum; 
+<LI>&nbsp;Познавательная статьи о развитии готической культуры; 
+<LI>&nbsp;Как всегда куча свежих новостей, рецензий на музыкальные диски, книги и видео</LI></UL><SPAN style="COLOR: #ff0000"><B><SPAN class=tit1><B><SPAN class=banddesc><B><SPAN class=tracks><B><SPAN class=h1><B><SPAN class=total><B><SPAN class=bb><B><SPAN class=band><B><SPAN class=tit1><B><SPAN class=lyrica><B><SPAN class=lyrica><B><SPAN class=banddesc>
+<P class=pna><B>+ компакт-диск - "нарезка" из хитов самых популярных новинок музыкального рынка</B></P></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B>
+<P class=pna></SPAN></B></SPAN></P></SPAN></SPAN>
+Автор: Soubbterranean
+
+### 08.06.2005 reviews &quot;Похоронный альбом&quot; не надоест вам долго
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Без этой фразы рецензии не получится. "The Funeral Album" - последний посмертный альбом SENTENCED. Нет, группа даёт ещё концерты в поддержку пластинки, но это уже не важно. Рассматривать&nbsp;альбом и надо с этой точки зрения. Финны обещали лучший альбом за всю историю. Уж очень разнообразная история у SENTENCED, но, в общем-то, "The Funeral Album" можно назвать таковым. Так интереснее. Все эти выражения имеют право на жизнь только в случае отсутствия алчных интересов в решении группы. Я думаю, вы понимаете, каких...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Во-первых, новый альбом очень разнообразен. В современном состоянии пресыщенности музыкальным продуктом, этот фактор порой становится определяющим. Видимо, группа решила развалиться в течение записи альбома. Первые две вещи, особенно первая, "May Today Become The Day" - очень живые. Даже rock'n'roll'ьно танцевальные.&nbsp;Следующие композиции, которые, хоть и медленные, но не вызывают "похоронных" настроений. Эдакое солнечное утро ранней осени... Хочется улыбаться, закрыв глаза,&nbsp;глубоко вдыхая запах&nbsp;слегка пожухлой листвы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В середине пластинки также встречаются разнообразные быстрые хиты. Именно&nbsp;"хиты", так как практически все песни достойны представлять этот альбом в качестве сингла, например.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отдельной строкой хочется выделить последний трэк "End Of The Road", прослушивая который, вы должны будете почувствовать, что&nbsp;вам будет не хватать SENTENCED.&nbsp;О, этот хор...!!!&nbsp;Отличная вещь. Но не грустите слишком, а просто поставьте ваш проигрыватель на 'repeat', так как&nbsp;"похоронный" альбом не надоест&nbsp;вам долгое время.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.fono.ru/">ФОНО</A> (отличное digi-pack издание соответствует уровню альбома)</FONT></P>
+Автор: Vit Belov
+
+### 19.07.2005 articles SENTENCED в Москве, пресс-релиз
+
+<P>SPIKA Merchandising и Dark Affairs представляют</P>
+<P>S E N T E N C E D<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;<BR>&nbsp;27 Августа в ДК имени Горбунова состоится первый и последний концерт в истории группы&nbsp; Sentenced в России. Мероприятие пройдет в поддержку&nbsp; прощального альбома группы. Не пропустите первый и последний шанс увидеть финских мэтров меланхолии на сцене! <BR>&nbsp;История Sentenced началась в 1989 году в городе Оулу на холодном финском севере. Тогда два гитариста Miika Tenkula и Sami Lopakka вместе с барабанщиком Vesa Ranta собрались вместе для того, чтобы играть европейский Death Metal. Спустя год на свет появилось их первое творение - демо запись «When death joins us…» (1990). Затем состав группы пополнился вокалистом / бас-гитаристом Taneli Jarva, голос которого добавил особенной харизмы музыке Sentenced. Первый контракт на выпуск альбома не заставил себя ждать, дебютный альбом «Shadows of the past» (1991) вышел на небольшом лейбле. Следующий альбом «North from here» (1993) вышел два года спустя уже на Spinefarm Records. Звучание коллектива сменилось на более мелодичное, но это был все тот же бескомпромиссный Death Metal. В этом же году Sentenced выпустили MCD «The Trooper» (1993), на котором можно услышать кавер-версию одноименного хита группы Iron Maiden.<BR>&nbsp;В 1994 году группа сделала шаг вперед, подписав выгодный контракт с правом выпуска записей по всему миру с немецкой звукозаписывающей компанией Century Media, которая вдобавок решила переиздать первые два альбома. «Amok» (1994) стал первым альбом, выпущенным на немецком лейбле. Разойдясь тиражом более 35000 копий, альбом стал прорывом для группы. Несмотря на то, что стиль опять претерпел изменения, темп композиций снизился, музыка стала еще более мелодична и эмоциональна, Sentenced не потеряли своей жесткости, а хриплый и грубый вокал Taneli Jarva вдохнул в альбом особую атмосферу. Следующей студийной работой стал еще один MCD «Love and Death» (1995), который дал понять, что группа все еще находится в поисках своего звучания.<BR>&nbsp;В 1996 году фанаты были расстроены известием об уходе Taneli Jarva. И это в тот момент, когда группа, казалось, была на пике славы. Официальной причиной его ухода было объявлено то, что Taneli был изнурен стремительным рок’н’рольным образом жизни и нуждался в отдыхе. Но вскоре группа нашла ему замену в лице вокалиста Ville Laihiala и прогремела с новым, поистине сенсационным, альбомом «Down» (1996), который окончательно закрыл Death Metal главу в биографии Sentenced. Глубокий и «шершавый» вокал Taneli Jarva сменился на более теплый и чистый голос Ville Laihiala. Именно с этого альбома тема суицида, смешанная с черным юмором, самоиронией и так свойственной финнам меланхолией стала своего рода фирменным штампом творчества группы. Не смотря на то, что одновременная смена вокалиста и музыкального стиля были достаточно рискованным шагом, но и из этой ситуации Sentenced вышли победителями. «Down» получил великолепные отзывы во многих мировых журналах, и группа уехала в мировой тур. Спустя два года увидел свет альбом «Frozen» (1998), который был выдержан в ключе предыдущего альбома, что говорило о том, что музыканты нашли свой стиль и стали развиваться внутри выбранного жанра.&nbsp; Альбом «Crimson» (2000), вышедший спустя еще два года, добавил еще больше горечи в творчество группы. На смену небезызвестному продюсеру Waldemar Sorychta, с которым Sentenced работали над «Down» и «Frozen», пришел не менее известный Hiili Hiilismaa, знаменитый по работе с такими коллективами как HIM, Apocalyptica и Moonspell. Следующий альбом «Cold White Light» (2002) поднял группу на новую вершину. Идеально переплетающиеся гитарные мелодии гитаристов Miika Tenkula и Sami Lopakka в сочетании с душевным хрипловатым вокалом Ville Laihiala без всякого сомнения, сделали Sentenced магистрами меланхолии. При этом группа все время оставалась верна своим «металлическим» корням. <BR>&nbsp;А теперь настало время закрыть последнюю главу в творчестве Sentenced. В этом году участники, как часто поется в их песнях, совершат коллективное самоубийство, как группа, и на этом их пути, как музыкантов, разойдутся. Как бы это не было печально и трагично, но в конце этого года Sentenced прекратит свое существование. Единственная радость заключается в том, что группа уходя оставляет после себя в качестве завещания свой последний альбом «The Funeral Album». Как говорят сами музыканты, в каждой строке этого альбома чувствуются прощальные ноты. Как сказал в интервью гитарист Sami Lopakka: «После записи мы смогли оглянуться назад и уйти, осознавая, что все эти годы тщательно поддерживали огонь, не давая ему угаснуть до самого конца, а когда настало время, позволили ему умереть с чувством собственного достоинства». К этим словам трудно что-то добавить. Осталось только проводить Sentenced в последний путь и принять «The Funeral Album» как последнюю вершину в короткой, но без сомнения блистательной жизни группы. А Sentenced, в свою очередь, постарается подарить поклонникам незабываемое прощальное шоу, своего рода летопись радости и слез...</P>
+<P><BR>27 августа- Москва, ДК Горбунова<BR>Адрес: 121309, Россия, Москва, Новозаводская д. 27<BR>Начало – 19.00<BR>Концерт открывает группа Repentance (<A href="http://www.repentance.ru/">www.repentance.ru</A>)<BR>Билеты уже продаже.<BR>Телефон для справок: 7677037</P>
+Автор: Vit Belov
+
+### 18.08.2005 news SENTENCED в Москве
+
+<CENTER><IMG height=283 alt="" hspace=0 src="/images/shows_rus/2005.07/9016.jpg" width=400 border=5></CENTER>
+<CENTER>27 августа- Москва, ДК Горбунова<BR>Адрес: 121309, Россия, Москва, Новозаводская д. 27<BR>Начало – 19.00<BR>Концерт открывает группа Repentance (<A href="http://www.repentance.ru/">www.repentance.ru</A>)<BR>Билеты уже продаже.<BR>Телефон для справок: 7677037</CENTER>
+Автор: Vit Belov
+
+### 18.08.2005 news Прощай, SENTENCED
+
+<P>Фины <STRONG>SENTENCED</STRONG> анонсировали свой самый последний концерт. Он состоится 1 октября в <STRONG>Club Teatria</STRONG>&nbsp; города Оулу. Планируются запись и съемки выступления, которые станут основой для прощального dvd группы&nbsp;<STRONG>"Buried Alive</STRONG>", выпуск которого&nbsp;намечен на&nbsp;начало 2006 года.</P>
+Автор: Dimas
+
+### 01.09.2005 articles SENTENCED в Москве: Только для &quot;одиозных&quot; поклонников
+
+<P><IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.09/9260.jpg" width=250 align=left border=5>В субботу 27 августа в рамках своего «Похоронного Тура» в Москве в ДК им. Горбунова выступили SENTENCED. Посетив Россию в первый раз, финны доставили незабываемое удовольствие всем своим поклонникам, которых в нашей стране немало.</P>
+<P>К сожалению, и на этом концерте посещаемость оказалась ниже ожидаемой. В ДКГ собралось около 1000 человек, что для этой площадки совсем не много. Концертный сезон начался не очень хорошо как для Спики, так и для CDK МАИ – организаторов концертов SENTENCED и CANDLEMASS. Мне кажется, публика отказывается платить за билеты 800-900 рублей. Успешные концерты LACRIMOSA, LAKE OF TEARS и THERION, видимо, ввели промоутеров в заблуждение. LACRIMOSA и THERION – легендарные группы, которых ждали здесь толпы фанатов, а LAKE OF TEARS попали на 8 марта. SENTENCED не относится к легендам… Это точно! Лишним доказательством того, что публика всё-таки хочет концертов, стал гиг MOONSORROW, на который собралась достаточная аудитория. Только билет там стоил в три раза дешевле.</P>
+<P>Сам концерт прошёл на хорошем профессиональном уровне. Качественный звук, качественная игра музыкантов, качественные, пускай и несколько однообразные, песни. Мне кажется, во всём этом «Похоронном Туре» слишком много пафоса, не соответствующего уровню группы. В конце концов, это не Iron Maiden уходят на покой. Под симфоническое интро хотелось отчего-то смеяться, да и во время выступления погрустить никак не выходило. Что-то подсказывало: «Это к лучшему, что они уходят», потому что уже сейчас их программа и поведение на сцене вряд ли доставят удовольствие ценителям.</P>
+<P>Этот концерт был только для одиозных поклонников SENTENCED, которые точно «приторчали», все остальные правильно сделали, что приберегли свои 30 долларов до лучших времён. </P>
+<P>Отдельно отмечу разогрев в лице группы REPENTANCE. Я уже слушал ребят в прошлом году, и они произвели неплохое впечатление. Сейчас же они явно растерялись и выглядели плохо. Я уже писал про такие разогревы, которые не добавляют группе баллов, поэтому повторяться не стану.</P>
+Автор: Vit Belov
+
+### 01.11.2006 news Посмертное DVD от SENTENCED
+
+<P>27 ноября выходит DVD от <STRONG>SENTENCED "Buried Alive</STRONG>", на которое вошёл последний концерт группы, состоявшийся 1 октября прошлого года в родном городе коллектива Оулу. Трэк-лист:</P>
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2006.11/10841.jpg" width=274 align=right border=5>DVD1:<BR>"The Farewell Performance":<BR>01. <B>Intro</B><BR>02. <B>Where Waters Fall Frozen</B><BR>03. <B>May Today Become The Day</B><BR>04. <B>Neverlasting</B><BR>05. <B>Bleed</B><BR>06. <B>The Rain Comes Falling Down</B><BR>07. <B>Everfrost</B><BR>08. <B>Sun Won't Shine</B><BR>09. <B>Dead Moon Rising</B><BR>10. <B>Despair-Ridden Hearts</B><BR>11. <B>The Suicider / Excuse Me While I Kill Myself</B> (medley)<BR>12. <B>The War Ain't Over</B>*<BR>13. <B>Nepenthe</B>*<BR>14. <B>Northern Lights</B>*<BR>15. <B>The Way I Wanna Go</B>*<BR>16. <B>Dance On The Graves</B>*<BR>17. <B>Noose</B><BR>18. <B>Aika Multaa Muistot (Everything Is Nothing)</B><BR>19. <B>Farewell</B><BR>20. <B>No One There</B><BR>21. <B>Drown Together</B><BR>22. <B>Cross My Heart And Hope To Die</B><BR>23. <B>Brief Is The Light</B><BR>24. <B>Vengeance Is Mine</B><BR>25. <B>End Of The Road</B><BR>* w/ <B>Taneli Jarva</B><BR><BR>DVD2:<BR>* Animated photo gallery<BR>* Discography<BR>* Photo Session <BR>* Video Session <BR>* Signing Session <BR>* Festival Tour <BR>* Club Tour <BR>* 7 Music Videos<BR>- <B>Nepenthe</B><BR>- <B>Bleed</B><BR>- <B>Noose</B><BR>- <B>The Suicider</B><BR>- <B>Killing Me Killing You</B><BR>- <B>No One There</B><BR>- <B>Everfrost</B><BR>* Brand New Video: <B>"Despair-Ridden Hearts"</B><BR>* Band Interviews</P>
+Автор: Vit Belov
+
+### 20.02.2009 news Умер гитарист SENETENCED
+
+<P>В возрасте 35 лет умер гитарист<STRONG> SENTENCED</STRONG> <STRONG>Miika Tenkula. </STRONG>Причина смерти музыканта пока не называется. Сообщается, что в последние годы <STRONG>Miika</STRONG> злоупотреблял алкоголем, и его тяга к спиртному только усилилась после прекращения деятельности<STRONG> SENTENCED</STRONG>.</P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+### 17.10.2009 news SENTENCED выпустят гроб
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.10/15286.jpg" width=248 align=right border=5>13 ноября на <STRONG>Century Media</STRONG> выйдет лимитированное издание всех альбом<STRONG> SENTENCED</STRONG> в одной упаоквке <STRONG>"Coffin - The Complete Discography". </STRONG>Содержание релиза:</P>
+<P>CD 1 - <B>"When Death Joins Us"</B> (demo) <BR>CD 2 - <B>"Rotting Ways To Misery"</B> (demo) <BR>CD 3 - <B>"Shadows Of The Past"</B> <BR>CD 4 - <B>"Journey To Pohjola"</B> (demo) <BR>CD 5 - <B>"North From Here"</B><BR>CD 6 - <B>"The Trooper"</B> <BR>CD 7 - <B>"Amok"</B> <BR>CD 8 - <B>"Love & Death"</B> <BR>CD 9 - <B>"Down"</B> <BR>CD 10 - <B>"Frozen"</B><BR>CD 11 - <B>"Crimson"</B> <BR>CD 12 - <B>"The Cold White Light"</B> <BR>CD 13 - <B>"The Funeral Album"</B> <BR>CD 14 - <B>"Buried Alive I"</B> <BR>CD 15 - <B>"Buried Alive II"</B> <BR>CD 16 - <B>"Dead Leaves"</B> (A Collection Of B-Sides And Rarities) <BR>DVD 1 - <B>"Buried Alive I"</B> <BR>DVD 2 - <B>"Buried Alive II"</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Luchshiy albom Sentenced.

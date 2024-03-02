@@ -37,6 +37,74 @@ Elena Andersson: Keyboards
 
 * C группой "Godgory" Matte
 
+## Публикации
+
+### 18.09.2000 reviews Проект музыкантов Godgory  и  Mental Crypt
+
+<p>Проект музыкантов Godgory и Mental Crypt. Братья Andersson пригласили гитариста Jason Janson (Mental Crypt) и замутили сторонний готический проект. Музыка довольно оригинальна, к ней больше подходит термин gothic-doom-rock с чистым вокалом. Иногда прорываются легко узнаваемые накачанные death-риффы свойственные основной группе братьев Andersson. Но общее настроение альбома чрезвычайно меланхоличное и довольно пессимистическое. Легкие клавиши на заднем плане, акустика и туманная атмосфера. Обычная "осенняя" музыка. Альбому далеко до совершенства, но местами слушается интересно, притягивая к себе внимание. Неплохой альбом, для любителей пассивной грустной музыки.</p>
+
+Автор: Dimas
+
+### 26.12.2001 articles Godgory: melodic dark metal с акустическими пассажами и красивыми клавишами
+
+<p><IMG SRC="/images/articles_rus/2001.12/2213.jpg" ALT="pho" width="200" height="175" hspace="15" vspace="5" border="1" align="left" /> Почему-то подумалось, что для web-zine'a больше подойдут коротенькие отчёты о группах. Начнём серию репортажей с небольшого разговора с Матте Андерссоном - лидером шведской death-doom группы Godgory, которая порадовала нас своим новым альбомом "Way Beyond" в конце прошлого квартала. Рецензию Вы сможете прочесть в соответствующем разделе сайта.</p>
+<p>Q: Хотелось бы начать с, в некотором роде, философского вопроса. Что такое doom-metal? Что ты об этом думаешь? Играете ли вы Doom-metal в Godgory? Как ты можете описать свой стиль? (Только прошу тебя, не говори, что тебя это мало волнует).</p>
+<p>МА: Я думаю, doom-metal - это медленная, тяжёлая музыка, в которой содержится большой процент печали. Мне кажется, это великая музыка, и я её люблю. Не хотелось бы говорить, что Godgory играет Doom metal, даже если наши песни содержат все элементы этого стиля. Я бы описал наш стиль, как melodic dark metal с акустическими пассажами и красивыми клавишами. Если быть честным, нас не волнует стиль так сильно. Мы сочиняем музыку, которая нам нравится, и которая затем нравится другим людям, что просто великолепно. Мы никогда не думаем о том, что нельзя, например, включать в нашу песню то или иное, из-за того, что песня станет слишком лёгкой, мы добавляем всё, что нас удовлетворяет. Поэтому мы имеем тот звук, который имеем, уникальный звук Godgory.</p>
+<p>Q: О чём Ваш альбом?</p>
+<p>МА: Наш альбом не имеет какой-то определённой темы, он связан с такими вещами, как смерть, ненависть и печаль. Я написал лирику для двух вещей "Caressed by flames", которая рассказывает о девушке, которая была приговорена к сожжению на костре, как ведьма. После своей смерти она вернулась, чтобы отомстить тем, кто приговорил её. "Farewell" о человеке, который ненавидит свою жизнь и величайший его страх в том, что он воскреснет, когда умрёт.</p>
+<p>Q: Ваш CD выпущен в России Irond records. Что Вы думаете об этом? Это важно для Вас?</p>
+<p>МА: Я думаю, это здорово, что CD вышел в России, оказывается, у нас много фэнов в Вашей стране и это хорошо, что они смогут получить нашу пластинку. Чем в больших странах CD будет официально выпущен, тем лучше.</p>
+<p>Q: На Вашем альбоме я отметил для себя некоторые суицидальные настроения. Почему так? Вы грустные и хмурые или это просто игра и искусство? Я сейчас и не говорю о Grave Flowers.</p>
+<p>МА: Я считаю, каждый человек имеет свой верх и низ. Вот я пишу все свои песни, когда нахожусь в Down'е. Я должен находится в определённом настроении, когда пишу песни, поэтому делаю это часто ночью, когда темно и тихо. Я не думаю, что мы более суицидальные, чем кто-то другой, но, конечно, вы можете чувствовать себя не очень весело иногда, когда слушаете наши песни.</p>
+<p>Q: Расскажи о Ваших планах (Godgory и Grave Flowers). Туры, альбомы и.т.д.</p>
+<p>МА: Если мы и будем что-то делать с Godgory, так это выступать в туре. Для этого нам надо найти музыкантов, что не очень легко. Но мы будем стараться сделать всё, так как очень хотим представить нашу музыку на концертах. С Grave Flowers я где-то в середине пути по пре-продукции нового промо. Я напишу 3 новых песни и теперь буду использовать настоящие барабаны. Новые песни более мрачные и тяжёлые. Я думаю, это будет мощное промо, которое я разошлю по лэйблам и буду ждать хорошего контракта.</p>
+<p>Q: Что ты знаешь о России? Какие-нибудь группы и.т.д?</p>
+<p>МА: Я знаю, что Россия очень большая страна с красивыми и могучими зданиями. У Вас также очень много великих статуй. Я буду в России следующим летом и с нетерпением жду этого события. Моя подружка из России, и она прекрасна. Из групп я знаю, Gothic Lethargy, Aria, Bony Nem, Gothic Sky, Ens Cogitans, Gods Tower и Goresleeps.</p>
+
+Автор: Vit Belov
+
+### 26.12.2001 articles Godgory: Melodic dark metal with acoustic passages and beautiful keyboards
+
+<p><IMG SRC="/images/articles_rus/2001.12/2213.jpg" ALT="pho" width="200" height="175" hspace="15" vspace="5" border="1" align="left" /></p>
+<p>Q: I'd like to begin with some philosophic question. What is doom-metal? What do you think about it? Do you play Doom-metal in Godgory or not? How can you discribe your style? (please don't tell me, that style is not interesting for you)</p>
+<p>*I think that Doom Metal is very slow, heavy music that contains very much sadness. I think it?s very great music and I like a lot. I wouldn?t say that Godgory plays Doom Metal even if our songs contains all the elements that Doom Metal does. I would like to describe Godgory?s music as Melodic dark metal with acoustic passages and beautiful keyboards. To be honest we don?t care the style that much. We compose the music that we like and then if there is other people that like it too, that?s just great. We never think that we could not include that into our song because it will be too soft or wimpy, we include everything that we are satisfied with. That?s why we got a sound of our own, the unique Godgory sound.</p>
+<p>Q: What's your album about?</p>
+<p>*Our album has no theme, it deals mostly with subjects as death, hate and sadness. The two tracks I have written the lyrics for is "Caressed by flames" that one is a about a girl that got sentenced to burn on a stake acussed for being a witch. After she has died she comes back to haunt them all that sentenced her to die. Farewell is about a man that hates his life and his biggest fear is that he will be resurrected once he has died.</p>
+<p>Q: This CD is released in Russia by Irond Records. What do you think about it? Is it important for you?</p>
+<p>*I think it?s great that the CD is released in Russia, we seems to have many fans in your country and that?s good that they can get hold of our record. The more countries the CD is released in the better I guess. You get a bigger chance to reach out to more and new fans.</p>
+<p>Q: On your album, I found some suicidal moods. Why is it so? Are you sad and gloomy or it's just art and play? I don't tell about Grave Flowers (he-he).</p>
+<p>*I guess that depends on that I guess all people has their ups and downs and I write most of my lyrics when I have my downs. I have to be in a certain mood when I?m writing lyrics and I mostly do it at night when everything is dark and quiet. I don?t think we are more suicidal than anyone else, but of course you can feel low sometimes.</p>
+<p>Q: Tell me about your plans. (Godgory and Grave Flowers). Tours, albums etc</p>
+<p>* If we start with Godgory we are searching for a tour and members that we can bring along on that tour. I guess it will take us a while but we are doing our best cause we really want to go on tour and promote our music + that we are writing new songs. With Grave Flowers I?m in the middle of a pre production for the new promo. I will record 3 new tracks and this time I will use real drums. My new songs are darker and heavier than my previous songs. I think it will be a mighty promo to send out to labels and hopefully I get signed to a good label. That what we are up to at the moment.</p>
+<p>Q: What do you know about Russia? Some bands?</p>
+<p>*I know that Russia is a very big country with many beautiful and mighty buildings. There is also many great statues. I will visit Russia when the summer comes and I really looking forward to that. My beautiful girlfriend comes from Russia and she is a real godess. Bands I know about is Gothic Lethargy, Aria, Boney Nem, Gothic Sky, Ens Cogitans, Gods Tower and Goresleeps.</p>
+
+Автор: Vit Belov
+
+### 17.05.2003 news Новое промо от Grave Flowers
+
+<p>Promo - 2003 от Grave Flowers готово и содержит три песни. Материал записан Матте (также Godgory) в студии Hairy Bones при участии Jason Janson (LOSS, MENTAL CRYPT) и русской жены Елены Правиковой. Трэк-лист пластинки:<BR> 1.SAVE ME OR DESTROY ME 4:31<BR> 2.LACKROSY 5:40<BR> 3.YOUR MEMORY LIVES ON 7:44</p>
+
+Автор: Vit Belov
+
+### 17.05.2003 news GRAVE FLOWERS &quot;promo-03&quot;
+
+<p>GRAVE FLOWERS "promo-03" is completed it contains 3 tracks of heavy melancholic dark music. Matte: "I have again recorded in studio "Hairy Bones" with a lot of help from Jason Janson (LOSS, MENTAL CRYPT) also my wife Elena Pravikova has played Keyboards and supported me with inspiration. The music is heavier and darker than the songs on "Solace Me". <BR>TRACKLIST</p>
+<P> 1.SAVE ME OR DESTROY ME 4:31<BR> 2.LACKROSY 5:40<BR> 3.YOUR MEMORY LIVES ON 7:44</>
+
+Автор: Vit Belov
+
+### 15.04.2004 news Grave Flowers подписались на Firebox
+
+<B>GRAVE FLOWERS</B> (<B>Matte Andersen</B> из <B>GODGORY</B>) подписали контракт с финским doom-лэйблом <B>Firebox</B>. Группа войдёт в студию в августе, а альбом будет опубликован до конца года.
+Автор: Vit Belov
+
+### 31.03.2005 news Альбом GRAVE FLOWERS вышел вчера
+
+<P>Новый альбом <STRONG>GRAVE FLOWERS</STRONG> <STRONG>'Incarcerated Sorrows'</STRONG> вышел 30 марта на<STRONG> Firebox Records</STRONG>.&nbsp;На пластинку вошли 10 песен и один кавер "<STRONG>Leaving The Warzone</STRONG>" на песню <STRONG>COUNT RAVEN</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

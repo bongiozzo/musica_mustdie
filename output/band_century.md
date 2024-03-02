@@ -36,6 +36,45 @@ Nohold
 
 * C группой "Crematory" 
 
+## Публикации
+
+### 26.06.1999 reviews 
+
+<p>Нашествие на музыкальный рынок групп бывших и настоящих участников Crematory продолжается. Сначала вышел проект Лотте Sculpture, затем альбом самих Crematory и вот теперь работа нового проекта барабанщика этой великолепной группы. Не мудрствуя лукаво, можно сказать, что эта работа схожа с работами основной группы этого музыканта. Но есть и различия, в первую очередь отсутствие рычащего вокала, а также отсутствие сколько-нибудь тяжёлых композиций. Альбом представляет собой материал в стиле прошлого альбома Crematory "Awake" с исключительно чистым вокалом и малым использованием мощных примочек на гитарах. Это может нравиться, может не нравиться, мне лично альбом Crematory показался чуть более разнообразным и интересным.</p>
+
+Автор: Dimas
+
+### 16.01.2001 news Century закончили запись нового альбома.
+
+<p>Century (сайд-проект ударника Маркуса из Crematory) только что завершили запись нового CD "Melancholia". Альбом будет выпущен в феврале 2001 года. Помимо этого будет переиздан раритетный дебютный альбом Century "The Secret Inside", заново сведённый и с новым оформлением.</p>
+
+Автор: Morsus
+
+### 16.01.2001 news Century have finished the recording for the new album.
+
+<p>Century (side-project of drummer Markus from Crematory) have just finished the recordings for the new CD "Melancholia". This album will be released in February 2001. There will also be a re-issue of the rare debut album of Century "The Secret Inside" in a repacked and remastered version.</p>
+
+Автор: Morsus
+
+### 18.06.2001 reviews В новое столетие с меланхолией
+
+<p>В новое столетие с меланхолией. Название этого опуса стопроцентно оправдывает себя. Это второй альбом проекта ударника распавшихся ныне Crematory Markus'a Jullich'a с вокалистом Michael'ом Rohr'ом, который также записывал партии чистого вокала на последних альбомах Crematory. Также как и дебют, этот альбом выдержан в меланхоличных тонах с воздушными мелодиями напоминающими одновременно Crematory, Paradise Lost и HIM. Основной акцент делается на чувственный чистый вокал, клавишную атмосферу, акустический драйв и изобилие компьютерных программингов и сэмплов, что иногда делает музыку похожей еще и на последний альбом Theatre Of Tragedy. Только не пугайтесь...Здесь, конечно много электроники, но чувствуются gothic-darkwave начала. Довольно быстрые, разнообразные и живые песенки с приятной мелодикой, меланхоличные, но не нудные, с романтическими настроениями. Мягкие гитары, хороший глубокий вокал, обильная электроника. Альбом для тех, кому нравится приятная и легкая музыка, без грузящих риффов и красивой атмосферой. Особенные рекомендации тем кто любит synthipop музыку...</p>
+
+Автор: Dimas
+
+### 22.02.2003 reviews Голый Crematory
+
+<p>Crematory отдыхают и набирают коммерческие очки для будущего альбома (кто сомневается, что он будет?), а в это время выходит альбом сайд-проекта Markus Julich Century. Очень легко было бы спутать эту группу со знаменитами немцами, если бы в Crematory не было бы Феликса и Катрин. И дело совсем не в том, что эта семейная пара такая гениальная... Просто Century= Crematory - growling - solo-keyboard+электронная подложка. Нельзя сказать, что хуже или лучше... Crematory более энергичный, Century более меланхоличный, а так всё одно. Почти точный клон...</p>
+
+Автор: Vit Belov
+
+### 18.05.2003 reviews Naked CREMATORY
+
+<p>CREMATORY has a rest and picks commercial points for future album (who doubts, that it woll be?), and in this time album of Markus Julich's CENTURY is re-issued. You could mix up the bands, if there are not Felix and Katrin in CREMATORY. It doen't mean than this family pair is so genious. Just CENTURY = CREMATORY - growling - solo-keyboard + electronic background. I can't say, what's better... CREMATORY is more energetic, CENTURY is more melancholic... They are equal... Almost exact clone.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

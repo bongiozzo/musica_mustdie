@@ -222,6 +222,32 @@ Japan bonus tracks
 * C группой "Anal Cunt" Scott Hull
 * C группой "Pig Destroyer" J.R.Hayes, Scott Hull
 
+## Публикации
+
+### 08.10.2003 news Новый опус AGORAPHOBIC NOSEBLEED
+
+Последователем их последнего релиза "Altered States Of America" будет split CD вместе с новой группой JESU в начале 2004 году. JESU - долгожданный проект лидера GODFLESH Justin Broadrick (также новая группа включает в себя бывших участников GODFLESH - Ted Parsons и Paul Neville).
+Автор: Darkfall
+
+### 26.04.2011 news Новый клип AGORAPHOBIC NOSEBLEED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик<STRONG> AGORAPHOBIC NOSEBLEED</STRONG> на песню <STRONG>"Miscommunication" </STRONG>можно посмотреть ниже. Режиссёром видео-клипа выступил <STRONG>David Hall. </STRONG>Песня взята с сплит-релиза <STRONG>AN</STRONG> c <STRONG>DESPISE YOU</STRONG>, который вышел сегодня на <STRONG>Relapse</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=2c5a2c35fe028a266aa9" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.12.2011 news Новогодний миньон AGORAPHOBIC NOSEBLEED
+
+<P>Бесплытный миньон <STRONG>AGORAPHOBIC NOSEBLEED "Make A Joyful Noise" </STRONG>можно послушать ниже. Релиз вышел в качестве приложения к 87-ому номеру журнала <STRONG>Decibel</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="37">Eyes Like Two Pissholes in the Snow (2011 Holiday Edition)</B> (00:07)<BR itxtNodeId="36">02. <B itxtHarvested="0" itxtNodeId="35">Hung Like a Stocking by the Chimney with Care</B> (00:06)<BR itxtNodeId="34">03. <B itxtHarvested="0" itxtNodeId="33">Santa's got a Brand New Bag</B> (00:12)<BR itxtNodeId="32">04. <B itxtHarvested="0" itxtNodeId="31">Re-Gifted</B> (00:35)<BR itxtNodeId="30">05. <B itxtHarvested="0" itxtNodeId="29">No Presents this Year</B> (00:12)<BR itxtNodeId="28">06. <B itxtHarvested="0" itxtNodeId="27">With a Sniff and a Wink</B> (00:14)<BR itxtNodeId="26">07. <B itxtHarvested="0" itxtNodeId="25">Re-Wrapped & Re-Gifted Again</B> (00:34)<BR itxtNodeId="24">08. <B itxtHarvested="0" itxtNodeId="23">Frozen Corpse Stuffed with Holiday Cheer</B> (00:35)<BR itxtNodeId="22">09. <B itxtHarvested="0" itxtNodeId="21">Ghost of Christmas Past</B> (00:34)<BR itxtNodeId="20">10. <B itxtHarvested="0" itxtNodeId="19">Christmas Through the Years</B> (00:14)<BR itxtNodeId="18">11. <B itxtHarvested="0" itxtNodeId="17">Little Town of Bethlehem</B> (00:49)</P>
+<P><center><iframe width="400" height="100" style="position: relative; display: block; width: 400px; height: 100px;" src="http://bandcamp.com/EmbeddedPlayer/v=2/album=2399411570/size=venti/bgcol=FFFFFF/linkcol=4285BB/transparent=true/" allowtransparency="true" frameborder="0"><a href="http://agoraphobicnosebleed.bandcamp.com/album/a-joyful-noise">A Joyful Noise by Agoraphobic Nosebleed</a></iframe>
+</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

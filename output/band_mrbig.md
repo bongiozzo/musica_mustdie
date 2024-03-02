@@ -146,6 +146,80 @@ CD 2
 
 * C группой "Sheehan, Billy" Bass Player
 
+## Публикации
+
+### 16.04.2001 news Супер-герои....
+
+<p>Похоже ответ на вопрос поставленный Д.Мастэйном: "Нужен ли миру новый герой?" - найден. Нужен. И им вполне может стать гипер-скоростной нарезальщик Paul Gilbert ("ex-MR. BIG") который после выпуска альбома "Superheroes" и объединения с барабанщиком Scott Travis ("JUDAS PRIEST") героически отправился в Америку поддерживать свой опус на фестивале "Whisky A Go Go".</p>
+
+Автор: Yermola
+
+### 16.04.2001 news RACER X will be playing California&#39;s &quot;Whisky A Go Go&quot;....
+
+<p>The reunited RACER X, featuring JUDAS PRIEST drummer Scott Travis and ex-MR. BIG guitarist Paul Gilbert, will be playing West Hollywood, California's Whisky A Go Go on May 25th in what is being billed as "possibly the only time the band will perform in the US" in support of its recently-released (in Japan only!) Superheroes CD. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 06.07.2001 news Актуальный размер...
+
+<p>Вдохновившись успехами группы "Русский Размер", Мистер Большой во главе с неизменным Билли Шиханом и заменившим Пола Гилберта на посту нарезальщика Ричи Котценом, записали новый альбом "Актуальный размер". Продюссировал Actual Size - Richie Zito. Релиз выйдет (сперва в Японии!) - 8-го Августа. Дразнилка - сингл "Shine" выйдет уже 25-го Июля.</p>
+
+Автор: Yermola
+
+### 06.07.2001 news MR. BIG&#39;s brand new Richie Zito-produced album.....
+
+<p>MR. BIG’s brand new Richie Zito-produced album, Actual Size, is set for a Japanese release on August 8th. The first single off the album, "Shine", will be out on July 25th. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.07.2001 news MR. BIG news...
+
+<P>Достоянием широкой общественности стал трек-лист нового альбома "MR. BIG" - "Actual Size": 01. Lost In America 02. Wake Up 03. Shine 04. Arrow 05. Mary Goes 'Round 06. Suffocation 07. One World Away 08. I Don't Want To Be Happy 09. Crawl Over Me 10. Cheap Little Thrill 11. How Did I Give Myself Away 12. Nothing Like It In The World. Из других новостей - гитарист Ричи Котцен принял участие на диске трибьюте QUEEN "Stone Cold Queen". Вы можете услышать его игру на треке "You're my Best Friend" совместно с Jason Scheff (вокал), Marco Mendoza (басс) и Vinny Appice (барабаны). Диск выйдет в Японии - 27-го июля.</P>
+Автор: Yermola
+
+### 18.07.2001 news MR. BIG news...
+
+<p>Here is the full track listing for MR. BIG’s brand new Richie Zito-produced album, entitled Actual Size, which is set for a Japanese release on August 8th: 01. Lost In America 02. Wake Up 03. Shine 04. Arrow 05. Mary Goes 'Round 06. Suffocation 07. One World Away 08. I Don't Want To Be Happy 09. Crawl Over Me 10. Cheap Little Thrill 11. How Did I Give Myself Away 12. Nothing Like It In The World. The first single off the album, “Shine”, will be released on July 25th. In other MR. BIG-related news, guitarist Richie Kotzen appears on a QUEEN tribute album entitled Stone Cold Queen, which is due for release in Japan on July 27th. Kotzen can be heard on the track “You're my Best Friend” along with Jason Scheff (vocals), Marco Mendoza (bass), and Vinny Appice (drums). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.08.2001 news Мистер Большой уволен из собственной группы...
+
+<p>По сообщению журнала "Metal Edge" бассист Billy Sheehan уволен из состава "MR. BIG", команды которую он, в-общем то и основал. По словам барабанщика Pat Torpey это произошло после завершения работы над видео-клипом к песне "Shine" - синглу с недавно вышедшего альбома "Actual Size". Шихан не делал секрета из того факта, что ему не нравится поп-рок направление выбранное группой в последнее время, но он все же собирался участвовать в туре в поодержку альбома. Сейчас же, Билли решил принять участие в G3 show (совместно со Стиви Вайем), которое пройдет 21-го сентября в Мехико с последующими гастролями с супер-гитаристом по Европе в ноябре.</p>
+
+Автор: Yermola
+
+### 16.08.2001 news Billy Sheehan was fired from MR. BIG!!!
+
+<p>Bassist Billy Sheehan was fired from MR. BIG, a band he co-founded, via an answering machine message left by drummer Pat Torpey shortly after the completion of the video for "Shine", the first single from the just-released (in Asia only) Actual Size CD. According to the report, Sheehan had made no secret of the fact that he was unhappy with the band's increasingly pop direction and his lack of inclusion in the songwriting for the album, but he was prepared to promote the CD by accompanying the rest of the group on tour. In other news, Sheehan will join Steve Vai for a G3 show (with a second on hold) in Mexico City, Mexico on September 21st, to be followed by a full European tour with Vai in November. Source: Metal Edge magazine.</p>
+
+Автор: Yermola
+
+### 06.12.2001 news MR. BIG have issued a brand new Japan-only EP...
+
+<p>MR. BIG have issued a brand new Japan-only EP, entitled Arrow, featuring the title track, plus three “Live In The Studio” acoustic tracks, which were recorded at Warner Music Recording Studio Japan on August 25th, 2001. The EP also features Video-Extra footage of a film clip to the single. The full track fro the EP is as follows: <BR><BR> 01. Arrow (album version) <BR> 02. Shine <BR> 03. Lost In America <BR> 04. Static</p>
+
+Автор: Yermola
+
+### 06.12.2001 news Стрела...
+
+<p>"MR. BIG" выпустили новый японский EP, названный "Arrow". На него кроме заглавного трека вошли три акустические вещи записанные в августе 2001 на Warner Music Recording Studio Japan. Также присутствует видео-фильм. Трек-лист: <BR><BR> 01. Arrow (album version) <BR> 02. Shine <BR> 03. Lost In America <BR> 04. Static</p>
+
+Автор: Yermola
+
+### 28.05.2002 news Горящий орган...
+
+<p>Супер-гитарист и участник проекта "MR. BIG" - Пол Гилберт завершил работу над своим очередным сольником "Burning Organ" который должен выйти 26-го июня в Японии. Записано тринадцать треков включая "I Like Rock" с прописанными партиями 100 одновременно звучащих гитар. Несколько названий песен: "I Am Satan", "Suicide Lover" и сама "Burning Organ". Состав участвовавший в записи: Gilbert - гитара/вокал, Mike Szuter - басс и Marco Minnemann - барабаны.</p>
+
+Автор: Yermola
+
+### 28.05.2002 news Former MR. BIG Guitarist Completes Work On New Solo CD ....
+
+<p>Former MR. BIG guitarist Paul Gilbert has completed work on a new solo CD, entitled Burning Organ, which is due for release on June 26th in Japan. 13 songs were reportedly tracked for the album, including opener "I Like Rock", which features "one hundred guitars all playing at the same time through the entire song (including the solo!," according to Gilbert. Other cuts on the CD include "I Am Satan", "Suicide Lover", and "Burning Organ". The recording line-up for the CD consisted of Gilbert on guitar/vocals, Mike Szuter on bass, and Marco Minnemann on drums.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### BILLY SHEEHAN, JAMES MURPHY, JOHN WEST - сольники ?

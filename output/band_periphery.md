@@ -24,6 +24,41 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.06.2012 news PERIPHERY на Century Media
+
+<P><STRONG><IMG height=332 alt="" hspace=0 src="/images/news_rus/2012.06/24059.jpg" width=332 align=right border=0>Century Media</STRONG> заключили европейскую сделку с американской prog-experimental формацией <STRONG>PERIPHERY</STRONG>. Второй альбом коллектива <STRONG>"Periphery II: This Time It's Personal" </STRONG>выйдет на лэйбле 16 июля. В записи пластинки приняли участие <STRONG>John Petrucci</STRONG> (<B>DREAM THEATER</B>), <B>Guthrie Govan</B> (<B>THE ARISTOCRATS</B>)&nbsp;и <B>Wes Hauch</B> (<B>THE FACELESS</B>). Трек-лист:</P>
+<P>01. <B>Muramasa</B><BR>02. <B>Have A Blast</B> (feat. Guthrie Govan)<BR>03. <B>Facepalm Mute</B><BR>04. <B>Ji</B><BR>05. <B>Scarlet</B><BR>06. <B>Luck As A Constant</B><BR>07. <B>Ragnarok</B><BR>08. <B>The Gods Must Be Crazy!</B><BR>09. <B>Make Total Destroy</B><BR>10. <B>Erised</B> (feat. John Petrucci)<BR>11. <B>Epoch</B><BR>12. <B>Froggin' Bullfish</B><BR>13. <B>Mile Zero</B> (feat. Wes Hauch)<BR>14. <B>Masamune</B></P>
+<P><STRONG>PERIPHERY</STRONG> ездили в тур по Европе c <STRONG>DREAM THEATER</STRONG> в январе-феврале.</P>
+Автор: Vit Belov
+
+### 09.07.2016 news Новый клип PERIPHERY
+
+<p><strong>PERIPHERY</strong> выпустили клип на песню "<strong>Marigold</strong>". Трек взят с нового альбома "<strong>Periphery III: Select Difficulty</strong>", который выйдет 22 июля.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/rmtU2WJfPgU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 09.07.2016 news New video of PERIPHERY
+
+<p><strong>PERIPHERY</strong> have released a video for the song "<strong>Marigold</strong>". The track comes off new album "<strong>Periphery II: Select Difficulty</strong>", which will be released on July 22.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/rmtU2WJfPgU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 20.07.2016 news Ещё один новый трек PERIPHERY
+
+<p>Новая песня <strong>PERIPHERY "Remain Indoors"</strong> доступна в клипе ниже. Трек войдёт на новый альбом коллектива "<strong>Periphery III: Select Difficulty</strong>", выходящий 22 июля на <strong>Century Media.</strong></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/y2NVYuZQVsw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 20.07.2016 news New song by PERIPHERY
+
+<p>New<strong> PERIPHERY</strong> song "<strong>Remain Indoors</strong>" is available in the clip below. The track will be included on the band's new album "<strong>Periphery III: Select Difficulty</strong>" coming out July 22 on <strong>Century Media</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/y2NVYuZQVsw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 11.08.2016 reviews И вашим и нашим. Когда модные экспериментальщики идут в народ
+
+<p>Лидеры и, вроде как, родоначальники молодого металлического поджанра, называемого в народе djent. Вообще насколько я знаю таким термином корректнее называть определенный приём игры на электрогитаре, а использоваться он может в самых разных жанрах, но групп, играющих в ключе американцев развелось довольно много, и надо их как-то классифицировать... Я бы это назвал как-нибудь "modern progressive metal", но сама музыка от этих терминов, как ни странно, не меняется.</p><p>Первые 2 альбома американцев мало меня порадовали - всё крайне технично, наворочено, экспериментально, но ушам хочется понятных мелодий, или, на худой конец - разобрать где припев, а где куплет. Что с лихвой получилось у меня на третьем альбоме технарей, вышедшем в начале 2015 года. Предельно коммерческий, моднючий, практически "мтивишный" (а оно ещё существует?) звук с сочным, немного "тинкоровым" вокалом и, что самое главное - действительно сильным содержанием. На то время я уже в целом охладел к прогрессиву, иначе не задумываясь включил бы парней в свой топ за год. Что касается обозреваемого диска, то американцы тут явно схитрили. И рыбки сьесть, и на ёлку залезть. Замешали всё так, что альбом понравится как поклонникам раннего творчества группы, так и любителям таких разных групп как Slipknot, Dream Theater и Muse. Абсолютно серьезно, здесь есть абсолютно всё - и брутальность, и чувственность, и техничность и атмосферность, вобщем каждый найдет что-то по нраву. При этом обвинений в предательстве изначального стиля, оправданных после коммерческого предшественника тут не будет, это всё таки метал - модненький, прогрессивный, но метал. О чём бы ещё написать... Ну, оцените вставки симфонического оркестра, весьма смело и нетривиально для жанра.</p><p>Periphery без преувеличения можно назвать правоприемниками Dream Theater, и не только потому что там играет племянник Джона Петручи. Всем любителям качественной, разнообразной техничной музыки просто необходимо послушать этот диск, чтобы составить представление о том, что из себя представляет жанр в 2016 году. </p>
+Автор: Horeok
+
+
 ## Обсуждения
 
 

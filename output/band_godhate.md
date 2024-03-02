@@ -16,6 +16,21 @@ ex.Throneaeon
 
 * C группой "Throneaeon" Band changed name
 
+## Публикации
+
+### 03.02.2009 news GODHATE выложили песню
+
+<P>Шведская death-metal команда <STRONG>GODHATE</STRONG>, ранее известная как<STRONG> THRONEAEON</STRONG>,&nbsp;выложила новую музыку на свою <STRONG>MySpace </STRONG>страничку. Новую пластинку записал <STRONG>Dino Medanhodzic</STRONG> (гитарист <B>CARNAL FORGE</B>). Группа ищет издающий лэйбл.</P>
+<P>Ссылка: <A href="http://www.myspace.com/godhate">http://www.myspace.com/godhate</A></P>
+Автор: Vit Belov
+
+### 01.12.2011 news У GODHATE юбилей
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские брутальщики <STRONG>GODHATE (ex-THRONEAEON)</STRONG> празднуют свой 20-летний юбилей. В честь этого события группа выпустила новое видео на песню "<STRONG>In Praise Of Sin</STRONG>". Также в наступающем году шведы собираются переиздать все свои три альбома с бонус-треками, среди которых кавер-версии песен <STRONG>ACCEPT </STRONG>и<STRONG> BLUE OYSTER CULT</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/zP-SFv1jFSk?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/zP-SFv1jFSk?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -149,6 +149,224 @@ CHRIS DE GARNO
 * C группой "Tate, Geoff" Frontman
 * C группой "Operation: Mindcrime" Frontman
 
+## Публикации
+
+### 08.05.2000 news 
+
+<p>На одну неделю задерживается релиз нового альбома группы Queensryche. Таким образом альбом появится на прилавках магазинов лишь к концу июня.</p>
+
+Автор: Vit Belov
+
+### 05.09.2000 news На сайте Queensryche появились новые мр3
+
+<p> Кто хочет послушать две песенки Queensryche 'Beside You' и 'Silent Lucidity', недавно записанные на радио Mancow в Чикаго, отправляйтесь на официальный сайт группы www.queensryche.com и качайте мр3.</p>
+
+Автор: Nybras
+
+### 06.09.2000 news Queensryche adds new live mp3 in their official homepage
+
+<p> Queensryche.com has MP3s of 'Beside You' and 'Silent Lucidity', both performed live acoustically on the Mancow radio show in Chicago on August 25th. The URL is http://www.queensryche.com.</p>
+
+Автор: Nybras
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 09.04.2001 news Новый проект...
+
+<p>Экс участники "ALICE IN CHAINS", "SPONGE" и "QUEENSRYCHE" создали новый проект - "SPYS4DARWIN" (Интересно, Чарльз Дарвин, что ли?). Ритм секция - Sean Kinney (барабаны) и Mike Inez (басс), вокал - Vin Dombroski и гитара - Chris DeGarmo. Группа уже записала шестипесенный ЕР "Microfish" который скоро будет доступен через Pied Viper label. Микширование проходило в сиэтлской Studio X, на разные кнопочки нажимал Adam Kasper (FOO FIGHTERS, SOUNDGARDEN).</p>
+
+Автор: Yermola
+
+### 09.04.2001 news SPYS4DARWIN.....
+
+<p>More information has surfaced about SPYS4DARWIN, the new project consisting of the ALICE IN CHAINS rhythm section Sean Kinney (drums) and Mike Inez (bass), ex-SPONGE vocalist Vin Dombroski, and ex-QUEENSRYCHE guitarist Chris DeGarmo. According to sources, the group’s recently-recorded debut EP, entitled Microfish, will initially be available only via the band’s official web site, but will shortly thereafter find its way into stores on the Pied Viper label. The EP's six tracks were reportedly mixed at Seattle's Studio X, with Adam Kasper (FOO FIGHTERS, SOUNDGARDEN) twisting the knobs. A full-length album is expected to come out later this year.</p>
+
+Автор: Yermola
+
+### 13.11.2001 news Некоторые цифры продаж...
+
+<p>Вот вам цифры американских продаж некоторых металлических и не очень групп... Данные на начало Ноября. Предоставлены Soundcscan (цифра в скобках означает количество недель в чартах): <BR> <BR> SYSTEM OF A DOWN – Toxicity: 817,286 (9) <BR> OZZY OSBOURNE – Down To Earth: 269,374 (3) <BR> SLIPKNOT – Iowa: 553,043 (10) <BR> SLIPKNOT – Slipknot: 1,345,891 (123) <BR> METALLICA – Metallica: 12,890,072 (484) <BR> MISFITS – Cuts From The Crypt: 4,811 (1) <BR> SOIL – Scars: 34,433 (8) <BR> MACHINE HEAD – Supercharger: 24,202 (5) <BR> QUEENSRYCHE – Live Evolution: 20,727 (6) <BR> SLAYER – God Hates Us All: 121,179 (8)</p>
+
+Автор: Yermola
+
+### 11.03.2002 news Сольник Geoff Tate ....
+
+<p> Фронтмен "QUEENSRYCHE" - Geoff Tate - завершил работу над своим дебютным СД "Old World Order". В записи приняли участие: басист Chris Fox, гитарист Scott Moughton, ударник Evan Schiller, клавишник Howard Chillcott и гитарист guitarist Jeff Carrell. Выйдет альбом в июне через Sanctuary Records. Трек-лист: </p>
+<p> 01. Off The TV<BR> 02. Forever<BR> 03. In Other Words<BR> 04. Passenger<BR> 05. Over Me<BR> 06. Touch<BR> 07. Flood<BR> 08. Helpless<BR> 09. Every Move We Make<BR> 10. Grain Of Faith<BR> 11. This Moment<BR> </p>
+
+Автор: Yermola
+
+### 11.03.2002 news Geoff Tate has completed work on his debut solo CD....
+
+<p>QUEENSRYCHE frontman Geoff Tate has completed work on his debut solo CD, entitled Old World Order, for an early June release through Sanctuary Records. Featuring contributions from bassist Chris Fox, guitarist Scott Moughton, drummer Evan Schiller, keyboardist Howard Chillcott and guitarist Jeff Carrell, Old World Order includes the following track listing: <BR><BR> 01. Off The TV<BR> 02. Forever<BR> 03. In Other Words<BR> 04. Passenger<BR> 05. Over Me<BR> 06. Touch<BR> 07. Flood<BR> 08. Helpless<BR> 09. Every Move We Make<BR> 10. Grain Of Faith<BR> 11. This Moment<BR><BR> In related news, QUEENSRџCHE guitarist Michael Wilton flew to Miami, Florida on Saturday, March 9th to participate in VH1's Fairway to Heaven '02 pro-am celebrity golf tournament. The annual Fairway to Heaven event benefits the VH1 Save The Music Foundation, which is dedicated to restoring music education programs in cities across America and raising awareness of the importance of music participation for our nation's youth. The eighth annual two-day golf event will be taped March 9-11 at the challenging Blue Monster course at The Doral Golf Resort & Spa in Miami. Fairway to Heaven '02 will air on a special three-hour edition of VH1's Top 18 Countdown, on Saturday, April 27th at 12:00 PM (ET/PT), featuring the 18 biggest music videos of the week, plus a celebrity guest, and highlights from the tournament and the celebrity golf skills competition.</p>
+
+Автор: Yermola
+
+### 15.04.2002 news Geoff Tate поменял название диска...
+
+<p>Geoff Tate решил поменять название сольника "Old World Order" на "Geoff Tate". Выпуск альбома будет праздноваться в Сиэттле 22 июня, хотя сам альбом выйдет только 25-го...</p>
+
+Автор: Yermola
+
+### 16.04.2002 news QUEENSRџCHE Frontman Changes Solo Album Title...
+
+<p>For reasons that are not entirely clear, QUEENSRџCHE frontman Geoff Tate has dropped the title Old World Order for his upcoming solo debut, and has decided to make the album a self-titled affair. In other news, Tate will celebrate the album's release with a live appearance at the EMP (Experience Music Project) in Seattle on June 22nd. Geoff Tate is due through Sanctuary Records on June 25th.</p>
+
+Автор: Yermola
+
+### 21.02.2003 news ДеГармо присоединился к Queensryche в студии
+
+<p>Один из создателей Queensryche гитарист Стив ДеГармо присоединился к группе в одной из студий в Сиэтле. Это не подтверждено оффициально, но уже сейчас ясно, что коллектив пишет материал в полном составе впервые за 7 лет. Новый альбом выйдет в начале лета.</p>
+
+Автор: Vit Belov
+
+### 21.02.2003 news DEGARMO IN STUDIO WITH QUEENSRYCHE!
+
+<p>Seattle, WA - Founding guitarist, Chris DeGarmo has rejoined his former bandmates at an undisclosed studio in the Seattle area. While it cannot be confirmed at this time whether Chris has officially rejoined the band, the group is writing as a complete unit for the first time in 7 years. A representative for DeGarmo confirmed the original lineup is "creating the next Queensryche studio release". Queensrяche have amassed numerous gold and platinum awards and were nominated for a Grammy for their Top Ten Single "Silent Lucidity" in 1991.</p>
+<P> Queensrяche's upcoming full length disc is slated for an early Summer release. It follows their Metal-is Records debut, LIVE EVOLUTION, which was released in 2001. The LIVE EVOLUTION DVD debuted at # 11 on Billboard's top music video sales chart.</>
+
+Автор: Vit Belov
+
+### 28.04.2003 news Новости от QUEENSRYCHE
+
+<p>22 июля на Sanctuary Records ожидается выход нового альбома QUEENSRYCHE под названием "Tribe". Гостевое участие в записи альбома принял оригинальный гитарист группы Chris DeGarmo. После выхода альбома группа отправится в американское турне вместе с DREAM THEATER и FATES WARNING.</p>
+
+Автор: Dimas
+
+### 03.10.2003 news QUEENSRYCHE in USA
+
+Oct. 09 - State Theater – Kalamazoo, MI<BR>Oct. 10 - Star Plaza – Merrillville, IN<BR>Oct. 11 - Quest Club – Minneapolis, MN <BR>Oct. 12 - Rave / Eagles Ballroom – Milwaukee, WI<BR>Oct. 14 - Checkered Flag – Appleton, WI<BR>Oct. 16 - Jillian's – Louisville, KY<BR>Oct. 17 - Stranahan Theater – Toledo, OH<BR>Oct. 18 - Morris PAC - South Bend, IN<BR>Oct. 21 - 9:30 Club – Washington, D.C.<BR>Oct. 22 - Turning Stone Casino – Verona, NY<BR>Oct. 23 - Westbury Music Fair – Westbury, NY<BR>Oct. 24 - Keswick – Philadelphia, PA<BR>Oct. 25 - Hampton Beach Casino - Hampton Beach, NH<BR>Oct. 26 - Lupo's – Providence, RI<BR>Oct. 28 - Webster Theatre – Hartford, CT<BR>Oct. 29 - Northern Lights - Clifton Park, NY<BR>Oct. 30 - The Norva – Norfolk, VA<BR>Nov. 01 - The Staircase – Pittston, PA<BR>Nov. 02 - Warner Theater – Erie, PA
+Автор: Vit Belov
+
+### 11.03.2004 news Queensryche выпускают DVD
+
+<P><B>QUEENSRYCHE</B> выпускают DVD <B>'The Art Of Live'</B> 20 апреля на <B>Sanctuary</B>. На альбоме записано концертное выступление группы в прошедшем туре. Трэк-лист:</P>
+<P>01. <B>Tribe</B><BR>02. <B>Sign of the Times</B><BR>03. <B>Open</B><BR>04. <B>Losing Myself</B><BR>05. <B>Desert Dance</B><BR>06. <B>Great Divide</B><BR>07. <B>Rhythm of Hope</B><BR>08. <B>My Global Mind</B><BR>09. <B>Roads to Madness</B><BR>10. <B>Della Brown</B><BR>11. <B>Breaking the Silence</B><BR>12. <B>The Needle Lies</B><BR>13. <B>Best I Can</B><BR>14. <B>Won't Get Fooled Again</B> (<B>THE WHO</B> cover, feat. <B>DREAM THEATER</B>)</P>
+Автор: Vit Belov
+
+### 19.08.2004 reviews Неконцертный концерт
+
+<P>Почему такой странный подзаголовок? Да потому, что "The Art Of Live" совершенно не звучит как концертник. Во-первых, практически не слышно публику, лишь жидкие хлопки и крики в перерывах между песнями. Во-вторых, 67 минут это как-то маловато&nbsp;для нашего времени, когда все давно уже выпускают двойные концертные альбомы продолжительностью не менее 2 часов. В-третьих - даже учитывая специфику группы - драйв на концерте полностью отсутствует, альбом слушается и в этом смысле как студийник. В-четвертых, зачем-то вставили в середине (спустя всего полчаса после начала) довольно длинную акустическую часть - в чем потаенный смысл такого решения? В-пятых, достаточно странным оказался выбор песен с классических альбомов (с "Operation: Mindcrime" взяты, например, только 'Breaking The Silence' и 'The Needle Lies', исполненных, кстати, как-то совершенно без огонька и с сильным креном в "айрондмейденовщину"), хотя упор, разумеется, сделан на вещи с "Tribe". Сравните данный релиз с "Operation: Livecrime" 1991 года и вы поймете, почему сия пластинка получает столь низкую оценку (да и то благодаря качественному звуку). Отмечу также, что данный альбом вышел раньше в формате DVD с бонус-трэками в виде каверов Pink Floyd 'Comfortably Numb' и The Who 'Won't Get Fooled Again' на совместном выступлении с Dream Theater. На аудиоверсии бонусом идет видео 'Anybody Listening'.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 01.03.2005 news Новый альбом QUEENSRYCHE
+
+<P>Согласно данным на официальном сайте группы&nbsp;<STRONG>QUEENSRYCHE, </STRONG>музыканты группы приступили к&nbsp;записи своего нового концептуального альбома, который будет являться продолжением их&nbsp;классической работы 1988 года.<STRONG> </STRONG>Предварительное название альбома&nbsp;<B>"Operation: Mindcrime II"</B>.</P>
+Автор: Dimas
+
+### 22.01.2006 news Новый альбом QUEENSRYCHE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом&nbsp;<STRONG>QUEENSRYCHE</STRONG> выходит 4 апреля в Америке. Новая работа коллектива - сиквел их платиновой пластинки 1988 года <STRONG>"Operation: Mindcrime II". Трэк-лист</STRONG>:</FONT></P>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2006.01/9955.jpg" width=300 align=right border=5>01. <B>Freiheit Ouverture</B><BR>02. <B>Convict</B><BR>03. <B>I'm American</B><BR>04. <B>One foot in Hell</B><BR>05. <B>Hostage</B><BR>06. <B>The Hands</B><BR>07. <B>Speed of Light</B><BR>08. <B>Signs Say Go</B><BR>09. <B>Re-arrange You</B><BR>10. <B>The Chase</B><BR>11. <B>Murderer?</B><BR>12. <B>Circles</B><BR>13. <B>If I Could Change it All</B><BR>14. <B>An Intentional Confrontation</B><BR>15. <B>A Junkie's Blues</B><BR>16. <B>Fear City Slide</B><BR>17. <B>All the Promises</B></P>
+Автор: Vit Belov
+
+### 16.01.2009 news QUEENSRYCHE записали гитары
+
+<P><IMG height=259 alt="" hspace=0 src="/images/news_rus/2009.01/13391.jpg" width=400 align=right border=5>Гитарист <STRONG>QUEENSRYCHE Michael Wilton </STRONG>сообщил, что закончил запись гитары для нового альбома группы "<STRONG>American Soldier</STRONG>", который выйдет в апреле на <STRONG>Rhino</STRONG>. Пластинка будет концептуальной и будет рассказывать о войнах США, начиная с Второй Мировой и заканчивая войной в Ираке. 12 песен "<STRONG>American Soldier</STRONG>":</P>
+<P>* <B>Dead Man's Words</B><BR>* <B>Unafraid</B><BR>* <B>100 Mile Stare</B><BR>* <B>At Thirty Thousand Feet</B><BR>* <B>Man Down</B><BR>* <B>Remember Me</B><BR>* <B>If I Were King</B></P>
+Автор: Vit Belov
+
+### 27.01.2009 news Новый альбом QUEENSRYCHE
+
+<P><IMG height=397 alt="" hspace=0 src="/images/news_rus/2009.01/13458.jpg" width=400 align=right border=5>Новая концептуальная работа <STRONG>QUEENSRYCHE</STRONG> "<STRONG>American Soldier</STRONG>" выйдет на<STRONG> Rhino</STRONG> 31 марта. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Sliver</B><BR itxtvisited="1">02. <B itxtvisited="1">Unafraid</B> <BR itxtvisited="1">03. <B itxtvisited="1">Hundred Mile Stare</B> <BR itxtvisited="1">04. <B itxtvisited="1">At 30,000 Ft.</B> <BR itxtvisited="1">05. <B itxtvisited="1">A Dead Man's Words</B> <BR itxtvisited="1">06. <B itxtvisited="1">The Killer</B> <BR itxtvisited="1">07. <B itxtvisited="1">Middle Of Hell</B> <BR itxtvisited="1">08. <B itxtvisited="1">If I Were King</B> <BR itxtvisited="1">09. <B itxtvisited="1">Man Down!</B> <BR itxtvisited="1">10. <B itxtvisited="1">Remember Me</B> <BR itxtvisited="1">11. <B itxtvisited="1">Home Again</B> <BR itxtvisited="1">12. <B itxtvisited="1">The Voice</B> </P>
+Автор: Vit Belov
+
+### 04.02.2009 news Mike Stone покинул QUEENSRYCHE
+
+<P>Гитарист <STRONG>Mike Stone</STRONG> покинул <STRONG>QUEENSRYCHE</STRONG>, чтобы сконцентрироваться на своём новом проекте<STRONG> SPEED X</STRONG>, который он создал вместе с <STRONG>Nick Catanese </STRONG>из <STRONG>BLACK LABEL SOCIETY</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.02.2009 news Новая песня QUEENSRYCHE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый сингл с нового альбома <STRONG>QUEENSRYCHE</STRONG> <STRONG>"American Soldier"</STRONG> можно послушать на <STRONG>MP3.com</STRONG>. Альбом, на который попадёт трэк&nbsp;<STRONG>"If I Were King", </STRONG>выйдет 31 марта.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.mp3.com/media_player/viewer.php?action=launch_player_by_id&ref_id=21800817&ref_type_id=3&edid=&ptid=&ont_id">http://www.mp3.com/media_player/viewer.php?action=launch_player_by_id&ref_id=21800817&ref_type_id=3&edid=&ptid=&ont_id</A></FONT></P>
+Автор: Vit Belov
+
+### 10.04.2009 news QUEENSRYCHE дебютировали в Billboard 200
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> QUEENSRYCHE "American Soldier"</STRONG> продался в первую неделю в США в количестве 21000 экземпляров. Это позволило дебютировать пластинке на 25-ом месте в чарте <STRONG>Billboard 200</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 15.11.2009 news Вино от вокалиста QUEENSRYCHE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>QUEENSRYCHE Geoff Tate</STRONG>&nbsp;выпускает белое вино под названием<STRONG> "Insania". </STRONG>Это не первый опыт сотрудничества музыканта с винокурней из Вашингтона <STRONG>Walla Walla. </STRONG>Красное вино с таким же названием уже распродано.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый сорт будет состоять на 78 процентов из винограда сорта Совиньон, бутылка такого вина будет продаваться по цене 25 долларов. Отпразднуют начало продаж музыканты 4 и 5 февраля, выступлением <STRONG>QUENSSRYCHE </STRONG>в одном из казино Вашингтона в сопровождении <STRONG>"Queensryche Cabaret", </STRONG>рекомендуемого как первое рок-шоу только для взрослых.</FONT></P>
+Автор: Vit Belov
+
+### 28.03.2011 news QUEENSRYCHE назвали альбом
+
+<P>Новый альбом<STRONG> QUEENSRYCHE</STRONG> получил название <STRONG>"Dedicated To Chaos". </STRONG>Пластинка должна выйти в середине лета на подразделении <STRONG>Roadrunner Records</STRONG> <STRONG>Loud & Proud Records. </STRONG>Двенадцатый альбом группы вновь будет концептуальным.</P>
+<P>
+<CENTER><IMG height=300 src="/images/news_rus/2011.03/18972.jpg" width=450 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.07.2011 news QUEENSRYCHE попали в Billboard
+
+<P>Новый альбом <STRONG>QUEENSRYCHE</STRONG> <STRONG>"Dedicated To Chaos" </STRONG>продался в первую неделю в США в количестве 8000 копий и дебютировал на 70 месте в чартах <STRONG>Billboard</STRONG>. Это практически провал для легендарной prog-metal&nbsp;группы, предыдущая работа коллектива <STRONG>"American Soldier</STRONG>" "открылась" в 2009 году с 21000&nbsp;копий на 25 месте. А пластинка 2006 года выпуска <STRONG>"Operation: Mindcrime II"</STRONG> стартовала с 44000 экземпляров.</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.07/19954.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 18.07.2011 news Новое видео QUEENSRYCHE
+
+<P>Новый клип <STRONG>QUENSRYCHE</STRONG> на песню <STRONG>'Get Started'</STRONG> можно посмотреть ниже. Первоначально планировалось, что данный ролик будет доступен только на сайте группы для покупателей нового альбома "<STRONG>Dedicated To Chaos</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ZRWcdSTVCUc?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ZRWcdSTVCUc?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.06.2012 news QUEENSRYCHE расстались с Geoff Tate
+
+<P><STRONG>QUEENSRYCHE </STRONG>объявили о расставании с вокалистом <STRONG>Geoff Tate. </STRONG>Его заменит фронтмен <STRONG>CRIMSON GLORY</STRONG> <STRONG>Todd La Torre</STRONG>. Главной причиной этого события стали творческие разногласия.</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.06/24235.jpg" width=480 height=319></P>
+Автор: Vit Belov
+
+### 13.03.2013 news Версия QUEENSRYCHE, под управлением Джеффа Тейта (Geoff Tate), выпускает дебютный альбом
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25528.jpg" width=400 height=400>23 апреля версия <STRONG>QUEENSRYCHE</STRONG>, под управлением вокалиста&nbsp;Джеффа Тейта (<STRONG>Geoff Tate</STRONG>),&nbsp;выпускает студийный альбом, получивший название <STRONG>"Frequency Unknown"</STRONG>. Диск выйдет на <STRONG>Deadline Music/Cleopatra Records</STRONG>.</P>
+<P>В данную&nbsp;инкорнацию группы, помимо самого Джеффа Тейта, входят:</P>
+<P>басист<STRONG> Rudy Sarzo</STRONG> <STRONG>(QUIET RIOT</STRONG>, <STRONG>OZZY OSBOURNE</STRONG>, <STRONG>WHITESNAKE</STRONG>, <STRONG>DIO</STRONG>, <STRONG>BLUE OYSTER CULT</STRONG>), гитарист <STRONG>Robert Sarzo</STRONG> (<STRONG>HURRICANE</STRONG>), барабанщик <STRONG>Simon Wright</STRONG> (<STRONG>RHINO BUCKET</STRONG>, <STRONG>DIO</STRONG>, <STRONG>AC/DC</STRONG>), гитарист <STRONG>Kelly Gray</STRONG> (состав <STRONG>QUEENSRYCHE</STRONG> с 1998&nbsp;по 2001) и клавишник <STRONG>Randy Gane</STRONG> (<STRONG>MYTH</STRONG>).</P>
+<P>Для записи <STRONG>"Frequency Unknown"</STRONG>, <STRONG>Tate</STRONG> и компания пригласили нескольких своих друзей, среди них гитаристы <STRONG>Chris Poland</STRONG> (ex-<STRONG>MEGADETH</STRONG>), <STRONG>Dave Meniketti</STRONG> (<STRONG>Y&T</STRONG>), <STRONG>Brad Gillis</STRONG> (<STRONG>NIGHT RANGER</STRONG>), <STRONG>Ty Tabor</STRONG> (<STRONG>KING'S X</STRONG>),<STRONG> K.K. Downing</STRONG> (ex-<STRONG>JUDAS PRIEST</STRONG>), <STRONG>Craig Locicero</STRONG> (<STRONG>FORBIDDEN</STRONG>) и <STRONG>Chris Cannella</STRONG>, а также барабанщики <STRONG>Paul Bostaph</STRONG> (ex-<STRONG>SLAYER</STRONG>/<STRONG>TESTAMENT</STRONG>/<STRONG>FORBIDDEN</STRONG>) и <STRONG>Evan Bautista</STRONG>.</P>
+<P>Альбом содержит 10 новых песен, плюс четыре заново записанных классических композиций <STRONG>QUEENSRYCHE</STRONG>.</P>
+<P>Также в записи принял участие бас-гитарист <STRONG>Jason Slater</STRONG>, который прежде помагал&nbsp;работать Тейту над альбомами <STRONG>"Operation: Mindcrime II"</STRONG>&nbsp;и&nbsp;<STRONG>"American Soldier"</STRONG>.</P>
+<P>Совместно с Деффом Тейтом, <STRONG>Slater</STRONG> стал соавтором нескольких песен на<STRONG> "Frequency Unknown"</STRONG>, а также продюсером альбома.</P>
+<P>Трек-лист: </P>
+<P>01. <STRONG>Cold</STRONG><BR>02. <STRONG>Dare</STRONG><BR>03. <STRONG>Give It To You<BR></STRONG>04. <STRONG>Slave</STRONG><BR>05. <STRONG>In the Hands Of God<BR></STRONG>06. <STRONG>Running Backwards<BR></STRONG>07. <STRONG>Life Without You<BR></STRONG>08. <STRONG>Everything</STRONG><BR>09. <STRONG>Fallen</STRONG><BR>10. <STRONG>The Weight Of The World</STRONG></P>
+<P>Бонус треки&nbsp;(перезаписанная классика <STRONG>QUEENSRYCHE</STRONG>)</P>
+<P>11. <STRONG>I Don’t Believe In Love<BR></STRONG>12. <STRONG>Empire</STRONG><BR>13. <STRONG>Jet City Woman<BR></STRONG>14. <STRONG>Silent Lucidity</STRONG></P>
+<P>Начиная с 6 апреля, группа отправляется на гастроли, которые будут посвящёны двадцати пятилетию альбома <STRONG>"Operation: Mindcrime"</STRONG> (1988). В концертную программу этого тура войдут все 15 песен данного диска, плюс другие хорошо известные хиты и раритеты за более чем тридцатилетнюю крьеру <STRONG>QUEENSRYCHE</STRONG>.&nbsp;</P>
+<P>Не так давно журнал <STRONG>"Guitar World"</STRONG> назвал диск<STRONG> "Operation: Mindcrime"</STRONG>&nbsp;одним из десяти лучших концептуальных альбомов всех времён.</P>
+<P>Также хочется напомнить, что в настоящий момент существует и другая версия группы <STRONG>QUEENSRYCHE</STRONG>, которая состоит из трёх оригинальных участников -<STRONG> Michael Wilton</STRONG> (гитара), <STRONG>Eddie Jackson</STRONG> (бас), <STRONG>Scott Rockenfield</STRONG> (барабаны), плюс вокалист <STRONG>Todd La Torre</STRONG> (ex-<STRONG>CRIMSON GLORY</STRONG>) и гитарист <STRONG>Parker Lundgren.</STRONG></P>
+Автор: Headcrusher
+
+### 02.09.2015 news Geoff Tate выпускает новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>OPERATION: MINDCRIME</STRONG>, ведомые бывшим вокалистом <STRONG>QUEENSRYCHE Geoff Tate</STRONG>, выпустят дебютный альбом "<STRONG>The Key</STRONG>" 18 сентября на <STRONG>Frontiers</STRONG>. Новое лирик-видео на песню "<STRONG>The Stranger</STRONG>" можно посмотреть ниже. Также вы можете увидеть два клипа OPERATION: MINDCRIME "<STRONG>Burn</STRONG>" и "<STRONG>Re-Inventing The Future</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист альбома:</FONT></P>
+<P><STRONG>“Choices”<BR>“Burn”<BR>“Re-Inventing The Future”<BR>“Ready To Fly”<BR>“Discussions In A Smoke Filled Room”<BR>“Life or Death?”<BR>“The Stranger”<BR>“Hearing Voice”<BR>“On Queue”<BR>“An Ambush Of Sadness”<BR>“Kicking In The Door”<BR>“The Fall”</STRONG></P>
+<P><STRONG></STRONG><center><iframe width="600" height="400" src="https://www.youtube.com/embed/VbjEBGBaI9M" frameborder="0" allowfullscreen></iframe></P>
+<P><STRONG></STRONG><center><iframe width="600" height="400" src="https://www.youtube.com/embed/tlVE5CvFc9c" frameborder="0" allowfullscreen></iframe></P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/vX7lRZmt8Hw" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 05.09.2015 news Новое видео QUEENSRYCHE
+
+<P>Новый ролик <STRONG>QUEENSRYCHE</STRONG> на песню “<STRONG>Guardian</STRONG>"&nbsp;с нового альбома&nbsp;"<STRONG>Condition Human</STRONG>"&nbsp;можно посмотреть ниже. Новая работа выйдет 2 октября на <STRONG>Century Media.</STRONG></P>
+<P>Трек-лист:</P>
+<P><STRONG>“Arrow of Time”<BR>“Guardian”<BR>“Hellfire”<BR>“Toxic Remedy”<BR>“Selfish Lives”<BR>“Eye9”<BR>“Bulletproof”<BR>“Hourglass”<BR>“Just Us”<BR>“All There Was”<BR>“The Aftermath”<BR>“Condition Human”</STRONG></P>
+<P><STRONG><center><IMG border=0 src="/images/news_rus/2015.09/28290.jpg" width=480 height=480></STRONG></P>
+<P><STRONG></STRONG><center><iframe width="600" height="400" src="https://www.youtube.com/embed/Ra1TSmmUY90" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Queensryche-Operation: Mindcrime

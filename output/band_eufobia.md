@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.10.2016 news EUFOBIA из Болгарии выпустили видео
+
+<p>Новый клип болгарской melodic death metal группы <strong>EUFOBIA "Hater"</strong> можно посмотреть ниже. Трек попадёт на третий альбом группы. Видеоклип был снят режиссёром<strong> Val Volegna</strong>. Третий альбом называется просто "<strong>Eufobia</strong>" и будет издан 31 октября 2016 года лейблом <strong>Wizard LTD</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/eTOZtFMVrNk" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 15.10.2016 news New clip by EUFOBIA
+
+<p>New clip of the Bulgarian melodic death metal band<strong> EUFOBIA "Hater"</strong> can be viewed below. The track will be on the third album. The video was shot by Director <strong>Val Volegna</strong>. The third album is simply called "<strong>Eufobia</strong>" and will be published on 31 October 2016 label<strong> Wizard LTD</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/eTOZtFMVrNk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -130,6 +130,101 @@ Produced by Destroyer 666 & Terje Refsnes
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.10.2000 reviews Альбом разрушающей силы
+
+<p>Альбом разрушающей силы. Уже давно я не слышал такого полного ненависти альбома при грамотной и хорошо поставленной технике музыкантов, которые не просто дергают за струны, а связывают аккорды в мелодии. Жаль, что первые два альбома этой группы прошли мимо меня. Видно, что музыкантами помимо всего прочего движет жажда крови и негативно-агрессивные настроения. Злость, мощь, эмоции... Скоростной зубодробительный темп поддерживается на протяжении всего альбома. Вокруг конечно витает дух Mayhem и Dark Throne. Но музыканты Destroyer 666 не грешат слабым и грязным звуком. А также их музыка при всей злобе содержит большое количество мелодий и интересных ходов. Destroyer 666 - одна из немногих оставшихся групп высоко несущих знамя злого духа black-metal начала девяностых годов.</p>
+
+Автор: Dimas
+
+### 10.01.2002 news Malevolent Creation will go into Abyss Studio?!?!?
+
+<p>Malevolent Creation will be invading the following countries, and then will go into Abyss Studio with producer Peter Tagtgren to record they're 8th studio album. Working title at this time is "The Will To Kill". Florida Death Metal being recorded in Sweden? It should be interesting!<BR><BR> Malevolent Creation//Kataklysm//Catastrophic<BR><BR> March<BR> 3/10/02 UK // T.B.A. <BR> 3/11/02 Ireland // Belfast<BR> 3/12/02 Ireland // Dublin<BR> 3/13/02 UK // Newcastle<BR> 3/14/02 UK // London<BR> 3/15/02 France // Rennes<BR> 3/16/02 Belgium // T.B.A.<BR> 3/17/02 France // Paris<BR> 3/18/02 France // Amneville<BR> 3/19/02 France // Perpignan<BR> 3/20/02 France // T.B.A.<BR> 3/21/02 Spain // Barcelona<BR> 3/22/02 Spain // Murcia<BR> 3/23/02 Spain // Madrid <BR> 3/24/02 Spain // Irun<BR> 3/25/02 France // T.B.A.<BR> 3/26/02 France // T.B.A.<BR> 3/27/02 Switzerland // Wil<BR><BR> No Mercy Festival's<BR> Immortal//Hypocrisy//Vader//Malevolent Creation//Disbelief//Catastrophic//Destroyer 666//Obscenity<BR><BR> March<BR> 3/28/02 Germany // Berlin<BR> 3/29/02 Germany // Engelsdorf<BR> 3/30/02 Germany // Offenbach<BR> 3/31/02 Belgium // Antwerpen<BR><BR> April<BR> 4/1/02 Holland // Tilburg<BR> 4/2/02 Germany // Essen<BR> 4/3/02 Switzerland // Pratteln<BR> 4/4/02 Italy // Milano<BR> 4/5/02 Austria // Vienna<BR> 4/6/02 Austria //Wels<BR> 4/7/02 France // Strasbourg<BR> 4/8/02 Germany // Offenbach<BR><BR> Malevolent Creation will then do a series of dates till May 4th in the following countries: Denmark,Sweden,Norway,Poland,Croatia,Slovenia,Czech Republic and Greece.These dates are being put together at this time,check our website for updates.Then it off to the studio for they're 8th Murderous studio album!</p>
+
+Автор: Yermola
+
+### 14.02.2002 news DESTROYER 666 объявили дату выхода альбома....
+
+<p>Австраллийцы "DESTRОYER 666" во французской студии с продюссером Terje Refsnes (ENSLAVED, GEHENNA, CARPATHIAN FOREST) пишут четвертый студийный альбом "Cold Steel For An Iron Age". Диск выйдет 22-го апреля на Season Of Mist Records.</p>
+
+Автор: Yermola
+
+### 14.02.2002 news DESTROYER 666 Announce Release Date For &quot;Cold Steel...&quot; ...
+
+<p>Australia's DESTROYER 666 are holed up in a studio in Marseille, France with producer Terje Refsnes (i.e. ENSLAVED, GEHENNA, CARPATHIAN FOREST) recording their fourth studio album, entitled Cold Steel For An Iron Age, for an April 22nd release through Season Of Mist Records. In the meantime, you can catch the band performing live at the upcoming No Mercy Festivals alongside IMMORTAL and HYPOCRISY, among others.</p>
+
+Автор: Yermola
+
+### 07.04.2002 news DESTROYER 666 news
+
+<p>Displeased records will release a limited vinyl version of the upcoming DESTROYER 666 album, named ‘Cold steel… for an iron age’. With different artwork this LP will be a true collector’s item for sure! Expected late April 2002.</p>
+
+Автор: Dimas
+
+### 08.04.2002 news Новости от DESTROYER 666
+
+<p>Displeased records готовит релиз виниловой версии предстоящего альбома группы DESTROYER 666 под названием "Cold steel… for an iron age". Он выйдет с различными обложками в разных версиях к концу апреля 2002 года.</p>
+
+Автор: Dimas
+
+### 24.05.2002 reviews Железное поколение выбирает холодную сталь
+
+<p>Четвертое творение австралийских монстров black metal, несущее с собой ненависть и душепогибель. Зловещая смесь IMMORTAL и SLAYER времен "Reign In Blood". Существуя уже восемь лет, группа не достигла того статуса, при котором о ней знает каждый, но в определенных кругах, эта группа имеет большой успех, радуя высококачественным воинственным black-thrash metal. Новый альбом команда записала с модным ныне продюсером Terje Refsnes'ом, которому удалось подчеркнуть всю мощь и злобу группы. На альбоме продолжается дело начатое на предыдущих альбомах, но все сделано с еще большей агрессией, яростью, злобой. И в то же время, группе удается сочетать несовместимое. Наряду со злобой и скоростью, в материале присутствует большая доля мелодизма. Сырой, брутальный и живой материал.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 03.06.2002 reviews Iron generation choose cold steel
+
+<p>The fourth creation of the Australian monsters of black metal, carrying with itself hatred and souldead. Sinister mix of IMMORTAL and SLAYER of times "Reign In Blood". Existing eight years, the group has not achieved that status, at which about it knows everyone, but in the certain circles, this group has the large success, pleasing high-quality warrior black-thrash metal. A new album of the band has written down with fashionable at nowadays producer Terje Refsnes, which managed to emphasize all power and rage of group. On an album the business begun on the previous albums proceeds, but all is made with the even greater aggression, fury, rage. And at the same time, the group manages to combine incompatible. Along with rage and speed, in a material there is a large share of melodic. Crude, brutal and alive material.</p>
+
+Автор: Vit Belov
+
+### 24.06.2002 reviews Мощная, запоминающаяся, отлично сыгранная музыка
+
+<p>Угар! Приблэкованный трэш, – или же притрэшованный блэк, это уж как вам больше нравится, – из Австралии. "Phoenix Rising" – уже третья работа группы, вступившей на тропу, с которой после выхода первого альбома сошли их легендарные земляки SADISTIK EXEKUTION, недавно отличившиеся совершенно бездарным диском (речь о "Fukk"). Но к чёрту тамошних первопроходцев black metal'а! Теперь у нас есть DESTROYER 666, и жалеть не о чем! Мощная, запоминающаяся, отлично сыгранная музыка, которую без проблем можно назвать (только не пугайтесь!) оригинальной. Жду не дождусь, когда наконец выйдет их новый альбом. И ещё жаль, что нельзя поставить оценку выше "десяти". Понимаете, о чём это я?</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.12.2002 reviews Perfect followup to &quot;Phoenix Rising&quot;
+
+<p>Would you please mark out at least one single point making “Cold Steel…” sound worse than “Phoenix Rising”. You wouldn’t. I’m sure about that. Because there isn’t any point. Not even one. “Cold Steel…” is just a perfect followup to DESTROYER 666’s former effort: equally thrashy black metal (or blackish thrash? You choose), equally well performed, equally well executed, equally enigmatic, equally distinguishable and equally… Australian. Actually, I doubt if anyone else except Aussie’s would ever come up with anything similar to “Cold Steel…”. Blame it on the Down Under’s UG</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 19.02.2009 news DESTROYER 666 записали альбом
+
+<P>Австралийцы <STRONG>DESTROYER 666</STRONG> закончили запись своего пятого альбома, который выйдет в этом году на <STRONG>Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+### 30.04.2009 news Новый альбом DESTROYER 666
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=335 alt="" hspace=0 src="/images/news_rus/2009.04/14034.jpg" width=335 align=right border=5>Новый альбом <STRONG>DESTROYER 666</STRONG> <STRONG>"Defiance" </STRONG>выйдет в июне на <STRONG>Season Of Mist</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Weapons Of Conquest</B><BR>02. <B>I Am Not Deceived</B><BR>03. <B>Blood For Blood</B><BR>04. <B>The Barricades Are breaking</B><BR>05. <B>A Stand Defiant</B><BR>06. <B>A Path To Conflict</B><BR>07. <B>A Thousand Plagues</B><BR>08. <B>Human All Too Human</B><BR>09. <B>A Sermon To The Dead</B></P>
+Автор: Vit Belov
+
+### 09.10.2009 reviews Везти из Австралии не стоило
+
+<P>Четвёртый альбом группы из Австралии, которая никогда не станет ни лидером жанра, ни откровением в тяжёлой музыке. Thrash/Black и больше ничего. Я, правда, не знаю выпуск их альбомов на Season Of Mist – заслуженная талантом привилегия или дань их необычному территориальному происхождению.</P>
+<P>Очередная пластинка DESTROYER 666 подойдёт только любителям жанра. Напористый и забойный материал, но без капли разнообразия и интересных находок, именно такие пластинки принято называть ‘for fans only’. Зацепиться на них практически не за что, но в общем и целом они выполнены профессионально и достойно. Здесь нет каких-то чересчур underground ходов, здесь даже есть несколько мелодичных соло, по этой причине и «неформалам-сатанистам» со стажем эту пластинку тоже настоятельно не порекомендуешь.</P>
+<P>Очень приятно, что Союз начал выпускать альбомы с Season Of Mist. Но, к сожалению, DESTROYER 666 откровенным хитом не назовёшь.</P>
+Автор: Vit Belov
+
+### 21.08.2014 news DESTROYER 666: переиздание дебютного альбома
+
+<P>Спустя 17 лет после выхода, австралийская группа <STRONG>DESTROYER 666</STRONG>&nbsp;переиздаёт свой дебютный альбом&nbsp;<STRONG>"Unchain The Wolves"</STRONG>.&nbsp;Диск выйдет в ноябре месяце и будет украшен новой обложкой (см. ниже)&nbsp;авторства художника по имени <STRONG>Zbyszek Bielak</STRONG> (<A href="http://www.graphic-noise.com/zbigniew-m-bielak">www.graphic-noise.com/zbigniew-m-bielak</A>). За переиздание <STRONG>"Unchain The Wolves"</STRONG>&nbsp;ответственны лейблы <STRONG>HHR</STRONG> и <STRONG>Van Records</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27221.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 17.10.2016 articles DESTROYER 666 в Москве: &quot;Звёзды европейских UG клубов&quot;
+
+<p><em></em><center><img width="500" height="333" src="/images/articles_rus/2016.10/30088.jpg" border="0">&nbsp;<p></p><p><em>14 октября до России докатился австралийский 'old-school' в лице его самых ярких его представителей группы DESTROYER 666. Даже уже присутствуя на концерте, я до конца не мог поверить, что кто-то решился на организацию подобного гига в нашей стране. Всё-таки это очень далеко, малопопулярно и ортодоксально.</em></p><p>В этом году вышел новый альбом DESTROYER 666 “Wildfire”. Диск был также издан Mazzar по лицензии в России, но вряд ли это обстоятельство сподвигло организаторов на подвиг. Видимо, в данном случае мы имеем дело с чисто «фанатским» решением. Австралийцы (теперь группа официально перебазировалась в Лондон вместе с основным участником K.K. Warslut) способны очень сильно нравиться. Их музыка, что называется, для тех, кто в теме. Все эти шипы, разнообразные нашлёпки, «метальные» позы перекочевали в их музыку прямиком из 80-х. DESTROYER 666 переработали наследие музыки того периода творчески и представляют сейчас прямолинейный драйвовый материал с грубым вокалом и недетской энергетикой. На концерт действительно собралось чуть более 200 человек, но они не смотрелись в зале по-сиротски. Фанаты поддерживали австралийцев рьяно, не смотря на ужасающе громкий звук, который также является частью имиджа группы. Помните, как у Motorhead, самая громкая группа в мире. DESTROYER 666 также не планировали звучать как в студии или что-то подобное. Основной целью было смести всех слушателей с лица земли. По этой причине особого разнообразия у фирмачей не наблюдалось, но музыкальная составляющая вряд ли является в их творчестве основной. Отмечу присутствие на концерте некоторого количества молодых девушек. Их, конечно, было сильно меньше, чем на AMARANTHE, но видимо эмансипация и в России набирает обороты, есть девчата, которые пруться от тяжёлого black thrash metal и готовы даже послэмиться в центре зала. В качестве техника DESTROYER 666 привезли с собой гитариста WATAIN Pelle Forsberg, надо же и поклонникам Сатаны на что-то жить. Он вышел на сцену с основной группой, что стало дополнительным подарком поклонникам black metal, собравшимся в зале клуба 'Volta' в этот вечер.</p><p>Я потому так уверенно утверждал, что DESTROYER 666 специально выкрутили себе звук до такой степени, что некоторые неподготовленные товарищи стояли, заткнув себе уши руками, что отечественный разогрев звучал очень хорошо. С музыкальной, да и драйвовой точки зрения лучшей группой вечера для меня стали HELLBOMB, для которых это шоу стало «живым» дебютом.&nbsp;Питерцы врезали великолепным black'n'roll с кристально чистым звучанием. Подача, материал, работа с залом. Даже физическая форма вокалиста, который ураганно отжигал, не оставили публику равнодушной. От себя посоветую ребятам отбросить некоторые эксперименты со звучанием и сконцентрироваться на простой угарной музыке, которая у них получается очень хорошо. Дебют HELLBOMB “Hatebombs From Hell” вышел на CD в этом году посредством More Hate и Фоно.</p><p>Второй группой разогрева стали москвичи TODESTRIEBE. У ребят за спиной уже два студийных альбома, они нередко разогревают зарубежные команды и поднабрались опыта как в сочинении материала, так и в концертных выступлениях. Группа представляет традиционный скандинавский black metal, выдержанный в правильном духе и с правильной концертной подачей. Вокалист, без труда изображающий труп, воставший из могилы, корпспейнт всех участников, кроме барабанщика, который, видимо, играет в SUICIDAL TENDENCIES, отличный бескомпромиссный музыкальный материал. TODESTRIEBE не стали для меня открытием, но послушать достойный black metal, выполненный на хорошем европейском уровне всегда приятно.</p><p>Мне показалось, что концерт DESTROYER 666 был спасён отечественным разогревом. Не подумайте чего, иностранцы отыграли на высоком уровне, но их известность в России весьма ограничена. Да, приятно, что к нам стали заезжать звёзды клубной металической жизни Европы, но всё-таки вряд ли подобные концерты станут правилом в Москве, тем более в наше кризисное время. Думается, нам пора подхватить тренд и заняться импортозамещением, благо групп у нас хватает, и их энтузиазм должен понравиться публике при должной подаче.</p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Destroyer 666: австралийская резня бензопилой в Москве и СПб (14 и 15 октября 2016)

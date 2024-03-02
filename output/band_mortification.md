@@ -170,6 +170,69 @@ Keith Bannister - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2000 news Новый альбом Mortification
+
+<p> Mortification закончили работу над очередным альбомом под названием "The Silver Chord Is Severed". Релиз намечен на февраль.</p>
+
+Автор: Nybras
+
+### 14.11.2000 news Mortification have finished work on their next album
+
+<p> Mortification have finished work on their next album, The Silver Chord Is Severed, which will be released in February. The first edition will feature a bonus CD with thirteen live tracks.</p>
+
+Автор: Nybras
+
+### 28.01.2002 news Nuclear Blast confirms Mortifician has disbanded ....
+
+<p>Nuclear Blast Germany confirms Australian Christian metal outfit Mortifician has disbanded after eight full-length albums. <BR> <BR> Mortification will release a DVD as a farewell to their fans. It's currently unknown if Mortification will now re-release their 1990 debut album, Break The Curse, on Rowe Productions. <BR> <BR> More news on Mortification as it happens.</p>
+
+Автор: Yermola
+
+### 28.01.2002 news Распад Mortification ...
+
+<p>Nuclear Blast объявили о распаде австралийских христиан-металлистов "Mortifician" после долгих лет музыкальной карьеры и восьми полновесных альбомов. В качестве прощального жеста группа выпустит DVD с материалом первого альбома "Break The Curse"....</p>
+
+Автор: Yermola
+
+### 24.09.2003 news Mortification to record new album
+
+Australian Metal band Mortification will be recording a new album at the end of the year. Expect an album that will be more in the death metal/grind vein, with hints of power metal and thrash. Steve Rowe: "I guess somewhat similar to Post Momentary but more Brutal." The release date will be in March 2004.
+Автор: Vit Belov
+
+### 24.09.2003 news MORTIFICATION запишут новый альбом
+
+<B>MORTIFICATION</B> запишут новый альбом в конце этого года. Обещается материал в более death/grind ключе, но с элементами (???) power и thrash. <B>Steve Rowe: "Я думаю, будет похоже на 'Post Momentary', но более брутально."</B> Релиз намечен на март 2004 года.
+Автор: Vit Belov
+
+### 19.03.2004 news Mortification выпускают альбом
+
+<P><B><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.03/6255.jpg" width=200 align="left" border=10>MORTIFICATION</B> закончили запись нового альбома <B>"Brain Cleaner"</B>. Кавер был нарисован <B>Troy Dunmire</B> (<B>"Primitive Rhythm Machine"</B>, <B>"Envision Evangeline"</B>, <B>"Triumph of Mercy"</B>, <B>"Relentless"</B>).</P>
+Автор: Vit Belov
+
+### 05.02.2009 news MORTIFICATION назвали альбом
+
+<P>Австралийские христианские "дэтстеры" <STRONG>MORTIFICATION</STRONG> закончили запись баса и вокала для новой пластинки, которая выйдет на собственном лэйбле группы <STRONG>Rowe Productions. </STRONG>Альбом получил название <STRONG>'The Evil Addiction Destroying Machine'</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.03.2009 news Трэк-лист MORTIFICATION
+
+<P><STRONG><IMG height=180 alt="" hspace=0 src="/images/news_rus/2009.03/13695.jpg" width=180 align=right border=5>MORTIFICATION</STRONG> выпускают новый альбом <STRONG>"The Evil Addiction Destroying Machine" </STRONG>в мае на собственном лэйбле. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">The Evil Addiction Destroying Machine</B><BR itxtvisited="1">02. <B itxtvisited="1">A Sense Of Eternity</B><BR itxtvisited="1">03. <B itxtvisited="1">Elasticised Outrage</B><BR itxtvisited="1">04. <B itxtvisited="1">Pushing The Envelope Of The Red Sonrise</B><BR itxtvisited="1">05. <B itxtvisited="1">I'm Not Confused</B><BR itxtvisited="1">06. <B itxtvisited="1">The Master Of Reinvention</B><BR itxtvisited="1">07. <B itxtvisited="1">Pilots Hanging From Shoulder Dust</B><BR itxtvisited="1">08. <B itxtvisited="1">One Man With Courage Makes A Majority</B><BR itxtvisited="1">09. <B itxtvisited="1">Alexander The Metalworker</B><BR itxtvisited="1">10. <B itxtvisited="1">Resurrection Band (A Tribute To Rez)</B></P>
+Автор: Vit Belov
+
+### 26.05.2009 news MORTIFICATION переосмыслят свою классику
+
+<P><STRONG>MORTIFICATION</STRONG> перезапишут 5 хитов из 90-х для нового релиза. Процесс пройдёт в августе, когда будут переосмысленны <STRONG>'Nocturnal', 'Grind Planetarium', 'Impulsation', 'Hammer Of God'</STRONG> и <STRONG>'The Majestic Infiltration Of Order'</STRONG>. Также на будущий релиз попадут 15 концертных трэков, знаменующих этапные моменты в жизни <STRONG>MORTIFICATION</STRONG>: первое шоу группы, первое шоу некоторых участников группы и.т.п.</P>
+Автор: Vit Belov
+
+### 01.09.2009 news Гитарист MORTIFICATION работает над новым проектом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=250 alt="" hspace=5 src="/images/news_rus/2009.09/14957.jpg" width=167 align=right vspace=5 border=0>Басист/вокалист <STRONG>Steve Rowe</STRONG> австралийцев <STRONG>MORTIFICATION</STRONG> сообщил о работе над сольным проектом. Компанию ему составил бывший гитарист <STRONG>MORTIFICATION</STRONG> по имени <STRONG>Lincoln Bowen</STRONG>,&nbsp;а так же барабанщик <STRONG>Andrew Esnouf</STRONG>. </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проект получил название <STRONG>WONROWE VISION</STRONG>. По заявлению <STRONG>Steve</STRONG>, это будет рок в духе "старой школы". </FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

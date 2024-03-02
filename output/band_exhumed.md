@@ -87,6 +87,54 @@ Great deathgrind
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2004 news Вокалист EXODUS приболел, найдена замена
+
+<P>Фронтмэн <STRONG>EXODUS</STRONG> <STRONG>Steve "Zetro" Souza</STRONG>&nbsp;не сможет отправиться с группой в тур по Южной Америке. Временной заменой ему стал вокалист <STRONG>EXHUMED</STRONG> <STRONG>Matt Harvey.</STRONG></P>
+<P>Однако, он не сможет закончить тур вместе с группой, за него это сделает <STRONG>John Miller, </STRONG>игравший с <STRONG>Gary Holt</STRONG> в локальной группе <STRONG>WARDANCE.</STRONG></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 13.09.2004 news EXODUS took session singer
+
+<P><STRONG>EXODUS</STRONG> frontman <B>Steve "Zetro" Souza</B> was forced to sit out the band's South American tour after falling ill during the group's Japanese trek. Filling in for <B>Zetro</B> in South America is <B>EXHUMED</B> frontman <B>Matt Harvey</B>. </P>
+Автор: Vit Belov
+
+### 06.01.2005 news EXHUMED на Listenable
+
+<P><STRONG>EXHUMED</STRONG> заключили контракт с <STRONG>Listenable</STRONG> на выпуск CD и DVD. Первым релизом станет альбом каверов <STRONG>'Garbage Daze Re-Regurgitated'</STRONG>.</P>
+Автор: Vit Belov
+
+### 01.07.2010 news EXHUMED вернулись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>EXHUMED</STRONG> вернулись к жизни после пятилетнего отсутствия. К оригинальному и главному участнику коллектива гитаристу/вокалисту <STRONG>Matt Harvey</STRONG>&nbsp;присоединились<STRONG> </STRONG>басист<STRONG> Leon Del Muerte</STRONG> (<STRONG>PHOBIA</STRONG>, <STRONG>MURDER CONSTRUCT</STRONG>), гитарист <STRONG>Wes Caley</STRONG> (<STRONG>UPHILL BATTLE</STRONG>)&nbsp;и барабанщик&nbsp;<STRONG>Danny Walker</STRONG> (<STRONG>INTRONAUT</STRONG>, <STRONG>MURDER CONSTRUCT</STRONG>, <STRONG>UPHILL BATTLE</STRONG>). Группа готовится войти в студию осенью для записи новой пластинки, которая выйдет весной следующего года.&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 16.03.2011 news EXHUMED записали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=362 alt="" hspace=0 src="/images/news_rus/2011.03/18877.jpg" width=362 align=right border=0>EXHUMED </STRONG>закончили работу над новым альбомом <STRONG>"All Guts, No Glory". </STRONG>Пластинка была записана в <STRONG>Arcane Digital Recordings </STRONG>с <STRONG>Ryan Butler (MISERY INDEX) </STRONG>и в <STRONG>Trench Studios </STRONG>с <STRONG>John Haddad (ABYSMAL DAWN, INTRONAUT). </STRONG>Сведением и мастерингом в <STRONG>Mana Recording Studios </STRONG>занимался <STRONG>Brian Elliott (GRAVES OF VALOR). </STRONG>Первый с 2003 года альбом<STRONG> EXHUMED</STRONG> выйдет на Relapse летом. Трек-лист:</FONT></P>
+<P>01. <B>All Guts, No Glory</B><BR>02. <B>As Hammer To Anvil</B><BR>03. <B>Your Funeral, My Feast</B><BR>04. <B>Through Cadaver Eyes</B><BR>05. <B>Death Knell</B><BR>06. <B>Distorted And Twisted To Form</B><BR>07. <B>I Rot Within</B><BR>08. <B>Dis-assembly Line</B><BR>09. <B>Necrotized</B><BR>10. <B>Funereality</B><BR>11. <B>So Let it Be Rotten…So Let it Be Done</B></P>
+Автор: Vit Belov
+
+### 19.12.2011 reviews Не кишками едиными
+
+<P>Американские death/grind ветераны EXHUMED уже довольно давно окончательно научились играть на музыкальных инструментах, и это повлекло за собой неистребимое желание сыграть что-то более интересное в музыкальном плане. К сожалению, подобные желания не очень совместимы с чаяниями упорных фанатов стиля. Группе пришлось приостановить свою деятельность в 2005 году.</P>
+<P>Поразмышляв слегка о собственном месте в музыке и месте музыки в себе, EXHUMED объявили о своём возвращении в 2010 году. Музыкальную судьбу EXHUMED можно сравнить с CARCASS. Английские легенды grindcore также научились играть на музыкальных инструментах, и им захотелось чего-то красивого и вечного. Выпустив в конце своей карьеры несколько отличных альбомов, не являвшихся по сути своей CARCASS, они разбежались по другим проектам. У EXHUMED не всё так выпукло, но их современная музыка тоже хороша и тоже не является старым EXHUMED. Мелодичные прогоны и даже соло в духе IN FLAMES, death-thrash риффы не очень вяжутся с кишечной тематикой оформления. Не беда. Музыка-то отличная и как раз любители альбома CARCASS “Heartwork” будут её основными потребителями.</P>
+<P>“All Guts, All Glory” – отличный образец death/grind для широких масс поклонников тяжёлого метала. Если даже вы поклонник интенсивного thrash-metal, вы запросто сможете заценить этот альбом в особо зверском настроении. Приятный метальчик…</P>
+Автор: Vit Belov
+
+### 16.06.2013 news EXHUMED: новый альбом в начале августа
+
+<P>Gore-death маньяки <STRONG>EXHUMED</STRONG> выпускают свой новый альбом в первую неделю августа 2013 на лейбле <STRONG>Relapse</STRONG>. </P>
+<P>Диск, получивший название<STRONG> "Necrocracy" </STRONG>и судя по рекламному ролику (<A href="http://youtu.be/-56e0ODTXjs">http://youtu.be/-56e0ODTXjs</A>) будет посвящён диктаторским режимам различных стран. Не обделили вниманием и Россию.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Coins Upon The Eyes</STRONG> | 02. <STRONG>Dysmorphic</STRONG> | 03. <STRONG>(So Passes) The Glory Of Death</STRONG> | 04. <STRONG>The Rotting</STRONG> | 05.<STRONG> The Shape Of Deaths To Come</STRONG> | 06. <STRONG>Necrocracy</STRONG> | 07. <STRONG>Sickened</STRONG> | 08. <STRONG>Ravening</STRONG> | 09. <STRONG>Carrion Call</STRONG> | 10. <STRONG>The Rotting</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.06/25819.jpg" width=450 height=450>&nbsp;</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Американская мясорубка в СПб и Мск (12,13 июня 2017)

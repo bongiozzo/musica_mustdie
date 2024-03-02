@@ -13,6 +13,33 @@
 
 * C группой "Arch Enemy" frontman Johan Liiva
 
+## Публикации
+
+### 28.12.2001 news Порция шведского мелодик-дэта...
+
+<p>Любители SMDM срочно жмите на <A HREF="http://w1.111.telia.com/%7Eu11119500/NonExist-A_Halo_Askew.mp3">ссылку..... </A>Здесь лежит МР3 песни “A Halo Askew” с еще не вышедшего альбома "Deus Deceptor" новой группы экс-участника ARCH ENEMY - Johan Liiva - NONEXIST. Сам "Deus Deceptor" выйдет в январе/феврале 2002 через New Hawen Records.</p>
+
+Автор: Yermola
+
+### 28.12.2001 news NONEXIST Full MP3 Up For Grabs...
+
+<p>Sweden's NONEXIST, the new band of former ARCH ENEMY frontman Johan Liiva, have made available for download a full-length MP3 of the track “A Halo Askew” at <A HREF="http://w1.111.telia.com/%7Eu11119500/NonExist-A_Halo_Askew.mp3">this location</A>. “A Halo Askew” comes off the group's debut album, entitled Deus Deceptor, which is tentatively due to be released in January/February through New Hawen Records.</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Еще MP3 от Nonexist&#39;a....
+
+<p>Johan Liiva выложил еще два МР3 файла с песнями с еще не вышедшего альбома "NONEXIST" - Deus Deceptor: <BR><BR> <A HREF="http://www.newhawenrecords.com/mp3/NE_-_Phantoms_SAMPLE_WWW_NEWHAWENRECORDS_COM.mp3">01. Phantoms</A><BR> <A HREF="http://www.newhawenrecords.com/mp3/NE_-_Ebony_Tower_SAMPLE_WWW_NEWHAWENRECORDS_COM.mp3">02. Ebony Tower</A></p>
+
+Автор: Yermola
+
+### 04.01.2002 news NONEXIST: More MP3 Clips Up For Grabs....
+
+<p>Sweden's NONEXIST, the new band of former ARCH ENEMY frontman Johan Liiva, have made available for download MP3 clips of the tracks “Phantoms” and “Ebony Tower” at the following locations:<BR><BR> <A HREF="http://www.newhawenrecords.com/mp3/NE_-_Phantoms_SAMPLE_WWW_NEWHAWENRECORDS_COM.mp3">01. Phantoms</A><BR> <A HREF="http://www.newhawenrecords.com/mp3/NE_-_Ebony_Tower_SAMPLE_WWW_NEWHAWENRECORDS_COM.mp3">02. Ebony Tower</A><BR><BR> Both songs come off the group's debut album, entitled Deus Deceptor, which is tentatively due to be released later this month or in February through New Hawen Records.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -10,6 +10,21 @@ Satanic Metal
 * C группой "Nocturnus" Mike Browning
 * C группой "Morbid Angel" Mike Browning
 
+## Публикации
+
+### 10.11.2000 news After Death выперли из студии
+
+<p> Новому проекту Майка Броунинга (Nocturnus, Morbid Angel), группе After Death, не удалось закончить запись дебютного альбома "Vibrations". Ребят выгнали из студии, обвинив в том, что их тексты "слишком сатанинские"!</p>
+
+Автор: Nybras
+
+### 10.11.2000 news The new band After Death has been kicked from the studio
+
+<p> The new band of former NOCTURNUS- and MORBID ANGEL-member Mike Browning has been kicked from the studio by the personnel during their recording-session of their debut "Vibrations". They apparently had the feeling that the lyrics were too Satanistic... The recordings will be finalised elsewhere.</p>
+
+Автор: Nybras
+
+
 ## Обсуждения
 
 ### After Death: Чо эта за коллектифь ?

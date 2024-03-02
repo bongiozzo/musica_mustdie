@@ -46,6 +46,25 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2009 news HATCHET ищут музыкантов
+
+<P>Молодая Bay Area Thrash-metal команда <STRONG>HATCHET</STRONG> ищет вокалиста и басиста. Дебютный альбом <STRONG>"Awaiting Evil" </STRONG>группы вышел в мае прошлого года на <STRONG>Metal Blade</STRONG>. Послушать можно на <STRONG>Myspace</STRONG> странице коллектива.</P>
+<P>Ссылка: <A href="http://www.myspace.com/hatchet2006">http://www.myspace.com/hatchet2006</A></P>
+Автор: Vit Belov
+
+### 17.06.2016 news Новый клип HATCHET
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трешеры <strong>HATCHET</strong> выпустили видео-клип на песню "<strong>Tearing Into Hell</strong>" с альбома "<strong>Fear Beyond Lunacy</strong>", вышедшего в прошлом году на <strong>The End Records</strong>.</font></p><p>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="600" height="400" src="https://www.youtube.com/embed/i3F6LqYQ35g" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 17.06.2016 news New video of HATCHET
+
+<p>Thrashers <strong>HATCHET</strong> have released a video clip for the song "<strong>Tearing Into Hell</strong>" from the album "<strong>Fear Beyond Lunacy</strong>", released last year on<strong> The End Records</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/i3F6LqYQ35g" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

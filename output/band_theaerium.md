@@ -31,6 +31,43 @@ Gubko Alexander – drums and percussion
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.07.2005 bios The Aerium: биография
+
+<P>В 1999 году встретились трое: Александр (барабаны), Андрей (бас), Кирилл (гитара) решили сформировать группу. Познакомились они на фестивале, где играли в разных командах. После знакомства возникла идея за бутылочкой – другой пива обсудить фестиваль и прочие музыкальные дела. Все трое имели одну общую черту – жгучее желание создавать и играть музыку, отражающую их внутренний мир. Когда же они встретились снова, появилась идея о создании их отдельного проекта. Группа назвалась - «Версия». В то время музыканты четко не определились с жанром и стилистикой репертуара, а сама музыка звучала в духе Hard’n’heavy.</P>
+<P>2 года работая вместе, ребята выступали и накопили грандиозное количество материала, но к концу 2001 года идея о создании абсолютно нового проекта появилась на горизонте. Они «выбросили на помойку» весь старый материал и порешили начать с самого начала.</P>
+<P>К тому моменту определились с новой концепцией группы – комбинация классической музыки (оркестровые партии, хоры), оперный вокал и тяжелый ритм, характерный для метала, находящий свое место в партиях гитар, баса и барабанов.</P>
+<P>Соответственно пополнился и состав, произошли необходимые рокировки. Андрей, игравший на басу, но имеющий музыкальное образование по классу фортепиано пересел за клавиши, присоединились Игорь и Вероника. Игорь работал в музыкальном магазине, где и был замечен, в последствии – завербован. Веронику же встретили нечаянно, опять же на фестивале, она пела классику. Устроив импровизированный кастинг на следующий же день, все услышали истинную мощь колоратурного полётного сопрано, никто не остался равнодушным. Игорь с Вероникой очень удачно влились в коллектив и стали неотъемлемой частью оного. </P>
+<P>Игорь представлял теперь ритм-секцию характерной жесткой игрой на бас-гитаре, Вероника же прочно заняла позицию «Лица группы» и ее голоса. Состав The Aerium (именно так отныне называется группа) был определен.</P>
+<P>Музыкальный опыт вкупе с желанием творить стимулировал создание новых музыкальных композиций и в конце 2002 года появился первый демо СD группы, вошедшие в него три песни (“Song For The Dead King”, “Sentinel”, “Wanderer”) были оценены владельцем американского дистро - лэйбла “Sentinel steel” Денисом Галби (Denis Gulbey), как вполне конкурентоспособные с твореньями Nightwish и Edenbridge. Так же группа получила много запросов на материал для полновесного альбома как с европейских, так и с отечественных лэйблов. </P>
+<P>Далее – процесс наработки нового материала, краткий процесс редактирования музыкального сырья и, наконец, запись! </P>
+<P>Это было что-то ужасное! Запись проводилась на домашней студии группы, в условиях отсутствия хорошей студийной аппаратуры, должной акустики помещений, достойных инструментов именно для записи. Необходимо отметить, что опыта студийной работы так же не было. Запись лишь барабанов заняла около трех месяцев! – ребята искали более-менее удовлетворяющий звук. Что-то приходилось экстренно докупать. Далее еще 2 месяца записи клавиш, гитар, голоса, сведение, откатывание дисков с арт-ворком. </P>
+<P>Наступила пора глобальнейшей промо-акции за историю группы. Параллельно с отыгрыванием концертов было разослано на запад порядка 150 дисков (несколько-по России), были потрачены долгие часы на компилирование базы адресов, переписку с лэйблами.</P>
+<P>Было получено несколько предложений о заключении контракта. Изучив предложения детально группа принимает окончательное решение и подписывает контракт на запись 2-х альбомов+1 по желанию группы с греческим метал-лэйблом “Black Lotus Records”. Релиз состоялся 31 ноября 2004 г. Альбом состоит из 8 композиций, общей длительностью 40 минут, называется первенец The Aerium - «Song For The Dead King» по названию первого трека.</P>
+<DIV align=right><I>Биография группы предоставлена <B>Александром</B></I></DIV>
+Автор: Alex VAO
+
+### 26.07.2005 bios The Aerium: biography
+
+<P>It was in 1999. Three guys, Alexander (drums), Andrey (bass) and Kirill (guitar), decided to form a band. Alexander, Andrew and Kirill met at a musical festival, where they were playing for different bands. They made up their minds to meet once more after the festival and to talk about music over a bottle of beer.</P>
+<P>The guys had one thing in common – a strong desire to make and play music that would mirror their inner world. So, when they met again the idea of making their own band came to all of them.</P>
+<P>They called their new collective "Version"</P>
+<P>At that time the musicians were employing various genres into their repertoire, and the music they played was in the vein of Hard-and-Heavy.</P>
+<P>During two years of working together the guys created a great deal, but by the end of 2001 an idea of making an absolutely new project had already appeared.</P>
+<P>They threw overboard all the work already done and made a decision to start from the very beginning.</P>
+<P>By this moment they had already thought over a new conception of their band – a combination of classical music, opera vocal, and hard rhythm characteristic of heavy metal.</P>
+<P>The line-up was also renewed: Andrew (with some past piano experience), who had played bass, started playing keyboards, and two new people Veronika (vocal) and Igor (bass) joined the band.</P>
+<P>While completing her music education Veronika sang in a choir. As for Igor, he worked at a music shop.</P>
+<P>Classical music education of some members stimulated creating new pieces of music and at the end of 2002 there appeared a demo of three songs (Song For The Dead King, Sentinel, Wonderer), selected from all the music made.</P>
+<P>That demo drew the attention of Russian and European labels interested in getting the material for recording a full-size album of the band.</P>
+<P>By the end of 2003 the musicians had completed recording the first 40-minute demo disc made up of eight songs.</P>
+<P>Parallel to demo CD promoting the band went on giving concerts, and in the mid 2004 it signed up a contract with a Greek metal label “Black Lotus Records”.</P>
+<P>The first release of the band is called “Song For The Dead King” – November 2004.</P>
+<DIV align=right><I>The biography is presented by <B>Alexander</B></I></DIV>
+Автор: Alex VAO
+
+
 ## Обсуждения
 
 

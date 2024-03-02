@@ -59,6 +59,44 @@ The vinyl release contains two bonus tracks:
 * C группой "Penetralia" Daniel Droste
 * C группой "Midnattsol" Daniel Droste
 
+## Публикации
+
+### 29.01.2009 news AHAB начинают запись
+
+<P><STRONG>AHAB</STRONG> вошли в студию для записи семи новых песен для нового альбома. Пластинка выйдет в конце весны/начале лета на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.03.2009 news Трэк-лист AHAB
+
+<P><STRONG>AHAB</STRONG> опубликовали трэк-лист своего нового альбома. Пластинка выйдет летом на <STRONG>Napalm Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Yet Another Raft of The Medusa (Pollard's Weakness)</B><BR>02. <B>The Divinity Of Oceans</B><BR>03. <B>O Father Sea</B><BR>04. <B>Redemption Lost</B><BR>05. <B>Tombstone Carousal</B><BR>06. <B>Gnawing Bones (Coffin's Lot)</B><BR>07. <B>Nickerson's Theme</B></P>
+Автор: Vit Belov
+
+### 29.04.2009 news Дата релиза AHAB
+
+<P>Новый альбом<STRONG> AHAB</STRONG> <STRONG>"The Divinity Of Oceans" </STRONG>выйдет 27 июля на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.11.2009 reviews Неэмоциональные гимны океану
+
+<P>Только ленивый не рассказывал в рецензиях на дебютный альбом австрийской группы AHAB, что это название взято от имени капитана судна из романа Г. Мелвилла "Моби Дик". Группа продолжает китовою морскую тему и на втором альбоме.</P>
+<P>Вообще странно, что группа, играющая почти похоронный doom-metal, вдохновляется от этого безумного романа и от моря в частности. Все мы представляем несколько другой темперамент у охотников за адскими китами. Понятно, что аналогия между знаменитым капитаном и этой музыкой не прямая. AHAB находятся как бы над схваткой моряков со стихиями, и это позволяет им описывать сложившуюся картину подобным неожиданным образом. Воспевать подобный гимн героям, обречённым героям. Красивая концепция. И оформление пластинки красивое. Различные символы, живопись. С музыкой же немного не то. Она сама какая-то застывшая, не содержит никаких эмоций и не вызывает их у слушателя. Просто медленная, качественная и рафинированная, очищенная от всего лишнего. Слушать её, если честно, скучновато. Я всегда очень уважал музыкантов в подобных doom-metal группах, которые мало того, что умудряются не засыпать, исполняя свои нетленки, так ещё и будят в тебе какие-то мизантропично-упаднические чувства, погружая в незабываемую и порой невыносимую атмосферу. Здесь этого нет. AHAB поют гимны, гимны утонувшим и умершим на бескрайних просторах. Неэмоциональные гимны, если такие бывают.</P>
+<P>Холодная музыка, как самые глубины океана. Обратите внимание, но не ожидайте чего-то шедеврального.</P>
+Автор: Vit Belov
+
+### 15.03.2011 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18870.jpg" width=250 height=250>Организаторы чешского фестиваля <STRONG>Brutal Assault</STRONG> анонсировали новых участников. Ими стали бразильцы <STRONG>SEPULTURA</STRONG>, американская hardcore группа <STRONG>FIRST BLOOD</STRONG>, норвежские авангардисты <STRONG>RAM-ZET</STRONG>, фины <STRONG>TURISAS</STRONG>, немецкие thrash/death металлисты <STRONG>DEW-SCENTED</STRONG>, почитатели марихуаны <STRONG>CANNABIS CORPSE</STRONG>, легенды NYHC <STRONG>CRO-MAGS</STRONG>, думстеры <STRONG>AHAB</STRONG>, а так же, возрождённые <STRONG>EXIVIOUS</STRONG>, в состав которых входят музыканты <STRONG>CYNIC</STRONG> и <STRONG>TEXTURES</STRONG>.</FONT></P>
+<P>Начиная с сегодняшнего дня и до 30 апреля, каждый желающий может купить электронный билет на фестиваль по сниженной цене в<STRONG> </STRONG>1257 чешских крон (примерно&nbsp;52.40 EUR) через систему <STRONG>PayPal</STRONG>! А уже начиная с мая месяца&nbsp;и до конца июля, такой же билет можно будет купить по цене 1357 шеских крон (примерно 56.60 EUR). Для получения дополнительной информации пройдите по ссылке: <A href="http://brutalassault.cz/en/tickets/">http://brutalassault.cz/en/tickets/</A></P>
+Автор: Headcrusher
+
+### 15.03.2012 news Обложка нового AHAB
+
+<P><STRONG>AHAB </STRONG>закончили работу над своим третьим альбомом "<STRONG>The Giant</STRONG>", который выйдет в этом году на <STRONG>Napalm Records</STRONG>. Обложку для пластинки создал <STRONG>Sebastian Jerke (LONG DISTANCE CALLING)</STRONG>.</P>
+<P><center><IMG height=475 src="/images/news_rus/2012.03/23258.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### FEN (UK), AHAB (Ger.), OCTOBER TIDE (Swe.) в Москве, 13 апреля 2013 г.

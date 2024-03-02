@@ -12,6 +12,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.03.2008 news INVASION подготовили альбом
+
+<P><IMG height=305 alt="" hspace=0 src="/images/news_rus/2008.03/12337.jpg" width=300 align=left border=5>Новая группа из города Ковров, Владимирской области,<STRONG> INVASION</STRONG> подготовила дебютный альбом "<STRONG>Stand Against This World</STRONG>" в студии "<STRONG>Звук</STRONG>" в Нижнем Новгороде. Группа представляет материал с женским вокалом.</P>
+<P>Ссылка: <A href="http://invasion.kovrov.net/">http://invasion.kovrov.net</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

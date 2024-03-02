@@ -16,6 +16,49 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.09.2006 reviews Black metal для виолончели с оркестром
+
+<P>… Вот так и задружились самураи с викингами – дебют норвежского коллектива PANTHEON I запросто вышел на японском лейбле WORLD CHAOS Productions! На данный момент PANTHEON I состоит из таких персонажей, как гитарист-вокалист Andre Kvebek (1349), гитарист John Espen Sagstad (ABIOTIC, TROLLFEST, SARKOM) и барабанщик Dan Theobald из английской black metal формации TWISTED AUTUMN DARKNESS, занявший место покинувшего группу Eirik Renton (SARKOM)…</P>
+<P>Шутки в сторону – перед вами весьма интересный релиз: прогрессивный black metal с элементами death metal, с величественными симфоническими аранжировками и с участием таких классических инструментов, как скрипка и виолончель!.. Сами музыканты называют свой стиль extreme metal – и они, надо сказать, недалеки от истины: несмотря на всякие мелодичные компоненты, блэковая составляющая творчества PANTHEON I достаточно брутальна и сложна в исполнении. Скоростные блэковые фрагменты соседствуют с неспешными, почти эпическими партиями, а зловещий подсушенный саунд гитар великолепно оттеняется атмосферными струнными пассажами. Как ни странно, но при довольно-таки агрессивном общем настрое, в музыке группы сквозит холодная северная меланхолия – и это придает особый привкус… Что касается вокалов, то я насчитал целых три (хотя и отвечает за них один Kvebek – два разных полускриминга-полугроулинга и эпизодический шепот. Если приводить в пример сравнения, то на ум сразу приходят легендарные соотечественники PANTHEON I – группа EMPEROR.</P>
+<P>“Atrocity Divine” содержит одиннадцать трэков на пятьдесят одну минуту и мультимедийную секцию (студийные съемки – о том, как записывался альбом). Что совершенно не понравилось, так это концепция оформления диска (именно оформление, а не сама полиграфия – и ведь вроде нарулил ее пафосный дядька Terie, рисовавший обложки к KHOLD и RAM-ZET) – тусклое и блеклое, из-за чего тот же трэк-лист читается с некоторым трудом… впрочем, это вряд ли способно испортить впечатление от музыки этой интересной группы.</P>
+Автор: Dr. Grandma
+
+### 28.08.2008 reviews Ровно, красиво, хорошо
+
+<P>Норвежская black-metal группа PANTHEON I удивляет уже хотя бы фактом наличия в основном составе скрипачки. Сколько не старался выдумать более характерный признак для описания этой группы, у меня не получилось.</P>
+<P>PANTHEON I представляют нашему вниманию очень хороший, очень качественный и очень интересный black-metal. Здесь есть и типичные норвежские мелодические «чёрнометаллические» прогоны, и «немного экспериментальные» техничные места, и, что естественно, black-doom-metal вещи с солирующей скрипкой. Sympho-black-metal PANTHEON I назвать язык не повернётся, песни, длина которых достигает иногда 8 минут, выполнены в суровом и холодном ключе, но всё-таки они настолько мелодичны, что никаких сомнений в качестве этой пластинки не остаётся. Справочная информация: в составе музыканты 1349 и NIDINGR, а первый альбом выходил на столь популярном у нас японском лэйбле World Chaos Production.</P>
+<P>Работа для всех любителей. Ровно, красиво, хорошо...</P>
+Автор: Vit Belov
+
+### 19.11.2008 news PANTHEON I назвали альбом
+
+<P>Норвежцы <STRONG>PANTHEON I</STRONG> работают над новым альбомом. В январе группа войдёт в студию для его записи, а пока группа объявила название будущего опуса - <STRONG>'Worlds I Create'.</STRONG></P>
+Автор: Vit Belov
+
+### 30.01.2009 news PANTHEON I сменили барабанщика
+
+<P>Барабанщик <STRONG>Dan</STRONG> <STRONG>Theobald </STRONG>покинул <STRONG>PANTHEON I</STRONG>. Новым музыкантом стал <STRONG>Mads Guldbekkhei</STRONG> (<B>The ALLSEEING I</B>), который уже начал записывать свои партии для нового альбома <STRONG>'Worlds I Create'</STRONG>. Пластинка выйдет в середине года на <STRONG>Candlelight</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.02.2009 news Трэк-лист нового PANTHEON I
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен трэк-лист нового альбома <STRONG>PANTHEON I "The World i Create"</STRONG>, выходящего 1 июня на <STRONG>Candlelight</STRONG>:</FONT></P>
+<P>01. <B itxtvisited="1">Written In Sand</B><BR itxtvisited="1">02. <B itxtvisited="1">Defile The Trinity</B><BR itxtvisited="1">03. <B itxtvisited="1">Bannlyst</B><BR itxtvisited="1">04. <B itxtvisited="1">Serpent Christ</B><BR itxtvisited="1">05. <B itxtvisited="1">Ascending</B><BR itxtvisited="1">06. <B itxtvisited="1">Myself Above All</B><BR itxtvisited="1">07. <B itxtvisited="1">The Last Stand</B><BR itxtvisited="1">08. <B itxtvisited="1">Burn The Cross</B></P>
+Автор: Vit Belov
+
+### 03.08.2009 news Новое видео PANTHEON I
+
+<P>Видео<STRONG> PANTHEON I</STRONG> на песню <STRONG>"Serpent Christ" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/1KoshSuARDw&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/1KoshSuARDw&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

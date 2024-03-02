@@ -31,6 +31,9 @@ Youngy - Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### power\euro-power, whatever

@@ -76,6 +76,614 @@ Bonus-track:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.05.2004 reviews Хороший клон АРИИ
+
+<P><I>Чем <B>НАТИСК</B> отличается от <B>АРИИ</B>? На этот вопрос не так много ответов, что скорее всего хорошо, чем плохо.</I></P>
+<P><B>НАТИСК</B> ориентирован только любителям русскоязычного heavy-metal Арийского образца. Никаких заигрываний с power-metal здесь нет. Чувствуется, что ребята слушали только старые проверенный группы,&nbsp;в&nbsp;частности,<B>&nbsp;IRON MAIDEN</B>. В каждой песне ставишь себе вопрос, на кого больше она похожа, на АРИЮ или IRON MAIDEN. Единственное отличие&nbsp;&nbsp;находится в лирической области. Некоторые песни<B> НАТИСК</B> посвященны героическо-патриотической-военной тематике. Например, "<B>Небо в Огне</B>" написана под влиянием фильма "В бой идут одни старики".</P>
+<P>Хороший клон любимейшей российской металл-группы, имеющий все шансы на локальный успех. Пожалуй, ближе к <B>АРИИ</B> уже не подойти.</P>
+Автор: Vit Belov
+
+### 27.05.2004 reviews Арийский калейдоскоп
+
+<P>Очень оригинальная группа.</P>
+<P>Но для начала ложка меда:</P>
+<P>Очень неплохие гитарные соло. Собственно только их и интересно слушать на этом альбоме, благо их не мало.</P>
+<P>Бочка дегтя:</P>
+<P>То, что Ария, клон Iron Maiden, не знает лишь упертая четырнадцатилетняя «арийка» с рюкзачком. А вот клон клона, это нечто уже</P>
+<P>оригинальное. До смешного. Ну, я понимаю, можно играть в такой, адаптированный для России хэви, но надо ж иметь какую то свою «фишку»! Как те же Аргир. А тут… такое впечатление, что все песни склеены из кусочков арийских нетленок середины восьмидесятых. Качество записи, кстати, почти такое же. Плюс вокальные мелодии как у Кипелова. И интонации у Андрея Денисова точно такие же. Только Денисов – не Кипелов. Слабенький голосок-то. Хотя поет чистенько. Но, похоже. И тексты – стилизация под Пушкину. К чести авторского тандема Денисов/Нечаев – неплохая. Без глупостей. Почти. </P>
+<P><I>Боги с небес, вечный покой нам пророчат</I></P>
+<P>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;«Небо в огне»</P>
+<P>Это песня про советских летчиков времен Великой Отечественной. Точно… именно богов (во множественном числе) они и вспоминали… фэнтези, асы небесные, начитались… или были язычниками. Смело.</P>
+<P>Материальчик серенький. При первом прослушании ничего и не запоминается, но я то, герой, типа, раз пять прокрутил это всё. </P>
+<P>Условно выделим то, ради чего я добавил балл. Почти хиты «Шторм» и «Глоток свободы», если не задумываться, на какие другие песни они похожи. Банальная баллада «Кроме тебя». Цитата из «Смуглянки» на «Небо в огне». Эффектный рифф в начале “Скрещены клинки». И все… </P>
+<P>Да еще два балла накину за гитарные дуэли. </P>
+<P>Не знаю, кто будет слушать этот Натиск. Разве что упертые фанаты совкометала. Патриоты. Покупайте российское!</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 06.09.2004 news Группа НАТИСК на выставке «Музыка-Москва»
+
+<P>Группа <STRONG>НАТИСК</STRONG> приглашена участвовать в фестивале, который пройдет 24 сентября в рамках выставки <STRONG>"Музыка - Москва"</STRONG> в Сокольниках, организуемой при поддержке журнала <STRONG>Music Box</STRONG>. На фестивале также выступят <STRONG>«Черный Обелиск»</STRONG> и другие группы. Начало сета <STRONG>НАТИСК</STRONG>а - около 17.30. Концерт пройдет в отдельном административно-концертном павильоне. Вход на фестиваль будет осуществляться по билету на выставку. А 25 сентября в Р-Клубе состоится презентация второго альбома группы <STRONG>НАТИСК</STRONG> <STRONG>"Небо в огне"</STRONG>. В качестве специальных гостей на презентации выступят <STRONG>"Черный обелиск"</STRONG> и <STRONG>"Саботаж"</STRONG>. Начало сета <STRONG>НАТИСК</STRONG>а - 22.00. На концерте будет организована продажа обоих альбомов группы по специальной цене. Всем, купившим диск - плакаты группы в подарок.</P>
+Автор: Morsus
+
+### 10.02.2006 news Русское нашествие от CD-Maximum
+
+<P>Зимой-весной 2006 года, компания <B>CD-MAXIMUM</B> выпустит несколько релизов известных российских коллективов. Уже готовы к производству и скоро выйдут: </P>
+<P><B>АЛЕКСЕЙ СТРАЙК - Время полной луны</B> (melodic heavy metal)<BR><B>ЧЁРНЫЙ ОБЕЛИСК - Зелёный альбом</B> (heavy metal)<BR><B>СЕРГЕЙ МАВРИН - Откровение</B> (melodic heavy metal)<BR><B>НАТИСК - Второе дыхание</B> (hard'n'heavy)<BR>
+<P>Кроме того, в 2006 году планируются к выходу новые альбомы групп <STRONG>АРТЕРИЯ, BONEY'NEM, АРДА</STRONG> и<STRONG> РОГАТЫЕ ТРУПОЕДЫ</STRONG>, концертный альбом группы <B>ЛЕГИОН</B>, концертный альбом и dvd группы <B>КИПЕЛОВ</B>, а также dvd группы <B>ЭПИДЕМИЯ</B>. 
+<P>Помимо этого, готовятся к выходу альбомы еще некоторых российских коллективов. </P>
+Автор: Dimas
+
+### 10.03.2006 news &quot;Второе дыхание&quot; группы НАТИСК
+
+<P>В настоящее время завершаются последние приготовления к выпуску третьего альбома группы <STRONG>НАТИСК</STRONG> под названием &nbsp;“<STRONG>Второе дыхание</STRONG>”. Уже совсем скоро будет известна дата релиза на лейбле <STRONG>CD-MAXIMUM</STRONG>&nbsp;и презентации альбома. Уточним, что сперва выйдет упрощенный вариант альбома, с буклетом в один разворот и без бонус-видео, а чуть позже появится и полная версия альбома с многостраничным буклетом и видеоматериалами. Трек-лист альбома:</P>
+<P><STRONG><IMG height=350 alt="" hspace=10 src="/images/news_rus/2006.03/10137.jpg" width=350 align=left border=0>1. Террор <BR>2. Назло врагам<BR>3. Скрипач<BR>4. Монах<BR>5. Дай мне силу!<BR>6. Я не верю<BR>7. Алая роза<BR>8. Память<BR>9. Я возвращаюсь в Москву<BR>10. Высокое напряжение (инструментал)</STRONG></P>
+Автор: Dimas
+
+### 16.05.2006 reviews Ария meets Эпидемия meets... Рондо, или Второе дыхание не открылось
+
+<P>Какие бы положительные отзывы не публиковали про команду Натиск, радоваться тут особо нечего. Данный квинтет исполняет ничем не примечательный хард-н-хэви в лучших традициях&nbsp;отечественных групп. Я не слышал предыдущих релизов Натиска, но непохоже, что у них открылось второе дыхание. На каждом шагу мы слышим то Арию, то Эпидемию, то еще кого-то типа даже Черного Кофе. Единственное, что хочется отметить - это высокое качество записи (что не особо удивляет, ибо она делалась на студии группы Мастер). И хотя участники Натиска подчеркивают, что такую музыку сейчас практически никто не играет, вам достаточно послушать хотя бы половину этой весьма короткой пластинки, чтобы понять, что они, мягко говоря, лукавят. Буклет оформлен тоже в "лучших традициях" - текст песни (притом приходится приложить немало сил, чтобы прочитать, кто автор слов и музыки, ибо набраны они неудобным для чтения шрифтом), а рядом фотография участника коллектива. И ведь самое интересное то, что и исполнено всё хорошо и записано (как уже указывалось) тоже! Но - как и у большинства наших коллективов - у Натиска нет своей изюминки, хоть ты умри. И баллады (а их аж три или четыре) не цепляют. И вокалист вроде неплохой (хотя тот же Самосват влегкую его "делает"). Из всех песен неожиданно выделяется 'Я возвращаюсь в Москву', из которой получился радио-хит, выполненный практически в формате "Нашего радио" аля Александр Иванов и группа Рондо. Вот такие дела. И рад бы поставить оценку повыше, да не за что. Альбом венчают скоростной инструментал 'Высокое напряжение' (а зачем???) и три видео-бонуса: 1) разогрев в Варне Deep Purple (сопровождающий комментарий&nbsp;на болгарском языке, запись любительская), 2) кусок какого-то концерта на Горбушке (данный клип дважды нехило подвешивал мой далеко не самый слабый компьютер), запись также дилетантская, причем оба этих&nbsp;клипа показывают, что фронтмен-вокалист себя на сцене ведет совершенно скованно, 3) making of "Второе дыхание". В общем, все три клипа только для оголтелых фанатов группы Натиск. Очень жаль, что над всем этим стоит большая печать "Made in Sovok".</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 09.02.2007 news Наша экология души - 5
+
+<CENTER><IMG height=320 src="/images/shows_rus/2007.03/11299.jpg" width=600 border=0></CENTER>
+Автор: Dimas
+
+### 03.06.2007 news НАТИСК с новым вокалистом
+
+<CENTER><IMG height=450 src="/images/shows_rus/2007.07/11667.jpg" width=318 border=0></CENTER>
+Автор: Dimas
+
+### 26.07.2007 news Рок-фестиваль &quot;СЛАВА РОССИИ!&quot;
+
+<P>
+<CENTER><IMG height=251 src="/images/shows_rus/2007.08/11780.jpg" width=450 border=0></CENTER>
+<P></P>
+Автор: Dimas
+
+### 17.12.2007 news НАТИСК выпускает новый сингл
+
+<P><B><IMG height=250 alt="" hspace=15 src="/images/news_rus/2007.12/12066.jpg" width=250 align=left border=0>CD-Maximum</B> готовит к выпуску в декабре 2007 - январе 2008 года релиз нового сингла группы <B>НАТИСК</B> под названием "<B>Тяжёлая Ночь</B>". На диске будут представлены две совершенно новых композиции и две уже хорошо известных, но перезаписанных с новым вокалистом. Трек-лист: 
+<P><B>1. Лети На Свет<BR>2. Тяжелая Ночь<BR>3. Агония<BR>4. Натиск</B> </P>
+Автор: Dimas
+
+### 12.02.2008 reviews Миньон от НАТИСК. Кому нужен?
+
+<P>Московская heavy-metal группа НАТИСК зачем-то продолжает выпускать миньоны. И если прошлый альбом «Второе дыхание» представлял собой мини-альбом, добитый серией патриотических песен, то новый «кругляш» «Тяжёлая Ночь» - самый настоящий сингл. 4 композиции – 2 новых и 2 перепетых с новым вокалистом Алексеем Тышкевичем. Мне понравился альбом «Небо В Огне», но группа испытывает терпение своих поклонников.</P>
+<P>Всё-таки до уровня АРИИ НАТИСКУ ещё далековато. В первую очередь я имею в виду не качество материала и исполнения, а уровень популярности. Записывать по нескольку новых песен и выпускать диск слишком смелый шаг. Но имеем то, что имеем. «Открывашка» «Лети На Свет» вновь выполнена в стиле IRON MAIDEN, не секрет, что звучание НАТИСК и на предыдущих альбомах было ориентировано на самую лучшую heavy-metal группу всех времён. «Тяжёлая Ночь» - неплохая баллада, но не более того. Старые песни «Агония» и «Натиск» в оригинале я не слышал, поэтому сравнить их исполнение от разных вокалистов не могу. Скажу лишь, что они уступают новым трэкам по качеству, слишком прямолинейные и не интересные.</P>
+<P>Мало кому нужный релиз. Говорят, что формат CD умирает. Думаю, это не правда. Раз выпускают такие диски, его ждёт долгая и счастливая старость.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

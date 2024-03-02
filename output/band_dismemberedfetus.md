@@ -44,6 +44,9 @@ Very extremal noisy harsh grindcore with the elements of hardcore (like Cerebral
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

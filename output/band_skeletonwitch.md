@@ -50,6 +50,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2011 news SKELETONWITCH назвали альбом
+
+<P>Новый альбом <B>SKELETONWITCH</B> получил название <B>"Forever Abomination". </B>Альбом должен выйти этой осенью на <B>Prosthetic Records</B>. Новая работа американцев сейчас записывается в студии в Лос-Анджелесе продюсером <B>Matt Hyde</B> (<B itxtHarvested="0" itxtNodeId="22">SLAYER</B>, <B itxtHarvested="0" itxtNodeId="21">MACHINE HEAD</B>, <B itxtHarvested="0" itxtNodeId="20">KREATOR</B>). Альбом станет дебютом для нового барабанщика коллектива <B>Dustin Boltjes</B>. Коллектив также планирует тур по США в компании <B>ARCH ENEMY</B>, <B itxtHarvested="0" itxtNodeId="11">DEVILDRIVER</B>&nbsp;и <B itxtHarvested="0" itxtNodeId="10">CHTHONIC</B>.</P>
+<P>Последняя на сегодня работа<B> SKELETONWITCH</B> <B>"Breathing the Fire" </B>вышла в 2009 году и дебютировала в чартах <B>Billboard </B>на 151-ом месте.</P>
+<P><center><IMG height=300 src="/images/news_rus/2011.06/19780.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 02.08.2011 news Трек-лист альбома SKELETONWITCH
+
+<P><IMG height=494 alt="" hspace=0 src="/images/news_rus/2011.08/20419.jpg" width=475 align=right border=0>Новый альбом <STRONG>SKELETONWITCH</STRONG> <STRONG>"Forever Abomination" </STRONG>выйдет в октябре на <STRONG>Prosthetic Records</STRONG>. Стал известен трек-лист альбома:</P>
+<P>01. <B>This Horrifying Force (The Desire To Kill)</B><BR>02. <B>Reduced To The Failure Of Prayer</B><BR>03. <B>Of Ash And Torment</B><BR>04. <B>Choke Upon Betrayal</B><BR>05. <B>Erased And Forgotten</B><BR>06. <B>The Infernal Resurrection</B><BR>07. <B>Rejoice In Misery</B><BR>08. <B>Cleaver Of Souls</B><BR>09. <B>Shredding Sacred Flesh</B><BR>10. <B>Sink Beneath Insanity</B><BR>11. <B>My Skin Of Deceit</B></P>
+Автор: Vit Belov
+
+### 01.11.2013 news Новое видео SKELETONWITCH
+
+<p>Новый клип американцев <strong>SKELETONWITCH</strong> на песню <strong>"Serpents Unleashed" </strong>можно посмотреть ниже. Трек взят с одноимённого нового альбома группы, который выходит в эти дни.</p><p><center><iframe width="640" height="360" src="//www.youtube.com/embed/2pyEYMe7i00?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

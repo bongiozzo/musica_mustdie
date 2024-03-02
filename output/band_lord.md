@@ -51,6 +51,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2011 news Новое видео LORD
+
+<P>Новый клип австралийских металистов <STRONG>LORD </STRONG>на песню <STRONG>"Forever" </STRONG>можно посмотреть ниже. Ролик содержит расширенную версию песни и представляет 9-минутный психологически триллер, по утверждению музыкантов. </P>
+<P>Песня взята с последнего альбома <STRONG>LORD</STRONG> <STRONG>"Set In Stone"</STRONG>, который вышел в 2009 году.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/_tMxPSgzVOo?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/_tMxPSgzVOo?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

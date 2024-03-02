@@ -99,6 +99,88 @@ Bells of Damnation
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.07.2000 news Религиозные фанаты срывают концерт Ancient Ceremony
+
+<p>После успешного шоу на фестивале в Брно (Чехия) Ancient Ceremony были немедленно эвакуированы полицией из своих гримёрок. Полиция сообщила, что имеет информацию, что в здании заложена бомба. Спецназ ничего не смог обнаружить. Подозреваются ортодоксальные христиане, которым не нравится творчество группы. Ancient Ceremony отказались комментировать ситуацию. Новый же альбом группы задерживается до августа.</p>
+
+Автор: Vit Belov
+
+### 04.07.2000 news Stupid religious fanatics and no end...
+
+<p>After a successful headliner-show at the "Brno Rock Fest" (CZ) ANCIENT CEREMONY got - having just left the stage - informed by the Czech police that there had been a bomb threat. So the backstage rooms had to get evacuated; but the special forces couldn't find anything. Orthodox christians who wanted to disturb the band's performance due to ANCIENT CEREMONY's "Satanic attitude" are strongly suspected to be responsible for this "funny joke". No comment from band... Meanwhile, the release date of the new album "Synagoga Diabolica" had to be delayed a bit until early August as the booklet work still could not be finished completely.</p>
+
+Автор: Vit Belov
+
+### 23.02.2001 news Ancient Ceremony работают над новым альбомом.
+
+<p> Ancient Ceremony интенсивно составляют материал для следующего альбома "The Third Testament", который, предположительно, увидит свет осенью 2001 года.</p>
+
+Автор: Morsus
+
+### 23.02.2001 news Ancient Ceremony are working on new album.
+
+<p> Ancient Ceremony are intensively composing stuff for the next album "The Third Testament" which is going to be released in autumn 2001.</p>
+
+Автор: Morsus
+
+### 04.11.2002 reviews Melodic death-black metal... a stunning one!
+
+<p>Moved to Trisol? Hmm, discovering that a black metal band inked a deal with a company which mostly deals with gothic / wave acts… is sort of weird. Well, taking into account the fact that “The Third Testament” is pretty much of a CRADLE OF FILTH-esque album…nothing strange. And why bother afterall? A worthy band signed to a worthy label came up with a worthy CD… is there anyone who would like to argue this “worthy's”? I hope not. Perhaps, “The Third Testament” is most diversified, most complex and most elaborated work ANCIENT CEREMONY have ever made available – and what's most important, most METAL one… even if it sounds a bit similar to CRADLE OF FILTH. Sometimes much similar though… check out “Seed Of Evil”, “Under Astral Tyranny” or “Bells Of Damnation”. Or perhaps it's all because of shrieking vocals, sympho-like keyboards (placed in the background, though. For “The Third Testament” is guitar-based work all the way), recitatives made with a lowest-possible male voice. Other than that, ANCIENT CEREMONY Anno 2002 deliver melodic death / black metal, whilst guitar passages make Greek BM school and… heavy metal come to mind. Exciting.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.12.2002 news Новости от ANCIENT CEREMONY
+
+<p>Немецкая экстремальная группа ANCIENT CEREMONY планирует в январе 2003 года начать интенсивную работу над своим новым альбомом под названием "'Holycaust - Angelus Mortis". В феврале начнется его запись, а в июне альбом будет выпущен на лэйбле Trisol/Armageddon Shadow.</p>
+
+Автор: Dimas
+
+### 15.03.2003 news Ancient Ceremony tour dates
+
+<p>01.05.2003 SK-Bratislava, V-Klub<BR> ANCIENT CEREMONY + Ethereal Pandemonium + Depossed Cross</p>
+<p> 02.05.2003 YU-Beograd, Dom Omladine<BR> ANCIENT CEREMONY + Sacramental Blood + Draconic + Abonos</p>
+<p> 03.05.2003 CR-Zagreb, Mochvara tbc!<BR> Mortiis + ANCIENT CEREMONY</p>
+<p> 27.06.2003 CZ-Trhove Sviny, AFOD-Festival<BR> ANCIENT CEREMONY + Hypnos + Immortal Tears + Mater Monstifera + Tisic let od Raje + Absurd Conflict + Ador Dorath etc.</p>
+<P> 28.06.2003 D-Tabarz, I-Wood Open Air<BR> Katatonia + ANCIENT CEREMONY + Nocte Obducta + Lacrimas Profundere etc.</>
+
+Автор: Vit Belov
+
+### 24.10.2003 news ANCIENT CEREMONY выпустят мини-альбом на IROND
+
+После скандала с отменой летом выступлений группы на некоторых фестивалях, из-за, так называемой, сатанинской направленности их творчества, <B>ANCIENT CEREMONY</B> выпускают свой ответ в виде мини-альбома <B>"P.uritan's B.lasphemy C.all (Ruf-Mord)". </B>Так как все немецкие компании сочли этот диск слишком провокационным и отказались его выпускать, он будет официально издан на российском лэйбле <B>Irond </B>в начале 2004 года. Выход же полноформатного альбома ANCIENT CEREMONY <B>"Holycaust - Angelus Mortis"</B> отложен до апреля<B>.</B>
+Автор: Vit Belov
+
+### 13.11.2003 news Продолжается конфликт между ANCIENT CEREMONY и каталической церковью
+
+<P>В канун Halloween вокалист <B>ANCIENT CEREMONY</B> <B>Chris Anderle</B> получил письмо от высокопоставленных представителей немецкой католической церкви, в котором говорится, что если он не уберёт некоторые фотографии с официального сайта группы, он будет оштрафован на 10000 Евро. В настоящее время юрист Криса рассматривает ситуацию с правовой точки зрения.</P>
+<P>Напомним, что после выступления группы на одном из летних фестов в Германии, борцы за чистотоу христианства нарекли <B>ANCIENT CEREMONY</B> "<B>главной сатанинской группой Германии</B>".</P>
+Автор: Vit Belov
+
+### 14.11.2003 news Ancient Ceremony tour dates in Europe
+
+<B>27.09.&nbsp;&nbsp;&nbsp; D - Idar-Oberstein, Depot<BR></B>ANCIENT CEREMONY + Misanthropic<BR><BR><B>03.10.&nbsp;&nbsp;&nbsp; HU - Hodmezovasarhely, Metro, Hircus Nocturnus Festival</B><BR>ANCIENT CEREMONY + Hypnos + Christian Epidemic + Depths of Depravity + Maskim Xul<BR><BR><B>04.10.&nbsp;&nbsp;&nbsp; HU - Budapest, Mega Pub</B><BR>ANCIENT CEREMONY + Hypnos + Christian Epidemic + Depths of Depravity<BR><BR><B>01.11.&nbsp;&nbsp;&nbsp; D - M&uuml;nchen, Hansa 39, Metal Meridian Festival</B><BR>ANCIENT CEREMONY + Darkwell + Haggard + Menhir uvm<BR><BR><B>22.11.&nbsp;&nbsp;&nbsp; D - Neuss, HdJ</B><BR>ANCIENT CEREMONY + Midwinter + Kadathorn + Thorhait + Morphosia<B><I><U><BR><BR></I></U>13.12.&nbsp;&nbsp; D - Trier, Exil<U><BR></B></U>ANCIENT CEREMONY + Tankard + Cataract + Costas Cakehouse + Ex Inferis + Dark Day Dungeon
+Автор: Vit Belov
+
+### 04.04.2004 news ANCIENT CEREMONY сдвинули даты релизов
+
+<P><B>ANCIENT CEREMONY</B> работают над мини-альбомом "<B>P.uritan's B.lasphemy C.all (Ruf-Mord)".</B> Напомним, пластинка была запрещена в Германии ещё до своего выпуска, поэтому альбом выйдет в июне на российской фирме <B>IROND</B>.</P>
+<P>Между тем, продолжается тяжба между католической церковью Германии и вокалистом группы <B>Christian Anderle</B>. Новое слушание по делу назначено на 26 мая.</P>
+Автор: Vit Belov
+
+### 04.04.2004 news ANCIENT CEREMONY record mini-album
+
+The trial "<I>Catholic church against <B>ANCIENT CEREMONY</B>-vocalist</I> <B><I>Chris Anderle</I></B>" has, after it got delayed in January, been dated now for 26.05.2004 at the Landgericht Trier. Possibly a solution outside the courts will have been found til then, the lawyer's of both parties are currently working on this.<B><BR><BR></B>The band is rather pissed off with this soap opera in the meanwhile and now is concentrating on finishing the new mini CD "<B>P.uritan's B.lasphemy C.all (Ruf-Mord)</B>". The highly controversial album, which is observed by German censorship authorities already before its release, hopefully can be unleashed on <B>Irond Records</B> in June.<BR><BR>Massive live presentation through open air festivals and club shows all over Europe will follow.<BR>
+Автор: Vit Belov
+
+### 09.02.2005 reviews Рассвет богохульников
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый миньончик немецких готических блэкстеров. Честно говоря, он должен был выйти еще год назад, но его выход все откладывался и переносился,&nbsp;при этом постоянно подогревался интерес к нему. Если вы читаете новости о группе, то уже знаете, что&nbsp;все это время музыканты судились с церковниками, обозвавшими группу богохульниками и сатанистами, и запретившими ей выступать на престижных металических фестивалях. Об этих трениях с церковью и властями и повествует этот мини-альбом, который был запрещён немецкой цензурой, и пока что на его издание&nbsp;решилась только российская компания <STRONG>Irond</STRONG> - давний друг музыкантов. В него вошли четыре новеньких вещицы, плюс стандартное интро и подвергшаяся ремастерингу композиция 1994 года "<STRONG>God And Idol</STRONG>". Новенькие вещицы довольно милы, хотя и не представляют собой чего-то особенного и грандиозного, да и свежими решениями здесь не пахнет. Они выдержаны в стиле мрачно-атмосферного и симфоничного black metal, с неплохими мелодиями, но отвратительным производством. Такое впечатление, что слушаешь демо-запись, да еще и записанную на диск из мп3 файлов. Может это издержки производства, может все дело в спешке музыкантов, а может и специальное решение. Тем не менее, подобная работа не будет особо интересна широкому кругу слушателей, и предназначена только для поклонников коллектива. Остальным советую обратить внимание на другие, более достойные работы в этом стиле.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен компанией <A href="http://www.irond.ru/">Irond</A></FONT></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

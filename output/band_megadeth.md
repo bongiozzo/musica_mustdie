@@ -504,6 +504,1320 @@ Recorded in Nashville, Tennessee in early 2015.
 * C группой "White Lion" James Lomenzo (bass)
 * C группой "Black Label Society" James Lomenzo (bass)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>MEGADETH в Нэшвилле, США записывают свой новый альбом, который выйдет в этом году.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Megadeth выпустят свой новый альбом "Risk" в июле.</p>
+
+Автор: Vit Belov
+
+### 08.06.1999 news 
+
+<p>Песня "Crush'em" с будущего альбома Megadeth "Risk" будет в саундтреке к новому фильму "Универсальный солдат", в котором снимутся Жан-Клод Ван Дамм и Билл Голдберг. Саундтрэк выйдет 13 июля, а сам фильм выйдет 3 сентября. В сентябре группа отправится в турне по США вместе с Iron Maiden.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Новый альбом Megadeth выйдет 31 августа.</p>
+
+Автор: Vit Belov
+
+### 05.10.1999 news 
+
+<p>Оригинальный барабанщик Megadeth Гари Самуэльсон умер 14 июля в своём доме. Ему был 41 год.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 reviews 
+
+<p>Вот он новый альбом Megadeth. Что можно сказать? Группа движется вперёд, вопрос только куда. Это творение отличается от предыдущих. В первую очередь хочется заметить, что с появлением нового барабанщика изменилось звучание барабанов. Они стали какими-то более строгими что ли. Очень похоже на звучание драм-машины, а не на работу живого человека. Музыкальная сторона тоже претерпела некоторое изменение. Что-то случилось с мелодиями. Они есть, но почему-то вызывают у меня ассоциации с предыдущими работами, единственное, что изменился способ их подачи, на более легкоудобоваримый для простого слушателя. Есть очень хорошие песни, например, Crush'em, которая активно крутится по MTV. А есть и откровенно непонятные песни. Например, заглавная Insomnia или вторая Prince Of Darkness, которые скорее напоминают саундтрэк и вряд ли годятся для начала пластинки. Поэтому советую начать слушать с четвёртого трэка, а эти две послушать потом, в конце. Альбом достаточно хорош для металла, но недостаточно хорош для Megadeth. 8 из 10.</p>
+
+Автор: Dimas
+
+### 21.10.1999 reviews 
+
+<p>После альбома 97г. Megadeth стали одной из моих любимых групп, и я с нетерпением ожидал нового диска. Ну,вот и дождался... Прежде всего надо отметить, что ребята изменились в очередной раз. Кроме экспериментов со звуком стоит обратить внимание на мелодии, какие-то они стали более задушевные. И Мастейн хоть нормально поет, перестал пищать и кряхтеть. А в целом у меня сложилось такое впечатление, что Мegadeth попытались втиснуть в этот альбом все, что они умеют, вместо того, чтобы сосредоточиться. В итоге получилась какая-то эклектика из трэша, лирики и экспериментов с саундом. Да и попса совсем рядом подобралась. Понимаете, нет фишки в этом альбоме. Нет той мелодичной увесистости "Youthanasia" или искрометности и отлаженности "Cryptic Writings". С прискорбием должен сказать, что почти каждая песня к своему концу уже меня раздражает. Эти дурацкие выкрики в "Crush'em"; песня явно неудачная(по крайней мере в конце). К тому же песни с 8-ую по 11-ую (четыре ПОДРЯД!) идут по одной схеме: убыстрение темпа в конце. Ну, знаете ли, от этого как-то коробит. Остатся только поплакать под "I'll be there" и смиренно ждать лучших времен. Мастейн! Ну скажи, что ты это не специально. Погорячился. Megadeth! Я верю в тебя! 6 из 10.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Марти Фридман покинул Megadeth. Сделал он это, из-за того, что у него появились новые музыкальные интересы. Дэйв Мустэйн: "Марти великолепный музыкант, и он был клюбевым в Megadeth. Мы сожалеем о его уходе, но желаем ему всего наилучшего. Фридмана во время тура заменит Эл Питрелли (Элис Купер, Savatage).</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Al Pitreli станет новым гитаристом Megadeath. Для чего он специально покинул свою прежнюю группу Savatage.</p>
+
+Автор: Vit Belov
+
+### 16.06.2000 news Megadeth In The Studio
+
+<p>heavymetal.guide: Megadeth are in the studio recording a new album for Capitol records. Rumored to be leaving the label, the album is tentatively titled Capitol Punishment.</p>
+
+Автор: Vit Belov
+
+### 16.06.2000 news Megadeth в студии
+
+<p>Megadeth находятся в студии, где записывают новый альбом для Capitol Records. Поговаривают, что это будет последний релиз группы на этой фирме, и он будет называться "Capitol Punishment".</p>
+
+Автор: Vit Belov
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 07.11.2000 news Megadeth пишут новый альбом
+
+<p>С 5 ноября Megadeth находятся в студии компании Sanctuary Records, где работают над новым альбомом. Будущий релиз пока не имеет названия. Известно, что в оформлении обложки будет использован традиционный Vic.</p>
+
+Автор: Yermola
+
+### 22.01.2001 news The World Needs A Hero...
+
+<p>Legendary speed-metal titan Megadeth is reaffirming its spot at the top of the heavy metal hierarchy with its extraordinary new album, 'The World Needs A Hero'. It's under the band's new contract with Sanctuary Records, and will be released in North America on Tuesday 15th May and on Sanctuary's Metal-is label throughout the rest of the world on Monday 14th May. The raw, self-produced new album features 11 tracks written by Mustaine ("Promises" co-written with Pitrelli), and it sees the band returning to the kinetic and cathartic sound of their nascent years. The vicious songs include: "Disconnect," "The World Needs A Hero," "Moto Psycho," "1000 Times Goodbye," "Burning Bridges," "Promises," "Recipe For Hate...Warhorse," "Losing My Senses," "Dread And The Fugitive Mind," "Silent Scorn," "Return To Hangar" and "When."</p>
+
+Автор: Yermola
+
+### 22.01.2001 news Миру нужен новый герой...
+
+<p>Похоже, что Megadeth собираются вернуться в высшую лигу хэви-металл. Новый альбом "The World Needs A Hero" обещает стать возвратом к корням. Релиз выходит на Sanctuary Records 15 мая в США и на день раньше в остальном мире. 11 треков написаны Мастэйном и самопродюссированы (кроме "Promises" совместно с Pitrelli): "Disconnect," "The World Needs A Hero," "Moto Psycho," "1000 Times Goodbye," "Burning Bridges," "Promises," "Recipe For Hate...Warhorse," "Losing My Senses," "Dread And The Fugitive Mind," "Silent Scorn," "Return To Hangar" и "When."</p>
+
+Автор: Yermola
+
+### 30.01.2001 articles MEGADETH: герои и клизмы
+
+<p> Периодически мужчина должен менять либо работу, либо женщину, либо место жительства. «Наглая рыжая морда» Дэйв Мастейн, лидер легендарной спид-трэш-металлической группы MEGADETH, подошел к вопросу иначе. Менее чем за год он сменил: соло-гитариста в своей группе, фирму, выпускающую пластинки и команду техников, сопровождающую MEGADETH в турне. А также – стиль группы, инструмент, подход к сочинению песен… До жены, видимо, просто руки не дошли.</p>
+<p> И теперь MEGADETH намерены вернуться на вершину хэви-метал с новым альбомом 'The World Needs A Hero'. Альбом выйдет 14 мая (15 мая в США) на новой фирме Sanctuary Records (кстати, принадлежащей другим «возвращенцам» на хэви-олимп - IRON MAIDEN).</p>
+<p> У возвращения есть своя предыстория. В 1999 году MEGADETH записали самый спорный альбом “Risk”, полный электроники, вязких и мягких мелодий и лишенный всех фирменных признаков группы – скорости, напора, агрессии. Как результат – очень плохие продажи пластинки и… заполненные концертные залы: как ни странно, фэны группу не разлюбили. Дэйв Мастейн знает, почему: "Полагаю, что название этого альбома, “Risk”, было предупреждением – мы рискуем! Только тупые непроходимые панки могли не понять этого. Ну а новый альбом не имеет с риском ничего общего. Вообще-то говорить так – кликать несчастье, но я думаю это скорее принесет нам пользу –потому что новая пластинка для настоящих фэнов MEGADETH».</p>
+<p> После обкатки «рискованного» альбома на концертах, Дэйв Мастейн и решает вернутся к изначальной концепции MEGADETH – скорость и атака. Он единолично пишет все новые песни, сопровождая это словами: «Давно я не играл так быстро и агрессивно». Отстранение от сочинительства коллеги по группе восприняли по-разному: басист Дэйв Эллефсон сказал, что ему достаточно и роли самого крутого басиста в мире, а гитарист-виртуоз Марти Фридмен попросту ушел из коллектива.</p>
+<p> Заменой ему стал другой мастер «тяжелой» гитары – Эл Питрелли. Однако проблема была в том, что Марти Фридмен действительно выдающийся гитарист безотносительно к стилю игры – он стабильно входит в десятку лучших гитаристов мира уже более десяти лет. Естественно, что «новобранец» Питрелли чувствовал себя не в своей тарелке. Но все разрешилось после первого же концерта в составе группы, когда после выступления (и первых соло) к Питрелли подбежал фанат с криками: «Марти, дай автограф!».</p>
+<p> И вот теперь обновленный MEGADETH выпускает альбом «The World Needs A Hero» - «Миру нужен герой». Комментирует маэстро Мастейн:</p>
+<p> «Я полагаю, миру нужен герой – потому что рок-звезд больше нет. Эксл Роуз своим поведением уничтожил этот титул. Хотя… Вообще-то миру нужна хорошая клизма – но слишком уж много задниц повсюду, чтобы выбрать нужную! Поэтому герой оказался второй по необходимости вещью в моем списке. К тому же достаточно сложно найти рифму к слову клизма.</p>
+<p> Этот альбом посвящается тем людям, кто последние годы пытался превратить MEGADETH в очередную альтернативную поп-машину. В процессе записи пластинки почти все время никого из менеджмента не было в студии. Ну а когда все же кого-то заносило, ты мы не позволяли этим людям влиять на нас. И теперь новый альбом и возвращение к корням - только начало очень «тяжелого» будущего MEGADETH с новым великолепным гитаристом Элом Питрелли».</p>
+<p></p>
+
+Автор: Tornado
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>После проведения однодневных Dynamo Open в последние годы, в этом году принято решение все-таки вернуться к трехдневной форме. Шестнадцатый фестиваль будет проходить на "De Schans" в Lichtenvoorde с 24 по 26 мая 2001. Уже подтвердили свое участие: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER и WICKED MYSTIC. Не пропустите!</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>After last years one day-Dynamo we strike back with a full three day -event, with campsite at "De Schans" in Lichtenvoorde. Our 16th edition will simply crush all other summerfestivals this year and takes place on the 24th, 25th and 26th of MAY … Bands Scheduled To Appear: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER feat. Arjen Lucassen, WICKED MYSTIC</p>
+
+Автор: Yermola
+
+### 16.03.2001 news Первый сингл Megadeth...
+
+<p>Новый сингл “Moto Psycho” с грядущего "The World Needs A Hero" 27 Марта атакует радио чарты. Видео для сингла будет сниматься 4-го апреля. Клип будет содержать фрагменты живых выступлений группы и съемки мотоциклетных гонок. Режиссер фильма - Nathan “Karman” Cox, продюссер - Sheira Rees-Davies.</p>
+
+Автор: Yermola
+
+### 16.03.2001 news MEGADETH SET TO FILM VIDEO FOR &quot;MOTO PSYCHO&quot;, THE FIRST SINGLE
+
+<p>The long-awaited return of acclaimed metal legends Megadeth begins when the quartet’s new single, “Moto Psycho”, hits radio airwaves on March 27. A video for the song is being filmed in early April. “Moto Psycho” will be the first single from Megadeth’s Sanctuary Records debut The World Needs A Hero. This hard-hitting album is set for U.S. release on May 15, 2001.<BR><BR>The “Moto Psycho” video will be filmed on April 4. The video will feature live performance footage from the band with an action-packed storyline featuring high-speed motorcycle racing filmed with intricate lighting effects. The continuously flying camera shots, unconventional camera angles and special film effects will give the video a mesmerizing, unusual feel.&nbsp; Desert locations outside of Los Angeles will be utilized.&nbsp;Moto Psycho” will be directed by Nathan “Karman” Cox. Sheira Rees-Davies is producing the video.</p>
+
+Автор: Yermola
+
+### 02.04.2001 news MEGADETH dates
+
+<p> MEGADETH, who will be appearing at the Milton Keynes Bowl show with AC/DC, THE OFFSPRING and QUEENS OF THE STONE AGE on June 8th, have announced three extra UK shows. The dates are as follows:</p>
+<p></p>
+<p> June 08 - Milton Keynes, UK @ National Bowl</p>
+<p></p>
+<p> July 05 - Manchester, UK @ University</p>
+<p></p>
+<p> July 06 - Wolverhampton, UK @ Wulfrun Hall</p>
+<p></p>
+<p> July 08 - London, UK @ Astoria</p>
+<p></p>
+
+Автор: Yermola
+
+### 04.04.2001 news Chris Poland играет джаз...?
+
+<p>Бывший участник "MEGADETH" гитарист Chris Poland записывает СД с командой "OHM" (Харе Кришна?!) - Лос-Анджелесским джаз-роковым трио, состоящим из студийных музыкантов. Шесть треков уже записаны. Из других новостей Крис принял участие на диске-трибьюте Джэйсону Бэйкеру (о котором мы уже писали раннее)</p>
+
+Автор: Yermola
+
+### 04.04.2001 news Chris Poland is recording a brand new CD with OHM...
+
+<p>Former MEGADETH guitarist Chris Poland is recording a brand new CD with OHM, a Los Angeles-based jazz rock trio consisting of major label and studio musicians. Six drum tracks have apparently been completed so far. According to Poland’s official web site, “Chris’ guest appearance on the the Jason Becker tribute album went very well. He has a minute of soloing in the middle, and 16 bars in the outro. He had 32 bars, but 16 were cut so [DEEP PURPLE guitarist] Steve Morse could play over them. He said he really liked what Steve had done and that it really complimented what he was trying to get at with the cut 16 bars. Besides Morse, Chris also mentioned that Vinnie Moore's playing was great.”</p>
+
+Автор: Yermola
+
+### 04.04.2001 news Мотоциклетный психоз Megadeth...
+
+<p>Первый сингл “Moto Psycho” с еще не вышедшего альбома "The World Needs A Hero" стал за неделю самым востребуемым на штатовском Актив Радио, и продолжает оставаться №1. В конце апреля команда отправляется в тур по 12 городам в поддержку альбома.</p>
+
+Автор: Yermola
+
+### 13.04.2001 news &quot;Травяной&quot; Jimmy приглашен к Элису Куперу...
+
+<p>Нынешний барабанщик "MEGADETH" Jimmy DeGrasso приглашен для участия в Австралийском туре Элиса Купера. Как известно, именно в этой команде он и играл до присоединения к Мастэйну и Ко. Во время гастролей он заменит постоянного барабанщика Элиса - Eric Singer, который, также является участником "KISS".</p>
+
+Автор: Yermola
+
+### 13.04.2001 news Jimmy is joining COOPER for the following dates....
+
+<p> MEGADETH drummer Jimmy DeGrasso has been enlisted by former “employer” ALICE COOPER to fill in on drums for some Australian tour dates. As some may recall, Jimmy DeGrasso was the full-time drummer for ALICE COOPER prior to joining the ranks of MEGADETH, at which point he was replaced in ALICE’s band by current KISS drummer Eric Singer (who is ironically also in Australia touring with KISS). Jimmy is joining COOPER for the following dates:</p>
+<p></p>
+<p> April 13 – Newcastle, AUST @ Entertainment Centre</p>
+<p></p>
+<p> April 14 - Gold Coast, AUST @ Carrera Stadium</p>
+<p></p>
+<p> April 17 – Perth, AUST @ Entertainment Centre</p>
+<p></p>
+<p> April 19 – Adelaide, AUST @ Entertainment Centre</p>
+<p></p>
+<p> April 20 – Melbourne, AUST @ Rod Laver Arena</p>
+<p></p>
+<p> April 21 – Sydney, AUST @ Superdome</p>
+<p></p>
+
+Автор: Yermola
+
+### 13.04.2001 articles Интервью Марти Фридмана журналу &quot;Blabbermouth&quot;
+
+<p>Впервые после ухода из "<a href="/ru/band/megadeth/">MEGADETH</a>" гитарист Марти Фридман ответил на вопросы касающиеся его решения оставить команду и разорвать отношения с членами группы. Ниже приведены некоторые ответы на вопросы:</p>
+<p></p>
+<p> Marty: "Я мог бы так объяснить происшедшее: Я люблю играть на гитаре и выступать на гастролях настолько сильно, что иногда я просто забывал собственно о музыке. Я задумался о реалиях во время последнего тура и обнаружил, что я просто играю какие-то песни и чувствую только ностальгию. Мы поддерживали знамя традиционного хэви-металл, а это не совсем мое. Я более ориентирован на поп и рок, и мне кажется сейчас очень много интересных удивительных событий в музыке."</p>
+<p></p>
+<p> Blabbermouth: Какие команды кажутся вам наиболее интересными и удивительными?</p>
+<p></p>
+<p> Marty: "<a href="/ru/band/garbage/">GARBAGE</a>, FASTBALL, THE GOO GOO DOLLS, SUGAR RAY" и многие другие. Все эти командлы делают интересные вещи с прекрасными цепляющими песнями (не о смерти и разрушении!). Это великолепные песни. Дэйв Мастэйн - прекрасный композитор также, но я больше не хочу быть ограниченным в команде под названием "<a href="/ru/band/megadeth/">MEGADETH</a>". И мне кажется, что сами они создадут лучшую музыку без меня, который пытался заставить их идти другим путем."</p>
+<p></p>
+<p> Blabbermouth: Что будет дальше для Вас?</p>
+<p></p>
+<p> Marty: "Я просто позволяю вещам течь так как они хотят. Я хочу более полно использовать мои способности и вокруг так много мест, где я могу быть востребован как гитарист и композитор. У меня уже много очень интересных пердложений но я еще не решил."</p>
+<p></p>
+<p> "Сейчас - удивительно время для меня. Я очень горд тем, что я сделал с "<a href="/ru/band/megadeth/">MEGADETH</a>", но сейчас я чувствую великолепное ощущение свободы, потому что я был на авто-пилоте последнее время. "<a href="/ru/band/megadeth/">MEGADETH</a>" становились однообразными для меня, потому что это всегда были - очень интенсивные громкость, риффы и соло. Хотя Дэйв и остальные были открыты для новых идей, но мы никогда не достигали согласия по поводу предложенных мной изменений в основном направлении музыки. Я хочу делать музыку наиболее понятную для большинства людей и мне все равно, что кто-то подумает, что я делаю это на продажу. Моя цель в музыке - заставить людей чувствовать себя хорошо."</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 13.04.2001 articles Marty Friedman&#39;s Interview for &quot;Blabbermouth&quot; Magazine
+
+<p> Former MEGADETH guitarist Marty Friedman recently spoke out, for the first time, about his decision to leave the band and his current relationship with his former bandmates. Here are some select quotes that were taken from an interview:</p>
+<p></p>
+<p> Marty: “The best way I can explain it is this: I love playing the guitar and touring so much that I often got blinded to how I was really feeling about the music itself. Some realities started sinking in during this particular tour, and I found myself playing these songs and feeling only nostalgia — no real passion. The music had nothing to do with what was going on in my mind. We were holding up the flag for traditional heavy metal, and that’s just not me. I’m way more into pop and rock, and I think this is an incredibly exciting period for the music.”</p>
+<p></p>
+<p> Question: What bands specifically do you find so exciting?</p>
+<p></p>
+<p> Marty: “GARBAGE, FASTBALL, THE GOO GOO DOLLS, SUGAR RAY and many others. These bands are all doing inventive things with great, catchy songs that are not about death and destruction. It’s all about great songs. [MEGADETH singer and guitarist] Dave Mustaine is a great songwriter, too, but I just don’t want to deal with the limitations of being in a band called MEGADETH anymore. And I think they’ll make better MEGADETH music without me trying to pull them in a different direction.”</p>
+<p></p>
+<p> Question: So what is next for you?</p>
+<p></p>
+<p> Marty: “I’m just going to let the chips fall where they may. I want to use the full range of my abilities more, and there are so many places where I can be of service as a guitarist and composer. I’ve already had a lot of interesting offers, but I’m not rushing.</p>
+<p></p>
+<p> “It’s an exciting time for me. I’m totally proud of everything I did with MEGADETH, but I feel a great sense of freedom, because I was on auto-pilot for quite awhile. MEGADETH got repetitive to me because it was always full-intensity, full-volume, full-distortion riffs and solos. Though Dave and everyone were open to new ideas, we never really made the commitment I wanted toward being more mainstream. I want to make music that reaches the most people possible, and I don’t care if anyone thinks that’s selling out. My goal of playing music is to reach people everywhere and make them feel good.”</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 19.04.2001 news Новости от Chris Poland
+
+<p>Все никак не уймется экс-Мегадэтовец Chris Poland (его бы энергию - да в мирных целях!), в Июне он выпускает свой сольник "Chasing the Sun" на голландской Mascot Records. Он будет отличаться от ранее выходившей американской версии тремя новыми песнями.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news Chasing the Sun .....
+
+<p>Former MEGADETH guitarist Chris Poland will release his solo album Chasing the Sun through Holland's Mascot Records in June. This album has been out in the USA for some time, but the Mascot version will contain three bonus tracks not found on the American version. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.05.2001 articles Эпоха перемен для массового уничтожения
+
+<p>Американский квартет <a href="/ru/band/megadeth/">MEGADETH </a>вышел на финишную прямую. Буквально несколько дней назад новый альбом группы "The World Needs a Hero" ("Миру нужен герой") поступил в продажу, и теперь судьба команды полностью находится в руках фанатов. Быть или не быть, собственно, вот в чем вопрос. За всю свою историю <a href="/ru/band/megadeth/">MEGADETH </a>продали 20 миллионов пластинок, но сегодня это не значит ровным счетом ничего – за последние два года группа сменила барабанщика, записывающую компанию, менеджмент, команду покинул гитарист Марти Фридмен, на его место пришел Эл Питрелли… Если диск не пойдет, то и группа скорее всего отправится в небытие. Для команды с названием из эпохи холодной войны ("Массовое уничтожение") пришло время вновь доказывать свою состоятельность и актуальность в давным-давно изменившемся мире. И лидер <a href="/ru/band/megadeth/">MEGADETH</a>, рыжий драчун, бывший алкоголик со стажем Дэйв Мастейн готов это сделать и доказать всем, что для массового уничтожения всегда найдется место!</p>
+<p> - Многие ругают предыдущую работу группы, "Risk"…</p>
+<p> - Лично мне этот альбом нравится – я никогда не записываю музыки, к которой равнодушен! Мы знали, что кто-то полюбит эту пластинку, кто-то возненавидит, потому и назвали ее "Risk". Я вполне спокойно отношусь к людям, которые говорят "Я ненавижу 'Risk' или "О, это моя любимая пластинка!" Мне также все равно, когда кто-то говорит, что его любимая пластинка "Rust In Peace" 90-го года. Для меня все это - мои любимые альбомы!</p>
+<p> - За последний год только и разговоров, что о переменах в группе и вокруг нее. В чем причина такого стремительного изменения <a href="/ru/band/megadeth/">MEGADETH</a>?</p>
+<p> - Наша старая компания, Capitol, потихоньку поставила на нас крест. Сначала они сказали: "Измените логотип!". Мы изменили. Потом они захотели продавать наши пластинки с пометкой сверху "Дэйв Мастейн", словно это мои сольники. В ответ я сказал – спасибо, я уже видел клипы гребанных <a href="/ru/band/no_doubt/">NO DOUBT</a>, где всех музыкантов, кроме одного, задвигают в задницу. Тогда-то мы и отказались от такого менеджмента, в тот же момент Марти Фридмэн решил уйти и… Когда мы вновь пошли в студию, я понял, что новый альбом может оказаться последним – кто захочет подписать контракт с хэви-метал-группой с 15-летним стажем? Но я не хочу выглядеть как панк только ради большей продаваемости. И вот мы записали, то что записали. Очень сильный альбом – это старый добрый <a href="/ru/band/megadeth/">MEGADETH</a>.</p>
+<p> - Расставание с Capitol прошло как-то странно – поначалу оговаривалось, что <a href="/ru/band/megadeth/">MEGADETH </a>все-таки выпустят новый альбом на этой фирме, и только потом расторгнут контракт?</p>
+<p> - Наш старый менеджмент хотел, чтобы я отправился на свою ферму в Нэшвилле и поработал с кем-нибудь со стороны. И еще добавили, что сначала хотели бы получить демо-запись. После чего я подумал: "Знаете что? Полистайте-ка лучше каталог новых альбомов, там и найдете наше демо!" В тот момент все вокруг решили, что наше время вышло и мы обязательно пролетим с новым альбомом. Я захотел сделать все очень правильно и ударить по тем, кто в нас не верил.</p>
+<p> - Как прошла адаптация новичка Питрелли в группе?</p>
+<p> - Замечательно. Когда я и Эл встретились в моей домашней студии, немного поиграли, то у меня возникло странное ощущение… словно ты приводишь в дом новую подружку впервые, а она уже знает, где холодильник, кастрюли и все прочее. Не надо ничего объяснять. Я всего лишь сыграл несколько риффов, которые позже превратились в песню 'Promises' и остановился – а Эл тут же сказал, что из этого надо делать полноценный номер. Не хочу сказать ничего плохого о Марти и его уходе, но с момента, когда я сыграл с Элом, я понял, что теперь с группой все будет в порядке.</p>
+<p></p>
+<p> Мысль в струю</p>
+<p> Эл Питрелли, новый гитарист <a href="/ru/band/megadeth/">MEGADETH</a>: "После всех тех ужасных историй, что я слышал раньше о Дэйве Мастейне, я полагал, что он – полный козел абсолютно во всем. Но когда я впервые встретил его несколько лет назад, мы вместе пообедали, все это показалось мне полной чушью. Дэйв вполне нормальный парень, и даже очень крут!"</p>
+<p></p>
+
+Автор: Tornado
+
+### 23.05.2001 news Ник Менза &quot;Жизнь после Смерти&quot;....
+
+<p>По сообщению сайта www.menza.com экс-мегадетовец жив-здоров и даже выпустил сольный альбом символично названный "Life After Deth" (кстати там же на сайте вы его можете заказать).</p>
+
+Автор: Yermola
+
+### 23.05.2001 reviews Герои трэша вернулись!!!
+
+<p> Я очень боялся слушать этот диск, потому что было ощущение того, что можно сильно обломаться... То что я услышал превзошло все мои ожидания! Я услышал не ужасную полуэлектронную музыку с сэмплами, не индастриал, не альтернативу, а старый добрый Megadeth времен Countdown To Extinction и Yuothanasia. Слава богу, что Дэйв оказался благоразумнее многих своих коллег, и понял что надо играть ту музыку, которая тебе близка, с которой ты начинал, а не гнаться за ужасной модой и за деньгами. Хотя конечно не обошлось и без нововведений. Чего только стоят духовые инструменты в Silent Scorn или виолончель в балладе Promises. Именно в балладе, а не просто в медленной песне! Представьте себе - Megadeth, баллада, виолончель. Но так есть - и что самое главное - это просто супер. Это не Master Of Puppets с оркестром, это очень душевная, красивая песня! Альбом очень искренний, это заметно при прослушивании, хотя некоторые вещи откровенно слабые. Огорчает отсутствие в группе Марти Фридмана и Ника Мензы, но новые участники неплохо справились со своей задачей. Музыкантам полностью удалось передать дух группы. Можно отметить, что в целом звучание альбома не такое тяжелое как в 92-94 годах, но это отнюдь не плохо. Безусловные хиты альбома - Diconnect, 1000 Times Goodbye, Burning Bridges, Promises, Dread And The Fugitive Mind, и главная изюминка - песня Return To Hangar. Я думаю, все понятно из названия, без комментариев! Честно сказать, после альбома Risk я похоронил Megadeth, и как оказалось очень зря. Если раньше было много мнений, что сначала что-то делает Metallica, а через год или два Мустэйн делает примерно тоже самое, то теперь Мустэйн оставил Металлику далеко позади, он записал супер-альбом, который далеко не подходит под формат MTV. А Металлике это уже и не дано... осталось только с Напстером судится.</p>
+<p> И кстати... я не собирался идти на концерт Megadeth в Москве, точнее думал - идти или нет, теперь же сомнения отпали полностью!</p>
+
+Автор: Vic Thor
+
+### 24.05.2001 reviews Обещанное и долгожданное возвращение легенды
+
+<p>Обещанное и долгожданное фэнами по всему миру возвращение легенды спид-трэш-метал к корням. Послушаем? Средненько… Но приятно: жужжит ненавязчиво, не оттягащающе, периодически можно в такт потопать и подпеть. Возможно, Дэйв разучился писать риффы, цепляющие безумием и сдвинутостью, но просто нормальную тяжесть он не может не делать. Альбом – доказательство, что Дэйв выучил абсолютно все приемы привлечения внимания к песне и превращения ее в хит – хоровые припевы, среднетемповый кач, характерный гитарный напор, скрипящий голос… Дело лишь за тем, чтобы в основу легла крепко закрученная идея - и ядерная бомба готова. Но не на этот раз. Новый альбом квартета – набор запчастей для этой самой бомбы. Только вот ядерного заряда на хватает. Хотя есть и песни, приближающиеся к критической массе: "Recipe for hate… Warhouse", "Dread & The Fugitive Mind" (продолжение замечательной песни от 1992 года "Sweating Bullets"). И есть инструментальная тема… с саксофонами! Поначалу шокирует, но смысл ее становится понятен после того, как заступает следующая песня "Return to Hangar" (опять-таки вторая часть классического боевика группы "Hangar 18") – оказывается, просто создавали выигрышный фон... Удачно. И еще впечатляет раскачка финальной "When". Именно этот финал и толкает на то, чтобы запустить диск по второму кругу. Как видно, альбом оказывается хорошим поводом порассуждать о творческой квинтэссенции и ее подпитке. Как только основатель и лидер команды МегаДэйв переставал пить водку, драться с товарищами по группе и прогонять очередных подружек, он начинал писать среднестатистические песни. Но стоило демону алкоголя, раздора и буйства (проще – саморазрушения) вернутся в потемки рыжей души, песни MEGADETH заставляли неровно дышать и биться в конвульсиях. Рождались шедевры! Как назло, Дэйв уж лет шесть не курит и не пьет, и только с женой… Так что никакого возвращения к корням тут не наблюдается. Информация, понятная только фэнам группы – смешайте "Youthanasia" и "Hidden Treasures". Получите "необходимого миру Героя". А вот нужен он вам или нет – решайте сами. 4 из 5 – от большой любви фаната с 10-летним стажем. А по-хорошему дать бы в лоб…</p>
+
+Автор: Tornado
+
+### 15.06.2001 news MEGADETH + DIAMOND HEAD&#x3D;?
+
+<p>По сообщению Интернет ресурсов, главарь "MEGADETH" - Dave Mustaine работает над новым проектом с гитаристом "DIAMOND HEAD" - Brian Tatler. Музыкально это будет "нечто" не похожее ни на MEGADETH ни на DIAMOND HEAD.</p>
+
+Автор: Yermola
+
+### 15.06.2001 news MEGADETH + DIAMOND HEAD&#x3D;?
+
+<p>MEGADETH mainman Dave Mustaine will reportedly be working with DIAMOND HEAD guitarist Brian Tatler on an as-yet-unnamed new project, the musical direction of which is said to be "different to either MEGADETH or DIAMOND HEAD". No other details are available at this time. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.06.2001 news Новый &quot;Герой&quot; Megadeth уже обогнал по продажам Capitol Punishment....
+
+<p>MEGADETH выбрали песню "Dread & The Fugitive Mind" в качестве второго сингла с альбома "The World Needs A Hero". Начиная с 23 Июля трек атакует радио станции. Кроме того, по сообщению на официальном сайте команды, новый альбом уже обогнал по продажам своего предшественника "Capitol Punishment" в: США, Великобритании,Австралии, Австрии, Бельгии, Канаде, Чехии, Дании, Финляндии, Франции, Германии, Греции, Голландии, Венгрии, Ирландии, Италии, Японии, Кореи, Новой Зеландии, Норвегии, Португалии, Швеции и Швейцарии.</p>
+
+Автор: Yermola
+
+### 24.07.2001 news MEGADETH - PUBLIC ENEMY NUMBER ONE?
+
+<p>BANNED FROM PERFORMING IN MALAYSIA BY "NAZI-ISH" GOVERNMENT; BAND'S IMAGERY DEEMED "UNSUITABLE" FOR YOUTH; RECORDS CONFISCATED OFF STORE SHELVES. It's gratifying to know that rock 'n' roll still has the power to shock and frighten world governments. On July 23, 2001, it was learned that metal legends Megadeth have been banned from performing in the Southeast Asia nation of Malaysia. Megadeth was scheduled to promote their Sanctuary Records album 'The World Needs A Hero' by playing at the Warp Club on August 2 in Kuala Lumpur, the Malaysian capital. However, the Malaysian government stepped in and canceled the concert. Malayasian authorities say that Megadeth's imagery, specifically the band's famous skeleton mascot "Vic Rattlehead," is unsuitable for the youth of Malaysia. Summarily, the government refused to grant work permits to the band and crew. If Megadeth defied the government and went ahead and performed in Kuala Lumpur, it was made clear the band would be arrested and their own personal safety could not be guaranteed! In addition, Megadeth records have now been confiscated off store shelves! Sanctuary has now been prohibited from shipping copies of 'The World Needs A Hero' into Malaysia to fill retailers' inventory. "Megadeth is very disappointed that they won't be able to perform for their fans in Malaysia," stated Megadeth manager Larry Mazer. "I'm sure Megadeth fans in Malaysia are equally disappointed. Hopefully, the political climate will change so that one day Megadeth may return to Malaysia to play for their fans who have waited a long time to see them in person." Megadeth is scheduled to come back home to the United States this fall to continue its highly successful world tour for 'The World Needs A Hero.' Megadeth has sold more than 20 million records worldwide and earned seven Grammy Award nominations since forming in 1983.</p>
+
+Автор: Yermola
+
+### 24.07.2001 news MEGADETH - Враг народа №1?
+
+<p><b>"Концерт Megadeth в Малайзии отменен нацистским правительством!" </b>- Вот такие заголовки появились в прессе в понедельник. Мастэйн со-товарищи должны были играть в столице Куала-Лумпур - 2-го августа в рамках промо-тура последнего альбома "The World Needs A Hero", но концерт был запрещен правительством страны. Чиновники заявили, что имидж Megadeth, и особенно скелетообразный Vic не годятся для малайской молодежи. Если команда, несмотря на запрет, все же решит выступить, то она даже будет арестована. По словам менеджера Larry Mazer: "Megadeth - очень разочарованы, что не смогут выступить перед своими фэнами... Я уверен, что поклонники группы также очень расстроены. Я надеюсь, что политический климат в стране изменится и когда нибудь мы все же сыграем в Малайзии...". Сейчас Megadeth возвращаются в штаты, чтобы продолжить свой супер-успешный мировой тур. Хотелось бы вкратце напомнить, что с 1983 года группа семь раз номинировалась на Грэмми и продала более 20 миллионов пластинок по всему миру...</p>
+
+Автор: Yermola
+
+### 02.08.2001 news The World Needs A Hero US headlining tour...
+
+<p>MEGADETH have announced the dates for their upcoming The World Needs A Hero US headlining tour. Support at all shows will come from ENDO. The schedule is as follows: <br> Sept. 07 - Salt Lake City, UT @ SaltAir Pavilion <br> Sept. 08 - Boise, ID @ Big Easy <br> Sept. 09 - Portland, OR @ Roseland Theater <br> Sept. 11 - Seattle, WA @ Showbox <br> Sept. 12 - Vancouver, BC @ Commodore Ballroom <br> Sept. 14 - San Francisco, CA @ The Fillmore <br> Sept. 15 - Anaheim, CA @ House Of Blues <br> Sept. 16 - West Hollywood, CA @ House Of Blues <br> Sept. 17 - San Diego, CA @ 4th & B <br> Sept. 18 - AZ @ TBA <br> Sept. 19 - Las Vegas, NV @ House Of Blues <br> Sept. 22 - San Antonio, TX @ To Be Announced <br> Sept. 23 - Dallas, TX @ Deep Ellum Live <br> Sept. 25 - Santa Fe, NM @ To Be Announced <br> Sept. 26 - Denver, CO @ Fillmore Auditorium <br> Sept. 27 - Wichita, KS @ Rita's Little Uptown <br> Sept. 28 - Kansas City, MO @ Uptown Theatre <br> Sept. 29 - Sauget, IL @ Pop's <br> Oct. 02 - Minneapolis, MN @ First Avenue <br> Oct. 03 - Milwaukee, WI @ The Rave <br> Oct. 04 - Chicago, IL @ Vic Theatre <br> Oct. 06 - Detroit, MI @ St. Andrews Hall <br> Oct. 08 - Cleveland, OH @ Odeon Concert Club <br> Oct. 09 - Toronto, ON @ The Guvernment <br> Oct. 10 - Hartford, CT @ Webster Theatre <br> Oct. 12 - Boston, MA @ Avalon <br> Oct. 13 - Philadelphia, PA @ Electric Factory <br> Oct. 14 - Washington, DC @ 9:30 Club <br> Oct. 16 - New York, NY @ Irving Plaza<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 12.09.2001 news Очередные откровения Дэйва Мастэйна...
+
+<p>Похоже это становится традицией... После слезливых объяснений в любви к Металлике, Дэйв Мастэйн вновь провел сеанс самокопания по Достоевскому. На официальном сайте <a href="http://www.megadeth.com/">www.megadeth.com</a> он в открытом письме описал взаимоотношения и проблемы с группой "SLAYER". "Я встречался с Керри (Кингом) и SLAYER в то время когда я был в Металлике и мы были друзьями... и я себя чувствовал, как-будто я являюсь частью Слэйера..." "Пресса написала об этом огромную кучу дерьма и я не знаю, что сейчас является правдой, а что нет..." "Я слышал, что на вопрос будет ли он еще когда либо играть со мной, Керри Кинг ответил.... Да если Мастэйн sucked my dick. Это не столько разозлило меня, как заставило удивиться: Что вынудило его сказать это?!?!"</p>
+
+Автор: Yermola
+
+### 12.09.2001 news MEGADETH mainman Dave Mustaine is continuing to reach out to former foes through personal postings ...
+
+<p>Desperately seeking to make peace to everyone who has previously supported the group in an attempt to rebuild a career that has inarguably seen its best days, MEGADETH mainman Dave Mustaine is continuing to reach out to former foes through personal postings via the group’s official web site at www.megadeth.com. In the wake of his ongoing attempts at burying the hatchet with his former bandmates in METALLICA, Mustaine has now taken it upon himself to make amends with SLAYER. In his latest posting, the frontman voices his feelings on the two bands’ seemingly strained present relationship: "[SLAYER guitarist] Kerry King was cool enough when we first started, to help us out because we didn’t have a second guitarist and I have many great memories of him and his family. His parents were first class and treated David Ellefson and myself like we were in Kerry’s band, SLAYER, not just temporary guitar slingers using their son. Kerry not only learned all of our songs from the first record, but also very quickly I might add (ask Marty, Al, Jeff, and Chris how easy that is) to do. Kerry was a big part in some of our fiercest shows ever in the very beginning. "I had met Kerry and SLAYER from my METALLICA days and we were friends, as I felt I was with the rest of SLAYER; although it was really weird feeling ‘borrowing’ a band member. "The press has said a lot of bad sh.t lately, and I don’t know how much is true or not. "I recently heard that Kerry was asked if he would ever play with us again and that he responded, ‘If Dave Mustaine sucked my dick’ or something like that. This did not piss me off as much as it made me wonder, ‘What would make him say that?’ "So, I reflected over the last 12 years since Rust in Peace and the famous/infamous ‘Clash of the Titans’ tour and what would possibly still be lingering because of some things that I had done and said, and yeah, there were some issues that occurred, but I thought we had resolved them. "The ‘Clash’ tour was very competitive, with hostile audiences everywhere we played. This spilled over into the backstage area a lot. Hell, even [SUICIDAL TENDENICES frontman] Mike Muir and I were going at it and were headed for a fight until we resolved things like gents and we are good friends today. "I guess that while in Europe, everyone knew that SLAYER would close the show and we would play before them, with TESTAMENT and SUICIDAL TENDENCIES before us. I was just getting off of heroin at the time and was training really hard for my Black Belt in Ukidokan, and I had one of Sensei Benny’s ‘Senseis’ out on tour with me. I was a timebomb because 1) I was not ready to stop drinking or doing drugs and 2) I would see SLAYER having fun, drinking and sh.t and I was jealous. "So, I acted and was unprofessional toward them. Bottom line is, it ain’t their fault I was a drunk. "I talked to [SLAYER bassist/vocalist] Tom [Araya] about this and I thought we were cool. I am pretty sure [SLAYER guitarist] Jeff [Hanneman] and I are cool, and was almost certain Kerry and I were cool. I guess not. "I have said hundreds of f’ing times that SLAYER is one of the best live bands a person will ever see for raw energy. If you want to know what it feels like to be John Force (Nitro-funnycar Champion) when he hits the pedal, just go to a SLAYER show. They are untouchable live. "Now, this brings us to only other possible thing that I could have been involved with; Ozzfest 98. This is the only thing I can think of that they would be pissed about. There were rumors that we kicked SLAYER off of the bill, or that we would didn’t want them on the bill. "This is utter horsesh.t. "Not only have we never shied away from playing with SLAYER, it is in-f.cking-concievable that we would have the authority to tell Sharon Osbourne who she should have or not have on Ozzfest. "I DO NOT THINK THAT SHARON HAD ANYTHING TO DO WITH THIS. UNDERSTOOD? "Having said that, I do believe that someone who used to work for Sharon Osbourne, that was told by our management we wanted to play Ozzfest 98, but we NEVER said anything about SLAYER not playing on this bill. "Somehow, word got back to SLAYER that we did not want them on the bill and it was a f’ing lie. Why would we play New Years Eve with them in our home town, AND play in South America with them if we have a problem with them? "Our previous manager Mike Renault is a really decent person and consequently plays poker with SLAYER’s manager Rick Sales once a week, I think. I doubt he would not have lied to me about explaining this to Sharon Osbourne’s office. "By the way, the person who I believe lied to SLAYER has been fired by Sharon Osborne. Gee? I wonder why? "To all the SLAYER fans at our site and over in Slaytanic land: I have no animosity toward SLAYER, nor do I have any reason to fear playing with them. We asked them to tour with us on a pure metal four band bill and they said ‘NO!’ "I can only attribute this to their believing that we had something to do with them not being on Ozzfest 98. I would like the truce that we have started with METALLICA to reach over to another one of the Best Metal bands ever, SLAYER. "To Tom, Kerry, Jeff and Paul: "This is the truth with what happened. Accept it if you will, but just know that I personally feel someone directly misrepresented our position with Ozzfest 98. I would personally love to tour with SLAYER again and hope you will reconsider our proposal. If there is something else, then let’s settle it and tour! Mustaine" Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.09.2001 news MEGADETH&#x2F;ICED EARTH US dates:
+
+<p>ICED EARTH will be the opening act at two weeks’ worth of dates on MEGADETH’s headlining US tour, starting on October 20th in Cedar Point, North Carolina. According to MEGADETH bassist Dave Ellefson, "we figured it best to continue a good thing with this than take a break and come back with a second leg [of our headlining tour] and I think ICED EARTH will rock everyone's world." Here are the confirmed MEGADETH/ICED EARTH US dates: <br> Oct. 20 - Cedar Point, NC @ 105/101 Pure Rock Bash <br> Oct. 21 – Norfolk, VA @ The Norva <br> Oct. 22 – Atlanta, GA @ Roxy Theater <br> Oct. 24 – Poughkeepsie, NY @ The Chance <br> Oct. 25 - Clifton Park, NY @ Northern Lights <br> Oct. 27 - Ft. Wayne, IN @ Pieres <br> Oct. 28 – Cincinnati, OH @ Bogarts <br> Oct. 30 - La Crosse, WI @ Hollywood Theater <br> Oct. 31 – Wausau, WI @ Bases Loaded <br> Nov. 01 – Rockford, IL @ The Times Theater <br> Nov. 02 - Combined Locks, WI @ Ryan's Ballroom <br> Nov. 03 – Lafayette, IN @ Riehle Brothers Pavillion. <br> In other news, ICED EARTH will now NOT be able to join JUDAS PRIEST on the latter band’s rescheduled US tour, because of ICED EARTH’s previous European touring commitments. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 01.10.2001 articles Блиц-интервью с Dave Mustaine
+
+<p> 1. <em>Три лучших и худших события, связанных с MEGADETH?</em></p>
+<p> Лучшие: <br> Первая золотая пластинка <br> Первая платина <br> Первый мультиплатиновый альбом. <br> Худшие: <br> Сообщение о смерти Гара Сэмюэлсена. <br> Отказ то участия в Монстрах Рока <br> Частые смены состава</p>
+<p> <img src=/images/articles_rus/2001.10/1749.jpg border=0 align=left width=160 height=220> 2. <em>Ваше мнение – наркотики должны быть легализованы?</em></p>
+<p> Марихуана используется больными глаукомой и СПИДом для обезболивания. Я полностью поддерживаю это. Люди, страдающие от рака, также нуждаются в облегчении боли, потому я считаю, что они тоже могут это использовать. Но в целом… Некоторые страны вроде Голландии легализовали наркотики, и, кажется, это работает. Но я уверен, есть и проблемы. Я не датчанин и не могу говорить за них, но я там видел людей, которые колются прямо в парках – и это ужасно, если не сказать больше. <br> И еще забавный момент. Если мы легализуем наркотики, то скорее всего отменят все рейсы в Южную Америку. Торговля оружием в обмен на кокаин прекратилась бы, и ЦРУ остались без работы…</p>
+<p> 3. <em>Оцените по десятибалльной шкале следующих певцов.</em></p>
+<p> Vince Neil (<a href="/ru/band/motley_crue/">MOTLEY CRUE</a>) – минус 10 <br> James Hetfield (<a href="/ru/band/metallica/">METALLICA</a>) - 9 <br> John Bush (<a href="/ru/band/armored_saint/">ARMORED SAINT</a>, <a href="/ru/band/anthrax/">ANTHRAX</a>) - 9 <br> Geoff Tate (<a href="/ru/band/queensryche/">QUEENSRYCHE</a>) - 9 <br> Sebastian Bach (ex-<a href="/ru/band/skid_row/">SKID ROW</a>) - 8 <br> Rob Halford (ex-<a href="/ru/band/judas_priest/">JUDAS PRIEST</a>) - 10 <br> Bret Michaels (<a href="/ru/band/poison/">POISON</a>) - минус 10 <br> Phil Anselmo (<a href="/ru/band/pantera/">PANTERA</a>) - 9 <br> Tom Araya (<a href="/ru/band/slayer/">SLAYER</a>) - 9 <br> Jani Lane - минус 10</p>
+<p> <img src=/images/articles_rus/2001.10/1750.jpg border=0 align=left width=160 height=225 vspace=5> 4. <em>После завершения тура Maximum Rock – хотели бы вы еще гастролировать с <a href="/ru/band/motley_crue/">MOTLEY CRUE</a>? Что вы думаете об этих ребятах?</em></p>
+<p> Они урезали плату за тур нам и <a href="/ru/band/anthrax/">ANTHRAX</a>, вместо того, чтобы отослать обратно лишние грузовики со своим собственным дерьмом и танцовщицами. Когда Anthrax выпали из тура, они всем и каждому говорили, что теперь обе наши группы получают больше времени на сцене. Но <a href="/ru/band/megadeth/">MEGADETH</a> не получили ни секунды! Все упиралось в деньги, тур был очень плохой поездкой и вскоре был завершен. Вообще, единственная причина участвовать в этом туре для нас были<a href="/ru/band/anthrax/"> ANTHRAX</a>– наши друзья. А что касается еще одних гастролей с<a href="/ru/band/motley_crue/"> MOTLEY CRUE</a>… Лучше уж пусть Ганнибал Лектор сожрет мои яйца!</p>
+<p> 5. <em>Лучшая история в которую вы вляпались в время гастролей?</em></p>
+<p> Забавная история произошла в Англии и она связана с ИРА. Я выпивал – и тут кто-то мне говорит, что человек в зале продает наши бутлеги и майки. Все бы ничего, да он собирал деньги «на дело». Так мне и сказали, и притом многозначительно подмигнули. Я тогда понятия не имел, что это за «дело»… Кто-то из окружения пояснил мне, что это большая проблема между католиками и протестантами, проблема в предубеждениях… Тот же парень добавил, что мне следует позволить продавать эти майки и собирать деньги. Ну ладно – продавайте… Я добил свое пиво (четыре или пять пинт Guinness), вышел на сцену, и, объявляя песню «Anarchy», сказал: "Отдайте Ирландию ирландцам! Следующая песня – «Anarchy in Ireland»!" Почему-то это не сработало так же, как и у Пола Маккартни, когда он говорил подобные вещи. Публика совсем не обрадовалась… После этого нас увезли из города в пуленепробиваемом автобусе и Дэвид Эллефсон целый день со мной не разговаривал. Я понять не мог, в чем же дело, пока он не объяснил мне всю пикантность ситуации. Сегодня я нахожу это забавным, но тогда…</p>
+<p> 6. <em>Недавно вы предложили <a href="/ru/band/metallica/">METALLICA</a> совместный тур, да еще и соединить составы на сцене и что-то исполнять вместе Хэтфилдом и Ларсом… Вы не думаете, что им это не нужно?</em></p>
+<p> Да, думаю, они на захотят этого делать. А жаль. Я просто вспомнил о лучших днях, когда именно мы и были для всех металлом. Я вернулся к металлу, они тоже могут сделать это. Надеюсь, сделают – это могло бы всем фэнам сорвать крышу!</p>
+<p> 7. <em>Расскажите о ваших воспоминаниях, связанных с той или иной песней?</em></p>
+<p> Go To Hell - Мы записали эту песню для компании Interscope (лейбл Трента Резнора, Nine Inch Nails – авт.) – и они сказали, что первоначальная версия текста слишком скучная. Ну я и сделал ее языческой!</p>
+<p> Angry Again - я написал музыку за день. Текст написал, засыпая под мелодию Clash "should I stay or should I go now" – это история о том, как Ник Менза был побит французами возле Макдональдса в Париже. Той ночью на сцене я сказал, что он просто герой, раз играет после этого. Однако после концерта ко мне подошел охранник и сказал, что Ник солгал – его побили в квартале красных фонарей, когда он там напился со всеми вытекающими последствиями.</p>
+<p> Good Mourning/Black Friday - Good Mouring просто инструментал. Black Friday вдохновлена великолепным барабанщиком Дижоном Карузерсом – его отец играл в фильме «Dirty Dozen». Дижон прекрасно вписывался в группу, пока мы не узнали, что он солгал о том, что он "черный". У меня нет и не было никаких претензий к участникам группы относительно цвета кожи. Однажды к нам зашел его брат, и тогда выяснилось что Дижон испанец – это убило его наповал. Мы решили, что человек, который стесняется своей семьи, расы или чего бы то ни было еще никогда не станет нашим. In My Darkest Hour – Мария Ферраро из Megaforce records позвонила мне и сказала, что Клифф Бертон погиб. Никто из <a href="/ru/band/metallica/">METALLICA</a> и их менеджмента не сообщил мне этого! Я был очень удручен – ну и просто стал орать и петь. В тексте нет ничего о Клиффе, но его уход позволил написать мне эту песню, которая осталась в сердцах фэнов.</p>
+<p> Take No Prisoners – Я был сыт по горло всем тем дерьмом, что сопровождало увольнение Чака Бихлера и Джеффа Янга и был просто рад появлению Ника Менза и Марти Фридмена. я начал писать самый мерзкий материал, что я когда-либо сочинял. Я не считался с тем, что Марти еврей и заставлять его подпевать в песне о немецких танковых дивизиях не очень-то и хорошо. Сегодня я думаю иначе. Но тогда я просто говорил всем свою любимую фразу: "Не берите чужого дерьма!" Symphony Of Destruction – для меня это был момент удачи, я помню это как вчерашний день. я ехал домой и строчил все, что мог на бумагу. Забавно – под руку подвернулась справка о моем аресте из отделения полиции. Я даже на ней начал что-то строчить!</p>
+<p> Reckoning Day - я посмотрел «Tombstone» с Вэлом Килмером и Куртом Расселом. И влюбился в фильм. Плохо, что Вэла Килмера считают в Голливуде полной задницей – полагаю, у нас есть что-то общее. В фильме были слова о дне расплаты – ну, это и превратилось в песню.</p>
+<p> <img src=/images/articles_rus/2001.10/1751.jpg border=0 align=left width=160 height=181 vspace=5> Breadline – первоначальная версия этой песни начиналась так же, как и песня FEAR "I love living in the City." Первые строчки были весьма плохи: "I got bugs on my balls and sores on my feet, I rinse out my beard so I got something to eat. In my Safeway Winnebago, everything is fine. I'm dancing in the breadline" ("у меня жуки на яйцах и мозоли на ногах, я прочистил бороду и теперь есть, что съесть…"). Правда, отличается от того, что вы услышали на альбоме? Текст пришлось заменить – этой песней мы решили поддержать всех бездомных детей в США.</p>
+<p> Recipe For Hate….Warhorse – когда я писал это, мне было плевать на то, что скажет по этому поводу наша фирма CAPITOL. Как-то мы ездили вместе сов семи их работниками к океану. Я в жизни не видел такой ненависти и эгоизма. Слава богу, все те люди ушли. Мне жаль группы, что сейчас на этом лейбле. Надеюсь, что те, у кого контракт с CAPITOL, получают лучшее отношение, нежели мы – там есть и хорошие артисты, заслуживающие большего. Но сильно сомневаюсь в этом.</p>
+<p> 8. <em>Худшая песня, которую вы написали?</em></p>
+<p> "Ecstasy" - лично для меня песня кое-что значит, но я бы предпочел, чтоб ее пел кто-нибудь другой.</p>
+<p> 9. <em>Как-то вы сказали: «Наш менеджер Лэрри Мэйзер говорил со мной о Напстере – это очень плохо, и все CD-R диски надо сжигать!» Почему вдруг <a href="/ru/band/megadeth/">MEGADETH</a> так ополчились против Напстера?</em></p>
+<p> То, что я скажу, выглядит как извинение, но… Наш альбом был удален из Напстера этим летом – по всей видимости, до конца года. Делайте выводы. Ничего не имею против Напстера, моя карьера началась во времена торговли пиратскими пленками.</p>
+<p> 10. <em>Поставьте оценки альбомам <a href="/ru/band/megadeth/">MEGADETH</a> по десятибалльной шкале.</em></p>
+<p> Killing Is My Business - 7. реклама и распространение пластинки, точнее, их отсутствие, все испортили <br> Peace Sells But Who's Buying - 10 <br> So Far So Good So What - 7 <br> Rust In Peace - 10 <br> Countdown To Extinction - 10 <br> Youthanasia - 8 <br> Cryptic Writings - 8 <br> Risk - 7 <br> World Needs A Hero - 9</p>
+<p> 11. <em>Песня "When" с альбома "World Needs A Hero" основана на знаменитом риффе из "Am I Evil". Почему вы так сильно скопировали ту песню?</em></p>
+<p> <img src=/images/articles_rus/2001.10/1753.jpg border=0 align=left width=160 height=238 vspace=5> Я как-то прогуливался утром, пытаясь понять, как Брайен Тэтлер, гитарист <a href="/ru/band/diamond_head/"> DIAMOND HEAD</a> написал эту песю. Пошел в студию и вдруг там зазвонил телефон: «На линии Брайен Тэтлер!» Я подумал, что кто-то хочет меня подколоть: он живет в Англии и вдруг узнал, в какой именно из студий Лос-Анжелеса я нахожусь? Но все оказалось правдой. Мы поговорили, в том числе и о песне, я сказал, что хочу кое-что оттуда переиграть и он дал добро. Вот и все. Если спросите, почему я не сделал кавер-версию "Am I Evil", то… Идите к черту!</p>
+<p> 12. <em>Ваше отношение к тому, что…</em></p>
+<p> …Creed продали восемь миллионов копий альбома – уважаю эту команду из-за певца. Особенно после того, как он обещал отлупить Фреда Дерста из Limp Bizkit. <br> …Van Halen все еще не объявили нового вокалиста – Эдди, верни Дэйва Ли Рота назад! <br> …Джейсон Ньюстед покинул <a href="/ru/band/metallica/">METALLICA</a> – я знал, что это произойдет. Я слышал эти разговоры еще два года назад на гастролях в Бразилии.</p>
+<p> 13. <em>Ваши Ассоциации со следующими людьми…</em></p>
+<p> Ron McGovney (первый басист <a href="/ru/band/metallica/">METALLICA</a>) - ваши 15 минут истекли! <br> Kerry King (SLAYER) - настоящий демон <br> AEROSMITH - Брэд играет все самые крутые соло <br> Fred Durst (LIMP BIZKIT) - дерьмоед <br> Scott Ian (ANTHRAX) - Богоугодный <br> Ted Nugent - Могучая глотка <br> Gene Simmons (KISS) - Торговец мехами <br> Alice Cooper - Мой возлюбленный крестный отец</p>
+
+Автор: Tornado
+
+### 17.10.2001 news Jason Newsted - назад в Металлику?
+
+<p>По сообщению неофициальных ресурсов близких к Металлике (http://www.intersandman.com/index.html и т.п.), группа попросила Джэйсона Ньюстеда вернуться для записи нового альбома и он вроде бы даже согласился... Из других новостей, по словам представителя METALLICA - Sue Tropio, опубликованным в "The New York Post", команда сейчас ведет переговоры с MEGADETH о совместном туре. Да... слезливые письма Рыжего Дэйва не прошли даром...</p>
+
+Автор: Yermola
+
+### 17.10.2001 news METALLICA bassist Jason Newsted has been asked by the band to rejoin them ...
+
+<p>Citing “inside sources in the METALLIcamp”, unofficial METALLICA site Inter Sandman has reported that former METALLICA bassist Jason Newsted “has been asked by the band to rejoin them in the recording sessions for the new album, due sometime in late 2002.” In other news, METALLICA spokesperson Sue Tropio was quoted in a MEGADETH article that was published in The New York Post on Sunday, October 14th as saying that METALLICA and MEGADETH may end up touring together in the not-too-distant future. "Anything can happen — there's a lot of love between METALLICA and MEGADETH right now," stated Tropio. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 19.11.2001 news TRANS-SIBERIAN ORCHESTRA on the road...
+
+<p>MEGADETH guitarist Al Pitrelli will be rejoining TRANS-SIBERIAN ORCHESTRA on the road this year at the following dates: <BR><BR> Nov. 23 - Minneapolis, MN @ Northrop Auditorium <BR> Nov. 24 - Green Bay, WI @ Brown County Vet. Mem. Arena <BR> Nov. 25 - Milwaukee, WI @ Riverside Theatre <BR> Nov. 27 - Chicago, IL @ Oriental Theatre <BR> Nov. 28 - Madison, WI @ Alliant Energy Center <BR> Nov. 29 - Omaha, NE @ Omaha Music Hall <BR> Nov. 30 - Wichita, KS @ The Cotillion <BR> Dec. 01/ - Kansas City, KS @ Memorial Hall <BR> Dec. 03 - Colorado Springs, CO @ World Arena <BR> Dec. 04 - Denver, CO @ Magness Arena <BR> Dec. 06 - Boise, ID @ Bank Of America Center <BR> Dec. 07 - Spokane, WA @ Spokane Opera House <BR> Dec. 08 - Seattle, WA @ Paramount Theatre <BR> Dec. 09 - Portland, OR @ Rose Garden Arena <BR> Dec. 11 - San Francisco, CA @ The Warfield <BR> Dec. 12 - Sacramento, CA @ Memorial Auditorium <BR> Dec. 13 - Bakersfield, CA @ Fox Theater <BR> Dec. 14 - Los Angeles, CA @ Universal Amphitheatre <BR> Dec. 15 - Las Vegas, NV @ Cox Pavilion <BR> Dec. 17 - Tempe, AZ @ Gammage Auditorium <BR> Dec. 18 - Albuquerque, NM @ Kiva Auditorium <BR> Dec. 19 - El Paso, TX @ UTEP Special Events Ctr. <BR> Dec. 20 - Amarillo, TX @ Coliseum Theatre <BR> Dec. 21 - San Antonio, TX @ Municipal Auditorium <BR> Dec. 22 - Houston, TX @ Aerial Theatre at Bayou Palace <BR> Dec. 23 - Dallas, TX @ Bronco Bowl <BR> Dec. 26 - Nashville, TN @ Ryman Auditorium <BR> Dec. 27 - Atlanta, GA @ Tabernacle <BR> Dec. 28 - Orlando, FL @ Bob Carr Per. Arts Ctr. <BR> Dec. 29 - Tampa, FL @ Tampa Bay P.A.C. <BR> Dec. 30 - Fort Pierce, FL @ Sunrise Theatre</p>
+
+Автор: Yermola
+
+### 27.11.2001 news MEGADETH mainman Dave Mustaine has revealed in his latest online posting ...
+
+<p>MEGADETH mainman Dave Mustaine has revealed in his latest online posting that he is due to travel to Los Angeles from his home in Phoenix on Wednesday, November 28th to start the remixing/remastering process for the band’s upcoming reissue of their classic debut CD, Killing Is My Business…And Business Is Good!, which was originally released in 1985 through Combat Records. According to Mustaine, he will be one again be collaborating with veteran producer Bill Kennedy (who manned the boards for the recording of MEGADETH’s The World Needs A Hero CD) during the upcoming sessions, which will include the remixing of the band’s original three-song demo tape, containing the tracks “Last Rites/Loved To Death”, “The Skull Beneath The Skin” and “The Mechanix”, which landed the band their record deal with Combat (and which is set to be included as part of the final package). However, it appears unlikely that the reissued album will include MEGADETH’s cover of the Nancy Sinatra classic “These Boots Are Made For Walking”, which appeared on the original version of the CD, after the original writer of the song, Lee Hazelwood, refused to grant the group the rights to re-release the version of the track that appeared on Killing…, seeing as it contained slightly altered lyrics to the original, thereby requiring Hazelwood’s consent. “Sadly, we were forced to make a decision,” Dave stated in his posting. “Do we put ‘These Boots’ on as an instrumental, do we sing it again in the original format with his lyrics, or do we just beep out all of my lyrics that I added? I decided for now, not to have it on the record if it means that we have to censor ourselves to appease this person. I have also written a statement about what happened, and why it isn't on the record, for inclusion in the liner notes.</p>
+
+Автор: Yermola
+
+### 27.11.2001 news Убийство - мой бизнес...
+
+<p>Мэйнмэн "MEGADETH" - Dave Mustaine в среду 28-го отправляется в Лос Анджелес для того чтобы начать работу по ремикшированию и ремастерированию классического "Killing Is My Business…And Business Is Good!", выпущенного в оригинале в 1985 году. Продюссирование будет проходить с ветераном Биллом Кеннеди (уже делавшем это для "MEGADETH" на "World Needs A Hero"). Основой послужит трех-песенная демо-лента (“Last Rites/Loved To Death”, “The Skull Beneath The Skin” и “The Mechanix”) давшая группе контракт с Combat Records. Кавер Нэнси Синатры “These Boots Are Made For Walking”, к сожалению, не войдет на диск, поскольку автор песни Lee Hazelwood отказался от передачи прав. [Killing Is My Business…] будет переиздан с новым артворком, созданным Майклом Мюллером. Вступительное слово об альбоме будет написано Скоттом Иэном из "ANTHRAX", также в студию будет приглашен для работы экс-участник Chris Poland...</p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 27.12.2001 news Дэйв Мастейн, лидер MEGADETH объявил о своем сотрудничестве с Брайеном Татлером из DIAMOND HEAD.
+
+<p>Согласно официальному заявлению Татлера, в начале следующего года дуэт отправится в студию для записи материала, который будет издан в конце 2002 года, возможно с помощью Sanctuary/Metal-Is Records. <BR> <BR> Сейчас DIAMOND HEAD завершают запись нового акустического EP, на который вошли новые версии старых хитов группы: “Run,” “Heat Of The Night,” “Lightning To The Nations,” “Ishmael.” Это первая запись группы в оригинальном составе с 1983 года. Новый студийный альбом группы ожидается в следующем году.</p>
+
+Автор: Tornado
+
+### 03.01.2002 news Переиздание Killing Is My Business...
+
+<p>Ремикшированная и ремастерированная версия дебютника "MEGADETH" - "Killing Is My Business...And Business Is Good!" выйдет на "Loud Records" 5-го февраля. Трек-лист: <BR><BR> <IMG SRC="/images/news_rus/2002.01/2247.jpg" ALT="pho" width="170" height="170" hspace="15" vspace="5" border="1" align="right" /> 01. Last Rites/Loved To Death <BR> 02. Killing Is My Business...And Business Is Good! <BR> 03. Skull Beneath The Skin <BR> 04. Rattlehead <BR> 05. Chosen Ones <BR> 06. Looking Down The Cross <BR> 07. Mechanix <BR> 08. Last Rites/Loved To Death (demo version) <BR> 09. Skull Beneath The Skin (demo version) <BR> 10. Killing Is My Business...And Business Is Good! (demo version) <BR> 11. Mechanix (demo version)<BR><BR> Из других новостей, пока еще не названный "живой" диск записанный в ноябре 2001 на концерте в Аризоне выйдет в Японии 13-го марта через Victor Entertainment. Вскоре после этого ожидается американский релиз на Sanctuary....</p>
+
+Автор: Yermola
+
+### 03.01.2002 news MEGADETH Set To &quot;Kill&quot; Again In February ...
+
+<p>The remixed and remastered version of MEGADETH's debut CD, Killing Is My Business...And Business Is Good! , which was issued in its original form back in 1985, will be released through Loud Records on February 5th. While the official track listing for the reworked edition does not include MEGADETH's cover of the Nancy Sinatra classic “These Boots Are Made For Walking” (a result of original writer of the song Lee Hazelwood's refusal to grant the group the rights to re-release the version of the track that previously appeared on Killing…, seeing as it contained slightly altered lyrics to the original, thereby requiring Hazelwood's consent), recent postings by MEGADETH mainman Dave Mustaine hint that the bleeped-out version of the track (minus Mustaine's altered lyrics) may in fact appear as a hidden, “bonus” cut on the CD. In addition to the album's remaining cuts, the CD will contain a remixed version of MEGADETH's original three-song demo tape, including the tracks “Last Rites/Loved To Death”, “The Skull Beneath The Skin” and “The Mechanix”, which landed the band their record deal with Combat Records. Also set to appear on the final product, according to a track listing posted at www.bestbuy.com, is a demo version of the album's title track, which was presumably recorded in 1984 prior to the tracking of the LP, but was not part of the aforementioned demo which was widely distributed via the tape-trading circuit at the time of the cassette's release.<BR><BR> The official full track listing for the remastered version of Killing Is My Business...And Business Is Good! (the cover for which can be viewed at this location) is as follows:<BR><BR><IMG SRC="/images/news_rus/2002.01/2247.jpg" ALT="pho" width="170" height="170" hspace="15" vspace="5" border="1" align="right" /> 01. Last Rites/Loved To Death <BR> 02. Killing Is My Business...And Business Is Good! <BR> 03. Skull Beneath The Skin <BR> 04. Rattlehead <BR> 05. Chosen Ones <BR> 06. Looking Down The Cross <BR> 07. Mechanix <BR> 08. Last Rites/Loved To Death (demo version) <BR> 09. Skull Beneath The Skin (demo version) <BR> 10. Killing Is My Business...And Business Is Good! (demo version) <BR> 11. Mechanix (demo version)<BR><BR> In other MEGADETH-related news, the group's upcoming, as–yet-untitled double live CD, which was recorded in mid-November in Tucson, Arizona, is tentatively scheduled to be released in Japan on March 13th through Victor Entertainment. A US release will likely follow shortly thereafter through the Sanctuary label.</p>
+
+Автор: Yermola
+
+### 22.02.2002 news Том Арайя: Дэйв Мастэйн это не та персона...
+
+<p>Фронтмэн "SLAYER" Tom Araya поделился в Интервью канадскому изданию "Jam! Showbiz" своим мнением по поводу последних акций Дэйва Мастэйна из "MEGADETH" по объединению металлической комунны. "Мegadeth...попытались попасть в мэйнстрим и неуспешно.... Они хотели заработать денег, но не смогли. Сейчас им приходится заниматься ремастерированием старых вещей, чтобы вернуть обратно аудиторию. А еще Дэйв начал свою кампанию по объединению металлистов. "Пожалуйста, гастролируйте со мной, пожалуйста, гастролируйте со мной! И тогда я смогу вернуть своих слушателей...". Тебе надо бы спросить, а хочет ли металлическое общество объединяться с тобой. Идея общества - прекрасна, но ты не та персона которая сможет сделать это."</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 07.03.2002 news Megadeth&#39;s Live Album
+
+<p>Mega-rockers Megadeth are set to release their first ever live album, Rude Awakening. Their 24-track, double-disc CD will be available on Mar. 19th. <BR> Recorded during their 10-month long “The World Needs A Hero World Tour” in 2001, the album covers the band's entire history and includes classic album tracks, hit singles, rare tracks and fan favorites. Actually, the fans chose the set lists for the tour by means of a poll on the band's official web site Megadeth.com. <BR> The striking artwork (of a man in bed, falling down the side of a skyscraper) for the album was created by Storm Thorgerson, who is best known for his Pink Floyd and Led Zeppelin album covers. <BR> A live DVD will follow on April 9th.</p>
+<P> The track listings are as follows: <BR> Disc One</>
+<P> 1. Dread And The Fugitive Mind <BR> 2. Kill The King <BR> 3. Wake Up Dead <BR> 4. In My Darkest Hour <BR> 5. Angry Again <BR> 6. She Wolf <BR> 7. Reckoning Day <BR> 8. Devil's Island <BR> 9. Train Of Consequences <BR> 10. A Tout Le Monde <BR> 11. Burning Bridges <BR> 12. Hanger 18 <BR> 13. Return To The Hanger<BR> 14. Hook In Mouth</>
+<P> Disc Two</>
+<P> 1. Almost Honest<BR> 2. 1000 Times Goodbye<BR> 3. Mechanix <BR> 4. Tornado Of Souls <BR> 5. Ashes In Your Mouth <BR> 6. Sweating Bullets <BR> 7. Trust <BR> 8. Symphony Of Destruction <BR> 9. Peace Sells<BR> 10. Holy Wars... The Punishment Due</>
+<P></>
+
+Автор: Dimas
+
+### 07.03.2002 news Первый концертный альбом MEGADETH
+
+<p> Мега-рокеры MEGADETH подготовили к реализации концертный альбом под названием "Rude Awakening". Двойной диск содержащий 24 трэка выйдет 19 марта 2002 года. Альбом был записан во время десятимесячного тура 2001 года “The World Needs A Hero World Tour” . Трэк-лист альбома был составлен по результатам опроса на официальном сайте группы. Кроме того, этот альбом выйдет в DVD-версии 9 апреля 2002 года. Трэк-лист альбома содержит следующие произведения: </p>
+<p> Disc One: </p>
+<p> 1. Dread And The Fugitive Mind<BR> 2. Kill The King<BR> 3. Wake Up Dead<BR> 4. In My Darkest Hour <BR> 5. Angry Again<BR> 6. She Wolf<BR> 7. Reckoning Day<BR> 8. Devil's Island<BR> 9. Train Of Consequences<BR> 10. A Tout Le Monde<BR> 11. Burning Bridges<BR> 12. Hanger 18<BR> 13. Return To The Hanger<BR> 14. Hook In Mouth </p>
+<p> Disc Two: </p>
+<p> 1. Almost Honest<BR> 2. 1000 Times Goodbye<BR> 3. Mechanix<BR> 4. Tornado Of Souls<BR> 5. Ashes In Your Mouth<BR> 6. Sweating Bullets<BR> 7. Trust<BR> 8. Symphony Of Destruction<BR> 9. Peace Sells<BR> 10. Holy Wars... The Punishment Due </p>
+
+Автор: Dimas
+
+### 04.04.2002 news Дэйв Мастэйн уходит из Мегадэт?!?!
+
+<P>Гитарист-вокалист и основатель Megadeth Dave Mustaine заявил о своем намерении покинуть группу. </P></>
+<P>"В первую неделю января 2002 года в Техасе я получил серьезное повреждение нерва левой руки и кисти. Мне был поставлен диагноз "Лучевая невропатология", а точнее пережатие лучевого нерва, - заявил Дэйв, - врачи говорят мне, что на полное выздоровление у меня уйдет не менее года, причем даже тогда они не уверены, насколько полным оно будет на самом деле. Сейчас я каждый день работаю с совершенно замечательной командой врачей и терапевтов и надеюсь, что с божьей помощью я доживу до того дня, когда я снова смогу играть". </P></>
+<P>"Между тем, - продолжает Мустейн, - я решил использовать то время, пока я работаю над восстановлением своей руки, для того чтобы вновь рассмотреть и переоценить свою карьеру и свое будущее. На данный момент я принял решение покинуть Megadeth и попробовать себя в других сферах музыкального бизнеса, в которых я мог бы работать, не играя на своем инструменте". </P></>
+<P>"Все эти годы, что я пел и играл в Megadeth, были совершенно необыкновенными. Я бесконечно благодарен за все те "золотые", "платиновые" и "мульти-платиновые" награды, которые я получил, а также и за многочисленные международные награды. Но я никогда не смогу по достоинству отблагодарить вас, наших фэнов, как прошлых, так и настоящих, за вашу верность и любовь, которые вы пронесли через годы". </P></>
+<P>"Сейчас же главная моя цель получить хотя бы что-то хорошее из этой ужасной ситуации. В первую очередь, я хочу использовать эту возможность для того, чтобы уделить больше времени, внимания и сил моей жене Пэм и моим детям Джастису и Электре. Пэм совершенно героически несла на себе этот груз, пока я был "удаленным" отцом и мужем, сидя в студии или ездя в турне по всему миру. Так что если говорить о моем статусе "золотого" или "платинового" отца, то до этого мне еще далеко, однако я жду не дождусь, когда смогу начать к нему идти". </P></>
+<P>"В заключение я хотел бы попрощаться замечательной строкой из собственной песни с альбома Youthanasia: "A tout le monde, a tous mes amis, Je vous aime, Je dois partir." </P></>
+<P>Дэйв Мустейн, 3 апреля 2002. </P></>
+<P>Текст в оригинале вы можете прочесть на официальном сайте группы <A HREF="http://www.megadeth.com/news/pr/disband.html">www.megadeth.com</A>.</P></>
+<P>Перевод на русский язык: <A HREF="http://metalkings.ru/">TROLL/MetalKings.ru</A></P></>
+
+Автор: Yermola
+
+### 04.04.2002 news DAVE MUSTAINE -- FOUNDER, VOCALIST, LEAD GUITARIST OF METAL PIONEERS MEGADETH -- SUFFERS SERIOUS INJURY, ANNOUNCES DEPARTURE FROM MEGADETH; GROUP DISBANDING AFTER NEARLY 20 YEARS TOGETHER....
+
+<P>During the first week of January, 2002, while Megadeth was on hiatus, in Texas, I suffered an injury which caused severe nerve damage to my left arm and hand. It was diagnosed as Radial Neuropathy - specifically, a "compressed radial nerve." My doctors tell me it will take about a year to make as complete a recovery as I can, and even then, we don't know how complete that is going to be. I am working hard with a great team of doctors and physical therapists daily, and God willing, someday I hope to play guitar again. </P></>
+<P> </P></>
+<P>In the meantime, while I work on rebuilding my arm, I will take this opportunity to reappraise my career and my future. For the time being I have decided to exit Megadeth, and explore other areas of the music business where I might make a contribution without being able to play my instrument. </P></>
+<P> </P></>
+<P>I have had a terrific time singing and playing for you while I was in Megadeth. I am truly grateful for all of the numerous Gold, Platinum, and Multi-Platinum Records I have been awarded, as well as the many International Record Awards. And I can never thank you, our fans past and present, enough for your loyalty and affection over the years. </P></>
+<P> </P></>
+<P>My immediate goals now are to do what I can to make something good come out of this terrible situation. First and foremost, I want to use this opportunity to devote more time, energy and attention to my wife Pam and my two children, Justis and Electra. Pam has done a wonderful job carrying the load while I was a long-distance husband and father in the studio or criss-crossing the world on tour, but in terms of being a Gold or Platinum parent, I have a long way to go, and I'm eager to get started. </P></>
+<P> </P></>
+<P>In closing I would like to depart with the beautiful French words I wrote on the record 'Youthanasia': "A tout le monde, a tous mes amis, Je vous aime, Je dois partir." (To all the world, to all my friends. I love you, I have to leave) </P></>
+<P> </P></>
+<P>Dave Mustaine April, 3rd, 2002 ============================================================= Megadeth's career has been one of the most spectacular and musically innovative in the history of heavy metal. For nearly 20 years, U.S.-based Megadeth soldiered on under the extraordinary vision of founder, vocalist, lead guitarist and principal songwriter Dave Mustaine. Most recently, the achievements of Mustaine, bass guitarist David Ellefson, lead guitarist Al Pitrelli and drummer Jimmy DeGrasso have occurred as an integral part of the Sanctuary Records Group Roster. For the past two years, Megadeth has undertaken a grueling, worldwide tour and promotion schedule. </P></>
+<P> </P></>
+<P>2001's 'The World Needs a Hero' was Megadeth's Sanctuary Records debut, and it marked a bold return to the band's powerful style after a few albums of controversial experimentation. The successful world tour generated Megadeth's first-ever live album; the double live CD 'Rude Awakening' was just released on March 19, 2002, and the accompanying DVD and VHS home video hits store shelves on April 9, 2002. Both the 'Rude Awakening' CD and DVD include 24 songs spanning Megadeth's entire career, including everything from classics like "Hangar 18" and "Symphony of Destruction" to 'The World Needs a Hero' highlights like "Dread and the Fugitive Mind" and "Burning Bridges." Last year, Megadeth was the subject of an episode of VH1's enormously popular </P></>
+<P> </P></>
+<P>"Behind the Music" series, and an expanded edition with more than one hour of bonus footage was released on DVD and VHS. "Behind the Music" examined Mustaine's well-documented drug addiction, which he ultimately beat. </P></>
+<P> </P></>
+<P>Mustaine formed Megadeth in 1983, after he was fired from Metallica. This would have been a setback for most people, but not Mustaine. He was determined to start his own group. The music would be uncompromisingly heavy with intricately precise guitar lines, and the lyrics would take an unflinching look at serious subjects like the dark side of humanity and politics. </P></>
+<P> </P></>
+<P>Megadeth's impressive discography follows: </P></>
+<P>1985 - Killing Is My Business ... And Business Is Good! </P></>
+<P>1986 - Peace Sells ... But Who's Buying? </P></>
+<P>1988 - So Far, So Good ... So What? </P></>
+<P>1990 - Rust In Peace </P></>
+<P>1992 - Countdown To Extinction (reached # 2 on the Billboard album charts) </P></>
+<P>1994 - Youthanasia </P></>
+<P>1995 - Hidden Treasures (songs collected from soundtracks and tribute albums) </P></>
+<P>1997 - Cryptic Writings </P></>
+<P>1999 - Risk </P></>
+<P>2000 - Capitol Punishment: The Megadeth Years (greatest hits) </P></>
+<P>2001 - The World Needs A Hero </P></>
+<P>2002 - Killing Is My Business ... And Business Is Good! (remixed/expanded) </P></>
+<P>2002 - Rude Awakening (live) </P></>
+<P> </P></>
+<P>Megadeth alumni include lead guitarists Chris Poland, Jeff Young and Marty Friedman and drummers Gar Samuelson (who has since passed away), Chuck Behler and Nick Menza. </P></>
+<P> </P></>
+<P>The musical legacy Megadeth has left behind is impressive. Even mainstream music critics couldn't deny the quality of Megadeth's output, and this respect resulted in seven Grammy Award nominations for Best Metal Performance between 1990 and 1997. </P></>
+<P> </P></>
+<P>These Grammy nominations include: </P></>
+<P>1990 - Rust In Peace </P></>
+<P>1991 - "Hangar 18" (track from Rust In Peace) </P></>
+<P>1992 - Countdown To Extinction </P></>
+<P>1993 - "Angry Again" (track from 'Last Action Hero' soundtrack) </P></>
+<P>1994 - "99 Ways To Die" (track from 'The Beavis and Butt-head Experience') </P></>
+<P>1995 - "Paranoid" (track from 'Nativity In Black - A Tribute To Black Sabbath') </P></>
+<P>1997 - "Trust" (track from Cryptic Writings) </P></>
+<P> </P></>
+<P>For lovers of heavy metal worldwide, the demise of Megadeth is sad, but they will have nearly two decades worth of music to enjoy for the rest of their lives, and future generations of music fans not yet born will experience the thrill of discovering Megadeth.</P></>
+<P> </P></>
+<P>Source - <A HREF="http://www.megadeth.com/news/pr/disband.html">Official Site</A></P></>
+
+Автор: Yermola
+
+### 08.04.2002 news Эл Питрелли вернулся в SAVATAGE ....
+
+<P>SAVATAGE без объяснения причин уволили гитариста Jack Frost и заменили его вернувшимся Элом Питрелли. Как сказал Frost журналу Brave Words: “[The SAVATAGE] солгали мне... Мне нравилось играть в команде. И мне казалось что это друзья. Когда мы вместе ездили в тур они говорили мне как им нравится играть со мной и строили планы на следующий альбом и фестиваль летом. Если вы это назовете "друзья", то для меня это враги... " </P></>
+<P> </P></>
+<P>Сейчас Фрост собирается сконцентрироваться на проекте SEVEN WITCHES, который в конце Апреля отправляется в европейский тур с ANNIHILATOR....</P></>
+
+Автор: Yermola
+
+### 08.04.2002 news METALLICA&#39;s KIRK HAMMETT: DAVE ELLEFSON Is Not Our New Bass Player ...
+
+<P>Contrary to recent rumors, former MEGADETH bassist Dave Ellefson has not been selected to replace Jason Newsted in METALLICA, according to METALLICA guitarist Kirk Hammett, who made a brief appearance in the members-only chat room of the band's official web site on Friday, April 5th. </P></>
+<P> </P></>
+<P>Hammett reportedly offered no further information about Newsted's possible replacement or the band's ongoing songwriting sessions for their forthcoming studio CD, which is not expected to appear before early 2003. </P></>
+<P> </P></>
+<P>The rumors of Ellefson joining METALLICA gained strength in the past week after a fake Associated Press article was circulated via the Internet that attributed MEGADETH's break-up to Ellefson's decision to link up with Hetfield and co. </P></>
+
+Автор: Yermola
+
+### 08.04.2002 news Former MEGADETH Guitarist Rejoins SAVATAGE ...
+
+<P>SAVATAGE have fired recently-recruited guitarist Jack Frost and have replaced him with returning axeman Al Pitrelli (ex-MEGADETH), according to a report posted at Brave Words. </P></>
+<P> </P></>
+<P>“[The SAVATAGE] guys lied to me,” Frost said. “You can't lie to the fans. </P></>
+<P> </P></>
+<P>“I loved playing in that band. I thought they were friends. We toured together, telling me how much they enjoyed me being in the band, made plans for the next record and the festivals this summer. If that's what you consider 'friends,' then be my enemy. </P></>
+<P> </P></>
+<P>“They call me up and say I'm fired, just like that. </P></>
+<P> </P></>
+<P>“I'm not a drunk or a drug addict. They never complained about the live performances, just the opposite, complimenting me, in the press, about how much renewed energy I brought to the show. So at the end of the day, it was just a decision to bring 'their boy' [Pitrelli] back.” </P></>
+<P> </P></>
+<P>Frost will now reportedly concentrate full-time on SEVEN WITCHES, who are scheduled to kick off a European tour with ANNIHILATOR at the end of April. </P></>
+
+Автор: Yermola
+
+### 18.04.2002 articles DAVE ELLEFSON: I Would Be Honored If METALLICA Asked Me To Join ...
+
+<P>Former MEGADETH bassist Dave Ellefson recently agreed to answer in the written form several questions submitted to him by BLABBERMOUTH.NET regarding MEGADETH's break-up and the bassist's future plans. Here are our questions and his reponses: </P></>
+<P> </P></>
+<P>Question: When did it first become apparent to you that MEGADETH's career was coming to an end? </P></>
+<P> </P></>
+<P>Dave Ellefson: On March 3rd, Dave called me and told me he was quitting MEGADETH. </P></>
+<P> </P></>
+<P>Q: In the official statement announcing the band's split, the break-up was attributed to Dave Mustaine's nerve damage in his left arm and hand brought on by an injury suffered back in January. Were there any other factors that contributed to the group's decision to go separate ways? </P></>
+<P> </P></>
+<P>Dave Ellefson: Well, we didn't decide anything as a group. Dave made the decision to leave and therefore MEGADETH has no frontman. It would be pretty silly to try and continue on without him. </P></>
+<P> </P></>
+<P>Q: An MTV report published immediately after the split was announced suggested that Mustaine's injury was caused during a stint at a rehab in Texas. How was the injury sustained, and did it occur, as some had suggested, as part of a suicide attempt? </P></>
+<P> </P></>
+<P>Dave Ellefson: You'll have to talk with Dave on the personal issues but I can attest that from what he told me it was not a suicide attempt. </P></>
+<P> </P></>
+<P>Q: Some have suggested that Dave Mustaine's increased spirituality and stronger religious faith has been instrumental in his decision to disband MEGADETH. How much of a factor, if at all, were his religious beliefs in the group's break-up? </P></>
+<P> </P></>
+<P>Dave Ellefson: It's pretty difficult to talk about spiritual or religious issues in the media, unless you're STRYPER or SLAYER. I will say that it has been difficult for MEGADETH to grow in recent years while trying to satisfy some fans who seem disappointed that we may sing about anything other than war or devils. </P></>
+<P> </P></>
+<P>Q: Why was it necessary for the band to split up and not simply take a long break to allow Mustaine's arm and hand to heal properly before regrouping and carrying on with the band's affairs? </P></>
+<P> </P></>
+<P>Dave Ellefson: Again it was Dave's decision to leave. However, as his press release stated, there are some other personal issues Dave wanted to tend to, such as his family life, and I can't hold that against him. </P></>
+<P> </P></>
+<P>Q: Have you ever been directly approached with the offer of auditioning for the vacant bassist slot in METALLICA? </P></>
+<P> </P></>
+<P>Dave Ellefson: No, but I would be honored if they asked me. </P></>
+<P> </P></>
+<P>Q: If asked, would you consider trying out for the position? </P></>
+<P> </P></>
+<P>Dave Ellefson: In the last year MEGADETH had a brand new recording contract, album and tour and I certainly felt the need to finish what I started. However, now that MEGADETH is over, and I am essentially a free agent, I'm available to check out any and all situations without anything hanging over my head and yes, I would consider it. </P></>
+<P> </P></>
+<P>Q: Assuming that you don't end up pursuing the bassist position in METALLICA, what are your short-term and long-term plans with regards to your music career? </P></>
+<P> </P></>
+<P>Dave Ellefson: You have to realize that this has all come very suddenly and I was preparing to go into studio/songwriting mode for MEGADETH. I'm always writing and have even done some work with a few people in the last few months as a guest performer/producer on a couple projects. However, these were done with the idea that I was in MEGADETH and would be returning back to work with the group, never as my next musical endeavors away from the band. In fact I've never really had a yearning to do a “solo” career while in MEGADETH. I knew that at some point we'd be on hiatus and that would be the time to step out and do something different. With that said, MEGADETH hasn't performed since November, when we recorded the live Rude Awakening CD/DVD. So on one level it would be fun just to get out and play music for fun with a bunch of friends. You know, something without any career agendas. </P></>
+<P> </P></>
+<P>Q: Several years ago, you were quietly contemplating recording a solo record, and preliminary talks had taken place with James Murphy (TESTAMENT) and John Bush (ANTHRAX/ ARMORED SAINT) to appear on it. Would you be open to revisiting this idea now that you are free from your obligations in MEGADETH? </P></>
+<P> </P></>
+<P>Dave Ellefson: In the past I would start something but I always made exceptions because MEGADETH was on schedules and I never wanted to have any solo work interfere with that, be it from me or any other band member. I always held MEGADETH in the highest priority and esteem. Again, I always felt that there would be a time and a place for other projects, just not while MEGADETH was in full force. </P></>
+<P> </P></>
+<P>If you're in a band I think it's important to "be" in that band and not dilute the coolness of it with a bunch of solo projects from its members. At that point, just be solo artists! </P></>
+<P> </P></>
+<P>With all the recent changes lately, I'm absolutely looking into all avenues because I have a lot of musical ideas that I think people would like to hear from me. The landscape of players and singers has changed since I originally was thinking about it back in the mid 90's so I'll be looking into who's out there and what would be cool to do. </P></>
+<P> </P></>
+<P>One thing I realize is that I got to be in one of the best heavy metal bands ever. I'm certainly not on a mission to "outdo" MEGADETH, because I don't have bitter feelings about our accomplishments. I got to do more in 18+ years with that band than most people get to do in a lifetime. I really look at this as the start of the next chapter of my life wherever and with whomever that may be. </P></>
+<P> </P></>
+<P>Q: Do you think there is any possiblity of MEGADETH reforming at some point in the future and picking up where you left off? </P></>
+<P> </P></>
+<P>Dave Ellefson: One thing I've learned in MEGADETH is not to expect anything as I certainly didn't think we'd be having this conversation about the group's demise right now! If it's meant to be then it will be. If the time is right at some point to regroup then so be it. For now, getting some time away from it will probably be good for everyone. </P></>
+
+Автор: Yermola
+
+### 18.04.2002 articles Дэйв Эллефсон отвечает на вопросы...
+
+<P>Бывший (теперь уже) участник MEGADETH басист Dave Ellefson согласился ответить на вопросы журнала BLABBERMOUTH. </P></>
+<P>Вопрос: Когда ты впервые услышал, что карьера MEGADETH завершается? </P></>
+<P>Dave Ellefson: 3-го марта Dave (Мастэйн) позвонил мне и сказал, что уходит. </P></>
+<P>Вопрос: в официальном заявлении о роспуске группы в качестве причины названо повреждение Мастэйном нерва левой руки в январе. Были ли другие факторы, повлиявшие на решение разойтись? </P></>
+<P>Dave Ellefson: Ну... Мы ничего не решали, как группа. Dave решил уйти и MEGADETH лишились фронтмена. Было бы глупо пытаться продолжать без него. </P></>
+<P>Вопрос: В сообщении MTV вышедшем после вашего распада говорилось, что травма случилась во время нахождения Мастэйна в реабилитационной клинике в Техасе. Как это могло случиться и была ли это попытка самоубийства, как говорили некоторые источники? </P></>
+<P>Dave Ellefson: Об этом вам лучше спросить самого Дэйва, но, насколько мне известно, это не была попытка самоубийства. </P></>
+<P>Вопрос: Некоторые считают, что причиной распада группы являются возросшая духовность Дэйва и его религиозность. Насколько это могло повлиять? </P></>
+<P>Dave Ellefson: Трудно говорить для прессы о духовности или религиозности если только вы не из STRYPER или SLAYER. Я могу сказать, что все эти годы нам было сложно удовлетворять вкусы некоторых фанов, бывших разочарованными если мы пели о чем то другом, кроме войны и дьявола. </P></>
+<p>Вопрос: Почему бы вам вместо роспуска не взять перерыв и не дождаться восстановления руки Мастэйна? </p>
+<P>Dave Ellefson: Это было решение Дэйва &ndash; уйти. Как говорит его пресс-релиз, были и другие личные причины, такие, как его семейная жизнь, и я не вправе решать это за него. </P></>
+<P>Вопрос: Предлагали ли тебе когда нибудь вакантное место басиста в METALLICA? </P></>
+<P>Dave Ellefson: Нет, но это была бы честь для меня. </P></>
+<P>Вопрос: А если спросят ты бы согласился? </P></>
+<P>Dave Ellefson: Последние годы MEGADETH имели новый контракт, альбом и гастроли и я всегда любил доводить до конца то что начинаю. Сейчас с MEGADETH закончено и я свободен попробовать все варианты. Да, я бы согласился попробовать. </P></>
+<P>Вопрос: Подводя итог сказаному, какие у тебя планы по поводу карьеры и музыки? </P></>
+<P>Dave Ellefson: Все что случилось произошло очень внезапно. Я собирался в студию записывать песни для MEGADETH. Я всегда участвовал в записи и полседние несколько месяцев я работал с неколькими проектами как исполнитель/продюссер. В общем-то у меня никогда не возникало желания делать «соло» карьеру вне MEGADETH. Сейчас у нас будет время что-то решить, отступить или вернуться. MEGADETH не выступали живьем с ноября, когда мы записали Rude Awakening CD/DVD. Сейчас было бы забавным поиграть музыку с друзьями. Но без карьерных планов пока. </P></>
+<P>Вопрос: Несколько лет назад ходили слухи что ты работал над сольной записью с James Murphy (TESTAMENT) и John Bush (ANTHRAX/ ARMORED SAINT), не собираешься ли ты вернуться к этой идее, ведь сейчас ты свободен от обязательств перед MEGADETH? </P></>
+<P>Dave Ellefson: Сейчас я собираюсь запустить что-нибудь, но я всегда раньше согласовывался с графиком MEGADETH и я никогда не хотел что-бы моя сольная работа как либо мешала группе или другим участникам. Я всегда ставил для MEGADETH самый высокий приоритет. </P></>
+<P>Если ты в команде, мне кажется, очень важно именно быть в ней, и не делить крутость работы в ней с соло-проектами. С такой точкой зрения и нужно быть соло-артистом! </P></>
+<P>После всех произошедших изменений я открыт для всех дорог и у меня много музыкальных идей, которые как мне кажется люди хотят услышать от меня. </P></>
+<P>Состав музыкантов и певцов сильно изменился с тех пор как я думал об этом в середине 90-х и мне придется искать тех с кем было бы интересно делать это. </P></>
+<P>Одна из вещей которые я сделал была та, что был в лучшей хэви-метал команде всех времен и народов. Я добился того за 18 с небольшим лет в группе чего большая часть людей достигает за всю жизнь. Я смотрю на это как на начало следующей главы в моей жизни где бы и с кем бы это ни было. </P></>
+<P>Вопрос: Как ты думаешь, есть ли возможность реформирования MEGADETH когда либо в будущем? </P></>
+<P>Dave Ellefson: Одной вещи я научился за время в MEGADETH &ndash; не ожидать ничего. Если этому суждено будет случиться это случиться. Если будет подходящее время для воссоединения это произойдет... </P></>
+
+Автор: Yermola
+
+### 29.04.2002 news Экс-Мегадетовцы присоединились к Себастьяну Баху....
+
+<p>Участники MEGADETH бассист David Ellefson и гитарист Al Pitrelli (также SAVATAGE) присоединились к ex-SKID ROW вокалисту Sebastian Bach для серии концертов с 10 по 22 мая. Pitrelli будет временной заменой для постоянного гитариста Баха - Richie Scarlet, который сейчас занят со своей командой MOUNTAIN.</p>
+
+Автор: Yermola
+
+### 29.04.2002 news Ex-MEGADETH Bassist, Guitarist To Join SEBASTIAN BACH&#39;s Touring Line-Up ...
+
+<p>Former MEGADETH bassist David Ellefson and guitarist Al Pitrelli (currently in SAVATAGE) will be joining ex-SKID ROW singer Sebastian Bach and his touring group (which includes former ANTHRAX axeman Paul Crook), for several live shows beginning with a two-night stint at Stone Pony in Asbury Park, New Jersey on May 10-11. The confirmed dates are as follows: <BR><BR> May 10 - Asbury Park, NJ @ The Stone Pony <BR> May 11 - Asbury Park, NJ @ The Stone Pony <BR> May 15 – Towson, MD @ Recher Theatre<BR> May 16 – Wantagh, NY @ Mulcahy's <BR> May 17 – Hartford, CT @ Webster Hall <BR> May 18 - Clifton Park, NY @ Northern Lights <BR> May 22 - New York, NY @ Irving Plaza<BR><BR> Pitrelli will be filling in temporarily for regular Bach guitarist Richie Scarlet, who is currently busy touring with MOUNTAIN. Ellefson's appearance, on the other hand, has yet to be officially confirmed, although several outlets—including Tickets.com—are already advertising it in conjunction with the above-listed dates.<BR><BR> In related news, Bach has confirmed via his official web site that VH1 has pulled the plug on his Forever Wild show following the airing of episode #13 and the cable channel has instead “offered me a brand new show that would air at 4 PM in the afternoon, but would feature much more commercial videos than Forever Wild, so I am not sure if I am going to take them up on [it],” Sebastian wrote.</p>
+
+Автор: Yermola
+
+### 17.05.2002 news WIN FREE MUSIC!!!
+
+<P>WIN FREE MUSIC!!! </P></>
+<P> </P></>
+<P>Spitfire Records and Metal Maniacs presents: </P></>
+<P> </P></>
+<P>..the compilation featuring Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) and MORE. 15 bands, one CD and all you need to do to snag a copy is answer some simple metal trivia questions (below). </P></>
+<P> </P></>
+<P>RULES: Answer the questions. Win the goods. It's THAT simple. ALL ENTRIES MUST BE SENT TO: maniacsmail@yahoo.com or maniacsmail@metalmaniacs.com </P></>
+<P>(any entries sent to this address will not be accepted) </P></>
+<P>or snail mailed to: </P></>
+<P> </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Include your full name, address, phone # and e-mail. All entries must be in by Monday, June 10th. </P></>
+<P> </P></>
+<P>1. Which drummer played on the Megadeth track “Peace Sells”? </P></>
+<P>2. What does Deicide’s Glen Benton have burned into his forehead? </P></>
+<P>3. Crowbar’s Kirk Windstein also performs with which New Orleans supergroup? </P></>
+<P>4. The new Pissing Razors album is called ‘Where We Come From’. Where DO they come from? </P></>
+<P>5. Chris Barnes of Six Feet Under is previously of what band? </P></>
+<P>6. Which South Carolina band opened for Cradle Of Filth on their 2001 North American tour? </P></>
+<P>7. Name five bands Danny Lilker has played in. </P></>
+<P>8. What legendary NYHC band was fronted by Pro Pain’s Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 17.05.2002 news Играйте и выигрывайте!!!
+
+<P>Дорогие маздайцы! Вы можете принять участие в конкурсе проводимом лэйблом Spitfire Records и журналом Metal Maniacs. Если вы правильно ответите на приведенные ниже вопросы то станете обладателем одного из сборника "DERANGED" с участием Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) и др. (всего 15 групп). </P></>
+<P> </P></>
+<P>Все ответы (написанные хорошим английским языком) должны быть посланы на e-mail: maniacsmail@yahoo.com или maniacsmail@metalmaniacs.com </P></>
+<P> </P></>
+<P>Также вы можете послать их по почте: </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Незабудьте вписать свое имя, почтовый адрес, телефон и e-mail. Крайний срок приема ответов - 10-е июня. </P></>
+<P> </P></>
+<P>Вопросы: </P></>
+<P> </P></>
+<P>1. Какой барабанщик играл в треке Megadeth - “Peace Sells”? </P></>
+<P>2. Что любит поджигать Deicide’овский Glen Benton у себя на лбу? </P></>
+<P>3. В какой Нью-Орлеанской супергруппе играет Kirk Windstein из Crowbar? </P></>
+<P>4. Новый альбом Pissing Razors называется ‘Where We Come From’. Так откуда именно они пришли? </P></>
+<P>5. В какой команде раньше участвовал Chris Barnes из Six Feet Under? </P></>
+<P>6. Какая команда из Южной Каролины разогревала Cradle Of Filth в их Северо-американском туре 2001 года? </P></>
+<P>7. Перечислите пять групп в которых играл Danny Lilker? </P></>
+<P>8. В какой легендарной Нью-Йоркской команде выступал фронтмен Pro Pain - Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 13.06.2002 reviews Запоздалое пробуждение
+
+<p>Ставьте на вертушку сразу второй диск. Первый настолько спорный, что… Ставьте второй. </p>
+<p>Недавно команда заявила о самороспуске – таким образом, "Rude Awakening" ("Внезапное пробуждение"), первый концертный альбом группы, превратился в последний "привет" всем фанатам. Ход неплохой, но… MEGADETH стоило проснуться раньше – теперь лишь остается признать, что лучший момент для выхода концертного диска группа проспала. 10 лет назад MEGADETH находились на пике творческой формы, на полках фанатов стояли лишь бескомпромиссные шедевры "Rust In Peace", "Countdown to Extinction" и "Peace Sells". Тогда на концертах звучали только лучшие песни, сыгранные золотым составом – виртуоз гитарных струн Марти Фридмен чего только стоил! Но столь выгодным моментом воспользовались пираты, а не сами музыканты. Время ушло, группа изменилась и сегодня мы имеем остатки былой роскоши, разбавленные посредственными номерами с далеко не самых лучших альбомов MEGADETH, записанных группой в 90-х. </p>
+<p>Вступление – целых два повода уснуть, не сходя с места. Ну кто, кто сказал Дэйву Мастейну, что его новые песни "Dread & Fugitive Mind" и "Kill The King", открывающие этот концертник, превратятся в классику? Да ни за что! Дело было начинают выправлять проверенные временем боевики вроде "In My Darkest Hour", но – "She-wolf" и попытка выдать крутое соло сдвоенных гитар. И снова мимо кассы. В такой вот манере проходит весь первый диск этого двойника. Перевести дыхание, позабыть маты и просто наслаждаться можно только на второй части "Rude Awakening" – просто потому, что здесь MEGADETH играют лишь классические песни, за которые их и любят: тут уж что ни звук, то конфета! </p>
+<p> Такие вот двойственные впечатления. И к общему знаменателю прийти достаточно сложно. Выходит, что, записывая концертник, группа просто не смогла критично оценить свое творчество и напихала в "Rude Awakening" всего – и меда, и дегтя. Цедите сами! Поклонникам MEGADETH сгодится, всем прочим – вряд ли. Даже на дурно записанном пиратами еще в 1993 году неофициальном концертнике "Symphony of Destruction live" группа звучит намного энергичнее и яростнее, маэстро Мастейн полон злости и общается с публикой, как палач с жертвой – именно такой и должна быть группа с названием "Массовое уничтожение"! Радует только тот факт, что записан концертник честно, без халтуры в виде студийных наложений и с технической точки зрения сыграно практически безупречно. Только вот вдохновение и азарт остались где-то за бортом.</p>
+
+Автор: Tornado
+
+### 27.06.2002 news Экс-участники Megadeth ищут вокалиста
+
+<p>Как всем прекрасно известно, группы под названием Megadeth более не существует. Однако оставшиеся не у дел музыканты - David Ellefson, Jimmy DeGrasso, Al Pitrelli и Marty Friedman - с музыкой завязывать не собираются. Более того, они вновь собрались вместе дабы продолжать музыкальную деятельность в рамках новой группы, название которой пока не разглашается. На данный момент Дэвид, Джимми, Эл и Марти ищут пятого участника - вокалиста. Вряд ли он окажется россиянином, но всё же... - всем заинтересованным лицам предлагается связаться с Entertainment Services, Ltd. по следующему адресу: Entertainment Services Unlimited, Main Street Plaza 1000, Suite 303, Voorhees, NJ 08043</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.09.2002 news Новости от Дэйва Эллефсона....
+
+<p><IMG SRC="/images/news_rus/2002.09/3111.gif" ALT="pho" width=350 height=212 hspace="15" vspace="5" border="1" align="left"> После распада "MEGADETH" бывший бассист David Ellefson основал свою компанию "Ellefson Music Production" и уже успел помикшировать и попродюссировать демки некоторых металловых групп. Одна из них - "TWIST DEAD FABLE" уже подписала контракт с Aezra Records и зимой будет выпускать альбом. Все восемь песен были приготовлены при непосредственном участии Дэйва.</p>
+
+Автор: Yermola
+
+### 03.09.2002 news Former MEGADETH Bassist Collaborates With TWIST DEAD FABLE, NUMM...
+
+<p>Former MEGADETH bassist David Ellefson — who recently announced the formation of his own music production company, Ellefson Music Production — has been mixing and producing demos from a number of up-and-coming metal acts during the recent months. One of those bands, Phoenix-based TWIST DEAD FABLE, recently signed an Artist Development Deal with Aezra Records and are scheduled to release their debut album in the winter. Eight songs will reportedly be included on the finished CD, three of which were produced by Ellefson. David is also said to have produced several news tracks from Minneapolis' NUMM for an upcoming CD, for which no release date has yet been announced.<BR><BR> <IMG SRC="/images/news_rus/2002.09/3111.gif" ALT="pho" width=350 height=212 hspace="15" vspace="5" border="1" align="left"> NUMM are scheduled to perform a show at Urban Wildlife Club in Minneapolis on September 6th. Also appearing on the bill will be 57 STITCH.<BR><BR> In other news, Ellefson recently joined forces with Autographed By The Stars to sell some of his personal belongings. According to ABTS's official web site, "David will be selling from his personal memorabilia, one-of-a-kind items, that until now were NEVER offered to the general public, and will NEVER be offered again. This is your one-time opportunity to own any of these items from his personal memorabilia." <BR><BR> Among the items being offered are a jacket worn for the Youthanasia photo shoot & tour, which David also wore in the photo on the back cover of his book Making Music Your Business ($199), a signed harmonica ($25), a signed cymbal ($60), autographed acoustic guitar ($250), and David's personal tour laminate from the Brazil Tour 1997 with QUEENSRџCHE and WHITESNAKE ($30). <BR><BR> Also on the Ellefson front, a photo of David jamming with ex-MEGADETH guitarist Marty Friedman during the August 11th recording sessions for STEVE RICHARDS' version of the BUDDY HOLLY track "That Makes It Tough" (on which David and Marty guested) can be viewed at this location.</p>
+
+Автор: Yermola
+
+### 22.10.2002 news Новости Дэйва Элефсона...
+
+<p>Экс-Мегадэтовец David Ellefson стал новым менеджером американской команды "BEFORE BRAILLE". Группа недавно выпустила дебютный альбом "The Rumor" на Aezra Records. Больше информации и сэмплы песен можно найти на официальном сайте <A HREF="http://www.beforebraillemusic.com/">BEFORE BRAILLE ... </A> <BR> <BR> Кроме того, Элефсон закончил продюссирование песен Минеаполисского акта "NUMM" и сейчас помогает найти контракт на запись. Почитать подробнее о NUMM можно <A HREF="http://www.nummrock.com/">здесь....</A></p>
+
+Автор: Yermola
+
+### 22.10.2002 news Former MEGADETH Bassist Takes On Management Duties ....
+
+<p>Former MEGADETH bassist David Ellefson has signed on as the manager of a Mesa, Arizona-based "alternative" act called BEFORE BRAILLE. The group, who recently issued their debut album, "The Rumor" through Aezra Records, are set to perform at The Continental in New York City on Thursday, October 31 as part of CMJ Music Marathon 2002. <BR><BR> To get more information on BEFORE BRAILLE and to download samples of their music, check out the group's official web site at <A HREF="http://www.beforebraillemusic.com/">this location. </A><BR><BR> In other news, Ellefson recently finished producing a few tracks for Minneapolis-based NUMM and is currently using the completed recordings to try and land the group a record deal.<BR><BR> "It was great to be back in my home state of Minnesota," Ellefson stated about the NUMM recording sessions, which took place at Oar Fin Records Studios. "The vibes were great, the music is slammin' and there was a colorful cast of characters surrounding the band, including Kilo Bale, the drummer from FLIPP."<BR><BR> More information on NUMM can be obtained by visiting the band's official web site at <A HREF="http://www.nummrock.com/">this location. </A></p>
+
+Автор: Yermola
+
+### 01.11.2002 reviews Черный юмор рыжего Дейва
+
+<p>Парадокс: MEGADETH перестали существовать, а пластинки группы вдруг посыпались как из рога изобилия. "Still, Alive… and Well?" – уже третий диск MEGADETH (не считая концертного DVD) только в этом году и пятый за последние два. К чему бы это? <BR> Рыжий Дейв Мастейн, лидер MEGADETH, увлекся тем, что стоило сделать давным-давно – изданием концертных записей группы. Решение несколько запоздало (что стоило сделать великолепный концертник в период расцвета группы, лет десять назад – уверен диск попал бы в разряд классических примеров "живого металла"), но все же результат того стоит. Концертное бомбометание у обновленного состава "Массового уничтожения" получалось намного лучше, чем студийная работа – живьем Эл Питрелли (соло-гитара) и Джимми Де Грассо (ударные) не производят впечатления пятого колеса, как в студии.<BR> На первой части "Still, Alive… and Well?" представлено несколько концертных номеров с двух последних выступлений "Массового уничтожения" в январе 2002 года. Из сюрпризов – "The Conjuring" и "Time/Use the Man", не вошедшие в официальный концертник "Rude Awakening". Самое главное здесь – звук и настроение, с которым работает группа: песни звучат на порядок тяжелее и агрессивнее чем на "Rude Awakening", где Мастейн то ли не в настроении, то ли общее сведение звука сделано не очень удачно. Здесь же – классическое металлическое звучание: грубое, напористое и агрессивное. <BR> Вторая часть "Still, Alive… and Well?" – загадка: укороченный вариант прошлогоднего студня "World Needs A Hero", девять песен с которого (из двенадцати) представлены без малейших изменений. Укороченный вариант можно воспринимать как своеобразное извинение за проходные вещи, вошедшие в полную версию альбома – впрочем, и эта "выборка" особого впечатления не производит. Тогда зачем вообще было это делать? <BR> Отдельный разговор – остроумное оформление диска, в котором чувствуется циничный Дейв и его любовь к могильным темам. Описывать это смысла нет – лучше один раз увидеть. Вердикт – работа только для настоящих фэнов MEGADETH. Нет, не так – настоящий подарок поклонникам группы. Всем прочим не беспокоиться.</p>
+
+Автор: Tornado
+
+### 03.04.2003 articles Война слов
+
+<p><B>Бойня в Ираке породила войну мнений во всем мире. Каждый считает долгом высказать умные и не очень мысли насчет Буша, Ирака и прелести демократии, распространяемой с помощью бомб. Коснулась сия напасть и музыкантов - отличный повод посмотреть, у кого из них в голове есть извилины. </B><BR> Война слов началась еще прошлой осенью - тогда Том Морелло (гитарист левацких групп RAGE AGAINST THE MACHINE и AUDIOSLAVE) и Серж Танкян (вокалист SYSTEM OF A DOWN) создали организацию "Огонь правосудия", от имени которой отвечали на все вопросы, связанные с империализмом, эксплуатацией, борьбой за права человека и экспансией США во всем мире. Естественно, все это обильно сдабривалось цитатами из Карла Маркса, речей Че Гевары и примерами из истории. Эта левая пропаганда жутко не понравилась Билли Милано, лидеру старой и бестолковой нью-йоркской команды M.O.D.: "К черту правосудие, пусть эти два миллионера-коммуниста едут в Ирак и там тратят свои миллионы на мир! Да здравствуют бомбы и нефть!". Миллионеры-коммунисты этот выпад проигнорировали, а меломаны прилепили ярлык к Милано - "неофашист". <BR> Вся эта перепалка так и осталась бы в прошлом, но началась война. Как только Буш объявил свой ультиматум, три девицы из DIXIE CHICKS, обладатели "Грэмми", вышли на сцену с плакатами: "Сколько иракцев стоит один галлон нефти?" и "В одной техасской деревне исчез дурачок. Вы его не видели?". Следом среагировал Эминем - парень высказался незамысловато: "Война - фигня, к черту войну, мне не нужны кадры невинных жертв на ТВ - лучше крутите мои клипы!" Поначалу пацифисты вели себя достаточно пассивно, ограничиваясь воспоминаниями об эре хиппи и призывом к миролюбию. Зато их оппоненты показали себя ярыми сторонниками Белого дома и его аргументов. 18 марта Майк Портной, барабанщик великолепной прогрессив-команды DREAM THEATER, начал стыдить всех критиков Буша: "Я не люблю войну. Но то, что было начато 11 сентября, должно быть завершено - США должны разгромить терроризм и защитить свободу! Все, кто против, идите-ка домой и посмотрите еще раз хронику той катастрофы: как горят здания, люди выпрыгивают из окон и рушится символ процветания!". <BR> Как только на головы иракцев посыпались бомбы и кадры войны пошли по ТВ, Фред Дерст, лидер рэпперов LIMP BIZKIT, не удержался от комментариев: "Вы видели это? Сюрреализм какой-то… Я молюсь за народ Ирака и за всех, кто погибнет. Но я молюсь и за победу наших солдат - пусть они скорее возвращаются домой с победой! Не нужно больше протестовать против войны, нужно поддержать нашу страну: вперед, США!". <BR> К числу милитаристов примкнул и Закк Уайлд, гитарист Оззи Осборна: "Войска США будут крушить врагов и господствовать везде! Это лучшая армия в сегодняшнем мире!". Интересно, с какими чувствами этот парень играет с Оззи песни "War Pigs" ("Военные свиньи") и "God thank you for the bomb!" ("Господи, спасибо за бомбу!")? В том же ключе выступил и древний рокер Тед Наджент - мол, во Второй мировой войне вмешательство США помогло спасти миллионы евреев, и на этот раз война поможет спасти невинных! По каким учебникам этот парень учил историю и как он смотрит новости: кого должны спасти американские бомбы? Лучше умереть от оружия свободы, чем жить при диктатуре Хусейна? <BR> В конечном счете большинство американских музыкантов так или иначе поддержали войну. Зато меньшинство принялось активно действовать - Лени Кравиц и R.E.M. отправились в студию писать антивоенные песни, а Зак Де Ла Роша, экс-вокалист RAGE AGAINST THE MACHINE, уже это сделал, назвав при этом Буша палачом, а Серж Танкян и Том Морелло каждый концерт начинают с антивоенных речей. Правда, власти страны образцовой демократии ставят им палки в колеса как могут: с 25 марта на MTV запрещены к показу все песни со словами "Ирак, "война", "бомба" и т.д., а из эфира уже сняты несколько клипов: "Boom!" SYSTEM OF A DOWN и "Holy Wars" MEGADETH (последний, кстати, вышел ровно десять лет назад во время первой иракской войны и содержал жестокие кадры бомбардировок). Хуже всего пришлось группе B-52 - ребята ничего не имеют против войны, но они называются так же, как и бомбардировщики, которые несут 1-тонные заряды свободы иракцам, и потому упоминание этой группы в прессе и эфире сейчас нежелательно… <BR> В Европе иной расклад - антивоенные настроения доминируют. Только шведы MARDUK выпали из общего ряда: "Война не наша проблема - пусть танки действуют!". Зато немцы SODOM в прошлом году выпустили альбом, целиком посвященный американским приемам ведения войны во Вьетнаме - этакий экскурс в историю уничтожения жизни. Теперь эта работа снова актуальна. А их земляки DESTRUCTIОN на днях записали кавер-версию песни британцев THE EXPLOITED с красноречивым названием "Fuck The U.S.A.". <BR> Только Ларс Ульрих, барабанщик METALLICA, высказался наиболее разумно в этой перепалке: "Если ты музыкант и люди слушают твое мнение, это вовсе не значит, что нужно комментировать все подряд. Я уважаю то, что делают Том Морелло и Серж Танкян, всех тех, кто столь эмоционально выступает сегодня по проблеме войны, но я не хотел бы использовать имя METALLICA как трибуну. Читайте газеты, смотрите, что пишут в Интернете, создавайте свое собственное мнение и не слушайте какого-то придурка только потому, что он играет в какой-то рок-группе. Музыканты - не самые умные люди, так что лучше думайте своей головой!". <BR> <B>MAKE MUSIC NOT WAR!</B></p>
+
+Автор: Tornado
+
+### 16.02.2004 news Dave Mustaine записывает новый альбом MEGADETH
+
+<B>Dave Mustaine</B> находится сейчас в студии, где записывает новый альбом <B>MEGADETH</B>, в который войдут песни, написанные им в последнюю дюжину лет. Вместе с ним трудятся&nbsp;барабанщик <B>Vinnie Colaiuta</B> и басист <B>Jimmy Sloas</B>. Альбом будет микшироваться в марте-апреле, а выйдет в конце весны.
+Автор: Vit Belov
+
+### 09.04.2004 news Megadeth опубликовали трэк-лист
+
+<P><B>DAVE MUSTAINE</B> сообщил трэк-лист нового альбома <B>MEGADETH</B>, который выйдет в этом году на <B>Sanctuary</B>.</P>
+<P>01. <B>Blackmail The Universe</B><BR>02. <B>Shadow Of Death</B><BR>03. <B>My Kingdom</B><BR>04. <B>Of Mice And Men</B><BR>05. <B>Truth Be Told</B><BR>06. <B>The Scorpion</B><BR>07. <B>Kick The Chair</B><BR>08. <B>Something That I’m Not</B><BR>09. <B>Tears In A Vial</B><BR>10. <B>Die Dead Enough</B><BR>11. <B>Back In The Day</B></P>
+Автор: Vit Belov
+
+### 10.05.2004 news Megadeth пишут новый альбом
+
+На форуме официального сайта своей группы Dave Mustein доложил, что запись нового альбома движется хорошими темпами. Уже полностью готовы пять песен . Всего же на безымянный (пока) диск планируется поместить 11 композиций: Blackmail The Universe, Shadow Of Death, My Kingdom, Of Mice And Men, Truth Be Told, The Scorpion, Kick The Chair, Something That I'm Not, Tears In A Vial, Die Dead Enough, Back In The Day. Релиз альбома ожидается в сентябре, а пока можно заслушать одну из песен на нашем сайте. Давид также убеждает, что он почти готов возвратиться на сцену с концертами. Неровен час, в поддержку нового релиза Megadeth и в мировое турне отправится.
+Автор: Omon Ra
+
+### 27.05.2004 news Дата издания нового альбом MEGADETH стала известна
+
+<P><B>Dave Mustain </B>сообщил на официальном сайте группы, что новый альбом <B>MEGADETH</B>, название которого пока держится в секрете, выйдет 14 сентября. В тоже время переиздания старых альбомов появятся в продаже 27 июля. Обещается множество бонусов на этих пластинках.</P>
+Автор: Vit Belov
+
+### 19.06.2004 articles Хроника: Счастливые мгновения из жизни Rob Halford – Chris Poland не присоединялся к MEGADETH – Улица имени AC&#x2F;DC – Charlie Benante хочет в предвыборный штаб – Некролог Quorthon – Скупой Glenn Benton и жадная Metalysee
+
+<P><I>Счастливые мгновения из жизни </I><B><I>Rob </I><I>Halford </I></B><I>– </I><B><I>Chris </I><I>Poland </I></B><I>не присоединялся к </I><B><I>MEGADETH </I></B><I>– Улица имени </I><B><I>AC/</I><I>DC </I></B><I>– </I><B><I>Charlie Benante </I></B><I>хочет в предвыборный штаб – Некролог </I><B><I>Quorthon</I></B><I> – Скупой </I><B><I>Glenn Benton </I></B><I>и жадная </I><B><I>Metalysee</I></B><I></I></P>
+<P>Одним из самых значимых событий за последнее время в metal-музыке стало воссоединение <B>JUDAS PRIEST</B>с <B>Rob Halford</B>. В интервью журналу <B>Revolver Rob </B>поделился своими мыслями по поводу этого события. «<I>В 1997 году, когда вышел ‘</I><B><I>Jugulator</I></B><I>’ я подумал, что шансов на воссоединение у нас не осталось. Они выпустили альбом с </I><B><I>Tim </I><I>Owens</I></B><I>, поехали в тур… Я никогда не рассказывал об этом, но ещё во время записи первого альбома </I><B><I>FIGHT</I></B><I> я подумывал о возвращении в </I><B><I>JUDAS </I><I>PRIEST</I></B><I>, я связался с одним человеком, близким к группе, но получил отказ. Мне тогда показалось, что моими бывшими коллегами владело чувство обиды</I>», - рассказывает <B>Rob</B>. Также <B>Halford </B>описал сам момент возрождения группы в классическом составе: «<B><I>Sony</I></B><I> собралась выпустить коллекцию </I><B><I>JUDAS </I><I>PRIEST</I></B><I> на четырёх дисках ‘</I><B><I>Metalogy</I></B><I>’, и мы все вместе собрались, чтобы отобрать песни для этих дисков. Мы сидели на моей кухне, и когда основное дело было кончено, мы посмотрели друг другу в глаза и сказали: «Ну, что Вы думаете о </I><I>re-</I><I>union?». Мы решили, что если это не случится сейчас, это не случится никогда. Все разъехались в разных направлениях, а я сидел дома и повторял: «Я снова в группе! Я снова в группе!»</I>». За всей этой мелодраматической историей заметна тень <B>Sony Music</B>, которым очень выгодно воссоединения «бедного» <B>Halford </B>со своим друзьями-врагами. Альбом будет записан осенью, а в настоящее время группа даёт свои первые концерты в обновлённом составе. Вот сэт-лист одного из них в Ганновере:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2004.06/6633.jpg" width=300 align="right" border=0>01. <B>Hellion</B><SPAN><BR>02. <B>Electric Eye</B> <BR>03. <B>Metal Gods</B> <BR>04. <B>Heading Out to the Highway</B> <BR>05. <B>The Ripper</B> <BR>06. <B>Touch of Evil</B> <BR>07. <B>The Sentinel</B> <BR>08. <B>Turbo Lover</B> <BR>09. <B>Victim of Changes</B> <BR>10. <B>Diamonds and Rust</B> <BR>11. <B>Breaking the Law</B> <BR>12. <B>Beyond the Realms of Death</B> <BR>13. <B>The Green Manalishi (With the Two Pronged Crown)</B><BR>14. <B>Painkiller</B> <BR>Encore:<BR>15. <B>Hell Bent For Leather</B> <BR>16. <B>Living After Midnight</B> <BR>17. <B>United</B> <BR>18. <B>You Got Another Thing Coming</B> </SPAN></P>
+<P><B>MEGADETH </B>записали новую пластинку. В записи <B>Dave Mustain </B>помогал его бывший коллега по группе <B>Chris Poland</B>, который дал на прошлой неделе интервью<B> <SPAN><A href="http://dallasmusicguide.com/" target=_blank><SPAN style="COLOR: #ffffff">Dallas Music Guide</SPAN></A></SPAN></B>, в котором рассказал немного об этой свой работе. «<B><I>Dave</I></B><I> позвонил мне и попросил записать соло для своей новой работы, которая должна была стать либо новым альбомом </I><B><I>MEGADETH</I></B><I>, либо сольной пластинкой </I><B><I>Dave </I><I></I><I>Mustain</I></B><I><SPAN>. Одной из основных причин моего согласия стала наличие за барабанной стойкой <B>Vinnie Colaiuta, </B>фэном которого я являюсь долгое время</SPAN></I>». Также <B>Chris </B>сообщил, что не собирается присоединяться к <B>MEGADETH </B>на постоянной основе, так как в настоящее время он предпочитает играть другой сорт музыки. Вот как <B>Poland </B>описывает будущий альбом <B>MEGADETH</B><SPAN>: «<I>Новая пластинка – это смесь </I></SPAN><B><I>Rust </I><I></I><I>In </I><I></I><I>Peace</I></B><I> и </I><B><I>Peace </I><I></I><I>Sells</I></B><I>… Также есть некоторые черты первого альбома. Многие песни необходимо слушать несколько раз, так как врубиться в них с первого раза тяжеловато. Гитарные партии очень сложные, я не могу вспомнить, что я играл на этом альбоме, для каждой песни собственное сложное соло. Вы можете ожидать нечто подобное, но каждый составит своё мнение после прослушивания этого альбома</I>».</P>
+<P>Почётная, и одновременно забавная, новость пришла из Австралии. По сообщению <B>CNN</B>, власти города Мельбурн собираются переименовать одну из улиц города <B>Corporation Lane </B><SPAN>в (угадайте!!!) <B>AC/DC Lane. </B>«<I>Они, возможно, самая успешная австралийская группа</I>», - говорят в мэрии города. «<I>Рок’н’ролл сообщество города ищет возможность воздать должное группе. Тем более, один из клипов </I></SPAN><I>AC/</I><I>DC<B>"</B></I><B><I>It'</I><I>s </I><I>A </I><I>Long </I><I>Way </I><I>to </I><I>the </I><I>Top"</I></B><I> снимался на улицах Мельбурна</I>», - заканчивают своё выступление государственные деятели. <B>CNN </B>напоминает, что улица имени <B>AC/DC </B>уже есть в Мадриде.</P>
+<P>Бывшие thrash-metal’исты <B>ANTHRAX </B>продолжают привлекать к себе внимание общественности разнообразными высказываниями в прессе. В интервью своему немецкому фэн-клубу все другие заявления, включая мнение музыкантов о новом-старом басисте <B>ANTHRAX Joey Vera</B>, затмили очередные «предвыборные заявления». <B>Charlie Benante</B>: «<I>Я с самого первого дня ненавидел самою мысль, что </I><B><I>Bush</I></B><I> будет нашим президентом. Подобные чувства вселили действия, которые он и его группа идиотов производили. Я американец и горжусь этим, но одна мысль не даёт мне покоя: «Что думают о нас люди со всего мира, если мы выбрали себе такого президента?» Мы не такие, как он!!! Я за мир во всём мире и буду бороться за это</I>». Не иначе, как дела в группе идут не очень хорошо, и <B>Charlie </B>захотел подработать на стороне в предвыборном штабе <B>John Kerry</B>. </P>
+<P>7 июня скончался <B>Thomas "Quorthon" Forsberg </B>лидер и один из основателей <B>BATHORY</B>. У него просто остановилось сердце на сороковом году жизни после многолетней борьбы с сердечным недугом. Таковы скудные подробности случившегося. Многие известные музыканты выступили с заявлением по поводу кончины <B>Thomas</B><SPAN>. Одним из них стал <B>Jonas </B></SPAN><B>Akerlund, </B>который основал <B>BATHORY </B>вместе с <B>Quorthon </B>в начале 80-х, а затем успешно занимался клипмейкерством. Среди исполнителей, работавших с ним, <B>METALLICA, Madonna </B>и <B>U2</B><SPAN>. «<I>Это так грустно. Он мог столько ещё всего написать</I>», - говорит </SPAN><B>Jonas</B>. “<B><I>BATHORY</I></B><I> появились на сцене очень рано, и многие коллективы вдохновлялись песнями </I><B><I>Quorthon</I></B><I>. Парни из </I><B><I>METALLICA</I></B><I> и многие другие группы рассказывали мне, что слушали </I><B><I>BATHORY</I></B><I>. </I><B><I>Quorthon</I></B><I> имел культовый статус. Его не интересовало, что слушают люди, он просто сочинял музыку</I>». Ещё один «некролог» пришёл из Норвегии. <B>Satyr (SATYRICON):</B><SPAN> «<I>Услышать о смерти было очень грустно, ему было всего 39 лет… </I></SPAN><B><I>BATHORY</I></B><I> оказали огромное влияние на меня и </I><B><I>Frost</I></B><I>, когда мы основывали </I><B><I>SATYRICON</I></B><I><SPAN>. Первый кавер, который записала наша группа, был <B>'Born For Burning'. </B>Не многие люди встречались с </SPAN></I><B><I>Quorthon</I></B><I><SPAN>, он был замкнут и не являлся частью норвежской металл-сцены. Мы разговаривали с ним по телефону несколько раз в середине 90-х, и я рад даже такому общению с этой культовой фигурой. В первый раз мы говорили три часа, и я нашёл его очень дружелюбным и приветливым человеком. Наш режиссер клипов <B>Jonas </B></SPAN></I><B><I>A</I><I>kerlund </I></B><I>рассказывал много интересного о своей работе с </I><B><I>Quorthon</I></B><I> над первым альбомом </I><B><I>BATHORY</I><I>. </I></B><I>Спасибо за всё, что ты сделал для музыки, </I><B><I>Quorthon</I></B><I>! Все, зажгите 13 свечей и включите альбом </I><B><I>BATHORY</I></B><I>, чтобы помянуть короля</I>». R.I.P.</P>
+<P>После такой грустной темы надо немного разрядиться, и на этот случай у меня припасена история «<B>DEICIDE и Metalysee Booking Agency</B>». Напомню, что, именно, <B>Metalysee </B>были одним из организаторов приезда в Россию группы <B>MARDUK</B>, отсутствие которой на сцене ДК им. Горбунова повлекло за собой беспорядки среди фэнов и фактическое разорение Эджен Price и его лэйбла <B>Metalagen</B>. Совсем недавно <B>DEICIDE </B>отменили своё турне по Европе. Такое случается, но <B>Metalysee </B><SPAN>не дали спустить это дело на тормозах и выступили с обличительным заявлением. «<I>Вчера, 8 июня, </I></SPAN><B><I>DEICIDE </I><I></I></B><I>скоропостижно отменили свой европейский тур. В этот день они должны были играть в Лондоне, но вместо этого группа ожидала рейса в США в аэропорту Хитроу. Все проблемы начались за неделю до этого, когда </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> потребовал значительного увеличения гонорара за каждое шоу, в противном случае </I><B><I>DEICIDE</I></B><I> отказывались выступать. Мы были вынуждены принять их условия, так как не могли отменить этот тур. Однако 8 июня группа потребовала ещё больших денег. Дошло до того, что они просили двойного увеличения первоначальной суммы. Мы не стали выполнять эти просьбы. Наряду с финансовыми разногласиями </I><B><I>DEICIDE</I></B><I> не понравились условия транспортировки, в автобусе был сломан кондиционер. В конце концов, группа развернулась и улетела домой, оставив три группы, участвующих с ними в трассе, агентов, промоутеров и, конечно же, обманутых зрителей</I>». Ответ <B>Glenn Benton </B><SPAN>не заставил себя ждать: «<I>Во-первых, мы прервали своё сотрудничество с </I></SPAN><B><I>Metalysee</I></B><I> много лет назад, из-за ущемления прав групп, практикуемых на этой фирме. Сейчас мы вновь связались с этой конторой, считая, что многое должно измениться, например, трансферы. Замечу, что мы требовали всего 400 долларов за шоу. Но когда поняли, что за эти деньги нам придётся провести 4 недели в автобусе вместе с ещё 20 людьми, немного расстроились. Теперь автобус… Мы провели ночь на стоянке, дожидаясь его. </I><B><I>Johan</I></B><I> (босс </I><B><I>Metalysee</I></B><I>) врал нам, что он сломался, что неудивительно, когда пытаешься сэкономить на всём, чтобы заработать побольше, не считаясь с удобствами музыкантов. Автобус показался, опоздав на 7 с половиной часов… И у него не было кондиционера. Он не был сломан, его просто не было. Дохлые жучки повсюду, неубранные за прошлой группой помои. В контракте был указан «хороший автобус», этот не был таковым. Это же опасно для здоровья. Я вернулся домой с лёгочной инфекцией. После нескольких часов езды мы все были больны, запах моноксида углерода доконал нас. Я уже говорил </I><B><I>Johan</I></B><I>, что мы не можем путешествовать на подобных автобусах. Поверьте, нам не доставляет удовольствия отменять тур. Дал бы нам другой автобус или хотя бы почистил этот! А так, нам пришлось истратить 5000 долларов своих личных денег, чтобы вернуться домой, и ночевать на полу в аэропорту</I>». <B>Metalysee </B><SPAN>немедленно ответили на эти заявления: «<I>То, что сказал этот парень, может сказать только идиот. Мы работаем с лучшими </I></SPAN><I>black</I><I>-</I><I>death</I><I><SPAN> коллективами и никогда не кидаем своих партнёров. Касаемо транспорта, мы работаем только с лучшим перевозчиком в Европе <B>Starline-De Wit-Gaanon. </B>Мы все просто счастливы, что отделались от </SPAN></I><B><I>DEICIDE</I></B><I>. Многие локальные промоутеры больше не будут работать с этой группой. Посмотрим, какое ещё агентство обеспечит все требования </I><B><I>DEICIDE</I></B><I>: перелёт, трансфер, бэклайн и многое другое. </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> самый отвратительный тип, с которым я работал. Желаю ему, всего наилучшего</I>». Начитавшись подобных заявлений, к схватке присоединился бывший гитарист <B>HADES Dan Lorenzo</B><SPAN>: “<I>Никогда бы не подумал, что поддержу </I></SPAN><B><I>Glenn </I><I></I><I>Benton</I></B><I>. Но, прочитав его заявление, я вспомнил то, о чём редко рассказывал. Одной из главных причин распада </I><B><I>HADES</I></B><I> сразу после европейского тура 1989 года была работа </I><B><I>Metalysee</I></B><I>. У нас было огромное количество народу в автобусе, который был рассчитан всего на 8 человек. Мы не могли никому высказать претензии, так как </I><B><I>Johan</I><I></I></B><I>просто исчез. После 10 дней мучений мы уже решили не продолжать </I><B><I>HADES</I></B><I>, но всё-таки доиграли тур, чтобы не кидать наших фэнов</I>». Многие группы были переломаны под колёсами этого автобуса, который носится по Европе битком набитый отбросами и black-death коллективами. Кстати, теперь понятно, почему <B>MARDUK </B><SPAN>не приехали. Видимо, они были настолько измотаны подобными переездами, что просто не смогли справиться ещё и с нашими неурядицами. Для полноты картины приведу здесь высказывания <B>Евгения Аксёнова (</B></SPAN><B>Metalagen)</B> о несостоявшихся концертах <B>MARDUK</B>: «<I>Я, как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством <B>Metalysee</B>. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали <B>Pro-Pain & Co</B>. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт <B>Marduk & Co</B>. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае, сейчас я просто ничего не соображаю, но <B>Metalagen</B> больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего</I>». </P>
+Автор: Vit Belov
+
+### 20.06.2004 news Dave Mustain набирает концертный состав
+
+<B>Dave Mustain</B> подыскивает музыкантов, с которыми поедет в тур после выпуска нового альбома <B>MEGADETH</B> <B>"The System Has Failed". </B>Уже известно, что на басу будет играть <B>Jimmie Lee Sloas,</B> который участвовал в записи альбома. На место барабанщика <B>Dave</B> будет прослушивать бывшего участника группы <B>Nick Menza</B>, а по поводу места гитариста <B>Dave</B> собирается общаться с <B>Marty Friedman</B>, к которому специально вылетит в Японию.
+Автор: Vit Belov
+
+### 06.07.2004 news Nick Menza снова в MEGADETH!!!
+
+Официально объявлено о возвращении <B>Nick Menza</B> в <B>MEGADETH</B>. "<I>Я очень счастлив вернуться назад, чстобы играть вместе с ГЕНЕРАЛОМ!</I>", - говорит <B>Nick</B>.
+Автор: Vit Belov
+
+### 14.07.2004 articles Хроника: Dave Mustaine поливает всех грязью - Гениальный бизнесмен или истерик
+
+<P>После непродолжительного перерыва мы вновь выискиваем интересные, и не очень, истории из жизни звёзд тяжёлого металла по всему миру.</P>
+<P>Героем прошедших дней стал Dave Mustaine. Как и положено, в захватывающем водевиле ему подпевали несколько других артистов, но начнём с начала. Недавно METALLICA выпустила очередной фильм об истории коллектива ‘Some Kind A Monster’. В нём были использованы материалы и с участием Dave, который был в коллективе на ранней стадии. В интервью британскому журналу Record Collector Mustaine заявил: «Я не очень доволен, что прохожу в этом фильме в течение всего сюжета. Они спросили моего разрешения на использование этих материалов, я отказал. Спрашивается, зачем они спрашивали моего разрешения, если всё равно игнорировали моё мнение?» Репортёр отметил, что Dave подписал бумагу. «Ну и что? Я подписал бумагу 13 сентября 2001 года. В те дни вся Америка ничего не соображала. Я подумывал о совместном проекте с моими бывшими коллегами Lars Ulrich и James Hetfield, но сейчас эта тема закрыта. Это был последний обман. Даже если я встречусь с Lars, всё равно мы не договоримся». Особенно Dave не понравился момент, где они дерутся с Ulrich, и, высказав эту гневную тираду, в которой даже упомянул о подаренном ему на день рождения (13 сентября) Мерседесе, Dave не мог не понимать, что оказал огромную услугу фильму METALLICA, который собрал в первый уик-энд 45000 долларов. Lars Ulrich с благодарностью подхватил эстафету: «Мы не разговаривали с Dave на тему этого фильма, но я надеюсь, что режиссеры Joe и Bruce отослали ему сцены с его участием. По крайней мере, он не слишком протестовал». Неожиданно к раскрутке фильма подключился Kerry King (SLAYER), он подтвердил, что с Mustaine невозможно работать. Напомню, что Kerry провёл некоторое время в MEGADETH, как сессионный концертный гитарист. В интервью Guitar World King сказал: «Я отыграл с MEGADETH пять концертов, но даже если бы я остался, я не провёл бы в группе больше года. Mustaine просто диктатор, я был горд, что он попросил помочь, но после пяти концертов я сказал себе, я в SLAYER и мне больше ничего не надо». </P>
+<P>Также на этой неделе Dave Mustaine просто разоткровенничался и рассказал всё о своих прошлых и нынешних делах в группе, а главное, всё о своих прошлых коллегах по группе.</P>
+<P>«Я расскажу всё, о чём меня так часто спрашивают в интервью. В хронологическом порядке. Почему Nick Menza был уволен? Почему ушёл Marty Friedman? И почему MEGADETH, в конце концов, развалились, когда ушёл я сам? Мы записали ‘Countdown to Extinction’, который занял второе место в чартах, и все мы были очень вдохновлены этим и готовились к записи следующей пластинки. Но у меня возникли проблемы с наркотиками, все члены группы пытались помочь мне, и с их помощью мне удалось покончить с этим. Мы приняли антинаркотический и антиалкогольный закон внутри коллектива. Со временем ‘Youthanasia’ была записана, но из-за внутренних разногласий с самим собой я решил покинуть группу, так как были написаны песни для следующего альбома MEGADETH, я решил выпустить сольник. Capitol (издающий лэйбл, прим. авт.) согласились на мои условия, так как ‘Youthanasia’ тоже попала в чарты, где заняла четвёртое место. Мне дали 250000 долларов, и я записал punk-metal альбом с участием Lee Ving, названный MD.45. Но Capitol совсем не занимались этой пластинкой, потому что их интересовал только MEGADETH. Мой сольник провалился, поэтому я должен был продолжать с MEGADETH и решил записать ‘Cryptic Writings’. Но случилась одна проблема, мы расстались с менеджером Ron Laffite, которому предложили работу на Elektra. Расстались мы очень плохо, он наделал кучу заявлений и рассказал всем о моих проблемах. До сих пор никто не извинился за тот скандал, а он изменил динамику развития MEGADETH навсегда. К нам пришёл новый менеджер Mike Renault, неплохой парень, но у него был друг Bud, который до этого работал с FOREIGNER и захотел превратить MEGADETH в эту группу. Когда я писал альбом менеджмент постоянно давил на меня, и эти ребята присутствует на нём, как «авторы-привидения». Это угнетало меня, и случился разлад между мной и группой. ‘Cryptic’ вышел неплохим, но это уже был не thrash и не speed. Примерно в тоже время, когда вышел ‘Countdown’, вышла ещё одна запись, которая называлась ‘Nevermind’ (видимо, альбом NIRVANA, прим. авт.). С тех пор MEGADETH были на распутье, по какому пути пойти? По альтернативному или металлическому? Вы можете подумать, что мы выбрали альтернативу? Но, честно говоря, пока что мы не выбирали этот путь. Я был доволен результатами ‘Cryptic’, но мой менеджер настоял на том, чтобы выкупить права у BMI и самим заниматься промоцией своей пластинки, так можно было заработать больше денег. Что из этого вышло? ‘Countdown’ – дважды платиновый альбом. ‘Youthanasia’ – просто платиновый. А ‘Cryptic’ всего лишь золотой. Кроме этого, у нас случился разлад с барабанщиком Nick Menza, который повредил ногу, но кроме этого, он имел проблемы с наркотиками, что сказывалось на его игре. Но я не терял контакта с ним, в течение пяти лет мы были очень близки. Затем пришёл DeGrasso, которого я знал по работе в MD.45, но это было не то. Многие говорили мне, что он не подходит для MEGADETH, и я сделал большую ошибку. Но как я мог ошибиться с парнем, который так хорошо играет? Я никому не поверил, и мы начали работу над ‘Risk’. Пока мы работали, Bud писал письма другим членам коллектива, в которых говорил, что вклад их в работу очень маленький. Они естественно злились и вымещали свою злость на мне. Bud хотел нас перессорить, как Али-Баба. По его наущению я работал с Brain Howe (певец BAD COMPANY), а также с какой-то девчонкой, лауреатом Country Music Awards. Это было большим риском, поэтому я и назвал альбом ‘Risk’, потому что догадывался, что этот альбом можно назвать карьерным самоубийством. Когда ‘Risk’ вышел, я был уверен, что альбом великолепен, просто он не был альбомом MEGADETH. По этой причине я обратился к группе с предложением записать металлический альбом. Мне кажется, что это стало причиной ухода из группы Marty. Я уверен, что дело не в моей музыке или лирике, просто Marty нравилось, что мы пошли по альтернативному пути. Плюс ко всему, наш продюсер Dan Huff «воткнул» мне нож в спину, не сообщив Friedman, что стирает его соло, а поверх записывает мои. Я обидел Marty, и разрыв был очень нервным. На его место пришёл Al Pitrelli. Мы начали запись ‘The World Needs A Hero’, но возникли проблемы с Al, который был одним из лидеров в TRANS SIBERIAN ORCHESTRA и SAVATAGE, а здесь лидер уже был. Второе место занимал Ellefson (его Mustaine называет Junior (младший), прим. авт.), а третье DeGrasso, и никто из них не хотел потесниться. Мы пришли с новым альбомом на Capitol и сказали, что хотим разорвать наше соглашение. Боссы сделали нам предложение, мы отдаём им две новых песни, а они выпускают с ними сборник лучших вещей. После этого мы не выпускам новую пластинку в течение девяти месяцев. Я согласился. Но каким-то образом чувак с Capitol Steve Schner разослал сотни промо-копий ‘The World Needs A Hero’ по всему миру. Пока мы ждали 9 месяцев, альбом продавался повсюду, мы даже нашли один диск в магазине в Нью-Йорке. На Napster Вы могли скачать альбом целиком. Поэтому когда он вышел легально, было продано всего 200000 копий. Возможно, это круто для других групп, но не для меня. Я увидел, что всё, что я строил 20 лет, умерло у меня на глазах. Начался разлад, мне не хотелось никого видеть, я начал пить. Я заснул на своей руке (???) и повредил её. Когда я проходил курс лечения, я попросил своего нового менеджера Larry Mazer, дать мне передышку, но он не хотел слушать. Пока я был в больнице, Larry, Junior и другие ребята пошли на Sanctuary и взяли треть бюджета на запись пластинки: 333000 долларов. Когда их там спросили, где Dave, они ответили, что я прохожу терапию с лошадьми. Все прекрасно знали, что я боюсь лошадей, это был какой-то цирк. Когда я вернулся домой, я сказал Larry, что уволил его и распустил MEGADETH. Я предлагал Junior встретиться и показать ему свою руку, но он сказал, что ему хватает того, что я говорю. Когда же при встрече, я попытался что-то ему объяснить, он поблагодарил меня саркастически и начал орать на меня на парковке в присутствие моего сына. Даже после этого я не надрал ему задницу. С Jimmy мне также не удалось поговорить, его подруга назвала меня лжецом и положила трубку. Я опубликовал пресс-релиз и ждал, что, быть может, он позвонит, извиниться за свою подругу, но он и не подумал. Я постоянно пытался наладить контакт с Junior, но он был слишком жесток и забыл, что мы проработали вместе 20 лет, я заботился о нём, платил ему деньги, даже тогда, когда один соло-гитарист и три продюсера хотели выгнать его из группы, потому что он не очень хорош в студии. 18 месяцев спустя я собрался записывать новый альбом и обратился к Ellefson с предложением присоединиться ко мне, я сказал, что собираюсь собрать состав, который записывал ‘Rest In Peace’. Я звонил всем троим и объяснял, что это просто запись, а не полноценный re-union. Я напоминал, что кто-то уже взял 330000 долларов и надо бы их отработать.</P>
+<P>Я рассказал Вам, всё, что случилось в группе. Мне пришлось продать всё своё оборудование, чтобы погасить долг, который ни один из них не вызвался оплачивать. Не переживайте слишком сильно по этому поводу. Junior кинул меня и MEGADETH, но когда Вы увидите Nick и меня снова вместе, всё это уже не будет иметь значения». </P>
+<P>Это не всё, что имел сообщить Dave Mustaine на своём сайте. Кроме прочего, он подробно рассказал, как заснул на руке и торговался о деньгах со своими коллегами. Но мне кажется, уже этой информации достаточно, чтобы понять, что все бывшие участники MEGADETH жадные, неталантливые, сварливые, психованные наркоманы, а Dave Mustaine – талантливый, щедрый, доброжелательный (по лицу не скажешь), спокойный трезвенник, который записал новый альбом MEGADETH, очень напоминающий ‘Rest In Peace’. Также понятно, что Dave активно продвигает вперёд свои финансовые дела, и вся эта ругань с Junior и Lars Ulrich подчиняется желанию продать побольше копий нового альбома, а также переизданных старых альбомов. Уже сейчас можно сказать, что на концертах re-union MEGADETH будут аншлаги, вот только читать подобное о своей любимой группе фэнам не очень приятно. Впечатление, что тебя окунули головой в помои. Что поделать, бедному Mustaine нужно зарабатывать деньги на новый Mercedes, ведь старому уже почти три года.&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 16.07.2004 news Ellefson подал в суд на Mustaine
+
+<P><B>David Ellefson</B> (бывший басист <B>MEGADETH</B>) подал в суд на лидера этого коллектива <B>Dave Mustaine</B>. <B>Ellefson</B> отсуживает 18,5 миллионов долларов. <B>David</B> обвиняет <B>Mustaine</B> в утаивании доходов от royalty и мерчандайзинга группы, а также требует компенсации морального ущерба в размере 10 миллионов за высказывания "Генерала" на своём официальном сайте.</P>
+<P>Краткий конспект сочинения <B>Dave Mustaine</B> Вы можете прочесть на нашем сайте: <A href="/ru/articles/1/52242/">http://musica.mustdie.ru/ru/articles/1/52242/</A></P>
+Автор: Vit Belov
+
+### 07.09.2004 news Новый гитарист MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Dave Mustaine</STRONG> объявил имя нового гитариста <STRONG>MEGADETH</STRONG>, им стал <STRONG>Glen Drover</STRONG> (<B>EIDOLON</B>, ex-<B>KING DIAMOND</B>). </FONT></P>
+Автор: Vit Belov
+
+### 13.09.2004 news James MacDonough перешёл в MEGADETH
+
+<P>Басист <STRONG>James MacDonough</STRONG>&nbsp;официально перешёл из <STRONG>ICED EARTH</STRONG> в <STRONG>MEGADETH</STRONG>.&nbsp;<STRONG>James</STRONG> просто называет <STRONG>MEGADETH</STRONG> своей любимой группой, поэтому он не задумываясь кинул бывших коллег.&nbsp;</P>
+Автор: Vit Belov
+
+### 29.09.2004 reviews Два взгляда на новый альбом MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Вот и вышел новый альбом <STRONG>MEGADETH</STRONG>. Что нам было ожидать от этой пластинки? После скандалов, связанных с травмой руки <STRONG>Dave Mustain</STRONG> и сенсационного возвращения группы с новыми музыкантами, ждать от "рыжего" можно было чего угодно.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже с самого начала <STRONG>Dave </STRONG>начал всем рассказывать, что осознал свои ошибки и готов вернуться к thrash-metal. Косвенным сигналом к этому камбэку стало приглашение гитариста <STRONG>Chris Poland</STRONG>, который записывал с группой альбомы в 80-х, правда,&nbsp;важного значения в написании песен он не имел. Он, вообще, не имел там никакого значения, равно как и другие сессионные музыканты. <STRONG>Mustain</STRONG>, как всегда, решал всё сам, хотя&nbsp;он и старается спихнуть ответственность за неудачи конца 90-х на кого угодно: от продюсеров до коллег-музыкантов. Что ж, возможны два взгляда на <STRONG>'The System Has Failed'</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый, <STRONG>Dave</STRONG> очень расстроился, что не смог много заработать с предыдущими своими альбомами и решил вернуться, в&nbsp;"золотые" для себя (в прямом и переносном смысле), времена, начало 90-х. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Продюсирование альбома, хотя и достаточно рваное, из-за различного состава музыкантов&nbsp;на каждом трэке, больше всего напоминает <STRONG>'Rust In Peace'</STRONG> (слабые колонки не выдерживают этого электрического звука). Соло-гитары звучат также великолепно, как на 90-92.&nbsp;Даже построение песен очень похоже. Единственное отличие, это&nbsp;наличие нескольких "порожняковых" трэков, чего не случалось в те времена. Кстати, <STRONG>Dave Mustain</STRONG> сделал реверанс и в сторону современных тенденций, например, в нескольких песнях присутствуют клавишные, этого представить в&nbsp;thrash раньше было просто невозможно.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Все эти мои доказательства и выводят из тени второй, и по-моему,&nbsp;более правильный взгляд на альбом.&nbsp;Наплевать о чём думал&nbsp;лидер <STRONG>MEGADETH</STRONG>, когда записывал пластинку. Главное, что фэны получили лучший альбом группы за последние 8 лет. Эти самые фэны будут дико довольны (я тоже дико доволен).&nbsp;Бэкграунд забудется, а хороший, даже очень хороший, альбом <STRONG>'The&nbsp;System Has Failed'</STRONG> останется.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Всем фанатам <STRONG>MEGADETH</STRONG> к немедленному приобретению. Вот теперь группа действительно вернулась, надеюсь мы сможем увидеть их в живую ещё раз. Кстати, появилось достаточно хороших песен, достойных попасть в сэт-лист.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[+] -&nbsp;лучший альбом <STRONG>MEGADETH</STRONG> за последние восемь лет, классическое звучание, классическое построение песен, настоящий возврат к корням</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[-] -&nbsp;минусы могут быть только в сравнениями с гениальными альбомами "золотого" периода&nbsp;&nbsp;&nbsp;<BR></P></FONT>
+Автор: Vit Belov
+
+### 15.11.2004 news Nick Menza не выдержал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Nick Menza</STRONG> не смог выдержать оритма турне <STRONG>MEGADETH</STRONG> и по обоюдному согласию покинул <STRONG>Dave Mustain</STRONG> опять. На его место взят барабанщик <STRONG>EIDOLON</STRONG> <STRONG>Shawn Drover</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 13.12.2004 reviews Хороший бизнес – убивать людей наповал. Музыкой.
+
+<P>Killing Is My Business… - дебютник Дэйва Мастейна, покинувшего ряды Metallica ради удовлетворения собственных творческих амбиций. Потенциал "ушельца" оказался довольно высоким, а, кроме того, Мастейн всегда любил изобрести велосипед. Заиграл модный по тем временам трэш, но трэш получился какой-то нетипичный. Иногда вперемежку с фанком, иногда – с заимствованиями из классики рока. При этом барабанщик ухитрялся время от времени демонстрировать джазовую технику, и весь этот джаз абсолютно не выбивался за рамки общей концепции. </P>
+<P>А фэны были убеждены, что Megadeth играли классический трэш. </P>
+<P>Расписывать, что еще такого хорошего есть на этом альбоме – неблагодарное занятие. Дебютник Мастейна – обязательная программа для каждого поклонника тяжелой музыки. Классика. Я лучше расскажу, чего на предлагаемом вам диске нет. Нет кавер-версии Нэнси Синатры This Boots Are Made For Walking. Мастейн подошел к процессу адаптации этой песни настолько творчески, что от оригинала мало что осталось. Авторесса к творческой экспансии Мастейна отнеслась недружелюбно, я бы даже сказал подозрительно. И потащила Рыжего в суд. Суд оказался тоже недружелюбным и подозрительным. Таким образом, трэков на диске осталось семь, а не восемь, как у меня на оригинальном виниле. Жаль. Еще к виниловой версии прилагался плакатик. Злобный Мастейн, Гар Самуэльсон с "лимонкой" в зубах, и все такое. В буклете компакт-диска этой роскоши, увы, нет. Зато у CD, выпущенного Fono, оригинальный, не испохабленный последующим бездарным ремастерингом звук. А это огромный плюс: переиздавать-то теперь будут ремастированную версию. Так что имеет смысл потратиться на оригинальную версию от Fono. Пока не поздно. </P>
+<P>Диск предоставлен <a href=://www.fono.ru">Fono</a>.</P>
+Автор: Ruslan
+
+### 17.01.2005 news Иск к Dave Mustaine отклонён
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, <STRONG>David Ellefson</STRONG> подал иск на<STRONG> Dave Mustaine</STRONG> на 18.5 миллионов долларов, в счёт недовыплаченных роялти. Федеральный суд Манхэттана отклонил иск <STRONG>David</STRONG>. Но тут же в суд подали представители <STRONG>Chris Poland</STRONG>, которые утверждают, что <STRONG>Mustaine</STRONG> не заручился разрешением <STRONG>Poland</STRONG> на добавление трёх демо-записей на недавнее переиздание 'Rust in Peace'.</FONT></P>
+Автор: Vit Belov
+
+### 04.05.2005 news MEGADETH выпускают сборник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>MEGADETH выпускают сборник лучших вещей на Capitol/EMI 28 июня. Песни для этой сборки были выбраны фэнами на официальном сайте группы. На пластинке будут использованы версии с ремастированных версий, которые выходили в прошлом году. На лимитированном издании будет доступен DVD. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Holy Wars...The Punishment Due<BR></STRONG>2. <STRONG>In My Darkest Hour<BR></STRONG>3. <STRONG>Peace Sells<BR></STRONG>4. <STRONG>Sweating Bullets<BR></STRONG>5. <STRONG>Angry Again<BR></STRONG>6. <STRONG>A Tout Le Monde<BR></STRONG>7. <STRONG>Trust<BR></STRONG>8.<STRONG> Kill The King</STRONG><BR>9. <STRONG>Symphony Of Destruction</STRONG><BR>10. <STRONG>Mechanix</STRONG> (2002 Remix)<BR>11. <STRONG>Train Of Consequences</STRONG><BR>12. <STRONG>Wake Up Dead</STRONG><BR>13. <STRONG>Hangar 18<BR></STRONG>14. <STRONG>Dread And The Fugitive Mind<BR></STRONG>15. <STRONG>Skin O' My Teeth<BR></STRONG>16. <STRONG>She-Wolf<BR></STRONG>17. <STRONG>Prince Of Darkness<BR></STRONG>(TRT: 78:15)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Limited Edition Greatest Hits CD/DVD: DVD tracklist<BR>1. "<STRONG>Kill The King</STRONG>" Mega-Mix video (New video, compiled from clips from Megadeth's top music videos)<BR>2. <STRONG>'Megadeth Live'</STRONG> intro screen / Prince Of Darkness<BR>3. <STRONG>Holy Wars...The Punishment Due</STRONG><BR>4. <STRONG>In My Darkest Hour<BR></STRONG>5. <STRONG>Hangar 18<BR></STRONG>6. <STRONG>Sweating Bullets</STRONG><BR>7. <STRONG>Symphony Of Destruction</STRONG><BR>8. <STRONG>Peace Sells</STRONG><BR>9. Preview for <STRONG>Arsenal Of Megadeth</STRONG> (forthcoming 2-DVD Megadeth release)<BR>(TRT: 39:09)</FONT></P>
+Автор: Vit Belov
+
+### 16.05.2005 news Dave Mustaine не хочет DISSECTION
+
+<P><B>DISSECTION </B>вынуждены были отказаться от выступления на <B>Metalist Festival</B> в Израиле, из-за того что <B>Dave Mustaine</B> из <B>MEGADETH</B> отказался выступать на одной сцене с сатанистами. </P>
+<P>Вот отрывок из заявления лидера<B> DISSECTION Jon Nodtveidt</B>: "<I>Также у нас было запланировано совместное выступление с MEGADETH на Fury Fest во Франции. И вот, что я хочу сказать. Mustaine, ты не хочешь нас встречать, потому что боишься реальных оппонентов твоей вере? Мы действительно Сатанисты, настоящие твои враги. Мы антиподы таких трусов, как ты. Если ты по-настоящему верующий человек, встреться с нами во Франции на Fury Fest. Или ты опять заставишь нас отменять выступление</I>?"</P>
+Автор: Vit Belov
+
+### 12.02.2006 news Dave Mustaine уволил басиста
+
+<P><STRONG>MEGADETH</STRONG> расстались с басистом <STRONG>James MacDonough</STRONG>. Интересно, что ещё пять дней назад на официальном сайте группы <STRONG>James</STRONG> рассказывал о своих планах в составе группы.</P>
+Автор: Vit Belov
+
+### 13.02.2006 news MEGADETH назвали нового басиста
+
+<P>Новым басистом<STRONG> MEGADETH</STRONG> стал <STRONG>James Lomenzo</STRONG> (ex-<STRONG>BLACK LABEL SOCIETY</STRONG>, <STRONG>WHITE LION</STRONG>). </P>
+Автор: Vit Belov
+
+### 15.05.2006 news MEGADETH на Roadrunner
+
+<P>По сообщению<STRONG> MTV.com MEGADETH</STRONG> заключили контракт с <STRONG>Roadrunne</STRONG>r. Группа сейчас находится в студии, где пишет новый альбом.</P>
+Автор: Vit Belov
+
+### 20.07.2006 news MEGADETH назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MEGADETH </STRONG>назвали свой новый альбом "<STRONG>United Abominations</STRONG>". По заявлению <STRONG>Dave Mustaine</STRONG>, на нём он хочет вернуться к самому началу своей карьеры.</FONT></P>
+Автор: Vit Belov
+
+### 28.08.2006 news Альбом MEGADETH перенесён
+
+<P><STRONG>MEGADETH</STRONG> перенесли релиз нового альбома "<STRONG>United Abominations</STRONG>" на 2007 год. Напомним, ранее сообщалось, что диск выйдет 31 октября.</P>
+Автор: Vit Belov
+
+### 12.10.2006 news MEGADETH в марте?
+
+<P>В одном из последних интервью лидер<STRONG> MEGADETH Dave Mustaine</STRONG> сообщил, что новый альбом группы выйдет в марте.</P>
+Автор: Vit Belov
+
+### 12.11.2006 articles SATYRICON поражены Россией - Abbath выпускает сольник - Почему METALLICA sucks? - Mustaine: &quot;Kirk Hammett эксплуатирует мои наработки&quot; - WASP дали концерт в Москве
+
+<P><EM>Мы возвращаем «в эфир» эту рубрику, обзорной статьи за неделю. Будем надеяться, что она будет выходить по воскресеньям, а там посмотрим… Всё зависит от вашего интереса к моим рассказам:)</EM></P>
+<P><IMG height=210 alt="" hspace=0 src="/images/articles_rus/2006.11/10869.jpg" width=315 align=left border=5>На минувшей неделе без потерь вернувшиеся из России SATYRICON выступили на своём сайте с рассказом о своей поездке. Вот, что написала группа: «Россия была чертовски крута (fucking blast)!. На шоу в Санкт-Петербурге были распроданы почти все билеты. Сам монументальный город даёт вам чувство того, какой, должно быть, была Россия во времена Советского Союза. В Москве был наиболее аншлаговый концерт в нашей истории. Концерт был задержан почти на 2 часа для того, чтобы все вошли. Великолепная публика и особенные чувства! Мы вернёмся…». Приятно, что очень хорошей норвежской black-metal группе понравилось у нас. Мы даже закроем глаза на то, что самый «несоветский» город России Санкт-Петербург назван «колыбелью советской культуры», радостно, что Satyr и товарищи так идеализируют наше ближайшее прошлое. Предлагаю вам обратить внимание на две ключевые фразы: «самый аншлаговый концерт в истории» и «шоу задержалось на два часа». Это очень лестно SATYRICON и страшно для обычных фэнов. Посетители концертов в Москве очень спокойные люди, и счастье, что Россия не Перу, видимо, из-за своего советского прошлого. DARK FUNERAL уже узнали на своей шкуре, что такое недовольная аудитория, и копят на новое оборудование, а пока отменяют концерты. До каких пор, спрашивается, промоутеры будут продавать в клуб «Точка», в котором комфортно могут разместиться только 1000 человек, билетов в полтора раза больше? Интересно, сколько концертов должно пройти, насколько часов нужно задерживать шоу, чтобы люди просто перестали ходить в этот клуб, опасаясь за своё здоровье. Все возражения о том, что в отсутствие ДК им. Горбунова у нас нет площадок для проведения окупаемых шоу таких групп, как SATYRICON и HELLOWEEN, вряд ли успокоят простого потребителя, заплатившего 1000 рублей за билет. Все знают, что при таком наплыве публики невозможно увидеть, что происходит на сцене, или приобрести кружку пива в баре без того, чтобы тебе не отдавили ноги. В настоящий момент ДКГ на ремонте и не исключается вероятность того, что туда больше не будут пускать рок-концерты. К счастью, на прошедшей неделе было объявлено об открытии нового арт-клуба «Сцена» в помещении ДК им. Зуева, что в Сокольниках. Ближайшие концерты, которые стоит посетить – это 10-летие CATHARSIS, презентация нового альбома MORAY EEL. Поговаривают, что клуб вмещает 1500-2000 человек. Надо сходить посмотреть.</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2006.11/10870.jpg" width=225 align=right border=5>Тем временем, в сети началась глобальная раскрутка нового проекта вокалиста IMMORTAL Abbath с оригинальным названием I. Вот выдержки из интервью «героя дня», опубликованного в греческом веб-зине Metal Temple. «…(о названии группы) Я назвал группу I, потому что не хотел называть её Abbath (смеётся). Я подумал, что это гениальная идея, она пришла в голову Demonaz’у, когда я пытался найти название для группы. Я не хотел называть её ABBATH, хотя это и мой соло-проект…(о первом живом выступлении I) Людям понравилось наше выступление. Мне было слегка не по себе на сцене, потому что я подхватил инфекцию. Мы не смогли отыграть большее количество песен. Также у нас был не очень хороший звук, так как мы не проводили саундчека, но, в общем, всё прошло неплохо… (о песне “Far Beyond the Quiet”, посвящённой Quorthon из BATHORY) На самом деле, когда я сочинял этот трэк, я не хотел, чтобы он звучал, как BATHORY, но так получилось. Demonaz послушал эту песню и сказал, что эта песня могла бы стать неплохим посвящением Quorthon, если он сочинит подходящую лирику. Он большой фэн Quorthon и проделал отличную работу… (о направлении музыки на альбоме) Есть несколько влияний на этой пластинке. Мы искали наше «золотое» прошлое, но в то же время открывали новые двери и делали что-то свежее. Это моё мнение, но я думаю, многие люди с ним согласятся. Многие действительно ждут этот альбом…» Также Abbath сказал, что не планирует масштабного турне с I, но, в общем-то, кому это нужно, если в следующем году будет реформирован IMMORTAL, по крайней мере, в своём концертном варианте. Остаётся добавить, что альбом I выходит в скором будущем на Nuclear Blast и почти сразу появится и в России.&nbsp;&nbsp;&nbsp; </P>
+<P><IMG height=234 alt="" hspace=0 src="/images/articles_rus/2006.11/10871.jpg" width=350 align=left border=5>Самой «забавной» новостью последнего времени стало подведение итогов конкурса “Why METALLICA Sucks”, проведённого в США. Организатор конкурса Jason Ferguson рассказывает: «Объявляя конкурс, я переживал, что мы не будем иметь достаточного количества откликов, но я ошибся (ещё бы, прим. авт.). Основными конкурсантами стали мужчины в возрасте от 25 до 30 лет. Другими словами, основными разочаровавшимися в METALLICA стали люди, которые слушали “Hit The Lights” и “Battery” в школе. Были правда фэны и моложе. Например, один 18-летний пацан написал, что он разочаровался в METALLICA очень давно&#61514; Вот они лауреаты:<BR>Первое место Curtis Meyer (это первый отзыв, самый понятный и самый верный, на наш взгляд): «Я везде слышу, что METALLICA была одной из наиболее влиятельных групп в роке. Но я не могу отрицать их настоящую позицию в «саксачестве» (братство сакеров). Почему METALLICA там? Одиннадцать простых слов: Swizz Beatz featuring Ja Rule and METALLICA, “We Did it again”. (рэп-песня с участием METALLICA, прим.авт.)<BR>А вот мнение второго призёра Sam Randazzo: “Да, они сбрили волосы, используют косметику и едут в тур с cock-monkey группами. Главное не это, а то, что они переросли и устали от металла, но по-прежнему жаждут денег».» Дальше я переводить не в силах, сплошные идиоматические выражения. Сочетания из слов, которые здесь писать нельзя. В общем, конкурсанты, участвующие в борьбе за приз, оказались людьми без чувства юмора и не порадовали нас чем-то оригинальным. Но вопрос поставлен верно. Почему все считают, что METALLICA sucks, а METALLICA продолжает продавать диск “St. Anger” миллионами и собирать стадионы? Если кому есть что сказать, пишите на <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A> .</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/articles_rus/2006.11/10872.jpg" width=200 align=left border=5>Гитарист DIMMU BORGIR Silenoz рассказал в интервью журналу Revolver о будущем альбоме группы, который выйдет в начале 2007 года на Nuclear Blast. «Всё, что я могу сказать, он будет монстром», - заявил музыкант. При записи новой работы DIMMU BORGIR не было ни интенсивной пре-продукции, ни производства демо, как на прошлых двух альбомах. Также в записи не принимал участия оркестр, но Silenoz обещает наиболее эпичное и массивное звучание за всю историю Dimmu. «Наш клавишник Mustis предложил свои идеи, и они добавят эпичности пластинке. Должен отметить, что клавиши на демо-версиях к предыдущей работе “Death Cult Armageddon”звучали более помпезно, чем оркестр в окончательном варианте. Не знаю почему, но это так», - продолжает Silenoz. Пока не названный новый альбом DIMMU BORGIR станет также первым концептуальным альбомом в истории группы. Все песни альбома рассказывают о средневековой Европе, прослеживается зависимость от этой эпохи современных политических и социальных злоупотреблений церкви. Вот, как описывает концепцию Silenoz: «В общем, рассказ ведётся об одном чуваке, работающем помощником священника, в один определённый момент он понимает, что не видит себя в Христианстве. Он, как будто, просыпается и понимает, что есть другие возможности и другие силы. Ну, заканчивается всё тем, что он склоняется к тёмной стороне мира». Напомним, что новая работа DIMMU BORGIR была записана в обновлённом составе. Барабанщиком выступил Hellhammer (MAYHEM, THE KOVENANT и мн. др.)</P>
+<P><IMG height=227 alt="" hspace=0 src="/images/articles_rus/2006.11/10873.jpg" width=300 align=right border=5>Ещё одним мощным PR-щиком самого себя является Dave Mustaine. Нет такой недели, чтобы он не выступил с какими-нибудь заявлениями. Тем более в скором времени на Roadrunner выходит новая работа MEGADETH. Правда, сегодня речь пойдёт не о новой пластинке, а о вещах не менее любимых публикой и самим Дэйвом. В интервью британскому журналу Total Guitar Mustaine рассказал о прошлом MEGADETH и о своих чувствах к своим бывшим коллегам из METALLICA. Во-первых, строках Dave отмёл всяческие сравнения MEGADETH с METALLICA. Особенно смелым это высказывание показалось мне в свете того, что Mustaine отвечал на вопрос о влияниях на него на ранних этапах творчества. В общем, как говорится, намёк понят. На современной сцене лидер MEGADETH не видит оригинальных групп: «Большинство команд на Gigantour (бродячий цирк, организованный самим Dave) мне очень нравятся. Вот только я не перевариваю death-metal вокал. У всех певцов есть хороший голос, но они стесняются петь так, как пел я». Голос Дэйва всегда был, можно сказать, не лучшей, но оригинальнейшей составляющей MEGADETH. Пусть уж лучше death-metal певцы рычат. Mustaine также рассказал, что не следит за творчеством своих товарищей по METALLICA, он не слышал “St. Anger” и даже готов поверить, что этот альбом выдержан в стиле кантри. «Я не помню, когда впервые услышал игру Kirk Hammett, я, вообще, его не услышал, он играл у METALLICA на разогреве. К сожалению, с того времени ничего не изменилось. Он стал знаменит, играя мои соло и используя мои гармонии», - сказал, как ударил, Dave. К нашему спокойствию, Ларса и Джэймса он считает гениями. Развеял Mustaine и ещё один миф о том, что его выгнали из METALLICA за пьянство. «Это грустно было слышать», - возмущается он. Главное же, что его беспокоило, это психическое здоровье собственной семьи, которая страдала от этих слухов. Страдала от слухов, а не от пьянства, это стоит отметить особо.</P>
+<P>P.S.: Самые последние новости: в Москве выступили W.A.S.P. </P>
+<P><IMG height=400 alt="" hspace=0 src="/images/articles_rus/2006.11/10874.jpg" width=300 align=left border=5>Blacky Lawless и компания, выступили в московском клубе Точка. В этот раз американцы дадут сразу два концерта, второй состоится сегодня в клубе Б2. Видимо, из-за этого мудрого решения организаторов из Spika Merchandising, в клубе, в отличие от многих предыдущих концертов, вчера можно было находиться. Публика в количестве 1000 человек компактно заполнила «Точку», всем было всё хорошо видно, но и пустот не ощущалось. К сожалению, пропускная способность «на вход», лимитирующаяся двумя «рамками», по-прежнему невелика. В очереди пришлось стоять 35-40 минут, что, учитывая серьёзно минусовую погоду, расстраивало публику. Забавный случай произошёл, когда один из фэнов задал вопрос охране, почему так медленно движемся. Охранник парировал, мол, все вопросы к организаторам. Организаторами, которым стоило задать нелицеприятные вопросы, по его версии, являлись группа WASP и никто иной. Начало шоу задержалось ровно настолько, чтобы все вошли в зал. Сам концерт порадовал старых поклонников группы. Несмотря на явное физическое нездоровье, выраженное на лице лидера WASP господина Lawless, он «давал жару». Интересно, что мимика Blacky напомнила мне поведение знаменитого рестлера Халка Хогана. Главное, чтобы его на сцене удар не хватил в будущем. Следует также отметить отличный звук, к которому мы ещё не привыкли, всё было настолько чётко, что даже не большие знатоки творчества WASP могли легко распознавать знаменитые шедевры группы.</P>
+<P>На следующей неделе: презентация нового альбомы Ольги Романовой, HAMMERFALL комментируют новый альбом, в Италии закрыли телепередачу за Сатанизм и мн. др.&nbsp; </P>
+Автор: Vit Belov
+
+### 22.01.2007 news MEGADETH - теперь в мае
+
+<P>Лидер <STRONG>MEGADETH Dave Mustaine</STRONG> сообщил на официальном форуме группы, что новейший альбом "<STRONG>United Abominations</STRONG>" выйдет 8 мая. </P>
+Автор: Vit Belov
+
+### 02.02.2007 news Обложка нового MEGADETH
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.02/11252.jpg" width=400 align=left border=5>Roadrunner </STRONG>опубликовал кавер-арт будущего альбома <STRONG>MEGADETH "United Abominations</STRONG>".</P>
+Автор: Vit Belov
+
+### 29.03.2007 news Песня MEGADETH в сети
+
+<P>Как уже сообщалось, в мае нас ждёт новый альбом <STRONG>MEGADETH "United Abominations</STRONG>". Новую старую песню с этого альбома "<STRONG>A Tout Le Monde (Set Me Free</STRONG>)", где <STRONG>Dave Mustaine</STRONG> поёт дуэтом с <STRONG>Cristina Scabbia</STRONG> из <STRONG>LACUNA COIL</STRONG>, можно послушать на сайте <STRONG>Roadrunner</STRONG>: <A href="http://www.roadrun.com/Music/">http://www.roadrun.com/Music/</A></P>
+Автор: Vit Belov
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 24.07.2007 reviews Дэйва надолго не хватило
+
+<P>Dave Mustaine и его группа MEGADETH выпустили второй альбом после возрождения коллектива из пепла. После отличного ре-юнион альбома, записанного с Chris Poland, “United Abominations” стал первой работой в совершенно новом составе, где к MEGADETH имеет отношение только сам Дэйв. К сожалению, положительной динамики здесь не наблюдается.</P>
+<P>Конечно же, новые музыканты не влияли на музыку этой пластинки никак. Искать какие-то параллели между качеством материала и выступающими артистами не стоит. Просто материала у Дэйва на вторую работу не хватило. Не беда, что прошло 2,5 года, идей так и не появилось. При этом “United Abominations” не является экспериментальным альбомом, как “Risk”, например. Он мне больше напоминает “World Needs A Hero”, где звучание «мегадэтовское», но полное отсутствие хитов и запоминающихся соло. Безусловно, и альбом 2001 года нашёл свою аудиторию, но удачным в дискографии MEGADETH его ни один фэн со стажем не назовёт. Также и здесь, мы имеем качественно исполненный неинтересный материал, сыгранный в духе MEGADETH, но начисто лишённый его духа. Нет здесь ни забойных «перегруженных» риффов “Rust In Peace”, ни мелодически-лирических соло “Countdown to Extinction”. Вернее, нет. Рифф есть на «открывашке» “Sleepwalker”, а соло есть в начале следующей песни “Washington Is Next” и всё. Дальше мы имеем одну большую массу, прерываемую ремейком “A Tout Le Monde”, исполненным дуэтом с вокалисткой LACUNA COIL. Наверное, страшный Дэйв смотрится в клипе с очаровательной Кристиной неплохо, но назвать этот «кавер» чем-то интересным язык не повернётся.</P>
+<P>Интересно, что, прослушивая прошлый «System Has Failed», мне казалось, что я просто соскучился по MEGADETH, поэтому и пластинка так понравилась. Улыбаясь, замечал различные «фишечки» от старых хитов группы, но наслаждался этими стилизациями. Новая пластинка доказала, что альбом с Бушем на обложке был очень хорош. Всё познаётся в сравнении.</P>
+Автор: Vit Belov
+
+### 19.11.2007 news David Ellefson помирился с Dave Mustaine
+
+<P><STRONG>David Ellefson</STRONG>, бывший басист <STRONG>MEGADETH</STRONG>, в своём недавнем интервью сообщил, что помирился с основателем <STRONG>MEGADETH</STRONG> и своим бывшим коллегой <STRONG>Dave Mustaine</STRONG>. Дэвид сравнил себя и Дэйва с Ленноном и МакКартни, но всё-таки не исключил возможного воссоединения в будущем.</P>
+<P>Напомним, что Дэвид требовал через суд&nbsp;полтора миллиона долларов со своего друга Дэйва.&nbsp;</P>
+Автор: Vit Belov
+
+### 08.01.2008 news MEGADETH поменяли гитариста?
+
+<P>По неподтверждённой пока информации, <STRONG>MEGADETH</STRONG> покинул гитарист <STRONG>Glen Drover</STRONG>. Он решил сконцентрироваться на своей семье. В качестве его замены называется гитарист <STRONG>Chris Broderick</STRONG> (<B>NEVERMORE</B>, <B>JAG PANZER</B>).</P>
+Автор: Vit Belov
+
+### 30.01.2008 news CD&#x2F;DVD Gigantour 2
+
+<P>22 апреля на<STRONG> Image Entertainment</STRONG> выходит CD/DVD, посвящённый второй части турового фестиваля <STRONG>Gigantour</STRONG>, организованного<STRONG> MEGADETH</STRONG>. Трэк-лист:</P>
+<P>DVD:<BR>01. <B>THE SMASHUP</B> - Effigy<BR>02. <B>SANCTITY</B> - Beneath the Machine<BR>03. <B>INTO ETERNITY</B> - Severe Emotional Distress<BR>04. <B>OVERKILL</B> - Necroshine<BR>05. <B>OVERKILL</B> - Rotten to the Core<BR>06. <B>ARCH ENEMY</B> - We Will Rise<BR>07. <B>ARCH ENEMY</B> - Nemesis <BR>08. <B>OPETH</B> - The Leper Affinity<BR>09. <B>LAMB OF GOD</B> - Vigil<BR>10. <B>LAMB OF GOD</B> - Now You've Got Something to Die For<BR>11. <B>MEGADETH</B> - Take No Prisoners<BR>12. <B>MEGADETH</B> - The Scorpion<BR>13. <B>MEGADETH</B> - Washington is Next!<BR><BR>CD:<BR>01. <B>THE SMASH UP</B> - Rachel's Day <BR>02. <B>SANCTITY</B> - Zeppo <BR>03. <B>INTO ETERNITY</B> - Timeless Winter <BR>04. <B>OVERKILL</B> - Thanks for Nothing <BR>05. <B>OVERKILL</B> - Long Time Dying <BR>06. <B>ARCH ENEMY</B> - Nemesis <BR>07. <B>ARCH ENEMY</B> - We Will Rise <BR>08. <B>OPETH</B> - Window Pane <BR>09. <B>LAMB OF GOD</B> - Vigil <BR>10. <B>LAMB OF GOD</B> - Red Neck <BR>11. <B>LAMB OF GOD</B> - Something To Die For <BR>12. <B>MEGADETH</B> - Take No Prisoners <BR>13. <B>MEGADETH</B> - The Scorpion<BR>14. <B>MEGADETH</B> - Washington Is Next! </P>
+Автор: Vit Belov
+
+### 01.08.2008 news MEGADETH начнут запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MEGADETH </STRONG>войдут в студию осенью для записи нового альбома.</FONT></P>
+Автор: Vit Belov
+
+### 27.08.2008 news Dave Mustaine ведёт переговоры
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Dave Mustaine</STRONG> ведёт переговоры с продюсером <STRONG>Andy Sneap</STRONG> о записи нового альбома <STRONG>MEGADETH</STRONG>. 8 сентября инженер прилетает в Южную Калифорнию для общения с лидером группы. Запись может начаться в собственной студии <STRONG>Dave Mustaine</STRONG> в конце первого месяца осени.</FONT></P>
+Автор: Vit Belov
+
+### 29.12.2008 news Dave Mustaine : &quot;Новые песни - не для радио&quot;.
+
+<P><IMG height=268 alt="" hspace=0 src="/images/news_rus/2008.12/13249.jpg" width=400 align=right border=5>Лидер <STRONG>MEGADETH</STRONG> выступил с еженедельным обновлением на официальном сайте группы. Среди рассказов о новом сайте фэн-клуба и новогодних пожеланий и поздравлений господин<STRONG> Mustaine</STRONG> нашёл время рассказать и о новом альбоме:</P>
+<P>"<EM>Пять из девяти песен для новой пластинки полностью написаны. Эти вещи сочинил полностью я и могу сказать, что они написаны в ключе тех времён, о которых часто вспоминают фанаты. Я не могу сказать, что нас ждёт "Rust in Peace 2", но утверждаю, что все эти пять песен мне очень нравятся, они требуют от меня особых усилий, как от гитариста, и они сочинены не для радио. Радио всё равно не будет нас крутить никогда</EM>".</P>
+<P>Комментарий: "<EM>Который раз Dave вспоминает о "Rust In Peace"? Самое смешное, что на "System Has Failed" он уже приблизился к тому альбому по звучанию. Вероятно, теперь он намекает на то, что приближается к нему и по качеству материала</EM>".</P>
+Автор: Vit Belov
+
+### 05.01.2009 news Glen Drover работает над сольником
+
+<P><IMG height=304 alt="" hspace=0 src="/images/news_rus/2009.01/13288.jpg" width=200 align=right border=5>Бывший гитарист<STRONG> MEGADETH Glen Drover</STRONG> продолжает давать on-line уроки игры и сочиняет материал для сольного альбома. </P>
+<P>"<EM>Я наконец-то начал работу над инструментальным fusion альбомом. Я хотел работать над этой пластинкой с музыкантами высшего калибра, и вот, я их нашёл. Барабанщиком станет <STRONG>Chris Sutherland</STRONG> (<B>KIM MITCHELL</B>, <B>SAGA</B>), а басистом - <STRONG>Paul Yee. </STRONG>Также поучаствуют и приглашённые гитаристы</EM>".</P>
+Автор: Vit Belov
+
+### 07.01.2009 news Артисты Roadrunner опубликовали топы
+
+<P><STRONG>Roadrunner Records</STRONG> опубликовали на своём сайте&nbsp;Top-10 за 2008 год от своих артистов. </P>
+<P><STRONG>Shawn Drover</STRONG> (MEGADETH)<BR>01. <B>CYNIC</B> - Traced in Air<BR>02. <B>TESTAMENT</B> - The Formation of&nbsp;Damnation<BR>03. <B>MESHUGGAH</B> - Obzen<BR>04. <B>CHILDREN OF BODOM</B> - Blooddrunk<BR>05. <B>OPETH</B> - Watershed<BR>06. <B>EVERGREY</B> - Torn<BR>07. <B>BLOTTED SCIENCE</B> - The Machinations of Dementia<BR>08. <B>AIRBOURNE</B> - Runnin' Wild<BR>09. <B>INTO ETERNITY</B> - The Incurable Tragedy<BR>10. <B>BRAIN DRILL</B> - Apocalyptic Feasting<BR><BR><B>Frederic Leclercq</B> (DRAGONFORCE)<BR>01. <B>GUNS N' ROSES</B> - Chinese Democracy<BR>02. <B>DISTURBED</B> - Indestructible<BR>03. <B>SLIPKNOT</B> - All Hope Is Gone<BR>04. <B>CYNIC</B> - Traced in Air<BR>05. <B>CRADLE OF FILTH</B> - Godspeed on the Devil's Thunder<BR>06. <B>ULTRA VOMIT</B> - Objectif Thunes<BR>07. <B>SEBASTIEN TELLIER</B> - Sexuality<BR>08. <B>ALICE COOPER</B> - Along Came a Spider<BR>09. <B>MOTLEY CRUE</B> - Saints of Los Angeles<BR>10. <B>METALLICA</B> - Death Magnetic<BR><BR><B>Matt Heafy</B> (TRIVIUM)<BR>01. <B>COLDPLAY</B> - Viva La Vida<BR>02. <B>COLDPLAY</B> - Prospekt's March<BR>03. <B>MAXIMUM THE HORMONE</B> - Tsume Tsume Tsume<BR>04. <B>LONDON SYMPHONY ORCHESTRA</B> - Mozart's Requiem<BR>05. <B>GOJIRA</B> - The Way Of All Flesh<BR>06. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>METALLICA</B> - Death Magnetic<BR>10. <B>TRIVIUM</B> - Shogun<BR><BR><B>Robb Flynn</B> (MACHINE HEAD)<BR>01. <B>ALL SHALL PERISH</B> - Awaken The Dreamers<BR>02. <B>METALLICA</B> - Death Magnetic<BR>03. <B>TRIVIUM</B> - Shogun<BR>04. <B>WINDS OF PLAGUE</B> - Decimate The Weak<BR>05. <B>LIL WAYNE</B> - The Carter III<BR>06. <B>LA COKA NOSTRA</B> - A Brand You Can Trust<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>WHITECHAPEL</B> - This Is Exile<BR>09. <B>MESHUGGAH</B> - Bleed<BR>10. <B>BLEEDING THROUGH</B> - Sister Charlatan<BR><BR><B>Joel Stroetzel</B> (KILLSWITCH ENGAGE)<BR>01. <B>KINGS OF LEON</B> - Only by the Night<BR>02. <B>RYAN ADAMS AND THE CARDINALS</B> - Cardinology<BR>03. <B>RADIOHEAD</B> - In Rainbows<BR>04. <B>TOMMY EMMANUEL</B> - Center Stage<BR>05. <B>ALL THAT REMAINS</B> - Overcome<BR>06. <B>NICK CAVE AND THE BAD SEEDS</B> - Dig, Lazarus, Dig!!!<BR>07. <B>Augustana</B> - Can't Love (Can't Hurt<BR>08. <B>IN FLAMES</B> - A Sense of Purpose<BR>09. <B>NADA SURF</B> - Lucky<BR>10. <B>RAY LAMONTAGNE</B> - Gossip in the Grain<BR><BR><B>Max Cavalera</B> (SOULFLY; CAVALERA CONSPIRACY; SEPULTURA)<BR>01. <B>BAD BRAINS</B> - Build a Nation <BR>02. <B>DISFEAR</B> - Live the Storm<BR>03. <B>GOJIRA</B> - The Way of All Flesh<BR>04. <B>GOGOL BORDELLO</B> - Gypsy Punks<BR>05. <B>TURBO TRIO</B> - Turbo Trio<BR>06. <B>INCITE</B> - Divided We Fail<BR>07. <B>AGNOSTIC FRONT</B> - Warriors<BR>08. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>09. <B>AGORAPHOBIC NOSEBLEED</B> - Insect Warfare<BR>10. <B>HIRAX</B> - The New Age of Terror<BR><BR><B>Michael Spretizer</B> (DEVILDRIVER)<BR>01. <B>THE BIRTHDAY MASSACRE</B> - Walking With Strangers<BR>02. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>03. <B>MINDLESS SELF INDULGENCE</B> - If<BR>04. <B>ALL THAT REMAINS</B> - Overcome<BR>05. <B>GOJIRA</B> - The Way of All Flesh<BR>06. <B>IN FLAMES</B> - A Sense of Purpose<BR>07. <B>CHILDREN OF BODOM</B> - Blood Drunk<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>RAUNCHY</B> - Wasteland Discotheque<BR>10. <B>TESTAMENT</B> - The Formation of Damnation</P>
+Автор: Vit Belov
+
+### 09.01.2009 news MEGADETH начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После длительной подготовительной работы 7 января <STRONG>MEGADETH</STRONG> начали запись своей новой пластинки с продюсером<STRONG> Andy Sneap</STRONG>. Барабанщик <STRONG>Shawn Drover</STRONG> записал свои партии для&nbsp;двух песен.</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp; </FONT></P>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 22.01.2009 news Новая супергруппа HAIL!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом январе туром по Чили дебютирует новая супергруппа <STRONG>HAIL!</STRONG>, которая будет исполнять кавер-версии знаменитых рок-хитов. В составе: гитарист <STRONG>Andreas Kisser</STRONG> (<B>SEPULTURA</B>),&nbsp;певец <B>Tim "Ripper" Owens</B> (<B>JUDAS PRIEST</B>, <B>BEYOND FEAR</B>, <B>YNGWIE MALMSTEEN</B>, <B>ICED EARTH</B>),&nbsp;барабанщик <B>Jimmy DeGrasso</B> (<B>ALICE COOPER</B>, <B>MEGADETH</B>)&nbsp;и басист&nbsp;<B>David Ellefson</B> (<B>F5</B>, <B>MEGADETH</B>).</FONT></P>
+Автор: Vit Belov
+
+### 23.01.2009 news Первые кадры HAIL!
+
+<P>Мы уже сообщали, о новй супергруппе <STRONG>HAIL!</STRONG> с участием <STRONG>TIM 'RIPPER' OWENS, ANDREAS KISSER </STRONG>и<STRONG> DAVID ELLEFSON. </STRONG>Кадры с шоу в столице Чили Сантьяго можно посмотреть ниже. Вот некоторые песни, которые будут исполняться группой:</P>
+<P>* JUDAS PRIEST - "Grinder"<BR>* BLACK SABBATH - "Neon Knights"<BR>* SEPULTURA - "Territory"<BR>* MOT&#214;RHEAD - "Ace of Spades"<BR>* PANTERA - "Fucking Hostile"<BR>* ACCEPT - "Balls to the Wall"<BR>* BLACK SABBATH - "Paranoid"<BR>* MEGADETH - "Symphony of Destruction"</P>
+<P><STRONG>JUDAS PRIEST - "Grinder"<BR></STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mbFFye9QWXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/mbFFye9QWXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 22.05.2009 news MEGADETH закончили запись
+
+<P>В своём очередном сообщении гитарист <STRONG>Dave Mustaine</STRONG> сообщил, что новый альбом <STRONG>MEGADETH</STRONG> записан. Пластинка ориентировочно выйдет в сентябре.</P>
+Автор: Vit Belov
+
+### 20.06.2009 news MEGADETH назвали альбом
+
+<P>Новый альбом <STRONG>MEGADETH</STRONG>, который выйдет в сентябре на<STRONG> Roadrunner</STRONG>, будет называться <STRONG>"Endgame".</STRONG></P>
+Автор: Vit Belov
+
+### 02.07.2009 news Трэк-лист нового MEGADETH
+
+<P>Новый альбом <STRONG>MEGADETH "Endgame"</STRONG> выходит в сентябре на <STRONG>Roadrunner</STRONG>. Стал известен трэк-лист этой работы:</P>
+<P>01. <B>Dialectic Chaos</B><BR>02. <B>This Day We Fight!</B><BR>03. <B>44 Minutes</B><BR>04. <B>1,320</B><BR>05. <B>Bite The Hand That Feeds</B><BR>06. <B>Bodies Left Behind</B><BR>07. <B>Endgame</B><BR>08. <B>The Hardest Part Of Letting Go... Sealed With A Kiss</B><BR>09. <B>Headcrusher</B><BR>10. <B>How the Story Ends</B><BR>11. <B>Nothing Left To Lose</B></P>
+Автор: Vit Belov
+
+### 28.07.2009 news Обложка нового MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что 15 сентября на <STRONG>Roadrunner</STRONG> выйдет новый альбом <STRONG>MEGADETH "Endgame"</STRONG>. В сети появилась обложка этой пластинки.</FONT></P>
+<P><center><IMG height=400 src="/images/news_rus/2009.07/14733.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 19.08.2009 news Новая песня MEGADETH
+
+<P>Новую песню <STRONG>MEGADETH</STRONG> <STRONG>"1,320' </STRONG>можно послушать на сайте выпускающего лэйбла <STRONG>Roadrunner</STRONG>: <A href="http://www.roadrunnerrecords.co.uk/page/News?news_id=81360">http://www.roadrunnerrecords.co.uk/page/News?news_id=81360</A></P>
+<P>Новый альбом группы <STRONG>"Endgame" </STRONG>выйдет 15 сентября.</P>
+Автор: Vit Belov
+
+### 11.09.2009 news Слушай новый альбом MEGADETH
+
+<P>Новый альбом<STRONG> MEGADETH "Endgame"</STRONG> можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/megadeth">http://www.myspace.com/megadeth</A></P>
+Автор: Vit Belov
+
+### 24.09.2009 news MEGADETH - девятые
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MEGADETH "Endgame"</STRONG> занял девятое место в чартах<STRONG> Billboard</STRONG>. Группа продала 45000 копий своего творения. Это худший результат группы за последние три пластинки. Предыдущая работа <STRONG>"United Abominations" </STRONG>показала 54000 копии, а до этого <STRONG>"The System Has Failed"</STRONG>&nbsp;показал 46000. Вот позиции нового альбома в чартах по некоторым странам:</FONT></P>
+<P>Canada: #4<BR>USA: #9<BR>Australia: #11 <BR>Germany: #21 <BR>U.K.: #24<BR>Italy: #26<BR>Ireland: #27</P>
+Автор: Vit Belov
+
+### 22.10.2009 reviews MEGADETH переосмысливают юность Dave Mustaine
+
+<P>Неукротимый Dave Mustaine продолжает свою духоподъёмную деятельность. После не очень удачного, на мой взгляд, альбома “United Abominations”, сменив гитариста, Dave преподносит нам “Endgame”.</P>
+<P>В творчестве MEGADETH есть один водораздел. Это распад коллектива в 2002 году после релиза “The World Need a Hero”. До этого момента группа была творящей единицей, которая, пусть и ошибалась всё чаще и чаще, на каждом своём альбоме пыталась представить нечто новое. Мы могли бы проследить чёткую линию пути MEGADETH до этого момента. Отдохнув пару лет, Dave отказался от этой парадигмы. Теперь MEGADETH представляют собой заслуженного ветерана, который всё, что хотел, уже сказал и теперь просто подтверждает свой класс. Как и на ранних этапах карьеры, господин Mustaine подтверждает свой высочайший класс не всегда. Первая пластинка после «брэйка» “System Has Failed” была написана для любителей “Rust In Peace” и ради доказательства, что Dave всё ещё умеет играть тяжело. С “United Abominations” вышла промашка, эта музыка влетала в одно ухо, а в другое вылетала. “Endgame” снова подтверждает уровень группы. На этот раз MEGADETH просто играют всё самое лучшее, что умеют. Здесь есть и забойные трэки, и мелодичные хиты более позднего творчества. В общем и целом, альбом не являет собой «откровение», но слушать его в отличие от предшественника можно и нужно.</P>
+<P>Группа MEGADETH уже давно не пытается создать шедевров, что бы Dave Mustaine не заявлял на своём официальном сайте. Основной автор этого коллектива просто переосмысливает свою юность, и это у него достаточно здорово получается. Думаю, поклонники MEGADETH, будут удовлетворены “Endgame”.</P>
+Автор: Vit Belov
+
+### 08.11.2009 news Dave Mustaine хвалится чартами
+
+<P>Лидер <STRONG>MEGADETH Dave Mustaine</STRONG> сообщил, что новый альбом группы "<STRONG>Endgame</STRONG>" стал десятой наиболее долго находящейся в чартах пластинкой группы. В настоящее время альбом в <STRONG>Top 200 Billboard</STRONG> пребывет уже семь недель с самого своего релиза с проданными в сумме 82000 копиями в США. <STRONG>"Endgame"</STRONG> уже обошёл <STRONG>"United Abominations", "The System Has Failed", "Rude Awakening", "The World Needs A Hero" </STRONG>и сравнялся с <STRONG>"Hidden Treasures"</STRONG>. Сравняется с <STRONG>"Risk"</STRONG> и <STRONG>"Back To The Start"</STRONG> на следующей неделе. Самой долгоиграющей новинкой в истории <STRONG>MEGADETH</STRONG> был альбом 1992-го года <STRONG>"Countdown To Extinction"</STRONG>, продержавшийся в чартах 58 недель.</P>
+<P>Между тем,<STRONG> Dave</STRONG> недоволен работой американского подразделения <STRONG>Roadrunner</STRONG>, которое, по его мнению, плохо раскручивает <STRONG>"Endgame"</STRONG>, и он мало продаётся. В прошлом месяце музыкант выступил с резкими заявлениями по этому поводу. По правде сказать, к резким заявлениям <STRONG>Dave Mustaine</STRONG> мы все давно привыкли.</P>
+Автор: Vit Belov
+
+### 12.11.2009 news Dave Mustaine изменился!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В интервью <STRONG>San Diego Reader</STRONG> лидер<STRONG> MEGADETH Dave Mustaine</STRONG> рассказал о том, что изменился. "<EM>Мне больше не нравится унижать людей. Смеяться над людьми и смеяться вместе с ними не одно и то же</EM>", - рассказал "рыжий".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поняв смысл жизни, <STRONG>Dave </STRONG>слушает теперь и соответствующую музыку. "<EM>Я слушаю&nbsp;K-WAVE в своей машине</EM>", - выложил господин <STRONG>Mustaine</STRONG> начистоту. <STRONG>K-WAVE</STRONG></FONT>&nbsp;передают разговоры о Христианстве и соответствующую музыку. Кроме этого, в машине <STRONG>Dave</STRONG> слушает кантри и джазз. "<EM>Также я слушаю радио о политике, потому что я должен быть в курсе. Я могу назвать себя политическим певцом, не активистом, но политическим певцом</EM>".</P>
+<P>Закончил свои излияния лидер<STRONG> MEGADETH</STRONG> следующим изречением: "Я - хороший!"</P>
+Автор: Vit Belov
+
+### 20.11.2009 news Dave Mustaine недоволен Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>MEGADETH Dave Mustaine</STRONG> продолжает высказывать недовольство работой своего лэйбла <STRONG>Roadrunner</STRONG>. <EM>""Endgame" вышел много недель назад, но до сих пор Roadrunner не соизволили проиграть его на радио. Я просил сделать со мной интервью, но и этого не происходит. Я знаю, почему. Этим занимается ОДИН ПАРЕНЬ</EM>", - жалуется <STRONG>Dave</STRONG>.</FONT></P>
+<P>Господин <STRONG>Mustaine</STRONG> не хочет на этом останавливаться. Он собирается встретиться с хозяином <STRONG>Roadrunner </STRONG>и высказать ему всё об этом нехорошем человеке, который тормозит продвижение&nbsp;<STRONG>MEGADETH</STRONG> в массы. "<EM>Я вынужден делать его работу каждый день в каждом городе, я к этому уже привык</EM>", - заканчивает сварливый музыкант.</P>
+Автор: Vit Belov
+
+### 09.02.2010 news David Ellefson вернулся в MEGADETH!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=268 alt="" hspace=0 src="/images/news_rus/2010.02/16202.jpg" width=400 align=right border=5>После нескольких лет судебных тяжб и склок в <STRONG>MEGADETH</STRONG> вернулся оригинальный басист <STRONG>David Ellefson</STRONG>. Музыкант как раз успел к началу юбилейного тура, во время которого<STRONG> MEGADETH</STRONG> будут целиком играть альбом "<STRONG>Rust In Peace</STRONG>", вышедший 20 лет назад. <STRONG>Dave Mustaine</STRONG> сообщил, что они с <STRONG>David</STRONG> продемонстрируют всем свою братскую любовь и всепрощение. На подобной волне настроен и сам <STRONG>David Ellefson</STRONG>, который пытался отсудить у своего "брата" миллион долларов. Но всё это в прошлом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыканты дружно пожелали удачи теперь уже бывшему басисту группы <STRONG>James Lomenzo</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 27.02.2010 news MEGADETH едут к нам!!!
+
+<P><STRONG>MEGADETH </STRONG>опубликовали свои ближайшие туровые планы. Нашлось в них место и России. Группа даст два концерта в клубе <STRONG>Б1 Максимум</STRONG> 13 и 14 июля. </P>
+Автор: Vit Belov
+
+### 21.07.2010 news Подарок любителям хоккея
+
+<P>Ведущий производитель игровых спортивных симуляторов для компьютеров и приставок<STRONG> EA Sports</STRONG> объявил саундтрэк к новой версии <STRONG>NHL 11</STRONG>. Как обычно, в игре можно будет услышать множество интересных композиций с тяжёлой гитарой. Вот их список:</P>
+<P>* <B>IN WHISPERS</B> - "Here I Stand"<BR>* <B>AIRBOURNE</B> - "Bottom Of The Well"<BR>* <B>BULLET FOR MY VALENTINE</B> - "Your Betrayal"<BR>* <B>MEGADETH</B> - "Dialectic Chaos"<BR>* <B>PANTERA</B> - "Walk"<BR>* <B>DANKO JONES</B> - "Full of Regret"<BR>* <B>2 UNLIMITED</B> - "Twilight Zone"<BR>* <B>BLACK Box</B> - "Strike It Up"<BR>* <B>BLACK REBEL MOTORCYCLE CLUB</B> - "Mama Taught Me Better"<BR>* <B>BOUNCING SOULS</B> - "Ole!"<BR>* <B>DARUDE</B> - "Sandstorm"<BR>* <B>DROPKICK MURPHYS</B> - "Shipping Up To Boston (Live)"<BR>* <B>EUROPE</B> - "The Final Countdown"<BR>* <B>FOXY SHAZAM</B> - "Unstoppable"<BR>* <B>RAMONES</B> - "Blitzkrieg Bop"<BR>* <B>THE BLACK KEYS</B> - "Howlin’ For You"</P>
+<P>Создатели игры утверждают, что в этой музыке можно услышать "настоящий звук Национальной Хоккейной Лиги". Это верно. Я даже слышал<STRONG> DIMMU BORGIR</STRONG> на одном из хоккейных матчей за океаном.</P>
+Автор: Vit Belov
+
+### 26.08.2010 news &quot;Большая четвёрка&quot; на DVD и Blu-ray
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17107.jpg" width=300 height=403>Universal Music</STRONG> выпускает&nbsp;двухдисковый&nbsp;DVD "Большой четвёрки", снятый в рамках проходившего в Софии (Болгария) фестиваля "<STRONG>Sonisphere</STRONG>"&nbsp;(22 июня, 2010). Видео, так же, будет издано в формате Blu-ray. Как известно, в концерте приняли участие звёзды thrash metal: <STRONG>METALLICA</STRONG>, <B itxtvisited="1">SLAYER</B>, <B itxtvisited="1">MEGADETH</B>&nbsp;и <B itxtvisited="1">ANTHRAX</B>. Помимо выступлений групп, на&nbsp;дисках можно будет увидеть&nbsp;закулисные съёмки и интервью.</P>
+<P>&nbsp;<B itxtvisited="1">"The Big Four: Live From Sofia, Bulgaria"</B> выйдет 15 октября в Северной Европе, 18 октября большинстве остальных стран и 19 октября в Северной Америке.</P>
+<P>Ко всему прочему, ограниченным тиражём выйдет&nbsp;"Super deluxe"&nbsp;издание,&nbsp;в которое&nbsp;войдут&nbsp;концерт на DVD, 5 компакт дисков с выступлениями участников фестиваля, буклет в 24 страницы, постер, фотографии каждой группы и медиатор "Большой четвёрки".<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 02.12.2010 news Номинанты &quot;Грэмми&quot; за этот год
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2010.12/17727.jpg" width=400 align=right border=0>Объявлены номинанты музыкальной премии<STRONG> "Грэмми"</STRONG> за 2010 год. 53 церемония вручения наград состоится 13 февраля 2011 года в <STRONG>Staples Center</STRONG> в Лос-Анджелесе. </P>
+<P>На звание лучшей 'hard-rock' команды претендуют следующие&nbsp;песни и исполнители:</P>
+<P>* <B>ALICE IN CHAINS</B> - "A Looking In View" (from "Black Gives Way to Blue")<BR>* <B>OZZY OSBOURNE</B> - "Let Me Hear You Scream" (from "Scream")<BR>* <B>SOUNDGARDEN</B> - "Black Rain" (from "Telephantasm")<BR>* <B>STONE TEMPLE PILOTS</B> - "Between The Lines" (from "Stone Temple Pilots")<BR>* <B>THEM CROOKED VULTURES</B> - "New Fang" (from "Them Crooked Vultures")</P>
+<P>На премию в категории "метал" номинированы:</P>
+<P>* <B>IRON MAIDEN</B> - "El Dorado" (from "The Final Frontier")<BR>* <B>KORN</B> - "Let The Guilt Go" (from "Korn III: Remember Who You Are")<BR>* <B>LAMB OF GOD</B> - "In Your Words" (from "Wrath")<BR>* <B>MEGADETH</B> - "Sudden Death" (from "Guitar Hero: Warriors Of Rock")<BR>* <B>SLAYER</B> - "World Painted Blood" (from "World Painted Blood")</P>
+<P>На заветный "граммофон" могут претендовать исполнители, выпустившие новую музыку с 1 сентября 2009 года по 30 сентября 2010 года.</P>
+Автор: Vit Belov
+
+### 29.12.2010 news Итоги 2010 года от артистов лейбла Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Roadrunner</STRONG> опубликовал топ-листы своих сотрудников и некоторых музыкантов лейбла. Среди прочих, там можно отыскать лучшие альбомы 2010 года по мнению:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17981.jpg" width=180 height=180><U>Dave Ellefson</U></STRONG><U> (<STRONG>MEGADETH</STRONG>)</U>:</FONT></P>
+<P>10. <STRONG>MOTORHEAD</STRONG> - The World Is Yours <BR>09. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare <BR>08. <STRONG>THERION</STRONG> - Sitra Ahra <BR>07. <STRONG>SOULFLY</STRONG> - Omen <BR>06. <STRONG>PANTERA</STRONG> - A Decade of Dominance <BR>05. <STRONG>HALFORD</STRONG> - Halford IV, Made of Metal <BR>04. <STRONG>DISTURBED</STRONG> - Asylum <BR>03. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>02. <STRONG>MEGADETH</STRONG> - Rust In Peace Live&nbsp; <BR>01. <STRONG>The Big Four</STRONG>: Live From Sofia, Bulgaria (DVD) </P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17982.jpg" width=180 height=180><U>Joel O’Keeffe</U></STRONG><U> (<STRONG>AIRBOURNE</STRONG>)</U>:</P>
+<P>10. <STRONG>TOM PETTY AND THE HEARTBREAKERS</STRONG> - Mojo<BR>09. <STRONG>JERRY LEE LEWIS</STRONG>&nbsp;- Last Man Standing<BR>08. <STRONG>AC/DC </STRONG>- Backtracks<BR>07. <STRONG>RATT</STRONG> - Infestation<BR>06. <STRONG>BRUCE SPRINGSTEEN</STRONG>&nbsp;- The Promise<BR>05. <STRONG>LYNYRD SKYNYRD</STRONG> - God & Guns<BR>04.&nbsp;<STRONG>KISS</STRONG> - Sonic Boom<BR>03. <STRONG>THE POOR</STRONG> - Round One<BR>02. <STRONG>SLASH</STRONG> - Slash <BR>01. <STRONG>MEAT LOAF</STRONG> - Hang Cool Teddy Bear</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17983.jpg" width=180 height=180><U>Mikael Akerfeldt</U></STRONG><U> (<STRONG>OPETH</STRONG>)</U>: </P>
+<P>10. <STRONG>TEARS FOR FEARS</STRONG> - Seeds of Love<BR>09. <STRONG>TOSHI ICHIYANAGI</STRONG> - Flowers<BR>08. <STRONG>THE DREAM</STRONG> - Get Dreamy<BR>07. <STRONG>YONIN BAYASHI</STRONG> - Isshoku Sokuhatsu<BR>06. <STRONG>SERGE GAINSBOURG</STRONG>&nbsp;- Historie de Melody Nelson<BR>05. <STRONG>PAIN OF SALVATION</STRONG> - Road Salt Pt. 1<BR>04. <STRONG>THE CHURCHILLS</STRONG> - s/t<BR>03. <STRONG>VASHTI BUNYAN</STRONG> - Just Another Diamond Day<BR>02. <STRONG>WIL MALONE</STRONG> - Wil Malone <BR>01. <STRONG>DAVID CROSBY</STRONG> - If I Could Only Remember My Name</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17984.jpg" width=180 height=180><U>JB</U></STRONG><U> (<STRONG>GRAND MAGUS</STRONG>)</U>:</P>
+<P>10. <STRONG>PAUL GILBERT</STRONG> - Fuzz Universe<BR>09. <STRONG>JOHN NORUM</STRONG> - Play Yard Blues<BR>08. <STRONG>CATHEDRAL</STRONG> - The Guessing Game<BR>07. <STRONG>DARKTHRONE</STRONG> - Circle The Wagons<BR>06. <STRONG>WITCHERY</STRONG> - Witchkrieg<BR>05. <STRONG>SPIRITUAL</STRONG> <STRONG>BEGGARS</STRONG> - Return To Zero<BR>04. <STRONG>WATAIN</STRONG> - Lawless Darkness<BR>03. <STRONG>NECRONAUT</STRONG> - Necronaut<BR>02. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>01. <STRONG>UNLEASHED</STRONG> - As Yggdrasil Trembles</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17985.jpg" width=180 height=180><U>Steven Wilson</U></STRONG><U> (<STRONG>PORCUPINE TREE</STRONG>)</U>:</P>
+<P>10. <STRONG>MASSIVE ATTACK</STRONG> - Heligoland<BR>09. <STRONG>NECRO</STRONG> <STRONG>DEATHMORT</STRONG> - This Beat is Necrotronic<BR>08. <STRONG>OCEANSIZE</STRONG> - Self Preserved While the Bodies Float Up<BR>07. <STRONG>SALEM</STRONG> - King Night<BR>06. <STRONG>CHROME HOOF</STRONG> - Crush Depth<BR>05. <STRONG>LCD</STRONG> <STRONG>SOUNDSYSTEM</STRONG> - This is Happening<BR>04. <STRONG>ORGANUM</STRONG> - Sorow<BR>03. <STRONG>FOALS</STRONG> - Total Life Forever<BR>02. <STRONG>HANS ZIMMER</STRONG> - Inception Soundtrack <BR>01. <STRONG>SHEARWATER</STRONG> - The Golden Archipeligo</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17986.jpg" width=180 height=180><U>Matt Heafy</U></STRONG><U> (<STRONG>TRIVIUM</STRONG>)</U>:</P>
+<P>10. <STRONG>RATATAT</STRONG> - LP4<BR>09. <STRONG>VAMPIRE WEEKEND</STRONG> - Contra<BR>08. <STRONG>ANIMALS AS LEADERS</STRONG>&nbsp;- Wave Of Babies<BR>07. <STRONG>AS I LASY DYING</STRONG> - The Powerless Rise<BR>06. <STRONG>A DAY TO REMEMBER</STRONG> - What Separates Me From You<BR>05. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare<BR>04. <STRONG>MY CHEMICAL ROMANCE</STRONG> - Danger Days...<BR>03. <STRONG>STONE SOUR</STRONG> - Audio Secrecy<BR>02. <STRONG>BLIND GUARDIAN</STRONG> - At The Edge Of Time <BR>01. <STRONG>TIMES OF GRACE</STRONG> - The Hymn Of A Broken Man</P>
+Автор: Headcrusher
+
+### 10.04.2011 news Dave Mustaine о своей любимой песне SLAYER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19130.jpg" width=300 height=394>В преддверии фестиваля <STRONG>"Big Four"</STRONG> в городе Индио (Калифорния, С.Ш.А.) 23 апреля, журнал <STRONG>Revolver</STRONG> выпустил специальный номер, посвящённый <STRONG>"Большой четверке"</STRONG>, в котором в хронологическом порядке проследил историю одних из самых легендарных групп жанра thrash metal. Помимо этого, <STRONG>Revolver</STRONG> поговорил с&nbsp;наиболее значимыми музыкантами из&nbsp;<STRONG>MEGADETH</STRONG>, <STRONG>ANTHRAX</STRONG>, <STRONG>SLAYER</STRONG> и <STRONG>METALLICA</STRONG> об их любимых песнях других групп входящих в "Большую четверку". Вот что <STRONG>Dave Mustaine</STRONG> (лидер <STRONG>MEGADETH</STRONG>) рассказал журналу о своей любимой песне <STRONG>SLAYER</STRONG>.</P>
+<P><EM>"Я совсем недавно начал възжать в музыку <STRONG>SLAYER</STRONG>, потому что, на протяжении долгого времени у меня&nbsp;&nbsp;были разногласия с этими парнями. К сожалению, у нас не было шанса отвиснуть вместе за все эти годы. Я должен сказать, что, вероятнее всего, моя любимая песня <STRONG>SLAYER</STRONG>,&nbsp;та&nbsp;которой они завершают своё выступление - <STRONG>"Angel Of Death"</STRONG>. Да, мне нравится убийствинная часть с игрой на двух бочках в самом её&nbsp;конце."<BR></EM></P>
+Автор: Headcrusher
+
+### 30.04.2011 news 25-летие &#39;Peace Sells&#39;
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.04/19354.jpg" width=400 align=right border=0>12 июля на <STRONG>Capitol</STRONG> выходит новое издание второго альбома <STRONG>MEGADETH</STRONG> <STRONG>"Peace Sells... But Who's Buying?",</STRONG> посвящённое 25-летнему юбилею выхода этой пластинки. Релиз будет доступен в формате 2CD, а также 5CD + 3LP De-Luxe edition. На второй диск регулярного издания попадёт ранее не изданный концерт 1987 года. Также слушателя ждут коментарии лидера <STRONG>MEGADETH Dave Mustaine</STRONG> и барабанщика <STRONG>METALLICA Lars Ulrich</STRONG>. На три диска, входящих в лимитированное издание, попадут перезаписанная версия "<STRONG>Peace Sells</STRONG>", вариант сведения <STRONG>Randy Burns</STRONG> и аудио выского разрешения двух первых дисков. Трек-лист:</P>
+<P>Disc 1 (original album, remastered) <BR>01. <B>Wake Up Dead</B> <BR>02. <B>The Conjuring</B> <BR>03. <B>Peace Sells</B> <BR>04. <B>Devil's Island</B> <BR>05. <B>Good Mourning</B> / <B>Black Friday</B> <BR>06. <B>Bad Omen</B><BR>07. <B>I Ain't Superstitious</B> <BR>08. <B>My Last Words</B><BR><BR>Disc 2 (previously unreleased 1987 concert) <BR>01. <B>Wake Up Dead</B> <BR>02. <B>The Conjuring</B> <BR>03. <B>Bad Omen</B><BR>04. <B>Rattlehead</B><BR>05. <B>Killing Is My Business... And Business Is Good</B><BR>06. <B>Looking Down The Cross</B><BR>07. <B>My Last Words</B> <BR>08. <B>Peace Sells</B><BR>09. <B>These Boots Were Made For Walkin'</B> <BR>10. <B>Devil's Island</B> <BR>11. <B>Mechanix</B><BR>12. <B>Last Rites</B> / <B>Loved To Deth</B><BR>13. <B>Good Mourning</B> / <B>Black Friday</B></P>
+Автор: Vit Belov
+
+### 04.07.2011 news David Ellefson обещает 20-летний цикл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Знаменитые <STRONG>MEGADETH</STRONG> сейчас трудятся в студии над своим новым альбомом. Басист<STRONG> David Ellefson</STRONG> дал интервью журналу <STRONG>Sonic Excess</STRONG>, в котором попытался описать новую музыку группы. По его словам, до окончательного сведения пластинки невозможно сравнить новый альбом с каким-нибудь предшественником, но определённые мысли о конечном продукте у него имеются.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Мне кажется, ближе всего к новой работе альбом 1992 года <STRONG>"Countdown To Extinction". </STRONG>Ирония, мы только что закончили тур, посвящённый 20-летию "<STRONG>Rust In Peace</STRONG>", а теперь записываем новый <STRONG>"Countdown To Extinction". </STRONG>Забавно, что всё идёт по такому 20-летнему циклу</EM>", - отметил <STRONG>David</STRONG>.</FONT></P>
+<P><center><IMG height=304 src="/images/news_rus/2011.07/19867.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 09.07.2011 news MEGADETH назвали альбом
+
+<P>Новый альбом <STRONG>MEGADETH </STRONG>получил название <STRONG>"TH1RT3EN". </STRONG>Пластинка должна выйти в этом ноябре на <STRONG>Roadrunner Records</STRONG>. Работа была записана в студии <STRONG>Dave Mustaine</STRONG> <STRONG>Vic's Garage </STRONG>вместе с продюсером <STRONG>Johnny K (DISTURBED</STRONG>, <STRONG>SEVENDUST</STRONG>, <STRONG>MACHINE HEAD,</STRONG> <STRONG>STAIND</STRONG>).&nbsp;Обложку нарисует <STRONG>John Lorenzi, </STRONG>который уже творил для двух последних альбомов <STRONG>MEGADETH</STRONG>.</P>
+<P>Живое исполнение песни с будущего альбома <STRONG>"Public Enemy No. 1" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/lUUMC8y3Nlo?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/lUUMC8y3Nlo?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.07.2011 news Dave Mustaine проповедует
+
+<P><IMG height=261 alt="Верьте в Господа, люди!" hspace=0 src="/images/news_rus/2011.07/20277.jpg" width=475 align=right border=0>Лидер<STRONG> MEGADETH</STRONG> вокалист/гитарист<STRONG> Dave Mustaine</STRONG> выступил вчера в программе канала ABC <STRONG>"Primetime Nightline: Beyond Belief" "Battle With The Devil".</STRONG> Известный музыкант поведал восхищённой публике о своём возврате к Богу. В своей исповеди <STRONG>Dave</STRONG> рассказал, что был в своё время за Сатану, но теперь вернулся на праведный путь. Перед каждым концертом музыканты <STRONG>MEGADETH</STRONG> теперь молятся, чтобы вооружится правдой в борьбе против Сатаны. Также господин <STRONG>Mustaine</STRONG> рассказал об истоках своей ранней приверженности к Сатане, его мама состояла в секте Свидетелей Иеговы и заставляла молодого Дэйви ходить по домам и стучать в двери, это так его раздражало, что он начал носить пентаграммы. Однажды ему повезло с шикарной девушкой в школе после того, как он помолился на пентаграмме, а ещё один подросток попал в аварию после того, как <STRONG>Mustaine</STRONG> прислонился к нему своей пентаграммой.</P>
+<P>После стольких лет сатанинского мрака и чрезмерного увлечения алкоголем <STRONG>Dave Mustaine</STRONG> вернулся к людям, и теперь несомненно научит своих поклонников праведной жизни во Христе.</P>
+Автор: Vit Belov
+
+### 10.08.2011 news Дата релиза MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тринадцатый альбом <STRONG>MEGADETH</STRONG> <STRONG>"TH1RT3EN" </STRONG>выйдет 1 ноября на <STRONG>Roadrunner Records</STRONG>. Пластинка станет вторым дебютом для вернувшегося в строй басиста <STRONG>Dave Ellefson. </STRONG>Альбом был записан в студии <STRONG>Dave Mustaine</STRONG> <STRONG>Vic's Garage </STRONG>с продюсером <STRONG>Johnny K</STRONG> (<STRONG>DISTURBED</STRONG>, <B>SEVENDUST</B>, <B>MACHINE HEAD</B>, <B>STAIND). </B></FONT></P>
+<P>15 марта текущего года <STRONG>MEGADETH</STRONG> в компании <STRONG>SLAYER</STRONG> выступили в <STRONG>СК "Олимпийский"</STRONG> в Москве. Фото здесь: <A href="/ru/galleries/1/642/">http://musica.mustdie.ru/ru/galleries/1/642/</A></P>
+<P><center><IMG height=599 src="/images/news_rus/2011.08/20537.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 08.09.2011 news MEGADETH: обложка и трек-лист альбома &quot;Th1rt3en&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/20951.jpg" width=400 height=400>В сети появились трек-лист и обложка нового альбома <STRONG>MEGADETH "Th1rt3en"</STRONG>. Автор рисунка - <STRONG>John Lorenzi</STRONG>. Джон, так же, является автором обложек и для двух предыдущих альбомов группы - <STRONG>"United Abominations"</STRONG> (2007)&nbsp;и <B>"Endgame" </B>(2009). Выход <STRONG>"Th1rt3en" </STRONG>назначен на 1 ноября на<STRONG> Roadrunner records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Sudden Death<BR></STRONG>02. <STRONG>Public Enemy No. 1<BR></STRONG>03. <STRONG>Whose Life (Is It Anyways?)<BR></STRONG>04. <STRONG>We The People<BR></STRONG>05. <STRONG>Guns, Drugs & Money<BR></STRONG>06. <STRONG>Never Dead<BR></STRONG>07. <STRONG>New World Order<BR></STRONG>08. <STRONG>Fast Lane<BR></STRONG>09. <STRONG>Black Swan<BR></STRONG>10. <STRONG>Wrecker</STRONG><BR>11. <STRONG>Millennium Of The Blind<BR></STRONG>12. <STRONG>Deadly Nightshade<BR></STRONG>13. <STRONG>13</STRONG></P>
+Автор: Headcrusher
+
+### 11.11.2011 news Видео-клип от MEGADETH
+
+<P>Новый ролик <STRONG>MEGADETH </STRONG>на сингл с нового альбома "<STRONG>Public Enemy No. 1</STRONG>" можно посмотреть ниже. Новая работа знаменитых музыкантов "<STRONG>TH1RT3EN</STRONG>" вышла в России на этой неделе.</P>
+<P>
+<CENTER>
+<OBJECT id=uvp_fop height=255 width=400 allowFullScreen="true"><PARAM NAME="movie" VALUE="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf"><PARAM NAME="flashVars" VALUE="id=v223420759&eID=1301797&lang=us&enableFullScreen=0&shareEnable=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed height="255" width="400" id="uvp_fop" allowFullScreen="true" src="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf" type="application/x-shockwave-flash" flashvars="id=v223420759&eID=1301797&lang=us&ympsc=4195329&enableFullScreen=1&shareEnable=1" /></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.11.2011 reviews Новая история никак не начнётся
+
+<P>Страшно представить, но, как следует из названия, новый альбом MEGADETH “TH1RT3EN” тринадцатый по счёту. Гениальный “Rust In Peace” был четвёртым, очень странный “Risk” – восьмым. Вышедший в этом году альбом – тринадцатый. Просто не вериться.</P>
+<P>Здесь разговор идёт не о времени, которое течёт вперёд с бешеной скоростью, здесь разговор идёт о том, что, начиная с четвёртой работы и заканчивая восьмой, перед нами прошла последняя великая история группы MEGADETH. После падения классического состава с гитаристом Marty Friedman заводила американцев Dave Mustaine тщетно пытается начать новую историю коллектива, но пока это у него не получается и вряд ли получится в будущем. Все альбомы в новом столетии не имеют собственного лица и являются скорее воспоминаниями о великом прошлом, но не самостоятельными единицами. Согласитесь, смотреть в кинотеатре оригинальную картину гораздо интереснее, чем ремейк известного фильма. Безусловно, и в посещении музеев можно найти великолепную долю интриги, но музыка – это такое искусство, которое постоянно устремлено вперёд. Не говоря уже о том, что самокопирование всегда хуже просто копирования.</P>
+<P>Обозреваемый альбом довольно не плох. На нём есть хорошие проходные треки, которые выглядели бы крепко даже в конце таких альбомов, как “So Far, So Good…” или “Cryptic Writings”. Есть даже две вещи, соавтором на которых значится Friedman. Радоваться ли этому? Вряд ли. В 2011 году Dave Mustaine выпустил отбраковки из 90-х, и это не есть великолепно.</P>
+Автор: Vit Belov
+
+### 08.12.2011 news Супергруппа HAIL! в Москве 11 декабря
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22281.jpg" width=390 height=520>Уже в это воскресенье в московском клубе <STRONG>"Hleb"</STRONG> состоиться выступление супергруппы <STRONG>HAIL!</STRONG>, в состав которой входят <STRONG>Paul Bostaph</STRONG> (ударные, <STRONG>FORBIDDEN</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>TESTAMENT</STRONG>), <STRONG>Glen Drover</STRONG> (гитара, <STRONG>EIDOLON</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>KING DIAMOND</STRONG>), <STRONG>Tim "Ripper" Owens</STRONG> (вокал, <STRONG>JUDAS PRIEST</STRONG>,<STRONG> ICED EARTH</STRONG>, <STRONG>YNGWIE MALMSTEEN</STRONG>) и <STRONG>James Lomenzo</STRONG> (бас, <STRONG>WHITE LION</STRONG>, <STRONG>BLACK</STRONG> <STRONG>LABEL SOCIETY</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>DAVID LEE ROTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На своих концертах группа <STRONG>HAIL!</STRONG> исполняет хиты различных металлических коллективов первой величины. Песни, которые поклонники тяжелой музыки любят с детства и знают наизусть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен сет-лист, который группа отыграла в городе Иркутск 2 декабря:</FONT></P>
+<P>01. <STRONG>Stand Up & Shout</STRONG> (<STRONG>DIO</STRONG>)<BR>02. <STRONG>Flight Of Icarus</STRONG> (<STRONG>IRON MAIDEN</STRONG>)<BR>03. <STRONG>Seek & Destroy</STRONG> (<STRONG>METALLICA</STRONG>)<BR>04. <STRONG>World Painted Blood</STRONG> (<STRONG>SLAYER</STRONG>)<BR>05.<STRONG> Wake Up Dead</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>06. <STRONG>Mob Rules</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>07. <STRONG>Burn In Hell</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>08. <STRONG>Another Thing Coming</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>09. <STRONG>Symphony Of Destruction</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>10. <STRONG>Heaven & Hell</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>11. <STRONG>Walk</STRONG> (<STRONG>PANTERA</STRONG>)<BR>12. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>----------<BR>13. <STRONG>Ace Of Spades</STRONG> (<STRONG>MOTORHEAD</STRONG>)<BR>14. <STRONG>Creeping Death</STRONG> (<STRONG>METALLICA</STRONG>)<BR>15. <STRONG>Peace Sells</STRONG> (<STRONG>MEGADETH</STRONG>)</P>
+<P>Адрес клуба <STRONG>"Hleb"</STRONG>: г. Москва, Звенигородское шоссе, д. 11</P>
+Автор: Headcrusher
+
+### 15.12.2012 news Тарантула назвали Dave Mustaine
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Доктор <STRONG>Brent E. Hendrixson </STRONG>открыл на юго-западе Аризоны и Нью-Мексико в США новый вид паука тарантула. Пауку было присвоено имя лидера <STRONG>MEGADETH Dave Mustaine</STRONG>. На латыни этот "зверь" теперь зовётся <STRONG>Aphonopelma Davemustainei.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время известно более 850 видов этих пауков.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG border=0 src="/images/news_rus/2012.12/25151.jpg" width=456 height=461></FONT></P>
+Автор: Vit Belov
+
+### 11.04.2013 news Новый альбом MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> MEGADETH</STRONG> <STRONG>"Super Collider" </STRONG>выйдет 4 июня на собственном лэйбле лидера коллектива<STRONG> Dave Mustaine</STRONG> <STRONG>Tradecraft</STRONG>, с дистрибуцией через <STRONG>Universal</STRONG>. Обложку пластинки можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Небольшой сэмпл можно послушать на <A href="http://megadethgame.com/">http://megadethgame.com/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.04/25606.jpg" width=480 height=473> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.07.2013 news MEGADETH: видеоклип &quot;Super Collider&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип американского ансамбля <STRONG>MEGADETH</STRONG> на титульный трек с последнего альбома <STRONG>"Super Collider"</STRONG> можно посмотреть ниже.</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/PZhqZAVGTqw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 26.08.2013 news MEGADETH: подробности концертного релиза &quot;Countdown To Extinction: Live&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MEGADETH</STRONG> выпускают новый концертный релиз под названием <STRONG>"Countdown To Extinction: Live"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ноябрь и декабрь прошлого года группа провела в турне, посвящённому 20 летнему юбилею альбома <STRONG>"Countdown To Extinction"</STRONG></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>.&nbsp;На концертах этого тура данный альбом был исполнен целиком. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Одно из таких выступлений, а именно декабрьский концерт в <STRONG>"Fox Theater" </STRONG>города Лос Анджелесе, было запечатлено для дальнейшего издания на аудио и видео носителях.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дата выхода назначена на 24 сентября.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26105.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 09.04.2015 news Изменения в составе MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.04/27893.jpg" width=350 height=462>Как возможно уже многие из вас знают, в конце ноября прошлого года, группа <STRONG>MEGADETH</STRONG> лишилась сразу двух своих музыкантов. Ими стали <STRONG>Shawn Drover</STRONG> (барабаны) и <STRONG>Chris Broderick</STRONG> (гитара).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На днях <STRONG>MEGADETH</STRONG> объявили новых участников (по крайней мере, на время записи нового альбома). Первый из них, это <STRONG>Chris</STRONG> <STRONG>Adler</STRONG>, барабанщик <STRONG>LAMB OF GOD</STRONG>, а второй - гитарист <STRONG>Kiko Loureiro</STRONG>, снискавший известность&nbsp;со&nbsp;своей группой <STRONG>ANGRA</STRONG>. Остаётся только с нетерпением ожидать, что же принесёт данный союз.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как заявил <STRONG>Dave Mustaine</STRONG> в своём аккаунте в Twitter, у группы уже сочинено 15 песен для новой пластинки. Интересно, сколько из них&nbsp;в итоге увидит свет?</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем, <STRONG>Shawn Drover</STRONG> и <STRONG>Chris Broderick</STRONG> сколотили новый совместный проект под названием <STRONG>ACT OF DEFIANCE</STRONG>,&nbsp;куда также вошли&nbsp;вокалист <STRONG>Henry Derek</STRONG> (ex-<STRONG>SCAR THE MARTYR</STRONG>) и басист <STRONG>Matt Bachand</STRONG> (<STRONG>SHADOWS FALL</STRONG>).</FONT></P>
+Автор: Headcrusher
+
+### 11.01.2016 news Новый альбом MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятнадцатый альбом <STRONG>MEGADETH "Dystopia"</STRONG> выходит 22 января на<STRONG> Universal</STRONG>. Альбом был спродюсирован лидером коллектива <STRONG>Dave Mustaine</STRONG>&nbsp;и <STRONG>Toby Wright (Alice In Chains, Korn)</STRONG>. Трек-лист:</FONT></P>
+<P>“Death From Within”<BR>&#8203;“Fatal Illusion”<BR>“Conquer... Or Die!”<BR>“Lying In State”<BR>“Me Hate You”<BR>“The Emperor's New Clothes”<BR>“Dystopia”<BR>“Bullet To The Brain”<BR>“Last Dying Wish”<BR>“Post American World”<BR>“Look Who's Talking”<BR>“The Threat Is Real”<BR>“Poisonous Shadows”<BR>“Melt The Ice Away” (Budgie cover)<BR>“Foreign Policy” (Fear cover)</P>
+<P>MEGADETH создадут виртуальную реальность с помощью режиссёра Blair Underwood, в которой музыканты исполнят пять песен "Fatal Illusion," "Dystopia," The Threat Is Real," "Poisonous Shadows,"&nbsp;и "Post American World." Слушатель погрузиться в эту реальность с помощью очков, которые будут приложены к лимитированному "боксовому" изданию альбома.</P>
+<P>Dystopia:</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/QrV61ATP3Ec" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P>
+<P>The Threat Is Real:</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/3-d6LFLpBvw" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P>
+<P>Fatal Illusion:</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/7MRtdd3tXI4" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+### 08.03.2016 reviews Хватит морочить голову
+
+<P>В начале этого года две команды из так называемой «большой четвёрки американского трэша» выпустили новые альбомы — MEGADETH и ANTHRAX. Начнём в хронологическом порядке с 15-го (!!!) альбома MEGADETH “Dystopia”.</P>
+<P>Бывший гитарист METALLICA Dave Mustaine продолжает вести непримиримый бой с несостоявшимися коллегами, которые предпочли трезвость таланту. Пускай прошло почти 35 лет, никто уже ничего не помнит, но каждый раз заходят разговоры о сравнении творчества двух коллективов, к которым гитарист/вокалист имел отношение. Безусловно, по плодовитости и общительности господин Mustaine уже давно переплюнул бывших друзей. После небольшой заминки в начале века MEGADETH стабильно выпускают альбомы каждые 2-3 года. К сожалению, подобное трудолюбие обычно имеет и обратный эффект, мало кто, кроме самых преданных фанатов группы, сможет отличить друг от друга последние «шедевры» Мустэйна. Я сдался 10 лет назад и последний альбом, о котором я хоть что-то могу сказать это «The System Has Failed”, помню что-то там MEGADETH возвращались к звуку «Rust In Peace”. Нынешняя работа «Dystopia” буквально силой была мне порекомендована множество фанатов тяжёлой музыки, которые настойчиво подсовывали мне пластинку как несомненный шедевр. Поначалу я слышал лишь синглы с этой работы, которые напомнили мне классический и самый мелодичный альбом группы 1994 года выпуска «Youthanasia”. Практически сразу посыпались восторженные отзывы, которые были вполне объяснимы, людям нравится что-нибудь помелодичнее да повеселее. Ведь на одноимённом с альбомом хите «Dystopia” гитара заливается таким соловьём, что того гляди исторгнет из груди восторженный вопль. Правда, во-первых, возраст уже не тот, и теперь подобные «соляки» на «thrash metal альбомах» понравятся только с наступлением маразма, а во-вторых, подобных откровений на альбоме оказалось не столь много. Более того, довольно большая часть музыкального материала представляет собой нудные повторяющиеся запилы в духе «альтернативного» альбома «Risk”.</P>
+<P>Действительно, если взять несколько главных трэков, забыть в применении к MEGADETH термин thrash metal и устроить вечеринку с пионерками, которые скорее всего разобьют вам сердце, «Dystopia” пройдёт на ура. При беспристрастном взгляде на альбом станет понятно, что Dave Mustaine уже давно морочит нам голову бесконечными самоповторами и возвращениями к корням, и ничего хотя бы качественного он произвести уже не в состоянии, не говоря уже о шедеврах или прорывах в тяжёлой музыке.</P>
+Автор: Vit Belov
+
+### 16.07.2016 news Барабанщик Dirk Verbeuren присоединился к MEGADETH на постоянной основе
+
+<p>Барабанщик <strong>SOILWORK Dirk Verbeuren</strong> присоединился к <strong>MEGADETH </strong>на постоянной основе. По этой причине он покинул состав SOILWORK, а временным барабанщиком у шведов будет Bastian <strong>Thusgaard</strong>.</p><p>&nbsp;<center><img width="749" height="499" src="/images/news_rus/2016.07/29601.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 16.07.2016 news Dirk Verbeuren Exits SOILWORK to Join MEGADETH as Full-Time Drummer
+
+<p>With their full support behind him, <strong>SOILWORK</strong> announces the departure of longtime drummer <strong>Dirk Verbeuren</strong> as he joins heavy metal legends <strong>MEGADETH</strong> as their new full-time drummer. Verbeuren has been performing with MEGADETH for months - his first show with the band was at Rock on The Range festival in May, where he performed to a crowd of 40,000 concertgoers.<br>&nbsp;<br>SOILWORK vocalist<strong> Bjorn "Speed" Strid</strong> offers up his encouragement, "<em>In regards to the statement MEGADETH released yesterday, confirming that Dirk will join them as their full time drummer, I just want to take the time to wish Dirk good luck on this new venture and thank him for 12 great years together. Together we have created a beast of a band and have pushed the limits musically further than we ever could have imagined</em>."<br>&nbsp;<br>Strid continues to state that SOILWORK is charging forward, continually progressing their performance but not straying too far from their defining, signature sound, "<em>In the recent years SOILWORK have found new ways of expressing ourselves and as much as of a clichй it is, I strongly believe that this is very much of a new era for us and that we still have so much left to say, whether it being with or without Dirk. This band has grown to be quite a metal collective and an institution that paves the way creatively and we hope that you, the fans, can feel the presence and the heart in our music still to this day. Believe me, it's there. I can assure that you will forever get 100% SOILWORK, as long as we release albums. We aim to surprise ourselves and the listeners by constantly developing our sound and songwriting, something I believe we have succeeded in doing and yet remained true to our roots. That is something to be proud of and we are. We appreciate all our loyal fans and are excited that so many of you share our musical vision</em>.<br>&nbsp;<br>Touring drummer <strong>Bastian Thusgaard</strong> is more-than-worthily filling in the ranks behind the kit this summer.<br>&nbsp;<br>Strid adds, "<em>Meanwhile, I'm sure many of you have seen us at a festival in Europe this summer with our friend, Bastian Thusgaard filling in on drums and I'm sure we can all agree on what a monster he is. Thank you Bastian, you are absolutely killing it. Check out the remaining festival dates and come see us. We'll be there. Thank you</em>."<br>&nbsp;<br>Departing drummer Dirk Verbeuren has this to say, "<em>They say the biggest decisions in life are the hardest to make. This decision falls under that category. As a drummer I've always enjoyed the evolution of my path. The past twelve years with Soilwork have been incredible, a portion of my life I honor with pride. When I was approached to join MEGADETH- a childhood dream come true and something I never anticipated- I was beyond excited to even consider the realm of possibility. But truth be told, I couldn't have rightfully made this step without the support and blessing of my SOILWORK family. For that I owe a huge thank you to Bjorn, Sven, David, Sylvain and Markus. You have allowed me to see what lies ahead, and you're my brothers in metal. Chris Adler, thank you for introducing me to MEGADETH and for your encouragement and support. Dave, David and Kiko, I'm thankful for your warm welcome and thrilled to perform and create badass music with you guys. To the fans, this is a new chapter for us; I hope we can enjoy this ride together!</em>"<br>&nbsp;<br>Stay tuned for more news on upcoming SOILWORK tour dates, music and more - the ride continues!<br>&nbsp;<br>Pre-order SOILWORK's new rarities collection<strong> Death Resonance</strong> in CD digipak or clear vinyl formats here: <a href="http://nblast.de/SoilworkDResonanceNB">http://nblast.de/SoilworkDResonanceNB</a></p><p>&nbsp;<center><img width="749" height="499" src="/images/news_rus/2016.07/29601.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 23.07.2016 news Новый клип MEGADETH
+
+<p>Новый видео-клип <strong>MEGADETH </strong>на песню "<strong>Post American World</strong>" можно посмотреть ниже. Трек взят с последнего хита коллектива "<strong>Dystopia</strong>".&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mEkXyEIu3OU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 23.07.2016 news New video of MEGADETH
+
+<p>New video clip of <strong>MEGADETH</strong> for the song "<strong>Post American World</strong>" can be viewed below. The track is taken from the last hit of the band, "<strong>Dystopia</strong>".&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mEkXyEIu3OU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 15.08.2016 articles Всеволод Баронин: «Самоценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы»
+
+<p><em></em><center><em><img width="392" height="600" src="/images/articles_rus/2016.08/29810.jpg" border="0"></em><p></p></center><p><em>Мы начинаем регулярную рубрику на нашем сайте. У неё пока нет названия. Но есть идея, общаться с знатоками тяжёлой музыки в нашей стране и за её пределами, стараясь разобраться в актуальных течениях и тенденциях. В общем, что надо слушать, а что не надо. Первым нашим собеседником стал <strong>Всеволод Баронин</strong>, музыкальный эксперт.</em></p><p><strong>Какие, по-твоему, основные тенденции в тяжёлой музыке в августе 2016 года? На что стоит обратить внимание нашим читателям?</strong></p><p>Нужно говорить отдельно о Европе и Америке. И там, и там значительно вырос интерес к традиционным хэви-составам, что бы под этой традиционностью не понималась (от совершенно традиционного HMR до симфонического пауэр-метала) – может, стилистику подобных групп можно даже назвать ретро-металом, если мы говорим, допустим, о последнем миньоне Candlemass. В Америке же к этой традиционной составляющей добавляются группы вроде Fallujah, которые сочетают в своем материале брутальность и обильную клавишную и неклавишную электронику. Пока еще эти, условно говоря, новые бруталисты не очень известны в Европе и вообще за пределами США (хотя у себя дома они вполне звезды), но мне кажется, что в ближайшие полгода ситуация изменится.</p><p><strong>Какие бы ты назвал примеры традиционных HMR составов, которые набирают сейчас популярность?</strong></p><p>Мне кажется, что в ближайшие месяцы во всяком случае вернет себе популярность White Wizzard, к которым сейчас вернулся первый вокалист, и альбом на подходе. Также очень радует возвращение тех же Candlemass с Матсом Левеном у микрофона. Если говорить о музыке чуть радикальнее, то одним из событий ближайших месяцев станет выход альбом индийских трэш-металлистов Kryptos "Burn Up The Night". Ретро-трэш такой степени достоверности в рок-метрополиях ныне просто не играют.</p><p><strong>А что скажешь о Blues Pills?</strong></p><p>По-моему, это такая игра в конец 60-х и начало 70-х. То есть обычно эта ниша заполняется в наше время кавер-группами, но здесь группа играет свой собственный материал, пусть и похожий сразу на многое из той эпохи. А раз такая музыка понятным образом уже проходит по ведомству вечных ценностей, то успех группы понятен.</p><p><strong>Но с точки зрения музыкальной&nbsp; ценности эта группа имеет какое-то значение? Вообще, чем вызвана такая повальная мода на подобную музыку сейчас?</strong></p><p>Именно САМОценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы, однако спрос на них вызван смутной ностальгией по всей рок-эпохе 70-х, когда "трава была зеленее". При том, что я очень сомневаюсь, что поклонники групп вроде Blues Pills или Radio Moscow хоть что-то слышали про прототипы почти полувековой давности, таких, как Bakerloo или Cressida. Разве только про Cream знают… В любом случае Blues Pills и составы, им подобные, очень хорошо заполняют нишу спроса на старомодный хард-рок, поскольку работоспособность групп-ветеранов сейчас находится под большим вопросом.</p><p><strong>Но ведь, по идее, подобную музыку должны любить уже люди старшего возраста, но судя по продажам, молодёжь тоже прониклась.</strong></p><p>Это как раз неудивительно – группа молодая, и играет музыку, которую молодой слушатель никогда не слыхал. Если только из коллекции родителей, но это довольно редкая ситуация. То есть это классический случай того, как новым оказывается ОЧЕНЬ хорошо забытое старое.</p><p><strong>Но ведь музыка развивается? Почему вдруг мы вернулись на 40 лет назад?</strong></p><p>Получилось то, о чём я говорил выше: все новые брутальные имена для молодежи сосредоточены в США, а ретро-рок там популярен у аудитории хорошо за 30, а то и за 40, Blackberry Smoke тому примером. И эту брутальную молодежь в Европу что-то особо не возят. И на самом деле просто нужно признать, что рок стал ровно такой же институцией, как классика или джаз, то есть дальнейшее развитие стиля вглубь, как мне кажется, не очень вероятно. Так что масса молодых групп предпочитает идти по чужим следам, а не изобретать что-то своё.</p><p><strong>Что скажешь о Thrash metal? В этом году вышло много альбомов классических коллективов. Megadeth, Anthrax, Destruction, Death Angel. Что скажешь о них?</strong></p><p>А вот это именно тот случай – ещё один случай, когда субстиль очень хорошо чувствует себя именно за счёт интереса публики всех возратов. Не секрет, что все главные имена трэш-метала – это ветераны, а кому ж неохота услышать новую работу мастеров или прийти на их концерт?</p><p><strong>Но они все разные. Вот, например, Anthrax тяжело теперь назвать Thrash.</strong></p><p>Весь феномен, который англичане называют Thrashback!, основан в первую очередь на том, что люди покупают носители и идут на концерт не из-за музыки, а из-за имени. Тем более, что толковых молодых имён в трэш-метале так и не появилось – разве только Vektor.</p><p><strong>Не уходи от вопроса. Как тебе последний Anthrax?</strong></p><p>Мне альбом НЕ понравился. Как мне кажется, Джой Белладонна перетянул одеяло на себя, и в результате альбом стал похож на его невразумительные сольные работы. А Скотт Ян, по-моему, пытался сочинить каких-то условно модных песен – но именно таких, как он сам это "модное" понимает. Только его точка зрения не совпадает с точкой зрения аудитории. Печально.</p><p><strong>А что насчёт Megadeth? Все в восторге.</strong></p><p>Именно тот случай, когда группа приподнесла стопроцентно предстказуемый альбом. Только вот звук и игра гитариста Кико Лорейро вызывает значительно больше восторга, чем качество материала. Хитов-то нет! Но у Megadeth так дела обстоят года с 1997.</p><p><strong>А что насчёт RAGE? Их возвращение к корням и уход Смольского широко обсуждался.</strong></p><p>В общем-то аналогично ситуации с Megadeth – Rage вернулись в 1993 год и ранее. Хотя возвращение вышло несколько формальным – я не расслышал, чтобы новый гитарист принес в группу какие-то свои идеи. Он пока рад-радёшенек косить своей композиторской и исполнительской манерой под Манни Шмидта. Это вполне естественно, так что для оценки уровня его собственных амбиций и направления развития Rage нам нужно будет дождаться их следующего альбома.</p><p><strong>И немного заглянем в будущее. Что ждёшь от Running Wild?</strong></p><p>Опять же воспроизведения всех, абсолютно всех клише группы. Странно было бы ждать от Running Wild чего-то другого. А уж хиты – это как получится.</p><p><strong>А Sodom?</strong></p><p>Та же ситуация, что с Running Wild. Песни всем – и группе, и её поклонникам – нужны абсолютно такие же, как и ранее. Такими и будут. Что же касается звучания альбома, то может произойти его лёгкая коррекция, но так бывало и ранее, и это никого не обижало.</p><p><strong>Ну, а кто-то из ветеранов творит? Или все "шаблонят"?</strong></p><p>Как мы уже говорили выше, сравнивая Anthrax и Megadeth, писать сейчас альбомы, схожие с иными собственными творениями – скорее доблесть, нежели наоборот. Поскольку, как в случае с Anthrax, новые подходы ветеранов к материалу, оказываются мало кому нужными. Подозреваю, что такая же неприятность приключится с новым альбомом группы Джеффа Тэйта Operation: Mindcrime.</p><p><strong>Ну и что тогда лучше? Штамповать или экспериментировать?</strong></p><p>Как мне кажется – музыкантам сейчас придерживаться собственных корней и одновременно экспериментировать со студийным звучанием, но опять же в разумных пределах.</p><p><strong>Ну и последний вопрос. Metallica.</strong></p><p>А тут как раз – полная непредсказуемость. То есть понятно, что стилистика группы сильно не изменится, но вот какой звук они нарулят в студии? Это будет интересно услышать. Правда. В прошлый раз все странности следовали даже не от студийного звука, а от мастеринга, сделанного под размещение музыки в Интернете и прослушивании её на i-устройствах. Мне лично кажется, что материал с музыкальной точки зрения будет всё же похож на "Death Magnetic" – такой группе нет причин экспериментировать, тем более в условиях современного спроса на трэш-метал. Но со звуком могут быть сюрпризы.</p><p>Прочитать рецензии Всеволода можно в его ЖЖ по адресу: <a href="http://vs-baronin.livejournal.com/">http://vs-baronin.livejournal.com/</a></p>
+Автор: Vit Belov
+
+### 11.07.2017 news Фигурки MEGADETH от Knucklebonz
+
+<P>Компания <STRONG>KnuckleBonz</STRONG> специализирующаяся на выпусках фигурок музыкантов, анонсировала выход статуэток посвящённых группе <STRONG>MEGADETH</STRONG>. Помимо этого, в ближайших планах <STRONG>KnuckleBonz </STRONG>выпуск фигурок группы <STRONG>KISS</STRONG>, <STRONG>Элиса Купера</STRONG>, <STRONG>Lemmy</STRONG> (<STRONG>MOTORHEAD</STRONG>). Больше подробностей и предзаказ по ссылке: <A href="http://knucklebonz.com/">http://knucklebonz.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.07/30627.jpg" width=660 height=371> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Megadeth "The World Needs a Hero"

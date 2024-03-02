@@ -301,6 +301,984 @@ Mixed and mastered at Finnvox Studios in Helsinki, Finland.
 * C группой "Warmen" Janne Wirman (keyboards)
 * C группой "Kotipelto" Janne Wirman (keyboards)
 
+## Публикации
+
+### 05.03.1999 news 
+
+<p>Вышел новый альбом Children Of Bodom "Hatebreeder".</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>В начале июля Children Of Bodom и In Flames проедутся с туром по Японии.</p>
+
+Автор: Vit Belov
+
+### 05.10.1999 news 
+
+<p>"Tokyo Warhearts" - так называется концертый альбом Children Of Bodom, который будет выпущен в скором времени тиражом всего 10000 копий.</p>
+
+Автор: Vit Belov
+
+### 21.10.1999 reviews 
+
+<p>Альбом вышел ещё весной, но ко мне, к сожалению, попал только сейчас. Верите ли Вы, что можно играть с мелодичностью харда и быстротой блэка? Если не верите, то послушайте эту работу Алекси Лайхо (Synergy, Impaled Nazarene) и его товарищей. Великолепный быстрый мелодичный блэк-дэт-металл не оставит никого равнодушным. Здесь есть всё и мощные рифы, красивые клавиши, которые, кстати, как раз там где надо, а также мощный хрипящий блэк-вокал, и не только он. Группу можно сравнивать с In Flames, но это не In Flames, по-моему, они очень оригинальны в современном металле. Не знаю даже, что ещё сказать, эмоции переполняют меня. Советую всем любителям тяжёлой музыки, как обязательное к покупке. Единственный минус это очень короткое время звучания пластинке, но можно ведь поставить центр с CD на repeat. Поставил бы 10, но я вредный. 9,5 из 10</p>
+
+Автор: Vit Belov
+
+### 21.10.1999 reviews Ни богу свечку, ни чёрту кочерга...
+
+<P>Мне CHILDREN OF BODOM не нравятся. Мне если speed, то лучше STRATOVARIUS. А если thrash - подать сюда GRIP Inc., а если power - тогда уж GAMMA RAY или PRIMAL FEAR. Альбом более мелодичный, то есть коммерческий, более динамичный, то есть скорость в ущерб качеству музыки. Полно клавишей, но совершенно нет ритма. Барабаны не отбалансированы вовсе. Гитарная секция звучит еще так себе, но не чувствуется единой основы. Размазанная музыка ради $. Ни богу свечку, ни чёрту кочерга, ни людям удовольствия. Разве что профессионально.</P>
+Автор: Alexey Pitirimov
+
+### 25.10.1999 reviews 
+
+<p>Привет любители тяжелятинки, попсовики и кислотники вам тоже привет, если вы это читаете, то это значит, что вы на верном пути к миру настоящей музыки. Альбом "Hatebreeder" команды "Children of Bodom" при первом прослушивании, кстати, при внимательном прослушивании, ввергает в состояние окоченения и раздробленных мозгов, и это вовсе не от тяжести или скорости, или неистового вокала. Нет все это от того, что "Детки" хорошо намешали агрессию, скорость и...головоломность Watchtower (если еще вы не забыли эту команду). Я не говорю, что "Детки" похожи на Watchtower..у них только стиль от этих ребят. И естественно, с первого раза, еще раз повторюсь, при внимательном прослушивании, ничего в голову не лезет. Полное ощущение бесталковости. Но все это не так..надо послушать еще раз и "отдаться" этому альбому, подумывая о проблемах и т.п. лабуде. так вот...извините, что я вас так "учу" ..больше не буду. Сейчас, когда я ставлю этот зеленый диск в плэйер, с первых нот у меня полное ощущение того, что есть такая мифическая отвесная скала, сверху до низу, на которой натянуты струны гитар, привязаны ударные установки неимоверных размеров, висят распятые вокалисты, а по ним летит другая скала, словно ею управляет великий маг, создатель всего это и задевает там где надо и что надо, да так сильно что захватывает дух...и начинаешь задумываться.."Это сон или я умер???" ....... а на самом деле это альбом "Hatebreeder" команды "Children of Bodom". 10 из10</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 news 
+
+<p>Алекси Лайхо сейчас находится в студии, где записывает новый альбом Sinergy вместе с Кимберли Госс. По завершении работы он возьмётся за третий альбом Children Of Bodom</p>
+
+Автор: Vit Belov
+
+### 06.09.2000 news Children Of Bodom работают в студии.
+
+<p> Children Of Bodom в настоящее время записывают свой третий шедевр под названием "Follow The Reaper" в Abyss Studio в Швеции с продюсером Питером Тагтгреном. Альбом будет выпущен в Скандинавии лейблом Spinefarm и в Европе Nuclear Blast в конце января 2001 года и будет сопровождаться мощным европейским туром. Но сперва, в декабре 2000 года, группа отыграет в Европе 10 концертов с Morbid Angel.</p>
+
+Автор: Morsus
+
+### 06.09.2000 news Children Of Bodom are working in studio.
+
+<p> Children Of Bodom are currently recording their third studio album, entitled "Follow The Reaper", at Abyss Studio in Sweden with the producer Peter Tagtgren. The album will be released in Scandinavia by Spinefarm and in Europe by Nuclear Blast at the end of January 2001, followed by full headlining European tour. Before that the band will play 10 shows with Morbid Angel in Europe in December 2000.</p>
+
+Автор: Morsus
+
+### 25.09.2000 news Определен срок выхода нового альбома Children Of Bodom
+
+<p> Третий по счету студийный альбом Children Of Bodom "Follow The Reaper" выходит 30-го октября в Финляндии. Также выйдет ограниченным тиражом дигипак с бонус-трэками.</p>
+
+Автор: Nybras
+
+### 28.09.2000 news Трэк-лист нового альбома Детей Бодома
+
+<p> Стал известен трэк-лист нового альбома Children Of Bodom "Follow the Reaper", который, напомню, выходит 30-го октября на Spinefarm: "Mask Of Sanity", "Follow The Reaper", "Northern Comfort", "Every Time I Die", "Taste Of My Scythe", "Bodom After Midnight", "Hate Me", "Children Of Decadence", "Kissing The Shadows", "Shot In The Dark" (Ozzy Osbourne cover).</p>
+
+Автор: Nybras
+
+### 28.09.2000 news Children Of Bodom&#39;s &quot;Follow the Reaper&quot; tracklist
+
+<p> Spinefarm will release it at the 30th of October and there will be a digipack with a bonus track. The digipack is limited to 3000 copies. "Follow the Reaper" tracklist: 'Mask Of Sanity', 'Follow The Reaper', 'Northern Comfort', 'Every Time I Die', 'Taste Of My Scythe', 'Bodom After Midnight', 'Hate Me', 'Children Of Decadence', 'Kissing The Shadows', 'Shot In The Dark' (Ozzy Osbourne cover).</p>
+
+Автор: Nybras
+
+### 21.11.2000 reviews Альбом который ждали все
+
+<p>Альбом который ждали все. Но, дождавшись, большинство почему-то было им разочаровано. В чем же дело? Что не так? Трудно сказать... Выскажу сугубо свои замечания. Куда-то бесследно пропала вся злоба и агрессия первых двух альбомов. Музыка уже не настолько быстра и зубодробительна как раньше. Музыка стала более доброй, веселой и еще более мелодичной. Все больше и больше воли и свободы отпущено клавишнику. Можно даже признать, что Children Of Bodom полегчал. И хорошо, что есть изменения. Надо все-таки что-то менять что-то от альбома к альбому. Много на этом альбоме хороших изменений. Больший мелодизм, качественность и виртуозность материала и исполнителей. Но есть изменения, которых можно было бы и избежать. Куда-то также исчезли все классические интерлюдии. Зато слышны иногда фрагменты рока семидесятых. Несмотря ни на что, мне альбом очень понравился. Мне еще не успела приестся подобная музыка.</p>
+
+Автор: Dimas
+
+### 21.11.2000 reviews Album which waited everybody
+
+<p>Album which waited everybody. But, having waited, the majority for some reason was disappointed by it. In what business? What not so? It is difficult to tell... I shall state the especially my remarks. Somewhere all rage and aggression of first two albums without leaving a trace was gone. Music is not so fast any more and heavy as earlier. Music became kinder, cheerful and even more melodious. It is ever more and more will and freedom is released to keyboards. It is possible even to recognize, that Children Of Bodom became lighter. And it is good, that there are changes. It is necessary all the same something to change something from an album to an album. It is a lot of on this album of good changes. Greater melodism, quality and virtose of a material and executors. But there are changes, which it would be possible and to avoid. Somewhere also have disappeared all classical interludes. But the fragments of fate seventieth are audible sometimes. In spite of on anything, the album very much has liked me.</p>
+
+Автор: Dimas
+
+### 02.04.2001 news CHILDREN OF BODOM dates
+
+<p> Finland’s CHILDREN OF BODOM will be following up their forthcoming appearances in the Far East with a couple of shows on their home turf. Here are the confirmed dates so far:</p>
+<p></p>
+<p> April 04 - Seoul, South Korea</p>
+<p></p>
+<p> April 06 - Osaka, Japan @ Heat Beat*</p>
+<p></p>
+<p> April 08 - Nagoya, Japan @ Bottom Line*</p>
+<p></p>
+<p> April 09 - Tokyo, Japan @ On Air East*</p>
+<p></p>
+<p> April 10 - Tokyo, Japan @ On Air East*</p>
+<p></p>
+<p> April 30 - Kauhajoki Kasino, FIN</p>
+<p></p>
+<p> June 22 - Kouvola, FIN @ Midnight Partyplanet</p>
+<p></p>
+<p> June 23 - Nummijдrvi, FIN @ Nummi-rock</p>
+<p></p>
+<p> *appearing with DARK TRANQUILLITY</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 16.04.2001 news Отсутствие войны не означает мира....
+
+<p>Финские "Назаретяне" произвели существенную перестановку кадров. На смену бассисту Jani Lehtosaari и гитаристу Alexi Laiho ("CHILDREN OF BODOM") рекрутированы Mikael Arnkil и Teemu Raimoranta. Также команда перезаключила контракт с Osmose Productions на выход еще двух альбомов и сейчас готовит материал для очередного (седьмого по счету) студийного творения "Absence Of War Does Not Mean Peace". На него войдут следующие песни: 01. Absence Of War Does Not Mean Peace 02. The Madness Behind 03. Never Forgive 04. The Lost Art Of Goat Sacrificing 05. Nyrkill&auml; Tapettava Huora 06. Prequel To Bleeding (Angels III). В июле поклонники Иисуса садятся в Astia Studio с продюссером Mikko Karmila (STRATOVARIUS, NIGHTWISH, CHILDREN OF BODOM). Ожидаемая дата выхода - Октябрь.</p>
+
+Автор: Yermola
+
+### 16.04.2001 news IMPALED NAZARENE news...
+
+<p> Finland's IMPALED NAZARENE have canceled their scheduled appearance at Cortina Metal Festival in Sweden on May 26th "due to the insane nature of the event / contract. The festival is alcohol-free (including bands / backstage!!), and that alone means it's impossible to be in there for the band + the advance ticket sales are not looking too promising either...so forget, we ain't no STRYPER, damnit!!"</p>
+<p> In other IMPALED NAZARENE news, the band have replaced bassist Jani Lehtosaari and guitarist Alexi Laiho with Mikael Arnkil and Teemu Raimoranta, respectively. The band have also re-signed with Osmose Productions for two more albums, and currently busy rehearsing and writing material for their seventh studio album, tentatively titled Absence Of War Does Not Mean Peace. Working song titles include the following:</p>
+<p></p>
+<p> 01. Absence Of War Does Not Mean Peace</p>
+<p></p>
+<p> 02. The Madness Behind</p>
+<p></p>
+<p> 03. Never Forgive</p>
+<p></p>
+<p> 04. The Lost Art Of Goat Sacrificing</p>
+<p></p>
+<p> 05. Nyrkillд Tapettava Huora</p>
+<p></p>
+<p> 06. Prequel To Bleeding (Angels III)</p>
+<p></p>
+<p> If everything goes according to plan, IMPALED NAZARENE will enter Astia Studio in late July to record the new album, and it will be mixed a short time later at Finnvox Studio by Mikko Karmila (STRATOVARIUS, NIGHTWISH, CHILDREN OF BODOM). An early October release is expected. Source: BLABBERMOUTH.NET</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 26.04.2001 news Сольник Timo Kotipelto.....
+
+<p>Вокалист "STRATOVARIUS" - Timo Kotipelto работает над дебютным сольным альбомом, запланированным к выходу на начало 2002. Ему уже удалось собрать мощную команду для записи: Mike Romeo (гитара; SYMPHONY X), Roland Grapow (гитара; HELLOWEEN), Arjen Lucassen (гитара; AYREON), Sami Virtanen (гитара; JOE DOAKES), Jari Kainulainen (басс; STRATOVARIUS), Mirka Rantanen (барабаны; TUNNEL VISION), Gas (барабаны; H.I.M.), Janne Warman (клавиши; CHILDREN OF BODOM) и Mikko Harkin (клавиши; SONATA ARCTICA).</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Timo Kotipelto debut solo album ....
+
+<p>STRATOVARIUS vocalist Timo Kotipelto is hard at work on his debut solo album, which is tentatively due to be released in early 2002. As-yet-untitled, the album will feature a host of guest appearances from some of metal's top musicians, including the following: Mike Romeo (guitars; SYMPHONY X), Roland Grapow (guitars; HELLOWEEN), Arjen Lucassen (guitars; AYREON), Sami Virtanen (guitars; JOE DOAKES), Jari Kainulainen (bass; STRATOVARIUS), Mirka Rantanen (drums; TUNNEL VISION), Gas (drums; H.I.M.), Janne Warman (keyboards; CHILDREN OF BODOM), Mikko Harkin (keyboards; SONATA ARCTICA). In related news, STRATOVARIUS have announced that they will be taking part in four European festivals this summer. The dates are as follows: June 28 - Roskilde Festival, DEN, June 30 - Bang Your Head Festival, GER, July 07 - Ruisrock Festival, FIN, July 13 - Tuska Metal Festival, FIN. Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 16.07.2001 bios Биография Children Of Bodom.
+
+<p> История Children Of Bodom началась в тот момент, когда старшеклассники одной из школ маленького городка Еспоо в десяти километрах от Хельсинки Алекси Лайхо и Яска Раатикайнен весной 1993 года решили создать собственную death-metal группу. Состав поначалу не был постоянным. Из нынешних участников в 1995 году к ним присоединились Але Куоппала и Хенкка Блэксмит, а ещё позднее клавишник Я. Пинисйоки. Вновь образованную команду назвали Inearthed. Все результаты их усилий сводились к нескольким концертам в пределах Хельсинки и записи двух демо, первое из которых парни записали в 1994 году в студии Astia. Оно содержало четыре композиции и называлось "Ubiquitos Absence Of Remission". Второй опус "Shining" был записан через два года и также состоял из четырёх песен. Звук на этих записях был довольно хорош для демо, но в музыкальном плане парни играли совсем не ту музыку, что нынче. Тогдашний стиль группы в общих словах можно определить как death/thrash metal и он постоянно изменялся в течении этих первых лет в сторону black/death с некоторым влиянием классического heavy metal. Им никак не удавалось получить контракт с каким-нибудь лейблом на запись полноценного альбома. Как говорил Але, "демо, которые мы посылали различным лейблам, не привлекали никакого внимания, так что мы решили двигаться дальше без контракта и самим делать наш дебют". Записываться было решено на собственные средства, хотя это довольно дорого, порядка 5000$, даже при том, что владелец студии Ансси Киппо выделил аванс. В июле-августе 1997 года парни засели в студию и записали 32-минутный диск. Продюссировали альбом Ансси Киппо совместно с Алекси Лайхо и Яской Раатикайненом. Перед началом работы над третим творением из Inearthed ушел клавишник и его заменил Янне Уорман, начинающий джазовый пианист, никогда прежде не игравший в тяжёлых командах. Сперва он как сессионный музыкант помогал в записи "Something Wild", а затем стал и полноправным участником команды. С тех пор группа существует в таком составе. Так и не пристроив свой альбом ни на один из приличных лейблов, парни уже готовы были заключить контракт на издание "Something Wild" в маленькой бельгийской фирме грамзаписи, но помогла протекция Сами Тенетца, фронтмена Thy Serpent. В августе 1997 года соло-гитарист и вокалист Inearthed Алекси Лайхо, помимо своего основного проекта, присоединился к королям финского dark/black металла Thy Serpent в качестве нового гитариста. И хотя он не смог продолжить свое участие в Thy Serpent больше, чем на пару репетиций, это событие сыграло ключевую роль. Алекси Лайхо и Александр Куоппала подружились с Сами Тенетцом и дали ему послушать свои музыкальные работы. Тот, в свою очередь, показал запись Inearthed "Something Wild" боссу Spinefarm Records Эво Риткинену и она ему понравилась настолько, что уже на следующий день группе был предложен контракт на выпуск трёх альбомов. Не долго думая, парни согласились, послали к чертям бельгийскую фирму и по совету кого-то из Spinefarm сменили название на Children Of Bodom.</p>
+<p> Сотрудничество группы со своим первым лейблом началось с участия в компиляции "Metallilitto", вышедшей на Spinefarm в октябре 1997 года, где Children Of Bodom отметились песней "Deadnight Warrior". Сборник имел успех и был продан в Финляндии тиражом более, чем 5500 копий. А в ноябре 1997 года в Финляндии выходит дебютный альбом Children Of Bodom "Something Wild". И с этого момента события понеслись стремительно. Уже в ноябре они выступили разогревающей группой на концерте Dimmu Borgir в Хельсинки. Этот концерт имел важное значение для группы, их заметили менеджеры из немецкого лейбла Nuclear Blast. Через три месяца после выхода в Финляндии, по лицензии Nuclear Blast "Something Wild" начинает продаваться по всей Европе, сопровождаемый массированным маркетингом, а несколько позже выходит в Японии и Таиланде. Дебютный альбом расходится 10-тысячным тиражом в Финляндии и 45-тысячным в Европе. Это был несомненный триумф.</p>
+<p> Если можно было бы выделить один выдающийся аспект стиля Children Of Bodom, определяющий их уникальность, то это без сомнения будет гитарная техника. Полные мелодий сложные соло Алекси Лайхо переплетаются с техничными риффами второго гитариста Але Куоппала. Бытует мнение, что соло гитара не достаточно тяжело и брутально звучит для death – группы и не стоит так акцентировать на ней внимание, на что Алекси Лайхо всегда возражает: "Те, кто утверждают, будто соло не могут быть достаточно тяжелы или что они всего лишь ради бессмысленного хвастовства, могут идти в задницу! Ведущая гитара всегда была чрезвычайно важной частью heavy metal, и если некоторые двенадцатилетние black-металлеры смеют говорить, что соло не достаточно злобны, я никогда с этим не соглашусь. Разумеется, каждый может иметь своё собственное мнение, но по моему мнению heavy metal песня с гитарным соло всегда лучше, чем песня без оного." К достоинствам Children Of Bodom несомненно стоит отнести и виртуозную игру басиста Хенкки Блэксмита, утяжеляющие музыку чумовые скоростные пассажи ударника Яски Раатикайнена, и завораживающие клавиши с влиянием классической музыки в исполнении Янне Уормана. Из недостатков можно отметить разве что не особо впечатляющие вокальные данные Алекси Лайхо, голос которого проигрывает на фоне столь совершенной игры инструментов. Сам Алекси не согласен с подобными оценками: "Мой голос – одна из главных вещей, которая даёт настоящую агрессивность нашей музыке, я утверждаю это, несмотря на все упрёки… точно так же я намерен петь и в будущем." В музыке Children Of Bodom определённо просматриваются влияния классического heavy metal Iron Maiden, Manowar, Helloween, что не отрицается и самими музыкантами. Алекси Лайхо говорит: "Все мы любим старые вещи Iron Maiden и мы искренне восхищаемся музыкой Manowar. Мы испытываем огромное влияние этого направления металла, но добавляем больше депрессии и злобы и так создаём звук Children Of Bodom." Не отрицает Алекси и влияния гитарного виртуоза Ингви Мальмстина: "Действительно, он имел огромное влияние на меня и я очень люблю его альбомы. Я слушаю также и других гитаристов, таких как Стив Вай, Джо Сатриани, кроме того я люблю слушать классическую музыку в стиле Моцарта или Баха."</p>
+<p> Столь интересная музыка не могла не найти отклик в сердах металхэдов. После успешного дебюта Children Of Bodom быстро стали известными у себя на родине и были провозглашены прессой новыми королями финского металла. Некоторое время спустя их попросили написать какую-нибудь новую песню для сборника финских metal-групп. Парни записали вещь с нехитрым названием "Children Of Bodom", а лейбл Spinefarm Records, кроме того, решил выпустить её ещё и в виде лимитированного сингла. Таким образом сингл был выпущен и сразу попал в национальный финский музыкальный чарт на самую вершину, продержавшись первым номером семь недель.</p>
+<p> В феврале 1998 года последовал первый европейский тур под эгидой Nuclear Blast совместно с Benediction, Hypocrisy и Covenant. Он прошёл с успехом, однако клавишник Янне не смог принять в нём участие из-за выпускных экзаменов в школе. Вместо него на всех концертах сыграл Эрна, приятель музыкантов. Алекси тогда, сразу по окончании тура, прокомментировал его итоги: "Две недели мы пробыли в туре с Benediction, Hypocrisy и Covenant. Впечатления самые клёвые, мы прекрасно сработались с другими группами. Одно лишь плохо было по возвращении домой - каждый из нас полностью обессилен." Второй тур, организованный Nuclear Blast, состоялся в сентябре того же года. На этот раз партнёрами по сцене были Gorgoroth, закончившие тур преждевременно и заменённые на Night In Gales, Dismember, Agathodaimon и Raise Hell. Снова, как и прошлый раз, Янне не смог поехать в тур вместе со всеми и вместо него на клавишах играла подруга Алекси Лайхо - Кимберли Госс (ex Dimmu Borgir, Therion). Тогда же Алекси присоединился к собственному проекту Кимберли Госс Sinergy, заняв вакансию соло-гитариста. В октябре-ноябре 1998 года он принял участие в записи дебютного альбома Sinergy под названием "Beware The Heavens".</p>
+<p> Тем временем были уже готовы несколько новых песен, и в декабре 1998 года парни отправились на три недели в студию Astia его записывать. Продюссированием альбома, как и в прошлые годы, занимался Ансси Киппо. Художественное оформление обложки выполнил Грэхэм Френч. В январе 1999 года в Хельсинки, а в феврале в Европе был выпущен альбом "Hatebreeder". Он определённо лучше предшественника – быстрее, тяжелее и разнообразнее. Получилась гремучая смесь шведского melodic death metal c классическим power, плюс массивные гитарные соло и великолепные клавиши. Выходу альбома предшествовала запись кавера Sepultura "Mass Hypnosis" для шведского трибьюта "Sepultural Feast" и сингла "Downfall", который включал в себя одноимённую вещь и кавер песни "No Commands" финских thrash-metal пионеров Stone. Сингл попал в финские чарты и стал золотым по результатам продаж, то есть был продан в Финляндии тиражом свыше 20000 экземпляров. Это значит, что парни могут зарабатывать себе на жизнь творчеством и не искать дополнительную работу, что является редкостью среди музыкантов, играющих подобную музыку. "Да, так или иначе, но это в прямом смысле золотой сингл. Я могу жить за счёт музыки, но не более того. Я не богат или что-то в этом роде, но я могу за счёт этого жить." – заявляет Алекси Лайхо.</p>
+<p> В апреле 1999 года Children Of Bodom дали два концерта в Санкт-Петербурге в клубе "Полигон" совместно с Impaled Nazarene, где их зрителями оба раза были более 500 эмоциональных фэнов. Там, после дружеской попойки в номере питерской гостиницы, Алекси Лайхо присоединился к богохульникам из Impaled Nazarene в качестве соло-гитариста, постоянно подчёркивая при этом, что Children Of Bodom остаётся основным коллективом и участие в работе над другими проектами возможно исключительно не в ущерб главному делу. Далее летом группа прокатилась с концертами по Финляндии и Европе. А с 7 по 14 июня они также отыграли три концерта в Японии, один в Осаке и два в Токио, вместе с Dark Tranquillity и Sinergy. Выступления проходили с неизменным успехом, собирая по 1500 человек зрителей. После этого тура Алекси Лайхо поделился своими впечатлениями: "Это было здорово! Это один из лучших опытов за всю мою жизнь. С нами действительно обращались подобно королям… как если бы мы были рок-звёздами, хотя мы и не являемся ими. Но в Японии таких различий нет. Мы отыграли три концерта и все они прошли с аншлагом. Публика там совершенно безбашенная, и это были совершенно непередаваемые впечатления." Концерт в токийском клубе Citta был записан на плёнку и вышел на CD "Tokyo Warhearts", дающем превосходное ощущение энергичности и мощи живых выступлений Children Of Bodom. В октябре концертник вышел в Европе и все 20 тысяс экземпляров этого красочного дигипака с десятью фотографиями были мгновенно распроданны. После этого, в конце сентября, последовал ещё один тур Nuclear Blast совместно с In Flames, Dark Tranquillity и Arch Enemy. На этот раз клавишник Янне смог приять участие в концертах.</p>
+<p> Зимой парни сочиняют новый материал, основным генератором идей для которого, как и прежде, является Алекси Лайхо или Wildchild, как его ещё называют. В начале мая 2000 года Children Of Bodom выпускают новый сингл "Hate Me" из двух песен – "Hate me" и "Hellion" и вновь он взлетел на первое место в финских чартах, а всего лишь за пару недель получил статус золотого по результатам продаж.</p>
+<p> В июне-июле 2000 года Children Of Bodom отправились в знаменитую студию Питера Тагтгрена Abyss записывать последнее на сей момент творение "Follow The Reaper". После записи альбома группа вновь принялась за активную концертную деятельность, в том числе выступив в конце июля на престижном фестивале Milwaukee Metalfest в Соединённых Штатах. В конце октября в Финляндии выходит их долгожданный альбом "Follow the Ripper", в январе он становится доступным для жителей Европы, а ещё чуть позже он появляется и в США. Много ожиданий было связано с этим альбомом, кого-то он разочаровал, кого-то напротив воодушевил. Стиль группы немного изменился, музыка уже не столь быстрая, как это было прежде, но мелодичная и исполненная очень грамотно и технично.</p>
+<p> Альбом открывается песней "Follow the Reaper". Интро, подобно "Warheart" из альбома "Hatebreeder", начинается с прогона на тему смерти, а затем взрывается довольно быстрыми красивыми мелодиями и гроулингом Алекси Лайхо. Некоторые из мелодий напоминают "Hatebreeder" с одноимённого альбома. Затем идёт убойная вещь "Bodom after Midnight", одна из лучших в этом альбоме с великолепным соло в конце. Следующая песня "Children of Decadence" не так хороша, но тем не менее вполне интересна. За ней следует любимая композиция Алекси Лайхо на этом альбоме "Every Time I Die", несколько медленная, хотя и с хорошими мелодиями. Продолжает альбом "Mask of Sanity", ещё одна быстрая превосходная песня с гроулингом, брутальными хорами и чумовыми риффами. "Taste my Scythe" также неплоха, есть скорость, мелодии, злобное рычание. Следующим номером идёт "Hate Me" в новой редакции. Эта песня была записана ещё раз и звучит неперь немного по другому, нежели на сингле. Если в первом варианте некоторые фразы Алекси пел чистым вокалом, то здесь больше гроулинга и больше экспрессии. "Northern Comfort" не примечательна и не выделяется ни чем особенно интересным среди прочих песен, хотя и не лишена приятных мелодий и гитарных риффов. Достойно завершает альбом мелодичная композиция "Kissing the Shadows", создающая невероятно хорошее настроение. Как и все остальные альбомы, новое творение обладает существенным недостатком – альбом короток, всего 38 минут.</p>
+<p> Выпустив "Follow The Reaper", парни из Children Of Bodom снова принялись за живые выступления, от которых они получают очевидное удовольствие. Календарь гастролей расписан до лета 2001 года. Помимо многочисленных выступлений у себя на родине, ожидается европейский тур совместно с Primal Fear и Sacred Steel, а также новая поездка в Японию и Южную Корею.</p>
+
+Автор: Morsus
+
+### 19.10.2001 news Children Of Bodom отправятся в тур
+
+<p>Children Of Bodom в настоящее время сочиняют новые песни. В ноябре группа отправится в тур по Южной Америке. Планируется посетить Мексику, Колумбию, Бразилию и Чили. Также ходят слухи об одном или двух выступлениях в Южной Африке.</p>
+
+Автор: Morsus
+
+### 19.10.2001 news Children Of Bodom will go on tour
+
+<p>Children Of Bodom are currently writing new material. The band will also do a tour in South America in November. Countries that are in the plan are Mexico, Colombia, Brazil and Chile. There has also been rumours of a show or two in South Africa.</p>
+
+Автор: Morsus
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 06.03.2002 news Новый альбом Детей Бодуна...
+
+<p>"CHILDREN OF BODOM" в августе собираются в студию чтобы записать продолжение для альбома "Follow The Reaper". Это будет либо шведская Abyss Studios, либо финнская Astia. "Я написал уже много нового материала..." - говорит мэйнмэн Алекси Лайхо. "Мне кажется, новые вещи получились более цепляющими чем обычно." <BR> <BR> Из других новостей, Лайхо присоединился к проекту "EVIL CHUCKS" - кавер-группе "DEATH", вместе с гитаристом Mitja Harvilahti (MOONSORROW), гитаристом Janne Perttilд, бассистом Oppu Laine (MANNHAI, ex-AMORPHIS), барабанщиком Nalle Цsterman (GANDALF), вокалистом Taneli Jarva (THE BLACK LEAGUE, ex-SENTENCED) и вокалистом Jaska Hurskainen (GANDALF). Команда уже успела отыграть концерт в Хельсинки.</p>
+
+Автор: Yermola
+
+### 06.03.2002 news CHILDREN OF BODOM To Record New Album In August ....
+
+<p>Finland's CHILDREN OF BODOM are tentatively due to enter the studio in August to begin recording the follow-up to 2000's Follow The Reaper CD. “I've been writing a lot of new music,” mainman Alexi Laiho told www.soneraplaza.fi. “I feel that the new stuff is even rawer than before. <BR><BR> "We'll record the new material probably in August. The studios that we're thinking of at the moment are the Abyss Studios in Sweden and the Astia in Lappeenranta [Finland]," added Laiho.<BR><BR> In related news, Laiho joined a number of veteran Finnish metal musicians in a one-off DEATH cover band called EVIL CHUCKS, which performed a gig at Nosturi in Helsinki, Finland on Friday, March 1st in honor of late DEATH frontman Chuck Schuldiner. Appearing with Alexi in the group were guitarist Mitja Harvilahti (MOONSORROW), guitarist Janne Perttilд, bassist Oppu Laine (MANNHAI, ex-AMORPHIS), drummer Nalle Цsterman (GANDALF), vocalist Taneli Jarva (THE BLACK LEAGUE, ex-SENTENCED), and vocalist Jaska Hurskainen (GANDALF). The band's set list consisted of the following:<BR><BR> 01. Zombie Ritual (voc. by Taneli Jarva)<BR> 02. Born Dead (voc. by Jaska Hurskainen)<BR> 03. Within The Mind (voc. by Alexi Laiho)<BR> 04. Defensive Personalities (voc. by Alexi Laiho)<BR> 05. Left To Die (voc. by Jaska Hurskainen)<BR> 06. Infernal Death (voc. by Taneli Jarva)<BR> 07. Pull The Plug (voc. by Jaska Hurskainen)<BR> 08. Evil Dead (voc. by Taneli Jarva)<BR><BR> (Thanks: Tuomas Toivonen)</p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 22.03.2002 news Новый контракт CHILDREN OF BODOM
+
+<p>CHILDREN OF BODOM в апреле подписывают контракт с лэйблом на котором выйдет новый альбом финнов. Пока, музыканты не хотят раскрывать название лэйбла. Группа войдет в студию в августе-сентябре 2002 года. Выпуск нового альбома ожидается в начале 2003 года.</p>
+
+Автор: Dimas
+
+### 22.03.2002 news CHILDREN OF BODOM new label
+
+<p>Finland's CHILDREN OF BODOM are due to sign a new record deal with an as-yet-undisclosed label in early April and will enter the studio in August/September to begin recording their next CD, due in early 2003.</p>
+
+Автор: Dimas
+
+### 05.04.2002 news Children Of Bodom выпустят сингл
+
+<p>Children Of Bodom этой весной запишут новый сингл. В Финляндии он выйдет 1 июля 2002 года. Насчёт остального мира пока ничего не ясно.</p>
+
+Автор: Morsus
+
+### 05.04.2002 news Children Of Bodom will release a single
+
+<p>Children Of Bodom will record a new single this spring. It will be out at least in Finland on 1.7.2002. Not clear when out in rest of the world.</p>
+
+Автор: Morsus
+
+### 25.04.2002 news Новости Children Of Bodom
+
+<p>Children Of Bodom запишут кавер классической песни The Ramones "Somebody Put Something in My Drink". Песня выйдет на грядущем сингле группы "You Better Off Dead" 1 июля. Из других новостей, группа близка к подписанию нового долгосрочного контракта со Spinefarm.</p>
+
+Автор: Vit Belov
+
+### 11.07.2002 news Новый сингл от Children Of Bodom.
+
+<p>Новый сингл от Children Of Bodom "You're Better Off Dead" должен выйти в свет 15-го июля на Spinefarm.</p>
+
+Автор: Korvin
+
+### 16.08.2002 news Новости от Children Of Bodom
+
+<p>Сhildren Of Bodom после долгих раздумий обновили контракт о записи нового CD вместе со Spinefarm Records.<BR> Уже в сетнябре выйдет новый сингл "You're Better Off Dead", вторым треком на котором будет кавер The Ramones "Somebody Put Something In My Drink".<BR> В данный момент группа засела в студию Astia, где пишет новый альбом, который выйдет в начале 2003 года.</p>
+
+Автор: Korvin
+
+### 20.11.2002 news Новый альбом CHILDREN OF BODOM
+
+<p>Стал известен трэк-лист нового альбома группы CHILDREN OF BODOM. В новый альбом группы "Hate Crew Deathroll", который выйдет 7 января 2003 года через Spinefarm Records войдут следующие вещи:</p>
+<p><IMG SRC="/images/news_rus/2002.11/3413.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. Needled 24/7 (4:08) <BR> 02. Sixpuonder (3:24) <BR> 03. Chokehold (Cocked 'n Loaded') (4:12) <BR> 04. Bodom Beach Terror (4:35) <BR> 05. Angels Don't Kill (5:13) <BR> 06. Triple Corpse Hammerblow (4:07) <BR> 07. You're Better Off Dead (4:01) <BR> 08. Lil' Bloodred Ridin' Hood (3:25) <BR> 09. Hate Crew Deathroll (3:33)</p>
+
+Автор: Dimas
+
+### 14.01.2003 news CHILDREN OF BODOM штурмует хит-парад
+
+<p>Новый альбом финских музыкантов CHILDREN OF BODOM под названием "Hate Crew Deathroll" с первой же недели занимает первую строчку в национальном финском чарте. При этом, позади него остались саундтрэк "Lord Of The Rings - The Two Towers" и последние альбомы таких исполнителей, как T.A.T.U., Robbie Williams, Eminem и других. Альбом вышел пока только на просторах Финляндии. 5 февраля он выйдет в Японии, 10 марта в Швеции и 17 марта в Германии. Дата североамериканского релиза пока не установлена.</p>
+
+Автор: Dimas
+
+### 08.02.2003 reviews Стагнация высшего порядка
+
+<p>Что должно случится, чтобы Вы перестали покупать пластинки любимой группы? Наводнение, обвал на бирже... или же излишнее заумствование, как на последнем Blind Guardian, а может самоплагиат? Я думаю, только третья причина отвратит неотвратимое, да и то, только на n-ом альбоме. К Children Of Bodom мои рассуждения не относятся... Стиль, естественно, никогда не менялся, зато настроение каждого альбома разное. Вот и на этот раз были добавлены лишь маленькие штрихи к обычному натюрморту. Кое-где добавлена электронные сэмплы, появились какие-то брутально-трэшовые риффы и даже некое подобие баллады 'Angels Don't Kill'. Но всё это настолько неуловимо изменило основное блюдо, как если в знакомую яичницу добавлять различные специи (конечно же, в пределах разумного). Всегда удивлялся, почему фэны из года в год покупают новые альбомы таких китов, например, как Running Wild или Motorhead. А может дело как раз в этих неулоыимых специях. Всем поклонникам мелодичной музыки... Великолепно, как обычно.</p>
+
+Автор: Vit Belov
+
+### 17.02.2003 reviews &quot;Жнец Смерти&quot; выходит к людям!
+
+<p>Свершилось! "Жнец Смерти" до этого бродивший где-то в глухомани озера Бодом пришел в Город и машет там своей косой направо и налево! Обложка в багряно-кровавых тонах, с витиеватым логотипом сверху - это новый альбом Children Of Bodom "Hate Crew Deathroll" - прекрасное пособие всем "тяжелым" командам: как надо играть и работать. Именно образцовой работой можно назвать такой сильный диск! Отточенный, безупречный звук, море гитарных и электронных эффектов. Мелодизм, доведенный до новых вершин и в то же время - убойная тяжесть и сохранение "фирменного звучания". Все это (почти все) - детище гитариста-вокалиста Alexi (Vildchild) Laiho. Большое спасибо ему - от себя лично и от всех российских любителей тяжелой музыки! И еще, по-моему, этот альбом - самый жесткий у неистовых финнов. И самый брутальный, в плане крепких выражений. Редко в какой песне не мелькает известное английское слово из четырех букв. Но это вряд-ли можно назвать "достижением". Достижение, это то, что альбом этот вышел не хуже трех предыдущих!</p>
+<p>Что нового: появились хоровые припевы-подпевки и классные партии клавишных.</p>
+<p>Что не понравилось? Да все понравилось! Даже две бонусные песенки, совсем не в духе диска.</p>
+<p>Самые запоминающиеся песни: Sixpounder, Triple Corpse Hammerblow, You're Better Off Dead, Hate Crew Deathroll. Думаю, что пока Hate Crew Deathroll можно назвать "альбомом года". Рекомендую всем!</p>
+
+Автор: Msparrow
+
+### 22.03.2003 reviews Monotony of high level
+
+<p>What do have to happen to you wouldn't buy CD of favourite band? Flood, exchange collapse? Or may be too clever music, as last work of BLIND GUARDIAN? May be plagiarism of theiselfs? I think, only third reason can do inevitable only on Nth album... My thoughts don't relate to CHILDREN OF BODOM... Their style, naturally, have never changed, but mood of every album is different. In this time There were added only small touches to usual picture. Somewhere there were added electonic samples, any brutal-thrash riffes and even likeness of ballad 'Angels Don't Kill'. But basic dish was changed very elusive, as you would add different spicies in familiar fried eggs (in limits of reasonable). I always astonished, Why fans bought albums by RUNNING WILD or MOTORHEAD? May be, becouse of these elusive species? To all fans of melodic music. Magnificent, as usually...</p>
+
+Автор: Vit Belov
+
+### 09.06.2003 reviews Раздолбайская академичность
+
+<p>Ну надо же… После отстойного "Follow the Reaper" CHILDREN OF BODOM умудрились выпустить в какой-то мере реабилитирующий их альбом. Альбом, кстати говоря, вышел абсолютно раздолбайский – это чувствуется сразу. Видится, впрочем, тоже. Чего стоят одни только названия, – как альбома, так и песен! "Chokehold (Cocked "n" Loaded)", "You"re Better Off Dead", "Lil" Bloodred Ridin" Hood"… Раздолбайство слышно и в музыке, несмотря на то, что она по-прежнему академична. Кстати, насчёт академичности. Главный плюс этой работы заключается в том, что Алекси Лайхо и его собутыльники вспомнили о том, что они играют МУЗЫКУ. Или, по крайней мере, ДОЛЖНЫ её играть, а не проводить внутрикомандные конкурсы "Кто быстрее". Не в последнюю очередь именно этим "Hate Crew Deathroll" чем-то напоминает "Something Wild". За что и получает хорошую оценку.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.07.2003 articles CHILDREN OF BODOM в Москве (пресс-релиз)
+
+<p>Компания <B>BIG BROTHER ENTERTAINMENT </B>представляет концерт одной из последних открытий 20-го века, молодой, но знаменитой группы из Финляндии – <B>CHILDREN OF BODOM</B>! Наряду с Nightwish, эти молодых финны заставили считаться с собой не только Европу, но и весь мир. То, что многие группы могут достичь за десятилетия, этим молодым дарованиям посильно сделать за год. Не случайно, из-за их успеха известный мировой лейбл Universal обратил свое внимание на маленькую Финляндию, более того, этот гигант поп индустрии обратил внимание на совершенно не свойственный себе музыкальный жанр. Большая часть этой заслуги принадлежит именно <B>CHILDREN OF BODOM</B>. Они уже приезжали в Россию, но было это в далеком 1997 году, когда о существовании этой группы мало кто знал, они только только выпустили свой дебютный альбом “Something Wild”. Однако те, кто случайно пришел на концерт, были просто удивлены и покорены тем, что делали эти семнадцатилетние мальчишки. Уже тогда всем стало понятно, что перед ними будущие покорители мировых чартов – и они не ошиблись. Их дебютный альбом разошелся огромным тиражом, последующие синглы стали золотыми в Финляндии. А далее пошло по нарастающей – вышедший в 1998 году “Hatebreeder” становится платиновым, группа тут же получает многочисленные приглашения от различных промоутеров по всему миру. С особым успехом были даны концерты в Японии, где их популярность выросла до таких же пределов, какими могут похвастаться мировые легенды хард рока. По результатам того тура в Японии группа выпустила своей первый концертный альбом, который был записан в зале и совершенно не подвергавшийся правке в студии. Результат ошеломил всех – такой слаженной, качественной игры можно ожидать от группы после 20 лет игры, а не от людей, играющих вместе всего 3 года. Помимо японского турне, <B>CHILDREN OF BODOM </B>активно гастролирует по Европе и собирает большие площадки. Более того, этой группе удалось сделать почти невозможное – они стали родоначальниками нового стиля. <B>CHILDREN OF BODOM </B>первые, кто сумели грамотно и красиво скрестить black, death и power, выдав на гора изумительный результат, покоривший абсолютно всех. Более того, своей игрой они породили множество команд-клонов, что ранее удавалось лишь признанным мастерам жанра. Ожидание их третьего альбома, “Follow The Reaper”, обернулось платиновыми продажами сингла “Hate Me!”, а сам альбом получил дважды платиновый статус в Финляндии, и стал просто платиновым в большинстве Европейских стран. Группа сняла свое первое нормальное видео на песню “Everytime I Die”, которое попадало на различные музыкальные каналы, а также являлось одним из основных в многочисленных музыкальных сборниках. Представляете, с каким нетерпением ожидался их новый релиз? Музыканты заставили ждать публику достаточно долго, ибо у каждого из них есть как минимум один сольный проект (Warmen, Sinergy), который нисколько не сказался на качестве их основного коллектива. Когда люди талантливы, они талантливы во всех своих начинаниях. Новый диск коллектива превзошел ожидания многих – такого убийственного и мощного звука у CHILDREN OF BODOM еще не было. Девять зубодробильных номеров просто сносят с ног, они заставляют по-новому взглянуть на все музыкальное наследие. Именно в поддержку этого альбома группа и едет в Россию. Помимо номеров с последнего альбома, группа сыграет и свои старые, уже проверенные не в одном концерте, хиты с прошлых релизов, а также порадует публику парой сюрпризов.</p>
+<p ALIGN="CENTER"><IMG SRC="/images/articles_rus/2003.07/4598.jpg" ALT="pho" width=450 height=343 hspace="15" vspace="5" border="1" align="center"></p>
+<p> А в начале концерта на сцене появятся люди в белых халатах. Не пугайтесь, они никого не будут забирать в больницу, они просто отвезут вас в сумасшедший дом! В таких оригинальных сценических костюмах выступает молодая и талантливая московская команда <B>РОГАТЫЕ ТРУПОЕДЫ</B>, чей дебютный альбом скоро увидит свет посредством отечественного лейбла <B>CD-MAXIMUM</B>. Кто знает, а вдруг из этой со всех сторон забавной и интересной формации не появится группа, так же как и <B>CHILDREN OF BODOM</B>, штурмующая хит-парады стран мира? Не стоит опаздывать к началу концерта, обязательно посмотрите на разогрев, ну и естественно на хэдлайнеров концерта! Не пропустите этот концерт, о котором все будут вспоминать несколько лет – вы должны быть там!</p>
+
+Автор: Dimas
+
+### 20.07.2003 news 
+
+<p ALIGN="CENTER"><IMG SRC="/images/news_rus/2003.07/4618.jpg" ALT="pho" width=300 height=228 hspace="15" vspace="5" border="1" align="center"></p>
+<p> В субботу 16 августа 2003 года в Москве (ДК Горбунова) состоится единственный концерт финской группы <A HREF="http://musica.mustdie.ru/ru/band/children_of_bodom/">CHILDREN OF BODOM</A>. Открывают концерт <A HREF="http://metalkings.ru/trupoedy/">РОГАТЫЕ ТРУПОЕДЫ</A>, представляющие свой новый альбом.<BR> Начало концерта в 19.00<BR> Цены билетов: партер - 600 руб., балкон - 900 руб., VIP - 1200 руб. <BR> Организатор концерта - <B>Big Brother Entertainment </B></p>
+
+Автор: Dimas
+
+### 01.08.2003 news Лучшее от CHILDREN OF BODOM
+
+<p>CHILDREN OF BODOM подготовили к выпуску 3 сентября на японской Toy's Factory Records подборку своих лучших вещей "Bestbreeder (1997-2000)". Для эксклюзива, в него войдет кавер-версия Biily Idol "Rebel Yell".</p>
+
+Автор: Dimas
+
+### 19.09.2003 articles Children of Bodom в Москве: угар по-фински
+
+<p>16 августа. Летний вечер. Праздник на улице миталистов. Children of Bodom. Промоутерская компания Big Brothers продолжает знакомить нас с тяжёлой миталической сценой соседней Финляндии, и на этот раз - родоначальники финской ветви melodic death metal.</p>
+<p>Концерт начался даже немного раньше заявленного времени, вот ведь как бывает. Не успел зайти в зал, а разогрев уже оказывается идёт полным ходом. Трупоеды в окровавленных халатах уже вовсю бесчинствуют на сцене. Некрозавр, Спиногрыз... остальных не видать, окутаны клубами смрадного дыма. Преданные фэны-некропехотинцы рубяцца у сцены в диком угаре, все прочие восторженно слушают и внимают. Всего каких-то пара лет группе, а уже известны в обеих столицах, есть узнаваемые популярные в народе песенки, диск на CD-Maximum вышел только что, и вот она слава - тысячный зал Горбушки. Что ж, нормально вынесли груз славы и ответственности, отыграли, не напрягаясь, будто в том же Р-Клубе. Молодцы.</p>
+<p>Children of Bodom долго ждать не заставили. После краткой технической паузы, даже пива выпить не успел, - инструментальный проигрыш, тра-ля-ля, Hate Me... и понеслась! Профессионализм, отменное владение инструментами и в то же время искренняя отдача. И как итог - тёплый приём публики, неповторимая адски душевная атмосфера. С первых же песен пробиться ближе к сцене невозможно, давит и трясёт уже в середине зала. Кто-то предпочёл отойти взад и спокойно смотреть оттуда, ну а те, кому удалось пролезть вперёд, в полной мере ощутили прелести эпицентра настоящего митального концерта. Давка, жара, мясорубка и рубилово, затихающее слегка на время соляков, падающие сверху тела в тяжёлых ботинках. Да уж, тела - это отдельная тема. На сцену вылазили по пять человек за раз. Кто увроачивался от секьюрити, а кто и не успевал, и тогда завязывалась потасовка, за которой и музыкантов порой не было видно. А уж сам концерт - постоянная фирменная дуэль скоростных техничных риффов Алекси и безумных клавиш Янне, барабанная доллбёжка Яски - некогда и дух перевести. Алекси - фронтмен, вовсю красовался на сцене, так и эдак разворачивал гитару, приседал, играя соляки. В перерывах между номерами смачно плевался направо и налево, перемежая обычную речь разнообразными факингфаками, мазафаками и тому подобным словесным рок-н-рольным мусором. Душка. Под пристальным вниманием - новый гитарист Роопе, рекрутированный из Sinergy взамен ушедшего Александра Куоппалы. Хорош. Смотрится, будто всегда играл в Children of Bodom. В дыму и копоти скрываются барабанщик и клавишник. Тьму прорезают сполохи и лучи света. Красота! И над всем этим - безумный убийца с озера Бодом, смотрящий в зал с подсвечиваемого задника. Народ поёт хором все песни, и не только признанные боевики "Silent Night, Bodom Night", "Lake Bodom", "Bodom after Midnight". Угар полный, но всё же, как будто этого мало, кто-то надул воздушные шарики и они перекатывались по рукам и головам в зале, добавляя ирреальности происходящему. Под конец среди прочего исполнили новый шлягер "Hate Crew Death Roll" с одноимённого альбома, по очереди были представлены все музыканты, и до свидания.</p>
+<p>После концерта, как водится, массовое распитие пива по пути к метро и около метро, обсуждение концерта, недовольная милиция. Теперь с наступлением осени и открытием нового сезона концерты будут один за другим, и хочется надеяться, что они пройдут не хуже.</p>
+Автор: Morsus
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 05.01.2004 news Свежие новости от CHILDREN OF BODOM
+
+<B>CHILDREN OF BODOM</B> планируют начать запись нового EP уже в марте, а если всё будет в порядке, то и запись нового полноформатного альбома начнётся в конце 2004 года. Помимо этого слухи о предстоящем DVD группы&nbsp;вполне имеют право на существование. Подробная информация ожидается позже.
+Автор: Uneral
+
+### 06.01.2004 news Finnish Metal Awards 2003
+
+<P>3 января в Tavastia Club прошло вручение наград Finnish Metal Awards 2003. Вот список победителей:&nbsp;&nbsp;</P>
+<P>Группа года в Финляндии: <B>CHILDREN OF BODOM</B> <BR>Открытие года в Финляндии: <B>MACHINE MEN</B> <BR>Альбом года в Финляндии: <B>KOTITEOLLISUUS – "Helvetist&auml; It&auml;&auml;n"</B> <BR>Группа года: <B>IRON MAIDEN</B> <BR>Открытие года: <B>EVANESCENCE</B> <BR>Альбом года: <B>IRON MAIDEN – "Dance of Death"</B> <BR>Продюссер года: <B>Mikko Karmila</B> <BR>Metal Video года: <B>KOTITEOLLISUUS – "Min&auml; Olen"</B> <BR>Metal-событие года: <B>Tuska Metal Festival</B> <BR>Также специальной премией за вклад в музыкальную культуру были награждены <B>CANNIBAL CORPSE.</B> </P>
+Автор: Uneral
+
+### 06.01.2004 news FINNISH METAL AWARDS 2003
+
+The 2003 installment of the <B>Finnish Metal Music Awards</B> (<B>Sirkkelirock 2003</B>) was held this past Saturday (January 3) at Tavastia Club in Helsinki.<BR><BR>The winners are as follows:<BR><BR>Finnish Band of the Year: <B>CHILDREN OF BODOM</B> <BR>Finnish Newcomer of the Year: <B>MACHINE MEN</B> <BR>Finnish Album of the Year: <B>KOTITEOLLISUUS – "Helvetist&auml; It&auml;&auml;n"</B> <BR>International Band: <B>IRON MAIDEN</B> <BR>International Newcomer: <B>EVANESCENCE</B> <BR>International Album: <B>IRON MAIDEN – "Dance of Death"</B> <BR>Producer of the Year: <B>Mikko Karmila</B> <BR>Metal Video of 2003: <B>KOTITEOLLISUUS – "Min&auml; Olen"</B> <BR>Metal Event of 2003: <B>Tuska Metal Festival</B> <BR><BR>In addition, <B>Sirkkelirock</B> presented a special Lifetime Achievement Award to <B>CANNIBAL CORPSE</B> for acknowledged work in metal music.<BR>
+Автор: Uneral
+
+### 12.03.2004 news Dinamo Open Air  - первые участники
+
+<B>SLAYER</B>, <B>LIFE OF AGONY</B>, <B>DIMMU BORGIR</B>, <B>CHILDREN OF BODOM</B>, <B>NIGHTWISH</B>, - первые группы, которые подтвердили свое участие в фестивале Dynamo Open Air, который пройдет в субботу 5 июня в Goffertpark (Nijmegen, Голландия). Последний раз знаменитый фест гремел четыре года назад на том же месте. Всего на 2-х сценах выступят 14 групп, а цена билета составит 50 евро.
+Автор: Omon Ra
+
+### 17.04.2004 news CHILDREN OF BODOM выпускают EP
+
+<B>CHILDREN OF BODOM</B> закончили запись нового EP "<B>Trashed, Lost & Strungout</B>", который выйдет летом. На него войдут 2 новые песни, несколько кавер-версий и "ещё кое-что".
+Автор: Vit Belov
+
+### 12.08.2004 news Подробности о новом мини-альбоме CHILDREN OF BODOM
+
+<P>Новый мини-альбом <B>CHILDREN OF BODOM</B> <B>"Trashed, Lost & Strungout" </B>выйдет 31 августа на <B>Spinefarm</B>. Также выйдет и версия мини-CD и версия мини-DVD в сентябре. Трэк-листы:</P>
+<P>CD-Single:<BR>01. <B>Trashed, Lost & Strungout</B><BR>02. <B>She Is Beautiful</B> (<B>ANDREW W.K.</B> cover)</P>
+<P>CD-EP:<BR>01. <B>Trashed, Lost & Strungout</B><BR><IMG height=135 alt=cover hspace=0 src="/images/news_rus/2004.08/6917.jpg" width=135 align="right" border=5>02. <B>Knuckleduster</B><BR>03. <B>Bed of Nails</B> (<B>ALICE COOPER</B> cover)<BR>04. <B>She Is Beautiful</B> (<B>ANDREW W.K.</B> cover)<BR>Enhanced Portion:<BR>* <B>"Trashed, Lost & Strungout"</B> video<BR>* <B>"Trashed, Lost & Strungout"</B> live in Helsinki<BR>* Video footage of <B>CHILDREN OF BODOM</B>'s night out<BR><BR>DVD-EP:<BR>01. <B>Trashed, Lost & Strungout</B> (video / 5.1 & stereo)<BR>02. <B>Knuckleduster</B> (audio / 5.1 & stereo)<BR>03. <B>Bed of Nails</B> (audio / stereo / <B>ALICE COOPER</B> cover)<BR>04. <B>She Is Beautiful</B> (audio / stereo / <B>ANDREW W.K.</B> cover)<BR>05. <B>ANDREW W.K.</B> greets <B>CHILDREN OF BODOM</B> (video footage from Japan)<BR>06. <B>Angels Don't Kill</B> (remix) (5.1 & stereo)<BR>07. <B>"Trashed, Lost & Strungout"</B> live in Helsinki + video footage of <B>COB</B>'s night out (stereo)<BR>08. <B>Sixpounder</B> (video / 5.1 & stereo)<BR>09. <B>Downfall</B> (live at <B>Tuska</B> festival) (video / 5.1 & stereo)<BR>10. <B>Everytime I Die</B> (live at <B>Tuska</B> festival) (video / 5.1 & stereo)&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 22.12.2004 news Alexi Laiho сломал руку
+
+<P><STRONG>Alexi Laiho</STRONG> - лидер <STRONG>CHILDREN OF BODOM</STRONG> - сломал руку. К сожалению, группе придётся отменить ближайшие выступления, в том числе концерт в память <STRONG>Dimebag Darrell</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.01.2005 news Новый альбом CHILDREN OF BODOM
+
+<P>Стали известны первые подробности о новом альбоме <STRONG>CHILDREN OF BODOM</STRONG>. Пока не названная пластинка будет записана вместе с продюсером <STRONG>Mikko Karmila</STRONG>, но не в студии <STRONG>Finnvox</STRONG>. Альбом выйдет в августе-сентябре на <STRONG>Spinefarm/Universal</STRONG>, если не случится задержек с записью.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей. Третий сольный альбом клавишника группы <STRONG>WARMEN</STRONG> выйдет в мае на<STRONG> Spinefarm</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 17.03.2005 news CHILDREN OF BODOM в работе над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фины <STRONG>CHILDREN OF BODOM</STRONG> планируют в апреле-мае войти в студию вместе с <STRONG>Mikko Karmila</STRONG> для записи своего нового полнометражного творения, релиз которого запланирован на 21 сентября 2005 года. </FONT></P>
+Автор: Dimas
+
+### 29.03.2005 news Финская полиция наконец-то раскрыла убийство у озера Бодом
+
+<P>Национально бюро расследований раскрыло массовое убийство у озера Бодом, которое случилось 45 лет назад. Выяснилось, что дети, погибшие у этого озера, вовсе и не дети, а юноши и девушки, которые активно занимались сексом в палатке у водоёма. Убийца <STRONG>Nils Gustafsson</STRONG> совершил преступление, из-за своих отношений с одной из девушек, которые весело проводили время. Сейчас этому человеку 64 года, и он ожидает приговора по этому делу.</P>
+<P>К чему мы это написали? Кто знает, поймёт.</P>
+Автор: Vit Belov
+
+### 19.04.2005 news CHILDREN OF BODOM продолжают работу над новым альбомом
+
+<P>Фины&nbsp;<STRONG>CHILDREN OF BODOM</STRONG> закончили запись партий ударных для своего нового альбома, выход которого ожидается в сентябре на <STRONG>Spinefarm Records</STRONG>. На данный момент, музыканты начали запись гитар и басовых партий.&nbsp;Завершение записи альбома запланировано на конец мая.&nbsp;&nbsp;<BR></P>
+Автор: Dimas
+
+### 22.04.2005 news CHILDREN OF BODOM объявили название нового альбома
+
+<P>Новый альбом финских музыкантов из&nbsp;<B>CHILDREN OF BODOM</B> получил название <B>"Are You Dead Yet"</B>. Напомним, что его выход запланирован на 21 сентября через <B>Spinefarm Records</B>.<BR></P>
+Автор: Dimas
+
+### 08.06.2005 news Новый альбом CHILDREN OF BODOM записан
+
+<P>Новый альбом<STRONG> CHILDREN OF BODOM "Are You Dead Yet?"</STRONG> уже записан. Дата релиза: 19 сентября!</P>
+Автор: Vit Belov
+
+### 28.06.2005 news Новый альбом CHILDREN OF BODOM
+
+<P>Как уже сообщалось, новый альбом <STRONG>CHILDREN OF BODOM "Are You Dead Yet?"</STRONG>&nbsp;уже записан и выйдет 19 сентября. Трэк-лист:</P>
+<P><IMG height=148 alt="" hspace=0 src="/images/news_rus/2005.06/8901.jpg" width=150 align=right border=5>01. <B>Living Dead Beat</B> <BR>02. <B>Are You Dead Yet?</B> <BR>03. <B>If You Want Peace... Prepare for War</B> <BR>04. <B>Punch Me I Bleed</B> <BR>05. <B>In Your Face</B><BR>06. <B>Next in Line</B> <BR>07. <B>Bastards of Bodom</B> <BR>08. <B>Trashed, Lost & Strungout</B> <BR>09. <B>We're Not Gonna Fall</B><BR></P>
+Автор: Vit Belov
+
+### 28.06.2005 news New album of CHILDREN OF BODOM
+
+<P><STRONG>CHILDREN OF BODOM</STRONG> will release their new album "<STRONG>Aren't You Dead Yet</STRONG>?" on 19th of september. Track-list:</P>
+<P><IMG height=148 alt="" hspace=0 src="/images/news/2005.06/8902.jpg" width=150 align=right border=5>01. <B>Living Dead Beat</B> <BR>02. <B>Are You Dead Yet?</B> <BR>03. <B>If You Want Peace... Prepare for War</B> <BR>04. <B>Punch Me I Bleed</B> <BR>05. <B>In Your Face</B><BR>06. <B>Next in Line</B> <BR>07. <B>Bastards of Bodom</B> <BR>08. <B>Trashed, Lost & Strungout</B> <BR>09. <B>We're Not Gonna Fall</B><BR></P>
+Автор: Vit Belov
+
+### 18.07.2005 news CHILDREN OF BODOM перепели Britney Spears
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На сингл "<STRONG>In Your Face</STRONG>" от <STRONG>CHILDREN OF BODOM</STRONG>, который выйдет 17 августа, войдёт кавер-версия нетленки от <STRONG>Britney Spears "Oops i Did It Again</STRONG>". Трэк-лист:</FONT></P>
+<P>01. <B>In Your Face</B><BR>02. <B>Oops I Did It Again</B><BR>03. <B>In Your Face</B> (censored version)</P>
+Автор: Vit Belov
+
+### 16.08.2005 news CHILDREN OF BODOM продлевают контракт
+
+Фины <STRONG>CHILDREN OF BODOM</STRONG> продлили свой контракт со <STRONG>Spinefarm Records</STRONG> еще на три альбома.
+Автор: Dimas
+
+### 12.09.2005 reviews Вы до сих пор слушаете это?
+
+<P>Пятая студийная работа одного из современных лидеров финской сцены - группы <STRONG>CHILDREN OF BODOM</STRONG>. Ажиотаж был невероятным. Подогревался он еще с прошлого года, выпуском сингла <STRONG>"Trashed, Lost & Strungout", </STRONG>затем недавно вышел еще один нехилый сингл<STRONG> </STRONG>"<STRONG>In Your Face</STRONG>" с одноименной заводной композицией и отличным кавером на <STRONG>Britney Spears "Ooops! I Did It Again</STRONG>". Я ждал шедевра, честно скажу. И вот, прослушал я этот альбом первый раз. Просто класс! <STRONG>COB</STRONG> в наилучшем виде. Прослушал я его второй раз. Меня охватили сомнения. Прослушал третий раз и... ну что сказать? Все очень профессионально, технично, задорно и мелодично, быстро и виртуозно, очень качественно, присутствует большое количество гитарных и клавишных соло, все это&nbsp;напоминает смесь <STRONG>"Hatebreeder" </STRONG>и<STRONG> "Follow The Ripper".</STRONG> Исчезли ню-металлические фишки, зато добавились некоторые альтернативные, клавиши снова играют где хотят, в то же время, наблюдается небольшой возврат к корням. Как и все остальные альбомы, новое творение обладает существенным недостатком – альбом короток, всего 37 минут. Слушаешь все это, слушаешь и понимаешь, что все это уже давно когда-то слышал. Ну как можно играть одно и то же (в общем-то) столько альбомов подряд? Вам еще не надоело слушать эту бесконечную песню? Если нет, то милости просим. От этого альбома вы будете в восторге! Особенно от первой его половины, самой хитовой. Все остальные, лучше переслушайте старые альбомы <STRONG>COB</STRONG>, там все тоже самое, только гораздо лучше.</P>
+Автор: Dimas
+
+### 12.12.2005 news CHILDREN OF BODOM пишут из тура...
+
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2005.12/9837.jpg" width=150 align=left border=5>Басист <STRONG>CHILDREN OF BODOM&nbsp;Henkka</STRONG> опубликовал туровый апдэйт на сайте группы. Финны находятся в США вместе с <STRONG>AMON AMARTH</STRONG> и <STRONG>TRIVIUM</STRONG>.</P>
+<P>"<EM>Мы в великолепных отношениях с нашими шведскими коллегами. Особенно с ребятами из <STRONG>TRIVIUM</STRONG>, некоторые из них даже засыпают в нашем автобусе. В общем, классно проводим время</EM>", - пишет музыкант.</P>
+<P>В группе есть и неприятные новости. Клавишник <STRONG>Janne Wirman</STRONG> был очень болен в начале поездки. Он практически не мог ничего есть в течение целой недели, а концерты играл на обезболивающих аппаратах. "<EM>Кроме этого, все, как всегда, подхватывают разнообразные гриппы, но фэны везде принимают настолько тепло, что этих мелочей не замечаешь</EM>", - продолжает <STRONG>Henkka</STRONG>. </P>
+Автор: Vit Belov
+
+### 26.01.2006 news Alexi Laiho сломал палец на ноге
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фронтмен <STRONG>CHILDREN OF BODOM</STRONG> <STRONG>Alexi Laiho</STRONG> сломал палец на ноге во время концерта в Барселоне, ударившись о монитор. Несмотря на это, Европейский тур продолжится.</FONT></P>
+Автор: Vit Belov
+
+### 06.02.2006 news Эпидемия в CHILDREN OF BODOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>CHILDREN OF BODOM</STRONG> <STRONG>Jaska W. Raatikainen</STRONG>&nbsp;сломал ребро. Несмотря на это, тур продолжается...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что в этом же туре сломал палец на ноге <STRONG>Alexi Laiho</STRONG>. Группа предупреждает, что шоу могут быть короче обычного.</FONT></P>
+Автор: Vit Belov
+
+### 23.05.2006 news Жёлтая пресса раскрыла секрет LORDI
+
+<P><IMG height=180 alt="" hspace=0 src="/images/news_rus/2006.05/10395.jpg" width=350 align=left border=5>Жёлтая пресса некоторых европейский стран, в том числе газета <STRONG>SUN</STRONG> из Англии, раскрыла секрет <STRONG>LORDI</STRONG>, опубликовав старое фото<STRONG> CHILDREN OF BODOM</STRONG>. Группа <STRONG>Alexi Laiho</STRONG> была вынуждена опровергать этот вымысел. "<EM>Никто из представленных на фото людей не выступал на минувшем Евровидении</EM>", - говорится на сайте <STRONG>CHILDREN OF BODOM</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.09.2006 news CHILDREN OF BODOM выпускают DVD
+
+<P>16 октября выходит DVD от <STRONG>CHILDREN OF BODOM "Chaos Ridden Years - Stockholm Knockout Live</STRONG>". Концерт, ставший основой для пластинки, был снят в Стокгольме режисёром<STRONG> Patric Ullaeus</STRONG>. Трэк-лист:</P>
+<P><IMG height=335 alt="" hspace=0 src="/images/news_rus/2006.09/10672.jpg" width=250 align=right border=5>1. <STRONG>Living Dead Beat</STRONG><BR>2. <STRONG>Sixpounder<BR></STRONG>3. <STRONG>Silent Night, Bodom Night<BR></STRONG>4. <STRONG>Hate Me!<BR></STRONG>5. <STRONG>We're Not Gonna Fall<BR></STRONG>6. <STRONG>Angels Don't Kill<BR></STRONG>7. <STRONG>Deadbeats I</STRONG> (drum solo)<BR>8. <STRONG>Bodom After Midnight / Bodom Beach Terror</STRONG> - medley<BR>9. <STRONG>Follow the Reaper</STRONG> <BR>10. <STRONG>Needled 24/7<BR></STRONG>11. <STRONG>Clash of the Booze Brothers</STRONG> (solo battle)<BR>12. <STRONG>In Your Face<BR></STRONG>13. <STRONG>Hate Crew Deathroll</STRONG><BR>14.<STRONG> Are You Dead Yet?</STRONG><BR>15. <STRONG>Solo: Roope Latvala - Guitar</STRONG><BR>16. <STRONG>Lake Bodom<BR></STRONG>17. <STRONG>Everytime I Die<BR></STRONG>18. <STRONG>Downfall</STRONG></P>
+<P>Кроме концерта, длительностью 97 минут, на DVD попадут 7 видеоклипов и документальный фильм. Звуковая дорожка будет доступна в формате 2CD.</P>
+Автор: Vit Belov
+
+### 09.02.2007 news Alexi Laiho опять травмировался
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>CHILDREN OF BODOM Alexi Laiho</STRONG> травмировал плечо, играя в боулинг. Группа вынуждена отменить любую деятельность в течение 6 недель по предписанию врачей.</FONT></P>
+Автор: Vit Belov
+
+### 07.09.2007 news CHILDREN OF BODOM войдут в студию
+
+<P><STRONG>CHILDREN OF BODOM</STRONG> собираются войти в студию в октябре для записи 9-10 новых песен для будущего альбома. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 22.10.2007 news Дата релиза CHILDREN OF BODOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>CHILDREN OF BODOM</STRONG>, который сейчас записывается в<STRONG> Petrax Studio</STRONG>, выйдет 7 апреля 2008 года на <STRONG>Spinefarm</STRONG>. Уже известно, что на пока не названной пластинке будет гостить <STRONG>Peter Tagtgren</STRONG> (<STRONG>HYPOCRISY, PAIN</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 16.11.2007 news Название CHILDREN OF BODOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, <STRONG>CHILDREN OF BODOM</STRONG> работают в студии над новым альбомом. Пластинка, которая выйдет в 2008 году, будет называться <STRONG>'Blooddrunk'.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 10.12.2007 news Alexi Laiho выпустит DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фирма <STRONG>Rock House</STRONG>, лидер в выпуске обучающих DVD, заключила контракт с лидером <STRONG>CHILDREN OF BODOM Alexi Laiho</STRONG>. В январе выйдет диск, на котором <STRONG>Alexi </STRONG>будет обучать всех желающих играть в своём стиле. DVD будет сопровождаться бесплатной книжкой с уроком.</FONT></P>
+Автор: Vit Belov
+
+### 11.01.2008 news CHILDREN OF BODOM опубликовали трэк-лист
+
+<P>Новый альбом <STRONG>CHILDREN OF BODOM</STRONG> <STRONG>"Blooddrunk" </STRONG>выходит 7 апреля на <STRONG>Spinefarm</STRONG>. Стал известен трэк-лист этой пластинки:</P>
+<P>01. <B>Hellhounds On My Trail</B><BR>02. <B>Blooddrunk</B><BR>03. <B>LoBodomy</B><BR>04. <B>One Day You Will Cry</B><BR>05. <B>Smile Pretty For The Devil</B><BR>06. <B>Tie My Rope</B><BR>07. <B>Done With Everything, Die For Nothing</B><BR>08. <B>Banned From Heaven</B><BR>09. <B>Roadkill Morning</B></P>
+Автор: Vit Belov
+
+### 21.01.2008 news Обложка нового CHILDREN OF BODOM
+
+<P><IMG height=390 alt="" hspace=0 src="/images/news_rus/2008.01/12155.jpg" width=390 align=right border=5>Мы уже сообщали, что новый альбом <STRONG>CHILDREN OF BODOM "Blooddrunk"</STRONG> выходит 7 апреля на<STRONG> Spinefarm</STRONG>. Группа опубликовала обложку будущей пластинки.</P>
+Автор: Vit Belov
+
+### 29.01.2008 news Новая песня CHILDREN OF BODOM
+
+<P><STRONG>CHILDREN OF BODOM</STRONG> выложили новую песню "<STRONG>Banned From Heaven</STRONG>" на своей официальной <STRONG>MySpace</STRONG> страничке. Песня войдёт на новый альбом "<STRONG>Blooddrunk</STRONG>", выходящий 7 апреля на <STRONG>Spinefarm</STRONG>.&nbsp;</P>
+<P>Ссылка: <A href="http://www.myspace.com/childrenofbodom">http://www.myspace.com/childrenofbodom</A></P>
+Автор: Vit Belov
+
+### 07.07.2008 reviews Рутинный бизнес убивает COB
+
+<P>Финны CHILDREN OF BODOM пользуются всеми привилегиями, дающимися званием «звезды». Альбомы коллектива выходят на Universal, продаются хорошими тиражами, туры занимают чуть ли не половину всего времени в году. Существуют и ещё более приятные бонусы. Вон, гитарист Alexi Laiho даже обучающее DVD выпустил. Но статус «звезды» накладывает и определённые обязанности на музыкантов. Рутинный бизнес требует выпуска новых альбомов, не взирая на занятость в других проектах, каждые 2-3 года.</P>
+<P>“Blooddrunk” получился вот таким рутинным и ровным альбомом. Придраться здесь, пожалуй, можно только к недостаточно быстрому темпу, а в остальном эта работа ничем не хуже и не лучше своих предшественников. Филигранное исполнительское мастерство музыкантов, отличная запись, но полное отсутствие хитов и некоторая вымученность и вторичность материала. Мы уже сталкивались с подобными альбомами не раз, все группы через это проходят, кто-то с большими потерями, кто-то с меньшими. Думается, COB пройдут через это с наименьшими потерями. Людям нравится то, что они делают, и один не очень удачный альбом им простят. Гораздо хуже то, что самим музыкантам может стать неинтересным то, чем они сейчас занимаются. Если раньше группа экспериментировала с thrash-metal, что отвергали многие фэны классики финского коллектива, то сейчас от любых экспериментов не осталось и следа. Среднетемповый, незабойный, но в меру мелодичный материал вряд ли может особо впечатлить даже самих исполнителей.</P>
+<P>Будем надеяться, что интерес к музыке к Alexi Laiho вернётся, на новый “Hatebreeder” я уже не рассчитываю, но хотя бы задора в новых вещах от CHILDREN OF BODOM, возможно, прибавится.</P>
+Автор: Vit Belov
+
+### 24.02.2009 news CHILDREN OF BODOM выпустят коллекцию каверов
+
+<P>Осенью <STRONG>CHILDREN OF BODOM</STRONG> выпустят диск, содержащий кавер-версии на песни других коллективов, исполненные знаменитыми финнами. Вот песни, которые попадут на издание:</P>
+<P>* "<STRONG>Aces High</STRONG>" by IRON MAIDEN<BR>* "<STRONG>Don't Stop At The Top</STRONG>" by the SCORPIONS<BR>* "<STRONG>Hellion</STRONG>" by W.A.S.P.<BR>* "<STRONG>Mass Hypnosis</STRONG>" by SEPULTURA<BR>* "<STRONG>No Commands</STRONG>" by STONE<BR>* "<STRONG>Shot In The Dark</STRONG>" by OZZY OSBOURNE<BR>* "<STRONG>Iron, Steel, Metal</STRONG>" by WIZZARD<BR>* "<STRONG>Rebel Yell</STRONG>" by BILLY IDOL<BR>* "<STRONG>Talk Dirty To Me</STRONG>" by POISON<BR>* "<STRONG>Latomeri</STRONG>" by KLAMYDIA<BR>* "<STRONG>Bed Of Nails</STRONG>" by ALICE COOPER<BR>* "<STRONG>She Is Beautiful</STRONG>" by ANDREW W.K.<BR>* "<STRONG>Silent Scream</STRONG>" by SLAYER<BR>* "<STRONG>Somebody Put Something in My Drink</STRONG>" by the RAMONES<BR>* "<STRONG>Oops!... I Did It Again</STRONG>" by BRITNEY SPEARS</P>
+Автор: Vit Belov
+
+### 25.04.2009 news CHILDREN OF BODOM в сентябре
+
+<P>В&nbsp;сентябре на<STRONG> Spinefarm</STRONG> выйдет новый альбом <STRONG>CHILDREN OF BODOM</STRONG> <STRONG>"Skeletons In The Closet". </STRONG>Пластинка будет представлять собой коллекцию каверов:</P>
+<P>* <B>"Aces High"</B> by IRON MAIDEN<BR>* <B>"Don't Stop At The Top"</B> by SCORPIONS<BR>* <B>"Hellion"</B> by W.A.S.P.<BR>* <B>"Mass Hypnosis"</B> by SEPULTURA<BR>* <B>"No Commands"</B> by STONE<BR>* <B>"Shot In The Dark"</B> by OZZY OSBOURNE<BR>* <B>"Iron, Steel, Metal"</B> by WIZZARD<BR>* <B>"Rebel Yell"</B> by BILLY IDOL<BR>* <B>"Talk Dirty To Me"</B> by POISON<BR>* <B>"Latomeri"</B> by KLAMYDIA<BR>* <B>"Bed Of Nails"</B> by ALICE COOPER<BR>* <B>"She Is Beautiful"</B> by ANDREW W.K.<BR>* <B>"Silent Scream"</B> by SLAYER<BR>* <B>"Somebody Put Something in My Drink"</B> by the RAMONES<BR>* <B>"Oops!... I Did It Again"</B> by BRITNEY SPEARS</P>
+Автор: Vit Belov
+
+### 02.05.2009 news Alexi Laiho опять поломался
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист/вокалист <STRONG>CHILDREN OF BODOM Alexi Laiho</STRONG> сломал плечо, упав с койки в туровом автобусе во время трассы по США. Несмотря на это, группа продолжает турне.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отметим, что плечо музыканта уже страдало два года назад, когда он травмировался, играя в боулинг. А три года назад <STRONG>Alexi </STRONG>во время тура сломал палец на ноге.</FONT></P>
+Автор: Vit Belov
+
+### 10.05.2009 news CHILDREN OF BODOM всё-таки отменили тур
+
+<P>После шумного разбирательства с врачами <STRONG>CHILDREN OF BODOM</STRONG> были вынуждены прекратить своё участие в туре по США, из-за перелома плеча гитариста и вокалиста <STRONG>Alexi Laiho</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.09.2009 news CHILDREN OF BODOM поют CREEDENCE
+
+<P>Видео <STRONG>CHILDREN OF BODOM</STRONG> на кавер-версию на песню <STRONG>CREEDENCE CLEARWATER REVIVAL</STRONG> <STRONG>"Lookin' Out My Back Door" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ZbfYK4I3rZM&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ZbfYK4I3rZM&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.10.2009 news Alexi Laiho присоединился к HYPOCRISY
+
+Гитарист<STRONG> CHILDREN OF BODOM Alexi Laiho</STRONG> занял вакантное место в составе <STRONG>HYPOCRISY</STRONG> и поедет в тур по США в качестве сессионного музыканта. 
+Автор: Vit Belov
+
+### 25.10.2009 reviews Неудивительный heavy-metal со скримингом
+
+<P>Отечественный лэйбл Universal RUS назвал “Skeletons In The Closet” седьмым студийным альбомом CHILDREN OF BODOM. Надеюсь, никто не попадётся на эту удочку, этот альбом лишь сборник кавер-версий от финской группы, многие из которых мы уже слышали на различных соответствующих сборниках. С другой стороны, подобные подборки чужого материала в исполнении известных коллективов всегда пользовались спросом. </P>
+<P>Что оценивать на подобных альбомах? Оригиналы, подборку? Качество кавер-версий? Скорее последнее. Отмечу, что CoB никогда не славились особо сильными вариантами известных хитов. Сама их музыка не подразумевает каких-то неожиданных подходов. В стиле знаменитых финнов хватает и мелодизма, и heavy-metal для того, чтобы записать кавер наиболее близко к оригиналу. Этим скучным делом и занимались Alexi и Ко. на этом альбоме, записывая для него песни в разные годы. Большинство представленного материала можно охарактеризовать, как heavy-metal со скримингом. А это уже скучно. Выделяются только песня Britney Spears и две вещи из «Большого Лебовски». Последние выделяются только тем, что я тоже люблю этот фильм и узнать знакомые мелодии было приятно, не более того.</P>
+<P>Достаточно мусорный альбом, который трудно дослушать до конца, несмотря на то, что хит здесь сидит на хите. К сожалению, к записи кавер-версий CHILDREN OF BODOM подходили и подходят как к весёлому развлечению, а не как к творческому процессу. Даже я мог бы предложить им несколько вариантов прослушанного материала, которые звучали бы интереснее и свежее.</P>
+Автор: Vit Belov
+
+### 10.03.2010 news CHILDREN OF BODOM репетируют
+
+<P>Басист <STRONG>CHILDREN OF BODOM</STRONG> <STRONG>Henkka Seppala </STRONG>рассказал о ближайших планах группы. Коллектив получил перерыв от концертных выступлений и сейчас начинает репетировать новый материал. Финны планируют войти в студию этим летом для его записи. Дата релиза и какие-то конкретные подробности пока не известны.</P>
+Автор: Vit Belov
+
+### 05.08.2010 news CHILDREN OF BODOM вошли в студию
+
+<P>Знаменитые финны <STRONG>CHILDREN OF BODOM</STRONG>&nbsp;вошли в студию для записи нового альбома, который выйдет в следующем году. К выходным дням уже должны быть записаны барабанные партии <STRONG>Jaska</STRONG> <B>Raatikainen.</B></P>
+<P>Осенью <STRONG>CHILDREN OF BODOM</STRONG> будут разогревать&nbsp;<STRONG>BLACK LABEL SOCIETY</STRONG>&nbsp;в их туре <STRONG>"Black Label Berzerkus</STRONG>". Также на оcень запланирована двухмесячная трасса по Северной Америке, где финны будут со-хэдлайнерами вместе с <STRONG>CLUTCH</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.11.2010 news CHILDREN OF BODOM назвали альбом
+
+<P>Новый альбом <STRONG>CHILDREN OF BODOM</STRONG> будет называться <STRONG>"Relentless Reckless Forever" </STRONG>и выйдет 8 марта на <STRONG>Universal</STRONG>. Пластинка была записана в финской студии <STRONG>Petrax Studios </STRONG>с продюсером <STRONG>Matt Hyde</STRONG> (<B>SLAYER</B>, <B>MONSTER MAGNET</B>). </P>
+Автор: Vit Belov
+
+### 10.12.2010 news Обложка и трек-лист седьмого студийника CHILDREN OF BODOM
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17795.jpg" width=400 height=400>Новый альбом финнов <STRONG>CHILDREN OF BODOM</STRONG>&nbsp;под названием&nbsp;<B itxtvisited="1">"Relentless Reckless Forever"</B>, выйдет в свет 8 марта 2011 года на <B itxtvisited="1">Universal Music</B>. Записанный в финской студии <B itxtvisited="1">Petrax Studios</B> со знаменитым продюсером Мэттом Хайдом (<B itxtvisited="1">Matt Hyde</B>) (<B itxtvisited="1">SLAYER</B>, <B itxtvisited="1">MONSTER MAGNET</B>), диск станет седьмым по счёту студийным релизом группы. А пока альбом не вышел, можно ознакомиться с&nbsp;его&nbsp;трек-листом и обложкой.</P>
+<P>Трек-лист <STRONG>"Relentless Reckless Forever"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Not My Funeral</B><BR itxtvisited="1">02. <B itxtvisited="1">Shovel Knockout</B><BR itxtvisited="1">03. <B itxtvisited="1">Roundtrip to Hell and Back</B><BR itxtvisited="1">04. <B itxtvisited="1">Pussyfoot Miss Suicide</B><BR itxtvisited="1">05. <B itxtvisited="1">Relentless Reckless Forever</B><BR itxtvisited="1">06. <B itxtvisited="1">Ugly</B><BR itxtvisited="1">07. <B itxtvisited="1">Cry of the Nihilist</B><BR itxtvisited="1">08. <B itxtvisited="1">Was It Worth It?</B><BR itxtvisited="1">09. <B itxtvisited="1">Northpole Throwdown</B><BR itxtvisited="1">10. <B itxtvisited="1">Party All the Time</B> (EDDIE MURPHY cover)</P>
+Автор: Headcrusher
+
+### 15.02.2011 news CHILDREN OF BODOM: клип на песню &quot;Was It Worth It?&quot;
+
+<P><STRONG>"Was It Worth It?"</STRONG> - новый видеоклип финов <B>CHILDREN OF BODOM</B>, можно посмотреть ниже. Клип был снят режиссёром&nbsp;Делом Рестеджини (<B>Dale Resteghini</B>) из компании <B>Raging Nation Films</B> (<B>MUDVAYNE</B>, <B>HATEBREED</B>, <B>ANTHRAX</B>, <B>SHADOWS FALL</B>). При создании этого видео, группа воспользовалась ислугами двухкратного золотого медалиста&nbsp;<B>X Games</B> и двухкратного победителя в наминации&nbsp;"Skater of the Year"&nbsp;журнала&nbsp;<B>Thrasher</B> Крисом Коулом (<B>Chris Cole</B>), а так же, двух других профессиональных скейтеров -&nbsp;Джейми Томаса (<B>Jamie Thomas</B>) и Тома Аста (<B>Tom Asta</B>, в настоящее время, самый лучший начинающий скейтбордист в мире). </P>
+<P>Песня <STRONG>"Was It Worth It?"</STRONG> вошла на новый альбом&nbsp; <B>CHILDREN OF BODOM</B> <B>"Relentless Reckless Forever"</B>, который выйдет 8 марта на <B>Universal Music</B>.</P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/xmmgoaS97yU?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/xmmgoaS97yU?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 16.03.2011 reviews Всё будет, но не в этот раз
+
+<P>Финны CHILDREN OF BODOM уже окончательно и бесповоротно перешли в высшую лигу современной тяжёлой музыки. Если после альбома 1999 года “Hatebreeder” любой продвинутый металист считал «чилдренов» бесповоротными авторитетами, то широкая общественность признала заслуги COB несколько позже. Когда финский лейбл Spinefarm был приобретён Universal.</P>
+<P>К сожалению, в прошлом году мы отпраздновали десятилетний юбилей последнего отличного альбома финской группы “Follow The Reaper”. Далее были непродолжительные экскурсы в thrash-metal, попытки вернуть своё звучание, незначительные эксперименты и даже альбом кавер-версий, но отличного альбома не попадалось. Предыдущую номерную работу CHILDREN OF BODOM “Blooddrunk” можно было назвать хорошей, но не более. В меру мелодичные, в меру быстрые и разухабистые треки того альбома безошибочно определялись слушателям как музыка COB, но восторга они уже не вызывали. Судя по всему, новая работа CHILDREN OF BODOM “Relentless Reckless Forever” будет встречена с ещё меньшим энтузиазмом. В этот раз Alexi Laiho решил добавить мелодизма, и это стало фатальной ошибкой. Темп альбома упал до среднего, стало много соло на гитаре и клавишных, которые, к сожалению, сыгранные на низкой передаче уже не вызывают того юношеского восторга прошлого века. В построении композиций тоже заметны некоторые несуразности. Типичные для финнов неоклассические запилы практически всегда сменяются каким-то заумным ходом, который обламывает всякое возможное удовольствия от прослушивания пластинки.</P>
+<P>Достаточно нелепый альбом от классиков финского мелодичного death-metal с клавишами. Что ж, подождём следующего, нам не жалко. Шедевров от CHILDREN OF BODOM более мы не услышим, но сочинить приятную мелодичную работу они всё ещё способны. В этот раз, правда, не получилось.</P>
+Автор: Vit Belov
+
+### 18.03.2011 news CHILDREN OF BODOM попали в Top 50
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>CHILDREN OF BODOM</STRONG> <STRONG>"Relentless Reckless Forever" </STRONG>продался тиражом 11000 экземпляров в первую неделю в США. Пластинка дебютировала на 42-ом месте в чартах <STRONG>Billboard</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Прошлый альбом финнов <STRONG>"Blooddrunk" </STRONG>стартовал гораздо лучше, было продано 19000 копий.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 src="/images/news_rus/2011.03/18904.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 14.06.2011 news Видео-клип CHILDREN OF BODOM
+
+<P>Новый ролик <STRONG>CHILDREN OF BODOM</STRONG> на песню <STRONG>"Roundtrip To Hell And Back". </STRONG>Режиссёром клипа выступил <STRONG>Jussi Hyttinen. </STRONG>Песня взята с последнего альбома финской группы <STRONG>"Relentless Reckless Forever".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER><IFRAME src="http://player.vimeo.com/video/24583294?title=0&byline=0&portrait=0" frameBorder=0 width=400 height=228></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.06.2011 news Sebastian Bach выступил с CHILDREN OF BODOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист<STRONG> SKID ROW Sebastian Bach</STRONG> присоединился на сцене к финнам <STRONG>CHILDREN OF BODOM</STRONG> во время их выступления в Западном Голливуде, Калифорния в прошедшую пятницу. Видео исполнения музыкантами вещи <STRONG>CHILDREN OF BODOM "Hate Crew Deathroll"</STRONG> можно&nbsp;посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHILDREN OF BODOM</STRONG> находятся сейчас в туре по США в поддержку своего последнего альбома <STRONG>"Relentless Reckless Forever</STRONG>", который дебютировал в чартах<STRONG> Billboard</STRONG>&nbsp;на 42-ом месте.</FONT>&nbsp;</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/TyhrkiVGTz4?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/TyhrkiVGTz4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.02.2012 news CHILDREN OF BODOM выйдет в мае
+
+<P>Финны <STRONG>CHILDREN OF BODOM</STRONG> сообщили, что работают над песнями для нового альбома. Запись его начнётся весной, выход запланирован на май, а летом начнётся новый массированный тур.</P>
+<P>Подробности последуют.</P>
+<P><center><IMG height=327 src="/images/news_rus/2012.02/22892.jpg" width=490 border=0></P>
+Автор: Vit Belov
+
+### 11.04.2012 news CHILDREN OF BODOM: &quot;Holiday At Lake Bodom (15 Years Of Wasted Youth)&quot; CD+DVD в мае
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.04/23461.jpg" width=350 height=347>22 мая, в честь своего пятнадцатилетия, фины<STRONG> CHILDREN OF BODOM</STRONG> выпускают CD+DVD релиз, получивший название <STRONG>"Holiday At Lake Bodom (15 Years Of Wasted Youth)"</STRONG>, на котором будет представленна ретроспектива коллектива за всю его карьеру. </P>
+<P>На компакт диск войдут лучшие песни с каждого альбома, плюс два нигде неиздававшихся кавера, а также, детальные коментарии написанные участниками группы.&nbsp; </P>
+<P>DVD будет включать в себя "откровенные гострольные и закулисные съёмки со всего мира", плюс&nbsp; новый клип на песню <STRONG>"Shovel Knockout"</STRONG>.</P>
+<P>Трес-лист:</P>
+<P>01. <STRONG>Hate Crew Deathroll<BR></STRONG>02. <STRONG>Shovel Knockout<BR></STRONG>03. <STRONG>Hate Me<BR></STRONG>04. <STRONG>Everytime I Die<BR></STRONG>05. <STRONG>Needled 24/7<BR></STRONG>06. <STRONG>I'm Shipping Up to Boston</STRONG> (* <STRONG>DROPKICK MURPHYS</STRONG> кавер;&nbsp; прежде неиздававшийся) <BR>07. <STRONG>Sixpounder <BR></STRONG>08. <STRONG>Warheart</STRONG> <BR>09. <STRONG>Roundtrip To Hell And Back <BR></STRONG>10. <STRONG>Trashed, Lost & Strungout <BR></STRONG>11. <STRONG>Living Dead Beat <BR></STRONG>12. <STRONG>Deadnight Warrior <BR></STRONG>13. <STRONG>Blooddrunk</STRONG> <BR>14. <STRONG>Follow The Reaper <BR></STRONG>15. <STRONG>Are You Dead Yet? <BR></STRONG>16. <STRONG>Silent Night, Bodom Night <BR></STRONG>17. <STRONG>Jessie's Girl</STRONG> (* <STRONG>RICK SPRINGFIELD</STRONG> кавер; прежде неиздававшийся) <BR>18. <STRONG>In Your Face <BR></STRONG>19. <STRONG>Angels Don't Kill <BR></STRONG>20. <STRONG>Downfall</STRONG></P>
+Автор: Headcrusher
+
+### 04.05.2012 news Новый клип CHILDREN OF BODOM
+
+<P>Новое видео финнов <STRONG>CHILDREN OF BODOM</STRONG> на песню <STRONG>"Shovel Knockout" </STRONG>можно посмотреть ниже. Ролик снят режиссёром финского MTV <STRONG>Jussi Hyttinen. </STRONG>Трек взят с прошедшего альбома CoB <STRONG>"Relentless Reckless Forever"</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/Jr15SSGPPOo?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/Jr15SSGPPOo?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 24.06.2012 news CHILDREN OF BODOM на Nuclear Blast
+
+<P>Финские монстры <STRONG>CHILDREN OF BODOM</STRONG> заключили контракт с<STRONG> Nuclear Blast</STRONG>. Новый студийный альбом коллектива выйдет в 2013 году. </P>
+<P><center><IMG border=0 src="/images/news_rus/2012.06/24234.jpg" width=475 height=398></P>
+Автор: Vit Belov
+
+### 19.03.2013 news CHILDREN OF BODOM: подробности альбома &quot;Halo Of Blood&quot;
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25545.jpg" width=400 height=400>"Halo Of Blood"</STRONG>, так будет называться новый альбом финских металлистов&nbsp;<STRONG>CHILDREN OF BODOM</STRONG>. </P>
+<P>Восьмой по счёту студийный альбом&nbsp;<STRONG>COB</STRONG>&nbsp;выйдет 11 июня в Северной Америке. Обложку создал <STRONG>Sam Saramaki</STRONG>, ранее уже&nbsp;известный за свои работы с <STRONG>CHILDREN OF BODOM</STRONG>,&nbsp;его авторству принадлежат рисунки для классических альбомов&nbsp;<STRONG>COB</STRONG>, <STRONG>"Follow The Reaper"</STRONG> (2001), <STRONG>"Hate Crew Deathroll"</STRONG> (2003) и <STRONG>"Are You Dead Yet?" </STRONG>(2005).</P>
+<P>Фронтмен, гитарсит и лидер группы <STRONG>CHILDREN OF BODOM</STRONG>,<STRONG> Alexi Laiho</STRONG>, рассказывает о музыкальной части нового альбома:</P>
+<P><EM>“Нам удалось сделать<STRONG> "Halo Of Blood"</STRONG> свежим и новым, при этом сохранив те&nbsp;элементы, которые делают звук <STRONG>COB</STRONG>&nbsp;узнаваемым.&nbsp;На альбоме есть, как самая быстрая, так и самая медленная песня, которую мы когда-либо записывали, а в плане лирики&nbsp;на нём присутствуют темы, которые мы никогда прежде не затрагивали. Это десять песен настоящего Нордического металла!”</EM></P>
+<P><SPAN id=fbPhotoPageCaption class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"type":45}'><SPAN class=hasCaption><SPAN class=text_exposed_show>Басит <STRONG>Henkka Sepp&#228;l&#228;</STRONG> поделился своими мыслями относительно обложки диска:</SPAN></SPAN></SPAN></P>
+<P><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"type":45}'><SPAN class=hasCaption><SPAN class=text_exposed_show><EM>"Мы хотели, чтобы на ней дело происходило зимой. Это очень хорошо вписывается в&nbsp;атмосферу музыки и процесса сочинительства. Озеро Bodom, замёрзшее, с людьми, заключёнными в ледяную ловушку. Выглядит очень по фински.&nbsp;Мы остались довольны тем, как&nbsp;Sami поработал над рисунком!"</EM></SPAN></SPAN></SPAN></P>
+<P><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"type":45}'><SPAN class=hasCaption><SPAN class=text_exposed_show><STRONG>"Halo Of Blood"</STRONG>&nbsp;был записан в финской студии&nbsp;"Danger Johnny"&nbsp;при помощи звукорежиссёра Mikko Karmila, который прежде работал над альбомами <STRONG>"Hatebreeder"</STRONG> (1999), <STRONG>"Follow The Reaper"</STRONG> (2001) и <STRONG>"Hate Crew Deathroll"</STRONG> (2003). <STRONG>Peter T&#228;gtgren</STRONG> курировал запись вокала и клавишных. production on both vocals and keyboards. Сведение было выполнено в&nbsp; студии <STRONG>Finnvox</STRONG>.</SPAN></SPAN></SPAN></P>
+<P><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"type":45}'><SPAN class=hasCaption><SPAN class=text_exposed_show>Трек-лист:</SPAN></SPAN></SPAN></P>
+<P><SPAN class=fbPhotosPhotoCaption tabIndex=0 aria-live=polite data-ft='{"type":45}'><SPAN class=hasCaption><SPAN class=text_exposed_show>01. <STRONG>Waste Of Skin<BR></STRONG>02.<STRONG> Halo Of Blood<BR></STRONG>03. <STRONG>Scream For Silence<BR></STRONG>04. <STRONG>Transference</STRONG><BR>05. <STRONG>Bodom Blue Moon (The Second Coming)<BR></STRONG>06. <STRONG>The Days Are Numbered<BR></STRONG>07. <STRONG>Dead Man's Hand On You<BR></STRONG>08. <STRONG>Damage Beyond Repair<BR></STRONG>09. <STRONG>All Twisted<BR></STRONG>10. <STRONG>One Bottle And&nbsp;A Knee Deep</STRONG></SPAN></SPAN></SPAN></P>
+Автор: Headcrusher
+
+### 13.05.2013 news CHILDREN OF BODOM: клип &quot;Transference&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финские&nbsp;металлисты&nbsp;<STRONG>CHILDREN OF BODOM</STRONG>, презентовали сегодня свой новый клип на трек <STRONG>"Transference"</STRONG>. Всем ценить ниже!</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/GCztVAF_f0k" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 18.09.2015 news Лирик-видео CHILDREN OF BODOM
+
+<P>Новую песню <STRONG>CHILDREN OF BODOM "I Hurt"</STRONG> можно услышать в лирик-видео ниже. Трек взят с выходящего альбома группы <STRONG>"I Worship Chaos"</STRONG>, который появится на прилавках в начале октября посредством<STRONG> Nuclear Blast</STRONG> и <STRONG>Союз</STRONG>.</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/RKquDyJYQWg" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### У кого-нибудь есть тексты Children of Bodom?

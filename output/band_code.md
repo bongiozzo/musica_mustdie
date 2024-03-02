@@ -24,6 +24,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.02.2009 news Новый альбом CODE
+
+<P>Британско-норвежский коллектив <STRONG>CODE </STRONG>подготовили второй альбом <STRONG>"Resplendent Grotesque". </STRONG>Пластинка выйдет 6 апреля на <STRONG>Tabu Recordings</STRONG>. В составе коллектива: басист<STRONG> Viper</STRONG> (a.k.a. Vicotnik из DHG), гитарист <STRONG>Aort</STRONG>, барабанщик <STRONG>Adrian Erlandsson</STRONG> (<STRONG>AT THE GATES, CRADLE OF FILTH</STRONG>) и певец <STRONG>Kvohst </STRONG>(<STRONG>DODHEIMSGARD</STRONG>).</P>
+Автор: Vit Belov
+
+### 25.02.2009 news Обложка нового CODE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стала доступна обложка нового альбома<STRONG> CODE</STRONG> <STRONG>"Resplendent Grotesque".</STRONG></FONT></P>
+<P><center><IMG height=357 src="/images/news_rus/2009.02/13680.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 06.03.2009 news Новая песня CODE
+
+<P><STRONG>CODE</STRONG> выложили в сеть песню со своего нового альбома <STRONG>"Resplendent Grotesque"</STRONG> под названием <STRONG>"Smother The Crones".</STRONG></P>
+<P>Ссылка: <A href="http://www.myspace.com/codeblackmetal">http://www.myspace.com/codeblackmetal</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

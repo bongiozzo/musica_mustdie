@@ -32,6 +32,9 @@ Recorded & Mixed By Ahti Kortelainen At Tico-Tico, Kemi, Finland, 1994
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

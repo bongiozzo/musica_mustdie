@@ -20,6 +20,14 @@
 * C группой "Solution .45" Mikko Harkin (keyboards)
 * C группой "Symfonia" Mikko Harkin (keyboards)
 
+## Публикации
+
+### 13.06.2008 news MEHIDA закончили запись
+
+<P>Группа <STRONG>MEHIDA</STRONG> под управлением бывшего вокалиста <STRONG>CANDLEMASS</STRONG> <STRONG>Thomas Vikstrom </STRONG>закончила запись второго альбома, который выйдет в этом году на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

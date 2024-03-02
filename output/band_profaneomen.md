@@ -43,6 +43,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2011 news Третий альбом PROFANE OMEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Третий альбом финнов<STRONG> PROFANE OMEN</STRONG> <STRONG>"Destroy!" </STRONG>выходит 28 сентября на <STRONG>Spinefarm</STRONG>. Продюсерами пластинки выступили <STRONG>Ville Sorvali</STRONG> (<B>MOONSORROW</B>)&nbsp;и <B>Mikko Herranen</B> (<B>RUST</B>). Трек-лист:</FONT></P>
+<P>01. <B>A Force To Be Reckoned With</B><BR>02. <B>Wastehead</B><BR>03. <B>Predator</B><BR>04. <B>Feed On The Wasted</B><BR>05. <B>Escape / Traceless</B><BR>06. <B>Bad Dreams</B><BR>07. <B>Acedia</B><BR>08. <B>Bound To Strive</B><BR>09. <B>Zombie Riders</B></P>
+<P>Предыдущий альбом коллектива <STRONG>"Inherit The Void" </STRONG>вышел в 2009 году и занял 9-ое место в чартах Финляндии.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/Y-duvl1hiu0" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

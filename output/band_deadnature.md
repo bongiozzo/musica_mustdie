@@ -25,6 +25,9 @@ Band Photography by Pedro Fraga Bomfim
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

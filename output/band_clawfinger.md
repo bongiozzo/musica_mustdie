@@ -153,6 +153,69 @@ Vienna
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.08.2001 reviews Танцуют все!
+
+<p>Танцуют все! Любить или ненавидеть CLAWFINGER – эту проблему придется решать всем, кто услышит этот альбом. Тем более что это основная тема лирики команды, обсуждающей различные проблемы жизни – те самые любовь и ненависть в практическом применении. Что же касается музыки, то… CLAWFINGER в начале своей карьеры тем и отличились, что смогли самые экстремальные приемы андеграунда завернуть в поп-оболочку и подать так, что однозначно оценить этот микс оказалось невозможно. То же и на новом альбоме – сэмплы, компьютерное звучание, злобные "металлические" гитары (кстати, гитары уже не так выдвинуты на первый план, как на предшествующих альбомах). На этой формуле сейчас едет с полсотни немецких и шведских групп, от RAMMSTEIN до OOMPH!, но CLAWFINGER близки к тому, чтобы оказаться в лидерах. Им удается не превратить музыку в размеренное клацание и лязгание, уподобив исполнителя и слушателя механизму, а создать технологический хаос и анархию, наполнив их нигилизмом и злостью. И при всем этом под это можно танцевать. Возможно, с мелодией у ребят некоторые проблемы, но индустриально-танцевальные аранжировки CLAWFINGER делают хорошо. К счастью, группа не так сильно увлекается звучанием компьютерных эффектов и не забывает, что в основе должна быть просто хорошая (или по меньшей мере – неплохая) песня. Любителям инструментальных заморочек – просьба не беспокоиться. А вот тем, кто любит только энергетику и не придирчив к эклектике – то, что доктор прописал. Правда, почти час для такой музыки многовато – слишком мало идей, одно настроение и одинаковый формат всех композиций. Но если включить диск фоном на вечеринке – будет самое оно. Очевидно, так диск "Дофига нифига" и задумывался.</p>
+
+Автор: Tornado
+
+### 06.01.2003 news Новости от CLAWFINGER
+
+<p>Шведские рэп-металлисты CLAWFINGER в мае 2003 года выпустят свой пятый полнометражный альбом записанный в Polar Studios и не имеющий окончательного названия. Но уже известен трэк-лист альбома:</p>
+<p> 01. Are You Talking To Me <BR> 02. Bitch <BR> 03. Blame <BR> 04. Fifteen Minutes Of Fame <BR> 05. Four Letter Word<BR> 06. Kick It <BR> 07. Live Like A Man<BR> 08. Money, Power, Glory <BR> 09. Step Aside <BR> 10. Swallow The Disgrace <BR> 11. When Everything Crumbles <BR> 12. World Domination<BR> 13. Zeros And Heroes</p>
+
+Автор: Dimas
+
+### 21.08.2005 news Новый альбом CLAWFINGER
+
+<P><STRONG>CLAWFINGER</STRONG> опубликовали трэк-лист своего нового альбома, который выйдет 21 ноября на <STRONG>Nuclear Blast</STRONG>:</P>
+<P>01. <STRONG>The Faggot In You</STRONG><BR>02. <STRONG>Hate Yourself With Style<BR></STRONG>03. <STRONG>Dirty Lies<BR></STRONG>04. <STRONG>The Best & the Worst</STRONG><BR>05. <STRONG>Breakout (Embrace The Child Inside You)<BR></STRONG>06. <STRONG>Right To Rape<BR></STRONG>07. <STRONG>What We’ve Got Is What You’re Getting<BR></STRONG>08. <STRONG>Sick Of Myself<BR></STRONG>09. <STRONG>Hypocrite<BR></STRONG>10. <STRONG>Without A Case<BR></STRONG>11. <STRONG>God Is Dead</STRONG></P>
+Автор: Vit Belov
+
+### 21.08.2005 news CLAWFINGER new album
+
+<P>Swedish rap/metal combo <STRONG>CLAWFINGER</STRONG> have finalized the track listing for their new album, due Nov 21. It is as follows:</P>
+<P>01.<STRONG> The Faggot In You<BR></STRONG>02. <STRONG>Hate Yourself With Style</STRONG><BR>03. <STRONG>Dirty Lies<BR></STRONG>04. <STRONG>The Best & the Worst<BR></STRONG>05. <STRONG>Breakout (Embrace The Child Inside You)<BR></STRONG>06.<STRONG> Right To Rape<BR></STRONG>07. <STRONG>What We’ve Got Is What You’re Getting<BR></STRONG>08. <STRONG>Sick Of Myself<BR></STRONG>09. <STRONG>Hypocrite<BR></STRONG>10. <STRONG>Without A Case<BR></STRONG>11. <STRONG>God Is Dead</STRONG></P>
+<P>Commented frontman<STRONG> Zak Tell</STRONG>: "<EM>I feel like a kid in a candy store and proud as a god as I know how much work we have put into these songs. All the same, they are very raw and basic and less filled up with loops and samples</EM>!"<BR></P>
+Автор: Vit Belov
+
+### 04.04.2006 articles CLAWFINGER в Москве, пресс-релиз
+
+<P>Clawfinger<BR>Санкт-Петербург: 12 мая, Клуб “Порт”<BR>Москва: 13 мая, Клуб “Точка”</P>
+<P>Шведская группа заявила о себе в начале 90-х. Одна из первых демо-записей Clawfinger, “Nigger”, стала хитом National Swedish Radio и&nbsp; принесла группе контракт с лейблом MVG Records в 1992 году. Дебютный альбом команды “Deaf Dumb Blind” (1993) разошелся тиражом в 600 000 копий и занял лидирующие позиции в чартах Германии, Швеции, Норвегии, Дании и Швейцарии. В Германии, Швеции и Норвегии пластинка стала золотой. Оригинальное сочетание hip-hop и heavy metal, электронная перкуссия и жесткий, агрессивный саунд получили высокие оценки ведущих музыкальных изданий. </P>
+<P>В&nbsp; 1993 музыканты отмечаются на всех скандинавских фестивалях, гастролируют с Anthrax и Alice In Chains, а затем, уже в качестве хедлайнеров, отправляются в масштабный Европейский тур. Летом Clawfinger выступают на бесчисленных европейских фестивалях – Dynamo Festival (Голландия), Rock am Ring, Rock in Reim (Германия), Tourhout Festival и Werchter Festival (Бельгия), Roskilde (Дания), Out in the Green Festival (Швейцария), Hultsfred and Storsjoyran (Швеция). А в конце года получают заслуженные награды – четыре номинации на Zeppelin Awards и две победы на Swedish Grammy Awards. </P>
+<P>Альбом “Use Your Brain” (1995) повторяет успех своего предшественника. Clawfinger выступают на крупнейшем фестивале Monsters Of Rock в Южной Америке вместе с Ozzy Osbourne, Alice Cooper, Faith No More и Megadeth. Следующий, одноименный альбом “Clawfinger”(1997) представил более мелодичное звучание, но, тем не менее, сохранил традиционную агрессивность, острые риффы и краткие, прямолинейные речитативы Зака (Zak Tell), ставшие визитной карточкой группы. Вслед за этим последовали интенсивные гастроли с участием Rammstein и триумфальное выступление Clawfinger в российской столице.</P>
+<P>В 2001 году Clawfinger выпускают свою четвертую пластинку “A Whole Lot Of Nothing” и совершают Европейское турне в поддержку Rammstein. Новаторский альбом “Zeros & Heroes”(2003) прекрасно сочетает индустриальные оттенки, неизменный микс rap metal, hard-core, trash и даже экстремальное кантри.</P>
+<P>В 2005 году Clawfinger переходят на известный металлический лейбл Nuclear Blast Records, где выходит их новый релиз “Hate Yourself With Style”. Над этой пластинкой группа работала самостоятельно, к созданию и записи альбома не привлекался никто из продюсеров и аранжировщиков. “Hate Yourself With Style” – это яркий экспериментальный альбом с прекрасной динамикой, атомной энергией, хардкоровым звучанием и резкими текстами социально-политического содержания. В ходе Европейского тура в поддержку нового альбома Clawfinger выступят в Москве и Санкт-Петербурге.<BR>Состав группы:</P>
+<P>•&nbsp;Zak Tell – вокал, лирика <BR>•&nbsp;B&#229;rd Torstensen – гитара<BR>•&nbsp;Jocke Skog – клавишные, вокал<BR>•&nbsp;Andre Skaug – бас<BR>•&nbsp;Henka Johansson - ударные, перкуссия</P>
+<P>Дискография:</P>
+<P>•&nbsp;Deaf Dumb Blind - 1993&nbsp; <BR>•&nbsp;Use Your Brain - 1995&nbsp; <BR>•&nbsp;Clawfinger - 1997&nbsp; <BR>•&nbsp;A Whole Lot Of Nothing - 2001&nbsp; <BR>•&nbsp;Zeros & Heroes – 2003<BR>•&nbsp;Hate Yourself With Style - 2005</P>
+<P>Официальный сайт:<BR><A href="http://www.clawfinger.net/">http://www.clawfinger.net/</A></P>
+Автор: Vit Belov
+
+### 13.05.2006 news CLAWFINGER в Москве
+
+<CENTER><IMG height=282 src="/images/shows_rus/2006.04/10200.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 15.08.2009 news CLAWFINGER готовятся к юбилею
+
+<P>Группа <STRONG>CLAWFINGER</STRONG> собирается перезаписать свой дебютный альбом <STRONG>"Deaf Dumb Blind"</STRONG> и выпустить его в следующем году в честь празднования двадцатилетия с момента создания группы. В недавнем интервью болгарскому радио <STRONG>"Tangra Mega Rock"</STRONG>, вокалист группы <STRONG>Zak Tell</STRONG> сказал, что на альбоме планируется участие&nbsp;гостевых музыкантов. И уже ведутся переговоры&nbsp;&nbsp;с участниками <STRONG>RAMMSTEIN</STRONG>&nbsp;и <STRONG>Peter T&#228;gtgren</STRONG> (<STRONG>PAIN</STRONG>, <STRONG>HYPOCRISY</STRONG>).</P>
+<P><IMG height=300 alt="" hspace=100 src="/images/news_rus/2009.08/14817.jpg" width=450 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 26.08.2013 news Шведская группа CLAWFINGER сообщила о своём распаде
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>CLAWFINGER</STRONG> повлиявшая на целое поколение музыкантов, которые пытались совместить в своём творчестве жёсткие гитарные риффы, речитатив и электронные ритмы, заявила о своём распаде.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"После 20 лет, 7 альбомов, более тысячи концертов и 10 миллионов банок вместе выпитого пива, это прекрасное время, чтобы похоронить группу и заняться другими делами!"</EM></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26106.jpg" width=660 height=398> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Clawfinger - A Whole Lot of Nothing

@@ -102,6 +102,28 @@ Disgorge:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.01.2004 reviews Самый брутальный релиз 2000 года
+
+Disgorge - трио из Мексики (не путайте с одноименными группами из США и Австралии), в которое входят три участника: Antimo (бас/вокал), Edgar (гитара) и Guillermo (ударные). Группа появилась в 1994 году, задавшись целью стать самой "тяжелой" группой на метал-сцене андерграунда. Спустя шесть лет им это удалось. Второй альбом группы, "Forensick" (2000), последовавший после дебютника "Chronic Corpora Infest" (1997), стал самым брутальным релизом 2000 года, о чем написано во многих рецензиях. Я бы даже сказал, что это один из самых брутальных релизов в истории "тяжелой" музыки. Хочется отметить, что музыка группы является столь брутальной в основном из-за светоскоростного барабанщика, великолепной игре которого остается только позавидовать. Собственно говоря, музыку Disgorge лучше всего соотносить с англичанами Carcass. Когда британцы выпустили свой первый альбом - это было нечто новое, необычное и чрезвычайно брутальное по сравнению другой "тяжелятиной" тех времен. То же самое и Disgorge - по своей брутальности и оригинальности они переплевывают многих современных рулевых групп в стиле grindcore. Хотя стоит оговориться, что трио исполняет deathgrind, что к grindcore имеет отношение лишь на 50%. Также можно провести параллель сравнения между текстами культовой группы и мексиканских последователей - лирика состоит в основном из сложнейших медицинских терминов и названий различных болезней, болячек, химических веществ и прочего. Взять к примеру хотя бы "Urethrive Decortico-Xanthomatose Muco Gestated Scaffolds" или "Purpuric Cytoskeletal Glucid Oxidase". Все это в изобилии собрано на пластинке 'Forensick', оформленной "очаровательной" обложкой, на которой запечатлен гниющий младенец, наполовину выбравшийся из утробы матери. Что ж, можно сделать вывод: Disgorge записали один из самых брутальных альбомов в истории "тяжелой" музыки, который будет просто блаженством для всех любителей pure bestial brutal sickening rot grind death metal with depraved medical psychopathogical forensick gore lyrics.
+Автор: Darkfall
+
+### 20.04.2004 news DISGORGE (MEX) + SANATORIUM in Europe
+
+<DIV>April 9 Velky Krtis (SK) - Martiner Pub + Possession, Maso<BR>April 10 Leopoldov (SK) - Kino Osveta + Mindsnare, C.O.S., Torment, Corrupted Melody<BR>April 11 Brno (CZ) - RC Brooklyn + Mincing Fury<BR>April 12 Prague (CZ) - Black Pes<BR>April 13 Ceske Budejovice (CZ) - MoDo<BR>April 14 Graz (A) - Q + Human Pesticide<BR>April 15 Solothurn (CH) - Kofmehl + Censored<BR>April 16 Lyon (F) - Le Confluent + Loathing</DIV>
+<DIV>April 17 <B>we need show for this date! email <A href="mailto:info@forensickmusic.com"><U>info@forensickmusic.com</U></A></B><BR>April 18 Rotterdam (NL) - Baroeg + Disavowed, Payemia, Fleshless... <BR>April 19 Wermelskirchen (D) - AJZ Bahdamn </DIV>
+<DIV>April 20 <B>we need show for this date! email </B><A href="mailto:info@forensickmusic.com"><B><U>info@forensickmusic.com</U></B></A><BR>April 21 Calais (F) - LґInfernal + Negura Bunget, Heresy, Abject<BR>April 22 London (UK) - The Garage + Gorerotted, Amputated<BR>April 23 Bristol (UK) - Full Moon + Gorerotted, Amputated<BR>April 24 Bradford (UK) - Market Tavern + Gorerotted, Amputated<BR>April 25 Nottingham (UK) - Old Angel + Gorerotted, Amputated<BR>April 26 Birmingham (UK) - The Royal George + Gorerotted, Amputated<BR>April 27 Gent (B) - The Frontline + Boiling Remains<BR>April 28 Hamburg (D) - Markthalle + Megura Bunget, The Stone<BR>April 29 Stettin (PL) - Slowianin + Perverse<BR>April 30 Leipzig (D) - Hellraiser + Infested<BR>May 1 Hauzenberg (D) - Walpurgis Metal Days + Haemorrhage, Sodom, Blood... </DIV>
+<DIV>May 2 Wien (A) - Andino + Deflorace, Parental Advisory<BR>May 3 Budapest (H) - Blue Hole + Deflorace, Gutted, Masqim Xul<BR>May 4 Koper (SLO) - MKC + Deflorace<BR>May 5 Modena (I) - Fassbinder + Deflorace, Bastard Saints<BR>May 6 Brescia (I) - La Sfinge + Deflorace, Bastard Saints<BR>May 7 Padova (I) - Country Star + Deflorace, Bastard Saints<BR>May 8 Porto DґAscoli (I) - Brunch Live + Deflorace, Bastard Saints<BR>May 9 Marseilles (F) -&nbsp; Hotel de la musique + Deflorace<BR>May 10 Toulouse (F) - Le 141 + Deflorace, Bloodshed<BR>May 11 Bordeaux (F) - Ubu bar + Deflorace, Gorgasm (Fr)<BR>May 12 Barcelona (SP) - Wawanco + Deflorace<BR>May 13 Murcia (SP) - Faktoria + Deflorace<BR>May 14 Granada (SP) - El Trent + Deflorace<BR>May 15 Mardid (SP) - Ritmo & Compas + Deflorace<BR>May 16 Irun (SP) - Tunk! + Deflorace, Impure<BR>May 18 La Roche Sur Yon (F) - Matsa cafe + Deflorace<BR>May 19&nbsp; t.b.a.<B>we need show for this date in North France! email <A href="mailto:BleedingTours@aol.com"><U>BleedingTours@aol.com</U></A>&nbsp;or <A href="mailto:info@forensickmusic.com"><U>info@forensickmusic.com</U></A>&nbsp;</B><BR>May 20-23 FUCK THE COMMERCE (D)&nbsp;without Sanatorium</DIV>
+Автор: Vit Belov
+
+### 24.08.2004 news Antimo ушел из DISGORGE
+
+<P>Совсем недавно мексиканский death metal проект <STRONG>DISGORGE</STRONG> лишился своего вокалиста/басиста, в лице которого выступал <STRONG>Antimo Buonnano</STRONG>. Оставшиеся музыканты <STRONG>Edgar</STRONG> и <STRONG>Guillermo</STRONG> в поисках замены, в то время как <STRONG>Antimo</STRONG> продолжит работу в других проектах: <STRONG>BLOOD REAPING</STRONG>, <STRONG>DEMONIZED</STRONG>, <STRONG>HACAVITZ</STRONG> и <STRONG>RAVAGER</STRONG>.</P>
+<P>&nbsp;</P>
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

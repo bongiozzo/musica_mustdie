@@ -23,6 +23,45 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.2001 news Death-grind из Нью-Йорка...
+
+<p>По сообщению официального сайта команда подписала контракт с RELAPSE RECORDS и готовит к выпуску новый альбом 'Foreshadowing Our Demise'. Трек-лист: 1. Foreshadowing Our Demise 2. Smothered 3. The Optimist 4. Salvage What's Lef 5. Tug Of War Intestines 6. Affirmation Of Hatred 7. Enslavement 8. Merrie Melody 9. Pool Of Stool. Дата выхода 20-е марта 2001. Также в марте на виниле переиздается дебютный релиз "PROGRESSION TOWARDS EVIL".</p>
+
+Автор: Yermola
+
+### 12.02.2001 news Death-grind from New York...
+
+<p>March 20 will see the release of SKINLESS's second full-length "Foreshadowing Our Demise" on Relapse Records. Two clips are available for download at their website, http://www.4skinless.com</p>
+
+Автор: Yermola
+
+### 20.10.2003 news Six Feet Under, Behemoth, Skinless and As I Lay Dying in North America
+
+10/17 Orlando, FL <BR>10/18 Ft. Lauderdale, FL<BR>10/19 Atlanta, GA <BR>10/20 Spartanburg, SC <BR>10/22 Pittsburgh, PA <BR>10/23 West Springfield, VA <BR>10/24 Providence, RI <BR>10/26 New Haven, CT <BR>10/27 Long Island, NY <BR>10/28 Randolph, NJ<BR>10/30 Montreal, QC <BR>10/31 Toronto, ON <BR>11/01 Latham, NY <BR>11/02 Brooklyn, NY <BR>11/03 Chicago, IL <BR>11/04 Milwaukee, WI<BR>11/05 St. Louis, MO <BR>11/06 Cedar Falls, IA <BR>11/07 Kansas City, MO <BR>11/08 Denver, CO <BR>11/09 Salt Lake City, UT<BR>11/12 Hollywood, CA <BR>11/13 Santa Ana, CA <BR>11/15 Phoenix, AZ <BR>11/19 San Antonio, TX
+Автор: Vit Belov
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+### 17.04.2006 news Новый альбом SKINLESS выходит 13-го июня
+
+<P>Американские брутальщики <B>SKINLESS</B> записали новый альбом <B>"Trample The Weak, Hurdle The Dead"</B>.&nbsp;Он появится 13-го июня 2006 года, издающий лэйбл <B>Relapse Records</B>.</P>
+<P>Трек-лист:</P>
+<P>01. <B>Overlord</B></P>
+<P>02. <B>A Unilateral Disgust</B></P>
+<P>03. <B>Deviation Will Not Be Tolerated</B></P>
+<P>04. <B>Trample The Weak, Hurdle The Dead</B></P>
+<P>05. <B>Spoils Of The Sycophant</B></P>
+<P>06. <B>Endvisioned</B></P>
+<P>07. <B>Execution of Reason</B></P>
+<P>08. <B>Wicked World</B> (Sabbath cover)</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 ### Crator, 2016, The Ones Who Create The Ones Who Destroy

@@ -32,6 +32,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.03.2002 news TAETRE news
+
+<p>Sweden's TAETRE have completed work on their third full-length album, entitled Divine Misanthropic Madness, at KING DIAMOND guitarist Andy LaRocque's Los Angered Recordings for a late 2002 release through Mighty Music Records. The group's first release since the departure of guitarist Danyael Nilsson will include guest appearances from LaRocque and Tony Jelencovich (TRANSPORT LEAGUE).</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

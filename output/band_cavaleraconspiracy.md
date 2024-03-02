@@ -62,6 +62,110 @@ DVD - Live at Les Eurockйennes Festival, Belfort, France - July 5, 2008
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.12.2007 news CAVALERA CONSPIRACY назначили дату
+
+<P><STRONG>CAVALERA CONSPIRACY</STRONG> - новый проект основателей <STRONG>SEPULTURA</STRONG> братьев <STRONG>Max</STRONG> и <STRONG>Igor Cavalera</STRONG> - выпустит своё дебютный альбом 25 марта на <STRONG>Roadrunner</STRONG>. В нруппу также попали вокалист<STRONG> GOJIRA</STRONG> <STRONG>Joe Duplantier</STRONG>&nbsp;(он будет играть на басу) и гитарист <STRONG>SOULFLY</STRONG> <STRONG>Marc Rizzo. </STRONG>Вот названия некоторых песен: <STRONG>"Inflikted"</STRONG>, <B>"Bloodbrawl"</B>, <B>"Terrorize"</B>, <B>"The Doom of All Fires"</B>, <B>"Ultra-Violent"</B>&nbsp;и <B>" Sanctuary"</B>. Также группа записала свой кавер на песню <STRONG>POSSESSED</STRONG> "<STRONG>The Exorcist</STRONG>".</P>
+Автор: Vit Belov
+
+### 05.02.2008 news CAVALERA CONSPIRACY выложили кавер
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.02/12219.jpg" width=400 align=left border=5>25 марта на<STRONG> Roadrunner</STRONG> выходит дебютный альбом проекта братьев <STRONG>Cavalera</STRONG>, основателей <STRONG>SEPULTURA</STRONG>, <STRONG>CAVALERA CONSPIRACY</STRONG> "<STRONG>Inflikted</STRONG>". Две песни с нового альбома уже сейчас можно послушать на нашем сайте, а вчера группа опубликолвала обложку своей работы.</P>
+Автор: Vit Belov
+
+### 30.05.2008 news CAVALERA CONSPIRACY выложили ещё два трэка
+
+<P>Проект братьев <STRONG>Cavalera </STRONG>(ex-<STRONG>SEPULTURA</STRONG>) <STRONG>CAVALERA CONSPIRACY</STRONG> выложил ещё два трэка в сеть. Это B-Sides с их дебютного альбома "<STRONG>Inflicted</STRONG>": кавер на песню <STRONG>POSSESSED</STRONG> "<STRONG>The Exorcist</STRONG>" и оригинальная песня "<STRONG>In Conspiracy</STRONG>".</P>
+<P>Ссылка: <A href="http://www.myspace.com/cavaleraconspiracy">http://www.myspace.com/cavaleraconspiracy</A></P>
+Автор: Vit Belov
+
+### 31.07.2008 reviews Очень приятный сюрприз
+
+<P>Ещё один знаковый альбом этого лета. О долгожданном воссоединении двух братьев Cavalera, принимавших участие в записи классических альбомов SEPULTURA, нам было рассказано много. Сцены братской любви после 10-летней разлуки, родственные откровения во всех журналах о любви к семье и Богу, в общем, примирение в прямом эфире. Наскоро сварганив альбом под знаковым названием CAVALERA CONSPIRACY, братишки подписали контракт с Roadrunner и выпустили его, отправившись сразу в грандиозное турне.</P>
+<P>Учитывая, что барабанщик Iggor (так написано на диске, мне всегда казалось, что его зовут на наш лад, Igor) ушёл из SEPULTURA, а вокалист-гитарист Max продолжил деятельность в составе SOULFLY, с которыми также выпускает новый альбом, я не ожидал чего-то сверхинтересного от “Inflikted”. Вряд ли у Макса хватило бы материала на обе группы, ведь даже его материал в SOULFLY не выглядит слишком разнообразным, не в обиду будет сказано. Но я был посрамлён в своих сомнениях. Уже первые трэки, щедро выложенные в сети, вкупе с заверениями о попытке возрождения звучания SEPULTURA очень вдохновили меня. Напористый материал с отличной соло-работой гитариста SOULFLY Marc Rizzo (это действительно приобретение) пусть и не относил нас во времена “Arise”, но его запала хватало на то, чтобы напомнить “Chaos A.D.”, который я также нежно люблю. Что ж, CAVALERA CONSPIRACY действительно звучит, как классическая поздняя SEPULTURA, настолько, конечно же, насколько это возможно в наше время. “Inflikted” – очень энергичный, запоминающийся и мелодичный альбом, достойный звания «брутальный thrash». Звания, которое применимо только к творчеству классиков начала 90-х: PANTERA, SEPULTURA, MACHINE HEAD… Это тогда, когда корни музыки ещё были в металле, но верхние ростки уже недвусмысленно намекали на будущее Nu-metal/Metalcore/Angry безобразие, случившееся в Штатах в конце прошлого века. Адская смесь!</P>
+<P>Советую этот диск всем. Совершенно неожиданная достойная работа, каких обычно не бывает при вложении таких больших денег в рекламную кампанию. Представьте себе, какие ожидания могли овладевать давним фэном SEPULTURA, так вот я ни капельки не разочарован.</P>
+Автор: Vit Belov
+
+### 16.03.2009 news Andreas Kisser продолжает выступать
+
+<P>Гитарист <STRONG>SEPULTURA Andreas Kisser</STRONG> одной из тактик раскрутки своего нового альбома "<STRONG>A-Lex</STRONG>" выбрал словесную пикировку с бывшими коллегами. В первую очередь с <STRONG>Max Cavalera</STRONG>. В интервью <STRONG>MetalPaths</STRONG> господин <STRONG>Kisser </STRONG>высказал своё мнение об альбоме <STRONG>CAVALERA CONSPIRACY</STRONG>.</P>
+<P>"<EM>Я слышал пластинку, она не плоха, но они могли сделать гораздо лучше. Для тех же фэнов, которые с нетерпением ожидали этот альбом, она очень слаба. Что касается нашего возможного воссоединения? Я уважаю наше общее прошлое, но смотрю вперёд</EM>".</P>
+Автор: Vit Belov
+
+### 24.11.2009 news CAVALERA CONSPIRACY выпустят альбом летом?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Igor Cavalera</STRONG>, барабанщик семейного проекта <STRONG>CAVALERA CONSPIRACY</STRONG>, рассказал о планах коллектива. Музыканты рассчитывают выпустить следующий альбом летом будущего года: "<EM>Max сейчас занят с SOULFLY, а я и моя жена Laima тратим много времени на наш электронный проект MIXHELL. Но мне нравится то, что мы делаем в CAVALERA CONSPIRACY, поэтому я уверен, что мы найдём время</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также <STRONG>Igor</STRONG> рассказал, что у музыкантов есть задумка издать альбом ремиксов на первый диск <STRONG>CAVALERA CONSPIRACY "Inflikted"</STRONG>. Перемикшировать музыку <STRONG>CC </STRONG>должны электронные музыканты, которые нравятся обоим братьям.</FONT></P>
+Автор: Vit Belov
+
+### 17.11.2010 news CAVALERA CONSPIRACY назвали альбом
+
+<P>Второй альбом проекта бывших участников<STRONG> SEPULTURA</STRONG> братьев<STRONG> Max</STRONG> и <STRONG>Igor Cavalera CAVALERA CONSPIRACY</STRONG> получил название <STRONG>"Blunt Force Trauma" </STRONG>и выйдет в марте на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Warlord</B><BR itxtvisited="1">02. <B itxtvisited="1">Torture</B><BR itxtvisited="1">03. <B itxtvisited="1">Lynch Mob</B><BR itxtvisited="1">04. <B itxtvisited="1">Killing Inside</B><BR itxtvisited="1">05. <B itxtvisited="1">Thrasher</B><BR itxtvisited="1">06. <B itxtvisited="1">I Speak Hate</B><BR itxtvisited="1">07. <B itxtvisited="1">Target</B><BR itxtvisited="1">08. <B itxtvisited="1">Genghis Khan</B><BR itxtvisited="1">09. <B itxtvisited="1">Burn Waco</B><BR itxtvisited="1">10. <B itxtvisited="1">Rasputin</B><BR itxtvisited="1">11. <B itxtvisited="1">Blunt Force Trauma</B></P>
+Автор: Vit Belov
+
+### 04.12.2010 news Max Cavalera: &quot;Paulo Jr. просто не умел играть&quot;.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=262 alt="Paulo Jr не умел играть на басу" hspace=0 src="/images/news_rus/2010.12/17732.jpg" width=200 align=right border=0>В недавнем интервью журналу<STRONG> Revolver Max Cavalera</STRONG> из <STRONG>SOULFLY</STRONG> рассказал о новом альбоме <STRONG>CAVALERA CONSPIRACY</STRONG> и вновь открыл некоторые тайны функционирования легендарной группы <STRONG>SEPULTURA</STRONG>, в которой он участвовал до записи альбома "<STRONG>Roots</STRONG>" включительно. На этот раз объектом исследования стал басист группы <STRONG>Paulo Jr</STRONG>. На вопрос о своём отношении&nbsp;к концерту 12 декабря, на котором <STRONG>SEPULTURA</STRONG> собираются отыграть "<STRONG>Arise</STRONG>", и о своём участии в сочинении материала для него, <STRONG>Max</STRONG> ответил следующее:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>В сочинении материала я даю другим музыкантам шанс проявить себя. Например, Igor (барабанщик SEPULTURA в то время Igor Cavalera)&nbsp;приносил&nbsp;некоторые идеи. Единственный, кто не участвовал в работе басист Paulo Jr. Я думаю, первый альбом, на котором мы его записали, был "Roots". На предыдущих альбомах я и Andreas Kisser записывали партии баса, так как Paulo не умел играть так хорошо. Но мы были друзьями, поэтому оставляли его в группе. Мы так и говорили: "Ты можешь остаться в группе, мы просто сделаем тебя потише</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 08.01.2011 news CAVALERA CONSPIRACY: обложка второго альбома
+
+<P><B itxtvisited="1"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18103.jpg" width=270 height=270>CAVALERA CONSPIRACY</B> — проект включающий в себя бывших участников группы <B itxtvisited="1">SEPULTURA</B> - Макса Кавалера (<B itxtvisited="1">Max&nbsp;Cavalera</B>, гитара, вокал) и Игоря Кавалера (<B itxtvisited="1">Igor Cavalera</B>, ударные) — обнародовал обложку к своему второму диску, получившему название&nbsp;<STRONG>"Blunt Force Trauma"</STRONG>.</P>
+<P>Альбом <STRONG>"Blunt Force Trauma"</STRONG> выйдет 29 марта на <B itxtvisited="1">Roadrunner Records</B>.</P>
+<P>Сопродюсером альбома, вместе с Максом Кавалера,&nbsp;выступил <B itxtvisited="1">Logan Mader</B>, бывший гитарист <B itxtvisited="1">MACHINE HEAD </B>и <B itxtvisited="1">SOULFLY</B>.</P>
+Автор: Headcrusher
+
+### 08.04.2011 reviews Братья Cavalera довольно быстро надорвались
+
+<P>Братья Max и Igor Cavalera, стоявшие у истоков популярнейшей бразильской рок-группы SEPULTURA, объединились под вывеской CAVALERA CONSPIRACY почти четыре года назад после ухода Igor из alma mater. Дебют “Inflikted” действительно порадовал, ведь все мы любили SEPULTURA 80-х – 90-х годов, а ни SOULFLY, ни SEPULTURA уже лет десять даже близко не приближались к уровню тех лет. CAVALERA CONSPIRACY это удалось, группа выпустила небольшую пачку прямолинейных хитов, в которых безошибочно угадывался почерк старой SEPULTURA.</P>
+<P>Второй альбом, к сожалению, не поддержал почин предшественника. Всю музыку сочинил Max Cavalera, который, честно говоря, не порадовал последним альбомом SOULFLY, но мы надеялись и верили, что всё лучшее он оставил для семейного проекта. Конечно же, “Blunt Force Trauma” выглядит получше нечленораздельного “Omen”, но 30 минут, потраченные на второй альбом CAVALERA CONSPIRACY, не обогатят слушателя эстетическими откровениями. Довольно тупая долбёжка, граничащая с punk-rock, возможно, кажется Максу актуальной, но, боюсь, что это не так.</P>
+<P>CAVALERA CONSPIRACY не оправдали надежд почитателей SEPULTURA. “Inflikted” может оказаться лишь мимолётным видением в череде серых альбомов от Max Cavalera и его закадычного друга Andreas Kisser.</P>
+Автор: Vit Belov
+
+### 19.03.2013 news David Vincent, Max Cavalera, Glenn Danzig в фильме о порно актрисе Ванессе дель Рио
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25550.jpg" width=350 height=469>David Vincent </STRONG><EM>(на фото)</EM>,&nbsp;басист и вокалист группы <STRONG>MORBID ANGEL</STRONG>, снимается в полнометражной картине с длинным названием&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, рассказывающей захватывающую историю жизни легендарной актрисы фильмов для взрослых Ванессы дель Рио (<STRONG>Vanessa del Rio</STRONG>). Участие в этом фильме станет кинодебютом для Винсента.</P>
+<P>Лидер <STRONG>SOULFLY</STRONG>, <STRONG>Max Cavalera</STRONG>, работает над музыкой к киноленте, тогда как <STRONG>Glenn Danzig</STRONG> согласился сняться в ней в роли жестокого бандита.</P>
+<P>Режиссёром и сценаристом фильма выступил <STRONG>Thomas Mignone</STRONG>, больше всего известный&nbsp;по своей предыдущей картине <STRONG>"On The Doll"</STRONG>,&nbsp;а также за создание&nbsp;музыкальных клипов, получивших различные награды.&nbsp;</P>
+<P>Главный актёр сереала <STRONG>"The Walking Dead"</STRONG>, Майкл Рукер (<STRONG>Michael Rooker</STRONG>),&nbsp;описал картину&nbsp;&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, как фильм <STRONG>"Ночи В Стиле Буги"</STRONG> ("Boogie Nights") встречается с<STRONG> </STRONG>фильмом <STRONG>"Таксист"</STRONG> ("Taxi Driver").</P>
+Автор: Headcrusher
+
+### 03.09.2014 news Третий студийный альбом CAVALERA CONSPIRACY
+
+<P>Лейбл <STRONG>Napalm</STRONG> выпускает третий студийный альбом <STRONG>CAVALERA CONSPIRACY</STRONG> под названием <STRONG>"Pandemonium"</STRONG>. Диск&nbsp;&nbsp;выйдет 31 октября в Европе и 3 ноября&nbsp;в США и Канаде.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Babylonian Pandemonium</STRONG> | 2. <STRONG>Banzai Kamakazi</STRONG> | 3. <STRONG>Scum</STRONG> | 4. <STRONG>I, Barbarian</STRONG> | 5. <STRONG>Carmunhao</STRONG> | 6. <STRONG>Apex Predator</STRONG> | 7. <STRONG>Insurrection</STRONG> | 8. <STRONG>Not Losing The Edge</STRONG> | 9. <STRONG>Father Of Hate</STRONG> | 10. <STRONG>The Crucible</STRONG> | 11. <STRONG>Deus Ex Machina</STRONG> | 12. <STRONG>Porra</STRONG></P>
+<P>Трек <STRONG>"Banzai Kamakazi"</STRONG> можно прослушать по ссылке: <A href="https://soundcloud.com/napalmrecords/cavalera-conspiracy-bonzai-kamakazi/s-RA3FI">https://soundcloud.com/napalmrecords/</A></P>
+<P>Обложку для альбома нарисовал <STRONG>Stephan Doitschnoff</STRONG>&nbsp;(<A href="http://doitschinoff.com/">http://doitschinoff.com</A>).</P>
+<P><STRONG>Igor Cavalera</STRONG> (барабаны) о сотрудничестве со Стефаном (<STRONG>Stephan Doitschnoff</STRONG>):</P>
+<P><EM>"Было интересно работать с одним из самых поразительных ныне живущих художников, который также является одним из моих лучших друзей. <STRONG>Stephan Doitschnoff</STRONG> умеет красиво выразить неоднозночное и напряжённое, заставляет думать людей при помощи образов и слов. Для меня его творчество, как нельзя лучше подходит, чтобы соеденить&nbsp;&nbsp;с той музыкой, которую я написал для <STRONG>"Pandemonium"</STRONG>.</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.09/27246.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.10.2014 news Новая музыка от братьев
+
+<P>Новый альбом содружества основателей<STRONG> SEPULTURA</STRONG> братьев<STRONG> Cavalera CAVALERA CONSPIRACY "Pandemonium"</STRONG> выйдет в начале ноября на <STRONG>Napalm Records</STRONG>. Нарезку новой музыки можно послушать в клипе ниже.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/eCOrgkSCcpg" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.07.2016 news Братья Cavalera сыграют &quot;Roots&quot;
+
+<p><strong>Max & Iggor Cavalera</strong> анонсировали тур <strong>"Return to Roots</strong>", посвящённый 20-летнему юбилею выхода альбома<strong> SEPULTURA</strong>. Музыканты проедутся по Северной Америке, на выступлениях будет исполняться "<strong>Roots</strong>" целиком. В состав кроме двух братьев войдут музыканты <strong>CAVALERA CONSPIRACY Mark Rizzo</strong> и<strong> Johny Chow</strong>. </p><p>Турне стартует в Лас Вегасе 12 сентября.</p><p>&nbsp;<center><img width="566" height="800" src="/images/news_rus/2016.07/29697.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 30.07.2016 news Announcing the &quot;Max &amp; Iggor Cavalera RETURN TO ROOTS&quot; Tour
+
+<p>Announcing the <strong>Max & Iggor Cavalera</strong> <strong>RETURN TO ROOTS</strong> tour - celebrating the 20th anniversary of the legendary album<strong> Roots</strong> - to be played in its entirety each night! The North American tour, which kicks off in Las Vegas on September 12, will feature direct support on select dates from The Black Dahlia Murder and Combichrist, with additional support from Allegaeon, All Hail The Yeti and Oni.</p><p>Max & Iggor Cavalera will perform their set with their <strong>Cavalera Conspiracy</strong> brothers, guitarist <strong>Marc Rizzo</strong> and bassist <strong>Johny Chow</strong>.</p><p>Tickets are on-sale beginning today and can be purchased via each individual venue. Visit your local RETURN TO ROOTS tour venue's website for more information, or check back to <a href="http://www.maxandiggorreturntoroots.com">www.maxandiggorreturntoroots.com</a> for updated ticket links as they become available.</p><p>In addition, very special Meet & Greet passes can be purchased at Max & Iggor Cavalera's merch booth each night. Fans will be given the opportunity to take a photo with Max & Iggor, and they will each sign a Roots CD, cassette or vinyl. This applies to only the Roots album and one autograph and one photo will be permitted per person. Don't miss this unique opportunity to have your Roots album signed by the men behind the music.</p><p>"<em>Metalheads! It's time," declares Max Cavalera. "20 years ago, we released the Roots album and changed the face of metal forever. Now, we're returning to "the roots" to show everybody the magic and inspiration of the Roots live experience! You cannot miss this RETURN TO ROOTS 2016</em>!"</p><p>Iggor Cavalera adds, "<em>I am very proud to play Roots again, to reaffirm that after 20 years, it still moves people! We hit the stage again with Roots to destroy everywhere we pass by!</em>"</p><p>Max & Iggor Cavalera are the original founding members of influential RIAA Gold-Certified Brazilian heavy metal legends Sepultura, and specifically the team behind the band's early albums, including seminal releases Arise, Chaos A.D. and Roots. Since the band's formation over 30 years ago, the Cavalera brothers have each seen unparalleled successes in the music industry. Max's more recent work with Soulfly, Cavalera Conspiracy (also featuring Iggor) and Killer Be Killed, in addition to Iggor's project MIXHELL, proves the lasting power of the Cavalera legacy.&nbsp;</p><p>Later this year, Warner Music will release a special vinyl edition of Roots, in addition to a CD/vinyl box set of classic Sepultura records, with more surprises in store. Stay tuned for a full announcement on the new editions, coming soon.</p><p>***Show line-ups vary per date - see below for the full tour routing with openers.</p><p>2016 Return to Roots Tour Dates:<br>9/12/2016 Las Vegas, NV @ LVCS w/ Combichrist, Allegaeon<br>9/13/2016 Albuquerque, NM @ Sunshine Theater w/ Combichrist, Allegaeon<br>9/15/2016 Nashville, TN @ Exit / In w/ Combichrist, Allegaeon<br>9/16/2016 Louisville, KY @ Diamond Concert Hall w/ Combichrist, Allegaeon<br>9/17/2016 Rochester, NY @ Montage Music Hall w/ Combichrist, Allegaeon<br>9/18/2016 Philadelphia, PA @ Rock Allegiance Festival (line-up)<br>9/19/2016 Knoxville, TN @ The Concourse w/ Combichrist, Allegaeon<br>9/20/2016 Athens, GA @ Georgia Theater w/ Combichrist, Allegaeon<br>9/22/2016 Oklahoma City, OK @ Diamond Ballroom w/ Combichrist, Allegaeon<br>9/23/2016 Dallas, TX @ Gas Monkey w/ Support TBA<br>9/24/2016 Houston, TX @ Houston Open Air Festival (line-up)<br>9/25/2016 New Orleans, LA @ Southport Music Hall w/ All Hail The Yeti<br>9/30/2016 Jacksonville, NC @ Hooligans w/ Combichrist, All Hail The Yeti, Oni<br>10/1/2016 St Petersburg, FL @ State Theater w/ Combichrist, All Hail The Yeti, Oni<br>10/2/2016 Ft Lauderdale, FL @ Culture Room w/ Combichrist, All Hail The Yeti, Oni<br>10/6/2016 Chicago, IL @ Reggie's w/ Combichrist, All Hail The Yeti, Oni<br>10/7/2016 Detroit, MI @ Harpos w/ Combichrist, All Hail The Yeti, Oni<br>10/8/2016 Dayton, OH @ Oddbodys w/ Combichrist, All Hail The Yeti, Oni<br>10/9/2016 Pittsburgh, PA @ Rex Theater w/ Combichrist, All Hail The Yeti, Oni<br>10/10/2016 Ottawa, ON @ Mavericks w/ The Black Dahlia Murder, Allegaeon, Oni<br>10/11/2016 Toronto, ON @ Opera House w/ The Black Dahlia Murder, Allegaeon, Oni<br>10/12/2016 Montreal, QC @ Les Foufounes Electriques w/ The Black Dahlia Murder, Allegaeon, Oni<br>10/14/2016 Quebec City, QC @ Imperial Theatre w/ Allegaeon, Oni<br>10/15/2016 Worcester, MA @ Rock N Shock Festival w/ Combichrist, All Hail The Yeti, Oni<br>10/16/2016 Cleveland, OH @ Agora Ballroom w/ Combichrist, All Hail The Yeti, Oni<br>10/17/2016 Sauget, IL @ Pop's w/ Combichrist, All Hail The Yeti, Oni<br>10/20/2016 Los Angeles, CA @ The Regent w/ All Hail The Yeti, Oni<br>10/21/2016 Tempe, AZ @ Club Red / D-Low FEST w/ Soulfly, Incite, Lody Kong, Oni<br>10/23/2016 Sacramento, CA @ Aftershock Festival (line-up)</p><p>&nbsp;<center><img width="566" height="800" src="/images/news_rus/2016.07/29697.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

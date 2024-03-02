@@ -24,6 +24,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.11.2000 reviews Музыка доносящаяся до нас сквозь таинственные леса
+
+<p>Музыка доносящаяся до нас сквозь таинственные леса. Довольно стандартный sympho-black-metal с неплохой атмосферой обволакивающей ночи. Эта немецкая группа выпустила свой второй альбом на Last Episode. Поэтому музыка типичная для этого лэйбла. А надо признать, что там выпускается немало хороших групп. И Dies Ater удачно вписались в их компанию. Мелодично, интересно, со сменой скоростей и ритмов. Ни на кого конкретно не похоже. Любители sympho-black-metal останутся в восторге.</p>
+
+Автор: Dimas
+
+### 10.11.2000 reviews Music reaching up to us through mysterious woods
+
+<p>Music reaching up to us through mysterious woods. Rather standard sympho-black-metal with a quite good atmosphere of enveloping night. This German group has let out an album on Last Episode. Therefore music typical of this label. And it is necessary to recognize, that many good groups there are let out. And Dies Ater were successfully entered in their company. Is melodious, interestingly, with change of speeds and rhythms. To anybody particularly is not similar. The fans of sympho-black-metal will stay in delight.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

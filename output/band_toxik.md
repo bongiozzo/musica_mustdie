@@ -16,6 +16,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.08.2010 news Новый DVD от TOXIK
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/16994.jpg" width=233 height=300>"Think Again" -</STRONG> так будет называться новый<STRONG> DVD</STRONG>, который выпустят легендарные трэшеры <B itxtvisited="1">TOXIK</B>. Дата выхода намечена на 20 августа.&nbsp;Диск&nbsp;будет издан собственными силами.&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По словам барабанщика группы</FONT> <STRONG>Tad</STRONG>'а<STRONG> Leger</STRONG>'а, <B itxtvisited="1">"Think Again"</B> <EM>"содержит, как старые, так и новые, никогда&nbsp;не публиковавшиеся съёмки.&nbsp;Основное место на DVD&nbsp;займёт концерт снятый в 1989 году на площадке&nbsp;<STRONG>"Paramount Theater"</STRONG>, в родном городе <STRONG>TOXIK</STRONG> Peekskill, штат New York.&nbsp;Это выступление состоялось сразу после выхода альбома <B itxtvisited="1">"World Circus"</B>&nbsp;и энергитический уровень&nbsp;группы был на самом пике.&nbsp;&nbsp;Концертный сет состоял из всех треков с&nbsp;диска <STRONG>"World Circus"</STRONG>&nbsp;и ранней версии песни&nbsp;<B itxtvisited="1">"Spontaneous"</B>, которая вошла на наш второй альбом <B itxtvisited="1">"Think This"</B>. </EM></P>
+<P><EM>"Площадка <STRONG>Paramount</STRONG> была самой большой сценой, на который мы когда-либо играли тогда и из контейнеров для молока, которые мы спёрли ночью в местных супермаркетах, был сооружён&nbsp;массивный постамент для ударных.&nbsp;Съёмка концерта была сделана из толпы и&nbsp;на ней присутствует дух живого выступления."</EM></P>
+<P>Заказать DVD можно по адресу: <A href="http://tadleger.net/toxik_dvd">http://tadleger.net/toxik_dvd</A><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

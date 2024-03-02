@@ -123,6 +123,50 @@ It's Electric (remix)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.06.2001 news MEGADETH + DIAMOND HEAD&#x3D;?
+
+<p>По сообщению Интернет ресурсов, главарь "MEGADETH" - Dave Mustaine работает над новым проектом с гитаристом "DIAMOND HEAD" - Brian Tatler. Музыкально это будет "нечто" не похожее ни на MEGADETH ни на DIAMOND HEAD.</p>
+
+Автор: Yermola
+
+### 15.06.2001 news MEGADETH + DIAMOND HEAD&#x3D;?
+
+<p>MEGADETH mainman Dave Mustaine will reportedly be working with DIAMOND HEAD guitarist Brian Tatler on an as-yet-unnamed new project, the musical direction of which is said to be "different to either MEGADETH or DIAMOND HEAD". No other details are available at this time. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.12.2001 news Дэйв Мастейн, лидер MEGADETH объявил о своем сотрудничестве с Брайеном Татлером из DIAMOND HEAD.
+
+<p>Согласно официальному заявлению Татлера, в начале следующего года дуэт отправится в студию для записи материала, который будет издан в конце 2002 года, возможно с помощью Sanctuary/Metal-Is Records. <BR> <BR> Сейчас DIAMOND HEAD завершают запись нового акустического EP, на который вошли новые версии старых хитов группы: “Run,” “Heat Of The Night,” “Lightning To The Nations,” “Ishmael.” Это первая запись группы в оригинальном составе с 1983 года. Новый студийный альбом группы ожидается в следующем году.</p>
+
+Автор: Tornado
+
+### 20.03.2003 reviews Два в одном
+
+<p>Хороший диск и послушать приятно, и посмеяться можно! Наивность позволяет с серьезным видом делать ну вроде бы совершенно глупые песни, среди которых по прошествии времени вдруг обнаруживаются и весьма достойные вещи. <BR> Получите "два в одном": ремастированное переиздание первого и лучшего альбома "Lightning to the Nations" 1980 года плюс семь бонусов. Диск имеет прежде всего раритетную ценность – это один из краеугольных камней, что были заложены в фундамент тяжелого рока 80-х. Правда, со временем весь потенциал заложенных здесь идей был полностью выработан, что, однако, не мешает мэтрам из METALLICA рекламировать сей альбом вот уже второе десятилетие подряд. Как же, любимая пластинка молодости, половину которой "металликовцы" переиграли на свой лад (да и сама группа во второй половине 90-х зазвучала отчасти похоже на DIAMOND HEAD). С другой стороны, сами "алмазы" много чего надергали у своих кумиров: LED ZEPPELIN (один припев "Sucking My Love" чего стоит!), DEEP PURPLE и самую малость – у URIAH HEEP. В итоге получился эдакий "трамплин", с которого хард-рок 70-х выпрыгнул в следующее десятилетие, превратившись в грозного "металлического" монстра. Правда, сами музыканты с этого почти ничего не получили – DIAMOND HEAD погрязли в проблемах и исчезли из виду. <BR> Впрочем, это и неудивительно – вторая часть диска, те самые бонусы убедительно доказывают, что дер с чужих шедевров у музыкантов сродни непреходящей болезни, а на таких трюках далеко не уедешь. Потому DIAMOND HEAD и остались неплохим образчиком традиционного английского хард-рока "переходного периода", из которого чуть позже выросло очень много интересных вещей. Есть у этого диска еще одно неоспоримое достоинство – честность. На фоне современного клишированного шоу-бизнеса эта пусть и наивная музыка, сделанная без сэмплов и компьютеров с минимумом студийных эффектов и наложений, вызывает уважение. Вот такой вот поучительный артефакт.</p>
+
+Автор: Tornado
+
+### 28.04.2003 news DIAMOND HEAD готовятся к записи
+
+<p>Воссоединившиеся легенды NWOBHM - DIAMOND HEAD начали работу над своим новым альбомом. Он будет записываться в британской Mad Hat Studios с продюссером Andrew Scarth. Уже известен трэк-лист альбома:</p>
+<p> 1. Shine On Me<BR> 2. Forever 16<BR> 3. Deep<BR> 4. Voodoo Sky<BR> 5. The Ferryman<BR> 6. Music Box<BR> 7. Real Woman<BR> 8. It's Alright<BR> 9. Silverdaze<BR> 10. Tumblenite<BR> 11. Medusa's Gaze<BR> 12. Heart Of Stone</p>
+
+Автор: Dimas
+
+### 12.09.2016 news Песня с последнего альбома DIAMOND HEAD
+
+<p>Трек heavy metal группы <b>DIAMOND HEAD "All The Reasons You Live"</b> можно послушать ниже. Песня взята с последнего альбома группы "<b>Diamond Head</b>", который вышел 22 апреля на <b>Dissonance Productions</b>. </p> <p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-jiifETLjFM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.09.2016 news Track from last DIAMOND HEAD album
+
+<p>The track of heavy metal band <b>DIAMOND HEAD "All The Reasons You Live"</b> can be streamed below. The song comes off the band's latest album "<b>Diamond Head</b>", which was released on April 22 <b>Dissonance Productions</b>.</p> <p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-jiifETLjFM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Diamond Head!!!

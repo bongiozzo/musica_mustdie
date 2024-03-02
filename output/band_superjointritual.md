@@ -34,6 +34,55 @@
 * C группой "Down" Phil Anselmo
 * C группой "Southern Isolation" Phil Anselmo
 
+## Публикации
+
+### 02.07.2002 reviews Очередной проект неугомонного Фила Анселмо...
+
+<p>Трудно найти на сегодняшней металлической сцене более работящего музыканта, чем Фил Анселмо. К настоящему моменту этот неугомонный перец состоит аж в 8 проектах, наиболее известными из которых являются, конечно же, PANTERA и DOWN. И вот, спустя всего лишь 2 месяца после выхода 2-й пластинки DOWN, увидело свет новое творение Фила - дебютный альбом команды SUPERJOINT RITUAL, где маэстро исполняет не только роль запевалы, но и предстаёт в новом для себя амплуа гитариста(!).<BR><BR> Если сравнивать SUPERJOINT с другими проектами Анселмо, то по стилю музыка этого коллектива всё-таки ближе к последним работам PANTERA , нежели к металло-блюзовому DOWN. Но в отличие от классно спродюсированного и отточенного до мельчайших деталей звука PANTERA, на ” Use Once And Destroy” звук сырой и необработанный. В музыкальном плане альбом представляет собой взрывоопасную смесь трэша, deathа и хардкора, и несмотря на отсутствие настоящих хитов, эта 50-минутная доза бескомпромиссного металлобезумия не оставит равнодушными фанатов как PANTERA, так и любителей классического трэша. <BR><BR> Самобытные риффы второго гитариста группы Джимми Бауэра(являющегося по совместительству барабанщиком в DOWN и C.O.C.)в песнях "Everyone Hates Everyone", "Antifaith" и "Drug Your Love” прямо-таки вызывают ностальгию по старому доброму трэшу конца 80-х годов. Но всё-таки главной отличительной чертой, да и коньком альбома, я бы назвал ни с чем не сравнимый рёв Фила, который в каждой песне надрывает глотку так, будто эта песня последняя в его жизни.<BR> <BR> Честь и хвала Анселмо и компании за то, что они остаются верными настоящему металлу несмотря ни на что.</p>
+
+Автор: Natural born loser
+
+### 25.10.2003 news MORBID ANGEL, SUPEJOINT RITUAL in USA
+
+<B>SUPERJOINT RITUAL</B> w/ <B>DEVILDRIVER</B>:<BR><BR>Oct. 16 - Columbus, OH - Al Rosa <BR>Oct. 17 - Detroit, MI - Harpo's<BR>Oct. 18 - Flint, MI - Machine Shop<BR>Oct. 20 - Indianapolis, IN - Vogue<BR>Oct. 21 – Cleveland, OH - Agora Ballroom<BR>Oct. 23 - Chicago Heights, IL - Oasis 160<BR>Oct. 24 - Cedar Rapids, IA - Lets Dance<BR>Oct. 25 - Milwaukee Wisconsin - The Rave<BR>Oct. 26 - Clearlake, IA - Surf Ballroom<BR><BR><B>SUPERJOINT RITUAL</B> w/ <B>MORBID ANGEL</B>, <B>DEVILDRIVER</B>:<BR><BR>Nov. 03 - State College, PA - Crowbar <BR>Nov. 04 - Baltimore, MD - Thunderdome<BR>Nov. 05 - Providence, RI – Lupo's Heartbreak<BR>Nov. 07 - Worcester, MA - The Palladium<BR>Nov. 08 - Hartford, CT - The Webster Theater<BR>Nov. 09 - Poughkeepsie, NY - The Chance<BR>Nov. 11 - Rochester, NY - Penny Arcade<BR>Nov. 13 - Philadelphia, PA - Theatre Of Living Arts<BR>Nov. 14 - Asbury Park, NJ - Convention Hall<BR>Nov. 15 - Lackawanna, NY - Cruise Inn<BR>Nov. 17 – Brooklyn, NY - L'Amour<BR>Nov. 18 – West Springfield, VA - Jaxx<BR>Nov. 19 – Spartanburg, SC - Ground Zero<BR>Nov. 21 – Urbane, IL - The Canopy <BR>Nov. 23 – Minneapolis, MN - First Avenue<BR>Nov. 24 – Chicago, IL - Vic Theatre<BR>
+Автор: Vit Belov
+
+### 14.05.2013 news Phil Anselmo: подробности дебютного сольного альбома &quot;Walk Through Exits Only&quot;
+
+<P><STRONG>"Walk Through Exits Only"</STRONG> - такое название получил первый сольный альбом вокалиста <STRONG>Фила Ансельмо</STRONG>&nbsp;(Philip Anselmo; <STRONG>DOWN</STRONG>, <STRONG>PANTERA</STRONG>, <STRONG>SUPERJOINT RITUAL</STRONG>). Сам проект носит название <STRONG>Philip H. Anselmo & the Illegals</STRONG>, а его выход намечен на 16 июля на <STRONG>Housecore Records</STRONG>.</P>
+<P>Продюсерами&nbsp;альбома, в который вошло 8 песен,&nbsp;стали: <STRONG>Philip Anselmo</STRONG> и <STRONG>Michael Thompson</STRONG>. Запись <STRONG>"Walk Through Exits Only" </STRONG>происходила в течении двух&nbsp;лет в <STRONG>"Nodferatu’s Lair"</STRONG>, собственной студии Фила, расположенной в Новом Орлеане.&nbsp;Помимо Фила в записи диска приняли участие: гитарист <STRONG>Marzi Montazeri</STRONG> и барабанщик <STRONG>Jose Manuel “Blue” Gonzales</STRONG>. </P>
+<P>Трек с альбома, под названием<STRONG> "Usurper’s Bastard Rant"</STRONG>, уже сейчас можно послушать&nbsp;на сайте журнала&nbsp;<STRONG>Revolver</STRONG>: <A href="http://www.revolvermag.com/news/philip-h-anselmo-the-illegals-debut-new-song-usurpers-bastard-rant.html">http://www.revolvermag.com</A>.</P>
+<P>Вот, что сам <STRONG>Ансельмо</STRONG> говорит&nbsp;о <STRONG>"Walk Through Exits Only"</STRONG>:<EM>&nbsp;"Это самый злой альбом, на который я был способен. Я не вижу никого вокруг, кто мог бы так же орать о том дерьме, о котором я ору на этом альбоме. На этом альбоме нет никакой игры слов, нет никакого скрытого послания;&nbsp;весь смысл прямо перед вами."</EM></P>
+<P><EM>
+<CENTER></EM><IMG border=0 src="/images/news_rus/2013.05/25705.jpg" width=450 height=450>&nbsp;
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 09.07.2013 news Philip H. Anselmo &amp; The Illegals: клип &quot;Bedridden&quot;
+
+<P><STRONG>Phil Anselmo</STRONG>&nbsp;представил видеоклип на трек <STRONG>"Bedridden"</STRONG>,&nbsp;взятый&nbsp;со своего сольного альбома под названием <STRONG>"Walk Through Exits Only"</STRONG>. Клип можно заценить ниже. Выход же самого альбома намечен на 16 июля.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/_PGOk_6Jgm8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.06.2014 news Автобиография Фила Ансельмо в начале 2015 г.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.06/27046.jpg" width=300 height=450>По&nbsp;информации c&nbsp;сайта <STRONG>Amazon.com</STRONG>, издательство <STRONG>Gallery Books</STRONG>,&nbsp;выпускает автобиографию Фила Ансельмо (<STRONG>Philip H. Anselmo</STRONG>, <STRONG>DOWN</STRONG>, <STRONG>PANTERA</STRONG>, <STRONG>SUPERJOINT RITUAL</STRONG>), которая получила название <STRONG>"Mouth For War: Pantera And Beyond"</STRONG>. </P>
+<P>Дата выхода книги: 15 января 2015 г.</P>
+<P>В качестве соавтора автобиографии выступил журналист сайта <STRONG>Bloodydisgusting.com</STRONG> Кори Митчелл (<STRONG>Corey Mitchell</STRONG>).</P>
+<P>Предварительный заказ можно сделать по ссылке: <A href="http://www.amazon.com/Mouth-War-Philip-H-Anselmo/dp/1476730504">www.amazon.com</A></P>
+Автор: Headcrusher
+
+### 26.06.2015 news Фестиваль &quot;Hellfest&quot; | 2015
+
+<P>Не так давно наш фотокор вернулся с поездки на французский фестиваль <STRONG>"Hellfest"</STRONG>, который состоялся с 19 по 21 июня в местечке под названием <STRONG>Clisson</STRONG>.</P>
+<P>В этом году на фестивале выстепали такие группы, как <STRONG>AIRBOURNE</STRONG>, <STRONG>ANTHRAX</STRONG>, <STRONG>IN FLAMES</STRONG>, <STRONG>LAMB OF GOD</STRONG>, <STRONG>KILLING JOKE</STRONG>, <STRONG>GODSMACK</STRONG>, <STRONG>ARMORED SAINT</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>HIRAX</STRONG>,<STRONG> NUCLEAR ASSAULT</STRONG>, <STRONG>VENOM</STRONG>, <STRONG>CHILDREN OF BODOM</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>SATYRICON</STRONG>, <STRONG>AT THE GATES</STRONG>, <STRONG>CANNIBAL CORPSE</STRONG>, <STRONG>CRADLE OF FILTH</STRONG>, <STRONG>MAYHEM</STRONG>, <STRONG>FINNTROLL</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>OBITUARY</STRONG>, <STRONG>ENSIFERUM</STRONG>, <STRONG>DYING FETUS</STRONG>, <STRONG>ALESTORM</STRONG>, <STRONG>BODY COUNT</STRONG>,<STRONG> THE EXPLOITED</STRONG>, <STRONG>RED FANG</STRONG>, <STRONG>MADBALL</STRONG>, <STRONG>EYEHATEGOD</STRONG>, <STRONG>ORCHID</STRONG> и многие другие.</P>
+<P>Ждите в скором времени обширный репортаж в нашем разделе фотогалерей: <A href="/ru/galleries/" target=_blank><U><FONT color=#0000ff>http://musica.mustdie.ru/ru/galleries/</FONT></U></A></P>
+<P>Официальный сайт фестиваля: <A href="http://www.hellfest.fr/">www.hellfest.fr</A> </P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28124.jpg" width=660 height=490> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Superjoint Ritual

@@ -39,6 +39,22 @@ Executive Producer: Wasabi! LLC
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.05.2002 reviews Не стареют душой ветераны
+
+<p>Дебютный альбом группы из Чикаго, где много-много гангстеров и рэперов. И вот, в такой среде нашлась группа ветеранов, которая решила собраться и записать песни сочиненные ими за последние десять лет. И записали они неплохой душевный и приятный на слух AOR. Мелодичный мягкий рок в лучших традициях начала восьмидесятых (вспоминаются такие группы, как FOREIGNER, SURVIVOR). Все записано на высшем уровне, все музыканты с огромным опытом музицирования и записи. Великолепное построение композиций, задушевные баллады и приятные хиты. Два вокалиста ничуть не уступают друг другу. Отличный, точно выверенный альбом с отдыхающей музыкой. Но, по-моему, в наше время такая музыка не актуальна, а потому широкого спроса иметь не будет. Лишь слушатели со стажем способны наслаждаться подобной музыкой вспоминая свою молодость. Для остальных, этот альбом будет мало интересен. Вот, может через несколько лет, если только...</p>
+<p> Диск выпущен по лицензии компанией CD-MAXIMUM</p>
+
+Автор: Dimas
+
+### 03.06.2002 reviews Veternans live
+
+<p>Debut album of group from Chicago, where there is a lot of gangsters and rappers. And, in such environment the group of the veterans was found which has decided to form band and to write down songs composed by them for last ten years. They also have written down quite good sincere and pleasant hearing AOR. Melodious soft rock in the best traditions of a beginning eightieth (such groups, as FOREIGNER, SURVIVOR are remembered). All is written down top-level, all musicians with huge experience of music and record. Magnificent construction of compositions, heart-felt ballads and pleasant hits. Two vocalists at all do not concede each other. Excellent, precisely verified album with having a rest music. But, in my opinion, presently such music is not urgent, that is why wide demand will not have. Only listeners with the experience are capable to enjoy similar music recollecting the youth. For others, this album will be poorly interesting.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -39,6 +39,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.07.2011 news Новый клип SKINDRED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик <STRONG>SKINDRED </STRONG>на песню <STRONG>"Cut Dem" </STRONG>можно посмотреть ниже. Режиссёром видео стал <STRONG>Tim Fox</STRONG>, который работал над клипом той же группы <STRONG>"Warning". </STRONG>Песня взята с четвёртого альбома <STRONG>SKINDRED</STRONG> <STRONG>"Union Black", </STRONG>который вышел 25 апреля.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Fv2iOUQqCks?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Fv2iOUQqCks?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.09.2015 news Новое видео SKINDRED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик<STRONG> SKINDRED</STRONG> на песню “<STRONG>Under Attack</STRONG>”, которая войдёт в альбом "<STRONG>Volume</STRONG>", который выйдет на <STRONG>Napalm Records</STRONG> 30 октября.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/dkJuB656AVc" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

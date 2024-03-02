@@ -75,6 +75,25 @@ Picture by Christiano Witt.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.06.2005 reviews Вопреки всем стандартам
+
+<P>Лихой heavy power metal из страны, где много-много диких обезьян. На этом, рецензию можно было бы и закончить. Там такую музыку любят и играют все, кому не лень, вот только все это уже&nbsp;в Европе давным-давно переиграли, и нового вряд ли нам суждено услышать. Этот альбом тоже сделан по самым что ни на есть стандартам и штампам. И тем не менее, почему-то, его прослушивание не вызывает никаких отрицательных эмоций. Существуя с 1996 года, HIBRIA смогла выпустить дебютный альбом только спустя девять лет. Может потому, он и так хорош и грамотен, что содержит длительные наработки.&nbsp;Он напоминает выдержанное вино, в котором со временем остались только самые вкусности. Очень хороший релиз, напоминающий все самое лучшее из восьмидесятых, заставляя вспомнить многих грандов heavy и power metal, среди которых, например, JUDAS PRIEST, HELLOWEEN, IRON MAIDEN и другие. Скоростной, очень мелодичный и&nbsp;энергичный материал, без всяких клавишных, качественный (микшированием и мастерингом занимался Piet Sielck, умеющий работать с подобного рода стаффом) и способный штурмовать хит-парады. Два гитариста, будто сорвались с цепи, попеременно поражая своей техникой и умопомрачительными продолжительными соло в стиле Yngwie Malmsteen. Вокалист, кстати, тоже напоминает манерой и харизматичностью&nbsp;певцов, работавших со шведским гитарным богом. Девять потрясающих и безбашенных трека и никаких баллад. True, да и только... Metal!</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Dimas
+
+### 02.08.2016 news Новый клип HIBRIA
+
+<p>Новый ролик бразильской heavy power metal группы<strong> HIBRIA</strong> на песню "<strong>Leading Lady</strong>" можно посмотреть ниже. Трек войдёт на новый релиз музыкантов "<strong>XX</strong>", посвящённый юбилею группы, на который войдут три новых вещи и четыре концертных.</p><p>Трек лист:</p><p>1. Leading Lady (5:37)<br>2. Music (5:11)<br>3. Fools Paradise (5:41)<br>4. Silent Revenge (Live) (6:57)<br>5. Lonely Fight (Live) (4:59)<br>6. Tightrope (Live) (5:53)<br>7. Tiger Punch (Live) (6:17)</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/m0D-UPhDu9Y" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.08.2016 news New video of HIBRIA
+
+<p>New video of the Brazilian heavy power metal band <strong>HIBRIA</strong> song "<strong>Leading Lady</strong>" can be viewed below. The track will be included on new release of band "<strong>XX</strong>", dedicated to the anniversary of the group, which will include three new and four live tracks.</p><p>Track list:</p><p>1. Leading Lady (5:37)<br>2. Music (5:11)<br>3. Fools Paradise (5:41)<br>4. Silent Revenge (Live) (6:57)<br>5. Lonely Fight (Live) (4:59)<br>6. Tightrope (Live) (5:53)<br>7. Tiger Punch (Live) (6:17)</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/m0D-UPhDu9Y" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

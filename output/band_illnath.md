@@ -112,6 +112,359 @@ Released: June 23rd, 2003
 
 * C группой "Ofring" Simon Thorsback-Hansen (vocals)
 
+## Публикации
+
+### 07.05.2003 reviews Cradle of Filth - n-ая реинкарнация
+
+<p>Второй диск, изданный в России по лицензии World Chaos prod. из Японии. Ну, что ж... Из всего, что я у них слышал датская группа Illnath представляет самый коммерчески перспективный материал. На фоне однообразного, пусть и неплохого, трэша, melodic sympho-black от обозреваемой группы выглядит просто-таки прорывом. Описать материал, представленный на диске очень просто. Cradle Of filth 'Midian' настолько чётко скопированный, что отличить практически невозможно. Два мужских вокала, женский вокал, гипер-мелодичные фортепианные проигрыши, симфоничные гитарные атаки (сколько штампов? :((( ). Если серьёзно, то ценителям и эстетам здесь делать нечего, но если Вы хотите просто приятного прослушивания псевдо-тяжёлой и псевдо-страшной музыки, лучшего варианта Вам не найти. Ведь здесь иногда попахивает хитами. Советую всем, кто любит sympho-black... Хорошо.</p>
+
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 29.11.2006 news ILLNATH готовят третий
+
+<P><STRONG>ILLNATH</STRONG> готовят к записи третий альбом <STRONG>"Three Nights in the Sewers of Sodom"</STRONG>.&nbsp;Пластинка выйдет на собственном лэйбле группы, так как с предыдущим <STRONG>World Chaos</STRONG> коллектив расстался.</P>
+Автор: Vit Belov
+
+### 30.01.2007 news ILLNATH наняли барабанщика
+
+<P>Барабанные партии для нового альбома <STRONG>ILLNATH</STRONG> <STRONG>"Three Nights in the Sewers of Sodom" </STRONG>запишет <STRONG>Reno Kiilerich</STRONG> (ex-<B>DIMMU BORGIR</B>, <B>PANZERCHRIST</B>, <B>DEW-SCENTED</B>).</P>
+Автор: Vit Belov
+
+### 19.11.2007 news ILLNATH заканчивают запись
+
+<P>Датские "сенсации"<STRONG> ILLNATH</STRONG> заканчивают сведение своего третьего альбома <STRONG>'Three Nights in the Sewers of Sodom'. </STRONG>В настоящее время группа ищет нового барабанщика.</P>
+<P>Песню с нового альбома можно услышать на MySpace страничке группы: <A href="http://www.myspace.com/illnathofficial">http://www.myspace.com/illnathofficial</A></P>
+Автор: Vit Belov
+
+### 11.02.2009 news ILLNATH поменяли клавишника
+
+<P>Новым клавишником <STRONG>ILLNATH </STRONG>стал <STRONG>Larz</STRONG> <B itxtvisited="1">Munch.</B></P>
+Автор: Vit Belov
+
+### 12.08.2009 news ILLNATH расстались с барабанщиком
+
+<P>Барабанщик <STRONG>Danni Lyse Jelsgaard </STRONG>покинул<STRONG> ILLNATH</STRONG>, чтобы сконцентрироваться на своей другой группе <STRONG>SVARTSOT</STRONG>. Группа сообщает об отмене ближайших концертов. Отменён ли конкретно концерт в Москве в начале сентября пока не сообщается.</P>
+Автор: Vit Belov
+
+### 11.11.2009 news ILLNATH нашли, но не говорят
+
+<P>Датчане <STRONG>ILLNATH</STRONG> нашли нового барабанщика, но теперь даже не называют его имя. "<EM>Из-за разнообразных правовых и практических причин, мы не можем назвать его имя</EM>", - сообщила группа.</P>
+<P>Да и не надо, в общем-то, не очень и хотелось.</P>
+Автор: Vit Belov
+
+### 29.09.2010 news Клип от ILLNATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>ILLNATH</STRONG> <STRONG>"Ravenous Crows" </STRONG>можно посмотреть ниже. Трэк попадёт на уже записанный альбом датчан <STRONG>"Three Nights in the Sewers of Sodom", </STRONG>который возможно когда-нибудь выйдет.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ySubQANtmdM&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ySubQANtmdM&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.01.2011 news В ILLNATH теперь поёт девушка
+
+<P>Датчане <STRONG>ILLNATH</STRONG>, которые никак не могут издать записанный третий альбом <STRONG>"Three Nights in the Sewers of Sodom"</STRONG>, сообщили, что их покинул вокалист <STRONG>Narrenschiff. </STRONG>Новым лицом группы стала брутальная девушка <STRONG>Mona Beck. </STRONG></P>
+<P><center><FONT color=#ffffff><IMG height=450 src="/images/news_rus/2011.01/18315.jpg" width=300 border=0></FONT></P>
+Автор: Vit Belov
+
+### 02.01.2012 news Новый альбом ILLNATH в нашем магазине
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=175 alt="" hspace=0 src="/images/news_rus/2012.01/22452.jpg" width=175 align=right border=0>Долгожданный альбом<STRONG> ILLNATH "Third Act In The Theatre Of Madness"</STRONG> вышел 18 ноября на <STRONG>Pitch Black Records</STRONG>. Sympho-black metal работу можно приобрести в нашем магазине <STRONG>MUSICA SHOP</STRONG> по адресу: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A> Также доступен заказ по E-mail: <A href="mailto:musica2005@yandex.ru">musica2005@yandex.ru</A> Трек-лист:</FONT></P>
+<P>01. <STRONG>Third Act</STRONG> 05:36 <BR>02. <STRONG>Scare Crow</STRONG> 04:51 <BR>03. <STRONG>Lead The Way</STRONG> 06:30 <BR>04. <STRONG>Snake Of Eden</STRONG> 03:26 <BR>05. <STRONG>Shorthanded</STRONG> 05:50 <BR>06. <STRONG>Spring Will Come</STRONG> 05:20 <BR>07. <STRONG>Tree Of Life And Death</STRONG> 05:34 <BR>08. <STRONG>Fall Of Giants</STRONG> 06:06 <BR>09. <STRONG>Vampiria</STRONG> 05:31<BR>10. <STRONG>Kingship Incarnate</STRONG> (CD Bonus) 04:29</P>
+<P>Также доступны к заказу другие релизы кипрского лэйбла <STRONG>Pitch Black Records</STRONG>:</P>
+<P><STRONG>Chained and Desperate - Divine Authority Abolishment</STRONG> [digi-pack] (black-metal)<BR><STRONG>Arryan Path - Terra Incognita</STRONG> (power-metal)<BR><STRONG>Emerald Sun - Regeneration</STRONG> (power-metal)<BR><STRONG>Pictures of Pain - The Reckoning</STRONG> (progressive)<BR><STRONG>Arrayan Path - Ira Imperium</STRONG> (power-metal, feat. Tony Martin)<BR><STRONG>Silent Fall - Otherwise</STRONG> (power-metal)<BR><STRONG>Prodigal Earth - Zenith II Zero</STRONG> (heavy-metal)<BR><STRONG>Alexis Birds Of Prey - Birds Of Prey</STRONG> (heavy-power-metal)</P>
+<P>Стоимость каждого диска <STRONG>536 рублей</STRONG>. Плюс стоимость доставки - почтой <STRONG>150 рублей</STRONG> за любое количество дисков (оплачиваете в своём почтовом отделении при получении) - курьером по Москве стоимость <STRONG>200 рублей</STRONG>, минимальное количество дисков четыре.</P>
+Автор: Vit Belov
+
+### 30.01.2012 reviews ILLNATH нельзя испортить
+
+<P>Датчане ILLNATH – популярный коллектив в нашей стране. Нашему слушателю явно не хватает DIMMU BORGIR и CRADLE OF FILTH, и он тянется к менее известным, но не менее мелодичным коллективам. Косвенным подтверждением этого факта является количество доморощенных sympho-black-metal коллективов, которые борются за сердца слушателя. ILLNATH тянули с выходом третьей пластинки долгие годы, и эта задержка была замечена отечественными фэнами.</P>
+<P>За время перерыва в выпусках альбомов, который продлился целых пять (!!!) лет, группа успела сменить лэйбл и даже поменять вокалиста. Теперь, пойдя по стопам ARCH ENEMY, ILLNATH пригласили к себе в состав кричащую девушку. Безусловно, это прибавит группе популярности, но на музыке подобные изменения, к счастью, не сказались. Mona Beck не позволяет себе роскоши петь чистым голосом, и это приятно. Музыка ILLNATH всё так же лежит в русле мелодичного, клавишноориентированного black-metal с большим количеством приятных мелодий. Можно подумать и не прошло этих пяти лет, и это к лучшему.</P>
+<P>Творчество ILLNATH предназначено для непритязательных поклонников мелодичного метала. В нём нет излишних наворотов и прогрессивности, нет пугающей звериной агрессии. В принципе, обозреваемый альбом можно смело относить к популярной музыке, качественной популярной музыке, которой всем так не хватает.</P>
+Автор: Vit Belov
+
+### 22.01.2013 news ILLNATH выпускают новый альбом
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2013.01/25348.jpg" width=475 height=475>Датчане<STRONG> ILLNATH</STRONG> выпустят новый альбом <STRONG>"4 Shades Of Me" </STRONG>12 марта на <STRONG>Pitch Black Records</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="101">Blood Warrior</B><BR itxtNodeId="100">02. <B itxtHarvested="0" itxtNodeId="99">Gallow Hill</B><BR itxtNodeId="98">03. <B itxtHarvested="0" itxtNodeId="97">King Of Your Mind</B><BR itxtNodeId="96">04. <B itxtHarvested="0" itxtNodeId="95">Pieces</B><BR itxtNodeId="94">05. <B itxtHarvested="0" itxtNodeId="93">No Salvation</B><BR itxtNodeId="92">06. <B itxtHarvested="0" itxtNodeId="91">Captain Of The Seven Seas</B><BR itxtNodeId="90">07. <B itxtHarvested="0" itxtNodeId="89">Unleashed</B><BR itxtNodeId="88">08. <B itxtHarvested="0" itxtNodeId="87">Shade Of Me</B><BR itxtNodeId="86">09. <B itxtHarvested="0" itxtNodeId="85">Not My God</B><BR itxtNodeId="84">10. <B itxtHarvested="0" itxtNodeId="83">It's On Me</B><BR itxtNodeId="82">11. <B itxtHarvested="0" itxtNodeId="81">Angelic Voices Calling</B> (2012)</P>
+<P><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F75152122&show_artwork=true"></iframe></P>
+Автор: Vit Belov
+
+### 30.05.2013 news ILLNATH: Marika Hyldmar стала новой вокалисткой датчан
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.05/25767.jpg" width=356 height=517>Датские металлисты <STRONG>ILLNATH</STRONG> сообщили о замене вокалистки. <STRONG>Mona Beck</STRONG> ушла, а её место заняла 21 летняя&nbsp; <STRONG>Marika Hyldmar</STRONG><EM> (на фото)</EM>. Причина, по которой произошла замена, не оглашается.</P>
+<P><STRONG>Marika</STRONG>&nbsp;родилась в городе Silkeborg (полуостров Ютландия). И впервые познакомилась с метал-сценой и с <STRONG>ILLNATH</STRONG> в раннем возрасте и решила, что хочет сама стать вокалисткой. В 2012 году она создала свою собственную группу <STRONG>MACHIAVELLIAN</STRONG> и продолжит петь в ней параллельно с <STRONG>ILLNATH</STRONG>.&nbsp;В своё свободное время&nbsp;она фотографирует для сайта <A href="http://www.rockfreaks.net/">www.rockfreaks.net</A>. А своё вдохновение она черпает в black и thrash-metal сценах. Такие группы, как <STRONG>ABSU</STRONG> и <STRONG>SKELETONWITCH</STRONG> оказали большое влияние на её вокал.</P>
+<P><STRONG>ILLNATH</STRONG> перезаписали свой старый трек <STRONG>"Ravenous Crows"</STRONG> (теперь просто <STRONG>"Crows"</STRONG>),&nbsp;чтобы полностью показать потенциал голоса Моники.&nbsp;&nbsp;</P>
+<P>Прослушать его можно здесь: <A href="http://youtu.be/mFPGpr2DDu8">http://youtu.be/mFPGpr2DDu8</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Norther, Illnath, Darzamat в России!

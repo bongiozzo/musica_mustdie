@@ -48,6 +48,52 @@ Yael - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.09.2002 reviews Всего понемногу...
+
+<p>Ещё один диск от Peaceville, оставивший меня в некотором недоумении. Хотя чего уж там, – теперь мы уже вряд ли дождёмся появления на этом лейбле не то, что думовой, а _просто_ металлической команды. Трудно сказать, модна ли сейчас среди 12 - 16-летних та музыка, что играют MY RUIN. Не знаю. За модой не слежу. Знаю только, что она может быть и хороша, но лишь для определённой аудитории. На "Blasphemous Girl" есть и grunge, и hardcore, и альтернатива, и тяжеленные BLACK SABBATH'овские риффчики… Местами чудится stoner, местами – industrial. Эдакая солянка. Солянка, надо сказать, весьма грамотно приготовленная. По крайней мере, ощущения разнородности материала не возникает. Поёт – а если быть точным, то орёт – девица, и делает это достаточно неплохо. Кстати, голос этой мадам мне чем-то напомнил некую Rinat из ALONE (ex-YEAH RIGHT). Да и в плане собственно музыки у ALONE / YEAH RIGHT и MY RUIN есть что-то общее. Короче говоря, угощайтесь. А я уж как-нибудь перебьюсь.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 10.09.2004 reviews Скучно. Girls band? Всё равно, скучно...
+
+<P><EM>Высокой оценки от нашего журнала <STRONG>MY RUIN</STRONG>, видимо, не добиться никогда, в виду разности во вкусах.</EM></P>
+<P>Группа была названа лучшей тяжёлой командой читателями журнала <STRONG>L.A. Weekly</STRONG>. Ого-го. В группе 3 девушки, одна девушка поёт-орёт. Статусный толстый буклет с фотографиями этих матрон прилагается к этому альбому.</P>
+<P>Музыка же мне осталось непонятна. Stoner? Может быть. Alternative? Вполне. Всё такое медленное, немелодичное, орущее, по-американски тяжёлое. Что-то мне подсказывает, что у этих дам есть узенький круг поклонников, вот им этот альбом и порекомендуем, а рядовому слушателю эта тягомотина не понадобится.&nbsp;</P>
+Автор: Vit Belov
+
+### 01.10.2004 reviews Boring. Girls band? Boring anyway
+
+<P><EM><STRONG>MY RUIN</STRONG> will never get good estimate from our web-zine. The reason is difference in style.</EM></P>
+<P>The band were named the best heavy group by readers of LA Weekly. Yeah! There are 3 girls in&nbsp;the band. One girl sings-screams. Proper fat booklet with photos of that ladies applied to this album.</P>
+<P>I could not understand this music. Stoner? May be. Alternative?&nbsp;Quite. Everything is so slow, unmelodious, screaming, heavy. I think these women have narrow round of fans. I recommend this album to them. But usual listeners don't need this painful CD.</P>
+Автор: Vit Belov
+
+### 10.08.2011 news Новый видео-клип MY RUIN
+
+<P>Новый видео-клип <STRONG>MY RUIN</STRONG> на песню <STRONG>"Long Dark Night" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Tor Burrows.</STRONG></P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/lveaT9plsCE" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.08.2013 news Видео новинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26013.jpg" width=200 height=285>В этом постинге&nbsp;опубликованы ссылки на 10 самых последних видео новинок от&nbsp;&nbsp;тяжёлых групп, которые так или иначе заслуживают внимание:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLACK TUSK</STRONG> "Truth Untold": <A href="http://youtu.be/yJXIvu4HqiY">http://youtu.be/yJXIvu4HqiY</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRING ME THE HORIZON</STRONG> "Go To Hell, For Heaven's Sake": <A href="http://youtu.be/9xLiI_-N4Hc">http://youtu.be/9xLiI_-N4Hc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CATTLE DECAPITATION</STRONG> "Your Disposal": <A href="http://youtu.be/szOlMfoN-jU">http://youtu.be/szOlMfoN-jU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> "All That's Left Is Blood": <A href="http://youtu.be/9OCh9hIGbGo">http://youtu.be/9OCh9hIGbGo</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEADLOCK</STRONG> "I'm Gone": <A href="http://youtu.be/R7M97B7bLZU">http://youtu.be/R7M97B7bLZU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEBAUCHERY</STRONG> "Let There Be Blood": <A href="http://youtu.be/7W8EU9HykoI">http://youtu.be/7W8EU9HykoI</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KILLSWITCH ENGAGE</STRONG> "Always": <A href="http://youtu.be/xcZIwXABBKA">http://youtu.be/xcZIwXABBKA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY RUIN</STRONG> "Moriendo Renascor": <A href="http://youtu.be/wNP_nITIuyQ">http://youtu.be/wNP_nITIuyQ</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEWSTED</STRONG> "Above All": <A href="http://youtu.be/6AWprBmbyuU">http://youtu.be/6AWprBmbyuU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TERROR</STRONG> "I'm Only Stronger": <A href="http://youtu.be/Gnx6ZusJbE4">http://youtu.be/Gnx6ZusJbE4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приятного просмотра!</FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

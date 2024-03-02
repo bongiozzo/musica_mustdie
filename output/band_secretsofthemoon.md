@@ -42,6 +42,55 @@ Dust
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.02.2005 news SECRETS OF THE MOON собираются в студию
+
+<P><STRONG>SECRETS OF THE MOON</STRONG> войдут в студию в ближайшее время для записи EP <STRONG>'The Axis Zero'</STRONG>. На пластинку войдут две новые песни <STRONG>'Exhibitions In A Grey Zone'</STRONG> и<STRONG> 'Bleakstar'</STRONG>. альбом увидит свет в начале этого года, а уже летом коллектив начнёт запись второй полнометражной пластинки.</P>
+Автор: Vit Belov
+
+### 07.02.2005 news SECRETS OF THE MOON are about to enter studio
+
+<P><STRONG>SECRETS OF THE MOON</STRONG> are about to enter the studio for an upcoming EP entitled "<STRONG>The Axis Zero</STRONG>". The release includes two brandnew songs entitled "<STRONG>Exhibitions In The Grey Zone</STRONG>" & "<STRONG>Bleakstar</STRONG>" and will be released by <STRONG>Lupus Lounge</STRONG> in early 2005. Moreover the band is working on the new album to be recorded in summer 2005.<BR></P>
+Автор: Vit Belov
+
+### 13.04.2005 reviews Секреты чёрной луны
+
+<P>Первая песня - “Crowns” - заставляет вспомнить дебютный альбом немецких романтиков EMPYRIUM и настраивает на умиротворенный и меланхоличный лад… но уже со второго трэка это ощущение оказывается обманчивым – дальше начинается black metal с мистической атмосферой в духе последних работ ENSLAVED и ANCIENT.<BR>Несмотря на булькающий барабанный стрекот и&nbsp; угрюмые гитарные запилы, музыка получилась какой-то незлобной и беззубой… что, в общем-то, нетипично для этого стиля. Блэк в исполнении SECRETS OF THE MOON достаточно оригинален и непрост, и объективно оценить эту работу с первого раза довольно непросто.<BR>Послушал диск один раз – ересь какая-то… послушал второй – чего-то как-то и не знаю…&nbsp; послушал в третий – хм, а что-то в это есть! Скоростные агрессивные пассажи запросто сменяются монотонным болезненным думом, зубодробильные риффы – красивым соляком, улетающим в небеса, к ночным холодным звездам, давящая мощь - невесомой акустикой…&nbsp; Мелодии – а их здесь в избытке – скупы и минималистичны, но, несмотря на кажущуюся примитивность, они – в тему. Лирика под стать музыке – отстраненная, полная метафор и неясностей, она предоставляет слушателю возможность самому додумать образы, возникающие при прослушивании “Carved In Stigmata Wounds”.<BR>Все это так, но… Есть здесь и минусы. Постоянные смены темпа и хаотичная ритмика поначалу кажутся интересным и необычными, но по прошествии нескольких прослушиваний материал становится скучным и однообразным, а весь навороченный хаос – вполне предсказуемым… Да и длина диска, признаться, несколько удручает и утомляет. Однако все равно альбом заслуживает того, чтобы его послушать. Хотя бы раз.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+### 10.07.2006 news SECRETS OF THE MOON в работе над третьим альбомом
+
+<P>Немецкие прогрессив блэкстеры <B>SECRETS OF THE MOON</B> закончили запись своего третьего полнометражного альбома под названием <B>"Antithesis" </B>в <B>Klangschmiede Studio E</B>. Дата релиза - 15 сентября на <STRONG>Lupus Lounge</STRONG> (подразделение <STRONG>Prophecy productions</STRONG>). Новая работа коллектива будет заметно отличаться от предыдущих. Слушателя ждет более прогрессивный и умный материал. Продюсером записи выступил <B>Markus Stock</B> (<B>THE VISION BLEAK</B>, <B>EMPYRIUM</B>). Трек-лист альбома:<BR><BR><IMG height=171 alt="" hspace=100 src="/images/news_rus/2006.07/10527.jpg" width=172 align=right border=0>1. <B>Nowhere (11:18)</B><BR>2. <B>Versus</B><BR>3. <B>Ordinance</B><BR>4. <B>Confessions</B><BR>5. <B>Metamorphoses</B><BR>6. <B>Ghost</B><BR>7. <B>Seraphim is Dead</B><BR>8. <B>Lucifer Speaks</B><BR>9. <B>Exit</B><BR></P>
+Автор: Dimas
+
+### 03.06.2008 reviews Оккультизм так и прёт
+
+<P>Лэйбл Prophecy не занимается black-metal. Я думаю, многие согласятся, что получить с этого немецкого лэйбла какой-нибудь dark folk или dark rock гораздо привычнее, чем old school black-metal. Однако, в их «конюшне» есть SECRETS OF THE MOON, группа, которая называет свой стиль оккультный blаck-metal и не слишком заморачивается на том, чтобы понравится любителям NOEKK или ANTIMATTER. </P>
+<P>Соглашусь, что творчество SECRETS OF THE MOON не назовёшь обычным, по этой причине, видимо, и обратили Prophecy на них внимание. Также сообщается, что группа заслужила у себя на Родине в Германии чуть ли не культовый статус, и, возможно, иметь SECRETS OF THE MOON у себя под крылом мечтает каждый немецкий лэйбл, а Prophecy просто повезло. Я не немец. Не немец ни разу, поэтому культовостью меня не прошибёшь, приходится слушать альбом, который, замечу, длится почти 60 минут, с чистого листа и, главное, получать от этого удовольствие. Уже с первого прослушивания я понял, что группе нравится звучание электрогитар. Звук для SECRETS OF THE MOON делал Маркус Сток (VISION BLEAK), а у VISION BLEAK гитары тоже здорово звучат. Дальше мне следовало проникнуться оккультизмом, получить удовольствия от простого злого black-metal здесь не получится. Грузящая атмосфера, повторение одного риффа по несколько минут, вгонят в транс, кого угодно, а там и до того, чтобы стать практикующим оккультистом не далеко. </P>
+<P>Очень тяжело понять, чего добиваются SECRETS OF THE MOON. Например, хотят ли они, чтобы все их слушатели утопились в ближайшем пруду? Или лучше вскрыли вены? А может лучше принести в жертву соседа? Посоветую сей диск любителям нестандартного материала. Мне же кажется, что слушать этот альбом без применения транквилизаторов невозможно.</P>
+Автор: Vit Belov
+
+### 19.01.2009 news SECRETS OF THE MOON закончили сочинять
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.01/13393.jpg" width=300 align=right border=5>Немцы <STRONG>SECRETS OF THE MOON</STRONG> закончили сочинение новых песен. Кроме ниже приведённых названий, которые длятся около 80 минут, группа запишет кавер на песню "очень известного" исполнителя.</P>
+<P>* <B>Privilegium</B><BR>* <B>Black Halo</B><BR>* <B>Marionettes</B><BR>* <B>A Million Suns</B><BR>* <B>For They Know Not</B><BR>* <B>Queen Among Rats</B><BR>* <B>Shepherd</B><BR>* <B>I Maldoror</B><BR>* <B>Sulphur Pulse</B> </P>
+Автор: Vit Belov
+
+### 08.05.2009 news Трэк-лист SECRETS OF THE MOON
+
+<P><IMG height=397 alt="" hspace=0 src="/images/news_rus/2009.05/14067.jpg" width=445 align=right border=5>Новый альбом <STRONG>SECRETS OF THE MOON</STRONG> <STRONG>"Privilegivm" </STRONG>выходит в сентябре на <STRONG>Prophecy</STRONG>. Трэк-лист:</P>
+<P>01. <B>Privilegivm</B><BR>02. <B>Sulphur</B><BR>03. <B>Black Halo</B><BR>04. <B>I Maldoror</B><BR>05. <B>Harvest</B><BR>Part I: I Forgive Myself</B><BR>Part II: The Tree Of Life</B><BR>Part III: Exsultet</B><BR>06. <B>For They Know Not</B><BR>07. <B>Queen Among Rats</B><BR>08. <B>Descent</B> (instrumental)<BR>09. <B>Shepherd</B></P>
+Автор: Vit Belov
+
+### 27.02.2012 news Новое видео SECRETS OF THE MOON
+
+<P>Новый клип немецких блэкарей <STRONG>SECRETS OF THE MOON "Nyx"</STRONG> можно посмотреть ниже. Трек взят с последнего альбома группы "<STRONG>Seven Bells</STRONG>", который выйдет в марте.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/YdqPAoug07U?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

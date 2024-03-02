@@ -8,6 +8,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.11.2010 news Vince Neil готовится к шоу на льду
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17576.jpg" width=263 height=300>Вокалист <STRONG>M&#214;TLEY CR&#220;E</STRONG> Винс Нил (<B itxtvisited="1">Vince Neil</B>) станет одной из шести знаменитостей, которая примет участие в новом шоу <B itxtvisited="1">"Skating With The Stars" </B>("На льду со звёздами"),&nbsp;которое описывается как шоу&nbsp;<B itxtvisited="1">"Dancing With The Stars"</B> ("Танцы со звёздами")&nbsp;на льду и производится той же командой продюсеров. Другие участники шоу - актёр <B itxtvisited="1">Sean Young</B> (<B itxtvisited="1">"Blade Runner"</B>, <B itxtvisited="1">"No Way Out"</B>),&nbsp;<STRONG>Bethenny Frankel </STRONG>(звезда реалити-шоу), обладатель золотой олимпийской медали по бегу на лыжах <B itxtvisited="1">Jonny Moseley</B>, <STRONG>Rebecca Budig </STRONG>(актриса телесериала <STRONG>"All My Children"</STRONG>)&nbsp;и <B itxtvisited="1">Brandon Mychal Smith</B> из&nbsp;&nbsp;сериала <STRONG>"Sonny With a Chance" </STRONG>на канале<STRONG>&nbsp;Disney</STRONG>.<BR itxtvisited="1"></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Я катался на коньках, когда мне было 12"</EM> - сказал <STRONG>Vince</STRONG> <B itxtvisited="1">Neil</B> сайту <B itxtvisited="1">People.com</B>. "<EM>Когда они (организаторы шоу) позвонили людям в моём офисе (с предлжением об участии),&nbsp;те рассмеялись,&nbsp;но я сказал им: 'Я на самом деле катался на коньках. Но не делал этого уже очень, очень долгое время.&nbsp;Мне нравится заниматься прикольными вещами, а это проект выглядит именно таким."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Меня знают, как одного из самых плохих парней в рок-н-ролле",</EM> -&nbsp;сказал <STRONG>Neil</STRONG>&nbsp;в промо-ролике к шоу. <EM>"Но теперь я собираюсь оставить всё это позади&nbsp;и буду самым плохим парнем на льду."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Промо-ролик к&nbsp;шоу можно посмотреть по ссылке: <A href="http://www.youtube.com/watch?v=7wTk0jm_hTc">http://www.youtube.com/watch?v=7wTk0jm_hTc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый эпизод <STRONG>"Skating With The Stars" </STRONG>выйдет в эфир в понедельник, 22 ноября на канале&nbsp;<B itxtvisited="1">ABC</B>.<BR itxtvisited="1"><BR itxtvisited="1"><BR itxtvisited="1"></P></FONT>
+Автор: Headcrusher
+
+### 23.11.2010 news Vince Neil прикатил последним
+
+<P>Мы уже сообщали о том, что вокалист <STRONG>MOTLEY CRUE Vince Neil</STRONG> подписал контракт на участие в новом сезоне американской версии шоу "<STRONG>Звёзды на Льду</STRONG>". В&nbsp;прошедшие выходные состоялся дебют музыканта на льду, который можно посмотреть ниже. К сожалению, <STRONG>Vince</STRONG> и его партнёрша заняли последнее место по результатам&nbsp;судейских оценок, набрав всего 28 очков из 60 возможных. Судьбу участников решают зрители.</P>
+<P>
+<CENTER>
+<OBJECT width=640 height=390><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Jn4epOCtpbY&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Jn4epOCtpbY&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

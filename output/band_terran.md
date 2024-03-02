@@ -23,6 +23,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.10.2011 news Дебютный альбом TERRAN
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.10/21608.jpg" width=300 align=right border=0>На лейбле <STRONG>Metalism Records</STRONG> вышел дебютный альбом московской пауэр-метал-группы <STRONG>TERRAN "По краю"</STRONG>. Гостевое участие в записи приняли музыканты групп <STRONG>ARIDA VORTEX</STRONG> и <STRONG>ARCHONTES Роман Гурьев</STRONG> и<STRONG> Андрей "Архонт" Федоренко</STRONG>, которые также выступили саунд-продюсерами пластинки. Трек-лист:</P>
+<P>1. <STRONG>Межмирье&nbsp;</STRONG><BR>2. <STRONG>По краю<BR></STRONG>3. <STRONG>Изгой </STRONG><BR>4. <STRONG>Последняя надежда</STRONG>&nbsp; <BR>5. <STRONG>Земной </STRONG><BR>6. <STRONG>Звездные врата</STRONG><BR>7. <STRONG>Сон</STRONG>&nbsp; <BR>8. <STRONG>Ноль <BR></STRONG>9. <STRONG>Судьба воина</STRONG> <BR>10. <STRONG>Танец на огне</STRONG> <BR>11.<STRONG> Дождь</STRONG><BR>12. <STRONG>The Last Lane</STRONG></P>
+<P>Промо-трек на песню "Последняя надежда":</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/NQ4wuL5_fdM?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/NQ4wuL5_fdM?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

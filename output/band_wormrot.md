@@ -20,6 +20,50 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.12.2010 news WORMROT готовятся к записи нового альбома
+
+<P>Сингапурские грайндкорщики <B itxtvisited="1">WORMROT</B> планируют сесть в студию <B itxtvisited="1">TNT Music Productions</B> в январе, для записи своего нового альбома.&nbsp;Диск получил название&nbsp;<B itxtvisited="1">"Dirge"</B> и планируется к выходу весной будующего года на <B itxtvisited="1">Earache Records</B>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2010.12/17979.jpg" width=500 height=333> 
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+### 13.01.2011 news WORMROT: обложка альбома &quot;Dirge&quot; и трек-лист
+
+<P>Стали доступны обложка и трек-лист, готовящегося к выходу, второго альбома сингапурцев <STRONG>WORMROT</STRONG> под названием "<STRONG>Dirge</STRONG>". Автор рисунка - <STRONG>Андрей Бузиков</STRONG> (<B itxtvisited="1">MUNICIPAL WASTE</B>, <B itxtvisited="1">SKELETONWITCH</B>, <B itxtvisited="1">CANNABIS CORPSE</B>).</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18166.jpg" width=400 height=400>Трек-лист<STRONG> "Dirge"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">No One Gives A Shit</B><BR itxtvisited="1">02. <B itxtvisited="1">Compulsive Disposition</B><BR itxtvisited="1">03. <B itxtvisited="1">All Go No Emo</B><BR itxtvisited="1">04. <B itxtvisited="1">Public Display Of Infection</B><BR itxtvisited="1">05. <B itxtvisited="1">Overpowered Violence</B><BR itxtvisited="1">06. <B itxtvisited="1">Semiconcious Godsize Dumbass</B><BR itxtvisited="1">07. <B itxtvisited="1">Spot A Pathetic</B><BR itxtvisited="1">08. <B itxtvisited="1">Evolved Into Nothing</B><BR itxtvisited="1">09. <B itxtvisited="1">Butt Krieg Is Showing</B><BR itxtvisited="1">10. <B itxtvisited="1">Fucking Fierce So What</B><BR itxtvisited="1">11. <B itxtvisited="1">Ferocious Bombardment</B><BR itxtvisited="1">12. <B itxtvisited="1">Principle Of The Puppet Warfare</B><BR itxtvisited="1">13. <B itxtvisited="1">Deceased Occupation</B><BR itxtvisited="1">14. <B itxtvisited="1">Waste Of Time</B><BR itxtvisited="1">15. <B itxtvisited="1">Stench Of Ignorance</B><BR itxtvisited="1">16. <B itxtvisited="1">Meteor To The Face</B><BR itxtvisited="1">17. <B itxtvisited="1">Addicts Of Misery</B><BR itxtvisited="1">18. <B itxtvisited="1">You Suffer But Why Is It My Problem</B><BR itxtvisited="1">19. <B itxtvisited="1">Erased Existence</B><BR itxtvisited="1">20. <B itxtvisited="1">Back Stabber Mission Aborted</B><BR itxtvisited="1">21. <B itxtvisited="1">Destruct The Bastards</B><BR itxtvisited="1">22. <B itxtvisited="1">Plunged Into Illusions</B><BR itxtvisited="1">23. <B itxtvisited="1">Manipulation</B><BR itxtvisited="1">24. <B itxtvisited="1">A Dead Issue</B><BR itxtvisited="1">25. <B itxtvisited="1">The Final Insult</B></P>
+Автор: Headcrusher
+
+### 10.04.2011 news WORMROT: видео на трек &quot;Erased Existence&quot; 
+
+<P>Сингапурское грайндкор трио&nbsp;<B itxtNodeId="459">WORMROT</B> выпустило официальное видео на трек <B itxtNodeId="458">"Erased Existence"</B>, вышедшую на новом альбоме группы, <B itxtNodeId="457">"Dirge"</B>. Режиссёр клипа <B itxtNodeId="456">Dave Vorhes</B> (<B itxtNodeId="455">WHITE WIZZARD</B>, <B itxtNodeId="454">BONDED BY BLOOD</B>), который, так же, работал над видеоклипом <STRONG>WORMROT</STRONG> на песню <B itxtNodeId="453">"Spot A Pathetic"</B>.</P>
+<CENTER><IFRAME title="YouTube video player" height=390 src="http://www.youtube.com/embed/3aIvLwOLBS4" frameBorder=0 width=480 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 19.08.2016 news Новый клип WORMROT
+
+<p>Новое видео грайндкорщиков <strong>WORMROT </strong>на песню "<strong>Fallen Into Disuse</strong>" можно посмотреть ниже. Трек войдёт в новый альбом группы "<strong>Voices</strong>", который выйдет на <strong>Earache Records</strong> 14 октября.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/o4ze1ven9jw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 19.08.2016 news New clip by WORMROT
+
+<p>New video of grindcore band <strong>WORMROT</strong> for the song "<strong>Fallen Into Disuse</strong>" can be viewed below. The track will be included in the new album "<strong>Voices</strong>", which will be released on <strong>Earache Records</strong> on October 14.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/o4ze1ven9jw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 09.09.2016 news Ещё один адский кусок от WORMROT
+
+<p>"<strong>Eternal Sunshine Of The Spotless Grind</strong>" - эту композицию<strong> WORMROT</strong> можно послушать в клипе ниже. Новый альбом grindcore команды "<strong>Voices</strong>" выйдет 14 октября на <strong>Earache</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/WvZFD_gRM_M" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 09.09.2016 news One more hellish piece from WORMROT
+
+<p><strong>"Eternal Sunshine Of The Spotless Grind" </strong>- this song of <strong>WORMROT </strong>can be streamed in the clip below. New album of&nbsp;grindcore&nbsp;band "<strong>Voices</strong>" will be released on 14 October on <strong>Earache</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/WvZFD_gRM_M" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

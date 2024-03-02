@@ -24,6 +24,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.03.2015 news Клип от нового проекта Karyn Crisis
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалистка <STRONG>Karyn Cri</STRONG>sis, выпустившая в начале этого года, дебютный альбом <STRONG>"Salem's Wounds"</STRONG> своего нового проекта <STRONG>GOSPEL OF THE WITCHES</STRONG>, представила видео <STRONG>"The Alchemist" </STRONG>с этого&nbsp;диска.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стоить отметить, что среди музыкантов принимающих участие в <STRONG>GOSPEL OF THE WITCHES</STRONG>, затесалось целых два участника брутального ансамбля <STRONG>IMMOLATION</STRONG>, это <STRONG>Ross Dolan</STRONG> (бас, вокал) и <STRONG>Robert Vigna</STRONG> (гитара).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Karyn Crisis</STRONG> получила свою известность в середине 90-х в качестве вокалистки группы <STRONG>CRISIS</STRONG>, с которой выпустила четыре студийных альбома. А также за своё сотрудничество с итальянским проектом <STRONG>EPHEL DUATH</STRONG>. Не последнюю роль в её карьере, сыграл её неповторимый голос...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказать диск можно по ссылке: <A href="http://www.cmdistro.com/catalogsearch/result/?q=Gospel+Of+The+Witches">www.cmdistro.com/catalogsearch/result/?q=Gospel+Of+The+Witches</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/2piIXVm8Z5Y" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.10.2015 news KARYN CRISIS&#39; GOSPEL OF THE WITCHES: видеоклип &quot;The Ascent&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проект<STRONG> Karyn Crisis</STRONG> (ex-<STRONG>CRISIS</STRONG>) под названием <STRONG>GOSPEL OF THE WITCHES</STRONG> выпустил ещё один видеоклип на песню со своего дебютного альбома. На этот раз,&nbsp;выбор пал на трек&nbsp;<STRONG>"The Ascent"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/IMZsN1Fwqi8" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

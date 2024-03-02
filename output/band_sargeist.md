@@ -12,6 +12,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2003 reviews Хрю-блэк: сырой и смешной
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off">
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off">Ничего другого от Moribund мы и не ждали. Хрю-блэковый коллектив, в состав которого вроде бы входят музыканты из не менее хрю-блэковой HORNA, которая уже успела обзавестись культовым статусом. Правда, лишь в родной Финляндии. И не очень-то заслуженно, на мой взгляд. Ну&nbsp;да ладно. Спрашивается, что же нам предлагают ребятки из SARGEIST? Да всё то же. Сырой (правда, недурно записанный) блэк с визгливым вокалистом и до неприличия угарной атмосферой. Угарной – в смысле, смешной. То бишь, смеяться хочется, а не трястись от ужаса, как нам предлагает пресс-релиз. Выходит, что “Satanic Black Devotion” можно порекомендовать лишь упёртым хрю-блэкстерам… или тем, у кого просто хорошее чувство юмора ;-).</TD></TR></TBODY></TABLE></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE>
+<BLOCKQUOTE id=6490b239>
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off"></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE></BLOCKQUOTE>
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

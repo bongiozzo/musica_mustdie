@@ -36,6 +36,19 @@ swedish crustcore
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.06.2005 news DRILLER KILLER готовятся к записи
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DRILLER KILLER</STRONG> войдут в студию <STRONG>Sigsauger</STRONG> 7 сенятбря для записи своего седьмого альбома.</FONT></P>
+Автор: Vit Belov
+
+### 29.06.2005 news DRILLER KILLER to enter studio
+
+<P><STRONG>DRILLER KILLER</STRONG> will enter <STRONG>Sigsauger Studio</STRONG> in Sweden to record their 7th album at 7th of september.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

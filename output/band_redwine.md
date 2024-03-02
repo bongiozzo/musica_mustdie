@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2003 news Новости от RED WINE
+
+<p>Испанская группа RED WINE завершила запись своего нового альбома под названием "Suenos y Locura". Теперь предстоит процесс мастеринга руководить которым будет Piet Sielck (IRON SAVIOR). Выход альбома намечен на 14 апреля 2003 года. В альбом войдут следующие вещи:</p>
+<p> 1-Interludio <BR> 2-Ayer <BR> 3-Pesadilla <BR> 4-Llantos De Otra Realidad <BR> 5-Sombra De Poder <BR> 6-Fuego En La Sangre <BR> 7-Rosa de Metal <BR> 8-Gigantes de Hierro <BR> 9-Alma Libre <BR> 10-Tras El Portal <BR> 11-Kill Me In Dreams</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,9 @@ doom-folk project coming from the south of Chile
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

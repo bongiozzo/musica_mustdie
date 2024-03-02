@@ -68,6 +68,62 @@ Samuel Ruotsalainen - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.03.2000 reviews 
+
+<p> Эта молодая финская команда меня приятно удивила. Мощный звук, красивые гитарные ходы, приятный гроулинг. Несмотря на мрачно-депрессивную атмосферу, темп музыки выше среднего, риффы не тянутся, это плюс. Иногда всё это напоминает смесь SEPTIC FLESH и PARADISE LOST. Романтическое настроение, вокальные партии и атмосфера чисто греческие, а звук напоминает британцев. В результате - термоядерная смесь, которая обязательно должна понравиться всем тем, кому надоели "сопливые" группы.</p>
+
+Автор: Dimas
+
+### 12.07.2000 reviews Храбрый Убийственный День... вернулся
+
+<p>Когда слушаешь дебютный альбом "Futile" финской группы Rapture не перестаешь удивляться, до чего же всё таки это похоже на известнейший альбом Кататонии "Brave Murder Day". По мнению лидер-гитариста Katatonia Андерса Нисторма Rapture просто увлекаются клонированием. И главное сходство здесь - в том особенном гитарном звуке, который был столь умело воссоздан молодой группой. Фактически же от себя Rapture ничего не добавили, но всё же альбом должен восприниматься не как наглый плагиат, а скорее как продолжение BMD. Атмосфера по прежнему способствует депрессивным состояниям и предрекает тотальную обречённость, поэтому этот альбом вполне способен заинтересовать поклонников творчества Katatonia. Есть у "Futile" и одно несомненное достоинство - у него нет таких претензий на статус шедевра, как у его культового прообраза "Brave Murder Day", что вполне доказывает само название: "поверхностный", "тщетный".</p>
+
+Автор: George Dysangelist
+
+### 21.12.2002 news Rapture&#39;s new album will release in USA.
+
+<p>The band are about to release their second full-length domestic release, Songs For The Withering, on February 11th and it this is their first release to feature a dual vocal assault. The addition of vocalist Henry Villberg proved to be exactly what RAPTURE needed in order to complete their sound. Songs For The Withering is already available through Spikefarm records in Europe and is set for release on February 11th through Century Media in the US. The band currently are working on new material and have been receiving numerous offers for European summer festival shows. Petri Eskelinen (lead vocals) continues to write constantly, as he states that the fall/winter season is when he gets the most inspired. The band will start rehearsing early next year in preparation for the festival shows, as well as continue to work on new material.</p>
+
+Автор: Vit Belov
+
+### 13.01.2003 reviews И причём здесь melodic death?..
+
+<p>К сожалению, Фоно опять промахнулись со стилистической классификацией. До CD-Maximum, обозвавших последнее творение бездарей из OLEMUS "готическим блэком", им, конечно, далеко… но… Но, простите, какой же это "melodic death"?.. Самый натуральный дум. Или готик-дум – как вам будет угодно. RAPTURE родом из Финляндии, а это значит, что "Songs for the Withering" окрашен сплошь в мрачные тона. Очевидно и то, что этот релиз отвечает самым жёстким требованиям в плане уровня исполнения и качества записи. Собственное лицо у группы также присутствует. Как и похвальное разнообразие музыкального полотна. Что ещё? Ах да, крайне радует наличие замечательного дуэта вокалистов, один из которых отвечает за гроулинг, а второй, соответственно, за "чистый" вокал. Остаётся сказать, что хоть "Songs for the Withering" и не является чем-либо выдающимся, это <B>по крайней мере</B> достойный альбом.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+### 08.10.2003 reviews Очередное исключение, подтверждающее одно-единственное правило
+
+<P>Что играют горячие финские парни?.. Как правило, готику, лав-металл или, на худой конец, блэк. RAPTURE – очередное исключение, подтверждающее одно-единственное правило ;-). «Что же такое “Futile”?» - спросите вы. «Финский дум», - ответим мы. Нет-нет, не THERGOTHON’оподобный funeral doom, а _просто_ doom. Душевный такой (ура). На удивление не занудный (ура два раза). Не раз осквернённые уши рецензента отнюдь не против того, чтобы крутануть диск по третьему, и по четвёртому разу… что само по себе удивительно. В наличии имеется гроулинг (одна штука) и весьма достойный чистый вокал (одна штука). Готика отсутствует напрочь. Разнообразие – присутствует. Ура пятьсот раз… и бегом в магазин!</P>
+<P><I>Диск предоставлен компанией <B><A href="http://www.fono.ru/">ФОНО</A></B></I></P>
+Автор: Kai Mathias Stalhammar
+
+### 15.06.2005 reviews Молчание подобное золоту
+
+<P>Сначала, немного истории... В 1990 году, в Греции образовалась группа <STRONG>SEPTIC FLESH</STRONG>, выпустившая в 1997 году свой лучший альбом "Ophidian Wheel" обозначивший революцию на мировой сцене. В 1991 году, в Швеции образовалась группа <STRONG>KATATONIA</STRONG>, в 1996 году она выпускает свой лучший и эпохальный альбом "Brave Murder Day".&nbsp;А в 1997 году, под влиянием этих двух шедевральных альбомов, в Финляндии образовалась группа <STRONG>RAPTURE</STRONG>. Это уже их третий альбом, где они продолжают играть все то же самое, что и на первых двух альбомах, но слушается это все с превеликим удовольствием. Им до сих пор удается качественно сочетать романтику греков и меланхоличность шведов помноженные на их обоюдный мелодизм. Идеальный гроулинг и потрясающий чистый вокал великолепно уживаются вместе. Особо стоит отметить необычайную мелодичность, постоянно солирующие гипнотические гитары, прилипчивые рефрены, которые напрочь оседают в голове. Очень качественный и достойный релиз с сильнейшей инструментальной частью. Фины продолжают удивлять, несмотря ни на что. Надеюсь, не в последний раз.</P>
+Автор: Dimas
+
+### 25.12.2007 news RAPTURE потеряли вокалиста
+
+<P>Певец <STRONG>Henri "HV" Villberg </STRONG>покинул<STRONG> RAPTURE,</STRONG> чтобы сконцентрироваться на других, более близких для него, проектах.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

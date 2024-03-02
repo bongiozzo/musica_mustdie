@@ -134,6 +134,50 @@ So, weeks turned in to months. My manager eventually got someone at the old labe
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.05.2001 news Серьезный вызов...
+
+<p>Известный нарезальщик VINNIE MOORE вносит последние штрихи в новый альбом "Defying Gravity", который должен выйти летом. Кроме самого Винни в записи участвовали барабанщик Steve Smith ("JOURNEY"), бассист Dave LaRue ("DIXIE DREGS") и клавишник David Rosenthal ("Rainbow", "Yngwie Malmsteen").</p>
+
+Автор: Yermola
+
+### 07.05.2001 news VINNIE MOORE has just put the finishing touches on his latest CD....
+
+<p> Axe-shredder VINNIE MOORE has just put the finishing touches on his latest CD, entitled Defying Gravity, which is scheduled for release during the summer. The CD includes guest appearances from JOURNEY drummer Steve Smith, DIXIE DREGS basist Dave LaRue, and BILLY JOEL keyboardist David Rosenthal. VINNIE MOORE will be making the following Guitar Clinic appearances during May:</p>
+<p></p>
+<p> May 15 - Vancouver, B.C., CAN @ Tom Lee Music</p>
+<p></p>
+<p> May 16 - Calgary, Alberta, CAN @ Music Centre Canada</p>
+<p></p>
+<p> May 17 - Edmonton, Alberta, CAN @ Avenue Guitars</p>
+<p></p>
+<p> May 18 - Saskatoon, Sas., CAN @ HEL Music Supplies</p>
+<p></p>
+<p> May 19 - Winnipeg, Manitoba @ Mother's Music</p>
+<p></p>
+<p> May 24 - Hollywood, CA @ Musicians' Institute</p>
+<p></p>
+<p> Source: BLABBERMOUTH.NET</p>
+<p></p>
+
+Автор: Yermola
+
+### 21.08.2004 news Jordan Rudess выпускает сольный альбом
+
+<P><STRONG>Jordan Rudess</STRONG>, клавишник<STRONG> DREAM THEATER</STRONG>, выпускает новый сольный альбом <STRONG>'Rhythm Of Time'</STRONG> 31 августа на <STRONG>Magna Carta</STRONG>. Среди обилия приглашённых звёзд:&nbsp; гитаристы <STRONG>Joe Satriani, Steve Morse, Vinnie Moore</STRONG>&nbsp;и <STRONG>Greg Howe</STRONG>, басист&nbsp;<STRONG>Dave LaRue</STRONG>, барабанщик&nbsp;<STRONG>Rod Morgenstein</STRONG> и вокалист&nbsp;<STRONG>Kip Winger</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Time Crunch</STRONG><BR>2. <STRONG>Screaming Head</STRONG><BR>3. <STRONG>Insectsamongus<BR></STRONG>4. <STRONG>Beyond Tomorrow (with Kip Winger)<BR></STRONG>5. <STRONG>Bar Hopping With Mr Picky</STRONG><BR>6. <STRONG>What Four<BR></STRONG>7. <STRONG>Ra<BR></STRONG>8. <STRONG>Tear Before The Rain (with Kip Winger)<BR></STRONG></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 25.02.2009 news Сольник Vinnie Moore
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.02/13681.jpg" width=400 align=right border=5>18 мая на <STRONG>Mascot</STRONG> выйдет новый сольный альбом гитариста <STRONG>Vinnie Moore "To The Core"</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Fly</B> (4:51)<BR itxtvisited="1">02. <B itxtvisited="1">Panic Attack</B> (6:19)<BR itxtvisited="1">03. <B itxtvisited="1">Off The Hook</B> (5:15)<BR itxtvisited="1">04. <B itxtvisited="1">Transcendence</B> (3:53)<BR itxtvisited="1">05. <B itxtvisited="1">Soul Caravan</B> (5:55)<BR itxtvisited="1">06. <B itxtvisited="1">Jigsaw</B> (3:41)<BR itxtvisited="1">07. <B itxtvisited="1">Remorse</B> (7:02)<BR itxtvisited="1">08. <B itxtvisited="1">Tailspin</B> (5:33)<BR itxtvisited="1">09. <B itxtvisited="1">Over My Head</B> (3:57)<BR itxtvisited="1">10. <B itxtvisited="1">Into the Open Highway</B> (6:47)<BR itxtvisited="1">11. <B itxtvisited="1">Into the Sunset</B> (5:41)</P>
+<P>Состав:<BR itxtvisited="1"><STRONG>Vinnie Moore</STRONG> - Guitar<BR itxtvisited="1"><B itxtvisited="1">Van Romaine</B> - Drums<BR itxtvisited="1"><B itxtvisited="1">John "J.D." DeServio</B> - Bass<BR itxtvisited="1"><B itxtvisited="1">Tim Lehner</B> - Keyboards<BR itxtvisited="1"></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

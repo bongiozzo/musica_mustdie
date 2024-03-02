@@ -24,6 +24,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.10.2011 news Новый альбом ATARAXIE
+
+<P><IMG height=385 alt="" hspace=0 src="/images/news_rus/2011.10/21486.gif" width=375 align=right border=0>Празднуя свой десятилетний юбилей, французская death-doom-metal группа <STRONG>ATARAXIE</STRONG> подготовила к выпуску двухдисковый сборник под названием "<STRONG>Project X</STRONG>". На издание попало перезаписанное демо "<STRONG>The Other Path</STRONG>", две новых вещи и концертник, записанный в 2008 году. Сведение и мастеринг сделал <STRONG>Rahael Henry</STRONG> в <STRONG>Echoes Studios</STRONG>. Трек-лист:</P>
+<P>Disc 1<BR>1.&nbsp; <STRONG>The Other Path</STRONG>&nbsp;&nbsp; <BR>2.&nbsp; <STRONG>My Last Breath</STRONG>&nbsp;&nbsp; <BR>3.&nbsp; <STRONG>Behind the Mask</STRONG>&nbsp;&nbsp; <BR>4.&nbsp; <STRONG>Eternal Suffering</STRONG>&nbsp;&nbsp; <BR>5.&nbsp; <STRONG>The Isle of the Dead</STRONG>&nbsp;&nbsp; <BR>6.&nbsp;<STRONG> Unholy Prayer</STRONG>&nbsp;&nbsp; <BR>7.&nbsp; <STRONG>Alone in my Coffin</STRONG>&nbsp;&nbsp; <BR>8.&nbsp; <STRONG>From Agony to Eternity</STRONG>&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp; <BR>Disc 2<BR>1.&nbsp; <STRONG>A Jamais</STRONG>&nbsp;&nbsp; <BR>2.&nbsp; <STRONG>L'Ataraxie</STRONG> (live)&nbsp;&nbsp; <BR>3.&nbsp; <STRONG>Walking Through the land of Falsity</STRONG> (live)&nbsp;&nbsp; <BR>4.&nbsp; <STRONG>Anhedonie </STRONG>(live)&nbsp;&nbsp; <BR>5.&nbsp; <STRONG>Aphel - Die Shwarze Schlange</STRONG> (Bethlehem cover live)&nbsp;&nbsp; <BR>6.&nbsp; <STRONG>Another day of despondency</STRONG> (live)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -24,6 +24,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.08.2011 news Басист SYMPHONY X присоединился к SLEEPY HOLLOW
+
+<P>Басист <STRONG>Mike LePond</STRONG> (<B>SYMPHONY X</B>) присоединился&nbsp; воссоединившимся американским heavy-metal'истам<STRONG> SLEEPY HOLLOW</STRONG>. Коллектив даст первый кнцерт за 20 лет 5 ноября в Сиракьюз, штат Нью-Йорк. Новый альбом коллектива <STRONG>"Skull 13" </STRONG>выйдет осенью на <STRONG>Pure Steel Records</STRONG>/<B>High Roller Records</B>. Видео-клип на песню с этого альбома <STRONG>"Midnight" </STRONG>можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/CiwC7QkFYLM" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

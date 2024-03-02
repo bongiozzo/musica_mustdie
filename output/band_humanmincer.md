@@ -31,6 +31,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.11.2002 reviews Death-grind? Or nevertheless… grindcore? Who cares, anyway.
+
+<p>“Embryonized” appears to be the first release by Spain’s Xtreem Music – which has been formerly known as Repulse Records. Can you recall any crap this record company had ever made available? I can’t. Fortunately enough, Dave still seems to have a good taste in music… and even if I generally don’t like grindcore, I liked “Embryonized”. Perhaps, because HUMAN MINCER aren’t not grindcore at 100%? ;-) Well, the CD these chaps made their debut with definitely isn’t a masterpiece. Just a good piece of brutal, in-your-face death / gr… well, what? Death / grind? Or nevertheless… grindcore? Who cares… You? Erh, I don’t. It’s just for you to know: I don’t give a damn where “Embryonized” should be reckoned to, in terms of style or genre. It’s extremely fast-paced, and it’s MUSIC – not some goddamn noise. However, be it good or bad, two of the upcoming releases on Xtreem are going to beat HUMAN MINCER anyway. Mexico’s DISGORGE and Russia’s ROSSOMAHAAR… wouldn’t their offerings turn out as way more impressive than “Embryonized” is (and believe me, it’s pretty much good!)? I guess they would.</p>
+<P>Website: <A HREF="http://www.xtreemmusic.com">http://www.xtreemmusic.com</A></>
+<P>Email: <A HREF="mailto:info@xtreemmusic.com">info@xtreemmusic.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

@@ -108,6 +108,17 @@ Recorded & Mixed At Morrisound Studio,Tampa,Florida.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.04.2011 news LOUDBLAST: новый альбом и клип
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19131.jpg" width=400 height=400>"Emptiness Crushes My Soul"</STRONG> - новый клип ветеранов французской сцены, группы&nbsp;<B itxtNodeId="427" itxtHarvested="1">LOUDBLAST</B>, можно посмотреть ниже.&nbsp;В клипе снялась бывшая французская порно звезда <STRONG>Nina Roberts</STRONG>.<STRONG> </STRONG>Режиссёр видео: <B itxtNodeId="426" itxtHarvested="1">Mickael Bernadat</B>.</P>
+<P><B itxtNodeId="422" itxtHarvested="1">"Emptiness Crushes My Soul"</B> вошла на новый альбом <B itxtNodeId="421" itxtHarvested="1">LOUDBLAST</B>, <B itxtNodeId="420" itxtHarvested="1">"Frozen Moments Between Life And Death"</B>, который должен выйти 18 апреля на <B itxtNodeId="419" itxtHarvested="1">XIII Bis Records</B>. CD будет доступен для приобретения в Германии, Австрии, странах Бенелюкса, Швейцарии, Испании, Англии и Ирландии.</P>
+<P>Диск <B itxtNodeId="416" itxtHarvested="1">"Frozen Moments Between Life And Death"</B> был записан и седён в <STRONG>Abyss Studio</STRONG> (Швеция), с Питером Тагтгреном (<STRONG>Peter T&#228;gtgren</STRONG>) в роли продюсера.</P>
+<P>Трек-лист альбома: <BR itxtNodeId="411"><BR itxtNodeId="410">01. <B itxtNodeId="409" itxtHarvested="1">Frozen Moments Between Life And Death</B><BR itxtNodeId="408">02. <B itxtNodeId="407" itxtHarvested="1">Neverending 'Blast</B><BR itxtNodeId="406">03. <B itxtNodeId="405" itxtHarvested="1">Emptiness Crushes My Soul</B><BR itxtNodeId="404">04. <B itxtNodeId="403" itxtHarvested="1">Cold Blooded Kind</B><BR itxtNodeId="402">05. <B itxtNodeId="401" itxtHarvested="1">Towards Oneness</B><BR itxtNodeId="400">06. <B itxtNodeId="399" itxtHarvested="1">Nosce Te Ipsum</B><BR itxtNodeId="398">07. <B itxtNodeId="397" itxtHarvested="1">The Bitter Seed</B><BR itxtNodeId="396">08. <B itxtNodeId="395" itxtHarvested="1">Hazardous Magic</B><BR itxtNodeId="394">09. <B itxtNodeId="393" itxtHarvested="1">To Bury An Empire</B><BR itxtNodeId="392"><BR itxtNodeId="391"><B itxtNodeId="390" itxtHarvested="1">LOUDBLAST</B> выступят на одной сцене с "Большой четвёркой" — <B itxtNodeId="388" itxtHarvested="1">METALLICA</B>, <B itxtNodeId="387" itxtHarvested="1">SLAYER</B>, <B itxtNodeId="386" itxtHarvested="1">MEGADETH</B> и <B itxtNodeId="385" itxtHarvested="1">ANTHRAX</B>, на французской версии фестиваля <B itxtNodeId="389" itxtHarvested="1">Sonisphere</B>, в субботу, 9 июля.</P><CENTE><IFRAME title="YouTube video player" height=390 src="http://www.youtube.com/embed/tzY4Lf6DhMs" frameBorder=0 width=640 allowfullscreen></IFRAME>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

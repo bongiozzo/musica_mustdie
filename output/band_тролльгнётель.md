@@ -78,6 +78,30 @@ Russian Scandinavian Beer-Folk
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.11.2003 news ТРОЛЛЬ ГНЁТ ЕЛЬ в Москве
+
+<P><LABEL id=HbSession SessionId="4182801070">2 декабря в клубе "Вермель" состоится дебют на московской сцене </LABEL><LABEL SessionId="4182801070">петербургской группы "Тролль Гнет Ель". Основа творчества "Тролль Гнёт Ель" - это скандинавские фольклорные мелодии, мастерски приправленные и стилизованные под нынешние hard-rock'овые риффы. Сами музыканты называют это "пивной фолк". В Петербурге группа широко известна, ну а некоторым московским металлистам "ТГЕ" уже знакомы, по выступлению в один день с FinnTroll на метал-фестивале "Русская рулетка" в этом году.<BR></P></LABEL>
+Автор: Dimas
+
+### 23.10.2015 news Новинки отечественной тяжёлой музыки от Sound Age
+
+<P>Новый альбом <STRONG>ALKONOST "Tales Of Wanderings"</STRONG> в нашем магазине: <A href="http://escapemind.ru/goods/Alkonost-Tales-Of-Wanderings">http://escapemind.ru/goods/Alkonost-Tales-Of-Wanderings</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/X0Eq-zqfIhA" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>DVD <STRONG>ТРОЛЛЬ ГНЕТ ЕЛЬ "XV Лет в ритме Хмельного Сердца"</STRONG>: </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/HL0GJu-_xxk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER></CENTER>
+Автор: Vit Belov
+
+### 06.10.2016 news Новый альбом folk metal группы ТРОЛЛЬ ГНЁТ ЕЛЬ вышел сегодня
+
+<p>Сегодня на лэйбле<strong> Soundage</strong> увидел свет новый альбом folk metal группы <strong>ТРОЛЛЬ ГНЁТ ЕЛЬ "Карьялали"</strong>. Диск вышел в формате digibook. Ниже можно услышать трейлер этого альбома.</p><p>Покупайте CD в магазине<strong> Escapemind.ru</strong>: <a href="http://escapemind.ru/goods/ТРОЛЛЬ-ГНЁТ-ЕЛЬ-Карьялали-digibook">http://escapemind.ru/goods/ТРОЛЛЬ-ГНЁТ-ЕЛЬ-Карьялали-digibook</a></p><p>Трек лист:</p><p>1. Де-да&nbsp;&nbsp; <br>2. Карьяллтролль&nbsp;&nbsp; <br>3. Медведь Йонне&nbsp;&nbsp; <br>4. Самогонка&nbsp;&nbsp; <br>5. Холмогоры&nbsp;&nbsp; <br>6. Выпить залпом&nbsp;&nbsp; <br>7. Ягода-года&nbsp;&nbsp; <br>8. Сердце тролля&nbsp;&nbsp; <br>9. Нево</p><p>&nbsp;<center><img width="500" height="281" src="/images/news_rus/2016.10/30040.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/WIAaVK-q7IQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Фотки - Тролль Гнёт Ель вчера в &quot;Вермеле&quot;

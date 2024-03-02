@@ -115,6 +115,194 @@ Vinyl version will be released by Floga Records.
 * C группой "Dream Evil" Gus G. (guitar)
 * C группой "Firewind" Gus G. (guitar)
 
+## Публикации
+
+### 13.04.2003 news Дебют NIGHTRAGE
+
+<p>30 июня 2003 года на Century Media Records выходит долгожданный дебютный альбом группы NIGHTRAGE. Группа была образована еще в 2000 году двумя греческими гитаристами Marios Iliopoulos'ом из EXHUMATION и Gus G. (ныне в DREAM EVIL и FIREWIND). После первых же демо-записей группа была обласкана критиками. В результате, группе было предложено записать полноценный альбом в Studio Fredman с продюссером Fredrik Nordstrоm'ом. Состав группы был доукомплектован ударником Per M. Jensen'ом (THE HAUNTED, INVOCATOR), басистом Brice Leclercq'ом и двумя вокалистами - Tom S. Englund'ом (EVERGREY) отвечающим за чистый вокал и Tomas Lindberg'ом (ex-AT THE GATES, ex-THE CROWN, THE GREAT DECEIVER) исполняющим партии экстремального вокала. Эта супергруппа записала альбом в духе swedish melodic death под названием "Sweet Vengeance", в который войдут следующие композиции:</p>
+<p> 1. The Tremor (3:17)<BR> 2. The Glow Of The Setting Sun (4:09) <BR> 3. Hero (3:57) <BR> 4. Elusive Emotion (3:45) <BR> 5. Gloomy Daydreams (4:12)<BR> 6. Macabre Apparition (3:31)<BR> 7. In My Heart (3:19)<BR> 8. Ethereal (4:50) <BR> 9. Circle Of Pain (4:21) <BR> 10. At The Ends Of The Earth (4:34)<BR> 11. The Howls Of The Wolves (1:42)</p>
+
+Автор: Dimas
+
+### 02.09.2003 reviews Альбом, «делающий» 99% мелодик-дэтовых релизов последнего времени
+
+<p>Поприветствуем очередной all-stars-band. Тут вам и Томас Линдберг в качестве вокалиста, и Гас Джи (DREAM EVIL) в качестве гитариста, и Пер Йенсен (THE HAUNTED) в качестве барабанщика. Плюс Фредрик Нордстром за клавишами. Партии чистого вокала – Том Энглунд (EVERGREY). Слышится топот СМДМщиков, спешащих в магазин. Однако это не совсем мелодик-дэт. Прога, заявленного в пресс-релизе, здесь, конечно, нет. Зато есть мелодик-дэт и трэш. Плюс знакомое карканье герра Линдберга. Ясное дело, качество на высоте. Чистый вокал – изумителен. Некоторые вещи крутятся в голове многие часы и дни после ознакомления со “Sweet Vengeance”, словно это не дэт-трэш, а качественная попса. Чертовски хороша инструментальная вещь. Соплей, присущих многим СМДМным командам, здесь, к счастью, нет. То есть, назвать музыку NIGHTRAGE «павером с брутальным вокалом» язык не повернётся. AT THE GATESовщины – хватает. Это с одной стороны. С другой, - это отнюдь не продолжение. Не пахнет это и «возрожденными AT THE GATES», как нам обещает всё тот же пресс-релиз. Просто хороший, добротный альбом, «делающий» 99% мелодик-дэтовых релизов последнего времени.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 17.08.2004 news NIGHTRAGE начинают запись &quot;последыша&quot;
+
+<P>Шведско-греческая all-star группа <STRONG>NIGHTRAGE</STRONG> начала запись нового альбома в <STRONG>Studio Fredman</STRONG>&nbsp;с продюсером <STRONG>Fredrik Nordstr&#246;m</STRONG> (<B>IN FLAMES</B>, <B>HAMMERFALL</B>, <B>DIMMU BORGIR</B>, <B>THE HAUNTED</B>). Среди песен на второй пластинке группы будут: <STRONG>"Jubilant Cry"</STRONG>, <B>"Silent Solitude"</B>, <B>"Gallant Deeds"</B>, <B>"Poems"</B>&nbsp;и <STRONG>"Frozen".&nbsp;&nbsp;</STRONG></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 23.11.2004 news Новый альбом NIGHTRAGE выйдет в марте
+
+<P>Новый альбом <STRONG>NIGHTRAGE 'Descent Into Chaos'</STRONG> выходит 21 марта 2005 года на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.01.2005 news Новая песня NIGHTRAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>NIGHTRAGE 'Beeing Nothing'</STRONG> с будущего альбома <STRONG>'Descent Into Chaos'</STRONG> можно послушать у нас на сайте: <A href="/samples/n/nightrage/2005_1342.mp3">http://musica.mustdie.ru/samples/n/nightrage/2005_1342.mp3</A></FONT></P>
+Автор: Vit Belov
+
+### 22.01.2005 news New song of NIGHTRAGE
+
+<P>New song of <STRONG>NIGHTRAGE 'Being Nothing'</STRONG> from future album <STRONG>'Descent Into Chaos'</STRONG>, you may download from our site: <A href="/samples/n/nightrage/2005_1342.mp3">http://musica.mustdie.ru/samples/n/nightrage/2005_1342.mp3</A></P>
+Автор: Vit Belov
+
+### 11.07.2005 news NIGHTRAGE поменяли вокалиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Tomas Lindberg (ex-AT THE GATES)</STRONG> покинул <STRONG>NIGHTRAGE</STRONG>. В своём "последнем слове" он сообщил, что лишь помогал своему другу <STRONG>Marius iliopoulus</STRONG> (гитара), и теперь время уйти. На его место принят некто <STRONG>Jimmie Strimell.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 15.03.2006 news Gus G. ушёл из NIGHTRAGE
+
+<P>Гитарист <STRONG>Gus G.</STRONG> покинул <STRONG>NIGHTRAGE</STRONG>. У музыканта просто не осталось времени на эту группу, из-за занятости в основном проекте <STRONG>FIREWIND</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.06.2006 news NIGHTRAGE на Lifeforce
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греко-шведы<STRONG> NIGHTRAGE</STRONG> подписали контракт с<STRONG> Lifeforce</STRONG>. Группа запишет свой третий альбом в студии Fredman для релиза в начале 2007 года.</FONT></P>
+Автор: Vit Belov
+
+### 25.12.2006 news NIGHTRAGE закочили запись альбома
+
+<P>Шведско-греческий&nbsp;melodic death metal&nbsp;коллектив <B>NIGHTRAGE</B> завершил работу над своим новым альбомом в датской <B>Hansen</B> studios с продюсером <B>Jacob Hansen</B> (<B>RAUNCHY</B>, <B>MERCENARY</B>, <B>FEAR MY THOUGHTS</B>, <B>HEAVEN SHALL BURN</B>). По словам музыкантов, альбом получился чертовски замечательным. Дата релиза - 26 февраля на <B>Lifeforce Records</B>.&nbsp;Вот названия некоторых композиций с альбома:&nbsp;<B>"Spiral"</B>, <B>"Reconcile"</B>, <B>"Encircle" </B>и <B>"Scathing"</B>.</P>
+Автор: Dimas
+
+### 22.01.2007 news Новый альбом NIGHTRAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> NIGHTRAGE "A New Disease Is Born" </STRONG>выходит 12 марта на <STRONG>Lifeforce</STRONG>. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Spiral </STRONG>(4:39)<BR>02. <STRONG>Reconcile</STRONG> (4:25)<BR>03. <STRONG>Death-Like Silence</STRONG> (4:36)<BR>04. <STRONG>A Condemned Club</STRONG> (3:45)<BR>05. <STRONG>Scars of the Past</STRONG> (3:39)<BR>06. <STRONG>De-Fame</STRONG> (2:52)<BR>07. <STRONG>Scathing</STRONG> (4:36)<BR>08. <STRONG>Surge of Pity</STRONG> (4:12)<BR>09. <STRONG>Encircle</STRONG> (3:34)<BR>10. <STRONG>Drone</STRONG> (3:23)<BR>11. <STRONG>Spiritual Impulse</STRONG> (3:33)<BR>12. <STRONG>A New Disease Is Born</STRONG> (instrumental) (2:58)</FONT></P>
+Автор: Vit Belov
+
+### 20.02.2007 news Новое видео от NIGHTRAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что новый альбом <STRONG>NIGHTRAGE "A New Desease Is Born"</STRONG> выходит 12 марта на <STRONG>Lifeforce</STRONG>. Видео на новую песню "<STRONG>Scathing</STRONG>" можно посмотреть здесь: <A href="http://www.nightrage.com/index.asp">http://www.nightrage.com/index.asp</A></FONT></P>
+Автор: Vit Belov
+
+### 23.02.2009 news NIGHTRAGE войдут в студию сегодня
+
+<P><STRONG>NIGHTRAGE </STRONG>сегодня войдут в студию<STRONG> Fredman</STRONG> для записи четвёртого альбома <STRONG>"Wearing a Martyr's Crown"</STRONG>. Пластинка планируется к выходу в июле этого года на <STRONG>Lifeforce</STRONG>. Вот названия некоторых песен: <STRONG>"The Failure of All Human Emotions"</STRONG>, <B itxtvisited="1">"Among Wolves"</B>, <B itxtvisited="1">"Opposite in Black"</B>, <B itxtvisited="1">"Abandon"</B>, <B itxtvisited="1">"Shed the Blood"</B>, <B itxtvisited="1">"Wearing a Martyr's Crown"</B>&nbsp;и <B itxtvisited="1">"Mocking Modesty"</B>. Гостевую гитару запишет бывший участник группы знаменитый музыкант <STRONG>Gus G. (FIREWIND)</STRONG>. </P>
+Автор: Vit Belov
+
+### 13.03.2009 news NIGHTRAGE стучат
+
+<P>Съёмки из студии, где <STRONG>NIGHTRAGE</STRONG> записывают новый альбом <STRONG>"Wearing a Martyr's Crown", </STRONG>можно посмотреть ниже. Особенно рекомендуется любителям барабанного стука.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/h2HgMouxAwk&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/h2HgMouxAwk&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.04.2009 news Новый альбом NIGHTRAGE
+
+<P><IMG height=455 alt="" hspace=0 src="/images/news_rus/2009.04/14036.jpg" width=455 align=right border=5>Новый альбом<STRONG> NIGHTRAGE</STRONG> <STRONG>"Wearing A Martyr's Crown" </STRONG>выйдет 25 июня на <STRONG>Lifeforce</STRONG>. Пластинка была записана в <STRONG>Studio Fredman </STRONG>с <STRONG>Fredrik Nordstr&#246;m</STRONG> (<B>DIMMU BORGIR</B>, <B>ARCH ENEMY</B>, <B>IN FLAMES</B>). Трэк-лист:</P>
+<P>01. <B>Shed The Blood</B> (4:13)<BR>02. <B>Collision Of Fate</B> (5:13)<BR>03. <B>A Grim Struggle</B> (5:03)<BR>04. <B>Wearing A Martyr's Crown</B> (4:30)<BR>05. <B>Among Wolves</B> (4:29)<BR>06. <B>Abandon</B> (4:30)<BR>07. <B>Futile Tears</B> (5:18)<BR>08. <B>Wounded Angels</B> (4:00)<BR>09. <B>Mocking Modesty</B> (4:29)<BR>10. <B>Failure Of All Human Emotions</B> (4:36)<BR>11. <B>Sting Of Remorse</B> (5:21)</P>
+Автор: Vit Belov
+
+### 11.05.2009 news Новая песня NIGHTRAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>NIGHTRAGE</STRONG> <STRONG>"Wearing A Martyr's Crown" </STRONG>выходит 22 июня на<STRONG> Lifeforce</STRONG>. Песню <STRONG>"Shed The Blood" </STRONG>с этой работы можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/nightrage">http://www.myspace.com/nightrage</A></FONT></P>
+Автор: Vit Belov
+
+### 10.09.2009 reviews Путешествие в недалёкое прошлое
+
+<P>Группа NIGHTRAGE, которую было принято называть греческо-шведской, наделала шуму со своим дебютным альбомом “Sweet Vengeance”. Их тогда величали чуть ли не надеждой традиционного SMDM. Действительно, состав тогда подобрался солидный. Основал коллектив греческий гитарист Marios Iliopoulus из известной в узких кругах melodic-death-metal команды EXHUMATION, её альбомы выходили на Holy records. Помогали ему очень знаменитый сейчас гитарист Gus G. (FIREWIND, OZZY OSBOURNE (!!!)) и бывший вокалист AT THE GATES Tomas Lindberg. </P>
+<P>Прошло уже три альбома и шесть лет. За это время в группе побывали множество музыкантов, имена которых не являются пустым звуком на тяжёлой сцене. Радует, что, несмотря на засилье чистоголосого death-metal, обзываемого metalcore, NIGHTRAGE продолжают оставаться оплотом гётеборгского звучания. Новая работа записана в Studio Fredman, а это много значит для любителей стиля. SMDM от NIGHTRAGE практически не содержит никаких примесей. Так играли в середине 90-х IN FLAMES, и этот саунд до сих пор остаётся образцом. Здесь нет даже популярных примесей thrash-metal. Все трэки выполнены в гипермелодичном среднетемповом стиле со скримингом и вкраплениями акустической гитары. Именно это называли melodic-death-metal на заре его образования. </P>
+<P>Забавно, но сейчас я уже не могу чётко выразить своё отношение к этой музыке. Альбом NIGHTRAGE показался мне пресноватым. Здесь отличные соло, классные мелодии, но завершает пластинку кавер на не самую мощную песню METALLICA “Holier Than Thou”, и ты сразу просыпаешься. Хочется, наверное, чтобы был и более ‘death-metal’ звук. С другой стороны, я рекомендую эту работу настоящим фанатам стиля.</P>
+Автор: Vit Belov
+
+### 18.02.2010 news Видео NIGHTRAGE
+
+<P>Melodic death-metal команда<STRONG> NIGHTRAGE</STRONG> выложила клип на песню <STRONG>"Wearing A Martyr's Crown"</STRONG>.&nbsp;Режиссёром ролика выступил <STRONG>Bob Katsionis.</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/hFpEW8_48BQ&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/hFpEW8_48BQ&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.06.2011 news Новый альбом NIGHTRAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=229 alt="" hspace=0 src="/images/news_rus/2011.06/19797.jpg" width=472 align=right border=0>Новый альбом <STRONG>NIGHTRAGE</STRONG> <STRONG>"Insidious" </STRONG>выйдет 27 сентября на <STRONG>Lifeforce Records</STRONG>. Гостевое участие в записи приняли <STRONG>Gus G.</STRONG> (<B>OZZY OSBOURNE</B>, <B>FIREWIND</B>), <B>Tomas S. Englund</B> (<B>EVERGREY</B>), <B>Apollo Papathanasio</B> (<B>FIREWIND</B>, <B>SPIRITUAL BEGGARS</B>), <B>John K</B> (<B>BIOMECHANICAL</B>) и <B>Tomas Lindberg</B> (<B>AT THE GATES</B>, <B>THE CROWN</B>, <B>LOCK UP</B>). Трек-лист:</FONT></P>
+<P>01. <B>So Far Away</B> (intro) <BR>02. <B>Delirium Of The Fallen</B> (w/ Apollo Papathanasio) <BR>03. <B>Insidious</B> (w/ Tomas Lindberg) <BR>04. <B>Wrapped In Deceitful Dreams</B> (w/ Gus G. and Tom S. Englund) <BR>05. <B>Hate Turns Black</B> <BR>06. <B>Sham Piety</B> (w/ Tomas Lindberg) <BR>07. <B>Cloaked In Wolf Skin</B> <BR>08. <B>This World Is Coming To An End</B> (w/ Tomas Lindberg, Apollo Papathanasio) <BR>09. <B>Utmost Ends Of Pain</B> <BR>10. <B>Poignant Memories</B> <BR>11. <B>Hush Of Night</B> <BR>12. <B>Poisoned Pawn</B> <BR>13. <B>Solar Eclipse</B> (Prelude) (w/ John K) <BR>14. <B>Solar Corona</B> (w/ Gus G. and Tom S. Englund) <BR>15. <B>Emblem Of Light</B> (outro) (w/ John K) <BR>Japanese bonus track and digital-only bonus: <BR>16. <B>Photograph</B> (DEF LEPPARD cover; w/ Apollo Papathanasio) </P>
+<P>Прошлый альбом <STRONG>NIGHTRAGE</STRONG> <STRONG>"Wearing A Martyr's Crown" </STRONG>вышел в 2009 году.</P>
+Автор: Vit Belov
+
+### 21.07.2011 news Обложка нового NIGHTRAGE
+
+<P>Новый альбом <STRONG>NIGHTRAGE</STRONG> <STRONG>"Insidious" </STRONG>выйдет 27 сентября на <STRONG>Lifeforce</STRONG>. Обложку&nbsp;для пластинки, которую&nbsp;нарисовал <STRONG>Gustavo Sazes</STRONG> (<B>MORBID ANGEL</B>, <B>ARCH ENEMY</B>, <B>FIREWIND</B>, <B>SONIC SYNDICATE</B>, <B>GOD FORBID</B>), можно посмотреть ниже.</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.07/20280.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 09.12.2011 reviews Мелодия без компромиссов
+
+<P>Греко-шведы NIGHTRAGE продолжают утверждать, что круче melodic death-metal в современной тяжёлой музыке ещё ничего не придумано. На альбомах этого коллектива очень заметно, чем отличается нынешний metalcore/melodic death от того, которым фэны заслушивались в 90-х годах.</P>
+<P>Современное ответвление стиля развивают в основном американцы, для которых слово «драйв» свято. Европейцам гораздо ближе слово «мелодия», ради которого они могут отказаться от всех возможных признаков тяжёлого метала. Отечественные поклонники музыки примерно также относятся к этим вопросам, и по этой причине группы подобные NIGHTRAGE пользуются здесь стабильной популярностью. Хорошая мелодия, средний темп, филигранные соло. Не жалко, что иногда клонит в сон, зато композиция на уровне лучших образцов мелодического жанра. Следует отметить, что в этот раз NIGHTRAGE выступили более энергично, но основы их музыки это не меняет.</P>
+<P>Альбом для тех, кто не признаёт никаких компромиссов в мелодичном метале. Никто и никогда в группе NIGHTRAGE не отступит ни на йоту от законов классического среднетемпового «мелодета».</P>
+Автор: Vit Belov
+
+### 25.01.2012 articles Marios Iliopolous (NIGHTRAGE): “Мы играем то, что у нас на душе, а не melodic death-metal».
+
+<P><EM>Интернациональный проект NIGHTRAGE под управлением греческого гитариста Marios Iliopolous выпустил свой пятый альбом “Insidious” на Lifeforce в конце прошлого года. В нашей стране изданием музыки этой группы в настоящее время занимается лэйбл Mazzar Records. Мы связались с Marios и задали ему несколько вопросов о его музыке.</EM></P>
+<P><IMG height=475 alt="" hspace=0 src="/images/articles_rus/2012.01/22779.jpg" width=475 align=right border=0>В: <STRONG>Привет, Мариос! NIGHTRAGE Только что выпустили новый альбом “Insidious”. Можешь рассказать, что нового есть на этой пластинке? Это уже ваш пятый альбом, ты можешь отследить эволюцию группы?</STRONG></P>
+<P>Ок, у нас был длительный период сочинения материала. Мы долго готовили новые песни перед тем, как войти в студию. Новый альбом более зрелый, мы приобрели неоценимый опыт за прошедшие годы, и новая музыка содержит все возможные элементы NIGHTRAGE. Этот альбом демонстрирует то, кем мы сейчас являемся. Мы взяли всё самое лучшее с наших последних альбомов и подготовили пластинку полную энергии и запоминающихся мелодий.</P>
+<P>В: <STRONG>О чём ваша работа лирически? Кто основной автор текстов?</STRONG></P>
+<P>Я и Antony (Hamalainen, вокалист NIGHTRAGE) писали тексты вместе. У нас сходные точки зрения на вопросы, которые мы освещаем в нашей лирике. В этот раз мы вновь рассказываем о тёмной стороне человеческой натуры. Мы задумываемся над проблемами человеческих отношений, почему люди друг другу делают плохие вещи. Это действительно интересно наблюдать за тем, как человеки относятся друг к другу! Мы всё ещё пытаемся понять, почему так происходит, и рассказываем реальные истории из жизни, связанные с этим. Естественно всё это представляется в поэтической форме, а не столь прямолинейно. Подобные человеческие поступки способны причинить боль. Мы единственные, кто делает подобное? Сможем ли мы стать лучше? Мы считаем здесь есть возможность к улучшению! Жизнь иногда доказывает, что это возможно, и наша лирика об этом. Мы стараемся рассказать о том, что мы чувствуем, когда нас обижают. Иногда мы доверяем каким-то людям, а они нас обманывают. Это самое страшное! Жизнь продолжается, и нам необходимо продолжать жить с чистым сердцем, не смотря на всё это. Не давайте плохим эмоциям осквернить вашу душу. Не позволяйте неприятным действиям окружающих ранить вас. Это болезнь падших сердец, которые упав, всё-таки находят в себе силы подняться. Они всегда находят свет в конце туннеля.</P>
+<P>В: <STRONG>Поговорим о «мелодете». Мне думается, ваша группа – одна из последних в классическом шведском melodic death звучании, и вы можете говорить об этом стиле профессионально. Нужно ли этой музыке осовременивание? В нашей стране много фэнов классического звучания IN FLAMES и DARK TRANQUILLITY. Как в Греции?</STRONG></P>
+<P>Мы любим хорошую музыку с приятным вкусом, и это то, что мы пытаемся создавать в NIGHTRAGE. Мы хотим сочинять хорошие песни и хотим делиться ими с нашими фэнами. Мы не поклоняемся никакому «саунду», у нас собственное звучание, и в нём мы будем лучшими. У нас множество влияний из разных направлений тяжёлой музыки, мы делаем хорошую музыку, а большое количество имён, которые якобы повлияли на тебя, часто просто убивает искусство.</P>
+<P>Примечание автора: <EM>Интервью было взято по E-mail. Так как оказалось, что Marios не считает свою музыку исключительно melodic death-metal шведского образца, некоторые следующие вопросы могут показаться странными. Но что есть, то есть.</EM></P>
+<P><IMG height=229 alt="" hspace=0 src="/images/articles_rus/2012.01/22780.jpg" width=472 align=left border=0>В: <STRONG>Что ты думаешь о metalcore? Есть ли, по-твоему, какое-то противостояние между этим стилем музыки и «старорежимным» melodic death-metal? Является ли metalcore melodic death-metal с чистым вокалом?</STRONG></P>
+<P>Мне никогда не нравилась подобная музыка, если быть честным. По-моему, это просто тренд, который используют американские команды, которые хотят звучать как AT THE GATES. Они не могут понять, почему эта музыка сейчас мертва, и просто пытаются впрыгнуть в последний вагон давно ушедшего поезда.</P>
+<P>В: Как<STRONG>овы перспективы гетеборгского звучания в будущем? Будут ли NIGHTRAGE последней командой в этом стиле через 10 лет?</STRONG></P>
+<P>Мы всегда будем играть музыку, которую мы любим, и нам нет дела ни до каких трендов. Люди говорят об эволюции, но для меня это значит лишь то, что я буду играть то, что у меня на душе. Это единственная причина, почему ты должен играть метал. Нам нравится то, что мы создаем, и если когда-нибудь нам это разонравится, мы прекратим записывать альбомы.</P>
+<P>В: <STRONG>NIGHTRAGE – группа с слегка нестабильным составом. Почему так? NIGHTRAGE полноценная команда? С турами, репетициями и.т.п.</STRONG></P>
+<P>Как ты мог заметить, на последних альбомах это прекратилось. Довольно тяжело найти настоящие родственные души. Для меня это было особенно сложно, так как иногда меня окружили неверные люди. Всегда приходилось тратить время на поиск подходящих людей, с которыми было бы удобно творить. Мне кажется, это удалось, в настоящее время NIGHTRAGE состоит из правильных компонентов.</P>
+<P>В: <STRONG>На каждом вашем альбоме большое количество приглашённых музыкантов. Расскажи о друзьях, засветившихся на новой вашей работе.</STRONG></P>
+<P>Мы действительно большие друзья со всеми этими парнями. Вот и вся причина. Некоторым песням требовалось применение их специальных талантов. Это большой опыт поработать с подобными профессионалами, и просто приятно проводить время с друзьями.</P>
+<P>В: <STRONG>Скажи несколько слов об EXHUMATION. Да, мы помним эту группу. Один из наших коллег всегда был большим поклонником греческих групп с Holy Records.</STRONG> </P>
+<P>Да, EXHUMATION – моя предыдущая команда. Это то, с чего началась моя карьера в метале. Мы выпустили три альбома, все были записаны и спродюсированны в Швеции. Я очень горд этими пластинками, так как без EXHUMATION не было бы NIGHTRAGE.</P>
+<P>В: <STRONG>Вижу, ты проводишь много времени на Facebook. Что думаешь об Интернет?&nbsp; Убивает он музыку?</STRONG></P>
+<P>Мне кажется, это очень важный способ для промоции собственной музыки, если ты знаешь, как это работает. Он помогает приобрести много новых слушателей для своей группы.</P>
+<P>В: <STRONG>Скажи что-нибудь для своих российских поклонников. Последние смешные слова.</STRONG></P>
+<P>Мы с удовольствием выступим в России в любое время в будущем. Надеюсь, вам понравится наш новый альбом и спасибо за интерес к нашей группе.</P>
+Автор: Vit Belov
+
+### 25.01.2012 articles Marios Iliopolous (NIGHTRAGE): “Do what your soul tells you to do&quot;
+
+<P><IMG height=475 alt="" hspace=0 src="/images/articles/2012.01/22781.jpg" width=475 align=right border=0>Q: <STRONG>You've just released new album of NIGHTRAGE "Insidious". Could you tell in general, what’s new on this CD for NIGHTRAGE? It's already fifth album, could you trace evolution of your band?</STRONG></P>
+<P>Well we were pretty inspired when we composed the songs for this new album, and we had a long time that we had the songs written down, until we get to the studio and record them. This album it’s like a more mature step for us as songwriters and contains all the elements that made us what we are today. We took all the best ingredients from our past albums and tried to make an album full of energy and inspiring melodies. </P>
+<P>Q: <STRONG>What's your new album about lyrically? Who was the main author of the lyrics? </STRONG></P>
+<P>I and Antony writing all lyrics together and we have the same mind on the themes that we are exploring, this time again we are talking about the dark side of the human beings. We are exploring inner thoughts on how people treat each other. It's really interesting and amazing to see what people do to one another every day. We are still trying to understand why such behavior exists and we try to give some of our real life stories in these lyrics. Of course, we continue this in a poetic style as to not be so obvious. These types of human actions can really damage a person’s soul. Are we only capable of doing such things? Or can we become better? Of course, there is the hope that people can change! Sometimes we are given examples of real life, and this is what we are dealing with in the lyrics of this album. We are trying to show how we have felt in certain times, when bad vibes were against us. We would like to deal with this lyrically and also personally. Sometimes you trust people and they let you down. This can be the worst feeling of all. Life goes on and you have to approach everything bad that's happened head on and with a light heart. Don't let the hate turn your soul black. Don't let insidious acts damage your inner self. It's the delirium of the fallen hearts that go down, and then find the strength to get up again. They always find the light at the end of the tunnel.</P>
+<P>Q: <STRONG>I'd like to tell about melodic death-metal. I think your band is one of the latest "worshippers" of Swedish melodic death-metal sound and you could tell about this theme professionally. Does melodeath need modern sound or not? Here is in Russia fans like old IN FLAMES and DARK TRANQUILLITY very much. How's In Greece nowadays?</STRONG></P>
+<P>We like good music with a taste and that’s what we are trying to do with Nightrage. Writing good songs that we love and want to share with our fans. We are not standing there worshipping anybody, we have our own sound and from that point we want to be the best band we can. We draw influences from different styles in metal and we want to make good and original music, sometimes put a lot of names behind that really kill creativity. </P>
+<P><IMG height=229 alt="" hspace=0 src="/images/articles/2012.01/22782.jpg" width=472 align=left border=0>Q: <STRONG>What do you think about metal core? Is there opposition among metal core and old vein melodic death? Is Metal core melodic death with clean voices? </STRONG></P>
+<P>I never like it to be honest, for me that was just a retarded trend from USA bands that wanted to sound like At the gates. They loosing the meaning and that’s why it’s dead now, because there is already out there another trend and people want to jump on the bandwagon. </P>
+<P>Q: <STRONG>What will perspectives of Gothenburg melodic death-metal sound in the future? Will NIGHTRAGE be one last band in this style after 10 years?</STRONG></P>
+<P>We will always play the music we love to play and will not care about any trend, people talking about evolution but for me what matters is what your soul tells you to do, and what make u feel inspired to play metal. We love to do that and if one day we stop having good ideas we will stop then.</P>
+<P>Q: <STRONG>NIGHTRAGE is a band with slightly unstable line-up. Why is it so? Is NIGHTRAGE real band with tours, constant rehearsals?</STRONG></P>
+<P>As you can see now we are not anymore, we have a stable line up on the latest albums, well it’s not easy to find your soul band mates, for me was a difficult task because sometimes I was around the wrong people. And it always takes time to find the right and passionate people to play with, I feel I have found them with the guys that are in the band now. </P>
+<P>Q: <STRONG>You have many guest musicians on every album. Why is it so? Tell us about new album's guests.</STRONG></P>
+<P>We are really great friends with all these guys. That’s basically the reason. Some of these songs were calling for their specific talents. It was an amazing experience to work with professionals such as these, and spend the quality time with friends. </P>
+<P>Q: <STRONG>Tell some words about EXHUMATION. Yeah, we know this band. One writer in our web-zine was huge fan of Greek bands on Holy Records 10 years ago. Please, tell us some stories from your past.</STRONG></P>
+<P>Yeah that’s my previous band, its where all have begun for me in metal, we have released 3 albums all of them recorded and produced in Sweden, and I’m very proud of those albums, because without Exhumation there will be no Nightrage. </P>
+<P>Q: <STRONG>I see you spend much time on Facebook. What do you think about Internet? Does it kill music? </STRONG></P>
+<P>I think it’s the right tool for a band to promote its own music and if u know how to work with this, it can help u gain a lot of new people that they didn’t know your band. </P>
+<P>Q: <STRONG>Tell something to Russian fans. Final funny words </STRONG></P>
+<P>We would love to play in Russia anytime soon, hope they like our new album Insidious and thanx a lot for the interest in the band. </P>
+Автор: Vit Belov
+
+### 21.05.2012 news Видео-клип NIGHTRAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NIGHTRAGE</STRONG> публиквали видео на песню с последнего альбома <STRONG>"Delirium Of The Fallen". </STRONG>Ролик был снят во время концерта в Тессалониках режиссёром <STRONG>Gabriel Psaltakis.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/9XVxaMvTvBs?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

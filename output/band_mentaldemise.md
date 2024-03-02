@@ -8,6 +8,32 @@ ukrainian brutal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.11.2002 news Новости Moral Insanity prods
+
+<p>На Moral Insanity prods [www.moral-insanity.org] вышла лицензионная МС-версия последнего альбома ведущей death-бригады польского подземелья HATE. Подробности: http://hatesatanic.org/russian; e-mail: hate@moral-insanity.org.</p>
+<p> Также в новостях от этой конторы: <br>Польские brutal death/grind маньяки #1 будут атаковать нас со сцены в рамках беларуско-украинского тура в декабре. Компанию им, скорее всего, составят MENTAL DEMISE, RASTA, VELD. Подробности вскоре.</p>
+<p> Украинские ветераны-брутальщики Mental Demise завершают запись нового альбома, который будет называться "Disgraceful Sores" и включит 7 трэков брутального и интеллектуального death/grind. Трэк-лист: Posterity's Defect Removal / Pornopedophilic Mocery / Skeleton 509 / Totsk / Soporific Anabiosis / Coitus Per Machina / Mattoid (Sensless Prophet).</p>
+
+Автор: Vit Belov
+
+### 07.05.2003 news Фестиваль экстремальной музыки &quot;MassaBrutto Fest-3&quot;
+
+<p>25 мая, Минск, клуб "Реактор", 17:00<BR><BR> Закрытие концертного massabrutto-сезона<BR><BR> "MassaBrutto Fest-3"<BR><BR> EVTHANAZIA (Речица)<BR> VELD (Витебск)<BR> GATEWARD (Брест)<BR> SUFFERER (Минск)<BR> WEEPING TWILIGHT (Минск)<BR> INFESTUM (Минск)<BR> VESTIBULUM (Солигорск)<BR><BR> !!! эксклюзивный трибьют-сет GODS TOWER от Lesley Knife и WEEPING TWILIGHT !!!<BR><BR> !!! гости из Киева - MENTAL DEMISE (death/grind) !!!<BR><BR> Билеты: предварительная продажа - 7500/танцпол, 8500/балкон, в день концерта - 8500/танцпол<BR><BR> Спрашивайте билеты в магазинах "New Sound/D-Shop" (ул. В.Хоружей, 16, помещение библиотеки им. Я.Купалы) и "GB-Shop" (ул. Ленина, 9)</p>
+
+Автор: Yermola
+
+### 22.08.2004 news APOCRYPHAL отправляются в тур
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время белорусская группа <STRONG>APOCRYPHAL</STRONG> занята записью очередного альбома "<STRONG>Hear My Call</STRONG>". Кроме этого, коллективу в этом году исполняется 10 лет, и в ознаменование этого события <STRONG>APOCRYPHAL</STRONG> отправляются в тур по Белоруссии. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также в туре принимают участие:</FONT></P>
+<P><STRONG>Dark Legion</STRONG> (Poland)<BR><STRONG>Asguard</STRONG> (Belarus)<BR><STRONG>Mind Eclipse</STRONG> (Russia)<BR><STRONG>Mental Demise</STRONG> (Ukraine) </P>
+<P>Расписание концертов:</P>
+<P>27 сентября Мозырь<BR>28 сентября Солигорск<BR>29 сентября Минск<BR>30 сентября Витебск<BR>1 октября Гомель<BR>2 октября Речица<BR>3 октября Могилев<BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

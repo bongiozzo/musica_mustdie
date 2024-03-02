@@ -127,6 +127,9 @@ Vic  uses Paiste cymbals and Sonor drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

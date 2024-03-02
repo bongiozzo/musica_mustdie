@@ -35,6 +35,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.02.2012 news DE PROFUNDIS закончили третий альбом
+
+<P><IMG height=449 alt="" hspace=0 src="/images/news_rus/2012.02/23044.jpg" width=475 align=right border=0>Британские "последователи OPETH" <STRONG>DE PROFUNDIS</STRONG> закончили работу над новым альбомом "<STRONG>The Emptiness Within</STRONG>". Альбом выйдет в конце весны. Его продюсером вновь выступил <STRONG>Fernando Pereira Lopes (MISANTHROPE, ORAKLE)</STRONG>, а сведение прошло в<STRONG> Studios Davout (AC/DC, THE ROLLING STONES, OZZY OSBOURNE)</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>From The Depths</STRONG>... (intro) <BR>02. <STRONG>Delirium <BR></STRONG>03.<STRONG> Silent Gods <BR></STRONG>04. <STRONG>This Wretched Plague <BR></STRONG>05. <STRONG>Twisted Landscapes<BR></STRONG>06. <STRONG>Release<BR></STRONG>07. <STRONG>Dead Inside<BR></STRONG>08. <STRONG>Parallel Existence</STRONG> (instrumental) <BR>09. <STRONG>Unbroken (A Morbid Embrace)</STRONG></P>
+<P>Второй альбом <STRONG>DE PROFUNDIS</STRONG> можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+### 07.09.2016 news Новый клип DE PROFUNDIS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип британской progressive death doom metal команды <strong>DE PROFUNDIS "All Consuming"</strong> можно посмотреть ниже. Трек взят с последнего альбома коллектива "<strong>Kingdom of the Blind</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/RJVJfNgbRjI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 07.09.2016 news New clip of DE PROFUNDIS
+
+<p>The new video from British progressive death doom metal band<strong> DE PROFUNDIS "All Consuming"</strong> can be viewed below. The track is taken from the latest album "<strong>Kingdom of the Blind</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/RJVJfNgbRjI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

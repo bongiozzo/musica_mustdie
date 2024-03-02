@@ -83,6 +83,21 @@ John Tumor  -  Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.03.2002 news AMEN ушли с Virgin Records ...
+
+<p>"AMEN" официально подтвердили уход с Virgin Records, что было вызвано недостаточными по мнению группы продажами диска "We Have Come For Your Parents" (продано 15,789 копий в США по данным Soundscan). Как заявил фронтмен Casey Chaos: "мы хотели бы поблагодарить всех сотрудников Virgin за два года тяжелой работы..." Сейчас "AMEN" завершили работу над новым пока еще не названным альбомом и собираются издать его позднее в этом году...</p>
+
+Автор: Yermola
+
+### 05.03.2002 news AMEN Officially Part With Virgin Records ...
+
+<p>AMEN have officially announced their split with Virgin Records following the lackluster sales performance of their sophomore effort, We Have Come For Your Parents (which has shifted 15,789 copies in the US, according to Soundscan). AMEN frontman Casey Chaos stated: "we would like to thank all the past and present employees at Virgin for the last 2 years of hard work and dedication. Congratulations with putting up with us for that long! We wish you all the best in your new direction". <BR><BR> AMEN have completed work on their as-yet-untitled third studio album, due for release later this year, and they have just returned from Australia where they played at the Big Day Out festivals to rave reviews.<BR><BR> AMEN will remain signed to Ross Robinson's I Am imprint via a partnership with an as-yet-undetermined major label.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -192,6 +192,9 @@ Hideyo Moriya  -  Guitar
 
 * C группой "King Crimson" guitarist
 
+## Публикации
+
+
 ## Обсуждения
 
 

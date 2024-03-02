@@ -8,6 +8,9 @@ powerful Gothic Rock, brought to flavour with some electronics
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

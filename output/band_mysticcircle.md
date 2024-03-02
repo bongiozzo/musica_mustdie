@@ -157,6 +157,160 @@ Lyrics by Beelzebub.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2000 reviews Альбом - напоминание.
+
+<p>Альбом - напоминание. Напоминание группы о своем существовании. Группа, между прочим, лидер немецкого black-metal. Итак, что мы имеем. Две вещи собственного сочинения (одна взята с первой демо-ленты, а вторая - спокойненький и мистическо-таинственный intro-инструментал), а также три ковер-версии (Bathory, Celtic Frost и некая Amis). Все сделано очень интересно, на высоком профессиональном уровне, с хорошей постановкой звука. но хочется послушать и новых творений...Будем ждать...</p>
+
+Автор: Dimas
+
+### 22.07.2000 reviews Album - reminder
+
+<p>Album - reminder. A reminder of group on the existence. Group, by the way, leader german black-metal. So, that we have. Two things of the own composition (one is taken from the maiden demo-relise, and second - easy and mysterious intro-instrumental), and also three cover - versions (Bathory, Celtic Frost and certain Amis). All is made very interestingly, at a high professional level, with good statement of a note. But it would be desirable to listen and new creations... Let's wait...</p>
+
+Автор: Dimas
+
+### 05.10.2000 news Mystic Circle вскоре направятся в студию.
+
+<p> В середине ноября 2000 года Mystic Circle идут в студию записывать свой новый шедевр под названием "The Great Beast". 19 февраля 2001 года альбом выйдет в свет. В марте группа отправится в двухмесячный европейский тур вместе с Marduk, а также их можно будет увидеть на фестивале No Mercy - 2001.</p>
+
+Автор: Morsus
+
+### 05.10.2000 news Mystic Circle will enter the studio soon.
+
+<p> Mystic Circle will enter the studio to record the new masterpiece called "The Great Beast" in the middle of November 2000. The album will be released in February 19th 2001. In march 2001 band are on a two month european tour with swedish band Marduk and also you can see them at the No Mercy Festivals 2001.</p>
+
+Автор: Morsus
+
+### 17.02.2001 news Новости от ...And Oceans
+
+<p> На днях выходит новый диск ...And Oceans "Allotropic / Metamorphic Genesis Of Dimorphism" и в самом ближайшем будущем ребята отправятся в европейское турне в поддержку альбома вместе с такими группами, как Marduk и Mystic Circle.</p>
+
+Автор: Nybras
+
+### 18.05.2001 reviews ...И зло настигнет Вас!
+
+<p>...И зло настигнет Вас! Грандиозный альбом - Большой зверь. Эта немецкая группа превзошла все мои ожидания. Превосходный материал, который уже совершенно невозможно назвать black metal'ом и уж совсем нельзя упрекнуть группу в похожести на Dimmu Borgir, которое было заметно на двух первых альбомах. Это, скорее, мрачно-атмосферный dark satanic metal с наиприятнейшими мелодиями, сочнейшим глубоким гроулингом, чуть приметными клавишными и потрясающим качеством. Иногда даже хочется назвать это среднетемповым melodic death metal'ом, но... Девять ровных сильных трэков напоминающих претенциозные гимны, возбуждают организм и раздражают слух, не оставляя слушателя без реакции на себя. Еще никогда немцы не звучали так величаво, компактно и могущественно. Сказывается крепкая рука продюсера, небезызвестного Gerhard Magin'a. Группе удалось подобрать ключи к своей музыке, смешать black metal c heavy metal и заставить ее звучать именно оригинально и неповторимо, экстремально и мелодично, тяжело и красиво. И я вам настоятельно рекомендую ознакомиться с этим прекрасным творением, потому как никакие слова не смогут передать настроения и прелесть этой музыки. Слова - ничто, МУЗЫКА - все!</p>
+
+Автор: Dimas
+
+### 28.02.2002 news Mystic Circle готовят концептуальный альбом
+
+<p>Полным ходом идут приготовления к записи следующего альбома в лагере Mystic Circle. 30 мая Beelzebub, Ezpharess и компания идут в Commusication Studio вместе с продюсером Герхардом Магином работать над созданием "Damien". Beelzebub подтвердил очевидную догадку, что новый CD будет построен по мотивам кинофильма "Омен".</p>
+
+Автор: Morsus
+
+### 28.02.2002 news Mystic Circle are preparing the conceptual album
+
+<p>In the camp of Mystic Circle the preparations for the next album go at full blast, as Beelzebub, Ezpharess & Co will start working on "Damien" together with producer Gerhard Magin on May 30th, entering the Commusication Studio. As Beelzebub states the new CD is conceptually following the idea of the "Omens" movies.</p>
+
+Автор: Morsus
+
+### 06.05.2002 news MYSTIC CIRCLE в студии
+
+<p>13 мая 2002 года немецкая dark-satanic группа MYSTIC CIRCLE войдет в Commusication Studio, где под руководством продюссера Gerhard Magin запишет материал для своего нового альбома под названием "Damien". Выход альбома планируется в сентябре 2002 года.</p>
+
+Автор: Dimas
+
+### 21.10.2002 reviews Дьявольское предзнаменование
+
+<p>Пятое полнометражное творение немецких мастеров dark-satanic metal. Это самый совершенный в техническом и музыкальном плане альбом команды. Музыканты несколько вернулись к своим корням. Теперь они играют все тот же тяжелый, мрачный, быстрый, брутальный и гитарно-ориентированный мелодичный black metal. Естественно, возврат к корням вновь заставляет сравнивать MYSTIC CIRCLE с DIMMU BORGIR, но уже не настолько явно. как ранее. По названию альбома и трэк-листу несложно догадаться, что материал альбома является концептуальным и написан по мотивам культовой мистической трилогии "Омен". В центре внимания - борьба добра со злом. В данном случае, естественно, зло побеждает... Отчетливый гитарный звук, массивные выдвинутые риффы, задвинутый клавишный ряд, атмосфера страха, масса мелодий и великолепное качество. Плотный звук напоминает хорошее мясо с кровью. Небольшой минус - некоторое однообразие песенного материала. В данном случае, это простительно. На диджипак-версии альбома, на виниле и на диске выпущенном в России компанией ART MUSIC GROUP содержится бонус-трэк "Cry little sister". Достойный уважения альбом от немецкого Черного Легиона.</p>
+
+Автор: Dimas
+
+### 22.10.2002 articles Новинки лицензионного рынка (21.10 - 28.10)
+
+<p>В данных заметках, мы постараемся доносить до Вас всё то, новое, что Вы можете обнаружить на прилавках магазинов на этой неделе. Оценок не ждите… Всё в рубрике рецензии.</p>
+<p> Начнём по алфавиту. ART Music Group на прошлой неделе представила на наш суд четыре новые позиции.<IMG SRC="/images/articles_rus/2002.10/3294.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> <IMG SRC="/images/articles_rus/2002.10/3295.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">Сенсацией стало появление на лицензии по вполне доступным ценам нового альбома Kingdom Come “Independent”. Можно не разбираться в рок-музыке прошлого века, но не знать этого коллектива нельзя. Оценивать новое творение, оставим специалистам, но не признать того, что Ленни Волф – новая величина на лицензионном рынке нельзя. Спасибо AMG! Второй новиной, по известности, стал новый альбом Mystic Circle “Damien”. На прошлом альбоме группа отошла от black в сторону death. Что сейчас? Читайте <a href=”http://musica.mustdie.ru/ru/band/mystic_circle/6603/#reviews”>здесь</a>. И две последние не вполне известные группы. Medusa со своим sympho-power и Inner Shrine с gothic-metal.</p>
+<p> CD-Maximum представят на этой неделе нашему вниманию две новинки. <IMG SRC="/images/articles_rus/2002.10/3296.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">.<IMG SRC="/images/articles_rus/2002.10/3293.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> Trollheim's Grott "Bizzare Troll Technology" – альбом 2001 года, анонсирован, как нестандартный black-metal. И новый альбом группы Arwen, представляющий собой power-metal с прогрессивными элементами. Эти испанцы из конюшни Arise Records, на которой могут быть, как очень хорошие группы, так и откровенно слабые, но всё равно любителям power стоит попробовать.</p>
+<p> Следом идёт Fono, со своими новинками прошлой недели. Во-первых, это новый альбом Rotting Christ. Если Вы ещё его не купили на пиратке, купите лучше на лицензии. И ещё одна новинка по лицензии Century Media Borknagar “Quintessence”. Альбом начала этого года уже стал редкостью на рынке пиратов. Вперёд black-metal!</p>
+<p> Irond Records – контора, у которой без новинок не проходит ни одна неделя.<IMG SRC="/images/articles_rus/2002.10/3297.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="left">.<IMG SRC="/images/articles_rus/2002.10/3298.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="right"> На этот раз настоящей бомбой станет новый альбом Lake Of Tears “Neonai”. Пускай его уже тысячными тиражами продают пираты, настоящий любитель ждёт именно этого релиза. Вторым по значению стал подарок фэнам немецкой folk музыки – новый альбом Morgenstern, которые продолжают гнуть свою “In Extremo” подобную линию. Два следующих релиза Frown и Poema Arcanus представляют собой практически идентичные альбомы в жанре doom-metal – тяжёлые и медленные. Ну и напоследок Abaddon Incarnate. Irond не стесняется указывать весьма средние оценки в прессе для этого альбома, ведь это death-grind “молотилово», кто его поймёт кроме самого преданного фэна.</p>
+<p> Ну и последними по алфавиту стали и, видимо, останутся Soyuz, которые продолжают разрабатывать ниву Inside Out Records. На этой неделе всё-таки выйдут два старых альбома Symphony X. А на прошлой появились три старых альбома My Dying Bride, и альбом Anathema “Silent Enigma” (это уже, естественно, Peaceville).</p>
+<p>Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 25.10.2002 reviews Devil Sigh
+
+<p>Fifth long-play creation of the German foremen of dark-satanic metal. It is most perfect in the technical and musical plan an album of a band. The musicians have returned to the roots. Now they play all same heavy, gloomy, fast, brutal and guitar-focused melodious black metal. Naturally, the return to roots again forces to compare MYSTIC CIRCLE with DIMMU BORGIR, but is not so obvious any more. As earlier. Under the name of an album and track-list it is simple to guess, that the material of an album is conceptual and is written on motives of the cult mystical trilogy "Omen". At the centre of attention - struggle of goods with evil. In this case, naturally, angrily wins... A clear guitar sound, massive put forward riffes, pushed keyboard line, atmosphere of fear, weight of melodies and magnificent quality. The dense sound reminds good meat with blood. A small minus - some monotony of a material. In this case, it is pardonable. On the digi-pack--version of an album, on vinyl and on a disk issued in Russia by the company ART MUSIC GROUP contains bonus-track "Cry little sister". Worthy respect an album from German Black Legion.</p>
+
+Автор: Vit Belov
+
+### 29.03.2003 news День открытия Врат Ада
+
+<p>Германские блэк-металлеры MYSTIC CIRCLE дали название "Open The Gates Of Hell" своему шестому альбому, который должен выйти в сентябре 2003 года на Massacre Records. В мае группа войдет в Commusication Studios с продюссером Gerhard Magin'ом.</p>
+<p> Также, Massacre Records планирует переиздать ранние альбомы группы выпущенные на Last Episode Records - "Drachenblut", "Morgenrote" и "Satanic Infernal Verses".</p>
+
+Автор: Dimas
+
+### 14.12.2004 news MYSTIC CIRCLE выпустили сборник
+
+<P><STRONG>MYSTIC CIRCLE</STRONG> выпустили сборник <STRONG>'Unholy Chronicles'</STRONG>. Вот, что Вы сможете там найти:</P>
+<P>Audio CD (all songs new masterd):</P>
+<P>1. <STRONG>Medina (whore of satan)<BR></STRONG>2. <STRONG>Octobermoon<BR></STRONG>3. <STRONG>Sword of might<BR></STRONG>4. <STRONG>The Dragonslayer<BR></STRONG>5. <STRONG>King of the Nibelungenhort</STRONG><BR>6. <STRONG>Thorns of lies<BR></STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2004.12/7503.jpg" width=400 align=right border=5>7. <STRONG>One with the Antichrist<BR></STRONG>8. <STRONG>Hate<BR></STRONG>9. <STRONG>Hellish Maniacs<BR></STRONG>10. <STRONG>Spirits in black<BR></STRONG>11. <STRONG>Servants of twilight<BR></STRONG>12. <STRONG>God is dead - Satan arise</STRONG><BR>13. <STRONG>Open the gates of hell<BR></STRONG>14. <STRONG>Awaken by blood</STRONG></P>
+<P>DVD:</P>
+<P>Videoclip:<BR>1. <STRONG>Awaken by blood</STRONG> (Album: <STRONG>Open the gates of hell</STRONG> 2003)</P>
+<P>Live at 13.Wave Gothik Treffen 2004:<BR>1. <STRONG>Awaken by blood<BR></STRONG>2. <STRONG>Medina (Whore of satan)<BR></STRONG>3. <STRONG>Burning souls<BR></STRONG>4. <STRONG>666 Mark of the devil<BR></STRONG>5. <STRONG>God is dead - Satan arise<BR></STRONG>6. <STRONG>Circle of the tyrants (Celtic Frost cover)<BR></STRONG>7. <STRONG>Open the gates of hell</STRONG></P>
+<P>Additional Live Tracks:<BR>1-<STRONG>Live at Fun & Crust Festival 14.08.2004: Satanic Rituals<BR></STRONG>1-<STRONG>Live at Rockfabrik Ludwigsburg 20.11.2002: King of the Nibelungenhort<BR></STRONG>1-<STRONG>Live at Rockfabrik Ludwigsburg 20.11.2002: The Dragonslayer<BR></STRONG>1-<STRONG>Live at Headbangers Ballroom Hamburg 13.04.2003: Servants of twillight<BR></STRONG>1-<STRONG>Live at Schwimmbadclub Heidelberg 19.03.2003: Image of the antichrist<BR></STRONG>1-<STRONG>Live at Live Arena Muenster 15.03.2003: Hate<BR></STRONG>1-<STRONG>Live at Metaldayz 2003 Pratteln 02.08.2003: Awaken by blood<BR></STRONG>1-<STRONG>Live at Razzle Dazzle Berlin 18.04.2001: Medina (Whore of satan)<BR></STRONG>1-<STRONG>Live at Baroeg Rotterdam 18.10.1998: Die Gцtter</STRONG> <STRONG>der Urvдter<BR></STRONG>1-<STRONG>MTV Romania 29.02.2004: Interview Mystic Circle<BR></STRONG>1-<STRONG>Live at Club Martin Bukarest 29.02.2004: Satanic Rituals</STRONG></P>
+<P>Interviews (<STRONG>Behind this Unholy Walls</STRONG>):<BR>1. <STRONG>Beelzebub<BR></STRONG>2. <STRONG>Ezpharess<BR></STRONG>3. <STRONG>Necrodemon</STRONG></P>
+<P>Также группа сообщила, что 14 мая собирается выступить в Москве в Р-клубе. Организаторы: metalkings.ru</P>
+Автор: Vit Belov
+
+### 04.01.2005 news MYSTIC CIRCLE планируют запись
+
+<P><STRONG>MYSTIC CIRCLE</STRONG> планируют запись новой пластинки на сентябрь 2005 года. Сочинять новые вещи немцы планируют уже сейчас.</P>
+Автор: Vit Belov
+
+### 26.05.2005 news Новый альбом MYSTIC CIRCLE
+
+<P><STRONG>MYSTIC CIRCLE</STRONG> выпустят свой седьмой альбом "<STRONG>The Bloody Path Of God</STRONG>" в октябре на <STRONG>Dockyard 1</STRONG>, новом лейбле, образованном бывшими работниками <STRONG>Noise/Sanctuary</STRONG>, среди которых <STRONG>Piet Sielk</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.11.2005 news MYSTCI CIRCLE ищут нового барабанщика
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.11/9709.jpg" width=200 align=left border=5>Немцы<STRONG> MYSTIC CIRCLE</STRONG> ищут нового барабанщика к новому туру, который начнётся в феврале будущего года, сразу после выхода нового альбома "<STRONG>The Bloody Path Of God</STRONG>", выходящего 27 февраля на <STRONG>Dockyard 1</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.01.2006 news НОВОСТИ ОТ DOCKYARD 1 RECORDS
+
+<P>Новейший информационный бюллетень <B>DOCKYARD 1 RECORDS</B>2006 г.<BR><B>SHELTER</B>. Родоначальники поп-кора возвращаются! Новая работа ньюйоркцев под руководством <B>Рэя Каппо</B> (ex-<B>YOUTH OF TODAY</B>) будет называться <B>"Eternal"</B> и появится на прилавках в середине апреля. На пластинку вошло 10 новых разрушительных треков, а также переделка знаменитого хита группы - <B>"In Defense of Reality"</B>.<BR>&nbsp;<BR><B>SAVAGE CIRCUS</B>. В бой-листке команды новая площадка - DONG OPEN AIR 2006. Фестиваль пройдет 14 июля в немецком городе Нойкиршен-Флейн, так что -&nbsp; встаем на лыжи!<BR>&nbsp;<BR><B>VANISHING POINT</B>. Австралийский экипаж принял на борт нового басиста - <B>Стива Кокса</B>. Со слов музыкантов, Стив - классный профи, обладающий прекрасным чувством юмора, который отлично справится с обязанностями ушедшего Джо дель Мастро. В других новостях, австралийский журнал "Blastwave" назвал последний альбом <B>VANISHING POINT - "Embrace The Silence"</B> - лучшим австралийским релизом 2005 года.<BR><BR><B>MYSTIC CIRCLE</B>. Немецкие богохульники устроили групповое прослушивание своей новой работы - <B>"The Bloody Path Of God"</B>. Пока ошеломленные критики рассыпаются в комплиментах, гитарист "окольцованных" <B>Ezpharess</B> делится с нами следующим: <I>"На новом альбоме мы вернулись к нашим блэковым корням. Мы снова стали использовать клавишные, чтобы создать нужную атмосферу в таких песнях как <B>"Doomsday Prophecy", "Riders Of The Apocalypse", "The Forgotten"</B> или <B>"Unholy Terror"</B>, а наш вокалист <B>Graf Von Beelzeebub</B> больше не использует гроулинг - только сырой блэкушный скриминг."<BR></I><B>PERSUADER</B>. Подопечные <B>Пита Зилька</B> опубликовали новую главу своего студийного дневника. Посмотреть полное сальных моментов видео вы можете, кликнув по ссылке "When Umea Burns" на официальном сайте группы - <A href="http://www.persuader.nu/"><U>http://www.persuader.nu/</U></A>. <BR><BR>новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)<BR></P>
+Автор: Ixtiandr
+
+### 08.02.2006 news Послушайте трэки с новейшего альбома MYSTIC CIRCLE!
+
+<P><B>MYSTIC CIRCLE</B> обновили на своем сайте список доступных для скачивания трэков со своего новейшего альбома <B>"The Bloody Path Of God"</B>, который должен выйти 20 февраля на Dockyard 1. Теперь вы можете послушать и заглавную вещь! Всё это добро находится здесь: <A href="http://www.myspace.com/mysticcircle"><U>http://www.myspace.com/mysticcircle</U></A></P>
+Автор: Ixtiandr
+
+### 16.02.2006 news НОВОСТИ ОТ DOCKYARD 1 RECORDS
+
+<P>Вашему вниманию - новейший информационный бюллетень <B>Dockyard 1 Records</B> от 14 февраля, 2006 г.<BR><BR>ЦИРК! ЦИРК! ЦИРК!<BR>&nbsp;<BR>Суперуспешное шапито <B>SAVAGE CIRCUS</B> - под руководством экс-стражника <B>Томена Штауха</B> и гиперпродюсера <B>Пита Зилька</B> - намерено дать два беспрецедентных шоу на российской территории.<BR>&nbsp;<BR>15 апреля 2006 г. - Москва, Клуб "Точка"<BR>16 апреля 2006 г. - Санкт-Петербург, Клуб "Порт"<BR>&nbsp;<BR>Не пропустите!!! В программе - ЖИВЫЕ ЗВЕРИ СОВРЕМЕННОГО МЕТАЛА!!!<BR>&nbsp;<BR>в других новостях:<BR>&nbsp;<BR><B>SHELTER</B>. Попкоровые боги разместили трек <B>"Eternal"</B> на своей страничке в сервисе Myspace. <B>"Eternal"</B> - первая композиция коллектива с момента распада в 2001 году. Полнометражный альбом с тем же названием сойдет со стапелей <B>Dockyard1</B> 24 апреля.<BR>&nbsp;<BR><B>MYSTIC CIRCLE</B>. Ортодоксальные блэкстеры подтвердили свое участие в крупнейших немецких фестивалях - <B>With Full Force</B> (30.06-02.07) и <B>Wacken Open Air</B> (03.08-05.08).<BR>&nbsp;<BR><B>AFTER ALL</B>. Обладатели звания "Лучшей бельгийской метал группы 2005 года" (по мнению ведущих радиошоу "Whiplash") составят компанию <B>KING DIAMOND</B> и <B>MERCENARY</B> на голландском участке их совместного евротура.<BR>&nbsp;<BR>НОВОСТИ КОРАБЕЛЬНОГО ЦЕХА, ИЛИ ВСКОРЕ НА DOCKYARD1<BR>&nbsp;<BR><B>DREAMLAND - "Future's Calling"</B> <BR>&nbsp;<BR>20 февраля 2006 <BR><B>ABANDONED - "Thrash Notes"<BR>MYSTIC CIRCLE - "The Bloody Path Of God"</B> <BR>&nbsp;<BR>20 марта 2006 <BR><B>LOST IN RHONE -&nbsp; "Beloved Be The Ones Who Sit Down"<BR>VANISHING POINT&nbsp; - "In Thought"<BR>WALTARI - "Blood Sample"</B> <BR>&nbsp;<BR>24 апреля 2006 <BR><B>ASSAILANT - "Nemesis Within"<BR>SHELTER - "Eternal"<BR>DEATH BEFORE DISCO - "Barricades"</B><BR>&nbsp;<BR>22 мая&nbsp;2006<BR><B>AS WE FIGHT</B> - tba<BR><B>PERSUADER - "When Eden Burns"</B><BR>&nbsp;<BR>19 июня 2006<BR><B>IRON SAVIOR</B>&nbsp; - tba<BR>&nbsp;<BR>вторая половина 2006 года<BR><B>LAKE OF TEARS, CELESTY, DREAMLAND</B> and many more<BR>&nbsp;<BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+Автор: Ixtiandr
+
+### 02.03.2006 news Новости от Dockyard 1 Records
+
+<P>Вашему вниманию -<BR>новейший информационный бюллетень <B>Dockyard 1 Records</B> от 1 марта,<BR>2006 г.<BR><BR>Выпуск диска - почти такое же счастье, как рождение ребенка, и отмечать его следует подобающим образом. На днях два монстра немецкой сцены - <B>MYSTIC CIRCLE</B> и <B>ABANDONED</B> - устроили совместную гитарную резню, дабы отпраздновать выход своих новых пластинок - <B>"The Bloody Path Of God"</B> и <B>"Thrash Notes"</B>. Собравшиеся вечером 22 февраля в дармштадском Steinbruch-Theater смогли попить пива в обществе любимых групп, поучаствовать в забавных конкурсах и, конечно же, оторваться под шквальным напором тевтонского тяжеляка. Все остальные - опоздавшие, проморгавшие или просто не имеющие немецкого гражданства лица - в качестве "утешительного приза" могут прослушать свежий трек <B>ABANDONED</B> <B>'Return To One'</B>, который группа любезно выложила на своей Myspace-страничке.<BR><BR><B>SAVAGE CIRCUS</B>. ""Циркачи" выступят на разогреве у <B>EDGUY</B> во время их концертов в Токио 16 и 17 марта. Кроме того, группа номинирована на получение награды <B>"Best Debut Album 2005"</B> от эстонского вебзина <B>Metalstorm</B> за прошлогодний диск <B>"Dreamland Manor"</B>.<BR><BR><B>WALTARI</B>. Финские шутники-экстремалы почтили своим выступлением металлическую ярмарку <B>Finnish Metal Expo</B>, прошедшую 17-18 февраля в родном городе музыкантов - Хельсинки. В рамках двухдневного смотра лучших гитарист коллектива <B>Сами</B> провел мастер-класс для всех желающих. А тем временем новейшая пластинка финнов - <B>"Blood Sample"</B> - уверенно движется к своему релизу. Спрашивайте в магазинах с 20 марта.<BR><BR><BR>В ПЛАНАХ<BR>---------------<BR><BR>20-е февраля 2006 <BR><B>ABANDONED - "Thrash Notes"<BR>MYSTIC CIRCLE - "The Bloody Path Of God"</B> <BR><BR>20-е марта 2006 <BR><B>LOST IN RHONE -&nbsp; "Beloved Be The Ones Who Sit Down"<BR>VANISHING POINT&nbsp; - "In Thought"<BR>WALTARI - "Blood Sample"</B> <BR><BR>24-е апреля 2006 <BR><B>ASSAILANT - "Nemesis Within"<BR>DEATH BEFORE DISCO - "Barricades"<BR></B><BR>22-е мая 2006<BR><B>SHELTER - "Eternal"<BR>PERSUADER - "When Eden Burns"<BR></B><BR>19-е июня 2006<BR><B>AS WE FIGHT - tba<BR>IRON SAVIOR&nbsp; - tba<BR></B><BR>вторая половина 2006 года<BR><B>LAKE OF TEARS<BR>CELESTY<BR>DREAMLAND</B><BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 25.05.2006 reviews Не изменяя себе и Люциферу
+
+<P>Уже давно никого не удивляет, что игравшие когда-то блэк-метал группы сейчас стараются найти новые средства для самовыражения, ибо сей жанр не утомил разве только что ярых его приверженцев. Немцы Mystic Circle и раньше считались довольно прогрессивными в этом стиле, а теперь решили оставить лишь "внешнюю" блековую составляющую, активно внедрив в свою музыку элементы дэта и даже трэша двадцатилетней примерно давности (ну а сама тематика осталась богохульной). Ничего в этом плохого нет, вон поляки Behemoth давно уже плюнули на блэк (и правильно сделали, заметим). Что хотелось бы отметить на этом альбоме еще одних подопечных молодого (но довольно шустрого, что касается подписания команд) лэйбла Dockyard 1, так это очень приличное продюсирование (а мастерингом занимался Пит Зильк, хм, так скоро Mystic Circle заиграют хэви или пауэр). Удалось передать и первобытную злобу и ненависть Билзебуба сотоварищи. Но получился ли релиз интересным? Скорее нет, чем да. Уж слишком однообразным вышел материал, хотя если всё еще считать Mystic Circle блековым коллективом, то всё звучит весьма прогрессивно и необычно. Думаю, поклонники этого дуэта (по большому счету) останутся довольными. Группа не изменила себе, и это уже гут. Тем же, кто никогда не интересовался творчеством Mystic Circle, данный альбом слушать совершенно необязательно. Да, "мистики" на закуску исполняют кавер 'Circle Of The Tyrants' Celtic Frost - довольно спорный получился вариант, но уж совсем отстойным его никак не назовешь, ну а каверить легендарные группы - вещь вообще неблагодарная, недовольные найдутся всегда.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 21.08.2006 news Новости от Dockyard 1
+
+<P>Проводя раскопки в самом центре шведского Стокгольма, мы наткнулись на редкий бриллиант: <B>BLACKSHINE</B> начинали как дэт-металлическая команда, однако уже на дебютном альбоме от дэта осталось лишь мрачная аура, сама же музыка обильно проросла рок-н-роллом. Тягучим, мрачным, глубоким. И сейчас все мы, затаив дыхание, ждем тягучей, мрачной, глубокой осени, копим грусть и другие минусы настроения, чтобы быть готовыми. Быть готовыми к выходу <B>"Lifeblood"</B>, столь долгожданного продолжения восхитительного <B>"Soulless Proud"</B>...&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>ДРУГИЕ НОВОСТИ<BR><BR><B>REDKEY</B>. Пауэр-металлисты из немецкого городка, где когда-то сделали первый "Фольксваген Жук", идут к нам с дебютной пластинкой под мышкой. Экипаж - знакомые все лица: <B>Томас Ретке</B> и <B>Саша Пает</B>, бывшие участники <B>HEAVEN'S GATE</B>. Они не играли вместе 15 лет, но тем занимательнее грядущий релиз для тех, кто считает NWOBHM неактуальным для века XXI. На <B>"Rage Of Fire"</B> вас поджидает взрывоопасная выжимка из наследия <B>JUDAS PRIEST</B>, возведенная в степень сверхсовременного звучания а-ля <B>RACER X</B> или <B>VICIOUS RUMOURS</B>. Релиз - 25.08.2006. Слушаем: <A href="http://www.myspace.com/redkeymetal"><U>www.myspace.com/redkeymetal</U></A>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>WINGDOM</B>. Коллектив под художественным руководством клавишника <B>Микко Харкина</B> (ex-<B>SONATA ARCTICA</B>) и басиста <B>Алессандро Лота</B> (ex-<B>RHAPSODY</B>) готовит релиз. Название - <B>"Reality"</B>. Формула: типичный мелодик метал с жесткими вкрапленими. Еще на этапе записи музыкальный материал привлек внимание <B>Тимо Котипелто</B> из <B>STRATOVARIUS</B>, который пообещал оказать<BR>группе мощную поддержку. В магазинах <B>"Reality"</B> появится с 25.09.2006. Слушаем: <A href="http://www.myspace.com/wingdomfinland"><U>www.myspace.com/wingdomfinland</U></A>&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>FRONTSIDE</B>. Эту польскую группу называют не иначе как "европейский ответ <B>KILLSWITCH ENGAGE</B>". Цитата из <B>Metal Hammer</B>: "<I>Польша становится все более современной... и вместе с тем могучей, свежей, тяжелой. Обязательно обратите внимание на эту группу.</I>" <B>Нергал</B> из <B>BEHEMOTH</B>: "<I><B>FRONTSIDE</B> доказали, что и у металкоровых бригад могут расти настоящие мужские яйца. Крышесносящая энергия, замечательные мелодии - слушать всем!</I>" <B>Мартин</B> из <B>DECAPITATED</B>: "<I>Их музыка не имеет аналогов, а<BR>выступления сводят с ума. Однозначно, мастхэв!</I>" Польский вариант их дебютного альбома, название которого в переводе на английский звучит как <B>"Twilight of The Gods. A First Step To The Mental Revolution"</B>, уже в продаже. Английская версия поступит на прилавки 28 августа.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>LAKE OF TEARS</B>. Новый альбом легендарных шведских дум-н-ролльщиков будет называться <B>"Moons and Mushrooms"</B> и выйдет в январе 2007.<BR><BR><B>VANISHING POINT</B>. Австралийские прогрессмены выступят на разогреве у <B>Закка Уайльда</B>. Концерты известного гитариста пройдут в Аделаиде (23.09) и Мельбурне (24.09). Кроме того, группа работает над материалом для нового студийного диска.&nbsp;&nbsp; <BR><BR><B>DEADSTAR ASSEMBLY</B>. Электрически-готичные металлисты сняли видео на песню <B>'Killing Myself Again'</B> с грядущего полноформатника <B>"Unsaved" </B>(дата выхода - 25.09.2006). Многие считают визуальный ряд видео настоящим шедевром жанра.&nbsp;&nbsp; <BR><BR><B>AS WE FIGHT</B>. Спустя три недели, проведенные в студии с <B>Якобом Бредалем </B>(<B>HATESPHERE, MACHINEMADE GOD, PURIFIED IN BLOOD</B>), запись <B>"Midnight Tornado"</B> закончена. Заводчик муравейной фермы <B>Тью Мэдсен</B> (<B>THE HAUNTED, KATAKLYSM, SICK OF IT ALL</B>, etc) уже начал сведение пластинки.&nbsp;&nbsp; <BR><BR><B>MYSTIC CIRCLE</B>. Календарь немецких турбомюллеров наполнен одними красными днями: совсем скоро начнется совместный тур группы с набирающей мощь немецкой блэк-формацией <B>ENDSTILLE</B>, а затем - полномасштабная европейская трасса в компании<B>&nbsp; ROTTING CHRIST</B> и <B>CARPATHIAN FOREST</B>.&nbsp;&nbsp;&nbsp; <BR><BR><B>CELESTY</B>. Альбом назван - <B>"Mortal Mind Creation"</B>. Треклист: 01. <B>Lord of Mortals</B> 02. <B>Unreality </B>03. <B>Demon Inside</B> 04. <B>War Creations</B> 05. <B>Empty Room</B> 06. <B>Among The Dreams</B> 07. <B>Back In Time</B> 08. <B>Arrival</B> 09. <B>Last Sacrifice</B> 10. <B>Final Pray</B> (Japanese bonus). Ожидаемая дата релиза - 23 октября.&nbsp;&nbsp; <BR><BR><BR>ГРЯДУЩИЕ НОВИНКИ <B>Dockyard 1</B>:<BR><BR>August 28th, 2006<BR><B>SHATTER MESSIAH - "Never To Play The Servant"<BR>FRONTSIDE - "Twilight of The Gods"<BR>REDKEY - "Rage Of Fire"<BR></B><BR>September 25th, 2006<BR><B>BLACKSHINE - "Lifeblood"<BR>DEADSTAR ASSEMBLY - "Unsaved"<BR>WINGDOM - "Reality"</B><BR><BR>October 23rd, 2006<BR><B>CELESTY - "Mortal Mind Creation"<BR>AS WE FIGHT - "Midnight Tornado"</B><BR><BR>Later:<BR><B>IRON SAVIOR</B> - tba<BR><B>DREAMLAND</B> - tba<BR><B>LAKE OF TEARS - "Moons And Mushrooms"</B><BR>and many more <BR><BR><BR><BR>новости подготовлены совместно с интернет-источником<BR><A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 19.03.2007 news MYSTIC CIRCLE на Armageddon
+
+<P><STRONG>MYSTIC CIRCLE</STRONG> заключили контракт с <STRONG>Armageddon</STRONG>. Новая работа немецких black-metal'истов выйдет в январе.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

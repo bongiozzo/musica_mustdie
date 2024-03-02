@@ -16,6 +16,27 @@ progressive-gothic-rock from Italy
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.09.2002 reviews Помечтаем о неведомом
+
+<p>Группа из Италии со своим вторым альбомом, согласно предоставленному пресс-релизу, вдохновлялась группами Coroner, Voivod, Cynic и Pink Floyd. В итоге получилось что-то не похожее ни на один из этих коллективов. Will'O'Wisp представляет собой сложнопонимаемый gothic-rock. Чистый мужской и женский вокалы, местами очень мелодичная музыка плюс частые смены ритма и ломаные мелодии. Такой progressive-gothic-rock направлен любителям интересной музыки без штампов. Хотелось бы отметить, что порой мелодии становятся слишком сложны и атмосферны, что, по-моему портит общее впечатление. Также следует обратить внимание на не очень плотное звучание гитар, которые могли бы добавить дополнительные цвета. В общем же, советую всем любителям неординарной музыки, а таковым должен стать каждый...</p>
+
+Автор: Vit Belov
+
+### 26.09.2002 reviews Let&#39;s dream about unknown...
+
+<p>The band from Italy with the second album, according to the given press release, was inspired by such groups as Coroner, Voivod, Cynic and Pink Floyd. In a result something has turned out not similar on one of these collectives. Will'O'Wisp represents "hard-understanding" gothic-rock. Clean male and female vocals, places very melodious music plus often changes of a rhythm and broken melodies. Such progressive-gothic-rock is interest for the fans of unusual music without stamps. It would be desirable to note, that at times melodies become too difficult and atmospheric, that, in my opinion spoils general impression. Also it is necessary to pay attention to not so dense sounding of guitars, which could add new colours. In general, I advise to the fans of not ordinary music, and that everyone should become to... Let's dream about unknown...</p>
+
+Автор: Vit Belov
+
+### 27.11.2011 news WILL&#39;O&#39;WISP выпустят новый альбом
+
+<P>Итальянская progressive-metal группа<STRONG> WILL'O'WISP</STRONG> выпустят новый альбом "<STRONG>Kosmo</STRONG>" в январе 2012 года на <STRONG>Nadir Music</STRONG>. Некогда известный в узких кругах коллектив возродился после десяти лет отсутствия в обновлённом составе. Места за барабанной установкой занял бывший музыкант <STRONG>SADIST Oinos</STRONG>, а басистом стал <STRONG>Jacopo Rossi</STRONG> из <STRONG>NERVE</STRONG>.</P>
+<P><center><IMG height=225 src="/images/news_rus/2011.11/22129.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

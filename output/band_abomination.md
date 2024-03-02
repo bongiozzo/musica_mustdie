@@ -24,6 +24,34 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.10.2011 news ABOMINATION: переиздание двух первых альбомов, дополненное редкими записями
+
+<P>По прошествии более чем двадцати лет с момента выхода их одноимённого дебютного альбома, лейбл&nbsp;<STRONG>Nuclear Blast</STRONG>&nbsp;переиздаёт ранний материал легендарной&nbsp;группы <STRONG>ABOMINATION</STRONG>. Релиз будет включать альбомы <STRONG>“Abomination”</STRONG> (1990)&nbsp;и <STRONG>“Tragedy Strikes”</STRONG> (1991), а так же, редкие демо-записи и&nbsp;EP. </P>
+<P>Наследие <STRONG>ABOMINATION</STRONG> все желающие смогут купить начиная с 4 ноября 2011 года. </P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21669.jpg" width=400 height=400>Трек-лист этого двойного CD:</P>
+<P><U>CD1</U>:</P>
+<P>Abomination:</P>
+<P>01. <STRONG>The Choice<BR></STRONG>02. <STRONG>Murder, Rape, Pillage and Burn<BR></STRONG>03. <STRONG>Reformation</STRONG><BR>04. <STRONG>Redeem Deny<BR></STRONG>05. <STRONG>Possession</STRONG><BR>06. <STRONG>Suicidal Dreams<BR></STRONG>07. <STRONG>Life And Death<BR></STRONG>08. <STRONG>Victim Of The Future<BR></STRONG>09. <STRONG>Tunnel Of Damnation<BR></STRONG>10. <STRONG>Follower</STRONG> (CD bonus)<BR>11. <STRONG>Impending Doom</STRONG></P>
+<P>Demo (1988):<BR>12. <STRONG>Over The Edge<BR></STRONG>13. <STRONG>Reformation<BR></STRONG>14. <STRONG>Impending Doom<BR></STRONG>15. <STRONG>Curses Of The Deadly Sin<BR></STRONG>16. <STRONG>Tunnel Of Damnation<BR></STRONG>17. <STRONG>Follower</STRONG></P>
+<P><U>CD2</U>:</P>
+<P>Tragedy Strikes:</P>
+<P>01. <STRONG>Blood For Oil<BR></STRONG>02. <STRONG>They’re Dead<BR></STRONG>03. <STRONG>Pull The Plug<BR></STRONG>04. <STRONG>Will They Bleed<BR></STRONG>05. <STRONG>Industrial Sickness<BR></STRONG>06. <STRONG>Soldier</STRONG><BR>07. <STRONG>Kill Or Be Killed<BR></STRONG>08. <STRONG>Oppression</STRONG></P>
+<P>Final War (EP):</P>
+<P>09. <STRONG>Face In The Crowd<BR></STRONG>10. <STRONG>You Could Be Next<BR></STRONG>11. <STRONG>Take A Sip Of Power<BR></STRONG>12. <STRONG>Man Created God<BR></STRONG>13. <STRONG>Mistaken Reality</STRONG></P>
+<P>Demo (1987):<BR>14. <STRONG>Victim Of The Future<BR></STRONG>15. <STRONG>Social Outcast<BR></STRONG>16. <STRONG>Raping The Grave<BR></STRONG>17. <STRONG>Possession</STRONG><BR>18. <STRONG>Doomed By The Living<BR></STRONG>19. <STRONG>The Truth</STRONG></P>
+Автор: Headcrusher
+
+### 26.01.2013 news Paul Speckmann + Rogga Johansson
+
+<P><STRONG>Paul Speckmann</STRONG> (<STRONG>MASTER</STRONG>, <STRONG>ABOMINATION</STRONG>, <STRONG>DEATH STRIKE</STRONG>)&nbsp;и <STRONG>Rogga Johansson</STRONG> (<STRONG>BONE GNAWER</STRONG>, <STRONG>DEMIURG</STRONG>, <STRONG>PAGANIZER</STRONG>, <STRONG>RIBSPREADER</STRONG>)&nbsp;в скором времени выпускают свой совместный проект <STRONG>"Sulphur Skies"</STRONG>. Диск выйдет в количестве 1000 экземпляров на <STRONG>Vic Records</STRONG>. Автор обложки: <STRONG>Arvin Palma</STRONG> (<A href="http://www.facebook.com/TorturedPalmArtOfficial">www.facebook.com/TorturedPalmArtOfficial</A>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25369.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

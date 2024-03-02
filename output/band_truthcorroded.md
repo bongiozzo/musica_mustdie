@@ -63,6 +63,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.07.2011 news TRUTH CORRODED выпускают новый альбом
+
+<P>Новый альбом австралийской thrash-metal группы <STRONG>TRUTH CORRODED</STRONG> <STRONG>"Worship The Bled" </STRONG>выйдет в Европе и Японии на <STRONG>Ultimhate Records. </STRONG>CD будет доступен в продаже 16 сентября, а в 2012 году австралийцы проедутся с туром по Европе. </P>
+<P>Барабаны для этого альбома записал <STRONG>Kevin Talley</STRONG> (<B itxtHarvested="0" itxtNodeId="14">SIX FEET UNDER</B>, <B itxtHarvested="0" itxtNodeId="13">MISERY INDEX</B>, <B itxtHarvested="0" itxtNodeId="12">DAATH</B>, <B itxtHarvested="0" itxtNodeId="11">CHIMAIRA</B>). Сведение и мастеринг проделал <STRONG>Jonas Kjellgren</STRONG>&nbsp;(SCAR SYMMETRY) в <STRONG>Black Lounge Studio</STRONG>.&nbsp;Обложку нарисовал&nbsp;<STRONG>Bjorn Gooses</STRONG>&nbsp;из <B itxtHarvested="0" itxtNodeId="6">Killustrations</B> (<B itxtHarvested="0" itxtNodeId="5">ABORTED</B>, <B itxtHarvested="0" itxtNodeId="4">DEW-SCENTED</B>).</P>
+<P><center><IMG height=396 src="/images/news_rus/2011.07/19957.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

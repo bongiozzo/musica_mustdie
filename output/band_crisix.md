@@ -49,6 +49,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.02.2016 news CRISIX выпускают свой третий альбом под названием &quot;From Blue To Black&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянские трёшеры <STRONG>CRISIX</STRONG> выпускают свой третий альбом под названием <STRONG>"From Blue To Black"</STRONG> 18 марта на лейбле <STRONG>Listenable</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор обложки: <STRONG>Par Olofsson</STRONG> (<A href="http://www.parolofsson.se/">http://www.parolofsson.se</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист: 1. <STRONG>Conspiranoia</STRONG> | 2. <STRONG>Journey Through The Fire</STRONG> | 3. <STRONG>G.M.M.</STRONG> (The Great Metal Motherfucker) | 4. <STRONG>T-Terror Era</STRONG> | 5. <STRONG>Psycho Crisix World</STRONG> | 6. <STRONG>From Blue To Black</STRONG> | 7. <STRONG>Strange</STRONG> | 8. <STRONG>Five As One</STRONG> | 9. <STRONG>Fallen</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню <STRONG>"Strange"</STRONG> можно послушать по ссылке: <A href="http://youtu.be/xtfIO9xhUM8">http://youtu.be/xtfIO9xhUM8</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28814.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

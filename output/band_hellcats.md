@@ -8,6 +8,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.03.2012 news Pоссийский тур групп IRONICA (Финляндия) и HELLCATS (Словения)
+
+<P>С 7 по 13 марта состоится совместный российский тур групп <STRONG>IRONICA</STRONG> (Финляндия) и <STRONG>HELLCATS</STRONG> (Словения).</P>
+<P><STRONG>IRONICA</STRONG> - группа, которая сегодня является одной из самых уникальных комбинаций агрессивного мелодик-метал с женским вокалом. Дебютный альбом <STRONG>IRONICA</STRONG> <STRONG>"Consequences"</STRONG> был выпущен в 2007 году и собрал хорошие отзывы и рецензии ведущих метал-изданий. Группа активно выступает в рок-и металл клубах Финляндии, а также выступала на крупных европейских рок-фестивалях. Второй альбом <STRONG>IRONICA</STRONG> <STRONG>"Vivere"</STRONG>, принесет вам агрессивный металл с брутальными гитарными риффами, массивными клавишными партиями, уникальным женским вокалом и запоминающимися мелодиями, которые в совокупности дают слушателю свежий взгляд на современный металл.</P>
+<P><A href="http://vk.com/ironicarocks">http://vk.com/ironicarocks</A><BR><A href="http://www.ironicarocks.com/">http://www.ironicarocks.com</A> <BR><A href="http://www.myspace.com/ironicarocks">http://www.myspace.com/ironicarocks</A></P>
+<P><STRONG>HELLCATS</STRONG> - олдскульная хэви-метал группа из Словении, является первым чисто женским металлическим коллективом из этой страны. Группа была сформирована в Любляне в 2003 сестрами <STRONG>Sasha</STRONG> и<STRONG> Sonja Zagorc</STRONG>, которые начали выступать вместе в детстве, когда они были еще в музыкальной школе. <STRONG>HELLCATS</STRONG> сделали запись своего первого сингла<STRONG> “Heavy Metal"</STRONG> в начале 2010. Их второй сингл<STRONG> "Vladar Noci"</STRONG> был записан на словенском и английском языке. Английское название - <STRONG>"The Master of the night''</STRONG>, был записан в студии <STRONG>Conti</STRONG> с продюсером <STRONG>Davor Konti</STRONG> c и <STRONG>Grat Austin</STRONG>, известным как продюссер группы <STRONG>LAIBACH</STRONG>. Эти две песни появились в их первом рекламном CD в июле 2011. Все их песни были написаны сестрами <STRONG>Sasha</STRONG> и <STRONG>Sonja</STRONG>. Сейчас они работают над своим новым альбом и планируют выпустить его в 2012 году. </P>
+<P><STRONG>HELLCATS</STRONG> (Slovenia)<BR><A href="http://vk.com/hellcats_slo">http://vk.com/hellcats_slo</A><BR><A href="http://www.hellcats.eu/">http://www.hellcats.eu</A><BR><A href="http://www.myspace.com/hellcats">http://www.myspace.com/hellcats</A></P>
+<P>Группы подарят своим фанатам шесть незабываемых шоу в шести городах России. Не пропустите!</P>
+<P>7 марта - Санкт-Петербург, THE FIRST BREATHE OF SPRING fest, клуб Арктика (м. Приморская, ул. Беринга, д. 38) - <STRONG>IRONICA</STRONG><BR><A href="http://vk.com/event34778058">http://vk.com/event34778058</A></P>
+<P>8 марта - Москва, GIRLS POWER METAL fest, клуб Rock House&nbsp;(м. Партизанская, Измайловское шоссе, д. 71е) - <STRONG>IRONICA</STRONG> + <STRONG>HELLCATS</STRONG><BR><A href="http://vk.com/girls_pover_metal_fest">http://vk.com/girls_pover_metal_fest</A></P>
+<P>9 марта - Калуга, фестиваль ЖЕЛЕЗНЫЕ ДЕВЫ, клуб Сумерки (ул. Хрустальная, д. 60а) - <STRONG>IRONICA</STRONG> + <STRONG>HELLCATS</STRONG><BR><A href="http://vk.com/zhdevy">http://vk.com/zhdevy</A></P>
+<P>10 марта - Тула, фестиваль TULA STORM-2012, рок-клуб Молот (ул. Луначарского, д. 12, к/т Спартак) - <STRONG>IRONICA</STRONG> + <STRONG>HELLCATS</STRONG><BR><A href="http://vk.com/tulastorm2012">http://vk.com/tulastorm2012</A></P>
+<P>11 марта - Рязань, арт-клуб Планетарий (Московское шоссе, д. 49) - <STRONG>IRONICA</STRONG> + <STRONG>HELLCATS</STRONG><BR><A href="http://vk.com/ironica_hellcats_ryazan">http://vk.com/ironica_hellcats_ryazan</A></P>
+<P>12 марта - Тамбов, ДК "Юбилейный" (пл. Льва Толстого, пл. Льва Толстого, д. 4) - <STRONG>IRONICA</STRONG> + <STRONG>HELLCATS</STRONG><BR><A href="http://vk.com/club34973814">http://vk.com/club34973814</A></P>
+<P>Видеоприветствие группы <STRONG>IRONICA</STRONG> российским фанатам в преддверии тура по России:</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/QouYm7pqX18" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

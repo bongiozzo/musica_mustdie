@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.09.2016 news Лирик-видео от FATALIST
+
+<p>Новое лирик-видео американской death metal команды<strong> FATALIST "Bloodfest"</strong> можно посмотреть ниже. Трек взят с альбома "<strong>The Bitter End</strong>", который выйдет 23 сентября на <strong>FDA Rekotz</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/fgNPCmcQn78" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 17.09.2016 news New lyric video by FATALIST
+
+<p>New lyric video by American death metal band <strong>FATALIST "Bloodfest"</strong> can be viewed below. Track taken from the album "<strong>The Bitter End</strong>" which will be released on 23 September on <strong>FDA Rekotz</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/fgNPCmcQn78" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

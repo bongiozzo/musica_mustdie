@@ -158,6 +158,416 @@ Engineered, mixed and mastered by Mollarn and Arcturus.
 * C группой "ICS Vortex" ICS Vortex (bass, vocals)
 * C группой "Borknagar" ICS Vortex (bass, vocals)
 
+## Публикации
+
+### 09.06.1999 reviews 
+
+<p>На самом деле группа уже не существует. Но вокалист этой команды Garm, он же вокалист группы ULVER, с согласия остальных музыкантов которые были задействованы в этом проекте, решил немного поэксперементировать. В результате, получился суперэкспериментальный альбом. Всего две новые вещи напоминают о прошлом группы. Как я понял, это нереализованный материал. Остальные вещи все старые и известные. Но все они представлены в новой эспериментальной индустриальной обработке. На фоне тяжёлых гитар звучит музыка всех стилей и направлений. И на всё это наложена куча потрясающих звуковых спецэффектов. Одна песня в джазовой обработке, другая в рэповой, третья в техно-версии. Много индустриальщины, техно-фишек. А последняя вещь, инструментальная, сделана в духе APOCALYPTICA, всё сыграно на виолончелях с небольшими вкраплениями скрипок. Очень впечатляет, хотя слушается альбом с большим трудом. Слишком много всего понавёрнуто, понамешано.</p>
+
+Автор: Dimas
+
+### 23.08.1999 news 
+
+<p>Emperor готовят новое видео, в которое войдут записи с концерта в Асстории в Лондоне, а также записи из жизни музыкантов между концертами. Видео выйдет в конце года. Candlelight Records переиздаст последний альбом группы "IX Equillibrium". На него войдут несколько различных версий песен. Например, Трикстер Джи (Ulver, Arcturus) работает над ремиксом песни "Sworn". Для наших фэнов будет интересно, что группа выступит на фестивале в Польше 9 октября вместе с Peccatum, Limbonic Art, Hypocrisy, The Kovenant (новое название Covenant). Концертный клавишник Emperor Шарман Гримлох выпусти свой сольный альбом "The Red Jewel" в сентябре.</p>
+
+Автор: Vit Belov
+
+### 04.10.1999 news 
+
+<p>Fleurety начали микс своего нового альбома. Произведение будет называться "Department of Apocalyptic Affairs", и на нём появятся много приглашённых музыкантов, в частности Hellhammer и Maniac из Mayhem и Sverd из Arcturus.</p>
+
+Автор: Vit Belov
+
+### 29.09.2000 news Хорошие новости от Arcturus
+
+<p> Новый диск Arcturus выходит в начале 2001-го года. Это будет мини-диск под названием 'Of Entity and Mind'. Все пять трэков альбома будут выдержаны в стиле последнего релиза группы - тот же чистый вокал, мелодичные гитары, атмосферные клавишные . В составе группе произошли некоторые изменения. Место за ударной установкой по-прежнему займет легендарный Хэлхаммер, гитарные партии исполнит Карл Август Тайдмэнн, голосить будет Ларс Эрик Сай вместе с Энди Винтером, Полом С. и К. Хаугеном на подпевках.</p>
+
+Автор: Nybras
+
+### 29.09.2000 news Good news from Arcturus
+
+<p> The first release by this new band is tentatively scheduled for release in early 2001, it will be a MCD already titled 'Of Entity and Mind' featuring 5 outstanding tracks in the vein of the late Arcturus...clear vocals, progressive touches, melodic guitar parts and floating synth. Featuring the legendary drumming of Hellhammer and the guitar virtuosism of Carl August Tidemann (Arcturus, Tritonus), as well as Lars Eric Si (Jack in the Box, Sensa Anima) on vocals plus Andy Winter as additional vocalist, Paul S. and K. Haugen.</p>
+
+Автор: Nybras
+
+### 05.02.2002 news ARCTURUS NEWS
+
+<p>The End Records is very proud to announce we will be releasing the new album by the Norwegian band ARCTURUS entitled, "The Sham Mirrors" for North America. ARCTURUS which consists of ultra talented musicians including Garm (Ulver, Borknagar, etc.) and Hellhammer (Mayhem, Winds, Kovenant, etc.) among others, is considered as one of the pioneer bands of the avant-garde metal and have released exceptional albums in their career, including the groundbreaking "Aspera Hiems Symfonia", "La Masquerade Infernale", and more recently the "Disguised Masters" (which consisted of mostly remixed songs).</p>
+
+Автор: Dimas
+
+### 05.02.2002 news Норвежцы снова в строю
+
+<p>Норвежская группа ARCTURUS выпустит в ближайшее время свой новый альбом под названием "The Sham Mirrors" на The End Records. В группе остались такие талантливые музыканты как Garm (Ulver, Borknagar и др.) и Hellhammer (Mayhem, Winds, Kovenant и др.). ARCTURUS являются пионерами авангардного black metal. На их счету такие исключительные шедевры как "Aspera Hiems Symfonia" и "La Masquerade Infernale".</p>
+
+Автор: Dimas
+
+### 30.03.2002 reviews Кривое зеркало и Отражение  Я  – Музыкальные шедевры поколения „девяностых“
+
+<p>Сижу смотрю в окно, в нём, как в кривом зеркале, на фоне тающей грязной слякоти и тумана видно неясное отражение моего лица . Но моё ли это отражение? – маска с застывшими трагикомичными чертами, с глубоко впавшими глазницами – лицо мертвеца. А за окном идёт снег и ползут по грязи похожие на тараканов люди. За спиной из колонок льётся музыка. Прислушиваюсь к ней и в голове вдруг возникает странная мысль, какой вклад в мировую музыкальную культуру внесло наше поколение – поколение „девяностых“, чья молодость пришлась на переломные моменты в мировой истории. Какаю мы создали неразрывно связанную с музыкой субкультуру? Поколение тридцатых – внесло джаз, пятидесятых- рокнролл, шестидесятых – хипповый рок, семидесятых - панк, восьмидесятых – метал, a что внесли мы ? Неужели о нас будут вспоминать как о поколении создавшем ультрапримитивную ритмичную синтетическую музыку, так называемыe – техно, эйсид, драмнбэйс? Отчасти так оно и будет. Но думаю, что наше поколение больше преуспело не в этом, а в создании умопомрачительных музыкальных коктейлей, в которых смешивались самые, казалось бы несопоставимые музыкальные стили.</p>
+<P> Может быть кто то скажет что я неправ, но альбомы норвегов ARCTURUS - =The Sham Mirror= и WINDS - =The Reflections Of The I= - яркие представители музыки поколения “девяностых”, хоть и созданы и появились на свет в ноном эре, новом веке, новом десятилетии – но они созданы людьми из поколения “девяностых”. Эти два альбома нельзя рассматривать отдельно и не только потому, что их создали на три четверти одни и те же музыканты. „Кривое зеркало“ и „Отражение - Я“, похожи на разнояйцевых близнецов, зачатых в утробе матери в одно и тоже время. Они вроде бы разные и вместе с тем очень похожи. Я затрудняюсь вообще обозначить что это за музыкальные стили. Хотя примерно это бы звучало так Winds – orchestral symphonic goth‘n‘rock, Arcturus – avantgarde-ellectronic postblack metal. Ясно одно – эти альбомы созданы и записаны настоящими МУЗЫКАНТАМИ, а не подростками из podval/garage records.</>
+<P> Оба диска отличаются виртуозной игрой музыкантов и бесподобными вокальными партиями. Сравнивать их с чем либо не представляется никакой возможности. Это просто надо УСЛЫШАТЬ!</>
+<P> Добавлю лишь то, что при записи „Кривого Зеркала“ далеко не последнее участие принял известный в определённых кругах Insahn (Emperor, Peccatum), а при записи „Отражения –Я“ – использован симфонический оркестр.</>
+
+Автор: ZYKLON
+
+### 10.11.2002 reviews Extremely controversial work
+
+<p>Extremely controversial work. But it’s ARCTURUS, isn’t it? Hence, I guess that if you expected “The Sham Mirrors” to be mere self-plagiarism or anything orthodox, you’re just a fool. I’d dare to say I’m not… however I’m definitely in need of words. Reviewing works like “The Sham Mirrors” (and there’s really few in number, believe me!) is nothing but a verbal suicide. So better get acquainted with a review by The End Records who made this work available in North America. I just couldn’t say better: “Honored sonic surrealists ARCTURUS lay down before you their latest work, “The Sham Mirrors”. In a time when the terms “avant-garde” and “progressive” are thrown around too loosely in the metal lexicon, “The Sham Mirrors” arrives to defy such easy tags. It explodes like a supernova throughout it’s 43-minute duration; it lays another mighty brick in the tower these explorers have been building since 1991… The new album remains metal at it’s core while dragging the genre through endless tunnels of light, color and sound that it has never before seen. The Trickster Garm showcases his previously-unexplored falsetto range; Hellhammer offers a percussive display that teeters between the organic and the inhuman; Sverd’s keys pepper the spaces with masterful confidence. In a perfect world (far from the one we inhabit), lead-off track “Kinetic” would be a global hit single. Six songs later, the album closes with the cosmic 10-and-a-half minute opus, “For To End Yet Again”, itself alone worthy of a lifetime of inspection. Note for note, song for song, “The Sham Mirrors” is most likely ARCTURUS’ grand achievement, pulling together various facets of their previous releases and molding it into a bold new shape.”</p>
+<P>Worldwide distribution is being handled by Voices Music & Entertainment. Surf their website at <<A HREF="http://www.vme.no">http://www.vme.no</A>>. Email VME at <<A HREF="mailto:info@vme.no">info@vme.no</A>></>
+<P>North America residents, contact The End Records at <<A HREF="mailto:theend@theendrecords.com">theend@theendrecords.com</A>> or visit them online at <<A HREF="http://www.theendrecords.com">http://www.theendrecords.com</A>></>
+
+Автор: Kai Mathias Stalhammar
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 06.01.2005 news ARCTURUS остались без вокалиста
+
+<P>По данным официального сайта норвежской группы <STRONG>ARCTURUS</STRONG>, группу покинул ее вокалист <STRONG>Oystein Haegeland. </STRONG>Причины ухода не указываются. </P>
+Автор: Dimas
+
+### 15.01.2005 news Новый вокалист ARCTURUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальное сообщение: новым вокалистом норвежской группы <STRONG>ARCTURUS</STRONG> стал <STRONG>Simen Hestnaes</STRONG>, известный как&nbsp;<STRONG>ICS Vortex</STRONG>, бывший вокалист <STRONG>BORKNAGAR</STRONG> и нынешний басист-вокалист <STRONG>DIMMU BORGIR</STRONG>. Уже 27 января в Лондоне состоится первое выступление группы с новым вокалистом. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Simen Hestnaes</STRONG> уже записывал вокалы и принимал участие в написании лирики&nbsp;для трех песен <STRONG>ARCTURUS</STRONG> на альбоме <STRONG>"La Masquerade Infernale"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ранее анонсированный новый вокалист группы O<STRONG>yvind Haegeland</STRONG> (<B>SPIRAL ARCHITECT</B>) покинул группу по неразглашаемым причинам.<BR></P></FONT>
+Автор: Dimas
+
+### 18.01.2005 news ARCTURUS подписали контракт с SEASON OF MIST
+
+<P>Норвежцы&nbsp;<B>ARCTURUS</B>, в составе которых новый вокалист <B>Simen Hestnaes</B>, известный как&nbsp;<B>ICS Vortex (</B>ex-<B>BORKNAGAR</B>, <STRONG>DIMMU BORGIR</STRONG>) подписали контракт на выпуск нового альбома через <B>Season Of Mist</B>. Релиз планируется на август 2005 года, после чего группа отправится в&nbsp;европейское турне.</P>
+Автор: Dimas
+
+### 04.04.2006 news Выход dvd ARCTURUS задерживается
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=178 alt="" hspace=15 src="/images/news_rus/2006.04/10195.jpg" width=117 align=left border=0>Из-за возникших производственных проблем, откладывается выход нового dvd норвежской группы <STRONG>ARCTURUS</STRONG> <STRONG>"Shipwrecked in Oslo" </STRONG>на<STRONG> Season Of Mist.</STRONG> Дата его релиза пересена с 24 апреля на 22 мая 2006 года. Данный dvd содержит концертный материал, снятый&nbsp;при выступлении группы на <B>Sonic Solstice Festival</B> в Осло 24 сентября 2005 года. Российский релиз dvd ожидается летом на <STRONG>CD-Maximum</STRONG>.</FONT></P>
+Автор: Dimas
+
+### 13.05.2007 news ARCTURUS развалились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ARCTURUS</STRONG> прекратили своё существование, из-за личных мотивов и проблем с графиком задействованных в группе музыкантов. Подробностей не сообщается.</FONT></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### ARCTURUS без Гарма - ваши прогнозы?

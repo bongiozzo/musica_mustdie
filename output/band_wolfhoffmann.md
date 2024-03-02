@@ -64,6 +64,41 @@ Produced by Michael Wagener
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.12.2005 news Wolf Hoffmann рассказывает о своих планах
+
+<P>Гитарист <STRONG>ACCEPT Wolf Hoffmann</STRONG> дал интервью греческому веб-зину <A href="http://www.metalzone.gr/">www.metalzone.gr</A>, в котором рассказал о своих ближайших планах. Как выяснилось, <STRONG>Wolf</STRONG> не собирается долго отдыхать после ре-юнион тура <STRONG>ACCEPT</STRONG>. <STRONG>Hoffmann</STRONG> готовит грандиознейшее тур-шоу, основанное на его сольнике "<STRONG>Classical</STRONG>", вышедшем в 1997 году. На сцене будет задействован оркестр, и зрители увидят множество визуальных эффектов. </P>
+<P>Кроме этого, <STRONG>Hoffmann </STRONG>поучаствует в концертах <STRONG>Sebastian Bach</STRONG> (ex-<STRONG>SKID ROW</STRONG>) в Штатах и проедется с туром по Германии в компании <STRONG>Uli Roth</STRONG> и <STRONG>Michael Schenker</STRONG>.&nbsp;Позже возможны концерты по всему миру с этим all-star проектом.&nbsp;</P>
+Автор: Vit Belov
+
+### 22.04.2016 news Wolf Hoffmann, гитарист ACCEPT, выпускает свой второй сольный альбом
+
+<P><STRONG>Wolf Hoffmann</STRONG>, гитарист <STRONG>ACCEPT</STRONG>, выпускает свой второй сольный альбом с переработкой классической музыки. Диск получил название <STRONG>"Headbangers Symphony"</STRONG> и выйдет 1 июля 2016 года на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Предыдущий сольный альбом гитариста под названием <STRONG>"Classical"</STRONG> вышел в сентябре 1997 года.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Scherzo</STRONG> (L. v. Beethoven) | 02. <STRONG>Night On Bald Mountain</STRONG> (M. Mussorgsky) | 03. <STRONG>Je Crois Entendre Encore</STRONG> (G. Bizet) | 04.<STRONG> Double Cello Concerto in G Minor</STRONG> (A. Vivaldi) | 05. <STRONG>Adagio</STRONG> (T. Albinoni) | 06. <STRONG>Symphony No. 40</STRONG> (W. A. Mozart) | 07. <STRONG>Swan Lake</STRONG> (P. Tchaikovsky) | 08. <STRONG>Madame Butterfly</STRONG> (G. Puccini) | 09. <STRONG>Pathetique</STRONG> (L. v. Beethoven) | 10. <STRONG>Meditation</STRONG> (J. Massenet) | 11. <STRONG>Air On The G String</STRONG> (J. S. Bach)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.04/29158.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 08.06.2016 news WOLF HOFFMANN продолжает классику
+
+<p>Второй сольный альбом гитариста<strong>&nbsp;ACCEPT Wolf Hoffmann "Headbangers Symphony"</strong>&nbsp;выходит 1&nbsp;июля<strong> Nuclear Blast</strong>.На новом диске музыкант продолжает тему, вышедшего почти 20 лет назад альбома&nbsp;<strong>"Classical"</strong>, на котором он переигрывал классические произведение в рок-метал обработке.&nbsp;Первый трэк с этой пластинки&nbsp;"<strong>Scherzo</strong>" можно послушать ниже.</p><p>Трек-лист:</p><p>Scherzo (L. v. Beethoven)<br>Night On Bald Mountain (M. Mussorgsky)<br>Je Crois Entendre Encore (G. Bizet)<br>Double Cello Concerto in G Minor (A. Vivaldi)<br>Adagio (T. Albinoni)<br>Symphony No. 40 (W. A. Mozart )<br>Swan Lake (P. Tchaikovsky)<br>Madame Butterfly (G. Puccini)<br>Pathetique (L. v. Beethoven)<br>Meditation (J. Massenet)<br>Air On The G String (J. S. Bach)</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/PHlBRrooEH4" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 02.07.2016 news Новое видео WOLF HOFFMANN
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Вчера на<strong> Nuclear Blast</strong> вышла вторая часть классического сольного проекта гитариста <strong>ACCEPT Wolf Hoffmann "Headbangers Symphony"</strong>. На этой работе гитарист переосмысливает классическую музыку в метал-обработке. Ниже можно посмотреть свежий клип на музыку Муссоргского "<strong>Night On Bald Mountain</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>“Scherzo” (L. v. Beethoven)<br>“Night On Bald Mountain” (M. Mussorgsky)<br>“Je Crois Entendre Encore” (G. Bizet)<br>“Double Cello Concerto in G Minor” (A. Vivaldi)<br>“Adagio” (T. Albinoni)<br>“Symphony No. 40” (W. A. Mozart )<br>“Swan Lake” (P. Tchaikovsky)<br>“Madame Butterfly” (G. Puccini)<br>“Pathetique” (L. v. Beethoven)<br>“Meditation” (J. Massenet)<br>“Air On The G String” (J. S. Bach)</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/lr7L8pd-m9g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.07.2016 news New video of WOLF HOFFMANN
+
+<p>Yesterday <strong>Nuclear Blast</strong> released the second part of the classical solo project of the guitarist of<strong> ACCEPT</strong>, <strong>Wolf Hoffmann "Headbangers Symphony"</strong>. In this work, the guitarist reinvents classical music in metal. Below you can watch the latest clip for the music of Mussorgsky "<strong>Night On Bald Mountain</strong>".</p><p>Track list:</p><p>“Scherzo” (L. v. Beethoven)<br>“Night On Bald Mountain” (M. Mussorgsky)<br>“Je Crois Entendre Encore” (G. Bizet)<br>“Double Cello Concerto in G Minor” (A. Vivaldi)<br>“Adagio” (T. Albinoni)<br>“Symphony No. 40” (W. A. Mozart )<br>“Swan Lake” (P. Tchaikovsky)<br>“Madame Butterfly” (G. Puccini)<br>“Pathetique” (L. v. Beethoven)<br>“Meditation” (J. Massenet)<br>“Air On The G String” (J. S. Bach)</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/lr7L8pd-m9g" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

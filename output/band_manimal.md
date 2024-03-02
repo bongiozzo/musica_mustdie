@@ -16,6 +16,35 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.12.2015 reviews Новое первое знакомство с шведской группой
+
+<P>Шведская группа MANIMAL была образована в 2001 году. Дебютник коллектива вышел в 2009 году на AFM. Группа запомнилась приятным мелодичным power metal с некоторой ненавязчивой примесью progressive. Второго альбома пришлось ждать целых шесть лет. Естественно, это заезженная фраза, не имеющая особого смысла, так как вряд ли MANIMAL много кому запомнился своим первым альбомом. Теперь придётся знакомиться с группой заново.</P>
+<P>Ожидая услышать что-то неторопливое и несколько занудное при постановке компакт-диска в проигрыватель, я был приятно удивлён мощью и напором открывающей композиции «Irresistible”. По своей структуре эту вещь, на которую MANIMAL сняли клип, можно привычно сравнить с «Painkiller”, но можно и вспомнить более свежие аналогии, например, с CAGE. Конечно, весь альбом выдержать в подобном первобытном стиле у шведов не получается, но в этом-то и кроется&nbsp; положительный момент. MANIMAL великолепно чередуют забойные heavy metal боевики с балладами и melodic power metal эпиками в духе классиков жанра из Европы. Вроде бы шведы не предлагают нашему вниманию чего-то сверхнеобычного, но все элементы современного метала выполнены на столь высоком уровне, что фэнам стиля просто необходимо послушать «Trapped In The Shadows”. Как последний аргумент в пользу приобретения данной пластинки, участие на одной песне знаменитого Udo Dirkschneider.</P>
+<P>Очень хороший диск группы, которая, вероятно, попытается пробиться в авангард европейского power metal. Почти наверняка для этого ей потребуются запредельные усилия, но шаги в этом направлении будут сделаны. В доказательство этого запланированные на 2016 год тур и выступления на фестивалях.</P>
+<P>Купи на сайте <A href="http://escapemind.ru/goods/MANIMAL-Trapped-In-The-Shadows">Escapemind.ru</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/aZw645XebaQ" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Vit Belov
+
+### 04.01.2016 news Хиты продаж за декабрь 2015
+
+<P><IMG border=0 hspace=0 alt="" src="/images/news_rus/2016.01/28633.jpg" width=420 align=right height=420>Рейтинг продаж на точке B2-230 магазин Музика на Горбушке и интернет-магазина <STRONG>Escapemind.ru</STRONG> за декабрь 2015 года по лицензионным дискам можно увидеть ниже.</P>
+<P>1. <STRONG>VOODOO CIRCLE “Whisky Fingers”</STRONG> 2015<BR>2. <STRONG>MANIMAL “Trapped In The Shadows”</STRONG> 2015<BR>3. <STRONG>SWALLOW THE SUN “Songs from the North I, II & III”</STRONG> 2015<BR>4. DRACONIAN "Sovran" 2015<BR>5. MAGNUS KARLSSON’S FREE FALL "Kingdom Of Rock" 2015<BR>6. ALGHAZANTH "3CD-Package" 2015<BR>7. SOLUTION .45 “Nightmares In The Waking State Part I” 2015<BR>8. MALEVOLENT CREATION "Dead Man’s Path" 2015<BR>9. LACRIMOSA "Hoffnung" 2015<BR>10. DARK MOOR “Project X” 2015</P>
+Автор: Vit Belov
+
+### 04.07.2016 news MANIMAL: видео с текстом с участием Udo DIRKSCHNEIDER
+
+<p>Шведская heavy metal группа <strong>MANIMAL</strong> обнародовала новое видео с текстом на свою песню "<strong>The Journey</strong>" с альбома "<strong>Trapped In The Shadows</strong>", вышедшего в октябре прошлого года альбома, с участием <strong>Udo DIRKSCHNEIDER</strong>:</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/xqVEFmcs3ew" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 04.07.2016 news MANIMAL: New lyric video feat. Udo Dirckchneider
+
+<p>Swedish heavy metal band<strong> MANIMAL</strong> has unveiled a new lyric video for the song "<strong>The Journey</strong>" featuring<strong> Udo DIRKSCHNEIDER</strong> from the album "<strong>Trapped In The Shadows</strong>", released in October last year:</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/xqVEFmcs3ew" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

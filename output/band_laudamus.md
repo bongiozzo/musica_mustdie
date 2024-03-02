@@ -8,6 +8,15 @@ melodic metal from Sweden
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.12.2002 news Laudamus coming...
+
+<p>Melodic metallers Laudamus have now finished the recording of their new cd. Producer was no other than Ken Tamplin! They also had some famous guestplayers like Rob Rock (Joshua, Impellitteri), Kee Marcello (Europe), Mattias IA Eklund (Freak Kitchen), Ed Roth, Marty Friedman (Megadeth) and Jeff Scott Soto (Yngwie Malmsteen, Talisman).</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

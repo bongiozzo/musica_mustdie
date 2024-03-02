@@ -400,6 +400,1084 @@ Recorded at Rogue Music in Gothenburg, Sweden.
 
 * C группой "In Flames" Michael Stanne
 
+## Публикации
+
+### 19.03.1999 news 
+
+<p>Группа Dark Tranquillity решила подписать контракт для выпуска своего нового альбома с Century Media. "Projector" выйдет в июне этого года.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Новый альбом Dark Tranquillity "Projector" выйдет 23 июня.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Новым басистом Dark Tranquillity стал Михаэль Никлассон, известный по участию в группе Luciferion.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Группа Dark Tranquillity снимет клип на песню "Therln" в ближайшем будущем.</p>
+
+Автор: Vit Belov
+
+### 09.06.1999 reviews 
+
+<p>Ну наконец-то! Как же долго я ждал этот альбом, выпуск которого постоянно откладывался.Предыдущий альбом группы мне, честно говоря, не очень понравился. Нет он был очень приличный, но не выдерживал сравнения с ранними работами группы. Он был с сильным креном в сторону black-metal. Поэтому я ждал, что на этом альбоме ребята продолжат углубляться в блэк далее, но сделают это на более высоком уровне. Но DARK TRANQUILLITY перехитрили меня и выдали совсем не то, что я ожидал. Однако я не печалюсь, ибо выдали они совершенно чумовые вещи. Естесственно, они сохранили свой фирменный саунд, но заметно сбавили скоростные обороты, добавили много простого мужского вокала в виде приятного душевного баритона, но и старое хрюканье не на вторых ролях. Иногда подпевает приятный женский вокал, который можно было слышать и на первых двух альбомах группы. Кстати, по духу этот альбом напоминает дебютный альбом "Skydancer". Особенно те медленные вещи, что были на нём. Уровень тяжести на альбоме не из лёгких, мелодичность - просто супер!. Думаю, альбом приятно удивит всех поклонников шведского death-black'a. Очень сильный материал!</p>
+
+Автор: Dimas
+
+### 26.06.1999 reviews 
+
+<p>Прослушав эту работу захотелось немного дополнить Dimas'а и не согласиться с ним в некоторых вещах. Материал группы представляет резко облегчённый вариант предыдущих альбомов. Экстремальный вокал включается только в особо ответственные моменты и явно не является доминирующим. Фирменный саунд Dark Tranquillity остался только в тех местах, где этот хрип существует, а в остальных местах всё гораздо медленее и менее экстремально чем раньше. Согласен, что волкалист поёт довольно интересно, но к дэт-блэку это можно отнести с таким же успехом, как и к дэт-думу или дум-блэку. Здесь есть всего понемногу. Но если раньше DT заряжали меня энергией на весь день, то сейчас это вполне милая полумедленная музыка для нахождения в пробке в кипящей машине или для нечто подобного. Повторюсь всё довольно интересно, а при воспоминании, что это DT, вообще, вгоняет в непонятный транс со слезами умиления на глазах. 6,5 из 10</p>
+
+Автор: Dimas
+
+### 21.10.1999 reviews Неплохо, но лучше играть как раньше
+
+<P>"Ждите перемен в музыке" - так говорили DARK TRANQUILLITY в последнее время. Уж очень не хотелось в это верить, но таки дождались... "Вот тебе батенька и Юрьев День..." Тот старый DARK TRANQUILLITY и новый, который "Projector" - это две большие разницы. Музыка стала явно легче и никакая мелодичность альбом не спасает. Кроме того веяния моды достали и этот некогда бескомпромиссный коллектив и Mikael Stanne стал пробовать петь открытым вокалом. Н-да, препогано это у него получается. Женский вокал и обилие клавишей практически доводят альбом до среднего уровня. И только там где сквозь эксперименты и новизну прорывается старый добрый рык Mikael Stanne и там где скорость и экстремальная яростная энергия сливаются в единое целое, там еще бушует как ураган старый любимый всеми DARK TRANQUILLITY - короли скоростного death metal. Итого, если воспринимать альбом как эксперимент - то неплохо, но лучше играть как раньше. А если это новый стиль группы, то я жирным черным маркером вычеркиваю их из рядов своих фаворитов.</P>
+Автор: Alexey Pitirimov
+
+### 26.03.2000 news 
+
+<p>Новый альбом Dark Tranquillity выйдет в августе-сентябре. Сообщается, что группа вернётся к своим корням (класс!)</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>После успешного европейского турне вместе с In Flames группа Dark Tranquillity начнет работу над своим пятым по счету альбомом в студии. Название альбому пока не дано, но уже известен его трек лист: 'Cornered', 'Ego Drama'. 'Haven', 'Emptier Still', The Wonders At Your Feet' и 'Misery In Me'. Релиз намечен на конец лета.</p>
+
+Автор: Vit Belov
+
+### 08.06.2000 reviews Отличный материал в духе предыдущего альбома
+
+<p>Не перестаю удивляться оперативности наших пиратов. Очередной релиз из серии "музыка из будущего". Альбом DARK TRANQUILLITY выходит у нас за месяц до официального релиза. Впечатляет? Меня во всяком случае, это радует. Хоть в чем-то мы перегоняем остальной мир. Но, вернемся к музыке. Что мы имеем? Отличный материал в духе предыдущего альбома группы. Как ни грозилась группа в интервью перед альбомом, что планируется возврат звучания к корням, этого не произошло. Да звучание стало немного потяжелее, менее лирично-меланхоличное, все меньше медленных отступлений, но общий темп по-прежнему чуть выше среднего. Много клавишных, добавились всякие электронные штучки. но в мелких вставках, почти незаметных. Единственное возвращение к корням только по вокальной линии. Теперь Микаэль Станне больше не экспериментирует с чистым вокалом. только хрипит. Хорошо это или плохо, трудно сказать. Те, кто принял перевоплощение группы получат огромное удовольствие от прослушивания этого чужесного альбома.</p>
+
+Автор: Dimas
+
+### 08.06.2000 reviews Excellent material in spirit of the previous album of group
+
+<p>Excellent material in spirit of the previous album of group. As the group in interview before an album was threatened, that the return of sounding to the radicals is planned, it has not taken place. Yes the sounding became little bit heavier, less lyric-melancholic, it is ever less slow retreats, but the general rate still hardly is above the average. A lot of keyboard, everyones were added electronic samples. But in small-sized insertions, almost imperceptible. Unique returning to the radicals only on a vocal line. Now Michael Stanne does not experiment any more with pure vocal. Only rattles. Well it or is bad, it is difficult to tell. Those who has accepted transformation of group will receive huge pleasure from listening its magical album.</p>
+
+Автор: Dimas
+
+### 31.08.2000 news Dark Tranquillity в сентябре отправятся в турне
+
+<p> Dark Tranquillity в сентябре отправятся в европейское турне вместе с Sentenced, In Flames и To Die For. А пока Century Media готовит к выпуску на территории США двух альбомов группы "Skydancer" и "Of Chaos And Eternal Night".</p>
+
+Автор: Nybras
+
+### 10.12.2000 news Dark Tranquillity пишут новые песни.
+
+<p>В настоящее время Dark Tranquillity заняты сочинением новых песен для шестого (пока ещё неназванного) альбома. Материал все еще находится в очень ранней стадии, так что невозможно дать какие-либо предсказания относительно характера музыки, но, как обычно, группа предложит альбом, отличающийся от своих более ранних творений.</p>
+
+Автор: Morsus
+
+### 10.12.2000 news Dark Tranquillity are writing new songs.
+
+<p>The band is currently busy writing new songs for their sixth album (untitled). The material is still in a very early stage so it’s impossible to give any predictions regarding the nature of the music, but as usual the band will offer an album that is different from their earlier efforts.</p>
+
+Автор: Morsus
+
+### 20.09.2001 news Новый альбом Dark Tranquillity
+
+<p> Dark Tranqullity 6 февраля 2002 года двинутся в студию Fredman ваять шестой по счёту, безымянный пока ещё альбом.</p>
+
+Автор: Morsus
+
+### 20.09.2001 news New album of Dark Tranquillity
+
+<p> Dark Tranqullity will enter Studio Fredman on the 6th of February 2002 to record their 6th, as yet untitled, full length album.</p>
+
+Автор: Morsus
+
+### 05.12.2001 articles With Or Without You - Dark Tranquillity Interview
+
+<p>Dispute all you want about how Dark Tranquillity aren't as groundbreaking as they once were, but one fact remains in the band's long history of metal mastery. Dark Tranquillity have always been unpredictable. From the genre-defining Skydancer full-length to the unexpected leap into Projector, Dark Tranquillity are one step ahead of the mass quantities of bands with that distinct "Gothenburg sound." Even before the phrase New Wave Of Swedish Death Metal was coined by some keen journalist, Dark Tranquillity were moving away from the sound that typified the movement. Call it foresight, call it luck, but whatever it is, these incredibly talented musicians were never ones to be pigeonholed into the sound they helped forge into an international force. Last year's Haven album proved just that. Largely overlooked by fans and journalists alike, the album was a masterpiece in contrast and subtlety - certainly Haven didn't rely on the strong, one-string melodies that hurled Dark Tranquillity into the spotlight. What Haven did establish is that Dark Tranquillity have learned how to write dark, aggressive pop tunes that have as much to do with Depeche Mode and U2 as they do with Kreator, Iron Maiden and Skyclad - Cringe in horror or bask in the album's addictive songsmithing. Dark Tranquillity have been all too quiet in the last six months, so we decided to knock on guitarist Niklas Sundin's door and see what's been occupying the band's time between albums. <BR> <BR> Since you've been around the Gothenburg scene for over 10 years, looking back on what you've achieved musically and artistically must be rewarding. A Moonclad Reflection sounds so dated now, but there's still a spark of energy and originality after all these years. Care to comment on that. <BR> <BR> I don't really know what to say...It's great that you think that we still have the spark, since one of the main concerns for us has always been to try to keep the music fresh and original. It's so common that bands get tired and dull and play it safe by comfortably staying within the same musical borders year after year just to please their audience. A Moonclad Reflection sounds incredibly dated and very chaotic today, both when it comes to the playing and the arrangements, but it's a good documentation of what we were about at the time. <BR><BR> What's it like knowing you've had a resounding impact on extreme/heavy metal worldwide. Dark Tranquillity were the first band to have the "Gothenburg Sound" tag. Gothenburg was a very positive force for just as long, if not more, than the "Stockholm scene." How has that impacted you as a person and songwriter?<BR> <BR> Honestly, the only time I reflect about the "success" of our band is when I'm given the question in interviews, and I can only say that it's nothing that plays much role at all in our lives. In a way it can feel good that we've helped to pioneer a movement or whatever one can call it, and of course we're proud to have made some sort of impact during the years, but I can't see that it has affected us as persons very much. It's not like we're sitting down in huge mansions at the countryside, opening the daily bottle of champagne and feel like godfathers of metal. [laughs] Success in this style of music is still very moderate. We've never been close to making a living out of our music and have always had other ways of supporting ourselves, so D.T. has never been a full-time venture. There really isn't anything in it that can make a huge impact on a personal level compared to, say, the Robbie Williams-type of success which probably can be pretty life-changing...being able to afford everything you want and immerse yourself in luxury and decadence all the way. <BR> <BR> Skydancer is a genre-defining album. Even though you wrote that in '92/'93 you must be proud of songs like "A Bolt of Blazing Gold" and "Shadow Duet." When listening to your old work (pre-The Gallery) do you feel still connected to it in anyway?<BR> <BR> It's very seldom that I listen to the old albums, perhaps once a year or something, and when I do it's mostly for their nostalgical value. We're still proud of everything we've done, and what I like about Skydancer is that while the playing and production isn't the best, it was very uncompromising and different from everything else that was around at the time. I guess there's some sort of connection still, since we put so much time and effort into writing that album, and those songs trigger a lot of memories about the "good old times"; a very intense and happening period for the band. We still lived with our parents, and rehearsed incredibly much, trying to learn how to play our instruments and basically spent almost every minute of our spare time promoting the band and struggling to get a record deal. Some of us were fanatical tape traders and really involved in the underground scene at that time - writing scene reports for 'zines and sending dozens of letters every week - and it was of course a very special environment and subculture to be part of. But it does feel like centuries ago. [laughs] <BR> <BR> Come to think of it, Dark Tranquillity paved the way for the popular dual vocal styles that In Flames, Soilwork, Opeth and so on are using to great effect. Mike's 'clean' vocals back then were such a revelation for death metal. Did you ever get any negative feedback on his singing over the top of Anders?<BR> <BR> I don't know if we can take the credit for that...I'm pretty sure that other bands had combined different (male) vocal styles before us, but it wasn't so common back then. Same thing goes for the female vocals, which eventually got a pretty usual and predictable way of adding "atmosphere" to the music. We were very impressed with how bands like Paradise Lost or Sabbat occasionally used different vocals, so we wanted to have a go at it ourselves. We contacted an old classmate of mine, Mikael and Martin's and she got very excited about the prospect of singing on a real album. Negative feedback? Not a lot to be honest. Most reviews were very positive, apart from a couple of real slaggings. The "bonus" vocal parts were usually listed as a good thing about our music. People really weren't used to that sort of music then. I recall reading reviews that said that we used tons of violins, cello, choirs and the likes, which was pretty odd. <BR> <BR> In many ways, Dark Tranquillity's prime motivator has always been contrast, merging diametrically opposed forces into a sort of sonic journey. How do you think the implementation of contrast and compositional dynamic has helped the band stay ahead of normality?<BR> <BR> I think that the "sonic journey"-approach to making music was something that's more applicable to our older material. Some songs on, for example, Skydancer have very complex arrangements with themes and countermelodies appearing in lots of different shaps and contexts; a bit like classical music. I think it was your old Requiem review that said that the album induced the feeling of travelling over mountain passages or something, and that says a lot about what we tried to achieve at that time. Our newer songs have more basic, rock-ish structures that on the other hand allow us to explore contrast and dynamics to a greater degree. Of course, the addition of keyboards have allowed us to develop a lot in those areas as well. Whether this has helped us stay ahead of normality or not I don't know. One thing that separates us from most other bands is our writing method. All the members contribute with riffs and ideas to our music, which might help to keep the sound more unpredictable. <BR><BR> Projector and Haven were definitely albums that were unpredictable, especially Projector. Artisitically, looking back on how Projector proceeded The Mind's I, the change seems very natural, taking into account the numerous "Gothenburg" bands releasing albums at the time. Do you see Dark Tranquillity's vocal and style changes as a natural progression or a reaction to the proliferation of "Gothenburg" bands?<BR><BR> It's a bit of both. We never plan too much ahead when writing an album, so everything we do musically is, in a way, a natural progression. At the same time, we were extremly tired of everything that had to do with melodic death metal in general and the "Gothenburg sound" in particular, so Projector can also be seen as a reaction to that. It wasn't a calculated move to make that kind of an album; it was the only thing we could do in order to maintain our interest in continuing with the band. Projector certainly got mixed reactions when it was released, but now people seem to like it a lot. On Haven, we wanted to bring back some intensity to the music again. <BR><BR> In a way, many of the Swedish bands seemed to lose sight of what Dark Tranquillity, At The Gates and Eucharist started in the early nineties. The initial movement was about precision, aggression and musicianship, but it was also about attaining a certain vibe. I think a lot of bands failed to complete the equation, seeing The Gallery and albums like it at face value. Care to comment on that? <BR><BR> It's possible. Frankly, I'm not at all updated with the current scene, so I can't offer much of an opinion here. With some rare expections, I haven't heard any of the newer bands that get placed under the Gothenburg sound umbrella, but people keep saying that while many of them are skilled musicans, they may lack an identity and expression of their own. That said, most bands need a few years to find their own sound, and we definately were no exception, so I don't want to slag any newer bands for not being 100 percent original. Also, one must remember that the bands from here never set out to form a special style of sound or to get that G********g-tag to it. We were just concerned with making our own music as good as possible, and couldn't care less about labels or definitions. It got misunderstood a lot during a certain period. Magazines kept asking things like, "Tell me about this Gothenburg sound that you claim to have invented" and "How do you think that the Gothenburg sound should develop?", implying that the whole thing was about a set of rules or a movement that the bands themselves had started to spread around and tried to hype as the ultimate way of playing metal. It was never anything like that. <BR><BR> Do you see Dark Tranquillity as a 'move and shaker' in extreme music or simply a band that writes what it feels? If it's the latter, do you sometimes feel surprised at the music that does come out of the songwriters. <BR><BR> As mentioned, I don't follow the scene so much. After having spent hours and hours in the rehearsal room listening to our own music, it feels more interesting to put something in the CD player that is as far away from D.T. as possible. Therefore, I haven't really thought much about our "position" in the scene. It just doesn't feel like a relevant thing to think about. We do what we feel like doing at any given time, without caring too much about what other bands are doing. <BR><BR> Based on Haven, Dark Tranquillity are writing music that isn't as immediate as previous records. Upon the first listen, Haven sounded a little too safe and predictable, but there's loads of intricacy layered into the songs - something Brandstrom, Jivarp and Henriksson developed without a lot of people noticing. <BR><BR> I see what you mean. There was a very obvious complexity in our earlier albums, where a song could have 14-15 different riffs and lots of tempo changes and sudden twists and turns. Nowadays, it's more subtle. The song structures are way more basic and the songs are much shorter, but on the other hand there are lots of things going on that isn't as apparant on the first couple of listenings. It may sound strange to non-musicians, but lots of the riffs on Haven are more difficult to play than most of the The gallery, and the actual arrangements are often more complex. We're just approaching it from a different angle now, with more subtlety. <BR><BR> I also noticed the songwriting has moved from you and Henriksson ("Skydancer") to more Henriksson/Jivarp. Why have you had a lesser role in the songwriting over the years? Furthermore, is that a trend you see continuing as Cabin Fever Media starts to consume more and more of your time and creative energy? <BR><BR> There's no great reason for it. When we started out, me and Martin wrote most of the riffs, but these days all the members are contributing with material. As for my own participation, I wasn't overly active during the Haven songwriting process, and the reason for that is that I was so busy with setting up my illustration studio, and that had to be the highest priority. Now things are running smoothly, and I've got more time to devote to the band again. At the end of the day, it doesn't matter which band members that write the riffs, it still takes the six of us to make it sound like D.T. <BR><BR> As a songwriter, which of Dark Tranquillity's songs are your favorite and why? A detailed answer on structure, idea and compositional flow would be nice. <BR><BR> I don't have a particular favourite song. This probably sounds dull, but after having rehearsed a song millions of times, recorded it in studio and then performed it live over and over again, much of the relationship is lost. My fave D.T. tunes are always the ones that we're currently working on since they are still fresh and challenging. After they've been documented on CD, they belong to the past and just aren't very interesting anymore. Of course, certain songs like "Punish My Heaven" and "Zodijackyl Light" are usually great experiences to play live because of the support from the audience and the intensity of the feedback, but that's a different matter. But just to give an answer, I'd say that "Lethe" is probably the song where I feel that the lyrics and music are best connected. <BR><BR> Moving forward, where do you see Dark Tranquillity going musically? I feel you have successfully added electronics and parlayed 'clean' singing into the songs more efficiently. Do you think there's a creative peak for the band? <BR><BR> There are lots of different roads we can take from here. I can imagine the next album being more adventurous than Haven, featuring a bit of everything mixed with some new influences, but it remains to be seen. <BR><BR> Once a creative peak has been reached or rather felt, where do you see Dark Tranquillity moving from there. It's interesting to see bands like Kreator go through the years and finally return to a style more representative of their middle years. Do you think something like that could happen to Dark Tranquillity? <BR><BR> I don't know...It's hard to speculate about what the future will bring, since we usually aren't able to predict even what the next album will sound like. After The Mind's I, we were all set to record our fastest album ever and hinted at that in interviews, but instead Projector turned out to be our most mellow album so far. When starting to write songs for Haven, we were all sure that the result would be a slow and depressive album with clear vocals, but we were dead wrong - so even if we'd make a fair guess about the coming couple of years, it'd still be uncertain. But it's a pretty common cycle that bands experiment in different directions and then eventually return to grounds that they covered earlier. Who knows, maybe there will be a The Gallery II in a couple of years. [laughs] <BR><BR>Do you see a foreseeable end to Dark Tranquillity? I mean, there are loads of things to accomplish artistically and conceptually, right? <BR><BR> We'll keep going for as long as we find it interesting...I have no idea if that means one or 10 more years, but right now I can't see any reasons to put the band on ice. <BR><BR> Speaking of the future, you're currently working on songs for your forthcoming album. Can we expect any surprises, new elements? It'd be nice to see Dark Tranquillity honing the electronic elements into your trademark aggressive bursts further. <BR><BR> It's a bit early to say...We've got a lot of material written, but no song is 100 percent finished yet and we're trying lots of different arrangements out for each track. Everything is pretty open right now, but my guess is that it's going to be a very diverse album with a bit of everything in. Some of the riffs sound very old-school while some ideas are definately a step into unknown territory for us. We'll enter Studio Fredman in February next year, so I think that the album should be out in April/May or something. <BR><BR> Personally, I think Brandstrom's electronic components to the songs are a little predictable - almost Depeche Mode. It'd surprise a lot of people for the electronic element to be harder, edgier. Of course, this is dependent on the musical direction... <BR><BR> We're all great fans of Depeche mode and other bands whose keyboard presence is very electronic-sounding, almost in an '80s synthpop way, so it was natural to incorporate the keybords in this way. Most other metal bands with a permanent electronic-wizard in the line-up primarly use more classical and atmospheric sounds, so we wanted to do something slightly different. I'm sure, though, that the next album won't have the same sounds as Haven. Martin said that he wanted to experiment with harsher, more organic keyboard sounds and samples in the future, so we'll see what happens. <BR><BR> Do you think there will ever be a continuation of "A Bolt of Blazing Gold?" I know that was the first song to impact me (and others) greatly. I guess your entire fanbase is secretly yearning for a part 2. But that's just the fan in me... <BR><BR> [laughs] I don't know, really. Most follow-up songs turn out pretty cheesy and can even destroy the "magic" of the original song. It's probably better to leave "...bolt..." as it is without attaching it to a new composition made 10 years later. I'm also not sure how to find a bridge between such an old song and a new one content-wise, since our current lyrical style is very different from the one of Skydancer. We did make a song for Projector that was dubbed "Lethe 2", but that was mostly because they had the same sort of vibe rather than anything else. This song, called "No-one", never made it to the album, by the way. I'm much more into reworking an old song, but that isn't too likely to happen either unless we suddenly get lots of time on our hands. On the Projector tour, we played an updated version of "The Gallery", which honestly wasn't too good. <BR><BR> Well, that sums up the questioning for this round, but any parting shots on behalf of Dark Tranquillity? Plug your new record, if you like. <BR><BR> Well, thanks for the interview and sorry for having taken some time with the answers. Things are really hectic right now. Before signing off, I urge your readers to keep an eye open for the new album, whatever it'll be called. Cheers!</p>
+
+Автор: Yermola
+
+### 27.12.2001 news Мрачное спокойствие становится еще и разнообразным....
+
+<p>Шведы "DARK TRANQUILLITY" усиленно работают над песнями для нового альбома "Diverse", который по словам команды будет: "показывать все стадии 12-летней карьеры группы, но с новыми влияниями". Уже готовы: <BR><BR> 01. Cathode Ray Sunshine<BR> 02. Static<BR> 03. The Poison Well<BR> 04. Format C: For Cortex<BR><BR> Все должно быть закончено к Марту, а сам релиз выйдет Мае/Июне через Century Media Records.</p>
+
+Автор: Yermola
+
+### 27.12.2001 news DARK TRANQUILLITY Get &quot;Diverse&quot; On Upcoming CD...
+
+<p>Sweden's DARK TRANQUILLITY are in intensive songwriting sessions for their upcoming studio CD, which will reportedly be “a very diverse offering featuring musical traces from all stages of our 12-year career as well as a host of new influences”, according to a statement from the band. Among the tentative song titles that will be included on the forthcoming CD are:<BR><BR> 01. Cathode Ray Sunshine<BR> 02. Static<BR> 03. The Poison Well<BR> 04. Format C: For Cortex<BR><BR> Due to be completed in March, the as-yet-untitled effort is tentatively scheduled to be released during May/June through Century Media Records.</p>
+
+Автор: Yermola
+
+### 25.03.2002 news Новый альбом DARK TRANQUILLITY в работе
+
+<p>Шведская группа DARK TRANQUILLITY в данный момент заканчивает запись своего шестого альбома, который будет называться "Damage Done". Выпуск альбома планируется летом 2002 года.</p>
+
+Автор: Dimas
+
+### 15.04.2002 news Нанесение повреждений DARK TRANQUILLITY
+
+<P>Шведы "DARK TRANQUILLITY" опубликовали трек-лист для нового альбома "Damage Done" который был только что записан в Гетеборгской Studio Fredman: </P></>
+<P> 01. Final Resistance<br> 02. Hours Passed In Exile<br> 03. Monochromatic Stains<br> 04. Single Part Of Two<br> 05. The Treason Wall<br> 06. Format C: For Cortex<br> 07. Damage Done<br> 08. Cathode Ray Sunshine<br> 09. The Enemy<br> 10. White Noise/Black Silence<br> 11. Ex Nihilo </P></>
+<P>Выйдут "Повреждения..." летом на Century Media Records. </P></>
+
+Автор: Yermola
+
+### 16.04.2002 news DARK TRANQUILLITY Finalize Track Listing For &quot;Damage Done&quot;......
+
+<p>Sweden's DARK TRANQUILLITY have finalized the track listing for their brand new CD, entitled Damage Done, which was recently completed at Studio Fredman in Gothenburg. It is as follows: <BR><BR> 01. Final Resistance<BR> 02. Hours Passed In Exile<BR> 03. Monochromatic Stains<BR> 04. Single Part Of Two<BR> 05. The Treason Wall<BR> 06. Format C: For Cortex<BR> 07. Damage Done<BR> 08. Cathode Ray Sunshine<BR> 09. The Enemy<BR> 10. White Noise/Black Silence<BR> 11. Ex Nihilo<BR><BR> No release date has yet been announced, but it is expected that Damage Done will surface sometime before the summer through Century Media Records. Meanwhile, DARK TRANQUILLITY will be performing at Chalmersrocken in Gothenburg on May 4th.</p>
+
+Автор: Yermola
+
+### 02.08.2002 news Metal&#x2F;Hard Rock в германском Media Control Chart ...
+
+<p>Вот так на текущей неделе выглядит German Media Control (Top 100) чарт в жанре металл/хард рок: <BR><BR> 16. PAPA ROACH – Lovehatetragedy<BR> 22. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 23. NIGHTWISH - Century Child<BR> 30. SYSTEM OF A DOWN - Toxicity<BR> 31. KORN - Untouchables<BR> 39. MANOWAR - Warriors Of The World<BR> 40. B&Ouml;HSE ONKELZ - Dopamin<BR> 45. NICKELBACK - Silver Side Up<BR> 54. SOULFLY - 3<BR> 61. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 70. PUDDLE OF MUDD - Come Clean<BR> 75. DONOTS - Amplify The Good Times<BR> 83. DARK TRANQUILLITY - Damage Done</p>
+
+Автор: Yermola
+
+### 28.08.2002 news DARK TRANQUILLITY, SINERGY Team Up For European Tour ...
+
+<p>DARK TRANQUILLITY, SINERGY and two as-yet-undisclosed opening acts will team up for a month-long European tour during November/December. Confirmed dates are as follows: <BR><BR> Nov. 12 – Hamburg, GER @ Markthalle<BR> Nov. 13 - Essen, GER @ Zeche Carl<BR> Nov. 14 - Halle, GER @ Easy Schorre<BR> Nov. 15 – Eindhoven, NETH @ Effenaar<BR> Nov. 16 – Vosselaar, BEL @ Biebob<BR> Nov. 18 – London, UK @ Garage<BR> Nov. 19 – Paris, FRA @ La Locomotive<BR> Nov. 20 – Montpellier, FRA @ Rockstore<BR> Nov. 22 – Madrid, SPA @ Caracol<BR> Nov. 23 - Iruin/Bilboa, SPA @ Tunk/Azkena<BR> Nov. 24 – Barcelona, SPA @ Mephisto<BR> Nov. 26 – Milan, ITA @ Transilvania Club<BR> Nov. 27 – Pratteln, SWI @ Z7<BR> Nov. 29 – Budapest, HUN @ Wigwam<BR> Nov. 30 – Vienna, AUT @ Planet Music<BR> Dec. 01 - Nьrnberg, GER @ Hirsch<BR> Dec. 02 - Frankfurt, GER @ Batschkapp<BR> Dec. 04 – Gothenburg, SWE @ Musikens Hus<BR> Dec. 05 – Stockholm, SWE @ Klubben<BR> Dec. 06 – Malmц, SWE @ KB<BR> Dec. 07 – Oslo, NOR @ Betong</p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads....
+
+<p><font size="2" face="Arial, Helvetica, sans-serif">...And Oceans - <a href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</a><br> Avantasia - <a href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</a><br> Dark Tranquillity - <a href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</a><br> Into Eternity - <a href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</a><br> Lacuna Coil - <a href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</a><br> Nocturnal Rites - <a href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</a><br> Rotting Christ - <a href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</a><br> Shadows Fall - <a href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</a><br> Unleashed - <a href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</a></font><br> <SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif">Yakuza - <a href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</a></font></SPAN></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads...
+
+<P><FONT face="Arial, Helvetica, sans-serif" size=2>...And Oceans - <A href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</A><BR>Avantasia - <A href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</A><BR>Dark Tranquillity - <A href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</A><BR>Into Eternity - <A href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</A><BR>Lacuna Coil - <A href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</A><BR>Nocturnal Rites - <A href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</A><BR>Rotting Christ - <A href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</A><BR>Shadows Fall - <A href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</A><BR>Unleashed - <A href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</A></FONT><BR><SPAN style="FONT-FAMILY: Arial"><FONT face="Arial, Helvetica, sans-serif" size=2>Yakuza - <A href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</A></FONT></SPAN></P></>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 01.11.2002 news DARK TRANQUILITY в Москве!!!
+
+<p>14 декабря в ДК Горбунова выступят родоначальники шведского melodic death metal DARK TRANQUILITY. Начало концерта в 19.00. Цена билетов: 500, 700 и 1000 (VIP зона) рублей.</p>
+
+Автор: Dimas
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Гость программы: Андрей Кузнецов - промо-менеджер компании ФОНО [www.fono.ru]<BR><BR> Playlist:<BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.11.2002 reviews Exceptional!
+
+<p>Well, this is much better than “Haven”. I guess I should warn you that DARK TRANQUILLITY is one of my favorite combos (always has been), and therefore I doubt if I would ever dare to rate ‘em with a mark lower than f.ex. five out of six. “Damage Done” deserves the highest mark possible, though. Musically, it’s sort of a cross between “The Mind’s I” and “Haven”, and even though DARK TRANQUILLITY haven’t come up with anything doubtlessly innovative this time, “Damage Done” doesn’t suffer from it. Unlike “Haven”, _all_ of the songs featured herein are excellent and if you want to see me completely knocked down, find anything to cavil at. You won’t. At least, I believe, you won’t. Once again: Niklas Sundin and co. haven’t made the world surprised, nor “Damage Done” is a revelation. It’s just a perfect mixture of melodic death metal and… melodic death metal. Apparently, it’s slightly seasoned with electronics, just like before, however never before have you heard electronics so brilliantly intertwined with death metal. And believe me – it IS death metal. Sorry, no female voice this time. And sorry, Mikael doesn’t sing “clean”. Does it bother me? No. Conclusion? Exceptional.</p>
+<P></>
+
+Автор: Kai Mathias Stalhammar
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news ПЕРЕНОС КОНЦЕРТОВ
+
+<p>В связи с трагическими событиями в Москве, отразившихся, в том числе, на продаже билетов на концерт GRAVE DIGGER/BLAZE, концерт, проведение которого планировалось на 30 ноября в ДК Горбунова, ПЕРЕНЕСЕН на 25 января 2003 года. Место проведения и цены билетов прежние. <BR> Партер: 600р., балкон - 800р., бельэтаж - 1000р.<BR> Купленные билеты действительны.</p>
+<p> Кроме того, сообщаем, что идя навстречу зрителям ПЕРЕНЕСЕН концерт DARK TRANQUILLITY с 14 декабря на более поздний срок. (14 декабря в Москве должен состоятся концерт AMORPHIS). <BR> Предварительная дата проведения концерта - 28 декабря. <BR> Окончательную дату мы сообщим Вам в ближайшее время.</p>
+<p> Организатор концертов - GOST Music приносит свои искренние извинения.</p>
+
+Автор: Dimas
+
+### 17.12.2002 news Концерт DARK TRANQUILLITY
+
+<p>В связи с катастрофически низкими объемами продаж на концерт шведской группы DARK TRANQUILLITY, проведение которого было намечено на 28 декабря с.г., компания GOST Music Int. была вынуждена отменить концерт.<br> Компания GOST Music Int. приносит свои извинения всем за доставленные неудобства.</p>
+
+Автор: Dimas
+
+### 23.03.2004 news DARK TRANQUILLITY выпускают сборник
+
+<P>На <B>CENTURY MEDIA</B> выходит сборник от <B>DARK TRANQUILLITY</B> <B>Exposures - In Retrospect And Denial</B>. На первый диск войдут раритеы, а на второй концертная запись. Трэк-лист:</P>
+<P>Disc 1 (Rare Material):<BR><BR>01. <B>Static</B> <BR>02. <B>The Poison Well</B> <BR>03. <B>Misery In Me</B> <BR>04. <B>Cornered</B> <BR>05. <B>In Sight</B> <BR>06. <B>No-One</B> <BR>07. <B>Exposure</B> <BR>08. <B>Yesterworld</B> <BR>09. <B>Unfurled By Dawn</B> <BR>10. <B>Midwinter/Beyond Enlightenment</B> <BR>11. <B>Vernal Awakening</B> <BR>12. <B>Void Of Tranquillity</B> <BR><BR>Disc 2 (Live Material): <BR><BR>01. <B>The Wonders At Your Feet</B> <BR>02. <B>The Treason Wall</B> <BR>03. <B>Hedon</B> <BR>04. <B>White Noise/Black Silence</B> <BR>05. <B>Haven</B> <BR>06. <B>Punish My Heaven</B> <BR>07. <B>Monochromatic Stains</B> <BR>08. <B>Indifferent Suns</B> <BR>09. <B>Format C: For Cortex</B> <BR>10. <B>Insanity's Crescendo</B> <BR>11. <B>Hours Passed In Exile</B> <BR>12. <B>The Sun Fired Blanks</B> <BR>13. <B>Damage Done</B> <BR>14. <B>Lethe</B> <BR>15. <B>Not Built To Last</B> <BR>16. <B>ThereIn</B> <BR>17. <B>Zodijackyl Light</B> <BR>18. <B>Final Resistance</B> <BR>19. <B>Ex Nihilo</B><BR></P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 14.09.2004 articles TOP-50 продаж лицензионных компакт-дисков за июль-август 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=661 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 44pt; mso-width-source: userset; mso-width-alt: 2157" width=59>
+<COL style="WIDTH: 202pt; mso-width-source: userset; mso-width-alt: 9837" span=2 width=269>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2>1 (1)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>2 (2)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LEMURIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>3(3)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SIRIUS B</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269 x:str="DIO "><STRONG><FONT size=2><FONT face="Arial CYR">DIO<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>MASTER OF THE MOON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SOPOR AETERNUS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LA CHAMBRE D ECHO</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>FLOWER KINGS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>ADAM & EVE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ENSEFERUM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>IRON</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>THRESHOLD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SUBSURFACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ASIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SILENT NATION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>12 (4)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LOVELORN</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>JORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>OUT OF EVERY NATION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DREAM EVIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE BOOK OF HEAVY METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>METAL CHURCH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LACRIMAS PROFUNDERE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AVE END</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HAGGARD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>18 (8)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATROCITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATLANTIS + multimedia section</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DIABOLICAL BREED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>COMPENDIUM INFERNUS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BORKNAGAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPIC</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THERION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRIUS B & LEMURIA LTD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DARK TRANQUILLITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EXPOSURES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>23 (18)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EDGUY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>24 (11)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>FINNTROLL</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NATTFODD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>25 (26)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MONSTERS OF METAL - 2</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE ULTIMATE METAL COMPILATION (2 DVD)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MALEVOLENT CREATION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WARKULT</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>GRAVEWORM</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AS THE ANGELS… / ETERNAL WINDS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>28 (6)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AYREON</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>29 (30)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FLAMES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>30 (13)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SUSPERIA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UNLIMITED</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>32 (21)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AETERNITAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LA DANSE MACABRE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>33 (15)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CREMATORY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>REVOLUTION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DE/VISION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>6 FEET UNDERGROUND</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>35 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CATHARSIS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" x:str="ПРИЗРАЧНЫЙ СВЕТ +multimedia "><FONT size=2><FONT face="Arial CYR">ПРИЗРАЧНЫЙ СВЕТ +multimedia<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>KEVIN DUBROW (ex-QUIET RIOT)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FOR THE KILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DVAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>TAAI LIIRA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>VOODOO HILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WALTARI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>RARE SPECIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UMBRA ET IMAGO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MEMENTO MORI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MISANTHROPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SADISTIC SEX DAEMON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>42 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>RHAPSODY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE DARK SECRET EP</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>43 (9)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>MOTORHEAD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>INFERNO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>44 (12)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IMPERANON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>STAINED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SERAPHIM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>SHYLOCK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>WELCOME TO ILLUSION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>POWERQUEST</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NEVERWORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ASTARTE (DIMMU BORGIR)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SYRENS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>49 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THEATRES DES VAMPIRES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NIGHTBREED OF MACABRIA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>50 (32)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE 69 EYES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BLESSED BE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR></TBODY></TABLE>* - в магазин Metal&Progressive в ТВЦ Рубин
+Автор: Vit Belov
+
+### 19.09.2004 news DARK TRANQUILLITY выпускают EP
+
+<P><STRONG>DARK TRANQUILLITY</STRONG> выпускают новый EP <STRONG>"Lost to Apathy</STRONG>" 15 ноября на <STRONG>Century Media</STRONG>.&nbsp;Трэк-лист:</P>
+<P>01. <B>Lost to Apathy</B><BR>02. <B>Derivation TNB</B><BR>03. <B>The Endless Feed</B> (Chaos Seed Remix)<BR>04. <B>Undo Control</B> (live)<BR>05. <B>Lost to Apathy</B> (video clip directed by <B>Roger Johansson</B>)<BR>06. <B>D.T. Screensaver</B>&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 14.10.2004 news DARK TRANQUILLITY продлил договор с Century Media
+
+<P><STRONG>DARK TRANQUILLITY</STRONG> решили продолжить своё сотрудничество с <STRONG>Century Media</STRONG>, заключив с ними сделку на три альбома. Как уже сообщалось в октябре выходит мини-альбом группы "<STRONG>Lost To Apathy</STRONG>", а новой "лонг-плэй" выйдет в январе и будет называться "<STRONG>Character</STRONG>".</P>
+Автор: Vit Belov
+
+### 21.11.2004 news Подробности о новом альбоме DARK TRANQUILLITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен трэк-лист будущего альбома <STRONG>DARK TRANQUILLITY</STRONG>:</FONT></P>
+<P><IMG height=203 alt="" hspace=0 src="/images/news_rus/2004.11/7396.jpg" width=400 align=right border=5>01. <STRONG>The New Build</STRONG> <BR>02. <STRONG>Through Smudged Lenses</STRONG> <BR>03. <STRONG>Out Of Nothing</STRONG> <BR>04. <STRONG>The Endless Feed</STRONG><BR>05. <STRONG>Lost To Apathy</STRONG><BR>06. <STRONG>Mind Matters</STRONG> <BR>07. <STRONG>One Thought</STRONG><BR>08. <STRONG>Dry Run <BR></STRONG>09. <STRONG>Am I 1? <BR></STRONG>10. <STRONG>Senses Tied</STRONG> <BR>11. <STRONG>My Negation</STRONG></P>
+Автор: Vit Belov
+
+### 01.12.2004 news DARK TRANQUILLITY переиздадут два альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK TRANQUILLITY</STRONG> сообщили о переиздании <STRONG>'The Mind's I'</STRONG> и<STRONG> 'The Gallery'</STRONG> с бонусными материалами. Трэк-листы:</FONT></P>
+<P><STRONG>THE GALLERY</STRONG>:</P>
+<P>1. <STRONG>Punish my heaven</STRONG><BR>2. <STRONG>Silence, and the firmament withdrew</STRONG> <BR>3. <STRONG>Edenspring<BR></STRONG>4. <STRONG>The dividing line</STRONG> <BR>5. <STRONG>The gallery <BR></STRONG>6. <STRONG>The one brooding warning</STRONG> <BR>7. <STRONG>Midway through infinity</STRONG> <BR>8. <STRONG>Lethe <BR></STRONG>9. <STRONG>The emptiness from which I fed</STRONG> <BR>10. <STRONG>Mine is the grandeur...</STRONG> <BR>11. <STRONG>...of melancholy burning<BR></STRONG>12. <STRONG>Bringer Of Torture (Kreator cover)<BR></STRONG>13. <STRONG>Sacred Reich (Sacred Reich cover)<BR></STRONG>14. <STRONG>22 Acacia Avenue (Iron maiden cover)<BR></STRONG>15. <STRONG>Lady In Black (Mercyful fate cover)<BR></STRONG>16. <STRONG>My Friend Of Misery (Metallica cover)</STRONG></P>
+<P><STRONG>THE MIND'S I</STRONG>:</P>
+<P>1. <STRONG>Dreamlore degenerate</STRONG> <BR>2. <STRONG>Zodijackyl light <BR></STRONG>3. <STRONG>Hedon<BR></STRONG>4. <STRONG>Scythe,rage and roses</STRONG> <BR>5. <STRONG>Constant <BR></STRONG>6. <STRONG>Dissolution factor red<BR></STRONG>7. <STRONG>Insanity's crescendo</STRONG> <BR>8. <STRONG>Still moving sinews</STRONG> <BR>9. <STRONG>Atom heart 243.5<BR></STRONG>10. <STRONG>Tidal tantrum <BR></STRONG>11. <STRONG>Tounges <BR></STRONG>12. <STRONG>The mind's eye<BR></STRONG>13. <STRONG>Razorfever <BR></STRONG>14. <STRONG>Shadowlit facade</STRONG> <BR>15. <STRONG>Archetype<BR></STRONG>16. <STRONG>Zodijackyl light (video) <BR></STRONG>17. <STRONG>Hedon (video)</STRONG></P>
+Автор: Vit Belov
+
+### 01.12.2004 news DARK TRANQUILLITY to re-issue two albums
+
+<P><STRONG>DARK TRANQUILLITY </STRONG>informed that they will re-issue two albums: <STRONG>'The Gallery'</STRONG> and <STRONG>'Mind's I'</STRONG> with bonus-materials. Track-lists:&nbsp;</P>
+<P><STRONG>THE GALLERY</STRONG>:</P>
+<P>1. <STRONG>Punish my heaven</STRONG><BR>2. <STRONG>Silence, and the firmament withdrew</STRONG> <BR>3. <STRONG>Edenspring<BR></STRONG>4. <STRONG>The dividing line</STRONG> <BR>5. <STRONG>The gallery <BR></STRONG>6. <STRONG>The one brooding warning</STRONG> <BR>7. <STRONG>Midway through infinity</STRONG> <BR>8. <STRONG>Lethe <BR></STRONG>9. <STRONG>The emptiness from which I fed</STRONG> <BR>10. <STRONG>Mine is the grandeur...</STRONG> <BR>11. <STRONG>...of melancholy burning<BR></STRONG>12. <STRONG>Bringer Of Torture (Kreator cover)<BR></STRONG>13. <STRONG>Sacred Reich (Sacred Reich cover)<BR></STRONG>14. <STRONG>22 Acacia Avenue (Iron maiden cover)<BR></STRONG>15. <STRONG>Lady In Black (Mercyful fate cover)<BR></STRONG>16. <STRONG>My Friend Of Misery (Metallica cover)</STRONG></P>
+<P><STRONG>THE MIND'S I</STRONG>:</P>
+<P>1. <STRONG>Dreamlore degenerate</STRONG> <BR>2. <STRONG>Zodijackyl light <BR></STRONG>3. <STRONG>Hedon<BR></STRONG>4. <STRONG>Scythe,rage and roses</STRONG> <BR>5. <STRONG>Constant <BR></STRONG>6. <STRONG>Dissolution factor red<BR></STRONG>7. <STRONG>Insanity's crescendo</STRONG> <BR>8. <STRONG>Still moving sinews</STRONG> <BR>9. <STRONG>Atom heart 243.5<BR></STRONG>10. <STRONG>Tidal tantrum <BR></STRONG>11. <STRONG>Tounges <BR></STRONG>12. <STRONG>The mind's eye<BR></STRONG>13. <STRONG>Razorfever <BR></STRONG>14. <STRONG>Shadowlit facade</STRONG> <BR>15. <STRONG>Archetype<BR></STRONG>16. <STRONG>Zodijackyl light (video) <BR></STRONG>17. <STRONG>Hedon (video)</STRONG></P>
+Автор: Vit Belov
+
+### 11.12.2004 reviews Подарок фэнам и не только...
+
+Рецензировать такие диски для меня достаточно сложно – ведь здесь мы имеем дело не с очередным студийным альбомом, а со своего рода компиляцией. На первом CD нам представлены композиции, записанные во время студийных сессий трёх последних альбомов группы, ранее либо не издававшиеся, либо издававшиеся, как вы сами могли бы догадаться, в Японии, плюс песни с ранних EP и демок группы. Второй диск – запись концерта, состоявшегося 7 октября 2002 г. в Кракове, Польша (этот же самый концерт мы можем посмотреть на видео, приобретя DVD “Live Damage”, выпущенный в нашей стране конторой CD-Maximum). Итак, рассмотрим содержание первого диска. Две первые композиции, “Static” и “The Poison Well”, как информирует нас буклет, были записаны одновременно с альбомом “Damage Done”, впрочем, это можно было понять и не заглядывая в буклет – музыкально обе композиции идентичны материалу этого альбома. Haven’овская меланхолия + некоторая доля агрессии, меланхоличные клавишные, печальное и несколько отчаянное, настроение. В общем, эти песни, на мой взгляд, не хуже и не лучше других с “Damage Done”, хотя, возможно они, всё же, несколько мягче своих сестёр, официально попавших на альбом. Следующие три композиции были записаны во времена “Haven” и здесь всё обстоит несколько интереснее. “InSight” вызывает ощущение дежа-вю и отсылает нас… Нет, не к “Haven”, а к “Projector”! Медленная, лирическая, композиция, практически без «тяжёлых» гитар, исполненная целиком «чистым» вокалом, напоминающая, если мне не изменяет память, песню “Auctioned” c “Projector”. Известен факт, что когда группа готовила материал для записи “Haven”, везде планировался чистый вокал и практически в последний момент шведы решили изменить вокал на гроулинг. Здесь и напрашивается вывод, что InSight, явно написанная по следам “Projector”, просто не совсем удачно ложилась в музыкальное полотно “Haven” и увидела свет лишь на данном релизе. Следующая за ней “Misery In Me’ – 100% “Haven”, с запоминающейся ведущей мелодией клавишных, красивая среднетемповая композиция. “Cornered” – вещь, ранее издававшаяся только на японской версии “Haven” – тоже по духу весьма отвечает альбому, разве что выделяется периодическими переходами от типичного для Dark Tranquillity минора к более «светлым» интонациям. Кстати, в 2000-м году на только-только появившихся в России пиратских дисках с “Haven”, наштампованных, судя по всему, с промо-копий, эта композиция присутствовала и она мне очень нравилась; я был несколько огорчён, когда не услышал этой песни на официальной лицензионной версии альбома. Вещь “Exposure” также была записана для “Projector”, но была доступна лишь на Digipak-издании альбома. Мрачная, с романтическими и атмосферными вкраплениями и местами с «чистым» вокалом, ставшим для “Projector” своего рода визитной карточкой, песня мне напоминает чем-то “Insanity’s Crescendo”, написанную и исполненную в более современном варианте. Следующая вещь “No One”, записанная также во время “Projector”-сессий, явилась для меня сюрпризом. Без клавишных и «чистого» вокала, быстрая, агрессивная и энергичная, она никак не вяжется с экспериментальным и замедленным “Projector”. Скорее всего, эта вещь – привет от классического альбома Dark Tranquillity “The Mind’s I”. Песня просто великолепна, но вопросов, почему она не вошла на “Projector”, не возникает: она бы была там просто не уместна. Честное слово, этой вещи самое место на “The Mind’s I” или, на худой конец, на “Damage Done”. Следующие далее композиции “Yesterworld” и “Unfurled By Dawn” взяты с EP “A Moonclad Reflection” вышедшего в 1992 году. Очень сырой материал, с некоторым влиянием doom/death, не очень умело сыгранный и записанный, в то же время является предтечей того, что было записано на дебютном полноформатнике D.T. “Skydancer”. Завершают содержание первого диска три песни, взятые с демо “Trail Of Life Decayed”. Имеют они ценность в данный момент лишь для фэнов и коллекционеров. Три вещи, по которым прямо чувствуется, как нескольким шведским парням, вчерашним школьникам, хотелось делать страшную и агрессивную музыку, а вдохновляли их на это ранние альбомы германских трэшеров Kreator и Sodom. Умения толком не было, но было огромное желание. Желание, благодаря которому эти парни, повзрослев, всё-таки стали делать великолепную музыку, которая, например, была на этом же рецензируемом сейчас диске всего несколькими треками раньше. Как уже было сказано выше, второй CD “Exposures” представляет содержит концерт в Кракове, который также был выпущен в формате DVD. Здесь я буду краток. Подборка песен, на мой взгляд, вполне удачная, правда, основной упор сделан, как и можно было ожидать, на три последних альбома, впрочем не забыты и старые хиты типа Hedon”, “Zodijackyl Light” или “Punish My Heaven”. Звук очень разборчивый, качество исполнения хорошее и достаточно близко к студийному, хотя встречаются иногда ошибки. Обратная сторона медали - отсутствует угарность, которая была присуща живым выступлениям во времена альбомов “Gallery” и “The Mind’s I”. Вспомните концертные аудио и видео-записи группы во времена World Domination Tour! Да, звук оставлял желать лучшего, местами хромало качество исполнения, но какой был задор, как агрессия и весёлая злость в каждой извлекаемой ноте! Теперь Dark Tranquillity повзрослели, их подход к творчеству изменился, да, музыка стала более «умной», открылись новые грани их творчества. В то же время материал с поздних альбомов, при всей его прелести, более уместно слушается в домашней обстановке и в студийном исполнен ии. И всё же любителям группы я настойчиво рекомендую не проходить мимо этого релиза, а диск с концертом можно воспринимать просто как «живую» компиляцию лучших вещей Dark Tranquillity. На мой взгляд, данный концерт даже лучше слушать, нежели смотреть – тогда не будет видно удручающе малого количества народу в зале и слишком сосредоточенных лиц музыкантов, пытающихся всё сыграть как можно ближе к студийному оригиналу. Напоследок хочу сказать об оформлении буклета к этим двум CD. Он весьма информативен, содержит информацию о песнях, тексты, фотографии и фактически статью о становлении т.к. «новой волны шведского дэт- метал» (NWoSDM), о том, как зарождалась гётеборгская сцена и о том, какую роль в этом сыграли сами Dark Tranquillity.
+Автор: Seducer
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 03.03.2005 news Видео DARK TRANQUILLITY on-line
+
+<P>Видео-клип <STRONG>DARK TRANQUILLITY</STRONG> на песню с нового альбома "<STRONG>Lost To Apathy</STRONG>" можно посмотреть здесь: <A href="http://mp4.centurymedia.com/dtLOSTlhigh.ram">http://mp4.centurymedia.com/dtLOSTlhigh.ram</A></P>
+Автор: Vit Belov
+
+### 03.03.2005 news DARK TRANQUILLITY video on-line
+
+<P>Video-clip from new album of <STRONG>DARK TRANQUILLITY</STRONG> "<STRONG>Lost To Apathy</STRONG>" may be seen on: <A href="http://mp4.centurymedia.com/dtLOSTlhigh.ram">http://mp4.centurymedia.com/dtLOSTlhigh.ram</A></P>
+Автор: Vit Belov
+
+### 12.05.2005 news Концертное видео  Dark Tranquillity
+
+<P align=left>Концертное видео&nbsp;<STRONG>DARK TRANQUILLITY</STRONG> "<STRONG>The Treason Wall</STRONG>", снятое во время североамериканского тура с <STRONG>SOILWORK</STRONG>,&nbsp;<STRONG>HYPOCRISY</STRONG>&nbsp;и&nbsp;<STRONG>MNEMIC</STRONG>&nbsp;доступно для скачивания по данной ссылке <A href="http://www.darktranquillity.com/media/video/ttw_montreal.wmv">http://www.darktranquillity.com/media/video/ttw_montreal.wmv</A><BR></P>
+Автор: Bizarre
+
+### 08.06.2005 reviews Худший альбом DARK TRANQUILLITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как&nbsp;у заслуженных групп получается записывать худшие альбомы? Кто-то пускается в эксперименты... DARK TRANQUILLITY всю свою карьеру занимается экспериментами, и это совсем не мешает поклонникам боготворить их творчество. Кто-то выпускает альбомы похожие друг на друга, как две капли... DARK TRANQUILLITY никогда этим не грешили, и новая их работа так же похожа на "Damage Done", как и не похожа.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>{Барабанная дробь}&nbsp;"Character", видимо, худшая работа&nbsp;знаменитых шведов. При этом я отмечаю, что, во-первых, до такого уровня многим даже способным группам, как "до луны", и, во-вторых, "Character" - худший, но не плохой.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>DARK TRANQUILLITY записали стандартный melodic death-metal альбом, который как-то не очень слушается по прошествии стольких лет. Безусловно он не такой прямолинейный, как большинство работ их вечных коллег-синонимов IN FLAMES, но он стандартен. Запоминающихся трэков, как таковых, совсем нет, каких-то откровений тоже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом явно является переходным в дискографии DT.&nbsp;Я очень надеюсь, что с него не начнётся падение... Любители же стиля обязаны приобретать, лучше в новинках трудно будет что-то найти...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен&nbsp;<A href="http://www.fono.ru/">ФОНО</A>&nbsp;&nbsp;&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 31.05.2006 news DARK TRANQUILLITY войдут в студию
+
+<P><STRONG>DARK TRANQUILLITY</STRONG> войдут в студию для записи нового альбома в октябре. Никаких подробностей не сообщается.</P>
+Автор: Vit Belov
+
+### 21.06.2006 news Анонс от DARK TRANQUILLITY
+
+<P>Шведы <STRONG>DARK TRANQUILLITY</STRONG> анонсировали, что следующий свой альбом будут записывать с известным датским продюсером <B>Tue Madsen</B>. Микширование пройдет в его же собственной <B>Antfarm</B> studio, хотя все предыдущие альбомы группы были полностью местной продукцией. Ударные будут записаны в <B>Studio Fredman</B>,&nbsp;а все остальные инструменты в студии&nbsp;<B>Rogue Music</B>. Известны названия некоторых новых песен: <B>"Blind at Heart"</B>, <B>"The Lesser Faith"</B>, <B>"InsignifiCunt"</B>&nbsp;и <B>"The Plunge"</B>."<A href="http://rapidshare.de/files/23574873/Bethzaida_1997_-__A_Prelude_to_Nine_Worlds___EP_.rar"></A></P>
+Автор: Dimas
+
+### 02.02.2007 news Новый альбом DARK TRANQUILLITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом&nbsp;<STRONG>DARK TRANQUILLITY "Fiction"</STRONG> выходит в апреле этого года.&nbsp;Группа обещает&nbsp;музыку, адаптированную к современности классику в духе альбомов<STRONG>&nbsp;"The Gallery"</STRONG>&nbsp;и <STRONG>"Mind's I</STRONG>". Трэк-лист:</FONT></P>
+<P>01. <B>Nothing To No One</B><BR>02. <B>The Lesser Faith</B><BR>03. <B>Terminus (Where Death Is Most Alive)</B><BR>04. <B>Blind At Heart</B><BR>05. <B>Icipher</B><BR>06. <B>Inside The Particle Storm</B><BR>07. <B>Empty Me</B><BR>08. <B>Misery's Crown</B><BR>09. <B>Focus Shift</B><BR>10. <B>The Mundane And The Magic</B><BR>11. <B>A Closer End</B> (Japan bonus track)<BR>12. <B>Winter Triangle</B> (instrumental) (Australia bonus track)<BR>Новую песню <STRONG>"Focus Shift</STRONG>"&nbsp;можно послушать <A href="http://www2.centurymedia.com/video.aspx?name=Dark+Tranquillity&title=Fiction&filename=http://mp4.centurymedia.com/europe/1443.mp3&id_artist=13&description=Focus+Shift&id_media_type=7">здесь</A></P>
+Автор: Vit Belov
+
+### 02.06.2007 news Видео от DARK TRANQUILLITY
+
+<P>Новый кукольный мультфильм на песню <STRONG>DARK TRANQUILLITY "Terminus (Where death is most alive)"</STRONG> можно посмотреть на их сайте: <A href="http://www.darktranquillity.com/realindex.html">http://www.darktranquillity.com/realindex.html</A></P>
+Автор: Vit Belov
+
+### 04.07.2007 reviews Достойный альбом достойной группы
+
+<P>Послушав несколько раз новую работу шведских апологетов melodic death-metal DARK TRANQUILLITY, меня одолели различные вопросы, которые, как назло, не касались собственно музыкальной составляющей “Fiction”. В саундчеке на нашем сайте, уже после появления MP3 в сети, юзеры высказываются об этой работе исключительно в превосходных тонах. Но… Мне кажется, эти превосходные тона относятся к самой группе, которую у нас любят, а не к непосредственному набору новых вещей. DARK TRANQUILLITY сохранили своё коренное звучание и не пытаются открывать новых горизонтов, в этом вся их заслуга.</P>
+<P>Выдающимся “Fiction” назвать нельзя. В дискографии коллектива есть как минимум три альбома превосходящих его (каждый называет свои). Радует, что шведы совместили в новой музыке черты многих своих альбомов, при этом избежав прямого самоплагиата. В общем и целом, на пластинке вы найдёте всё, чего ожидаете от DARK TRANQUILLITY, мелодичные риффы, разнообразное построение песен, классную реализацию классического саунда. “Fiction” ознаменовал окончательное расставание с экспериментами и возврат к звучанию бестселлеров DT “The Gallery” и “Mind’s I”. Многих это расставание огорчит.</P>
+<P>До сих пор у многих любимым остаётся “Projector”, где группа предстала в неожиданном свете. Помнится тогда, в конце века, вовсю муссировалось сравнение DT с IN FLAMES. Не в пользу последних делались оценки. IF обвиняли в стагнации и «почивании на лаврах», а DARK TRANQUILLITY хвалили за отсутствие этого самого «почивания» и движение вперёд. Правда, многим любителям ортодоксального звучания претил чистый вокал Микаэля и какое-то «недэтовое» построение песен. По прошествии почти десяти лет, уже IN FLAMES умчались куда-то вперёд, а DT постепенно вернулись к своей классике. Разница лишь в том, каким образом группы развивались. Развитие DT выглядит более интеллигентным. Это не погоня за модой, а попытки что-то сделать. Вообще, в конце века многие пытались что-то сделать новое. Это и PARADISE LOST, и LAKE OF TEARS, и THEATRE OF TRAGEDY… Любопытно, что почти все вернулись к своим корням. Уже тогда я замечал, что те эксперименты вряд ли кому-то будут интересны. Так и получилось. И всё равно, оглядываясь назад, те непонятые мною альбомы вызывают уважение. Вряд ли в то время особым трендом был synth-pop, используемый PARADISE LOST или progressive тех же DT. IN FLAMES же нанесли удар со 100-процентной точностью, употребив весь свой талант на музыку, популярную в Штатах. В этом разница. Пускай, “Fiction” не очень интересен с точки зрения музыки, уважение вызывает то, что группа осталась со своими фэнами и со своей любимой музыкой. Или DT просто ничего играть больше не могут?:)</P>
+<P>Еще одной «околомузыкальной» новостью, связанной с этим альбомом, стал российский релиз “Fiction”. Лицензионная пластинка окончательно оформила выход на рынок новой компании Mystic Empire, которая агрессивно завоёвывает рынок. Если раньше фирма ограничивалась «отбросами», оставшимися от других, то теперь лэйбл выпускает точно в срок «топовые» пластинки от Century Media. Вслед за DARK TRANQUILLITY вышел и PARADISE LOST. Фоно проигрывает эти позиции и теперь этой фирме остаётся подбирать с Century Media то, что осталось. Думается, секрет в том, что возросли бюджеты, ведь славной историей или широкой дистро-сетью Mystic Empire похвастаться пока не могут, поэтому выбор, вероятно, сделан немцами только с финансовой точки зрения. Что ж, остаётся порадоваться за наших лицензионщиков, которые несмотря на общую стагнацию рынка аудио-CD продолжают «гонку бюджетов». Видимо, нам остаётся ждать ренессанса этого рынка? Акции должны расти, что-то «Мистики» знают, если вкладывают такие деньги?:)</P>
+<P>DARK TRANQUILLITY выпустили достойный альбом. Достойный альбом достойной группы, который займёт своё достойное место, как в дискографии самих музыкантов, так и в коллекциях любителей тяжёлой музыки.&nbsp; </P>
+Автор: Vit Belov
+
+### 28.04.2008 news DARK TRANQUILLITY хвалят Москву
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK TRANQUILLITY</STRONG>, посетившие Москву на прошлой неделе, назвали своё выступление в столице России одним из самых успешных за всю свою карьеру. "<EM>Мы ожидали отличного приёма на наших дебютных шоу на территории бывшего СССР, но&nbsp;Москва превзошла все наши ожидания</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы поставили концерт в Москве в пятёрку лучших в своей истории.</FONT></P>
+Автор: Vit Belov
+
+### 24.08.2008 news Басист покинул DARK TRANQUILLITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>Michael Nicklasson </STRONG>покинул<STRONG> DARK TRANQUILLITY</STRONG> по личным мотивам.</FONT></P>
+Автор: Vit Belov
+
+### 20.09.2008 news DARK TRANQUILLITY нашли басиста
+
+<P>Новым басистом <STRONG>DARK TRANQUILLITY</STRONG> стал музыкант <STRONG>DIMENSION ZERO</STRONG> и бывший участник <STRONG>SOILWORK Daniel Antonsson</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.01.2009 news DARK TRANQUILLITY выпустят DVD
+
+<P><STRONG>DARK TRANQUILLITY</STRONG> рассказали о старом годе и заглянули в новый. Группа дала более ста концертов по всему миру, и 2008-ой стал самым активным годом их карьеры. В 2009-ом <STRONG>DT</STRONG> сконцентрируются на сочинении нового материала. Также в новом году выйдет второе DVD от шведов, отснятое в Милане.</P>
+Автор: Vit Belov
+
+### 20.01.2009 news Клавишник DARK TRANQUILLITY едет с TIAMAT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клавишник <STRONG>DARK TRANQUILLITY</STRONG> <STRONG>Martin Brandstrom </STRONG>поедет в европейский тур вместе с <STRONG>TIAMAT</STRONG>. Группа начнёт своё путешествие 7 февраля в Стокгольме.</FONT></P>
+Автор: Vit Belov
+
+### 12.05.2009 news Шведы играют в футбол
+
+<P>В субботу 9 мая члены шведских групп <STRONG>IN FLAMES, SABATON, TIAMAT, HARDCORE SUPERSTAR, MILLENCOLIN, THE HAUNTED</STRONG> и <STRONG>BULLET</STRONG> приняли участие в футбольном турнире "<STRONG>Metallsvenskan</STRONG>". Команда в которой участвовал вокалист <STRONG>DARK TRANQUILLITY Mikael Stanne</STRONG> заняла третье место. Турнир планируется сделать ежегодным.</P>
+Автор: Vit Belov
+
+### 12.05.2009 news Музыканты SONATA ARCTICA и DARK TRANQUILLITY сформировали покерную команду
+
+<P>Музыканты <STRONG>SONATA ARCTICA Henrik Klingenberg</STRONG> и<STRONG> Marko Paasikoski</STRONG> сформировали покерную команду <STRONG>Rockstars of Poker</STRONG>, в которую также вошли участники <STRONG>DARK TRANQUILLITY Martin Brandstrom</STRONG> и <STRONG>Martin Henriksson</STRONG>. Эта формация даст шанс фэнам групп сыграть со своими героями on-line. Ближайший турнир пройдёт 17 мая на <A href="http://www.rockstarsofpoker/">www.rockstarsofpoker</A></P>
+Автор: Vit Belov
+
+### 06.07.2009 news DARK TRANQUILLITY войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK TRANQUILLITY</STRONG> сообщили, что готовы войти в студию в сентябре/октябре для записи нового альбома, который выйдет в следующем году на <STRONG>Century Media</STRONG>. Вот названия некоторых песен: <STRONG>'I Am The Void'</STRONG>, <B>'Zero Distance'</B>, <B>'The Burden Of Love Alive'</B>, <B>'Archangelsk'</B>&nbsp;и <B>'Memories In Reverse'</B></FONT></P>
+Автор: Vit Belov
+
+### 24.07.2009 news Новый альбом DARK TRANQUILLITY
+
+<P>26 октября на <STRONG>Century Media</STRONG> выйдет концертник <STRONG>DARK TRANQUILLITY</STRONG> <STRONG>"Where Death Is Most Alive". </STRONG>Фанаты группы смогут приобрести как регулярную CD/DVD версию, так и лимитированную 2CD/2DVD. На диск попадёт концерт, снятый в Милане 31 октября прошлого года. Во время этого выступления к группе на сцене присоединился вокалист <STRONG>THEATRE OF TRAGEDY</STRONG> <STRONG>Nell Sigland.</STRONG></P>
+<P>Как мы уже сообщали, над новым студийником шведы начнут работать в сентябре.</P>
+Автор: Vit Belov
+
+### 12.10.2009 news Новый DVD DARK TRANQUILLITY
+
+<P><IMG height=453 alt="" hspace=0 src="/images/news_rus/2009.10/15249.jpg" width=298 align=right border=5>26 октября на <STRONG>Century Media</STRONG> выходит новый CD/DVD <STRONG>DARK TRANQUILLITY</STRONG> <STRONG>"Where Death Is Most Alive". </STRONG>Основной концерт был отснят в Милане 31 октября 2008 года. На второй DVD попадут документальный фильм, все клипы и ещё 21 живая песня с различных неизданных съёмок. Трэк-лист:</P>
+<P>DVD1 - Live in Milan:<BR>01. <B>Intro</B> (01:47)<BR>02. <B>The Treason Wall</B> (03:48)<BR>03. <B>The New Build</B> (04:22)<BR>04. <B>Focus Shift</B> (04:39)<BR>05. <B>The Lesser Faith</B> (05:03)<BR>06. <B>The Wonders At Your Feet</B> (04:21)<BR>07. <B>Lost To Apathy</B> (05:18)<BR>08. <B>FreeCard </B>(04:59)<BR>09. <B>Inside The Particle Storm</B> (05:51)<BR>10. <B>Nothing To No One</B> (04:47)<BR>11. <B>Edenspring</B> (05:31)<BR>12. <B>Insanity's Crescendo</B> (07:33) *<BR>13. <B>Lethe</B> (04:18)<BR>14. <B>Dreamlore Degenerate</B> (03:26)<BR>15. <B>Misery's Crown</B> (04:39)<BR>16. <B>ThereIn</B> (06:27)<BR>17. <B>My Negation</B> (06:27)<BR>18. <B>Yesterworld / Punish My Heaven</B> (06:46)<BR>19. <B>The Mundane And The Magic</B> (06:23) *<BR>20. <B>Final Resistance</B> (04:12)<BR>21. <B>Terminus (Where Death Is Most Alive)</B> (07:43)<BR>* Guest vocals by <B>Nell Sigland</B> (<B>THEATRE OF TRAGEDY</B>)<BR>Total Running Time DVD1: 01:48:20<BR><BR>DVD2:<BR>1. <B>Out Of Nothing</B> – the DT documentary (47:33)<BR>2. Promo videos:<BR>2.1. <B>Therein</B> (05:57)<BR>2.2. <B>Monochromatic Stains</B> (03:42)<BR>2.3. <B>Lost To Apathy</B> (04:01)<BR>2.4. <B>The New Build</B> (04:06)<BR>2.5. <B>Focus Shift</B> (03:40)<BR>2.6. <B>Terminus (Where Death Is Most Alive)</B> (05:00)<BR>2.7. <B>Misery's Crown</B> (04:16) *<BR>3. The Live Archive:<BR>3.1. <B>Only Time Can Tell</B> (1991) (06:17) *<BR>3.2. <B>The Dying Fragment Of An Elderly Dream</B> (1991) (04:06) **<BR>3.3. <B>Soulbreed</B> (1991) (07:07) **<BR>3.4. <B>Yesterworld</B> (1992) (07:33) *<BR>3.5. <B>Alone</B> (1992) (05:53) *<BR>3.6. <B>My Faeryland Forgotten</B> (1992) (04:35) *<BR>3.7. <B>Nightfall By The Shore Of Time</B> (1992) (05:19) *<BR>3.8. <B>Skywards</B> (1992) (04:46) *<BR>3.9. <B>Shadow Duet</B> (1994) (06:49) *<BR>3.10. <B>Crimson Winds</B> (1994) (05:33) *<BR>3.11. <B>Razorfever</B> (1997) (03:10) *<BR>3.12. <B>Constant</B> (1997) (03:23) *<BR>3.13. <B>Tongues</B> (1997) (04:53) *<BR>3.14. <B>Feast Of Burden</B> (2001) (03:53) *<BR>3.15. <B>Indifferent Suns</B> (2002) (03:52) *<BR>3.16. <B>The Sun Fired Blanks</B> (2002) (05:30) *<BR>3.17. <B>Hours Passed in Exile</B> (2002) (04:57)<BR>3.18. <B>Damage Done</B> (2004) (03:41)<BR>3.19. <B>One Thought</B> (2004) (04:06)<BR>3.20. <B>The Endless Feed</B> (2007) (04:54)<BR>3.21. <B>Blind At Heart</B> (2007) (05:15)<BR>* Previously unreleased live video<BR>** Previously unreleased live video and song<BR>Total Running Time DVD2: 3:03:49</P>
+Автор: Vit Belov
+
+### 28.11.2009 news DARK TRANQUILLITY назвали альбом
+
+<P>Новый альбом <STRONG>DARK TRANQUILLITY</STRONG>, который выйдет 1 марта, будет называться <STRONG>"We Are The Void". </STRONG>Барабаны для этого альбома были записаны в студии басиста группы <STRONG>Daniel Antonsson, </STRONG>а все остальные инструменты в студии <STRONG>Rogue</STRONG> music. Сведение выполнил <STRONG>Tue Madsen</STRONG> (<B>HALFORD</B>, <B>BEHEMOTH</B>, <B>KATAKLYSM</B>, <B>THE HAUNTED</B>). Вот названия некоторых песен: <STRONG>"I Am The Void"</STRONG>, <B>"Zero Distance"</B>, <B>"The Burden Of Love Alive"</B>, <B>"Archangelsk"</B>&nbsp;и <B>"Memories In Reverse"</B>. Обращает на себе внимания песня со знакомым названием "Архангельск".</P>
+Автор: Vit Belov
+
+### 18.12.2009 news Песня и обложка DARK TRANQUILLITY
+
+<P>Девятый альбом <STRONG>DARK TRANQUILLITY</STRONG> <STRONG>"We Are The Void" </STRONG>выходит 1 марта на<STRONG> Century Media</STRONG>. Первый сингл с этого альбома <STRONG>"Dream Oblivion"</STRONG>&nbsp;доступен на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/dtofficial">http://www.myspace.com/dtofficial</A></P>
+<P><center><IMG height=350 src="/images/news_rus/2009.12/15802.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 11.01.2010 news Трэк-лист нового DARK TRANQUILLITY
+
+<P>Новый альбом<STRONG> DARK TRANQUILLITY</STRONG>&nbsp;<STRONG>"We Are The Void"</STRONG> выходит 1 марта на <STRONG>Century Media</STRONG>. Опубликован трэк-лист этой пластинки:</P>
+<P>01. <B>Shadow In Our Blood</B><BR>02. <B>Dream Oblivion</B><BR>03. <B>The Fatalist</B><BR>04. <B>In My Absence</B><BR>05. <B>The Grandest Accusation</B><BR>06. <B>At The Point Of Ignition</B><BR>07. <B>Her Silent Language</B><BR>08. <B>Arkhangelsk</B><BR>09. <B>I Am The Void</B><BR>10. <B>Surface The Infinite</B><BR>11. <B>Iridium</B></P>
+Автор: Vit Belov
+
+### 11.02.2010 news Видео DARK TRANQUILLITY
+
+<P>Видеоклип<STRONG> DARK TRANQUILLITY</STRONG> на песню <STRONG>"Shadow In Our Blood" </STRONG>можно посмотреть ниже.&nbsp;Ролик сняли&nbsp;- <STRONG>Vasara Films</STRONG> (<B>TURISAS</B>, <B>DRAGONFORCE</B>).</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/gkqHj9Q8thw&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/gkqHj9Q8thw&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.03.2010 reviews Ветеранский альбом
+
+<P>Продолжается ли соревнование между IN FLAMES и DARK TRANQUILLITY в наши дни? Если раньше это соревнование было только в головах поклонников шведского melodic death-metal, то теперь, думается, оно выветрилось даже оттуда. Напрямую эти группы уже давно не конкурируют за пристрастия публики, но сравнить их музыку и карьеру будет довольно интересно.</P>
+<P>IN FLAMES стараются захватить рынки, творя актуальное звучание и подбадривая своей музыкой чувствительных подростков, DARK TRANQUILLITY выбрали своей целью совсем других людей. Новый альбом группы “We Are the Void” – интеллигентное переосмысление собственного творчества. В новой музыке шведов встречаются и элементы раннего творчества с оригинальными шведскими риффами, и элементы относительно более свежего когда-то спорного отрезка их дискографии. Блюдо приготовлено с чувством, от которого не укроется ни один поклонник DARK TRANQUILLITY со стажем. Отметим, что такой подход можно назвать ветеранским и даже старческим. Такое впечатление, что шведы окончательно нашли свою музыку, на которой решили завершить этот этап своего существования. Никаких телодвижений и откровений пока не предвидится, но этот альбом очень порадует тех, кому он адресован.</P>
+<P>Если вы поклонник DT, вы не пройдёте мимо. Для тех же, кто подзабыл звучание этой группы, “We Are the Void” неплохой повод оживить его в памяти.</P>
+Автор: Vit Belov
+
+### 21.07.2011 news Новый клип DARK TRANQUILLITY
+
+<P>Новый ролик шведов<STRONG> DARK TRANQUILLITY</STRONG> На песню <STRONG>"Iridium" </STRONG>можно посмотреть ниже. Песня взята с последнего альбома коллектива <STRONG>"We Are The Void"</STRONG>, который вышел в прошлом году. Видео-клип стал режиссёрским дебютом гитариста группы <STRONG>Niklas Sundin.</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER><IFRAME src="http://www.youtube.com/embed/vzVDt1xYFsM" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.08.2011 news Новый проект DARK TRANQUILLITY
+
+<P>Трейлер нового проекта музыкантов <STRONG>DARK TRANQUILLITY</STRONG> <STRONG>"Zero Distance" </STRONG>можно посмотреть ниже. Подробности последуют.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/4xdggkLiX24" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 27.09.2011 news Новый клип DARK TRANQUILLITY
+
+<P>Видео на песню<STRONG> DARK TRANQUILLITY "Zero Distance"</STRONG> можно посмотреть ниже. Этот трек является бонусом на новом издании последнего альбома шведов <STRONG>"We Are The Void"</STRONG>, которое выйдет 24 октября на <STRONG>Century Media</STRONG>.</P><center><iframe width="560" height="315" src="http://www.youtube.com/embed/ce4UXfZsrWs" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 23.02.2012 news Новое видео DARK TRANQUILLITY
+
+<P>Очередное вижддео шведов<STRONG> DARK TRANQUILLITY</STRONG> на песню "<STRONG>In My Absence</STRONG>" можно посомотреть ниже. Это уже пятый ролик с последнего альбома коллектива "<STRONG>We Are The Void</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/QLvH0aXmqm8?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.01.2013 news DARK TRANQUILLITY назвали альбом
+
+<P>Новый альбом<STRONG> DARK TRANQUILLITY</STRONG> получил название <STRONG>"Construct". </STRONG>Пластинка выйдет 27 мая на <STRONG>Century Media</STRONG>. В ближайшее время шведы войдут в студию. Уже известно, что сведением работы будет заниматься <STRONG>Jens Bogren</STRONG> (<B>PARADISE LOST</B>, <B>OPETH</B>, <B>KATATONIA</B>).</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25291.png" width=448 height=299></P>
+Автор: Vit Belov
+
+### 16.04.2013 news Новая песня DARK TRANQUILLITY
+
+<P>Новый трек <STRONG>DARK TRANQUILLITY</STRONG> <STRONG>"For Broken Words" </STRONG>можно послушать в клипе ниже. Песня войдёт в десятый альбом коллектива <STRONG>"Construct"</STRONG>, который выйдет в конце мая на <STRONG>Century Media</STRONG>. </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/QTkwuyb_PLc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.05.2013 news DARK TRANQUILLITY: детали альбома &quot;Construct&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мастера мелодичного death metal, шведская группа <STRONG>DARK TRANQUILLITY</STRONG>, закончили работу над своим новым альбомом под названием <STRONG>"Construct"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск увидет свет на лейбле <STRONG>Century Media</STRONG>: 27 мая в Европе, 28 мая - на территориях США и Канады.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Варианты оформления альбома и новый трек <STRONG>"The Science Of Noise"</STRONG>, можно оценить ниже.</FONT></P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.05/25674.jpg" width=650 height=350> 
+<P></P></CENTER>
+<P>
+<CENTER><IFRAME height=166 src="https://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F91020014" frameBorder=no width="92%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 07.06.2013 reviews Интеллигентный melodic death-metal
+
+<P>Ещё одни герои нашей юности, заслуженно признаваемые многими поклонниками мелодичного тяжеляка одним из самых интеллигентных коллективов в стиле, где вокалист поёт не своим голосом, то есть рычит или кричит. Удивительно, что не смотря на некоторые стилистические метания на рубеже веков, DARK TRANQUILLITY можно смело считать хранителями традиций и обвинять шведов в коммерциализации почему-то тоже не хочется.</P>
+<P>Безусловно, новейший опус группы “Conctruct” нельзя назвать ни самым тяжёлым в дискографии, ни самым оригинальным. Шведы в целом держатся в рамках собственного стиля, но каждый раз им удаётся порадовать слушателя приятной и запоминающейся музыкой. Новый альбом коллектива содержит как атмосферные разнообразные эпики с вкраплениями чистого вокала, так и классические melodic death-metal боевики, сдобренные возрастом участников представления. Приятно, когда в группе существуют несколько адекватных композиторов. В нашем случае это с одной стороны Niklas Sundin, ответственный за живые и ненавязчивые мелодии 90-х годов, и все остальные, представляющие более сложный, но не менее запоминающийся материал DARK TRANQUILLITY нового тысячелетия. </P>
+<P>Хотелось бы за что-нибудь поругать музыкантов, но этот альбом я прослушал с большим удовольствием и не могу ничего придумать такого, из-за чего потребителю не стоило бы приобретать его. Всем, кто любит DARK TRANQUILLITY добро пожаловать в магазин. Российской издание выполнено в формате digi-book, что является дополнительным плюсом.</P>
+Автор: Vit Belov
+
+### 19.08.2015 news DARK TRANQUILLITY пригласили на фестиваль в Москве
+
+<P><STRONG>Mikael Stanne</STRONG> - вокалист шведской легенды melodic death metal <STRONG>DARK TRANQUILLITY</STRONG> - записал для российской аудитории специальное видеоприглашение на фестиваль <STRONG>Moscow Metal Meeting</STRONG>, где его группа выступит вместе с <STRONG>HELLOWEEN</STRONG>, <STRONG>AMORPHIS</STRONG>, <STRONG>PRIMAL FEAR</STRONG>, <STRONG>АРКОНА</STRONG>, <STRONG>ЧЁРНЫЙ ОБЕЛИСК</STRONG>. Фестиваль пройдет на открытом воздухе, в <STRONG>"Зеленом Театре"</STRONG> Парка Горького, в последнюю субботу лета - 29 августа. Как и прежде, это единственный в Москве крупный open-air фестиваль тяжёлой музыки!</P>
+<P>Узнать о фестивале больше: <A href="http://www.moscowmetal.com/">http://www.moscowmetal.com</A></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/d0b8yPF4x9g" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.07.2016 news Новый альбом DARK TRANQUILLITY
+
+<h1>НОВОСТЬ ДНЯ!!!</h1><p>Шведские легенды<strong> DARK TRANQUILLITY</strong> в настоящее время записывают одиннадцатый альбом "<strong>Atoma</strong>", который выйдет 4 ноября на <strong>Century Media</strong>. </p><p>Группа сообщает: "<em>Это правда! Мы уже записали более половины альбома, и он получается разнообразным, включающим многие аспекты саунда DARK TRANQUILLITY. Трудно рассказать о нём более детально, так как мы до сих пор находимся в процессе создания музыки. Но мы очень удовлетворены получающимся результатом и с нетерпением ждём того момента, когда сможем поделиться им со всеми вами</em>".</p><p>"Atoma" записывается в студии <strong>Rogue Music</strong> в Гётеборге, принадлежащей клавишнику группы <strong>Martin Brandstrom</strong>. Сведением займётся <strong>David Castillo</strong>, известный по работе с KATATONIA, OPETH и CANDLEMASS. Обложку вновь нарисовал гитарист DARK TRANQUILLITY<strong> Niklas Sundin</strong>.</p><p>Группа выложила коллекцию клипов, демонстрирующих процесс записи, на своей страничке в <strong>Facebook</strong>: <a href="http://www.facebook.com/dtofficial">www.facebook.com/dtofficial</a></p><p>Тур в поддержку альбома начнётся в ноябре концертами в США и Канаде. В качестве "суппорта" в этом туре будут <strong>SWALLOW THE SUN, ENFORCER</strong> и <strong>STARKILL</strong>. Европейский тур запланирован на начало 2017 года.</p><p><center><img width="528" height="528" src="/images/news_rus/2016.07/29578.jpg" border="0"><p></p><p>&nbsp;</p></center></center>
+Автор: Vit Belov
+
+### 14.07.2016 news DARK TRANQUILLITY announce album details
+
+<h1>NEWS OF THE DAY!!!</h1><p>Sweden's <strong>DARK TRANQUILLITY</strong> are currently recording their 11th full-length album "<strong>Atoma</strong>", set to be released on November 4, 2016 through <strong>Century Media Records</strong>.</p><p>The band says: “<em>That's right! We're more than halfway done with the recording of the upcoming album, and it's shaping up to be a diverse and challenging affair that will feature a lot of different aspects of the D.T. sound. It's hard to be more specific while still immersed in the creative process, but we're incredibly excited about the material and can't wait to share the results with all of you soon</em>.”</p><p>"Atoma" is being recorded at <strong>Rogue Music</strong> in Gothenburg, the studio owned by D.T. keyboardist <strong>Martin Brдndstrцm</strong>. Mixing duties will be handled by <strong>David Castillo</strong>, known for his work with bands such as Katatonia, Opeth and Candlemass. The cover artwork was once again created by the band's guitarist <strong>Niklas Sundin</strong>.</p><p>The band has published a collection of the video clips uploaded from the studio on <a href="http://www.facebook.com/dtofficial">www.facebook.com/dtofficial</a>.</p><p>The touring cycle for "Atoma" will start with a headline North American run in November, featuring Swallow The Sun, Enforcer and Starkill as support acts. A European tour is planned for early 2017.</p><p>DARK TRANQUILLITY Live:</p><p>15.07.2016 Gefle Metal Festival, Gavle, Sweden<br>23.07.2016 River-side Festival, Esslingen, Germany<br>11.08.2016 Brutal Assault, Josefov, Czech Republic<br>12.08.2016 Leyendas del Rock Festival, Vilena,, Spain<br>03.09.2016 Turock Open Air, Essen, Germany<br>10.09.2016 Metal Italia Festival, Milano, Italy</p><p>US Headline tour with Swallow The Sun, Enforcer and Starkill</p><p>04.11.2016 The Gramercy Theatre, New York, NY<br>05.11.2016 Palladium Upstairs, Worcester, MA<br>06.11.2016 Trocadero Theater, Philadelphia, PA<br>07.11.2016 The Filmore, Silver Spring, MD<br>08.11.2016 Upstate Concert Hall, Clifton Park, NY<br>09.11.2016 Foufonues Electriques, Montreal, Canada<br>10.11.2016 Le Cercle, Quebec, Canada<br>11.11.2016 Mavericks, Ottawa, Canada<br>12.11.2016 The Opera House, Toronto, Canada<br>13.11.2016 Token Lounge, Westland, MI<br>14.11.2016 The Altar Bar, Pittsburgh, PA<br>15.11.2016 The Agora Theatre & Ballroom, Cleveland, OH<br>16.11.2016 Park Street Saloon, Columbus, OH<br>19.11.2016 Triple Rock Social Club, Minneapolis, MN<br>20.11.2016 Fubar, Saint Louis, MO<br>22.11.2016 Bluebird Theater, Denver, CO<br>25.11.2016 Rickshaw Theatre, North Vancouver, Canada<br>26.11.2016 El Corazon, Seattle, WA<br>27.11.2016 Hawthorne Theatre, Portland, OR<br>28.11.2016 PBJ's, Reno, NV<br>29.11.2016 Slim’s, San Francisco, CA<br>30.11.2016 City National Grove, Anaheim, CA<br>01.12.2016 Brick By Brick, San Diego, CA<br>02.12.2016 LVCS, Las Vegas, NV<br>03.12.2016 Club Red, Mesa, AZ<br>05.12.2016 Trees, Dallas, TX<br>06.12.2016 Cine El Rey, Mcallen, TX<br>07.12.2016 Scout Bar, Houston, TX</p><p><a href="http://www.darktranquillity.com">www.darktranquillity.com</a>&nbsp; <br><a href="http://www.facebook.com/dtofficial">www.facebook.com/dtofficial</a><br><a href="http://www.twitter.com/dtofficial">www.twitter.com/dtofficial</a> </p><p><center><img width="528" height="528" src="/images/news_rus/2016.07/29578.jpg" border="0"><p></p><p>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 21.09.2016 news Трек лист нового альбома DARK TRANQUILLITY
+
+<p>4 ноября <strong>DARK TRANQUILLITY</strong> выпускают одиннадцатый альбом<strong> "Atoma"</strong>. Уже в эту пятницу мы сможем послушать первый сингл с этой работы "<strong>The Pitiless</strong>". Лимитированное издание альбома будет содержать второй диск с двумя треками, на которых DARK TRANQUILLITY экспериментируют со звучанием.</p><p>Трек лист:</p><p>Encircled<br>Atoma<br>Forward Momentum<br>Neutrality<br>Force of Hand<br>Faithless by Default&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>The Pitiless<br>Our Proof of Life<br>Clearing Skies<br>When the World Screams<br>Merciless Fate<br>Caves and Embers</p><p><center><img width="600" height="400" src="/images/news_rus/2016.09/29987.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 21.09.2016 news DARK TRANQUILLITY announce Atoma tracklist 
+
+<p>On November 4th, 2016, <strong>DARK TRANQUILLITY</strong> will release their 11th album “<strong>Atoma</strong>” worldwide through <strong>Century Media Records</strong> and start their North American headline tour. Fans needing a first taste of the album can hear the new track, “<strong>The Pitiless</strong>” this coming Friday, over at Music Choice (USA) or pre-order the digital album via Apple Music, Amazon or Google Play. To keep the excitement going, DARK TRANQUILLITY will premiere a&nbsp; video for “The Pitiless” (filmed during their stay at the German Turock Open Air Festival in Essen), on Monday September 26th, over at the Century Media YouTube channel.</p><p>Here is the complete tracklisting of “Atoma”:</p><p>Encircled<br>Atoma<br>Forward Momentum<br>Neutrality<br>Force of Hand<br>Faithless by Default&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <br>The Pitiless<br>Our Proof of Life<br>Clearing Skies<br>When the World Screams<br>Merciless Fate<br>Caves and Embers</p><p>A limited edition double CD will be available as a digipak in North America and as a Mediabook in Europe. The bonus disc features the songs "The Absolute" and "Time Out of Place" that showcase a very different side of the band. Recorded and mixed by Anders Lagerfors at Nacksving studios, these tracks are among the darkest and most brooding ever from the band—but their experimental nature make them far removed from the usual metal territory.</p><p>The band explains, "<em>A lot of our songs start out as pieces of music written on piano/ keyboards before getting transformed into guitar driven metal. With this recording, we wanted to explore what would happen if we instead let the material take another direction, and we're extremely thrilled by the result</em>."</p><p>These songs will exclusively be available on the physical deluxe edition of "Atoma" and won't appear on the digital edition of the album. A vinyl 7” is planned for early 2017.</p><p><center><img width="600" height="400" src="/images/news/2016.09/29988.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 26.09.2016 news Новый видео-клип и первый сингл DARK TRANQUILLITY с нового альбома &quot;Atoma&quot;
+
+<p>Мы уже сообщали, что новый альбом шведских классиков melodic death metal<strong> DARK TRANQUILLITY "Atoma"</strong> выходит в начале ноября на <strong>Century Media</strong>. Первый сингл с этой работы "<strong>The Pitiless</strong>" доступен в видео-клипе ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/qLzcYx6iWec" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.09.2016 news DARK TRANQUILLITY release “The Pitiless” video
+
+<p>On November 4th, 2016, <strong>DARK TRANQUILLITY</strong> will release their 11th album “<strong>Atoma</strong>” worldwide through<strong> Century Media Records</strong> and start their North American headline tour. The band is proud to present the first single and video for the song “<strong>The Pitiless</strong>”. You can watch it below.</p><p>The band comments: “<em>Selecting the first single from an album as diverse as Atoma is always a hard task, but we felt that The Pitiless gives a good representation of the general vibe of the material. It's fast, melodic and with a sense of urgency that permeates the whole album. Enjoy!“</em></p><p>The video was filmed during their stay at the German Turock Open Air Festival 2016 in Essen by the director Dirk Behlau. The next video will be filmed by Vesa Ranta (ex-Sentenced drummer) in Northern Sweden and you can expect something very epic!</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/qLzcYx6iWec" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 08.10.2016 news DARK TRANQUILLITY выпустили заглавный трек с нового альбома &quot;Atoma&quot;
+
+<p>Новый альбом шведских легенд melodic death metal<strong> DARK TRANQUILLITY "Atoma"</strong> выходит 4 ноября на <strong>Century Media Records</strong>. Заглавную вещь с этого альбома можно послушать в клипе ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/C_voh9WFbsM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.10.2016 news DARK TRANQUILLITY – release album title track “Atoma”
+
+<p>On November 4th, 2016, <strong>DARK TRANQUILLITY</strong> will release their 11th album "<strong>Atoma</strong>" worldwide through<strong> Century Media Records</strong>. The band has now released an animated video for the album’s title track! </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/C_voh9WFbsM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 21.10.2016 news Новый видео-клип DARK TRANQUILLITY
+
+<p>Новое видео <strong>DARK TRANQUILLITY</strong> на песню "<strong>Forward Momentum</strong>" можно посмотреть ниже. Новый альбом шведов "<strong>Atoma</strong>" выходит 4 ноября на<strong> Century Media</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/suhuQlYZwtE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 21.10.2016 news DARK TRANQUILLITY – launch video for “Forward Momentum”!
+
+<p>Gothenburg melodic death metal pioneers, <strong>DARK TRANQUILLITY</strong>, have now released a video for the song “<strong>Forward Momentum</strong>”. You can watch it here:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/suhuQlYZwtE" frameborder="0" allowfullscreen></iframe></p><p>The video was filmed in the far North of Sweden near Kiruna by Vesa Ranta (ex-Sentenced, The Man-Eating Tree drummer) and directed by Harri Haataja. Vesa Ranta and DARK TRANQUILLITY already share a long history. Niklas Sundin created the cover artwork for the Sentenced album “Crimson” back in the year 2000 and both bands toured together shortly after. In 2008 DARK TRANQUILLITY honored their friends with a cover version of “Broken” on the 20th Anniversary compilation of their label Century Media.<br>&nbsp;<br>On November 4th, 2016, DARK TRANQUILLITY will release their 11th album "Atoma" worldwide through Century Media Records.</p>
+Автор: Vit Belov
+
+### 04.11.2016 news DARK TRANQUILLITY представили отрывки двух бонусов
+
+<p>Новый альбом <strong>DARK TRANQUILLITY "Atoma"</strong> выходит сегодня на <strong>Century Media</strong>. В клипе ниже можно услышать отрывки двух песен коллектива "<strong>The Absolute</strong>"&nbsp;и "<strong>Time Out Of Place</strong>", которые вошли в качестве бонусов на делюксовую версию альбома.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/KRIPbTqsc40" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.11.2016 news DARK TRANQUILLITY – launch “Atoma” bonus track medley!
+
+<p>Gothenburg melodic death metal pioneers, DARK TRANQUILLITY, have now released a medley of the two tracks “The Absolute” and “Time Out of Place”, taken from the bonus disc of the Deluxe CD Editions of “Atoma”!</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/KRIPbTqsc40" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Творчество DARK TRANQUILLITY

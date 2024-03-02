@@ -25,6 +25,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2011 news Новый альбом ВЕЛИАР
+
+<P><IMG height=399 alt="" hspace=0 src="/images/news_rus/2011.05/19542.jpg" width=400 align=right border=0>27 мая 2011-го года <STRONG>Grailight Productions</STRONG> представил миру альбом таганрогской группы <STRONG>ВЕЛИАР "В Отражении Истлевшего Мира"</STRONG>. Это горючая смесь из атмосферного техничного блэк-дэта и трэша, сплетённого разноплановыми аранжировками, мелодичностью, драйвовыми соло и зубодробительными риффами. Тексты песен, связанные воедино темой альбома, погрузят Вас в атмосферу упадка, скорби и философского созерцания естественного хода вещей через призму урбанистического угнетения. Сведением и мастерингом занимался известный музыкант и звукорежиссёр <STRONG>Сергей «Lazar» (Аркона, Rossomahaar).</STRONG> Концептуальное оформление принадлежит кисти <STRONG>Владимира Гулевского</STRONG>.</P>
+<P>Треклист:</P>
+<P>1. <STRONG>Чрево Барханов</STRONG><BR>2. <STRONG>Бездна Измерений</STRONG> <BR>3. <STRONG>Словно Ртуть <BR></STRONG>4. <STRONG>Эпоха Процветания</STRONG> <BR>5. <STRONG>Кошмар <BR></STRONG>6. <STRONG>Новая Ночь</STRONG> <BR>7. <STRONG>В Пелене Забвения</STRONG> <BR>8. <STRONG>Стоя на Краю <BR></STRONG>9. <STRONG>Крестоносец<BR></STRONG>10. <STRONG>Туманный Диктатор</STRONG> <BR>11. <STRONG>Belly of Barkhans</STRONG> (English version) <BR>12. <STRONG>Abyss of Dimensions</STRONG> (English version)<BR>13. <STRONG>Like a Mercury</STRONG> (English version)<BR>14. <STRONG>On the Brink</STRONG> (English version) </P>
+<P><A href="http://www.myspace.com/veliar">http://www.myspace.com/veliar</A><BR><A href="http://vkontakte.ru/veliar_official">http://vkontakte.ru/veliar_official</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

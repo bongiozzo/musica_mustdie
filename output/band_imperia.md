@@ -75,6 +75,36 @@ Audun Gronnestad - Orchestration
 * C группой "Danse Macabre" Jan Yrlund (guitar)
 * C группой "Ancient Rites" Jan Yrlund (guitar)
 
+## Публикации
+
+### 14.11.2006 news IMPERIA наносит второй удар
+
+<P><IMG height=233 alt="" hspace=15 src="/images/news_rus/2006.11/10882.jpg" width=350 align=left border=0>Голландско-норвежский gothic metal коллектив <B>IMPERIA</B>, в составе которого бывшая вокалистка <B>TRAIL OF TEARS</B> <B>Helena Iren Michaelsen</B>, заканчивает микширование своего второго альбома под названием <STRONG>"The Queen of Light". </STRONG>Его выход ожидается в начале 2007 года на <STRONG>Massacre Records</STRONG>. Альбом будет содержать 12 композиций, обещающих быть тяжелее и разнообразнее песен на дебюте. </P>
+Автор: Dimas
+
+### 05.02.2007 news IMPERIA опубликовали обложку нового альбома
+
+<P><IMG height=300 alt="" hspace=10 src="/images/news_rus/2007.02/11272.jpg" width=300 align=left border=0>Голландско-норвежский коллектив <STRONG>IMPERIA </STRONG>опубликовал обложку к&nbsp;своему новому альбому под названием&nbsp;<B>"Queen of Light"</B>,&nbsp;который увидит свет 23 марта через&nbsp;<B>Massacre Records</B>. Он будет содержать тринадцать более тяжелых и более разнообразных треков, чем на дебюте.&nbsp;&nbsp;Альбом выйдет в двух варинтах: обычное стекло и&nbsp;digipak, который будет содержать документальный фильм о создании альбома в качестве бонуса.&nbsp;&nbsp;</P>
+<P>&nbsp;</P>
+Автор: Dimas
+
+### 23.02.2011 news IMPERIA выпускает новый альбом
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.02/18712.jpg" width=450 align=right border=0>Вокалистка весомых достоинств <STRONG>Helena Iren Michaelsen </STRONG>выпускает новый альбом своей группы<STRONG> IMPERIA</STRONG> <STRONG>"Secret Passion" </STRONG>25 марта на <STRONG>Massacre Records</STRONG>. Пластинка была записана в студии <STRONG>Spacelab </STRONG>в Германии. Трек-лист:</P>
+<P>01. <B>Touch Of Your Hand</B><BR>02. <B>Secret Passion</B><BR>03. <B>Fragile</B><BR>04. <B>Out Of Sight</B><BR>05. <B>Let Down</B><BR>06. <B>Violence</B><BR>07. <B>Like Rain</B><BR>08. <B>Suicide</B><BR>09. <B>Hold On</B><BR>10. <B>Greed</B><BR>11. <B>Missing It All</B><BR>12. <B>My Sleeping Angel</B><BR>13. <STRONG>Mistress</STRONG> (digipak bonus track)</P>
+Автор: Vit Belov
+
+### 18.07.2016 news Massacre Records выложили последний альбом IMPERIA целиком
+
+<p>В клипе ниже можно послушать последний альбом gothic metal группы с женским вокалом <strong>IMPERIA "Tears Of Silence</strong>". Пластинка вышла в прошлом году на <strong>Massacre Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/hFT-wMu4s18" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 18.07.2016 news Full stream of latest album by IMPERIA
+
+<p>In the clip below you can listen to the latest album from gothic metal band with female vocals<strong> IMPERIA "Tears Of Silence"</strong>. The album was released last year via <strong>Massacre Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/hFT-wMu4s18" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

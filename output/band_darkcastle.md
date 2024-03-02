@@ -20,6 +20,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.07.2017 news DARK CASTLE Vkontakte
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В&nbsp;соцсети&nbsp;Vkontakte открылось сообщество посвященное замечательной американской&nbsp;группе <STRONG>DARK CASTLE</STRONG>! Присоединяйтесь, пока не стало очень поздно!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="https://vk.com/darkcastlemetal">https://vk.com/darkcastlemetal</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.07/30657.jpg" width=660 height=523> 
+<P></P></CENTER>
+Автор: 50206
+
+
 ## Обсуждения
 
 

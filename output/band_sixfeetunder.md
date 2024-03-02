@@ -321,6 +321,790 @@ Jeff Hughell - Bass
 * C группой "Torture Killer" Chris Barnes moved to Six Feet Under at 1995.
 * C группой "Death" Terry Butler was a drummer at Death's "Leprosy"
 
+## Публикации
+
+### 01.04.1999 news 
+
+<p>Six Feet Under записали новый альбом "Maximum Violence". По сообщению Metal Blade альбом является логичным продолжением предыдущей работы "Warpath". Также на альбоме будет кавер песни Kiss "War Machine". Альбом появится в продаже 13 июля.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>7 октября начался тур Manowar вместе с Six Feet Under по США. Это первый тур Manowar по США за 10 лет.</p>
+
+Автор: Vit Belov
+
+### 13.10.1999 articles Крис Барнс: Я не чувствую приближения металлической революции.
+
+<p>Когда Крис Барнс вместе с Аланом Уэстом организовывали новую формацию под названием Six Feet Under, никто не сомневался, что будет играть эта группа. Так и получилось, коллектив выступает в стиле, известным, как death-metal и отчаянно пытается завоевать лидерство в нём по обе стороны океана. 13 июля вышел их новый альбом "Maximum Violence", это и стало первой темой разговора с Крисом Барнсом.</p>
+<P> Новый альбом, как возвращение в прошлое, он более тяжёлый и короткий, чем предыдущий "Warpath". С чем это связано? Ребята хотели получить этот материал, или это происки продюсера пластинки Брайана Стагеля? Наверное, у вас были проблемы с лейблом, из-за утяжеления?</>
+<P> Крис: "Да, это то, что мы хотели получить, и вышло здорово. Но это не только заслуга продюсера. Он сделал свою работу просто здорово на предыдущей работе, поэтому он работал с нами и новых вещах. Никаких проблем с лейблом у нас не было, мы были предоставлены себе в творческом плане."</>
+<P> Недавно группу покинул Алан Уэст. Что с ним случилось? И как влился в коллектив Стив Сванссон?</>
+<P> Крис: "В основном, Алан просто не врубался в то, что мы делаем. Настало его время покинуть группу. Я не знаю, что нового добавил нам Стив, но он великолепный гитарист и очень хорошо влился в коллектив."</>
+<P> Группа на последней пластинке сделала кавер песни Kiss "War Machine". Они сильно влияют на вашу музыку?</>
+<P> Крис: "Да, они просто открыли для меня музыку, наряду с Black Sabbath и Judas Priest. Мне нравится эта песня, а "Creatures Of The Night", вообще, моя любимая запись. Кто не захочет сделать кавер с неё?"</>
+<P> Текста стали более кровавые. Это естественно для тебя, Крис?</>
+<P> Крис: "Да, это естественно. Я просто писал то, на что подталкивала наша музыка. Музыка направила меня в этом направлении на этом альбоме. Плюс ко всему, я ещё должен был рассказать то, что у меня на душе, и это честно."</>
+<P> Да, Крис всегда писал честно. Даже во времена его участия в Cannibal Corpse. Насколько важна эта честность для Криса Барнса в жизни и в музыке?</>
+<P> Крис: "Это должно быть важно для каждого человека. Я думаю, каждый должен всегда говорить то, что он думает и стараться повлиять в этом смысле на других людей."</>
+<P> Такая жизнь не выматывает тебя?</>
+<P> Крис: "Нет, я так не думаю. Я просто должен так жить. Если этого не будет, это как будто я потеряю свою правую руку. Жить-то без неё можно, а вот очень неудобно."</>
+<P> Появилось очень много статей, журналов, разнообразных изданий о металле в последнее время. Не считаешь ли ты, что грядёт новая металлическая революция?</>
+<P> Крис: "Мне это не заметно. Мы дэт-металл группа, и я не вижу, чтобы аудитория выросла так уж сильно. Но одно можно сказать с уверенностью, металл никогда не умрёт."</>
+<P> Будет ли тур?</>
+<P> Крис: "Да мы отыграем тур в Европе, а затем вернёмся, чтобы покорить Штаты."</>
+<P> Что собирается делать Six Feet Under в ближайшее время?</>
+<P> Крис: "Я не заглядываю вперёд никогда. Я живу сегодняшним днём."</>
+<P> В конце интервью, можно лишь заметить, что Крис такой правильный, рассудительный человек, что, прям жуть берёт. Откуда только всё взялось. Хотя наверно это здорово, что дэт-металл остаётся для него работой, а не срывает крышу и не заставляет с упоением кричать о возрождении металла.</>
+<P></>
+<P> По материалам зарубежной прессы.</>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Metal Blade переиздаст последний альбом Six Feet Under "Maximum Violence" с одним концертным бонусом.</p>
+
+Автор: Vit Belov
+
+### 14.09.2000 news Новый альбом Six Feet Under
+
+<p> Новый альбом Six Feet Under будет называться "Graveyard Classics", и это будет сборник кавер-версий песен таких групп, как: Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix и Venom.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news New album of Six Feet Under
+
+<p> The new album of Six Feet Under will be titled "Graveyard Classics" and it will be a covers album with the band paying tribute to the bands that influenced them. The album will feature songs from Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix and Venom.</p>
+
+Автор: Nybras
+
+### 22.09.2000 news О релизах Metal Blade до конца 2000-го  года
+
+<p> Европейский отдел Metal Blade афишировал список своих релизов, запланированных до конца этого года. Итак:<br>25.09.00 CANNIBAL CORPSE Live Cannibalism (новый альбом)<br> 25.09.00 CANNIBAL CORPSE Live Cannibalism (новое видео)<br> 09.10.00 LIZZY BORDEN Deal With The Devil (новый альбом)<br> 23.10.00 ANCIENT God Loves The Dead (новый мини-диск)<br> 23.10.00 SIX FEET UNDER Graveyard Classics (новый альбом)<br> 06.11.00 IMMOLATION Close To A World Below (новый альбом)<br> 06.11.00 VOMITORY Revelation Nausea (новый альбом)<br> 20.11.00 DIES IRAE Immolated (новый альбом)<br> 20.11.00 VADER Reign Forever World (новый альбом)<br> 20.11.00 CHINCHILLA Madness (новый альбом)<br></p>
+
+Автор: Nybras
+
+### 15.02.2001 news Новости от SIX FEET UNDER
+
+<p>SIX FEET UNDER засели в студию Criteria в Майами для работы над новым собственным альбомом. В записи эпизодически будет участвовать "некто" ICE-T.....!?!?!?!?!</p>
+
+Автор: Yermola
+
+### 15.02.2001 news SIX FEET UNDER news
+
+<p>SIX FEET UNDER are scheduled to hit Criteria Studios in Miami to begin work on there forthcoming album. The rumour floating around is that ICE-T will make an appearance.</p>
+
+Автор: Yermola
+
+### 16.04.2001 news Шесть футов под.....килем
+
+<p>SIX FEET UNDER завершают работу над продолжением "Максимального Насилия". Основатель "Metal Blade" - Brian Slagel продюссирует, а Dave Schiffman ("SYSTEM OF A DOWN, RAGE AGAINST THE MACHINE и POWERMAN 5000") - микширует треки. Альбом выходит - 8 Августа. Фронтмен Chris Barnes обрадовал народ сообщением: "Это будет трах-тарарах брутальный дэс-металл с вокалом старой школы!"</p>
+
+Автор: Yermola
+
+### 16.04.2001 news Fucking Brutal Death Metal!
+
+<p>SIX FEET UNDER are currently Criteria Studios in Miami wrapping up the long-awaited follow-up to Maximum Violence. Metal Blade founder Brian Slagel will once again assume production duties with mixing chores handled by Dave Schiffman, who's recent credits include work with SYSTEM OF A DOWN, RAGE AGAINST THE MACHINE and POWERMAN 5000. The album will include a guest appearance from BODYCOUNT mainman Ice-T. The new album will be released on August 8th. Frontman Chris Barnes describes the album as "fucking brutal death metal with old-school vocals."</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Настоящая резня...
+
+<p>SIX FEET UNDER уже смикшировали шесть песен для нового релиза незатейливо названного "True Carnage" (Настоящая резня!) - 01. The Day The Dead Walked 02. It Never Dies 03. The Murderers 04. Cadaver Mutilator 05. Impulse To Disembowel 06. Sick And Twisted (с Karyn Crisis из "CRISIS" на вокале). Сейчас команда пишет песню "One Bullet Left" с рэппером (?!?!?) Ice-T. Как поделился Крис Барнс: "Это будет настоящий рэп-металл. Айс написал просто больную лирику... Это очень...очень агрессивно!!!"</p>
+
+Автор: Yermola
+
+### 26.04.2001 news True Carnage.......
+
+<p>SIX FEET UNDER's upcoming studio album, which is currently being mixed in Florida with producer Dave Schiffman, will be entitled True Carnage. Song titles set to appear on the CD include the following: 01. The Day The Dead Walked 02. It Never Dies 03. The Murderers 04. Cadaver Mutilator 05. Impulse To Disembowel 06. Sick And Twisted (featuring Karyn Crisis of CRISIS). Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 08.06.2001 news Impulse To Disembowel...
+
+<p>Две песни с еще не вышедшего альбома "SIX FEET UNDER" - "True Carnage" доступны в виде МР3 для скачивания на сайте www.sfu420.com. Это "Impulse To Disembowel" и "The Day The Dead Walked".</p>
+
+Автор: Yermola
+
+### 08.06.2001 news Impulse To Disembowel....
+
+<p>SIX FEET UNDER have made available two new MP3s, "Impulse To Disembowel" and "The Day The Dead Walked", from the group's True Carnage CD (due out August 7th on Metal Blade Records) for download via the band's official web site: www.sfu420.com. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.08.2001 news &quot;Настоящая резня&quot; в мажорных хит-парадах.
+
+<p>Death metal монстры SIX FEET UNDER стремительно ворвались в мировые чарты со своим новейшим альбомом "True Carnage". Альбом стартовал с 40-й позиции в German Media Chart 100, 18-й - в Billboard Heatseekers и 17-й в Denmark's National Alternative Chart. Также группа примет участие в нескольких международных фестивалях в качестве хэдлайнера.</p>
+
+Автор: Odiumaniac
+
+### 22.11.2001 news Это слишком тяжело для нас...
+
+<p>Новое видео "SIX FEET UNDER" снятое на песню "The Day The Dead Walked" было не принято к показу ТВ-каналами MTV и MTV2. Как сообщило руководство канала: "..и музыка и видеоряд сликом тяжелы для нас...". Между тем, Much Music Canada одобрили видео к показу и в ближайшее вермя начнут выдавать его в эфир.<BR><BR> Из других новостей, гитарист Steve Swanson и бассист Terry Butler подписали рекламный контракт с известным производителем гитар Ibanez, влившись в когорту Полов Гилбертов, Фрэнков Гэмблов и Стиви Вэйев....</p>
+
+Автор: Yermola
+
+### 22.11.2001 news The Day The Dead Walked...
+
+<p>SIX FEET UNDER's video for "The Day The Dead Walked" has been turned down by both MTV and MTV2. The reason reportedly given by the channel was that "both the music and imagery are too heavy for us right now." However, Much Music Canada has reportedly accepted the clip and is planning on airing it shortly. In other news, SIX FEET UNDER bassist Terry Butler and guitarist Steve Swanson have signed an endorsement deal with Ibanez.</p>
+
+Автор: Yermola
+
+### 14.05.2002 news Lead Weight обгоняет KRISIUN и Six Feet Under на www.mp3.com.....
+
+<p>МР3 песни техно-дэтстеров "LEAD WEIGHT" - "Last Dance" обгоняет по количеству скачиваний "Dawn of Flagellation" группы "KRISIUN" (Century Media Records) и "No Warning Shot" группы "Six Feet Under" (Metal Blade Records) в Death Metal Charts... <BR><BR> Как говорится: "Даешь!!!"<BR><BR> Ресурс: <A HREF="http://genres.mp3.com/music/metal/death_metal/index7.html">http://genres.mp3.com/music/metal/death_metal/index7.html</A></p>
+
+Автор: Yermola
+
+### 15.05.2002 news Russian techno-deathsters LEAD WEIGHT won the battle with &quot;KRISIUN&quot; and &quot;Six Feet Under&quot;!!!!!!!!
+
+<p>LEAD WEIGHT "Last Dance" MP3 won the battle with "Dawn of Flagellation" from "KRISIUN" (Century Media Records) and "No Warning Shot" from "Six Feet Under" (Metal Blade Records) at MP3.com Death Metal Charts!!!!!!!!!!!! <BR><BR> Source: <A HREF="http://genres.mp3.com/music/metal/death_metal/index7.html ">http://genres.mp3.com/music/metal/death_metal/index7.html </A></p>
+
+Автор: Yermola
+
+### 17.05.2002 news WIN FREE MUSIC!!!
+
+<P>WIN FREE MUSIC!!! </P></>
+<P> </P></>
+<P>Spitfire Records and Metal Maniacs presents: </P></>
+<P> </P></>
+<P>..the compilation featuring Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) and MORE. 15 bands, one CD and all you need to do to snag a copy is answer some simple metal trivia questions (below). </P></>
+<P> </P></>
+<P>RULES: Answer the questions. Win the goods. It's THAT simple. ALL ENTRIES MUST BE SENT TO: maniacsmail@yahoo.com or maniacsmail@metalmaniacs.com </P></>
+<P>(any entries sent to this address will not be accepted) </P></>
+<P>or snail mailed to: </P></>
+<P> </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Include your full name, address, phone # and e-mail. All entries must be in by Monday, June 10th. </P></>
+<P> </P></>
+<P>1. Which drummer played on the Megadeth track “Peace Sells”? </P></>
+<P>2. What does Deicide’s Glen Benton have burned into his forehead? </P></>
+<P>3. Crowbar’s Kirk Windstein also performs with which New Orleans supergroup? </P></>
+<P>4. The new Pissing Razors album is called ‘Where We Come From’. Where DO they come from? </P></>
+<P>5. Chris Barnes of Six Feet Under is previously of what band? </P></>
+<P>6. Which South Carolina band opened for Cradle Of Filth on their 2001 North American tour? </P></>
+<P>7. Name five bands Danny Lilker has played in. </P></>
+<P>8. What legendary NYHC band was fronted by Pro Pain’s Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 17.05.2002 news Играйте и выигрывайте!!!
+
+<P>Дорогие маздайцы! Вы можете принять участие в конкурсе проводимом лэйблом Spitfire Records и журналом Metal Maniacs. Если вы правильно ответите на приведенные ниже вопросы то станете обладателем одного из сборника "DERANGED" с участием Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) и др. (всего 15 групп). </P></>
+<P> </P></>
+<P>Все ответы (написанные хорошим английским языком) должны быть посланы на e-mail: maniacsmail@yahoo.com или maniacsmail@metalmaniacs.com </P></>
+<P> </P></>
+<P>Также вы можете послать их по почте: </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Незабудьте вписать свое имя, почтовый адрес, телефон и e-mail. Крайний срок приема ответов - 10-е июня. </P></>
+<P> </P></>
+<P>Вопросы: </P></>
+<P> </P></>
+<P>1. Какой барабанщик играл в треке Megadeth - “Peace Sells”? </P></>
+<P>2. Что любит поджигать Deicide’овский Glen Benton у себя на лбу? </P></>
+<P>3. В какой Нью-Орлеанской супергруппе играет Kirk Windstein из Crowbar? </P></>
+<P>4. Новый альбом Pissing Razors называется ‘Where We Come From’. Так откуда именно они пришли? </P></>
+<P>5. В какой команде раньше участвовал Chris Barnes из Six Feet Under? </P></>
+<P>6. Какая команда из Южной Каролины разогревала Cradle Of Filth в их Северо-американском туре 2001 года? </P></>
+<P>7. Перечислите пять групп в которых играл Danny Lilker? </P></>
+<P>8. В какой легендарной Нью-Йоркской команде выступал фронтмен Pro Pain - Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 22.05.2002 news Фильм о SIX FEET UNDER ..........
+
+<p>SIX FEET UNDER 14-го июня в St. Paul, Minnesota будут снимать видео и записывать живой концерт. Говорит Крис Барнс: "Это будет профессиональная съемка Дэйва Рота, который делал для нас 'The Day The Dead Walked', 'Victim of the Paranoid' и 'Manipulation' видео, записывать будет Chris Carroll (Maximum Violence, Graveyard и True Carnage)."</p>
+
+Автор: Yermola
+
+### 22.05.2002 news SIX FEET UNDER To Film Live CD&#x2F;Home Video ....
+
+<p>SIX FEET UNDER will be recording a live CD and home video (DVD?) at the Lab in St. Paul, Minnesota on June 14th for an early 2003 release. According to frontman Chris Barnes, "this is gonna be proffesionally shot on film by Dave Roth, who directed 'The Day The Dead Walked', 'Victim of the Paranoid', and 'Manipulation' videos, and will be digitally recorded live by Chris Carroll [who'd worked with us on the Maximum Violence, Graveyard, and True Carnage CDs]. Songs from the show will also be featured on a live CD, which will coincide with the release of the video. This is gonna be 100% pro, so if you want to see your ugly f.ckin' face show up on our vid—make it to this show, if its the last thing you ever do!! Prepare yourself..."</p>
+
+Автор: Yermola
+
+### 19.09.2002 news Double Dead....
+
+<p>SIX FEET UNDER recorded live footage for their new CD/DVD release “Double Dead” at the Lab in St. Paul, Minnesota on June 14th for a November 4th 2002 release (European release date). The show was professionally shot on film by Dave Roth, who directed 'The Day The Dead Walked', 'Victim of the Paranoid', and 'Manipulation' videos, and was digitally recorded live by Chris Carroll who worked with the band on the "Maximum Violence", "Graveyard Classics", and "True Carnage" CDs. Songs recorded from shows in WA and CO will also be featured on the live CD, which will be released as set hence the title “Double Dead”. Also included on the DVD is the rare in store signing that took place at ROOT CELLAR Records in St. Paul, MN. <BR><BR> <IMG SRC="/images/news/2002.09/3201.jpg" ALT="pho" width=212 height=302 hspace="15" vspace="5" border="1" align="right"> [DVD box]<BR><BR> 1. The Day the Dead Walked<BR> 2. The Murderers<BR> 3. Waiting for Decay<BR> 4. Impulse to Disembowel<BR> 5. Feasting on the Blood of the Insane<BR> 6. No Warning Shot<BR> 7. Silent Violence<BR> 8. The Enemy Inside<BR> 9. Victim of the Paranoid<BR> 10. Manipulation<BR> 11.Torn to the Bone<BR> 12. 4:20<BR> 13. Bonesaw<BR> 14. Torture Killer<BR><BR> Special Features:<BR> -Inside Death Metal<BR> -Photo Gallery<BR> -Discography<BR><BR> DVD: Recorded live on June 14, 2002 at The Lab in St. Paul, MN - No Overdubs were used! Cover artwork by Paul Booth (www.lastrites.com)<BR><BR> Bonus Audio CD<BR><BR> 1. War Is Coming Recorded in Seattle, WA<BR> 2. A Journey Into Darkness Recorded in Seattle, WA<BR> 3. Revenge Of The Zombie Recorded in Seattle, WA<BR> 4. Night Visions Recorded during sound check in Seattle, WA<BR> 5. Hacked To Pieces Recorded in Denver, CO</p>
+
+Автор: Yermola
+
+### 19.09.2002 news Двойной мертвец...
+
+<p>SIX FEET UNDER сняли свой концерт в Миннесоте 4-го июня и готовят его под названием “Double Dead” для выпуска на CD/DVD. Дата Европейского релиза 4-е ноября. Кавер артворк выполнен Paul Booth (www.lastrites.com). <BR><BR> <IMG SRC="/images/news/2002.09/3201.jpg" ALT="pho" width=212 height=302 hspace="15" vspace="5" border="1" align="right"> [DVD box]<BR><BR> 1. The Day the Dead Walked<BR> 2. The Murderers<BR> 3. Waiting for Decay<BR> 4. Impulse to Disembowel<BR> 5. Feasting on the Blood of the Insane<BR> 6. No Warning Shot<BR> 7. Silent Violence<BR> 8. The Enemy Inside<BR> 9. Victim of the Paranoid<BR> 10. Manipulation<BR> 11.Torn to the Bone<BR> 12. 4:20<BR> 13. Bonesaw<BR> 14. Torture Killer<BR><BR> Добавления:<BR> -Взгляд изнутри на Death Metal<BR> -Фото-галлерея<BR> -Дискография<BR><BR> Бонус Аудио CD<BR><BR> 1. War Is Coming <BR> 2. A Journey Into Darkness <BR> 3. Revenge Of The Zombie <BR> 4. Night Visions <BR> 5. Hacked To Pieces</p>
+
+Автор: Yermola
+
+### 26.04.2003 news Новый альбом SIX FEET UNDER
+
+<p>Стало известно название нового релиза американских мастеров gore death metal SIX FEET UNDER. Альбом под названием "Bringer of Blood" должен выйти на Metal Blade Records в самом конце 2003 года. В него войдут одиннадцать трэков разрушительной силы, названия которых пока неизвестны...</p>
+
+Автор: Dimas
+
+### 15.05.2003 news Studio Report from Chris Barnes...
+
+<p>Studio Report from Chris Barnes: <BR> "Hey everyone---I'm back from Miami. I'm all finished layin down the vocals toour new CD 'Bringer Of Blood'. I had a great time recording this fuckin CD. Man I really think there is some hellish material all around on this one, and I know for a fact all you die-hard SFU fans are gonna be into this!! Just want to say thanks to Chris Carroll he did a great job keepin things rollin along behind the mixing board, at the Hit Factory Criteria, and really helped me achieve what I intended to do vocally--thanx Merrill!! And since it's my debut producing a studio CD I wanted to get started early and try getting a mix together. We got around to mixing about 5 songs, I think we definitely got a jump on things and have a good idea how we want this to sound, but we still have some work ahead of us. We also did some ruffs on the other 6 songs (the title track will be released in Germany as a German language lyric version!!! That was a challenge!!).We aren't quite sure at this point who will complete the mixes, or what studio that will be, but we are talking to a couple different spots and various people to get the mix done. I just want this CD to sound its best, we are all real excited to get this one out to you all, and for all the haters, hope you hate this one too!! Oh yeah by the way... fuck you!"</p>
+
+Автор: Yermola
+
+### 20.07.2003 reviews И это называется «дэт»?!
+
+<p>И это называется «дэт»?! Не смешите меня. Если это и дэт, то явно какая-то новая его разновидность. А как же, скажите вы, альбомы, последовавшие за "Warpath"? “True Carnage”, например? Да, с каждым новым диском SIX FEET UNDER становились всё более брутальными и… всё менее интересными. Да, “True Carnage” разочек можно послушать. Более того, получить удовольствие. Но только разок-другой, – по крайней мере, в моём случае. Дебютный же альбом новой группы Криса Барнса можно слушать бесконечно… Ибо – интересно. Ибо – затягивает. По музыке это нечто крайне мелодичное, но при этом чертовски тяжёлое (не путать с СМДМ'ом или о чём вы там ещё подумали! ;-)), практически на всём протяжении альбома – среднетемповое, в то время как Барнс не только рычит (рычание, к слову, также выходит на удивление «мелодичным»), но и пытается петь, - а не хрюкать как на последнем диске. Паршивое описание вышло? Ну что ж делать. Купите и послушайте сами.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 30.07.2003 news Новый альбом SIX FEET UNDER
+
+<p>Флоридские дэтстеры Six Feet Under огласили трэклист своего нового альбома "Bringer Of Blood":</p>
+<p> 1. SICK IN THE HEAD <BR> 2. AMERIKA THE BRUTAL <BR> 3. MY HATRED <BR> 4. MURDERED IN THE BASEMENT <BR> 5. WHEN SKIN TURNS BLUE <BR> 6. BRINGER OF BLOOD <BR> 7. UGLY <BR> 8. BRAINDEAD <BR> 9. BLIND AND GAGGED <BR> 10. CLAUSTROPHOBIC <BR> 11. ESCAPE FROM THE GRAVE</p>
+<p> Также дополнительно к релизу должна выйти специальная версия альбома (limited edition), которая будет содержать еще и DVD. DVD будет содержать 45-минутное видео, съемки за кулисами. Также съемки с мест записи альбома в студии и несколько интервью со всеми музыкантами. Также будет 20-минутный документальный фильм, который называется "Six Feet Underground", его специально снял Darren Grams.</p>
+<p> Новый альбом "Bringer Of Blood" увидет свет 22 сентября 2003 года.</p>
+
+Автор: Darkfall
+
+### 18.09.2003 news Update from Chris Barnes...
+
+Here's a little update from Chris Barnes himself: "Hey all you fuckin maniacs!!! Just wanted to check in with you to let ya know what's goin' on with SFU as of late. Hmmm let's see... been doin a lot of press the past month, including an interview and photo session for Revolver in which I carved up a freshly killed pig!!!! What'll they think of next... gettin ready for the release of 'Bringer Of Blood'... and it's about time; all this waiting is fuckin getting to me!! Wanna get out on the road and play this new shit and watch you all freak the fuck out!! We had a great time on tour in Europe last month... had a lot of fun at the With Full Force fest and Graspop - we have just booked a US tour that will kick off 2nd week in October. We will be heading up to Canada this time around; so all you north of the border will get a dose of the 6." <br><br>
+
+The wait is finally coming to an end, for "Bringer Of Blood" will be released on Monday next week! Make sure you pick up the limited edition, which includes special packaging and a bonus DVD!
+Автор: Yermola
+
+### 30.09.2003 news SIX FEET UNDER попадают в чарты
+
+Альбом флоридских дэт-металлистов <B>SIX FEET UNDER "Bringer Of Blood"</B> занял 17 место из 100 в немецких чартах <B>TrendCharts</B>.
+Автор: Darkfall
+
+### 20.10.2003 news Six Feet Under, Behemoth, Skinless and As I Lay Dying in North America
+
+10/17 Orlando, FL <BR>10/18 Ft. Lauderdale, FL<BR>10/19 Atlanta, GA <BR>10/20 Spartanburg, SC <BR>10/22 Pittsburgh, PA <BR>10/23 West Springfield, VA <BR>10/24 Providence, RI <BR>10/26 New Haven, CT <BR>10/27 Long Island, NY <BR>10/28 Randolph, NJ<BR>10/30 Montreal, QC <BR>10/31 Toronto, ON <BR>11/01 Latham, NY <BR>11/02 Brooklyn, NY <BR>11/03 Chicago, IL <BR>11/04 Milwaukee, WI<BR>11/05 St. Louis, MO <BR>11/06 Cedar Falls, IA <BR>11/07 Kansas City, MO <BR>11/08 Denver, CO <BR>11/09 Salt Lake City, UT<BR>11/12 Hollywood, CA <BR>11/13 Santa Ana, CA <BR>11/15 Phoenix, AZ <BR>11/19 San Antonio, TX
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 24.12.2003 reviews Идиотизм с большой буквы &quot;И&quot;
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off">
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off">Идиотизм. Притом с большой буквы «И». Похоже на то, что г-н Барнс превратил в дрэды не только свои волосы, но и собственные же скудные мозги. Хотите знать, что собой представляет последний SIX FEET UNDER? Если первый альбом этой группы представлял собой просто неплохой дэт по-американски, а второй фактически был шедевром, не поддающимся стилистической классификации, то третий на поверку оказался слабеньким дэткором. Равно как и “Bringer of Blood”. Другое дело, что этот самый «Несущий кровь» на порядок хуже «Истинной резни». Ни одной интересной вещи, ни единой капли брутальности, плюс средненький звук. В помойку<I>.</I></TD></TR></TBODY></TABLE></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE>
+<BLOCKQUOTE id=6c2a02cc>
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off"></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE></BLOCKQUOTE>
+Автор: Kai Mathias Stalhammar
+
+### 04.01.2004 news &quot;Graveyard Classics 2&quot;
+
+<B>SIX FEET UNDER</B> планируют записать продолжение сборника каверов&nbsp;<B>"Graveyard Classics",</B> вышедшего в 2000 году. Какие именно песни войдут на диск в этот раз пока не сообщается.
+Автор: Uneral
+
+### 22.01.2004 news SIX FEET UNDER начнут запись летом...
+
+Начать запись <B>'Graveyard Classics 2'</B> участники американского death metal коллектива <B>SIX FEET UNDER</B> намерены начать в апреле-мае текущего года после того, как закончат серию выступлений на летних фестивалях, среди которых With Full Force 2004 и множество европейских фестивалей.
+Автор: Darkfall
+
+### 03.09.2004 news SIX FEET UNDER записали &#39;Back In Black Part II&#39;
+
+<P><STRONG>SIX FEET UNDER</STRONG> выпускают второй альбом каверов <STRONG>'Graveyard Classics, Pt. 2'</STRONG> 20 октября на <STRONG>Metal Blade</STRONG>. Трэк-лист:</P>
+<P>01. <B>Hells Bells</B><BR>02. <B>Shoot to Thrill</B> <BR>03. <B>What Do You Do For Money Honey</B><BR>04. <B>Givin the Dog a Bone</B> <BR>05. <B>Let Me Put My Love Into You</B> <BR>06. <B>Back in Black</B> <BR>07. <B>You Shook Me All Night Long</B> <BR>08. <B>Have A Drink On Me</B> <BR>09. <B>Shake A Leg</B> <BR>10. <B>Rock N' Roll Ain't Noise Pollution</B></P>
+<P>Как можно заметить, это альбом <STRONG>AC/DC 'Back In Black'</STRONG>, ПОЛНОСТЬЮ!!!</P>
+Автор: Vit Belov
+
+### 09.10.2004 news SIX FEET UNDER вошли в студию
+
+<P><STRONG>SIX FEET UNDER</STRONG> вошли в <STRONG>Morisound</STRONG> <STRONG>Studio</STRONG> в пятницу 1 октября для записи нового альбома. Сейчас группа запишет всю музыку, а потом <STRONG>Chris Barnes</STRONG> займётся вокалом в <STRONG>Hit Factory</STRONG>. Он же и выступит продюсером альбома.&nbsp;</P>
+Автор: Vit Belov
+
+### 09.10.2004 news SIX FEET UNDER entered to studio
+
+<P>Tampa Florida death-metalers <STRONG>Six Feet Under</STRONG> headed into <STRONG>Morrisound studios</STRONG> Friday, October 1st to start laying down tracks to their next full length follow-up to "<STRONG>Bringer of Blood"</STRONG>. Right now the band is recording all the music and then <STRONG>Chris Barnes</STRONG> will head over to the <STRONG>Hit Factory</STRONG> to lay down the vocals. Once again <STRONG>Chris Barnes</STRONG> will be the producer and <STRONG>Chris Carroll</STRONG> will be handling engineering and mixing. As far as what this CD’s subject matter will be about, <STRONG>Chris Barnes</STRONG> says, “<EM>the material is dark and demented, and is not uplifting</EM>.” More information on the new album and studio updates from <STRONG>Chris Barnes</STRONG> will be made available in the coming weeks.</P>
+Автор: Vit Belov
+
+### 08.12.2004 news SIX FEET UNDER назвали новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SIX FEET UNDER</STRONG> выйдет 22 марта на <STRONG>Metal Blade</STRONG>. Пластинка будет называться '<STRONG>13</STRONG>' и вот некоторые&nbsp;трэки:</FONT></P>
+<P><STRONG>Decomposition of the Human Race<BR>Somewhere in the Darkness<BR>The Poison Hand</STRONG></P>
+Автор: Vit Belov
+
+### 19.01.2005 news SIX FEET UNDER - новости для фетишистов
+
+<P>Лидер-вокалист <STRONG>SIX FEET UNDER Chris Barnes</STRONG> был прооперирован на днях. Его мучили проблемы с коленом. И вот сегодня Вы можете посмотреть, как проходила эта операция. Любителям подобных сцен сюда: <A href="http://www.metalblade.com/bands/six_feet_under/video/chris_barnes-knee_surgery.asf">http://www.metalblade.com/bands/six_feet_under/video/chris_barnes-knee_surgery.asf</A></P>
+Автор: Vit Belov
+
+### 24.01.2005 reviews Как звучит AC&#x2F;DC в death metal
+
+<P>Лично я до конца не понял, какую цель преследовал Крис Барнс и компания записывая этот альбом… Наверное, отдать дань уважения любимой группе детства? Ну что же, если так, то это им вполне удалось. На данном диске нам предстоит услышать песни группы AC/DC в переложении растаманов от death metal. И это не просто сборник композиций взятых с разных альбомов австралийской легенды, а их альбом “Back In Black” целиком(!). Как и на первой части “Graveyard Classics” музыкальная составляющая альбома исполнена с особой педантичностью: всё сыгранно нота в ноту, как можно ближе к оригиналу. Только лишь брутальный вокал Криса не даёт нам забыть о том, что находимся мы не в Австралии, густо населённой кенгуру и аборигенами, а в мекке американского death metal – городе Тампа штата Флорида. Только для упёртых фэнов Six Feet Under (или AC/DC?)!</P>
+<P align=right>Автор - <STRONG><EM>Headcrusher</EM></STRONG></P>
+Автор: Dimas
+
+### 21.02.2005 news SIX FEET UNDER назначили дату релиза
+
+<P>Новый альбом <STRONG>SIX FEET UNDER '13'</STRONG> выходит 21 марта на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.07.2005 reviews Путь наверх
+
+<P>После скучного <EM>"Bringer Of Blood" </EM>и непонятного <EM>"Graveyard Classics 2" </EM>(зачем, ну зачем надо было переигрывать <STRONG>целый</STRONG> альбом AC\DC?!) я уже думал ставить крест на шестифутовых. И собираясь прослушать <EM>"13" </EM>не ждал от него ничего хорошего. Ан нет...</P>
+<P>Видимо Барнс и Ко сами поняли свои ошибки и решили спасать пошатнувшиеся позиции. И им это удалось! Новый альбом получился просто-напросто вку-у-усным. Впервые за долгле время я слушал диск Six Feet Under с таким удовольствием. Парни проделали замечательную работу, наполнив кусок пластмассы одинадцатью драйвовыми и по-настоящиму сиксфитандеровскими треками. Оформление диска также выше всяческих похвал.&nbsp;Альбом очень ровный (но не однообразный). На нём нет проходных композиций, и когда скоростной боевик сменяется среднетемповым треком то слушаешь его до конца, а не ждёшь когда он закончится. Собственно шестифутовые прибавили в скорости, что пошло альбому только на пользу. В общем, порадовали. Очень надеюсь, что SFU и в дальнейшем будут выпускать такие замечательные релизы. Рекомендации? Самые однозначные.</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Graver
+
+### 06.02.2007 news Новый альбом SIX FEET UNDER
+
+<P>Новый альбом <STRONG>SIX FEET UNDER "Commandment"</STRONG> выходит 17 апреля на <STRONG>Metal Blade</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Doomsday <BR></STRONG>2. <STRONG>Thou Shall Kill <BR></STRONG>3. <STRONG>Zombie Executioner <BR></STRONG>4. <STRONG>The Edge Of The Hatchet <BR></STRONG>5. <STRONG>Bled To Death <BR></STRONG>6. <STRONG>Resurrection Of The Rotten <BR></STRONG>7. <STRONG>As The Blade Turns <BR></STRONG>8. <STRONG>The Evil Eye <BR></STRONG>9. <STRONG>In A Vacant Grave <BR></STRONG>10. <STRONG>Ghosts Of The Undead </STRONG></P>
+Автор: Vit Belov
+
+### 25.12.2007 news SIX FEET UNDER начали работу
+
+<P>Вернувшись из тура с <STRONG>NILE, BELPHEGOR</STRONG> и <STRONG>FINNTROLL</STRONG>, <STRONG>SIX FEET UNDER</STRONG> занялись написание нового материала. Новый альбом планируется к выходу в конце 2008 года.</P>
+Автор: Vit Belov
+
+### 10.05.2008 news SIX FEET UNDER начали запись
+
+<P><STRONG>SIX FEET UNDER</STRONG> вошли в студию<STRONG> Morrisound</STRONG> для записи новой пластинки, которая выйдет до конца года на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.09.2008 news SIX FEET UNDER назвали альбом
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2008.09/12801.jpg" width=200 align=right border=5>Новый альбом <STRONG>SIX FEET UNDER</STRONG> будет называться "<STRONG>Death Rituals</STRONG>" и выйдет 11 ноября на <STRONG>Metal Blade</STRONG>.Сведением занят <STRONG>Toby Wright</STRONG> (<STRONG>SLAYER, SOULFLY, ALICE IN CHAINS</STRONG>).</P>
+Автор: Vit Belov
+
+### 23.09.2008 news Трэк-лист нового SIX FEET UNDER
+
+<P><STRONG>SIX FEET UNDER</STRONG> опубликовали трэк-лист своего нового альбома "<STRONG>Death Rituals</STRONG>", который выйдет 11 ноября на <STRONG>Metal Blade</STRONG>. На пластинку попало 13 композиций:</P>
+<P>1. <STRONG>Death By Machete</STRONG> <BR>2. <STRONG>Involuntary Movement Of Dead Flesh</STRONG><BR>3. <STRONG>None Will Escape<BR></STRONG>4. <STRONG>Eulogy For The Undead</STRONG><BR>5. <STRONG>Seed Of Filth</STRONG><BR>6. <STRONG>Bastard<BR></STRONG>7. <STRONG>Into The Crematorium</STRONG><BR>8. <STRONG>Shot In The Head</STRONG><BR>9. <STRONG>Killed In Your Sleep</STRONG><BR>10. <STRONG>Crossroads To Armageddon</STRONG><BR>11. <STRONG>Ten Deadly Plagues</STRONG><BR>12. <STRONG>Crossing The River Styx</STRONG><BR>13. <STRONG>Murder Addiction</STRONG></P>
+Автор: Vit Belov
+
+### 11.01.2009 reviews Death-metal кавер на классику тяжёлой музыки
+
+<P>Проект бывшего певца CANNIBAL CORPSE Chris Barnes продолжает радовать своих преданных поклонников. Честно говоря, уже давно никто не вспоминает о прошлом господина Barnes, SIX FEET UNDER отдельное событие в тяжёлой музыке наших дней.</P>
+<P>Музыка SIX FEET UNDER, хоть и основана на death-metal, имеет в своём составе черты классических стилей металла. Будь-то thrash-metal, и даже doom-metal. Незамысловатая, где-то даже тупая, среднетемповая, но заводная она будит в слушателе его первобытную любовь к тяжёлому звуку и экстремальному направлению. Гроул Chris, слаженная гитарная работа, мощная ритм-секция, запоминающиеся риффы… Всё это есть здесь. Нет здесь броской техники, безумных ходов, высокой концентрации мелодий, запредельной брутальности. Искушённый любитель death-metal, возможно, и слушать это не станет, зато любитель музыки с большим стажем запросто может полюбить “Death Rituals” за его верность традициям настоящего металла. Не даром SIX FEET UNDER прославились своими каверами на классику heavy-metal и hard-rock. Их музыка и есть death-metal кавер на классику тяжёлой музыки.</P>
+<P>“Death Rituals” – хороший энергичный альбом с разнообразным ритмом и некоторыми находками. Он не несёт в себе ничего нового, но поклонников группы, несомненно, порадует.</P>
+Автор: Vit Belov
+
+### 11.01.2009 news Chris Barnes: &quot;Мы просто делаем лучшее&quot;.
+
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2009.01/13342.jpg" width=240 align=left border=5>Лидер <STRONG>SIX FEET UNDER Chris Barnes</STRONG> рассказал о новом альбоме группы в интервью <STRONG>Inside Out Webzine</STRONG>.</P>
+<P>"<EM>С новым альбомом мы просто продолжаем свой путь, надеясь сочинить множество хороших песен. Несмотря на то, что это уже наша восьмая пластинка, мы перед сочинением материала для неё старались всё делать так, как будто это наш дебют. Я делал всё, что могу, и, уверен, мои коллеги по группе тоже. Мне нравится, в каком направлении мы двигаемся, и пусть всё будет, как есть. Если же вы начинаете думать о том, чем ознаменуется ваш новый альбом, вы всегда будете на шаг позади</EM>".</P>
+Автор: Vit Belov
+
+### 20.07.2009 news SIX FEET UNDER вновь пишут кавера
+
+<P><STRONG>SIX FEET UNDER</STRONG> находятся в студии, где записывают ещё один альбом "<STRONG>Graveyard Classics</STRONG>", под номером три. 60 процентов материала уже записано. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 06.11.2009 news Новые кавера от SIX FEET UNDER
+
+<P><STRONG>SIX FEET UNDER</STRONG> объявили трэк-лист третьей части "<STRONG>Graveyard Classics</STRONG>", сборника кавер-версий, который стал уже фирменным знаком группы:</P>
+<P>1. <STRONG>A Dangerous Meeting - MERCYFUL FATE</STRONG> <BR>2. <STRONG>Metal On Metal - ANVIL</STRONG> <BR>3. <STRONG>The Frayed Ends Of Sanity - METALLICA</STRONG> <BR>4. <STRONG>At Dawn They Sleep - SLAYER <BR></STRONG>5. <STRONG>Not Fragile - BACHMAN TURNER OVERDRIVE</STRONG> <BR>6. <STRONG>On Fire - VAN HALEN </STRONG><BR>7. <STRONG>Pounding Metal - EXCITER</STRONG> <BR>8. <STRONG>Destroyer - TWISTED SISTER</STRONG> <BR>9. <STRONG>Psychotherapy - THE RAMONES <BR></STRONG>10. <STRONG>Snap Your Fingers, Snap Your Neck - PRONG </STRONG></P>
+<P>Альбом выйдет 19 января на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.12.2009 news Обложка нового SIX FEET UNDER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Третья часть кавер-альбома от <STRONG>SIX FEET UNDER</STRONG> <STRONG>"Graveyard Classics 3" </STRONG>выходит 19 января на<STRONG> Metal Blade</STRONG>. Опубликована обложка этого релиза.</FONT></P>
+<P><center><IMG height=300 src="/images/news_rus/2009.12/15715.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 19.12.2009 news SIX FEET UNDER covers SLAYER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кавер <STRONG>SIX FEET UNDER</STRONG>&nbsp;на песню&nbsp;<STRONG>SLAYER</STRONG> <STRONG>"At Dawn They Sleep"</STRONG>&nbsp;можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/sixfeetunder">http://www.myspace.com/sixfeetunder</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Композиция войдёт на новый кавер-альбом группы <STRONG>"Graveyard Classics 3".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 28.05.2010 news SIX FEET UNDER призывают к бойкоту
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа бывшего вокалиста <STRONG>CANNIBAL CORPSE Chris Barnes SIX FEET UNDER</STRONG> выступила с заявлением на своей <STRONG>MySpace</STRONG> страничке, посвящённым экологической катастрофе в Мексиканском заливе, где в результате&nbsp;затопления нефтяной платформы&nbsp;разлилась нефть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыканты выступили с резкой критикой президента <STRONG>Barak Obama</STRONG>, который, по их словам, не думает о простых американцах, а думает лишь о нефти. Досталось и виновнице происшедшего, компании <STRONG>British Petroleum (BP)</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Если вы ездите на машине, не покупайте бензин на заправках BP. Они могут остановить распространение пятна, но не делают этого, так как они злые и жадные. Эта компания&nbsp;не&nbsp;думает ни о ком из нас, и не думает о планете. Они хотят заработать деньжат, не покупайте их продукцию</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заканчивают своё сообщение<STRONG> SIX FEET UNDER</STRONG> выражением, которое не требует перевода: "<STRONG>Fuck You, Obama!</STRONG>"</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 10.12.2010 news SIX FEET UNDER готовят DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=207 alt="" hspace=0 src="/images/news_rus/2010.12/17791.jpg" width=300 align=right border=0>В апреле 2011 года выходит новый DVD <STRONG>SIX FEET UNDER</STRONG> <STRONG>"Wake The Night! Live In Germany". </STRONG>На диск попадёт шоу 2009 года на фестивале <STRONG>Party.San.</STRONG> Вокалист группы <STRONG>Chris Barnes</STRONG> сообщает, что шоу было отснято в HD и выглядит потрясающе. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не забывает группа бывшего вокалиста <STRONG>CANNIBAL CORPSE</STRONG> и о новом материале. Коллектив работает над новым альбомом, который выйдет только в начале 2012 года. </FONT></P>
+Автор: Vit Belov
+
+### 15.12.2010 news Подробности о DVD SIX FEET UNDER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2010.12/17834.jpg" width=220 align=right border=0>Мы уже сообщали, что 31 января на <STRONG>Metal Blade</STRONG> выходит новый DVD <STRONG>SIX FEET UNDER</STRONG> <STRONG>"Wake The Night! Live in Germany", </STRONG>на котором зрители смогут увидеть шоу группы, состоявшееся 8 августа 2009 года на фестивале <STRONG>Party.San Open Air. </STRONG>Сэт-лист того выступления:</FONT></P>
+<P>01. <B>No Warning Shot</B><BR>02. <B>Silent Violence</B><BR>03. <B>Revenge Of The Zombie</B><BR>04. <B>Feasting On The Blood Of The Insane</B><BR>05. <B>The Day The Dead Walked</B><BR>06. <B>Seed Of Filth</B><BR>07. <B>Shot In The Head</B><BR>08. <B>Torn To The Bone</B><BR>09. <B>Suffering In Ecstasy</B><BR>10. <B>The Enemy Inside</B><BR>11. <B>The Evil Eye</B><BR>12. <B>Victim Of The Paranoid</B><BR>13. <B>Human Target</B><BR>14. <B>Deathklaat</B><BR>15. <B>Ghosts Of The Undead</B><BR>16. <B>Shadow Of The Reaper</B><BR>17. <B>Beneath A Black Sky</B></P>
+Автор: Vit Belov
+
+### 02.02.2011 news Chris Barnes остался один
+
+<P><IMG height=207 alt="" hspace=0 src="/images/news_rus/2011.02/18391.jpg" width=300 align=right border=0>Бывший вокалист <STRONG>CANNIBAL CORPSE</STRONG> остался единственным оригинальным музыкантом в составе <STRONG>SIX FEET UNDER</STRONG>. Группу разом покинули басист <STRONG>Terry Butler</STRONG> и барабанщик<STRONG> Greg Gall</STRONG>, игравшие в коллективе с самого дня него основания. <STRONG>Terry Butler</STRONG> стал постоянным участником<STRONG> OBITUARY</STRONG>, которым подыгрывал последние несколько лет. Судьба <STRONG>Greg Gall</STRONG> пока не уточняется.</P>
+<P>Комментариев Chris Barnes&nbsp;не имеется. В конце января текущего года у <STRONG>SIX FEET UNDER</STRONG> вышло новое концертное DVD <STRONG>"Wake The Night! Live In Germany", </STRONG>которое теперь станет важным документом в истории группы.</P>
+Автор: Vit Belov
+
+### 03.02.2011 news Kevin Talley стал новым ударником SIХ FEET UNDER
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18395.jpg" width=300 height=380>SIX FEET UNDER</STRONG> назвали имя ударника, который заменит ушедшего недавно Грега Галла (<STRONG>Greg Gall</STRONG>), им стал <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Kevin Talley</B> (на фото, <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">DAATH</B>, <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">MISERY INDEX</B>, <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">CHIMAIRA</B>).<BR itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:false,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:false,hasBreaknodes:true,isBreaknode:true,nodeElem:true,nodeAttr:false,nodeText:false}"><BR itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:false,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:false,hasBreaknodes:true,isBreaknode:true,nodeElem:true,nodeAttr:false,nodeText:false}">Комментирует вокалист <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">SIX FEET UNDER</B> Крис Барнс (<B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Chris Barnes</B>): </P>
+<P><EM>"Я на 110% доволен, <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Kevin</B> присоединился к <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">SIX FEET UNDER</B>. Он несомненно один из лучших, если не самый лучший ударник в death metal и я горд участвовать с ним в одной группе!"</EM></P>
+<P>Более подробно ознакомиться с послужным списком Кевина можно на его&nbsp;официальном сайте:&nbsp;<A href="http://www.drummerkevintalley.com/">www.drummerkevintalley.com</A></P>
+Автор: Headcrusher
+
+### 20.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; анонсирует новых участников
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22713.png" width=300 height=165>Фестиваль&nbsp;&nbsp;<STRONG>BRUTAL ASSAULT</STRONG> опубликовал имена ещё нескольких участников, которые выступят на его сцене в 2012 году. Ими стали американцы<STRONG> DARKEST HOUR</STRONG>, бельгийские дет/грайндеры <STRONG>ABORTED</STRONG> и американские метал-панки <STRONG>TOXIC HOLOCAUST</STRONG>.</P>
+<P>А так же, ВИА <STRONG>SIX FEET UNDER</STRONG> под руководством Криса Барнса (<STRONG>Chris Barnes</STRONG>), легенды хардкора из Нью Йорка <STRONG>SICK OF IT ALL</STRONG> и титаны грайнкора из американского штата Вирджиния <STRONG>PIG DESTROYER</STRONG>.</P>
+Автор: Headcrusher
+
+### 15.03.2012 news SIX FEET UNDER назвали альбом
+
+<P>Новый альбом <STRONG>SIX FEET UNDER</STRONG> получил название "<STRONG>Undead</STRONG>". Пластинка выйдет в мае на <STRONG>Metal Blade</STRONG>. </P>
+<P><center><IMG height=316 src="/images/news_rus/2012.03/23260.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 09.04.2012 news SIX FEET UNDER: обложка и трек-лист нового альбома &quot;Undead&quot;
+
+<P>Группа <STRONG>SIX FEET UNDER</STRONG> опубликовала обложку и трек-лист нового альбома <STRONG>"Undead"</STRONG>, выход которого запланирован на 22 мая на <STRONG>Metal Blade Records</STRONG>:</P>
+<P>01. <STRONG>Frozen At the Moment of Death<BR></STRONG>02. <STRONG>Formaldehyde</STRONG><BR>03. <STRONG>18 Days<BR></STRONG>04. <STRONG>Molest Dead<BR></STRONG>05. <STRONG>Blood On My Hands<BR></STRONG>06.<STRONG> Missing Victims<BR></STRONG>07. <STRONG>Reckless</STRONG><BR>08. <STRONG>Near Death Experience<BR></STRONG>09. <STRONG>The Scar<BR></STRONG>10. <STRONG>Delayed Combustion Device<BR></STRONG>11. <STRONG>Vampire Apocalypse<BR></STRONG>12. <STRONG>The Depths Of Depravity</STRONG></P>
+<P>Новый трек <STRONG>"Formaldehyde"</STRONG> с этого альбома, можно прослушать ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.04/23452.jpg" width=500 height=500> 
+<P></P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F42474700&show_artwork=true&secret_token=s-6t33O" frameBorder=no width="100%" scrolling=no></IFRAME></CENTER>
+<CENTER></CENTER></CENTER>
+Автор: Headcrusher
+
+### 25.05.2012 news SIX FEET UNDER взяли шведа
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым гитаристом<STRONG> SIX FEET UNDER</STRONG> стал швед <STRONG>Ola Englund</STRONG> (<B itxtHarvested="0" itxtNodeId="222">FEARED</B>, <B itxtHarvested="0" itxtNodeId="221">SCARPOINT</B>). Музыкант заменил <STRONG>Rob Arnold</STRONG> (<B itxtHarvested="0" itxtNodeId="217">CHIMAIRA</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/beEtecGEg_A?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 06.06.2012 reviews SIX FEET UNDER нужно быть круче
+
+<P>Утробный рык бывшего вокалиста CANNIBAL CORPSE Chris Barnes - это то, с чем ассоциируется death-grind в умах многих непросвещённых любителей тяжёлой музыки. Безусловно, и CANNIBAL CORPSE, и сам Barnes уже изрядно подзаросли паутиной и уже никого не пугают, но… «Fuck You!!!» до сих пор вспоминаю я.</P>
+<P>Chris Barnes и ВИА SIX FEET UNDER, о котором сегодня речь, сами достаточно сильно поработали над героизацией собственного образа. Эта американская группа уже давно не бралась за сочинение мрачных или злых композиций, музыканты представляют музыку, которая без труда демонстрирует их крутость и брутальность, не требуя повышенного внимания к технике исполнения или композиторскому таланту. Ритмичный рифф и гроул – это то, что поднимает настроение поклонникам SIX FEET UNDER. В этот раз Chris Barnes сильно перетряхнул состав. Были удалены оригинальный басист Terry Butler и оригинальный барабанщик Greg Gall, партии соло-гитары и баса записал бывший участник CHIMAIRA Rob Arnold. Нельзя сказать, что это сильно повлияло на представленный материал, хотя господин Barnes и утверждает, что “Undead” самый тяжёлый альбом коллектива. Rob Arnold попытался в некоторых местах сыграть красиво, но, право слово, в этом нет необходимости на альбомах SFU. Видимо, он это понял и покинул группу почти сразу после записи. Главная проблема диска его полная стерильность и отсутствие желания, которое слышно даже через колонки. Исполнители что-то пилят, но отклика в душе не вызывают.</P>
+<P>Множество интересных молодых коллективов копируют SIX FEET UNDER, и у них это получается много лучше и интересней, чем у американцев. Chris Barnes замучался и устал орать на одной ноте, ему надо очухаться и вновь поверить, что ничего круче и быть не может.</P>
+Автор: Vit Belov
+
+### 27.01.2013 news SIX FEET UNDER: обложка альбома &quot;Unborn&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>19 марта лейбл <STRONG>Metal Blade</STRONG> выпускает новый альбом <STRONG>SIX FEET UNDER</STRONG>, получивший название <STRONG>"Unborn"</STRONG>. Обложку альбома можно увидеть ниже.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25375.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Six Feet Under

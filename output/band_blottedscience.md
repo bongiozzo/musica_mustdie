@@ -27,6 +27,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.11.2011 news BLOTTED SCIENCE на Basick Records
+
+<P><STRONG>Basick Records</STRONG> объявили о подписании prog-metal коллектива <STRONG>BLOTTED SCIENCE</STRONG>, в составе которого гитарист <STRONG>Ron Jarzombek (WATCHTOWER, TERRESTRIAL EXILED, SPASTIC INK)</STRONG>, басист <STRONG>Alex Webster (CANNIBAL CORPSE, HATE ETERNAL) </STRONG>и барабанщик <STRONG>Hannes Grossmann (OBSCURA, TERRESTRIAL EXILED)</STRONG>. Новейший миньон коллектива "<STRONG>The Animation Of Entomology</STRONG>" выйдет 28 ноября.</P>
+<P>
+<CENTER><IMG height=327 src="/images/news_rus/2011.11/21825.jpg" width=450 border=0> 
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/NRYpsCsjnXk?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/NRYpsCsjnXk?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -115,6 +115,20 @@ Don Zaros - Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.11.2004 news EVOKEN выпускают пластинку в 2005 году
+
+<P>Новый альбом <STRONG>EVOKEN</STRONG>, вероятнее всего, будет называться <STRONG>'The Last Of Vitality'</STRONG> и выйдет в 2005 году на <STRONG>Avantgarde</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Procession<BR></STRONG>2. <STRONG>Mournful Refusal</STRONG><BR>3. <STRONG>Antithesis of Light</STRONG><BR>4. <STRONG>Dreamsfear<BR></STRONG>5. <STRONG>Darkness Visable</STRONG><BR>6. <STRONG>The Last of Vitality<BR></STRONG>7. <STRONG>Instrumental</STRONG>&nbsp;</P>
+Автор: Vit Belov
+
+### 27.10.2006 news На Solitude Productions вышел диск EVOKEN &quot;Embrace The Emptiness&quot;
+
+<P><IMG height=347 alt="" hspace=0 src="/images/news_rus/2006.10/10821.jpg" width=350 align=left border=5>Дум-метал лейбл Solitude Productions с гордостью представляет свой восьмой релиз – культовый альбом американской funeral death doom группы Evoken «Embrace The Emptiness».<BR>Ранее этот первый полноформатный альбом в дискографии группы выходил в 1998 году на американском лейбле Elegy Records ограниченным тиражом, и с того момента стал раритетом и объектом поисков всех истинных ценителей funeral doom. И, наконец, сегодня, благодаря договору Solitude Prod. с Elegy Records на переиздание «Embrace The Emptiness», у каждого появилась возможность приобрести этот альбом и оценить его по достоинству. Диск издан на «золоте» с новым, эксклюзивным оформлением, созданным специально для этого переиздания.<BR>&nbsp;<BR>Solitude Prod - Russian Doom Metal Label <BR><A href="http://www.solitude-prod.com/">http://www.solitude-prod.com</A><BR><A href="http://myspace.com/solitudeprod">http://myspace.com/solitudeprod</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -42,6 +42,69 @@
 * C группой "Celtic Frost" Tom Gabriel Fischer
 * C группой "Hellhammer" 
 
+## Публикации
+
+### 21.05.2008 news Tom Gabriel Fischer основал новую группу
+
+<P>Бывший лидер <STRONG>CELTIC FROST</STRONG> <STRONG>Tom Gabriel Fischer</STRONG>&nbsp;объявил об образовании нового коллектива <STRONG>TRIPTYKON</STRONG>. Первую вещь группы уже можно послушать на <STRONG>MySpace</STRONG>, а сам музыкант характеризует новое творчество, как максимально близкое по звучанию к <STRONG>CELTIC FROST</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/triptykonofficial">http://www.myspace.com/triptykonofficial</A></P>
+Автор: Vit Belov
+
+### 13.01.2009 news TRIPTYKON закончили первую репетиционную сессию
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.01/13359.jpg" width=153 align=left border=5>Tom Gabriel Fischer</STRONG> (ex-<STRONG>CELTIC FROST</STRONG>) сообщил на своём сайте, что его новая группа <STRONG>TRIPTYKON </STRONG>закончила первую репетиционную сессию. Группа впервые собралась вместе после задержки, связанной с травмой руки <STRONG>Tom</STRONG>'а. В настоящее время господин<STRONG> Fischer</STRONG> собирается в Норвегию, где будет сводить новый альбом <STRONG>1349</STRONG>.</P>
+<P>В состав <STRONG>TRIPTYKON, </STRONG>кроме бывшего лидера <STRONG>CELTIC FROST</STRONG>,&nbsp;входят: <STRONG>Reed St. Mark</STRONG> (ex-<B>CELTIC FROST</B>), <B>V. Santura</B> (<B>DARK FORTRESS</B>)&nbsp;и <B>Vanja Slay</B>.</P>
+Автор: Vit Belov
+
+### 11.12.2009 news Песни от TRIPTYKON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая группа бывшего участника <STRONG>CELTIC FROST Tom Gabriel Fischer TRIPTYKON</STRONG> выложила на своей<STRONG> MySpace</STRONG> страничке две новые песни <STRONG>"Abyss Within My Soul"</STRONG>&nbsp;и <STRONG>"A Thousand Lies". </STRONG>Новый альбом группы <STRONG>"Eparistera Daimones"</STRONG> выйдет весной на собственном лэйбле группы <STRONG>Prowling Death Records.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 17.08.2010 news TRIPTYKON выпускает E.P.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17033.jpg" width=300 height=296>Вслед за вышедшим в марте этого года дебютным альбомом <STRONG>"Eparistera Daimones"</STRONG> группа <SPAN itxtvisited="1"><SPAN class=whiteMedium itxtvisited="1"><STRONG>TRIPTYKON</STRONG>, руководимая <STRONG>Томасом Габриелом Фишером</STRONG> (<STRONG>HELLHAMMER</STRONG>/<STRONG>CELTIC FROST</STRONG>),&nbsp;уже готовит к выпуску следующий релиз. Им станет миньон <STRONG>"Shatter"</STRONG></SPAN></SPAN></FONT>. Диск, продолжительностью 28 минут, будет содержать практически целиком неизданный ранее материал. Дата релиза: 25 октября (Европа) и 26 октября (Северная Америка).</P>
+<P>Трек лист <STRONG>"Shatter"</STRONG>:</P>
+<P>01. <B itxtvisited="1">Shatter</B><BR itxtvisited="1">02. <B itxtvisited="1">I Am The Twilight</B><BR itxtvisited="1">03. <B itxtvisited="1">Crucifixus</B><BR itxtvisited="1">04. <B itxtvisited="1">Circle Of The Tyrants</B> (live)<BR itxtvisited="1">05. <B itxtvisited="1">Dethroned Emperor</B> (live)</P>
+<P><BR itxtvisited="1">Концертные версии песен <B itxtvisited="1">CELTIC FROST</B> были записаны во время выступления <STRONG>TRIPTYKON </STRONG>на голландском фестивале&nbsp;"<B itxtvisited="1">Roadburn"</B> (16 апреля 2010). В исполении песни <B itxtvisited="1">"Dethroned Emperor" </B>гостевое участие принял&nbsp;&nbsp;<B itxtvisited="1">Nocturno Culto</B> (<B itxtvisited="1">DARKTHRONE</B>/<B itxtvisited="1">SARKE</B>).<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 19.10.2010 news Новое видео TRIPTYKON
+
+<P>Новый клип группы лидера<STRONG> CELTIC FROST</STRONG> <STRONG>Tom Gabriel Warrior TRIPTYKON </STRONG>на песню <STRONG>"Shatter" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Philipp Hirsch. </STRONG>"<STRONG>Shatter</STRONG>" - заглавная песня 5-песенного EP, вышедшего недавно. </P>
+<P>
+<CENTER>
+<OBJECT width=640 height=390><PARAM NAME="movie" VALUE="http://www.youtube.com/v/xrRi25jZRFY&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/xrRi25jZRFY&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.01.2011 news Tom Gabriel Fisсher назвал SODOM &quot;третьесортной копией SLAYER&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18119.jpg" width=249 height=350>Чтобы отметить выход <STRONG>"Shatter"</STRONG> EP от <STRONG>TRIPTYKON</STRONG>, журнал <STRONG>Decibel </STRONG>послал лидеру группы и бывшему участнику <STRONG>CELTIC FROST</STRONG>, гитаристу/вокалисту&nbsp;Тому Гэбриэлу Фишеру&nbsp;(<B itxtvisited="1">Tom Gabriel Fisсher</B>, на фото)&nbsp;семь mp3 файлов, содержащих только название песен и попросил его высказать своё мнение относительно каждой.&nbsp;Среди прочих, там оказался и трек <B itxtvisited="1">"Hellfire"</B>, - песня с нового альбома немецких ветеранов <B itxtvisited="1">SODOM</B>, по поводу которой <STRONG>Fisсher </STRONG>сказал: <EM>"Звучит как третьесортная копия <B itxtvisited="1">SLAYER</B> c сильным акцентом и&nbsp;непонятной лирикой."</EM></P>
+<P>В интервью 2006 года немецкому интернет-порталу <STRONG>Terrorverlag</STRONG> лидер <STRONG>SODOM</STRONG> Том Анджелриппер, на вопрос относительно его отношения к&nbsp;возродившимся <STRONG>CELTIC FROST</STRONG>, он ответил, что группа, которой руководит&nbsp;<STRONG>Fischer</STRONG>, не заслуживает того внимания, которое ей уделяют специализированные СМИ и фэны.</P>
+<P>Выдержка из того интервью:</P>
+<P><EM>"Я даже не знаю, что об этом думать"</EM> - говорит&nbsp;<STRONG>Tom Angelripper</STRONG>. <EM>"Несколько последних альбомов, которые они выпустили, как <B itxtvisited="1">CELTIC FROST</B>, были дерьмом. OK, я уверен, что они готовят классный [новый] альбом [Интервью было взято до выхода альбома <B itxtvisited="1">CELTIC FROST </B>"<B itxtvisited="1">Monotheist</B>" (2006)&nbsp;— прим&nbsp;ред.], но на самом деле я не могу им&nbsp;доверять...&nbsp;вернуться после стольких лет... Сейчас они получают огромную поддержку, выступают в качестве хэдлайнеров на фестивалях <B itxtvisited="1">Wacken Open Air</B> и <B itxtvisited="1">Rock Hard Open Air</B>. Мы в <B itxtvisited="1">SODOM</B> играли и не щадили свои задницы&nbsp;непереставая в течении 25 лет, но нас никогда не приглашали на&nbsp;фестиваль <B itxtvisited="1">Rock Hard</B>!&nbsp;&nbsp;Это полная хрень! Может быть нам надо взять перерыв на 15 лет, а затем вернуться в инвалидных креслах.&nbsp;Я уверен, тогда мы бы получили шанс выступить на некоторых&nbsp;из тех фестивалей!"</EM></P>
+Автор: Headcrusher
+
+### 26.01.2011 news Tom Gabriel Fischer продаёт &quot;деревянные члены&quot;
+
+<P>Бывший лидер <STRONG>CELTIC FROST</STRONG>, а ныне музыкант <STRONG>TRIPTYKON Tom Gabriel Fischer </STRONG>предложил публике эксклюзивные статуэтки собственного производства, которые сам художник назвал "деревянными фаллосами". <STRONG>Tom</STRONG> параллельно с музыкой всегда занимался "современным искусством", его работы можно посмотреть на сайте: <A href="http://selfdeceased.blogspot.com/">http://selfdeceased.blogspot.com/</A>&nbsp;В частности, музыкант производит собственные посмертные маски.</P>
+<P>А теперь эксклюзивный фаллос:</P>
+<P><center><IMG height=691 src="/images/news_rus/2011.01/18332.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 02.09.2011 news Новый проект гитариста&#x2F;вокалиста GRAVE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Один из основателей шведской death-metal группы <STRONG>GRAVE</STRONG> гитарист/вокалист <STRONG>Ola Lindgren </STRONG>создал новый проект под названием <STRONG>GREY HEAVENS</STRONG>. В записях новой формации музыкант хочет использовать идеи, которые не подходят для его основной группы, творчество <STRONG>Ola </STRONG>в рамках <STRONG>GREY HEAVENS </STRONG>носит более экспериментальный и мрачный характер.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Lindgren</STRONG> начинает набирать музыкантов для проекта, уже объявлено, что партии барабанов на будущем альбоме исполнит <STRONG>Norman Lonhard </STRONG>из <STRONG>TRIPTYKON. </STRONG>Три демо-записи этого проекта можно послушать ниже.</FONT></P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=49634035&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=49634035&pid=-4225979648361514276" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Ретроспектива Ганса Руди Гигера в московском Планетарии (16 мая - 15 июля)

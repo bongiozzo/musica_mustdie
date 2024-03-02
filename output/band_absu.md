@@ -116,6 +116,84 @@ f. E-A (Reprise
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.02.1999 news 
+
+<p>Emperor отправляются в европейский тур вместе с Limbonic Art, Morbid Angel, The Crown, Absu и Peccatun.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>Absu выпустили новое видео. Кроме этого группа занята записью четвёртого альбома "Tara".</p>
+
+Автор: Vit Belov
+
+### 06.07.2000 news Absu не распались и выпустят новую пластинку в октябре.
+
+<p>Слухи о распаде Absu оказались сильно преувеличены. Proscriptor MacGovern сообщил, что группа существует и в октябре на Osmose выйдет новый релиз. Сейчас группа ищет нового постоянного вокалиста-гитариста.</p>
+
+Автор: Vit Belov
+
+### 06.07.2000 news Absu did not split up
+
+<p>Osmose Productions reports: In response to the many rumors that have circulated regarding ABSU breaking up, drummer/vocalist/lunatic Proscriptor McGovern assures us that, despite a lengthy hiatus, ABSU is still very much within the realm of the living...in his inimitable words, here's what had to say about that!:</p>
+<p>"Rumours are like a dirty ashtray! Yes, my comrades and witching sisters of the night, they sure are! Why? Well, ashtrays can fill up with dirty little fags (aka butts) and keep multiplying if the trays are not properly discharged. Let me make an analogy here: the owner of the ashtray would be The Cythraul Klan of ABSU and the fags are the feeble mortal seeds that keep spreading counterfeited gossip about the band. I have been hearing for the past six months that Absu has officially disbanded and we are terminated from Osmose's roster from over 100 sources now. Guess what? They're 100% wrong. If you hear such flatulent and pompous talk, please tell them they're wrong for me, tell them Proscriptor said 'Shit You,' and for you to go home and hang yourself tonight! So, in other words: pollute some other kult's ashtray and not ours please.</p>
+<p>Also ABSU look out for new permanent vocalist/guitarist.</p>
+
+Автор: Vit Belov
+
+### 31.10.2001 news Absu стали квартетом
+
+<p>Техасские блэкстеры Absu отныне являются квартетом, поиски второго гитариста закончились присоединением к команде Kashshaptu. Теперь, когда Absu набрали полный состав, начинается работа над шестым полноформатным альбомом. Под одноимённым названием "Absu" он, вероятно, появится на поверхности в конце 2002 года на Osmose Productions.</p>
+
+Автор: Morsus
+
+### 31.10.2001 news Absu are now a quartet
+
+<p>Texas black metallers Absu are now a quartet after their search for a second guitarist ended when Kashshaptu joining the band. Now that the Absu line-up is complete, the black metallers will commence work on their sixth full-length album. The album is self-titled. "Absu" is likely to surface in late 2002 on Osmose Productions.</p>
+
+Автор: Morsus
+
+### 20.05.2005 reviews Время сдавать Тару.
+
+<P>Первая композиция, исполняемая на волынке, признаюсь, сильно меня заинтриговала.</P>
+<P>Но рано я радовался. Далее дела пошли не так хорошо. Со второй композиции группа начала нарезать блэк, довольно однообразный и безликий. Причем, местами этот блэк смешивается с трэшем первой волны. Именно такой трэш играли немецкие команды в самом начале 80-х. Но, вместо того, чтобы почерпнуть какие-то интересные идеи из той музыки, Absu скопировали примитивные чесы и банальные риффовые приемы. Ни одной свежей идеи. Зато в текстах в полный рост используется довольно модная тема с оккультизмом и упоминанием Алистера Кроули.</P>
+<P>Возможно, фэнам блэка такая пластинка и понравится, но мне она показалась ужасно скучной, и хотя я пытался прослушать ее не один раз – до конца мне это так и не удалось.</P>
+<P>Диск предоставлен СД – Максимум.</P>
+Автор: Fucker
+
+### 23.05.2007 news ABSU собрали новый состав
+
+<P>Лидер <STRONG>ABSU Proscriptor McGovern</STRONG> после пятилетнего молчания возродил группу. Для этого были превличены два новых музыканта: <STRONG>Vastator Terrarum</STRONG> и <STRONG>Aethyris MacKay</STRONG>. Группа сочиняет новый материал и планирует засесть в студию в конце года. Новая работа увидит свет в июне следующего года на <STRONG>Osmose</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.11.2007 news ABSU на Candlelight
+
+<P>Техаская black-metal группа <STRONG>ABSU</STRONG> заключила контракт с <STRONG>Candlelight</STRONG> после 15-летнего сотрудничества с <STRONG>Osmose Production</STRONG>. Группа планирует засесть в студию в марте будущего года для записи "сэлф-титлед" альбома. Вот его предполагаемый трэк-лист:</P>
+<P>01. <B>13 Globes</B><BR>02. <B>In The Name of Auebothiabathabaithobeuee</B><BR>03. <B>Between the Absu of Eridu & Erech</B><BR>04. <B>Night Fire Canonization</B><BR>05. <B>Those of the Void Will Re-Enter</B><BR>06. <B>Nunbarshegunu</B> <BR>07. <B>Girra's Temple</B><BR>08. <B>Magick Square Cipher</B><BR>09. <B>Ye Uttuku Spells</B><BR>10. <B>Amy</B><BR>11. <B>…Of the Dead Who Never Rest In Their Tombs Are the Attendance Of Familiar Spirits…Including</B>:<BR>a.) <B>Diversified Signs Inscribed</B><BR>b.) <B>Voor</B><BR>c.) <B>Sceptre Command</B><BR>d.) <B>Twix Yesterday, the Day & the Morrow</B><BR>e.) <B>Our Earth of Black</B></P>
+Автор: Vit Belov
+
+### 28.07.2011 news Новый альбом ABSU
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.07/20340.jpg" width=475 align=right border=0>В конце сентября на Candlelight выходит новый альбом американцев ABSU <STRONG>"Abzu"</STRONG>. Пластинка станет второй в серии трилогии альбомов, выпускаемой группой. Сведение сделал <STRONG>J.T. Longoria</STRONG> (<B>KING DIAMOND</B>, <B>SOLITUDE AETERNUS</B>), а обложку создал <STRONG>Zbigniew Bielak</STRONG> (<B>WATAIN</B>, <B>BEHEMOTH</B>, <B>DESTROYER 666</B>, <B>VADER</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Earth Ripper</B><BR>02. <B>Circles of the Oath</B><BR>03. <B>Abraxas Connexus</B><BR>04. <B>Skrying in the Spirit Vision</B><BR>05. <B>Ontologically, It Became Time & Space</B><BR>06. <B>A Song for Ea</B> including:<BR>a. <B>E-A</B><BR>b. <B>A Myriad of Portals</B><BR>c. <B>Third Tablet</B><BR>d. <B>Warren of Imhullu</B><BR>e. <B>The Waters - The Denizens</B><BR>f. <B>E-A</B> (Reprise)<BR></P></FONT>
+Автор: Vit Belov
+
+### 03.08.2011 news Фестиваль &quot;Hammer Open Air&#39; 2011&quot;: фото-отчёт
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20414.jpg" width=300 height=119> 
+<P></P>
+<P>15 и 16 июля в Финляндии прошёл фестиваль "<STRONG>Hammer Open Air</STRONG>". Среди участников фестиваля в основном преобладали андеграундные финские и шведские коллективы, исключением, пожалуй лишь, стали&nbsp;<STRONG>ABSU</STRONG>, <STRONG>PRIMORDIAL</STRONG> и <STRONG>AUTOPSY</STRONG>. Последние, к сожалению, не попали в объектив нашего фотографа.</P>
+<P>Фотографии с выступлений можно посмотреть на нашем сайте, пройдя по ссылкам указанным&nbsp;ниже.</P>
+<P>День 1: <A href="/ru/galleries/1/740/">http://musica.mustdie.ru/ru/galleries/1/740/</A></P>
+<P>День 2: <A href="/ru/galleries/1/742/">http://musica.mustdie.ru/ru/galleries/1/742/</A></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Сегодня у группы ABSURD день рождения!!!

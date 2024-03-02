@@ -111,6 +111,94 @@ Sigh  -  Producer
 * C группой "Blood From the Soul" Mirai Kawashima
 * C группой "Meads Of Asphodel, The" Mirai Kawashima
 
+## Публикации
+
+### 17.01.2001 news Sigh готовы отправиться в студию.
+
+<p>Японские блэкстеры Sigh 9 февраля двинутся в студию и начнут запись следующего полного альбома "Imaginary Sonicscape". Сейчас они заняты заключительными репетициями. Новый альбом будет выпущен на Century Media и его предварительная дата выпуска - июль 2001 года. Уже определены названия большинства песен: Corpsecry, Scarlet Dream, A Sunset Song, Voices, Slaughtergarden, Bring Back the Dead, Dreamsphere, Ecstatic Transformation, Nostalgia. Над оформлением альбома работает художник Стивен О'Маллей.</p>
+
+Автор: Morsus
+
+### 17.01.2001 news Sigh are ready to enter the studio.
+
+<p>Japan's Sigh will begin recording their upcoming full-length "Imaginary Sonicscape" on February 9. Now they are going in for the final rehearsal. New album will be released on Century Media and his tentative release date is July, 2001. Here are most of the song titles: Corpsecry, Scarlet Dream, A Sunset Song, Voices, Slaughtergarden, Bring Back the Dead, Dreamsphere, Ecstatic Transformation, Nostalgia. Artist Stephen O'Malley is creating the album's artwork.</p>
+
+Автор: Morsus
+
+### 10.06.2001 news Новый альбом Sigh выйдет 6-го августа.
+
+<p> Sigh выпустят "Imaginary Sonicscape" 6-го августа 2001 года на Century Media. Записанный ранее в этом году в Японии новый альбом содержит следующие вещи: "Corpsecry - Angelfall", "Scarlet Dream", "Nietzchean Conspiracy", "A Sunset Song", "Impromptu (Allegro Maestoso)", "Dreamsphere (Return Of The chaos)", "Voices", "Ecstatic Transformation", "Slaughtergarden Suite (1. At Dawn, 2. The Dead Are Born, 3. Destiny Divided, 4. Slaughtergarden, 5. Aftermath), "Bring Back The Dead", "Requiem - Nostalgia".</p>
+
+Автор: Morsus
+
+### 10.06.2001 news Sigh will release their new album on the 6th August.
+
+<p> Sigh will release their, "Imaginary Sonicscape", album on Century Media on the 6th August 2001. Recorded earlier this year in Japan it features the following tracks: "Corpsecry - Angelfall", "Scarlet Dream", "Nietzchean Conspiracy", "A Sunset Song", "Impromptu (Allegro Maestoso)", "Dreamsphere (Return Of The chaos)", "Voices", "Ecstatic Transformation", "Slaughtergarden Suite (1. At Dawn, 2. The Dead Are Born, 3. Destiny Divided, 4. Slaughtergarden, 5. Aftermath), "Bring Back The Dead", "Requiem - Nostalgia".</p>
+
+Автор: Morsus
+
+### 21.12.2001 news Блэк металл из страны суши и харакири...
+
+<p><IMG SRC="/images/bands_rus/2001.12/2185.jpg" ALT="pho" width="175" height="250" hspace="15" vspace="5" border="1" align="left" /> Помимо занятий своим национальным видом спорта "харакири" и употребления суши под рюмочку другую сакэ, настоящие самураи играют еще и блэк-металл. Новый альбом черепашек-ниндзя "Sigh" будет называться "Gavotte Grim" и продолжит психоделическую линию взятую на "Imaginary Sonicscape". Сейчас команда как раз посередине процесса записи о котором фронтмэн Mirai сказал, что это будет "...мощнейший прогресс!". Сам Mirai исполнит обязанности вокалиста и клавишника, а обязанности бассиста исполнит Yasuyuki из Abigail. <BR><BR> Из других новостей, прошлый альбом "Imaginary Sonicscape" будет переиздан на двойном виниле шведской Metal Fortress Entertainment. Также Sigh принимают участие на трибьюте Джона Колтрэйна с вещью "Spiritual". Альбом выйдет на Mainstream Records. Что касается проекта "Enoch", состоящего из Mirai, Necrophagia'вского Killjoy и Фила Ансельмо из "Pantera", дата выхода дебюта пока отложена на неизвестное время. <BR><BR> "Gavotte Grim" выйдет в середине 2002 на Century Media Records. Б-А-А-Н-З-А-А-Й-Й!!!!!!!!!!</p>
+
+Автор: Yermola
+
+### 21.12.2001 news Sigh have given, Gavotte Grim, as the title of the follow-up to Imaginary Sonicscape...
+
+<p><IMG SRC="/images/bands_rus/2001.12/2185.jpg" ALT="pho" width="175" height="250" hspace="15" vspace="5" border="1" align="left" /> Japanese psychedelic black metallers Sigh have given, Gavotte Grim, as the title of the follow-up to Imaginary Sonicscape. <BR><BR> The band are already in the middle of writing for the album and it appears frontman Mirai says it'll be Sigh's "greatest progression yet." If Mirai stays true to his word, the metal world can only wonder what will be on Sigh's sixth studio album. In band related news, Mirai will take over keyboards and vocals, so the band can search for a permanent bassist. It looks like Yasuyuki of Abigail will be the man for the job, but Sigh isn't saying if he's an actual member yet. <BR><BR> In similar news, Sigh's Imaginary Sonicscape will be released on double vinyl on Sweden's Metal Fortress Entertainment. A release date hasn't been set yet. Sigh will also partake on the upcoming John Coltrane tribute, where the band will cover "Spiritual" from Coltrane's Village Vanguard album. The tribute album will be on Mainstream Records. Also, Enoch, featuring Mirai, Necrophagia's Killjoy and Pantera's Phil Anselmo, will not have their debut album happen anytime soon. The split 7" with Necrophagia has also been put on ice. Mirai cites the "current world climate" as reasons for these projects not happening. <BR><BR> Fans of Sigh can expect Gavotte Grim and the John Coltrane tribute album out sometime in mid- to late-2002. Gavotte Grim will be on Century Media Records.</p>
+
+Автор: Yermola
+
+### 25.12.2001 news Саунд-трек к игре &quot;Adellion&quot;...
+
+<p>Mirai из японской блэк-команды "SIGH" пишет музыку к видео-игре "Adellion". По контракту 40 песен должны быть записаны в течении месяца. Официальный сайт игры <A HREF="http://www.adellion.com/">здесь...</A></p>
+
+Автор: Yermola
+
+### 10.07.2006 news Новый альбом SIGH
+
+<P>Японские авангардисты <STRONG>SIGH</STRONG> подписали соглашение на выпуск нового альбома под названием <STRONG>"Hangman's Hymn" </STRONG>на американском лейбле <B>The End Records</B>. По словам лидера группы <B>Mirai Kawashima</B> группе еще никогда не удавалось настолько совместить thrash metal с симфоническими делами. Трек-лист альбома, выход которого планируется в конце 2006 года:<BR><BR><IMG height=350 alt="" hspace=10 src="/images/news_rus/2006.07/10529.jpg" width=233 align=left border=0>Act 1<BR>01. <B>Introitus/Kyrie</B><BR>02. <B>Inked in Blood</B><BR>03. <B>Me-Devil</B><BR>Act 2<BR>04. <B>Dies Irae/The Master Malice</B><BR>05. <B>The Memories as a Sinner</B><BR>06. <B>Death with Dishonor</B><BR>07. <B>In Devil's Arms</B><BR>Act3<BR>08. <B>Overture/Rex Tremendae/I saw the World's End</B><BR>09. <B>Salvation in Flame/Confutatis</B><BR>10. <B>Finale: Hangman's Hymn/In Paradisum/Das Ende</B><BR><BR></P>
+Автор: Dimas
+
+### 16.10.2009 news Обложка нового альбома SIGH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.10/15281.jpg" width=400 align=right border=5>Новый альбом японцев<STRONG> SIGH</STRONG> <STRONG>"Scenes From Hell" </STRONG>выйдет 19 января на <STRONG>The End Records</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Prelude to the Oracle</B><BR>02. <B>L'art de Mourir</B><BR>03. <B>The Soul Grave</B><BR>Musica in Tempora Belli<BR>04. <B>The Red Funeral</B><BR>05. <B>The Summer Funeral</B><BR>06. <B>Musica in Tempora Belli</B><BR>07. <B>Vanitas</B><BR>08. <B>Scenes from Hell</B></P>
+<P>Группа опубликовала обложку этой пластинки, нарисованную <STRONG>Eliran Kantor</STRONG> (<B>TESTAMENT</B>, <B>AGHORA</B>, <B>TO-MERA</B>, <B>GWAR</B>, <B>SICKENING HORROR</B>).</P>
+Автор: Vit Belov
+
+### 06.07.2011 news Mirai Kawashima сыграет для ARES KINGDOM
+
+<P><STRONG>Mirai Kawashima</STRONG> из <STRONG>SIGH</STRONG> сыграет клавишное интро для кавер-версии <STRONG>VULPECULA 'Celestial'</STRONG> в исполнении <STRONG>ARES KINGDOM</STRONG>, которая появится на новом мини-альбоме этой группы, состоящем исключительно из чужих вещей в их обработке. Также этот альбом будет содержать кавер-версии: <STRONG>'Die By Power' (SLAUGHTER LORD), 'Act Dead' (MEFISTO), 'The Captive' (SACRILEGE), 'When Your Heart Turns Black' (R.U. DEAD?)</STRONG>&nbsp;и<STRONG>&nbsp;'Oblivion' (NEPENTHE)</STRONG>.</P>
+<P>Гитарист<STRONG> ARES KINGDOM Chuck Keller</STRONG> записал гостевое соло для альбома <STRONG>SIGH</STRONG> 2007 года <STRONG>'The Memories as a Sinner'</STRONG>, теперь лидер<STRONG> SIGH</STRONG> возвращает должок.</P>
+<P><center><IMG height=213 src="/images/news_rus/2011.07/19929.jpg" width=320 border=0></P>
+Автор: Vit Belov
+
+### 20.07.2011 news Переиздание дебюта SIGH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.07/20268.jpg" width=300 align=right border=0>Вчера на <STRONG>Deepsend Records</STRONG> вышло переиздание дебютного альбома японцев<STRONG> SIGH "Scorn Defeat"</STRONG>. Альбом переиздан в двойном восьмипанельном digi-pack с огромным количеством бонусного материала. Кроме самого альбома на диск попали EP "<STRONG>Requiem For Fools</STRONG>", демо "<STRONG>the Desolation</STRONG>" и "<STRONG>Tragedies</STRONG>", материал со сплита с<STRONG> KAWIR</STRONG>, кавер-версии на песни<STRONG> VENOM</STRONG> и <STRONG>MAYHEM</STRONG>. В оригинале этот альбом SIGH вышел в 1993 году на лэйбле покойного <STRONG>Euronymous Deathlike Silence</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>CD1: Scorn Defeat + Bonus <BR>1. <STRONG>A Victory of Dakini<BR></STRONG>2.<STRONG> The Knell</STRONG><BR>3. <STRONG>At My Funeral<BR></STRONG>4. <STRONG>Gundali<BR></STRONG>5. <STRONG>Ready For The Final War<BR></STRONG>6. <STRONG>Weakness Within<BR></STRONG>7. <STRONG>Taste Defeat<BR></STRONG>8. <STRONG>The Knell</STRONG> (Requiem For Fools EP) <BR>9. <STRONG>Desolation</STRONG> (Requiem For Fools EP) <BR>10. <STRONG>Taste Defeat</STRONG> (Requiem For Fools EP) <BR>11.<STRONG> Suicidogenic</STRONG> (Sigh/Kawir Split EP) <BR>12. <STRONG>Schizo</STRONG> (Sigh/Kawir Split EP) <BR><BR>CD2: <BR>1. <STRONG>Black Metal</STRONG> (Venom cover - previously unreleased) <BR>2. <STRONG>The Zombie Terror</STRONG> (Far East Gate in Inferno comp) <BR>3. <STRONG>The Seven Gates of Hell</STRONG> (Venom cover - Vinyl Collectors LP) <BR>4. <STRONG>Carnage</STRONG> (Mayhem cover - Vinyl Collectors LP) <BR>5. <STRONG>Weakness Within</STRONG> (Desolation demo) <BR>6. <STRONG>Desolation of My Mind</STRONG> (Desolation demo) <BR>7. <STRONG>Mentally Numb</STRONG> (Desolation demo) <BR>8. <STRONG>Death Throes</STRONG> (Tragedies rough mix) <BR>9. <STRONG>Sigh </STRONG>(Tragedies rough mix) <BR>10. <STRONG>Mentally Numb (</STRONG>Tragedies rough mix) <BR>11. <STRONG>Desolation</STRONG> (Tragedies rough mix) </P>
+Автор: Vit Belov
+
+### 14.12.2011 news Девятый альбом SIGH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.12/22308.jpg" width=475 align=right border=0>Девятый альбом японцев <STRONG>SIGH</STRONG> <STRONG>"In Somniphobia" </STRONG>выйдет в марте на <STRONG>Candlelight Records</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Purgatorium</B><BR>02. <B>The Transfiguration Fear</B><BR>Lucid Nightmares<BR>03 i) <B>Opening Theme: Lucid Nightmare</B><BR>04 ii) <B>Somniphobia</B><BR>05 iii) <B>L'excommunication a Minuit</B><BR>06 iv) <B>Amnesia</B><BR>07 v) <B>Far Beneath the In-Between </B><BR>08 vi) <B>Amongst the Phantoms of Abandoned Tumbrils</B><BR>09 vii) <B>Ending Theme: Continuum</B><BR>10. <B>Fall to the Thrall</B><BR>11. <B>Equale</B><BR>i) Prelude<BR>ii) Fugato<BR>iii) Coda</P>
+<P>Обложку для альбома нарисовал <STRONG>Eliran Kantor</STRONG>, который работал с <STRONG>TESTAMENT</STRONG>, <B>ATHEIST</B>, <B>ANACRUSIS</B>&nbsp;и <B>GWAR.</B></P>
+Автор: Vit Belov
+
+### 15.02.2012 news Новый альбом и видео SIGH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Японцы<STRONG> SIGH</STRONG> выпускают новый альбом "<STRONG>In Somniphobia</STRONG>" в этом марте. Стал известен трек-лист альбома:</FONT></P>
+<P>1.<STRONG> Purgatorium</STRONG><BR>2.<STRONG> The Transfiguration Fear Lucid Nightmares</STRONG><BR>3.<STRONG> Lucid Nightmare<BR></STRONG>4. <STRONG>Somniphobia<BR></STRONG>5. <STRONG>L'excommunication A Minuit</STRONG><BR>6. <STRONG>Amnesia</STRONG><BR>7. <STRONG>Far Beneath The In-Between<BR></STRONG>8. <STRONG>Amongst The Phantoms Of Abandoned Tumbrils</STRONG><BR>9. <STRONG>Ending Theme: Continuum</STRONG><BR>10<STRONG>. Fall To The Thrall</STRONG><BR>11. <STRONG>Equale </STRONG>(a. Prelude, b. Fugato, c. Coda)</P>
+<P>Видео на трек "<STRONG>Far Beneath The In-Between" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/hsSvEAqiSTY?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Японский блэк

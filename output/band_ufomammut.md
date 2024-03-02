@@ -62,6 +62,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.10.2011 news UFOMAMMUT на Neurot Recordings
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21554.jpg" width=350 height=370>Итальянские мастера громоподобного психоделического дума <B itxtHarvested="0" itxtNodeId="36">UFOMAMMUT</B> подписали контракт с лейблом <B itxtHarvested="0" itxtNodeId="35">Neurot Recordings</B> на выпуск своего следующего альбома. </P>
+<P>Согласно пресс-релизу, последний CD&nbsp;группы&nbsp;<B itxtHarvested="0" itxtNodeId="34">"Eve"</B>, <EM>"был встречен положительно по всему Миру и судя по репоражам из студии, которые мы получаем, их следующий опус будет ещё более эпичным и возможно станет самым тяжёлым и наполненным какофонией альбомом группы, на сегодняшний день".</EM></P>
+<P>Официальный сайт: <A href="http://www.ufomammut.com/">www.ufomammut.com</A></P>
+<P>Myspace: <A href="http://www.myspace.com/ufomammut">www.myspace.com/ufomammut</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### UFOMAMMUT (Италия) в России (6 и 7 сентября 2017)

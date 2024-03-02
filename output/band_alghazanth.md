@@ -148,6 +148,174 @@ Released: August 2004
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.10.2002 articles Новинки лицензионного рынка (29.10 - 03.11)
+
+<p>На этой неделе затишье в двух конторах Art Music Group и Soyuz, поэтому обратимся к оставшимся трём лэйблам.<br> Cd-Maximum добавляют очередную порцию underground metal. Альбом 2001 года финской группы Alghazanath “Osiris - Typhon Unmasked” являет собой малоизвестный мелодичный black-metal. В пресс-релизе советуют обратить внимание на «старомодную игру музыкантов, которая проявляется при более тщательном прослушивании». Далее Dominium “Psycho Path Fever” – группа относит себя к progressive-metal, но критики отмечают, что это heavy metal с death-metal вокалом. И третья новинка, о которой нам стало известно к данному моменту довольно известная группа Love Lies Bleeding со свежим релизом, который может порадовать всех любителей мелодичного black’а.<br> Fono продолжают окучивать свой новый контракт с Century Media, но почему-то выходят старые альбомы. Senteced “Amok” 1995 года выпуска и Iced Earth “Something Wicked This Way Comes” 1999 года в рекомендациях не нуждаются. Новый альбом brutal-death формации Dies Irae, в которой можно встретить участников Vader для любителей данного стиля. Также как и новый альбом старой heavy metal группы Riot.<br> Единственная металл-бомба этой недели вновь вышла на Irond. Новый альбом шведов Hammerfall порадует по крайней мере тем, что группа не отходит от своих истоков (хит недели). Альтернативная музыка на Nuclear Blast, скорее всего, продаётся везде кроме России. Группа с названием Prime Sth вряд ли будет пользоваться популярностью. Dominion III представляют «шедевр электронной апокалиптической музыки», играют участники Antichrisis и Dargaard. Проект Sieben представляет собой neo folk от скрипача Мэтта Хоудена, который засветился во множестве проектов. И напоследок Black Heaven, в котором участники Mantus «радуют» нас электронно-танцевальными экспериментами.<br> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 12.11.2002 news MassaBrutto Radioshow #124, 11-12 Nov 2002.
+
+<p>Playlist:<BR> <BR> 1. LOVE LIES BLEEDING - S.I.N. (CCP Recs/CD-Maximum Ltd)<BR> 2. OLEMUS - Rising (CCP Recs/CD-Maximum Ltd)<BR> 3. LITHIUM - Hero In Paradise (Cold Recs/CD-Maximum Ltd)<BR> 4. DEFORMITY - 7 Fathers 1 (Displeased Recs/CD-Maximum Ltd)<BR> 5. ALGHAZANTH - The Circle Of Six (Woodcut Recs/CD-Maximum Ltd)<BR> 6. ALGHAZANTH - Symphony Of Destruction [by MEGADETH] (Woodcut Recs/CD-Maximum Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. BOUND AND GAGGED - Seven Bodies (United Guttural Recs)<BR> 8. BOUND AND GAGGED - XX (United Guttural Recs)<BR> 9. SIKFUK - Still Born Feast/Festering Maggots (United Guttural Recs)<BR> 10. SIKFUK - Maggots Gorelore (United Guttural Recs)<BR> 11. FLESHGRIND - Sorrow Breeds Hatred... Bleed On Me [live] (United Guttural Recs)<BR> 12. FLESHGRIND - Litany Of Murder [live] (United Guttural Recs)<BR> 13. FLESHGRIND - Ejaculate On Entrails [live] (United Guttural Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.11.2002 news MassaBrutto Radioshow #124, 11-12 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LOVE LIES BLEEDING - S.I.N. (CCP Recs/CD-Maximum Ltd)<BR> 2. OLEMUS - Rising (CCP Recs/CD-Maximum Ltd)<BR> 3. LITHIUM - Hero In Paradise (Cold Recs/CD-Maximum Ltd)<BR> 4. DEFORMITY - 7 Fathers 1 (Displeased Recs/CD-Maximum Ltd)<BR> 5. ALGHAZANTH - The Circle Of Six (Woodcut Recs/CD-Maximum Ltd)<BR> 6. ALGHAZANTH - Symphony Of Destruction [by MEGADETH] (Woodcut Recs/CD-Maximum Ltd)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 7. BOUND AND GAGGED - Seven Bodies (United Guttural Recs)<BR> 8. BOUND AND GAGGED - XX (United Guttural Recs)<BR> 9. SIKFUK - Still Born Feast/Festering Maggots (United Guttural Recs)<BR> 10. SIKFUK - Maggots Gorelore (United Guttural Recs)<BR> 11. FLESHGRIND - Sorrow Breeds Hatred... Bleed On Me [live] (United Guttural Recs)<BR> 12. FLESHGRIND - Litany Of Murder [live] (United Guttural Recs)<BR> 13. FLESHGRIND - Ejaculate On Entrails [live] (United Guttural Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 13.11.2002 reviews Подсознательный сатанизм
+
+<p>"Subliminal Antenora" - второй альбом финской команды. ALGHAZANTH играют техничный и не лишенный мелодичности нордический black metal. Даже трудно сказать. на кого это похоже. Качество довольно приемлемое. Как и на дебютном альбоме, мы вновь слышим агрессивный и быстрый black metal с атмосферно-мелодичными делами, частенько переходящим в среднетемповые вирши. Все сделано по не совсем традиционной black metal концепции. Как в лирическом, так и в музыкальном плане. Кроме скриминга иногда можно услышать гроулинг и чистый вокал. Но в то же время, несмотря на качественность материала, звучит он немножко суховато и скупо, не пробуждая к себе особого интереса. Очень хорошо подходит в качестве фона, но не для серьезного вдумчивого прослушивания. Здесь есть три выдающиеся композиции, все остальное - крепкие середняковые песни. Даже не знаю, достоин ли этот альбом рекомендаций... Но ознакомиться с ним не помешает.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 21.11.2003 news ALGHAZANTH вошли в студию
+
+<P>В настоящее время <B>ALGHAZANTH</B> находятся в студии, где записывают новый четвёртый альбом, на который войдут восемь композиций. Подробности не сообщаются.</P>
+Автор: Vit Belov
+
+### 21.11.2003 news ALGHAZANTH in the studio
+
+<B>ALGHAZANTH</B> are in studio now, where they are recording their 4th album. They will record 8 songs. More info later.&nbsp;
+Автор: Vit Belov
+
+### 21.09.2005 bios ALGHAZANTH Bio
+
+<P>ALGHAZANTH - финская группа из города Jyv&#228;skyl&#228;, состоящая из шести человек, представляющая величественный и симфоничный блэк метал со значительной долей агрессии и захватывающей мрачной атмосферой. Название выдумал Gorath Moonthorn будучи в мечтах.</P>
+<P>Группа образовалась осенью 1995-го и делала первые шаги как дуэт. В скором времени кости начали обрастать мясом - полноценным составом. В конце 1996-го была записана первая демо-лента. Это запись из 4-х трэков и с довольно грязным звуком. Продолжение было записано в очень плохой студии в мае 1997-го; демо-кассета имела лучшее качество, чем первый релиз. Демо-трилогия была закончена в ноябре 1997-го, когда ALGHAZANTH записали промо-кассету, которая продемонстрировала способность группы развиваться во всех отношениях. Эта кассета была разослана по лейблам и WOODCUT RECORDS оказались наиболее заинтересованными в издательстве музыки ALGHAZANTH.</P>
+<P>Дебютный альбом "Thy Aeons Envenomed Sanity" был записан в июне 1998-го в более/менее известной студии TICO TICO. Из-за некоторых тормозящих факторов альбом был выпущен лишь в конце 1999-го. Второй полнометражный альбом "Subliminal Antenora" появился после некоторых изменений состава. ALGHAZANTH вошли в студию с новым вокалистом Nebiros в мае 2000-го и достигли более агрессивного уровня их музыки. В июле 2001-го альбом "Osiris - Typhon Unmasked" был материализован в той же студии, что и его предшественник. На этом третьем альбоме ALGHAZANTH показали себя группой, достойной внимания и получили очень позитивные, а в отдельных случаях даже хвалебные рецензии. Спустя некоторое время после сессий записи пришло время Veilroth, - одного из основателей группы, - чтобы покинуть группу. После урегулирования состава, ALGHAZANTH наконец обрели нынешнюю форму и были готовы записывать четвёртый альбом "The Plarity Axiom". В конце ноября 2003-го было окончено финальное сведение и альбом был готов к выходу.</P>
+<P>Состав группы (2005 год):</P>
+<P>Infection - лид-гитара<BR>Thasmorg - ритм-гитара<BR>A. Simonen - клавишные<BR>Grimort - бас<BR>Gorath Moonthorn - барабаны</P>
+<P>Written By St.Oisin</P>
+Автор: Vit Belov
+
+### 24.01.2006 news Вокалист SWALLOW THE SUN присоединился к ALGHAZANTH
+
+<P>Вокалист <STRONG>SWALLOW THE SUN</STRONG> присоединился к <STRONG>ALGHAZANTH</STRONG> в качестве их нового фронтмэна.</P>
+Автор: Vit Belov
+
+### 09.01.2011 reviews Первый шедевр sympho-black-metal нового десятилетия
+
+<P>Новый альбом финской группы ALGHAZANTH вышел 1 января 2011 года на Woodcut Records. Таким образом, эту пластинку можно смело считать первой выпущенной в новом десятилетии в тяжёлой музыке. Что ж, очень приятное начало в стиле sympho-black-metal.</P>
+<P>ALGHAZANTH известны в нашей стране, благодаря изданию на фирме CD-Maximum двух их альбомов 2000 и 2001 годов выпуска. Уже тогда, в пору расцвета sympho-black, финская группа привлекала к себе внимание любителей стиля. Прошло без малого 10 лет, коллектив выпускает уже третий альбом с того времени, но рыночная конъюнктура уже совсем другая. На плаву остались только монстры вышеупомянутого стиля DIMMU BORGIR и CRADLE OF FILTH, а основная часть групп затерялась на мелких лэйблах, а чаще всего просто прекратила своё существование. И если посмотреть с этой стороны, ALGHAZANTH кажутся уже чуть ли не лидерами жанра. Но оставим все эти коммерческие соображения. Дело в том, что “Vinum Intus” великолепен. Вот так просто, без обиняков, великолепен. Можно забыть последние опусы CRADLE OF FILTH и тем более DIMMU BORGIR, ALGHAZANTH очередной раз доказали, что главное в музыке ни какие-то навороты, оркестровки и возвраты к корням. Главное в музыке, которая нам нравится, нетривиальные мелодии, а их здесь огромное количество. Каждая вещь задевает слушателя за живое. Будь это медленная и красивая black-doom композиция, или агрессивная, но эпичная и помпезная sympho-black мелодия. Усугубляется всё это великолепие грамотным использованием подручных инструментов, по типу акустической гитары, или симфоническими и хоровыми сэмплами. Пластинка слушается от начала и до конца, а затем снова и снова от начала и до конца.</P>
+<P>Финны предъявили свой талант лицом. Не знаю, насколько реально сейчас продать большое количество компактных дисков через не слишком большой лэйбл Woodcut Records, но не всё измеряется деньгами. Послушайте этот альбом, и вы «зафанатеете».</P>
+Автор: Vit Belov
+
+### 03.08.2011 news Фестиваль &quot;Hammer Open Air&#39; 2011&quot;: фото-отчёт
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20414.jpg" width=300 height=119> 
+<P></P>
+<P>15 и 16 июля в Финляндии прошёл фестиваль "<STRONG>Hammer Open Air</STRONG>". Среди участников фестиваля в основном преобладали андеграундные финские и шведские коллективы, исключением, пожалуй лишь, стали&nbsp;<STRONG>ABSU</STRONG>, <STRONG>PRIMORDIAL</STRONG> и <STRONG>AUTOPSY</STRONG>. Последние, к сожалению, не попали в объектив нашего фотографа.</P>
+<P>Фотографии с выступлений можно посмотреть на нашем сайте, пройдя по ссылкам указанным&nbsp;ниже.</P>
+<P>День 1: <A href="/ru/galleries/1/740/">http://musica.mustdie.ru/ru/galleries/1/740/</A></P>
+<P>День 2: <A href="/ru/galleries/1/742/">http://musica.mustdie.ru/ru/galleries/1/742/</A></P></CENTER>
+Автор: Headcrusher
+
+### 27.12.2013 news Лицензионный дебют интернет-магазина Escapemind.ru
+
+<p>Интернет-магазин <a href="http://escapemind.ru">http://escapemind.ru</a> при поддержке лэйбла <strong>MUSICA Production</strong> представляет свой первый лицензионный релиз по лицензии финского лэйбла <strong>Woodcut Records</strong>.</p><p><strong>EPD 14-1 ALGHAZANTH “The Three-Faced Pilgrim”</strong></p><p>-sympho-black; Седьмой альбом популярной финской команды завершает трилогию, начатую на релизах 2008-го и 2011-го годов. Классический атмосферный symphonic black-metal для любителей GRAVEWORM, LIMBONIC ART и EMPEROR. Трек-лист:</p><p>1.<strong> In Your Midnight Orchard</strong>&nbsp; 09:19&nbsp;&nbsp;&nbsp; <br>2. <strong>To the Pearl on High</strong>&nbsp; 07:09&nbsp;&nbsp;&nbsp; <br>3. <strong>Promethean Permutation</strong>&nbsp; 06:54&nbsp;&nbsp;&nbsp; <br>4. <strong>AdraMelekTaus</strong>&nbsp; 06:15&nbsp;&nbsp;&nbsp; <br>5. <strong>As It Is Fated</strong>&nbsp; 06:17&nbsp;&nbsp;&nbsp; <br>6. <strong>With Sickle, with Scythe</strong>&nbsp; 10:10&nbsp; </p><p>Total time: 46:04</p><p>«<strong>To The Pearl On High</strong>” - <a href="https://soundcloud.com/alghazanth/tothepearlonhigh">https://soundcloud.com/alghazanth/tothepearlonhigh</a></p><p>Дата релиза в Европе: 13 декабря 2013 года<br>Дата релиза в России: 10 января 2014 года</p><p>Только в магазине <strong>MUSICA</strong> на Горбушке (павильон B2-230) и в интернет-магазине <a href="http://escapemind.ru">http://escapemind.ru</a> в продаже с 28 декабря 2013 года! Эксклюзивная оптовая дистрибуция <strong>Фоно</strong>: <a href="http://www.fono.ru">http://www.fono.ru</a></p><p><center><img width="200" height="200" src="/images/news_rus/2013.12/26460.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 01.02.2014 reviews Пламенный привет из прошлого
+
+<p>Давно замечено, что отечественная публика, приобретающая музыку на физических носителях, предпочитает несколько другую музыку, нежели в Европе и США. Достаточно взглянуть на списки коллективов, выходящих на некогда брутальных лэйблах, и всё станет ясно. Nuclear Blast выпускают какой-то странный hard-rock (ужасный сон металхэда 90-х), Relapse Records помешались на актуальном и психоделичном коре, Century Media всё больше и больше подписывают контрактов с группами в стиле hardcore и metalcore. Скажу сразу, у нас это не покупают, а следовательно и не слушают. Сейчас в меня уже летит кусок грязи, но я от него уворачиваюсь с помощью твердолобого утверждения, что ценность музыки, представленной не на физическом носителе, многократно меньшая для самого слушателя, прежде всего.</p><p>Стиль, в котором уже более десяти лет играют финны ALGHAZANTH, как раз очень популярен в России. Именно по этой причине альбомы этого коллектива и выходят на финском лэйбле Woodcut, который едва ли можно отнести даже ко второму эшелону европейских производителей CD в металическом жанре. На своём седьмом альбоме, вышедшем в конце прошлого года ALGHAZANTH продолжают нарезать медленный и атмосферный гипермелодичный black-metal, который идеально подойдёт к прослушиванию как поклонникам классического нордического black-metal, так и фэнам более мелодичного направления, ярким представителем которого можно считать GRAVEWORM с их ранними альбомами. Обозреваемая работа завершает трилогию, начатую на предыдущих двух альбомах коллектива. Это произведение ничем не хуже предшественников, а лучше в представленном стиле, в общем-то, и некуда.</p><p>Идеальный альбом, заставляющий вспомнить молодость, а новым металхэдам неплохо бы знать, что слушали люди в прошлом веке. Быть может, подобный материал покажется им более интересным, чем нынешние однообразные штамповки.</p>
+Автор: Vit Belov
+
+### 06.06.2014 news Новые релизы MUSICA Production
+
+<STRONG>Escapemind.ru <SPAN lang=ru-RU>и </SPAN>MUSICA Production <SPAN lang=ru-RU>представляют новые совместные релизы</SPAN></STRONG> 
+<P lang=en-US style="MARGIN-BOTTOM: 0cm"><BR></P>
+<P lang=en-US style="MARGIN-BOTTOM: 0cm"><STRONG>EPD 14.8/FO1061CD ALGHAZANTH “Wreath Of Thevetat”</STRONG></P>
+<P lang=en-US style="MARGIN-BOTTOM: 0cm">-melodic sympho-black-metal; <SPAN lang=ru-RU>Пятый альбом знаменитой финской группы. Великолепный мелодичный </SPAN>black-metal <SPAN lang=ru-RU>для всех поклонников </SPAN>EMPEROR, LIMBONIC ART <SPAN lang=ru-RU>и </SPAN>CATAMENIA. <SPAN lang=ru-RU>Первая часть трилогии, законченной недавно изданным в России альбомом «</SPAN>Three-Faced Pilgrim”. <SPAN lang=ru-RU>В составе вокалист </SPAN>SWALLOW THE SUN Mikko Kotamaki. </P>
+<P lang=en-US style="MARGIN-BOTTOM: 0cm"><BR></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Трек-лист:</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">1. Moving Mountains </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">2. The Kings to Come </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">3. The Phosphorescent </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">4. On Blackening Soil </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">5. Rain of Stars </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">6. Twice-Born </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">7. Future Made Flesh </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">8. As Nothing Consumes Everything</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><BR></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Лучшая цена на сайте <A href="http://escapemind.ru/"><SPAN lang=en-US><U><FONT color=#000080>http://escapemind.ru</FONT></U></SPAN></A></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Оптовая дистрибуция: <A href="http://www.fono.ru/"><SPAN lang=en-US><U><FONT color=#000080>http://www.fono.ru</FONT></U></SPAN></A></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><STRONG><BR></STRONG></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US>MP-69 OGNIVIR “I”</SPAN></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US>-black-metal; </SPAN>Дебютный альбом группы из украинского Бердянска. Мелодичный антихристианский <SPAN lang=en-US>black-metal </SPAN>с примесью <SPAN lang=en-US>pagan </SPAN>для поклонников как отечественной, так и зарубежной <SPAN lang=en-US>black-metal </SPAN>сцены. </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">&nbsp;</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Трек-лист:</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><BR></P>
+<OL>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Легион</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Под Знаменем Сатаны</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Ода Чёрному Огню</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Королева Грёз (Ч.1)</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Привратник Смерти (Ч.2)</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Симфония Тьмы</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Зов Бесконечности</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Огонь Мщения</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Кровавый Век</P></LI></OL>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US></SPAN>
+<CENTER><IFRAME height=255 src="//www.youtube.com/embed/1xYlJB5zrgo" frameBorder=0 width=425 allowfullscreen></IFRAME>
+<P></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><SPAN lang=en-US>MP-71 RAGOR “</SPAN>Миг Рождения Бури»</P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">-<SPAN lang=en-US>atmospheric black-metal; </SPAN>Долгожданный третий альбом коллектива из России. Мощны и красивый <SPAN lang=en-US>black-metal </SPAN>с великолепной русскоязычной лирикой. Среднетемповые композиции в классическом духе с величественными мелодиями. </P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Трек-лист:</P>
+<OL>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Миг Рождения Бури</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Яростным Криком</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Узоры Будущей Судьбы</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Взорвавшись Небо</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Вновь Догорает Закат</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Великая Ночь</P>
+<LI>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Забвение</P></LI></OL>
+<P>
+<CENTER><IFRAME height=255 src="//www.youtube.com/embed/wshcRVpbZS4" frameBorder=0 width=425 allowfullscreen></IFRAME>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Лучшая цена на сайте <A href="http://escapemind.ru/"><SPAN lang=en-US><U><FONT color=#000080>http://escapemind.ru</FONT></U></SPAN></A></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27048.jpg" width=450 height=450><IMG border=0 src="/images/news_rus/2014.06/27049.jpg" width=450 height=433> 
+<P></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27050.jpg" width=500 height=451> 
+<P></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm"><STRONG><BR></STRONG></P>
+<P lang=ru-RU style="MARGIN-BOTTOM: 0cm">Сайт лэйбла <SPAN lang=en-US>http://mp.musica.mustdie.ru</SPAN></P></CENTER></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+### 06.01.2016 news Переиздание Escapemind.ru
+
+<P><SPAN class=tit1><IMG border=0 hspace=0 alt="" src="/images/news_rus/2016.01/28649.jpg" width=474 align=right height=480>В продаже новое переиздание melodic black metal группы ALGHAZANTH "Vinum Intus". При участие вокалиста Swallow The Sun Mikko Kotamaki. </SPAN></P>
+<P>В текущем году финским black-metal'истам ALGHAZANTH исполняется 20 лет. Все 7 альбомов, вышедшие за это время, представляют классический злой, но мелодичный black-metal. Группа ALGHAZANTH была образована в 1995 году, как проект двух музыкантов. Но уже за год был сформирован полноценный состав. Первый полноформатник коллектива «Thy Aeons Envenomed Sanity” вышел в 1999 году на Woodcut Records. Все альбомы финнов выходили на этом лэйбле. Вторая работа музыкантов «Subliminal Antenora” увидела свет в 2000 году и была позже переиздана в России на CD-Maximum. Тот же популярный лэйбл издал и третий альбом ALGHAZANTH “Osiris – Typhon Unmasked”, в оригинале вышедший в 2001 году. К современному звучанию ALGHAZANTH пришли после выхода четвёртого полноформатника «The Polarity Axiom”, когда в группе произошли серьёзные изменения в составе. В 2008 году финны начали современную историю с альбома «Wreath Of Thevetat”. У микрофонной стойки появился Goat Tormentor, в миру Mikko Kotamaki вокалист SWALLOW THE SUN. На последних трёх альбомах, включая работу «Vinum Intus”, которая была издана в 2011 году, и последний шедевральный альбом «The Three-Faced Pilgrim”, вышедший в конце 2013 года, ALGHAZANTH удалось превратить тяжёлый «трушный» black-metal в мелодичное произведение.</P>
+<P>Ближайшие планы Escapemind.ru:</P>
+<P><STRONG>HECATE ENTHRONED "Virulent Rapture" black metal 2013<BR>OMNIUM GATHERUM "Grey Heavens" melodic death metal 2016</STRONG></P>
+<P>Контакт: <A href="mailto:musica2005@yandex.ru">musica2005@yandex.ru</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

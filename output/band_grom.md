@@ -55,6 +55,157 @@ Session synth. by U. Malgin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.09.2005 news GROM на MUSICA Production
+
+<STRONG><IMG height=402 alt="" hspace=0 src="/images/news_rus/2005.09/9263.jpg" width=400 align=right border=5>Musica Production</STRONG> сообщает о подписании контракта на выпуск второго альбома "<STRONG>We Are True, We Are Hate</STRONG>" black-metal группы <STRONG>GROM</STRONG> из Подмосковья. Брутальнейший материал на стыке black и death-metal, записанный в известной <STRONG>Navaho Hut Studio</STRONG> (<STRONG>SINFUL, DEMONS OF GUILLIOTINE, MIND ECLIPSE, THRON</STRONG>). Пластинка увидит свет 6 сентября. Трэк-лист: <BR><B>1. Destroy of human race<BR>2. New era<BR>3. Worship me<BR>4. Premanition of death<BR>5. Blood Violence Terror<BR>6. Goathrone<BR>7. Absolute realety<BR>8. Two thousand years down<BR>9. Twilight of the world<BR>10. Im Chaotic earth<BR>11. eleven<BR>12. We are true we are hate</B> 
+<P>MP3:<A href="/ru/band/grom/11471/#samples"> http://musica.mustdie.ru/ru/band/grom/11471/#samples</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<P>Контакт лэйбла: <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A></P>
+Автор: Vit Belov
+
+### 01.09.2005 news GROM sign with Musica Production
+
+<IMG height=402 alt="" hspace=0 src="/images/news/2005.09/9264.jpg" width=400 align=left border=5>Musica Production informs about signing deal to release second album "We Are True, We Are Hate" of black-metal band GROM from Moscow region. Brutal material on the edge of black-metal and death-metal, recorded in acclaimed Navaho Hut Studio (SINFUL, DEMONS OF GUILLIOTINE, MIND ECLIPSE, THRON). Album will be released in the end of August - begining of September. Track-list: <BR><B>1. Destroy of human race<BR>2. New era<BR>3. Worship me<BR>4. Premanition of death<BR>5. Blood Violence Terror<BR>6. Goathrone<BR>7. Absolute realety<BR>8. Two thousand years down<BR>9. Twilight of the world<BR>10. Im Chaotic earth<BR>11. eleven<BR>12. We are true we are hate</B> 
+<P>MP3:<A href="/ru/band/grom/11471/#samples"> http://musica.mustdie.ru/ru/band/grom/11471/#samples</A></P>
+<P>Labelsite: <A href="http://mp.musica.mustdie.ru">http://mp.musica.mustdie.ru</A></P>
+<P>Labelcontact: <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A></P>
+Автор: Vit Belov
+
+### 30.10.2005 news Презентация новых альбомов GROM и STIGMATIC CHORUS в Санкт-Петербурге
+
+<P><IMG height=283 alt="" hspace=0 src="/images/shows_rus/2005.10/9421.jpg" width=400 align=left border=5>MORTH METAL DIVISION presents:<BR>30 октября в клубе Арктика (ул.Беринга, 38, ст.м.Приморская) состоится Black<BR>Metal fest. Участвуют группы :</P>
+<P>STIGMATIC CHORUS (sympho black metal, Москва)<BR>GROM (black metal, Москва)<BR>PERVERSUS STIGMATA (sympho black metal, Москва)<BR>ESGHARIOTH (atmospheric black/death, Москва)<BR>TOPHET (black metal)<BR>ANTISACRUM (black/death metal)<BR>VOICE INTERRIOR (sympho black metal)</P>
+<P><BR>На концерте пройдут презентации альбомов STIGMATIC CHORUS - Autodafe и<BR>GROM - We Are True, We Are Hate.</P>
+<P>STIGMATIC CHORUS (sympho-black metal)<BR>Профессиональная московская симфо-блэк формация с оригинальной, скоростной и мелодичной музыкой запоминающимся вокалом и сильными русскоязычными текстами. Команда выпустила два полнометражных альбома, первый из которых<BR>вышел сплитом с норвежским коллективом Antaios, при участии музыкантов Gehenna.</P>
+<P>В этом году группа подписала долгосрочный контракт с концерном СОЮЗ. Cуществует коллектив с 1999го года, и за это время отыграл большое количество концертов в россйских городах и за пределами России, в том числе в одной обойме с известными западными группами и популярными коллективами ближнего зарубежья. На данный момент СОЮЗ представляет новый концептуальный альбом группы 'Autodafe', в записи которого принимали участие музыканты Melancholy, экс-учасники Dementor, Mental. В рецензиях на вышедший альбом часто отмечают отличное качество записи, музыкального материала не уступающие европейским аналогам и отличное оформление. Ритм секцию коллетива составляют музыканты ex-Corpsegrinder (drums), Sinful (bass).</P>
+<P>GROM (black metal)<BR>Одна из виднейшних black metal коллективов Москвы, группа GROM была образована в 1998 году. За время своего существования группа записала 3 альбома : Realm Of Hatred (1999, Grom), Renaissance (2001, Irond Rec) и We Are True, We Are Hate (2005, Musica Production). На своем последнем альбоме группа представила брутальнейшний материал на стыке black и death metal, записанный в известной Navaho Hut Studio (SINFUL, MIND ECLIPSE, THRON, DEMONS OF GUILLIOTINE). На этом концерте пройдет презентация последнего альбома Grom - We Are True, We Are Hate.<BR>Официальный сайт : <A href="http://grom-band.nm.ru/">http://grom-band.nm.ru</A></P>
+<P>Начало в 16:00.<BR>Стоимость билетов - 140/160р.</P>
+Автор: Vit Belov
+
+### 09.11.2005 reviews Смелые и честные
+
+<P>Вторая чернушная работа российских антирелигиозно настроенных мизантропов. Самый что ни на есть андерграундный, почти true, black metal, который даже можно слушать не нанося вред своим органам слуха, в отличие от многих других подобных работ. При всем при этом, я считаю этот альбом из разряда "в одно ухо влетело - в другое вылетело". Он довольно мало отличается от дебюта трехлетней давности, хоть и представляет больший интерес. Поменяв студию <STRONG>CDM</STRONG> на <STRONG>Navaho Hut</STRONG> и проведя в ней побольше времени, группе удалось немного повысить уровень своего материала. Музыканты все так же поражают своей прямолинейностью и примитивизмом, создавая агрессивно-злобный материал без малейшего намека на мелодику и разнообразие. Хотя, в рамках данного стиля, это то, что нужно. Подобные сырой и грязный звук и колорит, что на этом альбоме, в лучших традициях стиля. Представьте себе смесь <STRONG>DARKTHRONE</STRONG> и <STRONG>MARDUK</STRONG>, чуть более однообразную и с худшим качеством - вот вам и <STRONG>GROM</STRONG>. И истинных любителей подобной музыки найдется немало, как ни странно. Вот им то и всевозможным коллекционерам&nbsp;можно порекомендовать этот альбом. Тем же любителям black metal, которые предпочитают качественную музыку, советую лучше послушать более авторитетные команды в этом стиле. А остальным и вовсе не советую браться за прослушивание диска. </P>
+Автор: Dimas
+
+### 29.11.2005 reviews Черный ширпотреб
+
+<P>Второй альбом подмосковных блэк-идолов. Первый пару-тройку лет назад выходил на IROND'е (синенький такой, с уродливой карказяблой на фронтсайде), этот - на MUSICA Prod. (синенькое - в прошлом, теперь рулит беленькое, но с козлиной головой). Ну, и что же там "девушка Прасковья из Подмосковья" (с) напела-наиграла? Все тот же злостный некросатанинский black metal, - простой, как три копейки, но зато с несколько улучшенным по сравнению с предыдущей работой саундом (ибо писались в другой студии, в "Navaho Hut")&nbsp; и взвизгивающими на лихих поворотах гитарами. Махровый андерграунд. Сыны Диаволовы в своем творчестве явно (и тайно) уважают шведских танкистов MARDUK, но делают это на совершенно другом уровне (как исполнительском, так и композиционном), отчего их уважение принимает форму нелепого гротеска... Тупо, однообразно, примитивно, не интересно - к сожалению, именно такие мысли возникают при прослушивании нового опуса GROM.</P>
+<P>Лирика этого, с позволения сказать, серебристого блина достойна выступлений зловещего друга детей и пенсионеров Женьки Петросяна - один перл из титульной (финальной) композиции чего стоит: помимо прочих декларацией, в тексте есть строчка "we are fucking your girl", - понимаешь ли... А при чем здесь тогда true и hate? И это... может, своих девушек не хватает?..</P>
+<P>В общем, дэвилопоклонники потрудились на славу - сей релиз реально TRUE. Реально - эксклюзивный тру-блэк-метал. Всем бояться полчаса.</P>
+Автор: Dr. Grandma
+
+### 19.01.2006 news GROM на радио
+
+<P>23 января c 20-00&nbsp;до 21-00&nbsp;московская black-death-metal группа <STRONG>GROM</STRONG> будет гостем программы <STRONG>High Way</STRONG> на интернет-радио <STRONG>Shock Wave</STRONG>: <A href="http://shockwave.northnet.ru/?page=latest">http://shockwave.northnet.ru/?page=latest</A></P>
+<P>Ваши вопросы вы сможете задать по ICQ# 333576669 и по почте <A href="mailto:Shockwave@northnet.ru">Shockwave@northnet.ru</A></P>
+<P>Последний альбом <STRONG>GROM "We're True We're Hate"</STRONG> вышел на <STRONG>MUSICA Production</STRONG> в прошлом году. MP3: <A href="/ru/band/grom/11471/#samples">http://musica.mustdie.ru/ru/band/grom/11471/#samples</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 10.02.2006 news BELPHEGOR в Москве
+
+<P>Satanic Black-Death-Metal монстры <STRONG>BELPHEGOR</STRONG> выступят в Москве в клубе "<STRONG>Релакс</STRONG>" 10 февраля. Концерт организует <STRONG>Spika Merchandising</STRONG> при поддержке <STRONG>Dark Affairs</STRONG>. В одном концерте с австрийцами выступят москвичи <STRONG>GROM</STRONG>, второй альбом которых "<STRONG>We're True We're Hate</STRONG>" увидел свет осенью прошлого года на <STRONG>MUSICA Production, и SINFUL</STRONG>, дебют которых "<STRONG>Омут</STRONG>" также вышел на <STRONG>MUSICA Production</STRONG> в прошлом году.</P>
+<P>
+<CENTER><IMG height=302 src="/images/news_rus/2006.01/9952.jpg" width=400 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 12.02.2006 news GROM работают над новым альбмом
+
+<P><STRONG>GROM</STRONG> вовсю сочиняют новый альбом. Ещё нет никаких названий, но уже известно, что пластинка будет более тяжёлой. </P>
+<P><STRONG>Rex</STRONG> (бас): "<EM>Концепция альбома окончательно сформируется в процессе записи, которая начнётся в марте в студии Navaho.&nbsp;Может получиться так же, как с прошлым альбомом, начали писать true-black, а выпустили black-death</EM>".&nbsp;</P>
+Автор: Vit Belov
+
+### 08.03.2006 news У GROM новое лого
+
+<P><IMG height=210 alt="" hspace=0 src="/images/news_rus/2006.03/10135.gif" width=280 align=left border=5>Московские брутальный black-meta'исты<STRONG> GROM</STRONG> опубликовали своё новое лого. Уже на ближайших концертах группа будет выступать под этой вывеской.</P>
+<P>Как уже сообщалось, коллектив работает над новым альбомом.</P>
+Автор: Vit Belov
+
+### 08.01.2007 news Новый альбом GROM
+
+<P><STRONG>GROM</STRONG> закончили запись нового альбома "<STRONG>March Of Voices of Dead Of Souls</STRONG>" в студии <STRONG>Navaho Hut</STRONG>. Пластинка пройдёт стадии сведения и мастеринга в ближайшее время. Релиз альбом намечен на лето&nbsp;2007 года на <STRONG>Musica Production</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Мой Марш</STRONG><BR>2. <STRONG>The Voices</STRONG><BR>3. <STRONG>Дисциплина Ненависти</STRONG><BR>4. <STRONG>Master Of Liars</STRONG> <BR>5. <STRONG>Exodus</STRONG></P>
+<P>Total time about 30 min</P>
+Автор: Vit Belov
+
+### 17.01.2007 articles Старый новый год в &quot;Релаксе&quot;: RAKOTH - великолепны
+
+<P>13 января в клубе «Релакс» Metal Militia Production организовала первый концерт в наступившем году. В программе были заявлены несколько интересных групп, обещались ведущие, и даже стриптиз. Публики собралось достаточное количество, оставалось только надеяться, что группы будут соответствовать подобному вниманию.</P>
+<P>К сожалению, первый коллектив я пропустил, а с ним, видимо, и конкурсы. Также стало известно, что «блэкари» THUNDERSTORM не смогут выступить в этот вечер. На сцене зажигали SCREAM IN DARKNESS. В прошлом году коллектив выпустил «самиздатом» свой дебютный одноимённый альбом, дал несколько концертов в его поддержку и начал набирать обороты и получать некоторую известность в московском undeground’e. Эта некоторая известность отчётливо была заметна во время выступления ребят на сцене. Публика встречала SCREAM IN DARKNESS приветливо. Вокалистом SID был некто Гроб, один из ведущих этого концерта. Его внешность вызвала у меня недоумение. Кучерявый, полноватый парень с самодовольным улыбающимся лицом, который рычит и как-то нелепо рубится на фоне коллег музыкантов с «правильным» имиджем. Улыбка Гроба напомнила мне поп-певца Витаса, а его шутки, «Здесь не водка, а вода, ха-ха», были достаточно тупы, чтобы понравиться подвыпившей публике. Отдельно коснусь музыки SCREAM IN DARKNESS. Их творчество осталось непонятым мною. Что играет эта группа? Какую-то нелепую смесь melodic-death и death-doom с невнятными мелодиями и непонятными музыкальными решениями. Признаться, я слышал и запись группы, она выдержана в том же ключе, и впечатления от концерта с впечатлениями от диска не разнятся. Вероятно, играть коллектив и умеет, умеет он себя подать, пусть в несколько странноватом ключе, но с песнями и собственным материалом у них проблемы. Из-за отказа THUNDERSTORM, группе пришлось пробыть на сцене дольше положенного, что отнюдь не добавило мне положительных эмоций.</P>
+<P>Дальше было тоже очень интересно. На сцене появились ICEWIND BLAST, которых можно смело назвать «гвоздём программы», так как, судя по всему, зрители в этот вечер ожидали именно их. У группы были некоторые проблемы с настройкой. Её они проводили достаточно шумно, а под конец даже отыграли пол песни и бросили. Публика к этому издевательству отнеслась на редкость спокойно, любят, видимо, эту группу. Самое забавное, что после настройки, ICEWIND BLAST покинули сцену, и там появились ведущие Гроб и Кардан, устроившие конкурс на лучший гроулинг. В зале оказались довольно примечательные персонажи, которые честно заработали своё пиво, проорав в микрофон несколько нечленораздельных фраз. Интересно, что обычно конкурсы проводят во время настройки групп, чтобы занять публику и отвлечь её от невнятного шума, раздающегося со сцены. Здесь же конкурсы были поданы, как отдельные блюда. Забегая вперёд, скажу, что конкурсов в этот вечер больше не было. GROM, так же как и ICEWIND BLAST, покинули сцену после настройки, но не дождавшись ведущих, начали своё выступление. Один из них появился уже перед ДЕМОНАМИ, поблагодарил публику, проанонсировал стриптиз-шоу и ушёл. Видимо, ребята не выдержали груза славы, на них свалившейся. И после нескольких удачных выходов на сцену «надёргались» в баре. Вернёмся к ICEWIND BLAST, которые всё-таки вышли на сцену под приветственные крики фэнов. Я уже слышал несколько раз этот коллектив в прошлом. Впечатления, что они прогрессировали всё это время, у меня не сложилось. Такой же рваный материал, не очень качественное исполнение. Несмотря на долгую настройку, хорошего звука мы не услышали. Было несколько мест в песнях, где действительно можно было усмотреть некоторый потенциал, но это только места. Настоящих запоминающихся трэков в обойме ICEWIND BLAST нет. Кроме прочего, создалось впечатление, что группа попросту неслаженно звучит. Особенно это было заметно во время исполнения вечного кавера на песню Bon Jovi. Вокалист куда-то спешил, ритм-секция отставала, мелодия звучала чисто приблизительно. Уже на выступлении ICEWIND BLAST мне начало казаться, что я зря трачу своё время, и ничего интересного в этот вечер меня не ждёт, но, к счастью, я ошибался.</P>
+<P>Первыми, кто порадовал, были GROM. Эта группа не очень популярна среди столичного зрителя, из-за своей брутальности. Многим их музыка кажется несколько туповатой, поэтому зал опустел почти наполовину. По мне так лучше чистый забой, чем мелодизм и разнообразие, в котором невозможно разобраться. А драйв эта четвёрка даёт. Кроме того, были сыграны две новые песни, материал которых приближает коллектив к творчеству techno-death команд. На первой из них вокалист даже поёт неким подобием чистого вокала. Благодаря новым вещам, сэт GROM стал более разнообразным и интересным. Здесь встречаются и black композиции, и ранние почти «трэшовые» вещи. На закуску к микрофону встал гитарист и уже в формате трио GROM исполнили кавер на песню KREATOR “Tormentor”. Без лишней настройки, без лишнего апломба, зато с тяжёлым материалом и ураганным сэтом, вот, что выделяло GROM на фоне предшественников по этому концерту. Группа прогрессирует, и нам следует ждать более ярких выступлений в дальнейшем.</P>
+<P>Гвоздём программы стали RAKOTH. Я не буду скрывать своего восхищения выступлением этой команды. После нескольких альбомов, выпущенных на зарубежных лэйблах, коллектив наконец-то приступил к концертным выступлениям. Великолепная атмосфера была создана уже в самом начале во время настройки. Чистоголосый певец P. Noir общался с публикой, распевался… Честно говоря, меня просто поразил его голос. Он захватил меня и не отпускал до конца выступления. У клавишника Рустама, кажется, были претензии к работе P. Noir, но я бы не был столь строг. Хотя он и был в каком-то «странном» состоянии, но с пением и игрой на духовых (флейте и ещё двух каких-то «дудочках») справлялся великолепно. Музыка RAKOTH не подпадает под описание ни одного из известных стилей. Элементы фолка, пронзительный чистый вокал, гроулинг и скриминг, флейта… Кроме этого, black-metal и элементы других брутальных стилей. Построение композиций очень непростое, но слушается музыка очень интересно, и не появляется ощущения перегруженности песен и их «ненатуральности». Честно говоря, RAKOTH следует пригласить и на какой-нибудь progressive концерт, там их музыка заслужит достойных эпитетов. Но даже на этом сейшене, где преобладали группы «зверских» направлений, публика внимала RAKOTH с интересом.&nbsp; Безусловное концертное открытие этого шоу. Спасибо организаторам. Ну, и группе, конечно же.</P>
+<P>Предпоследней частью этого концерта стало выступление группы DEMONS OF GUILLOTINE. Последней было «сексуальное стриптиз-шоу», которого я не дождался. Надо было «девок» выпустить на сцену пораньше, пусть без шоу, но в рекламных целях. А так до ночи слушать ДЕМОНОВ не захотелось. Тем более ко всей слабости этого коллектива прибавилось изрядное опьянение лидера, который то падал, то матерился, предлагая сделать минет звукорежиссёру, и.т.п. Печальное зрелище, особенно, на фоне RAKOTH. Группе, видимо, приходит конец. Особого энтузиазма ни у публики, ни у выступавших я не заметил. Думается, пора прекращать спонсировать бездарность и переключиться на другие группы.</P>
+<P>В общем и целом концерт был не плох. Отрицательное впечатление от ICEWIND BLAST и SCREAM IN DARKNESS не пересиливают положительные эмоции от выступлений RAKOTH и GROM. Тем более мнение о первых двух группах вполне может измениться в лучшую сторону, а слушать эти коллективы отнюдь не противно. К сожалению, подобного не скажешь о ДЕМОНАХ, но ничего хорошего от этих ребят я никогда не ждал.</P>
+Автор: Vit Belov
+
+### 14.04.2007 news DARK FUNERAL + BELPHEGOR + GROM в Москве
+
+<CENTER><IMG height=282 src="/images/news_rus/2007.03/11490.jpg" width=400 border=0></CENTER>
+<CENTER><SPAN class=tit1>
+<CENTER><SPAN class=tit3>
+<CENTER>В концерте принимают участие <A href="/ru/band/grom">GROM</A>!!!</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Уважаемые поклонники группы DARK FUNERAL!<BR>В связи с болезнью барабанщика, группа отменила свои концерты в России и Украине.<BR>Концерты BELPHEGOR и разогревающих отечественных коллективов в Санкт-Петербурге и в Москве состоятся.<BR>В день концерта цена входного билета в Москве будет 600 руб., в Питере - 400руб. При входе будут выдаваться купоны. Они будут действительны с доплатой 200 руб. в день концерта DARK FUNERAL, который состоится в течении месяца. <BR>Телефон для справок: 76 77 037</CENTER>
+<CENTER>Компании SPIKA Concert Agency приносит свои извинения всем поклонникам группы DARK FUNERAL за неудобства, связанные с переносом концерта.</CENTER></SPAN></CENTER></SPAN></CENTER>
+Автор: Vit Belov
+
+### 23.06.2007 news Изменения в составе GROM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист<STRONG> GROM Volhov</STRONG> покинул коллектив. Причины не сообщаются. Ему уже найдена замена, новым фронтмэном станет <STRONG>Отец Сергий</STRONG> (ex-<STRONG>ASHEN LIGHT</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа закончила работу над новым альбомом <FONT color=#ddd9d0>"<STRONG>March Of Voices of Dead Souls</STRONG>", который готовится к выходу на<STRONG> MUSICA Production</STRONG>. Эта пластинка станет последней для ушедшего певца.</FONT></FONT></P>
+Автор: Vit Belov
+
+### 05.10.2007 news Двойная презентация новых альбомов ASHEN LIGHT и KARTIKEYA
+
+<CENTER><IMG height=567 alt="" hspace=0 src="/images/shows_rus/2007.10/11890.jpg" width=401 align=left border=5>19 октября в клубе «Релакс» Sound Age prod. и Musica prod. представят двойную презентацию новых альбомов групп Ashen Light и Kartikeya.<BR>&nbsp;<BR>Ashen Light не нуждается в широком представлении, ибо культовость этого этого коллектива не понадлежит никакому сомнению. Прорвав 8 лет назад границы локальной сцены своим дебютным альбомом «Песнь Велеса», группа приобрела известность как у себя на Родине, так и за рубежом. <BR>"Философия самоуничтожения" - это девятая по счету работа, в которой коллектив еще глубже затронул наиболее темные стороны человеческого сознания.<BR>Позиции группы укрепил приход небезызвестного музыканта Андрея Ищенко (ex-Catharsis, Hieronymus Bosch, .........) Теперь, вживую коллектив звучит вдвое интереснее, чем на записи.<BR>&nbsp;<BR>Kartikeya. Автор музыки альбома «Зов Новой Гипербореи» ансамбля Невидь Роман Искоростенский, наконец-то решил порадовать слушателей творчеством своей собственной группы. На «The battle begins» бесспорно угадывается влияние Nile и позднего Behemoth, только Роман еще глубже шагнул в слиянии death metal’а с этнической музыкой. Наиболее яркий и профессиональный творческий дебют этого года.<BR>На этом выступлении группы планируется участие широко известного в кругах этнической и эзотерической музыки перкуссиониста Dierevo.<BR>&nbsp;<BR>Поддержат в этот день братские группы коллектив Rossomahaar, который, спустя вынужденного полугодового перерыва, впервые выступит в Москве и тру-блэк формация Grom, в которой теперь участвует главный беспредельщик и маньяк российской black metal сцены Отец Сергей (ex- Ashen Light) <BR>&nbsp;<BR>Начало концерта в 18:00<BR>Цена билета в предварительной продаже 200 рублей<BR>Адрес клуба: м.Пролетарская, ул. Мельникова д.7)</CENTER>
+Автор: Dimas
+
+### 22.10.2007 news Новые релизы от MUSICA Production
+
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ОСЕННЯЯ ИНТЕРВЕНЦИЯ ОТ MUSICA PRODUCTION.</STRONG></FONT></CENTER>
+<CENTER><STRONG><FONT style="BACKGROUND-COLOR: #000000"></FONT></STRONG>&nbsp;</CENTER>
+<DIV align=left><STRONG><FONT style="BACKGROUND-COLOR: #000000"><IMG height=391 alt="" hspace=0 src="/images/news_rus/2007.10/11949.jpg" width=400 align=right border=5>MP23 GROM "March Of Voices Of Dead Souls" (black-death-metal)</FONT></STRONG></DIV>
+<DIV align=left><STRONG><FONT style="BACKGROUND-COLOR: #000000"></FONT></STRONG>&nbsp;</DIV>
+<DIV align=left><FONT style="BACKGROUND-COLOR: #000000">Новый третий альбом <STRONG>GROM "March Of Voices Of Dead Souls"</STRONG> символизирует продолжающийся переход группы к death-metal звучанию. 5 трэков на 31 минут, среди которых главный эксперимент в истории<STRONG> GROM</STRONG> - концептуальная 17-минутная вещь с элементми black, death и даже ambient музыки. Вслед за концертами с<STRONG> BELPHEGOR</STRONG> группа выступит на одной сцене с <STRONG>MAYHEM</STRONG> 14 ноября. Трэк-лист:</FONT></DIV>
+<DIV align=left><FONT style="BACKGROUND-COLOR: #000000"></FONT>&nbsp;</DIV>
+<DIV align=left>1. <STRONG>Мой Марш</STRONG><BR>2. <STRONG>The Voices<BR></STRONG>3. <STRONG>Дисциплина Ненависти</STRONG><BR>4. <STRONG>Master Of Liars</STRONG><BR>5. <STRONG>Exodus</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left>MP3: <A href="/ru/band/grom/13362/#samples">http://musica.mustdie.ru/ru/band/grom/13362/#samples</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><IMG height=391 alt="" hspace=0 src="/images/news_rus/2007.10/11950.jpg" width=400 align=left border=5>MP24 <STRONG>KARTIKEYA "The Battle Begins"</STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>Дебютная пластинка от группы <STRONG>KARTIKEYA</STRONG>, folk-death-metal проекта от бывших участников <STRONG>НЕВИДЬ</STRONG>. Очередное открытие из России. Death-metal со скрипками, индуистскими хорами и соответствующими мелодиями. Гостевое участие <STRONG>Лесьяра </STRONG>(<STRONG>НЕВИДЬ</STRONG>, ex-<STRONG>BUTTERFLY TEMPLE</STRONG>). Очень оригинальная и, главное, "слушабельная" музыка. Брутал и мелодизм. Трэк-лист:</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><STRONG>1. Nemesis pt. 1: Aeons Ago <BR>2. Nemesis pt. 2: The Game Of Gods <BR>3. Enter My Dome <BR>4. Ruins Of Belief <BR>5. Oasis - Soul's Path <BR>6. Kailas <BR>7. Thunders Of Indra <BR>8. The Battle Begins pt. 1: The War Of One Blood <BR>9. The Battle Begins pt. 2: Arjuna <BR>10. Worship The Savior <BR>11. Unleash Thy Spirit <BR>12. The Last Night</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left>MP3: <A href="/ru/band/kartikeya/13360/#samples">http://musica.mustdie.ru/ru/band/kartikeya/13360/#samples</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><IMG height=393 alt="" hspace=0 src="/images/news_rus/2007.10/11951.jpg" width=400 align=right border=5>MP25 <STRONG>KREST "Apocollapsys"</STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>Первый thrash-metal альбом на <STRONG>MUSICA Production</STRONG> - <STRONG>KREST "Apocollapsys</STRONG>". Российская группа следующая по стопам таких "отцов" techno-thrash-metal, как<STRONG> PESTILENCE</STRONG> (кавер на их песню в конце пластинки). Реализация от <STRONG>Moscow Sound</STRONG> (<STRONG>АРКОНА, ROSSOMAHAAR, БЕЗУМНЫЕ УСИЛИЯ</STRONG>). <STRONG>KREST</STRONG> - опытные музыканты, которые вернут вас во времена классики thrash-metal. Трэк-лист:</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><STRONG>1. Technopogost <BR>2. Collapse <BR>3. Into the void <BR>4. Oblivion <BR>5. Gods & prayers <BR>6. Slaughter <BR>7. Demon of retribution <BR>8. Worm the conqueror <BR>9. Prophetic revelations (PESTILENCE cover)</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG>MP3: <A href="/ru/band/krest/13361/#samples">http://musica.mustdie.ru/ru/band/krest/13361/#samples</A></STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

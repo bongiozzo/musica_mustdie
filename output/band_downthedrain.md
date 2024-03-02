@@ -22,6 +22,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.02.2009 news Видео DOWN THE DRAIN
+
+<P><STRONG>DOWN THE DRAIN</STRONG>, группа вокалиста <STRONG>MALEVOLENT CREATION Brett Hoffmann</STRONG>, выложила видео на песню "<STRONG>Back Of My Hand</STRONG>". Коллектив закончил запись второго альбома&nbsp;"<STRONG>Ground Pounder</STRONG>".</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=49048716">"BACK OF MY HAND"</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=49048716,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=49048716,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -51,6 +51,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.08.2011 news Видео-клип XERATH
+
+<P>Новое видео английских экспериментальщиков <STRONG>XERATH</STRONG> на песню <STRONG>'Reform Part III'</STRONG> можно посмотреть ниже. Трек взят с последнего альбома группы "<STRONG>II</STRONG>", который вышел на<STRONG> Candlelight Records</STRONG> в этом году. </P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/uozd4N6udug" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

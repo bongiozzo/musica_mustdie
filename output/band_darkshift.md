@@ -35,6 +35,26 @@ All Music Copyrighted 2001 to JTW Music LLC
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.05.2002 reviews Сдвиг по фазе...
+
+<p>Не знаю, что "подвигло" этих молодых американцев играть подобную музыку в эпоху тотального засилья "Липких Бисквитов", "Поп-Корнов" и "Кридов", но хорошо, что хоть кто-то в штатах пытается играть в духе "Iced Earth" с сильным влиянием хэви. Нет широких штанов, вязаных шапочек и растопыренных пальцев?! Это уже прекрасно. Если добавить к этому отличные партии соло-гитары и вокал в духе Мэта Барлоу, то становится ясным, что контракт с маленькой европейской фирмой и любовь японских фанатов - гарантированы! Во второй вещи прослеживаются реминисценции (ранней!) Металлики, что не есть плохо... И еще раз повторюсь - прекрасная работа соло-гитариста! Рекомендуется любителям несколько старомодного хэви...</p>
+
+Автор: Yermola
+
+### 18.05.2002 reviews Phase Lag
+
+<p>I do not know, what "advance" these young Americans to play similar music in epoch of total dominance " Sticky sponge-cake", "Pop-Korn" and "Creed", but it is good, that though someone in States tries to play in spirit of "Iced Earth" with strong influence of heavy. There are no wide trousers, knitting hats and spreding fingers?! It is already perfect. If to add to this excellent parties of a solo-guitar and vocal in spirit of Mat Barlow, becomes clear, that the contract with small European firm and love of the Japanese fans - are guaranteed! In the second thing are traced influnced from (early!) Metalica, what not is poorly... Also I shall once again be repeated - perfect work of solo-guitarist! It is recommended to the fans of a little old-fashioned heavy...</p>
+
+Автор: Yermola
+
+### 19.01.2004 reviews Душевно…
+
+<P><I>Госспади, развелось же этих самиздатовских альбомов и альбомчиков словно собак нерезаных! Кстати, прошу заметить – это уже вторая работа американских трэшеров. И лично мне вполне понятно, почему </I><I>DARK</I><I></I><I>SHIFT&nbsp; </I><I></I><I>до сих пор не нашли достойного лейбла, готового поднести им достойный контракт на блюдце с голубой каёмочкой. Ибо ТАКОЙ трэш не популярен. Нигде. Ни в США, ни в Европе. То ли дело шведский не-то-СМДМ-не-то-трэш. Музыка же в духе ранней Металлики никому на хер не нужна. А именно её играют </I><I>DARK</I><I></I><I>SHIFT</I><I>. И делают это хорошо. Душевно. Задорно. Впрочем, отнюдь не по-юношески задорно, как это было в случае с “</I><I>Kill</I><I> ‘</I><I>Em </I><I></I><I>All</I><I>”. Кто-то посчитает это минусом, для меня же это самый настоящий плюс. Как все вы уже прекрасно знаете, мне абсолютно не нравится трэш. Но поставить </I><I>DARK</I><I></I><I>SHIFT</I><I>’ам оценку ниже семи из десяти у меня рука не поднимется. Достойная</I><I></I><I>группа</I><I>, </I><I>достойный</I><I></I><I>альбом</I><I>. </I></P>
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

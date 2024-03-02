@@ -49,6 +49,39 @@ Dukedoom Black
 
 * C группой "Unsun" Filip "Heinrich" Haіucha 
 
+## Публикации
+
+### 11.05.2005 news VESANIA на Napalm Records
+
+<P>Польские black-metal'исты <STRONG>VESANIA</STRONG> подписали контракт с <STRONG>Napalm Records</STRONG>. 25 июля выйдет их новый альбом "<STRONG>God The Lux</STRONG>".</P>
+Автор: Vit Belov
+
+### 26.08.2005 reviews Польская продукция по норвежской рецептуре
+
+<P>"<STRONG>God The Lux</STRONG>" - второй альбом польской команды. Дебют двухлетней давности выдержанный в стиле штормового&nbsp;и агрессивного <STRONG>sympho black metal</STRONG>&nbsp;имел большой успех и команда была обласкана критиками. В результате, ее заприметил довольно известный лейбл <STRONG>Napalm Records</STRONG>. Новая работа коллектива просто потрясающа и по качеству, и по технике. Мощный и мелодичный материал с внушительными оркестровками - замечательный саундтрек к апокалипсису. Все хорошо, если бы не одно но. Стопроцентно могу гарантировать, что при первых же звуках вы тут же вспомните название одной очень популярной норвежской команды под названием <STRONG>DIMMU BORGIR</STRONG>. Та же величественность, те же переливающиеся басовые бочки и постоянные бластбиты, тот же мелодизм и симфоничность, те же атмосферно-доминантные клавиши, даже вокалист Орион&nbsp;старательно копирует Шаграта.&nbsp;Однако, если не обращать на это внимание, то этот релиз необычайно понравится всем любителям melodic black metal, особенно поклонникам <STRONG>DIMMU BORGIR</STRONG>, и особенно тем, кому нравится именно позднее творчество норвежцев.&nbsp; Единственное непонятно: зачем надо было помещать сюда последний трек на 25 минут, представляющий собой полную тишину (сорок секунд музыки в конце не в счет). Музыканты&nbsp;коллектива прошли хорошую школу и играют в таких польских бандах, как <STRONG>BEHEMOTH</STRONG>, <STRONG>NEOLITHIC</STRONG> и <STRONG>VADER</STRONG>. От таких людей не приходится ждать некачественной продукции во всех смыслах. Слушайте и наслаждайтесь.</P>
+<P>Диск предоставлен компанией <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Dimas
+
+### 20.03.2006 news VESANIA в Москве
+
+<CENTER><IMG height=571 src="/images/shows_rus/2006.02/10012.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 26.09.2014 news VESANIA объявились на Metal Blade
+
+<P>Первый за семь (!!!) лет альбом&nbsp;польской команды<STRONG> VESANIA "Deus Ex Machina"</STRONG> выходит в конце октября на <STRONG>Metal Blade</STRONG>. Трек-лист:</P>
+<P>01.<STRONG> Halflight </STRONG>| 02.<STRONG> Innocence </STRONG>| 03.<STRONG> Disillusion </STRONG>| 04.<STRONG> Vortex </STRONG>| 05.<STRONG> Dismay </STRONG>| 06.<STRONG> Glare </STRONG>| 07.<STRONG> Notion </STRONG>| 08.<STRONG> Disgrace </STRONG>| 09. <STRONG>Fading </STRONG>| 10. <STRONG>Scar</STRONG></P>
+<P>В составе коллектива бывшие и нынешние участники <STRONG>BEHEMOTH, DIMMU BORGIR, DECAPITATED</STRONG> и <STRONG>VADER</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.09/27318.png" width=410 height=410> 
+<P></P>
+<P>Песню "<STRONG>Innocence</STRONG>" можно послушать ниже:</P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/2PWw8ybQG1A" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -34,6 +34,27 @@ Frank Rini - Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.05.1999 news 
+
+<p>Internal Bleeding выпустят свой новый альбом "Driven To Conquer" 22 июня.</p>
+
+Автор: Vit Belov
+
+### 27.08.2002 news Возрождение SUFFOCATION ....
+
+<p>Легендарные нью-йоркские дэтстеры "SUFFOCATION" после распада и четырехлетнего перерыва решили собраться вновь и сейчас разучивают материал для концертов и нового альбома. Состав возрожденной группы: <BR><BR> Mike Smith - барабаны<BR> Terrance Hobbs - гитара<BR> Guy Marchais (INTERNAL BLEEDING) - гитара<BR> Frank Mullen - вокал<BR> Josh Barohn – басс</p>
+
+Автор: Yermola
+
+### 27.08.2002 news SUFFOCATION To Reunite &#39;For All The Wrong Reasons&#39;.....
+
+<p>Acclaimed New York death metallers SUFFOCATION, who released several successful album in the early '90s, have reunited after a four-year break and are said to be in the process of rehearsing for upcoming shows and a possible new album. <BR><BR> No official announcement has yet been made, but it is believed that the group's current line-up consists of the following musicians:<BR><BR> Mike Smith - drums<BR> Terrance Hobbs - guitar<BR> Guy Marchais (INTERNAL BLEEDING) - guitar<BR> Frank Mullen - vocals<BR> Josh Barohn – bass</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

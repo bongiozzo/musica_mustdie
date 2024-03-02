@@ -25,6 +25,47 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.04.2001 news Фобос и Деимос....
+
+<p>Мощный толстяк Messiah Marcolin (CANDLEMASS / MEMENTO MORI) позволил себя уговорить ушлым парням из "SATARIEL" и теперь его луженная глотка будет слышна в треке "The Holy Trinity / Menage A Trois" на новом альбоме шведов "Phobos & Deimos". Диск был записан в Uppsala's Dug-Out Studios с продюссером "MESHUGGAH" и "STUCK MOJO" - Daniel Bergstrand. Также гостем был фронтмен "HYPNOSIA" Lenny.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news Phobos &amp; Deimos.....
+
+<p>Former CANDLEMASS / MEMENTO MORI vocalist Messiah Marcolin will reportedly be guesting on the track "The Holy Trinity / Menage A Trois" on the upcoming album from Sweden's SATARIEL, tentatively titled Phobos & Deimos. The CD, which is currently being recorded at Uppsala's Dug-Out Studios with producer Daniel Bergstrand (i.e. STUCK MOJO, MESHUGGAH, STRAPPING YOUNG LAD), will also include an appearance by HYPNOSIA frontman Lenny. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.07.2002 news MassaBrutto Radioshow #92, 22-23 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. CRUACHAN - The Children Of Lir (Hammerheart)<BR> 2. DARK LUNACY - Stalingrad (Fuel/Ablaze)<BR> 3. DEMIMONDE - Black Ring Theatre (Epidemie Recs)<BR> 4. SATARIEL - Coffin Gateways (Hammerheart)<BR> 5. SATARIEL - Holy Trinity (Hammerheart)<BR> --- --- ---<BR> новости<BR> --- --- ---<BR> 6. COMPOS MENTIS - Beyond Salvation (band)<BR> 7. SANATORIUM - Postmortal Goreaphobia (Forensick Music)<BR> 8. TYPHOID - Killed For Killing (Immortal Souls Prods)<BR> 9. PATHOLOGY STENCH - God-Faith-Prostitution (Shindy Prods/Obscene)<BR> 10. MITHOTYN - From The Frozen Plains (Invasion/Ablaze)<BR> 11. BRAVE - I Believe (Dark Symphonies)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 23.07.2002 news MassaBrutto Radioshow #92, 22-23 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. CRUACHAN - The Children Of Lir (Hammerheart)<BR> 2. DARK LUNACY - Stalingrad (Fuel/Ablaze)<BR> 3. DEMIMONDE - Black Ring Theatre (Epidemie Recs)<BR> 4. SATARIEL - Coffin Gateways (Hammerheart)<BR> 5. SATARIEL - Holy Trinity (Hammerheart)<BR> --- --- ---<BR> новости<BR> --- --- ---<BR> 6. COMPOS MENTIS - Beyond Salvation (band)<BR> 7. SANATORIUM - Postmortal Goreaphobia (Forensick Music)<BR> 8. TYPHOID - Killed For Killing (Immortal Souls Prods)<BR> 9. PATHOLOGY STENCH - God-Faith-Prostitution (Shindy Prods/Obscene)<BR> 10. MITHOTYN - From The Frozen Plains (Invasion/Ablaze)<BR> 11. BRAVE - I Believe (Dark Symphonies)<BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 04.05.2005 news SATARIEL выпускают новый альбом
+
+<P>Новая пластинка <STRONG>SATARIEL</STRONG> <STRONG>"Hydra</STRONG>" выйдет 27 июня на <STRONG>Regain Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Freedom Fall</B><BR>02. <B>Be You Angel, Be You Beast</B><BR>03. <B>Claw The Clouds</B><BR>04. <B>Vengeance Is Hers</B><BR>05. <B>For Galaxies To Clash</B><BR>06. <B>The Springrise</B><BR>07. <B>Scattering The Timeweb</B><BR>08. <B>300 Years Old</B><BR>09. <B>Nihil Juggernaut</B><BR>10. <B>No God Loves</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 20.10.2005 reviews Неудачная попытка создать что-то из давно забытого старого
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская группа<STRONG> SATARIEL</STRONG> продолжает движение в своём собственном направлении. Пытаясь создать нечто новое, музыканты осваивают стили популярные в последнем десятилетии прошлого века - death-doom и melodic death. "<STRONG>Hydra</STRONG>" - представляет собой некий "сборник", одна песня заdoomчивая, одна мелодик дэтовая. При этом за ориентиры выбраны стили в своём первозданном виде, как у <STRONG>IN FLAMES</STRONG> 96 или кучи групп death-doom направления того же периода.</FONT></P>
+<P>Я вынужден констатировать, что <STRONG>SATARIEL</STRONG> не смогли создать ничего нового. Гармонично соединить стили им не удалось, поэтому пластинка не создаёт впечатления единства. Из стилей взято не самое лучшее. На "Hydra" нет мелодичности death-doom, и также нет тяжести death-metal. Полное отсутствие хитов невозможно заменить собственным лицом, которое к тому же несколько размыто и до конца не определено.</P>
+<P>Следует похвалить шведов за эту попытку, похлопать по плечу и отложить этот диск подальше. Попытка неудачная.</P>
+<P>Диск предоставлен CD-Maximum</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

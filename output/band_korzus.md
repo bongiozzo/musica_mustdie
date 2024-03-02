@@ -101,6 +101,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.10.2014 news KORZUS возвращается
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом бразильской thrash-metal банды <STRONG>KORZUS "Legion"</STRONG> выходит 24 октября на <STRONG>AFM</STRONG>. Трек-лист:</FONT></P>
+<P><STRONG>"Lifeline"<BR>"Lamb"<BR>"Six Seconds"<BR>"Broken"<BR>"Vampiro"<BR>"Die Alone"<BR>"Apparatus Belli"<BR>"Time Has Come"<BR>"Purgatory"<BR>"Self Hate"<BR>"Bleeding Pride"<BR>"Devil’s Head"<BR>"Legion"</STRONG></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/LKqEqL-JsHU" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

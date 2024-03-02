@@ -44,6 +44,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.02.2016 news VEKTOR: третий альбом в мае
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские любители научной фантастики и сложных ритмических рисунков, группа <STRONG>VEKTOR</STRONG>,&nbsp;выпускают свой третий полноформатник 6 мая на лейбле <STRONG>EARACHE</STRONG>.&nbsp;Обложка и трек-лист ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист: 01. <STRONG>Charging The Void</STRONG> | 02. <STRONG>Cygnus Terminal</STRONG> | 03. <STRONG>LCD</STRONG> (Liquid Crystal Disease) | 04. <STRONG>Mountains Above The Sun</STRONG> | 05. <STRONG>Ultimate Artificer</STRONG> | 06. <STRONG>Pteropticon</STRONG> | 07. <STRONG>Psychotropia</STRONG> | 08. <STRONG>Pillars Of Sand</STRONG> | 09. <STRONG>Collapse</STRONG> | 10. <STRONG>Recharging The Void</STRONG></FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2016.02/28782.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Американские sci-fi трэшеры VEKTOR в СПб и Москве (29 и 30 августа 2016)

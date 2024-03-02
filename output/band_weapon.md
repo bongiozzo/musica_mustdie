@@ -30,6 +30,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.08.2011 news WEAPON на Relapse Records
+
+<P>Канадская black/death-metal команда <STRONG>WEAPON </STRONG>заключила сделку с <STRONG>Relapse Records</STRONG>. Группа работает над своим третьим альбомом. Подробности последуют.</P>
+<P>Предыдущая работа<STRONG> WEAPON</STRONG> <STRONG>"From The Devil’s Tomb" </STRONG>вышла в 2010 году.</P>
+<P><center><IMG height=400 src="/images/news_rus/2011.08/20553.jpg" width=321 border=0></P>
+Автор: Vit Belov
+
+### 25.01.2013 news Новое видео WEAPON
+
+<P>Канадцы<STRONG> WEAPON</STRONG> опубликовали новое видео на песню <STRONG>"Embers And Revelations" </STRONG>с одноимённого альбома, который вышел на Relapse, а в России на <STRONG>Mazzar</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/2ToMEOLeklk?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

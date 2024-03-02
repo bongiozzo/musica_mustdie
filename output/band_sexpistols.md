@@ -145,6 +145,15 @@ Produced By Malcolm McLaren.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.05.2002 news SEX PISTOLS переиздают &quot;God Save The Queen&quot; ...
+
+<p>Панки SEX PISTOLS 27-го мая переиздадут свой классический сингл "God Save The Queen" на Virgin Records предваряя празднование 25-летнего юбилея. Сингл будет представлять ремикшированную версию продюссера Neil Barnes (LEFTFIELD). После "Пистолеты" выпустят сборник "Best Of" и трех-дисковую коллекцию SEX PISTOLS - The Box Set состоящую из 61 песни...</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

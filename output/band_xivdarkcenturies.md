@@ -26,6 +26,24 @@ Heidnischer Thuringer Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.01.2004 reviews Неуникальный альбом
+
+<P><B>XIV DARK CENTURIES</B> - очередная немецкая группа, пробующая свои силы в жанре pagan-black-metal. Немецкоязычная лирика и псевдонародная музыка с инструментальными средневековыми вставками. Да, эти вставочки очень даже милые, да и музыка достаточно мелодична, но невыносимо скучна. Быть может это и народные мелодии, но они чересчур примитивны, однотипны и монотонны. Отсутствует даже минимальное разнообразие. Кроме того, диск записан в каких-то подпольных условиях (для немецкой сцены). И если однообразие можно и не заметить, при определённой доле любви к стилю, то качества реализации не заметить невозможно. Очень средне и как-то пугающе неуникально.</P>
+Автор: Vit Belov
+
+### 11.07.2005 news Новый миньон XIV DARK CENTURIES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый мини-альбом немецкой pagan-metal группы <STRONG>XIV DARK CENTURIES "Jul"</STRONG> вышел 27 июня на <STRONG>CCP</STRONG>. Лэйбл сообщает, что коллектив использовал больше фолковых мотивов.&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 11.07.2005 news New mini-album of XIV DARK CENTURIES
+
+<P>New mini-album "<STRONG>Ju</STRONG>l"&nbsp;of german pagan-metal band <STRONG>XIV DARK CENTURIES</STRONG> has released June 27th via<STRONG> CCP</STRONG>. Label informed that band used more folk elements in their music.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

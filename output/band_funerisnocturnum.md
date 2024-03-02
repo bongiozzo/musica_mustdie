@@ -67,6 +67,43 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.11.2002 reviews Чистое сатанинское богохульство
+
+<p>Дебютный альбом финской команды проповедующей антихристианский экстремальный black metal. Не шибко оригинальный, берущий свои истоки в работах DARK FUNERAL и DIMMU BORGIR. Но этот альбом привлекает внимание очень хорошим качеством, несоизмеримой злобой, скоростным разнообразием, непривычной для своего стиля мелодичностью и хорошими исполнительскими данными. Брутальная, агрессивная и экстремально быстрая black музыка. Для дебюта - сильная работа. Вот и еще одна хорошая финская банда на black небосклоне. Экстремизм альбома не идет во вред его эмоциональности и атмосферности. Рекомендую всем любителям как экстремального, так и мелодичного black metal. Однако тем, кто ценит оригинальность, советую не обращать внимания на этот альбом.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 09.11.2002 reviews Само воплощение смерти
+
+<p>А вот и второй альбом финских богохульников. Не менее экстремальный и напористый, чем дебютник группы. Холодный и мрачный black metal. Такой же мелодичный, менее разнообразный и более агрессивный и техничный по сравнению с дебютом. Но не более оригинальный. Теперь музыка группы напоминает MARDUK и все тот же DARK FUNERAL, причем ничуть не уступая им. Это главный минус этой талантливой команды, что их музыка не узнаваема и мало отличима от многих других подобных команд. Но на сегодняшний день легко узнаваемых банд осталось по пересчету. Поэтому этот минус можно немного прощать, при условии, что банда имеет хорошую технику исполнения и ее музыка захватывает при прослушивании и держит слушателя во внимании, то есть, им удается записать неоригинальный, но интересный материал. И надо отметить, что на новом альбоме группа пытается искать выход из ситуации и уже видны зачатки формирования собственного лица. Группа стала применять классические аранжировки превосходно ложащиеся под экстремальный гитарный поток, иногда применяются редкие электронные дела. В общем, все любители экстремальщины останутся довольны этими восемью сатанинскими гимнами.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 07.08.2003 news Новый death doom из Финляндии
+
+<p>Новая финская melodic death doom формация SWALLOW THE SUN, в составе которой замечены участники FUNERIS NOCTURNUM, готовит к выпуску в ноябре через Firebox Records своего одноименного дебютного альбома. Уже известен его трэк-лист:</p>
+<p> 1. Through Her Silvery Body<BR> 2. Deadly Nightshade<BR> 3. Out Of This Gloomy Light<BR> 4. Swallow<BR> 5. Hold This Woe<BR> 6. Silence Of The Womb<BR> 7. Under The Waves <BR> 8. The Morning Never Came</p>
+
+Автор: Dimas
+
+### 21.01.2005 news FUNERIS NOCTURNUM развалились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>FUNERIS NOCTURNUM</STRONG> распались. На своём официальном сайте группа заявила, что не существует уже с апреля прошлого года. После того, как коллектив покинули два основных участника <STRONG>Trmnt.xes</STRONG> и <STRONG>Ruho</STRONG>, оставшиеся пытались возродиться под новым именем, но ничего не вышло.</FONT></P>
+Автор: Vit Belov
+
+### 21.01.2005 news FUNERIS NOCTURNUM disbanded
+
+<P><STRONG>FUNERIS NOCTURNUM</STRONG> have posted this statement on their web-site:</P>
+<P>"<EM>Funeris Nocturnum has been dead and buried since April 2004. Ruho left the band in February and Trmnt.xes in April, and as a result of these line-up changes the remaining four of us pondered the future of the band for a little while. We all came to the conclusion that it would be best to continue with a new name and a new band. We tried and tried, but never seemed to come up with the perfect name for this new band of ours. This has been the sole reason we've sort of continued as Funeris Nocturnum. It has not been the same band and quite frankly no one really wants it to be, either. Now that we have finally chosen the name for our new band, we can officially lay Funeris Nocturnum to rest - there is no such band anymore.</EM></P>
+<P><EM>We want to thank all our fans, friends and supporters for the great years. It was fun while it lasted. Thank you all!</EM></P>
+<P><EM>- Horgath, ImpresouvenairMort-nйrgal, Sin'equamnon, TMON</EM>"</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

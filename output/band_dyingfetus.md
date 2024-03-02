@@ -154,6 +154,185 @@ Design by Johnathan Canady
 * C группой "Misery Index" Sparky Voyles (guitars)
 * C группой "Misery Index" Jason Northerton (vocals/bass)
 
+## Публикации
+
+### 23.05.2001 news FETUS еще не совсем умер....
+
+<p>"DYING FETUS" капитально перетрясли свой состав. Теперь в него входят: Erik Sayenga (ex-WITCH-HUNT), бассист Sean Beasely (ex-GARDEN OF SHADOWS), гитарист Bruce Greig (NEXT STEP UP/TOGETHER WE FALL) и вокалист Vince Matthews (ex-SADISTIC TORMENT). Командует шайкой мэйнмэн John Gallagher. Новые рекруты записывают песни которые войдут на сплит с финнами DEEPRED.</p>
+
+Автор: Yermola
+
+### 23.05.2001 news DYING FETUS have revamped their line-up ....
+
+<p>DYING FETUS have revamped their line-up with the addition of former skinsman Erik Sayenga (ex-WITCH-HUNT), bassist Sean Beasely (ex-GARDEN OF SHADOWS), guitarist Bruce Greig (NEXT STEP UP/TOGETHER WE FALL) and vocalist Vince Matthews (ex-SADISTIC TORMENT). The group is completed by mainman/guitarist/vocalist John Gallagher. The brand new DYING FETUS line-up will make its recording debut with a new song that will be included on a split album with Finland's DEEPRED. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 05.10.2002 news Новый альбом Dying Fetus
+
+<p>Название нового альбома Dying Fetus будет "Stop At Nothing". Группа пишет новый материал, альбом выйдет в январе 2003 на Relapse.</p>
+
+Автор: Vit Belov
+
+### 08.10.2002 news Dying Fetus&#39; new album
+
+<p>The title of the new Dying Fetus album is "Stop At Nothing". The band is currently writing new material and the album is scheduled for a January 2003 release through Relapse.</p>
+
+Автор: Vit Belov
+
+### 26.03.2003 news Drummer Kevin Talley to Collaborate with Dirt Nap on Upcoming Album
+
+<p>ATLANTA, March 15, 2003 -- When Atlanta techno death metal band Dirt Nap (www.dirt-nap.com) goes into the studio next month to begin recording, they'll be joined by a familiar face to extreme music fans: drummer Kevin Talley. Talley will pound the skins for "Concentrate Living," the band's first album under the name Dirt Nap.</p>
+<P> Guitarist Eyal Levi and vocalist Michael Kameron have been working together for ten years, the last two as Dirt Nap." The first time I heard Kevin play, I was blown away by how seamlessly he adapted to Dirt Nap's style," said Kameron. "And after our first session, he destroyed our drum kit. I knew then that he was the one."</>
+<P> Formerly of Dying Fetus and Misery Index, Talley was a finalist in Slayer's drummer auditions last year and has toured with '90s brutal death metal band Suffocation. He has been working on various independent projects since leaving Misery Index last summer.</>
+<P> "This is one of the most unique and refreshing bands I've heard in the extreme music world," Talley commented. "Nobody else mixes styles the way they do.</>
+<P> Levi and Kameron describe Dirt Nap as techno death metal. The band blends music from a variety of influences, though most listeners categorize their sound as a cross between techno, metal and soundtrack music.</>
+<P> Levi, the son of world renowned symphony conductor Yoel Levi, summed up in one sentence Dirt Nap's feelings about their collaboration with Talley. "It's about time we found a drummer who can keep up."</>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.04.2003 news Новости от DYING FETUS
+
+<p>13 мая 2003 года выходит новый студийный альбом брутальных дэтстеров DYING FETUS "Stop At Nothing". В альбом войдут следующие вещи:</p>
+<p> 1. Schematics <BR> 2. One Shot, One Kill <BR> 3. Institutions of Deceit <BR> 4. Abandon All Hope <BR> 5. Forced Elimination<BR> 6. Stop At Nothing <BR> 7. Onslaught of Malice<BR> 8. Vengeance Unleashed</p>
+
+Автор: Dimas
+
+### 25.11.2003 news Внимание организаторам концертов
+
+ВНИМАНИЕ огранизаторы!<BR>В январе 2004 года состоиться еропейский тур монстров мирового death/grind групп <B>DYING FETUS, DEEDS OF FLESH и HATE ETERNAL</B>! Америкиканские команды проедут по основным городам Европейских стран. Страны совка могут стать не исключением, и также при желании смогут увидеть легиндарные команды. Екс-лидер <B>Morbid Angel</B> и <B>Deeds Of Flesh</B>, а сейчас лидер <B>HATE ETERNAL</B> Ерик Рутан не против проехаться по странам ex-USSR.<BR>Желающие увидеть команды для подробной информации пишите на <A href="mailto:hunger_dispatch@ukrpost.net"><U>hunger_dispatch@ukrpost.net</U></A><BR>
+Автор: Vit Belov
+
+### 01.10.2005 news DYING FETUS ищут барабанщика и пишут песни
+
+<P><STRONG>DYING FETUS</STRONG> усиленно ищут барабанщика, попутно сочиняя песни для нового альбома. Уже есть шесть готовых композиций, барабаны пока записаны при участии компьютера. Некоторые названия: "Parasites of Catastrophe", "Unadulterated Hatred", "Raping The System", "The Ancient Rivalry". Отправиться в студию группа планирует в конце осени или в начале зимы, точные даты будут объявлены, как только найдётся барабанщик.</P>
+Автор: Morsus
+
+### 18.01.2007 news Новый альбом DYING FETUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=216 alt="" hspace=0 src="/images/news_rus/2007.01/11195.jpg" width=216 align=left border=5>Новый альбом <STRONG>DYING FETUS "War Of Attrition"</STRONG> выходит в марте на<STRONG> Relapse</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.04.2009 news DYING FETUS начали запись
+
+<P><STRONG>DYING FETUS</STRONG> вошли в студию <STRONG>Wright Way Studios </STRONG>в Балтиморе для записи нового альбома. Пластинка выйдет в сентябре на <STRONG>Relapse</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.06.2009 news DYING FETUS назвали альбом
+
+<P>Новый альбом <STRONG>DYING FETUS</STRONG>, который будет называться <STRONG>"Descend Into Depravity", </STRONG>выйдет 15 сентября.</P>
+Автор: Vit Belov
+
+### 17.07.2009 news Новый альбом DYING FETUS
+
+<P><IMG height=314 alt="" hspace=0 src="/images/news_rus/2009.07/14600.jpg" width=400 align=right border=5>15 сентября на <STRONG>Relapse</STRONG> выходит новый альбом <STRONG>DYING FETUS</STRONG> <STRONG>"Descend Into Depravity". </STRONG>Трэк-лист:</P>
+<P>01. <B>Your Treachery Will Die With You</B><BR>02. <B>Shepherd's Commandment</B><BR>03. <B>Hopeless Insurrection</B><BR>04. <B>Conceived Into Enslavement</B><BR>05. <B>Atrocious By Nature</B><BR>06. <B>Descend Into Depravity</B><BR>07. <B>At What Expense</B><BR>08. <B>Ethos Of Coercion</B></P>
+Автор: Vit Belov
+
+### 18.09.2009 news Видео от DYING FETUS
+
+<P>Новое видео <STRONG>DYING FETUS</STRONG> <STRONG>"Shepherd's Commandment" </STRONG>доступно в сети.</P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=62972989,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=62972989,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.09.2009 news DYING FETUS попали в чарты
+
+<P>В первую неделю продаж в США нового альбома <STRONG>DYING FETUS</STRONG> <STRONG>"Descend Into Depravity" </STRONG>было реализовано 2700 копий. Группа впервые попала в чарты <STRONG>Billboard</STRONG> на 166-ое место.</P>
+Автор: Vit Belov
+
+### 07.01.2010 news Видео DYING FETUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип <STRONG>DYING FETUS</STRONG> на песню <STRONG>"Your Treachery Will Die With You" </STRONG>можно посмотреть ниже. Режисёром ролика выступил <STRONG>Kevin Custer</STRONG> (<B>HATEBREED</B>, <B>TESTAMENT</B>, <B>SOULJA BOY</B>, <B>KINGDOM OF SORROW</B>).</FONT></P>
+<P>
+<CENTER><FONT face=Verdana color=#999999 size=1><BR><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=102004204">DYING FETUS - "Your Treachery Will Die With You"</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=102004204,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=102004204,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT><BR><A href="http://profile.myspace.com/index.cfm?fuseaction=user.viewprofile&friendid=109077062">DYING FETUS - 'Descend Into Depravity' Out</A> | <A href="http://music.myspace.com/index.cfm?fuseaction=videos">MySpace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.12.2010 reviews Актуальный brutal death-metal
+
+<P>Последний на сегодня альбом одной из ведущих brutal death-metal групп современной сцены DYING FETUS “Descend Into Depravity” увидел свет в сентябре прошлого года, но в России он вышел лишь несколько месяцев назад усилиями Mazzar Records. Музыка этих американцев актуальна&nbsp; настолько, насколько вообще может быть актуален brutal death-metal в наши дни.</P>
+<P>Многие представители этого стиля уже давно превратились в эдаких хищных животных в клетках собственных клише, которыми пугают обывателей и психически неустойчивых поклонников power-metal, выпуская их альбомы на крупных и уважаемых независимых лэйблах. Как и положено в любом сколько-нибудь взрослом стиле, самые лучшие и интересные команды редко попадают на прилавки крупных магазинов, а обитают на совсем мелких подвальных лэйблах. Конечно же, Relapse Records, где выпускаются DYING FETUS нельзя назвать совсем уж маргинальным, но это смотря с чем сравнивать (кстати, в ближайшее время состоятся переиздания ранних работ коллектива в de-luxe исполнении). Группу можно назвать широко известной в узких кругах. Эти узкие круги ставят DYING FETUS заслуженно высоко в своих предпочтениях. Последний альбом американцев подтверждает их статус. Мощные боевики, в которых органично смешивается техника и забой, неожиданные ходы и прямолинейные качевые прогоны. “Descend Into Depravity” просто обязан оказаться в коллекциях всех поклонников стиля.</P>
+<P>Альбом, который не успеет надоесть никому. Тяжёлый и по-хорошему упёртый он взбодрит любого, кого не пугают запредельно тяжёлые риффы и ужасающий брутальный гроулинг.</P>
+Автор: Vit Belov
+
+### 07.05.2011 news DYING FETUS выпускают миньон с кавер версиями
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.05/19421.jpg" width=362 height=362>Этим летом группа <STRONG>DYING FETUS</STRONG> празднует своё 20 летие и в честь этого выпускает ограниченным тиражом миньон, получивший название&nbsp;&nbsp;<B itxtHarvested="0" itxtNodeId="399">"History Repeats…"</B>. На него войдут кавер версии&nbsp;команд, которые больше всего повлияли на творчество "зародыша". На диск, так же, войдёт одна новая вещь, которая будет эксклюзивно представленна только на этом релизе. <STRONG>"History Repeats…" </STRONG>выйдет 19 июля в Северной Америке в количестве 5000 экземпляров и будет распространяться исключительно&nbsp;через магазины <B itxtHarvested="0" itxtNodeId="392">FYE</B> и интернет магазин лейбла <B itxtHarvested="0" itxtNodeId="391">Relapse</B>. Предварительный заказ можно сделать по ссылке: <STRONG><A href="http://shop.relapse.com/store/product.aspx?ProductID=44051">http://shop.relapse.com/store/product.aspx?ProductID=44051</STRONG></A><B itxtHarvested="0" itxtNodeId="387"></B></P>
+<P><B itxtHarvested="0" itxtNodeId="387">"History Repeats…"</B> трек-лист: <BR itxtNodeId="386"><BR itxtNodeId="385">01. <B itxtHarvested="0" itxtNodeId="384">Fade Into Obscurity</B> (<STRONG>DEHUMANIZED</STRONG> cover)<BR itxtNodeId="383">02. <B itxtHarvested="0" itxtNodeId="382">Unchallenged Hate</B> (<STRONG>NAPALM DEATH</STRONG> cover)<BR itxtNodeId="381">03. <B itxtHarvested="0" itxtNodeId="380">Gorehog</B> (<STRONG>BROKEN HOPE</STRONG> cover)<BR itxtNodeId="379">04. <B itxtHarvested="0" itxtNodeId="378">Rohypnol</B> (новый трек)<BR itxtNodeId="377">05. <B itxtHarvested="0" itxtNodeId="376">Unleashed Upon Mankind</B> (<STRONG>BOLT THROWER</STRONG> cover)<BR itxtNodeId="375">06. <B itxtHarvested="0" itxtNodeId="374">Twisted Truth</B> (<STRONG>PESTILENCE</STRONG> cover)<BR itxtNodeId="373">07. <B itxtHarvested="0" itxtNodeId="372">Born In A Casket</B> (<STRONG>CANNIBAL CORPSE</STRONG> cover)</P>
+Автор: Headcrusher
+
+### 26.06.2011 news DYING FETUS войдут в студию
+
+<P>Американские брутальщики <STRONG>DYING FETUS</STRONG> объявили о своих планах войти в студию в ноябре этого года. Пока не названная пластинка должна будет выйти в 2012 году. </P>
+<P>Предыдущий альбом <STRONG>DYING FETUS</STRONG> <STRONG>"Descend Into Depravity" </STRONG>вышел на<STRONG> Relapse</STRONG> в 2009 году, а в России пластинка была издана <STRONG>Mazzar Records</STRONG>. 4 апреля 2010 года американцы выступили в московском <STRONG>клубе Х.О.</STRONG> Фотографии с этого концерта можно посмотреть на нашем сайте: <A href="/ru/galleries/1/470/">http://musica.mustdie.ru/ru/galleries/1/470/</A></P>
+<P><center><IMG height=266 src="/images/news_rus/2011.06/19733.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 27.03.2012 news Обложка и трейлер DYING FETUS
+
+<P>Новый альбом <STRONG>DYING FETUS "Reign Supreme"</STRONG> выйдет 17 июня на <STRONG>Relapse Records</STRONG>. Трейлер и обложку этой работы можно посмотреть ниже.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2012.03/23321.jpg" width=399 border=0> 
+<P></P>
+<P><center><IFRAME src="http://www.youtube.com/embed/ohJa20AGENA?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME></P></CENTER>
+Автор: Vit Belov
+
+### 18.06.2012 news DYING FETUS: видеоклип на трек &quot;From Womb To Waste&quot;
+
+<P><STRONG>"From Womb To Waste"</STRONG> - новое видео ВИА <B itxtHarvested="0" itxtNodeId="54">DYING FETUS</B>, можно посмотреть ниже. Клип был снят в прошлом месяце на американском фестивале экстиримальной мызыки <B itxtHarvested="0" itxtNodeId="53">Maryland Deathfest</B>. Режиссёр и оператор этого видео - <B itxtHarvested="0" itxtNodeId="52">Scott Hansen</B> (<B itxtHarvested="0" itxtNodeId="51">ANIMALS AS LEADERS</B>, <B itxtHarvested="0" itxtNodeId="50">A DAY TO REMEMBER</B>).</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/E3Td8FXlOIo?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 18.01.2013 news Новый клип DYING FETUS
+
+<P>Новый клип <STRONG>DYING FETUS</STRONG> на песню <STRONG>"Second Skin" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома death-metal коллектива <STRONG>"Reign Supreme"</STRONG>, который вышел в 2012 году.</P>
+<P>
+<CENTER>
+<OBJECT width=690 height=388><PARAM NAME="movie" VALUE="http://ictv-bd-ec.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/2ab0bd4d6dd7bb632ce912fe250b550a/10/0/defaultPlayer%5Eplayer.swf"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://ictv-bd-ec.indieclicktv.com/player/embed/b51134344b4b64572c52606f9e8f148c/2ab0bd4d6dd7bb632ce912fe250b550a/10/0/defaultPlayer%5Eplayer.swf" type="application/x-shockwave-flash" allowFullScreen="true" allowscriptaccess="always" width="690" height="388"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.11.2013 news Рождественский свитер от DYING FETUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские брутальщики<STRONG> DYING FETUS</STRONG> решили порадовать всех своих фэнов выпуском рождественского свитера.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже сейчас можно сделать предварительный заказ на это чудо дизайнерской фантазии пройдя по ссылке: <A href="http://www.indiemerch.com/dyingfetus/item/23224">www.indiemerch.com/dyingfetus/item/23224</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В продажу свитер поступит 2 декабря. </FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.11/26306.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 02.08.2016 news DYING FETUS выступили в Москве
+
+<p>Вчера в московском <strong>клубе Volta</strong> состоялось выступление американских брутальщиков<strong> DYING FETUS</strong>. Фото с их шоу можно <a href="/ru/galleries/1/1768/">посмотреть здесь.</a></p><p>По словам музыкантов, их восьмой альбом выйдет в феврале на<strong> Relapse Records</strong>. Подробности последуют.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.08/29725.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 02.08.2016 news DYING FETUS gave show in Moscow
+
+<p>Yesterday there was a performance of American brutalists<strong> DYING FETUS</strong> in the Moscow <strong>club Volta</strong>. Photos from the show can be <a href="/en/galleries/1/1768/">viewed here.</a></p><p>According to the musicians, their eighth album will be out in February on <strong>Relapse Records</strong>. The details will follow.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.08/29725.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый Dying Fetus "Stop At Nothing"

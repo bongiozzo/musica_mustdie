@@ -16,6 +16,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.11.2002 reviews MORBID ANGEL-esque death metal
+
+<p>MORBID ANGEL-esque death metal. “We the Cultus, overwhelmed by disgust / Conjure, bind and charge thee / By the triple crown of Cerberus' head / By Styx and by Phetigon, and by their powers / And by the homage thou owest upon them”. Doesn't that make you recall Trey Azagthoth and co.? If not, the music will. Not that it's absolutely similar to MORBID ANGEL – these Dutchmen just follow the same way… the way once made open by the aforementioned combo. Obviously, VIRULENT haven't managed to come up with an offering worth any of the works by MORBID ANGEL, however both “Under The Hex Of Amdusias” and “Azoth” are something that's worth checking out. From hellish blast-beats up to mid-tempo passages; stunning leads; versatility… Seems like these chaps have everything to please a death metal freak. I only wish they could make it a bit more personal. Nevertheless, these are just two MCDs… I'm sure that the first full-length of theirs will surprise many……… <BR> P.S. By the way, (early) ANCIENT RITES might be a good comparison as well.</p>
+<P>Website: <A HREF="http://go.to/Virulent">http://go.to/Virulent</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

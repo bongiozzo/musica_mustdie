@@ -60,6 +60,27 @@ Recorded & Mixed In March of 1996 at Westsound Studios In Londonderry, New Hamps
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.08.2000 news More tears coming... a new CD by Autumn Tears
+
+<p> After three years in the making, the 3rd and final epic chapter in the Love Poems for Dying Children saga is at hand. AUTUMN TEARS presents the last part of this essential trilogy : "Love Poems for Dying Children - Act 3... Winter and the Broken Angel".</p>
+
+Автор: Nybras
+
+### 08.04.2002 news AUTUMN TEARS news
+
+<p>AUTUMN TEARS officially announce the departure of Erika from the band. No definite replacement has been planned at this point in time, but rest assured that Autumn Tears will move forward and finish their newest cd entitled “ECLIPSE” by the summer. The band have already recorded a half hours worth of beautiful, haunting music that will set the standard once again for the neo-classical darkwave genre.</p>
+
+Автор: Dimas
+
+### 23.08.2004 news AUTUMN TEARS выпускают новый альбом
+
+<P>Новый альбом <STRONG>AUTUMN TEARS</STRONG> выпускают альбом&nbsp;<STRONG>"Eclipse" </STRONG>26 октября 2004 года. Трэк-лист:</P>
+<P>01. <B>Commemoration</B> <BR>02. <B>Ophelia’s Crown</B> <BR>03. <B>Three</B> <BR>04. <B>Dawn</B> <BR>05. <B>Remember</B> <BR>06. <B>Flight</B> <BR>07. <B>The Beauty In All Things</B> <BR>08. <B>Pandora's Womb</B> <BR>09. <B>At A Distance</B> <BR>10. <B>Eclipse</B> <BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

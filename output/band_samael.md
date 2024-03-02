@@ -279,6 +279,279 @@ Mak Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.02.1999 news 
+
+<p>Samael начали запись своего нового альбома вместе с продюссером Дэйвом Ричардсом, который продюсировал сольник Xy "Passage". Записано уже 14 песен, но неизвестно сколько их будет в конечном итоге. Альбом выйдет в мае в Германии.</p>
+
+Автор: Vit Belov
+
+### 23.02.1999 news 
+
+<p>Lacrimosa выпускает новый сингл Alleine zu zweit 4 апреля. На альбоме будут присутствовать две версии одноимённой песни, также песня Heine Welt и песня Copycat c альбома Inferno в ремиксе Samael.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Новый альбом Samael выйдет в сентябре.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Новый альбом Samael будет называться "Eternal" и выйдет 17 июля. На многих песнях вокалист Ворф будет экспериментировать с чистым вокалом.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>В сентябре Dimmu Borgir проедутся с концертами вместе с Samael. Таким образом Dimmu Borgir отменили концерты с Emperor и предпочли им Samael. Миньон Samael "Exodus" будет переиздан, как digi-pak. Новый альбом "Eternal" уже вышел в Европе.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 reviews 
+
+<p>Ветераны сцены выпустили свой очередной супер-альбом. Теперь, это уже совсем не black. За время своего существования группа прошла огромный эволюционный путь, создав при этом уникальное направление в тяжёлой музыке. Отличает его особая атмосфера и механическое звучание с использованием электронных инструментов и сэмплеров, искажающих не только звук, но и вокал. Этот альбо не сильно отличается от предыдущей работы. Группа вряд ли будет выдумывать что-то новое. Но, в то же время, она не играет одну сплошную песню и пытается вносить новые элементы в своё творчество от альбома к альбому. Прибавилось атмосферности, появились эксперименты с чистым вокалом. Иногда им произносятся речитативы, а иногда им даже поют, но искажая сэмплером. Но, в принципе, ничего нового на альбоме вы не услышите. Если вам нравился SAMAEL ранее, то этот альбом вы прослушаете с большим удовольствием. В противном же случае, вам вряд ли стоит обращать своё внимание на этот альбом. (8 из 10)</p>
+
+Автор: Dimas
+
+### 05.10.1999 reviews Потрясающе мощный и профессиональный альбом
+
+<P>Тем кто слышал "Passage" наверняка понравился "Exodus". А "Eternal" это ("Passage" + "Exodus") в квадрате. Потрясающе мощный и профессиональный альбом. Электроника на высочайшем уровне. Прямое подтверждение тому, что прежде чем пускаться в эксперименты надо поучиться. Всем - равнение на SAMAEL. Убойный супер альбом - супер энергетика.</P>
+Автор: Alexey Pitirimov
+
+### 19.08.2002 news Гитарист Kaos ушёл из Samael
+
+<p>Гитарист Kaos объявил, что он больше не является участником группы. Тем временем вокалист-гитарист Vorph и программер-клавишник Xy продолжают трудиться над новым альбомом "Era One".</p>
+
+Автор: Morsus
+
+### 19.08.2002 news Guitarist Kaos have left from Samael
+
+<p>Guitarist Kaos announced that he will no longer be part of the band. In the meantime, vocalist/guitarist Vorph and drum programmer /keyboardist Xy continue working on "Era One", the follow-up to 1999's "Eternal".</p>
+
+Автор: Morsus
+
+### 22.09.2003 news CATHEDRAL have signed with ...
+
+I am proud to announce that CATHEDRAL have signed with Nuclear Blast! The U.K.-based cult doom rockers have signed a deal starting with a follow-up to last year's The VIIth Coming, (on Spitfire) which is tentatively due in early 2004. CATHEDRAL have teamed up with STRAPPING YOUNG LAD and SAMAEL for a North American tour that began this September. See tour dates below. <br><br>
+
+Cathedral, STRAPPING YOUNG LAD & Samael<br>
+9/20 Fitzgerald’s – Houston, TX<br>
+9/22 Culture Room – Ft. Lauderdale, FL<br>
+9/23 State Theater – St. Petersburg, FL<br>
+9/24 The Masquerade – Atlanta, GA<br>
+9/25 Jaxx – West Springfield, VA<br>
+9/26 The Chance – Poughkeepsie, NY<br>
+9/27 Connections – Passaic, NJ<br>
+9/28 The Palladium – Worcester, MA<br>
+9/29 Don Hills – New York, NY<br>
+9/30 The Trocadero – Philadelphia, PA
+Автор: Yermola
+
+### 09.03.2004 news SAMAEL начнут запись альбома в апреле
+
+<P><B>SAMAEL</B> войдут в студию в апреле для записи долгожданного нового альбома. Подробности позже.</P>
+Автор: Vit Belov
+
+### 14.04.2004 news Samael подписали контракт с Regain Records
+
+<B>SAMAEL</B> подписали контракт на выпуск нового альбома с <B>REGAIN RECORDS</B>.
+Автор: Vit Belov
+
+### 21.06.2004 news SAMAEL назвали новый альбом
+
+<P>Новый альбом <B>SAMAEL</B> будет называться "<B>Reign Of Light</B>" и выйдет позже в этом году. Некоторые названия песен: <B>"Oriental Dawn"</B>, <B>"Telepathic"</B>, <B>"As The Sun"</B>, <B>"High Above"</B>, <B>"Heliopolis"</B>&nbsp;и <B>"Further"</B>.</P>
+Автор: Vit Belov
+
+### 17.08.2004 news SAMAEL выпускают сингл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=319 alt="" hspace=0 src="/images/news_rus/2004.08/6931.jpg" width=202 align=right border=5>Перед выходом нового альбома <STRONG>"Reign of Light", </STRONG>который выйде в октябре (в Европе на <STRONG>Regain</STRONG>),<STRONG>&nbsp;SAMAEL </STRONG>выпустят сингл <STRONG>"Telepathic". </STRONG>Трэк-лист:</FONT></P>
+<P>01. <B>Telepathic</B><BR>02. <B>Inch'Allah</B> <BR>03. <B>Telepathic</B> (remix) <BR>04. <B>Inch'Allah</B> (karaoke version) <BR>05. <B>Telepathic</B> (instrumental version)<BR></P>
+Автор: Vit Belov
+
+### 13.09.2004 news Подробности о новом альбоме SAMAEL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, долгожданный новый альбом <STRONG>SAMAEL</STRONG> <STRONG>"Reign of Light" </STRONG>выходит 11 октября на<STRONG> Regain Records</STRONG>. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Moongate<IMG height=138 alt="" hspace=0 src="/images/news_rus/2004.09/7120.jpg" width=138 align=right border=5></B><BR>02. <B>Inch Allah</B> <BR>03. <B>High Above</B> <BR>04. <B>Reign of Light</B> <BR>05. <B>On Earth</B> <BR>06. <B>Telepath</B> <BR>07. <B>Oriental Dawn</B> <BR>08. <B>As the Sun</B> <BR>09. <B>Further</B> <BR>10. <B>Heliopolis</B> <BR>11. <B>Door of Celestial Peace</B><BR></FONT></P>
+Автор: Vit Belov
+
+### 22.02.2005 reviews Всё тот же это SAMAEL?
+
+<P>Швейцарцы SAMAEL обладали культовым статусом в широких кругах металлистов середины 90-х. В чём тут дело? И почему в прошедшем времени?</P>
+<P>Причиной славы SAMAEL можно было назвать неординарный подход к творчеству. Их музыка не носила штампов и не вписывалась в чёткие рамки, популярных тогда стилей. Перерыв между альбомами в этот раз составил 5 лет – большой срок. Много воды утекло, как говорится. Но и сейчас SAMAEL шагают в авангарде и не похожи ни на кого. Индустриальные ритмы, обилие электроники… И всё та же безнадёжность и настроение, которое ощущаешь сразу, как только начинаешь слушать SAMAEL, неважно, какого периода. Чем хуже, например, ‘Inch’Allah’ “After the Sepulture”? К моему сожалению, ‘Reign Of Light’ имеет отдалённое отношение к металлу. И поэтому я поставил второй вопрос.</P>
+<P>Нет, гитара присутствует, но всё же SAMAEL можно рекомендовать лишь тем, кто «переваривает» industrial. Тем, кто его терпеть не может, можно, наверное, забыть про эту группу.</P>
+<P>И о плохом: мне альбом показался очень однообразным, и это его главная проблема. Какие-то жизнерадостные или лирические мелодии, как RAMMSTEIN, швейцарцы играть не могут, а 11 трэков безнадёжного и индустриального музона очень утомляют. Скорее всего, эта пластинка может быть признана самой противоречивой в 2004 году. И главный вопрос будет таким: «Всё тот же это SAMAEL?”</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 31.03.2005 news SAMAEL выпускают очередной сингл
+
+<P><STRONG>SAMAEL</STRONG> в мае выпустят очередной сингл&nbsp;"<STRONG>On Earth</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>On Earth</STRONG> (album version)<BR>2. <STRONG>I Feel You</STRONG><BR>3. <STRONG>On Earth</STRONG> (Northern Summer Mix)<BR>4. <STRONG>Auf der Erde</STRONG></P>
+<P>Видео-секция <BR>5. "<STRONG>Telepath</STRONG>" video clip <BR>6. "<STRONG>On Earth</STRONG> " Live in Paris. </P>
+Автор: Vit Belov
+
+### 06.05.2005 news Видео SAMAEL
+
+<P>Новый видео-клип на песню <STRONG>SAMAEL "Telepath"</STRONG> доступен для скачивания по адресу: <A href="http://www.samael.info/videos/telepath.mp4">http://www.samael.info/videos/telepath.mp4</A></P>
+Автор: Vit Belov
+
+### 26.01.2006 news Проект музыкантов SAMAEL
+
+<P><STRONG>Era One</STRONG>, так называется электронный проект <STRONG>Vorph</STRONG> и <STRONG>Xy</STRONG> из <STRONG>SAMAEL</STRONG>. Альбом выйдет 30 января на двух дисках. Изначально диски были записаны в 2002 году, сейчас они прошли мастеринг и готовятся к выходу. Трэк-лист:</P>
+<P><STRONG>"Era One"</STRONG>:<BR><BR>01. <B>Era One</B><BR>02. <B>Universal Soul</B><BR>03. <B>Sound of Galaxies</B><BR>04. <B>Beyond</B><BR>05. <B>Night Ride</B><BR>06. <B>Diamond’s Drops</B><BR>07. <B>Home</B><BR>08. <B>Voyage</B><BR>09. <B>Above as Below</B><BR>10. <B>Koh-I-Noor</B><BR><BR><B>"Lesson in Magic #1"</B>:<BR><BR>01. <B>Connection</B><BR>02. <B>Reading Mind</B><BR>03. <B>Red Onction</B><BR>04. <B>Flying High</B><BR>05. <B>Overcome</B><BR>06. <B>Inside Stairs</B><BR>07. <B>One with Everything</B><BR>08. <B>Silent Words</B><BR>09. <B>Wealth and Fortune</B> </P>
+Автор: Vit Belov
+
+### 10.05.2006 news SAMAEL пишут новый материал
+
+<P><STRONG>SAMAEL </STRONG>уже сочинили половину материала для нового альбома. Группа собирается в студию в июле/августе.</P>
+Автор: Vit Belov
+
+### 18.12.2006 news Новая песня SAMAEL
+
+<P>Швейцарцы <STRONG>SAMAEL</STRONG> выложили на своем официальном сайте полную композицию <STRONG>"<A href="http://www.samael.info/demo/slavocracy.htm">Slavocracy</A>"</STRONG>, которая войдет на новый альбом коллектива, пока не имеющего названия.&nbsp;Продюсер альбома - <STRONG>Waldemar Sorychta</STRONG> (<B>LACUNA COIL</B>, <B>TIAMAT</B>, <B>GRIP INC.</B>, <B>MOONSPELL</B>). Финальное микширование альбома пройдет сразу после нового года. Ближе к весне, планируется его выход.</P>
+Автор: Dimas
+
+### 06.02.2007 news Best Of от SAMAEL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В феврале<STRONG> Century Media</STRONG> выпускает первый сборник от <STRONG>SAMAEL "Aeonics - An Anthology</STRONG>". Группа участвовала в составлении этой компиляции, и ледер коллектива <STRONG>Vorph</STRONG> написал аннотации для каждой песни. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Exodus <BR></STRONG>2. <STRONG>Black Trip <BR></STRONG>3. <STRONG>Rebellion<BR></STRONG>4. <STRONG>Baphomet's Throne<BR></STRONG>5. <STRONG>Telepath<BR></STRONG>6. <STRONG>Together<BR></STRONG>7. <STRONG>Supra Karma</STRONG><BR>8. <STRONG>Jupiterian Vibe<BR></STRONG>9. <STRONG>Rain <BR></STRONG>10. <STRONG>The Cross<BR></STRONG>11. <STRONG>After the Sepulture</STRONG><BR>12. <STRONG>On Earth</STRONG><BR>13. <STRONG>Moonskin<BR></STRONG>14. <STRONG>Worship Him<BR></STRONG>15. <STRONG>Ceremony of Opposites</STRONG><BR>16. <STRONG>Blood Ritual <BR></STRONG>17. <STRONG>Into the Pentagram</STRONG><BR>18. <STRONG>Koh-I-Noor<BR></STRONG>19. <STRONG>Reading Mind</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 27.02.2007 news SAMAEL на Nuclear Blast!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SAMAEL "Solar Soul"</STRONG> выйдет на <STRONG>Nuclear Blast</STRONG>. Группа заключила мультиальбомную сделку с ведущим металл-лэйблом. Пластинка выйдет 15 июня.</FONT></P>
+Автор: Vit Belov
+
+### 23.03.2007 news SAMAEL - в начале лета!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SAMAEL "Solar Soul"</STRONG> выходит 1 июня на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Solar Soul<BR></STRONG>2. <STRONG>Promised Land</STRONG><BR>3. <STRONG>Slavocracy<BR></STRONG>4. <STRONG>Western Ground<BR></STRONG>5. <STRONG>On the Rise<BR></STRONG>6. <STRONG>Alliance<BR></STRONG>7. <STRONG>Suspended Time<BR></STRONG>8. <STRONG>Valkyries' New Ride<BR></STRONG>9. <STRONG>Ave !<BR></STRONG>10. <STRONG>Quasar Waves<BR></STRONG>11. <STRONG>Architect</STRONG> (bonus track)<BR>12. <STRONG>Olympus </STRONG></P>
+Автор: Vit Belov
+
+### 31.05.2007 news Видео от SAMAEL
+
+<P>Как уже сообщалось, новый альбом <STRONG>SAMAEL "Solar Soul"</STRONG> выходит 1 июня на <STRONG>Nuclear Blast</STRONG>. В сети можно посмотреть видео на песню "<STRONG>Slavocracy</STRONG>" <A href="http://www.samael.info/solar_soul/mambots/content/mgmediabot2/players.php?mode=lightbox&playerid=b4e3516c801c498b352e38e5bcdad98e&TB_iframe=true&width=300&height=300">здесь</A>.</P>
+Автор: Vit Belov
+
+### 26.01.2008 news SAMAEL в Москве
+
+<CENTER><IMG height=282 src="/images/shows_rus/2008.02/12203.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 30.08.2008 news Фоторепортаж с фестиваля Brutal Assault Vol. 13
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Наши корреспонденты вернулись с фестиваля <STRONG>Brutal Assault Vol. 13</STRONG> в Чехии. Наша сплочённая команда фоторепортёров подготовила отчёт об этом событии, который можно увидеть в соотвтетствующем разделе нашего сайта. Уже&nbsp;"висят" эксклюзивные фото <STRONG>EXODUS</STRONG>, <STRONG>SEPTICFLESH</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>SADIST</STRONG>, <STRONG>GENERAL SURGERY</STRONG>, <STRONG>HOLLENTHON</STRONG>. Обновления последуют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></FONT></P>
+Автор: Vit Belov
+
+### 02.12.2008 news SAMAEL объявили о возвращении к корням
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SAMAEL </STRONG>работают над новым альбомом "<STRONG>Above</STRONG>". В одном из последних интервью группа заявила, что этот альбом будет похож на первые четыре пластинки коллетива.</FONT></P>
+Автор: Vit Belov
+
+### 13.12.2008 news Дата релиза SAMAEL
+
+<P><STRONG>Nuclear Blast</STRONG> назначили датой релиза нового альбома <STRONG>SAMAEL "Above"</STRONG> 6 марта.</P>
+Автор: Vit Belov
+
+### 05.01.2009 news Новый альбом SAMAEL
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.01/13292.jpg" width=400 align=right border=5>SAMAEL</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке новую песню <STRONG>"Illumination"</STRONG>,&nbsp;которая войдёт на новый альбом группы <STRONG>"Above"</STRONG>, выходящий 6 марта на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>Under One Flag</B><BR>02. <B>Virtual War</B><BR>03. <B>Polygames</B><BR>04. <B>Earth Country</B><BR>05. <B>Illumination</B><BR>06. <B>Black Hole</B><BR>07. <B>In There</B><BR>08. <B>Dark Side</B><BR>09. <B>God's Snake</B><BR>10. <B>On The Top Of It All</B></P>
+<P>Ссылка: <A href="http://www.myspace.com/samael">http://www.myspace.com/samael</A></P>
+Автор: Vit Belov
+
+### 13.02.2009 news Ещё одна песня SAMAEL
+
+<P><STRONG>SAMAEL</STRONG> выложили новую песню <STRONG>"Black Hole" </STRONG>на своей <STRONG>MySpace</STRONG> странице. Трэк выйдет на новом альбоме "<STRONG>Above</STRONG>".</P>
+<P>Ссылка: <A href="http://www.myspace.com/samael">http://www.myspace.com/samael</A></P>
+Автор: Vit Belov
+
+### 21.03.2009 news SAMAEL вошли в чарты
+
+<P>Новый альбом <STRONG>SAMAEL "Above"</STRONG> вошёл в чарты в Германии. Пластинка достигла 99-го места.</P>
+Автор: Vit Belov
+
+### 25.03.2009 reviews Современный &#39;SAMAEL&#39; tribute to true-black-metal
+
+<P>Швейцарская группа SAMAEL являлась одной из самых влиятельных в тяжёлом металле в 90-х годах. Их альбомы отличались не только качеством самого музыкального материала, но и неожиданными стилистическими ходами. Определённо отнести музыку группы к какому-либо жанру не представляется возможным и по сей день. Здесь есть и death-metal, и black-metal, и doom-metal, на позднем этапе SAMAEL увлеклись industrial. При этом всё, что делает группа, находится на передовой мысли в современной музыке, их творчество не получится так просто сравнить с чем-либо. Возможно, дело в определённом настроении музыки швейцарцев, но разговор сейчас не об этом. Разговор о новейшем альбоме группы “Above”, на котором декларировалось возвращение SAMAEL к корням.</P>
+<P>Ещё немного истории. В конце 90-х SAMAEL кинули всех фанатов своего раннего творчества, ударившись в электронные звуки на своих альбомах. Последние две пластинки, вообще, можно было легко рекомендовать любителям металлического industrial. Теперь, по всей видимости, пришла очередь ценителей позднего творчества группы. Их тоже «киданули». На новой работе заслуженного коллектива творится такой хаос, что становится не по себе даже любителям “Blood Ritual” или “Ceremony Of Opposites”. Мне показалось, что группа всё-таки решила сыграть black-metal, но с каким-то новомодным ‘Samael’ звучанием. В первую очередь это относится к ритм-секции. Бас и барабаны (не очень живые) напрочь заглушают вокал и гитару. Поэтому нам остаётся только догадываться о мелодических ходах SAMAEL, которые несомненно присутствуют, но остаются за кадром. С другой стороны, “Above” звучит очень громко и тяжело. SAMAEL ударились в DARKTHRONE. Нет, конечно, альбом не настолько прост и плохо записан, как у норвежцев, но он ‘true’ по своему настроению. Никаких изысканных поворотов, никаких компромиссов, просто забой и звуковая каша.</P>
+<P>В одном из интервью SAMAEL заявили, что рассматривают “Above”, как мостик от своего старого творчества к новому. Не уверен, что это какой-то мостик. Скорее всего, эта работа не относится к SAMAEL, вообще. Это просто такой современный true-tribute классикам тяжёлого металла. Не даром Fenris включал SAMAEL в свой сборник настоящих black-metal команд. Советую послушать всем. Уже сейчас ясно, что пластинка SAMAEL вызывает разноречивые отзывы, а такое часто случается с очень хорошими работами.</P>
+Автор: Vit Belov
+
+### 07.06.2009 news SAMAEL выпустили вино
+
+<P><STRONG>SAMAEL </STRONG>выпустили специальную марку вина. Спешите приобрести лимитированную бутылочку на официальном сайте группы: <A href="http://www.samael.info/shop">http://www.samael.info/shop</A></P>
+Автор: Vit Belov
+
+### 01.10.2009 news Клип SAMAEL
+
+<P>Новый клип <STRONG>SAMAEL</STRONG> <STRONG>"Black Hole" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=63701970,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=63701970,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.09.2010 news &quot;Антибог&quot; от SAMAEL
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17294.jpg" width=400 height=400>Швейцарцы&nbsp; <B itxtvisited="1">SAMAEL</B> выпускают новый EP <STRONG>"Antigod"</STRONG>. Миньон выйдет на <B itxtvisited="1">Nuclear Blast Records</B> 19 ноября.<BR itxtvisited="1"><BR itxtvisited="1">Трек-лист <STRONG>"Antigod"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Antigod</B><BR itxtvisited="1">02. <B itxtvisited="1">Into The Pentagram</B> (2010)<BR itxtvisited="1">03. <B itxtvisited="1">Reign Of Light</B> (Live)<BR itxtvisited="1">04. <B itxtvisited="1">Slavocracy</B> (Live) <BR itxtvisited="1">05. <B itxtvisited="1">Antigod</B> (Dark Night Remix)<BR itxtvisited="1">06. <B itxtvisited="1">Ten Thousand Years</B><BR itxtvisited="1"></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 26.10.2010 news Century Media выпускают &quot;бокс&quot; SAMAEL
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.10/17468.jpg" width=400 align=right border=5>22 ноября на <STRONG>Century Media</STRONG> выйдет новое издание от <STRONG>SAMAEL</STRONG>. Лэйбл издаст все альбомы группы, выходившие на нём, в специальном "боксе" под названием <STRONG>"A Decade In Hell". </STRONG>Релиз будет снабжён 60-страничным буклетом и в него войдут следующие CD:</P>
+<P>* <B>Worship Him</B><BR>* <B>Blood Ritual</B><BR>* <B>Ceremony Of Opposites</B><BR>* <B>Rebellion</B><BR>* <B>Passage</B><BR>* <B>Exodus</B><BR>* <B>Eternal</B><BR>* <B>Era One</B><BR>* <B>Lesson In Magic #1</B><BR>* <B>Black Trip</B> DVD 1<BR>* <B>Black Trip</B> DVD 2</P>
+Автор: Vit Belov
+
+### 26.01.2011 news Обложка нового SAMAEL
+
+<P>Новый альбом<STRONG> SAMAEL</STRONG> <STRONG>"Lux Mundi" </STRONG>выходит в апреле на<STRONG> Nuclear Blast</STRONG>. Вот названия некоторых трэков <STRONG>"Antigod"</STRONG>, <B>"Soul Invinctus"</B>, <B>"Pagan Trance"</B>, <B>"The Truth Is Marching On"</B>, <B>"Of War"</B>&nbsp;и <B>"The Shadow Of The Sword"</B>. Обложку нарисовал <STRONG>Patrick Pidoux,</STRONG> который работал с группой и на двух предыдущих пластинках, и она, вне сомнений, оригинальна.</P>
+<P>
+<CENTER><IMG height=359 src="/images/news_rus/2011.01/18336.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.05.2011 reviews SAMAEL доказывают теорему
+
+<P>Швейцарцы SAMAEL, которых можно смело назвать одной из самых популярных групп волны мелодичного брутального метала середины 90-х, не отстают от своих коллег и продолжают свою&nbsp; экскурсию в собственную молодость. Путешествие в прошлый век носит не столько ностальгический характер, сколько исследовательский. Музыканты успешно доказывают своей новой музыкой тот факт, что индустриальные эксперименты, в которые SAMAEL вдарились в начале этого века, вовсе не являются чем-то чужеродным для их коренного творчества.</P>
+<P>На прошлой, прямо скажем, непонятной пластинке “Above” SAMAEL заиграли black-death-metal. Вернее, они заиграли то, что сами считали black-death-metal. Этот альбом доказал, что швейцарская группа на своей классике, начиная с альбома “Blood Ritual”, никогда не играла в этом стиле и играть его, в общем-то, и не умеет. Вторым постулатом обозреваемой теоремы стали сами пластинки “Blood Ritual” и “Ceremony Of Opposites”, которые многие до сих пор считают непревзойдённой вершиной творчества SAMAEL. С этими работами музыканты разбираются на новой пластинке “Lux Mundi”, безупречно доказывая, что если бы те пластинки были записаны с сегодняшним звуком, они были бы «похожи на RAMMSTEIN» настолько же, насколько похожи на него альбомы “Reign Of Light” и “Solar Soul”. Тяжёлый, мощный и прямолинейный материал новой работы SAMAEL скрашивается модными клавишными и неоклассическим мелодиями. Постапокалиптический хит, вышедший наружу из undergeround, в котором находился в 90-е годы. При ближайшем рассмотрении он оказывается не столь изменившимся, просто его немного подкрасили и добавили зрелости и композиторского мастерства.</P>
+<P>Безусловно, подобные самоисследования очень интересны теоретикам метала. Простые поклонники музыки также не останутся внакладе, хорошие заводные песни на “Lux Mundi” также присутствуют. Правда хочется задать вопрос, неужели мы все уже настолько стары, что не можем просто двигаться вперёд, а не обсасывать былые достижения? Или это просто SAMAEL двинулись вперёд уже настолько, что им захотелось немного покопаться в собственном прошлом?</P>
+Автор: Vit Belov
+
+### 09.06.2011 news Новый клип SAMAEL
+
+<P>Новый ролик <STRONG>SAMAEL</STRONG> на песню "<STRONG>Luxferre" </STRONG>можно посмотреть ниже. Режиссёром видео выступил <STRONG>Patric Ullaeus, </STRONG>а песня взята с новейшего релиза швейцарской группы <STRONG>"Lux Mundi".</STRONG></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/pAY78gNG4wM?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/pAY78gNG4wM?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.06.2015 news Фестиваль &quot;Hellfest&quot; | 2015
+
+<P>Не так давно наш фотокор вернулся с поездки на французский фестиваль <STRONG>"Hellfest"</STRONG>, который состоялся с 19 по 21 июня в местечке под названием <STRONG>Clisson</STRONG>.</P>
+<P>В этом году на фестивале выстепали такие группы, как <STRONG>AIRBOURNE</STRONG>, <STRONG>ANTHRAX</STRONG>, <STRONG>IN FLAMES</STRONG>, <STRONG>LAMB OF GOD</STRONG>, <STRONG>KILLING JOKE</STRONG>, <STRONG>GODSMACK</STRONG>, <STRONG>ARMORED SAINT</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>HIRAX</STRONG>,<STRONG> NUCLEAR ASSAULT</STRONG>, <STRONG>VENOM</STRONG>, <STRONG>CHILDREN OF BODOM</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>SATYRICON</STRONG>, <STRONG>AT THE GATES</STRONG>, <STRONG>CANNIBAL CORPSE</STRONG>, <STRONG>CRADLE OF FILTH</STRONG>, <STRONG>MAYHEM</STRONG>, <STRONG>FINNTROLL</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>OBITUARY</STRONG>, <STRONG>ENSIFERUM</STRONG>, <STRONG>DYING FETUS</STRONG>, <STRONG>ALESTORM</STRONG>, <STRONG>BODY COUNT</STRONG>,<STRONG> THE EXPLOITED</STRONG>, <STRONG>RED FANG</STRONG>, <STRONG>MADBALL</STRONG>, <STRONG>EYEHATEGOD</STRONG>, <STRONG>ORCHID</STRONG> и многие другие.</P>
+<P>Ждите в скором времени обширный репортаж в нашем разделе фотогалерей: <A href="/ru/galleries/" target=_blank><U><FONT color=#0000ff>http://musica.mustdie.ru/ru/galleries/</FONT></U></A></P>
+<P>Официальный сайт фестиваля: <A href="http://www.hellfest.fr/">www.hellfest.fr</A> </P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28124.jpg" width=660 height=490> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.06.2017 news SAMAEL: новый альбом в октябре
+
+<P>Группа <STRONG>SAMAEL</STRONG> анонсировала выход нового альбома под названием <STRONG>"Hegemony"</STRONG>. Релиз состоится 13 октября на<STRONG> Napalm Records</STRONG>. <STRONG>"Angel Of Wrath"</STRONG>, трек с этого альбома, можно оценить ниже.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/wpeXJVkQ1_U" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Что вы думаете о Samael

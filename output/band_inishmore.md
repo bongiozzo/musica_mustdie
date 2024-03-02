@@ -50,6 +50,21 @@ Pictures by Ronald Rutishauser
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.02.2003 reviews Театр марионеток
+
+<p>Позвольте узнать, кто в Irond откопал такую поразительную группу. Если понять производство Samhain ещё можно, поддержка российского андеграунда... То это? За подобными группами не стоит обращаться в Австрию. Качество реализации ниже среднего. "Кастрюлечные" барабаны, нЕмощные гитары и смешной протяжный вокал. Вокалист это, вообще (как обычно), отдельный разговор. Он пытаетстя то петь высоко, то агрессивно, как Пиви Вагнер, но все попытки заканчиваются неудачей. Единственное, что можно слушать, это баллады, но, к сожалению, новых вокалистов на них не пригласили. Nopower Metal.</p>
+
+Автор: Vit Belov
+
+### 10.03.2003 reviews Theatre Of Marionettes
+
+<p>I'd like to know, who is in Irond, whom found this striking band. If i can understand realesing of SAMHAIN, as support of Russian underground... But this? You don't have to find for such bands in Austria. Quality of production is lower than middle. 'Saucepan' drums, not power guitars and funny drawling vocal. Singer is deserved individual speech (as usual). He tries to sing now very high now aggressive, as Peavy Wagner, but all tries end without luck. One, that you will able to listen is ballads, but unfortunatly there is not guest singers. NOPOWER METAL.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

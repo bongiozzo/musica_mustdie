@@ -192,6 +192,73 @@ Nico Scheffler - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.10.2001 news Питомцы METAL BLADE
+
+<p><img src=/images/news_rus/2001.10/1822.jpg border=1 align=left width=125 height=125 hspace=5> METAL BLADE'овские питомцы "BOLT THROWER" и "FLESHCRAWL" выложили на сайте лэйбла свои новенькие Mp3:<br> <a href="http://www.metalblade.de/mp3/boltthrower_insidethewire.mp3">boltthrower_insidethewire.mp3</a><br> <a href="http://www.metalblade.de/mp3/fleshcrawl_soulskinner.mp3">fleshcrawl_soulskinner.mp3</a></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 12.07.2002 news Новый гитарист в Fleshcrawl
+
+<p>Fleshcrawl снова играют в полном составе. Новый гитарист - двадцатилетний Оливер Гбравак из немецкого города Фридрихшафена. Ранее он играл в нескольких малоизвестных андерграундных death metal командах и сейчас активно вживается в коллектив. Оливер впервые выйдет на сцену в составе Fleshcrawl на Wacken Open Air.</p>
+
+Автор: Morsus
+
+### 12.07.2002 news New guitarist in Fleshcrawl
+
+<p>The Fleshcrawl line-up is complete again. The new guitar player is Oliver Gbravac, 20 years of age and living in Friedrichshafen, Germany. He played in a few underground Death Metal bands before. The process of integration concerning the liveset is almost done. Oliver will have his first Fleshcrawl live appearance at the Wacken Open Air 2002!</p>
+
+Автор: Morsus
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> новости<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> news<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 19.07.2003 reviews Обдирая кожу до костей
+
+<P>Еще один полноформатник дэтстеров из Германии. В первую очередь на альбом стоит обратить внимание фанатам именно brutal death metal (хотя некоторые говорят, что Fleshcrawl - это лишь грязно сыгранный мелодик дэт). Он уже шестой у этих парней и, на мой взгляд, ни чуть не хуже предыдущих. С момента выхода их самого первого творения 'Descend Into The Absurd' (1992) немцы держат марку. 'Soulskinner' - это брутал-дэт приличного уровня: неплохо выдержан стиль, вокал мощный, а не просто режущий ухо скриминг или неразборчивое бульканье, ритм-гитара, риффы которой... различимы, наличествуют недурственные партии и у соло-гитариста. Но самое главное – это ужас и жуть, которыми пропитана музыка от первого до последнего трэка. В этом плане содержимое диска просто на все «сто» соответствует обложке! Поводя итог, хочется сказать, что на альбоме вполне отчётливо прослеживаются попытки придать стилю более «официальный» статус, привести брутальный дэт-метал к тому уровню, когда уже практически каждый металхэд будет признавать подобные работы действительно музыкой, а многие команды, играющие в этом стиле, будут называться талантливыми.</P>
+Автор: Darkfall
+
+### 30.09.2003 news FLESHCRAWL готовятся к записи
+
+Немецкие дэтстеры <B>FLESHCRAWL</B> закончили написание всех песен для их нового альбома. В ноябре 2003 группа войдет в студию <B>Studio Underground</B> и начнет записываться. Дата релиза и название нового творения пока неизвестны.
+Автор: Darkfall
+
+### 16.12.2003 news Новый альбом FLESHCRAWL
+
+<P>Немцы <B>FLESHCRAWL</B> закончили запись своего нового альбома <B>"Made Of Flesh"</B> в шведской студии <B>Studio Underground</B>. Являясь логическим продолжением предыдущего опуса <B>"Soulskinner"</B>, новое творение обещается быть намного мощнее, мелодичнее и смертельнее. <BR><BR>Трэк-лист:<BR><BR>01. <B>Beneath A Dying Sun</B><BR>02. <B>Made Of Flesh</B><BR>03. <B>Scourge Of The Bleeding Haunted</B><BR>04. <B>Into The Depths Of No Return</B><BR>05. <B>Flesh Bloody Flesh</B><BR>06. <B>Forged In Blood</B><BR>07. <B>Damned In Fire</B><BR>08. <B>Demons Of The Dead</B><BR>09. <B>Carnal Devourment</B><BR>10. <B>When Life Surrenders</B><BR><BR>Релиз назначен на 23 февраля 2004 года на <B>Metal Blade Records</B>.</P>
+Автор: Darkfall
+
+### 20.06.2004 reviews Любителям настоящего шведского death-metal
+
+<P>Вы впервые ознакомились с творчеством FLESHCRAWL и вас искренне забавляют заявления наподобие того, что «они немцы, а не шведы», или, что «“Made of Flesh” – далеко не первый альбом FLESHCRAWL»? Зря смеётесь. Это действительно немцы, и они действительно далеко не новички, вдохновляющиеся «шведским духом начала 90-х». Хотя, что спорить, пресловутый «шведский дух» здесь действительно имеется. Причём, в избытке. Почему-то сразу вспоминаются ранние записи UNLEASHED, и проч. Да, шведятина. Но шведятина очень качественная, исполненная, что называется, с душой. Да и звук, кстати, не имеет ничего общего с низкочастотным лязганьем а-ля DISMEMBER. По мне, так это к лучшему. Добавить нечего… разве что слоган вроде: «Тем, кто скучает по «настоящему шведскому дэту» не стоит пропускать этот альбом». Ну или типа того :-).</P>
+Диск предоставлен компанией ФОНО
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 ### FLESHCRAWL (Ger) впервые в России! (21 ноября 2014)

@@ -184,6 +184,40 @@ Chris Blackwell  -  Guitar, Drums
 
 * C группой "Led Zeppelin" Vocal
 
+## Публикации
+
+### 22.05.2002 news Мрачное падение Роберта Планта....
+
+<p><A HREF="http://boss.streamos.com/real/universalmotown/universal/robertplant/audio/full_length/darnessdarkness.ram">Здесь... </A>вы можете послушать потоковое аудио "Darkness Descends" - первого сингла с нового и еще не вышедшего альбома "Dreamland" фронтмена LED ZEPPELIN - Robert Plant.</p>
+
+Автор: Yermola
+
+### 22.05.2002 news Former LED ZEPPELIN Frontman Gives Single Preview...
+
+<p>"Darkness Descends", the first single from former LED ZEPPELIN frontman Robert Plant's upcoming album, entitled Dreamland, can be heard in streaming audio at <A HREF="http://boss.streamos.com/real/universalmotown/universal/robertplant/audio/full_length/darnessdarkness.ram">this location</A>. In other news, Plant has lined up the following west coast dates during September: <BR><BR> Sep. 02 - Cleveland, OH @ The Playhouse <BR> Sep. 04 - St. Louis, MO @ Fox Theater <BR> Sep. 05 - Kansas City, MO @ Uptown Theater <BR> Sep. 07 - Denver, CO @ The Fillmore Auditorium <BR> Sep. 09 - Berkeley, CA @ Berkeley Community Center <BR> Sep. 10 - Santa Barbara, CA @ Santa Barbara Bowl <BR> Sep. 12 - Los Angeles, CA @ The Greek Theater <BR> Sep. 13 - Las Vegas, NV @ Hard Rock Hotel - The Joint<BR></p>
+
+Автор: Yermola
+
+### 18.07.2002 news Металл&#x2F;Хард Рок в Германских чартах Медиа Контрол...
+
+<p>Представляем вашему вниманию жанр Металл/Хард Рок в Германских Медиа Контрол чартах (топ 100) по состоянию на текущюю неделю: <BR><BR> 01. (новичок) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) B&Ouml;HSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> Число в скобках показывает позицию на прошлой неделе...</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart* for the week ending July 22nd (as reported by Rock Hard magazine): <BR><BR> 01. (new) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) BЦHSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Auswдrtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> * number in parenthesis indicates last week's chart position</p>
+
+Автор: Yermola
+
+### 01.11.2002 reviews Сонное царство
+
+<p><B>Надо быть законченным пессимистом или неистовым поклонником LED ZEPPELIN, чтобы честно оценить эту работу. Название диска можно перевести как "Страна мечтаний", но можно и "Сонная страна", что больше соответствует содержанию. Где безумные шаманские заклинания, истерические вокальные упражнения, драйв и энергетика, присущие Роберту Джеймсовичу в предыдущих дисках? Зато максимум медитации, псевдовосточных и кельтских мотивов, в которых волынки соседствуют с таблами и прочими марокканскими инструментами. Общее впечатление: исповедь рефлексирующего интеллигента, страдающего от импотенции и заламывающего руки в преддверии алкогольно-сексуальной оргии.</B> <BR> Уже в первой вещи (вялый фанки с элементами глэма) мистер Плант начинает медитировать так жалобно, что ко второй вещи хочется пустить слезу и хватануть стакан водки. К третьей композиции ("Еще одна чашечка кофе", кстати, это песня Боба Дилана) парень очухивается и, припоминая, что когда-то он пел в LZ, выдает нечто кашмироподобное. Но далеко не такое гимноподобное, как оригинал. После прослушивания "Чашки кофе" почему-то опять хочется водки. Причем пить ее можно до седьмой песни, не делая перерывов на обед. Это чтобы не заснуть или не впасть в прострацию либо медитацию: все-таки интересно, что там Боб станет рассказывать дальше? <BR> А в "Песне Сирены" между нот он рассказывает, как ему нравилось работать в LZ, каким великим певцом он был в те веселые годы, а также каким крутым он стал сейчас, что, очевидно, и позволяет ему забыть, что такое драйв. В "Тьме тьмущей" Плант неожиданно пускает младенческую слезу (мелодия такая, что начинаешь жалеть мальца, запертого в темной комнате и уписавшегося от страха), после чего на-чинаешь понимать: весь этот альбом – чистейшей воды обман! Не было ни LED ZEPPELIN, ни ROLLING STONES, ни SEX PISPOLS, ни журнала "Плэйбой". Мир устроен по образу и подобию Тани Булановой, водку придумали трезвенники, Джон Леннон – это Папа Римский, блюз изобрели гунны, "Чаттаннуга-Чу-чу" – это гимн Калмыкии, а сам Роберт Плант уже тысячу лет живет на Луне и собирается написать пособие для игры на нервах поклонников. <BR> Заключительный трек диска – "Песня шкипера" – вызывает чувство справедливой ярости, которое, в свою очередь, требует скорейшего возмездия. Так и хочется крикнуть: "Эй, парень! Ты проложил не тот курс и больше никогда не попадешь в родную гавань!"… <BR> К несомненным достоинствам альбома следует отнести три вещи: сам Плант приложил руку всего к четырем трекам из десяти; "цепеллиновские" мотивы и гармонии присутствуют почти во всех вещах; если вы очень хотите пожалеть себя и весь мир – слушайте этот диск чаще: после 10-12 прослушиваний вам откроются и-тины имени Роберта Дж. Планта, которые помогут лучше понять, что сегодня стоит слушать на самом деле.</p>
+<p> Сергей Туник, "Экспресс К"</p>
+
+Автор: Tornado
+
+
 ## Обсуждения
 
 

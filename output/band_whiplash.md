@@ -80,6 +80,63 @@ Jimmy Preziosa - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.10.2008 news WHIPLASH заканчивают альбом
+
+<P>Реактивированные американские трэшеры<STRONG> WHIPLASH</STRONG> заканчивают запись нового альбома <STRONG>"Pitbulls In The Playground". </STRONG>Пластинка выйдет в начале 2009 года. Вот актуальный состав ветеранов:</P>
+<P><STRONG>Tony Portaro</STRONG> - Guitar/Vocals <BR itxtvisited="1"><B itxtvisited="1">Joe Cangelosi</B> (ex-KREATOR) - Drums<BR itxtvisited="1"><B itxtvisited="1">Rich Day Bass</B> (ex-PRIMAL SCREAM) - Bass</P>
+Автор: Vit Belov
+
+### 23.01.2009 news WHIPLASH: &quot;Speed-metal риффы на новом альбоме очень современны&quot;.
+
+<P><IMG height=199 alt="" hspace=0 src="/images/news_rus/2009.01/13437.jpg" width=300 align=left border=5>Возродившиеся <STRONG>WHIPLASH</STRONG> рассказали о своём новом альбоме "<STRONG>Unborn Again</STRONG>" в интервью <STRONG>Metal Rules</STRONG>:</P>
+<P>"<EM>На новом альбоме очень много 'mosh' риффов, которые заставят повеселится публику на концертах. Некоторые из этих частей представляют собой тяжелейший материал от WHIPLASH за долгие годы. Speed-metal риффы очень современные и свежие, но в то же время выполнены в духе настоящих WHIPLASH и отправляют вас прямо в середину 80-х</EM>".</P>
+Автор: Vit Belov
+
+### 10.03.2009 news WHIPLASH войдут в студию
+
+<P>13 марта реактивированные thrash-metal ветераны <STRONG>WHIPLASH</STRONG> войдут в студию для записи нового альбома <STRONG>"Unborn Again"</STRONG>,&nbsp;который выйдет в июле на <STRONG>Pulverised</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.07.2009 news Новый альбом WHIPLASH
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news_rus/2009.07/14490.jpg" width=300 align=right border=5>Возрождённые из пепла thrash-ветераны <STRONG>WHIPLASH</STRONG> опубликовали подробности о своём новом альбоме <STRONG>"Unborn Again",</STRONG> который выйдет в этом году на <STRONG>Pulverised Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Swallow The Slaughter</B><BR>02. <B>Snuff</B><BR>03. <B>Firewater</B><BR>04. <B>Float Face Down</B><BR>05. <B>Fight Or Flight</B><BR>06. <B>Pitbulls In The Playground</B><BR>07. <B>Parade Of Two Legs</B><BR>08. <B>Hook In Mouth</B><BR>09. <B>I've Got The Fire</B><BR>10. <B>Feeding Frenzy</B></P>
+<P>Обложку нарисовал <STRONG>Ed Repka</STRONG> (<B>DEATH</B>, <B>ATHEIST</B>, <B>MEGADETH</B>, <B>NUCLEAR ASSAULT</B>, <B>POSSESSED</B>).</P>
+Автор: Vit Belov
+
+### 13.07.2009 news Соусы от WHIPLASH
+
+<P><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.07/14526.jpg" width=392 align=right vspace=5 border=0>Группа <STRONG>WHIPLASH</STRONG> и магазин соусов <STRONG>FROM MILD TO WILD</STRONG> объединили силы в создании и выпуске первой в мире линейки острых <EM>трэш-металлических</EM> соусов.</P>
+<P>Подарочный набор, в который входят три разных соуса:<BR>1. <STRONG>"Power and Pain"</STRONG>,<BR>2. <STRONG>"Last Nail In The</STRONG> <STRONG>Coffin"</STRONG>,<BR>3. <STRONG>"Swallow The Slaughter"<BR></STRONG>можно заказать на сайте компании в течение ограниченного периода времени по цене 23 канадских доллара.<BR>Любой из трёх видов соуса, так же, доступен по отдельности.<BR>Более подробную информацию по употреблению, остроте и ингридиентам каждого соуса можно получить по ссылке: <A href="http://www.frommildtowild.com/xcart/home.php?cat=24">http://www.frommildtowild.com/xcart/home.php?cat=24</A></P>
+Автор: Headcrusher
+
+### 10.11.2009 reviews Угарный underground thrash-metal для фэнов со стажем
+
+<P>Когда в прошлом году я узнал о возрождении WHIPLASH, я был приятно взволнован. Дело не в том, что я как-то особенно любил эту группу. Просто всегда приятно присутствовать при возрождении thrash-metal коллектива, ведь «старые и добрые» практически никогда не подводят.</P>
+<P>Насторожило, что «ре-юнион» альбом выходит на малоизвестном Pulverized Records, но, к счастью для нас, нынешняя политика Союза позволяет выпускать альбомы и с таких лэйблов. Мы уже не раз рассказывали о современном возрождении thrash-metal. Стали возвращаться старые коллективы, молодые команды заинтересовали крупные лэйблы… В общем, всем любителям стиля остаётся только радоваться. Многие группы намеренно играют и записывают свои альбомы так, чтобы они звучали ‘old school’. Уже приходилось рецензировать в этом году альбомы групп, которые можно было сравнить со старыми EXODUS или METALLICA. Сами же динозавры thrash-metal, в том числе и возвращающиеся к корням, всё-таки предпочитают, по крайней мере в продукции, двигаться в направлении современного звучания. Естественно, невозможно продавать сотни тысяч альбомов с кассетным звуком из 80-х. WHIPLASH – группа не того масштаба, чтобы продавать сотни тысяч копий, поэтому здесь вы получите по полной программе. Забудьте VIOLATOR, MANTIC RITUAL или WARBRINGER. Вы наверное запамятовали, что и кто выступал в подпольных клубах США в конце 80-х. WHIPLASH были там, всё помнят и напомнят вам. Замогильный thrash-metal “Unborn Again” сначала поражает, а потом притягивает. Качество первых альбомов MEGADETH, мерзопакостный вокал того Dave Mustaine и элементы stoner, жуткие, тягучие, подпольные и, безусловно, захватывающие. Эта пластинка вряд ли станет украшением вашей коллекции. Она станет её «помойкой», её «нагноением». Вы будет показывать этот альбом изумлённым гостям и пугать им своих детей в старости. Слушая эту пластинку, вы представляете себя в старом заблёванном баре с грязными стриптизёршами и вурдалаками за стойкой. Незабываемые впечатления.</P>
+<P>Конечно же, этот альбом далеко не шедевр. Равно как и не шедевры первые пластинки MEGADETH, например. Но слушать WHIPLASH можно. Главное, не ожидать чересчур многого.</P>
+Автор: Vit Belov
+
+### 08.10.2010 news Новости от WHIPLASH
+
+<P>Группа <B itxtvisited="1">WHIPLASH</B> покинула сингапурский лейбл <B itxtvisited="1">Pulverised Records</B>, на котором вышел их последний альбом <STRONG>"Unborn Again"</STRONG> (2009). На данный момент <STRONG>WHIPLASH</STRONG> сочиняют новые песни и готовятся к туру, который начнётся в марте 2011 года.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей - &nbsp;<B itxtvisited="1">WHIPLASH</B> опубликовали профессиональное видео со своего прошлогоднего выступления на фестивале <B itxtvisited="1">Wacken Open Air</B>, который проходил с 30 июля по 1 августа. Клип, на котором группа исполняет песню <B itxtvisited="1">"Feeding Frenzy"</B> с альбома <B itxtvisited="1">"Unborn Again"</B> можно посмотреть по ссылке: <A href="http://www.youtube.com/watch?v=ROAdpINE-yE">http://www.youtube.com/watch?v=ROAdpINE-yE</A> </FONT></P>
+Автор: Headcrusher
+
+### 03.12.2010 news В WHIPLASH вернулся оригинальный барабанщик
+
+<P><STRONG><IMG height=205 alt="" hspace=0 src="/images/news_rus/2010.12/17729.jpg" width=300 align=right border=0>WHIPLASH</STRONG> вернули оригинального барабанщика <STRONG>Tony Scaglione</STRONG>, который заменил ушедшего <STRONG>Joe Cangelosi. Tony Scaglione </STRONG>был одним из основателей группы и отыграл на дебютной работе американцев <STRONG>"Power And Pain"</STRONG>. Кроме этого, барабанщик выступал с <STRONG>SLAYER</STRONG> (в туре 1987 года заменял <STRONG>Dave Lombardo</STRONG>), <B>RAGING SLAB</B>, <B>CAUSE FOR ALARM</B>, <B>SHEER TERROR</B>, <B>LUDICHRIST</B>, <B>NORTH SIDE KINGS</B> и <B>M.O.D.</B> </P>
+<P><STRONG>WHIPLASH </STRONG>вернулись к жизни в прошлом году с альбомом <STRONG>"Unborn Again"</STRONG>, вышедшим на <STRONG>Pulverized Records</STRONG> и переизданным в России на <STRONG>Союзе</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.01.2011 news WHIPLASH: замена барабанщика
+
+<P>Трэшеры&nbsp;<B itxtvisited="1">WHIPLASH</B> в очередной раз расстались с оригинальным барабанщиком <B itxtvisited="1">Tony Scaglione </B><EM>(Тони вернулся в группу около месяца назад)</EM> и&nbsp;нашли ему замену в лице англичанина Дэна Фурда (<B itxtvisited="1">Dan Foord</B>) из группы <B itxtvisited="1">SIKTH</B>.<BR itxtvisited="1"><BR itxtvisited="1">Комментирует <STRONG>Tony Portaro</STRONG> (гитарист/вокалист <STRONG>WHIPLASH</STRONG>): <EM>"<B itxtvisited="1">Tony</B> [<B itxtvisited="1">Scaglione</B>] и я действительно надеялись на очередное сотрудничество, но к сожалению, в его&nbsp;жизни возникли личные проблемы, которые взяли вверх. К счастью,&nbsp;с помощью Бена Варда (<STRONG>Ben Ward</STRONG>) из&nbsp;<B itxtvisited="1">ORANGE GOBLIN</B>&nbsp;и Натана Перриера&nbsp;(<STRONG>Nathan Perrier</STRONG>) из <B itxtvisited="1">ALABASTER SUNS</B>, <B itxtvisited="1">LABRAT</B> и <B itxtvisited="1">CAPRICORNS</B>, я смог связаться с Дэном Фурдом (<STRONG>Dan Foord</STRONG>).[...]"</EM></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

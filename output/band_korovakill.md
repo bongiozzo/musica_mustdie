@@ -23,6 +23,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2011 news KOROVAKILL возвращаются
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Авангардная метал-группа из Австрии<STRONG> KOROVAKILL</STRONG> возвращается к нам с новым альбомом "<STRONG>Chryst PhantasmaChronica</STRONG>" в сентябре этого года. Лидер группы <STRONG>Chrystof Niederwieser</STRONG> обещает самый навороченный материал в истории группы (видимо, имеется в виду и группа-предшественник <STRONG>KOROVA</STRONG>). Нас ждёт "epic psychedelic metal!".</FONT></P>
+<P><A href="http://www.korovakill.com/">http://www.korovakill.com/</A></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/rXdsfCsB55k?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/rXdsfCsB55k?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.09.2011 news KOROVAKILL стали CHRYST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=202 alt="" hspace=0 src="/images/news_rus/2011.09/20853.jpg" width=400 align=right border=0>Широко ожидаемое в узких кругах возвращение авангардной австрийской группы <STRONG>KOROVAKILL</STRONG> состоится 21 сентября. Теперь группа носит название <STRONG>CHRYST</STRONG>. Новый альбом “<STRONG>PhantasmaChronica</STRONG>” состоит из одной концептуальной вещи на 47 минут. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Больше информации:</FONT></P>
+<P><A href="http://www.chrystworld.com/">www.chrystworld.com</A><BR><A href="http://www.omniversal.net/">www.omniversal.net</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

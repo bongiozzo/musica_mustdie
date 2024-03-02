@@ -28,6 +28,26 @@
 * C группой "Hughes Turner Project" J-L Turner
 * C группой "Brazen Abbot" J-L Turner
 
+## Публикации
+
+### 28.01.2009 news Joe Lynn Turner заканчивает новый SUNSTORM
+
+<P><STRONG>Joe Lynn Turner</STRONG> закончил запись вокала для нового альбома <STRONG>SUNSTORM</STRONG> <STRONG>"House of Dreams". </STRONG>Пластинка уже проходит сведение и выйдет в апреле на<STRONG> Frontiers</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.03.2009 news Joe Lynn Turner поскрёб по сусекам
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.03/13737.jpg" width=400 align=right border=5>17 апреля на <STRONG>Frontiers</STRONG> выходит второй альбом проекта <STRONG>Joe Lynn Turner SUNSTORM "House Of Dreams"</STRONG>. Музыкант собрал в своих архивах настоящие хиты, которые перепел, добавив к ним и новый материал. В записи и сочинении материала приняли участие <STRONG>Desmond Child, Paul Sabu, Jim Peterik</STRONG> и<STRONG> Dennis Ward</STRONG>. Трэк-лист:</P>
+<P>01. <B>Divided</B><BR>02. <B>Don't Give Up</B><BR>03. <B>The Spirit Inside</B><BR>04. <B>I Found Love</B><BR>05. <B>Say You Will</B><BR>06. <B>Gutters of Gold</B><BR>07. <B>Save a Place in Your Heart</B><BR>08. <B>Forever Now</B><BR>09. <B>Tears on the Pages</B><BR>10. <B>House of Dreams</B><BR>11. <B>Walk On</B></P>
+Автор: Vit Belov
+
+### 22.12.2011 news Новый SUNSTORM
+
+<P><IMG height=342 alt="" hspace=0 src="/images/news_rus/2011.12/22374.jpg" width=336 align=right border=0>Третий альбом проекта <STRONG>Joe Lynn Turner SUNSTORM</STRONG> <STRONG>"Emotional Fire" </STRONG>выйдет 24 февраля на <STRONG>Frontiers Records</STRONG>. Продюсером пластинки выступил <STRONG>Dennis Ward</STRONG> (<B>PINK CREAM 69</B>, <B>PLACE VENDOME</B>, <B>ANGRA</B>), а песни для неё написали <STRONG>Soren Kronkvist</STRONG> (<B>CRASH THE SYSTEM</B>, <B>ISSA</B>), <B>Tom</B>&nbsp;и <B>James Martin</B> (<B>VEGA</B>, <B>SUNSTORM</B>, <B>KHYMERA</B>)&nbsp;и <B>Daniel Palmqvist</B> (<B>XORIGIN</B>, <B>THE MURDER OF MY SWEET</B>). Трек-лист:</P>
+<P>01. <B>Never Give Up</B><BR>02. <B>Emotional Fire</B><BR>03. <B>Lay Down Your Arms</B><BR>04. <B>You Wouldn't Know Love</B><BR>05. <B>Wish You Were Here</B><BR>06. <B>Torn In Half</B><BR>07. <B>Gina</B><BR>08. <B>The Higher You Rise</B><BR>09. <B>Emily</B><BR>10. <B>Follow Your Heart</B><BR>11. <B>All I Am</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.12.2002 reviews Complete failure
+
+<p>Now I know why so many people out there can’t tolerate black metal. You see, there’re some who can’t stand even hearing ABOUT this kind of music. And I’ve just figured out why. The answer is simple: LABYRINTH OF ABYSS’ CD happened to cross their way and someone told ‘em this is true black metal. Well, I understand those who, once giving this crap a listen, do not want to give black metal a second chance. “LABYRINTH OF ABYSS plays total fucking necro black metal with true Transylvanian feeling”. Bullshit. What they play is: bullshit. What they say is: bullshit. Nothing else. Just a take a look at the song titles: “Blackland”, “Nosferatu” and (oh no!) “Through The Deep Forest”. Wanna know what kind of bands I consider to be fucking ‘posers’? Those who can’t handle their instruments properly – explaining it with “true Transylvanian feeling” whatsoever. Those who aren’t capable of composing anything valuable and MUSICAL – explaining it with “true Transylvanian feeling” whatsoever. Those who spend their spare money / time on having few beers at the local bar instead of rehearsing and finding some pro- studio (or at least semi-pro). Complete inability to play, to compose, to arrange. Complete failure in terms of sound execution. What’s the explanation? Well, right: “true Transylvanian feeling”. GIVE ME A BREAK.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

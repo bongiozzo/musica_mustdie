@@ -76,6 +76,55 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.05.2004 reviews CHILDREN OF BODOM с чистым вокалом
+
+<P><I>Молодая американская группа. Музыка <B>WIDOW</B> звучит настолько молодо и свежо, что в возрасте музыкантов сомневаться не приходиться.</I></P>
+<P><B>WIDOW</B> выступают в том жанре heavy-metal, отличительной чертой которого является незамолкающая соло-гитара. К подобной музыке, как справедливо замеченно в пресс-релизе, прилагаемом к альбому, можно отнести и <B>Yngwie Malmsteen</B>, и даже <B>CHILDREN OF BODOM</B>. Неоклассические запилы в исполнении <B>WIDOW</B> столь же виртуозны, сколь обыденны, но слушается альбом на одном дыхании. Это не мешает заметить множество огрехов, а скорее нелепостей, связанных с возрастом музыкантов. Например, оргазмирующая девушка встречается аж в двух песнях. А второй вокалист подпевающий скримингом совершенно не вписывается в общую концепцию. Также отмечу некоторую "пластмассовасть" звука, но это распространённый дефект у групп, записывающих дебютный альбом на дешёвом оборудовании. Ни в коем случае не буду называть звучание <B>WIDOW</B> плохим, многим нашим коллективам они дадут фору.</P>
+<P>Прочитав первый абзац рецензии, я заметил, что ни разу прямиком не назвал стиль, в котором играют <B>WIDOW</B>. Но многие уже догадались, что речь идёт о неоклассическом heavy-metal, который я смело рекомендую поклонникам стиля.&nbsp;</P>
+Автор: Vit Belov
+
+### 14.05.2004 reviews CHILDREN OF BODOM with clean vocal
+
+<P><I>Young American band. Music by <B>WIDOW</B> sounds so young and fresh, that we will not able to doubt about age of musicians.</I></P>
+<P><B>WIDOW</B> perorm in such genre of heavy-metal, where solo-guitar will not become silent anyway. As fairly said in press-release, we can relate to this music both <B>Yngwie Malmsteen</B> and even&nbsp;<B>CHILDREN OF BODOM</B>. Neoclassic solos by <B>WIDOW</B>&nbsp;are so virtuosal as usual, but album is listened on one breath.&nbsp;It doesn't prevent to point many mistakes and absurdities,&nbsp;conected to age of musicians. For example,&nbsp;'girl in orgasm' is met in two songs:)&nbsp;And second vocalist, trying to sing background with&nbsp;screaming, is not suit to&nbsp;concept of this&nbsp;music. Also I mark&nbsp;some kind of 'plastic' in sound of the band. But it's&nbsp;wide-spread deffect among bands, recording their debut album. I will not&nbsp;say, that&nbsp;sound of WIDOW is bad. Many Russian bands can envy to its quality.</P>
+<P>I've read to first paragraph of this review and I&nbsp;noticed, that&nbsp;I didn't name the style of WIDOW played. But&nbsp;many people have already understood that I said about neoclassic heavy-metal, which I recomend to all fans of the style.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 07.09.2011 news WIDOW на Pure Steel
+
+<P>Американская traditional heavy-metal команда <STRONG>WIDOW</STRONG> заключила контракт с <STRONG>Pure Steel Records</STRONG>. Предыдущая пластинка коллектива <STRONG>"Nightlife" </STRONG>вышла в 2007 году.</P>
+<P><center><IMG height=267 src="/images/news_rus/2011.09/20940.jpg" width=378 border=0></P>
+Автор: Vit Belov
+
+### 22.04.2012 news Новое видео WIDOW
+
+<P>Новый клип <STRONG>WIDOW</STRONG> на песню "<STRONG>Take Hold Of The Night"</STRONG> можно посмотреть ниже. Трек взят с последнего альбома американского коллектива "<STRONG>Life's blood</STRONG>", который вышел 11 ноября прошлого года на <STRONG>Pure Steel Records.</STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Drbr8rnzOCA?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 14.06.2016 news Новый альбом WIDOW
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Американская heavy metal формация<strong> WIDOW</strong> подготовила к выходу новый альбом "<strong>Carved In Stone</strong>" Диск увидит свет 24 июня на<strong> Pure Steel</strong>. Новую песню "<strong>Wisdom</strong>" можно послушать ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>1. Burning Star&nbsp;&nbsp; <br>2. Carved in Stone&nbsp;&nbsp; <br>3. Another Time and Place&nbsp;&nbsp; <br>4. Wisdom&nbsp;&nbsp; <br>5. Time on Your Side&nbsp;&nbsp; <br>6. Borrowed Time&nbsp;&nbsp; <br>7. And We Are One&nbsp;&nbsp; <br>8. Anomaly&nbsp;&nbsp; <br>9. Live by the Flame&nbsp;&nbsp; <br>10. Of the Blood, We Bind&nbsp;&nbsp; <br>11. Nighttime Turn&nbsp;&nbsp; <br>12. Let It Burn</p><p><center><img width="460" height="460" src="/images/news_rus/2016.06/29354.jpg" border="0"><p></p><p><center><iframe width="60%" height="166" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/268117152&color=ff5500" frameborder="no" scrolling="no"></iframe></center></center>
+Автор: Vit Belov
+
+### 14.06.2016 news WIDOW: New release will come soon
+
+<p>American heavy metal formation <strong>WIDOW</strong> is going to release a new album "<strong>Carved In Stone</strong>". CD will be released on June 24 at Pure Steel. New song "<strong>Wisdom</strong>" can be streamed below.</p><p>Track listing:</p><p>1. Burning Star&nbsp;&nbsp; <br>2. Carved in Stone&nbsp;&nbsp; <br>3. Another Time and Place&nbsp;&nbsp; <br>4. Wisdom&nbsp;&nbsp; <br>5. Time on Your Side&nbsp;&nbsp; <br>6. Borrowed Time&nbsp;&nbsp; <br>7. And We Are One&nbsp;&nbsp; <br>8. Anomaly&nbsp;&nbsp; <br>9. Live by the Flame&nbsp;&nbsp; <br>10. Of the Blood, We Bind&nbsp;&nbsp; <br>11. Nighttime Turn&nbsp;&nbsp; <br>12. Let It Burn</p><p><center><img width="460" height="460" src="/images/news_rus/2016.06/29354.jpg" border="0"><p></p><p><center><iframe width="60%" height="166" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/268117152&color=ff5500" frameborder="no" scrolling="no"></iframe></center></center>
+Автор: Vit Belov
+
+### 04.07.2016 reviews Старая добрая песня. И снова, и снова...
+
+<p>Американцы WIDOW со своим пятым альбомом «Carved In Stone”. Группа не выпускала новой музыки пять лет со времён предыдущей работы «Life's Blood”, которая вышла так же, как и новая на Pure Steel Records. Когда-то давно я писал рецензию на первый альбом коллектива «Midnight Strike”. Я уже не помню, что там было, как там было, прошло более десяти лет, но CD в целом мне понравился, судя по написанному. Американцы тогда играли неоклассику, сейчас ничего от этого не осталось, WIDOW представляют не слишком тяжёлый архаичный heavy metal в духе Ozzy Osbourne или VAN HALEN.</p><p>С первых минут проигрывания этого альбома слушатель понимает, для кого работают WIDOW. Едешь ли ты на мотоцикле, на автомобиле или даже на автобусе, ты начинаешь наслаждаться движением, ритмичным гудением мотора и динамикой своей машины. Представляются популярные фильмы 90-х годов, где герой едет вдаль по бесконечной прерии по протыкающей его насквозь ветке шоссе. В общем, приятно.</p><p>Так происходит не долго. Уже после первой трети альбома начинает казаться, что WIDOW повторяют собственные песни. Раз за разом проигрываются одни и те же риффы, а вокальная мелодия, вообще, одинаковая от песни к песне. Я даже несколько раз откручивал запись назад, не веря собственным ушам, но песни действительно оказались идентичными. Некоторое время назад подобные альбомы встречались часто, особенно подобным грешили коллективы более тяжёлой направленности thrash, death metal. Рубят и рубят себе, а весь альбом свёртывается в один большой кусок чего-то. Иногда бывали случаи, когда этот кусок оказывался настолько приятным на слух, что мы слушали мелодию или ритмический рисунок все 45 минут, а потом включали заново. К сожалению, музыка WIDOW не настолько интересна.</p><p>Удивительная вещь. Группа пять лет готовила альбом, а получилось так, как будто записывала, а главное сочиняла его наспех. Вроде heavy metal, вроде заводит? Ну и класс. Новая песня. Не самый лучший вариант.</p>
+Автор: Vit Belov
+
+### 05.07.2016 reviews Good old song. And again, and again...
+
+<p>Americans WIDOW with her fifth album "Carved In Stone". The group has not released new music five years since the previous work "Life's Blood", which was released in the same way as new on Pure Steel Records. Once upon a time I wrote a review on the first album, "Midnight Strike". I can't remember what it was, how it was, it took more than ten years, but the CD overall, I liked it, judging by the written. The Americans then played a neoclassical, now nothing left, WIDOW are not too heavy archaic heavy metal in vein of Ozzy Osbourne or VAN HALEN.</p><p>From the first minute of playing of this album the listener understands for whom work of WIDOW. If you're riding on motorbike, on car or even on bus, you start to enjoy the movement, the rhythmic hum of the motor and dynamics of your car. Submitted popular movies of the 90s, where the hero rides into the distance at the endless prairie pierced through by a branch highway. In General, nice.</p><p>This happens not long. Already after the first third of the album begins to seem that the WIDOW repeated her own songs. Repeatedly playing the same riffs and vocal melody are, in General, the same from song to song. I even spun the tape back, not believing my own ears, but the songs really were identical. Some time ago such albums are often met, especially by bands of heavier direction of thrash, death metal. Hacking itself, but the whole album rolls up into one big piece of something. Sometimes there are cases when this piece was so pleasing to the ear, which we listen to a melody or rhythmic pattern all 45 minutes, and then played it again. Unfortunately, music of WIDOW is not that interesting.</p><p>Amazing thing. Group are preparing the album for five years, and it so happened, as if recorded and, most importantly, wrote it in a hurry. It's heavy metal, it excites? Well, that's the super, this is new song. Not the best option.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -22,6 +22,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.04.2012 news Новый альбом Tommy Vitaly
+
+<P>Второй сольный альбом гитариста<STRONG> SEVEN GATES Tommy Vitaly "Hanging Rock"</STRONG> выходит в начале мая на <STRONG>IceWarrior Records</STRONG>. В записи альбома приняли участие множество известных вокалистов, саисок которых можно найти в трек-листе ниже:</P>
+<P>1. <STRONG>Betrayer </STRONG>(feat. Mats Leven on vocals)<BR>2.<STRONG> Run With The Devil</STRONG> (feat. Carsten “Lizard Schulz” on vocals)<BR>3. <STRONG>Hands Of Time</STRONG> (feat. Todd LaTorre on vocals)<BR>4. <STRONG>Forever Lost</STRONG> (feat. David Defeis on vocals)<BR>5.<STRONG> Idol</STRONG> (feat. Michele Luppi on vocals, Norifumi Shima and Ferdy Doernberg solos)<BR>6. <STRONG>Misanthropy</STRONG> - Instrumental -<BR>7. <STRONG>Heavy Metal God</STRONG> (feat. Carsten “Lizard” Schulz on vocals, David Shankle guitar solo)<BR>8.<STRONG> Hanging Rock</STRONG> - Instrumental -(feat. Ferdy Doernberg keyboard solos)<BR>9. <STRONG>Icewarrior</STRONG> (feat. Zak Stevens on vocals)</P>
+<P>Тизер альбома можно послушать ниже.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/9f3JzNqCozc" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

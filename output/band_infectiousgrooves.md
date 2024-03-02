@@ -24,6 +24,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.09.2010 news Первый концерт INFECTIOUS GROOVES в С.Ш.А. за 10 лет
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17277.jpg" width=248 height=350>INFECTIOUS GROOVES</STRONG> - фанковый проект вокалиста <STRONG>SUICIDAL TENDENCIES</STRONG>&nbsp;Майка Мюира (<STRONG>Mike Muir</STRONG>) отыграет свой первый концерт в С.Ш.А.&nbsp;за более чем десятилетний срок. Произойдёт это 23 ноября в зале<STRONG> House Of Blues</STRONG>&nbsp;&nbsp;(West Hollywood, California).&nbsp;Это будет единственное выступление <STRONG>INFECTIOUS GROOVES</STRONG>&nbsp;в С.Ш.А. в&nbsp;2010.<BR itxtvisited="1"><BR itxtvisited="1">В 2008 году, <STRONG>INFECTIOUS GROOVES</STRONG> объявили о принятии в состав группы гитариста Тима Стюарта (<B itxtvisited="1">Tim Stewart</B>) и барабанщика Эрика Мура&nbsp;(<B itxtvisited="1">Eric Moore</B>). В настоящий момент состав группы выглядит слудующим образом:<BR itxtvisited="1"><B itxtvisited="1">Mike Muir</B> - вокал<BR itxtvisited="1"><B itxtvisited="1">Dean Pleasants</B> - гитара<BR itxtvisited="1"><B itxtvisited="1">Tim Stewart</B> - гитара<BR itxtvisited="1"><B itxtvisited="1">Steve Brunner</B> - бас<BR itxtvisited="1"><B itxtvisited="1">Eric Moore</B> - барабаны</P>
+<P>Последний, на сегодняшний день, альбом <STRONG>INFECTIOUS GROOVES</STRONG> <B itxtvisited="1">"Mas Borracho"</B> вышел в 2000 году.<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

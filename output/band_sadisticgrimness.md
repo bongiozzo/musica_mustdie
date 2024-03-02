@@ -16,6 +16,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.12.2009 news VORKREIST + SADISTIC GRIMNESS в Москве
+
+<P><IMG height=581 alt="" hspace=5 src="/images/shows_rus/2010.01/15837.jpg" width=400 align=right vspace=5 border=0>INDEPENDENT MUSIC INC. <BR><A href="http://vkontakte.ru/club338292">http://vkontakte.ru/club338292</A></P>
+<P>совместно с независимым лэйблом</P>
+<P>Daemon Worship Prod:<BR><A href="http://daemonworship.org/">http://daemonworship.org/</A></P>
+<P>представляют:</P>
+<P>Представляют первые концерты в России двух монстров Black/ Death Metal – <STRONG>VORKREIST</STRONG> (France) и <STRONG>SADISTIC GRIMNESS</STRONG> (Sweden)! Оба состава выпустили в уходящем 2009 сильнейшие альбомы и полны жажды творить хаос на территории Матушки России!</P>
+<P>VORKREIST, чьи ряды включают участников таких культов, как HELL MILITIA, MERRIMACK, BLACKLODGE, ANTAEUS, SECRETS OF THE MOON, NEO INFERNO 262, монументально возвращается после трёхлетнего перерыва с яростным "Sickness Sovereign", выводящим на новые уровни их одержимое дьявольское искусство. Вернувшись с практически не узнаваемым, но всё таким же экстремальным новым звуком, группа рушит границы творческого безумия, представляя на суд слушателя болезненный и психоделичный, мрачный и безумный коктейль из Black и Death Metal. Первое, что бросается в уши – это значительно возросшая доля Black Metal составляющей в звуке VORKREIST. Вокал Святого Винсента, знакомый по BLACKLODGE, отлично вписывается в общую картину беспробудной тьмы, проявляющейся чрез потоки ненавистного Black/ Death Metal из душ коллектива ножами в глотки слушателей.<BR>Hail Sickness Sovereign!<BR><A href="http://www.myspace.com/vorkreist"><U><FONT color=#0000ff>http://www.myspace.com/vorkreist</FONT></U></A></P>
+<P>Состав:<BR>Saint Vincent – вокал<BR>A.K. – гитара<BR>LSK – бас<BR>D. Terror – ударные<BR>EsX – гитара</P>
+<P>Дискография:<BR>Sermons of Impurity (Demo, 2001)<BR>Sabbathical Flesh Possession (Full-length, 2003)<BR>Sublimation XXIXA (Full-length, 2006)<BR>Sickness Sovereign (Full-length, 2009)</P>
+<P>SADISTIC GRIMNESS, в составе группы играют музыканты таких актов, как DIABOLICUM, ANGST, KILL и XUL, выпустили свой первый настоящий полнометражный альбом "Asteni" в феврале 2009. Скопление ярости и первозданной тьмы, содержащее в себе идеалы как классического олд-скульного шведского Death Metal, так и ненависть скандинавского Black Metal, SADISTIC GRIMNESS плевать хотели на устои современной сцены. Гнилой запах смерти и могил, реки крови со сцены, медленная и конвульсирующая боль, перерастающая в дьявольские вспышки ярости – это SADISTIC GRIMNESS. Их сравнивали с AUTOPSY и ARKHON INFAUSTUS, ASPHYX и GRAVE, но SG без преувеличения имеют своё собственное яркое лицо. Яркое от крови, разлагающихся тканей и червей, ползающих внутри.<BR><A href="http://www.myspace.com/sadisticgrimness"><U><FONT color=#0000ff>http://www.myspace.com/sadisticgrimness</FONT></U></A></P>
+<P>Состав:<BR>DD Executioner – вокал<BR>C. Carnivore – гитара<BR>J. Demiser – ударные<BR>R. Fleshripper – бас<BR>E. Violator – гитара</P>
+<P>Дискография:<BR>"From heaven to the abyss" demo (2000) <BR>"Bleed for the goat" demo (2001) <BR>"Vicious torture" CD (2004) <BR>"Split cunt of virgin mary" split w/ Kerberos (2004) <BR>"Rotting in solitude" promo (2007)<BR>"Asteni" CD (2009)</P>
+<P>23 ЯНВАРЯ (Суббота) – Санкт-Петербург<BR>В клубе АРКТИКА <BR>(м. Приморская, ул. Беринга, д. 38)</P>
+<P>24 ЯНВАРЯ (Воскресенье) – Москва<BR>В столичном клубе PLAN B <BR>(м. Новослободская, ул. Советской Армии, д.7)</P>
+<P>Цена билетов:<BR>700 руб. в предварительной продаже с 30 декабря;<BR>800 руб. в день концерта;<BR>*600 руб. для посетителей из других городов, т.е. за исключением Москвы и Московской области/ Санкт-Петербурга и Ленинградской области (заказ билетов возможен заранее, покупка в день концерта на проходной у организатора при предъявлении паспорта);<BR>*500 руб. для тех, кто желает посетить оба концерта (по 500 руб. каждый, при условии одновременной покупки билетов)</P>
+<P>Точки продаж:<BR>1. касса клуба ПЛАН Б<BR>2. билетное агентство TICKET BOY<BR>3. магазин Рок-Арсенал (м. Курская)<BR>4. консультации, дополнительная информация, заказ билетов, а так же предварительная продажа билетов через лэйбл Daemon Worship Prod.: <A href="mailto:dwprod@gmail.com"><U><FONT color=#0000ff>dwprod@gmail.com</FONT></U></A></P>
+<P>Адрес клуба: м. Новослободская, ул.Советской Армии, д.7<BR>Схема проезда: <A href="http://vkontakte.ru/photo-14025691_147133607"><U><FONT color=#0000ff>http://vkontakte.ru/photo-14025691_147133607</FONT></U></A></P>
+<P>Событие на ласт.фм: <A href="http://www.lastfm.ru/event/1348539"><U><FONT color=#0000ff>http://www.lastfm.ru/event/1348539</FONT></U></A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

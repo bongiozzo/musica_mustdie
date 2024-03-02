@@ -29,6 +29,15 @@ and they're sure that the cd Take Your Soul will help'em at this.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.09.2002 bios Gotha Bio...
+
+<p>Line-up: <BR> Daniel Salvatori (vocals), Fabian Wsoran (lead guitar), Fabrizio “tamas” Giosuи (rhythm guitar), Erik Wyvern (bass), Diego Allegrini (drums)<BR><BR> Story:<BR> The group was founded by the will of Fabrizio “tamas” Giosuи on December ’98; he started playing with his friend Nino (drums), jamming and doing cover songs by famous bands. On February ’99 the singer Corrado Romani was contacted through an announcement on the magazine Metal Shock. Meanwhile the first two songs were composed, a little bit different from their present versions. On April the bass player Michele Borri Joined the group. On July the four thrashers played on concert for the first time in a famous festival, but to have a more violent and extreme sound is essential a second guitar, in the person of Fabio Favretto (August ’99). On February 2000 Gotha substituted the drummer with Marco Ricco. The group acquires experience on the stage with many concerts always well done, playing in important festival as Lorenzo Live Rock Days and Thrashin’ Metal Day, in front of a big audience. On August they changed the drum player with Diego Allegrini, flawless musician and nice person. In September 2000 Gotha record their first promo, simply entitled "Promo 2000" (containing two songs, The Taste Of Life and Melancholy), which obtains an excellent reply from critics and fans. In July 2001 Michele leaves the band, replaced by the very technical Eric Wyvern; afterwards the singer Daniel Salvatori joins permanentely Gotha, replacing Corrado Romani (who has problems with his vocal chords). After various concerts in Italy (Rome, Turin, Pescara, Fabriano, etc)in March 2002 they enter the studio to record 3 tracks (Take Your Soul, The Battle and Banshee), intended to be included on the split ep 7" (expected for August), together with the deathers Abiura.<BR><BR> Contact:<BR> Fabrizio “tamas” Giosuи<BR> Fraz. Serradica, 75<BR> 60040 Fabriano (AN)<BR> Italy<BR> Tel: 0039-0732/259418<BR></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -147,6 +147,19 @@ Mastered at Strype Audio, Norway.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.10.2004 news VARATHRON возвращаются
+
+<P><STRONG>VARATHRON</STRONG> после долгих лет молчания возвращаются в обновлённом составе. Свежий диск "Crowsreign" выходит в конце ноября под флагом Black Lotus Records.</P>
+Автор: Morsus
+
+### 25.10.2004 news VARATHRON strike back
+
+<P>VARATHRON strike again with a new full length masterpiece titled "CROWSREIGN". Coming in the last days of November under the flag of Black Lotus Records with a total fresh-blood line-up.</P>
+Автор: Morsus
+
+
 ## Обсуждения
 
 

@@ -35,6 +35,70 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.03.2007 news Дебютный альбом TENT
+
+<P><IMG height=600 alt="" hspace=0 src="/images/news_rus/2007.03/11476.jpg" width=400 align=right border=5>1 февраля 2007 года между московской группой <STRONG>TENT</STRONG> и независимым лэйблом <STRONG>MAZZAR</STRONG> был подписан контракт на выпуск дебютного опуса группы “<STRONG>XXC</STRONG>”. Группа шла к этому альбому 2 года, ранее записав и представив вашему вниманию лишь EP “<STRONG>10$</STRONG>”. Прошло менее двух лет для того чтобы группа осознала свою однозначно металлическую направленность и начала работать над материалом “<STRONG>XXC</STRONG>” в этом ключе. Следует также отметить и тот факт, что альбом получился, с одной стороны, по музыке, довольно разнообразным, а с другой, очень концептуальным. О деталях альбома вы сможете прочитать чуть позже в пресс-релизе на сайтах лейбла и группы. Выход альбома намечен на конец марта. </P>
+<P><A href="http://tentative.ru/">http://tentative.ru/</A> </P>
+Автор: Vit Belov
+
+### 22.03.2007 news TENT: Новые трэки в сети
+
+<P>Московские modern metal’исты <STRONG>TENT</STRONG> опубликовали на своей <A href="http://www.myspace.com/tent1">официальной myspace страничке</A> два совершенно новых трека «<STRONG>Сердце, DIE</STRONG>» и «<STRONG>Останови</STRONG>», которые войдут в их дебютный альбом «<STRONG>ХХС</STRONG>», релиз которого состоится 26-го марта на лейбле <STRONG>MAZZAR Records</STRONG>. Запись, сведение и мастеринг были сделаны уже всем известным звукорежиссёром <STRONG>Сергеем Lazar’ем</STRONG> (<STRONG>5diez, <IMG height=300 alt="" hspace=0 src="/images/news_rus/2007.03/11494.jpg" width=300 align=right border=5>Безумные Усилия, Breakwar, Distemper</STRONG>) в <STRONG>Moscow Sound Studio</STRONG>, а над «<STRONG>Intro</STRONG>» трудились музыканты из Консерватории им. Чайковского. Оформлением альбома занимался<STRONG> W.Smerdulak</STRONG> также работавший над обложками <STRONG>Dark Princess, Аркона, Rossomahaar, Devilish Distance</STRONG> и многих других. </P>
+<P>Полный трек-лист альбома: <BR>1.&nbsp;<STRONG>INTRO<BR></STRONG>2.&nbsp;<STRONG>Слёзы Горят</STRONG><BR>3.&nbsp;<STRONG>Учись Ненавидеть</STRONG><BR>4.&nbsp;<STRONG>XXC</STRONG><BR>5.&nbsp;<STRONG>Сердце, DIE</STRONG><BR>6.&nbsp;<STRONG>Останови<BR></STRONG>7.&nbsp;<STRONG>Твои Последние 16…<BR></STRONG>8.&nbsp;<STRONG>Плача, Он Сойдёт С Креста</STRONG><BR>9.&nbsp;<STRONG>Stay Tentative</STRONG><BR>10.&nbsp;<STRONG>Хочешь Мира?!...Готовься К Войне!<BR></STRONG>11.&nbsp;<STRONG>Я Подарил Тебе Конец Света<BR></STRONG>12.&nbsp;<STRONG>OUTRO</STRONG></P>
+<P>Помимо этого, 31 марта в московском клубе “<STRONG>PLAN B</STRONG>” группа <STRONG>TENT </STRONG>примет участие в концерте вместе с <STRONG>Perimeter, Devilish Distance</STRONG> и<STRONG> Mortifer</STRONG>. Все посетители этого шоу смогут одними из первыми приобрести новый альбом «<STRONG>ХХС</STRONG>», а также диски всех остальных команд по специальной цене. </P>
+<P>Официальный сайт:<BR><A href="http://tentative.ru/">http://tentative.ru/</A> </P>
+Автор: Vit Belov
+
+### 17.05.2007 news Видео от TENT
+
+<P>Московская modern metal группа <STRONG>TENT</STRONG> выложила в сеть свой первый видеоклип&nbsp; на песню <STRONG>“Учись Ненавидеть</STRONG>”, снятого в поддержку альбома «<STRONG>Х.Х.С</STRONG>.». Все желающие могут свободно скачать эту песню пройдя по этой ссылке: <A href="http://upload.mediaportal.ru/1869053">http://upload.mediaportal.ru/1869053</A></P>
+Автор: Vit Belov
+
+### 12.04.2008 news Новый видеоклип TENT
+
+<P>Буквально на днях был полностью завершён второй по счёту клип московской modern metal группы<STRONG> TENT</STRONG> на новую песню “<STRONG>В Багровых Тонах</STRONG>”. Вот что на это&nbsp; говорят сами музыканты: “<EM>На этот раз -&nbsp; это не концертный клип, а полноценная постановочная работа, на съёмки которой было потрачено много сил и средств. Песня была записана на московской студии Gigant Rec., а сведение и мастеринг&nbsp; в&nbsp; NavahoHut Studio. Что касается съёмок самого клипа, здесь тоже происходило всё на достаточно высоком уровне. Все групповые съёмки проходили в Ледовом дворце в г.Зеленоград. Пришлось провести на льду около 5 часов при очень низкой температуре .&nbsp; Съёмки оказались не такими простыми, как нам поначалу показалось. Но все справились, результатом все остались довольны. Снимали всё это действо «Extreme Video»</EM>. </P>
+<P>
+<CENTER>
+<OBJECT height=350 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/V_Vn2zAlx48">
+   <embed src="http://www.youtube.com/v/V_Vn2zAlx48" type="application/x-shockwave-flash" width="425" height="350"> </embed> </OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 24.06.2008 news TENT в студии
+
+<P>Буквально на днях neo-trash/metalcore квинтет<STRONG> TENT</STRONG> приступил к записи своего второго по счёту полноформатного альбома в одной из московских студий. Далее материал отправится в Финляндию в <STRONG>ASTIA Studios</STRONG>, и над ним будут трудиться настоящие профи своего дела под руководством <STRONG>Anssi Kippo</STRONG>, повлиявшим в достаточной степени на звучание <STRONG>Children Of Bodom</STRONG>&nbsp; и других команд. Релиз нового альбома намечен на сентябрь 2008 года на лейбле <STRONG>Mazzar Records</STRONG>, после чего группа отправится в длительный тур.</P>
+<P>Также в самое ближайшее время в сети появится студийный дневник, повествующий о некоторых деталях в процессе записи нового релиза. Так что следите за обновлениями. Metal On!</P>
+Автор: Vit Belov
+
+### 28.08.2008 news TENT – треки с нового альбома доступны для скачивания
+
+<P>“<STRONG>Все дороги ведут в Ад</STRONG>” – так величают свой новый альбом московские металкорщики<STRONG> TENT</STRONG>. Потратив почти всё лето на запись своего второго опуса, а также много сил и энергии, группа с радостью и гордостью объявляет о запуске в печать этой пластинки.&nbsp; Выход её планируется в сентябре 2008 года на <STRONG>Mazzar Records</STRONG>. </P>
+<P>Запись проходила на гране физического и морального истощения, в работе над альбомом принимало участие большое количество людей, настоящих профессионалов своего дела,&nbsp; за что&nbsp;<STRONG>TENT</STRONG> от всего сердца благодарит их. Желание дать возможность поклонникам&nbsp; послушать “<STRONG>Все дороги ведут в Ад</STRONG>” переполнило ребят из группы, и было принято решение выложить 3 трека во всемирную сеть за месяц до официального выпуска альбома. Это даст возможность людям понять, что представляет TENT на сегодняшний день.</P>
+<P>Скачать и прослушать треки «<STRONG>Я Говорю Тебе Нет</STRONG>», «<STRONG>Все Против Всех</STRONG>» и «<STRONG>Все Дороги Ведут в Ад</STRONG>» можно здесь <A href="http://ifolder.ru/7870686">http://ifolder.ru/7870686</A>, <A href="http://vkontakte.ru/club336664">http://vkontakte.ru/club336664</A> и <A href="http://www.myspace.com/tent1">www.myspace.com/tent1</A></P>
+Автор: Vit Belov
+
+### 21.09.2008 news Новый альбом TENT
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2008.09/12873.jpg" width=450 align=right border=5>Второй полноценный альбом московского neo-thrash / metalcore квинтета<STRONG> TENT</STRONG>, озаглавленный как «<STRONG>Все Дороги Ведут в АD</STRONG>» увидит свет 29 сентября на независимом лейбле <STRONG>Mazzar Records</STRONG>. Уже сейчас группа опубликовала его обложку, оформление которой выполнил <STRONG>A-Ra</STRONG> (<STRONG>Слезы, Perimeter, Amatory</STRONG>). </P>
+<P>Напоминаем, что материал был записан в студии <STRONG>Moscow Sound</STRONG> под бдительным контролем <STRONG>Сергея «Lazar»</STRONG> (<STRONG>5diez, Безумные Усилия, Hostile Breed</STRONG>), сведен в легендарной финской&nbsp; <STRONG>Astia Studios</STRONG> под руководством <STRONG>Anssi Kippo</STRONG> (<STRONG>Children Of Bodom, Norther</STRONG>) и прошел мастеринг в финской же <STRONG>Sonic house T.M. studio</STRONG> (<STRONG>Misanthrope Count Mercyful, Tartharia</STRONG>). </P>
+<P>состав:<BR><STRONG>PARANOIA</STRONG> – VOCAL<BR><STRONG>SERG</STRONG> – GUITARS/CLEAN VOCAL<BR><STRONG>DEV</STRONG> – GUITARS <BR><STRONG>SLIP </STRONG>– BASS<BR><STRONG>NICK</STRONG> – DRUMS/BACK VOCAL</P>
+<P>Трэк-лист:<BR>1.<STRONG>Мой Мир Жесток</STRONG><BR>2.<STRONG>Я Говорю Тебе «Нет»<BR></STRONG>3.<STRONG>В Потоке Дней Найди Себя</STRONG><BR>4.<STRONG>Все Против Всех</STRONG><BR>5.<STRONG>В Багровых Тонах</STRONG><BR>6.<STRONG>На Линии Ее Огня<BR></STRONG>7.<STRONG>9.11<BR></STRONG>8.<STRONG>Правдивая Ложь</STRONG><BR>9.<STRONG>Все Дороги Ведут в Ад</STRONG></P>
+<P>+ Видео клип «<STRONG>В Багровых Тонах</STRONG>» </P>
+<P>Клип «<STRONG>В Багровых Тонах</STRONG>» можно посмотреть: <A href="http://www.myspace.com/mazzarrecords">www.myspace.com/mazzarrecords</A><BR>Клип «<STRONG>В Багровых Тонах</STRONG>» находится в ротации телеканала <STRONG>А-ONE</STRONG>, проголосовать за него можно отправив sms: A1 3350 на номер 1141</P>
+<P>Более полную информацию о группе можно получить тут:<BR>&nbsp;<A href="http://www.tentative.ru/">http://www.tentative.ru/</A><BR><A href="http://vkontakte.ru/club336664">http://vkontakte.ru/club336664</A></P>
+<P>Кстати, самые нетерпеливые смогут заказать «<STRONG>Все Дороги Ведут в АD</STRONG>» уже 26 сентября (на 3 дня раньше релиза) через интернет-магазин <A href="http://www.metalcd.ru/">www.metalcd.ru</A>.&nbsp; Ознакомиться с тремя песнями с альбома вы можете на <STRONG>myspace</STRONG>-страничке лейбла <STRONG>Mazzar Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.10.2008 reviews Хорошая мелодичная и тяжёлая работа в популярном жанре metalcore
+
+<P>Московская группа TENT выпускает уже второй альбом на Mazzar. Первая работа группы, вышедшая в обойме с другими Nu-Metal/Metalcore приобретениями лэйбла, прошла как-то незаметно для меня. Новую же пластинку москвичей, руководствуясь настойчивой рекламной кампанией проводимой Mazzar, я не смог пропустить.</P>
+<P>TENT играют качественный metalcore. Именно такой, какой называется американской версией европейского melodic death-metal. Узнаваемые риффы середины 90-х годов плюс чистый вокал, как правило, в припевах, и более запоминающиеся массами мелодии. То есть мелодии из американского nu-metal и alternative, как я понимаю своим слабым умом. К сожалению, я не обладаю большим количеством прослушиваний подобных пластинок, но то, что играют TENT, звучит вполне мило и не вызывает дурной реакции. Звучание очень плотное, чистый вокал, хоть и подходит для этого стиля, тоже не вызывает отвращения. В общем, хороший «зачётный» альбом.</P>
+<P>TENT должны понравиться всем любителям современной популярной металлической музыки. Они не загружают слушателя брутальным death-metal, но и мелодии их не настолько «сахарные», а звучание не настолько «кисельное», как у некоторых современных «попсовиков» от металла.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

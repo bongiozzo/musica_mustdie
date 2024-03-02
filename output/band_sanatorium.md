@@ -129,6 +129,44 @@ Sevared records
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.06.2003 news Турне SANATORIUM&#x2F;INTERNAL SUFFERING
+
+<p><IMG SRC="/images/news_rus/2003.06/4473.jpg" ALT="afisha" width="434" height="234" vspace="5" align="left">The Flaming Arts, Moral Insanity и Torment Inc представляют...</p>
+<p>Мини-турне SANATORIUM/INTERNAL SUFFERING, которое пройдет с 18 по 22 июня 2003 года по Беларуси и Украине. Колумбийские бруталлерос INTERNAL SUFFERING и словацкие death/grind монстры SANATORIUM выступят в следующих городах:</p>
+<p>18 июня (среда) - Брест, клуб "ВЕЗУВИЙ" (район Ковалёво) + GATEWARD<br> Начало в 17:30<br> Цена билета: 8000 рублей<br> 19 июня (четверг) - Минск, клуб "NC" (ул. Октябрьская, д. 17, станция метро "Первомайская") + SUFFERER<br> Начало в 18:00<br> Цена билета: 8000 рублей<br> 20 июня (пятница) - Гомель, клуб "АДРЕНАЛИН" + support<br> Начало в 18:00<br> Цена билета: 6000 рублей<br> 22 июня (суббота) - Киев (под мостом) + MENTAL DEMISE, HUNGER DISPATCH, DATURA<br> Начало в 17:00<br> Цена билета: 15 гривен</p>
+<p>Подробности по e-mail: contact@theflamingarts.com, eugen@moral-insanity.org, по телефонам: 8-10-375-0297-213-526 и 8-10-375-0296-656-422.</p>
+
+Автор: Morsus
+
+### 20.04.2004 news DISGORGE (MEX) + SANATORIUM in Europe
+
+<DIV>April 9 Velky Krtis (SK) - Martiner Pub + Possession, Maso<BR>April 10 Leopoldov (SK) - Kino Osveta + Mindsnare, C.O.S., Torment, Corrupted Melody<BR>April 11 Brno (CZ) - RC Brooklyn + Mincing Fury<BR>April 12 Prague (CZ) - Black Pes<BR>April 13 Ceske Budejovice (CZ) - MoDo<BR>April 14 Graz (A) - Q + Human Pesticide<BR>April 15 Solothurn (CH) - Kofmehl + Censored<BR>April 16 Lyon (F) - Le Confluent + Loathing</DIV>
+<DIV>April 17 <B>we need show for this date! email <A href="mailto:info@forensickmusic.com"><U>info@forensickmusic.com</U></A></B><BR>April 18 Rotterdam (NL) - Baroeg + Disavowed, Payemia, Fleshless... <BR>April 19 Wermelskirchen (D) - AJZ Bahdamn </DIV>
+<DIV>April 20 <B>we need show for this date! email </B><A href="mailto:info@forensickmusic.com"><B><U>info@forensickmusic.com</U></B></A><BR>April 21 Calais (F) - LґInfernal + Negura Bunget, Heresy, Abject<BR>April 22 London (UK) - The Garage + Gorerotted, Amputated<BR>April 23 Bristol (UK) - Full Moon + Gorerotted, Amputated<BR>April 24 Bradford (UK) - Market Tavern + Gorerotted, Amputated<BR>April 25 Nottingham (UK) - Old Angel + Gorerotted, Amputated<BR>April 26 Birmingham (UK) - The Royal George + Gorerotted, Amputated<BR>April 27 Gent (B) - The Frontline + Boiling Remains<BR>April 28 Hamburg (D) - Markthalle + Megura Bunget, The Stone<BR>April 29 Stettin (PL) - Slowianin + Perverse<BR>April 30 Leipzig (D) - Hellraiser + Infested<BR>May 1 Hauzenberg (D) - Walpurgis Metal Days + Haemorrhage, Sodom, Blood... </DIV>
+<DIV>May 2 Wien (A) - Andino + Deflorace, Parental Advisory<BR>May 3 Budapest (H) - Blue Hole + Deflorace, Gutted, Masqim Xul<BR>May 4 Koper (SLO) - MKC + Deflorace<BR>May 5 Modena (I) - Fassbinder + Deflorace, Bastard Saints<BR>May 6 Brescia (I) - La Sfinge + Deflorace, Bastard Saints<BR>May 7 Padova (I) - Country Star + Deflorace, Bastard Saints<BR>May 8 Porto DґAscoli (I) - Brunch Live + Deflorace, Bastard Saints<BR>May 9 Marseilles (F) -&nbsp; Hotel de la musique + Deflorace<BR>May 10 Toulouse (F) - Le 141 + Deflorace, Bloodshed<BR>May 11 Bordeaux (F) - Ubu bar + Deflorace, Gorgasm (Fr)<BR>May 12 Barcelona (SP) - Wawanco + Deflorace<BR>May 13 Murcia (SP) - Faktoria + Deflorace<BR>May 14 Granada (SP) - El Trent + Deflorace<BR>May 15 Mardid (SP) - Ritmo & Compas + Deflorace<BR>May 16 Irun (SP) - Tunk! + Deflorace, Impure<BR>May 18 La Roche Sur Yon (F) - Matsa cafe + Deflorace<BR>May 19&nbsp; t.b.a.<B>we need show for this date in North France! email <A href="mailto:BleedingTours@aol.com"><U>BleedingTours@aol.com</U></A>&nbsp;or <A href="mailto:info@forensickmusic.com"><U>info@forensickmusic.com</U></A>&nbsp;</B><BR>May 20-23 FUCK THE COMMERCE (D)&nbsp;without Sanatorium</DIV>
+Автор: Vit Belov
+
+### 14.03.2006 news Определились участники фестиваля Neurotic Deathfest
+
+<P>Определились участники фестиваля <B>Neurotic Deathfest</B>, который пройдет 13 мая в голландском городе Эйндховен. Ранее фестиваль был известен под названием <B>Rotterdam Deathfest</B>, но в этом году его было решено провести в другом городе. На двух сценах выступят 15 дэт-металических команд, а посетители смогут также облегчить свои кошельки на большом "металическом рынке". Вот кто будет развлекать зрителей: шведы <B>ANATA</B>, британцы <B>GOREROTTED</B> и <B>SARPANITUM</B>, австрийцы <B>PSYCROPTIC</B>, испанцы <B>AVULSED</B>, голландцы <B>DISAVOWED</B>, <B>ARSEBREED</B> и&nbsp;<B>PROSTITUTE DISFIGUREMENT</B>, американцы <B>INSIDIOUS DECREPANCY</B>, японцы <B>INFECTED MALIGNITY</B>, словаки <B>SANATORIUM</B>, чехи <B>GODLESS TRUTH</B>, итальянцы <B>VOMIT THE SOUL</B>,&nbsp;бразильцы <B>MENTAL HORROR</B> и бельгийцы <B>EMETH</B>.</P>
+Автор: Ixtiandr
+
+### 03.10.2006 news Концерт SANATORIUM перенесён
+
+<P>Концерт <STRONG>SANATORIUM</STRONG>, который должен был состоятся 12 октября в клубе "Релакс" перенесён на декабрь.</P>
+Автор: Vit Belov
+
+### 08.09.2007 news SANATORIUM в Москве
+
+<P><IMG height=283 alt="" hspace=0 src="/images/shows_rus/2007.09/11849.jpg" width=400 align=right border=5>12 СЕНТЯБРЯ - Клуб “РЕЛАКС”<BR>COYOTE RECORDS PRESENTS :<BR><A href="http://www.coyoterecords.ru/">www.coyoterecords.ru</A><BR>&nbsp;<BR>SANATORIUM -Словакия - BRUTAL DEATH<BR>DATURA - Украина - BRUTAL DEATH<BR>MEMBRO GENITALI BEFURCATOR - Москва - BRUTAL DEATH GRIND<BR>EXHUMATION - Уфа - BRUTAL DEATH GRIND<BR>ANAL NOSOROG - Москва - BULDOZER SCUM GRIND<BR>AVOID - Москва - EXPERIMENTAL MELODIC DEATH<BR>&nbsp;<BR>Начало в 17-00 <BR>&nbsp;<BR>Адрес: ул. Мельникова, 7 (М. Дубровка / Пролетарская) <BR>Тел:(095) 275-9146 . <A href="http://www.relaxclub.ru/">http://www.relaxclub.ru</A><BR>&nbsp;<BR>ЦЕНА БИЛЕТА :<BR>Предварительно – 300 руб.<BR>В день концерта -450 руб.</P>
+<P>SANATORIUM (Словакия) <A href="http://www.sanatorium.nfo.sk/">http://www.sanatorium.nfo.sk/</A><BR>Первый и единственный концерт Словацкой легенды в рамках (BRUTAL DOMINATION FLESH TOURE # 1)самого мясного и мозгодрабительного брутала даст концерт в Москве ! <BR>Группа существует 10 лет и за все время успела объехать с концертами весь земной шар и вот теперь <BR>возможность увидеть в Москве живьем появилась и у вас ! Если такие группы как Dying Fetus,Deeds of flesh,Suffocation <BR>Не просто какие то слова для тебя , то ты должен быть ! <BR>&nbsp;<BR>DATURA (Украина) <A href="http://datura.net.ua/">http://datura.net.ua/</A><BR>Под именем DATURA начала действовать в мае 1999 г. Первый полноформатник "Fucking State" записали в собственной Durman Records. Выходят два split-MC с нашим участием. Это DATURA «Odurmanization» (2-песенное демо, 1 живой трек and 2 кавера Slayer) /MENTAL DEMISE «Psychopenetration» and DATURA «Live in Sfinctor» / BREDOR «Zhivoe Bredopomeshatelstvo».<BR>Последний выпущенный этим составом релиз стал "Kaput", записанный на Durman Rec.Третий же полноформатник был записан в апреле 2005 г. Этим LP стал "Impulse 80", выпущенный на Coyote rec. Следующем релизом стал mini-CD "Mastodont 96" в мае 96 .<BR>Техника , мощ . брутал и угар вот что представляет группа в музыкальном плане !<BR>&nbsp;<BR>MxGxBx (Москва) <A href="http://www.myspace.com/membrogenitalibefurcator">http://www.myspace.com/membrogenitalibefurcator</A><BR>Московская Дивизия преподносит слушателю брутальный стаф в лучших традициях Carnivore Deprosopus, Purulent, Cannibal Corpse, Jungle Rot . В музыкальном плане экстремальный brutal death с могучей агрессией и пулемётными ритмами</P>
+<P>ANAL NOSOROG (Москва) <A href="http://www.analnosorog.com/">www.analnosorog.com</A><BR>Анал Носорог - ведущая московская грайндкор группа, на счету которой подмена музыкантов Anal Cunt для российского тура Сэта Путнэма, поддержка лучшего suspension шоу от Steel Team на питерской тату-конвенции, концерты в более чем 50 городах России и СНГ, масса релизов по всему миру, предстоящий негатив тур по России, Украине и Финляндии и многое другое. Это зрелище пропустить не стоит!<BR>&nbsp;<BR>AVOID (Москва) <A href="http://www.myspace.com/avoidrussia">http://www.myspace.com/avoidrussia</A><BR>Avoid существуют уже 3 года, хотя полноценно группа сформировалась только год назад, до этого постоянно менялся состав и создавался свой стиль. Но уже за этот год они не раз показали на что способны, играя в своем неповторимом стиле Experimental Melodic Death Metal. Avoid выступают с топовыми российскими группами, а так же в этом году участвовали в туре по РФ с легендой польского death metal Behemoth</P>
+<P>КОНЦЕРТ БУДЕТ В РАМКАХ ТУРА<BR>BRUTAL DOMINATION FLESH TOURE # 1<BR>5 Оренбург <BR>6 Магнитогорск <BR>7 Тюмень <BR>8 Пермь<BR>9 Тольятти <BR>10 Самара <BR>11 Рязань <BR>12 Москва</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

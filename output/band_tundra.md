@@ -39,6 +39,9 @@ Rereleased December 25th 2007 as a 12" on Slava Satan Records limited to 500 cop
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

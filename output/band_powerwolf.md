@@ -121,6 +121,134 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.01.2008 reviews Heavy-metal с налётом вампиризма, мистицизма и псевдосатанизма
+
+<P>Давно уже мне так не нравилась мелодия в heavy-metal. Вроде бы думаешь, что уже всё слышал и поразить можно чем-то сложным и интересным, а тут… “We Take It From The Living” – первая композиция с нового альбома POWERWOLF “Lupus Dei” бьёт точно в цель. Раскатистый гимноподобный припев и прямолинейные риффы в куплетах. Круто…</P>
+<P>Первое знакомство с POWERWOLF у нашего слушателя должно было состояться два года назад. Фоно по лицензии Metal Blade выпустили дебют группы, и сразу в формате digi-pack, что настраивало на серьёзный лад. В питерской конторе поставили на эту группу. К сожалению, ни дебют, ни второй альбом, о котором сейчас речь, не произвели фурора в нашей стране. Я же соглашусь с Фоно, потенциал стать коммерчески успешным проектом у POWERWOLF есть. Замогильный имидж группы может быть востребован сейчас, ребята предстают в буклете то ли вампирами, то ли ещё кем. Правда в руках они держат крест, что совсем запутывает и наталкивает на сравнения с финнами LORDI. Колоритный фронтмэн Attila Dorn тоже добавляет группе шансов на успех у широкой публики. Я же обращу внимание в первую очередь на музыку, которая очень мелодична и вместе с тем напориста. Так же, как и в случае с LORDI, POWERWOLF достойны внимания и помимо внешних атрибутов. Про мощнейший хит в самом начале я уже рассказал, но есть ведь и другие трэки, да и на прошлом альбоме цепляющих мелодий хватало. Вокалист Аттила тоже, несмотря на свой красный кафтан, петь умеет. Я бы сравнил его голос с Piet Sielk (IRON SAVIOR) и даже с Hansi Kursch (BLIND GUARDIAN). Дополнен диск тремя концертными бонус-трэками. Видно, что над шоу коллективу надо ещё поработать. Особенно впечатляют вентиляторы, которые раздувают кафтан вокалиста, оголяя его мощное пузо.</P>
+<P>Отличный выбор для любителей heavy-metal. Лёгкий налёт вампиризма, псевдосатанизма и мистицизма идёт на пользу слегка застоявшемуся стилю. Уже за одно это свежее веяние POWERWOLF заслуживают высокого балла.</P>
+Автор: Vit Belov
+
+### 23.09.2008 news POWERWOLF собираются в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>POWERWOLF</STRONG> войдут в студию <STRONG>Fredman </STRONG>в ноябре для записи своей третьей пластинки.</FONT></P>
+Автор: Vit Belov
+
+### 22.01.2009 news Дата релиза POWERWOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> POWERWOLF</STRONG> выйдет 27 апреля на <STRONG>Metal Blade</STRONG>. В эти дни группа работала в консерватории Саарбрюкена, где записала хоры для восьми песен будущей пластинки. 25 певцов исполнили свои партии.</FONT></P>
+Автор: Vit Belov
+
+### 26.02.2009 news Новый альбом POWERWOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> POWERWOLF</STRONG> <STRONG>"Bible Of The Beast" </STRONG>выйдет 27 апреля на <STRONG>Metal Blade</STRONG>. Пластинка, сведённая <STRONG>Fredrik Nordstrom</STRONG> (<B itxtvisited="1">IN FLAMES</B>, <B itxtvisited="1">HAMMERFALL</B>, <B itxtvisited="1">ARCH ENEMY</B>), называется самой тяжёлой от этой группы за всю историю. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Raise Your Fist, Evangelist</B><BR itxtvisited="1">02. <B itxtvisited="1">Moscow After Dark</B><BR itxtvisited="1">03. <B itxtvisited="1">Panic In The Pentagram</B><BR itxtvisited="1">04. <B itxtvisited="1">Catholic In The Morning... Satanist At Night</B><BR itxtvisited="1">05. <B itxtvisited="1">Seven Deadly Saints</B><BR itxtvisited="1">06. <B itxtvisited="1">Werewolves Of Armenia</B><BR itxtvisited="1">07. <B itxtvisited="1">We Take The Church By Storm</B><BR itxtvisited="1">08. <B itxtvisited="1">Resurrection By Erection</B><BR itxtvisited="1">09. <B itxtvisited="1">Midnight Messiah</B><BR itxtvisited="1">10. <B itxtvisited="1">St. Satan's Day</B><BR itxtvisited="1">11. <B itxtvisited="1">Wolves Against The World</B></P>
+Автор: Vit Belov
+
+### 04.03.2009 news Обложка POWERWOLF
+
+<P><STRONG>POWERWOLF </STRONG>опубликовали обложку нового альбома <STRONG>"Bible Of The Beast"</STRONG>, выходящего 27 апреля.</P>
+<P>
+<CENTER><IMG height=383 src="/images/news_rus/2009.03/13701.jpg" width=383 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.03.2009 news Новый хит POWERWOLF
+
+<P><STRONG>POWERWOLF </STRONG>опубликовали новую песню со звучным названием <STRONG>"Raise Your Fist, Evangelist" </STRONG>здесь: <A href="http://www.myspace.com/metalbladeeurope">http://www.myspace.com/metalbladeeurope</A></P>
+Автор: Vit Belov
+
+### 08.05.2009 news POWERWOLF попали в чарты
+
+<P>Новый альбом <STRONG>POWERWOLF</STRONG> <STRONG>"Bible Of The Beast" </STRONG>попал на 76-ое место в чартах Германии.</P>
+Автор: Vit Belov
+
+### 12.05.2009 reviews Обхохочешься
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Интернациональная стая «нелюдей» POWERWOLF под предводительством ужасающего толстенного вожака Attila Dorn вновь порадовала любителей heavy-metal с театральным оттенком. Их третья работа “Bible Of The Beast” окончательно развеяла все сомнения в серьёзности намерений коллектива по превращению тяжёлой музыки в horror балаган.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Если раньше у POWERWOLF было очень много качественной тяжёлой музыки и немного грима на лице, то сейчас случилось ровно наоборот. Буклет выполнен на высочайшем «комикс» уровне, концептуальное оформление, церковный орган и хор. К сожалению, за всем этим великолепием куда-то пропали хиты. Вся музыка POWERWOLF наполнена пафосом, хорами и распевками, а также выкриками «Хой!» и «Хей!». Это изрядно радует первые три песни, но затем начинает раздражать, так как за всей этой мишурой не обнаруживается ровно ничего. Есть здесь и два хита для жителей стран СНГ. Третий трэк “Moscow After Dark”, где господин Dorn активно радуется падению советского режима (не рановато ли опомнился?), и седьмой трэк “Werewolves of Armenia”, где на мотив «Полюшко, поле» POWERWOLF рассказывают о каких-то «оборотнях Армении». Очень весело! Подобным мракобесием наполнена вся эта пластинка.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Такие группы есть. Имидж, шоу, красота… Не многим из этих коллективов удаётся сохранить себе качественный музыкальный материал, увлекшись обёрткой. Предыдущая работа POWERWOLF содержала в себе несколько великолепных хитов. Эта не содержит. Ну, не считать же за хит «Полюшко, поле», его уже перерабатывали. “Bible Of The Beast” – набор второсортных эпиков, раскрашенных в столь яркие цвета, что глазам и ушам больно.</FONT></P>
+Автор: Vit Belov
+
+### 30.11.2010 news POWERWOLF собираются в студию
+
+<P><STRONG><IMG height=239 alt="" hspace=0 src="/images/news_rus/2010.11/17700.jpg" width=300 align=right border=1>POWERWOLF</STRONG> войдут в студию в декабре для записи нового альбома, который выйдет в 2011 году на <STRONG>Metal Blade</STRONG>. Группа обещает материал в духе последней своей работы <STRONG>'Bible Of The Beast', </STRONG>которая вышла в 2009 году. Запись пройдёт в той же <STRONG>Kohlekeller Studios, </STRONG>а сведение в <STRONG>Studio Fredman.</STRONG></P>
+<P>Предыдущие три альбома <STRONG>POWERWOLF</STRONG> вышли на<STRONG> Фоно</STRONG> в нашей стране.</P>
+Автор: Vit Belov
+
+### 18.05.2011 news Новый альбом POWERWOLF
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.05/19488.jpg" width=400 align=right border=0>POWERWOLF</STRONG> назвали <STRONG>"Blood Of The Saints" </STRONG>свой четвёртый альбом, который выйдет 29 июля на <STRONG>Metal Blade</STRONG>. Обложку нарисовал гитарист коллектива <STRONG>Matthew Greywolf</STRONG>. Трек-лист:</P>
+<P>01. <B>Agnus Dei</B> (Intro)<BR>02. <B>Sanctified With Dynamite</B><BR>03. <B>We Drink Your Blood</B><BR>04. <B>Murder At Midnight</B><BR>05. <B>All We Need Is Blood</B><BR>06. <B>Dead Boys Don't Cry</B><BR>07. <B>Son Of A Wolf</B><BR>08. <B>Night Of The Werewolves</B><BR>09. <B>Phantom Of The Funeral</B><BR>10. <B>Die, Die, Crucified</B><BR>11. <B>Ira Sancti (When The Saints Are Going Wild)</B></P>
+Автор: Vit Belov
+
+### 09.07.2011 news Новое видео POWERWOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-ролик на песню <STRONG>"We Drink Your Blood" </STRONG>от <STRONG>POWERWOLF</STRONG> можно посмотреть ниже. Песня взята с новейшего альбома интернациональной группы <STRONG>"Blood Of The Saints", </STRONG>который выйдет 29 июля на <STRONG>Metal Blade</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<iframe width="560" height="315" src="http://www.youtube.com/embed/aFH4lQuRd3s" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 05.02.2012 articles POWERWOLF в Москве: &quot;Раззудись плечо, размахнись рука!&quot;
+
+<P>Вместо предисловия…</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/d4GzRXXwAsw?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/d4GzRXXwAsw?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P>
+<P><EM>4 февраля 2012 года Москву посетили немцы, возглавляемые инфернальным румыном Аттилой. Да, в клубе Plan B выступили POWERWOLF. Главное неожиданностью вечера стала более чем приличная посещаемость концерта в этот морозный день.</EM></P>
+<P><STRONG>POWERWOLF</STRONG> выпустили в конце прошлого года четвёртый альбом, который продолжил традиции первых трёх – хитовые мелодии, комическо-ужасный имидж и тексты, которые сделают честь любому комедийному фильму ужасов. Не знаю, как у поклонников брутального метала, но у людей, которые смотрят на мир широко открытыми глазами творчество POWERWOLF вызывает восторг, схожий с истерикой. Вчера POWERWOLF полностью оправдали ожидания публики. Мы получили то, зачем пришли в клуб <STRONG>PLAN B</STRONG>, и многих, кому не хватило место в гардеробе, и кто стоял на морозе в очереди, когда внутри клуба перед постом охраны было полно свободного места, простили все эти накладки за один только ужасающе прекрасный вопль вокалиста -«Аллилуйя». Стоит отметить, ещё одно приятное начинание организаторов, которые не стали выпускать на ковёр платный разогрев, ограничившись лишь главным блюдом вечера.</P>
+<P>POWERWOLF относятся к своей музыке с юмором. По крайней мере, они должны к ней так относиться, потому что их шоу представляет собой великолепный бурлеск. При этом совершенно не важно, как и что играют ребята. Никого не волнует, что в концертном варианте у POWERWOLF отсутствует бас-гитара, что все мелодии мы где-то уже слышали, а музыка, играемая на сцене, мало отношения имеет к металу. Шоу группы больше напоминает пьяные выходки ONKEL TOM или даже помпезные ужастики от KISS. Конечно же, чтобы сравниться с последними, POWERWOLF необходимо выходить на более высокие бюджеты, но мне почему-то кажется, что им это может быть по силам. Было бы прикольно, поджечь какую-нибудь пентаграмму и пригласить хор мальчиков-служек, которые будут весело открывать рот на её фоне.</P>
+<P>Я думаю, что все посетившие этот концерт остались очень довольны. Мелодии POWERWOLF близки российскому слушателю. Они играют «<STRONG>Полюшко-поле</STRONG>», танцуют «<STRONG>Гопак</STRONG>» и подражают любимой у нас группе<STRONG> Чингиз-Хан</STRONG>, что ещё нужно, чтобы приятно провести вечерок? Смущает только одно. POWERWOLF представляют музыку, под которую танцуют пьяные советские солдаты в голливудских фильмах 80-х годов. Раньше мы тыкали в экран и смеялись над тупостью американцев, а теперь сами весело пляшем под такую музыку. Наверное, мы раскрепостились, окончательно скинув с плеч закрепощённость советского времени. Что ж, это приятно.</P></CENTER>
+Автор: Vit Belov
+
+### 12.05.2013 news POWERWOLF: подробности пятого альбома
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.05/25690.jpg" width=400 height=400>Heavy/power металлисты <STRONG>POWERWOLF</STRONG>, обнародовали подробности своего нового альбома. </P>
+<P>Диск будет называться <STRONG>"Preachers Of The Night"</STRONG> и содержать 11 гимнов Раю, Аду, и Хэви Метал.</P>
+<P>Выпуск <STRONG>"Preachers Of The Night"</STRONG>&nbsp;запланирован на конец 2013 г. на <STRONG>Napalm Records</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01.<STRONG> Amen & Attack<BR></STRONG>02. <STRONG>Secrets Of The Sacristy<BR></STRONG>03. <STRONG>Coleus Sanctus<BR></STRONG>04. <STRONG>Sacred & Wild<BR></STRONG>05. <STRONG>Kreuzfeuer</STRONG><BR>06. <STRONG>Cardinal Sin<BR></STRONG>07. <STRONG>In The Name Of God (Deus Vult)<BR></STRONG>08. <STRONG>Nochnoi Dozor<BR></STRONG>09. <STRONG>Lust For Blood<BR></STRONG>10. <STRONG>Extatum Et Oratum<BR></STRONG>11. <STRONG>Last Of The Living Dead </STRONG></P>
+Автор: Headcrusher
+
+### 01.07.2013 news POWERWOLF: видеоклип &quot;Amen &amp; Attack&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип загадочной heavy/power формации <STRONG>POWERWOLF</STRONG> на трек <STRONG>"Amen & Attack"</STRONG> доступен для просмотра ниже. Песня взята с нового альбома <STRONG>"Preachers Of The Night"</STRONG>, который выходит 19 июля на лейбле <STRONG>Napalm</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/KmqgRAXygDg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 19.03.2015 news POWERWOLF: новый альбом в июле
+
+<P>"Румынская" группа <STRONG>POWERWOLF</STRONG> опубликовала&nbsp;название и обложку своего грядущего альбома, выпуск которого запланирован на июль 2015 года.</P>
+<P>Диск будет носить название&nbsp;<STRONG>"Blessed & Possessed"</STRONG>. Его обложку, за которую снова несёт ответственность <STRONG>Matthew Greywolf</STRONG>, гитарист коллектива, можно увидеть ниже.&nbsp;</P>
+<P>В настоящий момент группа наносит последние штрихи к альбому, делая его сведение в <STRONG>Studio Fredman</STRONG> (Швеция), при непосредственной помощи кудесника звука - Фредрика Нордстрёма (<STRONG>Fredrik Nordstrom</STRONG>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.03/27700.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 11.03.2016 articles POWERWOLF в Москве: &quot;Музыка не для нас, а для них&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2016.03/28947.jpg" width=300 height=420>5 марта в московском клубе "Ray Just Arena" выступили POWERWOLF. Это был уже третий визит немцев в столицу нашей Родины. И прошёл он с ещё большим успехом. Как сообщал со сцены вокалист коллектива Attila Dorn, в первый приезд было 600, во второй — 1200, а сегодня — 2500!!! Над подобной динамикой я думал не один день, но так и не нашёл ей объяснения.</P>
+<P>Мне довелось присутствовать на первом шоу POWERWOLF в клубе "Plan B", и уже тогда коллектив поразил меня своей безбашенностью и примитивом, что совсем не сказалось на приёме публикой, который можно было назвать поразительно тёплым. С тех пор ничего особо не изменилось. POWERWOLF выпустили пару альбомов с всё более и более читаемыми композициями, так и не нашли себе басиста, да и шоу по-прежнему заключается в метании по сцене клавишника. Разве что сам вокалист стал больше разговаривать с публикой, что моих соседей в зале немного напрягало. Огромный зал "Ray Just Arena", заполненный до отказа принимал POWERWOLF всё с тем же энтузиазмом. На первый взгляд немного изменился контингент посетителей, теперь немцы явно завоевали популярность у более молодого слушателя, который совершенно точно даже не знает, что такое power metal, не особо разбирается в стилевых изысках или звуке, не покупает дисков, но встречает каждое движение музыкантов с таким неподдельным воодушевлением, что становится немного не по себе. На моей памяти даже воссоединение Udo и ACCEPT не вызывало такого восторга, как рядовой концерт в Москве от POWERWOLF.</P>
+<P>Объяснить посещаемость простой популярностью POWERWOLF не получится. Грубо говоря, по моим источникам эта немецкая группа не является самой популярной командой, но подобного аншлага на концерте традиционной металической команды мне давно видеть не приходилось. Это если рассматривать POWERWOLF с традиционной точки зрения, чего, как я уже упоминал, публика явно не делает. Немецкий коллектив представляет какой-то своеобразный культ, возникший в нашей стране, а их музыка не слушается как обычный метал, это нечто мелодичное, нашедшее отклик в русских душах. Такого статуса в Европе POWERWOLF за всё время существования и сотню концертов добиться не удалось, а здесь их можно привозить теперь каждый год, и они будут собирать и собирать залы. Я отношу подобную реакцию публики к любви к так называемым юмористическим группам. Было не похоже, что молодые люди воспринимают мракобесие, происходящее на сцене, как-то серьёзно, скорее всего Attila представлялся эдаким смешным клоуном-фриком, на которого прикольно посмотреть и подивиться. </P>
+<P>С точки зрения музыки POWERWOLF не представляют никакого интереса. Мелодичные заезженные композиции с пронзительным вокалом с примесью неоклассики и стадионного рока, исполненные нарочито попсово без внятной ритм-секции, с какими-то дурными визгливыми гитарами. Всё это вряд ли впечатлит поклонников тяжёлой музыки, но POWERWOLF теперь выступают не для них. В нашей стране, по крайней мере.&nbsp; </P>
+Автор: Vit Belov
+
+### 25.06.2016 news POWERWOLF выпускают концертный DVD&#x2F;Blu-Ray
+
+<p>29 июля на<strong> Napalm records</strong> выходит концертный 2DVD/2Blu-Ray/CD <strong>POWERWOLF "The Metal Mass - Live"</strong>. На издание войдут три полных концерта, два документальных фильма и несколько видео-клипов. </p><p>Трек-лист:</p><p>DVD/Blu-Ray 1:</p><p>Masters of Rock 2015 Show</p><p>1. Sanctified With Dynamite<br>2. Coleus Sanctus <br>3. Army Of The Night <br>4. Amen & Attack&nbsp;<br>5. Resurrection By Erection<br>6. Armata Strigoi <br>7. Sacred & Wild &nbsp; &nbsp; &nbsp;<br>8. All we need is Blood<br>9. Drumsolo<br>10. Kreuzfeuer <br>11. Werewolves of Armenia<br>12. We drink your blood<br>13. Lupus Dei<br>14. Raise Your Fist, Evangelist<br>15. In The Name Of God (Deus Vult)</p><p>Summer Breeze 2015 Show</p><p>1. Sanctified with Dynamite<br>2. Coleus Sanctus <br>3. Army Of The Night <br>4. Amen & Attack&nbsp;<br>5. Resurrection by Erection<br>6. Armata Strigoi <br>7. Kreuzfeuer <br>8. Werewolves of Armenia<br>9. In The Name Of God (Deus Vult)<br>10. Blessed & Possessed<br>11. All We Need Is Blood<br>12. Dead Boys Don‘t Cry<br>13. We drink your blood<br>14. Lupus Dei</p><p><br>Videoclips<br>1. Amen & Attack&nbsp;<br>2. Army Of The Night <br>3. We drink your blood<br>4. Sanctified with Dynamite</p><p>A Day At Summer Breeze (Festival Documentation)</p><p>DVD/Blu-Ray2:</p><p>Wolfsn&#228;chte-Tour 2015 Show<br>1. Blessed & Possessed<br>2. Coleus Sanctus <br>3. Amen & Attack&nbsp;<br>4. Cardinal Sin<br>5. Army Of The Night <br>6. Resurrection by Erection<br>7. Armata Strigoi <br>8. Drumsolo<br>9. Dead Boys Don‘t Cry<br>10. Let There Be Night&nbsp; <br>11. Werewolves of Armenia<br>12. In The Name Of God (Deus Vult)<br>13. We drink your blood<br>14. Lupus Dei<br>15. Sanctified with Dynamite<br>16. Kreuzfeuer <br>17. All We Need Is Blood</p><p>Kreuzweg - Of Wolves And Men (Tour Documentation Movie)</p><p>&nbsp;<center><img width="650" height="882" src="/images/news_rus/2016.06/29479.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 25.06.2016 news New DVD of POWERWOLF
+
+<p>29th of July, <strong>Napalm records</strong>, Live 2DVD/2Blu-Ray/CD of<strong> POWERWOLF "The Metal Mass - Live"</strong> will be released. The edition will include three complete concerts, two documentaries and several video clips.</p><p>Track list:</p><p>DVD/Blu-Ray 1:</p><p>Masters of Rock 2015 Show</p><p>1. Sanctified With Dynamite<br>2. Coleus Sanctus <br>3. Army Of The Night <br>4. Amen & Attack&nbsp;<br>5. Resurrection By Erection<br>6. Armata Strigoi <br>7. Sacred & Wild &nbsp; &nbsp; &nbsp;<br>8. All we need is Blood<br>9. Drumsolo<br>10. Kreuzfeuer <br>11. Werewolves of Armenia<br>12. We drink your blood<br>13. Lupus Dei<br>14. Raise Your Fist, Evangelist<br>15. In The Name Of God (Deus Vult)</p><p>Summer Breeze 2015 Show</p><p>1. Sanctified with Dynamite<br>2. Coleus Sanctus <br>3. Army Of The Night <br>4. Amen & Attack&nbsp;<br>5. Resurrection by Erection<br>6. Armata Strigoi <br>7. Kreuzfeuer <br>8. Werewolves of Armenia<br>9. In The Name Of God (Deus Vult)<br>10. Blessed & Possessed<br>11. All We Need Is Blood<br>12. Dead Boys Don‘t Cry<br>13. We drink your blood<br>14. Lupus Dei</p><p><br>Videoclips<br>1. Amen & Attack&nbsp;<br>2. Army Of The Night <br>3. We drink your blood<br>4. Sanctified with Dynamite</p><p>A Day At Summer Breeze (Festival Documentation)</p><p>DVD/Blu-Ray2:</p><p>Wolfsnдchte-Tour 2015 Show<br>1. Blessed & Possessed<br>2. Coleus Sanctus <br>3. Amen & Attack&nbsp;<br>4. Cardinal Sin<br>5. Army Of The Night <br>6. Resurrection by Erection<br>7. Armata Strigoi <br>8. Drumsolo<br>9. Dead Boys Don‘t Cry<br>10. Let There Be Night&nbsp; <br>11. Werewolves of Armenia<br>12. In The Name Of God (Deus Vult)<br>13. We drink your blood<br>14. Lupus Dei<br>15. Sanctified with Dynamite<br>16. Kreuzfeuer <br>17. All We Need Is Blood</p><p>Kreuzweg - Of Wolves And Men (Tour Documentation Movie)</p><p>&nbsp;<center><img width="650" height="882" src="/images/news_rus/2016.06/29479.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### POWERWOLF в Москве (4 февраля, клуб &quot;Plan B&quot;)

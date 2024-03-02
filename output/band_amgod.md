@@ -32,6 +32,9 @@ Synthesizing, Rhythm, Program, Radio & Tape.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

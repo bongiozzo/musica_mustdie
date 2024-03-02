@@ -12,6 +12,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2000 reviews Зачем такое выпускать???
+
+<p>Зачем такое выпускать??? Не пойму! Ведь заранее понятно, что это совершенно провальный материал. К сожалению, не удалось выяснить откуда эта группа. Интересно узнать, где записывают столь жалкую музыку. Наблюдаются попытки сыграть что-то похожее на величественный black-metal, с помпезными хоралами, но без клавишных и без....соло-гитары(!!!). Более худшего альбома не припоминаю. Все однообразно, сыро, примитивно и совершенно неинтересно.</p>
+
+Автор: Dimas
+
+### 04.07.2000 reviews What for such issue???
+
+<p>What for such issue??? I shall not understand! You see it is beforehand clear, that it is perfect bad material. Infortunately, this group was not possible to clarify whence. It is interesting to find out, where note so 'cool' music. The attempts are observed to play something similar on majestic black-metal, with choruses, but without keyboard and without.... solo-guitars (!!!). More worse album I do not remember. All is uniform, is primitive and it is completely not interesting.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

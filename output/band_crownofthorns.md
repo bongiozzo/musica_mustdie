@@ -61,6 +61,33 @@ Marcus Sunesson - Guitars
 
 * C группой "The Crown" 
 
+## Публикации
+
+### 26.02.2001 news Johan Lindstrand покинул The CROWN
+
+<p> После десяти лет, проведенных в шведской дэт-метал группе The Crown, вокалист Johan Lindstrand принял решение уйти. Но группа не распадается, более того, The Crown уже подготовили новый альбом. Подробности можно узнать на сайте группы - http://www.thecrownonline.com/</p>
+
+Автор: Vic Thor
+
+### 26.02.2001 news Johan Lindstrand leaves The CROWN
+
+<p> After ten years in the band Johan Lindstrand, leadsinger of the Swedish death metal band The Crown decides to leave the band. But The Crown will not quit, they have another album on the way. For more details about the situation, go to the official The Crown homepage - http://www.thecrownonline.com/</p>
+
+Автор: Vic Thor
+
+### 19.03.2001 news Сенсация!!! Новый вокалист THE CROWN
+
+<p> Новым вокалистом THE CROWN вместо ушедшего Johan Lindstrand стал никто иной, как TOMAS LINDBERG, бывший фронтмэн AT THE GATES. "Магнус позвонил мне, когда Johan решил уходить, и сказал что я единственный выбор" - говорит сам Томас. Подробности на сайте www.thecrownonline.com</p>
+
+Автор: Vic Thor
+
+### 19.03.2001 news Sensation!!! THE CROWN&#39;s new singer!!!
+
+<p> A sensational new transfer has taken place in the line-up of the Swedes, because the new vocalist is none other than TOMAS LINDBERG, former frontman of AT THE GATES!!! "Magnus called me up when Johan decided to quit and he basically said that I was the only option" - speaks Tomas. For more details - www.thecrownonline.com</p>
+
+Автор: Vic Thor
+
+
 ## Обсуждения
 
 

@@ -50,6 +50,92 @@ dreamscape
 * C группой "King Diamond" Glen Drover
 * C группой "Megadeth" Shawn Drover
 
+## Публикации
+
+### 31.10.2000 reviews Мощнейший power-metal
+
+<p>Мощнейший power-metal. Чрезвычайно жесткие, почти трэшовые риффы заставляют содрогаться все вокруг. Пыль вздымается в воздух при прослушивании этого альбома. Сами Iced Earth могут позавидовать такому звуку, но не более... Мелодических решений Eidolon катастрофически не хватает. Вроде технически все грамотно, акустические партии переходящие в мощную стену риффов, сильный, не слащавый вокал, но слушается все довольно скучновато. Сухой перебор риффов, мелодическая линия не развита. Альбом без настроения, несколько монотонный, за исключением двух-трех песен. Прямо скажем, не особо выдающийся альбом, но выше среднего</p>
+
+Автор: Dimas
+
+### 02.12.2000 news Группа Eidolon сейчас в студии работает над новым альбомом
+
+<p> Группа Eidolon сейчас в студии трудится над новым альбом "Hallowed Apparition", который в скором времени должен выйти на лейбле Metal Blade. Надавно открылся официальный сайт этой группы по адресу http://eidolon-nightmareworld.com</p>
+
+Автор: Nybras
+
+### 02.12.2000 news Eidolon currently working in studio
+
+<p> The band are currently in the studio recording their next album "Hallowed Apparition" for Metal Blade. Eidolon also have their new own web-page on eidolon-nightmareworld.com.</p>
+
+Автор: Nybras
+
+### 14.02.2002 news Впавшая в кому нация...
+
+<p>Металлеры из Торонто "EIDOLON" сделали достоянием широкой общественности трек-лист своего нового альбома "Coma Nation". Релиз выйдет в продажу 6-го июня через Metal Blade Records. Трек-лист: <BR><BR> 01. (Intro)<BR> 02. Coma Nation<BR> 03. Scarred<BR> 04. Hunt You Down<BR> 05. Life In Agony<BR> 06. Lost Voyage<BR> 07. From Below<BR> 08. The Pentacle Star<BR> 09. A Day Of Infamy<BR> 10. Within The Gates<BR></p>
+
+Автор: Yermola
+
+### 14.02.2002 news EIDOLON Track Listing Unveiled ....
+
+<p>Toronto metallers EIDOLON have announced the full track listing for their upcoming Coma Nation CD, which will be mixed in late March for a tentative June 6th release date through Metal Blade Records. The track listing is as follows (in no particular order): <BR><BR> 01. (Intro—currently untitled)<BR> 02. Coma Nation<BR> 03. Scarred<BR> 04. Hunt You Down<BR> 05. Life In Agony<BR> 06. Lost Voyage<BR> 07. From Below<BR> 08. The Pentacle Star<BR> 09. A Day Of Infamy<BR> 10. Within The Gates<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 01.05.2003 news Новый альбом EIDOLON
+
+<p>Канадская группа EIDOLON выпустит в октябре 2003 года свой новый альбом под названием "Apostles Of Defiance", который выйдет на Metal Blade/Skyscraper Music Records. Уже известен трэк-лист альбома:</p>
+<p> 1. Scream From Within <BR> 2. Volcanic Earth <BR> 3. Demoralized <BR> 4. Twisted Morality <BR> 5. The Test <BR> 6. The Will To Remain <BR> 7. Apostles Of Defiance <BR> 8. Pull The Trigger <BR> 9. Apathy For A Dying World</p>
+
+Автор: Dimas
+
+### 06.08.2003 news EIDOLON закончили запись альбома
+
+<p>Новый альбом канадцев EIDOLON, который называется ""Apostles Of Defiance", уже записан и выйдет в свет 6 октября на Metal Blade Records.</p>
+<P> Трэклист: <BR> 1. Scream From Within <BR> 2. Volcanic Earth <BR> 3. Twisted Morality <BR> 4. Demoralized <BR> 5. The Test <BR> 6. The Will To Remain <BR> 7. Apostles Of Defiance <BR> 8. Pull The Trigger <BR> 9. Apathy For A Dying World</p>
+
+Автор: Darkfall
+
+### 06.09.2003 news Eidolon выпускают новый альбом
+
+<p>Новый альбом EIDOLON "Apostles Of Defiance" выйдет 6 октября на Metal Blade Records. Трэк-лист:</p>
+<p> 01. Scream From Within<br> 02. Volcanic Earth<br> 03. Twisted Morality<br> 04. Demoralized<br> 05. The Test<br> 06. The Will To Remain<br> 07. Apostles Of Defiance<br> 08. Pull The Trigger<br> 09. Apathy For A Dying World</p>
+<p> На лимитированное издание альбома войдёт старая пластинка EIDOLON 'Zero Hour', а также видео-клип "Coma Nation".</p>
+
+Автор: Vit Belov
+
+### 07.09.2004 news Новый гитарист MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Dave Mustaine</STRONG> объявил имя нового гитариста <STRONG>MEGADETH</STRONG>, им стал <STRONG>Glen Drover</STRONG> (<B>EIDOLON</B>, ex-<B>KING DIAMOND</B>). </FONT></P>
+Автор: Vit Belov
+
+### 15.11.2004 news Nick Menza не выдержал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Nick Menza</STRONG> не смог выдержать оритма турне <STRONG>MEGADETH</STRONG> и по обоюдному согласию покинул <STRONG>Dave Mustain</STRONG> опять. На его место взят барабанщик <STRONG>EIDOLON</STRONG> <STRONG>Shawn Drover</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 08.12.2011 news Супергруппа HAIL! в Москве 11 декабря
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22281.jpg" width=390 height=520>Уже в это воскресенье в московском клубе <STRONG>"Hleb"</STRONG> состоиться выступление супергруппы <STRONG>HAIL!</STRONG>, в состав которой входят <STRONG>Paul Bostaph</STRONG> (ударные, <STRONG>FORBIDDEN</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>TESTAMENT</STRONG>), <STRONG>Glen Drover</STRONG> (гитара, <STRONG>EIDOLON</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>KING DIAMOND</STRONG>), <STRONG>Tim "Ripper" Owens</STRONG> (вокал, <STRONG>JUDAS PRIEST</STRONG>,<STRONG> ICED EARTH</STRONG>, <STRONG>YNGWIE MALMSTEEN</STRONG>) и <STRONG>James Lomenzo</STRONG> (бас, <STRONG>WHITE LION</STRONG>, <STRONG>BLACK</STRONG> <STRONG>LABEL SOCIETY</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>DAVID LEE ROTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На своих концертах группа <STRONG>HAIL!</STRONG> исполняет хиты различных металлических коллективов первой величины. Песни, которые поклонники тяжелой музыки любят с детства и знают наизусть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен сет-лист, который группа отыграла в городе Иркутск 2 декабря:</FONT></P>
+<P>01. <STRONG>Stand Up & Shout</STRONG> (<STRONG>DIO</STRONG>)<BR>02. <STRONG>Flight Of Icarus</STRONG> (<STRONG>IRON MAIDEN</STRONG>)<BR>03. <STRONG>Seek & Destroy</STRONG> (<STRONG>METALLICA</STRONG>)<BR>04. <STRONG>World Painted Blood</STRONG> (<STRONG>SLAYER</STRONG>)<BR>05.<STRONG> Wake Up Dead</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>06. <STRONG>Mob Rules</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>07. <STRONG>Burn In Hell</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>08. <STRONG>Another Thing Coming</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>09. <STRONG>Symphony Of Destruction</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>10. <STRONG>Heaven & Hell</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>11. <STRONG>Walk</STRONG> (<STRONG>PANTERA</STRONG>)<BR>12. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>----------<BR>13. <STRONG>Ace Of Spades</STRONG> (<STRONG>MOTORHEAD</STRONG>)<BR>14. <STRONG>Creeping Death</STRONG> (<STRONG>METALLICA</STRONG>)<BR>15. <STRONG>Peace Sells</STRONG> (<STRONG>MEGADETH</STRONG>)</P>
+<P>Адрес клуба <STRONG>"Hleb"</STRONG>: г. Москва, Звенигородское шоссе, д. 11</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

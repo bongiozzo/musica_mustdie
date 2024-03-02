@@ -141,6 +141,123 @@ Band residence: USA.
 
 * C группой "Venomous Concept" Danny Lilker, Kevin Sharp
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новости от Тома Ангелриппера из SODOM. Его соло проект сменил название на ONKEL TOM и выпустит новый альбом в феврале-марте, который будет называться "Ein Strauss Bunter Melodien". А новый альбом SODOM в середине мая, как бонус к нему появится трибьют к группе, на котором засветятся CRADLE OF FILTH, VADER, BRUTAL TRUTH, DARK FUNERAL и другие.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Новый альбом Sodom будет называться "Code Red" и выйдет 17 мая. На альбоме будет 12 песен плюс бонус-кавер на песню Accept "I'm a Rebel". В паре с этим альбомом выйдет трибьют к самой группе "Homage To The Gods". На работе засветятся Cradle Of Filth, Impaled Nazarene, Dark Funeral, Atanatos, Enthroned, Brutal Truth и другие.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>24 августа появится последний альбом группы Brutal Truth "Goodbye Cruel World" на двух компакт-дисках. На CD войдут концертные и редкие невыходившие ранее трэки.</p>
+
+Автор: Vit Belov
+
+### 27.10.2000 news Новый диск Brutal Truth
+
+<p>Новый диск Brutal Truth, названный "For Drug Crazed Grindfreaks Only", будет содержать 10 live-трэков и одну старую, ранее не изданную композицию.</p>
+
+Автор: Dimas
+
+### 27.10.2000 news Brutal Truth&#39;s new album
+
+<p>Brutal Truth's forthcoming album is called "For Drug Crazed Grindfreaks Only". It will include 10 live studio tracks plus an unreleased rehersal track.</p>
+
+Автор: Dimas
+
+### 25.01.2002 news Трэш-маньяки на острие атаки!!!
+
+<p>Небезизвестный Dan Lilker намерен собрать в оригинальном составе легендарных трэшеров NUCLEAR ASSAULT, чьё существование было пренесено в жертву BRUTAL TRUTH. Пока речь идёт о нескольких выступлениях на летних фестивалях, а там уж чем чёрт не шутит...</p>
+
+Автор: Odiumaniac
+
+### 21.08.2007 news BRUTAL TRUTH сочиняют песни
+
+<P>Вновь объединившиеся grindcore монстры <STRONG>BRUTAL TRUTH</STRONG> сочиняют материал для новой пластинки. Уже готово шесть песен. Лидер коллектива <STRONG>Danny Lilker</STRONG> сообщает, что новый материал стилистически близок к <STRONG>'Sounds of the Animal Kingdom', </STRONG>главным отличием от которого станет более быстрый темп и добавление риффов в старом духе альбома <STRONG>'Extreme Conditions Demand Extreme Responses'.</STRONG></P>
+Автор: Vit Belov
+
+### 03.10.2008 news BRUTAL TRUTH в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRUTAL TRUTH</STRONG> войдут в студию 6 октября для записи нового альбома, готовящегося к выходу в начале 2009 года. Группа сочинила 24 новых песни.</FONT></P>
+Автор: Vit Belov
+
+### 22.01.2009 news BRUTAL TRUTH закончили работу
+
+<P><STRONG><IMG height=230 alt="" hspace=0 src="/images/news_rus/2009.01/13431.jpg" width=300 align=left border=5>BRUTAL TRUTH</STRONG> закончили работу над первым за десять лет новым альбомом <STRONG>"Evolution Through Revolution"</STRONG>. Пластинка была записана в <STRONG>Watchman Studios </STRONG>с звукоинженером <STRONG>Doug White</STRONG> (<B>PSYOPUS</B>). Вот названия некоторых песен: <STRONG>"Sugardaddy"</STRONG>, <B>"Get A Therapist… Spare The World"</B>, <B>"Evolution Through Revolution"</B>, <B>"Detached"</B>, <B>"Global Good Guy"</B>, <B>"Lifer"</B>, <B>"Bob Dylan Wrote Propaganda Songs"</B>&nbsp;и <B>"Grind Fidelity"</B>. Альбом выйдет 30 апреля на <STRONG>Relapse</STRONG>. </P>
+<P>Басист<STRONG> Danny Lilker</STRONG>: "<EM>Мы порвали наши ж..., чтобы выдать наиболее нечеловеческий grindcore всех времён</EM>". </P>
+Автор: Vit Belov
+
+### 19.02.2009 news Заглавный трэк BRUTAL TRUTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую вещь <STRONG>BRUTAL TRUTH</STRONG>, с будущего альбома <STRONG>"Evolution Through Revolution", </STRONG>можно послушать на <STRONG>MySpace</STRONG> страничке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/BrutalFuckingTruth">http://www.myspace.com/BrutalFuckingTruth</A></FONT></P>
+Автор: Vit Belov
+
+### 14.03.2009 news Сладкий папочка на MySpace
+
+<P><STRONG>BRUTAL TRUTH</STRONG> выложили на<STRONG> MySpace</STRONG> свой очередной тошнотворный шедевр под названием "<STRONG>Sugar Daddy</STRONG>". Превью с нового альбома <STRONG>"Evolution Through Revolution"</STRONG>, выходящего 20 апреля на <STRONG>Relapse</STRONG>, можно послушать здесь: <A href="http://www.myspace.com/BrutalFuckingTruth">http://www.myspace.com/BrutalFuckingTruth</A></P>
+Автор: Vit Belov
+
+### 18.07.2009 news Видео BRUTAL TRUTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео BRUTAL TRUTH <STRONG>"Sugardaddy" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=60264821">Brutal Truth - Sugar Daddy</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=60264821,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=60264821,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.08.2010 news Новый клип BRUTAL TRUTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео<STRONG> BRUTAL TRUTH</STRONG> на песню <STRONG>"Get A Therapist… Spare The World" </STRONG>можно посмотреть ниже. Режиссёром клипа вновь выступил <STRONG>Tyson Montrucchio</STRONG> (<B>Heretic Digital Demonics</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Ifru1ekJgVE?fs=1&hl=en_US"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Ifru1ekJgVE?fs=1&hl=en_US" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.05.2011 news Обложка нового BRUTAL TRUTH
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.05/19546.jpg" width=475 align=right border=0>Новый альбом <STRONG>BRUTAL TRUTH</STRONG> <STRONG>"End Time" </STRONG>выходит 27 сентября на<STRONG> Relapse Records</STRONG>. Пластинка была записана <STRONG>Doug White </STRONG>в <STRONG>Watchmen Studios</STRONG>&nbsp;в Локпорте, штат Нью-Йорк и сведена&nbsp;<STRONG>Jason P.C.</STRONG>&nbsp;в <B>Goatsound Studios</B>. Мастеринг сделал <STRONG>Scott Hull</STRONG>&nbsp;в <B>Visceral Sound</B>. Трек-лист:</P>
+<P>01. <B>Malice</B><BR>02. <B>Simple Math</B><BR>03. <B>End Time</B><BR>04. <B>Fuck Cancer</B><BR>05. <B>Celebratory Gunfire</B><BR>06. <B>Small Talk</B><BR>07. <B>.58 Caliber</B><BR>08. <B>Swift And Violent (Swift Version)</B><BR>09. <B>Crawling Man Blues</B><BR>10. <B>Lottery</B><BR>11. <B>Warm Embrace Of Poverty</B><BR>12. <B>Old World Order</B><BR>13. <B>Butcher</B><BR>14. <B>Killing Planet Earth</B><BR>15. <B>Gut-Check</B><BR>16. <B>All Work And No Play</B><BR>17. <B>Addicted</B><BR>18. <B>Sweet Dreams</B><BR>19. <B>Echo Friendly Discharge</B><BR>20. <B>Twenty Bag</B><BR>21. <B>Trash</B><BR>22. <B>Drink Up</B><BR>23. <B>Control Room</B></P>
+Автор: Vit Belov
+
+### 09.07.2011 news Новая песня BRUTAL TRUTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек с нового альбома<STRONG> BRUTAL TRUTH</STRONG> <STRONG>"End Time" </STRONG>под названием <STRONG>"Addicted" </STRONG>можно послушать ниже. Новый альбом американцев выйдет в сентябре на <STRONG>Relapse Records. </STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=30 width=130><PARAM NAME="movie" VALUE="http://o.aolcdn.com/art/_media/sp/streampad-mini.swf"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="allownetworking" VALUE="external"><PARAM NAME="FlashVars" VALUE="u=http%3A%2F%2Fserve.castfire.com%2Faudio%2F660119%2Fbrutal-truth-addicted_2011-07-07-144719.cdlp.flv">
+<embed allownetworking="external" allowscriptaccess="always" flashvars="u=http%3A%2F%2Fserve.castfire.com%2Faudio%2F660119%2Fbrutal-truth-addicted_2011-07-07-144719.cdlp.flv" height="30" src="http://o.aolcdn.com/art/_media/sp/streampad-mini.swf" width="130" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.01.2012 news Новое видео BRUTAL TRUTH
+
+<P>Новый клип гриндкорщиков<STRONG> BRUTAL TRUTH</STRONG> на песню <STRONG>"Lottery</STRONG>" можно посмотреть ниже. Режиссёром ролика выступил <STRONG>David Hall</STRONG>.</P>
+<P><center><object  width="450" height="370"><embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=8b80b8b6e9f212dbeea0" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></object></P>
+Автор: Vit Belov
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### чего вам у Brutal Truth  больше нравиться?

@@ -275,6 +275,1089 @@ Recorded at AudioHammer Studios in Sanford, Florida.
 
 * C группой "Order Of Ennead" Steve Asheim, Kevin Quirion
 
+## Публикации
+
+### 23.12.2000 news Deicide пишут новый альбом
+
+<p> Deicide сейчас занимаются сочинением материала для своего нового альбома. В апреле группа отправится в студию и в конце 2001-го года в продаже появится, по словам Глена Бентона, "самый тяжелый и самый больной альбом всех времен".</p>
+
+Автор: Nybras
+
+### 06.04.2001 news DEICIDE shows
+
+<p> Florida death metal legends DEICIDE have lined up a few scattered, bi-coastal shows during May. The dates are as follows:</p>
+<p></p>
+<p> May 09 - West Holywood, CA @ Troubadour</p>
+<p></p>
+<p> May 13 - Seattle, WA @ Graceland</p>
+<p></p>
+<p> May 19 - Detroit, MI @ Harpos</p>
+<p></p>
+<p> May 25 - Springfield, VA @ Jaxx</p>
+<p></p>
+<p> May 26 - Brooklyn, NY @ L'Amour</p>
+<p></p>
+
+Автор: Yermola
+
+### 13.04.2001 news DEICIDE have lined up a few more shows ....
+
+<p> DEICIDE have lined up a few more shows as part of their upcoming US tour. Here are the dates confirmed so far:</p>
+<p></p>
+<p> May 04 - San Antonio, TX @ White Rabbit</p>
+<p></p>
+<p> May 09 - West Holywood, CA @ Troubadour</p>
+<p></p>
+<p> May 13 - Seattle, WA @ Graceland</p>
+<p></p>
+<p> May 19 - Detroit, MI @ Harpos</p>
+<p></p>
+<p> May 24 - South Amboy, NJ @ Krome</p>
+<p></p>
+<p> May 25 - Springfield, VA @ Jaxx</p>
+<p></p>
+<p> May 26 - Brooklyn, NY @ L'Amour</p>
+<p></p>
+
+Автор: Yermola
+
+### 26.04.2001 news В адских мучениях...
+
+<p>Горячие поклонники Иисуса "DEICIDE" завершили запись очередного студийного альбома посвященного препарированию Христа со-товарищи - "Torment In Hell". Судя по трек-листу Глена Бентона и Ко все так-же заботит борьба с религиозными предрассудками (а как известно: "Религия - есть опиум для народа!") - 01. In Torment In Hell 02. Worry In The House Of Thieves 03. Vengeance Will Be Mine 04. Imminent Doom 05. Let It Be Done 06. Child of God 07. Lurking Among Us 08. Christ Don't Care. Альбом был записан в культовой Tampa's Morrisound Studios и выйдет в Июле на Roadrunner Records.</p>
+
+Автор: Yermola
+
+### 26.04.2001 news In Torment In Hell ....
+
+<p>DEICIDE's upcoming studio album will be titled In Torment In Hell, and it will reportedly include the following tracks: 01. In Torment In Hell 02. Worry In The House Of Thieves 03. Vengeance Will Be Mine 04. Imminent Doom 05. Let It Be Done 06. Child of God 07. Lurking Among Us 08. Christ Don't Care. In Torment In Hell was recorded at Tampa's Morrisound Studios, and it is tentatively scheduled for release through Roadrunner Records in July/August.</p>
+
+Автор: Yermola
+
+### 06.06.2001 reviews Нечестивый гимн Святоубийц
+
+<p> Хоть и уже прошел добрый десяток лет, а DEICIDE ("Смерть Святому") все так же продолжает свою ассенизаторскую работу по уничтожению разползшейся по Земле христианской чумы, ни на шаг не отступая от своих позиций. После некоторых экспериментов со звучанием имевших место быть на "Serpents of the Light", музыканты изрядно утяжелили звук, но, к сожалению, сделали это в ущерб разнообразию музыки. И хоть все ходы нового альбома стали намного проще, нельзя не заметить, что музыканты здорово постарались и немало поработали. Причем, поработали не только над музыкой, но и над собой: Гленна Бентона стало совсем не видно из-под татуировок, а остальные участники так понакачали свои мышцы, что каждый сможет совершенно не напрягаясь завязать в узел любого из "Титанов Рестлинга", и даже при этом не вспотеть - это то, что в первую очередь бросается в глаза, взглянув на буклет: прелести музыки замечаешь только потом. Святоубийцы довольно сильно сбавили скорости (но ни коим образом не облегчив, жуткий злобный агрессивный пугающий звук!) и играют свой материал в таком темпе, словно хотят сказать: "Влом нам уже все это...", само звучание группы немного изменилось: если на "Serpents..." ведущую роль играли самые что ни на есть ведущие гитары, режущие уши пронзительными беспорядочными соло, то на "Insineratehymn" бал правит агрессивный ритмичный бас и низкий утробный вокал Гленна с христоненавистническими текстами: все примерно так, как это когда-то было на забойном архибогохульнейшем "Once Upon the Cross".</p>
+<p> К превеликому сожалению, при всей похвальности христовыметающей работы Святоубийц, DEICIDE-у изрядно мешает развиваться и расти музыкально чрезмерная и фанатичная зацикленность на определенных идеях. Гленн уже добрый десяток лет проклинает Иешуа Назорейского, потроша и препарируя сгнившие мощи и так и эдак, его непорочную матерь, где-то нагулявшую живот без мужа, да заодно и все стадо баранов, гнущихся под садистом-пастырем. И хоть делают это Святоубийцы абсолютно справедливо и искренне, но уж очень и очень однообразно - настолько однообразно, что крайне медленное развитие музыкального творчества группы уже порядком поднадоело. Ведущую роль в творчества DEICIDE как играл, так и играет текст, на редкость богохульнический и просто до крайности христианоненавистнический, который получается более чем отлично, а музыка же в творчестве находится где-то далеко на втором плане, и на многих песнях кажется, что она является лишь фоном к распеванию (рычанию) стихов и по отношению к ним довольно вторична. Хотя с другой стороны DEICIDE наоборот можно похвалить - они сами поставили себя в очень и очень узкие рамки внутри определенного стиля и развивают свое творчество исключительно в них, ни на шаг не выходя за отмеченные гранцы, а это крайне трудно.</p>
+<p> Но как бы то ни было, при все еще присутствующей некоторой вымученности и "сырости", наличествующей на любом альбоме DEICIDE, новый (разумеется, опять всего лишь получасовой) "Insineratehymn" в своем роде, очень даже неплохое и интересное жестокое злобное страшное "мя-я-ясо", прямо-таки "мясо с кровью" - вкусное, смачное и сытное, которое вполне может сравниться с "Once Upon the Cross". По крайне мере мои соседи ураганную мощь и силу нового альбома уже оценили в полной мере и в стенку стучат регулярно. Не лишайте же такой радости своих!</p>
+
+Автор: Alexey Pitirimov
+
+### 11.07.2001 news DEICIDE MP3...
+
+<p>На сайте <a href="http://www.insineratehymn.net/deicide_intormentinhell.mp3">www.insineratehymn.net </a>вы можете скачать заглавную песню "In Torment In Hell" с нового альбома "DEICIDE" в виде MP3.</p>
+
+Автор: Yermola
+
+### 11.07.2001 news In Torment In Hell is available for download in MP3...
+
+<p>The title track to DEICIDE’s upcoming new release, In Torment In Hell, is available for download in MP3 form in its entirety via the unofficial DEICIDE site Insineratehymn. To download the track, click <a href="http://www.insineratehymn.net/deicide_intormentinhell.mp3"> here </a>. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 28.10.2001 news EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001
+
+<p>EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001 <BR> featuring MORBID ANGEL, Deicide, Soilent Green, Zyklon & Exhumed<BR> <BR> November 2001 <BR> 11/20/01 - CARDI'S - HOUSTON, TX <BR> 11/21/01 - VILLA REAL CONVENTION CENTER - McALLEN, TX <BR> 11/22/01 - OFF <BR> 11/23/01 - SUNSET STATION - SAN ANTONIO, TX <BR> 11/24/01 - CANYON CLUB - DALLAS, TX <BR> 11/25/01 - EL REY THEATRE - ALBUQUERQUE, NM <BR> 11/26/01 - TBA <BR> 11/27/01 - TBA <BR> 11/28/01 - GALAXY THEATRE - SANTA ANA, CA <BR> 11/29/01 - THE PALACE - HOLLYWOOD, CA <BR> 11/30/01 - THE POUND - SAN FRANCISCO, CA<BR> <BR> December 2001 <BR> 12/01/01 - THE POUND - SAN FRANCISCO, CA <BR> 12/02/01 - OFF <BR> 12/03/01 - CATWALK - SEATTLE, WA <BR> 12/04/01 - OFF <BR> 12/05/01 - OGDEN THEATRE - DENVER, CO <BR> 12/06/01 - OFF <BR> 12/07/01 - FIRST AVENUE - MINNEAPOLIS, MN <BR> 12/08/01 - VIC THEATRE - CHICAGO, IL <BR> 12/09/01 - AGORA - CLEVELAND, OH <BR> 12/10/01 - M (Formerly Metropol) - PITTSBURGH, PA <BR> 12/11/01 - TBA <BR> 12/12/01 - THE WORLD - NEW YORK, NY <BR> 12/13/01 - THE PALLADIUM - WORCESTER, MA <BR> 12/14/01 - JAXX - SPRINGFIELD, VA <BR> 12/15/01 - TBA <BR> 12/16/01 - TROCADERO - PHILADELPHIA, PA</p>
+
+Автор: Yermola
+
+### 05.01.2002 articles Несколько суперкоманд на одном концерте-это слишком!
+
+<p>Ну вот значит недавно вернулся с концерта, воспоминания еще свежи,но могу сделать один вывод - несколько суперкоманд на одном концерте-это слишком! Должны быть хэдлайнеры и аутсайдеры, а не так -башка блин отваливается от угара:)))</p>
+<p>Концерт начался ровно в назначенное время-первыми вышли калифорнийские маньяки из EXHUMED! Музыка данного коллектива представляет из себя брутально-приблэкованый дэс-метал. Основной вокалист и он же гитарист поет скриминговым вокалом,второй же гитарист подпевает ему сочным гроулингом-причем вокалы очень удачно чередуются, что создает илюзию разговора "великана-людоеда и злобного карлика" (выражение не мое-просто вспомнил и решил вставить:) Ну самый прикольный чел. у них-это басила. С панковским гребнем, в напульсниках а-ля ранний Керри Кинг. Так вот особо запомнился момент-идет мощная ломовая музыка и вдруг резко останавливается - басила снимает басуху и блюет перед собой,причем блюет реально:), а потом одевает басуху и продолжает как ни в чем не бывало рубить дальше.Народ просто в шоке:))).Причем басист еще до шоу подстелил перед собой клееночку, знал гад, что блеванет:) - видно “адский заблёв” входит в часть их шоу, так же как и обливание кровью- крови было много:)))Народ от такой музыки завелся с пол-пинка и активно рубился.</p>
+<p>Далее вышли грозные викинги - Норвежцы ZYKLON, имеющие в своем составе учатсников EMPEROR - Samoth и Trym и гитариста MYRKSKOG. Выглядят они очень колоритно – гитаристы-три столба под 1,90м рыжие-как настоящие тру-норвежцы, а барабанщик маленький, черненький да еще и стриженый,зато лупит дай бог:)</p>
+<p>Ребята сразу взяли с места в карьер и показали америкотам что такое тру блэк-метал, правда блэк-металом это назвать нельзя-скорее сильно приблэкованый дэс!Рубился народ очень даже активно.Правда вот звук был не идеальный.Ребята отыграли как вещи с альбома так и новые песенки, которые звучат не менее мощно.Но похоже у свех норвежских групп наметилась тенденция отходить от чистого блэка и играть что то похожее на дэс- как последние IMMORTAL, EMPEROR,SATYRICON. Кстати на концерте продавались альбомы не только ZYKLON, но и весь EMPEROR и MYRKSKOG. Я по этому случаю оторвал себе на халяву наклейку EMPEROR с рекламой их нового альбома. Потом настала пауза и народ полностью забил все пространство перед сценой, и я конечно же был в первых рядах, потому что вышли те, которые были для меня фаворитами концерта,да и концерт это подтвердил. Речь конечно же о DEICIDE .</p>
+<p>Команде, в которой за 15 лет не сменилось ни одного музыканта – и было видно чио они понимают друг друга с полувзгляда! Звук был просто отпадный – четкий, мощный и ясный, барабаны были выдвинуты сильно вперед- на бочках красовались 2 логотипа-такой же логотип был на заднике. Все ребята одеты в кожанные штаны и проклепанные сапоги, у Глена Бентона кожаная жилетка и перевернутый КРЕСТ на лбу –это не понты-сам видел-правда выглядит он как два шрама – но впечатляет!Один из братьев Хоффманов волосатый,а второй «Брат-2» видимо стриженный-потому что весь концерт он прорубился в кожаном шипованом шлеме- с прорезями для глаз и рта. Дядька Бентон вел себя на удивление скромно, не толкал никаких телег про сатану , а с довольным видом,объявлял песни, прислушиваясь и ко мнению зала! Начался гиг песенкой In Torment In Hell! Народ сразу же вошел в угар. Потом пошел Lunatic of Gods Creation – ну и здесь пел весь зал.Далее исполнены Serpents of the Light, заглавная вещь с Легиона, Bibble Basher, Let It Be Done. Затем наступила небольшая пауза и Бентон улыбнувшись объявил Sacrificial Suicide – это был апогейзал превратился в бурлящий котел поющий вместе с Deicide эту песню « всех времен и народов»!Мог ли я себе представить еще 10 лет назад, что когда нибудь буду рубиться под Sacrificial Suicide на концерте, да еще в исполнении авторов!!! Далее прослушали Once Upon the Cross и мы стали требовать еще одну песню « всех времен и народов» Dead By Dawn. Бентон переговорил-точнее переглянулся с музыкантами и произнес три магических слова Dead By Dawn! Волна угара с новой силой захватила нас, рубящихся в этом адском котле. Потом взяв как бы передышку Бентон спел песню с нового альбома Child of God и еще одну с Once Upon the Cross. И в завершении своего небольшого 40 минутного выступления зарядили Crusifixation. Надо заметить, что на сцене DEICIDE выглядят достаточно статично – не бегают, шоу тоже нет,но исполняемая музыка настолько тебя захватывает, что этого просто не замечаешь! Еще хочу отметить очень удачно подобранную программу – зал прекрасно знал все вещи!</p>
+<p>Потом наступила получасовая пауза, все стали ждать выхода Morbid Angel! Ну значит стоим мы в баре пиво пьем, обсуждаем детали концерта и предстоящие угары. Я упомянул что в феврале DIMMU BORGIR начинают американский тур, и вдруг стоящий рядом парень-америкот услышав знакомое слово обернулся-спросил откуда мы и что думаем про DIMMU BORGIR, а потом стянул с себя майку и на всю спину у него огромная цветная татуировка диммуборгировская пентограмма – вот до какой степени можно быть ТРУ:))))))Ну это я отвлекся - а теперь о хэдлайнерах шоу – Morbid Angel. В первую очередь мне хотелось услышать двухбочковую работу одного из лучших барабанщиков мира – Пита Сандовала-и я не ошибся. Этот просто пулемет какой то!Настолько быстро и ровно долбит по бочкам-по моему не было за все выступление таких моментов где бы шла одна бочка-поразился его работоспособности и таланту-такие вещи вытворяет!То же можно сказать и про Трэя Азагота – просто приятно смотреть/слушать как человек обращается с гитарой, как умело и в тему использует машинку.Правда чего так и не удалось увидеть – так это его лица – весь концерт его закрывали черные кудрявые волосы,да и ростом он невелик. Что касается вокалиста и второго гитариста, скажу что они отработали ровно и четко-на автомате, но Morbid с Винсентом мне нравился больше чем новый, а на концерте они исполняли в основном новые вещи 1998-2000. Хотя началось все песенкой с Altar of Madness. Потом загрузили народ вещами с Gateway to Annihilation- и народ надо сказать рубился, но не так активно- все силы были отданы DEICIDE. Затем заметно оживились когда была исполнена Rapture – поорали,попели! Попросили Blessed are the Sick – пожалуйста, затем Dominate – получите! И все таки не может не совсем она концертная команда- Morbid Angel-за час с небольшим их выступления народ заметно подустал.Хотя друг мне говорил, что на их концерте три года назад было очень весело-и вещи подобраны немного по другому!Или может быть несколько суперкоманд в одном концерте это перебор! Я бы с большим удовольствием сходил отдельно на DEICIDE и отдельно на MORBID!</p>
+<p>Но ничего не поделаешь- а может мы тут зажрались?:)))Следующий концерт состоится 15 декабря- мы сможем увидеть послушать и оценить MOONSPELL & LACUNA COIL.</p>
+
+Автор: rjh
+
+### 17.05.2002 news WIN FREE MUSIC!!!
+
+<P>WIN FREE MUSIC!!! </P></>
+<P> </P></>
+<P>Spitfire Records and Metal Maniacs presents: </P></>
+<P> </P></>
+<P>..the compilation featuring Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) and MORE. 15 bands, one CD and all you need to do to snag a copy is answer some simple metal trivia questions (below). </P></>
+<P> </P></>
+<P>RULES: Answer the questions. Win the goods. It's THAT simple. ALL ENTRIES MUST BE SENT TO: maniacsmail@yahoo.com or maniacsmail@metalmaniacs.com </P></>
+<P>(any entries sent to this address will not be accepted) </P></>
+<P>or snail mailed to: </P></>
+<P> </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Include your full name, address, phone # and e-mail. All entries must be in by Monday, June 10th. </P></>
+<P> </P></>
+<P>1. Which drummer played on the Megadeth track “Peace Sells”? </P></>
+<P>2. What does Deicide’s Glen Benton have burned into his forehead? </P></>
+<P>3. Crowbar’s Kirk Windstein also performs with which New Orleans supergroup? </P></>
+<P>4. The new Pissing Razors album is called ‘Where We Come From’. Where DO they come from? </P></>
+<P>5. Chris Barnes of Six Feet Under is previously of what band? </P></>
+<P>6. Which South Carolina band opened for Cradle Of Filth on their 2001 North American tour? </P></>
+<P>7. Name five bands Danny Lilker has played in. </P></>
+<P>8. What legendary NYHC band was fronted by Pro Pain’s Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 17.05.2002 news Играйте и выигрывайте!!!
+
+<P>Дорогие маздайцы! Вы можете принять участие в конкурсе проводимом лэйблом Spitfire Records и журналом Metal Maniacs. Если вы правильно ответите на приведенные ниже вопросы то станете обладателем одного из сборника "DERANGED" с участием Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) и др. (всего 15 групп). </P></>
+<P> </P></>
+<P>Все ответы (написанные хорошим английским языком) должны быть посланы на e-mail: maniacsmail@yahoo.com или maniacsmail@metalmaniacs.com </P></>
+<P> </P></>
+<P>Также вы можете послать их по почте: </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Незабудьте вписать свое имя, почтовый адрес, телефон и e-mail. Крайний срок приема ответов - 10-е июня. </P></>
+<P> </P></>
+<P>Вопросы: </P></>
+<P> </P></>
+<P>1. Какой барабанщик играл в треке Megadeth - “Peace Sells”? </P></>
+<P>2. Что любит поджигать Deicide’овский Glen Benton у себя на лбу? </P></>
+<P>3. В какой Нью-Орлеанской супергруппе играет Kirk Windstein из Crowbar? </P></>
+<P>4. Новый альбом Pissing Razors называется ‘Where We Come From’. Так откуда именно они пришли? </P></>
+<P>5. В какой команде раньше участвовал Chris Barnes из Six Feet Under? </P></>
+<P>6. Какая команда из Южной Каролины разогревала Cradle Of Filth в их Северо-американском туре 2001 года? </P></>
+<P>7. Перечислите пять групп в которых играл Danny Lilker? </P></>
+<P>8. В какой легендарной Нью-Йоркской команде выступал фронтмен Pro Pain - Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 23.05.2002 news Продается гитара DEICIDE ....
+
+<p>Гитарист "DEICIDE" Eric Hoffman продает свою гитару custom B.C. Rich красного цвета. Цена - $2,000. Пишите на e-mail Эрика: BAND@DEICIDE.TV.</p>
+
+Автор: Yermola
+
+### 23.05.2002 news DEICIDE Guitar For Sale ...
+
+<p>DEICIDE guitarist Eric Hoffman is selling a custom B.C. Rich guitar (in color red) for $2,000. Interested parties should contact Eric at: BAND@DEICIDE.TV.</p>
+
+Автор: Yermola
+
+### 24.05.2002 news GLEN BENTON &amp; VITAL REMAINS
+
+<p>DEICIDE frontman Glen Benton will perform all lead vocals on the forthcoming VITAL REMAINS album, entitled Dechristianized, which is due in late August/early September through Olympic Records in the US and Century Media Records in Europe.</p>
+
+Автор: Dimas
+
+### 24.05.2002 news GLEN BENTON &amp; VITAL REMAINS
+
+<p>Glen Benton -фронтмен DEICIDE, запишет все вокальные партии на новом альбоме группы VITAL REMAINS под названием "Dechristianized". Альбом выйдет в августе-сентябре 2002 года через Olympic Records в Америке и Century Media Records в Европе.</p>
+
+Автор: Dimas
+
+### 12.08.2002 news Centinex will tour with Deicide...
+
+<p>Centinex will tour with Deicide (+ others) throughout Europe during November. <BR><BR> Candlelight Records have bought the rights for "Hellbrigade", "Bloodhunt", "Reborn Through Flames" and "Malleus Maleficarum". The albums will be re-released - with new artwork, layout, bonus tracks etc - early next year. <BR><BR> The vinyl version of "Diabolical Desolation" should be out during August through Finland's Northern Sound Records. The release will be limited to 1000 copies featuring new artwork and layout.<BR><BR> Still waiting for the Centinex/Nunslaughter split picture 10" !! Yeah, it has turned into a ten inch now. Release date ? No idea....<BR><BR> SHOWS:<BR><BR> Deicide - Mystic Circle - Centinex - Antaeus european tour <BR><BR> 06.11 UK Bradford - Rio<BR> 07.11 UK London - Mean Fiddler<BR> 08.11 NL Helmond - Plato<BR> 09.11 D Trier - Exil *<BR> 10.11 BL Vosselaar - Biebob *<BR> 11.11 D Essen - Zeche Carl *<BR> 12.11 FR Paris - La Locomotive *<BR> 13.11 FR Amneville - After Club *<BR> 14.11 Day-off<BR> 15.11 D Engelsdorf - Hellraiser<BR> 16.11 Day-Off<BR> 17.11 D tba **<BR> 18.11 Day-off<BR> 19.11 A Salzburg - Rock House<BR> 20.11 D Ludwigsburg - Rock Fabrik<BR> 21.11 CZ Brno - Similaso<BR> 22.11 PL Wroclaw - Radio Keller<BR> 23.11 PL Warszawa - Proxima<BR> 24.11 D Bischofswerda - East Club<BR> 25.11 CH Pratteln - Z7 <BR> 26.11 IT Milano - Transilvenia <BR> 27.11 IT Florence - Tenax <BR> 28.11 FR Marseille - Mirabeau <BR><BR> * + Behemoth - Destroyer 666 - Diabolic<BR> ** Only Centinex - Antaeus</p>
+
+Автор: Yermola
+
+### 01.10.2002 news CENTINEX are NOT off the DEICIDE-tour!!!
+
+<p>On the contrary to some rumours during the past days, CENTINEX are NOT off the DEICIDE-tour !! <BR> Of the six scheduled bands three are off, namely INSISION, ANTAEUS and latest additions BLOOD RED THRONE. <BR> The final (updated) listing: <BR> CENTINEX (w/ DEICIDE + MYSTIC CIRCLE) <BR> 06.11 United Kingdom - Bradford - Rio<BR> 07.11 United Kingdom - London - Mean Fiddler<BR> 08.11 The Neatherlands - Helmond - Plato<BR> 09.11 Germany - Trier - Exil *<BR> 10.11 Belgium - Vosselaar - Biebob * <BR> 11.11 Germany - Essen - Zeche Carl *<BR> 12.11 France - Paris - La Locomotive **<BR> 13.11 France - Amneville - After Club *<BR> 15.11 Germany - Engelsdorf - Hellraiser<BR> 19.11 Austria - Salzburg - Rock House<BR> 20.11 Germany - Ludwigsburg - Rock Fabrik<BR> 21.11 Czech Rep - Brno - Similaso<BR> 22.11 Poland - Wroclaw - Radio Keller<BR> 23.11 Poland - Warszawa - Proxima<BR> 24.11 Germany - Bischofswerda - East Club<BR> 25.11 Switzerland - Pratteln - Z7 <BR> 26.11 Italy - Firenze - Tenax<BR> 27.11 Italy - Milano - Transilvania ***<BR> * + Behemoth - Destroyer 666 - Diabolic<BR> ** Deicide - Mystic Circle - Behemoth - Centinex<BR> *** Deicide - Mystic Circle - Centinex - Belphegor</p>
+
+Автор: Vit Belov
+
+### 07.11.2002 news Earache подписали Deicide
+
+<p>Отцы brutal-death metal Deicide подписали контракт с Earache Records (в России Союз). Вот, что сказал один из боссов американского отделения лэйбла Эл Доусон: "Для нас большая честь работать с Deicide, "самой злобной группой мира". Великолепная сделка, набор команд в Earache никогда не был таким сильным". Хочется сказать, что в настоящее время группа находится в европейском туре, а после него вернётся в Тампу для записи новой пластинки.</p>
+
+Автор: Vit Belov
+
+### 07.11.2002 news EARACHE &amp; DEICIDE: A MATCH MADE IN BLOODY HELL
+
+<p>Earache is proud to announce its newest signing: Deicide. Known the world over as one of the founding fathers of Death Metal, Deicide stand strong to this day as one of the most influential and controversial metal bands ever. With a relentlessly brutal sound and uncompromisingly blasphemous lyrics, Deicide set the standards for Death Metal well over a decade ago and have maintained those standards ever since. <BR> Earache US boss Al Dawson had this to say about the Deicide signing: "I am very proud to be working with Deicide, 'the most evil band in the world.' These guys have stood the test of time and they continue to lead the way. They are the real deal. Earache's roster has never been stronger than it is today." <BR> Deicide embark on a headlining European tour this week. Upon their return to Tampa, the band will begin work on their Earache debut.<BR> 06.11 Rios, Bradford UK<BR> 07.11 Mean Fiddler, London, UK<BR> 08.11 Plato, Helmond, Holland<BR> 09.11 Exil, Trier, Germany<BR> 10.11 Biebob, Vosselaar, Belgium<BR> 11.11 Zeche Carl, Essen, Germany<BR> 12.11 La Locomotive, Paris, France<BR> 13.11 After Club, Amneville, France<BR> 15.11 Hellraiser, Engelsdorf, Germany<BR> 16.11 Gagarin 505, Athens, Greece<BR> 17.11 Hydrogeios, Thessaloniki, Greece<BR> 19.11 Rockhouse, Salzburg, Austria<BR> 20.11 Rockfabrik, Ludwigsburg, Germany<BR> 21.11 Similaso, Brno, Czech Republic<BR> 22.11 Strefa Radia Kolor, Wroclaw, Poland<BR> 23.11 Proxima, Warsaw, Poland<BR> 24.11 East Club, Bischofswerda, Germany<BR> 25.11 Z7, Pratteln, Switzerland<BR> 26.11 Auditorium Flog, Firenze, Italy<BR> 27.11 Transilvania, Milan, Italy<BR> 28.11 Priskovo, Kranj, Slovakia<BR> 29.11 Nem Art Club, Budapest, Hungary<BR> 30.11 Oho, Oberwart, Austria</p>
+
+Автор: Vit Belov
+
+### 15.11.2002 bios Deicide Bio
+
+<p>DEICIDE BIOGRAPHY <BR> Known the world over as one of the founding fathers of Death Metal, Deicide stand strong to this day as one of the most influential and controversial metal bands ever. With a relentlessly brutal sound and uncompromisingly blasphemous lyrics, Deicide set the standards for Death <BR> Metal well over a decade ago and have maintained those standards ever since. <BR> Emerging from the Tampa, Florida metal underground, Deicide began life in 1987 under the moniker, Amon. Consisting of frontman Glen Benton on bass and vocals, brothers Eric and Brian Hoffman on guitar, and Steve Asheim on drums, Amon commanded a local cult following with their extreme brand of Satanic metal. Amon's demos caught the attention of Roadrunner Records and Roadrunner signed the band, who renamed themselves Deicide. <BR> Roadrunner released Deicide's blistering self-titled debut in 1990. Recorded at Tampa's Morrisound Studio (the legendary studio where Deicide would go on to record all its albums), "Deicide" would one day be hailed as one of the "Top 100 Metal Albums of the 90's" by England's metal authority, Terrorizer Magazine. In 1992, Deicide followed up their debut with "Legion". "Legion" was an instant success, further establishing Deicide's furious musical instensity and vengeful anti-Christian stance, and securing Deicide's place at the forefront of the American Death Metal scene. <BR> Meanwhile, Deicide was rapidly earning a reputation for controversy. The band's appearance and live antics matched the extremity of its music and lyrics. With an inverted cross branded into his forehead, Benton cast himself as the incarnation of pure evil. At shows, he was known to pull such stunts as dousing the crowds with bags full of real animal organs. Deicide quickly found themselves banned from clubs, boycotted by magazines, and blacklisted by Christian groups and animal-rights activists. Anti-establishment to the core, Deicide embodied the worst fears of the conservative masses, and loved it. Rather than shy away from controversy, Deicide provoked it and willingly engaged in it. <BR> After the success of "Legion", Roadrunner Records re-issued the Amon demos in 1993 as 'Amon: Feasting The Beast', giving new fans a glimpse of the band's rawer roots. Deicide's next studio album came in 1995 in the form of "Once Upon The Cross". As if to prove they had no intention of settling down, the band proposed an image of a disemboweled Christ for the album cover. This cover was ultimately censored but not before garnering massive publicity. <BR> In 1997, Deicide released "Serpents of the Light", followed by a live album, "When Satan Lives", in 1998. Throughout the 90's, Deicide progressively honed their vicious musical attack, reaching new levels of brutality and precision. Despite becoming a father, Benton lead his band tirelessly around the world, playing countless shows to hordes of devout fans. In the face of censorship, bomb threats, and blacklistings, Deicide soldiered on, never once quitting or reforming, using adversity to fuel their misanthropic, creative fire. Deicide defined and redefined the rebellious spirit of Death Metal, and joined that very small and elite group of metal acts to sell over a million records in the process. <BR> 2000 saw the release of a new studio album, "Insineratehymn", followed by "In Torment In Hell" in 2001. The latter album marked the end of Deicide's long contract with Roadrunner. In November 2002, the band signed a new worldwide deal with Earache Records.</p>
+
+Автор: Vit Belov
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.07.2003 news Roadrunner Records восстанавливает корни
+
+<p>Roadrunner Records планирует беспрецедентную акцию под названием "The Roots Of Roadrunner". Это будет выпуск серии дисков "The Best Of" от различных известных команд с лэйбла с аннотацией от известных музыкантов, являющихся поклонниками этих коллективов. Выход первых семи дисков из серии запланирован на 22 сентября 2003 года. Среди них:</p>
+<p> "Best Of DEICIDE" <BR> Аннотации от Joey Jordison (SLIPKNOT)</p>
+<p> 1. Dead By Dawn <BR> 2. Carnage In The Temple Of The Damned <BR> 3. Lunatic Of God's Creation<BR> 4. Sacrificial Suicide <BR> 5. Crucifixation <BR> 6. Satan Spawn, The Caco-Daemon <BR> 7. Trifixion <BR> 8. In Hell I Burn <BR> 9. Dead But Dreaming <BR> 10. Once Upon The Cross <BR> 11. They Are The Children Of The Underworld <BR> 12. When Satan Rules His World <BR> 13. Trick Or Betrayed <BR> 14. Behind The Light Thou Shall Rise <BR> 15. Serpents Of The Light <BR> 16. Bastard Of Christ <BR> 17. Blame It On God <BR> 18. This Is Hell We're In <BR> 19. Bible Basher <BR> 20. Standing In The Flames</p>
+<p> "Best Of BRUJERIA" <BR> Аннотация от Hank Williams III (SUPERJOINT RITUAL)</p>
+<p> 1. Pura De Venta <BR> 2. Leyes Narcos <BR> 3. Matando Gueros <BR> 4. Castigo Del Brujo <BR> 5. Sacrificio <BR> 6. Padre Nuestro <BR> 7. Raza Odida (Pito Wilson) <BR> 8. La Ley De Plomo <BR> 9. Colas De Rata <BR> 10. Hechando Chingasos (Grenudo Locos II) <BR> 11. La Migra (Cruza La Frontera II) <BR> 12. Consejos Narcos <BR> 13. Brujerizmo <BR> 14. Vayan Sin Miedo <BR> 15. Pititis, Te Invoco <BR> 16. Laboratorio Cristalitos <BR> 17. Division Del Norte <BR> 18. Anti-Castro <BR> 19. El Desmadre <BR> 20. Ritmos Satanicos</p>
+<p> "Best Of LIFE OF AGONY" <BR> Аннотация от TBC</p>
+<p> 1. This Time<BR> 2. River Runs Red <BR> 3. Through And Through <BR> 4. Bad Seed <BR> 5. Underground<BR> 6. Here I Am, Here I Stay <BR> 7. Damned If I Do <BR> 8. Lost At 22 <BR> 9. Other Side Of The River <BR> 10. Let's Pretend <BR> 11. How It Would Be <BR> 12. Tangerine <BR> 13. My Mind Is Dangerous <BR> 14. Weeds <BR> 15. Angry Tree <BR> 16. Honeycomb</p>
+<p> "Best Of KING DIAMOND" <BR> Аннотация от Dave Ellefson (ex-MEGADETH)</p>
+<p> 1. The Candle <BR> 2. Charon <BR> 3. Halloween <BR> 4. No Presents For Christmas <BR> 5. Arrival <BR> 6. A Mansion In Darkness <BR> 7. The Family Ghost <BR> 8. Abigail <BR> 9. Welcome Home <BR> 10. The Invisible Guests <BR> 11. Tea <BR> 12. At The Graves <BR> 13. Sleepless Nights <BR> 14. Eye Of The Witch <BR> 15. Burn</p>
+<p> "Best Of MERCYFUL FATE" <BR> Аннотация от Mark Hunter (CHIMAIRA)</p>
+<p> 1. Doomed By The Living Dead <BR> 2. A Corpse Without Soul <BR> 3. Nuns Have No Fun <BR> 4. Evil <BR> 5. Curse Of The Pharaohs <BR> 6. Into The Coven <BR> 7. Black Funeral <BR> 8. Satan's Fall<BR> 9. A Dangerous Meeting <BR> 10. Desecration Of Souls <BR> 11. Gypsy<BR> 12. Come To The Sabbath <BR> 13. Burning The Cross <BR> 14. Return Of The Vampire</p>
+<p> "Best Of MALEVOLENT CREATION" <BR> Аннотация от Deron Miller (CKY)</p>
+<p> 1. Eve Of The Apocalypse <BR> 2. Sacrificial Annihilation <BR> 3. Monster<BR> 4. Dominated Resurgency <BR> 5. Multiple Stab Wounds <BR> 6. Genetic Affliction (demo version) <BR> 7. Geared For Gain <BR> 8. Slaughter Of Innocence <BR> 9. Premature Burial <BR> 10. Decadence Within <BR> 11. The Way Of All Flesh <BR> 12. Iced <BR> 13. Carnivorous Misgivings <BR> 14. Remnants Of Withered Decay <BR> 15. The Coldest Survive <BR> 16. Thou Shall Kill! <BR> 17. Mindlock <BR> 18. Piece By Piece</p>
+<p> "Best Of MADBALL" <BR> Аннотация от Jamey Jasta (HATEBREED) и Roger Miret (AGNOSTIC FRONT)</p>
+<p> 1. Set It Off <BR> 2. New York City <BR> 3. It's Time <BR> 4. Across Your Face <BR> 5. Down By Law <BR> 6. Smell The Bacon (What's With You?) <BR> 7. Friend or Foe<BR> 8. Demonstrating My Style <BR> 9. Unity <BR> 10. Live Or Die <BR> 11. Pride (Times Are Changing) <BR> 12. Hardcore Still Lives! <BR> 13. Nuestra Familia <BR> 14. Ball of Destruction <BR> 15. Look My Way <BR> 16. Moment of Truth <BR> 17. Waste of Time <BR> 18. Been There, Done That <BR> 19. Talkin' To Myself <BR> 20. Fools Die</p>
+
+Автор: Dimas
+
+### 16.07.2003 news Новый альбом DEICIDE
+
+<p>Флоридские дэтстеры DEICIDE готовы войти 28 июля в студию для записи своего седьмого альбома под названием "Scars Of The Crucifix". Он должен выйти в конце 2003 года на Earache Records.</p>
+
+Автор: Dimas
+
+### 26.12.2003 news Новый альбом DEICIDE
+
+Флоридские дэтстеры <B>DEICIDE</B> готовят к выпуску 24 февраля 2004 года на <B>Earache Records</B> свой новый альбом <B>"Scars Of The Crucifix".</B> Он был записан в <B>Morrisound Studios</B> с продюсером <B>Neil Kernon (CANNIBAL CORPSE, NEVERMORE),</B> а микшировался в <B>Sonic Ranch</B>. На нашем сайте можно скачать титульную вещь с этого альбома под названием <B>"Scars Of The Crucifix"</B> (<A href="/samples/d/deicide/2004_918.mp3">mp3</A>). Полный трек-лист выглядит следующим образом:</P>
+<P><IMG height=200 alt="" hspace=50 src="/images/news_rus/2003.12/5772.jpg" width=200 align="right" border=0>1. <B>Scars Of The Crucifix</B><BR>2. <B>Mad At God</B><BR>3. <B>Conquered By Sodom</B><BR>4. <B>Fuck Your God</B><BR>5. <B>When Heaven Burns</B><BR>6. <B>Enchanted Nightmare</B><BR>7. <B>From Darkness</B><BR>8. <B>Go Now</B><BR>9. <B>Pentecostal</B>
+Автор: Dimas
+
+### 21.04.2004 reviews Мистер Бентон, не пора ли на покой?
+
+<P>Прошлый альбом американских богохульников "In Torment In Hell" Глен Бентон недавно назвал худшим в дискографии его группы. Мол, это была последняя дань по контракту с Roadrunner'ом. Наиболее шустро подсуетились Earache, сцапав этот достаточно выгодный в коммерческом отношении продукт. По большому счету, группа под руководством Главного Сатаниста дэт-метала выпустила лишь один действительно хороший альбом ("Legion"), а ее популярность всегда основывалась больше на скандальной репутации, чем на музыке, ибо в дэт-метале есть намного более интересные банды. Альбом, даже не дотянувший&nbsp;по продолжительности до 30 минут (впрочем, для&nbsp;группы это норма), являет собой всё тот же "стандартный Deicide", много, правда, утративший в агрессии и злобе: допольно тупой дэт с частым применением второго "примоченного" вокала (что, на мой взгляд, совершенно лишне), разбавленный лишь совершенно неожиданным фортепианным пассажем в заключительной "The Pentecostall". Запись в студии Morrisound с продюсированием и звукорежиссурой "канибальца" Нила Кернона дала свои плюсы: диск звучит на порядок лучше предшественника. Но ситуацию это не спасает: не будь Deicide столь известны, этот релиз прошел бы практически незамеченным среди сотен других дэт-металических пластинок. Кстати, как известно, Глен Бентон в прошлом году порычал на последнем тогда альбоме очень перспективной (так я считал раньше) группы Vital Remains, который оказался в музыкальном плане полным провалом. Похоже, что VR и Глентон обменялись любезностями - некоторые отголоски с того альбома слышны и на последнем опусе "дисайдовцев". И последняя деталь: буклет сделан в виде "раскладушки", на одной стороне которой вы найдете тексты песен, а другая представляет собой нечто вроде минипостера формата А4. 6 баллов только за культовый статус.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 19.06.2004 articles Хроника: Счастливые мгновения из жизни Rob Halford – Chris Poland не присоединялся к MEGADETH – Улица имени AC&#x2F;DC – Charlie Benante хочет в предвыборный штаб – Некролог Quorthon – Скупой Glenn Benton и жадная Metalysee
+
+<P><I>Счастливые мгновения из жизни </I><B><I>Rob </I><I>Halford </I></B><I>– </I><B><I>Chris </I><I>Poland </I></B><I>не присоединялся к </I><B><I>MEGADETH </I></B><I>– Улица имени </I><B><I>AC/</I><I>DC </I></B><I>– </I><B><I>Charlie Benante </I></B><I>хочет в предвыборный штаб – Некролог </I><B><I>Quorthon</I></B><I> – Скупой </I><B><I>Glenn Benton </I></B><I>и жадная </I><B><I>Metalysee</I></B><I></I></P>
+<P>Одним из самых значимых событий за последнее время в metal-музыке стало воссоединение <B>JUDAS PRIEST</B>с <B>Rob Halford</B>. В интервью журналу <B>Revolver Rob </B>поделился своими мыслями по поводу этого события. «<I>В 1997 году, когда вышел ‘</I><B><I>Jugulator</I></B><I>’ я подумал, что шансов на воссоединение у нас не осталось. Они выпустили альбом с </I><B><I>Tim </I><I>Owens</I></B><I>, поехали в тур… Я никогда не рассказывал об этом, но ещё во время записи первого альбома </I><B><I>FIGHT</I></B><I> я подумывал о возвращении в </I><B><I>JUDAS </I><I>PRIEST</I></B><I>, я связался с одним человеком, близким к группе, но получил отказ. Мне тогда показалось, что моими бывшими коллегами владело чувство обиды</I>», - рассказывает <B>Rob</B>. Также <B>Halford </B>описал сам момент возрождения группы в классическом составе: «<B><I>Sony</I></B><I> собралась выпустить коллекцию </I><B><I>JUDAS </I><I>PRIEST</I></B><I> на четырёх дисках ‘</I><B><I>Metalogy</I></B><I>’, и мы все вместе собрались, чтобы отобрать песни для этих дисков. Мы сидели на моей кухне, и когда основное дело было кончено, мы посмотрели друг другу в глаза и сказали: «Ну, что Вы думаете о </I><I>re-</I><I>union?». Мы решили, что если это не случится сейчас, это не случится никогда. Все разъехались в разных направлениях, а я сидел дома и повторял: «Я снова в группе! Я снова в группе!»</I>». За всей этой мелодраматической историей заметна тень <B>Sony Music</B>, которым очень выгодно воссоединения «бедного» <B>Halford </B>со своим друзьями-врагами. Альбом будет записан осенью, а в настоящее время группа даёт свои первые концерты в обновлённом составе. Вот сэт-лист одного из них в Ганновере:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2004.06/6633.jpg" width=300 align="right" border=0>01. <B>Hellion</B><SPAN><BR>02. <B>Electric Eye</B> <BR>03. <B>Metal Gods</B> <BR>04. <B>Heading Out to the Highway</B> <BR>05. <B>The Ripper</B> <BR>06. <B>Touch of Evil</B> <BR>07. <B>The Sentinel</B> <BR>08. <B>Turbo Lover</B> <BR>09. <B>Victim of Changes</B> <BR>10. <B>Diamonds and Rust</B> <BR>11. <B>Breaking the Law</B> <BR>12. <B>Beyond the Realms of Death</B> <BR>13. <B>The Green Manalishi (With the Two Pronged Crown)</B><BR>14. <B>Painkiller</B> <BR>Encore:<BR>15. <B>Hell Bent For Leather</B> <BR>16. <B>Living After Midnight</B> <BR>17. <B>United</B> <BR>18. <B>You Got Another Thing Coming</B> </SPAN></P>
+<P><B>MEGADETH </B>записали новую пластинку. В записи <B>Dave Mustain </B>помогал его бывший коллега по группе <B>Chris Poland</B>, который дал на прошлой неделе интервью<B> <SPAN><A href="http://dallasmusicguide.com/" target=_blank><SPAN style="COLOR: #ffffff">Dallas Music Guide</SPAN></A></SPAN></B>, в котором рассказал немного об этой свой работе. «<B><I>Dave</I></B><I> позвонил мне и попросил записать соло для своей новой работы, которая должна была стать либо новым альбомом </I><B><I>MEGADETH</I></B><I>, либо сольной пластинкой </I><B><I>Dave </I><I></I><I>Mustain</I></B><I><SPAN>. Одной из основных причин моего согласия стала наличие за барабанной стойкой <B>Vinnie Colaiuta, </B>фэном которого я являюсь долгое время</SPAN></I>». Также <B>Chris </B>сообщил, что не собирается присоединяться к <B>MEGADETH </B>на постоянной основе, так как в настоящее время он предпочитает играть другой сорт музыки. Вот как <B>Poland </B>описывает будущий альбом <B>MEGADETH</B><SPAN>: «<I>Новая пластинка – это смесь </I></SPAN><B><I>Rust </I><I></I><I>In </I><I></I><I>Peace</I></B><I> и </I><B><I>Peace </I><I></I><I>Sells</I></B><I>… Также есть некоторые черты первого альбома. Многие песни необходимо слушать несколько раз, так как врубиться в них с первого раза тяжеловато. Гитарные партии очень сложные, я не могу вспомнить, что я играл на этом альбоме, для каждой песни собственное сложное соло. Вы можете ожидать нечто подобное, но каждый составит своё мнение после прослушивания этого альбома</I>».</P>
+<P>Почётная, и одновременно забавная, новость пришла из Австралии. По сообщению <B>CNN</B>, власти города Мельбурн собираются переименовать одну из улиц города <B>Corporation Lane </B><SPAN>в (угадайте!!!) <B>AC/DC Lane. </B>«<I>Они, возможно, самая успешная австралийская группа</I>», - говорят в мэрии города. «<I>Рок’н’ролл сообщество города ищет возможность воздать должное группе. Тем более, один из клипов </I></SPAN><I>AC/</I><I>DC<B>"</B></I><B><I>It'</I><I>s </I><I>A </I><I>Long </I><I>Way </I><I>to </I><I>the </I><I>Top"</I></B><I> снимался на улицах Мельбурна</I>», - заканчивают своё выступление государственные деятели. <B>CNN </B>напоминает, что улица имени <B>AC/DC </B>уже есть в Мадриде.</P>
+<P>Бывшие thrash-metal’исты <B>ANTHRAX </B>продолжают привлекать к себе внимание общественности разнообразными высказываниями в прессе. В интервью своему немецкому фэн-клубу все другие заявления, включая мнение музыкантов о новом-старом басисте <B>ANTHRAX Joey Vera</B>, затмили очередные «предвыборные заявления». <B>Charlie Benante</B>: «<I>Я с самого первого дня ненавидел самою мысль, что </I><B><I>Bush</I></B><I> будет нашим президентом. Подобные чувства вселили действия, которые он и его группа идиотов производили. Я американец и горжусь этим, но одна мысль не даёт мне покоя: «Что думают о нас люди со всего мира, если мы выбрали себе такого президента?» Мы не такие, как он!!! Я за мир во всём мире и буду бороться за это</I>». Не иначе, как дела в группе идут не очень хорошо, и <B>Charlie </B>захотел подработать на стороне в предвыборном штабе <B>John Kerry</B>. </P>
+<P>7 июня скончался <B>Thomas "Quorthon" Forsberg </B>лидер и один из основателей <B>BATHORY</B>. У него просто остановилось сердце на сороковом году жизни после многолетней борьбы с сердечным недугом. Таковы скудные подробности случившегося. Многие известные музыканты выступили с заявлением по поводу кончины <B>Thomas</B><SPAN>. Одним из них стал <B>Jonas </B></SPAN><B>Akerlund, </B>который основал <B>BATHORY </B>вместе с <B>Quorthon </B>в начале 80-х, а затем успешно занимался клипмейкерством. Среди исполнителей, работавших с ним, <B>METALLICA, Madonna </B>и <B>U2</B><SPAN>. «<I>Это так грустно. Он мог столько ещё всего написать</I>», - говорит </SPAN><B>Jonas</B>. “<B><I>BATHORY</I></B><I> появились на сцене очень рано, и многие коллективы вдохновлялись песнями </I><B><I>Quorthon</I></B><I>. Парни из </I><B><I>METALLICA</I></B><I> и многие другие группы рассказывали мне, что слушали </I><B><I>BATHORY</I></B><I>. </I><B><I>Quorthon</I></B><I> имел культовый статус. Его не интересовало, что слушают люди, он просто сочинял музыку</I>». Ещё один «некролог» пришёл из Норвегии. <B>Satyr (SATYRICON):</B><SPAN> «<I>Услышать о смерти было очень грустно, ему было всего 39 лет… </I></SPAN><B><I>BATHORY</I></B><I> оказали огромное влияние на меня и </I><B><I>Frost</I></B><I>, когда мы основывали </I><B><I>SATYRICON</I></B><I><SPAN>. Первый кавер, который записала наша группа, был <B>'Born For Burning'. </B>Не многие люди встречались с </SPAN></I><B><I>Quorthon</I></B><I><SPAN>, он был замкнут и не являлся частью норвежской металл-сцены. Мы разговаривали с ним по телефону несколько раз в середине 90-х, и я рад даже такому общению с этой культовой фигурой. В первый раз мы говорили три часа, и я нашёл его очень дружелюбным и приветливым человеком. Наш режиссер клипов <B>Jonas </B></SPAN></I><B><I>A</I><I>kerlund </I></B><I>рассказывал много интересного о своей работе с </I><B><I>Quorthon</I></B><I> над первым альбомом </I><B><I>BATHORY</I><I>. </I></B><I>Спасибо за всё, что ты сделал для музыки, </I><B><I>Quorthon</I></B><I>! Все, зажгите 13 свечей и включите альбом </I><B><I>BATHORY</I></B><I>, чтобы помянуть короля</I>». R.I.P.</P>
+<P>После такой грустной темы надо немного разрядиться, и на этот случай у меня припасена история «<B>DEICIDE и Metalysee Booking Agency</B>». Напомню, что, именно, <B>Metalysee </B>были одним из организаторов приезда в Россию группы <B>MARDUK</B>, отсутствие которой на сцене ДК им. Горбунова повлекло за собой беспорядки среди фэнов и фактическое разорение Эджен Price и его лэйбла <B>Metalagen</B>. Совсем недавно <B>DEICIDE </B>отменили своё турне по Европе. Такое случается, но <B>Metalysee </B><SPAN>не дали спустить это дело на тормозах и выступили с обличительным заявлением. «<I>Вчера, 8 июня, </I></SPAN><B><I>DEICIDE </I><I></I></B><I>скоропостижно отменили свой европейский тур. В этот день они должны были играть в Лондоне, но вместо этого группа ожидала рейса в США в аэропорту Хитроу. Все проблемы начались за неделю до этого, когда </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> потребовал значительного увеличения гонорара за каждое шоу, в противном случае </I><B><I>DEICIDE</I></B><I> отказывались выступать. Мы были вынуждены принять их условия, так как не могли отменить этот тур. Однако 8 июня группа потребовала ещё больших денег. Дошло до того, что они просили двойного увеличения первоначальной суммы. Мы не стали выполнять эти просьбы. Наряду с финансовыми разногласиями </I><B><I>DEICIDE</I></B><I> не понравились условия транспортировки, в автобусе был сломан кондиционер. В конце концов, группа развернулась и улетела домой, оставив три группы, участвующих с ними в трассе, агентов, промоутеров и, конечно же, обманутых зрителей</I>». Ответ <B>Glenn Benton </B><SPAN>не заставил себя ждать: «<I>Во-первых, мы прервали своё сотрудничество с </I></SPAN><B><I>Metalysee</I></B><I> много лет назад, из-за ущемления прав групп, практикуемых на этой фирме. Сейчас мы вновь связались с этой конторой, считая, что многое должно измениться, например, трансферы. Замечу, что мы требовали всего 400 долларов за шоу. Но когда поняли, что за эти деньги нам придётся провести 4 недели в автобусе вместе с ещё 20 людьми, немного расстроились. Теперь автобус… Мы провели ночь на стоянке, дожидаясь его. </I><B><I>Johan</I></B><I> (босс </I><B><I>Metalysee</I></B><I>) врал нам, что он сломался, что неудивительно, когда пытаешься сэкономить на всём, чтобы заработать побольше, не считаясь с удобствами музыкантов. Автобус показался, опоздав на 7 с половиной часов… И у него не было кондиционера. Он не был сломан, его просто не было. Дохлые жучки повсюду, неубранные за прошлой группой помои. В контракте был указан «хороший автобус», этот не был таковым. Это же опасно для здоровья. Я вернулся домой с лёгочной инфекцией. После нескольких часов езды мы все были больны, запах моноксида углерода доконал нас. Я уже говорил </I><B><I>Johan</I></B><I>, что мы не можем путешествовать на подобных автобусах. Поверьте, нам не доставляет удовольствия отменять тур. Дал бы нам другой автобус или хотя бы почистил этот! А так, нам пришлось истратить 5000 долларов своих личных денег, чтобы вернуться домой, и ночевать на полу в аэропорту</I>». <B>Metalysee </B><SPAN>немедленно ответили на эти заявления: «<I>То, что сказал этот парень, может сказать только идиот. Мы работаем с лучшими </I></SPAN><I>black</I><I>-</I><I>death</I><I><SPAN> коллективами и никогда не кидаем своих партнёров. Касаемо транспорта, мы работаем только с лучшим перевозчиком в Европе <B>Starline-De Wit-Gaanon. </B>Мы все просто счастливы, что отделались от </SPAN></I><B><I>DEICIDE</I></B><I>. Многие локальные промоутеры больше не будут работать с этой группой. Посмотрим, какое ещё агентство обеспечит все требования </I><B><I>DEICIDE</I></B><I>: перелёт, трансфер, бэклайн и многое другое. </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> самый отвратительный тип, с которым я работал. Желаю ему, всего наилучшего</I>». Начитавшись подобных заявлений, к схватке присоединился бывший гитарист <B>HADES Dan Lorenzo</B><SPAN>: “<I>Никогда бы не подумал, что поддержу </I></SPAN><B><I>Glenn </I><I></I><I>Benton</I></B><I>. Но, прочитав его заявление, я вспомнил то, о чём редко рассказывал. Одной из главных причин распада </I><B><I>HADES</I></B><I> сразу после европейского тура 1989 года была работа </I><B><I>Metalysee</I></B><I>. У нас было огромное количество народу в автобусе, который был рассчитан всего на 8 человек. Мы не могли никому высказать претензии, так как </I><B><I>Johan</I><I></I></B><I>просто исчез. После 10 дней мучений мы уже решили не продолжать </I><B><I>HADES</I></B><I>, но всё-таки доиграли тур, чтобы не кидать наших фэнов</I>». Многие группы были переломаны под колёсами этого автобуса, который носится по Европе битком набитый отбросами и black-death коллективами. Кстати, теперь понятно, почему <B>MARDUK </B><SPAN>не приехали. Видимо, они были настолько измотаны подобными переездами, что просто не смогли справиться ещё и с нашими неурядицами. Для полноты картины приведу здесь высказывания <B>Евгения Аксёнова (</B></SPAN><B>Metalagen)</B> о несостоявшихся концертах <B>MARDUK</B>: «<I>Я, как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством <B>Metalysee</B>. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали <B>Pro-Pain & Co</B>. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт <B>Marduk & Co</B>. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае, сейчас я просто ничего не соображаю, но <B>Metalagen</B> больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего</I>». </P>
+Автор: Vit Belov
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 04.04.2005 news Новый DEICIDE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший гитарист <STRONG>DEICIDE Eric Hoffman</STRONG> вместе со своим братом <STRONG>Brian Hoffman</STRONG> - также бывшим и также гитаристом <STRONG>DEICIDE</STRONG> собирают новый <STRONG>DEICIDE</STRONG>. Родственники начинают тяжку с <STRONG>Glen Benton</STRONG> за имя.</FONT></P>
+Автор: Vit Belov
+
+### 25.10.2005 news Glen Benton объявил имена новых гитаристов DEICIDE
+
+<P><STRONG>Glen Benton</STRONG> объявил о имена новых музыкантов <STRONG>DEICIDE</STRONG>. Бывший гитарист <STRONG>CANNIBAL CORPSE Jack Owens</STRONG> и бывший гиатрист <STRONG>ICED EARTH</STRONG> и <STRONG>DEATH Ralph Santola</STRONG> составят компанию <STRONG>Benton</STRONG> в ближайших турах по Европе и США.&nbsp;&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 12.12.2005 news DVD от DEICIDE
+
+<P>23 января на <STRONG>Earache</STRONG> выходит DVD <STRONG>DEICIDE "When London Burns</STRONG>".&nbsp;На диск попадёт концерт в Лондоне, снятый 29 ноября 2004 года. Трэк-лист:</P>
+<P>01. <B>Scars of the Crucifix</B><BR>02. <B>They Are the Children of the Underworld</B> <BR>03. <B>Bastard Of Christ</B> <BR>04. <B>When Satan Rules His World</B> <BR>05. <B>Once Upon the Cross</B> <BR>06. <B>Kill the Christian</B> <BR>07. <B>Serpents of the Light</B> <BR>08. <B>Dead but Dreaming</B> <BR>09. <B>Lunatic of God's Creation</B> <BR>10. <B>Sacrificial Suicide</B> <BR>11. <B>When Heaven Burns</B> <BR>12. <B>Dead by Dawn</B> <BR>13. <B>Behind the Light Thou Shall Rise</B> <BR>14. <B>Deicide</B> <BR>15. <B>Crucifixation</B> <BR>16. <B>Christ Denied</B> <BR>17. <B>Oblivious to Evil</B>&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.01.2006 news Название нового альбома DEICIDE
+
+<P>Новый альбом <STRONG>DEICIDE</STRONG> будет называться&nbsp;"<STRONG>The Stench of Redemption</STRONG>". Пока записано только инструментальное демо.</P>
+Автор: Vit Belov
+
+### 09.02.2006 news DEICIDE собираются записывать новый альбом
+
+<P>Сатанисты <B>DEICIDE</B> начнут записывать свой новый альбом под названием <B>"The Stench Of Redemption"</B> в студии <STRONG>Morrisound</STRONG> под руководством <B>Джима Моррисона</B> в марте этого года. Это будет первый диск группы с новыми гитаристами <STRONG>Джеком</STRONG> <B>Оуэном (Cannibal Corpse)</B> и <B>Ральфом Сантоллой</B> (ex- <B>Death / Iced Earth</B>), которые гастролировали вместе с <B>Гленом Бентоном</B> и Со после отставки братьев <B>Хоффманнов</B> в 2005 году. А первый DVD группы, <B>"When London Burns"</B> уже в продаже!</P>
+Автор: Ixtiandr
+
+### 16.02.2006 news DEICIDE объявили дату релиза нового альбома
+
+<P>Как и можно было предположить, дата выбиралась не случайно. Пометьте в своих календарях 6 июня, то есть 6.6.06! Именно в этот день и выйдет новый релиз сатанистов <B>DEICIDE</B> под&nbsp;названием <B>"The Stench Of&nbsp;Redemption"</B>.</P>
+Автор: Ixtiandr
+
+### 06.03.2006 news DEICIDE выступят на фесте Nummirock
+
+<P>Сатанисты <B>DEICIDE</B> объявили об участии в 20-ом по счету фестивале <B>Nummirock</B>, который пройдет 23 и 24 июня в городке Нуммиярви, Финляндия. Также перед публикой выступят такие исполнители, как <B>HYPOCRISY</B>, <B>MARDUK</B>, <B>THE DUSKFALL</B>, <B>DIABLO</B>, <B>AMORPHIS</B>, и менее известные коллективы, окончательный список которых еще уточняется.</P>
+<P>Подробности ищите на сайте <A href="http://www.nummirock.fi/2006/">http://www.nummirock.fi/2006/</A></P>
+Автор: Ixtiandr
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 20.07.2006 news DEICIDE объявили форматы нового альбома
+
+<P>Новый альбом дэт-сатанистов <B>DEICIDE "The Stench Of Redemption"</B>, который появится на прилавках магазинов 21 августа в Европе и 22 августа в Северной Америке, выйдет в следующих форматах: обычное "стекло", Limited Edition Collectors Box с четырьмя открытками (с участниками группы) и двусторонним цветным постером, а также как 12-идюймовый picture disc на виниле тиражом в 1500 экземпляров.</P>
+Автор: Ixtiandr
+
+### 02.08.2006 news Видео DEICIDE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на новую песню<STRONG> DEICIDE "Homage For Satan"</STRONG> можно посмотреть на сайте выпускающего лэйбла <STRONG>Earache</STRONG>: <A href="http://www.earache.com/bands/deicide/HFS/player.html">http://www.earache.com/bands/deicide/HFS/player.html</A></FONT></P>
+Автор: Vit Belov
+
+### 22.08.2006 news Видео DEICIDE запрелили на телевидении в Великобритании
+
+<P>Английский музыкальный канал <STRONG>Scuzz TV</STRONG> запретил к показу видео на песню <STRONG>DEICIDE</STRONG> <STRONG>"Homage For Satan"</STRONG>, обвинив группу в уничижении и нападении на религию.&nbsp;</P>
+Автор: Vit Belov
+
+### 04.09.2006 news DEICIDE штурмуют чарты
+
+<P><IMG height=192 alt="" hspace=0 src="/images/news_rus/2006.09/10674.jpg" width=400 align=right border=5>Новый альбом <STRONG>DEICIDE "Stench Of Redemption"</STRONG> вошёл в чарты некоторых стран. В Англии группа стартовала с 14 места в чартах рок-альбомов, в Германии диск занял 84 место уже в общей классификации, а в чарте новых артистов Billboard&nbsp;<STRONG>DEICIDE </STRONG>заняли 11 место. </P>
+<P>Также группа представила публике своё новое лого.&nbsp;</P>
+Автор: Vit Belov
+
+### 13.09.2006 reviews DEICIDE задали жару
+
+<P>Glen Benton, главный сатанинский death-metal герой всего мира, силён, как никогда. Перейдя на Earache, DEICIDE выпускают второй мощнейший альбом. Между альбомами Glen умудрился сорвать европейский тур, изгнать из группы гитаристов-братьев Хоффманов, а также выпустить DVD, который, к сожалению, у нас ещё не появился в продаже. На место гитаристов были рекрутированы, безусловно, мастера своего дела Jack Owen (ex-CANNIBAL CORPSE) и Ralph Santolla (ex-ICED EARTH, ex-DEATH, MILLENIUM). Если первый известен, как прямолинейный брутальщик, то второй так же зарекомендовал себя, как создатель мелодик hard-rock группы MILLENIUM, чей альбом, оформленный в таких «голубоватых тонах», вышел недавно и в России. Подобные изменения не могли не повлиять на музыкальную составляющую “The Stench Of Redemption”. Benton пошёл по проторенной дорожке, освежил звучание за счёт «перетряски» состава. Как и многие другие «лидеры-диктаторы», он продлил фазу активной жизни группы.</P>
+<P>Новый альбом DEICIDE очень хорош. Брутальный как всегда, он ещё и очень мелодичен для столь зверской музыки. Великолепные соло, гармонии и вопли самого Benton отлично совмещаются. Конечно же, DEICIDE не стоит слушать поклонникам IN FLAMES, но любители KATAKLYSM и HYPOCRISY уже могут попробовать. Атака на слушателя ведётся Earache на всех фронтах. Отличный видеоклип на, пожалуй, лучшую вещь с альбома “Homage For Satan” уже сейчас можно «качнуть» на сайте лэйбла. Прикольный видеоряд дополнит впечатления от звуковой дорожки. </P>
+<P>Похоже, агрессивная PR-компания DEICIDE оправдывает себя, ведь музыкантам есть чем похвастать помимо скандальных историй и сатанинских проповедей. Музыка на “The Stench Of Redemption” также самой высокой пробы</P>
+Автор: Vit Belov
+
+### 26.09.2006 reviews Зловоние искупления
+
+<P>Честно призн<I>а</I>юсь: после совершенно провального прошлого альбома Deicide "Scars Of The Crucifix" (2004) я уже было решил, что на этой, и без того далеко не самой моей любимой команде в жанре дэт-метал, можно ставить большой и жирный крест, уж никак не меньше того, что выжжен на лбу Глена Бентона. Но иногда приятно и ошибаться. Самый известный сатанист и христоненавистник поступил радикально (видимо, noblese oblige): выгнал к чертовой матери братьев Хоффманов и взял в свою дьявольскую команду товарищей Ralph Santolla (игравшего в таких группах, как Death, Sebastian Bach, Iced Earth, Eyewitness, Millennium) и Jack Owen (ex-Cannibal Corpse). Результат не заставил себя ждать: "The Stench Of Redemption" ("Зловоние искупления") - это, пожалуй, лучший альбом группы со времен "Legion". Он оказался самым длинным за всю историю Deicide (почти 40 минут), да и таких гитарных соляков на их пластинках я что-то не припомню. Самое главное - исчезло то тупорылое долбилово, которое так характерно для работ этой команды (и прибавилось мелодичности, что, однако, не пошло на вред брутальному саунду). Чуть ли не впервые за свои почти 20 лет существования Deicide вспомнили, что они прежде всего играют музыку. Ну и продакшен просто замечательный: мощная стена звука с прекрасно различимыми инструментами. Намного меньше стало дисторшированного вокала, что также идет только в плюс. Интересно, что практически все вещи написал (как вы понимаете, я не про тексты, там-то всё с авторством ясно) барабанщик группы, Steve Asheim. В общем и целом, у Deicide получилась мощнейшая дэт-металическая пластинка, претендующая на один из лучших релизов жанра в этом году. Просто убойный альбом! Фанаты могут выбирать между изданием в обычном стекле, Collector's Deluxe Box Edition с четырьмя открытками с фотографиями участников группы и постером, Picture LP и самым "жирным" вариантом - где, кроме указанного варианта с открытками и постером, есть бонус-трек - кавер песни 'Black Night' Deep Purple (цена на Earache всего 21 евро!).</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 24.10.2006 reviews Свежая кровь мясу на пользу
+
+<P>Еще до того, как ознакомиться с этим альбомом я слышал несколько хвалебных од, утверждавших, что The Stench Of Redemption - шедевр! Прослушивание диска убедило меня, что данные утверждения не далеки от истины и новый релиз наверное самый сильный за всю историю группы. Смена&nbsp; братьев-гитаристов Брайана и Эрика Хоффманов на Джека Оуена (ex-Cannibal Corpse) и Ральфа Сантоллу (ex-Iced Earth и Death) явно пошла на пользу.</P>
+<P>&nbsp;Что отличает новый релиз? Впервую очередь, он получился более скоростным и мелодичным, но в то же время сохранил злость и агрессию, присущую работам Deicide. Мясные риффы грамотно приправлены виртуозными соляками. Запись проходила на флоридской Morrisound studio, ставшей культовой для представителей брутальных направлений музыки.</P>
+<P>Одним словом, новая работа Deicide обещает стать альбомом года в жанре death metal, оставив далеко позади релизы конкурентов.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 01.11.2006 news Планы концертного агентства Flaming Arts
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Концертное агентство Flaming Arts сообщило о своих ближайших планах:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Сенсация!!! Легендарный американский DEICIDE на концертах в СНГ с 31.01 по 04.02.07! Кто еще совсем не давно мог бы подумать, что сможет увидеть легенду американского death-metal во главе с самим Гленом Бентоном на концертах в СНГ??? "DEICIDE - одна из моих любимых групп с того момента, когда я начал слушать по-настоящему тяжелую музыку, - говорит Вадим Хомич, шеф THE FLAMING ARTS - именно, поэтому нам настолько важны эти концерты. Я долгое время вел переговоры с музыкантами, и мы все же смогли договориться. Это огромное событие для меня". Кроме того, DEICIDE посетит Россию и Украину в звездном составе: Glen Benton - bass, vocal, Steve Asheim - drums, Jack Owen - guitars, Ralph Santolla - guitars.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Долгожданные концерты шведских black metal коммандос MARDUK. Их концерты отменялись в СНГ уже 3 раза, к сожалению, не по вине самих музыкантов. "Ну, когда же, наконец, к нам приедет MARDUK", - говорят многие. Именно по этому, это тур можно назвать одним из самых долгожданных. Для тех, кто не верит в их приезд, вот цитата с официального сайта группы: "MARDUK, наконец-то, нашли партнера в Восточной Европе, заслуживающего доверия - это THE FLAMING ARTS. В январе группа отправится на несколько избранных концертов в Россию, Украину, Беларусь. Ждите в скором времени даты концертов". Официальным саппортом на этих концертах будет английско-польская&nbsp; Avant-Garde Black/Death metal формация DEVILISH IMPRESSIONS. </EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>THE AGE OF MOVEMENT TOUR 2006<BR>RASTA НЕ ОТДЫХАЕТ!!!! Отыграв на крупнейших фестивалях Восточной Европы, таких как WOODSTOCK, BRUTAL ASSAULT и HUNTER FEST с мировыми метал монстрами, а также только что вернувшись из польского тура, который прошел более чем успешно, не успев толком отдохнуть, группа снова на трассе. На этот раз RASTA совершит полномасштабный беларусский тур, который охватит все областные города страны и продолжится 9-ю концертами в России. В первую очередь это сопряжено с переизданием альбома 2006 года "THE AGE OF MOVEMENT" в Беларуси, который, начиная с мая месяца разгребается с прилавков музыкальных магазинов дичайшими темпами! В тот же момент, российская часть тура связана с выходом альбома в России на MAZZAR RECORDS, где диск выйдет в коллекционном формате дигипак. Презентации в Москве и Питере отложены на более удобное время, о котором будет сообщено дополнительно. А пока жители других регионов смогут лицезреть группу у себя в городе. Кроме того, на саппорте у RASTA будет выступать не менее интересная группа из Польши THY DISEASE, альбомы которой доступны на CD-MAXIMUM.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>THE AGE OF MOVEMENT TOUR 2006<BR>RASTA + THY DISEASE<BR>09.11.06 - Брест "Zio Pepe" + Deathbringer<BR>10.11.06 - Гродно "StopLine" + Deathbringer<BR>11.11.06 - Могилев "ГЦК" + Deathbringer<BR>12.11.06 - Витебск "Бригантина"+ Deathbringer<BR>13.11.06 - Минск "WestWorldClub" + Deathbringer<BR>14.11.06 - Гомель "ГЦК" + Deathbringer<BR>15.11.06 - Иваново "Таганка" + Murk Exorbitance<BR>16.11.06 - Самара "Рок-Подвал" + Dimension Of Doomed<BR>18.11.06 - Екатеринбург "Стрела" + SUPPORT<BR>19.11.06 - Тольятти "Генератор" + SUPPORT <BR>20.11.06 - Нижний-Новгород "5 элемент" + SUPPORT <BR>21.11.06 - Тула "к-тр Родина"+ SUPPORT<BR>23.11.06 - Ростов-на-Дону "Подземка" + SUPPORT<BR>24.11.06 - Воронеж "100 ручьев" + SUPPORT<BR>26.11.06 - Ярославль "Партизан" + SUPPORT</EM>"</FONT></P>
+Автор: Vit Belov
+
+### 30.11.2006 news Новое DVD DEICIDE
+
+<P><STRONG>DEICIDE</STRONG> выпускают новое DVD <STRONG>"Doomsday in L.A." </STRONG>22 января на <STRONG>Earache</STRONG>. На диск попал концерт, снятый в ноябре в Лос-Анжелесе. В качестве бонусов будут видеоклипы и интервью с <STRONG>Glen Benton</STRONG>. Трэк-лист:</P>
+<P>01. <B>Intro</B><BR>02. <B>Dead By Dawn</B><BR>03. <B>Once Upon The Cross</B><BR>04. <B>Scars of the Crucifix</B><BR>05. <B>The Stench of Redemption</B><BR>06. <B>Death to Jesus</B><BR>07. <B>When Satan Rules His World</B><BR>08. <B>Serpents of the Light</B><BR>09. <B>They Are The Children Of The Underworld</B><BR>10. <B>Desecration</B><BR>11. <B>Bastards of Christ</B><BR>12. <B>Dead But Dreaming</B><BR>13. <B>Trifixion</B><BR>14. <B>When Heaven Burns</B><BR>15. <B>Walk With the Devil in Dreams You Behold</B><BR>16. <B>Homage for Satan</B><BR>17. <B>Kill the Christian</B><BR>18. <B>Sacrificial Suicide</B></P>
+Автор: Vit Belov
+
+### 08.01.2007 news DEICIDE уехали в тур без Бентона
+
+<P>5 января начался европейский тур<STRONG> DEICIDE</STRONG>. К сожалению, лидер коллектива<STRONG> Glen Benton</STRONG> не смог принять в нём участия. Он задержался в США, из-за проблем с выездом из страны. 6 января группа выступила на фестивале в Голландии. Фронтменом выступил барабанщих <STRONG>SEVERE TORTURE</STRONG> <STRONG>Seth van Loo</STRONG>.&nbsp;Если до сегодняшнего дня <STRONG>Бентон</STRONG> не сможет покинуть США, <STRONG>DEICIDE</STRONG> придётся найти нового вокалиста, чтобы давать следующие концерты.</P>
+<P>Напомним, что в рамках текущего тура, <STRONG>DEICIDE</STRONG> дадут три концерта в России: 2 февраля в Санкт-Петербурге в клубе "Порт", 3 февраля в Москве в клубе "Точка" и 4 февраля&nbsp;в клубе "Орбита". Выедет ли <STRONG>Бентон</STRONG> к этому времени в Европу?&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 09.01.2007 news Тур DEICIDE продолжается
+
+<P>Тур <STRONG>DEICIDE</STRONG> продолжится без <STRONG>Бентона</STRONG>. По уточнённым данным, в США его задержали семейные проблемы. Когда он присоединится к группе, неизвестно. <STRONG>DEICIDE</STRONG> заявили, что обязаны продолжить тур, так как уже отменяли его несколько раз. <STRONG>Garbaty 'Yaha'</STRONG>&nbsp;из польской группы <STRONG>DISSENTER</STRONG> присоединится сегодня к<STRONG> DEICIDE</STRONG> в Лондоне.</P>
+<P>Напомним, что чуть меньше&nbsp;чем через месяц <STRONG>DEICIDE </STRONG>выступят в России. Будем ждать обновлений.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 11.01.2007 news DEICIDE всё равно приедут в Россию
+
+<P>Концертное агентство <STRONG>Flaming Arts</STRONG> выступило с заявлением, по поводу отсутствия <STRONG>Glen Benton</STRONG> в текущем туре <STRONG>DEICIDE</STRONG>:</P>
+<P>"<EM>До сих пор существует возможность, что Глен сможет присоединиться к европейскому туру, как только его проблема будет решена. Но даже, если этого не произойдет, мы не в коем случае не будем отменять запланированные нами концерты группы. DEICIDE силен, как никогда, и лишать фэнов удовольствия, может быть, единственный раз в жизни увидеть эту легендарную группу живьем мы просто не можем, тем более, что кроме Глена Бентона в составе группы находятся настоящие звезды мировой метал сцены</EM>".</P>
+<P>А вот, что сказал барабанщик <STRONG>DEICIDE Steve Asheim</STRONG>:<BR>"<EM>DEICIDE понимает, каким сумасшедшим выгладит тур без Глена Бентона, но принимая во внимание другие отмены туров группой за последние несколько лет, перспектива очередного срыва тура не подходит ни для кого. Взвешивая перспективы отмены либо продолжения тура без него, единственным, по-настоящему, стоящим решением для метал группы является именно не отменять выступления - шоу должно продолжаться. И фэны с этим согласны, т.к. случаев возврата билетов практически нет, а люди возвращаются с концертов с чувством полного удовлетворения. Deicide надеется, что Глен присоединится к туру как только это станет возможным, а пока тур продолжается по расписанию</EM>".</P>
+Автор: Vit Belov
+
+### 12.01.2007 news Организаторы начинают отменять концерты DEICIDE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Испанское концертное агентство, отвечающее за испанские даты тура <STRONG>DEICIDE</STRONG>, сообщило, что отменяет испанский тур группы, из-за отсутствия <STRONG>Glen Benton</STRONG> в группе. Билеты на концерты в Испании с 15 по 18 января принимаются назад.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>DEICIDE Ralph Santolla</STRONG> заявил, что<STRONG> DEICIDE</STRONG> не отменяли концертов в Испании. Группа даже собирается в эту страну. На сегодняшний день <STRONG>Glen Benton</STRONG> так и не прилетел.</FONT></P>
+Автор: Vit Belov
+
+### 12.01.2007 news Glen Benton все-таки приедет!
+
+<FONT color=#004080 size=2>
+<P>Совсем недавно пришла по-настоящему отличная новость от <STRONG>Flaming Arts</STRONG>!!! <STRONG>Glen Benton</STRONG> все-таки присоединится к туру <STRONG>DEICIDE</STRONG> в Париже 13.01.07!!! Ждем его и в Москве!!!</P></FONT>
+Автор: Dimas
+
+### 15.01.2007 news Benton так и не появился
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Glen Benton</STRONG> не присоединился к <STRONG>DEICIDE</STRONG> в Париже 13 января, как сообщалось ранее. Организатор тура в Европе объявил, что был введён в заблуждение лэйблом <STRONG>DEICIDE Earache</STRONG>. Тур продолжается без <STRONG>Benton</STRONG>, от которого что-то давно нет новостей.</FONT></P>
+Автор: Vit Belov
+
+### 26.01.2007 news Барабанщик DEICIDE арестован
+
+<P>Барабанщик<STRONG> DEICIDE Steve Asheim</STRONG> был задержен полицией Инсбрука по подозрению в ограблении банка. <STRONG>Steve</STRONG> отправился в банк, чтобы разместить выручку от продажи мерча на депозите, но был задержан полицией, так как большая часть купюр была помечена и проходила по недавнему ограблению.</P>
+<P>После допроса <STRONG>Steve</STRONG> был отпущен. До концерта в России осталась неделя, что ещё придумают<STRONG> DEICIDE</STRONG>?</P>
+Автор: Vit Belov
+
+### 31.01.2007 news DEICIDE отменён
+
+<P>Концерты DEICIDE в России отменены. Заявление организаторов:</P>
+<P>"<EM>К сожалению, мы вынуждены сообщить об отмене концертов DEICIDE&nbsp; в России. Проблемы с группой уже начались тогда, когда в Европу не прилетел Глен Бентон. Но по просьбе музыкантов DEICIDE, THE FLAMING ARTS и партнеры в Москве и Санкт-Петербурге решили не отменять концерты и выполнить свои обязательства, несмотря на отсутствие фронтмэна американцев, т.к. THE FLAMING ARTS совместно с MUSICNESS RUSSIA, JC-SOUND и POLYGON являются честными и надежными партнерами и всегда готовы идти навстречу группам, с которыми работают.<BR>За два дня до назначенной встречи в российском посольстве в Варшаве, где была договоренность о том, что DEICIDE будут сделаны экспресс (в течение нескольких часов) визы в Россию музыканты начали придумывать всякие причины, чтобы перенести концерты, но агентство THE FLAMING ARTS сделало все, чтобы объяснить, что причин для переноса нет, и концерты DEICIDE в России вызывают огромный интерес даже в отсутствие Глена Бентона, с чем в итоге американцы согласились.<BR>Однако сегодня ночью стало известно, что после последнего концерта европейского тура в Берлине, DEICIDE решили остаться в столице Германии и не приехали в посольство России для того, чтобы сделать визы, хотя работники посольства согласились принять их в любое время (за что им отдельное спасибо) и билеты на самолет из Варшавы в Россию и из России в США были для них забронированы.<BR>Организаторы концертов в России пока не понимают, чем было вызвано такое странное решение группы и надеются получить внятный ответ в течение нескольких дней.<BR>А пока мы хотели бы принести свои извинения всем фэнам группы в России, который с нетерпением ждали приезда DEICIDE. <BR>Надеемся получить официальное заявление группы в течение нескольких дней, которое должно объяснить поведение группы относительно российских концертов</EM>".</P>
+Автор: Vit Belov
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 15.08.2007 news DEICIDE живы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Earache</STRONG> сообщили, что <STRONG>DEICIDE</STRONG> сочинили уже восемь песен для нового альбома. В группе остались <STRONG>Glen Benton</STRONG>,<STRONG> Steve Asheim</STRONG> и <STRONG>Jack Owen</STRONG>. Возможно, к ним добавится гитарист <STRONG>VITAL REMAINS Dave Suzuki</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 10.12.2007 reviews Гламурный сатанист мистер Бентон и DVD от DEICIDE каждый год
+
+<P>Американские brutal-death маньяки-сатанисты DEICIDE выпускают уже второе DVD за два года. Предыдущий концерт был отснят в Лондоне в старом составе с братьями Hoffmann с гитарами в руках. Тем мощным концертом ознаменовывалось появление DEICIDE на английском лэйбле Earache. Надо же такому случиться, что после серии провальных гастролей по Европе «директор» группы Glenn Benton взял да уволил незадачливых братьев из своего сатанинского клуба. Их место заняли более мастеровитые Ralph Santola (ex-DEATH, MILLENIUM) и Jack Owen (ex-CANNIBAL CORPSE). В этом сильнейшем составе DEICIDE записали один из лучших, если не самый лучший, альбом “The Stench Of Redemption”. Видимо, устрашившись своего собственного величия или же тотального ничтожества прошлого, господин Бентон решил отснять новый концерт. На этот раз DEICIDE приглашают нас в Лос-Анжелес, где прошла запись “Doomsday LA”.</P>
+<P>Несмотря на апокалипсическое название, никаким «судным днём» в тот вечер в «городе ангелов» не пахло. Если честно, DEICIDE выбрали странное место для записи DVD. Клуб, в котором проходил концерт, похож на маленький театр. Низкая сцена с занавесом, зрители, стоящие вплотную, яркий ровный свет. Может это и есть ад? Музыканты не порадовали своей статичностью. Весь концерт ведёт безупречный Глен Бентон, а Ральф и Джэк просто отыгрывают свои партии. Колоритен автор музыки барабанщик Steve Asheim, видно, что ему нравится происходящее. Открылся занавес и в таком виде предстали DEICIDE в своей нынешней форме. Начинали концерт нон-стоп три песни, во время которых звукорежиссёру удалось выправить звук до приемлемого. Поначалу же казалось, что удовольствия от техничных и мелодичных новых песен DEICIDE получить не удастся, из-за паршивого звука. Честно говоря, окажись я на концерте DEICIDE в светлом зале периферийного театра, я бы растерялся. Как к этому относится? Атмосфера явно была не подходящая. Увлекать же концерт стал только после четвёртого трэка, заглавной песни с нового альбома “The Stench Of Redemption”. Мощная ритмическая музыка захватила полностью, несмотря на разрозненность музыкантов на сцене. Хочется, кстати, развенчать миф о незаменимости соло-гитариста Ральфа Сантолы. Джэк Оуэн (его Бэнтон представил, как Джэк Оуэн из CANNIBAL CORPSE) играет соло не хуже его. Ральф покинул DEICIDE, не выдержав общения с Бэнтоном, но Джэк вроде бы остался, группа пишет новый материал, который, хочется верить, будет не менее интересным и солоёмким.</P>
+<P>А теперь о главном, о Бентоне. Именно, этот гламурный сатанист приковывает к себе внимание толпы. Идеально подстриженная борода, ровный цвет лица (не использовалась ли тут косметика?), чёрные, как смоль, волосы. Ну, прямо хоть сейчас в мексиканский сериал на роль какого-нибудь Дона Альберто. Прибавьте к этому фотогеничные позиции с разинутым ртом и идеально ровными зубами, и даже перевёрнутый крест, вырезанный на лбу, ничто его не испортит. Молоток! Если не брать в расчёт тексты песен и страшноватого барабанщика Стива, DEICIDE уже сейчас можно приглашать на церемонию вручения наград MTV. В качестве бонуса на диске присутствует обязательное интервью и два видеоклипа. На интервью музыкантов рассадили подвое. Джэк попал в пару к Стиву, а Гленн сел с Ральфом. Что это была за пара! Один красавец с перевёрнутым крестом на лбу, второй престарелый одутловатый «некрасавец» с кучей «железных» неперевёрнутых крестов. Один самоуверенно улыбается, второй неуверенно жмётся к стеночке и постоянно что-то чешет на своём лице. Они явно любят друг друга! Естественно не могла не зайти речь о католическом воспитании Ральфа, в коем он признался. Увы, место в первых рядах ада господин Сантола себе уже обеспечил, но он этого ещё не понимает. Он говорит, что верит в Иисуса, но не признаёт церковь. И именно это позволяет ему спокойно сосуществовать в группе DEICIDE с Гленном Бентоном. Бентон с усмешкой сообщил, что не всех убивает, кто верит в Христа, поэтому всё ОК. Подобные казусы встречались мне только на территории нашей страны, но если учесть раскрученность сатаниста Бентона, этот случай поистине уникальный.</P>
+<P>В общем и целом, Earache выпустили очередной неплохой Death-metal DVD. Качество его продукции оставляет желать лучшего, но это общие проблемы не самого популярного стиля. Возможно, столь не стандартное место для съёмки также было выбрано с целью уменьшить капиталовложения. Целесообразность же выпуска этого концертника осталась для меня под вопросом. Сейчас у DEICIDE сменился состав вновь, а зимой группа по Европе, вообще, без Бентона ездила, что же новые DVD выпускать?</P>
+Автор: Vit Belov
+
+### 12.12.2007 news Glen Benton записал вокал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2007.12/12029.jpg" width=400 align=right border=5>Glen Benton</STRONG> записывает вокал для нового альбома <STRONG>DEICIDE</STRONG> <STRONG>"Till Death Do Us Part"</STRONG>&nbsp;в <STRONG>Morrisound Studio</STRONG> в&nbsp;Тампе.&nbsp;<STRONG>Glen</STRONG> сообщает, что тексты&nbsp;песен стали более быстрыми, и ему понадобилось постараться, чтобы&nbsp;прописать свои партии. Также певец радуется, что находится в отличной форме, ему пошёл на пользу 8-месячный отдых.</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 22.02.2008 news Новая песня DEICIDE
+
+<P>Новейший альбом <STRONG>DEICIDE</STRONG> <STRONG>"Till Death Do Us Part"</STRONG> выходит 28 апреля на <STRONG>Earache</STRONG>. Группа выложила новую песню "<STRONG>The Eyes Of God</STRONG>" на своей <STRONG>MySpace</STRONG> страничке. Трэк-лист будущей работы:</P>
+<P>01. <B>The Beginning of the End</B><BR>02. <B>Till Death Do Us Part</B><BR>03. <B>Hate of All Hatreds</B><BR>04. <B>In the Eyes of God</B><BR>05. <B>Worthless Misery</B><BR>06. <B>Severed Ties</B><BR>07. <B>Not As Long As We Both Shall Live</B><BR>08. <B>Angel of Agony</B><BR>09. <B>Horror in the Halls of Stone</B><BR>10. <B>The End of the Beginning</B>&nbsp;&nbsp;</P>
+<P>Ссылка: <A href="http://www.myspace.com/thestenchofredemption">http://www.myspace.com/thestenchofredemption</A></P>
+Автор: Vit Belov
+
+### 19.05.2008 reviews Глена Бэнтона много. Очень много.
+
+<P>Новая работа DEICIDE вызывала у многих фэнов тяжёлой, но мелодичной музыки очень большой интерес. Действительно, предыдущий альбом американских экстремальщиков “The Stench Of Redemption” оставил очень приятное впечатление. Мелодичные прямолинейные хиты, чёткий баланс между мелодизмом и забоем заставили многих взглянуть на DEICIDE с другой стороны. Группа под предводительством Глена Бэнтона больше не воспринималась, как тупая машина по борьбе с христианами, она стала восприниматься, как не тупая машина по борьбе с христианами.</P>
+<P>По этой причине “Till Death Do Us Part” сразу же попал в мой проигрыватель, как только достиг прилавков магазинов. Что ж, DEICIDE вновь шагнули. В сторону они шагнули, вперёд ли? Мне это не понятно. Аранжировки песен усложнились, простому любителю мелодики в обрамлении death-metal делать теперь здесь, прямо скажем, нечего. Правда причислить этот альбом к классике техничного death-metal тоже не представляется возможным. Из колонок на протяжении всего прослушивания доносится что-то тяжёлое и многообещающее. К сожалению, эти обещания так ни во что и не выливаются. Все песни напоминают какое-то одно большое вступление. С музыкальной точки зрения новый альбом DEICIDE, возможно, и интересен, но совершенно неслушабелен. Поклонник музыки останется ни с чем и может почувствовать себя обманутым. Вот кто здесь действительно получит удовольствие, так это поклонник лично Глена Бэнтона. Он не замолкает ни на минуту, прерываясь только на короткие гитарные проигрыши и перерывы между песнями. Мастерство певца действительно впечатляет. И гроулинг, и скриминг выполнены на очень высоком уровне, Глену удаётся проговаривать внятно очень сложные фразы. Но нам-то что до этого?</P>
+<P>Я разочарован. Понятно, что знатоки творчества DEICIDE посмеются надо мной. Скажут, мол, услышал один мелодичный и стройный альбом от DEICIDE и раскатал губы. Они были бы правы, если бы предыдущий альбом группы не был бы столь впечатляющ.</P>
+<P>P.S.: Гитаристом здесь, несмотря ни на что, вновь Ralph Santola. Наверное, сходил в церковь на исповедь и снова решил поднабрать грешков.</P>
+Автор: Vit Belov
+
+### 05.01.2009 news Ralph Santola вновь в DEICIDE
+
+<P>Гитарист <STRONG>OBITUARY Ralph Santola</STRONG> подтвердил гостевое участие в грядущем туре <STRONG>DEICIDE</STRONG> по Европе. Напомним,<STRONG> Ralph</STRONG> ушёл из группы в 2007 году, но всё-таки записал гостевую гитару на последнем альбоме <STRONG>DEICIDE "Til' Death Do Us Part"</STRONG>, и вот сейчас поедет с группой в тур, начинающийся 8-го января в Тилбурге. Вместе с <STRONG>DEICIDE</STRONG> (с которыми, надеюсь, приедет и <STRONG>Benton</STRONG>) по Европе проедутся <STRONG>SAMAEL</STRONG>, <B itxtvisited="1">VADER</B>, <B itxtvisited="1">DEVIAN</B>, <B itxtvisited="1">ORDER OF ENNEAD</B> and <B itxtvisited="1">THE AMENTA</B>.</P>
+Автор: Vit Belov
+
+### 06.01.2009 news DEICIDE на Century Media
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEICIDE</STRONG> заключили соглашение с <STRONG>Century Media</STRONG>. Группа уже начала запись пластинки в <STRONG>Audiohammer Studios </STRONG>вместе с продюсером <STRONG>Mark Lewis</STRONG> (<B>THE BLACK DAHLIA MURDER</B>, <B>CHIMAIRA</B>) и планирует выпустить её летом. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Glenn Benton</STRONG>: "<EM>Мы рады стать официальным артистом Century Media. Я с нетерпением жду начала нашей работы с этой&nbsp;конторой</EM>".</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 26.08.2010 news Jack Owen присоеденился к GRAVE DESCENT
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17104.jpg" width=147 height=200>Гитарист&nbsp;<STRONG>Jack Owen</STRONG> (<STRONG>DEICIDE</STRONG>/ex-<STRONG>CANNIBAL CORPSE</STRONG>) присоединился к death metal группе из Buffalo <STRONG>GRAVE DESCENT</STRONG>. Согласно&nbsp;пресс-релизу <EM>"<STRONG>Jack </STRONG>всё ещё числится в <STRONG>DEICIDE</STRONG>; он участник обоих коллективов. Корни <STRONG>Jack</STRONG>'а находятся в Buffalo и будучи друзьями с парнями,&nbsp;это было логичным, когда <STRONG>Dennis John Glinski</STRONG> (вокал) обратился к <STRONG>Jack</STRONG>'у с предложением&nbsp;занять место второго гитариста. <STRONG>Jack</STRONG> разделит сольные партии с <STRONG>Майком Грином</STRONG> (<STRONG>Mike Green</STRONG>), а так же, примет участие в написании песен. Это, дейстивтельно, воссоединение, т.к. эти все эти парни (включая бассиста <STRONG>Rich</STRONG>'а<STRONG> Ziegler</STRONG>'а<STRONG>),</STRONG> делили одну сцену в составе групп из Buffalo: <STRONG>TIRANT SIN</STRONG>, <B itxtvisited="1">BEYOND DEATH</B>, <B itxtvisited="1">LEVIATHAN</B>."</EM><BR itxtvisited="1"><B itxtvisited="1"></B></P>
+<P><B itxtvisited="1">GRAVE DESCENT</B> войдут в <B itxtvisited="1">Watchmen Studios</B> в сентябре, чтобы записать материал для&nbsp;полноформатного альбома.</P>
+Автор: Headcrusher
+
+### 06.11.2010 news Братья Hoffmann (ex-DEICIDE) возвращаются под вывеской AMON
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17551.jpg" width=400 height=400>Бывшие участники&nbsp;<B itxtvisited="1">DEICIDE</B> - <B itxtvisited="1">Eric Hoffmann</B> (гитара) и <B itxtvisited="1">Brian Hoffman</B> (гитара), воскресили свою старую группу <STRONG>AMON</STRONG> (предтечу <STRONG>DEICIDE</STRONG>). Помимо братьев <STRONG>Hoffmann</STRONG> в состав группы вошли: басист/вокалист&nbsp;<STRONG>Jesse "Jecheal" Jolly</STRONG> (<B itxtvisited="1">PROMETHEAN HORDE</B>, <B itxtvisited="1">DIABOLIC</B>, <STRONG>SUCCESS WILL WRITE APOCALYPSE ACROSS THE SKY</STRONG>,&nbsp;<B itxtvisited="1">AFTER DEATH</B>) и ударник&nbsp;<B itxtvisited="1">Mike Petrak</B> (<B itxtvisited="1">LEPROSY</B>, <B itxtvisited="1">SUCCESS WILL WRITE APOCALYPSE ACROSS THE SKY</B>). 10 декабря квартет войдёт в студию <B itxtvisited="1">RedRoom Recorders</B> в Тампе, чтобы начать запись своего нового альбома <B itxtvisited="1">"Liar In Wait"</B>.&nbsp;Продюсер диска -&nbsp;<B itxtvisited="1">Mark Prator</B>. <STRONG>"Liar In Wait" </STRONG>выйдет на собственном лейбле группы в начале 2011 и будет содержать 9 песен.</P>
+<P>На вопрос <STRONG>Blabbermouth.net</STRONG> о том, будет ли&nbsp;музыкальное направление группы <B itxtvisited="1">AMON</B> отличаться от того, что было в <B itxtvisited="1">DEICIDE</B>, <B itxtvisited="1">Eric Hoffmann</B> просто ответил:&nbsp;<EM>"Музыка скажет за себя сама."</EM></P>
+<P><STRONG>AMON</STRONG>&nbsp;записали два демо&nbsp;— <B itxtvisited="1">"Feasting The Beast"</B> (1987) и <STRONG>"Sacrifical"</STRONG> (1989)&nbsp;— прежде чем заключили сделку с <B itxtvisited="1">Roadrunner Records</B> и сменили своё имя на <B itxtvisited="1">DEICIDE</B>. В 1993 году, после выхода двух альбомов <STRONG>DEICIDE</STRONG>, имевших большой успех, группа решила реализовать демонстрационные ленты <B itxtvisited="1">AMON</B> на CD. Диск получил название <B itxtvisited="1">"Amon: Feasting The Beast"</B>.<BR itxtvisited="1"><BR itxtvisited="1">Братья <STRONG>Hoffman</STRONG> расстались с <B itxtvisited="1">DEICIDE</B>&nbsp;в 2004 году, после ожесточённого спора с басистом/вокалистом группы Гленом Бентоном (<STRONG>Glen Benton</STRONG>)&nbsp;&nbsp;относительно авторских гонораров.</P>
+Автор: Headcrusher
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 03.12.2010 news Новый альбом DEICIDE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.12/17730.jpg" width=400 align=right border=0>Новый альбом американских богохульников <STRONG>DEICIDE</STRONG> <STRONG>"To Hell With God" </STRONG>выйдет 15 февраля на <STRONG>Century Media</STRONG>. Пластинка была спродюсирована <STRONG>Mark Lewis (THE BLACK DAHLIA MURDER, CHIMAIRA)</STRONG> в <STRONG>Audiohammer Studios. </STRONG>Этот альбом станет дебютом для нового гитариста группы <STRONG>Kevin Quirion (ORDER OF ENNEAD)</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Save Your</B><BR>02. <B>Empowered by Blasphemy</B> <BR>03. <B>Conviction</B> <BR>04. <B>Hang in Agony Until You're Dead</B> <BR>05. <B>To Hell with God</B> <BR>06. <B>Servant of the Enemy</B> <BR>07. <B>Witness of Death</B> <BR>08. <B>Angels in Hell</B> <BR>09. <B>Into the Darkness You Go</B> <BR>10. <B>How Can You Call Yourself a God</B></P>
+<P>Сразу после релиза <STRONG>DEICIDE</STRONG> отправятся в тур вместе с <STRONG>BELPHEGOR</STRONG>, <B>BLACKGUARD</B>, <B>NEURAXIS</B>&nbsp;и <B>PATHOLOGY</B>. </P>
+<P>Предыдущая пластинка американцев <STRONG>"Till Death Do Us Part" </STRONG>вышла в 2008 году.</P>
+Автор: Vit Belov
+
+### 15.04.2011 reviews Нам такой DEICIDE нужен
+
+<P>Незаметно минуло почти пять лет с релиза сногсшибательного альбома DEICIDE “The Stench Of Redemption”. Практически впервые за свою карьеру американские «антихристы» решили поработать на мелодической составляющей собственного творчества. Но с этим главное не переусердствовать. Вслед за мелодичностью главный сочинитель музыки DEICIDE барабанщик Steve Asheim решил поработать и над техничностью. “Till’ Death Do Us Part” многие так и не поняли.</P>
+<P>С новейшим опусом “To Hell With God” DEICIDE могли двинуться куда угодно. К счастью, музыканты уже не первый год на сцене и понимают, чего от них хочет слушатель. Фанаты тяжёлой музыки в первую очередь требуют от группы из Флориды прямолинейного и ритмичного «месилова», а уж затем, как вишенка на торте, идёт мелодия или соло-гитара продолжающего работать с группой Ralph Santola. DEICIDE выдали именно такой ожидаемый материал. Классная реализация, ураганные риффы и бешеный речитатив главного сатаниста американской сцены Glen Benton. С соло-гитарой здесь тоже всё в порядке, гитаристы выдают простые и понятные проигрыши, которых после “The Stench Of Redemption” жаждут все новейшие поклонники группы. Отдельно отмечу безупречную реализацию, звучание гитар от Mark Lewis хочется слушать ещё и ещё.</P>
+<P>“To Hell With God” нельзя назвать лучшим альбомом американцев за последние годы, но после нечленораздельного предшественника он выглядит практически шедевром. Очень хороший и понятный релиз от классиков прямолинейного death-metal.</P>
+Автор: Vit Belov
+
+### 25.02.2012 news Мультики от DEICIDE
+
+<P>Новый мультипликационный клип<STRONG> DEICIDE</STRONG> на песню с последнего альбома <STRONG>"To Hell With God" "Conviction" </STRONG>можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/NfglcPPaLJk?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 24.07.2012 news &quot;Brutal Assault 2012&quot;: программа на каждый день, последние участники, информация о билетах
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24432.png" width=300 height=150>На сайте&nbsp;фестиваля <STRONG>"Brutal Assault"</STRONG>&nbsp;стала доступна программа с&nbsp;группами-участниками на каждый день.&nbsp;Ознакомиться с ней можно в разделе <STRONG>"Расписание"</STRONG> (<A href="http://www.brutalassault.cz/ru/schedule/">www.brutalassault.cz/ru/schedule/</A>). Более подробное (повременное)&nbsp;расписание выступлений станет известно в ближайшие дни (включая и&nbsp;расписание новой, третьей сцены, под названием <STRONG>Budweiser Budvar</STRONG>).</P>
+<P>Организаторы фестиваля анонсировали последних участников этого года, ими стали&nbsp;белорусские язычники&nbsp;<STRONG>GODS TOWER</STRONG>, французские авантгардисты <STRONG>SEBKHA-CHOTT</STRONG>, британцы&nbsp;<STRONG>ANAAL NATHRAKH</STRONG>, южно-африканские металкорщики&nbsp;<STRONG>TRUTH AND ITS BURDEN</STRONG> и два представителя Чехии: <EM>old-school death metal</EM> банда <STRONG>BRUTALLY DECEASED</STRONG> и блэк-металлисты <STRONG>TROLLECH</STRONG>.</P>
+<P>Организаторы <STRONG>"Brutal Assault"</STRONG> настоятельно рекомендуют озадачиться покупкой фестивальных&nbsp;билетов заранее. Вы всё ещё можете&nbsp;сделать это&nbsp;по сниженной, предпродажной цене в 1550,- CZK (+&nbsp;комиссия Paypal), но помните, что такая возможность будет доступна&nbsp;только до конца июля.</P>
+<P>К сожалению, <EM>death metal </EM>ветераны <STRONG>DEICIDE</STRONG> отменили свой летний европейский тур&nbsp;в связи с непредвиденными обстоятельствами.</P>
+<P>Их заменой станут хорошо известные бразильские коммандос, группа <STRONG>KRISIUN</STRONG>.</P>
+Автор: Headcrusher
+
+### 24.09.2013 news DEICIDE: подробности 11 альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"In The Minds Of Evil"</STRONG>, так будет называться 11 студийный альбом флоридской death metal формации <STRONG>DEICIDE</STRONG>. Диск выходит 25 ноября (Северная Америка)&nbsp;на лейбле <STRONG>Century Media</STRONG> и по словам лидера коллектива, Глена Бентона (<STRONG>Glen Benton</STRONG>), будет звучать так, "как будто Кинг Конг срёт на ромашку".</FONT></P>
+<P>В качестве продюсера диска выступил <STRONG>Jason Suecoff</STRONG> (<STRONG>ALL THAT REMAINS</STRONG>, <STRONG>TRIVIUM</STRONG>, <STRONG>DEATH ANGEL</STRONG>, <STRONG>BATTLECROSS</STRONG>). В качестве обложки альбома использована часть картины австралийского художника Саймона Ковелла (<STRONG>Simon Cowell</STRONG> | <A href="http://www.simoncowellart.com/">www.simoncowellart.com</A>&nbsp;| <A href="http://www.monsiart.com/">www.monsiart.com</A>) под названием&nbsp;<STRONG>“Power Of The Mind”</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>In The Minds Of Evil</STRONG> | 02. <STRONG>Thou Begone </STRONG>| 03. <STRONG>Godkill </STRONG>| 04. <STRONG>Beyond Salvation </STRONG>| 05. <STRONG>Misery Of One </STRONG>| 06. <STRONG>Between The Flesh And The Void </STRONG>| 07. <STRONG>Even The Gods Can Bleed </STRONG>| 08. <STRONG>Trample The Cross </STRONG>| 09.&nbsp;<STRONG>Fallen To Silence </STRONG>| 10. <STRONG>Kill The Light Of Christ </STRONG>| 11. <STRONG>End The Wrath Of God</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.09/26195.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.12.2013 news DEICIDE: клип &quot;End The Wrath Of God&quot;
+
+<P>Новое видео американских богохульников <STRONG>DEICIDE</STRONG> на трек <STRONG>"End The Wrath Of God"</STRONG>. Песня вошла на новый альбом подназванием <STRONG>"In The Minds Of Evil"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/hOYXgRzkl2k" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 11.01.2014 reviews Рождественская мелодия
+
+<p>Новейшая история DEICIDE началась десять лет назад в 2004 году, когда команду покинули половину её основателей в лице гитаристов братьев Hoffman. Следы этих ребят затерялись где-то в&nbsp; прошлом, но DEICIDE возродился в великолепном новом составе с бывшим гитаристом CANNIBAL CORPSE Jack Owen и гитаристом-виртуозом Ralph Santolla. Видимо, еретически-католические взгляды последнего и позволили записать альбом-веху для death-metal “The Stench of Redemption” в 2006 году. После этого было несколько пластинок, пользовавшихся переменным успехом, но в конце символического 13-го года DEICIDE соорудили очередной альбом, близкий к статусу «шедевр».</p><p>Место Santolla к этому времени занял гитарист ORDER OF ENNEAD Kevin Quirion, в этой группе он работает с барабанщиком DEICIDE Steve Asheim. Обедни он точно не испортил, виртуозные соло, которые так привлекали на «Stench Of Redemption” здесь присутствуют в полном объёме, но, главное, вернулось бескомпромиссное ритмическое насилие над слушателем, простое и конкретное, перемежаемое речитативами Glen Benton и сурово-мелодичными проигрышами. «In The Minds Of Evil” слушается на одном дыхании, а некоторые хиты, например, уже ставшую для меня «нетленкой» «Godkill” можно проигрывать по нескольку раз подряд. Отличный рождественский подарок всем любителям антихристианского death-metal.</p><p>Думается мне, люди, подсевшие, как и я, на этот альбом, продолжат его слушать и на Крещение и даже на Пасху. Что ж, будем надеяться, что в других жанрах тяжёлой музыки появятся в ближайшее время альбомы, которые сместят с пьедестала этих антихристов. Нам, как любителям музыки, это будет только на руку.<br></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Deicide. Это приговор?

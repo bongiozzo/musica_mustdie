@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2016 news STARGATE выпускают новый альбом
+
+<p>Греческая melodic heavy-power metal группа <strong>STARGATE </strong>выпускает третий альбом <strong>"Longing For Light</strong>" 5 сентября на<strong> Steel Gallery Records</strong>. В группе участвует клавишник <strong>HORIZON'S END Sakis Bandis</strong>. Обложку нарисовал<strong> Caio Caldas</strong>.</p><p>Трек лист:</p><p>01 - Overture<br>02 - Don’t Lose Your Pride<br>03 - I Can’t Go On<br>04 - Crystal Light<br>05 - Dark Poet<br>06 - Winter Morning<br>07 - Answers<br>08 - Give Me Your Wings<br>09 - Brave Intro<br>10 - Brave<br>11 - Light My Way</p><p><center><img width="500" height="500" src="/images/news_rus/2016.08/29878.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/pTe1IJJQ7SQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 29.08.2016 news STARGATE will release third album
+
+<p>Greek Melodic Metal masters <strong>STARGATE</strong> return with their third album "<strong>Longing For Light</strong>". Three years after their "<strong>Reborn</strong>" release Star.gate are back in full action presenting their best record so far.</p><p>New line featuring the legendary guitarist <strong>Sotos Gogos</strong> (surely one of the top class musicians from Thessaloniki - Greece) plus the mastermind of legendary Greek Progsters Horizon's End on keyboards. Yes <strong>Sakis Bandis</strong> is back in action and his performance on the new Star. gate will blow your mind away. On vocals? You will hear THE voice of <strong>John Jeff Touch</strong> (ex-Vision).</p><p>Tracklist:</p><p>01 - Overture<br>02 - Don’t Lose Your Pride<br>03 - I Can’t Go On<br>04 - Crystal Light<br>05 - Dark Poet<br>06 - Winter Morning<br>07 - Answers<br>08 - Give Me Your Wings<br>09 - Brave Intro<br>10 - Brave<br>11 - Light My Way</p><p><center><img width="500" height="500" src="/images/news/2016.08/29879.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/pTe1IJJQ7SQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

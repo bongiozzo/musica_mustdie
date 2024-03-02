@@ -8,6 +8,34 @@ Russian power metal band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.08.2003 bios Биография PIECE OF MIND
+
+<p>Московская power metal группа Piece Of Mind была сформирована двумя гитаристами – Кириллом Емельяновым и Евгением Григорьевым, большими поклонниками Judas Priest, Iron Maiden, Yngwie Malmsteen, Stratovarius. Первые композиции были написаны в 2000 году, но затем на некоторое время группа приостановила свою деятельность из-за проблем, связанных с подбором музыкантов. <BR> Но весной 2002 года группа была возрождена приглашением вокалиста Романа, клавишника Влада, басиста Руслана Плохорова и барабанщика Владислава Маншина, участника московской death metal группы Deimos. Но летом этого же года группу ждала неприятность – призыв в армию Руслана. Так же вскоре Piece Of Mind распрощались с клавишником Владом. Но через недолгое время ему была найдена замена – Юрий Егоров. Затем группе пришлось распрощаться с вокалистом Романом, на смену которому пришла Екатерина Клёпова, подруга Юрия. Так же некоторое время в группе проработал ещё один знакомый Юрия – басист Роман, но в составе он задержался ненадолго. После чего ему была найдена замена – Елена. <BR> Через некоторое время Кирилл и Евгений решили, что вокал Екатерины не вписывается в музыку Piece Of Mind и было принято решение искать ей замену. И уже через неделю благодаря Елене была найдена действительно достойная кандидатура на вакансию – вокалист Вячеслав Акиньшин. И после встречи с Кириллом и Евгением именно он занял постоянное место за микрофонной стойкой в Piece Of Mind. Через некоторое время группа приступает к записи своего дебютного альбома на Black Cat Records и участвует в российском трибьюте Manowar. Весной 2003 года из-за некоторых разногласий Piece Of Mind покидает Елена. Было решено не искать ей замену и обязанности басиста разделили между собой Евгений и Кирилл. <BR> В настоящее время Piece Of Mind продолжает работать над своим дебютным альбомом в следующем составе:</p>
+<p> Кирилл Емельянов – гитара, бас<BR> Евгений Григорьев – гитара, бас<BR> Вячеслав "Del Silencio" Акиньшин – вокал<BR> Юрий Егоров – клавиши<BR> Владислав Маншин - ударные</p>
+
+Автор: Dimas
+
+### 07.08.2003 bios PIECE OF MIND Biography
+
+<p>Moscow power metal band Piece Of Mind was formed by two guitarists – Kirill Emelianov and Evgeny Grigoryev, great fans of Judas Priest, Iron Maiden, Yngwie Malmsteen, Stratovarius. The first songs were written in 2000 but than for some time the group has suspended the activity because of problems with selection of musicians. But in spring of 2002 the band was resurrected by inviting vocalist Roman, bassist Ruslan Plokhorov and drummer Vladislav Manshin (the member of Moscow death metal band Deimos). But in summer one trouble was brought to the band – bassist Ruslan left the band to serve in army. And soon keyboardist Vlad left Piece Of Mind too and his was substituted by Yury Egorov. Soon the band was to say goodbye to the vocalist Roman who was substituted Ekaterina Klepova – a friend of Yury. Also some time another Yury’s friend was in the band’s staff – bassist Roman but his membership in the band continued not a long time. He was substituted by Elena. After some time Kirill and Evgeny decided that Ekaterina’s vocal doesn’t fit Piece Of Mind music and the decision to look for a new vocalist was made. And in a week due to Elena a really worthy nominee was found. It was Viatcheslav Akinshin. And after a meeting with Kirill and Evgeny he occupied the vacancy. In a time the band begins the recording of the debut album at the Black Cat Records and participates in the Russian Tribute to Manowar. In spring 2003 Elena leaves Piece Of Mind because of some musical reasons. Then was a decision not to look for a substitution and bassist’s work shared between each other Kirill and Evgeny.<BR> At this moment Piece Of Mind works in such staff:</p>
+<p> Kirill Emelianov – guitar, bass<BR> Evgeny Grigoryev – guitar, bass<BR> Viatcheslav Akinshin – vocals<BR> Yury Egorov – keyboard<BR> Vladislav Manshin - drums</p>
+
+Автор: Dimas
+
+### 12.08.2003 news Р-клуб, 21 августа. Дебютный концерт Piece Of Mind и не только..
+
+<p>Savage Metal Club представляет: 21 августа в Р-клубе для Вас играют: 7 Теней (Москва, heavy metal) Autopsy Of The Spirit (Чехов, sympho-black metal) Dragon-Fly (Королев, heavy metal) Piece Of Mind (Москва, power metal) Также в программе, как всегда, веселые конкурсы с призами! начало в 18-00 вход по флаеру 80 рублей, без - 100 Адрес клуба: м 'Тульская', 4-й Рощинский проезд, 19/21. Проезд: от ст.м.Тульская пешком, или от ст.м.Шаболовская на трамвае 26 до ост."Духовской переулок".</p>
+
+Автор: Del Silencio
+
+### 29.09.2003 news 28 октября - Р-клуб - Savage Metal Birthday\Halloween Party
+
+Savage Metal Club представляет:<BR>28 октября в Р-Клубе SAVAGE METAL CLUB отпразднует свой День Рождения и Halloween Party в программе:<BR>Dragon-Fly (power-prog metal, г.Королев)<BR>Piece Of Mind (power metal, г. Москва)<BR>Autopsy Of The Spirit (sympho-black metal, г.Чехов)<BR>специальные гости - The Neverland (heavy-thrash metal, г. Москва)<BR>В программе концерта веселые конкурсы и множество сюрпризов!<BR>Начало концерта в 18:00<BR>Стоимость билетов: 130 рублей (по флаеру - 100)<BR>Адрес клуба: м 'Тульская', 4-й Рощинский проезд, 19/21.<BR>Проезд: от ст.м.Тульская пешком, или от ст.м.Шаболовская на трамвае 26 до ост."Духовской переулок".<BR>
+Автор: Del Silencio
+
+
 ## Обсуждения
 
 ### Новый сайт Piece Of Mind

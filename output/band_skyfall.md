@@ -30,6 +30,16 @@ russian folk-black metal band from Voronezh
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.08.2011 news Новый альбом SKYFALL
+
+<P><IMG height=406 alt="" hspace=0 src="/images/news_rus/2011.08/20711.jpg" width=400 align=right border=0>В преддверии осени уставший от жара небосвод готовится к своей ежегодной дождливой симфонии падения... 22 августа, на закате лета 2011-го года, горнила<STRONG> Grailight Productions</STRONG> явили угасающему мiру дебютный альбом воронежского коллектива<STRONG> SKYFALL</STRONG>, под названием "<STRONG>Bestiarium Pool</STRONG>". Этот опус закрывает и венчает собой sympho black metal-период в истории группы. Уникальная гнетущая атмосфера, разнообразные техничные риффы, неистовый вокал, англо- и русскоязычная лирика - в альбоме есть все компоненты для алхимического зелья, способного утолить жажду любого тёмного романтика... "<STRONG>Bestiarium Pool</STRONG>" - это путь сквозь бездны духовного Нигредо, путь незримыми тропами, твердью предельной черты... Полёт одесную Деннице, к полнейшему освобождению от ржавых оков дольнего... <BR>"...В амальгаме новых лун вьется скипетром Рассвет, отмеряя новый путь в бесконечный горний Свет..."</P>
+<P>Трэклист:<BR>1. <STRONG>Spiral Eugenics Metamorphosis</STRONG><BR>2. <STRONG>Bestiarium Pool (Mother of Future Pandemonium) <BR></STRONG>3. <STRONG>Коронация<BR></STRONG>4. <STRONG>The Gospel for Iconoclasts (Nigredo In Extremis)<BR></STRONG>5. <STRONG>Carnival of All Nine Days</STRONG><BR>6. <STRONG>The Final Blizzard's Waltz</STRONG><BR>7. <STRONG>Autumn. Skyfall<BR></STRONG>8. <STRONG>Эндура Дольнего</STRONG></P>
+<P><A href="http://vkontakte.ru/club2231746">http://vkontakte.ru/club2231746</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### 25 марта VESANIA  в Москве на день рождения РЕЛАКСА!!!!

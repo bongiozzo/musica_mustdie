@@ -129,6 +129,179 @@ Daniel Bergkvist - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2000 news Wolf пишет новый альбом.
+
+<p>Wolf пишут новый альбом. Осенью они войдут в студию Abyss для записи второго полноформатника. Осченью также состоится тур.</p>
+
+Автор: Vit Belov
+
+### 18.08.2000 news Wolf&#39;s writing new material.
+
+<p>Wolf is currently writing material for their yet untitled, second full-length album. During the fall the band will return to the Abyss studio with Peter Tagtgren to record two new songs for the Japanese release of the highly acclaimed self titled debut. The band recently signed with the Swedish booking Agency "Goatbridge Productions". Tour dates will be confirmed later this fall.</p>
+
+Автор: Vit Belov
+
+### 24.07.2001 news Сколько волка не корми... а он все в лес...
+
+<p>Шведские "WOLF" завершают запись пока еще не названного творения. Работа проходит с продюссером Peter Tagtgren в Abyss Studio. Уже готовы 9 песен включая кавер MERCYFUL FATE - "A Dangerous Meeting". Диск выходит в конце года на No Fashion Records. Трек-лист: 01. Witch Finder 02. Venom 03. Genocide 04. I Am the Devil 05. Unholy Night</p>
+
+Автор: Yermola
+
+### 24.07.2001 news Sweden&#39;s WOLF have completed recording ....
+
+<p>Цrebro, Sweden’s WOLF have completed recording their new, as-yet-untitled album with producer Peter Tagtgren at the Abyss Studio. Nine songs were reportedly laid down, including a cover of MERCYFUL FATE's "A Dangerous Meeting". Tentative song titles for the effort are as follows: 01. Witch Finder 02. Venom 03. Genocide 04. I Am the Devil 05. Unholy Night. A late 2001 release through No Fashion Records is expected. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 26.06.2002 reviews Злой Демон с черными крыльями
+
+<p>Сногсшибательное второе творение шведских музыкантов. Мощное, бескомпромиссное и тяжелое. Превосходное штудирование классического наследия ACCEPT, JUDAS PRIEST и IRON MAIDEN в современной обработке. Ломовые риффы, зубодробительная ритм-секция, двойные соло-гитары - просто заглядение (вернее заслушание), сильнейший, необычно поставленный вокал (впечатление, что вокалист находится в яме, никак не может оттуда выбраться и срывает на окружении всю свою злость и эмоции, бьющие через край). Стремительная, атакующая музыка с очень жестким и насыщенным звуком. Процессом записи в студии руководил Peter Tagtgren, который записывал и дебютный альбом группы (не менее мощный) двухгодичной давности. Альбом потрясает своей простотой, уже при втором прослушивании, начинаешь непроизвольно подпевать музыкантам. Музыканты, надо признать, собрались талантливые и техничные. Под конец альбома припасены кавер-версия MERCYFUL FATE "A Dangerous Metting", в которой вокалист не пытается копировать Даймонда (и правильно делает) и в качестве бонуса, трэк взятый с перого демо группы "Electric Raga" (записанный под руководством Dan Swano). Альбом является продукцией самого высшего уровня, способной понравиться как любителям классического heavy metal, так и любителям power metal.</p>
+
+Автор: Dimas
+
+### 28.08.2002 news Wolf has added a second guitarist .....
+
+<p>Wolf has added a second guitarist to the line up of the band. His name is Johannes Lцsbдck and he has already played with the band at Wacken. Johanes stated: "I love metal, and the more I get, the better. Wolf is a full on heavy metal band and differs a bit from the stuff I play in Seventh One (his other band), so it will help me to develop as a musician"</p>
+
+Автор: Yermola
+
+### 28.08.2002 news Wolf добавили второго гитариста ...
+
+<p>Wolf добавили второго гитариста в свой состав. Его зовут Иоганнес Лёсбак, и он уже выступал с группой на Вакене. Иоганнес: "Я люблю МИТАЛЛЛ, и я попал в лучшее место. Wolf настоящая heavy metal группа и отличается от моей предыдущей группы Seventh One, что поможет развиваться мне, как музыканту."</p>
+
+Автор: Yermola
+
+### 11.01.2003 news Saxon, Wolf, Nocturnal Rites and Evidence One tour...
+
+<p>HEAVY METAL THUNDER TOUR 2003<BR> SAXON<BR> WOLF<BR> Nocturnal Rites<BR> Evidence One</p>
+<P>January 17th 2003 Halle Gartlage - OsnabrЭck - Germany<BR> January 18th 2003 013 - Tilburg - Netherlands<BR> January 19th 2003 Turbinenhalle - Oberhausen - Germany<BR> January 20th 2003 Babylon - MЭnchen - Germany<BR> January 21st 2003 LЖwensaal - NЭrnberg - Germany<BR> January 22nd 2003 Hugenottenhalle - Neu-Isenburg - Germany<BR> January 23rd 2003 Z7 - Pratteln - CH<BR> January 24th 2003 Elysee Montmatre - Paris - France<BR> January 25th 2003 Ancienne Belgique - BrЭssel - Belgium<BR> January 26th 2003 Astoria - London - England</>
+
+Автор: Vit Belov
+
+### 21.11.2003 news WOLF собираются снова покорить музыкальный мир
+
+<DIV id=0></DIV><BR><SPAN id=hbblock>
+<DIV id=0></DIV><SPAN id=hbblock>
+<P><LABEL id=HbSession SessionId="3578604841">Шведские heavy power металлисты <B>WOLF</B> готовят к выпуску 24 февраля 2004 года на <B>No Fashion Records</B> свой третий альбом "<B>Evil Star</B>". Группа снова записывалась в <B>Abyss</B> studio </LABEL>с продюсером <B>Peter Tagtgren. </B></P></SPAN></SPAN>
+Автор: Dimas
+
+### 12.01.2006 news WOLF на Century Media
+
+<P>Шведы<STRONG> WOLF</STRONG> подписались на <STRONG>Century Media</STRONG>. Их новый альбом планируется к выпуску летом.</P>
+Автор: Vit Belov
+
+### 21.06.2006 news Новый альбом WOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Осенью, на <STRONG>Century Media Records</STRONG> </FONT>выйдет четвертый альбом шведских героев true heavy power metal <STRONG>WOLF</STRONG> под названием <STRONG>"The Black Flame".</STRONG> Запись его должна завершиться в самое ближайшее время. Это будет дебют сразу для двух участников коллектива - ударника <STRONG>Tobias R Kellgren</STRONG> и гитариста <STRONG>Johannes Losback. </STRONG>Известны названия некоторых композиций: <STRONG>The Bite"</STRONG>, <B>"I Will Kill Again"</B>, <B>"Silverbullit Eater"</B>&nbsp;и <B>"Black Magic"</B>. </P>
+Автор: Dimas
+
+### 12.01.2009 news Новая песня WOLF
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.01/13351.jpg" width=300 align=left border=5>23 февраля на <STRONG>Century Media</STRONG> выходит новый альбом <STRONG>WOLF "Ravenous"</STRONG>. Новую песню с этой пластинки "<STRONG>Curse You Salem</STRONG>" можно послушать на<STRONG> MySpace</STRONG> страничке группы.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Curse You Salem" - типичная песня WOLF. В ней есть всё, что необходимо любому нашему поклоннику. Каждый наш фанат, услышав её, скажет: "Да, это WOLF!!!" Лирически песня имеет отношение к "Охоте на ведьм", имевшей место в городе Salem, штат Массачусетс 300 лет назад</EM></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>", - рассказывает группа.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гостевое участие в альбоме приняли гитарист <STRONG>Hank Shermann (FORCE OF EVIL, MERCYFUL FATE)</STRONG> и певец <STRONG>Marc Boals</STRONG>. Обложку нарисовал <STRONG>Thomas Holm</STRONG> (<STRONG>MERCYFUL FATE</STRONG>), а продюсером альбома выступил сам <STRONG>Roy Z</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/wolfheavymetal">http://www.myspace.com/wolfheavymetal</A></FONT></P>
+Автор: Vit Belov
+
+### 27.01.2009 news Новое видео WOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео шведов <STRONG>WOLF</STRONG> на песню "<STRONG>Voodoo</STRONG>" можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=50946882">WOLF- Voodoo</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=50946882,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=50946882,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.02.2009 news Ещё одна песня WOLF
+
+<P><STRONG>WOLF </STRONG>выложили ещё одну новую песню <STRONG>"Speed On" </STRONG>со своего альбома, выходящего на следующей неделе на<STRONG> Century Media</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/wolfheavymetal">http://www.myspace.com/wolfheavymetal</A></P>
+Автор: Vit Belov
+
+### 21.05.2009 reviews Несоответствие подачи и содержания
+
+<P>Рекламная кампания нового альбома WOLF изобиловала обещаниями и восхвалениями. Действительно классическому heavy-metal просто необходимо, чтобы его оживляли. Пускай не какими-то оригинальными ходами или запоминающимися мелодиями, но громкими заявлениями и отличной реализацией.</P>
+<P>В данном случае с реализацией должно было быть всё в порядке. Продюсером данной работы выступил Roy Z, известный по работе с JUDAS PRIEST. Мне же он запомнился мегаугарными работами с Bruce Dickinson, звук на которых я считаю эталонным для heavy-metal даже по прошествии 10 лет. На “Ravenous” такого звучания не получилось, но с качем и угаром у WOLF проблем не было. За всеми этими вводными данными как-то потерялись в памяти предыдущие пластинки шведов, которые, мягко говоря, не убивали наповал. По этой причине я ожидал момента ознакомления с этим альбом достаточно трепетно. Разочарование было особенно сильным. После нескольких открывающих пластинку хитов, WOLF записали огромное количество проходного материала. Проходного не только по содержанию, но даже и по виду. Какие-то среднетемповые «размазанные» композиции без ярких риффов и без ярких припевов слились для меня в одну длинную скучную песню.</P>
+<P>К сожалению, Century Media тратят силы зря на раскрутку этих шведов. Они могут копировать, могут принимать правильные позы в буклете и делать громкие заявления, но одного они не могут… Сочинить запоминающийся и энергичный материал.</P>
+Автор: Vit Belov
+
+### 02.04.2010 news Новое видео WOLF
+
+<P>Клип <STRONG>WOLF</STRONG> на песню <STRONG>"Hail Cesar" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/8-9lA5ubxKU&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/8-9lA5ubxKU&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.10.2010 news WOLF войдут в студию
+
+<P>Шведские heavy-metal'исты <STRONG>WOLF</STRONG> войдут в <STRONG>Studio Underground </STRONG>в ноябре для записи нового альбома с продюсером <STRONG>Pelle Saether. </STRONG>Вот некоторые названия песен: <STRONG>"Fullmoon Possession"</STRONG>, <B itxtvisited="1">"Skullcrusher"</B>, <B itxtvisited="1">"False Preacher"</B>&nbsp;и <B itxtvisited="1">"Adrenaline Overdrive"</B>. </P>
+Автор: Vit Belov
+
+### 05.03.2011 news Новый альбом WOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.03/18798.jpg" width=450 align=right border=0>Новый альбом шведов <STRONG>WOLF</STRONG> <STRONG>"Legions Of Bastards" </STRONG>выйдет 25 апреля на <STRONG>Century Media</STRONG>. Продюсером пластинки выступил <STRONG>Pelle Saether </STRONG>в студии <STRONG>Studio Underground</STRONG>. Обложку вновь нарисовал <STRONG>Thomas Holm (MERCYFUL FATE). </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Vicious Companions</B><BR>02. <B>Skull Crusher</B><BR>03. <B>Full Moon Possession</B><BR>04. <B>Jekyll & Hyde</B><BR>05. <B>Absinthe</B><BR>06. <B>Tales From The Crypt</B><BR>07. <B>Nocturnal Rites</B><BR>08. <B>Road To Hell</B><BR>09. <B>False Preacher</B><BR>10. <B>Hope To Die</B><BR>11. <B>K-141 Kursk</B></P>
+Автор: Vit Belov
+
+### 24.06.2011 reviews Дар Богам heavy-metal
+
+<P>Шведы WOLF типичные представители мёртвого стиля. По крайней мере, сами музыканты этой группы его таковым считают. В «мёртвом стиле» уже нельзя сочинить ничего нового, под него только можно подстраивать собственное звучание. Никто же уже не стремиться сочинить чего-то новое в средневековой музыке или в блюзе. Там ценятся прочтения и стилизации. Наверное WOLF правы, но что у них не отнять так это то, что их «стилизации» самого высшего класса.</P>
+<P>На новом альбоме шведская группа пошла ещё дальше в своём нелёгком деле. WOLF теперь натурализовали свой «саунд», и теперь их работа звучит как классическая пластинка JUDAS PRIEST. При этом “Legions Of Bastards” доверху наполнен хитами. Хочется сказать, что этими хитами не побрезговали бы и Сами, но не буду, не нам, жалким почитателям, судить об этом. WOLF приносят в дар своим Богам этот кусок первородного heavy-metal и надеются, что он не будет с презрением отвергнут. Мне кажется, обозреваемая пластинка вполне достойна того, чтобы находится где-то в преддверии зала всемирной славы тяжёлого метала.</P>
+<P>Отличный диск для всех поклонников heavy-metal со стажем. На нём есть и хиты, и задор и великолепные мелодии. Не достаёт WOLF оригинальности, но на это мы даже внимания обращать не будем, ведь шведы исследователи и фанаты, оригинальность не их цель.</P>
+Автор: Vit Belov
+
+### 29.06.2011 news Messiah Marcolin выступил с WOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео совместного выступления бывшего вокалиста <STRONG>CANDLEMASS Messiah Marcolin</STRONG> и heavy-metal'истов <STRONG>WOLF</STRONG> на фестивале <STRONG>Muskelrock </STRONG>можно посмотреть ниже. Музыканты исполнили кавер-версию на песню <STRONG>DEEP PURPLE</STRONG> <STRONG>"Black Night"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом <STRONG>WOLF</STRONG> <STRONG>"Legions Of Bastards" </STRONG>вышел в России на <STRONG>Mazzar Records</STRONG> в июне. Его можно приобрести в нашем интернет-магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/l9G8oSAoMmg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/l9G8oSAoMmg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.07.2011 news Новый клип WOLF
+
+<P>Шведы <STRONG>WOLF</STRONG> выложили в сеть свой очередной видео-клип на песню <STRONG>"Skull Crusher"</STRONG> можно посмотреть ниже.</P>
+<P>Последний альбом heavy-metal'истов <STRONG>"Legions Of Bastards" </STRONG>вышел в России на <STRONG>Mazzar</STRONG>.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/BmX5LFWcg8s" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

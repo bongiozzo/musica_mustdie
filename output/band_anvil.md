@@ -99,6 +99,302 @@ Dirty Dorothy (bonus track)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.05.2001 reviews Ржавая наковальня
+
+<p> Одиннадцатый по счету студийный альбом ветеранов канадского (даже я бы сказал мирового) сталепроката - ведь официально первый альбом группы появился в 1982. Справедливости ради стоит заметить, что из первого состава остались лишь двое (что не мало) – вокалист Липс и драммер Робб Райнер. Новый альбом анонсировался как возврат к истокам и якобы выдержан в духе классического диска Metal On Metal. Интересно, в какой же части он так выдержан? В обложке? За период с 1982 года (когда фактически появилось название Anvil) и до настоящего времени чего только не делали с НАКОВАЛЬНЕЙ – она летала, падала, её роняли на разные предметы, водружали в скалы, резали, жгли, но столь идиотской стилизации я еще не видел. Старик Фрейд был бы в восторге, честное слово! Просто взгляните на обложку – огромный бульдозер типа Caterpillar с торчащим… кхе-кхе, как бы поделикатнее сказать, острием наковальни. Итак, продолжаем поиск точки возврата к корням. Музыка? Ну уж точно нет. В начале первой композиции заводится нечто (очевидно члено-трактор с обложки) и погнали… Куда? Зачем? Типа, вперед, размахивая потерянным немцами Rage потертым знаменем с надписью NO Keyboards!? Сомнительная перспектива… Большая часть альбома состоит из весьма минималистичных и монотонных (даже скорее занудных) среднетемповых композиций, среди которых выделяется разве, что бодренькая The Creep, которая впрочем через некоторое время скатывается в общую занудную массу. Самым интересным мне показались весьма разнообразные вступления ударных к каждой композиции. Что у нас еще осталось от корней? Вокал. Может быть, особенно учитывая его бессменность. Вокалер вроде обладает достаточно оригинальным голосом, хотя иногда он смахивает на Лемми (в той же The Creep и Disgrunted), при этом ярость и задор в исполнении материала неизвестно куда девались. В целом получается очень прямолинейный мрачноватый хэви, иногда (правда очень редко) разбавляемый действительно классными гитарными пассажами, а где-то (заглавная Plentry Of Power и Real Metal) смахивающий на некий прото-спид времен ранней Метлы. Вроде все смешано в правильных пропорциях старой школы хэви, однако слушать это скучно до ломоты в зубах – настолько бездушно и серо звучит этот альбом. В общем, даже если б на дворе было начало 80-х, советский строй, а мне лет 13-14, то шансы остаться в моей коллекции данный альбом имел бы крайне низкие. Чего уж говорить о нынешних временах. Однако, благодаря красочному слим-боксу (отдельное спасибо Art Music Group) сий предмет превращается в отличный подарок. Остается только выбрать жертву:-)</p>
+<p> Поставленная оценка сложилась следующим образом: 1 балл – за идиотской оформление, весьма развеселившее меня и моих знакомых, 2 балла – собственно за труды музыкантов и еще 0,5 балла, как на вручении Оскара, - «за творческое долголетие и вклад в развитие тяжелой музыки». Альбом предназначен только для упертых фанов (вот бы посмотреть на такого) или крайне неразборчивых личностей, которые любят только тупо рубиться на концертах, а вот подо что – это по-фигу, лишь бы тяжкий саунд несся из колонок.</p>
+<p></p>
+
+Автор: Helloween
+
+### 01.06.2004 reviews &quot;Несравненный&quot; материал
+
+<P><I><B>ANVIL </B>опять выпустили альбом. Уже <B>Art-Music</B> не успевают за их скорострельностью и выпустили сразу два последних альбома этого канадского коллектива.</I></P>
+<P>Уж не знаю, стоило ли мне начинать знакомство с группой с их 1х - дцатого альбома. <B>ANVIL</B> оставили меня в недоумении своим материалом. Вероятно, группа&nbsp;дала взятку кому-то на <B>Massacre Records</B>, чтобы выпускать подобные пластинки каждый год. Безликий, занудный материал с вокалом, который можно оценить только неудовлетворительно. Ни одного просвета!!!</P>
+<P>Этот альбом можно&nbsp;сравнить с работами&nbsp;многих коллективов, вот только придётся постоянно приплюсовывать уничижительные эпитеты, чего делать не хочется, ибо непозитивное это занятие.&nbsp;&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 30.07.2011 news Сборник ANVIL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=460 alt="" hspace=0 src="/images/news_rus/2011.07/20357.jpg" width=460 align=right border=0>Канадцы <STRONG>ANVIL</STRONG> подготовили к выпуску свой новый сборник <STRONG>"Monument Of Metal: The Very Best Of Anvil". </STRONG>Коллектив считает, что этот CD с 19 песнями просто необходим всем поклонникам тяжёлой музыки по всему свету. Трек-лист:</FONT></P>
+<P>01. <B>Metal On Metal</B> (re-recorded from "This Is Thirteen", 2009 / originally from "Metal On Metal", 1982) <BR>02. <B>Winged Assassins</B> (re-recorded, originally from "Forged In Fire", 1983) <BR>03. <B>666</B> (from "This Is Thirteen", 2009) <BR>04. <B>Thumbhang</B> (from "This Is Thirteen", 2009) <BR>05. <B>School Love</B> (re-recorded, originally from "Hard 'N' Heavy", 1981) <BR>06. <B>Heat Sink</B> (from "Metal On Metal", 1982) <BR>07. <B>March Of The Crabs</B> (instrumental) (from "Metal On Metal", 1982) <BR>08. <B>Plenty Of Power</B> (from "Plenty Of Power", 2001) <BR>09. <B>Mothra</B> (from "Metal On Metal", 1982) <BR>10. <B>Sins Of The Flesh</B> (from "Worth The Weight", 1992) <BR>11. <B>Jackhammer</B> (live) (from "Past And Present; Live In Concert", 1989) <BR>12. <B>Juggernaut Of Justice</B> (from "Juggernaut Of Justice", 2011) <BR>13. <B>No One To Follow</B> (from "Absolutely No Alternative", 1997) <BR>14. <B>Mad Dog</B> (from "Strength Of Steel", 1997) <BR>15. <B>Bottom Feeder</B> (from "Back To Basics", 2004) <BR>16. <B>Race Against Time</B> (from "Still Going Strong", 2002) <BR>17. <B>American Refugee</B> (from "This Is Thirteen", 2007) <BR>18. <B>Fire In The Night</B> (from "Pound For Pound", 1988) <BR>19. <B>Park That Truck</B> (from "Speed of Sound", 1999)</P>
+Автор: Vit Belov
+
+### 12.07.2016 news Новый клип ANVIL
+
+<p><strong>ANVIL</strong> опубликовали видео на песню "<strong>Zombie Apocalypse</strong>", которая вошла в последний альбом коллектива "<strong>Anvil Is Anvil</strong>".</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/2uFlEqYGkRU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 12.07.2016 news New video by ANVIL
+
+<p><strong>ANVIL</strong> released a video for the song "<strong>Zombie Apocalypse</strong>", which was included in the group's latest album "<strong>Anvil Is Anvil</strong>."</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/2uFlEqYGkRU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

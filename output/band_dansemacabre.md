@@ -16,6 +16,45 @@ pop-gothic-rock
 * C группой "Angel" Jan Yrlund (guitar)
 * C группой "Ancient Rites" Jan Yrlund (guitar)
 
+## Публикации
+
+### 27.02.2002 reviews Эра HIM
+
+<p>Вслед за эрой итальянско-финского power-metal настала череда pop-gothic-doom metal, или как это почему-то некоторые называют gothic-rock? Эра HIM и To/Die/For!!! Всем не терпится сыграть что-нибудь грустно-псевдо-металлическое. Всё сказанное, чертовски правильно подходит обозреваемой группе. Правда есть ещё один ориентир - Atrocity, но не старый death, а времён "Werk 80", только по сравнению с ними, гитара задвинута далеко назад. Обилие электроники, фортепианных партий, женский бэк-вокал. Почему-то, только не плачется. А когда девушка вступает первым вокалом так вообще становится грустно и смешно. Второсортная, не оригинально-примитивная пластинка. MACABRE.</p>
+
+Автор: Vit Belov
+
+### 13.03.2002 reviews HIM Era.
+
+<p>After era of Italian-Finnish power-metal new pop-gothic-doom metal era begins, or how it for some reason somebody names gothic-rock. Era HIM and To/Die/For!!! Everybody would like to play something sadly - pseudo-metal. Everything told, correctly approaches to surveyed group. The truth is one more refernce point is Atrocity, but not old death, but times of " Werk 80 ", only in comparison with them, the guitar is pushed far back. An abundance of electronics, piano parties, female back-vocal. For some reason, only is not cried. And when the girl enters by first vocal so in general becomes sad and funny. Second grade, not an original - primitive CD. MACABRE.</p>
+
+Автор: Vit Belov
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> LABELS, if you want Belarusian metalheads to be acquainted with your releases we recommend you to put MassaBrutto Radioshow address in your promo and mailing lists. <BR><BR> All kinds of quiz actions featuring your products as prizes can be performed in MassaBrutto. You may discuss all conditions with us by using any way of connection.<BR><BR> Nevertheless we live in ex-Soviet state where music piracy dwells, MASSA BRUTTO RADIOSHOW DOESN'T SUPPORT ANY KIND OF MUSIC PIRACY ON PRINCIPLE !!! <BR> So, you may be sure that:<BR> - there wasn't and there won't any of illegal CDs broadcasted within MassaBrutto Radioshow;<BR> - any of official or licensed CDs sent to MassaBrutto will not become the property of music pirates.<BR><BR> If you or someone that you know is in a band that is interested in getting some guaranteed airplay on a radio station in Belarus then all you need to do is to get in contact with us. <BR><BR> If there are any questions - feel free to ask.<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

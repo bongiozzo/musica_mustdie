@@ -138,6 +138,218 @@ Kenny on vocals, Q on bass, Pete on guitar, T on guitar, Sami on drums, and Anti
 
 * C группой "Enochian Crescent" Jani Martikkala (drums in Enochian Crescent [1999-2001] & ex in And Oceans)
 
+## Публикации
+
+### 16.11.1999 reviews 
+
+<p>Бесподобный бредняк в восьми композициях от блэк-металл группы ...And Oceans. Бредняк, в смысле текстов. Одни названия чего стоят, "Я желаю быть беременным" или эпическая (наверное) "Чёрный бродяга и двухголовый лебедь", не говоря уж о песне про кислотный секс. Музыка же представляет собой среднескоростной блэк-металл с большим количеством клавиш. Довольно интересный, довольно мелодичный, довольно оригинальный (хотя, что это я, ошибся наверное). К сожалению, музыка оригинальностью не блещет, но всё остальное на уровне, есть мелодии, клавиши не портят картины, есть экстремально-быстрые чернушные моменты, истошные вопли на некоторых песнях не дадут вам заснуть, в общем, хорошо. Хорошо, но не больше, но и не меньше. Можно рекомендовать всем любителям данного стиля, не прогадаете. 7,5 из 10</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 articles ...And Oceans: &quot;We&#39;ve never played black-metal.&quot;
+
+<p> Q: I've listened to your last album. Please, tell me about your discography and history of the band.</p>
+<p></p>
+<p> (K-2t4-S) The discography is: wave -demo '96, not officially released</p>
+<p> 2 track promo tape '97, not officially released</p>
+<p> Mare liberum official demo '97</p>
+<p> The dynamic gallery of thoughts cd '98</p>
+<p> WAR '98 cd</p>
+<p> The symmetry of I - the circle of O double cd & cd</p>
+<p></p>
+<p> Q: When can we wait for your next album? What will it about and What will it be in general?</p>
+<p> (K-2t4-S) We're gonna record the next album this fall. The new material will be very different, but also very similar to the basic .andOceans material.</p>
+<p></p>
+<p> Q: You play intresting black-metal. Somebody says, that black-metal is dying. What do you think about it? Please tell some bands, that play original black, but not same as many other black bands?</p>
+<p></p>
+<p> (K-2t4-S) We are not black metal coz we don't have satanic lyrics, but we usually are categorized as black metal though. We are anti-christians, but that is not the issue in .andOceans. I don't think black metal is dying, it's getting back to its roots the way it was meant to be. I don't think there is anything called black metal any longer coz everything is taken a new position, but I still don't see this as a problem even if the black metal feeling is totally gone. There are too many unique bands to mention.</p>
+<p></p>
+<p> Q: In what style do you play on your mind? Do you think, that black is black, only if you sing about Satan? I think very many bands are not singing about it, but they are black. I guess BM is already step through only satanic lyrics. What do you think about it? what inspires you, when you wrote'em?</p>
+<p></p>
+<p> 1. (k-2t4-s) We are not black metal, never been and never will be coz we don't have any satanic lyrics. We are anti-christians, but that is not the issue in ...andOceans, it's vital in our personal lives. I don't care what kind of an opinion other people have regarding black metal, but my opinion is that if you play black metal then the lyrics have to be about the dark forces, and satanic that is. Some people think that and some people think the other, who gives a fuck anyway. Let your own mind control your own body. Why categorize any music? This thing has been twisted by labels and the media, but actually I don't care coz those who really play black metal knows that the hatred and belief comes from the heart.</p>
+<p></p>
+<p> Q: What do you think about black metal ideology?</p>
+<p></p>
+<p> (Neptune) What is black metal ideology? It can be about satanism, life style, life philosophy etc. It's individual! I have a certain kind of ideology, but it isn't any of some ideology of black metallers. It's my own way of thinking and acting!!</p>
+<p> I really hate those young black metallers who think that this is about being mean, 'evil/true' what ever!! They are constantly trying to be something what they aren't. On the contrary,they are making a fool out of themselves!! I ignore and laugh at them!!</p>
+<p></p>
+<p> Q: Did you have tour somewhen? Which band supported you? What do you think about show in Russia? Aren't you afraid come to Russia like Marduk?</p>
+<p></p>
+<p> (K-2t4-S)yes,we were on a European tour along with Bloodthorn and Agressor. I don't think Marduk was afraid of coming there, maybe there were just some problems and therefor people have started talking bull. No we are not afraid of coming to Russia,why should we be afraid?!?!It would be pretty okey to come to Russia for a gig.</p>
+<p></p>
+<p> Q: Now here is in Russia, anti-Marduk's company begins "Fuck Off MARDUK". Is It right on your mind? MARDUK have decieved our lables on 20000$.</p>
+<p></p>
+<p> (k-2t4-s) I've heard a lot of this, but I really don't know what the truth behind this is and therefor I won't express myself on this matter.</p>
+<p> (Neptune) Well, I've heard that Marduk refused to come there because of being afraid of thefts or something like that?!? All in all, I think it may have been a decision of their label not go there or there may have been several different reasons!!! I don't understand why people accuse the band immediately when something like this happens?!?! People should be pleased that bands even bother to tour!!!!!!!! Where's the loyalty!?!?!?</p>
+<p></p>
+<p> Q: Tell me about your lyrics. I think they are very original. I couldn't read them (i have no), but .... titles? What are about?</p>
+<p></p>
+<p> (k-2t4-s) In a way yes, but it's up to the listener to decide that. I don't want to affect anybody particularly coz it's always better for the listener to construct his own surrealistic mindworld into something suitable for him and his mind. There's no certain propaganda on the run here, just follow your own patterns and search for the right color for your mind. Contradictions can be constructive coz in the long run the train goes forward and backward.</p>
+<p></p>
+<p> Q: What means your name? Is it mark of moon car? (it's just a joke) (Don't take offence)</p>
+<p></p>
+<p> (k-2t4-s) We picked the name coz we all have a lot of piss in our heads, so it siuted pretty good. Seriously, the name has nothing to do with water or any factors of the nature, it's more like a metaphor to colorful thoughts and inner dialogues, an internal process constantly taking new form on the mental level.</p>
+<p></p>
+<p> Q: What do you think about bootlegers? If people can't buy firm disk, is it right, if they buy bootlegs? On What lable are you now?</p>
+<p> (k-2t4-s) Bootlegs are nice in my opinion as long as the material is good on them, but bootlegs aren't that good for the band and the label. We are still negotiating with different lables, we'll just have to wait and see.</p>
+<p> (Neptune) Most of them or should I say all of them are made just for gaining money of them!!! Still, it's nice to hear some live material never heard before!!!</p>
+<p></p>
+<p> Q: What do you think about pirates? Here is your pirate CDs in Russia.</p>
+<p></p>
+<p> (Neptune) Of course I hate them because that is a bad thing for us artist, though I understand people who does it because it's so easy with the modern technology. That has something to do also that they can't afford buying the 'real' CDs!!! I wouldn't buy any pirate CDs!</p>
+<p></p>
+<p> Q: What do you do, except music? Do you work anywhere? What's your hobby?</p>
+<p></p>
+<p> (Neptune) Yes, I have a day job. The band and the work take pretty much all my time, so there's left so little time for any hobbies... At weekends I usually reset myself by getting wasted!!</p>
+<p></p>
+<p> Q: There is many good metal bands in the Scandinavian countries. Why is it</p>
+<p> so? Why is europian metal smarter than american? Do you like some bands in</p>
+<p> your style?</p>
+<p></p>
+<p> (Neptune) I don't if it has something to do with the climate we have here up in the nordic countries!? It may also have something to do with the culture we have here, they way of thinking and acting?! All the people in the southern countries are just hanging on the beach, hahah!! European metal smarter than American? What does that mean? All I know is that American bands are still heavily influenced by the 'dead' death metal scene. European bands are on the other hand developing their sound more and more and I think that's a good thing, otherwise the music scene here would be saturated by the similar shitty bands!!</p>
+<p></p>
+<p> Vitaliy Belov.</p>
+<p></p>
+<p></p>
+
+Автор: Vit Belov
+
+### 17.06.2000 articles  ...And Oceans: &quot;Мы никогда не играли блэк-металл.&quot;
+
+<p> B:Я послушал Ваш новый альбом. Пожалуйста, расскажите мне историю и дискографию группы.</p>
+<p> (K-2t4-S)Наша дискография такова: демо '96 , его официального релиза не было; 2-track promo tape '97, тоже не издано; Mare liberum - официальное демо '97; The dynamic gallery of thoughts, cd '98; WAR, '98 cd; The symmetry of I - the circle of O double cd & cd.</p>
+<p> В:Когда ожидается выход Вашего следующего альбома? и что он будет из себя представлять?</p>
+<p> (K-2t4-S)Мы приступим к записи следующего альбома этой осенью. Новый материал будет очень разнообразным, но с тем же он будет похож на наши предыдущие работы.</p>
+<p> В:Вы играете довольно таки интересный блэк-металл. Некоторые люди заявляют, что блэк-металл умирает. Что вы думаете по этому поводу? И еще, пожалуйста, назовите несколько групп, которые, по Вашему мнению, играют настоящий блэк.</p>
+<p> (K-2t4-S)Мы не блэкстеры, поскольку наша лирика не связана с сатанизмом, но нас обычно причисляют к блэк-металлическим коллективам. Мы противники христианства, но это не отражается в творчестве "...And Oceans". Я не думаю, что блэк-металл умирает, он возвращается назад, к своим корням... Есть слишком много хороших групп и всех их трудно перечислить.</p>
+<p> В:Тогда в каком стиле, по Вашему мнению Вы играете? Вы думаете, что блэк можно называть блэком только в том случае, если речь идет о Сатане? Очень много групп не придерживаются такой тематики, но, тем не менее, они играют блэк. Я думаю, что уже прошло время, когда в основе блэк-металла была сатанинская лирика. Что Вы думаете об этом?</p>
+<p> (K-2t4-S)Мы не блэк-металлисты, никогда ими не были и не будем, потому что, повторюсь, наша лирика не связана с сатанизмом. Меня не интересует мнение других людей, но, по-моему, если вы играете блэк-металл, то ваша лирика должна быть о сатанизме и темных силах. Некоторые люди думают так, а некоторые - по другому... Надо думать своей головой. Зачем же делить музыку на категории? Это делается муз. лейблами и различными СМИ, но в действительности те, кто играет блэк-металл, знают, что все убеждения и ненависть идут из сердца.</p>
+<p> В:Что ты думаешь об идеологии блэк-металла ?</p>
+<p> (Neptune)Идеология блэк-металла? Она может быть связана с сатанизмом, жизненной философией, образом жизни и так далее. Она индивидуальна! У меня есть своя идеология, но она никак не связана идеологией блэк-металлистов.</p>
+<p> В:У Вас были концертные выступления в последнее время? Какие команды поддерживали Вас? И что Вы думаете о концерте а России? Или Вы боитесь приехать к нам, подобно группе Marduk?</p>
+<p> (K-2t4-S)Да, у нас было турне по Европе вместе с группами Bloodthorn и Agressor. Я не думаю, что Marduk побоялись приехать к Вам, может быть, действительно, у них были какие-то проблемы. Нет, мы не боимся приехать в Россию. Почему же мы должны бояться!?!? Это было бы очень круто - приехать в Россию.</p>
+<p> В:Теперь здесь, в России, проходит кампания против группы Marduk под названием "Fuck Off MARDUK". Это правильно по-Вашему? Из-за них наши лейблы потеряли 20000$.</p>
+<p> (K-2t4-S)Я много слышал об этом, но в действительности я не знаю точно и поэтому не могу ничего сказать..</p>
+<p> (Neptune)Ну, я слышал, что Marduk отказались к вам приехать из-за того, что боялись кражи или что-то типа того?!? В общем, я думаю, то было решение их лейбла не пускать их к Вам и причин могло быть сколько угодно. Я не понимаю, почему люди начинают обвинять группу, как только происходят подобные вещи?!?! Люди должны радоваться, что группы вообще отправляются в путешествия!!!!!!!! Где лояльность!?!?!?</p>
+<p> В:Расскажите, пожалуйста, о Вашей лирике. Я думаю, она весьма оригинальна. Я не мог почитать её (у меня ее нету), но... названия песен! О чем они?</p>
+<p> (K-2t4-S)Я не хочу повлиять на чье-то мнение, потому что всегда лучше для слушателя иметь своё мнение.</p>
+<p> В:Как вы относитесь к бутлегерам? Если люди не могут купить фирменный диск, правильно ли то, что они покупают бутлеги? На каком лейбле вы сейчас?</p>
+<p> (K-2t4-S)Бутлеги хороши, по моему мнению, если только они содержат хороший материал, но они естественно вредят группам и их лейблам. Мы все еще ведем переговоры с различными лейблами. Всё покажет время.</p>
+<p> (Neptune)Большинство из них или даже я бы сказал - все они делаются для зарабатывания денег!!! Хотя бывает приятно послушать какой-нибудь концертный материал, который никогда ранее не слыхал!!!</p>
+<p> В:Что Вы думаете о пиратах. Ваши пиратские диски есть в России.</p>
+<p> (Neptune)Конечно, мы ненавидим их, потому что это вредит нам, хотя я понимаю людей, которые делают это, потому что это очень легко сделать, используя современные технологии. Лично я никогда не куплю пиратский CD.</p>
+<p> B:Чем Вы занимаетесь помимо музыки? Вы работаете где-нибудь? У Вас есть хобби?</p>
+<p> (Neptune)Да, у меня есть постоянная работа. Группа и работа занимает слишком много моего времени, но есть и немного времени для моих хобби... На выходных я обычно восстанавливаю силы и занимаюсь полным бездельем!!</p>
+<p> B:В скандинавских странах много хороших металлических трупп. Почему так получилось? Почему европейская металлическая сцена намного лучше и богаче, чем американская? Вам нравятся какие-нибудь группы, играющие в Вашем стиле?</p>
+<p> (Neptune)Я не знаю! Может дело в своеобразной атмосфере, которая присутствует тут, в северных странах?! Это также может быть связано с нашей культурой, образом мышления. Все люди в южных странах только и занимаются тем, что лежат на пляжах, ха-ха! Европейская металл-сцена лучше, чем американская? Всё, что я знаю, это то, что американские группы всё еще находятся под влиянием дэт-металлической сцены. Европейские коллективы пошли по другому пути развития. Я думаю, что это хорошо, а иначе музыкальная сцена здесь заполнилась бы всякими фиговыми группами!!</p>
+<p> Vitaliy Belov</p>
+<p> перевод Nybras</p>
+
+Автор: Nybras
+
+### 29.08.2000 news ... And Oceans готовятся записывать новый альбом.
+
+<p> Самая непредсказуемая и причудливая группа Финляндии ... And Oceans готовится штурмовать студию для записи своего нового альбома! ... And Oceans будут записываться этой осенью в Abyss Studio B с Томми Тагтгреном. Рабочее название релиза - "Allotropic/Metamorphic - Genesis Of Dimorphism", известны и некоторые из песен, которые попадут в альбом - "Synthetic White Noise", "Tba In A Silver Box" и "Elektroerotik Cyberjungle".</p>
+
+Автор: Morsus
+
+### 29.08.2000 news ... And Oceans are preparing to record a new album.
+
+<p> Finland's most unpredictable and bizarre band ...And Oceans are getting ready to assault the studio for a new album! ...And Oceans are recording their new output this Autumn at Abyss Studio B with Tommy Tagtgren. The tentative title of the album is "Allotropic/Metamorphic - Genesis Of Dimorphism" and some of the songs to be featured include "Synthetic White Noise", "Tba In A Silver Box" and "Elektroerotik Cyberjungle".</p>
+
+Автор: Morsus
+
+### 09.11.2000 news Объявлена дата выхода нового альбома ...And Oceans.
+
+<p>Новый альбом ...And Oceans, названный "Allotropic / Metamorphic Genesis Of Dimorphism", будет выпущен 19 февраля 2001 года.</p>
+
+Автор: Morsus
+
+### 09.11.2000 news The release date of new album of ...And Oceans is pronounced.
+
+<p>New album of ...And Oceans, titled "Allotropic / Metamorphic Genesis Of Dimorphism", will be released February 19th.</p>
+
+Автор: Morsus
+
+### 21.11.2000 news Аллотропическо&#x2F;метаморфический генезис диморфизма!!!
+
+<p>Горячие финские парни ...And Oceans полностью закончили запись Allotropic / Metamorphic - Genesis Of Dimorphism. Акция проводилась в Abyss Studio B (с Tommy Tagtgren за педалями!). Окончательный трек-лист: “Intelligence Is Sexy”, “White Synthetic Noise”, “Tears Have No Name”, “Esprit De Corps”, “Odious & Devious”, “Of Devillish Tongues”, “Postfuturistika”, “TBA In A Silver Box” and “New Model World”. Артворк альбома выполнил гитарист Dark Tranquillity - Niklas Sundin. Дата европейского релиза 19 февраля 2001, и американского - 20 февраля.</p>
+
+Автор: Yermola
+
+### 17.02.2001 news Новости от ...And Oceans
+
+<p> На днях выходит новый диск ...And Oceans "Allotropic / Metamorphic Genesis Of Dimorphism" и в самом ближайшем будущем ребята отправятся в европейское турне в поддержку альбома вместе с такими группами, как Marduk и Mystic Circle.</p>
+
+Автор: Nybras
+
+### 22.01.2002 reviews Аллотропическо-метаморфическое происхождение различий между особями мужского и женского пола
+
+<p>Аллотропическо-метаморфическое происхождение различий между особями мужского и женского пола. Именно о таких глобальных вещах ведают нам на своем новом альбоме эти любители экспериментов и нетрадиционного секса. Эти причудливые и совершенно непредсказуемые финские ребята радуют нас кибернетическим модернистским death-black metal'ом. Это музыка для гурманов предпочитающих смешение death-black metal с индустриально-танцевальными наворотами и электроникой в духе THE KOVENANT. Однако, эти группы заметно отличаются друг от друга. И вообще, материал группы заметно отличается от многих других. Мощные и плотные сокрушительные гитарные риффы и готическая атмосфера вкупе со злым гроулингом-скримингом на быстрых скоростях сменяются мелодичными гитарными соло-отступлениями, а затем звучат ритмичные футуристические клавишно-синтезаторные партии с пугающими гармониями. Неистовая музыка с несколько больными риффами и мелодиями. Видно, что музыканты умело используют нестандартные подходы к написанию музыкального материала. Их сложная музыка была и остается в тесных, но оригинальных рамках. Хороший синтетический смертельный металл с прекрасным звуком. Игнорируя последний, чисто techno трэк, данному альбому можно поставить довольно высокую оценку. Они этого заслуживают.</p>
+
+Автор: Dimas
+
+### 30.04.2002 news ...And Oceans изготовили новый концептуальный альбом
+
+<p>Очередной полный альбом ...And Oceans записывался в студии Abyss с Томми Тагтгреном за режиссёрским пультом. Первоначально альбом хотели назвать длинно и замороченно "Insect Angels & Devil Worms", но позже передумали в пользу значительно более короткого "Cypher". Смысл названия группа объясняет так: "У этого слова несколько значений. 1) тайный код; 2) человек или предмет, не имеющий никакой ценности (эта идея проходит в лирике); 3) по латыни это значит "пустой", что тоже подходит, поскольку слово "пустой" повторяется в текстах песен." Выход альбома можно ожидать в начале осени 2002 года.</p>
+
+Автор: Morsus
+
+### 30.04.2002 news ...And Oceans and their new concept album
+
+<p>Next full-length album of ...And Oceans has been recorded in the Abyss studios with Tommy Tagtgren behind the steering wheel. The initial impulse to name the new concept album "Insect Angels & Devil Worms" has been usurped by a much shorter album title, "Cypher". The band's explanation: "Its different meanings. 1) a secret code; 2) a person and thing which has no importance (that fits well with the decadentian lyrics); 3) in Latin it means "empty", which is nice, because the word empty is repeated in the lyrics." Fans can look forward to an early Fall 2002 release.</p>
+
+Автор: Morsus
+
+### 03.07.2002 reviews Насекомые и черви
+
+<p>Cypher (также cipher): 1) секретный код, 2) пустой (в переводе с латинского), 3) математический символ обозначающий отсутствие количества - нуль, 4) персонаж или вещь, которая не имеет никакого значения, никакого влияния и важности - небытие. Вот такое слово-символ с многочисленными значениями и приложениями легло в основу четвертого полнометражного творения финских нетрадиционалов и оригиналов (чего стоят только трехуровневые названия песен). Это концептуальное и мрачное творение группы насквозь пропитано экспериментами и представляет собой комбинацию современно звучащего industrial/electronic music с сырым и грязноватым black-death metal. Вообще, музыкальный материал альбома довольно разнообразен. В некоторых песнях чувствуется влияние melodic-death metal в целом, некоторые напоминают PRODIGY или DEICIDE. Мелодичность достигается лишь за счет клавишных, в воздухе витают мрачные настроения, вокал уже не такой шипящий как ранее, кажется еще чуть-чуть и вокалист запоет чистым голосом. Безусловно, оригинальный, прогрессивный и интересный материал, но мне он кажется немного послабже, чем предыдущий альбом группы "am god" ("Allotropic/Metamorphic - Genesis Of Dimorphism"). На альбоме можно смело выделить лишь пяток песен, все остальные не запоминаются, а последнюю вещь вообще лучше не слушать, она здесь лишняя. Финны смело идут на различные эксперименты и это вызывает уважение. Советую всем послушать этот экстремальный коктейль из различных стилей, чтобы расширить свои собственные взгляды на тяжелую музыку.</p>
+
+Автор: Dimas
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 05.09.2002 news График релизов CENTURY MEDIA RECORDS....
+
+<p>Сент. 3 NOCTURNAL RITES - Shadowland<BR> Сент. 3 …AND OCEANS - Cypher<BR> Сент. 3 INTO ETERNITY - Dead Or Dreaming<BR> Сент. 17 SHADOWS FALL - The Art of Balance<BR> Окт. 15 YAKUZA - Way of the Dead<BR> Окт. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Окт. 29 LACUNA COIL - Comalies<BR> Окт. 29 ROTTING CHRIST - Genesis<BR> Нояб. 12 ICED EARTH - Tribute To The Gods<BR> Нояб. 12 BLOODBATH - Resurrection Through Carnage<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads....
+
+<p><font size="2" face="Arial, Helvetica, sans-serif">...And Oceans - <a href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</a><br> Avantasia - <a href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</a><br> Dark Tranquillity - <a href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</a><br> Into Eternity - <a href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</a><br> Lacuna Coil - <a href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</a><br> Nocturnal Rites - <a href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</a><br> Rotting Christ - <a href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</a><br> Shadows Fall - <a href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</a><br> Unleashed - <a href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</a></font><br> <SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif">Yakuza - <a href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</a></font></SPAN></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads...
+
+<P><FONT face="Arial, Helvetica, sans-serif" size=2>...And Oceans - <A href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</A><BR>Avantasia - <A href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</A><BR>Dark Tranquillity - <A href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</A><BR>Into Eternity - <A href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</A><BR>Lacuna Coil - <A href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</A><BR>Nocturnal Rites - <A href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</A><BR>Rotting Christ - <A href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</A><BR>Shadows Fall - <A href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</A><BR>Unleashed - <A href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</A></FONT><BR><SPAN style="FONT-FAMILY: Arial"><FONT face="Arial, Helvetica, sans-serif" size=2>Yakuza - <A href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</A></FONT></SPAN></P></>
+
+Автор: Yermola
+
+### 19.11.2002 news  ...And Oceans заняты кучей важных дел
+
+<p>...And Oceans решили основать собственный лейбл Onyxia, который будет выпускать литературу и музыку. Помимо этого, группа по-прежнему занята съёмками целых трёх видео, а также сочинением музыки для порнофильма. А 28 января 2003 года выйдет двойной CD, переиздание старых альбомов "The Dynamic Gallery Of Thoughts" и "The Symmetry Of I - The Circle O".</p>
+
+Автор: Morsus
+
+### 19.11.2002 news News from ...And Oceans
+
+<p>...And Oceans started their own label, Onyxia, that will publish literature and music. Meanwhile, the band still have three videos they're working on plus the soundtrack for a porn movie. On January 28, 2003, a double-disc reissue of "The Dynamic Gallery Of Thoughts" and "The Symmetry Of I - The Circle O" will be released.</p>
+
+Автор: Morsus
+
+### 24.11.2002 reviews Logical continuation...
+
+<p>Homo’s? Who?! … AND OCEANS?! Obviously, they’re not. However; even if they were, I couldn’t care less. For I always believed the music is what should be of importance. Not some image, y’know. And curse me, but I do respect these chaps for all their heartless attempts to mock on this ‘true black metal’ thing (since those who claim to be ‘true to the bone' are THE most disgusting posers… at least, in my opinion). As to music… Well; “Cypher” strikes as a logical continuation of what once was started on “A.M.G.O.D.”, i.e. absolutely fascinating, absolutely UNtypical, absolutely stunning mixture of black and death metal strongly seasoned with industrial and electronics. This is what “Cypher” is all way through (perhaps, apart from the closing track made in a power noise way). Didn’t I say, bewitching? Oh, did I? I’ll repeat it anyway: BEWITCHING.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 ### ...And Oceans

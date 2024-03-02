@@ -27,6 +27,23 @@ Disc Two:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2011 news UNEVEN STRUCTURE выпускают дебютный альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2011.09/21076.jpg" width=400 height=400>Дебютный альбом группы<STRONG> UNEVEN STRUCTURE "Februus"</STRONG> выйдет 31 октября на <STRONG>Basick Records</STRONG>. Концептуальный альбом на двух дисках представляет материал, на котором <STRONG>PINK FLOYD</STRONG> встречаются с <STRONG>MESHUGGAH</STRONG>. Ниже можно посмотреть промо-видео этого коллектива. Трек-лист:</FONT></P>
+<P>Disc One:<BR>1. <STRONG>Awaken<BR></STRONG>2. <STRONG>Frost<BR></STRONG>3. <STRONG>Hail<BR></STRONG>4. <STRONG>Exmersion<BR></STRONG>5. <STRONG>Buds</STRONG><BR>6. <STRONG>Awe</STRONG><BR>7. <STRONG>Quittance<BR></STRONG>8. <STRONG>Limbo<BR></STRONG>9. <STRONG>Plenitude<BR></STRONG>10. <STRONG>Finale</STRONG></P>
+<P>Disc Two:<BR>11. <STRONG>Dew Upon Shapeless Bounds</STRONG><BR>12. <STRONG>Winds From Untold Memories</STRONG><BR>13. <STRONG>Promises Of Our Early Days</STRONG></P>
+<P>Состав группы:</P>
+<P><STRONG>Matthieu Romarin</STRONG>: Vocals<BR><STRONG>Aurelien Pereira</STRONG>: Guitar<BR><STRONG>Jerome Colombelli</STRONG>: Guitar<BR><STRONG>Igor Omodei</STRONG>: Guitar<BR><STRONG>Benoit Friedrich</STRONG>:&nbsp; Bass<BR><STRONG>Christian Schreil</STRONG>:&nbsp; Drums</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/VoXrmP8Le-s?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/VoXrmP8Le-s?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### UNEVEN STRUCTURE (Франция) / CHIMP SPANNER (Англия) в Москве (21 января)

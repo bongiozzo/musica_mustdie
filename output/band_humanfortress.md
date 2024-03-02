@@ -12,6 +12,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.05.2005 news Новая группа...
+
+<P><STRONG>Yargos </STRONG>- так называется группа, которая уже записала своё дебютный альбом "<STRONG>The Summer Tree</STRONG>". В неё вошли вокалист <STRONG>THRESHOLD Mac</STRONG>, басист <STRONG>RUNNING WILD Peter Pichl</STRONG> и гитарист <STRONG>HUMAN FORTRESS Andreal Kienitz</STRONG>. Сообщается, что весь материал сочинил <STRONG>Mac</STRONG> в соавторстве с двумя другими членами группы <STRONG>Wieland Hofmeister</STRONG> и <STRONG>Anca Graterol</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

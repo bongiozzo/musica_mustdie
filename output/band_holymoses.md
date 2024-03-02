@@ -216,6 +216,178 @@ Julien Schmidt - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.11.2001 news KREATOR, SODOM, and DESTRUCTION European tour...
+
+<p>Florida female-fronted act WYKKED WYTCH, featuring DIVINE EMPIRE/ex-MALEVOLENT CREATION bassist Jason Blachowicz, has secured the opening slot for the KREATOR, SODOM, and DESTRUCTION European tour, dubbed Hell Comes To Your Town, after HOLY MOSES were forced to pull out of the trek in order to concentrate on the writing and recording of their new studio album. The confirmed dates for the outing are as follows: <BR><BR> Dec. 26 – Ludwigsburg, GER @ Rockfabrik <BR> Dec. 27 - Bochum, GER @ Zeche <BR> Dec. 28 – Zaandam, NETH @ De Kade <BR> Dec. 29 - Hamburg, GER @ Markthalle <BR> Dec. 30 - Halle, GER @ Easy Schorre <BR> Dec. 31 - Osnabrьck, GER @ Hyde Park <BR> Jan. 02 - Offenbach, GER @ Hafenbahn <BR> Jan. 03 - Dorndorf, GER @ Kulturhaus <BR> Jan. 04 - Glauchau, GER @ Alte Spinnerei <BR> Jan. 05 - Berlin, GER @ Music Hall Berlin <BR> Jan. 06 – Warschau, POL @ Proxima <BR> Jan. 07 – Katowice, POL @ Mega Club <BR> Jan. 09 - Nьrnberg, GER @ Hirsch <BR> Jan. 10 – Dornbirn, AUS @ Conrad Sohm <BR> Jan. 11 – Salzburg, US @ Rockhaus <BR> Jan. 12 – Wien, AUS @ Planet Music <BR> Jan. 14 – Ravenna, ITA @ Rock Planet <BR> Jan. 15 – Pratteln, SWI @ Z 7 <BR> Jan. 16 - Andernach, GER @ JUZ Live Club <BR> Jan. 17 - Cottbus, GER @ Gladhouse <BR> Jan. 18 - Lьbeck, GER @ Holstentorhalle <BR> Jan. 19 – Motala, SWE @ Folkets Park <BR> Jan. 20 – Oslo, NOR @ Betong <BR> Jan. 21 – Gothenburg, SWE @ Kеren <BR> Jan. 22 – Stockholm, SWE @ Klubben <BR> Jan. 24 – Helsinki, FIN @ Nosturi</p>
+
+Автор: Yermola
+
+### 25.03.2002 news Новые признаки жизни от HOLY MOSES
+
+<p>Вышедший на Century Media Records мини-альбом "Master Of Disaster" был первым признаком жизни культовых немецких трэш-дэтстеров HOLY MOSES во главе с "железной девой" Sabin'ой Classen. Наконец, готово их новое мощное и страшное творение под названием "Disorder Of The Order". Дата выхода альбома - 20 июня 2002 года.</p>
+
+Автор: Dimas
+
+### 03.07.2002 reviews Проблема установления порядка
+
+<p>Вот уж, воистину всем comeback'ам comeback! Восьмой альбомчик немецких бруталлеров во главе с железной девой Сабиной Классен (голос из ада). Он звучит как классический Святой Моисей и возвращает нас во времена "Terminal Terror" и "The New Machine Of Liechtenstein". Скоростная агрессивная и напористая музыка на стыке thrash и death metal старой закалки. Но это не старомодная музыка, напротив, она современна и полна энергии. За пультом в студии прекрасно поработал брат Сабины Энди Классен. Он является бывшим гитаристом группы, ныне его участие в группе ограничивается сочинительством лирики и продюссированием. Ему удалось создать первородный тяжелый звук не похожий ни на кого. Плюс к тому холодная и мрачная атмосферика альбома, да нечеловеческий крик вокалистки выводят на высочайший уровень этот первоклассный материал состоящий из двенадцати жестких, бескомпромиссных и беспощадных аудиобомб. Все музыканты отлично поработали в техническом плане. Чрезвычайно интересный альбом, сразу подкупающий своей прямотой и честностью. HOLY MOSES вернулись, радуя нас сногсшибательной thrash metal атакой и представляя на наш суд один из лучших thrash альбомов нового столетия.</p>
+
+Автор: Dimas
+
+### 26.01.2005 news Новый альбом HOLY MOSES
+
+<P>Ветераны немецкой тяжелой сцены<STRONG> HOLY MOSES</STRONG>, во главе с вокалисткой <B>Sabina Classen</B>, готовят к выпуску свой десятый альбом под названием <STRONG>"Strange Power Will Passion".</STRONG> Дата релиза - 23 мая на<STRONG> Armageddon Music</STRONG>. В альбом войдут 22 песни общей продолжительностью звучания на 80 минут, записанные в <B>Absurd</B> <STRONG>studio</STRONG>. Вот названия некоторых песен, которые войдут в альбом: <B>"Symbol of Spirit"</B>, <B>"Examination"</B>, <B>"Lost Inside"</B>, <B>"I Will"</B>, <B>"Angel Cry"</B>, <B>"Rebirthing"</B>, <B>"Space Clearing"</B>&nbsp;и <B>"End of Time"</B>.&nbsp;Обложку для альбома нарисовал&nbsp;<B>Markus Mayer</B>.<BR></P>
+Автор: Dimas
+
+### 07.02.2005 news Ошибка на официальном сайте HOLY MOSES
+
+<P>Недавно мы сообщали, но новый альбом <STRONG>HOLY MOSES</STRONG> будет называться <STRONG>'Strange Power Will Passion'</STRONG>. Стало известно, что на самом деле пластинка будет называться <STRONG>'Strenght Power Will Passion'</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.02.2005 news HOLY MOSES опубликовали картинку
+
+<STRONG><IMG height=170 alt="" hspace=0 src="/images/news_rus/2005.02/7901.jpg" width=170 align=left border=5>HOLY MOSES</STRONG> опубликовали кавер-арт нового альбома "<STRONG>Strenght Power Will Passion</STRONG>".
+Автор: Vit Belov
+
+### 23.03.2005 news Отрывки новых песен HOLY MOSES
+
+<P><STRONG>HOLY MOSES</STRONG> выпускают новый альбом "<STRONG>Strenght Power Will Passion</STRONG>" 23 мая на <STRONG>Armageddon Music</STRONG>. На официальном сайте группы можно будет послушать отрывки всех новых песен. Уже сейчас помещён сэмпл первой вещи "<STRONG>Angel Cry</STRONG>". Следите за обновлениями: <A href="http://www.holymoses.de/hm_e/hm_e.htm">http://www.holymoses.de/hm_e/hm_e.htm</A></P>
+Автор: Vit Belov
+
+### 21.07.2005 reviews Ты - Бог, я - Бог! Все мы Боги, особенно, Sabina Classen.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Sabina Classen</STRONG> продолжает радовать своих поклонников. И пускай, новый альбом коллектива выходит на заштатном <STRONG>Armageddon</STRONG>, а группа выступает на <STRONG>Wacken</STRONG> при дневном свете и просится на <STRONG>Metal Head Mission</STRONG> в Крым, это ничего не меняет. 12 великолепных забойных трэков отборного thrash-death вгонят вас в прстрацию. Всем поклонникам угара - пренепременно рекомендую.</FONT></P>
+<P>Вопли <STRONG>Sabina</STRONG> станут музыкой в ушах преданных поклонников <STRONG>HOLY MOSES</STRONG>. А такие припанкованные боевики, как "<STRONG>I Will</STRONG>" вытрясут из вас душу и заставят поклоняться фрау<STRONG> Классен</STRONG>. </P>
+<P>Единственным минусом пластинки можно назвать её оформление. Я не против агрессивной лирики, да и антихристианства, но... Рыжеволосая голова&nbsp;тётушки <STRONG>Сабины</STRONG> с рогами на фоне пентаграмы и весёлых надписей в духе "Ты - Бог, я - Бог". Немного смешно.</P>
+<P>В остальном, думается, никто не будет разочарован, а кто-то даже завизжит от восторга. Ой! Скорее, зарычит.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 27.07.2005 news Переиздание классики HOLY MOSES
+
+<P>Классические альбомы <STRONG>HOLY MOSES "Finished With The Dogs"</STRONG> и "<STRONG>The New Machine Of Liechtenstein</STRONG>" будут переизданы с бонусами этим летом. Осенью также выйдут и другие переиздания. </P>
+<P>В качестве бонусов на пластинках будут концертные вещи.&nbsp;</P>
+Автор: Vit Belov
+
+### 08.05.2006 news Утверждены участники MHM VII
+
+<P>Отбор коллективов на фестивль <STRONG>MHM-VII</STRONG> завершен.<BR>Финальный список выглядит так:<BR>1.&nbsp;&nbsp;<STRONG>TIAMAT</STRONG> (SW)<BR>2.&nbsp; <STRONG>HOLY MOSES</STRONG>&nbsp;(GER) <BR>3.&nbsp; <STRONG>CEREBRAL TURBULENCY</STRONG>&nbsp;(CZ) <BR>4.&nbsp; Wasteform (US)<BR>5.&nbsp; Alienation Mental (CZ) <BR>6.&nbsp; Mncing Fury And Guttural Clamour Of Queer Decay&nbsp; (CZ) <BR>7.&nbsp; Imperial Foeticide (CZ) <BR>8.&nbsp; Smashed Face (CZ) <BR>9.&nbsp; Despice (CZ) <BR>10. Surgical Dissection&nbsp; (SL)<BR>11. Moonfog (SL)<BR>12. Sickbag (FR) <BR>13. Trepan Dead (FR)<BR>14. Infliction (IT) <BR>15. Deformed (PL)<BR>16. Gutted (HG) <BR>17. Deepred (FIN)<BR>18. Incarnated (PL)<BR>19. Dead Infection (PL)<BR>20. Mental Demise (UA) <BR>21. Dawn of&nbsp; fate (GER)<BR>22. Nokturnal Mortum (UA)<BR>23. Devilyn (PL)<BR>24. Anabiose (RU)<BR>25. Crionics (PL)<BR>26. Thy Disease (PL)<BR>27. Illidiance (RU) <BR>28. Фантасмагория (UA)<BR>29. Amoral Craft (RU)<BR>30. Paranormal Activity (UA)<BR>31. Little dead Bertha (RU)<BR>32. Neuromist (Mol)<BR>33. Balfor (RUS)<BR>34. Gangrena (RU)<BR>35. Mad V (RU)<BR>36. Capellan (RU)<BR>37. Kratos (RO)<BR>38. Mortuary (UA)</P>
+<P>Ждем вас всех на фестивале с 11 по 13 августа!!!<BR>Всю последнюю информацию вы всегда сможете найти на нашем Официальном сайте: <A href="http://www.mhm-fest.com/">www.mhm-fest.com</A></P>
+Автор: Vit Belov
+
+### 14.07.2006 news Metal Heads Mission в Крыму
+
+<CENTER><IMG height=591 src="/images/shows_rus/2006.05/10365.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 28.08.2006 news Басист HOLY MOSES в госпитале
+
+<P>Басист <STRONG>HOLY MOSES Ozzy</STRONG> угодил в психиатрическую лечебницу на неопределённый срок. Группа попыталась найти ему срочную замену, но не смогла. Сообщаентся, что одним из кандидатов был <STRONG>Dirk</STRONG> из <STRONG>GAMMA RAY</STRONG>, который отказался, из-за невозможности выучить материал за 24 часа. В итоге группа будет выступать, как трио, а обязанности басиста выполнит компьютер.</P>
+Автор: Vit Belov
+
+### 20.02.2007 news В HOLY MOSES вернулся барабанщик
+
+<P>Барабанщик<STRONG> Atomic Steiff</STRONG> (ex-<STRONG>SODOM</STRONG>, ex-<STRONG>LIVING DEATH</STRONG>)&nbsp;вернулся в<STRONG> HOLY MOSES</STRONG>.&nbsp;Группа вовсю репетирует новый материал.&nbsp;</P>
+Автор: Vit Belov
+
+### 03.12.2007 news HOLY MOSES назвали альбом
+
+<P>Новый альбом <STRONG>HOLY MOSES</STRONG> будет называться "<STRONG>Bloodbound</STRONG>". <STRONG>Sabina Classen</STRONG> обещает очередной кусок "олдскульного" трэша. Кроме этого, <STRONG>Сабина </STRONG>заключила персональный контракт с финской фирмой модной одежды <STRONG>Northern Tribe</STRONG>. Теперь госпожа <STRONG>Классен </STRONG>демонстрирует эту одежду во время концертов <STRONG>HOLY MOSES</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.06.2008 news Новый альбом HOLY MOSES
+
+<P>Новый альбом <STRONG>HOLY MOSES</STRONG> будет называться <STRONG>"Agony of Death"</STRONG>&nbsp;и выйдет 19 сентября на <STRONG>Wacken Records/SPV</STRONG>. Коллектив заканчивает запись пластинки в <STRONG>Blue Castle Studio </STRONG>под руководством гитариста <STRONG>Michael Hankel</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.08.2008 news Гости нового альбома HOLY MOSES
+
+<P><STRONG>HOLY MOSES</STRONG> сообщили о гостях, которые приняли участие в записи их нового альбома <STRONG>"Agony of Death"</STRONG>. Вот их имена: <STRONG>Ferdy Doernberg</STRONG> (<B>AXEL RUDI PELL</B>), <STRONG>Ralph Santolla</STRONG> (<B>OBITUARY</B>, <B>DEATH</B>, <B>ICED EARTH</B>, <B>DEICIDE</B>), <STRONG>Trevor Peres </STRONG>(<STRONG>OBITUARY</STRONG>),<STRONG> Henning Basse</STRONG> (<STRONG>METALIUM</STRONG>) и <STRONG>Schmier</STRONG> (<B>DESTRUCTION</B>, <B>HEADHUNTER</B>).</P>
+Автор: Vit Belov
+
+### 23.09.2008 reviews Неужели действительно предсмертная агония?
+
+<P>Какие-то странные у меня остались ощущения от прослушивания новой работы немецких трэшеров Holy Moses во главе с неутомимой Сабиной Классен под названием "Agony Of Death". Во-первых, 70 минут для альбома в жанре - это явный перебор, пусть даже включая пару бонусов (как я понял, дигипачный вариант будет с бонусами и всеми этими "special features between the songs"). Когда трэшевые вещи длятся по 6-8 минут, это уже, простите, не трэш. Во-вторых, вот эти самые special features, которые представляют собой довольно странные (и уж тем более для Holy Moses) переходы чуть ли в стиле electro (само по себе, может, и неплохо, но здесь звучит как-то странно уж очень).&nbsp;Появились&nbsp;"проходы", более подходящие пауэру или хэви.&nbsp;И вообще, фрау Классен явно решила несколько осовременить саунд, примешать туда еще и хардкор, что лично мне как-то не понравилось. В-третьих, многовато инструментальных пассажей с одними и теми же риффами (в рамках одной песни, естественно), что опять-таки затягивает и без того длинные композиции. Другими словами, альбом какой-то некомфортный. Вроде бы всё, что нужно поклоннику Holy Moses - и прежде всего злобный рык самой Сабины - на месте, но почему-то не цепляют эти песни совершенно. Да и разнообразия не наблюдается. Кстати, что касается всех этих упомянутых выше соло - на "Death Of Agony" присутствует целая куча гостевых музыкантов; по всей видимости, это была как раз такая задумка, а вот насколько она понравится слушателям - еще вопрос. На пластинке отметились Ferdy Doernberg (Axel Rudi Pell), Henning Basse (Metalium), Schmier (Destuction, Headhunter), Janos Murri & The Wolf (оба - Demolition, Darkside), Ralph Santolla (Obituary, ex-Deicide, ex-Iced Earth, ex-Death), Trevor Peres (Obituary), Karlos Medina (Agent Steel). Как видите, хоть компания и разномастная, но весьма солидная. Да, можно, конечно, восхищаться всеми этими гитарными соло, но... но. Всегда интересно, если группа готова к экспериментам, но насколько они к месту на "Agony Of Death", решать уже вам. 6 баллов только из уважения к фрау Классен.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 05.01.2009 news Doro спела с HOLY MOSES
+
+<P>Ниже размещено видео, снятое 26 декабря на концерте <STRONG>HOLY MOSES</STRONG> в Нидеркруштене, Германия. В честь 45-летия <STRONG>Sabine Classen</STRONG> на сцене к ней присоединилась другая немецкая Metal Queen <STRONG>Doro Pesch</STRONG>. Две женщины исполнили "<STRONG>Celebrate</STRONG>" и "<STRONG>All We Are</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/fl6HeuJUR7w&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/fl6HeuJUR7w&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 23.11.2010 news HOLY MOSES сочиняют новый материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=5 hspace=0 alt="" align=right src="/images/news_rus/2010.11/17666.jpg" width=300 height=215>Немцы <STRONG>HOLY MOSES</STRONG> рассказали о своих ближайших планах. Отыграв некоторое количество концертов в 2010 году, коллектив собирается войти в <STRONG>Absurd Studio </STRONG>весной следующего года для записи нового альбома, песни к которому уже сочиняются. Кроме этого, <STRONG>HOLY MOSES</STRONG> работают над новыми аранжировками своей классики, а также готовят первый в истории DVD. В декабре следующего года коллектив начнёт праздновать своё 30-летие и обещает праздничные мероприятия, которые продлятся целый год.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время у <STRONG>HOLY MOSES</STRONG> закончился контракт с<STRONG> Wacken Records</STRONG>, и группа ищет новый лэйбл.</FONT></P>
+Автор: Vit Belov
+
+### 06.07.2011 news HOLY MOSES вошли в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>HOLY MOSES</STRONG> вошли в <STRONG>Absurd</STRONG> studio для записи юбилейного двойного&nbsp;альбома <STRONG>"30th-Year Anniversary - In The Power Of Now". </STRONG>На пластинку попадут 20 самых важных хитов немецкой группы, перезаписанных в текущем составе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме этого, <STRONG>HOLY MOSES</STRONG> заменили барабанщика. <STRONG>Atomic Steif</STRONG> (a.k.a. <B>Guido Richter</B>; ex-<B>SODOM</B>, <B>LIVING DEATH</B>, <B>STAHLTRAGER</B>) ушёл, <STRONG>Gerd Lucking</STRONG> (<B>GIFT DWARF</B>, ex-<B>REBELLION</B>) пришёл.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний студийной альбом легендарной группы <STRONG>"Agony of Death" </STRONG>вышел в 2008 году на <STRONG>Wacken Records</STRONG>.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=323 src="/images/news_rus/2011.07/19914.jpg" width=450 border=0><BR></P></FONT>
+Автор: Vit Belov
+
+### 28.02.2012 news Юбилейный альбом HOLY MOSES
+
+<P><IMG height=433 alt="" hspace=0 src="/images/news_rus/2012.02/23161.jpg" width=433 align=right border=0>Стали известны подробности о юбилейном альбоме <STRONG>HOLY MOSES</STRONG>, посвящённом 30-летию коллектива, <STRONG>"30th Anniversary - In The Power Of Now"</STRONG>.&nbsp;Двойной CD выйдет 23 апреля&nbsp;на<STRONG> SPV</STRONG>. На альбом попали 20 перезаписанных хитов немецкой группы и 2 новых вещи. Трек-лист:</P>
+<P>CD 1<BR itxtNodeId="84"><BR itxtNodeId="83">01. <B itxtHarvested="0" itxtNodeId="82">Clash My Soul</B> (02:36)<BR itxtNodeId="81">02. <B itxtHarvested="0" itxtNodeId="80">Jungle Of Lies</B> (03:46)<BR itxtNodeId="79">03. <B itxtHarvested="0" itxtNodeId="78">Finished With The Dogs</B> (02:29)<BR itxtNodeId="77">04. <B itxtHarvested="0" itxtNodeId="76">Symbol Of Spirit</B> (03:42)<BR itxtNodeId="75">05. <B itxtHarvested="0" itxtNodeId="74">World Chaos</B> (03:12)<BR itxtNodeId="73">06. <B itxtHarvested="0" itxtNodeId="72">SSP</B> (03:40)<BR itxtNodeId="71">07. <B itxtHarvested="0" itxtNodeId="70">Borderland</B> (03:27) (brand new song)<BR itxtNodeId="69">08. <B itxtHarvested="0" itxtNodeId="68">Lost In The Maze</B> (05:51)<BR itxtNodeId="67">09. <B itxtHarvested="0" itxtNodeId="66">Walpurgisnight</B> (02:58)<BR itxtNodeId="65">10. <B itxtHarvested="0" itxtNodeId="64">Welcome To The Real World</B> (03:31)<BR itxtNodeId="63">11. <B itxtHarvested="0" itxtNodeId="62">Near Dark</B> (05:30)<BR itxtNodeId="61"><BR itxtNodeId="60">CD 2<BR itxtNodeId="59"><BR itxtNodeId="58">01. <B itxtHarvested="0" itxtNodeId="57">Reborn Dogs</B> (03:50)<BR itxtNodeId="56">02. <B itxtHarvested="0" itxtNodeId="55">DefCon II</B> (04:26)<BR itxtNodeId="54">03. <B itxtHarvested="0" itxtNodeId="53">I Feel Sick</B> (03:48)<BR itxtNodeId="52">04. <B itxtHarvested="0" itxtNodeId="51">Nothing For My Mum</B> (03:51)<BR itxtNodeId="50">05. <B itxtHarvested="0" itxtNodeId="49">Disorder Of The Order</B> (04:14)<BR itxtNodeId="48">06. <B itxtHarvested="0" itxtNodeId="47">Corroded Dreams</B> (04:04)<BR itxtNodeId="46">07. <B itxtHarvested="0" itxtNodeId="45">Entering The Now</B> (03:40) (brand new song)<BR itxtNodeId="44">08. <B itxtHarvested="0" itxtNodeId="43">Creation Of Violation</B> (03:56)<BR itxtNodeId="42">09. <B itxtHarvested="0" itxtNodeId="41">Panic</B> (03:13)<BR itxtNodeId="40">10. <B itxtHarvested="0" itxtNodeId="39">Decapitated Minds</B> (03:40)<BR itxtNodeId="38">11. <B itxtHarvested="0" itxtNodeId="37">Master Of Disaster</B> (03:45)</P>
+Автор: Vit Belov
+
+### 28.03.2012 news HOLY MOSES рассталась с гитаристом Михаэлем Ханкелом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.03/23339.jpg" width=205 height=300>После 10 лет совместной работы, группа <STRONG>HOLY MOSES</STRONG> рассталась с гитаристом Михаэлем Ханкелом (<STRONG>Michael Hankel</STRONG>, <EM>на фото</EM>). В качестве причины расставания, названы проблемы на персональном уровне.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа уже анонсировала замену, ею стал <STRONG>Peter "Pete" Geltat</STRONG> (ex-<STRONG>DESILENCE</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Michael Hankel</STRONG>, тем временем, продолжает своё сотрудничество с группой <STRONG>DEW-SCENTED</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 25.04.2013 news Sabina Classen (HOLY MOSES) на новом альбоме IZEGRIM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Голландская thrash/death банда <STRONG>IZEGRIM</STRONG>, вокалистом и басистом в которой является белокурая бестия по имени <STRONG>Marloes Voskuil</STRONG>,&nbsp;работает над своим новым альбомом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В прошлую пятницу группа отправилась в Германию, где в студии немецких трэш-легенд<STRONG>&nbsp;HOLY MOSES</STRONG>, записала одну из своих новых&nbsp;песен, гостевой вокал в которой&nbsp;исполнила <STRONG>Sabina Classen</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG border=0 src="/images/news_rus/2013.04/25645.jpg" width=600 height=450></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 08.02.2014 news HOLY MOSES выпускают новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Новая работа <STRONG>HOLY MOSES "Redefined Mayhem"</STRONG> выйдет в апреле. Группа открывает новую главу в собственной истории с этим альбомом. Сведение и мастеринг -<STRONG> Tue Madsen (THE HAUNTED, DARK TRANQUILITY, EXTOL)</STRONG>.</FONT></P>
+<P>
+<CENTER>&nbsp;<IMG border=0 src="/images/news_rus/2014.02/26632.jpg" width=650 height=410></CENTER>
+Автор: Vit Belov
+
+### 20.02.2014 news Oliver Jaath покинул ансамбль HOLY MOSES
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.02/26668.jpg" width=200 height=216>Гитарист<STRONG> Oliver Jaath</STRONG> покинул состав немецкого трэш-метал ансамбля <STRONG>HOLY MOSES</STRONG>.</P>
+<P>Вот его заявление по этому поводу:</P>
+<P><EM>"Привет, друзья! После почти 8 лет проведённых в группе, я принял решение покинуть <STRONG>HOLY MOSES</STRONG> и начать новые музыкальные проекты. Огромное спасибо за столько классных лет (проведённых вместе). Я желаю <STRONG>HOLY MOSES</STRONG> всего наилучшего и&nbsp;успеха в будущем! Скоро увидимся! Olli".</EM></P>
+Автор: Headcrusher
+
+### 23.05.2017 articles HOLY MOSES, Москва, &quot;Volta&quot;, 13.05.2017
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2017.05/30534.jpg" width=300 height=415>Описывая в своих отчётах качества рок-героев 80-х годов, успешно выступающих и по сей день, частенько оперируешь такими понятиями, как стойкость, упёртость и бескомпромиссность. А эти черты, вроде как, свойственны лишь мужчинам. Но, как глаголит прописная истина, существуют и исключения, хоть и подтверждающие правило. Живым их воплощением (а также одним из главных символов феминизма в современном экстрим-металле) является 53-летняя фронтвумен угарных немецких thrash’еров Holy Moses Сабина Классен, которая впервые приехала в Москву с долгожданным концертом! Присоединившись к коллективу аж в 1981-м году, она прошла с ним длительный творческий путь, который был весьма тернистым – во время распада группы в 94-м году Сабине пришлось несколько лет бороться и успешно победить рак, после чего снова возродить Holy Moses!</P>
+<P>Предваряло выступление Сабины и ко вездесущий коллектив Pokerface, который вписывался в данное мероприятие как нельзя лучше – ведь кто ещё имеет моральное право разогревать Holy Moses, если не местная female-fronted thrash metal-банда? Однако, смог приехать я лишь к финальной композиции (а это был кавер на Motorhead’овский «Ace Of Spades») и успел, по сути, лишь подметить, что в группе продолжаются перетасовки в составе (в частности, замечены новые гитарист и гитаристка). Но даже после их выступления выход хедлайнеров был отложен в связи с абсолютно идиотским инцидентом, в ходе которого некто брызнул в зале из газового баллончика… Виновника, как я понял, так и не нашли, и на проветривание ушло время, в связи с чем вместо заявленных ранее 20-40 немцы появились на сцене лишь в 21-10. </P>
+<P>И буквально за считанные мгновения в зале, заполненном на две трети, образовался сёркл-пит, а похудевшая и визуально помолодевшая Сабина, выскочив на сцену, всем своим видом словно решила с ходу доказать, что возраст – всего лишь цифра, и отжигать можно до самой старости. Правда, имея определённый опыт и поддерживая физическую форму – по поводу чего у меня никаких сомнений эта супер-энергичная немка не вызвала! Обладая ярчайшей харизмой, эта бестия выдала экстремально-металлический перфоманс, который я могу сравнить только с бывшей вокалисткой Arch Enemy Анжелой Госсоу в лучшие годы! Сабина чувствовала себя на сцене очень уверенно и органично, постоянно перемещалась и слегка подтрунивала над басистом и гитаристом. Конечно, правильный расчёт сил также входил в план фронтвумен Holy Moses, и взрывы хедбэнгинга и прочего угара перемежались с продолжительными речами между песнями.</P>
+<P>Эти речи, пожалуй, достойны отдельного абзаца, потому что в них Сабина успела сообщить много интересного или забавного. Помимо довольно откровенных хвалебных од в адрес московской публики (в частности, очередное сравнение с Питером в нашу пользу – что мы, москвичи, «более безумны») и сожалений по поводу того, что «вам пришлось ждать столько лет», она успела рассказать о том, что у Holy Moses много песен о собаках, и у неё лично есть русская болонка по кличке (кажется) Тимми. Также весело она представила новых участников коллектива, к которым в своё время выдвинула требование обязательно носить длинные волосы, а в итоге те отрастили лишь бороды. Особенно порадовало и её скайп-поздравление лидера Tankard, которому в этот день исполнилось ровно 50 лет! Бессменному фронтмену Gerre была посвящена разухабисто-панковская «Too Drunk Too Fuck» авторства Dead Kennedys.</P>
+<P>Что же касается музыки, то Holy Moses выдали угар высочайшего уровня. Неплох был и звук, и отдача музыкантов, и сетлист. Ритм-секция делала своё дело чётко, а единственный гитарист Peter Geltat гитарист показал своё мастерство во всей красе – постоянно переключаясь с забойных классически-трэшевых риффов на относительно простые, но эффектные соло (в том числе и двуручным тэйпингом) и частые бэк-вокальные партии, он произвёл самое приятное впечатление и в техническом, и в визуальном плане. Ну, а подборка убийственных трэков периода 87-92 годов была почти безупречна – «Def Con II», «Panic», «SSP (Secret Service Project)» с «The New Machine of Liechtenstein» 89-го года, «World Chaos» с одноимённого альбома 90-го года, «Nothing For My Mum» c «Terminal Terror» (91) «Reborn Dogs» с одноимённого альбома 92-го года прозвучали просто великолепно. Также порадовала одна из двух песен с последнего релиза «Redefined Mayhem» (2014) – «Undead Dogs». Да и в целом этот альбом я считаю весьма достойным, а сама Сабина назвала его современной версией «The New Machine of Liechtenstein»!</P>
+<P>В общем, Сабина Классен была очаровательна во всём – в движениях на сцене, в речах своим просто монструозным немецким акцентом, резким полудэтовым вокалом, звучащим грубо и сыро, но искренне, и даже джинсовой жилеткой с нашивками Voivod, SOD и т.д. Полтора часа техничного thrash-молотилова в лучших традициях 80-х не оставили равнодушным публику – между песнями все посетители клуба Volta скандировали не только название группы, но и имя фронтвумен – особенно в конце сета, не желая отпускать со сцены очаровательную фурию. Ну, а что тронуло саму «железную леди» больше всего – это, конечно же, цветы из первых рядов. Вот он, радушный русский приём, чёрт возьми! Так что, будем надеяться, что довольны остались и фанаты, и организаторы, и сами музыканты Holy Moses, чьё впечатляющее первое выступление в столице не станет последним!</P>
+<P>Текст: Дмитрий Dimebag Дасов</P>
+<P>Setlist:</P>
+<P>01. Def Con II<BR>02. Finished with the Dogs<BR>03. Hellhound<BR>04. Nothing for My Mum<BR>05. World Chaos<BR>06. Jungle of Lies<BR>07. Panic<BR>08. Life's Destroyer<BR>09. Welcome to the Real World<BR>10. Undead Dogs<BR>11. Reborn Dogs<BR>12. SSP (Secret Service Project)<BR>13. Decapitated Mind<BR>14. Borderland</P>
+<P>Encore:<BR>15.&nbsp;Master of Disaster<BR>16.&nbsp;Current of Death<BR>17.&nbsp;Too Drunk to Fuck (Dead Kennedys cover)<BR></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Holy Moses : re-union...

@@ -60,6 +60,15 @@ Recorded & mixed by MERCILES & Dan Swano at Unisound Recording Sept. 1993
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.12.2002 bios Merciless Bio
+
+<p>Merciless was one of the first underground Death/Thrash Metal bands in Sweden, inspired of the early fast-playing bands such as Kreator, Sodom, Destruction and Bathory. Merciless was formed during the summer of 1986 in Strдngnдs, Sweden by Erik Wallin (guitar), Fredrik Karlиn (bass) and Stefan Carlsson (drums). After a few weeks they became a complete unit when the "vocalist" Kеle joined the band. The following months they did some local gigs under the name "Obsessed" and "Black Mass" before they applied the name Merciless in early ґ87. <BR> In July ґ87 they recorded a 4 track demo tape called "Behind the Black Door" which was only printed in 100 copies. Things didn't work out very well with Kеle, and he was replaced by "Rogga" in the beginning of 1988. Merciless improved and developed in song-writing and after the recording of their second 4 track demo tape "Realm of Dark" in June ґ88 they received a lot of great response within and outside Sweden. The demo sold about 2.000 copies and gave them a record deal with Norwegian "Deathlike Silence Productions". <BR> In the summer of 1989 Merciless recorded their first album "The Awakening" which was released on D.S.P. in March ґ90. After the release they did a lot of gigs with other Swedish bands such as Entombed, Dismember, Dissection, Count Raven and also the Brazilian Sepultura on their "Beneath the Remains" Tour. Merciless second album "The Treasures Within" was recorded in June/July ґ91 but wasn't released by there lacy shit label "Active Records" until a year later. During that time the drummer "Stipen" got tired of waiting and in February ґ92 he was replaced by Peter Starwind (also Unanimated/Entombed). In May ґ93 they did a Scandinavian tour with Entombed and in September they recorded their third album "Unbound" with producer Dan Swanц at his Unisound Studios. It was released by "House of Kick/No Fashion Records". <BR> Tired by the lack of support from the record companies, Merciless lost inspiration to continue. In Mayґ94 the band did a show before they decided to take a long break. However, in 1995 they performed on the tribute to Slayer rec. "Slaytanic Slaughter" with the tune "Crionics". <BR> In 1999 the first album was released on "Osmose prod". They were offered a lot of gigs and begun to rehearse again. After a couple of successful gigs they decided to start working on a new album. In May 2002 they finally entered Studio "Dog Pound" in Stockholm. 10 new Death-Thrashing Merciless songs will be released on Black Lodge.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -33,6 +33,79 @@ Peter in de Betou.
 * C группой "Ribspreader" Dan Swano
 * C группой "Witherscape" 
 
+## Публикации
+
+### 12.04.1999 news 
+
+<p>Новости от Дэна Свано. Этот великолепный музыкант сыграет все партии барабанов на новом альбоме Katatonia. Также он работает над альбомом Edge Of Sanity, посвящённом десятилетию группы. На этом альбоме будут тонны неизданного материала, разнообразные ремиксы и демо-версии, а также одна песня, где вместе споют Дэн и новый вокалист группы Роберт. Дэн подумывает над своим новым сольником, это будет нечто наподобие альбома Edge Of Sanity "Crimson" - один гигантский трэк. Как уже сообщалось, ожил проект Дэна Nightingale. Для нового альбома "I" записано 10 композиций. На альбоме все инструменты будут живые, и он выйдет приблизительно осенью. Это только широкоизвестные проекты Дэна, если обо всех писать, я состарюсь. Также намечаются оживления таких групп Дэна или Свано-пародюсера, как Steel, Bloodbath, Odyssey, Infestdead и Unicorn.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Дэн Свано ообщил о своём новом проекте Swano/Tagtgren. Догадываетесь кто второй участник проекта?</p>
+
+Автор: Vit Belov
+
+### 26.08.2000 news Дэн Свано не хочет больше заниматься тяжелой музыкой
+
+<p> Дэн Свано (Dan Swano) заявил, что новый диск Diabolical Masquerade "Death's Design" будет его последней "металлической" работой перед длительным перерывом.</p>
+
+Автор: Nybras
+
+### 26.08.2000 news Dan Swano won&#39;t work with metal anymore
+
+<p> Dan Swano said that Dabolical Masquerade's new CD "Death's Design" will it the last metalrelated album he will do in a very long time.</p>
+
+Автор: Nybras
+
+### 28.03.2002 news Соловей шведского металла
+
+<p>3 мая 2002 года соловей шведского металла Dan Swano начнет в Soundlab studios запись четвертого альбома своего проекта NIGHTINGALE под названием "Alive Again". Выход альбома планируется летом 2002 года. В студии Дэну, который запишет все вокалы, гитары и клавиши, будут помогать Mr. Nouga при записи клавиш и гитар, Erik Oskarsson на басу и барабанщик Tom Bjorn, который также запишет некоторые партии акустической гитары.</p>
+
+Автор: Dimas
+
+### 10.04.2003 news Воссоединение EDGE OF SANITY
+
+<p>Шведская группа EDGE OF SANITY объявила о воссоединении с талантливейшим музыкантом, продюссером и сочинителем Dan Swano. Новый альбом группы "Crimson II" должен выйти 26 августа 2003 года на Black Mark Records. Он будет выполнен в эпическом духе и будет состоять, как и первая часть, всего из одной вещи. Это будет умопомрачительная и мощная смесь влияний от EDGE OF SANITY, PAN THY MONIUM, GODSEND, KARABOUDJAN, DIABOLICAL MASQUERADE, ODYSSEY и возможно использование некоторых пассажей в духе раннего NIGHTINGALE. Никто не будет разочарован, ибо авторы на полном серьезе обещают самый грандиозный и самый лучший альбом группы. Остается только ждать августа...</p>
+
+Автор: Dimas
+
+### 14.04.2003 news Еще немного об EDGE OF SANITY
+
+<p>Dan Swano подтвердил, что 26 августа на Black Mark Records выйдет новый альбом EDGE OF SANITY под названием "Crimson II". Причем сделает это Dan без остальных участников группы. "Они выпустили альбом без меня, так почему мне бы не выпустить альбом без них?" - говорит Dan. Dan запишет для альбома партии ударных, чистого вокала, баса и ритм-гитары. Партии лидер-гитары будет записывать новое шведское дарование Mattias Eklundh (FREAK KITCHEN). А партии гроулинг-вокала запишет некий Roger из малоизвестной группы PAGANIZER.</p>
+
+Автор: Dimas
+
+### 31.12.2003 news Dan Swano открывает свой личный сайт
+
+<B>Dan Swan&ouml;</B> (<B>EDGE OF SANITY</B>, <B>NIGHTINGALE</B>, <B>MOONTOWER</B>) открывает 1 января 2004 года свой новый личный сайт. По адресу <A href="http://www.swano.com/">www.swano.com</A> можно будет скачать MP3, видео, посмотреть фотографии и ещё много всего. Первым 100 посетителям после открытия сайта <B>Swan&ouml;</B> предоставит возможность выиграть коллекционный винил <B>Edge Of Sanity</B>.
+Автор: Uneral
+
+### 22.09.2005 news THE LEGEND IS BACK!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Недавно, <STRONG>Dan Swano</STRONG> поделился своими планами открыть заново легендарную <STRONG>Unisound Recordings Studio</STRONG>, где записывали свои первые альбомы такие коллективы, как <STRONG>OPETH, DISSECTION, EDGE OF SANITY, KATATONIA, MARDUK</STRONG> и многие другие. Однако, музыкант не ставит задачей заниматься в студии записью альбомов. Там будут проходить только процессы сведения и мастеринга. Если кому-то будет интересно поработать на этих стадиях с самим Dan Swano - пишите на <A href="mailto:dan@swano.com">dan@swano.com</A></P></FONT>
+Автор: Dimas
+
+### 15.02.2008 news Dan Swano работает над новым сольником
+
+<P>Знаменитый <STRONG>Dan Swano</STRONG> работает над новым соло-альбомом. Его стиль музыкант описывает, как смесь <STRONG>ALTER BRIDGE</STRONG> и предыдущего сольника <STRONG>Dan "Moontower". </STRONG>Подробности пока не сообщаются.</P>
+Автор: Vit Belov
+
+### 04.12.2009 news Dan Swano готовит &quot;Bravado&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Знаменитый шведский музыкант <STRONG>Dan Swano</STRONG> рассказал о своих ближайших творческих планах. Артист сочиняет материал для нового альбома <STRONG>NIGHTINGALE</STRONG>, который будет называться "<STRONG>Bravado</STRONG>". <STRONG>Swano</STRONG> обещает материал, содержащий в себе черты каждого альбома NIGHTINGALE. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Также я работаю над ещё не названным проектом вместе с <STRONG>Ragnar Widerberg</STRONG> (ex-<B>SAINT DEAMON</B>). Мы планируем материал в духе <STRONG>MOONTOWER</STRONG>/<B>EDGE OF SANITY</B>&nbsp;и <B>BLOODBATH</B> с элементами безумия <STRONG>DIABOLICAL MASQUERADE</STRONG>&nbsp;и <B>KARABOUDJAN</B>/</EM><STRONG><EM>PAN THY MONIUM</EM>",</STRONG> - рассказывает <STRONG>Dan.</STRONG>&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 18.04.2013 news DAN SWANO подписался на Century Media
+
+<P>Знаменитый шведский продюсер и мультиинструменталист <STRONG>Dan Swano</STRONG> подписал многолетнее соглашение с <STRONG>Century Media</STRONG>. Первым продуктом сотрудничества станет альбом нового проекта музыканта <STRONG>WITHERSCAPE, </STRONG>концептуальный дебют которого он записал вместе с <STRONG>Ragnar Widerberg. </STRONG>Материал этой группы должен понравиться поклонникам старого творчества <STRONG>Swano</STRONG> в <STRONG>EDGE OF SANITY</STRONG>, а так же и любителям<STRONG> OPETH</STRONG> и <STRONG>AMORPHIS</STRONG>.</P>
+<P><STRONG>"The Inheritance" </STRONG>выйдет уже в июле текущего года.</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.04/25618.jpg" width=411 height=557></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -95,6 +95,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.10.2011 news Итальянцы RAIN выпускают юбилейный альбом
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.10/21469.jpg" width=400 align=right border=0>Итальянская heavy-metal группа <STRONG>RAIN</STRONG> 12 октября выпустит свой новый альбом "<STRONG>XXX</STRONG>", приуроченный к тридцатилетнему юбилею коллектива. Ветераны представят 13 песен со своих предыдущих 8 альбомов в переигранном и переосмысленном виде. Мастеринг альбома сделал <STRONG>Mats “Limpan” Lindfords</STRONG> в студии<STRONG> Cutting Room</STRONG>, а дистрибуцией CD займётся <STRONG>Aural Music</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Energy<BR></STRONG>2. <STRONG>Whiskey on the route 666</STRONG> (new song)<BR>3. <STRONG>Blood Sport</STRONG><BR>4. <STRONG>Rain Revolution<BR></STRONG>5. <STRONG>The Gate<BR></STRONG>6. <STRONG>Born to Kill<BR></STRONG>7. <STRONG>We Want R.n.R<BR></STRONG>8. <STRONG>In the Night</STRONG><BR>9. <STRONG>End Of Time </STRONG>(cd exclusive track)*<BR>10. <STRONG>Only your dreams<BR></STRONG>11. <STRONG>Fight for the power<BR></STRONG>12. <STRONG>Only for the rain crew</STRONG><BR>13. <STRONG>Rain Are Us</STRONG> (acoustic version)</P>
+<P>MySpace: <A href="http://www.myspace.com/raincrew1980">http://www.myspace.com/raincrew1980</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

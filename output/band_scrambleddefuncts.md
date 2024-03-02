@@ -20,6 +20,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2005 news SCRAMBLED DEFUNCTS готовят новый альбом
+
+<P>Реанимировавшаяся год назад после длительного студийного перерыва московская группа <STRONG>SCRAMBLED DEFU</STRONG>NCTS закончила в <STRONG>Z-STUDIO</STRONG> под руководством <STRONG>Аркадия Навахо</STRONG> работу над своим вторым полноформатным альбомом "<STRONG>Hackled In Gore</STRONG>". Релиз намечен на начало осени 2005. Он состоит из девяти композиций:</P>
+<P>1. <STRONG>Subterranean Slaughterhouse</STRONG>;<BR>2. <STRONG>Amongst the Devastated Graves</STRONG>;<BR>3. <STRONG>Flensed Battue</STRONG>;<BR>4. <STRONG>Pre-natal Whittling</STRONG>;<BR>5. <STRONG>Limbless Fatling</STRONG>;<BR>6. <STRONG>Slashing of the Mummified</STRONG>;<BR>7. <STRONG>Hackled in Gore</STRONG>;<BR>8. <STRONG>Profaning the Crypts</STRONG>;<BR>9. <STRONG>Burnt Alive</STRONG>.</P>
+<P>Общая длительность записи 51 минута. Треки "<STRONG>Slashing of the Mummified</STRONG>" и "<STRONG>Burnt Alive</STRONG>" уже входили ранее в мини-альбом "<STRONG>Pre-natal Whittling</STRONG>", изданный в 2001 голландским лейблом <STRONG>Displeased Records</STRONG>, но были заново переписаны согласно концепции свежего диска. Не успев остыть, музыканты приступают к записи третьего полноформатного альбома, материал которого уже полностью подготовлен.<BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### SCRAMBLED DEFUNCTS (2005) &quot;Hackled In Gore&quot;

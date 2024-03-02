@@ -176,6 +176,587 @@ Janne Saarenpaa - Drums
 * C группой "Crown of Thorns" 
 * C группой "Engel" Marcus Sunesson (guitar)
 
+## Публикации
+
+### 17.08.2001 reviews Да здравствует VENOM!
+
+<p>Да здравствует VENOM! С первой минуты группа начинает безумную атаку – яростно, дико, на предельной скорости… И, похоже, это все, что умеют музыканты. Монотонность и однообразие, ограниченность музыкального мышления губят весь диск. Когда-то все это изобрели VENOM – именно их творения напоминают лучшие песни THE CROWN. Но только кому это нужно сегодня, когда есть тот самый VENOM, оригинальный, искренний и великолепный? Толпы шведов, норвежцев и бог еще знает кого переиграли все на собственный манер по меньшей мере десять лет назад, создав таким образом вагон и маленькую тележку выдающихся своим однообразием творений black-death-metal. Возможно, THE CROWN хотят наплавить еще целый состав подобной продукции, но зачем? Чтобы до конца света гонять свой паровоз, доказывая всем, что они и есть те самые короли смертельной гонки? Да ведь никто и не сомневается! Смысл бесконечного доказательства этого тезиса и брутализации наследия VENOM лично для меня остался большой загадкой.</p>
+
+Автор: Tornado
+
+### 26.09.2001 news Коронованный в Ужасе...
+
+<p>Шведы "THE CROWN" под предводительством Томаса Линдберга (экс-"AT THE GATES") с пятого октября начинают работу в Studio Mega над новым десятипесенным СД "Crowned In Terror". Микс будет проходить в Гетенбергской Studio Fredman и выйдет альбом в начале 2002. Среди песен будут: 01. Drugged Unholy 02. Crowned In Terror 03. Under The Whip 04. (I Am) Hell...</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Crowned In Terror...
+
+<p>Sweden’s THE CROWN, featuring former AT THE GATES frontman Tomas Lindberg, will enter Studio Mega on October 5th to begin recording their brand new CD, entitled Crowned In Terror, for an early 2002 release. 10 songs will reportedly appear on the album, which will be mixed at Studio Fredman in Gothenburg, Sweden during the latter part of November. Among the titles set to appear on Crowned In Terror are the following: 01. Drugged Unholy 02. Crowned In Terror 03. Under The Whip 04. (I Am) Hell. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.10.2001 news The Haunted взяли Marcus Sunesson в качестве замены...
+
+<p>"The Haunted" взяли гитариста "The Crown" - Marcus Sunesson в качестве временной замены ушедшему Anders Bjorler. Sunesson должен помочь команде отыграть грядущий Американский тур. Из других новостей, живой альбом 'Live Rounds In Tokyo' скоро появится в продаже...</p>
+
+Автор: Yermola
+
+### 29.10.2001 news The Haunted Get Crowned ...
+
+<p>The Haunted will bring in The Crown's guitarist Marcus Sunesson as temporary replacement for departed Anders Bjorler. Sunesson is expected to help out The Haunted's upcoming American tour. In related news, The Haunted's live album, 'Live Rounds In Tokyo', is due soon.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 28.12.2001 news THE CROWN перемикшируют свой Crowned In Terror ...
+
+<p><IMG SRC="/images/news_rus/2001.12/2224.gif" ALT="pho" width="192" height="192" hspace="15" vspace="5" border="1" align="left" /> Шведы "THE CROWN" решили вернуться в студию, чтобы перемикшировать уже готовый альбом "Crowned In Terror". Как сказано в заявлении опубликованном на сайте группы: "Когда мы вернулись домой и послушали микс альбома (делался в студии Fredman) 32798 раз нам совершенно не понравился результат. Когда мы писали альбом в Studio Mega, мы тогда же микшировали песню для сборника Metal Blade. Оказалось, что микс Studio Mega звучит гораздо лучше..."<BR><BR> Песня названная "Under The Whip" вошла на праздничный сборник Metal Blade Records посвященный 20 летию компании в большом бизнесе. Бокс сет должен выйти в начале 2002 года и будет состоять из 9 (!!) CD и 1 DVD. Послушать МР3 данного творения (я имею ввиду песню) можно <a href="http://w1.520.telia.com/%7Eu52023557/The%20Crown%20-%20Under%20The%20Whip%20-%20CROWNED%20IN%20TERROR.MP3" target="_blank">здесь... </a> <BR><BR> Сам альбом "Crowned In Terror" выходит 12 марта в США и Канаде, и 11 апреля в Европе...</p>
+
+Автор: Yermola
+
+### 28.12.2001 news THE CROWN Re-Mix New CD....
+
+<p><IMG SRC="/images/news_rus/2001.12/2224.gif" ALT="pho" width="192" height="192" hspace="15" vspace="5" border="1" align="left" /> Sweden's THE CROWN, now featuring former AT THE GATES frontman Tomas Lindberg, have decided to return to the studio to re-mix their upcoming Crowned In Terror CD after the album's original mix was deemed unsatisfactory. According to a statement posted at the group's official web site, “when we got home and listened to [Studio Fredman mix of the album] for the 32798 time, we were not that satisfied with the result. While we recorded the album at Studio Mega we also mixed a song there for a coming Metal Blade comp. CD. And when we compared that mix to the Fredman mix, we figured out that the Studio Mega mix sounds much better. So the obvious thing to do is to mix the whole album again, and this time at Studio Mega.”<BR><BR> The song in question, entitled "Under The Whip", will be included on an upcoming Metal Blade Records box set celebrating the label's 20 years as a business entity, which is tentatively set to be issued sometime next year. Contained in the package will reportedly be a huge booklet containing interviews with bands from yesteryear, as well as artists from the label's current roster. The box set, the exact release date for which is not presently known, will contain no less than nine CDs and one DVD. An MP3 clip of THE CROWN's contribution, “Under The Whip”, can be downloaded from <A HREF="<a href="http://w1.520.telia.com/%7Eu52023557/The%20Crown%20-%20Under%20The%20">this location</A>. Meanwhile, Crowned In Terror (the cover artwork for which can be viewed here) will now be issued in the USA/Canada on March 12th and in Europe on April 11th.</p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news &quot;Under The Whip&quot; от THE CROWN в МР3...
+
+<p>Полную песню "Under The Whip" с еще не вышедшего альбома шведов "THE CROWN" - Crowned In Terror - можно скачать <A HREF="http://w1.520.telia.com/%7Eu52023557/The%20Crown%20-%20Under%20The%20Whip%20-%20Crowned%20In%20Terror,%20final%20edit.mp3">здесь......</A></p>
+
+Автор: Yermola
+
+### 27.02.2002 news THE CROWN&#39;s &quot;Under The Whip&quot; Full MP3 Available For Download...
+
+<p>A full-length MP3 of the track "Under The Whip" from Sweden's THE CROWN (featuring former AT THE GATES frontman Tomas Lindberg), taken from the group's forthcoming Crowned In Terror CD, can downloaded from <A HREF="http://w1.520.telia.com/%7Eu52023557/The%20Crown%20-%20Under%20The%20Whip%20-%20Crowned%20In%20Terror,%20final%20edit.mp3">this location....</A></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 14.04.2002 articles О концерте The CROWN + интервью с Томасом Линдбергом и другими музыкантами
+
+<p><IMG SRC="/images/articles_rus/2002.04/2619.jpg" ALT="poster" width="257" height="396" vspace="5" align="left"/> Хочу сказать, что первоначально ехать на этот концерт я не планировал, хотелось конечно, но дело в том что у нас началась пора звездных шоу, и почти каждую неделю будут выступать легенды мировой металлической музыки. Но, слушая в машине новый альбом the CROWN, я поймал себя на мысли &ndash; а почему бы и нет? Играют они в небольшом клубе, вокалист у них &ndash; сам Томас Линдберг &ndash; легенда шведского мелодик-дэта, да и где еще мне предоставится возможность поговорить с ним и расспросить о делах насущных? Поэтому был проведен опрос мастдайцев, собраны вопросы и я поехал на концерт. Вместе с the CROWN должны были играть две американские команды &ndash; All That Remains и Darkest Hour. Когда я зашел в клуб, шоу только начиналось и на сцене рубила локальная команда &ndash; слушать я их не стал и сразу направился на выполнение "Мастдайского домашнего задания". Как принято здесь на концертах в Штатах, музыканты САМИ продают свои диски и свою атрибутику и подойдя к стенду the CROWN я обнаружил рыжего барабанщика, пожирающего хот-дог. На роже у него было написано что он финн. И поприветствовав сего чувака словами "Perkele Satana" я представился и начал разговор. Звали этого фина Janne Saarenpaa &ndash; короче Яша.</p>
+<p>rjh &ndash; "Привет Яша, как тебе здесь?"</p>
+<p>Яша &ndash; "Да я в первый раз участвую в таком туре, вчера мы играли в Чикаго и я, пока мы ехали в Миннеаполис, всю дорогу проспал в автобусе"</p>
+<p>rjh &ndash; "Где тебе нравится больше играть, в Америке или Европе?"</p>
+<p>Яша &ndash; "Для меня нет большой разницы, потому что барабаны - это моя религия. Я уже 12 лет барабаню и любой концерт независимо от того где он проходит для меня как праздник."</p>
+<p>rjh &ndash; "The CROWN твоя первая серьезная команда? В ней играют два фина и три шведа. Как вы общаетесь?"</p>
+<p>Яша &ndash; "Да, the CROWN это мой дебют в большой музыке. Я знаю финский, шведский и английский, внутри команды мы говорим по-шведски, а с гитаристом Марко &ndash; на финском"</p>
+<p>Тут он позвал Марко и пролепетал ему что-то финское и забавное. Тот подошел и сел рядом.</p>
+<p>rjh &ndash; "Ты знаешь, в Америке не так то много народу ходит на концерты, а вот неделю назад когда в Москве играли Finntroll & Impaled Nazarene народу было несравнимо больше?"</p>
+<p>Яша &ndash; "Конечно знаю, так как вокалист Fintrolla &ndash; мой хороший друг и мы с ним созваниваемся очень часто, он и рассказал мне, что в России фэны очень тепло их приняли. Так же я хорошо знаю Микку Люттинена &ndash; но он очень занятой человек и участвует в куче проектов. Может когда нибудь удастся и с ним поиграть, кто знает?"</p>
+<p>rjh &ndash; "Кто твой любимый барабанщик и какая марка барабанов лучшая на твой взгляд?"</p>
+<p>Яша &ndash; "Пит Сандовалл из Морбидов, это просто образец брутального барабанщика, еще очень нравится работа рук Джина Хогланда и Пола Бостафа а так же Томми Ли, а из барабанов предпочитаю ТАМА с железом Sabian".</p>
+<p>Дальше на мои вопросы отвечал еще один горячий финский парень &ndash; гитарист Марко.</p>
+<p>rjh &ndash; "Был ли ты раньше в Штатах и нравится ли тебе местная публика?"</p>
+<p>Марко &ndash; "Был один раз, когда the CROWN два года назад ездили в свой первый американский тур, публика очень нравится, но нас везде принимают очень хорошо"</p>
+<p>rjh &ndash; "Играли ли вы на больших фестивалях типа Вакена или Динамо?"</p>
+<p>Марко &ndash; "Пока еще нет, но летом the CROWN должен играть на большом фестивале в Германии, думаю это должно быть круто,так как на больших фестах ты знакомишься с интересными людьми и музыкантами, новой публикой и т.д."</p>
+<p>rjh &ndash; "На чем ты играешь, какое оборудование используешь?"</p>
+<p>Марко &ndash; "Гитара B.C.Rich Mockingbird 84-го года с датчиками ЕМГ81/85, на нем играю уже много лет и никогда ни на что не поменяю и ламповая голова с кабинетом Peavey. А так как в вашем гребаном клубе нет Peavey придется играть на том что дают, на гребаном Marshalle".</p>
+<p>rjh &ndash; "Как ты относишься к возможным концертам в России, знаешь ли какие наши команды?"</p>
+<p>Марко &ndash; "Поиграть у вас было бы клёво, но у нас на этот счет ничего не запланировано. Из ваших команд не знаю никого и никогда не слышал."</p>
+<p>На этом концерте я употреблял мексиканское пиво CORONA EXTRA и допив свою бутылку спросил Марко, где этот позер Линдберг? "Да вон он сидит" &ndash; ответил Марко, и я увидел за столиком с бутылкой дерьмового американского Budweisera в бейсболке и футболке VOI VOD короткостриженного рыжего черта &ndash; Линдберга в окружении американских фэнов. Офигев от такой херни, я подошел к нему и внаглую прервал их разговор. "Эй чувак, я типа русский, и у меня к тебе есть куча вопросов от меня лично и от моих друзей &ndash; мастдайцев из России". Он посмотрел на меня и сказал &ndash; "ОК &ndash; сейчас я подойду к тебе, где ты будешь?", на что был получен ответ &ndash; "Я сейчас куплю себе еще бутылочку Короны и буду разговаривать с другими вашими музыкантами возле твоего стенда, где ты продаешь свои новые диски, которые нормальные фэны уже давно наизусть знают, благодаря Интернету и таким людям как Граф Ди Митриус."</p>
+<p>Купил я пиво и присел за столик с крауновцами, подходили какие то фэны и думали что я их музыкант, на что я вежливо отправлял их к финнам. Ну вот и Линдберг подошел с новой бутылкой Budweisera. Я сказал ему, кто я такой и почему я вообще здесь, сразу же были сделаны исторические фотографии и я начал задавать вопросы.</p>
+<p>rjh &ndash; "Ты известный человек в мире метал-музыки, чем она для тебя является?"</p>
+<p>Линдберг &ndash; "Я уже давно работаю в этой сфере, и митал для меня &ndash; это вся моя жизнь и представить себя вне ее я не могу. Это как наркотик &ndash; попробовав один раз, не можешь остановиться."</p>
+<p>rjh &ndash; "Был ли ты когда нибудь в России и республиках СНГ? Как относишься к возможным выступлениям там?"</p>
+<p>Линдберг &ndash; "У вас никогда не был и даже не представляю что это такое, но я знаю что многие команды играют у вас и остаются довольны. Еще знаю что у вас есть очень много настоящих метал-фэнов. Из стран Восточной Европы я был в Чехии и Польше с At The Gates &ndash; мне очень понравилась местная публика и особенно девушки. Девушки из Восточной Европы самые красивые в мире."</p>
+<p>rjh &ndash; "А хули ты думал, чувак? Естественно самые красивые в мире. А кого из наших групп ты знаешь (вопрос графа Ди Митриуса)?"</p>
+<p>Линдберг &ndash; "Никого не знаю, так как не могу послушать их диски и они не выступают в Европе и США, но не сомневаюсь, что у вас есть много талантливых команд, надеюсь что они выступают вместе с западными командами, которые к вам приезжают?"</p>
+<p>rjh &ndash; "Да выступают, но испытывают большие финансовые проблемы, почти все музыканты работают, чтобы заработать денег на музыку и не имеют времени отлучиться с основной работы на гастроли".</p>
+<p>Линдберг &ndash; "Ну, в Швеции, да и почти во всем мире такая же ситуация, только самые известные метал-музыканты могут позволить себе не думать ни о чем кроме музыки, и наша группа the CROWN не исключение, все деньги полученные от продажи предыдущих альбомов уходят на оплату студий, туров, то есть вкладываются в следующие проекты, с At the Gates ситуация была точно такой же, ни один из альбомов не принес нам денег."</p>
+<p>rjh &ndash; "Когда At the Gates воссоединятся?! (вопрос Scar'a)?"</p>
+<p>Линдберг &ndash; "Никогда. Воссоединения At the Gates не будет. Мы до сих пор очень хорошие друзья, но сейчас заняты другими проектами &ndash; the Haunted и the Crown &ndash; мы часто встречаемся, но речи о том, чтобы опять работать вместе не идет &ndash; At the Gates остался в прошлом."</p>
+<p>rjh &ndash; "Раз уж речь зашла об At the Gates, какой на твой взгляд ваш лучший альбом? (вопрос Tornado)".</p>
+<p>Линдберг &ndash; "With Fear I Kiss The Burning Darkness, 1993 года. Вообще я люблю все наши альбомы, но этот лучший."</p>
+<p>rjh &ndash; "А что означают фразы "кингдом факин ган" и "уиз фир ай кисс зе бурнинг даркнесс"? (вопрос задал volos)".</p>
+<p>Линдберг &ndash; "With Fear I Kiss The Burning Darkness &ndash; это когда человек стоит перед чем-то неизвестным и долго не может на что то решиться, а потом все таки решается и делает это, а "кингдом факин ган" &ndash; да я уже и не помню почему мне захотелось спеть именно это:)))"</p>
+<p>rjh &ndash; "Кто оказал на тебя наибольшее влияние в формировании вокального стиля, манеры пения? (вопрос Ruslana)".</p>
+<p>Линдберг &ndash; "В первую очередь &ndash; это вокалист POSSESSED Jeff Beccera. Всегда восхищался его вокалом и манерой пения, и вообще альбом POSSESSED "Seven Churches" 1986 года является моим самым любимым альбомом."</p>
+<p>rjh &ndash; "Твое отношение к the Haunted, нравится ли тебе то что они делают? (вопрос Ruslana)". </p>
+<p> Линдберг &ndash; "Не просто нравится а ОЧЕНЬ НРАВИТСЯ, отличная команда, в которой играют мои друзья, гитаристы At the Gates, и не смотря на то, что стиль в котором работают the Haunted и the Crown очень похож и мы как бы конкуренты, мне очень нравится то, что они делают и пускай у них все будет ОК."</p>
+<p>rjh &ndash; "Твое отношение к Дэну Свано, собираешься ли ты с ним работать? Нравится ли тебе его творчество? (вопрос графа Ди Митриуса)"</p>
+<p>Линдберг &ndash; "Работать с ним я не собираюсь. Вообще Дэн очень замкнутый человек. Он очень хороший музыкант, мультиинструменталист, но мне не нравится то, что он ударяется в электронные эксперименты в последнее время. То что он cделал с Edge of Sanity на первых трех альбомах нравится мне гораздо больше, чем его работы с Найнтингейл и сольный альбом. Я вообще не люблю электронщину и клавиши в метале и не хочу слушать весь этот бред. Метал должен быть мощным, а разные эксперименты со звуком мне не в кайф."</p>
+<p>rjh &ndash; "Lock up &ndash; машина для зарабатывания бабла или тру андеграундный проект? (вопрос Scarа)?"</p>
+<p>Линдберг &ndash; "Деньги здесь совсем не причем, странно что ты задал такой вопрос. Просто если At the Gates и the Crown &ndash; MUSIC for SOUL, то Lock Up &ndash; MUSIC for FUN, и я и Пинтадо с Эмбури и Баркером относимся к Lock Up как к приколу &ndash; нравится нам такая легкая, не заставляющая думать музыка :)"</p>
+<p>rjh &ndash; "Я знаю что ты пел с израильской группой Betrayer, расскажи как это было? Собираешься ли сделать с ними еще что нибудь (вопрос графа Ди Митриуса)?"</p>
+<p>Линдберг &ndash; "Ты даже такой момент из моей биографии знаешь :) (удивление). Я был в Израиле неделю по приглашения моих очень хороших друзей, и на концерте пел вместе с группой Betrayer &ndash; они очень веселые и доброжелательные ребята и у меня остались самые благоприятные впечатления о той поездке, это было очень весело, но не надо относится к тому концерту серьезно &ndash; они попросили &ndash; я попел :) Мне это было в кайф."</p>
+<p>После этого мы взяли еще по пиву и я задал свой вопрос, относительно алкогольных напитков.</p>
+<p>rjh &ndash; "Томас, вот ты швед, скажи мне, только честно, что лучше "Абсолют" или "Финляндия»?" </p>
+<p> Линдберг &ndash; "Хоть я и швед, но признаю, что "Финляндия" действительно лучше (смеется), а вообще любимая водка у меня "Смирнофф", а у тебя?"</p>
+<p>rjh &ndash; "Гжелка" и "Финляндия"</p>
+<p>Линдберг &ndash; "А вообще я знаю что русские пьют водку в чистом виде, но я предпочитаю СКРЮДРАЙВЕР &ndash; коктейль &ndash; водка с апельсиновым соком. "Смирнофф" с апельсиновым соком мой фаворит среди напитков на все времена!"</p>
+<p>rjh &ndash; "Я еще раз задам тебе, шведу,такой некорректный вопрос (еле сдерживая смех) &ndash; что ты знаешь о таком месте, как Полтава? (вопрос Scarа)?"</p>
+<p>Линдберг (удивленно) &ndash; "Вообще-то &ndash; это что-то из истории."</p>
+<p>И тогда мне пришлось в двух словах рассказать ему, что же произошло в восемнадцатом веке под Полтавой, как Петр Первый заставил капитулировать Карла 12-го, но перевел все в шутку. Оказывается во всем мире люди изучают историю так, как им выгодно, и в любой стране историки пытаются умалчивать позорные факты из биографии. После этого вопроса мы пошли закупаться очередной порцией Короны и Линдберг познакомил меня со вторым гитаристом the CROWN &ndash; шведом Маркусом. Тут между нами состоялся интересный диалог, смысл которого будет очень хорошо понятен нашим любителям тяжелой музыки. Дело в том что альбом the CROWN вышел в США именно в тот день когда состоялся этот концерт &ndash; 9 апреля.</p>
+<p>rjh &ndash; "Привет Маркус, ваш новый альбом у меня есть &ndash; мне очень понравилось."</p>
+<p>Маркус &ndash; "Слышал? Ты что, купил его здесь и уже успел послушать?"</p>
+<p>rjh &ndash; "Да нет вообще-то."</p>
+<p>Маркус &ndash; "А, я понял, ты купил его в музыкальном магазине?"</p>
+<p>rjh &ndash; "Да нет, знаешь, что такое интернет?"</p>
+<p>Маркус &ndash; "Ну конечно, ты наверно заказал его через интернет?"</p>
+<p>rjh &ndash; "Да нет, я уже с января имею его в своей коллекции."</p>
+<p>Ничего не понимает... Растерянность... Удивление...</p>
+<p>Бедный Маркус:) К сожалению он и не подозревает, что благодаря таким людям, как Граф Ди Митриус, русскоязычные любители тяжелой музыки имеют возможность слушать альбомы задолго до их премьеры.</p>
+<p>rjh &ndash; "Я конечно понимаю что ты теряешь бабки, но пойми, что если в Швеции или в Америке отдать 15 баков за фирменный диск &ndash; это нормально, то в России и СНГ это непозволительная роскошь."</p>
+<p>Дальше идет краткое изложение предмета.</p>
+<p>Маркус &ndash; "Я все понимаю, если бы сам был в такой ситуации делал бы точно так же:)"</p>
+<p>Кстати, Маркус уже был в Миннеаполисе во время прошлогоднего осеннего тура the Haunted, в который он ездил сессионным гитаристом. Мы еще немного поговорили и пошли смотреть концерт.</p>
+<p>В основной части первыми выступали американцы ALL THAT REMAINS из Бостона, штат Массачусетс. Что про них можно сказать? Американский вариант Children of Bodom, только вокалист свободный, короткостриженный, с явно хардкоровой манерой пения. А инструментальная группа &ndash; один в один Children of Bodom &ndash; гитаристы с Jackson RR, все волосатые, светлые, и музыка очень похожа на финов &ndash; мелодичный хэви-блэк-дэт, с гитарными трелями и соляками в две гитары, даже строение песен похожа на Детей. Вот только клавиш нет. Отыграли они свою программу очень весело и задорно. Видно что ребята очень профессионально владеют инструментами. Соляки красивые, но все же уступают Алекси Лайховским. Мне очень понравилось &ndash; буду следить за их творчеством дальше.</p>
+<p>Следующими выступали еще одни америкоты Darkest Hour. Эти ребята делают на сцене небольшое шоу, смотрятся очень живо и интересно, да и музыка у них представляет собой своеобразный коктейль &ndash; основа &ndash; это мелодик дэт, к которому примешаны и блэк и хардкор и трэш и даже панк, даже незнаю как это назвать. Что то похожее есть у Die Apocaliptischen Reier но все равно по другому слушается. Слишком разнородно как то. Но интересных фишек в их музыке немало. У меня как у любителя строгих канонов жанра осталось неоднозначное впечатление &ndash; ребята желают угодить всем, и это не очень хорошо получается, хотя любителям экспериментов такая музыка придется по душе.</p>
+<p>Ну и после них вышли хэдлайнеры &ndash; the CROWN.</p>
+<p>Концерт начался с клавишного интро к новому альбому Crowned In Terror и одноименной песней. Народ очень живо воспринял музыку и начал рубится, кстати попытки некоторых личностей организовать в зале слэм к успеху не привели. Линдберг работал как автомат и в перерывах между песнями прикладывался к бутылке с Будвайзером. Кстати на сцене он очень прикольно закатывает глаза во время пения:))) Следующей вещью была Under The Whip так же с нового альбома. Потом Линдберг объявил старые песни the Poison и Deathexplotion. Они ни чем не уступают новым. Тот же напор, энергия и Эт Зе Гейтовский вокал, хотя мелодичности по сравнению с привратниками поубавилось, зато агрессии гораздо больше. Потом была исполнена медленная и качевая вещь World Below - под которую наступил апогей концерта. Стали рубиться просто все находящиеся в зале ...70 человек. Вы не удивляйтесь &ndash; зажравшиеся американцы ходят только на модные группы, но эти 70 человек были настоящими фэнами, которые пришли послушать именно музыку, которые прекрасно знают кто такие Линдберг и the Crown. Затем сыграли песни The Speed Of Darkness и Death Metal Holocaust. Затем несколько песен со старых и нового (Out For Blood, I Am Hell) альбомов вперемешку и завершили часовое выступление песней Satanist. Что можно сказать подводя итог этому концерту. Профессионально, агрессивно и задорно. С большим желанием. Но... всё же немного жаль, что нет больше такой группы, как At the Gates.</p>
+
+Автор: rjh
+
+### 05.06.2002 news Из THE CROWN ушел вокалист...
+
+<p>Разошлись пути-дорожки у шведов "THE CROWN" и вокалиста Tomas Lindberg (ex-AT THE GATES). Причиной, как обычно, названы персональные несоответствия. Линдберг был с THE CROWN с марта 2001, когда он заменил уставшего от гастрольной жизни Johan Lindstrand. Томас пел на н аиболее известном диске "Crowned In Terror" (вышел в Апреле на Metal Blade Records). Последнее шоу с его участием прошло 31 мая в Стокгольме, совместно с THE HAUNTED и NECROPHOBIC....</p>
+
+Автор: Yermola
+
+### 05.06.2002 news THE CROWN Part Ways With TOMAS LINDBERG ...
+
+<p>Sweden's THE CROWN have parted ways with vocalist Tomas Lindberg (ex-AT THE GATES) due to personal differences. A message on the group's official web site states simply that "any questions to this statement will be answered with 'no comment'." <BR> <BR> Lindberg joined THE CROWN in March 2001 as the replacement for Johan Lindstrand, who left the group due to his dislike for the touring lifestyle. Tomas appeared on THE CROWN's most recent CD, Crowned In Terror, which was released through Metal Blade Records in April.<BR> <BR> THE CROWN's last show with Lindberg took place last Friday, May 31st, at The Shrine in Stockholm, where the group shared the stage with THE HAUNTED and NECROPHOBIC. It is not presently clear if the band will go ahead with their next scheduled live appearance, which is due to take place at the Tuska Metal Festival in Helsinki, Finland on July 13th.</p>
+
+Автор: Yermola
+
+### 10.10.2002 news Йохан Линдстранд вернулся в The Crown
+
+<p>Официально объявлено о возвращении Йохана Линдстранда в The Crown в качестве постоянного вокалиста. Он уже репетировал пару песен с командой и чрезвычайно рад такому повороту событий.</p>
+
+Автор: Morsus
+
+### 10.10.2002 news Johan Lindstrand has rejoined The Crown
+
+<p>Vocalist Johan Lindstrand has officially rejoined The Crown as the group's new permanent singer.</p>
+
+Автор: Morsus
+
+### 24.12.2002 news THE CROWN готовят новый альбом
+
+<p>Шведские трэш-дэтстеры THE CROWN, в ряды которых вернулся их первый вокалист Johan Lindstrand, находятся в процессе сочинения материала для своего нового студийного альбома, у которого пока нет названия. Выпуск его планируется на лето 2003 года. Уже известно, что в альбом войдут следующие вещи:</p>
+<p> 01. No Tomorrow <BR> 02. Face Of Destruction/Deep Hit Of Death <BR> 03. Are You Morbid? <BR> 04. Cold Is The Grave <BR> 05. Kill 'Em All <BR> 06. Natashead Overdrive <BR> 07. Dawn Of Emptiness <BR> 08. Crown Of Thorns</p>
+
+Автор: Dimas
+
+### 05.02.2003 news THE CROWN готовят свежатину
+
+<p>Шведские трэшеры THE CROWN, недавно воссоединившиеся с вокалистом Johan Lindstrand'ом, готовы войти в Studio Fredman для записи своего нового альбома, пока не имеющего названия. Там будут записаны следубщие песни для альбома:</p>
+<p> 01. No Tomorrow <BR> 02. Face Of Destruction/Deep Hit Of Death <BR> 03. Are You Morbid? <BR> 04. Cold Is The Grave <BR> 05. Kill 'Em All <BR> 06. Natashead Overdrive <BR> 07. Dawn Of Emptiness<BR> 08. Crown Of Thorns</p>
+<p> Выпуск альбома планируется на Metal Blade Records в сентябре 2003 года.</p>
+
+Автор: Dimas
+
+### 19.03.2003 news Новый альбом THE CROWN
+
+<p>Шведские трэшеры THE CROWN определились с названием своего нового альбома. Диск который выйдет в сентябре 2003 года на Metal Blade Records будет называться "Possessed 13". Запись его начнется в мае в Studio Fredman с вернувшимся вокалистом Johan Lindstrand'ом. В альбом войдут следующие вещи:</p>
+<p> 01. No Tomorrow<BR> 02. Deliverance<BR> 03. Face Of Destruction / Deep Hit Of Death<BR> 04. Are You Morbid?<BR> 05. Dream Bloody Hell (instrumental)<BR> 06. Cold Is The Grave<BR> 07. Kill 'Em All<BR> 08. Morningstar Rising<BR> 09. Natashead Overdrive<BR> 10. Bow To None<BR> 11. Zombiefied!<BR> 12. Dawn Of Emptiness<BR> 13. The Endless Gate (instrumental)</p>
+
+Автор: Dimas
+
+### 20.03.2003 news THE CROWN will enter the sacred halls of Fredman Studios ...
+
+<p>Swedish thrashers THE CROWN will enter the sacred halls of Fredman Studios on the 5th of May with the evil purpose of laying down their new album. The record, which will feature returned vocalist Johan Lindstrand, is scheduled for release in September. We can hardly wait! <BR><BR> The following tracks are to appear on the album:<BR><BR> 01. No Tomorrow<BR> 02. Face Of Destruction/Deep Hit Of Death<BR> 03. Are You Morbid?<BR> 04. Cold Is The Grave<BR> 05. Kill 'Em All<BR> 06. Natashead Overdrive<BR> 07. Dawn Of Emptiness<BR> 08. Crown Of Thorns <BR><BR> Make sure you don't miss THE CROWN on their upcoming tour, where they'll be supported by SKINLESS and THE MONOLITH DEATHCULT:<BR><BR> 21-3 NL Rotterdam @ Baroeg<BR> 22-3 NL Sneek @ Bolwerk<BR> 23-3 B Vosselaar @ Biebob<BR> 25-3 UK UK Cardiff @ Barfly<BR> 26-3 UK London @ Underworld<BR> 27-3 NL Eindhoven @ Effenaar<BR> 28-3 CH Zofingen @ OX<BR> 29-3 D Hirschaid @ Jahnhalle<BR> 30-3 CZ Prague @ Black Pes<BR> 1-4 D Hamburg @ Marx<BR> 2-4 D Munster @ Live Arena<BR> 3-4 D Bischofswerda @ East Club<BR> 4-4 D Berlin @ Knaack<BR> 5-4 D Wermelskirchen @ AJZ Bahndamm</p>
+
+Автор: Yermola
+
+### 02.07.2003 reviews Лучший альбом The Crown
+
+<p>Знаю, со мной многие не согласятся (впрочем, как и всегда ;-)), но для меня "Hell is Here" пока что остаётся лучшей работой THE CROWN (ex-CROWN OF THORNS). Звук сыроват. Барабаны звучат немного… гхм… не так, как они, по идее, должны звучать. Ну и что с этого? Диск хуже не становится. Ибо слушается на одном дыхании. "Hell is Here" куда более разнообразен, нежели последовавшие за ним "Deathrace King" и в особенности "Crowned in Terror". Он – вот банальность! – просто интереснее. Первая вещь, "The Poison" чертовски напоминает ранний VENOM. Последняя, "Death by My Side", представляет собой эдакий "эпик", что для THE CROWN немного непривычно. Остальные не хуже. Они просто менее яркие. Если не ошибаюсь, "Hell is Here" был первым альбомом, вышедшим под названием "The Crown", - и, похоже, смена вывески пошла на пользу. Ибо обозреваемый диск в тысячу раз сильнее, чем его предшественники. THE CROWN были и остаются одними из наиболее ярких представителей шведского трэш-дэтового дивизиона (который, что любопытно, порой не чурается заигрывать с блэком), а "Hell is Here", как уже было сказано, лучшая их работа. По крайней мере, на мой взгляд.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 21.10.2003 news THE CROWN переписывают &#39;Crowned in Terror&#39;
+
+<P>Сегодня в Европе выходит новый альбом <B>THE CROWN 'Possessed 13'</B>. Группа же находится в студии, где перезаписывает свой альбом 2003 года <B>'Crowned in Terror'</B> (?). Партии вокала на этой версии естественно исполнит новый фронтмэн <B>Johan Lindstrand, </B>в то время как в оригинале пел <B>Tomas Lindberg.</B></P>
+Автор: Vit Belov
+
+### 20.02.2004 reviews Путь в тупик
+
+<DIV><I><B>The Crown</B> решили переписать предпоследний альбом со своим старым новым вокалистом. Это о чём-то, да говорит.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Видимо, нехватка материала и безудержное желание выпускать что-то новое каждый год сыграло с <B>The Crown</B> злую шутку. Я далёк от мысли, что <B>Tomas Lindberg</B> играл в группе огромную роль, но первый альбом без его участия явно не удался. Концептуальнооформленный <B>'Possessed 13'</B> не несёт в себе никакой ценности. Группа окончательно скатилась в thrash, но этот thrash совсем не злой, не мелодичный, не быстрый, а ... никакой. Удовольствие от альбома получить практически невозможно. В конце концов <B>The Crown</B> даже сыграли нечто <B>MOTORHEAD</B>-подобное на <B>'Kill'Em All'</B>, а закончили всё медляком-инструменталом. </DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Я уже поднимал вопрос о группах, создавших на обломках melodic death-metal увлечений, некий гибрид thrash-metal. По-моему, это тупиковый путь. Новый альбом <B>The Crown</B> совершенное разочарование для их поклонников, и мёртвый груз для остальных любителей металла.</DIV>
+Автор: Vit Belov
+
+### 26.02.2004 reviews Way to deadlock
+
+<DIV><I><B>THE CROWN</B> guessed to re-record last but one album with their old new singer. It says something.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Apparently lack of material and unrestrained wish to release something new every year played wicked joke with <B>THE CROWN</B>. I am far from thought, that <B>TOMAS LINDBERG</B> played a big part in the band. But first album without him was not success. Conceptdesigned <B>'Possessed 13'</B> don't carry any value in itself. The band slided down in thrash-metal finally. But this thrash-metal is not wicked, is not melodious, is not fast... It's nothing. Pleasure from this album is not possible. Definitively <B>THE CROWN</B> played like <B>MOTORHEAD</B> on song <B>'Kill'em All'</B>, and Album ended&nbsp;by ballad-instrumental.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>I've already told about bands, creating hybrid of thrash-metal in fragments of passions for melodic death-metal. I guess, it's way to deadlock. New album by <B>THE CROWN</B> is perfect disappointment for their fans and dead weight for the rest fans of metal.&nbsp;&nbsp;</DIV>
+Автор: Vit Belov
+
+### 08.03.2004 news Конец THE CROWN
+
+Из официальных источников, стало известно, что шведская группа <B>THE CROWN</B>, выпустив шесть убийственных альбомов, прекратила свое существование.
+Автор: Dimas
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 18.06.2004 reviews Достойный альбом
+
+<I>
+<P align=justify>Здесь, как и в случае с HOUWITSER, оформление тянет как минимум на пять с плюсом. Да чего уж там, - на десять из пяти. Толстенький и красочный буклетик - это, конечно, хорошо. Но что же музыка? Музыка тоже не подкачала. Не стану говорить, что это лучший альбом Краунов. Ибо не знаю, так ли это. По крайней мере, не худший. Здесь и в помине нет однообразия (читай - раздражающей ухо монотонности), как чудится некоторым рецензентам. Концепция альбома не нова (“Possessed 13” разделён на три части, а названия песен живо напоминают низкобюджетные ужасники годов эдак 50-60-х), но и приевшейся её назвать нельзя. Тем более, если учесть то, какую музыку играют THE CROWN. А играют они по-прежнему приблэкованный трэш-дэт, местами заставляющий вспомнить, что есть-таки на карте Европы такая страна как Швеция. Никаких Гётеборгов, упаси боже. Другая Швеция, если вы понимаете, о чём я. В целом, альбом вышел достойным. Быть может, это и не лучшее творение THE CROWN, но и, как уже было сказано, далеко не худшее. </P><B>
+<P>Диск предоставлен компанией ФОНО</P></B></I>
+Автор: Kai Mathias Stalhammar
+
+### 02.08.2008 news DOBERMANN - новая группа членов THE CROWN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Члены несуществующей ныне группы </FONT><STRONG>THE CROWN</STRONG> <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>организовали новый&nbsp;коллектив <STRONG>DOBERMANN</STRONG>, который будет выступать в жанре death-thrash-metal. Вокалистом новой формации стал фронтмэн <STRONG>DEATHSTARS</STRONG> (!!!) <STRONG>Andreas "Whiplasher Bernadotte" Bergh. </STRONG>Вот поимённый перечень музыкантов:</FONT></P>
+<P><STRONG>Magnus Olsfelt</STRONG> (THE CROWN) - Bass<BR><B>Marko Tervonen</B> (THE CROWN, ANGEL BLAKE) - Guitar<BR><B>Marcus Sunesson</B> (THE CROWN) - Lead Guitar<BR><B>Janne Saarenp&#228;&#228;</B> (THE CROWN) - Drums<BR><B>Andreas Bergh</B> (DEATHSTARS, SWORDMASTER) – Vocals</P>
+Автор: Vit Belov
+
+### 01.12.2009 news THE CROWN возвращаются
+
+<P>Группа бывших участников<STRONG> THE CROWN DOBERMANN</STRONG> объявила о смене названия. Теперь этот коллектив будет называться <STRONG>THE CROWN</STRONG>, и в его состав войдут:</P>
+<P>* <B itxtvisited="1">Jonas Stalhammar</B> (GOD MACABRE, MACABRE END, ABHOTH) - Vocals<BR itxtvisited="1">* <B itxtvisited="1">Marko Tervonen</B> - Rhythm Guitar<BR itxtvisited="1">* <B itxtvisited="1">Marcus Sunesson</B> - Lead Guitar<BR itxtvisited="1">* <B itxtvisited="1">Magnus Olsfelt</B> - Bass<BR itxtvisited="1">* <B itxtvisited="1">Janne Saarenpaa</B> - Drums </P>
+Автор: Vit Belov
+
+### 01.07.2010 news THE CROWN на Century Media
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вернувшиеся к жизни <STRONG>THE CROWN</STRONG> заключили сделку с<STRONG> Century Media</STRONG>. Новый альбом коллектива <STRONG>"Doomsday King" </STRONG>должен выйти в сентябре. <STRONG>THE CROWN</STRONG> сейчас состоит из оригинальных музыкантов и нового вокалиста <STRONG>Jonas Stalhammar</STRONG> (<STRONG>GOD MACABRE, MACABRE END, ABHOTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поначалу шведы осваивали новый бренд<STRONG> DOBERMANN</STRONG>, избавившись от певца <STRONG>Johan Lindstrand (ONE MAN ARMY), </STRONG>но потом оставили эту идею, вернув оригинальное название.</FONT></P>
+Автор: Vit Belov
+
+### 24.11.2010 reviews Мастера музыкального бизнеса возвращаются
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы THE CROWN (бывшие CROWN OF THORNS) всегда радовали своей закулисной жизнью. Сначала поменяли имя, потом брали новых вокалистов, выгоняли их, перезаписывали альбомы, потом, вообще, развалились. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После того, как THE CROWN прекратили существование в 2004 году, довольно быстро музыканты вернулись под новым именем DOBERMANN. Очередной раз шведы не смогли работать с певцом Johan Lindstrand, который достаточно успешен со своей новой группой ONE MAN ARMY. Немного помаявшись как DOBERMANN, музыканты приняли очевидное решение возродить THE CROWN. И вот, к всеобщему удовольствию, вышел новый альбом группы - “Doomsday King”. Музыкально ничего нового и даже ничего интересного на этой пластинке шведы не представляют. Death-thrash-metal, с которым они прославились, остался без изменений, более того, на альбоме достаточно мало запоминающихся вещей. Основой музыки THE CROWN должны были стать драйв и саунд. С драйвом поначалу вроде всё неплохо, но ближе к концу релиза начинаются среднетемповые монотонные вещи, которые окончательно отбивают всякую охоту переслушивать эту пластинку. С саундом тоже не всё гладко, слыхали мы и более сочные работы в этом стиле, взять хотя бы недавно вышедших WITCHERY или уже упоминавшихся здесь ONE MAN ARMY.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Возвращения THE CROWN алкала музыкальная индустрия. Звукозаписывающим лэйблам необходимы имена для продажи пусть не большого, но стабильного количества пластинок. THE CROWN идеально подходят на эту роль, они умудрялись даже делать деньгу на перезаписанных альбомах, а это большое мастерство.</FONT></P>
+Автор: Vit Belov
+
+### 27.01.2011 news Видео THE CROWN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип шведов <STRONG>THE CROWN</STRONG> на песню <STRONG>"Doomsday King" </STRONG>можно посмотреть ниже. Трэк является заглавной песней с последнего альбома коллектива, который вышел в сентябре на <STRONG>Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/OyfakHcIqh8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/OyfakHcIqh8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.02.2011 news Ещё одно видео THE CROWN
+
+<P><STRONG>THE CROWN</STRONG> сняли видео-клип на ещё одну песню с последнего альбома <STRONG>"Falling 'Neath The Heaven's Sea". </STRONG>Этот ролик снят другом группы и фотографом <STRONG>Patrik Skoglow. </STRONG>Трэк стал единственным бонусом на вышедшей пластинке шведов <STRONG>"Doomsday King".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/jwfOKgDBCjo?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/jwfOKgDBCjo?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.09.2011 news Johan Lindstrand вернулся в THE CROWN
+
+<P><IMG height=423 alt="" hspace=0 src="/images/news_rus/2011.09/21089.jpg" width=423 align=right border=0>Фронтмен<STRONG> Johan Lindstrand</STRONG> вновь присоединился к <STRONG>THE CROWN</STRONG>. Классический певец группы последние годы работал с собственной группой <STRONG>ONE MAN ARMY</STRONG>. Настоящий состав коллектива:</P>
+<P><STRONG>Johan Lindstrand</STRONG> - Vocals<BR><B>Magnus Olsfelt</B> - Bass<BR><B>Marko Tervonen</B> - Rhythm Guitar<BR><B>Janne Saarenpaa</B> - Drums<BR><B>Marcus Sunesson</B> - Lead Guitar</P>
+<P>Предыдущая работа шведов&nbsp;<STRONG>"Doomsday King" </STRONG>с певцом <STRONG>Jonas Stalhammar</STRONG> вышла в 2010 году на<STRONG> Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### The Crown

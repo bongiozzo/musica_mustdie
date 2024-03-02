@@ -131,6 +131,88 @@ Rick Charron - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2003 news Потери в EXCITER
+
+<p>Басист Paul Champagne объявил о своем решении покинуть канадских пионеров speed metal EXCITER. Тем не менее, группа планирует войти в студию для перезаписи своих 16 лучших вещей для грядущего сборника "Best Of EXCITER", который должен выйти в конце 2003 года.</p>
+
+Автор: Dimas
+
+### 08.10.2003 news Лучшее от EXCITER
+
+Ветераны speed metal EXCITER в данный момент записывают сборник своих лучших песен. На альбоме ожидаются следующие классические вещи, перезаписанные в наши дни: Stand Up And Fight; Heavy Metal Maniac; Rising Of The Dead; Blackwitch (Heavy Metal Maniac-1983) + Violence and Force; Pounding Metal (Violence And Force-1984) + Long Live The Loud; Victims Of Sacrifice; I Am The Beast (Long Live The Loud-1985) + Rain Of Terror (Kill After Kill-1992) + The Dark Command; Aggressor; Ritual Death (The Dark Command-1997) + Rule With An Iron Fist; Brutal Warning (Blood Of Tyrants-2000). John Ricci будет играть на басу на этом альбоме, который должен выйти в начале 2004 года.
+Автор: Darkfall
+
+### 26.10.2003 news EXCITER перезаписывают песни для своего сборника
+
+<P>Гитарист <B>EXCITER John Ricci</B> сообщил, что группа в настоящее время записывает альбом в <B>L.S. Studios</B> в Оттаве вместе с продюсером <B>Manfred Leidecker</B>. Будет перезаписано 16 трэков (10 классических из них). Записываются эти песни: <B>"Oblivion II (new track), "Violence & Force', 'Stand Up And Fight', 'Heavy Metal Maniac', 'Pounding Metal', 'Dark Command', 'Ritual Death', 'Long Live The Loud', 'Victims Of Sacrifice', 'Brutal Warning', 'Rising Of The Dead', 'Black Witch (featuring Ricci's 12-string classical guitar intro), 'Rain Of Terror', 'I Am The Beast', 'Burn At The Stake'&nbsp;и 'Rule With An Iron Fist'</B>. Самое забавное, что выйдет всё это добро на black-death-metal лэйбле <B>OSMOSE Production</B>.</P>
+Автор: Vit Belov
+
+### 26.10.2003 news EXCITER re-record their songs
+
+<B>EXCITER</B> guitarist <B>John Ricci</B> said regarding their forthcoming, as-yet-untitled, covers album that they are presently recording at <B>L.S. Studios</B> in Ottawa with producer <B>Manfred Leidecker</B>. Ricci says that 16 rerecorded tracks (ten classic, five current) from all eras of Exciter make up the album, due out through <B>Osmose</B> in January. The band are expected to be in the studio until the end of October. <BR>The band are recording the following tracks: <B>Oblivion II (new track), 'Violence & Force', 'Stand Up And Fight', 'Heavy Metal Maniac', 'Pounding Metal', 'Dark Command', 'Ritual Death', 'Long Live The Loud', 'Victims Of Sacrifice', 'Brutal Warning', 'Rising Of The Dead', 'Black Witch (featuring Ricci's 12-string classical guitar intro), 'Rain Of Terror', 'I Am The Beast', 'Burn At The Stake' and 'Rule With An Iron Fist'</B>.<BR>Ricci says that the record has "<B>better production and is more pleasurable to listen to" than their early records. He says that the "songs have new life.</B>" Ricci is taking care of all the guitar and bass duties. The remaining current lineup includes singer <B>Jacque Belanger</B> and drummer <B>Rick Charron</B>. Exciter are currently reviewing 2004 festival offers from such overseas events as Wacken Open Air (Wacken, Germany), EuroRock (Neerpelt, Belgium) and Metal Daze (Pratteln, Switzerland).
+Автор: Vit Belov
+
+### 29.01.2005 reviews Предания старины глубокой
+
+<P>Хорошо все-таки, что существуют такие вещи, как переиздания альбомов. Когда-то, очень давно, в детстве&nbsp; я впервые услышал какой-то концертный сингл канадцев Exciter, которые оказались на кассете у одного моего приятеля в качестве дописки. И хотя в то время я предпочитал такие банды, как Venom, Slayer и Kreator, бодренький спид-трэш Возбудителя пришелся мне по вкусу. Тем приятнее было&nbsp; обнаружить в каталоге лицензионной продукции их альбом Violent & Force, датированный 1989 годом (хотя пресловутый сингл был&nbsp; услышан гораздо раньше). А не тряхнуть ли стариной, решил я и, раздобыв заветную пластиночку, воткнул ее в пасть&nbsp; CD - плейера. Ух,&nbsp; скажу я вам, ощущение, что окунулся в 80-е! И пусть материал на сегодняшний день звучит немного наивно, но зато честно, по-настоящему! Троица металлических головорезов из страны лесорубов лабают так, что не поверить в светлую идею металла в те годы не оставалось никакой возможности. Отличная пластинка. Огорчает лишь одно: все-таки, для переиздания материал можно было бы и отремастировать. И отдельная тема-буклет. Ведь можно было бы его сделать презентабельнее, снабдить текстами, фотографиями, информацией, а вместо этого даже на 4-х страничном вкладыше центральный разворот заполнен рекламой релизов SPV/Союз. Тогда уж надо было делать картонный конверт а-ля виниловая пластинка - типа, получите диск прктически в первозданном виде.</P>
+<P>Диск предоставлен концерном Группа Союз</P>
+Автор: Fucker
+
+### 25.10.2006 news Новый вокалист EXCITER
+
+<P>Новым вокалистом <STRONG>EXCITER </STRONG>стал некто <STRONG>Kenny "Metal Mouth" Winter</STRONG>. Напомним, предыдущий певец группы <STRONG>Jacques Belanger</STRONG> покинул товарищей в третий и последний раз весной этого года.</P>
+Автор: Vit Belov
+
+### 16.04.2007 news ANNIHILATOR спели EXCITER
+
+<P>Новый альбом <STRONG>ANNIHILATOR "Metal"</STRONG> выходит в эти дни на<STRONG> SPV</STRONG>. На японское издание пластинки попадёт кавер-версия на песню <STRONG>EXCITER "Heavy Metal Maniacs</STRONG>". <STRONG>SPV</STRONG> тоже не останется в стороне. "<STRONG>Metal</STRONG>" появится и в лимитированном 2CD-издании. Трэк-лист:</P>
+<P>Disc 1: <BR>1. <STRONG>Clown Parade</STRONG><BR>2. <STRONG>Couple Suicide<BR></STRONG>3. <STRONG>Army Of One<BR></STRONG>4.<STRONG> Downright Dominate</STRONG><BR>5. <STRONG>Smothered<BR></STRONG>6. <STRONG>Operation Annihilation</STRONG><BR>7. <STRONG>Haunted<BR></STRONG>8. <STRONG>Kicked<BR></STRONG>9. <STRONG>Detonation<BR></STRONG>10. <STRONG>Chasing The High</STRONG></P>
+<P>Disc 2. <BR>1. <STRONG>Carnival Diablos<BR></STRONG>2. <STRONG>Time Bomb<BR></STRONG>3. <STRONG>Blackest Day</STRONG><BR>4. <STRONG>My Precious Lunatic Asylum</STRONG><BR>5. <STRONG>Shallow Grave</STRONG><BR>6. <STRONG>Murder<BR></STRONG>7. <STRONG>Tricks And Traps</STRONG><BR>8. <STRONG>Refresh The Demon</STRONG><BR>9. <STRONG>Ultraparanoia<BR></STRONG>10. <STRONG>King Of The Kill<BR></STRONG>11. <STRONG>Second To None</STRONG></P>
+Автор: Vit Belov
+
+### 28.07.2007 news EXCITER на Massacre
+
+<P>Канадцы из <STRONG>EXCITER </STRONG>заключили сделку с немецкой <STRONG>Massacre Records</STRONG>, где 9 ноября выйдет новый альбом <STRONG>"Thrash, Speed, Burn". </STRONG>Трэк-лист:</P>
+<P>01. <B>Thrash Speed Burn</B><BR>02. <B>Demon's Gate</B><BR>03. <B>Evil Omen</B><BR>04. <B>Hangman</B><BR>05. <B>In Mortal Fear</B><BR>06. <B>Crucifixion</B><BR>07. <B>Betrayal</B><BR>08. <B>The Punisher</B><BR>09. <B>Massacre Mountain</B><BR>10. <B>Rot The Devil King</B></P>
+<P>Этот альбом станет дебютом для нового вокалиста <STRONG>Kenny "MetalMouth" Winter.</STRONG></P>
+Автор: Vit Belov
+
+### 23.11.2007 news EXCITER заканчивают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>EXCITER</STRONG> записали 10 новых песен для пластинки "<STRONG>Thrash Speed Burn</STRONG>". Теперь материал ожидает сведение и мастеринг, а также релиз 22 февраля на<STRONG> Massacre</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Thrash Speed Burn</B><BR>02. <B>Demon's Gate</B><BR>03. <B>Evil Omen</B><BR>04. <B>Hangman</B><BR>05. <B>In Mortal Fear</B><BR>06. <B>Crucifixion</B><BR>07. <B>Betrayal</B><BR>08. <B>The Punisher</B><BR>09. <B>Massacre Mountain</B><BR>10. <B>Rot The Devil King</B></P>
+Автор: Vit Belov
+
+### 02.02.2008 news Новая песня EXCITER
+
+<P>Мы уже сообщали, что 22 февраля на <STRONG>Massacre</STRONG> выходит новый альбом <STRONG>EXCITER "Thrash Speed Burn</STRONG>". Лэйбл выложил новую песню группы <STRONG>"Massacre Mountain" </STRONG>на своей <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/massacrerecordseurope">http://www.myspace.com/massacrerecordseurope</A></P>
+Автор: Vit Belov
+
+### 16.08.2010 news Смертельная машина EXCITER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17022.jpg" width=200 height=200>Канадцы <B itxtvisited="1">EXCITER</B>, тоже, не сидят сложа руки, а готовят к выпуску свой новый альбом, получивший название <B itxtvisited="1">"Death Machine"</B>. Диск выйдет&nbsp;24 сентября на&nbsp;<B itxtvisited="1">Massacre Records</B> в трёх форматах:&nbsp;стандартный CD, digipack и gatefold-винил с ограниченным тиражом&nbsp;в 500 экземпляров.</P>
+<P>Состав группы на сегодняшний день выглядит следующим образом:</P>
+<P><BR itxtvisited="1"><B itxtvisited="1">Kenny "Metal Mouth" Winter</B> - вокал<BR itxtvisited="1"><B itxtvisited="1">John Ricci</B> - гитара<BR itxtvisited="1"><B itxtvisited="1">Robert "Clammy" Cohen</B> - бас<BR itxtvisited="1"><B itxtvisited="1">Richard "Rik" Charron</B> - барабаны<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 13.10.2010 news Новая песня EXCITER
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.10/17370.jpg" width=400 align=right border=5>Новую песню<STRONG> EXCITER</STRONG> <STRONG>"Death Machine"</STRONG> можно послушать на <STRONG>MySpace:</STRONG> <A href="http://www.myspace.com/exciterofficial">http://www.myspace.com/exciterofficial</A></P>
+<P>Трэк попадёт на одноимённый альбом, который выйдет 29 октября на<STRONG> Massacre Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Death Machine</B><BR>02. <B>Demented Prisoners</B><BR>03. <B>Dungeon Disciples</B><BR>04. <B>Hellfire</B><BR>05. <B>Power and Domination</B><BR>06. <B>Pray For Pain</B><BR>07. <B>Razor In Your Back</B><BR>08. <B>Skull Breaker</B><BR>09. <B>Slaughtered In Vain</B></P>
+Автор: Vit Belov
+
+### 11.04.2014 news EXCITER совершили ре-юнион
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадцы <STRONG>EXCITER</STRONG> воссоединились в классическом составе <STRONG>Johnson - Beehler - Ricci</STRONG>. Группа собирается дать серию концертов. Ре-юнион стал ответом бывшим участникам коллектива, которые заявляли, что EXCITER развалились, а гитарист<STRONG> John Ricci</STRONG> отправился на пенсию.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пенсия подождёт, и&nbsp;первое подтверждённое&nbsp;выступление "обстаренного" EXCITER состоится&nbsp;24 апреля будущего (!!!) года на фестивале <STRONG>Keep It True</STRONG> в Германии.&nbsp;</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26871.png" width=410 height=253></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Ветераны Speed Metal!

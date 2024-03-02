@@ -53,6 +53,15 @@ Vale - Drums.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2011 news Дебютный альбом SOULSPELL будет переиздан
+
+<P><STRONG><IMG height=320 alt="" hspace=0 src="/images/news_rus/2011.07/20192.jpg" width=320 align=right border=0>Inner Wound Recordings</STRONG> объявили о переиздании дебютного альбома бразильской метал-оперы <STRONG>SOULSPELL "A Legacy Of Honor"</STRONG>. Пластинка в оригинале была издана в 2008 году и была доступна только в Южной Америке и Азии. 5 августа её можно будет приобрести и в Европе с США. Продюсером пластинки выступил <STRONG>Tito Falaschi (SHAMAN, ALMAH)</STRONG>, а обложку нарисовал <STRONG>J.P. Fournier (AVANTASIA, EDGUY, DRAGONFORCE)</STRONG>. Среди приглашённых музыкантов <STRONG>Renato Tribuzy (TRIBUZY)</STRONG>, <STRONG>Iuri Sanson (HIBRIA)</STRONG>, <STRONG>Leandro Cacoilo (ex-ETERNA).</STRONG> Трек-лист:</P>
+<P>1. <STRONG>The Gathering</STRONG><BR itxtNodeId="97">2. <STRONG>Age Of Silence</STRONG><BR itxtNodeId="96">3. <STRONG>Troy<BR itxtNodeId="95"></STRONG>4. <STRONG>Alexandria<BR itxtNodeId="94"></STRONG>5. <STRONG>Milvian Bridge</STRONG><BR itxtNodeId="93">6. <STRONG>The Blacksmith<BR itxtNodeId="92"></STRONG>7. <STRONG>The Impaler<BR itxtNodeId="91"></STRONG>8. <STRONG>A Little Too Far<BR itxtNodeId="90"></STRONG>9. <STRONG>Army of Just One Mind</STRONG><BR itxtNodeId="89">10. <STRONG>Soulspell<BR itxtNodeId="88"></STRONG>11. <STRONG>Weight Of Evil</STRONG><BR itxtNodeId="87">12. <STRONG>Eternal Skies<BR itxtNodeId="86"></STRONG>13. <STRONG>The Last Life </STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -84,6 +84,109 @@ Kai Bergerin - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.10.2001 reviews Недоверие - самый плохой враг
+
+<p>Недоверие - самый плохой враг. После некоторого периода небытия эта немецкая группа возвратилась к слушателям со своим третим ошеломительным альбомом. Супермощным, супертяжелым, с плотнейшей звуковой стеной, с неимоверным дэтовым вокалом, упругими риффами и потрясающими воображение яростью и агрессией, несмотря на то, что вся музыка в среднем темпе. Группа превзошла саму себя на этом альбоме. Очень колоритная музыка впитавшая в себя все самое лучшее от Morgoth, Obituary и Bolt Thrower. Если вам нравится хоть одна из вышеперечисленных групп, то Disbelief - это то, что вам нужно обязательно послушать, и не раз. Очень техничная музыка с обработанными, почти адскими риффами, блестящими ударными, монстерской ритм-секцией и грозным вокалом. Все это пробуждает инстинкт агрессивности и наполняет душу мраком, болью и меланхолией. Музыка группы захватывает и сковывает с первых звуков и не отпускает от себя до финальных звуков завершающего альбом интро, только тогда можно отдохнуть. Сразу чувствуешь, что твое тело расслабляется и по нему пробегает сладкая истома. Тело наливается удивительной силой и энергией, пробуждаются все мышцы. Альбом подобен удару грома, глыбе ненависти и отчаяния. Это не классический death metal, но очень правильный и мощный с интереснейшей инструментальной частью. Подлинный смертельный металл!</p>
+
+Автор: Dimas
+
+### 16.01.2002 news Недоверие подающее надежды
+
+<p>Одна из самых больших надежд немецкого экстремального металла DISBELIEF закончили запись своего нового альбома. Он будет называться "Shine" и выйдет 25 марта на Massacre Records. Альбом содержит следующие вещи: Honour Killings, Free, Falling Without Reason, The Decline, Shine, No Control, Mad Sick Mankind, Me And My World, Alive and Walk. Сразу после выпуска альбома, группа отправится в еропейское турне вместе с HYPOCRISY, IMMORTAL, VADER, MALEVOLENT CREATION и другими группами.</p>
+
+Автор: Dimas
+
+### 16.01.2002 news One of the biggest hopes in the German extreme-metal section
+
+<p>DISBELIEF, one of the biggest hopes in the German extreme-metal section, have just finished the recordings for their latest album „Shine“ at the Art Of June studio (Frankfurt/Main), it will be released at Massacre Records at 25th of March. Here is the tracklist of the album: Honour Killings, Free, Falling Without Reason, The Decline, Shine, No Control, Mad Sick Mankind, Me And My World, Alive and Walk. Immediately after the release, DISBELIEF will be on tour in Europe with Immortal, Hypocrisy and other bands, but first the guys around shouter Karsten Jдger will knock about the district in January together with Bolt Thrower, Benediction and Fleshcrawl; you can find the exact tourdates below.</p>
+
+Автор: Dimas
+
+### 24.06.2002 reviews Сияние тьмы при отсутствии веры
+
+<p>Четвертое творение немецких экстремальщиков. Они остались верны своему оригинальному стилю. Мы слышим все тот же депрессивный психопатичный угнетающий и уничтожающий death metal с постоянными хардкоровыми раскачками, задумчивыми пассажами и грузным звуком. Необычайно тяжелая и техничная смесь BOLT THROWER, самой ранней KATATONIA и MORGOTH. Музыка несколько однообразная, но создающая определенное настроение, при котором эта однообразность является достоинством, так как малейшая сбивка ритма или шаг в сторону испортит всю музыкальную картину, выведет из равновесия и заставит полностью перестраиваться. Появилось немного партий чистого вокала контрастирующего с неистовым и интенсивным криком, музыканты все больше совершенствуют свой стиль. Жесткая, агрессивная и атмосферная музыка гипнотизирующая слушателя и вводящая его в отдельный таинственный мир мрака и спокойствия. Жесточайшие, легко запоминающиеся риффы, отличный яростный вокал. Эта музыка сравнивается с памятником, который устремлен далеко в небо и того и гляди рухнет на тебя, но этого не происходит, постоянно находишься в напряжении. Бесспорно, одна из лучших работ на рынке современной тяжелой смертельной музыки.</p>
+<p> Диск выпущен по лицензии компанией <B>ART MUSIC GROUP</B></p>
+
+Автор: Dimas
+
+### 19.10.2003 news Death Angel w&#x2F; DISBELIEF, MYSTIC PROPHECY, MNEMIC in Europe
+
+Nov. 03 – Paris, FRA @ La Locomotive<BR>Nov. 04 – London, UK @ Underworld<BR>Nov. 06 – Amsterdam, NETH @ Melkweg<BR>Nov. 07 – Groningen, NETH @ Vera<BR>Nov. 08 – Vosselaar, BEL @ Biebob<BR>Nov. 09 – Den Bosch, NETH @ Willem Ii<BR>Nov. 11 – Essen, GER @ Zeche Carl<BR>Nov. 12 – Munster (Breitefeld), GER @ Live Arena<BR>Nov. 13 – Salzburg, AUT @ Rockhouse<BR>Nov. 14 – Budapest, HUN @ Mega Club<BR>Nov. 15 – Ljubljana, SLO @ K4<BR>Nov. 16 – Milano, ITA @ Transilvania<BR>Nov. 17 – Pratteln, SWI @ Z7<BR>Nov. 18 – Osnabruck, GER @ Works
+Автор: Vit Belov
+
+### 15.11.2003 news Новый видеоклип DARKANE
+
+<P><B>DARKANE</B> закончили съемки видеоклипа на песню <B>"Chaos vs. Order"</B>. В новом видео можно увидеть ex-вокалиста группы <B>Lawrence Mackrory</B>, а также фрагметны различных выступлений, как, например, рок-фестиваль в Швеции и Rock Hard festival. <B>DARKANE</B> вскоре отправятся в турне с <B>DEATH ANGEL</B>, <B>DISBELIEF</B>, <B>MNEMIC</B> и <B>MYSTIC PROPHECY</B> для того, чтобы отдохнуть перед записью их четвертого альбома.</P>
+Автор: Darkfall
+
+### 20.04.2004 news DISBELIEF подписались на NUCLEAR BLAST
+
+<B>DISBELIEF</B> подписали контракт с <B>Nuclear Blast</B>. Группа войдёт в студию осенью вместе с продюсером <B>Tue Madsen</B> (<B>THE HAUNTED</B>, <B>MNEMIC</B>, <B>EKTOMORF</B>) для записи своего шестого альбома, который выйдет в следующем году.
+Автор: Vit Belov
+
+### 20.11.2004 news DISBELIEF закончили запись
+
+<P><STRONG>DISBELIEF </STRONG>закончили запись первого альбома для <STRONG>Nuclear Blast Records</STRONG> <STRONG>'66 Sick'</STRONG> с продюсером <STRONG>Tue Madsen</STRONG> в <STRONG>Antfarm Studios</STRONG>. Пластинка выйдет 14 марта.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 16.12.2004 news DISBELIEF расстались с гитаристом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из <STRONG>DISBELIEF</STRONG>, по обоюдному согласию, ушёл гитарист <STRONG>Jan Dirk Loffler</STRONG>. Постоянная замена пока не объявлена, а в туре группу поддержит бывший участник<STRONG> Tommy Fritsch</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 26.05.2005 reviews Немецкий SMDM
+
+<P>Шведский мелодичный дэт-метал. Вот только DISBELIEF немецкая группа и это уже шестой альбом. С другими альбомами данного колектива я не знаком и, признаться, после прослушивания этой пластинки не горю желанием восполнить этот пробел. Немцы очень аккуратно копируют манеру своих шведских братьев. Гитары ревут, барабанщик стучит, дядька злобно в микрофон горланит. А толку? К середине альбома начинает одолевать скука, а продолжительность альбома как-никак 70 минут! Не каждый выдержит. И зачем их "нуклирбластовцы " подписали, ума не приложу! Может быть ярым фанатам шведятины&nbsp;этот CD и придётся по душе, но я себя к таковым не отношу. Единственное, что мне понравилось это четыре бонус-трека и вокал. Остальное всё не то чтобы совсем плохо, а вообще никак.</P>
+<P>Диск представлен <STRONG><A href="http://www.irond.ru/">Irond</A></STRONG>.</P>
+Автор: Graver
+
+### 20.12.2006 news Новый альбом DISBELIEF
+
+<P>Немецкие дэтстеры&nbsp;<B>DISBELIEF</B>&nbsp;завершили работу над своим седьмым&nbsp;полнометражником под названием&nbsp;<STRONG>"Navigator". </STRONG>Его выход намечен на 26 февраля 2007 года на <B>Massacre Records</B>. Альбом был записан в местной <B>MX</B> studio с продюсером <STRONG>Michael Mainx</STRONG>. </P>
+Автор: Dimas
+
+### 22.10.2008 news DISBELIEF назвали альбом
+
+<P>17 апреля 2009 года на <STRONG>Massacre</STRONG> выходит новый альбом<STRONG> DISBELIEF</STRONG> <STRONG>"Protected Hell".</STRONG></P>
+Автор: Vit Belov
+
+### 09.01.2009 news DISBELIEF покинул гитарист
+
+<P>Гитарист <STRONG>Jonas Khalil</STRONG>&nbsp;покинул<STRONG> DISBELIEF</STRONG>, из-за не соответствия графиков группы и его основной работы классическим музыкантом.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DISBELIEF</STRONG> войдут в студию <STRONG>MX</STRONG> в этом месяце для записи нового альбома <STRONG>'Protected Hell'</STRONG>, который выйдет 17 марта на <STRONG>Massacre</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 25.03.2009 news Новая песня DISBELIEF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трэк <STRONG>DISBELIEF</STRONG> <STRONG>"Hate Aggression Schedule" </STRONG>доступен на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/massacrerecordseurope">http://www.myspace.com/massacrerecordseurope</A></FONT></P>
+Автор: Vit Belov
+
+### 23.12.2009 news DISBELIEF выпускают &quot;юбилейник&quot;
+
+<P>Стали известны подробности альбома<STRONG> DISBELIEF</STRONG> <STRONG>"Heal!"</STRONG>, посвящённого 20-летию группы. Пластинка выйдет в апреле на<STRONG> Massacre Records</STRONG>. На неё войдут семь трэков, три из которых кавер-версии:</P>
+<P>* <B>KILLING JOKE</B> - "A Love Like Blood"<BR>* <B>KING DIAMOND</B> - "Welcome Home"<BR>* <B>CRIMSON GLORY</B> - "Red Sharks"</P>
+<P>Сведённый и записанный самими участниками группы альбом будет содержать и четыре оригинальные композиции:</P>
+<P>* <B>Certainty Of Reality</B><BR>* <B>The Eyes of Horror</B><BR>* <B>The Last Force: Attack!</B><BR>* <B>Isolation</B></P>
+Автор: Vit Belov
+
+### 15.04.2010 news Новая песня DISBELIEF
+
+<P>Мы уже сообщали, что 21 мая на <STRONG>Massacre Records</STRONG> выходит юбилейный альбом <STRONG>DISBELIEF "Heal"</STRONG>. Новая песня с этого альбома <STRONG>"The Eyes Of Horror" </STRONG>доступна на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/massacrerecordseurope">http://www.myspace.com/massacrerecordseurope</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

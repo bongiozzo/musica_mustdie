@@ -21,6 +21,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.07.2011 news POWERMAD пишут новый материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё одна возродившаяся команда из 80-х<STRONG> POWERMAD</STRONG> работает над новым материалом для первого за 22 года студийного альбома. Единственная пластинка американской группы <STRONG>"Absolute Power</STRONG>" вышла в 1989 году. Уже объявлено, что партии барбанов для новой работы исполнит музыкант<STRONG> SOILWORK</STRONG> <STRONG>Dirk Verbeuren. </STRONG>Остальные трое участников - <STRONG>Joel DuBay</STRONG> (vocals, guitars), <STRONG>Todd Haug</STRONG> (guitars)&nbsp;и <STRONG>Jeff Litke</STRONG> (bass) - оригинальные.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на новый сингл <STRONG>POWERMAD</STRONG> <STRONG>"Souls Descending", </STRONG>представленное ниже, позволит ознакомиться с новой музыкой группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/B-tA8Rjzcjs?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/B-tA8Rjzcjs?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -73,6 +73,72 @@ Dennis Schunke (Sly) – lead vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.04.2010 reviews Метал без гитары
+
+<P>“Tribe of Force” – уже третий альбом VAN CANTO, но нашим слушателям эти немцы не очень хорошо знакомы. Группа, чьё звучание наиболее близко к power-metal, выделяется тем, что в её составе только вокалисты и барабанщик. Партии всех инструментов исполняются a cappella.</P>
+<P>Слушается всё это очень необычно. Певцы стараются, и у них даже иногда получается создать плотное звучание, но в основном музыканты ориентируются на приятные метал-баллады с fantasy-тематикой, которые напоминают полуакустическое творчество BLIND GUARDIAN. Чтобы всем нам было веселее, здесь присутствуют и несколько кавер-версий. Например, номер GRAVE DIGGER “Rebellion” с участием лидера этой группы Chris Boltendahl. Но особняком стоит кавер на нетленку METALLICA “Master Of Puppets”. Многие из нас воспитывали свой музыкальный вкус этой эпической thrash-metal композицией, а некоторые из нас пели её, заучив тексты наизусть. Кто-то пытался подвывать, изображая соло на гитаре или мощные риффы. Примерно тем же занимаются VAN CANTO, но на совершенно ином профессиональном уровне. </P>
+<P>Интересная работа, которую вряд ли будешь слушать постоянно. Безусловно, у VAN CANTO есть и свои очень неплохие вещи, но постоянные «раккатакка» и «бумтимбумбум» вызывают улыбку, которую невозможно скрыть. С другой стороны, “Tribe Of Force” можно рекомендовать практически всем для улучшения настроения.</P>
+Автор: Vit Belov
+
+### 08.08.2010 news Видео VAN CANTO
+
+<P>Новый клип a capella метал группы <STRONG>VAN CANTO</STRONG> на песню <STRONG>"Rebellion", </STRONG>кавер-версию на <STRONG>GRAVE DIGGER</STRONG>. </P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/UPUNdwRhuMA&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/UPUNdwRhuMA&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.09.2010 news Новое видео от VAN CANTO
+
+<P>Новый клип 'a capella metal' группы<STRONG> VAN CANTO</STRONG> на песню <STRONG>"Magic Taborea"</STRONG> можно посмотреть ниже. Последний альбом коллектива <STRONG>"Tribe Of Force" </STRONG>вышел на <STRONG>Napalm Records / Irond</STRONG>.</P>
+<P>23 октября <STRONG>VAN CANTO</STRONG> примут участие в <STRONG>Oktobierfest 2010</STRONG> в Москве в клубе Точка.</P>
+<P><center><object width="640" height="390"><param name="movie" value="http://www.youtube.com/v/pYdoFtPtFKU&hl=en_US&feature=player_embedded&version=3"></param><param name="allowFullScreen" value="true"></param><param name="allowScriptAccess" value="always"></param><embed src="http://www.youtube.com/v/pYdoFtPtFKU&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></object></P>
+Автор: Vit Belov
+
+### 12.10.2011 news VAN CANTO + SABATON: видео
+
+<P>Новый ролик 'a cappella' метал группы <STRONG>VAN CANTO</STRONG> на песню <STRONG>SABATON "Primo Victoria"</STRONG> с участием вокалиста шведской группы <STRONG>Joakim Broden</STRONG> можно посмотреть ниже. Трек взят с новейшего альбома группы "<STRONG>Break The Silence</STRONG>", который вышел 23 сентября на <STRONG>Napalm Records</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>If I Die In Battle</STRONG><BR>02. <STRONG>The Seller Of Souls</STRONG><BR>03. <STRONG>Primo Victoria</STRONG> (feat. Joakim Broden / Sabaton / Sabaton Cover)<BR>04. <STRONG>Dangers In My Head</STRONG><BR>05. <STRONG>Black Wings Of Hate</STRONG><BR>06. <STRONG>Bed Of Nails</STRONG> (ALICE COOPER cover)<BR>07. <STRONG>Spelled In Waters</STRONG> (feat. Marcus Siepen)<BR>08. <STRONG>Neuer Wind</STRONG><BR>09. <STRONG>The Higher Flight</STRONG><BR>10. <STRONG>Master Of The Wind</STRONG> (MANOWAR cover)<BR>11. <STRONG>Betrayed </STRONG>(bonus track)<BR>12. <STRONG>Bad To The Bone</STRONG> (RUNNING WILD cover) (bonus track) <BR>13. <STRONG>A Storm To Come</STRONG> (bonus track)</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/agWwSsCP6KI" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 25.01.2013 news HEAVATAR на Napalm Records
+
+<P>Проект лидера <STRONG>VAN CANTO</STRONG> <STRONG>Stefan Schmidt HEAVATAR </STRONG>подписал контракт с <STRONG>Napalm Records</STRONG> на выпуск дебютного альбома <STRONG>"Opus I - All My Kingdoms". </STRONG>Диск выйдет уже 22 февраля. Каждая песня на диске заимствует в той или иной степени музыкальные мотивы у классических композиторов. </P>
+<P>Сам<STRONG>&nbsp;Stefan</STRONG> поёт и играет на гитаре. В записи альбома ему помогли многие музыканты, в том числе барабанщик<STRONG> Jorg Michael</STRONG> (ex-<STRONG>STRATOVARIUS</STRONG>).</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25364.jpg" width=475 height=475></P>
+<p><center><iframe width="640" height="360" src="http://www.youtube.com/embed/o62xYghCsao?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 03.02.2014 news VAN CANTO: новый альбом и концерты в России
+
+<P>Уже на этой неделе немецкий акапелла коллектив <STRONG>VAN CANTO</STRONG> выпускает свой пятый студийный альбом <STRONG>"Dawn Of The Brave"</STRONG>. Диск выходит 7 февраля на лейбле <STRONG>Napalm</STRONG>.</P>
+<P>Помимо своих композиций на этот альбом традиционно войдут и песни других исполнителей, исполненные <STRONG>VAN CANTO</STRONG> в своём оригинальном стиле.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Dawn Of The Brave</STRONG> | 02. <STRONG>Fight For Your Life</STRONG> | 03. <STRONG>To The Mountains</STRONG> | 04. <STRONG>Badaboom</STRONG> | 05. <STRONG>The Final Countdown</STRONG> (<STRONG>EUROPE</STRONG> cover) | 06. <STRONG>Steel Breaker</STRONG> | 07. <STRONG>The Awakening</STRONG> | 08. <STRONG>The Other Ones</STRONG> | 09.<STRONG> Holding Out For A Hero</STRONG> (<STRONG>BONNIE TYLER</STRONG> cover) | 10. <STRONG>Unholy</STRONG> | 11. <STRONG>My Utopia</STRONG> | 12.<STRONG> Into The West</STRONG> (<STRONG>"Lord Of The Rings"</STRONG> soundtrack cover) | 13. <STRONG>Paranoid</STRONG> (<STRONG>BLACK SABBATH</STRONG> cover)</P>
+<P>Также стоить напомнить, что чуть меньше двух недель осталось до концертов <STRONG>VAN CANTO</STRONG> в России! Информацию по московскому концерту можно найти в нашем разделе <STRONG>Shows</STRONG>: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.02/26589.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 15.02.2014 news Новое видео VAN CANTO
+
+<p>Новый клип оригинальной команды <strong>VAN CANTO</strong> на песню <strong>'Into The West'</strong> можно посмотреть ниже. Композиция является кавер-версией на саундтрек к фильму "<strong>Властелин Колец</strong>".</p><p><center><iframe width="640" height="360" src="//www.youtube.com/embed/Jfp34E17OUo?feature=player_embedded" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 18.02.2016 news VAN CANTO: видеоклипа на песню &quot;The Bardcall&quot;
+
+<P>А капелла группа <STRONG>VAN CANTO</STRONG>&nbsp;выпускает свой новый альбом под названием&nbsp;<STRONG>"Voices Of Fire"</STRONG>. Дата выхода запланирована на 11 марта 2016 года. </P>
+<P>Сегодня состоялась премьера видеоклипа на песню <STRONG>"The Bardcall"</STRONG> с этого диска!</P>
+<CENTER><iframe width="560" height="315" src="https://www.youtube.com/embed/IvajtyyAN-s" frameborder="0" allowfullscreen></iframe>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### OktoBIERfest 2010: 23.10.10. Crashdiet, Van Canto, Black Messiah

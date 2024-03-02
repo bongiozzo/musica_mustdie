@@ -48,6 +48,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.07.2011 news Новое видео и альбом BLOODSOAKED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Brutal death-metal бригада из Северной Каролины <STRONG>BLOODSOAKED</STRONG> подготовила к релизу новый альбом "<STRONG>The Death Of Hope</STRONG>". Пластинка выйдет 16 августа на<STRONG> Comatose Records</STRONG>. Согласно пресс-релизу, музыка <STRONG>BLOODSOAKED</STRONG> адресована поклонникам старого доброго death-metal в исполнении таких коллективов, как <STRONG>OBITUARY, DEATH, MALEVOLENT CREATION</STRONG>&nbsp;и <STRONG>PESTILENCE</STRONG>. Гостевое соло исполнил <STRONG>James Murphy (Death, Obituary, CANCER)</STRONG>. Пластинка была записана в <STRONG>The Basement Studio</STRONG>&nbsp;с продюсером <STRONG>Jamie King (BETWEEN THE BURIED AND ME, THROUGH THE EYES OF THE DEAD, WRETCHED)</STRONG>.&nbsp;Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Lies </STRONG><BR>2. <STRONG>Forever Damned</STRONG><BR>3. <STRONG>Infestation<BR></STRONG>4. <STRONG>No God<BR></STRONG>5. <STRONG>Consume The Flesh<BR></STRONG>6. <STRONG>Mauled<BR></STRONG>7. <STRONG>The Death of Hope<BR></STRONG>8. <STRONG>Wading The Blood Pools</STRONG><BR>9. <STRONG>Obsessed With Hate</STRONG><BR>10. <STRONG>Grinding Your Guts</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Целиком альбом можно послушать в клипе <STRONG>YouTube</STRONG> ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wYAtQffBj40?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wYAtQffBj40?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип на песню с нового альбома на песню <STRONG>"No God</STRONG>" можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/1Hk0iMzEl50?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/1Hk0iMzEl50?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

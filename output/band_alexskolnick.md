@@ -10,6 +10,21 @@
 * C группой "Testament" Guitar
 * C группой "Savatage" Guitar
 
+## Публикации
+
+### 02.08.2001 news Школьные новости ...
+
+<p>После долгого затишья дал о себе знать экс Тестаментовско/Саватажевский гитарист - Алекс Скольник. На днях он открыл собственный веб-сайт во всемирной паутине: <a href="http://www.alexskolnick.com/">http://www.alexskolnick.com/</a>. В ближайшее время Алекс примет участие в записи Тестаментовской коллекции ранних песен "First Strike Is Deadly", также он выступит в концерте "Thrash Of The Titans" который будет проводиться в пользу больного раком вокалиста Чака Билли. Скольник сыграет с командой "LEGACY" (предшественником TESTAMENT!). Также будет оригинальный вокалист Steve Sousa, после перешедший в "EXODUS". Если же вы живете поблизости от Нью-Йорка, вы сможете сегодня поймать Алекса с его джазовым составом "funky ‘70s jazz". Концерт пройдет в Triad Lounge (72nd Street и Broadway) New York City.</p>
+
+Автор: Yermola
+
+### 02.08.2001 news Alex Skolnick has launched an official...
+
+<p>Former TESTAMENT/SAVATAGE guitarist Alex Skolnick has launched an official web site at www.alexskolnick.com. As previously reported, the six-stringer will be partaking in the recording of TESTAMENT’s upcoming collection of reworkings of early originals, entitled First Strike Is Deadly and due in October. Skolnick will also be making an appearance at next week’s Thrash Of The Titans benefit concert for TESTAMENT vocalist Chuck Billy—who was recently diagnosed with cancer—where Alex will be performing with LEGACY, the band that preceded TESTAMENT and featured in its ranks vocalist Steve Sousa, who later left the group to join EXODUS. If you live in the New York area (where Skolnick is presently based), you can also catch the guitarist with his “funky ‘70s jazz” project SKOL PATROL at The Triad Lounge (formerly Dark Star) on Thursday, August 2nd. The Triad Lounge is located at 72nd Street and Broadway in New York City. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

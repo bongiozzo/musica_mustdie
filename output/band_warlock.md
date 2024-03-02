@@ -79,6 +79,53 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.02.2001 articles DORO: накануне приезда в Москву
+
+<p> В эпоху безликих, безголосых, бесталанных и хорошо спродюсированных бойз-бэндов, счет которым уже потерян, ортодоксам металла и тяжелого рока приходится туго. Безжалостные законы пресловутого шоу-бизнеса не щадят никого. В живых остаются только самые стойкие. Среди них – Doro Pesch или просто Doro – живая легенда хэви-металла. Сегодня, когда на сцене и в чартах правят Back Street Boys и Five, эта женщина выглядит еще более одиозно, чем когда-либо. Музыка, которую она сочиняет, записывает и потом исполняет, не по зубам большинству из ее коллег мужского пола. Ее весовая категория – Motorhead и Kiss.</p>
+<p> Она начинала в известной немецкой группе Warlock в 1983 г. Девятнадцатилетняя лохматая девчонка стала для тогда еще молодого коллектива счастливой звездой: их музыкой заинтересовался один из независимых лейблов, дав возможность записать первый альбом, посыпались приглашения от клубов со всей Германии. Публика была в восторге от экзотики женского вокала в металлической группе. С выходом дебютного альбома «Burning the Witches» общественность увидела в солистке не только экстравагантную внешность и длинные ноги, но и талант.</p>
+<p> Путь к мировой славе занял всего несколько лет. Сначала металлический гимн «Fight For Rock» зазвучал на MTV. Затем Warlock открывал огромный ежегодный концерт «Monsters of Rock» в Англии (и Doro была первой женщиной, выступившей на этом мероприятии). А после того, как в 1987 г. вышел их лучший альбом «Triumph And Agony», сделанный в Нью-Йорке с американским продюсером, и группа отправилась в мировой тур, Warlock записали в классики хэви-металла.</p>
+<p> Все это время в коллективе постоянно менялся состав. Неизменной оставалась только сама Doro – мозговой центр и идейный вдохновитель, объединявший вокруг себя музыкантов. Поэтому неудивительно, что после очередных перестановок в группе и возникших трений по поводу названия с бывшими участниками, команда переименовала себя в Doro. Так альбом "Force Majeure", который должен был стать пятым в дискографии Warlock, стал дебютным альбомом Doro Pesch.</p>
+<p> С тех пор первая леди металла выступает соло. И, в отличие от всех своих прежних коллег, выступает успешно. Теперь она может позволить себе петь мелодичные баллады и приглашать на записи любимых музыкантов, типа басиста Kiss Дж. Симмонса (Gene Simmons) или Лемми Килминстера (Lemmy Kilminster) из Motorhead. Результат – работа с такими монстрами, как Warner Brothers и Polygram. Ей всего 36, не замужем, энергии хоть отбавляй, она снимается обнаженной для журналов и выпускает по несколько альбомов в год. Короче, где тот Warlock и где Doro Pesch!</p>
+<p> На сегодняшний день в активе Doro 13 сольных пластинок. С последней из них - «Calling The Wild» - она приезжает в Москву. По словам самой Pesch, этот альбом «максимально тяжел и максимально душевен одновременно». Из 14 песен две сделаны в тандеме с солистом Motorhead, еще одна – кавер классической «White Wedding» Билли Айдола. Записывать все это помогали Slash (ex-Guns’n’Roses) и Al Pitrelli (Alice Cooper).</p>
+<p> На российской сцене Doro впервые. Москва удачно вписалась в ее очередное европейское турне. 8 марта единственный концерт на сцене клуба «Точка». Лучшего дня, чтобы показать, на что способна женщина, и не придумаешь. Хотя феминизм этой даме не свойственен. «Неважно, мужчина ты или женщина, - говорит Doro. - В этом бизнесе тяжело выжить любому. У меня очень много друзей среди мужчин, у них свои великие группы и они пишут великие песни, и им тем не менее приходится биться каждый день за место под солнцем. Но я все равно не сдамся. Потому что я люблю то, что делаю. И делаю это на 110 процентов!»</p>
+<p></p>
+
+Автор: Dimas
+
+### 21.02.2001 news Единственный концерт DORO в Москве
+
+<p> 8 марта в 19.00 в клубе "Точка" (м. "Улица 1905 года", Звенигородское шоссе, 4) состоится единственный концерт DORO в Москве. Организаторы концерта - <a href="http://www.feelee.ru" target="_new">www.feelee.ru</a></p>
+<p> Перед ней также выступят группы Forgive Me Not (Тула) и Gods Tower (Белоруссия). Заказ и доставка билетов только на <a href="http://www.muk.ru">www.muk.ru</a></p>
+<p> На российской сцене Doro впервые. Москва удачно вписалась в ее очередное европейское турне. Материал об этом читайте в <a href="http://musica.mustdie.ru/ru/exclusive/1/43967/">эксклюзивном разделе</a> нашего сайта.</p>
+
+Автор: Dimas
+
+### 13.03.2001 news Война и Мир...
+
+<P>Сольный проект басиста DOKKEN - Jeff Pilson "WAR & PEACE" в конце Апреля выпускает новый альбом символично названный "Light At The End Of The Tunnel". Материал состоит из песен неиспользованных для Dokken и других ранее незавершенных треков. В записи помогали барабанщик SCORPIONS - James Kottak. На двух треках играл Reb Beach, на одном - John Norum и Paul Gilbert. Также отметились Richie Kotzen, Jon Levin (WARLOCK). Сам Pilson исполнил соло в 'Playing God Again'.</P>
+Автор: Yermola
+
+### 13.03.2001 news WAR &amp; PEACE - Tunnel Vision!
+
+<p>DOKKEN bassist Jeff Pilson, who fronted his own band, WAR & PEACE, in the late '80s, is revisiting that band again with a new album, Light At The End Of The Tunnel, due out in late April/May. The material consists of some songs intended for but not used by Dokken, songs Pilson had never finished, and others he did that appeared elsewhere. Pilson, who sings and plays all the basic tracks on it, gets assistance from SCORPIONS drummer James Kottak on all but two of the ten songs, and from a lineup of solo-contributing guitarists. Reb Beach plays on two tracks, John Norum plays on one as does Paul Gilbert, who recorded his performance in Japan and air expressed it to Pilson. Gilbert's MR. BIG replacement Richie Kotzen plays on two cuts, and Jon Levin, the WARLOCK guitarist-turned-lawyer who actually did one fill-in date with Dokken, is also heard on one track. Pilson himself contributes the solo to 'Playing God Again'. "Best solo I've ever done," he says proudly.</p>
+
+Автор: Yermola
+
+### 04.01.2009 news Doro Pesch: &quot;Нужен ли кому ре-юнион WARLOCK?&quot;
+
+<P>Знаменитая<STRONG> DORO</STRONG> рассказала в интервью <STRONG>BW&BK</STRONG> о своём новом альбоме "<STRONG>Fear No Evil</STRONG>" и своей 25-летней карьере.</P>
+<P>"<EM>Мне постоянно задают вопросы о воссоединении WARLOCK в классическом составе. Я никогда не думала о сольной карьере, я всегда была командным игроком, поэтому мы и играем с&nbsp;басистом Nick Douglas уже 19 лет, а с барабанщиком Johnny Dee и гитаристом Joe Taylor уже 15. Было ужасно, что мы не могли выступать под названием WARLOCK, по юридическим основаниям. Сейчас это имя вернулось ко мне, и я собираюсь испольновать его, но... Я думаю, люди что-то находят в WARLOCK, из-за того, что то время было "великим" для металла. Металл занимал такое высокое положение. Сравнить те времена с нынешними невозможно, поэтому и возродить WARLOCK в том же блеске не получится. Вообще, я не уверена, что имя WARLOCK сейчас значит для меня слишком много. Мне нравится исполнять различные старые песни, но довольно большое количество моих фэнов знают меня, как DORO, но совсем не помнят времён WARLOCK. Для них это название просто дань истории heavy-metal</EM>".</P>
+<P><STRONG>Warlock</STRONG> - '<STRONG>Hellbound</STRONG>' (live - 1985):</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/4qYNkbRqI6c&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/4qYNkbRqI6c&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Музыканты группы ALICE COOPER в московском Hard Rock Cafe (6 октября)

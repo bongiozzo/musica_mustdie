@@ -47,6 +47,41 @@
 * C группой "Narnia" Carl-Johan Grimmark (guitar)
 * C группой "Heed" Tommy Larsson
 
+## Публикации
+
+### 14.04.2011 news FULLFORCE подписались на SPV
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.04/19184.jpg" width=450 align=right border=0>Новая супер-группа <STRONG>FULLFORCE</STRONG> подписала контракт с <STRONG>SPV</STRONG>. В составе этого шведского коллектива вокалист <STRONG>Mike Andersson</STRONG> (<STRONG>CLOUDSCAPE, SILENT MEMORIAL, PLANET ALLIANCE</STRONG>), гитарист <STRONG>Stefan Elmgren</STRONG> (<STRONG>HAMMERFALL</STRONG>), барабанщик&nbsp;<STRONG>Anders Johansson</STRONG> (<STRONG>HAMMERFALL, YNGWIE MALMSTEEN</STRONG>), гитарист <STRONG>Carl-Johan Grimmark</STRONG> (<STRONG>NARNIA</STRONG>) и басист<STRONG> Tommy Larsson</STRONG> (<STRONG>HEED</STRONG>). Дебют коллектива <STRONG>"One" </STRONG>выйдет 20 июня. Трек-лист:</FONT></P>
+<P>01. <B>Mythomaniac</B> (4:02)<BR>02. <B>None Of Your Concern</B> (3:35)<BR>03. <B>Heart And Soul</B> (3:31)<BR>04. <B>Oblivion</B> (4:53)<BR>05. <B>Open Your Eyes</B> (4:25)<BR>06. <B>Rain</B> (4:33)<BR>07. <B>Suffering In Silence</B> (3:06)<BR>08. <B>Walls Of Secrets</B> (4:33)<BR>09. <B>Father Spirit</B> (4:51)<BR>10. <B>Bleed</B> (5:07)<BR>11. <B>Into The Cradle</B> (5:01)<BR>12. <B>Best Of Times</B> (iTunes bonus track) (3:49)</P>
+Автор: Vit Belov
+
+### 15.05.2011 news Видео-клип FULLFORCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип шведской группы<STRONG> FULLFORCE</STRONG> на песню <STRONG>"Walls Of Secrets" </STRONG>можно посмотреть ниже. В составе новообразованного коллектива вокалист <STRONG>Mike Andersson</STRONG> (<B>CLOUDSCAPE</B>, <B>SILENT MEMORIAL</B>, <B>PLANET ALLIANCE</B>), гитарист&nbsp;<B>Stefan Elmgren</B> (<B>HAMMERFALL</B>), бараьанщик&nbsp;<B>Anders Johansson</B> (<B>HAMMERFALL</B>, <B>YNGWIE MALMSTEEN</B>), гитарист&nbsp;<B>Carl-Johan Grimmark</B> (<B>NARNIA</B>) и басист <B>Tommy Larsson</B> (<B>HEED</B>). Песня взята с дебюта "One", который выйдет 23 июня на<STRONG> SPV</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://www.youtube.com/embed/-oBqE5PcUVU" frameBorder=0 width=480 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.09.2011 news Видео-клип от FULLFORCE
+
+<P>Новый ролик группы <STRONG>FULLFORCE</STRONG>, в составе которой вокалист <STRONG>Mike Andersson (CLOUDSCAPE, SILENT MEMORIAL, PLANET ALLIANCE)</STRONG>, гитаристы <STRONG>Stefan Elmgren (HAMMERFALL)</STRONG> и <STRONG>Carl-Johan Grimmark (NARNIA)</STRONG>, барабанщик <STRONG>Anders Johansson (HAMMERFALL, YNGWIE MALMSTEEN)</STRONG> и басист <STRONG>Tommy Larsson (HEED)</STRONG>, на песню "<STRONG>Heart And Soul</STRONG>" можно посмотреть ниже. Песня взята с дебютного альбома проекта <STRONG>"One"</STRONG>, который вышел 20 июня на <STRONG>SPV</STRONG>.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/3Ha2xotXSaE" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 05.11.2011 news Ещё один ролик FULLFORCE
+
+<P>Новый видео-клип power-metal супер-группы<STRONG> FULLFORCE</STRONG> на песню "<STRONG>Open Your Eyes</STRONG>" можно посмотреть ниже. </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/1HlHlnDpeqI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 04.01.2013 news Новое видео FULLFORCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео<STRONG> FULLFORCE</STRONG> на песню <STRONG>"Awesomeness" </STRONG>можно посмотреть ниже. Трек взят с второго альбома коллектива <STRONG>"Next Level"</STRONG>, который вышел на <STRONG>SPV</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/9eIKkX6tvDk?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

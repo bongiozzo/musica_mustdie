@@ -45,6 +45,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2009 news Новая песня DAATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая песня<STRONG> DAATH</STRONG> <STRONG>"The Worthless" </STRONG>с будущего альбома <STRONG>"The Concealers"</STRONG>, который выйдет 20 апреля на <STRONG>Century Media/Roadrunner</STRONG>, доступна на <STRONG>MySpace</STRONG> страничке группы. Пластинка была записана и сведена при помощи <STRONG>Jason Suecof</STRONG>&nbsp;и <B>Mark Lewis</B> (<B>TRIVIUM</B>, <B>ALL THAT REMAINS</B>, <B>DEVILDRIVER</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/daath">http://www.myspace.com/daath</A><BR></P></FONT>
+Автор: Vit Belov
+
+### 21.02.2009 news Трэк-лист DAATH
+
+<P><STRONG><IMG height=396 alt="" hspace=0 src="/images/news_rus/2009.02/13623.jpg" width=400 align=right border=5>DAATH </STRONG>опубликовали трэк-лист и обложку своего нового альбома <STRONG>"The Concealers", </STRONG>выходящего 21 апреля <STRONG>на Century Media</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Sharpen The Blades</B><BR itxtvisited="1">02. <B itxtvisited="1">Self Corruption Manifesto</B><BR itxtvisited="1">03. <B itxtvisited="1">The Worthless</B><BR itxtvisited="1">04. <B itxtvisited="1">The Unbinding Truth</B><BR itxtvisited="1">05. <B itxtvisited="1">Silenced</B><BR itxtvisited="1">06. <B itxtvisited="1">Wilting On The Vine</B><BR itxtvisited="1">07. <B itxtvisited="1">Translucent Potency</B><BR itxtvisited="1">08. <B itxtvisited="1">Day Of Endless Light</B><BR itxtvisited="1">09. <B itxtvisited="1">Duststorm</B><BR itxtvisited="1">10. <B itxtvisited="1">...Of Poisoned Sorrows</B><BR itxtvisited="1">11. <B itxtvisited="1">Incestuous Amplification</B></P>
+Автор: Vit Belov
+
+### 12.11.2010 reviews Музыка для драки в баре
+
+<P>Тяжёлая музыка довольно часто используется в саундтрэках художественных фильмов. Практически никогда наши любимые группы не является ключевыми для блокбастеров. Каждый из нас может представить, герой заходит в тёмный бар, волосатые и бородатые люди мощно пьют или играют в бильярд. Полуголые женщины танцуют на столах, но они не интересуют нашего героя, он вырывает кий у играющих и бьёт всех по голове. Вот в этот момент и звучит на втором плане нечто энергичное и жутко страшное. Затем в титрах в конце фильма гордо указывается имя исполнителя, которые предоставил картине свои три-четыре жутких вопля. Никто не решится полюбить это творчество в здравом уме, но все отдают должное маргинальной злобе этих страшных людей.</P>
+<P>Очень часто в современной тяжёлой музыке встречаются подобные хиты, заполняющие собой целые альбомы. Прыщавые подростки получают непередаваемое удовольствие от своей крутизны, прослушивая в портативных плейерах подобное творчество. К сожалению, ничего более обнаружить на этих пластинках не удаётся. DAATH, а их музыка относится именно к этому типу, справляются с задачей на «отлично». Редкие мелодичные проигрыши не портят впечатления от свирепости этого американского коллектива. Прошлогодний “The Concealers” уже третий альбом DAATH, и до этого группа принадлежала Roadrunner. Теперь делами музыкантов занимается Century Media, которая сумеет продать некоторое количество пластинок.</P>
+<P>Альбом, о котором невозможно ничего внятно рассказать. Громко, жёстко, качественно и полностью безыдейно.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -65,6 +65,54 @@ MATS OLAUSSON keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.05.2001 articles THE REIGN OF TERROR EXPLORES &#39; SACRED GROUND&#39;
+
+<p> BOSTON - The Reign of Terror is launching a summer tour in support of its third power metal opus, "Sacred Ground," recently released on Limb Music.</p>
+<p></p>
+<p> Led by the song writing partnership of former Yngwie Malmsteen/Loudness vocalist Mike Vescera and guitar-shredder Joe Stump, the response to the new album has been overwhelmingly positive, with most of Europe's top metal magazines giving it rave reviews and high praise. "They are calling our guitar/vocal pairing magical," said Stump. The super group of sorts is rounded out with bassist Jay Rigney and drummer Matt Scurfield, both of whom are current members of Event and successful graduates of the Berklee College of Music.</p>
+<p></p>
+<p> On "Sacred Ground," Stump and Vescera weave a metal landscape so intense that the most fickle of metal fans will not be able to ignore the technical mastery that the members of The Reign of Terror possess. "I wanted to do justice vocally to the great ideas that Joe has," said Vescera. "His amazing riffs and intense metal harmonies are the things legends are made of." But Stump, who has already released three successful solo albums, as well as teaching at Berklee College of Music, feels that he is not the sole reason for The Reign of Terror's winning formula. "We have so much chemistry when we're all together," he said. "This band is about the group, not the individual."</p>
+<p></p>
+<p> The U.S. version of "Sacred Ground" includes two bonus tracks, "Paginini's Purgatory" and "Dante's Danza."</p>
+<p></p>
+<p> As for the live show, metal fans can expect to get their faces melted by the fierce power metal machine that is The Reign of Terror. "People will be picking their jaws off the floor when they witness the combination of Mike's great voice and my insane guitar playing," Stump said, adding that the band will not stick only to Reign of Terror songs. "We'll be playing tunes from 'Sacred Ground' as well as some instrumental tracks from my various recordings and maybe some old Loudness and Malmsteen material."</p>
+<p></p>
+<p> Tour dates are as follow:</p>
+<p> 6/1/01 Fri. Randolph, NJ, Obsessions</p>
+<p> 6/4/01 Mon. Toronto, Ontario, Canada, Cathedral</p>
+<p> 6/7/01 Thurs. Lorain, OH, Flying Machine</p>
+<p> 6/8/01 Fri. South Bend, IN, Cheers</p>
+<p> 6/9/01 Sat. Lansing, IL, J.J. Kelly's</p>
+<p> 6/10/01 Sun. Cincinnati, OH, Top Cat's</p>
+<p> 6/15/01 Fri. LaCrosse WI, Warehouse</p>
+<p> 6/22/01 Fri. Houston, TX, Cardi's</p>
+<p> 6/23/01 Sat. Corpus Christi, TX, Center Theatre</p>
+<p> 6/25/01 Mon. Austin, TX, Flamingo, Cantina</p>
+<p> 7/1/01 Sun. Springfield, VA, Jaxx</p>
+<p> 7/5/01 Thurs. Worcester, MA, Lucky Dog</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 08.01.2003 reviews Властвовать и разделять
+
+<p>Четвертое совместное творение гитариста-виртуоза Joe Stump'а и экстраординарного вокалиста Mike Vescera под маркой THE REIGN OF TERROR. Самое лучшее, самое быстрое и самое тяжелое. Все тот же неоклассический heavy metal с неподдающимся счету гармоничных гитарных соло. По части насилования и истязания гитары Joe Stump вряд ли уступит самому Yngwie Malmsteen'у. Кстати, материал этого альбома (да и предыдущих альбомов коллектива) до боли напоминает творения шведского гитариста "Seventh Sigh" и "Magnum Opus" (только на "Conquer & Divide" побольше влияний от европейского power metal, в результате музыка звучит более жестко и симфонично). Еще бы он их не напоминал. Мало того, что гитаристы работают в схожей манере, так еще и поет на всех этих альбомах один и тот же человек. Технически здесь все безупречно. Милые мелодии, интересные ходы, все сделано с толком, чувством и расстановкой. Получается отличная микстура различных классических школ, от speed-металлической до хард-роковой. Рекомендую всем любителям качественной гитарной музыки.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 29.12.2008 news Ian Perry будет работать с Joe Stump
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Joe Stump</STRONG> начал работать над новым альбомом <STRONG>REIGN OF TERROR</STRONG>. В качестве вокалиста будет задествован певец <STRONG>ELEGY Ian Perry</STRONG>. Господин <STRONG>Perry</STRONG> уже работал с этим гитаристом в его сольном турне.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем, <STRONG>Metal Mind</STRONG> сообщили о переиздании альбомов<STRONG> ELEGY</STRONG> в семидисковом боксе. На издание попадут 18 бонус-трэков, "съёмки за сценой" и акустические выступления группы во время тура по Японии.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

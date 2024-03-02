@@ -84,6 +84,67 @@
 
 * C группой "A Perfect Circle" Maynard James Keenan (vocal)
 
+## Публикации
+
+### 11.04.2001 news TOOL have added an Atlanta show ...
+
+<p> TOOL have added an Atlanta show to their upcoming US mini-tour. Here are the only known US dates so far:</p>
+<p></p>
+<p> May 15 – Atlanta, GA @ The Tabernacle</p>
+<p></p>
+<p> May 17 – Chicago, IL @ The Riviera</p>
+<p></p>
+<p> May 18 – Detroit, MI @ State Theater</p>
+<p></p>
+<p> May 20 – New York, NY @ Hammerstein Ballroom</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 13.08.2001 reviews Снимайте кожу - и добро пожаловать в новую музыку!
+
+<p>Снимайте кожу – и добро пожаловать в новую музыку! Два предшествующих альбома вызвали искреннее восхищение критиков, второй принес группе "Грэмми" в 1997 году за лучшее исполнение хэви-метал (хотя такое стилистическое определение в принципе неверно), и вот третий… Мощное вступление, переходящее в нервную атаку – спад – депрессия – то самое отчаяние – попытка разорвать реальность… И успех – мир разорван на куски голосом Мэйнарда Кинана и танковой работой ритм-секции. Все летит к чертям, и музыка тому под стать: калейдоскоп смен ритма, гармоний и монолит настроения – жизнь и смерть отчаяния… Вступительная the Grudge: ритм-секция и гитара разъезжаются по разным размерам. Вкрадывается голос – и группа расходится еще и по разным тональностям. Эта раздвоенность – основная тема альбома, от размеров и гармоний до настроения. В последнем превалируют депрессия и отчаяние на одной чаше весов и истеричные всплески и припадки – на другой. Это музыка, с которой сняли кожу: мир ощущается каждой клеткой в совершенно новых красках, и отличить безумие от счастья становится почти невозможно. Похоже, на протяжении всей своей карьеры TOOL заняты поиском рецептов выражения отчаяния музыкальными средствами и уничтожения его теми же способами. Музыка изобилует мраком, а краски в музыкальных полотнищах, изображающих этого многорукого монстра с глазами, переполненными жаждой саморазрушения и осознанием невозможности сделать это, подобраны столь самобытно, что аналогов у группы попросту не существует. Чисто стилистически группа играет с элементами южного рока, психоделии, гранжа, металлических риффов, и бог чего знает еще. Вся палитра средств рока собрана здесь и приведена к единому знаменателю – это все лишь инструменты, с помощью которых квартет пишет безумные полотнища, погружая слушателя в транс… При этом TOOL, не поступаясь и толикой своеобразного видения мира музыки, умудрились достигнуть коммерческого успеха. Помимо нескольких номинаций на "Грэмми", аншлагов и впечатляющих тиражей, у команды в настоящем - турне с величайшими и легендарными KING CRIMSON, а в будущем, осенью, гастроли с наимоднейшими KORN. В определенном смысле TOOL музыкально близки и к первым, и ко вторым и при этом неповторимы. Но лучше один раз услышать, чем сто – прочесть. Слушайте!</p>
+
+Автор: Tornado
+
+### 21.08.2001 news MESHUGGAH have been confirmed as the support band for TOOL....
+
+<p>Sweden’s high-tech thrashers MESHUGGAH have been confirmed as the support band for TOOL’s upcoming headlining US tour, beginning with the September 6th show in St. Paul, Minnesota. Here are the announced dates for the trek: <br> Sept. 06 - St. Paul, MN @ Xcel Energy Center <br> Sept. 07 - Madison, WI @ Alliant Energy Center <br> Sept. 08 - Noblesville, IN @ Verizon Wireless Music Center <br> Sept. 09 - Rosemont, IL @ Allstate Arena <br> Sept. 11 - Grand Rapids, MI @ Van Andel Arena <br> Sept. 12 - Dayton, OH @ Ervin J. Nutter Center <br> Sept. 14 - Columbus, OH @ Schottenstein Center <br> Sept. 15 - Cleveland, OH @ CSU Convocation Center <br> Sept. 16 - Auburn Hills, MI @ Palace Of Auburn Hills <br> Sept. 18 - Toronto, ON @ Air Canada Centre <br> Sept. 19 - Montreal, QC @ Molson Centre<br> It is presently unclear if MESHUGGAH will be joining TOOL for the remainder of the latter band’s headlining tour, which includes dates in Boston, Portland (Maine) and Wilkes-Barre, among others. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 28.02.2002 news TOOL обогнали BLACK SABBATH и SLAYER...
+
+<p>"TOOL" выиграли награду Grammy в категории “Best Metal Performance” за песню "Schism" на 44-й Церемонии, обогнав BLACK SABBATH ("The Wizard"), SLAYER ("Disciple"), SLIPKNOT ("Left Behind") и SYSTEM OF A DOWN ("Chop Suey!" )...... :-((((((((((((((((</p>
+
+Автор: Yermola
+
+### 28.02.2002 news TOOL Win Grammy For &quot;Best Metal Performance&quot; ...
+
+<p>TOOL won a Grammy in the category “Best Metal Performance” for their track "Schism" at the 44th Annual Grammy Awards, which are being held tonight at the Staples Center in Los Angeles. TOOL beat out BLACK SABBATH ("The Wizard"), SLAYER ("Disciple"), SLIPKNOT ("Left Behind") and SYSTEM OF A DOWN ("Chop Suey!" ) to win the award, which was presented prior to the live telecast via the CBS network (scheduled to start at 8:00 PM EST).</p>
+
+Автор: Yermola
+
+### 04.03.2002 news TOOL Line Up Overseas Appearances ....
+
+<p>TOOL have lined up the following overseas dates during late spring: <BR><BR> Apr. 10 Tokyo, JAP @ Akasaka Blitz <BR> Apr. 11 Tokyo, JAP @ Akasaka Blitz <BR> Apr. 12 Osaka, JAP @ Mother Hall <BR> Apr. 14 Nagoya, JAP @ Diamond Hall<BR><BR> w/THE MELVINS<BR> Apr. 18 Christchurch, NZ @ Westpac Trust Centre <BR> Apr. 19 Wellington, NZ @ Queens Wharf Events Centre <BR> Apr. 20 Auckland, NZ @ North Shore Events Centre <BR> Apr. 22 Brisbane, AUS @ Entertainment Centre <BR> Apr. 24 Sydney, AUS @ Entertainment Centre <BR> Apr. 26 Wollongong, AUS @ Wollongong Entertainment Centre (unconfirmed) <BR> Apr. 27 Melbourne, AUS @ Rod Laver Arena <BR> May 01 or 02 - Adelaide, AUS @ Entertainment Centre <BR> May 04 - Perth, AUS @ Entertainment Centre <BR> May 17 - Nuremberg, GER @ Rock im Park <BR> May 19 - Nurburgring, GER @ Rock am Ring <BR> May 20 - Braunschweig, GER @ Volkswagen Halle (Ozzfest) <BR> May 23 - Antwerp, BEL @ Sportpaleis (Ozzfest) <BR> May 25 - Donington, UK @ Castle Donington (Ozzfest) <BR> May 26 - Kildare(?), IRE @ Punchestown Racecourse (Ozzfest) <BR> May 29 - Katowice, POL @ Spodek Sporthall <BR> May 30 - Prague, CZE @ Strahov Stadium <BR> Jun. 01 - Nijmegen, HOL @ Goffertpark (Ozzfest)<BR></p>
+
+Автор: Yermola
+
+### 09.09.2002 news MESHUGGAH in Billboard Top 200...
+
+<p>MESHUGGAH recently became the first band in the history of Nuclear Blast Records to crack the Billboard Top 200, landing at #165 with their latest effort, Nothing. They also secured spots on a few other Billboard charts including #30 on the Hard Music chart, #9 at the Core Hard Music stores and #6 on the Heatseekers. Although the band has moved out of the Top 200, after four weeks they continue to chart on the Hard 100, Core Hard Music stores and Heatseekers. <BR><BR> In related news, MESHUGGAH also became the first Nuclear Blast band to be reviewed in Rolling Stone magazine.<BR><BR> MESHUGGAH will spend the next month at home in Sweden before returning to North America on October 2nd for an eight-week tour supporting TOOL.</p>
+
+Автор: Yermola
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### TOOL needed!!!

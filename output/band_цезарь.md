@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.11.2009 news ЦЕЗАРЬ - альбом &quot;Рубикон&quot; (2009)
+
+<P><IMG height=197 alt="" hspace=0 src="/images/news_rus/2009.11/15584.jpg" width=200 align=right border=5>На лэйбле <STRONG>RM Records</STRONG> вышел дебютный альбом московской power-progressive группы <STRONG>ЦЕЗАРЬ</STRONG> (<A href="http://www.caesar-band.ru/">http://www.caesar-band.ru</A>), в который вошли следующие композиции, написанные в 2001-2006 гг.:</P>
+<P>1. <STRONG>49 B.C.</STRONG><BR>2. <STRONG>Рубикон</STRONG> (<A href="http://www.caesar-band.ru/mp3/Rubicon.mp3">http://www.caesar-band.ru/mp3/Rubicon.mp3</A>)<BR>3. <STRONG>100 Метров Лжи (Экипажу АПРК «Курск»)</STRONG> (<A href="http://www.caesar-band.ru/mp3/100">http://www.caesar-band.ru/mp3/100</A> Metrov Lzhi.mp3)<BR>4. <STRONG>Затмение Солнца<BR></STRONG>5. <STRONG>Однажды</STRONG><BR>6. <STRONG>Смертельные Игры<BR></STRONG>7. <STRONG>Покорись!</STRONG> (<A href="http://www.caesar-band.ru/mp3/Pokoris!.mp3">http://www.caesar-band.ru/mp3/Pokoris!.mp3</A>)<BR>8. <STRONG>Всё Смешалось<BR></STRONG>9. <STRONG>Иды Марта</STRONG></P>
+<P>Состав:<BR><STRONG>Антон Ловцов</STRONG> - вокал<BR><STRONG>Вячеслав Забурунов</STRONG> - гитара, бас-гитара<BR><STRONG>Расул Салимов</STRONG> - клавишные<BR><STRONG>Владимир Беляков</STRONG> - ударные<BR><STRONG>Сергей Морозов</STRONG> - бас-гитара на концертах</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -406,6 +406,1139 @@ Recorded between December 2013 and February 2014 at Hertz Studio in Bialystok, P
 * C группой "Christ Agony" Maurycy "Mauser" Stefanowicz
 * C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новости от Тома Ангелриппера из SODOM. Его соло проект сменил название на ONKEL TOM и выпустит новый альбом в феврале-марте, который будет называться "Ein Strauss Bunter Melodien". А новый альбом SODOM в середине мая, как бонус к нему появится трибьют к группе, на котором засветятся CRADLE OF FILTH, VADER, BRUTAL TRUTH, DARK FUNERAL и другие.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Vader заключили новый контракт с Metal Blade. В группу вернулся барабанщик Док. Новый альбом "Litany" выйдет в феврале.</p>
+
+Автор: Vit Belov
+
+### 06.07.2000 news Контуры нового альбома Vader.
+
+<p> Vader отправятся в студию 28 июля записывать новый альбом, в который войдут 3-4 новых песни, 2 кавера (Judas Priest и Destruction), 2 бонус-трэка для японского издания и 4 концертных записи с польского фестиваля Thrash'em All.</p>
+
+Автор: Morsus
+
+### 06.07.2000 news Contours of a new album of Vader.
+
+<p> Vader will enter studio on 28 July to record a new album that will feature 3-4 new tracks, 2 covers (Judas Priest and Destruction), 2 bonus tracks from the Japan edition of Litany and 4 live tracks from Thrash'em All Festival in Poland.</p>
+
+Автор: Morsus
+
+### 05.09.2000 news Новое видео Vader
+
+<p> Скоро появится в продаже новое официальное видео "Vision & Voice" польской группы Vader. В него войдут: 'Sothis', 'Distant Dreams', 'Silent Empire', 'Blood Of Kingu', 'Black To The Blind', 'Reborn In Flames', 'Carnal', 'Dark Age', 'Kingdom', 'Foetus God', Black Sabbath', 'Red Passage' и также видеоклип на песню 'Kingdom'.</p>
+
+Автор: Nybras
+
+### 22.09.2000 news О релизах Metal Blade до конца 2000-го  года
+
+<p> Европейский отдел Metal Blade афишировал список своих релизов, запланированных до конца этого года. Итак:<br>25.09.00 CANNIBAL CORPSE Live Cannibalism (новый альбом)<br> 25.09.00 CANNIBAL CORPSE Live Cannibalism (новое видео)<br> 09.10.00 LIZZY BORDEN Deal With The Devil (новый альбом)<br> 23.10.00 ANCIENT God Loves The Dead (новый мини-диск)<br> 23.10.00 SIX FEET UNDER Graveyard Classics (новый альбом)<br> 06.11.00 IMMOLATION Close To A World Below (новый альбом)<br> 06.11.00 VOMITORY Revelation Nausea (новый альбом)<br> 20.11.00 DIES IRAE Immolated (новый альбом)<br> 20.11.00 VADER Reign Forever World (новый альбом)<br> 20.11.00 CHINCHILLA Madness (новый альбом)<br></p>
+
+Автор: Nybras
+
+### 28.02.2001 news Новости от VADER
+
+<p>Последний релиз команды "Reign Forever World" достиг восьмого места в польских чартах альбомов, став первым металлическим опусом достигши столь высокого места в истории шляхетской музыкальной индустрии. Другой же альбом "Litany" номинирован на Fryderyki 2000 Award как Best Heavy Metal Album. Награждение пройдет 18 марта. Также команда подтвердила участие в Dynamo Open Air Festival 26 и 27 мая и турне по Штатам в июле с участием DECAPITATED.</p>
+
+Автор: Yermola
+
+### 28.02.2001 news VADER nomination
+
+<p>VADER have been confirmed to play this year's Dynamo Open Air Festival on May 26th - 27th. The band's current album, Reign Forever World, recently landed at #8 on the Polish album charts, making Vader the first metal band in the history of the Polish music industry to reach such high positions. Another of their albums, Litany, has been nominated for the Fryderyki 2000 Award for Best Heavy Metal Album, to be awarded on March 18th. In related news Poland's National TV Channel 2 are about to make a documentary about Vader. In July, the band will embark on their own North American headlining tour with DECAPITATED and two American acts, which will comprise 30 dates in the U.S. and Canada. They are still working out details for a European tour.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Польское вторжение продолжается...
+
+<p>Друзья и соперники "VADER" из "DECAPITATED" с первого по 20-е мая отправляются в тур с "IMMOLATION". Разогревающие команды будут: DERANGED, DESTROYER 666 и SOUL DEMISE. Второй альбом команды "Nihility" будет писаться в Red Studio в Августе и выйдет в Октябре через Wicked World/Earache. Кроме того продолжается работа над организацией американского тура. Digger International и Earache America подтвердили дату начала - Июль 2001. "DECAPITATED" будет открывать шоу для "VADER".</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Polish Assault
+
+<p>DECAPITATED will be on tour with IMMOLATION from May 1st to May 20th. Other support bands on various dates include: DERANGED, DESTROYER 666 and SOUL DEMISE. The band will record their second album, Nihility, at Red Studio in August. It will be out through Wicked World/Earache in October. Decapitated are still working on a U.S. tour. The tentative date has been set for July 2001. Digger International and Earache America confirm that the band will open for VADER and two other bands, so everything depends now on the Immigration Office and the American Embassy in Poland...</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>После проведения однодневных Dynamo Open в последние годы, в этом году принято решение все-таки вернуться к трехдневной форме. Шестнадцатый фестиваль будет проходить на "De Schans" в Lichtenvoorde с 24 по 26 мая 2001. Уже подтвердили свое участие: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER и WICKED MYSTIC. Не пропустите!</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>After last years one day-Dynamo we strike back with a full three day -event, with campsite at "De Schans" in Lichtenvoorde. Our 16th edition will simply crush all other summerfestivals this year and takes place on the 24th, 25th and 26th of MAY … Bands Scheduled To Appear: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER feat. Arjen Lucassen, WICKED MYSTIC</p>
+
+Автор: Yermola
+
+### 19.03.2001 news Мама и...враг..?!?!
+
+<p>Польские окультисты подписали контракт с португальским лэйблом Maquiavel Music Entertainment на два полноформатных релиза. Уже известно название нового альбома - “The Mother and the Enemy”, который обещает стать более death-ориентированным чем “My Guardian Anger”. На диск точно войдут: “Mother Pandora”, “Gambit”, “Architecture”, “Most Arrogant Life Form”, “Pied Piper”, “Yet Another Armageddon” и “Missa Solemnis”. Сейчас команда садится в польскую Studio 333 с продюссером Bartek Kuzniak, ответственным за запись “My Guardian Anger” и также работающего с Vader, Decapitated & Dies Irae.</p>
+
+Автор: Yermola
+
+### 19.03.2001 news The Mother and the Enemy....
+
+<p>Maquiavel Music Entertainment Lda is proud to announce their second extreme metal signing by picking up the Polish giants Lux Occulta unto their rooster. The label has taken the band for their next two full length releases after the groundbreaking release upon 1999 from Malevolence’s second album “Martyrialized” that shocked the whole metal community due to its diversity and extreme metal potential. Maquiavel Music Entertainment Lda is preparing his full concentration upon the release of this fourth full-length album from Lux Occulta with full force during the upcoming months all over the Globe including the release of their first European Tour since the band inception. Lux Occulta is know nowadays for playing a very creative occult form of metal including earth-shattering progressive elements from both death/black metal extremity. The first release from this recent gathering between the two parts will be title “The Mother and the Enemy”. It is said to be a more complex and diverse album than its predecessor “My Guardian Anger” and will include the following songs, not yet under the final order for the original release: “Mother Pandora”, “Gambit”, “Architecture”, “Most Arrogant Life Form”, “Pied Piper”, “Yet Another Armageddon” and “Missa Solemnis”. The band is set to enter on Studio 333 in Poland with producer Bartek Kuzniak, the same individual responsible for the final mastering of their previous “My Guardian Anger” album as well as the latest album efforts for such diverse acts like Vader, Decapitated & Dies Irae just to name a few. The recording sessions shall begin during late March 2001 after two Lux Occulta members will be back from their back support to Vader’s Polish National Tour with their project Decapitated. We do not have yet a final date for the release of the album since that depends in the very brief meanwhile from some other regular procedures. However, we can advance to all of you a tentatively release date settled for Summer 2001. The album “The Mother and the Enemy” will be license and exclusively distributed over the Countries of Poland, Czech Republic, Slovakia and Hungary via Maquiavel Music Entertainment Lda professional alliance constricted with Mystic Production.</p>
+
+Автор: Yermola
+
+### 06.06.2001 news Концерт Vader в Москве
+
+<p>17 июня в Москве в Р-клубе состоится концерт легендарной польской death-metal группы Vader в рамках тура Reign Forever World Tour. В концерте также участвуют Dementor (Словакия), Mortem и T.H.R.O.N (оба Россия). Также обещаются некие специальные гости. Концерт организован Musickness Russia при подержке ФОНО prod. и при информационной поддержке MUSICA.mustdie.ru Цена билетов 200 рублей в предварительной продаже и 300 рублей в день концерта. Билеты продаются только в рок-магазинах и их количество ограничено.</p>
+
+Автор: Vit Belov
+
+### 08.06.2001 articles Интервью с группой VADER
+
+<p>Для задушевных бесед с лидером <a href="/ru/band/vader/">VADER</a> Петей, нужно использовать каждую оказию, ибо группа делает для популяризации польской культуры в мире намного больше, чем целый легион чиновников Министерства культуры. На этот раз, однако, Jaroslaw Szubrycht не касался темы заграничных успехов <a href="/ru/band/vader/">VADER</a>, и попытался прояснить ситуацию с выходом мини-альбома «Reign Forever World» и положением на польской метал-сцене.</p>
+<p> — Почему вы решили издать мини-альбом?</p>
+<p> — Из-за напряженного концертного графика новый альбом выйдет не раньше, чем летом 2002 года. В этой связи, «Reign Forever World» является своего рода связующим звеном между полноформатными альбомами, еще одним напоминанием о том, что <a href="/ru/band/vader/">VADER</a> все еще живет (смеется). К тому же наши фэны уже приучены к подобного рода штукам. Это может быть концертный альбом, альбом с каверами известных групп, на этот раз мы записали мини-альбом с тремя новыми треками, написанными после выхода “Litany” и парой-тройкой дополнительных номеров. Принципиально важным моментом является более низкая в сравнении с обычным альбомом цена диска.</p>
+<p> <img src=/images/articles_rus/2001.06/1462.jpg border=1 align=left width=480 height=373 ></p>
+<p> — Многих удивит титульный трек, демонстрирующий отход от бескомпромиссности и грайндкоровой простоты “Litany”. Музыка стала более медленной, аранжировки более сложными — неужели отныне ваши песни будут именно такими?</p>
+<p> — Наше развитие проходит естественным образом, мы ничего заранее не планируем, поэтому сегодня трудно сказать, как будет звучать следующий альбом. «Reign Forever World» вовсе и не обязательно воспринимать как свидетельство серьезного изменения стиля группы. Определенно могу сказать лишь, что следующий альбом не будет повторением «Litany», это было бы бессмысленно. Хочу также обратить ваше внимание на то, что тексты к трем новым песням написал Lukasz Szurminski. Мы сотрудничали с ним впервые и он оставил глубокий след на материале альбома. Lukasz младше нас лет на 10, поэтому его восприятие мира отличается от нашего.</p>
+<p> — Может быть поэтому новые песни немного напоминают ваши ранние тексты? Означает ли это, что вы больше не будете работать с Pawel Frelik, авторам большинства текстов “Litany”?</p>
+<p> — Я же не говорил, что мы отказались от услуг Павла. Просто он человек занятой (в журнале «Thrash’Em All», зам. редактора которого он является, ведет рубрику “Antimusic” — прим. автора) и не всегда располагает временем, чтобы написать что-нибудь для нас. Поэтому мы решили поработать с Лукашем. Его тексты отличаются от текстов Павла, но они соответствуют характеру <a href="/ru/band/vader/">VADER</a>.</p>
+<p> — Второй гитарист <a href="/ru/band/vader/">VADER</a> Mauser недавно возродил свою первую группу <a href="/ru/band/dies_irae/">DIES IRAE</a>. Ты не опасаешься, что теперь он будет уделять меньше внимания <a href="/ru/band/vader/">VADER</a>?</p>
+<p> — Нисколько, равно как и сравнений <a href="/ru/band/dies_irae/">DIES IRAE с</a> <a href="/ru/band/vader/">VADER</a>, хотя они и неизбежны, учитывая тот факт, что вместе с Маузером играет и Доцент. <a href="/ru/band/dies_irae/">DIES IRAE</a> тоже презентует агрессивный death metal, но совершенно иного плана. Мне очень понравилась их пластинка. Их единственное слабое место — невозможность организации концертов. Все участники группы задействованы в других коллективах, представляющих польскую сцену на международной арене.</p>
+<p> <img src=/images/articles_rus/2001.06/1463.jpg border=1 align=left width=480 height=416 ></p>
+<p> — Тур в поддержку ««Reign Forever World» вы начали с концертов в Польше. Надеюсь, это станет началом новой традиции и мы сможем видеть <a href="/ru/band/vader/">VADER</a> дома столь часто, как западные металлисты?</p>
+<p> — Я очень рад, что мы начали турне с родных мест. Сам знаешь, как тяжело сделать что-либо в той стране, но я надеюсь на какие-то изменения к лучшему, надеюсь, что уже наступила оттепель. Тем более приятно, что это касается не только нас, но также и других групп. Организуются фестивали, концертные туры — это действительно вселяет оптимизм. Металлический андерграунд всегда существовал благодаря сотрудничеству и взаимопомощи, а не конкуренции между группами. Конечно, есть еще проблемы, потому что до сих пор имеет место никому не нужное сотрудничество; вся надежда на то, что люди все же пытаются что-то делать.</p>
+<p> — Считаешь ли ты подписание контракта с Metal Blade правильным шагом?</p>
+<p> — Да, тем более, что шли мы к этому довольно долго. Этот контракт не подписывался опрометчиво, в одну минуту. Мы знаем Майкла, шефа европейского филиала Metal Blade, еще со времени нашего первого европейского турне с <a href="/ru/band/bolt_thrower/">BOLT THROWER</a>. С тех пор он не раз предлагал нам сотрудничество, однако мы работали пока с предыдущими нашими издателями System Shok и не имели никаких проблем, стало быть, не могли положительно ответить на предложение Майкла. В конце концов мы все-таки подписали контракт, чем остались очень довольны.</p>
+<p> — Ты наверное, слышал о судебном процессе над<a href="/ru/band/slayer/"> SLAYER</a>, которых обвиняют в провоцировании убийств текстами песен. Что ты думаешь об этом?</p>
+<p> — Человеческая глупость не знает границ. Был бы человек — статья всегда найдется. Однако в этом случае даже нечего комментировать, потому что здесь все ясно: кому-то захотелось заработать на этом денег или популярности и они не гнушаются самых подлых способы достижения поставленной цели. Тексты <a href="/ru/band/slayer/">SLAYER</a> или <a href="/ru/band/vader/">VАDER </a>могут быть истолкованы по-разному, что и делает их опасными в глазах людей с ограниченным мышлением. Таких людей немало и именно они создают подобные проблемы.</p>
+<p> — Еще два года назад вы и не мечтали об участии в некоторых теле- и радиопрограммах, интервью для популярных журналов. Сегодня все встречают вас с распростертыми объятиями как послов польской музыки за рубежом. Пришлось покорить Запад, чтобы получить признание на родине?</p>
+<p> — Не знаю, что и думать об этом. Если причиной этих приглашений является наш международный успех, то это печально. Хотя, с другой стороны, меня радует, что сейчас с нами хотят говорить люди, которые еще совсем недавно не замечали нашего существования. Правда, иногда нам задают такие вопросы, что не знаешь, смеяться или плакать. Меня шокирует, что люди так мало знают о группе, столько лет существующей на польской сцене. Но в целом, я доволен тем, что они приглашают нас в студию, не боясь указующего перста ксендза. Я надеюсь, что мы откроем двери, через которые позже смогут пройти другие артисты.</p>
+<p> Перевод Kvalerа.</p>
+<p></p>
+
+Автор: Dimas
+
+### 08.06.2001 news ATTACK ON THE EAST CAPITALS
+
+<p> <img src=/images/news_rus/2001.06/1465.jpg border=1 align=left width=130 height=300 ></p>
+<p> Chaotica Music Agency представляет "ATTACK ON THE EAST CAPITALS" - это эксклюзивные концерты польской метал-легенды VADER. Вы увидите долгожданное качественное шоу от лидеров европейского death metal при массированной поддержке словацких монстров бласфемического death metal DEMENTOR.</p>
+<p> Первый концерт тура состоится в Минске 16 июня 2001 года в 17:00. Локальная поддержка: GODS TOWER (на концерте также состоится официальная презентация новейшего мини-альбома группы "ABANDON ALL HOPE"), ASGUARD, V.E.L.D. и RASTA. Адрес: клуб РЕАКТОР, Минск, В.Хоружей, 29. Цена билета: 7.000 - в предварительной продаже, 10.000 - в день концерта. Предварительная продажа и заказ билетов с 4 июня: Минск: D-SHOP (Притыцкого, 40), общественные рапространители в подземных переходах; Могилёв: тел. 463-011 (22:00 - 0:00); Речица: PARADISE (Урицкого); Гомель: AUDIOBOX (Первомайская, 23); Брест: тел. 226-594 (22:00 - 0:00); Витебск: МУЗЫКАЛЬНЫЙ КИОСК (Московский пр-т, напротив ВГУ). Приобретайте билеты только у официальных распространителей. Администрация не несёт ответственность за подделки! инфо, заказ билетов: 8 029 6022062, fatalecstasy@tut.by, chaotica@tut.by</p>
+<p> Второй концерт тура состоится в Москве 17 июня 2001 года в 18:00. Локальная поддержка: T.H.R.O.N. и MORTEM. В случае, если состоится дополнительный концерт 18 июня, а такая вероятность существует, то вместе с VADER и DEMENTOR, будут выступать MERLIN и GODS TOWER. Адрес: R-клуб, Москва. Цена билета: 200 - предварительная продажа, 300 - в день концерта. Билеты продаются только в рок-магазинах, количество ограничено с целью не создавать давки и прочих проблем. Инфо, заказ билетов: metalagen@soyuz.ru</p>
+<p> - ВНИМАНИЮ УКРАИНСКИХ РЕЗИДЕНТОВ: концерт в Киеве 15 июня отменён по независящим от нас причинам! Официальные объяснения от местных промотеров (CORE & Озолин) мы надеемся получить в ближайшие дни</p>
+<p> - перед началом каждого концерта пройдут встречи музыкантов VADER, DEMENTOR с публикой</p>
+<p> - на концертах предполагается продажа мерчендайзинга (кассеты, диски, журналы, футболки)</p>
+<p> - если вы ещё сомневаетесь в качестве представляемых групп, то лучшие трэки с новейших альбомов VADER "Reign Forever World" (Metal Blade Recs), DEMENTOR "Enslave The Weak" (Osmose Prods) можно будет услышать: - в ночь с понедельника на вторник, 12 июня, в дебютном выпуске нового радиошоу Александра Литвинского MASSA BRUTTO (1:00, Минская радиостанция CТИЛЬ), - во вторник, 12 июня, в эфире радиошоу ЗАТЕРЯННЫЙ МИР (22:30, Минская радиостанция МИР)</p>
+<p> - свежие интервью с лидерами VADER & DEMENTOR опубликованы на сайтах:</p>
+<p> LEGION ONLINE: http://www.nestor.minsk.by/legion/</p>
+<p> <a href="http://musica.mustdie.ru">MUSICA.MUSTDIE.RU</a>: <a href="http://musica.mustdie.ru">http://musica.mustdie.ru</a></p>
+<p> <a href="http://musica.mustdie.ru/ru/exclusive/1/44834/">Интервью с DEMENTOR</a></p>
+<p> <a href="http://musica.mustdie.ru/ru/exclusive/1/44833/">Интервью с VADER</a></p>
+<p> HELLRAISER: http://www.hellr.kiev.ua/</p>
+<p> - спрашивайте в рок-магазинах лицензионные издания для территории СНГ: VADER "Reign Forever World" CD, издан FONO Recs по лицензии Metal Blade Recs, DEMENTOR "The Art Of Blasphemy" MC, издан FATAL ECSTASY Prods по лицензии Qabalah Prods.</p>
+<p> организатор тура: CHAOTICA M.A. chaotica@tut.by</p>
+<p> российский промотер: METAL AGEN/ MUSICKNESS RUSSIA metalagen@soyuz.ru</p>
+<p> ищи новости о туре на сайтах:</p>
+<p> LEGION ONLINE: http://www.nestor.minsk.by/legion/</p>
+<p> <a href="http://musica.mustdie.ru">MUSICA.MUSTDIE.RU</a>: <a href="http://musica.mustdie.ru">http://musica.mustdie.ru</a></p>
+<p> DEMENTOR: http://www.dementor.nfo.sk/</p>
+<p> HELLRAISER: http://www.hellr.kiev.ua/</p>
+<p> VADER: http://www.vader.pl/</p>
+<p> FONO: http://www.fono.ru/</p>
+<p></p>
+
+Автор: Dimas
+
+### 12.06.2001 articles VADER о туре &quot;Attack on the east capitals&quot;
+
+<p>Предстоящие концерты <a href="/ru/band/vader/">VADER</a>и <a href="/ru/band/dementor/">DEMENTOR</a> вызывают массу противоречивых слухов (приедут-неприедут, отыграют одну песню или больше), поэтому организаторы тура сочли своим долгом обратиться к лидерам этих групп за комментариями. Слово Питеру (вокалист, гитарист и основатель <a href="/ru/band/vader/">VADER</a>):</p>
+<p></p>
+<p> —Во-первых, проясни, пожалуйста, ситуацию с вашим туром «Attack on the east capitals». Белорусские фэны сомневаются, состоится ли запланированный концерт<a href /ru/band/vader/"> VADER</a> в Минске, т.к. все мы помним ваше укороченное выступление в прошлом году и тот печальный факт, что несколько лет назад вы до Минска вообще не доехали.</p>
+<p> — Мы очень рады, что нам предстоит сыграть в Минске и за нашей восточной границе вообще. Не по нашей вине, в прошлый раз мы выступили так коротко: это была вина организаторов! Кроме того, аппарат и звук были кошмарными. Мы играем везде, куда нас приглашают, однако при этом требуем выполнения определенных условий. К сожалению, в тот раз, когда мы, как ты говоришь, не доехали до Минска, нам вообще не дали никаких гарантий, что все, о чем мы просили, будет выполнено. А просим мы немного: безопасность, хороший звук и промоушн. Лишь недавно мы установили контакт с Chaotica Agency; они нам кажутся профессионалами, и мы надеемся, что в этот раз нашему концерту ничто не сможет помешать.</p>
+<p> — А как часто вы отменяете свои концерты? Я слышал, что в апреле не состоялись шесть ваших совместных концертов с <a href="http://musica.mustdie.ru/ru/band/vomitory/">VOMITORY</a> в Скандинавии…</p>
+<p> — Ха-ха-ха! Я вижу, у вас ходят сенсационные слухи на тему <a href="/ru/band/vader/">VADER</a>! Мы никогда не отменяли своих концертов сами. Упомянутый тобой тур по Скандинавии не состоялся из-за отсутствия рабочей визы, которую у нас потребовали на границе. К несчастью, организатор трассы не предусмотрел этих формальностей, и нас попросту не пустили в Швецию! Чтобы до конца прояснить этот инцидент, добавлю, что нам до сих пор не вернули деньги за дорогу из Польши в Швецию, а также никто не потрудился даже сделать официального заявления на эту тему! Очень жаль, потому что наш менеджер работал над подготовкой этого тура около пяти месяцев. Кроме того, мы вынуждены были отказаться от поездки в Литву и Латвию, по причине опять же плохой организации. Мы надеемся, однако, что нам все-таки удастся организовать тур по Швеции, чтобы доказать всем, что мы хотим там выступить.</p>
+<p> — Расскажи, пожалуйста, о туре, который в данный момент проходит по Польше. Много ли народу приходит на ваши концерты?</p>
+<p> — Мы только что закончили вторую часть тура по Польше. На этот раз мы выступали в небольших городах, таких как Колобжег, Пила, Рыбник, Лодзь… Всего отыграли девять концертов. В марте состоялась первая часть тура, которая прошла в более крупных городах. В настоящее время с нами ездят SCEPTIC, до этого были <a href="/ru/band/trauma/">TRAUMA</a> и DECAPITATED. Наши польские концерты всегда проходят хорошо и собирают большую аудиторию. На “No Mercy Festival” мы играли вместе в <a href="/ru/band/marduk/">MARDUK</a>,<a href="/ru/band/mortician/"> MORTICIAN</a>,<a href="/ru/band/amon_amarth/"> AMON AMARTH</a> и мн. др. К сожалению, отменили фестиваль “Dinamo Open Air”, на котором мы должны были сыграть. Вообще-то этот год для нас одна долгая трасса. Нам еще предстоит польский тур по США, затем тридцать концертов в Европе, тур по Южной Америке, “Thrash’em AU Festival”, которым мы и завершили 2001 год.</p>
+<p> — Как насчет ваших планов провести совместный тур с <a href="/ru/band/deicide/">DEICIDE</a> по США?</p>
+<p> — Как я уже сказал, в июле мы едем в Америку в компании с <a href="/ru/band/skinless/">SKINLESS</a>, ORIGIN, <a href="/ru/band/impaled/">IMPALED</a> и двумя другими группами. Нам предлагали сыграть с <a href="/ru/band/deicide/">DEICIDE</a>, но для нас это было бы слишком дорого, поэтому мы решили провести тур самостоятельно. Мы уже не раз выступали вместе с <a href="/ru/band/deicide/">DEICIDE</a>; это наши друзья, мы поддерживаем с ними контакт, однако в этот раз от совместного тура мы решили отказаться. Каждая поездка за океан предполагает большие расходы, а мы живем лишь за счет музыки, поэтому мы не можем съездить как туристы. А у нас у всех есть семьи, дети, которых нужно содержать. Думаю, что никто не будет в обиде из-за того, что вместо нас поедет <a href="/ru/band/marduk/">MARDUK</a>.</p>
+<p> — Петер, помнишь ли ты свои визиты в Москву и Минск? Каковы твои впечатления о них?</p>
+<p> — Я очень хорошо помню все поездки в Москву и Минск. В Москве мы выступали дважды, еще когда были малоизвестной группой. Это были незабываемые времена! Одно большое приключение. Чувствовалась связь между металлическими группами. Сегодня все совсем по-другому. На свой первый московский концерт мы ехали обычным поездом, нас не заботила ни аппаратура, ни безопасность. Тогда это был один из немногочисленных выездов за границу! Помню, что платой за выступление нам была буханка хлеба, сыр и ящик водки (смеется). В Минске тоже все было хорошо, но по известным причинам мы были очень расстроены. Мы хотели предстать перед нашими фанами в лучшем виде, но нам дали сыграть только две песни! Всем остальным остались довольны.</p>
+<p> — Если можно, проанонсируй предстоящее выступление <a href /ru/band/vader/">VADER</a>. Есть ли у вас какие-то специальные заготовки для нашей публики?</p>
+<p> — Сейчас я не могу сказать ничего конкретного, т.к. не завершен еще наш польский тур. Позже мы прорепетируем и подготовим что-нибудь специальное. Наверняка сыграем песни с нового альбома, несколько наших хитов, может быть, какой-либо кавер. Да вы не беспокойтесь, мы будем играть около часа, будет что послушать.</p>
+<p> — Как ты расцениваешь тот факт, что ваш последний диск “Reign Forever World” официально издан в России?</p>
+<p> — Честно говоря, я никогда в это не верил! Не верил, что в России когда-нибудь выйдет наш легальный диск! До сих пор выходят лишь пиратские диски и кассеты плохого качества. Думаю, это начало того процесса, который мы в Польше пережили несколько лет назад. Хорошо, когда у группы есть контроль над своими записями. Фэны могут купить диски с оригинальной обложкой и в хорошем качестве. Это хороший знак!</p>
+<p> — Несколько финальных слов для наших фанов.</p>
+<p> — До встречи на концертах! Уже недолго осталось!</p>
+<p> ОВБ</p>
+<p></p>
+
+Автор: Dimas
+
+### 13.06.2001 news Анонс пребывания VADER и DEMENTOR в Москве
+
+<p> - MTV Russia, программа Hard Zone, четверг 14 июня в 23.00 (по моск.вр.);</p>
+<p> - Радио "Юность", программа "Железный занавес", суббота 16 июня в 22.30, воскресенье 17 июня в 12.30 - УКВ 68.84, LW 0.153(моск.вр.);</p>
+<p> - Радио "Станция", программа "Учитесь плавать", среда 13 июня в 23.00 - FM 106.8 (моск.вр.);</p>
+<p> - Радио "Эхо Москвы", программа "Хранитель снов", ночь с 15 на 16 июня в 03.00 (моск.вр.);</p>
+<p></p>
+
+Автор: Dimas
+
+### 25.06.2001 news Metal Blade news....
+
+<p>Here's a list of dates of METAL BLADE bands on tour. Check local listings:</p>
+<p> CATASTROPHIC <br> 7/05 Albany, NY Valentines <br> 7/06 Poughkeepsie, NY The Chance <br> 7/07 Sayre, PA Hurricane Billboards <br> 7/08 Syracuse, NY Action Sports Center <br> 7/09 Meriden, CT Hanover House <br> 7/12 Hudson, NH Club Euphoria <br> 7/13 Worcester, MA The Palladium <br> 7/14 Toronto, ONT Kathedral <br> 7/15 Montreal, Oue, Can. L'x <br> 7/16 Randolph, NJ Obsessions Nite Club <br> 7/17 New York, NY Wetlands Preserve <br> 7/18 Morgan, NJ Club Krome <br> 7/19 Baltimore, MD Ottobar <br> 7/20 Norfolk, VA Taj Mahal <br> 7/21 Columbia, SC Uncle Doctors <br> 7/22 Ft. Lauderdale, FL Culture Room <br> 7/23 Orlando, FL Sapphire Supper Club <br> 7/25 Houston, TX Fitzgerald's <br> 7/26 Dallas, TX Galaxy Club <br> 7/27 Corpus Christi, TX Zero's <br> 7/28 Austin, TX The Backroom <br> 7/29 Oklahoma City, OK Diamond Ballroom <br> 7/31 Tempe, AZ Boston's Night Club <br> 8/01 San Diego, CA Brick by Brick <br> 8/02 San Jose, CA The Cactus Club <br> 8/03 San Francisco, CA The Pound at Pier 96 <br> 8/04 Anaheim, CA The Shack <br> 8/05 Hollywood, CA Whiskey a Go Go <br> 8/07 Fort Collins, CO Starlight <br> 8/08 Lawrence, KS The Bottleneck <br> 8/09 Aurora, IL Riley's <br> 8/10 Milwaukee, WI Milwaukee Auditorium <br> 8/11 Clinton, IA Pig Pen <br> 8/12 St. Paul, MN The Lab <br> 8/13 St Louis, MO Creepy Crawl <br> 8/14 Detroit, MI I-Rock <br> 8/15 Lorain, OH Flying Machine <br> 8/16 W. Springfield, VA Jaxx <br> 8/17 Spartanburg, SC Ground Zero <br> 8/18 Tampa, FL Brass Mug <br> 8/19 Atlanta, GA The Masquerade <br> CATASTROPHIC-EUROPEAN DATES <br> 9/01 Trier, Germany Exil <br> 9/02 Vooselaar, Belgium Biebob <br> 9/03 Paris, France Locomotive <br> 9/04 Essen, Germany Zeche Carl <br> 9/05 Offenbach, German Hafenbahn <br> 9/06 Hengelo, Holland Metropool <br> 9/07 Zaandam, Holland Kade <br> 9/08 Helmond, Holland Plato <br> 9/09 Rotterdamn, Holland Baroeg <br> 9/10 Hamburg, Germany Markthale <br> 9/11 Berlin, Germany Razzle Dazzle <br> 9/12 Warsow, Poland Proxima <br> 9/13 Praha, Czech Republic Futurum <br> 9/14 Zwickau, Germany Alarm <br> 9/15 Vienna, Austria Arena <br> 9/16 Bresso, Italy Idian's Saloon <br> VADER <br> 6/28 Oklahoma City, OK Diamond Ballroom <br> 6/29 Fayetteville, AR Clunk Music Hall <br> 6/30 St. Louis, MO Creepy Crawl <br> 7/01 Aurora, IL Rileys <br> 7/03 Bowling Green, OH Howards Club H <br> 7/04 Columbus, OH Whiskey Pete's <br> 7/05 Detroit, MI The Shelter <br> 7/07 Toronto, ONT Kathedral Room <br> 7/08 Montreal, QUE Salle L'X <br> 7/10 Rochester, NY Water Street Music Hall <br> 7/11 Albany, NY Valentines <br> 7/12 Randolph, NJ Obsessions <br> 7/13 Worcester, MA Palladium <br> 7/14 Brooklyn, NY Lamour <br> 7/15 Springfield, VA Jaxx <br> 7/18 Winston-Salem, NC Ziggy's <br> 7/19 Birmingham, AL Boiler Room <br> 7/20 Tallahassee, FL Cow Haus <br> 7/21 Tampa, FL Brass Mug (Tent Show) <br> 7/24 Houston, TX The Engine Room <br> 7/25 Arlington, TX Dreamworld <br> 7/28 Anaheim, CA Chain Reaction <br> 7/29 San Francisco, CA The Pound <br> IMMOLATION and Krisiun (* Immolation only) <br> 8/03 Poughkeepsie, NY The Chance * <br> 8/04 Jackson Heights, NY Castle Heights * <br> 8/05 Syracuse, NY Planet 505 * <br> 8/06 Boston, MA Bill's Bar and Lounge * <br> 8/07 Randolph, NJ Obsessions * <br> 8/09 Cleveland, OH Agora Theatre * <br> 8/10 Detroit, MI I-Rock * <br> 8/11 Milwaukee, WI Milwaukee Auditorium <br> 8/12 St Paul, MN The Lab <br> 8/13 Lawrence, KS The Bottleneck <br> 8/14 Colorado Springs, CO Colorado Music Hall <br> 8/16 West Hollywood, CA The Whiskey A Go-Go <br> 8/17 Tempe, AZ Boston's Night Club <br> 8/19 Austin, TX The Backroom <br> 8/21 Tampa, FL The Brass Mug <br> 8/22 Ft Lauderdale, FL Culture Room <br> 8/23 Spartanburg, SC Ground Zero <br> 8/24 Richmond, VA Twisters <br> 8/25 Norfolk, VA Taj Mahal <br> 8/26 West Springfield, VA Jaxx <br> 8/27 New York, NY Wetlands <br> FLOTSAM & JETSAM <br> 7/28 West Hollywood, CA Troubadour <br> 9/28 Dallas, TX Canyon Club <br> 9/29 Austin, TX The Metro <br> 10/02 Tampa, FL Brass Mug <br> 10/06 Richmond, VA Canal Club <br> 10/13 Lorain, OH Flying Machine <br> 10/14 Aurora, IL Riley's <br> 10/20 Tucson, AZ The Rock <br> 11/02 Reseda, CA Paladino's <br> SPOCK'S BEARD <br> 7/15 Detroit, MI The Magic Bag <br> 7/16 Toronto, ONT tba <br> 7/17 Montreal, QUE tba <br> 7/18 Quebec City, QUE Le Dagobert <br> 7/20 Boston, MA House Of Blues <br> 7/21 W. Springfield, VA Jaxx <br> 7/22 Philadelphia, PA North Star Bar <br> 7/23 New York, NY The Bottom Line <br> 7/25 Lansing, IL JJ Kelly's <br> 7/26 Milwaukee, WI Shank Hall <br> 7/29 Las Vegas, NV Legends <br> 7/30 Los Angeles, CA tba <br> 7/31 San Francisco, CA Great American Music Hall <br> 8/01 San Diego, CA Cane's <br> DAVE BROCKIE EXPERIENCE <br> 8/30 Charlotte, NC Fat City <br> 9/01 Atlanta, GA Star Bar <br> 9/05 New Orleans, LA Dixie Taverne <br> 9/06 Houston, TX Fitzgerald's <br> 9/11 Tempe, AZ Big Fish Pub <br> 9/30 Cincinnati, OH Top Cat's <br> 10/01 Muncie, IN Fraction's <br> 10/02 Cleveland, OH Blind Lemon <br> 10/05 Worcester, MA Lucky Dog <br> LIZZY BORDEN <br> 7/06 Hollywood, CA House of Blues <br> 7/12 Anaheim, CA House of Blues <br> 7/13 San Francisco, CA Maritime Hall Ballroom <br> 7/14 Santa Cruz, CA Palookaville, Santa Cruz <br> JACOBS DREAM <br> 7/28 Columbus OH Park Metal Festival</p>
+
+Автор: Yermola
+
+### 07.08.2001 reviews Death metal  в чистейшем виде!
+
+<p>С первых секунд VADER пытаются уложить слушателя наповал прямым ударом в лоб. Почти получается. Кто-то даже скажет, что это не музыка. Переадресуйте полученный удар в лоб этому гражданину, чтоб не врал. Это антимузыка. Крайне высокий темп, ритмические сбивки, шквальный огонь гитар и "Михайло Потапыч" у микрофона. Death metal в чистейшем виде! Как правило, перед такими группами стоит сложная задача – создать энергетически насыщенное слушище, воспроизвести злобную атаку адских монстров на детский сад, насытив кровожадного слушателя кошмарными картинами. Что ж, картина, достойная вдохновения. Только у группы с последним некоторые проблемы – в качестве вдохновения команда использует находки классиков жанра. Группа вставляет цитаты именитых монстров напропалую, разбавляя песенные структуры собственными (кстати, и менее интересными) наворотами, атакует, атакует, атакует… Пожалуй, вот это и есть самый главный минус. Если монстры жанра знают, что иногда хорошо затихнуть в нужном месте всего на мгновение, и жар музыкальной плавильни возрастет многократно, то VADER об этом позабыли. Диск хорош, но предназначен только для ценителей жанра – выход за пределы этого круга ему не светит.</p>
+
+Автор: Tornado
+
+### 07.01.2002 news Эпитафия от VADER ...
+
+<p>Польские дэтстеры "VADER" в феврале засядут в Red Studio (ту самую где писались Litany и Reign Forever World) с продюссером Piotr Lukaszewski, чтобы начать работу над альбомом названным "Epitaph". Диск должен выйти в продажу 26-го мая. Это первый опус для команды с момента замены бассиста Shambo на Simon (ex-HUNTER). Всего будет 12-13 песен среди которых: <BR><BR> 01. Torch of War<BR> 02. The Wolftribe<BR> 03. From the Ashes Thy Create<BR> 04. Devotion<BR> 05. Begotten Son of Fire<BR> 06. When the Fallen Rise Again<BR> 07. Epitaph<BR><BR> Также будет записан кавер "MORBID ANGEL" - "Immortal Rites" для диска трибьюта....</p>
+
+Автор: Yermola
+
+### 07.01.2002 news VADER Set To Issue &quot;Epitaph&quot; In May ...
+
+<p>Polish death metal legends VADER are scheduled to enter Red Studio (the same studio where the group's Litany and Reign Forever World CDs were recorded) with producer with Piotr Lukaszewski during February to begin work on their upcoming CD, tentatively entitled Epitaph, for a May 26th release. The band's first CD with ex-HUNTER four-stringer Simon (who replaced Shambo last year), the follow-up to 2001's Reign Forever World will include 12-13 tracks, among them the following: <BR><BR> 01. Torch of War<BR> 02. The Wolftribe<BR> 03. From the Ashes Thy Create<BR> 04. Devotion<BR> 05. Begotten Son of Fire<BR> 06. When the Fallen Rise Again<BR> 07. Epitaph<BR><BR> In addition, two cover versions will be recorded, including a rendition of MORBID ANGEL's "Immortal Rites" for an upcoming MORBID ANGEL tribute album. Although presently unconfirmed, “Immortal Rites” may also appear as a bonus track on the Japanese or Polish edition of Epitaph.</p>
+
+Автор: Yermola
+
+### 10.01.2002 news Malevolent Creation will go into Abyss Studio?!?!?
+
+<p>Malevolent Creation will be invading the following countries, and then will go into Abyss Studio with producer Peter Tagtgren to record they're 8th studio album. Working title at this time is "The Will To Kill". Florida Death Metal being recorded in Sweden? It should be interesting!<BR><BR> Malevolent Creation//Kataklysm//Catastrophic<BR><BR> March<BR> 3/10/02 UK // T.B.A. <BR> 3/11/02 Ireland // Belfast<BR> 3/12/02 Ireland // Dublin<BR> 3/13/02 UK // Newcastle<BR> 3/14/02 UK // London<BR> 3/15/02 France // Rennes<BR> 3/16/02 Belgium // T.B.A.<BR> 3/17/02 France // Paris<BR> 3/18/02 France // Amneville<BR> 3/19/02 France // Perpignan<BR> 3/20/02 France // T.B.A.<BR> 3/21/02 Spain // Barcelona<BR> 3/22/02 Spain // Murcia<BR> 3/23/02 Spain // Madrid <BR> 3/24/02 Spain // Irun<BR> 3/25/02 France // T.B.A.<BR> 3/26/02 France // T.B.A.<BR> 3/27/02 Switzerland // Wil<BR><BR> No Mercy Festival's<BR> Immortal//Hypocrisy//Vader//Malevolent Creation//Disbelief//Catastrophic//Destroyer 666//Obscenity<BR><BR> March<BR> 3/28/02 Germany // Berlin<BR> 3/29/02 Germany // Engelsdorf<BR> 3/30/02 Germany // Offenbach<BR> 3/31/02 Belgium // Antwerpen<BR><BR> April<BR> 4/1/02 Holland // Tilburg<BR> 4/2/02 Germany // Essen<BR> 4/3/02 Switzerland // Pratteln<BR> 4/4/02 Italy // Milano<BR> 4/5/02 Austria // Vienna<BR> 4/6/02 Austria //Wels<BR> 4/7/02 France // Strasbourg<BR> 4/8/02 Germany // Offenbach<BR><BR> Malevolent Creation will then do a series of dates till May 4th in the following countries: Denmark,Sweden,Norway,Poland,Croatia,Slovenia,Czech Republic and Greece.These dates are being put together at this time,check our website for updates.Then it off to the studio for they're 8th Murderous studio album!</p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Откровения вместо эпитафии...
+
+<p>"VADER" решили поменять название нового альбома на "Revelations" вместо заявленного ранее "Epitaph". На альбом теперь уже точно войдут 12 вещей: <BR><BR> 01. Torch of War<BR> 02. The Wolftribe<BR> 03. From the Ashes Thy Create<BR> 04. Devotion<BR> 05. Begotten Son of Fire<BR> 06. When the Fallen Rise Again<BR> 07. Epitaph<BR> 08. The Absolut<BR> 09. I Am Who I Am<BR><BR> Кроме них будут присутствовать бонус-треки, среди которых кавер "Immortal Rites" от MORBID ANGEL, который также войдет на трибьютный альбом Морбидов на Hellspawn Records. Среди участников также будут KRISIUN, EMPEROR, ANGEL CORPSE и BEHEMOTH.... Дата релиза - 3-е июня.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news VADER have changed the title of forthcoming album from Epitaph to Revelations...
+
+<p>Polish death metal veterans VADER have changed the title of their forthcoming album from Epitaph to Revelations. The band's first CD with ex-HUNTER four-stringer Simon (who replaced Shambo last year), Revelations is currently being recorded at Red Studio (the same studio where the group's Litany and Reign Forever World CDs were recorded) with producer with Piotr Lukaszewski, and it will include 12 tracks, among them the following: <BR><BR> 01. Torch of War<BR> 02. The Wolftribe<BR> 03. From the Ashes Thy Create<BR> 04. Devotion<BR> 05. Begotten Son of Fire<BR> 06. When the Fallen Rise Again<BR> 07. Epitaph<BR> 08. The Absolut<BR> 09. I Am Who I Am<BR><BR> In addition, two cover versions will be recorded, including a rendition of MORBID ANGEL's "Immortal Rites" for an upcoming MORBID ANGEL tribute album on Hellspawn Records (which will also include contributions from KRISIUN, EMPEROR, ANGEL CORPSE, and BEHEMOTH, among others). Although presently unconfirmed, "Immortal Rites" may also appear as a bonus track on the Japanese or Polish edition of Revelations.<BR><BR> The follow-up to 2001's Reign Forever World is scheduled for a June 3rd release through Metal Blade Records.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 25.06.2002 news VADER have turned out to be the best heavy and rock act in May in Poland!
+
+<p><IMG SRC="/images/news/2002.06/2909.jpg" ALT="pho" width=346 height=177 hspace="15" vspace="5" border="1" align="right"> Their latest “Revelations” album ended up as No. 20 on the Top 100 of May’s best-selling albums in Poland. <BR><BR> 27 October will mark the beginning of VADER’s Japanese tour, which this time will consist of 5 club dates. <BR><BR> Oct-27 arrival Tokyo/Narita AP <BR> Oct-28 Tokyo On Air West(600)<BR> Oct-29 Nagoya Club Quattro(500)<BR> Oct-30 Osaka Club Quattro(700)<BR> Oct-31 Hiroshima Club Quattro(750)<BR> Nov-01 Fukuoka Be-1 (300)<BR> Nov-02 Departure Fukuoka AP via Osaka/Kansai AP<BR><BR> Soon afterwards, on the 6th of November, VADER will begin their North American tour which will last until early December. VADER will play with IMMOLATION, CEPHALIC CARNAGE, ORIGIN and DECEMBER and the tour is booked by FirstRow Talent Agency. More details to follow. Following the tour the band will hit South America for their first tour there. For the moment Tumba Records has planned 7-8 gigs in Brazil.</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Necroticism-Descanting The Insalubrious", 1991, Earache]<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 18.11.2002 reviews Groundbreaking effort
+
+<p>Doc still beats hell out of drums. VADER still play death metal. Well, good. I guess you know that Doc is absolutely the best death metal drummer in Europe. And I guess you know that VADER is one of the best death metal bands in Europe and whole goddamn world. That’s not enough to know, however. The third point is: probably “Revelations” is one of their most exciting offerings. I prefer “Litany”, but who cares? “Revelations” is groundbreaking effort, anyway. Mostly mid-tempo death metal, gloomy and as brutal as death metal should be (the day VADER will come up with SMDM-sounding CD, I would kill myself). Astoundingly executed and tremendously packaged. And yes, the closing track, “Revelation Of Black Moses” perhaps is THE grimmest (and weirdest?) tune these chaps ever managed to deliver. EXCELLENT (just in case you haven’t got my point).</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+### 06.07.2003 news BEHEMOTH против VADER
+
+<p>Польская black/death группа BEHEMOTH понесла потери в лице басиста Novy, ставшего постоянным участником другой польской группы VADER. Пока, BEHEMOTH пользуется услугами сессионного басиста Orion. В данный момент, группа работает над своим новым альбомом под названием "Nephilim Rising". Помимо того, группа подыскивает новый лэйбл. В самое ближайшее время выйдет мини-альбом "Conjuration", включающий в себя некоторые новые и неизданные вещи коллектива. Этот диск выйдет летом и будет содержать оригинальный материал, который впоследствии никуда не войдет. <BR> VADER также готовят к выпуску 20 октября на Metal Blade Records мини-альбом "Blood". В него войдут две совершенно новые вещи "We Wait" и "Shape-shifting", а также все вещи, которые выходили в качестве бонусов различных изданий альбомов группы.</p>
+
+Автор: Dimas
+
+### 08.07.2003 news Новые песни от Vader!
+
+<p>"We Wait" - новая песня от Vader, которая будет записана специально для вскоре выходящего мини-альбома "Blood". Лирика для новых двух вещей (вторая "Shape-shifting") была написана Павелом Фреликом (Pawel Frelik). Запись в студии начнется 10 июля! Ближе к концу месяца на официальном сайте группы www.vader.pl будут помещены фото со студии и возможно новые песни в mp3.</p>
+
+Автор: Darkfall
+
+### 09.07.2003 news &quot;Blood&quot; - новый мини-релиз польских дэтстеров Vader
+
+<p>10 июля начнется запись новых песен "We Wait" и "Shape-shifting". Эти песни войдут в новый мини-альбом "Blood". Он должен выйти на Metal Blade Records 20 октября. Уже известен трэклист нового мини-опуса: 01. As The Fallen Rise 02. Angel Of Death 03. When Darkness Calls 04. Son Of Fire 05. Traveler А также мини-диск будет включать в себя новые трэки "We Wait" и "Shape-Shifting".</p>
+
+Автор: Darkfall
+
+### 14.07.2003 news Новый бас-гитарист BEHEMOTH
+
+<p>После трех лет совместной работы пути бас-гитариста Novy и его теперь уже бывшей группы Behemoth разошлись. Он ушел к землякам Vader. А Behemoth остались без одного участника. Участники группы говорят, что чувствовали, что рано или поздно это должно было произойти. Но они не долго стояли на месте. После двух выступлений во Франции с сессионным бас-гитаристом Orion участник группы Nergal говорит, что музыка Behemoth никогда не звучала так мощно и жестко. Поэтому есть шанс, что Orion станет постоянным участником группы.</p>
+
+Автор: Darkfall
+
+### 01.08.2003 news Новый MCD от VADER
+
+<p>Стал известен точный трэклист нового мини-творения "Blood" польских дэтстеров VADER:</p>
+<P> 1. Shape-Shifting <BR> 2. We Wait <BR> 3. Son Of Fire <BR> 4. As The Fallen Rise <BR> 5. Traveller <BR> 6. When Darkness Calls <BR> 7. Angel Of Death (Thin Lizzy cover)</p>
+<p> Официальный сайт Vader заявил, что релиз мини-альбома "Blood" перенесен с 20 октября на 25 сентября.</p>
+
+Автор: Darkfall
+
+### 01.10.2003 news Nile, Kreator, Vader, Amon Amarth and Goatwhore in USA
+
+10/03 Austin, TX <BR>10/04 Dallas, TX <BR>10/05 El Paso, TX <BR>10/06 Phoenix, AZ <BR>10/07 Hollywood, CA <BR>10/08 Santa Ana, CA <BR>10/09 Sacramento, CA <BR>10/10 San Francisco, CA <BR>10/11 Portland, OR <BR>10/12 Seattle, WA <BR>10/14 Denver, CO <BR>10/15 Lawrence, KS <BR>10/16 Minneapolis, MN <BR>10/17 Sauget, IL <BR>10/18 Chicago, IL <BR>10/19 Cincinnati, OH <BR>10/20 Cleveland, OH <BR>10/21 New York, NY <BR>10/23 Philadelphia, PA <BR>10/24 Poughkeepsie, NY <BR>10/25 Worcester, MA <BR>10/26 West Springfield, VA <BR>10/29 Fort Lauderdale, FL <BR>10/30 Tampa, FL <BR>10/31 Atlanta, GA
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 09.01.2004 reviews Кррррови, ещё кррррови!
+
+Честно говоря, нет большей муки для рецензента, чем обозревать такие альбомы как “Blood”. Точнее, мини-альбомы. И не просто мини-альбомы, а _промежуточные_ мини-альбомы. Парочка новых вещей, парочка ранее неизданных плюс шикарнейший кавер “Angel of Death” авторства THIN LIZZY. Все шесть собственных, «ведёровских», вещей выдержаны в духе “Litany” – то бишь, быстрее, злее и прямолинейнее чем материал, представленный на “Revelations”, последнем полноформатнике VADER. В целом же – чистой воды VADER, такой, каким мы его любим. Ни к качеству игры, ни к качеству записи, ни к собственно музыке придраться невозможно. Блестящий альбом. Перефразируя один небезызвестный слоган: «Покупай, а то проиграешь!».
+Диск предоставлен компанией ФОНО
+Автор: Kai Mathias Stalhammar
+
+### 28.02.2004 news Тур VADER Battle In The East
+
+<P>Белорусское концертное агенство THE FLAMING ARTS подтвердило первые даты предстоящего апрельского BATTLE IN THE EAST тура поляков VADER.</P>
+<P><BR>15.04 - Калининград (Россия)<BR>16.04 - Вильнюс (Литва)<BR>17.04 - Рига (Латвия)<BR>18.04 - Тарту (Эстония)<BR>19.04 - Санкт-Петербург (Россия)<BR>20.04 - выходной день<BR>21.04 - Ярославль (Россия)</P>
+<P><BR>...больше дат скоро...<BR>Известно, что тур продлится до 30 апреля и затронет еще несколько городов России, Беларуси, Украины. Следите за новостями.<BR>К сожалению, барабанщик группы Доцент не сможет отправиться в тур из-за недавнего повреждения ноги и руки, на восстановление которых уйдет несколько месяцев. Сессионным барабанщиком на трассе будет DARAY из VESANIA.<BR></P>
+Автор: Vit Belov
+
+### 30.03.2004 news Тур VADER Battle In The East
+
+THE FLAMING ARTS Booking Agency представляет:<BR>VADER + Everlost* (Москва) - BATTLES IN THE EAST Tour 2004<BR>15.04 - КАЛИНИНГРАД (РОССИЯ) - клуб Башня Врангеля<BR>16.04 - VILNIUS (LITHUANIA) - club MULEN RUZAS<BR>17.04 - RIGA (LATVIA) - club Salamandra<BR>18.04 - TARTU (ESTONIA) - club Sobra Maja<BR>19.04 - САНКТ-ПЕТЕРБУРГ (РОССИЯ) - клуб АРКТИКА<BR>21.04 - ЯРОСЛАВЛЬ (РОССИЯ)* - клуб ПАРТИЗАН<BR>22.04 - МОСКВА (РОССИЯ) - клуб RELAX<BR>24.04 - САМАРА (РОССИЯ)<BR>25.04 - УФА (РОССИЯ) - ДК РТИ<BR>26.04 - ТУЛА (РОССИЯ)*<BR>28.04 - КИЕВ (УКРАИНА)*<BR>29.04 - МИНСК (БЕЛАРУСЬ)* - клуб Реактор<BR>Подробности о выступающих группах, цене билета и другую информацию Вы сможете получить на&nbsp;сайте <A href="http://www.theflamingarts.net"><U>www.theflamingarts.net</U></A><BR><BR>
+Автор: Vit Belov
+
+### 05.04.2004 news Подробности о туре Vader
+
+<P>Организатор тура <B>VADER</B> по странам бывшего СССР <B>The Flaming Arts</B> прислал обновленный список городов, в которых появятся поляки.</P>
+<P><B>VADER</B> + <B>Everlost</B>* (Москва) - <B>BATTLES IN THE EAST Tour 2004</B><BR>15.04 - КАЛИНИНГРАД (РОССИЯ) - клуб Башня Врангеля<BR>16.04 - VILNIUS (LITHUANIA) - club MULEN RUZAS<BR>17.04 - RIGA (LATVIA) - club Salamandra<BR>18.04 - TARTU (ESTONIA) - club Sobra Maja<BR>19.04 - САНКТ-ПЕТЕРБУРГ (РОССИЯ) - клуб АРКТИКА<BR>21.04 - ЯРОСЛАВЛЬ (РОССИЯ)* - клуб ПАРТИЗАН<BR>22.04 - МОСКВА (РОССИЯ) - клуб RELAX<BR>24.04 - САМАРА (РОССИЯ)<BR>25.04 - УФА (РОССИЯ) - ДК РТИ<BR>26.04 - ТУЛА (РОССИЯ)*<BR>28.04 - КИЕВ (УКРАИНА)*<BR>29.04 - МИНСК (БЕЛАРУСЬ)* - клуб Реактор<BR>Подробности о выступающих группах, цене билета и другую информацию Вы сможете получить на нашем сайте <A href="http://www.theflamingarts.net/"><U>www.theflamingarts.net</U></A></P>
+<P>К сожалению, анонсируемый ранее концерт в Харькове был отменен по вине местных организаторов, за что приносим наши извинения всем фэнам, ожидавшим поляков в своем городе.</P>
+<P>Специально к туру <B>VADER</B> будет выпущен лимитированный тираж эксклюзивных туровых маек с расписанием трассы. Эти майки, а так же другой мерчендайзинг группы Вы сможете приобрести на каждом из концертов <B>BATTLES IN THE EAST Tour</B>. За несколко дней до начала трассы на&nbsp;сайте&nbsp;промоутера&nbsp;будет вывешен образец дизайна.<BR><BR></P>
+Автор: Vit Belov
+
+### 06.07.2004 news VADER записали новый альбом
+
+<P>20 сентября на <B>Metal Blade</B> выйдет новый альбом <B>VADER 'The Beast'</B>. Альбом был записан в <B>Radio Gdansk Studio </B>с продюсером <B>Piotr Lukaszewski</B> (<B>"Reign Forever World"</B>, <B>"Revelations"</B>, <B>"Blood"</B>). Трэк-лист:</P>
+<P>01. <B>Intro</B><BR>02. <B>Dark Transmission</B><BR>03. <B>Firebringer</B><BR>04. <B>The Sea Came In At Last</B><BR>05. <B>I Shall Prevail</B><BR>06. <B>The Zone</B><BR>07. <B>Insomnia</B><BR>08. <B>Apopheniac</B><BR>09. <B>Choices</B><BR>10. <B>Stranger In the Mirror</B> (Japanese bonus track) </P>
+Автор: Vit Belov
+
+### 03.08.2004 news Подробности о новом альбоме VADER
+
+<P><IMG height=250 alt="" hspace=10 src="/images/news_rus/2004.08/6855.jpg" width=250 align="left" border=0>20 сентября на <B>Metal Blade Records</B> выходит новейший суперрелиз польской формации <B>VADER "The Beast".</B> Альбом был записан в польской <B>Radio Gdansk Studio</B> с продюсером <B>Piotr Lukaszewski,</B> работавшим над предыдущими альбомами группы<B>.</B> Лимитированное издание альбома будет также содержать бонусный dvd диск, на котором можно будет увидеть видеоклип, студийные отчеты и фрагменты концертных выступлений группы. А 31 августа выйдет сингл предваряющий выход альбома. В него войдет главный хит альбома <B>"Beware The Beast",</B> еще одна новая песня, студийные видеоотчеты и видеоклип.</P>
+Автор: Дофф
+
+### 18.08.2004 news Новая песня VADER
+
+<P>В сеть выложена песня "<STRONG>Dark Transmission</STRONG>" с нового альбома <STRONG>VADER 'The Beast'</STRONG>. Вы можете послушать её здесь: <A href="/samples/v/vader/2004_1151.mp3">http://musica.mustdie.ru/samples/v/vader/2004_1151.mp3</A></P>
+Автор: Vit Belov
+
+### 20.01.2005 news Новости от VADER
+
+<P>Польские дэтстеры&nbsp;<B>VADER</B> планируют в начале июля запись своего нового мини-альбома <STRONG>"The Art of War"</STRONG> в <B>Hertz Studio. </B>Как написано на официальном сайте группы, он будет содержать три экстремальных и &nbsp;скоростных боевика и одну вещь в типичном для группы стиле.&nbsp;&nbsp;Также, в качестве бонуса, в этот релиз войдет видеоклип на заглавную вещь. У музыкантов завершился контракт с <STRONG>Metal Blade</STRONG>, и они находятся в поиске нового выпускающего лейбла, выбирая наилучшие предложения.</P>
+Автор: Dimas
+
+### 29.01.2005 reviews Cделано в Польше
+
+<P>Очередной релиз, наверное, самой успешной формации на территории бывшего соц. лагеря. По крайней мере, на территории Польши - это уж 100%. На сегодняшний день у Vader за плечами несколько мировых турне и удачных релизов, возводящих их в ранг культовой группы, со всеми вытекающими из этого последствиями. Новая работа по большому счету представляет собой смесь среднетемпового дэта и трэша. Местами некоторые композиции напоминают легендарный альбом ветеранов Sodom "Tapping The Vain", местами ранние опусы Slayer. Та же мощная, подача, те же приемы и ходы, преобладание трэшевых элементов в музыке. Не перестаю восхищаться мастерством игры польских барабанщиков и Daray в частности. На The Beast он в который раз показывает свое мастерство играть не только быстро, ровно и агрессивно, но и разнообразить довольно стандартные рисунки посредством использования таких тарелок, как сплэш и чайна. А чего стоят высокотехничные бочечные форшлаги в композиции I Shall Prevail. Ураган!!! Не отстают от него в&nbsp; профессионализме и остальные участники коллектива. Высокотехничная и интересная пластинка.</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A><BR></P>
+Автор: Fucker
+
+### 22.03.2005 news Doc Покинул VADER
+
+<P><STRONG>VADER</STRONG> расстались с барабанщиком <STRONG>Doc</STRONG> после 17 лет совместной деятельности. Напомним, что <STRONG>Doc </STRONG>уже не играл в группе в течение года. Теперь <STRONG>Daray</STRONG> стал постоянным членом коллектива.</P>
+Автор: Vit Belov
+
+### 25.03.2005 news VADER подписались на Regain
+
+<P><STRONG>VADER </STRONG>стали ещё одним приобретением динамично развивающегося лэйбла<STRONG> Reagin Records</STRONG>. Первым релизом группы станет мини-альбом "<STRONG>The Art Of War</STRONG>" в октябре 2005 года.&nbsp;Полноценная же пластинка выйдет только осенью 2006 года.&nbsp;</P>
+Автор: Vit Belov
+
+### 04.05.2005 news Anorexia Nervosa, Vader и Rotting Christ в совместном турне!!!
+
+<P>Тур начинается 5 сентября и закончится 23 октября. 49 дней! 49 концертов! Голландия, Бельгия, Франция, Испания, Португалия, Италия, Германия, Скандинавские государства и другие.....&nbsp;&nbsp; но, к сожалению, ни одного концерта в России. </P>
+<P>&nbsp;</P>
+Автор: Bizarre
+
+### 21.08.2005 news Умер Doc!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=458 alt=Doc hspace=0 src="/images/news_rus/2005.08/9153.jpg" width=300 align=left border=5>Бывший барабанщик <STRONG>VADER Doc</STRONG> скончался. Об этом вчера сообщили официальные сайты нескольких польских команд.</FONT></P>
+Автор: Vit Belov
+
+### 21.08.2005 news Doc has passed away
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=458 alt=Doc hspace=0 src="/images/news/2005.08/9154.jpg" width=300 align=left border=5>Long-time drummer of <STRONG>VADER Doc (</STRONG>not in the band now<STRONG>)</STRONG>&nbsp;has passed away. Some web-sites of famous polish band has reported about it yesterday.</FONT></P>
+Автор: Vit Belov
+
+### 14.11.2005 news Новый миньон от VADER
+
+<P><STRONG>VADER</STRONG> выпустили новый мини-альбом "<STRONG>The Art Of War</STRONG>"&nbsp;на <STRONG>Regain Records</STRONG>. Пластинка была записана в<STRONG> Herz Studio</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Para Bellum</STRONG> <BR>2. <STRONG>This Is The War</STRONG><BR>3. <STRONG>Lead Us !!! <BR></STRONG>4. <STRONG>Banners On The Wind</STRONG><BR>5. <STRONG>What Colour Is Your Blood?<BR></STRONG>6. <STRONG>Death In Silence</STRONG> <BR>7. <STRONG>This Is The War</STRONG> (video)</P>
+Автор: Vit Belov
+
+### 10.04.2006 news VADER - новый альбом и планы на будущее!
+
+<P>22 апреля <STRONG>VADER</STRONG> начинают запись нового альбома под названием "<STRONG>Impressions In Red</STRONG>" в <STRONG>Herz</STRONG>&nbsp; стyдии вместе с братьями <STRONG>Wiesіawscy</STRONG>, продюсировавшими их последний MCD&nbsp; "<STRONG>The Art Of War</STRONG>". Запись продлиться до 25 мая. Альбом в отличие от прошлогоднего&nbsp; футуристического MCD будет сфокусирован вокруг темного и мистического видения ада на земле, вдохновленного средневековыми авторами наподобие Иеронимуса Босха. Кроме того в Июле группа собирается отснять видео, которое так же будет отталкиватся от средневековых образов. Оформлением альбома занимается греческий мастер <STRONG>Seth (Paradise Lost, Rotting Christ, Septic Flesh...).</STRONG> Выпуск альбома запланирован на 4 сентября на&nbsp; <STRONG>Regain Records</STRONG>. </P>
+<P>А 17 Сентября&nbsp; начнется новое турне <STRONG>VADER</STRONG>, в котором запланировано более 90 концертов во всех странах Европы, Англии, Скандинавии, Прибалтике. В 2007 году уже запланированы туры в Северной и Южной Америке, Азии и Восточной европе. </P>
+Автор: Bizarre
+
+### 10.05.2006 news VADER пишут новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>VADER</STRONG> вошли в студию <STRONG>Herz</STRONG>, где пишут новый альбом "<STRONG>Impressions In Blood</STRONG>"&nbsp; (рабочее название "<STRONG>Impressions in R</STRONG>ed"). Уже записаны некоторые барабанные партии. Лидер поляков<STRONG> Peter</STRONG> обещает самый быстрый альбом в истории группы. Пластинка выйдет 4 сентября на<STRONG> Regain</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 03.07.2006 news Свежая кровь от VADER
+
+<P>Ветераны польского&nbsp;death metal <B>VADER</B>&nbsp;готовят к выходу свой новый альбом под названием&nbsp;<B>"Impressions in Blood".</B> Дата релиза - 4 сентября на <B>Regain Records</B>. Альбом был записан в польской <B>Hertz Studio.</B> Его оформлением занимался участник несуществующих ныне <STRONG>SEPTIC FLESH</STRONG> <STRONG>Seth</STRONG>, ставший в последнее время популярным андерграундным оформителем, поработав с<STRONG> ROTTING CHRIST</STRONG> и&nbsp;<STRONG>PARADISE LOST</STRONG>. Трек-лист альбома:</P>
+<P><BR><IMG height=300 alt="" hspace=20 src="/images/news_rus/2006.07/10512.jpg" width=300 align=left border=0>1. <B>Between Day and Night</B><BR>2. <B>ShadowsFear</B><BR>3. <B>As Heavens Collide...</B><BR>4. <B>Helleluyah!!! (God is Dead)</B><BR>5. <B>Field of Heads</B><BR>6. <B>Predator</B><BR>7. <B>Warlords</B><BR>8. <B>Red Code</B><BR>9. <B>Amongst the Ruins</B><BR>10. <B>They Live!!!</B><BR>11. <B>The Book</B></P>
+<P><STRONG></STRONG>&nbsp;</P>
+<P><STRONG></STRONG>&nbsp;</P>
+<P>&nbsp;</P>
+<P>&nbsp;</P>
+<P><BR><BR>На нашем сайте, уже можно ознакомиться с новой композицией группы&nbsp;<B>"Warlords".</B></P>
+Автор: Dimas
+
+### 21.08.2006 reviews Готовься к войне!
+
+<P>Польские короли дэта Vader ведут себя уже совсем, так сказать, по-взрослому. Пока готовится к выходу новый полноформатник, можно утолить голод поклонников выпуском ЕР. Таковым и стал "The Art Of War". Четыре новые дэт-бомбы (не будем считать отдельными вещами два intro) с присущим группе плотным и мощным звуком, тяжелые и разбивающие всё на своем пути должны заставить фанатов смести эту пластинку с прилавков и заполнить тот промежуток времени, пока в мартене готовится свежий альбом. В дополнение "Вёдра" записали на "The Art Of War" видеоклип, который наверняка придется по душе любителям компьютерных игр, а также фильмов в духе "Звездных войн" (а с персонажами клипа вы сможете ознакомиться в буклете к этому ЕР). И не слушайте завистников и пессимистов - Vader не стал хуже или лучше, он остался самим собой. Польская сцена в который уже раз доказывает, что с ней приходится считаться. Не очень высокий балл обусловлен тем, что данного материала просто слишком мало. И добавлю, что "The Art Of War" посвящен памяти безвременно ушедшего Кшыштофа Рачковского, более известного как "Док". R.I.P.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 29.11.2006 news Юбилейный альбом VADER
+
+<P>В 2008 году&nbsp;брутальные поляки&nbsp;<B>VADER</B> будут отмечать свое двадцатипятилетие. По этому поводу, музыканты планируют засесть&nbsp; в <STRONG>Hertz Studio</STRONG> в марте 2007 года, чтобы перезаписать 25 своих лучших&nbsp;композиций из обильной дискографии коллектива. Эти песни войдут&nbsp;в специальный юбилейный альбом, к которому планируется двд-бонус с архивными съемками, концертными номерами, видеоклипами и многим другим.&nbsp;К этому событию <B>Jaroslaw Szubrycht</B>, известный польский журналист (написавший биографию группы&nbsp;<B>SLAYER</B>) закончит работу над биографией <B>VADER</B>. </P>
+Автор: Dimas
+
+### 03.05.2007 reviews И вновь убийственный релиз от польских динозавров дэт-метала
+
+<P>Новый альбом польских динозавров дэт-метала Vader под названием "Impressions In Blood" вышел как раз к двадцатилетию с момента создания группы. И снова, в который уже раз, нас радует эта команда братьев-славян очередной потрясающей работой. Те, кто считает, что в дэте нет ничего, кроме беспрестанной долбежки и злобного рыка, могут дальше не читать - им всё равно уже ничего не поможет. Мощнейшая звуковая стена, потрясающие гитарные соло, безумная поддержка ритм-секции, уверенный как никогда вокал Петера - вот что такое бескомпромиссный дэт-метал сегодняшних "Вёдер". Поляки легко "убирают" кучу коллег по цеху, неважно из каких те стран. Vader не увлекается длинными релизами, всего лишь 37 минут музыки - но какой!&nbsp;Я не перестаю удивляться, как группе удается раз за разом записывать отличные альбомы, и пусть многие это назовут самоплагиатом, самоповтором, да неважно еще чем - "Impressions In Blood" войдет в историю как один из лучших альбом жанра в 2006-ом году. Сколько мы слышали тупого долбилова на одной ноте, однообразного рычания вокалистов, бесконечного повторения одних и тех же риффов! Vader показывают, как НАДО играть дэт-метал. При всем при этом они не стали ударяться в новомодные дела, как сделали их соотечественники Decapitated, записав свой самый слабый альбом (хотя не удивлюсь, что он прекрасно продается). "Вёдра" верны себе как никогда, и никакие современной тренды не собьют их с пути - иначе это уже будет не Vader. Всем фанатам группы и любителям стиля - срочно и обязательно приобретать альбом, а те, кто в дэт-метале слышат (точнее, хотят слышать) только то, что я указывал выше - пусть всё же попробуют пересмотреть свои ретроградские взгляды на этот стиль, послушав "Impressions In Blood". Заметьте, что Vader последнее время выпускают альбомы раз в два года (а данная работа это всего лишь восьмой их студийник), и пусть продолжительность пластинки не дотягивает даже до 40-иминутной отметки - мы всегда уверены, что группа выдаст там материал высочайшего качества.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 06.06.2007 news THE FLAMING ARTS festival tour 2007!!!
+
+<P>Белорусское концертное агентство <STRONG>THE FLAMING ARTS</STRONG> сообщает о грандиозном событии в сентябре. Первый в СНГ фестивальный тур, участие в котором примут сразу четыре хэдлайнера. На одной сцене этого фестиваля выступят -<STRONG> VADER</STRONG> (Польша), <STRONG>ROTTING CHRIST</STRONG> (Греция), <STRONG>KRISIUN</STRONG> (Бразилия), <STRONG>INCANTATION</STRONG> (США), а так же несколько саппорт групп из Европы. <STRONG>THE FLAMING ARTS FESTIVAL</STRONG> пройдет сразу в нескольких крупнейших городах СНГ и порадует максимальное количество фэнов тяжелой музыки! Следите за информацией!</P>
+Автор: Vit Belov
+
+### 07.07.2007 news Даты THE FLAMING ARTS FESTIVAL TOUR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стали известны даты анонсируемого <STRONG>The Flaming Arts Tour&nbsp;Festival</STRONG>&nbsp;по России и Беларуси. Событие примет старт 16 сентября в Санкт-Петербурге и закончится 23 сентября где-то в Беларуси.</FONT></P>
+<P>16.09 - Санкт-Петербург, Орландина<BR>18.09 -&nbsp;Уфа, Огни Уфы&nbsp;<BR>19.09 -&nbsp;Екатеринбург, tba&nbsp;<BR>20.09 -&nbsp;Магнитогорск, ДК Орджоникидзе&nbsp;<BR>21.09 - Самара, Строковский Парк<BR>22.09 -&nbsp;Москва, Точка&nbsp;<BR>23.09 -&nbsp;Беларусь, tba&nbsp;<BR></P>
+Автор: Vit Belov
+
+### 23.08.2007 news Moscow Metal Fest 2007
+
+<P>
+<CENTER><IMG height=450 src="/images/shows_rus/2007.09/11778.jpg" width=300 border=0></CENTER>
+Автор: Dimas
+
+### 29.08.2007 articles THE FLAMING ARTS FESTIVAL: пресс-релиз
+
+<P>THE FLAMING ARTS FESTIVAL</P>
+<P>VADER (Польша)<BR>ROTTING CHRIST (Греция)<BR>KRISIUN (Бразилия)<BR>INCANTATION (США)<BR>AMENTI (Великобритания)<BR>RIUL DOAMNEI (Италия)</P>
+<P>В сентябре этого года состоится уникальное событие для экстремальной сцены СНГ – THE FLAMING ARTS FESTIVAL TOUR 2007. Уже несколько раз делались попытки, и порой достаточно удачные, по проведению фестивалей в таких городах, как Москва, Санкт-Петербург или Киев, но впервые фэны экстремальной музыки других населенных пунктов увидят что-то подобное в своем городе! В программе фестиваля сразу 4 больших хэдлайнера: INCANTATION, KRISIUN, ROTTING CHRIST и VADER, а так же не менее интересный саппорт из-за границы. <BR>Что объединяет эти 4 коллектива из 4-х стран с 3-х разных континентов. Прежде всего, существенный вклад в развитие современной экстремальной музыки, высочайшее качество исполнения и безусловный профессионализм, как в студийной, так и в концертной деятельности. Все группы имеют огромный туровый опыт, в том числе значатся за&nbsp; ними и совместные выступления, правда, в такой связке они впервые. </P>
+<P>INCANTATION – группа, входящая в высшую лигу американского death metal появились в 1989 году, во времена появления множества death metal групп. Эстафету Флориды приняли Нью-Йорк, Калифорния, стали появляться группы, играющие death metal в Европе. Одним из новоявленных проектов стали INCANTATION из Пенсильвании во главе с гитаристом Джоном Макинти. Этот обладатель шотландской фамилии единственный человек, который всегда занимался этой группой. В остальном же, состав коллектива пережил просто немыслимое число изменений: к 2002 году в группе успело попеть 6! вокалистов, периодически они совмещали вокал с басовыми партиями. В итоге, все это настолько надоело Макинти, что он принял решение взять вокальные партии на себя, что после года подготовки и сделал. Именно его голос мы слышим на последних двух альбомах классиков американского death metal. За свою 18 летнюю карьеру группа успела побывать с концертами практически на всех континентах и всегда привозила с собой невероятно мощное и качественное шоу, т.к. считают, что фэны группы заслуживают этого и не могут быть разочарованы в коллективе. Последний диск, "Primordial Domination", вышел в сентябре прошлого года. Группа дала множество концертов в США и Европе, в октябре новый альбом будет представлен и у нас.</P>
+<P>KRISIUN – группа гиперскоростных братьев, заслуженных брутальщиков из Бразилии, которые снискали себе легендарную репутацию в мире, и всегда ассоциировались с высоким качеством музыки и уважением среди фэнов.&nbsp; Бразилия – это страна с множеством metal коллективов, правда за пределами страны Амазонки они в большинстве своем мало известны, исключение составляет совсем небольшое число команд, среди них Sepultura, Angra, Soulfly и, безусловно, KRISIUN. Они образовались в 1990 году, в 1995-м вышел дебютный альбом, сегодня на их счету уже 7 полноформатников, кроме того, в прошлом году вышел первый DVD коллектива. Трио начало давать концерты зарубежом с конца 90-х годов, сегодня на их счету уже более полутысячи живых выступлений за пределами родины (даже в Японии!), они постоянные участники фестивальных дэт-металлических туров. Cannibal Corpse, Nile, Immolation, Cryptopsy, Vader, Decapitated, Dying Fetus, Deicide, Behemoth, Morbid Angel - вот далеко не полный список групп, с которыми KRISIUN ездили в туры. <BR>На сей раз в сетке их гастрольного графика значатся и города СНГ. </P>
+<P>ROTTING CHRIST - коллектив уникальный. С каждым годом они только и делают, что набирают обороты. На первых демо группы Сакиса Толиса мы слышим очень сырой и грязный death metal, чуть позже начинают проскальзывать элементы black metal, так или иначе в 1993 году ROTTING CHRIST выпускают свой первый релиз "Thy Mighty Contract", который явился настоящим издевательством над критиками. Привычная техника по навешиванию ярлыка, определению жанра и т.п. честно провалилась, ROTTING CHRIST творили в своем собственном ключе, соединяя элементы различных музыкальных стилей и в&nbsp; то же время оставаясь уникальными и непохожими ни на одну из существующих групп европейской экстремальной сцены. Дальше были "Non Serviam" и "Triarchy Of The Lost Lovers", альбомы, собственно и принесшие известность коллективу, музыку команды в итоге стали называть dark metal. Прошел десяток лет, в январе этого года свет увидел уже 9-ый студийник группы, их музыка по-прежнему оригинальна: атмосферные клавиши, хоры, торжественное звучание... Сакис постоянно экспериментирует, так, например, последние релизы звучат более быстро и агрессивно, чем работы конца 90-х. В 2005 году они уже посещали Гомель, Киев и несколько российских городов, пришедшие на концерты фэны были невероятно довольны их выступлениями и той энергией, которая исходила от горячих парней из Греции. С тех пор множество поклонников группы желали услышать их вновь, теперь такой шанс представляется.</P>
+<P>Знаменитые VADER станут главными хэдлайнерами фестиваля. Этой польской формации давеча стукнуло 20 лет. Достижения VADER трудно переоценить. Группа во многом уникальная для Европы, пионеры польской экстремальной сцены, которые её во многом-то и подняли. Уже в 1990-1991 годах VADER начинают активно гастролировать, в том числе дважды посещают Москву! В 1993 выходит дебютник коллектива и сразу же после релиза поляки отправляются сначала в европейское, а потом и американское турне. С тех пор вышло ещё 7 студийных и 2 концертных альбома, VADER давно стали классикой европейского death metal, став на одну ступень с такими монстрами, как CANNIBAL CORPSE или MORBID ANGEL. Музыканты во главе с бессменным лидером коллектива вокалистом и гитаристом Питером ведут более чем активную гастрольную деятельность. На последних альбомах музыка группы стала более мелодичной, многообразной, выросла роль клавиш, в то же время никуда не делись агрессия и потрясающая энергетика, пронизывающие все творчество VADER. Последний раз этот весьма любимый на просторах СНГ коллектив посещал нас в 2004 году, теперь они возвращаются, чтобы в очередной раз обрушить на нас лавину убийственной техники и познакомить с последним альбомом "Impressions in Blood". Многотысячная армия фэнов из СНГ давно заждалась польских корифеев! Польский танк уже в пути!!!</P>
+<P>&nbsp;</P>
+<P>Помимо столь именитых хэдлайнеров в фестивале примут участие ещё две очень интересные группы – английский modern thrash metal AMENTI, молодые, но невероятно профессиональные музыканты, которые успели сыграть уже множество туров по Великобритании со многими монстрами экстремальной сцены, а так же итальянский sympho black metal RIUL DOAMNEI, совсем недавно выпустивший свой дебютный альбом для европейского и японского рынков посредством французского лейбла DEADSUN RECORDS.</P>
+<P>Ждем вас на концертах THE FLAMING ARTS FESTIVAL TOUR 2007.<BR>Пресс-релиз подготовил Алан Ахметов (TheMetalList.com)</P>
+Автор: Vit Belov
+
+### 17.09.2007 news THE FLAMING ARTS FESTIVAL
+
+<CENTER><IMG height=567 src="/images/news_rus/2007.09/11831.jpg" width=400 border=0></CENTER>
+Автор: Dimas
+
+### 19.02.2008 news VADER готовят альбом
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.02/12261.jpg" width=400 align=left border=5>VADER </STRONG>готовят новый альбом, посвящённый 25-летию группы. Пластинка получила название "<STRONG>XXV</STRONG>" и выйдет в конце мая на <STRONG>Regain</STRONG>. "Регулярная" длительность альбома будет 96 минут. 96 минут death-metal!!!</P>
+Автор: Vit Belov
+
+### 17.06.2008 news VADER потеряли басиста
+
+<P>После пяти лет совместной работы группу <STRONG>VADER</STRONG> покинул басист <STRONG>Novy</STRONG>. Поляки уже объявили имя временного музыканта, им стал бывший музыкант <STRONG>DECAPITATED Martin</STRONG>.</P>
+Автор: Vit Belov
+
+### 30.08.2008 news Перестановки в VADER
+
+<P>По сообщению сайта<STRONG> Interia.pl VADER</STRONG> покинули барабанщик <STRONG>Dariusz "Daray" Brzozowski</STRONG>&nbsp;и гитарист&nbsp;<B itxtvisited="1">Maurycy "Mauser" Stefanowicz</B>. Барабанщик присоединился к<STRONG> DIMMU BORGIR</STRONG>, а гитарист решил сконцентрироваться на собственном проекте <STRONG>UNSUN. </STRONG>В числе возможных кандидатов на замену называются бывший драммер<STRONG> LOST SOUL</STRONG> <STRONG>Adam Sierzega </STRONG>и гитаристы <STRONG>Jacek Hiro </STRONG>из <STRONG>SCEPTIC</STRONG> и <STRONG>Waclaw "Vogg" Kieltyka</STRONG> из <STRONG>DECAPITATED</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.11.2008 news Видео VADER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип на песню<STRONG> VADER "Carnal"</STRONG> можно посомтреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=222 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=1513682&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=1513682&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="222"></embed></OBJECT><BR><A href="http://vimeo.com/1513682">Vader - Carnal</A> from <A href="http://vimeo.com/user385857">Carlos Abysmo</A> on <A href="http://vimeo.com/">Vimeo</A>.</CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 05.01.2009 news Piotr &quot;Peter&quot; Wiwczarek: &quot;Уход музыкантов не стал сюрпризом&quot;.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=377 alt="" hspace=0 src="/images/news_rus/2009.01/13291.jpg" width=250 align=left border=5>В интервью <STRONG>Metal Rules.Com</STRONG> лидер <STRONG>VADER</STRONG> <STRONG>Piotr "Peter" Wiwczarek </STRONG>рассказал о последних сменах состава в <STRONG>VADER</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Почти одновременно группу покинули басист Novy, барабанщик Daray и гитарист Mauser.&nbsp;Музыканты, пришедшие им на замену, пока не являются полноправными членами группы, они и сами ещё не решили, чего хотят. Найти квалифицированных музыкантров достаточно легко, а вот найти людей, которые готовы проводить в турах две трети года вдали от своих семей, не так то просто. Каждый из музыкантов ушёл по собственной причине. С басистом Novy мы были знакомы много лет, и он не разу не заводил разговоров о деньгах. Сюрпризом стало то, что он поднял этот вопрос во время тура по США. Он деньги поставил выше дружбы, мы пожелали друг другу удачи и разошлись. Гитарист Mauser довольно давно начал свой проект UNSUN, где у него поёт собственная жена. Как только они подписали первый контракт, он попросил расчёт. Единственное, что меня удивляет, это стиль UNSUN. Он всегда любил мощную не коммерческую музыку, а тут... Барабанщик же Daray начал искать новую работу у меня за спиной. О том, что его взяли в DIMMU BORGIR я узнал из Интернет. Это было неприятно. Когда он мне сообщил об увольнении, я поинтересовался, почему он уходит. Он же начал рассказывать про то, что устал, хочет больше времени проводить с семьёй и девушкой и.т.п.</EM>"</FONT></P>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 16.01.2009 reviews И пролилася кровь над Варшавою...
+
+<P>Польские дэтстеры Vader всегда относились к тем коллективам, которые просто не могут плохо выступать вживую. Не стал исключением и концерт, состоявшийся 12 февраля 2007-го года в варшавском клубе "Stodola" и завершавший тур группы в поддержку альбома "Impressions In Blood". "Вёдра" они и в Африке "Вёдра", и здесь они в очередной подтверждают звание лучшей польской группы тяжелой сцены. Вы увидите и услышите 20 номеров (включая два интро) в течение примерно 70 минут. Возможно, не всем придется по душе сетлист, в котором почему-то недавние альбомы "Revelations" (2002) и "The Beast" (2004) представлены только одной, в каждом случае, песней. Зато EP "The Art Of War" (2005) сыгран почти полностью. Но не суть, материал Vader на всех пластинках сильный, ну а на концертах он еще более усиливается за счет безумного драйва и великолепной техники поляков. Подача вещей просто потрясающа.&nbsp;В сетлист также включен номер 'Wyrocznia', кавер на песню польских же металистов KAT, при этом у микрофонной стойки появляется Orion (Vesania, Behemoth). Звук (5.1.) и картинка (снимали с помощью семи камер) никаких нареканий не вызывают, всё честь по чести. Кроме концерта, на этот DVD включены стандартные бонусы в виде фотогалереи, дискографии, биографии, картинок для рабочего стола и интернет-ссылок. Также есть почти получасовое интервью с вокалистом Vader Петером (на польском с английскими субтитрами) и два видеоклипа, 'Sword Of The Witcher', снятый для компьютерной игры "The Witcher", и&nbsp;'Helleluyah (God Is Dead)'. Поводя итог, можно смело утверждать, что третий DVD поляков Vader под не обещающим ничего хорошего названием "And Blood Was Shed In Warsaw" удался на славу, и его можно рекомендовать не только поклонникам группы, но и всем любителям качественного дэт-метала, особенно же тем, у кого пока не получилось увидеть группу вживую, а оно этого стоит. Кстати, фанаты "Вёдер" могут поискать вариант этого альбома в формате DVD+CD.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 28.02.2009 news VADER начинают запись
+
+<P>В середине марта<STRONG> VADER</STRONG> войдут в студию <STRONG>Herz</STRONG> для записи нового альбома "<STRONG>Necropolis</STRONG>". Пластинка станет первой для нового состава группы:</P>
+<P><STRONG>Piotr 'Peter' Wiwczarek</STRONG> (guitar, vocals)<BR itxtvisited="1"><B itxtvisited="1">Reyash</B> (bass)<BR itxtvisited="1"><B itxtvisited="1">Waclaw 'Vogg' Kieltyka</B> (DECAPITATED) (guitar)<BR itxtvisited="1"><B itxtvisited="1">Pawel Jaroszewicz</B> (SOUL SNATCHER) (drums)</P>
+<P>Одну "демку" с нового альбома можно скачать здесь: <A href="http://www.vader.pl/mp-e.html">http://www.vader.pl/mp-e.html</A></P>
+Автор: Vit Belov
+
+### 11.04.2009 news VADER на Nuclear Blast!
+
+<P><STRONG>VADER</STRONG> подписали соглашение с <STRONG>Nuclear Blast</STRONG>. Новый альбом "<STRONG>Necropolis</STRONG>" должен выйти в конце августа.</P>
+Автор: Vit Belov
+
+### 17.04.2009 news Трэк-лист VADER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>VADER</STRONG> <STRONG>"Necropolis" </STRONG>выйдет в конце лета на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Devilized</B><BR>02. <B>Rise Of The Undead</B><BR>03. <B>Never Say My Name</B><BR>04. <B>Dark Heart</B><BR>05. <B>Blast</B><BR>06. <B>Impure</B><BR>07. <B>We Are Horde</B><BR>08. <B>Anger</B><BR>09. <B>When The Sun Drowns In Dark</B><BR>10. <B>The Sigil</B><BR>11. <B>Dei Nostri</B><BR>12. <B>Summoning The Futura</B></P>
+Автор: Vit Belov
+
+### 31.05.2009 news Обложка от VADER
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.05/14129.jpg" width=400 align=right border=5>VADER</STRONG> опубликовали трэк-лист и обложку нового альбома <STRONG>"Necropolis"</STRONG>, выходящего 21 августа на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>Devilized</B><BR>02. <B>Rise Of The Undead</B><BR>03. <B>Never Say My Name</B><BR>04. <B>Blast</B><BR>05. <B>The Seal</B><BR>06. <B>Dark Heart</B><BR>07. <B>Impure</B><BR>08. <B>Summoning The Future</B><BR>09. <B>Anger</B><BR>10. <B>We Are Horde</B><BR>11. <B>When The Sun Drowns In Dark</B></P>
+Автор: Vit Belov
+
+### 03.07.2009 news Новая песня и альбом от VADER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>VADER</STRONG> выложила новую песню на своей Myspace-странице: <A href="http://www.myspace.com/vader">http://www.myspace.com/vader</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек <STRONG>"We Are The Horde"</STRONG> войдёт в новый альбом коллектива под названием <STRONG>"Necropolis"</STRONG>. Диск был записан в студии&nbsp;<STRONG>Hertz </STRONG>и выйдет 22 сентября (Северная Америка). Новый альбом будет доступен в двух вариантах: в обычном "стекле" (11 треков) и в лимитированном диджи-паке, который будет содержать два бонус трека и бонус DVD.</FONT></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Devilizer</STRONG><BR>02. <STRONG>Rise Of The Undead<BR></STRONG>03. <STRONG>Never Say My Name</STRONG><BR>04. <STRONG>Blast</STRONG><BR>05. <STRONG>The Seal</STRONG><BR>06. <STRONG>Dark Heart</STRONG><BR>07. <STRONG>Impure<BR></STRONG>08. <STRONG>Summoning The Future</STRONG><BR>09. <STRONG>Anger<BR></STRONG>10. <STRONG>We Are The Horde</STRONG><BR>11. <STRONG>When The Sun Drowns In Dark</STRONG></P>
+<P>Бонус треки:</P>
+<P>12. <STRONG>Black Metal</STRONG> (<STRONG>VENOM</STRONG> cover) <STRONG>*</STRONG><BR>13. <STRONG>Fight Fire With Fire</STRONG> (<STRONG>METALLICA</STRONG> cover) <STRONG>**</STRONG><BR><STRONG>*</STRONG> With guest <STRONG>Bart Krysiuk</STRONG> (<STRONG>HERMH</STRONG>)<BR><STRONG>**</STRONG> With guest <STRONG>Maciek Taff</STRONG> (<STRONG>ROOTWATER</STRONG>, <STRONG>BLACK RIVER</STRONG>)</P>
+<P>Бонус DVD будет содержать часть выступления <STRONG>VADER</STRONG> на благотворительном концерте (26 апреля, Краков), посвящённом сбору денег для <STRONG>Covan</STRONG> (<STRONG>DECAPITATED</STRONG>). </P>
+<P>DVD трек-лист:</P>
+<P>01. <STRONG>Crucified Ones</STRONG><BR>02. <STRONG>Black To The Blind</STRONG><BR>03. <STRONG>The Epitaph</STRONG><BR>04. <STRONG>Carnal</STRONG><BR>05. <STRONG>Wings</STRONG><BR>06. <STRONG>This Is The War</STRONG><BR>07. <STRONG>Lead Us!!!</STRONG></P>
+Автор: Headcrusher
+
+### 27.08.2009 reviews Типичный one-man album
+
+<P>Основатель старейшей польской death-metal банды VADER остался в одиночестве. По каким причинам разбежались его музыканты нам известно только из официальных источников, но сам Peter таким исходом остался явно недоволен. Например, барабанщик Daray ушёл в DIMMU BORGIR, а гитарист Mauser со своей женой создал проект UNSUN, где нарезает теперь популярный gothic-metal. Но Peter не привыкать менять состав, боевая машина VADER всё это переживёт.</P>
+<P>Новый альбом “Necropolis”, который знаменует появление группы на монстре Nuclear Blast, лидер VADER записывал один с привлечением лишь сессионного барабанщика. Получился типичный one-man альбом. Подобные прецеденты встречались в творчестве многих групп с ярко выраженными лидерами. Получаются чёткие, правильные, легко узнаваемые, но слегка рафинированные пластинки. “Necropolis” получился именно таким. Поклонники группы со стажем останутся им явно довольны. Здесь есть интересные ходы, прославленный VADER-саунд. Мощный притрэшованный death-metal на этом альбоме дополняется двумя классическими каверами на хиты METALLICA “Fight Fire With Fire” и VENOM “Black Metal”. Всё прекрасно. Но есть некоторая однообразность исполнения, чего невозможно избежать, записывая альбом в одиночку.</P>
+<P>Хороший альбом, но хотелось бы лучшего. Остаётся подождать, когда Peter наберёт состав, и надеяться, что там будут творческие персонажи, или хотя бы качественные музыканты.</P>
+Автор: Vit Belov
+
+### 30.09.2009 news Видео VADER
+
+<P>Новое видео <STRONG>VADER</STRONG> <STRONG>"Never Say My Name" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/6wSFNYPKov4&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/6wSFNYPKov4&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.10.2009 news VADER не попали в чарты
+
+<P>Новая работа <STRONG>VADER</STRONG> <STRONG>"Necropolis" </STRONG>была продана в количестве 1130 экземпляров в первую неделю продаж в США. Это не позволило группе попасть в чарты <STRONG>Billboard</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.06.2010 articles VADER в Санкт-Петербурге: &quot;Мастера дэс-металл и волшебники звука&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=left src="/images/articles_rus/2010.06/16830.jpg" width=258 height=400>Седьмое июня - не самая удачная дата для концерта в Санкт-Петербурге такой группы как Vader, так как в этот день вне конкуренции был концерт Билли Айдола, а накануне в северной столице выступили Guns 'n Roses. Однако ребята ознаменовали окончание своего тура именно здесь и сейчас. В рамках него Vader проехалась по Белоруссии, Украине, Молдове и России. Заявленный к семи часам вечера концерт начался вовремя, но не с хед-лайнеров, а с группы разогрева в МКЗ клуба Орландина. За ними последовали еще 2 разогрева. Когда люди поняли, что, по крайней мере, до 21.30 (как было объявлено на месте) других вариантов нет, то начали усиленно отрываться под то, что было. Кстати говоря, группы подобрались довольно сильные и по стилю очень сочетающиеся с Vader, поэтому разочарованных или раздраженных ожиданием людей не было.</P>
+<P>Когда в 22.00 всех, уже порядком подпивших фанатов пустили в зал, а, в общем-то, какими они могли еще быть после трех часов по программе «бар + разогрев», люди были уже в нетерпении и громко скандировали «Vader!». Но с первыми же аккордами вступительной «Devilizer» перешли от слов к действиям, а именно энергичной тряске волосами. У одного парня в первом ряду были настолько длинные волосы, что когда он ими с ожесточением тряс, шевелюра долетала до сцены, я уже молчу о том, какие бурные эмоции он вызвал у фотографов, которые в момент его «раскачки» находились между ним и сценой! Мне показалось, что самые бурные эмоции зрителей вызвала композиция «Black to the Blind», потому что под нее у фанатов просто сорвало крышу и они особенно усердно отрывались и пели.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2010.06/16831.jpg" width=267 height=400>Кстати говоря, в этот день в Орландине был на удивление отменный звук, очень чистый и мощный. Не знаю, как Vader удалось этого добиться, но все смогли насладиться настоящим, качественным, польским дэс-металлом. Столь же хороших слов нельзя сказать про свет. В Орландине в принципе никогда не было идеального концертного света, но в этот день они переплюнули сами себя. На сцене было так темно, что оба гитариста время от времени терялись во мгле, а на лицо солиста Петера, которое и так было постоянно закрыто волосами, можно было полюбоваться крайне редко, когда он подходил ближе к лампам. Весь свет был сконцентрирован вокруг Пауля (барабанщик), которому из-за повышенного внимания в таких условиях пришлось стараться вдвойне. </P>
+<P>Вообще ребята были довольно активны, по крайней мере, Marek Pajak и это не удивительно, ведь он не так давно пришел в группу на замену гитаристу Vogg. Marek очень усиленно прыгал по сцене, показывал всем язык, больше всех членов группы контактировал с фанатами, так что его невозможно было не полюбить! </P>
+<P>Но при такой активности новенького гитариста, Петер старался держаться в тени и был не очень подвижен. Возможно, это временно. Поговаривают, что у него проблемы со здоровьем. А во время этого тура, когда Vader выступали в Киеве, из-за проблем со здоровьем Петра, ребята вообще посреди концерта не попрощавшись, ушли со сцены и больше не выходили. Радует одно - в Питере этот инцидент не повторился и на том спасибо! </P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=left src="/images/articles_rus/2010.06/16832.jpg" width=262 height=400>Свою неактивность Петер решил заменить общением со зрителями в перерывах между песнями. Он что-то уверенно вещал на русском, но из всех его речей я поняла только то, что он рад закончить тур в нашем городе. Из-за сильного акцента остальное практически невозможно было понять.</P>
+<P>Так как был понедельник, а начала концерт группа очень поздно, мало кто остался ждать Vader после концерта для общей фотографии или автографа, но ведь не это главное. Главное, что в тяжелый день понедельник, люди после трудового дня пришли и совсем не по-детски отожгли на концерте мастеров дэс-металла.</P>
+<P>Текст и фото: Анна Ходакова.</P>
+Автор: Headcrusher
+
+### 12.12.2010 news Peter из VADER получил государственную награду
+
+<P><IMG height=202 alt="" hspace=0 src="/images/news_rus/2010.12/17803.jpg" width=300 align=right border=0>Лидер польской группы <STRONG>VADER</STRONG> <STRONG>Piotr "Peter" Wiwczarek </STRONG>был награждён главой Вармско-Мазурского воеводства Польши за вклад в прославление этого региона. Отмечено, что уже более 25 лет Пётр и его детище <STRONG>VADER </STRONG>занимаются этим благим делом, разъезжая по всему миру с концертами.</P>
+<P><STRONG>VADER</STRONG> готовы войти в студию<STRONG> Hertz</STRONG> в марте будущего года для записи нового альбома <STRONG>"Return To The Morbid Reich", </STRONG>который выйдет на исходе следующего лета на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.03.2011 news VADER начали запись
+
+<P>Поляки<STRONG> VADER</STRONG> вошли в студию<STRONG> Hertz</STRONG> для записи нового альбома, получившего название <STRONG>"Welcome To The Morbid Reich". </STRONG>Группа запишет 12 или 13 песен, который выйдут на <STRONG>Nuclear Blast</STRONG> до конца этого года. Вот некоторые названия: <STRONG>"Lords of Thorns"</STRONG>, <B>"I Am Who Feast Upon Your Souls"</B>, <B>"Only Hell Knows"</B>, <B>"Return to the Morbid Reich"</B>&nbsp;и <B>"I Had A Dream"</B>. Кроме этого, коллектив перепишет одну классическую вещь собственного репертуара, а так же реализует два кавера.</P>
+<P><center><IMG height=267 src="/images/news_rus/2011.03/18875.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 22.03.2011 news В VADER вновь поменялся состав
+
+<P>Барабанщик <STRONG>Pawel "Paul" Jaroszewicz </STRONG>решил покинуть <STRONG>VADER</STRONG>. Музыкант запишет партии барабанов для нового альбома группы и даст ещё несколько концертов, но имя его сменщика уже известно, им стал англичанин <STRONG>James Stewart (DIVINE CHAOS). </STRONG>Несколько ранее о своём решении покинуть коллектив объявил и басист <STRONG>Tomasz "Reyash" Rejek, </STRONG>его заменит <STRONG>Hal</STRONG> (<B>HERMH</B>, <B>DEAD INFECTION</B>, <B>ABUSED MAJESTY</B>).</P>
+<P><center><IMG height=553 src="/images/news_rus/2011.03/18918.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 16.06.2011 news Дата релиза VADER
+
+<P>Новый альбом <STRONG>VADER</STRONG> <STRONG>"Welcome To The Morbid Reich" </STRONG>выходит 12 августа на <STRONG>Nuclear Blast</STRONG>. Пластинка вновь была записана в студии <STRONG>Hertz, </STRONG>а обложку для неё нарисовал <STRONG>Zbigniew Bielak</STRONG> (<B>DESTR&#214;YER 666</B>, <B>WATAIN</B>).</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.06/19664.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 09.07.2011 news Новый трек VADER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая песня поляков<STRONG> VADER</STRONG> <STRONG>"Come And See My Sacrifice" </STRONG>закодирована в плеере ниже. Трек взят с будущего альбома группы <STRONG>"Welcome To The Morbid Reich", </STRONG>который выйдет 12 августа на <STRONG>Nuclear Blast.</STRONG> Пластинка как обычно была записана в <STRONG>Hertz Studio.</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18388034&"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18388034&" type="application/x-shockwave-flash" width="100%"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 22.07.2011 news Трейлер нового VADER
+
+<P>Новый альбом <STRONG>VADER "Welcome To The Morbid Reich"</STRONG> выходит 12 августа на <STRONG>Nuclear Blast</STRONG>. Рекламный трейлер альбома, включающий интервью лидера группы <STRONG>Piotr "Peter" Wiwczarek</STRONG>, можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/WxH-x_cr1Zk?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/WxH-x_cr1Zk?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.09.2011 reviews VADER бьют в цель
+
+<P>Польский корифей death-metal Piotr Wiwczarek, ответив на некоторое падение продаж собственных альбомов, перетряской состава VADER и переходом на Nuclear Blast продолжает свой путь в тяжёлой музыке. Иногда хочется сказать тяжёлый путь в тяжёлой музыке, но в случае с Петром это было бы совсем не правильно. Судя по качеству материала, которое каждый раз предлагает музыкант на новых альбомах VADER, творится ему легко и радостно.</P>
+<P>И в этот раз VADER не разочаровали. После переходного “Necropolis”, который лидер коллектива записал практически в одиночку, “Welcome to the Morbid Reich” тянет на полноценный камбек. Мощные, прямолинейные треки в лучших традициях классического европейского death-metal, к которому и сами VADER имеют непосредственное отношение. Скучать при прослушивании этого забойного и мелодичного альбома не придётся никому. Лёгкая примесь thrash-metal, как обычно, добавляет остроты ощущениям и расширяет потенциальную фэн-базу этой группы. Венчает этот альбом на российском издании от Irond два бонус-трека, доступных в Европе только на лимитированном издании, это кавер-версии на песни THE EXPLOITED “Troops of Tomorrow” и EXTREME NOISE TERROR “Raping The Earth”.</P>
+<P>Отличный подарок поклонникам death-metal’ической музыки. VADER совсем не удивляют, их альбомы звучат как прежде, а это именно то, ради чего их покупают.</P>
+Автор: Vit Belov
+
+### 17.03.2014 news VADER выпускают 7&quot; сингл, предваряющий новый полноформатник
+
+<P>Польские легенды death metal, группа&nbsp;<STRONG>VADER</STRONG>, анонсировали выход специального 7" сингла, который будет предварять их новый альбом <STRONG>"Tibi et Igni"</STRONG>.</P>
+<P>7” сингл получил название <STRONG>"Go To Hell"</STRONG> и будет включать в себя следующие треки:<BR>Сторона <STRONG>A</STRONG>: <STRONG>"Where Angels Weep"<BR></STRONG>Сторона <STRONG>B</STRONG>: <STRONG>"Triumph Of Death"</STRONG></P>
+<P>Дата выхода назначена на 18 апреля на лейбле <STRONG>Nuclear Blast</STRONG>.<BR>Всего будет доступно три цветовых вариации сингла (красный, белый и черный винилы). Предварительный заказ уже можно сделать&nbsp;по ссылке: <A href="http://bit.ly/1gpRK1o">http://bit.ly/1gpRK1o</A></P>
+<P>Полноформатник <STRONG>"Tibi et Igni" </STRONG>выходит 30 мая на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.03/26749.jpg" width=500 height=499>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 11.06.2016 news VADER выйдет в сентябре
+
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Новый альбом поляков <STRONG>VADER</STRONG> получил название "<STRONG>The Empire</STRONG>". Последователь великолепного "<STRONG>Tibi et Igni</STRONG>" выйдет 23 сентября на <STRONG>Nuclear Blast</STRONG>. Перед этим в августе выйдет сингл.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Подробности последуют.</FONT>&nbsp;</P>
+<P><center><IMG border=0 src="/images/news_rus/2016.06/29334.jpg" width=650 height=433></P>
+Автор: Vit Belov
+
+### 11.06.2016 news VADER: The Empire in September
+
+<p>New<strong> VADER</strong> album received the name "<strong>The Empire</strong>". A follower of the gorgeous<strong> "Tibi et Igni</strong>" will be released on September 23 through <strong>Nuclear Blast records</strong>. Before that in August single will be released .</p><p>The details will follow.</p><p><center><img width="735" height="490" src="/images/news_rus/2016.06/29315.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 18.06.2016 news VADER перенесли дату релиза
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Польские легенды death metal<strong> VADER</strong> перенесли дату релиза нового альбома "<strong>The Empire</strong>". Раннее сообщалось, что он выйдет 23 сентября. Новая дата релиза 4 ноября на<strong> Nuclear Blast</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<font color="#ffffff" style="background-color: rgb(0, 0, 0);">Из других новостей, группа опубликовала обложку сингла "<strong>Iron Times</strong>", которую нарисовал <strong>Joe Petagno</strong>.</font></p><p><center><img width="638" height="638" src="/images/news_rus/2016.06/29388.jpg" border="0"></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p>
+Автор: Vit Belov
+
+### 18.06.2016 news VADER push back release date
+
+<p>Polish death metal legends <strong>VADER</strong> have pushed back the release date of their new album "<strong>The Empire</strong>". Earlier it was reported that it will be released on September 23. The new release date is November 4 via <strong>Nuclear Blast records</strong>.</p><p>In other news, the band have unveiled the artwork for the single "<strong>Iron Times</strong>", painted by <strong>Joe Petagno</strong>.</p><p><center><img width="638" height="638" src="/images/news_rus/2016.06/29388.jpg" border="0"><p></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 06.08.2016 news TRANSSIBERIAN BLITZ TOUR 2016 – все даты подтверждены!
+
+<p>Объявлены точные города и клубы в России, в которых можно будет увидеть <strong>VADER</strong> во время второй части <strong>Transsiberian Blitz Tour</strong>.</p><p>Тур начнется 9-го сентября в Санкт-Петербурге в клубе “Opera” и, прокатившись волной по всей России, закончится во Владивостоке в клубе “SanRemo Hall”.</p><p>10 концертов под общим названием Transsiberian Blitz Tour 2016 (Eastern leg) – очередная атака польских послов death метала на этот раз, в основном, на места, в которых нам не довелось побывать в 2015 году.</p><p>В дополнение к премьере совершенно новых песен из грядущего альбома “The Empire”, VADER разорвут вас на части своими классическими боевиками со всей дискографии! </p><p>Transsiberian Blitz Tour 2016 - Eastern leg</p><p>09.09.16 RUS САНКТ-ПЕТЕРБУРГ / "Opera"<br><a href="https://vk.com/vaderspb2016">https://vk.com/vaderspb2016</a><br>10.09.16 RUS КАЗАНЬ / "Mayakovsky"<br><a href="https://vk.com/spdf_kzn2016">https://vk.com/spdf_kzn2016</a><br>11.09.16 RUS МОСКВА / "Brooklyn"<br><a href="https://vk.com/vader_fmf_2016">https://vk.com/vader_fmf_2016</a><br>12.09.16 RUS САМАРА / "Zvezda"<br><a href="https://vk.com/vader_zvezda">https://vk.com/vader_zvezda</a><br>13.09.16 RUS ЕКАТЕРИНБУРГ / "Nirvana Concert Hall"<br><a href="https://vk.com/event125768078">https://vk.com/event125768078</a><br>14.09.16 RUS НОВОСИБИРСК / "R-club"<br><a href="https://vk.com/event125456181">https://vk.com/event125456181</a><br>15.09.16 RUS КРАСНОЯРСК / "Era"<br><a href="https://vk.com/vader_krasnoyarsk">https://vk.com/vader_krasnoyarsk</a><br>16.09.16 RUS ИРКУТСК / "Rock'n'Roll Pub"<br><a href="https://vk.com/event125783667">https://vk.com/event125783667</a><br>17.09.16 RUS ХАБАРОВСК / "Velicano"<br><a href="https://vk.com/vader_17_09">https://vk.com/vader_17_09</a><br>18.09.16 RUS ВЛАДИВОСТОК / “SanRemo Hall”<br><a href="https://vk.com/vadervl1809">https://vk.com/vadervl1809</a></p><p><center><img width="600" height="848" src="/images/news_rus/2016.08/29747.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.08.2016 articles Peter (VADER): &quot;Я люблю Россию!&quot;
+
+<p><center><img width="490" height="735" src="/images/articles_rus/2016.08/29828.jpg" border="0">&nbsp;</center><p></p><p><em>В сентябре в Россию вновь приедут VADER. Классики польского death metal в своём Transsiberian Blitz Tour проедутся по дальним уголкам России. Ниже можно увидеть список концертов. Мы связались с лидером VADER Peter и пораспросили его о будущих концертах, отношении к нашей стране и выходящем в ноябре новом альбоме «The Empire”.</em></p><p>В: <strong>Вы приезжали в Россию в 2015 году. С того времени у VADER не выходило альбомов, состоящих из нового материала. Почему вы едете к нам снова? Что нам ждать на ваших концертах?</strong></p><p>Peter: В 2015 году была первая часть нашего тура, который получил название 'Transsiberian”. Однако мы отыграли концерты только на Западе и Севере вашей страны, и ни одного шоу не было дано в настоящей Сибири. Сейчас мы хотим закончить начатое. В планах этого тура только несколько концертов в городах, где мы выступали в прошлом году — Москва, Санкт-Петербург. Основная часть трассы пройдёт на Востоке большой России. Последний концерт будет во Владивостоке, где мы до этого никогда не выступали. Кроме этого, VADER уже записали новый альбом, и Российский тур станет первым, где будут исполнены новые песни вживую. Наш альбом «The Empire” выйдет 4 ноября на Nuclear Blast. Также мы сыграем треки с только что вышедшего миньона «Iron Times”.</p><p>В: <strong>Вы побывали с туром в России в таких местах, где не каждый житель наших столиц сможет побывать когда-либо. Вы посещаете города вдалеке от политического сердца России. Не боитесь путешествовать там? Все «знают», что нет хороших отелей, нет сервиса за пределами Москвы и Санкт-Петербурга. Или нет? Были ли у вас какие-то особые приключения во время туров по России?</strong></p><p>Peter: У каждой страны есть хорошие и плохие стороны, это и делает мир таким интересным:) Я бывал в вашей стране ещё в 1990 году, когда она была частью Советского Союза. Россия сильно изменилась за эти 25 лет. Я любил вашу страну тогда, а сейчас я люблю её ещё больше. VADER всегда хорошо проводили время в вашей стране, и мы никогда ничего не боялись. Конечно, всегда возникают ситуации, но вся наша жизнь состоит из ситуаций, не правда ли? Мы сочиняем и играем музыку для всех, и политические «ситуации» и ситуации другого типа конечно нас касаются. Но пока мы имеем открытую визу от вашего правительства, фэны хотят нас видеть, мы готовы приехать. Мы не какие-то «рок звёзды», нам не нужны высококлассные отели или высококачественное шампанское каждый вечер:) Лучшая русская водка и хорошая компания, вот абсолютно всё, что нам надо. И ещё одна вещь. В городах, которые далеко от центра зачастую лучшие условия, чем в таких европейских метрополисах, как Москва и Питер... Я имею в виду оборудование, отели и еду. Я люблю Россию!</p><p>В: <strong>У нас есть некоторые политические разногласия между Россией и Польшей, как обычно. Что думаешь о политике? Нергала из BEHEMOTH депортировали из России несколько лет назад. Есть какой-то риск для тебя, как для поляка?</strong></p><p>Peter: Риск? Я не приезжаю в Россию с какими-то политическими лозунгами. Я уважаю вашу страну, я думаю, Польша и Россия должны жить в хороших отношениях. Мы все только выиграем от этого. Политика грязная игра, и сейчас плохие времена во всём мире. Нации начинают возводить границы, армии возвращаются, и я не знаю, чем это может кончиться. Если существует большая разница между теми, кто имеет денег больше чем нужно для жизни, и теми, кому хватает только на выживание, это приведёт к конфликту рано или поздно. Похоже мир больше не ценит спокойствие. Однако, я остаюсь оптимистом. Behemoth? Я думаю, Nergal и его группа жертвы собственной популярности в Польше, и вся эта ситуация ответ на всё дерьмо, что политики в Польше сделали России. Пропаганда не много общего имеет с реальностью. Везде...</p><p>В:<strong> В 2015 году VADER издал альбом кавер-версий. Зачем? Почему этот альбом не вышел на вашем текущем лэйбле Nuclear Blast?</strong></p><p>Peter: Nuclear Blast не заинтересованы в подобных проектах. Никаких «трибьютов», никаких демо-релизов. У нас же было время и возможность создать что-то особенное. Альбом «Future Of The Past” был записан в 1996 году, и это был наш «трибьют» группам, которые вдохновляли нас в прошлом. Уже тогда у нас был план записать вторую часть этого альбома. Я не был до конца уверен в том, что это будет. Спонтанно я решил выбрать группы, которые, как и VADER, творили в 'Underground' за железным занавесом в начале 90-х. Планы были более масштабные. Я хотел записать песни групп из Венгрии, Чехословакии и СССР. Но нам не хватило ни бюджета, ни времени. Кроме того, были проблемы с оригинальными плёнками того десятилетия.</p><p>В: <strong>Мы с нетерпением ждём нового альбома от VADER “The Empire”. “Tibi Et Igni” был великолепен. Что нам ждать от новой работы? Будет ли она в том же ключе или нас ждут какие-то сюрпризы от VADER?</strong></p><p>Peter: Композитору тяжело объяснить, на что будет похож его новый альбом... С одной стороны, это один из самых мощных интенсивных альбомов VADER за всю историю. С другой стороны, он возможно самый разнообразный. Если вы сравните песни «Tempest”, «Iron Reign”, “Parabellum” или «Army-Geddon”, каждая из них отличается от другой. Но все вместе они представляют 35 минут настоящей метал-атаки, и это VADER! Также мы использовали типы риффов, которые раньше не играли. Я уверен, «The Empire” будет интересен как и нашим ветеранам-поклонникам, так и новым фэнам. Посмотрим...</p><p>Даты концертов Transsiberian Blitz Tour</p><p>09.09.16 RUS САНКТ-ПЕТЕРБУРГ / "Opera"</p><p><a href="https://vk.com/vaderspb2016">https://vk.com/vaderspb2016</a></p><p>10.09.16 RUS КАЗАНЬ / "Mayakovsky"</p><p><a href="https://vk.com/spdf_kzn2016">https://vk.com/spdf_kzn2016</a></p><p>11.09.16 RUS МОСКВА / "Brooklyn"</p><p><a href="https://vk.com/vader_fmf_2016">https://vk.com/vader_fmf_2016</a></p><p>12.09.16 RUS САМАРА / "Zvezda"</p><p><a href="https://vk.com/vader_zvezda">https://vk.com/vader_zvezda</a></p><p>13.09.16 RUS ЕКАТЕРИНБУРГ / "Nirvana Concert Hall"</p><p><a href="https://vk.com/event125768078">https://vk.com/event125768078</a></p><p>14.09.16 RUS НОВОСИБИРСК / "R-club"</p><p><a href="https://vk.com/event125456181">https://vk.com/event125456181</a></p><p>15.09.16 RUS КРАСНОЯРСК / "Era"</p><p><a href="https://vk.com/vader_krasnoyarsk">https://vk.com/vader_krasnoyarsk</a></p><p>16.09.16 RUS ИРКУТСК / "Rock'n'Roll Pub"</p><p><a href="https://vk.com/event125783667">https://vk.com/event125783667</a></p><p>17.09.16 RUS ХАБАРОВСК / "Velicano"</p><p><a href="https://vk.com/vader_17_09">https://vk.com/vader_17_09</a></p><p>18.09.16 RUS ВЛАДИВОСТОК / “SanRemo Hall”</p><p><a href="https://vk.com/vadervl1809">https://vk.com/vadervl1809</a> </p>
+Автор: Vit Belov
+
+### 19.08.2016 news Peter из VADER дал интервью нашему web-zine перед туром по России
+
+<p>В сентябре в Россию вновь приедут<strong> VADER</strong>. Классики польского death metal в своём <strong>Transsiberian Blitz Tour</strong> проедутся по дальним уголкам России. Ниже можно увидеть список концертов. Мы связались с лидером VADER<strong> Peter</strong> и пораспросили его о будущих концертах, отношении к нашей стране и выходящем в ноябре новом альбоме «<strong>The Empire</strong>”.</p><p>В: <strong>Вы приезжали в Россию в 2015 году. С того времени у VADER не выходило альбомов, состоящих из нового материала. Почему вы едете к нам снова? Что нам ждать на ваших концертах?</strong></p><p>Peter: В 2015 году была первая часть нашего тура, который получил название 'Transsiberian”. Однако мы отыграли концерты только на Западе и Севере вашей страны, и ни одного шоу не было дано в настоящей Сибири. Сейчас мы хотим закончить начатое. В планах этого тура только несколько концертов в городах, где мы выступали в прошлом году — Москва, Санкт-Петербург. Основная часть трассы пройдёт на Востоке большой России. Последний концерт будет во Владивостоке, где мы до этого никогда не выступали. Кроме этого, VADER уже записали новый альбом, и Российский тур станет первым, где будут исполнены новые песни вживую. Наш альбом «The Empire” выйдет 4 ноября на Nuclear Blast. Также мы сыграем треки с только что вышедшего миньона «Iron Times”.</p><p>Об отношении музыканта к России, о новом альбоме, о политике, читайте в эксклюзивном <a href="/ru/articles/1/73005/">интервью здесь.</a></p><p><center><img width="490" height="735" src="/images/articles_rus/2016.08/29828.jpg" border="0">&nbsp;</center>
+Автор: Vit Belov
+
+### 19.08.2016 articles Peter (VADER): &quot;I love Russia!&quot;
+
+<p><center><img width="490" height="735" src="/images/articles_rus/2016.08/29828.jpg" border="0">&nbsp;</center><p><em>In September, VADER will once again come to Russia. Polish death metal classics in their Transsiberian Blitz Tour will travel to the far corners of Russia. Below you can see the list of shows. We contacted the leader of VADER's Peter and asked him about future concerts, the attitude towards our country and coming out in November the new album "The Empire".</em></p><p>Q: <strong>You were in Russia in 2015. Since that time you didn't release any albums with new material. Why will you go in our country again? What will you bring to us this time? What's new will we get on your shows?</strong><br>&nbsp;<br>PETER: That was just 1st part of the whole tour in Russia, which we named "Transsiberian”. However we were playing in the West and North of the country and no one show was actually in real Siberia. Now we’d like to complete it. There are only few concerts in the cities, where we’ve played last year like St.Petersburg or Moskwa. The main part is far in the East of big Russia. The final show is in Vladivostok, where we never had a chance to perform before. VADER also recorded new album in the meantime and the Russian tour&nbsp; will be the first in the world, where we will play new songs alive. The album „The Empire” will be out in November 4th. via Nuclear Blast. We will also play songs from just released EP. „Iron Times”.&nbsp;<br>&nbsp;<br>Q: <strong>You're touring in such places of Russia where not every resident of our capitals was. You attended cities far from political heart of Russia, Don't you fear to travel there? Everybody knows that there are not good hotels, services far from Moscow or St. Petersburg? Or not? What's your most "exotic" adventure in touring across the Russia?</strong><br>&nbsp;<br>PETER: Each country has good and bad sides and this makes the world interesting ;) I was in Your country with VADER in 1990, when it was part of Soviet Union. Russia changed a lot in those 25 years. I liked the country back then and now I like it even more indeed. VADER always had great time, when we were visiting Your land and we were never really afraid of anything. There were situations , of course, but the whole our lives is filled with situations, isn’t it? We create and play music for ALL and and political or other kinda „situations” are not gonna keep us away.&nbsp; As far as we have valid visas from Your government and Fans ready for VADER - we are ready to go. We are not men with „rock star” attitude so we do not need high class hotels or top quality champagne every night ;))) Best Russian vodka and good company is absolutely enough for us. And one more thing -&nbsp; cities , which are far far away in you huge land gave us sometimes much better conditions (I mean equipment , hotels or food) then those „european” metropolis like Moskwa or Piter… I love Russia!<br>&nbsp;<br>Q: <strong>We have some political troubles among Russia and Poland nowdays (as usual). :) What do you think about politics? Nergal from BEHEMOTH was deported from Russia some years ago? Have you feeled some risk for you as Polish citizen in Russia?</strong><br>&nbsp;<br>PETER: A risk? I am not coming to Russia with any „political reasons”. I respect your country and I think , that Poland and Russia should live in good relationship. We all would be more happy with that. Politic is but a dirty game and now we have bad times in the whole world. Nations started to build borders and armies back and I don’t know, how is that gonna end… If there is too big difference between those , who have way more then they need and those , who got just enough to survive&nbsp; - it leads to conflict sooner or later. It looks like the World can’t value the calm anymore. However, I am still an optimist&nbsp; though. Behemoth? I think, that Nergal and His band were victims of Their popularity in Poland and all that situation was the answer for all the shit, that politics in Poland did for Russia before. Propaganda but has not much with realities. Everywhere…<br>&nbsp;<br>Q: <strong>In 2015 you released album of cover version. Why is it so? Why was not this album released on your current Nuclear Blast?</strong><br>&nbsp;<br>PETER: Nuclear Blast are not interested in such projects. No „tribute” nor demo releases. We had time before the new album and opportunity to record something special. Album „Future of the Past” was originally recorded in 1996 and was our tribute to mostly bands , who inspired us in the past. There were plans to record 2nd part already earlier. I was not but sure, WHAT is that gonna be ;) In very spontaneous decision I choose bands, that&nbsp; - like VADER -&nbsp; created „Underground” in early 90s in our country and other countries „behind the iron curtain”. Plans were far greater. I wanted to cover bands from Hungary , Czechoslovakia or USSR. We had but not as much time and budget. Besides there were problems with original tapes from that decade too.&nbsp;<br>&nbsp;<br>Q: <strong>We're waiting forward for your new album "The Empire". "Tibi Et Igni" was awesome. What can we wait on your new album? Will it be in the same vein or we'll have some surprises from VADER?</strong><br>&nbsp;<br>PETER: It is hard to explain for the composer, how the new album is gonna be like… From one side this is one of most intense VADER album ever recorded. From the other hand , it is probably most different as a whole. If You compare songs like „Tempest” , „Iron Reign” , „Parabellum” or „Army-Geddon”…&nbsp; each of them is so different ;) But all together make 35 minutes of total Metal attack ! …and this is VADER ;) We used also some „riff types”, which we never used before. I am sure, that „The Empire” will be interesting as for our veterans as for new Fans. We will see….</p><p>Transsiberian Blitz Tourdates</p><p>09.09.16 RUS САНКТ-ПЕТЕРБУРГ / "Opera"<br><a href="https://vk.com/vaderspb2016">https://vk.com/vaderspb2016</a><br>10.09.16 RUS КАЗАНЬ / "Mayakovsky"<br><a href="https://vk.com/spdf_kzn2016">https://vk.com/spdf_kzn2016</a><br>11.09.16 RUS МОСКВА / "Brooklyn"<br><a href="https://vk.com/vader_fmf_2016">https://vk.com/vader_fmf_2016</a><br>12.09.16 RUS САМАРА / "Zvezda"<br><a href="https://vk.com/vader_zvezda">https://vk.com/vader_zvezda</a><br>13.09.16 RUS ЕКАТЕРИНБУРГ / "Nirvana Concert Hall"<br><a href="https://vk.com/event125768078">https://vk.com/event125768078</a><br>14.09.16 RUS НОВОСИБИРСК / "R-club"<br><a href="https://vk.com/event125456181">https://vk.com/event125456181</a><br>15.09.16 RUS КРАСНОЯРСК / "Era"<br><a href="https://vk.com/vader_krasnoyarsk">https://vk.com/vader_krasnoyarsk</a><br>16.09.16 RUS ИРКУТСК / "Rock'n'Roll Pub"<br><a href="https://vk.com/event125783667">https://vk.com/event125783667</a><br>17.09.16 RUS ХАБАРОВСК / "Velicano"<br><a href="https://vk.com/vader_17_09">https://vk.com/vader_17_09</a><br>18.09.16 RUS ВЛАДИВОСТОК / “SanRemo Hall”<br><a href="https://vk.com/vadervl1809">https://vk.com/vadervl1809</a> </p>
+Автор: Vit Belov
+
+### 19.08.2016 news Peter from VADER gave interview to our web-zine about upcoming Russian tour and new album
+
+<p>In September,<strong> VADER</strong> will once again come to Russia. Polish death metal classics in their <strong>Transsiberian Blitz Tour</strong> will travel to the far corners of Russia. Below you can see the list of shows. We contacted the leader of VADER's Peter and asked him about future concerts, the attitude towards our country and coming out in November the new album "<strong>The Empire</strong>".</p><p>Q: <strong>You were in Russia in 2015. Since that time you didn't release any albums with new material. Why will you go in our country again? What will you bring to us this time? What's new will we get on your shows?</strong><br>&nbsp;<br>PETER: That was just 1st part of the whole tour in Russia, which we named "Transsiberian”. However we were playing in the West and North of the country and no one show was actually in real Siberia. Now we’d like to complete it. There are only few concerts in the cities, where we’ve played last year like St.Petersburg or Moskwa. The main part is far in the East of big Russia. The final show is in Vladivostok, where we never had a chance to perform before. VADER also recorded new album in the meantime and the Russian tour&nbsp; will be the first in the world, where we will play new songs alive. The album „The Empire” will be out in November 4th. via Nuclear Blast. We will also play songs from just released EP. „Iron Times”.&nbsp;</p><p>The attitude of the musician to Russia, about the new album, politics, read the <a href="/en/articles/1/73007/">exclusive interview here.</a></p><p><center><img width="490" height="735" src="/images/articles_rus/2016.08/29828.jpg" border="0">&nbsp;</center>
+Автор: Vit Belov
+
+### 23.08.2016 news Новая песня VADER
+
+<p>Лирик-видео <strong>VADER</strong> на песню "<strong>Prayer To The God Of War</strong>" можно посмотреть ниже. Трек взят с только что вышедшего мини-альбома польского коллектива "<strong>Iron Times</strong>".</p><p>Не пропустите концерты VADER в России в сентябре. Подробнее в нашем разделе SHOWS.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/7evx_AQy0jI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 23.08.2016 news New lyric video from VADER
+
+<p>A lyric video of <strong>VADER</strong> for the song "<strong>Prayer To The God Of War</strong>" can be viewed below. The track is taken from the newly released mini-album by the Polish band "<strong>Iron Times</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/7evx_AQy0jI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.09.2016 articles Евгений &#39;Agen Price&#39; Аксёнов: &quot;Петер из VADER так говорил: &quot;Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!&quot;
+
+<p><em></em><center><em><img width="500" height="748" src="/images/articles_rus/2016.09/29910.jpg" border="0"></em><center><p></p><p><em>Продолжаем нашу рубрику, в которой беседуем с людьми так или иначе связанными с тяжёлой музыкой в нашей стране. На этот раз наш гость Евгений 'Agen Price' Аксенов, знаменитый "промоутер", один из первых металических деятелей в СССР.</em></p><p><strong>Начнём с вопроса о твоих нынешних делах. Давненько от тебя не было новостей. Совсем отошёл от металопросветительской деятельности?</strong></p><p>Можно сказать, что да. В качестве хобби издаю понемножку винил. Не так давно совместно с Beverina Productions переиздали альбом группы Alkonost "Каменного сердца кровь"... Есть планы на переиздание ещё нескольких альбомов разных групп. CD&nbsp; практически перестали продаваться, а от того и интерес к ним тоже пропал. А вот просветительскую деятельность как раз продолжаю. Часто обращаются музыканты, промоутеры, издатели с тем или иным вопросом. Помогаю чем могу, как нашим, так и иностранцам.</p><p><strong>Ну значит мы к тебе по адресу. Как ты думаешь, что наиболее актуально в тяжёлой музыке сейчас?</strong></p><p>Мне кажется, что продвинуться и подняться сейчас смогут те группы, которые в своём творчестве будут использовать синтез различных стилей и звучаний. Недавно переслушал почти все альбомы Slipknot. И что мне показалось интересным... Вроде бы ничего нового они не придумали, но использование одновременно нескольких барабанных установок, плюс перкуссия... значительно улучшают звук, делаю его ураганным, что ли... В принципе это не новое слово в музыке... много групп и раньше использовали одновременно несколько соло-гитар, но с разными партиями. Или несколько клавишных, опять же, играющих каждый свою партию. Голос опять же, давняя схема. Скажем, гроулинг+чистый вокал... Но при всем при этом, всегда впереди будут самородки, сочиняющие красивые мелодии или темы с драйвом. Всегда будут любители усложнённой музыки. Ну и первооткрыватели, само собой, всегда в чести будут. Потому что последователей всегда будут сравнивать с ними.</p><p><strong>Каких первооткрывателей ты видишь на сцене в последние годы?</strong></p><p>Я физически не имею возможности слушать всё то, что выходит в последнее время, поэтому тут сложно быть объективным. Это в 70-е годы сплошь были открытия и групп раз-два и обчелся... Сейчас в тяжелой музыке мне кажется есть некий застой. Всё, что ни выходит, так или иначе что-то напоминает, что было уже. Ну, это лично моё мнение. Может я чего-то не услышал. Более или менее оригинальными мне показались альбомы TODTGELICHTER или SOLSTAFIR... А может быть я просто ударился в эту тему... Север, холод, уныние, тоска, печалька... и т.п.</p><p><strong>А что опечалился?</strong></p><p>Я сам-то как раз не опечалился... Просто тема Севера очень притягивает... Я ведь служил там и меня всегда восхищали северные моря, фьорды, заливы, тамошняя природа, даже погода! Хотя она и очень сурова. Есть такой в нашей тусовке человек Андрей Мизери, у него свой лейбл, занимающийся нойзовой музыкой, так вот он почти каждый год ездит в Норвегию... Счастливчик! Не то, что мы... Всё по европам, да по африкам... Ну и ещё один момент... Окружение, то есть, те люди с кем ты постоянно общаешься. Так вот они тоже подсели на меланхоличную музыку, большинство конечно на ту, что полегче, типа Muse. Но вот у нас мода такая...</p><p><strong>Давай поговорим о более весёлых временах. О прошлом. Ты ведь стоял у истоков становления отечественого тяжеломузыкального бизнеса. Доволен во что вылились твои начинания?</strong></p><p>Я не думал об этом. Всё произошло как-то само собой. Ну, я конечно всегда любил тяжелый рок, но вместе с ним и весь классический рок, а потом и диско. Не особо меня впечатлили панк, да и металл, когда он только появился. Для меня это была лишь новая вывеска, ярлык, который приклеили к обычному хард-року, а к коммерции всегда есть какая-то настороженность. И только с появлением трэша, я осознал, что вот она... новая музыка, новые стили, новые горизонты... Интерес к этому всему был неимоверный. Это была уже середина, точнее вторая половина 80-х. Как раз тогда я начал активную переписку c иностранными лейблами и музыкантами. Понятное дело, что они оказали на меня большое влияние. Тем более, что помимо теории (переписки и обмена продукцией) это имело какую-то уже практическую направленность. Как-то организация собственного лейбла и обмен концертами. Они к нам, мы к ним... Первые страны, точнее люди этих стран, с которыми я завязался были Польша, Болгария, Югославия и Норвегия... В итоге, больше всего и лучше... получилось с Польшей... С остальными как-то банально и тупо прекратилось... Югославию разбомбили, в Норвегии был убит Еуронимус, с кем я вёл все дела и переписку... А Болгария просто на тот момент так и не заимела нормальных метал-групп... Может они и были, но мы друг о друге не узнали.</p><p><strong>Еуронимус? То есть если бы его Варг не замочил, поехал бы в Норвегию с Коррозией?</strong></p><p>Да, но первые гастроли, которые мы планировали провести в тогда ещё СССР... были концерты Mayhem. Во что это вылилось? У меня особо ни во что... После Союза у меня как-то всё надломилось, пропал интерес, как-то всё пошло вяло. Запала уже точно не было как раньше. Помню на Мастдае ещё, в ходе наших бурных дебатов... Лёша Ихтиандр сказал, мол, надо освобождать дорогу молодым... Я сначала всё это в штыки восприянял, а потом задумался... А ведь это правда, так и должно быть. По натуре я кустарь-одиночка, всё привык делать сам и один. Каких-то корпораций и концернов не создал... Двигать дальше тему будет просто не по силам... Да и денег таких нет, а тупо влачить какое-то невнятное существование... ну это просто не интересно... Плюс ко всему, у меня дети, внуки, семья... Надо и им внимание уделить... Всё же в следующем году мне уже будет 60... Сколько можно ещё предаваться "трэшу, угару и содомии"? Пора и остепениться... Я тогда был президентом Мытищинского рок-клуба, с Коррозией был мало знаком и у нас были свои кандидаты - Фаланга и Месса. Но первыми к нам должны были приехать норвеги.</p><p><strong>Расскажи про Петера из VADER. Вы же с ним общались. Он вон до сих пор мотается с турами по всему свету. В сентябре во Владивосток собрался. Были какие-то истории с ним связанные?</strong></p><p>Первыми в Россию из Польши приехали Magnus, потом Bloodlust и Slashing Death, в которых барабанил Доцент, вот с ним-то мы и познакомились первым из Vader. Но все приезжающие к нам поляки, и музыканты, и техники, постоянно твердили мне, что я обязательно должен пригласить Vader, мол, это новая звезда thrash'n'death metal, и что они скоро удивят всех. Что вскоре и случилось. С Петром мы реально задружились, так он оказался очень дружественным и порядочным человеком. Мы много с ним встречались на разных концертах и фестивалях в Польше, да и вообще, просто так, в тусовках, рок-магазинах, на лейблах, на радио. Он всегда спрашивал, есть ли какие проблемы и чем он может помочь. Отличный парень! На дебютном альбоме Vader, который вышел на Earache, в кредитах с благодарностью есть и моё имя. Чем я несказанно горд. Это не байка, кто хочет, может Петра спросить об этом, но приезжающим к нам музыкантам Петер так говорил: "Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!"...</p><p><strong>Я тут брал у него интервью, он признавался в любви к России. Как ты думаешь не испортятся у нас отношения с польскими музыкантами из-за политики?</strong></p><p>К России кто угодно может изменить отношение, только не Петер. Я повторю, это глубоко порядочный и душевный человек. Несмотря на то, что он и сочиняет и играет брутальную музыку. Вот скажем, за Адама из Behemoth я никогда не стал бы давать каких-то гарантий. Хотя... может быть, что я просто не настолько близко его знаю. А люди все разные. Как в России, так и в Польше есть народ с разными мировоззрениями и разным воспитанием. Во всяком случае, у меня там осталось очень много друзей, которые примут меня в любой момент и окажут всяческое содействие. И второе, Петер прекрасно понимает и помнит, откуда началось триумфальное восхождение Vader на музыкальный Олимп. И все это знают, и многие в мире видели тв-кадры с полными залами, стадионами на наших фестивалях в те времена. В Европе же они тогда собирали лишь небольшие клубы.</p><p><strong>А как относишься к фактам отмены концертов у нас? Под раздачу как раз поляки попали. Адам Nergal, Батюшка.</strong></p><p>Отношусь негативно. Отмены ни к чему хорошему не приводят. Тем не менее, под раздачу попали как раз группы строящие свой имидж во многом на эпатаже. А раз ты находишься в таком состоянии и ситуации, оценивай обстановку трезво. Тем более, что в последнее время у нас сплошь крайности, что с одной, что с другой стороны. Всем нужно показать себя, либо свою силу, либо неординарность. Петя со-товарищи спокойно делает своё дело и не лезет в за...упу. Но повторюсь, сейчас в России общество крайне полярно и каждый использует любую возможность, чем и как бы насолить друг другу...</p><p><strong>То есть думаешь BEHEMOTH и Batushka в некотором роде сами виноваты?</strong></p><p>А ты считаешь нет? В Польше на Адама гонят ещё больше чем в России, за то, что он порвал библию и трезвонит об этом на каждом углу. Больше того, он стал нерукопожатным в некоторых кругах и у музыкантов. Поляки гораздо более религиозная нация, чем мы и там такое не прощают и не забывают. Батюшку же... считаю просто провокационным проектом... Хотя, на провокациях во многом построен современный шоу-бизнес...</p><p><strong>Знаю, часто ходишь на концерты и сейчас. Ностальгия мучает?&nbsp; Стадионов ведь больше не собирают.</strong></p><p>На концерты как раз хожу совсем редко. Ностальгия не то, что не мучает, её просто нет. Но с благодарностью и теплом вспоминаю те времена. Что было, то и было... Видимо такая судьба. То, что стадионы не собирают метал-группы, ну так это тоже, веяние времени. Значит так оно должно и быть. Это тем, кто бизнес на этом свой строил, можно сожалеть... А мне от этого не горячо и не холодно.</p><p><strong>Вот Круиз воссоединился. Был на концерте? Что думаешь?</strong></p><p>Был. Конечно было интересно посмотреть на них, в каком они состоянии, тонусе. Молодцы! Настоящие музыканты! Сохранили в себе задор, угар и владение инструментами. Также очень хотелось встретиться с людьми из прошлого, кого не видел уже несколько десятков лет. Общался большую часть фестиваля... Круиз конечно весь посмотрел, фрагментарно Арию, Доро, Слот, Хиппи Хаос... Хотя, есть ощущение, что время уходит. И вкусы у молодёжи стали другие... Да и вообще, как-то всё не радостно у нас... Хороших металлических журналов, как не было, так и нет. Я имею ввиду тиражные издания, чтобы в каждом киоске лежали. Как нет фестивалей подобных Вайкену, да и многим другим европейским, так и нет... И вывод из этого следует не радостный... Как не было у нас массовой культуры в металле, так её и нет... А это значит, что концерты так и будут малопосещаемыми, и диски будут продаваться мизерными тиражами. Бизнеса на этом нормально не построишь и всё будет держаться до поры до времени на плечах энтузиастов... пока и у них на это хватит сил...</p><p><strong>Печальная картина. А что думаешь о отечественной сцене? Случился какой-то качественный скачок или мы до сих пор на задворках мировой музыки?</strong></p><p>Есть хороший пример для всех нас - Аркона. Они всем показали, что наша музыка может быть на одном уровне с мировой. Просто для этого к музыкальному таланту (а у нас бескрайнее море талантов) нужно приложить самоотверженную работоспособность... Помню время, когда ещё работала старая Горбушка... Иду на свою точку и вижу, как Лазарь с Князем клеят афиши имени себя самих... они тогда презентовали свой дебютный альбом Rossomahaar... Подошёл к ним, поздоровались... Спрашиваю, а чой-то вы афиши клеите, наняли бы кого... А Лазарь и говорит, а мы, мол, всё сами, в своих руках хотим держать... Меня это просто проняло что ли, ну, говорю, молодцы, вас точно рано или поздно слава и успех найдут... Это как хороший наглядный пример... Сам для себя не сделаешь, никто для тебя особо разрываться и не будет. Так что разгонять свой паровоз всегда нужно самим, а от того, как разгонишь, так он дальше и полетит... или поедет... или остановится...</p><p><strong>Вот ты начинал почти одновременно с такими лейблами как Nuclear Blast, Century Media или там Osmose Productions, а высот подобных им так и не добился, что помешало этому?</strong></p><p>Можно конечно просто ответить... Совок и запад, разные величины, разные люди, разный менталитет, разный подход к делу, разная инфраструктура (у нас её в полном понимании, как я считаю, так и не возникло, выше уже отвечал про журналы, концерты, фестивали)... Но лично я думаю, что я просто распылил всю свою энергию, силы и средства. Вот скажем, Эдуард Ратников (глава Talent Concert International), промоутер на которого можно и нужно равняться всем. Он сосредоточился на теме, изучил опыт работы, как наш, так и зарубежный. Сделал поправки на особенности работы в странах бывшего СНГ, само собой плюс его неимоверная работоспособность и амбиции... Как итог - он и его команда лучшие в России по части организации рок-концертов. И металлических артистов, тяжелых групп и исполнителей в его бэкграунде внушительное количество. Я же взял за основу схему польских компаний Carnage Records, Morbid Moizz и конечно же Metal Mind Productions... Мне нравилось в них то, что они выполняли весь спектор работ или услуг на рынке... Прежде всего, это издание носителей - LP, CD, MC, DVD и прочее. Это и работа со своими собственными коллективами, менеджмент, букирование, организация туров и прочее... Организация своих фестивалей и издание собственных печатных изданий. У Carnage - Thrash'em All, Morbid Noizz одноимённый журнал и у Metal Mind польская версия Metal Hammer, который можно было купить в каждом газетном киоске и стоил он всего полтора доллара, при этом был великолепного цветного качества, содержал большие плакаты и на праздники CD-компиляции. Я попробовал сделать тоже самое, издавал и журналы, организовывал фестивали, продюсировал группы... И всё это требовало невообразимых затрат, сил и времени. И очень часто не приносило никакой прибыли. Так что вся эта работа была чисто подвижничеством и благотворительностью. Плюс ко всему, все кризисы которые у нас только не случались, целиком и полностью отражались на мне. И ладно бы это было так, между прочим, в процессе работы... Но нет, кризисы случались именно в тот момент, когда я форсировал свою деятельность. То есть, вкладывался в запись альбомов, съёмку клипов, в организацию больших проектов и фестивалей. Друзья уже смеясь, придумали такую феньку... мол, если Женя набрал кредитов - жди кризиса в стране... А отдавать приходилось годами... Так что богатства особого я так и не нажил...</p><p>Ещё в качестве P.S. И в заключение хочу дать один рецепт быстрого приготовления вкусняшки. Это польская запеканка. Поскольку сейчас много грибов она будет весьма кстати. Покупаем багет, желательно помягче. Режем его вдоль, отделяем верхнюю часть с корочкой. А нижнюю оставляем, она должна быть длиной 30 см. можно и больше. Сверху тонким слоем мажем томатной пастой. Заранее приготовленные грибы (их надо отварить, остудить, нашинковать помельче, а потом с лучком пережарить) накладываем на багет. Сверху посыпаем тёртым сыром и в духовку или микроволновку. 2-5 минут и у вас отличная хрустящая запеканочка! Этакая польская пица... Сейчас в Поляндии тоже с палатками идёт война, а своё время запеканки продавались на каждом шагу. Приятного аппетита!</p></center></center>
+Автор: Vit Belov
+
+### 02.09.2016 news Обложка нового альбома VADER
+
+<p>4 ноября выходит новый альбом death metal легенд из Польши <strong>VADER "The Empire"</strong>. Сегодня группа опубликовала обложку, которую нарисовал <strong>Joe Petagno</strong>.</p><p>Трек лист:</p><p>Angels of Steel<br>Tempest<br>Prayer to the God of War (album version)<br>Iron Reign<br>No Gravity<br>Genocidius<br>The Army-Geddon<br>Feel My Pain<br>Parabellum (album version)<br>Send Me Back to Hell</p><p><center><img width="600" height="615" src="/images/news_rus/2016.09/29915.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 02.09.2016 news VADER - cover artwork for »The Empire« revealed!
+
+<p>The longest living and most resilient tank of Poland’s Death Metal fleet has once again hoisted its flag – ready to overrun the world with its new triumphant procession. They recently fired their first warning shot with their “<strong>Iron Times</strong>” EP, and now<strong> VADER</strong> are building their own all conquering empire with new studio album “<strong>The Empire</strong>” (out 4th November).</p><p>Today, the band has revealed the cover artwork of that new masterpiece. This stunning visualisation was created by acclaimed artist Joe Petagno who has also created artwork for Pink Floyd, Led Zeppelin, Motцrhead, Marduk, Illdisposed and Sodom.</p><p>Mastermind <strong>Piotr "Peter" Wiwczarek</strong> states:</p><p>"<em>Here is the cover art for "The Empire" created by Joe Petagno himself !!! The whole design includes many details connected to the main theme influencing me before and during the process of recording: war and the "cold crisis" around us today... There are also links to couple of famous movie series, which influence the generations and erupt with violence, hate and "imperial tendencies"... Is this just a fantasy or maybe a sign of the 21st century generation ? You have to answer that in Your own... and the future will show us , how real that feeling is? Enjoy "The Empire" and .... join us on tour soon</em>"</p><p>Tracklisting of »The Empire«</p><p>Angels of Steel<br>Tempest<br>Prayer to the God of War (album version)<br>Iron Reign<br>No Gravity<br>Genocidius<br>The Army-Geddon<br>Feel My Pain<br>Parabellum (album version)<br>Send Me Back to Hell</p><p>Without doubt, “The Empire” falls under the category of VADER’s classic albums. The impressive monument that they have built with their 13th studio album will immediately find its place in metal history. And it will also prove that VADER don’t need to make their peace with the world; they never did, and they certainly don’t now – especially after writing more than 30 years’ worth of Death Metal history.</p><p>The globally conquering weapon was produced, mixed and mastered by <strong>Wojtek and Slawek Wiesawski</strong>. “The Empire” was completed within the secret bunkers of Hertz Studios in Bialystok, Poland. The weapon is going to be unleashed upon the world on November 4th, 2016 by commanders in chief, Nuclear Blast.</p><p><center><img width="600" height="615" src="/images/news/2016.09/29916.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 15.09.2016 articles VADER в Москве: &quot;Отличный старт сезона!&quot;
+
+<p><em></em><center><em><img width="600" height="400" src="/images/articles_rus/2016.09/29961.jpg" border="0"></em><p></p><p><em>11 сентября в московском клубе Brooklyn в рамках турне по России «Transsiberian Blitz Tour” выступили поляки VADER. Как обычно, в случае со знаменитыми death-metal'истами, вечер получился интенсивным и выжигающим все силы у поклонников стиля.</em></p><p>Клуб Brooklyn находится в одном из знаменитых зданий Москвы. Речь идёт о высотке на Баррикадной, в подвале которой расположен уютный небольшой клуб, дающий приют металистам. Размер площадки не позволяет проводить на ней крупные события, но для VADER Brooklyn оказался в самый раз. Зрителей было ровно столько, сколько может вместить клуб без вреда для здоровья музыкантов и посетителей. Сразу отмечу идеальный звук, что является самым весомым качеством для тяжелометалического концерта любого уровня. И главные герои вечера VADER, и разогревающие коллективы звучали практически идеально. В связи с небольшими размерами клуба на сцене, прямо скажем, особо не развернёшься, да и в зале нет места, чтобы приземлиться и отдышаться, но такое впечатление публика в этот вечер была настроена решительно и уже во время выступления второй разогревающей группы GROND начался нешуточный слэм. Об этом чуть позже, а начнём с открывавших концерт брутальщиков ENEMY CRUCIFIXION.</p><p>Молодой коллектив имеет в своём активе полноформатный альбом «Core Of Humanity”, вышедший в феврале текущего года. В зале продавались майки группы, но на CD альбом пока не выходил. Творчество ENEMY CRUCIFIXION слишком брутально для прошедшего концерта. Москвичи в своей музыке пытаются сочетать традиционный death metal с более брутальными стилями — slamming brutal death и deathcore. Энтузиазм, с которым группа исполняет свой достаточно средний материал, вызвал уважение в публике. Зал, заполненный пока только наполовину, встречал ребят очень тепло. Особенно обратил на себя внимание вокалист Артемий, который несмотря на небольшое сценическое пространство, полностью отдавался музыке, отчаянно заводя публику своими эмоциями. Этот перфоманс несколько скрасил достаточно слабое владение инструментами группой, исключая барабанщика. Уже на выступлении следующей группы GROND стало понятно, что по уровню ENEMY CRUCIFIXION пока не дотягивают до столь значимых выступлений, как визит в Москву зарубежной команды уровня VADER.</p><p>В середине лета GROND выпустили второй полноформатный альбом «Worship The Kraken” на известном испанском лэйбле Xtreem, которым руководит вокалист AVULSED Dave Rotten. Уже тогда коллектив обратил на себя внимание. Мощный ритимичный материал, действующий чётко на доли мозга, отвечающие за headbanging. С первого аккорда GROND доказали, что являются более чем достойным суппортом для VADER. Великолепное качество звучания, ритмы, которые особенно хорошо подходят для концертного исполнения, активная публика перед сценой просто сошла с ума, а постоянные скандирования имени GROND доказывали, что некоторое количество фэнов пришло не только на поляков. Привлёк моё внимание лидер коллектива вокалист и барабанщик Kist. Ещё перед началом выступления мне было любопытно, как он сможет совмещать игру на инструменте с пением, он доказал, что обладает достаточно крепнкой нервной системой для беспрерывного рычания с чёткой игрой руками и ногами. Добавил впечатления имидж вокалиста. Дрэды, чёрные очки, чёткая высокая посадка за инструментом. Эдакий Стиви Вандер от death metal, такая же невозмутимая и несколько ленивая манера исполнения. Послушав музыку GROND вживую, у меня родились некоторые мысли, касающиеся их творчества. Музыканты как бы проводят эксперимент на обезьянках своей музыкой. В качестве подопытных предстаёт публика в зале, которой проигрывают ритмические мелодии, вызывающие у них экстаз и заставляющие извиваться в конвульсиях, яростно тряся бошками. При этом сама музыка GROND совсем не сложна, но звукоизвлечение и магические ритмы вызывают неподдельный, но необъяснимый восторг. Вероятно, мы имеем дело с каким-то новым словом в death metal, который прошёл высшую степень очистки и теперь вызывает только блаженное опьянение без головной боли и тошноты от сивушных масел. Музыку GROND можно сравнить с творчеством ранних RAMMSTEIN, которые вычистили industrial metal от всего возможного шлака, оставив только ритм, который до сих пор покоряет миллионы.</p><p>VADER легко с первых минут выступления доказали, что примеси в death metal не только разрушают нервную систему, но могут быть и очень полезны и вкусны. Например, мой любимый хит «Triumph Of Death” с последнего на сегодня полноформатного альбома коллектива “Tibi Et Igni”, в поддержку которого формально проходит и этот тур. Этот трек тоже очень прост и поражает чётким ритмом, но песня не столь примитивна и не столь музыкально дистиллирована. В ней присутствуют переходы, моменты на стыке стилей. Так и творчество VADER, которые безусловно могут играть любую музыку, но не зацикливаются на чём-то одном, стараясь развиваться или хотя бы меняться от альбома к альбому. Так и на грядущем альбоме «The Empire” нас ждут, по признанию лидера поляков Петра, риффы, которые группа не использовала в своём творчестве никогда. Пока что мы слышали только один сингл с этого альбома «Prayer To The God of War”, быстрая жёсткая и слегка death'n'roll вещь, которая много нам не сказала, но доказала качества, свойственные современному VADER: великолепное продюссирование, напор и хитовость. Возвращаясь к прошедшему шоу, отмечу традиционный для Петра приветливый настрой, он общался с публикой на русском языке, шутил, подбадривал, а фэны отвечали ему безумной поддержкой. К работе на сцене и звуку не может быть никаких претензий, VADER заслуженно являются одной из самых знаменитых концертных команд в death metal и продолжают подтверждать это звание даже на фоне подрастающих молодых коллективов, которые могут на сцене буквально всё. </p><p>Польский коллектив оставил очень приятное&nbsp; впечатление, да и шоу целиком стало отличным началом концертного сезона для меня. Отличный клуб, отличный звук, разогрев и герои вечера. VADER продолжают находится в России. Сегодня, 15 сентября, они выступают в Красноярске, завтра, 16 сентября, в Иркутске, 17 сентября — в Хабаровске, а 18 сентября — во Владивостоке. Сибирь и Дальний Восток, приходите на концерт, столь качественного death metal в ближайшее время до вас может и не доехать!</p><p>Фото с выступления VADER в Москве<a href="/ru/galleries/1/1790/"> смотрите здесь.</a></p></center>
+Автор: Vit Belov
+
+### 15.09.2016 news VADER выступили в Москве
+
+<p>11 сентября в московском клубе<strong> Brooklyn</strong> в рамках турне по России «<strong>Transsiberian Blitz Tour</strong>” выступили поляки <strong>VADER</strong>. Как обычно, в случае со знаменитыми death-metal'истами, вечер получился интенсивным и выжигающим все силы у поклонников стиля.</p><p>Читайте отчёт о выступлении поляков в Москве: <a href="/ru/articles/1/73539/">http://musica.mustdie.ru/ru/articles/1/73539/</a></p><p>Фотоотчёт о концерте: <a href="/ru/galleries/1/1790/">http://musica.mustdie.ru/ru/galleries/1/1790/</a></p><p><center><img width="600" height="400" src="/images/news_rus/2016.09/29962.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 14.10.2016 news VADER выпустили новый сингл
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Песня "<strong>Parabellum</strong>" с выходящего нового альбома <strong>VADER "The Empire"</strong> доступна в клипе ниже. Новый альбом классиков польской death metal сцены выйдет 4 ноября на <strong>Nuclear Blast Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/bmNgG3fqQaw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.10.2016 news New single of VADER
+
+<p>The longest living and most resilient tank of Poland’s Death Metal fleet has once again hoisted its flag – ready to overrun the world with its new triumphant procession. They recently fired their first warning shot with their “<strong>Iron Times</strong>” EP, and now <strong>VADER</strong> are building their own all conquering empire with new studio album “<strong>The Empire</strong>” (out 4th November).</p><p>Today, the band released the track video for the song "<strong>Parabellum</strong>". Check it out here:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/bmNgG3fqQaw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.10.2016 news Новое лирик-видео VADER
+
+<p>Новый сингл<strong> VADER "Angels Of Steel"</strong> можно послушать в лирик-видео ниже. Ураганный трек откроет новый альбом поляков <strong>"The Empire"</strong>, который выйдет 4 ноября на <strong>Nuclear Blast</strong> и в России на Союзе.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/uyq7og1Jnzs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.10.2016 news VADER: New lyric video
+
+<p>Polish death metal legends,<strong> VADER</strong>, will unleash their upcoming album »<strong>The Empire</strong>« on November 4th via<strong> Nuclear Blast</strong>. Today, the band are pleased to present their brand new lyric video and track <strong>'Angels of Steel'</strong>. This song will be the very first track on the new record, and it certainly sets the bar high!</p><p><center><iframe width="665" height="375" src="https://www.youtube.com/embed/uyq7og1Jnzs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.11.2016 reviews Не про самую старую death metal группу Польши
+
+<p>Уже много лет как мантру в рецензиях твердят фразу — старейшая death metal группа Польши. Это безусловно справедливое утверждение, но главной темой заметки подобные сентенции делают обычно для групп с богатой историей и куцым настоящим. К VADER подобный подход неприемлем. Группа постоянно ищет новые подходы к своему творчеству, при этом никогда не выходит за рамки. Это касается не только сочинения материала, но и саунда, полякам удаётся звучать олдскульно, но актуально. Как это получается, я не знаю, но тринадцатый номерной альбом «The Empire” удивляет и завораживает.</p><p>Уже на прошлом альбоме с оригинальным материалом «Tibi Et Igni” VADER выдали несколько по-настоящему трешевых композиций, на которых особенно отчётливо прослеживалось наследие европейской тяжёлой музыки, доказывающее, что современный death metal произошёл от thrash metal. “The Empire” развивает эту мысль досконально. Теперь музыка VADER настолько же thrash metal, насколько и death metal. 33 минуты пролетают на одном дыхании, мощные брутальные риффы, энергетический заряд, чёткий ритмический рисунок. Дополнительной особенностью альбома стал звук, который вместе с чертами, присущими VADER ранее, приобрёл какие-то дополнительные компоненты. Кому-то это может не понравиться, обновленный саунд на «The Empire” может стать его главным недостатком. Через какое-то время в этому довольно странному суховатому звуку привыкаешь и никаких неудобств больше не испытываешь. <br>Этот альбом точно не самый тяжёлый в дискографии VADER, но он оригинален и интересен.</p><p>Ветераны из Польши на каждом альбоме пытаются найти в своей музыке что-то новое. И это им удаётся, каждый раз альбомы в этом ортодоксальном стиле слушаются свежо. Именно это главная особенность и достоинство современных VADER, которые продолжают поиск и не выпускают шаблонных пластинок.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Vader

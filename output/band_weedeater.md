@@ -32,6 +32,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.12.2001 news The upcoming WEEDEATER &quot;16 Tons&quot; full length CD ...
+
+<p>"16 Tons", the sophomore effort from Wilmington,NC's WEEDEATER, is officially in the hopper, and has a street date of March 19th, 2002. This North Carolina band features Dave "Dixie" Collins of the legendary Southern metal band BUZZOVEN, and shares a similiar stoned approach to crushing riffs,savage vocals, and Southern rock leanings. But WEEDEATER has finally come into their own with the forthcoming "16 Tons".....Produced by Billy Anderson (SLEEP,BRUTAL TRUTH,MELVINS), this 45-minute aural Jihad is the follow-up to 2000's critically acclaimed debut, "And Justice For Y'all" (Berserker Records), and features vastly heavier songs and production. WEEDEATER has garnered a rabid cult following worldwide in it's seven years of existence, thanks to it's dangerous live performances and violently ugly approach to southern-fried Death-Boogie. We expect "16 Tons" ,with it's 10-megaton riffs and Doom-laden forays into metal psychedelia, will add even more fuel to the fire.</p>
+
+Автор: Yermola
+
+### 24.12.2001 news 16 тонн южного дэс-буги...
+
+<p>Северно-каролинские перцы "WEEDEATER" выпускают альбом продолжение к дебютнику "And Justice For Y'all" (Berserker Records). Называться он будет "16 Tons" и попадет на прилавки 19 марта 2002. Продюссировал эту 45-минутную поделку Billy Anderson (SLEEP,BRUTAL TRUTH,MELVINS). Команда обещает "10-мегатонные риффы, психоделию и хорошо прожаренное дэс-буги..."</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

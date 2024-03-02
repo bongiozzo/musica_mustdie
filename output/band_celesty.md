@@ -88,6 +88,396 @@ Part II - Battlefield - The departure - Ride of Amardon - Ending
 
 * C группой "Altaria" J.-P. Alanen (guitar)
 
+## Публикации
+
+### 03.06.2002 news Новое приобретение Arise records....
+
+<p>Финская power-metal команда Celesty заключила контракт с Arise records. Группа выиграла соревнование в предверии выхода второй части tribute To Helloween. Дебютный альбом будет записан в августе. Кавер нарисует Christian Andersson (Amon Amarth, Morifade, Supreme Majesty).</p>
+
+Автор: Yermola
+
+### 01.06.2003 reviews Стандартный и качественный финский power-metal
+
+<p>Нельзя сказать, что данная пластинка подарок всем фэнам melodic power-metal. Это не подарок - это их "хлеб насущный". Все, кто ходят по магазинам, и хотя бы раз в месяц ищут все новинки в данном стиле обязаны приобрести CELESTY. Хорошая светлая музыка, качественно исполненная, всё ещё пользуется популярностью. В общем-то, больше ничего про финов сказать и нельзя... Скажем, что данный альбом рассказывает о какой-то там сказочной стране, содержит парочку быстрых хитов и одну душещипательную балладу. Единственным недостатком, можно назвать некоторое падение темпа к середине альбома. Всё-таки нужно немного энергичнее... Всё ясно...</p>
+
+Автор: Vit Belov
+
+### 01.03.2004 news CELESTY пишут новый альбом
+
+<B>CELESTY</B> микшируют новую пластинку "<B>Legacy Of Hate</B>" в&nbsp;<B>Fantom Studios</B>. За время прошедшее с прошлого альбома группа сменила вокалиста. Новым певцом стал <B>Antti Railio</B>. Также в запси принял участие хор и гитарист <B>Richard Andersson (Time Requiem)</B>.
+Автор: Vit Belov
+
+### 01.03.2004 news CELESTY are mixing new album
+
+<P><B>CELESTY</B> are just mixing their second album <B>'Legacy Of Hate'</B> at <B>Fantom Studios</B> in Finland. <B>Antti Railio</B> is the new talented singer in the band.<BR></P>
+<P><B>Richard Andersson (Time Requiem)</B> will appear as guest musician in a track and the band has also had the participation of a choir in the recording.<BR></P>
+Автор: Vit Belov
+
+### 28.04.2004 news CELESTY опубликовали трэк-лист
+
+<IMG height=252 alt="" hspace=0 src="/images/news_rus/2004.04/6453.jpg" width=300 align="left" border=5>Новый альбом&nbsp;<B>CELESTY 'Legacy Of Hate'</B> выходит в мае на <B>ARISE</B>. Трэк-лист: <B>I. Intro II. Unbreakable III. Dream IV. Breed from the land unknown V. Army of the universe VI. Settlement VII. Shelter VIII. Legacy of hate Part I - Blood of our enemies - Before the sword - Confused thoughts &shy; Betrayal IX. Legacy of hate Part II - Battlefield - The departure - Ride of Amardon - Ending<BR></B>
+Автор: Vit Belov
+
+### 28.04.2004 news CELESTY will release new album
+
+<B><IMG height=252 alt="" hspace=0 src="/images/news_rus/2004.04/6454.jpg" width=300 align="left" border=0>CELESTY</B> will release their second album "<B>Legacy Of Hate</B>" in May. This&nbsp;album was recorded at <B>Fantom Studios</B> and mastered by <B>Mika Jussila</B> at <B>Finnvox</B>.<BR>Tracklist:<BR><B>I. Intro II. Unbreakable III. Dream IV. Breed from the land unknown V. Army of the universe VI. Settlement VII. Shelter VIII. Legacy of hate Part I - Blood of our enemies - Before the sword - Confused thoughts &shy; Betrayal IX. Legacy of hate Part II - Battlefield - The departure - Ride of Amardon - Ending</B><BR>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 11.07.2005 news Гитарист CELESTY присоединился к ALTARIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым гитаристом <STRONG>ALTARIA</STRONG> стал <STRONG>J.-P. Alanen</STRONG>, известный по выступлению в составе <STRONG>CELESTY</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Напомним, что он сменил на этом посту ушедшего на днях <STRONG>Jani Liimatainen</STRONG> (<STRONG>SONATA ARCTICA</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 11.07.2005 news J.-P. Alanen joined ALTARIA
+
+<P><STRONG>J.-P. Alanen</STRONG> has become new guitar-player of <STRONG>ALTARIA</STRONG>. Early he played in <STRONG>CELESTY</STRONG>.</P>
+<P>He replaced <STRONG>Jani Liitmatainen (SONATA ARCTICA</STRONG>).</P>
+Автор: Vit Belov
+
+### 08.11.2005 news J.-P. Alanen покинул CELESTY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>J.-P. Alanen</STRONG> покинул <STRONG>CELESTY</STRONG>. Это связано с личными проблемами <STRONG>Alanen</STRONG>, и никак не связано с тем, что он присоединился к <STRONG>ALTARIA </STRONG>недавно. По крайней мере, так он заявил в своём обращении на сайте <STRONG>ALTARIA</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 16.02.2006 news НОВОСТИ ОТ DOCKYARD 1 RECORDS
+
+<P>Вашему вниманию - новейший информационный бюллетень <B>Dockyard 1 Records</B> от 14 февраля, 2006 г.<BR><BR>ЦИРК! ЦИРК! ЦИРК!<BR>&nbsp;<BR>Суперуспешное шапито <B>SAVAGE CIRCUS</B> - под руководством экс-стражника <B>Томена Штауха</B> и гиперпродюсера <B>Пита Зилька</B> - намерено дать два беспрецедентных шоу на российской территории.<BR>&nbsp;<BR>15 апреля 2006 г. - Москва, Клуб "Точка"<BR>16 апреля 2006 г. - Санкт-Петербург, Клуб "Порт"<BR>&nbsp;<BR>Не пропустите!!! В программе - ЖИВЫЕ ЗВЕРИ СОВРЕМЕННОГО МЕТАЛА!!!<BR>&nbsp;<BR>в других новостях:<BR>&nbsp;<BR><B>SHELTER</B>. Попкоровые боги разместили трек <B>"Eternal"</B> на своей страничке в сервисе Myspace. <B>"Eternal"</B> - первая композиция коллектива с момента распада в 2001 году. Полнометражный альбом с тем же названием сойдет со стапелей <B>Dockyard1</B> 24 апреля.<BR>&nbsp;<BR><B>MYSTIC CIRCLE</B>. Ортодоксальные блэкстеры подтвердили свое участие в крупнейших немецких фестивалях - <B>With Full Force</B> (30.06-02.07) и <B>Wacken Open Air</B> (03.08-05.08).<BR>&nbsp;<BR><B>AFTER ALL</B>. Обладатели звания "Лучшей бельгийской метал группы 2005 года" (по мнению ведущих радиошоу "Whiplash") составят компанию <B>KING DIAMOND</B> и <B>MERCENARY</B> на голландском участке их совместного евротура.<BR>&nbsp;<BR>НОВОСТИ КОРАБЕЛЬНОГО ЦЕХА, ИЛИ ВСКОРЕ НА DOCKYARD1<BR>&nbsp;<BR><B>DREAMLAND - "Future's Calling"</B> <BR>&nbsp;<BR>20 февраля 2006 <BR><B>ABANDONED - "Thrash Notes"<BR>MYSTIC CIRCLE - "The Bloody Path Of God"</B> <BR>&nbsp;<BR>20 марта 2006 <BR><B>LOST IN RHONE -&nbsp; "Beloved Be The Ones Who Sit Down"<BR>VANISHING POINT&nbsp; - "In Thought"<BR>WALTARI - "Blood Sample"</B> <BR>&nbsp;<BR>24 апреля 2006 <BR><B>ASSAILANT - "Nemesis Within"<BR>SHELTER - "Eternal"<BR>DEATH BEFORE DISCO - "Barricades"</B><BR>&nbsp;<BR>22 мая&nbsp;2006<BR><B>AS WE FIGHT</B> - tba<BR><B>PERSUADER - "When Eden Burns"</B><BR>&nbsp;<BR>19 июня 2006<BR><B>IRON SAVIOR</B>&nbsp; - tba<BR>&nbsp;<BR>вторая половина 2006 года<BR><B>LAKE OF TEARS, CELESTY, DREAMLAND</B> and many more<BR>&nbsp;<BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+Автор: Ixtiandr
+
+### 02.03.2006 news Новости от Dockyard 1 Records
+
+<P>Вашему вниманию -<BR>новейший информационный бюллетень <B>Dockyard 1 Records</B> от 1 марта,<BR>2006 г.<BR><BR>Выпуск диска - почти такое же счастье, как рождение ребенка, и отмечать его следует подобающим образом. На днях два монстра немецкой сцены - <B>MYSTIC CIRCLE</B> и <B>ABANDONED</B> - устроили совместную гитарную резню, дабы отпраздновать выход своих новых пластинок - <B>"The Bloody Path Of God"</B> и <B>"Thrash Notes"</B>. Собравшиеся вечером 22 февраля в дармштадском Steinbruch-Theater смогли попить пива в обществе любимых групп, поучаствовать в забавных конкурсах и, конечно же, оторваться под шквальным напором тевтонского тяжеляка. Все остальные - опоздавшие, проморгавшие или просто не имеющие немецкого гражданства лица - в качестве "утешительного приза" могут прослушать свежий трек <B>ABANDONED</B> <B>'Return To One'</B>, который группа любезно выложила на своей Myspace-страничке.<BR><BR><B>SAVAGE CIRCUS</B>. ""Циркачи" выступят на разогреве у <B>EDGUY</B> во время их концертов в Токио 16 и 17 марта. Кроме того, группа номинирована на получение награды <B>"Best Debut Album 2005"</B> от эстонского вебзина <B>Metalstorm</B> за прошлогодний диск <B>"Dreamland Manor"</B>.<BR><BR><B>WALTARI</B>. Финские шутники-экстремалы почтили своим выступлением металлическую ярмарку <B>Finnish Metal Expo</B>, прошедшую 17-18 февраля в родном городе музыкантов - Хельсинки. В рамках двухдневного смотра лучших гитарист коллектива <B>Сами</B> провел мастер-класс для всех желающих. А тем временем новейшая пластинка финнов - <B>"Blood Sample"</B> - уверенно движется к своему релизу. Спрашивайте в магазинах с 20 марта.<BR><BR><BR>В ПЛАНАХ<BR>---------------<BR><BR>20-е февраля 2006 <BR><B>ABANDONED - "Thrash Notes"<BR>MYSTIC CIRCLE - "The Bloody Path Of God"</B> <BR><BR>20-е марта 2006 <BR><B>LOST IN RHONE -&nbsp; "Beloved Be The Ones Who Sit Down"<BR>VANISHING POINT&nbsp; - "In Thought"<BR>WALTARI - "Blood Sample"</B> <BR><BR>24-е апреля 2006 <BR><B>ASSAILANT - "Nemesis Within"<BR>DEATH BEFORE DISCO - "Barricades"<BR></B><BR>22-е мая 2006<BR><B>SHELTER - "Eternal"<BR>PERSUADER - "When Eden Burns"<BR></B><BR>19-е июня 2006<BR><B>AS WE FIGHT - tba<BR>IRON SAVIOR&nbsp; - tba<BR></B><BR>вторая половина 2006 года<BR><B>LAKE OF TEARS<BR>CELESTY<BR>DREAMLAND</B><BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 21.08.2006 news Новости от Dockyard 1
+
+<P>Проводя раскопки в самом центре шведского Стокгольма, мы наткнулись на редкий бриллиант: <B>BLACKSHINE</B> начинали как дэт-металлическая команда, однако уже на дебютном альбоме от дэта осталось лишь мрачная аура, сама же музыка обильно проросла рок-н-роллом. Тягучим, мрачным, глубоким. И сейчас все мы, затаив дыхание, ждем тягучей, мрачной, глубокой осени, копим грусть и другие минусы настроения, чтобы быть готовыми. Быть готовыми к выходу <B>"Lifeblood"</B>, столь долгожданного продолжения восхитительного <B>"Soulless Proud"</B>...&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>ДРУГИЕ НОВОСТИ<BR><BR><B>REDKEY</B>. Пауэр-металлисты из немецкого городка, где когда-то сделали первый "Фольксваген Жук", идут к нам с дебютной пластинкой под мышкой. Экипаж - знакомые все лица: <B>Томас Ретке</B> и <B>Саша Пает</B>, бывшие участники <B>HEAVEN'S GATE</B>. Они не играли вместе 15 лет, но тем занимательнее грядущий релиз для тех, кто считает NWOBHM неактуальным для века XXI. На <B>"Rage Of Fire"</B> вас поджидает взрывоопасная выжимка из наследия <B>JUDAS PRIEST</B>, возведенная в степень сверхсовременного звучания а-ля <B>RACER X</B> или <B>VICIOUS RUMOURS</B>. Релиз - 25.08.2006. Слушаем: <A href="http://www.myspace.com/redkeymetal"><U>www.myspace.com/redkeymetal</U></A>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>WINGDOM</B>. Коллектив под художественным руководством клавишника <B>Микко Харкина</B> (ex-<B>SONATA ARCTICA</B>) и басиста <B>Алессандро Лота</B> (ex-<B>RHAPSODY</B>) готовит релиз. Название - <B>"Reality"</B>. Формула: типичный мелодик метал с жесткими вкрапленими. Еще на этапе записи музыкальный материал привлек внимание <B>Тимо Котипелто</B> из <B>STRATOVARIUS</B>, который пообещал оказать<BR>группе мощную поддержку. В магазинах <B>"Reality"</B> появится с 25.09.2006. Слушаем: <A href="http://www.myspace.com/wingdomfinland"><U>www.myspace.com/wingdomfinland</U></A>&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>FRONTSIDE</B>. Эту польскую группу называют не иначе как "европейский ответ <B>KILLSWITCH ENGAGE</B>". Цитата из <B>Metal Hammer</B>: "<I>Польша становится все более современной... и вместе с тем могучей, свежей, тяжелой. Обязательно обратите внимание на эту группу.</I>" <B>Нергал</B> из <B>BEHEMOTH</B>: "<I><B>FRONTSIDE</B> доказали, что и у металкоровых бригад могут расти настоящие мужские яйца. Крышесносящая энергия, замечательные мелодии - слушать всем!</I>" <B>Мартин</B> из <B>DECAPITATED</B>: "<I>Их музыка не имеет аналогов, а<BR>выступления сводят с ума. Однозначно, мастхэв!</I>" Польский вариант их дебютного альбома, название которого в переводе на английский звучит как <B>"Twilight of The Gods. A First Step To The Mental Revolution"</B>, уже в продаже. Английская версия поступит на прилавки 28 августа.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>LAKE OF TEARS</B>. Новый альбом легендарных шведских дум-н-ролльщиков будет называться <B>"Moons and Mushrooms"</B> и выйдет в январе 2007.<BR><BR><B>VANISHING POINT</B>. Австралийские прогрессмены выступят на разогреве у <B>Закка Уайльда</B>. Концерты известного гитариста пройдут в Аделаиде (23.09) и Мельбурне (24.09). Кроме того, группа работает над материалом для нового студийного диска.&nbsp;&nbsp; <BR><BR><B>DEADSTAR ASSEMBLY</B>. Электрически-готичные металлисты сняли видео на песню <B>'Killing Myself Again'</B> с грядущего полноформатника <B>"Unsaved" </B>(дата выхода - 25.09.2006). Многие считают визуальный ряд видео настоящим шедевром жанра.&nbsp;&nbsp; <BR><BR><B>AS WE FIGHT</B>. Спустя три недели, проведенные в студии с <B>Якобом Бредалем </B>(<B>HATESPHERE, MACHINEMADE GOD, PURIFIED IN BLOOD</B>), запись <B>"Midnight Tornado"</B> закончена. Заводчик муравейной фермы <B>Тью Мэдсен</B> (<B>THE HAUNTED, KATAKLYSM, SICK OF IT ALL</B>, etc) уже начал сведение пластинки.&nbsp;&nbsp; <BR><BR><B>MYSTIC CIRCLE</B>. Календарь немецких турбомюллеров наполнен одними красными днями: совсем скоро начнется совместный тур группы с набирающей мощь немецкой блэк-формацией <B>ENDSTILLE</B>, а затем - полномасштабная европейская трасса в компании<B>&nbsp; ROTTING CHRIST</B> и <B>CARPATHIAN FOREST</B>.&nbsp;&nbsp;&nbsp; <BR><BR><B>CELESTY</B>. Альбом назван - <B>"Mortal Mind Creation"</B>. Треклист: 01. <B>Lord of Mortals</B> 02. <B>Unreality </B>03. <B>Demon Inside</B> 04. <B>War Creations</B> 05. <B>Empty Room</B> 06. <B>Among The Dreams</B> 07. <B>Back In Time</B> 08. <B>Arrival</B> 09. <B>Last Sacrifice</B> 10. <B>Final Pray</B> (Japanese bonus). Ожидаемая дата релиза - 23 октября.&nbsp;&nbsp; <BR><BR><BR>ГРЯДУЩИЕ НОВИНКИ <B>Dockyard 1</B>:<BR><BR>August 28th, 2006<BR><B>SHATTER MESSIAH - "Never To Play The Servant"<BR>FRONTSIDE - "Twilight of The Gods"<BR>REDKEY - "Rage Of Fire"<BR></B><BR>September 25th, 2006<BR><B>BLACKSHINE - "Lifeblood"<BR>DEADSTAR ASSEMBLY - "Unsaved"<BR>WINGDOM - "Reality"</B><BR><BR>October 23rd, 2006<BR><B>CELESTY - "Mortal Mind Creation"<BR>AS WE FIGHT - "Midnight Tornado"</B><BR><BR>Later:<BR><B>IRON SAVIOR</B> - tba<BR><B>DREAMLAND</B> - tba<BR><B>LAKE OF TEARS - "Moons And Mushrooms"</B><BR>and many more <BR><BR><BR><BR>новости подготовлены совместно с интернет-источником<BR><A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 06.08.2007 reviews Будем толерантными
+
+<P>Третий альбом финского секстета с не очень скромным названием Celesty, "Mortal Mind Creation", представляет собой что-то среднее между Sonata Arctica и Stratovarius. Собственно, на этом рецензию можно было и закончить, поставив пластинке "бодрый трояк". Но в наше трудное время быть терпимым или, как еще любят говорить, толерантным является хорошим тоном, поэтому не будем так уж сразу набрасываться на этот коллектив. Ибо плюсы у альбома всё же есть. Во-первых, он длится меньше 50 минут, что после часовых и более продолжительных&nbsp;опусов современных команд уже радостно. Во-вторых, в группе неплохой вокалист (Antti Railio), который и петь умеет и которому хватает ума не залезать в заоблачные фальцетные высоты. В-третьих, альбом хорошо записан и все инструменты звучат довольно чётко (впрочем, это уже давно не исключение). В-четвёртых, песни у группы в основном довольно быстрые и бодрые, а когда в пауэре начинают умничать со среднетемповыми номерами, да еще и приправляя их изрядной долей прогрессива, это слушать совершенно невозможно. Естественно, ничего нового Celesty не изобретают, да и порой при основной всё же роли гитар клавишные сильно выдвигаются на первый план - ну а куда сегодня без симфоничности-то, реальной или мнимой? Да и мелодии, хоть и довольно простые, совершенно не запоминаются. Так что всё, как надо. Любителям жанра вполне можно ознакомиться с данной работой, остальные же совершенно спокойно могут пропустить "Mortal Mind Creation", ибо ничего от этого не потеряют.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 03.04.2008 news CELESTY на Spinefarm
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финны <STRONG>CELESTY</STRONG> подписали контракт с<STRONG> Spinefarm</STRONG>. Группа войдёт в студию летом, чтобы записать свой четвёртый альбом.</FONT></P>
+Автор: Vit Belov
+
+### 26.01.2009 news Новый альбом CELESTY
+
+<P><IMG height=396 alt="" hspace=0 src="/images/news_rus/2009.01/13451.jpg" width=400 align=right border=5>Новая пластинка финнов <STRONG>CELESTY</STRONG> <STRONG>"Vendetta" </STRONG>выходит 11 марта на <STRONG>Spinefarm</STRONG>. Пластинка была записана с участием оркестра и хора. Трэк-лист:</P>
+<P>01. <B>Prelude for Vendetta</B><BR>02. <B>Euphoric Dream</B><BR>03. <B>Greed & Vanity</B><BR>04. <B>Like Warriors</B><BR>05. <B>Autumn Leaves</B><BR>06. <B>Feared by Dawn</B><BR>07. <B>Lord (Of This Kingdom)</B><BR>08. <B>New Sin</B><BR>09. <B>Dark Emotions</B><BR>10. <B>Fading Away</B><BR>11. <B>Legacy of Hate Pt. 3</B><BR>- Candlelight<BR>- Shadow Land<BR>- Chaos and Destruction (instrumental)<BR>- Feelings<BR>12. <B>Gates of Tomorrow</B> (Japanese bonus track)</P>
+<P>В записи альбома приняли участие <STRONG>Stephan Lill</STRONG> (<B>VANDEN PLAS</B>), <B>Elias Viljanen</B> (<B>SONATA ARCTICA</B>) и&nbsp;<B>Suvi-Tuuli Dietrich</B> (<B>ESCAPE</B>).</P>
+Автор: Vit Belov
+
+### 12.03.2009 news Новые песни CELESTY
+
+<P>Финны <STRONG>CELESTY </STRONG>выложили на <STRONG>MySpace</STRONG> две новые песни <STRONG>"Fading Away"</STRONG>&nbsp;и <STRONG>"Like Warriors" </STRONG>с альбома <STRONG>"Vendetta"</STRONG>, который выйдет 18 марта на<STRONG> Spinefarm</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/celestymetal">http://www.myspace.com/celestymetal</A></P>
+Автор: Vit Belov
+
+### 16.03.2009 news Грустная песня от CELESTY
+
+<P>Видеоклип на новую песню "<STRONG>Fading Away</STRONG>" финской группы<STRONG> CELESTY</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=54159512">Celesty - Fading Away</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=54159512,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=54159512,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.06.2009 reviews Титанический труд финнов
+
+<P>Финская группа CELESTY не может похвастаться популярностью своих старших коллег по жанру и соотечественников SONATA ARCTICA и STRATOVARIUS, но их альбомы всегда тепло встречают любители стиля. Симфоничность звучания, понятные мелодии и качество записи и исполнения вызывают уважение.</P>
+<P>На новейшем альбоме “Vendetta” вообще происходит что-то невероятное. Группа взялась за оперно-концептуальный жанр, барабанщик Jere Luokkomaki сочинил целый сказочный мир, а группа наняла оркестр и хор для реализации столь масштабного проекта. Получилось очень симфонично, качественно и подходяще для всех фанатов sympho power-metal. Пока дело не дошло до моего субъективного отношения к “Vendetta” всё было великолепно. Пластинка «шла» чуть ли не на 10 баллов, так как подобные титанические работы не должны оставаться незамеченными. Но… Я так и не смог обнаружить на этой работе не одной запоминающейся мелодии. Мелодическая структура “Vendetta” мне напомнила о BLIND GUARDIAN. Там тоже Hansi Kursch от лица какого-нибудь хоббита распевает что-то такое важное, но затем звучит такой припев, что становятся довольными не только почитатели Толкиена. Здесь же почти вся музыка состоит из таких «монологов», но до хитовых припевов не доходит. Понятно, что альбом что-то от этого теряет, но всё равно прослушивание этой пластинки доставило мне некоторое удовольствие, из-за причин указанных в начале заметки.</P>
+<P>CELESTY замахнулись на большое дело, но сдюжили не до конца. Им не хватило чего-то такого незаметного, о чём и упоминать лишний раз не хочется.</P>
+Автор: Vit Belov
+
+### 31.12.2009 news CELESTY потеряли вокалиста
+
+<P>Вокалист <STRONG>Antti Railio</STRONG>&nbsp;покинул<STRONG> CELESTY. </STRONG>Музыкант сообщил, что неудовлетворён своим местом в банде. Теперь музыкнт сконцентрируется на собственной группе <STRONG>IRON AGE REMAINS.</STRONG></P>
+Автор: Vit Belov
+
+### 20.02.2010 news Брат Tarja нашёл работу
+
+<P>Финны <STRONG>CELESTY </STRONG>объявили имя нового вокалиста. Им стал брат бывшей вокалистки<STRONG> NIGHTWISH Tony Turunen</STRONG>. </P>
+Автор: Vit Belov
+
+### 17.01.2012 news CELESTY впали в спячку
+
+<P>Финны<STRONG> CELESTY</STRONG> объявили о приостановке собственной деятельности. В процессе записи пятого альбома музыканты пришли к выводу, что группе необходим перерыв.</P>
+<P><center><IMG height=395 src="/images/news_rus/2012.01/22681.jpg" width=470 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

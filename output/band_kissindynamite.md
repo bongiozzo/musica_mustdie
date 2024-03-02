@@ -54,6 +54,49 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.01.2012 news Новое видео KISSIN&#39; DYNAMITE 
+
+<P>Новый клип немецких глэмстеров <STRONG>KISSIN' DYNAMITE</STRONG> можно посмотреть ниже. Трек "<STRONG>Money, Sex and Power</STRONG>" заглавная вещь с нового альбома коллектива, который выйдет 23 марта на <STRONG>AFM</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/tlcd_AZD3hs?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 28.04.2016 news Обложка и дата релиза нового альбома KISSIN’ DYNAMITE
+
+<P><STRONG>Kissin’ Dynamite</STRONG> на своей официальной странице в Facebook опубликовали обложку нового альбома, который увидит свет летом 2016 на <STRONG>AFM Records</STRONG>. Диск, получивший название “<STRONG>Generation Goodbye</STRONG>”, станет уже пятым в десятилетней карьере «немецких вундеркиндов» и выйдет 8 июля. Основное издание будет включать 11 песен, а в digi-pack версию войдут CD и DVD диски с бонусным материалом. Также лейбл готовит специальный fan box.<BR><BR>Группа <STRONG>Kissin’ Dynamite</STRONG> была образована в Германии в 2006 г., когда музыкантам было по 15-16 лет. Через год коллектив заключил первый контракт с лейблом, и с тех пор выпустил четыре студийных альбома. Последний из них, "<STRONG>Megalomania</STRONG>", увидел свет осенью 2014 года. В его поддержку был отыгран первый в истории <STRONG>Kissin’ Dynamite </STRONG>европейский хедлайн-тур, диск дебютировал с 17 места в национальных чартах. Группа является постоянным участником крупнейших европейских фестивалей. В декабре 2016 года <STRONG>Kissin’ Dynamite</STRONG> впервые сыграют на Украине. </P>
+<P>Все даты: <A href="http://www.kissin-dynamite.de/en/dates" target=_blank><U><FONT color=#0066cc>http://www.kissin-dynamite.de/en/dates</FONT></U></A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.04/29178.jpg" width=480 height=480></CENTER>
+<P></P>
+Автор: Dimas
+
+### 19.05.2016 news KISSIN&#39; DYNAMITE: трек-лист нового альбома
+
+<STRONG>KISSIN' DYNAMITE</STRONG> опубликовали трек-лист нового альбома "<STRONG>Generation Goodbye</STRONG>", который выходит 8 июля на <STRONG>AFM Records</STRONG>. В обычное jewel case издание войдет 11 песен. Также к выходу планируется digipack с бонусами и дополнительным DVD-диском.<BR><BR>Трек-лист обычного издания:<BR><STRONG>01. Generation Goodbye<BR>02. Hashtag Your Life<BR>03. If Clocks Were Running Backwards<BR>04. Somebody To Hate<BR>05. She Came She Saw<BR>06. Highlight Zone<BR>07. Masterpiece<BR>08. Flying Colours<BR>09. Under Friendly Fire<BR>10. Larger Than Life<BR>11. Utopia<BR></STRONG><BR>Бонусы Digipak-издания:<BR><STRONG>12 Living In The Fastlane<BR>13 Only The Good Die Young (Acoustic)<BR>14 Ticket To Paradise (Live In Cologne)<BR>15 I Will Be King (Live In Cologne)</STRONG><BR><BR>Содержание бонусного DVD:<BR>- документальный фильм о туровой жизни Kissin‘ Dynamite<BR>- концертные клипы (Ticket To Paradise, I Will Be King)<BR>- постановочные клипы (I Will Be King, Six Feet Under, Money Sex and Power, DNA, Fireflies (видео с текстом).<BR>
+Автор: Dimas
+
+### 05.06.2016 news KISSIN&#39; DYNAMITE: видео Hashtag Your Life c нового альбома
+
+<p><strong>KISSIN' DYNAMITE</strong> опубликовали видео «<strong>Hashtag Your Life</strong>» на песню с нового альбома "<strong>Generation Goodbye</strong>", который выходит 8 июля на <strong>AFM Records</strong>. Идея клипа частично раскрывает концепцию нового альбома о «потерянном» Интернет-поколении.</p><p>Альбом "Generation Goodbye" выйдет в обычном jewel case издании, которое будет содержать 11 песен, в digipack с бонусами и дополнительным DVD-диском, а также в виде лимитированного бокс-сет издания с сувенирами для поклонников группы.</p><p>Дополнительная информация: <a href="http://promo.afm-records.de/kissin_dynamite/en.html">http://promo.afm-records.de/kissin_dynamite/en.html</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/S2OL9pqNNfQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 05.06.2016 news KISSIN&#39; DYNAMITE: New video &quot;Hashtag Your Life&quot;
+
+<p><strong>KISSIN' DYNAMITE</strong> have posted a video "<strong>Hashtag Your Life</strong>" for song from the new album <strong>"Goodbye Generation</strong>", which will be released July 8 via <strong>AFM Records</strong>. The idea of the video reveals part of the concept of the new album of "lost" Internet generation.</p><p>Album "Goodbye Generation" will be released in a regular jewel case edition, which will contain 11 songs, in digipack with bonuses and extra DVD, as well as a limited box set edition with Souvenirs for fans of the band.</p><p>Additional information: <a href="http://promo.afm-records.de/kissin_dynamite/en.html">http://promo.afm-records.de/kissin_dynamite/en.html</a></p><p>&nbsp;</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/S2OL9pqNNfQ" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 18.06.2016 news KISSIN&#39; DYNAMITE: видео &quot;If Clocks Were Running Backwards&quot; c нового альбома
+
+<p><strong>KISSIN' DYNAMITE</strong> опубликовали видеоклип на балладу "<strong>If Clocks Were Running Backwards</strong>" с нового альбома "<strong>Generation Goodbye</strong>". Это второй сингл с нового релиза, который должен состояться 8 июля на<strong> AFM Records</strong>. </p><p>Альбом "Generation Goodbye" выйдет в обычном jewel case издании, которое будет содержать 11 песен, в digipack с бонусами и дополнительным DVD-диском, а также в виде лимитированного бокс-сет издания с сувенирами для поклонников группы.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/rN5-UzuRUCw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 18.06.2016 news KISSIN&#39; DYNAMITE: One more new video
+
+<p><strong>KISSIN' DYNAMITE</strong> have revealed the video for the ballad "<strong>If Clocks Were Running Backwards</strong>" from the new album "<strong>Goodbye Generation</strong>". This is the second single from the new release, which will be held July 8 via <strong>AFM Records</strong>. </p><p>The album "Goodbye Generation" will be released in a regular jewel case edition, which will contain 11 songs in digipack with bonuses and extra DVD, as well as a limited box set edition with Souvenirs for fans of the band.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/rN5-UzuRUCw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

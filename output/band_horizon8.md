@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.07.2007 news Дебютный альбом HORIZON 8
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2007.07/11745.jpg" width=300 align=right border=5>Дебютный альбом питерской группы <STRONG>HORIZON 8</STRONG> под итоговым названием '<STRONG>Endless</STRONG>' вышел на лейбле <STRONG>DF Music Organization</STRONG>. Диск поступил в продажу с 7 июля 2007 года и включает в себя 7 трэков. Альбом был записан в конце 2006 года на студиях<STRONG> Z-Studio & Navahohut Sound</STRONG> и студии <STRONG>Радио Балтика</STRONG>. Сведением занимался известный финский продюсер <STRONG>Anssi Kippo</STRONG>.</P>
+<P>Промо-ролик к выходу альбома: <A href="http://www.youtube.com/watch?v=U1wnQk6zDgI">http://www.youtube.com/watch?v=U1wnQk6zDgI</A></P>
+<P>Трек-лист альбома:</P>
+<P>1. <STRONG>Intro<BR></STRONG>2. <STRONG>Liar<BR></STRONG>3. <STRONG>Endless circle</STRONG> (<A href="http://www.horizon8.com/mp3/endless_circle.mp3">http://www.horizon8.com/mp3/endless_circle.mp3</A>)<BR>4. <STRONG>Heart nailed</STRONG><BR>5. <STRONG>State of authority<BR></STRONG>6. <STRONG>Exiled/Denied</STRONG><BR>7. <STRONG>Payback</STRONG></P>
+<P>Официальные вэб-ресурсы группы:<BR><A href="http://www.horizon8.com/">www.horizon8.com</A><BR><A href="http://www.myspace.com/horizon8band">www.myspace.com/horizon8band</A></P>
+<P>Ближайший концерт <STRONG>HORIZON 8</STRONG> пройдет в рамках феста <STRONG>RED ALERT OPEN AIR</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

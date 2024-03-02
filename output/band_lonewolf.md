@@ -76,6 +76,32 @@ Line-up : Felix (Drums) Mark (Lead Guitar) Jens (Guitar/Vocals) Dryss (Bass)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2004 reviews Французы и хэви метал
+
+<P><B>Французская команда “Lonewolf”, существует с 1993 года, и играют в ней уже не совсем молодые люди. Вероятно хобби у них такое. После трудового дня надеть кожаные безрукавки, проклепанные напульсники и поколбаситься в клубе перед парой сотен таких же металхэдов. Вполне приличное времяпровождение, на мой взгляд. </B></P>
+<P><B>В рекламе, пришедшей вместе с альбомом, громко заявлено, что это «10 TracksofPure Heavy!!! 45 minutes of old school true heavy metal!!!». Это справедливо лишь отчасти. Да, качество звука и вокал точно Old School. Вокал такой…хриплый... трушный… на Болтендаля похож. Но вот что-то я не припомню, чтоб для классического хэви были свойственны развесёленькие танцевальные фолковые мелодии. Мелодии то хорошие, но оригинальности – ноль. “Lonewolf” очень напоминают мне белорусских “Vicious Crusade”. Да и уровень такой же. Локально клубный. Думаю, альбом “Unholy Paradise” неплохо покупается на концертах, фэнами, впечатленными выступлением группы, ну и нескольким сотням собирателям редкого хэви по всему миру. Выше контракта с испанским Giomusic им не взобраться. Но для группы-хобби очень прилично. Жили б в Москве, были б клубными звездами, а я б с удовольствием ходил на их концерты.</B></P>
+Автор: Дофф
+
+### 14.09.2011 news LONEWOLF сводят новый альбом
+
+<P>Французские heavy-metal'исты <STRONG>LONEWOLF</STRONG> сводят свой новый альбом "<STRONG>Army Of The Damned</STRONG>" в польской <STRONG>MP Studio (SABATON, MORTICIAN)</STRONG>. Продюсером пластинки выступил <STRONG>Bart Gabriel (JACK STARR'S BURNING STARR, CRYSTAL VIPER)</STRONG>, а одну песню на альбоме спел бывший певец <STRONG>IRON MAIDEN&nbsp;Blaze Bayley</STRONG>.</P>
+<P><STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/lonewolfdivision">www.facebook.com/lonewolfdivision</A></P>
+<P><center><IMG height=400 src="/images/news_rus/2011.09/21081.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 25.08.2016 news Новый клип LONEWOLF
+
+<p>Новое видео французов<strong> LONEWOLF</strong> на песню "<strong>Demon's Fire</strong>" можно посмотреть ниже. Трек вошёл в последний альбом power metal коллектива "<strong>The Heathen Dawn</strong>", который увидел свет на <strong>Massacre Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/uEs4HCTXrko" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.08.2016 news New video by LONEWOLF
+
+<p>New video of the French <strong>LONEWOLF</strong> for the song <strong>"Demon's Fire</strong>" can be viewed below. The track was included in the latest album from power metal band "<strong>The Heathen Dawn</strong>", which was released on <strong>Massacre Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/uEs4HCTXrko" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

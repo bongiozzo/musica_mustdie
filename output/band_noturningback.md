@@ -36,6 +36,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2011 news NO TURNING BACK: клип на песню &quot;Take The World&quot;
+
+<P>Клип на&nbsp;песню <STRONG>"Take The World"</STRONG>&nbsp;с альбома <STRONG>"Take Control"</STRONG>&nbsp;голландских&nbsp;хардкорщиков&nbsp;<STRONG>NO TURNING BACK</STRONG> можно посмотреть ниже.</P>
+<P>Видео было снято во время&nbsp;выступления группы на&nbsp;<STRONG>The Ultimate Summerblast Festival</STRONG> в городе Trier (Германия) 16 июля 2011 года. Продюсерами и режиссёрами ролика стали <STRONG>Gideon Kessler</STRONG> и <STRONG>Dirk Van De Lockand</STRONG>.</P>
+<CENTER><IFRAME height=345 src="http://www.youtube.com/embed/QXo8K72XDqM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

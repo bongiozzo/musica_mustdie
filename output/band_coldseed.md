@@ -23,6 +23,19 @@ Speed (SOILWORK) and Thomen (ex-BLIND GUARDIAN)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.11.2005 news COLDSEED на Nuclear Blast
+
+<P>Группа вокалиста <STRONG>SOILWORK Speed'a</STRONG> и бывшего барабанщика <STRONG>BLIND GUARDIAN Thomen'a COLDSEED</STRONG> подписалась на <STRONG>Nuclear Blast</STRONG>. Ожидайте их дебют весной. <STRONG>Speed</STRONG> охарактеризовал музыку коллектива, как смесь <STRONG>RAMMSTEIN</STRONG> и <STRONG>ALICE IN CHAINS</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.10.2008 news Thomen Stauch начал играть готику
+
+<P>Бывший барабанщик <STRONG>BLIND GUARDIAN</STRONG> и <STRONG>SAVAGE CIRCUS Thomen Stauch</STRONG> присоединился к gothic/industrial группе <STRONG>SEELENZORN</STRONG>. Также музыкант продолжает работу над сочинением материала для второго альбома <STRONG>COLDSEED</STRONG> и своего нового power-metal проекта вместе с певцом <STRONG>VIRGIN STEELE David De Feis</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

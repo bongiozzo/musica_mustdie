@@ -30,6 +30,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.03.2012 news Новый альбом РАРОГЪ
+
+<P><IMG height=406 alt="" hspace=0 src="/images/news_rus/2012.03/23290.jpg" width=400 align=right border=0>Третий альбом folk-metal банды<STRONG> РАРОГЪ "Сыны Сокола"</STRONG> вышел на <STRONG>Soundage</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Сын Сокола<BR></STRONG>2. <STRONG>Невидаль<BR></STRONG>3. <STRONG>Сердечная<BR></STRONG>4. <STRONG>Пятый снег</STRONG><BR>5. <STRONG>Огненный меч</STRONG> <BR>6. <STRONG>Рогнеда <BR></STRONG>7.<STRONG> После победы</STRONG><BR>8. <STRONG>Перунова Рень</STRONG> <BR>9. <STRONG>Вещий Сокол</STRONG> <BR>10. <STRONG>Сердце воеводы<BR></STRONG>11. <STRONG>Кровь наших врагов</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

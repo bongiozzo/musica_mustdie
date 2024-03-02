@@ -12,6 +12,39 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2016 news Первая музыка DEPARTE
+
+<p>Австралийская atmospheric black metal группа<strong> DEPARTE</strong> выпускает новый альбом "<strong>Failure, Subcide</strong>" 14 октября на <strong>Season Of Mist</strong>. Ниже можно послушать трек с этого альбома <strong>"Vessel</strong>".</p><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.07/29650.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/BSYxveAbckE" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 22.07.2016 news First music from DEPARTE
+
+<p>Dйparte have announced that their forthcoming full-length will be entitled 'Failure, Subside' (out 14th of October). The Australian metal extremists are furthermore revealing the cover art of 'Failure, Subside', which is based on a photograph by Alistair Davis of Zac Blain that has been edited by Sam Dishington and Michael Rankine. The cover can be viewed below.</p><p>DЙPARTE comment: "The artwork for 'Failure, Subside' deals with feelings of guilt, loss, anxiety, fear, and defeat, closely reflecting the themes throughout the album. These emotions are intimate, almost claustrophobic, clinging to us like dirt - we hold them close, swallow them, hide them away like scars for fear of the shame that comes from the exposure of weakness."</p><p>On further news, DЙPARTE have announced Australian live dates in support of their debut full-length. Except for Brisbane and Perth, the underground shooting stars will be joined by special guests NO HAVEN.</p><p>29 Oct 16 Brisbane (AU) Crowbar<br>04 Nov 16 Launceston (AU) Club 54 (+No Haven)<br>05 Nov 16 Hobart (AU) The Brisbane Hotel (+No Haven)<br>18 Nov 16 Sydney (AU) The Bald Faced Stag (+No Haven)<br>19 Nov 16 Melbourne (AU) The Bendigo Hotel (+No Haven)<br>25 Nov 16 Perth (AU) Amplifier<br>03 Dec 16 Adelaide (AU) Enigma Bar (+No Haven)</p><p>Regarding the tour, DЙPARTE state: "After more than a year since our last live performance, we are set to tour Australia this spring in support of our debut album, 'Failure, Subside'. The stage is where we feel the most at home, where we can truly express ourselves and create a deeply engaging, visceral experience for our audience. To say we are excited about this would be an understatement. Joining us across the country will be our good friends NO HAVEN, fresh off the release of their debut EP 'Colours of Nothing'."</p><p>Line-up<br>Sam Dishington: guitar & vocals<br>Michael Rankine: drums<br>Mitchell Golding: guitar<br>Jarrod Sorbian: bass</p><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.07/29650.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/BSYxveAbckE" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 02.09.2016 news Новый сингл DEPARTE
+
+<p><strong>DEPARTE</strong> выпустили вторую песню "<strong>Grief Echoes (Golden Scars)</strong>" с выходящего альбома <strong>"Failure, Subside'</strong>. Дата релиза 14 октября на <strong>Season Of Mist</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/rpx51r_76GY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.09.2016 news DEPARTE premier new track
+
+<p><strong>DEPARTE </strong>are premiering the second pitch-black track taken from their forthcoming full-length <strong>'Failure, Subside'</strong>. The release date of their debut album has been scheduled for the 14th of October. </p><p>"<strong>Grief Echoes (Golden Scars)"</strong> is now streaming below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/rpx51r_76GY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 29.09.2016 news DEPARTE выпустили последний сингл с выходящего альбома
+
+<p>Австралийцы<strong> DEPARTE</strong> опубликовали песню <strong>"Ruin</strong>" с выходящего на <strong>Season Of Mist</strong> дебютного альбома "<strong>Failure, Subcide</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d7lQyOZtWgA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.09.2016 news DEPARTE stream final single
+
+<strong>DEPARTE </strong>are now streaming the new track "<strong>Ruin</strong>" taken from their forthcoming debut full-length <strong>'Failure, Subside'</strong>, which has been scheduled for the 14th of October. <p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d7lQyOZtWgA" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

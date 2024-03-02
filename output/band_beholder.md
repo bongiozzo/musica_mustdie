@@ -12,6 +12,9 @@ power symphonic metal band from Italy
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

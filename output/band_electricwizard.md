@@ -78,6 +78,44 @@ Tom Bagshaw  -  Cover Art
 
 * C группой "13" Liz Buckingham
 
+## Публикации
+
+### 17.08.2000 news Новости от Electric Wizard
+
+<p>Дата выпуска нового альбома Electric Wizard под названием "Dopethrone" назначена на 25 сентября. Треклист нового альбома: "Vinum Sabbathi", "We Hate You", "Weird Tales", "Funeralopolis", "Barbarian", "Dopethrone", "I, The Witchfinder". Группа также планирует отправится в тур по Европе в сентябре/октябре этого года.</p>
+
+Автор: Phantom Lord
+
+### 01.11.2001 news Metal Maniacs Xmass Ball Tour 2001...
+
+<p>ELECTRIC WIZARD will be taking part in the Metal Maniacs Xmass Ball Tour 2001 along with touring partners ENSLAVED, MACABRE, DIABOLIC and SCAR CULTURE. Confirmed dates so far are as follows: <BR> <BR> Dec. 05 - Philadelphia, PA @ The Trocadero Theater <BR> Dec. 06 - TBA <BR> Dec. 07 - Brooklyn, NY @ North Six <BR> Dec. 08 - Attleboro, MA @ Jarrod's Place <BR> Dec. 09 - Springfield, VA @ Jaxx Niteclub <BR> Dec. 10 - Cleveland, OH @ Peabody's <BR> Dec. 11 - Pittsburgh, PA @ The Strand Theater <BR> Dec. 12 - St. Louis, MO @ Creepy Crawl <BR> Dec. 13 - Chicago, Il @ Double Door <BR> Dec. 14 - Aurora, IL @ Riley's Rockhouse <BR> Dec. 15 - Detroit, MI @ The Shelter <BR> Dec. 16 - Bowling Green, OH @ Howards Club H <BR> Dec. 18 - Toronto, ON @ Reverb <BR> Dec. 19 - Montreal, QB @ Foufounes Electroniques <BR> Dec. 20 - TBA <BR> Dec. 21 - New London, CT @ The El N Gee Club<BR></p>
+
+Автор: Yermola
+
+### 15.07.2013 news ELECTRIC WIZARD: видеоклип &quot;Black Rituals And Perversions&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Английские травокуры и почитатели Ангела Света, ансамбль <STRONG>ELECTRIC WIZARD</STRONG>, опубликовали видео на трек <STRONG>"Black Rituals And Perversions"</STRONG>. Его можно отыскать на уже не очень свежем альбоме этого коллектива, под названием <STRONG>"Witchcult Today"</STRONG> (2007).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип представляет из себя документальные съёмки одного из ритуалов, проводимых Антоном ЛаВеем (<STRONG>Anton LaVey</STRONG>) и его церковью.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Для эстетов!</FONT></P>
+<CENTER><IFRAME height=363 src="http://player.vimeo.com/video/4483517" frameBorder=0 width=500 allowFullScreen mozallowfullscreen webkitAllowFullScreen></IFRAME>
+<P><A href="http://vimeo.com/4483517"></A></P></CENTER>
+Автор: Headcrusher
+
+### 02.07.2014 news ELECTRIC WIZARD: кое-что о новом альбоме
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Английские мастера тяжёлых риффов, группа <STRONG>ELECTRIC WIZARD</STRONG>, во всю работают над новым альбомом. Грядущий диск, получивший название "Time To Die", планируется к выходу в конце 2014 на лейбле <STRONG>Spinefarm</STRONG>. Его обложку можно увидеть ниже.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.07/27107.jpg" width=500 height=526>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 09.09.2014 news ELECTRIC WIZARD: видеоклип &quot;SadioWitch&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Британские думстеры <STRONG>ELECTRIC WIZARD</STRONG> представили видео на трек <STRONG>"SadioWitch"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня войдёт&nbsp;их&nbsp;в грядущий альбом&nbsp;с обнадёживающим&nbsp;названием <STRONG>"Time To Die"</STRONG>. Дата его выхода уже совсем скоро - 29 сентября. Трепещите! Да прибудет с вами Ангел Света!</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/FcxznpM0F-E?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### THE RE-STONED: презентация дебютного альбома (19 августа)

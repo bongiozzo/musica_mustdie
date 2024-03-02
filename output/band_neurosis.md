@@ -194,6 +194,69 @@ Stones From The Sky
 
 * C группой "Tribes Of Neurot" Dave Edwardson, Scott Kelly, Noah Landis, Steve Von Till
 
+## Публикации
+
+### 26.02.2001 news Незаходящее солнце NEUROSIS.....
+
+<p>NEUROSIS только что завершили запись нового альбома для Relapse Records. Диск получил название "A Sun That Never Sets". Ожидаемая дата выхода Июнь или Июль 2001.</p>
+
+Автор: Yermola
+
+### 26.02.2001 news Sun That Never Sets....
+
+<p>NEUROSIS has just finished up the recording of their newsest full-length for Relapse with Steve Albini. "A Sun That Never Sets" is the title of their forthcoming full-length. The album is tenatively set to be released in June or July.</p>
+
+Автор: Yermola
+
+### 06.08.2003 news NEUROSIS пишут новый альбом
+
+<p>Музыканты NEUROSIS заперлись в чикагской Electric Audio studios с продюсером Steve Albini (NIRVANA, BUSH, SOIL) для записи своего нового полнометражного альбома, который обещается к выходу в начале 2004 года через собственный лэйбл группы Neurot Recordings.</p>
+
+Автор: Dimas
+
+### 11.03.2004 bios about Neurosis
+
+<B>Origin: Oakland, CA, USA</B> Scott Kelly guitars/vocals Steve Von Till guitars/vocals Dave Edwardson bass Noah Landis keyboards/samples Jason Roeder drums Neurosis is truly one of the most unique bands in extreme music today. Rising from hardcore roots in the Bay Area in the late eighties (the debut Pain Of Mind is very much a hardcore album), the first signs of the future sound of the band began to take shape on parts of The Word As Law, and by the time of Souls Of Zero (a masterpiece, one of the best albums of the nineties), their transformation into something special was complete. Describing their sound to the uninitiated is a difficult task -- they blend tortured vocals, tribal/rhythmic drumming, slow, dense riffing, and sampling effects to create bleak landscapes of sonic noise. Personal favorites are the aforementioned Souls At Zero and Enemy Of The Sun (somewhat more metallic than the later material), though the new A Sun That Never Sets is also quite good. The live shows are quite an experience as well, with intense visual effects that complement the music.
+Автор: Vit Belov
+
+### 08.07.2011 news NEUROSIS переиздадут миньон
+
+<P><STRONG>NEUROSIS</STRONG> переиздадут свой миньон 2000 года выпуска <STRONG>"Sovereign" </STRONG>12 сентября на собственном лэйбле <STRONG>Neurot Recordings. </STRONG>В качестве бонуса на релизе будет представлена ранее не реализованная вещь <STRONG>"Misgiven". </STRONG>Обложку для CD перерисует <STRONG>Aaron Turner</STRONG>.</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.07/20001.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 28.08.2012 news NEUROSIS: обложка и трек-лист альбома &quot;Honor Found In Decay&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.08/24709.jpg" width=450 height=450>Звуковые террористы - группа <STRONG>NEUROSIS</STRONG> выпускают свой новый альбом&nbsp;на&nbsp;собственном лейбле&nbsp;<STRONG>Neurot Recrodings</STRONG>. Диск получил название - <STRONG>"Honor Found In Decay"</STRONG>. Обложку к нему создал <STRONG>Josh Graham</STRONG> (<A href="http://www.suspendedinlight.com">www.suspendedinlight.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Даты выхода</U>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>26 октября - Германия</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>29 октября - Англия</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>30 октября - Северная Америка</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Трек-лист</U>:</FONT></P>
+<P>1. <STRONG>We All Rage In Gold<BR></STRONG>2. <STRONG>At The Well<BR></STRONG>3. <STRONG>My Heart For Deliverance<BR></STRONG>4. <STRONG>Bleeding The Pigs<BR></STRONG>5. <STRONG>Casting Of The Ages<BR></STRONG>6. <STRONG>All Is Found… In Time<BR></STRONG>7. <STRONG>Raise The Dawn</STRONG></P>
+Автор: Headcrusher
+
+### 22.06.2016 news NEUROSIS назвали альбом
+
+<p>Новый альбом <strong>NEUROSIS </strong>получил название "<strong>Fires Within Fires</strong>". Он выйдет 27 сентября на <strong>Neurot Recordings</strong>.</p><p>Подробности последуют.</p><p><center><img width="490" height="735" src="/images/news_rus/2016.06/29439.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 22.06.2016 news NEUROSIS to release album in September
+
+<p>New <strong>NEUROSIS</strong> album called "<strong>Fires Within Fires</strong>". It will be released on 27 September on <strong>Neurot Recordings</strong>.</p><p>The details will follow.</p><p><center><img width="490" height="735" src="/images/news_rus/2016.06/29439.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 06.07.2016 news Обложка и трек лист нового NEUROSIS
+
+<p>Мы уже сообщали, что новый альбом <strong>NEUROSIS "Fires Within Fires"</strong> выходит 23 сентября. Стал известен трек лист и обложка CD:</p><p>“Bending Light”<br>“A Shadow Memory”<br>“Fire is the End Lesson”<br>“Broken Ground”<br>“Reach”</p><p><center><img width="638" height="640" src="/images/news_rus/2016.07/29541.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 06.07.2016 news Track list and coverart of new NEUROSIS
+
+We have already reported that the new<strong> NEUROSIS</strong> album <strong>"Fires Within Fires</strong>" will come out on September 23. Track list and the CD cover are now published:<p>“Bending Light”<br>“A Shadow Memory”<br>“Fire is the End Lesson”<br>“Broken Ground”<br>“Reach”</p><p><center><img width="638" height="640" src="/images/news_rus/2016.07/29541.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### THE RE-STONED: презентация дебютного альбома (19 августа)

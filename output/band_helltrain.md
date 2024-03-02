@@ -58,6 +58,34 @@ Oskar Karlsson – Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.11.2004 reviews Адский поезд следует без остановок
+
+<P>Вот он! Ещё один классный альбом! При этом, кроме качества, он имеет ещё одно неоспоримое преимущество – это оригинальность.</P>
+<P><STRONG>HELLTRAIN</STRONG> – очень подходящее название для этой группы товарищей, известных по выступлению за такие коллективы, как GATES <STRONG>OF ISHTAR</STRONG> и <STRONG>DEFLEASHED</STRONG>. Их музыка, подобно «адскому поезду», проносится в Ваших динамиках, не сбавляя скорости, не простаивая на остановках.</P>
+<P>Что же играют эти бравые парни, или, правильнее, «машинисты». Издающий лэйбл называет это death’n’roll. Невероятно, но это определение подходит музыке <STRONG>HELLTRAIN</STRONG> на все 100 процентов. Мощная, быстрая, зажигательная и тяжёлая. Эдакий death-metal <STRONG>MOTORHEAD</STRONG>. Или melodic death-metal thrash-punk, как хотите. В своё время начали разрабатывать эту жилу <STRONG>CARCASS</STRONG> на своём альбоме ‘<STRONG>Swansong</STRONG>’, но к несчастью эта пластинка оказалась «лебединой песней» не только для группы, но отчасти и для нарождающегося стиля.</P>
+<P>Особо отмечу разнообразие, которое имеет место. На первых песнях используется орган, и первый трэк <STRONG>Route 666</STRONG> – настоящий хит, без всяких вопросов. Качните, Вы всё поймёте. Эта песня застрянет в Вашем плэйере, как и в моём. А ‘<STRONG>Polizei</STRONG>’, с рефреном, который подошёл бы какой-нибудь готике, только много быстрее сыгранный?</P>
+<P>Отличный альбом. За рулём, в баре, на танцах… Везде слушайте <STRONG>HELLTRAIN</STRONG> – это модно, я думаю.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">IROND</A></P>
+Автор: Vit Belov
+
+### 24.03.2008 news HELLTRAIN в мае
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом мощных шведских death'n'roll'ьщиков <STRONG>HELLTRAIN</STRONG> <STRONG>"Rock 'n' Roll Devil" </STRONG>выйдет в мае на <STRONG>Jimmy Franks Recording Company</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.05.2009 news HELLTRAIN назвали новых музыкантов
+
+<P>Бывший участники<STRONG> THE DUSKFALL</STRONG> <STRONG>Mikael Sanforf</STRONG> и <STRONG>Mats Jarnil </STRONG>стали официальными членами <STRONG>HELLTRAIN</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.09.2009 news Альбом HELLTRAIN в сети
+
+<P>Будущие гости Москвы<STRONG> HELLTRAIN</STRONG> расстались со своим лэйблом <STRONG>Jimmy Franks Recording Company. </STRONG>Лэйбл, принадлежавший вокалисту <STRONG>BLOODHOUND GANG</STRONG> <STRONG>Jimmy Pop, </STRONG>прекратил своё существование. Второй альбом группы, вышедший в сентябре прошлого года, доступен для свободного скачивания на сайте группы: <A href="http://helltrain.blog.com/helltrain-rock-n-roll-devil-free-download/">http://helltrain.blog.com/helltrain-rock-n-roll-devil-free-download/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

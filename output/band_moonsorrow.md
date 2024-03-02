@@ -164,6 +164,460 @@ The Metalica cover 'For Whom The Bell Tolls' was recorded in 2005.
 
 * C группой "Chaosbreed" Marko Tarvonen
 
+## Публикации
+
+### 10.05.2002 news Творческие планы Moonsorrow
+
+<p>Moonsorrow отправятся в Sundi Coop Studios (Finntroll, Rapture, Norther) в ноябре-декабре 2002 года записывать продолжение весьма успешного альбома "Voimasta ja kunniasta". Новый материал, как предполагается, будет более эпичным, мощным и тяжелым, чем прежде.</p>
+
+Автор: Morsus
+
+### 10.05.2002 news News from Moonsorrow
+
+<p>Moonsorrow is heading to Sundi Coop Studios (Finntroll, Rapture, Norther) in November / December 2002 to record the follow-up to their very successful album, "Voimasta ja kunniasta". The new material is said to be even more epic, powerful and plain all-out heavier than before.</p>
+
+Автор: Morsus
+
+### 20.06.2002 reviews Viking metal at it&#39;s best
+
+<p>That's the music ENSLAVED should now play instead of exploring new paths of incomprehensibility. Yep, there's not much to assume: it's viking metal at it's best. Viking metal in the vein of "Hordanes Land", although less harsh and obviously seasoned with a Finnish spirit. THE atmosphere is basically the same, though. It can be _too_ epic at times (guess what I’m talking about?), so unfortunately one point goes down because of that. Nevertheless, "Voimasta Ja Kunniasta" isn't the CD you can easily pass on. Moreover, it strikes as sort of "a must to have" thing.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 21.04.2003 reviews Эпический pagan metal финско-шведско-норвежского разлива
+
+<p>Очередная, уже третья по счёту, работа финских… э-э… викингов? Язычников? Нет, скажем проще – очередная работа финнов из MOONSORROW. Что же мы имеем на этом альбоме? А всё то же, что и раньше. Помпезный, весь из себя эпический, местами немного меланхоличный pagan metal финско-шведско-норвежского разлива. "Kivenkantaja" безусловно лучше "Vojmasta…" (2001) – и это плюс. С другой стороны, этот диск НЕ лучше дебютного "Suden Uni" – и это минус. Ибо расти надо, ребята. А расти они, видать, не хотят. Что ж, мы и не будем настаивать. Ведь всё и так до скрежета зубовного хорошо. А главное – достаточно самобытно.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.09.2003 news MOONSORROW заключили новый контракт с Spikefarm Records
+
+<p>MOONSORROW заключили новое соглашение на два альбома с Spikefarm Records. Первым релизом станет переиздание дебютника группы "Suden Uni", добитого бонусом "Tulkaapa &Auml;ij&auml;t!". Также будет доступен бонусный DVD-диск, на котором будут записаны 2 промо-видео и запись выступления на Tuska 2003 Festival. Переиздание выйдет 8 декабря с совершенно новой обложкой, нарисованной Niklas Sundin (IN FLAMES, ARCH ENEMY, DARK TRANQUILLITY). Над новым же альбомом группа начнёт работу в начале 2004 года.</p>
+
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 14.04.2004 news Moonsorrow Назвали новый альбом
+
+<B>MOONSORROW</B> уже назвали свой новый альбом <B>"Raah Raah Bl&#228;&#228;h". </B>Правда выйдет эта пластинка только в 2005 году.
+Автор: Vit Belov
+
+### 07.09.2004 news MOONSORROW вошли в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MOONSORROW</STRONG> вошли в <STRONG>Tico-Tico studio</STRONG> для записи своего нового альбома <STRONG>"Raah Raah Bl&#228;&#228;h" </STRONG>для релиза в начале 2004 года на <STRONG>Spinefarm</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Kuolema Taidehomoille...Ja Muille</B><BR>02. <B>Puutarhurin Painajainen</B><BR>03. <B>Myin Lapsesi Jammu- Sed&#228;lle</B><BR>04. <B>Vitun Runkkarit Ja Muut</B><BR>05. <B>Saatanan Lehm&#228;</B><BR>06. <B>Homo Jeesus</B><BR>07. <B>Saatanan Saksalaiset, Teist&#228; Ei Oo Mihink&#228;&#228;n</B><BR>08. <B>Shitter Limited On Maailman Paras B&#228;ndi</B> (Feat. <B>Vitummoista P&#246;rin&#228;&#228;</B>)<BR>09. <B>Vapauttakaa Matti Nyk&#228;nen</B><BR>10. <B>Matti Vanhanen On Homo Joka Ei Kest&#228; Viinaa</B><BR>11. <B>Juutalaiskysymys?</B><BR>12. <B>Morjens!!!! </B><BR>13. <B>Anna Pillua Jonne Aaron</B><BR>14. <B>Vitun Verhoilijavitunmestari</B><BR>15. <B>Perspillu Ja Hyv&#228;t Vitut (Puh Runku)</B><BR>16. <B>Se Hyv&#228; Biisi</B><BR>17. <B>Kumipaskiainen</B><BR>18. <B>Hakaristi On Oikeesti Kaunis</B><BR>19. <B>Bjarne Kallis Ty&#246;nn&#228; Risti Vittu Perseeseen</B><BR>20. <B>Ime Meisseli&#228; Silikoni- Janita</B><BR>21. <B>Outro: Viikset</B><BR></P>
+Автор: Vit Belov
+
+### 07.09.2004 news MOONSORROW to enter the studio
+
+<P>Finnish "epic heathen metallers" <B>MOONSORROW</B> have entered <B>Tico Tico</B> studio in Kemi, Finland to begin recording their new album, <B>"Raah Raah Blддh"</B>, for an early 2005 release through the <B>Spinefarm Records</B> imprint <B>Spikefarm</B>. "This album is going to be a bit different release, as we thought not repeating ourselves musically and lyrically," stated guitarist/vocalist <B>Henri Sorvali</B>. "So, no more overlenghty boring songs and epic shit, but some seriously pure aggression, hate and even some politics. (!!!!) Some of you might think itґs not acceptable for taking a step forward (backward?) but might I remind you that it is us who decide the direction of the band, not you."<BR><BR>The complete track listing for the effort, according to the band, is as follows:<BR><BR>01. <B>Kuolema Taidehomoille...Ja Muille</B><BR>02. <B>Puutarhurin Painajainen</B><BR>03. <B>Myin Lapsesi Jammu- Sedдlle</B><BR>04. <B>Vitun Runkkarit Ja Muut</B><BR>05. <B>Saatanan Lehmд</B><BR>06. <B>Homo Jeesus</B><BR>07. <B>Saatanan Saksalaiset, Teistд Ei Oo Mihinkддn</B><BR>08. <B>Shitter Limited On Maailman Paras Bдndi</B> (Feat. <B>Vitummoista Pцrinдд</B>)<BR>09. <B>Vapauttakaa Matti Nykдnen</B><BR>10. <B>Matti Vanhanen On Homo Joka Ei Kestд Viinaa</B><BR>11. <B>Juutalaiskysymys?</B><BR>12. <B>Morjens!!!! </B><BR>13. <B>Anna Pillua Jonne Aaron</B><BR>14. <B>Vitun Verhoilijavitunmestari</B><BR>15. <B>Perspillu Ja Hyvдt Vitut (Puh Runku)</B><BR>16. <B>Se Hyvд Biisi</B><BR>17. <B>Kumipaskiainen</B><BR>18. <B>Hakaristi On Oikeesti Kaunis</B><BR>19. <B>Bjarne Kallis Tyцnnд Risti Vittu Perseeseen</B><BR>20. <B>Ime Meisseliд Silikoni- Janita</B><BR>21. <B>Outro: Viikset</B></P>
+Автор: Vit Belov
+
+### 25.01.2005 reviews Стук железного сердца
+
+<P>Пятая запись&nbsp;финских музыкантов, с первых же минут дает понять, что перед нами не просто очередное viking metal творение. Лучшего викинга не было со времен "<STRONG>Hammerheart</STRONG>". Торжественная музыка переполненная эпической и фолковой атмосферы. Viking metal от <STRONG>MOONSORROW</STRONG> очень мрачный и холодный. Когда слушаешь эту музыку, то поневоле проникаешься чувствами, заложенными в него музыкантами, в воображении возникают ландшафтные картины.&nbsp;Все эти настроения&nbsp;не покинут вас на протяжении всех&nbsp;четырех песни в течение шестидесяти пяти&nbsp;минут,&nbsp;&nbsp;передышка лишь в конце, во время пятиминутного outro. Новая работа <STRONG>MOONSORROW</STRONG> – это смесь эпической&nbsp;музыки в духе&nbsp;<STRONG>BATHORY "Hammerheart"</STRONG> и "<STRONG>Twilight Of The Gods"</STRONG>&nbsp;с быстрыми и агрессивными мелодиями и финскими народными мотивами. Как всегда разнообразные вокалы – чистые и агрессивные. Все вместе viking метал в его лучшем виде – помпезный и эпичный.&nbsp; Поставил бы ему высшую оценку, если бы не было несколько протяженных моментов, содержащих только звуки природы. Их наличие, пожалуй, единственный минус альбома. В любом случае, этот альбом из тех, что обязательно войдет в анналы истории тяжелой музыки и будет считаться классическим долгие годы. </P>
+Автор: Dimas
+
+### 03.06.2005 news Вышел новый номер журнала Rock Oracle!
+
+<SPAN class=bb><SPAN class=crem>
+<P><SPAN class=banddesc><SPAN class=bb><SPAN class=crem><B><SPAN class=nav><B><IMG height=326 alt="" hspace=10 src="/images/news_rus/2005.06/8730.jpg" width=227 align=right border=1>Второй номер журнала Rock Oracle уже в продаже!</B></P>
+<P></SPAN></B><SPAN class=crem><SPAN class=banddesc><SPAN class=crem><SPAN class=tit1><SPAN class=crem><SPAN class=banddesc><SPAN class=lyrica style="COLOR: #ff0000">Спрашивайте в магазинах единственное отечественное рок-издание с компакт-диском!</P><SPAN class=pna>
+<P>Вас ожидают:</P>
+<UL>
+<LI></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>&nbsp;Эксклюзивное интервью с&nbsp;Lacrimosa (подготовьтесь к приезду легенды готической сцены в Москву!); 
+<LI>&nbsp;Отчеты с московских концертов Crematory, Behemoth, Rage, Ensiferum, To/Die/For; 
+<LI>&nbsp;Свежая информация из жизни Obituary, Borknagar, Moonsorrow, Sentenced, Samsas Traum; 
+<LI>&nbsp;Познавательная статьи о развитии готической культуры; 
+<LI>&nbsp;Как всегда куча свежих новостей, рецензий на музыкальные диски, книги и видео</LI></UL><SPAN style="COLOR: #ff0000"><B><SPAN class=tit1><B><SPAN class=banddesc><B><SPAN class=tracks><B><SPAN class=h1><B><SPAN class=total><B><SPAN class=bb><B><SPAN class=band><B><SPAN class=tit1><B><SPAN class=lyrica><B><SPAN class=lyrica><B><SPAN class=banddesc>
+<P class=pna><B>+ компакт-диск - "нарезка" из хитов самых популярных новинок музыкального рынка</B></P></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B>
+<P class=pna></SPAN></B></SPAN></P></SPAN></SPAN>
+Автор: Soubbterranean
+
+### 21.07.2005 articles MOONSORROW в Москве, пресс-релиз
+
+<P>20 августа 2005 г. в Москве состоится концерт эпической фолк-метал группы Moonsorrow. Финские истинные викинги представят русским поклонникам тяжелой фолковой музыки свои лучшие песни о кровавом противостоянии язычников и христиан.</P>
+<P>Биография</P>
+<P>Если бы летописцы стали писать сагу о Moonsorrow, они бы начали с событий почти десятилетней давности – тогда, в 1995 году, кузены Сорвали – Вилле сын Сеппо и Хенри сын Урпо – осознали себя викингами и решили играть фольклорную музыку в стиле эпического металла. Их первая демо-запись "Thorns of Ice" была единственной, записанной на английском языке. С тех пор викинги из Moonsorrow поют только на родном финском. </P>
+<P>Весной 1997 года Moonsorrow записали более удачную демо-пластинку "Metsa" ("Лес") – великолепный образец эпического металла. Слухами о талантливейшей метал-группе, состоящей из совсем еще детей, преисполненных патриотизма и поющих величественные песни на финском языке, наполнился не только родной Хельсинки, но и вся Финляндия. Однако контракта все не было. </P>
+<P>Еще одна демо-запись была сделана в начале 1999 года – "Tama Ikuinen Talvi" ("Эта вечная зима"). На этот раз Moonsorrow получили предложение от Plasmatica Records. Кузены Сорвали и драммер Марко Тарвонен записали дебютный альбом "Suden Uni" ("Сон волка"). Выпустив полноценную пластинку, Moonsorrow наконец-то смогли продемонстрировать всей Финляндии, что такое быть викингом и как надо играть эпичный языческий фолк-метал. Сразу нашлись еще патриоты, горящие желанием играть в истинно финской группе – гитаристы Митья Харвилахти и Лорд Эурен. Укомплектовав состав, Moonsorrow начали викингское нашествие на клубы и фестивали родных полей и лесов. </P>
+<P>Второй альбом Moonsorrow "Voimasta ja kunniasta" ("О мужестве и чести") был выпущен уже на Spikefarm Records в 2001 году. Несмотря на то, что музыканты, по большей части, совсем дети, а песни – на финском, альбом нашел отклики по всему миру – настолько сильна героичность мелодий и эпический патриотизм в песнях Moonsorrow. Причем песни соответствуют жанру. Каждый трэк – минут по 10-12, а основная тема стихов – викинги и их война с христианами, закончившаяся кровавым и трагическим поражением. Россия не осталась в стороне и покорилась звону мечей, пляске волн и вою ветра – "Voimasta ja kunniasta" был издан на ФОНО. </P>
+<P>Третий альбом "Kivenkantaja" ("Камненосец") был записан в легендарной финской студии Tico-Tico за полярным кругом. На этот раз работа получилась не только патриотичной, но и очень качественной и подняла патриотичное звучание Moonsorrow на новый уровень. <BR>В 2003 году Spinefarm Records выкупили права на "Suden Uni" и переиздали дебютный альбом Moonsorrow. К выходу этого диска подошли со всей ответственностью. Обложка была переоформлена Никласом Сундином, а к аудиоальбому был добавлен второй диск с DVD-записью живого выступления Moonsorrow на финском метал-фестивале Tuska, а также с двумя промо-клипами на песни "Sankarihauta" ("Могила воина") и "Jumalten Kaupunki" ("Город богов"). </P>
+<P>Последний на сегодняшний день альбом Moonsorrow вышел в начале года и называется он Verisakeet ("Лирика крови"). Музыка на альбоме зрелая, серьезная. Лирика немного отошла от воинственной тематики и стала приближенной к природе, к лесу. Однако в целом концепция не утратила эпичного пафоса и фольклорного влияния. </P>
+<P>Любой, кто слышал музыку Moonsorrow, навсегда запоминает эту группу юношей, считающих себя истинными викингами и готовыми отдать свои героические души за родную Финляндию. Moonsorrow известны и дороги всем в Европе, кто любит хорошую музыку и не может остаться равнодушным к неистовому патриотизму, исполненному в духе тяжелого эпического металла. Однако еще недавно казалось, что низкобюджетной группе ничего не светит за границей. Но боги викингов способны творить чудеса. В прошлом году Moonsorrow впервые сыграли в Венгрии и Хорвании. И вот теперь долгожданные концерты Moonsorrow состоятся и в России. Эпическое нашествие викингов на Москву состоится 20 августа в клубе "Релакс".</P>
+<P>Официальный сайт Moonsorrow – <A href="http://www.moonsorrow.com/">www.moonsorrow.com</A><BR>Информация о концертах в России – <A href="http://www.crimsondawn.ru/">www.crimsondawn.ru</A></P>
+Автор: Vit Belov
+
+### 15.08.2005 news MOONSORROW в Москве
+
+<CENTER>
+<CENTER>
+<CENTER><A href="http://www.crimsondawn.ru/"></A></CENTER>Начало в 17:00<IMG height=400 src="/images/shows_rus/2005.07/9031.jpg" width=286 align=right border=10><BR>Разогревающие группы: </CENTER></CENTER>
+<CENTER>Demons of Guillotine, Аркона, Inside You<BR>Стоимость билетов в предварительной продаже - 400 руб., в день концерта -<BR>500 руб.<BR>Адрес клуба "Релакс": ул. Мельникова д.7. ДК 1-го ГПЗ. Проезд до станции м.<BR>Пролетарская</CENTER>
+<CENTER>20 августа в Москве состоится концерт эпической фолк-метал группы<BR>Moonsorrow. Финские истинные викинги представят русским поклонникам тяжелой фолковой музыки свои лучшие песни о кровавом противостоянии язычников и христиан.<BR>Официальный сайт Moonsorrow: www.moonsorrow.com<BR>Русский сайт Moonsorrow: www.moonsorrow.crimsondawn.ru<BR>Дополнительная информация о российских концертах Moonsorrow доступна на</CENTER>
+<CENTER>сайте <A href="http://www.crimsondawn.ru/">www.crimsondawn.ru</A></CENTER>
+<CENTER><BR>&nbsp;</CENTER>
+Автор: Vit Belov
+
+### 21.08.2005 articles MOONSORROW в Москве: &quot;Душевная атмосфера финских народных гулянок&quot;
+
+<P>Вчера в Москве выступила очередная финская группа – MOONSORROW. Этот коллектив не является самым популярным среди финских групп, но отличается от других. Практически все самые популярные группы из страны Суоми смешивают металл и фолк-музыку в разных пропорциях. MOONSORROW на своей последней пластинке просто удивили той холодной чёрной атмосферой, которая пронизывала все многоминутные эпики. Концертный вариант группы оказался не столь тяжёл, но это и к лучшему.</P>
+<P><IMG height=151 alt=Moonsorrow hspace=0 src="/images/articles_rus/2005.08/9168.jpg" width=200 align=left border=5>Собравшаяся в Релаксе в солидном количестве публика не была разочарована. Кстати, посещаемость была предельной для клуба, что порадовало организаторов, которым многие пророчили провал, из-за летней даты концерта. Зажигательные folk-metal боевики сходу завели фэнов, которые рубились, даже несмотря на достаточно похабный звук. Например, на первых вещах совсем не было слышно вокал, а где-то на третьей-четвёртой песне у фронтмэна-басиста случились проблемы с инструментом, но группа продолжила выступление, а место вокалиста занял гитарист. Бас предоставил Князь (АРКОНА, ROSSOMAHAAR), и перфоманс благополучно продолжился. Князь: «У него струна порвалась! Мы долго не могли понять друг друга, в смысле я хотел спросить, в каком строю они играют, и надо ли перестраивать мой бас под их строй:) Потом Лазорь (гитарист ROSSOMAHAAR, Аркона, прим. авт.) показал ему тюнер (прибор для настройки гитар), и мы друг друга поняли! В том же строе мы играем, что и они. Кстати, гитарки у финнов не очень хорошие, долларов по сто. Ребятам, в смысле качества выступления, плевать на это:) Типа <IMG height=267 alt=Moonsorrow hspace=0 src="/images/articles_rus/2005.08/9169.jpg" width=200 align=right border=5>язычники, культ:) Первую песню они играли на нашем рабочем барабане, т.к. свой не могли найти:) Потом нашли и заменили на свой, т.к. на нашем уже был пластик пробит! Его Владик (барабанщик АРКОНА, ROSSOMAHAAR, прим. авт.) пробил на выступлении Арконки:)»</P>
+<P>Этот рассказ иллюстрирует выступление MOONSORROW очень точно. Да, были накладки, были проблемы, но публика и музыканты были так позитивно настроены, что это не испортило никому праздника. Праздника «северной» фольклорной музыки. Иными словами праздника вечных танцев и постоянных напевов.</P>
+<P><IMG height=150 alt="Masha Scream" hspace=0 src="/images/articles_rus/2005.08/9165.jpg" width=200 align=left border=5>Открывали концерт три наших коллектива. В 19-00 на сцену вышли АРКОНА, и стало понятно, почему в столь ранний час у сцены было не протолкнуться. Группу встречали не менее тепло, чем хэдлайнеров, да и любители MOONSORROW явно были не прочь потанцевать и порубиться под песни Маши «Скрим». Что ж, выступление прошло отменно. Особенно впечатлило окончание сэта, когда вслед за исполненной хором песней «Русь», Маша затянула русскую народную «Ой, то не вечер». В такие моменты у любого «язычника» по коже бегут мурашки, да и не только у «язычника». Вообще же, АРКОНА стремительно набирает ход, и уже сейчас её можно назвать одной из самых популярных групп в этом направлении. То ли ещё будет…</P>
+<P><IMG height=150 alt=InsideYou hspace=0 src="/images/articles_rus/2005.08/9166.jpg" width=200 align=right border=5>INSIDE YOU, выпустившие на этой неделе свой дебютный диск, выступали вторыми. Если отвлечься от того, что в этом концерте им было не место, и поэтому половина публики ушла пить пиво, то выступление группы, в общем и целом, можно назвать успешным. Любителям death-doom середины 90-х посвящается. Тем, кто слушал и слушает альбомы CREMATORY или LAKE OF TEARS того периода, можно ознакомиться. Странно только начали ребята… С кавера на песню LAKE OF TEARS, немного оригинально…</P>
+<P><IMG height=216 alt="Demons Of Guillotine" hspace=0 src="/images/articles_rus/2005.08/9167.jpg" width=200 align=left border=5>Про Демонов Гильотины, которые предваряли выступление MOONSORROW, ничего нового рассказать не представляется возможным. Разве, что сообщу поклонникам группы, что выступали они в обновленном составе. Изрядно подогретые металлхэды отчаянно рубились под их русскоязычный блэко-панк. Нравиться? Пожалуйста… Для меня же немного примитивно.</P>
+<P>А потом были Moonsorrow, про которых нам уже Князь рассказал…&nbsp;&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 29.08.2005 reviews И снова финский pagan metal
+
+<P>Что-то тяжко мне рецензия на этот альбом дается… Послушал “Verisakeet” несколько раз, с удовольствием послушал… а сказать-то и нечего. И без слов все ясно. Разве что - пять песен на семьдесят минут – это, скорее, для funeral doom характерно…<BR>Про сам альбом вот что думаю. Обозлились как будто финны на четвертом своем альбоме, стали местами HELHEIM напоминать или медленный-медленный FINTROLL… подевалась куда-то удаль молодецкая, и веет сейчас от музыки MOONSORROW угрюмой печалью, беспросветным отчаяньем да мрачным настроением… Жестче стали и грубее. Однако же главные составляющие творчества этих язычников остались прежние – это эпичность композиций (достаточно просто посмотреть на трэк-лист и длину альбома), невероятная мощь, обилие используемых фольклорных тем и аутентичных музыкальных инструментов, величественные хоры. И не получается выделить какую-то одну песню из этих пяти – потому что эти пять и есть одна песня. “Verisakeet” – это настоящий гимн.<BR>MOONSORROW – это скорее pagan metal, чем viking. Тем более, Финляндия – это ведь не Скандинавия, и уж чем-чем, а походами на драккарах и морскими сражениями она похвастать не может. Но финны берегут свои народные традиции, помнят их, вплетая в современное творчество. Здесь и тяжелая поступь гитарных риффов, и меланхоличные акустические переборы, и всякие эффекты типа пения птиц и шума ветра – для пущего погружения в мир Лунной Печали. Пятый, последний трэк – так вообще релакс: потрескивает костер, шумит лес… И вроде нет ничего принципиально нового, и вроде групп, использующих в своей музыки наследие предков, - предостаточно, самых разных и всяких… однако ж MOONSORROW сумели смешать и преподнести все так, что получилось нечто особенное.</P>
+<P>Диск предоставлен Фоно.</P>
+Автор: Dr. Grandma
+
+### 31.03.2006 news MOONSORROW запишут альбом летом
+
+<P><STRONG>MOONSORROW</STRONG> заключили новый контракт с <STRONG>Spikefarm </STRONG>на два альбома, первый из которых финны запишут летом.</P>
+Автор: Vit Belov
+
+### 18.10.2006 news Новый альбом MOONSORROW
+
+<P><STRONG>MOONSORROW </STRONG>назвали 10 января датой релиза нового альбома <STRONG>"Viides Luku - H&#228;vitetty". </STRONG>Альбом выйдет на <STRONG>Spikefarm</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.11.2006 news Новый релиз MOONSORROW
+
+<P><IMG height=247 alt="" hspace=15 src="/images/news_rus/2006.11/10853.jpg" width=250 align=left border=0>Финский коллектив&nbsp;<B>MOONSORROW</B>&nbsp;опубликовал обложку своего нового альбома под названием&nbsp;<B>"V: Havitetty"</B>. Ее оформлением занимался <STRONG>Travis Smith</STRONG>.&nbsp;Релиз запланирован на 10 января 2007 года через&nbsp;<B>Spikefarm Records</B>. <BR></P>
+Автор: Dimas
+
+### 20.11.2006 news Трек-лист нового MOONSORROW
+
+<P><STRONG>Spinefarm Records</STRONG> обнародовали трек-лист нового альбома финского epic pagan metal коллектива&nbsp;<B>MOONSORROW</B> под названием <STRONG>"V: Havitetty"</STRONG>, который выйдет там 10 января 2007 года. В него вошли всего две композиции:<BR><BR>1. <B>Jaasta syntynyt varjojen virta</B><BR>2. <B>Tuleen ajettu maa</B></P>
+Автор: Dimas
+
+### 19.05.2007 reviews MOONSORROW: «Мы не играем фолк-метал!».
+
+<P>По моему убеждению, MOONSORROW являются одной из лучших&nbsp;финских&nbsp;групп в настоящее время. Самое любопытное, что эти ребята, выпуская уже, чёрт те знает какой по счёту, альбом, остаются интересными, продолжая свою линию. Более того группа усложняет свои альбомы, навязывая слушателю с каждым разом всё более и более мрачные работы. Новый альбом “V: Havitetty”, вообще, состоит из двух песен, которые погружают в транс и не выпускают оттуда до самого конца. Начиная с достаточно отвлечённого интро на акустической гитаре, чем-то напомнившем мне вещи с классического “Blood On Ice” BATHORY, группа с усиливающимся напором повергает слушателя в прах мощного атмосферного viking-black-metal. </P>
+<P>Это невозможно описать, это надо слушать. Вы забываетесь в безнадёжной тоске, подкреплённой монотонностью ритма, и вдруг выныриваете оттуда с обнадёживающим соло или мимолётным куском из традиционной финской музыки. При этом просветы солнца из за туч настолько мимолётны, что вы впитываете их, радуясь как полярная природа своему короткому лету. По оказанному, отнюдь не благотворному, влиянию на психику последние альбомы MOONSORROW ни с чем сравнить нельзя. Но за подобными испытаниями мы и обращаемся к этим гениям от металл-музыки.</P>
+<P>Забавно, что на концерте, прошедшем в Москве несколько лет назад, группа не оказывала такого медитативного действия на слушателя. Более того, группа предстала наиболее «отвязной» из всех гостивших у нас финнов. Фэны FINNTROLL или ENSIFERUM принимали&nbsp;ребят очень благосклонно. Здесь были и традиционные финские флаги, и даже, если не ошибаюсь, цветочки. После прослушивания альбомов группы цветочки будут уместны только на могилке. Я связался с одним из лидеров MOONSORROW Ville Sorvali, и вот, как он объяснил разницу между концертным настроением и настроением альбомным: «Мы серьёзно относимся к своей музыке, но несерьёзно относимся к себе. Мы любим получать удовольствие, как и любые другие люди».</P>
+<P>Воспользовавшись моментом, я задал вопрос о концепции “V: Havitetty”. «Общая концепция альбома – это конец света. Первая песня о человеке, который потерялся в своих поисках смысла жизни. Второй же трэк обо всём человечестве, которое в итоге уничтожило само себя».</P>
+<P>«Мы не любим ярлыков», - продолжил Ville. «Мы не любим, когда нас называют folk-metal, мы предпочитаем термин pagan-metal. Мы довольно сильно отличаемся от FINNTROLL или KORPIKLAANI. Должно быть, есть что-то в финской ментальности, что позволяет нам сочинять подобную музыку, и есть что-то в ментальности остальных народов, что позволяет им слушать музыку, сочинённую финнами».&nbsp; </P>
+Автор: Vit Belov
+
+### 15.01.2008 news MOONSORROW начали запись EP
+
+<P><STRONG>MOONSORROW </STRONG>сейчас в студии записывают свой новый мини-альбом <STRONG>"Tulimyrsky". </STRONG>EP выйдет 26 марта на <STRONG>Spinefarm</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.02.2008 news Новый EP от MOONSORROW
+
+<P>Мы уже сообщали, что 26 марта на <STRONG>Spinefarm </STRONG>выходит новый миньон <STRONG>MOONSORROW</STRONG> <STRONG>"Tulimyrsky"</STRONG>. Стали известны подробности этого релиза:</P>
+<P>01. <B>Tulimyrsky</B> (new song)<BR>02. <B>For Whom The Bell Tolls</B> (METALLICA cover)<BR>03. <B>Taistelu Pohjolasta</B> (from the "T&#228;m&#228; Ikuinen Talvi" demo)<BR>04. <B>Hvergelmir</B> (from the "Mets&#228;" demo)<BR>05. <B>Back To North</B> (MERCILESS cover)</P>
+Автор: Vit Belov
+
+### 02.06.2008 reviews EP на 68 минут. Всё честно.
+
+<P>Финны MOONSORROW не стали долго ждать с релизом нового альбома после выхода очень интересной прошлогодней работы “V:Havietty”. Уже в начале этого года свет увидел EP “Tulimyrsky”. EP скорее в смысле содержания, а не длительности, ведь музыки на этом диске записано на 68 минут.</P>
+<P>MOONSORROW всё это затеяли ради эпической 30-минутной одноимённой композиции. Судя по «комиксам»-картине, авторства знаменитого художника Kris Verwimp, эта композиция рассказывает о набеге викингов на христианские поселения в Старой Европе. Особо отмечу оформление. Оно просто шикарное. Широкая пятистраничная панорама, захватывающая красные горящие поселения христиан, и ледяное голубое море, откуда и приплыли герои повествования. Столь же широка музыкальная гамма этой песни. От забойного black-metal вначале до мелодичного почти весёлого хорового напева в конце. Очень сильная вещь, как и все последние работы MOONSORROW. На мой вкус, в последний альбом вошли более сильные в эмоциональном смысле композиции. Но и концептуальная составляющая у них была посильнее. Конец света – это не банальное разграбление и набеги, пусть и эпические в своей легендарности.</P>
+<P>Обратимся к тому, что сделало этот альбом полезным не только по содержанию, но и по длительности. Во-первых, это великолепный кавер на песню METALLICA “For Whom The Bell Tolls”. MOONSORROW превратили эту «нетленку» в viking-metal хит, с пульсирующими гитарами и грубым кричащим вокалом. Как будто эту песню сочинили BATHORY, а не лучшая thrash-metal группа мира. Следом идут две вещи, видимо, нереализованные ранее. Не могу сказать, что их содержимое приближает эти треки к эпитету «шедевральные», но крепким viking-black-metal их назвать вполне можно. Ну и напоследок MOONSORROW исполнили ещё один кавер на “Back To North” MERCILESS. Оригинала не слышал, поэтому моя оценка здесь будет неуместна.</P>
+<P>Отличная пластинка для любителей MOONSORROW. Великолепное оформление, ещё один мощный эпик, нереализованный суровый материал, оригинальные кавера. В общем и целом, на лучший альбом года не тянет, но, согласитесь, смешно подходить с такими мерками к EP. Занять же место в коллекциях фанатов стиля этот диск просто обязан.</P>
+Автор: Vit Belov
+
+### 02.05.2009 news У MOONSORROW украли гитару
+
+<P>Во время шоу<STRONG> MOONSORROW</STRONG> в Монреале 29 апреля неизвестные вскрыли автобус группы и похитили редкую и ценную гитару <STRONG>ESP </STRONG>белого цвета. Группа отчаянно разыскивает свою пропажу (на фото).</P>
+<P>
+<CENTER><IMG height=640 src="/images/news_rus/2009.05/14049.jpg" width=439 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.11.2009 news MOONSORROW должны к нам доехать
+
+<P><STRONG>MOONSORROW </STRONG>были вынуждены отменить концерт в Софии, из-за срочной операции на спине, которая потребовалась лидеру группы <STRONG>Ville Sorvali.</STRONG></P>
+<P>Операция прошла успешно, и группа обещает доехать до России, где запланированы её следующие концерты.&nbsp;</P>
+Автор: Vit Belov
+
+### 10.01.2011 news &quot;Varjoina Kuljemme Kuolleiden Maassa&quot; - новый альбом MOONSORROW в феврале
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18129.jpg" width=300 height=298>Новый альбом финской группы&nbsp;<B itxtvisited="1">MOONSORROW</B>, получивший название <B itxtvisited="1">"Varjoina Kuljemme Kuolleiden Maassa"</B>, выйдет в феврале на <B itxtvisited="1">Spinefarm Records</B>.</P>
+<P>Даты выхода:</P>
+<P>21 февраля - Англия<BR itxtvisited="1">23 февраля&nbsp;- Финляндия<BR itxtvisited="1">25 февраля - Германия, Швейцария, Австрия<BR itxtvisited="1">28 февраля&nbsp;- остальная Европа<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 07.07.2011 news Spinefarm готовятся к юбилею
+
+<P>Знаменитый финский лэйбл <STRONG>Spinefarm Records</STRONG> в эти дни празднует свой 20-летний юбилей. В качестве вещественного доказательства этого праздника лэйбл организовал "летний лагерь", в который съехались музыканты групп <STRONG>SHINING</STRONG>, <B>MOONSORROW</B>, <B>SWALLOW THE SUN</B>, <B>FINNTROLL</B>, <B>MEDEA</B>&nbsp;и <STRONG>ENSIFERUM. </STRONG>Эти ребята сочинят и запишут альбом, который получил название "<STRONG>Spinefarm Allstars". </STRONG>Релиз состоится до конца года.</P>
+<P>Первый ролик, посвящённый записи, можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=386 width=480 classid=clsid:d27cdb6e-ae6d-11cf-96b8-444553540000><PARAM NAME="_cx" VALUE="12700"><PARAM NAME="_cy" VALUE="10213"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://www.ustream.tv/flash/viewer.swf"><PARAM NAME="Src" VALUE="http://www.ustream.tv/flash/viewer.swf"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE=""><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+        
+  <embed flashvars="vid=15817360&autoplay=false" width="480" height="386" allowfullscreen="true" allowscriptaccess="always" src="http://www.ustream.tv/flash/viewer.swf" type="application/x-shockwave-flash"></embed>
+</OBJECT><BR><A href="http://www.ustream.tv/" target=_blank>Video streaming by Ustream</A> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### 19 и 20 августа-Moonsorrow в России

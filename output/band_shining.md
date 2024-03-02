@@ -227,6 +227,71 @@ Ludwig Witt - Drums (Grand Magus, Spiritual Beggars, ex-Sandalinas (live), ex-Fi
 
 * C группой "Kovenant" Hellhammer
 
+## Публикации
+
+### 19.12.2001 news Avantgarde Music have signed Shining....
+
+<p>Avantgarde Music have signed Sweden's so-called 'suicide black metallers' Shining, who've released albums on Full Moon Productions and Selbsmord Services. Like Shining's previous two releases, the band's new album will be recorded at Abyss Studios and partially in Norway to allow new drummer Hellhammer to record his portion of the album. Shining's music is reportedly 'soul-torture' music, or quite simply black metal with a suicide concept. In similar news, drummer Wedebrand and bassist Tusk have left the Shining camp. Wedebrand's replacement is the aforementioned Hellhammer while Kvarforth takes Tusk's four-string place. Shining's new line-up therefore is Inisis (guitars), Kvarforth (vocals/guitars/bass) and Hellhammer (drums). Look for Shining's third full-length album out mid-2002 on Avantgarde Music.</p>
+
+Автор: Yermola
+
+### 19.12.2001 news Avantgarde Music подписали Shining....
+
+<p>Avantgarde Music подписали "самоубийственных" шведских блэк-металлистов "Shining" до этого выпускавших альбомы на Full Moon Productions. Как и два предыдущих релиза новый альбом будет писаться частично в Abyss Studios и частично в Норвегии, чтобы позволить новому барабанщику Hellhammer'у записать свои партии.<BR> <BR> Из других новостей, барабанщик Wedebrand и бассист Tusk оставили команду. Заменой Wedebrand'у стал как вы уже смогли догадаться Hellhammer и Kvarforth сменил Tusk на посту дергателя четырех струн. Релиз полноформатника ожидается в середине 2002 года...</p>
+
+Автор: Yermola
+
+### 19.02.2003 reviews Предрасположенным к суициду - не слушать!
+
+<p>Да уж... Действительно, возможны два варианта после прослушивания этого альбома, целиком и полностью посвящённого борьбе с собственной жизнью. Если Вы находитесь в том возрасте или положении, когда хочется наложить на себя руки, а также любите black-metal (это обязательно), лучшего фона для купания в крови Вы не найдёте. Болезненный товарищ по имени Kvarforth записал данные 6 песен на шведском языке в мажорной студии Abyss в компании с известными личностями, например, с Hellhammer'ом. Как-то не вяжется это с картинками, посвящёнными вскрытию вен над унитазом. Но не будем слишком строги, настроение передано не хуже, чем в Shape Of Despair, только силами black-metal. Расстройство и отчаяние... Кстати, забыл про второй вариант, если все эти страдания далеки от Вас, Вы просто будете весело смеяться, что, согласитесь, тоже неплохо.</p>
+
+Автор: Vit Belov
+
+### 06.05.2003 reviews Don&#39;t listen, predisposed to suicide!
+
+<p>Yeah... Really, we have two ways after listening to this album, which all dedicated to fight with own life. If you are in this age or situation, when you'd like to suicide, and also you like black-metal (it's neccesary), it is the best background for bathing in blood... Unhealthy comrade Kvarforth recorded this six songs in Sweden in major Abyss Studio in company of famous persons, for example HellHammer. It is not close to pictures of opening the veins above the lavatory pan. But Let's not be so strict, sucide moods are displayed not worse than on albums by SHAPE OF DISPAIR, but only by forces of black-metal. Frustration and despair... By the way, i forgot second way. If that sufferings are far from you, You would just laugh. This emotions are also not so bad...</p>
+
+Автор: Vit Belov
+
+### 09.11.2004 news Новый альбом SHINING уже готов
+
+<P>Новый альбом <STRONG>SHINING</STRONG> готов к выпуску на <STRONG>Avantgarde</STRONG>. <STRONG>'The Eerie Cold'</STRONG> - так он будет называться, дата релиза и подробности пока не сообщаются.</P>
+Автор: Vit Belov
+
+### 10.05.2006 news SHINING работают над новым альбомом.
+
+<P>Лидер группы <STRONG>SHINING</STRONG>&nbsp;- <STRONG>Kvarforth </STRONG>опубликовал следующее заявление на сайте <STRONG>Osmose Records</STRONG>: <BR>"<EM>Мы только что вернулись из турне по Европе во время которого были даны 10 концертов и три экстренных посещения больниц. Большое спасибо моему партнеру по оружию&nbsp; Атилле (<STRONG>Attila Cshair</STRONG>), без него мы наверное уже были бы мертвы</EM>."&nbsp; <BR>Сейчас идет запись&nbsp; пятого студийного альбома&nbsp; "<STRONG>V / Halmstad</STRONG>" на котором будет 6 песен самого темного материала когда-либо написанного группой. Кроме того, <STRONG>SHINING </STRONG>записали несколько песен которые выйдут на ЕР "<STRONG>Ett Steg I Helt Fel Riktning</STRONG>".</P>
+<P>&nbsp;</P>
+Автор: Bizarre
+
+### 02.05.2009 news Новые песни SHINING
+
+<P><STRONG>SHINING </STRONG>выложили две новые песни в сеть. <STRONG>"Vilseledda Barnasjalars Hemvist"</STRONG>&nbsp;и <STRONG>"Plagoande O'Helga Plagoande" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/shininghalmstad">http://www.myspace.com/shininghalmstad</A></P>
+<P>Композиции попадут на новый альбом <STRONG>"VI / Klagopsalmer"</STRONG>, который выйдет до конца года на <STRONG>Indie Recordings</STRONG>. Трэк-лист:</P>
+<P>01. <B>Vilseledda Barnasjalars Hemvist</B><BR>02. <B>Plagoande O'Helga Pl&#229;goande</B><BR>03. <B>Krossade Drommar Och Brutna Loften</B><BR>04. <B>Fullstandigt Javla Dod Inuti</B><BR>05. <B>Ohm - Skoj Att Leva</B><BR>06. <B>Total Utfrysning</B></P>
+Автор: Vit Belov
+
+### 26.11.2009 news Новый альбом SHINING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.11/15607.jpg" width=400 align=right border=5>Новый альбом <STRONG>SHINING "Shining VII - Fodd Forlorare" </STRONG>выйдет в марте-апреле на<STRONG> Indie Recordings</STRONG>. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Fortvivlan, Min Arvedel</B><BR>02. <B>Tiden Laker Inga Sar</B><BR>03. <B>Manniska O'Avskyvarda Manniska</B><BR>04. <B>Tillsammans Ar Vi Allt</B><BR>05. <B>I Nattens Timma</B><BR>06. <B>FFF</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Согласно сообщению лидера коллектива <STRONG>Niklas Kvarforth</STRONG>, этот альбом погружение в мрачнейшие глубины. Гостевое участие в записи приняли <STRONG>Erik Danielsson (WATAIN), Peter Bjargo (ARCANA)</STRONG>&nbsp;и <STRONG>NORDMAN</STRONG>.</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></P></B></FONT>
+Автор: Vit Belov
+
+### 07.07.2011 news Spinefarm готовятся к юбилею
+
+<P>Знаменитый финский лэйбл <STRONG>Spinefarm Records</STRONG> в эти дни празднует свой 20-летний юбилей. В качестве вещественного доказательства этого праздника лэйбл организовал "летний лагерь", в который съехались музыканты групп <STRONG>SHINING</STRONG>, <B>MOONSORROW</B>, <B>SWALLOW THE SUN</B>, <B>FINNTROLL</B>, <B>MEDEA</B>&nbsp;и <STRONG>ENSIFERUM. </STRONG>Эти ребята сочинят и запишут альбом, который получил название "<STRONG>Spinefarm Allstars". </STRONG>Релиз состоится до конца года.</P>
+<P>Первый ролик, посвящённый записи, можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=386 width=480 classid=clsid:d27cdb6e-ae6d-11cf-96b8-444553540000><PARAM NAME="_cx" VALUE="12700"><PARAM NAME="_cy" VALUE="10213"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://www.ustream.tv/flash/viewer.swf"><PARAM NAME="Src" VALUE="http://www.ustream.tv/flash/viewer.swf"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE=""><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+        
+  <embed flashvars="vid=15817360&autoplay=false" width="480" height="386" allowfullscreen="true" allowscriptaccess="always" src="http://www.ustream.tv/flash/viewer.swf" type="application/x-shockwave-flash"></embed>
+</OBJECT><BR><A href="http://www.ustream.tv/" target=_blank>Video streaming by Ustream</A> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Shining (Швеция) в Москве (11 декабря 2015)

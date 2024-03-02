@@ -48,6 +48,61 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.02.2002 news Первый концерт
+
+<p>24 февраля в воскресение в Р-клубе компания SAVAGE METAL при участии BLACK CAT RECORDS представляет концерт легенды российского heavy-power metal - группы <A HREF="http://arrow.musica.mustdie.ru">THE ARROW</A> (ранее известной как Black Arrow). Это первый концерт группы после продолжительного перерыва и записи альбома "Children of Gods". Начало концерта в 19:00.<BR> На концерте будет производиться продажа атрибутики группы. Концерт проводится при участии групп ПИЛИГРИМ и ВОЛАНД.<BR> Цена билета 100 рублей, по флаеру 60 рублей.</p>
+
+Автор: Dimas
+
+### 28.05.2002 reviews Дети Богов
+
+<p>THE ARROW - мелодичный speed-power metal с утяжеленным звучанием гитар. Московская группа существует аж с 1994 года, но это ее дебютный альбом. Материал альбома писался в разное время и является далеко не свежатиной. С 1994 года в составе поменялось много музыкантов, но концепция и музыка остались неизменны. Музыканты ведают нам о человеке и окружающей его действительности. К музыкальному материалу группы нет претензий. Все мелодично, интересно и доступно. А вот качество записи заметно хромает, особенно, что касается гитарного звука. Хотя, альбом писался в собственной домашней студии группы. Кстати, во-многом, этот альбом мне напомнил работу группы ЭПИДЕМИЯ "На краю времени", особенно по качеству. Те же самые ошибки и недочеты. Если брать западные аналоги музыкального материала THE ARROW, то на ум приходят первые записи HELLOWEEN. Очень понравилась работа ударника и вокалиста, неплох и клавишник, как основной автор песенного материала, да и атмосферу альбому создает неплохую. Клавиши вроде не заметны, но дух их присутствует и чувствуется во всех композициях. Вот если бы еще получше вырулить гитарный звук, посочнее и не так зажато, чуть вперед, плюс ударные пожестче и вокал в некоторых местах переписать, чтобы он не звучал как из колодца. Вот тогда все будет отлично. По моим данным, музыканты усиленно работают над ошибками и уже сочинили материал для нового альбома. Второй диск группы должен выйти в конце 2002 года. Он будет более жестким по звучанию, но не менее мелодичным, чем 'Children Of Gods'. Также, там будет присутствовать ярко выраженная концепция. Остается ждать и надеяться.</p>
+
+Автор: Dimas
+
+### 11.06.2002 reviews Russian children of Gods
+
+<p>THE ARROW - melodious speed-power metal with the weighted sounding of guitars. The Moscow group exists already since 1994, but it is its debut album. The material of an album was written in different time and is not fresh. Since 1994 in structure of band many musicians have exchanged, but concept and music have remained are constant. The musicians know to us about the man and validity, environmental him. To a musical material of group there are no claims. All is melodious, it is interesting and is accessible. And the quality of record appreciablly limps, especially, as to a guitar sound. Though, the album was written in own home studio of group. By the way, in - many, this album has reminded me work of group EPIDEMIA "At the edge of time", is especial on quality. The same mistakes and defects. If to take western analogues of a musical material by THE ARROW, on mind there come the first records of HELLOWEEN. Work of drummer and vocalist is good, keyboardman is not bad too, as the basic author of music, and atmosphere to an album creates quite good. Keys like are not appreciable, but the spirit them is present and is felt in all compositions. If still better mix the guitar sound, is more juicy and not so restriction, hardly forward, plus drums more rigidly and vocal in some places to re-record, that he did not sound as from well. Then all will be excellent. On my data, musicians is amplified work above mistakes and already have composed a material for a new album. The second disk of group should release at the end of 2002. It will be more rigid on sounding, but not less melodious, than ' Children Of Gods'. Also, there will be brightly expressed concept. It is necessary to wait and to hope.</p>
+
+Автор: Vit Belov
+
+### 05.09.2006 news Еще несколько релизов российских коллективов
+
+<P>В октябре - ноябре 2006 года, компания<STRONG> CD-Maximum</STRONG> порадует любителей отечественной тяжёлой музыки еще несколькими релизами. Среди них новые работы групп <B>ФАКТОР СТРАХА "Театр военных действий. Акт 2", ОЛЬВИ "Тьма и свет"</B> и <B>THE ARROW "Хранитель душ"</B>. </P>
+Автор: Dimas
+
+### 15.09.2006 news Долгожданный THE ARROW
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CD-Maximum</STRONG> в октябре-ноябре 2006 года выпустит новый долгожданный альбом российской heavy power metal группы&nbsp;<STRONG>THE ARROW</STRONG> под названием&nbsp;<STRONG>"Хранитель Душ".</STRONG> Обложку для альбома нарисовал знаменитый российский художник <STRONG>Лео Хао</STRONG>, известный по работе с <STRONG>BLIND GUARDIAN, NOCTURNAL RITES, ICED EARTH</STRONG>, а также с <STRONG>Сергеем Мавриным</STRONG> и группой <STRONG>АРИЯ</STRONG>. Он же попробовал себя в роли стихотворца, написав лирику к половине композиций. Релиз является российской версией так и не вышедшего пока концептуального альбома <STRONG>"Lady Nite",</STRONG> с переписанными вокальными партиями на русском языке.<BR><BR><IMG height=300 alt="" hspace=10 src="/images/news_rus/2006.09/10714.jpg" width=300 align=left border=0>1. <STRONG>Дорога Теней (пролог)</STRONG> - (музыка П.Блищенко / слова П.Блищенко)<BR>2. <STRONG>Прыгай За Край</STRONG> - (музыка П.Блищенко / слова Лео Хао)<BR>3. <STRONG>Разруби Печать</STRONG> - (музыка П.Блищенко / слова Лео Хао)<BR>4. <STRONG>Блик Огня</STRONG> - (музыка П.Блищенко / слова Лео Хао - Е. 'Cat' Князева) <BR>5. <STRONG>Время Жить</STRONG> - (музыка П.Блищенко - Ю.Бобырев / слова Е. 'Cat' Князева)<BR>6. <STRONG>Хранитель Душ (Знак 666)</STRONG> - (музыка П.Блищенко - К.Емельянов / слова Лео Хао) <BR>7. <STRONG>Жизни Лабиринт</STRONG> - (музыка П.Блищенко - Е.Коблева / слова Е. 'Cat' Князева) <BR>8. <STRONG>Круг Отражений</STRONG> - (музыка П.Блищенко - А.Асанакий / слова А.Рослова) <BR>9. <STRONG>Зная Исход</STRONG> - (музыка П.Блищенко / слова Е. 'Cat' Князева) <BR></FONT></P>
+Автор: Dimas
+
+### 27.10.2006 news THE ARROW: подробности нового альбома
+
+<P>В конце ноября на <B>CD-Maximum </B>выйдет второй альбом московской группы <B>THE ARROW "Хранитель душ". </B>В него войдут следующие вещи: 
+<P><B>1. Дорога Теней /пролог/ <BR>2. Прыгай За Край<BR>3. Разруби печать<BR>4. Блик Огня<BR>5. Время Жить<BR>6. Хранитель Душ<BR>7. Жизни Лабиринт <BR>8. Круг Отражений <BR>9. Зная Исход <BR>10. Give Me Your Hand</B> 
+<P>Альбом был записан на <STRONG>Black Cat Records</STRONG> в составе: 
+<P><B>Алекс Кэп</B> - вокал<BR><B>Павел Блищенко</B> - клавишные, бэк-вокал<BR><B>Юрий Бобырев</B> - гитара<BR><B>Кирилл Емельянов </B>- гитара<BR><B>Александр «Змей» Цветков</B> - бас-гитара<BR><B>Алексей Быков</B> - барабаны 
+<P>Сведение альбома прошло под руководством <B>Евгения Виноградова </B>в "Дай-рекордс"</P>
+Автор: Dimas
+
+### 19.12.2006 news Вышел новый номер ALIVE #4 (26), 2006!
+
+<IMG height=339 alt="" hspace=50 src="/images/news_rus/2006.12/11107.jpg" width=250 align=right border=0>Вышел новый номер ALIVE #4 (26), 2006!<BR><BR>В этом номере ALIVE вы сможете прочитать о <B>RAMMSTEIN, RHAPSODY, AUDIOSLAVE, HELLOWEEN, LAKE OF TEARS, HADES, THE ARROW, UNLEASHED, WALTARI, "ФАКТОР СТРАХА", DIAMOND NIGHTS, END OF YOU, YENZ LEONHARDT</B> и <B>ENS COGITANS</B>.<BR><BR>Помимо изменений в дизайне и верстке, с этого номера журнал стал более разнообразным: наряду с интервью и рецензиями в журнале появились аналитические материалы, авторские колонки, эссе, а также возрождены парочка "старых" рубрик - Fire & Ice и Kulture Klub.<BR><BR>Традиционные разделы новостей и рецензий на CD и DVD дополнены обзором наиболее интересных кинолент последних месяцев (Kulture Klub).<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR>
+Автор: Ixtiandr
+
+### 20.01.2007 news ФАКТОР СТРАХА: презентация второго альбома
+
+<CENTER><IMG height=480 src="/images/shows_rus/2007.02/11298.jpg" width=291 border=0></CENTER>
+Автор: Dimas
+
+### 22.08.2007 news ОЛЬВИ: последний концерт со старой программой
+
+<CENTER><IMG height=318 src="/images/shows_rus/2007.08/11848.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### А что The Arrow с Блищенко напару,уже сдохла?

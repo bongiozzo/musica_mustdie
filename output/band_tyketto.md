@@ -28,6 +28,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.08.2016 news Новый клип TYKETTO
+
+<p>Новый ролик американской hard rock команды<strong> TYKETTO</strong> на песню "<strong>Reach</strong>" с одноимённого альбома, который выйдет 14 октября на <strong>Frontiers Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/RubUAYE0HYc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 23.08.2016 news New video by TYKETTO
+
+New video by the American hard rock band<strong> TYKETTO</strong> for the song "<strong>Reach</strong>" from the eponymous album that will be released on 14 October on<strong> Frontiers Records</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/RubUAYE0HYc" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 08.09.2016 news Второй сингл TYKETTO
+
+<p>Новый альбом американцев<strong> TYKETTO "Reach"</strong> выходит 14 октября на <strong>Frontiers Records</strong>. Новый сингл "<strong>I Need It Now"</strong> можно послушать ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/V0pc2FGMzkM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 08.09.2016 news Second single of TYKETTO
+
+<p>The new album of Americans <strong>TYKETTO "Reach"</strong> comes out October 14 via<strong> Frontiers Records</strong>. New single <strong>"I Need It Now"</strong> can be streamed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/V0pc2FGMzkM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

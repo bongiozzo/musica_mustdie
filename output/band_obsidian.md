@@ -22,6 +22,15 @@ Gertjan Bouman: Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2002 bios Melodic death metal from Amsterdan, Netherlands
+
+<p>Obsidian started playing in 1997 in Amsterdam but in 1998 we started writing our own songs under the current name. For each song we spend a lot of time. That’s why every song stands on it’s own and represents its own period in time. Inspiration we get from bands like Death, At the gates and Meshuggah. But other influences sneak in to. <BR> In 2001 Obsidian had its first mentionable gig when we were competing in the Amsterdam Popprize 2001. We reached the final and played in the OCCII, Paradiso and Melkweg. Recently we competed in the Metal battle 2002 and once more reached the final in the Atak in Enschede. At this point we recorded 2 demos and are working on the third. The first is not available anymore because of its poor record quality.<BR><BR> Simon Lawford: Guitar, Vocals<BR> Sjaak Kassies: Guitar, Vocals<BR> Glen Loupias: Bass<BR> Gertjan Bouman: Drums</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

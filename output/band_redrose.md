@@ -19,6 +19,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.09.2011 news RED ROSE на Bakerteam Records
+
+<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>
+<P><IMG height=396 alt="" hspace=0 src="/images/news_rus/2011.09/21279.png" width=400 align=right border=0></P>
+<P>Scarlet Records</STRONG> объявили об открытии своего нового подразделения <STRONG>Bakerteam Records</STRONG>. Первым релизом саблэйбла станет дебютный альбом израильской Glam/Progressive/Heavy Metal группы <STRONG>RED ROSE "Live The Life You've Imagined"</STRONG>. Пластинка была записана в студии <STRONG>Jailhouse</STRONG> с знаменитым продюсером<STRONG> Tommy Hansen</STRONG>. Обложку нарисовал <STRONG>Jobert Mello (SABATON, BENEDICTUM)</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Turn Back The Time</STRONG><BR>2. <STRONG>Name On The Stone</STRONG><BR>3. <STRONG>The Last Drop<BR></STRONG>4. <STRONG>Gone With The Sunrise</STRONG><BR>5. <STRONG>Live The Life You've Imagined</STRONG><BR>6. <STRONG>Dreamer<BR></STRONG>7. <STRONG>Tough To Love<BR></STRONG>8. <STRONG>When The Sun Goes Down</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

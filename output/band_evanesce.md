@@ -12,6 +12,21 @@ brutal melodic death metal from UK
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.02.2001 reviews И снова брутальная мелодичность
+
+<p>И снова брутальная мелодичность. Эти британские музыканты играют немного приторный, но техничный и мелодичный death-metal в лучших традициях At The Gates. Настолько же агрессивная и экстремальная музыка. Убийственные сдвоенные риффы в первую очередь обращают на себя внимание. Вместе с удачно подобранным вокалом - это очень удачный ход для группы. Бешеные скорости, ярость и неплохие мелодии. Все то, что надо для хорошего альбома. Очень неплохо. Вот только под самый конец заметно, что музыканты выдохлись и идеи их иссякли. Смятое завершение альбома невыразительно. Последнюю вещь можно было бы и не засовывать на этот альбом...</p>
+
+Автор: Dimas
+
+### 11.02.2001 reviews And again brutal melodious
+
+<p>And again brutal melodious. These British musicians play little bit luscious, but technical and melodious death-metal in the best traditions At The Gates. So aggressive and extreme music. Terrible twin riffs first of all раy on itself attention. Together with is successful fitted vocal is a very successful course for group. Rabietic speeds, fury and quite good tunes. All that is necessary for a good album. Very much not bad. Only under the end notably, that the musicians have exhausted also ideas them have run low. The misshapen completion of an album is inexpressive. Last thing it would be possible and to not thrust on this album..</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

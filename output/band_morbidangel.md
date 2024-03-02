@@ -312,6 +312,1052 @@ Artwork by Gustavo Sazes.
 * C группой "Vital Remains" Tim Yeung (drums)
 * C группой "Council of the Fallen" Tim Yeung (drums)
 
+## Публикации
+
+### 23.02.1999 news 
+
+<p>Emperor отправляются в европейский тур вместе с Limbonic Art, Morbid Angel, The Crown, Absu и Peccatun.</p>
+
+Автор: Vit Belov
+
+### 26.02.1999 news 
+
+<p>Morbid Angel переиздают свой релиз "Formulas Fatal To The Flesh" вместе с бонус-CD "Love Of Lava". Релиз появится 22 марта 1999 года.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Immolation только что закончили запись нового альбома "Failure For Gods". Он выйдет в мае и будет представлять собой death-metal в стиле Morbid Angel.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Flotsam&Jetsam выступят на знаменитом фестивале в Милуоки. Хэдлайнерами на нём будут Cradle Of Filth, Morbid Angel, Manowar и Machine Head. Также будут выступать Witchery, Marduk, Angra, Iced Earth, Satyricon, The Gathering, Sinister и другие. Всего более 120 групп. Кстати, всё это двухдневное удовольствие стоит всего 50 баксов. Это я так для сравнения.</p>
+
+Автор: Vit Belov
+
+### 08.06.1999 news 
+
+<p>Grip Inc отправятся в тур после того, как их барабанщик Дэйв Ломбардо закончит сниматься в кинофильме, посвящённом жизни Гарри Гилмора. Дэйв говорит, сто в нём он играет "самого себя" в 80-х. В этом фильме (Cremaster 2) также отметится вокалист-басист из Morbid Angel Стив Такер, который, что-то там споёт.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Член Morbid Angel Эрик затеял свой сольный проект Hate Eternal. Дебют этой группы "Conquering The Throne" выйдет довольно скоро.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Aurora Borealis записали три кавер версии: Black Sabbath "After Forever", DIO "We Rock", Morbid Angel "Ancient Ones".</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>В начале 2000 года обещается к выходу новый альбом Morbid Angel.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Ребята из Morbid Angel подтвердили, что выступят в этом году на фестивале "Wacken Festival" в Германии, 5-го августа. Это будет их первое живое выступление со сремени записи их седьмого альбома. А пока группа занимается записью нового студийного альбома в студии в Тампе, во Флориде. Релиз состоится в сентябре.</p>
+
+Автор: Vit Belov
+
+### 14.06.2000 news Morbid Angel работают над новым альбомом
+
+<p>Morbid Angel работают сейчас над новым альбомом, который выйдет 25 сентября. Ещё никакого названия для альбома не придумано, но Steve Tucker утверждает, что это будет "убийственный" прогресс, по сравнению с "Formulas". "Мы очень увлечены новым альбомом. Уже сейчас ясно, что это будет нечто новое и нечто очень брутальное, но по высочайшим стандартам." Группа отправляется в тур до конца года, который начнётся на Wacken festival 5 августа.</p>
+
+Автор: Vit Belov
+
+### 08.07.2000 news Morbid Angel объявляют название нового альбома!
+
+<p> Morbid Angel обнародовали название своего предстоящего нового альбома - "Gateways To Annihilation" . Всемирный релиз намечен на 25 сентября.</p>
+
+Автор: Morsus
+
+### 08.07.2000 news Morbid Angel announce new album title!
+
+<p> Morbid Angel have unveiled "Gateways To Annihilation" as the title for their forthcoming new album. "Gateways To Annihilation" is scheduled for a worldwide release on 25 September.</p>
+
+Автор: Morsus
+
+### 11.09.2000 news Мастера экстремального металла в туре с Пантера
+
+<p>Морбид Энджел в начале Ноября отправляются в четырехнедельный американский тур совместно с Пантерой.</p>
+<p> Турне будет предварять релиз долгожданного 'Gateways To Annihilation'. Альбом выходит 17 Октября в США и 25 Сентября в Европе.</p>
+<p> "Для нас большая честь играть в одном туре с Пантера": прокомментировал басист и вокалист Стив Такер.</p>
+<p></p>
+
+Автор: Yermola
+
+### 12.09.2000 reviews Formula Fatal To The Flesh
+
+<p> На сегодняшний день (11 сентября 2000 г.) альбом Formula Fatal To The Flash можно назвать самым навороченным и технически насыщенным альбомом команды. Трое американских парней буквально с первых трэков вбивают вас по уши в землю. Мощнейший гроулинг (один из лучших в стиле!), хроматические и диатонические гитарные риффы и один из самых скоростных барабанщиков, что вам еще нужно, чтобы спокойно встретить старость? При этом альбом содержит несколько совершенно шизовых треков выпадающих за рамки стиля. Это клавишные Disturbance In The Great Slumber и Ascent Through The Spheres, и эксперименты с гитарным дилеем в духе Стиви Вэя (Hymn To A Gas Giant). А людоедские барабаны Hymnos Rituales De Guerra больше всего напомнили мне Ramattahata незабвенных Sepultura. Все время прослушивания меня мучил риторический вопрос: "Как эти парни умудряются создавать столько шума втроем?" В лирике альбома заметен переход от сатанизма к оккультизму и мистицизму (не ими ли самими созданным?) - почти половина песен полна обращениями к Habsu, Amah-Ushumgal-Anna и Chthulhu.</p>
+<p> Что я могу добавить? Альбом настоятельно рекомендуется любителям сдвоенных барабанов и американской школы экстремального металла и не рекомендуется беременным женщинам и нервным девицам. Музыка для крепких парней "with balls of still", одним словом.</p>
+
+Автор: Yermola
+
+### 07.10.2000 news Dwell Records выпускает трибьют Morbid Angel
+
+<p> 14-го ноября на Dwell Records состоится релиз "Scream Forth Blasphemy - A Tribute to Morbid Angel". В записи диска участвовали группы Mangled, Angel Corpse, Sadistic Intent, Diabolic, Exmortis и др.</p>
+
+Автор: Nybras
+
+### 07.10.2000 news Morbid Angel tribute is coming by Dwell Records
+
+<p> Dwell Records will release in November 14th "Scream Forth Blasphemy - A Tribute to Morbid Angel". Bands to be featured include Mangled, Angel Corpse, Sadistic Intent, Diabolic, Exmortis and much more.</p>
+
+Автор: Nybras
+
+### 08.11.2000 reviews Умри все живое!
+
+<p>Умри все живое! Вот он путь к уничтожению. Новейший релиз американских ветеранов Morbid Angel. Злобно-мрачная болезненная музыка. Тяжелейшие риффы просто придавливают к земле. Просто беспощадная музыка. Первая половина альбома ближе по духу к медленному и тяжелому "Blessed Are The Sick". Мощнейшие бензопильные риффы просто невозможно слушать на большой громкости. Создается впечатление, что уши зажимаются тисками. Непередаваемые чувства. Правда, иногда, это слушается довольно скучновато. Немного монотонная музыка перемежаемая изредка грайндовыми вставками. Но под конец, музыка становится все более разнообразнее, скорости разгоняются и это уже становится более похожим на "Covenant" и "Domination". После прослушивания альбома некоторое время пребываешь в непонятном состоянии. У неподготовленных слушателей могут быть приступы головокружения. Но придя в себя, совершенно точно осознаешь силу и глубину музыки. На мой взгляд, это лучший альбом группы сочетающий в себе всю прелесть предыдущих альбомов возведенную на самый высокий профессиональный уровень.</p>
+
+Автор: Dimas
+
+### 10.11.2000 news After Death выперли из студии
+
+<p> Новому проекту Майка Броунинга (Nocturnus, Morbid Angel), группе After Death, не удалось закончить запись дебютного альбома "Vibrations". Ребят выгнали из студии, обвинив в том, что их тексты "слишком сатанинские"!</p>
+
+Автор: Nybras
+
+### 10.11.2000 news The new band After Death has been kicked from the studio
+
+<p> The new band of former NOCTURNUS- and MORBID ANGEL-member Mike Browning has been kicked from the studio by the personnel during their recording-session of their debut "Vibrations". They apparently had the feeling that the lyrics were too Satanistic... The recordings will be finalised elsewhere.</p>
+
+Автор: Nybras
+
+### 19.03.2001 news Песни Апокалипсиса...
+
+<p>SLAYER близок к завершению записи своего грядущего альбома (рабочее название "Soundtracks Of The Apocalypse"). Сейчас команда в Ванкуверской Warehouse Studios совместно с продюссером Мэттом Хайд заканчивают выбор песен. 17 вещей уже записано, из них только 14 войдут на диск, а остальные будут опубликованы в виде бонус-треков и b-sides. Пока что отобраны: 01. Threshold 02. Disciple 03. Addict 04. Exile 05. Payback 06. Seven Faces 07. Godsend Death 08. New Faith 09. Deviance 10. Scarstruck 11. Here Comes The Pain 12. Gore Point 13. Warzone. Выход альбома запланирован на май, сразу после Американского тура с PANTERA, STATIC-X, MORBID ANGEL, C.O.C., HALFORD и SKRAPE.</p>
+
+Автор: Yermola
+
+### 19.03.2001 news Soundtracks Of The Apocalypse...
+
+<p>SLAYER are completing the recording process for their forthcoming album (possible working title: Soundtracks Of The Apocalypse) at Warehouse Studios in Vancouver with producer Matt Hyde. 17 songs have been reportedly been written for the record, with 14 due to be included in the final sequence and the remainder to be used as bonus tracks or b-sides/EP cuts. Working song titles include: 01. Threshold 02. Disciple 03. Addict 04. Exile 05. Payback 06. Seven Faces 07. Godsend Death 08. New Faith 09. Deviance 10. Scarstruck 11. Here Comes The Pain 12. Gore Point 13. Warzone The album is tentatively scheduled to be released in May, to be followed by the band's North American tour with PANTERA, STATIC-X and MORBID ANGEL (other rumored acts on the bill include C.O.C., HALFORD, and SKRAPE), which is set to start in June.</p>
+
+Автор: Yermola
+
+### 06.04.2001 news Болезненный Ангел....Стив Такер
+
+<p>По сообщению менеджмента "MORBID ANGEL", бассист/вокалист Стив Такер по ряду личных причин не сможет участвовать в Американском и Европейском турах команды. Заменой ему будет - Jared Anderson из флоридской "HATE ETERNAL". Европейский тур начинается 9 апреля с поддержкой "ZYKLON" и "CADAVER INC", а поздннее будет американский "Extreme Steel tour" совместно с "PANTERA", "SLAYER", "STATIC-X" и "SKRAPE".</p>
+
+Автор: Yermola
+
+### 06.04.2001 news Steve Tucker will not be appearing with MORBID ANGEL on their tours...
+
+<p>According to MORBID ANGEL’s management, vocalist/bassist Steve Tucker will not be appearing with MORBID ANGEL on their upcoming US and European tours due to family and personal problems. The bass and vocal duties at all upcoming dates will be handled by Jared Anderson of the Florida band HATE ETERNAL. MORBID ANGEL will be heading to Europe the week of April 9th for a five-week European tour with ZYKLON and CADAVER INC. in support. As previously reported, the band will also be taking part in the Extreme Steel tour along with PANTERA, SLAYER, STATIC-X and SKRAPE.</p>
+
+Автор: Yermola
+
+### 26.04.2001 reviews Врата к Уничтожению
+
+<P>Поистине всеуничтожающая музыка содержится на этом диске, который по праву может считаться наилучшей работой Morbid Angel, выданной им на-гора за более чем десятилетие существования. И даже при наличии прочих уже выпущенных в данном 2000-м году другими маститыми группами очень неслабых мясных работ, этот релиз вполне может считаться замечательным образцом БРУТАЛ ДЕТ, со всеми вытекающими отсюда последствиями.</P>
+<P>Зря очень многие ругают "Врата к Уничтожению" за занудность, которой тут совсем и не пахнет - медленен здесь всего лишь один четвертый трек He who sleeps, но именно "медленен", а не "зануден", и даже при всей своей неторопливости пробирает просто до костей своей мрачностью и тяжестью, впрочем, как и весь альбом вцелом, продуманный "от" и "до" до мелочей.</P>
+<P>Диск сей, попав мне в руки (именно "попав" - искать новый опус этой команды, памятуя три предыдущие бестолковые работы Covenant-Domination-Formulas, желания не было совершенно никакого...), был переслушан несколько раз подряд на одном дыхании, дивясь тому, какая у людей может прорезаться даровитость. И хоть в музыкальном плане на диске нет практически ничего нового, а всего-навсего лишь переигранный старый материал (либо подражания ему же), все произведено на качественно ином очень профессиональном уровне - так, что это можно слушать еще и еще и слушать с удовольствием! Здесь те треки, которые медленны, действительно МЕДЛЕННЫ, в смысле "атмосферны" и "завораживающи", и медленны потому, что именно так задумано и мастерски сыграно, а не потому, что тормоз-гитарист путается пальцами в струнах, как на некоторых предшествующих работах.</P>
+<P>Итого этот опус по праву является самым технически насыщенным и мастерски исполненным творением группы, создавшей совершенный СИНТЕЗ всего лучшего, что было во всех их предыдущих работах, и которым Trey Azagthoth и David Vincent вполне заслуженно гордятся. Ребятам во второй раз со времен очень сырых, но очень уж искренне нарезанных Алтарей Безумия удалось создать и в самом деле нечто ЭПОХАЛЬНОЕ. Молодцы, Ангелочки! Но серьезный минус за то, что слишком долго и тщательно вылизывали материал - говорю не в том смысле, что это не надо делать вообще, просто команда такого уровня с мировым ИМЕНЕМ могла бы выдавать ТАКИЕ альбомы на-гора не напрягаясь, а не мусоля свое добро столько времени и очень большой минус за то, что это (не считая демо, EP и концертника) уже почитай аж шестой альбом группы, а не первый-там-второй-третий. Право же, Cannibal Corpse и то быстрее учатся играть...</P>
+Автор: Alexey Pitirimov
+
+### 29.05.2001 news Новый проект гитариста Morbid Angel
+
+<p> Дебютный альбом "Absolute Purity" сайд-проекта гитариста Morbid Angel, под названием ALAS, появится в продаже уже в середине июня.</p>
+
+Автор: Nybras
+
+### 11.09.2001 news The Holidays In Hell Tour 2001...
+
+<p>MORBID ANGEL have announced the initial dates for their forthcoming The Holidays In Hell Tour 2001, the band’s first headlining run in support of their latest album, Gateways To Annihilation. Joining MORBID ANGEL on the bill will be DEICIDE, SOILENT GREEN, ZYKLON and another act to be announced shortly. Here are the confirmed dates so far: <br> Nov. 23 - Sunset Station - San Antonio, TX <br> Nov. 24 - Canyon Club - Dallas, TX <br> Nov. 25 - El Rey Theatre - Albuquerque, NM <br> Nov. 28 - Galaxy Theatre - Santa Ana, CA <br> Nov. 29 - The Palace - Hollywood, CA <br> Nov. 03 - Catwalk - Seattle, WA <br> Nov. 07 - First Avenue - Minneapolis, MN <br> Nov. 08 - Vic Theatre - Chicago, IL. <br> All shows will be all ages. Tickets for these shows will be going on sale within the next week. More shows will be added in the couple of weeks. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 28.10.2001 news EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001
+
+<p>EXTREME MUSIC FOR EXTREME PEOPLE TOUR 2001 <BR> featuring MORBID ANGEL, Deicide, Soilent Green, Zyklon & Exhumed<BR> <BR> November 2001 <BR> 11/20/01 - CARDI'S - HOUSTON, TX <BR> 11/21/01 - VILLA REAL CONVENTION CENTER - McALLEN, TX <BR> 11/22/01 - OFF <BR> 11/23/01 - SUNSET STATION - SAN ANTONIO, TX <BR> 11/24/01 - CANYON CLUB - DALLAS, TX <BR> 11/25/01 - EL REY THEATRE - ALBUQUERQUE, NM <BR> 11/26/01 - TBA <BR> 11/27/01 - TBA <BR> 11/28/01 - GALAXY THEATRE - SANTA ANA, CA <BR> 11/29/01 - THE PALACE - HOLLYWOOD, CA <BR> 11/30/01 - THE POUND - SAN FRANCISCO, CA<BR> <BR> December 2001 <BR> 12/01/01 - THE POUND - SAN FRANCISCO, CA <BR> 12/02/01 - OFF <BR> 12/03/01 - CATWALK - SEATTLE, WA <BR> 12/04/01 - OFF <BR> 12/05/01 - OGDEN THEATRE - DENVER, CO <BR> 12/06/01 - OFF <BR> 12/07/01 - FIRST AVENUE - MINNEAPOLIS, MN <BR> 12/08/01 - VIC THEATRE - CHICAGO, IL <BR> 12/09/01 - AGORA - CLEVELAND, OH <BR> 12/10/01 - M (Formerly Metropol) - PITTSBURGH, PA <BR> 12/11/01 - TBA <BR> 12/12/01 - THE WORLD - NEW YORK, NY <BR> 12/13/01 - THE PALLADIUM - WORCESTER, MA <BR> 12/14/01 - JAXX - SPRINGFIELD, VA <BR> 12/15/01 - TBA <BR> 12/16/01 - TROCADERO - PHILADELPHIA, PA</p>
+
+Автор: Yermola
+
+### 28.10.2001 news Жизнь червей на виниле...
+
+<p>Норвежцы "ZYKLON", имеющие в своем составе учатсников EMPEROR - Zamoth (гитара) и Trym (барабаны), и участника "MYRKSKOG" гитариста Destructhor, в ноябре выпускают виниловую версию своего последнего альбома "World ov Worms" на голландской Displeased Records. Из других новостей, "циклоновская" версия “Dominate” от "MORBID ANGEL" войдет на трибьютный альбом онных выходящий через Hellspawn Records в январе...</p>
+
+Автор: Yermola
+
+### 05.01.2002 articles Несколько суперкоманд на одном концерте-это слишком!
+
+<p>Ну вот значит недавно вернулся с концерта, воспоминания еще свежи,но могу сделать один вывод - несколько суперкоманд на одном концерте-это слишком! Должны быть хэдлайнеры и аутсайдеры, а не так -башка блин отваливается от угара:)))</p>
+<p>Концерт начался ровно в назначенное время-первыми вышли калифорнийские маньяки из EXHUMED! Музыка данного коллектива представляет из себя брутально-приблэкованый дэс-метал. Основной вокалист и он же гитарист поет скриминговым вокалом,второй же гитарист подпевает ему сочным гроулингом-причем вокалы очень удачно чередуются, что создает илюзию разговора "великана-людоеда и злобного карлика" (выражение не мое-просто вспомнил и решил вставить:) Ну самый прикольный чел. у них-это басила. С панковским гребнем, в напульсниках а-ля ранний Керри Кинг. Так вот особо запомнился момент-идет мощная ломовая музыка и вдруг резко останавливается - басила снимает басуху и блюет перед собой,причем блюет реально:), а потом одевает басуху и продолжает как ни в чем не бывало рубить дальше.Народ просто в шоке:))).Причем басист еще до шоу подстелил перед собой клееночку, знал гад, что блеванет:) - видно “адский заблёв” входит в часть их шоу, так же как и обливание кровью- крови было много:)))Народ от такой музыки завелся с пол-пинка и активно рубился.</p>
+<p>Далее вышли грозные викинги - Норвежцы ZYKLON, имеющие в своем составе учатсников EMPEROR - Samoth и Trym и гитариста MYRKSKOG. Выглядят они очень колоритно – гитаристы-три столба под 1,90м рыжие-как настоящие тру-норвежцы, а барабанщик маленький, черненький да еще и стриженый,зато лупит дай бог:)</p>
+<p>Ребята сразу взяли с места в карьер и показали америкотам что такое тру блэк-метал, правда блэк-металом это назвать нельзя-скорее сильно приблэкованый дэс!Рубился народ очень даже активно.Правда вот звук был не идеальный.Ребята отыграли как вещи с альбома так и новые песенки, которые звучат не менее мощно.Но похоже у свех норвежских групп наметилась тенденция отходить от чистого блэка и играть что то похожее на дэс- как последние IMMORTAL, EMPEROR,SATYRICON. Кстати на концерте продавались альбомы не только ZYKLON, но и весь EMPEROR и MYRKSKOG. Я по этому случаю оторвал себе на халяву наклейку EMPEROR с рекламой их нового альбома. Потом настала пауза и народ полностью забил все пространство перед сценой, и я конечно же был в первых рядах, потому что вышли те, которые были для меня фаворитами концерта,да и концерт это подтвердил. Речь конечно же о DEICIDE .</p>
+<p>Команде, в которой за 15 лет не сменилось ни одного музыканта – и было видно чио они понимают друг друга с полувзгляда! Звук был просто отпадный – четкий, мощный и ясный, барабаны были выдвинуты сильно вперед- на бочках красовались 2 логотипа-такой же логотип был на заднике. Все ребята одеты в кожанные штаны и проклепанные сапоги, у Глена Бентона кожаная жилетка и перевернутый КРЕСТ на лбу –это не понты-сам видел-правда выглядит он как два шрама – но впечатляет!Один из братьев Хоффманов волосатый,а второй «Брат-2» видимо стриженный-потому что весь концерт он прорубился в кожаном шипованом шлеме- с прорезями для глаз и рта. Дядька Бентон вел себя на удивление скромно, не толкал никаких телег про сатану , а с довольным видом,объявлял песни, прислушиваясь и ко мнению зала! Начался гиг песенкой In Torment In Hell! Народ сразу же вошел в угар. Потом пошел Lunatic of Gods Creation – ну и здесь пел весь зал.Далее исполнены Serpents of the Light, заглавная вещь с Легиона, Bibble Basher, Let It Be Done. Затем наступила небольшая пауза и Бентон улыбнувшись объявил Sacrificial Suicide – это был апогейзал превратился в бурлящий котел поющий вместе с Deicide эту песню « всех времен и народов»!Мог ли я себе представить еще 10 лет назад, что когда нибудь буду рубиться под Sacrificial Suicide на концерте, да еще в исполнении авторов!!! Далее прослушали Once Upon the Cross и мы стали требовать еще одну песню « всех времен и народов» Dead By Dawn. Бентон переговорил-точнее переглянулся с музыкантами и произнес три магических слова Dead By Dawn! Волна угара с новой силой захватила нас, рубящихся в этом адском котле. Потом взяв как бы передышку Бентон спел песню с нового альбома Child of God и еще одну с Once Upon the Cross. И в завершении своего небольшого 40 минутного выступления зарядили Crusifixation. Надо заметить, что на сцене DEICIDE выглядят достаточно статично – не бегают, шоу тоже нет,но исполняемая музыка настолько тебя захватывает, что этого просто не замечаешь! Еще хочу отметить очень удачно подобранную программу – зал прекрасно знал все вещи!</p>
+<p>Потом наступила получасовая пауза, все стали ждать выхода Morbid Angel! Ну значит стоим мы в баре пиво пьем, обсуждаем детали концерта и предстоящие угары. Я упомянул что в феврале DIMMU BORGIR начинают американский тур, и вдруг стоящий рядом парень-америкот услышав знакомое слово обернулся-спросил откуда мы и что думаем про DIMMU BORGIR, а потом стянул с себя майку и на всю спину у него огромная цветная татуировка диммуборгировская пентограмма – вот до какой степени можно быть ТРУ:))))))Ну это я отвлекся - а теперь о хэдлайнерах шоу – Morbid Angel. В первую очередь мне хотелось услышать двухбочковую работу одного из лучших барабанщиков мира – Пита Сандовала-и я не ошибся. Этот просто пулемет какой то!Настолько быстро и ровно долбит по бочкам-по моему не было за все выступление таких моментов где бы шла одна бочка-поразился его работоспособности и таланту-такие вещи вытворяет!То же можно сказать и про Трэя Азагота – просто приятно смотреть/слушать как человек обращается с гитарой, как умело и в тему использует машинку.Правда чего так и не удалось увидеть – так это его лица – весь концерт его закрывали черные кудрявые волосы,да и ростом он невелик. Что касается вокалиста и второго гитариста, скажу что они отработали ровно и четко-на автомате, но Morbid с Винсентом мне нравился больше чем новый, а на концерте они исполняли в основном новые вещи 1998-2000. Хотя началось все песенкой с Altar of Madness. Потом загрузили народ вещами с Gateway to Annihilation- и народ надо сказать рубился, но не так активно- все силы были отданы DEICIDE. Затем заметно оживились когда была исполнена Rapture – поорали,попели! Попросили Blessed are the Sick – пожалуйста, затем Dominate – получите! И все таки не может не совсем она концертная команда- Morbid Angel-за час с небольшим их выступления народ заметно подустал.Хотя друг мне говорил, что на их концерте три года назад было очень весело-и вещи подобраны немного по другому!Или может быть несколько суперкоманд в одном концерте это перебор! Я бы с большим удовольствием сходил отдельно на DEICIDE и отдельно на MORBID!</p>
+<p>Но ничего не поделаешь- а может мы тут зажрались?:)))Следующий концерт состоится 15 декабря- мы сможем увидеть послушать и оценить MOONSPELL & LACUNA COIL.</p>
+
+Автор: rjh
+
+### 25.01.2002 news Соло проект фронтмена MORBID ANGEL...
+
+<p>"INTERNECINE" - соло проект фронтмена MORBID ANGEL/HATE ETERNAL - Jared Anderson завершил работу над дебютным альбомом "The Book of Lambs". Спродюссированный гитаристом "Морбидов" - Erik Rutan релиз выйдет в продажу в конце весны....</p>
+
+Автор: Yermola
+
+### 25.01.2002 news MORBID ANGEL Frontman Completes Work On Side Project ...
+
+<p>INTERNECINE, featuring MORBID ANGEL/HATE ETERNAL frontman Jared Anderson, have completed work on their debut album, entitled The Book of Lambs. Produced by MORBID ANGEL guitarist Erik Rutan, the group's first CD is tentatively scheduled to be issued in late spring.</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 04.06.2002 news MORBID ANGEL: требуется фротмен!
+
+<p>Дуэт постоянных участников "MORBID ANGEL" - Trey Azagthoth (гитара) и Pete Sandoval (барабаны) закончил сотрудничество с поющим бассистом Jared Anderson, который решил сосредоточиться на проектах HATE ETERNAL и INTERNECINE. Сейчас остатки группы джэмуют в Луизиане и готовят материал для нового альбома запланированного к записи в этом году...</p>
+
+Автор: Yermola
+
+### 04.06.2002 news MORBID ANGEL: New Frontman Needed!
+
+<p>The MORBID ANGEL duo of Trey Azagthoth (guitar) and Pete Sandoval (drums) have ended their collaboration with touring bassist/vocalist Jared Anderson and are currently holed up at a Louisiana jam pad writing material for the group's next studio effort, due in 2003. Anderson, who had filled the role of the band's frontman during the act's most recent touring activities, has apparently opted to focus all his attention on HATE ETERNAL and INTERNECINE and will not be contributing his services to MORBID ANGEL's upcoming CD, which is tentatively scheduled to be recorded later in the year. An official announcement regarding the identity of the group's new bassist/vocalist and the details of the forthcoming album is expected in the coming months.</p>
+
+Автор: Yermola
+
+### 23.08.2002 news Эрик Рутан ушел из Morbid Angel ....
+
+<p>Легендарные дэтстеры "Morbid Angel" официально объявили об уходе гитариста Эрика Рутана. <BR><BR> "Последние девять лет в Morbid Angel были лучшим временем в моей жизни..." - говорит Рутан. "Играть в моей любимой дэт группе на все времена это огромная честь. Я хотел бы поблагодарить Трэя и Пита за все что они сделали для меня и всех фанов которые поддерживали меня раньше и я надеюсь будут поддерживать в дальнейшем. Сейчас пришло время встать на свои собственные ноги с группой Hate Eternal..."<BR><BR> Гитарист пришел в "Morbid Angel" в 1993 году и участвовал в записи трех наиболее успешных альбомов. В 1996 он создал "Hate Eternal" для выражения собственного взгляда на музыку. Второй их альбом "King Of All Kings" выходит на Earache 17-го сентября.</p>
+
+Автор: Yermola
+
+### 23.08.2002 news Morbid Angel announced departure of Erik Rutan....
+
+<p>Legendary death metallers Morbid Angel have officially announced the permanent departure of guitarist Erik Rutan. <BR><BR> "Being in Morbid Angel for the past nine years has been the greatest time of my life," said Rutan on the official Morbid Angel website. "To play in my favorite death metal band of all time has been a tremendous honor. I want to thank Trey and Pete for all the great years and all they have done for me, and all the fans who have supported me and will hopefully continue to support me in the future. It is now time for me to stand on my own two feet with Hate Eternal." <BR><BR> The guitarist joined Morbid Angel in 1993 and has performed on three of the group's most successful efforts. He formed Hate Eternal in 1996 to express his own interpretation of death metal. Hate Eternal will release their second album, King Of All Kings, on September 17th in North America on Earache. <BR><BR> We'll have more news on Morbid Angel and possible replacements for Rutan as it happens. Stay tuned.</p>
+
+Автор: Yermola
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+### 01.06.2003 news Стив Такер вернулся
+
+<p>Басист-вокалист Steve Tucker вернулся в MORBID ANGEL. В настоящее время группа активно работает над материалом к новому альбому.</p>
+
+Автор: Dimas
+
+### 05.06.2003 news MORBID ANGEL в студии
+
+<p>MORBID ANGEL занимаются записью своего нового альбома во флоридской D.O.W. (Diet Of Worms) Studio. На сегодняшний день, в составе группы гитарист Trey Azagthoth, ударник Pete Sandoval и басист-вокалист Steve Tucker. Продюсер записи - Juan "Punchy" Gonzalez, работавший последние восемь лет звукоинженером группы. Пока, у альбома нет названия, но если группа будет и дальше следовать своему "алфавитному" правилу, то его название будет на букву H. Предварительное название альбома - "H2K3". Выход альбома ожидается в конце года на Earache Records.</p>
+
+Автор: Dimas
+
+### 16.07.2003 news MORBID ANGEL выпускают новый альбом
+
+<p>Наконец-то свершилось! Восьмой альбом Morbid Angel уже готов и релиз его должен состояться 22 сентября в Европе и 23 сентября в США на Earache Records. По традиции Morbid Angel всегда называли свои альбомы в алфавитном порядке. Согласно традиции альбом должен был начинаться на букву "H". Сначала была идея назвать альбом "H2K3", но это название было рабочим, и теперь альбом официально именуется "Heretic".</p>
+
+Автор: Darkfall
+
+### 11.08.2003 news Трэк-лист нового MORBID ANGEL
+
+<p>Стал окончательно известен трэк-лист нового альбома американской легенды death metal MORBID ANGEL "Heretic". В альбом, который выйдет 22 сентября на Earache Records, войдут следующие вещи:</p>
+<p> <IMG SRC="/images/news_rus/2003.08/4702.jpg" ALT="pho" width=250 height=250 hspace="15" vspace="5" border="1" align="left">1. Cleansed In Pestilence (Blade Of Elohim)<BR> 2. Enshrined By Grace <BR> 3. Beneath The Hollow<BR> 4. Curse The Flesh<BR> 5. Praise The Strength<BR> 6. Stricken Arise<BR> 7. Place Of Many Death<BR> 8. Abyssous<BR> 9. God Of Our Own Divinity<BR> 10. Within Thy Enemy<BR> 11. Memories Of The Past<BR> 12. Victorious March Of Reign The Conqueror<BR> 13. Drum Check<BR> 14. Born Again</p>
+
+Автор: Dimas
+
+### 18.09.2003 news Новый альбом MORBID ANGEL выйдет в разных форматах
+
+<p>Новый альбом MORBID ANGEL 'Heretic' выйдет в разных форматах, согласно сообщению издающего лэйбла EARACHE RECORDS. 'Heretic', который выйдет во всём мире 24 сентября был записан и смикширован в D.O.W. (Diet Of Worms) с со-продюсером и инженером Juan "Punchy Gonzalez. Альбом ознаменует возвращение в группу басиста/вокалиста Steve Tucker, который покинул группу в апреле 2001 года, из-за семейных проблем.</p>
+<p>Будут доступны следующие версии альбома</p>
+<p>- Box Set - CD плюс дополнительный компакт-диск "Bonus Levels" с 18 нереализованными вещами. В добавок бесплатный стикер. Данное издание будет доступно только в Германии или через web-site Earache Records</p>
+<p>- Double Disc Slipcase - CD плюс 'Bonus Levels', только в США на оптовой основе</p>
+<p>- Double Disc - CD плюс 'Bonus Levels', доступно везде</p>
+<p>- 12" Vinyl Picture Disc - доступен везде в специализированных магазинах</p>
+<p>- .Regular Single-Disc CD - обычное издание, доступное везде<BR></p>
+Автор: Vit Belov
+
+### 25.10.2003 news MORBID ANGEL, SUPEJOINT RITUAL in USA
+
+<B>SUPERJOINT RITUAL</B> w/ <B>DEVILDRIVER</B>:<BR><BR>Oct. 16 - Columbus, OH - Al Rosa <BR>Oct. 17 - Detroit, MI - Harpo's<BR>Oct. 18 - Flint, MI - Machine Shop<BR>Oct. 20 - Indianapolis, IN - Vogue<BR>Oct. 21 – Cleveland, OH - Agora Ballroom<BR>Oct. 23 - Chicago Heights, IL - Oasis 160<BR>Oct. 24 - Cedar Rapids, IA - Lets Dance<BR>Oct. 25 - Milwaukee Wisconsin - The Rave<BR>Oct. 26 - Clearlake, IA - Surf Ballroom<BR><BR><B>SUPERJOINT RITUAL</B> w/ <B>MORBID ANGEL</B>, <B>DEVILDRIVER</B>:<BR><BR>Nov. 03 - State College, PA - Crowbar <BR>Nov. 04 - Baltimore, MD - Thunderdome<BR>Nov. 05 - Providence, RI – Lupo's Heartbreak<BR>Nov. 07 - Worcester, MA - The Palladium<BR>Nov. 08 - Hartford, CT - The Webster Theater<BR>Nov. 09 - Poughkeepsie, NY - The Chance<BR>Nov. 11 - Rochester, NY - Penny Arcade<BR>Nov. 13 - Philadelphia, PA - Theatre Of Living Arts<BR>Nov. 14 - Asbury Park, NJ - Convention Hall<BR>Nov. 15 - Lackawanna, NY - Cruise Inn<BR>Nov. 17 – Brooklyn, NY - L'Amour<BR>Nov. 18 – West Springfield, VA - Jaxx<BR>Nov. 19 – Spartanburg, SC - Ground Zero<BR>Nov. 21 – Urbane, IL - The Canopy <BR>Nov. 23 – Minneapolis, MN - First Avenue<BR>Nov. 24 – Chicago, IL - Vic Theatre<BR>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 27.12.2003 news &quot;American Heretic tour&quot; - новый концертный тур Morbid Angel
+
+<P>Менеджмент <B>MORBID ANGEL</B>&nbsp; заявил о предстоящем концертном туре, названном <B>"American Heretic tour".</B>&nbsp;Он стартует 14 апреля 2004 года и будет проходить в поддержку последнего альбома группы -&nbsp;&nbsp;<B>"Heretic".</B>&nbsp; В туре также примут участие <B>SUFFOCATION, SATYRICON</B>&nbsp;&nbsp;и <B>PREMONITIONS OF WAR</B>. Полный список дат концетов и городов выступления&nbsp;(всего их 25),&nbsp;будет обнародован в начале 2004 года.&nbsp;</P>
+Автор: Uneral
+
+### 18.06.2004 news Новости от MORBID ANGEL
+
+<P><B>Trey Azagthoth</B> поделился своими планами о создании совместного проекта с певицей <B>Anneke van Giersbergen</B>&nbsp;из <B>THE GATHERING</B>.&nbsp;В настоящее время музыканты пытаются совместить свои графики.</P>
+<P>Кроме этого, барабанщик <B>Pete Sandoval</B>&nbsp;рассказал,&nbsp;что пытается собрать <B>TERRORIZER</B> для записи&nbsp;нового альбома. Pete надеется, что они войдут в студию в конце года.</P>
+Автор: Vit Belov
+
+### 19.08.2004 news MORBID ANGEL ушли с Earache
+
+<P><STRONG>MORBID ANGEL</STRONG> прекратили своё долговременное сотрудничество с <STRONG>Earache</STRONG>. </P>
+<P>"<EM>Мы рассматриваем предложения от многих лэйблов для издания нового альбома в 2005 году</EM>". </P>
+Автор: Vit Belov
+
+### 06.02.2006 news Новости о MORBID ANGEL
+
+<P>Пока одна из величайших групп дэт-метала <B>MORBID ANGEL</B> колесит по Америке в сопровождении <B>Behemoth, Krisiun и&nbsp;Despised Icon</B> в рамках тура Masters of Chaos Tour 2006, их бывший лэйбл <B>Earache</B> собирается перевыпустить их шедевральный альбом <B>"Altars of Madness"</B>, снабдив его DVD с записью легендарного концерта группы в 1989 году в Rock City в Ноттингеме. Данное издание выйдет 13 марта 2006 года.</P>
+Автор: Ixtiandr
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 18.10.2006 news Умер Jared Anderson
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В возрасте 30 лет скончался <STRONG>Jared Andersen</STRONG>, бывший фронтмэн <STRONG>MORBID ANGEL, HATE ETERNAL</STRONG> и <STRONG>INTERNICINE</STRONG>. Причины смерти не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 20.05.2008 news MORBID ANGEL нашли ещё одного гитариста
+
+<P><STRONG>MORBID ANGEL</STRONG> сообщили, что вторым гитаристом группы стал музыкант норвежцев <STRONG>ZYKLON</STRONG> <STRONG>Destructhor</STRONG> (a.k.a. <B>Thor Anders Myhren</B>).&nbsp; Группа находится в студии, где сочиняет материал для нового альбома. Легендарный death-metal коллектив находится пока без контракта, так как соглашение с <STRONG>Earache</STRONG> было прервано после выхода последней работы "<STRONG>Heretic</STRONG>".</P>
+Автор: Vit Belov
+
+### 09.07.2008 news У David Vincent отняли пояс 
+
+<P>Курьёзная новость пришла из Милана. Вокалист <STRONG>MORBID ANGEL David Vincent</STRONG> был арестован в аэропорту этого города за то, что хотел провезти в своём багаже пояс-патронташ. Музыкант был препровождён в полицию, где длительное время давал объяснения. Муляж был конфискован.</P>
+<P>Интересно, что этот предмет концертного реквизита был подарен <STRONG>David</STRONG> в 1989 году хозяином <STRONG>Earache </STRONG>при подписании контракта на выпуск альбома.</P>
+Автор: Vit Belov
+
+### 19.11.2009 news MORBID ANGEL на Season Of Mist
+
+<P><STRONG>MORBID ANGEL</STRONG> заключили контракт с <STRONG>Season Of Mist</STRONG>. Девятый альбом группы выйдет в 2010 году.</P>
+<P>Группа покинула <STRONG>Earache Records</STRONG>, на котором выпустила предыдущие восемь альбомов.</P>
+Автор: Vit Belov
+
+### 18.03.2010 news MORBID ANGEL запишут альбом без Pedro &#39;Pete&#39; Sandoval
+
+<P>Барабанщику<STRONG> MORBID ANGEL</STRONG> <STRONG>Pedro 'Pete' Sandoval </STRONG>проведена операция на позвоночнике.&nbsp;В настоящее время он проходит курс реабилитации, и<STRONG> MORBID ANGEL</STRONG> взяли временного музыканта для записи нового альбома. Им стал <STRONG>Tim Yeung</STRONG> (<B itxtvisited="1">DIVINE HERESY</B>, <B itxtvisited="1">ALL THAT REMAINS</B>, <B itxtvisited="1">NILE</B>, <B itxtvisited="1">HATE ETERNAL</B>, <B itxtvisited="1">VITAL REMAINS</B>).</P>
+<P>Пластинка должна выйти в этом году на <STRONG>Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 10.03.2011 news MORBID ANGEL назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MORBID ANGEL</STRONG> получил название <STRONG>"Illud Divinum Insanus". </STRONG>Пластинка увидит свет 7 июня на <STRONG>Season Of Mist. </STRONG>Альбом был записан в <STRONG>Mana Recording Studios </STRONG>в Санкт-Петербурге, Флорида с <STRONG>Erik Rutan</STRONG>. Этот релиз станет первым записанным без барабанщика <STRONG>Pedro "Pete" Sandoval</STRONG>, у которого проблемы со спиной, приведшие к операции. Новым музыкантом стал <STRONG>Tim Yeung (</STRONG><STRONG>DIVINE HERESY, </STRONG><STRONG>ALL THAT REMAINS, </STRONG><STRONG>NILE, </STRONG><STRONG>HATE ETERNAL, </STRONG><STRONG>VITAL REMAINS)</STRONG><STRONG>.</STRONG>&nbsp;</FONT></P>
+<P><center><IMG height=338 src="/images/news_rus/2011.03/18842.jpg" width=469 border=0></P>
+Автор: Vit Belov
+
+### 31.03.2011 news Обложка MORBID ANGEL
+
+<P>Восьмой альбом<STRONG> MORBID ANGEL</STRONG> <STRONG>"Illud Divinum Insanus" </STRONG>выйдет 7 июня на <STRONG>Season Of Mist</STRONG>. В сети появилась обложка пластинки, нарисованная <STRONG>Gustavo Sazes. </STRONG>16 мая выйдет&nbsp;сингл <STRONG>"Nevermore</STRONG>", в качестве бонуса на этом релизе будет ремикс новой песни американцев <STRONG>"Destructos Vs. The Earth"</STRONG>,&nbsp;в исполнении <STRONG>COMBICHRIST</STRONG>.</P>
+<P><center><IMG height=450 src="/images/news_rus/2011.03/18985.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 06.04.2011 news Лимитированное издание MORBID ANGEL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MORBID ANGEL</STRONG> <STRONG>"Illud Divinum Insanus" </STRONG>выйдет 7 июня на <STRONG>Season Of Mist</STRONG>. Стал известен трек-лист этой работы:</FONT></P>
+<P>01. <B>Omni Potens</B><BR>02. <B>Too Extreme!</B><BR>03. <B>Existo Vulgore</B><BR>04. <B>Blades for Baal</B><BR>05. <B>I Am Morbid</B><BR>06. <B>10 More Dead</B><BR>07. <B>Destructos Vs. the Earth / Attack</B><BR>08. <B>Nevermore</B><BR>09. <B>Beauty Meets Beast</B><BR>10. <B>Radikult</B><BR>11. <B>Profundis - Mea Culpa</B></P>
+<P>Уже сейчас на сайте лэйбла открыта предпродажа на лимитированное издание в деревянной коробке, в которую войдут лимитированный винил, кожаный digi-pack, две свечи, эксклюзивные плакат и майка.</P>
+<P><center><IMG height=486 src="/images/news_rus/2011.04/19076.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 17.08.2011 news Фотографии с фестиваля &quot;TUSKA OPEN AIR&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20609.jpg" width=212 height=282>С 22 по 24 июля в городе Хельсинки,&nbsp;Финляндия, прошёл 14 по счёту фестиваль <STRONG>"Tuska Open Air"</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За эти три дня&nbsp;в нём приняло участие&nbsp;более 50 металических&nbsp;групп со всего света, вот только несколько имён: <STRONG>AMON AMARTH</STRONG>, <STRONG>TURISAS</STRONG>, <STRONG>BLIND GUARDIAN</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>MORBID ANGEL</STRONG>, <STRONG>AT THE GATES</STRONG>.</FONT></P>
+<P>Фотографии некоторых из участников фестиваля можно посмотреть в галерее нашего сайта по адресу: </P>
+<P><A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></P>
+<P>Автор всех фотографий: Анна Ходакова</P>
+<P>Сайт фестиваля <STRONG>"Tuska Open Air"</STRONG>: <A href="http://www.tuska-festival.fi/">www.tuska-festival.fi</A></P>
+Автор: Headcrusher
+
+### 29.09.2011 reviews Хотите послушать самый экстремальный industrial, какой можно представить?
+
+<P>Легендарные американцы MORBID ANGEL не выпускали новых альбомов восемь лет. Такой большой перерыв между студийными работами может свидетельствовать о многом, но в нашем случае он, скорее всего, говорил о творческом тупике, в котором находилась группа. После идеального в техническом плане “Heretic” MORBID ANGEL стало малоинтересно играть тоже самое, видимо, музыканты решили, что уже всё сказали в данном направлении. После восьми лет ожидания мы вновь знакомимся с этой группой, и “Illud Divinum Insanus” может стать главным разочарованием в мире тяжёлой музыки за 2011 год.</P>
+<P>Первые же аккорды удивляют и поражают. Сначала кажется, что этот звук скоро прекратится и MORBID ANGEL вернутся к нам в лучшей форме, но надеждам не суждено сбыться. Ужасающе тяжёлый industrial с практически электронными ударными совершенно не впечатляет. Кажется, что в наши руки попал альбом ремиксов на раннее творчество MORBID ANGEL, но нет, это так музыканты видят death-metal нового века. Скажу сразу, мне не показалось, что коллективу удалось органично совместить упорядоченность industrial-музыки с хаотичностью death-metal. Ведь именно этим MORBID ANGEL и занимаются на новом альбоме. Они не стали играть маршевый ритм, они не стали включать метроном как THE KOVENANT, они просто сыграли old school с ужасающей в своей неопрятности электронной ритм-секцией. Получилось тяжело, получилось экстремально, но осилить эту работу смогут не все поклонники death-metal.</P>
+<P>Пластинку можно смело рекомендовать любителям EBM/Industrial, склонным к экспериментам в звучании. Хотите послушать самый экстремальный industrial, какой можно представить? Вам сюда. Хотя к кому я обращаюсь? Вряд ли поклонники EBM ходят на этот сайт.</P>
+Автор: Vit Belov
+
+### 24.11.2011 news Альбом ремиксов от MORBID ANGEL
+
+<P><IMG height=451 alt="" hspace=0 src="/images/news_rus/2011.11/22095.jpg" width=450 align=right border=0>24 февраля на <STRONG>Season Of Mist</STRONG> выйдет сборники ремиксов на последний альбом <STRONG>MORBID ANGEL</STRONG> <STRONG>"Illud Divinum Insanus". </STRONG>Альбом представит 39 композиций от артистов electro / industrial, techno и club артистов. Трек-лист:</P>
+<P>CD 1:<BR>* <B>LAIBACH</B> - "I Am Morbid" (Wall Of Morbid Mix)<BR>* <B>CEVIN KEY/HIWATT MARSHALL</B> - "Omnidead"<BR>* <B>BRAIN LEISURE</B> - "Too Extreme" (Black Symphony Edition)<BR>* <B>THE TOXIC AVENGER</B> - "10 More Dead"<BR>* <B>MALAKWA</B> - "I Am Morbid"<BR>* <B>SYNAPSCAPE</B> - "Too Extreme"<BR>* <B>PUNISH YOURSELF VS. SONIC AREA</B> - "Destructos Vs The Earth" (Doomsdaymarchmix)<BR>* <B>HIV+</B> - "Too Extreme"<BR>* <B>MICROPOINT</B> - "I Am Morbid"<BR>* <B>JOHN LORD FONDA</B> - "Too Extreme" (Metallizer Remix)<BR>* <B>EVIL ACTIVITIES</B> - "Radikult"<BR>* <B>MIXHELL</B> - "Too Extreme"<BR>* <B>BLACK LUNG</B> - "I Am Morbid"<BR>* <B>MONDKOPF</B> - "Radikult"<BR>* <B>XYTRAS</B> - "Existo Vulgore"<BR>* <B>TOXIC ENGINE</B> - "I Am Morbid"<BR>CD 2:<BR>* <B>AHNST ANDERS</B> - "I Am Morbid"<BR>* <B>NACHTMAHR</B> - "Destructos Vs. The Earth"<BR>* <B>TIM SKOLD</B> - "Profundis / Mea Culpa"<BR>* <B>BLACK STROBE</B> - "10 More Dead"<BR>* <B>CHRIS POHL</B> - "Too Extreme"<BR>* <B>PROJECT PITCHFORK</B> - "Destructos Vs. The Earth"<BR>* <B>TREPONEM PAL</B> - "10 More Dead"<BR>* <B>SCOTT BROWN</B> - "I Am Morbid"<BR>* <B>FIXHEAD</B> - "Radikult"<BR>* <B>DJ RUFFNECK</B> - "I Am Morbid"<BR>* <B>IGORRR</B> - "Remixou Morbidou"<BR>* <B>TAMTRUM</B> - "I Am Morbid"<BR>* <B>TEK-ONE</B> - "10 More Dead"<BR>* <B>ADRIAN</B> - "I Am Morbid"<BR>* <B>THE HORRORIST</B> - "Existo Vulgore"<BR><BR>Digital Download Card:<BR>* <B>COMBICHRIST</B> - "Destructos Vs. The Earth"<BR>* <B>CHRYSALIDE</B> - "Nevermore"<BR>* <B>ASCHE</B> - "Destructos Vs. The Earth"<BR>* <B>SYLVGHEIST MAELSTROM</B> - "10 More Dead " (Deconstructed)<BR>* <B>DEAD SEXY INC.</B> - "I Am Morbid"<BR>* <B>ROGER ROTOR</B> - "Radikult"<BR>* <B>THE PROCESSUS</B> - "I Am Morbid"<BR>* <B>MULK</B> - "Existo Vulgore"</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/hi6rCs5iV38?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/hi6rCs5iV38?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 10.01.2012 news MORBID ANGEL: клип на песню &quot;Exist Vulgore&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Season Of Mist</STRONG> опубликовал новый видеоклип группы <STRONG>MORBID ANGEL</STRONG> на песню <STRONG>"Exist Vulgore"</STRONG>. Трек вошёл в последний альбом коллектива<STRONG> "Illud Divinum Insanus"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Концепция видео принадлежит группе <STRONG>MORBID ANGEL</STRONG> и режиссёру <STRONG>Thomas Mignone</STRONG> (<STRONG>SLIPKNOT</STRONG>, <STRONG>MUDVAYNE</STRONG>, <STRONG>AVENGED SEVENFOLD</STRONG>). <STRONG>Mignone</STRONG> отснял группу в городе Тампа, а цифровая обработка и пост-продакшн были выполнен в Лос-Анжелесе с режиссёром и мастером визуальных эффектов по имени <STRONG>Christopher Neil</STRONG>. Визуально видеоклип напоминает классические немые фильмы ужасов. При его создании были использованы скульптуры художника <STRONG>Krystopher Sapp</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/THrulIy-Ri4" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 19.03.2013 news David Vincent, Max Cavalera, Glenn Danzig в фильме о порно актрисе Ванессе дель Рио
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25550.jpg" width=350 height=469>David Vincent </STRONG><EM>(на фото)</EM>,&nbsp;басист и вокалист группы <STRONG>MORBID ANGEL</STRONG>, снимается в полнометражной картине с длинным названием&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, рассказывающей захватывающую историю жизни легендарной актрисы фильмов для взрослых Ванессы дель Рио (<STRONG>Vanessa del Rio</STRONG>). Участие в этом фильме станет кинодебютом для Винсента.</P>
+<P>Лидер <STRONG>SOULFLY</STRONG>, <STRONG>Max Cavalera</STRONG>, работает над музыкой к киноленте, тогда как <STRONG>Glenn Danzig</STRONG> согласился сняться в ней в роли жестокого бандита.</P>
+<P>Режиссёром и сценаристом фильма выступил <STRONG>Thomas Mignone</STRONG>, больше всего известный&nbsp;по своей предыдущей картине <STRONG>"On The Doll"</STRONG>,&nbsp;а также за создание&nbsp;музыкальных клипов, получивших различные награды.&nbsp;</P>
+<P>Главный актёр сереала <STRONG>"The Walking Dead"</STRONG>, Майкл Рукер (<STRONG>Michael Rooker</STRONG>),&nbsp;описал картину&nbsp;&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, как фильм <STRONG>"Ночи В Стиле Буги"</STRONG> ("Boogie Nights") встречается с<STRONG> </STRONG>фильмом <STRONG>"Таксист"</STRONG> ("Taxi Driver").</P>
+Автор: Headcrusher
+
+### 05.08.2016 news MORBID ANGEL подписались на UDR
+
+<p><strong>MORBID ANGEL</strong> заключили сделку с <strong>UDR Music</strong>. В настоящее время в группе числятся два человека - основатель коллектива <strong>Trey Azagthoth</strong> и вернувшийся вокалист/басист <strong>Steve Tucker</strong>.</p><p>Два музыканта планируют записать девятый альбом и выпустить его в 2017 году.</p><p><center><img width="500" height="374" src="/images/news_rus/2016.08/29739.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 05.08.2016 news MORBID ANGEL Signs with UDR Music
+
+<p>Tampa, Florida-based death metal legends <strong>MORBID ANGEL</strong> are proud and excited to announce they have signed with<strong> UDR Music</strong> for all territories exclusively outside Japan. Featuring founding member and venerated guitar legend <strong>Trey Azagthoth</strong>, plus returning long-time member bassist/vocalist <strong>Steve Tucker</strong>, MORBID ANGEL are delighted to be back working with people who know metal music and will ensure the band reaffirms their status as the world's greatest death metal band.</p><p><em>"We are extremely excited to be in this partnership with UDR," says Steve Tucker. "We are looking forward to making a great album and destroying the stage at many shows. UDR is a great label that supports the bands that they believe in, and we are proud to be one of those bands! Looking forward to a successful partnership!"</em></p><p>Formed in Charlotte, North Carolina in 1984, Trey Azagthoth played with several line-ups before joining up with David Vincent and Pete Sandoval from grindcore specialists Terrorizer, as well as Richard Brunelle.&nbsp; It was this line-up that recorded and released the first MORBID ANGEL album in 1989, Altars Of Madness, which is widely recognized as a masterpiece and one of the major cornerstones of death metal music. Their intricate yet incredibly heavy music, featuring Azagthoth's supremely technical yet ferociously feral guitar work, has seen MORBID ANGEL become one of the top selling death metal bands in the world.</p><p>While there are no specific details at this moment, Azagthoth and Tucker both look forward to writing and recording MORBID ANGEL's ninth studio album, to be released sometime in 2017, and to taking the band back out on tour.</p><p>Striking a consistent chord of dark, dissonant death-metal empathy with their loyal fanbase, and with the world in its current state, this is the perfect time for MORBID ANGEL to ascend once more.</p><p><center><img width="500" height="374" src="/images/news_rus/2016.08/29739.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 15.06.2017 articles I AM MORBID, Москва, &quot;Volta&quot;, 26.05.2017
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2017.06/30564.jpg" width=300 height=424>Когда только появились новости о создании проекта I Am Morbid под предводительством уже бывшего фронтмена Morbid Angel Дэвида Винсента и драммера позднего морбидовского состава Тима Юнга (а также Divine Heresy, Hate Eternal, Decrepit Birth и ряд других) и о его приезде в Москву, то стало ясно, что это отличный шанс увидеть и самого «беглеца», и услышать живьём песни, мечтать о которых приходится уже давно в связи с тем, что (бывшую) «основную» группу никто ещё не привозил и едва ли рискнёт привезти в ближайшем будущем. Конечно же, встаёт вопрос о правах на эти композиции, ведь гитарист Morbid Angel Trey Azagthoth явно является как минимум соавтором всего нынешнего сетлиста новорожденного проекта I Am Morbid… Но оставим творческие и финансовые разборки в стороне и насладимся же шансом лицезреть живую легенду классического death metal!</P>
+<P>К сожалению, сразу отмечу, что мой восторг по поводу этого примечательного музыкального события разделили далеко не многие – в новом зале клуба Volta пришло едва ли больше трёхсот человек… Сказалась ли относительная спонтанность анонса, недостаточная реклама или какие-то другие факторы – судить не берусь, но всё-таки я ожидал увидеть гораздо больше народу. Конечно, если бы музыканты приехали под брэндом Morbid Angel, уверен, публика была бы более многочисленна, но всё-таки заранее было известно не только об участии в I Am Morbid Дэвида и Тима, но и о сетлисте, который включал в себя песни с первых четырёх классических альбомов MA, плюс песню с последнего альбома, давшую название проекту (естественно, авторства Винсента), а это должно было подогреть интерес, но увы… </P>
+<P>Начала группа позже заявленного времени минут на 50 – около 20.50 и сет продлился чуть менее полутора часов. Никаких разогревов, после интро Omni Potens с последнего студийника Morbid Angel «Illud Divinum Insanus» 2011-го года группа сразу перенеслась к их первому релизу «Аltars Of Madness» 89-го года, с которого они исполнили «Immortal Rites» - пожалуй, единственную неплохую на мой вкус композицию. Далее же публику ждал супер-убойный набор трэков с первых четырёх альбомов, в рамках которого были сыграны абсолютно все знаковые песни классического периода (за исключением, пожалуй, Lion’s Den). Это, конечно, то, ради чего и стоило посетить концерт – почувствовать живую энергетику дэт-металлической «нетленки», которая с годами кажется всё более изысканной и оригинальной – ведь, по сути, в последние десятилетия музыку такого стиля и уровня уже не пишут. Да, много отличных модерново-дэтовых групп, но прелесть музыки Morbid Angel в её аутентичности и оригинальности, которыми обладали все культовые экстремальные группы, образовавшиеся в 80-х.</P>
+<P>Звук нового зала я бы оценил как нейтральный – у него были и свои плюсы, и минусы, как и у концерта вообще. Хорошо выведенный вокал Дэвида и драм-секция в целом немного «топила» гитары и идеальной звуковой картины достигнуто не было, хотя все детали можно было расслышать, поэтому претензий лично у меня по этому пункту нет. Самым, конечно, главным минусом была малочисленность публики – это не позволило создать в зале адекватный уровень отдачи, хотя, немного раскачавшись, все присутствующие стали поддерживать группу довольно неплохо, что в итоге оценил и сам фронтмен. В целом группа выглядела неплохо, но не идеально – оба достаточно опытных в тяжмет-кругах гитариста Bill Hudson и Ira Black во всю старались выглядеть достойными участия в «звёздном» коллективе и показали себя настоящими профи (а разве можно сыграть соло Трэя более сумбурно, чем он?), порадовав даже довольно неплохой гитарной дуэлью. Но яркой харизмой они всё-таки не обладают, как ни крути, а состав сформировался недавно и ему ещё нужно время, чтобы стать настоящей группой…</P>
+<P>Сам же «шеф» Дэвид Винсент выглядел гордо и солидно – отрастивший усы с бородой и убравший свои крашеные длинные чёрные волосы в хвост, фронтмен одним своим присутствием демонстрировал свои лидерские амбиции. Хотя он не был архи-подвижен, да и не отдавал себя на все сто в плане вокала, но тембр его голоса остался столь же узнаваемым, оригинальным, а поэтому и воспринимался на ура. Лишь иногда между песнями, обращаясь к публике, он посетовал по поводу того, что всем пришлось ждать его приезда в Россию аж 35 лет, но под конец Дэвид выглядел довольным происходящим в зале, за исключением момента, когда неоднократно неаккуратно вылезающий на сцену фэн в очередной раз чуть не сбил микрофонную стойку – тут он лично столкнул его обратно в зал, выразив явное недовольство. Попрощался с публикой он тоже сухо – скромный «good night» – и уход со сцены, без каких-либо последующих бисов, к которым мы уже так привыкли. Вышел ли он позже в зал? Не могу сказать, так как сам минут через 10 поспешил домой писать этот отчёт, как говорится, «по горячим следам».</P>
+<P>В общем, если фронтмен хоть и порадовал, но бурного восторга не произвёл, то, как ни странно, так называемым «гвоздём программы» для меня стал… барабанщик Тим Юнг по кличке «Мистер Бластбит»! Если резюмировать, то его выступление я бы назвал лучшим экстрим-драм-перфомансом, которое я видел лично! Помимо филигранной техники, которую он и продемонстрировал уже не раз в ряде проектов, включая последний релиз Morbid Angel, он проявил себя на концерте как чумовейший шоумен, взгляд от которого я не мог оторвать весь сет I Am Morbid! Помимо скоростных бластбитов и ураганного дабл-баса, который принёс ему победу в конкурсе «Самый быстрый барабанщик» в 2006-м году, он постоянно тряс своим длинным хаером, а когда обе руки не были заняты, он то и дело прикладывал одну из них к виску или даже крутил ей палку, как сказал классик, «не отходя от кассы», что смотрелось весьма эффектно! Вишенкой на торте было бы, конечно, барабанное соло, но увы, такого подарка нам в этот раз никто не приготовил.</P>
+<P>Суммируя вышесказанное, скажу, что концерт удался! Конечно же, в первую очередь благодаря музыке. Ведь услышать хотя бы раз в жизни живьём Day of Suffering, Fall from Grace, Rapture, Pain Divine, Dominate, Where the Slime Live, Dawn Of The Angry – это просто необходимо любому фанату олдскульного дэта флоридской школы! Дэвид Винсент всё равно остаётся культовой фигурой – в рамках Morbid Angel или вне их, и его желание рубить дэтуху дальше (а не только индастриал и кантри, как в других побочных проектах) вызывает уважение. К тому же, логичным продолжением концертной деятельности I Am Morbid станет и студийная работа, ведь новая песня Винсента, озаглавившая данный проект, явно говорит в пользу его композиторской состоятельности. Ну и сами Morbid Angel не растерялись – Трэй вернул Стива Такера, ставшего в своё время неплохой заменой Дэйву и уже выступает в новом составе, в чём можно убедиться на видосах в youtube и сравнить две группы. Так или иначе, в выигрыше только мы, преданные фанаты, поддержка которых так важна музыкальному коллективу любого уровня в столь непростые времена…</P>
+<P>Текст: <EM>Дмитрий Dimebag Дасов</EM></P>
+<P>Фотографии: <A href="/ru/galleries/1/1862/">http://musica.mustdie.ru/ru/galleries/1/1862/</A></P>
+<P>Сетлист:</P>
+<P>00. Omni Potens (intro)<BR>01. Immortal Rites<BR>02. Fall from Grace<BR>03. Visions from the Dark Side<BR>04. Blessed Are the Sick<BR>05. Day of Suffering<BR>06. Rapture<BR>07. Pain Divine<BR>08. Sworn to the Black<BR>09. Eyes to See, Ears to Hear<BR>10. I Am Morbid<BR>11. Maze of Torment<BR>12. Guitar Duel (Bill Hudson & Ira Black)<BR>13. Dominate<BR>14. Where the Slime Live<BR>15. Dawn of the Angry<BR>16. Blood on My Hands<BR>17. God of Emptiness<BR>18. World of Shit (The Promised Land)</P>
+Автор: Headcrusher
+
+### 07.07.2017 news David Vincent (ex-MORBID ANGEL) представляет свой проект в стиле country
+
+<P><STRONG>David Vincent</STRONG>, бывший фронтмэн флоридской легенды <STRONG>MORBID ANGEL</STRONG>, опубликовал клип своего проекта в стиле country. Помимо этого, <STRONG>David</STRONG> заменил, ушедшего в&nbsp;мир иной, <STRONG>Lemmy</STRONG> в группе <STRONG>HEAD CAT</STRONG>. Данный ансамбль славен переработкой песен&nbsp;американских исполнителей в стиль&nbsp;рокабилли. И помимо <STRONG>Д. Винсента</STRONG> в него входят <STRONG>Slim Jim Phantom</STRONG> - барабаны (<STRONG>STRAY CATS</STRONG>) и <STRONG>Danny B. Harvey</STRONG> - гитара.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/tQysB8XLtGg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.08.2017 news David Vincent поёт country
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший (в очередной раз) вокалист<STRONG> MORBID ANGEL</STRONG>, представил ещё одно видео своего проекта в стиле country. На этот раз на <STRONG>"Buyer Beware"</STRONG>, вторую песню со своего </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>7" винила. Автор ролика:&nbsp;<STRONG>Joshua Allan Vargas</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Купить винил: <A href="http://davidvincent.bigcartel.com/product/drinkin-with-the-devil-7-vinyl">http://davidvincent.bigcartel.com/product/drinkin-with-the-devil-7-vinyl</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В состав группы входят: <STRONG>David</STRONG> <STRONG>Vincent</STRONG> (вокал и&nbsp;гитара), <STRONG>Danny B. Harvey</STRONG> (гитара), <STRONG>Chris Barnes</STRONG> (контрабас) и<STRONG> Tom Lewis</STRONG> (барабаны).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Да! Клип можно посмотреть по ссылке: <A href="http://youtu.be/l50vyeo2w5o">http://youtu.be/l50vyeo2w5o</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.08/30725.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Morbid Angel 2000 сколько + кто поставит ?!

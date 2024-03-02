@@ -8,6 +8,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.06.2012 news Американцы NORMA JEAN дадут два эксклюзивных концерта в столицах России и Украины этим летом.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24223.jpg" width=400 height=564>Многие еще помнят отличное московское шоу этих парней из Атланты в марте 2012. На радость поклонникам у группы появилась скорая возможность повторить этот праздник.</P>
+<P>В Киеве же состоится первое в истории шоу группы на территории Украины. Лето - не только пора отпусков, но и жарких мощных концертов.</P>
+<P>Киев - 07.08.2012 - <A href="http://vk.com/normajeankiev">http://vk.com/normajeankiev</A><BR>Москва - 08.08.2012 - <A href="http://vk.com/normajean_msk">http://vk.com/normajean_msk</A></P>
+<P><STRONG>NORMA JEAN</STRONG> - Live in Plan B - 27.03.2012<BR><A href="http://youtu.be/9yriBi1uyY4">http://youtu.be/9yriBi1uyY4</A></P>
+Автор: Headcrusher
+
+### 04.10.2016 news NORMA JEAN выступили в Москве (фото)
+
+<p>Концерт американской metalcore команды<strong> NORMA JEAN</strong> состоялся 30 сентября в клубе <strong>Volta</strong> в Москве. По этой ссылке вы можете посмотреть фотоотчёт с этого события авторства <strong>Катерины Гучок</strong>: <a href="/ru/galleries/1/1795/">http://musica.mustdie.ru/ru/galleries/1/1795/</a></p><p>&nbsp;<center><img width="600" height="401" src="/images/news_rus/2016.10/30037.jpg" border="0"></p><p>&nbsp;</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

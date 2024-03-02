@@ -55,6 +55,98 @@ Moment Of Truth
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.03.1999 news 
+
+<p>S.O.D. закончили запись нового альбома "Bigger than the Devil". Релиз намечен на 18 мая.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>SOD вернулись из своего первого Европейского турне, которое закончилось 4 июля в Лондоне.</p>
+
+Автор: Vit Belov
+
+### 19.09.2000 news Новое видео S.O.D.
+
+<p> Новое видео S.O.D. выйдет в октябре на Nuclear Blast. Это будет документальный фильм, снятый во время турне группы в 1999-2000 гг.</p>
+
+Автор: Nybras
+
+### 19.09.2000 news New S.O.D. video documentary coming in October
+
+<p> The S.O.D. movie, which is a documentary of the 1999-2000 tour, is scheduled for release in October on VHS/DVD from Nuclear Blast. It brings concert footage cut in with interviews, behind the scenes and stuff that's completely bizarre like Twiggy Ramirez reciting Martian dialogue then shooting himself.</p>
+
+Автор: Nybras
+
+### 23.03.2001 reviews Настоящий ли ты металлист?
+
+<p>S.O.D.- проверка на вшивость для каждого металлиста: настоящий ли ты металлист? Диск полон юмора на английском языке и музыкальных приколов в виде пародий на чужие произведения. Попробуй узнай и пойми. Не смог - значит, и с металлом как жанром знаком слабо…. Такой вот экзамен. А если без всего этого - классический хардкор (и вовсе не то, что хардкором называют сейчас в лице BioHazard и Korn). Скорость и еще раз скорость, очень редкие замедления, частые смены темпов. Альбом только для металлистов. Хотя если поклонникам Нирваны или АЭРОСМИТ стало скучно, послушайте - впечатлений хватит надолго! Рекомендуется тем, кто по достоинству оценил альбом Slayer "Undisputed Attitude" 1996 года и фанатам Exploited - хотя в целом альбом поскучнее и первого, и второго.</p>
+
+Автор: Tornado
+
+### 25.01.2002 news Трэш-маньяки на острие атаки!!!
+
+<p>Небезизвестный Dan Lilker намерен собрать в оригинальном составе легендарных трэшеров NUCLEAR ASSAULT, чьё существование было пренесено в жертву BRUTAL TRUTH. Пока речь идёт о нескольких выступлениях на летних фестивалях, а там уж чем чёрт не шутит...</p>
+
+Автор: Odiumaniac
+
+### 17.05.2002 news WIN FREE MUSIC!!!
+
+<P>WIN FREE MUSIC!!! </P></>
+<P> </P></>
+<P>Spitfire Records and Metal Maniacs presents: </P></>
+<P> </P></>
+<P>..the compilation featuring Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) and MORE. 15 bands, one CD and all you need to do to snag a copy is answer some simple metal trivia questions (below). </P></>
+<P> </P></>
+<P>RULES: Answer the questions. Win the goods. It's THAT simple. ALL ENTRIES MUST BE SENT TO: maniacsmail@yahoo.com or maniacsmail@metalmaniacs.com </P></>
+<P>(any entries sent to this address will not be accepted) </P></>
+<P>or snail mailed to: </P></>
+<P> </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Include your full name, address, phone # and e-mail. All entries must be in by Monday, June 10th. </P></>
+<P> </P></>
+<P>1. Which drummer played on the Megadeth track “Peace Sells”? </P></>
+<P>2. What does Deicide’s Glen Benton have burned into his forehead? </P></>
+<P>3. Crowbar’s Kirk Windstein also performs with which New Orleans supergroup? </P></>
+<P>4. The new Pissing Razors album is called ‘Where We Come From’. Where DO they come from? </P></>
+<P>5. Chris Barnes of Six Feet Under is previously of what band? </P></>
+<P>6. Which South Carolina band opened for Cradle Of Filth on their 2001 North American tour? </P></>
+<P>7. Name five bands Danny Lilker has played in. </P></>
+<P>8. What legendary NYHC band was fronted by Pro Pain’s Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 17.05.2002 news Играйте и выигрывайте!!!
+
+<P>Дорогие маздайцы! Вы можете принять участие в конкурсе проводимом лэйблом Spitfire Records и журналом Metal Maniacs. Если вы правильно ответите на приведенные ниже вопросы то станете обладателем одного из сборника "DERANGED" с участием Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) и др. (всего 15 групп). </P></>
+<P> </P></>
+<P>Все ответы (написанные хорошим английским языком) должны быть посланы на e-mail: maniacsmail@yahoo.com или maniacsmail@metalmaniacs.com </P></>
+<P> </P></>
+<P>Также вы можете послать их по почте: </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Незабудьте вписать свое имя, почтовый адрес, телефон и e-mail. Крайний срок приема ответов - 10-е июня. </P></>
+<P> </P></>
+<P>Вопросы: </P></>
+<P> </P></>
+<P>1. Какой барабанщик играл в треке Megadeth - “Peace Sells”? </P></>
+<P>2. Что любит поджигать Deicide’овский Glen Benton у себя на лбу? </P></>
+<P>3. В какой Нью-Орлеанской супергруппе играет Kirk Windstein из Crowbar? </P></>
+<P>4. Новый альбом Pissing Razors называется ‘Where We Come From’. Так откуда именно они пришли? </P></>
+<P>5. В какой команде раньше участвовал Chris Barnes из Six Feet Under? </P></>
+<P>6. Какая команда из Южной Каролины разогревала Cradle Of Filth в их Северо-американском туре 2001 года? </P></>
+<P>7. Перечислите пять групп в которых играл Danny Lilker? </P></>
+<P>8. В какой легендарной Нью-Йоркской команде выступал фронтмен Pro Pain - Gary Meskil? </P></>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Распознайте песню

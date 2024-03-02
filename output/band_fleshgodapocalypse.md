@@ -82,6 +82,59 @@ Produced, mixed and mastered by at 16th Cellar Studio.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.06.2011 news Обложка второго альбома FLESHGOD APOCALYPSE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Второй альбом итальянской brutal sympho-death-metal группы <STRONG>FLESHGOD APOCALYPSE "Agony" </STRONG>выйдет 9 августа на <STRONG>Nuclear Blast</STRONG>. Обложку для этого альбома создал постоянный художник коллектива <STRONG>Marco Hasmann. </STRONG>По словам группы, за этим кавером скрывается постоянная печаль человечества, заключающаяся в том, что каждому приходиться жить, заглядывая в лицо собственной тёмной стороне. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебют необычной итальянской команды <STRONG>"Oracles" </STRONG>вышел в марте 2009 года на<STRONG> Candlelight</STRONG>. В активе коллектива уже есть тур по США в компании <STRONG>SUFFOCATION</STRONG> и <STRONG>THE FACELESS</STRONG>, а 7 апреля 2010 года <STRONG>FLESHGOD APOCALYPSE </STRONG>выступили в Москве в <STRONG>клубе Х.О.</STRONG> Фото с этого выступления можно посмотреть на нашем сайте: <A href="/ru/galleries/1/477/">http://musica.mustdie.ru/ru/galleries/1/477/</A></FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=471 src="/images/news_rus/2011.06/19717.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 19.07.2011 news Новое видео FLESHGOD APOCALYPSE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видео-клип итальянцев <STRONG>FLESHGOD APOCALYPSE </STRONG>на песню <STRONG>"The Violation" </STRONG>можно посмотреть ниже. Трек взят с второго альбома группы <STRONG>"Agony"</STRONG>, который выйдет на <STRONG>Nuclear Blast</STRONG> 9 августа. Трек-лист:</FONT></P>
+<P>01. <B>Temptation</B><BR>02. <B>The Hypocrisy</B><BR>03. <B>The Imposition</B><BR>04. <B>The Deceit</B><BR>05. <B>The Violation</B><BR>06. <B>The Egoism</B><BR>07. <B>The Betrayal</B><BR>08. <B>The Forsaking</B><BR>09. <B>The Oppression</B><BR>10. <B>Agony</B><BR>11. <B>Heartwork</B> (CARCASS cover; iTunes exclusive bonus track)</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9RyelLaHvQw?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/9RyelLaHvQw?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.09.2011 reviews Симфонизм в лучшем виде
+
+<P>Молодая итальянская группа FLESHGOD APOCALYPSE – одна из немногих на Nuclear Blast, чьё творчество можно считать новаторским и интересным. Безусловно, интересы гигантского лэйбла вряд ли могут совмещаться с поддержкой новаторских проектов, слишком это рискованно. Но новаторство обозреваемой группы из той области, которая может позволить совершить прорыв.</P>
+<P>Использование симфонического оркестра в тяжёлой музыке само по себе не является такой уж новацией. Можно вспомнить THERION, RHAPSODY или RAGE. Некоторое время назад «симфонии» заменяли партии клавишных, делая их более помпезными и эпичными. В настоящее время реализация на плёнке оркестра или замена его с помощью синтезатора уже не являются столь хлопотным делом. Стали появляться группы, использующие этот очень притягательный компонент очень широко. FLESHGOD APOCALPSE из таких. Их новый альбом “Agony” в этом плане можно сравнить с новыми работами DIMMU BORGIR и SEPTIC FLESH. К сожалению, не у каждого коллектива получается вплести «классику» в свою тяжёлую музыку органично. SEPTIC FLESH, как мне кажется, это удалось, а DIMMU BORGIR не очень. “Agony” – звучит очень интересно. Оркестровые запилы сменяются жёстким death-black, затем вступает чистый высокий вокал, а завершается круг атмосферными проигрышами. Слушать альбом очень интересно, но чисто субъективно музыка FA не захватывает. Альбом звучит очень привлекательно, но самой музыке чего-то не хватает.</P>
+<P>Пластинка, которую нужно слушать. Разносторонняя, интересная, великолепно реализованная. Она обладает всеми качествами очень хорошего альбома. А уж своё к ней отношение вы определите самостоятельно.</P>
+Автор: Vit Belov
+
+### 09.12.2013 news FLESHGOD APOCALYPSE: брутальные макароны
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянские брутальщики <STRONG>FLESHGOD APOCALYPSE</STRONG> решили не следовать модному тренду&nbsp;среди групп&nbsp;в выпуске алкогольных напитков, а запустили в продажу свои собственные макароны. Аж четырёх видов! </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказать эти&nbsp;макаронные изделия можно на официальном сайте группы: <A href="http://www.fleshgodapocalypse.com/pasta.html">www.fleshgodapocalypse.com/pasta.html</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.12/26404.jpg" width=539 height=495> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 06.02.2014 news FLESHGOD APOCALYPSE: клип на трек &quot;Pathfinder&quot;
+
+<P>Итальянские брутальщики и спагетти-магнаты <STRONG>FLESHGOD APOCALYPSE</STRONG>, выпустили клип на трек <STRONG>"Pathfinder"</STRONG>. Посмотреть его можно ниже. Эта песня вошла на альбом <STRONG>"Labyrinth"</STRONG>, выпущенный лейблом <STRONG>Nuclear Blast</STRONG> в августе 2013 года.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/cAyR_wS1kxY?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 17.08.2016 news Фоторепортаж с выступления FLESHGOD APOCALYPSE на Hellfest
+
+<p>Фото с выступления symphonic death metal группы <strong>FLESHGOD APOCALYPSE</strong> на фестивале <strong>Hellfest </strong>во Франции можно посмотреть <a href="/ru/galleries/1/1776/">в нашей галерее.</a></p><p>Автор: <strong>Екатерина Гучок</strong>.</p><p><center><img width="600" height="401" src="/images/news_rus/2016.08/29818.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 17.08.2016 news FLESHGOD APOCALYPSE on Hellfest (photo)
+
+<p>Photos from the performance of symphonic death metal band <strong>FLESHGOD APOCALYPSE</strong> at the <strong>Hellfest</strong> in France can be viewed in <a href="/en/galleries/1/1776/">our gallery</a>.</p><p>Author: <strong>Ekaterina Guchok</strong>.</p><p><center><img width="600" height="401" src="/images/news_rus/2016.08/29818.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Fleshgod Apocalypse (Италия) + Hate (Польша): Москва, 21 мая 2016

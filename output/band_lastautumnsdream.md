@@ -45,6 +45,37 @@ Mic Michaeli (keyboards)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2004 reviews Осенняя грусть по-шведски.
+
+<P>Очередная супер-группа, нашедшая себе пристанище на Frontiers, лидером и идейным вдохновителем которой является достаточно раскрученный вокалист с приятным мягким голосом Mikael Erlandsson, проживающий в Швеции. За его плечами уже четыре успешных сольных альбома, "The 1", который продюсировал известный по работе с Roxettе Mats "MP" Persson, "Under The Sun", получившего в журнале “Burrn!” «лучший релиз 1996 года», "Unfamiliar" и “The Gift", успешно продававшиеся по всему миру. Японская компания-дистрибьютер предлагает Микаэлю удачную идею объединиться с бывшим гитаристом "Fair Warning" Andy Malecek’ом, оказавшимся без дела. Столь блестящий и потенциально прибыльный дуэт не остался незамеченным, и, по совету XTCProduction, в студии появились трое бывших участников Europe: Ian Haugland, Mic Michaeli&nbsp;и John Lev&#233;n. Прослушав материал, который Микаэль и Энди собирались записать, «европейцы» приняли предложение, и появилась группа со странным для мелодичного рока названием «Last Autumn Dream». Хотя… с другой стороны, музыка действительно соответствует названию. Грустные, но одновременно светлые песни. «Раннеосенние» какие-то. Либо среднетемповые, либо симпатичные медлячки, из которых можно выделить, хотя и с натягом, “Going Home”. Ровненький материал, без явных прорывов, с многочисленными гитарными соло. В качестве фоновой музыки очень хорош.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+### 28.11.2004 news Новый альбом LAST AUTUMN&#39;s DREAM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом AOR банды <STRONG>LAST AUTUMN's DREAM</STRONG> выходит на<STRONG> Frontiers</STRONG> 24 января. Пластинка будет называться просто '<STRONG>II</STRONG>'. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=299 alt="" hspace=0 src="/images/news_rus/2004.11/7430.jpg" width=300 align=right border=5>1. <STRONG>Brand New Life</STRONG><BR>2. <STRONG>Lost In You</STRONG><BR>3. <STRONG>Heat Of Emotion</STRONG><BR>4. <STRONG>So Much Love In The World</STRONG><BR>5. <STRONG>Helpless<BR></STRONG>6. <STRONG>This Gotta Be Love</STRONG><BR>7. <STRONG>Up In Paradise</STRONG><BR>8. <STRONG>Over And Out<BR></STRONG>9. <STRONG>(Always Be) You And I<BR></STRONG>10. <STRONG>Running<BR></STRONG>11. <STRONG>Round And Round</STRONG><BR>12. <STRONG>Keep Falling</STRONG><BR>13. <STRONG>A Place to Hide In Town</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 28.11.2004 news LAST AUTUMN&#39;s DREAM new album
+
+<P><STRONG>Frontiers Records</STRONG> announce the release of AOR band&nbsp;<STRONG>LAST AUTUMN’S DREAM</STRONG> new cd simply entitled “<STRONG>II</STRONG>” on January 24th 2005. Track-list:</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=299 alt="" hspace=0 src="/images/news/2004.11/7431.jpg" width=300 align=right border=5>1. <STRONG>Brand New Life</STRONG><BR>2. <STRONG>Lost In You</STRONG><BR>3. <STRONG>Heat Of Emotion</STRONG><BR>4. <STRONG>So Much Love In The World</STRONG><BR>5. </FONT><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>Helpless<BR></STRONG>6. <STRONG>This Gotta Be Love</STRONG><BR>7. <STRONG>Up In Paradise</STRONG><BR>8. </FONT></FONT><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>Over And Out<BR></STRONG>9. </FONT></FONT><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>(Always Be) You And I<BR></STRONG>10. </FONT></FONT><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>Running<BR></STRONG>11. <STRONG>Round And Round</STRONG><BR>12. <STRONG>Keep Falling</STRONG><BR>13. <STRONG>A Place to Hide In Town</STRONG></FONT></FONT></P>
+Автор: Vit Belov
+
+### 20.03.2005 reviews Вот и прошла шведская грусть
+
+<P>Большие изменения в группе “Last Autumn’s Dream” за год, прошедший с выхода дебютного альбома. Главное событие – реюньон легендарного коллектива “Europe”.</P>
+<P>Благодаря этому событию LAD лишился ритм-секции. Но за спинами Микаэля Эрландсона и Энди Малесека стоят серьезные люди с деньгами. И, немаловажно, со своими студиями и идеями. Хорошо, если у музыкантов есть такая поддержка. Можно спокойно заниматься творчеством, писать песни, а если не получается – продюсеры всегда помогут, сами песни эти напишут, а дело музыкантов тогда их грамотно спеть-сыграть. А потом получить причитающиеся деньги. </P>
+<P>Вакантное место пусто было не долго, и скоро были найдены опять таки слаженные годами профи. Ритм-секция группы “Talisman”. Marcel Jacob и Jamie Borger. И в помощь им – клавишник “Crystal Blue” – Thomas Lassar.Он, кстати, автор одной из лучших песен на диске – “Helpless”. Его песни вообще легко узнавать, по ярким клавишным вступлениям. Надо отметить, что “II” гораздо более внятный диск. Первый был просто мелодичный и эмбиентный, в мелодик-роковом смысле этого слова. В одно ухо влетел, в другое вылетел. А тут – куча хитов. Это второе, тоже немаловажное изменение. Третье - прошло тоскливое дождливое настроение у музыкантов. И песни сразу стали повеселее.&nbsp;</P>
+<P>А в остальном, все по-прежнему. Мягкий вокал, множество гитарных соло, музыка - легкий радио-рок. </P>
+<P>Отличный альбом. Ждем “III”. И очередного изменения ритм-секции. Интересная ж традиция складывается!</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Дофф
+
+
 ## Обсуждения
 
 

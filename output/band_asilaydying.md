@@ -137,6 +137,118 @@ Artwork by Converge vocalist Jacob Bannon
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 31.01.2009 news AS I LAY DYING назвали DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тройное DVD <STRONG>AS I LAY DYING</STRONG>, выходящее 14 апреля на <STRONG>Metal Blade</STRONG>, будет называться <STRONG>"This Is Who We Are". </STRONG>На издание попали всевозможные съёмки о <STRONG>AS I LAY DYING,</STRONG> начиная концертными кадрами и заканчивая интервью и видео.</FONT></P>
+Автор: Vit Belov
+
+### 27.02.2009 news AS I LAY DYING готовят DVD
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.02/13684.jpg" width=295 align=right border=5>AS I LAY DYING</STRONG> выпустят тройное DVD <STRONG>"This Is Who We Are", </STRONG>снятое <STRONG>Denise Korycki</STRONG> (<B itxtvisited="1">CANNIBAL CORPSE</B>'s <B itxtvisited="1">"Centuries of Torment"</B> DVD). Трэк-лист:</P>
+<P>Disc 1 - Main Documentary (approx. two hours)</P>
+<P>Disc #2 - LIVE performances (with the current lineup)</P>
+<P>Disc #3 - videos, tour stories etc.</P>
+Автор: Vit Belov
+
+### 02.05.2009 news Новое видео AS I LAY DYING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>AS I LAY DYING</STRONG> на песню <STRONG>"I Never Wanted" </STRONG>доступно ниже.</FONT></P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:378106 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D378106%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A378106%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A378106" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/as_i_lay_dying/artist.jhtml" target=_blank>As I Lay Dying</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.11.2009 news AS I LAY DYING записывают альбом
+
+<P>Фронтмэн<STRONG> AS I LAY DYING&nbsp;Tim Lambesis</STRONG>&nbsp;рассказал о процессе записи нового альбома группы. В настоящее время коллектив находится в студии, где с продюсерами<STRONG> Adam D</STRONG>&nbsp;и <STRONG>Daniel Castleman</STRONG> записывает новую пластинку. Уже готовы барабанные партии для восьми трэков, но группа будет сочинять больше, так как эти восемь трэков не такие длинные, как "на Master Of Puppets". </P>
+<P>Работа продолжится с небольшим перерывом на концерты группы в Мексике и Шри-Ланке.</P>
+Автор: Vit Belov
+
+### 02.02.2010 news AS I LAY DYING назвали альбом
+
+<P>Новый альбом <STRONG>AS I LAY DYING</STRONG>, выходящий в марте на<STRONG> Metal Blade</STRONG>, будет называться <STRONG>"The Powerless Rise". </STRONG>Группа заканчивает процесс записи вместе с продюсером <STRONG>Adam D.</STRONG> (<B>KILLSWITCH ENGAGE</B>).</P>
+Автор: Vit Belov
+
+### 08.05.2010 news Новый альбом AS I LAY DYING на MySpace
+
+<P>Новый альбом<STRONG> AS I LAY DYING</STRONG> <STRONG>"The Powerless Rise" </STRONG>можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/asilaydying">http://www.myspace.com/asilaydying</A></P>
+<P>Прослушивание закончится в понедельник.</P>
+Автор: Vit Belov
+
+### 20.05.2010 news AS I LAY DYING попали в десятку!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> AS I LAY DYING</STRONG> <STRONG>"The Powerless Rise" </STRONG>попал в Top 10 чартов<STRONG> Billboard</STRONG>! Пластинка дебютировала на 10-ом месте с 38000 проданных записей. Альбом вышел 11 мая на <STRONG>Metal Blade</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущий релиз коллектива <STRONG>"An Ocean Between Us" </STRONG>дебютировал на восьмом месте в 2007 году - тогда было продано 39500 альбомов. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Изданием<STRONG> AS I LAY DYING</STRONG> на территории России занимается <STRONG>Фоно</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 15.06.2010 news Новое видео AS I LAY DYING
+
+<P>Новый клип <STRONG>AS I LAY DYING</STRONG> на песню <STRONG>"Parallels" </STRONG>можно посмотреть ниже. Ролик был снят режисёром <STRONG>David Brodsky</STRONG> (<B>WHITECHAPEL</B>, <B>IN THIS MOMENT</B>). Песня попала на новый альбом группы <STRONG>"The Powerless Rise",</STRONG> который попал в десятку чарта <STRONG>Billboard.</STRONG> </P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/nLd6h5td8G4&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/nLd6h5td8G4&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.01.2011 news Видео-клип AS I LAY DYING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип<STRONG> AS I LAY DYING</STRONG> на песню <STRONG>"Anodyne Sea" </STRONG>можно посмотреть ниже. Ролик был снят режиссёрами <STRONG>Mike Pecci </STRONG>и <STRONG>Ian McFarland (</STRONG><B>FEAR FACTORY, </B><B>MESHUGGAH). </B></FONT></P>
+<P>
+<CENTER>
+<OBJECT id=gorillaPlayer_cr003 height=368 width=400 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="swliveconnect" VALUE="true"><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always"><PARAM NAME="movie" VALUE="http://cdn.springboard.gorillanation.com/storage/xplayer/cr003.swf"><PARAM NAME="flashvars" VALUE="e=4bffc0037b3a3a49328d685cccfc7c21cc002973d57a44951a38fddf065f5c696a66be9b89ee2d2f0947d4e15d253124c7d296b9a2a5d695fdd446d15f64f11765e48f3f69f68735f1c9dd0803967dbf383ccf85d3b0fcebe03d34a7&width=400&height=368&pid=cr003&autostart=false&allowscriptaccess=always&usefullscreen=true">
+<embed src="http://cdn.springboard.gorillanation.com/storage/xplayer/cr003.swf" type="application/x-shockwave-flash" name="gorillaPlayer_cr003" width="400" height="368" allowscriptaccess="always" swliveconnect="true" allowfullscreen="true"  flashvars="e=4bffc0037b3a3a49328d685cccfc7c21cc002973d57a44951a38fddf065f5c696a66be9b89ee2d2f0947d4e15d253124c7d296b9a2a5d695fdd446d15f64f11765e48f3f69f68735f1c9dd0803967dbf383ccf85d3b0fcebe03d34a7&width=400&height=368&pid=cr003&autostart=false&allowscriptaccess=always&usefullscreen=true&esnapshot=4bffc0037b3a3a493b90685cccfc7c21cc002973d57a44951a38fddf065f5c696a66be9b89ee2d2f094ccde2702233248cc2bbb9b0b6d895f2d84c9b1869fa1f32b8d76936b6c068b683c709018078a3393d95da84&trueurl=http://www.craveonline.com/entertainment/music/article/exclusive-as-i-lay-dyings-new-video-121327"></embed></P></body></html></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 16.04.2011 news Jamey Jasta выпустит сольный альбом
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19231.jpg" width=213 height=300>26 июля на лейбле <STRONG>eOne Music</STRONG> выходит сольный альбом Джеймса Джаста (<STRONG>Jamey Jasta</STRONG>), вокалиста&nbsp;<STRONG>HATEBREED</STRONG> и <STRONG>KINGDOM OF SORROW</STRONG>.</P>
+<P>На альбоме, получившим скромное название <STRONG>"Jasta"</STRONG>, отметятся следующие гостевые музыканты: <B>Tim Lambesis</B> (<B>AS I LAY DYING</B>),&nbsp;профессиональный скейтер&nbsp;<B>Mike Vallely</B>, <B>Philip Labonte</B> (<B>ALL THAT REMAINS</B>), <B>Randy Blythe</B> и <B>Mark Morton</B> (<B>LAMB OF GOD</B>) и легендарный гитарист&nbsp;<B>Zakk Wylde</B>. <BR></P>
+<P><BR>&nbsp;</P>
+Автор: Headcrusher
+
+### 22.11.2011 news AS I LAY DYING играют JUDAS PRIEST
+
+<P>Новое видео американцев <STRONG>AS I LAY DYING</STRONG> на их кавер-версию песни <STRONG>JUDAS PRIEST "Electric Eye"</STRONG> можно посмотреть ниже. Трек взят с последнего EP коллектива "<STRONG>Decas</STRONG>", который вышел некоторое время назад и был продан в первую неделю тиражом 9500 копий. Это позволило <STRONG>AS I LAY DYING</STRONG> вновь попасть в чарты <STRONG>Billboard</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/zO-kl-CybU4?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/zO-kl-CybU4?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 23.02.2012 news Новое видео AS I LAY DYING
+
+<P>Новый клип <STRONG>AS I LAY DYING "Paralyzed"</STRONG> состоящий из нарезки концертных выступлений прошедшего тура коллектива по США, можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/2yUfgydzdX8?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 02.07.2012 news AS I LAY DYING: обложка альбома &quot;Awakened&quot;
+
+<P>Обложку&nbsp;<B itxtNodeId="61" itxtHarvested="0">"Awakened"</B>, нового альбома <B itxtNodeId="60" itxtHarvested="0">AS I LAY DYING</B>, можно посмотреть ниже. Намеченный к выходу 25 сентября на лейбле <B itxtNodeId="57" itxtHarvested="0">Metal Blade</B>, диск был спродюсирован Биллом Стивенсоном&nbsp;(<B itxtNodeId="56" itxtHarvested="0">Bill Stevenson</B>), который прежде числился барабанщиком <B itxtNodeId="55" itxtHarvested="0">DESCENDENTS</B> и <B itxtNodeId="54" itxtHarvested="0">BLACK FLAG</B>, а также является одним из самых известных продюсером в роке. Его имя можно найти на дисках таких групп, как <B itxtNodeId="53" itxtHarvested="0">RISE AGAINST</B>, <B itxtNodeId="52" itxtHarvested="0">NOFX</B>, <B itxtNodeId="51" itxtHarvested="0">PROPAGANDHI</B>, <B itxtNodeId="50" itxtHarvested="0">THE CASUALTIES</B>, <B itxtNodeId="49" itxtHarvested="0">ANTI-FLAG</B> и многих других. Сведением альбома займётся <B itxtNodeId="48" itxtHarvested="0">Colin Richardson</B> (<B itxtNodeId="47" itxtHarvested="0">MACHINE HEAD</B>, <B itxtNodeId="46" itxtHarvested="0">NAPALM DEATH</B>, <B itxtNodeId="45" itxtHarvested="0">SLIPKNOT</B>).&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.07/24277.jpg" width=473 height=442> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 08.05.2013 news Tim Lambesis (AS I LAY DYING) арестован
+
+<P><STRONG>Tim Lambesis</STRONG> <EM>(на фото ниже)</EM> - вокалист американской группы <STRONG>AS I LAY DYING</STRONG>, был арестован 7 мая&nbsp;полицией города Сан Диего&nbsp;по подозрению в планировании убийства своей жены.</P>
+<P>В заявлении полицейского департамента говорится, что <STRONG>Tim Lambesis</STRONG>, 32 лет от роду, пытался нанять работавшего под прикрытием детектива для убийства собственной жены, с которой музыкант проживает сейчас&nbsp;раздельно. Детали расследования пока&nbsp;держаться в тайне.</P>
+<P><STRONG>Meggan</STRONG>, так зовут жену вокалиста, подала на развод 20 сентября 2012 г.</P>
+<P>Согласно новостям <STRONG>MTV</STRONG>, в своих последних интервью <STRONG>Lambesis</STRONG> говорил, что считает себя христианином и находит вдохновение для написания своей лирики в библейских текстах.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.05/25671.jpg" width=620 height=396> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

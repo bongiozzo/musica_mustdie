@@ -745,6 +745,1296 @@ Disc 2
 * C группой "MD '45 (Dave Mustaine)" Dave Mustain
 * C группой "Exodus" Kirk Hammett (guitar)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>METALLICA выступит в апреле в BERKELEY COMMUNITY THEATRE в Сан-Франциско вместе с симфоническим оркестром. Дирижировать будет Майкл Камен, известный по аналогичной работе с AEROSMITH, Дэвидом Боуи, PINK FLOYD и др. На концерте будут исполнены различные песни со всех альбомов группы: "Fight Fire with Fire, Hero of the Day, Nothing Else Matters, Enter Sandman и многие другие.</p>
+
+Автор: Vit Belov
+
+### 12.02.1999 news 
+
+<p>METALLICA проедется с концертами по Европе в конце весны-начале лета. Некоторые интересные даты концертов: 27 июня - Киев, 29 июня - Таллин. Пока почему-то в списках нет российских городов, будем надеяться, что это временное явление.</p>
+
+Автор: Vit Belov
+
+### 28.02.1999 news 
+
+<p>Голландский Dynamo Open Air Festival будет проходить с 21 по 23 марта. Хедлайнерами на нем станут Metallica и Manowar. За эти 3 дня на сцене побывают более 80 команд.</p>
+
+Автор: Vit Belov
+
+### 05.03.1999 news 
+
+<p>24 февраля в 41-й раз состоялась церемония вручения премий "Грэмми", считающихся одними из самых престижных в мире.Естественно все награды мы перечислять не будем, но скажем, что лучшая песня в стиле метал ? "Better Than You" группы METALLICA. Уже в какой раз Металлеры берут приз Грэмми, не прада ли?</p>
+
+Автор: Vit Belov
+
+### 26.03.1999 news 
+
+<p>Обновлены даты тура Metallica. По прежнему в списке отсутствует какой-либо российский город. Напомню, что группа посетит Киев и Таллин.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Оффициальный фэн-клуб группы сообщил, что цены на билеты на концерт в Киеве будут стоить 10 USD.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Новый альбом Corrosion Of Conformity будет продюсировать известный продюсер Боб Рок ("Чёрный альбом" Metallica).</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Сразу оговорюсь это слушок. Журнал Terrorizer в мартовском выпуске сообщил, что новый альбом Hypocrisy будет называться "Cloned" и будет похож на чёрный альбом Metallica. Хотя скорее всего это не в меру затянувшаяся первоапрельская шутка.</p>
+
+Автор: Vit Belov
+
+### 04.10.1999 news 
+
+<p>Monster Magnet выпустят миньон ещё до конца года, который будет содержать пять или шесть новых песен. Новые песни группа начнёт писать, когда закончится их тур вместе с Metallica (Европа) и Iron Maiden (США).</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Новый альбом Metallica будет называться "S&M" и будет записан вместе с симфоническим оркестром. Он выйдет 23 ноября. Он будет представлять собой двойной CD и видео. На нём будут всего две новых песни Minus Human и No Leaf Clover.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Источники близкие к группе Pantera сообщают, что новый их альбом будет самым брутальным за всю историю коллектива. Дата его выхода пока не уточняется, но известно, что после выхода CD группа отправится в турне вместе с Metallica.</p>
+
+Автор: Vit Belov
+
+### 29.10.1999 news 
+
+<p>Новый альбом Metallica выйдет 23 ноября и включит в себя следующие песни в исполнении с симфоническим оркестром: The Ecstasy Gold, The Call Of Ktulu, Master Of Puppets, Of Wolf And Man, The Thing That Should Not Be, Fuel, The Memory Remains, -Human, Wherever I May Roam, The Outlaw Turn, One, Sad But True, Enter Sandman и Battery. Альбом выйдет с 32-страничным буклетом. Группа после этого даст два симфо-концерта в Нью-Йорке и Берлине.</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Джеймс Хэтфилд заявил, что группа репетирует новый материал, и новый альбом будет очень очень тяжёлым.</p>
+
+Автор: Vit Belov
+
+### 14.06.2000 news Tattoo the Earth Tour
+
+<p>По сообщению launch.com Sepultura и Slayer были добавлены в когорту групп, которые выступят в Tattoo the Earеh tour, который начнётся в июле в Портленде, США. Однако сообщается, что Sepultura может игнорировать некоторые концерты, из-за проблем с продюсерами. Тем временем Soulfly покинули данный тур ради участия в Ozzfest. В Нью-Джерси вся честная компания пересечётся с туром KId ROCK/METALLICA. Таким образом поедут по Штатам: Slipknot, Slayer, Sepultura, Sevendust, Coal Chamber, Nashville Pussy и другие.</p>
+
+Автор: Vit Belov
+
+### 04.09.2000 news Metallica уходят в отпуск
+
+<p> Джеймс Хэтфилд на официальном сайте Metallica заявил о том, что группа сделает перерыв перед записью очередного студийного альбома.</p>
+
+Автор: Nybras
+
+### 15.09.2000 news Новый альбом Apocalyptica
+
+<p> 2 октября выходит третий альбом финского струнного квартета Apocalyptica 'Cult', на котором, помимо прочего будут присутствовать 2 кавера Metallica - "Fight Fire With Fire" и "Until It Sleeps".</p>
+
+Автор: Nybras
+
+### 27.09.2000 news Продолжаются разборки с компанией Напстер
+
+<p> 2-го октября, в Сан-Франциско, продолжится судебный процесс между компаниями Napster и Recording Industry Association of America. Metallica и Dr. Dre требуют ужесточить меры, и убедить колледжи и университеты, чтобы те заблокировали доступ к серверам Напстера. Ховард Кинг, адвокат Metallica и Dr. Dre, уже направил три десятка писем в разные учебные заведения с такой просьбой.</p>
+
+Автор: Nybras
+
+### 27.09.2000 news Napster novel goes on...
+
+<p> The Napster novel continues. As Napster and the Recording Industry Association of America prepare to square off in a San Francisco courtroom on October 2, lawyers for Metallica and Dr. Dre plan to step up their efforts to persuade colleges and universities to block access to the MP3 file-swapping service.Howard E. King, a lawyer for both Metallica and Dr. Dre, mailed out letters to some 27 schools earlier this month, asking them to "promptly ban access by [their] community to Napster".</p>
+
+Автор: Nybras
+
+### 12.12.2000 articles Metallica - о герпесе и прочих знаменательных событиях
+
+<p> «Металлика» выпустила очередную наглость – симфонический концертный альбом, который… Продолжить на собственный вкус. В целом эта работа принята неоднозначно. Фэны группы ревут, что это круто, журнал «Метал Хаммер» обосновано заявил, что это еще один альбом, который доказывает непреодолимость пропасти между классикой и роком, прокомментировав, что Metallica в последнее время слишком много экспериментирует – и в основном мимо кассы, и это начинает надоедать… MTV вовсю гоняет запись концерта и кричит, что это событие уходящего года… Полная неразбериха. Самой Metallica, как всегда, на это наплевать. И недавно барабанщик группы, Ларс Ульрих, дал прямое интервью в Интернете – все вопросы только от фэнов, а не от зануд-журналистов, а потому читать интересно. Самое главное – ни одного слова о симфоническом альбоме!</p>
+<p> - Какие подарки от фанатов вам больше всего запомнились?</p>
+<p> - Пожалуй, герпес… Но вообще-то было столько всего классного, что неудобно выбирать. Хотя вот в Японии почему-то все время дарят зубные щетки…</p>
+<p> - В чем смысл вашей новой песни No Leaf Clover?</p>
+<p> - Не знаю – Джеймс мне слов не показывал, а из того, что он поет, и я половины понять не могу!</p>
+<p> - Что из новой музыки вам нравится?</p>
+<p> - Это великолепный новый альбом Megadeth – я даже позвонил Дэйву Мастейну и сказал об этом! - и новая пластинка Sevendust. Ну и Korn.</p>
+<p> - В одной из серий Бивис и Батхед говорят о том, что Ларс может надрать задницу кому угодно… Это правда?</p>
+<p> - Да. На словах – кому угодно.</p>
+<p> - Что слушает ваш сын?</p>
+<p> - То же, что и я. Ну и симфонические колыбельные на ночь.</p>
+<p> - Что вы делаете в своем самолете, пока перелетаете из города в город во время турне?</p>
+<p> - Днем – читаем газеты и едим, ночью – пьем водку и играем в карты. А если надоедает, я иду, выгоняю пилота и начинаю рулить…</p>
+<p> - Будет ли Боб Рок продюсером вашего нового студийного альбома?</p>
+<p> - У нас нет планов на этот счет – так что время покажет.</p>
+<p> - Какой ваш любимый презерватив?</p>
+<p> - Презерватив? Когда я пьян, я не думаю о презервативах, а когда я трезв… Ну, в общем, они мне не нужны.</p>
+<p> - Что вам более всего запомнилось из всей музыкальной карьеры?</p>
+<p> - Секс с тремя девушками!!! Ну еще и концерт в Москве – публика была просто в истерике.</p>
+<p> - Ваша любимая песня Metallica?</p>
+<p> - за всю карьеру - Enter Sandman, а из последних двух альбомов - Bleeding Me.</p>
+<p> - Как вы относитесь к тому, что Джеймс Хэтфилд также на концертах иногда садится за барабаны?</p>
+<p> - Ужасно. За каждый такой случай ему приходится платить мне, и раз от раза все больше. Надеюсь, у него скоро кончатся деньги!!!</p>
+<p> - Какие качества ваших фэнов вы цените больше всего?</p>
+<p> - Честность и искренность.</p>
+<p> - Когда выйдет следующий студийный альбом группы?</p>
+<p> - Ну… весной закончится турне, летом в студию… значит, в начале 2001 года. У нас пока нет определенных планов и песен для него. Летом следующего года мы серьезно поразмыслим над тем, куда идти дальше.</p>
+<p> Вот, собственно, и все. И правильно – долгие извинения надоедают, хвастовство – еще хуже, а потому ни того, ни другого. По крайней мере Metallica остаются нормальными людьми – хотя еще бы и новой музыки побольше, а то ждать аж до 2001 года все-таки слишком долго…</p>
+<p></p>
+
+Автор: Tornado
+
+### 18.01.2001 news Официальное заявление участников Металлики
+
+<p>Джэйсон Ньюстед объявил, что после 14 лет участия в команде в качестве басс-гитариста решил оставить "Металлику": "Из-за частных и персональных причин, а также ущерба причиненного здоровью за время посвященное исполнению музыки, которую я люблю, я должен оставить команду. Это самое трудное решение в моей жизни, принятое во имя интересов моей семьи, меня лично и для дальнейшего роста "Металлики". Я хотел бы выразить мою любовь, благодарность и наилучшие пожелания моим братьям: Джэймсу, Ларсу и Кирку, а также всей семье "Металлика", друзьям, фэнам, сделавшим эти годы такими незабываемыми."</p>
+<p> Кирк Хэмметт: "Джэйсон - наш брат. Мы будем скучать без него."</p>
+
+Автор: Yermola
+
+### 18.01.2001 news STATEMENT FROM THE MEMBERS OF METALLICA
+
+<p>Metallica regrets to announce that after 14 years as Metallica's bass player, Jason Newsted has chosen to leave the band. Jason Newsted: "Due to private and personal reasons, and the physical damage that I have done to myself over the years while playing the music that I love, I must step away from the band. This is the most difficult decision of my life, made in the best interest of my family, myself, and the continued growth of Metallica. I extend my love, thanks, and best wishes to my brothers: James, Lars, and Kirk and the rest of the Metallica family, friends, and fans whom have made these years so unforgettable."</p>
+<p> Kirk Hammett: "Jason is our brother. He will be missed."</p>
+
+Автор: Yermola
+
+### 07.02.2001 news Джэйсон Ньюстед присоединился к ..... CREED?!?!?
+
+<p>Не успели улечься страсти по поводу ухода басиста из Металлики, как пожалуйста: появилась информация о присоединении Джэйсона к ..... любимцам МТВ - Creed!!! Наверное следующим шагом будет присоединение Марти Фридмана к Koяn?</p>
+
+Автор: Yermola
+
+### 07.02.2001 news Jason Newsted join....CREED!?!?!?!
+
+<p>At first there were cheers among the Metal-fans after bassist Jason Newsted had left the band after 14 years of service. What was the shock were the rumours that he might become the new four-stringer with CREED… Let's sit and wait what else will happen… Next step will be joinning Marty Friedman to Korn!!!</p>
+
+Автор: Yermola
+
+### 21.02.2001 news Кандидат в басисты Metallica
+
+<p>По сообщению сайта heavymetal.tqn.com самым реальным кандидатом на вакантное место в Металлика является Mike Inez из Alice In Chains.</p>
+
+Автор: Yermola
+
+### 21.02.2001 news Metallica bass player
+
+<p>heavymetal.tqn.com are reporting that Alice In Chains bassist Mike Inez is a frontrunner for the Metallica bass player position.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Итоги 43 церемонии Грэмми
+
+<p>После подведения итогов 43rd Annual Grammy Awards и вручения наград стало известно что: RAGE AGAINST THE MACHINE получили Best Hard Rock Performance Grammy за 'Guerilla Radio', CREED заимели Best Rock Song award за 'With Arms Wide Open', DEFTONES стали Best Metal Performance award за 'Elite', и METALLICA совместно с Симфоническим Оркестром Сан-Франциско приобрели Best Rock Instrumental Performance Grammy за 'The Call Of Ktulu'.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news 43rd Annual Grammy Awards
+
+<p>At the 43rd Annual Grammy Awards, held on February 21st, RAGE AGAINST THE MACHINE won Best Hard Rock Performance Grammy for 'Guerilla Radio', CREED took the Best Rock Song award for 'With Arms Wide Open', DEFTONES won the Best Metal Performance award for 'Elite', and METALLICA's collaboration with the San Francisco Symphony on 'The Call Of Ktulu' earned a Best Rock Instrumental Performance Grammy...</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Napster блокирует файлы...
+
+<p>Измученный Металликой Napster согласился заблокировать около 1 миллиона песенных файлов. Фильтр включен с сегодняшнего дня.</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Napster Agree to Block 1 Million Files
+
+<p>In order to stay alive, Napster has agree to block up to 1 million copyrighted songs. The filter should be in place for Monday.</p>
+
+Автор: Yermola
+
+### 05.03.2001 news JASON NEWSTED нарушил молчание....
+
+<p>Впервые после ухода из Металлики, JASON NEWSTED в интервью Апрельскому Playboy пролил свет на причину своего поступка. "Я не мог играть мое д...мо, а Джэймс (Хэтфилд) играл с разными людьми на стороне. Я записал просто невероятно прекрасную музыку с другими музыкантами, но не мог ее реализовать. "</p>
+
+Автор: Yermola
+
+### 05.03.2001 news JASON NEWSTED has broke his silence....
+
+<p>JASON NEWSTED has broke his silence on one of the reasons why he felt uncomfortable in METALLICA. "I can't play my s**t, but (James Hetfield) can go play with other people," Newsted claims in April's Playboy magazine. "I have made some incredibly wonderful music with other musicians. But I just can't release it." Newsted, Metallica's bassist for 13 years, left the band recently, but had yet to cite clearly defined reasons until now.</p>
+
+Автор: Yermola
+
+### 25.03.2001 news Jason Newsted...
+
+<p>Jason Newsted играет серию концертов с MOSS BROTHERS. Ньюстед исполнил все партии басса на втором диске команды и теперь собирается принимать участие в живых шоу. Сами братья Мосс - Рубен и Иван несмотря на ранний возраст (12 и 15 лет!) уже успели зарекомендовать себя на поприще старомодного ретро-рока.</p>
+
+Автор: Yermola
+
+### 25.03.2001 news Jason Newsted will be performing with the MOSS BROTHERS....
+
+<p>Former METALLICA bassist Jason Newsted will be performing an entire set with the MOSS BROTHERS at Ashkenaz, San Pablo Avenue in Berkeley, California on Sunday, April 1st at 2:00 PM, according to the official web site for the MOSS BROTHERS. Newsted played bass on the MOSS BROTHERS’ second CD, to be released next month, and has made previous live appearances with the group. The MOSS BROTHERS, Reuben and Evan, are just 12 and 15 years old, respectively, but have already made a name for themselves in the business with their brand of “old-fashioned rock”.</p>
+
+Автор: Yermola
+
+### 02.04.2001 news METALLICA will be re-releasing the ?Black Album? in DVD-Audio
+
+<p>METALLICA will be re-releasing the 1991 “Black Album” in DVD-Audio format on April 10th. Using a DVD-Audio player, the listener can enjoy the album with six-channel advanced resolution surround sound technology with advanced resolution stereo. If you do not own a DVD-Audio player, you can listen to the album in Dolby Digital Surround Mix that can be played on a regular DVD player. The album, which has already sold over 12 million copies in the US alone, will also feature a sneak preview of the band's Classic Albums special, which will be airing on VH1 later this year. In other METALLICA-related tidbits, the unofficial NICK CAVE web site The Angel In Devil’s Boots has reported a James Hetfield sighting at the NICK CAVE solo show on Monday, March 27th at the Palace of Fine Arts in San Francisco. According to the site’s webmaster, "...the first musician to arrive was James Hetfield from METALLICA. He went in and headed for a good backstage seat for himself and his date. I asked for a picture, but he just looked at me like he was angry for me asking and walked in."</p>
+
+Автор: Yermola
+
+### 11.04.2001 news METALLICA и THE DEFTONES получили очередную порцию наград...
+
+<p>"METALLICA" и "THE DEFTONES" оказались победителями прошедшей церемонии "ESPN Action Sports & Music Awards". Метелица получила "Artist Contribution Award", а "THE DEFTONES" - получили "Артист Года". Собственно коронация и раздача надувных слонов прошли 10 апреля с участием "BLACK SABBATH", "INCUBUS" и "CRAZY TOWN".</p>
+
+Автор: Yermola
+
+### 11.04.2001 news METALLICA and THE DEFTONES were among the winners at the first ESPN Action Sports &amp; Music Awards....
+
+<p>METALLICA and THE DEFTONES were among the winners at the first ESPN Action Sports & Music Awards, held on Saturday (April 7th) at the Universal Amphitheatre. METALLICA took home the "Artist Contribution Award" for "raising the enjoyment of action sports,” while THE DEFTONES were voted "Artist of the Year" by BMX riders. The event — which included performances by BLACK SABBATH (on a reportedly stunning rendition of “Paranoid”), INCUBUS and CRAZY TOWN — took place on ESPN yesterday, April 10th.</p>
+
+Автор: Yermola
+
+### 17.05.2001 reviews А причем здесь Металлика?..
+
+<P>Вот уже много лет как три американские мажорно-попсовые группы Metallica, Megadeth и Overkill, робко претендующие на звание "тяжелого металла" ведут с переменным успехом борьбу за то, кто выпустит самый паршивый и отстойный альбом. Новый релиз вот он: "Симфония уходящего тысячелетия", и на обложке мужик в кожаной косухе, расставив ноги, терзает гитару - должно быть у-у-ух-х-х как забойно! Ожидания рассеиваются с первых аккордов любого трека - фактически играет один ну очень прямо-таки симфонический оркестр, а электрогитары же... Там, где они есть, либо производят впечатление, что их просто наложили сюда со старых альбомов, тех, когда Металлика что-то из себя представляла и была действительно Великой группой (когда Мустэйн уже ушел, а Бартон еще не помер - мир его праху!), причем наложили здорово поковеркав и приглушив, чтобы оркестр не заглушали, либо производят такое впечатление, что парни, путаясь пальцами в струнах, пытаются играть псевдо-металлические кавера популярных MTV-шных шлягеров под симфонические аранжировки. Одним словом после прослушивания остается полная уверенность в том, что группа, издав такой альбом, всенародно, окончательно и бесповоротно расписалась в том, что она более без симфонического оркестра ничего сыграть не в состоянии. Что ж, туда ей и дорога. Очень надеюсь, что это будет последний ее релиз - хоть и очень наивно так думать. Итого получается: оркестр играет вариации на темы Металлики очень неплохо, прямо даже можно 7 а то и 8 из 10 ему (оркестру, а не Металлике!) поставить, а Металлики же вообще толком нет (разве только лого на обложке), а та что есть - либо сплошное MTV-шное мажорство, либо какое-то пошлое уродование своих же старых лучших thrash-овых песен, то есть полный НОЛЬ. Итого еле-еле жиденькая троечка. С минусом.</P>
+Автор: Alexey Pitirimov
+
+### 25.05.2001 news Питомцы Ларса Ульриха....
+
+<p>Ларс Ульрих (Metallica) был вынужден прервать работу над следующим альбомом группы для промоушена последнего приобретения своего звукозаписывающего лэйбла "The Music Company" - SYSTEMATIC. По его словам Хэтфилд и Co в студии еще не записали ни одной готовой песни.</p>
+
+Автор: Yermola
+
+### 25.05.2001 news Lars Ulrich has been busy promoting his record label....
+
+<p>METALLICA's Lars Ulrich has been busy promoting his record label, The Music Company's latest signing, SYSTEMATIC, with more radio appearances, including those on KIOZ 105.3 The Rock in San Diego and on KEGL 97.1 The Eagle, where Ulrich reportedly revealed that METALLICA has not yet written or demoed any complete songs, but are apparently starting fresh in the studio working on each idea before returning to it later on for more tweaking. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.07.2001 news Новый состав VOIVOD...
+
+<p>Наконец-то, после многочисленных перестановок канадцам "VOIVOD" удалось обрести постоянный состав. В должности бассиста засветился "некий" Джэйсон Ньюстед, также вернулся оригинальный фронтмен Snake (aka Denis Belanger) и дополнили стафф барабанщик Michel Langevin и гитарист Denis D’Amour. Ньюстед будет продюссировать грядущий альбом совместно с ветераном разных кнопочек (и звукачом Боба Рока!) - Brian Dobbs. До этого проекта они вместе работали над проектом Джэйсона - "ECHOBRAIN" и решили продолжить сотрудничество. Напоследок хотелось бы добавить, что Ньюстед не новичок для команды, поскольку еще в 1997 году записывал с ними песню "M-Body", вошедшую на альбом "Phobos".</p>
+
+Автор: Yermola
+
+### 03.07.2001 news METALLICA bassist Jason Newsted and returning original frontman Snake (aka Denis Belanger) .....
+
+<p>According to a reliable source close to the VOIVOD camp, the recording line-up for the group’s upcoming studio album will include former METALLICA bassist Jason Newsted and returning original frontman Snake (aka Denis Belanger) alongside founding members Away (aka Michel Langevin; drums) and Piggy (Denis D’Amour; guitars). A strong possibility also exists that Newsted will produce the upcoming album himself or co-produce it with veteran knob-twiddler and sometime Bob Rock engineer Brian Dobbs (i.e. MANMADEGOD), who had worked with Newsted on his ECHOBRAIN project and is said to be looking to do more co-production work with the four-stringer. Although former VOIVOD bassist Blacky’s recent return to the Montreal area after a several-year stint in Vancouver had fueled rumors of a reunion of the group’s original line-up, it now appears that no such reformation will be taking place, and it looks almost certain that Newsted will contribute to the songwriting for the band’s forthcoming CD, which will likely get recorded at the end of the year. As many fans will undoubtedly recall, Newsted is no stranger to the VOIVOD camp, having previously co-written the song “M-Body”, which appeared on VOIVOD’s 1997 opus Phobos. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 20.07.2001 news Эхо ... мозги Джэйсона Ньюстеда...
+
+<p>Экс-Металликовец - неугомонный Джэйсон со своими подопечными "ECHOBRAIN" выпустил альбом и уже продает его <a href="http://www.ebaystores.com/echobrainmusic">здесь</a>. Копий доступно всего 500! ТАк что торопитесь... 15 долларов с доставкой. Состав: сам Newsted (басс), барабанщик Brain Sagrafina и певец/гитарист Dylan Dawkin. Ко-продюссировал альбом Brian Dobbs (MANMADEGOD), среди гостей были Kirk Hammett (METALLICA), гитарист "FAITH NO MORE" Jim Martin и участники Симфонического Оркестра Сан-Франциско (того самого с которым писалась S&M).</p>
+
+Автор: Yermola
+
+### 20.07.2001 news ECHOBRAIN CD available via Ebay ...
+
+<p>Former METALLICA bassist Jason Newsted is making 500 copies of his ECHOBRAIN CD available via Ebay for the very reasonable price of $15 plus shipping at this <a href="http://www.ebaystores.com/echobrainmusic">location</a>. As previously reported, ECHOBRAIN includes in its line-up Newsted, drummer Brain Sagrafina and guitarist/singer Dylan Dawkin. The group's self-titled album, which was produced by Brian Dobbs (i.e. MANMADEGOD), features guest appearances by METALLICA guitarist Kirk Hammett, former FAITH NO MORE guitarist Jim Martin, and members of the San Francisco Symphony Orchestra, with whom METALLICA collaborated for its S&M album and subsequent live concerts. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 01.08.2001 news James Hetfield - новости из псих... (простите!) больницы!
+
+<p>Вокалист/гитарист "METALLICA" впервые после помещения в клинику для лечения от алкогольной (и всякой другой) зависимости поделился с общественностью по поводу битвы с Зеленым Змием: "От меня потребовало огромных усилий признаться в моих проблемах... И сейчас мне очень приятно чувствовать поддержку друзей и фэнов. Большое спасибо! Это много значит для меня."</p>
+
+Автор: Yermola
+
+### 01.08.2001 news James Hetfield spoke out ...
+
+<p>METALLICA guitarist/vocalist James Hetfield spoke out for the first time about his ongoing battle with alcoholism and “other addictions” via a statement posted on the METALLICA Club web site. James’ short message reads as follows: “It took a lot for me to admit to my problems, and it's a great feeling to have the support and comfort for me as a person from all the friends I've made out there. Thanks very much, it means a lot." Source: blabbermouth.net</p>
+
+Автор: Yermola
+
+### 13.08.2001 news Колес с названием Metallica больше не будет...
+
+<p>Поднаторевшая в судебных процессах (А чем же им еще заниматься? Не музыкой же!) METALLICA, заставила компанию производителя автомобильных колес MHT Luxury Alloys прекратить выпуск продукции под торговой маркой Metallica. Как сказал в суде представитель Джэймса Хетфилда и Ко: "Мы надеемся, что и впредь, имя команды не будет использовано при производстве автомобильных продуктов...". Вот так вот...</p>
+
+Автор: Yermola
+
+### 13.08.2001 news METALLICA have reportedly filed ...
+
+<p>METALLICA have reportedly filed a lawsuit against MHT Luxury Alloys, a manufacturer of wheels, over the latter company’s ‘Metallica’ wheel, the sales of which were discontinued last year. Despite the fact that the wheel is no longer being sold, METALLICA is "suing the company for trademark infringement because they have used the band name for automotive products in the past". Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.09.2001 news Пока кот спит, мышки резвятся...
+
+<p>Пока "козлинобородый" Джэймс Хетфилд лечится в клинике от алкогольной и всякой иной зависимости, остальные участники "METALLICA" тоже не теряют время даром. Так 1-го сентября "некий" Ларс Ульрих и "некий" Кирк Хэммет были замечены в Сан-Францисском клубе Maritime Hall за совместным джэм-сэйшеном с кавер-группой "CREEPING DEATH", при этом были сыграны нетленные хиты "Die, Die My Darling", "No Remorse", "Helpless", "...And Justice For All", "Ride the Lightning" и "Am I Evil". Фото Кирка с гитарой и Ларса с барабанами снятые во время гига можно посмотреть на Метловском сайте фэн-клуба (www.metclub.com), правда, при условии, что вы являетесь его членом...</p>
+
+Автор: Yermola
+
+### 04.09.2001 news Lars Ulrich and guitarist Kirk Hammett got up on stage....
+
+<p>METALLICA drummer Lars Ulrich and guitarist Kirk Hammett got up on stage to jam with METALLICA cover band CREEPING DEATH at Metallibash 2001, a METALLICA fan gathering which was held at San Francisco’s Maritime Hall on Saturday, September 1st. According to reports, Ulrich and Hammett appeared at the event about 1 Ѕ hours into the aforementioned cover band’s set and accepted the group’s invitation to join them for a jam, which included renditions of "Die, Die My Darling", “No Remorse", "Helpless", "...And Justice For All", "Ride the Lightning", and the finale of "Am I Evil". Photos of Kirk playing guitar and Lars sitting behind the kit, taken at the above event, can be found in the members-only area at the official METALLICA fan club site, www.metclub.com. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.09.2001 news METALLICA скоро заиграет ню-метал?!?!
+
+<p>Те кто думали что ниже чем на "Load" и "Reload" команда пасть уже не сможет никогда, посрамлены! Может! И еще как... По сообщениям прозвучавшим в "TV Guide" и опубликованным в "The New York Post", рэппер JA RULE объявил о договоренности на запись альбома с "Металиса": "...это будет по настоящему большая запись. Вы услышите об этом очень скоро... Я должен сказать, что это просто сводит меня с ума.". Сама METALLICA, пока официально не подтвердила эту новость...</p>
+
+Автор: Yermola
+
+### 11.09.2001 news Rapper JA RULE has stated to a several different news sources ...
+
+<p>In the we’ll-believe-it-when-we-see-it department, rapper JA RULE has stated to a several different news sources during the rehearsals and in the aftermath of this past week’s MTV Video Music Awards (among them TV Guide and The New York Post) that he recently collaborated with METALLICA for a "really big record. You'll be hearing about that really soon... I have to say it's crazy myself”, as quoted in TV Guide. The New York Post version, however, has JA RULE stating that he is “working with METALLICA on their new album”, with no further details being divulged. No official statement has yet been forthcoming from the METALLICA camp in response to JA RULE’s claims. We’ll have more information on this as it becomes available. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 12.09.2001 news Очередные откровения Дэйва Мастэйна...
+
+<p>Похоже это становится традицией... После слезливых объяснений в любви к Металлике, Дэйв Мастэйн вновь провел сеанс самокопания по Достоевскому. На официальном сайте <a href="http://www.megadeth.com/">www.megadeth.com</a> он в открытом письме описал взаимоотношения и проблемы с группой "SLAYER". "Я встречался с Керри (Кингом) и SLAYER в то время когда я был в Металлике и мы были друзьями... и я себя чувствовал, как-будто я являюсь частью Слэйера..." "Пресса написала об этом огромную кучу дерьма и я не знаю, что сейчас является правдой, а что нет..." "Я слышал, что на вопрос будет ли он еще когда либо играть со мной, Керри Кинг ответил.... Да если Мастэйн sucked my dick. Это не столько разозлило меня, как заставило удивиться: Что вынудило его сказать это?!?!"</p>
+
+Автор: Yermola
+
+### 12.09.2001 news MEGADETH mainman Dave Mustaine is continuing to reach out to former foes through personal postings ...
+
+<p>Desperately seeking to make peace to everyone who has previously supported the group in an attempt to rebuild a career that has inarguably seen its best days, MEGADETH mainman Dave Mustaine is continuing to reach out to former foes through personal postings via the group’s official web site at www.megadeth.com. In the wake of his ongoing attempts at burying the hatchet with his former bandmates in METALLICA, Mustaine has now taken it upon himself to make amends with SLAYER. In his latest posting, the frontman voices his feelings on the two bands’ seemingly strained present relationship: "[SLAYER guitarist] Kerry King was cool enough when we first started, to help us out because we didn’t have a second guitarist and I have many great memories of him and his family. His parents were first class and treated David Ellefson and myself like we were in Kerry’s band, SLAYER, not just temporary guitar slingers using their son. Kerry not only learned all of our songs from the first record, but also very quickly I might add (ask Marty, Al, Jeff, and Chris how easy that is) to do. Kerry was a big part in some of our fiercest shows ever in the very beginning. "I had met Kerry and SLAYER from my METALLICA days and we were friends, as I felt I was with the rest of SLAYER; although it was really weird feeling ‘borrowing’ a band member. "The press has said a lot of bad sh.t lately, and I don’t know how much is true or not. "I recently heard that Kerry was asked if he would ever play with us again and that he responded, ‘If Dave Mustaine sucked my dick’ or something like that. This did not piss me off as much as it made me wonder, ‘What would make him say that?’ "So, I reflected over the last 12 years since Rust in Peace and the famous/infamous ‘Clash of the Titans’ tour and what would possibly still be lingering because of some things that I had done and said, and yeah, there were some issues that occurred, but I thought we had resolved them. "The ‘Clash’ tour was very competitive, with hostile audiences everywhere we played. This spilled over into the backstage area a lot. Hell, even [SUICIDAL TENDENICES frontman] Mike Muir and I were going at it and were headed for a fight until we resolved things like gents and we are good friends today. "I guess that while in Europe, everyone knew that SLAYER would close the show and we would play before them, with TESTAMENT and SUICIDAL TENDENCIES before us. I was just getting off of heroin at the time and was training really hard for my Black Belt in Ukidokan, and I had one of Sensei Benny’s ‘Senseis’ out on tour with me. I was a timebomb because 1) I was not ready to stop drinking or doing drugs and 2) I would see SLAYER having fun, drinking and sh.t and I was jealous. "So, I acted and was unprofessional toward them. Bottom line is, it ain’t their fault I was a drunk. "I talked to [SLAYER bassist/vocalist] Tom [Araya] about this and I thought we were cool. I am pretty sure [SLAYER guitarist] Jeff [Hanneman] and I are cool, and was almost certain Kerry and I were cool. I guess not. "I have said hundreds of f’ing times that SLAYER is one of the best live bands a person will ever see for raw energy. If you want to know what it feels like to be John Force (Nitro-funnycar Champion) when he hits the pedal, just go to a SLAYER show. They are untouchable live. "Now, this brings us to only other possible thing that I could have been involved with; Ozzfest 98. This is the only thing I can think of that they would be pissed about. There were rumors that we kicked SLAYER off of the bill, or that we would didn’t want them on the bill. "This is utter horsesh.t. "Not only have we never shied away from playing with SLAYER, it is in-f.cking-concievable that we would have the authority to tell Sharon Osbourne who she should have or not have on Ozzfest. "I DO NOT THINK THAT SHARON HAD ANYTHING TO DO WITH THIS. UNDERSTOOD? "Having said that, I do believe that someone who used to work for Sharon Osbourne, that was told by our management we wanted to play Ozzfest 98, but we NEVER said anything about SLAYER not playing on this bill. "Somehow, word got back to SLAYER that we did not want them on the bill and it was a f’ing lie. Why would we play New Years Eve with them in our home town, AND play in South America with them if we have a problem with them? "Our previous manager Mike Renault is a really decent person and consequently plays poker with SLAYER’s manager Rick Sales once a week, I think. I doubt he would not have lied to me about explaining this to Sharon Osbourne’s office. "By the way, the person who I believe lied to SLAYER has been fired by Sharon Osborne. Gee? I wonder why? "To all the SLAYER fans at our site and over in Slaytanic land: I have no animosity toward SLAYER, nor do I have any reason to fear playing with them. We asked them to tour with us on a pure metal four band bill and they said ‘NO!’ "I can only attribute this to their believing that we had something to do with them not being on Ozzfest 98. I would like the truce that we have started with METALLICA to reach over to another one of the Best Metal bands ever, SLAYER. "To Tom, Kerry, Jeff and Paul: "This is the truth with what happened. Accept it if you will, but just know that I personally feel someone directly misrepresented our position with Ozzfest 98. I would personally love to tour with SLAYER again and hope you will reconsider our proposal. If there is something else, then let’s settle it and tour! Mustaine" Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 12.09.2001 news Продолжение о JA RULE ....
+
+<p>Продолжают поступать новости о сотрудничестве Металлики и рэппера JA RULE... Наш темнокожий друг вчера заявил в новостях MTV, что был приглашен Ларсом Ульрихом и Кирком Хэмметом записать рэп для новой песни. "Я напел два двенадцатистрочных стиха на этой безумной записи, которую они хотели..." <br><br> <img src=/images/news_rus/2001.09/1684.jpg border=1 align=center width=200 height=200 ></p>
+
+Автор: Yermola
+
+### 12.09.2001 news MTV News has posted a story that quotes JA RULE as saying ...
+
+<p>Further to the reports of rapper JA RULE collaborating with METALLICA on an unspecified new album, MTV News has posted a story that quotes JA RULE as saying that he was invited by METALLICA drummer Lars Ulrich and guitarist Kirk Hammett to record a rap for a new track. "I spin two 12-bar verses with METALLICA on their new big, huge record they got that's crazy," JA RULE reportedly stated. MTV goes on to quote JA RULE’s publicist as saying that the "mostly instrumental number" may end up on a Dreamworks Records compilation. DreamWorks, meanwhile, wouldn't provide any details about the record, but said it should be out in early 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.10.2001 news Jason Newsted - назад в Металлику?
+
+<p>По сообщению неофициальных ресурсов близких к Металлике (http://www.intersandman.com/index.html и т.п.), группа попросила Джэйсона Ньюстеда вернуться для записи нового альбома и он вроде бы даже согласился... Из других новостей, по словам представителя METALLICA - Sue Tropio, опубликованным в "The New York Post", команда сейчас ведет переговоры с MEGADETH о совместном туре. Да... слезливые письма Рыжего Дэйва не прошли даром...</p>
+
+Автор: Yermola
+
+### 17.10.2001 news METALLICA bassist Jason Newsted has been asked by the band to rejoin them ...
+
+<p>Citing “inside sources in the METALLIcamp”, unofficial METALLICA site Inter Sandman has reported that former METALLICA bassist Jason Newsted “has been asked by the band to rejoin them in the recording sessions for the new album, due sometime in late 2002.” In other news, METALLICA spokesperson Sue Tropio was quoted in a MEGADETH article that was published in The New York Post on Sunday, October 14th as saying that METALLICA and MEGADETH may end up touring together in the not-too-distant future. "Anything can happen — there's a lot of love between METALLICA and MEGADETH right now," stated Tropio. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Масло в огонь или лей-лей не жалей...
+
+<p>Песня Металлики “Fuel For Fire” (измененная версия с другой лирикой песни “Fuel” с альбома "Reload") в начале недели вышла на диске "NASCAR: Full Throttle" через Hybrid Recordings и в сотрудничестве с NASCAR, Turner Broadcasting, и NBC Sports. Кроме Метелицы на диске представлены SAMMY HAGAR, CREED, THE CULT, MOTLEY CRUE, и THE GRATEFUL DEAD.</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Fuel For Fire
+
+<p>METALLICA’s “Fuel For Fire” (a demo version with different lyrics of the song “Fuel” off Reload; this version originally appeared on the European single release of "The Memory Remains") appears on an album entitled NASCAR: Full Throttle, issued this week via Hybrid Recordings, in association with NASCAR, Turner Broadcasting, and NBC Sports. Other artists appearing on Full Throttle include SAMMY HAGAR, CREED, THE CULT, MOTLEY CRUE, and THE GRATEFUL DEAD. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 13.11.2001 news Некоторые цифры продаж...
+
+<p>Вот вам цифры американских продаж некоторых металлических и не очень групп... Данные на начало Ноября. Предоставлены Soundcscan (цифра в скобках означает количество недель в чартах): <BR> <BR> SYSTEM OF A DOWN – Toxicity: 817,286 (9) <BR> OZZY OSBOURNE – Down To Earth: 269,374 (3) <BR> SLIPKNOT – Iowa: 553,043 (10) <BR> SLIPKNOT – Slipknot: 1,345,891 (123) <BR> METALLICA – Metallica: 12,890,072 (484) <BR> MISFITS – Cuts From The Crypt: 4,811 (1) <BR> SOIL – Scars: 34,433 (8) <BR> MACHINE HEAD – Supercharger: 24,202 (5) <BR> QUEENSRYCHE – Live Evolution: 20,727 (6) <BR> SLAYER – God Hates Us All: 121,179 (8)</p>
+
+Автор: Yermola
+
+### 19.11.2001 news Ну.... За Кирка!!!
+
+<p>Э-э-э-э-э... Ну вот и исполнилось (вчера!) старому перцу Kirk Hammett 39 годков. Спасибо Encyclopedia Metallica, что напомнила об этом. Не знаю как относиться к данному событию, но стаканчик опрокинуть за него можно. В память о прошлых заслугах.</p>
+
+Автор: Yermola
+
+### 19.11.2001 news Happy Birthday Kirk, 39
+
+<p>I don't plan on making a habbit of posting birthdays for everyone in metal, but Encyclopedia Metallica sent their newsletter out mentioning that Kirk Hammett turned 39 today. First, it made me say "damn," realizing how long these guys (and some of my other fav bands) have been around. Then I saw that they posted a high school pic of Kirk as well. It's well worth a visit.</p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 06.12.2001 news Вас уже выпустили из сумашедшего дома? (c)
+
+<p><IMG SRC="/images/news_rus/2001.12/2144.jpg" ALT="pho" width="180" height="180" hspace="15" vspace="5" border="1" align="left">После длительного периода лечения от алкогольной и наркотической зависимости, фронтмэн "Металлики" Джэймс Хэтфилд вернулся в группу. Как сообщил сам Джэймс, ему очень помогали письма от фанатов. Сейчас команда взяла перерыв на новогодние праздники, но уже в январе начнется запись нового студийного альбома. "Моя музыка и лирика всегда были лекарством для меня...." - заявил имярек. Барабанщик Ларс Ульрих и гитарист Кирк Хэммет не теряли время даром и работали над новыми песнями с продюссером Бобом Роком, который также исполнил партии басс-гитары на записи. Замена ушедшему в январе Джэйсону Ньюстеду, по сообщению менеджмента группы так и не найдена...</p>
+
+Автор: Yermola
+
+### 06.12.2001 news James Hetfield Exits Rehab, Rejoins Metallica
+
+<p><IMG SRC="/images/news_rus/2001.12/2144.jpg" ALT="pho" width="180" height="180" hspace="15" vspace="5" border="1" align="left">After a lengthy stint in rehab for alcohol and substance abuse, Metallica frontman James Hetfield has rejoined the band. Hetfield entered the facility in July and recently exited "feeling rather good about life," according to a post on the band's Web site, which also said his recovery has gone "exceedingly well." In one of two brief statements on the site, Hetfield wrote that the letters he received from the band's fans helped his recovery. "My rough road has become smoother reading the show of support from the friends I've met through Metallica," he wrote. Metallica are taking a break for the holidays, but in January they'll return to the studio with Hetfield, who asserted that his time away hasn't impaired his creativity. <BR> <BR> "My music and lyrics have always been therapy for me," he said. "Without this God-given gift, I don't know where I'd be. And now I truly feel the impact and the connection it's made with others." While Hetfield was in rehab, drummer Lars Ulrich and guitarist Kirk Hammett worked on new songs with the group's longtime producer Bob Rock, who also played bass on the recordings. Metallica still have not replaced bassist Jason Newsted, who left in January, the band's management said. The group's publicist said a new Metallica record is tentatively due next fall.<BR> <BR> <a href="http://www.mtv.com/news/articles/1451307/20011204/metallica.jhtml">WWW.MTV.COM</A></p>
+
+Автор: Yermola
+
+### 29.12.2001 news Kirk Hammett попал в Зал Славы...
+
+<p>Гитарист "METALLICA" - Kirk Hammett выбран читателями журнала "Guitar World" как получатель премии "Hall of Fame Award". Мартовский выпуск будет содержать интервью с Кирком, рассказывающим историю группы с картинками и фото....</p>
+
+Автор: Yermola
+
+### 29.12.2001 news METALLICA&#39;s Hammett Receives Award...
+
+<p>METALLICA guitarist Kirk Hammett has been selected by the readers of Guitar World magazine as the first recipient of the annual Hall of Fame Award, the group's official web site, <A HREF="http://www.metallica.com/flashport/index.html">www.metallica.com</A>, has announced. The March issue of the publication (on newsstands February 1st, 2002) will include an interview with Kirk tracing the history of METALLICA, as well as covering the present with a look into the future. The piece will include new pictures along with never-before-seen earlier photos (a picture of Kirk taken at the Guitar World photo session, which took place earlier this month, can be viewed at <A HREF="http://www.metallica.com/metdotcom/news/2001/images/dec18_kh1.jpg">this location</A>). According to Guitar World editor Brad Tolinski, the readers made a great choice with Kirk, saying "he's really contributed something significant to modern music."<BR><BR> In other news, Hammett was recently interview by VH1 for an upcoming Behind The Music special focusing on the band ANTHRAX. As many fans will undoubtedly know, ANTHRAX and METALLICA were formed around the same time and have a great history together. Kirk was one of the guests to be interviewed for the episode. The interview took place at Kirk's house on Dec 18th (check out a photo taken at the interview session <A HREF="http://www.metallica.com/metdotcom/news/2001/images/dec18_kh2.jpg">here</A>) and it covers many interesting and funny memories METALLICA shared with the guys from ANTHRAX. No air date is yet set but it is expected to be broadcast sometime in February/March.</p>
+
+Автор: Yermola
+
+### 16.01.2002 news David Lee Roth, Lars Ulrich и Kirk Hammett слились в творческом экстазе...
+
+<p>Фронтмен "VAN HALEN" David Lee Roth, барабанщик "METALLICA" Lars Ulrich и гитарист Kirk Hammett с продюссером Bob Rock в лос-анджелесской Henson Studios работают над саундтреком к пока-не-известному фильму. Дальше к процессу записи подключится еще гитарист "MARILYN MANSON" - John 5....</p>
+
+Автор: Yermola
+
+### 16.01.2002 news METALLICA&#39;s Ulrich, Hammett To (Allegedly) Collaborate With VAN HALEN&#39;s Roth ...
+
+<p>According to top Danish web site Jubii Rock and the official web site of VAN HALEN frontman David Lee Roth, METALLICA drummer Lars Ulrich, guitarist Kirk Hammett, producer Bob Rock and Roth are collaborating on one or more tracks for an upcoming movie soundtrack at Los Angeles' Henson Studios. MARILYN MANSON guitarist John 5 is also said to be involved in the recording process, although it's unclear in what capacity.</p>
+
+Автор: Yermola
+
+### 21.01.2002 news METALLICA пишет новые песни...
+
+<p>По словам барабанщика "METALLICA" Ларса Ульриха у группы уже написаны 20 песен (во всяком случае основные темы!). Также драммер подтвердил слухи о сотрудничестве с рэппером JA RULE и продюссером Swizz Beatz — результат сего действа поступит в продажу в феврале. <BR><BR> Из других новостей, "анстопэбл" фронтмэн James Hetfield и его жена Francesca ожидают третьего ребенка к тому же времени...</p>
+
+Автор: Yermola
+
+### 21.01.2002 news METALLICA: 20 New Songs In The Can ....
+
+<p>METALLICA have completed the basic skeletons of 20 new songs during the most recent songwriting sessions for the group's next album, drummer Lars Ulrich revealed in an interview published in the latest issue of METALLICA fan magazine So What. Ulrich also stated that the much-talked-about collaboration between METALLICA, rapper JA RULE and producer Swizz Beatz—which apparently follows a BEASTIE BOYS-style direction, with full-on rapping mixed in with heavy guitars—is due to be issued in February. In other news, METALLICA frontman James Hetfield and wife Francesca are expecting their third child in late January/early February</p>
+
+Автор: Yermola
+
+### 25.01.2002 news У Джэймса Хэтфилда родилась дочь...
+
+<p>Семья фронтмена "METALLICA" Джэймса Хэтфилда и его жены Франчески пополнилась еще одной дочерью. Marcella Francesca Hetfield родилась с весом 8 фунтов 5 унций и сейчас уже находится дома с сестрой Cali и братом Castor.....</p>
+
+Автор: Yermola
+
+### 25.01.2002 news METALLICA Adds New Member To Its Family...
+
+<p>METALLICA frontman James Hetfield and his wife Francesca gave birth to a healthy baby daughter on Thursday, January 17th. Marcella Francesca Hetfield, born in San Francisco, weighed in at 8 pounds, 5 ounces and 21 1/4 inches. Marcella, her proud parents, sister Cali, 3 1/2 and brother Castor 20 months, are home and doing well.</p>
+
+Автор: Yermola
+
+### 22.02.2002 news DREAM THEATER играет песни Металлики?!?
+
+<p>Во время концерта в Барселоне 19-го февраля "DREAM THEATER" полностью исполнил все восемь вещей с альбома "Металлики" - "Master Of Puppets". Также в фойе продавались майки METALLICA и импровизированный прикид с логотипом Театра стилизованным под Кукловода. Что бы это значило? Хотя.... "Master..." и мой любимый альбом Метелицы тоже.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news МР3 от DREAM THEATER ...
+
+<p>МР3 бутлегов записанных во время концерта "DREAM THEATER" в Барселоне, во время которого были исполнены вещи "METALLICA" с альбома "Master Of Puppets" можно скачать <A HREF="http://bootlegs.shine1.com/Barcelona%20-%20Night%202/">здесь </A>и <A HREF="http://208.28.236.84/~ryan/dt/Barcelona%20Night%202/">здесь....</A></p>
+
+Автор: Yermola
+
+### 27.02.2002 news DREAM THEATER Covering METALLICA: MP3s Available For Download!
+
+<p>A bootleg recording of DREAM THEATER performing METALLICA's entire Master Of Puppets CD at a very special show at Razmatazz in Barcelona, Spain on February 19th can be downloaded in MP3 form from <A HREF="http://bootlegs.shine1.com/Barcelona%20-%20Night%202/">this location </A>or <A HREF="http://208.28.236.84/~ryan/dt/Barcelona%20Night%202/">this location</A>. As previously reported, DREAM THEATER played all eight songs from the aforementioned album while donning METALLICA T-shirts and sporting an improvised DREAM THEATER-logo'd Master of Puppets backdrop. Billed on DREAM THEATER's official website as a "VERY SPECIAL SHOW", the gig featured no opening act and was the second of DREAM THEATER's two-night stint at the venue.</p>
+
+Автор: Yermola
+
+### 08.04.2002 news METALLICA&#39;s KIRK HAMMETT: DAVE ELLEFSON Is Not Our New Bass Player ...
+
+<P>Contrary to recent rumors, former MEGADETH bassist Dave Ellefson has not been selected to replace Jason Newsted in METALLICA, according to METALLICA guitarist Kirk Hammett, who made a brief appearance in the members-only chat room of the band's official web site on Friday, April 5th. </P></>
+<P> </P></>
+<P>Hammett reportedly offered no further information about Newsted's possible replacement or the band's ongoing songwriting sessions for their forthcoming studio CD, which is not expected to appear before early 2003. </P></>
+<P> </P></>
+<P>The rumors of Ellefson joining METALLICA gained strength in the past week after a fake Associated Press article was circulated via the Internet that attributed MEGADETH's break-up to Ellefson's decision to link up with Hetfield and co. </P></>
+
+Автор: Yermola
+
+### 01.05.2002 news NEVERMORE записались для очередного трибьюта METALLICA
+
+<p>NEVERMORE закончили запись кавер-версии METALLICA "Fight Fire With Fire" для очередного трибьютного альбома METALLICA, который должен выйти в конце 2002 года на Nuclear Blast Records.</p>
+
+Автор: Dimas
+
+### 01.05.2002 news NEVERMORE news
+
+<p>Nevermore will reportedly be recording a cover version of Metallica's "Fight Fire With Fire" for an upcoming Metallica tribute album, due out through Nuclear Blast Records later in the year.</p>
+
+Автор: Dimas
+
+### 02.05.2002 news METALLICA In The Studio
+
+<p>METALLICA entered their Northern California studio yesterday to resume recording the group's eighth original album, according to the band's official web site.</p>
+
+Автор: Dimas
+
+### 02.05.2002 news METALLICA в студии
+
+<p>METALLICA заперлась в Northern California studio для записи своего восьмого полнометражного альбома. Все подробности о ходе записи можно будет лицезреть на официальном сайте группы.</p>
+
+Автор: Dimas
+
+### 06.05.2002 news Еще один трибьют METALLICA ....
+
+<p>Лэйбл World War III готовит трибьют METALLICA. Участвуют следующие команды: <BR><BR> 01. PROTOTYPE - "Battery" <BR> 02. POWERGOD - "Motorbreath" <BR> 03. DIVISION - "Creeping Death" <BR> 04. INFAMY - "Disposable Heroes" <BR> 05. LOWGEAR - "The Thing That Should Not Be" <BR> 06. IMAGIKA - "Four Horsemen" <BR> 07. TECHNOCRACY - "Ride The Lightning" <BR> 08. REACTOR - "Seek & Destroy" <BR> 09. PRO-FE-CIA - "Fade To Black" <BR> 10. EXILED - "Metal Militia" <BR> 11. DEATHOMEN - "No Remorse" <BR> 12. MISSION66 - "Wherever I May Roam" <BR> 13. ENRAGED - "Master Of Puppets"<BR></p>
+
+Автор: Yermola
+
+### 06.05.2002 news METALLICA Tribute On World War III Records...
+
+<p>A brand new METALLICA tribute CD is due to be released through World War III Records shortly featuring the following track listing: <BR> <BR> 01. PROTOTYPE - "Battery" <BR> 02. POWERGOD - "Motorbreath" <BR> 03. DIVISION - "Creeping Death" <BR> 04. INFAMY - "Disposable Heroes" <BR> 05. LOWGEAR - "The Thing That Should Not Be" <BR> 06. IMAGIKA - "Four Horsemen" <BR> 07. TECHNOCRACY - "Ride The Lightning" <BR> 08. REACTOR - "Seek & Destroy" <BR> 09. PRO-FE-CIA - "Fade To Black" <BR> 10. EXILED - "Metal Militia" <BR> 11. DEATHOMEN - "No Remorse" <BR> 12. MISSION66 - "Wherever I May Roam" <BR> 13. ENRAGED - "Master Of Puppets"<BR></p>
+
+Автор: Yermola
+
+### 24.05.2002 news Ларс Ульрих закрыл собственный лэйбл....
+
+<p>Барабанщик METALLICA Ларс Ульрих вынужден был закрыть собственную звукозаписывающую компанию, которой он управлял по договоренности с Elektra Records. <BR><BR> "Я закрыл мой лэйбл. Мне нравилось работать с командами, но у меня не хватало времени работать со всем тем дерьмом, что сопутствует этому..."<BR><BR> The Music Company (TMC) была основана в 1998 и работала с SYSTEMATIC, DDT, GOUDIE и BRAND NEW IMMORTALS. Одна из команд подписанных с лэйблом уже нашла новый дом на Elektra - это SYSTEMATIC, в которую входит бывший барабанщик Слэйер - Paul Bostaph.<BR><BR> Также Ларс прояснил ситуацию с бас-гитаристом Металлики: "Боб Рок играет басс в студии и мы пока даже еще не думали кто присоединится к нам по окончании записи... С 17 мая Боб играет каждую басовую ноту на этой записи..."</p>
+
+Автор: Yermola
+
+### 24.05.2002 news METALLICA&#39;s LARS ULRICH Shuts Down Label Imprint....
+
+<P>The Music Company, the record label imprint headed by METALLICA drummer Lars Ulrich through an arrangement with parent company Elektra Records, has officially ceased to exist, Ulrich confirmed during an online chat last week. </P></>
+<P> </P></>
+<P>"I folded my label. [I] loved working with the bands, [but I] could not deal with all the horseshit that came with it," Lars stated in response to a direct question about the current status of the company. </P></>
+<P> </P></>
+<P>The Music Company (TMC) was founded in 1998 and at one time boasted a roster that included SYSTEMATIC, DDT, GOUDIE, and BRAND NEW IMMORTALS. </P></>
+<P> </P></>
+<P>At least one of the bands previously signed to the label, SYSTEMATIC, has found a new home at Elektra, who will issue the group's sophomore CD—and their first with new drummer Paul Bostaph (ex-SLAYER)—at the end of the year. </P></>
+<P> </P></>
+<P>In other news, Ulrich has revealed that no discussions have yet taken place about a potential replacement for Jason Newsted, who left METALLICA in January 2001 in order to pursue other projects. "[Producer] Bob Rock [is playing] bass in the studio and we have not even thought about who's gonna join the band when the record is done," Lars said, adding that, "as of May 17th, Bob has played every single bass note on the [forthcoming] record. We are keeping our minds open, but right now it feels so fucking right." </P></>
+
+Автор: Yermola
+
+### 09.07.2002 news Metallica запустила новый сайт....
+
+<p>На устроенной вечеринке METALLICA широко отметила запуск новой версии своего <A HREF="http://www.metallica.com/">сайта...</A> Так же было проведено прослушивание на должность нового басс-гиариста. Двое Елена и АНдрей оказались победителями и отыграли джэм с командой. После этого вместе с Бобом Роком на басу были сыграны: <BR><BR> Commando (RAMONES cover)<BR> Hit The Lights<BR> Leper Messiah<BR> No Remorse<BR> For Whom The Bell Tolls<BR> Dead Kennedy Rolls<BR> Die, Die My Darling (MISFITS cover)<BR><BR> Посмотреть фото действа можно <A HREF="http://www.metallica.com/metdotcom/indexa.html">здесь...</A></p>
+
+Автор: Yermola
+
+### 09.07.2002 news METALLICA Celebrate Web Site Launch...
+
+<p>METALLICA threw a party on Saturday, July 6th to belatedly celebrate the launch of their new web site. A hundred or so contest winners were invited, given the mandatory tours of the sites in the Bay Area, the studio and treated to seeing METALLICA bass player "auditions." 12 tried out for the coveted slot, and only two—Elena and Andrew—ended up jamming with the band. The band then took over with Bob Rock back on bass, performing the following songs: <BR><BR> 01. Creeping Death (w/Andrew on bass)<BR> 02. Seek & Destroy (w/Elena on bass)<BR> 03. Commando (RAMONES cover)<BR> 04. Hit The Lights<BR> 05. Leper Messiah<BR> 06. No Remorse<BR> 07. For Whom The Bell Tolls<BR> 08. Dead Kennedy Rolls<BR> 09. Die, Die My Darling (MISFITS cover) <BR><BR> To view photos taken at the party, visit METALLICA's official web site at <A HREF="http://www.metallica.com/metdotcom/indexa.html">this location.</A></p>
+
+Автор: Yermola
+
+### 19.08.2002 news Металлика собираются выпустить трибьют Ramones.
+
+<p>Ребята вернулись в студию уже в мае с целью "порезвиться" над некоторыми песнями легендарной группы Ramones. На первой записи будут присутствовать 4 песени - 'Commando,' 'Today Your Love Tomorrow The World,' '53rd & 3rd,' 'Now I Wanna Sniff Some Glue' , которые уже были исполнены в Kimo's club. Диск появится в конце года и выйдет на лейбле DV8 / Columbia Records.</p>
+
+Автор: Midnight Vampire
+
+### 29.08.2002 news Former METALLICA Bassist To Release Much-Circulated Demos ...
+
+<p>Former METALLICA bassist Jason Newsted will be releasing a six-song split CD from two of his long-running projects — IR8 and SEXOTURICA — through his own Chophouse imprint, according to the label's web site. IR8's three-tracker, which was recorded in 1994, features Newsted, Tom Hunting of the Bay Area thrash band EXODUS and Canadian STRAPPING YOUNG LAD mastermind Devin Townsend, while SEXOTURICA's portion of the CD was laid down in early 1995 and includes Hunting and SEPULTURA guitarist Andreas Kisser. <BR><BR> "[These recordings] been traded in the underground a little bit here and there, but now it's time to unleash it to everybody properly," stated Newsted about the upcoming release.<BR><BR> For more information on how to order a copy, send an e-mail to sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 30.08.2002 news Jason Newsted выпускает два демо...
+
+<p>Бывший участник "METALLICA" бассист Jason Newsted на своем лэйбле Chophouse выпускает сплит-CD двух проектов IR8 и SEXOTURICA. <BR><BR> Три песни от "IR8" были записаны в 1994 году в составе самого Ньюстеда, Tom Hunting (EXODUS) и участника "STRAPPING YOUNG LAD" - Devin Townsend. А "SEXOTURICA" демо было записано в 1995 в составе Ньюстеда, Hunting'а и гитариста "SEPULTURA" - Andreas Kisser. Заказать CD можно по e-mail: sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 10.09.2002 articles На что будет похожа новая Metallica?
+
+<p>Ансамбль Metallica записывает новую пластинку, ну и слава Создателю, главное, чтобы процесс записи не затянулся на неопределённое время, как скажем у Guns’N’Roses. Прошли вроде бы казусы с алкоголизмом у мистера Hatfield’а, всякими рэпперскими замутами, и вот остаётся чистое творчество… На что будет похож новый альбом этой легендарной группы? Пусть не все, но многие задаются этим вопросом… Ведь согласитесь простор для фантазии, куда как широк. И вот в самый последний день лета на свет выползли постинги из форума на официальном сайте Metallica.<br> Kirk Hammett (08/29/2002 3:52:00 PM): Пришли мы сегодня в студию и работаем над песней Du Jour, Никлас (web-master) принёс новый CD Meshuggah. Мы решили приостановить работу и прослушать его, потому что каждый засранец на Ozzfest говорил, как чертовски хороши они были. Ну, мы это послушали и были шокированы, как это близко к нашему новому материалу. Я люблю Meshuggah!!!…<br> Lars Ulrich (08/29/2002 5:26:00 PM): Привет! Здесь Ларс! Мы провели очень хороший денёк в студии. Кстати, я считаю, аналогии с Meshuggah, которые провёл Кирк, слегка заужены. Я слышу некоторые черты Entombed и Hatebreed в нашей музыке также…<br> Вот так-то. В новостях Вы могли прочитать, что альбом Meshuggah “Nothing” вошёл в чарты Billboard, что является блестящим достижением. Вот только возникает уже другой вопрос, Metallica Бог с ней, они «далеко», а вот Meshuggah? Что же ждёт нас на этом альбоме, если он штурмует чарты в Америке и очень нравится Кирку Хэммету? Всё-таки музыка шведов никогда не была настолько проста, чтобы так полюбиться публике в Новом Свете. Ждём ответа от Irond, ведь они должны донести до нас это чудо в скором времени. Релиз в Европе – 16 сентября.</p>
+
+Автор: Vit Belov
+
+### 10.09.2002 articles Kirk Hammett: &quot;I Love Meshuggah&quot;
+
+<p>The ensemble Metallica writes down a new CD, well and glory to the God, main, that the process of record was not delayed on uncertain time, as we shall tell at Guns'N'Roses. Would pass like things as alcoholism of Mr. Hatfield, rap influences, and pure creativity stay there. On what will the new album of this legendary group be similar? Not everbody, but many are set by this question. You agree, open space for imagination, where as is wide. And per the latest day of summer on light have crept out postings from forum on an official site of Metallica.<br> Kirk Hammett (08/29/2002 3:52:00 PM): So we came in today and we were working on the song 'Du Jour' when [webmaster] Niclas walked in with the new MESHUGGAH CD. We decided to stop what we were doing and throw it on because every motherfucker at Ozzfest kept on telling us how kick-ass they were. When we heard it, we were shocked to find out how similar it was to our new material, even the 8 radio songs we have. I love MESHUGGAH!<br> Lars Ulrich (08/29/2002 5:26:00 PM): Hey, it's Lars checking in on the way out. We had a nice ugly day in the studio. Lots of nastiness and misery. I'm psyched! BTW, I think Kirk's MESHUGGAH comparison is a little limiting. I hear shades of HATEBREED and ENTOMBED in there also. <br> So. In news you could read, that the album of Meshuggah "Nothing" has come in Billboard, that is brilliant achievement. Only there is already other question, Metallica the God with them, they are "far", and Meshuggah? What waits for us on this album, if it storms charts in America and it is pleasant to Kirk Hammett very much? Music of the swedes was never so simple, that so to be grown fond to public in USA. We look forward to hearing from Nuclear Blast, they should inform up to us this miracle shortly. Release in Europe - September 16.</p>
+
+Автор: Vit Belov
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 20.11.2002 news METALLICA воссоединяется?
+
+<p>Бывший басист METALLICA и нынешний басист VOIVOD Jason Newsted изъявил желание воссоединиться с суперзвездами сан-францисканского металла на период записи их восьмого альбома</p>
+
+Автор: Dimas
+
+### 03.12.2002 news VOIVOD&#39;s JASON NEWSTED: New Album Sounds Like Mixture Of METALLICA And VOIVOD ...
+
+<p>The forthcoming VOIVOD CD, "The Multiverse", sounds "exactly like METALLICA meets VOIVOD," according to former METALLICA and current VOIVOD bassist Jason Newsted, who has just finished mixing the album for a tentative Mar. 4, 2003 release. "I have retained the distortion, the constant bass distortion — a little tighter — but it's still there for VOIVOD the way it always was as far as VOIVOD goes," Newsted told Canada's Chart Attack. "But, added to it, is the girth of the METALLICA bass, the 'Black Album' bass sound, those kinds of things that sound huge, huge, huge, an enveloping low end. So both things exist, something that was never there before for a VOIVOD album. Everything else is still intact. Drumming is still fucking crazy, double bass drums every song, Snake is back a full 110 per cent and Piggy's fucked up tunings, Piggy chords exclusive to Piggy… all of that is still absolutely alive." <BR><BR> With regards to the upcoming album's lyrical content, Newsted explained, "It's [Snake's] own thing because of the translation from French. The direct translation cuts through all the shit. The thing is that no person that speaks English as their first language would write it that way because of the way we've been programmed. And when we hear it back so plainly, it's kind of like Yoda-speak, but way more intelligent. Because he doesn't use the little in between words that you would know from knowing the English language first — ands and ares and all these things — he goes boom, boom, boom. All the words next to each other, they can create sentences and/or phrases that mean five different things. On one of his best vocal performances, he says 'It's so good to see you again.' And I know what he means and we all know what he means. He's actually singing about the power of the music and what it does to people. But when he says that line, he's saying it to Michel, he's saying it to me, he's saying it to the crowd, he's saying it to the music, he's saying it to the microphone, he's saying it to his mind, he's saying it to the paper and pencil. I mean it's fuckin'... it's like that."</p>
+
+Автор: Yermola
+
+### 27.02.2003 news Роб Трухильо - новый бассист Металлики...
+
+<p>Metallica официально объявили имя нового басс-гитариста. Им стал Rob Trujillo игравший с Suicidal Tendencies/Ozzy Osbourne band member as its new bassist. Trujillo появится уже на новом студийном альбоме всадников - "St. Anger" который запланирован к выходу на Elektra 10-го июня. Долговременный продюссер и друг металликовцев Боб Рок исполнял эту роль во время редких концертов и в студии. <BR><BR> Также группа объявила о длительном Северо-Американском туре "Sanitarium" с Limp Bizkit и Linkin Park. Знакомство с Трухильо для команды состоялось еще в 1993 году во время тура Suicidal Tendencies с Metallica. "Когда Роб приехал в Сан-Франциско и поджемовал с нами, мы поняли что возникла какая то магия между нами..." - говорит группа. <BR><BR> Что же касается ушедшего Джэйсона, он объявлен официальным участником ветеранов Voivod и также продюссировал их альбом который выходит 4-го марта на его собственном лэйбле Chophouse Records.</p>
+
+Автор: Yermola
+
+### 27.02.2003 news Metallica Signs Up Bassist Rob Trujillo ...
+
+<p>Metallica has named former Suicidal Tendencies/Ozzy Osbourne band member Rob Trujillo as its new bassist. Trujillo replaces Jason Newsted, who departed in early 2001, and will appear on the quartet's upcoming studio album, "St. Anger," due June 10 from Elektra. Longtime producer Bob Rock has played bass at sporadic concert experiences and in the studio with Metallica since Newsted's departure, and the group had been vague as to whether or not it was seeking a full-time fourth member. <BR><BR> Earlier this month, Metallica announced its North American Summer Sanitarium tour with Limp Bizkit and Linkin Park, but evaded questions on the open bass position. The band's connection to Trujillo stretches back to 1993, when Suicidal Tendencies toured with Metallica, and a post on the band's Web site implies that Trujillo was present for much of the new album's recording sessions. <BR><BR> "When Rob came to San Francisco the first time and jammed with us, we all felt this incredible magic between the four of us," the band writes. "It was just something we could not describe, we all just knew it."<BR><BR> Additionally, drummer Lars Ulrich writes, "The last two years of just being the three of us have taught me soo [sic] much about myself, about James and Kirk and about Metallica. To welcome Rob into Metallica in 2003 after all the growth and soul searching we've been through for the last two years, feels ... awesome. Being at full strength again is at this moment indescribable."<BR><BR> Meanwhile, the band has confirmed 16 dates for the Summer Sanitarium tour, including a July 26 performance at the Hawthorne Racetrack in Chicago and an Aug. 9 date at the Coliseum in Los Angeles. Among the cities still awaiting dates and venues are New York, San Francisco, and Toronto. Updates will be posted on Metallica's Web site. <BR><BR> Metallica will embark on a brief tour of the European festival circuit before its North American outing, and continue to sprinkle in overseas dates throughout the summer. The group is pegged to play dates June 6 at the Rock Im Park festival in Nuremberg, Germany, and will travel between continents until a pair of gigs Aug. 22 and 24 at the U.K.'s Reading and Leeds festivals.<BR><BR> As for Newsted, the bassist has become a official member of veteran metal act Voivod. He also produced the band's upcoming self-titled album, which is due March 4 via Newsted's Surfdog imprint Chophouse Records. <BR><BR> -- Todd Martens, L.A.</p>
+
+Автор: Yermola
+
+### 23.03.2003 news Jason Newstead примкнул к Оззи...
+
+<p>Экс-бассист Metallica Джейсон Ньюстэд примкнул к Оззи Озборну. Ларс Ульрих, барабанщик METALLICA, в радио-интервью отметил, что его бывший коллега, видимо, "потерялся", если принял предложение Великого и Ужасного.</p>
+<p>"Если бы Ларс был бы достаточно хорош, он присоединился бы к ОЗЗИ тоже", - сказал Джейсон в интервью греческому журналу Rock On. "Ларс может поцеловать меня в задницу. Я думаю, что он просто забыл, какая группа разогревала выступления Озборна в далёком 1986 году (намёк на METALLICA)".</p>
+<p>Ньюстэд, который всё ещё и постоянный член Voivod, будет выступать дважды на предстоящем ОззФесте и в течение канадского тура Озборна в июне. Ведь в обоих событиях будет участвовать и Voivod.</p>
+<p>В это же время поступают комментарии от других участников проекта Озборна. Барабанщик Майк Бордин сказал, что он удовлетворён включением Джейсона в коллектив. "Это событие поразило меня, я знаю Джейсона уже 15 лет", - сказал Майк. "Я знаю его с тех пор, когда он сменил в METALLICA моего друга Клиффа Бартона, который погиб".</p>
+<p>Ирония судьбы ещё заключается и в том, что бывший басист Озборна Роберт Трухилио, только что, присоединился к METALLICA. Бордин сравнил это событие с бейсбольным трэйдом. Роберт Трухилио отыграл свой последний концерт с Оззи 14 марта и был постоянным участником его группы с 1995 года.</p>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Jason Newstead is in Ozzy Osborne band
+
+<p>Ex-METALLICA bassist Jason Newsted has hit out at Lars Ulrich for stating in a recent radio interview that Newsted seemed "lost" by accepting the job as OZZY OSBOURNE's new four-stringer.</p>
+<p> "If Lars was good enough he would have joined OZZY, too," Jason told Greek magazine Rock On. "Lars can kiss my ass. I think that he doesn't remember which band was opening the shows for OZZY back in 1986 [referring to METALLICA's opening slot with OSBOURNE—ed.]."</p>
+<p> Jason Newsted, who is still a "full-time member" of VOIVOD, will pull double duty both on this summer's Ozzfest and the BLACK SABBATH singer's Canadian tour in June.</p>
+<p> OSBOURNE with special guests VOIVOD start the Canadian tour June 1 in Vancouver. Ozzfest 2003 begins June 28 in San Antonio.</p>
+<p> OZZY OSBOURNE drummer Mike Bordin says that he is excited about working with his band's newest member, former METALLICA bassist Jason Newsted. "It's exciting to me, I mean, I've known [Jason] for 15 years," he said. "I've known him since he replaced my friend [Cliff Burton]. That was my friend in METALLICA that died. I mean that was the first person I've ever played music with was Cliff. So, I've known the guy. I'm comfortable. I've seen him coming 14 years now, so I think I'm ready."</p>
+<p> Osbourne's former bassist, Robert Trujillo, ironically enough, has just joined METALLICA's lineup, which Bordin thinks is sort of like a baseball trade. He says: "It's (Red Sox shortstop) Nomar (Garciaparra) for (New York Yankees shortstop) Derek Jeter. There's no (Texas Rangers shortstop Alex Rodriguez) A-Rods here."</p>
+<p> Trujillo's last gig with Osbourne's band was Friday (March 14th). Trujillo had been Ozzy's bass player since 1995.</p>
+
+Автор: Vit Belov
+
+### 03.04.2003 articles Война слов
+
+<p><B>Бойня в Ираке породила войну мнений во всем мире. Каждый считает долгом высказать умные и не очень мысли насчет Буша, Ирака и прелести демократии, распространяемой с помощью бомб. Коснулась сия напасть и музыкантов - отличный повод посмотреть, у кого из них в голове есть извилины. </B><BR> Война слов началась еще прошлой осенью - тогда Том Морелло (гитарист левацких групп RAGE AGAINST THE MACHINE и AUDIOSLAVE) и Серж Танкян (вокалист SYSTEM OF A DOWN) создали организацию "Огонь правосудия", от имени которой отвечали на все вопросы, связанные с империализмом, эксплуатацией, борьбой за права человека и экспансией США во всем мире. Естественно, все это обильно сдабривалось цитатами из Карла Маркса, речей Че Гевары и примерами из истории. Эта левая пропаганда жутко не понравилась Билли Милано, лидеру старой и бестолковой нью-йоркской команды M.O.D.: "К черту правосудие, пусть эти два миллионера-коммуниста едут в Ирак и там тратят свои миллионы на мир! Да здравствуют бомбы и нефть!". Миллионеры-коммунисты этот выпад проигнорировали, а меломаны прилепили ярлык к Милано - "неофашист". <BR> Вся эта перепалка так и осталась бы в прошлом, но началась война. Как только Буш объявил свой ультиматум, три девицы из DIXIE CHICKS, обладатели "Грэмми", вышли на сцену с плакатами: "Сколько иракцев стоит один галлон нефти?" и "В одной техасской деревне исчез дурачок. Вы его не видели?". Следом среагировал Эминем - парень высказался незамысловато: "Война - фигня, к черту войну, мне не нужны кадры невинных жертв на ТВ - лучше крутите мои клипы!" Поначалу пацифисты вели себя достаточно пассивно, ограничиваясь воспоминаниями об эре хиппи и призывом к миролюбию. Зато их оппоненты показали себя ярыми сторонниками Белого дома и его аргументов. 18 марта Майк Портной, барабанщик великолепной прогрессив-команды DREAM THEATER, начал стыдить всех критиков Буша: "Я не люблю войну. Но то, что было начато 11 сентября, должно быть завершено - США должны разгромить терроризм и защитить свободу! Все, кто против, идите-ка домой и посмотрите еще раз хронику той катастрофы: как горят здания, люди выпрыгивают из окон и рушится символ процветания!". <BR> Как только на головы иракцев посыпались бомбы и кадры войны пошли по ТВ, Фред Дерст, лидер рэпперов LIMP BIZKIT, не удержался от комментариев: "Вы видели это? Сюрреализм какой-то… Я молюсь за народ Ирака и за всех, кто погибнет. Но я молюсь и за победу наших солдат - пусть они скорее возвращаются домой с победой! Не нужно больше протестовать против войны, нужно поддержать нашу страну: вперед, США!". <BR> К числу милитаристов примкнул и Закк Уайлд, гитарист Оззи Осборна: "Войска США будут крушить врагов и господствовать везде! Это лучшая армия в сегодняшнем мире!". Интересно, с какими чувствами этот парень играет с Оззи песни "War Pigs" ("Военные свиньи") и "God thank you for the bomb!" ("Господи, спасибо за бомбу!")? В том же ключе выступил и древний рокер Тед Наджент - мол, во Второй мировой войне вмешательство США помогло спасти миллионы евреев, и на этот раз война поможет спасти невинных! По каким учебникам этот парень учил историю и как он смотрит новости: кого должны спасти американские бомбы? Лучше умереть от оружия свободы, чем жить при диктатуре Хусейна? <BR> В конечном счете большинство американских музыкантов так или иначе поддержали войну. Зато меньшинство принялось активно действовать - Лени Кравиц и R.E.M. отправились в студию писать антивоенные песни, а Зак Де Ла Роша, экс-вокалист RAGE AGAINST THE MACHINE, уже это сделал, назвав при этом Буша палачом, а Серж Танкян и Том Морелло каждый концерт начинают с антивоенных речей. Правда, власти страны образцовой демократии ставят им палки в колеса как могут: с 25 марта на MTV запрещены к показу все песни со словами "Ирак, "война", "бомба" и т.д., а из эфира уже сняты несколько клипов: "Boom!" SYSTEM OF A DOWN и "Holy Wars" MEGADETH (последний, кстати, вышел ровно десять лет назад во время первой иракской войны и содержал жестокие кадры бомбардировок). Хуже всего пришлось группе B-52 - ребята ничего не имеют против войны, но они называются так же, как и бомбардировщики, которые несут 1-тонные заряды свободы иракцам, и потому упоминание этой группы в прессе и эфире сейчас нежелательно… <BR> В Европе иной расклад - антивоенные настроения доминируют. Только шведы MARDUK выпали из общего ряда: "Война не наша проблема - пусть танки действуют!". Зато немцы SODOM в прошлом году выпустили альбом, целиком посвященный американским приемам ведения войны во Вьетнаме - этакий экскурс в историю уничтожения жизни. Теперь эта работа снова актуальна. А их земляки DESTRUCTIОN на днях записали кавер-версию песни британцев THE EXPLOITED с красноречивым названием "Fuck The U.S.A.". <BR> Только Ларс Ульрих, барабанщик METALLICA, высказался наиболее разумно в этой перепалке: "Если ты музыкант и люди слушают твое мнение, это вовсе не значит, что нужно комментировать все подряд. Я уважаю то, что делают Том Морелло и Серж Танкян, всех тех, кто столь эмоционально выступает сегодня по проблеме войны, но я не хотел бы использовать имя METALLICA как трибуну. Читайте газеты, смотрите, что пишут в Интернете, создавайте свое собственное мнение и не слушайте какого-то придурка только потому, что он играет в какой-то рок-группе. Музыканты - не самые умные люди, так что лучше думайте своей головой!". <BR> <B>MAKE MUSIC NOT WAR!</B></p>
+
+Автор: Tornado
+
+### 10.04.2003 news Восьмой альбом METALLICA
+
+<p>10 июня 2003 года на Elektra Records выйдет восьмой альбом группы METALLICA под названием "St. Anger". Записан альбом был в собственной студии группы с продюссером Bob Rock'ом. Он будет содержать одиннадцать трэков на семьдесят пять минут. Вдобавок к ним, релиз будет содержать бесплатный DVD с репетиционными видео-записями. Трэк-лист альбома включает в себя:</p>
+<P> 1. Frantic<BR> 2. St. Anger <BR> 3. Some Kind of Monster <BR> 4. Dirty Window <BR> 5. Invisible Kid <BR> 6. My World <BR> 7. Shoot Me Again <BR> 8. Sweet Amber <BR> 9. Unnamed Feeling <BR> 10. Purify <BR> 11. All Within My Hands</>
+
+Автор: Dimas
+
+### 02.06.2003 news METALLICA выйдет на пять дней раньше
+
+<p>Elektra Records приняла решение перенести дату выпуска нового альбома METALLICA "St. Anger" с 10 июня на 5 июня.</p>
+
+Автор: Dimas
+
+### 24.06.2003 reviews Страшное перевоплощение
+
+<p>То, что новый альбом Metallica будет не похож на предыдущие работы, а уж тем более на любимые всеми пластинки 80-х, было ясно с самого начала. Но чтобы так? Главный эффект, который Вы почувствуете, прослушав этот альбом несколько раз, эффект усталостного раздражения. Мне понадобилось послушать альбом 5 раз, Вы представляете, что со мно произошло. Можно говорить, о непонятном вокале Хэтфилда с пригавканиванием в духе rap-metal, о звучание барабанов Ульриха, часть из которых была по случаю куплена на распродаже кухонной посуды Zepter. Главное даже не то, что группа выступает в трэндовом жанре Nu-Metal, наслаждаясь тем, что море поклонников всё равно это будут слушать. Песни-то остались длиной от 5 до 8 минут!!! Голова раскалывается на двое и отказывается это понимать. Вот уж во истину тяжёлый металл! Всем было известно, что 'St. Anger' мало кому понравится. И всё равно наворачиваются слёзы бессилия от того, что столь гениальные люди увлекаются не тем, что нравится тебе. Не только не нравится, но и не понимается. Больше ничего не приходит в мой усталый мозг, быстрее подарю кому-нибудь диск, чтобы случайно его не послушать ещё раз.</p>
+
+Автор: Vit Belov
+
+### 07.07.2003 reviews Лучший продавец всех времен и народов
+
+<p>Международный конкурс "Лучший продавец всех времен и народов" завершился, итоги подведены и пришло время их огласить. Нет, победил не дядя Мераб из Еревана, способный продать за полчаса три тонны кураги в розницу, не темнокожий Патрис из Конго, фарцующий скальпами белых первопроходцев, и не легендарная Сауле-апа с алматинского базара, каждый день продающая пропавшую говядину по цене первосортной конины. Три американских парня из группы METALLICA сделали всех. <BR> Если признанный мэтр живописи вдруг начинает рисовать левой ногой, то поклонники и ученики только и скажут: "Старик сделал гениальный ход, а полученные каракули – шедевр всех времен и народов!" Окружающие будут восхищаться до тех пор, пока вдруг не появится сопливый мальчонка из сказки и не заорет: "А король-то голый!" <BR> METALLICA халтурят подобным образом не первый год, но на этот раз "шедевр" получился особым. Впечатляет, что даже это продалось миллионным тиражом. Доработать новые песни напильников – был бы толк, но то непроваренное блюдо, что музыканты поспешно выбросили на продажу, в употребление не годится. Впрочем, будь я на месте METALLICA, сделал бы примерно то же самое – пил беспробудно, тратил миллионы, заработанные десятилетием упорного труда, выкидывал бы подобные фокусы, а какую-то там музыку оставил бы молодым и голодным. <BR> Комментировать эту репетиционную запись заслуженной металлической группы, разжиревшей на старых шедеврах и судебных процессах, особого смысла нет – какой толк выискивать в помойном ведре гениальные находки? Лучше всего о новом коммерческом продукте сказал Алекс Сколник, некогда коллега METALLICA по "металлическому" цеху, а ныне преуспевающий джазовый гитарист, потому цитатой и ограничусь: <BR> "Когда-то METALLICA говорили, что существование группы BON JOVI и ее мультиплатиновый успех – доказательство того, что с шоу-бизнесом не все в порядке. Сегодня то же можно сказать и о них – раз подобное продается, в шоу-бизнесе серьезные проблемы. Новый альбом звучит так, словно группа никогда и не садилась в студию, а лишь нарезала сэмплы из записей ню-металлических групп. Ребятам надо начать все сначала – отправиться в гараж, сыграться как группе и попытаться почувствовать живую энергию музыки. А это – сплошное разочарование".</p>
+
+Автор: Tornado
+
+### 17.07.2003 reviews Падение легенды
+
+<P>Я просто поражаюсь тем, как некогда культовая группа Metallica с гордостью на лице сама себя унижает. Безусловно глупо было надеятся на что-то терпимое после выхода альбомов "Reload" и "Garage, Inc", но все же в глубине души верилось, что металликовцы прозреют и вдохнут запах истины, которая гласит, что группа сбилась с пути. Похоже бас-гитаристы очень сильно вляют на музыку группы. После трагичного ухода Клиффа Бартона музыка Metallica стала более коммерческой, словно они начали подстраиваться под MTV. Но уход Джейсона Ньюстеда оказался для группы фатальным. Кто бы знал в 1981 году, что молодые двадцатилетние ребята через десять лет станут культовой трэш-металлической группой, а еще через десять запутаются в собственной паутине, которую постепенно плели себе, попав на телевидение. Вокал, риффы и даже ударные изменились настолько, что теперь музыка группы стала самым настоящим nu metal'ом: Джеймс начал зачастую рычать (при этом ему подрыкивает новый басист), Кирк забыл о своих изумительных соло, а Ларс в свою очередь пропил свои любимые ударники, и вместо них стал стучать поварешкой по ржавой кастрюле, долбя при этом по бочке, которую не смог никому продать из-за ее негодности. И это не преувеличение. Теперь калифорнийский квартет наверняка будет записан в группировку Korn Family и обязательно засветится на Ozzfest. Самая главная проблема большинства современных металлистов - это то, что они совмещают агрессию с тупостью, что с конца 80-х до середины 90-х делали только единицы. Трэш-металлическое поприще превратилось в глубокое болото, которое с каждым новым альбомом указанного стиля становится все вязче и вязче и кажется, что нет больше шансов на то, что когда-нибудь оно рассосется. А мы тем времен будем наблюдать пафосное падение групп с высочайших вершин, которых они когда-то достигли. И когда упадет последняя легенда, тогда наступит необрамый водоворот, который именуется коллапсом. А коллапс заключается в том, что весь метал постепенно станет коммерческим. Все великие группы потонут, а новые группы будут вдохновляться современными бездарями, которые забыли, что метал - это хоть и тяжелая, но все же музыка. Так что остается только надеяться, ведь надежда не умирает никогда...</P>
+Автор: Darkfall
+
+### 18.01.2004 reviews ...И правосудие для всех
+
+<P>
+<P>
+<P>
+<P>Вышедший 25 августа и 5 сентября 1988 г. в США и Европе соответственно, "двойной" альбом Metallica "… And Justice For All" является, наверное, наиболее сложной работой группы. Metallica, пережившая без малого два года назад смерть своего басиста и друга Cliff'а Burton'а и обогащенная новым "приобретением" - Jason'ом Newsted'ом (ex-Flotsam And Jetsam), - "опробованном" на знаменитом "The $5.98 EP/Garage Days Re-Revisited" (1987) и нескольких клубных концертах, 29 января вошла в студию Джима Дэвида "One On One" в Лос-Анджелесе и приступила к работе. В качестве формального продюсера альбома музыкантами был выбран Flemming Rasmussen, уже работавший с группой над альбомом "Master Of Puppets" (1986). Надо сказать, что материал будущего альбома был подготовлен и отрепетирован группой уже к середине декабря 1987-го. Однако Rasmussen, по причине выполнения прежних контрактынх обязательств, появился в студии лишь через полтора месяца - 15 марта 1988-го. До этого момента группа работала с Майклом Клинком, успев записать лишь партии ударных к двум трэкам - "The Shortest Straw" и "Harvester Of Sorrow" - и два кавера - "Breadfan" и "The Prince" - британцев Budgie и Diamond Head соответственно.<BR>Lars Ulrich позже вспоминал о работе с Rasmussen'ом: "Прямо с порога он заявил, что затмит всех, с кем мы когда-либо работали. К этому моменту работа фактически даже и не начиналась, и он, прослушав наш материал, сразу взялся за дело. Он понимает нашу музыку, точно знает, что мы хотим, и экономит нам массу времени в студии. Мы работали со многими людьми, которые не понимали ни Metallica в целом, ни нашу музыкальную концепцию. Поэтому я не верю, что мы сможем когда-нибудь записать альбом без Flemming'а. Вначале, правда, у нас были кое-какие задумки, мы разговаривали с несколькими другими продюсерами, у меня была даже мысль пригласить Geddy Lee из Rush… Правда, хочу уточнить, что Flemming был не более, чем звукоинженером".<BR>С одной стороны, "… And Justice For All" является продолжением, или, по выражению некоторых журналистов, частью второй "Master Of Puppets", с другой - совершенно самостоятельным, даже, наверное, самодостаточным, произведением. В качестве "наследника" "Master Of Puppets" альбом продолжает линию группы на усложнение композиций и достижение настоящей концептуальности всей работы в целом. В качестве же самостоятельного произведения "… And Justice For All" стал еще более "тяжелым" и "монолитным" и одновременно "сухим" по звучанию, вероятно, во многом благодаря иной, нежели у покойного Cliff'а Burton'а, манере игры Jason'а Newsted'а, применяющего довольно-таки жесткую медиаторную технику. При этом, например, основной рифф одноименной с названием альбома композиции "… And Justice For All" был придуман еще во времена "Kill 'Em All" (1983), а массивный инструментал "To Live Is To Die" был почти полностью, включая четыре строки текста, сочинен еще Burton'ом. Идея баллады "One", по словам James'а Hetfield'а, пришла ему в голову несколько лет назад по прочтении романа Далтона Трамбла "Джонни получил свою винтовку" (1938). Музыку к "One" James написал, опять же, по его признанию, после неоднократного прослушивания "Buried Alive" с альбома Venom "Black Metal" (1982). Jason Newsted о вошедших в альбом композициях выразился следующим образом: "Эти вещи настолько техничны, что сыграть их правильно и чисто будет довольно трудно. Я думаю, фэны будут весьма поражены, услышав эти песни".<BR>9 мая 1988 г. запись альбома была окончена, а незадолго до этого, в апреле, Lars Ulrich сообщил прессе название новой работы группы - "… And Justice For All", - прокомментировав его так: "Это не более, чем просто "крутое" название. Его можно принимать и с сарказмом, и с юмором, и серьезно. Я думаю, что лучше каждому решить это для себя самому, чем говорить, что мы подразумеваем под этим". Одновременно название альбома - концовка клятвы флагу Соединенных Штатов Америки - "Америка - единая и неделимая нация под сенью Господа, дарующая свободу, равенство и правосудие для всех" - и название фильма Нормана Джуисона, содержащего резкую критику законодательной и судебной системы США. Соответствующим образом была оформлена и обложка пластинки, на бело-сером фоне которой - статуя богини правосудия, опутанная тянущими ее вниз канатами. В правой, опущенной, руке богини меч, в левой - весы, из чаш которых сыпятся долларовые ассигнации. "Я думаю, изображение говорит само за себя, - говорил Lars Ulrich, - и не нужно чего-либо еще объяснять. Нам всем нравится эта обложка - тут все очень ясно, понятно и выразительно в отличие от запутанной и переполненной деталями картинки к "Master Of Puppets".<BR>Вышедшая работа стала краеугольным камнем в thrash metal. Metallica стала первой группой этого стиля, выпустившей альбом из двух пластинок, которые содержали всего девять песен: по две на первых трех сторонах и три на четвертой стороне. Каждая композиция имеет массу смен ритмических, гармонических и мелодических линий и набита жесткими, "суровыми" риффами "по самое горло". Каждый проигрыш, каждый брейк, каждая нота звучат бескомромиссно, прослушиваются удивительно четко и находятся именно на том месте, на котором должны находиться. Послушайте "Blackened" с ее интро, словно предупреждающем о затаившейся где-то поблизости опасности. Послушайте "Eye Of The Beholder", послушайте "To Live Is To Die", послушайте любую песню альбома и вы сможете уловить чувство тревоги и отчаяния, которое охватывает почти каждого молодого человека, стоящего на перекрестке жизненных дорог и остро ощущающего несправедливость и несовершенство окружающего мира. А в качестве финала альбома идет быстрая и нонконформистская "Dyers Eve", по своему эмоциональному настрою близкая ситуации, когда чувство одиночества и покинутости становится настолько острым и нестерпимым, что хочется лишь одного - полностью "утопить" педаль газа и мчаться по бесконечному пустынному шоссе до самого горизонта, а затем взорваться огромным снопом пламени и сияющих искр в темное небо. Видеоклип, снятый на балладу "One" демонстрирует, ко всему прочему, как выглядит настоящая thrash metal-группа: черные майки, потертые джинсы, развевающиеся волосы и неистовство, неистовство, неистовство - то сдерживаемое, словно порывы благородного гнева, то вырывающееся наружу, словно закаленный в схватках уличный пес.<BR>Именно сложность "… And Justice For All" оказалась для Metallica решающим фактором, когда через два с небольшим года группа приступила к записи очередного альбома, отказавшись от таких звуковых нагромождений. В своей "навороченности" альбом уступает, пожалуй, только работам таких представителей жанра, как Mekong Delta и Psychotic Waltz или Watchtower и Voivod. Этой работой Metallica задала уровень, недостижимый для многих своих "братьев по оружию", и показала остальным, что и heavy metal может быть абсолютно искренним и серьезным искусством.</P>
+Автор: Darkfall
+
+### 08.06.2004 news Lars Ulrich был госпитализирован, но всё обошлось
+
+<P><B>Lars Ulirch</B> был госпитализирован с неизвестной болезнью&nbsp;6 июня всего за несколько часов до <B>Download</B> фестиваля&nbsp;в Великобритании, где <B>METALLICA</B> выступала в роли headliner'a. Уже 7 июня музыкант смог выступать, но интересно то, что на <B>Download</B> его партии исполнили<B> Dave Lombardo (SLAYER),</B> <B>Joey Jordison (SLIPKNOT) </B>и гитарный техник группы <B>Flemming Larsen. </B>Трэк-лист этого выступления:</P>
+<P>01. <B>Battery</B> (w/ <B>Lombardo</B>)<BR>02. <B>The Four Horsemen</B> (w/ <B>Lombardo</B>)<BR>03. <B>For Whom The Bell Tolls</B> (w/ <B>Jordison</B>)<BR>04. <B>Creeping Death</B> (w/ <B>Jordison</B>)<BR>05. <B>Seek And Destroy</B> (w/ <B>Jordison</B>)<BR>06. <B>Fade To Black</B> (w/ <B>Lars</B>' drum tech <B>Flemming Larsen</B>)<BR>07. <B>Wherever I May Roam</B> (w/ <B>Jordison</B>)<BR>08. <B>Last Caress</B> (w/ <B>Jordison</B>)<BR>09. <B>Sad But True</B> (w/ <B>Jordison</B>)<BR>10. <B>Nothing Else Matters</B> (w/ <B>Jordison</B>)<BR>11. <B>Enter Sandman</B> (w/ <B>Jordison</B>) </P>
+Автор: Vit Belov
+
+### 14.07.2004 articles Хроника: Dave Mustaine поливает всех грязью - Гениальный бизнесмен или истерик
+
+<P>После непродолжительного перерыва мы вновь выискиваем интересные, и не очень, истории из жизни звёзд тяжёлого металла по всему миру.</P>
+<P>Героем прошедших дней стал Dave Mustaine. Как и положено, в захватывающем водевиле ему подпевали несколько других артистов, но начнём с начала. Недавно METALLICA выпустила очередной фильм об истории коллектива ‘Some Kind A Monster’. В нём были использованы материалы и с участием Dave, который был в коллективе на ранней стадии. В интервью британскому журналу Record Collector Mustaine заявил: «Я не очень доволен, что прохожу в этом фильме в течение всего сюжета. Они спросили моего разрешения на использование этих материалов, я отказал. Спрашивается, зачем они спрашивали моего разрешения, если всё равно игнорировали моё мнение?» Репортёр отметил, что Dave подписал бумагу. «Ну и что? Я подписал бумагу 13 сентября 2001 года. В те дни вся Америка ничего не соображала. Я подумывал о совместном проекте с моими бывшими коллегами Lars Ulrich и James Hetfield, но сейчас эта тема закрыта. Это был последний обман. Даже если я встречусь с Lars, всё равно мы не договоримся». Особенно Dave не понравился момент, где они дерутся с Ulrich, и, высказав эту гневную тираду, в которой даже упомянул о подаренном ему на день рождения (13 сентября) Мерседесе, Dave не мог не понимать, что оказал огромную услугу фильму METALLICA, который собрал в первый уик-энд 45000 долларов. Lars Ulrich с благодарностью подхватил эстафету: «Мы не разговаривали с Dave на тему этого фильма, но я надеюсь, что режиссеры Joe и Bruce отослали ему сцены с его участием. По крайней мере, он не слишком протестовал». Неожиданно к раскрутке фильма подключился Kerry King (SLAYER), он подтвердил, что с Mustaine невозможно работать. Напомню, что Kerry провёл некоторое время в MEGADETH, как сессионный концертный гитарист. В интервью Guitar World King сказал: «Я отыграл с MEGADETH пять концертов, но даже если бы я остался, я не провёл бы в группе больше года. Mustaine просто диктатор, я был горд, что он попросил помочь, но после пяти концертов я сказал себе, я в SLAYER и мне больше ничего не надо». </P>
+<P>Также на этой неделе Dave Mustaine просто разоткровенничался и рассказал всё о своих прошлых и нынешних делах в группе, а главное, всё о своих прошлых коллегах по группе.</P>
+<P>«Я расскажу всё, о чём меня так часто спрашивают в интервью. В хронологическом порядке. Почему Nick Menza был уволен? Почему ушёл Marty Friedman? И почему MEGADETH, в конце концов, развалились, когда ушёл я сам? Мы записали ‘Countdown to Extinction’, который занял второе место в чартах, и все мы были очень вдохновлены этим и готовились к записи следующей пластинки. Но у меня возникли проблемы с наркотиками, все члены группы пытались помочь мне, и с их помощью мне удалось покончить с этим. Мы приняли антинаркотический и антиалкогольный закон внутри коллектива. Со временем ‘Youthanasia’ была записана, но из-за внутренних разногласий с самим собой я решил покинуть группу, так как были написаны песни для следующего альбома MEGADETH, я решил выпустить сольник. Capitol (издающий лэйбл, прим. авт.) согласились на мои условия, так как ‘Youthanasia’ тоже попала в чарты, где заняла четвёртое место. Мне дали 250000 долларов, и я записал punk-metal альбом с участием Lee Ving, названный MD.45. Но Capitol совсем не занимались этой пластинкой, потому что их интересовал только MEGADETH. Мой сольник провалился, поэтому я должен был продолжать с MEGADETH и решил записать ‘Cryptic Writings’. Но случилась одна проблема, мы расстались с менеджером Ron Laffite, которому предложили работу на Elektra. Расстались мы очень плохо, он наделал кучу заявлений и рассказал всем о моих проблемах. До сих пор никто не извинился за тот скандал, а он изменил динамику развития MEGADETH навсегда. К нам пришёл новый менеджер Mike Renault, неплохой парень, но у него был друг Bud, который до этого работал с FOREIGNER и захотел превратить MEGADETH в эту группу. Когда я писал альбом менеджмент постоянно давил на меня, и эти ребята присутствует на нём, как «авторы-привидения». Это угнетало меня, и случился разлад между мной и группой. ‘Cryptic’ вышел неплохим, но это уже был не thrash и не speed. Примерно в тоже время, когда вышел ‘Countdown’, вышла ещё одна запись, которая называлась ‘Nevermind’ (видимо, альбом NIRVANA, прим. авт.). С тех пор MEGADETH были на распутье, по какому пути пойти? По альтернативному или металлическому? Вы можете подумать, что мы выбрали альтернативу? Но, честно говоря, пока что мы не выбирали этот путь. Я был доволен результатами ‘Cryptic’, но мой менеджер настоял на том, чтобы выкупить права у BMI и самим заниматься промоцией своей пластинки, так можно было заработать больше денег. Что из этого вышло? ‘Countdown’ – дважды платиновый альбом. ‘Youthanasia’ – просто платиновый. А ‘Cryptic’ всего лишь золотой. Кроме этого, у нас случился разлад с барабанщиком Nick Menza, который повредил ногу, но кроме этого, он имел проблемы с наркотиками, что сказывалось на его игре. Но я не терял контакта с ним, в течение пяти лет мы были очень близки. Затем пришёл DeGrasso, которого я знал по работе в MD.45, но это было не то. Многие говорили мне, что он не подходит для MEGADETH, и я сделал большую ошибку. Но как я мог ошибиться с парнем, который так хорошо играет? Я никому не поверил, и мы начали работу над ‘Risk’. Пока мы работали, Bud писал письма другим членам коллектива, в которых говорил, что вклад их в работу очень маленький. Они естественно злились и вымещали свою злость на мне. Bud хотел нас перессорить, как Али-Баба. По его наущению я работал с Brain Howe (певец BAD COMPANY), а также с какой-то девчонкой, лауреатом Country Music Awards. Это было большим риском, поэтому я и назвал альбом ‘Risk’, потому что догадывался, что этот альбом можно назвать карьерным самоубийством. Когда ‘Risk’ вышел, я был уверен, что альбом великолепен, просто он не был альбомом MEGADETH. По этой причине я обратился к группе с предложением записать металлический альбом. Мне кажется, что это стало причиной ухода из группы Marty. Я уверен, что дело не в моей музыке или лирике, просто Marty нравилось, что мы пошли по альтернативному пути. Плюс ко всему, наш продюсер Dan Huff «воткнул» мне нож в спину, не сообщив Friedman, что стирает его соло, а поверх записывает мои. Я обидел Marty, и разрыв был очень нервным. На его место пришёл Al Pitrelli. Мы начали запись ‘The World Needs A Hero’, но возникли проблемы с Al, который был одним из лидеров в TRANS SIBERIAN ORCHESTRA и SAVATAGE, а здесь лидер уже был. Второе место занимал Ellefson (его Mustaine называет Junior (младший), прим. авт.), а третье DeGrasso, и никто из них не хотел потесниться. Мы пришли с новым альбомом на Capitol и сказали, что хотим разорвать наше соглашение. Боссы сделали нам предложение, мы отдаём им две новых песни, а они выпускают с ними сборник лучших вещей. После этого мы не выпускам новую пластинку в течение девяти месяцев. Я согласился. Но каким-то образом чувак с Capitol Steve Schner разослал сотни промо-копий ‘The World Needs A Hero’ по всему миру. Пока мы ждали 9 месяцев, альбом продавался повсюду, мы даже нашли один диск в магазине в Нью-Йорке. На Napster Вы могли скачать альбом целиком. Поэтому когда он вышел легально, было продано всего 200000 копий. Возможно, это круто для других групп, но не для меня. Я увидел, что всё, что я строил 20 лет, умерло у меня на глазах. Начался разлад, мне не хотелось никого видеть, я начал пить. Я заснул на своей руке (???) и повредил её. Когда я проходил курс лечения, я попросил своего нового менеджера Larry Mazer, дать мне передышку, но он не хотел слушать. Пока я был в больнице, Larry, Junior и другие ребята пошли на Sanctuary и взяли треть бюджета на запись пластинки: 333000 долларов. Когда их там спросили, где Dave, они ответили, что я прохожу терапию с лошадьми. Все прекрасно знали, что я боюсь лошадей, это был какой-то цирк. Когда я вернулся домой, я сказал Larry, что уволил его и распустил MEGADETH. Я предлагал Junior встретиться и показать ему свою руку, но он сказал, что ему хватает того, что я говорю. Когда же при встрече, я попытался что-то ему объяснить, он поблагодарил меня саркастически и начал орать на меня на парковке в присутствие моего сына. Даже после этого я не надрал ему задницу. С Jimmy мне также не удалось поговорить, его подруга назвала меня лжецом и положила трубку. Я опубликовал пресс-релиз и ждал, что, быть может, он позвонит, извиниться за свою подругу, но он и не подумал. Я постоянно пытался наладить контакт с Junior, но он был слишком жесток и забыл, что мы проработали вместе 20 лет, я заботился о нём, платил ему деньги, даже тогда, когда один соло-гитарист и три продюсера хотели выгнать его из группы, потому что он не очень хорош в студии. 18 месяцев спустя я собрался записывать новый альбом и обратился к Ellefson с предложением присоединиться ко мне, я сказал, что собираюсь собрать состав, который записывал ‘Rest In Peace’. Я звонил всем троим и объяснял, что это просто запись, а не полноценный re-union. Я напоминал, что кто-то уже взял 330000 долларов и надо бы их отработать.</P>
+<P>Я рассказал Вам, всё, что случилось в группе. Мне пришлось продать всё своё оборудование, чтобы погасить долг, который ни один из них не вызвался оплачивать. Не переживайте слишком сильно по этому поводу. Junior кинул меня и MEGADETH, но когда Вы увидите Nick и меня снова вместе, всё это уже не будет иметь значения». </P>
+<P>Это не всё, что имел сообщить Dave Mustaine на своём сайте. Кроме прочего, он подробно рассказал, как заснул на руке и торговался о деньгах со своими коллегами. Но мне кажется, уже этой информации достаточно, чтобы понять, что все бывшие участники MEGADETH жадные, неталантливые, сварливые, психованные наркоманы, а Dave Mustaine – талантливый, щедрый, доброжелательный (по лицу не скажешь), спокойный трезвенник, который записал новый альбом MEGADETH, очень напоминающий ‘Rest In Peace’. Также понятно, что Dave активно продвигает вперёд свои финансовые дела, и вся эта ругань с Junior и Lars Ulrich подчиняется желанию продать побольше копий нового альбома, а также переизданных старых альбомов. Уже сейчас можно сказать, что на концертах re-union MEGADETH будут аншлаги, вот только читать подобное о своей любимой группе фэнам не очень приятно. Впечатление, что тебя окунули головой в помои. Что поделать, бедному Mustaine нужно зарабатывать деньги на новый Mercedes, ведь старому уже почти три года.&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 27.08.2004 articles Хроника: Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах
+
+<P>Хроника: <EM>Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах</EM></P>
+<P>Мы возвращаемся из отпуска с очередной серией Хроники. На прошлой неделе Alice Cooper обрушился с критикой на рок-звёзд, которые агитируют в США за демократического кандидата John Kerry на выборах президента (а таких, кстати, большинство). Он назвал, подобные вещи «преступлением против рок’н’ролла», который по определению должен быть вне политики. «Когда мы начинали играть эту музыку, мы сбегали из школы, чтобы волочиться за девочками, пить пиво, а не читать Washington Journal». «Если Вы прислушиваетесь к rock star, голосуя на выборах, Вы больший дурак, чем они. Почему мы Rock star? Да, потому что мы дураки!» «Это не значит, что меня не волнует, что ждёт нашу страну, это значит, что я не считаю, что моё мнение должно что-то значить для Вас». Alice занял нейтралитет и просто продолжает свой американский тур.</P>
+<P>Некогда metal-hard rock журнал Kerrang! назвал лауреатов прошедшего сезона. Лучшей группой на планете стала METALLICA, которая обошла в этой номинации SLIPKNOT, THE DARKNESS, H.I.M., RED HOT CHILLI PEPPERS и BLINK 182. Лучшим новичком года названа банда VELVET REVOLVER, состоящая из бывших участников GUNS’N’ROSES и STONE TEMPLE PILOTS. Настоящий прорыв совершили THE DARKNESS, которые стали обладателями двух наград, как лучшая британская группа и как лучший концертный состав. Из других лауреатов: лучший альбом - MUSE "Absolution", лучшее видео - H.I.M. – "Funeral of Hearts", зал славы – GREEN DAY, дух рока – ANTHRAX.</P>
+<P>Вчера в Тель-Авиве состоялся второй Metalist fest, хэдлайнерами которого должны были стать шведы EVERGREY. К несчастью даже за рубежом тяжёлый шоу-бизнес находится в таком плачевном состоянии, что организаторы и группы продолжают терять достаточно большие деньги. Из официального заявления Oron Tonami из Metalist Productions: «EVERGREY не вылетели из Швеции, из-за того, что, якобы, им не были предоставлены обратные билеты на ночь с 28 на 29 августа. Мы отсылали уведомления о приобретении этих билетов по факсу дважды, поэтому я думаю, что это объяснение не выдерживает никакой критики. А ведь только в вечер накануне вылета менеджмент группы подтверждал намерение EVERGREY вылететь в то утро. Тысячи людей, которых EVERGREY кинули, очень расстроены этим событием». Мне думается, что тысячи людей расстроены, а Oron потерял ещё и кучку денег, которые являются основной причиной этого заявления. EVERGREY не замедлили ответить, в своём сообщении они рассказали, что купленные обратные билеты были не на тот день, который им надо. После этого невнятного оправдания на группу обрушились с критикой все фэны, обвинявшие их во всём от сионизма до антисемитизма. Tom Englund (гитара/вокал): «Я вынужден более подробно объяснить ситуацию. Мы были очень впечатлены предложением выступить в Израиле, такой возможности нам может больше не представится. Мы назначили очень маленький для нас гонорар 700 долларов, кроме этого, организатор по контракту должен был приобрести нам билеты на самолёт из Гётеборга в обе стороны и оплатить проживание. Всё дело в том, что мы должны были вернуться в ночь с пятницы на субботу, а не с субботы на воскресение. Мы заняты записью и в субботу должны работать со струнным квартетом и солистами. Началось всё с того, что нам был забронирован самолёт из Стокгольма, до которого 6 часов пути (540 км). Мы договорились, что организатор заплатит нам ещё 1000 долларов на автобус и водителя до Стокгольма (поверьте, это стоит гораздо дороже). Уже в Стокгольме в шесть часов утра мы узнали, что возвращаемся не в тот день. Поменять билеты не удалось, и мы не вылетели». Здесь пресс-релиз в сокращённом варианте. В оригинале Tom беспрестанно объясняется в любви к израильтянам. Конечно, чувствует, что попал. Пускай, контракт не соблюли в Metalist Production (Englund обещал его предъявить, в случае чего), надо понимать, КОГО он кинул. Могли не поехать, куда угодно, но только не в Израиль. Я думаю, их теперь живьём съедят, а продажи в США резко упадут.</P>
+<P><BR>Бывший барабанщик EMPEROR Bard "Faust" Eithun ответил на этой неделе на многочисленные вопросы фэнов, скопившиеся в гостевой на его сайте. Вот некоторые из наиболее интересных его ответов: «Все, кто хоть как-то связан с музыкой, переживают смерть Quorthon из BATHORY. После его смерти появилось множество публикаций, в которых Quorthon идеализируется и идолизируется. Я не большой сторонник подобных вещей. Мне просто нравилась музыка BATHORY и печально, что умер один из основателей true black-metal. Именно, поэтому я приму участие в одном all-star проекте. На фестивале в Bergen Hole In The Sky я выйду на сцену вместе с&nbsp; Samoth, Apollyon, Grutle, Satyr, Abbath, Gaahl, Nocturno Culto и Ivar, чтобы сыграть классические вещи BATHORY». Кроме этого, Faust заявил, что не участвует сейчас больше не в каких проектах, так как основная их цель обыденный заработок денег и сиюминутное привлечение внимания к своей персоне. «Я не верю в re-union EMPEROR со мной. Во-первых, нет никаких предпосылок к возрождению группы, а во-вторых, в любом случае Trym будет более подходящей кандидатурой, так как он записывал с группой всю классику».&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 02.12.2005 news METALLICA начали репетиции к новому альбому?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=146 alt="" hspace=0 src="/images/news_rus/2005.12/9808.jpg" width=200 align=right border=5>Барабанщик <STRONG>METALLICA Lars Ulrich</STRONG> сообщил датской прессе, что 29 ноября группа начала репитиции материала к новому альбому.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Правда газету это не сильно волновало. <STRONG>Lars</STRONG> - герой датской светской хроники - встречается с&nbsp;голливудской звездой датчанкой <STRONG>Connie Nielsen</STRONG>, с которой собирается сочетаться законным браком после развода с&nbsp;предыдущей женой. Будет ли у <STRONG>Ulrich</STRONG> время, чтобы сочинить хоть немного хороших песен для последователя "<STRONG>St. Anger</STRONG>"?&nbsp;Ведь <STRONG>Connie</STRONG> собирается ещё и завести детей.</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;&nbsp;:)</FONT></P>
+Автор: Vit Belov
+
+### 17.02.2006 news METALLICA назвали продюсера
+
+<P>Продюсером<STRONG> METALLICA</STRONG>&nbsp;на новом альбоме станет <STRONG>Rick Rubin</STRONG> (<B>SYSTEM OF A DOWN</B>, <B>AUDIOSLAVE</B>, <B>SLAYER</B>, <B>SLIPKNOT</B>).</P>
+Автор: Vit Belov
+
+### 15.03.2006 news METALLICA выступят в Эстонии
+
+<P><STRONG>METALLICA</STRONG> заедут в Эстонию во время своего будущего турне по Европе. 13 июня группа выступит в Таллине на <STRONG>Song Festival Grounds</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.10.2006 news METALLICA выпускают видео-клипы
+
+<P>4 декабря увидит свет новый DVD <STRONG>METALLICA</STRONG> <STRONG>"The Videos 1989-2004". </STRONG>Как ясно из названия, на диск попали все видеоклипы, снятые с 1989 по 2004 годы. Звук&nbsp;на этом DVD перемикширован в формате 5.1 .&nbsp;Трэк-лист:</P>
+<P>01. <B>One</B> (7:41)<BR>02. <B>Enter Sandman</B> (5:28)<BR>03. <B>The Unforgiven</B> (6:21) <BR>04. <B>Nothing Else Matters</B> (6:24) <BR>05. <B>Wherever I May Roam</B> (6:05) <BR>06. <B>Sad But True</B> (5:26) <BR>07. <B>Until It Sleeps</B> (4:32) <BR>08. <B>Hero Of The Day</B> (4:30) <BR>09. <B>Mama Said</B> (4:51) <BR>10. <B>King Nothing</B> (5:26) <BR>11. <B>The Memory Remains</B> (4:37) <BR>12. <B>The Unforgiven II</B> (6:33) <BR>13. <B>Fuel</B> (4:35) <BR>14. <B>Turn The Page</B> (5:49) <BR>15. <B>Whiskey In The Jar</B> (4:43) <BR>16. <B>No Leaf Clover</B> (5:33) <BR>17. <B>I Disappear</B> (4:28) <BR>18. <B>St. Anger</B> (5:50) <BR>19. <B>Frantic</B> (4:55) <BR>20. <B>The Unnamed Feeling</B> (5:29) <BR>21. <B>Some Kind Of Monster</B> (4:28) <BR>Bonus:<BR>* <B>2 Of One</B> - Introduction (5:43) <BR>* <B>One</B> (Jammin' Version) (5:05) <BR>* <B>The Unforgiven</B> (Theatrical Version) (11:29) <BR>* <B>"Metallica: Some Kind Of Monster"</B> Film Trailer (2:27)&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 12.11.2006 articles SATYRICON поражены Россией - Abbath выпускает сольник - Почему METALLICA sucks? - Mustaine: &quot;Kirk Hammett эксплуатирует мои наработки&quot; - WASP дали концерт в Москве
+
+<P><EM>Мы возвращаем «в эфир» эту рубрику, обзорной статьи за неделю. Будем надеяться, что она будет выходить по воскресеньям, а там посмотрим… Всё зависит от вашего интереса к моим рассказам:)</EM></P>
+<P><IMG height=210 alt="" hspace=0 src="/images/articles_rus/2006.11/10869.jpg" width=315 align=left border=5>На минувшей неделе без потерь вернувшиеся из России SATYRICON выступили на своём сайте с рассказом о своей поездке. Вот, что написала группа: «Россия была чертовски крута (fucking blast)!. На шоу в Санкт-Петербурге были распроданы почти все билеты. Сам монументальный город даёт вам чувство того, какой, должно быть, была Россия во времена Советского Союза. В Москве был наиболее аншлаговый концерт в нашей истории. Концерт был задержан почти на 2 часа для того, чтобы все вошли. Великолепная публика и особенные чувства! Мы вернёмся…». Приятно, что очень хорошей норвежской black-metal группе понравилось у нас. Мы даже закроем глаза на то, что самый «несоветский» город России Санкт-Петербург назван «колыбелью советской культуры», радостно, что Satyr и товарищи так идеализируют наше ближайшее прошлое. Предлагаю вам обратить внимание на две ключевые фразы: «самый аншлаговый концерт в истории» и «шоу задержалось на два часа». Это очень лестно SATYRICON и страшно для обычных фэнов. Посетители концертов в Москве очень спокойные люди, и счастье, что Россия не Перу, видимо, из-за своего советского прошлого. DARK FUNERAL уже узнали на своей шкуре, что такое недовольная аудитория, и копят на новое оборудование, а пока отменяют концерты. До каких пор, спрашивается, промоутеры будут продавать в клуб «Точка», в котором комфортно могут разместиться только 1000 человек, билетов в полтора раза больше? Интересно, сколько концертов должно пройти, насколько часов нужно задерживать шоу, чтобы люди просто перестали ходить в этот клуб, опасаясь за своё здоровье. Все возражения о том, что в отсутствие ДК им. Горбунова у нас нет площадок для проведения окупаемых шоу таких групп, как SATYRICON и HELLOWEEN, вряд ли успокоят простого потребителя, заплатившего 1000 рублей за билет. Все знают, что при таком наплыве публики невозможно увидеть, что происходит на сцене, или приобрести кружку пива в баре без того, чтобы тебе не отдавили ноги. В настоящий момент ДКГ на ремонте и не исключается вероятность того, что туда больше не будут пускать рок-концерты. К счастью, на прошедшей неделе было объявлено об открытии нового арт-клуба «Сцена» в помещении ДК им. Зуева, что в Сокольниках. Ближайшие концерты, которые стоит посетить – это 10-летие CATHARSIS, презентация нового альбома MORAY EEL. Поговаривают, что клуб вмещает 1500-2000 человек. Надо сходить посмотреть.</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2006.11/10870.jpg" width=225 align=right border=5>Тем временем, в сети началась глобальная раскрутка нового проекта вокалиста IMMORTAL Abbath с оригинальным названием I. Вот выдержки из интервью «героя дня», опубликованного в греческом веб-зине Metal Temple. «…(о названии группы) Я назвал группу I, потому что не хотел называть её Abbath (смеётся). Я подумал, что это гениальная идея, она пришла в голову Demonaz’у, когда я пытался найти название для группы. Я не хотел называть её ABBATH, хотя это и мой соло-проект…(о первом живом выступлении I) Людям понравилось наше выступление. Мне было слегка не по себе на сцене, потому что я подхватил инфекцию. Мы не смогли отыграть большее количество песен. Также у нас был не очень хороший звук, так как мы не проводили саундчека, но, в общем, всё прошло неплохо… (о песне “Far Beyond the Quiet”, посвящённой Quorthon из BATHORY) На самом деле, когда я сочинял этот трэк, я не хотел, чтобы он звучал, как BATHORY, но так получилось. Demonaz послушал эту песню и сказал, что эта песня могла бы стать неплохим посвящением Quorthon, если он сочинит подходящую лирику. Он большой фэн Quorthon и проделал отличную работу… (о направлении музыки на альбоме) Есть несколько влияний на этой пластинке. Мы искали наше «золотое» прошлое, но в то же время открывали новые двери и делали что-то свежее. Это моё мнение, но я думаю, многие люди с ним согласятся. Многие действительно ждут этот альбом…» Также Abbath сказал, что не планирует масштабного турне с I, но, в общем-то, кому это нужно, если в следующем году будет реформирован IMMORTAL, по крайней мере, в своём концертном варианте. Остаётся добавить, что альбом I выходит в скором будущем на Nuclear Blast и почти сразу появится и в России.&nbsp;&nbsp;&nbsp; </P>
+<P><IMG height=234 alt="" hspace=0 src="/images/articles_rus/2006.11/10871.jpg" width=350 align=left border=5>Самой «забавной» новостью последнего времени стало подведение итогов конкурса “Why METALLICA Sucks”, проведённого в США. Организатор конкурса Jason Ferguson рассказывает: «Объявляя конкурс, я переживал, что мы не будем иметь достаточного количества откликов, но я ошибся (ещё бы, прим. авт.). Основными конкурсантами стали мужчины в возрасте от 25 до 30 лет. Другими словами, основными разочаровавшимися в METALLICA стали люди, которые слушали “Hit The Lights” и “Battery” в школе. Были правда фэны и моложе. Например, один 18-летний пацан написал, что он разочаровался в METALLICA очень давно&#61514; Вот они лауреаты:<BR>Первое место Curtis Meyer (это первый отзыв, самый понятный и самый верный, на наш взгляд): «Я везде слышу, что METALLICA была одной из наиболее влиятельных групп в роке. Но я не могу отрицать их настоящую позицию в «саксачестве» (братство сакеров). Почему METALLICA там? Одиннадцать простых слов: Swizz Beatz featuring Ja Rule and METALLICA, “We Did it again”. (рэп-песня с участием METALLICA, прим.авт.)<BR>А вот мнение второго призёра Sam Randazzo: “Да, они сбрили волосы, используют косметику и едут в тур с cock-monkey группами. Главное не это, а то, что они переросли и устали от металла, но по-прежнему жаждут денег».» Дальше я переводить не в силах, сплошные идиоматические выражения. Сочетания из слов, которые здесь писать нельзя. В общем, конкурсанты, участвующие в борьбе за приз, оказались людьми без чувства юмора и не порадовали нас чем-то оригинальным. Но вопрос поставлен верно. Почему все считают, что METALLICA sucks, а METALLICA продолжает продавать диск “St. Anger” миллионами и собирать стадионы? Если кому есть что сказать, пишите на <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A> .</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/articles_rus/2006.11/10872.jpg" width=200 align=left border=5>Гитарист DIMMU BORGIR Silenoz рассказал в интервью журналу Revolver о будущем альбоме группы, который выйдет в начале 2007 года на Nuclear Blast. «Всё, что я могу сказать, он будет монстром», - заявил музыкант. При записи новой работы DIMMU BORGIR не было ни интенсивной пре-продукции, ни производства демо, как на прошлых двух альбомах. Также в записи не принимал участия оркестр, но Silenoz обещает наиболее эпичное и массивное звучание за всю историю Dimmu. «Наш клавишник Mustis предложил свои идеи, и они добавят эпичности пластинке. Должен отметить, что клавиши на демо-версиях к предыдущей работе “Death Cult Armageddon”звучали более помпезно, чем оркестр в окончательном варианте. Не знаю почему, но это так», - продолжает Silenoz. Пока не названный новый альбом DIMMU BORGIR станет также первым концептуальным альбомом в истории группы. Все песни альбома рассказывают о средневековой Европе, прослеживается зависимость от этой эпохи современных политических и социальных злоупотреблений церкви. Вот, как описывает концепцию Silenoz: «В общем, рассказ ведётся об одном чуваке, работающем помощником священника, в один определённый момент он понимает, что не видит себя в Христианстве. Он, как будто, просыпается и понимает, что есть другие возможности и другие силы. Ну, заканчивается всё тем, что он склоняется к тёмной стороне мира». Напомним, что новая работа DIMMU BORGIR была записана в обновлённом составе. Барабанщиком выступил Hellhammer (MAYHEM, THE KOVENANT и мн. др.)</P>
+<P><IMG height=227 alt="" hspace=0 src="/images/articles_rus/2006.11/10873.jpg" width=300 align=right border=5>Ещё одним мощным PR-щиком самого себя является Dave Mustaine. Нет такой недели, чтобы он не выступил с какими-нибудь заявлениями. Тем более в скором времени на Roadrunner выходит новая работа MEGADETH. Правда, сегодня речь пойдёт не о новой пластинке, а о вещах не менее любимых публикой и самим Дэйвом. В интервью британскому журналу Total Guitar Mustaine рассказал о прошлом MEGADETH и о своих чувствах к своим бывшим коллегам из METALLICA. Во-первых, строках Dave отмёл всяческие сравнения MEGADETH с METALLICA. Особенно смелым это высказывание показалось мне в свете того, что Mustaine отвечал на вопрос о влияниях на него на ранних этапах творчества. В общем, как говорится, намёк понят. На современной сцене лидер MEGADETH не видит оригинальных групп: «Большинство команд на Gigantour (бродячий цирк, организованный самим Dave) мне очень нравятся. Вот только я не перевариваю death-metal вокал. У всех певцов есть хороший голос, но они стесняются петь так, как пел я». Голос Дэйва всегда был, можно сказать, не лучшей, но оригинальнейшей составляющей MEGADETH. Пусть уж лучше death-metal певцы рычат. Mustaine также рассказал, что не следит за творчеством своих товарищей по METALLICA, он не слышал “St. Anger” и даже готов поверить, что этот альбом выдержан в стиле кантри. «Я не помню, когда впервые услышал игру Kirk Hammett, я, вообще, его не услышал, он играл у METALLICA на разогреве. К сожалению, с того времени ничего не изменилось. Он стал знаменит, играя мои соло и используя мои гармонии», - сказал, как ударил, Dave. К нашему спокойствию, Ларса и Джэймса он считает гениями. Развеял Mustaine и ещё один миф о том, что его выгнали из METALLICA за пьянство. «Это грустно было слышать», - возмущается он. Главное же, что его беспокоило, это психическое здоровье собственной семьи, которая страдала от этих слухов. Страдала от слухов, а не от пьянства, это стоит отметить особо.</P>
+<P>P.S.: Самые последние новости: в Москве выступили W.A.S.P. </P>
+<P><IMG height=400 alt="" hspace=0 src="/images/articles_rus/2006.11/10874.jpg" width=300 align=left border=5>Blacky Lawless и компания, выступили в московском клубе Точка. В этот раз американцы дадут сразу два концерта, второй состоится сегодня в клубе Б2. Видимо, из-за этого мудрого решения организаторов из Spika Merchandising, в клубе, в отличие от многих предыдущих концертов, вчера можно было находиться. Публика в количестве 1000 человек компактно заполнила «Точку», всем было всё хорошо видно, но и пустот не ощущалось. К сожалению, пропускная способность «на вход», лимитирующаяся двумя «рамками», по-прежнему невелика. В очереди пришлось стоять 35-40 минут, что, учитывая серьёзно минусовую погоду, расстраивало публику. Забавный случай произошёл, когда один из фэнов задал вопрос охране, почему так медленно движемся. Охранник парировал, мол, все вопросы к организаторам. Организаторами, которым стоило задать нелицеприятные вопросы, по его версии, являлись группа WASP и никто иной. Начало шоу задержалось ровно настолько, чтобы все вошли в зал. Сам концерт порадовал старых поклонников группы. Несмотря на явное физическое нездоровье, выраженное на лице лидера WASP господина Lawless, он «давал жару». Интересно, что мимика Blacky напомнила мне поведение знаменитого рестлера Халка Хогана. Главное, чтобы его на сцене удар не хватил в будущем. Следует также отметить отличный звук, к которому мы ещё не привыкли, всё было настолько чётко, что даже не большие знатоки творчества WASP могли легко распознавать знаменитые шедевры группы.</P>
+<P>На следующей неделе: презентация нового альбомы Ольги Романовой, HAMMERFALL комментируют новый альбом, в Италии закрыли телепередачу за Сатанизм и мн. др.&nbsp; </P>
+Автор: Vit Belov
+
+### 30.06.2007 news Сэт-лист от METALLICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тур <STRONG>METALLICA "Sick Of The Studio 07"</STRONG> стартовал 28 июня в Лиссабоне, Португалия. Стал известен сэт-лист того выступления, который будет интересен фэнам, собравшимся на их московский концерт 18 июля:</FONT></P>
+<P>01. <B>Creeping Death</B><BR>02. <B>For Whom The Bell Tolls</B><BR>03. <B>Ride The Lightning</B><BR>04. <B>Disposable Heroes</B><BR>05. <B>The Unforgiven</B><BR>06. <B>...And Justice For All</B><BR>07. <B>The Memory Remains</B><BR>08. <B>The Four Horsemen</B><BR>09. <B>Orion</B><BR>10. <B>Fade To Black</B><BR>11. <B>Master Of Puppets</B><BR>12. <B>Battery</B><BR>- - - -<BR>13. <B>Sad But True</B><BR>14. <B>Nothing Else Matters</B><BR>15. <B>One</B><BR>16. <B>Enter Sandman</B><BR>- - - -<BR>17. <B>Am I Evil?</B><BR>18. <B>Seek And Destroy</B></P>
+<P>Уже на следующем концерте в Бильбао, Испания произошли некоторые изменения в очерёдности песен, а также была исполнена одна новая вещь!</P>
+Автор: Vit Belov
+
+### 17.07.2007 news Новый альбом METALLICA весной?
+
+<P><STRONG>Lars Ulrich</STRONG>, отвечая на вопросы шведского телевидения во время пребывания группы в Стокгольме, сказал, что новый альбом <STRONG>METALLICA</STRONG> планируется к выходу ранней весной будущего года.</P>
+Автор: Vit Belov
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 10.12.2007 news METALLICA: Хотим выпустить отличную пластинку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В журнале фэн-клуба <STRONG>METALLICA "So What!"</STRONG> было распространено интервью членов группы, в котором они рассказали о процессе написания песен для новой работы. В частности,&nbsp;музыканты похвалили своего продюсера <STRONG>Rick Rubin</STRONG>, а <STRONG>James Hetfield</STRONG> сказал следующее: "Мы не хотим записывать хорошую пластинку, мы запишем отличную. Продюсер <STRONG>Rick Rubin</STRONG> поможет нам этого достичь. Мы вернулись опять к настроению "<STRONG>Master Of Puppets</STRONG>", и всё, благодаря ему".</FONT></P>
+Автор: Vit Belov
+
+### 23.01.2008 news METALLICA: Теперь в сентябре
+
+<P>По сообщению из некоторых источников, дата релиза нового альбома <STRONG>METALLICA </STRONG>вновь перенесена. На этот раз CD планируется к выходу в сентябре.</P>
+Автор: Vit Belov
+
+### 06.02.2008 news METALLICA в СПб!
+
+<P><STRONG>METALLICA</STRONG> добавили в даты своего тура концерт в Санкт-Петербурге 18 июля в <STRONG>СКК</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.06.2008 news METALLICA назвали альбом
+
+<P>Выходящий в сентябре новый альбом <STRONG>METALLICA</STRONG> получил название. "<STRONG>Death Magnetic</STRONG>" - так будет называться новая работа монстров thrash-metal.</P>
+Автор: Vit Belov
+
+### 21.07.2008 news Обложка новой METALLICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>METALLICA "Death Magnetic"</STRONG> выходит осенью. Группа опубликовала обложку будущей пластинки.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG height=400 src="/images/news_rus/2008.07/12625.jpg" width=400 border=0></FONT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 24.07.2008 news Трэк-лист новой METALLICA
+
+<P>Мы уже сообщали, что новый альбом <STRONG>METALLICA</STRONG> <STRONG>"Death Magnetic" </STRONG>выходит в сентябре. Стал известен трэк-лист этой работы:</P>
+<P>01. <B itxtvisited="1">That Was Just Your Life</B><BR itxtvisited="1">02. <B itxtvisited="1">The End Of The Line</B><BR itxtvisited="1">03. <B itxtvisited="1">Broken, Beat & Scarred</B><BR itxtvisited="1">04. <B itxtvisited="1">The Day That Never Comes</B><BR itxtvisited="1">05. <B itxtvisited="1">All Nightmare Long</B><BR itxtvisited="1">06. <B itxtvisited="1">Cyanide</B><BR itxtvisited="1">07. <B itxtvisited="1">The Unforgiven III</B><BR itxtvisited="1">08. <B itxtvisited="1">The Judas Kiss</B><BR itxtvisited="1">09. <B itxtvisited="1">Suicide & Redemption</B><BR itxtvisited="1">10. <B itxtvisited="1">My Apocalypse</B></P>
+Автор: Vit Belov
+
+### 02.08.2008 news Дата релиза новой METALLICA
+
+<P><STRONG>METALLICA</STRONG> наконец-то назвали дату релиза своего нового альбома "<STRONG>Death Magnetic</STRONG>". "Историческим" днём для всей современной тяжёлой музыки станет пятница 12 сентября.</P>
+Автор: Vit Belov
+
+### 02.09.2008 news Новое видео METALLICA
+
+<P>
+<CENTER><STRONG>METALLICA</STRONG> опубликовали видео на песню <STRONG>"The Day That Never Comes".</STRONG></CENTER>
+<P></P>
+<P>
+<DIV align=center>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/a6o2WfpHNyA&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/a6o2WfpHNyA&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></DIV>
+<P></P>
+Автор: Vit Belov
+
+### 23.09.2008 reviews METALLICA ищут свои корни
+
+<P>Сложно что-то писать о новом альбоме очень популярных групп. Ещё сложнее что-то сочинять про пластинки таких групп, как METALLICA. Никто не будет спорить, что лучшие годы этих монстров американского трэша миновали уже лет 15 назад. Точнее 17. Все попытки создать что-то стоящее после выхода «чёрного альбома» в 1991 натыкались на непонимание слушателей. Все эти эксперименты, попытки затесаться в модные течения и направления не отпугнули верных фанатов группы. Они всё ещё готовы покупать пластинки METALLICA, но достаточно большой их процент покупает новый материал лишь для того, чтобы убедиться в его полной беспомощности.</P>
+<P>Новый альбом «Death Magnetic» нужно оценивать сквозь призмы предыдущих метаний группы. И только так. В первую очередь это касается предыдущего ужасающего перла «St. Anger», который должен был стать новой главой в истории коллектива. Если бы фэны порадовались этим альбомом, они бы, я думаю, получили бы ещё несколько подобных «какашек» в ближайшие 2-3 года, ведь именно так должна была бы звучать METALLICA нового тысячелетия. Вообще же, мне кажется «лучшая группа 80-х» потерялась в новых реалиях. Раньше METALLICA могла творит свои шедевры, и каждый раз они становились событием на тяжёлой сцене. В 90-х появилось столько новейших направлений, повылазило столько новаторов, пользовавшихся определённым успехом у масс, что у thrash-metal корифеев голова пошла кругом. Что бы такого добавить в свой саунд, чтобы понравиться взыскательной публике? Были, правда, и те, которые не хотели идти на компромисcы, они тихо умерли. Те же, кто остались вживых ужасали своих верных поклонников. У METALLICA всё равно был постоянный успех, и они довольно долго не могли понять, что никому не нужны их эксперименты. В 2003 году уже вовсю выходили мощные thrash-metal альбомы, состоялись несколько знаковых возвращений, и естественно никто не ждал «St. Anger» в том виде, в котором он вышел.</P>
+<P>В 2008 году до группы всё-таки дошло, что можно без опаски рубить thrash-metal. Взяв за основу «...And Justice...», который многие металлисты считают последним хорошим альбомом группы, METALLICA сочинили «Death Magnetic». Легко заметить, что новая работа повторяет классику даже структурно. Первая и последняя вещь самые забойные, в нашем случае «That Was Just Your Life» и «My Apocalypse», четвёртая «баллада» «The Day That Never Comes», предпоследняя инструменталка «Suicide & Redemption», на второй вещи проигрыш в середине. Если покопаться, можно найти кучу других сопоставлений. Но в самой этой структуре заложена главная бомба под «Death Magnetic». Так или иначе начинаешь сравнивать этот альбом с классикой не просто общим впечатлением, которое может и ошибиться, а попесенно. И здесь конец. «The Day That Never Comes» проигрывает «One» и «Welcome Home», «Suicide And Redemption» даже сравнивать с «Orion» нельзя, а «My Apocalypse», хоть и достаточно мощна, не называется «Damage Inc.». </P>
+<P>Дальше о мелодиях. Альбом совсем не хорош, запоминающихся мест очень мало, а те, которые есть, тонут в огромной длительности песен, они, как и прежде, звучат по 7-8 минут. Это не так страшно, как на «St. Anger», но всё-таки на альбоме много «воды».</P>
+<P>Часто упоминают о несомненной «монструозности» METALLICA в тяжёлой музыке. Её альбомы всегда возглавляют разнообразные чарты всех времён и народов, если заходит речь о тяжёлом металле, обыватель всегда вспоминает эту группу и.т.д. Скажу сейчас крамольную вещь. METALLICA оставили глубокий след в истории всей тяжёлой музыки, и трэша особенно, но тем, кто активно слушает все новинки тяжеляка за последние 20 и более лет должно быть понятно, что «Master of Puppets» не самый хитовый альбом века. Были пластинки и более интересные, в том числе и в последние 10 лет. Всё-таки на «мастере» были проходные вещи, были... К чему это я? Да к тому, что тот альбом был знаковым в 80-х, и его копии в новом веке не то, что бы никому не нужны, но претендовать на звание лучшей работы года они уж точно не могут. Если HELLOWEEN запишет второй раз «Walls Of Jericho» никто ведь рад не будет. Так посмеёмся и всё.</P>
+<P>И последнее. О звуке. Музыканты группы продолжают искать, и это очень плохо. Пластинку реализовал Rick Rubin, так вот SLIPKNOT новый, над которым он также потрудился, звучит очень мощно, а вот «Death Magnetic» оставляет кучу вопросов. Понятно, что мы имеем попытку напомнить слушателю о старых альбомах, но даже в конце 80-х — начале 90-х группа звучала более фирменно. А здесь мне даже почудился SLAYER того периода, думается, Kerry King and Co. не стали бы записывать свои современные альбомы на манер «South Of Heaven». У METALLICA же какие-то другие уши, видимо.</P>
+<P>Каков вывод? METALLICA записали тяжёлый альбом, и это хорошо. Те высокие продажи, которые сейчас происходят по всему миру, могут привлечь к нашей любимой музыке дополнительный интерес. Так называемые «фэны одной группы» будут, вообще, в восторге. Так же, как были в восторге фэны MEGADETH от их последнего опуса. Люди же с более широким кругозором, которые имеют возможность сравнивать, вряд ли отдадут «Death Magnetic» пальму первенства. Были альбомы много лучше, даже в этм году.<BR></P>
+Автор: Vit Belov
+
+### 03.12.2008 news &quot;Death Magnetic&quot; признан хорошим
+
+<P>На нашем сайте завершилось голосование, посвящённое новому альбому<STRONG> METALLICA "Death Magnetic"</STRONG>. Большнство проголосовавших (28.7 процента) признали пластинку "хорошим thrash-metal", 23.2 процента послушали альбом только потому, что "METALLICA - это METALLICA". 17.2 процента проголосовавших предложили "пнуть бывших кумиров побольнее". Великолепным признали альбом 13.3 процента респондентов. В меньшинстве остались те, кто не признаёт современного творчества группы. 9.3 процента послушали этот альбом, но их стошнило, а 8.3 процента даже побоялись оценить "<STRONG>Death Magnetic</STRONG>".</P>
+Автор: Vit Belov
+
+### 02.01.2009 news Новое видео на Metallica.com
+
+<P><STRONG>Metallica.Com</STRONG> выложили два новых видео о<STRONG> METALLICA</STRONG> в туре. В нижеразмещённых клипах можно посмотреть отчёты о концертах 15 декабря в Сан-Диего и 18 декабря в Лос-Анджелесе. На видео попали кадры со встреч с фэнами, джэмы за сценой и&nbsp;отрывки концертных выступлений.</P>
+<P>December 15, 2008 at Cox Arena in San Diego, California:<BR itxtvisited="1"><BR itxtvisited="1">01. Meet-And-Greet<BR itxtvisited="1">02. <B itxtvisited="1">The Call Of Ktulu</B><BR itxtvisited="1">03. <B itxtvisited="1">Fade To Black</B><BR itxtvisited="1">04. <B itxtvisited="1">No Remorse</B><BR itxtvisited="1"></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/JkOCbpEbLrM&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/JkOCbpEbLrM&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+<P>Dec. 18, 2008 at the Forum in Los Angeles, California:<BR itxtvisited="1"><BR itxtvisited="1">01. Meet-And-Greet<BR itxtvisited="1">02. <B itxtvisited="1">Breadfan</B><BR itxtvisited="1">03. <B itxtvisited="1">The Four Horsemen</B></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/J0mwPMeN294&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/J0mwPMeN294&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER< p></CENTER>
+Автор: Vit Belov
+
+### 03.01.2009 news &quot;Чёрный&quot; альбом на втором месте
+
+<P><STRONG><IMG height=248 alt="" hspace=0 src="/images/news_rus/2009.01/13280.jpg" width=360 align=right border=5>METALLICA</STRONG> на&nbsp;четвёртом месте по продажам альбомов в США по данным <STRONG>Nielsen SoundScan </STRONG>за всю историю<STRONG>. </STRONG>Система подсчёта продаж была основана в 1991 году. Одноимённый альбом <STRONG>METALLICA</STRONG> за 1991 год удерживает второе место по продажам за всю историю. Вот данные по исполнителям:</P>
+<P>01. <B>GARTH BROOKS</B> - 68,143,000<BR>02. <B>THE BEATLES</B> - 57,088,000<BR>03. <B>MARIAH CAREY</B> - 51,569,000<BR>04. <B>METALLICA</B> - 51,136,000<BR>05. <B>CELINE DION</B> - 50,571,000<BR>06. <B>GEORGE STRAIT</B> - 40,619,000<BR>07. <B>TIM MCGRAW</B> - 37,591,000,<BR>08. <B>ALAN JACKSON</B> - 36,520,000,<BR>09. <B>PINK FLOYD</B> - 36,520,000<BR>10. <B>SHANIA TWAIN</B> - 33,707,000</P>
+<P>Вот данные по альбомам:</P>
+<P>01. Come On Over - <B>SHANIA TWAIN</B> - 15,473,000<BR>02. Metallica - <B>METALLICA</B> - 15,319,000<BR>03. Jagged Little Pill - <B>ALANIS MORISSETTE</B> - 14,607,000<BR>04. Millennium - <B>BACKSTREET BOYS</B> - 12,104,000<BR>05. Soundtrack - <B>"Bodyguard"</B> - 11,805,000<BR>06. Supernatural - <B>SANTANA</B> - 11,673,000<BR>07. Human Clay - <B>CREED</B> - 11,525,000<BR>08. Beatles 1 - <B>THE BEATLES</B> - 11,345,000<BR>09. No Strings Attached - <B>'N SYNC</B> - 11,109,000<BR>10. Falling Into You - <B>Celine Dion</B> - 10,777,000</P>
+Автор: Vit Belov
+
+### 04.01.2009 news METALLICA и AC&#x2F;DC в десятке самых продаваемых
+
+<P>По сообщению<STRONG> Billboard.com</STRONG> новые альбомы <STRONG>AC/DC "Black Ice"</STRONG> и <STRONG>METALLICA "Death Magnetic"</STRONG> попали в десятку самых продаваемых альбомов за 2008 год. <STRONG>AC/DC</STRONG> продали 1.92 миллиона копий и заняли 5-ое место, а <STRONG>METALLICA</STRONG> 1.57 миллиона и заняли 7-ое. В эти цифры включены и суммы продаж в электронном виде.</P>
+<P>Всего в 2008 году было продано 428.4 миллиона альбомов. По сравнению с 2007 годом, когда было продано 500.5 миллионов альбомов, продажи упали на 14 процентов. Цифровые продажи составили 65.79 миллионов копий, 15.4 процента рынка. В 2007 году таких альбомов было продано 50 миллионов, 10 процентов от&nbsp;рынка.&nbsp;</P>
+Автор: Vit Belov
+
+### 06.01.2009 news Lars Ulrich хочет в DEEP PURPLE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=301 alt="" hspace=0 src="/images/news_rus/2009.01/13301.jpg" width=200 align=right border=5>В разных интервью февральскому выпуску <STRONG>Classic Rock</STRONG> <STRONG>David Coverdale</STRONG> (vocals), <B>Glenn Hughes</B> (bass, vocals)&nbsp;и <B>Jon Lord</B> (keyboards) рассказали о возможности ре-юниона <STRONG>DEEP PURPLE</STRONG> в составе 1973 года. Музыканты утверждают, что ведут переговоры с <STRONG>Ritchie Blackmore</STRONG> о воссоединении. Единственной загвоздкой может стать отсутствие барабанщика, <STRONG>Ian Paice</STRONG> единственный из того состава, кто играет в настоящем составе <STRONG>DEEP PURPLE</STRONG>, и ему может быть неудобно присоединиться к этому ре-юниону.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На выручку уже спешит барабанщик <STRONG>METALLICA Lars Ulrich</STRONG>, являющийся 'hardcore' фэном<STRONG> DEEP PURPLE</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я знаю о разговорах, которые ведутся вокруг этого ре-юниона. Все эти музыканты не в составе DEEP PURPLE сейчас, им может понадобиться ударник. Я готов вызваться добровольцем. Если что, у David есть мой номер</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 14.01.2009 news Рейтинг Los Angeles Times
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=378 alt="" hspace=0 src="/images/news_rus/2009.01/13361.jpg" width=400 align=right border=5>AC/DC</STRONG> единственная тяжёлая группа, попавшая в "<STRONG>Ultimate Top 10</STRONG>" <STRONG>Los Angeles Times</STRONG>. При составлении рейтинга газета учитывала все поступления, которые удалось собрать исполнителям в 2008 году. Продажи пластинок, цифровые продажи, продажи билетов на концерты. <STRONG>METALLICA</STRONG> финишировала на 14-м месте. Вот, что пишет газета об успехе AC/DC: "<EM>37.5 миллионов долларов - это касса концертного тура группы, а 44.5 миллиона долларов - доход от продаж дисков. Наряду с KID ROCK AC/DC не продавали цифровой вариант своего альбома</EM>". По всей видимости, газета учитывала цифры только в США. Вот список 20-ки:</FONT></P>
+<P>01. <B>MADONNA</B> ($120.1 million)<BR>02. <B>CELINE DION</B> ($106.8 million)<BR>03. <B>KENNY CHESNEY</B> ($95.7 million)<BR>04. <B>EAGLES</B> ($90.7 million)<BR>05. <B>AC/DC</B> ($82 million)<BR>06. <B>COLDPLAY</B> ($81.6 million)<BR>07. <B>BON JOVI</B> ($81.4 million)<BR>08. <B>BRUCE SPRINGSTEEN & THE E STREET BAND</B> ($79 million)<BR>09. <B>JONAS BROTHERS</B> ($77.9 million)<BR>10. <B>RASCAL FLATTS</B> ($77.1 million)<BR>11. <B>NEIL DIAMOND</B> ($70.5 million)<BR>12. <B>TAYLOR SWIFT</B> ($62.2 million)<BR>13. <B>MICHAEL BUBL&#201;</B> ($59.5 million)<BR>14. <B>METALLICA</B> ($56.4 million)<BR>15. <B>CARRIE UNDERWOOD</B> ($54.9 million)<BR>16. <B>DAVE MATTHEWS BAND</B> ($51.6 million)<BR>17. <B>THE POLICE</B> ($51 million)<BR>18. <B>LIL WAYNE</B> ($50.8 million)<BR>19. <B>TOM PETTY</B> ($50.5 million)<BR>20. <B>KID ROCK</B> ($50. 2 million)</P>
+Автор: Vit Belov
+
+### 15.01.2009 news METALLICA вводят в Зал Славы
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.01/13376.jpg" width=200 align=left border=5>METALLICA</STRONG> приглашены войти в <STRONG>Зал Славы Рок'н'ролла</STRONG> в Кливленде. Церемония состоится 4 апреля, а музыканты дали вчера небольшую пресс-конференцию, на которой рассказали о своих чувствах, связанных с этим событием.</P>
+<P>James Hetfield: "<EM>Эта награда отличается от всех тех премий, которые мы получали до этого. Те премии можно получать после каждого реализованного альбома, но то, что произошло сейчас, нечто особенное. Это признание не только наших заслуг, но и награда для всех тех, кто работал с нами все эти годы. Я думаю, каждый, кто записывал с группой хоть один альбом должен получить такое же признание. Мы уже пригласили на церемонию Jason Newstead</EM>".</P>
+<P>Забавный эпизод на пресс-конференции произошёл один и связан он именно с персоной бывшего басиста <STRONG>METALLICA</STRONG> господина<STRONG> Newstead</STRONG>. На вопрос журналиста приглашён ли уже <STRONG>Jason</STRONG>, <STRONG>James</STRONG> сказал, что, да, я уже звонил ему. Когда господина <STRONG>Hetfield </STRONG>попросили рассказать, что&nbsp;тот ответил,&nbsp;певец&nbsp;отшутился: "<EM>Я не расслышал, да это и не важно. Наше дело было его пригласить</EM>".</P>
+Автор: Vit Belov
+
+### 23.01.2009 news &#39;Джэм&#39; METALLICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Съёмки с репетиции<STRONG> METALLICA</STRONG> перед концертом 17 января в Филадельфии можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CHS_bCVWkw8&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/CHS_bCVWkw8&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.02.2009 news Качественное видео METALLICA
+
+<P>Видео с концерта<STRONG> METALLICA</STRONG> 29 января в Нью-Йорке, снятое на три камеры можно посмотреть ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/FKRT1vMQFBA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/FKRT1vMQFBA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.02.2009 news IFPI посчитали продажи
+
+<P>Лондонская <STRONG>International Federation of the Phonographic Industry</STRONG> (<B itxtvisited="1">IFPI</B>) посчитала продажи по всему миру за 2008 год. не называя конкретных цифр, федерация подготовила свой Top-20. В него попали <STRONG>METALLICA</STRONG>, <STRONG>AC/DC</STRONG> и <STRONG>GUNS N'ROSES</STRONG>.</P>
+<P>01.<STRONG> COLDPLAY</STRONG> - "Viva La Vida Or Death And All His Friends"<BR>02. <STRONG>AC/DC</STRONG> - "Black Ice"<BR>03. Various Artists - "Mamma Mia! The Movie Soundtrack Featuring The Songs Of ABBA"<BR>04. <STRONG>DUFFY </STRONG>- "Rockferry"<BR>05. <STRONG>METALLICA </STRONG>- "Death Magnetic"<BR>06. <STRONG>LEONA LEWIS</STRONG> - "Spirit "<BR>07. <STRONG>AMY WINEHOUSE</STRONG> - "Back To Black"<BR>08. Various Artists - "High School Musical 3: Senior Year"<BR>09. <STRONG>LIL WAYNE</STRONG> - "Tha Carter III"<BR>10. <STRONG>RIHANNA </STRONG>- "Good Girl Gone Bad"<BR>11. <STRONG>MADONNA</STRONG> - "Hard Candy"<BR>12. <STRONG>BEYONCE</STRONG> - "I Am... Sasha Fierce"<BR>13. <STRONG>PINK</STRONG> - "Funhouse"<BR>14. <STRONG>GUNS N' ROSES</STRONG> - "Chinese Democracy"<BR>15. <STRONG>BRITNEY SPEARS</STRONG> - "Circus"<BR>16. <STRONG>JACK JOHNSON</STRONG> - "Sleep Through The Static"<BR>17. <STRONG>IL DIVO</STRONG> - "The Promise"<BR>18. <STRONG>TAYLOR SWIFT</STRONG> - "Fearless"<BR>19. <STRONG>JONAS BROTHERS</STRONG> - "A Little Bit Longer"<BR>20. Various Artists - "Camp Rock" </P>
+Автор: Vit Belov
+
+### 27.02.2009 news METALLICA исполнили &quot;The Judas Kiss&quot;
+
+<P>25 февраля в начале нового турне по Европе<STRONG> METALLICA</STRONG> впервые исполнили песню "<STRONG>The Judas Kiss</STRONG>". Видео из Ноттингема можно посмотреть ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/xyCfLS6Amnw&rel=0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/xyCfLS6Amnw&rel=0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.03.2009 news METALLICA играет MOTORHEAD
+
+<P><STRONG>Metallica.com</STRONG> выложили видео с концерта<STRONG> METALLICA</STRONG>&nbsp;2 марта в Лондоне. Профессионально снятый ролик демонстрирует исполнение группой кавера на песню <STRONG>MOTORHEAD "Too Late, Too Late"</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mvvNyLwwMCU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/mvvNyLwwMCU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.03.2009 news METALLICA выпускают коллекционный сингл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>METALLICA</STRONG> выпускают сингл <STRONG>'Broken, Beat & Scarred'. </STRONG>Каждый сможет собрать этот сингл, состоящий из трих дисков. С первым диском можно приобрести digi-pack с двумя пустыми трэями, в которые можно будет добавить ещё два диска, которые можно будет приобрести отдельно. Подробности:</FONT></P>
+<P><IMG height=139 alt="" hspace=0 src="/images/news_rus/2009.03/13788.jpg" width=400 align=right border=5>CD 1 Digipack (With two clear trays to allow additional CDs)<BR>* <B>Broken, Beat & Scarred</B><BR>* <B>Broken, Beat & Scarred</B> (live)<BR>* <B>End Of The Line</B> (live)<BR><BR>CD 2 J Card (To be collected and to insert into CD 1)<BR>* <B>Broken, Beat & Scarred</B><BR>* <B>Stone Cold Crazy</B> (live)<BR>* <B>Of Wolf And Man</B> (live)<BR><BR>DVD Single (To be collected and to insert into CD 1)<BR>* <B>Broken, Beat & Scarred</B> - Promo Video<BR>* <B>The Day That Never Comes</B> - Promo Video<BR>* <B>Death Magnetic</B> EPK (Electronic Press Kit - running time - 17:25)<BR><BR>CD Maxi Single<BR>* <B>Broken, Beat & Scarred</B><BR>* <B>Broken, Beat & Scarred</B> (live)<BR>* <B>End Of The Line</B> (live)<BR>* <B>Stone Cold Crazy</B> (live)<BR>* <B>Of Wolf And Man</B> (live)</P>
+Автор: Vit Belov
+
+### 26.03.2009 news METALLICA сыграют с бывшим басистом
+
+<P>Меньше двух недель осталось до церемонии введения в "<STRONG>Зал Славы Рок'н'Ролла</STRONG>" <STRONG>METALLICA</STRONG>. В недавнем интервью гитарист <STRONG>Kirk Hammett</STRONG> подтвердил, что в событии примет участие бывший басист группы <STRONG>Jason Newsted</STRONG>. Подобное приглашение получил и гитарист <STRONG>MEGADETH Dave Mustaine</STRONG>, но он не сможет быть, так как с группой будет находиться в Европе в туре.</P>
+Автор: Vit Belov
+
+### 27.03.2009 news METALLICA увековечили тур в видео
+
+<P>Новый видеоклип <STRONG>METALLICA</STRONG> на песню <STRONG>"Broken, Beat And Scarred" </STRONG>можно посмотреть ниже. Видео было снято <STRONG>Wayne Isham </STRONG>во время концертов последнего тура по США во Фресно и Онтарио.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/gjDRa_cgNOo&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/gjDRa_cgNOo&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.04.2009 news Trujillo не будет играть на церемонии
+
+<P>Мы уже сообщали, что бывший басист<STRONG> METALLICA Jason Newsted</STRONG> присоединится к группе во время вступления в Зал Славы Рок'н'Ролла. В интервью агентству <STRONG>Reuters</STRONG> господин <STRONG>Newsted</STRONG> заявил, что нынешний басист американцев <STRONG>Robert Trujillo</STRONG> не примет участие в церемонии, как музыкант. По словам <STRONG>Jason</STRONG>, <STRONG>Robert </STRONG>будет радоваться, как фанат, составу группы "чёрного альбома".</P>
+Автор: Vit Belov
+
+### 03.04.2009 news Biff Byford спел с METALLICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кадры с вчерашнего концерта <STRONG>METALLICA</STRONG>&nbsp;в Берси, Париж можно посмотреть ниже. Группа вместе с вокалистом<STRONG> SAXON Biff Byford</STRONG> исполнили классическую <STRONG>"Motorcycle Man"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9kNiTVBcG8w&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/9kNiTVBcG8w&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 06.04.2009 news METALLICA выступили с двумя басистами
+
+<P>Несмотря на уверения бывшего басиста<STRONG> METALLICA Jason Newsted</STRONG>, на церемонии вступления в Зал Славы Рок'н'Ролла группа выступила с двумя басистами. <STRONG>METALLICA</STRONG> стали второй по-настоящему металлической группой после <STRONG>BLACK SABBATH</STRONG>, вступившей в Зал. Кадры исполнения двух бессмертных хитов "<STRONG>Enter Sandman</STRONG>" и "<STRONG>Master Of Puppets</STRONG>" можно посмотреть ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/1SirJal1RsI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/1SirJal1RsI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9uu9sDAxRGQ&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/9uu9sDAxRGQ&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+### 25.04.2009 news METALLICA вновь приедут к нам в 2010
+
+<P>РИА Новости сообщили, что в 2010 году <STRONG>METALLICA </STRONG>дадут концерты в Москве в <STRONG>СК "Олимпийский"</STRONG> и на открытии нового стадиона в Санкт-Петербурге.</P>
+Автор: Vit Belov
+
+### 28.05.2009 news METALLICA снимут очередной DVD
+
+<P><STRONG>METALLICA</STRONG> запечатлят некоторые шоу своего летнего тура для релиза на DVD. Это будут аншлаговые концерты в Мехико 4,6 и 7 июня, а также шоу во французском Ниме 7 июля, где группа выступит в историческом римском амфитеатре.</P>
+Автор: Vit Belov
+
+### 20.10.2009 news Нове DVD METALLICA
+
+<P><IMG height=404 alt="" hspace=0 src="/images/news_rus/2009.10/15308.jpg" width=400 align=right border=5>7 июля этого года<STRONG> METALLICA</STRONG> дали концерт в историческом амфитеатре в Ниме, Франция. На этом шоу было записано новое DVD "<STRONG>Francais Pour Une Nuit</STRONG>". Релиз намечен на 23 ноября. DVD будет доступен в магазинах во Франции и через официальный сайт <STRONG>METALLICA</STRONG>. Сэт-лист:</P>
+<P>1. <STRONG>Blackened<BR></STRONG>2. <STRONG>Creeping Death<BR></STRONG>3. <STRONG>Fuel<BR></STRONG>4. <STRONG>Harvester Of Sorrow</STRONG><BR>5. <STRONG>Fade To Black<BR></STRONG>6. <STRONG>Broken, Beat & Scarred</STRONG><BR>7. <STRONG>Cyanide<BR></STRONG>8. <STRONG>Sad But True</STRONG><BR>9. <STRONG>One<BR></STRONG>10. <STRONG>All Nightmare Long</STRONG><BR>11. <STRONG>The Day That Never Comes</STRONG><BR>12. <STRONG>Master Of Puppets</STRONG><BR>13.<STRONG> Dyers Eve</STRONG><BR>14. <STRONG>Nothing Else Matters</STRONG><BR>15. <STRONG>Enter Sandman</STRONG><BR>16. <STRONG>Stone Cold Crazy</STRONG><BR>17. <STRONG>Motorbreath<BR></STRONG>18. <STRONG>Seek & Destroy</STRONG></P>
+Автор: Vit Belov
+
+### 15.11.2009 news METALLICA выпускают региональные DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=373 alt="" hspace=0 src="/images/news_rus/2009.11/15540.jpg" width=354 align=right border=5>METALLICA</STRONG> продолжают выпуск DVD, рассчитаных на конкретные территории. После будущего релиза концерта в Ниме, Франция <STRONG>"Francais Por Une Nuit", </STRONG>30 ноября выйдет концерт в Мексике <STRONG>"Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico", </STRONG>записанный в течение трёх дней этим летом. На DVD попали трэки:</FONT></P>
+<P>* <B>Creeping Death</B><BR>* <B>For Whom The Bell Tolls</B><BR>* <B>Ride The Lightning</B><BR>* <B>One</B><BR>* <B>The Memory Remains</B><BR>* <B>Sad But True</B><BR>* <B>The Unforgiven</B><BR>* <B>The Day That Never Comes</B><BR>* <B>Master Of Puppets</B><BR>* <B>Nothing Else Matters</B><BR>* <B>Seek And Destroy</B><BR>* <B>Enter Sandman</B></P>
+<P>Интересно, что официально в магазинах указанные DVD появятся только во Франции и в Мексике соответственно. Остальны коллекционеры могут приобрести региональные издания через Интернет.</P>
+<P>Музыканты <STRONG>METALLICA</STRONG> осуществляют вечную мечту всех фэнов, получить на DVD концерт, на котором они присутствовали. Раньше все сливки снимали бутлегеры, теперь к этому благоухающему потоку прильнули сами музыканты. Ждём релизов концертов в Москве или Питере. И называться они будут по-русски!!!</P>
+Автор: Vit Belov
+
+### 19.11.2009 news METALLICA возвращаются к нам
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>METALLICA</STRONG> объявили свои концертные планы. 24 и 25 апреля запланированы два концерта в Москве в спорткомплексе<STRONG> "Олимпийский"</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 27.02.2010 news Billboard опубликовал рейтинг
+
+<P><STRONG>Billboard</STRONG> опубликовал свой ежегодный рейтинг "Самых прибыльных музыкантов".&nbsp;Первая десятка этого&nbsp;списка выглядит так:</P>
+<P>01. <B>U2</B> - $108,601,283<BR>02. <B>BRUCE SPRINGSTEEN</B> - $57,619,037<BR>03. <B>MADONNA</B> - $47,237,774<BR>04. <B>AC/DC</B> - $43,650,466<BR>05. <B>BRITNEY SPEARS</B> - $38,885,267<BR>06. <B>PINK</B> - $36,347,658<BR>07. <B>JONAS BROTHERS</B> - $33,596,576<BR>08. <B>COLDPLAY</B> - $27,326,562<BR>09. <B>KENNY CHESNEY</B> - $26,581,141<BR>10. <B>METALLICA</B> - $25,564,234</P>
+<P>В рейтинг, кроме <STRONG>METALLICA </STRONG>и <STRONG>AC/DC</STRONG>, попали также<STRONG> KISS</STRONG>&nbsp;на 34-ом месте с 11,833,930 долларов.&nbsp;Журналисты подготовили комментарий к каждому из участников листа. </P>
+<P><STRONG>AC/DC</STRONG>: "<EM>Большинство прибылей группы пришло от концертных выступлений. AC/DC заработали 41.4 миллиона долларов на своих живых шоу. Кроме этого, австралийцы получили неплохие деньги от продаж своего последнего альбома "Black Ice" и переизданного бэк-каталога. Новинка была продана тиражом 227000 экземпляров, из классики ближе всего оказался "Back In Black" с 215000 копий. Всего было продано 1.1 миллиона альбомов</EM>".</P>
+<P><STRONG>METALLICA</STRONG>: "<EM>У METALLICA было два повода для празднования в 2009 году. Принятие коллектива в Зал Славы Рок'н'Ролла и выход игры "Guitar Hero: Metallica". 22.8 миллиона долларов было заработано на концертах, также было продано 694000 альбомов. 297000 из них - последняя пластинка "Death Magnetic". Также хорошие деньги принесла продажа он-лайн, так знаменитый хит "Enter Sandman" скачали 450000 раз</EM>".</P>
+<P><STRONG>KISS</STRONG>: "<EM>KISS провели год в туре в поддержку последнего альбома "Sonic Boom", который был продан тиражом 238000 копий. Группа заработала 10.6 миллиона в туре и 879 тысяч&nbsp;от продаж альбомов</EM>".</P>
+Автор: Vit Belov
+
+### 03.03.2010 news METALLICA хотят бойкотировать в Израиле
+
+<P>Некоторое количество активистов в Израиле предлагает бойкотировать концерт<STRONG> METALLICA</STRONG>, который состоится 22 мая на стадионе Рамат Ган в Тель-Авиве. Фэнов возмутила высокая цена на билеты, объявленная промоутером. Самые дешёвые места&nbsp;предлагаются за 600 шекелей (159 долларов США), места в партер будут стоить в два раза больше. На <STRONG>Facebook</STRONG> даже открыта специальная страничка, посвящённая этой акции: <A href="http://www.facebook.com/group.php?v=info&ref=mf&gid=335033083873">http://www.facebook.com/group.php?v=info&ref=mf&gid=335033083873</A></P>
+<P>Организаторы этой акции требуют, чтобы билеты на <STRONG>METALLICA</STRONG> стоили как и везде от 300 до 600 шекелей. Обычные концерты в Израиле стоят от 175 до 250 шекелей.&nbsp;</P>
+Автор: Vit Belov
+
+### 04.03.2010 news Израильские фэны METALLICA победили
+
+<P>Мы вчера сообщали о бойкоте, объявленном фэнами <STRONG>METALLICA</STRONG> в Израиле концерту этой группы, который состоится 22 мая на стадионе Рамат Ган в Тель-Авиве. Промоутеры, под давлением публики и менеджмента <STRONG>METALLICA</STRONG>, пошли на уступки, снизив цены на билеты. </P>
+<P>Бизнесмены удовлетворили слушателей, самый дешёвый билет теперь стоит 300 шекелей, как&nbsp;те и просили.</P>
+Автор: Vit Belov
+
+### 16.03.2010 news METALLICA готовят эпохальное шоу
+
+<P><STRONG>Classic Rock</STRONG> опубликовал интервью с менеджером<STRONG> METALLICA</STRONG> <STRONG>Peter Mensch</STRONG>, который озвучил планы группы на следующий год. Знаменитые американцы готовят специальный тур, который станет аналогом сценического шоу<STRONG> PINK FLOYD "The Wall"</STRONG>.</P>
+<P>Планируется всего 10 концертов.</P>
+Автор: Vit Belov
+
+### 07.04.2010 news FEAR FACTORY и GOJIRA выступят с METALLICA
+
+<P>Как уже сообщалось, <STRONG>METALLICA</STRONG> дадут два концерта в Москве в спорткомплексе "Олимпийский" 24 и 25 апреля. Стало известно, что в качестве суппорта перед thrash-metal звёздами выступят <STRONG>FEAR FACTORY</STRONG> и <STRONG>GOJIRA</STRONG>. Такой же подарок ждёт посетителей концертов в Риге, Вильнюсе и Таллине.</P>
+Автор: Vit Belov
+
+### 18.04.2010 news Вулкан не остановит METALLICA!
+
+<P><STRONG>METALLICA</STRONG> и <STRONG>FEAR FACTORY</STRONG> всё-таки добрались до Риги из Осло, несмотря на отмену всех авиарейсов, связанную с извержением вулкана в Исландии. Более 50 человек обслуживающего персонала и сами музыканты проследовали на автобусах. Поездка заняла более 24 часов. Таким образом, концерты в Москве состоятся!!!</P>
+Автор: Vit Belov
+
+### 26.08.2010 news &quot;Большая четвёрка&quot; на DVD и Blu-ray
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17107.jpg" width=300 height=403>Universal Music</STRONG> выпускает&nbsp;двухдисковый&nbsp;DVD "Большой четвёрки", снятый в рамках проходившего в Софии (Болгария) фестиваля "<STRONG>Sonisphere</STRONG>"&nbsp;(22 июня, 2010). Видео, так же, будет издано в формате Blu-ray. Как известно, в концерте приняли участие звёзды thrash metal: <STRONG>METALLICA</STRONG>, <B itxtvisited="1">SLAYER</B>, <B itxtvisited="1">MEGADETH</B>&nbsp;и <B itxtvisited="1">ANTHRAX</B>. Помимо выступлений групп, на&nbsp;дисках можно будет увидеть&nbsp;закулисные съёмки и интервью.</P>
+<P>&nbsp;<B itxtvisited="1">"The Big Four: Live From Sofia, Bulgaria"</B> выйдет 15 октября в Северной Европе, 18 октября большинстве остальных стран и 19 октября в Северной Америке.</P>
+<P>Ко всему прочему, ограниченным тиражём выйдет&nbsp;"Super deluxe"&nbsp;издание,&nbsp;в которое&nbsp;войдут&nbsp;концерт на DVD, 5 компакт дисков с выступлениями участников фестиваля, буклет в 24 страницы, постер, фотографии каждой группы и медиатор "Большой четвёрки".<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 14.10.2010 news Новая фото-книга группы METALLICA
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17376.jpg" width=329 height=400>Компания <STRONG>Chronicle Books</STRONG> выпустила фото-книгу <B itxtvisited="1">"The Ultimate Metallica"</B>. Все фотографии в ней принадлежат авторству легендарного музыкального фотографа <STRONG>Росса Хэлфина</STRONG>&nbsp;(<B itxtvisited="1">Ross Halfin</B>).</P>
+<P><STRONG>Halfin</STRONG> снимает группу почти 25 лет -&nbsp;с самого первого момента, когда они начинали как гаражная команда и в их нынешнем виде, как самая тяжёлая и самая популярная металлическая группа в мире. Вступление к книге было написано <STRONG>Ларсом Улрихом</STRONG> (<STRONG>Lars Ulrich</STRONG>), а заключительное слово - <STRONG>Кирком Хэмметтом</STRONG> (<STRONG>Kirk Hammett</STRONG>). Книга <STRONG>"The Ultimate Metallica"</STRONG>&nbsp; собрала в себя самые лучшие снимки <STRONG>Хэлфина</STRONG>, сделанные им за все те годы, когда он был эксклюзивным фотографом группы. Его искренние фотографии, снятые на сцене, вне её, во время тура и на отдыхе, снабжены комментариями людей, близких к группе, а так же, красочными комментариями самого <STRONG>Росса</STRONG>.</P>
+<P><STRONG>Ross Halfin</STRONG> был в турне и фотографировал множество групп, среди них <B itxtvisited="1">IRON MAIDEN</B>, <B itxtvisited="1">DEF LEPPARD</B>, <B itxtvisited="1">KISS</B>, <B itxtvisited="1">THE CLASH</B>, <B itxtvisited="1">SEX PISTOLS </B>и <B itxtvisited="1">THE WHO</B>. Он живёт в городе Surrey (Англия). <BR itxtvisited="1"><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 19.11.2010 news Новый концертник группы METALLICA
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17631.jpg" width=400 height=400>26 ноября группа METALLICA выпускает концертный альбом, получивший название&nbsp; <B itxtvisited="1">"Live At Grimey's"</B>. Запись была сделана на&nbsp;секретном концерте, проходившем&nbsp;12 июня 2008 года в клубе, на 150 зрителей, под названием&nbsp;<STRONG>The Basement</STRONG>, который располагается под музыкальным магазином <B itxtvisited="1">Grimey's New & Preloved Music</B> города Нэшвилл. Данное выступление послужило разминкой перед дебютном&nbsp;группы&nbsp;на фестивале&nbsp;<B itxtvisited="1">Bonnaroo</B>. </P>
+<P><STRONG>"Live At Grimey's"</STRONG> будет выпущен в формате обычного CD, а так же, выйдет ограниченным&nbsp;тиражом на&nbsp;двойном виниле.</P>
+<P>Альбом поступит в продажу&nbsp;только в&nbsp;независимые музыкальные магазины (примерно, около 700), которые поддерживают ежегодный "День Музыкальных Магазинов" ("Record Store Day").<BR itxtvisited="1"><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 10.06.2011 news METALLICA выпускает &quot;Монополию&quot;
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.06/19621.jpg" width=475 height=239> 
+<P></P>
+<P>На следующей неделе в продажу поступит&nbsp;версия&nbsp;игры "<STRONG>Монополия</STRONG>", целиком посвящённая группе <STRONG>METALLICA</STRONG>.</P>
+<P>До&nbsp;Джеймса Хетфилда и компании&nbsp;подобные эксперементы над фанатами уже проводили <STRONG>KISS</STRONG>, <STRONG>THE BEATLES</STRONG>, <STRONG>ELVIS PRESLEY</STRONG>, <STRONG>THE GREATEFUL DEAD</STRONG> и некоторые&nbsp;другие исполнители.</P>
+<P>Купить игру можно будет на сайте группы, по адресу: <A href="http://www.metallica.com/store_landing.asp">www.metallica.com/store_landing.asp</A></P></CENTER>
+Автор: Headcrusher
+
+### 16.06.2011 news METALLICA поработали с Lou Reed
+
+<P><STRONG>METALLICA</STRONG> объявили об окончании записи нового альбома вместе с прославленным музыкантом<STRONG> Lou Reed</STRONG>. Этот материал не будет выпущен как новый альбом <STRONG>METALLICA</STRONG> и считается сайд-проектом thrash-metal'истов. Музыканты задумали записать совместный альбом во время выступления на церемонии введения <STRONG>METALLICA</STRONG> в зал славы&nbsp;Rock'n'Roll в октябре 2009 года. </P>
+<P>Записано десять песен, но дата релиза этого материала пока не известна.</P>
+<P><center><IMG height=321 src="/images/news_rus/2011.06/19663.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 16.07.2011 news Синхронистки из Канады вдарят по мозгам
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сегодня в китайском Шанхае стартует чемпионат мира по водным видам спорта. Подарок любителям тяжёлой музыки подготовил дуэт синхронисток из Канады <STRONG>Мари-Пьер Будро-Ганьон</STRONG> и <STRONG>Элиза Маркотт</STRONG>, которые для своей произвольной программы в качестве музыкального сопровождения выбрали творчество <STRONG>METALLICA</STRONG>. 22 июля, когда состоится финал выступлений дуэтов, под сводами бассейна прозвучат "нетленки" "<STRONG>Enter Sandman</STRONG>" и "<STRONG>Master of Puppets</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сами спортсменки считают, что <STRONG>METALLICA</STRONG> будет хорошо встречена и судьями, и публикой. Российский тренер сборной по синхронному плаванию <STRONG>Татьяна Покровская</STRONG> считает, что канадки одни из главных наших соперниц на этом чемпионате.</FONT></P>
+<P>
+<CENTER><IMG height=299 alt=М-е-е-е-т-а-а-а-л! hspace=0 src="/images/news_rus/2011.07/20180.jpg" width=450 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.07.2011 news METALLICA отпразднуют 30-летний юбилей
+
+<P><STRONG>METALLICA </STRONG>объявили о масштабном праздновании своего 30-летнего юбилея, которое продлится целую неделю, начиная с 5 декабря, в Сан-Франциско. Группа планирует дать четыре специальных концерта с приглашёнными музыкантами, сюрпризами, старыми песнями и.т.п. Комплект на все четыре шоу предлагается по символической во всех смыслах цене $19.81. Один подвох, приобрести заветные квитки смогут только члены фан-клуба <STRONG>METALLICA</STRONG>.</P>
+<P>Билеты поступят в продажу с 8 августа.</P>
+<P><center><IMG height=267 src="/images/news_rus/2011.07/20346.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 08.08.2011 news Немецкий Metal Hammer отпразднует дату
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2011.08/20499.jpg" width=485 height=385>Сентябрьский номер немецкого издания журнала <STRONG>Metal Hammer</STRONG> отметит 20-летний юбилей "чёрного" альбома <STRONG>METALLICA</STRONG> CD-приложением с трибьют-альбомом. Примечателен трек-лист этой пластинки, которую наверняка хотели бы приобрести не только четатели немецкого журнала:</P>
+<P>* <B>LEMMY</B> - "Enter Sandman"<BR>* <B>THE NEW BLACK</B> - "Sad But True"<BR>* <B>DEVILDRIVER</B> - "Holier Than Thou"<BR>* <B>DARK AGE</B> - "The Unforgiven"<BR>* <B>CALLEJON</B> - "Wherever I May Roam"<BR>* <B>I.C.S. VORTEX</B> - "Don't Tread On Me"<BR>* <B>NEAERA</B> - "Through The Never"<BR>* <B>DORO</B> - "Nothing Else Matters"<BR>* <B>MOTORJESUS</B> - "Of Wolf And Man"<BR>* <B>FINNTROLL</B> - "The God That Failed"<BR>* <B>BORKNAGAR</B> - "My Friend Of Misery"<BR>* <B>SODOM</B> - "The Struggle Within"</P>
+Автор: Vit Belov
+
+### 04.09.2011 news METALLICA + Lou Reed &#x3D; ?
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/20907.jpg" width=400 height=400>Группа <STRONG>METALLICA</STRONG> работает над совместным альбомом с бывшим вокалистом <STRONG>VELVET UNDERGROUND</STRONG>&nbsp;Лу Ридом&nbsp;(<STRONG>Lou Reed</STRONG>). Диск получил название&nbsp;<B>"Lulu"</B>, в сети уже&nbsp;появилась обложка этого странного симбиоза. Продюсированием альбома занимаются <STRONG>Lou</STRONG> <B>Reed</B>, <B>METALLICA</B>, <B>Hal Willner </B>(продюсировал альбомы следующих исполнителей: <STRONG>Lou</STRONG>&nbsp;<B>Reed</B>, <STRONG>Marianne Faithfull</STRONG> и <STRONG>Laurie Anderson</STRONG>) и <B>Greg Fidelman</B>. <B>Fidelman</B> , так же, ответственнен за сведение<STRONG> "Lulu"</STRONG>.</P>
+<P>Дата выхода альбома назначена на 1 ноября на лейбле&nbsp;<B>Warner Bros</B>.</P>
+<P>Идея совместной работы пришла к музыкантам на концерте&nbsp;во время празднования 25 летнего юбилея&nbsp;организации&nbsp;"<B>Rock And Roll Hall Of Fame"</B> в октябре 2009, тогда группа <B>METALLICA</B> совместно с Лу Ридом исполнила две классические песни <B>VELVET UNDERGROUND</B> - <B>"Sweet Jane"</B> и <B>"White Light/White Heat"</B>. </P>
+<P><EM>"Мы поняли, что мы созданы друг для друга"</EM> - комментирует&nbsp;<B>Reed</B> этот странный союз.</P>
+<P>После того триумфального выступления <STRONG>Reed</STRONG> предложил&nbsp;группе <STRONG>METALLICA</STRONG> сделать совместную запись. Сначала планировалось записать диск с новыми версиями позднего материала Лу Рида, который <STRONG>Lars</STRONG> <STRONG>Ulrich</STRONG>&nbsp;описал, как "кое-что из потерянных драгоценностей <STRONG>Lou</STRONG> — песни,&nbsp;которым он&nbsp;хотел бы дать второе рождение." Эта идея "висела в воздухе в течение нескольких месяцев." Но за неделю или две до начала записи, "Лу позвонил и сказал, 'Слушайте, у меня есть ещё одна идея.'"</P>
+<P>И идея эта состояла в том, что бы записать&nbsp;серию песен, которые <STRONG>Lou</STRONG> написал для американского авангардиского театрального режиссёра Роберта Вилсона&nbsp;(<B>Robert Wilson</B>) и немецкой театральной группы <B>Berliner Ensemble</B> и их спектакля <B>"Lulu Plays"</B>, премьера которого состоялась в апреле этого года в <STRONG>Theatre am Schiffbauerdamm</STRONG> (Берлин). Вдохновением к написанию этих песен послужили пьесы <STRONG>"Earth Spirit"</STRONG> и <STRONG>"Pandora's Box"</STRONG>,<STRONG> </STRONG>написанные в начале 20 столетия немецким экспрессионистом Фрэнком Ведикайндом (<B>Frank Wedekind</B>) и переработанные <B>Edgar Allan Poe </B>в рассказе&nbsp;<B>"The Raven"</B>.</P>
+Автор: Headcrusher
+
+### 11.11.2011 reviews Безрукое и облезлое создание Lulu
+
+<P>Этим летом мир облетела сенсационная новость – легендарная группа METALLICA работает с Lou Reed. Музыканты так полюбились друг другу на совместном вступлении в Зал Славы Рок’н’Ролла в 2009 году, что начали вместе джемовать и родили “Lulu”.</P>
+<P>“Lulu” – это безрукая, довольно-таки облезлая кукла с раскрашенным модно лицом. Музыкальный материал пластинки идеально подходит под эту концепцию. Музыка, которую породили легенды мирового рока в своём совместном порыве, безрукая, довольно-таки облезлая, ну и конечно, модно раскрашена перед поступлением в магазины посредством громкой PR-кампании. Многие наверное слышали сэмплы этого альбома, но описать его звучание довольно легко, поэтому я это сделаю в одном предложении. Среднетемповая примоченная METALLICA без соло и мелодий с вокалом Lou Reed, который читает какую-то жутко интересную истории, не отвлекаясь ни на что. Честно говоря, даже стараясь сочинить хороший студийный альбом, музыканты METALLICA выдают нам “Death Magnetic”, а уж «поджемовав», они рождают то, что называется “Lulu” – безрукое, убогое, ну, вы понимаете. Мне кажется многие знаменитые рок-музыканты, даже без подготовки, с листа, сядут и запишут более интересный с музыкальной точки зрения альбом.</P>
+<P>Всё это безобразие вышло на двух дисках, при этом второй диск добит зачем-то невнятным шумом. Я с большим трудом дослушал “Lulu” до конца, и никому не могу посоветовать повторить мой опыт. Это было бы слишком жестоко. </P>
+Автор: Vit Belov
+
+### 04.12.2011 news Клип METALLICA и Lou Reed
+
+<P>Видео-клип на песню с альбома "<STRONG>Lulu</STRONG>" соместного проекта <STRONG>METALLICA</STRONG> и <STRONG>Lou Reed</STRONG> <STRONG>"The View" </STRONG>можно посмотреть ниже. Ролик снял знаменитый режиссёр <STRONG>Darren Aronofsky.</STRONG></P>
+<P><STRONG></STRONG><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/fJlU_9Vyvqs?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/fJlU_9Vyvqs?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 27.11.2012 news METALLICA: &quot;Quebec Magnetic&quot; 2DVD и Blu-ray
+
+<P><STRONG>METALLICA</STRONG> выпускает новый концертный релиз, получивший название <STRONG>"Quebec Magnetic"</STRONG>. Он будет доступен в формате 2DVD и Blu-ray. </P>
+<P>На <STRONG>"Quebec Magnetic" </STRONG>вошли съёмки двух выступлений группы, состоявшиеся&nbsp;в канадском&nbsp;городе Quebec осенью 2009 года. Режиссёр видео: <STRONG>Wayne Isham</STRONG>.</P>
+<P>Даты выхода <STRONG>"Quebec Magnetic"</STRONG>:</P>
+<P>07 декабря: Австралия, Австрия, Бельгия, Финляндия, Германия, Нидерланды, Норвегия, Швейцария.<BR>10 декабря: Англия, Дания, Франция, Португалия, Швеция, Южновосточная Азия.<BR>11 декабря: Северная Америка, Япония, Италия, Испания, Южная Америка. <BR>14 декабря: Новая Зеландия.</P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.11/25092.jpg" width=400 height=514>Трек лист</U>:</P>
+<P>01. <STRONG>That Was Just Your Life<BR></STRONG>02. <STRONG>The End Of The Line<BR></STRONG>03. <STRONG>The Four Horsemen<BR></STRONG>04.<STRONG> The Shortest Straw<BR></STRONG>05.<STRONG> One</STRONG><BR>06.<STRONG> Broken, Beat & Scarred<BR></STRONG>07.<STRONG> My Apocalypse<BR></STRONG>08. <STRONG>Sad But True<BR></STRONG>09.<STRONG> Welcome Home (Sanitarium)<BR></STRONG>10. <STRONG>The Judas Kiss<BR></STRONG>11. <STRONG>The Day That Never Comes<BR></STRONG>12.<STRONG> Master Of Puppets<BR></STRONG>13.<STRONG> Battery</STRONG><BR>14. <STRONG>Nothing Else Matters<BR></STRONG>15.<STRONG> Enter Sandman<BR></STRONG>16. <STRONG>Killing Time<BR></STRONG>17.<STRONG> Whiplash</STRONG><BR>18. <STRONG>Seek & Destroy</STRONG></P>
+<P><U>Bonus</U>:<BR>01.<STRONG> For Whom The Bell Tolls<BR></STRONG>02. <STRONG>Holier Than Thou<BR></STRONG>03. <STRONG>Cyanide</STRONG><BR>04.<STRONG> Turn The Page<BR></STRONG>05. <STRONG>All Nightmare Long<BR></STRONG>06. <STRONG>Damage, Inc.<BR></STRONG>07. <STRONG>Breadfan</STRONG><BR>08.<STRONG> Phantom Lord</STRONG></P>
+Автор: Headcrusher
+
+### 18.01.2013 news Новая работа Jason Newsted
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший басист<STRONG> METALLICA, VOIVOD</STRONG> и <STRONG>FLOTSAM AND JETSAM Jason Newsted</STRONG> организовал новую группу <STRONG>NEWSTED</STRONG>, которая уже успела выпустить новый мини-альбом "<STRONG>Metal</STRONG>". Видео-клип на песню с этого релиза <STRONG>"Soldierhead" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center>
+<script type='text/javascript' src='http://pshared.5min.com/Scripts/PlayerSeed.js?sid=203&width=480&height=296&shuffle=0&playList=517642741'></script> 
+</P>
+Автор: Vit Belov
+
+### 24.04.2013 news ASHEN LIGHT записали кавер на группу METALLICA
+
+<P>Блек-метал ансамбль <STRONG>ASHEN LIGHT</STRONG> записал кавер-версию на песню&nbsp;группы <STRONG>METALLICA "Nothing Else Matters"</STRONG>. </P>
+<P>Запись проходила 19 апреля на студии <STRONG>Ashen Records</STRONG> в Люберцах. Состав: <STRONG>Алекс</STRONG> - гитара, <STRONG>Бельф</STRONG> - вокал, <STRONG>Ищенко</STRONG> - барабаны.</P>
+<P>Послушать трек можно на официальной странице <STRONG>ASHEN LIGHT</STRONG> ВКонтакте: <A href="http://vk.com/ashenlightofficial">http://vk.com/ashenlightofficial</A> </P>
+<P><EM>(От редактора: "Надеюсь, группа <STRONG>METALLICA</STRONG> не сильно засудит бедных <STRONG>ASHEN LIGHT</STRONG>".)</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.04/25638.jpg" width=400 height=405> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 06.07.2013 news METALLICA: кинопроект &quot;Metallica Through The Never&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.07/25887.jpg" width=350 height=519>Легендарная группа <STRONG>METALLICA </STRONG>собирается посетить ежегодный&nbsp;фестиваль&nbsp;<STRONG>"Comic-Con"</STRONG> (США, г. Сан-Диего), где 19 июля представит свой кинопроект -&nbsp;фильм&nbsp;<STRONG>"Metallica Through The Never"</STRONG>.</FONT></P>
+<P>Режиссёр: <STRONG>Nimrod Antal</STRONG></P>
+<P><EM>"Сюжет картины представляет собой смесь фильма и концерта, и построен вокруг приключений одного героя, который попадает на выступление коллектива и испытывает там нечто похожее на религиозное откровение." </EM>kinopoisk.ru</P>
+<P>Премьера фильма в кинотеатрах <STRONG>IMAX</STRONG> намечена на 27 сентября, а 3D-версии в кинотеатрах по всему миру на 4 октября сего года.</P>
+<P>Рекламный ролик <FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>"Metallica Through the Never" </STRONG></FONT></FONT>можно посмотреть по ссылке: <A href="http://youtu.be/mQc4ZXh6azE">http://youtu.be/mQc4ZXh6azE</A></P>
+Автор: Headcrusher
+
+### 29.07.2013 news NEWSTED: альбом &quot;Heavy Metal Music&quot; доступен для прослушивания на Youtube
+
+<P><STRONG>NEWSTED</STRONG>, новая группа под руководством бывшего басиста групп <STRONG>METALLICA</STRONG>, <STRONG>VOIVOD</STRONG> и <STRONG>FLOTSAM & JETSAM</STRONG> Джейсона Ньюстеда (<STRONG>Jason Newsted</STRONG>), выложила свой дебютный полноформатник <STRONG>"Heavy Metal Music"</STRONG>&nbsp;целиком на сервис <STRONG>Youtube</STRONG>.</P>
+<P>На физическом носителе альбом появится 6 августа 2013 г.</P>
+<P>Трек-лист: 01. <STRONG>Heroic Dose</STRONG> | 02. <STRONG>Soldierhead</STRONG> | 03. <STRONG>...As The Crow Flies</STRONG> | 04. <STRONG>Ampossible</STRONG> | 05. <STRONG>Long Time Dead</STRONG> | 06. <STRONG>Above All</STRONG> | 07. <STRONG>King Of The Underdogs</STRONG> | 08. <STRONG>Nocturnus</STRONG> | 09. <STRONG>Twisted Tail Of The Comet</STRONG> | 10. <STRONG>Kindevillusion</STRONG> | 11. <STRONG>Futureality</STRONG></P>
+<P>Официальный сайт группы: <A href="http://newstedheavymetal.com">http://newstedheavymetal.com</A></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/7BEW7qAsfCE?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.09.2014 news Минутка юмора
+
+<P>Как звучат классические метал-композиции на Гучжэне? На этот вопрос отвечает китайская девчушка<STRONG> Michelle Kwan</STRONG>. <STRONG>Metallica "One"</STRONG> и <STRONG>Guns'N'Roses "Sweet Child O'Mine"</STRONG> слушайте ниже. Заодно узнаете, что такое Гучжэн.</P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/TNn-iUT6xh4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/YO6sFdoklVU" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+### 06.06.2015 news METALLICA: &quot;25 Nights Down Under&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>METALLICA</STRONG> выпустила коробку с пятьюдесятью компакт-дисками, куда вошли все 25 концертов, отыгранные коллективом в Австралии и Новой Зеландии в 2010 и 2013 гг.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Коробка получила&nbsp; название <STRONG>"25 Nights Down Under"</STRONG> и доступна для покупки в официальном магазине группы:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.metallica.com/products/live-metallica-25-nights-down-under-box-set.asp">www.metallica.com/products/live-metallica-25-nights-down-under-box-set.asp</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Те фанаты, которые не заинтересованы покупать записи всех выступлений, могут купить их по отдельности:</FONT></P>
+<P><A href="http://www.metallica.com/product-categories/2010-2013-25-nights-down-under.asp?viewall=1">www.metallica.com/product-categories/2010-2013-25-nights-down-under.asp?viewall=1</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28071.jpg" width=500 height=470> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 15.06.2016 news METALLICA закончили запись
+
+<p><strong>METALLICA</strong> закончили запись десятого альбома. В настоящее время он проходит стадию сведения и выйдет осенью, об этом сообщил вокалист группы <strong>James Hetfield</strong> спортивному каналу <strong>NBC Sports</strong> перед четвёртой игрой финала хоккейного Кубка Стэнли. James Hetfield и <strong>Kirk Hammett</strong> открыли матч исполнением гимна США.</p><p>Сан Хосе в итоге финал проиграли. Как будет с METALLICA и их новым альбомом?</p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/tn-vFVik6Q4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 15.06.2016 news METALLICA finished recordings
+
+<p><strong>METALLICA</strong> has finished recording their tenth album. Currently, it is at the stage of mixing and will be released in the fall, reported the group's vocalist<strong> James Hetfield</strong> to sports channel <strong>NBC Sports</strong> before the fourth game of the final of the hockey Stanley Cup. James Hetfield and<strong> Kirk Hammett</strong> opened the match with the anthem of the United States.</p><p>San Jose eventually lost the final. How will METALLICA and their new album?</p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/tn-vFVik6Q4" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.07.2016 news METALLICA назвали дату релиза
+
+<p>Десятый альбом<strong> METALLICA</strong> выйдет на <strong>Universal</strong> 14 октября. Об этом сообщило немецкое издание<strong> Bild</strong>.&nbsp;</p><center><img width="631" height="800" src="/images/news_rus/2016.07/29551.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 08.07.2016 news METALLICA new album on October, 14
+
+The tenth album of<strong> METALLICA</strong> will be released on <strong>Universal </strong>on October 14. This was announced by German<strong> Bild</strong>.<p><center><img width="631" height="800" src="/images/news_rus/2016.07/29551.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 15.08.2016 articles Всеволод Баронин: «Самоценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы»
+
+<p><em></em><center><em><img width="392" height="600" src="/images/articles_rus/2016.08/29810.jpg" border="0"></em><p></p></center><p><em>Мы начинаем регулярную рубрику на нашем сайте. У неё пока нет названия. Но есть идея, общаться с знатоками тяжёлой музыки в нашей стране и за её пределами, стараясь разобраться в актуальных течениях и тенденциях. В общем, что надо слушать, а что не надо. Первым нашим собеседником стал <strong>Всеволод Баронин</strong>, музыкальный эксперт.</em></p><p><strong>Какие, по-твоему, основные тенденции в тяжёлой музыке в августе 2016 года? На что стоит обратить внимание нашим читателям?</strong></p><p>Нужно говорить отдельно о Европе и Америке. И там, и там значительно вырос интерес к традиционным хэви-составам, что бы под этой традиционностью не понималась (от совершенно традиционного HMR до симфонического пауэр-метала) – может, стилистику подобных групп можно даже назвать ретро-металом, если мы говорим, допустим, о последнем миньоне Candlemass. В Америке же к этой традиционной составляющей добавляются группы вроде Fallujah, которые сочетают в своем материале брутальность и обильную клавишную и неклавишную электронику. Пока еще эти, условно говоря, новые бруталисты не очень известны в Европе и вообще за пределами США (хотя у себя дома они вполне звезды), но мне кажется, что в ближайшие полгода ситуация изменится.</p><p><strong>Какие бы ты назвал примеры традиционных HMR составов, которые набирают сейчас популярность?</strong></p><p>Мне кажется, что в ближайшие месяцы во всяком случае вернет себе популярность White Wizzard, к которым сейчас вернулся первый вокалист, и альбом на подходе. Также очень радует возвращение тех же Candlemass с Матсом Левеном у микрофона. Если говорить о музыке чуть радикальнее, то одним из событий ближайших месяцев станет выход альбом индийских трэш-металлистов Kryptos "Burn Up The Night". Ретро-трэш такой степени достоверности в рок-метрополиях ныне просто не играют.</p><p><strong>А что скажешь о Blues Pills?</strong></p><p>По-моему, это такая игра в конец 60-х и начало 70-х. То есть обычно эта ниша заполняется в наше время кавер-группами, но здесь группа играет свой собственный материал, пусть и похожий сразу на многое из той эпохи. А раз такая музыка понятным образом уже проходит по ведомству вечных ценностей, то успех группы понятен.</p><p><strong>Но с точки зрения музыкальной&nbsp; ценности эта группа имеет какое-то значение? Вообще, чем вызвана такая повальная мода на подобную музыку сейчас?</strong></p><p>Именно САМОценность и оригинальность музыки Blues Pills и подобных вызывает большие вопросы, однако спрос на них вызван смутной ностальгией по всей рок-эпохе 70-х, когда "трава была зеленее". При том, что я очень сомневаюсь, что поклонники групп вроде Blues Pills или Radio Moscow хоть что-то слышали про прототипы почти полувековой давности, таких, как Bakerloo или Cressida. Разве только про Cream знают… В любом случае Blues Pills и составы, им подобные, очень хорошо заполняют нишу спроса на старомодный хард-рок, поскольку работоспособность групп-ветеранов сейчас находится под большим вопросом.</p><p><strong>Но ведь, по идее, подобную музыку должны любить уже люди старшего возраста, но судя по продажам, молодёжь тоже прониклась.</strong></p><p>Это как раз неудивительно – группа молодая, и играет музыку, которую молодой слушатель никогда не слыхал. Если только из коллекции родителей, но это довольно редкая ситуация. То есть это классический случай того, как новым оказывается ОЧЕНЬ хорошо забытое старое.</p><p><strong>Но ведь музыка развивается? Почему вдруг мы вернулись на 40 лет назад?</strong></p><p>Получилось то, о чём я говорил выше: все новые брутальные имена для молодежи сосредоточены в США, а ретро-рок там популярен у аудитории хорошо за 30, а то и за 40, Blackberry Smoke тому примером. И эту брутальную молодежь в Европу что-то особо не возят. И на самом деле просто нужно признать, что рок стал ровно такой же институцией, как классика или джаз, то есть дальнейшее развитие стиля вглубь, как мне кажется, не очень вероятно. Так что масса молодых групп предпочитает идти по чужим следам, а не изобретать что-то своё.</p><p><strong>Что скажешь о Thrash metal? В этом году вышло много альбомов классических коллективов. Megadeth, Anthrax, Destruction, Death Angel. Что скажешь о них?</strong></p><p>А вот это именно тот случай – ещё один случай, когда субстиль очень хорошо чувствует себя именно за счёт интереса публики всех возратов. Не секрет, что все главные имена трэш-метала – это ветераны, а кому ж неохота услышать новую работу мастеров или прийти на их концерт?</p><p><strong>Но они все разные. Вот, например, Anthrax тяжело теперь назвать Thrash.</strong></p><p>Весь феномен, который англичане называют Thrashback!, основан в первую очередь на том, что люди покупают носители и идут на концерт не из-за музыки, а из-за имени. Тем более, что толковых молодых имён в трэш-метале так и не появилось – разве только Vektor.</p><p><strong>Не уходи от вопроса. Как тебе последний Anthrax?</strong></p><p>Мне альбом НЕ понравился. Как мне кажется, Джой Белладонна перетянул одеяло на себя, и в результате альбом стал похож на его невразумительные сольные работы. А Скотт Ян, по-моему, пытался сочинить каких-то условно модных песен – но именно таких, как он сам это "модное" понимает. Только его точка зрения не совпадает с точкой зрения аудитории. Печально.</p><p><strong>А что насчёт Megadeth? Все в восторге.</strong></p><p>Именно тот случай, когда группа приподнесла стопроцентно предстказуемый альбом. Только вот звук и игра гитариста Кико Лорейро вызывает значительно больше восторга, чем качество материала. Хитов-то нет! Но у Megadeth так дела обстоят года с 1997.</p><p><strong>А что насчёт RAGE? Их возвращение к корням и уход Смольского широко обсуждался.</strong></p><p>В общем-то аналогично ситуации с Megadeth – Rage вернулись в 1993 год и ранее. Хотя возвращение вышло несколько формальным – я не расслышал, чтобы новый гитарист принес в группу какие-то свои идеи. Он пока рад-радёшенек косить своей композиторской и исполнительской манерой под Манни Шмидта. Это вполне естественно, так что для оценки уровня его собственных амбиций и направления развития Rage нам нужно будет дождаться их следующего альбома.</p><p><strong>И немного заглянем в будущее. Что ждёшь от Running Wild?</strong></p><p>Опять же воспроизведения всех, абсолютно всех клише группы. Странно было бы ждать от Running Wild чего-то другого. А уж хиты – это как получится.</p><p><strong>А Sodom?</strong></p><p>Та же ситуация, что с Running Wild. Песни всем – и группе, и её поклонникам – нужны абсолютно такие же, как и ранее. Такими и будут. Что же касается звучания альбома, то может произойти его лёгкая коррекция, но так бывало и ранее, и это никого не обижало.</p><p><strong>Ну, а кто-то из ветеранов творит? Или все "шаблонят"?</strong></p><p>Как мы уже говорили выше, сравнивая Anthrax и Megadeth, писать сейчас альбомы, схожие с иными собственными творениями – скорее доблесть, нежели наоборот. Поскольку, как в случае с Anthrax, новые подходы ветеранов к материалу, оказываются мало кому нужными. Подозреваю, что такая же неприятность приключится с новым альбомом группы Джеффа Тэйта Operation: Mindcrime.</p><p><strong>Ну и что тогда лучше? Штамповать или экспериментировать?</strong></p><p>Как мне кажется – музыкантам сейчас придерживаться собственных корней и одновременно экспериментировать со студийным звучанием, но опять же в разумных пределах.</p><p><strong>Ну и последний вопрос. Metallica.</strong></p><p>А тут как раз – полная непредсказуемость. То есть понятно, что стилистика группы сильно не изменится, но вот какой звук они нарулят в студии? Это будет интересно услышать. Правда. В прошлый раз все странности следовали даже не от студийного звука, а от мастеринга, сделанного под размещение музыки в Интернете и прослушивании её на i-устройствах. Мне лично кажется, что материал с музыкальной точки зрения будет всё же похож на "Death Magnetic" – такой группе нет причин экспериментировать, тем более в условиях современного спроса на трэш-метал. Но со звуком могут быть сюрпризы.</p><p>Прочитать рецензии Всеволода можно в его ЖЖ по адресу: <a href="http://vs-baronin.livejournal.com/">http://vs-baronin.livejournal.com/</a></p>
+Автор: Vit Belov
+
+### 19.08.2016 articles Владимир &#39;Impaler&#39; Миловидов: &quot;Как слушателя меня METALLICA не интересует&quot;.
+
+<p><em><center><img width="500" height="500" src="/images/articles_rus/2016.08/29831.jpg" border="0"></em></p><p><em>Продолжаем пока нашу не названную рубрику интервью с главным редактором журнала In Rock Владимиром 'Impaler' Миловидовым. Главной темой беседы стал выход на этой неделе нового номера издания.</em></p><p><strong>На этой неделе вышел третий в этом году номер InRock. Не могу не начать с поздравлений и разговора об этом номере. Обрисуй вкратце, на что должен обратить внимание читатель в этот раз.</strong></p><p>Спасибо! В этом номере, как всегда, много странного и малоизвестного. Например, итальянский прогрессивный "многостаночник" Фабио Дзуффанти - у него больше десятка групп, в которых он играет в разных стилях, от классического прог-рока до нойза... Или история стил-гитариста группы Juicy Lucy Гленна Кемпбелла, которую наш автор Пётр Кулеш готовил, на моей памяти, лет пять! Такие персонажи, может быть, не так на слуху, но их жизнь, со всеми поворотами, удачами и неудачами - отражение того безумного интересного времени. Я рад тем интервью, которые у меня получились - почему-то в основном с металлистами. Особенно Эрик Питерсон из Testament - и про трэш рассказал, и про стрельбу из лука, и даже про Трампа. Вкратце - вот.</p><p><strong>Да. С удовольствием почитал и TESTAMENT, и IRON SAVIOR. Как ты относишься к этим группам и их современному творчеству?</strong></p><p>Testament я начал слушать с диска "The Gathering", до сих пор мой любимый, хотя сказать, что я сильно углубился в их творчество и знаю всё наизусть, не могу. Просто хорошая группа, честная, со своим лицом, и с гениальным Сколником в составе. Одно жаль - интервью сделал, а на концерт так и не попал из-за другой своей работы. Бывает. Что касается Iron Savior, то я очень любил и люблю Helloween и всю их музыкальную семейку, и Пит Зилк занимает в ней достойное место. На мой взгляд, у них был грандиозный дебют, хороший второй альбом, потом всё пошло на спад, а затем - очень сильный альбом-возвращение "The Landing". Следующие два снова вышли более формальные, что ли. В интервью, на мой взгляд, Пит сказал одну вещь, которую я раньше нигде не встречал - что история "Железного спасителя" вдохновлена немецкоязычной фантастической серией "Perry Rhodan", что-то типа печатного сериала, который выходит с 1961 года и уже опубликовано 2800 выпусков, и Пит их все или почти все читал! Вот это настоящее, хорошее безумие. И, я так понял, мыслящий космический корабль там тоже есть.</p><p><strong>В последнее время InRock выходит не так регулярно, как некоторое время назад. Читатели волнуются. Что можешь им сказать?</strong></p><p>Shit happens, что тут сказать. Но пока нет оснований, чтобы сдохнуть - во всяком случае, читательское ядро сохраняется. С другой стороны, есть целая масса факторов, которые играют против - это и конкуренция сетевых СМИ (тут надо не бороться, а, наоборот, вливаться в их число, что мы и делаем), это и общий спад интереса к чтению, и закат эры "классического рока", и ухудшение экономической обстановки, и даже банальная ликвидация газетных ларьков в подземных переходах. Главная причина, наверное, в том, что почти три года назад я устроился работать у нас в Троицке в местную городскую газету журналистом, и теперь полжизни как минимум посвящены ей, и на журнал сил и мыслей остается всё меньше. Но, в общем, у нас все авторы пишут в свободное от основной работы время, чем я лучше их? :)))</p><p><strong>Ну, поговорим о "современных тенденциях", так сказать. В чём они в тяжёлой музыке сегодня, на твой взгляд?</strong></p><p>С этим смешная штука - обычно мы всегда пишем о позапрошлых тенденциях. Когда что-нибудь выходит из моды - значит, оно состоялось. Недавно побывал на концерте прекрасной прогметал-группы Tesseract, посреди лета - полный зал юных фэнов, ну, думаю, классно, стиль жив, а потом товарищ мне пишет, мол, да это же джент, он давно уже застрял в развитии и погряз в самоповторах. Ну, думаю, ладно, раз устарел - значит, велкам. Если серьезно, то, с одной стороны, есть много экспериментальных метал-команд, часто инструментальных, которые, к удивлению, не воспринимаются публикой как эспериментальные - люди радостно скачут, рубятся и приходят в восторг под их музыку. Из примеров - недавно слушал Between The Buried And Me. Интересно, но для меня - слишком дико. Еще недавно у нас появился прекрасный автор Алексей Евдокимов, знаток стоунера и дума, среди того, что он пишет, встречаются классные имена... Мне не близок сам стоунер как музыка, но нравится, что его слушатели всегда горячо откликаются на музыку, поддерживают своих исполнителей, покупают мерч и так далее. Наверное, в этом тенденция - появление множества маленьких музыкальных ниш со своими преданными фэнами. Еще соглашусь с коллегой Барониным - есть ренессанс старого хард-рока и традиционного хэви, но в лице новых героев. Недавний Airbourne - отличный пример. Или Lost Society. Или, скажем, Sabaton - группа выросла буквально за несколько лет до стадионных масштабов, а ведь это по музыке совершеннейшее ретро! Здесь есть некий парадокс - ведь на сцене хватает и ветеранов, играющих ту же музыку, но совершенно не прославившихся, но музыкальная индустрия почему-то выводит на авансцену новых персонажей. Я бы назвал это "героезамещением" - понятно, что со временем уйдут и AC/DC, и даже Iron Maiden, и надо готовить новых персонажей для их аудиторий, а зачем "вкладываться" в ветеранов, когда есть молодежь, с одной стороны, она посговорчивее, с другой, молодая публика гораздо охотнее влюбится в молодых же исполнителей. И это нормально. Смежная тенденция - это обилие кавер-, трибьют-, или, как сейчас говорят, legacy bands, которые уже не воспринимаются как простые кабацкие лабухи, это серьезные проекты, с шоу, c договорённостями о правах, с гастролями по всему миру. Иногда там бывают какие-нибудь "экс-участники составов экс-участников"... И еще одна вещь, ровно противоположная - грубо говоря, поп-музыка в метал-обрамлении. Ультрасовременный звук, все достижения саунд-продюсировния, прилипчивые мелодии, актуальные тексты. Самый яркий пример, наверное, Amaranthe. Или, из нового, я был поражен, причем в хорошем смысле, проектом Babymetal. Ты видел их дуэт с Хэлфордом? Радует, когда у людей есть чувство юмора. А с другой стороны, там и с музыкой всё в порядке, и с самоотдачей "исполнительниц". Когда-то Юрий Мелисов, помнится, мечтал спеть песню про мамонтёнка в стиле пауэр-метал. Вот это примерно оно же, только с японской сумасшедшинкой.</p><p><strong>Меня, честно говоря, пугает их энтузиазм:) Вот, кстати, про Tesseract, есть у меня несколько читателей журнала, которые задают тебе вопрос, почему мало пишете про современный progressive?</strong></p><p>Смотря что считать современным. Тот же Стивен Уилсон с обложки позапрошлого номера - вполне современный... хотя, наверное, уже не такой молодой, как он выглядит. Новые артисты в ретро-жанрах у нас появляются регулярно (скажем, тот же Дзуффанти). А из не-ретро мы писали про Alcest, про Textures... А если говорить именно про джент, пост-метал и т.д., то весь вопрос в том, кто про них грамотно напишет. Журнал устроен так, что каждый автор исследует своё поле, пишет про тех, кто ему нравится и в чём он разбирается. Появится автор, который в теме современного прога - значит, будут и эти группы.</p><p><strong>Поговорим о чём-то более приземлённом. Сегодня вышел первый сингл METALLICA. Ты ждёшь их новый альбом или тебе это уже не интересно?</strong></p><p>Как журналисту интересно, как слушателю - нет. Сингл еще не успел послушать, но сейчас это сделаю:) </p><p><strong>А как слушателю тебе что-то интересно из выходящего в ближайшие пару месяцев? Что-нибудь ждёшь с юношеским нетерпением?</strong></p><p>Ох... Задумался. Сейчас интригуют работы друзей. Скажем, очередной альбом Александра Кулака из Azazello - он присылал несколько вещей, и они прекрасные... Судя по всему, он будет инструментальным. А из грандов - скоро выходит новый Van der Graaf Generator, думаю, это будет очень серьезно! Готовит новый альбом Стив Хаккет, это музыкант, у которого всегда происходит чудо... Интересно, какой будет новый Flying Colors. До сих пор чего-то жду от Кена Хенсли. Мечтаю, что еще будет когда-нибудь новый диск King Crimson. А из недавних релизов меня поразил "Аукцыон" "На Солнце". Это&nbsp; красивейшая музыка, я бы сказал, экзистенциальная - чистая энергия и поэзия. На этом фоне новая песня "Металлики" кажется какой-то пыльной декорацией. Хотя и она своих слушателей порадует, а если люди испытывают радость - это главное...</p><p><strong>А метал уже никакой не интересует? Устарел?</strong></p><p>Интересует, конечно! Просто не могу вспомнить, что выходит прямо вот сейчас. Но скажу, что жду с интересом концерта группы Vektor, очень любопытная команда, возрождающая прогрессивный трэш-метал на каком-то новом уровне... Всегда прекрасные вещи делает Девин Таунсенд. Из прогметаллистов очень порадовал новый диск Myrath. Да и просто честного мелодичного пауэра хорошего уровня сейчас довольно много.</p><p><strong>Что скажешь о RAGE? Как тебе их возвращение к корням?</strong></p><p>К стыду своему, еще не слушал. Но творческая ситуация в позднесмольском составе была тупиковая, думаю, возврат к формату "Black in Mind" только к лучшему...</p><p><strong>Сейчас выходит новый EVERGREY. Может ли эта команда что-то интересное ещё сделать?</strong></p><p>О, я делал интервью с ними позавчера! Будет в следующем номере. Каких-то откровений в разговоре не припомню, разве только под конец, когда я спросил Энглунда, какую роль он бы сыграл, будь не певцом, а актёром. Ожидал чего-то трагического, а он сказал, что предпочел бы сыграть Дональда Дака. Что касается нового альбома, он весьма хорош, на мой взгляд. Хотя я никогда от них сильно не фанател, считаю их мрачность несколько деланной, что ли, и чересчур однотонной. Во всяком случае, возвращение (еще на прошлом диске) гитариста и барабанщика пошло группе на пользу, оживило ее музыку. А гостевое участие Флор Янсен в двух песнях сделало диск разнообразнее.</p><p><strong>Прочёл в новом номере впечатления от прогового фестиваля в Барселоне. Как ты думаешь, возможно ли нечто подобное в России? Знаю, что ты задумывался об этом. Какие сделал выводы?</strong></p><p>Нет, невозможно. Мне вспоминается замечательный фестиваль "ProgPower Moscow", в приснопамятном клубе "ХО", когда в публике было человек 50, я стоял и думал: как хорошо, что это не я делаю! Вообще, надо, чтобы сначала выросло поколение ребят, которым не надо париться ни о чём, не надо ездить по два часа каждый день в институт и на работу, которым не забивают мозг всякой пафосной белибердой, которых не окружает атмосфера загнанности, усталости и ненависти, и может, лет через 15 тут будут большие фестивали на все вкусы и цвета. В том числе и прогрессивные. А зачатки хорошего у нас были и есть. Это и "хипповые" опен-эйры во главе с "Пустыми Холмами", но их время, к сожалению, ушло, потому что инициатива снизу в нашей стране совсем не приветствуется... А недавно я побывал на "хипстерском" "Ahmad Music Festival", с Пи Джей Харви в хедлайнерах - отлично! Только надо понимать, что такие вещи существуют, пока этого хотят спонсоры, или на бюджет города... Если вдруг власть полюбит прогрессив, будут и прог-фестивали. Вспомни опен-эйры в Казани, которые делал Чепарухин! Вот что значит хорошее дело в хороших руках. Но надо понимать, что такие сочетания - случайны и недолговечны. И лучше, чтобы прогрессив жил сам по себе...</p><p><strong>Ну и последний вопрос. Пишет нам постоянный читатель вашего журнала Алексей. Он спрашивает, до какой поры у вас будут такие странные обложки, до какой поры вы будете писать о всяческой неизвестной и неактуальной ерунде и до какой поры вы будете игнорировать группу HALESTORM?</strong></p><p>Начну с последней части вопроса. Про Halestorm мы писали, по крайней мере, были репортажи с концертов, а с интервью тогда дело не сложилось, и в ближайшее время это вряд ли будет реально. Лично мне эта группа не нравится, но в журнале много раз были случаи, когда я публиковал статьи о музыке, мне неблизкой, потому что наши авторы и люди, чье мнение я высоко ценю, считали ее достойной. Но с Halestorm как-то не сложилось. Увы. Есть много достойного, что проходит мимо в силу тех или иных причин, мир музыки огромен... Еще хочу сказать Алексею, что коль скоро он является нашим постоянным читателем, наверное, наша "неизвестная и неактуальная ерунда" его в какой-то степени интересует. Значит, такова наша ниша - писать о вещах неизвестных и неактуальных, потому что об актуальной ерунде не пишет только ленивый. Мне не раз говорили читатели, что ценят "ИнРок" за то, что мы можем написать о каких-то вещах, которых никогда не найдешь в других журналах. Абсолютно небанальных и не от мира сего. Мне нравится в журнале это состояние свободы, возможность импровизировать, незавязанность на моде и трендах. Конечно, я стараюсь держать баланс, чтобы часть героев номера была всё же узнаваемой... А насколько это удается, судить публике.</p>
+Автор: Vit Belov
+
+### 20.08.2016 news Подробности о новом альбоме METALLICA
+
+<h1>НОВОСТЬ ДНЯ!</h1><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">"<strong>Hardwired...The Self-Destruct</strong>" - долгожданный новый альбом <strong>METALLICA </strong>выйдет 18 ноября. На двойной альбом попадёт более 80 минут музыки. Ниже можно услышать первый сингл с альбома "<strong>Hardwired</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">METALLICA: <em>"Hardwired" представляет следующую ступень развития METALLICA, и мы рады поделиться ею с вами. Альбом спродюсирован Greg Fidelman совместно с Lars и James. Альбом будет также доступен в делюксовом тройном издании. На третий диск попадут риффы, которые стали основой новых песен</em>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>Disc One<br>“Hardwired”<br>“Atlas, Rise!”<br>“Now That We’re Dead”<br>“Moth Into Flame”<br>“Am I Savage?”<br>“Halo On Fire”</p><p>Disc Two<br>“Confusion”<br>“Dream No More”<br>“ManUNkind”<br>“Here Comes Revenge”<br>“Murder One”<br>“Spit Out The Bone”</p><p>Disc Three (Deluxe Edition Only)<br>“Lords Of Summer”<br>“Riff Charge” (Riff Origins)<br>“N.W.O.B.H.M. A.T.M.” (Riff Origins)<br>“Tin Shot” (Riff Origins)<br>“Plow” (Riff Origins)<br>“Sawblade” (Riff Origins)<br>“RIP” (Riff Origins)<br>“Lima” (Riff Origins)<br>“91” (Riff Origins)<br>“MTO” (Riff Origins)<br>“RL72” (Riff Origins)<br>“Frankenstein” (Riff Origins)<br>“CHI” (Riff Origins)<br>“X Dust” (Riff Origins)</p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29827.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/uhBHL3v4d3I" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 20.08.2016 news METALLICA released first single. New album will hit the stores in November
+
+<h1>NEWS OF THE DAY!</h1><p>"<strong>Hardwired... The&nbsp;Self-Destruct</strong>" - the long awaited new <strong>METALLICA</strong> album will be released on November 18. The double album will include over 80 minutes of music. Below you can hear the first single from the album "<strong>Hardwired</strong>".</p><p>Track list:</p><p>Disc One<br>“Hardwired”<br>“Atlas, Rise!”<br>“Now That We’re Dead”<br>“Moth Into Flame”<br>“Am I Savage?”<br>“Halo On Fire”</p><p>Disc Two<br>“Confusion”<br>“Dream No More”<br>“ManUNkind”<br>“Here Comes Revenge”<br>“Murder One”<br>“Spit Out The Bone”</p><p>Disc Three (Deluxe Edition Only)<br>“Lords Of Summer”<br>“Riff Charge” (Riff Origins)<br>“N.W.O.B.H.M. A.T.M.” (Riff Origins)<br>“Tin Shot” (Riff Origins)<br>“Plow” (Riff Origins)<br>“Sawblade” (Riff Origins)<br>“RIP” (Riff Origins)<br>“Lima” (Riff Origins)<br>“91” (Riff Origins)<br>“MTO” (Riff Origins)<br>“RL72” (Riff Origins)<br>“Frankenstein” (Riff Origins)<br>“CHI” (Riff Origins)<br>“X Dust” (Riff Origins)</p><p><center><img width="640" height="640" src="/images/news_rus/2016.08/29827.jpg" border="0"><p></p></center><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/uhBHL3v4d3I" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 26.08.2016 articles Андрей &#39;Andy&#39; Корюхин: &quot;За прошедшее лето ничего интересного я не услышал&quot;
+
+<p><em><center><img width="390" height="1021" src="/images/articles_rus/2016.08/29867.jpg" border="0"></em></p><p><em>Продолжение нашей традиционной рубрики, в которой мы общаемся на музыкальные темы с известными людьми из мира тяжёлой музыки России. На этот раз у нас в гостях главный редактор журнала Dark City Андрей 'Andy' Корюхин.</em></p><p><strong>На днях вышел новый 93 номер журнала Dark City. Расскажи людям, почему им надо быстрее бежать в магазин за ним?</strong></p><p>Ну, во-первых, потому что бежать за новым номером DarkCity нужно в любом случае - не было ни разу, чтобы оно того не стоило! Во-вторых, в это раз у нам помимо целого созвездия ярких имен в разделе статей и интервью (Pain, Rage, Ihsahn, Crematory, Babymetal и т.д.) оказалось и немало тематических "околомузыкальных" материалов: например, первая часть очень детального обзора столичных рок-магазинов (с историческим уклоном), арт-материалы про логотипы метал-групп и дизайны микрофонных стоек, очень большая статья авторства Юры Хирурга про жизненный путь Ника Менцы (Megadeth), ну а также почти сотня рецензий на свежие альбомы, плюс, конечно же репортажи с концертов и фестивалей. Ах да, забыл сюда добавить (как это любят делать в одном отечественном фэнзине) - масса рекламно-информационных материалов :)) А еще постеры - шикарные постеры PAIN, CATHARSIS, SODOM и RUNNING WILD!</p><p><strong>Прочёл, что у вас следующий номер юбилейный, четвертьвековой. Тебе всего 40. Ты чего с 15 лет трудишься в Dark City?</strong></p><p>Нет, конечно, ведь официально первый номер журнала под названием DarkCity вышел в 2000 году. Однако по сути DarkCity - это полноценный преемник легендарного журнала RockCity, а его первый номер вышел как раз ровно 25 лет назад - в 1991 году!</p><p><strong>И какие нас ждут ништяки?</strong></p><p>Ну это пока секрет - подождите месяца полтора, и тогда всё станет известно в деталях!</p><p><strong>Ну ладно. Давай теперь о музыке поговорим. Что для тебя самое актуальное сейчас?</strong></p><p>Самое актуальное для меня за последние месяцы всегда нетрудно отслеживать в разделе персональных Top-5 в конце каждого номера журнала. На этот раз первые три строчки моего топа остались пустыми - за прошедшее лето ничего интересного я не услышал. Так что под настроение приходится переслушивать классику тяжелого рока, причем по возможности на виниле. Ну а если говорить о последнем приобретенном диске в мою коллекцию, то им стала свежая версия великолепного альбома CRADLE OF FILTH 'Dusk... And Her Embrace', получившая приставку 'The Original Sin' - действительно интересная и никогда ранее не слышанная версия этого шедевра!</p><p><strong>Да-да. Четвёртое место занял Equilibrium. Что скажешь об этом альбоме? Вообще, о развитии стиля folk-metal?</strong></p><p>Equilibrium - молодцы. На редкость разноплановый и при этом хитовый и интересный альбом, в котором нашлось место и стёбу - а такое сейчас встречается крайне редко. Вот только к фолк-металу я бы его не стал причислять - он куда разнообразнее, чем принято в рамках этого жанра. А вообще фолк-метал практически исчерпал свой потенциал, и по большей части альбомы в этом жанре стали выходит однотипные и скучные. Особенно у нас в стране.</p><p><strong>То есть тебе Аркона не нравится?</strong></p><p>Скажем так - я их альбомы под настроение не слушаю.</p><p><strong>А есть русские группы, которые внесли вклад, по твоему мнению?</strong></p><p>Несомненно. Та же Аркона, Butterfly Temple. Вот Омелу я очень люблю из этого направления. Про остальные группы не скажу - встречаются интересные команды, альбомы, но в общем и целом это направление на нашей сцене у меня восторга не вызывает.</p><p><strong>Sabaton. Вышел на днях. Что скажешь об этих кумирах?</strong></p><p>Пока не слышал, так что сказать про этот альбом мне нечего. Хотя я не сомневаюсь в том, что это будет достойная работа... и без сюрпризов.</p><p><strong>Ну а если оценивать без сюрпризов? Прёт тебя от такой музыки?</strong></p><p>Конкретно от Сабатона - нет. Вот Manowar - другое дело! :)</p><p><strong>На днях вышел новый сингл METALLICA. Ждёшь с нетерпением новый альбом?</strong></p><p>Отнюдь. Я давно уже ничего не жду от Металлики. И абсолютно никакой заглавный сингл только убедил меня в правильности моих не-ожиданий.</p><p><strong>Как относишься к старым группам, которые, как правило, по-прежнему в первых рядах, на обложках журналов?</strong></p><p>По большей части хорошо, хотя в последние годы они редко выпускают достойные новые альбомы. Такова, увы, тенденция. Поэтому лучше переслушать их классические записи, чем мучить себя их новыми потугами. Исключения здесь крайне редки - за последние пару лет я могу припомнить разве что SLAYER да AMORPHIS, у которых вышли действительно сильнейшие пластинки!</p><p><strong>Не могу не задать вопрос от многих ваших читателей. Ведь вы постоянно пишете об одних и тех же группах?</strong></p><p>Отнюдь. Мы пишем о разных группах. Просто наиболее заслуженные из них появляются на наших страницах чаще остальных. Впрочем, любой музыкальный журнал пишет по сути об одних и тех же группах, просто у одних этот диапазон чуть шире, у других - чуть уже.</p><p><strong>Самому наверное сложно уже составлять журнал? За эти 25 лет, про этих уже писали, это уже спрашивали? Вижу, стали активно писать на околомузыкальные темы... Есть какие-то планы по развитию этого направления?</strong></p><p>Да, составлять каждый новый номер нелегко, но в этом деле помогает опыт и наработки всех этих лет. Конечно, имеется некая шаблонность в материалах - это касается и интервью, и построения номера в целом, но, опять же, это присуще практически всем музыкальным журнала - не только у нас в стране, но и в мире. Поэтому приходится проявлять фантазию и искать оригинальные темы, которые были бы интересны нашим читателям. Ведь надо понимать, что насколько упёртым бы ни был меломан, он всё равно чем-то ещё в жизни интересуется: смотрит кино, играет в компьютерные игрушки, увлекается рисованием или фотографией... Вот мы и пытаемся рассказывать о таких "околомузыкальных" темах.</p><p><strong>Вы называете себя "ведущее издание о тяжёлой музыке". Кто это определял? Как это звучит по отношению к вашим конкурентам?</strong></p><p>Ну это же очевидный факт - по качеству издания, объему, тиражу, контенту, в конце концов, - разве есть или было у нас в стране издание, которое могло бы нас обойти и стать ведущим?</p><p><strong>Ладно. Вернёмся к музыке. Как ты думаешь, должен главный редактор издания о музыке слушать все новинки?</strong></p><p>Конечно нет. Чисто физически все новинки прослушать невозможно, даже если это делать нон-стопом 24 часа в сутки. Сейчас выходит слишком много новой музыки - и, к сожалению, бОльшая часть её не достойна внимания.</p><p><strong>А hard rock, которым все сейчас бредят, слушаешь? Как относишься к тому, что подобным ретро увлеклись некогда лэйблы, занимавшиеся только металом? Napalm, Nuclear Blast...</strong></p><p>Ну если группа исполняет интересный и качественный материал, то не важно, хард-рок это, хэви или ню-метал. Харду я, конечно, слушаю - как слушал и 10, и 20, и почти 30 лет назад. Не сказать, что меня очень интересуют молодые команды в этом жанре, но по классике, особенно на виниле, я всегда готов пройтись :)</p><p><strong>Ну, всё-таки есть группы, которые сейчас "гремят". BLUES PILLS, например. Что думаешь о них?</strong></p><p>Думаю, что это хорошо, однако сам их не слышал :)</p><p><strong>В последнее время стали отменять концерты не только тяжёлой музыки, но и других артистов в неформальных жанрах. Как относишься к этому? Можно ли что-то сделать, чтобы не происходило подобного в России?</strong></p><p>Да, я уже высказывался на эту тему в журнале пару номеров назад. Вкратце могу сказать, что предотвратить подобные срывы может исключительно профессионализм организаторов, их компетентность во всех сферах этого бизнеса и правильно налаженные связи с представителями органов правопорядка.</p><p><strong>Как живёт журнал в нынешней непростой экономической ситуации? Качают, небось?</strong></p><p>Качают сейчас всё - даже выступления церковников, которые по телеканалу Спас показывают! Так что да, и нас качают. Раньше мы переживали по этому поводу, даже пытались сделать вёрстку такой, чтобы ее скан было сложнее прочитать. Но потом как-то поспокойнее относиться стали - постер то со скачанного pdf-скана на стену не повесишь, да и читать журнал куда удобнее в печатном виде, чем мутноватый скан.</p><p><strong>А pdf не продаёте через сеть?</strong></p><p>Нет, пока мы мы продаем только бумажную версию журнала.</p><p><strong>Как ты думаешь, всё-таки будущее за файлами? Это и музыки касается. Вон, Союз электронными продажами своих артистов "золотыми" делает.</strong></p><p>Сложно сказать, за чем именно будущее. Скорее, за мерчем и гастрольным чёсом. Цифровые продажи приносят даже крупным артистам сущие копейки, так что продажа 5 тысяч копий "золотого" альбома в России принесёт Тарье в лучшем случае пару сотен Евро, что сопоставимо с продажей пары десятков копий на виниловых пластинках. Так что винил и всякие интересные лимитированные CD-издания альбомов будут всегда для фанатов и самих групп куда более интересными форматами, нежели бестелесная цифра...</p><p><strong>Ну, а как же большое количество молодых групп, которые что-то даже зарабатывают на Bandcamp? Раньше им это было недоступно.</strong></p><p>Для молодых групп и такая копеечка, видимо, приятна, т.к. с концертов они пока вряд ли могут зарабатывать деньги - скорее, наоборот, им приходится самим платить за выступления в саппорте у больших групп. Да и диски им хлопотнее выпускать... в общем, для них цифровые площадки вроде bandcamp оказываются пока единственным источником дохода с их музыки.</p><p><strong>А что скажешь о ситуации в России? Лицензия, кажется, не в лучшей форме сейчас?</strong></p><p>В России цифровые продажи музыки - это, скорее, исключение, нежели правило. Если есть торренты и бесплатная яндекс.музыка, то зачем платить за "воздух", только лицензионный? Если же говорить о физических лицензионных носителях, то тут положение дел, прямо скажем, неважнецкое. Впрочем, падение продаж дисков - явление всемирное, просто мы тут оказались, как говорится, "впереди планеты всей".</p><p><strong>Ну и чем это может кончиться? Все будут качать и иногда ходить на концерты? Журнал-то DARK CITY будут покупать?</strong></p><p>Чем, как и когда всё кончится - я не знаю. И никто не знает. А вот в ближайшей перспективе на одной чаше весов будут лежать живые концерты, всевозможный мерч и лимитированные издания CD/LP, а на другой - цифровые скачки, и не важно - легальные, полулегальные или пиратские. У журнала такой вариативности, понятное дело, нет - если только нашей редакции не устраивать гастроли по городам и сёлам, где авторы со сцены клубов с выражением читали бы свои материалы :) Так что мы просто будем делать свою работу, и стараться делать её как можно лучше - пока она остаётся хоть кому-то нужной!</p>
+Автор: Vit Belov
+
+### 26.09.2016 news НОВОСТЬ ДНЯ!!! Вторая песня с нового альбома METALLICA &quot;Harwired... To Self-Destruct&quot;
+
+<h1>НОВОСТЬ ДНЯ!!!</h1><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Видео-клип на второй сингл <strong>METALLICA "Moth Into Flame"</strong> с выходящего 18 ноября нового альбома "<strong>Hardwired... To Self-Destruct</strong>" можно посмотреть ниже.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/1iprubvCfdM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.09.2016 news Second song from upcoming METALLICA album &quot;Hardwired... To Self-Destruct&quot;
+
+Video clip for the second single of <strong>METALLICA "Moth Into a Flame"</strong> from coming out November 18, the new album "<strong>Hardwired... To Self-Destruct</strong>" can be seen below.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/1iprubvCfdM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 17.11.2016 news Metallica выпустили сразу три новых видео
+
+<p>Новый альбом легендарных <strong>METALLICA "Hardwired... To Self-Destruct"</strong> выходит 18 ноября. Сегодня группа выпустила сразу три новых видео-клипа на песни "<strong>Dream No More</strong>", "<strong>ManUNkind</strong>" и "<strong>Confusion</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/yqIQvE5R1tU" frameborder="0" allowfullscreen></iframe></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ZChXK2rdr9M" frameborder="0" allowfullscreen></iframe></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/tUVr2xnGIEo" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 20.12.2016 reviews Долго, нудно, без всякого удовольствия и с негарантированным успехом
+
+<p>Когда-то давно, в конце 90-х годов, я на сайте проводил опрос по E-mail с незамысловатой и тупо прямолинейной формулировкой - «Пришли три лучших альбома в метале, по твоему мнению». Я считал этот рейтинг долго и упорно, обновлял его каждую неделю, об изменениях уведомлял читателей в еженедельных рассылках на «Городском Коте». Многое менялось, но одно было неизменным всё время существования «хит-парада», на первом месте обосновался METALLICA “Master Of Puppets”. С огромным отрывом, в каждом втором письме упоминался этот альбом, вышедший к тому времени уже более десяти лет назад. Если сейчас провести такой же простой опрос, поверьте, результаты сильно не будут отличаться. Знаменитый коллектив имеет такую крепкую фан-базу и настолько проник в сознание любого знакомого с тяжёлой музыкой обывателя, что никакого шанса ни у какого другого альбома не будет. Вышедший в ноябре новый альбом METALLICA “Harwired... To Self-Destruct” уже продался больше любого альбома в 2016 году, чего тут рецензировать?</p><p>Уже несколько месяцев до официального релиза альбома, после выхода первого сингла «Hardwired”, все только и обсуждали грядущий CD. На что он будет похож? Такой тяжёлый трек, неужели METALLICA вернётся к корням? Уже тогда было объявлено, что пластинка выйдет на двух CD, ни о каком thrash metal с такой длительностью звучания говорить не приходилось. Заглавная композиция, она же «открывашка», так и осталась сумбурным недоразумением, миазмом той музыки, у истоков которой METALLICA стояли. Гораздо более показательным стал второй сингл «Moth Into Flame”. Качественно записанный хит с цепляющей мелодией, честно говоря, хотелось переслушивать. Было понятно, что никакими 80-ми там не пахнет, но этого никому и не надо. Угодить пропитанным нафталином 'die hard' фанатам, которые до сих пор считают, что лучшую музыку для METALLICA сочинил покойный Cliff Burton, явно не получится, а новому поколению 'Master of Puppets' и уж тем более 'Kill'em All' дорог только как история. Возвращаясь к второму синглу отмечу, сразу стало понятно, что судьба альбома решится в мелодической составляющей. В случае нахождения на альбоме хотя бы ещё парочки таких хитов его уже можно было бы посчитать хорошим, а если METALLICA удалось бы больше, мы могли поиметь исторический альбом — возвращение. Слишком я на это не надеялся, вспоминая, что альбом «двойной». Где там спрятать эти самые хиты, да так, что бы они не утонули в серой массе. Тем более, что трекинг песен всё такой же ужасный — от пяти до семи минут. Выдержать такую длительность композиций можно только в исключительных случаях, но METALLICA это же не PINK FLOYD или DREAM THEATER. </p><p>К сожалению, всё получилось, как и ожидалось. Строго говоря, «Moth Into Flame” так и осталась единственным светлым пятном на альбоме. Всё остальное — это качественно записанное нечто, долгое нудное, с чудными намёками на скорый мелодический катарсис, но без оного. Совсем. Напрашиваются нехорошие вульгарные ассоциации с половой жизнью некоторых животных. Долго, нудно, без всякого удовольствия и с негарантированным успехом. Именно, подобные чувства вызвал у меня «Hardwired”. Начинается песня, вроде забирает, всё узнаваемо, чётко, но каждый раз облом, вытянул пустышку. </p><p>Гораздо интереснее поразмышлять над успехом METALLICA. Довольно просто указать на счастливое стечение обстоятельств в истории этих американцев. Даже название какое удачное придумали! Действительно, я всё реже и реже возвращаюсь к классике METALLICA. Единственный альбом, который неизменно вызывает у меня восторг, «Kill'em All”. Да ещё быть может хит радиостанций «Metallica”, который слушается как идеал pop-metal альбома на все времена. А те хиты thrash metal - “Master”, “Ride” и «...And Justice” уже не пробирают до костей как раньше. Я долго думал об этом и пришёл к выводу, что те фэны музыки, которые не остановились, продолжили расширять горизонты, узнавать новые группы в thrash metal, смежных стилях, у них просто нет времени на постоянное восхищение «Master of Puppets”, каждый день всплывает что-то новое, и что-то даже лучшее, прости Господи. Я вот представлял себе, что если перед концертом METALLICA в Москве забраться на постамент и крикнуть в толпу: «Master – говно!» Что будет? Ведь каждый второй будет в майке с этим альбомом, а каждый первый знает его наизусть. А тут вышел новый TESTAMENT, выходят новый OVERKILL, и особенно KREATOR, который легко двумя видео-клипами уделали весь этот «Hardwired” целиком с его двумя дисками. Те же, кто не хочет тратить свободное время на прослушивание новых альбомов, изучение новых стилей, они навечно остались с METALLICA и IRON MAIDEN и их никак не прошибёшь. При этом их пугающе много, и METALLICA каждый раз занимает первые места в чартах.</p><p>Как обычно, если бы METALLICA укоротили альбом минут до 50, сократили бы хронометраж песен, получился бы вполне приличный альбом, далеко не шедевр, но его хотя бы можно было бы дослушать до конца. Вышедший вариант к этому не распологает, вставить второй диск в проигрыватель могут только изрядно изголодавшиеся по тяжёлому металу люди. Мой Вам совет, немедленно спрячьте «Hardwired”, куда подальше, и бегом в магазин за свежей музыкой. Если Вам понравился этот заунывный мелодичный heavy metal, Вы имеете все шансы испытать настоящий оргазм, прослушивая какой-нибудь новый диск молодой команды, никогда не думайте, что кроме METALLICA ничего в мире тяжёлой музыки больше не придумано.</p><p>Покупайте на Escapemind.ru: <a href="http://escapemind.ru/goods/METALLICA-Hardwired-to-Self-Destruct">http://escapemind.ru/goods/METALLICA-Hardwired-to-Self-Destruct</a></p>
+Автор: Vit Belov
+
+### 27.02.2017 articles Интервью с Сергеем Серебренниковым, барабанщиком проекта &quot;METALLICA с симфоническим оркестром&quot;
+
+<p><em>2 марта на одной из центральных концертных площадок Москвы Crocus City Hall состоится концерт проекта GARAGE DAYZ, официальной трибьют банды METALLICA, в сопровождении симфонического оркестра. Состав уже дал некоторое количество концертов в городах России в прошлом году, в том числе состоялось выступление в Государственном Кремлёвском Дворце. С началом весны «METALLICA” снова приедут в столицу.</em></p><p><center><img width="500" height="333" src="/images/articles_rus/2017.02/30374.jpg" border="0"><p></p><p>Читайте интервью барабанщика Сергея Серебренникова (EVERLOST, BLAZE BAYLEY, PAUL DI ANNO), который принял участие в реализации этой нетривиальной идеи.</p><p>В: <strong>Расскажи, как ты попал в этот проект? Что стало главной мотивацией для принятия участия в этих шоу?</strong></p><p>С 2014 года я являюсь сессионным барабанщиком российского состава вокалистов PAUL DI ANNO и BLAZE BAYLEY бывших участников IRON MAIDEN. Как известно, легендарные английские музыканты не первый год сотрудничают с русской группой. Летом прошлого года мне позвонил продюсер этой группы и пригласил принять участие в METALLICA SHOW. Так же приглашение принял бас-гитарист вышеупомянутой группы&nbsp; Николай Коршунов. Концерт S&M 99 года я всегда смотрел с восхищением и когда мне предложили принять участие в его так называемой репродукции, я быстро согласился. К тому же, важным фактором для меня был состав коллег-музыкантов, а с этой точки зрения все складывалось отлично. Кроме меня в проекте был один из лучших российских бас - гитаристов, а место гитариста было вакантно и я смог пригласить своего друга и коллегу по Everlost и Flash of Aggression отличного музыканта Дмитрия Игнатьева. Вместе с Дмитрием мы предложили продюсерам кандидатуру фронтмена Алексея Маркова и состав был укомплектован. </p><p>В: <strong>Как вас принимает публика с шоу. Не секрет, что уже прошла большая часть тура, был ли какой-то негатив? Ведь часто в нашей стране не очень уважительно относятся к "разогреву", кавер-бэнд может вызывать ту же реакцию.</strong></p><p>На сегодняшний день «трасса тура» включает в себя более 20 концертов, первую часть мы отыграли в конце 2016 года, она завершилась большим аншлагом на одной из главных сцен Минска. Вторая часть тура начинается с московского концерта, который пройдет в 2 марта в Crocus city hall.. Со сцены мы в основном видим полные или почти полные залы я думаю, это главный показатель интереса людей к шоу. Сказать по правде, мы очень адекватно и спокойно относимся к своей роли в этом проекте. Не хватаем звезд с неба и не примеряем на себя образ музыкантов самой известной thrash-metal группы на планете. Но к моему приятному удивлению, публика невероятно отзывчива и очень активно нас принимает.&nbsp;&nbsp;&nbsp; </p><p>В: <strong>Есть ли цель у вас копировать музыкантов METALLICA не только музыкально, но и внешне. Ты стараешься использовать какие-то фишки Ульриха, создавая атмосферу и настроение?</strong></p><p>Если только с музыкальной точки зрения... Каждый из участников группы вполне сложившийся артист, с отработанным имиджем и было бы нелепо, на мой взгляд, пытаться копировать поведение участников Metallica на сцене. Мы стараемся внимательно работать над музыкальными партиями, находя баланс между студийным оригиналом песен и концертными фишками Metallica. Единственной визуальной фишкой Ларса станет конфигурация ударной установки на московском концерте. В туре мы обычно обходимся скромными сэтами, но в Крокусе планируем порадовать зрителей более привычными для знатоков Metallica барабанами. </p><p><center><img width="360" height="461" src="/images/articles_rus/2017.02/30376.jpg" border="0"><p></p><p>В: <strong>Было ли сложно с исполнительской точки зрения осуществить этот проект? Как долго шли репетиции? Как вы соорганизуетесь с оркестром? Ведь вряд ли у рок-исполнителей есть большой опыт работы в таком расширенном составе музыкантов?</strong></p><p>Мы начали репетиции в начале осени в спокойном режиме, а в конце осени отыграли первые концерты. Подготовить свои партии и сыграться между собой было не очень сложно, а вот привыкнуть, что с нами вместе играют еще 60 человек было психологически не просто. Но мы справились, и в этом нам очень сильно помог своей поддержкой главный дирижер проекта Виктор Бабарикин, заслуженный артист Республики Беларусь. У нас оговорена система взаимодействия и на сцене мы с дирижером являемся связующим звеньями. Он со стороны классических музыкантов в костюмах, а я со стороны лохматых рокеров. </p><p>В: <strong>Как ты относишься к музыке с симфоническим оркестром? Обогощает ли это, на твой вкус, звучание или добавляет ненужный металу пафос? Хотел бы выступить с оркестром с какой-нибудь своей основной группой?</strong></p><p>Мне всегда казалось, что выступление рок-группы с оркестром это очень эпичное событие. Мы не редко видим в соцсетях «бутлеги» наших выступлений и благодаря этому я понимаю, как сильно отличается живое звучание от не очень качественной видеозаписи.. Оркестр, исполняющий рок-музыку, вряд ли оставит кого-то равнодушным, но это нужно слушать вживую. Меня всегда интересовало это сочетание рок музыки и симфонических инструментов и 2012 году, мы с Everlost в качестве эксперимента записали сингл с симфоническим квартетом. </p><p>В: <strong>Как относишься к мнению, что подобные проекты существуют только для лёгкого заработка и не несут никакого смысла?</strong></p><p>На мой взгляд это шоу призвано дарить положительные эмоции тем кто рос на музыке Metallica и вдохновлять молодых людей на свое собственное творчество. Мы видим радостные лица в зале и это главное! Возить такой серьезный и дорогой проект не так-то просто. Наверняка существует большое кол-во способов заработать деньги более легким&nbsp; путем.. </p><p>В: <strong>Новый альбом METALLICA "Hardwired..." вышел несколько месяцев назад и стал несомненным бестселлером. "Вставь свои пять копеек" в дискуссию. Дрянь всё-таки или шедевр?</strong></p><p>Я послушал альбом целиком всего один раз и в целом он мне понравился, вполне самобытный и эмоциональный. Но, как и все последние их работы, не может претендовать на культовый статус, который получили ранние альбомы.&nbsp; </p><p>В: <strong>Ну и напоследок, что ждать публике на новом концерте в Москве, насколько я понимаю, это уже второй концерт здесь с этой программой. Соберёте Крокус?</strong></p><p>Я уверен, что мы сумеем порадовать поклонников Metallica хорошим шоу и у нас есть приятный сюрприз специально для этого концерта. Мне кажется, что площадка выбрана очень удачно и шоу будет классно смотреться на сцене Крокуса. Действительно, проект существовал до нашего участия, и предыдущий концерт имел успех в Кремле. Но, насколько мне известно,&nbsp; это не снизило интерес и сейчас продано около 3-4 тысяч билетов. А это вполне позитивно на мой взгляд!</p></center></center><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/cwYG0r0jVeg" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 02.03.2017 news METALICA SHOW в Crocus City Hall
+
+<h1><center><img width="390" height="466" src="/images/news_rus/2017.03/30367.jpg" border="0"></center></h1><h1>METALICA SHOW в Crocus City Hall</h1><p>2 марта,&nbsp; <strong>Crocus City Hall, METALLICA SHOW</strong>: программа знаменитого <strong>'S&M'</strong> «Металлики» в исполнении группы и оркестра. После триумфального концерта в Государственном Кремлевском Дворце в апреле прошлого года, собравшем почти что полный аншлаг на главной концертной площадке страны, METALLICA SHOW возвращается в Москву. На этот раз публику ждет новое мультимедийное шоу, большой оркестр из 68 человек, большая программа в двух отделениях, а также некоторые всемирно известные хиты, не вошедшие в оригинальную программу 'S&M' в 99-м году. Оркестр: <strong>«Русская филармония»,</strong> под управлением народного артиста Республики Беларусь, главного дирижера Президентского Оркестра Республики Беларусь <strong>Виктора Бабарикина</strong>.</p><p>Подробная информация о шоу на сайте sam-show.ru и группе вконтакте: <a href="http://vk.com/metallicashow">http://vk.com/metallicashow</a>.<br>Заказ билетов: <a href="https://ponominalu.ru/event/metallica">https://ponominalu.ru/event/metallica</a></p><p><center><img width="468" height="60" src="/images/news_rus/2017.03/30346.gif" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 16.06.2017 news METALLICA из винила
+
+<P>Компания <STRONG>Funko</STRONG>, специализирующаяся на выпуске всевозможных забавных виниловых игрушек, анонсировали выход фигурок музыкантов группы <STRONG>METALLICA</STRONG>. До этого компанией уже было выпущено несколько героев рока. В том числе, музыканты<STRONG> GUNS N' ROSES</STRONG>, <STRONG>Jimi Hendrix</STRONG>, <STRONG>Lemmy Kilmister</STRONG>: <A href="http://goo.gl/j6j1kV">http://goo.gl/j6j1kV</A><BR><BR>Старт продаж планируется в самом конце августа. Предзказ можно сделать уже сейчас: <A href="http://goo.gl/PfNhWg">http://goo.gl/PfNhWg</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.06/30568.png" width=516 height=516> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### METALLICA

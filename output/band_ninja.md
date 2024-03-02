@@ -24,6 +24,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.05.2016 news Переизданы альбомы NINJA
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Немецкий лэйбл<strong> Karthago Records</strong>, специализирующийся на переизданиях классики heavy metal, выпустил в апреле два альбома немецкой группы<strong> NINJA</strong> - дебютная работа "<strong>Invincible</strong>", в оригинале вышедшая в 1988 году, и второй альбом "<strong>Liberty</strong>", вышедший в 1992 году. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Группа существует и в наши дни, её последний альбом "<strong>Into The Fire</strong>" вышел в 2014 году на близкородственном <strong>Karthago Pure Steel Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Приобрести альбомы можно на сайте Karthago: <a href="http://www.karthagorecords.de">http://www.karthagorecords.de</a></font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="160" height="160" src="/images/news_rus/2016.05/29219.jpg" border="0"><img width="160" height="160" src="/images/news_rus/2016.05/29220.jpg" border="0"><p></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 30.05.2016 news Two albums of NINJA was reissued
+
+<p>The German label <strong>Karthago Records</strong> specializing in reissues of classic heavy metal, released two albums of the German band<strong> NINJA</strong> in April. Debut <strong>"Invincible</strong>", originally released in 1988, and their second album "<strong>Liberty</strong>" released in 1992. </p><p>The group exists in our days, her latest album, "<strong>Into The Fire</strong>", was released in 2014 on closely related to Karthago, <strong>Pure Steel Records</strong>.</p><p>To purchase the albums on the site Karthago: <a href="http://www.karthagorecords.de">http://www.karthagorecords.de</a></p><center><img width="160" height="160" src="/images/news_rus/2016.05/29219.jpg" border="0"><img width="160" height="160" src="/images/news_rus/2016.05/29220.jpg" border="0"><p></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

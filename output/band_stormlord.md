@@ -88,6 +88,77 @@ Sentenced etc.)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.02.2002 reviews Сказ о том, что итальянец всегда остаётся итальянцем, даже если любит black-metal
+
+<p>Хорошая качественная пластинка из Италии. Melodic black-death с клавишными из страны fantasy. Вы можете подумать, что это похоже на Children Of Bodom, но я скажу Вам на что это похоже!!! Это похоже на RHAPSODY!!! Да, да на Rhapsody или на Skylark, как угодно. Группа пытается рассказать ужасно интересную историю о колдунах, драконах и рыцарях и для этого использует кучу различных вокалистов из малоизвестных итальянских команд (разве, что Novembre чего-то уже добились). Кто визжит, кто-то дурацким голосом говорит... В общем, сказка. Музыка вся очень мелодично-слащавая. Правда по музыкальному материалу, это где-то на уровне среднего итальянского power, но захватывает... Качественно, прикольно.... Любителям творчества итальянских команд и fantasy, смешанного с melodic death-black' ом.</p>
+
+Автор: Vit Belov
+
+### 02.03.2002 reviews Tale about Italian that will be Italian, even he likes black-metal
+
+<p>Good qualitative CD from Italy. Melodic black-death with keyboard from the country of fantasy. You can think, that it is similar on Children Of Bodom, but I shall tell to you on what it similar!!! It is similar on RHAPSODY!!! Yes, yes on Rhapsody or on Skylark, somehow. The group tries to tell an awfully interesting history about wizards, dragons and knights and for this purpose uses a heap various vocalists from little-known Italian bands (unless, that Novembre something already have achieved). Someone squeals, someone speaks with foolish voice... In general, fairy tale. Music is all very melodious&sweet. The truth on a musical material, grasps it somewhere at a level of average Italian power, but... Qualitatively, funny.... To the fans of creativity of the Italian bands and fantasy, mixed with melodic death-black.</p>
+
+Автор: Vit Belov
+
+### 17.05.2002 news Ancint+Stormlord tour Dates in Spain
+
+<p><B>ANCIENT + STORMLORD + NUMEN + OBLIVION</B></p>
+<P>30.05.02 Barcelona - Mephisto Tickets: 14 / 16 Ђ <BR> 31.05.02 Murcia - Tнa Marнa Tckets:14 / 16 Ђ <BR> 01.06.02 Madrid - Ritmo & Compбs Tickets:14 / 16 Ђ <BR> 02.06.02 Irъn (Gipuzkoa, Basque Country) - Tunk! Tickets14 / 16 Ђ (*) Ancient-Stormlord and Numen only</>
+
+Автор: Vit Belov
+
+### 22.09.2003 news STORMLORD назвали новый альбом
+
+В начале 2004 года на Scarlet Records выйдет новый альбом STORMLORD 'The Gorgon Cult'. CD будет записан с 3 ноября по 18 декабря в <B>Outer Sounds</B> в Риме с продюсером <B>Giuseppe Orlando</B> (<B>NOVEMBRE</B>)<B>.</B> На альбом войдут 9 песен, включая кавер <B>IRON MAIDEN "Moonchild"</B>.
+Автор: Vit Belov
+
+### 15.01.2004 news STORMLORD завершили работу над своим новым альбомом
+
+<P>Итальянцы <B>STORMLORD</B> завершили работу над своим третьим альбомом под названием <B>"The Gorgon Cult". </B>Он был записан в римской <B>The Outer Sound Studios</B> под руководством <B>Giuseppe Orlando</B> (<B>NOVEMBRE</B>, <B>NECRODEATH</B>, <B>DGM</B>, <B>THY MAJESTIE</B>) и прошел мастеринг в шведской <B>The Mastering Room.</B> Релиз назначен на 25 февраля в Японии через <B>Soundholic Records</B> и на начало марта в Европе через <B>Scarlet Records</B>. Окончательный трек-лист альбома:</P>
+<P><IMG height=140 alt="" hspace=50 src="/images/news_rus/2004.01/5861.jpg" width=150 align="right" border=0>1. <B>The Torchbearer</B><BR>2. <B>Dance Of Hecate</B><BR>3. <B>Wurdulak</B><BR>4. <B>Under The Boards (195, M.A.)</B><BR>5. <B>Oath Of The Legion</B><BR>6. <B>The Gorgon Cult</B><BR>7. <B>Memories Of Lemuria</B><BR>8. <B>Medusa's Coil</B><BR>9. <B>Moonchild</B> (<B>IRON MAIDEN</B> cover)<BR>10. <B>Nightbreed</B><BR>11. <B>A Sleeping River</B> (bonus track, Japan only)</P>
+<P>Кроме того, диск будет содержать мультимедиа-секцию, в которую войдут: 10 нереализованных трэков в высококачественном mp3 формате, видеоклип <B>"I Am Legend"</B> на песню с предыдущего альбома, множество студийных и концертных фоток группы, биография группы и информация о ее участниках, а также дискография и интернет-ссылки.<BR></P>
+Автор: Dimas
+
+### 10.10.2004 news STROMLORD сняли видео-клип
+
+<P>Новый клип <STRONG>STORMLORD</STRONG> на песню "<STRONG>Under The Boards</STRONG>" с только что вышедшего альбома "<STRONG>The Gorgon Cult</STRONG>" Вы можете посмотреть здесь: <A href="http://www.stormlord.net/new/video2004.html">http://www.stormlord.net/new/video2004.html</A></P>
+<P>Видео снято в духе horror-movie, в ролях заняты известные артисты: <STRONG>David Bracci</STRONG> (фильмы <STRONG>Dario Argento</STRONG>), <STRONG>Giuseppe Oppedisano</STRONG> (<STRONG>'The English Patient'</STRONG>, <STRONG>'Cari Fottutissimi Amici'</STRONG>, '<STRONG>Demonium'</STRONG>), <STRONG>Irene Turati</STRONG> (<STRONG>'Gangs Of New York'</STRONG>).</P>
+Автор: Vit Belov
+
+### 10.10.2004 news STORMLORD shot video
+
+<P>The new horror videoclip for the song "<STRONG>Under The Boards</STRONG>" from <STRONG>STORMLORD </STRONG>album "<STRONG>The Gorgon Cult</STRONG>" is ready to be unleashed!&nbsp;To download the hi-res video, go on this location: <A href="http://www.stormlord.net/new/video2004.html">http://www.stormlord.net/new/video2004.html</A></P>
+<P>The video has been directed by <STRONG>Brigida Costa</STRONG> (the same director of the "<STRONG>I Am Legend</STRONG>" videoclip), the cast is starring <STRONG>David Bracci</STRONG> from the <STRONG>Sergio Stivaletti</STRONG> team (<STRONG>Dario Argento</STRONG> and more), <STRONG>Giuseppe Oppedisano</STRONG> (<STRONG>'The English Patient'</STRONG>, <STRONG>'Cari Fottutissimi Amici'</STRONG>, '<STRONG>Demonium</STRONG>' and more...) as the insane psycho killer and <STRONG>Irene Turati</STRONG> (previously seen on <STRONG>Pupi Avati</STRONG> set and in <STRONG>'Gangs Of New York'</STRONG>). </P>
+<P>"<EM>The story speaks about a psycho surgeon serial killer who come out at night to stalk his victims to trap them in his clinic of horror. We're eager to shock your minds... just expect the most bloody, disturbing and sick metal video EVER! "Under The Boards"&nbsp; comes off the group's third album, "The Gorgon Cult", which was released in May through Scarlet Records</EM>".</P>
+Автор: Vit Belov
+
+### 14.12.2004 reviews Качественно, профессионально, но без хитов
+
+<P>Итальянские фанаты CHILDREN OF BODOM из STORMLORD созрели уже на своём втором альбоме. Созрели они для того, чтобы внести в типичный melodic-death-black с клавишами оригинальные черты. </P>
+<P>‘The Gorgon Cult’ демонстрирует гигантский скачок в развитии группы. На втором альбоме STROMLORD углубились в black-metal. Проявились его черты в некотором утяжелении и убыстрении материала. Правда, по-прежнему клавишные играют большую роль, но кроме разнообразных мажорных power-metal мелодий появилась музыка, пытающаяся нас запугать и создать некоторое подобие horror атмосферы.</P>
+<P>К сожалению, отойдя от неоклассических вариаций в мелодиях, коллектив не смог сочинить чего-нибудь хотя бы столь же запоминающегося. Альбом слушается приятно, не более того… Добавляет приятности неплохой кавер ‘Moonchild’ от IRON MAIDEN. Крепкая работа, которая вряд ли «заездится» в CD-проигрывателях большого количества фэнов. Только любителям. Качественно, профессионально, но без хитов.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Vit Belov
+
+### 22.06.2005 news Новости от STORMLORD
+
+<P>В данный момент&nbsp;<STRONG>STORMLORD</STRONG> работают над новым альбомом, релиз которого запланирован на конец 2006 года на <STRONG>Scarlet Records</STRONG>. Сообщается что альбом будет более эпичным чем&nbsp; "<STRONG>The Gorgon Cult</STRONG>". Кроме того, в группе будет работать новый клавишник <STRONG>Luca Bellanova</STRONG>, который уже отыграл с группой один концерт.</P>
+Автор: Bizarre
+
+### 18.04.2008 news Новости от STORMLORD
+
+<P>Итальянский extreme epic metal коллектив <B>STORMLORD</B> подготовил к изданию свой четвертый полнометражный альбом под названием <STRONG>"Mare Nostrum". </STRONG>Его выход запланирован на 23 мая через <B>Locomotive Records</B>. Альбом был записан в студии <B>Giuseppe Orlando</B>'s <B>Outer Sound Studios</B> (<B>NECRODEATH</B>, <B>NOVEMBRE</B>, <B>KLIMT 1918</B>), а отмастерен на&nbsp;<B>Finnvox Studios</B>&nbsp;под руководством&nbsp;<B>Mika Jussila</B> (<B>HIM</B>, <B>CHILDREN OF BODOM</B>, <B>NIGHTWISH</B>, <B>SENTENCED</B>). Трек-лист:<BR>1. <B>Mare Nostrum</B><BR>2. <B>Neon Karma</B><BR>3. <B>Legacy Of The Snake</B><BR>4. <B>Emet</B><BR>5. <B>The Castaway</B><BR>6. <B>Scorn</B><BR>7. <B>And The Wind Shall Scream My Name</B><BR>8. <B>Dimension: Hate</B><BR>9. <B>Stormlord</B></P>
+Автор: Dimas
+
+### 08.05.2012 news STORMLORD начинают запись
+
+<P>Итальянская melodic death/sympho-black команда <STRONG>STORMLORD</STRONG> начинает запись нового альбома. Группа снова войдёт в студию <STRONG>Outer Sound Studios</STRONG> (<B>NOVEMBRE</B>, <B>NECRODEATH</B>, <B>THE FORESHADOWING</B>, <B>KLIMT 1918</B>) к продюсеру <STRONG>Giuseppe Orlando. </STRONG>Новая работа получила название <STRONG>'Hesperia' </STRONG>и станет концептуальной, основанной на произведении <STRONG>Виргилия "Энеида"</STRONG>.</P>
+<P><center><IMG height=316 src="/images/news_rus/2012.05/23797.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

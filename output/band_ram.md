@@ -51,6 +51,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.09.2011 news RAM на Metal Blade
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.09/20956.jpg" width=400 align=right border=0>Metal Blade</STRONG> заключили контракт с шведской группой <STRONG>RAM</STRONG> на выпуск третьего альбома с незамысловатым названием <STRONG>"Death". </STRONG>Пластинка выйдет в начале 2012 года. Альбом был записан в <STRONG>Welfare Sounds Studios. </STRONG>Трек-лист:</P>
+<P>01. <B>Death...</B><BR>02. <B>...Comes From The Mouth Beyond</B><BR>03. <B>I Am The End</B><BR>04. <B>Release Me</B><BR>05. <B>Defiant</B><BR>06. <B>Frozen</B><BR>07. <B>Under The Scythe</B><BR>08. <B>Hypnos</B><BR>09. <B>Flame Of The Tyrants</B><BR>10. <B>1 7 7 1</B></P>
+<P>Состав:</P>
+<P><STRONG>Oscar Carlquist</STRONG> - Vocals<BR><STRONG>Morgan Pettersson</STRONG> - Drums<BR><STRONG>Harry Granroth</STRONG> - Guitar<BR><STRONG>Daniel Johansson</STRONG> - Guitar<BR><STRONG>Tobias Petterson</STRONG> - Bass</P>
+Автор: Vit Belov
+
+### 25.11.2015 news Новый альбом RAM
+
+<P>Четвёртый альбом шведской heavy-metal банды<STRONG> RAM</STRONG> вышел в конце октября на лэйбле <STRONG>Metal Blade</STRONG>, который стал новым домом для этой олдскульной команды. Диск вышел на этой неделе на российском лэйбле Фоно, его лицензионная версия доступна здесь: <A href="http://escapemind.ru/goods/RAM-Svbversvm">http://escapemind.ru/goods/RAM-Svbversvm</A></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<STRONG>Eyes Of The Night</STRONG>":</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/qmVO2Qgjld4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

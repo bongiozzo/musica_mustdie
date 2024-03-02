@@ -29,6 +29,19 @@
 * C группой "At Vance" Mark Cross (Drums)
 * C группой "Nightfall" Mark Cross (Drums)
 
+## Публикации
+
+### 05.02.2010 news Новое видео OUTLOUD
+
+<P>Новое видео hard-rock коллектива <STRONG>OUTLOUD</STRONG> на песню <STRONG>"Tonite" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Kc5jK5G3EwU&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Kc5jK5G3EwU&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

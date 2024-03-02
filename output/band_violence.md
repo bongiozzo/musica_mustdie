@@ -53,6 +53,54 @@ Tracks:
 * C группой "Machine Head" guitarist Robb Flynn
 * C группой "Forbidden" guitarist Robb Flynn
 
+## Публикации
+
+### 30.10.2001 news Video footage of the reunited San Francisco Bay Area thrashers VIO-LENCE ...
+
+<p>Video footage of the reunited San Francisco Bay Area thrashers VIO-LENCE performing their tracks “Serial Killer” and “Officer Nice”, filmed at the Thrash Of The Titans benefit concert for TESTAMENT vocalist Chuck Billy back on August 11th, is now available for download from the following locations: <BR><BR> <A HREF="http://www.assistinvestigations.com/images/Serial.mpg">"Serial Killer"</A><BR> <A HREF="http://www.assistinvestigations.com/images/Officer.mpg">"Officer Nice" </A><BR><BR> Both of these cuts were shot and edited together by Jerry Allen and his Tales From The Pit crew, who filmed the entire show and are currently editing the remainder of the footage for possible release at a later date.</p>
+
+Автор: Yermola
+
+### 30.10.2001 news Новое видео VIO-LENCE...
+
+<p>Видео-съемку трэшеров "VIO-LENCE" снятую во время концерта "Thrash Of The Titans" 11-го Августа вы можете посмотреть здесь....<BR><BR> <A HREF="http://www.assistinvestigations.com/images/Serial.mpg">"Serial Killer"</A><BR> <A HREF="http://www.assistinvestigations.com/images/Officer.mpg">"Officer Nice" </A><BR><BR> Оба трека были сняты Jerry Allen и его командой работающей над "Байками из склепа"...</p>
+
+Автор: Yermola
+
+### 22.05.2002 news MACHINE HEAD поменяли гитариста....
+
+<p>Временной заменой ушедшему из-за творческих разногласий гитаристу MACHINE HEAD - Ahrue Luster, стал участник TECHNOCRACY - Phil Demmel. Фил раньше участвовал в команде Роберта Флинна VIO-LENCE и сейчас собирается присоединиться к барабанщику Dave McClain и бассисту Adam Duce для Европейского тура и последующей записи четвертого альбома.</p>
+
+Автор: Yermola
+
+### 22.05.2002 news MACHINE HEAD Select VIO-LENCE Axeman As Temporary Replacement For AHRUE LUSTER ....
+
+<p>MACHINE HEAD are strongly rumored to have selected TECHNOCRACY/VIO-LENCE guitarist Phil Demmel as the temporary replacement for Ahrue Luster, who recently left the group due to "creative differences". <BR><BR> Demmel, a former bandmate of MACHINE HEAD frontman Robert Flynn during the classic VIO-LENCE days, will reportedly join Flynn, drummer Dave McClain and bassist Adam Duce on their upcoming European jaunt before the Bay Area act commence the songwriting process for their fifth full-length CD. <BR><BR> Although Phil is said to be a prime candidate to assist the group during the upcoming live performances, it is unlikely that he will become a permanent member of MACHINE HEAD, informed sources have told BLABBERMOUTH.NET.<BR><BR> MACHINE HEAD are not actively seeking a permanent replacement for Luster and will likely complete much of the pre-production for the forthcoming CD as a three-piece, the sources said.<BR><BR> The band's upcoming European schedule is as follows:<BR><BR> Jul. 01 - Dublin, IRE @ Ambassador <BR> Jul. 05 - Rijssen, NETH @ Lucky <BR> Jul. 06 – Dessel, BEL @ Graspop<BR> Jul. 07 – Leipzig, GER @ With Full Force<BR> Jul. 08 - Cervia, ITA @ Rock Planet <BR> Jul. 09 - Zurich, SWI @ Limmathaus <BR> Jul. 10 - Amsterdam, NETH @ Melk Weg <BR> Jul. 12 – Helsinki, FIN @ Tuska Open Air<BR> Jul. 13 - Joensuu, FIN @ Ilosaarirock<BR></p>
+
+Автор: Yermola
+
+### 13.06.2002 news Больше насилия в Интернете!
+
+<p>Возрожденные трэшеры из Сан-Франциско "VIO-LENCE" запустили свой новый сайт. Посмотреть можно <A HREF="http://www.vio-lence.com/">здесь...</A></p>
+
+Автор: Yermola
+
+### 13.06.2002 news VIO-LENCE Launch Official Web Site ...
+
+<p>Reunited San Francisco Bay Area thrashers VIO-LENCE have launched their official web site at <A HREF="http://www.vio-lence.com/">this location. </A><BR><BR> As previously reported, VIO-LENCE and TECHNOCRACY, featuring VIO-LENCE guitarist Phil Demmel, will be teaming up for a show at Key Club in West Hollywood, California on Saturday, June 15th. Also appearing on the bill will be PENIS FLYTRAP.</p>
+
+Автор: Yermola
+
+### 21.06.2017 news Sean Killian (VIO-LENCE) диагностирован с циррозо печени в четвёртой стадии
+
+<P><STRONG>Sean Killian</STRONG>, вокалист американских трэшеров <STRONG>VIO-LENCE</STRONG>, был диагностирован с диагнозом "4&nbsp;стадия цирроза печени." Об этом 19 июня&nbsp;сообщила в интервью&nbsp;радио-передаче<STRONG>&nbsp;"Thrash Zone"</STRONG> его жена <STRONG>Dana Rivero Killian</STRONG>. Сейчас Шону требуется срочная пересадка печени. Никаких других лекарств для подобной болезни не существует. Его уже включили в программу донорства, но пока подходящих доноров для него нет.&nbsp;Если не сделать трансплантацию, человек с таким диагнозом&nbsp;обычно живёт от одного года до трёх.</P>
+<P>По словам Даны, Шон очень болен:<EM> "На него тяжело смотреть. Когда я смотрю на него, то вижу очень худого человека - у него совсем нет мышечной массы, только скелет обтянутый кожей. Но самое тяжёлое для него - асцит (скопление жидкости в брюшной полости). Каждые две недели ему приходится ходить на процедуры по очистке брюшной полости. Последний раз врачи выкачали из него 13 литров жидкости".</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.06/30578.jpg" width=660 height=424> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

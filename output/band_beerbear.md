@@ -13,6 +13,36 @@
 
 * C группой "Топь" Musicians of BEER BEAR
 
+## Публикации
+
+### 05.11.2010 news Новое имя на российской folk-metal сцене BEER BEAR
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.11/17544.jpg" width=400 align=right border=5>BEER BEAR</STRONG> - группа, в музыке которой переплетаются задорные скандинавские ритмы с элементами славянской фольклорной музыки. Сказки про веселые похождения неунывающих медведей, про их радости и горести, про житье-бытье, да про хмельной мёд, льющийся рекой. Все это, подчеркнутое лиричными партиями флейты и скрипки, сочетающееся с мощными гитарными рифами, подарит Вам незабываемый угар и погрузит в объятия волшебного леса, где и происходят события, описанные в песнях. Бешеный пляс, сказочную атмосферу и качественный металл-вот что эта команда с превеликим удовольствием дарит своим слушателям!</P>
+<P>Послушать можно на роскошном <STRONG>Myspace</STRONG> группы<BR><A href="http://www.myspace.com/beerbearmusic">http://www.myspace.com/beerbearmusic</A> или <A href="http://vkontakte.ru/club5114207">http://vkontakte.ru/club5114207</A></P>
+<P>Дебютный альбом "<STRONG>МЕД</STRONG>" выходит на лейбле <STRONG>SoundAge</STRONG>.<BR>Дата релиза - 13 ноября.</P>
+Автор: Vit Belov
+
+### 22.08.2011 news BEER BEAR готовят сайд-проект
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news_rus/2011.08/20712.jpg" width=400 align=right border=0>Отечественные фолк-металлисты <STRONG>BEER BEAR</STRONG> опубликовали трек-лист своего сайд-проекта под названием <STRONG>ТОПЬ</STRONG>:</P>
+<P>1. <STRONG>Я лес</STRONG> (интро) <BR>2. <STRONG>Волчий Пастырь</STRONG> <BR>3. <STRONG>Север-владыка жестокий</STRONG> <BR>4. <STRONG>Цвета крови рассвет</STRONG> <BR>5. <STRONG>Летели вороны</STRONG> <BR>6. <STRONG>Маразула <BR></STRONG>7. <STRONG>Водокрес <BR></STRONG>8. <STRONG>Топь <BR></STRONG>9. <STRONG>Равноденствие</STRONG> <BR>10. <STRONG>Тропою звёзд</STRONG> (аутро)</P>
+<P>Выход альбома "<STRONG>Летели Вороны</STRONG>" запланирован на сентябрь 2011 года на лейбле <STRONG>SoundAge</STRONG>. По словам музыкантов, это будет смелый эксперимент на стыке Black Metal, Folk Metal и шаманской традиционной музыки. Традиционная для <STRONG>Beer Bear</STRONG> мелодичность будет сочетаться с жёсткими риффами и скримом. В качестве звукорежиссёра альбома выступил <STRONG>Александр Шмель Швилёв</STRONG> (гр. РарогЪ). Сведение и мастеринг выполнены <STRONG>Сергеем Lazar</STRONG> (гр. Аркона). В качестве иллюстратора выступил художник <STRONG>Мстибог Киренков</STRONG>, известный сотрудничеством с такими коллективами, как <STRONG>Alkonost, Kartikeya, Невидь</STRONG>.</P>
+<P>Группа вконтакте:<BR><A href="http://vkontakte.ru/club27957735">http://vkontakte.ru/club27957735</A></P>
+Автор: Vit Belov
+
+### 05.10.2011 news Новый сингл BEER BEAR
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.10/21448.jpg" width=400 align=right border=0>Доступен для скачивания новый EP московской Folk Metal группы<STRONG> BEER BEAR</STRONG> - "<STRONG>Фолк-н-ролл</STRONG>". Презентация релиза состоится 15 октября в клубе "<STRONG>Rock House</STRONG>". Трек-лист:</P>
+<P>1. <STRONG>Фолк-н-ролл<BR></STRONG>2. <STRONG>Сын седых времен</STRONG> (Ensiferum Cover)<BR>3. <STRONG>Водка </STRONG>(Korpiklaani Cover)</P>
+<P>Скачать можно здесь<BR><A href="http://ifolder.ru/26051466">http://ifolder.ru/26051466</A></P>
+<P>Состав:<BR><STRONG>Пан Свентояр Заглоба</STRONG> - вокал, бас<BR><STRONG>Анна "Рысь" Ерилина</STRONG> - скрипка<BR><STRONG>Евгения "Мурвыдра" Сизова</STRONG> - альт<BR><STRONG>Павел "Smolsky" Жданович</STRONG> - гитара<BR><STRONG>Кирилл "Борода" Касаткин</STRONG> - ударные</P>
+<P>Приглашенные музыканты:<BR><STRONG>Александра Сидорова</STRONG> (РАРОГЪ) - вистл (2)<BR><STRONG>Александр Олейников</STRONG> (ex-КАЛЕВАЛА) - аккордеон (3)</P>
+<P>Тексты, литературные переводы – <STRONG>Пан Свентояр Заглоба</STRONG>.</P>
+<P>Работа над обложкой - <STRONG>Заяц, Мстибог</STRONG>.</P>
+<P>Запись -<STRONG> А и Б Records</STRONG>, Москва. Трекинг, сведение, мастеринг - <STRONG>Сергей Lazar</STRONG> (<STRONG>АРКОНА, ROSSOMAHAAR</STRONG>)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

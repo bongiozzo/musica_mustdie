@@ -8,6 +8,46 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2011 news LYFTHRASYR: East Tour 2011
+
+<P>3 - 11 сентября 2011 г. состоится <STRONG>EAST TOUR 2011</STRONG> немецкой black metal группы <STRONG>LYFTHRASYR</STRONG>.</P>
+<P><STRONG>3 сентября</STRONG> (суббота) - <STRONG>DARK PHILOSOPHY FEST</STRONG>, Санкт-Петербург, клуб Арктика (ул. Беринга, д. 38, ст.м. Приморская) &#65279;<A href="http://vkontakte.ru/event28519712">http://vkontakte.ru/event28519712</A>&#65279;</P>
+<P><STRONG>4 сентября</STRONG> (воскресенье) - <STRONG>METAL INVASION FEST</STRONG>, Петрозаводск, клуб Поршень (Хейкконена, д.39) <A href="http://vkontakte.ru/event27785730">http://vkontakte.ru/event27785730</A>&#65279;</P>
+<P><STRONG>6 сентября</STRONG> (вторник) - <STRONG>DEADLY POINT METAL FEST</STRONG>, Кострома, клуб Мануфактура (ул. Ткачей, д. 5) <A href="http://vkontakte.ru/event28961623">http://vkontakte.ru/event28961623</A>&#65279;</P>
+<P><STRONG>9 сентября</STRONG> (пятница) - Москва, ROCK HOUSE (м. Партизанская, Измайловское шоссе, д. 71е) <A href="http://vkontakte.ru/event27785460">http://vkontakte.ru/event27785460</A>&#65279;</P>
+<P><STRONG>10 - 11 сентября</STRONG> - Киев, <STRONG>GLOBAL EAST ROCK FEST</STRONG></P>
+<P>Подробнее: <A href="/ru/articles/1/66976/">http://musica.mustdie.ru/ru/articles/1/66976/</A></P>
+<P>Лидер немецкой black metal гр. <STRONG>LYFTHRASYR Aggreash</STRONG> приглашает все российских фанатов на концерты в Москве (9 сентября 2011 г., ROCK HOUSE), Санкт-Петербурге (3 сентября 2011 г., Арктика) и других городах России в рамках <STRONG>LYFTHRASYR EAST TOUR 2011</STRONG><STRONG><BR></P></STRONG>
+<CENTER><IFRAME height=345 src="http://www.youtube.com/embed/83uZGkwwPAc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 29.08.2011 articles LYFTHRASYR: East Tour 2011
+
+<P>3 - 11 сентября 2011 г. состоится <STRONG>EAST TOUR 2011</STRONG> немецкой black metal группы <STRONG>LYFTHRASYR</STRONG>.</P>
+<P><STRONG>3 сентября</STRONG> (суббота) - <STRONG>DARK PHILOSOPHY FEST</STRONG>, Санкт-Петербург, клуб Арктика (ул. Беринга, д. 38, ст.м. Приморская) &#65279;<A href="http://vkontakte.ru/event28519712">http://vkontakte.ru/event28519712</A>&#65279;</P>
+<P><STRONG>4 сентября</STRONG> (воскресенье) - <STRONG>METAL INVASION FEST</STRONG>, Петрозаводск, клуб Поршень (Хейкконена, д.39) <A href="http://vkontakte.ru/event27785730">http://vkontakte.ru/event27785730</A>&#65279;</P>
+<P><STRONG>6 сентября</STRONG> (вторник) - <STRONG>DEADLY POINT METAL FEST</STRONG>, Кострома, клуб Мануфактура (ул. Ткачей, д. 5) <A href="http://vkontakte.ru/event28961623">http://vkontakte.ru/event28961623</A>&#65279;</P>
+<P><STRONG>9 сентября</STRONG> (пятница) - Москва, ROCK HOUSE (м. Партизанская, Измайловское шоссе, д. 71е) <A href="http://vkontakte.ru/event27785460">http://vkontakte.ru/event27785460</A>&#65279;</P>
+<P><STRONG>10 - 11 сентября</STRONG> - Киев, <STRONG>GLOBAL EAST ROCK FEST</STRONG></P>
+<P>Лидер немецкой black metal гр. <STRONG>LYFTHRASYR Aggreash</STRONG> приглашает все российских фанатов на концерты в Москве (9 сентября 2011 г., ROCK HOUSE), Санкт-Петербурге (3 сентября 2011 г., Арктика) и других городах России в рамках <STRONG>LYFTHRASYR EAST TOUR 2011</STRONG>.</P>
+<P><STRONG>
+<CENTER><IMG border=0 src="/images/articles_rus/2011.08/20821.jpg" width=500 height=323> 
+<P></P></STRONG>
+<P><STRONG>LYFTHRASYR </STRONG>был основан как Melodic Black/Dark Metal соло проект в 2002 году автором песен, клавишником и басистом <STRONG>Aggreash</STRONG> в городе Карлсруэ, Германия. Под влиянием большого разнообразия музыкальных течений, включающих Nordic Black Metal, атмосферные саундтреки из фильмов и классическую музыку с фортепиано как ключевым элементом, песни получились тёмными и агрессивными, но всё же мелодичными и находящимися во власти всепоглощающей меланхолии.</P>
+<P>Вскоре после того, как <STRONG>Aggreash</STRONG> записал первое демо<STRONG> "Beyond The Frontiers Of Mortality"</STRONG> проект взорвал андеграунд тусовку, в которой и нашёл большое количество последователей. Несколько песен моментально попали в метал-чарты mp3.de, а песня <STRONG>"Beyond The Frontiers Of Mortality"</STRONG> достигла вершин этого чарта. В начале 2004 года обширный поиск талантливых и увлечённых музыкантов, с теми же самыми музыкальными предпочтениями, окончился присоединением к группе <STRONG>Mathar</STRONG> (барабаны) и <STRONG>Insorior</STRONG> (гитара).</P>
+<P>После интенсивных репетиций, летом 2004 у них состоялся успешный концертный дебют, вместе с готической метал-группой <STRONG>LACRIMAS PROFUNDERE</STRONG>, в популярном <STRONG>Schwimmbad-Musik-Club</STRONG> в Хейдельберге. Со временем, <STRONG>LYFTHRASYR </STRONG>начали использовать сложные клавишные аранжировки на концертах, таким образом, <STRONG>Aggreash</STRONG> смог сконцентрироваться на роли певца и басиста на сцене. Это решение оказалось верным, судя по позитивным откликам преданных поклонников и их возросшим количеством.</P>
+<P>Громадный успех и горячий приём следующих концертов привели группу к решению выпустить полноценный альбом. В начале 2005 года <STRONG>Aggreash</STRONG> и <STRONG>Insorior</STRONG> записали и спродюссировали альбом <STRONG>"The Final Resurrection"</STRONG>, который потом был усовершенствован профессиональным мастерингом, выполненным <STRONG>Mika Jussila</STRONG> на студии <STRONG>Finnvox</STRONG> в Хельсинки. Напряжённая работа <STRONG>LYFTHRASYR </STRONG>в студии, их преданность делу и решение пригласить для мастеринга <STRONG>Mika Jussila</STRONG> полностью оправдали себя. <STRONG>"The Final Resurrection"</STRONG> вышел напряжённым и агрессивным, тем не менее, с мелодичным и атмосферным звучанием, что отражает уникальный стиль <STRONG>LYFTHRASYR</STRONG>, но с добавлением нового измерения к звучанию группы.</P>
+<P>После выпуска дебютного альбома, <STRONG>LYFTHRASYR </STRONG>привлек внимание различных музыкальных журналов и звукозаписывающих лейблов, включая&nbsp;немецкий <STRONG>Metal Hammer</STRONG>, <STRONG>Sonic Seducer</STRONG> или <STRONG>Twilight-distribution</STRONG>, которые приводят к заключению контракта с лейблом <STRONG>Twilight</STRONG>. 8-го августа 2005 года <STRONG>"The Final Resurrection"</STRONG> был выпущен и доступен по всему миру.</P>
+<P>Множество последующих успешных концертов и фестивалей, и новый альбом готов к выпуску. Чрезвычайно сложная работа в 2007 году, достигшая высшей точки в продуктивной поездке в Швецию в сентябре, привела к плодотворному соединению записи в известной студии <STRONG>Fredman</STRONG> в Гётеборге и последующему потрясающему мастерингу в <STRONG>Cutting Room</STRONG> в Стокгольме. Новое творение получило название <STRONG>"The Recent Foresight"</STRONG> и было выпущено по всему миру 30-го ноября 2007 года лейблом <STRONG>Twilight</STRONG>. В поддержку этого альбома состоялся совместный тур, с такими командами как BEHEMOTH, <STRONG>KATAKLYSM</STRONG> и <STRONG>ABORTED</STRONG>. </P>
+<P>В данный момент группа сосредоточена на подготовке нового альбома.</P>
+<P><U>Дискография</U>:<BR>2007 - <STRONG>The Recent Foresight<BR></STRONG>2005 - <STRONG>The Final Resurrection<BR></STRONG>2004 -<STRONG> Beyond the Frontiers of Mortality</STRONG> (сингл)</P>
+<P><U>Состав</U>:<BR><STRONG>Aggreash</STRONG> - вокал, бас, клавишные<BR><STRONG>Insorior</STRONG> - гитара<BR><STRONG>Skytorian</STRONG> - ударные&#65279;</P>
+<P><A href="http://vkontakte.ru/lyfthrasyr">http://vkontakte.ru/lyfthrasyr</A><BR><A href="http://www.lyfthrasyr.com/">http://www.lyfthrasyr.com</A> <BR><A href="http://www.myspace.com/Lyfthrasyr">http://www.myspace.com/Lyfthrasyr</A>&#65279;</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

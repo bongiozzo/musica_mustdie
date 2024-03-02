@@ -273,6 +273,351 @@ Ambient samples courtesy of "Distorted Reality" / Spectrasonics
 * C группой "Katatonia" Anders Nystrom
 * C группой "Bloodbath" Anders Nystrom
 
+## Публикации
+
+### 26.08.2000 news Дэн Свано не хочет больше заниматься тяжелой музыкой
+
+<p> Дэн Свано (Dan Swano) заявил, что новый диск Diabolical Masquerade "Death's Design" будет его последней "металлической" работой перед длительным перерывом.</p>
+
+Автор: Nybras
+
+### 26.08.2000 news Dan Swano won&#39;t work with metal anymore
+
+<p> Dan Swano said that Dabolical Masquerade's new CD "Death's Design" will it the last metalrelated album he will do in a very long time.</p>
+
+Автор: Nybras
+
+### 07.03.2001 news Diabolical Masquerade закончили работу над новым альбомом.
+
+<p> Шведы Diabolical Masquerade завершили работу над своим четвертым альбомом. По словам парней из группы, альбом будет разделён на столь короткие треки, что всего получится около 50 песен. Новый альбом, как ожидается, выйдет в конце этого года на Avantagarde Music.</p>
+
+Автор: Morsus
+
+### 07.03.2001 news Diabolical Masquerade have finished working on new album.
+
+<p> Diabolical Masquerade from Sweden have finished working on their fourth album. According to the band the album will be divided in small tracks and there will be about 50 songs in the album. The album is expected to be released before the end of the year through Avantagarde Music.</p>
+
+Автор: Morsus
+
+### 11.05.2001 reviews Оригинальная музыка к кинофильму
+
+<p>Оригинальная музыка к кинофильму. Причем к реально снятому фильму ужасов, но к сожалению, ушедшему в постпродукцию на некоторое время. Новое уникальное творение Blackheim'a и Dan'a Swano. Альбом состоит из 61 трека заключенных в 20 частях. Все действительно напоминает одну большую песню с многообразием сменяющих друг друга музыкальных тем в разных темпах. А рассматривается здесь конструкция Смерти! Смерть - главная машина природы. Вообразите, что смерть имеет некоторую модель, когда и кого удалять в мир иной. Своего рода запрограммированная схема на то, кто, где и когда должен умереть. Это и есть - конструкция смерти. Дьявольская музыка! В ее записи принимал участие эстонский городской оркестр. Очень много симфонизма на фоне мелодичного и притягательного black metal c death-doom влияниями. Не так уж и много принципиальных отличий от прошлого альбома в стилистическом плане, только прибавилась выдержанность и голливудская эпичность и масштабность. Истинный симбиоз Ужаса и типичного дьявольско-маскарадского саунда. Масса интересных мелодий и очень неплохая инструментальная работа.</p>
+
+Автор: Dimas
+
+### 20.06.2002 reviews Innovative - in finest sense of this word
+
+<p>I know I’m horribly late with this review, but, heavens and hells, "Death's Design" is so fucking excellent!! I just couldn't leave it with no review whatsoever. Nevertheless, I'll be as short as possible. This work was originally meant to be a soundtrack, so don't you surprise it’s comprised of sixty one tracks. It's neither pure soundtrack music, nor it is grindcore. Blackheim and Mr. Swano are still on a black metal path, although what a different this path is! Mainly, it's the same DIABOLICAL MASQUERADE as it's been at "Ravendusk In My Heart", "The Phantom Lodge" and "Nightwork", however it seems to be so only at the first sight or listen. The basis is the same, yes. Nothing else is, though. "Death's Design" features as absolutely fantastic arrangements, as unpredictable tempo changes and leads-from-the-outer-space (read – prog), that it can't be perceived in a way former Blackheim's works were. I'm rest assured, there're only few capable of describing THIS one properly, describing so that you could understand what a jewel "Death's Design" is. A synonym of innovation – in finest sense of this word. Sorry, I seem to be out of ink… ;)</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.06.2003 news DIABOLICAL MASQUERADE готовят новый материал
+
+<p>Шведская группа DIABOLICAL MASQUERADE (сторонний проект гитариста KATATONIA Anders Nystrom) начала процесс сочинения и записи материала для своего пятого альбома. Выход его планируется в конце 2003 - начале 2004 года на Avantgarde Music. По словам музыкантов, следует ожидать смесь двух последних работ группы, то есть море ужаса, сверхъестественности и тяжелой музыки.</p>
+
+Автор: Dimas
+
+### 06.10.2003 news DIABOLICAL MASQUERADE снова в действии
+
+<B>DIABOLICAL MASQUERADE</B> (побочный проект гитариста <B>KATATONIA</B> <B>Anders Nystrom</B>) находится сейчас в шведской&nbsp;<B>Studio</B> <B>Castillo</B>&nbsp;с продюсером&nbsp;<B>David Castillo</B> (концертный звукоинженер&nbsp;<B>KATATONIA</B>), где происходит запись нового альбома проекта. Выпуск его планируется в начале 2004 года через <B>Avantgarde Music</B>.&nbsp;
+Автор: Dimas
+
+### 11.03.2004 news Новости из Швеции - одной строкой
+
+<P>Выход нового альбома <B>KATATONIA</B> запланирован на осень 2004 года.</P>
+<P>Реанимировавшиеся недавно <B>BLOODBATH</B> нашли нового вокалиста и нового ударника. Это известные в мире death metal личности, но их имена пока держатся в большом секрете. Запись нового альбома уже начата.</P>
+<P>Из-за занятости в <B>BLOODBATH</B>, <B>Blakkheim</B> и <B>Dan Swano</B> приостановили работу над новым альбомом <B>DIABOLICAL MASQUERADE</B>.</P>
+<P><B>AMON AMARTH</B> приступили к сочинению песен для нового альбома.</P>
+Автор: Dimas
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 09.09.2004 news DIABOLICAL MASQUERADE прекратил существование
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Black-metal side-проект музыканта <STRONG>KATATONIA</STRONG> <STRONG>Anders Nystr&#246;m</STRONG> (a.k.a. <B>Blackheim</B>),&nbsp;<STRONG>DIABOLICAL MASQUERADE</STRONG> прекратил своё существование. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Группа прекратила своё существование, из-за кризиса идей при написании пятого альбома. Вдохновение не посещало <STRONG>Blackheim</STRONG>, так пусть<STRONG> DIABOLICAL MASQUERADE</STRONG> умрёт</EM>". </FONT></P>
+Автор: Vit Belov
+
+### 09.09.2004 news DIABOLICAL MASQUERADE split up
+
+<DIV class=regular id=storyRepeater__ctl24_storyPanel><B>DIABOLICAL MASQUERADE</B>, the Swedish side-project of <B>KATATONIA</B> guitarist <B>Anders Nystrцm</B> (a.k.a. <B>Blakkheim</B>), have officially split up. <B>Nystrцm</B>'s statement on the matter is as follows:<BR><BR>"<EM><B>Blakkheim</B> has decided to put his solo project, <B>DIABOLICAL MASQUERADE</B>, to rest. Despite the commencement of a combined composing/recording process of a fifth album last year, the utterly slow progress along with the lack of updates sustained the very worst fear; the spirits didnt come to him this time. Maybe or maybe not, everyone knows how big role the spirits have had on the completion of the former albums and without even a spark of their presence it wasnt possible to move forward with the fifth album. <B>Blakkheim</B> along with his longtime musical/technical collaborator <B>Dan Swanц</B>, made four albums between 1995-2001 under the <B>DIABOLICAL MASQUERADE</B> monicker, all which represents their own defined moment in time. From now on, [the band's homepage] will remain online as an official tribute page. So, as the <B>MASQUERADE</B> has come to its end, it's time to take off the masques and leave your words in the guestbook before you must go..."</EM> </DIV>
+Автор: Vit Belov
+
+### 12.09.2006 news Peaceville переиздаст наследие KATATONIA
+
+<P>Нынешний лэйбл<STRONG> KATATONIA Peaceville</STRONG> приобрёл права на бэк-каталог <STRONG>KATATONIA</STRONG> и периздаст старые работы группы в формате Digi-pack с бонусами. Первенцем станет переиздание "<STRONG>Brave Murder Day</STRONG>", которое выйдет 23 октября. Также английский лэйбл купил права на альбомы сайд-проектов участников <STRONG>KATATONIA</STRONG>: <STRONG>DIABOLICAL MASQUERADE</STRONG> и <STRONG>OCTOBER TIDE</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.09.2007 reviews Смертельный дизайн
+
+<P>Зачем лэйбл Peaceville Records решил переиздать альбом группы Diabolical Masquerade "Death's Design", вышедший в оригинале на Avantgarde Music в 2001-ом году, так и осталось для меня загадкой. Тем более, что новое издание (я основываюсь на сравнении лицензионных дисков от Irond и Союза) претерпело некоторые изменения в оформлении, притом не в лучшую сторону. Если же оставить в стороне эти мелочи и вернуться к музыке как таковой, то прежде всего необходимо отметить, что "Death's Design" является саундтреком к так и не снятому фильму ужасов. Альбом продолжительностью немногим более 43 минут разделен на двадцать частей (Movements), которые,&nbsp;в свою очередь, поделены на 61 композицию. Основные силы DM это Блэкхайм (он же Андерс Нистром; также Katatonia, Bewitched, Bloodbath) и многостаночник Dan Swan&#246; (на перечисление проектов с его участием ушло бы слишком много места). Пластинка сия во многом построена на контрастах, спокойные и даже акустические фрагменты сменяются яростными блэк-металическими пассажами. Думается, что когда "Death's Design" называют авангардным блэком, то это недалеко от истины. Не обошлось и без включения в музыкальное полотно альбома элементов дэта и дума. В принципе, получилась довольно интересная работа, но вот из-за этого разбиения на кучу фрагментов (некоторые из которых длятся всего по несколько секунд) целостность разрушается, хотя я не уверен, что таковая была среди задач Блэкхайма и Сванё. Альбом будет интересен всем поклонникам нестандартного блэка, а также, возможно, и тем, кто напрочь отвергает этот жанр тяжелой музыки.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 ### DIABOLICAL MASQUERADE'2001

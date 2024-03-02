@@ -26,6 +26,26 @@
 * C группой "Masterplan" Uli Kusch
 * C группой "Symfonia" Uli Kusch
 
+## Публикации
+
+### 28.02.2006 news Новая группа BEAUTIFUL SIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом нового проекта барабанщика <STRONG>MASTERPLAN Uli Kusch BEAUTIFUL SIN&nbsp;"The Unexpected"</STRONG>&nbsp;выходит в мае на <STRONG>AFM</STRONG>. Кроме&nbsp;<STRONG>Uli</STRONG> в группе участвуют два участника <STRONG>PAGAN'S MIND</STRONG>, клавишник <STRONG>MASTERPLAN</STRONG> <STRONG>Axel Mackenrott</STRONG> и девушка-вокалистка <STRONG>Magali Luyten</STRONG>.&nbsp;Трэк-лист:&nbsp;</FONT></P>
+<P>01. <B>Lost</B><BR>02. <B>This is Not the Original Dream</B><BR>03. <B>Take Me Home</B><BR>04. <B>I'm Real</B><BR>05. <B>The Spark of Ignition</B><BR>06. <B>Closer to My Herd</B><BR>07. <B>Give Up Once for All</B><BR>08. <B>Brace for Impact</B><BR>09. <B>Pechvogel</B><BR>10. <B>Metalwaves</B><BR>11. <B>The Beautiful Sin</B><BR>12. <B>Le Reve Originel</B> (bonus track)</P>
+Автор: Vit Belov
+
+### 18.12.2006 news Пополнение в BEAUTIFUL SIN
+
+<P><STRONG>BEAUTIFUL SIN,</STRONG> новый проект бывшего ударника <STRONG>HELLOWEEN</STRONG> и<STRONG> MASTERPLAN</STRONG> <B>Uli Kusch</B>, анонсировал пополнение своих рядов вторым гитаристом <B>Carljohan Grimmark</B> (<B>ROB ROCK</B>, <B>NARNIA</B>). В данный момент, коллектив сочиняет материал для своего второго альбома, который планируется к выходу в июне 2007 года. </P>
+Автор: Dimas
+
+### 27.04.2007 reviews Ули Куш оказался не дюж, и совсем не &quot;неожиданно&quot;
+
+<P>Ули Куш, который посидел за барабанной установкой у немало кого (Holy Moses, Mekong Delta, Helloween, Gamma Ray, Masterplan), естественно, не может успокоиться. Ему подавай теперь свою группу. Которой и стала Beautiful Sin. Куда он затащил людей из Pagan's Mind и недавнего коллегу по Masterplan, а также певицу из Бельгии по имени Magali Luyten. Претенциозно начав альбом со своей версии 'The Departed' с хелловиновского альбома "Dark Ride" под названием 'Lost', херр Куш окунулся в вязкое болото стандартного пауэра, и никакой женский вокал его не спас.&nbsp; Даже говоря объективно, данный релиз может заинтересовать лишь тех, для кого тяжелый жанр интресен&nbsp;с женским вокалом (всё равно с каким) и кто собирает всё и вся от бывших или нынешних участников Helloween и остальных вышеперечисленных групп. Может, лучше всего последовать совету девочки, изображенной Томасом Эверхардом на обложке, которая прижимает пальцы к губам, типа "тсссс"? А что у Куша нашлись, пардон, средства и связи, чтобы нанять такого художника, даже не надо обсуждать. Но даже у него не найдется средств, чтобы убедить слушателя, что "The Unexpected" надо купить. Видимо, "неожиданным" он останется только для того, кто всё это дело заварил. По большому счету, данному релизу самое место на сборище второсортного паэура Limb Music, но, видимо, опять-таки сыграли роль связи и влияние Куша, чтобы эта пластинка вышла на AFM. 5 баллов только из-за послужного списка маэстро.</P>
+<P>Альбом предоставлен компаний "СД-Максимум"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

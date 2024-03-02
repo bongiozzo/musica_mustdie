@@ -138,6 +138,36 @@ Warmachine
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.02.2001 reviews Швейцарцы, играющие нью-йоркский хардкор в его классическом варианте
+
+<p>Швейцарцы, играющие нью-йоркский хардкор в его классическом варианте - с трешевым звуком, скоростью, напором… Удивительно. Можно было бы назвать их последователями PRO-PAIN - но только вовсе не PRO-PAIN изобрели такую формулу. Хотя сегодня вроде бы только они ее и играют. Ну и GURD. По существу - ничего нового на альбоме нет. Скоростной гитарный чес, достаточно продуманные гитарные партии, сыгранная, ровная, но без ритмических "причуд" ритм-секция. Радует, что группа не просто исполняет риффы и обыгрывает их хардкоровыми приемами - музыканты играют песни, а все остальное помогает сделать это. То есть можно содрать все фишки, технические навороты, а песни останутся. Это радует. Несколько огорчает отсутсвие оригинальности - но этот минус неплохо компенсируется энтузиазмом. И потому альбом рекомендуется только для любителей такой музыки. А также желающим узнать, что может сделать из песни KISS хардкоров-трэшевый коллектив (Warmachine). С такими работами прорывов не делают. Но и в грязь лицом не падают. Ровный, увесистый "кирпич", который наверняка доставит удовольствие как фэнам классического немелодичного американского трэша, так и поклонникам упомянутых PRO-PAIN</p>
+
+Автор: Tornado
+
+### 02.07.2011 news GURD на NoiseArt Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Швейцарские трешеры<STRONG> GURD</STRONG> подписали контракт с <STRONG>NoiseArt Records</STRONG>. Новый альбом коллектива <STRONG>"Never Fail" </STRONG>выйдет 28 октября. Заглавный трек с этой пластинки можно послушать на <STRONG>FaceBook</STRONG>: <A href="http://www.facebook.com/gurdmusic?sk=app_178091127385">http://www.facebook.com/gurdmusic?sk=app_178091127385</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущая пластинка швейцарцев "<STRONG>Your Drug Of Choice</STRONG>" вышла 16 января 2009 года. В ближайших планах<STRONG> GURD</STRONG> также масштабный тур по Европе в компании <STRONG>DARK TRANQUILLITY</STRONG>, <B>ELUVEITIE</B>, <B>VARG</B>&nbsp;и <B>MERCENARY.</B></FONT></P>
+<P><center><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=316 src="/images/news_rus/2011.07/19843.jpg" width=475 border=0></FONT></STRONG></P>
+Автор: Vit Belov
+
+### 08.07.2011 news Обложка нового GURD
+
+<P>Новый альбом <STRONG>GURD</STRONG> <STRONG>"Never Fail" </STRONG>выйдет 28 октября на<STRONG> NoiseArt Records</STRONG>. Трек-лист:</P>
+<P>01. <B>Never Fail</B><BR>02. <B>Terminate</B><BR>03. <B>Burn Yourself</B><BR>04. <B>Rising From The Ashes</B><BR>05. <B>A Higher Meaning</B><BR>06. <B>The Truth Will Leak</B><BR>07. <B>Blame Someone Else</B><BR>08. <B>No Sleep For The Damned (Grapes Of Wrath)</B><BR>09. <B>Secret Underground</B><BR>10. <B>Velvet Apocalypse</B></P>
+<P>В записи этого альбома приняли участие<STRONG> Gary</STRONG>&nbsp;и <STRONG>Tom</STRONG>&nbsp;из <STRONG>PRO-PAIN. </STRONG></P>
+Автор: Vit Belov
+
+### 08.07.2011 news Обложка нового GURD
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.07/19993.jpg" width=475 align=right border=0>Новый альбом <STRONG>GURD</STRONG> <STRONG>"Never Fail" </STRONG>выйдет 28 октября на<STRONG> NoiseArt Records</STRONG>. Трек-лист:</P>
+<P>01. <B>Never Fail</B><BR>02. <B>Terminate</B><BR>03. <B>Burn Yourself</B><BR>04. <B>Rising From The Ashes</B><BR>05. <B>A Higher Meaning</B><BR>06. <B>The Truth Will Leak</B><BR>07. <B>Blame Someone Else</B><BR>08. <B>No Sleep For The Damned (Grapes Of Wrath)</B><BR>09. <B>Secret Underground</B><BR>10. <B>Velvet Apocalypse</B></P>
+<P>В записи этого альбома приняли участие<STRONG> Gary</STRONG>&nbsp;и <STRONG>Tom</STRONG>&nbsp;из <STRONG>PRO-PAIN. </STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

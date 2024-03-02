@@ -8,6 +8,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.09.2009 news Близится полный SKITLIV
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэк под названием <STRONG>"Densetsu"</STRONG> группы <STRONG>SKITLIV</STRONG>, можно скачать по следующей ссылке: <A href="http://www.season-of-mist.com/common/downloads/Skitliv/Skitliv%20-%20Densetsu.mp3">http://www.season-of-mist.com/common/downloads/Skitliv/Skitliv%20-%20Densetsu.mp3</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проект <STRONG>SKITLIV</STRONG> является плодом деятельности <STRONG>MANIAK</STRONG>'а, бывшего вокалиста норвежцев <STRONG>MAYHEM</STRONG>. Данный трэк взят с грядущего дебютного альбома <FONT color=#ddd9d0><STRONG>"Skandinavisk Misantropi"</STRONG>, который будет выпущен 19 октября в Европе и 17 ноября в Америке на лейбле <STRONG>Season of Mist</STRONG>. Диск содержит восемь композиций, а гостевое участие на нём приняли:&nbsp;<STRONG>David Tibet</STRONG> (<STRONG>CURRENT 93</STRONG>), <STRONG>Attila Csihar</STRONG> (<STRONG>MAYHEM</STRONG>, <STRONG>SUNN0)))</STRONG>)&nbsp;и <STRONG>Gaahl</STRONG> (<STRONG>GORGOROTH</STRONG>, <STRONG>TRELLDOM</STRONG>, <STRONG>GAAHLSKAGG</STRONG>, <STRONG>WARDRUNA</STRONG>).</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000"><IMG height=335 alt="" hspace=5 src="/images/news_rus/2009.09/15058.jpg" width=335 align=right border=0>Трэк-лист альбома:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000">01. <STRONG>Luciferon</STRONG> (intro)<BR>02. <STRONG>Slow Pain Coming</STRONG><BR>03. <STRONG>Hollow Devotion</STRONG><BR>04. <STRONG>Skandinavisk Misantropi</STRONG><BR>05. <STRONG>Towards the Shores of Loss</STRONG><BR>06. <STRONG>A Valley Below<BR></STRONG>07. <STRONG>Densetsu</STRONG><BR>08. <STRONG>ScumDrug</STRONG></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

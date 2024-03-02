@@ -143,6 +143,71 @@ Recorded & Mixed At Chapel Studios, Lincolnshire
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> новости<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> news<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 11.09.2002 news From One Extreme To Another...
+
+<p>The first ever DVD to feature the leaders of the Grindcore movement, Extreme Noise Terror. From getting a record deal after their first gig to their extraordinary appearance with the KLF at the 1992 Brit Awards show, Extreme Noise Terror have always been outspoken, controversial and LOUD.<BR><BR> The band’s gigs are often a raucous celebration of their campaigning principles (the band are staunchly against all animal experimentation) and a breathtaking display of all out, uncompromising noise.<BR><BR> The gig featured here, filmed live at the Fulham Greyhound in 1989, is no exception. An all out attack of vigorous guitar, bass and drums, along with the bellowing dual vocals of Dean and Spit, provide an ear-splitting experience not to be missed. The crowd fully play their part with waves of stage-diving and crowd-surfing making this a truly memorable live performance.<BR><BR> Track Listing<BR><BR> Deceived <BR> False Profit <BR> Murder <BR> We The Helpless <BR> Use Your Mind<BR> Take The Strain <BR> Bullshit Propaganda <BR> Conned Through Life <BR> Another Nail In The Coffin<BR> Raping The Earth <BR> Show Us You Care <BR><BR> Interview</p>
+
+Автор: Yermola
+
+### 27.09.2002 news First DVD of Extreme Noise Terror!!
+
+<p>The first ever DVD to feature the leaders of the Grindcore movement, Extreme Noise Terror will release in September. The gig featured here, filmed live at the Fulham Greyhound in 1989. <br>Tracklist: Deceived / False Profit / Murder / We The Helpless / Use Your Mind / Take The Strain / Bullshit Propaganda / Conned Through Life / Another Nail In The Coffin / Raping The Earth / Show Us You Care<br> Interview</p>
+
+Автор: Vit Belov
+
+### 24.12.2008 reviews Новогодний подарок для любителей потупее и потяжелее
+
+<P>Одна из старейших grindcore групп в истории EXTREME NOISE TERROR продолжает своё существование. Новейшее творение коллектива “Law Of Retaliation” вышло на Osmose Productions, английские музыканты подготовили 19 трэков интенсивного и разнообразного «мясца».</P>
+<P>Никто не сможет назвать музыку ENT особенно интеллектуальной, но энергии и задора в ней очень много. Пара вокалистов извращается по полной программе, обрушивая на слушателя град нечленораздельных воплей и рычаний. Группе удаётся поддерживать ураганный ритм на протяжении всей пластинки, отсылая нас во времена своей молодости, когда punk/hardcore герои могли целыми часами, не останавливаясь заряжать батарейки своих слушателей. Добавьте к этому свойственные стилю диалоги между песнями, собранными из различных художественных фильмов, и вы получите очень весёлый альбом. Grindcore, вообще, не выходит сейчас на лицензионных дисках в России. ENT заслужили эту «честь». Как по качеству реализации, так и по качеству исполнения, этот альбом можно считать максимально возможным коммерческим продуктом в стиле. Это же можно считать и отрицательным моментом, любители жанра вряд ли оценят кристально чистое тяжёлое звучание этой пластинки.</P>
+<P>Хороший новогодний подарок. Можно напиться пива, поставить проигрыватель на максимальную мощность и беспредельно угорать, вися на лампе и прыгая с балкона в сугроб.</P>
+Автор: Vit Belov
+
+### 08.08.2009 news Новая компиляция от EARACHE RECORDS
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.08/14781.jpg" width=400 align=right vspace=5 border=0>Earache Records</STRONG> - родной дом для многих групп-создателей жанра <STRONG>grindcore</STRONG>, подготовил к выпуску специальное издание из трёх дисков. Компиляция названная <STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)" </STRONG>включает в себя одни из самых первых записей в стиле <STRONG>grindcore</STRONG>.</P>
+<P>Все треки были взяты из первых передач <STRONG>John Peel</STRONG> на радио <STRONG>BBC</STRONG> и записаны на студии <STRONG>Maida Vale</STRONG> в Лондоне, между 1987 и 1990 годами.</P>
+<P>С самых первых дней <STRONG>Earache Records</STRONG>, <STRONG>John Peel</STRONG> оказывал огромную поддержку лейблу и его группам, дал возможность<STRONG>&nbsp;NAPALM</STRONG> <STRONG>DEATH</STRONG> и <STRONG>HERESY</STRONG> проиграть свои песни&nbsp;в эфире английского&nbsp;радио-шоу. В последующие годы, такие группы как <STRONG>NAPALM DEATH</STRONG> и <STRONG>CARCASS</STRONG> приписывали <STRONG>John Peel</STRONG> роль "ускорителя" их карьеры.</P>
+<P>И теперь, <STRONG>Earache Records</STRONG> впервые получил права от <STRONG>BBC</STRONG> на выпуск этих инновационных радио-сессий в полном объёме.</P>
+<P>Три диска включают в себя 118 треков классических записей от <STRONG>NAPALM DEATH</STRONG>, <STRONG>CARCASS</STRONG>, <STRONG>BOLT</STRONG> <STRONG>THROWER</STRONG>, <STRONG>EXTREME NOISE</STRONG> <STRONG>TERROR</STRONG>, <STRONG>GODFLESH</STRONG>, <STRONG>HERESY</STRONG>, <STRONG>UNSEEN</STRONG> <STRONG>TERROR</STRONG> и <STRONG>INTENSE</STRONG> <STRONG>DEGREE</STRONG>, общим временем звучания более трёх с половиной часов.</P>
+<P>Издание будет упаковано в слипкейс, а так же, содержать обширное интервью с бывшим барабанщиком <STRONG>NAPALM DEATH</STRONG> и изобретателем термина<STRONG> "grindcore"</STRONG> -<STRONG> Mick Harris</STRONG>.</P>
+<P><STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)"</STRONG> ожидается к выходу 12 октября.</P>
+<P>Для получения более полной информациии, поситите: <A href="http://www.myspace.com/grindmadness">www.myspace.com/grindmadness</A>.</P>
+Автор: Headcrusher
+
+### 24.02.2011 news Умер вокалист EXTREME NOISE TERROR
+
+<P>Один из основателей британской grindcore группы <STRONG>EXTREME NOISE TERROR</STRONG> вокалист <STRONG>Phil Vane </STRONG>умер 17 февраля в возрасте 46 лет. Официальной причины смерти не сообщается, но из неофициальных источников известно, что он скончался во сне. </P>
+<P><STRONG>EXTREME NOISE TERROR</STRONG> являются одной из самых почитаемых grindcore команд в мире. Свой творческий путь британцы начали в 1985 году, а в их составе в разное время были замечены <STRONG>Barney Greenway</STRONG> и <STRONG>Mick Harris</STRONG> из <STRONG>NAPALM DEATH</STRONG>. Последний на сегодня альбом <STRONG>ENT "Law Of Retaliation"</STRONG> вышел в 2008 году на<STRONG> Osmose</STRONG>, а в России его издали <STRONG>Фоно</STRONG>.&nbsp;</P>
+<P><center><IMG height=455 src="/images/news_rus/2011.02/18716.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 23.09.2015 news EXTREME NOISE TERROR: новый одноимённый альбом 5-ого ноября
+
+<P>Легендарные британцы <STRONG>EXTREME NOISE TERROR</STRONG> выпускают новый безымянный альбом. Диск выйдет в свет 5 ноября на лейбле <STRONG>Willowtip</STRONG> и станет первой студийной работой группы за шесть лет.</P>
+<P>По словам Дина Джонса (<STRONG>Dean Jones</STRONG>), вокалиста группы, новый альбом будет сделан в духе их ранних работ.</P>
+<P>Также, на этом альбоме можно будет впервые услышать нового (второго) вокалиста по имени Бен МакКроу (<STRONG>Ben McCrow</STRONG>).</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Punk Rock Patrol</STRONG> | 02. <STRONG>Dogma, Intolerance, Control</STRONG> | 03. <STRONG>No One Is Innocent</STRONG> | 04. <STRONG>I Like Coca</STRONG> (<STRONG>OUTO</STRONG> Cover) | 05. <STRONG>Think Outside The Box</STRONG> | 06. <STRONG>Chained & Crazed</STRONG> | 07. <STRONG>An Endless Cycle Of Misery</STRONG> | 08. <STRONG>Sheep In Wolf's Clothing</STRONG> | 09. <STRONG>Cash And Trash</STRONG> | 10. <STRONG>Cruel And Unusual Punishment</STRONG> | 11. <STRONG>Last Fix Of Fame</STRONG> | 12. <STRONG>Cage Paralysis</STRONG> | 13. <STRONG>Only In It For The Music Pt. 27</STRONG> <STRONG>(Black Putrefaction)</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.09/28359.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Extreme Noise Terror

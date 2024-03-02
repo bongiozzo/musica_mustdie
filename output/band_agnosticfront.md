@@ -193,6 +193,185 @@ And ** By Iron Cross
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.09.2001 news Очередная порция хард-кора...
+
+<p>Ветераны хард-кора "AGNOSTIC FRONT" 1-го октября выпускают новый альбом "Dead Yuppies" на Epitaph Records. Продюссировал релиз Roger Miret. На диск войдут следующие песни: 01. I Wanna Know 02. Out Of Reach 03. Critic 04. Liberty 05. Club Girl 06. Uncle Sam 07. Urban Decadence 08. Love To be Hated 09. No Mercy 10. Politician 11. Pedophile 12. All Right 13. Dead Yuppies 14. Standing On My Own.</p>
+
+Автор: Yermola
+
+### 10.09.2001 news Dead Yuppies....
+
+<p>New York hardcore veterans AGNOSTIC FRONT will be issuing their latest CD, entitled Dead Yuppies, through Epitaph Records on October 1st. Produced by singer Roger Miret, the album will contain the following track listing: 01. I Wanna Know 02. Out Of Reach 03. Critic 04. Liberty 05. Club Girl 06. Uncle Sam 07. Urban Decadence 08. Love To be Hated 09. No Mercy 10. Politician 11. Pedophile 12. All Right 13. Dead Yuppies 14. Standing On My Own Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.09.2001 news Uncle Sam...
+
+<p>Вдогонку ко вчерашней информации об AGNOSTIC FRONT, сообщаю что MP3 песни "Uncle Sam" из нового альбома "Dead Yuppies" можно скачать <a href="http://content.emusic.com/free/699665/Agnostic_Front-Dead_Yuppies-06-Uncle_Sam.mp3">здесь....</a></p>
+
+Автор: Yermola
+
+### 11.09.2001 news Uncle Sam...
+
+<p>An MP3 of the track "Uncle Sam", taken from AGNOSTIC FRONT’s upcoming Dead Yuppies CD (due to be released through Epitaph Records on October 1st), is available for download from <a href="http://content.emusic.com/free/699665/Agnostic_Front-Dead_Yuppies-06-Uncle_Sam.mp3">this location. </a>Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 15.08.2002 reviews Настоящий хардкор
+
+<p>Когда музыка встречается с политикой, ничего хорошего не получается – либо отличные шедевры и гимны социальной ответственности, либо немузыкальные проповеди классовой ненависти. Или наоборот. AGNOSTIC FRONT, нью-йоркские панки со стажем, создали очередной повод для подобной классификации: манифест, разбавленный минимумом музыки, "Мертвые бизнесмены". Хорошие бизнесмены. <BR> Поставьте диск в проигрыватель и зарубите себе на носу – вот это и есть настоящий хардкор, а KORN с LIMP BIZKIT к этой иногда музыке никакого отношения не имеют. Максимально быстрый, громкий и разогнанный панк-рок. Аккорды при желании можно играть грязно и по двум струнам, главное, чтобы мелодий было немного и песни не длились дольше 2 минут. На очередном творении классиков этого жанра так и есть – значит, хардкор в лучших традициях. Наслаждайтесь! <BR> Коммерческого потенциала у такой музыки никакого – даже оголтелые фанаты-"фронтовики" будут слушать эту пластинку до тех пор, пока не найдут десять отличий от предыдущего диска AGNOSTIC FRONT, "Riot, Riot, Upstart". Как вы понимаете, задача не из легких – музыканты потрудились на славу, стараясь ни на йоту не отойти от канонов жанра. Так что на решение этого ребуса уйдет по меньшей мере год. а за это время будет готов очередной набор точно таких же скорострельных песен. Впрочем, музыканты по поводу такого однообразия – главное смачно высказаться в очередной раз от души по всем социальным проблемам, послать новеньких соседей куда подальше и напомнить старым о своем уголовном прошлом (а оно у музыкантов имеется). <BR> Слушать это можно (и даже с удовольствием) и нужно в случае нежданного прилива адреналина – выплеснуть его в конвульсиях под этот ор и скрежет можно самое долгое минут через 20-25. А больше пластинка и не звучит. Тонкий расчет!</p>
+
+Автор: Tornado
+
+### 18.08.2004 news AGNOSTIC FRONT на Nuclear Blast!!!
+
+<P>Hardcore легенды <STRONG>AGNOSTIC FRONT</STRONG> подписали соглашение с <STRONG>Nuclear Blast</STRONG>. Новый альбом группы <STRONG>"Another Voice" </STRONG>выйдет уже в ноябре. Настоящий состав коллектива: <STRONG>Roger Miret</STRONG> (vocals), <B>Vinnie Stigma</B> (guitar), <B>Lenny DiSclafani</B> (guitar), <B>Steve Gallo</B> (drums)&nbsp;и <B>Mike Gallo</B> (bass). </P>
+Автор: Vit Belov
+
+### 02.09.2004 reviews Только скорость, только злость, и никаких компромиссов.
+
+<P>Казалось бы: чем может привлечь современного слушателя двадцатичетырехминутный альбом малоизвестной у нас группы, при том датированный 1986-м лохматым годом? Тут двумя строчками не отделаешься. Начать придётся издалека. </P>
+<P>К началу восьмидесятых нью-йоркская «новая волна», бушевавшая в легендарном клубе CBGB, изрядно поутихла. Ramones стали записывать компромиссные альбомы, Talking Heads полюбились широким массам и оказались в мэйнстриме, а апологеты «ноу-вэйв» вроде Лидии Ланч и Contortions смогли заинтересовать лишь искушенных эстетов, коих среди посетителей CBGB всё же было меньшинство. </P>
+<P>Тем временем экономическая ситуация в Америке складывалась не лучшим образом: «рейганомика» породила сотни тысяч безработных, программа «звёздных войн» отжирала бюджетные средства, оставляя социально незащищенные слои населения на бобах. Таким образом, малообеспеченным людям было о чём задуматься. И этим людям понадобилась иная музыка, нежели та, что до сих пор считалась «экстремальной». Хард и хэви для них были слишком буржуазны, панк-рок – компромиссным, а популярная «новая волна» - неактуальной и малоинтересной. </P>
+<P>Нужен был выплеск. Выплеск негативной энергии. Нужны были революционные песни протеста. Гимны грядущего апокалипсиса, который похоронил бы наглых богатеев, а вместе с ними все проблемы городской бедноты. Безадресный, нигилистический протест панков здесь не годился – время требовало конкретики. Фамилий, должностей и адресов ненавистных политиканов и жирующих буржуа. Дабы прицельно плевать в их мерзкие рожи, а не поплёвывать в воздух, как предлагали панки-пофигисты. </P>
+<P>Эти группы появились, потому, что не могли не появиться. Black Flag Генри Роллинза, Dead Kennedys Джелло Биафры и Agnostic Front Роджера Мирета. Все эти группы дебютировали в CBGB в начале восьмидесятых. Они были злыми, в их песнях была конкретика, а музыка стала ещё быстрее и лаконичнее. Обвинительная речь и приговор в рамках одной композиции укладывались приблизительно в полторы минуты чистого времени. Коротко и ясно. </P>
+<P>Agnostic Front появились на свет в 1982 году. В 1984 году вышел их первый альбом Victims of Pain, а спустя два года появился обозреваемый здесь Cause For Alarm. С остросоциальными текстами вроде бы всё ясно, а вот с музыкой… Агностики одними из первых «поженили» тяжесть металла и яростный напор панков. Теперь этот стиль называют кроссовером. На концертах группы бок о бок рубились панки, и металхеды, ранее ненавидевшие друг друга. Соратники и современники Agnostic Front Cro-Mags и D.R.I. позже разовьют стилистические приёмы кроссовера, а вот Агностики на уходящий поезд стиля, увы, запрыгнуть не успели… </P>
+<P>…Альбом, который спустя восемнадцать лет после его выхода переиздали в России, стоит того, чтобы его купить и прослушать. Как минимум для того, чтобы понять, откуда берут начало истоки тяжелой альтернативы девяностых. Но не пугайтесь: ни занудных гранджевых нирванизмов, ни «негрских плясок» с рэповыми речитативами здесь нет и в помине. Только скорость, только злость, и никаких компромиссов. </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 02.09.2004 reviews Тотально-фатальная металлизация Фронта.
+
+<P>В конце 1989 года, аккурат после записи концертника Live In CBGB’s, вокалист и главный идеолог группы Роджер Мирет был арестован по обвинению в распространении наркотиков и на два года угодил за решётку. Таким образом, из двух отцов-основателей группы остался один - гитарист Винни Стигма. К записи нового альбома он привлёк дополнительного гитариста Мэтта Хендерсона и вокалиста Алана Питерса. Автором музыкального материала выступил новобранец Хендерсон. Мирет, впрочем, фигурирует на диске в качестве соавтора большинства песен. </P>
+<P>One Voice – пожалуй, самый «металлизированный» диск Агностиков. И самый, на мой взгляд, качественно реализованный. Кроме того, пластинка получилась вполне хитовой. Увы, публика диск не оценила: продажи четвёртого «студня» группы были мизерными. Скорее всего, из-за того, что на сцене свирепствовал гранджевый тренд, с которым музыка Агностиков не имела ничего общего. Год спустя Стигма выпустил сборник лучших вещей группы и «законсервировал» проект на четыре года. Но это уже совсем другая история. </P>
+<P>Итак, что мы имеем: тридцать пять минут трэшево-кроссоверного угара. Присутствует изрядная доля несопливых мелодий. Вокалист, на мой вкус, уступает Мирету, но не факт, что сам Мирет смотрелся бы выигрышно на фоне предлагаемого музыкального материала. Впрочем, Питерс с задачей справился неплохо. </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 02.02.2005 reviews Сводки с передовой линии фронта
+
+<P>Заводной хардкор из Нью-Йорка. Всем рубиться полчаса! Ибо продолжительность Another Voice без малого 28 минут. Вообще, в последнее время я часто замечаю тенденцию к сокращению звучания альбомов. Нынче 50-минутные релизы выдают только гранды, выпускающие&nbsp; по одному альбому в пятилетку. Коллективы второго эшелона теперь стараются писать пластинки не длиннее 40 минут. Возможно, это типа ностальгия по 80-м, или музыканты ознакомились со статьей Владимира Ильича "Лучше меньше, да лучше". В любом случае, мне это нравится. Материал не так утомляет и есть возможность конкретнее сосредоточиться на композициях. Описывать хардкор занятие неблагодарное: он либо нравится - либо нет. Несомненно, Агностик Фронт одни из ярких представителей стиля, достойные продолжатели дела Билли Милано. Жесткие гитарные чесы, без особых претензий на технические изыски. Да в рамках стиля они и не нужны. В хардкоре главное мощная подача и прямолинейность, злой напористый вокал,&nbsp; речёвки, исполненные хором и остросоциальные тексты. Все это Агностикам не занимать. Альбом просто насквозь пронизан злостью, ненавистью и неприятием существующей системы. В качестве бонуса на диске имеется видео на композицию "Peace", снятое на задворках рабочего квартала с соответствующим контингентом.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Fucker
+
+### 08.02.2005 articles AGNOSTIC FRONT: &quot;Джордж Буш - маньяк и сумасшедший!&quot;
+
+<P><IMG height=267 alt="" hspace=0 src="/images/articles_rus/2005.02/7868.jpg" width=400 align=left border=5>Новейший альбом AGNOSTIC FRONT ‘Another Voice’ вышел совсем недавно на Nuclear Blast. Вот, что рассказал в одном из интервью вокалист Roger Miret.</P>
+<P>«Что ж, главное причиной того, что мы записали новый альбом, стало желание вернуться к ‘One Voice’ эре. Мы играли множество песен того периода на концертах, и мы почувствовали, что начинаем скучать по ним. Мы выступали с теми песнями, и совершенно естественно захотели сочинить новый материал. Альбом очень сильно связан с теми вещами, которые мы сочиняли в прошлом. Ничего нового для нас. Но нам кажется, для тех, кто не знаком с нашим творчеством начала 90-х, ‘Another Voice’ будет интересен».</P>
+<P>В hardcore от AGNOSTIC FRONT всегда была важна лирика. О чём новый альбом?</P>
+<P>«Лирически новый альбом очень сильно отличается от ‘One Voice’. Когда мы записывались в начале прошлой декады, у меня было очень тяжёлое время. На новой пластинке лирика больше рассказывает о социальных и политических проблемах. Это то, что я вижу, когда открываю глаза утром или читаю на бумаге. Это мой взгляд. Есть также несколько политических заявлений. Например, песня ‘Peace’ рассказывает о терроризме и о том, как он вышел из под контроля. Ну и, конечно же, в лирике мы затрагиваем проблемы нашего hardcore сообщества».</P>
+<P>Говоря о политике… Что думает Roger о Джордже Буше?</P>
+<P>«Да, я против Буша. Я совершенно точно не про-Буш артист. Я думаю, он маньяк и сумасшедший, и мне кажется, ему нужно уйти. Также, кстати, и Керри. Прошедшие выборы заставляли нас голосовать за меньшее из двух зол. К сожалению, Буш выиграл».</P>
+<P>Одной из главных новостей от группы в прошлом году стала смена лэйбла. Nuclear Blast вместо Epitaph.</P>
+<P>«Когда мы закончили сотрудничество с Epitaph два года назад, множество лэйблов было заинтересовано в нас. Marcus (хозяин Nuclear Blast) захотел послушать наше демо, и я показал ему его. Он оказался отличным парнем. Он фэн hardcore и коллекционирует все записи AGNOSTIC FRONT. Не только он послушал наше демо, но и все работники лэйбла. Это здорово. Как будто встреча семьи. Он не просто парень, который послушал наше демо, чтобы подписать контракт. Он привёл с собой всю свою «семью», и мы знали, кто будет работать с нашим альбомом. И это заставило нас почуствовать себя очень комфортно на новом лэйбле».</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 02.06.2007 news AGNOSTIC FRONT запишут альбом
+
+<P>20 июня <STRONG>AGNOSTIC FRONT</STRONG> войдут в студию для записи 15 новых песен для альбома "<STRONG>Warrior</STRONG>". Пластинка выйдет позже на <STRONG>Nuclear Blast</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 28.10.2007 news AGNOSTIC FRONT в Москве
+
+<CENTER><IMG height=324 src="/images/shows_rus/2007.11/11968.jpg" width=448 border=0></CENTER>
+Автор: Vit Belov
+
+### 26.08.2009 news Переиздание AGNOSTIC FRONT
+
+<P>Лейбл <STRONG>Bridge Nine Records </STRONG>переиздаст две классические работы в жанре <STRONG>hardcore </STRONG>- два первых релиза нью-йоркцев <STRONG>AGNOSTIC FRONT</STRONG>. Семнадцатого ноября 2009 года будет выпущен компакт диск, в который войдут&nbsp;первый миньон группы <STRONG>"United Blood"</STRONG> и полноформатник <STRONG>"Victim In Pain".</STRONG> Ко всему прочему, обе записи выйдут отдельными пластинками - <STRONG>"United Blood" </STRONG>на 7 дюймовом виниле, а <STRONG>"Victim In Pain"</STRONG>&nbsp;на&nbsp;12 дюймовом.</P>
+Автор: Headcrusher
+
+### 09.11.2010 news AGNOSTIC FRONT войдут в студию сегодня
+
+<P>'Hardcore'-ветераны <STRONG>AGNOSTIC FRONT</STRONG> сегодня начнут запись нового альбома в <STRONG>Mana Recording Studio</STRONG> в Санкт-Петербурге, Флорида с инженером<STRONG> Erik Rutan</STRONG> (<STRONG>MORBID ANGEL, CANNIBAL CORPSE, HATE ETERNAL</STRONG>). В студии вместе с группой также будет находиться продюсер <STRONG>Freddy Cricien (MADBALL). </STRONG>Для новой работы сочинено 15 вещей, которые выйдут в начале 2011 года.</P>
+Автор: Vit Belov
+
+### 25.01.2011 news AGNOSTIC FRONT: обложка и трек-лист альбома &quot;My Life My Way&quot;
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18321.jpg" width=400 height=400>"My Life My Way"</STRONG> -&nbsp;новый альбом легенд нью-йоркского хардкора <B itxtvisited="1">AGNOSTIC FRONT</B>, выйдет 4 марта в Европе и 22 марта в Северной Америке на лейбле <B itxtvisited="1">Nuclear Blast</B>.&nbsp;Диск был записан в студии&nbsp;<B itxtvisited="1">Mana Recording Studios</B>. Записью альбома занимался&nbsp;<B itxtvisited="1">Erik Rutan</B> (<B itxtvisited="1">MADBALL</B>, <B itxtvisited="1">GOATWHORE</B>, <B itxtvisited="1">CANNIBAL CORPSE</B>, etc.), под пристальным присмотром <B itxtvisited="1">Freddy Cricien</B>&nbsp; - вокалиста <B itxtvisited="1">MADBALL</B>. </P>
+<P>Обложку для <B itxtvisited="1">"My Life My Way"</B> нарисовал <B itxtvisited="1">Todd Hubber</B>, который, так же, работал с вокалистом Роджером Миретом (<STRONG>Roger Miret</STRONG>) над дизайном его&nbsp;марки&nbsp;одежды "<B itxtvisited="1">American Made Kustom</B>".</P>
+<P>Трек-лист<STRONG> "My Life My Way"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">City Street</B><BR itxtvisited="1">02. <B itxtvisited="1">More Than a Memory</B><BR itxtvisited="1">03. <B itxtvisited="1">Us Against the World</B><BR itxtvisited="1">04. <B itxtvisited="1">My Life My Way</B><BR itxtvisited="1">05. <B itxtvisited="1">That's Life</B><BR itxtvisited="1">06. <B itxtvisited="1">Self Pride</B><BR itxtvisited="1">07. <B itxtvisited="1">Until the Day I Die</B><BR itxtvisited="1">08. <B itxtvisited="1">Now and Forever</B><BR itxtvisited="1">09. <B itxtvisited="1">The Sacrifice</B><BR itxtvisited="1">10. <B itxtvisited="1">A Mi Manera</B><BR itxtvisited="1">11. <B itxtvisited="1">Your Worst Enemy</B><BR itxtvisited="1">12. <B itxtvisited="1">Empty Dreams</B><BR itxtvisited="1">13. <B itxtvisited="1">Time Has Come</B></P>
+Автор: Headcrusher
+
+### 03.02.2011 news AGNOSTIC FRONT: выпустят 7&quot; сингл &quot;That&#39;s Life&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18396.jpg" width=400 height=400>Две песни, с выходящего в скором времени альбома <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">AGNOSTIC FRONT</B> <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">"My Life My Way"</B>, будут выпущены на 7" сингле <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">"That's Life"</B>. Случится это 8 марта на <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Bridge Nine Records</B>. </P>
+<P>Это будет уже&nbsp;третье сотрудничество&nbsp;лебла <STRONG>Bridge Nine</STRONG>&nbsp;и группы <STRONG>AGNOSTIC FRONT</STRONG>. Комментирует глава лейбла <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Chris Wrenn</B>: </P>
+<P><EM>"Одним из тех моментов, которым я очень горжусь работая в <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Bridge Nine</B>, было переиздание&nbsp;альбомов <STRONG>AGNOSTIC FRONT</STRONG>&nbsp;<B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">'Victim In Pain'</B> и <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">'United Blood'</B>&nbsp; в ноябре 2009. Этому предшедствовала наша работа с <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">AF</B> по выпуску 7" сингла, предворяющего выход их альбома <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">'Warriors'</B> на <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Nuclear Blast</B>. Было круто поработать с группой и лейблом, по этому мы подумали - в свете выходящего нового альбома - почему бы не сделать это снова?"<BR><BR itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:false,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:false,hasBreaknodes:true,isBreaknode:true,nodeElem:true,nodeAttr:false,nodeText:false}"></EM>На сингл&nbsp;<B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">"That's Life"</B> войдут две песни: <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">"My Life My Way"</B> — <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">"That's Life"</B> и <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">"Us Against The World"</B>.&nbsp;Диск будет выпущен в количестве 2000 экземпляров.</P>
+Автор: Headcrusher
+
+### 24.03.2011 news Новый клип AGNOSTIC FRONT
+
+<P>Hardcore-классики <STRONG>AGNOSTIC FRONT</STRONG> выложили в сеть новый клип на песню <STRONG>"That's Life". </STRONG>Песня попала на новую работу американцев <STRONG>"My Life My Way"</STRONG>, которая вышла в России на этой неделе посредством <STRONG>Irond</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/JK3oIL7auuM?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/JK3oIL7auuM?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.04.2011 news Новый клип AGNOSTIC FRONT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню<STRONG> AGNOSTIC FRONT</STRONG> <STRONG>"A Mi Manera" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Dale "Rage" Resteghini, </STRONG>на счету которого уже более 500 работ.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=38cec5b64a4954abc17f" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.08.2011 news AGNOSTIC FRONT: видеоклип на титульную песню с альбома &quot;My Life My Way&quot;
+
+<P>Ньюйоркцы <STRONG>AGNOSTIC FRONT</STRONG> порадовали своих поклонников очередным клипом на титульную песню с последнего альбома <STRONG>"My Life My Way"</STRONG>. Режиссёр видео - <STRONG>Dale Resteghini</STRONG>.<BR>&nbsp;</P>
+<CENTER><IFRAME height=345 src="http://www.youtube.com/embed/EQoIPQ2oKDg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 25.07.2012 news AGNOSTIC FRONT: видео &quot;Us Against The World&quot;
+
+<P><STRONG>"Us Against The World"</STRONG>, новый клип ветеранов хардкора <STRONG>AGNOSTIC FRONT</STRONG>, можно посмотреть ниже. Песня вошла в последний альбом коллектива <STRONG>"My Life My Way"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/ZAcEBlQi840" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.05.2014 news AGNOSTIC FRONT: Craig Silverman назначен вторым гитаристом в группу
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.05/27009.jpg" width=304 height=310>Легендарная&nbsp;hardcore банда <STRONG>AGNOSTIC FRONT</STRONG> анонсировала, что приняла в свои ряды гитариста Крейга Сильвермана (<STRONG>Craig Silverman</STRONG>, на фото).</P>
+<P><EM>"Он не новичок на hardcore-сцене. Настойщий ветеран, <STRONG>Craig</STRONG>&nbsp;играл с&nbsp;<STRONG>ONLY LIVING WITNESS</STRONG>, <STRONG>BLOOD FOR BLOOD</STRONG>, <STRONG>RAMALLAH</STRONG>, <STRONG>SLAPSHOT</STRONG> и многими другими! Мы горды, счастливы и безмерно рады, что будем выступать вместе&nbsp;с ним в&nbsp;нашем&nbsp;туре по Европе, который состоится в августе этого года!"</EM> - говорится в официальном заявлении группы.</P>
+<P>В связи с этим, надо понимать, что гитарист <STRONG>Joseph James</STRONG>, являющийся&nbsp;гитаристом (помимо Винни Стигмы)<STRONG>&nbsp;AGNOSTIC FRONT</STRONG> с 2009 года, больше им не является.</P>
+Автор: Headcrusher
+
+### 27.01.2015 news AGNOSTIC FRONT выпускают новый альбом в апреле
+
+<P>4 апреля на лейбле <STRONG>Nuclear Blast</STRONG> легендарная hardcore-банда <STRONG>AGNOSTIC FRONT</STRONG> выпускает свой новый альбом. Диск получил название <STRONG>"The American Dream Died"</STRONG>.&nbsp;Его продюсером&nbsp;стал <STRONG>Freddy Cricien</STRONG>,&nbsp;вокалист <STRONG>MADBALL</STRONG>. В записи трека <STRONG>"Never Walk Alone" </STRONG>приняли гостевое участие <STRONG>Toby Morse</STRONG> (<STRONG>Н2О</STRONG>), <STRONG>Lou Koller</STRONG> (<STRONG>SICK OF IT ALL</STRONG>) и <STRONG>Freddy Cricien</STRONG> (<STRONG>MADBALL</STRONG>).</P>
+<P>Трек-лист:<BR>01. <STRONG>Intro </STRONG>| 02. <STRONG>The American Died </STRONG>| 03. <STRONG>Police Violence </STRONG>| 04. <STRONG>Only In America </STRONG>| 05. <STRONG>Test Of Time </STRONG>| 06. <STRONG>We Walk The Line </STRONG>| 07. <STRONG>Never Walk Alone</STRONG> <EM>(feat. <STRONG>Freddy Cricien</STRONG>, <STRONG>Toby Morse</STRONG>, <STRONG>Lou Koller</STRONG>) </EM>| 08. <STRONG>Enough Is Enough </STRONG>| 09. <STRONG>I Can't Relate </STRONG>| 10. <STRONG>Old New York </STRONG>| 11. <STRONG>Social Justice </STRONG>| 12. <STRONG>Reasonable Doubt </STRONG>| 13. <STRONG>No War Fuck You </STRONG>| 14. <STRONG>Attack! </STRONG>| 15. <STRONG>A Wise Man </STRONG>| 16. <STRONG>Just Like Yesterday</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/shows_rus/2015.01/27580.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

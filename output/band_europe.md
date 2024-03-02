@@ -95,6 +95,139 @@ Ian Haugland
 
 * C группой "Norum, John" Europe
 
+## Публикации
+
+### 21.06.1999 news 
+
+<p>Популярная группа Europe воссоединилась и приступила к записи нового альбома, который, по словам музыкантов, будет похож на старый материал.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Сольный альбом Люки Турилли из Rhapsody будет называться "Kings Of The Nordic Twilight". Люка сыграет почти на всех инструментах. Звук не будет похож на звук Rhapsody. Петь будет Олаф Хэйер (Treasure Seeker). Другие приглашённые музыканты: Миро (клавиши), Роберт Хюнеке (барабаны, Heavens Gate) и Саша Пает (гитары, Heavens Gate). Альбом станет первой частью трилогии под названием "Virtual Odyssey". В нём будет рассказана история о северной стране Калгор, которой правил ужасный царь Сарот, сын которого восстал против него. Первый сингл появится уже 30 августа, а альбом - 27 сентября. Сольник готовит также и вокалист Rhapsody Фабио Лионе. Он работает вместе с гитаристом Labyrinth Олафом Торсеном. Известно, что альбом выйдет в октябре и на нём будет кавер на классическую песню Europe "The Final Countdown".</p>
+
+Автор: Vit Belov
+
+### 06.06.2001 news Новый опус от DOKKEN ...
+
+<p>Гитарист Reb Beach подтвердил что не будет участвовать в записи нового альбома "DOKKEN", а вместо этого будет работать с собственным сольником "Masquerade". Трек лист которого: 01. Dark Place 02. Masquerade 03. Ghost 04. Better Shade Of Grey 05. Bleed 06. Fanatic 07. Red 08. Sorrow Stained Eyes 09. Day Of The Eagle 10. Get Out And Walk 11. Love So True. Пока же похоже что его место займет известный нарезальщик John Norum ("EUROPE") который уже давно репетирует с Доном Доккеном...</p>
+
+Автор: Yermola
+
+### 06.06.2001 news Guitarist Reb Beach has all but confirmed ....
+
+<p>Guitarist Reb Beach has all but confirmed that he will not be appearing on the new DOKKEN studio album, work for which is scheduled to start shortly. In a posting on his web site, Reb says that he hasn't been dismissed from the band, but claims that he has not been asked to be involved in the recording process. Former EUROPE guitarist John Norum is reportedly co-writing the material for the forthcoming album with Don Dokken, and is likely to be the featured guitarist on the CD, which is tentatively due in early 2002. Meanwhile, Reb's debut solo CD, Masquerade, will released in Japan next week with the following track listing: 01. Dark Place 02. Masquerade 03. Ghost 04. Better Shade Of Grey 05. Bleed 06. Fanatic 07. Red 08. Sorrow Stained Eyes 09. Day Of The Eagle 10. Get Out And Walk 11. Love So True. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.09.2002 news The SWEET tribute album &quot;Sweet FA&quot; ...
+
+<p><IMG SRC="/images/news/2002.09/3210.jpg" ALT="pho" width=200 height=198 hspace="15" vspace="5" border="1" align="right"> The SWEET tribute album "Sweet FA" is now released on Malibu Records (Scana Records) <A HREF="http://www.thesweet.com/sweetfa.htm">http://www.thesweet.com/sweetfa.htm</A><BR><BR> The "band" performing on the title track (track 2) is called JK's All Star Experience and features -<BR><BR> Bruce Kulick (KISS) - lead guitar<BR> John Levйn (Europe) - bass<BR> Lars Chriss (Lion's Share) - rhythm guitars<BR> Tommy Denander - keyboards<BR> Jonas Nilsson (Rednex) - lead vocals<BR> Thomas Vikstrцm (Talk Of The Town) - backing vocals<BR> Johan "JK" Kihlberg - drums<BR><BR> Another 14 American and Swedish artists/bands are featured on the cd as well.</p>
+
+Автор: Yermola
+
+### 23.09.2002 news Трибьют SWEET ...
+
+<p><IMG SRC="/images/news/2002.09/3210.jpg" ALT="pho" width=200 height=198 hspace="15" vspace="5" border="1" align="right"> Лэйбл Malibu Records только что выпустил альбом трибьют SWEET - "Sweet FA". <A HREF="http://www.thesweet.com/sweetfa.htm">http://www.thesweet.com/sweetfa.htm</A><BR> <BR> Состав основных участников:<BR><BR> Bruce Kulick (KISS) - соло<BR> John Lev&eacute;n (Europe) - басс<BR> Lars Chriss (Lion's Share) - ритм гитара<BR> Tommy Denander - клавишные<BR> Jonas Nilsson (Rednex) - вокал<BR> Thomas Vikstr&ouml;m (Talk Of The Town) - подпевки<BR> Johan "JK" Kihlberg - барабаны <BR><BR> Также на диске отметились 14 американских и шведских музыкантов.</p>
+
+Автор: Yermola
+
+### 19.12.2002 news Partition Europe Reunion
+
+<p>Three-fifths of the most celebrated EUROPE lineup - guitarist John Norum, bassist John Levйn, and drummer Ian Haugland - reunited on stage at the Hard Rock Cafй in Stockholm, Sweden - Dec 13th. to perform the EUROPE classic "Rock The Night" and a version of LED ZEPPELIN's "Rock And Roll".</p>
+<P> The gig, which took place as part of the Christmas show of local radio station Rockklassiker 106.7, also featured an appearance by LION'S SHARE guitarist Lars Chriss, who also played with Haugland during the regular set before Norum and Levйn joined the duo for the explosive finale. Haugland himself handled the lead vocal duties for the EUROPE track.</>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Джон Норум присоединился к UFO
+
+<p>UFO официально объявили, что новым гитаристом группы стал Джон Норум (DOKKEN/EUROPE). Джон заменит Майкла Шенкера, который в очередной раз покинул группу. Напомним, что Норум уже планировал присоединится к UFO в 1996.</p>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Former EUROPE&#x2F;DOKKEN Guitarist Joins UFO
+
+<p>UFO have officially recruited former EUROPE/DOKKEN guitarist John Norum as a replacement for Michael Schenker. Norum was last rumored to be possibly joining the band back in 1996 when the "Walk On Water" tour went belly-up, but now after a recent stint with DOKKEN, he finally joins the band officially.</p>
+
+Автор: Vit Belov
+
+### 17.08.2004 news Re-union альбом EUROPE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Долгожданный новый альбом <STRONG>EUROPE</STRONG> <STRONG>"Start From the Dark</STRONG>"&nbsp;выходит в Европе 27 сентября на <STRONG>Epic Records</STRONG>. Пластинка была записана с <STRONG>Kevin Elson</STRONG>, продюсером их мультиплатинового альбома <STRONG>'Final Countdown'</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Got to Have Faith</B><BR>02. <B>Start from the Dark</B><BR>03. <B>Flames</B><BR>04. <B>Hero</B><BR>05. <B>Wake Up Call</B><BR>06. <B>Reason</B><BR>07. <B>Song #12</B><BR>08. <B>Run With You</B><BR>09. <B>Sucker</B><BR>10. <B>Spirit of the Underdog</B><BR>11. <B>America</B><BR>12. <B>Settle for Love</B><BR><BR></P>
+Автор: Vit Belov
+
+### 13.10.2004 reviews Героями не рождаются
+
+<P>Конечно, никто давно уже не ждет от существующей уже более 20 лет шведской группы Europe второго 'The Final Countdown' (в то время одноименный альбом был продан в количестве 6 миллионов, а продажи сингла с песней перевалили вообще за восьмимиллионную отметку!). Сингл "Hero", выпущенный в поддержку альбома "Start From The Dark", состоит из трех песен, а точнее, из двух, ибо заглавная 'Hero' представлена в двух вариантах - radio mix и album version (плюс вещичка под названием 'Reason'). Типичнейший мейнстрим, вроде бы неплохая мелодия 'Hero' уже менее чем через минуту кажется слышанной уже сто раз до этого. 'Reason' еще более скучна. Объективно - максимум, что можно поставить синглу - это 5 из 10, но подождем уж лонгплея, хотя не думаю, что он, увы, будет лучше...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 11.11.2004 reviews Где стартовали, там и приземлились
+
+<P>Прежде всего, "Start From The Dark" это очень гитарный альбом. Клавишные звучат ненавязчивым фоном, и не более того. Нет, прежде всего: в группе вновь Джон Норум, покинувший ее после феноменального успеха 'The Final Countdown' еще в 1986 году и относительно недавно вновь вернувшийся в строй Europe. Нет, нет, прежде всего: на&nbsp;новом релизе так когда-то успешных шведов уху зацепиться не за что. Ни одного хита, и даже сингловая "Hero' кажется чуть ли не лучшей песней на альбоме. Скажем, баллада 'Roll With You' при потенциальной своей хитовости кажется слушанной уже сотни раз. А 'Sucker' (хм, интересно, про что эта песня?) представляют собой неудачную ретро-попытку вернуться в милые сердцу 80-е (альбом, несмотря на "немодный" мелодичный хард, имеет всё же современное звучание). Стартовав из темноты, Europe в ту же темноту и провалились. "Start From The Dark" купят только упертые фанаты группы, остальные же смогут найти более интересные работы в этом стиле.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 25.08.2006 news EUROPE - новый альбом в октябре
+
+<P><B>EUROPE</B> - новый альбом <B>"Secret Society"</B> выйдет в конце октября на Sanctuary<BR><BR><B>EUROPE</B> и рекорд-магнаты <B>Sanctuary Records</B> снова вместе - крупнейший независимый концерн Европы выпустит новую пластинку легендарных шведских рокеров, <B>"Secret Society"</B>.<BR><BR>Грядущий диск станет седьмым номером в дискографии коллектива и вторым, выпущенным совместно с <B>Sanctuary</B> - группа и лейбл уже работали вместе над феноменальным <B>"Start From The Dark"</B> (2004), ознаменовавшим возвращение <B>EUROPE</B> на большую сцену. В этот раз поле сотрудничества заметно расширилось, захватив территорию Соединенных Штатов и Скандинавии - теперь и там без проблем можно будет найти новую пластинку команды.<BR><BR>Говоря о стилистике <B>"Secret Society"</B>, он не стал продолжением <B>"Start From The Dark"</B>, который, в свою очередь, был как две капли воды похож на мультиплатиновый <B>"The Final Countdown"</B> (1986). На этот раз <B>EUROPE </B>решили разнообразить свою музыку, отказавшись от багажа 20-летней давности и уверенно шагнув в XXI век. Группа сама продюсировала пластинку, стремясь достичь максимально современного звука. Микшировать диск помогал <B>Штефан Глауманн</B>, ранее работавший с <B>RAMMSTEIN </B>и <B>APOPTYGMA BERZERK</B>. Мастеринг альбома сделал <B>Джордж Марино</B> (<B>U2</B>, <B>VELVET REVOLVERS</B>) в нью-йоркской студии <B>Sterling Sound</B>. <B>Леннарт<BR>Остлунд</B>, прошедший школу <B>LED ZEPPELIN</B>, внимательно отслеживал все этапы студийного процесса.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>"Secret Society"</B> - большой шаг как для группы, так и для выпускающей рекорд-компании. <B>Фрэнк Штробеле</B>, капитан европейского офиса <B>Sanctuary Group</B>, говорит следующее: <I>"Я большой фанат мелодичного хард-рока, и должен сказать, что <B>EUROPE</B> были и остаются одной из немногих групп, которым под силу писать суперхиты, не теряя почвы под ногами. Их живые<BR>выступления во все времена были эталоном рок-н-ролльного шоу. У этой группы потрясающая, взрывная энергетика! </I><I><B>"Start From The Dark" </B>показал, что за долгие годы молчания они не разучились творить, и грядущая пластинка - <B>"Secret Society"</B> - лишнее тому доказательство. От лица всех сотрудников <B>Sanctuary Records</B> скажу, мы гордимся сотрудничеством с <B>EUROPE</B>. Они совершенно особый бриллиант в нашей коллекции, известной своими неугасающими "звездами" - такими как </I><I><B>БИЛЛИ АЙДОЛ, SIMPLE MINDS</B> - и ультраталантливой молодой порослью в лице <B>DRAGONFORCE</B>".<BR></I><BR>Можно ли ожидать от <B>EUROPE</B> возвращения к корням? Нет! С новым альбомом шведы поднимаются на качественно новую высоту, шутя балансируя между бескомпромиссным жестким саундом и трогательными балладами. Музыканты верят, что истина - в постоянном движении и развитии, что жизнь стоит искать не только на Марсе. Такие вещи, как <B>'Forever Travelling', 'Love Is Not The Enemy'</B> и<B> 'A Mother's Son'</B> отлично иллюстрируют тягу группы к познанию новых территорий. Приятный коллаж акустических гитар и фортепьяно приглашает слушателя в увлекательное путешествие вдоль кромки человеческой души. Заглавная вещь <B>'Secret Society'</B> продолжает традицию психоделичных вещей <B>LED ZEPPELIN</B>, а <B>'Always The Pretenders'</B>, выходившая в виде сингла, вне всяких сомнений, станет лицом этого диска. Старые <B>EUROPE</B> встречаются на пластинке лишь раз - когда звучит замечательная <B>'Devil Sings The Blues'</B>.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>Особое внимание стоит уделить <B>'With So Many Things To Be Found'</B>, песне, которую музыканты посвятили самим себе. Смысл ее заключается в том, что есть цель - оставаться легендой вне времени, - и к этой цели постоянно нужно стремиться.&nbsp;&nbsp; <BR><BR><B>"Secret Society"</B> выйдет 27 октября. После старта диска группа намерена отыграть серию концертов в Европе.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 06.09.2006 news Подробности нового альбома EUROPE
+
+<P>Стал известен трек-лист нового альбома шведских хэви ветеранов <STRONG>EUROPE "Secret Society"</STRONG>:<BR><BR>1. <B>Secret Society</B> <BR>2. <B>Always The Pretenders</B><BR>3. <B>Love Is Not The Enemy</B> <BR>4. <B>Wish I Could Believe</B> <BR>5. <B>Let The Children Play</B> <BR>6. <B>Human After All</B> <BR>7. <B>The Getaway Plan</B> <BR>8. <B>A Mother's Son</B> <BR>9. <B>Forever Traveling</B> <BR>10. <B>Brave And Beautiful Soul</B> <BR>11. <B>Devil Sings The Blues</B> </P>
+<P>Напомним, что выход альбома запланирован на 27 октября через <STRONG>Sanctuary Records</STRONG>.</P>
+Автор: Dimas
+
+### 19.03.2009 news EUROPE назвали альбом
+
+<P><STRONG>EUROPE</STRONG> назвали свой новый альбом <STRONG>"Last Look At Eden". </STRONG>Подробности последуют.</P>
+Автор: Vit Belov
+
+### 04.06.2009 news Новый клип EUROPE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>EUROPE</STRONG> на песню "<STRONG>Last Look At Eden</STRONG>" можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=58396393">Europe - Last Look At Eden</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=58396393,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=58396393,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.06.2009 news Обложка новой EUROPE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>EUROPE</STRONG> <STRONG>"Last Look At Eden" </STRONG>выходит 18 сентября на <STRONG>Edel</STRONG>. Группа опубликовала обложку этой пластинки.</FONT></P>
+<P><center><IMG height=421 src="/images/news_rus/2009.06/14195.jpg" width=420 border=0></P>
+Автор: Vit Belov
+
+### 06.09.2009 news Новое видео EUROPE
+
+<P>Видеоклип на песню <STRONG>EUROPE</STRONG> <STRONG>"New Love In Town" </STRONG>можно посмотреть ниже. Режиссёр - <STRONG>Patric Ullaeus</STRONG> (<B>DIMMU BORGIR</B>, <B>LACUNA COIL</B>).</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Gbfu5t_iop0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Gbfu5t_iop0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.07.2010 news Подарок любителям хоккея
+
+<P>Ведущий производитель игровых спортивных симуляторов для компьютеров и приставок<STRONG> EA Sports</STRONG> объявил саундтрэк к новой версии <STRONG>NHL 11</STRONG>. Как обычно, в игре можно будет услышать множество интересных композиций с тяжёлой гитарой. Вот их список:</P>
+<P>* <B>IN WHISPERS</B> - "Here I Stand"<BR>* <B>AIRBOURNE</B> - "Bottom Of The Well"<BR>* <B>BULLET FOR MY VALENTINE</B> - "Your Betrayal"<BR>* <B>MEGADETH</B> - "Dialectic Chaos"<BR>* <B>PANTERA</B> - "Walk"<BR>* <B>DANKO JONES</B> - "Full of Regret"<BR>* <B>2 UNLIMITED</B> - "Twilight Zone"<BR>* <B>BLACK Box</B> - "Strike It Up"<BR>* <B>BLACK REBEL MOTORCYCLE CLUB</B> - "Mama Taught Me Better"<BR>* <B>BOUNCING SOULS</B> - "Ole!"<BR>* <B>DARUDE</B> - "Sandstorm"<BR>* <B>DROPKICK MURPHYS</B> - "Shipping Up To Boston (Live)"<BR>* <B>EUROPE</B> - "The Final Countdown"<BR>* <B>FOXY SHAZAM</B> - "Unstoppable"<BR>* <B>RAMONES</B> - "Blitzkrieg Bop"<BR>* <B>THE BLACK KEYS</B> - "Howlin’ For You"</P>
+<P>Создатели игры утверждают, что в этой музыке можно услышать "настоящий звук Национальной Хоккейной Лиги". Это верно. Я даже слышал<STRONG> DIMMU BORGIR</STRONG> на одном из хоккейных матчей за океаном.</P>
+Автор: Vit Belov
+
+### 13.07.2011 news EUROPE выйдет в следующем апреле
+
+<P>Новый альбом легендарных <STRONG>EUROPE</STRONG> анонсирован на апрель будущего года. Группа объявила, что продюсером новой пластинки станет <STRONG>Kevin Shirley</STRONG> (<B>IRON MAIDEN</B>, <B>JOE BONAMASSA</B>, <B>BLACK COUNTRY COMMUNION</B>, <B>BLACK STONE CHERRY</B>, <B>JOURNEY</B>). </P>
+<P>Вокалист <STRONG>Joey Tempest </STRONG>сообщил, что<STRONG> EUROPE</STRONG> хотят записать настоящий рок-альбом, а работа <STRONG>Kevin</STRONG> с <STRONG>BONAMASSA</STRONG>, <B>BLACK COUNTRY COMMUNION </B>и <STRONG>BLACK STONE CHERRY</STRONG> действительно впечатляет. </P>
+<P><center><IMG height=372 src="/images/news_rus/2011.07/20097.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Это правда ???

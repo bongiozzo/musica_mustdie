@@ -12,6 +12,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.11.2009 news Новый альбом HARTMANN
+
+<P>13 ноябля на лэйбле <STRONG>Sonic 11 Records </STRONG>выходит новый сольный альбом бывшего вокалиста<STRONG> AT VANCE Oliver Hartmann "3"</STRONG>. Этот альбом был спродюсирован <STRONG>Sascha Paeth</STRONG>&nbsp;в <STRONG>Heavens Gate Studios. </STRONG>На альбом попало 11 композиций, среди которых дуэт с лидером <STRONG>EDGUY/AVANTASIA Tobias Sammet</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

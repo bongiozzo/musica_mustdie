@@ -9,6 +9,9 @@
 
 * C группой "Enochian Crescent" Karri Suoraniemi (vocals in Thales; guitars & additional vocals in Enochian Crescent)
 
+## Публикации
+
+
 ## Обсуждения
 
 

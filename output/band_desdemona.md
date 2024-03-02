@@ -27,6 +27,22 @@ Maurizio Anello - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.09.2002 reviews Дездемона без Отелло
+
+<p>Познакомьтесь с еще одной symphonic-power группой из Италии. Не лучший, но и совсем не худший вариант подобной музыки. Скоростной мелодичный материал с отличной клавишной работой, интересными гитарами и довольно неплохим разнообразным вокалом. Да, это все тот же happy-power, но в отличие от той же RHAPSODY здесь меньше пафоса и слащавости. Соразмерная супермелодичная музыка с органными клавишными и эффектными гитарными партиями. Альбом довольно неплохо записан и хорошо смикширован, представляя собой смесь HELLOWEEN/STRATOVARIUS/RHAPSODY/SKYLARK. Большое количество музыкальных находок, восемь интересных эпических песен в течении пятидесяти семи минут. Все песни настраивают слушателя на героический и боевой лад. Иногда проскакивают прогрессивные нотки, неоклассические аранжировки и элементы барокко. В общем, если вы любитель power metal, то этот альбом точно для вас. Другим же тоже советую прослушать и оценить это творение.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 01.12.2002 reviews Don’t expect a crappy piece of moronic elfish-like happy bullshit
+
+<p>The opening song, “Black Lady”, is beyond brilliance. The second one, “Shadows Of My Life”, appears as no less stunning. Actually, the same epithets may be regarded to “Event Horizon” as well as “Othello’s Crying”, rather intriguing semi-ballad, ... and why not? – all the others. Nowadays it’s quite a surprise to give more than just a couple of listens to a CD certain Italy’s power metal act released lately. Scandinavia and Italy both are spitting forth enormous number of utterly worthless ‘happy-power’ bands, and it seems like it has no fucking end… Well, in fact, it really DOES NOT and WILL NOT have an end, at least in a foreseen future, however those few also offering pretty similar though thousand times less commercial and cheesy music haven’t gone anywhere. They’re still around, obviously gaining a lesser amount of fame, recognition… and money, of course. DESDEMONA have everything to appeal to ANY power metal (or just _metal_) fan: catchy harmonies / refrains, astounding singer possessing neither high-pitched nor low-as-possible, but simply an excellently trained voice… well, and what if it’s all been masterly performed and well executed? Originality? I wouldn't say there’s none of it. Nor would I state DESDEMONA are anything special. They’re not. As well as I won’t dare to name ‘em a worthless band even being high on formaldehyde (c) BROKEN HOPE ;). I just wish “Lady Of The Lore” was a bit – just a bit! – more memorable work… It’s ‘a must have’ anyway. Just like with every single band which have formerly inked a deal with Northwind Records, young yet constantly improving record company, don’t expect a crappy piece of moronic elfish-like happy bullshit. And just like with every single CD Northwind have issued so far, don’t expect anything but a tremendous appearance. Thanks for your patience. Now go off, and listen to “Lady Of The Lore”, and be as happy as drunken chipmunks usually are. Ah, what am I talking about… Nevermind…</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

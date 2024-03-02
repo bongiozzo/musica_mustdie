@@ -65,6 +65,19 @@ Corporation
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.12.2010 news Номинанты &quot;Грэмми&quot; за этот год
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2010.12/17727.jpg" width=400 align=right border=0>Объявлены номинанты музыкальной премии<STRONG> "Грэмми"</STRONG> за 2010 год. 53 церемония вручения наград состоится 13 февраля 2011 года в <STRONG>Staples Center</STRONG> в Лос-Анджелесе. </P>
+<P>На звание лучшей 'hard-rock' команды претендуют следующие&nbsp;песни и исполнители:</P>
+<P>* <B>ALICE IN CHAINS</B> - "A Looking In View" (from "Black Gives Way to Blue")<BR>* <B>OZZY OSBOURNE</B> - "Let Me Hear You Scream" (from "Scream")<BR>* <B>SOUNDGARDEN</B> - "Black Rain" (from "Telephantasm")<BR>* <B>STONE TEMPLE PILOTS</B> - "Between The Lines" (from "Stone Temple Pilots")<BR>* <B>THEM CROOKED VULTURES</B> - "New Fang" (from "Them Crooked Vultures")</P>
+<P>На премию в категории "метал" номинированы:</P>
+<P>* <B>IRON MAIDEN</B> - "El Dorado" (from "The Final Frontier")<BR>* <B>KORN</B> - "Let The Guilt Go" (from "Korn III: Remember Who You Are")<BR>* <B>LAMB OF GOD</B> - "In Your Words" (from "Wrath")<BR>* <B>MEGADETH</B> - "Sudden Death" (from "Guitar Hero: Warriors Of Rock")<BR>* <B>SLAYER</B> - "World Painted Blood" (from "World Painted Blood")</P>
+<P>На заветный "граммофон" могут претендовать исполнители, выпустившие новую музыку с 1 сентября 2009 года по 30 сентября 2010 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

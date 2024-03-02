@@ -20,6 +20,9 @@ Recorded & Mixed At Studio-MDM By Erkki Salo & AS SERENITY FADES In Sept. 1993.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

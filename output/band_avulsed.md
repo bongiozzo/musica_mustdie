@@ -79,6 +79,358 @@ Furni - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.12.2001 news День Avulsed!
+
+<p>21 декабря был день AVULSED! Легндарная испанская death-metal банда отпраздновала десятую годовщину, дав концерт вместе с Wormed и Kaothic. Группа отыграла сет из лучших песен за свою карьеру, нескольких каверов и две новые вещи с будущего третьего по счёту альбома, который выйдет на Avantgarde Music.</p>
+<p>Группа трудится над новыми песнями в Spacelab Studios в Германии. Новый материал в духе последнего релиза банды "Stabwound Orgasm". Вероятное название пластинки "SickSick Sex", альбом выйдет в 2002 году.</p>
+
+Автор: Vit Belov
+
+### 23.12.2002 news Новый альбом Avulsed
+
+<p>Новое творение death-маньяков Avulsed "Yearning For The Grotesque" вышло в этом месяце в Испании. Релиз же по всему миру, в том числе и в России на Irond, состоится в январе 2003 года.</p>
+
+Автор: Vit Belov
+
+### 23.12.2002 news Avulsed&#39;s new album
+
+<p>AVULSED "Yearning for the Grotesque" will be primarly released in Spain in December, to support their pre-Xmass Spanish tour ! it will be then released and available everywhere in january 2003.</p>
+
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 02.02.2005 reviews Классика жанра от испанских конкистадоров
+
+<P>Первый полноформатник ('96), пожалуй, самой известной дэт-бригады из Испании выпущен в ремастерированном качестве. Avulsed существуют уже тринадцать лет (первое демо датируется '92 годом), за это время выпустили лишь четыре полноценных альбома, несколько демок и сборник техно-ремиксов а-ля FEAR FACTORY ('98 Cybergore). Однако добились популярности и зарекомендовали себя, как мастера смертельного жанра. Материал на дебютнике представляет собой острый, как хорошо отточенное мачете, death metal, в котором присутствуют и скорости в нужных пропорциях и драйв. Даже клавишные имеются в некоторых треках, но они не портят общей картины, а лишь дополняют её. Для дебюта очень хорошая работа. Единственное,что мне не понравилось это не слишком выразительный вокал, хотя на других альбомах коллектива с этим всё в порядке. К плюсам диска можно добавить наличие MCD Carnivoracity('94). Если вы ещё не знакомы с музыкой AVULSED, то начать знакомство рекомендую с этого диска.</P>
+Автор: Graver
+
+### 26.05.2005 reviews Жестокое самоубийство
+
+<P>А вот и очередной альбом самой известной death-формации из Испании. AVULSED выпускают альбомы не часто, но всегда ждёшь от них качественной пластинки. Так и здесь. Испанцы вновь записали дэт-метал альбом-сочный, как свежевырезанный кусок мяса, предлагающий слушателю одинадцать треков. Одинадцать гимнов, посвященных самоубийству, болезням, трупам и прочим радостям жизни закоренелого маньяка. А на закуску кавер на нетленку Motorhead, переигранный в свойственной AVULSED манере. Никаких откровений вы на этом альбоме не услышите (хотя несколько интересных моментов всё-же имеется).Парни упорно гнут всё ту же линию,и если вы слышали предыдущий "Yearning for the grotesque" то можете иметь представление, что за зверь такой "Gorespattered suicide". Кто-то назовёт это отсутствием идей, а я скажу, что испанцы давно выработали свой собственный узнаваемый стиль и за это их любит и ценит мировая дэт-общественность. Остается добавить, что&nbsp; миксом и мастерингом занимался никто иной, как Эрик Рутан(Hate Eternal/ex-Morbid Angel), а уж он-то знает толк в жанре смертельного метала.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+<P>&nbsp;</P>
+Автор: Graver
+
+### 14.03.2006 news Определились участники фестиваля Neurotic Deathfest
+
+<P>Определились участники фестиваля <B>Neurotic Deathfest</B>, который пройдет 13 мая в голландском городе Эйндховен. Ранее фестиваль был известен под названием <B>Rotterdam Deathfest</B>, но в этом году его было решено провести в другом городе. На двух сценах выступят 15 дэт-металических команд, а посетители смогут также облегчить свои кошельки на большом "металическом рынке". Вот кто будет развлекать зрителей: шведы <B>ANATA</B>, британцы <B>GOREROTTED</B> и <B>SARPANITUM</B>, австрийцы <B>PSYCROPTIC</B>, испанцы <B>AVULSED</B>, голландцы <B>DISAVOWED</B>, <B>ARSEBREED</B> и&nbsp;<B>PROSTITUTE DISFIGUREMENT</B>, американцы <B>INSIDIOUS DECREPANCY</B>, японцы <B>INFECTED MALIGNITY</B>, словаки <B>SANATORIUM</B>, чехи <B>GODLESS TRUTH</B>, итальянцы <B>VOMIT THE SOUL</B>,&nbsp;бразильцы <B>MENTAL HORROR</B> и бельгийцы <B>EMETH</B>.</P>
+Автор: Ixtiandr
+
+### 07.04.2006 news Avulsed в России
+
+<P><IMG height=267 alt="" hspace=0 src="/images/shows_rus/2006.04/10014.jpg" width=400 align=left border=5>AVULSED - самая старая и лучшая группа в испанской Брутал - Дэт сцене с начала 91 года. Группа всегда была синонимом истинного Дэт-металла. Развила свой стиль. В 92 году выпустили первое дэмо! В 96 году выпустив дебютный альбои стали сразу в один ряд с такими монстрами как CANNIBAL CORPSE, MORBID ANGEL, SUFFOCATION! В 98 году группа выпускает не стандартный – электронный альбом Cybergore и приобретает еще не исчисляемую армию фанатов! В 2005 году под руководством Эрик Руттэна (HATE ETERNAl) записывает совершенно без компромиссный и безумно хороший альбом Gorespattered Suicide! Все альбомы группы переиздавались в многих странах мира. В России это лэйблы Coyote, Irond.</P>
+<P>Группа отыграла концерты во всех концах света и вот 7 и 8 апреля стараниями COYOTE RECORDS даст 2 концерта в России !</P>
+<P>Дискография :<BR>1992 Demo Embalmed In Blood Avulsed<BR>1993 DemoDeformed Beyond BeliefDrowned Productions<BR>1994 12'LP Split LP w/Acid DeathMolon&nbsp; Lave Records<BR>1994 7'EP Carnivoracity M.M.I. Records<BR>1995 Demo Promo '95 Avulsed<BR>1995 MCD Carnivoracity Repulse Records<BR>1996 CD Eminence In Putrescence Repulse Records<BR>1998 CD Cybergore Avulsed/Repulse Records<BR>1999 CD Seven Years Of Decay <BR>1999 CD Stabwound Orgasm Repulse Records<BR>2001 MCD Bloodcovered Avulsed <BR>2003 CD Yearning For The Grotesque AvantGarde Music<BR>2005 CD Gorespattered Suicide Metal Age Productions</P>
+<P><A href="http://www.coyoterec.newmail.ru/">www.coyoterec.newmail.ru</A></P>
+Автор: Vit Belov
+
+### 14.05.2009 news Новый альбом AVULSED
+
+<P>Новый альбом<STRONG> AVULSED "Nullo (The Pleasure Of Self-Mutilation)"</STRONG> выходит в июне сразу на четырёх лэйблах: <STRONG>Xtreem Music, Metal Age Productions, Coyote Records</STRONG> и <STRONG>Ibex Moon Records</STRONG>. Три песни с пятого альбома испанцев можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/avulsed">http://www.myspace.com/avulsed</A></P>
+Автор: Vit Belov
+
+### 17.08.2009 reviews Трупы с обложки пустятся в пляс
+
+<P>Альбом AVULSED “Stabwound Orgasm” стал одним из первых брутальных альбомов, вышедших в России по лицензии. Кровавые тётки, колющие друг друга ножами, это был хит. Прошли годы и вот теперь знаменитые испанцы выпускают свои альбомы на отечественного Coyote Records. Пускай, новейшая работа AVULSED “Nullo” и стала плодом совместных усилий трёх лейблов, этот факт достаточно почётен для нашей UG сцены.</P>
+<P>Приготовившись заценить новое творчество AVULSED, я слегка напрягся, надо ведь встречать брутальный deathcore во всеоружии. Кровавая туша на обложке готовила к самому худшему. Нет, не подумайте, что я не знал, что AVULSED не являются самой зверской группой Мира. Это такой художественный ход, чтобы подготовить вас к самому интересному. Несмотря на, уже упоминавшейся мной, не слишком брутальный имидж испанцев у любителей мяса, вряд ли любители, скажем, шведского death-metal будут приобретать их новые пластинки. То, что я услышал на “Nullo” заставляет меня рекомендовать этот альбом именно любителям death’n’roll. Энергичные, весёлые трэки с ритмическими thrash-metal ходами – это то, что любят, например, фанаты DISMEMBER или GRAVE. Есть даже у AVULSED что-то похожее на балладу. Действительно смешно.</P>
+<P>Хороший альбом, но категорически не серьёзный. Рекомендую всем любителям вмеру тяжёлого death-metal без интеллектуальных амбиций. </P>
+Автор: Vit Belov
+
+### 31.05.2016 news AVULSED почти собрали деньги
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Испанская death metal легенда <strong>AVULSED</strong> опубликовала обложку юбилейного сборника "<strong>Deathgeneration</strong>", посвящённого четверть вековой годовщине существования группы. Шикарный "пэйнт" нарисовал наш соотечественник <strong>Daemorph Evilartdominion</strong>, который также является басистом группы <strong>GROND</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Релиз появится в продаже 1 ноября, но пре-ордер кампания по сбору средств на <strong>Indiegogo</strong> стартовала 25 апреля. AVULSED собрали на данный момент 117508 Евро из необходимых 12000 Евро. Подробнее о кампании можно узнать здесь: <a href="https://igg.me/at/avulsed">https://igg.me/at/avulsed</a></font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">На двойной альбом попадут 18 лучших вещей <strong>AVULSED</strong>, перезаписанных с участием приглашённых звёзд: <strong>Peter (VADER), Barney (NAPALM DEATH), Tomas Lindberg (AT THE GATES), Sven (ABORTED), Antti Boman (DEMILICH), Chris Reifert (AUTOPSY), Per B&#246;der (GOD MACABRE), Anton Reisenegger (PENTAGRAM CHILE), Kam Lee (ex-MASSACRE), Rogga Johansson (PAGANIZER), Mike Van Mastrigt (ex-SINISTER), John McEntee (INCANTATION), Ville Koskela (PURTENANCE), Will Rahmer (MORTICIAN), Ludo (SUPURATION), Johan Jansson (INTERMENT) & Paul Zavaleta (DETERIOROT).</strong></font></p><p><center><img width="500" height="500" src="/images/news_rus/2016.05/29224.jpg" border="0">&nbsp;<p></p></center>
+Автор: Vit Belov
+
+### 31.05.2016 news AVULSED almost raised money
+
+<p>Spanish death metal legend <strong>AVULSED</strong> published the cover of the anniversary collection "<strong>Deathgeneration</strong>", devoted to the quarter century anniversary of the band. Paint was created by Russian artist <strong>Daemorph Evilartdominion</strong>, who is also the bassist of the band <strong>GROND</strong>.</p><p>The release will be available November 1, but the pre-order campaign to raise funds on Indiegogo started on April 25. AVULSED gathered at the moment 117508 Euros from 12,000 Euros needed. Read more about the campaign can be found here: <a href="https://igg.me/at/avulsed">https://igg.me/at/avulsed</a></p><p>The double album will include 18 best songs of AVULSED, re-recorded with the participation of guest stars:<strong> Peter (VADER), Barney (NAPALM DEATH), Tomas Lindberg (AT THE GATES), Sven (ABORTED), Antti Boman (DEMILICH), Chris Reifert (AUTOPSY), Per Bцder (GOD MACABRE), Anton Reisenegger (PENTAGRAM CHILE), Kam Lee (ex-MASSACRE), Rogga Johansson (PAGANIZER), Mike Van Mastrigt (ex-SINISTER), John McEntee (INCANTATION), Ville Koskela (PURTENANCE), Will Rahmer (MORTICIAN), Ludo (SUPURATION), Johan Jansson (INTERMENT) & Paul Zavaleta (DETERIOROT).</strong></p><p><center><img width="500" height="500" src="/images/news_rus/2016.05/29224.jpg" border="0">&nbsp;<p></p></center>
+Автор: Vit Belov
+
+### 16.08.2016 news Переиздан дебют AVULSED
+
+<p>Дебют <strong>AVULSED "Eminence in Putrescence" </strong>переиздан на <strong>Xtreem Music</strong>. Выпуск приурочен к 20-летнему юбилею выхода работы. Альбом полностью ремастирован и содержит 1 бонус-трек, записанный в 1996 году, но не попавший на альбом.</p><p>Трек лист:</p><p>01. Hidden Perversions <br>02. Sweet Lobotomy <br>03. Powdered Flesh <br>04. Goreality <br>05. Gangrened Divine Stigma <br>06. Frozen Meat <br>07. Ecstasy for Decayed Chunks <br>08. Killing Astral Projections <br>09. Bodily Ransack <br>10. Resistire (Baron Rojo cover) <br>11. Addicted to Carrion [Unreleased Rough Mix] (Bonus)</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/EcNbqmRUnOk" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 16.08.2016 news AVULSED re-released debut album
+
+<p>Debut album of <strong>AVULSED "Eminence in Putrescence"</strong> re-released via <strong>Xtreem Music</strong>.</p><p>20th anniversary re-issue of the 1st album from '96 by this spanish Death Metal band. Comes with remastered sound and 1 bonus recorded during the same recording sessions but never included on the album.</p><p>Also vinyl 12"LP version. Limited edition of 100 copies in beer color wax with blue splatter exclusively available through the Xtreem Music mailorder and 400 on plain black wax. </p><p>Track list:</p><p>01. Hidden Perversions <br>02. Sweet Lobotomy <br>03. Powdered Flesh <br>04. Goreality <br>05. Gangrened Divine Stigma <br>06. Frozen Meat <br>07. Ecstasy for Decayed Chunks <br>08. Killing Astral Projections <br>09. Bodily Ransack <br>10. Resistire (Baron Rojo cover) <br>11. Addicted to Carrion [Unreleased Rough Mix] (Bonus)</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/EcNbqmRUnOk" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.10.2016 news AVULSED выложили сэмплер нового альбома
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый двухдисковый юбилейный релиз<strong> AVULSED "Deathgeneration"</strong> выходит 1 ноября на <strong>Xtreem Music</strong>. Диск будет включать материал, перезаписанный с участием 16 гостевых вокалистов, среди которых участники<strong> AUTOPSY, ABORTED, MORTICIAN</strong> и многих других коллективов. Ниже можно услышать отрывки песен с этого альбома.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/0kajKuKDQiM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 12.10.2016 news AVULSED released sampler of upcoming 2CD-album
+
+<p>The new two-disc anniversary release of <strong>AVULSED "Deathgeneration"</strong> comes out November 1 on<strong> Xtreem Music</strong>. The disc will include material, rerecorded with the participation of 16 guest vocalists, including members of<strong> AUTOPSY, ABORTED, MORTICIAN</strong>, and many other groups. Below you can hear excerpts of songs from the album.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/0kajKuKDQiM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### AVULSED - 26 МАЯ - Клуб “ИКРА”

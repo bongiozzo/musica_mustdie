@@ -156,6 +156,75 @@ Digital release. Available to downlond on their bandcamp site.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.03.2001 news Мама и...враг..?!?!
+
+<p>Польские окультисты подписали контракт с португальским лэйблом Maquiavel Music Entertainment на два полноформатных релиза. Уже известно название нового альбома - “The Mother and the Enemy”, который обещает стать более death-ориентированным чем “My Guardian Anger”. На диск точно войдут: “Mother Pandora”, “Gambit”, “Architecture”, “Most Arrogant Life Form”, “Pied Piper”, “Yet Another Armageddon” и “Missa Solemnis”. Сейчас команда садится в польскую Studio 333 с продюссером Bartek Kuzniak, ответственным за запись “My Guardian Anger” и также работающего с Vader, Decapitated & Dies Irae.</p>
+
+Автор: Yermola
+
+### 19.03.2001 news The Mother and the Enemy....
+
+<p>Maquiavel Music Entertainment Lda is proud to announce their second extreme metal signing by picking up the Polish giants Lux Occulta unto their rooster. The label has taken the band for their next two full length releases after the groundbreaking release upon 1999 from Malevolence’s second album “Martyrialized” that shocked the whole metal community due to its diversity and extreme metal potential. Maquiavel Music Entertainment Lda is preparing his full concentration upon the release of this fourth full-length album from Lux Occulta with full force during the upcoming months all over the Globe including the release of their first European Tour since the band inception. Lux Occulta is know nowadays for playing a very creative occult form of metal including earth-shattering progressive elements from both death/black metal extremity. The first release from this recent gathering between the two parts will be title “The Mother and the Enemy”. It is said to be a more complex and diverse album than its predecessor “My Guardian Anger” and will include the following songs, not yet under the final order for the original release: “Mother Pandora”, “Gambit”, “Architecture”, “Most Arrogant Life Form”, “Pied Piper”, “Yet Another Armageddon” and “Missa Solemnis”. The band is set to enter on Studio 333 in Poland with producer Bartek Kuzniak, the same individual responsible for the final mastering of their previous “My Guardian Anger” album as well as the latest album efforts for such diverse acts like Vader, Decapitated & Dies Irae just to name a few. The recording sessions shall begin during late March 2001 after two Lux Occulta members will be back from their back support to Vader’s Polish National Tour with their project Decapitated. We do not have yet a final date for the release of the album since that depends in the very brief meanwhile from some other regular procedures. However, we can advance to all of you a tentatively release date settled for Summer 2001. The album “The Mother and the Enemy” will be license and exclusively distributed over the Countries of Poland, Czech Republic, Slovakia and Hungary via Maquiavel Music Entertainment Lda professional alliance constricted with Mystic Production.</p>
+
+Автор: Yermola
+
+### 19.09.2001 news Мама и Враг 2...
+
+<p>Свежие новости из стана польских оккультистов: практически закончена запись "The Mother and the Enemy". Сейчас происходит процесс мастеринга. Окончательный трек-лист выглядит вот так: 01. Breathe In 02. Mother Pandora 03. Architecture 04. Most Arrogant Life Form 05. Yet Another Armageddon 06. Gambit 07. Midnight Crisis 08. Pied Piper 09. Missa Solemnis 10. Breathe Out. В процессе записи продюссеру Бартеку Кузняку, Давиду Козяркевичу и Влодзимершу Коссаку пришлось играть на саксофонах и тромбонах, также была приглашена профессиональная джазовая певица Индиа. Команда назвала все это: "смелым экспериментом". Кавер альбома рисует Трэвис Смит (известный по работам с OPETH, DEATH, KATATONIA, NEVERMORE). Из других новостей барабанщик Kriss - покинул группу, несмотря на многочисленные попытки его уговорить. Сейчас на смену ему рекрутирован сессионный драммер - Gerard Niemczyk (MORDOR, HOLY DEATH)... Дата выхода - октябрь 2001.</p>
+
+Автор: Yermola
+
+### 19.09.2001 news The Mother and the Enemy...
+
+<p>Polish progressive occult black metal act LUX OCCULTA is almost finished with the recording studio sessions for their fourth full-length effort, their debut for Maquiavel Music Entertainment. Titled The Mother and the Enemy, the CD is currently under final mastering process at Studio 333 with producer Bartek Kuzniak (VADER, DECAPITATED, DIES IRAE). The final track listing for the album is as follows: <br> 01. Breathe In <br> 02. Mother Pandora <br> 03. Architecture <br> 04. Most Arrogant Life Form <br> 05. Yet Another Armageddon <br> 06. Gambit <br> 07. Midnight Crisis <br> 08. Pied Piper <br> 09. Missa Solemnis <br> 10. Breathe Out<br> LUX OCCULTA have invited producer Kuzniak, Dawid Kosiarkiewicz and Wlodzimierz Kossak to perform on the album with saxophones and trumpets as well as professional jazz vocalist India to lend her vocals to some of the new songs. The band cites the move as a “pretty brave experiment”. Renowned cover illustrator Travis Smith (OPETH, DEATH, KATATONIA, NEVERMORE) has been assigned to do the cover art for The Mother and the Enemy. Early reports indicate the cover is “extreme and sexy, but still mysterious and elegant”. In similar news, drummer Kriss has quit LUX OCCULTA midway through the recording of the album. Apparently, the band tried to convince Kriss not to leave the band until the CD was finished, but were unsuccessful in their attempts. Session drummer Gerard Niemczyk (MORDOR, HOLY DEATH) was hired to perform the remaining drum tracks. The album has a tentative release date of October 2001. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 09.11.2001 news Lux Occulta new album and Tour in November 2001...
+
+<p>Maquiavel Music Entertainment is proud to announce the final date scheduled for the release of the fourth full-length album of the Polish masters Lux Occulta. The extremely anticipated release of "The Mother and the Enemy" will take place in Portugal at 19.11.2001. The album will be available at all the selected metal stores in Portugal at this date according to our Portuguese exclusive distribution service. The new album was already consider as the album of the month in Metal Hammer Magazine in Poland and we can only wait to achieve some similar scores in additional media services in Portugal, Europe and in the Rest of the World when the album will be released on those places at a later stage. The album release date for Europe is settle at 07.01.2002 if everything will run according to our initial schedule. Later on, we will announce the final date for the possible release in the Rest of the World. Keep tuned… <BR> <BR> Lux Occulta is in fact preparing themselves for the release of their first National Tour after the Polish release of their new album "The Mother and the Enemy". During the month of November 2001 the band will Tour consistently the Polish soil throughout accomplishing nine live shows in some of the biggest cities in Poland. The band will support the Brazilian act KRISIUN (supporting the release of the new relentless album "Ageless Venomous"), and will share the stage along with other great metal acts such as VADER, BEHEMOTH, HATE, SCEPTIC, ESQARIAL and BELFEGOR. <BR> <BR> If you live in Poland and want to see some fascinating and memorable live shows, check the following dates, cities and places starting from today at: 07.11.2001 BIALYSTOK Fama | 08.11.2001 LUBLIN Graffiti | 09.11.2001 RZESZOW Gambit | 10.11.2001 KRAKOW Klub 38 | 11.11.2001 KATOWICE Mega-Club | 12.11.2001 POZNAN Esculap | 13.11.2001 WARSZAWA Proxima. <BR> <BR> Besides the scheduled Tour, the band is actually facing a very intense hard working period doing a huge promotional campaign throughout their native Country by giving in depth interviews to all the major and underground magazines and radios available down there. Their new album "The Mother and the Enemy" achieved recently the category of album of the month in Metal Hammer Magazine (Poland) and the band has been feature on the cover story of such influential magazine lately. After that intense promotional action in Poland, the band is schedule to start facing another hectic period of promotion and exposure above Portuguese territory during the next two months.</p>
+
+Автор: Yermola
+
+### 09.11.2001 news Оккультисты класса люкс...
+
+<p>Четвертый альбом польских оккультистов "Lux Occulta" выходит в Португалии 19 ноября. Для остального мира песни про "маму" они споют уже 7-го января 2002 (если все пойдет как запланировано). "The Mother and the Enemy" успел получить статус альбома месяца в польском "Metal Hammer ". Сейчас команда собирается в тур в поддержку релиза совместно с бразильцами "KRISIUN" и также VADER, BEHEMOTH, HATE, SCEPTIC, ESQARIAL и BELFEGOR. Если вы окажетесь в ноябре в Польше - сходите: 09.11.2001 RZESZOW Gambit | 10.11.2001 KRAKOW Klub 38 | 11.11.2001 KATOWICE Mega-Club | 12.11.2001 POZNAN Esculap | 13.11.2001 WARSZAWA Proxima.</p>
+
+Автор: Yermola
+
+### 28.02.2002 reviews Еще один Армагеддон или порождение больного воображения
+
+<p>Еще один Армагеддон или порождение больного воображения. Четвертое полнометражное творение польских музыкантов снова представляет собой сильное профессиональное новаторское творение. Первые же звуки альбома настраивают на особый лад и напоминают PESTILENCE времен "Spheres". Альбом перенасыщен экспериментами, при записи использовались и различные духовые инструменты, и огромное количество сэмплов и компьютеризированных эффектов вкупе с индустриальными наворотами. После первых четырех песен становится понятно, что перед нами высокотехничный прогрессивный industrial-death-black metal на джазовой основе, с постоянными ритмическими сбивками и тяжелым насыщенным звуком. Буквально тут же, начинаешь понимать, что тебя охватывают непередаваемые ощущения. Такое чувство, что мозгам становится тесно внутри черепной коробки, и они, того и гляди, вырвутся наружу. И тогда-то, музыканты, видимо рассчитывая на подобный эффект, дают слушателю передышку. Следует индустриально-готический кусок с женским вокалом, для записи которого была приглашена профессиональная джазовая певица India Czajkowska. Ее томный усыпляющий вокал повергает в сотояние дремоты. Однако, это состояние продолжается недолго. Спустя некоторое время, тяжелые промышленнные риффы пробуждают слушателя и возвращают его к действительности. Дальше, так до конца альбома и продолжается. Музыканты балансируют от безумных ритмов и шизофренических звуков до спокойно-умиротворенных, которыми и заканчивается эта неоднозначная и сложная работа. Именно с помощью этого балансирования на грани, им удается не разрушить здоровые организмы слушателей. Но, если ваш организм не совсем здоров, то предупреждаю, что прослушивание альбома может еще более повредить вашему психическому здоровью. Альбом совершенен и очень оригинален, но в этом случае оригинальность не значит интересность. От прослушивания сего шедевра можно получить скорее головную боль, чем удовольствие, так как все время находишься в нервно-возбудимом и напряженном состоянии. Но, возможно, и обратное...</p>
+
+Автор: Dimas
+
+### 12.05.2002 news LUX OCCULTA SPANISH INVASION....
+
+<p>New release from Lux Occulta "The Mother and the Enemy" in Spain since the fall of April 2002. The album is currently in stores via Donosti Rock and the band is getting a huge feedback response from this Country for a start. To inaugurate another killer set of reviews they have receive an excellent mark of 8.5/10 recently in Necromance magazine.</p>
+
+Автор: Yermola
+
+### 06.03.2003 news KEEPING SCORES HIGH WITH THE WORK OF THE DEVIL ...
+
+<p>After being considered as the album of the month in such high professional and recognized magazines such as Metal Hammer (Pol), Metalmare (Gre), plus receiving enthusiastic high scores upon many reviews all over the globe. Lux Occulta's fourth album |The Mother And The Enemy| receives now the third album of the month nomination since we started up their promotion. It goes this time upon Australian soil at the professional magazine Metalbite. Reason to say the conquering keeps on going all over the place keeping the scores high. Two thumbs up for these Polish star walkers!</p>
+
+Автор: Yermola
+
+### 06.03.2003 news PROLIFIC CLIMBING WITHOUT BOUNDARIES....
+
+<p>And since we have been speaking about the major recognition for the 4th album of Polish act Lux Occulta, we will keep right on that side of the track. They have attained just recently the 5th position in the TOP15 of Loud Rock Radio Show charts under the Palmarйs Specialisй on CIBL. As we speak they have been constantly climbing the top of that major National radio show since they entered in their radio emission rotation back in December 2002. Case to say burst command 'till war...people can run...but they cannot hide from the full potential of this excellent musical unit.</p>
+
+Автор: Yermola
+
+### 09.07.2003 news LUX OCCULTA WORK DISCONTINUATION ...
+
+<p>Lux Occulta, one of the most successful extreme metal acts ever to emerge from the Polish soil stated that they are stopping activities for good! Whether this means the end of the band or not, we cannot assure. All we know is that the band is stopping doing interviews, rehearsals and live shows for the moment. We will keep you updated on all upcoming news as we get them directly from the band! In the meanwhile their 4th full-length effort achieved the excellent mark of 7.5/10 in the leading UK extreme metal magazine Terrorizer.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Насоветуйте мне симфо блэка!

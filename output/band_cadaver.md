@@ -61,6 +61,41 @@ Anders Odden.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.04.2001 news Болезненный Ангел....Стив Такер
+
+<p>По сообщению менеджмента "MORBID ANGEL", бассист/вокалист Стив Такер по ряду личных причин не сможет участвовать в Американском и Европейском турах команды. Заменой ему будет - Jared Anderson из флоридской "HATE ETERNAL". Европейский тур начинается 9 апреля с поддержкой "ZYKLON" и "CADAVER INC", а поздннее будет американский "Extreme Steel tour" совместно с "PANTERA", "SLAYER", "STATIC-X" и "SKRAPE".</p>
+
+Автор: Yermola
+
+### 06.04.2001 news Steve Tucker will not be appearing with MORBID ANGEL on their tours...
+
+<p>According to MORBID ANGEL’s management, vocalist/bassist Steve Tucker will not be appearing with MORBID ANGEL on their upcoming US and European tours due to family and personal problems. The bass and vocal duties at all upcoming dates will be handled by Jared Anderson of the Florida band HATE ETERNAL. MORBID ANGEL will be heading to Europe the week of April 9th for a five-week European tour with ZYKLON and CADAVER INC. in support. As previously reported, the band will also be taking part in the Extreme Steel tour along with PANTERA, SLAYER, STATIC-X and SKRAPE.</p>
+
+Автор: Yermola
+
+### 28.02.2004 news Cadaver подписались на Candlelight
+
+Шведская death-metal группа <B>CADAVER</B> подписала контракт с <B>CANDLELIGHT RECORDS</B>. Новый альбом '<B>Necrosis</B>' выйдет в апреле 2004 года.
+Автор: Vit Belov
+
+### 28.02.2004 news CADAVER signed to Candlelight Records
+
+Swedish Death-metal band <B>Cadaver</B> have signed to <B>Candlelight</B> and will release their new album "<B>Necrosis</B>" in April 2004.<BR>
+Автор: Vit Belov
+
+### 08.09.2004 news CADAVER aka CADAVER INC развалились
+
+<P>Норвежская группа <STRONG>CADAVER INC</STRONG> (раннее <STRONG>CADAVER</STRONG>) распалась после 15 лет существования. &nbsp;</P>
+Автор: Vit Belov
+
+### 08.09.2004 news Norway CADAVER split up
+
+<P>Norwegian technical death metallers <B>CADAVER</B> have "decided to split up after 15 years of underground service and four studio albums," according to a posting on the group's official site. "We would like to thank our fans for all these years and all the people who supported us. Thank you all!!!!"</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

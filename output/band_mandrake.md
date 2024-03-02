@@ -80,6 +80,309 @@ Cover artwork and design by Jason Campblood-
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.2000 reviews 
+
+<p>Шедевральный альбом неизвестной для меня до сих пор группы. Если не ошибаюсь, из Голландии. Потрясающе красивый готик-дум с великолепными мелодиями, чередующимися мужским суровым и ангельским женским вокалами, довольно сложными переходами, обилие акустики и атмосферных клавиш. Ни на кого конкретно не похоже. Но если проводить какие-то аналогии, то напоминает более тяжелый и насыщенный риффами вариант LACUNA COIL, иногда даже смахивает на NIGHTWISH, в основном из-за схожести пауэр-риффов. Очень разнообразное настроение создает скрипка на заднем плане. Несмотря на то, что ее звучание явно в миноре и создает печально-меланхоличную ауру, музыка в совокупности носит довольно приподнятое настроение. Может это из-за того, что альбом записан в довольно быстром темпе. Очень интересный кусок готического металла.</p>
+
+Автор: Dimas
+
+### 10.02.2004 reviews Mandrake, совсем не  Linux 9.1
+
+<P>Скажу сразу для компьютерщиков-маньяков, этот Mandrake к Линуксу никакого отношения не имеет!!!! Это всего лишь группа из не слишком далекой неметчины, выпустившая свой второй альбом. Откровенное дерьмо Prophecy не выпускает, так что сам факт появления “Calm The Seas” на этом лэйбле уже говорит о достаточно высоком уровне данного релиза. Правда, порекомендовать его абсолютно всем я не могу. Лишь настоящим любителям кондового готик-метала, желающим чего-то свеженького и обязательно с красавице-чудовищным вокалом. «Чудовищный» вокал в исполнении Лютса Де Паттера реально хорош, убедительный такой рык. На Феликса из Crematory очень похож. Красавица впечатлила меньше, несколько занудна и однообразна девушка по фамилии и имени BirgitLau, но слушать её без особого раздражения можно. Да и мордашка симпатичная… Песенки хорошие, мелодичные, особо стоит отметить “Entwine” и “Essential Trifles”, но все ж сейчас на дворе уже 2004 год… могли б хоть чуток отойти от классических канонов, электронщины б добавили, что ль. Мне бы больше понравилось.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+Автор: Дофф
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 01.03.2006 reviews Робкие попытки заработать
+
+<P>Gothic-metal’исты MANDRAKE, представившие на прошлом альбоме свою версию известного штампа «Красавица и Чудовище», решили сменить жанр. Перейти от этого ретро в духе THEATRE OF TRAGEDY к чему-то более актуальному на музыкальном рынке, к gothic-metal с женским вокалом - соло. Мне это стремление понятно, но, к сожалению, решить стать богатыми и популярными, и стать ими, не одно и тоже. Для лэйбла Prophecy, видимо, подобные группы не являются основным направлением, поэтому MANDRAKE не получили должного бюджета для реализации своих планов. В связи с этим явный недостаток, низкое качество записи.</P>
+<P>Продолжая хвалить группу за верное направление мыслей, скажу, что, как и их старшие товарищи WITHIN TEMPTATION, MANDRAKE строят весь свой PR вокруг миловидной вокалистки Birgit Lau. Это правильно. К сожалению, привлекательная внешность не является главным достоинством певицы. Birgit не хватает ни техники, ни денег, чтобы завуалировать недостатки собственного пения в студии.</P>
+<P>В общем и целом, MANDRAKE не хватило бюджета. Как морального, так и материального. Робкие попытки осовремениться привели, как мне кажется, к полному провалу. В жанре поп-музыки необходимо высочайшее качество и запоминаемость мелодий, этого нет.</P>
+<P>P.S.: На российское издание попали 5 бонус-трэков – 5 каверов. Отмечу кавер-версию на песню METALLICA “Fade To Black”, которая превратилась в медленную занудную композицию под аккомпанемент струнных с солирующим сомнительным женским вокалом. </P>
+Автор: Vit Belov
+
+### 12.03.2006 reviews Мандрейк меняет цвет
+
+<P>Дерьмо голубого цвета вроде не встречается… Странно, к балансу чего тогда стремились музыканты коллектива Mandrake записывая альбом “The Balance Of Blue”? Балансу вокальных партий? Ну так Brigit Lau тут в разы больше, чем «чудовищного» голоса Lutz’a de Putter’a. Если на “Calm The Seas”, действительно был диалог – красавица-чудовище, с приоритетом мужского, а Бриджит, в основном, пела вторым голосом, то в 2005м правит балом эта коза. Не знаю, что случилось с ее голосом, ну слушать его стало невозможно. Она хороша для бэков, а в качестве Тарьи девушка не тянет совершенно. Однотонные вокализы с противным тембром, раздражают уже к концу первой песни. А их тут таких целых 12 штук. Лютц солирует крайне редко, неуверенно, но именно его песни самые интересные. Может быть тогда к балансу – современного готик и дарк метала? Да хрен там. Пара относительно брутальных композиций (все они с Лютцом) в счет не идут. Практически исчезли модные электронные звучки. Теперь Мандрейк играет стандартнейший готик- метал конца девяностых, уже просто доставший даже преданных слушателей.</P>
+<P>Тогда к балансу звука? Тоже нет. На “Calm The Seas” упор был на клавиши, теперь на первом плане гитара Лютца. И я бы не сказал, что он выдающийся музыкант. Скорее школьник выучивший три аккорда. Складывается впечатление, что он на всех песнях играет одно и тоже. </P>
+<P>Правда, стоит сказать, что в плане мелодий «Баланс» продолжает линию «Кама». Не безнадежно, короче. Но все равно – эти два альбома разделяет пропасть. Один можно было спокойно слушать, а второй именно оттенки голубого дерьма. Слушаешь его со слезами на глазах… а бонус треки со смехом. Так испоганить кьюровскую “Pictures of you” и металликовскую “Fade to black” надо было постараться. </P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 28.10.2008 reviews Средняя работа с женским вокалом
+
+<P>Немецкий коллектив MANDRAKE выпускает уже свой четвёртый альбом. При этом все эти пластинки доступны в России на Irond и CD-Maximum. Изданием группы в Европе занимается Prophecy, группа демонстрирует некоторый прогресс, но он вряд ли приведёт её к шумному успеху.</P>
+<P>Первой работой, изданной у нас, стал альбом Mandrake 2003 года “Calm The Seas”. При всей сырости той пластинки она имела некоторый успех, благодаря своему ностальгическому звучанию. В ней легко угадывался «обалденный дум с бабами и клавишами», что всегда приносила альбомам пусть ограниченную, но популярность. Далее немцы последовали вслед за всеми подобными группами и сконцентрировались на производстве gothic-metal с женским вокалом, за этим занятием мы их и застаём на этой работе. В этом стиле конкуренция несравнимо большая, но, в тоже время, и армия поклонников у подобной музыки внушительнее. По этой причине MANDRAKE ничего не приобретут, но и не потеряют. Причиной подобной ситуации станет среднее качество их музыки. Среднетемповая, без явных хитов, но и не без некоторого шарма. Певица Birgit Lau, на которую просят обратить внимание в пресс-релизе Irond, тоже ни чем особым не выделяется. Ни в худшую, ни в лучшую сторону. Она старается, это наиболее полное описание её вокальных данных.</P>
+<P>Средний, простенький альбом, который привлечёт внимание только прожженных любителей женского вокала. Не захватывает.<BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

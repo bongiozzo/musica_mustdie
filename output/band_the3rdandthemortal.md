@@ -181,6 +181,26 @@ Spider 5:05
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.09.2000 news 3rd and the Mortal записывают новый альбом
+
+<p>Группа 3rd and the Mortal в настоящее время в студии занимается записью материла для своего нового альбома. Срок выхода альбома пока еще не афишировался. Поскольку вокалист Ann-Mari Edvardsen покинул группу, ребята в срочном порядке ищут ему замену.</p>
+
+Автор: Nybras
+
+### 07.09.2000 news 3rd and the Mortal records new studio full lenght
+
+<p>3rd and the Mortal is currently in the studio, recording material for the new album. No date for release is yet confirmed. As the vocalist, Ann-Mari Edvardsen, has left the band, the guys are now looking for a new one</p>
+
+Автор: Nybras
+
+### 02.03.2004 news The 3rd and the Mortal выпускают сборник
+
+<P><B>The 3rd and The Mortal</B> выпускают сборник <B>"EPs and Rarities"</B> 8 марта. На него войдут мини-альбомы <B>"Sorrow"</B> and <B>"Nightswan"</B>, а также b-side с сингла 'Stream' и бонус-трэки с японского издания "<B>In This Room".</B> Следующим же релизом группы станет <B>"Projekt Bluebook - A Decade Of Endeavor"</B>, включающие новые вещи и нереализованный концертный материал.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

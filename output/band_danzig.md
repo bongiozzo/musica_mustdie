@@ -232,6 +232,183 @@ Mark Chaussee: extra guitar on tracks 4 and 6.
 * C группой "Type O Negative" Johnny Kelly
 * C группой "Seventh Void" Johnny Kelly
 
+## Публикации
+
+### 08.10.1999 news 
+
+<p>Danzig вернулcя на большую сцену, заключив контракт с E-Magine Entertaiment. Новый альбом "666 Satan's Child" станет его первым за три года.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Glenn Danzig заявил, что его следующий альбом после 'Danzig 666-satan's Child' будет шагом назад, к корням. Хотя индустриальные фишки на нем, конечно, не исчезнут полностью.</p>
+
+Автор: Vit Belov
+
+### 25.08.2000 news Glenn Danzig опроверг слухи о возвращении в свой старый коллектив
+
+<p> С тех пор, как он покинул свою группу, 17 лет назад, многие фэны всё же надеялись, что Гленн должен вернуться. Но музыкант заявил, что не имеет никакого желания связываться с The Misfits. Вместо этого он сказал, что собирается еще больше сфокусировать свое внимание на группе, которая носит его имя. В настоящее время уже готов к выпуску двойной концертный альбом с записями выступлений в 1992-м, 1994-м и 1999-м годах.</p>
+
+Автор: Nybras
+
+### 25.08.2000 news News from Glenn Danzig
+
+<p> DANZIG frontman Glenn Danzig said he is not reuniting with his former band The Misfits. Since Danzig's split with the band 17 years ago, a lot of fans hoped that the frontman would return to the fold. But he stated that he has no intentions of hooking up with The Misfits. Instead, Danzig said he is still intently focused on life with the band that bears his name. Danzig is currently pulling together a double-live album (culled from dates on his 1992, 1994, and 1999 tours) that is expected to surface this fall.</p>
+
+Автор: Nybras
+
+### 18.04.2001 news Поцелуй от Гленна Данцига...
+
+<p>Практически завершен седьмой по счету альбом "DANZIG" озаглавленный "Danzig 7: Kiss The Skull". Выход планируется на сентябрь, а войдут на него следующие треки: 01. Black Mass 02. Kiss The Skull 03. Dead Inside 04. God Of Light 05. Angel Blake 06. Wicked Pussycat 07. Halo Goddess Bone 08. The Coldest Sun 09. Dying Serph 10. Dark Secret Side 11. Soul Eater 12. Malefical Bride of Hell. Первый живой СД "DANZIG" - Live On The Black Hand Side будет на прилавках магазинов с 24 апреля.</p>
+
+Автор: Yermola
+
+### 18.04.2001 news Danzig 7: Kiss The Skull.....
+
+<p>DANZIG are in the studio putting the final touches on their seventh studio album, provisionally titled Danzig 7: Kiss The Skull. Tentatively scheduled for a September release, the new album is set to include the following tracks: 01. Black Mass 02. Kiss The Skull 03. Dead Inside 04. God Of Light 05. Angel Blake 06. Wicked Pussycat 07. Halo Goddess Bone 08. The Coldest Sun 09. Dying Serph 10. Dark Secret Side 11. Soul Eater 12. Malefical Bride of Hell. In other DANZIG news, the group's first full live CD, entitled Live On The Black Hand Side (featuring two hours of live DANZIG material from 1992, 1994 and 2000), will be in the stores on April 24th. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 06.02.2002 news DANZIG восславил имя Люцифера...
+
+<p>Глен Данциг выбрал название для своего седьмого по счету альбома - "I Luciferi". Выйдет сие чудо в апреле на Spitfire Records. Уточненный трек-лист: <BR><BR> 01. Black Mass<BR> 02. Kiss The Skull<BR> 03. Dead Inside<BR> 04. God Of Light<BR> 05. Angel Blake<BR> 06. Wicked Pussycat<BR> 07. Halo Goddess Bone<BR> 08. The Coldest Sun<BR> 09. Dying Serph<BR> 10. Dark Secret Side<BR> 11. Soul Eater<BR> 12. Malefical Bride of Hell<BR> 13. LiberSkull<BR> 14. Naked Witch <BR></p>
+
+Автор: Yermola
+
+### 06.02.2002 news DANZIG Set Title, Tentative Release Date For New CD ...
+
+<p>DANZIG have set Danzig 7: I Luciferi as the title of their forthcoming CD, the group's first under a multi-album agreement with Spitfire Records. Set for an April release, the album will reportedly feature “a color blurry close-up photo of the band on the cover where Glenn is wearing his new black elbow-length gloves with razor sharp nails”. As previously reported, the provisional—albeit not yet officially confirmed—track listing for Danzig 7: I Luciferi is as follows: <BR><BR> 01. Black Mass<BR> 02. Kiss The Skull<BR> 03. Dead Inside<BR> 04. God Of Light<BR> 05. Angel Blake<BR> 06. Wicked Pussycat<BR> 07. Halo Goddess Bone<BR> 08. The Coldest Sun<BR> 09. Dying Serph<BR> 10. Dark Secret Side<BR> 11. Soul Eater<BR> 12. Malefical Bride of Hell<BR> 13. LiberSkull<BR> 14. Naked Witch <BR></p>
+
+Автор: Yermola
+
+### 29.05.2002 news MARDUK w&#x2F; Danzig....
+
+<p>6/1 Celebrity Theater- Phoenix, AZ <BR> 6/2 Sunshine Theater- Albequerque, NM<BR> 6/4 Far West Rodeo - El Paso, TX<BR> 6/6 Party On The Patio- Corpus Christi, TX<BR> 6/7 Sunset Station - San Antonio, TX<BR> 6/8 Canyon Club - Dallas, TX<BR> 6/10 House Of Blues - New Orleans, LA<BR> 6/14 Ovation - Boynton Beach, FL<BR> 6/15 House Of Blues - Orlando, FL<BR> 6/16 Marquee Theater - Jacksonville, FL<BR> 6/18 Roxy Theater- Altanta, GA<BR> 6/21 Nation - Washington, D.C.<BR> 6/22 Electric Factory - Philadelphia, PA<BR> 6/23 Boathouse - Norfolk, VA<BR> 6/25 The Vanderbilt - Plainview, NY<BR> 6/26 Webster Theater - Hartford, CT<BR> 7/12 State Theater - Detroit, MI<BR> 7/13 Bogart's - Cincinnati, OH<BR> 7/15 House Of Blues - Chicago, IL<BR> 7/17 The Rave - Milwaukee, WI<BR></p>
+
+Автор: Yermola
+
+### 22.07.2002 reviews Много шума из ничего
+
+<p>Хорошо быть сатанистом от музыки. Можно петь что угодно, как угодно, музицировать с горем пополам – а как только окажешься в зоне поражения критики, смело обвиняй всех недовольных и несогласных в следовании банальным библейским ценностям и непонимании истиной красоты искусства. </p>
+<p>Видимо, этим рецептом в ближайшем будущем будет пользоваться и Гленн Данциг. Повод к тому создан блестящий – новый альбом получился столь низкого качества, что говорить о нем не хочется вовсе. Единственное, что хоть немного впечатляет – вступление, записанное в лучших традициях музыкальной мистики, задом наперед. Все прочее только удручает, а ближе к финалу диск и вовсе хочется разбить. </p>
+<p>Очевидно, Гленн Данциг, обладатель волшебного голоса, напоминающего Джима Моррисона, вернувшегося из ада, решил, что его обаяния и прежних заслуг хватит не только на создание порно-буклета к диску, но и на кошельки старых поклонников. И потому напрочь забыл об аранжировке, мелодиях и музыке вообще. Вот вам коробочка, вот вам порно-буклет на темы садо-мазохизма. Все. Если очень надо – вставьте диск куда-нибудь. Можно в проигрыватель. А лучше назад, на магазинную полку. Вас обманули – вместо драйва, настоящего колдовства, мурашек по коже и страха, которые Гленн раньше умудрялся загонять в каждую свою песню, здесь сплошная идеология и перевернутые кресты. Оно вам надо? Придержите ваши денежки для более достойных творений.</p>
+
+Автор: Tornado
+
+### 19.11.2002 reviews A disaster...
+
+<p>What the fuck is this?!?! Where’s Glenn’s inimitable voice?! Where’s that thousand times weird yet incredibly fascinating mixture of blues, heavy and gothic metal?! You ask me, what have we got instead?! Well, what we got, is excellent drumming pushed forward in the mix… absolutely incomprehensible guitar passages… Glenn’s bubbling, screaming, yelling and puking somewhere in the background… as well as UTTER lack of good or at least memorable songs. Have they gone mad? Or is it just too much alcohol? Or fucking what?!? A disaster…</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 14.04.2004 news DANZIG выпускает новый альбом
+
+<P>Новый альбом <B>DANZIG</B> выйдет в мае-июне на <B>Regain Records</B>. Приблизительный трэк-лист:</P>
+<P>01. <B>Skincarver</B><BR>02. <B>1000 Devils Reign</B><BR>03. <B>Netherbound</B><BR>04. <B>Circle of Snakes</B><BR>05. <B>When We Were Dead</B><BR>06. <B>Black Angel, White Angel</B><BR>07. <B>Skull Forrest</B><BR>08. <B>Hellmask</B><BR>09. <B>My Darkness</B></P>
+Автор: Vit Belov
+
+### 08.07.2004 news Новый альбом DANZIG выходит в конце лета
+
+<P>31 августа - дата релиза нового альбома <B>DANZIG</B> '<B>Circle of Snakes'. </B>Трэк-лист:</P>
+<P>01. <B>Skincarver</B> <BR>02. <B>1000 Devils Reign</B> <BR>03. <B>Netherbound</B> <BR>04. <B>Circle Of Snakes</B> <BR>05. <B>When We Were Dead</B> <BR>06. <B>Black Angel, White Angel</B> <BR>07. <B>Skull Forrest</B> <BR>08. <B>Hellmask</B> <BR>09. <B>My Darkness</B> <BR></P>
+Автор: Vit Belov
+
+### 16.08.2004 news В Японии выпустят игрушку DANZIG
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=155 alt="" hspace=0 src="/images/news_rus/2004.08/6925.jpg" width=100 align=left border=5><IMG height=154 alt="" hspace=0 src="/images/news_rus/2004.08/6926.jpg" width=100 align=right border=5>Японская компания <STRONG>Medicom Toys</STRONG>&nbsp;объявила о скором выпуске игрушки, посвящённой легендарному вокалисту <STRONG>Glenn Danzig</STRONG> под названием <STRONG>"3 Faces Of Danzig". </STRONG>Три разных образа панк-вокалиста будут запечатлены в виниловых фигурках.</FONT></P>
+Автор: Vit Belov
+
+### 22.02.2005 news Ре-Юнион MISFITS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Во время трёх шоу <STRONG>DANZIG </STRONG>в течение его турне по США к нему присоединится бывший коллега по <STRONG>MISFITS Doyle</STRONG>. Таким образом, коллектив исполнит 30-минутный сэт классики легендарной punk-rock команды.</FONT></P>
+Автор: Vit Belov
+
+### 03.05.2009 news DANZIG в студии
+
+<P>Вокалист <STRONG>Glenn Danzig</STRONG>&nbsp;находится в студии, где работает над новым альбомом, который должен выйти до конца года. Вместе с ним в записи принимают участие барабанщик <STRONG>Johnny Kelly</STRONG> (<B>TYPE O NEGATIVE</B>, <B>SEVENTH VOID</B>)&nbsp;и гитарист <STRONG>Tommy Victor</STRONG> (<B>PRONG</B>, <B>MINISTRY</B>).</P>
+Автор: Vit Belov
+
+### 23.02.2010 news DANZIG назвал альбом
+
+<P>Новый альбом<STRONG> DANZIG</STRONG> будет называться <STRONG>"Deth Red Sabaoth". </STRONG>В записи пластинки примут участие <STRONG>Johnny Kelly</STRONG> (<B>TYPE O NEGATIVE</B>, <B>SEVENTH VOID</B>) и <B>Tommy Victor</B> (<B>PRONG</B>, <B>MINISTRY</B>).</P>
+Автор: Vit Belov
+
+### 31.05.2010 news Новая песня DANZIG
+
+<P>22 мая на <STRONG>End Records</STRONG> выходит новый альбом <STRONG>DANZIG</STRONG> <STRONG>"Deth Red Sabaoth". </STRONG>Песню с этой пластинки <STRONG>"On a Wicked Night" </STRONG>можно послушать ниже.</P>
+<P>В недавнем интервью<STRONG> Glenn</STRONG> сообщил, что хочет с этим альбомом вернуться в прошлое. Новая песня демонстрирует отход музыканта от industrial кошмара, в котором он пребывал несколько последних альбомов.</P>
+<P>
+<CENTER>
+<OBJECT height=100 width=400 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="10583"><PARAM NAME="_cy" VALUE="2646"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://bandcamp.com/EmbeddedPlayer.swf/track=2578901635/size=venti/bgcol=0b0a0a/linkcol=bb425f/"><PARAM NAME="Src" VALUE="http://bandcamp.com/EmbeddedPlayer.swf/track=2578901635/size=venti/bgcol=0b0a0a/linkcol=bb425f/"><PARAM NAME="WMode" VALUE="Transparent"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="never"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="0B0A0A"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="false">
+<embed src="http://bandcamp.com/EmbeddedPlayer.swf/track=2578901635/size=venti/bgcol=0b0a0a/linkcol=bb425f/" width="400" height="100" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer" quality=high allowScriptAccess=never allowNetworking=always wmode=transparent bgcolor=#0b0a0a ></embed><noembed><a href="http://theendrecords.bandcamp.com/track/danzig-on-a-wicked-night-radio-edit-2">Danzig - On A Wicked Night (Radio Edit) by The End Records</a></noembed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.07.2010 news DANZIG прогрессирует
+
+<P>Новый альбом<STRONG> DANZIG</STRONG> <STRONG>"Deth Red Sabaoth" </STRONG>попал в чарты <STRONG>Billboard</STRONG> на 35-ое место. Пластинка продалась в количестве 11700 экземпляров. Между тем предыдущая работа бывшего вокалиста <STRONG>MISFITS</STRONG> не смогла достигнуть отметки 7000 копий.</P>
+<P>На новом альбоме<STRONG> Glenn</STRONG> решил вернуться к корням, и это дало результат.</P>
+<P>Новая работа <STRONG>DANZIG</STRONG> анонсирована к отечественному релизу на<STRONG> Союзе</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.08.2010 reviews DANZIG возвратился к нормальной музыке
+
+<P>Оригинальный вокалист MISFITS Glenn Danzig фигура не менее культовая, чем Ozzy Osbourne, Rob Zombie или Alice Cooper. Все эти люди ковали историю тяжёлой музыки, не замыкаясь на определённых стилях и направлениях. Они просто сочиняли и сочиняют материал с тяжёлой гитарой, который может быть разным по качеству, но в случае удачи эти персонажи не оставляют равнодушных к себе в среде поклонников подобной музыки.</P>
+<P>Danzig не столь известен в нашей стране как другие вышеупомянутые артисты, и этому есть несколько причин. Во-первых, не самая большая любовь населения к классическому punk-rock. MISFITS, наряду c THE RAMONES, настоящие легенды популярной музыки в США, у нас же к ним относятся достаточно сдержанно, если не сказать холодно. Во-вторых, сам певец в своём творчестве довольно резко отошёл от традиций horror-punk, которые проповедовал в составе MISFITS. Его музыка, в классические для сольной карьеры времена, представляла собой скорее тяжёлометалический doom-rock&nbsp; с примесью blues-rock. Безусловно, под такую музыку невозможно подогнать кучу поклонников определённого стиля, а ведь именно подобный подход часто используют наши лэйблы, да и наши потребители тоже. Мне посчастливилось любить MISFITS и оценить творчество их вокалиста, не причисляя его к какому-либо определённому любимому мною стилю. Этот неповторимый голос, размеренная, достаточно простая, но «качёвая» музыка сразу запали мне в душу. К сожалению, до недавнего времени DANZIG экспериментировал со звучанием, но на новой работе “Deth Red Sabaoth” он покончил с этим и обрёл вторую жизнь как сольный артист.</P>
+<P>Альбом нельзя назвать чем-то особенным. Более того, он несколько затянут, но если вы являетесь поклонником именно Glenn Danzig, пропускать эту пластинку вы просто не имеете права.</P>
+Автор: Vit Belov
+
+### 29.09.2010 news DANZIG &quot;Deth Red Sabaoth&quot; на виниле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17282.jpg" width=250 height=250>9 ноября ограниченным тиражом выходит последний альбом <B itxtvisited="1">DANZIG</B> <STRONG>"Deth Red Sabaoth" </STRONG>в формате 12" винила. Чёрный винил будет выпущен в количестве&nbsp;2,000 экземпляров, а красный - в количестве 1,000. Пластинка уже доступна для предзаказа: <A href="http://www.theomegaorder.com/danzig">http://www.theomegaorder.com/danzig</A></P>
+<P>Альбом <STRONG>"Deth Red Sabaoth" -</STRONG> первый релиз группы за шесть лет, был реализован в количестве 11,700 в первую неделю продаж в С.Ш.А. и занял 35 место в чарте <STRONG>The Billboard 200</STRONG>.</P>
+Автор: Headcrusher
+
+### 27.06.2011 news Glenn Danzig отыграет историческое шоу
+
+<P>7 октября в Чикаго в рамках <STRONG>Riot Fest</STRONG> состоится историческое выступление вокалиста<STRONG> Glenn Danzig</STRONG>. Музыкант отыграет специальных сэт, состоящий из песен трёх групп, в которых он принимал участие - <STRONG>SAMHAIN, MISFITS</STRONG> и<STRONG> DANZIG</STRONG>. Во время выступления с песнями<STRONG> MISFITS</STRONG> к <STRONG>Glenn </STRONG>присоединится гитарист <STRONG>MISFITS</STRONG> <STRONG>Doyle Von Frankenstein.</STRONG></P>
+<P>Последний альбом <STRONG>DANZIG "Deth Red Sabaoth" </STRONG>вышед 22 мая на <STRONG>End Records</STRONG>. В России его издал <STRONG>Союз</STRONG>.</P>
+<P><center><IMG height=398 src="/images/news_rus/2011.06/19758.jpg" width=480 border=0></P>
+Автор: Vit Belov
+
+### 19.03.2013 news David Vincent, Max Cavalera, Glenn Danzig в фильме о порно актрисе Ванессе дель Рио
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25550.jpg" width=350 height=469>David Vincent </STRONG><EM>(на фото)</EM>,&nbsp;басист и вокалист группы <STRONG>MORBID ANGEL</STRONG>, снимается в полнометражной картине с длинным названием&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, рассказывающей захватывающую историю жизни легендарной актрисы фильмов для взрослых Ванессы дель Рио (<STRONG>Vanessa del Rio</STRONG>). Участие в этом фильме станет кинодебютом для Винсента.</P>
+<P>Лидер <STRONG>SOULFLY</STRONG>, <STRONG>Max Cavalera</STRONG>, работает над музыкой к киноленте, тогда как <STRONG>Glenn Danzig</STRONG> согласился сняться в ней в роли жестокого бандита.</P>
+<P>Режиссёром и сценаристом фильма выступил <STRONG>Thomas Mignone</STRONG>, больше всего известный&nbsp;по своей предыдущей картине <STRONG>"On The Doll"</STRONG>,&nbsp;а также за создание&nbsp;музыкальных клипов, получивших различные награды.&nbsp;</P>
+<P>Главный актёр сереала <STRONG>"The Walking Dead"</STRONG>, Майкл Рукер (<STRONG>Michael Rooker</STRONG>),&nbsp;описал картину&nbsp;&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, как фильм <STRONG>"Ночи В Стиле Буги"</STRONG> ("Boogie Nights") встречается с<STRONG> </STRONG>фильмом <STRONG>"Таксист"</STRONG> ("Taxi Driver").</P>
+Автор: Headcrusher
+
+### 18.08.2014 news DANZIG перепоёт Элвиса
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.08/27205.jpg" width=304 height=401>Бывший фронтмен <STRONG>THE MISFITS</STRONG> и <STRONG>SAMHAIN</STRONG>, <STRONG>Glen Danzig</STRONG>, сообщил сегодня на своей странице в соц. сети <A href="http://www.facebook.com/Danzig">Facebook</A>, что уже неделю работает над миньоном, на котором он исполнит песни Элвиса Пресли. Диск получил название <STRONG>"Danzig Sings Elvis"</STRONG>. Дата выхода и другие подробности, пока, не известны.</FONT></P>
+<P>Раньше <STRONG>Danzig</STRONG> уже обращался к творчеству "Короля Рок-н-Ролла". Для своего миньона 1993 года <STRONG>"Thrall-Demonsweatlive"</STRONG> он записал песню <STRONG>"Trouble"</STRONG> из его репертуара.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом <STRONG>DANZIG</STRONG>, под названием <STRONG>"Dethred Sabaoth"</STRONG>, увидел свет в июне 2010.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальный сайт артиста: <A href="http://www.danzig-verotik.com/">www.danzig-verotik.com</A></FONT></P>
+Автор: Headcrusher
+
+### 09.08.2016 news DANZIG выпускает сборник
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>DANZIG</strong> выпустит сборник нереализованного материала "<strong>The Lost Tracks Of Danzig</strong>". На два CD попадут 26 треков, которые записывались в разное время, но не попали на студийные альбомы музыканта. В этом году он их доработал и выпустит на <strong>AFM</strong> отдельным изданием.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>CD 1: <br>01. Pain Is Like An Animal <br>02. When Death Had No Name <br>03. Angel Of The 7th Dawn <br>04. You Should Be Dying <br>05. Cold, Cold Rain <br>06. Buick McKane <br>07. When Death Had No Name <br>08. Satan's Crucifiction <br>09. The Mandrake's Cry <br>10. White Devil Rise <br>11. Come To Silver (Acoustic Version) <br>12. Deep <br>13. Warlock </p><p>CD 2: <br>01. Lick The Blood Off My Hands <br>02. Crawl Across Your Killing Floor <br>03. I Know Your Lie <br>04. Caught In My Eye <br>05. Cat People <br>06. Bound By Blood <br>07. Who Claims The Souless <br>08. Malefical <br>09. Soul Eater <br>10. Dying Seraph <br>11. Lady Lucifera <br>12. Under Belly Of The Beast <br>13. Unspeakable (Shango Mix)</p><p><center><img width="450" height="450" src="/images/news_rus/2016.08/29783.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 09.08.2016 news DANZIG will release a collection of unreleased material 
+
+<p><strong>DANZIG</strong> will release a collection of unreleased material "<strong>The Lost Tracks Of Danzig</strong>". Two CDs will include of 26 tracks that were recorded at different times, but didn't get on studio albums. This year he recorded and will release them on<strong> AFM</strong> as a separate album.</p><p>"<em>Whenever I've made a new album, I've recorded more songs than were needed for the final CD," said Glenn Danzig. "The songs that make it onto the final album 'fit' or 'flow' together as a whole. Consequently, some tremendous DANZIG songs have never been released, not because they weren't great, but because they didn't fit the overall vibe of the particular album, or for other reasons</em>." </p><p>When Glenn began the "Lost Tracks" project, the songs were in various stages of completion — some were still in demo form, some had no vocals, some needed a different mix, a new bass or guitar track, or some other type of tweaking. So, after spending months tracking down and reviewing the original tapes, Glenn entered the studio and completed the tracks, handling the vocals and&nbsp; finishing all instrumental recording himself. </p><p>Track list:</p><p>CD 1: <br>01. Pain Is Like An Animal <br>02. When Death Had No Name <br>03. Angel Of The 7th Dawn <br>04. You Should Be Dying <br>05. Cold, Cold Rain <br>06. Buick McKane <br>07. When Death Had No Name <br>08. Satan's Crucifiction <br>09. The Mandrake's Cry <br>10. White Devil Rise <br>11. Come To Silver (Acoustic Version) <br>12. Deep <br>13. Warlock </p><p>CD 2: <br>01. Lick The Blood Off My Hands <br>02. Crawl Across Your Killing Floor <br>03. I Know Your Lie <br>04. Caught In My Eye <br>05. Cat People <br>06. Bound By Blood <br>07. Who Claims The Souless <br>08. Malefical <br>09. Soul Eater <br>10. Dying Seraph <br>11. Lady Lucifera <br>12. Under Belly Of The Beast <br>13. Unspeakable (Shango Mix)</p><p><center><img width="450" height="450" src="/images/news_rus/2016.08/29783.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 30.08.2016 news Dave Lombardo выступит с Original MISFITS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Мы уже сообщали, что<strong> Glenn Danzig</strong> и <strong>Jerry Only</strong> объединились вновь под вывеской <strong>MISFITS</strong>, чтобы дать несколько концертов в сентябре. Сегодня объявлено, что за барабанной установкой мы увидим <strong>Dave Lombardo</strong> (ex-SLAYER).</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="414" height="640" src="/images/news_rus/2016.08/29882.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 30.08.2016 news Dave Lombardo will play with original MISFITS
+
+<p>We reported that <strong>Glenn Danzig</strong> and <strong>Jerry Only</strong> joined again under the label of <strong>MISFITS </strong>to give several concerts in September. Today announced that on the drum kit we will see<strong> Dave Lombardo</strong> (ex-SLAYER).</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="414" height="640" src="/images/news_rus/2016.08/29882.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Danzig &quot;Archive De La Morte&quot; - кто видел?

@@ -155,6 +155,39 @@ Layout By Michael Rocchio
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.01.2010 news Переиздание D.R.I. &quot;Crossover&quot;
+
+<P><STRONG>Beer City Records</STRONG>&nbsp; планируют переиздать классический альбом <STRONG>D.R.I. "Crossover"</STRONG>. Дата выпуска намечена на 13 апреля.&nbsp;<STRONG>"Crossover"</STRONG> будет доступен на виниле, компакт диске,&nbsp;а так&nbsp;же, в&nbsp;цифровом формате. Пластинка была ремастирована <STRONG>Bill Metoyer</STRONG>,&nbsp;кто был инженером на&nbsp;оригинальной записи.&nbsp;Компакт диск и цифровой формат переиздания будут включать в себя, помимо 13 оригинальных песен, 11 бонус треков.&nbsp;</P>
+<P><IMG height=336 alt="" hspace=0 src="/images/news_rus/2010.01/16032.jpg" width=336 align=right border=0>Трек-лист:</P>
+<P>01. <STRONG>The Five Year Plan</STRONG><BR>02. <STRONG>Tear It Down <BR></STRONG>03. <STRONG>A Coffin</STRONG> <BR>04. <STRONG>Probation</STRONG> <BR>05. <STRONG>I.D.K.Y.</STRONG> <BR>06. <STRONG>Decisions</STRONG> <BR>07. <STRONG>Hooked</STRONG> <BR>08. <STRONG>Go Die<BR></STRONG>09. <STRONG>Redline</STRONG> <BR>10. <STRONG>No Religion <BR></STRONG>11. <STRONG>Fun And Games</STRONG><BR>12. <STRONG>Oblivion </STRONG><BR>13. <STRONG>Outro</STRONG> <BR>14. <STRONG>The Five Year Plan</STRONG> (Live At the Ritz) <BR>15. <STRONG>Redline</STRONG> (Live At the Ritz)<BR>16. <STRONG>Fun And Games</STRONG> (Live At the Ritz)<BR>17. <STRONG>Tear It Down</STRONG> (Live At the Ritz)<BR>18. <STRONG>Probation</STRONG> (Live At the Ritz)<BR>19. <STRONG>Go Die</STRONG> (Live At the Ritz)<BR>20. <STRONG>The Five Year Plan</STRONG> (Demo) <BR>21. <STRONG>Fun And Games</STRONG> (Demo) <BR>22. <STRONG>Kurt</STRONG> (Interview) <BR>23. <STRONG>Spike</STRONG> (Interview)<BR>24. <STRONG>Josh and Felix</STRONG> (Interview)<BR></P>
+Автор: Headcrusher
+
+### 25.03.2013 news Подробности дебютного альбома от PASADENA NAPALM DIVISION
+
+<P><STRONG>PASADENA NAPALM DIVISION</STRONG> -&nbsp;группа, базирующаяся в американском городе Хьюстон, в состав которой входит&nbsp;<STRONG>Kurt Brecht</STRONG>, вокалист <STRONG>D.R.I.</STRONG>,&nbsp;а также участники группы <STRONG>DEAD HORSE</STRONG>, выпускают свой дебютный альбом&nbsp;21 мая на <STRONG>Minus Head Records</STRONG>.</P>
+<P>На диск вошло 13 песен, а его запись происходила в студии <STRONG>Music Lab</STRONG> города Остин. Гостями на альбоме стали вокалисты <STRONG>Tony Foresta</STRONG> (<STRONG>MUNICIPAL WASTE</STRONG>) и <STRONG>Michael</STRONG> <STRONG>Argo</STRONG> (<STRONG>DEAD HORSE</STRONG>).</P>
+<P>Помимо прочего, <STRONG>Foresta</STRONG> помог в написании одного текста, который никак не поддавался Брехту.</P>
+<P><EM>"Поклонники<STRONG> D.R.I.</STRONG> и <STRONG>DEAD HORSE</STRONG> будут обрадованны выходом альбома. <STRONG>P.N.D.</STRONG> - это то, как должен звучать thrash metal в 2013 году," </EM>-&nbsp;делится своими мыслями <STRONG>Brecht</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.03/25569.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 08.05.2013 news PASADENA NAPALM DIVISION: &quot;100 Beers With A Zombie&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Kurt Brecht</STRONG> (<STRONG>D.R.I.</STRONG>) со своими друзьями из <STRONG>PASADENA NAPALM DIVISION</STRONG>, презентовали трек под названием <STRONG>"100 Beers With A Zombie"</STRONG>, который выйдёт на их дебютном альбоме в конце мая.</FONT></P>
+<CENTER><IFRAME height=166 src="https://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F88624762" frameBorder=no width="100%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 03.09.2013 news PASADENA NAPALM DIVISION: видеоклип &quot;100 Beers With A Zombie&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Свежее видео от неувядающего Курта Брехта (<STRONG>Kurt Brecht</STRONG>) и его новой шайки под названием <STRONG>PASADENA NAPALM DIVISION</STRONG> смотрим ниже!</FONT></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/zRTUP4Sdoog?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Drrrive

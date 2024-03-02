@@ -147,6 +147,86 @@ Drums and percussion by Knut Aalefj&aelig;r on tracks 2, 3, 4 and 5 / Additional
 
 * C группой "Emperor" Ihsahn
 
+## Публикации
+
+### 16.02.1999 reviews Неплохая микстура...
+
+<P>В последнее время появилась уйма групп, музыка которых не поддаётся никакой классификации, слишком много там всего намешано из разных стилей и направлений металлической музыки. Просто микстура какая-то. Хотя, надо признать, что у многих получается очень даже неплохая микстура. Одна из таких групп - PECCATUM - проект вокалиста-гитариста группы EMPEROR Ihsahn'a. Альбом соединяет в себе элементы симфоничного black metal, классического heavy metal и традиционного gothic-doom metal. Ну как вам такая мешанина. Лично мне, это показалось вполне слушабельным. Разнообразие вокалов (блэковый, гроулинг, простой мужской, простой женский и речитативный), интересные гитарные ходы, смена скоростей - всё это не позволит скучать вам во время прослушивания альбома этих норвежцев.</P>
+Автор: Vit Belov
+
+### 23.02.1999 news 
+
+<p>Emperor отправляются в европейский тур вместе с Limbonic Art, Morbid Angel, The Crown, Absu и Peccatun.</p>
+
+Автор: Vit Belov
+
+### 16.03.1999 reviews 
+
+<p>Peccatum есть ничто иное, как side проект Ihsahn'a (Emperor, кто не знает), его жены Ihriel и брата Lord PZ. Проект был запущен и стилизован Ihsahn'ом специально для его жены, профессиональной вокалистки. Я, честно говоря, ожидал второго Emperor'a с женским вокалом и бОльшим количеством синтезированных звуков. То, что в конце концов было издано под названием "Strangling From Within", превзошло все мои ожидания в плане оригинальности и новаторства. Ihsahn объясняет концепцию проекта, как попытку вырваться за рамки, предписанные стилем Black Metal. Как бы божественнен не был Emperor, он всё равно скован некими правилами и постулатами стиля. Все те мириады звуков и гармоний, задвинутые на задний план в Emperor, нашли свою индивидуальность в музыке Peccatum. Музыка Peccatum, содержащая экстракт атмосферы и эмоций, являет собой устойчивый баланс между реальностью и подсознанием. Элементы Black metal, классики, dark wave и оперы сплетены здесь в единый симфонический вихрь театрального представления, но нельзя найти даже намека на помпезность. По вокальной части Peccatum можно было бы написать отдельное ревью. Особенно заслуживает внимание классический профессиональный оперный вокал Ihriel. Также заметен значительный прогресс в вокале Ihsahn'a, который выдает даже классические даймондовские фальцетные вопли. Но всё же главное достоинство альбома состоит в классико-ориентированных частях. Именно им Peccatum обязан своей оригинальностью.</p>
+
+Автор: Dimas
+
+### 23.08.1999 news 
+
+<p>Emperor готовят новое видео, в которое войдут записи с концерта в Асстории в Лондоне, а также записи из жизни музыкантов между концертами. Видео выйдет в конце года. Candlelight Records переиздаст последний альбом группы "IX Equillibrium". На него войдут несколько различных версий песен. Например, Трикстер Джи (Ulver, Arcturus) работает над ремиксом песни "Sworn". Для наших фэнов будет интересно, что группа выступит на фестивале в Польше 9 октября вместе с Peccatum, Limbonic Art, Hypocrisy, The Kovenant (новое название Covenant). Концертный клавишник Emperor Шарман Гримлох выпусти свой сольный альбом "The Red Jewel" в сентябре.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Peccatum вошли в студию для записи миньона. На нём будет кавер песни Judas Priest "Blood Red Skies". После этого начнётся запись нового полного альбома.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Thou Shalt Suffer новый сольный проект Исана из Emperor. Альбом этой группы выйдет в феврале. Новый же альбом Pecattum "Oh My Regrets" выйдет в апреле.</p>
+
+Автор: Vit Belov
+
+### 13.08.2000 news Скоро выходит новый альбом Peccatum.
+
+<p> Второй полноразмерный опус Peccatum "Amor Fati" будет выпущен на Candlelight Records 29 сентября 2000 года. Как ожидается, это будет огромный шаг вперед для группы. Каждый отдельный аспект творчества Peccatum увеличен и развит до невероятного уровня. Вокальные партии Ihriel и Lord PZ создают формы, превосходящие любой жанр, а игра гитары Ihsahn, кажется, находит новые измерения, которые удивят многих, в то время как навеянные классикой фрагменты дают поразительное представление о разнообразных направлениях музыкальной вселенной.</p>
+
+Автор: Morsus
+
+### 13.08.2000 news Peccatum new album will be released soon.
+
+<p> Peccatum second full length opus "Amor Fati" will be released through Candlelight Records in 29 September 2000. As expect it will a huge step forward for the band. Every single aspect of Peccatum art is here enhanced and developed to an unforeseen level. Ihriel and Lord PZ's vocal lines project designs and shapes that transcend any genera, and Ihsahn's guitar playing seems to have found new dimensions that will surprise many while classic-influenced pieces give a breath-taking glimpse to a different musical universe.</p>
+
+Автор: Morsus
+
+### 22.11.2000 reviews Это что-то жутко невообразимое...
+
+<p>Это что-то жутко невообразимое... Готическо-инфернальный, симфоническо-психопатический metal с примесью avantgarde-music. Оригинальнейший материал вводящий в ступор. Слишком давят на мозг психоделические вокальные эксперименты. От этой музыки можно было бы сойти с ума, если бы не чувственная симфоническая поддержка и превосходные классические интерлюдии подкрепляемые нежным сопрано. Очень рваные гитарные риффы и мужские вокальные изыскания заставляют дрожать и трепетать. Настоящая адская симфония! По сравнению с первым альбомом, здесь не наблюдается даже малейших экскурсий в black-metal. Музыка для тех, кто находится между жизнью и смертью. Слишком большой уклон в прогресс. Трудно выдержать. Лично мне дебют понравился поболее. Но любители сумасшедшей депрессивной музыки будут в восторге.</p>
+
+Автор: Dimas
+
+### 28.08.2002 news Insahn трудится над релизом Peccatum...
+
+<p>Insahn начал работу над новым альбомом Peccatum: "Ihriel только что закончила запись своего сольного проекта, который называется Star Of Ash, альбом "Iter. Viator." выйдет в начале октября на Jester Records. Музыка является помесью classical, pop, rock, jazz, electronic... Это очень атмосферный и необычный материал. Теперь же мы начинаем работу над альбомом Peccatum. Неизвестно, когда и как всё это получится. У нас много новых идей и влияний, посмотри, что из этого выйдет"...</p>
+
+Автор: Yermola
+
+### 28.08.2002 news New Peccatum album ....
+
+<p>Ihsahn has started working on the new Peccatum album. Here's an update: "Ihriel is just about finished with her solo album. It's called STAR OF ASH and the album will be called Iter.Viator. This will be released on Jester Records in early October. It's a bit hard to describe musically, but it has touches of classical, pop, rock, jazz, electronic... it's very atmospheric and definitely something out of the ordinary. Personally, I am absolutely thrilled! So now we’re starting the work with the next Peccatum album. It is impossible to say when and how this will turn out but we are all very excited about it and I think we have a lot of new ideas and influences that we look forward to trying out."</p>
+
+Автор: Yermola
+
+### 28.02.2004 news Peccatum выпускают новый альбом
+
+<P><B>Insahn</B> закончил запись нового альбома <B>PECCATUM</B>. Он будет называться "<B>Lost In Reverie</B>" и выйдет на его собственном лэйбле <B>Mnemosyne Productions.</B> </P>
+<P>Трэк-лист:</P>
+<P><B>'Desolate Ever After', 'In The Bodiless Heart', 'Parasite My Heart', 'Veils Of Blue', 'Black Star', 'Stillness',&nbsp;и 'The Bands Of This River Is Night'.</B><BR></P>
+Автор: Vit Belov
+
+### 08.03.2006 news PECCATUM больше не существует
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Insahn (ex-EMPEROR)</STRONG> и его жена<STRONG> Ihriel</STRONG> прекратили деятельность своего проекта <STRONG>PECCATUM</STRONG>.<STRONG> Insahn</STRONG> работает над своим сольным альбомом, а <STRONG>Ihriel</STRONG> участвует в проекте <STRONG>STAR OF ASH</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -69,6 +69,21 @@ Robert Baum: session drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2000 reviews The day replaces night
+
+<p>The day replaces night. You see as it happens. This group at once has liked to me. Maiden her two albums were sustained spirit of atmospheric-gothic death-doom-metal, going in douche and thrilling lodes. And here to thee such... Completely unexpected turn. Though a title would replace that - whether... Now stuff of group represents aggressive - melodious death-black-metal a recalling first album In Flames " Lunar Strain ". Those who likes similar music (and main, to whom else similar music has not bothered) will be in delight after listening. Though be something can was confused, and it is true absolutely other group?</p>
+
+Автор: Dimas
+
+### 14.01.2002 reviews Альбом для любителей помечтать
+
+<p>Альбом для любителей помечтать. Третья полноформатная работа австрийских музыкантов содержит все тот же мелодичный атмосферный doom-death материал, который мне всегда нравился, но с явными признаками облегчения и более энергичного. Есть как медленно-меланхоличные композиции, так и быстрые, с налетом легкой печали и погружающие в мечтательное настроение. Стало больше использоваться чистых и слегка придушенных харизматических вокалов. Богатая клавишная атмосфера и более мелодичные гитары, чем на предыдущих альбомах. Все это немного напоминает Crematory и Tiamat периода расцвета. Альбом очень разнообразен. Жанровая стилистика простирается от doom-death до gothic metal. Музыка полна эмоций и чувств, сделана от души. Очень крепкий продукт вышедший на маленьком, почти неизвестном турецком лэйбле. Кстати, следом за этим альбомом, группа выпустила еще один, который называется "Out Of The Moment" и содержащим ранние демо-записи группы. Надеюсь, что следующий альбом группы не придется ждать так долго, как "Eidolon".</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

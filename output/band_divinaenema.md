@@ -55,6 +55,81 @@ EPILOGUE
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.08.2001 reviews Подслушанное на тайной вечере
+
+<p>Подслушанное на тайном совещании. Не больше и не меньше, как ночной кошмар в шести актах. "At The Conclave" - новое творение DIVINA ENEMA, посвященное памяти музыканта Бояна Йовчева (1977 - 2000), который должен был быть одним из участников этой талантливой беларусской команды. "At The Conclave" можно рассматривать как своего рода "диптих" - то есть произведение состоящее из двух дополняющих друг друга частей - части музыкальной и части литературной. Ни одна из этих частей, взятая в отдельности, не дает полного представления о предмете повествования, то есть о данном альбоме. Главная мысль этого материала, да и вообще, основная концепция группы - многое из того, чему быть сотворенным - и впрямь, нам является прежде во сне! И название группы и большинство лирики - все это приснилось музыкантам и они воплощают свои сны в жизнь. Захватывающий концептуальный коктейль всевозможных экстремальных металлических стилей от heavy до black metal потрясает своей мелодикой, красотой и монументальностью. Разнообразие вокалов: тут тебе и скриминг, и чистый мужской, и женский, и даже фальцетный а-ля King Diamond. Превосходные аранжировки, постоянные смены ритма, мрачная клавишная атмосфера, использование скрипок и виолончели придающих музыке эмоциональность и прогрессивность. Неописуемый грандиозный музыкальный спектакль потрясающий размахом и масштабами, а самое главное, качеством выполнения, несмотря на то, что он немного тяжел для восприятия и полон драматизма. Одно из самых неожиданных открытий последнего года пришло к нам из Белоруссии привнеся на современную сцену новизну и оригинальность.</p>
+
+Автор: Dimas
+
+### 04.01.2002 news DIVINA ENEMA signed up a multi album deal ...
+
+<p>DIVINA ENEMA from Minsk, Bielorussia, the band signed up a multi album deal with Great White North America / Grind It! to include the re-issues of their debut CD 'At The Conclave' and their 'Impyre Concord' promo with bonuses as well as the band's third full length album to be recorded in Ausgust 2002...</p>
+
+Автор: Yermola
+
+### 04.01.2002 news DIVINA ENEMA подписали контракт...
+
+<p>Белорусские блэкстеры "DIVINA ENEMA" подписали мульти-альбомную сделку с лэйблом Great White North America / Grind It и переиздадут свой дебютный диск 'At The Conclave', промо 'Impyre Concord', а также выпустят свой новый альбом который будет записан к августу 2002....</p>
+
+Автор: Yermola
+
+### 03.01.2003 news MassaBrutto Radioshow #139, 3 Jan 2003.
+
+<p>Playlist: <BR><BR> 1. MORTIFER - Beggar (Soyuz)<BR> 2. DIVINA ENEMA - Nightmare (Eldritch Music)<BR> 3. AMBASSADOR 21 - Dogma (Invasion Wreck Chords)<BR> 4. LEAD WEIGHT - Omen (CD-Maximum Ltd)<BR> 5. DARK DELIGHT - Neverending Life (band)<BR> 6. VESTIBULUM - Grugan Stogne (band)<BR> 7. IMPRUDENCE - Imprudence (band)<BR> 8. WEEDS IN VOGUE - The Bitchripper (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 03.01.2003 news MassaBrutto Radioshow #139, 3 Jan 2003.
+
+<p>Playlist:<BR><BR> 1. MORTIFER - Beggar (Soyuz)<BR> 2. DIVINA ENEMA - Nightmare (Eldritch Music)<BR> 3. AMBASSADOR 21 - Dogma (Invasion Wreck Chords)<BR> 4. LEAD WEIGHT - Omen (CD-Maximum Ltd)<BR> 5. DARK DELIGHT - Neverending Life (band)<BR> 6. VESTIBULUM - Grugan Stogne (band)<BR> 7. IMPRUDENCE - Imprudence (band)<BR> 8. WEEDS IN VOGUE - The Bitchripper (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 07.02.2003 news MassaBrutto Radioshow #149, 7 Feb 2003.
+
+<p>Playlist: <BR><BR> 1. MISCREANT - Loneliness (Blacksmith Prods)<BR> 2. DIVINA ENEMA - Holy Forever (Eldritch Music)<BR> 3. MIND ECLIPSE - The Unanimated (band)<BR> 4. AMBASSADOR 21 - Revolution Is A Business (Invasion Wreck Chords)<BR> 5. WARKRAFT - Last Dawn (band)<BR> 6. PARTYZONE - Трэба Рабiць! (BMAgroup/Prynamsi Recs)<BR> 7. AEON NOCTIS - Sword Of Time (band)<BR> 8. LEAD WEIGHT - 1000000 Ways (CD-Maximum Ltd)<BR> 9. FOREST STREAM - Legend (Elitist/Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 14.04.2003 news Новости MORE HATE Productions
+
+<p>25 марта 2003 года на More Hate Productions вышел новый диск MIND ECLIPSE "Chaos Chronicles" ярославской блек-металл капеллы. Диск содержит 8 песен отличного, качественного black death metal. Этот альбом еще до реализации его на компакт диске получил отличные рецензии:<BR> - M-Magazine 9/10<BR> - Metal Kings 4/5 <BR> - Musica Mustdie 8/10<BR> - Fatal Forum 9/10 <BR> С этими рецензиями вы можете ознакомиться на сайте группы. Мы лишь присоединяемся к этим отзывам и рады представить вам современный образец Российского black metal движения!</p>
+<p> 30 апреля 2003 группа MIND ECLIPSE примет участие в музыкальном фестивале "SOUNDS FROM THE UNDERCROFT" в Софии (Болгария). Также участвуют: TUMULUS (Россия), KOROZY, DARKMOON RISING (Болгария) и др. группы.</p>
+<p> Другие концерты MIND ECLIPSE:<BR> 18 апреля 2003 - С.-Петербург, клуб "Карфекс" Российский Death Metal фестиваль "БЕЗ НАРКОЗА" участвуют: MORTEM (Москва), РОГАТЫЕ ТРУПОЕДЫ (Москва), MORRAH (С.-Петербург). <BR> 22 апреля 2003 - Ярославль, клуб "Партизан" Презентация нового альбома MIND ECLIPSE "CHAOS CHRONICLES". Также участвуют: ARTEMESIA (Москва), IINEXIST (Ярославль), ETERNAL SIN (Ярославль).</p>
+<p> Подписано соглашение на лицензионное издание нового диска белорусской группы DIVINA ENEMA "Under Phoenix Phenomenon" на More Hate Productions. Данный альбом будет выпущен в России одновременно с датой его официальной реализации на канадском лейбле Great White North Records. Точная дата выхода будет сообщена дополнительно!</p>
+<p> Достигнуто принципиальное соглашение с латвийской группой NEGLECTED FIELDS на лицензионное переиздание в России и СНГ двух альбомов этой культовой death metal команды - "Synthinity" и "Mephisto Lettonica" с дополнительными бонус трэками. Альбомы будут выпущены как совместные релизы More Hate с компанией Metal Agen/Союз. Группа NEGLECTED FIELDS в настоящее время находится в концертном туре по Польше!</p>
+<p> Группа ASHEN LIGHT приглашена на ежегодный интернациональный фестиваль Morbid Fest, проводимый Morbid Records в Германии. Фестиваль состоится 5-6 Сентября 2003 года в EASTCLUB BISCHOFSWERDA (www.east-club.de). Кроме Ashen Light заявлены MANOS, BLOOD, DESASTER, WACO JESUS, PROSTITUDE DISFIGURMENT, DEAD INFECTION, NEURAXIS, THE FLYING LUTTENBACHERS, DESECREATION, также может быть NASUM, SATYRICON, DARK FUNERAL, MERZBOW. More Hate Productions оказывает поддержку участию нашей команды в этой акции!</p>
+<p> Подписан контракт More Hate Productions с группой SMIRNOFF (Германия) на издание их нового альбома "The Deadly Return". Группа играет death grind в духе MACABRE. Точная дата релиза будет сообщена позже.</p>
+<p> Также на More Hate Productions ожидаются в этом году CD <BR> THERM. EYE. FLAME "Spherical" <BR> THERM. EYE. FLAME "The Solar Nebula" <BR> UNCROSSED "Deletio"</p>
+<p> Закончено сведение и мастеринг нового альбома группы DER GERWELT, который носит название "Human breed". Состав группы сейчас включает в себя Alex Duke (ex-ROSSOMAHAAR, ex-TALES OF DARK NORD, STONEHENGE) и Lazar (ROSSOMAHAAR, NARGATHROND, KATAR). Барабанные партии записал постоянный барабанщик группы ROSSOMAHAAR Yanarrdakh. Запись происходила в стенах известной московской студии CDM. Вся лирическая часть выполнена Herr Mathias Stalhammar (ROSSOMAHAAR, NARGATHROND). Музыкальный стиль группы также претерпел существенные изменения, альбом выдержан в стиле жесткого death/black metal без клавишных и прочих атмосферных вкраплений. Диск в СНГ будет выпущен More Hate Productions. На Западе на Profane Records (USA).</p>
+<p> Группа ATOLL NERAT оккупировала R-Line студию и записывает новый альбом. Уже записаны демо-версии двух новых вещей, и работа будет продолжена в ближайшие месяцы!</p>
+
+Автор: Dimas
+
+### 07.06.2003 news Новости More Hate Productions
+
+<p>- 28 мая 2003 года на More Hate Productions/ Sound Age вышел новый лицензионный диск белорусской группы DIVINA ENEMA "Under Phoenix Phenomenon". Таким образом, More Hate Productions начали выпуск своей лицензионной серии. Диск вышел фактически на месяц раньше даты официальной его реализации за рубежом и доступен только жителям СНГ и стран Балтии. Напоминаем, что диск выпущен с оригинальным оформлением, сделанным специально для этой реализации, и в таком виде издаваться на Западе не будет. На этом диске прилагается полный вариант текстовой части альбома, без сокращений и купюр!!! С этим альбомом DIVINA ENEMA безусловно, выходит на новый уровень своего развития, так как такого рода концептуальную и эклектичную смесь музыкальных стилей от death, black, gothic, heavy and progressive metal больше никто не исполняет. Многие слышали их предыдущее творение "At the Conclave", но альбом "Under Phoenix Phenomenon" удивит даже самых искушенных знатоков. Уникальный альбом уникальной группы!</p>
+<p> - Получено разрешение на лицензионное издание нового диска Украинской death grind группы FLESHGORE на More Hate Productions. Данный альбом будет выпущен в России осенью этого года. Официальная реализация состоится на немецкой Metal Blast Records в июне 2003 года. Точная дата выхода лицензионной версии на More Hate Productions будет сообщена дополнительно!</p>
+<p> - Новости из стана ASHEN LIGHT - месяц назад группа отправила в отставку своего вокалиста Отца Сергия по причинам личного свойства, замена ему уже найдена в лице Vallgrim, известного по работе в Московской black metal капелле ЧЕРНОБОГ. Сейчас группа в обновленном составе готовится к выступлению на ежегодном интернациональном фестивале Morbid Fest, проводимом в Германии в сентябре этого года.</p>
+<p> - В начале июня будет выпущен давно обещанный альбом THERM. EYE. FLAME "Spherical", группы исполняющей modernized black metal with true atmosphere of firstborn black metal. Еще до реализации альбом получил массу положительных рецензий в журналах, фэнзинах и Интернет ресурсах. Альбом выйдет с бонусом в качестве видео трэка к одной из композиций. В сентябре - октябре будет выпущен и второй альбом группы THERM. EYE. FLAME "Solar Nebula".</p>
+<p> - В июле на MORE HATE выходит компакт диск немецкой группы SMIRNOFF "The Deadly Return". Альбом состоит из 16 кусков забойного и угарного death grind в духе Macabre.</p>
+<p> - Буквально на прошлой неделе группа DER GERWELT состоящая из Alex Duke (ex-Rossomahaar, ex-Tales of Darknord, Stonehenge) и Lazar from Rossomahaar/ Nargathrond подписала двух альбомный контракт с английской фирмой RAGE OF ACHILLES Records. В августе этого года на RAGE OF ACHILLES Records выйдет альбом "Human breed", записанный в конце прошлого года в стенах известной студии CDM RECORDS/ Москва. Альбом выдержан в стиле жесткого death/black metal, носящего абсолютную атмосферу разрушения. Также достигнуто соглашение MORE HATE с RAGE OF ACHILLES Records на лицензионное издание этого диска в СНГ посредством More Hate Productions, который будет выпущен в августе одновременно с датой официальной реализации. Группа начнет работу над новым альбомом в середине осени этого года.</p>
+<p> - Группа TALES OF DARKNORD заканчивает работу над записью нового полнометражного альбома. В данный момент закончена запись всех инструментов и вокала, в ближайшее время начнется окончательное микширование альбома и мастеринг. Стиль группы значительно изменился в сторону progressive death metal с элементами различных совершенно не металлических стилей. Тем не менее, пре-продукционная запись ряда песен с этого альбома свидетельствует что группа по-прежнему брутальна и пропагандирует death metal! Мы в свою очередь надеемся реализовать этот альбом до конца этого года по мере его окончательного завершения. Название альбома пока не известно. - MORE HATE подписали контракт с death-grind группой из Костромы - BARBARITY. Группа исполняет массивный и очень брутальный death metal в духе IMMOLATION, DERANGED, SOILS OF FATE. Группа известна и тем, что в ее состав входит бывший барабанщик группы MORTIFER Анатолий Чеботарь. В апреле этого года в стенах Black Magic Studio BARBARITY записали полнометражный дебютный альбом "The Wish to Bleed" , состоящий из10 брутально-молотильных тем. Сейчас идет работа над оформлением этого диска и осенью он будет выпущен. Абсолютно незаменимый band для любителей мясца и трупятины! Рекомендуем, не пропустите.</p>
+
+Автор: Dimas
+
+### 04.10.2004 news Новостная лента от More Hate Productions
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новыи релизами волгоградской <STRONG>More Hate Production</STRONG> стали:</FONT></P>
+<P>CD <STRONG>DIVINA ENEMA "To Wight Shalt Never Shine"</STRONG> - переиздание дебютного демо-альбома самого яркого и неординарного явления в Беларуском metal андеграунде<BR>CD <STRONG>RIGORISM "Human Fear"</STRONG> - дебютный пласт симфоничного и монументального death metal из Костромы</P>
+<P>В начале октября на <STRONG>More Hate Productions</STRONG> выходит CD группы <STRONG>ВРАТА ТЬМЫ "Войны Северных Земель",</STRONG> исполняющей атмосферный языческий dark black metal.</P>
+<P>Произошли изменения в составе Московской группы <STRONG>ASHEN LIGHT</STRONG>. Смена коснулась вокалиста, который покинул команду в связи с невозможностью дальнейшего его участия в деятельности коллектива. Тем не менее, почти закончена запись и сведение нового альбома группы, который выйдет в конце года на<STRONG> MORE HATE</STRONG>. Имя нового участника группы будет объявлено в скором времени.</P>
+<P>Подписаны контракты со следующими группами - Краснодарским <STRONG>L.I.G.O.</STRONG> на выпуск альбома "<STRONG>No One Safe</STRONG>". Группа исполняет прогрессивный death metal. Альбом выходит в ноябре 2004 года. С Украинской группой <STRONG>CAPITOLIUM</STRONG> на выпуск второго альбома<BR>"<STRONG>Seraphim's Lair</STRONG>". Группа исполняет симфоничный клавишно-ориентированный black metal, и известна по дебютному альбому "<STRONG>Symphony of Possession</STRONG>", изданному на <STRONG>OUPIRIC Productions</STRONG>. Также в течение года на <STRONG>MORE HATE</STRONG> будет издан компакт диск Беларусской группы <STRONG>ASGUARD "Wicca</STRONG>", готовится к изданию сборник brutal death/ grind core групп в составе <STRONG>BARBARITY</STRONG> (Кострома), <STRONG>KATALEPSY</STRONG> (Москва), <STRONG>SMERSH</STRONG> (Волгоград), <STRONG>POSTHUMOUS BLASPHEMER</STRONG> (Беларусь).</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### DIVINA ENEMA

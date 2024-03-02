@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2009 news Видео PSYOPUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>PSYOPUS</STRONG> <STRONG>"The Burning Halo" </STRONG>с нового альбома <STRONG>"Odd Senses" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/s3Fjy1hdRsA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/s3Fjy1hdRsA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

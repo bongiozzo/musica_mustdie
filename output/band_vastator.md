@@ -46,6 +46,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.01.2012 news Новый альбом THE LIGHT OF DARK
+
+<P><IMG height=383 alt="" hspace=0 src="/images/news_rus/2012.01/22476.jpg" width=400 align=right border=0>Третий альбом мексиканских black-death-metal'истов <STRONG>THE LIGHT OF DARK "World War Satan"</STRONG> доступен к заказу в нашем магазине. Лимитированное (400 копий!!!) издание альбома содержит бонусный DVD с концертными съёмками из тура коллектива по Европе, репетиционные записи&nbsp;и многое другое. Трек-лист:</P>
+<P>1. <STRONG>Sumerian magic</STRONG> <BR>2. <STRONG>Unnatural criminal<BR></STRONG>3. <STRONG>World War Satan<BR></STRONG>4. <STRONG>Patient Zero <BR></STRONG>5. <STRONG>Electronic Voice Phenomena<BR></STRONG>6. <STRONG>Voodoo made Zombies <BR></STRONG>7. <STRONG>Mother Death <BR></STRONG>8. <STRONG>Blaspheme Chaos Destruction</STRONG> <BR>9. <STRONG>Dead child Cry</STRONG></P>
+<P>MP3 Sample: <A href="/ru/band/light_of_dark_the/17803/#samples">http://musica.mustdie.ru/ru/band/light_of_dark_the/17803/#samples</A></P>
+<P>Также&nbsp;другие новые поступления с мексиканского лэйбла <STRONG>American Line</STRONG> (цена всех дисков в нашем магазине 300 рублей):</P>
+<P><STRONG>Toxodeth - Demons Black Metal Demons</STRONG> - Death-metal<BR><STRONG>Galope Mortal / Thrashera - Split CD</STRONG> - Heavy-thrash<BR><STRONG>Thrashgrinder - Seeds of Revolution</STRONG> - Thrash-metal<BR><STRONG>Albatrhoz - La Visiуn de los Profetas</STRONG> - Heavy-metal<BR><STRONG>Abaddon&nbsp;- Abaddon</STRONG> - Heavy-metal<BR><STRONG>Andralls - Andralls</STRONG> - Thrash-metal<BR><STRONG>Combat Noise - After The War… The Wrath Continues</STRONG> - Death-metal с Кубы<BR><STRONG>Vastator - Hell Only Knows</STRONG> - Ветераны Speed-metal из Чили<BR><STRONG>Necrotic - Among The Nauseating Depravity</STRONG> - Brutal Death-Metal<BR><STRONG>Havoc - Elimination Process</STRONG> - Thrash-metal<BR><STRONG>Mictlan&nbsp;- Donde Habitan Los Muertos</STRONG> - Folk-Death<BR><STRONG>Forensic, The - The Becoming</STRONG> - Melodic Death-metal&nbsp;</P>
+Автор: Vit Belov
+
+### 01.02.2012 news Видео-клип VASTATOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео чилийских металистов <STRONG>VASTATOR</STRONG> на песню <STRONG>"X-Terminate"</STRONG> можно посмотреть ниже. Трек взят с последнего альбома <STRONG>VASTATOR "Machine Hell"</STRONG>, который вышел в прошлом году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Один из альбомов коллектива можно приобрестив нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://www.youtube.com/embed/JsoeoQJA-oQ?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

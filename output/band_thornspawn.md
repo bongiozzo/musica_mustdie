@@ -26,6 +26,21 @@ Outro: Aftermath Of War
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2000 reviews И снова американцы...
+
+<p>И снова американцы...И опять пытаются нарезать black-metal. Надо отметить, что у Thornspawn это получается лучше, чем у Summon. Их музыка действительна близка к тому же, например, норвежскому образцу. Всё сделано по классическим канонам black-metal, без симфонизма, без клавиш, сплошной true-evil агрессивный black-metal с отмороженными гитарами, сквозь жужжание которых не различить ни риффа. Совершенно немелодично. Слишком вторично и слишком неинтересно, я бы даже сказал, монотонно и туповато. Хорошо, хоть альбом маленький. Еле дослушал до конца...</p>
+
+Автор: Dimas
+
+### 22.07.2000 reviews Both again Americans...
+
+<p>Both again Americans... And again attempt to cut black-metal. It is necessary to mark, that for Thornspawn it receives better, than for Summon. Them music is real is close furthermore, for example, Norwegian sample. Вс ё is made on classic canons black-metal, without symphonism, without keys, solid true-evil aggressive black-metal with the frost-bitten guitars, through beeing which one to not distinguish rhythms. Completely not melodic. Too for the second time and too not interesting, I even would say, monotonically and badly. It is good, though an album small. Hardly hear up to the end... 3.5</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -173,6 +173,29 @@ Layout + Design: Karim Daire of Lдrmbelдstigung
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.01.2008 reviews Редкий death-metal релиз на лицензионном рынке
+
+<P>Metal Blade и Фоно продолжают сотрясать наш рынок death-metal релизами. К сожалению, кроме сотрудничества Irond и Mystic Empire с Relapse, никаких регулярных пополнений лицензионного каталога death-metal релизами не происходит. Понятно, что не очень высокая популярность данного стиля не позволяет открывать для нас новые имена. Тем более приятным сюрпризом стал сильный альбом от немецкого коллектива LAY DOWN ROTTEN.</P>
+<P>Эта группа отличается неумеренной плодовитостью. За пять лет немецкие музыканты выпускают уже четвёртый альбом. “Reconquering The Pit” – первая работа для металлического major Metal Blade. Предыдущие пластинки коллектива выходили на известном немецком UG-лэйбле Remission. Что ж, LAY DOWN ROTTEN вполне доросли до того, чтобы выходить на одной фирме с CANNIBAL CORPSE, а не с DEFLORATION. Их материал на новой работе выходит за рамки тупого брутального молотилова. Сходу заметны черты классического европейского death-metal в духе EDGE OF SANITY, можно отметить отличную работу соло-гитаристов и разнообразие музыкального материала. Немцы представляют как раз такую музыку, которая понравится и любителям death-metal, и любителям melodic death-metal, если они захотят чего-то потяжелее. </P>
+<P>Советую обратить внимание на этот коллектив и поддержать производителей, которые не стесняются радовать нас отличным свежим мясом.</P>
+Автор: Vit Belov
+
+### 26.03.2009 news LAY DOWN ROTTEN выпускают свой госпел
+
+<P><IMG height=298 alt="" hspace=0 src="/images/news_rus/2009.03/13845.jpg" width=300 align=right border=5>11 мая на <STRONG>Metal Blade</STRONG> выйдет новый альбом LAY DOWN ROTTEN <STRONG>"Gospel Of The Wretched". </STRONG>Пластинку свёл <STRONG>Dan Swano</STRONG>. В качестве приглашённых музыкантов отметились <STRONG>Martin van Drunen</STRONG> (<B>HAIL OF BULLETS</B>, <B>ASPHYX</B>, <B>PESTILENCE</B>), <B>Marc Grewe</B> (<B>MORGOTH</B>)&nbsp;и <B>Dan Swano</B>. Трэк-лист:</P>
+<P>01. <B>Gospel Of The Wretched</B><BR>02. <B>Thy Won't Be Done</B><BR>03. <B>Hours Of Infinity</B><BR>04. <B>Altering The Whore</B><BR>05. <B>Conditioning The Weak</B><BR>06. <B>He Who Sows Hate</B><BR>07. <B>Beyond Damnation</B><BR>08. <B>When All Becomes Nothing</B><BR>09. <B>Where Spirits Lie Dead</B></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Новый альбом LAY DOWN ROTTEN
+
+<P>Немецкие детстеры <STRONG>LAY DOWN ROTTEN</STRONG> закончили запись нового альбома "<STRONG>Mask Of Malice</STRONG>". Пластинка выйдет 24 февраля на <STRONG>Metal Blade</STRONG>. Новую песню группы "<STRONG>Deathchain</STRONG>" можно послушать ниже. Трек-лист:</P>
+<P>1. <STRONG>Deathchain<BR></STRONG>2. <STRONG>A Darker Shade Of Hatred</STRONG><BR>3. <STRONG>Nightfall<BR></STRONG>4. <STRONG>Mask Of Malice<BR></STRONG>5. <STRONG>…And Out Come The Wolves<BR></STRONG>6. <STRONG>Swallow The Bitterness<BR></STRONG>7. <STRONG>Hades Resurrected<BR></STRONG>8. <STRONG>The Devil Grins<BR></STRONG>9. <STRONG>La Serpenta Canta</STRONG><BR>10. <STRONG>The Loss</STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/wVc2J_pSvyA?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

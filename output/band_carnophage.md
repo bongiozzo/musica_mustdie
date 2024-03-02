@@ -24,6 +24,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.08.2016 news CARNOPHAGE: песня с выходящего альбома
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Турецкая techno death metal команда <strong>CARNOPHAGE</strong> выложила в сеть сингл "<strong>At The Backside Of Our Civilization</strong>" с выходящего второго альбома "<strong>Monument</strong>". Дата релиза: 23 сентября на <strong>Unique Leader</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1. Incandescent&nbsp;&nbsp; <br>2. Second Genesis&nbsp;&nbsp; <br>3. Resistance Against Mind Clouding Heresy&nbsp;&nbsp; <br>4. Same Old Circle&nbsp;&nbsp; <br>5. Unbroken Fortitude&nbsp;&nbsp; <br>6. At the Backside of Our Civilization&nbsp;&nbsp; <br>7. Ode to Corruption&nbsp;&nbsp; <br>8. Sparks of the Experiment&nbsp;&nbsp; <br>9. Inertia and Failure</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/ytKxOC4uIXE" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 02.08.2016 news CARNOPHAGE: song from the upcoming album
+
+<p>Turkish techno death metal band <strong>CARNOPHAGE </strong>posted the single "<strong>At The Backside Of Our Civilization</strong>" emerging from the second album "<strong>Monument</strong>". Release date: 23 September by Unique Leader.</p><p>Track list:</p><p>1. Incandescent&nbsp;&nbsp; <br>2. Second Genesis&nbsp;&nbsp; <br>3. Resistance Against Mind Clouding Heresy&nbsp;&nbsp; <br>4. Same Old Circle&nbsp;&nbsp; <br>5. Unbroken Fortitude&nbsp;&nbsp; <br>6. At the Backside of Our Civilization&nbsp;&nbsp; <br>7. Ode to Corruption&nbsp;&nbsp; <br>8. Sparks of the Experiment&nbsp;&nbsp; <br>9. Inertia and Failure</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/ytKxOC4uIXE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

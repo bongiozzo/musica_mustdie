@@ -159,6 +159,105 @@ Bonus tracks on the Digipack editions:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2000 reviews Эта датская группа пошла по стопам шведов HAMMERFALL
+
+<p>Эта датская группа пошла по стопам шведов HAMMERFALL Те же мощные пауэр-риффы, мелодические линии, героическо-батальная тематика, хоровые распевы и подпевки. Безупречный по качеству материал, очень интересный, не являющийся плагиатом в чистом виде. Продюссировал альбом небезызвестный Томми Хансен. Это наложило отпечаток на весь материал альбома. Очень хорошая музыка. Не знаю даже что еще написать. Если вы любитель пауэра, то этот альбом для вас на все 100%. В противном случае, пропустите эту рецензию.</p>
+
+Автор: Dimas
+
+### 08.06.2000 reviews This danish group has gone in the steps the swedes HAMMERFALL
+
+<p>This danish group has gone in the steps the swedes HAMMERFALL Same powerful power-riffes, melodic lines, heroic-batal subjects, chorals. Faultless on quality a material very interesting, not being plagiat in the pure state. Producer of the album well-known Thommy Hansen. It has imposed a print on all material of an album. Very good music. I do not know even what still to write. If you the fan of power, this album for you on all 100 %. Otherwise, pass this review.</p>
+
+Автор: Dimas
+
+### 04.07.2000 news Iron Fire работают над новым альбомом.
+
+<p>Iron Fire уже работают над новым альбомом. Уже закончено 14 песен и датская группа планирует выпустить новую работу в начале 2001 года.</p>
+
+Автор: Vit Belov
+
+### 30.01.2002 reviews Диск наугад
+
+<p>Диск наугад. Решил я тут эксперимент провести. С лета у меня скопилась кучка дисков (около 20 штук) с которыми я, по причине нехватки времени, так и не успел ознакомиться целиком, лишь слегка их обозрев. И вот, вытаскиваю наугад диск с целью проверить: узнаю я что за группа или нет (в основном там были альбомы групп, с творчеством которых я уже был знаком ранее). Ставлю - слушаю. Ба! Да это же новый MOTLEY CRUE. Нет, стоп, подождите... Не выходило же у них альбома в 2001 году или я что-то пропустил? Хотя, постойте... Ну да! Конечно же! Как же я сразу не узнал! Это же новый GUNS'N'ROSES. Вот ребята молодцы! Наконец-то новый альбом записали и выпустили. Причем, нехилые песенки, только почему-то слишком для них тяжелые, да и слишком быстрые. Получился качественный динамичный и мелодичный heavy-glam metal с жесткими риффами.<BR> Ну что же, настало время посмотреть на коробочку от диска с обложкой, буклетом и трэк-листом.<BR> Упс... Так это, оказывается, IRON FIRE. Не ожидал... На предыдущем альбоме датчане порадовали меня неплохим heavy-power metal в духе HAMMERFALL. А на этом альбоме сразу такой отход от темы... Не знаю с чем это связано и не могу определить, что это: шаг назад или прогресс? Вокалист забросил гитару и теперь занимается исключительно вокалом, балансирующим от Винса Нейла до Акселя Роуза. Только в начале альбома музыканты вспоминают свое прошлое, в остальное же время звучит достаточно разнообразный, приятный и мелодичный glam-power metal с довольно тяжелым звуком и мощной динамикой. Похоже, эти датчане уже вряд ли удивят мир чем-нибудь особенным и оригинальным. Но, свое дело они делают достаточно хорошо.</p>
+
+Автор: Dimas
+
+### 06.09.2003 news Iron Fire ищут лэйбл
+
+<p>Iron Fire заняты поиском издающего лэйбла для своей новой пластинки. Было записано 11 трэков, которые группа надеется издать в начале 2004 года.</p>
+
+Автор: Vit Belov
+
+### 24.09.2003 news IRONFIRE расстались с более половины состава
+
+Как уже сообщалось <B>IRONFIRE</B> готовят новый альбом к выходу в 2004 году. В это время в группе произошёл раскол: вокалист <B>Martin</B> <B>Steene</B> и гитарист <B>Mads</B> <B>Andersen</B> расстались с тремя другими участниками коллектива <B>Jeff</B> <B>Lukka (гитара), Jose</B> <B>Cruz (бас) </B>и <B>Steve</B> <B>Mason (барабаны). </B>Вместо них срочно рекрутированы <B>Martin Slott</B> (ex-<B>IRONFIRE</B>, <B>URBAN COWBOYS</B>), <B>Jens</B> (<B>SONS OF TOMORROW) и</B>&nbsp;<B>Bent</B> (<B>URBAN COWBOYS</B>).
+Автор: Vit Belov
+
+### 24.01.2006 news IRON FIRE на Napalm
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Power-metal группа <STRONG>IRON FIRE</STRONG> заключила контракт с <STRONG>Napalm Records</STRONG> на выпуск третьего альбома "<STRONG>Revenge</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 03.01.2008 news IRON FIRE собираются в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Датские power-metal герои<STRONG> IRON FIRE</STRONG> вернулись из тура и собираются потратить 2-3 месяца на сочинение нового материала. Уже весной группа войдёт в студию, чтобы его записать.</FONT></P>
+Автор: Vit Belov
+
+### 12.01.2009 news Новый гитарист в IRON FIRE
+
+<P>Новым гитаристом <STRONG>IRON FIRE</STRONG> стал <STRONG>Marc Masters</STRONG> (<STRONG>FORCENTURY</STRONG>). Новый альбом датчан "<STRONG>To The Grave</STRONG>" выходит в эти дни на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.05.2009 reviews Драйв есть, остальное приложится
+
+<P>Датчане IRON FIRE очень удачно попали на Napalm Records и выпустили на нём свой очередной альбом “To The Grave”. Почему удачно попали? Сама группа является середняком, и для середняка очень приятно заиметь постоянный дом, на котором можно совершенствовать свои записи, не переживая за своё будущее.</P>
+<P>С новым альбомом IRON FIRE сделали шаг вперёд. Энергичные, качественные, впечатляющие боевики. Пускай им не хватает оригинальности, но мне думается, оригинальность таким группам, как IRON FIRE ни к чему. От них требуется чёткий гитарный ритм, героическое настроение и энергетика. Всё это на альбоме “To The Grave” есть. </P>
+<P>Почему-то захотелось именно в рецензии на IRON FIRE обсудить положение отечественного power-metal. Оно кажется мне, мягко говоря, не очень завидным. Группы, играющие в этом стиле у нас, обращают внимание на всё, что угодно, но не на драйв и хитовость. Такое впечатление, они боятся показаться «серыми» и неоригинальными. Бояться этого не нужно. Ведь, к сожалению, один рифф от средней европейской команды IRON FIRE убирает некоторые heavy-power-metal альбомы, вышедшие в России, целиком. </P>
+<P>Датчане порадовали. Честно говоря, предыдущая работа IRON FIRE показалась мне не очень зажигательной. “To The Grave” лишён этого недостатка. Сногсшибательных хитов на этом альбоме я не заметил, но порубиться или проехаться в машине под эти звуки можно и нужно. <BR></P>
+Автор: Vit Belov
+
+### 03.12.2009 news IRON FIRE расстались с гитаристом
+
+<P>Датчане <STRONG>IRON FIRE</STRONG> расстались с гитаристом <STRONG>Marc Masters</STRONG> (<B>FORCENTURY</B>). По словам оставшихся музыкантов, <STRONG>Marc</STRONG> не отдавался группе целиком, поэтому они были вынуждены его уволить. Все гитарные партии для нового альбома, который будет записан весной, исполнит другой гитарист <STRONG>IRON FIRE</STRONG> <STRONG>Kirk</STRONG> <B>Backarach.</B></P>
+Автор: Vit Belov
+
+### 29.12.2010 reviews «Железному Огню» элементарно не хватило времени
+
+<P>Датчане IRON FIRE представляют собой крепких середняков современной европейской power-metal сцены. Некоторые альбомы у этих ребят выходят довольно интересными, некоторые проходными, но выпускают они их каждые полтора-два года на радость своему лэйблу и своим поклонникам.</P>
+<P>Предыдущая работа “To The Grave” показалась мне очень интересной. Жёсткие прямолинейные риффы, быстрая мелодика… Как водится в таких случаях, новый альбом группы я ждал с некоторым нетерпением. Не прошло и двух лет, как свет увидел “Metalmorphosized”. К сожалению, у IRON FIRE попросту не хватило таланта. Невозможно себе представить, что группы среднего эшелона могут сочинять хорошие часовые альбомы каждые 15-18 месяцев. Иначе они будут уже не группы среднего эшелона. На новом альбом IRON FIRE сохранился тот же саунд, что и на предшественнике, и это приятный момент. Низкий строй гитар, зубодробительная ритм-секция. К несчастью, мощных боевиков, которых хватало на “To The Grave” здесь явно не достаёт. Новый альбом датчан получился более лиричным, но лирика не является коньком этого коллектива. Кто-то даже отметит для себя балладу, где вокалисту IRON FIRE подпевает некая женщина, но этот ход избитый и уже не вызывает в слушателе прежнего трепета.</P>
+<P>Не самая сильная работа IRON FIRE. Теперь музыкантам нужно отдохнуть, собраться, подождать пару лет и сочинить более цепкий материал, который датчане не замедлят представить нам через два года.</P>
+Автор: Vit Belov
+
+### 23.01.2012 news Новая песня IRON FIRE
+
+<P>Новая работа датских power-metal'истов<STRONG> IRON FIRE "Voyage Of The Damned"</STRONG> выходитв конце января на Napalm Records. Послушать трек "<STRONG>Leviathan</STRONG>" с этой пластинки можно в клипе ниже. </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/JDDyCm1t19U?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 12.07.2016 news IRON FIRE перешли на Crime Records
+
+<p>Новый альбом датских ветеранов <strong>IRON FIRE "Among The Dead"</strong> выйдет 26 сентября на <strong>Crime Records</strong>. Альбом был записан в студии <strong>Death Island</strong> с продюсером <strong>Marco Angioni</strong> и сведён в Польше в студии <strong>Herz</strong>. </p><p>Трек лист:</p><p>“Intro (The Lost City)”<br>“Among The Dead”<br>“Hammer Of The Gods”<br>“Tornado Of Sickness”<br>“Higher Ground”<br>“Iron Eagle”<br>“Made To Suffer”<br>“The Last Survivor”<br>“No Sign Of Life”<br>“Ghost From The Past”<br>“When The Lights Go Out”<br>“For Whom The Bell Tolls” (Metallica cover)</p><p><center><img width="640" height="637" src="/images/news_rus/2016.07/29575.jpg" border="0"></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/9FRkL4CvebY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.07.2016 news New album by IRON FIRE
+
+<p>The new album by Danish veterans of the<strong> IRON FIRE "Among The Dead"</strong> will be released on 26 of September on<strong> Crime Records</strong>. The album was recorded at <strong>Death Island Studio</strong> with producer <strong>Marco Angioni</strong> and is mixed in Poland in the <strong>Herz Studio</strong>.</p><p>Track list:</p><p>“Intro (The Lost City)”<br>“Among The Dead”<br>“Hammer Of The Gods”<br>“Tornado Of Sickness”<br>“Higher Ground”<br>“Iron Eagle”<br>“Made To Suffer”<br>“The Last Survivor”<br>“No Sign Of Life”<br>“Ghost From The Past”<br>“When The Lights Go Out”<br>“For Whom The Bell Tolls” (Metallica cover)</p><p><center><img width="640" height="637" src="/images/news_rus/2016.07/29575.jpg" border="0"><p></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/9FRkL4CvebY" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 19.07.2016 news Новый сингл IRON FIRE
+
+<p>Мы уже сообщали, что в сентябре выходит новый альбом <strong>IRON FIRE "Among The Dead</strong>". Ниже можно услышать первый сингл с этой работы "<strong>Tornado Of Sickness</strong>".</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/UlyQ4kqmx9I" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 19.07.2016 news First single from new IRON FIRE album
+
+<p>We have already reported that in September the new album of<strong> IRON FIRE "Among The Dead"</strong> will be out. Below you can hear the first single from this work "<strong>Tornado Of Sickness</strong>".</p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/UlyQ4kqmx9I" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

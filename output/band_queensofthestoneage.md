@@ -28,6 +28,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 14.07.2011 news Басист KYUSS LIVES! был арестован
+
+<P>Басист <STRONG>KYUSS LIVES!</STRONG> и бывший участник <STRONG>QUEENS OF THE STONE AGE Nick Oliveri</STRONG> был арестован позавчера в своей квартире в Голливуде. Полиция прибыла на место происшествия, когда сосед музыканта сообщил о&nbsp;ссоре <STRONG>Oliveri </STRONG>c&nbsp;подружкой. В итоге всё закончилось 5-часовыми переговорами, так как <STRONG>Nick </STRONG>не хотел выпускать девушку, бил её и, в общем-то, грозил расправой. </P>
+<P>39-летний музыкант в конце концов сдался и был препровождён в тюрьму, откуда его выпустили под залог 100000 долларов. В квартире <STRONG>Nick Oliveri</STRONG>&nbsp;была обнаружена полностью заряженная винтовка.</P>
+<P><center><IMG height=600 src="/images/news_rus/2011.07/20118.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

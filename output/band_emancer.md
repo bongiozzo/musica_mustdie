@@ -63,6 +63,21 @@ black-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.02.2003 reviews Можно ведь и black-metal играть интересно!!!
+
+<p>Две мрачные личности из Норвегии, скрывающмие свои лица в глубоком тумане. Безысходность и мизантропия в каждом слове лирики, сверхскоростные прогоны на барабанах, глухой кричащий вокал... Чистый black-metal без компромиссов... Никаких тебе Children Of Bodom или Cradle Of Filth. Вроде бы малоинтересная музыка для ополоумевших подростков? Нет-нет и нет... Хорошо записанный и в то же время брутально-андеграундный metal. Один из лучших релизов года в данном направлении. Стоит отметить, что вышло данное добро на американском лэйбле Black Owl Records... Зацените.</p>
+
+Автор: Vit Belov
+
+### 18.05.2003 reviews Somebody can play black-metal interesting!
+
+<p>Two gloomy persons from Norway, whom hiding their faces in deep fog. Hopelessness and misanthropy in every word of lyrics, superfast threshing-mashine on drums, toneless screaming... Clean black-metal without any compromisses. You will not have neither CHILDREN OF BODOM nore CRADLE OF FILTH. Do you think, it's noninteresting music for crazy teenagers? No, no and no... Good recorded and an this time brutal-underground metal. One of the best realeases of the year in this genre. Also i want to mark, that this album was realeased through american label BLACK OWL RECORDS... Check it!!!</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

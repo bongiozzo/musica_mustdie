@@ -109,6 +109,23 @@ Alessio Fagrelli (keyboards), Steve Wolz (drums), Giuseppe Orlando (drums)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2002 reviews Blacker than blackness
+
+<p>It's a pity we (read – ROSSOMAHAAR) and Marco (read – DEINONYCHUS) aren't labelmates anymore. For I'd be honored to ink a deal with record company roster of which includes DEINONYCHUS. In fact, bands of this kind are only few in number. DEINONYCHUS, CULTUS SANGUINE… early BETHLEHEM. Who else? No one? Ah, I knew that! Why this trio? And what do I mean saying, 'bands of this kind'? Bands of unique kind. Those who deliver unique mixture of dark, black and doom metal. Those who offer unique ambiences all of their works are completely saturated with. Those often led by singer with a unique, living dead-like voice. Unique, unique, unique… isn't it just too much? NO. Because it's the only word (epithet? definition?) fitting DEINONYCHUS (and others as listed above) like a glove. "Mournument" is most probably Marco's most complete, most well worked out effort thus far. And hence there's a problem. I mean, none of his past works could be rated with a mark less than '6' out of '6'. And now you tell me: what the hell should I do if I consider "Mournument" way more perfect than perfection itself? Darkly perfect, you see. Words like f.ex. 'dismal' don't seem to be words anymore. More likely, mere verbal reflections of DEINONYCHUS' music. Black is not only a color, if you get my point. And "Mournument" is blacker than blackness. P.S. I knew this CD should feature CANDLEMASS' "Ancient Dreams". I thought I missed it when I've been giving "Mournument" a listen for the first time. I thought something"s wrong when I've been giving this CD a listen for the second time. I figured out Marco made it sound a 100% DEINONYCHUS' song when I've been giving it a listen for the third time.</p>
+<P> Website: <A HREF="http://www.mykingdommusic.net">http://www.mykingdommusic.net</A></>
+<P>Email: <A HREF="mailto:info@mykingdommusic.net">info@mykingdommusic.net</A></>
+
+Автор: Kai Mathias Stalhammar
+
+### 20.02.2006 reviews Apocalyptic Suicidal Music
+
+<P>И вновь перед нами one-man-band, на этот раз из Голландии. Под труднопроизносимым названием Deinonychus (с греческого "ужасный коготь") скрывается Марко Керен (гитары, бас, вокал), и это уже шестой альбом данного коллектива. А помогают здесь Марко (ибо состав, точнее, приглашенные музыканты Deinonychus постоянно меняются) Стив Уолц (ударные, Bethlehem), Джузеппе Орландо (ударные, Novembre) и Алессио Фагрелли (клавишные, Morgana's Kiss). И если вы, посмотрев на обложку альбома "Insomnia" и названия композиций (например, 'Nightfall guides insomnia to be an everlasting mental torture, with this being the consequence' или 'Long I feared that my sins would return to visit me, and the cost is more than&nbsp;I can bear'), решите, что перед вами, скорее всего, дум-метал, то вы окажетесь совершенно правы. Притом это дум в довольно экстремальном варианте, с явными заходами во funeral doom (к примеру, явное использование темы знаменитого "Похоронного марша" в 'We have uncovered a question and now we must unearth the answer') и с довольно интересным, жутким таким, вокалом. Так что никаких теплых и мелодичных красок от данного релиза не ждите, здесь всё мрачно и безысходно, темно и тягуче, жутко и апокалиптично. Пожалуй, выражение "<SPAN lang=DE>Apocalyptic Suicidal Music" довольно точно подходит для описание данной пластинки. Но, думаю, что Марко Керен решил всё же придать "Insomnia" некоторого разнообразия и известной динамичности, иначе чем можно объяснить такую вещь, как 'To diagnose the fortunes of paranoia consuming consciousness and sanity', которая как-то выбивается из общей концепции (хм, если таковая была вообще) со своей чуть ли не симфоблэковой атмосферой (по моему мнению, самая слабая композиция на "Insomnia"). Впрочем, автору виднее. Пока же после прослушивания "Insomnia" я еще не решил, нужно ли искать их предыдущие релизы. Работа, безусловно, хороша, но мне кажется, что надо прослушать этот альбом еще несколько раз, чтобы полностью его понять. Да, к минусам добавлю весьма скромное оформление буклета и неудобночитаемые тексты.</SPAN></P>
+<P><SPAN lang=DE>Альбом предоставлен компанией "Сд-Максимум"</SPAN></P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

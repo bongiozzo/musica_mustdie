@@ -25,6 +25,16 @@ ex-VENOM
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.12.2012 news MPIRE OF EVIL: альбом &quot;Crucified&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25198.jpg" width=360 height=360>Группа <STRONG>MPIRE OF EVIL</STRONG>, в которую входят бывшие участники <STRONG>VENOM Jeff "Mantas" Dunn</STRONG>&nbsp;(гитара) и <STRONG>Tony "The Demolition Man" Dolan</STRONG> (бас/вокал), готовит к выпуску альбом <STRONG>"Crucified"</STRONG>. Этот диск будет включать в себя перезаписанные версии песен <STRONG>VENOM</STRONG>&nbsp;тех лет, когда в группе пел <STRONG>Dolan</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Temples Of Ice<BR></STRONG>02. <STRONG>Parasite</STRONG><BR>03. <STRONG>Kissing The Beast<BR></STRONG>04. <STRONG>Blackened Are The Priests<BR></STRONG>05. <STRONG>Carnivorous</STRONG><BR>06. <STRONG>Black Legions<BR></STRONG>07. <STRONG>Need To Kill<BR></STRONG>08. <STRONG>Wolverine<BR></STRONG>09. <STRONG>Crucified</STRONG><BR>10. <STRONG>Demone</STRONG></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Члены VENOM едут в Москву! (12 марта 2015, клуб &quot;Brooklyn&quot;)

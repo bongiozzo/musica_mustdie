@@ -36,6 +36,17 @@ Scott - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.03.2010 news Новый альбом G.B.H.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.03/16331.jpg" width=280 height=280>Английские панк/хардкор раздолбаи возвращаются в очередной раз! </P>
+<P>Их одинадцатый по счёту альбом <STRONG>"Perfume and Piss" </STRONG>увидит свет&nbsp; 6 апреля на <STRONG>Hellcat Records</STRONG>. </P>
+<P>Новый трек <STRONG>"Kids Get Down"</STRONG> можно послушать на Myspace-странице <STRONG>G.B.H.</STRONG>:</P>
+<P><A href="http://www.myspace.com/gbh">http://www.myspace.com/gbh</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

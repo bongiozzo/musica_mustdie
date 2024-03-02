@@ -21,6 +21,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.05.2006 news MUSICA Production подписали контракт с World Chaos Production
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Российский лейбл <STRONG>MUSICA Production</STRONG> подписал контракт с японской конторой <STRONG>World Chaos Productions</STRONG> на выпуск трёх альбомов из каталога восточного лэйбла. Уже летом свет увидят альбомы: <STRONG>TYRANT "Grimoires"</STRONG> (orchestral sympho-black из Японии), <STRONG>PLASTIC EARTH "SEAM - 01"</STRONG> (последователи <STRONG>IN FLAMES</STRONG> из Японии) и <STRONG>GLORIA MORTI "Lifestream Corrosion"</STRONG> (агрессивный death-black из Финляндии в духе <STRONG>BEHEMOTH</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 19.02.2009 news GLORIA MORTI взяли гитариста
+
+<P>Новым гитаристом финнов <STRONG>GLORIA MORTI</STRONG> стал музыкант <STRONG>NEVEREND</STRONG> <STRONG>Aki Salonen. </STRONG>В настоящее время группа работает над третьим альбомом.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

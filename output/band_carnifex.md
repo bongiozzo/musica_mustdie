@@ -37,6 +37,47 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.03.2010 news Новое видео CARNIFEX
+
+<P>Новое видео<STRONG> CARNIFEX</STRONG> на песню <STRONG>"Hell Chose Me" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=300 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=10537243&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=10537243&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="300"></embed></OBJECT>
+<P><A href="http://vimeo.com/10537243">Carnifex, "Hell Chose Me"</A> from <A href="http://vimeo.com/user3265898">Revolver Magazine</A> on <A href="http://vimeo.com/">Vimeo</A>.</P>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.09.2011 news CARNIFEX записывают альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американцы<STRONG> CARNIFEX</STRONG> находятся в студии, где работают над новым альбомом <STRONG>"Until I Feel Nothing"</STRONG>, который выйдет 25 октября на <STRONG>Victory Records</STRONG>. Продюсирует пластинку <STRONG>Tim Lambesis</STRONG> (<B>AS I LAY DYING</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущая работа <STRONG>CARNIFEX "Hell Chose Me" </STRONG>вышла в 2010 году.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 src="/images/news_rus/2011.09/20911.jpg" width=300 border=0></FONT></P>
+Автор: Vit Belov
+
+### 22.06.2016 news Новое лирк-видео от CARNIFEX
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">5 августа на <strong>Nuclear Blast</strong> выходит новый альбом <strong>CARNIFEX "Slow Death</strong>".</font></p><p>Лирик видео на песню "<strong>Six Feet Closer To Hell</strong>":</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/q_e1zaJGQz8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 22.06.2016 news CARNIFEX: New lyric video
+
+<p>August 5, <strong>Nuclear Blast</strong>: New album by<strong> CARNIFEX "Slow Death</strong>".</p><p>Lyric video for the song "<strong>Six Feet Closer To Hell</strong>":</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/q_e1zaJGQz8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 23.07.2016 news Новое видео CARNIFEX
+
+<p>Новый ролик <strong>CARNIFEX </strong>на песню "<strong>Slow Death</strong>" можно посмотреть ниже. Трек взят с одноимённого нового альбома, который выйдет 5 августа.</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/5Z04ep5X7Ic" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 23.07.2016 news New clip by CARNIFEX
+
+<p>New <strong>CARNIFEX</strong> video for the song "<strong>Slow Death</strong>" can be viewed below. The track is taken from the eponymous new album, which will be released August 5.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/5Z04ep5X7Ic" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -34,6 +34,15 @@ Fredrik Andersson - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.1999 news 
+
+<p>Скоро увидит свет новый альбом Allegiance "Vrede". No Fashion Records обещает что-то совершенно экстремальное в стиле viking-black-metal.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

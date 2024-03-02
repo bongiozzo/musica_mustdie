@@ -31,6 +31,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.11.2011 news ALTAR OF SIN на Xtreem Music
+
+<P>Одна из самых влиятельных thrash-банд Испании <STRONG>ALTAR OF SIN</STRONG> подписала контракт на выпуск третьего альбома с<STRONG> Xtreem Music</STRONG>. "<STRONG>Tales Of Carnage First Class</STRONG>" был записан в студии <STRONG>Fireworks</STRONG> и предназначен поклонникам <STRONG>SLAYER, POSSESSED, SODOM</STRONG> и <STRONG>SARCOFAGO</STRONG>. </P>
+<P>
+<CENTER><IMG height=250 src="/images/news_rus/2011.11/22080.jpg" width=250 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

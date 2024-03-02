@@ -45,6 +45,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.07.2011 news WOLVES IN THE THRONE ROOM заканчивают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские black-metal'исты <STRONG>WOLVES IN THE THRONE ROOM </STRONG>заканчивают работу над своим четвёртым альбомом. Пластинка получила название <B>"Celestial Lineage"</B>. Этим альбомом музыканты заканчивают трилогию, начатую на&nbsp;предыдущих двух пластинках <STRONG>"Two Hunters"</STRONG> (2007) и&nbsp;<B>"Black Cascade"</B> (2009). </FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=600 src="/images/news_rus/2011.07/20077.jpg" width=400 border=0><BR></P></FONT>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### WOLVES IN THE THRONE ROOM (Америка) в Москве и СПб (14, 15 августа 2017)

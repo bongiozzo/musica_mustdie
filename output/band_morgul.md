@@ -63,6 +63,39 @@ Napalm Rec.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.09.2000 news Morgul начинает запись нового альбома
+
+<p> Группа Morgul, в лице одного единственного музыканта Джека, в самом начале октября отправляется в студию Sound Suite вместе с продюсером Терье Рефснесом (Tristania, Sins Of Thy Beloved) чтобы начать работу над новым альбомом.</p>
+
+Автор: Nybras
+
+### 13.11.2000 news В феврале выйдет новый альбом Morgul.
+
+<p>Новый альбом Morgul "Sketch of Supposed Murderer" с 5 февраля появится на полках магазинов. Альбом должен соединить в себе техничность своего предшественника "The Horror Grandeur" с новыми мелодичными black metal и dark metal элементами.</p>
+
+Автор: Morsus
+
+### 13.11.2000 news The new album of Morgul will be released in February.
+
+<p>The new album of Morgul "Sketch of Supposed Murderer" since February 5 will be on shelves of music shops. The album should combine a Technics of the forerunner "The Horror Grandeur" with new melodious black metal and dark metal elements.</p>
+
+Автор: Morsus
+
+### 01.05.2001 reviews Sympho black навевающий Ужас
+
+<p>Sympho black навевающий Ужас. Оркестрально-параноидальная работа норвежских музыкантов. Она сочетает в себе шизофренические элементы прошлого альбома и doom-элементы второго альбома. Плюс к этому зловещие индустриальные навороты и скрипичные дела. Очень страшная музыка! Оригинальный black-материал. Впрочем, как и всегда у этой группы. Очень интересны эксперименты с чистым вокалом, одна песня целиком исполняется чистым вокалом (кавер группы Kiss). Холодные скрипки, мрачная, немного индустриальная атмосфера, разнообразие гитарного звука, готические элементы. все это придает альбому неповторимость и привлекательность. Жутчайший эпический black metal.</p>
+
+Автор: Dimas
+
+### 01.05.2001 reviews Sympho black suggesting Horror
+
+<p>Sympho black suggesting Horror. Orchestral-paranoid activity of the Norwegian musicians. She combines in herself schizophrenic members of a past album and doom-members of the second album. A plus to this evilest industrial and violins. Very terrible music! An original black-stuff. However, as well as always for this group. The experiments with clean vocal are very interesting, one song bodily is executed clean vocal(cover of group Kiss). A cold violin, sad, little bit industrial atmosphere, diversification of a guitar note, Gothic members. All this gives an album originality and attractiveness. Fearness epic black metal.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Morgul '2001 "Sketch Of Supposed Murderer" - жутко или грустно?

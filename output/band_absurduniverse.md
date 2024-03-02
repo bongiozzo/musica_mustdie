@@ -20,6 +20,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2011 news ABSURD UNIVERSE: дебютный альбом &quot;Habeas Corpus&quot; в октябре
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20651.jpg" width=400 height=400>ABSURD UNIVERSE</STRONG> - новая&nbsp;old-school death/thrash metal группа,&nbsp;включающая в своём составе участников&nbsp;<B itxtHarvested="0" itxtNodeId="48">SINISTER</B>, в октябре месяце выпускает свой дебютный альбом <STRONG>"Habeas Corpus"</STRONG> на итальянском лейбле&nbsp;<B itxtHarvested="0" itxtNodeId="46">Punishment 18</B>. CD был записан на студии <B itxtHarvested="0" itxtNodeId="45">Flighing Visch</B> (Zaandam,&nbsp;Holland). Обложку нарисовал белорусский художник <STRONG>Андрей Кромс</STRONG>.<BR itxtNodeId="42"><BR itxtNodeId="41">Трек-лист <STRONG>"Habeas Corpus"</STRONG>:<BR itxtNodeId="39"><BR itxtNodeId="38">01. <B itxtHarvested="0" itxtNodeId="37">Violence Revealed</B><BR itxtNodeId="36">02. <B itxtHarvested="0" itxtNodeId="35">Red Water</B><BR itxtNodeId="34">03. <B itxtHarvested="0" itxtNodeId="33">Flesh Collector</B><BR itxtNodeId="32">04. <B itxtHarvested="0" itxtNodeId="31">Under Command</B><BR itxtNodeId="30">05. <B itxtHarvested="0" itxtNodeId="29">Freedomless</B><BR itxtNodeId="28">06. <B itxtHarvested="0" itxtNodeId="27">Ships Of Enslavement</B><BR itxtNodeId="26">07. <B itxtHarvested="0" itxtNodeId="25">A Stone For Your Skull</B><BR itxtNodeId="24">08. <B itxtHarvested="0" itxtNodeId="23">Boiled By Dead Water</B><BR itxtNodeId="22">09. <B itxtHarvested="0" itxtNodeId="21">New World Domination</B></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

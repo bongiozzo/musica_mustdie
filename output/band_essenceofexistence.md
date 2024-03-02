@@ -16,6 +16,21 @@ Slovacian death-doom
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.02.2001 reviews Мистико-романтический doom-death metal из Словакии
+
+<p>Мистико-романтический doom-death metal из Словакии. Потрясающе разнообразный и неутомительный несмотря на более чем часовую продолжительность. Причем, чем дальше - тем лучше, так что если он вам поначалу не очень будет нравиться, то не отчаивайтесь, а запаситесь терпением и слушайте дальше. Тяжелые мелодичные риффы, суровый утробный вокал, слегка заметные клавиши, тем не менее очень умело создающие атмосферу. Изредка раздаются неплохие женские песно(под)пе(ва)ния. Чеканные пружинные ритмы одной гитары придают саунду мощь, а постоянные соло другой гитары создают неповторимую мелодичность. Музыка в основном среднетемповая, с лиричными отступлениями и отдельными бешенными всплесками скорости и агрессии. Все это здорово иногда напоминает ранний Septic Flesh, правда, чуть пониже уровнем, но от этого, ни в коем случае, не безынтереснее. Рекомендую.</p>
+
+Автор: Dimas
+
+### 25.02.2001 reviews Mystic-romantic doom-death metal from Slovakia
+
+<p>Mystic-romantic doom-death metal from Slovakia. Is more tremendous miscellaneous and not tiresome despite of more than hour duration. And, than further - the better, so that if he firstly will like to you not so, do not despair, and be accumulated by patience and listen further. High-gravity melodious riffs, severe grawling, slightly noticeable keys nevertheless very skilfully creating atmosphere. Are occasionally distributed quite good female back vocals. Good spring rhythms of one guitar give to sound a power, and constant соло of other guitar create unique melodious. Music basically mean pace, with lirical departures and separate rabietic splashes of speed and aggression. All this is able-bodied truth, hardly down by a level, but from it, in nowise, not noninteresting sometimes resembles early Septic Flesh. I recommend.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

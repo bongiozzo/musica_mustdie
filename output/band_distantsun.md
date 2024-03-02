@@ -16,6 +16,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.10.2016 news DISTANT SUN опубликовали лирик-видео с выходящего второго альбома
+
+<p>Московские пауэр-металисты <strong>DISTANT SUN</strong> опубликовали лирик-видео сингла “<strong>God Emperor</strong>” с предстоящего альбома “<strong>Into the Nebula</strong>”. Оставаясь верными своей стилистике, DISTANT SUN добавили изрядную долю трэша в пауэр-метал европейского разлива. Музыканты держат творческий курс на такие группы как ICED EARTH, ANNIHILATOR, BLIND GUARDIAN и RAGE, а лирически снова возвращаются к «Дюне», знаменитой фантастической саге Фрэнка Герберта.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/EylBD9RH8J4" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 15.10.2016 news DISTANT SUN posted lyric video from upcoming sophomore album
+
+<p>Russian power/thrash metalers<strong> DISTANT SUN</strong> release a lyric video for the song “<strong>God Emperor</strong>” from their upcoming album “<strong>Into The Nebula</strong>”. Joining their European melodic traditions with American aggression, the band returns to the famous sci-fi saga with a healthy load of thrash in their power metal. Will appeal for fans of ICED EARTH, ANNIHILATOR, BLIND GUARDIAN and RAGE.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/EylBD9RH8J4" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 18.11.2016 news Второй альбом DISTANT SUN можно послушать целиком
+
+<p>Новый альбом <strong>DISTANT SUN "Into The Nebula"</strong> вышел 18 ноября на <strong>Metalism Records</strong>. Сегодня же можно послушать официальный стрим альбома в клипе ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9IQEFFyvcmM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

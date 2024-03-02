@@ -31,6 +31,313 @@ Heavy metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2002 reviews Альбом из разряда обязательных к приобретению
+
+<p>Ну наконец-то! Хоть SPV догадались обратить внимание на группу, чьё творчество в полной мере отражает смысл таких избитых слов как 'heavy metal'. А то что-то уж больно много развелось сопливых командочек, которых хлебом не корми – дай только возможность создать ещё один клон STRATOVARIUS, которые и сами-то мало что имеют общего с heavy в частности, и с metal'ом вообще. Давние поклонники JUDAS PRIEST, ACCEPT и IRON MAIDEN, эти немцы и музыку играют соответствующую. Никаких соплей; это действительно МЕТАЛЛ - начиная с громоподобной "Light In The Black" и заканчивая эпической "Blood Of The Kings" (кроме названия ничего общего с MANOWAR вы здесь не найдёте, и не надейтесь). И заметьте - ни одной баллады. Талантливые музыканты, не менее талантливый вокалист, к счастью обладающий пусть относительно, но всё же <I>низким</I> голосом, мгновенно впечатывающиеся в память песни… И несмотря на то, что местами "Prayer For The Dying", казалось бы, напоминает творчество незабвенного Рок'н'Рольфа (а именно "Death Or Glory" и "Blazon Stone"), MESSIAH'S KISS всё-таки отличаются от прочих собратьев по цеху именно наличием узнаваемого – и своего! – почерка. Стоит также отметить, что не взирая на весь напор, иногда прямо-таки ураганную скорость и похвальную брутальность (да, heavy metal тоже бывает брутальным), это <B>музыка</B>, а не бригада экскаваторщиков на выезде. Обязательно к приобретению.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 02.06.2004 reviews Безликий heavy-metal
+
+<P><I>Второй альбом <B>MESSIAH's KISS</B> и этим всё сказано. Именно, "синдромом второго альбома" можно объяснить подобный результат</I>.</P>
+<P><B>'Metal'</B> достаточно бесхребетный альбом. Дебют <B>MESSIAH's KISS</B> получил очень хорошие отклики в нашей и зарубежной прессе, поэтому группа поднатужилась и записала новый альбом в достаточно короткие сроки. Он получился малозапоминающимся. Главным недостатком '<B>Metal</B>' вполне можно назвать отсутствие энергии. Мелодии, сочиняемые гитаристом <B>Kraft</B>, достаточно неплохи, но звучание коллектива слишком мягкое. Появились баллады, которые не добавляют динамики. Вокалистом в <B>MESSIAH's KISS</B> "подрабатывает" <B>Mike Tirelli (HOLY MOTHER).</B> Видно, что здесь ему не позволяется подражать всем сразу, поэтому поёт он лучше, чем в своей основной группе.</P>
+<P>Вообще же, <B>MESSIAH's KISS</B> стали напоминать суррогатный проект, когда основной сочинитель музыки может обойтись без всех музыкантов, но приглашает их со всего мира, чтобы поднять статус группы. Такой, например, <B>METALLIUM</B>.</P>
+<P>Второй альбом <B>MESIAH's KISS</B> только для коллекционеров. Совершенно безликий heavy-metal.</P>
+Автор: Vit Belov
+
+### 09.06.2004 reviews Klassisch. Traditionell. Heavy metal. Hergestellt in Deutschland
+
+<P>Эта группа играет трацидионный хэви-метал. Собственно, этой фразой рецензию можно было бы закончить. Ибо никаких откровений или новшеств на альбоме со столь "оригинальным" названием (кстати, и песни озаглавены подобающе: 'Believer', 'Metal 'til We Die', 'Holy Waters', 'Hell Or Victory') вы при всём желании не найдете. Четверо "тру-металлистов" из немецкого городка Динслакен (вместе с американским вокалистом Майком Тирелли из Holy Mother) выпустили свой второй альбом, который, судя по всему, ничем не отличается от дебютника "No Prayer For The Dying" 2002 года (так не очень уверенно пишу, потому что я его не слышал). Здесь всё просто и прямолинейно, никаких экспериментов, никаких наворотов - it's only heavy metal. Тут нет новых идей, но нет и халтуры. Тут нечем восторгаться, но и не к чему придраться. Классический. Традиционный. Хэви-метал. Сделано в Германии.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 04.12.2007 reviews И вновь без перемен
+
+<P>Если бы объявили конкурс на "верность настоящему металу", то самым ярым борцам с "false metal" Manowar еще пришлось бы побороться за первое место. Одним из вероятных претендентов на главный приз могла бы стать интернациональная четвёрка Messiah's Kiss, участники которой обитают в Германии, США и Великобритании (кстати, совсем недавно квартет стал квинтетом, так как туда добавился гитарист Jason Banks, брат басиста&nbsp;Wayne Banks'а). Как и на предыдущих двух работах, "Поцелуй Мессии" нарезает самый прямолинейный хэви-метал, который только можно себе вообразить. Здесь всё стандартно до жути, начиная с музыки, где явно прослушиваются влияния Judas Priest, Dio, Grave Digger и Accept (а продюсированием занимался никто иной, как "акцептовский" гитарист Herman Frank), названия альбома "Dragonheart" и заканчивая обложкой с изображением обнаженной девушки, демонстрирующей себя со спины. С одной стороны, стабильность это хорошо, с другой - Messiah's Kiss не делают даже малейших попыток к развитию своей музыки, но так как не они всё это дело придумали, то и слушать работы группы с каждым разом становится всё скучнее и скучнее.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 16.01.2009 news У Mike Tirelli рак желудка
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=288 alt="" hspace=0 src="/images/news_rus/2009.01/13390.jpg" width=198 align=left border=5>Вокалист <STRONG>MESSIAH'S KISS Mike Tirelli</STRONG> проходит курс лечения от рака желудка, который у него диагностировали осенью 2008 года. В марте нынешнего года<STRONG> Mike</STRONG> проведут операцию, и тогда станет ясно, насколько успешным было лечение. <STRONG>Mike Tirelli</STRONG> пел в таких группах как <STRONG>BURNING STARR</STRONG>, <B>RIOT</B>, <B>MESSIAH'S KISS</B>, <B>HOLY MOTHER</B>, <B>LASTLIX</B>&nbsp;и <STRONG>ZILLION.</STRONG> Мы желаем господину <STRONG>Tirelli</STRONG> скорейшего выздоровления.</FONT></P>
+Автор: Vit Belov
+
+### 11.08.2016 news Концертный клип MESSIAH&#39;S KISS
+
+<p>Концертное видео <strong>MESSIAH'S KISS</strong> на песню "<strong>Nobody Knows Your Name</strong>" можно посмотреть ниже. Песня вошла в последний альбом коллектива "<strong>Get Your Bulls Out</strong>", вышедший на <strong>Massacre Records</strong>.</p><p>Фирменный диск можно приобрести в магазине <strong>Escapemind.ru</strong> по адресу: <a href="http://escapemind.ru/goods/MESSIAHS-KISS-Get-Your-Bulls-Out-CD">http://escapemind.ru/goods/MESSIAHS-KISS-Get-Your-Bulls-Out-CD</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/688eE2cw7oM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 11.08.2016 news Live video from MESSIAH&#39;S KISS
+
+<p>Live video from<strong> MESSIAH'S KISS</strong> for the song "<strong>Nobody Knows Your Name</strong>" can be viewed below. The song was included in the group's latest album "<strong>Get Your Bulls Out</strong>", released on <strong>Massacre Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/688eE2cw7oM" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

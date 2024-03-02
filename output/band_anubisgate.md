@@ -105,6 +105,25 @@ Henrik Fevre - Bass, lead vocals on "Take Me Home"
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2011 news ANUBIS GATE выпускают новый альбом
+
+<P><IMG height=472 alt="" hspace=0 src="/images/news_rus/2011.07/20358.jpg" width=475 align=right border=0>Пятый одноимённый альбом датских prog-power metal'истов <STRONG>ANUBIS GATE</STRONG> выходит 13 сентября на <STRONG>Nightmare Records</STRONG>. Трек-лист:</P>
+<P>01. <B>Hold Back Tomorrow</B><BR>02. <B>The Re-Formation Show</B><BR>03. <B>Facing Dawn</B><BR>04. <B>World In A Dome</B><BR>05. <B>Desiderio Omnibus</B><BR>06. <B>Oh My Precious Life</B><BR>07. <B>Golden Days</B><BR>08. <B>Telltale Eyes</B><BR>09. <B>River</B><BR>10. <B>Circumstanced</B></P>
+Автор: Vit Belov
+
+### 18.11.2011 news Новый ролик ANUBIS GATE
+
+<P>Новая видео-работа датчан <STRONG>ANUBIS GATE</STRONG> на песню "<STRONG>Golden Days</STRONG>" доступна к просмотру ниже. Песня взята с последнего альбома группы "<STRONG>Anubis Gate</STRONG>", вышедшего в сентябре на <STRONG>Nightmare Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=8f2dd98f0f54c4be35e2" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

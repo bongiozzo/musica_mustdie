@@ -185,6 +185,819 @@ CD 2:
 * C группой "Warmen" Jari Kainulainen
 * C группой "Symfonia" Jari Kainulainen
 
+## Публикации
+
+### 05.07.2000 news Перемены в составе Evergrey.
+
+<p> Evergrey завербовали двух новых участников. Это басист Майкл Хеканссон, заменивший Дэниела Нойда, покинувшего группу по личным причинам, и клавишник Свен Карлссон. Оба парня раньше играли в шведском Black/Death-проекте Embraced, но теперь они могут считаться полноправными членами Evergrey.</p>
+
+Автор: Nybras
+
+### 05.07.2000 news Changes in structure of Evergrey.
+
+<p> Evergrey has recruited two new members. One new bassplayer Michael Hekansson, since Daniel Nojd left for personal reasons and one Keyboard player Sven Karlsson. Both the guys have earlier been members of the Swedish Black/Death-act Embraced but now they both can see themselves as fullworthy members of Evergrey.</p>
+
+Автор: Nybras
+
+### 18.08.2000 news Evergrey пишут новый материал.
+
+<p> Evergrey в настоящее время пишут новый материал для их предстоящего альбома, который предполагается записать в январе - марте 2001 года, а увидит свет он, вероятно, в апреле - мае. Студия - по-прежнему Los Angered Recordings под руководством Andy La Rocque.</p>
+
+Автор: Morsus
+
+### 18.08.2000 news Evergrey are writing new material.
+
+<p> Evergrey are currently writing new material for their upcoming album which is set to be recorded in January-March 2001 and will probably see it's release in April / May. The studio is as always Los Angered Recordings together with Mentor Andy La Rocque.</p>
+
+Автор: Morsus
+
+### 24.07.2001 news Новости о новом альбоме Evergrey
+
+<p> Очередной альбом шведских мелодичных пауэрщиков Evergrey "In Search for Truth" планируется выпустить на Inside Out Music 17-го сентября 2001 года. Альбом будет содержать следующие композиции: 1. "The Masterplan" 2. "Rulers of the Mind" 3. "Watching the Skies" 4. "State of Paralysis" 5. "The Encounter" 6. "Mark of the Triangle" 7. "Dark Waters" 8. "Different Worlds" 9. "Misled". Вскоре после выхода альбома состоится семинедельный североамериканский тур в его поддержку.</p>
+
+Автор: Morsus
+
+### 24.07.2001 news News about Evergrey&#39;s new album
+
+<p> The upcoming album of Sweden's melodic power metallists Evergrey "In Search for Truth" is currently scheduled for release by Inside Out Music in 17 September 2001. The album features the following track listing: 1. "The Masterplan" 2. "Rulers of the Mind" 3. "Watching the Skies" 4. "State of Paralysis" 5. "The Encounter" 6. "Mark of the Triangle" 7. "Dark Waters" 8. "Different Worlds" 9. "Misled". A seven-week North American tour in support of the new record is slated to take place shortly thereafter.</p>
+
+Автор: Morsus
+
+### 19.11.2001 news EVERGREY  поменяли клавишника...
+
+<p>"EVERGREY" вынуждены были расстаться с клавишником Sven Karlsson (также играющего с Soilwork). Причиной названа неудовлетворенность его работой в группе. Заменой ушедшему Свену стал Chris Rehn...</p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 15.07.2002 news Новости от EVERGREY
+
+<p>Шведская prog-power команда EVERGREY планирует с сентября начать запись своего четвертого альбома с рабочим названием " Recreation Day". Продюссером записи станет Neil Kernon (он также записывал альбомы CANNIBAL CORPSE, NEVERMORE, QUEENSRYCHE). Выпуск альбома намечен на начало 2003 года на Inside Out Music.</p>
+<p> Сейчас, группа активно занята поисками нового клавишника способного сразу влиться в работу над новым альбомом.</p>
+
+Автор: Dimas
+
+### 15.07.2002 news EVERGREY news
+
+<p>Swedish prog-power metal band EVERGREY are scheduled to begin recording their fourth full-length album, tentatively titled Recreation Day, in mid-September with producer Neil Kernon (i.e. CANNIBAL CORPSE, NEVERMORE, QUEENSRџCHE) for an early 2003 release through Inside Out Music.</p>
+<p> In other news, EVERGREY appear to have found a new keyboard player who is currently contributing to the songwriting process.</p>
+
+Автор: Dimas
+
+### 15.01.2003 news Новый альбом EVERGREY
+
+<p>Новый альбом шведской группы EVERGREY под названием "Recreation Day" выйдет 11 марта 2003 года на InsideOut America. Альбом был записан в Los Angered Recordings под руководством Andy LaRocque, а микшировался в Studio Fredman при участии Fredrik Nordstrom.</p>
+
+Автор: Dimas
+
+### 11.11.2003 news Переиздание первых альбомов EVERGREY
+
+<P>EVERGREY переиздадут два первых альбома. "The Dark Discovery"&nbsp;и "Solitude, Dominance, Tragedy", дополненные бонус-треками, выйдут в марте будущего года на Inside Out. Между тем группа уже начала работу над новым альбомом.</P>
+Автор: Morsus
+
+### 02.02.2004 news Evergrey готовят новый альбом
+
+<P>Evergrey выпустят новый альбом в апреле-мае. Между тем, последний на сегодняшний день альбом группы "Recreation Day" выдвинут на премию Swedish Grammy в категории "Лучший металлический альбом 2003 года".</P>
+Автор: Morsus
+
+### 02.02.2004 news EVERGREY will release a new album
+
+<P>EVERGREY will release a new album in April/May. In the meantime, EVERGREY are nominated with their current album Recreation Day for the Swedish Grammy, category Best Metal Album 2003.</P>
+Автор: Morsus
+
+### 03.03.2004 news Новый альбом EVERGREY
+
+<P><B><IMG height=300 src="/images/news_rus/2004.03/6139.jpg" width=300 align="left" hspace="15" vspace="5" border="1">EVERGREY</B> выпускают новый альбом <B>The Inner Circle </B>27 апреля на <B>INSIDE OUT</B>. Трэк-лист:</P>
+<P>01. <B>A Touch Of Blessing</B><BR>02. <B>Ambassador</B><BR>03. <B>In The Wake Of The Weary</B><BR>04. <B>Harmless Wishes</B><BR>05. <B>Waking Up Blind</B><BR>06. <B>More Than Ever</B><BR>07. <B>The Essence Of Conviction</B><BR>08. <B>Where All Good Sleep</B><BR>09. <B>Faith Restored</B><BR>10. <B>When The Walls Go Down</B> </P>
+Автор: Vit Belov
+
+### 14.05.2004 reviews Талантливая работа
+
+<P><I><B>EVERGREY</B> находятся вне стилевых рамок. Великолепная мелодика сочетается в их музыке со сложностью построения.</I></P>
+<P>Шведов обычно относят к progressive, это вполне можно утверждать.&nbsp;В таком случае,&nbsp;prog'ом можно назвать любую мелодичную музыку. <B>EVERGREY</B> лишь иногда используют орудия prog-metal (от современного <B>DREAM THEATER</B>), в остальном их музыку стоит сравнить со старыми образцами art-rock в утяжелённом варианте. Главное достоинство <B>'The Inner Circle'</B> - мелодии, которые доставят удовольствие каждому любителю МУЗЫКИ.</P>
+<P>Рассказывать здесь нечего, надо слушать. Единственное, что несомненно, так это композиторский талант группы, подобных альбомов не очень много на современной тяжёлой сцене. &nbsp;</P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 11.06.2004 reviews Когда эмоции бьют через край
+
+<P>Чем меня больше всего поразил пятый уже альбом шведских прогстеров Evergrey, так это своей потрясающей эмоциональностью и искренностью. Помимо великолепных мелодий и явного стремления никому не подражать, этот квинтет отличился на "Внутреннем кругу" исключительной, чистой как кристалл, прозрачностью звука, сумев, вместе с тем, совместить оный с&nbsp;насыщенными, почти агрессивными гитарными партиями. Сильный, на грани срыва, голос вокалиста удачно поддерживает высокоэмоциональную атмосферу альбома. Мне порой угадывается настроение - именно настроение, а не какие-то музыкальные заимствования - зрелого уже Marillion (естественно, времен Фиша, а не постфишевские отрыжки). Чувства настолько искренни, что кажется, что солист в, например, заключительной 'When The Walls Go Down' действительно плачет. Сильная, без сомнения, работа.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 27.08.2004 articles Хроника: Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах
+
+<P>Хроника: <EM>Alice Cooper занял нейтралитет – METALLICA-лучшая группа на планете – EVERGREY прокатили Израиль – Faust не хочет участвовать в проектах</EM></P>
+<P>Мы возвращаемся из отпуска с очередной серией Хроники. На прошлой неделе Alice Cooper обрушился с критикой на рок-звёзд, которые агитируют в США за демократического кандидата John Kerry на выборах президента (а таких, кстати, большинство). Он назвал, подобные вещи «преступлением против рок’н’ролла», который по определению должен быть вне политики. «Когда мы начинали играть эту музыку, мы сбегали из школы, чтобы волочиться за девочками, пить пиво, а не читать Washington Journal». «Если Вы прислушиваетесь к rock star, голосуя на выборах, Вы больший дурак, чем они. Почему мы Rock star? Да, потому что мы дураки!» «Это не значит, что меня не волнует, что ждёт нашу страну, это значит, что я не считаю, что моё мнение должно что-то значить для Вас». Alice занял нейтралитет и просто продолжает свой американский тур.</P>
+<P>Некогда metal-hard rock журнал Kerrang! назвал лауреатов прошедшего сезона. Лучшей группой на планете стала METALLICA, которая обошла в этой номинации SLIPKNOT, THE DARKNESS, H.I.M., RED HOT CHILLI PEPPERS и BLINK 182. Лучшим новичком года названа банда VELVET REVOLVER, состоящая из бывших участников GUNS’N’ROSES и STONE TEMPLE PILOTS. Настоящий прорыв совершили THE DARKNESS, которые стали обладателями двух наград, как лучшая британская группа и как лучший концертный состав. Из других лауреатов: лучший альбом - MUSE "Absolution", лучшее видео - H.I.M. – "Funeral of Hearts", зал славы – GREEN DAY, дух рока – ANTHRAX.</P>
+<P>Вчера в Тель-Авиве состоялся второй Metalist fest, хэдлайнерами которого должны были стать шведы EVERGREY. К несчастью даже за рубежом тяжёлый шоу-бизнес находится в таком плачевном состоянии, что организаторы и группы продолжают терять достаточно большие деньги. Из официального заявления Oron Tonami из Metalist Productions: «EVERGREY не вылетели из Швеции, из-за того, что, якобы, им не были предоставлены обратные билеты на ночь с 28 на 29 августа. Мы отсылали уведомления о приобретении этих билетов по факсу дважды, поэтому я думаю, что это объяснение не выдерживает никакой критики. А ведь только в вечер накануне вылета менеджмент группы подтверждал намерение EVERGREY вылететь в то утро. Тысячи людей, которых EVERGREY кинули, очень расстроены этим событием». Мне думается, что тысячи людей расстроены, а Oron потерял ещё и кучку денег, которые являются основной причиной этого заявления. EVERGREY не замедлили ответить, в своём сообщении они рассказали, что купленные обратные билеты были не на тот день, который им надо. После этого невнятного оправдания на группу обрушились с критикой все фэны, обвинявшие их во всём от сионизма до антисемитизма. Tom Englund (гитара/вокал): «Я вынужден более подробно объяснить ситуацию. Мы были очень впечатлены предложением выступить в Израиле, такой возможности нам может больше не представится. Мы назначили очень маленький для нас гонорар 700 долларов, кроме этого, организатор по контракту должен был приобрести нам билеты на самолёт из Гётеборга в обе стороны и оплатить проживание. Всё дело в том, что мы должны были вернуться в ночь с пятницы на субботу, а не с субботы на воскресение. Мы заняты записью и в субботу должны работать со струнным квартетом и солистами. Началось всё с того, что нам был забронирован самолёт из Стокгольма, до которого 6 часов пути (540 км). Мы договорились, что организатор заплатит нам ещё 1000 долларов на автобус и водителя до Стокгольма (поверьте, это стоит гораздо дороже). Уже в Стокгольме в шесть часов утра мы узнали, что возвращаемся не в тот день. Поменять билеты не удалось, и мы не вылетели». Здесь пресс-релиз в сокращённом варианте. В оригинале Tom беспрестанно объясняется в любви к израильтянам. Конечно, чувствует, что попал. Пускай, контракт не соблюли в Metalist Production (Englund обещал его предъявить, в случае чего), надо понимать, КОГО он кинул. Могли не поехать, куда угодно, но только не в Израиль. Я думаю, их теперь живьём съедят, а продажи в США резко упадут.</P>
+<P><BR>Бывший барабанщик EMPEROR Bard "Faust" Eithun ответил на этой неделе на многочисленные вопросы фэнов, скопившиеся в гостевой на его сайте. Вот некоторые из наиболее интересных его ответов: «Все, кто хоть как-то связан с музыкой, переживают смерть Quorthon из BATHORY. После его смерти появилось множество публикаций, в которых Quorthon идеализируется и идолизируется. Я не большой сторонник подобных вещей. Мне просто нравилась музыка BATHORY и печально, что умер один из основателей true black-metal. Именно, поэтому я приму участие в одном all-star проекте. На фестивале в Bergen Hole In The Sky я выйду на сцену вместе с&nbsp; Samoth, Apollyon, Grutle, Satyr, Abbath, Gaahl, Nocturno Culto и Ivar, чтобы сыграть классические вещи BATHORY». Кроме этого, Faust заявил, что не участвует сейчас больше не в каких проектах, так как основная их цель обыденный заработок денег и сиюминутное привлечение внимания к своей персоне. «Я не верю в re-union EMPEROR со мной. Во-первых, нет никаких предпосылок к возрождению группы, а во-вторых, в любом случае Trym будет более подходящей кандидатурой, так как он записывал с группой всю классику».&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 09.11.2005 news EVERGREY вернулись в студию
+
+<P><STRONG>EVERGREY</STRONG> вернулись в <STRONG>Division One Studios</STRONG>, где запишут свой пятый альбом с продюсерами <STRONG>Sanken Sandquist / Stefan Glauman</STRONG>, которые работали с <STRONG>DEF LEPPARD</STRONG>, <STRONG>RAMMSTEIN</STRONG>, <STRONG>BON JOVI</STRONG> и <STRONG>Britney Spears</STRONG>. Пластинка выйдет в апреле 2006 года на<STRONG> Inside Out</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.01.2006 news Новый альбом EVERGREY
+
+<P>Новый альбом <STRONG>EVERGREY</STRONG>, выходящий 4 апреля на <STRONG>InsideOut</STRONG>, будет называться <STRONG>"Monday Morning Apocalypse".</STRONG></P>
+Автор: Vit Belov
+
+### 08.02.2006 news Новости от INSIDE OUT MUSIC
+
+<P>2006 - год <B>EVERGREY</B>. В ближайших планах шведского квинтета - выпуск нового диска <B>"Monday Morning Apocalypse"</B> (релиз намечен на конец марта) и посещение церемонии вручения шведской Грэмми, откуда музыканты, в минувшем году порадовавшие шикарным DVD <B>"A Night To Remember"</B>, намерены унести свою первую серьезную награду. <BR><BR><B>Джим Матеос (FATES WARNING)</B>, <B>Кевин Мур</B> (ex-<B>DREAM THEATER, CHROMA KEY</B>) и <B>Майк Портной (DREAM THEATER)</B> готовят новый диск под вывеской <B>O.S.I. - the Office Of Strategic Influence</B>. Пластинка выйдет в конце марта и намерена реабилитировать провал альбома 3-хлетней давности. Следим за "осями"!<BR><BR>Выход очередной работы канадских прогстеров <B>SAGA</B> под рабочим названием <B>"Trust"</B> запланирован на начало апреля.&nbsp; <BR><BR><B>STREAM OF PASSION</B> выпустят сингл <B>"Out In The Real World"</B>. Кроме ремикшированной версии заглавного трека (оригинал ищите на дебютной пластинке группы - <B>"Embrace The Storm"</B>), 7-дюймовка будет содержать две новых версии старых песен <B>AYREON</B> и "цепеллиновский" кавер "<B>When The Levee Breaks"</B>. В магазинах - с 10 февраля.<BR><BR>Непоколебимый <B>Ройне&nbsp;Столт</B> почти закончил работу над новым комбо от <B>THE FLOWER KINGS</B>. Двойной альбом <B>"Paradox Hotel"</B> выйдет в самое ближайшее время.<BR>&nbsp;<BR>Знаменитый фестиваль <B>ProgPower</B> продолжает захватывать территории - вслед за площадками США и Страны Тюльпанов всю "силу прога" познают подданные Британской Короны. Представление назначено на 25 марта. Среди групп и музыкантов, подавших заявку на участие - <B>THERION, THRESHOLD, ORPHANED LAND и FREEDOM CALL</B>.<BR><BR><B>VANDEN PLAS</B> перенесли выход своего альбома <B>"Christ 0"</B> на конец апреля из-за проблем с микшированием. Напомним, что <B>"Christ 0"</B> - это концептуальная работа, основанная на классическом романе Александра Дюма "Граф Монте-Кристо".<BR><BR>В марте <B>Revisited Records</B> начинает издание бэк-каталога <B>PETE</B> <B>TOWNSHEND</B>. Первыми релизами станут <B>"Who Came First", "Rough Mix" </B>(совместно с <B>Ronnie Lane</B>), <B>"Empty Glass", "Scoop"</B>. Также в планах <B>Revisited</B>&nbsp; - издание более 20 сольных альбомов участника <B>Yello CARLOS PERON</B>, которые будут выпущены с интервалом в несколько месяцев. Серия начнется в марте с издания альбомов <B>"Impersonator I", "Nothing Is True, Everything Is Permitted", "Die Sch&#246;pfung der Welt", "Gold For Iron" и "Terminatrix".</B> Также вскоре ожидается еще 2 переиздания <B>FRANK MARINO & MAHOGANY RUSH</B> (<B>"Double Live"</B> и <B>"From The Hip"</B>) и еще 3 переиздания <B>GURU GURU</B> (<B>"Dance Of The Flames", "Hey Du", "30 Jahre live"</B>). <A href="http://www.petetownshend.co.uk/"><U>www.petetownshend.co.uk</U></A> <A href="http://www.carlosperon.de/"><U>www.carlosperon.de</U></A>&nbsp;<A href="http://www.mahoganyrush.com/"><U>www.mahoganyrush.com</U></A> <A href="http://www.guru-guru.com/"><U>www.guru-guru.com</U></A>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>RPWL</B> готовят к выпуску свой концертный DVD. Его основной частью станут съемки концерта в Баварии для телепрограммы "Rockpalast". DVD планируется к выпуску в начале лета. Группа также планирует концерты в Германии, Франции, Люксембурге и Испании. <A href="http://www.rpwl.de/"><U>www.rpwl.de</U></A><BR><BR>-------------------------------------------------------------------- <BR>НОВЫЕ РЕЛИЗЫ / <B>InsideOut Music<BR></B>--------------------------------------------------------------------<BR><BR><B>JADIS: "Photoplay"</B>, February 24th<BR><B>PROTO-KAW: "The Wait Of Glory"</B>,&nbsp;January 20th <BR><B>SPIRITUAL BEGGARS: "Live Fire"</B> (DVD), January 27th<BR><B>STREAM OF PASSION: "Out In The Real World"</B> (CD-Single), February 10th<BR><B>THE TANGENT: "A Place In The Queue"</B>, February 3rd<BR><B>THE DEVIN TOWNSEND BAND: "Synchestra"</B>,&nbsp; January 27th<BR><BR>-----------------------------------------------------<BR>НА ПОДХОДЕ / <B>InsideOut Music</B><BR>-----------------------------------------------------<BR><BR><B>ASIA: "Architect of Time"</B>, Mai 5th<BR><B>EVERGREY: "Monday Morning Apocalypse"</B>, March 24th<BR><B>THE FLOWER KINGS: :Paradox Hotel"</B> (double CD), March 24th<BR><B>O.S.I.</B>: new studio album, March 31st<BR><B>SAGA: "Trust"</B> (working title),&nbsp; April 21st<BR><B>UMPHREY'S McGEE: "Safety In Numbers"</B>,&nbsp; March 31st<BR><B>VANDEN PLAS: "Christ 0"</B>, April 21st<BR><BR>---------------------------------------------------------------------------<BR>Новинки <B>Revisited Records</B> &#8730; подразделение <B>InsideOut Music</B><BR>---------------------------------------------------------------------------<BR><BR><B>KRAAN: "Flyday"</B>,&nbsp; December 9th<BR><B>KRAAN: "Dancing In The Shade"</B>,&nbsp; December 9th<BR><B>KRAAN: "Live 2001"</B>, December 9th<BR><B>KLAUS SCHULZE: "Das Wagner Desaster - Live"</B>, December 16th<BR><B>KLAUS SCHULZE: "Moondawn"</B>, December 16th<BR><B>KLAUS SCHULZE: "Angst"</B>, December 16th<BR><B>KLAUS SCHULZE: "Vanity Of Sounds"</B>, December 16th<BR><BR>-------------------------------------------------------------------------------------<BR>НА ПОДХОДЕ <B>/ Revisited Records</B> &#8730; подразделение <B>InsideOut Music</B><BR>-------------------------------------------------------------------------------------<BR><BR><B>FRANK MARINO & MAHOGANY RUSH: "Double Live"</B>, April 28th<BR><B>FRANK MARINO & MAHOGANY RUSH: "From The Hip"</B>, 28. April 28th<BR><B>GURU GURU: "Dance Of The Flames"</B>, April 28th<BR><B>GURU GURU: "Hey Du"</B>,&nbsp;April 28th<BR><B>GURU GURU: "30 Jahre live"</B>, April 28th<BR><B>CARLOS PERON: "Impersonator I"</B>, March 31st<BR><B>CARLOS PERON: "Nothing Is True, Everything Is Permitted"</B>,&nbsp;March 31st<BR><B>CARLOS PERON: "Die Sch&#246;pfung der Welt"</B>, March 31st<BR><B>CARLOS PERON: "Gold For Iron"</B>, March 31st<BR><B>CARLOS PERON: "Terminatrix"</B>, March 31st<BR><B>PETE TOWNSHEND: "Who Came First"</B>, March 24th<BR><B>PETE TOWNSHEND & RONNIE LANE: "Rough Mix"</B>, March 24th<BR><B>PETE TOWNSHEND: "Empty Glass"</B>, March 24th<BR><B>PETE TOWNSHEND: "Scoop"</B>, March 24th<BR><BR>--------------------------------------<BR><B>InsideOut</B> Дистрибьюция<BR>--------------------------------------<BR><BR><B>RITUAL: "Live"</B> (double CD), January 20th <BR><BR>------------------------------------------------------------<BR><B>InsideOut</B> Дистрибьюция / <B>ECLECTIC DISCS</B><BR>------------------------------------------------------------<BR><BR><B>BARCLAY JAMES HARVEST: "All Is Safely Gathered In"</B> (5 CD box),&nbsp;December 16th<BR><B>EDGAR BROUGHTON BAND: "Live Hits Harder"</B>,&nbsp;February 17th<BR><B>EDGAR BROUGHTON BAND: "Bandages"</B>, February 17th<BR><B>SAINT STEVEN: "Saint Steven"</B>,&nbsp;February 17th<BR><BR>-----------------<BR>новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+Автор: Ixtiandr
+
+### 26.02.2006 news Новости от Inside Out
+
+<P>Ввиду отсутствия какого-либо официального подтверждения из стана <B>ASIA</B>, не понятно, выйдет ли долгожданный диск <B>"Architect Of Time"</B> в начале мая, как было запланировано ранее, или же дата релиза будет отодвинута на более поздний срок. Возможно, причиной затянувшегося молчания музыкантов послужили противоречивые слухи о воссоединении группы в классическом составе - <B>Джефф Даунс, Стив Хауи, Карл Палмер</B> и <B>Джон Веттон</B>.<BR><BR>Весь мир застыл в ожидании нового полноформатника шведских кудесников <B>EVERGREY</B>. В это времясами музыканты активно продвигают грядущий релиз, намереваясь еще до выхода <B>"Monday Morning Apocalypse"</B> взорвать три престижных танцпола: <B>Finnish Metal Expo</B> (Хельсинки, Финляндия), <B>Metal Mania Festival</B> (Катовице, Польша) и <B>The Underground</B> (Лондон, Англия). Официальная презентация диска пройдет в два этапа - сначала (24 марта) группа отыграет в Париже, а на следующий день (25 марта) - в немецком городе Бохум. Кроме того, в самом начале марта на прилавки шведских магазинов попадет сингл на заглавную композицию с надвигающегося CD.</P>
+<P><BR><B>Джим Матьос (FATES WARNING), Кевин Мур (ex-DREAM THEATER, CHROMA KEY)</B> и <B>Майк Портной (DREAM THEATER)</B> отложили выход второго альбома своего проекта <B>O.S.I. - "Free"</B> - на конец апреля.<BR><BR><B>RIVERSIDE</B> отправляются по городам и весям. Новый участок трассы <B>"Second LIVE Syndrome Tour" </B>пройдет через Польшу, Бельгию, Германию, Францию, Италию, Нидерланды и Словакию. Среди запланированных летних шоу - выступление группы на американском <B>Nearfest</B> (North East Art Rock Festival).<BR><BR>Новый диск <B>DEVIN TOWNSEND BAND - "Synchestra"</B> - попал в национальные чарты Германии и Финляндии. И если металлическая начинка финских хит-парадов давно воспринимается как данность, 85-я позиция в немецкой "сотне лучших" невольно вызывает уважение.<BR><BR>Короли джем-рока <B>UMPHREY'S MCGEE</B> покоряют Европу. Накануне выхода новой порции виниловой радости - <B>"Safety In Numbers"</B> - группа намерена посетить Гамбург, Милан, Лондон и Париж. Гастрольный тур завершится в Амстердаме, где музыканты выступят на традиционном трехневном фестивале <B>"Jam in the Dam"</B>. <BR><BR>Новости от <B>Revisited Records</B>. 1) Переиздание полного бэк-каталога <B>Пита Тауншенда</B> начнется в марте. Первыми ласточками новой серии станут <B>"Who Came First", "Rough Mix"</B> (при участии <B>Ронни Лейна</B>), <B>"Empty Glass"</B> и<B> "Scoop"</B>. 2) Конец весны ознаменуется выпуском старых работ <B>Хольгера Цукая</B>, основателя легендарных <B>CAN</B>. В планах лейбла - полное переиздание работ музыканта. 3) План релизов <B>Revisited Records</B> пополнился более чем 20 новыми позициями - сольными дисками основателя <B>YELLO Карлоса Перона</B>. Первые всходы появятся уже в марте - <B>"Impersonator I", "Nothing Is True, Everything Is Permitted", "Die Schopfung Der Welt"</B> и <B>"Gold For Iron"</B>. 4) Кроме того, на пороге два новых тиража от <B>FRANK MARINO & MAHOGANY RUSH - "Double Live"</B> и <B>"From The Hip"</B>, - три диска <B>GURU GURU ("Dance Of The Flames", "Hey Du", "30 Jahre Live")</B> и четыре обновки от <B>AMON DUUL II ("Phallus Dei", "Lemmingmania", "Tanz Der Lemminge", "Yeti")</B>.<BR>--------------------------------------------------------------------<BR>СВЕЖАЯ ВЫПЕЧКА | <B>InsideOut Music</B><BR>--------------------------------------------------------------------<BR><B>JADIS:&nbsp; "Photoplay"</B>, RELEASE: 24 февраля<BR><B>STREAM OF PASSION: "Out In The Real World"</B> (CD-Single), 24 февраля <BR><B>THE TANGENT: "A Place In The Queue"</B>, 3 февраля<BR><B>THE DEVIN TOWNSEND BAND: "Synchestra"</B>, 27 января <BR>----------------------------------------------------<BR>В РАБОТЕ | <B>InsideOut Music</B><BR>-----------------------------------------------------<BR><B>EVERGREY: "Monday Morning Apocalypse"</B> (CD single, Sweden only), 6 марта <BR><B>EVERGREY: "Monday Morning Apocalypse"</B>, 24 марта<BR><B>THE FLOWER KINGS: "Paradox Hotel"</B> (double CD), 24 марта <BR><B>O.S.I.: "Free"</B>, 21 апреля <BR><B>PAATOS</B>: new studio album, 19 мая <BR><B>SAGA: "Trust"</B>, 21 апреля&nbsp; <BR><B>UMPHREY'S McGEE:&nbsp;"Safety In Numbers"</B>, 31 марта <BR><B>VANDEN PLAS: "Christ 0"</B>, 31 марта <BR>-----------------------------------------------------------------------------------------------------<BR>В РАБОТЕ / <B>Revisited Records</B> - A division of <B>InsideOut Music</B><BR>-----------------------------------------------------------------------------------------------------<BR><B>Holger Czukay:&nbsp;"Canaxis"</B>, 26 мая <BR><B>Holger Czukay:&nbsp;"Radio Wave Surfer"</B>, 26 мая<BR><B>Holger Czukay:&nbsp;"Good Morning Story"</B>, 26 мая<BR><B>Holger Czukay:&nbsp;"Linear City"</B>, 26 мая<BR><B>GURU GURU:&nbsp;"Dance Of The Flames"</B>, 28 апреля<BR><B>GURU GURU:&nbsp;"Hey Du"</B>, 28 апреля<BR><B>GURU GURU:&nbsp;"30 Jahre live"</B>, 28 апреля<BR><B>Carlos Peron:&nbsp;"Impersonator I"</B>, 31 марта <BR><B>Carlos Peron:&nbsp;"Nothing Is True, Everything Is Permitted&nbsp;"</B>, 31 марта <BR><B>Carlos Peron:&nbsp;"Die Schoepfung der Welt"</B>, 31 марта <BR><B>Carlos Peron:&nbsp;"Gold For Iron"</B>, 31 марта <BR><B>Klaus Schulze:&nbsp;"Irrlicht"</B>, 28 апреля<BR><B>Klaus Schulze:&nbsp;"Dziekuje Poland Live&nbsp;83"</B>, 28 апреля<BR><B>Klaus Schulze:&nbsp;"Are You Sequenced?"</B>, 28 апреля<BR><B>Klaus Schulze: "The Crime Of Suspense"</B>, 28 апреля<BR><B>Pete Townshend:&nbsp;"Who Came First"</B>, 24 марта<BR><B>Pete Townshend & Ronnie Lane:&nbsp;"Rough Mix"</B>, 24 марта<BR><B>Pete Townshend:&nbsp;"Empty Glass"</B>, 24 марта<BR><B>Pete Townshend:&nbsp;"Scoop"</B>, 24 марта<BR><BR>Подготовка материала - Сергей "Can't Do" Хитряков <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A><BR></P>
+Автор: Ixtiandr
+
+### 26.02.2006 news CULT OF LUNA примет участие в фестивале Close Up
+
+<P>Служители апокалиптического метала шведы <B>CULT OF LUNA</B>, новейший альбом которых, <B>"Somewhere Along The Highway"</B>, увидит свет на <B>Earache</B> 24 апреля, выступят на фестивале <B>Close Up Festival</B> 15 апреля.</P>
+<P>Двухдневный фест, организованный журналом <B>Close Up</B>, пройдет 15 и 16 апреля в столице Швеции Стокгольме. Там также примут участие такие команды, как <B>OPETH, EVERGREY, BOLT THROWER, BLINDSIDE, AMON AMARTH</B>.</P>
+Автор: Ixtiandr
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 11.05.2006 reviews Поворот не туда
+
+<P>Да что вдруг случилось с любимыми многими "волосатиками" из шведского квинтета Evergrey? Звёздами себя, что ли, почувствовали? Иначе откуда такое пренебрежительное отношение к исполнению материала? После очень сильного, эмоционального "The Inner Circle" я ждал работы, которая, по крайней мере, была бы на уровне этого альбома. Вместо этого шведы сделали очень опасный шаг от прогрессива в сторону чуть ли не готик-метала, упростив и "окоммерциолизовав" свой саунд практически до уровня MTV. Вокал вроде бы такой же надрывный, но он не несет в себе и десятой доли эмоций, свойственных группе. Саунд стал более модерновый, структура песен как бы проще сама по себе, но труднее (но не сложнее) по восприятию. Ни одна вещь не закрадывается так глубоко в душу, как это было раньше при прослушивании пластинок Evergrey. Пошла ли команда на поводу моды? Или фантазия покинула музыкантов? Не могу сказать, что данная работа плохая, но Evergrey просто потеряли своё лицо. Все вещи с альбома кажутся какими-то вымученными, "от сердца" (как было раньше) здесь ничего не идет. Вообще, всё это дело мне начинает напоминать последние релизы Katatonia... О днях былых напоминает разве что 'In Rememberance' и 'The Dark I Walk You Through'. Если дело так пойдет и дальше, то есть большие сомнения на предмет пребывания данного коллектива на лэйбле InsideOut. Очень жаль, что новый опус Evergrey еще раз подтверждает, что интересных релизов в последнее время становится всё меньше и меньше. Наверное, данный альбом будет у меня одним из лидеров в категории "разочарование года", к сожалению...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 18.05.2006 news EVERGREY в Москве
+
+<P>EVERGREY<BR>Единственный концерт в Москве</P>
+<P>17 июня, 2006,<BR>клуб АПЕЛЬСИН</P>
+<P>Мы ждем вас по адресу:<BR>м. Краснопресненская / м. Улица 1905 года,<BR>ул. Малая Грузинская, 15, тел.: (095) 253-0-253<BR>E-MAIL: <A href="mailto:info@apelsinclub.ru">info@apelsinclub.ru</A><BR>ICQ: 280879948</P>
+Автор: Vit Belov
+
+### 26.07.2006 news Замена басиста в EVERGREY
+
+<P>Шведский коллектив&nbsp;<B>EVERGREY</B> покинул басист <B>Michael Hakansson</B>. Причина его ухода - музыкальные разногласия с остальными музыкантами. Пока же, его заменой стал бывший басист <B>HAMMERFALL</B>&nbsp;<B>Fredrik Larsson</B>.</P>
+Автор: Dimas
+
+### 08.08.2007 news EVERGREY нашли басиста
+
+<P><STRONG>EVERGREY</STRONG> объявили, что новым басистом группы стал бывший музыкант <STRONG>STRATOVARIUS</STRONG> <STRONG>Jari Kainulainen.</STRONG></P>
+Автор: Vit Belov
+
+### 03.03.2008 news Название нового EVERGREY
+
+<P>Новый альбом <STRONG>EVERGREY</STRONG> будет называться "<STRONG>Torn</STRONG>". Подробности последуют.</P>
+Автор: Vit Belov
+
+### 09.05.2008 news EVERGREY на SPV
+
+<P><STRONG>EVERGREY</STRONG> подписали контракт с<STRONG> SPV</STRONG>. Соглашение включает в себя не только новый альбом шведов "<STRONG>Torn</STRONG>", выходящий в сентябре, но и все старый пластинки группы, которые будут переизданы на <STRONG>SPV</STRONG> в ближайшем будущем.</P>
+Автор: Vit Belov
+
+### 01.08.2008 news Новый альбом EVERGREY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>EVERGREY "Torn"</STRONG> выходит 22 сентября на<STRONG> SPV</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Broken Wings</B><BR>02. <B>Soaked</B><BR>03. <B>Fear</B><BR>04. <B>When Kingdoms Fall</B><BR>05. <B>In Confidence</B><BR>06. <B>Fail</B><BR>07. <B>Numb</B><BR>08. <B>Torn</B><BR>09. <B>Nothing Is Erased</B><BR>10. <B>Still Walk Alone</B><BR>11. <B>These Scars</B></P>
+Автор: Vit Belov
+
+### 03.10.2008 reviews Когда выход альбома - плохая новость
+
+<P>Когда говорят, есть, мол, хорошая и плохая новость, какую хочешь сначала, то, как правило, все предпочитают услышать сперва&nbsp; плохую. Сделаем наоборот. Итак, новость хорошая. Шведские прог-металлеры Evergrey подписались на Steamhammer/SPV, притом этот лейбл планирует переиздание всего бэк-каталога группы, скорее всего, с бонусным материалом,&nbsp;а такового, по утверждению самих музыкантов, накопилось за 12 лет весьма много. Так что, фанаты, копите денежки. А вот новость плохая. Evergrey выпустили седьмой студийный альбом под названием "Torn". После совершенно провального предшественника "Monday Morning Apocalypse" приходили в голову мысли, что, быть может, это была просто передышка на опушке? Однако ожидания были напрасны, а высказывание лидера коллектива Тома Энглунда, что новый альбом это "a modern mix of In Search Of Truth and Recreation Day" верно лишь в слове "modern". Эмоции из голоса Тома пропали уже совершенно начисто, в композициях музыканты пытаются сгладить все теоретически возможные острые углы и уверенно двигаются, несмотря на всё же довольно тяжелые риффы, и дальше в сторону мейнстрима. Первоначально кажущаяся хитовость композиций ('Broken Wings', 'When Kingdoms Fall', 'Numb') на поверку оказывается потерей Evergrey своего лица, так скоро их никто не отличит от других. "Torn" слушается каким-то вымученным, мол, надо ж раз в два года студийники выпускать. Тем более странно звучат сообщения о том, что группа даже отменила часть своего турне, чтобы подольше поработать над песнями в студии. Нет, к качеству записи (продюсировали альбом сам Энглунд и барабанщик Экдал) и исполнения (в группе теперь новый басист, Яри Кайналайнен, долго время дергавший четыре струны у финских пауэрщиков Stratovarius) претензий-то нет. Но нет хороших песен, нет эмоций, нет атмосферы, нет души в конце концов&nbsp;- релиз как релиз, таких выходят сегодня тонны. Уверен, что фанаты Evergrey всё равно воспримут диск на ура, но мне остается только досадливо всплеснуть руками. Нет, "Torn" это совсем не то, что мы ждем от этого очень хорошего - боюсь, теперь придется добавлять "в прошлом" - коллектива. В общем и целом, сама пластинка не так уж и плоха, если бы мы не знали настоящих Evergrey, так что "в целях объективности" ставлю таки 6 баллов. Для любителей интересных деталей замечу, что на заключительном треке 'These Scars' можно услышать голос подруги Энглунда, которую зовут Carina Kjellberg, а лимитированное издание выходит с бонусом 'Caught In A Lie'.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 08.05.2010 news EVERGREY меняют состав
+
+<P>Вокалист/гитарист <STRONG>EVERGREY</STRONG> <STRONG>Tom S. Englund</STRONG>&nbsp;сообщил, что по обоюдному согласию он и клавишник <STRONG>Rikard Zander</STRONG> решили расстаться с гитаристом <STRONG>Henrik Danhage</STRONG> и барабанщиком <STRONG>Jonas Ekdahl</STRONG>. Кроме этого, группу покинул и басист <STRONG>Jari Kainulainen</STRONG>, который продолжит карьеру в<STRONG> KILLING MACHINE</STRONG>, где ему предложили большую зарплату.</P>
+<P><STRONG>EVERGREY</STRONG> не прекращают свою деятельность. Новый альбом уже сочинён и наполовину записан. Он выйдет осенью этого года, а пока шведы отправляются в тур с новыми музыкантами. Ими стали:</P>
+<P>* <B>Marcus Jidell</B> (ex-ROYAL HUNT) - гитара<BR>* <B>Johan Niemann</B> (ex-THERION, MIND'S EYE) - бас<BR>* <B>Hannes Van Dahl</B> - барабаны</P>
+Автор: Vit Belov
+
+### 18.11.2010 news Восьмой студийный альбом EVERGREY
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17628.jpg" width=400 height=400>Шведы&nbsp;<B itxtvisited="1">EVERGREY</B> выпускают свой восьмой студийный альбом, <B itxtvisited="1">"Glorious Collision"</B>, на <B itxtvisited="1">Steamhammer</B>/<B itxtvisited="1">SPV</B> в следущие даты:<BR itxtvisited="1"><BR itxtvisited="1">Германия: 25 февраля<BR itxtvisited="1">Остальная Европа: 28 февраля<BR itxtvisited="1">С.Ш.А./Канада: 22 февраля</P>
+<P>Над альбомом работало три&nbsp;новых участника группы:&nbsp;гитарист&nbsp;<STRONG>Marcus Jidell</STRONG> (<STRONG>ROYAL HUNT</STRONG>), басист <B itxtvisited="1">Johan Niemann</B> (ex-<STRONG>THERION</STRONG>) и&nbsp;двадцатилетний барабанщик&nbsp;<STRONG>Hannes Van Dahl</STRONG>.</P>
+<P>Трек-лист<STRONG> "Glorious Collision"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Leave It Behind Us</B><BR itxtvisited="1">02. <B itxtvisited="1">You</B><BR itxtvisited="1">03. <B itxtvisited="1">Wrong</B><BR itxtvisited="1">04. <B itxtvisited="1">Frozen</B><BR itxtvisited="1">05. <B itxtvisited="1">Restoring The Loss</B><BR itxtvisited="1">06. <B itxtvisited="1">To Fit The Mold</B><BR itxtvisited="1">07. <B itxtvisited="1">Out Of Reach</B><BR itxtvisited="1">08. <B itxtvisited="1">The Phantom Letters</B><BR itxtvisited="1">09. <B itxtvisited="1">The Disease ...</B><BR itxtvisited="1">10. <B itxtvisited="1">It Comes From Within</B><BR itxtvisited="1">11. <B itxtvisited="1">Free</B><BR itxtvisited="1">12. <B itxtvisited="1">I'm Drowning Alone</B><BR itxtvisited="1">13. <B itxtvisited="1">... And The Distance</B><BR itxtvisited="1">14. <B itxtvisited="1">... And The Distance</B> (Carina bonus track)</P>
+Автор: Headcrusher
+
+### 10.02.2011 news EVERGREY: клип на песню &quot;Wrong&quot;
+
+<P><STRONG>"Wrong" -</STRONG> новое видео шведов <B itxtHarvested="1" itxtNodeId="450">EVERGREY</B>, можно посмотреть ниже. Режжисёр клипа стал&nbsp;<B itxtHarvested="1" itxtNodeId="449">Patric Ullaeus</B> из <B itxtHarvested="1" itxtNodeId="448">Revolver Film Company</B>, кто прежде работал с <STRONG>DIMMU BORGIR</STRONG>, <B itxtHarvested="1" itxtNodeId="446">LACUNA COIL</B>, <B itxtHarvested="1" itxtNodeId="445">IN FLAMES</B>, <B itxtHarvested="1" itxtNodeId="444">SONIC SYNDICATE</B>, <B itxtHarvested="1" itxtNodeId="443">KAMELOT</B> и другими.<BR itxtNodeId="442"></P>
+<P>Комментирует <STRONG>Tom Englund</STRONG> (фронтмен <STRONG>EVERGREY</STRONG>): </P>
+<P><EM>"В очередной раз <B itxtHarvested="1" itxtNodeId="438">Patric Ullaeus</B> и парни из&nbsp;<B itxtHarvested="1" itxtNodeId="437">Revolver</B> film&nbsp;заставили пятерых глупых парней из Швеции, выглядеть&nbsp;на миллион долларов; ну может быть и не на миллион, но точно лучше, чем проститутки за 20 долларов на которых мы обычно похожи."</EM></P>
+<CENTER>
+<OBJECT width=450 height=370>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=05b5aea1e08078f29f7f" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 24.06.2016 news Трейлер нового EVERGREY
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом<strong> EVERGREY "The Storm Within"</strong>, которым группа отпразднует 20-летний юбилей, выходит 9 сентября на<strong> AFM</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>“Distance”<br> “Passing Trough”<br> “Someday”<br> “Astray”<br> “The Impossible”<br> “My Allied Ocean”<br> “In Orbit” (Featuring Floor Jansen)<br>“The Lonely Monarch”<br> “The Paradox Of The Flame”<br> “Disconnect”<br> “The Storm Within”</p><p>&nbsp;<center><img width="638" height="638" src="/images/news_rus/2016.06/29457.jpg" border="0"><p></p><p><center></center></center>
+Автор: Vit Belov
+
+### 24.06.2016 news New album by EVERGREY in September
+
+<p>New<strong> EVERGREY</strong> album "<strong>The Storm Within</strong>", which the band will celebrate its 20th anniversary, will be out on September 9 via <strong>AFM</strong>.</p><p>Track list:</p><p>“Distance”<br> “Passing Trough”<br> “Someday”<br> “Astray”<br> “The Impossible”<br> “My Allied Ocean”<br> “In Orbit” (Featuring Floor Jansen)<br>“The Lonely Monarch”<br> “The Paradox Of The Flame”<br> “Disconnect”<br> “The Storm Within”</p><p>&nbsp;<center><img width="638" height="638" src="/images/news_rus/2016.06/29457.jpg" border="0"><p></p><p><center></center></center>
+Автор: Vit Belov
+
+### 29.07.2016 news Новое видео EVERGREY
+
+<p>Шведская progressive metal группа<strong> EVERGREY</strong> выпустила видеоклип на песню «<strong>Distance</strong>» со своего нового альбома "<strong>The Storm Within</strong>". Режиссером клипа является<strong> Патрик Уллаус</strong> (Patric Ullaeus, rEvolver Film Company), известный по работе с такими группами, как Kamelot, Children Of Bodom, Dimmi Borgir, Amaranthe, In Flames, Europe, Lacuna Coil и многими другими.</p><p>Десятый студийный альбом коллектива увидит свет 9 сентября на <strong>AFM Records</strong>. На "The Storm Within" группа обещает представить наиболее прогрессивный материал с точки зрения звучания, чем на предыдущих девяти альбомах, с характерной атмосферой мрака и меланхолии, но, в то же время, более легкий для восприятия, чем ранее. </p><p>"The Storm Within" – концептуальный альбом, и основатель и фронтмен группы Том Энглунд считает идею, которая лежит в основе текстов песен альбома, одной из самых масштабных концепций в истории Evergrey, и, вероятно, самой «личной». Это, наверное, первый альбом группы о любви.<br>&nbsp;<br>"The Storm Within" будет доступен в стандартном CD, Digipak-издании, на виниле, а также будет выпущено лимитированное бокс-сет издание. Альбом в предварительной продаже: <a href="http://shop.afm-records.de/en/evergrey-en">http://shop.afm-records.de/en/evergrey-en</a></p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/WqoJTWmG4Xs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.07.2016 news Новый клип EVERGREY
+
+<p>New video by<strong> EVERGREY</strong> for the song "<strong>Distance</strong>" can be viewed below.&nbsp;Track taken from new album of Swedes "<strong>The Storm Within</strong>", which will be released&nbsp;via <strong>AFM</strong> on September, 9.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/WqoJTWmG4Xs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 19.08.2016 news Новый клип EVERGREY
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое видео<strong> EVERGREY</strong> на песню "<strong>The Paradox Of The Flame</strong>" можно посмотреть ниже. В записи этой песни приняла участие жена вокалиста группы <strong>Carina Englund</strong>. Новый альбом шведов "<strong>The Storm Within</strong>" выйдет 9 сентября.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/AzvFfuYGxoU" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 19.08.2016 news New video by EVERGREY
+
+<p><strong>EVERGREY</strong>'s new video for the song "<strong>The Paradox Of The Flame</strong>" can be viewed below. In the recording of the song was featured the wife of vocalist <strong>Carina Englund</strong>. Swedes new album "<strong>The Storm Within</strong>" will be released on 9 September.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/AzvFfuYGxoU" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 19.08.2016 articles Владимир &#39;Impaler&#39; Миловидов: &quot;Как слушателя меня METALLICA не интересует&quot;.
+
+<p><em><center><img width="500" height="500" src="/images/articles_rus/2016.08/29831.jpg" border="0"></em></p><p><em>Продолжаем пока нашу не названную рубрику интервью с главным редактором журнала In Rock Владимиром 'Impaler' Миловидовым. Главной темой беседы стал выход на этой неделе нового номера издания.</em></p><p><strong>На этой неделе вышел третий в этом году номер InRock. Не могу не начать с поздравлений и разговора об этом номере. Обрисуй вкратце, на что должен обратить внимание читатель в этот раз.</strong></p><p>Спасибо! В этом номере, как всегда, много странного и малоизвестного. Например, итальянский прогрессивный "многостаночник" Фабио Дзуффанти - у него больше десятка групп, в которых он играет в разных стилях, от классического прог-рока до нойза... Или история стил-гитариста группы Juicy Lucy Гленна Кемпбелла, которую наш автор Пётр Кулеш готовил, на моей памяти, лет пять! Такие персонажи, может быть, не так на слуху, но их жизнь, со всеми поворотами, удачами и неудачами - отражение того безумного интересного времени. Я рад тем интервью, которые у меня получились - почему-то в основном с металлистами. Особенно Эрик Питерсон из Testament - и про трэш рассказал, и про стрельбу из лука, и даже про Трампа. Вкратце - вот.</p><p><strong>Да. С удовольствием почитал и TESTAMENT, и IRON SAVIOR. Как ты относишься к этим группам и их современному творчеству?</strong></p><p>Testament я начал слушать с диска "The Gathering", до сих пор мой любимый, хотя сказать, что я сильно углубился в их творчество и знаю всё наизусть, не могу. Просто хорошая группа, честная, со своим лицом, и с гениальным Сколником в составе. Одно жаль - интервью сделал, а на концерт так и не попал из-за другой своей работы. Бывает. Что касается Iron Savior, то я очень любил и люблю Helloween и всю их музыкальную семейку, и Пит Зилк занимает в ней достойное место. На мой взгляд, у них был грандиозный дебют, хороший второй альбом, потом всё пошло на спад, а затем - очень сильный альбом-возвращение "The Landing". Следующие два снова вышли более формальные, что ли. В интервью, на мой взгляд, Пит сказал одну вещь, которую я раньше нигде не встречал - что история "Железного спасителя" вдохновлена немецкоязычной фантастической серией "Perry Rhodan", что-то типа печатного сериала, который выходит с 1961 года и уже опубликовано 2800 выпусков, и Пит их все или почти все читал! Вот это настоящее, хорошее безумие. И, я так понял, мыслящий космический корабль там тоже есть.</p><p><strong>В последнее время InRock выходит не так регулярно, как некоторое время назад. Читатели волнуются. Что можешь им сказать?</strong></p><p>Shit happens, что тут сказать. Но пока нет оснований, чтобы сдохнуть - во всяком случае, читательское ядро сохраняется. С другой стороны, есть целая масса факторов, которые играют против - это и конкуренция сетевых СМИ (тут надо не бороться, а, наоборот, вливаться в их число, что мы и делаем), это и общий спад интереса к чтению, и закат эры "классического рока", и ухудшение экономической обстановки, и даже банальная ликвидация газетных ларьков в подземных переходах. Главная причина, наверное, в том, что почти три года назад я устроился работать у нас в Троицке в местную городскую газету журналистом, и теперь полжизни как минимум посвящены ей, и на журнал сил и мыслей остается всё меньше. Но, в общем, у нас все авторы пишут в свободное от основной работы время, чем я лучше их? :)))</p><p><strong>Ну, поговорим о "современных тенденциях", так сказать. В чём они в тяжёлой музыке сегодня, на твой взгляд?</strong></p><p>С этим смешная штука - обычно мы всегда пишем о позапрошлых тенденциях. Когда что-нибудь выходит из моды - значит, оно состоялось. Недавно побывал на концерте прекрасной прогметал-группы Tesseract, посреди лета - полный зал юных фэнов, ну, думаю, классно, стиль жив, а потом товарищ мне пишет, мол, да это же джент, он давно уже застрял в развитии и погряз в самоповторах. Ну, думаю, ладно, раз устарел - значит, велкам. Если серьезно, то, с одной стороны, есть много экспериментальных метал-команд, часто инструментальных, которые, к удивлению, не воспринимаются публикой как эспериментальные - люди радостно скачут, рубятся и приходят в восторг под их музыку. Из примеров - недавно слушал Between The Buried And Me. Интересно, но для меня - слишком дико. Еще недавно у нас появился прекрасный автор Алексей Евдокимов, знаток стоунера и дума, среди того, что он пишет, встречаются классные имена... Мне не близок сам стоунер как музыка, но нравится, что его слушатели всегда горячо откликаются на музыку, поддерживают своих исполнителей, покупают мерч и так далее. Наверное, в этом тенденция - появление множества маленьких музыкальных ниш со своими преданными фэнами. Еще соглашусь с коллегой Барониным - есть ренессанс старого хард-рока и традиционного хэви, но в лице новых героев. Недавний Airbourne - отличный пример. Или Lost Society. Или, скажем, Sabaton - группа выросла буквально за несколько лет до стадионных масштабов, а ведь это по музыке совершеннейшее ретро! Здесь есть некий парадокс - ведь на сцене хватает и ветеранов, играющих ту же музыку, но совершенно не прославившихся, но музыкальная индустрия почему-то выводит на авансцену новых персонажей. Я бы назвал это "героезамещением" - понятно, что со временем уйдут и AC/DC, и даже Iron Maiden, и надо готовить новых персонажей для их аудиторий, а зачем "вкладываться" в ветеранов, когда есть молодежь, с одной стороны, она посговорчивее, с другой, молодая публика гораздо охотнее влюбится в молодых же исполнителей. И это нормально. Смежная тенденция - это обилие кавер-, трибьют-, или, как сейчас говорят, legacy bands, которые уже не воспринимаются как простые кабацкие лабухи, это серьезные проекты, с шоу, c договорённостями о правах, с гастролями по всему миру. Иногда там бывают какие-нибудь "экс-участники составов экс-участников"... И еще одна вещь, ровно противоположная - грубо говоря, поп-музыка в метал-обрамлении. Ультрасовременный звук, все достижения саунд-продюсировния, прилипчивые мелодии, актуальные тексты. Самый яркий пример, наверное, Amaranthe. Или, из нового, я был поражен, причем в хорошем смысле, проектом Babymetal. Ты видел их дуэт с Хэлфордом? Радует, когда у людей есть чувство юмора. А с другой стороны, там и с музыкой всё в порядке, и с самоотдачей "исполнительниц". Когда-то Юрий Мелисов, помнится, мечтал спеть песню про мамонтёнка в стиле пауэр-метал. Вот это примерно оно же, только с японской сумасшедшинкой.</p><p><strong>Меня, честно говоря, пугает их энтузиазм:) Вот, кстати, про Tesseract, есть у меня несколько читателей журнала, которые задают тебе вопрос, почему мало пишете про современный progressive?</strong></p><p>Смотря что считать современным. Тот же Стивен Уилсон с обложки позапрошлого номера - вполне современный... хотя, наверное, уже не такой молодой, как он выглядит. Новые артисты в ретро-жанрах у нас появляются регулярно (скажем, тот же Дзуффанти). А из не-ретро мы писали про Alcest, про Textures... А если говорить именно про джент, пост-метал и т.д., то весь вопрос в том, кто про них грамотно напишет. Журнал устроен так, что каждый автор исследует своё поле, пишет про тех, кто ему нравится и в чём он разбирается. Появится автор, который в теме современного прога - значит, будут и эти группы.</p><p><strong>Поговорим о чём-то более приземлённом. Сегодня вышел первый сингл METALLICA. Ты ждёшь их новый альбом или тебе это уже не интересно?</strong></p><p>Как журналисту интересно, как слушателю - нет. Сингл еще не успел послушать, но сейчас это сделаю:) </p><p><strong>А как слушателю тебе что-то интересно из выходящего в ближайшие пару месяцев? Что-нибудь ждёшь с юношеским нетерпением?</strong></p><p>Ох... Задумался. Сейчас интригуют работы друзей. Скажем, очередной альбом Александра Кулака из Azazello - он присылал несколько вещей, и они прекрасные... Судя по всему, он будет инструментальным. А из грандов - скоро выходит новый Van der Graaf Generator, думаю, это будет очень серьезно! Готовит новый альбом Стив Хаккет, это музыкант, у которого всегда происходит чудо... Интересно, какой будет новый Flying Colors. До сих пор чего-то жду от Кена Хенсли. Мечтаю, что еще будет когда-нибудь новый диск King Crimson. А из недавних релизов меня поразил "Аукцыон" "На Солнце". Это&nbsp; красивейшая музыка, я бы сказал, экзистенциальная - чистая энергия и поэзия. На этом фоне новая песня "Металлики" кажется какой-то пыльной декорацией. Хотя и она своих слушателей порадует, а если люди испытывают радость - это главное...</p><p><strong>А метал уже никакой не интересует? Устарел?</strong></p><p>Интересует, конечно! Просто не могу вспомнить, что выходит прямо вот сейчас. Но скажу, что жду с интересом концерта группы Vektor, очень любопытная команда, возрождающая прогрессивный трэш-метал на каком-то новом уровне... Всегда прекрасные вещи делает Девин Таунсенд. Из прогметаллистов очень порадовал новый диск Myrath. Да и просто честного мелодичного пауэра хорошего уровня сейчас довольно много.</p><p><strong>Что скажешь о RAGE? Как тебе их возвращение к корням?</strong></p><p>К стыду своему, еще не слушал. Но творческая ситуация в позднесмольском составе была тупиковая, думаю, возврат к формату "Black in Mind" только к лучшему...</p><p><strong>Сейчас выходит новый EVERGREY. Может ли эта команда что-то интересное ещё сделать?</strong></p><p>О, я делал интервью с ними позавчера! Будет в следующем номере. Каких-то откровений в разговоре не припомню, разве только под конец, когда я спросил Энглунда, какую роль он бы сыграл, будь не певцом, а актёром. Ожидал чего-то трагического, а он сказал, что предпочел бы сыграть Дональда Дака. Что касается нового альбома, он весьма хорош, на мой взгляд. Хотя я никогда от них сильно не фанател, считаю их мрачность несколько деланной, что ли, и чересчур однотонной. Во всяком случае, возвращение (еще на прошлом диске) гитариста и барабанщика пошло группе на пользу, оживило ее музыку. А гостевое участие Флор Янсен в двух песнях сделало диск разнообразнее.</p><p><strong>Прочёл в новом номере впечатления от прогового фестиваля в Барселоне. Как ты думаешь, возможно ли нечто подобное в России? Знаю, что ты задумывался об этом. Какие сделал выводы?</strong></p><p>Нет, невозможно. Мне вспоминается замечательный фестиваль "ProgPower Moscow", в приснопамятном клубе "ХО", когда в публике было человек 50, я стоял и думал: как хорошо, что это не я делаю! Вообще, надо, чтобы сначала выросло поколение ребят, которым не надо париться ни о чём, не надо ездить по два часа каждый день в институт и на работу, которым не забивают мозг всякой пафосной белибердой, которых не окружает атмосфера загнанности, усталости и ненависти, и может, лет через 15 тут будут большие фестивали на все вкусы и цвета. В том числе и прогрессивные. А зачатки хорошего у нас были и есть. Это и "хипповые" опен-эйры во главе с "Пустыми Холмами", но их время, к сожалению, ушло, потому что инициатива снизу в нашей стране совсем не приветствуется... А недавно я побывал на "хипстерском" "Ahmad Music Festival", с Пи Джей Харви в хедлайнерах - отлично! Только надо понимать, что такие вещи существуют, пока этого хотят спонсоры, или на бюджет города... Если вдруг власть полюбит прогрессив, будут и прог-фестивали. Вспомни опен-эйры в Казани, которые делал Чепарухин! Вот что значит хорошее дело в хороших руках. Но надо понимать, что такие сочетания - случайны и недолговечны. И лучше, чтобы прогрессив жил сам по себе...</p><p><strong>Ну и последний вопрос. Пишет нам постоянный читатель вашего журнала Алексей. Он спрашивает, до какой поры у вас будут такие странные обложки, до какой поры вы будете писать о всяческой неизвестной и неактуальной ерунде и до какой поры вы будете игнорировать группу HALESTORM?</strong></p><p>Начну с последней части вопроса. Про Halestorm мы писали, по крайней мере, были репортажи с концертов, а с интервью тогда дело не сложилось, и в ближайшее время это вряд ли будет реально. Лично мне эта группа не нравится, но в журнале много раз были случаи, когда я публиковал статьи о музыке, мне неблизкой, потому что наши авторы и люди, чье мнение я высоко ценю, считали ее достойной. Но с Halestorm как-то не сложилось. Увы. Есть много достойного, что проходит мимо в силу тех или иных причин, мир музыки огромен... Еще хочу сказать Алексею, что коль скоро он является нашим постоянным читателем, наверное, наша "неизвестная и неактуальная ерунда" его в какой-то степени интересует. Значит, такова наша ниша - писать о вещах неизвестных и неактуальных, потому что об актуальной ерунде не пишет только ленивый. Мне не раз говорили читатели, что ценят "ИнРок" за то, что мы можем написать о каких-то вещах, которых никогда не найдешь в других журналах. Абсолютно небанальных и не от мира сего. Мне нравится в журнале это состояние свободы, возможность импровизировать, незавязанность на моде и трендах. Конечно, я стараюсь держать баланс, чтобы часть героев номера была всё же узнаваемой... А насколько это удается, судить публике.</p>
+Автор: Vit Belov
+
+### 03.09.2016 news Очередной сингл EVERGREY за неделю до релиза
+
+<p>Новый сингл <strong>EVERGREY "Passing Through"</strong> можно послушать в лирик-видео ниже. Новый альбом группы "<strong>The Storm Within</strong>" выходит на следующей неделе.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/izpMS_QbNwQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 03.09.2016 news Next single of EVERGREY
+
+<p><strong>EVERGREY</strong>'s new single <strong>"Passing Through</strong>" can be heard in a lyric video below. The band's new album "<strong>The Storm Within</strong>" coming out next week.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/izpMS_QbNwQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 21.09.2016 reviews EVERGREY осваиваются в новом стиле и подтверждают своё название
+
+<p>Переслушивая недавно альбом Evergrey самого начала 2000ых я удивился, насколько же современно и убедительно звучит коллектив для того времени. В определенный момент ансамбль коренным образом изменил свое звучание, да и суть музыки в целом, заиграв в более однообразном, простом, и, вроде как, коммерческом ключе.</p><p>Последние альбом шведов не вызывали у меня ничего, кроме зевоты. Простые, мрачные, естественно - депрессивные песни, с безусловным наличием мелодий, и очень спорным качеством оных. Вот есть такой тэг - Dark Metal. Я бы ввёл еще один поджанр - Grey Metal, когда музыка группы не только мрачна и депрессивна, но и безнадежно-однообразна и уныла, как в плане настроения и мелодики, так и в плане звучания. Что-то именно такое и играли Evergrey на последних альбомах. Что касается новинки - то здесь группа продолжила свою стратегию по зачистке песен от элементов progressive и тотального погружения в однообразный gothic alternative metal, наверное так будет правильнее обозначить то, что сейчас играют шведы. Стало быть, никаких экспериментов со звучанием (альбом, честно говоря, записан очень средне для нашего времени), ни других сюрпризов здесь ждать не приходится. Остаются мелодии и эмоции, и я не могу сказать чтобы Evergrey провалились в этих составляющих. Более того, они неплохо освоились в новом болоте, всё здесь как-то органичнее, чем в недавнем прошлом. Отмечу очень симпатичные гитарные запилы, пожалуй - самое вкусное из того что здесь есть. Ближе к концу альбома вступает женский вокал, и это хорошая мотивация не заснуть на середине, простите за сарказм.</p><p>Нужны ли вообще такие альбомы? Кому-то, наверное, нужны. Возможно, старым поклонникам группы, равнодушным к progressive составляющей музыки шведов. Золотые годы gothic metal давно позади, и мне не очень понятно, на что тут надеются Evergrey.</p>
+Автор: Horeok
+
+### 30.09.2016 news EVERGREY выпустили новый видео-клип
+
+<p>Третий видео-клип с нового альбома<strong> EVERGREY "The Storm Within"</strong> был снят на балладу "<strong>The Impossible</strong>". Ролик можно посмотреть ниже.</p><p>Лицензионный диск производства Фоно покупайте в магазине Escapemind.ru: <a href="http://escapemind.ru/goods/EVERGREY-The-Storm-Within-Ltd">http://escapemind.ru/goods/EVERGREY-The-Storm-Within-Ltd</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zcfCIkL4JCs" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 30.09.2016 news EVERGREY released third video from new album
+
+<p>The third video clip from the new<strong> EVERGREY</strong> album "<strong>The Storm Within</strong>" was filmed for the ballad "<strong>The Impossible</strong>". You can see the video below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zcfCIkL4JCs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### EVERGREY - In Search For Truth - 2001. YES!!!

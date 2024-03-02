@@ -104,6 +104,31 @@ Eric Matthews  -  Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.11.2001 news CLUTCH headlining tour, also featuring BIOHAZARD and CANDIRIA....
+
+<p>More dates have been announced for the forthcoming CLUTCH headlining tour, also featuring BIOHAZARD and CANDIRIA. They are as follows: <BR><BR> Nov. 15 - L'Amour - Brooklyn, NY <BR> Nov. 16 - The Asylum - Portland, ME <BR> Nov. 17 - Jarrod's Place - Allteboro, MA <BR> Nov. 18 - Chantille's - Manchester, NH <BR> Nov. 19 - Armory High - Syracuse, NY <BR> Nov. 20 - Pierre's - Fort Wayne, IN <BR> Nov. 21 - Harpo's - Detroit, MI <BR> Nov. 23 - First Avenue - Minneapolis, MN <BR> Nov. 24 - Hairy Mary's - Des Moines, IA <BR> Nov. 25 - TBA TBA <BR> Nov. 26 - TBA TBA <BR> Nov. 27 - TBA TBA <BR> Nov. 28 - Royal Albert - Winnipeg, MB <BR> Nov. 29 - The State - Regina, SK <BR> Nov. 30 - MacEwan Hall Ballroom - Calgary, AB <BR> Dec. 01 - Dinwoodie Student Union - University of Alberta Edmonton, AB <BR> Dec. 03 - Commodore - Vancouver, BC <BR> Dec. 04 - TBA - Spokane, WA <BR> Dec. 05 - Graceland - Seattle, WA <BR> Dec. 06 - TBA - Portland, OR <BR> Dec. 07 - TBA - Santa Rosa, CA <BR> Dec. 08 - TBA - San Francisco, CA <BR> Dec. 09 - TBA - TBA <BR> Dec. 11 - TBA - Las Vegas, NV <BR> Dec. 12 - TBA - Salt Lake City, UT <BR> Dec. 13 - TBA - Colorado Springs, CO <BR> Dec. 14 - TBA - Tulsa, OK</p>
+
+Автор: Yermola
+
+### 07.01.2002 news CANDIRIA UK Tour With Raging Speedhorn and Clutch....
+
+<p>1/25 BRISTOL - FLEECE & FIRKIN UK <BR> 1/26 COLCHESTER - ARTS CENTRE UK <BR> 1/27 GLASGOW - GARAGE UK <BR> 1/28 MANCHESTER - M.D.H. UK <BR> 1/29 LEEDS - COCKPIT UK <BR> 1/30 WOLFERHAMPTON - WULFRUN HALL UK <BR> 1/31 LONDON - MEAN FIDDLER UK <BR></p>
+
+Автор: Yermola
+
+### 26.08.2016 news Новый трек CANDIRIA
+
+<p>Авангардные металисты<strong> CANDIRIA</strong> опубликовали трек "<strong>Mereya</strong>" с выходящего нового альбома "<strong>While They Were Sleeping</strong>". Диск увидит свет на <strong>Metal Blade</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/xTXbtL1Kor8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news New music from CANDIRIA
+
+<p>Avant-garde metallers <strong>CANDIRIA </strong>has posted the track <strong>"Mereya</strong>" from upcoming album "<strong>While They Were Sleeping</strong>". The CD will be released on <strong>Metal Blade records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/xTXbtL1Kor8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

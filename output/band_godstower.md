@@ -214,6 +214,203 @@ People in the Swamp
 
 * C группой "Chemical Warfare" 
 
+## Публикации
+
+### 06.03.2001 news Презентация нового CD группы Catharsis
+
+<p> 25 марта 2001 года в воскресенье в клубе "Точка" Irond Records, журнал Dark City, Hobgoblin records & Brutal DJ productions представляют презентацию нового CD "Dea" neoclassic heavy-progressive metal группы CATHARSIS с участием специально приглашенных супергостей: легенд отечественного heavy metal ЛЕГИОН, королей российского death-metal MERLIN и белорусских гостей GODS TOWER. Открывает концерт группа SAMHAIN.</p>
+<p> Начало концерта в 18:00. Цена билета: в предварительной продаже - 70 рублей, в день концерта по флаеру - 90 рублей, без флаера - 100 рублей. Билеты уже поступили в продажу во все рок-магазины Москвы. На концерте будет осуществляться продажа лицензионной продукции CATHARSIS (и нового CD), а также продукции фирмы Irond Records (лицензионные CD) по льготным ценам. Фирменный свет и звук гарантируются!</p>
+<p> Информационные спонсоры мероприятия: журналы "Dark City", "Painkiller', Necronomicon", "In Rock", "Rockcor", Metal Art", Metal Agen News", "M"; интернет-ресурс http://musica.mustdie.ru, радио "Железный Занавес" : УКВ 68.84, LW 0.153, каждую субботу в 22:30 и в воскресенье в 12:30 (17 марта слушайте новые вещи CATHARSIS, а 24 марта - прямой эфир с группой); телевизионный канал TVT. Весь концерт будет отснят двумя телевизионными каналами с последующей трансляцией в эфире.</p>
+<p> Проезд: м. "улица 1905 года", последний вагон из центра, Звенигородское шоссе, д.4, 3 минуты пешком.</p>
+<p> Не пропустите!</p>
+<p></p>
+
+Автор: Dimas
+
+### 21.03.2001 news Tribute To Ария
+
+<p>Небезызвестный Эджен Прайс готовит трибьют посвящённый 15-летию группы Ария. На нём примут участие Gods Tower (Воля и Разум на англ.яз. NB), Ens Cogitans, Mortifer, Роза Ветров, Black Raven, Morbit, Дилан Трой, Vortex, Nordream, а также эмбиентный проект Эджена Прайса(!). Также дописывают песни Эпидемия, Эш и End Zone.</p>
+
+Автор: Vit Belov
+
+### 15.04.2001 news Альбом-посвящение группе АРИЯ
+
+<p>Компания Metal Agen планирует выпуск альбома-посвящения Великой Русской хард-н-хэви Группе АРИЯ, отметившей в 2000 году своё 15-летие. На данный момент, в проекте принимают участие следующие группы GODS TOWER ("Воля и Разум" (на англ.языке)), ENS COGITANS ("Здесь куют металл"), MORTIFER ("Встань, страх преодолей"), THE ARROW / РОЗА ВЕТРОВ ("Дай руку мне"), BLACK RAVEN ("Потерянный рай"), MORBIT ("1100"), ДИЛАН ТРОЙ ("Мечты"), VORTEX ("Икар"), NORDREAM ("Улица Роз"), AGEN PRICE PROJECT ("Воля и Разум" (electro-tech-remix)). Также хотели принять участие, но пока не заявили названий песен следующие исполнители - END ZONE (Москва), ЭПИДЕМИЯ (Москва), ЭШ (Москва) и некоторые другие. Организатор проекта - Евгений Аксенов.</p>
+
+Автор: Dimas
+
+### 30.04.2001 news MetalAgen Fest - 2001
+
+<p> 16 мая 2001 года в клубе Точка состоится суперпрезентация новых альбомов Metal Agen - METALAGEN FEST - 2001. Участвуют и представляют свои альбомы группы T.H.R.O.N., MORTEM, IZAKARON, GODS TOWER, FORGIVE-ME-NOT, X-FACTOR/MORTIFER. Специальные гости фестиваля - ENS COGITANS, NEOTRUTH, NORDREAM и группа из Белоруссии RASTA.</p>
+<p> На концерте также будет презентация журнала Metal Art.</p>
+<p> Билеты продаются в рок-магазинах, клубе Точка и на станциях Московского метрополитена. Цена билета - 100 рублей. В день концерта - 200 рублей.</p>
+<p></p>
+
+Автор: Dimas
+
+### 08.06.2001 news ATTACK ON THE EAST CAPITALS
+
+<p> <img src=/images/news_rus/2001.06/1465.jpg border=1 align=left width=130 height=300 ></p>
+<p> Chaotica Music Agency представляет "ATTACK ON THE EAST CAPITALS" - это эксклюзивные концерты польской метал-легенды VADER. Вы увидите долгожданное качественное шоу от лидеров европейского death metal при массированной поддержке словацких монстров бласфемического death metal DEMENTOR.</p>
+<p> Первый концерт тура состоится в Минске 16 июня 2001 года в 17:00. Локальная поддержка: GODS TOWER (на концерте также состоится официальная презентация новейшего мини-альбома группы "ABANDON ALL HOPE"), ASGUARD, V.E.L.D. и RASTA. Адрес: клуб РЕАКТОР, Минск, В.Хоружей, 29. Цена билета: 7.000 - в предварительной продаже, 10.000 - в день концерта. Предварительная продажа и заказ билетов с 4 июня: Минск: D-SHOP (Притыцкого, 40), общественные рапространители в подземных переходах; Могилёв: тел. 463-011 (22:00 - 0:00); Речица: PARADISE (Урицкого); Гомель: AUDIOBOX (Первомайская, 23); Брест: тел. 226-594 (22:00 - 0:00); Витебск: МУЗЫКАЛЬНЫЙ КИОСК (Московский пр-т, напротив ВГУ). Приобретайте билеты только у официальных распространителей. Администрация не несёт ответственность за подделки! инфо, заказ билетов: 8 029 6022062, fatalecstasy@tut.by, chaotica@tut.by</p>
+<p> Второй концерт тура состоится в Москве 17 июня 2001 года в 18:00. Локальная поддержка: T.H.R.O.N. и MORTEM. В случае, если состоится дополнительный концерт 18 июня, а такая вероятность существует, то вместе с VADER и DEMENTOR, будут выступать MERLIN и GODS TOWER. Адрес: R-клуб, Москва. Цена билета: 200 - предварительная продажа, 300 - в день концерта. Билеты продаются только в рок-магазинах, количество ограничено с целью не создавать давки и прочих проблем. Инфо, заказ билетов: metalagen@soyuz.ru</p>
+<p> - ВНИМАНИЮ УКРАИНСКИХ РЕЗИДЕНТОВ: концерт в Киеве 15 июня отменён по независящим от нас причинам! Официальные объяснения от местных промотеров (CORE & Озолин) мы надеемся получить в ближайшие дни</p>
+<p> - перед началом каждого концерта пройдут встречи музыкантов VADER, DEMENTOR с публикой</p>
+<p> - на концертах предполагается продажа мерчендайзинга (кассеты, диски, журналы, футболки)</p>
+<p> - если вы ещё сомневаетесь в качестве представляемых групп, то лучшие трэки с новейших альбомов VADER "Reign Forever World" (Metal Blade Recs), DEMENTOR "Enslave The Weak" (Osmose Prods) можно будет услышать: - в ночь с понедельника на вторник, 12 июня, в дебютном выпуске нового радиошоу Александра Литвинского MASSA BRUTTO (1:00, Минская радиостанция CТИЛЬ), - во вторник, 12 июня, в эфире радиошоу ЗАТЕРЯННЫЙ МИР (22:30, Минская радиостанция МИР)</p>
+<p> - свежие интервью с лидерами VADER & DEMENTOR опубликованы на сайтах:</p>
+<p> LEGION ONLINE: http://www.nestor.minsk.by/legion/</p>
+<p> <a href="http://musica.mustdie.ru">MUSICA.MUSTDIE.RU</a>: <a href="http://musica.mustdie.ru">http://musica.mustdie.ru</a></p>
+<p> <a href="http://musica.mustdie.ru/ru/exclusive/1/44834/">Интервью с DEMENTOR</a></p>
+<p> <a href="http://musica.mustdie.ru/ru/exclusive/1/44833/">Интервью с VADER</a></p>
+<p> HELLRAISER: http://www.hellr.kiev.ua/</p>
+<p> - спрашивайте в рок-магазинах лицензионные издания для территории СНГ: VADER "Reign Forever World" CD, издан FONO Recs по лицензии Metal Blade Recs, DEMENTOR "The Art Of Blasphemy" MC, издан FATAL ECSTASY Prods по лицензии Qabalah Prods.</p>
+<p> организатор тура: CHAOTICA M.A. chaotica@tut.by</p>
+<p> российский промотер: METAL AGEN/ MUSICKNESS RUSSIA metalagen@soyuz.ru</p>
+<p> ищи новости о туре на сайтах:</p>
+<p> LEGION ONLINE: http://www.nestor.minsk.by/legion/</p>
+<p> <a href="http://musica.mustdie.ru">MUSICA.MUSTDIE.RU</a>: <a href="http://musica.mustdie.ru">http://musica.mustdie.ru</a></p>
+<p> DEMENTOR: http://www.dementor.nfo.sk/</p>
+<p> HELLRAISER: http://www.hellr.kiev.ua/</p>
+<p> VADER: http://www.vader.pl/</p>
+<p> FONO: http://www.fono.ru/</p>
+<p></p>
+
+Автор: Dimas
+
+### 08.11.2002 news MassaBrutto Radioshow #123, 8 Nov 2002.
+
+<p>Гость программы: Lesley Knife (ex-GODS TOWER) из THE REGENT (Гомель, Беларусь). <BR><BR> Playlist:<BR><BR> 1. FORGIVE-ME-NOT - Released (Soyuz)<BR> 2. LEAD WEIGHT - Useless (band)<BR> 3. THE REGENT - Silly Genius (band)<BR> 4. THE REGENT - Misgiving Time (band)<BR> 5. GODS TOWER - Rising Arrows (Sturmesflugel/Prophecy)<BR> 6. THE REGENT - Wicked Livid Lover (band)<BR> 7. IMPRUDENCE - Sadness (band)<BR> 8. MORTIFER - Misanthrope (Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 08.11.2002 news MassaBrutto Radioshow #123, 8 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. FORGIVE-ME-NOT - Released (Soyuz)<BR> 2. LEAD WEIGHT - Useless (band)<BR> 3. THE REGENT - Silly Genius (band)<BR> 4. THE REGENT - Misgiving Time (band)<BR> 5. GODS TOWER - Rising Arrows (Sturmesflugel/Prophecy)<BR> 6. THE REGENT - Wicked Livid Lover (band)<BR> 7. IMPRUDENCE - Sadness (band)<BR> 8. MORTIFER - Misanthrope (Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 07.05.2003 news Фестиваль экстремальной музыки &quot;MassaBrutto Fest-3&quot;
+
+<p>25 мая, Минск, клуб "Реактор", 17:00<BR><BR> Закрытие концертного massabrutto-сезона<BR><BR> "MassaBrutto Fest-3"<BR><BR> EVTHANAZIA (Речица)<BR> VELD (Витебск)<BR> GATEWARD (Брест)<BR> SUFFERER (Минск)<BR> WEEPING TWILIGHT (Минск)<BR> INFESTUM (Минск)<BR> VESTIBULUM (Солигорск)<BR><BR> !!! эксклюзивный трибьют-сет GODS TOWER от Lesley Knife и WEEPING TWILIGHT !!!<BR><BR> !!! гости из Киева - MENTAL DEMISE (death/grind) !!!<BR><BR> Билеты: предварительная продажа - 7500/танцпол, 8500/балкон, в день концерта - 8500/танцпол<BR><BR> Спрашивайте билеты в магазинах "New Sound/D-Shop" (ул. В.Хоружей, 16, помещение библиотеки им. Я.Купалы) и "GB-Shop" (ул. Ленина, 9)</p>
+
+Автор: Yermola
+
+### 12.10.2003 news Новости от METALAGEN&#x2F;SOYUZ MUSIC
+
+<P>Релизный план октября 2003 года. </P>
+<P><B>SERMON "Frustration" (2003)</B> - Совершенно новый четвёртый альбом выполненный в стиле progressive metal tech. Ранние работы <B>Sermon</B> издавались на зарубежных лейблах и со временем планируется их переиздание в России.</P>
+<P><B>STALWART "Dive To Nowhere" (2003)</B> - Уже отмеченный многими музыкальными критиками. Запись альбома происходила в <B>Neva Studio</B> в Санкт - Петербурге, а также в <B>Astia Studio (Финляндия)</B> под руководством <B>Anssi Kippo (Children Of Bodom, To/Die/For, Nother и т.д.). </B></P>
+<P><B>MANIC DEPRESSION "Who Deals The Pain"</B> <B>(2003)</B> - Дебютный альбом восходящих звёзд Российского трэш-метал. В данном случае слово "восходящие" применимо лишь к названию группы, сами же музыканты "Маниакальной Депрессии", как говорится, "старые морские волки". Одно лишь перечисление групп, в которых они играли, говорит о многом - Коррозия Металла, Трибунал Натальи Медведевой, Succubus, Empire Rising. </P>
+<P><B>MORTIFER "Live Faith" (2003)</B> - Известные российские трэшера, как и их зарубежные коллеги <B>(KREATOR, SODOM, NUCLEAR ASSAULT),</B> тоже решили отметиться в 2003 своим концертником. Атмосфера живого драйва, которую нечасто можно прочувствовать на студийных записях. Содержит трэки не вошедшие в номерные альбомы. </P>
+<P><B>GODS TOWER "The Anthology" (2003) "Demolition Tape" - "The Eerie" - "Сanticles" - "The Turns"</B> - Издание самых первых, ремастированных промо-записей группы, которые в полной мере сохранили дух андерграунда начала 90-х годов и ту неповторимую атмосферу саунда легендарной беларусской группы, которую не смогли воссоздать в полной мере студийные альбомы. </P>
+<P><B>FORGIVE ME NOT "Behind" (2003)</B> - Новейший альбом лидеров российского готик-метал-рока, состоящий практически из одних хитов. Как и раньше коллектив отличают безупречные мелодии и прекрасно сыгранный материал.</P>
+<P>Совместное издание <B>METALAGEN/SOYUZ/MORE HATE</B></P>
+<P><B>NEGLECTED FIELDS "Synthinity" (1998/2003)</B> - Российское переиздание (с бонус-треком) Первого "номерного" альбома лучшей Прибалтийской death metal банды, ранее изданного на английском лейбле <B>Neat Metal</B>, в Японии на <B>Pony Canyon Records</B>, записаного в финской студии <B>Tico-Tico (Sentenced, Impaled Nazarene, Nightfall etc)</B> и собравшего обильный урожай положительных оценок в мировой прессе.</P>
+<P><B>NEGLECTED FIELDS "Mephisto Lettonica" (2000/2003)</B> - Российское переиздание (с бонус треком) второго "номерного" альбома лучшей Прибалтийской death metal банды, ранее изданного на итальянском лейбле <B>Scarlet</B> и записанного уже в шведской студии <B>ABYSS</B> !!! братьями <B>Тagtgren</B>-ами Томми и самим Питером! Больше слов не нужно, всё скажет МУЗЫКА ! </P>
+Автор: Vit Belov
+
+### 17.12.2003 news Умер музыкант GODS TOWER
+
+Наш тяжёлый андеграунд постигла невосполнимая потеря. Умер <B>Саша Ураков</B> гитарист и автор практически всей музыки группы <B>GODS TOWER</B>. Подробности будут позже.<BR>
+Автор: Vit Belov
+
+### 20.05.2004 news Выход антологии GODS TOWER задерживается
+
+<P>В связи со смертью, в конце прошлого года, лидера <B>GODSTOWER Александра Уракова</B>, являвшегося композитором и гитаристом группы, выпуск альбома <B>GT “TheAnthology”</B> был временно отложен. И вот после внесения некоторых корректив, этот релиз в ближайшее время увидит свет. </P>
+Автор: Vit Belov
+
+### 20.05.2004 news Release of GOD TOWER &#39;Antology&#39; was delayed
+
+<P>Release of<B> GOD TOWER 'Antology'</B> was delayed, because dead of <B>Alexander Urakov</B>, lider and mastermind of the band. This albums will be released through <B>METALAGEN</B> in the near future.</P>
+Автор: Vit Belov
+
+### 27.09.2005 news Tribute to GODS TOWER
+
+<P>Лейбл <STRONG>БМАgroup</STRONG> достигнул договоренности с правообладателями творческого наследия <STRONG>GODS TOWER</STRONG> на издание трибьюта. Может быть впервые многие известные песни группы зазвучат в этом проекте на белорусском языке. Первой песней, уже включенной в трибьют, стала "<STRONG>Сонца&nbsp;у змроку</STRONG>" ("<STRONG>Twilight Sun</STRONG>") группы <STRONG>КАМАЕДЗIЦА</STRONG>. Официальная дата релиза - 14 декабря.<BR>Всем группам, желающим принять участие в проекте, необходимо сконтактироваться с <STRONG>Виталием Супрановичем</STRONG> в самые короткие сроки: E-mail: <A href="mailto:w1979@tut.by">w1979@tut.by</A>&nbsp;Mobile: (+29)6490888</P>
+Автор: Vit Belov
+
+### 02.08.2007 news Gods Tower &quot;The Eerie&quot;
+
+<P><STRONG><IMG height=340 alt="" hspace=0 src="/images/news_rus/2007.07/11735.jpg" width=340 align=right border=5>MetalAgen & Soyuz Music</STRONG> представляют полную дискографию пионеров pagan metal, стоявших у истоков направления и открывших дорогу в творчество бесчисленной армии последователей, клонов и подражателей - великой и легендарной группы <STRONG>GODS TOWER</STRONG>.</P>
+<P><STRONG>GODS TOWER "The Eerie"</STRONG> – CD-slim – (<STRONG>MetalAgen</STRONG>) - 2007<BR>Специальное ремастированное переиздание – re-design (слипкейс) легендарного альбома (1993/1997), за который развернулась настоящая борьба за правообладание им среди лейблов всего мира. Классика pagan-metal с элементами doom & gothic.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Reign Of Silence<BR></STRONG>2. <STRONG>When Life Ends</STRONG><BR>3. <STRONG>Inis Afalon<BR></STRONG>4. <STRONG>Till Death Do Us Part<BR></STRONG>5. <STRONG>The Eerie<BR></STRONG>6. <STRONG>Beyond Praying</STRONG> (bonus-track)<BR>7. <STRONG>The Eerie</STRONG> (video-bonus)</P>
+<P><IMG height=217 alt="" hspace=0 src="/images/news_rus/2007.07/11736.jpg" width=150 align=left border=5>Также доступны альбомы <STRONG>The Turns, Abandon All Hope, The Anthology, Tribute Of Gods Tower</STRONG>, компиляции <STRONG>Ebony Birds</STRONG> и <STRONG>The Greatest Arrows</STRONG>.</P>
+<P>Серия переизданий посвящена памяти <STRONG>Александра "Музыканта" Уракова</STRONG> (28.02.1974 - 14.12.2003)</P>
+Автор: Vit Belov
+
+### 16.08.2007 news GODS TOWER &quot;The Turns&quot;
+
+<P><STRONG><IMG height=340 alt="" hspace=0 src="/images/news_rus/2007.08/11784.jpg" width=340 align=right border=5>MetalAgen & Soyuz Music</STRONG> представляют полную дискографию пионеров pagan metal, стоявших у истоков направления и открывших дорогу в творчество бесчисленной армии последователей, клонов и подражателей - великой и легендарной группы <STRONG>GODS TOWER</STRONG>.</P>
+<P><STRONG>GODS TOWER "The Turns"</STRONG> – CD-slim – (MetalAgen) - 2007<BR>Специальное ремастированное переиздание – re-design (слипкейс) легендарного альбома 1995-96 года, покорившего металлические чарты и хит-парады СМИ и радио всего мира. Классика pagan-metal.</P>
+<P>Трек-лист:<BR>1.<STRONG> Intro / The Turns</STRONG><BR>2. <STRONG>I Am The Raven</STRONG><BR>3. <STRONG>Seven Rains Of Fire<BR></STRONG>4. <STRONG>Twilight Sun<BR></STRONG>5. <STRONG>An Eye For An Eye<BR></STRONG>6. <STRONG>Rising Arrows<BR></STRONG>7. <STRONG>Blood<BR></STRONG>8. <STRONG>Mysterious<BR></STRONG>9. <STRONG>An Eye For An Eye</STRONG> (video, CD bonus)</P>
+<P>Также доступны альбомы<STRONG> The Eerie, Abandon All Hope, The Anthology, Tribute Of Gods Tower</STRONG>, компиляции <STRONG>Ebony Birds</STRONG> и <STRONG>The Greatest Arrows</STRONG>. Серия переизданий посвящена памяти <STRONG>Александра "Музыканта" Уракова</STRONG> (28.02.1974 - 14.12.2003)</P>
+Автор: Vit Belov
+
+### 26.09.2007 news Запись концерта GODS TOWER
+
+<P>На официальном сайте <STRONG>GODS TOWER</STRONG> появилась видеозапись&nbsp; с концерта 29.01.2000 г., состоявшемся в&nbsp; клубе "Реактор" (г. Минск).</P>
+<P>Этот концерт примечателен тем, что на нем были исполнены так и не изданные песни группы.<BR>Сетлист выглядит так:<BR>1, <STRONG>Living Mirror</STRONG><BR>2. <STRONG>Abandon All Hope</STRONG><BR>3. <STRONG>Earth, Wind, Fire & Blood</STRONG><BR>4. <STRONG>Evil<BR></STRONG>5. <STRONG>Rising Arrows<BR></STRONG>6. <STRONG>Blood<BR></STRONG>7. <STRONG>Final Countdown</STRONG></P>
+<P>Весь концерт доступен для скачивания на сайте <A href="http://www.godstower.com/">www.godstower.com</A></P>
+Автор: Vit Belov
+
+### 04.03.2008 news GODS TOWER &quot;Anthology&quot;
+
+<P><STRONG><IMG height=340 alt="" hspace=0 src="/images/news_rus/2008.03/12323.jpg" width=340 align=right border=5>MetalAgen Records</STRONG> представляет <STRONG>GODS TOWER "The Anthology"</STRONG> (2CD, slim-box с серебряным тиснением) </P>
+<P>Ремастированные переиздание ранних демо-записей группы, принесших ей мировую известность.</P>
+<P>Track's list:</P>
+<P>1. <STRONG>Reign Of Silence</STRONG><BR>2. <STRONG>When Life Ends<BR></STRONG>3. <STRONG>Inis Afalon<BR></STRONG>4. <STRONG>Till Death Do Us Part<BR></STRONG>5. <STRONG>The Eerie<BR></STRONG>6. <STRONG>Iprit</STRONG><BR>7. <STRONG>Eversleepside<BR></STRONG>8. <STRONG>Inis Afalon<BR></STRONG>9. <STRONG>Canticles<BR></STRONG>10. <STRONG>Beyond Praying<BR></STRONG>11. <STRONG>Seven Rains Of Fire</STRONG></P>
+<P>12. <STRONG>Praise Of Sun</STRONG><BR>13. <STRONG>Mysterious<BR></STRONG>14. <STRONG>Intro / The Turns /</STRONG></P>
+<P>15. <STRONG>I Am The Raven<BR></STRONG>16. <STRONG>Seven Rains Of Fire<BR></STRONG>17.<STRONG> Twilight Sun</STRONG><BR>18. <STRONG>Rising Arrows<BR></STRONG>19. <STRONG>Mysterious</STRONG></P>
+<P>All music by <STRONG>Alexander Urakoff</STRONG> & <STRONG>Gods Tower</STRONG>,<BR>All lyrics by <STRONG>Lesley Knife</STRONG> <BR>Tracks 1-5 from "<STRONG>The Eerie</STRONG>" demo (1993)<BR>Tracks 6-8 from "<STRONG>Demolition Tape</STRONG>" demo (1992)<BR>Tracks 9-13 from "<STRONG>Canticles</STRONG>" demo (1994)<BR>Tracks 14-19 from "<STRONG>The Turns</STRONG>" demo (1995)</P>
+<P><STRONG>Alexander Urakoff</STRONG> - guitars, keyboards<BR><STRONG>Lesley Knife</STRONG> - vocals<BR><STRONG>Wladislaw Saltsevich</STRONG> - drums<BR><STRONG>Yuri Sivtsoff</STRONG> - bass<BR><STRONG>Dmitry Ovtchinnikoff</STRONG> keyboards on 14-19 tracks.<BR><STRONG>Irina Lozovskaya</STRONG> keyboards on 1-5 tracks.</P>
+Автор: Vit Belov
+
+### 15.05.2008 news Gods Tower &quot;Abandon All Hope&quot;
+
+<P><STRONG><IMG height=440 alt="" hspace=0 src="/images/news_rus/2008.05/12517.jpg" width=400 align=right border=5>MetalAgen Records</STRONG> представляет переиздание последнего в истории существования группы <STRONG>GODS TOWER</STRONG> альбом "<STRONG>Abandon All Hope</STRONG>".</P>
+<P>Все треки были полностью пересведены и ремастированы в известной московской студии «<STRONG>Дай Рекордс</STRONG>» мастером и саунд-колдуном <STRONG>Евгением «Женяем» Виноградовым</STRONG>. Плюс ко всему, в эту программу были добавлены ранее не издававшиеся композиции.&nbsp; Это постановочный видеоклип на песню “<STRONG>Civilization</STRONG>” и совершенно новый трек “<STRONG>Living Mirror</STRONG>”, который готовился для следующего, но так и не вышедшего, альбома «<STRONG>Steel Says Last</STRONG>». Более свежо зазвучала «<STRONG>Power & Reason</STRONG>», оригинальное и своеобразное посвящение белорусов старейшей отечественной хэви-группе <STRONG>АРИЯ</STRONG>. Очень интересен микс на песню <STRONG>GT</STRONG> “<STRONG>Reign Of Silence</STRONG>”, выполненный музыкантами <STRONG>ENS COGITANS</STRONG>, в рамках их проекта<STRONG> OVERSUN</STRONG>. А ремикшированный опус «<STRONG>Civilization</STRONG>» хохмачами из <STRONG>FAT NOD DEAD</STRONG> вообще может стать суперхитом на танцевальных полах всего мира. Оформление альбома также получило новое воплощение - буклет выполнен в виде плаката, на котором изображены участники последнего состава <STRONG>GODS TOWER</STRONG>, а лицевая картинка стала более близкой по смыслу к языческой теме, в которой и работала в течение всего своего существования группа. Это сгорающий в огне язычник, пытающийся и в последние секунды своей жизни нанести сокрушительный удар по своим врагам. По своей сути ковер альбома стал пророческим -&nbsp; вскоре группа прекратила своё существование. Но тем не менее,<STRONG> GODS TOWER</STRONG> вписали своё имя золотыми буквами в историю мирового хэви-метал, став пионерами в направлении pagan metal, открывших дорогу в творчество бесчисленной армии последователей, клонов и подражателей.</P>
+<P>Track's list:<BR>1. <STRONG>Civilization</STRONG> <BR>2. <STRONG>Abandon All Hope</STRONG> <BR>3. <STRONG>Living Mirror</STRONG> (unreleased track)<BR>4. <STRONG>Iron Man</STRONG> <BR>5. <STRONG>Final Countdown</STRONG> <BR>6. <STRONG>Power & Reason</STRONG> <BR>7. <STRONG>When Life Ends</STRONG> (unreleased 7"EP version) <BR>8. <STRONG>Reign Of Silence</STRONG> (Oversun edit) <BR>9. <STRONG>Civilization</STRONG> (last world war mix)<BR>10. <STRONG>Civilization</STRONG> (video) <BR>11. <STRONG>Beyond Praying</STRONG> (video) </P>
+<P>Produced by MetalAgen <BR>All music by Alexander Urakoff & Gods Tower <BR>All lyrics by Lesley Knife <BR>Except "Iron Man" by Tony Iommi/Bill Ward/Terry "Geezer" Butler/Ozzy Osbourne (c) 1970 Warner Bros. Records <BR>"Final Countdown" by Joey Tempest (c) 1986 CBS Inc./Epic Records <BR>and "Power & Reason" by Andrey Bolshakov (c) 1986<BR>Также в продаже переиздания других альбомов GODS TOWER – “The Eerie”, “The Turns”, “The Anthology”. Спрашивайте их во всех магазинах уважающих хорошую и правильную музыку. <BR></P>
+Автор: Vit Belov
+
+### 18.05.2010 news GODS TOWER вернулись
+
+<P>Знаменитая и легендарная белорусская группа <STRONG>GODS TOWER</STRONG> объявила о своём воссоединении. Группа заслуженно считается основателем pagan-metal на территории бывшего СССР. Вокалист <STRONG>Lesley Knife</STRONG>: "<EM>Идея реставрации GODS TOWER витала в воздухе чуть ли не с тех самых пор как было заявлено об официальном распаде группы. Но долгое время это было невозможно по многим причинам - экономическим, психологическим и прочим. Но в конце вокруг имени GODS TOWER создалась такая атмосфера что мы стали поневоле задумываться о воссоединении. Идея пришла из-вне; сами мы вряд ли бы окончательно на это решились. Короче говоря, если бы реюньона не было, его стоило бы придумать</EM>".</P>
+<P>Летом <STRONG>GODS TOWER</STRONG> вернутся с концертами и приступят к записи нового альбома со старым материалом "<STRONG>Steel Says Last</STRONG>". Уже сейчас полуторачасовой концертный материал готов и ведется плотная работа над подготовкой к записи альбома десятилетней выдержки. Группа нашла нового гитариста на замену умершего <STRONG>Александра Уракова</STRONG>. Был специально выбран ученик музыканта, чтобы сохранить его стиль и звучание. </P>
+<P><STRONG>Lesley</STRONG>: "<EM>Мы прекрасно осознаем что спустя десять лет наше решение многим покажется некорректным и т.д., но поверьте нам на слово – во-первых, нам глубоко по барабану все поголовно идейники с пеной у рта и во-вторых, мы знаем что делаем. Собаки лают, караван идёт!"</EM></P>
+Автор: Vit Belov
+
+### 20.09.2011 news Mazzar выпустят альбом GODS TOWER
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2011.09/21155.jpg" width=400 height=400>Написанный <STRONG>А.Ураковым</STRONG> в прошлом веке легендарный альбом <STRONG>STEEL SAYS LAST</STRONG> выходит на российском лейбле <STRONG>MAZZAR records</STRONG>, открывая череду изданий по всему миру!</P>
+<P>«<EM>Альбом Steel Says Last состоит из 10 полновесных песен, и каждая из них это законченная повесть. В них затронут весь спектр тем, которых мы когда-либо касались. Здесь есть война, магия, солнце, природа, есть человек и духи, которые его окружают. Есть вещи, где затронуты темы апокалипсиса мира, и апокалипсиса нации, есть вещи, где поднимается историческая тема – но, конечно же, не прямым текстом...»</EM><BR><STRONG>Lesley Knife</STRONG></P>
+<P>Пусть большинство песен этого альбома уже известно метал-хэдам – они издавались на разных «посмертных» сборниках, синглах, зэ бэстах. Некоторые в исполнении других групп выходили на трибьюте-двойнике, некоторые Нож исполнял с разными группами как вживую на концертах, так и в студии. Теперь мы представляем вам полноценную «сталь» с тремя новинками. Весь материал был написан в конце девяностых безвозвратно ушедшим из жизни гитаристом и композитором <STRONG>Александром Ураковым</STRONG>:</P>
+<P>1. <STRONG>Intro/Steel Says Last</STRONG><BR>2. <STRONG>Earth Wind Fire and Blood</STRONG><BR>3. <STRONG>Rarog</STRONG><BR>4. <STRONG>Heroes Die Young</STRONG><BR>5. <STRONG>Evil<BR></STRONG>6. <STRONG>Civilization<BR></STRONG>7. <STRONG>Living Mirror<BR></STRONG>8. <STRONG>Abandon All Hope</STRONG><BR>9. <STRONG>Yesterdays Rivers</STRONG><BR>10. <STRONG>Poisonodog<BR></STRONG>11. <STRONG>People in The Swamp</STRONG></P>
+<P>Издающий лейбл в РФ – <STRONG>MAZZAR records</STRONG>. Ограниченным тиражем диск выйдет в формате дигибук, для настоящих ценителей жанра будет предоставлена возможность пополнить свою музыкальную коллекцию бокс-сетом (всего сто копий), в состав которого кроме диска войдет футболка со спец. дизайном и постер с автографами музыкантов.</P>
+Автор: Vit Belov
+
+### 19.03.2012 news Новое видео GODS TOWER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>GODS TOWER</STRONG> на песню "<STRONG>Yesterday's River</STRONG>" можно посмотреть ниже. </FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/rLHkVgwb4AA?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/rLHkVgwb4AA?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.07.2012 news &quot;Brutal Assault 2012&quot;: программа на каждый день, последние участники, информация о билетах
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24432.png" width=300 height=150>На сайте&nbsp;фестиваля <STRONG>"Brutal Assault"</STRONG>&nbsp;стала доступна программа с&nbsp;группами-участниками на каждый день.&nbsp;Ознакомиться с ней можно в разделе <STRONG>"Расписание"</STRONG> (<A href="http://www.brutalassault.cz/ru/schedule/">www.brutalassault.cz/ru/schedule/</A>). Более подробное (повременное)&nbsp;расписание выступлений станет известно в ближайшие дни (включая и&nbsp;расписание новой, третьей сцены, под названием <STRONG>Budweiser Budvar</STRONG>).</P>
+<P>Организаторы фестиваля анонсировали последних участников этого года, ими стали&nbsp;белорусские язычники&nbsp;<STRONG>GODS TOWER</STRONG>, французские авантгардисты <STRONG>SEBKHA-CHOTT</STRONG>, британцы&nbsp;<STRONG>ANAAL NATHRAKH</STRONG>, южно-африканские металкорщики&nbsp;<STRONG>TRUTH AND ITS BURDEN</STRONG> и два представителя Чехии: <EM>old-school death metal</EM> банда <STRONG>BRUTALLY DECEASED</STRONG> и блэк-металлисты <STRONG>TROLLECH</STRONG>.</P>
+<P>Организаторы <STRONG>"Brutal Assault"</STRONG> настоятельно рекомендуют озадачиться покупкой фестивальных&nbsp;билетов заранее. Вы всё ещё можете&nbsp;сделать это&nbsp;по сниженной, предпродажной цене в 1550,- CZK (+&nbsp;комиссия Paypal), но помните, что такая возможность будет доступна&nbsp;только до конца июля.</P>
+<P>К сожалению, <EM>death metal </EM>ветераны <STRONG>DEICIDE</STRONG> отменили свой летний европейский тур&nbsp;в связи с непредвиденными обстоятельствами.</P>
+<P>Их заменой станут хорошо известные бразильские коммандос, группа <STRONG>KRISIUN</STRONG>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Творчество Gods Tower

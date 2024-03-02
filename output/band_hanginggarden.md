@@ -52,6 +52,48 @@ Matti Reinola: Bass Guitar, Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.10.2015 news Новый альбом HANGING GARDEN
+
+<P>Четвёртый альбом финской команды <STRONG>HANGING GARDEN "Blackout Whiteout"</STRONG> вышел в конце сентября на<STRONG> Lifeforce</STRONG>. Группа обратилась к более атмосферному звучанию в духе ANATHEMA. Альбом можно приобрести здесь: <A href="http://escapemind.ru/goods/HANGING-GARDEN-Blackout-Whiteout-CD">http://escapemind.ru/goods/HANGING-GARDEN-Blackout-Whiteout-CD</A></P>
+<P>Видео-клип на песню "<STRONG>Embers</STRONG>" ниже:</P>
+<P>
+<CENTER><IFRAME height=360 src="https://www.youtube.com/embed/FVNHRj6B51w?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.09.2016 news Лирик-видео от HANGING GARDEN
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое EP <strong>HANGING GARDEN "Hereafter"</strong> выходит 7 октября на <strong>Lifeforce Records</strong>. Новое лирик-видео финнов на песню "<strong>Penumbra</strong>" можно посмотреть ниже. В качестве приглашённой звезды на этом треке отметился <strong>Mikko Kotamaki</strong> из<strong> SWALLOW THE SUN</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/XZppkUDEIn4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 01.09.2016 news New lyric video of HANGING GARDEN
+
+<p>New <strong>HANGING GARDEN</strong> EP "<strong>Hereafter</strong>" comes out October 7 on<strong> Lifeforce Records</strong>. New lyric video of the Finns for the song "<strong>Penumbra</strong>" can be viewed below. As a guest star on this track were<strong> Mikko Kotamaki</strong> from <strong>SWALLOW THE SUN</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/XZppkUDEIn4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.10.2016 news HANGING GARDEN выпустили новый сингл с участием Victor Wegeborn
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый сингл<strong> HANGING GARDEN "Sirkle Of Onan"</strong> можно послушать в лирик-видео ниже. Новый мини-альбом "<strong>Hereafter</strong>" вышел на <strong>Lifeforce</strong> вчера.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9CB7bXbcGIc" frameborder="0" allowfullscreen></iframe></center>
+Автор: Vit Belov
+
+### 08.10.2016 news New single of HANGING GARDEN
+
+<p>New single of <strong>HANGING GARDEN "Sirkle Of Onan"</strong> can be heard in a lyric video below. New mini-album "<strong>Hereafter</strong>" was released on <strong>Lifeforce</strong> yesterday.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9CB7bXbcGIc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 10.11.2016 news Новое видео HANGING GARDEN
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип финнов <strong>HANGING GARDEN</strong> на песню "<strong>Hereafter</strong>" можно посмотреть ниже. Это заглавный трек с вышедшего нового мини-альбома музыкантов. В записи песни приняла участие певица <strong>Rikka Hatakka</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/qRhiU6QRI_8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 10.11.2016 news HANGING GARDEN released video
+
+<p>New clip of the Finns <strong>HANGING GARDEN</strong> for the song "<strong>Hereafter</strong>" can be viewed below. This is the title track from released new mini-album of musicians. The song is featured the singer<strong> Rikka Hatakka</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/qRhiU6QRI_8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

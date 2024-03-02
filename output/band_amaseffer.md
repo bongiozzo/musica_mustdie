@@ -12,6 +12,25 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.10.2008 reviews Об Исходе, Египте и рабах
+
+<P>Amaseffer (собственно Am Ha'Sefer, кто хочет знать больше - поройтесь в соответствующих источниках) - явление достаточно&nbsp;редкое на мировой тяжелой сцене. Их первенец, альбом "Exodus: Slaves For Life", тесно связан с Книгой Исхода, а именно, с рабской жизнью евреев в Египте, но не будем здесь углубляться в содержание Пятикнижья. Группа сия из Израиля, хотя её участники проживают в Лондоне. Немаловажно отметить, что для записи пластинки они привлекли таких исполнителей, как Mats Leven - практически весь вокал его -&nbsp;(работал с такими командами как Therion, Treat, Swedish Erotica, Abstrakt Algebra, Yngwie Malmsteen, Krux, At Vance), Angela Gossow (Arch Enemy), Kobi Farhi (Orphaned Land). В результате мы имеем симфонический, эпический, этнический, прогрессивный метал. Поклонникам Therion и Orphaned Land это будет в любом случае интересно. Несмотря на некоторую тяжеловестность музыкальных конструкций, альбом звучит достаточно свежо и любопытно. Но вот 79 минут - это многовато даже для такого жанра. Пожалуй, "Exodus: Slaves For Life" не хватает энергии, динамики, он какой-то уж очень монументальный. Поэтому - и еще раз обращаю внимание на продолжительность пластинки - его слушать достаточно тяжело. С другой стороны, этот альбом надо понять, что называется, за один раз, частями он не пойдет совершенно точно. Скажу честно, я не особый любитель такого жанра, однако Amaseffer произвели на меня более чем хорошее впечатление. И прекрасно оформленный буклет это впечатление только укрепил. Вряд ли я буду переслушивать эту работу - ибо просто не моё - но считаю, что для дебютного релиза это больше чем хорошо. Ну, а любителям стиля, повторюсь, просто очень рекомендую ознакомиться с "Exodus: Slaves For Life".</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 08.07.2016 news Совместный проект ORPHANED LAND и AMASEFFER
+
+<p>26 августа на<strong> Century Media</strong> выходит совместный альбом<strong> ORPHANED LAND</strong> и <strong>AMASEFFER "Kna'an"</strong>. Ниже можно услышать сэмпл "<strong>The Holy Land Of Kna'an</strong>".</p><p>Альбом является саундтреком к проекту театра немецкого города Мемминген. Новая пьеса, написанная Walter Wayers, повествует об Аврааме и земле Ханаанской.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/r3muysKTuwI" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.07.2016 news Joint album of ORPHANED LAND and AMASEFFER
+
+<p>Joint album of<strong> ORPHANED LAND</strong> and <strong>AMASEFFER "Kna'an" </strong>will be released on August, 26 through <strong>Century Media</strong>. Below you can hear a sample of "<strong>The Holy Land Of Kna'an</strong>."</p><p>The album is a soundtrack to the project of the theatre of the German city Memmingen. A new play written by<strong> Walter Wayers</strong>, tells the story of Abraham and the land of Kna'an.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/r3muysKTuwI" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

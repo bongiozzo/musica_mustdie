@@ -126,6 +126,15 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2011 news Новое видео KALEDON
+
+<P>Новый видео-клип итальянцев <STRONG>KALEDON</STRONG> на песню <STRONG>"Steel Maker" </STRONG>можно посмотреть ниже. Новая песня войдёт на чборник коллектива <STRONG>"Mightiest Hits"</STRONG>, который выйдет в январе на <STRONG>Scarlet Records</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/HKxGgGe8Iv0?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/HKxGgGe8Iv0?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

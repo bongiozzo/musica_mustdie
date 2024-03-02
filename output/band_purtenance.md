@@ -35,6 +35,15 @@ Recorded & Mixed At MDM Studios In March 1992
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.07.2011 news Переиздание PURTENANCE
+
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2011.07/20162.jpg" width=450 align=right border=0>Сегодня на <STRONG>Xtreem Music</STRONG> выйдет переиздание единственного альбома финской death-metal группы<STRONG> PURTENANCE "Member Of Immortal Damnation”</STRONG>. Пластинка в оригинале вышла в 1992 году и стала уже большой редкостью. В качестве бонуса на диск добавлены мини-альбом и демо. Трек-лист оригинального альбома:</P>
+<P>1. <STRONG>Intro</STRONG>&nbsp; 01:40&nbsp;&nbsp;&nbsp; <BR>2. <STRONG>Black Vision</STRONG>&nbsp; 05:17&nbsp; <BR>3. <STRONG>Deep Blue Darkness</STRONG>&nbsp; 03:31&nbsp;&nbsp; <BR>4. <STRONG>Lacus Somniorum</STRONG>&nbsp; 01:29&nbsp; <BR>5. <STRONG>The Lost Memories</STRONG>&nbsp; 05:24&nbsp;&nbsp; <BR>6. <STRONG>A Dark Cloud Arises</STRONG>&nbsp; 04:06&nbsp; <BR>7. <STRONG>In the Misty Morning</STRONG>&nbsp; 04:47&nbsp; <BR>8. <STRONG>Reality isn't Disappeared</STRONG>&nbsp; 05:16&nbsp; <BR>9. <STRONG>Misery of the Rebirth</STRONG>&nbsp; 03:37&nbsp; <BR>10. <STRONG>Crown Waits the Immortal</STRONG>&nbsp; 03:45&nbsp; <BR>11. <STRONG>John.3.16</STRONG>&nbsp; 03:08 </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

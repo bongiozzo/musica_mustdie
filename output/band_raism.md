@@ -37,6 +37,9 @@ Nexus (Multiple Personality Psyhoid Version)
 * C группой "Necromantia" Magus Wampyr Daoloth
 * C группой "Diabolos Rising" Magus Wampyr Daoloth
 
+## Публикации
+
+
 ## Обсуждения
 
 

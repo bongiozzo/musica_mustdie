@@ -73,6 +73,108 @@ former WINDIR members
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.09.2004 news VREID - проект музыкантов WINDIR
+
+<P><STRONG>VREID</STRONG>, так называется новая группа, в которую вошли бывшие члены <STRONG>WINDIR</STRONG>: <STRONG>Hv&#225;ll</STRONG> (bass), <B>Steingrim</B> (drums) and <B>Sture</B> (vocals, guitar), заключила контракт на три альбома с <STRONG>Tabu Recordings</STRONG>. Дебютный альбом '<STRONG>Kraft</STRONG>' уже записан. Трэк-лист:</P>
+<P>01. <B>Wrath of Mine</B><BR>02. <B>Raped by Light</B><BR>03. <B>Helvete</B><BR>04. <B>Unholy Water</B><BR>05. <B>Eldast, Utan &#197; Gro</B><BR>06. <B>Evig Pine</B><BR>07. <B>Empty</B><BR>08. <B>Songen &#197;t Fangen</B> </P>
+<P>Музыка описывается, как смесь <STRONG>WINDIR</STRONG>, норвежского black-metal и <STRONG>MOTORHEAD</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.01.2006 news VREID записали новый альбом
+
+<P>Новый альбом, группы бывших участников <STRONG>WINDIR</STRONG>, <STRONG>VREID</STRONG> <STRONG>"Pitch Black Brigade</STRONG>" выйдет 27 марта на <STRONG>Tabu</STRONG>. Трэк-лист:</P>
+<P>01. <B>D&#229; Draumen Rakna</B><BR>02. <B>Pitch Black</B><BR>03. <B>Left To Hate</B><BR>04. <B>The Red Smell</B><BR>05. <B>Hengebj&#248;rki</B><BR>06. <B>Our Battle</B><BR>07. <B>Hang ‘Em All</B><BR>08. <B>Eit Kapitell For Seg Sj&#248;lv</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 19.11.2008 news Новый альбом VREID
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2008.11/13034.jpg" width=300 align=right border=5>5&nbsp;января на&nbsp;<STRONG>Indie Recordings</STRONG>&nbsp;выходит новый альбом&nbsp;<STRONG>VREID</STRONG> "<STRONG>Milorg</STRONG>". Трэк-лист:</P>
+<P>01. <B>Alarm</B><BR>02. <B>Disciplined</B><BR>03. <B>Speak Goddamnitt</B><BR>04. <B>Blucher</B><BR>05. <B>Blucher Pt. II</B><BR>06. <B>Heroes & Villains</B><BR>07. <B>Argumentum Ex Silentio</B><BR>08. <B>Milorg</B><BR></P>
+Автор: Vit Belov
+
+### 02.12.2008 news VREID выложили песню
+
+<P><STRONG>VREID</STRONG> выложили новую песню <STRONG>"Speak Goddamnitt" </STRONG>на своей <STRONG>MySpace</STRONG> страничке. Композиция войдёт на новый альбом, о котором мы недавно сообщали.</P>
+<P>Ссылка: <A href="http://www.myspace.com/thepitchblackbrigade">http://www.myspace.com/thepitchblackbrigade</A></P>
+Автор: Vit Belov
+
+### 17.08.2009 news VREID работают над новым альбомом
+
+<P>После выступления на крупнейших европейских фестивалях "осколки <STRONG>WINDIR</STRONG>" <STRONG>VREID</STRONG> начали работу над новым альбомом. Уже сочинено 4-5 новых песен, также группа работает над концертным DVD.</P>
+Автор: Vit Belov
+
+### 05.03.2010 reviews Музыка из прошлого
+
+<P>VREID появились на свет после гибели в снегах лидера WINDIR Valfar. Три участника той группы не сочли возможным продолжать WINDIR без своего лидера и организовали собственный коллектив. “Milorg” уже четвёртая пластинка музыкантов под этим именем, и надо сказать, музыка у норвежцев получается очень интересная.</P>
+<P>VREID представляют на новом альбоме свои вариации на тему black-metal. Они не замыкаются на чём-то одном и сочиняют очень интересный материал, который по своему настроению очень походит на то, что выходило в 90-х, когда экстремальная музыка была ещё очень молода, и каждая группа могла придумать нечто новое. Лэйблы и журналы ещё не успели навесить ярлыки, а покупатели ещё не стали на эти ярлыки ориентироваться в исключительном порядке. VREID вгоняют слушателя в транс двумя разными способами. Первый заключается в «древнем» black-metal, который то ускоряется, то замедляется, но представляет собой монотонный ритм, создающий слушателю нужное настроение. В каждой песне этот всепоглощающий ритм сменяется медленными меланхоличными проигрышами с использованием акустической гитары. Почему-то тяжёлые части напомнили мне первый миньон MOONSPELL “Under The Moonspell”. Непонятная для меня ассоциация, но очень явственная.</P>
+<P>Трансцендентный black-metal, который запросто может засосать и не отпустить, но который невозможно с чем-то сравнивать и как-то определять терминами, привычными в XXI веке.</P>
+Автор: Vit Belov
+
+### 01.12.2010 news Новый альбом VREID
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.12/17713.jpg" width=400 align=right border=0>Пятый альбом <STRONG>VREID "V" </STRONG>выходит 7 февраля на <STRONG>Indie Recordings</STRONG>. Стал известен трэк-лист этой работы:</P>
+<P>01. <B>Arche</B><BR>02. <B>The Blood Eagle</B><BR>03. <B>Wolverine Bastards</B><BR>04. <B>The Sound Of The River</B><BR>05. <B>Fire On The Mountain</B><BR>06. <B>The Others & The Look</B><BR>07. <B>Slave</B><BR>08. <B>Welcome To The Asylum</B><BR>09. <B>Then We Die</B></P>
+<P>Пластинка была записана в <STRONG>Studio 1184</STRONG> басиста группы<STRONG> Hvall</STRONG>, которую он перестроил специально для нового альбома<STRONG> VREID</STRONG>. Предыдущий альбом группы <STRONG>"Milorg" </STRONG>вышел в октябре прошлого года.</P>
+Автор: Vit Belov
+
+### 18.01.2011 news Новое видео VREID
+
+<P>Новое видео<STRONG> VREID</STRONG> на песню <STRONG>"The Sound Of The River" </STRONG>можно посмотреть ниже. Трэк, являющийся "цифровым" синглом, будет продаваться в онлайн-магазинах, а также попадёт на новый альбом группы <STRONG>"V"</STRONG>, выходящий 7 февраля на <STRONG>Indie Recordings</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wNhlMB8CXBY&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wNhlMB8CXBY&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.09.2011 news VREID на Mazzar
+
+<P><SPAN class=h1><IMG height=533 alt="" hspace=0 src="/images/news_rus/2011.09/20995.jpg" width=400 align=right border=0>MAZZAR Records представляет</SPAN></P>
+<P>К выпуску в России лицензионного альбома гр. <STRONG>VREID «V»</STRONG> московский независимый лейбл <STRONG>MAZZAR Records</STRONG> представляет эксклюзивный вариант издания в виде Limited Pack в который входят:</P>
+<P>1. Альбом <STRONG>VREID «V»</STRONG> в виде шести панельного DIGIPACK.<BR>2. Эксклюзивную футболку сделанную специально для этого издания.<BR>3. Бейдж (VREID) + бейджкипер (MAZZAR).</P>
+<P>В предверии концерта 03.12.2011 с которым к нам нагрянет <STRONG>VREID </STRONG>в обойме с <STRONG>EINHERJER</STRONG>, бейдж, входящий в комплект Limited Pack при покупке билетов будет являться скидочной картой. Билеты со скидкой можно будет приобрести ТОЛЬКО у организаторов концерта Delta Mekong Concerts или в Mazzar Records. Телефон для справок – (495) 970-0868</P>
+<P>Следите за новостями на сайте лейбла производителя: <A href="http://www.mazzar.ru/">http://www.mazzar.ru/</A><BR>Концертного агентства Delta Mekong Concerts: <A href="http://www.deltamekong.ru/">http://www.deltamekong.ru/</A></P>
+<P>Limited Pack можно приобрести только в нашем интернет-магазине: <A href="http://www.metalcd.ru/">http://www.metalcd.ru/</A></P>
+<P>Размеры футболок - M, L, XL</P>
+Автор: Vit Belov
+
+### 05.10.2011 reviews Вечный источник вдохновения
+
+<P>Нет нужды повторять историю образования норвежской группы VREID, но я всё равно повторю. Коллектив образовался из праха WINDIR, когда умер вокалист этой группы Terje Bakken, а остальные музыканты не захотели покидать тяжёлую музыку. Сначала VREID воспринимались исключительно как проект «WINDIR без главного», но в этом году вышел уже пятый альбом VREID, и этот коллектив отличается не только скорострельностью, но и качеством издаваемого материала. Я уверен, это заставит обратить на норвежскую группу внимание как на самостоятельную боевую единицу.</P>
+<P>VREID привлекают внимание тем, что не охотятся за новаторскими течениями в тяжёлой музыке, а просто сочиняют цепляющий материал в стиле, расцвет которого пришёлся на середину 90-х годов. Именно в то время появились коллективы, играющие очень тяжело, но мелодично. Их было огромное множество, и VREID не считают, что с тех пор было придумано что-то лучшее. В принципе, не считаем также и мы, поклонники death/black/doom metal со стажем. К нам VREID и адресуют свой альбом, смешивая всё то, что привлекает наше внимание почти 20 лет. Их музыка звучит тяжело и мелодично, и это лучшее сочетание, которое смогли придумать металлисты за всю историю тяжёлой музыки.</P>
+<P>Детально описывать музыку VREID, мне кажется, нет необходимости. Если вы&nbsp; слушали и слушаете до сих пор лучшие образцы мелодичного и брутального метала (я не имею в виду CANNIBAL CORPSE и JUDAS PRIEST), этот альбом для вас.</P>
+Автор: Vit Belov
+
+### 01.12.2012 news Новая песня VREID
+
+<P>Норвежцы<STRONG> VREID</STRONG> опубликовали новую песню <STRONG>"The Reap", </STRONG>которая войдёт в готовящийся к выходу альбом <STRONG>"Welcome Farewell". </STRONG>Пластинка увидит свет 5 марта на <STRONG>Indie Recordings</STRONG>. </P>
+<P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F69019881&show_artwork=true&secret_token=s-GPJWi" frameBorder=no width="60%" scrolling=no></IFRAME>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.12/25103.jpg" width=475 height=475> 
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+### 01.09.2015 news Новый альбом VREID
+
+<P>Новый альбом норвежцев<STRONG> VREID "Solverv"</STRONG> выйдет 9 октября на Indie Recordings. Песню с этого альбома "<STRONG>Haust</STRONG>" можно послушать в клипе ниже:</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.09/28268.jpg" width=600 height=607></P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/mZlPWSKpavo" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.10.2016 news VREID опубликовали видео
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип норвежцев<strong> VREID</strong> на песню "<strong>Nar Byane Brenn</strong>" можно посмотреть ниже. Песня взята с последнего альбома музыкантов "<strong>Solverv</strong>", который вышел на <strong>Indie Recordings</strong> и<strong> Фоно</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Приобрести лицензионный диск можно на сайте <strong>Escapemind.ru</strong> за 208 рублей: <a href="http://escapemind.ru/goods/VREID-S%C3%B3lverv">http://escapemind.ru/goods/VREID-S%C3%B3lverv</a></font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/FNKfnd59wpw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 08.10.2016 news New video of VREID
+
+<p>New clip of Norwegians <strong>VREID</strong> for the song "<strong>Nar Byane Brenn</strong>" can be viewed below. Song taken from latest album musicians <strong>"Solverv"</strong>, which was released on<strong> Indie Recordings</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/FNKfnd59wpw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

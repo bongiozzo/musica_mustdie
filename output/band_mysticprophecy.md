@@ -140,6 +140,129 @@ Mathias Straub - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2005 reviews Импотенты от power-metal
+
+<P>Нет, я понимаю, что в пауэр-метале ничего нового открыть уже невозможно. Все давным-давно сыграно и спето, и даже избитые клише многократно клонированы в самых извращенных формах. Все возможные идеи пользованы-перепользованы и испробованы в различных вариациях, вплоть до заимствования из других, казалось бы, чуждых стилей… Но нельзя же вот так!..</P>
+<P>Бригада с таким необычайно «оригинальным» названием – очередной интернациональный микс из шведов, греков и германцев. И музыканты-то ведь с внушающим уважение прошлым: например, басист Мартин Альбрехт в начале девяностых был в составе легендарных STORMWITCH, Деннис Экдаль известен своей работой в RAISE HELL, а Гас Джи – гитарист в мелодик-дэтовом NIGHTRAGE. Казалось бы – такой сильный и перспективный состав просто обязан нарулить мега-шедевр. Ну, хоть в третий-то раз! Ан нет… Вышло все как раз наоборот. </P>
+<P>На своем третьем альбоме «Бес-Конечность» - что, интересно, они хотели этим сказать?.. - группа представила убогий хаотичный пауэр, бессмысленный, как политические проделки Никиты Хрущева. С первого же трэка все становится ясно – «мистические пророки» крепко зависали (или зависают?) на первом альбоме KAMELOT, также не обходя вниманием творчество замечательной шведской прог-пауэр команды EVERGREY. За песнопения здесь отвечает гордый сын Эллады по имени Роберто Лиапакис (он же - лидер коллектива), обладающий довольно приятным тембром голоса. Но, отчаянно копируя вокалиста EVERGREY, камрад Лиапакис никак не дотягивает до бархатной мрачности Тома Энглунда и, неестественно тужась, становится похожим на печальную жертву долговременного запора. Может, я чего не понимаю?</P>
+<P>В одном из интервью музыканты называют свою музыку «агрессивным пауэром» - так вот, на “Never-Ending” никакой агрессии нет и в помине – беззубый и скучный набор штампов. К технике исполнения – ни одной претензии, все на самом высочайшем уровне, но вот сам материал… Бестолковое стрекотание барабанов, ни одного мало-мальски сильного или запоминающегося соло, напрочь неинтересные мелодии, отсутствие собственных мыслей – ну, и что вы хотели этим сказать?</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</P></A>
+Автор: Dr. Grandma
+
+### 05.07.2005 news MYSTIC PROPHECY пошли на понижение
+
+<P><STRONG>MYSTIC PROPHECY</STRONG> заключили сделку с <STRONG>Massacre Records</STRONG>, куда перешли с <STRONG>Nuclear Blast</STRONG>. Группа войдёт в студию в октябре, где запишет новый альбом "<STRONG>Savage Souls</STRONG>", который выйдет в феврале следующего года.</P>
+Автор: Vit Belov
+
+### 05.07.2005 news MYSTIC PROPHECY sign with Masscare
+
+<P><STRONG>MYSTIC PROPHECY</STRONG> signed deal with <STRONG>Massacre</STRONG>. They will enter studio in october, where will&nbsp;record new album "<STRONG>Savage Souls</STRONG>".</P>
+Автор: Vit Belov
+
+### 02.07.2008 reviews Без Gus G. тяжеловато приходится
+
+<P>Часто мы сталкиваемся с поступательным движением в развитии металлических групп. Либо первый альбом выстреливает, а потом группа катится вниз, либо музыканты развиваются с нуля и становятся звёздами жанра альбому к третьему-четвёртому. Немецкую (интернациональную) power-metal группу MYSTIC PROPHECY «колбасит» на протяжении всей карьеры. Начав с откровенно проходных пластинок, группа оказалась на Nuclear Blast, которые их довольно быстро забраковали, и затем MP перешли на хороший крепкий лэйбл Massacre, где теперь выпускают альбомы, чуть ли не каждый год.</P>
+<P>Подобные пертурбации, как мне кажется, связаны с гитаристом Gus G. Было время, когда этот греческий виртуоз был очень популярен, и его популярность совпала с очередной волной популярности power-metal. Он участвовал в куче групп, среди которых были и MYSTIC PROPHECY. Все его подопечные довольно быстро подписывали контракты с крупными лэйблами, на долю этой группы выпал Nuclear Blast, который даже переиздал кое-что из раннего творчества этого коллектива. К сожалению, ничего интересного и качественного на тех альбомах не было. А тут ещё и Gus G. надумал сконцентрироваться на FIREWIND, и пиши пропало. Есть, правда, ещё одна заметная личность в составе MYSTIC PROPHECY, тоже грек, вокалист R. D. Liapakis. Помимо прочего он ещё занимается и продюсированием альбомов, а подобные люди никогда не бывают лишними. Поэтому группа не свалилась в небытие, а задержалась на лэйбле Massacre, как я уже сообщил. Подобные пространные рецензии вряд ли радуют поклонников металла, которые пытаются читать наш сайт, но что поделать? Музыка MYSTIC PROPHECY не слишком впечатлила вашего рецензента. Качественный, предельно тяжёлый и довольно разнообразный материал, которому отчаянно не хватает запоминаемости. Здесь есть всё, что может мне понравиться, помимо жёсткого исполнения, MP даже используют гроулинг в некоторых песнях. Но «магии» на “Satanic Curses” я не обнаружил.</P>
+<P>Крепкий power-metal альбом с достаточным количеством хороших песен. Хороших, но не более. Коллекционерам.</P>
+Автор: Vit Belov
+
+### 31.01.2009 news MYSTIC PROPHECY пишут альбом
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.01/13473.jpg" width=200 align=left border=5>MYSTIC PROPHECY</STRONG> вошли в студию в декабре для записи нового альбома <STRONG>"Fireangel"</STRONG>, который выйдет 22 мая на <STRONG>Massacre Records</STRONG>. Сведут пластинку <STRONG>Fredrik Nordstrom </STRONG>и <STRONG>R.D. Liapakis.</STRONG></P>
+Автор: Vit Belov
+
+### 04.06.2009 news MYSTIC PROPHECY попали в чарты
+
+<P>Новый альбом <STRONG>MYSTIC PROPHECY "Fireangel"</STRONG> попал в немецкие чарты на 77 позицию. Альбом вышел 22 мая на<STRONG> Massacre Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.03.2010 news DEVIL&#39;s TRAIN - новый &#39;all-star project&#39;
+
+<P>Лидер и продюсер&nbsp;<STRONG>MYSTIC PROPHECY R.D. Liapakis</STRONG>&nbsp;организовал новый проект <STRONG>DEVIL'S TRAIN</STRONG>. В нём музыкант вместе с гитаристом&nbsp;<STRONG> Lakis Ragazas</STRONG> будет играть 'old school hard-rock/heavy-metal'. Во время совместного тура со <STRONG>STRATOVARIUS&nbsp;Liapakis</STRONG> поделился этой идеей с барабанщиком финнов немцем<STRONG> Jorg Michael</STRONG>, который попросил включить его в этот проект. Пока не названный альбом должен выйти осенью.</P>
+Автор: Vit Belov
+
+### 17.02.2011 news MYSTIC PROPHECY войдут в студию
+
+<P><STRONG>MYSTIC PROPHECY</STRONG> войдут в студию <STRONG>Prophecy Music Factory </STRONG>с продюсером и вокалистом <STRONG>Roberto Dimitri Liapakis</STRONG> (<B>MYSTIC PROPHECY</B>, <B>SUICIDAL ANGELS</B>, <B>VALLEY'S EVE</B>, <B>INSIDEAD</B>) для записи нового альбома <STRONG>"Raven Lord". </STRONG>Пластинка должна выйти 28 октября на <STRONG>Massacre Records</STRONG>. На альбом войдут 11 вещей, и он станет дебютом для нового барабанщика <STRONG>Claudio Sisto. </STRONG></P>
+<P><center><IMG height=221 src="/images/news_rus/2011.02/18630.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 21.07.2011 news Новый альбом MYSTIC PROPHECY
+
+<P><STRONG><IMG height=221 alt="" hspace=0 src="/images/news_rus/2011.07/20282.jpg" width=450 align=right border=0>MYSTIC PROPHECY</STRONG> готовят к выходу свой седьмой альбом <STRONG>"Raven Lord". </STRONG>Пластинка выйдет 25 ноября на <STRONG>Massacre Records</STRONG>. Пластинка станет дебютом для нового барабанщика <STRONG>Claudio Sisto. </STRONG>Вот названия некоторых песен:</P>
+<P>* <B>Raven Lord</B><BR>* <B>Cross Of Lies</B><BR>* <B>Endless Fire</B><BR>* <B>Damned Tonight</B><BR>* <B>Reckoning Day</B><BR>* <B>Die Now!!! </B><BR>* <B>Wings Of Destiny</B><BR>* <B>Eyes Of The Devil</B><BR>* <B>Miracle Man</B> (OZZY OSBOURNE cover)</P>
+Автор: Vit Belov
+
+### 22.09.2011 news Новая песня MYSTIC PROPHECY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Седьмой альбом немецкой power-metal группы <STRONG>MYSTIC PROPHECY "Raven Lord"</STRONG> выходит 25 ноября на <STRONG>Massacre Records</STRONG>. Новую песню, давшую название этой пластинке, можно послушать в клипе ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/BHkEiTIkqXQ" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 24.05.2013 news Обложка нового MYSTIC PROPHECY
+
+<P>Новый альбом power-metal'истов <STRONG>MYSTIC PROPHECY</STRONG> <STRONG>"Killhammer" </STRONG>выходит 27 сентября на<STRONG> Massacre Records</STRONG>. Альбом был записан в <STRONG>Prophecy & Music Factory Studios, </STRONG>в качестве продюсера вновь выступил вокалист коллектива <STRONG>Roberto Dimitri Liapakis</STRONG> (<B>SUICIDAL ANGELS</B>, <B>VALLEY'S EVE</B>, <B>INSIDEAD</B>). Сведение проделал <STRONG>Fredrik Nordstrom</STRONG> (<B>HAMMERFALL</B>, <B>IN FLAMES</B>, <B>ARCH ENEMY</B>). Обложку нарисовал <STRONG>Uwe Jarling.</STRONG></P>
+<P><center><STRONG><IMG border=0 src="/images/news_rus/2013.05/25743.jpg" width=475 height=679></STRONG></P>
+Автор: Vit Belov
+
+### 17.02.2014 news Escapemind.ru начинает лицензионное сотрудничество с Massacre Records
+
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>Escapemind.ru <SPAN lang=ru-RU>представляет очередные лицензионные релизы при поддержке<STRONG> </STRONG></SPAN><STRONG>MUSICA Production</STRONG>. <SPAN lang=ru-RU>По лицензии немецкого лэйбла </SPAN>Massacre Records <SPAN lang=ru-RU>две популярнейших </SPAN>power-metal <SPAN lang=ru-RU>Германии.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><STRONG>EPD – 14.2 WIZARD “Trail Of Dead”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>-power-metal; <SPAN lang=ru-RU>Десятый альбом известнейшего коллектива. Настоящий тевтонский </SPAN>power-metal, <SPAN lang=ru-RU>мощные риффы, высокий вокал и гимноподобные мелодии. Поклонникам </SPAN>GAMMA RAY, PRIMAL FEAR <SPAN lang=ru-RU>и </SPAN>MANOWAR. <SPAN lang=ru-RU>Группа создала новую и мегауспешную страницу в собственной истории. Достойный юбилейный альбом. </SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU><A href="http://soundcloud.com/wizardmetal/black-death">http://soundcloud.com/wizardmetal/black-death</A></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR><STRONG>EPD – 14.3 MYSTIC PROPHECY “Killhammer”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>-power-metal; <SPAN lang=ru-RU>Восьмой альбом основной группы великолепного немецкого вокалиста-продюсера греческого происхождения </SPAN>R.D. Liapakis (DEVIL'S TRAIN). <SPAN lang=ru-RU>Пожалуй, самая мрачная и тяжёлая команда на современной немецкой </SPAN>power-metal <SPAN lang=ru-RU>сцене. Также в записи приняли участие басист </SPAN>CIRCLE OF PAIN Connie “Connor” Andreszka <SPAN lang=ru-RU>и бывший гитарист </SPAN>SYMPHORCE Markus Pohl. <SPAN lang=ru-RU>Альбом включает кавер-версию на песню </SPAN>OZZY OSBOURNE “Crazy Train”. <SPAN lang=ru-RU>Великолепный 24-страничный буклет.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU><A href="http://youtu.be/FDXZSAllHjk">http://youtu.be/FDXZSAllHjk</A></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU>Приобрести диски с пятницы 24 января 2014 года можно в интернет-магазине <A href="http://www.escapemind.ru/"></SPAN>escapemind.ru</A> <SPAN lang=ru-RU>и на Горбушке в магазине «</SPAN>MUSICA<SPAN lang=ru-RU>» </SPAN>(<SPAN lang=ru-RU>ТЦ Горбушкин Двор, место </SPAN>B2-230). <SPAN lang=ru-RU>Дата релиза — 27 января. Оптовая дистрибуция: Фоно (</SPAN><A href="http://www.fono.ru/"><U><FONT color=#000080>http://www.fono.ru</FONT></U></A>)</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>
+<CENTER>&nbsp;<IMG border=0 src="/images/news_rus/2014.02/26548.jpg" width=595 height=304></CENTER>
+Автор: Vit Belov
+
+### 11.04.2014 reviews Самый тяжёлый power-metal в Европе
+
+<P>MYSTIC PROPHECY <SPAN lang=ru-RU>были образованы в 2000 году как сайд-проект музыкантов </SPAN>prog-metal <SPAN lang=ru-RU>команды </SPAN>VALLEY'S EVE <SPAN lang=ru-RU>вокалиста </SPAN>R.D. Liapakis <SPAN lang=ru-RU>и басиста </SPAN>Martin Albrecht. <SPAN lang=ru-RU>В группу также был приглашён малоизвестный гитарист </SPAN>Gus G. <SPAN lang=ru-RU>Несмотря на некоторую сырость дебютного альбома, на </SPAN>MYSTIC PROPHECY <SPAN lang=ru-RU>обратил внимание лэйбл-монстр </SPAN>Nuclear Blast, <SPAN lang=ru-RU>и с тех пор коллектив не пропадает из поля видимости поклонников </SPAN>power-metal.</P>
+<P>&nbsp;В настоящий момент, к восьмому изданному альбому "<SPAN lang=en-US>Killhammer", </SPAN>в группе из зачинателей остался только вокалист <SPAN lang=en-US>R.D. Liapakis, </SPAN>но <SPAN lang=en-US>MYSTIC PROPHECY </SPAN>уже приобрели собственное узнаваемое лицо, и их уже ни с кем не спутаешь. <SPAN lang=en-US>Power-metal </SPAN>от этой группы — один из самых тяжёлых на современной европейской сцене. Музыка коллектива идеально вписывается в рамки стиля, здесь есть и цепляющие мелодии, и неоклассические проходы, так часто используемые коллегами по цеху, но звук гитар настолько низок и тяжёл, а вокал настолько разнообразен (вплоть до гроула), что <SPAN lang=en-US>MYSTIC PROPHECY </SPAN>могут понравиться даже любителям <SPAN lang=en-US>thrash-metal, </SPAN>а то и <SPAN lang=en-US>melodic death-metal. </SPAN>Только этот коллектив может позволить себе начать альбом со среднетемповой брутальной композиции, да и оформление работы с использованием разнообразных пентаграмм и оккультных мотивов выделяет группу из общего ряда.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Отличный оригинальный диск в современном <SPAN lang=en-US>power-metal. </SPAN>Здесь есть и «изюминка», и разнообразие, и высочайший профессионализм исполнителей. </P>
+Автор: Vit Belov
+
+### 29.02.2016 news MYSTIC PROPHECY: видеоклип &quot;Metal Brigade&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие металлисты <STRONG>MYSTIC PROPHECY</STRONG> опубликовали видеоклип на песню <STRONG>"Metal Brigade"</STRONG>. Этот трек войдёт на их новый альбом под названием <STRONG>"War Brigade"</STRONG>, который выходит 18 марта 2016&nbsp;г.&nbsp;на лейбле <STRONG>Massacre</STRONG>.</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR></P></FONT>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/fxfNOVZh4B4" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 30.03.2016 news Новые релизы Escapemind.ru
+
+<P><SPAN class=tit3><IMG border=0 hspace=0 alt="" src="/images/news_rus/2016.03/29060.jpg" width=280 align=right height=280>EPD 16.11 MYSTIC PROPHECY “War Brigade” (escapemind.ru / musica prod. / massacre records)</SPAN></P>
+<P>-power metal; Девятый альбом немецких power metal'истов. Самая тяжёлая и мрачная power metal группа. Почти все альбомы коллектива были изданы в России по лицензии. Последние две работы выпустил новый лицензионный лэйбл escapemind.ru при поддержке Musica Production. Трек-лист:</P>
+<P><STRONG>1. Follow The Blind<BR>2. Metal Brigade<BR>3. Burning Out<BR>4. The Crucifix<BR>5. Pray For Hell<BR>6. 10000 Miles Away<BR>7. Good Day To Die<BR>8. The Devil Is Back<BR>9. War Panzer<BR>10. Fight For One Nation<BR>11. War Of Lies</STRONG></P>
+<P><STRONG>The Crucifix</STRONG> video: </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/k1xm4JzmnQw" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P><STRONG>Metal Brigade</STRONG> video: </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/fxfNOVZh4B4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P>Интернет-продажа: <A href="http://escapemind.ru/goods/MYSTIC-PROPHECY-War-Brigade">http://escapemind.ru/goods/MYSTIC-PROPHECY-War-Brigade</A></P>
+<P><SPAN class=tit3>EPD 16.12 PARAGON “Hell Beyond Hell” (escapemind.ru / musica prod. / remedy records)</SPAN></P>
+<P>-heavy power metal; Одиннадцатый альбом немецкой heavy metal команды, известной по сотрудничеству с Irond и Mazzar Records. На новом альбоме, вышедшем в марте, группа возвращается на Remedy Records. Ещё более бескомпромиссный и мелодичный материал. Любителям Manowar и Iron Savior. В сочинении музыки и текстов принял участие <STRONG>Piet Sielck (Iron Savior)</STRONG>. Он же выступил и продюсером пластинки. Трек-лист:</P>
+<P><STRONG>1. Rising Forces<BR>2. Hypnotized<BR>3. Hell Beyond Hell<BR>4. Heart Of The Black<BR>5. Stand Your Ground<BR>6. Meat Train<BR>7. Buried In Black<BR>8. Devil's Waitingroom</STRONG></P>
+<P><STRONG>Hell Beyond Hell</STRONG>: </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/or76sgv7We0" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P>Интернет-продажа: <A href="http://escapemind.ru/goods/PARAGON-Hell-Beyond-Hell">http://escapemind.ru/goods/PARAGON-Hell-Beyond-Hell</A></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+### 19.06.2016 news MYSTIC PROPHECY to tour with ARTILLERY
+
+<p>German Metallers <strong>MYSTIC PROPHECY</strong> to embark on a co-headline tour featuring <strong>ARTILLERY</strong> as special guests in Sep/Oct 2016</p><p>It is officially announced that the longstanding German Metallers, MYSTIC PROPHECY, will be on the road once again this coming September / October for a co-headline tour, named "<strong>War Brigade</strong>", with the veterans of Thrash Metal from Denmark, ARTILLERY. The tour will be taking the bands through Switzerland, Belgium, The Netherlands and Germany.</p><p>"War Brigade" Tour Dates:<br>17.9 - CH - Wetzikon - Hall Of Fame*<br>23.9 - BE - Dendermonde - Jh Zenit**<br>24.9 - DE - Oberhausen - Helvete**<br>25.9 - NL - Gorinchem - Stichting Pogo**<br>2.10 - DE - Anweiler - Rock Am Trifels*<br>21.10 - DE - Hechingen - The Ranch Festival*<br>22.10 - DE - Wiesla Rock Club*</p><p>*MP Only<br>**MP + ART</p><p>Last March both bands unleashed new offerings to the Metal universe. MYSTIC PROPHECY fired away "War Brigade", which has been critically acclaimed, released via <strong>Massacre Records</strong>. ARTILLERY sent another message of pure articulacy with "<strong>Penalty By Perception</strong>", released by <strong>Metal Blade Records</strong>.&nbsp; </p><p><center><img width="681" height="960" src="/images/news/2016.06/29408.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -21,6 +21,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2011 news Второй альбом CONDEMNED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Второй альбом детстеров из Калифорнии <STRONG>CONDEMNED</STRONG> <STRONG>"Realms Of The Ungodly" </STRONG>выйдет 8 ноября на <STRONG>Unique Leader Records</STRONG>. Согласно пресс-релизу, группа предложит более брутальный материал по сравнению со своим дебютником.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первая работа <STRONG>CONDEMNED</STRONG> <STRONG>"Desecrate The Vile" </STRONG>вышла в 2007 году на <STRONG>Lacerated Enemy Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=475 src="/images/news_rus/2011.08/20494.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

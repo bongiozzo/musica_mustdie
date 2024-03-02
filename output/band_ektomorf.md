@@ -254,6 +254,476 @@ Studios, Denmark.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.05.2003 reviews Мастерское копирование и отсутствие своего лица
+
+<p><B>Что может быть лучше для фаната поздней SEPULTURA и SOULFLY, нежели поздняя SEPULTURA и SOULFLY? Венгерская группа EKTOMORF – вариант не из худших.</B></p>
+<p> Все просто – этот квартет, образованный братьями-цыганами Фаркашами, вдохновлен всего двумя пластинками, зато какими – "Roots" SEPULTURA и "Soulfly" SOULFLY. Соответственно, задача-минимум – звучать также, а максимум – лучше. И венгерский квартет настолько успешно справился с первым, что оригиналам-исходникам, испытывающим сегодня серьезные проблемы со свежими идеями, достойных прошлых шедевров, самое время задуматься о серьезном рывке вперед. В противном случае такие вот последователи-конкуренты, научившиеся абсолютно всем приемам кумиров, пишущие неплохие энергичные песни и не стесняющиеся такого сходства, попросту сожрут оригинал с потрохами. EKTOMORF пока проигрывают лишь в менее эффектной и изобретательной ритм-секции и отсутствии собственных ярких идей (притянутые за уши цыганские народные напевы не в счет), зато с гитарными рифами и вокалом все просто отлично. Лишь вторичность несколько смущает, но… А вдруг это лишь издержки роста?</p>
+<p> Как бы то ни было, шанс у SEPULTURA и SOULFLY еще есть – EKTOMORF пока не сделали последний шаг и так и не вышли за рамки высококлассной копии. А ведь всего ничего и эти венгры ворвутся в элиту современного хардкора со своей версией этой энергичной музыки, и остатки чужого звучания в задорных песнях EKTOMORF будут сродни очкам энтомолога, оставшимся у людоеда на память о вкусном и питательном ужине. А пока время, пусть и немного, есть у всех: у увядающих кумиров – чтобы образумиться и взять себя в руки, у подрастающей напористой молодежи – чтобы определится с направлением нового удара и отправить стариков на заслуженный отдых. А для любителей подобной музыки такой расклад – отличный повод, чтобы распробовать новый и очень неплохой коктейль EKTOMORF, который в перспективе может добрать нужные градусы и превратиться в элитное виски.</p>
+
+Автор: Tornado
+
+### 14.07.2003 reviews Я кричу небесам
+
+<P>Ektomorf одна из немногих групп, которые хорошо играют то, что они хотят играть. Но сразу при прослушивании альбома начинаешь понимать, что музыка Ektomorf очень схожа с Soulfly. Также гроулинг их вокалиста чрезвычайно похож на традиционный ор Макса Кавальеры, и отличается он только сильным акцентом. Лирика группы ничем не приметна и выполнена в традициях подобных групп - часто употреблямое выражение "Fuck you!", которое Farkas Zoltan нечетко выкрикивает, можно услышать чуть ли не в каждой песне. Опять же проведу сравнение Ektomorf с Soulfly - известно, что Макс часто использует народные инструменты своей родины Бразилии по типу беримбау (berimbau). Также на альбоме Ektomorf можно услышать народных певцов родины группы, которые зачастую подпевают тяжелым гитарам и жестким ударным. Причем вокал этих певцов был наложен на музыку в студии, так как даже в буклете указано, что это записи чуть ли не 60-х годов. Неизвестно откуда взявшиеся вертушки от DJ Pozsi как ни странно совершенно не портят музыки. Но больше всего меня привлекла ковер-версия знаменитого хита английской четверки The Beatles "A Hard Day's Night". И вы знаете, в angry metal версии эта песня звучит оригинально и забавно, поэтому сразу ясно, что у венгерского квартета есть чувство юмора. В начале альбома песни в среднем по три с половиной минуты, они медленны и мощны. А ближе к концу есть несколько быстрых вещей (к примеру, "Scum", "Serial Men", которые походят немного даже на death metal). Единственное, что не понравилось лично мне на этом альбоме - это трэк "Fajdalom Konnyei", что переводится как "tears of pain" (слезы боли). Вокалом в этой песне заведует некий Csato Peti, который на протяжении четырех с половиной минуты трагично поет что-то на венгерском языке, но никаких признаков метала нет. Это просто отступление от основной темы, но мне оно показалось неудачным. А в целом музыка Ektomorf безусловно хороша, хоть они и являются идеальной копией Soulfly. Их риффы просты, вокал однообразен, а ритмика заставляет прыгать и "колбаситься". Словом, Ektomorf рубят настоящий angry metal!</P>
+Автор: Darkfall
+
+### 17.09.2003 news EKTOMORF на NUCLEAR BLAST
+
+EKTOMORF заключили договор с NUCLEAR BLAST. Группа, выпустившая уже четыре альбома, уже известна нашему слушателю по прошлому альбому, который вышел на Irond Records.
+Автор: Vit Belov
+
+### 20.09.2003 news EKTOMORF are on Nuclear Blast
+
+<SPAN lang=EN-GB>Press statement: '<SPAN lang=EN-GB>Nuclear Blast Records is proud to announce the worldwide signing of EKTOMORF. The hungarian four piece is playing a modern crossover between Hardcore and Thrash Metal and has released four records so far. With their last album “I Scream Up To The Sky” EKTOMORF played a lot of shows and festivals in </SPAN><SPAN lang=EN-GB>Germany</SPAN><SPAN lang=EN-GB>, including an impressing headliner show at the Summer Breeze festival 2002 in front of 10.000 crazy maniacs. The band includes musical roots of their roman origin and creates an unique style that blows away everybody, whether on stage or on their records!'</SPAN></SPAN>
+Автор: Vit Belov
+
+### 24.03.2004 reviews Цыганские последователи SOULFLY с буддистскими корнями
+
+<DIV><I>Венгерская группа <B>EKTOMORF</B> доигралась до <B>Nuclear Blast</B>. Единственной группе в своём роде в Европе самое место в этой "конюшне".</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>EKTOMORF</B> очень любят<B> SOULFLY</B>. Энергичные, качовые и ... довольно однообразные песни - конёк обоих групп. <B>EKTOMORF</B> - цыгане, и они используют элементы народного творчества в своей музыке также, как и группа <B>Max Cavalera</B>.&nbsp;Правда,&nbsp;почему-то не цыганского, а буддистского. Ромалы&nbsp;- странная нация, возможно, у&nbsp;их корней имеются ответвления и&nbsp;на Тибете? Так или иначе вкрапления "тибетских балалаек" и&nbsp;какого-то горлового пения добавляют группе схожести с <B>SOULFLY</B>.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>EKTOMORF</B> можно смело рекоммендовать любителям современного металла, так как в этом не очень популярном у нас стиле редко появляются стоящие новинки.&nbsp;&nbsp;</DIV>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 13.12.2004 news EKTOMORF выпускают новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом EKTOMORF 'Instinct' выходит 28 марта на Nuclear Blast. Пластинка была записана в Antfarm Studio вместе с Tue Madsen. Трэк-лист:</FONT></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.12/7496.jpg" width=200 align=right border=5>1. <STRONG>Set Me Free<BR></STRONG>2. <STRONG>Show Your Fist</STRONG><BR>3. <STRONG>Instinct<BR></STRONG>4. <STRONG>Burn<BR></STRONG>5. <STRONG>The Holy Noise<BR></STRONG>6. <STRONG>Fuck You All<BR></STRONG>7. <STRONG>United Nations<BR></STRONG>8. <STRONG>Land Of Pain<BR></STRONG>9. <STRONG>I Break you<BR></STRONG>10. <STRONG>You Get What You Give<BR></STRONG>11. <STRONG>Until The End<BR></STRONG>12. <STRONG>I Will</STRONG></P>
+Автор: Vit Belov
+
+### 13.12.2004 news EKTOMORF will release new album in 2005
+
+<P>Hungarian Thrashcore band<STRONG> EKTOMORF</STRONG> has finished working on its forthcoming album "<STRONG>Instinct</STRONG>" (in stores: March 28th 2005). The record has once again been recorded, produced and mixed by <STRONG>Tue Madsen</STRONG> (<STRONG>THE HAUNTED, MNEMIC, DIE APOKALYPTISCHEN REITER</STRONG>) at the <STRONG>Antfarm Studios</STRONG> in Aarhus, Denmark. Track-list:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news/2004.12/7497.jpg" width=200 align=right border=5>1. <STRONG>Set Me Free<BR></STRONG>2. <STRONG>Show Your Fist</STRONG><BR>3. <STRONG>Instinct<BR></STRONG>4. <STRONG>Burn<BR></STRONG>5. <STRONG>The Holy Noise<BR></STRONG>6. <STRONG>Fuck You All<BR></STRONG>7. <STRONG>United Nations<BR></STRONG>8. <STRONG>Land Of Pain<BR></STRONG>9. <STRONG>I Break you<BR></STRONG>10. <STRONG>You Get What You Give<BR></STRONG>11. <STRONG>Until The End<BR></STRONG>12. <STRONG>I Will</STRONG></P>
+Автор: Vit Belov
+
+### 09.06.2005 reviews Порубиться всем не вредно
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пожалуй, музыка, которую проповедуют EKTOMOROF, самая искренняя среди всех современных metal-стилей. Незамысловатая лирика, повествующая о социальной несправедливости и самоопределении индивида в обществе, незамысловатые риффы, которые заставляют рубиться, даже если вы находитесь в лифте или машине.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поклонники SOULFLY и поздней "кавалеровской" SEPULTURA могут быть спокойны. Знамя Макса есть кому подхватить. EKTOMORF со своим новым альбомом "Instinct" окончательно застолбили за собой место где-то рядом. Полный набор компонентов, характерных для подобной брутальной разновидности thrash-metal, присутствует на этой пластинке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Настоятельно рекомендую всем любителям подобного. Вы не пожалеете. Да и любителям разнообразных ортодоксальных "металлов" порубиться тоже будет не вредно.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></FONT></P>
+Автор: Vit Belov
+
+### 27.12.2005 news DVD от EKTOMORF
+
+<P><STRONG>EKTOMORF </STRONG>выпускают концертное DVD <STRONG>"Live and Raw...You Get What You Give" </STRONG>6 января на <STRONG>Nuclear Blast</STRONG>. На диск вошло выступление венгров на фестивале <STRONG>Summer Breeze</STRONG> в 2005 году, а также все их видеоклипы. В качестве бонуса с DVD будет распространяться ремастированная версия альбома <STRONG>"Kalyi Jag", </STRONG>вышедшего в 2000 году. Трэк-лист:</P>
+<P>DVD - Live from Summer Breeze Festival 2005 (approx. 45 minutes):<BR><BR><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.12/9876.jpg" width=200 align=right border=5>01. <B>Intro</B><BR>02. <B>Set Me Free</B><BR>03. <B>Show Your Fist</B><BR>04. <B>Instinct</B><BR>05. <B>Fuck You All</B><BR>06. <B>Burn</B><BR>07. <B>You Get What You Give</B><BR>08. <B>Gipsy</B><BR>09. <B>I Know Them</B><BR>10. <B>Serial Man</B><BR>11. <B>United Nations</B><BR>12. <B>I Will</B><BR><BR>Bonus Clips (approx. 20 minutes):<BR><BR>13. <B>AEA</B><BR>14. <B>I Know Them</B><BR>15. <B>Destroy</B><BR>16. <B>Show Your Fist</B><BR>17. <B>Set Me Free</B><BR><BR>+ Making Of "Destroy"<BR><BR>Bonus CD – <B>"Kalyi Jag"</B> (total running time: 64:43):<BR><BR>01. <B>Son Of The Fire</B><BR>02. <B>Sunto D&#233;l Mulo</B><BR>03. <B>Freely</B><BR>04. <B>Romungro</B><BR>05. <B>For You</B><BR>06. <B>For The Last Time</B><BR>07. <B>Always Believe In Yourself</B><BR>08. <B>Open Up Your Eyes</B><BR>09. <B>Save My Soul</B><BR>10. <B>The Way I Do</B><BR>11. <B>Brother Song</B><BR>12. <B>Fly</B><BR>13. <B>Don&#180;t Need</B><BR>14. <B>Kalyi Jag</B><BR>15. <B>Forgotten Fire</B> </P>
+Автор: Vit Belov
+
+### 05.02.2006 news EKTOMORF начнут запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>EKTOMORF</STRONG> войдут в <STRONG>Antfarm Studios</STRONG> 10 июля для записи нового альбома "<STRONG>Outcast</STRONG>". </FONT></P>
+Автор: Vit Belov
+
+### 13.02.2006 articles EKTOMORF в Москве, пресс-релиз
+
+<P>Ektomorf</P>
+<P>Москва: 18 марта, Клуб “Точка”<BR>Санкт-Петербург: 19 марта, Клуб “Порт”</P>
+<P>В то время как их европейские коллеги обращаются к традиционным направлениям металла, Ektomorf утверждают собственный стиль и создают неповторимый коктейль из trash metal, hardcore, punk и цыганского фольклора. Только за последние два года Ektomorf отыграли мощные туры с Pro-Pain, Fear Factory, Kreator, Dark Tranquillity и Hatesphere, а также приняли участие в фестивалях With Full Force, Wacken, Rock am Ring, Rock im Park. В конце января стартовал европейский тур группы в ходе которого Ektomorf впервые выступят в России. </P>
+<P>Венгерскую команду Ektomorf основали братья Zolt&#225;n и Csaba Farkas. Дебютная пластинка “Hangok” (1996), сочетающая hardcore, metal и цыганские мелодии, принесла группе известность на родине. Следующему, одноименному альбому “Ektomorf” (1998) сопутствовал необыкновенный успех в Европе. В скором времени к группе присоединился барабанщик J&#243;zsef Szak&#225;cs, и трио записало великолепный “Kalyi Jag” (черное пламя), всемирный релиз которого состоялся в 2000 году. </P>
+<P>Пластинка получила прекрасные рецензии в прессе, не удержавшейся от сравнений с Sepultura и Soulfly из-за агрессивных, безудержных риффов и текстов социально-критического содержания. Вслед за этим последовали интенсивные гастроли и великолепные перфомансы на крупнейших фестивалях Sziget, Summer Rocks, Summer Breeze Open Air.</P>
+<P>В 2002 году Ektomorf выпустили “I Scream Up To The Sky”. Альбом стал одной из самых успешный работ группы и получил восторженные отзывы критиков и отличные характеристики в популярных музыкальных изданиях, среди которых “Metal Hammer”, “Rock Hard” и многие другие. </P>
+<P>В 2003 году, вскоре после того, как к Ektomorf присоединился гитарист Tam&#225;s Schrottner, группа подписала контракт с лейблом Nuclear Blast и в ноябре начала запись нового альбома “Destroy” (2004). В работе над диском участвовал продюсер Tue Madsen (Mnemic, The Haunted, Disbelief, Illdisposed). Результат оказался потрясающим: стоит только взять грувовый, суперскоростной “Destroy” с живыми и сочными гитарными риффами или сумасшедший hardcore трек “A.E.A.”. </P>
+<P>Последний альбом группы “Instinct” – это сокрушительный удар гнева,&nbsp; он намного мощнее и воинственнее своего предшественника. “Instinct” – это бескомпромиссный саундтрек революции, искусно сочетающий силу и ненависть. Ektomorf остались верны своему стилю, но стали звучать еще более энергично и агрессивно. Пластинку также записал Tue Madsen. Этот альбом понравится и поклонникам hardcore, и предпочитающим death metal. Такие композиции, как “Show Your Fist”, несомненно, обращены к массовому сознанию, в то время как минималистичный “Burn” разоблачает плохую память “так называемых” друзей. Среди агрессивных, прямолинейных песен неожиданно появляется инструментальная “Land Of Pain”. Этнические мелодии и напевы тонкой нитью проходят через весь альбом, делая его очень эмоциональным. </P>
+<P>6 января 2006 года на лейбле Nuclear Blast Records вышел долгожданный концертный DVD Ektomorf “Live and Raw...You Get What You Give”. На диске записано выступление Ektomorf на фестивале Summer Breeze 2005 года, а также все видеоклипы группы. В качестве бонуса к DVD прилагается аудио CD с ремастированной версией альбома “Kalyi Jag”.</P>
+<P>Состав группы:</P>
+<P>•&nbsp;Zolt&#225;n Farkas – вокал, гитара <BR>•&nbsp;Csaba Farkas - бас<BR>•&nbsp;J&#243;zsef Szak&#225;cs - ударные<BR>•&nbsp;Tam&#225;s Schrottner - гитара <BR>&nbsp;<BR>Дискография:</P>
+<P>•&nbsp;Hangok (1996)<BR>•&nbsp;Ektomorf (1998)<BR>•&nbsp;Kalyi Jag (2000)<BR>•&nbsp;I Scream Up To The Sky (2002)<BR>•&nbsp;Destroy (2004)<BR>•&nbsp;Instinct (2005)</P>
+<P>Официальный сайт:</P>
+<P><A href="http://ektomorf.com/">http://ektomorf.com/</A></P>
+<P><BR>Билеты уже в продаже (от 650руб.)<BR>Справки по телефону 76 77 037<BR>Разогрев- Безумные усилия.<BR>В рамках концерта Ektomorf&nbsp; группа Безумные Усилия представит свой новый альбом "Стирая грани". Вас ожидает большой сюрприз- выступление специально приглашённых звёзд.<BR>-Пензенский alt-metal коллектив БеZумные Усилия образовался в конце 90х годов прошлого века. В разное время они делили сцену с такими монстрами отечественной "альтернативы", как I.F.K., Scang, Кирпичи, Animal Jazz, Tracktor Bowling. Получив локальную известность посредством участия во всевозможных сборниках и активной концертной деятельности, БеZумные Усилия перебазировались в Москву, где с удвоенной силой принялись завоевывать внимание аудитории. В 2004 году подошла к завершению работа над дебютным альбомом, получившим название "Тяжелая жизнь". Каждая из 11 композиций этого диска является неоспоримым доказательством того, что на российской альтернативной сцене есть не только клоны Korn, Linkin Park и популярных,<BR>сопливых emo-boy-бэндов! Альбом вышел в октябре того же года посредством Jagi Jagi Records. Несколько композиций с него вошли в ряд сборников. Получив исключительно положительные отзывы на свою работу и в очередной раз частично сменив состав, квинтет с удвоенной энергией принялся за работу над новым материалом, не забывая и про живые выступления - помимо бессчетных выступлений в Москве (вместе с 5Diez, Hostile Breed, Spatorna, Amatory, Stigmata, Ругер, Зубы, Korea, Perimeter и многими другими) группа неоднократно выезжала с концертами в такие города, как Петербург, Тверь, Череповец, Брянск и родная Пенза. Второй альбом, записанный в конце 2005 года на студии Moscow Sound (услугами этой студии пользовались Hostile Breed, Rossomahaar, Дистемпер, Тараканы и многие другие), превзошел все ожидания.&nbsp; Качество материала и его реализации возросло многократно! Теперь музыку группы нельзя загнать в узкие рамки "Sepultura, Pantera, Korn". В новых вещах команды явственно ощущается влияние таких групп, как Mnemic, Fear Factory, Chimaira, а также элементы metal-core, death metal и прочих стилей. Вторая работа БеZумных Усилий убивает наповал живой энергетикой, искренней подачей и настоящей тяжестью! В записи альбома приняли участие<BR>гостевые музыканты из групп 5Diez, Rossomahaar и Ens Cogitans, внесшие свою лепту в создание звукового полотна. В данный момент Беzумные Усилия готовятся к выходу нового компакт-диска (на лейбле Soundage Records), а также работают над третьим альбомом, который обещает быть еще более техничным, жестким и разнообразным!</P>
+Автор: Vit Belov
+
+### 04.09.2006 news Новый альбом EKTOMORF
+
+<P><STRONG>EKTOMORF </STRONG>выпускают новый альбом "<STRONG>Outcast</STRONG>" 27 октября на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2006.09/10676.jpg" width=225 align=right border=5>1. <STRONG>Outcast<BR></STRONG>2. <STRONG>I Choke</STRONG><BR>3. <STRONG>Ambush In The Night</STRONG><BR>4. <STRONG>I'm Against</STRONG><BR>5. <STRONG>We Rise</STRONG><BR>6. <STRONG>Red I<BR></STRONG>7. <STRONG>Who Can I Trust (Prayer)<BR></STRONG>8. <STRONG>Leave Me Alone</STRONG><BR>9. <STRONG>Fuel My Fire</STRONG> (<STRONG>PRODIGY</STRONG> cover)<BR>10. <STRONG>I Confront My Enemy</STRONG><BR>11. <STRONG>Hell Is Here</STRONG><BR>12. <STRONG>Chamunda </STRONG></P>
+Автор: Vit Belov
+
+### 25.09.2007 news THE HAUNTED и EKTOMORF в России
+
+<CENTER><IMG height=279 src="/images/shows_rus/2007.09/11880.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 22.04.2008 news EKTOMORF ведут переговоры с AFM RECORDS 
+
+<P>Венгерский &nbsp;hardcore thrash metal коллектив&nbsp;<B>EKTOMORF</B> ведет переговоры о подписании нового контракта с <B>AFM Records</B>. По мнению обоих сторон, осталось уточнить последние детали, а сделку можно считать почти состоявшейся.</P>
+Автор: Dimas
+
+### 20.06.2008 news EKTOMORF на AFM
+
+<P><STRONG>EKTOMORF </STRONG>подписали контракт с<STRONG> AFM</STRONG>. 1 ноября группа войдёт в студию для записи нового альбома. В качестве приглашённых музыкантов на пластинке появятся <STRONG>Lord Nelson</STRONG> (<B itxtvisited="1">STUCK MOJO)</B>&nbsp;и <B itxtvisited="1">Mille Petrozza</B>&nbsp;(<B itxtvisited="1">KREATOR)</B>.</P>
+Автор: Vit Belov
+
+### 19.01.2009 news EKTOMORF выйдет в марте
+
+<P>Новый альбом <STRONG>EKTOMORF</STRONG> <STRONG>"What Doesn't Kill Me…" </STRONG>выйдет 20 марта на <STRONG>AFM</STRONG>. Пластинка была записана в <STRONG>Antfarm Studio </STRONG>вместе с продюсером <STRONG>Tue Madsen</STRONG> (<B>HEAVEN SHALL BURN</B>, <B>DARK TRANQUILLITY</B>, <B>MOONSPELL</B>, <B>THE HAUNTED</B>).</P>
+Автор: Vit Belov
+
+### 02.02.2009 news Новый альбом EKTOMORF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.02/13497.jpg" width=300 align=right border=5>Новый альбом <STRONG>EKTOMORF</STRONG> <STRONG>"What Doesn't Kill Me…" </STRONG>выходит 20 марта на <STRONG>AFM</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Rat War</B><BR>02. <B>Nothing Left</B><BR>03. <B>What Doesn't Kill Me... </B><BR>04. <B>Revenge To All</B><BR>05. <B>Love And Live</B><BR>06. <B>Can See You</B><BR>07. <B>I Got It All</B><BR>08. <B>New Life</B><BR>09. <B>Sick Of It All</B><BR>10. <B>It's Up To You</B><BR>11. <B>Envy</B><BR>12. <B>Scream</B><BR>13. <B>Breed The Fire</B></P>
+Автор: Vit Belov
+
+### 28.02.2009 news Новое видео EKTOMORF
+
+<P>Видеоклип на песню <STRONG>"It's Up To You" </STRONG>с нового альбома<STRONG> EKTOMORF</STRONG> <STRONG>"What Doesn't Kill Me…" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2wS_1EhAOws&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/2wS_1EhAOws&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.07.2009 reviews Поклонникам SEPULTURA, SOULFLY и EKTOMORF
+
+<P>EKTOMORF – чуть ли не самая известная команда из Венгрии в тяжёлом жанре. Откопали её Nuclear Blast, и после серии успешных альбомов группа перебралась на AFM.</P>
+<P>Мы уже не раз сравнивали EKTOMORF с SEPULTURA начала 90-х (Chaos A.D., Roots) и ранним SOULFLY. В нынешние времена EKTOMORF больше походи на SOULFLY и SEPULTURA, чем самим SOULFLY и SEPULTURA. Бразильские группы находятся в поиске новых тем и звучания, венграм подобные метания не свойственны. “What Doesn’t Kill Me” типичная работа группы с серией прыгательных и заводных трэков, с обилием ненормативной лексики и любви в текстах и достаточно примитивным, но жутко энергичным саундом. Отмечу для себя трэк с участием рэп-певца, который довольно чётко продемонстрировал корни музыки EKTOMORF. Прозвучала эта вещь модно и жёстко.</P>
+<P>Поклонники SEPULTURA, SOULFLY и EKTOMORF останутся довольны. Особых подвижек в музыке группы не заметно, но они здесь, наверное, и не требуются. Лично я с удовольствием прослушал обозреваемую работу.</P>
+Автор: Vit Belov
+
+### 31.10.2010 news EKTOMORF выпускают новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом "последователей SEPULTURA" <STRONG>EKTOMORF</STRONG> <STRONG>"Redemption" </STRONG>выйдет 17 декабря на <STRONG>AFM</STRONG>. Пластинка была записана в студии <STRONG>Antfarm </STRONG>с продюсером <STRONG>Tue Madsen.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 09.11.2010 news Новый альбом EKTOMORF в декабре
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17572.jpg" width=400 height=400>17 декабря венгерские металлисты <B itxtvisited="1">EKTOMORF</B> выпустят свой новый альбом <B itxtvisited="1">"Redemption"</B>&nbsp;на <B itxtvisited="1">AFM Records</B>. CD был записан в&nbsp;студии <B itxtvisited="1">Antfarm</B>&nbsp;(город &#197;rhus, Дания) с продюсером Тью Мэдсеном (<B itxtvisited="1">Tue Madsen</B>), который прежде работал с <B itxtvisited="1">DARK TRANQUILLITY</B>, <B itxtvisited="1">THE HAUNTED</B>, <B itxtvisited="1">HEAVEN SHALL BURN</B> и другими. <BR itxtvisited="1"><BR itxtvisited="1">Трек-лист<STRONG> "Redemption"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Last Fight</B><BR itxtvisited="1">02. <B itxtvisited="1">Redemption</B><BR itxtvisited="1">03. <B itxtvisited="1">I’m In Hate</B><BR itxtvisited="1">04. <B itxtvisited="1">God Will Cut You Down</B><BR itxtvisited="1">05. <B itxtvisited="1">Stay Away</B><BR itxtvisited="1">06. <B itxtvisited="1">Never Should</B><BR itxtvisited="1">07. <B itxtvisited="1">Sea Of My Misery</B><BR itxtvisited="1">08. <B itxtvisited="1">The One</B> (feat. Danko Jones)<BR itxtvisited="1">09. <B itxtvisited="1">Revolution</B><BR itxtvisited="1">10. <B itxtvisited="1">Cigany</B><BR itxtvisited="1">11. <B itxtvisited="1">Stigmatized</B><BR itxtvisited="1">12. <B itxtvisited="1">Anger</B><BR itxtvisited="1">13. <B itxtvisited="1">Kill Me Now</B> (limited-edition digipak bonus)</P>
+Автор: Headcrusher
+
+### 27.11.2010 news Новое видео EKTOMORF
+
+<P>Новый клип <STRONG>EKTOMORF</STRONG> на песню <STRONG>"Last Fight" </STRONG>можно посмотреть ниже. Трэк попадёт на новый альбом группы <STRONG>"Redemption"</STRONG>, который выйдет 17 декабря на <STRONG>AFM</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2Vlj4uCaUu4&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2Vlj4uCaUu4&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.12.2010 news EKTOMORF: клип на песню &quot;Sea Of My Misery&quot;
+
+<P><STRONG>"Sea Of My Misery"</STRONG>&nbsp;- новый видеоклип венгерских металлистов <B itxtvisited="1">EKTOMORF</B>, можно посмотреть ниже. Песня увидит свет на новом альбоме группы, <B itxtvisited="1">"Redemption"</B>, который выйдет 17 декабря на <B itxtvisited="1">AFM Records</B>.<BR></FONT></P>
+<CENTER><FONT color=#999999 size=1 face=Verdana><BR><A href="http://www.myspace.com/video/vid/107142804">EKTOMORF - Sea Of My Misery</A><BR>
+<OBJECT width=425 height=360><PARAM NAME="allowScriptAccess" VALUE="always"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=107142804,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=107142804,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent" allowScriptAccess="always"></embed></OBJECT><BR><A href="http://www.myspace.com/149118539">AFM Records</A> | <A href="http://www.myspace.com/music/videos">Myspace Music Videos</A></FONT></CENTER>
+Автор: Headcrusher
+
+### 26.01.2011 reviews EKTOMORF стареют, но не сдаются
+
+<P>Венгры EKTOMORF возвращаются на привычный ритм производства новых альбомов. “Redemption” вышел в свет менее чем через два года после предшественника “What Doesn’t Kill Me”. Следует отметить, что музыканты обходятся минимумом новых идей, но их пластинки по-прежнему сохраняют живость и напористость.</P>
+<P>Мне, вообще, кажется, что EKTOMORF сочиняют новый материал пачками по несколько альбомов. Материал обозреваемой пластинки близок по звучанию к “What Doesn’t Kill Me”. Конечно же, проницательный слушатель заметит, что все альбомы EKTOMORF очень похожи на SOULFLY/SEPULTURA, тем самым отличаются они мало. Я согласен с этим утверждением, но на последних двух работах в творчестве венгров появилось несколько новых моментов. В первую очередь это касается атмосферных песен с чистым вокалом. В этот раз EKTOMORF выпустили несколько вещей очень похожих на NIRVANA. Возможно, творчество Kurt Cobain до сих пор актуально для венгерских парней. Это неудивительно, музыкальные пристрастия EKTOMORF располагаются где-то в начале 90-х. В принципе, эти chill-out песни не слишком портят “Redemption”. Поклонники подобной музыки со стажем стареют и не могут постоянно скакать и кричать ‘mother fucker’, им надо отдыхать почаще перед следующим гопаком, для этого и существуют эти проигрыши на прослушиваемом альбоме.<BR>Когда-то давно большинство любителей классического метала поносили SOULFLY и им подобные группы последними словами. <BR>Считалось, что именно эти песни со спорным ритмом уничтожили классику стиля. Теперь примерно те же эпитеты получает metalcore. Но по сравнению с metalcore музыка EKTOMORF теперь смотрится как верх экстремальности и даже брутальности.</P>
+Автор: Vit Belov
+
+### 17.01.2012 news EKTOMORF выпустят акустический альбом
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.01/22679.jpg" width=475 align=right border=0>'Почитатели SOULFLY' <STRONG>EKTOMORF</STRONG> 17 февраля на AFM выпустят акустический альбом "<STRONG>The Acoustic</STRONG>". Обложку для CD создал <STRONG>Tim Eckhorst</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>I Know Them</STRONG><BR>02. <STRONG>I'm In Hate<BR></STRONG>03. <STRONG>Be Free<BR></STRONG>04. <STRONG>Redemption<BR></STRONG>05. <STRONG>Simple Man<BR></STRONG>06. <STRONG>To Smoulder<BR></STRONG>07. <STRONG>Folsom Prison Blues</STRONG><BR>08. <STRONG>Again<BR></STRONG>09. <STRONG>Through Your Eyes<BR></STRONG>10. <STRONG>Fate<BR></STRONG>11. <STRONG>Stigmatized<BR></STRONG>12. <STRONG>Who Can I Trust</STRONG></P>
+Автор: Vit Belov
+
+### 16.02.2012 news Новый клип EKTOMORF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео венгров<STRONG> EKTOMORF</STRONG> на песню "<STRONG>To Smoulder</STRONG>" можно посмотреть ниже. Трек взят с акустического альбома группы <STRONG>"The Acoustic</STRONG>", который выйдет завтра на <STRONG>AFM</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/5gERYSeo3_g?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 26.06.2012 news EKTOMORF: трек-лист и обложка альбома &quot;Black Flag&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24260.jpg" width=416 height=416>Венгерские металлисты <STRONG>EKTOMORF</STRONG> выпустят новый студийный альбом <STRONG>"Black Flag"</STRONG> 31 августа на лейбле <STRONG>AFM</STRONG>. Обложку диска выполнил немецкий художник <STRONG>Tim Eckhorst</STRONG>. </P>
+<P>Трек-лист диска:</P>
+<P>01. <STRONG>War Is My Way<BR></STRONG>02. <STRONG>Unscarred</STRONG><BR>03. <STRONG>The Cross <BR></STRONG>04. <STRONG>Cut It Out<BR></STRONG>05. <STRONG>Black Flag<BR></STRONG>06. <STRONG>Private Hell<BR></STRONG>07. <STRONG>12 Angels<BR></STRONG>08. <STRONG>Enemy</STRONG> <BR>09. <STRONG>Fuck Your God <BR></STRONG>10. <STRONG>Never Surrender</STRONG> <BR>11. <STRONG>Sick Love <BR></STRONG>12. <STRONG>Feel Like This<BR></STRONG>13. <STRONG>Kill It</STRONG></P>
+Автор: Headcrusher
+
+### 11.04.2014 news Новый клип EKTOMORF
+
+<P>Новое видео<STRONG> EKTOMORF</STRONG> на песню <STRONG>'You can't Control Me'</STRONG> с новейшего альбома "<STRONG>Retribution</STRONG>" можно посмотреть ниже. Диск вышел в этом году на<STRONG> AFM</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/eWw2E77aG64?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 01.09.2015 news EKTOMORF выпускают очередной альбом
+
+<P>Новый альбом<STRONG> EKTOMORF "Aggressor"</STRONG> готовится к релизу в октябре. Работа была записана вместе с продюсером <STRONG>Tue Madsen</STRONG>. На одной из песен мы сможем услышать вокал <STRONG>George “Corpsegrinder” Fisher</STRONG> из <STRONG>CANNIBAL CORPSE</STRONG>. Группа обещает вернуться к корням, добавив вновь черты восточноевропейского фолка, которым EKTOMORF прославились в начале века.</P>
+<P>Трек-лист:</P>
+<P><STRONG>“Intro”<BR>“I”<BR>“Aggressor”<BR>“Holocaust”<BR>“Move On”<BR>“Evil By Nature” (feat. George “Corpsegrinder” Fisher)<BR>“You Can’t Get More”<BR>“Emotionless World”<BR>“Eastside”<BR>“Scars”<BR>“Damned Nation”<BR>“You Lost”<BR>“You’re Not For Me”<BR>“Memento”&nbsp;</STRONG></P>
+<P><center><IMG border=0 src="/images/news_rus/2015.09/28261.jpg" width=500 height=500></P>
+Автор: Vit Belov
+
+### 05.11.2015 news Never Forget, Never Forgive от EKTOMORF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип<STRONG> EKTOMORF "Holocaust</STRONG>" можно посмотреть ниже. Песня посвящена 6 миллионам жертв Холокоста. Трек взят с новейшего альбома венгров "<STRONG>Aggressor</STRONG>", который вышел на этой неделе в России на Фоно. Приобретайте на escapemind: <A href="http://escapemind.ru/goods/EKTOMORF-Aggressor">http://escapemind.ru/goods/EKTOMORF-Aggressor</A></FONT></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/C09XcI7eJTA" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

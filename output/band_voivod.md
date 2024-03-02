@@ -269,6 +269,289 @@ Produced By Voivod & Rob Sanzo
 * C группой "Papa Wheelie" Jason Newsted
 * C группой "Project: Failing Flesh" Eric Forrest
 
+## Публикации
+
+### 05.03.1999 news 
+
+<p>Вокалист Voivod Эрик Форрест оправился от болезни и группа начинает запись нового альбома, который выйдет позже в этом году.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Две песни Voivod были включены на саундтрек к фильму "Универсальный солдат 2".</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Новый альбом Voivod будет называться "Voivod Lives".</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Voivod находятся в поиски лэйбла для выпуска своего нового студийного альбома.</p>
+
+Автор: Vit Belov
+
+### 23.05.2001 news Конец карьеры VoiVod ....???
+
+<p>Похоже что после долгой и успешной карьеры канадцы VOIVOD решили прекратить деятельность. Из команды ушел вокалист Eric Forrest и по сообщению интернет ресурсов группа собирается самораспуститься.</p>
+
+Автор: Yermola
+
+### 23.05.2001 news VoiVod - The End Is Near?
+
+<p>Reliable BW&BK sources have reported that VOIVOD have parted ways with singer Eric Forrest. The band may reform later this year or they may call it quits.</p>
+
+Автор: Yermola
+
+### 02.07.2001 news Новый состав VOIVOD...
+
+<p>Наконец-то, после многочисленных перестановок канадцам "VOIVOD" удалось обрести постоянный состав. В должности бассиста засветился "некий" Джэйсон Ньюстед, также вернулся оригинальный фронтмен Snake (aka Denis Belanger) и дополнили стафф барабанщик Michel Langevin и гитарист Denis D’Amour. Ньюстед будет продюссировать грядущий альбом совместно с ветераном разных кнопочек (и звукачом Боба Рока!) - Brian Dobbs. До этого проекта они вместе работали над проектом Джэйсона - "ECHOBRAIN" и решили продолжить сотрудничество. Напоследок хотелось бы добавить, что Ньюстед не новичок для команды, поскольку еще в 1997 году записывал с ними песню "M-Body", вошедшую на альбом "Phobos".</p>
+
+Автор: Yermola
+
+### 03.07.2001 news METALLICA bassist Jason Newsted and returning original frontman Snake (aka Denis Belanger) .....
+
+<p>According to a reliable source close to the VOIVOD camp, the recording line-up for the group’s upcoming studio album will include former METALLICA bassist Jason Newsted and returning original frontman Snake (aka Denis Belanger) alongside founding members Away (aka Michel Langevin; drums) and Piggy (Denis D’Amour; guitars). A strong possibility also exists that Newsted will produce the upcoming album himself or co-produce it with veteran knob-twiddler and sometime Bob Rock engineer Brian Dobbs (i.e. MANMADEGOD), who had worked with Newsted on his ECHOBRAIN project and is said to be looking to do more co-production work with the four-stringer. Although former VOIVOD bassist Blacky’s recent return to the Montreal area after a several-year stint in Vancouver had fueled rumors of a reunion of the group’s original line-up, it now appears that no such reformation will be taking place, and it looks almost certain that Newsted will contribute to the songwriting for the band’s forthcoming CD, which will likely get recorded at the end of the year. As many fans will undoubtedly recall, Newsted is no stranger to the VOIVOD camp, having previously co-written the song “M-Body”, which appeared on VOIVOD’s 1997 opus Phobos. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 10.09.2001 news VOIVOD официально подтвердили новый состав...
+
+<p>"VOIVOD" официальнейшим образом подтвердили возвращение оригинального вокалиста Snake (aka Denis Belanger) и присоединение басиста Jason Newsted (экс-METALLICA) к существующему лайн-апу Away (aka Michel Langevin) - барабаны и Piggy (aka Denis D’Amour). Почитать обо всем этом подробно (только на английском!) можно <a href="http://www.voivod.com/">здесь... </a></p>
+
+Автор: Yermola
+
+### 10.09.2001 news VOIVOD have finally confirmed the return of ....
+
+<p>VOIVOD have finally confirmed the return of original vocalist Snake (aka Denis Belanger) and addition of former METALLICA bassist Jason Newsted to the group’s current recording line-up, which is completed by drummer Away (aka Michel Langevin) and guitarist Piggy (aka Denis D’Amour). In the following official statement posted on the group’s web site at www.voivod.com, Away outlines the band’s upcoming recording and touring plans: "Early this year, VOIVOD split up. After a few months on hiatus, Denis D'Amour and Michel Langevin decided to reunite with original singer Denis Belanger, aka Snake, after a 7-year absence. VOIVOD is aiming to have a new record out in 2002 and will definitely make the summer festivals for 2002. Jason Newsted will play bass and co-produce the new studio album. A live bass player is yet to be announced. Michel Langevin and Denis D'Amour are sad to see [former bassist/vocalist] Eric [Forrest] go and treasure the music they made together but look forward to the future. They are also excited to have Jason's involvement as he has been a long time supporter and friend. There have been many obstacles, as in all careers, but the future certainly looks good for VOIVOD." —Michel Langevin. As reported here back in June, VOIVOD’s upcoming studio album will be co-produced by Brian Dobbs (i.e. MANMADEGOD, ECHOBRAIN), and it will likely surface in mid-2002, at the earliest. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 25.04.2002 news Гитарист Voivod сыграет на новом альбоме The Gathering
+
+<p>Гитарист Voivod Denis D'Amour (Piggy) объединится с голландскими готами The Gathering. Новый альбом The Gathering выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 25.04.2002 news VOIVOD Guitarist To Play On Next THE GATHERING Full-Length
+
+<p>VOIVOD guitarist Denis D'Amour (a.k.a. Piggy) will be collaborating with Holland's THE GATHERING on the latter's next full-length release, which is scheduled to be issued in October. According to THE GATHERING drummer Hans Rutten, “Piggy will do a solo on a yet-to-be-titled song. The whole band are all big admirers of VOIVOD. CD's like Dimension Hatross, Nothingface, and Angelrat are all timeless classics.”<BR> Prior to the release of the above-mentioned CD, THE GATHERING will issue a 30-minute album, entitled Black Light District, in June via the group's own Psychonaut Records.</p>
+
+Автор: Vit Belov
+
+### 05.10.2002 news Джейсон Ньюстэд официально присоединился к Voivod
+
+<p>Джейсон Ньюстэд официально присоединился к Voivod и готовится войти в студию для записи их 13 альбома, который выйдет 4 марта. По слухам Джейсон поедет ещё и в тур с группой.</p>
+
+Автор: Vit Belov
+
+### 08.10.2002 news Jason Newsted in Voivod
+
+<p>Jason Newsted has officially joined Voivod on bass. The and will enter the studio in October to record their 13th album, which is scheduled for a March 4th release. There are rumors that Jason will also join the band for the tour.</p>
+
+Автор: Vit Belov
+
+### 03.12.2002 news VOIVOD&#39;s JASON NEWSTED: New Album Sounds Like Mixture Of METALLICA And VOIVOD ...
+
+<p>The forthcoming VOIVOD CD, "The Multiverse", sounds "exactly like METALLICA meets VOIVOD," according to former METALLICA and current VOIVOD bassist Jason Newsted, who has just finished mixing the album for a tentative Mar. 4, 2003 release. "I have retained the distortion, the constant bass distortion — a little tighter — but it's still there for VOIVOD the way it always was as far as VOIVOD goes," Newsted told Canada's Chart Attack. "But, added to it, is the girth of the METALLICA bass, the 'Black Album' bass sound, those kinds of things that sound huge, huge, huge, an enveloping low end. So both things exist, something that was never there before for a VOIVOD album. Everything else is still intact. Drumming is still fucking crazy, double bass drums every song, Snake is back a full 110 per cent and Piggy's fucked up tunings, Piggy chords exclusive to Piggy… all of that is still absolutely alive." <BR><BR> With regards to the upcoming album's lyrical content, Newsted explained, "It's [Snake's] own thing because of the translation from French. The direct translation cuts through all the shit. The thing is that no person that speaks English as their first language would write it that way because of the way we've been programmed. And when we hear it back so plainly, it's kind of like Yoda-speak, but way more intelligent. Because he doesn't use the little in between words that you would know from knowing the English language first — ands and ares and all these things — he goes boom, boom, boom. All the words next to each other, they can create sentences and/or phrases that mean five different things. On one of his best vocal performances, he says 'It's so good to see you again.' And I know what he means and we all know what he means. He's actually singing about the power of the music and what it does to people. But when he says that line, he's saying it to Michel, he's saying it to me, he's saying it to the crowd, he's saying it to the music, he's saying it to the microphone, he's saying it to his mind, he's saying it to the paper and pencil. I mean it's fuckin'... it's like that."</p>
+
+Автор: Yermola
+
+### 27.02.2003 news Роб Трухильо - новый бассист Металлики...
+
+<p>Metallica официально объявили имя нового басс-гитариста. Им стал Rob Trujillo игравший с Suicidal Tendencies/Ozzy Osbourne band member as its new bassist. Trujillo появится уже на новом студийном альбоме всадников - "St. Anger" который запланирован к выходу на Elektra 10-го июня. Долговременный продюссер и друг металликовцев Боб Рок исполнял эту роль во время редких концертов и в студии. <BR><BR> Также группа объявила о длительном Северо-Американском туре "Sanitarium" с Limp Bizkit и Linkin Park. Знакомство с Трухильо для команды состоялось еще в 1993 году во время тура Suicidal Tendencies с Metallica. "Когда Роб приехал в Сан-Франциско и поджемовал с нами, мы поняли что возникла какая то магия между нами..." - говорит группа. <BR><BR> Что же касается ушедшего Джэйсона, он объявлен официальным участником ветеранов Voivod и также продюссировал их альбом который выходит 4-го марта на его собственном лэйбле Chophouse Records.</p>
+
+Автор: Yermola
+
+### 27.02.2003 news Metallica Signs Up Bassist Rob Trujillo ...
+
+<p>Metallica has named former Suicidal Tendencies/Ozzy Osbourne band member Rob Trujillo as its new bassist. Trujillo replaces Jason Newsted, who departed in early 2001, and will appear on the quartet's upcoming studio album, "St. Anger," due June 10 from Elektra. Longtime producer Bob Rock has played bass at sporadic concert experiences and in the studio with Metallica since Newsted's departure, and the group had been vague as to whether or not it was seeking a full-time fourth member. <BR><BR> Earlier this month, Metallica announced its North American Summer Sanitarium tour with Limp Bizkit and Linkin Park, but evaded questions on the open bass position. The band's connection to Trujillo stretches back to 1993, when Suicidal Tendencies toured with Metallica, and a post on the band's Web site implies that Trujillo was present for much of the new album's recording sessions. <BR><BR> "When Rob came to San Francisco the first time and jammed with us, we all felt this incredible magic between the four of us," the band writes. "It was just something we could not describe, we all just knew it."<BR><BR> Additionally, drummer Lars Ulrich writes, "The last two years of just being the three of us have taught me soo [sic] much about myself, about James and Kirk and about Metallica. To welcome Rob into Metallica in 2003 after all the growth and soul searching we've been through for the last two years, feels ... awesome. Being at full strength again is at this moment indescribable."<BR><BR> Meanwhile, the band has confirmed 16 dates for the Summer Sanitarium tour, including a July 26 performance at the Hawthorne Racetrack in Chicago and an Aug. 9 date at the Coliseum in Los Angeles. Among the cities still awaiting dates and venues are New York, San Francisco, and Toronto. Updates will be posted on Metallica's Web site. <BR><BR> Metallica will embark on a brief tour of the European festival circuit before its North American outing, and continue to sprinkle in overseas dates throughout the summer. The group is pegged to play dates June 6 at the Rock Im Park festival in Nuremberg, Germany, and will travel between continents until a pair of gigs Aug. 22 and 24 at the U.K.'s Reading and Leeds festivals.<BR><BR> As for Newsted, the bassist has become a official member of veteran metal act Voivod. He also produced the band's upcoming self-titled album, which is due March 4 via Newsted's Surfdog imprint Chophouse Records. <BR><BR> -- Todd Martens, L.A.</p>
+
+Автор: Yermola
+
+### 23.03.2003 news Jason Newstead примкнул к Оззи...
+
+<p>Экс-бассист Metallica Джейсон Ньюстэд примкнул к Оззи Озборну. Ларс Ульрих, барабанщик METALLICA, в радио-интервью отметил, что его бывший коллега, видимо, "потерялся", если принял предложение Великого и Ужасного.</p>
+<p>"Если бы Ларс был бы достаточно хорош, он присоединился бы к ОЗЗИ тоже", - сказал Джейсон в интервью греческому журналу Rock On. "Ларс может поцеловать меня в задницу. Я думаю, что он просто забыл, какая группа разогревала выступления Озборна в далёком 1986 году (намёк на METALLICA)".</p>
+<p>Ньюстэд, который всё ещё и постоянный член Voivod, будет выступать дважды на предстоящем ОззФесте и в течение канадского тура Озборна в июне. Ведь в обоих событиях будет участвовать и Voivod.</p>
+<p>В это же время поступают комментарии от других участников проекта Озборна. Барабанщик Майк Бордин сказал, что он удовлетворён включением Джейсона в коллектив. "Это событие поразило меня, я знаю Джейсона уже 15 лет", - сказал Майк. "Я знаю его с тех пор, когда он сменил в METALLICA моего друга Клиффа Бартона, который погиб".</p>
+<p>Ирония судьбы ещё заключается и в том, что бывший басист Озборна Роберт Трухилио, только что, присоединился к METALLICA. Бордин сравнил это событие с бейсбольным трэйдом. Роберт Трухилио отыграл свой последний концерт с Оззи 14 марта и был постоянным участником его группы с 1995 года.</p>
+
+Автор: Vit Belov
+
+### 29.08.2005 news Умер легендарный гитарист VOIVOD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист<STRONG> VOIVOD</STRONG> <STRONG>Denis "Piggy" D'Amour</STRONG> умер вечером в пятницу 26 августа от рака толстой кишки. Ещё только 2 месяца назад <STRONG>Piggy</STRONG> был в студии, где записывал новый альбом<STRONG> VOIVOD</STRONG>, который выйдет на<STRONG> End Records</STRONG>. RIP</FONT></P>
+Автор: Vit Belov
+
+### 29.08.2005 news VOIVOD Guitarist DENIS &#39;PIGGY&#39; D&#39;AMOUR Dead Of Colon Cancer
+
+<DIV class=regular id=showItems__ctl0_storyPanel><B>VOIVOD</B> guitarist <B>Denis "Piggy" D'Amour</B> passed away Friday night (August 26) at approximately 11:45 p.m. due to complications from advanced colon cancer — so advanced that the disease had spread to his liver. <B>D'Amour</B> slipped into a coma Thursday night and died less than 24 hours later in the palliative care unit of a Montreal hospital, surrounded by family and friends. He was 45 years old.<BR><BR>Quebec City newspaper <SPAN style="BACKGROUND: #000000"><A class=newsLink href="http://www.propagandadesign.com/voivod/Article.jpg" target=_blank><U><FONT color=#0000ff>Le Soleil</FONT></U></A> </SPAN>reported yesterday that <B>D'Amour</B> — who was diagnosed with colon cancer earlier in the summer — first entered the hospital for a routine operation, but several complications led his doctors to suspect more problems. Then the grim verdict was revealed: the cancer, already too advanced, was inoperable.<BR><BR>Only two months ago, <B>D'Amour</B> was in the studio working on the 14th album from the Canadian thrash-metal pioneers <B>VOIVOD</B>. More than two dozen tracks are believed to have been demoed for the CD, for which the group recently inked a deal with <B>The End Records</B>. However, the band were forced to put studio work on hold while bassist <B>Jason Newsted</B> (ex-<B>METALLICA</B>) was treated for tendonitis.<BR><BR>In a recent interview with <B>Billboard.com</B>, <B>Newsted</B> spoke about the material slated to appear on the group's next CD. "It's the most complete demos I've ever been involved in," he said. "[<B>VOIVOD</B> singer] <B>Snake</B> has already chosen his effects — exact timing of milliseconds for delay. We've had a long time to develop the demos, so there's about 23 or 25 songs that are absolutely listenable right now."<BR><BR><B>Newsted</B> was a huge fan of <B>VOIVOD</B> before he was invited to join and he remains a great admirer to this day. "They created something a long, long time ago that may have been emulated many, many times since — but nobody can do it like the original," he offered.<BR><BR>Prior to his hospitalization, <B>D'Amour</B> laid down guitar tracks for a reunion CD from the legendary <B>AUT'CHOSE</B>, a '70s band from Montreal. That album is expected to surface next summer. </DIV>
+Автор: Vit Belov
+
+### 24.01.2006 news VOIVOD на Nuclear Blast
+
+<P><STRONG>VOIVOD</STRONG> заключили контракт с <STRONG>Nuclear Blast</STRONG> на выпуск нового альбома в Европе весной.&nbsp;Группа&nbsp;заканчивает работу над пластинкой.&nbsp;</P>
+Автор: Vit Belov
+
+### 25.02.2006 news VOIVOD назвали альбом
+
+<P>Новый альбом <STRONG>VOIVOD</STRONG>, который выйдет в этом горду на <STRONG>Nuclear Blast</STRONG>, будет называться "<STRONG>Katorz</STRONG>".</P>
+Автор: Vit Belov
+
+### 04.01.2009 news VOIVOD заканчивают запись
+
+<P><IMG height=213 alt="" hspace=0 src="/images/news_rus/2009.01/13285.jpg" width=300 align=left border=5>Канадцы <STRONG>VOIVOD</STRONG> опубликовали следующее сообщение:</P>
+<P>"<EM>Мы заканчиваем запись нового пока не названного альбома VOIVOD. Jason Newsted записал свои партии баса, но мы ещё хотим, чтобы в записи поучаствовали бывшие басисты группы Eric Forrest и Blacky. Этой пластинкой мы завершаем запись материала, сочинённого Piggy</EM>".</P>
+<P>Также<STRONG>&nbsp;VOIVOD</STRONG>&nbsp;выпускают DVD, на которое попадёт первое в истории выступление группы в Японии. Старый материал с участием басиста <STRONG>Blacky</STRONG> и гитариста <STRONG>Dan Mongrain</STRONG> [<B>MARTYR</B>].&nbsp;</P>
+Автор: Vit Belov
+
+### 12.04.2009 news Подробности о новом альбоме VOIVOD
+
+<P>Новый альбом <STRONG>VOIVOD</STRONG> <STRONG>"Infini" </STRONG>выйдет 12 июня на <STRONG>Nuclear Blast</STRONG>. Пластинка стане второй без покойного гитариста-основателя <STRONG>Denis "Piggy" D'Amour</STRONG>, первой для его замены <STRONG>Dan Mongrain</STRONG> и первой с 1991 года для басиста <STRONG>Jean-Yves "Blacky" Theriault. </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">God Phones</B><BR itxtvisited="1">02. <B itxtvisited="1">From The Cave</B><BR itxtvisited="1">03. <B itxtvisited="1">Earthache</B><BR itxtvisited="1">04. <B itxtvisited="1">Global Warning</B><BR itxtvisited="1">05. <B itxtvisited="1">A Room With A View</B><BR itxtvisited="1">06. <B itxtvisited="1">Destroy After Reading</B><BR itxtvisited="1">07. <B itxtvisited="1">Treasure Chase</B><BR itxtvisited="1">08. <B itxtvisited="1">Krap Radio</B><BR itxtvisited="1">09. <B itxtvisited="1">In Orbit</B><BR itxtvisited="1">10. <B itxtvisited="1">Deathproof</B><BR itxtvisited="1">11. <B itxtvisited="1">Pyramidome</B><BR itxtvisited="1">12. <B itxtvisited="1">Morpheus</B><BR itxtvisited="1">13. <B itxtvisited="1">Volcano</B></P>
+Автор: Vit Belov
+
+### 18.04.2009 news Обложка VOIVOD
+
+<P><STRONG>VOIVOD</STRONG> опубликовали обложку своей новой пластинки "<STRONG>Infini</STRONG>", которая выйдет на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.04/13981.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.05.2009 news Две новые песни VOIVOD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На <STRONG>MySpace VOIVOD</STRONG> можно послушать две новые песни <STRONG>"Earthache"</STRONG> и <B>"Global Warning": <A href="http://www.myspace.com/voivod">http://www.myspace.com/voivod</A></B></FONT></P>
+Автор: Vit Belov
+
+### 02.07.2009 news VOIVOD никому не нужны в Штатах
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>VOIVOD "Infini"</STRONG> продался в Штатах в количестве всего 840 экземпляров в первую неделю.</FONT></P>
+Автор: Vit Belov
+
+### 08.10.2009 news Новый DVD группы VOIVOD
+
+<P><STRONG><IMG height=568 alt="" hspace=5 src="/images/news_rus/2009.10/15236.jpg" width=400 align=right vspace=5 border=0>MVD Entertainment Group</STRONG> подготовили к выпуску 17 ноября новый DVD канадцев <STRONG>VOIVOD</STRONG>. Диск <STRONG>"Tatsumaki: Voivod in Japan 2008"</STRONG>&nbsp;содержит, снятый на три камеры, концерт группы, который проходил&nbsp;20 сентября 2008 года&nbsp;в клубе <STRONG>"Citta"</STRONG> (г. Кавасаки, Япония). Данный концерт был частью двухдневной акции, названной <STRONG>Thrash Domination 2008</STRONG>, в которой так же приняли участие группы <STRONG>FORBIDDEN</STRONG> и <STRONG>TESTAMENT</STRONG>.</P>
+<P><U>Трэк-лист DVD</U>:</P>
+<P>01. <STRONG>Voivod</STRONG><BR>02. <STRONG>The Prow</STRONG><BR>03. <STRONG>The Unknown Knows</STRONG><BR>04.&nbsp;<STRONG>Ravenous Medicine</STRONG><BR>05.&nbsp;<STRONG>Overreaction</STRONG><BR>06.&nbsp;<STRONG>Tribal Convictions<BR></STRONG>07.&nbsp;<STRONG>Tornado</STRONG><BR>08.&nbsp;<STRONG>Panorama</STRONG><BR>09.&nbsp;<STRONG>Nuclear War<BR></STRONG>10.&nbsp;<STRONG>Nothingface</STRONG><BR>11.&nbsp;<STRONG>Brain Scan<BR></STRONG>12.&nbsp;<STRONG>Astronomy Domine</STRONG></P>
+<P><U>Дополнительные материалы</U>:</P>
+<P>* <STRONG>Live in Quebec City</STRONG> (Июль 2009): </P>
+<P>01. <STRONG>Panorama</STRONG><BR>02. <STRONG>Treasure Chase<BR></STRONG>03. <STRONG>Tornado</STRONG></P>
+<P>*&nbsp;Интервью с&nbsp;<STRONG>Dave Grohl<BR></STRONG>* <STRONG>"Panorama: Seeking Voivod"</STRONG> (невыпущенный французcкий мини док. фильм с англ. субтитрами)<BR>* Фотографии с поездки</P>
+<P><U>Состав группы на концерте в Японии</U>:</P>
+<P><STRONG>Denis "Snake" Belanger</STRONG> - вокал<BR><STRONG>Michel "Away" Langevin</STRONG> - ударные<BR><STRONG>Jean-Yves "Blacky" Theriault</STRONG> -&nbsp;бас <BR><STRONG>Dan Mongrain</STRONG> (<STRONG>MARTYR</STRONG>) - гитара</P>
+Автор: Headcrusher
+
+### 01.05.2011 news VOIVOD: концертный альбом &quot;Warriors Of Ice&quot;. 
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.05/19359.jpg" width=400 height=400>Канадцы <STRONG>VOIVOD</STRONG> подготовили к выпуску новый концертный альбом, получивший название <STRONG>"Warriors Of Ice"</STRONG>. Дата выхода назначена на 14 июня на <STRONG>Indica Records</STRONG>.</P>
+<P><STRONG>Glen Robinson</STRONG>, известный по работе над альбомом<STRONG> "Nothingface"</STRONG>, записал этот концерт <STRONG>VOIVOD</STRONG>,&nbsp;проходивший 19 декабря 2009 года в клубе <STRONG>Soda</STRONG> города Монреаль. Этот концерт стал первым в Монреале, за&nbsp;более, чем 10 летний срок, на котором <STRONG>VOIVOD</STRONG>&nbsp;выступили в роле хэдлайнера. Там же, <STRONG>VOIVOD</STRONG>&nbsp;презентовали выход своего первого&nbsp;DVD<STRONG> "Tatsumaki, Live In Japan"</STRONG>.</P>
+<P>Трек-лист <STRONG>"Warriors Of Ice"</STRONG>:</P>
+<P>01. <STRONG>Voivod</STRONG><BR>02. <STRONG>The Unknown Knows<BR></STRONG>03. <STRONG>The Prow<BR></STRONG>04. <STRONG>Ripping Headaches<BR></STRONG>05. <STRONG>Ravenous Medicine<BR></STRONG>06. <STRONG>Tribal Convictions<BR></STRONG>07. <STRONG>Overreaction<BR></STRONG>08. <STRONG>Panorama</STRONG><BR>09. <STRONG>Global Warning<BR></STRONG>10. <STRONG>Treasure Chase<BR></STRONG>11. <STRONG>Tornado</STRONG><BR>12. <STRONG>Nothingface</STRONG><BR>13. <STRONG>Brain Scan<BR></STRONG>14. <STRONG>Nuclear War<BR></STRONG>15. <STRONG>Astronomy Domine</STRONG></P>
+Автор: Headcrusher
+
+### 07.07.2012 news VOIVOD назвали альбом
+
+<P>Новый альбом канадских ветеранов<STRONG> VOIVOD</STRONG> получил название "<STRONG>Target Earth</STRONG>". Пластинка была записана в январе в <STRONG>Pierre Remillard's (OBLIVEON, CRYPTOPSY, KRISIUN, MISERY INDEX) Wild Studio. </STRONG>Барабанщик группы <STRONG>Michel Langevin</STRONG> представил новое лого коллектива, которое можно увидеть ниже.</P>
+<P>Новый альбом <STRONG>VOIVOD </STRONG>выйдет до конца года.</P>
+<P><center><IMG height=228 src="/images/news_rus/2012.07/24311.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 28.09.2012 news VOIVOD: новый альбом &quot;Target Earth&quot; и новая песня
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадцы <STRONG>VOIVOD</STRONG> выпускают новый альбом, получивший название <STRONG>"Target Earth"</STRONG>. Диск выйдет на лейбле <STRONG>Century Media</STRONG> 22 января. Песню <STRONG>"Mechanical Mind"</STRONG>, с выходящего альбома, можно прослушать на сайте компании <STRONG>Pitchfork</STRONG>: <A href="http://www.pitchfork.com/reviews/tracks/14327-mechanical-mind/">www.pitchfork.com/reviews/tracks/14327-mechanical-mind/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.09/24850.jpg" width=319 height=319> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 15.11.2012 news VOIVOD: подробности альбома &quot;Target Earth&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.11/25050.jpg" width=400 height=400>Канадские любители космического хаоса и зелёных человечков, группа <STRONG>VOIVOD</STRONG>, работают над своим тринадцатым студийным альбомом.</P>
+<P>Диск получил название <STRONG>"Target Earth"</STRONG> и будет содержать 10 песен. Оформление к альбому выполнил барабанщик коллектива <STRONG>Michel "Away" Langevin</STRONG>. </P>
+<P>Дата выпуска диска запланированна на 21 января 2012 г. в Европе и на день позже, в Северной Америке.<STRONG> "Target Earth"</STRONG> был записан на <STRONG>"Wild Studios" </STRONG>(г. Quebec) с продюсером <STRONG>Pierre Remillard</STRONG> и сведён <STRONG>Sanford Parker</STRONG> (<STRONG>PELICAN</STRONG>, <STRONG>NACHTMYSTIUM</STRONG>).</P>
+<P>Выход альбома запланирован в трёх форматах: CD, двойной винил и лимитированный бокс.</P>
+<P>Так же, впервые, с 1991 года в записи альбома <STRONG>VOIVOD</STRONG> принял участие оригинальный бас-гитарист группы&nbsp; - <STRONG>Jean-Yves "Blacky" Theriault</STRONG>.</P>
+<P><U>Трек-лист</U>:</P>
+<P>01. <STRONG>Target Earth<BR></STRONG>02. <STRONG>Kluskap O’Kom<BR></STRONG>03. <STRONG>Empathy For The Enemy<BR></STRONG>04. <STRONG>Mechanical Mind<BR></STRONG>05. <STRONG>Warchaic</STRONG><BR>06. <STRONG>Resistance</STRONG><BR>07. <STRONG>Kaleidos</STRONG><BR>08. <STRONG>Corps Etranger<BR></STRONG>09. <STRONG>Artefact</STRONG><BR>10. <STRONG>Defiance</STRONG></P>
+<P>Кроме того, 30 октября 2012 года группа <STRONG>VOIVOD</STRONG> дала свой первый и единственный концерт&nbsp;на территории&nbsp;России. Действо происходило в малом зале столичного клуба <STRONG>"Milk"</STRONG>. Все, кто пропустил данное эпохальное событие, могут посмотерть фоторепортаж с концерта: <A href="/ru/galleries/1/1113">http://musica.mustdie.ru/ru/galleries/1/1113</A></P>
+Автор: Headcrusher
+
+### 18.01.2013 news Новая работа Jason Newsted
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший басист<STRONG> METALLICA, VOIVOD</STRONG> и <STRONG>FLOTSAM AND JETSAM Jason Newsted</STRONG> организовал новую группу <STRONG>NEWSTED</STRONG>, которая уже успела выпустить новый мини-альбом "<STRONG>Metal</STRONG>". Видео-клип на песню с этого релиза <STRONG>"Soldierhead" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center>
+<script type='text/javascript' src='http://pshared.5min.com/Scripts/PlayerSeed.js?sid=203&width=480&height=296&shuffle=0&playList=517642741'></script> 
+</P>
+Автор: Vit Belov
+
+### 02.03.2013 reviews Смеяться разрешается
+
+<P>Канадские ветераны ужасного techno-thrash-metal VOIVOD продолжили свою дискографию новым альбомом “Target Earth” в самом дебюте 2013 года. После смерти лидера коллектива Piggy у VOIVOD как будто открылось второе дыхание. Дополнительное внимание к творчеству легендарных канадцев привлекло временное участие в деятельности VOIVOD бывшего басиста METALLICA Jason Newsted. К сожалению, никакое из описываемых выше событий не может добавить нам эстетического воображения и музыкальной эрудиции для того, чтобы прослушать альбомы VOIVOD более одного-двух раз.</P>
+<P>“Target Earth” представляет собой типичное для современных VOIVOD нагромождение нот и аккордов, странных вокальных мелодии и убийственно аморальных ритмов. Каждый трек доводит слушателя до исступления. Нам остаётся только сетовать на собственную неполноценность или… весело смеяться. Ведь так, наверное, делали необразованные люди, когда им впервые рассказывали о каком-то прогрессивном изобретении, которое не укладывалось в их голове. Вот и мы будем смеяться, не судите нас слишком строго.</P>
+<P>Оценку выставлять этому альбому я не стану. И скажу честно, из-за того, что не хочу прослыть неучем и отморозком. Сохранив сосредоточенную физиономию с лёгкими искорками задора в глазах, оставляю “Target Earth” с благообразным нулём.</P>
+Автор: Vit Belov
+
+### 17.07.2013 news VOIVOD: видеоклип &quot;Target Earth&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадские прогрессивные трэшеры <STRONG>VOIVOD</STRONG> презентовали сегодня свой видеоклип на одноимённую песню с последнего альбома <STRONG>"Target Earth"</STRONG>.</FONT></P>
+<P>Анимациоонное 3D видео было&nbsp;созданно итальянским кинорежиссёром и художником визуальных эффектов по имени <STRONG>Nicola Piovesan</STRONG>, в нём он использовал образы и графику барабанщика <STRONG>VOIVOD</STRONG> по кличке "Away" (<STRONG>Michel&nbsp;Langevin</STRONG>).</P>
+<P><EM>“Я встретил Николу (Nicola Piovesan) на&nbsp;совместном&nbsp;концерте <STRONG>VOIVOD </STRONG>с <STRONG>UNKIND</STRONG>, который проходил в Хельсинки 31 октября 2012”,</EM> - рассказывает <STRONG>Away</STRONG>. <EM>"Мы пообщались с ним на тему моей 3D графики, созданной&nbsp;для&nbsp;альбома&nbsp;<STRONG>"Negatron"</STRONG> и <STRONG>Nicola</STRONG> упомянул о возможности создания 3D видео для нашего нового альбома. После просмотра фантастического клипа <A href="http://youtu.be/ZUZhN9Nyp6Q">"The Core"</A>, который он сделал для артиста <STRONG>On|Off|Man</STRONG>, мы поняли, что он именно тот человек, который сможет запечатлеть кибер мир <STRONG>VOIVOD</STRONG>. И по нашему мнению, результат получился просто феерическим!”</EM></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/itHcrRaZhXs?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 29.07.2013 news NEWSTED: альбом &quot;Heavy Metal Music&quot; доступен для прослушивания на Youtube
+
+<P><STRONG>NEWSTED</STRONG>, новая группа под руководством бывшего басиста групп <STRONG>METALLICA</STRONG>, <STRONG>VOIVOD</STRONG> и <STRONG>FLOTSAM & JETSAM</STRONG> Джейсона Ньюстеда (<STRONG>Jason Newsted</STRONG>), выложила свой дебютный полноформатник <STRONG>"Heavy Metal Music"</STRONG>&nbsp;целиком на сервис <STRONG>Youtube</STRONG>.</P>
+<P>На физическом носителе альбом появится 6 августа 2013 г.</P>
+<P>Трек-лист: 01. <STRONG>Heroic Dose</STRONG> | 02. <STRONG>Soldierhead</STRONG> | 03. <STRONG>...As The Crow Flies</STRONG> | 04. <STRONG>Ampossible</STRONG> | 05. <STRONG>Long Time Dead</STRONG> | 06. <STRONG>Above All</STRONG> | 07. <STRONG>King Of The Underdogs</STRONG> | 08. <STRONG>Nocturnus</STRONG> | 09. <STRONG>Twisted Tail Of The Comet</STRONG> | 10. <STRONG>Kindevillusion</STRONG> | 11. <STRONG>Futureality</STRONG></P>
+<P>Официальный сайт группы: <A href="http://newstedheavymetal.com">http://newstedheavymetal.com</A></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/7BEW7qAsfCE?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.12.2013 news VOIVOD: клип &quot;Kluskap O&#39; Kom&quot;
+
+<P>Канадцы <STRONG>VOIVOD</STRONG> выпустили второй клип на одну из&nbsp;песен со своего последнего альбома.&nbsp;В этот раз повезло треку&nbsp;<STRONG>"Kluskap O' Kom"</STRONG>.&nbsp;Режиссёр: <STRONG>Syl Disjonk</STRONG>.</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/SyvR6kOy5p4" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.02.2015 news VOIVOD: новый трек &quot;We Are Connected&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Century Media</STRONG> опубликовал новую песню канадцев <STRONG>VOIVOD</STRONG>. Трек под названием <STRONG>"We Are Connected"</STRONG> выйдет 7 апреля на 7" виниловом сплите со шведами <STRONG>AT THE GATES</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/Kz7l9M5V5Ds" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Early VOIVOD Tribute CD. TOTAL DEATH! Searching for bands.

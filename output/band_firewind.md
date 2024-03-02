@@ -141,6 +141,755 @@ Digipack bonus tracks:
 * C группой "At Vance" Mark Cross (Drums)
 * C группой "Nightfall" Mark Cross (Drums)
 
+## Публикации
+
+### 18.10.2003 news FIREWIND and ROB ROCK to tour in Japan
+
+<DIV><B>FIREWIND</B>, the&nbsp;heavy metal band featuring future guitar heroe <B>Gus G. (Dream Evil, Mystic Prophecy, Nightrage)</B> and heavy metal vocalist&nbsp;<B>ROB ROCK (Ex-Impellitteri,&nbsp;Driver, Joshua)</B> and his solo band&nbsp;<B>Rage of Creation</B> have announced the dates for their joint 2004&nbsp;tour of Japan.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>FIREWIND / ROB ROCK's Rage of Creation</B> tour dates:</DIV>
+<DIV><BR></DIV>
+<DIV><SPAN>January 21, 2004 -&nbsp;Osaka, Banana Hall</DIV>
+<DIV>
+<P>January 22, 2004 -&nbsp;Tokyo, Shibuya Club Quattro</P>
+<P>January&nbsp;23, 2004 - Tokyo, Shibuya Club Quattro</P>
+
+<DIV><B>FIREWIND</B> will be touring in support of their brand new 2nd cd "<B>Burning Earth</B>" which will be released on November 6th in Japan through <B>Toshiba / Emi Records</B>, November 10th in the USA through <B>Leviathan Records</B> and November 10th in Europe through <B>Massacre Records.</B></DIV>
+<DIV><B></B>&nbsp;</DIV>
+<DIV><B>ROB ROCK</B> will be touring in support of his brand new 2nd solo cd "<B>Eyes of Eternity</B>" which was released on July 21, 2003 in Japan through <B>JVC / Victor Entertainment</B>, July 15th in the USA through <B>Rob Rock Media</B> and June 30th in Europe through <B>Massacre Records</B>.</DIV></DIV></SPAN>
+Автор: Vit Belov
+
+### 18.10.2003 news Новый альбом от FIREWIND
+
+<P>Новый альбом <B>FIREWIND</B> "<B>Burning Earth</B>" , группы гитариста <B>GUS. G</B> и вокалиста <B>ROB ROCK</B>, выйдет 10 ноября на <B>Massacre</B>. </P>
+Автор: Vit Belov
+
+### 24.12.2003 news Rob Rock and FIREWIND in JAPAN
+
+<DIV><SPAN>January 21, 2004 -&nbsp;Osaka, Banana Hall</DIV>
+<DIV>
+<P>January 22, 2004 -&nbsp;Tokyo, Shibuya Club Quattro</P>
+<P>January&nbsp;23, 2004 - Tokyo, Shibuya Club Quattro</P></DIV></SPAN>
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 17.02.2004 reviews Gus G.- новая звезда power-metal?
+
+<DIV><I>Мировая power-metal сцена испытывает явный дефицит новых имён. И каждый более-менее талантливый музыкант становится чуть ли не мессией.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В последнее время, куда не глянь, везде греческий гитарист <B>Gus G</B>. Кроме <B>FIREWIND</B>, это <B>NIGHTRAGE, DREAM EVIL, MYSTIC PROPHECY</B>, может ещё чего забыл. <B>Gus</B> очень востребован - это несомненно. Из него отчаянно&nbsp;лепят звезду. С новым альбомом <B>FIREWIND</B> я познакомился довольно близко. Первое, что приходит на ум, не надо молодому человеку столько музыки сочинять. Альбомы записывать - это не матрёшек мастерить. Из 9 песен по-настоящему хорошие только 2-3, в остальных же всё качественно, но не более. Среднетемповое, стандартное power-metal исполнение.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Конечно же, не всё так плохо, фанатам стиля понравится. Периодически <B>Gus</B> даже демонстрирует хорошее владение инструментом, особенно на инструментале <B>'The Fire And The Fury'</B>. Нельзя сказать, что у него какой-то выдающийся собственный стиль игры, но явных сравнений сразу на ум не идёт. Продюсирование пластинки осуществил <B>David T. Chastain</B>, что тоже можно занести в актив. В пассив можно занести работу вокалиста - слишком безлико и натужно. </DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Все эти оценки, в расчёте на альбом высочайшего класса, а для альбома крепкого середняка, можно этого и не заметить. Вопрос, на что претендует группа?</DIV>
+Автор: Vit Belov
+
+### 28.02.2004 news FIREWIND назвали нового вокалиста
+
+<P>Новым вокалистом <B>FIREWIND</B> стал <B>Chity Somapala</B> (ex-<B>AVALON</B>, <B>FARO</B>). Лидер коллектива <B>Gus G.</B> считает, что новый певец переведёт группу на следующий уровень. Группа начнёт запись нового материала уже в 2004 году.</P>
+Автор: Vit Belov
+
+### 28.02.2004 news FIREWIND announce new singer
+
+<B>Chity Somapala</B> (ex-<B>AVALON</B>, <B>FARO</B>) has became new singer of <B>FIREWIND</B>. <B>Gus G.:</B> "<I>We feel that with <B>Chity</B>'s close proximity and his ability to give <B>FIREWIND</B> his full-time attention will bring <B>FIREWIND</B> to the next level</I>." <B>FIREWIND</B> will begin recordings of new album in 2004.
+Автор: Vit Belov
+
+### 06.08.2004 news Новый альбом FIREWIND
+
+<P><B>FIREWIND</B>&nbsp;запланировали на конец этого года выпуск своего нового альбома <B>"Forged By Fire"</B> на <B>Leviathan Records</B>. В группе новый вокалист - <B>Chity Somapala</B> (ex-<B>AVALON</B>, <B>FARO</B>), заменивший прежнего вокалиста <B>Stephen Fredrick.</B> Альбом был записан в трех студиях (американской <B>Leviathan</B>, греческой <B>A29</B> и норвежской <B>Mediamaker</B>), продюсерами выступили&nbsp;<B>David T. Chastain</B>&nbsp;и лидер группы&nbsp;<B>Gus G.</B> Окончательное микширование пройдет под руководством <B>Fredrik Nordstr&#246;m</B>&nbsp;в шведской&nbsp;<B>Studio Fredman.</B></P>
+Автор: Дофф
+
+### 18.08.2004 news James Murphy и Marty Friedman на новом альбоме FIREWIND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший гитарист <STRONG>MEGADETH Marty Friedman</STRONG> и бывший гитарист <STRONG>DEATH</STRONG> и <STRONG>TESTAMENT James Murphy</STRONG> записали соло для нового альбома <STRONG>FIREWIND</STRONG>, который предположительно будет называться <STRONG>"Forged By Fire"</STRONG>. Вот некоторые названия песен с этого альбома: <STRONG>"Kill 2 Live"</STRONG>, <B>"Beware The Beast"</B>, <B>"Land of Eternity"</B>, <B>"Feast of the Savages"</B>, <B>"Escape From Tomorrow"</B>&nbsp;и <B>"Hateworld Hero"</B>.<BR></FONT></P>
+Автор: Vit Belov
+
+### 29.10.2004 news FIREWIND на Century Media
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греческие power-metal'исты <STRONG>FIREWIND</STRONG> заключили контракт с <STRONG>Century Media</STRONG>. Их новый альбом <STRONG>'Forged By Fire'</STRONG> выйдет в начале следующего года. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Kill To Live</STRONG> (3:41) <BR>2. <STRONG>Beware The Beast</STRONG> (4:22) <BR>3. <STRONG>Tyranny</STRONG> (3:30) <BR>4. <STRONG>The Forgotten Memory</STRONG> (3:42) [featuring <STRONG>James Murphy</STRONG>] <BR>5. <STRONG>Hate World Hero</STRONG> (5:50) <BR>6. <STRONG>Escape From Tomorrow</STRONG> (3:57) <BR>7. <STRONG>Feast Of The Savages</STRONG> (4:25) [instrumental, feat. <STRONG>Marty Friedman</STRONG>] <BR>8. <STRONG>Burn In Hell</STRONG> (4:37) <BR>9. <STRONG>Perished In Flames</STRONG> (4:51) <BR>10. <STRONG>Land Of Eternity</STRONG> (5:54) <BR>+ <STRONG>Tyranny</STRONG> (video clip enhancement) <BR>+ Making Of/Live Footage (video enhancement) </P>
+<P><STRONG>Gus G.</STRONG> (гитара): "<EM>Мы были удовлетворены работой с <STRONG>David T. Chastain</STRONG> и его лейблом <STRONG>Leviathan</STRONG>, но настало время сделать шаг вперёд</EM>".</P>
+Автор: Vit Belov
+
+### 29.10.2004 news FIREWIND sign with Century Media
+
+<P><STRONG>Century Media Records</STRONG> announce the worldwide signing of a multi-album deal with Greek melodic power metal band <STRONG>FIREWIND</STRONG>. <STRONG>FIREWIND</STRONG>’s label debut and third album in their career will be entitled “<STRONG>Forged By Fire</STRONG>” and is set for a January 24th, 2005 release date in Europe. </P>
+<P>When asked about signing to Century Media Records guitarist and band leader Gus G. commented, “<EM><STRONG>FIREWIND</STRONG> was always happy to work with <STRONG>David Chastain</STRONG> and <STRONG>Leviathan</STRONG>, but both the label and band felt that we needed to jump to a bigger level as we feel this 3rd album is our most important one. I personally have been very satisfied working with <STRONG>Century Media</STRONG> in the past with <STRONG>Dream Evil</STRONG> and <STRONG>Nightrage</STRONG>: We have great co-operation and chemistry and they have always believed in my music since day one.”</EM> </P>
+<P>To record “<STRONG>Forged By Fire</STRONG>” the band utilized three different studios (one each in Greece, Germany and Norway) and finally mixed the album at famous <STRONG>Studio Fredman</STRONG> in Sweden (IN FLAMES, OPETH, HAMMERFALL, THE HAUNTED) with <STRONG>Gus G</STRONG>.’s former <STRONG>DREAM EVIL</STRONG> bandmate <STRONG>Fredrik Nordstrom</STRONG> as well as <STRONG>Patrik J. Sten</STRONG>. New to the FIREWIND line-up is the outstanding, Sri Lanka native vocalist<STRONG> Chity Somapala</STRONG> (ex-<STRONG>AVALON</STRONG>, also in <STRONG>FARO</STRONG> and <STRONG>MOONLIGHT AGONY</STRONG>), who replaced <STRONG>Stephen Fredrick</STRONG> (ex-<STRONG>KENZINER</STRONG>). The full track-listing for <STRONG>FIREWIND</STRONG>’s “<STRONG>Forged By Fire</STRONG>” is as follows: </P>
+<P>1. <STRONG>Kill To Live</STRONG> (3:41) <BR>2. <STRONG>Beware The Beast</STRONG> (4:22) <BR>3. <STRONG>Tyranny</STRONG> (3:30) <BR>4. <STRONG>The Forgotten Memory</STRONG> (3:42) [featuring <STRONG>James Murphy</STRONG>] <BR>5. <STRONG>Hate World Hero</STRONG> (5:50) <BR>6. <STRONG>Escape From Tomorrow</STRONG> (3:57) <BR>7. <STRONG>Feast Of The Savages</STRONG> (4:25) [instrumental, feat. <STRONG>Marty Friedman</STRONG>] <BR>8. <STRONG>Burn In Hell</STRONG> (4:37) <BR>9. <STRONG>Perished In Flames</STRONG> (4:51) <BR>10. <STRONG>Land Of Eternity</STRONG> (5:54) <BR>+ <STRONG>Tyranny</STRONG> (video clip enhancement) <BR>+ Making Of/Live Footage (video enhancement) </P>
+Автор: Vit Belov
+
+### 18.12.2004 news Новая песня FIREWIND
+
+<P>Песня <STRONG>FIREWIND 'Tyranny'</STRONG> с нового альбома группы <STRONG>'Forged By Fire'</STRONG> доступна к прослушиванию в RealAudio формате здесь: <A href="http://www.centurymedia.de/century/mainarea/audio.aspx?id=firewind__tyranny.rm">http://www.centurymedia.de/century/mainarea/audio.aspx?id=firewind__tyranny.rm</A></P>
+Автор: Vit Belov
+
+### 04.07.2005 news FIREWIND вновь лишились вокалиста
+
+<P>Вокалист <STRONG>Chity Somapala</STRONG>, который присоединился к <STRONG>FIREWIND</STRONG> в начале прошлого года, покинул группу по личным причинам.</P>
+Автор: Vit Belov
+
+### 06.07.2006 news FIREWIND выпускают новый альбом
+
+<P>Греческий коллектив <STRONG>FIREWIND</STRONG> во главе с гитаристом-виртуозом <STRONG>Gus G</STRONG> готовит к выходу свой новый альбом под названием <STRONG>"Allegiance".</STRONG> Это будет дебют для новых участников группы: вокалиста<STRONG> Apollo Papathanasio</STRONG> (ex-<STRONG>MAJESTIC</STRONG>, <STRONG>TIME REQUIEM</STRONG>)&nbsp;и ударника&nbsp;<STRONG>Mark Cross</STRONG> (ex-<STRONG>HELLOWEEN</STRONG>, <STRONG>METALIUM</STRONG>). Дата релиза - 24 июля на <STRONG>Century Media Records</STRONG> (10 июля диск увидит свет в Греции на <STRONG>EMI Greece</STRONG>). Пока же, вышел в свет сингл группы <STRONG>"Falling to Pieces"</STRONG>,&nbsp;в который&nbsp;кроме полной версии одноименной песни вошли&nbsp;радиоверсия&nbsp;"<STRONG>Allegiance</STRONG>",&nbsp;"<STRONG>Demon Nights"</STRONG> не вошедшая на полнометражник и кавер <STRONG>BLACKFOOT</STRONG> <STRONG>"Teenage Idol".</STRONG> Также, группа сняла клип на песню<STRONG> "Falling to Pieces"</STRONG> с режиссером&nbsp;<STRONG>Patric Ullaeus</STRONG> (<STRONG>LACUNA COIL</STRONG>, <STRONG>WITHIN TEMPTATION</STRONG>, <STRONG>IN FLAMES</STRONG>, <STRONG>DIMMU BORGIR</STRONG>). Трек-лист альбома:</P>
+<P><IMG height=329 alt="" hspace=20 src="/images/news_rus/2006.07/10521.jpg" width=250 align=left border=0>1. <B>Allegiance</B> (4:41)<BR>2. <B>Insanity</B> (4:29)<BR>3. <B>Falling To Pieces</B> (4:03)<BR>4. <B>Ready To Strike</B> (4:35)<BR>5. <B>Breaking The Silence</B> [feat. Tara] (4:03)<BR>6. <B>Deliverance</B> (6:07)<BR>7. <B>Till The End of Time</B> (4:36)<BR>8. <B>Dreamchaser</B> (4:07)<BR>9. <B>Before The Storm</B> (3:42)<BR>10. <B>The Essence</B> (4:19)<BR>11. <B>Where Do We Go From Here?</B> (3:57)</P>
+Автор: Dimas
+
+### 29.11.2007 news FIREWIND пишут новый альбом
+
+<P><STRONG>FIREWIND </STRONG>находятся в студии Fredman, где работают над новым альбомом. Будет записано 12 песен и несколько каверов. Вот некоторые названия песен: <STRONG>"Remembered"</STRONG>, <B>"Life Foreclosed"</B>, <B>"The Silent Code"</B>, <B>"Mercenary Man"</B>, <B>"My Loneliness"</B>, <B>"Head Up High"</B>.</P>
+Автор: Vit Belov
+
+### 26.01.2008 news Новый альбом FIREWIND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>FIREWIND</STRONG> будет называться <STRONG>"The Premonition" </STRONG>и выйдет 24 марта на <STRONG>Century Media</STRONG>. Обложку новой пластинки нарисовал бразильский художник <STRONG>Gustavo Sazes.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 02.02.2008 news Новая песня FIREWIND
+
+<P>24 марта на <STRONG>Century Media</STRONG> выходит новый альбом <STRONG>FIREWIND</STRONG> <STRONG>"The Premonition".</STRONG> Группа выложила новую песню на своей официальной <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/firewind">http://www.myspace.com/firewind</A></P>
+Автор: Vit Belov
+
+### 08.06.2008 reviews Советую всем!
+
+<P>Приятно осознавать, что на твоих глазах появилась очень хорошая группа. Не то, что когда-то там появились легенды и монстры, свидетелями рождения которых были лишь признанные аксакалы фанатского цеха. Вот здесь и сейчас продолжает твориться история металла, и от этого никуда не деться. FIREWIND одни из тех, кто эту историю творит.</P>
+<P>Ведомая гитаристом-виртуозом Gus G., греческая группа выпускает уже пятый альбом за восемь лет и с каждой пластинкой приближается к статусу звезды мирового heavy/power-metal. “The Premonition” демонстрирует прогресс FIREWIND. Группа стала работать и в смежных с power-metal жанрах heavy и hard-rock, их песни придутся по нраву не только их старым фанатам, но и армии поклонников мелодичного hard-rock (RAINBOW style). Великолепные мелодии, запоминающиеся с первого раза, отличный вокалист Apollo Papathanasio, грамотная работа музыкантов и реализация. Всё это есть на новой работе FIREWIND. Советую всем!</P>
+<P>Практически безупречная пластинка, которая понравится всем фанатам power, heavy и hard-rock, а так же и всем остальным незацикленным на одном стиле поклонникам тяжеляка. Ни одной слабой вещи.</P>
+Автор: Vit Belov
+
+### 05.09.2008 news Новое видео FIREWIND
+
+<P>
+<CENTER><STRONG>FIREWIND</STRONG> опубликовали в сети видео на песню <STRONG>"Head Up High"</STRONG>&nbsp;с последнего альбома <STRONG>"The Premonition".</CENTER></STRONG>
+<P></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/AAOnH3ULu9U&hl=en&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/AAOnH3ULu9U&hl=en&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 31.10.2008 news FIREWIND готовят DVD
+
+<P>В ноябре выйдет первый концертный релиз за историю<STRONG> FIREWIND "Live Premonition</STRONG>". На диск войдёт 22-песенный концерт, отснятый в родном городе группы Тессалоники. Сэт-лист:</P>
+<P>I. Main Live Show (approx. 100 min)<BR itxtvisited="1">01. <B itxtvisited="1">Allegiance</B><BR itxtvisited="1">02. <B itxtvisited="1">Insanity</B><BR itxtvisited="1">03. <B itxtvisited="1">Into The Fire</B><BR itxtvisited="1">04. <B itxtvisited="1">Head Up High</B><BR itxtvisited="1">05. <B itxtvisited="1">Mercenary Man</B><BR itxtvisited="1">06. <B itxtvisited="1">Angels Forgive Me</B><BR itxtvisited="1">07. <B itxtvisited="1">My Loneliness</B><BR itxtvisited="1">08. <B itxtvisited="1">Circle Of Life</B><BR itxtvisited="1">09. <B itxtvisited="1">The Silent Code</B><BR itxtvisited="1">10. <B itxtvisited="1">Life Foreclosed</B><BR itxtvisited="1">11. <B itxtvisited="1">Destination Forever</B><BR itxtvisited="1">12. <B itxtvisited="1">Keyboard Solo</B><BR itxtvisited="1">13. <B itxtvisited="1">Guitar Solo</B><BR itxtvisited="1">14. <B itxtvisited="1">The Fire And The Fury</B><BR itxtvisited="1">15. <B itxtvisited="1">Drum Solo</B> / <B itxtvisited="1">Dreamchaser</B><BR itxtvisited="1">16. <B itxtvisited="1">Till The End Of Time</B><BR itxtvisited="1">17. <B itxtvisited="1">Deliverance</B><BR itxtvisited="1">18. <B itxtvisited="1">Brother's Keeper</B><BR itxtvisited="1">19. <B itxtvisited="1">Between Heaven And Hell</B><BR itxtvisited="1">20. <B itxtvisited="1">I Am The Anger</B><BR itxtvisited="1">21. <B itxtvisited="1">Falling To Pieces</B><BR itxtvisited="1">22. <B itxtvisited="1">Tyranny</B><BR itxtvisited="1"><BR itxtvisited="1">II. Extras: <BR itxtvisited="1">a) Documentary / Tales Of The Greek Road Warriors (19:49)<BR itxtvisited="1">b) Promotional Videos:<BR itxtvisited="1"><B itxtvisited="1">Mercenary Man</B> (3:27)<BR itxtvisited="1"><B itxtvisited="1">Head Up High</B> (3:46)<BR itxtvisited="1"><B itxtvisited="1">Falling To Pieces</B> (3:19)<BR itxtvisited="1"><B itxtvisited="1">Breaking The Silence</B> (4:01)<BR itxtvisited="1">c) Unplugged - MAD TV Sessions:<BR itxtvisited="1"><B itxtvisited="1">My Loneliness</B> (4:05)<BR itxtvisited="1"><B itxtvisited="1">Where Do We Go From Here?</B> (3:22)<BR itxtvisited="1">d) Live In Montreal 2008:<BR itxtvisited="1"><B itxtvisited="1">Head Up High</B> (4:41)<BR itxtvisited="1"><B itxtvisited="1">The Fire And The Fury</B> (4:43)<BR itxtvisited="1"><B itxtvisited="1">Till The End Of Time</B> (5:36)</P>
+Автор: Vit Belov
+
+### 04.08.2009 news Gus G. заменит Zakk Wylde
+
+<P>По слухам из нескольких источников, на выставке <STRONG>BlizzCon convention</STRONG> в Анахейме, Калифорния <STRONG>Ozzy Osbourne</STRONG> выступит с новым гитаристом, которым станет <STRONG>Gus G.</STRONG> из <STRONG>FIREWIND</STRONG>.&nbsp;В интервью июньскому <STRONG>Classic Rock Ozzy</STRONG> уже сообщал, что ищет замену своему текущему гитаристу <STRONG>Zakk Wylde</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 19.05.2010 news Gus G. сыграет для KAMELOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>OZZY OSBOURNE/FIREWIND Gus G.</STRONG> сыграл соло для одной из песен с нового альбома <STRONG>KAMELOT</STRONG>. Гитарист этой группы <STRONG>Thomas Youngblood</STRONG> сообщил, что они договорились об этом ещё несколько лет назад, когда <STRONG>KAMELOT</STRONG> ездили в тур в Японию вместе с <STRONG>DREAM EVIL</STRONG>, где <STRONG>Gus G.</STRONG> тогда играл. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Другим контрибутором на будущей работе выступила певица<STRONG> EPICA Simone Simons</STRONG>, которая уже не первый раз участвует в записи новой работы <STRONG>KAMELOT</STRONG>. <STRONG>Simone</STRONG> является девушкой клавишника этой группы <STRONG>Oliver Palotai, </STRONG>с которым также записывала другой проект <STRONG>SON OF THE SEASONS</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 08.08.2010 news FIREWIND в октябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG>&nbsp;FIREWIND</STRONG> <STRONG>"Days Of Defiance</STRONG>" выйдет 26 октября на <STRONG>Century Media</STRONG>.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 18.09.2010 news Новое видео FIREWIND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>FIREWIND </STRONG>на песню <STRONG>"World On Fire" </STRONG>можно посмотреть ниже. Ролик снял режиссёр <STRONG>Patric Ullaeus. </STRONG>Эта песня попадёт на новую работу группы под управлением гитариста<STRONG> Ozzy Osbourne Gus G.</STRONG> <STRONG>"Days Of Defiance"</STRONG>, который выйдет 25 октября на<STRONG> Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/R4pRK7IMKR0&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/R4pRK7IMKR0&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.11.2010 news Продажи в США на этой неделе
+
+<P>Появились результаты в чартах<STRONG> Billboard</STRONG> на этой неделе в США. Наиболее успешной пластинкой в тяжёлом жанре стал новый альбом <STRONG>MONSTER MAGNET</STRONG> <STRONG>"Mastermind", </STRONG>попавший на 165-ое место с 3000 экземпляров. Другие представители металической музыки не могут похвастаться и подобным. Например, вышедший только сейчас в США новый альбом <STRONG>THERION</STRONG> <STRONG>"Sitra Ahra" </STRONG>реализовался только в 800 копиях. Возвращение <STRONG>FORBIDDEN</STRONG> <STRONG>"Omega Wave"&nbsp;</STRONG>в 950 копиях, а альбом <STRONG>HYDROGYN</STRONG> <STRONG>"Judgement" </STRONG>в 1500 экземплярах. </P>
+<P>Не смог совершить прорыв и новый гитарист <STRONG>OZZY OSBOURNE Gus G.</STRONG>, со своей группой <STRONG>FIREWIND</STRONG> и новым альбомом <STRONG>"Days Of Defiance" </STRONG>в первую неделю он смог продать в США лишь 700 пластинок.</P>
+Автор: Vit Belov
+
+### 18.01.2011 reviews Флагманы неоклассического power-metal
+
+<P>Можно ли что-то оригинальное создать в power-metal так, чтобы это ещё и можно было слушать без принятия седативных препаратов? Ответ очевиден. Нет! Power-metal – стиль, который невозможно представить без отличной мелодии, которую невозможно заменить ни выдающимся саундом, ни, тем более, разнообразием используемых инструментов. В применении к неоклассическому power-metal это утверждение следует умножить на два. В этом подстиле не только нельзя экспериментировать, но даже тональность музыки задана заранее.</P>
+<P>Новые альбомы FIREWIND вынуждены соответствовать этим параметрам. Гитарист-шреддер всю свою жизнь борется с монументальностью стиля, созданного Yngwie Malmsteen, и если вдруг он её побеждает, его ждёт презрение и хула от собственного слушателя. Редким музыкантам удаётся вырасти из коротких штанишек и заявить о себе как о самостоятельной личности в творчестве. Гитаристу греческого происхождения Gus G., безусловно, это удалось. Альбомы FIREWIND великолепно слушаются, сразу несколько песен на каждом из них можно считать хитами. Следует отметить, что Gus G. трудится не один, ему помогают великолепный клавишник Bob Katsionis и не менее великолепный вокалист Apollo Papathanasio. Последнего, вообще, можно считать непревзойдённым мастером вокальной мелодии, которая в неоклассическом power-metal зачастую составляет половину успеха. Все группы с участием этого грека привлекали к себе внимание, а некоторые альбомы с его участием становились классикой жанра, не побоюсь этого слова. К классике можно уже сейчас относить и два последних альбома FIREWIND с его участием – “The Premonition” и “Days Of Defiance”.</P>
+<P>Совершенно очевидно, что FIREWIND являются лидерами своего стиля. Им нравится то, что они делают, а через них это дело нравится и слушателям. В прошлом году Gus G. стал гитаристом Ozzy Osbourne, сменив Zakk Wylde. Пока не ясно, что у него там получится, ведь для последнего альбома этого «ужасного» вокалиста “Scream” гитарист ничего не сочинял. Многое станет ясно и о Ozzy, и о самом Gus после релиза следующей пластинки бывшего певца BLACK SABBATH, музыку для которой греческий музыкант уже начал сочинять.</P>
+Автор: Vit Belov
+
+### 16.03.2011 news Новый клип FIREWIND
+
+<P><STRONG>FIREWIND </STRONG>выложили в сеть новый видео-клип на песню <STRONG>"Embrace The Sun". </STRONG>Режиссёром ролика выступил известный в узких кругах металистов клипмейкер <STRONG>Patric Ullaeus, </STRONG>который до этого работал с <STRONG>DIMMU BORGIR, IN FLAMES, LACUNA COIL</STRONG> и многими другими монстрами современной тяжёлой музыки.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/zlstARCNT2c?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/zlstARCNT2c?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.01.2012 news FIREWIND переподписались на Century Media
+
+<P>Греки <STRONG>FIREWIND</STRONG>, в составе которых нынешний гитарист <STRONG>Ozzy Osbourne Gus G.</STRONG>, подписали новое соглашение с <STRONG>Century Media</STRONG>. Группа работает над новым альбомом "<STRONG>Few Against Many</STRONG>", который выйдет до начала лета.</P>
+<P>В феврале в Японии будут переизданы второй и третий альбом<STRONG> FIREWIND</STRONG>. Пластинки прошли ремастеринг.</P>
+<P><center><IMG height=267 src="/images/news_rus/2012.01/22619.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 08.03.2012 news Обложка нового FIREWIND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>FIREWIND "Few Against Many"</STRONG> выйдет 21 мая на <STRONG>Century Media</STRONG>. Обложку работы можно посмотреть ниже.</FONT></P>
+<P><center><IMG height=475 src="/images/news_rus/2012.03/23241.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 04.05.2012 news Новый ролик FIREWIND
+
+<P>Видео-клип <STRONG>"Wall Of Sound" </STRONG>с выходящего нового альбома<STRONG> FIREWIND</STRONG> <STRONG>"Few Against Many" </STRONG>можно посмотреть ниже. Ролик был снят <STRONG>Colin Marshall </STRONG>на последних концертах группы.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/aihNvw4b8bE?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/aihNvw4b8bE?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 18.01.2013 news FIREWIND заменили Apollo Papathanasio
+
+<P>Вокалист <STRONG>Apollo Papathanasio </STRONG>покинул <STRONG>FIREWIND</STRONG>. Группа уже объявила имя нового фронтмена, им стал <STRONG>Kelly Sundown Carpenter</STRONG> (<B>BEYOND TWILIGHT</B>, <B>OUTWORLD</B>, <B>DARKOLOGY</B>, <B>ADAGIO</B>).</P>
+<P>Певец не может соответствовать растущим требованиям по туровой активности группы. <STRONG>FIREWIND</STRONG> были вынуждены в последние несколько лет заменять его во время многих турне, далее эта ситуация продолжаться не могла.</P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.01/25336.png" width=325 height=600> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.06.2016 news FIREWIND вошли в студию
+
+<p><strong>FIREWIND</strong> возобновили деятельность после четырёхлетнего перерыва. Группа вошла в студию для записи нового восьмого альбома. Процесс пошёл в Бельгии в <strong>Noise Factory Studios</strong>, где работает продюсер<strong> Dennis Ward</strong> (Unisonic, Pink Cream 69, Krokus, etc.).</p><p>Новый альбом станет первым для нового вокалиста FIREWIND <strong>Henning Basse</strong> (ex-METALIUM).</p><p>&nbsp;<center><img width="490" height="735" src="/images/news_rus/2016.06/29381.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 17.06.2016 news FIRWIND entered to the studio
+
+<p><strong>FIREWIND</strong> resumed activities after a four year break. The band entered the Studio to record a new eighth album. The process started in Belgium in <strong>Noise Factory Studios</strong> with producer <strong>Dennis Ward</strong> (Unisonic, Pink Cream 69, Krokus, etc.).</p><p>The new album will be the first for the new FIREWIND vocalist <strong>Henning Basse</strong> (ex-METALIUM).</p><p><center><img width="490" height="735" src="/images/news_rus/2016.06/29381.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 25.11.2016 news Первый сингл с нового альбома FIREWIND
+
+<p>Новая работа<strong> FIREWIND "Immortals"</strong> выйдет 20 января на <strong>Century Media</strong>. Первым синглом альбома стала открывашка "<strong>Hands Of Time</strong>", которую можно послушать ниже. У микрофона <strong>Henning Basse </strong>(ex-METALIUM).</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/z3Q1o0m2sik" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

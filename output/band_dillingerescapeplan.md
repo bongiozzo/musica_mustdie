@@ -30,6 +30,96 @@ Chaotic mix of technical hardcore/grindcore/jazz/avantgarde metal and raging int
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.05.2004 news Новый альбом The Dillinger Escape Plan
+
+<P>Новый альбом <B>THE DILLINGER ESCAPE PLAN 'Miss Machine'</B> выйдет 20 июля на <B>Relapse</B>.</P>
+Автор: Vit Belov
+
+### 22.06.2006 news Новые релизы THE DILLINGER ESCAPE PLAN
+
+<P>Одна из самых экспериментальных групп в современной тяжелой музыке <B>THE DILLINGER ESCAPE PLAN</B> приготовила своим поклонникам два сюрприза. Во-первых, 13 июня 2006-го года вышел EP <B>"Plagiarism"</B>, на который вошли <B>'Unretrofied'</B> (с последнего полноформатника группы <B>"Miss Machine"</B>), каверы <B>NINE INCH NAILS 'Wish'</B>, <B>MASSIVE ATTACK 'Angel'</B>, <B>SOUNDGARDEN 'Jesus Christ Pose'</B>&nbsp;и <B>Justin Timberlake 'Like I Love You'</B>, а также неиздававшийся ранее концертный&nbsp;материал. Несмотря на то, что данный ЕР вышел на <B>Relapse&nbsp;Records</B>, распространяется он исключительно через <B>iTunes</B> по адресу: <A href="http://phobos.apple.com/WebObjects/MZStore.woa/wa/viewAlbum?id=157955157&s=143441">http://phobos.apple.com/WebObjects/MZStore.woa/wa/viewAlbum?id=157955157&s=143441</A>. Во-вторых, 27-го июня 2006-го года (за пределами Северной Америки 3-го июля) выходит DVD группы <B>"Miss Machine: The DVD"</B>. Он будет состоять из туровых фото, студийных видео с <B>"Miss Machine"</B>, а также туровых съемок.</P>
+Автор: Ixtiandr
+
+### 15.08.2008 reviews Информация для фэнов DILLINGER ESCAPE PLAN
+
+<P>Рецензировать альбомы групп, подобных DILLINGER ESCAPE PLAN, практически невозможно. Врубаться в различные нюансы их записей и раскладывать их по полочкам неблагодарное занятие, да и не нужно это никому. Важно ведь, какое настроение останется у вас после прослушивания пластинки, а волнует ли вас моё настроение?</P>
+<P>Любителям этой группы ничего рассказывать не буду. Отмечу только, что на прошлой неделе альбом 2007 года “Ire Works” вышел у нас на Irond, бегите в магазин. Тем же, кто никогда этого не слышал, задам несколько вопросов. Вам нравятся эксперименты в тяжёлой музыке? Вам может понравиться группа, которая смешивает jazz, punk, hardcore и попсу? Вам нравится FAITH NO MORE? Ели на все эти вопросы вы ответили положительно, новый альбом DILLINGER ESCAPE PLAN для вас. В любом случае вам будет интересно послушать этот «шизоидный» материал.</P>
+<P>Информационную часть можно считать законченной. Моё же субъективное… Есть очень интересные куски, но есть и откровенно непонравившиеся элементы каких-то «чёрных» популярных песен. Да что там моё мнение, я карлик…</P>
+Автор: Vit Belov
+
+### 02.01.2009 news DILLINGER ESCAPE PLAN взяли нового барабанщика
+
+<P><IMG height=167 alt="" hspace=0 src="/images/news_rus/2009.01/13270.jpg" width=250 align=left border=5>Новым барабанщиком <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> стал музыкант прогрессивной группы <STRONG>THE RIVALRY Billi Rymer</STRONG>. Он заменил ушедшего <STRONG>Gil Sharone</STRONG>. Чтобы выполнять обязанности "драмера" в <STRONG>TDEP</STRONG> нужно обладать выской квалификацией, и <STRONG>Billy</STRONG> ей обладает. Он выступал на одной сцене с такими музыкантами, как <STRONG>311</STRONG>, <B itxtvisited="1">ALIEN ANT FARM</B>, <B itxtvisited="1">MATISYAHU</B>, <STRONG>KELLY </STRONG><STRONG>CLARKSON</B></STRONG>, <STRONG>THE JONAS</STRONG> <STRONG>BROTHERS</STRONG>, <B itxtvisited="1">LIFEHOUSE</B>, <B itxtvisited="1">AMERICAN HIFI</B>, <B itxtvisited="1">BLOODHOUND GANG</B>, <B itxtvisited="1">BIOHAZARD</B>, <B itxtvisited="1">THE RECEIVING END OF SIRENS</B>, <B itxtvisited="1">Wes Borland</B>&nbsp;из <B itxtvisited="1">LIMP BIZKIT</B>, <B itxtvisited="1">THE SLEEPING</B> и многие другие.</P></NOBR>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 28.05.2009 news THE DILLINGER ESCAPE PLAN на Season Of Mist
+
+<P><STRONG>THE DILLINGER ESCAPE PLAN</STRONG> подписали контракт с <STRONG>Season Of Mist</STRONG>. Четвёртый альбом группы выйдет в начале 2010 года.</P>
+Автор: Vit Belov
+
+### 22.08.2009 news THE DILLINGER ESCAPE PLAN войдут в студию
+
+<P>24 августа <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> войдут в студию вместе с продюсером <STRONG>Steve Evetts</STRONG> (<B>EVERY TIME I DIE</B>, <B>SEPULTURA</B>) для записи нового альбома <STRONG>"Option Paralysis"</STRONG>. Пластинка выйдет в 2010 на <STRONG>Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.03.2010 news Новое видео THE DILLINGER ESCAPE PLAN
+
+<P><STRONG>"Farewell, Mona Lisa", </STRONG>новый клип<STRONG> THE DILLINGER ESCAPE PLAN</STRONG>, можно посмотреть ниже. Песня войдёт на новый альбом коллектива <STRONG>"Option Paralysis"</STRONG>,&nbsp;который выйдет 23 марта. Диск был записан с продюсером <STRONG>Steve Evetts</STRONG> (<B>THE USED</B>, <B>GLASSJAW</B>, <B>EVERY TIME I DIE</B>) и выйдет на <STRONG>Season Of Mist</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/YY-JkeXK4dU&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/YY-JkeXK4dU&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.03.2010 news THE DILLINGER ESCAPE PLAN можно послушать
+
+<P>Новый альбом<STRONG> THE DILLINGER ESCAPE PLAN</STRONG> <STRONG>"Option Paralysis" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/dillingerescapeplan">http://www.myspace.com/dillingerescapeplan</A></P>
+<P>Пластинка выйдет 23 марта на <STRONG>Season Of Mist</STRONG>. </P>
+<P><center><IMG height=350 src="/images/news_rus/2010.03/16423.jpg" width=350 border=0></P>
+Автор: Vit Belov
+
+### 13.04.2011 news Новое видео THE DILLINGER ESCAPE PLAN
+
+<P>Новый клип <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <STRONG>"Gold Teeth On A Bum" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-QgBwkaePIk?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/-QgBwkaePIk?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.08.2011 news Новая группа участников THE DILLINGER ESCAPE PLAN и MUNICIPAL WASTE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>MUNICIPAL WASTE</STRONG> <STRONG>Dave Witte, </STRONG>бывший вокалист<STRONG> THE DILLINGER ESCAPE PLAN</STRONG> <STRONG>Dimitri Minakakis</STRONG> объединились в новой группе <STRONG>ARGONAUTS</STRONG>. Группа собирается пойти своим собственным курсом в тяжёлой музыке. Состав:</FONT></P>
+<P><STRONG>Dimitri Minakakis</STRONG> (ex-THE DILLINGER ESCAPE PLAN) - Vocals<BR><B>John Adubato</B> (ex-BURNT BY THE SUN) - Guitar<BR><B>Brett Bamberger</B> (EAST OF THE WALL) - Bass<BR><B>Dave Witte</B> (MUNICIPAL WASTE, ex-BURNT BY THE SUN) – Drums</P>
+<P>Facebook: <A href="http://www.facebook.com/pages/Argonauts/">http://www.facebook.com/pages/Argonauts/</A></P>
+<P><center><IMG height=367 src="/images/news_rus/2011.08/20388.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 08.02.2012 news Новый клип THE DILLINGER ESCAPE PLAN
+
+<P>Новое видео новаторов <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> на песню "<STRONG>Parasitic Twins</STRONG>" можно посмотреть ниже. </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/LCOUSG27pWw?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 19.02.2013 news THE DILLINGER ESCAPE PLAN: подробности альбома &quot;One Of Us Is The Killer&quot;
+
+<P>Американские маткорщики <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> обнародовали название, обложку и примерную дату выхода своего пятого студийного альбома. Диск получил&nbsp;название <STRONG>"One Of Us Is The Killer"</STRONG> и выйдет в мае этого года.&nbsp;Продюсером&nbsp;нового полноформатника стал&nbsp;<STRONG>Steve Evetts</STRONG> (<STRONG>M.O.D.</STRONG>, <STRONG>SKINLAB</STRONG>, <STRONG>SYMPHONY X</STRONG>, <STRONG>SEPULTURA</STRONG> и др.). <STRONG>"One Of Us Is The Killer" </STRONG>выйдет на собственном лейбле группы <STRONG>"Party Smasher Inc."</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25446.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

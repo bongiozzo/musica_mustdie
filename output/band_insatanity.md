@@ -47,6 +47,9 @@ Mark Rhochar (Vocals), Matt Mazzenga (Drums)
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

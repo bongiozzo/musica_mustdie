@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.09.2016 news NOTHING выпустили клип
+
+<p>Американцы<strong> NOTHING</strong> выпустили клип "<strong>Curse Of The Sun</strong>". Новый альбом "<strong>Tired Of Tomorrow</strong>" вышел на<strong> Relapse Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/G6yB8V7h9gE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 07.09.2016 news NOTHING released video
+
+Americans<strong> NOTHING</strong> has released a music video "<strong>Curse Of The Sun</strong>". The new album "<strong>Tired Of Tomorrow</strong>" was released on<strong> Relapse Records</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/G6yB8V7h9gE" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

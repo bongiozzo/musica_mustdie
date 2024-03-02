@@ -33,6 +33,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.12.2015 news Новый альбом EXMORTUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа ил Лос-Анджелеса <STRONG>EXMORTUS</STRONG> стартует в 2016 году с новым альбомом <STRONG>"Ride Forth"</STRONG>, который выйдет 8 января на <STRONG>Prosthetic Records</STRONG>. Viking melodic death metal коллектив представил уже три официальных лирик-видео на песни "<STRONG>Death To Tyrants</STRONG>", "<STRONG>Relentless</STRONG>" и "<STRONG>For The Horde</STRONG>". Их можно посмотреть ниже. Трек-лист альбома:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>“Speed Of The Strike”<BR>“Relentless”<BR>“For The Horde”<BR>“Let Us Roam”<BR>“Black Sails”<BR>“Hymn Of Hate”<BR>“Appassionata”<BR>“Death To Tyrants”<BR>“Fire And Ice”</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/u40otH-jZZw" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/DIDTnEyyHN4" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/uo35U4PTQ90" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

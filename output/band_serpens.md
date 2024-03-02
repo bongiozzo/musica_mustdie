@@ -26,6 +26,42 @@ Keyboards by Denis Devichensky
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.10.2009 news Russian SERPENS released debut album
+
+<P><IMG border=5 hspace=0 alt="" src="/images/news_rus/2009.11/15322.jpg" width=400 align=right height=392>Russian black-metal band<STRONG> SERPENS</STRONG> has just released their debut album “<STRONG>Nox Irae</STRONG>” (Night of Rage, Latin) via <STRONG>MUSICA Production</STRONG>. The group from Saint-Petersburg was formed in 1996. New album was recorded, mixed and mastered at <STRONG>Black Studio</STRONG>, Saint-Petersburg with engineer <STRONG>Denis Devichenskiy</STRONG>. Track-list:</P>
+<P>1. <STRONG>V Vechnost</STRONG> (Into the Eternity) 04:57&nbsp; <BR>2. <STRONG>Initsiatsiya Smertyu</STRONG> (Initiation by Death) 05:23&nbsp; <BR>3. <STRONG>Namestnik Vselennoy</STRONG> (Deputy of Universe) 04:29&nbsp; <BR>4. <STRONG>Nox Irae</STRONG> 05:13&nbsp; <BR>5. <STRONG>Sumerki </STRONG>(Twilight) 04:21&nbsp; <BR>6. <STRONG>Na Koster</STRONG> (To the Fire) 04:00&nbsp; <BR>7. <STRONG>Proklinayuschiy </STRONG>(Damnator) 04:30&nbsp; <BR>8. <STRONG>V Obraze Zmeya</STRONG> (In Image of Serpent) 06:54</P>
+<P>Two songs may be downloaded from <STRONG>Musica.mustdie.ru</STRONG>: <A href="/ru/band/serpens/15249/">http://musica.mustdie.ru/ru/band/serpens/15249/</A></P>
+<P>From press-release: “<EM>You can hear natural-born true black-metal performing all horrors of our life</EM>”.</P>
+<p><center><form target="paypal" action="https://www.paypal.com/cgi-bin/webscr" method="post">
+<input type="hidden" name="cmd" value="_s-xclick">
+<input type="hidden" name="hosted_button_id" value="C2YGHCGF34ESQ">
+<input type="image" src="https://www.paypalobjects.com/en_GB/i/btn/btn_cart_LG.gif" border="0" name="submit" alt="PayPal – The safer, easier way to pay online.">
+<img alt="" border="0" src="https://www.paypalobjects.com/ru_RU/i/scr/pixel.gif" width="1" height="1">
+</form>
+Автор: Vit Belov
+
+### 21.11.2009 news Новинки MUSICA PRODUCTION
+
+<P><SPAN class=tit1><SPAN class=tit2></SPAN><SPAN class=tit2><IMG height=392 alt="" hspace=0 src="/images/news_rus/2009.11/15322.jpg" width=400 align=right border=5></SPAN>MUSICA PRODUCTION представляет</SPAN></P>
+<P><EM>Дата релиза: 20 октября</EM></P>
+<P>Две убийственные новинки в брутальных стилях: <STRONG>SERPENS - 'Nox Irae'</STRONG> и <STRONG>DEMONIUM "Nothing Is Truth Everything Is Allowed"</STRONG></P>
+<P><SPAN class=tit2>MP0036 SERPENS "Nox Irae"</P>
+<P></SPAN>-black-metal; Долгожданный дебют от группы из Санкт-Петербурга, основанной в 1996 году. Русскоязычный провокативный первородный black-metal, которые отражает весь ужас нашего существования в современном мире. Великолепная реализация и бескомпромиссный материал. Трэк-лист:</P>
+<P>1. <STRONG>В Вечность</STRONG><BR>2. <STRONG>Инициация Смерти</STRONG><BR>3. <STRONG>Наместник Вселенной</STRONG><BR>4. <STRONG>Nox Irae</STRONG><BR>5. <STRONG>Сумерки<BR></STRONG>6. <STRONG>На Костёр</STRONG><BR>7. <STRONG>Проклинающий<BR></STRONG>8. <STRONG>В Образе Змея</STRONG></P>
+<P>Produced By <STRONG>Serpens</STRONG>. Recorded and Mixed at <STRONG>Black Studio</STRONG>, SPb, Russia.<BR>Recording engineer: <STRONG>Denis Devichensky</STRONG><BR>All Music and Lyrics by <STRONG>SERPENS</STRONG><BR>Cover and Inside Artworks by<STRONG> Ksenia Storozhenko</STRONG><BR>Additional Backing vocal by <STRONG>Denis Devichensky</STRONG><BR>Keyboards by <STRONG>Denis Devichensky</STRONG></P>
+<P>MP3: <A href="/ru/band/serpens/15249/">http://musica.mustdie.ru/ru/band/serpens/15249/</A></P>
+<P><SPAN class=tit2><IMG height=395 alt="" hspace=0 src="/images/news_rus/2009.11/15323.jpg" width=400 align=left border=5>MP0037 DEMONIUM "Nothing Is Truth Everything Is Allowed"</SPAN></P>
+<P>-black-death-metal; Второй альбом группы из Херсона, Украина. Среднетемповый ритуальный black-death-metal для всех любителей BEHEMOTH. Музыка, вгоняющая в транс и уничтожающая внутри все человеческие чувства. Первородное чувство страха перед неизвестным. Трэк-лист:</P>
+<P>1. <STRONG>Amdusias Voice<BR></STRONG>2. <STRONG>Lycanthropy</STRONG><BR>3. <STRONG>Revenge</STRONG><BR>4. <STRONG>God-Guard of Puppets</STRONG><BR>5. <STRONG>The War of Heaven and Hell</STRONG><BR>6. <STRONG>Leprosy<BR></STRONG>7. <STRONG>Vicarius Filii Dei</STRONG><BR>8. <STRONG>Nine Angels Choirs</STRONG></P>
+<P>Bonus from EP "<STRONG>Mark Of Chaos</STRONG>" (2008)<BR>9. <STRONG>From Ashes To Fire From Wather To Ice<BR></STRONG>10. <STRONG>Power Of Spirit</STRONG><BR>11. <STRONG>Sinful Flesh</STRONG></P>
+<P>Recorded, Mixed and Mastered at <STRONG>Blacklight Studio</STRONG>, Kiev, Ukraine in February 2008 by <STRONG>Shaddar (SEMARGL)</STRONG></P>
+<P>MP3: <A href="/ru/band/demonium/15250/">http://musica.mustdie.ru/ru/band/demonium/15250/</A></P>
+<P>MySpace: <A href="http://www.myspace.com/demoniumhell">http://www.myspace.com/demoniumhell</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

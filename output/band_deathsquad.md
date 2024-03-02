@@ -10,6 +10,21 @@ Mike (ex-Sinister)
 * C группой "Sinister" Mike
 * C группой "Houwitser" Mike
 
+## Публикации
+
+### 15.11.2002 news New band of Mike (ex-Sinister)
+
+<p>Singer Mike (ex Sinister / Houwitser) has formed a new band DEATH SQUAD. The other members are guitarist Walter (ex Mandator / Radiator) Drummer Michel and guitarist J.G. The band is still looking for the right bass player. <BR> At the moment Death Squad is negotiating for the right record deal. The band has got enough songs to record a full length album, some titles are; Hellhounds, Time to burn, pazuzu, Chaotic breed, Victims of deception. <BR> Death Squad has done already a few shows in Holland, Germany and Czech republic. <BR> For more info about the band: DSR666@hotmail.com</p>
+
+Автор: Vit Belov
+
+### 15.11.2002 news Новая группа Майка (ex-Sinister)
+
+<p>Mike (ex-Sinister) создал новую группу Death Squad. В неё вошли кроме него: гитарист Walter (ex-Mandrator, ex-Radiator), барабанщик Michel и гитарист JP. Группа продолжает поиски басиста и контракта с лэйблом.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

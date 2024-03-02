@@ -68,6 +68,9 @@ Nico Berthold - Drums, Percussion, Programming
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

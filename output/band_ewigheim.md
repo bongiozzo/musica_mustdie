@@ -60,6 +60,43 @@ Limited Edition Bonus CD:
 * C группой "Eisregen" 
 * C группой "Transilvanian Beat Club" 
 
+## Публикации
+
+### 22.10.2002 reviews Убийство не без причины
+
+<p>EWIGHEIM - сайд-проект двух немецких музыкантов Yantit (EISREGEN) и Allen B. Konstanz (VISION BLEAK). Трудно однозначно охарактеризовать материал исполняемый этим дуэтом. Это гитарно-ориентированная музыка с жесткими риффами, крутым дисторшном и проникновенным драматическим вокалом, трагической атмосферой, но при этом обильно приправленная различными электронными эффектами. Песенный материал разнообразен, но при этом, каждая вещь напоминает чье-то творчество. Красной линией через весь альбом проходит творчество RAMMSTEIN, мнимая схожесть с которыми объясняется похожим вокалом, немецкоязычной лирикой, маршевым темпом и жесткими риффами. Затем по ходу альбома, вспоминаются поздний PARADISE LOST, TIAMAT, LOVE LIKE BLOOD и DREADFUL SHADOWS. И только электронные эксперименты группы (не в ущерб гитарному звуку) отделяют эту группу от всех вышеперечисленных. В заглавной песне можно слышать даже скриминг, легко узнаваемый и принадлежащий вокалисту EISREGEN, который вместе со скрипачкой EISREGEN выступили в качестве гостей при записи альбома. Жесткие гитарные звуки прекрасно сочетаются с нежными звуками пианино образуя торжественные и распевные мелодии. Но цельное прослушивание этого произведения не вызывает каких-либо сильных чувств. Немного пресноватая музыка, много экспрессионизма и гротеска, но все слишком однородно и немного бесцветно. Потому, в широких кругах этот альбом вряд ли бужет иметь большой успех. Только для любителей...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 11.08.2004 news EWIGHEIM выпускают новый альбом
+
+<P>27 сентября увидит свет новый альбом <B>EWIGHEIM 'Heimwege'</B>. Диск выйдет на немецкой фирме <B>Prophecy</B>. Говорит <B>Yantit (EWIGHEIM)</B>: "<I>Все, кто ожидали наш альбом, получат самый лучший саундтрэк к своей кончине, который они могут себе представить</I>". Трэк-лист:</P>
+<P><IMG height=257 alt="" hspace=0 src="/images/news_rus/2004.08/6903.jpg" width=250 align="right" border=5>1.<B>Vorspiel<BR></B>2.<B>Das Rad Der K&#228;fer</B><BR>3.<B>Der Tanz Der Motten</B><BR>4.<B>Mondtier<BR></B>5.<B>Leib Im Laub</B><BR>6.<B>Humus Humanus</B><BR>7.<B>Der Prophet</B><BR>8.<B>Odem</B><BR>9.<B>Heimweg</B></P>
+<P>Также будет доступен лимитированный digi-pack с 4 бонусами на дополнительном диске.&nbsp;</P>
+Автор: Vit Belov
+
+### 18.08.2016 news Новый альбом EWIGHEIM
+
+<p>Новый альбом <strong>EWIGHEIM "Schlaflieder"</strong> увидит свет 21 октября на <strong>Massacre Records</strong>. Альбом был записан и сведён <strong>Markus Stock</strong> в <strong>Klangschmiede Studio E</strong>. Основой для обложки стала картина <strong>Gabriel Von Max</strong> 1892 года.</p><p>Трек лист:</p><p>1. Schlaflied<br>2. Himmelsleiter<br>3. Mondlied<br>4. Ein Stuck naher<br>5. Einmal noch<br>6. Dies ist der Preis<br>7. Besessen & entseelt<br>8. Wir, der Teufel und ich II<br>9. …<br>10. Des Teufels sch&#246;nstes Kind (Digipak Bonus Track)<br>11. Negativ (Digipak Bonus Track)</p><p><center><img width="600" height="600" src="/images/news_rus/2016.08/29825.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 18.08.2016 news EWIGHEIM announce &quot;Schlaflieder&quot;
+
+<p>Close your eyes and rest your head, <strong>EWIGHEIM</strong> will sing you to sleep.</p><p>But beware, your dreams will be strange!<br>Dreams about the moon who hangs himself, because he no longer sees a point in shining. Dreams about a human being, obsessed with life, that learns what it means to miss your own soul - and so much more.</p><p>The complete tracklisting looks like this:</p><p>1. Schlaflied<br>2. Himmelsleiter<br>3. Mondlied<br>4. Ein Stьck nдher<br>5. Einmal noch<br>6. Dies ist der Preis<br>7. Besessen & entseelt<br>8. Wir, der Teufel und ich II<br>9. …<br>10. Des Teufels schцnstes Kind (Digipak Bonus Track)<br>11. Negativ (Digipak Bonus Track)<br>&nbsp;<br>"<strong>Schlaflieder</strong>" was produced, mixed and mastered by <strong>Markus Stock</strong> at <strong>Klangschmiede Studio E</strong>. The artwork's been created by <strong>Yantit</strong>, and features a detail of<strong> Gabriel von Max</strong>'s painting "<strong>The Seeress of Prevorst</strong>" from 1892.</p><p><center><img width="600" height="600" src="/images/news_rus/2016.08/29825.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 30.09.2016 news Новый трек EWIGHEIM
+
+<p>"<strong>Einmal Noch</strong>" - трек с нового альбома <strong>EWIGHEIM "Schlaflieder"</strong> можно послушать ниже. Пластинка готовится к выходу 21 октября на <strong>Massacre records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/8uRgtf9odgk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.09.2016 news EWIGHEIM song premieres
+
+<p><strong>EWIGHEIM </strong>already released the artwork and tracklisting of their upcoming album, which will also be available as limited edition digipak with bonus tracks.</p><p>Now you can listen to a brand new song too!</p><p>Enjoy "<strong>Einmal Noch</strong>":</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/8uRgtf9odgk" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

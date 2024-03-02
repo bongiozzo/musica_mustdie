@@ -97,6 +97,17 @@ Released October 2003 by Obscure Sombre Records
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.12.2002 reviews A bit of doom and a bit of stoner? Brilliant mixture of both!
+
+<p>What is MeteorCity? US' (and probably whole world's) most worthy record company when it comes to doom-rock / stoner music. What is ABDULLAH? One of the most stunning combos these guys ever managed to ink a deal with. What is "Graveyard Poetry"? The second work of theirs. Much better than self-titled CD which appeared to be the first-ever assault ABDULLAH made on my ears. Wasn't that one worth a shit? Well, it was worth a good review. And a good mark. Hence…? Well, hence "Graveyard Poetry" is a hell out of a CD. A bit of doom and a bit of stoner? Most likely, a brilliant mixture of both. ABDULLAH isn"t a duo anymore – it's a quartet. Perhaps, this lineup's enlargement made 'em lose a certain kind of charm, however the question is: what did they gain by it? The answer is no less simple: A LOT! "Graveyard Poetry" sounds way more attractive than "Abdullah". And it's not a matter of composition – it's a matter of how the songs have been performed and executed. Two men is good, four is better? Well, seems like that's right. And now let me ask you to go to MeteorCity's official website and take a look at "Graveyard Poetry's" appearance. Fascinated? And now examine the lyrics. Once again, fascinated? Well, believe me, you will be equally fascinated by ABDULLAH's music.</p>
+<P> Website: <A HREF="http://www.meteorcity.com">http://www.meteorcity.com</A></>
+<P> Email: <A HREF="mailto:info@meteorcity.com">info@meteorcity.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

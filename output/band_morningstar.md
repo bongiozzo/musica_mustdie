@@ -32,6 +32,28 @@ Pasi Pasanen - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2003 reviews Поностальгируем?..
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off"><I>Хороший девиз у этих ребят: «Metal – this is what we are. Should you disagree, you can fuck off! You are not Metal!” Забавно и как-то… умилительно, что ли. Хотя мы то с вами знаем, что металл – дерьмецо ещё то ;-). В любом случае, верность… гхм… металлу заслуживает хотя бы минимального уважения. Ари сотоварищи выпускают один альбом за другим, и чихать они хотели на то, что эти самые альбомы продаются из рук вон плохо. Впрочем, начхать на это и людям из R.I.P. Records, весь «бизнес» которых держится на голом энтузиазме. Что же это за MORNINGSTAR? Что они играют? Вы не поверите: хоть эти ребята и родом из Финляндии, они рубят самый настоящий old-school heavy metal с примесью трэша и блэка. Честно, зло и малость задорно ;-). Играют весьма недурственно, записываются не в самых плохих студиях, пишут не самые плохие тексты. И что самое главное: их музыка не наскучивает. После хорошей порции транса и powerelectronics слушается на «ура» :-). </I></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE>
+<BLOCKQUOTE id=b34a7181>
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off"><I></I></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE></BLOCKQUOTE>
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

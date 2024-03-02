@@ -26,6 +26,9 @@ Denis Barjettas - Bass, Vocals, Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

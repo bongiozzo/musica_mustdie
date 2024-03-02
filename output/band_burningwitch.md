@@ -23,6 +23,9 @@ last band name is Thorr's Hammer (with Stephen O'Malley - Sunn O)))
 * C группой "Sunn O)))" Stephen O'Malley
 * C группой "Khanate" 
 
+## Публикации
+
+
 ## Обсуждения
 
 

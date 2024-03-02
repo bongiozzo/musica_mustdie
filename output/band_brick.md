@@ -21,6 +21,19 @@ Megan
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.06.2016 reviews Искажённый heavy metal
+
+<p>Дебютный альбом шведов BRICK “Faceless Strangers” представляется лэйблом Scarlet Records как современный метал для поклонников тяжёлой музыки от AT THE GATES до LAMB OF GOD. В коллективе присутствует клавишник группы бывшего вокалиста SPIRITUAL BEGGARS Spice (BAND OF SPICE), который здесь поёт. В общем-то, BRICK действительно представляют нечто особенное, просто ассоциации не столь модные.</p><p>Мне показалось, что корни BRICK уходят в heavy power metal. Тот вариант тяжёлой музыки, который мы часто встречаем у гитаристов-виртуозов неоклассического розлива, например, IMPELLITERI. Естественно, звук у BRICK прошёл дополнительную обработку, что, кстати, на мой вкус его не улучшило. Ритм-секция выдвинута на передний план, голос и гитара утоплены в звуковой ритмичной волне. Вокал как будто пропущен через какие-то примочки, кажется, его сделали похожим на Rob Rock, но в естественном варианте голоса певца он на него не похож. </p><p>Музыкально «Faceless Strangers” неплох. Мелодии, хоть и стандартные, но не вызывают отторжения, и если бы не странный «продакшн», мы получили бы неплохой металический альбом. Забавно, но похоже сами музыканты не стремились к этому, они хотели создать что-то предельно оригинальное, но для этого, видимо, не хватило мастерства.<br></p>
+Автор: Vit Belov
+
+### 01.07.2016 reviews Distorted heavy metal
+
+<p>The debut album of the Swedes BRICK “Faceless Strangers” is described by the label Scarlet Records as a contemporary metal for fans of heavy music from AT THE GATES to LAMB OF GOD. There is the keyboardist of the former SPIRITUAL BEGGARS vocalist Spice (BAND OF SPICE) in this band. He sings here. In General, BRICK really are something special, just the association is not so popular.</p><p>It seemed to me that the roots of the BRICK go into heavy power metal. That variant of heavy music, which we often hear from neoclassical virtuoso guitarists, for example, IMPELLITERI. Of course, the sound of BRICK has undergone additional treatment, which, by the way, for my taste it did not improve. The rhythm section brought to the forefront, the voice and guitar sound thrown into a rhythmic wave. Vocals seem to passed through some gadgets, it did look like Rob Rock, but in the natural version of the voice of the singer he don't look like him. </p><p>Musically "Faceless Strangers" is good. The melodies, though standard, but does not cause rejection, and if not strange "production", we'd get a good metal album. It's funny, but it seems the musicians themselves have not sought for it, they wanted to create something very original, but it apparently they did not have enough skill for that.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

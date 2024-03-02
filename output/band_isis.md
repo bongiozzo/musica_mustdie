@@ -32,6 +32,15 @@ Neurosis-style band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.02.2009 news Новый альбом ISIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=350 alt="" hspace=0 src="/images/news_rus/2009.02/13576.jpg" width=350 align=right border=5>Пятый альбом <STRONG>ISIS</STRONG> <STRONG>"Wavering Radiant" </STRONG>выходит 5 мая на <STRONG>Ipecac Recordings</STRONG>. Альбом был спродюссирован <STRONG>Joe Baressi</STRONG> (<B>TOOL</B>, <B>QUEENS OF THE STONE AGE</B>). Трэк-лист:</FONT></P>
+<P>01. <B>Hall Of The Dead</B><BR>02. <B>Ghost Key</B><BR>03. <B>Hand Of The Host</B> <BR>04. <B>Wavering Radiant</B> <BR>05. <B>Stone To Wake A Serpent</B> <BR>06. <B>20 Minutes / 40 Years</B> <BR>07. <B>Threshold of Transformation</B> </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

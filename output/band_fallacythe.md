@@ -39,6 +39,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.09.2011 news Новый клип THE FALLACY
+
+<P>Новый видео-клип чилийских готов <STRONG>THE FALLACY</STRONG> на песню "<STRONG>Threshold of Light</STRONG>" можно посмотреть ниже. Трек взят с последнего альбома группы "<STRONG>Beyond the Mist</STRONG>", который вышел в 2010 году.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/tu7cJdv3Bwc?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/tu7cJdv3Bwc?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -114,6 +114,29 @@ E-mail: pedro.dvt@post.cz
 * C группой "Krabathor" Bruno
 * C группой "Krabathor" Pegas
 
+## Публикации
+
+### 06.02.2004 news Hypnos подписали новый контракт
+
+<P>Чешские дэтстеры Hypnos заключили контракт с&nbsp; Metal Age Productions. Новый альбом"Demo(n)s" будет помимо двух новых песен включать в себя дебютное демо, 3 вещи в концертном исполнении, песню "In Blood we trust" с Микой Луттиненом (Impaled Nazarene) на вокале и одну песню со второго альбома. Вся эта сборка появится на прилавках в конце апреля.</P>
+Автор: Morsus
+
+### 06.02.2004 news News from Hypnos
+
+<P>Hypnos from Czech Republic inked a deal with Metal Age productions. Their new album will be called "Demo(n)s" and will contain two new songs, the debut demo of Hypnos, 3 live tracks, song "In Blood we trust" with Mike Luttinen (Impaled Nazarene) on vocals and one song from the second album. It is scheduled for an April release.</P>
+Автор: Morsus
+
+### 02.08.2016 news HYPNOS выпустят новый альбом в 2017 году
+
+<p><strong>HYPNOS</strong> возобновили свой контракт с немецким лэйблом <strong>Einheit Produktionen</strong>. Плодом их нового сотрудничества станет альбом "<strong>The Whitecrow</strong>", который выйдет 25 марта 2017 года. Альбом вновь был записан и сведён с продюсером <strong>Borge Finstad</strong> (MAYHEM, ARCTURUS) в студии<strong> Toproom</strong>.</p><p>В записи приняли участие гости: <strong>Christopher</strong> (Krabathor),<strong> Paul Speckmann</strong> (Master), <strong>V. Santura</strong> (Dark Fortress, Triptykon)&nbsp;и <strong>Martin Missy</strong> (Protector).</p><p>&nbsp;<center><img width="300" height="200" src="/images/news_rus/2016.08/29716.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 02.08.2016 news HYPNOS signs with EINHEIT PRODUKTIONEN again
+
+<p>Czech based death metallers <strong>HYPNOS</strong> have inked a new deal with <strong>EINHEIT PRODUKTIONEN</strong> for their fifth full-length album entitled “<strong>THE WHITECROW</strong>”. The successor to the “<strong>HERETIC COMMANDO</strong>” album from 2012 was again recorded with Norwegian producer<strong> Bёrge Finstad</strong>, known for his previous works with MAYHEM, ARCTURUS or BORKNAGAR, and mixed in his <strong>TOPROOM STUDIO</strong>. </p><p>The longest record in the bandоs history so far features appearances of several special guests as for example <strong>Christopher</strong> (Krabathor),<strong> Paul Speckmann</strong> (Master),<strong> V. Santura</strong> (Dark Fortress, Triptykon) or <strong>Martin Missy</strong> (Protector). Release date is scheduled for March 25th 2017 as CD, Ltd. Digi-CD+DVD, Vinyl & Digital. </p><p>&nbsp;<center><img width="300" height="200" src="/images/news_rus/2016.08/29716.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

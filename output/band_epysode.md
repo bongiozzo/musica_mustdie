@@ -25,6 +25,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2011 news Новый prog-metal проект EPYSODE
+
+<P>Гитарист <STRONG>Samuel Arkan (VIRUS IV)</STRONG> подготовил дебютный альбом "<STRONG>Obsessions"</STRONG> своего нового progressive-metal opera проекта <STRONG>EPYSODE</STRONG>. Альбом должен выйти 26 августа на <STRONG>AFM</STRONG>. Два трейлера, представляющих музыкантов и певцов этого проекта, можно посмотреть ниже.</P>
+<P>Будущая работа концептуальна, а Samuel представляет её как "сверхъестественный триллер". </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/fbvsV03g1dg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/fbvsV03g1dg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT></CENTER>
+<P>Имена вокалистов, исполняющих главные партии:</P>
+<P><STRONG>Kelly Sundown Carpenter</STRONG> (THE PROFILER) <BR itxtNodeId="90"><STRONG>Oddleif Stensland</STRONG> (THE FALLEN) <BR itxtNodeId="89"><STRONG>Magali Luyten</STRONG> (THE SOUL) <BR itxtNodeId="88"><STRONG>Rick Altzi</STRONG> (THE GHOST) <BR itxtNodeId="87"><STRONG>Liselotte Hegt</STRONG> (THE MEDIUM) </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/YER-URHp_NE?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/YER-URHp_NE?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

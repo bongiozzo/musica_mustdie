@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.08.2011 news MALFEITOR на Chaos Records
+
+<P>Вернувшиеся к жизни шведы <STRONG>MALFEITOR </STRONG>подписали контракт с <STRONG>Chaos Records. </STRONG>Коллектив, существующий с 1990 года, выпустит дебютный альбом <STRONG>"Dum Morior Orior" </STRONG>в 2012 году. </P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/malfeitorswe">http://www.myspace.com/malfeitorswe</A></P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=80539075&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=80539075&pid=3289385714124923521" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

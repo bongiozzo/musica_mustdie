@@ -19,6 +19,21 @@ ex- fates Warning
 * C группой "Seven Witches" Joey Vera (bass)
 * C группой "Dream Theater" Mike Portnoy (Drums)
 
+## Публикации
+
+### 11.01.2003 news John Arch Solo...
+
+<p>Former FATES WARNING vocalist John Arch has inked a solo deal with Metal Blade Records. The singer's first release through the label will be a 20-minute long EP featuring FATES WARNING guitarist Jim Matheos, FATES WARNING/ARMORED SAINT bassist Joey Vera and DREAM THEATER drummer Mike Portnoy. A late 2003 release is expected.</p>
+
+Автор: Vit Belov
+
+### 11.01.2003 news Соло-проект бывшего вокалиста Fates Warning
+
+<p>Бывший вокалист Fates Warning John Arch заключил соглашение с Metal Blade Records на выпуск сольных работ. Первой из них станет 20-минутный EP с участием Jim Matheos (Fates Warning), Joey Vera (Fates Warning, Armoured Saint) и Mike Portnoy (Dream Theater). Альбом выйдет в 2003 году.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

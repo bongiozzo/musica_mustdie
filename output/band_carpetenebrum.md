@@ -48,6 +48,34 @@ Blood dance              7.03
 * C группой "Troll" Nagash
 * C группой "Kovenant" Nagash
 
+## Публикации
+
+### 22.12.1999 reviews 
+
+<p>CARPE TENEBRUM - побочный проект музыкантов DIMMU BORGIR. Это чувствуется во всем. Тот же звук, те же мелодии, та же техника. Но все записано на беспредельно высоких скоростях, с большей злобой и остервенелостью. Все просто пропитано сатанинскими настроениями. Даже в перерывах между зубодробительными трэками вещает сам Сатана. Его непередаваемый двуполый голос призывает к ненависти. Ненавистный альбом умело совмещающий злобу и мелодии. (7,5)</p>
+
+Автор: Dimas
+
+### 25.02.2002 news Chaotic Dreaded Reign ...
+
+<p>Norwegian/Australian combo Carpe Tenebrum, featuring ex-members of Dimmu Borgir, have finally completed work on the follow-up to 1999's Mirrored Hate Painting. <BR><BR> With axemen Astennu handling guitar, bass, synth and drum duties and Nagash (also of The Kovenant, Troll) solely on vocals, Carpe Tenebrum's Chaotic Dreaded Reign is said to be less of the symphonic black metal variety of previous albums and more in the vein of Morbid Angel. Hammerheart says the album is "very fast, very brutal and simply a blast." <BR><BR> Astennu wrote Chaotic Dreaded Reign in Australia, where the guitarist resides some two years after Astennu was fired from the high profile black metal group, and then sent the tapes to Nagash in Norway for completion. <BR><BR> For now, album details are scarce, but we'll have more news on Carpe Tenebrum as it happens. Chaotic Dreaded Reign is expected to drop sometime this summer on Hammerheart Records.</p>
+
+Автор: Yermola
+
+### 25.02.2002 news Царство Хаотичного Ужаса....
+
+<p>Норвежско-австраллийский проект "Carpe Tenebrum" составленный из бывших участников "Dimmu Borgir" закончил работу над альбомом продолжением для "Mirrored Hate Painting" 1999 года - "Chaotic Dreaded Reign ". Астенну записал партии гитар, басс, синтезатор и барабаны, а Нагаш (также в The Kovenant, Troll) записал вокалы. По словам участников альбом получился менее симфо-блэковым и более выполненным в стиле Morbid Angel. Astennu записывал "Царство..." в Австраллии, и затем, пересылал ленты Нагашу в Норвегию. Выйдет альбом этим летом на Hammerheart Records.</p>
+
+Автор: Yermola
+
+### 15.04.2003 reviews Ещё одной блэковой командой стало меньше...
+
+<p>Ещё одной блэковой командой стало меньше, а ещё одной дэтовой, соответственно, - больше. Отчего ж такая эволюция случается? Никто не знает? И я не знаю. Напомню, что CARPE TENEBRUM начинался именно как блэковый проект, автором коего выступал не-пойми-норвежец-не-пойми-австралиец по имени Astennu. Первый альбом представлял собой достаточно "мутный" и не особо интересный блэк, второй – блэк с явными симптомами начинающей "Морбидэйнджеломании". Эта самая "морбидэйнджеломания" прогрессировала, что, надо полагать, и привело к записи "Dreaded Chaotic Reign". Что ж, неплохо вышло: эдакий качественный закос под MORBID ANGEL, впрочем, без потери собственного лица. Вот только отчего барабанчики такие электронные? Непорядок, дядя Астенну!</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

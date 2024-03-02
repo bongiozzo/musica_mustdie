@@ -59,6 +59,93 @@ Peter Wiberg-Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.05.2001 reviews Реально мощный power-speed из Швеции
+
+<p>Реально мощный power-speed из Швеции. Агрессивная, мрачная и мелодичная фэнтези-музыка. Жесткий звук, ломовые гитары, приятные мелодии, потрясающие хоровые припевы, да и основной вокалист поет в не совсем обычной манере, жестко и очаровательно. В целом, музыка для поклонников раннего Helloween, Nocturnal Rites и Hammerfall. Быстро, мощно и мелодично. В лучших традициях жанра. В последнее время появилось довольно много очень крепких и приятных альбомов в духе power-speed восьмидесятых. Freternia - одна из групп этой когорты. Квалифицированные гитарные партии вкупе с грамотными клавишными, примечательными ударными и отличным вокалом создают альбому величавость и претенциозность, позволяя ему оказывать положительное впечатление на слушателя. Альбом для все любителей power-speed metal. Из категории - купи или умри (buy or die)...</p>
+
+Автор: Dimas
+
+### 09.08.2001 news Новость от Freternia
+
+<p>Несмотря на слухи о распаде группы в связи с трениями в составе команды, Freternia, кардинально поменяв состав, в настоящее время работает над новым материалом (разрабатывается завершение концепции о "Grimbor The Great"). По расчетам группы, новый альбом должен появиться весной 2002 года.</p>
+
+Автор: Dimas
+
+### 09.08.2001 news Freternia news
+
+<p>Some weeks ago group decided to go on with Freternia but there has been some changes in the lineup as you can see in the membersection. Freternia currently working on new material (group have decided to finish the concept of "Grimbor The Great") and if everything goes well group hope to do a recording in spring 2002.</p>
+
+Автор: Dimas
+
+### 14.09.2001 news FRETERNIA подписали контракт...
+
+<p>Шведские пауэрщики "FRETERNIA" подписали контракт на два альбома с испанским лэйблом Arise records. Запись первого релиза для испанцев будет проходить в Studio Underground (Швеция) в феврале 2002 с последующим выходом в октябре...</p>
+
+Автор: Yermola
+
+### 01.03.2002 news Проблемы закончились
+
+<p>Наконец-то закончились проблемы у группы FRETERNIA. Музыканты войдут в Studio Underground в апреле для записи своего второго альбома. Шведская эпическая speed-power metal команда получившая очень хорошие отзывы на предыдущий альбом "Warchants & Fairytales" обещает более сильный материал, ведь группа сильна на данный момент как никогда.</p>
+
+Автор: Dimas
+
+### 01.03.2002 news FRETERNIA news
+
+<p>Freternia will enter into Studio Underground in April for the recording of their second album. The Swedish epic speed metal band got very good reactions with their previous album ``Warchants & Fairytalesґґ, this time the band is stronger than never !!!</p>
+
+Автор: Dimas
+
+### 30.05.2002 news &quot;Кошмарная история&quot; группы Freternia выйдет в октябре
+
+<p>Новейший альбом Freternia будет называться "A Nightmare Story" и появится на прилавках 7 октября 2002 года. Группа также будет участвовать в выходящем в декабре трибьюте Helloween "Keepers Of Jericho, Part 2". Кавер на песню с альбома "Walls Of Jericho" планируется записать в конце июля.</p>
+
+Автор: Morsus
+
+### 30.05.2002 news Freternia&#39;s  &quot;A Nightmare Story&quot; will be out in October
+
+<p>The upcoming Freternia release will be entitled "A Nightmare Story" and will be released on 7 October 2002. The band will also participate on the Helloweentribute "Keepers Of Jericho, Part 2" that will be released in December. A song from the album "Walls Of Jericho" will be recorded in late July.</p>
+
+Автор: Morsus
+
+### 24.09.2002 news A TRIBUTE TO HELLOWEEN PART II
+
+<p>Окончательно стало известно, что вторая часть посвящения HELLOWEEN "The Keepers Of Jericho - A Tribute To Helloween Part II -" выйдет 9 декабря 2002 года на Arise Records. Трэк-лист альбома:</p>
+<p> IRON SAVIOR - PHANTOMS OF DEATH <BR> STEEL ATTACK - DR.STEIN<BR> POWERGOD - STARLIGHT<BR> BETO VAZQUEZ INFINITY - A TALE THAT WASN&acute;T RIGHT (Featuring Elisa - DARK MOOR -)<BR> ARWEN - MARCH OF TIME<BR> HIGHLORD - POWER <BR> FRETERNIA - MURDERER <BR> PARAGON - METAL INVADERS<BR> VHALDEMAR - GORGAR <BR> CELESTY - THE CHANCE <BR> DRAGONLAND - SOUL SURVIVOR <BR> AXENSTAR - TWILIGHT OF THE GODS <BR> RED WINE - RISE & FALL</p>
+<p> Все трэки на альбоме эксклюзивные и записывались специально для него. Обложку для альбома нарисовал Travis Smith.</p>
+
+Автор: Dimas
+
+### 10.10.2002 reviews Кошмарная история
+
+<p>Второй альбом шведской команды. Все тот же жесткий и мелодичный power-speed metal, фэнтезийный и в меру светлый. Однако. по сравнению с дебютом, относительно никаких перемен, и это немного странно. Группа после дебюта переживала кризис, была на грани распада из-за трений между музыкантами. Но проблемы утряслись, состав обновился и группа пообещала более сильный материал в духе эпического power-speed metal. Альбом продолжает повествование о Великом Гримбо. Но более сильным он явно не получился. Первый альбом был посвежее и поинтереснее. Да и вокалист стал послабее петь. И все-таки, в целом, все очень недурственно. Опять же множество приятных мелодий, скорости, хоровые распевки, бодрые и неутомимые риффы, клавишный задний фон. Но, все песни будто друг на друга похожие. Нельзя особо выделить какую-то вещь, за исключением последней "Requiem". Совершенно стандартный power metal альбом. Музыканты очень даже неплохие, но остается только посоветовать им играть более оригинальную музыку и вносить в нее хоть немного своих разработок и мыслей.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 22.10.2002 bios FRETERNIA
+
+<p>История шведской Heavy Metal группы Freternia началась летом 1998 года. <BR> В изначальный основной состав вошли Tomas Wappling - ведущий вокал, Patrik Lund - гитара, Bo Pettersson - гитары, Peter Wiberg - бас и Stefan Svantesson - ударные. В октябре 98 появилась четрёхпесенная демо "The Blood Of Mortals", записанная на Studio Mega (Швеция). Компакт-диск так никогда и не вышел в массы. <BR> Freternia взяли на работу Tommie Johansson, которому тогда было всего 17 лет, чтобы дать своему звучанию толчок с помощью клавишных. Но тут возникли проблемы. Pettersson и Wiberg решили покинуть группу, чтобы заняться собственным проектом весной 99. В то же самое время оставшиеся участники продолжали работу над материалом для второй демо и боролись за существование. <BR> Выходом из положения стал Mikael Bakajev, заменивший Pettersson, и Wappling, так как он решил сам взять в руки бас-гитару. Работа над материалом была завершена, и Freternia отправились в Studio Mega для записи "Somewhere In Nowhere" уже в апреле. Эта демо была разослана почти всем европейским компаниям. Через пару дней позвонили из небольшой шведской компании. <BR> Был подписан договор и написаны новые песни, но Tomas чувствовал, что ведущим вокалом должен заняться кто-то ещё. Был найден великолепный вокалист в лице Pasi Humppi, и уже в августе группа была готова приступить к записи "Warchants & Fairytales". <BR> Вскоре после записи "W & F" Patrik Lund по личным причинам решил оставить группу. Тогда его место занял Andreas Heleander. В июле 2000 "W & F" наконец-то был выпущен почти через год после завершения работы над альбомом. <BR> Альбом получил несколько отзывов, и группа получила возможность выступить во Франции. У Freternia была мысль сделать концептуальный альбом, для которого уже было сделано три песни, так что в феврале 2001 они вернулись в студию для записи рекламного диска. <BR> В конце концов они решили подписать контракт с Arise Records. Вторая работа группы "A Nightmare Story" (первая для Arise Records) была записана весной 2002 года на Studio Underground (Steel Attack, Zonata, Terror 2000) и сведена руками Mika Jussila на Finnvox Studio. Обложку нарисовал Jean Pascal Fournier. <BR> Freternia примет участие в работе над Helloween Tribute альбоме "The keepers Of Jericho Part II" с песней "Murderer".</p>
+
+Автор: Dimas
+
+### 02.06.2003 news Новости Arise Records
+
+<p>Бывшие участники DARK MOOR - вокалистка Elisa C.Martin, гитарист Albert Maroto и ударник Jorge Saez, образовали новую формацию DREAMAKER. Кроме них, в состав входят гитарист Matias Sosa, басист Carlos Pena и клавишник Roberto P.Camus (тоже некогда игравший в DARK MOOR). Группа запишет свой дебютный альбом в сентябре-октябре, в Финляндии. Ближе к концу года, он выйдет на Arise Records.</p>
+<p> Heavy metal проект из Швеции WIZ с участием гитариста NOSTRADAMEUS Jake Freden тоже подписал контракт с Arise Records. Новый альбом должен выйти там в конце года.</p>
+<p> Новым гитаристом DARK MOOR стал участник ARWEN Jose Garrido. Первый альбом в новом составе и с новым вокалистом увидит свет в октябре-ноябре этого года.</p>
+<p> FRETERNIA работает над своим третьим альбомом. В группе новый гитарист - Niclas Karlsson (ex-Zonata).</p>
+<p></p>
+
+Автор: Dimas
+
+### 25.01.2009 news FRETERNIA вернулись
+
+<P>Шведы<STRONG> FRETERNIA</STRONG> вернулись к написанию материала для свое третьей пластинки. Коллектив прекратил всякую деятельность в 2003 году, из-за недостатка мотивации, но теперь хочет порадовать нас новым альбомом.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

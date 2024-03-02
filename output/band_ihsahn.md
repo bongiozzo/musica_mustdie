@@ -100,6 +100,33 @@ Track 11 is a bonus track and not listed on the back of the release.
 
 * C группой "Emperor" 
 
+## Публикации
+
+### 19.01.2006 news Ihsahn выпускает первый сольник
+
+<P><STRONG>Ihsahn</STRONG> из <STRONG>EMPEROR </STRONG>выпускает свой первый сольник "<STRONG>The Adversary</STRONG>" в этом году на <STRONG>Candlelight.</STRONG> На этом альбоме всё было сыграно и спето <STRONG>Ihsahn</STRONG>, кроме барабанов, исполненных <STRONG>Asgeir Mickelson</STRONG> (<STRONG>BORKNAGAR, SPIRAL ARCHITECT</STRONG>). Трэк-лист:</P>
+<P>01. <B>Invocation</B><BR>02. <B>Called by the Fire</B><BR>03. <B>Citizen</B><BR>04. <B>Homecoming</B><BR>05. <B>Astera ton Proinon</B><BR>06. <B>Panem et Circenses</B><BR>07. <B>And He Shall Walk in Empty Places</B><BR>08. <B>Will You Will Love Me Now?</B><BR>09. <B>The Pain is Still Mine</B></P>
+Автор: Vit Belov
+
+### 29.12.2007 news IHSAHN заканчивает работу
+
+<P>Бывший гитарист/вокалист<STRONG> EMPEROR Ihsahn</STRONG> заканчивает работу над новым альбомом "<STRONG>Angl</STRONG>", который выйдет в середине весны на<STRONG> Candlelight</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.08.2009 news IHSAHN назвал альбом
+
+<P>Бывший вокалист/гитарист<STRONG> EMPEROR Ihsahn</STRONG> назвал свой будущий сольный альбом "<STRONG>After</STRONG>". Пластинка должна выйти в начале 2010 года на<STRONG> Candlelight</STRONG>. </P>
+Автор: Vit Belov
+
+### 30.05.2012 news Новый альбом IHSAHN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.05/24049.jpg" width=475 align=right border=0>Четвёртый сольный альбом бывшего вокалиста <STRONG>EMPEROR</STRONG> <STRONG>Ihsahn</STRONG> <STRONG>"Eremita" </STRONG>выйдет 18 июня на<STRONG> Candlelight Records</STRONG>. Пластинка была записана в <STRONG>Ivory Shoulder Studios, </STRONG>а также в <STRONG>Juke Joint Studio</STRONG>&nbsp;и <STRONG>Envisage Audio. </STRONG>Свёл работу <STRONG>Jens Bogren</STRONG> (<B>OPETH</B>)&nbsp;в <STRONG>Fascination Street Studios. </STRONG>Гостевое участие в записи приняли <STRONG>Tobias Ornes Andersen</STRONG> (<B>LEPROUS</B>),&nbsp;<B>Jorgen Munkeby</B> (Norway's <B>SHINING</B>), <B>Jeff Loomis</B> (ex-<B>NEVERMORE</B>), <B>Devin Townsend</B>, <B>Einar Solberg</B> (<B>LEPROUS</B>) и <B>Heidi S. Tveitan</B> (<B>STAROFASH</B>). Трек-лист:</FONT></P>
+<P>01. <B>Arrival</B><BR>02. <B>The Paranoid</B><BR>03. <B>Introspection</B><BR>04. <B>The Eagle And The Snake</B><BR>05. <B>Catharsis</B><BR>06. <B>Something Out There</B><BR>07. <B>Grief</B><BR>08. <B>The Grave</B><BR>09. <B>Departure</B><BR>10. <B>Recollection</B>(deluxe edition only)</P>
+<P>Песню с участием <STRONG>Devin Townsend</STRONG> можно послушать ниже:</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F46690333%3Fsecret_token%3Ds-CzoSi&auto_play=false&show_artwork=true&color=ff7700"></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

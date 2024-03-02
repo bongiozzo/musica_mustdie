@@ -25,6 +25,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.12.2012 news Умер Keith Deen
+
+<P>Стало известно, что 13 декабря, после трёх месяцев борьбы с раком, ушёл из жизни <STRONG>Keith Deen</STRONG>, оригинальный вокалист культовой в конце 80-х американской группы <STRONG>HOLY TERROR</STRONG>. Ему было 56 лет.</P>
+<P>На фото: <STRONG>Keith Deen </STRONG>- второй справа, в составе <STRONG>HOLY TERROR</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.12/25160.jpg" width=508 height=356> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

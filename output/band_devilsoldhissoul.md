@@ -8,6 +8,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.09.2011 news DEVIL SOLD HIS SOUL: даты тура 2011 по России и странам СНГ
+
+<P>Атмосферные лондонцы <STRONG>DEVIL SOLD HIS SOUL</STRONG> анонсировали даты своего тура по России и странам СНГ, а так же записали обращение ко всем поклонникам на этих территориях.</P>
+<CENTER><IFRAME height=345 src="http://www.youtube.com/embed/hsVtizML-wc" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P>&nbsp;</P>
+<P>Приходите на концерт в своем городе и окунитесь в незабываемую атмосферу музыки этого необычного коллектива.</P>
+<P>22.09 - <STRONG>Калининград</STRONG> @ Кури Бамбук<BR>23.09 -<STRONG> Санкт-Петербург</STRONG> @ АрктикА <BR>24.09 - <STRONG>Москва</STRONG> @ Plan B <BR>25.09 - <STRONG>Нижний Новгород</STRONG> @ BK 53 <BR>26.09 - <STRONG>Казань</STRONG> @ Маяковский. Желтая Кофта <BR>27.09 - <STRONG>Ижевск</STRONG> @ Кристалл <BR>29.09 - <STRONG>Екатеринбург</STRONG> @ Art House <BR>01.10 - <STRONG>Красноярск</STRONG> @ Havana <BR>02.10 - <STRONG>Новосибирск</STRONG> @ Rock City <BR>04.10 - <STRONG>Тюмень</STRONG> @ ЖаRа <BR>05.10 - <STRONG>Челябинск</STRONG> @ Chocolate <BR>07.10 - <STRONG>Самара</STRONG> @ Кратер <BR>08.10 - <STRONG>Пенза</STRONG> @ Рок кафе Zахват <BR>09.10 - <STRONG>Саратов</STRONG> @ Варьете <BR>10.10 - <STRONG>Воронеж</STRONG> @ Tarantul<BR>11.10 - <STRONG>Ростов</STRONG> @ Podzemka <BR>13.10 - <STRONG>Харьков</STRONG> @ Жара <BR>14.10 - <STRONG>Киев</STRONG> @ Bingo <BR>15.10 - <STRONG>Львов</STRONG> @ Рок бар "Старушка" <BR>16.10 - <STRONG>Минск</STRONG> @ Reublic</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

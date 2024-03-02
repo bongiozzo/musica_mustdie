@@ -113,6 +113,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news Новый альбом MELIAH RAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом американских power/thrash ветеранов <STRONG>MELIAH RAGE "Dead To The World"</STRONG> выходит 28 июля на <STRONG>Metal On Metal</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Up In Flames</STRONG><BR>2. <STRONG>Valley Of The Shadowless Souls</STRONG><BR>3. <STRONG>Skin And Bones</STRONG><BR>4. <STRONG>Absolute Obedience</STRONG><BR>5. <STRONG>Where Nothing Ever Grows<BR></STRONG>6. <STRONG>Never From Me<BR></STRONG>7. <STRONG>Cold Cruel Fate</STRONG><BR>8. <STRONG>Time Won't Let Me Breathe</STRONG><BR>9. <STRONG>Awaken Sorrow</STRONG></P>
+<P>Обложка создана <STRONG>Jowita Kaminska (EXODUS, WITCHBURNER, MANILLA ROAD, ATTACKER, FORSAKEN</STRONG>, etc.).</P>
+<P>Два трека с этого альбома можно послушать здесь: <A href="http://www.metal-on-metal.com/">http://www.metal-on-metal.com/</A></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/K1eNVIuVtB8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/K1eNVIuVtB8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

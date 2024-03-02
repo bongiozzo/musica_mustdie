@@ -29,6 +29,33 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> новости<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> news<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Necroticism-Descanting The Insalubrious", 1991, Earache]<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 03.09.2002 news MassaBrutto Radioshow #104, 2-3 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. ORKRIST - Mourning Of A Rose (KRV Recs/Forensick Music)<BR> 2. NOVEMBERS DOOM - Not The Strong (Dark Symphonies)<BR> 3. PUNGENT STENCH - Happy Re-Birthday (Nuclear Blast)<BR> 4. MISERICORDIA - Satan's Servant (Downfall Recs)<BR> 5. MISERICORDIA - Delenda Caeli (Downfall Recs)<BR> 6. THE BERZERKER - Slit Down (Earache/Soyuz)<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> 7. VADER - North (Metal Blade/SPV/Legacy)<BR> 8. CARCASS - Corporal Jigsore Quandary<BR> 9. CARCASS - Pedigree Butchery<BR> 10. CARCASS - Incarnated Solvent Abuse<BR> 11. FORGOTTEN SILENCE - The Hills Of Senyaan Pt.II (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

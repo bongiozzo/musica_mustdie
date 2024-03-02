@@ -45,6 +45,279 @@ Produced by Jim Morris and Chuck Schuldiner
 * C группой "Vintersorg" Steve DiGiorgio
 * C группой "Dragonlord" Steve DiGiorgio
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Control Denied во главе с Чаком Шульдинером из Death записывают свой альбом, к сожалению, запись его может очень сильно затянуться. Причины не сообщаются.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Control Denied покинул басист Скотт Кленденин. Чак Шульдинер уже нашёл замену - это Стив ДиДжорджио, известный по работе с Sadus и Testament. Также рассматривается возможности игры Стива на будущем альбоме Death.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Заболел ещё один классик жанра. Чак Шульдинер- лидер классической группы Death вынужден был отменить выступление своей команды на фестивале в Милане, из-за болезни плеча. Доктора обещают полное востановление, правда на альбоме Control Dened партии Чака возможно будет исполнять Стив ДиДжорджо. Этот альбом запланирован к выходу осенью.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Фронтмэн Death/Control Denied Чак Шульдинер поправляется после перенесенной им недавно операции по удалению опухоли мозга и недавно сделал официальное заявление: "... Сплетники, как обычно, постарались на славу ! Некоторые даже поспешили сообщить что я уже мертв и это не было сюрпризом для меня. Но я жив и полон сил. И я только что закончил работу над последней песней для нового альбома Control Denied, которому пока еще нет названия...".</p>
+
+Автор: Vit Belov
+
+### 10.11.2000 news Чак Шульдинер вернулся!
+
+<p> Чак Шульдинер, похоже, полностью поправился от своих болячек и сново приступил к сочинению новых песен. А еще в начале следующего года выйдет концертный альбом Death.</p>
+
+Автор: Nybras
+
+### 10.11.2000 news Chuck Schuldiner is back
+
+<p> Chuck Schuldiner is back, he's already working on new songs! In 2001 You will also see the release of a DEATH-live-album!</p>
+
+Автор: Nybras
+
+### 05.12.2000 news Хорошее приобретение для &quot;ICED EARTH&quot;
+
+<p>Хорошее приобретение для "ICED EARTH". Помимо нового драммера Richard Christy (DEATH и CONTROL DENIED) в команде появился супер-басист Steve DiGiorgio (SADUS, TESTAMENT). Кроме того, уже практически закончена работа над полноформатником "Horror Show", дата релиза которого передвинута на май 2001.</p>
+
+Автор: Yermola
+
+### 05.12.2000 news Control Denied приступили к записи второго альбома.
+
+<p>Control Denied выпустят свой второй альбом под маркой Hammerheart Records. Он будет называться "When Machine and Man Collideis" и его запись уже идёт полным ходом в Morrisound Studios с продюсером Джимом Моррисом за звукорежиссёрским пультом. Руководит Control Denied, естественно, Чак Шульдинер. Вопреки всем циркулирующим слухам, Стив ДиДжорджио (бас) и Ричард Христи (ударные) - по-прежнему полноправные члены Control Denied. Участие в других проектах (Iced Earth) не отдаляет и не будет отдалять их от работы в группе. Для записи также вновь приглашены Шэннон Хамм (гитара) и Тим Аймар (вокал). По словам Чака, "в этом альбоме не будет никаких рэперских заморочек, семиструнных гитар и прочей лабуды от так называемого "нового металла". Control Denied - не power-metal группа и не сайд-проект. Этот альбом полностью опровергнет все домыслы! Я верю больше, чем когда-либо, что альбом охватит мое музыкальное прошлое, и при этом сделает новый шаг в будущее. Он будет подарком для всех настоящих фэнов металла."</p>
+
+Автор: Morsus
+
+### 05.12.2000 news Control Denied have started a record of the second album.
+
+<p>Control Denied has signed to Hammerheart Records. Band's sophomore release, titled "When Machine and Man Collideis", now underway in Tampa's Morrisound Studios with producer Jim Morris at the board. Chuck Schuldiner naturally resides at the helm of Control Denied. Contrary to the ever-churning rumor mill, Steve DiGiorgio (bass) and Richard Christy (drums) are still full-time members of Control Denied. Their participation in other projects (i.e. Iced Earth) has not and will not take away from their involvement in the band. Smoothing out the returning line-up are Shannon Hamm (guitar) and Tim Aymar (vocals). Chuck had this to say: "This album will not contain any guest rappers, 7-string guitars, baggy pants or any other elements from so-called "New Metal". Control Denied is not a power metal band and it is not a side project. This album will crush those misconceptions completely! I believe more than ever that this album will embrace my musical past while once again taking a step forward into the future. This is something for all true Metal fans."</p>
+
+Автор: Morsus
+
+### 09.02.2001 news Дебютный альбом PHARAOH
+
+<p>Новые американские пауэрщики PHARAOH анонсировали выход дебютного альбома. Команда интересна тем, что в ее состав входит Tim Aymar из CONTROL DENIED.</p>
+
+Автор: Yermola
+
+### 09.02.2001 news PHARAOH debut-album
+
+<p>A new American Power Metal-band is announcing the recordings for their debut-album. Most prominent member should be Tim Aymar of CONTROL DENIED</p>
+
+Автор: Yermola
+
+### 28.03.2001 news When Machine And Man Collide
+
+<p>По сообщению Hammerheart Records "CONTROL DENIED" передвинули дату выхода следующего "Machine And Man Collide" на осень. Задержка вызвана большой занятостью басиста Steve DiGiorgio, который также занят в проектах TESTAMENT и ICED EARTH. Как бы то ни было, оставшиеся партии будут дописаны в течении следующего месяца. Артворк для СД выполнит Трэвис Смит, делавший картинку для "Fragile Art of Existence".</p>
+
+Автор: Yermola
+
+### 28.03.2001 news When Machine And Man Collide...
+
+<p>CONTROL DENIED’s sophomore effort, tentatively titled When Machine And Man Collide, has had its release date pushed back until sometime after the summer, according to the group’s record label Hammerheart Records. No specific reason was given for the delay, but one can only speculate that the hectic schedule of bassist Steve DiGiorgio (who is keeping himself busy with both TESTAMENT and ICED EARTH when not playing with Chuck Schuldiner and co.) might have been a factor. Either way, the remaining guitar tracks for the are going to be recorded next month, while “exact scheduling for Steve's sessions is still being worked out”. The CD’s artwork is being done by the immensely talented Travis Smith, who also co-designed the artwork for CONTROL DENIED's debut CD, The Fragile Art of Existence.</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Заявление Steve DiGiorgio ....
+
+<p>Супер-пупер бассист Steve DiGiorgio (TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) опубликовал на своем сайте следующее заявление: "Альбом "ICED EARTH" - Horror Show готов и ждет своего релиза на Century Media в июне. Я больше не работаю в проекте SPASTIC INK (с гитаристом WATCHTOWER - Ron Jarzombek). Не спрашивайте почему... Запись нового СД CONTROL DENIED пока приостановлена из за проблем с графиком. Но многое уже сделано и вообще работа будет завершена в ближайшие месяцы. Также сейчас мы где-то посередине процесса записи альбома DRAGONLORD (почти все участники TESTAMENT кроме Чака). Барабаны и гитары уже записаны. В течении следующей недели я буду записывать басс (одновременно с клавишами). Сами TESTAMENT отказались от участия в шоу до выздоровления Чака. Также я и Darren сочиняем материал для нового альбома SADUS...."</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Steve DiGiorgio has posted the following update on his official site....
+
+<p>Bassist extraordinaire Steve DiGiorgio (i.e. TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) has posted the following update on his official web site: “The ICED EARTH album, Horror Show is done and awaiting a mid June release on Century Media. I am no longer working on [WATCHTOWER guitarist Ron Jarzombek’s] SPASTIC INK project... Don't ask. CONTROL DENIED's newest recording is still in limbo because of some weird scheduling problems. But some of it is done, and we'll be finishing it up in the coming months. We're right in the middle of the recording of DRAGONLORD [featuring TESTAMENT’s Eric Peterson on guitar/vocals, plus most of the remaining TESTAMENT members, minus vocalist Chuck]. Drums and most of the guitars are done. I'll be starting bass this week sharing time with Lyle's keyboards. TESTAMENT hasn't officially pulled out of the shows coming up at the end of May/early June [in Europe]. We're waiting on Chuck [Billy]'s word and condition. For those of you who don't know about what's befallen Chuck, you can read all about it on www.testamentlegions.com. Writing is still going on between me and Darren for the new SADUS album. Slowly, but slowly.”</p>
+
+Автор: Yermola
+
+### 02.09.2001 news Химия и жизнь...
+
+<p>Как уже сообщалось ранее лидеру культовых групп DEATH/CONTROL DENIED - Чаку Шульдинеру около трех месяцев назад пришлось обратиться в клинику по поводу лечения опухоли мозга. Стали известны новые подробности. Все это время Чак принимал дозы экспериментального химического препарата "Винкристин" для подавления деятельности раковых клеток. И семья и сам Шульдинер были уверены в безвредности препарата, но в результате приема он столкнулся с побочными действиями лекарства и ему даже пришлось бороться с интоксикацией организма. К счастью теперь, все позади и дела медленно идут на поправку. <br><br> С 10 сентября будет проходить второй тур eBay аукциона для оплаты счетов за лечение. Выставленные на продажу вещи будут также доступны через сайт <a href="http://www.hammerheartamerica.com" target="_blank">Hammerheart Records</a>, среди них будут: личные гитары Andy LaRocque (DEATH и KING DIAMOND), барабанные палочки и рабочий барабан Richard Christy (CONTROL DENIED), подписанные вещички Оззи Озборна, тарелки с автограффом Билла Уорда и т.д. К настоящему моменту собрано уже около 7500 долларов. <br><br> Кроме того Hammerheart America готовят к выпуску ранее не реализованный материал DEATH, который выйдет под названием "Zero Tolerance". Все средства, кроме затраченных на изготовление диска, пойдут на оплату счетов Чака.</p>
+
+Автор: Yermola
+
+### 02.09.2001 news STATUS UPDATE - CHUCK SCHULDINER
+
+<p>Many of you will recall that when we started our fundraising efforts, approximately 3 months ago, that DEATH/CONTROL DENIED founder, Chuck Schuldiner, was brought to Los Angeles to take part in a trial for a still experimental chemotherapy agent called Vincristine. Although the family was assured that the drug is virtually non-toxic in nature, the large dosage which Schuldiner received over the span of five days did indeed poison him, causing residual difficulties and weakness which he has been recovering from since. These effects are all considered to be temporary and in fact Chuck is making progress and gaining his strength back day by day. We're expecting Chuck is now receiving follow-up treatments of a related but milder drug in an effort to eradicate any further cancer cells that remain, although the outcome of that treatment cannot be assessed at this time. <br><br> We would like to announce the second wave of eBay auctions that will be posted on September 10th and can be accessed through http://www.hammerheartamerica.com. Future items up for bidding include guitars donated by [KING DIAMOND’s] Andy LaRocque and NOVEMBERS DOOM, drum sticks and a snare drum donated by CONTROL DENIED's Richard Christy, autographed memorabilia from Ozzy Ozbourne, an autographed cymbal from Bill Ward, the original CANNIBAL CORPSE banner used at their live shows (Barnes-era) and much much more! Thanks go out to everyone that has donated items and helped us to keep this effort going. We have raised about $7,500 so far and although that may not put a HUGE dent in the Schuldiners' financial burden, it HAS helped and it HAS made many things possible for Chuck during his recovery. On behalf of the Schuldiner family, we sincerely thank you. <br><br> Recent benefit shows in Orlando and Milwaukee have contributed to the medical fund as well as the sold-out Thrash of The Titans benefit in San Francisco, CA. To everyone that has shown their true metal spirit, once again we thank you!! Please support the upcoming benefits in NJ, Cleveland, Orlando, Holland, Austria and Portugal. More info can be found on the Hammerheart America website as well. <br><br> Previously unreleased DEATH demo material will be released by Hammerheart Records, worldwide, in an effort to raise additional funds. After costs, proceeds will be donated into Chuck's account. The release, although still not scheduled, will be called Zero Tolerance. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.12.2001 news Умер Чак Шульдинер
+
+<p>Сегодняшний день принёс печальную новость. Чак Шульдинер всё-таки потерпел поражение в борьбе за жизнь. Это произошло 13 декабря в 4 часа дня по Восточному времени (США).</p>
+
+Автор: Morsus
+
+### 16.12.2001 news Chuck Schuldiner died
+
+<p>Chuck Schuldiner lost the fight for his life on December 13 2001 at 4 PM EST.</p>
+
+Автор: Morsus
+
+### 27.12.2001 news Альбом CONTROL DENIED будет все же дописан!
+
+<p>Оставшиеся после смерти Чака Шульдинера участники "CONTROL DENIED" решили дописать неоконченный альбом группы в память о нем. Бассист Steve DiGiorgio, вокалист Tim Aymar, гитарист Shannon Hamm и барабанщик Richard Christy собираются выпустить "When Machine and Man Collide" до конца 2002 года через Hammerheart Records. Большинство гитар и барабаны записаны и Хэмму остается только внести небольшие штрихи, после чего DiGiorgio и Aymar запишут свои партии. Говорит Стив Ди Джорджио: "...очень грустно, что Чак никогда не увидит альбом в завершенном виде. Мы постараемся сделать все от нас зависящее, чтобы доделать диск в его честь... "</p>
+
+Автор: Yermola
+
+### 27.12.2001 news CONTROL DENIED To Complete Work On Sophomore CD In Chuck&#39;s Honor!
+
+<p>Despite the recent passing of CONTROL DENIED mainman Chuck Schuldiner, the remaining members of the group—bassist Steve DiGiorgio, vocalist Tim Aymar, guitarist Shannon Hamm, and drummer Richard Christy—appear determined to complete work on the band's long-awaited sophomore effort, entitled When Machine and Man Collide, for a late 2002 release through Hammerheart Records. According to reports, the drums and most of the guitar parts have already been laid down (Hamm is said to have only “a few touch-ups” left to do), and DiGiorgio and Aymar are waiting to record their parts, after which the album will be mixed and mastered. As Steve himself indicated in his touching tribute to Chuck (originally posted here on December 20th), “it's sad beyond belief that [Chuck] never saw [the album] to its completion. We will try our best to finish it in his honor, but will never know if it lives up to his standards. That's the least we can do for someone who gave so much and cared so much about what he did and how it affected those who believed as well.”</p>
+
+Автор: Yermola
+
+### 17.01.2002 news Видео Чака Шульдинера...
+
+<p>Мать Чака Шульдинера (DEATH/CONTROL DENIED) - Джэйн выпустила видео показывающее разные этапы его жизни для того, чтобы покрыть медицинские расходы понесенные семьей. Вы можете заказать его послав 25$ по следующему адресу (оплата пересылки включена!): <BR><BR> Jane Schuldiner<BR> 613 East Citrus Street<BR> Altamonte Springs, FL 32701<BR> USA <BR></p>
+
+Автор: Yermola
+
+### 17.01.2002 news CHUCK SCHULDINER Video Made Available To Offset Medical Expenses ...
+
+<p>Jane Schuldiner, the mother of late DEATH/CONTROL DENIED frontman Chuck Schuldiner, is making available a professionally-edited video of her son at various points of his life to anyone that is interested in obtaining a copy. Here is Ms. Schuldiner's official statement on the matter:<BR><BR> “Dear Fans, <BR><BR> “There was a video, professionally done, made of the different stages of Chuck's life from the beginning to the end, to be shown at Chuck's memorial on January 4, 2002. This was a wonderful testament to him and I have decided to share it with any of you who wishes to have it. There will be a donation of $ 25.00 for the video, which will include shipping and handling, and all proceeds will go towards Chuck's continuing expenses. I am not having it go through his bank because of the $10.00 fee they charge for each transaction. The video can be ordered from me with a $25.00 money order at my address, which is:<BR><BR> Jane Schuldiner<BR> 613 East Citrus Street<BR> Altamonte Springs, FL 32701<BR> USA <BR></p>
+
+Автор: Yermola
+
+### 25.01.2002 news В память о Чаке Шульдинере
+
+<p>Беларуский лэйбл Hangar 18 предлагает всем желающим группам принять участие в проекте памяти ушедшего из жизни в конце 2001 года основателя группы DEATH Чака Шульдинера. Планируется выпуск кассеты, компакт-диска и проведение концерта. Все, что необходимо для вашего участия - запись любой кавер-версии групп DEATH или CONTROL DENIED в вашем исполнении, на цифровом носителе (CDR, CD, mini-disk). Всех заинтересованных просьба контактировать по электронной почте - hangar@pisem.net или по телефону (0172)34-77-09 (Антон или Денис). Официальный сайт трибъюта - <A HREF="http://tribute.by.ru">http://tribute.by.ru</A></p>
+
+Автор: Dimas
+
+### 20.11.2002 news В память о Чаке
+
+<p>Спустя год после трагической смерти Чака Шульдинера, остальные участники группы CONTROL DENIED (басист Steve DiGiorgio, вокалист Tim Aymar, гитарист Shannon Hamm и ударник Richard Christy) решили собраться вместе, чтобы завершить работу над незаконченным новым альбомом группы "When Machine and Man Collide". При жизни Чака были записаны ударные и большинство гитарных партий. Они пройдут обработку и на них будут наложены остальные партии. Готовый альбом будет выпущен в память о великом музыканте в следующем году.</p>
+
+Автор: Dimas
+
+### 03.09.2003 news HAMMERHEART RECORDS прекратили существование
+
+<p>Peter van Ool и Guido Heijnens - хозяева голландской конторы HAMMERHEART RECORDS, заявили о своём решении сменить название лэйбла на Karmageddon Media. Они объяснили своё решение какими-то туманными отношениями людей и сложностями музыкального бизнеса. Весь каталог Hammerheart Records переходит к Karmagedon Media. В ближайшее время там выйдут альбомы DISMEMBER, CRUACHAN, MORIFADE, TORTURE KILLER. Касаемо нового альбома CONTROL DENIED с последним материалом, записанным Chuck Shuldiner, Heijnens заметил: "<b>К сожалению, мне никогда не приходилось иметь дело с чем-то таким же извращённым и непродуктивным. Hammerheart records пытались обговорить детали даже с семьёй Чака, но мы не встретили должного уважения, а попросту были проигнорированы. Этот альбом мог выйти уже больше года назад, но семья Shuldiner не пожелала этого. А страдают фэны...</b>"</p>
+
+Автор: Vit Belov
+
+### 09.09.2003 news Мать Chuck Shuldiner опровергает заявления HAMMERHEART RECORDS
+
+<p>В начале прошлой недели руководители переименованной HAMMERHEART RECORDS сообщили, что новый альбом CONTROL DENIED не выходит по вине родственников Chuck Shuldiner. Мать Чака поместила следующее опрвержение на официальном сайте группы. "<b>Дорогие друзья и фэны! Я получила очень много писем с вопросами по поводу заявления Guido Heijnens, в котором я была атакована им. Это тотальная ложь. Я и сестра Чака имели множество телефонных бесед с Гвидо по поводу издания последних записей Чака с CONTROL DENIED. Мы перестали отвечать на его звонки по одной причине, нам надоело говорить одно и тоже. Наша позиция неизменна. Мы, больше, чем кто-либо другой, хотим, чтобы последняя работа Чака была издана, как можно быстрее. Но у нас есть обещания, данные Чаку перед смертью. Все пожелания Чака опубликованы на emptywords.org</b>."</p>
+
+Автор: Vit Belov
+
+### 29.11.2003 news Продолжаются конфликты вокруг посмертного альбома CONTROL DENIED
+
+<P>Недавно получил продолжение конфликт между семьёй <B>Chuck Shuldiner</B> и звукозаписывающей компанией <B>Hammerheart</B>, из-за выпуска посмертных записей <B>Chuck</B> с <B>CONTROL DENIED</B>. <B>Guido Heijnens</B>, как представитель лэйбла, опубликовал пресс-релиз, в котором подтвердил, что <B>Chuck Shuldiner</B> подписал в 2000 году контракт с <B>Hammerheart</B> на выпуск альбома <B>CONTROL DENIED</B>, <B>Chuck</B> получил все деньги, причитающиеся ему по контракту, альбом был закончен только на 75%, и семья <B>Chuck</B> не отдаёт лэйблу master-ленты. Несмотря на подобные обстоятельства <B>Guido</B> надеется, что альбом выйдет весной 2004 года.</P>
+<P>В том же заявлении он ответил на последние выпады со стороны матери <B>Chuck Shuldiner</B>, где нашёл 6 несоответсвий с реальным положением дел. Естественно, он попросил ответа на свои вопросы.</P>
+Автор: Vit Belov
+
+### 29.11.2003 news Last album by Chuck Shuldiner will release in spring
+
+<P><B>Hammerheart Records</B> press-release:</P>
+<P><B>As of today we are announcing a release on CD by Chuck Schuldiner's CONTROL DENIED. </B></P>
+<P><B>It will feature incomplete, unfinished recordings which were meant for the new album, which unfortunately was never finished, at least up until the moment of this press-statement.<BR><BR>We have requested to get the Mastertapes on these recordings, but Chuck's family do not wish to communicate or talk with us anymore, let alone&nbsp;send us the Master tapes (which are 75% finished) that should have been with us long ago.<BR><BR>Probably there will be a lot of talk and discussions appearing, which we can understand obviously, but a fact is that we signed a contract with Chuck that he was very happy about, paid the full advance in 2000, have been asking for a solution during 2002 and 2003, but in all honesty we never really got a reply.<BR><BR>The only honest and valid reason why the "real" album by CONTROL DENIED is still not released is very simple; the legal heritors of Chuck (= his family) refuse to do anything concerning this release, if they will claim differently it is time for them to prove us wrong, we have been waiting for 18 months. I think they should stop fooling around with the record-label and the fans, the time to act in honesty is now or never !!! We are not lying, not cheating and in no way disrespectful, if someone disagrees he will need to prove us wrong, it is in the hands of Chuck's family.<BR><BR>Possible release date is: spring 2004.</B></P>
+<P><B>Now let us see on a few topics guided by Jane Schuldiner's statement (from September 7th 2003) on the website EMPTY WORDS, because I have many questions on this. (check: </B><A href="http://www.emptywords.org/NEWS.htm"><U>www.emptywords.org/NEWS.htm</U></A><B>), the quotes are direct from Jane Schuldiner.<BR><BR><BR>"Since I was attacked by Guido through his attorneys..." </B></P>
+<P><I><B>: this is very strange, which attorney attacked the Schuldiners before September ??? Not ours.<BR></B></I></P>
+<P><B>"I am surprised he would make false comments of his own." </B></P>
+<P><B><I>: which ones ???&nbsp;Details please, support music, not rumours !!!</I><BR></B></P>
+<P><B>"Chuck's sister and I received... record those messages." </B></P>
+<P><I><B>: I indeed had the chance to speak with Jane a lot of times (during the first half of 2002), and it were nice conversations, with Bethan I only spoke three times, with a total time of 30 minutes I think. The third conversation Bethan took the phone and said I should never call again. Until today I still do not know why ??? Can anyone tell me ???<BR></B></I></P>
+<P><B>"After saying the same thing... what that position is and why." </B></P>
+<P><B><I>:&nbsp;in all honesty I do not know what their position is on Chuck's work. They never explained this to me, so what is the position of the Schuldiner family and what does Chuck's will actually say ?</I><BR></B></P>
+<P><B>"There is no need for any more contact with Guido, that is why we each have attorneys." </B></P>
+<P><I><B>: we were asking for months for a legal contact on these matters, and we never until November 17th received anything ever from an attorney related to the Schuldiners. After&nbsp;announcing to spread this press-release we received a letter from their attorney within days. Need I say more ?<BR></B></I></P>
+<P><B>"We wanted as much... last promises to Chuck to fulfil."</B></P>
+<P><I><B>: what are those promises, no one ever told me what Chuck said in his testament or his will ??? Easy to claim you are fulfilling Chuck's last promises, but no one knows what these look like, right ? And releasing the album a.s.a.p must be a joke, since the family received the Master tapes from Jim Morris already in December 2001 and since then they have not even called the studio once, nor did any of the other musicians involved ever got an invitation to finish the album.<BR></B></I></P>
+<P><B>Six quotes that I would like to see answered in a justified/honest way, not claiming something without any proof, making us look like the unwilling party in this conflict.</B></P>
+Автор: Vit Belov
+
+### 03.03.2004 news Jane Shuldiner очередной раз выступает против релиза альбома CONTROL DENIED
+
+<B>Karmageddon Media</B> продолжили анонсировать выход нового альбома <B>CONTROL DENIED</B> в марте, но мать <B>Chuck Shuldiner</B> очередной раз заявляет, что не разрешает использовать запись, которая готова только на 75%. Более того, она сказала, что если лэйбл выпустит "<B>When Machine And Man Collide</B>", она выложит его в полном объёме в сети на <A href="http://www.emptywords.org/">www.emptywords.org</A> для скачивания любым фэном.
+Автор: Vit Belov
+
+### 06.03.2004 news Последний альбом Чака Шульдинера
+
+<B>Karmageddon Media</B> решили выпустить последние нереализованные записи <B>CONTROL DENIED/DEATH</B> под названием <B>'Zero Tolerance</B>'. Напомним, что раньше разговор шёл о последнем альбоме <B>CONTROL DENIED</B>.
+Автор: Vit Belov
+
+### 05.05.2004 news Альбом нереализованного материала от Chuck Shuldiner увидел свет
+
+<P><B>Karmageddon Media</B> выпустили нереализованные записи с участием <B>Chuck Shuldiner</B>. Сообщается, что это не новый альбом <B>CONTROL DENIED</B>, а лишь сборник последних работ Чака. Трэк-лист:</P>
+<OL>
+<LI>
+<DIV><SPAN><B><IMG height=197 alt="" hspace=0 src="/images/news_rus/2004.05/6475.gif" width=197 align="right" border=5>Control Denied - track 1</B></SPAN></DIV>
+<LI>
+<DIV><SPAN><B>Control Denied - track 2</B></SPAN></DIV>
+<LI>
+<DIV><SPAN><B>Control Denied - track 3</B></SPAN></DIV>
+<LI>
+<DIV><SPAN><B>Control Denied - track 4</B></SPAN></DIV>
+<LI>
+<DIV><SPAN lang=EN-GB><B>Infernal Death</B></SPAN></DIV>
+<LI>
+<DIV><SPAN lang=EN-GB><B>Baptized in Blood</B></SPAN></DIV>
+<LI>
+<DIV><SPAN lang=EN-GB><B>Archangel</B></SPAN></DIV>
+<LI>
+<DIV><SPAN lang=EN-GB><B>Land of No Return</B></SPAN></DIV>
+<LI>
+<DIV><SPAN lang=EN-GB><B>Zombie Ritual</B></SPAN></DIV>
+<LI>
+<DIV><SPAN lang=EN-GB><B>Mutilation</B></SPAN></DIV></LI></OL>
+Автор: Vit Belov
+
+### 02.06.2004 articles Хроника: Blaze Bayley счастливо излечился от депрессии – Kiske послал всех и ушёл из металла – Монолитный коллектив из 17 человек – Сколько ещё посмертных альбомов Chuck Schuldiner нам покупать? – Порнография, как концепция в sympho-black-metal
+
+<P><B><I>Blaze </I><I>Bayley счастливо излечился от депрессии – Kiske послал всех и ушёл из металла – Монолитный коллектив из 17 человек – Сколько ещё посмертных альбомов </I><I>Chuck </I><I>Schuldiner нам покупать? – Порнография, как концепция в </I><I>sympho-</I><I>black-</I><I>metal</I></B></P>
+<P>Эта неделя была бедна на события, пытался разнообразить наш досуг <B>Blaze Bayley (ex-IRON MAIDEN).</B> Увлекшись раскруткой своего нового альбома, он разоткровенничался с журналистом шведского издания <B>Metalshrine.se. </B><SPAN>Выяснилось, что в течение долгого времени сей достойный музыкант не вылезал из запоя, и многие песни на новой пластинке рассказывают именно об этом. «<I>У меня были большие проблемы</I>», - говорит </SPAN><B>Blaze</B><SPAN>. «<I>Полиция звонила мне домой и говорила моей жене, что у них есть неизвестный на улице, и они думают, что это её муж. Жена заставила меня обратиться к врачу, где я узнал, что страдаю от депрессии. В конце концов, я поборол эту пагубную страсть, но мой брак не выдержал, и мы вынуждены были развестись</I>». Бедняга </SPAN><B>Bayley </B><SPAN>обсуждал эти свои проблемы с коллегой <B>Angry Anderson</B></SPAN><SPAN> из <B>ROSE TATTOO</B>, у которого, как выяснилось, были такие же проблемы. В настоящее время </SPAN><B>Blaze</B><SPAN>позволяет себе выпить несколько бутылочек… пива, но это всё – никаких «<I>тяжёлых наркотиков</I>», как он выразился. Вот оказывается, от чего страдает большинство жителей нашей страны – от депрессии. Радостно, что мы разобрались в этом вместе с </SPAN><B>Bayley</B>. Из других сообщений, которые удалось выловить в бурном потоке, <B>Blaze </B>дал концерт вместе с tribute-группой <B>IRON MAIDEN </B>в Италии. Трэк-лист для заинтересовавшихся:</P>
+<P><B>01.Alive</B><SPAN> (<B>BLAZE</B>)</SPAN></P>
+<P><B>02.Kill & Destroy</B><SPAN> (<B>BLAZE</B>)</SPAN></P>
+<P><B>03.2 AM</B></P>
+<P><B>04.Stare At The Sun</B><SPAN> (<B>BLAZE</B>)</SPAN></P>
+<P><B>05.Futureal</B></P>
+<P><B>06.Lord Of The Flies</B></P>
+<P><B>07.Man On The Edge</B></P>
+<P><B>08.Fear Of The Dark</B></P>
+
+<P>Ещё одним отличившимся вокалистом на этой неделе стал <B>Michael Kiske</B>, который с помпой заявил, что он уходит из metal, откуда, по правде говоря, он ушёл уже довольно давно. Вместе со своим проектом <B>SUPARED </B>почила и карьера <B>Michael</B>, как вокалиста в hardr ock<SPAN>. “<I>Я официально заявляю о своём уходе с </I></SPAN><I>hard</I><I>-</I><I>rock</I><I> сцены. Я просто не подхожу для неё</I>», - заявляет <B>Kiske</B><SPAN>. «<I>На прошлой записи я экспериментировал с тяжёлым звуком, но теперь всё, хватит. Плохие продажи дебютного альбома </I></SPAN><B><I>SUPARED</I></B><I> подлили масла в огонь. Мой взгляд на данный сорт музыки остался недопонятым. Я больше не хочу засорять своё и чужое время. Особенно, хочу послать на … всех тех, кто скачал или записал на болванку альбом </I><B><I>SUPARED</I></B><I> (это Вам, прим. авт.). А также хочу послать всех критиков, которые готовы оценивать высоко только творения, которые удовлетворяют рынок (а это нам, прим. авт.)</I>». Возвращаясь к записи <B>SUPARED</B>, <B>Michael </B>поведал, что ощущал просто-таки физическую боль, записывая альбом этого проекта. А, в конце концов, он договорился до того, что heavy-metal музыка, делает нас тупыми и морально глухими. Мне не хочется, вставать на защиту людей, слушающих heavy-metal, они не нуждаются в защитниках, но поведение <B>Kiske </B>требует некоторой оценки. <B>Michael </B>выступает в роли эдакого меланхоличного человека не от мира сего. Эту свою черту он обрисовывает до предела и чувствует своё превосходство над другими, которые не столь чувствительны. В то же время, к его сожалению, он вынужден записывать альбомы в этом «тупом» стиле, иначе ему попросту не будет, что покушать. Что ж, пожелаем <B>Michael </B>удачи. Пусть он станет <B>George Michael </B>наших дней.</P>
+
+<P><B>ART-MUSIC-GROUP </B>повергла наш рынок «в руины», выпустив на этой неделе новый альбом <B>HAGGARD ‘Eppur Si Muove’</B> по лицензии <B>Drakkar</B>. Прошло почти четыре года со дня выхода предыдущего альбома <B>HAGGARD ‘Awaking the Centuries’</B> – мир изменился, а группа осталась прежней. Для группы, в составе которой 17 человек, <B>HAGGARD </B>проявляют завидную монолитность. Все ходы, используемые на предыдущем альбоме, сохранились и на новом CD<SPAN>. Самое странное, что даже вступления различных инструментов происходят практически в том же порядке. Единственное, что радует, это количество самой МУЗЫКИ, которой стало гораздо больше. Ведь бесконечный «<I>Свет негаснущей свечи</I>» на прошлом альбоме многих выводил из себя. Теперь </SPAN><B>HAGGARD </B>поднялись над собой, они повторяются на более глобальном уровне – уровне альбома, а не песни. Весь парадокс немцев в том, что, несмотря на все эти недоработки, они являются настоящим событием для всех любителей металл, иначе вряд ли они были бы достойны упоминания здесь.</P>
+<P><B></B></P>
+<P>Ещё одним знаковым релизом, который нуждается в «беспристрастном взгляде» является новый альбом <B>Chuck Schuldiner</B>, умершего три года назад, вышедший на <B>Irond/Karmageddon</B>. О скупом содержании этого альбома Вы сможете прочесть в рецензии, мне же хочется выразить сожаление, по поводу разгоревшейся свары между семьёй <B>Chuck </B>и издающем лэйблом <B>Hammerheart/Karmageddon</B>. Поначалу всё складывалось вполне пристойно. Группаобещаладописатьвторойальбом<SPAN> <B><SPAN lang=EN-US>CONTROL DENIED </SPAN></B></SPAN><B>"When Machine and Man Collide" </B>в честь<SPAN> <B><SPAN lang=EN-US>Chuck Schuldiner</SPAN></B><SPAN lang=EN-US>. </SPAN></SPAN>Уже 13 января 2002 года мать <B>Chuck</B>’a <B>Jane </B>заявила, что юристы семьи изучают детали контракта на выпуск этого альбома. Но через год, в феврале 2003, <B>Jane Schuldiner </B>выдвинула первые претензии в адрес <B>Hammerheart</B>. Она рассказала, что некая сотрудница лэйбла, ещё при жизни <B>Chuck</B>, говорила о том, что, в случае его смерти, они смогут не платить полного гонорара за второй альбом <B>CONTROL DENIED</B>. До поры до времени <B>Hammerheart </B>хранили молчание, но в конце прошлого года голландцы выступили с заявлением, что <B>Jane </B>затягивает решение вопроса. Далее события развивались стремительно, перепалка достигла предела, когда мать обещала выложить в свободное пользование в Интернет любые записи, которые издаст <B>Karmageddon</B> (к тому времени лэйбл сменил название). Что мы имеем сейчас? <B>Karmageddon </B>выпустил свой альбом. Эта пластинка не имеет ничего общего с финальным вариантом второго альбома <B>CONTROL DENIED</B>, видимо, все записи находятся у <B>Jane</B>. Чем объяснить поступок лэйбла, как не попыткой выручить хоть какие-то деньги? (В буклете хозяин компании рассказывает мелодраматическую историю о своей встрече с <B>Chuck</B>, эта история очень напоминает оправдания). Оценивать поведение противной стороны я не стану, так как им пришлось пройти через слишком многое.</P>
+
+<P>В нашей стране не происходило никаких сколько-нибудь значимых событий. Но на одну вещь хочется обратить внимание – это релиз нового альбома sympho-black-metalколлектива из Ульяновска <B>BLACK COUNTESS</B> на <B>Metalism/Soyuz</B>. Вызвал, в первую очередь, радостные чувства буклет сего произведения. Голые девушки с аппетитными формами выставляют на показ все свои «прелести» и демонстрируют акробатические этюды в попытке удовлетворить друг друга. Вряд ли подобный альбом не является событием в нашей музыкальной индустрии. Давно пора перестать стесняться. Проплатить студию слишком дорого, гораздо легче напоить пивом пару подружек, намазать им лицо кетчупом и вставить челюсть из магазинчика ужасов. Здесь мы можем идти впереди планеты всей. Хочется обратиться к нашим лэйблам, пидерастов-мужиков не надо фотографировать, а вот групповые сцены пользуются большим спросом у любителей sympho-black-metal. Но что же думают на старейшем музыкальном лэйбле – <B>Soyuz</B>? “<B><I>Концепция альбома подразумевает это. Разве это запрещено? Сама группа и её стиль изначально позиционируется erotic-vampiric-sympho-black. Есть же альбомы, которые содержат ненормативную лексику или, скажем, оформление, содержащее откровенные сцены насилия.&nbsp;Конечно, в этих случаях&nbsp;лицевая картинка закрывается дополнительной "прикрывающей" страничкой с предупреждающим стикером. Но на альбоме </I><I>Black Countess</I><I>, я считаю, всё более или менее пристойно. Первоначальный вариант дизайна, который предоставлялся группой, был гораздо жестче, но в итоге мы смягчили общее оформление. Если же вообще говорить о вводе каких-либо ограничений, то можно просто запретить и блэк-метал как стиль, так как у большинства групп тексты их песен содержат откровенно антихристианские лозунги. Также можно придраться и к brutal-death, grind стилям, у них тоже много чего есть, что не укладывается в общепринятые нормы морали</I>”, -</B> заявляет <B>Евгений Аксёнов</B>, один из ведущих специалистов этой компании. Насколько Евгений прав, я не знаю, это Вы можете определить сами, а вот если подобный диск приобретут несовершеннолетние любители металла, а потом мама их застанет за просмотром «весёлых картинок», это может нанести неприятный удар, как по нашей сцене, так и по самому лэйблу, и уж точно не повысит рейтинг металлических коллективов.</P>
+Автор: Vit Belov
+
+### 10.08.2004 news Karmageddon продолжают &quot;радовать&quot; нас редкостями
+
+<P><B><IMG height=407 alt="" hspace=0 src="/images/news_rus/2004.08/6878.jpg" width=301 align="left" border=5>Karmageddon Media</B> подготовили к выпуску очередную коллекцию редких вещей покойного <B>Chuck Schuldiner "Zero Tolerance 2"</B>. На пластинке можно будет услышать первое демо группы <B>DEATH</B> (ещё под именем <B>MANTAS</B>) <B>'Death By Metal'</B>, второе демо <B>'Reign Of Terror'</B> (оба записаны в 1984), а также концертное выступление <B>DEATH</B> в Техасе в 1990 году во время тура в поддержку <B>'Spiritual Healing'</B>.</P>
+<P>Боссы лэйбла не приминули возможностью ущипнуть семью <B>Chuck</B>:&nbsp;"<I>По поводу второго альбома <B>CONTROL DENIED</B> говорите с семьёй <B>Chuck</B>, которая хранит гробовое молчание. Очень грустно</I>".&nbsp;</P>
+Автор: Vit Belov
+
+### 06.01.2007 news Дрязги вокруг альбома CONTROL DENIED продолжаются
+
+<P>Новогодняя суета вдохновила участников, уже было затихшего, конфликта вокруг последних записей <STRONG>Чака Шульдинера</STRONG> и его группы <STRONG>CONTROL DENIED</STRONG> на новые заявления. Поводом для выступления хозяина <STRONG>HAMMERHEART</STRONG>,&nbsp; издающего лэйбла <STRONG>CONTROL DENIED</STRONG>,&nbsp;стала статья в греческом издании<STRONG> Rock Hard</STRONG>. В этой статье даны комментарии вокалиста <STRONG>CONTROL DENIED Tim Aymar</STRONG>, который нелестно отозвался о&nbsp;бизнесмене. <STRONG>Guido Heijnens </STRONG>заявивил, что заплатил аванс <STRONG>Чаку Шульдинеру</STRONG> в размере 70000 долларов, а его наследники забрали все материалы из <STRONG>Morissound</STRONG> и пытаются продать их другой конторе. Господин<STRONG> Heijnens</STRONG> посоветовал <STRONG>Aymar</STRONG> связаться сначала с ним, а не распространять дезинформацию. Также этот деятель от шоу-бизнеса поблагодарил всех, кто участвовал в сваре за то, что посмертный альбом <STRONG>CONTROL DENIED</STRONG> так и не вышел.</P>
+<P>Сестра музыканта <STRONG>Бэт</STRONG> прокоментировала высказывания <STRONG>Гвидо</STRONG>. <STRONG>Госпожа Schuldiner</STRONG> опровергла заявления о том, что забрала "мастера" <STRONG>CONTROL DENIED</STRONG> в первые дни после смерти. Также <STRONG>Бэт</STRONG> обвинила<STRONG> Hammerheart</STRONG> в несостоятельности. По её мнению, все группы, подписанные на этом лэйбле, не дополучали деньги, а факт перевода 70000 долларов не подтверждается её поверенным. Дама пообещала, что новый<STRONG> CONTROL DENIED</STRONG> выйдет в этом году.</P>
+<P>Не знаю где и когда, ведь лэйбл уже не существует, да и не знаю, существуют ли записи. Уже столько лет нам морочат голову и перетряхивают грязное бельё. Не красиво как-то.</P>
+Автор: Vit Belov
+
+### 11.05.2010 news Relapse выпустят наследие Chuck Schuldiner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Relapse Records</STRONG> и семья умершего восемь лет назад лидера <STRONG>DEATH Chuck Schuldiner</STRONG> заключили контракт на выпуск всех работ <STRONG>DEATH, CONTROL DENIED</STRONG> и даже демо-материалов <STRONG>MANTAS</STRONG>, проекта предшествовашего <STRONG>DEATH</STRONG>. Сегодня, за два дня до дня рождения <STRONG>Chuck Schuldiner</STRONG>, альбомы <STRONG>DEATH </STRONG>впервые станут доступны в цифровом формате. <STRONG>Relapse</STRONG> также готовит к изданию многострадальный второй альбом <STRONG>CONTROL DENIED</STRONG> <STRONG>"When Man and Machine Collide"</STRONG>.&nbsp;Этот альбом является последним, над чем работал <STRONG>Chuck</STRONG> перед своей смертью от опухоли мозга.</FONT></P>
+Автор: Vit Belov
+
+### 05.12.2010 news Второй альбом CONTROL DENIED выйдет в следующем году
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news_rus/2010.12/17738.jpg" width=200 align=right border=0>Второй альбом группы умершего в 2001 году лидера <STRONG>DEATH Chuck Schuldiner CONTROL DENIED</STRONG> <STRONG>'When Machine And Man Collide' </STRONG>выйдет в следующем году. Об этом сообщил вокалист этого коллектива <STRONG>Tim Aymar. Jim Morris </STRONG>в студии <STRONG>Morrisound </STRONG>начал работу над оставленными <STRONG>Chuck </STRONG>материалами. </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже почти десять лет оставшиеся в живых музыканты <STRONG>CONTROL DENIED</STRONG> и семья <STRONG>Chuck Shuldiner</STRONG> пытаются выпустить&nbsp;<FONT color=#ddd9d0><STRONG>'When Machine And Man Collide'. Chuck</STRONG> успел записать все свои партии для этого альбома, но контрактные сложности не позволяли завершить работу и выпустить её на CD. Дело в том, что <STRONG>CONTROL DENIED</STRONG> было полписаны на Hammerheart Records, но наследников музыканта это не устроило, и они не передали лэйблу материалы. Наследники <STRONG>Hammerheart Karmageddon Media</STRONG> выпустили два альбома "<STRONG>Zero Tolerance</STRONG>" с низкокачественным материалом. Теперь права на работы покойного музыканта переданы его семьёй <STRONG>Relapse Records</STRONG>, которые в скором времени все их переиздадут.</FONT></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Недописанный альбом Control Denied

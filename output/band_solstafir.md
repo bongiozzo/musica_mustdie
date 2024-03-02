@@ -51,6 +51,64 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.02.2004 reviews «Исландский блэк на российском лейбле&quot;
+
+<P><I>Halldor Einarsson, Gudmundur Oli Palmason, Adalbjorn Tryggvason… </I><I>Откуда родом эти парни?.. «Из Норвегии», - скажет читатель, и будет не прав. </I><I>SOLSTAFIR</I><I> – одна из немногих знакомых мне… исландских групп. Удивителен тот факт, что их альбом (а вернее, переиздание дебютного миньона с парочкой бонус-трэков) увидел свет на… российском лейбле. Причём, вполне официально – это НЕ лицензия, и уж тем более, НЕ пиратка. Что же играют горячие исландские парни?.. Как не трудно догадаться, это чистой воды блэк. Очень неплохо сыгранный и хорошо записанный (запись, между тем, датируется 1995 годом). Плюс такая на сегодняшний день редкость, как акустические барабаны. Плюс немного чистого вокала а-ля ранний </I><I>ENSLAVED</I><I>. В итоге получаем прекрасную работу, которую не мешало бы приобрести всем блэкарям… да и прочим любителям экстремальной музыки. Альбом, записанный </I><I>SOLSTAFIR</I><I>’ами 9 лет назад, убирает большинство современных блэковых поделок… Теперь дело за малым: раскопать полноформатник, вышедший в 2002 году на почившем в бозе германском лейбле </I><I>Ars Metalli… </I><I></I></P>
+Автор: Kai Mathias Stalhammar
+
+### 25.08.2009 news Новое видео SOLSTAFIR
+
+<P>Новый видеоклип исландцев <STRONG>SOLSTAFIR </STRONG>на песню <STRONG>"Love Is The Devil (And I Am In Love)" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=225 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=5670770&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=5670770&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="225"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.09.2011 news Новая песня SOLSTAFIR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трек исландской группы <STRONG>SOLSTAFIR "Fjara"</STRONG> можно послушать ниже. Трек попадёт на четвёртый альбом коллектива "<STRONG>Svartir Sandar</STRONG>", который выйдет этой осенью на <STRONG>Season Of Mist</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F23244388&"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F23244388&" type="application/x-shockwave-flash" width="100%"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 18.01.2012 news Новый клип SOLSTAFIR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип на трек "<STRONG>Fjara</STRONG>" с нового альбома исландцев <STRONG>SOLSTAFIR "Svartir Sandar" </STRONG>можно посмотреть ниже. Альбом вышел на лэйбле <STRONG>Season of Mist</STRONG>. В клипе снялась исландская актриса и певица <STRONG>Rebekka Kolbeinsdyttir</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT id=flashObj codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0 height=412 width=486 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="movie" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="bgcolor" VALUE="#FFFFFF"><PARAM NAME="flashVars" VALUE="videoId=1396218080001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true"><PARAM NAME="base" VALUE="http://admin.brightcove.com"><PARAM NAME="seamlesstabbing" VALUE="false"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="swLiveConnect" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashVars="videoId=1396218080001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></OBJECT>
+<P></P>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.03.2012 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.03/23250.png" width=300 height=165>Ещё несколько участников добавилось в состав фестиваля <STRONG>"Brutal Assault"</STRONG> этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это - легендарная группа из Северной Каролины<STRONG> CORROSION OF CONFORMITY</STRONG>, канадские дет-металлисты <STRONG>GORGUTS</STRONG>, исландцы <STRONG>SOLSTAFIR</STRONG>, норвежские блэкари <FONT color=#ddd9d0><STRONG>KAMPFAR</STRONG> и поклонники древних египетских культов <STRONG>NILE</STRONG>.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также, одни из пионеров industrual <STRONG>GODFLESH</STRONG>, подтвердили своё участие в фестивале 2012 года.&nbsp;Проект образованный <STRONG>Джастином Бродриком</STRONG>&nbsp;(<FONT color=#ddd9d0>Justin Broadrick) и <STRONG>Джи Си Грином</STRONG> (G. C. Green)</FONT>&nbsp;в 1988 году и успешно просуществовал до 2002 года, после чего, была распущен, но снова вернулась к деятельности в 2010, выступив на нескольких фестивалях.</FONT></P>
+Автор: Headcrusher
+
+### 14.10.2014 news Новое кино от SOLSTAFIR
+
+<P>Исландская группа<STRONG> SOLSTAFIR</STRONG> выложила в сеть клип на песню <STRONG>"Lagnaetti</STRONG>" с нового альбома "<STRONG>Otta</STRONG>", вышедшего в конце лета на<STRONG> Season Of Mist</STRONG>.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/R8n8Uy5KmvU" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.11.2016 news SOLSTAFIR выпустили новое видео и записывают новый альбом для Season of Mist
+
+<p><strong>SOLSTAFIR</strong> выпустили новый клип на песню "<strong>Dagmal</strong>", которая вошла в последний на сегодня альбом коллектива "<strong>Otta</strong>". Исландцы только что переподписали контракт с <strong>Season Of Mist</strong>. Музыканты в настоящее время записывают новый альбом, который выйдет в следующем году.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oH37s4-sdTs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Solstafir (ISL) 15.02.15 Москва VOLTA Club

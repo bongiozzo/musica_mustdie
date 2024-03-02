@@ -73,6 +73,19 @@ Engineered By Paul Johnston.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2016 news CEREBRAL FIX подготовили новый альбом
+
+<p>Британская crossover / thrash metal команда<strong> CEREBRAL FIX</strong> закончила запись долгожданного альбома <strong>"Disaster Of Reality"</strong>. Первый студийный альбом за 24 года! Пластинка должна была быть записана летом 2015 года, но группу в то время покинули басист и вокалист, поэтому запись продолжилась только после нахождения новых участников. </p><p>Трек-лист:</p><p>01. Justify<br>02. Mosh Injury<br>03. Crucified World<br>04. Realities of War<br>05. Skate Fear<br>06. Reality Pill<br>07. Dear Mother Earth<br>08. Dead Cities<br>09. Never Say Never Again<br>10. Felted Cross<br>11. Inside My Guts<br>12. (Untitled Mystery Track) </p><p>Дата релиза 15 сентября на <strong>Xtreem Music</strong>.</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.06/29276.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JqnBOvTIswU" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+### 08.06.2016 news CEREBRAL FIX: First album in 24 years
+
+<p>British Crossover Thrash legends<strong> CEREBRAL FIX</strong> are done with the recording process of their long awaited return album, the 5th in their career and 1st one in 24 years!! Initial plans were to record is during summer 2015, but during the recording process, two members (vocals & bass) decided to leave the band, so new members had to be found.</p><p>"<strong>Disaster of Reality</strong>" is completed and contains 12 rabid songs that are a back to basics, a return to their 1st album days with an upbeat DISCHARGE dose. CEREBRAL FIX of today is what originally was meant to be, a raw'n'crusty Crossover Thrash/ Punk beast retaining that feeling that only the originals can have!!</p><p>Tracklist for "Disaster of Reality" is as follows:</p><p>01. Justify<br>02. Mosh Injury<br>03. Crucified World<br>04. Realities of War<br>05. Skate Fear<br>06. Reality Pill<br>07. Dear Mother Earth<br>08. Dead Cities<br>09. Never Say Never Again<br>10. Felted Cross<br>11. Inside My Guts<br>12. (Untitled Mystery Track) </p><p>Release date for "Disaster of Reality" is set for 15th of September through<strong> Xtreem Music</strong> on CD & 12"LP.</p><center><img width="600" height="600" src="/images/news_rus/2016.06/29276.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JqnBOvTIswU" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

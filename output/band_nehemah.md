@@ -20,6 +20,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.10.2005 news NEHEMAH на Avantgarde music
+
+<P>Французская культовая black metal группа <STRONG>NEHEMAH</STRONG> подписала контракт с <STRONG>Avantgarde music</STRONG> после выпуска трех удачных альбомов на <STRONG>Adipocere</STRONG>. Уже в ближайшее время музыканты приступят к записи нового альбома. </P>
+Автор: Bizarre
+
+
 ## Обсуждения
 
 

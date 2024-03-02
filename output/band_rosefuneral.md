@@ -49,6 +49,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.08.2011 news Новый альбом ROSE FUNERAL
+
+<P>Новая пластинка melodic death-metal команды <STRONG>ROSE FUNERAL</STRONG> <STRONG>"Gates Of Punishment" </STRONG>выходит 27 сентября на <STRONG>Metal Blade</STRONG>. Песню <STRONG>"Beyond The Entombed" </STRONG>с этой пластинки можно послушать в клипе ниже. Трек-лист:</P>
+<P>01. <B>Legions Of Ruination</B><BR>02. <B>Grotesque Mutilation</B><BR>03. <B>Beyond The Entombed</B><BR>04. <B>False Divine</B> (feat. Steve Tucker) <BR>05. <B>Arise Infernal Existence</B><BR>06. <B>Malignant Amour</B> (feat. Kate Alexander) <BR>07. <B>A Recreant Canticle</B><BR>08. <B>The Desolate Form</B><BR>09. <B>Entercism</B><BR>10. <B>Amidst Gehenna</B><BR>11. <B>Gates Of Punishment</B></P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/K1jciHEI0c8" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

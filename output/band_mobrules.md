@@ -98,6 +98,128 @@ Limited digipak edition contains 1 bonus track:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.06.2000 reviews Великолепный и очень мелодичный heavy metal
+
+<p>Великолепный и очень мелодичный heavy metal. Iron Maiden со своей новой пластинкой отдыхают. В своё время Железная дева наверняка была неким ориентиром для этой группы, но сейчас она обошла её, как говорится, по внутреннему радиусу. Главное различие между этими коллективами, это качество звука. Mob Rules, не утяжеляясь, умудрились сохранить дух старого доброго heavy с современным звучанием. Много клавиш, отличные мелодии, соло, при чём не навязшие в зубах боевики в духе Timo Tolki, а нормальные, где можно прочувствовать каждое касание струн. Вокалист Klaus Dirks, конечно же, немного не дотягивает до Dickinson, но его голос очень и очень нелох. Вас ждёт незабываемое путешествие к диким землям в компании пяти бойцов из группы Mob Rules. Хотя, всё-таки, оригинальностью здесь не пахнет, а где ей сейчас пахнет? Но музыка понравилась.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 reviews Magnificent and very melodious heavy metal
+
+<p>Magnificent and very melodious heavy metal. Iron Maiden with the new plate have a rest. In ancient times Iron Maiden for certain was certain goal for this group, but now it has bypassed this goal, as is spoken, on an internal radius. Main distinction between these collectives, this quality of a sound. Mob Rules, not havier, have managed to save spirit of old kind heavy with modern sounding. It is a lot of keys, excellent tunes, solo, for want of than not teethaced the hits in spirit Timo Tolki, and normal, where are possible are to experienced by each tangency of strings. Vocalist Klaus Dirks, certainly, voice very much and very much not bad does not hold out up to Dickinson, but it slightly. You are waited by unforgettable traveling to wild grounds in the company to five fighters from group Mob Rules. Though, as originality here does not smell, and where to it now smells? But music has liked.</p>
+
+Автор: Vit Belov
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 03.11.2003 news MOB RULES начали пре-продукцию к новому альбому
+
+<B>MOB RULES</B> начали пре-продукцию к своему четвёртому альбому, который они будут записывать в январе 2004 года, и котрый выйдет в апреле на <B>SPV</B>.
+Автор: Vit Belov
+
+### 20.03.2004 news Выходит новый альбом MOB RULES
+
+<P>Новый альбом <B>MOB RULES</B> <B>"Among the Gods"</B>,&nbsp;выйдет 17 мая на <B>SPV</B>. Трэк-лист:</P>
+<P>01. <B>Black Rain</B><BR>02. <B>Hydrophobia</B><BR>03. <B>Invitation Time</B><BR>04. <B>The Miracle Dancer</B><BR>05. <B>Among The Gods</B><BR>06. <B>New World Symphony</B><BR>07. <B>Ship Of Fools</B><BR>08. <B>Seven Seas</B><BR>09. <B>Meet You In Heaven</B><BR>10. <B>Arabia</B><BR></P>
+Автор: Vit Belov
+
+### 06.04.2004 news Mob Rules выпустят бонус-CD
+
+<P>На новый альбом <B>MOB RULES 'Among The Gods'</B>, который выйдет 17 мая на <B>SPV</B>, войдёт бонус-CD в лимитированном варианте.&nbsp;В этот компакт-диск&nbsp;будут включены&nbsp;редкие материалы. Трэк-лист:</P>
+<P>Audio:<BR><BR>01. <B>Battlefield Control</B> (unreleased outtake 2002)<BR>02. <B>All That I Bleed</B> (<B>SAVATAGE</B> Cover)<BR>03. <B>Hydrophobia</B> (alternate version)<BR><BR>CD-Rom:<BR><BR>04. <B>Black Rain</B> (Videoclip 2004)<BR>05. <B>Black Rain</B> (Videoclip 2004, Director's Cut)<BR>06. <B>End Of All Days</B> (Video Clip 2003 Wacken Roadshow)<BR>&nbsp;</P>
+Автор: Vit Belov
+
+### 23.06.2004 reviews Не Боги пауэр слагают, порой совсем не Боги...
+
+<P>Трудно сказать, чем можно выделить немцев Mob Rules из немалого количества мелодик-пауэр-хэви команд. Они не новички на металлической сцене (собрались еще в 1994 году), их состав за это время никогда не менялся (разве что добавились второй гитарист и клавишник), за их плечами туры с Savatage, Helloween, Rage, Company Of Snakes, Ivory Tower, многочисленные выступления с Rhapsody, Doro, Scorpions, Symphony X, Silent Force, они выпускают уже четвертый альбом... Хм, да и вот и всё, собственно. Мне кажется, что группе не хватает какой-то своей фишки, изюминки, ибо всё сыграно, спето, спродюсировано и записано по-немецки качественно, но как-то безлико. И восхваляемый критиками одноименный с названием альбома эрик положения не спасает. Безусловно, Mob Rules не третьесортный отстой, которым нас с завидной регулярностью пичкают с Limb Music, но к первому эшелону пауэр-метала я бы эту команду относить не стал. Добавлю лишь, что "Among The Gods" выйдет также в виде лимитированного издания, включающего в себя бонусом диск с тремя видеолкипами, двумя ранее не выпускавшимися треками 1999 и 2002 года, кавером Savatage 'When I Bleed' и интервью с группой.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 20.10.2006 reviews Свежие силы не помогли
+
+<P>Немцы Mob Rules за 12 лет своего существования выпустили 5 студийных альбомов (включая рассматриваемый "Ethnolution A.D."), один DVD ("Sings Of The Time - Live" в прошлом году) и практически не меняли состав. Лишь недавно группу покинули гитарист Oliver Fuhlage (заменен на Sven Luedke (ex-Murder One) и басист Thorsten Plorin (заменой стал Markus Brinkmann). Забегая вперед, отмечу, что на последней вещи нового альбома 'Better Morning' "гостит" клавишник и аранжировщик Chris Wolff, который в конце 90-х засветился неофициальным участником группы Rage. Так вот, никаких других достижений у Mob Rules, к сожалению, нет.&nbsp;И "свежие силы" тоже ничем не помогли. Разве что можно подчеркнуть, что ребята эти не поют про драконов и воинов, к примеру, а ударяются в социальные и политические темы. Так, как ясно из названия, "Ethnolution A.D." посвящен этнологии (это раздел социологии, предметом изучения которого явлются примитивные и традиционные общественные системы). Ну а что с музыкой-то? Да ничего особенного, мелодичный хэви-пауэр-метал, притом с крайне неприятным - лично для меня - вокалом лидера коллектива Клауса Диркса. Конечно, слушая данный релиз, можно благодаря хорам и оркестровкам вспомнить о разных симфо-пауэрных экспериментах Rhapsody или тех же Rage, но вот вокальная линия портит всё на корню. Да и запоминающихся хитов Mob Rules опять не сочинили. Ради справедливости надо сказать, что к звучанию претензий нет; продюсировали альбом сами Mob Rules, а микшированием занимался Markus Teske (Vanden Plas, Saga). Но самое печальное во всем этом - песни группы совершенно не запоминаются, не цепляют, не заставляют подпевать, не заставляют переживать. Возможно, группа заслуживает большего, чем быть все время во втором эшелоне, но для этого им надо записать по-настоящему сильную работу.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 03.01.2008 news MOB RULES собираются в студию
+
+<P><STRONG>MOB RULES</STRONG> сообщили, что в мае отправляются в студию для записи нового пока не названного альбома. Пластинка выйдет в конце лета.</P>
+Автор: Vit Belov
+
+### 31.12.2008 news MOB RULES работают над альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=191 alt="" hspace=0 src="/images/news_rus/2008.12/13259.jpg" width=250 align=left border=5>MOB RULES</STRONG> продолжают работу над новым шестым альбомом. Все песни уже сочинены, и группа уже сидит в студии.&nbsp;На сайте группы написано:</FONT></P>
+<P>"<EM>В этот раз группа собирается выпустить лучший альбом в своей истории. Материал будет в духе прошлых пластинок, но будут и некоторые сюрпризы. Вот один из них, MOB RULES сочинили длиннейшую песню в своей истории</EM>".</P>
+<P>В 2009 году<STRONG> MOB RULES</STRONG> планируют&nbsp;совершить несколько туров.&nbsp;</P>
+Автор: Vit Belov
+
+### 04.08.2009 news MOB RULES в ноябре
+
+<P>Новый альбом<STRONG> MOB RULES</STRONG> <STRONG>"Radical Peace" </STRONG>выйдет в ноябре на <STRONG>AFM</STRONG>. CD был записан с продюсером <STRONG>Markus Teske</STRONG> (<B>VANDEN PLAS</B>, <B>SPOCK'S BEARD</B>, <B>OASIS</B>). Альбом будет содержать 20-минутный эпик <STRONG>"The Oswald File", </STRONG>рассказывающий об убийстве Джона Кеннеди. </P>
+Автор: Vit Belov
+
+### 20.10.2009 news Новый клип MOB RULES
+
+<P>Новое видео <STRONG>MOB RULES</STRONG> на песню "<STRONG>Astral Hand</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-4xXBxi1guM&color1=0xb1b1b1&color2=0xcfcfcf&hl=de&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/-4xXBxi1guM&color1=0xb1b1b1&color2=0xcfcfcf&hl=de&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.12.2009 news Новое видео MOB RULES
+
+<P>Видеоклип на песню <STRONG>MOB RULES</STRONG> <STRONG>"The Oswald File" </STRONG>можно посмотреть ниже. Песня представляет собой переработанную версию 18-минутного эпика, который попал на последний альбом немцев <STRONG>"Radical Peace"</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/vCVDz4MFU8Q&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/vCVDz4MFU8Q&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.06.2010 reviews Ли Харви Освальд здесь никому не нужен
+
+<P>Немецкие power-metal’исты MOB RULES сменили уже третий лэйбл за свою не слишком длинную историю.&nbsp; Первые, и самые сильные, пластинки этой группы вышли на Limb Music. Именно в те времена, этот лэйбл гремел на весь мир тяжёлой музыки. Связано это было в первую очередь с выходом дебютных пластинок RHAPSODY, но эта известность привлекла внимание и к другим подопечным этой конторы. Следующим местом дислокации для MOB RULES стал SPV. Улучшить свой статус немецкой группе на этом лэйбле не удалось. Пластинки power-metal’истов уже не пользовались той популярностью, но раскрученное к тому времени имя позволяло коллективу существовать. Все мы знаем, какие неприятности в кризисном 2009 году пережили на SPV, и MOB RULES не стали той группой, которая осталась в строю. Новейшая работа немцев “Radical Peace” вышла на AFM.</P>
+<P>Уже некоторое время новые альбомы MOB RULES нельзя было однозначно причислять к power-metal. Музыканты взрослели, и им хотелось большего, нежели просто быстрые риффы в духе HELLOWEEN. Что значит взрослеть для power-metal группы? Посмотрите на других популярных немцев EDGUY. Это значит замедлить темп, приблизить своё звучание к hard rock, не напрягать слушателя слишком громкими звуками. Практически всегда подобный подход разочаровывает. Мало того, что повзрослевшие power-metal’исты не могут сочинить сколько-нибудь приятных мелодий в этом жанре, им ещё и не просто пробиться к своей новой публике, которая навечно прикрепила к ним ярлык и не хочет принимать в свою тёплую, но высокоинтеллектуальную компанию. На “Radical Peace” MOB RULES удалось то, что так и не удалось EDGUY. Группа придумала среднетемповый альбом с очень хорошими мелодиями, который понравится всем любителям взрослого мелодичного heavy-metal, к которому я могу отнести и ROYAL HUNT, и SAVATAGE. Композиторы на этом альбоме действительно постарались, и здесь нет ни одной проходной вещи.</P>
+<P>Центральное место на пластинке занимает 18-минутный эпик “The Oswald File”. Мне не хотелось в это верить, но действительно этот масштабный трэк посвящён убийству президента США Джона Кеннеди в 1963 году. А точнее он посвящён подозреваемому в этом убийстве Ли Харви Освальду, который был убит во время этапирования в другую тюрьму после ареста. Естественно подобные истории вызывают живейший интерес любителей конспиралогии во всём мире. Безусловно, достаточно интересно посмотреть, например, документальный фильм о версиях нашумевшего убийства, лёжа на кушетке и выпив пару пива, но слушать балладный heavy-metal, старающийся вызвать неподдельную жалость к жертве заговора ЦРУ, немного странно. Вот сколько раз я говорил, что не надо читать тексты. Буду бить себя по рукам и дальше. Отмечу, что вступление к “The Oswald File” просто великолепное. Фортепианный проигрыш в духе альбома RAGE “Lingua Mortis”, симфонические аранжировки, сэмпл какой-то духоподъёмной речи… Я не сдержался, заглянул в буклет и был разочарован. Ну, не вызывает у меня это событие подобных ассоциаций, хоть убей. Возможно, MOB RULES таким образом хотят привлечь внимание к своему творчеству американских фанатов стиля. Быть может, это у них даже получится, но как-то не вяжется прицел на «взрослый heavy-metal» и такие кондовые сюжеты.</P>
+<P>Слушать новый MOB RULES всё равно надо. Подобных мелодичных и отточенных альбомов выходит не слишком много. Вот только не надо читать буклет, людям впечатлительным потом никак не удастся отделаться от нехороших мыслей, что их грязно обманывают.</P>
+Автор: Vit Belov
+
+### 03.09.2012 news Новый альбом MOB RULES
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.09/24747.jpg" width=475 height=475>Седьмой альбом немцев<STRONG> MOB RULES</STRONG> <STRONG>"Cannibal Nation" </STRONG>анонсирован к выходу 19 октября на <STRONG>AFM</STRONG>. В пресс-релизе сообщается, что новая работа "разнообразная, ориентированная на хиты и энергичная". MOB RULES создали собственную студию, что помогло музыкантам расширить свои саунд-горизонты. Продюсером в <STRONG>Dwelling Mound Studio </STRONG>выстиупил гитарист коллектива <STRONG>Sven Ludke. </STRONG></P>
+<P><FONT color=#ffffff>В результате каждая песня на </FONT><FONT color=#ddd9d0><STRONG>"Cannibal Nation" </STRONG>являет собой образец выверенности и досконального подхода. От прогрессивной <STRONG>'Close My Eyes' </STRONG>через хитовую <STRONG>'Lost' </STRONG>к сингловой <STRONG>'Ice & Fire', </STRONG>основанной на истории колумбийского политика<STRONG> Ingrid Betancourt, </STRONG>которая являлась кандидатом на пост президента в этой стране, но была похищена повстанцами. В этой эпической композиции за симфонические аранжировки отвечал <STRONG>Michael 'Miro' Rodenberg</STRONG> (<B>AVANTASIA</B>).</FONT></P>
+<P>Трек-лист:</P>
+<P>01. <B>Close My Eyes</B><BR>02. <B>Lost</B><BR>03. <B>Tele Box Fool</B><BR>04. <B>Ice And Fire</B><BR>05. <B>Soldiers Of Fortune</B><BR>06. <B>The Sirens</B><BR>07. <B>Scream For The Sun (May 29th 1953)</B><BR>08. <B>Cannibal Nation</B><BR>09. <B>Sunrise</B><BR>10. <B>Children Of The Flames</B> (live in Atlanta) (digipak bonus track)</P>
+<P>Состав коллектива:</P>
+<P><STRONG>Klaus Dirks</STRONG> - Vocals<BR><B>Matthias Mineur</B> - Guitar<BR><B>Sven Ludke</B> - Guitar<BR><B>Jan Christian Halfbrodt</B> - Keyboards<BR><B>Markus Brinkmann</B> - Bass<BR><B>Nikolas Fritz</B> – Drums</P>
+Автор: Vit Belov
+
+### 20.09.2016 news Новое лирик видео MOB RULES
+
+<p>Новый клип с текстами от <strong>MOB RULES "Somerled"</strong> можно посмотреть ниже.</p><p>Новый альбом коллектива "<strong>Tales From Beyond</strong>" приобретайте в магазине Escapemind.ru: <a href="http://escapemind.ru/goods/MOB-RULES-Tales-From-Beyond">http://escapemind.ru/goods/MOB-RULES-Tales-From-Beyond</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9J38V-7vAhI" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 20.09.2016 news New single from last album of MOB RULES &quot;Tales from Beyond&quot;
+
+<p>New clip with lyrics for<strong> MOB RULES "Somerled</strong>" can be viewed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9J38V-7vAhI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

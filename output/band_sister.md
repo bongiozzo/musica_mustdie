@@ -22,6 +22,39 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.09.2000 news The new Abscess&#39; album
+
+<p> The new Abscess-album "Tormented" will be released via Listenable Records in October. There will also be a 300-piece limited edition 10"-vinyl featuring unreleases tracks by Abscess and Deranged.</p>
+
+Автор: Nybras
+
+### 17.01.2011 news SISTER - новые питомцы Metal Blade Records
+
+<P>Лейбл <STRONG>Metal Blade</STRONG> анонсировал подписание контракта со шведской группой <B itxtvisited="1">SISTER</B>. Новый альбом <STRONG>SISTER</STRONG> выйдет&nbsp;этим летом.</P>
+<P>"Мы чувствуем гордость за то,&nbsp;что подписались на легендарный <B itxtvisited="1">Metal Blade Records</B>. Это тот лейбл, сотрудничества с которым, мы все так ждали и мы знаем, что вместе сможем свернуть горы!" - так прокомментировала группа данное событие.</P>
+<P>В<STRONG> SISTER</STRONG>&nbsp;входят четыре участника&nbsp;— <B itxtvisited="1">Jamie</B> на вокале, <B itxtvisited="1">Lestat</B> на гитаре и бэк-вокале, <B itxtvisited="1">Rikki</B> на басу и бэк-вокале и <B itxtvisited="1">Cari</B>&nbsp;на ударных и бэк-вокале. Группа комбинирует в своём стиле элементы панка, глэма,&nbsp;рока и метала, что в конечном итоге звучит как ядрёная смесь&nbsp;&nbsp;<B itxtvisited="1">GG ALLIN</B> и <B itxtvisited="1">GUNS N' ROSES</B>.<BR itxtvisited="1">
+<CENTER><IMG border=0 src="/images/news_rus/2011.01/18206.jpg" width=500 height=375></CENTER>
+Автор: Headcrusher
+
+### 11.09.2011 news SISTER: видео на песню &quot;The Unlucky Minority&quot;
+
+<P>Видео на песню <STRONG>"The Unlucky Minority"</STRONG> шведов <B itxtHarvested="0" itxtNodeId="50">SISTER</B>, можно посмотреть ниже. Клип был снят и срежессирован&nbsp;Джимми Йоханссоном&nbsp;(<B itxtHarvested="0" itxtNodeId="49">Jimmy Johansson</B>) из&nbsp;<B itxtHarvested="0" itxtNodeId="48">Super Lino Puro Productions</B>.<BR itxtNodeId="47"><BR itxtNodeId="46">Песня <STRONG>"The Unlucky Minority"</STRONG> вошла в альбом <B itxtHarvested="0" itxtNodeId="38">SISTER </B>&nbsp;<B itxtHarvested="0" itxtNodeId="37">"Hated"</B>, который увидел свет в Европе на <STRONG>Metal Blade</STRONG> 6 июня.</P>
+<CENTER><IFRAME height=390 src="http://www.youtube.com/embed/NACVIEc37LQ" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.01.2014 news SISTER выпускают второй полноформатник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские глэм-металлисты <STRONG>SISTER</STRONG> выпускают свой второй полноформатник. Диск получивший название <STRONG>"Disguised Vultures"</STRONG>, выйдет 21 января на <STRONG>Metal Blade</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предварительный заказ альбома доступен по ссылке: <A href="http://www.metalblade.com/sister/">www.metalblade.com/sister/</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Там же можно прослушать новый трек под названием <STRONG>"Sick"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>My Enemy</STRONG> | 02. <STRONG>Sick</STRONG> | 03. <STRONG>Disguised Vultures</STRONG> | 04. <STRONG>Arise</STRONG> | 05. <STRONG>We Salute 'Em</STRONG> | 06. <STRONG>Slay Yourself</STRONG> | 07. <STRONG>Naked</STRONG> | 08. <STRONG>DMN</STRONG> | 09. <STRONG>(Stop The) Revolution</STRONG> | 10. <STRONG>Please Kill Me</STRONG></FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.01/26507.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### 2 Pafos, Ceducer, Vic Thor, Alarm, Alex Mart, Blind Bard, Asmodeus, Abscess e.t.c.

@@ -8,6 +8,19 @@ instrumental prog from Australia
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.09.2016 news Season Of Mist подписали прогрессивный инструментальный prog из Австралии - VIPASSI
+
+<p><strong>VIPASSI -</strong> инструментальный проект австралийских музыкантов <strong>Ben Boyle</strong> и<strong> Dan Presland</strong>, известны по группе <strong>NE OBLIVISCARIS</strong>. Сегодня объявлено, что дебютный полноформатный альбом проекта выйдет на <strong>Season Of Mist</strong>.</p><p>Подробности последуют.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.09/29927.jpg" border="0"></p><p>&nbsp;</p>
+Автор: Vit Belov
+
+### 05.09.2016 news Season Of Mist signed progressive instrumental band from Australia
+
+<p><strong>Season of Mist</strong> are proud to announce the signing of <strong>VIPASSI</strong>. This new band is the brainchild of Australian guitarist <strong>Ben Boyle</strong> and drummer <strong>Dan Presland</strong> of <strong>NE OBLIVISCARIS</strong> fame. The Australian instrumental prog collaborators will release their next full-length on the label.</p><p>Regarding the signing, the band comments collectively: "<em>We are extremely proud to announce our partnership with Season of Mist. We cannot express how humbled we are to be welcomed as part of a roster and label that we have so much respect for, being familiar with their passion and work ethic for forward thinking music through their existing ties with NE OBLIVISCARIS. It was a simple and intuitive decision that this is the ideal place for VIPASSI.</em></p><p>VIPASSI was birthed in 2009 by Australian guitarist Ben Boyle and drummer Dan Presland of NE OBLIVISCARIS, beginning a long journey of writing and rehearsing. They soon settled on an instrumental style that captured the openness desired to allow any listener to interpret and connect with the material subjectively. Their project represents a desire to explore beauty and darkness in all its shades, through melodic and complex compositions that are bemused in themes of the struggles of the human experience, exploring nature, spirituality and science.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.09/29927.jpg" border="0"></p><p>&nbsp;</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

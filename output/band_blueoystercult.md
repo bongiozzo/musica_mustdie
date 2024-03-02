@@ -57,6 +57,38 @@ Donald Roeser  -  Synthesizer, Guitar, Keyboards, Vocals
 
 * C группой "Faith And Fire" Danny Miranda
 
+## Публикации
+
+### 18.07.2002 news Черное и голубое...
+
+<p>Культовые "BLACK SABBATH" и "BLUE OYSTER CULT" выпускают совместный концерт "Black & Blue" на DVD. Действо было снято в Нью-Йорке в 1980 году и содержит 14 песен (по семь для каждой группы). Трек-лист:<BR><BR> BLACK SABBATH<BR> 01. War Pigs<BR> 02. Neon Knights<BR> 03. N.I.B.<BR> 04. Iron Man<BR> 05. Paranoid<BR> 06. Heaven And Hell<BR> 07. Die Young<BR><BR> BLUE OYSTER CULT<BR> 01. Doctor Music <BR> 02. Cities On Flame <BR> 03. Divine Wind<BR> 04. Godzilla <BR> 05. Roadhouse Blues<BR> 06. Born To Be Wild<BR> 07. Here's Johnny</p>
+
+Автор: Yermola
+
+### 18.07.2002 news BLACK SABBATH, BLUE OYSTER CULT: Classic &quot;Black &amp; Blue&quot; ...
+
+<p>BLACK SABBATH and BLUE OYSTER CULT's legendary "Black & Blue" concert, filmed at Nassau Coliseum in Uniondale, New York on October 15th, 1980, will finally be issued on DVD via Classic Pictures. The DVD version of the long out-of-print video will apparently include all 14 tracks (seven by each act) contained in the original film, and is tentatively scheduled for release later this year. <BR><BR> The complete track listing for the DVD is as follows:<BR><BR> BLACK SABBATH<BR> 01. War Pigs<BR> 02. Neon Knights<BR> 03. N.I.B.<BR> 04. Iron Man<BR> 05. Paranoid<BR> 06. Heaven And Hell<BR> 07. Die Young <BR><BR> BLUE OYSTER CULT<BR> 01. Doctor Music <BR> 02. Cities On Flame <BR> 03. Divine Wind<BR> 04. Godzilla <BR> 05. Roadhouse Blues<BR> 06. Born To Be Wild<BR> 07. Here's Johnny<BR><BR> Look for an official press release soon.</p>
+
+Автор: Yermola
+
+### 04.09.2002 news DVD от BLUE OYSTER CULT ...
+
+<p>Ветераны "BLUE OYSTER CULT" записали собственное шоу в Navy Pier's Skyline Stage для выпуска на DVD. Названный "Long Day's Night" альбом будет содержать следующие вещи: <BR><BR> 01. Stairway to the Stars<BR> 02. Burnin' for You<BR> 03. OD'd on Life Itself<BR> 04. E.T.I.<BR> 05. Dance on Stilts<BR> 06. Harvester of Eyes<BR> 07. Buck's Boogie<BR> 08. Mistress of the Salmon Salt<BR> 09. Flaming Telepaths<BR> 10. Harvest Moon<BR> 11. Last Days of May<BR> 12. Joan Crawford<BR> 13. Cities on Flame<BR> 14. ME 262<BR> 15. Perfect Water<BR> 16. Lips in the Hills<BR> 17. Godzilla<BR> 18. (Don't Fear) the Reaper<BR> 19. Astronomy<BR> 20. Dominance & Submission<BR> 21. The Red & the Black<BR><BR> Дата выхода "Ночи после длинного дня" - 24-е сентября.</p>
+
+Автор: Yermola
+
+### 04.09.2002 news BLUE OYSTER CULT Record Show For Live CD&#x2F;DVD ...
+
+<p>BLUE OYSTER CULT recorded the June 21st show at Navy Pier's Skyline Stage for an upcoming live CD and DVD, entitled Long Day's Night. Among the cuts recorded for possible inclusion on the CD/DVD are the following: <BR><BR> 01. Stairway to the Stars<BR> 02. Burnin' for You<BR> 03. OD'd on Life Itself<BR> 04. E.T.I.<BR> 05. Dance on Stilts<BR> 06. Harvester of Eyes<BR> 07. Buck's Boogie<BR> 08. Mistress of the Salmon Salt<BR> 09. Flaming Telepaths<BR> 10. Harvest Moon<BR> 11. Last Days of May<BR> 12. Joan Crawford<BR> 13. Cities on Flame<BR> 14. ME 262<BR> 15. Perfect Water<BR> 16. Lips in the Hills<BR> 17. Godzilla<BR> 18. (Don't Fear) the Reaper<BR> 19. Astronomy<BR> 20. Dominance & Submission<BR> 21. The Red & the Black<BR><BR> The Long Day's Night CD is slated for release on September 24th, while the DVD of is tentatively scheduled for an October 6th release.</p>
+
+Автор: Yermola
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

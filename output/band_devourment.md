@@ -27,6 +27,34 @@ Classical brutal death with much blood and gore. Crazy growl also presented.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.03.2005 news DEVOURMENT записали новую песню
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реформированная американская brutal death-metal группа <STRONG>DEVOURMENT</STRONG> записала новую песню <STRONG>'Autoerotic Asphyxiation'</STRONG>, которую можно послушать по адресу <A href="http://www.myspace.com/devourment">http://www.myspace.com/devourment</A>&nbsp;.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей, в коллективе сменился барабанщик. Вместо потерявшего интерес <STRONG>Brad Fincher&nbsp;</STRONG>играет <STRONG>Eric Park.</STRONG></FONT><STRONG>&nbsp;</STRONG></P>
+Автор: Vit Belov
+
+### 25.07.2010 news DEVOURMENT на Relapse Records
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16952.jpg" width=400 height=245>Культовые американские брутальщики <B itxtvisited="1">DEVOURMENT</B> подписали договор о сотрудничестве с <B itxtvisited="1">Relapse Records</B>. Группа начнёт свой европейский тур в поддержку альбома <B itxtvisited="1">"Unleash The Carnivore" (2009)</B>&nbsp; выступлением на немецком&nbsp;фестивале "<STRONG>Party.San Open Air</STRONG>" 12 августа. Так же группу можно будет увидеть на&nbsp;европейских фестивалях "<STRONG>Brutal Assault</STRONG>", "<STRONG>Mountains of Death Open Air</STRONG>" и "<STRONG>Metal Mean</STRONG>". А 29 августа <STRONG>DEVOURMENT</STRONG> дадут единственный концерт в России, который пройдёт в Москве в клубе "<STRONG>X.O.</STRONG>".</P>
+Автор: Headcrusher
+
+### 05.01.2013 news Новый альбом DEVOURMENT
+
+<P>Четвёртый альбом<STRONG> DEVOURMENT</STRONG> <STRONG>"Conceived In Sewage" </STRONG>выйдет в середине февраля на <STRONG>Relapse Records</STRONG>. Альбом был записан в <STRONG>Mana Recording Studio </STRONG>с продюсером <STRONG>Erik Rutan</STRONG> (<B>HATE ETERNAL</B>, <B>MORBID ANGEL</B>). Трек-лист:</P>
+<P>01. <B>Legalize Homicide</B><BR>02. <B>Fifty Ton War Machine</B><BR>03. <B>Conceived In Sewage</B><BR>04. <B>Fucked With Rats</B><BR>05. <B>March to Megiddo</B><BR>06. <B>Today We Die, Tomorrow We Kill</B><BR>07. <B>Heaving Acid</B><BR>08. <B>Carved Into Ecstasy</B><BR>09. <B>Parasitic Eruption</B></P>
+<P><STRONG></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/SIpmJUGgnCs?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+<P><STRONG><center><IMG border=0 src="/images/news_rus/2013.01/25237.jpg" width=475 height=475></STRONG></P>
+Автор: Vit Belov
+
+### 06.03.2013 news Новый клип DEVOURMENT
+
+<P>Новый ролик <STRONG>DEVOURMENT</STRONG> на песню <STRONG>"Parasitic Eruption" </STRONG>можно посмотреть ниже. Трек вошёл на новый релиз техаской death-metal группы&nbsp;<B>"Conceived In Sewage"</B>, вышедший на <STRONG>Relapse Records</STRONG> в конце февраля.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/iiOlkgBLfT4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Лучший brutaldeath/goregrind?

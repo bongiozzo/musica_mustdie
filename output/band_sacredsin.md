@@ -119,6 +119,33 @@ Nuno - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.12.2000 news Sacred Sin начинают запись нового альбома.
+
+<p>Одна из наиболее популярных метал-групп Португалии Sacred Sin заключила контракт на выпуск трёх альбомов с английским лейблом Demolition Records. Группа в декабре начинает записывать свой новый альбом в студии в Лиссабоне.</p>
+
+Автор: Morsus
+
+### 07.12.2000 news Sacred Sin begin recording their new album.
+
+<p>One of Portugal's most popular metal acts Sacred Sin has signed a three album deal with English label Demolition Records. The band begin recording their new album in Lisbon during December.</p>
+
+Автор: Morsus
+
+### 16.03.2001 news TRANSLUCID DREAM MIRROR...
+
+<p>Sacred Sin выпускают 9 апреля полноформатник "TRANSLUCID DREAM MIRROR". Окончательный трек-листинг: 'Translucid Dream Mirror', 'La Clef Des Grands Miseres', 'Ravish The Soul', 'Sukunft Kenntnis', 'Gift Of Second Sight', 'Maleficent Genii', 'Extra-Natural Mediator', 'Mei Lacrimae In Tenebrae', 'Transmutation', 'By The Wyvern We Flowed', 'Prelude To Phenomena', 'Unbridled Hate', 'The Shadow Gate'. Ресурс - www.welcome.to/sacredsin.com</p>
+
+Автор: Yermola
+
+### 16.03.2001 news SACRED SIN
+
+<p>Sacred Sin have their debut album for DEMOLITION released on APRIL 9th. "TRANSLUCID DREAM MIRROR" (DEMCD 111), looks like being one of the most important metal albums we've released so far. The final tracklisting is: 'Translucid Dream Mirror', 'La Clef Des Grands Miseres', 'Ravish The Soul', 'Sukunft Kenntnis', 'Gift Of Second Sight', 'Maleficent Genii', 'Extra-Natural Mediator', 'Mei Lacrimae In Tenebrae', 'Transmutation', 'By The Wyvern We Flowed', 'Prelude To Phenomena', 'Unbridled Hate', 'The Shadow Gate'. The band will also be taking part in two tribute albums namely "A Tribute to TARANTULA", and the upcoming "A Tribute to VENOM... IN NOMINE SATANUS II." To round of immediate activities, the band also embark on a short European tour at the end of April. I'll update our site with the details as we get them, otherwise you can get all the info you need on the band at www.welcome.to/sacredsin.com</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

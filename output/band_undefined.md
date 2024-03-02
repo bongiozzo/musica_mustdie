@@ -8,6 +8,9 @@ Hardcore Mix of a Thrash and Industrial Rock
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -145,6 +145,177 @@ Jason Chapman  -  Trumpet, Flugelhorn
 * C группой "Deep Purple" Ritchie Blackmore
 * C группой "Infinity" C. Night
 
+## Публикации
+
+### 21.10.1999 reviews 
+
+<p>Тянет родимого старину Blacmore'а на луну. На "Stranger In Us All" - песня "Wolf to the Moon", потом "Shadow of the Moon" и теперь "Under A Violet Moon". Прекрасный вокал Candice Night и прекрасная гитара Ritchie. Очень хорошая музыка. Из вещей можно выделить испанскую плясовую "Spanish Night/I Remember It Well" и "Gones With The Wind", мелодия которой явно содрана с нашей родимой "Полюшко-поле", но для хороших людей не жалко. Ну а после прослушивания "Wind in the Willows" сразу хочется схватить удочку и бежать ловит рыбу с веселой кампанией. Душевный альбом. 10 из 10.</p>
+
+Автор: Vit Belov
+
+### 10.04.2001 news Blackmore&#39;s Night .....
+
+<p>Новый альбом Blackmore's Night будет называться "Fires At Midnight" и выйдет в конце июня этого года на лэйбле "Steamhammer/SPV". Материал третьего альбома будет выполнен в духе двух предыдущих. Кроме того, команда отправляется в летний тур. Ориентировочно, он стартует в 20-х числах июля и продлится около одного месяца. В числе стран называются Германия, Англия, Люксембург, Испания и Швейцария.</p>
+
+Автор: Yermola
+
+### 27.06.2001 news Видео BLACKMORE&#39;S NIGHT....
+
+<p>Ritchie Blackmore со своей подружкой Candice Night, также известные под названием "BLACKMORE’S NIGHT" опубликовали новый видеоклип на песню "The Times They Are A Changin'" вошедшую на альбом "Fires At Midnight". Послушать можно на сайте SPV/Steamhammer Records - http://www.spv.de/eng/blackmoresnight/default.html</p>
+
+Автор: Yermola
+
+### 27.06.2001 news BLACKMORE&#39;S NIGHT, featuring former DEEP PURPLE .....
+
+<p>BLACKMORE’S NIGHT, featuring former DEEP PURPLE guitarist Ritchie Blackmore and his “companion” Candice Night, have posted the video clip for their version of the BOB DYLAN classic “The Times They Are A Changin' “ (which is featured on their current Fires At Midnight release) for viewing in streaming video via the SPV/Steamhammer Records web site. To watch the video, click http://www.spv.de/eng/blackmoresnight/default.html Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.07.2001 news Ночные огоньки...
+
+<p>"Ночные огоньки" Ричи Блэкмора (я имею ввиду последний релиз Fires At Midnight) достигли девятого места в Германском Чарте Поп Альбомов.</p>
+
+Автор: Yermola
+
+### 18.07.2001 news Fires At Midnight....
+
+<p>Fires At Midnight, the brand new release from BLACKMORE’S NIGHT (featuring former DEEP PURPLE/RAINBOW guitarist Ritchie Blackmore and his “companion” Candice Night), has entered the German Media Control Pop Album charts at #9. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Новая команда Ингви...
+
+<p>Шведскому вундеркинду удалось наконец-то полностью укомплектовать состав своей группы для продолжения тура по Южной Америке (с 12 по 30 сентября). Если все пойдет по плану, то этот состав и будет записывать новый альбом гитариста в 2002. Итак, line-up таков: <br> Doogie White (RAINBOW) – вокал<br> Yngwie J. Malmsteen - гитара<br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - клавиши<br> Mick Cervino (BLACKMORE' S NIGHT) - басс<br> Patrik Johansson (STORMWIND) – барабаны.</p>
+
+Автор: Yermola
+
+### 23.08.2001 news YNGWIE MALMSTEEN has assembled ...
+
+<p>Swedish axe-hero YNGWIE MALMSTEEN has assembled a 100% new band for his upcoming South American tour, which is scheduled to take place between September 12th and September 30th. According to official sources, if the chemistry of this team gels, this line-up may also appear on the guitarist’s next studio album, which is not due to emerge until sometime in 2002. The line-up for the South American tour is as follows: <br> Doogie White (RAINBOW) – vocals <br> Yngwie J. Malmsteen - guitars <br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - keyboards <br> Mick Cervino (BLACKMORE' S NIGHT) - bass <br> Patrik Johansson (STORMWIND) – drums. <br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 12.11.2001 news Minstrels And Ballads...
+
+<p>The full track listing for BLACKMORE'S NIGHT’s exclusive Japan-only ballads compilation, entitled Minstrels And Ballads, is as follows: <BR><BR> 01. The Times They Are A Changin' <BR> 02. Spirit Of The Sea <BR> 03. Fool's Gold <BR> 04. Again Someday <BR> 05. Fayre Thee Well <BR> 06. Greensleeves <BR> 07. Wish You Were Here <BR> 08. Mid-Winter's Night <BR> 09. Catherine Howard's Fate <BR> 10. Durch Den Wald Zum Bach Haus <BR> 11. Be Mine Tonight <BR> 12. Ocean Gypsy <BR> 13. Benzai-Ten <BR> 14. Now And Then</p>
+
+Автор: Yermola
+
+### 12.11.2001 news Баллады от Дедушки Блэкмора...
+
+<p>Дедушка гитарного рока и по совместительству главный Менестрель планеты Р.Блэкмор выпустил СД "Minstrels And Ballads" полностью состоящий из баллад. Пока релиз вышел эксклюзивно в Японии... Трек-лист: <BR> <BR> 01. The Times They Are A Changin' <BR> 02. Spirit Of The Sea <BR> 03. Fool's Gold <BR> 04. Again Someday <BR> 05. Fayre Thee Well <BR> 06. Greensleeves <BR> 07. Wish You Were Here <BR> 08. Mid-Winter's Night <BR> 09. Catherine Howard's Fate <BR> 10. Durch Den Wald Zum Bach Haus <BR> 11. Be Mine Tonight <BR> 12. Ocean Gypsy <BR> 13. Benzai-Ten <BR> 14. Now And Then</p>
+
+Автор: Yermola
+
+### 06.03.2002 news Концерт Ричи Блэкмора в Москве.
+
+<p>14 апреля в Москве во Дворце Спорта «Лужники» Ричи Блэкмор выступит в составе своего коллектива Blackmore's Night. Blackmore's Night (RITCHIE BLACKMORE и CANDICE NIGHT) исполняет музыку, вдохновляемую традициями европейского средневековья и возрождения. Первый визит Блэкмора в Россию проходит в рамках турне «Fires At Midnight Acoustic/Electric Tour 2002».</p>
+<p>Организатор московского концерта - компания JSA при партнерстве Концерна "ГРУППА СОЮЗ"</p>
+
+Автор: Vit Belov
+
+### 19.06.2002 news BLACKMORE&#39;S NIGHT - новый сингл и даты турне ...
+
+<p>Ritchie Blackmore и Candice Night не останавливаются на концертах в Германии и продолжают тур по Европе, даты новых выступлений будут объявлены в самом ближайшем будущем. Новый сингл "Home Again" (песня с альбома "Fires At Midnight") выходит 5 августа.</p>
+
+Автор: Yermola
+
+### 28.08.2002 news BLACKMORE&#39;S NIGHT выпускают концертный альбом и DVD
+
+<p>Новый сингл "Home Again" вышел 12 августа. Он включает радио-версии и ремиксы на песни с последнего альбома "Fires At Midnight": "Home again", "Waiting Just For You", "All Because Of You". На октябрь запланирован выпуск концертного альбома, на котором среди прочих прозвучат песни Rainbow.</p>
+<P> BLACKMORE`S NIGHT "Past Times With Good Company" Double Live CD<BR> Дата выхода: 14 октября, 2002</>
+<P>CD 1 <BR> Shadow Of The Moon <BR> Play Minstrel Play <BR> Minstrel Hall <BR> Past Times With Good Company <BR> Fires At Midnight <BR> Under A Violent Moon <BR> Soldier Of Fortune</>
+<P> CD 2 <BR> 16th Century Greensleeves <BR> Beyond The Sunset (instrumental) <BR> Morning Star <BR> Home Again <BR> Renaissance Faire <BR> I Still Remember <BR> Durch den Wald zum Bach Haus (intstrumental) <BR> Writing On The Wall</>
+<P> Двойной альбом включает 13 композиций Blackmore`s Night и 2 2 песни из "хард-рокового" прошлого музыканта: "Soldier of Fortune" (в оригинале записанная Deep Purple) и "16th Century Greensleeves" (в оригинале записанная Rainbow). <BR> Издание будет изящно оформлено и сопровождаться развернутым буклетом.</>
+<P>Шоу в Wartburg будут записаны для DVD, первого во всем мире DVD, записанного при помощи ультра-современной звуковой системы DTS 96/24. Эта звуковая система (96 кГц и 24 Bit) почти вдвое превосходит традиционнный стандарт DOLBY 5.1 (48 кГц und 16Bit) и поэтому обещает абсолютный новый звуковой experience!</>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 22.06.2003 news BLACKMORE&#39;S NIGHT представляет
+
+<p>BLACKMORE'S NIGHT - нынешняя группа бывшего гитариста DEEP PURPLE и RAINBOW Ritchie Blackmore и его компаньонши Candice Night, готовит к выпуску 30 июня через SPV/Steamhammer Records свой новый альбом "Ghost Of A Rose". В него войдут следующие вещи:</p>
+<p> <IMG SRC="/images/news_rus/2003.06/4513.jpg" ALT="pho" width=201 height=201 hspace="15" vspace="5" border="1" align="right">1. Way To Mandalay <BR> 2. 3 Black Crows <BR> 3. Diamonds and Rust <BR> 4. Cartouche <BR> 5. Queen For A Day <BR> 6. Ivory Tower <BR> 7. Nur Eine Minute (instrumental) <BR> 8. Ghost Of A Rose <BR> 9. Mr. Peagram's Morris and Sword <BR> 10. Loreley <BR> 11. Where Are You Going From Here <BR> 12. Rainbow Blues <BR> 13. All For One <BR> 14. Dandelion Wine</p>
+
+Автор: Dimas
+
+### 15.10.2003 news Blackmore&#39;s Night in Europe
+
+<P align="left">10.10. RUS-Moskau - Youth Palace Theater<BR>11.10. RUS-Moskau - Youth Palace Theater<BR>14.10. CH-Z&uuml;rich - Volkhaus<BR>15.10. A-Graz - Orpheum<BR>18.10. CZ-Prag - Lucerna Theater<BR>21.10. HU-Budapest - Pesti Vigardo<BR>23.10. I-Dolo - Teatro Excelsior<BR>29.10. NL-Antwerpen - Arenberg Theater<BR>31.10. NL-Amsterdam - Pepsi Stage "Special halloween night"<BR>02.11. LUX-Luxembourg - Grand Theater<BR>05.11. UK-Buxton - Opera Hose<BR>06.11. UK-Workington - Carnegie Theater<BR>07.11. SCO-Edinburgh - Queens Theater<BR>09.11. UK-Birmingham - Alexandra Theater<BR>10.11. UK-Reading - Concert House<BR>13.11. UK-Cheltenham - Town hall<BR>14.11. UK-Exeter - University Theater</P>
+Автор: Vit Belov
+
+### 11.06.2004 news BLACKMORE&#39;s NIGHT выпускают &#39;Romantic Collection&#39;
+
+<B>BLACKMORE's NIGHT</B> выпустят сборник в середине сентября на <B>SPV</B>. Он будет называться <B>"All Because Of You - The Romantic Collection"</B> - очень понятное название для нашего слушателя.
+Автор: Vit Belov
+
+### 30.09.2004 reviews Романтическая коллекция от дядьки Черномора
+
+<P>В чем смысл подобных компиляций? Ибо данная "романтическая коллекция" представляет собой сборник песен группы со всех ее 4 альбомов, и ничто более. Но смысл все-таки есть. Во-первых, для фэнов Blackmore's Night она ценна тем, что здесь присутствует нигде более не издававшаяся вещь 'Once In A Million Years' и перезаписанная по-новому 'Ghost Of A Rose'. А во-вторых, для всех тех, кому творчество данного коллектива в принципе приятно, но для кого все их 4 предыдущих альбома покупать в лом, сия компиляция окажется именно тем, "что доктор прописал". Да и как-то сей релиз нарекать расхожим сочетанием "рип офф" просто язык не поворачивается. Фэнов ждет еще кое-какой сюрприз в лимитированном издании с DVD-диском, но об этом чуть позже - хочу создать легкую интригу...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 12.10.2004 reviews Ангельское пение в городе, знаменитом своими ножами
+
+<P>Как я уже указывал пару недель назад, "Романтическая коллекция" Blackmore's Night выходит еще и в виде лимитированного издания "DVD+CD bonus disc". Это первый материал группы, выпущенный на DVD (скоро выйдет и "полноформатный"), и он являет собой запись части концерта в Золингене. Диск в формате dolby digital 5.1 и длится немногим более 20 минут. "Средневековые" одежды, ангельский голос Кэндис, поющей на некоем подобие балкона, сосредоточенный, без тени улыбки на лице, сам маэстро Ричи Блэкмор, довольно внушительная, но и весьма спокойная толпа народа - всё это производит впечатление некоей домашней обстановки, когда много хороших друзей собираются просто послушать красивую спокойную музыку, хлебнуть немного пивка, поделиться последними новостями, пока дядька Черномор со своей дорогой и любимой Кэндис поют и играют песни о любви, плывя на волнах фолка, рока и medieval. Отличный звук, прекрасная картинка, красивая музыка - неплохой вариант проведения холодного осеннего вечера. К DVD прилагается еще бонусом аудиодиск с тремя песнями ('Emanuel', 'We Three Kings', 'Chrismas Eve'), так что если вы любите Blackmore's Night, то данное издание вы просто обязаны будете приобрести.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.02.2006 news Новый альбом BLACKMORE&#39;S NIGHT
+
+<P>27 марта на SPV выходит новый альбом <B>BLACKMORE'S NIGHT</B> под названием <B>"The Village Lanterne"</B>.&nbsp;Эта новая&nbsp;студийная работа проекта бывшего гитариста <B>DEEP PURPLE</B> и <B>RAINBOW Ritchie Blackmore'а</B> и его жены <B>Candice Night</B> включает две необычные "экскурсии в прошлое": кавер-версии "пёрпловской" <B>"Child In Time"</B> и <B>"Street Of Dreams"</B> из репертуара <B>RAINBOW</B>. Возвращение классических роковых элементов удачно дополняет привычную музыкальную шекспириану и трогательную музыку минувших эпох.<BR>Настройте себя на волшебную музыку эльфов, слушайте и размышляйте, о прошлом и о грядущем...</P>
+Автор: Ixtiandr
+
+### 03.04.2006 reviews А Ричи всё играет деревенские песенки
+
+<P>Очередной релиз под маркой Blackmore's Night "The Village Lanterne" абсолютно не отличается от предыдущих. Но формула "стабильность есть признак мастерства" в данном случае не срабатывает. Если на дебютнике "Shadow Of The Moon" 1997-го года все эти фолковые и "средневековые" дела мистера Блэкмора выглядели свежо и весьма впечатляюще (тем более, в свете бывшего лидерства Ричи в двух выдающихся хард-роковых группах), то спустя почти уже десять лет романтические песенки с ангельским голоском мадам Блэкмор уже даже в уши, что называется,&nbsp;не лезут. Хотя и на втором альбоме группы, "Under A Violet Moon" (1999) уже было слышно, что один из самых известных гитаристов рок-музыки просто-напросто начинает зацикливаться на некогда найденной фишке. Да и ключевая фигура проекта, вокалистка Candice Night, поет совершенно без эмоций и абсолютно однообразно. Безусловно, фанаты у группы были и будут, но если и следующий альбом Blackmore's Night будет таким же скучным, "сочувствующие" от него точно надолго отвернутся. И правильно сделают. Тем более, что выбор мистером Блэкмором каверов для новой пластинки более чем сомнительный - по их конечному исполнению. Классическая "пёрпловская" 'Child In Time', которую умудрились "впихнуть" в 'Mond Tanz', 'Street Of Dreams' из репертуара Rainbow (кстати, на лимитированной версии "The Village Lanterne" ее исполняет Джо Линн Тернер), 'St. Teresa' Джоан Осборн и 'Streets Of London' авторства фолкового исполнителя Ральфа МакТелла ничего не добавили в копилку группы, а 'Child In Time' вообще выглядит каким-то издевательством. Впрочем, дядька Черномор может особо не волноваться. Ему и раньше-то было наплевать на чье-то мнение, а сейчас, когда он давно может исполнять и сочинять, что хочет сам (и его прекрасная половина, видимо) - тем более. Да и если особо не вслушиваться в музыку на данном альбоме, то она подойдет отличным фоном для романтической встречи.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 18.01.2007 reviews Совместный рип-офф дядьки Черномора и Санта Клауса
+
+<P>Когда-то в средние века (которые с известных пор так любит Ричи Блэкмор) где-то в Европе возникли так называемые carols, что означает "гимны, песни, танцы". Крестьяне тех лет пели о выпивке, развлечениях и прочих распутствах. Церкви это было как бельмо на глазу, посему было решено мальца (а точнее, весьма сильно) изменить тексты этих песенок, наполнив их религиозным содержанием. Так и появились современные "кэролс". Именно о таких рождественских гимнах идет речь на новом альбоме Blackmore's Night, вышедшем, ясное дело, под это самое Рождество (их, не наше, конечно же). Дядька Черномор просто решил срубить еще немного денег со своих фэнов; но не он первый, не он последний с таким "рождественским" альбомом. Ну вот, собственно, и всё. Несколько народных песенок, пара вещей самого&nbsp;Блэкмора и уже успевшая порядком поднадоесть 'Wish You Were Here' - таков "новый" релиз Ричи и Кэндис. Наша сладкая парочка даже не удосужилась потрудиться над буклетом, поместив в него лишь полторы дюжины своих довольно мутноватых фотографий, а о самом Рождестве напоминает лишь одинокий Санта Клаус с кошкой в руках. Не будем сейчас рассуждать о исполнительском мастерстве музыкантов или качестве записи - тут всё понятно. Оставим в стороне и, как его часто называют, ангельский голосок Кэндис (простите, но вот 'We Wish You A Merry Christmas' или 'Ding Dong...' она бы лучше не исполняла). Задумаемся лучше над тем, сколько еще рождественских песенок остались неохваченными на данной пластинке дядей Ричи и его спутницей. Не ждет ли нас и в следующем декабре что-то типа "Winter Carols part 2"? Ведь то, что музыка стала повторяться и некогда идол хард-рока начал исписываться, было видно уже давно (между прочим, часть материала, как вы поняли, уже выходила на других релизах Blackmore's Night). Фацит таков: все фэны группы приобретут альбом по-любому, а вот стоит ли обращать на него внимание остальным - дело весьма спорное. Тем более, что для русского человека все эти европейские песенки, по большому счету, мало что означают... Учитывая вышеизложенное, оставляю "Winter Carols" без оценки, да простит меня Санта Клаус...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 14.09.2008 reviews Скучноватый юбилей
+
+<P>Скажу честно, большим поклонником Blackmore's Night я не являюсь. После прослушивания энного количества альбомов этого коллектива я решил оставить в коллекции только дебютник "Shadow Of The Moon", посчитав все остальные работы довольно вторичными. Да, своя фишка была найдена, но сколько можно её эксплуатировать, сколько можно играть одно и то же? Ну а последние творения Блэкмора и Со (имеется в виду до выхода в свет рассматриваемого в данной рецензии альбома), "Winter Carols" и "The Village Lanterne", вообще ничего, кроме скуки, не вызвали. Поэтому от "Paris Moon", вышедшего в формате DVD+CD, я ничего особенного тоже не ждал. И не зря. DVD состоит из концерта в парижском зале&nbsp;"Олимпия", который был посвящен десятилетию Blackmore's Night,&nbsp;и довольно жидкого дополнительного материала. Аудиодиск - вообще загадка, так как туда включены почему-то лишь 9 треков с данного концерта (а всего их 20, включая 'Introduction' и соло на клавишных) плюс бонусы 'The Village Lanterne' (studio version) и 'All Because Of You' (radio edit). Очень ценный довесок, ничего не скажешь. Впрочем, артистам и лейблу виднее, не нам решать, что куда включать. Сам же концерт тоже особого впечатления не произвел. Как-то уже всё делается слишком по инерции, по накатанной дорожке, весь шарм прежних выступлений группы куда-то пропал. Сам маэстро Блэкмор почти всё время держится в тени, наигрывая прекрасно уже известные всем мелодии. С последнего к тому моменту альбома "The Village Lanterne" исполняется всего четыре, если не ошибаюсь, вещи - несколько странно, если честно, а вот любимую многими 'Wish You Were Here' вообще не включили в сет-лист, хотя, быть может, она уже навязла в зубах, точнее, в ушах. Ну а зачем тогда было исполниять 'Soldiers Of Fortune'? Впрочем, опять-таки, хозяин - барин. Небольшой всплеск ближе к окончанию концерта, когда дядька Черномор решил таки взять в руки давно покрывшуюся мхом электрогитару и вспомнить дела давно минувших дней - это, скорее, просто несколько приятных минут, чтобы поностальгировать по временам Deep Purple и Rainbow. Любопытно, что на парижском концерте Blackmore's Night, кроме упомянутых "Солдат удачи", играют еще несколько каверов: 'Ariel' (Rainbow), 'Rainbow Blues' (Jethro Tull), 'Diamonds And Rust' (Joan Baez) и 'Saint Teresa' (Joan Osborne), хотя, конечно, первые две названные песни по отношению к Блэкмору каверами называть не очень корректно. Возможно, у фанатов Blackmore's Night "Paris Moon" вызовет безудержную радость, но остальным вряд ли стоит тратить время. И если вы всё-таки любите этот коллектив, а на российские выступления вам попасть так и не удалось, то купите лучше двойной DVD "Castles And Dreams" с концертом в крепости и куда более интересным дополнительным и бонус-материалом, чем на данном издании. А оценку ставить не буду, просто памятуя о том, какой вклад в своё время сделал Ричи Блэкмор в сокровищницу мировой рок-музыки.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 14.10.2008 news Ritchie Blackmore женился
+
+<IMG height=167 alt="" hspace=0 src="/images/news_rus/2008.10/12941.gif" width=250 align=right border=5>Знаменитый гитарист<STRONG> Ritchie Blackmore</STRONG> наконец-то вступил в брак со своей коллегой по группе <STRONG>Candice Night</STRONG>. Скромная церемония состоялась 5 октября в замке Хадсон.
+Автор: Vit Belov
+
+### 27.07.2010 news У BLACKMORE&#39;S NIGHT родился ребенок
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не только творческий, но и физический союз гитариста<STRONG> Ritchie Blackmore</STRONG> и вокалистки <STRONG>Candice Night</STRONG> дал первые плоды. 27 мая у четы родилась дочь, которую назвали <STRONG>Autumn Esmerelda. </STRONG>65-летний бывший гитарист <STRONG>DEEP PURPLE</STRONG> и 39-летняя звезда folk-музыки поженились 5 октября 2008 года.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=553 src="/images/news_rus/2010.07/16958.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 08.11.2010 news Видео BLACKMORE&#39;S NIGHT
+
+<P>Клип<STRONG> BLACKMORE'S NIGHT</STRONG> на песню <STRONG>"Highland" </STRONG>можно посмотреть ниже. Песня попала на новый альбом группы <STRONG>"Autumn Sky".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mZC_PT6g6Kk&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/mZC_PT6g6Kk&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Blackmore's Night 'Fires At Midnight'

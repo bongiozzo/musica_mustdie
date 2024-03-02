@@ -123,6 +123,397 @@ Rob Affuso - Drums
 
 * C группой "Sebastian Bach" Sebastian Bach (vocal)
 
+## Публикации
+
+### 04.05.2001 news SKID ROW нашли продюссера....
+
+<p>SKID ROW наняли себе продюссера Steven Haigler (работавшего с FUEL, CLUTCH, PIXIES, OLEANDER, QUICKSAND) для работы над новым альбомом, выход которого ожидается летом. Альбом станет дебютом для нового вокалиста Johnny Solinger. Пишутся ребята в New Jersey studio.</p>
+
+Автор: Yermola
+
+### 04.05.2001 news SKID ROW have lined up producer ....
+
+<p>SKID ROW have lined up producer Steven Haigler (i.e. FUEL, CLUTCH, PIXIES, OLEANDER, QUICKSAND) to man the boards for their upcoming effort (the group's first with new vocalist Johnny Solinger), which is currently being recorded at a New Jersey studio for a summer release. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.04.2002 news Экс-Мегадетовцы присоединились к Себастьяну Баху....
+
+<p>Участники MEGADETH бассист David Ellefson и гитарист Al Pitrelli (также SAVATAGE) присоединились к ex-SKID ROW вокалисту Sebastian Bach для серии концертов с 10 по 22 мая. Pitrelli будет временной заменой для постоянного гитариста Баха - Richie Scarlet, который сейчас занят со своей командой MOUNTAIN.</p>
+
+Автор: Yermola
+
+### 29.04.2002 news Ex-MEGADETH Bassist, Guitarist To Join SEBASTIAN BACH&#39;s Touring Line-Up ...
+
+<p>Former MEGADETH bassist David Ellefson and guitarist Al Pitrelli (currently in SAVATAGE) will be joining ex-SKID ROW singer Sebastian Bach and his touring group (which includes former ANTHRAX axeman Paul Crook), for several live shows beginning with a two-night stint at Stone Pony in Asbury Park, New Jersey on May 10-11. The confirmed dates are as follows: <BR><BR> May 10 - Asbury Park, NJ @ The Stone Pony <BR> May 11 - Asbury Park, NJ @ The Stone Pony <BR> May 15 – Towson, MD @ Recher Theatre<BR> May 16 – Wantagh, NY @ Mulcahy's <BR> May 17 – Hartford, CT @ Webster Hall <BR> May 18 - Clifton Park, NY @ Northern Lights <BR> May 22 - New York, NY @ Irving Plaza<BR><BR> Pitrelli will be filling in temporarily for regular Bach guitarist Richie Scarlet, who is currently busy touring with MOUNTAIN. Ellefson's appearance, on the other hand, has yet to be officially confirmed, although several outlets—including Tickets.com—are already advertising it in conjunction with the above-listed dates.<BR><BR> In related news, Bach has confirmed via his official web site that VH1 has pulled the plug on his Forever Wild show following the airing of episode #13 and the cable channel has instead “offered me a brand new show that would air at 4 PM in the afternoon, but would feature much more commercial videos than Forever Wild, so I am not sure if I am going to take them up on [it],” Sebastian wrote.</p>
+
+Автор: Yermola
+
+### 01.05.2002 news New SKID ROW material
+
+<p>The first new single release in several years, featuring singer Johnny Solinger, is titled Thick Is The Skin. The song has been released to a few radio stations in the U.S. with more to follow. skidrowonline.com will feature a full length download of the song from the end of this week. But right here, right now - here's an exclusive preview of Skid Row rocking hard in 2002! Download the first 2 minutes of the song Thick Is The Skin now!</p>
+
+Автор: Dimas
+
+### 01.05.2002 news Новый материал SKID ROW
+
+<p>В самое ближайшее время выйдет новый сингл "Thick Is The Skin" американской группы SKID ROW с участием нового вокалиста Johnny Solinger. Первые две минуты этого сингла можно послушать <A HREF="http://www.melodicrock.com/audio/SkidRow-ThickIsTheSkin.mp3">здесь</A>.</p>
+
+Автор: Dimas
+
+### 05.06.2003 news Бесчувственный SKID ROW
+
+<p>22 июля увидит свет новый альбом группы SKID ROW под названием "Thickskin". выйдет он на собственном лэйбле группы. Музыканты обещают агрессивный материал в духе первых двух ее альбомов "Skid Row" и "Slave to the Grind". В составе группы гитарист Dave "Snake" Sabo, басист Rachel Bolan, вокалист Johnny Solinger и ударник Phil Varone. Трэк-лист альбома:</p>
+<p> 1. New Generation <BR> 2. Ghost <BR> 3. Swallow Me (The Real You) <BR> 4. Born A Beggar <BR> 5. Thick Is The Skin <BR> 6. See You Around <BR> 7. Mouth Of Voodoo <BR> 8. One Light <BR> 9. I Remember You Two <BR> 10. Lamb <BR> 11. Down From Underground <BR> 12. Hittin' A Wall</p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 31.10.2006 reviews Утопающий хватается за соломинку
+
+<P>Зададимся вопросом: а много ли для нас значат Skid Row без Себастиана Баха? Не будем сейчас обсуждать причины его ухода и отношения между участниками легенды американского глэма. Как бы то ни было, с уходом певца-канадца Skid Row стали резко терять популярность. Суперуспешными были только два первых альбома группы. Хитов уровня '18 & Life' или&nbsp;'I Remember You' (под которые рыдали и сходили с ума многие тысячи и мальчиков, и - особенно - девочек) не последовало, хотя основные авторы песен никуда, в отличие от Баха, не делись. После длительного "отдыха" Skid Row решили все-таки устроить свой comeback, но пластинка 2003-го года "Thickskin" успеха не имела. Однако почему-то бывшие легенды глэма сдаваться не собираются и выпускают в этом году еще одну пластинку, "Revolutions Per Minute". Даже при всем моем уважении к бывшим заслугам группы я вынужден констатировать, что Skid Row лучше было бы прекратить записывать пластинки, во всяком случае под этим названием. Время летит быстро, и то, что было 15 и более лет назад, уже вернуть сложно и даже невозможно. Несмотря на то, что продюсером "Revolutions Per Minute" выступил Michael Wagener, который как раз работал с группой на первых двух лонгплеях&nbsp;"Skid Row" и "Slave To The Grind", воссоздать "тот дух" не получилось. Дабы как-то возместить полное отсутствие хитов на новой пластинке, Skid Row решили "подключить" кантри и вестерн ('When God Can't Wait', 'You Lie'&nbsp;), не забыв и о "стадионном роке" (как, например, в 'Strength') и панке с губной гармошкой ('White Trash'). Результат, увы, нельзя назвать выдающимся. Данный релиз может понравиться разве что упертым фанатам, которые будут слушать Skid Row в любом случае, что бы они ни записали. Новых же поклонников группа с таким материалом вряд ли заполучит. Вообще, всё это очень похоже на хватание утопающего за соломинку. Впрочем, если вы не слышали "тех настоящих Skid Row", то, может, прореагируете на "Revolutions Per Minute" и более позитивно.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.11.2010 news Phil Varone (ex-SKID ROW) на обложке журнала &quot;Playgirl&quot;
+
+<P><B itxtvisited="1"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17552.jpg" width=350 height=476>Phil Varone</B>, бывший барабанщик <B itxtvisited="1">SKID ROW</B>, недавно воссоединившийся со своей первой группой <B itxtvisited="1">SAIGON KICK</B>, будет красоваться на обложке нового номера журнала <B itxtvisited="1">Playgirl</B>, который поступит на прилавки 15 декабря 2010. Публикация посвящённая <STRONG>Phil</STRONG>'у займёт целых 20 страниц журнала.</P>
+<P><STRONG>Phil Varone</STRONG>, который являлся одним из восьми пациэнтов серий передач <STRONG>"Celebrity Rehab" </STRONG>("Реабилитация Знаменитостей")&nbsp;программы <B itxtvisited="1">"Sex Rehab With Dr. Drew"</B>,&nbsp;рассказал сайту&nbsp;<B itxtvisited="1">Gossip Ain't Sweet</B> о своей фотосесии для <STRONG>Playgirl</STRONG>: <EM>"Фотограф был просто фантастический. У нас была двухдневная интерактивная съёмка в&nbsp;Нью-Йорке."</EM></P>
+<P>Сорокадвухлетний <STRONG>Varone</STRONG>, недавно сделал предложение своей подруге Татьяне (полное имя - <B itxtvisited="1">Achsha Tatiana EeLise Lamb</B>) и планирует жениться в&nbsp;2011 году.</P>
+<P>В&nbsp;интервью сайту <STRONG>RadarOnline.com</STRONG> Фил сказал о своих отношениях с Татьяной:&nbsp;<EM>"Мы находимся в свободных отношениях и наслаждаемся образом жизни, когда&nbsp;каждый может заниматься сексом с другими людьми"</EM>, а потом добавил, что <EM>"секс с другими людьми делает отношения более сильными."</EM></P>
+<P><STRONG>Varone</STRONG> - опытный барабанщик, музыкальный продюсер и автор песен, известный прежде всего&nbsp;своей работой с группами <STRONG>SAIGON KICK</STRONG> и <STRONG>SKID ROW</STRONG>. В 2004 году&nbsp;Фил покинул <STRONG>SKID ROW </STRONG>и музыкальный бизнес, чтобы&nbsp;заняться&nbsp;актерством и&nbsp;эстрадной&nbsp;комедией. После переезда в Лос-Анджелес, он провел первые два года продюсируя полнометражное документальное кино&nbsp;<STRONG>"Waking Up Dead"</STRONG>. Фил также читает лекции в колледжах на территории&nbsp;С.Ш.А. и является создателем и ведущим шоу <STRONG>"Sex Stand Up and Rock and Roll Show"</STRONG>.</P>
+Автор: Headcrusher
+
+### 09.04.2015 news Группа SKID ROW поменяла вокалиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.04/27890.jpg" width=350 height=465>Американская группа <STRONG>SKID ROW</STRONG> поменяла вокалиста. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Место ушедшего Джонни Солинджера (<STRONG>Johnny Solinger</STRONG>) знаял, нет, не Себастьян Бах (<STRONG>Sebastian Bach</STRONG>), а мужчина по имени <STRONG>Tony Harnell </STRONG><EM>(на фото).</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американский граждадин <STRONG>Tony Harnell</STRONG> известен прежде всего за своё участие в норвежской группе тяжёлого рока, <STRONG>TNT</STRONG>. Вокал&nbsp; <STRONG>Tony</STRONG> можно услышать на&nbsp;их&nbsp;восьми студийных альбомах.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальный сайт вокалиста: <A href="http://www.tonyharnell.com/">http://www.tonyharnell.com</A></FONT></P>
+Автор: Headcrusher
+
+### 14.04.2015 news SKID ROW: &quot;18 And Life&quot; с Тони Харнеллом
+
+<P>Группа <STRONG>SKID ROW</STRONG> опубликовала версию своего нетленного хита <STRONG>"18 And Life"</STRONG> спетую Тони Харнеллом, новым вокалистом коллектива.</P>
+<CENTER>
+<DIV style="BORDER-BOTTOM: 0px; BORDER-LEFT: 0px; PADDING-BOTTOM: 0px; MARGIN: 0px; PADDING-LEFT: 0px; WIDTH: 100%; PADDING-RIGHT: 0px; DISPLAY: inline-block; HEIGHT: 104px; BORDER-TOP: 0px; BORDER-RIGHT: 0px; PADDING-TOP: 0px" class=widget_iframe><IFRAME class=widget_iframe height="100%" src="http://www.reverbnation.com/widget_code/html_widget/artist_24471?widget_id=50&pwc[design]=default&pwc[background_color]=%23333333&pwc[included_songs]=0&pwc[song_ids]=23343280&pwc[photo]=0%2C1&pwc[size]=fit" frameBorder=0 width="100%" scrolling=no></IFRAME>
+<DIV style="MARGIN-TOP: -5px; FONT-FAMILY: Arial; FONT-SIZE: 10px" class=footer_branding>
+<CENTER><A href="http://www.reverbnation.com/band-promotion/how-to-sell-music-on-itunes?utm_campaign=a_features_distribution&utm_medium=widget&utm_source=HTML5_Player&utm_content=widgetfooter_Sell music on itunes at ReverbNation.com" target=_blank>Sell music on itunes at ReverbNation.com</A></CENTER></DIV></DIV></CENTER>
+Автор: Headcrusher
+
+### 05.01.2016 news Вокалист Tony Harnell покинул группу SKID ROW
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2016.01/28648.jpg" width=400 height=359>Вокалист <STRONG>Tony Harnell</STRONG> <EM>(на фото)</EM> покинул группу <STRONG>SKID ROW</STRONG>, о чём сообщил на своей странице в Facebook, добавив при этом, что ему не по душе, когда его игнорируют и не уважают.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ждём новостей о том, кто станет&nbsp;его&nbsp;приемником.</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Skid Row- любовь с первого альбома.

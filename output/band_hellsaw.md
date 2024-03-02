@@ -44,6 +44,46 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2009 reviews Стандартный хороший black-metal
+
+<P>Австрийские black-metal’исты HELLSAW совершили головокружительный прыжок в своей карьере. Проект музыкантов столь же неизвестной группы SANGUIS, выпустив два альбома на UG лэйблах Black Attakk и Folter, каким-то чудом со своей третьей работой оказался на Napalm Records.</P>
+<P>Безусловно, за свою долгую историю Napalm Records работали и с «чёрными» командами, но в настоящее время боссов этой конторы привлекают язычники и девушки, а отнюдь не размалёванные сатанисты. И всё же “Cold” увидел свет именно на Napalm Records. Как вы, я думаю, уже поняли, я не смог обнаружить в музыке этой группы того, что повлияло на этот результат. Мрачные, холодные, где-то даже мелодичные black-metal прогоны, безусловно, заслуживают внимания любителей стиля, но чем-то выдающимся отнюдь не являются. Есть на альбоме несколько приятных моментов с использованием акустической гитары, и есть несколько мест со странными риффами. Вот, пожалуй, и всё.</P>
+<P>HELLSAW можно смело рекомендовать любителям несимфонического black-metal. Что-то для себя здесь может найти каждый из них. Но вот, ориентируясь на выпускающий лэйбл, относить эту группу к лидерам жанра не стоит.</P>
+Автор: Vit Belov
+
+### 19.07.2011 news HELLSAW начали запись
+
+<P>Австрийские блекеры <STRONG>HELLSAW</STRONG> начали запись четвёртого альбома в <STRONG>Dreamsound Studios </STRONG>в Мюнхене. Пластинка получила название <STRONG>"Trist" </STRONG>и запланирована к выходу на 2012 год. </P>
+<P><STRONG>HELLSAW</STRONG> утверждают, что новый альбом будет более мрачный, чем предшественник "<STRONG>Cold</STRONG>", вышедший в 2009 году на <STRONG>Napalm Records/Irond</STRONG>.</P>
+<P><center><IMG height=246 src="/images/news_rus/2011.07/20222.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 21.01.2012 news Трейлер нового HELLSAW
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом австрийцев<STRONG> HELLSAW "Trist"</STRONG> выйдет 24 февраля на<STRONG> Napalm Records</STRONG>. Пластинка была записана прошлым летом в студии <STRONG>Dreamsound </STRONG>в Мюнхене. Сэмпл-клип можно послушать ниже. В марте коллективу предстоит тур по России, австрийцы посетят Москву, Самару, Магнитогорск, Екатеринбург, Киров, Чебоксары, Нижний Новгород.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/rbHDfBv0-c4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 25.02.2012 news HELLSAW: видео на песню &quot;Trist&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Австрийцы <STRONG>HELLSAW</STRONG> выложили новое видео на песню <STRONG>"Trist"</STRONG>. Совсем скоро группа даст серию концертов по российским городам. Даты тура,&nbsp;как и сам клип,&nbsp;можно увидеть ниже.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/0CF6NIkKygA" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P>&nbsp;</P>
+<P><STRONG>1 марта</STRONG> - Москва - клуб "Rock House"</P>
+<P><STRONG>2 марта</STRONG> - Санкт-Петербург - клуб "Арктика"</P>
+<P><STRONG>3 марта</STRONG> - Рязань - мото-кафе "Логово" </P>
+<P><STRONG>4 марта</STRONG> - Самара - клуб "Кратер"</P>
+<P><STRONG>5 марта</STRONG> - Тольятти - клуб "Культура" </P>
+<P><STRONG>7 марта</STRONG> - Магнитогорск - клуб "Бункер"</P>
+<P><STRONG>8 марта</STRONG> - Екатеринбург - клуб "Luna"</P>
+<P><STRONG>9 марта</STRONG> - Киров - клуб "Казантип"</P>
+<P><STRONG>10 марта</STRONG> - Чебоксары - клуб "Бункер"</P>
+<P><STRONG>11 марта</STRONG> - Нижний Новгород - клуб "28 Street"</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

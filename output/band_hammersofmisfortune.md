@@ -88,6 +88,16 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.09.2011 news Новый альбом HAMMERS OF MISFORTUNE
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.09/20954.jpg" width=475 align=right border=0>Новый альбом оригинальной американской группы <STRONG>HAMMERS OF MISFORTUNE "17th Street" </STRONG>выйдет 24 октября. Коллектив предлагает смесь NWOBHM, thrash, doom и&nbsp;американской folk музыки. Трек-лист:</P>
+<P>01. <B>317</B><BR>02. <B>17th Street</B><BR>03. <B>The Grain</B><BR>04. <B>Staring (The 31st Floor)</B><BR>05. <B>The Day the City Died</B><BR>06. <B>Romance Valley</B><BR>07. <B>Summer Tears</B><BR>08. <B>Grey Wednesday</B><BR>09. <B>Going Somewhere</B></P>
+<P>Состав:<BR><STRONG>John Cobbett</STRONG>: Guitar<BR><B>Chewy Marzolo</B>: Drums<BR><B>Sigrid Sheie</B>: Organ, Piano, Vocals, Flute<BR><B>Leila Abdul-Rauf</B>: Guitar, Vocals<BR><B>Joe Hutton</B>: Vocals<BR><B>Max Barnett</B>: Bass</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

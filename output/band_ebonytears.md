@@ -44,6 +44,39 @@
 * C группой "Therion" Richard Evensand (drums)
 * C группой "Soilwork" Richard Evensand (drums)
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Ebony Tears закончили запись нового альбома "A Handful Of Nothing". Новый альбом более брутальный и быстрый. Выпуск CD намечен на конец апреля. На японском варианте будет кавер Deep Purple "Bloodsucker".</p>
+
+Автор: Vit Belov
+
+### 20.08.1999 reviews 
+
+<p>Очень удивила меня новая работа этих шведов. Предыдущий альбом меня очень порадовал. Жёсткая, быстрая и мелодичная музыка берущая своё начало из самого первого творения DARK TRANQUILLITY. При этом использование женского вокала и скрипичных партий, готические элементы делали эту музыку более-менне оригинальной. казалось, что если они будут развиваться и далее, то достигнут больших высот. но что мы имеем. Музыка стала более жёсткой, даже драйвовой, более быстрой, всё такая же мелодичная (в духе шведского death-black'a), но куда-то исчезли все оригинальные моменты. В итоге имеем хороший материал в духе DARK TRANQUILLITY смешанного с DISMEMBER, но не более. (7,5)</p>
+
+Автор: Dimas
+
+### 07.11.2000 news Ebony Tears возвращаются на сцену.
+
+<p>После нескольких лет с Dog Faced Gods Джонни и Конни решили снова направить свою энергию на Ebony Tears. Их второй CD "A Handful Of Nothing" был скорее индивидуальным проектом Джонни и Конни, нежели творчеством группы, но на сей раз Ebony Tears - реальная группа: ударник Ричард Евенсанд - теперь постоянный участник, а также в команду пришёл новый басист Питер Кам. Всю последнюю пару месяцев парни репетировали новый материал для своего третьего альбома, запись которого состоится в Studio Underground в декабре. Выход релиза запланирован на февраль / март 2001 года. Этот новый альбом соединенит в себе достоинства предыдущих - мягкость и использование скрипки из "Tortura Insomniae " с трэшевой скоростью "A Handful Of Nothing".</p>
+
+Автор: Morsus
+
+### 07.11.2000 news Ebony Tears are back in the game again.
+
+<p>After spending some years with Dog Faced Gods, Johnny and Conny have decided to spend their energy on Ebony Tears again. Their second CD "A Handful Of Nothing" was more like a project for Johnny and Conny than a group effort but this time EBONY TEARS are a real band! The drummer Richard Evensand is now a permanent member and so is the new bass player Peter Kahm. The guys have spent the last couple of months rehearsing new material for the recording of their 3rd album which will take place at Studio Underground in December. Release is planned for February/March 2001. This new album will be a mix between their first 2 CDs. The catchiness and use of the violin from "Tortura Insomniae" combined with the thrashy speed of "A Handful Of Nothing".</p>
+
+Автор: Morsus
+
+### 24.10.2001 reviews Злой, как ад!
+
+<p>Новый диск Ebony Tears я покупал с небольшими опасениями, ведь сейчас все звезды melodic death metal начинают играть непонятно что. Некоторым правда удается сделать что-то стоящее, но многим - нет. Ebony Tears распались 2 года назад, выпустив 2 отличных альбома, и играли angry-metal под названием Dog Faced Gods. Но в начале 2001 года они объявили о воссоединении под именем Ebony Tears и о начале записи нового альбома. И вот он вышел... Чтоже мы имеем - диск, который лучше было выпустить под названием Dog Faced Gods - по музыке это быстрый трэш метал, с небольшими элеметнами industrial. От melodic death не осталось и следа. И все бы было не так плохо, если бы этот диск был интересным, а на деле мы имеем второсортный трэш с нудным вокалом. Многие шведские команды внесли в свою музыку элементы трэша - Soilwork, The Crown, Duskfall. Ebony Tears решили пойти еще дальше, и у них получилась совершенно никакая пластинка. Очень одидно услышать такую слабую работу от некогда сильной и перспективной группы.</p>
+
+Автор: Vic Thor
+
+
 ## Обсуждения
 
 

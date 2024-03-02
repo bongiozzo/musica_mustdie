@@ -284,6 +284,621 @@ Gus Rios - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.10.1999 news 
+
+<p>Malevolent Creation работают над новым альбом, перед выходом которого выйдет ещё и двойной концертник. Также участники группы заняты в совместном проекте вместе с музыкантами Sadistic Noise.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Malevolent Creation готовят материал для нового альбома. Их новый альбом будет записан в июне и появится в продаже уже в самом начале осени.</p>
+
+Автор: Vit Belov
+
+### 06.10.2000 news Malevolent Creation выпускают свой 7-й альбом.
+
+<p> После 13 лет совместной работы Malevolent Creation открывают новую главу в своей карьере и оставляют новый след в истории тяжёлого металла, выпуская 7-ой полноформатный релиз "Envenomed". Это часть самой тяжелой и самой быстрой музыки наших времен. Европейская дата выпуска нового альбома - 30-ого октября. 11 гимнов музыкального холокоста расположены в следующем порядке: "Homicidal Rant", "Night Of The Long Knives", "Kill Zone", "Halved", "Serial Dementia", "Bloodline Severed", "Pursuit Revised", "Conflict", "Viral Release", "The Deviant's March", "Envenomed".</p>
+
+Автор: Morsus
+
+### 06.10.2000 news MalevolentCreation release their 7th album.
+
+<p> After 13 years together, Malevolent Creation unleash a new chapter in their career and another stab at heavy metal history with the release of their 7th full length studio release "Envenomed". It's some of the heaviest and fastest music of our times. The European release date for new album is October 30th. The track listing for this 11 song musical holocaust goes as follows: "Homicidal Rant", "Night Of The Long Knives", "Kill Zone", "Halved", "Serial Dementia", "Bloodline Severed", "Pursuit Revised", "Conflict", "Viral Release", "The Deviant's March", "Envenomed".</p>
+
+Автор: Morsus
+
+### 21.03.2001 news Тур Malevolent Creation отменён
+
+<p>Тур Malevolent Creation по США отменён. После возвращения из Европы на американской таможне был взят под стражу вокалист Бретт Хоффман (Бородин, хе-хе). Ему вменяют какие-то там дела ещё за 1995 год. За решёткой он проведёт более 60 дней.</p>
+
+Автор: Vit Belov
+
+### 26.03.2001 news Новости HATEPLOW
+
+<p>HATEPLOW, известные наличием в своем составе гитаристов MALEVOLENT CREATION - Phil Fasciana и Rob Barrett заканчивают написание музыки для ожидаемого продолжения диска The Only Law Is Survival. Новый альбом окажется первым для новичка-бассиста Julian Hollowell (ранее игравшего в блэк акте KULT OV AZAZEL).</p>
+
+Автор: Yermola
+
+### 26.03.2001 news HATEPLOW
+
+<p>HATEPLOW, featuring MALEVOLENT CREATION guitarists Phil Fasciana and Rob Barrett, are currently writing the music to their follow up to last year's The Only Law Is Survival CD, and the new material is said to be “even faster and leaning towards a more grindcore sound” than their previous output. The upcoming CD, which is still untitled and tentatively scheduled for release before the end of the year, will mark the recording debut with the group of new bassist Julian Hollowell (aka Xaphan of black metal band KULT OV AZAZEL).</p>
+
+Автор: Yermola
+
+### 01.05.2001 reviews Смертельное отравление
+
+<p> Это не просто музыка, это вихрь, ураган!!! Во времена тотального увлечения пауэром и блэком, настоящий дэт-метал практически забыт, но остались адепты стиля, которые умеют делать настоящую музыку, и записывать ломовейшие, убойнешие альбомы!!! Таких групп осталось мало.... к сожалению. Malevolent Creation знают как надо делать музыку. Еще бы - чего можно ожидать от таких людей как Brett Hoffmann, Rob Barrett, Phil Fasciana. Их вкусы неподвластны моде - "Свой исконный стиль мы никогда ни на что не поменяем. Только дэт-метал. Все остальное для меня не музыка" - говорит Phil Fasciana. Envenomed - это убийственная смесь мясного американского, и более мелодичного, европейского дэта. Похоже, мы имеем дело с лучшим альбомом группы и лучшим альбомом в этом стиле за последнее время. Отложите на время последние релизы Vader, Nile, Dies Irae, поставьте в проигрываетль этот диск, и вам не захочется его вынимать в ближайшие несколько месяцев. Звук, доносящийся из динамиков заставляет дрожать! 11 трэков с Envenomed являются отличным средством в борьбе с надоевшими соседями. Так что все бегом в ближайшую палатку за этим компактом, потом локти кусать будете.</p>
+
+Автор: Vic Thor
+
+### 25.06.2001 reviews Отравленные...
+
+<P>Эхх-ты! Вот это да! Оговорюсь сразу: я этот диск слушать вообще не хотел: ЗАСТАВИЛИ !!! За что добрым людям большое спасибо. Вот уже много лет как я раз и навсегда поставил на MALEVOLENT CREATION большой жирный крест. После нескольких до нельзя серых и вымученных работ, с очередной порцией кривизны и примитива знакомиться не было совершенно никакого желания, но 2000-я работа нового состава "Злобного Создания", который в 1998 году намучивал что-то совсем неудобоваримое, сразила просто наповал. Как это ни грустно констатировать, но многие предыдущие альбомы группы оставляли такое впечатление, что ребята, вроде-бы, и играть-то могут, и техника неплохая, и мощь скрытая, вроде, есть, но ни в какую не хотят горбатиться, а потихонечку коптят небо процентов эдак на двадцать от всего своего потенциала, и ни за что не желают выкладываться в полную силу - и чем дальше, тем это впечатление все больше усиливалось, а альбом 1998-го года, сыгранный в новом составе: с новыми гитаристом, басистом, ударником, а также с вернувшимся вокалистом Bret-ом Hoffman-ом, где ребята не пойми зачем брались играть вообще все подряд, вплоть до танцевальных медляков, вконец усугубил и без того мрачную картину. Новый же релиз просто ошарашивает, сбивая с ног, как лягнувшая копытами лошадь: такое впечатление, что та оболочка, в которой нерастраченная энергия группы старательно копилась много лет, наконец не выдержала и с треском лопнула, а ребята одним разом выплеснули всю свою мощь, что так старательно экономили много лет. Результат: напрочь сносящий все крыши, образцово сыгранный скоростной DEATH METAL, просто совершенно безукоризненно и гармонично сливший в себе крайнюю тяжесть и жестокость brutal-death с напором скоростью и агрессией thrash и восхитительным мелодизмом в сочетании с интересным разнообразием представленных музыкальных тем. Никакого мажорства, визготни, компьютерщины, драммашиновщины и синтезаторщины - безупречная, сильная, честно и без жульничества сыгранная ураганная работа, в которой совершенно не к чему придраться. Brett Hoffmann и Phil Fasciana, стоявшие у истоков группы, и их команда, наконец-то, полностью реализовали себя, а новый альбом настолько хорош, что я, прослушав его уже не один раз, напрочь забыл не только про дешевый коммерческий примитивизм вымученного "The Fine Art of Murder", но и про все их остальные работы - даже про очень уважаемые первые три, вышедшие еще на Road Runner и вполне заслуженно ставшие классикой жанра. Действительно, единственное, что можно сказать тем, кто еще не слышал "Envenomed": "Бегом в магазин!!!".</P>
+Автор: Alexey Pitirimov
+
+### 29.11.2001 news KREATOR, SODOM, and DESTRUCTION European tour...
+
+<p>Florida female-fronted act WYKKED WYTCH, featuring DIVINE EMPIRE/ex-MALEVOLENT CREATION bassist Jason Blachowicz, has secured the opening slot for the KREATOR, SODOM, and DESTRUCTION European tour, dubbed Hell Comes To Your Town, after HOLY MOSES were forced to pull out of the trek in order to concentrate on the writing and recording of their new studio album. The confirmed dates for the outing are as follows: <BR><BR> Dec. 26 – Ludwigsburg, GER @ Rockfabrik <BR> Dec. 27 - Bochum, GER @ Zeche <BR> Dec. 28 – Zaandam, NETH @ De Kade <BR> Dec. 29 - Hamburg, GER @ Markthalle <BR> Dec. 30 - Halle, GER @ Easy Schorre <BR> Dec. 31 - Osnabrьck, GER @ Hyde Park <BR> Jan. 02 - Offenbach, GER @ Hafenbahn <BR> Jan. 03 - Dorndorf, GER @ Kulturhaus <BR> Jan. 04 - Glauchau, GER @ Alte Spinnerei <BR> Jan. 05 - Berlin, GER @ Music Hall Berlin <BR> Jan. 06 – Warschau, POL @ Proxima <BR> Jan. 07 – Katowice, POL @ Mega Club <BR> Jan. 09 - Nьrnberg, GER @ Hirsch <BR> Jan. 10 – Dornbirn, AUS @ Conrad Sohm <BR> Jan. 11 – Salzburg, US @ Rockhaus <BR> Jan. 12 – Wien, AUS @ Planet Music <BR> Jan. 14 – Ravenna, ITA @ Rock Planet <BR> Jan. 15 – Pratteln, SWI @ Z 7 <BR> Jan. 16 - Andernach, GER @ JUZ Live Club <BR> Jan. 17 - Cottbus, GER @ Gladhouse <BR> Jan. 18 - Lьbeck, GER @ Holstentorhalle <BR> Jan. 19 – Motala, SWE @ Folkets Park <BR> Jan. 20 – Oslo, NOR @ Betong <BR> Jan. 21 – Gothenburg, SWE @ Kеren <BR> Jan. 22 – Stockholm, SWE @ Klubben <BR> Jan. 24 – Helsinki, FIN @ Nosturi</p>
+
+Автор: Yermola
+
+### 10.01.2002 news Malevolent Creation собираются в Abyss Studio ?!?!?
+
+<p>После мощного европейского тура (Англия, Ирландия, Франция, Бельгия, Испания, Швейцария) "Malevolent Creation" отправляются в знаменитую "Abyss Studio", чтобы с продюссером Peter Tagtgren записать свой восьмой альбом "The Will To Kill". Звезда флоридской школы дэта будет записана с "шведским" звуком?!? М-д-я-я-я-а-а....</p>
+
+Автор: Yermola
+
+### 10.01.2002 news Malevolent Creation will go into Abyss Studio?!?!?
+
+<p>Malevolent Creation will be invading the following countries, and then will go into Abyss Studio with producer Peter Tagtgren to record they're 8th studio album. Working title at this time is "The Will To Kill". Florida Death Metal being recorded in Sweden? It should be interesting!<BR><BR> Malevolent Creation//Kataklysm//Catastrophic<BR><BR> March<BR> 3/10/02 UK // T.B.A. <BR> 3/11/02 Ireland // Belfast<BR> 3/12/02 Ireland // Dublin<BR> 3/13/02 UK // Newcastle<BR> 3/14/02 UK // London<BR> 3/15/02 France // Rennes<BR> 3/16/02 Belgium // T.B.A.<BR> 3/17/02 France // Paris<BR> 3/18/02 France // Amneville<BR> 3/19/02 France // Perpignan<BR> 3/20/02 France // T.B.A.<BR> 3/21/02 Spain // Barcelona<BR> 3/22/02 Spain // Murcia<BR> 3/23/02 Spain // Madrid <BR> 3/24/02 Spain // Irun<BR> 3/25/02 France // T.B.A.<BR> 3/26/02 France // T.B.A.<BR> 3/27/02 Switzerland // Wil<BR><BR> No Mercy Festival's<BR> Immortal//Hypocrisy//Vader//Malevolent Creation//Disbelief//Catastrophic//Destroyer 666//Obscenity<BR><BR> March<BR> 3/28/02 Germany // Berlin<BR> 3/29/02 Germany // Engelsdorf<BR> 3/30/02 Germany // Offenbach<BR> 3/31/02 Belgium // Antwerpen<BR><BR> April<BR> 4/1/02 Holland // Tilburg<BR> 4/2/02 Germany // Essen<BR> 4/3/02 Switzerland // Pratteln<BR> 4/4/02 Italy // Milano<BR> 4/5/02 Austria // Vienna<BR> 4/6/02 Austria //Wels<BR> 4/7/02 France // Strasbourg<BR> 4/8/02 Germany // Offenbach<BR><BR> Malevolent Creation will then do a series of dates till May 4th in the following countries: Denmark,Sweden,Norway,Poland,Croatia,Slovenia,Czech Republic and Greece.These dates are being put together at this time,check our website for updates.Then it off to the studio for they're 8th Murderous studio album!</p>
+
+Автор: Yermola
+
+### 23.01.2002 news MALEVOLENT CREATION уволили вокалиста...
+
+<p>Ветераны флоридского дэта "MALEVOLENT CREATION" очистили свои нестройные ряды от пъяницы и дебошира Бретта Хоффмана, променяв его на вокалиста "HATE PLOW" - Kyle Simmons. Как пояснил гитарист Phil Fasciana, Бретт уже достал всех своим поведением, и несмотря на то, что в 1997 году его вновь взяли обратно после первого изгнания, он продолжил развлекаться в свеом стиле. Кайл Симмонс - не чужак для команды, поскольку "HATE PLOW" это грайндовый проект Rob Barrett и Phil Fasciana...</p>
+
+Автор: Yermola
+
+### 23.01.2002 news MALEVOLENT CREATION Replace Frontman With HATE PLOW&#39;s Simmons!
+
+<p>Veteran Florida death metallers MALEVOLENT CREATION have kicked out vocalist Brett Hoffmann and replaced him with HATE PLOW singer Kyle Simmons. Here is guitarist/founder Phil Fasciana's official statement on the matter:<BR> <BR> “For the 2nd time in his career, vocalist Brett Hoffmann has been fired from the band. In 1997 when he was asked to rejoin his former band it was under the condition that there would be no more drug use and his drinking and lifestyle would have to change. All seemed to be well for a while, but when we started to tour his bad habits returned. We have considered replacing him since March when we returned from our European Tour and he was arrested at Miami International Airport for a drug related warrant from 1995. We figured we would give him one more chance when he was released from jail in April, but nothing has changed and he has if anything become worse. We have barely seen him and have not rehearsed with him since his release. We have a new album written that we are recording after the completion of our European Tour that starts in March and we refuse to torture ourselves any further. His permanent replacement is HATE PLOW vocalist Kyle Symons. Kyle is no stranger to MALEVOLENT CREATION as most people know (HATE PLOW is Rob Barrett and Phil Fasciana's grind band) and was the only replacement we would even consider. Both Rob and myself have recorded 2 albums with Kyle and have done 2 tours with him and HATE PLOW, and we know that this will work. We have jammed MALEVOLENT songs with Kyle many times over the years and often wondered what it would be like to have someone as brutal and intense as Kyle singing for MALEVOLENT. Well, now we do!!!!!!!! And it is a f.cking great feeling! With Kyle on vocals we will be able to go to new heights of musical extremities and perform more material from our earliest releases that Brett could no longer perform. At Kyle's request we are also re-recording a few songs from our 3rd album Stillborn when we record the new album. MALEVOLENT CREATION's touring and recording plans will go on as expected and Kyle will make his debut as MALEVOLENT CREATION's frontman March 13th in England where the band begins the first leg of their European Tour with KATAKLYSM and CATASTROPHIC. This marks the beginning of a new era for MALEVOLENT CREATION, and we are very excited about the future of the band. This change will enable us to do so much more musically and will make touring a lot easier for us and all involved. On behalf of myself, Rob Barrett, Gordon Sims and Dave Culross we would like to welcome our friend Kyle Symons into the band and we look forward to our upcoming tour and the creation of our 8th full-length release The Will To Kill in May. If anyone has any doubts about Kyle's abilities as vocalist, please go to the HATE PLOW website or mp3.com and check out any song from HATE PLOW's 2 releases and your doubts will be crushed!”</p>
+
+Автор: Yermola
+
+### 19.02.2002 news Malevolent Creation Tour Update.....
+
+<p>MALEVOLENT CREATION / KATAKLYSM / CATASTROPHIC<BR><BR> 13.03.2002. UK NEWCASTLE @ TRILLIANS<BR> 14.03.2002. UK LONDON @ GARAGE<BR> 15.03.2002. FR RENNES @ L'ANTIPODE<BR> 16.03.2002. BL MACHELEN(zulte) @ KAKKEWIET<BR> 17.03.2002. FR PARIS @ LOCOMOTIVE<BR> 18.03.2002. FR AMNEVILLE @ AFTER CLUB<BR> 19.03.2002. FR PERPIGNAN @ CROCK-MORE<BR> 20.03.2002. FR TRAVEL<BR> 21.03.2002. SP BARCELONA @ MEPHISTO<BR> 22.03.2002. SP MURCIA @ GAMMA<BR> 23.03.2002. SP IRUN @ TUNK<BR> 24.03.2002. SP MADRID @ RITMO & COMPAS<BR> 25.03.2002. SP TRAVEL<BR> 26.03.2002. ITA MILANO @ INDIAN'S SALOON<BR> 27.03.2002. CH WIL @ REMISE<BR> 28.03.2002. D BERLIN @ COLUMBIA HALLE * *<BR> 29.03.2002. D ENGELSDORF @ HELLRAISER * *<BR> 30.03.2002. D OFFENBACH @ HAFENBAHN * *<BR> 31.03.2002. BL ANTWERPEN @ HOF TER LO *<BR> 01.04.2002. NL TILBURG @ 013 *<BR> 02.04.2002. D ESSEN @ ZECHE CARL * *<BR> 03.04.2002. CH PRATTELN @ Z7 * *<BR> 04.04.2002. ITA MILANO @ PALA AQIUATICA * *<BR> 05.04.2002. A VIENNA @ ARENA * *<BR> 06.04.2002. A WELS @ SCHLACHTHOF * *<BR> 07.04.2002. FR STRASBOURG @ LA LAITERIE * *<BR> 08.04.2002. D OSNABRUCK @ HYDE PARK* *<BR><BR> * NO MERCY FESTIVALS<BR> ** WITHOUT KATAKLYSM<BR> EVERY DAY ANOTHER HEADLINNER<BR></p>
+
+Автор: Yermola
+
+### 12.04.2002 news Malevolent Creation have signed with Nuclear Blast
+
+<p>Malevolent Creation have signed with Nuclear Blast for the european territory. They will begin recording the new album "The Will to Kill" this coming summer with Jean-Francois Dagenais of Kataklysm at Victor studio. So you can be sure it will be a masterpiece of brutality and aggression.</p>
+
+Автор: Morsus
+
+### 12.04.2002 news Malevolent Creation вошли в семью Nuclear Blast
+
+<p>Malevolent Creation заключили контракт с Nuclear Blast на распространение своей продукции в Европе. Запись нового альбома "The Will to Kill" начнётся этим летом вместе с Жаном-Франсуа Дагенаисом из Kataklysm в студии Victor. По всем раскладкам, должен получиться шедевр брутальщины и агрессии.</p>
+
+Автор: Morsus
+
+### 28.06.2002 news MALEVOLENT CREATION are set to record their 8th full length album...
+
+<p>Florida Death Metal veterans MALEVOLENT CREATION are set to record their 8th full length album July 10th with producer Jean Francois Dagenais (better known as guitarist/producer for Kataklysm)at Greenhouse FX Studios in Tampa Florida.The new album titled "The Will To Kill" will be the first to feature new vocalist Kyle Symons (Hate Plow) and new drummer Justin DiPinto (x-Divine Rapture).17 song's will be recorded during these session's and promise to be nothing short of pure terror!! 14 new track's,2 re-recorded song's from their 3rd album "Stillborn"(Dominated Resurgency and Carnivorous Misgivings)and a cover of "Metal Melitia" from Metallica(For a tribute cd on Nuclear Blast Records.)The band has also signed a deal with Nuclear Blast Records who will release "The Will To Kill" throughout Europe lat! er this year."The Will To Kill" will be released in the US and Canada through Arctic Music.Look for Malevolent Creation on tour later this year!!!!!!</p>
+
+Автор: Yermola
+
+### 03.07.2002 news Воля к убийству...
+
+<p>С 10 июля флоридские дэтстеры MALEVOLENT CREATION садятся в студию Greenhouse FX для записи восьмого полноформатника "The Will To Kill". Это будет первый релиз для нового вокалиста Kyle Symons (HATE PLOW) и барабанщика Justin DiPinto (ex-DIVINE RAPTURE). Будет записано 17 песен из которых 14 новые, две перезаписанные с третьего альбома Stillborn ("Dominated Resurgency" и "Carnivorous Misgivings") и кавер METALLICA'и "Metal Melitia"... <BR><BR> Как уже сообщалось в Европе альбом выйдет через Nuclear Blast, а в Америке на Arctic Music...</p>
+
+Автор: Yermola
+
+### 19.09.2002 news Воля к убийству II...
+
+<p>Полностью завершена работа над 8-м полноформатником MALEVOLENT CREATION - "The Will to Kill". Запись и микширование проходили во флоридской Mana Recording Studio. Это первый релиз представляющий на вокале Kyle Symons. 40 минут настоящего DEATH METAL! По словам группы единственное слово способное описать новый альбом это: "УБИЙСТВЕННЫЙ". Альбом также будет первым и для Nuclear Blast Records. Продюссированием занимался Jean-Francois Dagenais. На нескольких треках отметился культовый дэт-герой James Murphy записавший также соло к вещи "Assassin Squad". Дата выхода в штатах 5-е ноября, а в Европе - 11-е. Кстати на официальном сайте можно скачать 2-й трек <A HREF="http://malevolentcreation.cjb.net">"Pillage and Burn".</A> Трек-лист: <BR><BR> "The Will To Kill"<BR> "Pillage And Burn"<BR> "All That Remains"<BR> "With Murderous Precision"<BR> "Lifeblood"<BR> "Assassin Squad"<BR> "Rebirth OF Terror"<BR> "Superior Firepower"<BR> "Divide And Conquer"<BR> "The Cardinals Law"<BR> "Burnt Beyond Recognition"</p>
+
+Автор: Yermola
+
+### 19.09.2002 news The Will to Kill II...
+
+<p>MALEVOLENT CREATION have completed work on there 8th studio album "The Will to Kill". Recorded and mixed at Mana Recording Studio in Tampa, Florida this is the first release to feature the savage style of Kyle Symons on vocals. 40 minutes of pure grinding DEATH METAL!!! The only way to describe this new album is DEADLY. This is by far the best produced MALEVOLENT CREATION (courtesy of producer Jean-Francois Dagenais) in many years and the first release for Nuclear Blast Records in Europe. The album will be released on Arctic Music in North America and everywhere else. Guitar legend James Murphy also laid down a few solos for the song "Assassin Squad" which really brings an old school feel to the track. Release date for the US is November 5th and for Europe November 11th. Also US and European tour's are in the works. Offered on the band's website! is a preview to the new album with a free download for the 2nd track "<A HREF="http://malevolentcreation.cjb.net">Pillage and Burn</A>". The track listing for the new album is as follows: <BR><BR> "The Will To Kill"<BR> "Pillage And Burn"<BR> "All That Remains"<BR> "With Murderous Precision"<BR> "Lifeblood"<BR> "Assassin Squad"<BR> "Rebirth OF Terror"<BR> "Superior Firepower"<BR> "Divide And Conquer"<BR> "The Cardinals Law"<BR> "Burnt Beyond Recognition".</p>
+
+Автор: Yermola
+
+### 01.11.2002 news Malevolent Creation to tour with Cannibal Corpse...
+
+<p>Hot off the heels of the release of The Will To Kill, Malevolent Creation waste no time in bringing the devastating new material into the live arena. Malevolent Creation will be heading out on the second leg of the most extreme tour of the fall, joining friends and fellow Floridian's Cannibal Corpse as they trek through and crush Southern audiences. This string of shows will mark the first time that Malevolent Creation have toured the States in five years. Confirmed tour dates as of today are below. <BR><BR> Members of Malevolent Creation will be available for Interviews during their time on the road. For interview or guest list requests, please respond here. Requests are limited and on a first come first serve basis. <BR><BR> The Will To Kill hits the streets this Tuesday, November 5. Full scale touring of Europe and America will commence in 2003. <BR><BR> Tour Dates:<BR><BR> 12/9 San Antonio, TX - Sunset Station <BR> 12/10 Fort Worth, TX - Canyon Club <BR> 12/11 New Orleans, LA - Shim Sham Club <BR> 12/13 Winston-Salem, NC - Ziggy's <BR> 12/14 Spartanburg, SC - Ground Zero <BR> 12/15 Ft. Lauderdale, FL - Culture Room <BR> 12/16 Orlando, FL - The Social <BR> (Possible addition of more West Coast dates to follow. )</p>
+
+Автор: Yermola
+
+### 24.11.2002 news Malevolent Creation выступят на Wacken Open Air 2003
+
+<p>Malevolent Creation анонсировали своё участие в легендарном фестивале Wacken Open Air в 2003 году. Уже известно, что наряду с ними будут участвовать Iced Earth, Stratovarius, Nile, Gamma Ray и Dark Angel. После выхода восьмого студийного альбома группа планирует отправится в массивный тур, в том числе по Штатам вместе с Cannibal Corpse.</p>
+
+Автор: Vit Belov
+
+### 24.11.2002 news Malevolent Creation News
+
+<p>Malevolent Creation have officially been confirmed to perform at one of Europe's hottest summer season metal events, the prestigious Wacken Open Air Festival. Malevolent Creation have the honor of being in the first handful of confirmed bands, joining the likes of Iced Earth, Stratovarius, Nile, Gamma Ray and a reunion by California's Dark Angel that so far have been announced.</p>
+<p>Malevolent Creation Tour Dates w/Cannibal Corpse December 2002 <br> 12/8 El Paso, TX Club 101 <br>12/9 San Antonio, TX - The White Rabbit <br>12/10 Dallas, TX - Canyon Club <br>12/11 New Orleans, LA - Shim Sham Club <br>12/13 Winston-Salem, NC - Ziggy's <br>12/14 Spartanburg, SC - Ground Zero <br>12/15 Ft. Lauderdale, FL - Culture Room 12/16 Orlando, FL - The Social</p>
+
+Автор: Vit Belov
+
+### 11.03.2003 news **** MALEVOLENT CREATION NEWS UPDATE ****
+
+<p>Upon returning home from they're recently completed US Tour Malevolent Creation has decided to replace touring drummer Ariel Alvarado.(for various reasons)His replacement for the upcoming European and South American tours is good friend and Nile drummer Tony Laureano.Tony is no stranger to Malevolent Creation as he has toured the US and Europe with the band for they're "In Cold Blood" tour in 1997.Tony is prepared to sit in on the drums until a permanent drummer is found as long as it does not interfere with Nile's schedule.Interested drummers can submit promo material or contact the band at Ualldie@aol.com.Drummers must be prepared to relocate and have an open schedule for a lot of touring.Of course they must be extremely talented as well.No pussy's or rock star's please!!!!! On April 5th and 6th Malevolent Creation is finally filming and recording shows for they're first live DVD release at the MetalMania Festivals in Poland and Czech for a release in July just before there appearance at Wacken Open Air Festival and Party Sans Open Air Festivals in Germany. <BR><BR> **** EUROPEAN TOUR DATES ****<BR> "Metalmania Festivals 2003" w/ The Exploited,Samael,Saxon, Opeth,Mayhem,Vader,Anathema,Marduk and many more.<BR> 05.04.PL.- KATOWICHE - SPODEK<BR> 06.04.CZ - OSTRAVA - SPORT HALL<BR> "No Mercy Festivals 2003" w/ Testament,Marduk,Death Angel,Nuclear Assault,Die Apokalyptishen Reiter,Pro-Pain and Darkane.<BR> 08.04.UK LONDON - ASTORIA <BR> 09.04.FR PARIS - LA LOCOMOTIVE <BR> 10.04. D ESSEN - ZECHE CARL <BR> 11.04. A WELS - SCHLACHTHOF <BR> 12.04. A VIENNA - PLANETE MUSIC <BR> 13.04. D LUDWIGSBURG - ROCKFABRIK <BR> 14.04. CH PRATTELN - Z7 <BR> 15.04.ITA MILANO - ALCATRAZ <BR> 16.04. D MUNCHEN - ELZER HALLE <BR> 17.04. FR STRASBOURG - LA LAITERIE <BR> 18.04. D ENGELSDORF - HELLRAISER <BR> 19.04. D BERLIN - COLUMBIA HALLE <BR> 20.04. BL ANTWERPEN - HOF TER LOO <BR> 21.04. NL TILBURG - 013 <BR> 22.04. D MUNSTER (breitefeld) - LIVE ARENA w/ Marduk and more.<BR> 23.04. D HAMBURG - MARKTHALLE w/ Cannibal Corpse,Marduk,Immolation and Sinister<BR> 24.04. CZ PRAHA - BLACK PES w/ Marduk and Immolation<BR> 25.04.SLO LJUBLEJANA - METALKOVA w/ Marduk and Immolation<BR> 26.04.HUN BUDAPEST - MEGA CLUB w/ Marduk and Immolation<BR> 27.04.SLK VRUTKY - RC MLYN w/ Marduk and Immolation<BR> 29.04.FR GRENOBLE - L'ENTRE POT w/ Marduk and Immolation<BR> 30.04.FR D'AVIGNON - LA COMIDIE w/ Marduk and Immolation<BR> 01.05.SP IRUN - TUNK w/ Marduk and Immolation<BR> 02.05.SP BARCELONA - MEPHISTO w/ Marduk and Immolation<BR> 03.05.SP MADRID - CARACOL w/ Marduk and Immolation<BR> 04.05.SP MURCIA - MOLOKO w/ Marduk and Immolation<BR> 05.05.PR PORTO - HARD CLUB w/ Marduk and Immolation<BR> 08.05.UK CARDIFF - MS1 w/ Immolation and Aborted<BR> 09.05.IRL DUBLIN - WHELANS w/ Immolation and Aborted<BR> 10.05.UK BRADFORD - RIO w/ Immolation and Aborted<BR> 11.05.SCH GLASGOW - CATHOUSE w/ Immolation and Aborted<BR> 12.05.UK COLCESTER - SOUNDHOUSE w/ Immolation and Aborted<BR> 13.05.UK LONDON - UNDERWORLD w/ Immolation and Aborted<BR> 14.05.BL ZOTTEGEM - MUNDO w/ Immolation and Aborted <BR><BR> **** SOUTH AMERICAN TOUR DATES ****<BR><BR> July, 4th - Curitiba<BR> July, 5th - Sгo Paulo<BR> July, 6th - Brasilia<BR> July, 8th - Porto Alegre<BR> July, 10th - Rio de Janeiro<BR> July, 11th - Recife<BR> July, 12th - Fortaleza<BR> July, 13th - Sгo Luiz<BR><BR> www.malevolentcreation.cjb.net<BR> www.arcticmusicgroup.com<BR> www.nuclearblast.de<BR> www.metallysee.com (european booking)<BR> MALEVOLENT CREATION<BR> P.O. BOX 23519<BR> FT.LAUDERDALE,FL<BR> 33307</p>
+
+Автор: Yermola
+
+### 15.03.2003 news Malevolent Creation сменили тур-барабанщика
+
+<p>После тура по США из группы попросили Ариэля Альварадо, на его место в ближайшем туре по Европе приглашён барабанщик Nile Тони Лауреано. Тони уже ездил с группой по концертам в 1997 году, поэтому он не чужак в Malevolent Creation. Лауреано будет занимать место барабанщика до тех пор, пока его работа в Nile будет это позволять.</p>
+
+Автор: Vit Belov
+
+### 12.07.2003 news Roadrunner Records восстанавливает корни
+
+<p>Roadrunner Records планирует беспрецедентную акцию под названием "The Roots Of Roadrunner". Это будет выпуск серии дисков "The Best Of" от различных известных команд с лэйбла с аннотацией от известных музыкантов, являющихся поклонниками этих коллективов. Выход первых семи дисков из серии запланирован на 22 сентября 2003 года. Среди них:</p>
+<p> "Best Of DEICIDE" <BR> Аннотации от Joey Jordison (SLIPKNOT)</p>
+<p> 1. Dead By Dawn <BR> 2. Carnage In The Temple Of The Damned <BR> 3. Lunatic Of God's Creation<BR> 4. Sacrificial Suicide <BR> 5. Crucifixation <BR> 6. Satan Spawn, The Caco-Daemon <BR> 7. Trifixion <BR> 8. In Hell I Burn <BR> 9. Dead But Dreaming <BR> 10. Once Upon The Cross <BR> 11. They Are The Children Of The Underworld <BR> 12. When Satan Rules His World <BR> 13. Trick Or Betrayed <BR> 14. Behind The Light Thou Shall Rise <BR> 15. Serpents Of The Light <BR> 16. Bastard Of Christ <BR> 17. Blame It On God <BR> 18. This Is Hell We're In <BR> 19. Bible Basher <BR> 20. Standing In The Flames</p>
+<p> "Best Of BRUJERIA" <BR> Аннотация от Hank Williams III (SUPERJOINT RITUAL)</p>
+<p> 1. Pura De Venta <BR> 2. Leyes Narcos <BR> 3. Matando Gueros <BR> 4. Castigo Del Brujo <BR> 5. Sacrificio <BR> 6. Padre Nuestro <BR> 7. Raza Odida (Pito Wilson) <BR> 8. La Ley De Plomo <BR> 9. Colas De Rata <BR> 10. Hechando Chingasos (Grenudo Locos II) <BR> 11. La Migra (Cruza La Frontera II) <BR> 12. Consejos Narcos <BR> 13. Brujerizmo <BR> 14. Vayan Sin Miedo <BR> 15. Pititis, Te Invoco <BR> 16. Laboratorio Cristalitos <BR> 17. Division Del Norte <BR> 18. Anti-Castro <BR> 19. El Desmadre <BR> 20. Ritmos Satanicos</p>
+<p> "Best Of LIFE OF AGONY" <BR> Аннотация от TBC</p>
+<p> 1. This Time<BR> 2. River Runs Red <BR> 3. Through And Through <BR> 4. Bad Seed <BR> 5. Underground<BR> 6. Here I Am, Here I Stay <BR> 7. Damned If I Do <BR> 8. Lost At 22 <BR> 9. Other Side Of The River <BR> 10. Let's Pretend <BR> 11. How It Would Be <BR> 12. Tangerine <BR> 13. My Mind Is Dangerous <BR> 14. Weeds <BR> 15. Angry Tree <BR> 16. Honeycomb</p>
+<p> "Best Of KING DIAMOND" <BR> Аннотация от Dave Ellefson (ex-MEGADETH)</p>
+<p> 1. The Candle <BR> 2. Charon <BR> 3. Halloween <BR> 4. No Presents For Christmas <BR> 5. Arrival <BR> 6. A Mansion In Darkness <BR> 7. The Family Ghost <BR> 8. Abigail <BR> 9. Welcome Home <BR> 10. The Invisible Guests <BR> 11. Tea <BR> 12. At The Graves <BR> 13. Sleepless Nights <BR> 14. Eye Of The Witch <BR> 15. Burn</p>
+<p> "Best Of MERCYFUL FATE" <BR> Аннотация от Mark Hunter (CHIMAIRA)</p>
+<p> 1. Doomed By The Living Dead <BR> 2. A Corpse Without Soul <BR> 3. Nuns Have No Fun <BR> 4. Evil <BR> 5. Curse Of The Pharaohs <BR> 6. Into The Coven <BR> 7. Black Funeral <BR> 8. Satan's Fall<BR> 9. A Dangerous Meeting <BR> 10. Desecration Of Souls <BR> 11. Gypsy<BR> 12. Come To The Sabbath <BR> 13. Burning The Cross <BR> 14. Return Of The Vampire</p>
+<p> "Best Of MALEVOLENT CREATION" <BR> Аннотация от Deron Miller (CKY)</p>
+<p> 1. Eve Of The Apocalypse <BR> 2. Sacrificial Annihilation <BR> 3. Monster<BR> 4. Dominated Resurgency <BR> 5. Multiple Stab Wounds <BR> 6. Genetic Affliction (demo version) <BR> 7. Geared For Gain <BR> 8. Slaughter Of Innocence <BR> 9. Premature Burial <BR> 10. Decadence Within <BR> 11. The Way Of All Flesh <BR> 12. Iced <BR> 13. Carnivorous Misgivings <BR> 14. Remnants Of Withered Decay <BR> 15. The Coldest Survive <BR> 16. Thou Shall Kill! <BR> 17. Mindlock <BR> 18. Piece By Piece</p>
+<p> "Best Of MADBALL" <BR> Аннотация от Jamey Jasta (HATEBREED) и Roger Miret (AGNOSTIC FRONT)</p>
+<p> 1. Set It Off <BR> 2. New York City <BR> 3. It's Time <BR> 4. Across Your Face <BR> 5. Down By Law <BR> 6. Smell The Bacon (What's With You?) <BR> 7. Friend or Foe<BR> 8. Demonstrating My Style <BR> 9. Unity <BR> 10. Live Or Die <BR> 11. Pride (Times Are Changing) <BR> 12. Hardcore Still Lives! <BR> 13. Nuestra Familia <BR> 14. Ball of Destruction <BR> 15. Look My Way <BR> 16. Moment of Truth <BR> 17. Waste of Time <BR> 18. Been There, Done That <BR> 19. Talkin' To Myself <BR> 20. Fools Die</p>
+
+Автор: Dimas
+
+### 21.08.2003 news Malevolent Creation готовятся к записи нового альбома
+
+<p>Malevolent Creation, вернувшись из Европы, где они выступили на Wacken Open Air, готовятся к турне по Бразилии. После серии шоу в этой южноамериканской стране группа начнёт пре-продукцию к новой девятой пластинке, запись которой будет произведена в феврале 2004 года.</p>
+
+Автор: Vit Belov
+
+### 21.08.2003 news Malevolent Creation are ready for 9th album
+
+<p>Malevolent Creation is gearing up for they're re-scheduled Brazilian Tour which start's in Caxias do Sul,Brazil on September 13th.The band has just returned home from Europe where they played at Wacken Open Air Festival (to over 30,000 maniacs),and headlining shows at Party San and Brutal Assault Open Air Festivals.The shows were amazing as well as the promoters,friends and fans who made us feel welcome there.Upon returning from Brazil Malevolent Creation will begin pre production for the material for they're 9th full length album.Recording begins Feb 1st,and is expected to be released early summer 2004.No title has been named for the upcoming slab of murder,but a lot of material is expected to be recorded.</p>
+<P> Malevolent Creation Brazilian Tour 2003</p>
+<P> 09/13 - Caxias do Sul <BR> 09/14 - Rio de Janeiro <BR> 09/17 - Sгo Paulo <BR> 09/18 - Belйm <BR> 09/19 - Sгo Luiz <BR> 09/20 - Fortaleza <BR> 09/21 - Brasнlia</p>
+
+Автор: Vit Belov
+
+### 10.12.2003 news MALEVOLENT CREATION назвали альбом
+
+<P><B>MALEVOLENT CREATION</B> запишут новый девятый альбом, который будет называться "<B>WARKULT", </B>в феврале с продюсером <B>Jean Francois Degenais. </B>Заявляется, что целью группы является самый тяжёлый альбом в их истории. Предположительная дата релиза - июнь 2004 года. Название некоторых песен:</P>
+<DIV><B>1)Murder Reigns</B></DIV>
+<DIV><B>2)Dead March</B></DIV>
+<DIV><B>3)Supremacy Through Annihilation</B></DIV>
+<DIV><B>4)Merciless</B></DIV>
+<DIV><B>5)On Grounds Of Battle</B></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Всего же для альбома будет записано не менее 10 песен, а также несколько каверов. </DIV>
+Автор: Vit Belov
+
+### 10.12.2003 news MALEVOLENT CREATION has named new album
+
+Florida Death Metal veterans <B>Malevolent Creation</B> have titled they're 9th full length album "<B>WARKULT</B>".The said album will be recorded in February with producer <B>Jean Francois Degenais</B> in control once again in&nbsp;a few&nbsp;undisclosed Florida Recording Studio's. Release date is set to be in June 2004 which will coincide with the bands European Summer Festival appearances. "<B>As is with&nbsp;each Malevolent Creation album our goal is to create the heaviest album we can and this album is no exception!</B>" Some song titles to appear on "<B>WARKULT</B>"are: 
+<DIV>&nbsp;</DIV>
+<DIV><B>1)Murder Reigns</B></DIV>
+<DIV><B>2)Dead March</B></DIV>
+<DIV><B>3)Supremacy Through Annihilation</B></DIV>
+<DIV><B>4)Merciless</B></DIV>
+<DIV><B>5)On Grounds Of Battle</B></DIV>
+<DIV><B></B>&nbsp;</DIV>
+<DIV>Atleast 10 song's will be recorded for&nbsp;"<B>WARKULT</B>" and a few cover's from some obscure thrash metal&nbsp;bands.First up is a cover from australian cult band <B>Hobbs Angel Of Death</B>'s song "<B>Crucifixion</B>" from there debut album in 1988. Second up is a cover of atleast one song from the 1986 4 song demo from Buffalo,NY thrash outfit <B>Leviathan</B>. <B>Leviathan</B> was fronted by vocalist <B>Chris Barnes(Six Feet Under,x-Cannibal Corpse</B>) along with guitarist J<B>eff Juszkiewicz(x-Malevolent Creation</B>). <B>Malevolent Creation</B> and <B>Leviathan</B> were the only thrash/death metal bands in Buffalo in 86/87 and we were totally blown away when we heard they're demo. They totally influenced us to being a better band and record our first demo in early 87. The band was amazing and all 4 song's kill on that demo, but we will atleast record one song from that classic demo tape.</DIV>
+Автор: Vit Belov
+
+### 13.02.2004 news MALEVOLENT CREATION предупреждают...
+
+<P><IMG height=294 alt="" hspace=0 src="/images/news_rus/2004.02/6023.jpg" width=262 align="left" border=0>"<I><B>Metal Mind Records/Productions</B> издали нелегальный бутлег видео/DVD с записью нашего концерта на <B>METAL MANIA</B> в начале 2003 года. Нам сообщили, что в этот день нас будут снимать на видео, но это не являлось чем-то криминальным, мы всегда разрешаем это&nbsp;фэнам и прессе. Также нам сообщили, что у нас не будет времени на настройку и не будет некоторого оборудования на сцене. 2 месяца спустя мы стали получать звонки и E-mail от <B>Metal Mind</B> с просьбой об издании этого материала. Они прислали нам образец, и мы очень долго смеялись над тем, что увидели. Худшая операторская работа, плюс отсутствие одной бочки, а мы всегда работаем с двумя басовыми бочками. Соответственно, мы отказали полякам. Всё было в порядке, пока мы не получили письмо от босса <B>Metal Mind Tommy Dziubinski</B>, в котором он настаивал на издании этого мусора. После того, как наши юристы&nbsp;попытались связаться с мистером <B>Tommy Dziubinski</B>, он прекратил все контакты и выпустил DVD.&nbsp;Мы обращаемся к нашим фэнам:&nbsp;не покупайте этот кусок дерьма. В конце лета выйдет официальный концертник на DVD.&nbsp;На наше DVD войдут кадры за всю историю группы, студийные материалы о записи альбома. У нас раритетов одних на 3 DVD. Обращаемся ко всем, люди подобные&nbsp;<B>Tommy Dziubinski</B>&nbsp;и <B>Metal Mind</B> должны быть выгнаны из металл-сообщества. Группы, если Вы встретитесь с ними, подумайте дважды...</I>&nbsp;"&nbsp;</P>
+Автор: Vit Belov
+
+### 13.02.2004 news MALEVOLENT CREATION vs METAL MIND
+
+<B><IMG height=294 alt="" hspace=0 src="/images/news/2004.02/6024.jpg" width=262 align="left" border=0>"<I>Metal Mind Records / Productions</I></B><I> from Poland has released an illegal bootleg dvd/vhs live show from <B>Malevolent Creation</B> recorded in early 2003 at the <B>Metal Mania Festivals</B> in Krakow Poland.In early 2003 when we started our 44 show European Tour with Marduk our first show was in Krakow Poland at the <B>Metal Mania Festivals </B>and it seemed to be a great way to start off a tour playing to 6,000 Polish Metal Maniacs.As with most festivals thing's are rushed and nothing goes smoothly and we were informed that day&nbsp;that the entire festival was being filmed.No big deal for us because we allow fans and media to film and photograph the band always.While we prepared to take the stage we were also informed we did not have time for any kind of equipment changeover,soundcheck,monitor check or even use our own soundman for this performance.Also the drumset we were to use came equiped with 2 bass drum triggers of which one did not work.With no time to fix thing's we went on stage and played and had a great show anyways.2 months later we started to recieve e-mails and phone calls from Metal Mind regarding the possibility of releasing this recording.They sent us a copy to check out and we laughed our asses off when we seen it.The worst camera work we have ever seen and topped off with an entire show played and recorded with one kickdrum working.Considering that 90 % of <B>Malevolent Creation</B> music is double bass drum work you can only imagine how retarded and ridiculous this sounded.Of course we contacted Metal Mind and told them that in no way should this released at all.All seemed fine until we recieved an e-mail from <B>Metal Mind</B> boss <B>Tommy Dziubinski</B> saying that he thought the show was great and was still intending on releasing this garbage.After months of having our&nbsp;lawyer and our current record label <B>Nuclear Blast Records'</B>&nbsp;lawyer contacting <B>Mr.Dziubinski</B> about this illegal act he was considering, he stopped any contact with&nbsp;us and our&nbsp;lawyers and has since just released this dvd/vhs illegaly on Metal Mind Productions.Our lawyer was able to stop the distribution of this bootleg in most of western europe,america and canada but it is still being sold and distributed illegally.We just would like to advise distributors and fans of <B>Malevolent Creation</B> to not buy this crap and wait till we release our first OFFICIAL dvd later this summer through <B>Arctic Music Group</B>.The dvd will feature footage spanning the band's entire career including the band's first live show ever in 1987 opening for Canadien punk legends S.N.F.U. to the recording of the band's newest and 9th full length album "<B>Warkult</B>" studio sessions.This will be our first dvd release and we want to make it special for everyone and will have enough live footage and rarities recorded all over the world to make 3 dvd's.The&nbsp; Underground Metal Community was and is about unity and band's,promoters,agent's etc...helping each other.This is not the case with Tommy Dziubinski and Metal Mind Productions and people like him need to be removed from the scene.I would just like to say to any band's who cross path's with Tommy and Metal Mind to think twice and not get screwed like we are</I>."
+Автор: Vit Belov
+
+### 17.04.2004 news MALEVOLENT CREATION выпускают альбом
+
+<P><B>MALEVOLENT CREATION</B> выпускают новый альбом '<B>Warkult</B>' 28 июня на <B>Nuclear Blast</B>. Трэк-лист:</P>
+<DIV><B>1)Dead March</B></DIV>
+<DIV><B>2)Preemtive Strike</B></DIV>
+<DIV><B>3)Supremacy Through Annihilation</B></DIV>
+<DIV><B>4)Murder Reigns</B></DIV>
+<DIV><B>5)Captured</B></DIV>
+<DIV><B>6)Merciless</B></DIV>
+<DIV><B>7)Section 8</B></DIV>
+<DIV><B>8)On Grounds Of Battle</B></DIV>
+<DIV><B>9)Tyrannic Oppression</B></DIV>
+<DIV><B>10)Ravaged By Conflict</B></DIV>
+<DIV><B>11)Shock And Awe</B></DIV>
+<DIV><B>12)Jack The Ripper * (bonus track) Cover song from Australian cult thrash godz Hobbs Angel Of Death.</B></DIV>
+Автор: Vit Belov
+
+### 05.06.2004 news MALEVOLENT CREATION in Europe
+
+<SPAN>19.06.2004 INNSBRUCK - Skeleton Bash Festival (AUT)<BR>20.06.2004 PARIS - La Locomotive (FRA)<BR>21.06.2004 GENT - Frontline (BEL)<BR>23.06.2004 LONDON - Underworld (UK)<BR>24.06.2004 ZAANDAM - Kade (NL)<BR>25.06.2004 BUSSUM - Camelleon (NL)<BR>26.06.2004 LE MANS - Fury Fest (F)<BR>27.06.2004 DESSEL - Graspop (BE)<BR>28.06.2004 MьNSTER - Live Arena (D)<BR>29.06.2004 ZURICH - Werk 21 (CH)<BR>01.07.2004 SALZGITTER - Forellenhof (D)<BR>02.07.2004 ROITZSCHJORA - With Full Force Open Air 2004 (D)<BR>04.07.2004 TBA - Rock The Nations Festival (TUR)<BR></SPAN>
+Автор: Vit Belov
+
+### 08.07.2004 reviews Любители death-metal, срочно в магазин!
+
+<P><B>MALEVOLENT CREATION</B> продолжают записывать отличные альбомы каждые два года. В то время, как death-metal потихонечьку умирал, <B>MC</B> подписали контракт с <B>Nuclear Blast</B> и выпустили уже второй альбом под крылом этого крупнейшего лэйбла.</P>
+<P>Подобный&nbsp;расклад не может не удивлять и не может не радовать. '<B>Warkult</B>' заставит Вас окунуться в вихрь первокласного death-metal и вспомнить времена, когда эту музыку играли великолепные музыканты, а в песнях можно было встретить и первоклассные соло, и смены ритма, и оригинальное композиционное построение. Всё это можно&nbsp;услышать на этом альбоме. Плюс ко всему, небольшая примесь death-metal европейского образца и даже чуть-чуть melodic death-metal.&nbsp;За звук на этой пластинке отвечал лидер <B>KATAKLYSM </B><SPAN style="COLOR: #ffffff"><B>Jean Francois Degenais</B>,&nbsp;&nbsp;что скорее плохо, чем хорошо, так как <B>MC</B> звучат теперь, как современный <B>KATAKLYSM,</B> и теряют от этого в брутальности. Это, пожалуй, единственный недостаток альбома. Любители death-metal,&nbsp;срочно в магазин!</SPAN></P>
+Автор: Vit Belov
+
+### 19.08.2004 news MALEVOLENT CREATION выпускают концертник
+
+<P>21 сентября на <STRONG>Arctic Music Group</STRONG> выходит концертный альбом <STRONG>MALEVOLENT CREATION</STRONG> <STRONG>"Conquering South America"</STRONG>. Альбом был записан в 2001 году во время тура по Бразилии. Микшировал запись <STRONG>Jean-Francois Dagenais</STRONG> (<B>KATAKLYSM</B>, <B>MISERY INDEX</B>). Трэк-лист:</P>
+<P>01. <B>Eve Of The Apocalypse</B><BR>02. <B>Multiple Stab Wounds</B><BR>03. <B>Manic Demise</B><BR>04. <B>Blood Brothers</B><BR>05. <B>Kill Zone</B><BR>06. <B>Rebirth Of Terror</B><BR>07. <B>Slaughter Of Innocence</B><BR>08. <B>To Die Is At Hand</B><BR>09. <B>Coronation Of Our Domain</B><BR>10. <B>Monster</B><BR>11. <B>All That Remains</B><BR>12. <B>Alliance Or War</B><BR>13. <B>Infernal Desire</B><BR>14. <B>Living In Fear</B><BR>15. <B>Malevolent Creation</B> </P>
+Автор: Vit Belov
+
+### 14.09.2004 articles TOP-50 продаж лицензионных компакт-дисков за июль-август 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=661 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 44pt; mso-width-source: userset; mso-width-alt: 2157" width=59>
+<COL style="WIDTH: 202pt; mso-width-source: userset; mso-width-alt: 9837" span=2 width=269>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2>1 (1)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>2 (2)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LEMURIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>3(3)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SIRIUS B</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269 x:str="DIO "><STRONG><FONT size=2><FONT face="Arial CYR">DIO<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>MASTER OF THE MOON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SOPOR AETERNUS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LA CHAMBRE D ECHO</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>FLOWER KINGS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>ADAM & EVE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ENSEFERUM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>IRON</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>THRESHOLD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SUBSURFACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ASIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SILENT NATION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>12 (4)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LOVELORN</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>JORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>OUT OF EVERY NATION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DREAM EVIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE BOOK OF HEAVY METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>METAL CHURCH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LACRIMAS PROFUNDERE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AVE END</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HAGGARD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>18 (8)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATROCITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATLANTIS + multimedia section</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DIABOLICAL BREED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>COMPENDIUM INFERNUS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BORKNAGAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPIC</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THERION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRIUS B & LEMURIA LTD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DARK TRANQUILLITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EXPOSURES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>23 (18)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EDGUY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>24 (11)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>FINNTROLL</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NATTFODD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>25 (26)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MONSTERS OF METAL - 2</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE ULTIMATE METAL COMPILATION (2 DVD)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MALEVOLENT CREATION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WARKULT</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>GRAVEWORM</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AS THE ANGELS… / ETERNAL WINDS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>28 (6)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AYREON</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>29 (30)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FLAMES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>30 (13)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SUSPERIA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UNLIMITED</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>32 (21)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AETERNITAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LA DANSE MACABRE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>33 (15)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CREMATORY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>REVOLUTION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DE/VISION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>6 FEET UNDERGROUND</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>35 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CATHARSIS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" x:str="ПРИЗРАЧНЫЙ СВЕТ +multimedia "><FONT size=2><FONT face="Arial CYR">ПРИЗРАЧНЫЙ СВЕТ +multimedia<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>KEVIN DUBROW (ex-QUIET RIOT)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FOR THE KILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DVAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>TAAI LIIRA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>VOODOO HILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WALTARI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>RARE SPECIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UMBRA ET IMAGO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MEMENTO MORI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MISANTHROPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SADISTIC SEX DAEMON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>42 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>RHAPSODY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE DARK SECRET EP</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>43 (9)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>MOTORHEAD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>INFERNO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>44 (12)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IMPERANON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>STAINED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SERAPHIM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>SHYLOCK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>WELCOME TO ILLUSION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>POWERQUEST</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NEVERWORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ASTARTE (DIMMU BORGIR)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SYRENS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>49 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THEATRES DES VAMPIRES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NIGHTBREED OF MACABRIA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>50 (32)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE 69 EYES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BLESSED BE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR></TBODY></TABLE>* - в магазин Metal&Progressive в ТВЦ Рубин
+Автор: Vit Belov
+
+### 14.11.2006 news Ветераны снова в строю
+
+<P>Ветераны флоридского смертельного металла <B>MALEVOLENT CREATION</B> наконец-то укомплектовали свой состав и работают над своим десятым альбомом под названием <B>'Doomsday X'</B>. В сегодняшнем составе коллектива - гитаристы <STRONG>Jon Rubin</STRONG> и<STRONG> Phil Fasciana</STRONG>, ударник<STRONG> Dave Culross</STRONG>, басист <STRONG>Jason Blachowicz</STRONG> и вокалист <B>Brett Hoffmann</B>. Музыканты обещают экстремальный и разрушительный материал в лучших традициях коллектива, напоминающий их ранние работы.</P>
+Автор: Dimas
+
+### 17.01.2007 news MALEVOLENT CREATION начинают запись нового альбома
+
+<P>Ветераны флоридского экстремального металла <B>MALEVOLENT CREATION</B> начали запись своего десятого альбома под названием <B>"Doomsday X"</B>. Будет записано двенадцать композиций в классическом духе группы. В составе команды на сегодняшний день: гитаристы <B>Jon Rubin</B> и <STRONG>Phil Fasciana</STRONG>, вокалист <STRONG>Brett Hoffmann, </STRONG>ударник <B>Dave Culross</B> и басист <B>Jason Blachowicz</B>.</P>
+Автор: Dimas
+
+### 28.05.2007 news MALEVOLENT CREATION выйдет на Massacre
+
+<P><STRONG>Massacre Records</STRONG> решили разнообразить свой ростер и выпустить 24 августа десятый альбом <STRONG>MALEVOLENT CREATION "Doomsday X</STRONG>". Трэк-лист:</P>
+<P>01. <STRONG>Deliver My Enemy<BR></STRONG>02. <STRONG>Cauterized </STRONG><BR>03. <STRONG>Culture Of Doubt<BR></STRONG>04. <STRONG>Strength In Numbers<BR></STRONG>05. <STRONG>Hollowed<BR></STRONG>06. <STRONG>Unleash Hell<BR></STRONG>07. <STRONG>Dawn Of Defeat</STRONG><BR>08. <STRONG>Upon Their Cross<BR></STRONG>09.<STRONG> Bio Terror<BR></STRONG>10. <STRONG>Buried In A Nameless Grave</STRONG><BR>11. <STRONG>Prelude To Doomsday<BR></STRONG></P>
+Автор: Vit Belov
+
+### 31.01.2009 news Сборник от MALEVOLENT CREATION
+
+<P><STRONG><IMG height=356 alt="" hspace=0 src="/images/news_rus/2009.01/13474.jpg" width=400 align=right border=5>MALEVOLENT CREATION</STRONG> выпустят 24 февраля на <STRONG>Crash </STRONG>трёхдисковое издание под названием <STRONG>"Essentials"</STRONG>. 38 трэков, 110 минут звучания:</P>
+<P>Disc 1:<BR itxtvisited="1">01. <B itxtvisited="1">No Salvation</B><BR itxtvisited="1">02. <B itxtvisited="1">Blood Brothers</B><BR itxtvisited="1">03. <B itxtvisited="1">Infernal Desire</B><BR itxtvisited="1">04. <B itxtvisited="1">Living In Fear</B><BR itxtvisited="1">05. <B itxtvisited="1">Unearthly</B><BR itxtvisited="1">06. <B itxtvisited="1">Enslaved</B><BR itxtvisited="1">07. <B itxtvisited="1">Alliance Or War</B><BR itxtvisited="1">08. <B itxtvisited="1">They Breed</B><BR itxtvisited="1">09. <B itxtvisited="1">To Kill</B><BR itxtvisited="1">10. <B itxtvisited="1">Hideous Reprisal</B><BR itxtvisited="1">11. <B itxtvisited="1">Etenal</B><BR itxtvisited="1">12. <B itxtvisited="1">Tasteful Agony</B><BR itxtvisited="1"><BR itxtvisited="1">Disc 2:<BR itxtvisited="1">01. <B itxtvisited="1">To Die At Hand</B><BR itxtvisited="1">02. <B itxtvisited="1">Manic Demise</B><BR itxtvisited="1">03. <B itxtvisited="1">Instinct Evolved</B><BR itxtvisited="1">04. <B itxtvisited="1">Dissect The Eradicated</B><BR itxtvisited="1">05. <B itxtvisited="1">Mass Graves</B><BR itxtvisited="1">06. <B itxtvisited="1">The Fine Art Of Murder</B><BR itxtvisited="1">07. <B itxtvisited="1">Bone Exposed</B><BR itxtvisited="1">08. <B itxtvisited="1">Purge</B><BR itxtvisited="1">09. <B itxtvisited="1">Fracture</B><BR itxtvisited="1">10. <B itxtvisited="1">Rictus Surreal</B><BR itxtvisited="1">11. <B itxtvisited="1">Scorned</B><BR itxtvisited="1">12. <B itxtvisited="1">Day Of Lamentation</B><BR itxtvisited="1">13. <B itxtvisited="1">Scattered Flesh</B><BR itxtvisited="1"><BR itxtvisited="1">Disc 3:<BR itxtvisited="1">01. <B itxtvisited="1">Nocturnal Overload</B><BR itxtvisited="1">02. <B itxtvisited="1">Prophecy</B><BR itxtvisited="1">03. <B itxtvisited="1">Compulsive</B><BR itxtvisited="1">04. <B itxtvisited="1">Narcotic Genocide</B><BR itxtvisited="1">05. <B itxtvisited="1">Violated</B><BR itxtvisited="1">06. <B itxtvisited="1">Leech</B><BR itxtvisited="1">07. <B itxtvisited="1">In Cold Blood</B><BR itxtvisited="1">08. <B itxtvisited="1">Vision Of Malice</B><BR itxtvisited="1">09. <B itxtvisited="1">Ill II</B><BR itxtvisited="1">10. <B itxtvisited="1">Preyed Upon</B><BR itxtvisited="1">11. <B itxtvisited="1">Millions</B><BR itxtvisited="1">12. <B itxtvisited="1">Condemned</B><BR itxtvisited="1">13. <B itxtvisited="1">Seizure</B></P>
+Автор: Vit Belov
+
+### 08.11.2009 news MALEVOLENT CREATION нашли басиста
+
+<P>Новым басистом <STRONG>MALEVOLENT CREATION </STRONG>стал <STRONG>Gio Geraca</STRONG> (<B>UPON INFLICTION</B>, <B>EVIL AMIDST</B>, <B>WYKKED WYTCH</B>, <B>CRUCIFEAST</B>), который поедет с группой в ближайший тур, а так же будет записывать 11-ый альбом коллектива в ближайшем будущем.</P>
+Автор: Vit Belov
+
+### 24.03.2010 news MALEVOLENT CREATION готовятся к записи
+
+<P><STRONG>MALEVOLENT CREATION</STRONG> начнут запись нового альбома с продюсером <STRONG>Erik Rutan</STRONG> (<B>MORBID ANGEL</B>, <B>HATE ETERNAL</B>, <B>CANNIBAL CORPSE</B>). Пластинка выйдет уже в этом году на <STRONG>Nuclear Blast</STRONG>. </P>
+Автор: Vit Belov
+
+### 14.04.2010 news MALEVOLENT CREATION назвали альбом
+
+<P>Новый альбом <STRONG>MALEVOLENT CREATION</STRONG> получил название <STRONG>"Invidious Dominion". </STRONG>Пластинка выйдет 27 августа на <STRONG>Massacre Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.06.2010 news Новый альбом MALEVOLENT CREATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Одиннадцатый альбом <STRONG>MALEVOLENT CREATION</STRONG> <STRONG>"Invidious Dominion" </STRONG>выходит в конце лета. Группа опубликовала обложку будущей пластинки, которую нарисовал <STRONG>Par Olofsson</STRONG> (<B>THE FACELESS</B>, <B>IMMORTAL</B>, <B>ABYSMAL DAWN</B>). Альбом был записан в <STRONG>Mana Recording Studios</STRONG> (<B>CANNIBAL CORPSE</B>, <B>VITAL REMAINS</B>, <B>GOATWHORE</B>) с продюсером <STRONG>Erik Rutan</STRONG> (<B>MORBID ANGEL</B>, <B>HATE ETERNAL</B>, <B>CANNIBAL CORPSE</B>). Трэк-лист:</FONT></P>
+<P>01. <B>United Hate</B><BR>02. <B>Conflict Finalized</B><BR>03. <B>Slaughterhouse</B><BR>04. <B>Compulsive Face Breaker</B><BR>05. <B>Lead Spitter</B><BR>06. <B>Target Rich Environment</B><BR>07. <B>Antagonized</B><BR>08. <B>Born Again Hard</B><BR>09. <B>Corruptor</B><BR>10. <B>Invidious Dominion</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 23.06.2010 news Новый альбом MALEVOLENT CREATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.06/16847.jpg" width=400 align=right border=5>Одиннадцатый альбом <STRONG>MALEVOLENT CREATION</STRONG> <STRONG>"Invidious Dominion" </STRONG>выходит в конце лета. Группа опубликовала обложку будущей пластинки, которую нарисовал <STRONG>Par Olofsson</STRONG> (<B>THE FACELESS</B>, <B>IMMORTAL</B>, <B>ABYSMAL DAWN</B>). Альбом был записан в <STRONG>Mana Recording Studios</STRONG> (<B>CANNIBAL CORPSE</B>, <B>VITAL REMAINS</B>, <B>GOATWHORE</B>) с продюсером <STRONG>Erik Rutan</STRONG> (<B>MORBID ANGEL</B>, <B>HATE ETERNAL</B>, <B>CANNIBAL CORPSE</B>). Трэк-лист:</FONT></P>
+<P>01. <B>United Hate</B><BR>02. <B>Conflict Finalized</B><BR>03. <B>Slaughterhouse</B><BR>04. <B>Compulsive Face Breaker</B><BR>05. <B>Lead Spitter</B><BR>06. <B>Target Rich Environment</B><BR>07. <B>Antagonized</B><BR>08. <B>Born Again Hard</B><BR>09. <B>Corruptor</B><BR>10. <B>Invidious Dominion</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 27.09.2010 reviews Зверская детская непосредственность
+
+<P>Классики death-metal, обитающие ныне в Мекке американского звучания Флориде, реализовали свой 11 альбом за 23 (!!!) года существования. При этом стоит отметить, что, несмотря на смены состава, группа никогда не покидала сцену на долгое время и находилась в постоянной стадии активного существования.</P>
+<P>Новый альбом “invidious Dominion” не несёт в себе никаких откровений. Он адресован исключительно поклонникам стиля со стажем. Коллектив под управлением Phil Fasciana оставил в покое все современные веяния в death-metal и сконцентрировался на создании прямолинейного и где-то даже тупого материала без всяких мелодичных и излишне техничных компромиссов. Возросшая из thrash-metal забойная музыка с постоянным ритмом и агрессивными воплями вокалиста, приправленная простой, но эффективной гитарой, которая проковыривает слушателю череп и добирается до основных областей мозга, разрушая психику. Подобного эффекта можно достичь либо очень сложной, либо очень простой музыкой. Здесь мы имеем дело со вторым вариантом. Песни плавно перетекают одна в другую, предоставляя слушателю только удивляться быстрому переходу от одного трэка к другому. Таким манером заканчивается весь альбом, и здесь всё зависит от вашего миропонимания. Кто-то скажет что “Invidious Dominion” нудный и скучный, а кто-то отметит его простодушную брутальность и энергию.</P>
+<P>Нельзя сказать, что обозреваемый альбом лучший у MALEVOLENT CREATION, но меня радует та детская непосредственность, с которой музыканты нарезают мощный, но совсем не интересный, в современном понимании вопроса, материал.</P>
+Автор: Vit Belov
+
+### 14.11.2010 news Новый клип от MALEVOLENT CREATION
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17587.jpg" width=335 height=250>"Slaughterhouse" -</STRONG> новый видеоклип флоридцев <B itxtvisited="1">MALEVOLENT CREATION</B>, можно посмотреть на сайте "<STRONG>Bloody-disgusting</STRONG>"&nbsp;по адресу: <A href="http://www.bloody-disgusting.com/news/music/1170">www.bloody-disgusting.com/news/music/1170</A>&nbsp;</P>
+<P>Шокирущее видео было снято во Флориде, а так же, в лос-анжелеской <B itxtvisited="1">Central City Studios</B> с многообещаюшим режиссёром Крисом Каллари (<B itxtvisited="1">Chris Cullari</B>). Группа описывает клип, как <EM>"зверское преклонение и посвящение таким фильмам-ужасов, как&nbsp; <B itxtvisited="1">'Hostel'</B> и <B itxtvisited="1">'The Texas Chainsaw Massacre'</B>, в котором музыка <B itxtvisited="1">MALEVOLENT CREATION</B> используется, как саундтрек к безумию."</EM></P>
+Автор: Headcrusher
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 06.08.2013 news MALEVOLENT CREATION: новый трек под названием &quot;Face Your Fear&quot;.
+
+<P>Журнал <STRONG>Decibel</STRONG> опубликовал новую песню флоридской death metal банды <STRONG>MALEVOLENT CREATION</STRONG>&nbsp;под названием <STRONG>"Face Your Fear"</STRONG>.</P>
+<P>В настоящее время группа работает над новым материалом и пока не решила, в каком виде он будет выпущен.</P>
+<P><IFRAME height=166 src="https://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F103723702" frameBorder=no width="100%" scrolling=no></IFRAME></P>
+Автор: Headcrusher
+
+### 16.10.2014 news MALEVOLENT CREATION на Century Media
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легенда американского death metal, коллектив <STRONG>MALEVOLENT CREATION</STRONG>, перешла под крыло лейбла <STRONG>Century Media</STRONG>. В настоящее время группа работает над своим 12 студийным альбомом, который должен выйти&nbsp;в следующем году на этом немецком лейбле. 
+<CENTER><IMG border=0 src="/images/news_rus/2014.10/27385.jpg" width=500 height=500></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 14.11.2015 news Digi-pak от MALEVOLENT CREATION
+
+<P>Новый альбом<STRONG> MALEVOLENT CREATION "Dead Man's Path"</STRONG> вышел в октября на<STRONG> Century Media</STRONG>. Лимитированное издание альбома доступно здесь: <A href="http://escapemind.ru/goods/MALEVOLENT-CREATION-Dead-Man-039-s-Path-Ltd-CD-Digipak-Patch">http://escapemind.ru/goods/MALEVOLENT-CREATION-Dead-Man-039-s-Path-Ltd-CD-Digipak-Patch</A></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/s3hHUUNWNM4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Malevolent Creation - "Envenomed"

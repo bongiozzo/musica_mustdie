@@ -50,6 +50,31 @@ Jeff Ingegno  -  Bass, Associate Producer
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.05.2001 reviews Выходила на берег Катюша.....
+
+<p> Попробуем сегодня оценить последнюю работу "The Great Kat" - "Rossini's Rape". Вау! На диске всего четыре вещи, но каких! Девушка постаралась обогнать Ингви с Ванессой Мэй (техника игры) с одной стороны и мясников-грайндовиков с другой (оформление и лирика). Кстати, в интервью журналу "Total Guitar" - на вопрос "Что вы думаете о Мальмстине?" - Кэт ответила: "А кто это такой?!?"....Да...Скромности у нашей девушки...</p>
+<p> Две вещи на альбоме (1 и 4) - спид метал обработки классики. Это "Увертюра к Вильгельму Теллю" Россини и "Круг Гоблинов" Баззини. Давно я не слышал столь насыщенных аранжировок. Например, одновременно звучат 3 клавесина, трубы, тромбоны, кларнеты, виолончели, скрипки ну и, конечно, хэви-метал бэнд в полном составе. Причем, все партии гитар, скрипок, арф и пианино - исполнены самой Кэт (выпускницей Джуллиардовской консерватории). Еще меня позабавила длина альбома - шесть с половиной минут (!!!). Самая длинная вещь - "Увертюра к Вильгельму Теллю" - 1:53! Здесь, видимо, сработал тот же принцип, что и у классиков грайнд-кора: "Быстро, но мало." А дальше: "Рука бойцов колоть устала...". Кстати, само оформление "Rossini's Rape", да и весь имидж порадуют любителей Gore Metal - окровавленные, языки, ножи, плети, кожанная сбруя и маски. Что-то творится с "гниющим западом", если девушки одевают кожанные бюстгальтеры и начинают хлестать связанных мужиков. Хотя и Захер-Мазох и Маркиз Де Сад - для них уже пройденный этап. В общем, я бы посоветовал ей обратиться к хорошему сексопатологу. А если отбросить всю эту мишуру и маркетинговые примочки, то "Great Kat" - просто удивляет - девушка мульти-инструменталистка - владеет практически любыми инструментами. Я могу сказать, что это лучшая гитаристка среди женщин!</p>
+<p> Что касается саунда и микширования, мне кажется, гитарный звук мог-бы быть и получше.... Слишком он какой-то "рафинированный" и прилизанный. Хотя, возможно, все это особенности использованной Jackson Flying V.</p>
+<p></p>
+<p> Оценка 7 из 10. За виртуозность могло бы быть и больше, но несколько баллов я снял за пропаганду половых извращений (это же будут слушать дети!).</p>
+<p></p>
+<p> Диагноз: Рекомендуется всем поклонникам Мальмстина и лицам страдающим садистско-мазохистским комплексом.</p>
+<p></p>
+<p></p>
+<p> Врач: Ермолаев А.Г.</p>
+<p></p>
+
+Автор: Yermola
+
+### 07.03.2003 news THE GREAT KAT WINS GUITAR ONE MAGAZINE&#39;S &quot;TOP 10 FASTEST SHREDDERS&quot; AWARD
+
+<p>March 6, 2003, NY, NY -- Guitar One Magazine awarded The Great Kat today the "Top 10 Fastest Shredders of All Time," April 2003 by Chris O'Byrne. Known for her lightning-fast Shred/Classical riffs, The Great Kat has been heralded worldwide as the only guitar/violin virtuoso updating Classical music and is the only female guitarist included on the Guitar One "Fastest Shredders" list. See (<A HREF="http://www.greatkat.com/59/articles/guitarone.html">http://www.greatkat.com/59/articles/guitarone.html</A>) for full Guitar One article. <BR><BR> Born Katherine Thomas, The Great Kat is a violin graduate from the prestigious Juilliard School and has performed as a Classical violin soloist at Carnegie Recital Hall as winner of the Artists International Competition. The Great Kat has also toured as a violin soloist in Mexico, the U.S. and UK.<BR><BR> After graduating from The Juilliard School, The Great Kat decided "to bring classical music to the masses" and quickly switched to guitar. Kat then combined Classical music with Speed Metal, developing the exciting new "Shred/Classical" Music Genre: authentic classical masterpieces (Beethoven, Wagner, Bach, and others) mixed with extreme speed and shredding guitar riffs. <BR><BR> Known as the "High Priestess of Guitar Shred," The Great Kat's discography includes 6 Shred/Classical CDs and an interactive multimedia CD-ROM. Kat's new "WAGNER'S WAR" CD has been hailed by critics as brilliant and revolutionary. "Inspired by the events of Sept. 11, Kat renders some of music's most famous, aggressive, battle-inspired pieces in shredding-speed metal arrangements that hiss and spit," praised Dan Aquilante in his "Wagner's War" 3 out of 4 star review for the New York Post. Michael Molenda from Guitar Player Magazine said, "The Great Kat can totally shred. In fact, she's so scary fast on guitar and violin, that once you retrieve your ego from the gutter, you almost have to laugh."</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### The Great Kat

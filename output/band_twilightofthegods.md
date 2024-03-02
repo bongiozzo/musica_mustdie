@@ -8,6 +8,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2013 news Блэкари заиграли heavy-metal
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первую песню heavy-metal суперпроекта <STRONG>TWILIGHT OF THE GODS</STRONG> <STRONG>"Fire On The Mountain (1683)" </STRONG>можно послушать в клипе ниже. В группе объединили свои усилия вокалист <STRONG>Alan Averill</STRONG> (<B>PRIMORDIAL</B>, <B>DEAD SOVEREIGN</B>, <B>BLOOD REVOLT</B>), барабанщик <STRONG>Nick Barker</STRONG> (ex-<B>CRADLE OF FILTH</B>, ex-<B>DIMMU BORGIR</B>, ex-<B>TESTAMENT</B>, ex-<B>EXODUS</B>), гитаристы <STRONG>Rune Eriksen</STRONG> (<B>AURA NOIR</B>, ex-<B>AVA INFERI</B>, ex-<B>MAYHEM</B>)&nbsp;и <B>Patrik Lindgren</B> (<B>THYRFING</B>) и басист <STRONG>Frode Glesnes</STRONG> (<B>EINHERJER</B>). Дебютная работа коллектива <STRONG>"Fire On The Mountain" </STRONG>выйдет в конце сентября на <STRONG>Season Of Mist</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Destiny Forged In Blood</B><BR>02. <B>Children Of Cain</B><BR>03. <B>Fire On The Mountain (1683)</B><BR>04. <B>Preacher Man</B><BR>05. <B>Sword Of Damocles</B><BR>06. <B>The End Of History</B><BR>07. <B>At Dawn We Ride</B></P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/HmtBeUA8cTA?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25897.jpg" width=480 height=480></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

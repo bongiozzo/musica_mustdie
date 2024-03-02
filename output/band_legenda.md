@@ -53,6 +53,21 @@ Herr Happinen     Bass Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.12.2000 news Line up changes in Catamenia
+
+<p> According Catamenia's official homepage the band changed from a 6-piece band into a 5-piece. They kicked rhythm guitarist Sampo Ukkola out of the band. He isn't replaced yet by another member. Second of all the drummer is changed. Toni Tervo has been replaced by "Impaled Nazarene's" Sir Luttinen (who also plays in the Finnish metal band "Legenda").</p>
+
+Автор: Nybras
+
+### 02.12.2000 news Изменения в составе Catamenia
+
+<p> По сообщению официального сайта группы, недавно Catamenia выгнали своего ритм-гитариста Sampo Ukkola. Его место пока пустует. Также группу покинул драммер Toni Tervo и его заменил небезызвестный Sir Luttinen (Impaled Nazarene, Legenda, The Black League)</p>
+
+Автор: Nybras
+
+
 ## Обсуждения
 
 ### Творчество Legenda

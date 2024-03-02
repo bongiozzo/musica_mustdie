@@ -46,6 +46,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2002 reviews DYING FETUS – VISCERAL BLEEDING 0:7
+
+<p>‘Visceral Bleeding’? ‘Remnants of Deprivation’? Nine songs and less than half an hour playing time? What would that be? Death metal? Yep. Exactly. American-styled death metal of Swedish origin, to be exact. What?! Swedes covering CANNIBAL CORPSE? Well, yell as long as you wish. You're wrong anyway. VISCERAL BLEEDING aren't covering anyone, nor they're copying. They have their own personality… more or less… And you should know it's pretty much difficult if you choose to dedicate yourself to a music like this. As to comparisons (what would we do if there weren't any! :-)), here you go: DYING FETUS. Needless to say, this is what immediately popped in my mind once I played the actual CD. Two magic words, heh… However, let me repeat myself: VISCERAL BLEEDING don't copy anyone. Even if a music of theirs makes me think of DYING FETUS. Speaking about differences between these combos, I have to admit that I personally prefer Swedes over those US' grinding bastards. Why? Well, "Remnants Of Deprivation" features a bit more of a complexity, better musicianship (!); the music is also arranged way more impressive. Besides that, worth mentioning are short though stunning leads, and an idea of incorporation of a banjo (!) on "To Disgrace Condemned" is bewitching. Furthermore, I truly enjoyed the lyrics. Plus a bonus for the nice coverart…and what do have? Ha, DYING FETUS – VISCERAL BLEEDING 0:7. That's how the score would look like if I was a judge.</p>
+<P>Website: <A HREF="http://www.retributerecords.com">http://www.retributerecords.com</A></>
+<P>Email: <A HREF="mailto:Retribute@aol.com">Retribute@aol.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

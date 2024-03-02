@@ -35,6 +35,35 @@ bulgarian brutal Death
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2003 news ENTHRALLMENT stops to work with BUTCHERY MUSIC
+
+<DIV><IMG height=170 alt="" hspace=0 src="/images/news/2003.11/5445.jpg" width=251 align="left" border=0>The last news from bulgarian brutal Death metalers <B>ENTHRALLMENT</B> is that they stop&nbsp;work with <B>BUTCHERY MUSIC</B> Co. With this label they work from 2001 and have two releases for them. </DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Band&nbsp;comment: </DIV>
+<DIV>&nbsp;</DIV>
+<DIV>"<B>Butchery Music is good label, but they not have potential to present us in worldwide plan. We will look for new label, who will offer us with more good and new idea. Sorry, but this, that we are from small country is nothing for us. The music don't have border. We see the fans reaction in our summer shows in Europe and we wish to see their faces and to kill their breins with our music more and more.&nbsp;We hope that&nbsp;we will contract with new company and we will&nbsp;release new album very soon</B>."&nbsp;&nbsp;</DIV>
+Автор: Vit Belov
+
+### 10.02.2004 news ENTHRALLMENT will have live album
+
+<IMG height=170 alt="" hspace=0 src="/images/news/2004.02/5984.jpg" width=251 align="left" border=0>The bulgarian brutalers <B>ENTHRALLMENT</B> will have live album on this year. The album have name "<B>Return To Grave</B>" and include 8 songs - six new and 2 covers of <B>Six Feet Under & Morbid Angel</B>. The official release will be by <B>Butchery Music Co</B>, but will have and split CD version between <B>ENTHRALLMENT</B> and austrian band <B>BONEMACHINE </B>(project of <B>HROSSHARSGRANI</B> members / <B>CCP Records</B>). To the end of August the band will be ready and with their third album. The album will be released by new label !!!<BR>
+Автор: Vit Belov
+
+### 01.12.2011 news ENTHRALLMENT на United Guttural
+
+<P>Болгарская death-metal команда <STRONG>ENTHRALLMENT </STRONG>подписала контракт с <STRONG>United Guttural</STRONG>. Новый альбом коллектива "<STRONG>People From The Lands Of Vit</STRONG>" выйдет в начале 2012 года. </P>
+<P>Предыдущая пластинка коллектива “<STRONG>Immerse Into Bloody Bliss</STRONG>” вышла в 2008 году.</P>
+<P><center><IMG height=285 src="/images/news_rus/2011.12/22186.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 09.05.2012 news Новый клип ENTHRALLMENT
+
+<p>Новое видео болгарских мясников&nbsp;<strong>ENTHRALLMENT</strong> на песню <strong>"Fruits Of Pain And Blue Sky" </strong>можно посмотреть ниже. Трек взят с новейшего альбома группы <strong>"People From The Lands Of Vit"</strong>, который вышел в конце прошлого года на <strong>United Guttural Records</strong>.</p><center><iframe height="360" src="http://www.youtube.com/embed/RJUYws4fF8Q?feature=player_embedded" frameBorder="0" width="640" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

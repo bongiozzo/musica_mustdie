@@ -85,6 +85,15 @@ Recorded At One To One Syndicate Studio
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2017 news BODY COUNT играют песни SLAYER
+
+<P><STRONG>BODY COUNT</STRONG> опубликовали клип на попури из песен<STRONG> "Raining Blood"</STRONG> и <STRONG>"Postmortem" </STRONG>группы <STRONG>SLAYER</STRONG>. Данное попурри можно услышать на последнем альбоме группы - <STRONG>"Bloodlust"</STRONG>, вышедшем&nbsp;в марте этого года&nbsp;на <STRONG>Century Media</STRONG>.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/LPHJLB1ZeAc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

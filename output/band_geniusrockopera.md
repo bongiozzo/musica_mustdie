@@ -102,6 +102,50 @@ Drums: Dario Ciccioni (Khymera)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.10.2002 reviews Вымышленный мир человека
+
+<p>Рок-опера "Genius" задумана как трилогия состоящая из 33 песен (по 11 на каждую часть). Перед нами первая восьмидесятиминутная часть трилогии. Автор концепции, лирики и музыкального материала - музыкант итальянской progressive metal формации EMPTY TREMOR Daniele Liverani. Он же записал все инструментальные партии на альбоме, кроме партий ударных и вокала. Партии вокала на альбоме записали сплошь известные музыканты, среди которых Mark Boals (RING OF FIRE), Lana Lane (LANA LANE), Daniel Gildenlow (PAIN OF SALVATION), Chris Boltendahl (GRAVE DIGGER), Joe Vana (MECCA), Steve Walsh (KANSAS), John Wetton (ASIA), Oliver Hartmann (AT VANCE), Midnight (CRIMSON GLORY), Philip Bynoe (STEVE VAI). Концепция альбома заключается в путешествии главного персонажа (Genius) в параллельных измерениях, где он встречается с различными персонажами царства сна и пытается узнать и понять все секреты и природу такого явления, как человеческий сон. Причем, сам он в то же время находится в его плену. Пересказывать всю историю займет очень много места, желающие могут посмотреть информацию ниже или просто детально ознакомиться с толстенным буклетом вложенным в диск. Музыкальный стиль произведения колеблется от melodic rock до progressive metal. Уникальная музыкальная смесь мощи и крайней мелодичности с превосходно поставленными и отлично записанными вокальными партиями, сложными гитарными переходами и аритмичной песенной структурой, воодушевляющими хоралами и примечательными клавишными партиями. Все вокалисты очень хорошо поработали над своими партиями. Начало альбома чрезвычайно впечатляет, обещая шедевр современной музыки, но чуть далее, музыка становится больно сложной и слишком серьезной. Несмотря на свою интересность, она становится трудно слушабельной. Это, отнюдь, не примитивная музыка. Материал альбома разнообразен. Например, одна из лучших вещей альбома "Dreams" очень интересно и выгодно смотрелась бы в репертуаре самого Ингви Мальмстина (во многом благодаря похожей соло-гитарной работе и голосу Марка Боулса, который был вокалистом у Ингви). Но в целом, серьезно впечатляет лишь начало, середина и концовка альбома. Весь остальной материал хорош, но не содержит ничего выдающегося. Тяжелая современная музыка ориентированная на инструментализм и звучащая как саундтрэк, живо рождая картины окружающего мира. Начало вполне удалось. Продолжение следует...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 16.12.2003 news Liv Kristine будет участвовать в записи многих альбомов
+
+<P>Бывшая вокалистка <B>THEATRE OF TRAGEDY Liv Kristine</B> приняла участие в записи нового альбома <B>INFINITY "Space without limits".</B> Напомним, что на прошлом альбме этого проекта участвовала <B>Tarja (NIGHTWISH)</B> (оказалось, что она жена директора лэйбла <B>NEMS</B>, который выпустил тот альбом)&nbsp;и <B>Candice Night (Blackmore's Night).</B> Новая работа <B>Beto Vasquez</B> выйдет на <B>Drakkar</B>.</P>
+<P>Также <B>Liv</B> записала партии для рок-оперы <B>Genius Episode II</B>, там же примут участие <B><SPAN lang=EN-GB>Eric Martin (Ex </SPAN>M<SPAN lang=EN-GB>r</SPAN>.<SPAN lang=EN-GB> Big), Russel Allen (</SPAN>S<SPAN lang=EN-GB>ymphomyX), Jeff Martin</SPAN> <SPAN lang=EN-GB>(</SPAN>R<SPAN lang=EN-GB>acer X), Rob Thyrant</SPAN> <SPAN lang=EN-GB>(</SPAN>L<SPAN lang=EN-GB>abyrinth) Mark Boals</SPAN> <SPAN lang=EN-GB>(Malmsteen), Daniel Gildenlow</SPAN> <SPAN lang=EN-GB>(Pain of </SPAN>S<SPAN lang=EN-GB>alvation), Edu Falaschi (Angra).</SPAN></B></P>
+<P><SPAN lang=EN-GB>Ещё одним проектом стал <B>Tribute to DEAD CAN DANCE</B>, где <B>Liv</B> записала песню <B>Summoning of the Muse</B> вместе с <B>Hortus Animae</B>.</SPAN></P>
+Автор: Vit Belov
+
+### 16.12.2003 news LIV KRISTINE guestsinger on INFINITY Project, GENIUS - A Rock Opera and DEAD CAN DANCE Tribute!
+
+<P>At <B>MASTERSOUND Studio</B> recordings were taking place for the second <B>INFINITY</B> album "<B>Space without limits</B>", the project of the Argentinian musician <B>Beto Vazquez</B>. <B>Liv Kristine</B> was singing some songs for the upcoming <B>INFINITY</B> album which will be released in Europe by <B>Drakkar Records/BMG</B>. <B>Marcelo Cabuli</B> of <B>NEMS Enterprises</B>, Argentina was also staying at <B>MASTERSOUND studio</B>. His wife <B>Tarja</B>, singer of <B>NIGHTWISH</B>, recorded a few songs for the succesful debut of <B>INFINTY</B> as well as <B>Candice Night</B>, singer of <B>BLACKMORES NIGHT</B>, which is the band of her and her husband <B>Ritchie Blackmore</B>.</P>
+<P><B>Liv</B> will also record guestvocals at <B>MASTERSOUND Studio</B> for two other projects: The Rock Opera <B>GENIUS Episode II</B> together with a.o<B>. <SPAN lang=EN-GB>Eric Martin (Ex </SPAN>M<SPAN lang=EN-GB>r</SPAN>.<SPAN lang=EN-GB> Big), Russel Allen (</SPAN>S<SPAN lang=EN-GB>ymphomyX), Jeff Martin</SPAN> <SPAN lang=EN-GB>(</SPAN>R<SPAN lang=EN-GB>acer X), Rob Thyrant</SPAN> <SPAN lang=EN-GB>(</SPAN>L<SPAN lang=EN-GB>abyrinth) Mark Boals</SPAN> <SPAN lang=EN-GB>(Malmsteen), Daniel Gildenlow</SPAN> <SPAN lang=EN-GB>(Pain of </SPAN>S<SPAN lang=EN-GB>alvation), Edu Falaschi (Angra)</SPAN></B> and a <B>DEAD CAN DANCE</B> Tribute Sampler (Song "<B>Summoning of the Muse</B>") with the Italian band <B>HORTUS ANIMAE</B>.</P>
+Автор: Vit Belov
+
+### 25.12.2003 news В поисках Маленького Принца
+
+Определился состав музыкантов, которые примут участие в записи второй части рок-оперы <B>GENIUS</B> под названием <B>"In Search of The Little Prince"</B>. Помимо <B>Daniele Liverani</B>, который запишет все инструментальные партии и ударника <B>Dario Ciccioni</B>, в записи примут участие такие вокалисты, как <B>Mark Boals (Ring of Fire), Daniel Gildenlow (Pain of Salvation), Eric Martin (ex Mr. Big), Russel Allen (Symphony X), Johnny Gioeli (Hardline, Axel Rudi Pell), Rob Tyrant (Labyrinth), Jeff Martin (Racer X), Edu Falaschi (Angra), Liv Kristine (ex Theatre of Tragedy) </B>и <B>Oliver Hartmann (Empty Tremor, ex At Vance).</B> Запись второй части начнется в январе, а релиз на <B>Frontiers Records</B> ожидается в июне 2004 года.
+Автор: Dimas
+
+### 22.09.2005 news Последняя часть истории
+
+<P>Итальянский мультиинструменталист<STRONG> Daniele Liverani</STRONG></STRONG>&nbsp;объявил о начале работы над третьей и заключительной частью <STRONG>GENIUS Rock Opera</STRONG>. На этот раз в качестве вокалистов будут задействованы следующие исполнители: <STRONG>Mark Boals</STRONG>, <STRONG>Daniel Gildenlow</STRONG> (<STRONG>PAIN OF SALVATION</STRONG>), <STRONG>Jorn Lande</STRONG> (<STRONG>MASTERPLAN</STRONG>), <STRONG>Toby Hitchcock</STRONG> (<STRONG>PRIDE OF LIONS</STRONG>), <STRONG>Eric Martin</STRONG> (TMG, ex MR.BIG), <STRONG>Andrea Datwyler</STRONG> (<STRONG>LUNATICA</STRONG>), <STRONG>Oliver Hartmann (</STRONG>ex<STRONG>- AT VANCE)</STRONG>&nbsp;и&nbsp;<STRONG>Philip Bynoe</STRONG>. Завершение работы над альбомом запланировано на конец ноября 2005 года, а релиз ожидается весной 2006 года на <STRONG>Frontiers Records</STRONG>.</P>
+Автор: Dimas
+
+### 31.08.2006 news Последний сюрприз от Daniele Liverani
+
+<P>Определился состав вокалистов, которые примут участие в записи третьей и последней части рок-оперы <B>GENIUS</B> под названием <B>"The Final Surprise"</B>. В списке больше не значится<STRONG> Mark Boals</STRONG>, который покинул проект по<STRONG> </STRONG>личным причинам. Вокальные партии к альбому запишут <STRONG>D.C. Cooper</STRONG> (<B>SILENT FORCE</B>, ex-<B>ROYAL HUNT</B>), <B>Daniel Gildenlow</B> (<STRONG>PAIN OF SALVATION</STRONG>), <B>Jorn Lande</B> (<STRONG>JORN</STRONG>, ex-<STRONG>MASTERPLAN</STRONG>), <B>Andrea Datwyler</B> (<STRONG>LUNATICA</STRONG>), <B>Eric Martin</B> (ex-<STRONG>MR. BIG</STRONG>), <B>Toby Hitchcock</B> (<STRONG>PRIDE OF LIONS</STRONG>). Весь материал сочинил итальянский мультиинструменталист&nbsp;<B>Daniele Liverani</B> (<B>KHYMERA</B>),&nbsp;он же запишет все инструментальные партии, кроме ударных, которые&nbsp;запишет&nbsp;<B>Dario Ciccioni</B> (<B>HARTMANN</B>). Релиз ожидается в декабре на <B>Frontiers Records</B>. </P>
+Автор: Dimas
+
+### 19.12.2006 news Последняя часть рок-оперы GENIUS
+
+<P>Последняя часть рок-оперы <B>GENIUS "The Final Surprise"</B> выходит 16 февраля на <B>Frontiers</B>. Певцами на этой пластинке выступили: <B>Daniel Glidenlow (PAIN OF SALVATION</B>), <B>Jorn Lande</B>, <B>DC Cooper</B>, <B>Eric Martin</B>, <B>Toby Hitchcock</B> (<B>PRIDE OF LIONS</B>), <B>Andrea D&#228;twyler</B> (<B>LUNATICA</B>). Трэк-лист:</P>
+<P>01. <B>Toy Warehouse</B><BR>02. <B>No More Chances</B><BR>03. <B>Save Me From My Destiny</B><BR>04. <B>Alive and Safe</B><BR>05. <B>Jump Off This Train</B><BR>06. <B>Let Me Live</B><BR>07. <B>Inside These Memories</B><BR>08. <B>I Die</B><BR>09. <B>Back To Life Again</B><BR>10. <B>Dream In Liberty</B><BR>11. <B>The Final Surprise</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

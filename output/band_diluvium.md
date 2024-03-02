@@ -12,6 +12,22 @@ Gothic doom from Serbia
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.12.2001 reviews Готик-думовый стандарт
+
+<p>С этой пластинкой самое время возвратиться в 1995 год к альбому The Gathering "Mandylion". Похожие гармонии, похожий вокал, разве что у обозреваемой группы (до сих пор не знаю её названия, пока не залезу на сайт компании CCP) девушка поёт более мягко. Материал довольно разнообразный, не скучно, мелодии слушабельные... Вполне можно расслабиться и помечтать о чём-то. Рассказать много про этот альбом не удасться, так как это всё не очень оригинально, но мне понравилось. Можно рекомендовать тем, кто любит дум с чисто-женским вокалом... и очень рекомендовать, одна из лучших пластинок за последнее время в этом не оригинальном жанре. Вот узнал название Diluvium. А также узнал, что они из Югославии, что может только радовать.</p>
+<p>Диск предоставлен департаментом по зарубежному репертуару концерна "Группа СОЮЗ".</p>
+
+Автор: Vit Belov
+
+### 08.01.2002 reviews Gothic-doom standart
+
+<p>With this CD it is time to come back to 1995 to an album by The Gathering "Mandylion". Similar harmonies similar vocal, unless at surveyed band (till now I do not know its name, yet browse on a site of the company CCP) the girl sings more softly. A material rather various, not boringly, melody are listenable... It is quite possible to relax and to dream of what. To tell a lot about this album is not possible, as it is not so original, but it was pleasant to me. It is possible to recommend the one who loves doom with female vocal... And very much to recommend, one of the best CDs lately in it not an original genre. Found out the name - Diluvium. And also has found out, that they from Yugoslavia, that can only please.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

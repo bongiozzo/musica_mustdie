@@ -48,6 +48,42 @@ Japanese edition includes:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.11.2003 reviews Шведы всякие нужны, шведы всякие важны
+
+<P>Данный альбом является уже четвертым полноценным релизом шведского квартета и вторым на Steamhammer. Даже не дослушав диск до конца, можно безошибочно сделать вывод о музыкальных пристрастиях THE QUILL: это DEEP PURPLE, BLACK SABBATH и LED ZEPPELIN. «Да таких команд полно!» - скажете вы. Да, но мало кому удается так умело сплести воедино фишки вышеперечисленных групп и, тем не менее, создать какой-то свой фирменный саунд. Посему не будем называть плагиаторами эту имеющую уже почти десятилетнюю историю шведскую банду, ибо тогда в таковые можно будет записать, например, практически все думовые группы, «обвинив» их в подражании Оззи и Со. Но мы отвлеклись. Думаю, что «Смертельное путешествие» шведов можно будет смело рекомендовать как старым рокерам, тоскующим по столь милым сердцу и уху семидесятым, так и более молодым любителям хорошего качественного английского хард-рока, но уже с более современным звучанием. </P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 24.01.2009 news THE QUILL пишут альбом
+
+<P>Шведы <STRONG>THE QUILL</STRONG> работают над новыми песнями. Группа собирается выпустить альбом в ближайшее время.</P>
+Автор: Vit Belov
+
+### 08.07.2011 news Новое видео THE QUILL
+
+<P>Видео-клип шведов <STRONG>THE QUILL</STRONG> на песню <STRONG>"Black Star" </STRONG>можно посмотреть ниже. Песня попала на новый альбом коллектива <STRONG>"Full Circle"</STRONG>, который выйдет 26 июля на<STRONG> Metalville</STRONG>. Сведением альбома занимался <STRONG>Chris Laney.</STRONG></P>
+<P>Настоящий состав <STRONG>THE QUILL:</STRONG></P>
+<P><STRONG>Magnus Arnar</STRONG> (vocals)<BR><B>Christian Carlsson</B> (guitar)<BR><B>Jolle Atlagic</B> (drums)<BR><B>Robert Triches</B> (bass</P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=765bf52de12133cf1afe" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.12.2011 news Видео от THE QUILL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ниже можно посмотреть видео-клип на песню шведской группы <STRONG>THE QUILL</STRONG> <STRONG>"Medicine".</STRONG></FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/MVDw_ROqGnI?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/MVDw_ROqGnI?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

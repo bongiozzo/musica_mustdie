@@ -79,6 +79,20 @@ Engineered by Han Swagerman Sr.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2015 news PHLEBOTOMIZED собирают деньги на новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Голландские авангардисты от doom/death металла, группа <STRONG>PHLEBOTOMIZED</STRONG>, собирает деньги на запись нового альбома при помощи сайта <A href="http://www.kickstarter.com/">www.kickstarter.com</A>.&nbsp; Выпуск, безымянного пока, диска, планируется в следующем году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подробности и условия участия в акции можно узнать по ссылке:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.kickstarter.com/projects/1345407443/phlebotomized-new-album-2016">www.kickstarter.com/projects/1345407443/phlebotomized-new-album-2016</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом голландцев под названием <STRONG>"Skycontact"</STRONG>, был выпущен в 1997 году на лейбле <STRONG>Cyber Music</STRONG>.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.07/28181.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

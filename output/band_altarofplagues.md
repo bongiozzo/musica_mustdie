@@ -28,6 +28,9 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### FORGOTTEN TOMB / ALTAR OF PLAGUES / OFFICIUM TRISTE (Москва, 15 октября)

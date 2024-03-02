@@ -21,6 +21,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2011 news DEN SAAKALDTE на Agonia Records
+
+<P>Норвежцы <STRONG>DEN SAAKALDTE</STRONG> подписали контракт с <STRONG>Agonia Records</STRONG>. Группа, в которой только что сменился вокалист, в ближайшее время записшет второй альбом <STRONG>'Kapittel II:Faen I Helvete'. </STRONG>Новым фрнтменом коллектива стал <STRONG>Oyvind Hageland</STRONG> (<B>SPIRAL ARCHITECT</B>, <B>ARCTURUS</B>, <B>SCARIOT</B>), он сменил на этом посту <STRONG>Niklas Kvarforth</STRONG> (<B>SHINING</B>).</P>
+<P>Дебютный альбом <STRONG>DEN SAAKALDTE</STRONG> вышел в 2009 году на <STRONG>Avantgarde</STRONG>.</P>
+<P>
+<CENTER><IMG height=284 src="/images/news_rus/2011.07/20229.jpg" width=475 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

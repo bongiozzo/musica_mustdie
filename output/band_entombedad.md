@@ -38,6 +38,27 @@ Victor Brandt (Bass)
 * C группой "Firespawn" Victor Brandt (guitar)
 * C группой "Aeon" Victor Brandt (guitar)
 
+## Публикации
+
+### 26.09.2014 news ENTOMBED A.D. опубликовали видео
+
+<P>Вернувшиеся к корням шведы<STRONG> ENTOMBED A.D.</STRONG> (бывший ENTOMBED) опубликовали видео на песню "<STRONG>Kill To Live</STRONG>". Трек вошёл в альбом-возвращение "<STRONG>Back To The Front</STRONG>", который вышел на<STRONG> Century Media</STRONG> в начале августа. Выход в России анонсирован на <STRONG>Mazzar</STRONG>, но пока ничего не происходит.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/atJ0CSKM9G4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.10.2016 news ENTOMBED A.D. выпустили видео
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>ENTOMBED A.D.</strong> выпустили видео-клип на песню "<strong>Dead Dawn</strong>". Это заглавная композиция с последнего альбома шведов.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Покупайте лицензионный диск в магазине <strong>Escapemind.ru</strong>: <a href="http://escapemind.ru/goods/ENTOMBED-A-D-Dead-Dawn">http://escapemind.ru/goods/ENTOMBED-A-D-Dead-Dawn</a></font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/xSJCZ9sfrSw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 25.10.2016 news ENTOMBED A.D. launch video for “Dead Dawn”
+
+<p>A deadly dawn is spreading across the land as <strong>ENTOMBED A.D.</strong> drops a horrifying new video for the title track off their newest album, <strong>Dead Dawn</strong>. Zombies will attack, so hold on to your brains!</p><p>Guitarist <strong>Nico Elgstrand</strong> comments on the video: “<em>Finally a serious video without the usual nonsense often associated with Metal these days. This one has depth and a very important message that we think is overlooked in today's media climate. Anyone with half a brain will stop with whatever they're doing and realize that we must take a stand against these injust accusations that metal is for stupid people, that's simply not true and this video we think portrayed it beautifully! <br>Enjoy this fine release that will leave you enchanted and content that you're a thinking individual with exquisite taste and that Entombed A.D. is telling it like it is, uncensored and amazingly with superior subtlety and finesse!!</em>”</p><p>Watch the video for “Dead Dawn” here:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/xSJCZ9sfrSw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ENTOMBED A.D. (Швеция) в Москве (7 декабря 2014)

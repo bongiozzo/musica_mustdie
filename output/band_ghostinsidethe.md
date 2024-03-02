@@ -30,6 +30,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.02.2013 news THE GHOST INSIDE: видеоклип &quot;The Great Unknown&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео хардкор банды <STRONG>THE GHOST INSIDE</STRONG> на трек <STRONG>"The Great Unknown"</STRONG> можно посмотреть ниже. На счету у группы уже три альбома, последний из которых, <STRONG>"Get What You Give"</STRONG>,&nbsp;увидел свет&nbsp;в июне прошлого года на лейбле <STRONG>Epitaph</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже сегодня все желающие смогут лицезреть американский коллектив <STRONG>THE GHOST INSIDE</STRONG> живьём в столичном клубе <STRONG>"Plan B"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/Gc_nr8U10Lc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

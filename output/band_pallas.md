@@ -151,6 +151,19 @@ CD 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.07.2005 news Новый альбом PALLAS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>PALLAS "The Dream Of Man"</STRONG> выходит осенью 2005 года на <STRONG>Inside Out</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 18.07.2005 news New album of PALLAS
+
+<P>New album of <STRONG>PALLAS "The Dream Of Man"</STRONG> will be released in autumn via<STRONG> Inside Out</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.05.2012 news MONUMENTS на Century Media
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Английский tech-metal квинтет <STRONG>MONUMENTS</STRONG> подписал контракт с <STRONG>Century Media</STRONG>. Дебютный альбом коллектива "<STRONG>Gnosis</STRONG>" выйдет в августе. Группа обратила на себя внимание миньоном "<STRONG>We Are The Foundation</STRONG>", вышедшем на <STRONG>Basick Records</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=297 src="/images/news_rus/2012.05/24002.jpg" width=448 border=0></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

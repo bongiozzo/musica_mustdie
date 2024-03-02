@@ -23,6 +23,21 @@ Finnish melodic thrash-metal
 
 * C группой "Thyrane" Avather (guitar)
 
+## Публикации
+
+### 30.07.2003 reviews Агрессивная и мелодичная музыка...
+
+<p>Как часто напрашивается этот эпитет? Пожалуй, часто... Только по разным причинам... Причиной в случае с этой финской группой стал нетривиальный thrash-metal. Я бы даже сказал финский thrash-metal. Агрессивные риффы от PANTERA или PRO-PAIN чередуются с мелодичными вставками в духе старого SENTENCED. Бодрящая Coca.., простите бодрящий Кленовый Крест. Не замыкаясь в стилевых рамках, ребятам удалось создать свежезвучащую музыку, которая добавит Вам адреналинчику при езде на машине или при прослушивании в плэйере где-нибудь в переполненом автобусе. Пульсирующая ритм-секция и протестующие выркрики вокалиста, запоминающиеся и незаезженные мелодии, весёлые соло на гитаре и партии чистого вокала. 'Next Chapter' напомнил мне альбом KREATOR 'Endorama', а такой музыки, по меньшей мере, немного... Не true, конечно же, но интересно и свежо.</p>
+
+Автор: Vit Belov
+
+### 25.02.2004 news MAPLE CROSS: New Members
+
+<P>Finnish melodic thrash metallers <B>MAPLE CROSS</B> have parted ways with guitarists <B>Late </B>and <B>Sami Siekkinen</B> and have replaced them with <B>THYRANE's Avather</B> and <B>SETHERY's J. Henttunen</B>. <BR><BR>The following is <B>MAPLE CROSS</B> frontman <B>Marco R.J.</B>'s official statement on the matter: <BR><BR>"<I>A year is a long time in the world of music and we had to experience it ourselves first hand to realize it. When me, Late, Aki, Sami and Ollari started to write music together couple of years ago we couldn't imagine what the future would hold for us. We worked really hard all the time, but especially in 2003...</I></P>
+<P><I>In 2003 we recorded 'Next Chapter', toured Finland and the UK, shot a video for 'AU Revoir' (taken from 'Next Chapter') and finally played couple of festival gigs during the summer. After that we found ourselves without bass player and that was just a beginning. First we took sometime off and when we started to talk about going back to our rehearsal studio we realized it might not be possible. So, we sat down and talked things through and decided there and then it would be better if me and Aki continued with MAPLE CROSS and Late and Sami would step aside.</I> <BR><BR><I>A few days later I already had some idea who I wanted in. I called Avather (THYRANE) and J. Henttunen (SETHERY) to see if they wanted to join the ranks. They jumped at the chance almost immediately and when Aki's old pal Sami wanted to 'MAKE HELL' as well, we were ready to do some damage!!</I> <BR><BR><I>Now that we've been playing together for few months I can honestly say That all this trouble we went through has taught me a lot. It wasn't the end of the world, Because I still get to write music with people who I regard as my friends and at the same time my friendship with Late and Sami is as strong as it ever was. So, in this case everyone's a winner!</I> <BR><BR><I>Next step for us is to get back on stage and that will happen in February 25th at a place called LOOP here in our home town of Oulu. So, come on down and witness first hand that MAPLE CROSS is still alive and ready to DESTROY!!!"</I><BR><BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -21,6 +21,17 @@
 * C группой "Christ Agony" Reyash (bass/vocal)
 * C группой "Witchmaster" Reyash (bass/vocal)
 
+## Публикации
+
+### 11.05.2004 news SUPREME LORD sign with Conquer Music
+
+<P><B><IMG height=200 alt="" hspace=0 src="/images/news/2004.05/6502.jpg" width=200 align="left" border=5>SUPREME LORD</B>&nbsp;has been signed contract with <B>CONQUER RECORDS</B>. The first effect of this deal will be the first full-length album "<B>X99.9</B>" - old underground school&nbsp;death metal</P>
+<P>Track-list:</P>
+<P><B>1. X99.9 kill your enemies 2. Nail him 3. Death Metal Beast 4. Terrorzone 5. Flashback 6. Hegemony5 7. Dark heresies 8. Traitors corpse</B> plus re-mastered demo for 1995 yaer "<B>At the Black Moon Night</B>" and 2 video to piece at "<B>X99.9</B>": <B>"Death Metal Beast", "Terrorzone".</B> Album will be available at the beginning of June. </P>
+<P><B>SUPREME LORD</B> was created in 1991 by <B>Reyash</B> who was also involved in <B>Christ Agony</B> (and now member of Witchmaster). Line up: <B>V-told-o (drums), Shymon (guitars), Reyash (bas/vocal), Pablo (guitars).</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

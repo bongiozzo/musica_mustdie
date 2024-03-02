@@ -16,6 +16,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2016 news Премьера нового трека CRIPPLED BLACK PHOENIX
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый трек британской dark progressive группы <strong>CRIPPLED BLACK PHOENIX "No Fun" </strong>можно послушать ниже. Песня войдёт в новый альбом коллектива <strong>"Bronze</strong>", который запланирован к выходу на <strong>Season Of Mist</strong> 4 ноября этого года.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>01. Dead Imperial Bastard<br>02. Deviant Burials<br>03. No Fun<br>04. Rotten Memories<br>05. Champions Of Disturbance (Pt 1 & 2)<br>06. Goodbye Then<br>07. Turn To Stone<br>08. Scared And Alone<br>09. Winning A Losing Battle<br>10. We Are The Darkeners </p><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.09/29955.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/nQ5ysXQLUwY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 13.09.2016 news CRIPPLED BLACK PHOENIX premiere first track
+
+<p><strong>CRIPPLED BLACK PHOENIX</strong> are now revealing the first track from their forthcoming album '<strong>Bronze</strong>'. The UK dark progressive rockers will release their stunning new full-length on November 4th.</p><p>Track list:</p><p>01. Dead Imperial Bastard<br>02. Deviant Burials<br>03. No Fun<br>04. Rotten Memories<br>05. Champions Of Disturbance (Pt 1 & 2)<br>06. Goodbye Then<br>07. Turn To Stone<br>08. Scared And Alone<br>09. Winning A Losing Battle<br>10. We Are The Darkeners </p><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.09/29955.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/nQ5ysXQLUwY" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 29.09.2016 news CRIPPLED BLACK PHOENIX выпустили новый трек
+
+<p>Новый сингл <strong>CRIPPLED BLACK PHOENIX "Winning A Losing Battle"</strong> можно послушать ниже. Песня попадёт в новый альбом коллектива "<strong>Bronze</strong>", который выйдет 4 ноября на <strong>Season of Mist</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VLKjk9c8OTc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.09.2016 news CRIPPLED BLACK PHOENIX reveal next song
+
+<p><strong>CRIPPLED BLACK PHOENIX</strong> are now streaming the second stunning track taken from their forthcoming album '<strong>Bronze</strong>'. The UK dark progressive rockers will release their new full-length on November 4th.</p><p>The wonderfully melancholic song "<strong>Winning A Losing Battle</strong>" is exclusively streaming below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VLKjk9c8OTc" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

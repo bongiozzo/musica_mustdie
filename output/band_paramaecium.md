@@ -75,6 +75,14 @@ All lyrics written by Andrew Tompkins
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2006 news Реформация PARAMAECIUM
+
+<P>Вернулся к жизни австралийский&nbsp;doom death metal&nbsp;коллектив <B>PARAMAECIUM</B>, собравшийся вновь в оригинальном составе образца 1993 года. Ближайшее выступление группы состоится 2-5 ноября на норвежском фестивале <B>Nordicfest</B>,&nbsp;в компании с группами&nbsp;<B>LAUDAMUS</B> (Sweden), <B>PANTOKRATOR</B> (Sweden)&nbsp;и <B>BARRICADES</B> (Denmark).</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

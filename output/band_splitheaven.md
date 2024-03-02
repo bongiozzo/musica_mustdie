@@ -48,6 +48,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.07.2011 news Третий альбом SPLIT HEAVEN
+
+<P><IMG height=285 alt="" hspace=0 src="/images/news_rus/2011.07/19907.jpg" width=285 align=right border=0>29 апреля на <STRONG>Pure Steel Records</STRONG> вышел новый альбом мексиканской heavy-metal группы<STRONG> SPLIT HEAVEN "Street Law"</STRONG>. Издающий лэйбл называет музыку на третьем альбоме этого коллектива new wave of traditional heavy-metal. Трек-лист:</P>
+<P>1. <STRONG>Time Warrior</STRONG>&nbsp; 04:17&nbsp; <BR>2. <STRONG>The Devil Isn't Fool</STRONG>&nbsp; 04:10<BR>3. <STRONG>Night of the Jaguar</STRONG>&nbsp; 04:57<BR>4. <STRONG>Street Law</STRONG>&nbsp; 03:35&nbsp; <BR>5. <STRONG>Servants of the Night</STRONG>&nbsp; 03:06&nbsp;&nbsp;&nbsp; <BR>6. <STRONG>Lonewolf&nbsp;</STRONG> 04:00&nbsp; <BR>7. <STRONG>Road to Nowhere</STRONG>&nbsp; 03:07 <BR>8. <STRONG>Red Light District</STRONG>&nbsp; 03:35&nbsp;&nbsp;&nbsp; <BR>9. <STRONG>Nightfall</STRONG>&nbsp; 03:32 <BR>10. <STRONG>The Obscure</STRONG>&nbsp; 03:13 </P>
+<P>Официальный сайт: <A href="http://www.splitheaven.net/">http://www.splitheaven.net/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

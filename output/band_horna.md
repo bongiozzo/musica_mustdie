@@ -35,6 +35,73 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.10.2000 reviews Адамант Black Metal
+
+<P>Создается впечатление, что лишь одно присутствие данного альбома способно вызвать в пространстве серьезные и продолжительные возмущения общей атмосферы святости и богоугодности... даже в церкви или каком-то святилище... Можете себе представить, что будет, если вы начнете прослушивать данный альбом! Как и для любого другого настоящего Произведения с большой буквы, просто не находится слов для описания этого явления, этого адаманта от Black Metal!..</>
+<P> Искрящийся, пронизывающий Абсолютной злобой и ненавистью, призывающий языки Черного Пламени из колонок и обволакивающий темно-багровыми крыльями сумерек... все это лишь эмоциональные и субъективные определения, не способные передать общей картины, общего впечатления от данной работы. Музыкально - разнотемповый (в основном, сверхскоростной) Black Metal, практически без явных клавиш внутри композиции (они исполняют роль неуловимой атмосферной фоновой подкладки для остальных инструментов) и с мрачным клавишным интро и нойзово-электронной предпоследней композицией. Музыка изобилует нестандартными ходами и риффами, лишь иногда отдаленно смахивающих на <B>MAYHEM</B> "De Mysteriis dom Sathanas" или, как ни странно, на лучшее из ранних произведений <B>IMPALED NAZARENE</B>. Все композиции из этого произведения неразрывно связаны друг с другом и их, пожалуй, даже нельзя прослушивать отдельно. Отличительной чертой этого альбома, да и других работ <B>HORNA</B>, является вокал - разрывающий пространство и барабанные перепонки надрывный хрип финской речи (которая, как мне кажется, вообще идеально подходит для извержения антихтианских речей).</>
+<P> Словом, если вам необходимо поддержать или привести в норму богохульный фон в некоторой локальной окрестности вашего генератора звуковых колебаний - ничего лучше данного произведения не найти!</>
+
+Автор: Autumnoxus
+
+### 11.07.2003 news HORNA остались без гитариста
+
+<p>Финские ортодоксальные блэкстеры HORNA остались без гитариста Aarni T. Otava, покинувшего группу.</p>
+
+Автор: Dimas
+
+### 22.09.2003 news GOAT GUTS OVER EUROPE 2003 TOUR
+
+<SPAN lang=EN-GB><B><B><SPAN lang=EN-GB>
+<P><SPAN class=SpellE><B>GOAT</B></SPAN><B><SPAN> <SPAN class=SpellE>GUTS</SPAN> OVER EUROPE 2003 TOUR</SPAN></B></P>
+<P><B></B>presented by Ledo Takas Records and Satans Millennium Concerts</P>
+
+<P>featuring:</P>
+
+<P><B>HORNA - black metal cult [finland]</B></P>
+<P><B>SALACIOUS GODS - traditional black metal [netherlands]</B></P>
+<P><B>BEHEXEN - raw thrashy black metal [finland]</B></P>
+<P><B>LOITS - melancholic northern black metal [estland]</B></P>
+
+<P>is coming!!</P>
+
+<P>it starts the route on 26th September at K17 club in Berlin, Germany and finishes up in Kabata club, Riga, Latvia on 11th October.</P>
+
+<P>here is the confirmed tour schedule:</P>
+
+<P>Friday 26th Sep: K17 club / Berlin [Germany]</P>
+<P>Saturday 27th Sep: HarzRock Caf&eacute; / Scharzfeld, near Braunschweig [Germany]</P>
+<P>Sunday 28th Sep: Zu-Ga-Be club / Vienna [Austria]</P>
+<P>Monday 29th Sep: t.b.a.</P>
+<P>Tuesday 30th Sep: t.b.a.</P>
+<P>Wednesday 1st Oct: The Frontline / Gent [Belgium]</P>
+<P>Thursday 2nd Oct: t.b.a.</P>
+<P>Friday 3th Oct: Baroeg club / Rotterdam [Netherlands]</P>
+<P>Saturday 4th Oct: Panique d'O club / Mechelen [Belgium] + HERFST</P>
+<P>Sunday 5th Oct: t.b.a. / travel day</P>
+<P>Monday 6th Oct: Dom Omladine club / Belgrad [Serbia]</P>
+<P>Tuesday 7th Oct: Metelkova club / Ljubljana [Slovenia] + WATAIN / AVERSE SEFIRA / SECRETS OF THE MOON</P>
+<P>Wednesday 8th Oct: t.b.a. / travel day</P>
+<P>Thursday 9th Oct: t.b.a. / travel day</P>
+<P>Friday 10th Oct: Vilnius [Lithuania] + DISSIMULATION</P>
+<P>Saturday 11th Oct: Kabata club / Riga [Latvia]</P>
+
+<P><B>tour organizers still search for gigs on few remaining dates, so if you think you can get anything arranged, get back in touch immediately with one of the following:</B></P>
+<P><B></B></P>
+<P><B>k.kaos@ledotakas.net</B></P>
+<P><B>+370 610 64117 [tadas]</B></P>
+<P><B></B></P>
+<P><B>scourginghermit@hotmail.com</B></P>
+<P><B>+31 062 9548597 [olaf]</B></P></SPAN></B></B></SPAN>
+Автор: Vit Belov
+
+### 26.05.2004 news Horna записали новый альбом
+
+<P><B>HORNA</B> закончили работу над новым альбомом <B>"Envaatnags Eflos Solf Esgantaavne"</B>, который выйдет позже в этом году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

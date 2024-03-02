@@ -28,6 +28,16 @@
 * C группой "Running Wild" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
 * C группой "Giant X" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
 
+## Публикации
+
+### 02.01.2009 news Новый проект лидера RUNNING WILD
+
+<P><IMG height=340 alt="" hspace=0 src="/images/news_rus/2009.01/13266.jpg" width=230 align=right border=5>Новая группа под предводительством лидера <STRONG>RUNNING WILD</STRONG> <STRONG>Rolf "Rock'n'Rolf" Kasparek</STRONG>&nbsp;<STRONG>TOXIC TASTE </STRONG>выпустила дебютный альбом <STRONG>"Toxification". </STRONG>Пластинка доступна через <STRONG>MySpace</STRONG> коллектива. Легенда power-metal<STRONG> Rolf</STRONG>, выступающий здесь под псевдонимом <STRONG>T.T. Poison</STRONG> обозначает стиль <STRONG>TOXIC TASTE</STRONG>, как "space-punk-glam-rock". Стоимость пластинки 13.95 Евро + доставка. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Toxic Taste</B><BR itxtvisited="1">02. <B itxtvisited="1">N.C.R.</B><BR itxtvisited="1">03. <B itxtvisited="1">Neon Angel</B><BR itxtvisited="1">04. <B itxtvisited="1">Midnight Rodeo</B><BR itxtvisited="1">05. <B itxtvisited="1">Nightime's Waiting</B><BR itxtvisited="1">06. <B itxtvisited="1">She's a Rock</B><BR itxtvisited="1">07. <B itxtvisited="1">Tonight</B><BR itxtvisited="1">08. <B itxtvisited="1">Starlight Serenade</B><BR itxtvisited="1">09. <B itxtvisited="1">Raise Your Glass</B><BR itxtvisited="1">10. <B itxtvisited="1">T.T.S.G.</B><BR itxtvisited="1">11. <B itxtvisited="1">Come On Strong</B><BR itxtvisited="1">12. <B itxtvisited="1">High (R)oc(k)tone</B><BR itxtvisited="1">13. <B itxtvisited="1">Anytime</B><BR itxtvisited="1">14. <B itxtvisited="1">Time Of Our Life</B><BR itxtvisited="1">15. <B itxtvisited="1">Rock'n'Roll</B></P>
+<P>Ссылка: <A href="http://www.myspace.com/neoncityrock">http://www.myspace.com/neoncityrock</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -63,6 +63,45 @@ Tim "Ripper" Owens - Vocals
 * C группой "Faust [ITA]" Steve DiGiorgio (bass)
 * C группой "Dragonlord" Steve DiGiorgio (bass)
 
+## Публикации
+
+### 19.05.2009 news Сольный альбом Richard Christy
+
+<P>Знаменитый барабанщик <STRONG>Richard Christy</STRONG> подписал контракт на выпуск сольного альбома с <STRONG>Metal Blade</STRONG>. В группу, которая будет носить название <STRONG>CHARRED WALLS OF THE DAMNED</STRONG>, войдут бывший вокалист <STRONG>JUDAS PRIEST Tim "Ripper" Owens</STRONG> и басист <STRONG>Steve Digiorgio</STRONG>. Дебютная пластинка выйдет осенью.</P>
+Автор: Vit Belov
+
+### 26.08.2011 news Новый альбом CHARRED WALLS OF THE DAMNED
+
+<P>Второй альбом <STRONG>CHARRED WALLS OF THE DAMNED "Cold Winds On Timeless Days" </STRONG>выходит 11 октября на Metal Blade. Продюсером работы выступил <STRONG>Jason Suecof, </STRONG>а сведение сделал <STRONG>Mark Lewis. </STRONG>Мастеринг принадлежит усилиям <STRONG>Alan Douches</STRONG>&nbsp;в <B>West West Side Music</B> (<B>SEPULTURA</B>, <B>SUFFOCATION</B>, <B>UNEARTH</B>). Трек-лист:</P>
+<P>01. <B>Timeless Days</B><BR>02. <B>Ashes Falling Upon Us</B> <BR>03. <B>Zerospan</B> <BR>04. <B>Cold Winds</B><BR>05. <B>Lead The Way</B> <BR>06. <B>Forever Marching On</B> <BR>07. <B>Guiding Me</B> <BR>08. <B>The Beast Outside My Window</B> <BR>09. <B>On Unclean Ground</B> <BR>10. <B>Bloodworm</B> <BR>11. <B>Admire The Heroes</B> <BR>12. <B>Avoid The Light</B></P>
+<P>Дебютный сингл <STRONG>"Zerospan" </STRONG>можно послушать в клипе ниже. Состав группы:</P>
+<P>* <B>Richard Christy</B> - Drums<BR>* <B>Jason Suecof</B> - Guitar, Producer<BR>* <B>Tim "Ripper" Owens</B> (JUDAS PRIEST, YNGWIE MALMSTEEN, ICED EARTH) - Vocals<BR>* <B>Steve DiGiorgio</B> (SADUS, TESTAMENT) - Bass</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/EA6v243vpbA" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 15.03.2012 news Новый клип CHARRED WALLS OF THE DAMNED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип <STRONG>CHARRED WALLS OF THE DAMNED</STRONG> на песню "<STRONG>Zerospan</STRONG>" можно посмотреть ниже. В коллективе объединили свои силы:</FONT></P>
+<P>* <STRONG>Richard Christy</STRONG> - Drums<BR>*<STRONG> Jason Suecof</STRONG> - Guitar, Producer<BR>* <STRONG>Tim "Ripper" Owens</STRONG> (JUDAS PRIEST, YNGWIE MALMSTEEN, ICED EARTH) - Vocals<BR>* <STRONG>Steve DiGiorgio</STRONG> (SADUS, TESTAMENT) – Bass</P>
+<P><center><iframe width="480" height="270" src="http://ictv-bd-ec.indieclicktv.com/watch/dab6f75ea0c8c1b016ca220729e8a708/iframe.html" frameborder="0" marginheight="0" marginwidth="0" scrolling="no" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 05.08.2016 news Новый альбом CHARRED WALLS OF THE DAMNED выходит в сентябре
+
+<p>Новый альбом проекта <strong>Richard Christy, Jason Suecof, Tim Owens</strong> и <strong>Steve Digiorgio CHARRED WALLS OF THE DAMNED "Creatures Watching Over The Dead</strong>"&nbsp;выйдет 23 сентября на <strong>Metal Blade</strong>. Ниже можно услышать первый сингл с этого альбома "<strong>The Soulless</strong>".</p><p>Трек лист:</p><p>1. My Eyes&nbsp;&nbsp; <br>2. The Soulless&nbsp;&nbsp; <br>3. Afterlife&nbsp;&nbsp; <br>4. As I Catch My Breath&nbsp;&nbsp; <br>5. Lies&nbsp;&nbsp; <br>6. Reach into the Light&nbsp;&nbsp; <br>7. Tear Me Down&nbsp;&nbsp; <br>8. Living in the Shadow of Yesterday&nbsp;&nbsp; <br>9. Time Has Passed</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/t5rPKGEuTYE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 05.08.2016 news New album of CHARRED WALLS OF THE DAMNED will be released in September
+
+<p>New album of project of <strong>Richard Christy, Jason Suecof, Tim Owens </strong>and <strong>Steve Digiorgio CHARRED WALLS OF THE DAMNED "Creatures Watching Over The Dead"</strong> will be released on September 23 through <strong>Metal Blade records</strong>. Below you can hear the first single from this album, "<strong>The Soulless</strong>".</p><p>Track list:</p><p>1. My Eyes&nbsp;&nbsp; <br>2. The Soulless&nbsp;&nbsp; <br>3. Afterlife&nbsp;&nbsp; <br>4. As I Catch My Breath&nbsp;&nbsp; <br>5. Lies&nbsp;&nbsp; <br>6. Reach into the Light&nbsp;&nbsp; <br>7. Tear Me Down&nbsp;&nbsp; <br>8. Living in the Shadow of Yesterday&nbsp;&nbsp; <br>9. Time Has Passed</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/t5rPKGEuTYE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 07.10.2016 reviews Идеальный проект барабанщика Richard Christy
+
+<p>CHARRED WALLS OF THE DAMNED – проект известного американского барабанщика Richard Christy, известного по работе в DEATH, CONTROL DENIED, ICED EARTH и ещё великом множестве команд, что характеризует его как большого профессионала. Прославиться барабанщику как «сонграйтеру» довольно тяжело, по этой причине довольно редко бывает, что в успешной группе музыку сочиняет музыкант этого амплуа. Об успешности CWOTD судить не столько рано, сколько тяжело. Безусловно, группу в определённых кругах знают, но к выходу третьего альбома у PR-отдела лэйбла Metal Blade осталось ещё очень много работы. Ведь в составе банды, кроме Christy, также басист SADUS и DEATH Steve DiGiorgio, бывший вокалист JUDAS PRIEST и ICED EARTH Tim 'Ripper' Owens и известный продюсер Jason Suecof, с которым работал чуть ли не весь цвет американского современного метала.</p><p>«Creatures Watching over the Dead” - идеальный альбом для американского heavy metal. Великолепная работа инструменталистов, мощная реализация, безупречный вокал Owens, всё это здесь присутствует. Кроме этого, как и в ICED EARTH, где Richard работал с Reaper, музыка CWOTD содержит небольшое кличество thrash metal, что разнообразит и без того очень приличный материал. Альбом длится слегка больше 30 минут, и эти полчаса можно будет провести с пользой. Каждые трек на пластинке запоминается и вселяет самые добрые чувства.</p><p>Тут может быть только одна проблема, если вам не нравится heavy metal американского образца и конкретно пение Tim 'Ripper' Owens. В остальном альбом просто идеален, массивная звуковая стена и чёткое вокальное исполнение — неприменно слушать.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -26,6 +26,16 @@ Al-Marhum Abyydos - Hellharp
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.01.2011 news IMPIETY: новый мини-CD &quot;Advent Of…&quot; на лейбле Pulverised
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18331.jpg" width=400 height=400>Сингапурцы&nbsp;<B itxtvisited="1">IMPIETY</B>, в состав которых входят вокалист/басист <B itxtvisited="1">Shyaithan</B>, гитаристы&nbsp;<B itxtvisited="1">Guh Lu</B> (<B itxtvisited="1">XEPER</B>, <B itxtvisited="1">DIVINE CODEX</B>)&nbsp;и <B itxtvisited="1">Eskathon</B>, а так же, барабанщик <B itxtvisited="1">Atum</B> (<B itxtvisited="1">MALFEITOR</B>, <B itxtvisited="1">DIVINE CODEX</B>), планируют выпустить в скором времени новый мини-CD, <B itxtvisited="1">"Advent Of…"</B>, на лейбле <B itxtvisited="1">Pulverised</B>. </P>
+<P>Диск был записан, смикширован и получил мастеринг в <B itxtvisited="1">Music City Studios</B> в городе Montebelluna (Италия). Обложку альбома нарисовал тайский художник, скрывающийся под псевдонимом <B itxtvisited="1">Lord Sickness</B>. </P>
+<P>Трек-лист<STRONG> "Advent Of…"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Advent Of The Nuclear Baphomet</B><BR itxtvisited="1">02. <B itxtvisited="1">Ave Satanas</B><BR itxtvisited="1">03. <B itxtvisited="1">Blood Ritual Defamation</B></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

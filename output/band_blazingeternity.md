@@ -35,6 +35,35 @@ Agnete F cello (1,2)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2000 reviews Атмосферняк...
+
+<p>Атмосферняк... Ещё одна группа приобщилась к великому наследию Katatonia. Причем, получается у неё это ничуть не хуже, чем у тех же Opeth и Ancient Wisdom. К сожалению, не имел возможности ознакомиться с предыдущим творением этих сумрачных шведов (помнится, тот диск так и не дошел до меня). Но этот альбом произвел на меня неизгладимое впечатление. Очень эмоциональная и душевная музыка, переполненная печальной и мистической атмосферой. Временами, некоторые партии кажутся чисто heavy-metal'ом, но в целом, все ведет к темноте и трагедии. Безумный мелодизм, выразительная инструментальная работа и отчаянный вокал. определенная доля депрессивности. Есть и фирменные акустические отступления. И все на самом высшем уровне. Отдохните под этот альбом.</p>
+
+Автор: Dimas
+
+### 22.07.2000 reviews Atmosphereness...
+
+<p>Atmosphereness... And one group has attached great heritage Katatonia. And, receives for it at all not worse, than for same Opeth and Ancient Wisdom. Unfortunately, had no a capability to acquaint with the previous creation of these gloomy swedes (is remembered, that disk and has not reached me). But this album has made on me an indelible impression. Very emotional and spiritual music, overflowed sad and mystical atmosphere. From time to time, some crews seem only heavy-metal, but as a whole, all conducts to darkness and tragedy. Mad melodism, expressiveinstrument activity and desperatevoice. A definite lobe deppressive. There are also firm acoustic departures. And all on the highest level. Have a rest under this album.</p>
+
+Автор: Dimas
+
+### 22.04.2003 news Новости от BLAZING ETERNITY
+
+<p>Закончена работа над новым творением датской группы BLAZING ETERNITY. Альбом под названием "A World To Drown In" выйдет в свет 26 мая 2003 года на Prophecy Productions.</p>
+
+Автор: Dimas
+
+### 30.09.2003 reviews Утонувший мир
+
+<P>Поздняя осень. Мертвый, залитый холодным дождем, пополам со снегом, город под серым небом. Грязь под ногами. Мертвые бетонные коробки заброшенных промышленных зданий. Гниющие под открытым небом, страдающие от голодных и злобых в отчаянии&nbsp;подростков&nbsp; автомобили. Горько рыдающая девушка в пламени взрыва. Апокалипсис.</P>
+<P>Полный боли и грусти чистый голос вокалиста в стиле Autumnblaze, техническое совершенство записи и великолепное исполнительское мастерство от Opeth, гитарные риффы и смены ритма в духе Agalloch, красота мелодий и воздушность аранжировокот поздней Анафемы.</P>
+<P>Это все новый альбом “A World To Drown In” от бывших дум-дэтстеров из Дании Blazing Eternity. Прекрасный альбом. Не оригинальный, но очень честный и грустный. Как раз к сезону. </P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+
 ## Обсуждения
 
 

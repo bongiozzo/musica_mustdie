@@ -148,6 +148,202 @@ Mastered at Maor Appelbaum Mastering in Califoria, United States.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.08.2008 reviews Ламбада на ‘pagan’ лад
+
+<P>Немецкая группа EQUILIBRIUM уже наделала шуму в underground со своим первым альбомом “Turis Fratyr”, вышедшем на очень интересном немецком лэйбле Black Attakk. Сообщения о подписании этих конкурентов ENSIFERUM «мэйджором» Nuclear Blast появились уже года два назад, но обещанный прошлогодней весной альбом вышел только в этом сезоне.</P>
+<P>Следует разобраться, отчего EQUILLIBRIUM так приглянулся нашим слушателям, внимательно следящим за происходящим в UG. Музыка коллектива, а это мелодичный, быстрый и танцевальный black-death-metal, могла выйти из под пера любого клиента финского лэйбла Spinefarm, но была доступна только на пластинках не очень известного в России лэйбла. Всем был ясен коммерческий потенциал немцев, и тем желаннее была эта редкая пластинка. Отмечу, что её «запиратили», что тоже является чем-то из ряда вон, обычно пираты производят продукцию известных лэйблов. По этой причине группа получила ещё большую известность, и множество почитателей стиля ожидали “Sagas” с нетерпением. Что ж, мы не разочарованы. “Sagas” представляет собой забойный, весёлый и, главное, разнообразный материал в ожидаемом стиле. Группа не только даёт “humppa” на немецкий лад, но и добавляет в своё творчество неожиданные, но не менее весёлые элементы. Например, четвёртая вещь с этого диска представляет собой не что иное, как black-metal переосмысление популярного в начале 90-х танца Ламбада.</P>
+<P>Хороший альбом, способный понравиться всем любителям веселой и тяжёлой музыки. Рекомендую обратить внимание всем, возможные лидеры жанра.</P>
+Автор: Vit Belov
+
+### 27.04.2009 news Вокалист EQUILIBRIUM присоединился к ARAFEL
+
+<P>Новости из стана эпических экстремалов <STRONG>ARAFEL</STRONG>: </P>
+<P>"<EM>В предверии возобновления концертной деятельности и подготовки к записи нового альбома, к группе&nbsp; присоединился Helge Stang, известный как вокалист немецкого Epic Pagan Metal коллектива Equilibrium</EM>".</P>
+<P>Так же стало известно,что запись нового альбома<STRONG> ARAFEL</STRONG> запланирована на осень/зиму 2009-го года.</P>
+Автор: Vit Belov
+
+### 18.02.2010 news EQUILIBRIUM расстались с вокалистом
+
+<P>Немецкая группа <STRONG>EQUILIBRIUM</STRONG> рассталась с вокалистом <STRONG>Helge Stang</STRONG> и барабанщиком <STRONG>Manuel Di Camillo</STRONG>. Группа продолжает записывать третий альбом для релиза в июне и сообщает, что эти потери не критичны, так как всю музыку сочиняет гитарист <STRONG>Rene Berthiaume.</STRONG></P>
+Автор: Vit Belov
+
+### 14.04.2010 news EQUILIBRIUM в июне
+
+<P>Новый альбом <STRONG>EQUILIBRIUM</STRONG> <STRONG>"Rekreatur" </STRONG>выходит 18 июня на <STRONG>Nuclear Blast</STRONG>.</P>
+<P><center><IMG height=300 src="/images/news_rus/2010.04/16528.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 12.06.2010 news Новый альбом EQUILIBRIUM на MySpace
+
+<P>Новая пластинка <STRONG>EQUILIBRIUM</STRONG> <STRONG>"Rekreatur" </STRONG>выходит 18 июня на <STRONG>Nuclear Blast</STRONG>, но уже сейчас альбом целиком можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/equilibrium">http://www.myspace.com/equilibrium</A></P>
+<P>Музыка будет доступна до 18 июня. Трэк-лист релиза:</P>
+<P>01. <B>In Heiligen Hallen</B><BR>02. <B>Der Ewige Sieg</B><BR>03. <B>Verbrannte Erde</B><BR>04. <B>Die Affeninsel</B><BR>05. <B>Der Wassermann</B><BR>06. <B>Aus Ferner Zeit</B><BR>07. <B>Fahrtwind</B><BR>08. <B>Wenn Erdreich Bricht</B><BR>09. <B>Kurzes Epos</B></P>
+<P>Предыдущие две работы коллектива также были изданы на<STRONG> Nuclear Blast</STRONG> и лицензированы в России <STRONG>Irond</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.07.2010 reviews Поклонники Тора когда-нибудь разобьют им голову
+
+<P>Немцы EQUILIBRIUM продолжают свою успешную карьеру, выпуская третий альбом для Nuclear Blast. Уже сейчас, благодаря мощной поддержке этого монстра, группа котируется на уровне лучших в pagan-metal во всём мире. И никакие пертурбации с составом, группу покинул вокалист, или даже сам факт того, что pagan и folk по своей музыке EQUILIBRIUM, строго говоря, не являются, не остановят этого шествия.</P>
+<P>Уже на прошлом альбоме EQUILIBRIUM поражали широтой своих музыкальных взглядов. Используя все средства музыкального воплощения, свойственные pagan-metal, группа заимствовала мелодии и настроения из всего спектра популярной музыки. Популярной не только у металистов, но и у всех непосвящённых. Например, на “Sagas” легко можно было услышать небезызвестную «Ламбаду». “Rekreatur” лишний раз показывает, какую музыку хочет играть группа. До минимума сокращены элементы folk музыки, воинственность языческого и викинг-метала, но до предела разноображено музыкально полотно. Здесь и какие-то симфонии, и «попсовые» мелодичные эпики, которые, исполни их какая-нибудь поп-дива, а не орущий мужик, вполне могли бы попасть в сэт-листы многих радиостанций. EQUILIBRIUM не ограничивают себя костюмом упёртого язычника, не знаю, хорошо это или нет, но это так. Слушать их новый альбом может практически любой поклонник тяжёлой музыки, начиная от любителей power и heavy-metal.</P>
+<P>Если считать EQUILIBRIUM языческой группой, то это означает, что мы живём в мире победившего Паганизма. Викинги пьют Кока-Колу, а их подруги пляшут на побережье Северного моря в бикини. Если же не заморачивать себе голову этими тонкими материями, к чему я склоняюсь, мы получим очень хороший альбом в мелодичном экстремальном металле, которые необходимо слушать очень многим.</P>
+Автор: Vit Belov
+
+### 29.06.2013 news EQUILIBRIUM: миньон &quot;Waldschrein&quot; в Августе
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.06/25847.jpg" width=400 height=358>В августе этого года немецкие герои эпического металла, группа <STRONG>EQUILIBRIUM</STRONG>, выпускают свой новый релиз, им станет миньон под названием <STRONG>"Waldschrein"</STRONG>. </P>
+<P>Комментирует группа:</P>
+<P><EM>“Мы с нетерпением ожидаем выхода этого EP, потому что наш новый полноформатник должен выйти только в следующем году.&nbsp;Данное обстоятельство предоставляет прекрасный шанс выпустить те песни и записи, которым не нашлось место на наших других альбомах, что делает этот EP особенным. Но главная фишка миньона <STRONG>“Waldschrein”</STRONG> в том, что&nbsp;мы можем дать попробовать нашим фэнам то, что их ожидает в 2014!”</EM></P>
+<P>Трек-лист:<BR>01. <STRONG>Waldschrein</STRONG><BR>02. <STRONG>Der Sturm<BR></STRONG>03. <STRONG>Zwergenhammer<BR></STRONG>04. <STRONG>Himmelsrand</STRONG><BR>05. <STRONG>Waldschrein (acoustic version)</STRONG></P>
+<P>EP выйдет 16 августа на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Headcrusher
+
+### 05.04.2014 news Новый альбом EQUILIBRIUM
+
+<P>6 июня на<STRONG> Nuclear Blast</STRONG> выходит четвёртый альбом <STRONG>EQUILIBRIUM "Erdentempel"</STRONG>. Работа была записана и сведена под руководством основного композитора группы <STRONG>Rene Berthiaume</STRONG> в <STRONG>Helion Studios</STRONG>. Мастеринг сделан в <STRONG>Finnvox-Studios</STRONG>. Обложку нарисовал <STRONG>Skadi van Terror</STRONG>.</P>
+<P>Трек-лист: </P>
+<P><STRONG>'Ankunft'&nbsp;<BR>'Was Lange W&#228;hrt' <BR>'Waldschrein' <BR>'Karawane' <BR>'Uns'rer Fl&#246;ten Klang' <BR>'Freiflug' <BR>'Heavy Chill' <BR>'Wirtshaus Gaudi' <BR>'Stein Meiner Ahnen' <BR>'Wellengang' <BR>'Apokalypse' <BR>'The Unknown Episode'</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26842.jpg" width=410 height=376></P>
+Автор: Vit Belov
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 24.06.2016 news Новый альбом EQUILIBRIUM
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом немцев <strong>EQUILIBRIUM "Armageddon"</strong> выходит 12 августа на<strong> Nuclear Blast</strong>. Lyric-video на трек "<strong>Pray</strong>" с этого альбома можно увидеть ниже. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>“Sehnsucht”<br> “Erwachen”<br> “Katharsis”<br> “Heimat”<br> “Born To Be Epic”<br> “Zum Horizont”<br> “Rise Again”<br> “Prey”<br> “Helden”<br> “Koyaaniskatsi”<br> “Eternal Destination"</p><p><center><img width="640" height="588" src="/images/news_rus/2016.06/29454.jpg" border="0">&nbsp;<p></p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/4bCkQP_lq0w?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 24.06.2016 news EQUILIBRIUM: New album in August
+
+<p>New album from Germany's<strong> EQUILIBRIUM "Armageddon"</strong> comes out August 12 via <strong>Nuclear Blast records</strong>. Lyric video for the song "<strong>Pray</strong>" from the album can be seen below.</p><p>Track-list:</p><p>“Sehnsucht”<br> “Erwachen”<br> “Katharsis”<br> “Heimat”<br> “Born To Be Epic”<br> “Zum Horizont”<br> “Rise Again”<br> “Prey”<br> “Helden”<br> “Koyaaniskatsi”<br> “Eternal Destination"</p><p><center><img width="640" height="588" src="/images/news_rus/2016.06/29454.jpg" border="0">&nbsp;<p></p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/4bCkQP_lq0w?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 29.07.2016 news Официальное лирик-видео EQUILIBRIUM
+
+<p>Новый альбом <strong>EQUILIBRIUM "Armageddon"</strong> выходит 12 августа. Ниже можно увидеть лирик-видео на песню с этой работы "<strong>Born to Be Epic</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/hYoB2Tj3LR8" frameborder="0" allowfullscreen></iframe></p></center>
+Автор: Vit Belov
+
+### 29.07.2016 news &quot;Born To Be Epic&quot; - New lyric video by EQUILIBRIUM
+
+<p>New <strong>EQUILIBRIUM</strong> album "<strong>Armageddon</strong>" comes out August, 12. Below you can see a lyric video for the song from this work, "<strong>Born to Be Epic</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/hYoB2Tj3LR8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 09.08.2016 news Видео-клип от EQUILIBRIUM
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Пятый альбом немцев<strong> EQUILIBRIUM "Armageddon"</strong> выходит в пятницу на <strong>Nuclear Blast</strong>. Видео-клип на песню "<strong>Eternal Destination</strong>" с этой работы можно посмотреть ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/kd4yoMRgmf8" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 09.08.2016 news New EQUILIBRIUM&#39;s video
+
+The fifth album from Germany's <strong>EQUILIBRIUM "Armageddon"</strong> comes out on Friday via <strong>Nuclear Blast records</strong>. Video clip for the song "<strong>Eternal Destination</strong>" of this work can be viewed below.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/kd4yoMRgmf8" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 22.08.2016 reviews Юмористический симфонический Армагеддон на останках viking metal или хорошие деньги на хорошем настроении
+
+<p>Пятый альбом EQUILIBRIUM уже кажется ставит точку в любых viking/pagan metal устремлениях этих немцев. Группа окончательно отошла от тяжёлого звучания и возможных серьёзных тем, сделав упор на танцевальность ритмов и цепкость в мелодиях. При этом EQUILIBRIUM веселят своих поклонников далеко не только фолковыми «присядками» и «хороводами». Мне кажется основным фактором в музыке коллектива стала дискотека 80-х на немецкий лад.</p><p>Помните такой альбом ATROCITY “Werk 80”? Была там ещё вторая часть, но это не про неё. Именно в первой части Alex Krull выхватил из немецкоязычной масс-культуры настоящие хиты, некоторые из которых мы даже раньше и не слышали. Альбом тогда получился залихватский, а вот лидеру EQUILIBRIUM Rene Berthiaume удалось самому сочинить подобную музыку, почти без помощи корифеев поп-музыки. Некоторые места на «Armageddon” привели меня в восторг, например, клавишный проигрыш на «Born To Be Epic”. Есть и другие примечательные в своей безбашенности места, более того, они есть почти на каждой песне, всевозможные еврейские танцы, отрывки из саундтрека к игре Арканоид, симфонические аранжировки, за которыми прячется всё тот же музыкальный юмор создателей. Приятно, что в наше время можно создавать столь высокобюджетные «несерьёзные» альбомы. Это вам не короткие проигрыши у FINNTROLL или пьяные посиделки в студии с ONKEL TOM, это настоящий продукт от Nuclear Blast, где музыка давно уже превратилась в бизнес. Видимо, на хорошем настроении тоже можно делать хорошие деньги.</p><p>Прекрасный альбом, который только нельзя относить к pagan и viking metal в привычном понимании. Мы уже столкнулись в своё время с BLACK MESSIAH, которые открыто подсмеивались над серьёзностью коллег по стилю, теперь EQUILIBRIUM, FINSTERFORST с выходящим миньоном про пиво и Майкла Джексона. AMON AMARTH со своими нечёсанными бородами только ещё приближаются к своему пику в США, а Европа уже вовсю хохочет над этим трендом, записывая первоклассные пародии в этой стилистике.</p><p>Интересно, как отнесутся к новому альбому EQUILIBRIUM true pagan metal фэны? Я не буду исключать того, что эта группа у них уже давно не котируется, но смех заключается в том, что для простого любителя музыки этот коллектив ничем не отличается от более серьёзных собратьев. И какие-нибудь UNLEASHED с их вечной одой Перуну (ой, Тору я хотел сказать) для них всего лишь недоделанные EQUILIBRIUM или FINSTERFORST, просто не умеющие сочинять мелодичной музыки.</p>
+Автор: Vit Belov
+
+### 23.08.2016 news EQUILIBRIUM попали в чарты в Германии
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Немецкая группа<strong> EQUILIBRIUM</strong> попала на пятое место в чартах Германии со своим новым альбомом "<strong>Armageddon</strong>", вышедшим на <strong>Nuclear Blast</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Рецензию на этот опус <a href="/ru/band/equilibrium/22474/#reviews">читайте здесь.</a></font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><center><img width="400" height="400" src="/images/news_rus/2016.08/29851.jpg" border="0"></font></p>
+Автор: Vit Belov
+
+### 26.08.2016 articles Андрей &#39;Andy&#39; Корюхин: &quot;За прошедшее лето ничего интересного я не услышал&quot;
+
+<p><em><center><img width="390" height="1021" src="/images/articles_rus/2016.08/29867.jpg" border="0"></em></p><p><em>Продолжение нашей традиционной рубрики, в которой мы общаемся на музыкальные темы с известными людьми из мира тяжёлой музыки России. На этот раз у нас в гостях главный редактор журнала Dark City Андрей 'Andy' Корюхин.</em></p><p><strong>На днях вышел новый 93 номер журнала Dark City. Расскажи людям, почему им надо быстрее бежать в магазин за ним?</strong></p><p>Ну, во-первых, потому что бежать за новым номером DarkCity нужно в любом случае - не было ни разу, чтобы оно того не стоило! Во-вторых, в это раз у нам помимо целого созвездия ярких имен в разделе статей и интервью (Pain, Rage, Ihsahn, Crematory, Babymetal и т.д.) оказалось и немало тематических "околомузыкальных" материалов: например, первая часть очень детального обзора столичных рок-магазинов (с историческим уклоном), арт-материалы про логотипы метал-групп и дизайны микрофонных стоек, очень большая статья авторства Юры Хирурга про жизненный путь Ника Менцы (Megadeth), ну а также почти сотня рецензий на свежие альбомы, плюс, конечно же репортажи с концертов и фестивалей. Ах да, забыл сюда добавить (как это любят делать в одном отечественном фэнзине) - масса рекламно-информационных материалов :)) А еще постеры - шикарные постеры PAIN, CATHARSIS, SODOM и RUNNING WILD!</p><p><strong>Прочёл, что у вас следующий номер юбилейный, четвертьвековой. Тебе всего 40. Ты чего с 15 лет трудишься в Dark City?</strong></p><p>Нет, конечно, ведь официально первый номер журнала под названием DarkCity вышел в 2000 году. Однако по сути DarkCity - это полноценный преемник легендарного журнала RockCity, а его первый номер вышел как раз ровно 25 лет назад - в 1991 году!</p><p><strong>И какие нас ждут ништяки?</strong></p><p>Ну это пока секрет - подождите месяца полтора, и тогда всё станет известно в деталях!</p><p><strong>Ну ладно. Давай теперь о музыке поговорим. Что для тебя самое актуальное сейчас?</strong></p><p>Самое актуальное для меня за последние месяцы всегда нетрудно отслеживать в разделе персональных Top-5 в конце каждого номера журнала. На этот раз первые три строчки моего топа остались пустыми - за прошедшее лето ничего интересного я не услышал. Так что под настроение приходится переслушивать классику тяжелого рока, причем по возможности на виниле. Ну а если говорить о последнем приобретенном диске в мою коллекцию, то им стала свежая версия великолепного альбома CRADLE OF FILTH 'Dusk... And Her Embrace', получившая приставку 'The Original Sin' - действительно интересная и никогда ранее не слышанная версия этого шедевра!</p><p><strong>Да-да. Четвёртое место занял Equilibrium. Что скажешь об этом альбоме? Вообще, о развитии стиля folk-metal?</strong></p><p>Equilibrium - молодцы. На редкость разноплановый и при этом хитовый и интересный альбом, в котором нашлось место и стёбу - а такое сейчас встречается крайне редко. Вот только к фолк-металу я бы его не стал причислять - он куда разнообразнее, чем принято в рамках этого жанра. А вообще фолк-метал практически исчерпал свой потенциал, и по большей части альбомы в этом жанре стали выходит однотипные и скучные. Особенно у нас в стране.</p><p><strong>То есть тебе Аркона не нравится?</strong></p><p>Скажем так - я их альбомы под настроение не слушаю.</p><p><strong>А есть русские группы, которые внесли вклад, по твоему мнению?</strong></p><p>Несомненно. Та же Аркона, Butterfly Temple. Вот Омелу я очень люблю из этого направления. Про остальные группы не скажу - встречаются интересные команды, альбомы, но в общем и целом это направление на нашей сцене у меня восторга не вызывает.</p><p><strong>Sabaton. Вышел на днях. Что скажешь об этих кумирах?</strong></p><p>Пока не слышал, так что сказать про этот альбом мне нечего. Хотя я не сомневаюсь в том, что это будет достойная работа... и без сюрпризов.</p><p><strong>Ну а если оценивать без сюрпризов? Прёт тебя от такой музыки?</strong></p><p>Конкретно от Сабатона - нет. Вот Manowar - другое дело! :)</p><p><strong>На днях вышел новый сингл METALLICA. Ждёшь с нетерпением новый альбом?</strong></p><p>Отнюдь. Я давно уже ничего не жду от Металлики. И абсолютно никакой заглавный сингл только убедил меня в правильности моих не-ожиданий.</p><p><strong>Как относишься к старым группам, которые, как правило, по-прежнему в первых рядах, на обложках журналов?</strong></p><p>По большей части хорошо, хотя в последние годы они редко выпускают достойные новые альбомы. Такова, увы, тенденция. Поэтому лучше переслушать их классические записи, чем мучить себя их новыми потугами. Исключения здесь крайне редки - за последние пару лет я могу припомнить разве что SLAYER да AMORPHIS, у которых вышли действительно сильнейшие пластинки!</p><p><strong>Не могу не задать вопрос от многих ваших читателей. Ведь вы постоянно пишете об одних и тех же группах?</strong></p><p>Отнюдь. Мы пишем о разных группах. Просто наиболее заслуженные из них появляются на наших страницах чаще остальных. Впрочем, любой музыкальный журнал пишет по сути об одних и тех же группах, просто у одних этот диапазон чуть шире, у других - чуть уже.</p><p><strong>Самому наверное сложно уже составлять журнал? За эти 25 лет, про этих уже писали, это уже спрашивали? Вижу, стали активно писать на околомузыкальные темы... Есть какие-то планы по развитию этого направления?</strong></p><p>Да, составлять каждый новый номер нелегко, но в этом деле помогает опыт и наработки всех этих лет. Конечно, имеется некая шаблонность в материалах - это касается и интервью, и построения номера в целом, но, опять же, это присуще практически всем музыкальным журнала - не только у нас в стране, но и в мире. Поэтому приходится проявлять фантазию и искать оригинальные темы, которые были бы интересны нашим читателям. Ведь надо понимать, что насколько упёртым бы ни был меломан, он всё равно чем-то ещё в жизни интересуется: смотрит кино, играет в компьютерные игрушки, увлекается рисованием или фотографией... Вот мы и пытаемся рассказывать о таких "околомузыкальных" темах.</p><p><strong>Вы называете себя "ведущее издание о тяжёлой музыке". Кто это определял? Как это звучит по отношению к вашим конкурентам?</strong></p><p>Ну это же очевидный факт - по качеству издания, объему, тиражу, контенту, в конце концов, - разве есть или было у нас в стране издание, которое могло бы нас обойти и стать ведущим?</p><p><strong>Ладно. Вернёмся к музыке. Как ты думаешь, должен главный редактор издания о музыке слушать все новинки?</strong></p><p>Конечно нет. Чисто физически все новинки прослушать невозможно, даже если это делать нон-стопом 24 часа в сутки. Сейчас выходит слишком много новой музыки - и, к сожалению, бОльшая часть её не достойна внимания.</p><p><strong>А hard rock, которым все сейчас бредят, слушаешь? Как относишься к тому, что подобным ретро увлеклись некогда лэйблы, занимавшиеся только металом? Napalm, Nuclear Blast...</strong></p><p>Ну если группа исполняет интересный и качественный материал, то не важно, хард-рок это, хэви или ню-метал. Харду я, конечно, слушаю - как слушал и 10, и 20, и почти 30 лет назад. Не сказать, что меня очень интересуют молодые команды в этом жанре, но по классике, особенно на виниле, я всегда готов пройтись :)</p><p><strong>Ну, всё-таки есть группы, которые сейчас "гремят". BLUES PILLS, например. Что думаешь о них?</strong></p><p>Думаю, что это хорошо, однако сам их не слышал :)</p><p><strong>В последнее время стали отменять концерты не только тяжёлой музыки, но и других артистов в неформальных жанрах. Как относишься к этому? Можно ли что-то сделать, чтобы не происходило подобного в России?</strong></p><p>Да, я уже высказывался на эту тему в журнале пару номеров назад. Вкратце могу сказать, что предотвратить подобные срывы может исключительно профессионализм организаторов, их компетентность во всех сферах этого бизнеса и правильно налаженные связи с представителями органов правопорядка.</p><p><strong>Как живёт журнал в нынешней непростой экономической ситуации? Качают, небось?</strong></p><p>Качают сейчас всё - даже выступления церковников, которые по телеканалу Спас показывают! Так что да, и нас качают. Раньше мы переживали по этому поводу, даже пытались сделать вёрстку такой, чтобы ее скан было сложнее прочитать. Но потом как-то поспокойнее относиться стали - постер то со скачанного pdf-скана на стену не повесишь, да и читать журнал куда удобнее в печатном виде, чем мутноватый скан.</p><p><strong>А pdf не продаёте через сеть?</strong></p><p>Нет, пока мы мы продаем только бумажную версию журнала.</p><p><strong>Как ты думаешь, всё-таки будущее за файлами? Это и музыки касается. Вон, Союз электронными продажами своих артистов "золотыми" делает.</strong></p><p>Сложно сказать, за чем именно будущее. Скорее, за мерчем и гастрольным чёсом. Цифровые продажи приносят даже крупным артистам сущие копейки, так что продажа 5 тысяч копий "золотого" альбома в России принесёт Тарье в лучшем случае пару сотен Евро, что сопоставимо с продажей пары десятков копий на виниловых пластинках. Так что винил и всякие интересные лимитированные CD-издания альбомов будут всегда для фанатов и самих групп куда более интересными форматами, нежели бестелесная цифра...</p><p><strong>Ну, а как же большое количество молодых групп, которые что-то даже зарабатывают на Bandcamp? Раньше им это было недоступно.</strong></p><p>Для молодых групп и такая копеечка, видимо, приятна, т.к. с концертов они пока вряд ли могут зарабатывать деньги - скорее, наоборот, им приходится самим платить за выступления в саппорте у больших групп. Да и диски им хлопотнее выпускать... в общем, для них цифровые площадки вроде bandcamp оказываются пока единственным источником дохода с их музыки.</p><p><strong>А что скажешь о ситуации в России? Лицензия, кажется, не в лучшей форме сейчас?</strong></p><p>В России цифровые продажи музыки - это, скорее, исключение, нежели правило. Если есть торренты и бесплатная яндекс.музыка, то зачем платить за "воздух", только лицензионный? Если же говорить о физических лицензионных носителях, то тут положение дел, прямо скажем, неважнецкое. Впрочем, падение продаж дисков - явление всемирное, просто мы тут оказались, как говорится, "впереди планеты всей".</p><p><strong>Ну и чем это может кончиться? Все будут качать и иногда ходить на концерты? Журнал-то DARK CITY будут покупать?</strong></p><p>Чем, как и когда всё кончится - я не знаю. И никто не знает. А вот в ближайшей перспективе на одной чаше весов будут лежать живые концерты, всевозможный мерч и лимитированные издания CD/LP, а на другой - цифровые скачки, и не важно - легальные, полулегальные или пиратские. У журнала такой вариативности, понятное дело, нет - если только нашей редакции не устраивать гастроли по городам и сёлам, где авторы со сцены клубов с выражением читали бы свои материалы :) Так что мы просто будем делать свою работу, и стараться делать её как можно лучше - пока она остаётся хоть кому-то нужной!</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### EQUILIBRIUM (Германия) в Москве (4 ноября 2014)

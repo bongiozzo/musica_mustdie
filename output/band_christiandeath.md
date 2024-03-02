@@ -292,6 +292,20 @@ Gian Pyres  -  Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2002 news Christian Death-a lover Of Sin...
+
+<p>The new Christian death album “Lover of Sin” will be released Via Candlelight on Oct 21st. The band are sounding more intense and extreme on this outing than ever before – Christian Death are sounding more like Black Metal these days with their trademark menace riveted all the way through this killer album.</p>
+
+Автор: Yermola
+
+### 15.04.2007 news CHRISTIAN DEATH на Season Of Mist
+
+<P><STRONG>CHRISTIAN DEATH</STRONG> подписали контракт с французским лэйблом <STRONG>Season Of Mist</STRONG>. Новый альбом группы "<STRONG>American Inquisition</STRONG>" выйдет позже в этом году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -85,6 +85,27 @@ Spain folk-power
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.10.2000 reviews Испанский folk-power-metal
+
+<p>Испанский folk-power-metal. Вам приходилось ранее слыхать такое? Лично, я впервые такое услыхал (хотя, что-то более-менее подобное было у Tuatha De Danann). Сплошные дудки-флейты-скрипки-пианино и акустические гитары на фоне speed-power-metal'a. А еще иногда слышатся аккордеон и ситары. Мне, лично, безумно понравилось. Хотя, надо признать, в первый раз такое слушать несколько необычно. Никак не можешь понять, что это за стиль, вроде и не power, но вроде и не folk-gothic, а временами смахивает на post-punk, но это только призрачно. Этакая смесь Rhapsody и Skyclad. Временами на альбоме царит веселье, временами печальная музыка. Очень разнообразный альбом. И это уже четвертый альбом Волшебника из страны Оз. Особенно должен понравиться любителям фолковых наворотов, зато любителям классического пауэра он будет более непонятен и может понравится немногим.</p>
+
+Автор: Dimas
+
+### 22.05.2001 news La Danza del Fuego.......
+
+<p>Испанские пауэрщики "MAGO DE OZ" достигли второго места в официальных чартах у себя на родине с альбомом "La Danza del Fuego" содержащим перепевки песен Rainbow с релиза "Man on the Silver Mountain". В качестве вокалистки на нем также участвовала немецкая королева хэви-металл - Doro Pesch.</p>
+
+Автор: Yermola
+
+### 22.05.2001 news La Danza del Fuego.....
+
+<p>MAGO DE OZ have reached number two on the official record charts of Spain (AFYVE) with their new mini CD ґLa Danza del Fuegoґ. This mini CD also includes the famous song from Rainbow, "Man on the Silver Mountain", featuring the famous German heavy metal queen, Doro Pesch.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### зацените группу из Испании - M&#228;go de Oz

@@ -90,6 +90,70 @@ Brian Tunheim, was recorded in Bergen in springtime 2008.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.04.2000 reviews 
+
+<p>В музыке наметился новый стиль блэко-дум, как мы его называем. Это медленная музыка с жжужащими гитарами, основной ролью клавиш и хриплым блэковым вокалом. Вот я описал вам эту пластиночку. Всё сделано на высоком уровне. Клавишник отличный, мелодии берут за душу, да и стиль этот пока не надоедает кучей команд, что радует. Я думаю, всем кому понравилось то, что я описал есть смысл купить этот диск. Правда чего-то супер-особенного нет, да и хитов, как таковых тоже нет, но подождём, с этой пластинкой у этой группы есть шанс вытащить счастливый билет.</p>
+
+Автор: Vit Belov
+
+### 25.09.2000 news Новости от Enslavement Of Beauty
+
+<p> Ребята из Enslavement Of Beauty запланировали поход в студию где-то в середине осени. А еще официальный сайт группы теперь имеет новый адрес: www.enslavement-of-beauty.com.</p>
+
+Автор: Nybras
+
+### 18.01.2001 news Некоторые перемены в Enslavement Of Beauty.
+
+<p>Свежий альбом (пока ещё не получивший название), как ожидается, выйдет в марте. С приходом в группу новых участников, басиста Ханса-Еге Холмена и ударника Асгейра Микельсона (Borknagar, Spiral Architect) звук стал тяжелее, нежели на предыдущем альбоме "Traces O'Red". Разумеется, с драм-машиной покончено. Звучание баса и гитар стало среднетемповым и более плотным. На новом альбоме будут присутствовать немного чистых женских и мужских вокальных вставок. Голос Оле на сей раз зазвучит более разнообразно. По-прежнему остались струнные, фортепьяно, оркестровые фишки и т.д., но также добавлены синтезатор, всевозможные сэмплы и акустические гитары. Альбом будет довольно разноплановым, но в пределах художественного стиля группы, и, как утверждают музыканты Enslavement Of Beauty, это всё ещё та же самая команда.</p>
+
+Автор: Morsus
+
+### 18.01.2001 news Some changes in Enslavement Of Beauty.
+
+<p>New album (at the moment untitled) is expected to be released in March. With the new additional musicians (on bass: Hans-Еge Holmen, on drums: Asgeir Mickelson (Borknagar, Spiral Architect)) new sound is more heavy than on previous one. Obviously since the drum-programming is gone, but also because the bass and the guitars sound meaner and more massive. New album has also got some clean female and male vocals. Ole's vocals are also more varied this time. There are still strings, piano, orchestra etc., but also synth-adds, fx, samples and use of acoustic guitars. The album will be varied, but within artistic expression of band. Enslavement Of Beauty still sound like the same band, in other words.</p>
+
+Автор: Morsus
+
+### 17.04.2001 news Отложена дата выхода нового альбома Enslavement Of Beauty.
+
+<p> Выпуск нового альбома под названием "Megalomania" отложен из-за проблем с японским дистрибьютором. Конкретная дата пока ещё уточняется, но ориентировочно альбом выйдет в Европе где-то в июле-августе.</p>
+
+Автор: Morsus
+
+### 17.04.2001 news The release of new album of Enslavement Of Beauty will be postponed.
+
+<p> The release of new album named "Megalomania" will be somewhat postponed, because of a deal with the Japanese distributor. The street date is still not verified, but the album will be released sometime July/August across Europe.</p>
+
+Автор: Morsus
+
+### 20.06.2002 reviews Tremendous... yet boring??
+
+<p>Norway. Melodic black metal. Lotsa keyboards. Even too much. Guitar basis, though. Probably nearly tremendous at times. However; still boring. Memorable? Not at all. Once it’s out of your stereo, you forget what actually was spinning therein. No sympho-whatever-else-pop-black-metal. Nothing to pay attention to, either. Better than "The Shepherd And The Hounds Of Hell" by OBTAINED ENSLAVEMENT anyway (don’t ask me why this comparison inevitably comes to mind… please!). Hope you figured out what I was trying to say. Gotta wake up tomorrow’s early morning – so no more words and off to bed.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 07.06.2005 reviews Нечто нетрадиционное для Норвегии…
+
+<P>Норвежский коллектив ENSLAVEMENT OF BEAUTY образовался в 1995 году, но свой первый альбом группа выпустила лишь в 1999-м (“Traces O’ Red”). Прошло еще два года – и на суд слушателей представлен второй полноформатник – “Megalomania”. Пустячок, а как приятно – читать в буклете информацию по выходным данным (про вокалы, мастеринг и прочее) на русском языке! Оказывается, «Русский текст был использован по настоятельной просьбе правообладателя альбома – лейбла Voices Of Wonder» (с). Позаботились, стало быть, западные буржуины о российском слушателе :-).</P>
+<P>Стержень музыки – гипермелодичный sympho-black metal с сильным готическим привкусом, приправленный обилием нетривиальных и чужеродных для стиля решений. Все делается&nbsp; легко, без лишней суеты и какого-либо напряга – свой донельзя воздушный блэк, полный изобретательных аранжировок, музыканты разбавляют проникновенными хард-роковыми гитарными соляками, какими-то разухабистыми польками-бабочками и чуть ли не проговыми клавишными пассажами. Смех смехом, но иногда музыка этого экспериментального театра напоминает симфо-блэковую плясовую. Сохраняя неприкосновенность и целостность стилистических границ, они умудряются вплавить в них необычные, но очень вкусные ингредиенты. </P>
+<P>Скрипучий приятный скриминг соседствует с тонким женским голоском, коего здесь не так чтобы много – а жаль… “Megalomania” не изобилует хоть сколько-нибудь приличными скоростями (они здесь все больше средние) и начисто лишена какой-либо агрессивности – вот тебе, бабушка, и Юрьев день… в смысле, вот тебе и «мизантропическая основа black metal». Особенно проникся я композицией с загадочным названием “C17-H19-N03-H20” – тут и чистоголосые декламации, и душещипательная акустика, и высокомерно-презрительные синтезаторы, и тоска-печаль вселенская… Всего вдоволь. И чудо как хороша «затычка» - самая последняя инструменталка “Crowd Of Mourners”: пронзительно-тревожная акустическая гитара – едва ли не Гойя с Армиком - на фоне полных скорби атмосферных клавиш… Аж мурашки по коже. В общем, хочу напоследок сказать, что не «Крэдлами» едиными – есть у нас и другие герои.<BR>Никак не менее, а в чем-то даже более замечательные.</P>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">ART-Music</A></P>
+Автор: Dr. Grandma
+
+### 19.10.2006 news Новости от ENSLAVEMENT OF BEAUTY
+
+<P>Норвежский коллектив <STRONG>ENSLAVEMENT OF BEAUTY</STRONG> готовит к выходу свой новый альбом <STRONG>"Mere Contemplations",</STRONG> который содержит 10 треков уникального мелодик металла. Релиз выйдет на независимом норвежском лейбле <STRONG>INRI Unlimited</STRONG>.</P>
+Автор: Dimas
+
+### 30.12.2008 news ENSLAVEMENT OF BEAUTY выпускают EP
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2008.12/13255.jpg" width=300 align=left border=5>15 января на<STRONG> INRI Unlimited</STRONG> выходит новый мини-альбом норвежцев <STRONG>ENSLAVEMENT OF BEAUTY</STRONG> <STRONG>"The Perdition". </STRONG>Альбом был записан в студии <STRONG>VoxHouse </STRONG>с продюсером <STRONG>Henrik Ryosa</STRONG>.&nbsp;Трэк-лист:</P>
+<P>01. <B itxtvisited="1">A Kodak Kiss</B><BR itxtvisited="1">02. <B itxtvisited="1">I Treasure the Sadness</B><BR itxtvisited="1">03. <B itxtvisited="1">Lush</B><BR itxtvisited="1">04. <B itxtvisited="1">Severely Flawed</B><BR itxtvisited="1">05. <B itxtvisited="1">Mirror Souls</B><BR itxtvisited="1">06. <B itxtvisited="1">I Descend to Perdition...</B>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

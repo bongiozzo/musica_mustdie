@@ -18,6 +18,15 @@
 * C группой "Necrophobic" Alex Friberg (bass)
 * C группой "Firespawn" Alex Friberg (bass)
 
+## Публикации
+
+### 15.01.2009 news TRIDENT подписались на Regain
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.01/13377.jpg" width=300 align=right border=5>Проект гитариста <STRONG>Johan Norman</STRONG> (<B>DISSECTION</B>, <B>SOULREAPER</B>) TRIDENT подписал контракт с Regain Records. Дебют коллектива <STRONG>"World Destruction" </STRONG>был записан с <STRONG>Andy La Rocque </STRONG>в студии <STRONG>Sonic Train Studios. </STRONG>Пластинка выйдет в начале 2009-го года. В составе группы:</FONT></P>
+<P><STRONG>Johan Norman</STRONG> (DISSECTION, SOULREAPER) - Guitar<BR><B>Alexander Friberg</B> (JAGGERNAUT, KARNEYWAR) - Bass<BR><B>Tobias Sideg&#229;rd</B> (NECROPHOBIC) - Vocals<BR><B>Jonas Blom</B> (GRIEF OF EMERALD) - Drums<BR><B>Ewo Solvelius</B> - Guitar</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

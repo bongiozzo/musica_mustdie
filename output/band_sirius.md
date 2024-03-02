@@ -49,6 +49,58 @@ Sympho-Black Metal from Portugal
 * C группой "Emperor" Samoth (guest bass)
 * C группой "Zyklon" Samoth (guest bass)
 
+## Публикации
+
+### 21.07.2000 reviews Лучший португальский дебют 2000 года на данный момент.
+
+<p>Лучший португальский дебют 2000 года на данный момент. Альбом представляет собой смесь симфонизма и мистической ауры Limbonic Art и злобной энергии гитарных риффов Emperorа в их дебютном альбоме "In The Nightside Eclipse" (последнее, как видно, не случайно: в записи "Aeons..." участвовали эмперорские музыканты Samoth и Trym). Вместе с тем, Sirius не копировали вышеуказаные группы, и результат получился довольно оригинальным и "своим". На альбоме присутствуют множество замечательных классических и готических клавишных партий, которые органично вливаются в общую музыкальную гамму без претензии на китчевое доминирование. Приятно удивило также наличие двух инструментальных оркестровых композиции, которые, на мой взгляд, являются вершиной симфонического мастерства в альбоме. Хочется отметить также нестандартную для блэка концепцию текстов на астрально-космическую тему. Разумеется, португальские парни не занимались изобретением велосипеда в black-области, но надо отдать им должное: они являются прекрасными музыкантами и их творение звучит очень многообещающе (и очень по-норвежски!) для дебютной работы. Очень рекомендовано всем фэнам Emperor и Limbonic Art.</p>
+
+Автор: Phantom Lord
+
+### 12.11.2000 news Готов новый альбом Sirius.
+
+<p>Sirius только что закончили запись в норвежской студии Akkerhaugen Lydstudio своего нового альбома, озаглавленного "Spectral Transition - Dimension Sirius". Результат превосходит все ожидания. Команда совершила огромную эволюцию по сравнению с дебютным альбомом "Aeons of Magick". Новый звук Sirius намного более экстремальный, с большим упором на гитары, но и симфонический аспект по-прежнему на должном уровне.</p>
+
+Автор: Morsus
+
+### 12.11.2000 news The new album Sirius is recorded.
+
+<p>Sirius have just finished recording their new album, to be entitled "Spectral Transition - Dimension Sirius", in Norway at Akkerhaugen Lydstudio. The final outcome is beyond expectations. The band have made a huge progression from their debut album "Aeons of Magick". The new sound of Sirius is much more extreme with a bigger focus on the guitars, but the symphonic aspect of the band is of course still present.</p>
+
+Автор: Morsus
+
+### 18.11.2000 news ... И ещё о новом альбоме Sirius
+
+<p> Стали известны кое-какие делали относительно нового альбома португальских симфо-блэкстеров Sirius. Помимо всего прочего, группа записала кавер-версию Emperor'овской "The Majesty Of The Nightsky" которая войдет в новый альбом в качестве бонус-трэка. Записать эту композицию помогли драммер Faust и Samoth (бас) из Emperor. Также в качестве вокалиста при записи альбома отметился Daemon из Limbonic Art.</p>
+
+Автор: Nybras
+
+### 16.03.2001 news Выходит новый альбом Sirius
+
+<p> Новая гениальная работа португальских симфо-блэкарей Sirius "Spectral Transiton - Dimension SiriuS" появится на прилавках магазинов 19-го марта. Из официального заявления музыкантов: "Сразу можем сказать, что 'Spectral Transition...' - экстремальный, гитарно-ориентированный брутальный альбом. Некоторые оркестровые темы и аранжировки всё ещё присутствуют, но уже в другом духе. Также в некоторые клавишные партии мы ввели электро-индустриальные тона, придав альбому гораздо более тяжёлый и холодный оттенок по сравнению с предшественником. Итак, что произошло во время записи? Для создания альбома были приглашены особые гости, и мы с гордостью заявляем, что легендарный экс-драммер Faust из Emperor вернулся! Ему удалось на некоторое время выбраться из тюрьмы и присоединиться к нам в студии, чтобы записать несколько ударных и вокальных сэмплов. Также в записи вокала нам помогал Daemon (Limbonic Art/Zyklon), "пропев" безумным скримингом в четырёх трэках альбома. Samoth (Emperor/Zyklon) внёс свой вклад сыграв басу в песне 'The Majesty of the Nightsky'."... Трэк-лист альбома: Spectral Transition, Spiritual Metamorphosis - Destroy the Earthly, In Astral Pains of Trance, Abstract Eerie Corridors, Desolate Magnetic Fields, Into Forbidden Dimensions, Axis, Stellar Transcendence, Paradox Timeline, Dimensional Quantum, The Majesty of the Nightsky (Cover)</p>
+<p></p>
+
+Автор: Nybras
+
+### 05.10.2001 news Sirius будут играть другую музыку
+
+<p>Португальские black-металлеры Sirius работают над композицией и структурой нового альбома. Как ожидается, они настолько радикально изменят стиль, что это невозможно представить даже в самых диких фантазиях. Будет нечто подобное Static-X, Strapping Young Lad, Fear Factory, Machine Head и даже с намёками на Slipknot или Rob Zombie. Всё это приправят большой дозой электронноo-индустриальных фишек (типа Nine Inch Nails или Rammstein). Такие новости способны повергнуть в шок black metal сообщество. После расформирования Emperor Sirius оставались одной из немногих команд, с кем связывались надежды на продолжение традиции. Записать третий альбом Sirius предполагается в январе или феврале будущего года.</p>
+
+Автор: Morsus
+
+### 05.10.2001 news Sirius change a style
+
+<p>Portuguese black metallers Sirius are working on the composition and structure of the new album. As expected, they will radically change a sound, maybe beyond someone's wildest expectations. It will be something like Static-X, Strapping Young Lad, Fear Factory, Machine Head or even hints of Slipknot or Rob Zombie. All this will mixed with huge electro-industrial components (like Nine Inch Nails or Rammstein). Such news is bound to shock the black metal community as well, for Sirius were one of the few bands slated to continue in the footsteps of Emperor, who are disbanding after the initial push of their forthcoming "Prometheus - The Discipline of Fire and Demise". Sirius' third album is expected to recording in January or February of next year.</p>
+
+Автор: Morsus
+
+### 17.01.2002 reviews Экстремальная музыка нового поколения
+
+<p>Экстремальная музыка нового поколения. Ребята из Португалии после своего внушительного дебюта, своим вторым альбомом в норвежском стиле шокируют многих своей агрессией и решительностью. Качественный и ошеломляющий sympho-black metal, очень экстремальный и ориентированный на злобные гитары и атмосферно-оркестровые клавиши. Звук более тяжелый и холодный, чем на предыдущем альбоме, но, по-прежнему, все это здорово напоминает работы EMPEROR и LIMBONIC ART. Но это и предсказуемо, учитывая, что для создания альбома были приглашены особые норвежские гости. Такие, как драммер Faust (ex-Emperor) записавший несколько ударных и вокальных сэмплов. Также в записи вокала группе помогал Daemon (Limbonic Art/Zyklon), пропев безумным скримингом в четырёх трэках альбома. Ну и Samoth (Emperor/Zyklon) внёс свой вклад сыграв басу в песне 'The Majesty of the Nightsky'", которая, кстати, является кавер-версией песни все тех же EMPEROR. Классический величественный симфо-блэк на уровне современных технологий. Очень хорошая суровая музыка с прекрасной технической частью и космической атмосферой.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

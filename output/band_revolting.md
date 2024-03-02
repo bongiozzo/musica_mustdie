@@ -52,6 +52,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.10.2011 news Новый альбом REVOLTING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.10/21593.jpg" width=200 align=right border=0>Третий альбм шведской death-metal группы <STRONG>REVOLTING "In Grisly Rapture"</STRONG> вышел в мае на<STRONG> F.D.A. Rekotz</STRONG>. Данный кллектив является очередным проектом<STRONG> Rogga Johansson</STRONG>, известного по участию в <STRONG>PAGANIZER, DEMIURG, THE 11TH HOUR</STRONG>&nbsp;и <STRONG>RIBSPREADER</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Hell in Dunwich</STRONG><BR>2. <STRONG>The Plague of Matul</STRONG><BR>3. <STRONG>Human Exterminator</STRONG><BR>4. <STRONG>Dr. Freudstein</STRONG><BR>5. <STRONG>"Died of Fright" <BR></STRONG>6. <STRONG>Sucked Into the Sand <BR></STRONG>7. <STRONG>(Beyond) the Book of Eibon</STRONG><BR>8.<STRONG> The Devil Witch</STRONG>&nbsp; <BR>9. <STRONG>Hideous & Revolting</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

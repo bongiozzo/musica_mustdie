@@ -119,6 +119,94 @@ Bonus track for Japan:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.08.2006 reviews Огненный шведский ураган
+
+<P>Очень необычный дебютный релиз молодого шведского коллектива. Начну с того, что посмотрев на обложку, где улицезрел чертоподобное лицо дьявола высунувшегося из огненного потока, а потом на задник, где была фотка музыкантов, с цепями и шипованными напульсниками, кроме того,&nbsp;с корпспейнтом на лице, у меня и сомнений не осталось, что я сейчас услышу black metal. Смущало только, что все это дело вышло на <STRONG>Metal Heaven</STRONG>, который пропагандирует&nbsp;hard rock&nbsp;и&nbsp;power metal&nbsp;в массы, и то, что в составе бывшие музыканты <STRONG>STREET TALK, MORGANA LEFAY</STRONG>&nbsp;и <STRONG>TAD MOROSE</STRONG>. Действительность оказалась еще интереснее. Этот альбом шведских музыкантов оказался выдержан в классическом духе <STRONG>NWOBHM</STRONG>, напоминая лучшие времена <STRONG>IRON MAIDEN</STRONG>. Послушайте третью композицию - заглавную "<STRONG>Nosferatu</STRONG>". Разве это не вылитая "железная дева"? Фирменное, свойственное только британцам спокойное акустическое вступление перерастающее&nbsp;в&nbsp;громоподобные риффы и неистовые соло-гитары на протяжении всей песни с мощным вокалом и потрясающими хоровыми распевками&nbsp;на высоких скоростях. Всё это очень аппетитно выглядит. Сами <STRONG>IRON MAIDEN</STRONG> сегодня вряд ли сыграют так задорно и душевно. Но не только ими едиными... Послушайте, например, седьмую вещь "<STRONG>Fallen From Grace</STRONG>". Разве она не напоминает вам второго "Хранителя семи ключей" одной известной немецкой группы? По-моему, одна эта&nbsp;композиция стоит самого лучшего хита с "<STRONG>Keepers Of The Seven Keys - The&nbsp;Legacy</STRONG>". &nbsp;А вообще, этот альбом амбициознейшего проекта целиком состоит из сплошных хитов самого высочайшего уровня качества, сквозь призму которых угадывается творчество не только <STRONG>IRON MAIDEN</STRONG> и <STRONG>HELLOWEEN</STRONG>, но и небольшие отголоски <STRONG>MANOWAR</STRONG> с <STRONG>JUDAS PRIEST</STRONG>. Основной упор здесь сделан на неимоверную мелодику,&nbsp;цепляющую сразу хитовость и&nbsp;сверхкрайнюю эмоциональность.&nbsp;Надо еще добавить, что все треки записывались с использование почти сотни звуковых дорожек. Если вам нравятся все вышеперечисленные монстры,&nbsp;а также коллективы вроде <STRONG>&nbsp;LOST HORIZON</STRONG> и <STRONG>DREAM EVIL</STRONG>, то приобретайте этот альбом даже не задумываясь. Очень интересная работа, которая шокирует вас&nbsp;еще до ее прослушивания. А уж после него, вы будете просто покорены...</P>
+<P>Диск предоставлен компанией <STRONG>Mystic Empire</STRONG></P>
+Автор: Dimas
+
+### 08.09.2006 news Смены вокалистов
+
+<P>Заменой недавно ушедшему из <STRONG>BLOODBOUND</STRONG> вокалисту <STRONG>Urban Breed</STRONG> (ex-<STRONG>TAD MOROSE</STRONG>) стал другой "ex-<STRONG>TAD MOROSE</STRONG>" <STRONG>Kristian Andren</STRONG>, который&nbsp;еще был вокалистом групп <STRONG>MEMENTO MORI, MEDUZA</STRONG> и <STRONG>WUTHERING HEIGHTS. </STRONG></P>
+<P><FONT color=#ffffff>А в самих <STRONG>TAD MOROSE</STRONG> также новый вокалист - небезызвестный<STRONG> Joe Comeau</STRONG> (ex-<STRONG>ANNIHILATOR</STRONG>, ex-<STRONG>OVERKILL</STRONG>).</FONT></P>
+Автор: Dimas
+
+### 25.12.2006 news BLOODBOUND начали запись нового альбома
+
+<P>Шведский коллектив<STRONG> BLOODBOUND</STRONG> начал запись своего второго творения, выход которого ожидается в апреле 2007 года. Новый альбом будет тяжелее и разнообразнее дебюта. Уже известны названия некоторых песен: <B>"Book of the Dead"</B>, <B>"Vampires"</B>, <B>"Into Eternity"</B>, <B>"Turn To Stone"</B>&nbsp;и <B>"The Tempter"</B>. Недавно, коллектив покинул вокалист <B>Kristian Andren</B> (<B>MEMENTO MORI</B>, <B>WUTHERING HEIGHTS</B>, <B>TAD MOROSE</B>), которому так и не удалось ничего записать с группой. Имя нового вокалиста пока не раскрывается.</P>
+Автор: Dimas
+
+### 14.03.2007 news Michael Bormann - новый вокалист BLOODBOUND
+
+<P>Вокалист <STRONG>Michael Bormann</STRONG> (ex-<STRONG>JADED HEART</STRONG>, ex-<STRONG>BONFIRE</STRONG>) присоединился к молодой шведской группе <STRONG>BLOODBOUND</STRONG>. 25 мая выйдет новый альбом группы "<STRONG>Book Of The Dead</STRONG>". Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2007.03/11429.jpg" width=222 align=right border=5>01. <STRONG>Sign Of The Devil</STRONG><BR>02. <STRONG>The Tempter<BR></STRONG>03. <STRONG>Book Of The Dead</STRONG><BR>04. <STRONG>Bless The Unholy<BR></STRONG>05. <STRONG>Lord Of Battle<BR></STRONG>06. <STRONG>Flames Of Purgatory<BR></STRONG>07. <STRONG>Into Eternity<BR></STRONG>08. <STRONG>Black Heart<BR></STRONG>09. <STRONG>Black Shadows<BR></STRONG>10. <STRONG>Turn To Stone<BR></STRONG>11. <STRONG>Seven Angels</STRONG></P>
+Автор: Vit Belov
+
+### 13.11.2007 news BLOODBOUND вернули вокалиста
+
+<P><STRONG>BLOODBOUND</STRONG> вернули своего первого вокалиста <STRONG>Urban Breed</STRONG> (ex-<B>TAD MOROSE</B>). Группа работает над третьим альбомом.</P>
+Автор: Vit Belov
+
+### 03.01.2008 reviews Одна из лучших молодых групп в heavy-metal
+
+<P>Шведы из BLOODBOUND без сомнения стали открытием 2006 года. Выпустив дебют “Nosferatu”, коллектив заявил о себе, как о претенденте на лавры IRON MAIDEN. Голос вокалиста Urban Breed не оставлял никаких сомнений в ориентирах BLOODBOUND. И пускай в музыке шведов напрочь отсутствовала оригинальность, критика и фэны приняли альбом «на ура».</P>
+<P>Закрепить успех BLOODBOUND попытались новой работой “Book Of The Dead”. Сюрпризом стала смена певца, который отвечал за атмосферу предыдущего альбома и его схожесть с IRON MAIDEN. Новым фронтмэном стал знаменитый Michael Borman, известный по работе в JADED HEART и сольному творчеству. Большинство пластинок, на которых пел Михаель, выходили на Frontiers. Соответственным образом и звучал вокал певца. Лёгкая хрипотца, чувственность, проявляемая в большом количестве баллад. А тут heavy-metal. Да не просто heavy-metal, музыканты ещё и выбрали себе нестандартный для стиля «приблэкованный» имидж. Что ж, Борман вписался легко. Пускай звучит “Book Of The Dead” немного по-другому нежели “Nosferatu”, но в этом есть и плюсы. Подвести глаза и сделать&nbsp; загадочное лицо труда ему не составило. Несколько мощных хитов здесь есть. Получился хороший грамотный альбом, рекомендуемый к приобретению.</P>
+<P>Из последних новостей следует, что в группу вернулся старый певец. Что ж, Дикинсону и IRON MAIDEN можно начинать бояться. Если BLOODBOUND продолжат сочинять столь же качественные и энергичные вещи, их ждёт большое будущее.</P>
+Автор: Vit Belov
+
+### 26.02.2009 news Новый альбом BLOODBOUND
+
+<P><IMG height=307 alt="" hspace=0 src="/images/news_rus/2009.02/13682.jpg" width=307 align=right border=5>Новый альбом<STRONG> BLOODBOUND</STRONG> <STRONG>"Tabula Rasa" </STRONG>выходит 26 апреля на <STRONG>Blistering Records</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Sweet Dreams Of Madness</B><BR itxtvisited="1">02. <B itxtvisited="1">Dominion 5</B><BR itxtvisited="1">03. <B itxtvisited="1">Take One</B> <BR itxtvisited="1">04. <B itxtvisited="1">Tabula Rasa</B><BR itxtvisited="1">05. <B itxtvisited="1">Night Touches You</B><BR itxtvisited="1">06. <B itxtvisited="1">Tabula Rasa Pt. II (Nothing At All)</B><BR itxtvisited="1">07. <B itxtvisited="1">Plague Doctor</B><BR itxtvisited="1">08. <B itxtvisited="1">Master Of My Dreams</B><BR itxtvisited="1">09. <B itxtvisited="1">Twisted Kind Of Fate</B><BR itxtvisited="1">10. <B itxtvisited="1">All Rights Reserved</B><BR itxtvisited="1">11. <B itxtvisited="1">A Year With Bloodbound</B> (bonus video; limited digipack)</P>
+Автор: Vit Belov
+
+### 20.04.2010 news BLOODBOUND опять уволили вокалиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>Urban Breed </STRONG>вновь ушёл из <STRONG>BLOODBOUND</STRONG>, из-за музыкальных и личных разногласий. Новым певцом стал <STRONG>Patrik "Pata" Johansson </STRONG>(не путать с вокалистом <STRONG>ASTRAL DOORS</STRONG> и <STRONG>LIONS SHARE</STRONG>), известный по работе в <STRONG>DAWN OF SILENCE</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 12.01.2011 news BLOODBOUND на AFM
+
+<P><STRONG>BLOODBOUND </STRONG>заключили соглашение с <STRONG>AFM</STRONG>. Четвёртый альбом группы <STRONG>"Unholy Cross" </STRONG>выйдет в марте. Альбом станет первым для нового вокалиста <STRONG>Patrik Johansson (DAWN OF SILENCE).</STRONG></P>
+<P><center><IMG height=242 src="/images/news_rus/2011.01/18148.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 02.02.2011 news Новый альбом BLOODBOUND
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.02/18392.jpg" width=400 align=right border=0>Четвёртый альбом <STRONG>BLOODBOUND</STRONG> <STRONG>"Unholy Cross" </STRONG>выходит 18 марта на <STRONG>AFM</STRONG>. Обложку альбома нарисовал <STRONG>Mark Wilkinson</STRONG> (<B>IRON MAIDEN</B>, <B>JUDAS PRIEST</B>). Трэк-лист:</P>
+<P>01. <B>Moria</B><BR>02. <B>Drop The Bomb</B><BR>03. <B>The Ones We Left Behind</B><BR>04. <B>Reflections Of Evil</B><BR>05. <B>In For The Kill</B><BR>06. <B>Together We Fight</B><BR>07. <B>The Dark Side Of Life</B><BR>08. <B>Brothers Of War</B><BR>09. <B>Message From Hell</B><BR>10. <B>In The Dead Of Night</B><BR>11. <B>Unholy Cross</B></P>
+Автор: Vit Belov
+
+### 01.04.2011 news Mazzar подписали AFM
+
+<P>Московский независимый лейбл <STRONG>MAZZAR Records</STRONG> с гордостью сообщает о заключении лицензионного соглашения с немецким лейблом<STRONG> AFM Records</STRONG> (<A href="http://www.afm-records.de/">http://www.afm-records.de</A>) на издание новых альбомов групп: <STRONG>DEBAUCHERY "Germany's Next Death Metal"</STRONG> (<A href="http://www.debauchery.de/">http://www.debauchery.de</A> ) и <STRONG>BLOODBOUND "Unholy Cross</STRONG>" (<A href="http://www.bloodbound.se/">http://www.bloodbound.se</A>)</P>
+<P>Данные релизы увидят свет в первой половине апреля месяца!<BR></P>
+<P><center><IMG height=400 src="/images/news_rus/2011.04/18999.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 25.06.2011 reviews Грустные гномики
+
+<P>Шведская группа BLOODBOUND подготовила нашему вниманию уже четвёртый альбом. Коллектив, который поначалу представлялся энергичной копией IRON MAIDEN, продолжает менять вокалистов, но их музыка продолжает впечатлять поклонников heavy-metal. На этот раз новым фронтменом стал Patrik Johansson из DAWN OF SILENCE.</P>
+<P>Скажу сразу, это не лучший певец BLOODBOUND. Более того, из трёх участников соревнования он занимает третье почётное место. К сожалению, для музыки, исповедуемой шведами, требуется зычный голос, но Patrik без подпевок не справляется с поставленной задачей. Его голос постоянно «подпитывается» разнообразными «беками» и клавишными подкладками, но это только половина беды. Пытаясь отдать дань IRON MAIDEN, BLOODBOUND переняли и всё самое плохое, что свойственно великим англичанам в наши дни. Среднетемповые и малозапоминающиеся песни “Unholy Cross”, начиная с мутной открывашки “Moria”, заставят слушателя взгрустнуть. Не выручает и отличная реализация.</P>
+<P>Новый альбом BLOODBOUND не поддерживает их статуса. Слушая предыдущие альбомы, хотелось воскликнуть: «Шведам нравится то, что они играют». Сейчас музыканты слегка насытились собственным heavy-metal. Надо, наверное, немного отдохнуть.</P>
+Автор: Vit Belov
+
+### 25.06.2012 news BLOODBOUND свели альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>BLOODBOUND</STRONG> закончили сведение пятого альбома с продюсером <STRONG>Jonas Kjellgren</STRONG> (<B itxtHarvested="0" itxtNodeId="32">SCAR SYMMETRY</B>, <B itxtHarvested="0" itxtNodeId="31">SONIC SYNDICATE</B>, <B itxtHarvested="0" itxtNodeId="30">HYPOCRISY</B>, <B itxtHarvested="0" itxtNodeId="29">CENTINEX</B>, <B itxtHarvested="0" itxtNodeId="28">CARNAL FORGE</B>). Группа считает, что создал лучшую работу в своей истории.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2012.06/24256.jpg" width=475 height=284></FONT></P>
+Автор: Vit Belov
+
+### 21.03.2015 reviews Музыка от маньяков для маньяков
+
+<P>Три года назад шведы BLOODBOUND приобрели нового вокалиста Patrik Johansson и перешли на немецкий лэйбл AFM. С тех пор коллектив выпускает третий альбом и останавливаться, видимо, не собирается.</P>
+<P>Честно говоря, творчество BLOODBOUND всегда было вторичным. Действительно качественным, боевым, местами хитовым, но вторичным. В самом начале карьеры группа ориентировалась на музыку IRON MAIDEN, умело смешивая её с традиционным шведским звучанием. Чуть позже, коллектив расширил свои устремления до европейского power-metal, а музыка становилась более мрачной, что соответствовало всеобщей моде, охватившей сцену в конце нулевых годов. Новая работа просто поражает многогранностью заимствований. Здесь и неоклассический балалаечный power-metal, открытый STRATOVARIUS, и жёсткие риффовые проходы в духе немецких коллективов, и какой-то детский хор, и ещё чёрт его знает что. Забавно, но вся эта демонстрация достижений современного power-metal с отличной записью, качественным исполнением и запоминающимися мелодиями, очень привлекательна для слуха при прослушивании. Матёрый слушатель найдёт на "Stormborn" кучу цитат, но скучно ему точно не будет. При условии, конечно же, что он хочет послушать музыку, а не найти изъяны.</P>
+<P>BLOODBOUND превращаются во флагманов power-metal в нашем «постпаверметалическом» обществе. Все герои прошедших дней уже не любят то, что играли когда-то, и лишь только новые маньяки нарезают с завидным упорством музыку 90-х годов, доставляя удовольствие таким же маньякам слушателям.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

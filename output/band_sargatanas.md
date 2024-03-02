@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.06.2016 news SARGATANAS переиздадут альбомы на Old Temple
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Мексиканская death black metal команда <strong>SARGATANAS</strong> переиздаст дебютный альбом на лэйбле <strong>Old Temple</strong>. В этом году группа празднует своё тридцатилетие, в честь этого в Польше выйдет альбом "<strong>The Enlightenment</strong>". </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности последуют.</font></p><p>&nbsp;<center><img width="240" height="239" src="/images/news_rus/2016.06/29401.jpg" border="0"></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p>
+Автор: Vit Belov
+
+### 18.06.2016 news SARGATANAS sign with Old Temple
+
+<p>Mexican death black metal<strong> SARGATANAS</strong> band will re-release the debut album on the label <strong>Old Temple</strong>. This year the band celebrates its XXX anniversary and in honor of this in Poland will see the release of "<strong>The Enlightenment</strong>". </p><p>The details will follow.</p><center><img width="240" height="239" src="/images/news_rus/2016.06/29401.jpg" border="0"><p></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;</p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

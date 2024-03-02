@@ -40,6 +40,40 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.04.2011 news FRAGILE ART и HELL:ION собираются в тур
+
+<P><IMG height=422 alt="" hspace=0 src="/images/news_rus/2011.04/18994.jpg" width=300 align=right border=0>В рамках<STRONG> HELLBOUND TOUR EUROPE 2011</STRONG> московские модерн металлисты<STRONG> FRAGILE ART</STRONG> и украинские треш маньяки <STRONG>HELL:ON</STRONG> анонсируют концертый тур по странам восточной Европы в апреле. Это уже не первый выезд команд за пределы нашей Родины. На этот раз трасса затронет города Польши, Чехии, Венгрии и Украины. В мае FRAGILE ART собираются представить интернет сингл с тремя новыми композициями в предверии выхода нового альбома. </P>
+<P>Расписание трассы: <STRONG>HELLBOUND TOUR 2011</STRONG></P>
+<P>01.04.2011 Запорожье, Украина<BR>02.04.2011 Хмельницкий, Украина<BR>03.04.2011 Львов, Украина<BR>04.04.2011 Przemysl, Poland<BR>05.04.2011 Krakow, Poland<BR>06.04.2011 Opole, Poland<BR>07.04.2011 Lodz, Poland<BR>08.04.2011 Zagan, Poland<BR>09.04.2011 Poznan', Poland<BR>10.04.2011 Wroclaw, Poland<BR>11.04.2011 Walbrzych, Poland<BR>12.04.2011 Lysa nad Labem, Czech<BR>13.04.2011 Hradec Kralove, Czech<BR>14.04.2011 Zlin, Czech<BR>15.04.2011 Budapest, Hungary<BR>16.04.2011 Ужгород, Украина</P>
+<P>FRAGILE ART:&nbsp; <A href="http://www.myspace.com/fragileart">http://www.myspace.com/fragileart</A><BR>HELL:ON:&nbsp; <A href="http://www.myspace.com/hellionbandmusic">http://www.myspace.com/hellionbandmusic</A></P>
+Автор: Vit Belov
+
+### 26.10.2011 news Переиздание HELL:ON
+
+<P><IMG height=361 alt="" hspace=0 src="/images/news_rus/2011.10/21753.jpg" width=450 align=right border=0>9 октября 2011 г. в клубе<STRONG> Бинго</STRONG> (Киев) состоялась презентация нового релиза <STRONG>Total Metal Records</STRONG> (подразделение <STRONG>Metal Scrap Records</STRONG>). Лейбл представил переиздание второго альбома украинской Thrash/Groove команды <STRONG>HELL:ON</STRONG> в полностью новом оформлении, с новыми бонус-треками и видео. Премьера в России состоялась 21 октября усилиями <STRONG>Metalism Records</STRONG>. Мировая премьера запланирована на 12 декабря, при поддержке <STRONG>Code 7/Plastic Head Distribution</STRONG> (Великобритания).</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Fake</STRONG><BR>2. <STRONG>Snatch the Mask<BR></STRONG>3. <STRONG>Tame the Beast</STRONG><BR>4. <STRONG>To Become Alive<BR></STRONG>5. <STRONG>The Door<BR></STRONG>6. <STRONG>Wake Up<BR></STRONG>7. <STRONG>Warrior's Way<BR></STRONG>8. <STRONG>The Haunted House</STRONG><BR>Bonus tracks:<BR>9. <STRONG>Revolution </STRONG>(Moria cover)<BR>10. <STRONG>Endless Shape</STRONG> (Live)<BR>11.<STRONG> Fake</STRONG> (Live)<BR>12. <STRONG>Wake Up</STRONG> (Live)<BR>13.<STRONG> Wake Up</STRONG> (Videoclip)</P>
+Автор: Vit Belov
+
+### 31.10.2015 news Новинки немецкого лэйбла Svarga &#x2F; Ferrum
+
+<P>Альбом 2014 года выпуска харьковской группы <STRONG>TWILIGHTFALL</STRONG>. В составе бывший участник<STRONG> Nokturnal Mortum Wortherax</STRONG>. Коллектив ищет себя в жанре melodic death/thrash metal: <A href="http://escapemind.ru/goods/TWILIGHTFALL-The-Energy-Of-Soul">http://escapemind.ru/goods/TWILIGHTFALL-The-Energy-Of-Soul</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/v9jCy0nq418" frameBorder=0 width=420 allowfullscreen></IFRAME>
+<P></P>
+<P>Новейший пятый альбом украинской thrash/death банды <STRONG>HELL:ON "Once Upon A Chaos..."</STRONG> вышел 31 августа на <STRONG>Ferrrum</STRONG>. В записи альбома принял участие <STRONG>Andreas Kisser</STRONG>: <A href="http://escapemind.ru/goods/HELL-ON-Once-Upon-a-Chaos">http://escapemind.ru/goods/HELL-ON-Once-Upon-a-Chaos</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/cHQOuF2ImRI" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>Второй альбом львовской death-doom команды <STRONG>APOSTATE "Time Of Terror"</STRONG> вышел весной на <STRONG>Ferrrum</STRONG>. Death-doom metal для всех любителей классики жанра: <A href="http://escapemind.ru/goods/APOSTATE-Time-Of-Terror">http://escapemind.ru/goods/APOSTATE-Time-Of-Terror</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/WmivyaShfJA" frameBorder=0 width=420 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

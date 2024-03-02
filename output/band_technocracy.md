@@ -8,6 +8,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.06.2002 news TECHNOCRACY: MP3 новых песен...
+
+<p>Бэй ареа трэшеры из Сан-Франциско "TECHNOCRACY" имеющие в своем составе гитариста MACHINE HEAD - Phil Demmel (также VIO-LENCE) опубликовали три новых песни в МР3 формате <A HREF="http://www.technocracynow.com/stimulation/demo.htm">здесь...</A> <BR> <BR> 01. Consuming<BR> 02. Under<BR> 03. Center</p>
+
+Автор: Yermola
+
+### 05.06.2002 news TECHNOCRACY: New Demo Tracks Posted Online ...
+
+<p>San Francisco Bay Area's TECHNOCRACY, who feature in their ranks current MACHINE HEAD touring guitarist Phil Demmel (also a member of VIO-LENCE), have posted three brand new demo tracks in MP3 format at <A HREF="http://www.technocracynow.com/stimulation/demo.htm">this location</A>. The three cuts featured, which were completed earlier this month, are as follows: <BR><BR> 01. Consuming<BR> 02. Under<BR> 03. Center</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -93,6 +93,65 @@ Outliving the ages
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.09.2004 news LANFEAR готовы к записи
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие power-metal'исты <STRONG>LANFEAR</STRONG> назвали свой новый альбом <STRONG>"aNother gOlden rAge". </STRONG>Он выйдет в начале следуещего года и будет записан в октябре в <STRONG>Dreamscape</STRONG> studios в Мюнхене.</FONT></P>
+Автор: Vit Belov
+
+### 13.05.2005 reviews Золото германской ярости
+
+<P>Отличный прог-пауэр метал из Германии. В отличие от большинства представителей современной прогрессивной сцены, играющих довольно мягко и неагрессивно, метал в исполнении LANFEAR - тяжелый и жесткий, он сначала power, а потом уже - progressive. </P>
+<P>Итак, чем же замечательна музыка на этом альбоме? И чем этот пауэр отличается от тысяч других трактовок этого стиля? Вокал, высокий и сильный, больше подошел бы какой-нибудь тру-хэви-метал команде, но, как ни странно, он очень хорошо вписывается в общую картину, придавая музыке оригинальности. Клавиш очень много, - в этом смысле немцы не стали отходить от общепринятых канонов, - но в первую очередь слышишь ритмичные барабаны, драйвовые гитарные риффы и пронзительные соло, а уже потом обращаешь внимание на шикарную и ненавязчивую клавишную подкладку. Материал отлично прописан – отчетливо слышно каждый инструмент, никакой каши. </P>
+<P>Лучшие песни на альбоме, понравившиеся и запомнившиеся больше других, – идут подряд тройкой-сцепкой: красивый клавишный инструментал “Eclipse” – он словно исполняет роль интро, за ним тяжеленная и агрессивная “Shades Of Black” с рычащим вокалом, и “The Voice Within” – среднетемповый эпический номер со сложной структурой и частыми сменами ритма и темпа. Это вовсе не значит, что остальные песни на альбоме – хуже или слабее, просто эти три – очень уж зацепили. И еще приятно удивил саксофон в “Eternally” – не знаю, настоящий он или это тоже одна из возможностей синтезатора, но эмоции самые положительные…</P>
+<P>На фоне тотального клонирования и грядущей творческой импотенции в этом стиле – несомненный претендент в высшую лигу.</P>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">Art-Music</A></P>
+Автор: Dr. Grandma
+
+### 08.06.2008 news Новый альбом LANFEAR
+
+<P>LANFEAR подготовили свой пятый альбом под названием<STRONG>"X to the Power of Ten"</STRONG>, который выйдет 25 июля на <STRONG>Locomotive Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.02.2012 news Новый альбом LANFEAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.02/22980.jpg" width=475 align=right border=0>Шестая работа немцев<STRONG> LANFEAR "This&nbsp;Harmonic Consonance"</STRONG> выйдет 24 февраля на<STRONG> Pure Steel Records</STRONG>. Трек-лист:</FONT></P>
+<P>01. <STRONG>Giorno Del Giudizio</STRONG> (1:06)&nbsp;<BR>02. <STRONG>Colours Of Chaos</STRONG> (4:40)<BR>03. <STRONG>By-Product Nation</STRONG> (3:37)<BR>04. <STRONG>The Reverend</STRONG> (6:22)<BR>05. <STRONG>Idiopathic Discreation</STRONG> (7:43)<BR>06. <STRONG>Camera Silens</STRONG> (5:33)<BR>07. <STRONG>I, Robo Sapiens</STRONG> (4:12)<BR>08. <STRONG>Spectrophobia</STRONG> (5:55)<BR>09. <STRONG>Word Not Spoken</STRONG> (6:05 )<BR>10. <STRONG>Disharmonic Consonance</STRONG> (4:28)</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/ByZuXzTvgow?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 12.06.2016 news LANFEAR выпускают новый альбом
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом немцев <strong>LANFEAR "The Code Inherited"</strong> выходит 1 июля на <strong>Pure Legend</strong>. Лирик-видео на заглавную композицию можно посмотреть ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>“The Delusionist”<br>“The Opaque Hourglass”<br>“Evidence Based Ignorance”<br>“The Code Inherited”<br>“Self-Assembled”<br>“Converging Saints”<br>“Remain Undone”<br>“Summer Of ‘89”</p><p>&nbsp;<center><img width="400" height="400" src="/images/news_rus/2016.06/29322.jpg" border="0"></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/RsLUPHt6p2w" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 12.06.2016 news LANFEAR: new album and lyric video
+
+<p>New album from Germany's <strong>LANFEAR "The Code Inherited"</strong> comes out July 1 on<strong> Pure Legend</strong>. A lyric video for the title track can be viewed below.</p><p>Track listing:</p><p>“The Delusionist”<br>“The Opaque Hourglass”<br>“Evidence Based Ignorance”<br>“The Code Inherited”<br>“Self-Assembled”<br>“Converging Saints”<br>“Remain Undone”<br>“Summer Of ‘89”</p><p>&nbsp;<center><img width="400" height="400" src="/images/news_rus/2016.06/29322.jpg" border="0"><p></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/RsLUPHt6p2w" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+### 08.07.2016 reviews Чуда не случилось
+
+<p>Немецкий power progressive коллектив LANFEAR известен в нашей стране по двум альбомам, выходившим в России по лицензии Massacre Records “The Art Effect” (2003) и «Another Golden Age” (2005). В те времена группа как и сейчас радовала поклонников не слишком замороченного power progressive metal. Идут годы, и для LANFEAR ничего не меняется, они по-прежнему находятся в специальном underground для power progressive metal коллективов. </p><p>«The Code Inherited” уже седьмой альбом, вышедший 1 июля на Pure Legend. Разнообразный prog-power metal с достаточным количеством запоминающихся треков должен порадовать любителей KAMELOT или EVERGREY. Альбом очень разнообразен, открывается с забойной вещи «The Delusionist” (присутствует даже гроул на зачаточном уровне), продолжается мелодичной «The Opaque Hourglass”, дальше следуют типичный progressive metal вещи по типу «Evidence Based Ignorance” или «The Code Inherited”. Мне лично очень понравилась «Remain Undone”, завершающая основную часть альбома. После неё только кавер на Bryan Adams “Summer of 89”. К сожалению, альбом показался коротковатым для стиля, всё-таки всего 7 оригинальных песен и 45 минут звучания, включая кавер-версию.</p><p>В целом альбом хорош, и поклонники стиля обязательно обратят на него внимание. К несчастью, power progressive metal переживает сейчас не самые лучшие времена, поэтому LANFEAR вряд ли будут на обложках журналов. С другой стороны, и сами музыканты создали недостаточное количество материала, альбом очень быстро заканчивается, да и музыкальные ходы немцев не самые оригинальные. CD кажется обещает что-то в течение всего времени звучания, но чудо не случается.<br></p>
+Автор: Vit Belov
+
+### 11.07.2016 reviews The miracle did not happen
+
+<p>German progressive power band LANFEAR is known in our country for two albums, released in Russia under license of Massacre Records "The Art Effect" (2003) and "Another Golden Age" (2005). In those days, the group pleased the fans of not too confusing power and progressive metal. Years go by, and nothing has changed to LANFEAR, they are still in a special underground for power and progressive metal bands. </p><p>"The Code Inherited" is already the seventh album released on July 1 through Pure Legend. A variety of prog-power metal with enough memorable tracks should please fans of KAMELOT or EVERGREY. The album is very diverse, opens with a downhole track "The Delusionist" (there is even a growl in its infancy), it continues with the melodic "The Hourglass Opaque", followed by a typical progressive metal stuff like "Evidence Based "Ignorance" or "The Code Inherited". I personally liked "Remain Undone", the final of main part of the album. It is only a cover of Bryan Adams “Summer of 89” after it. Unfortunately, the album seemed a bit short for the style, still only 7 original songs and 45 minutes of music, including a cover version.</p><p>Overall the album is good and fans of the style will pay attention to it. Unfortunately, it is not the best times for power progressive metal, so LANFEAR unlikely to be on the covers of magazines. On the other hand, the musicians created an insufficient amount of material, the album ends very quickly, and the musical moves of the Germans are not the most original. CD seems promises something for the entire playing time, but the miracle does not happen.</p>
+Автор: Vit Belov
+
+### 05.08.2016 news Новый сингл LANFEAR
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом prog metal группы <strong>LANFEAR "The Code Inherited" </strong>вышел 1 июля на <strong>Pure Legend Records</strong>. Второй сингл с этого альбома <strong>"Evidence Based Ignorance</strong>" можно послушать ниже.</font></p><p>&nbsp;<center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/276776939&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+### 05.08.2016 news Second single of LANFEAR
+
+<p><strong>LANFEAR – “Evidence Based Ignorance”</strong> – official single from the album "<strong>The Code Inherited</strong>" - official release date: 01st of July 2016 by <strong>PURE LEGEND RECORDS</strong>.</p><p>&nbsp;<center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/276776939&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

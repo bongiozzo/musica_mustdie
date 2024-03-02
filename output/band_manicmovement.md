@@ -12,6 +12,21 @@ melodic death-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.07.2000 reviews Очередное открытие Holy Records
+
+<p>Очередное открытие Holy Records. Потрясающий материал компилирующий лучшее из двух death-металлических школ: шведской и греческой. В какой-то степени, этот материал можно классифицировать как что-то среднее между Dark Tranquillity и Septic Flesh. Единственное, что меня разочаровало - это оформление альбома. какая-то нелепая обложка с непонятным существом. К музыкальному же материалу никаких претензий. Описывать это бессмысленно. Вы все и так знаете. Тяжело, супермелодично, быстро и невероятно красиво. Рекомендую!</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews The next discovering Holy Records
+
+<p>The next discovering Holy Records. A startling stuff compiling best of two death-metallical schools: Swedish and Greek. To some extent, this stuff can be categorized as something mean between Dark Tranquillity and Septic Flesh. Alone, that has disappointed me is cover of an album. Any absurd cover with a not clear entity. To a musical stuff of any claims. To describe it it is senseless. All of you and so know. Is high-gravity, supermelodical, is fast and it is incredibly beautiful. I recommend!</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

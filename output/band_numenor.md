@@ -59,6 +59,19 @@ Recorded, arranged, mixed and mastered at Studio Paradox between June 2014 and J
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2016 news Второй альбом сербов NUMENOR переиздан на Stygian Crypt
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Российский лэйбл<strong> Stygian Crypt</strong> переиздал второй альбом сербской epic black/power metal <strong>NUMENOR "Sword and Sorcery"</strong>. В качестве бонуса добавлены пять ранее не изданных треков.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/282674516%3Fsecret_token%3Ds-Pf96x&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+### 13.09.2016 news NUMENOR re-released second album with 5 bonus tracks
+
+<p>Russian label<strong> Stygian Crypt</strong> has reissued the second album of Serbian epic black/power metal band <strong>NUMENOR "Sword and Sorcery"</strong>. As a bonus five previously unreleased tracks was added.</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/282674516%3Fsecret_token%3Ds-Pf96x&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -87,6 +87,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2010 news ACID DRINKERS выпускают второй альбом с кавер версиями
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Польские ветераны <STRONG>ACID DRINKERS</STRONG> подготовили к выпуску второй альбом кавер версий. Диск получил название <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Fishdick Zwei - The Dick Is Rising Again" </STRONG></FONT>(первый назывался <STRONG>"Fishdick"</STRONG> и вышел в 1994). Дата выхода назначена на 1 сентября.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17045.jpg" width=300 height=300>Трек лист:</FONT></P>
+<P>01. <STRONG>Ring Of Fire</STRONG> [Johnny Cash cover] <BR>02. <STRONG>Hit The Road Jack</STRONG> [Ray Charles cover] <BR>03. <STRONG>Losfer Words (Big 'Orra)</STRONG> [Iron Maiden cover] <BR>04. <STRONG>Love Shack</STRONG> [B52's cover]<BR>05. <STRONG>New York, New York</STRONG> [Frank Sinatra cover] <BR>06. <STRONG>Bring It On Home</STRONG> [Led Zeppelin cover] <BR>07. <STRONG>Hot Stuff</STRONG> [Donna Summer cover] <BR>08. <STRONG>Et Si Tu N'Existais Pas</STRONG> [Joe Dassin cover] <BR>09. <STRONG>2000 Man</STRONG> [Kiss cover] <BR>10. <STRONG>Bad Reputation</STRONG> [Thin Lizzy cover] <BR>11. <STRONG>Seasons In The Abyss</STRONG> [Slayer cover] <BR>12. <STRONG>Blood Sugar Sex Magic</STRONG> [Red Hot Chili Peppers cover] <BR>13. <STRONG>Nothing Else Matters</STRONG> [Metallica cover] <BR>14. <STRONG>Detroit Rock City</STRONG> [Kiss cover] <BR>15. <STRONG>Make No Mistake</STRONG> [Keith Richards cover] <BR>16. <STRONG>Fluff</STRONG> [Black Sabbath cover]</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Headcrusher
+
+### 22.02.2011 reviews Польский ответ БОНИ НЕМ
+
+<P>ACID DRINKERS, пожалуй, можно смело считать самой весёлой группой Польши. На протяжении всей своей карьеры, которая длится уже четверть века, музыканты постоянно шокировали добропорядочную публику. Песни с программными названиями “Fuck Me”, “Woman with Dirty Feet” или “King Kong Bless You” вызывали широкую улыбку у каждого непредвзятого слушателя. Вехой в карьере ACID DRINKERS стал альбом каверов с двусмысленным названием “Fishdick”, вышедший в 1994 году. И вот в 2010 году поляки решили повторить свой успех сиквелом “Fishdick Zwei – The Dick Is Rising Again”.</P>
+<P>“Fishdick” – это не просто сборник кавер-версий известных рок-композиций, и это не просто сборник кавер-версий известный поп-композиций. На этом альбоме мы можем обнаружить очень широкий спектр музыкального материала, являющегося классикой мировой музыки, над которым в той или иной мере поработали ACID DRINKERS. Вот список групп и исполнителей, подвергшихся препарации: Johnny Cash, Ray Charles, B52, Frank Sinatra, Led Zeppelin, Donna Summer, Joe Dassin, Rolling Stones, Thin Lizzy, Slayer, Red Hot Chilli Peppers, Metallica, Keith Richards. Есть ещё несколько риффов Iron Maiden, Kiss и Black Sabbath. В общем и целом, весь этот парад хитов можно разделить на три части. В первую вошли популярные композиции из сокровищницы поп-музыки “New York, New York” Синатры, “Hit The Road Jack” Чарльза, “Love Shack” B52. Здесь ACID DRINKERS разошлись по полной программе. Был добавлен женский вокал, метал и классические инструменты сплелись в один взрывоопасный узел. Во второй части hard-rock композиции, которые звучат свежо и интересно, но не являются чем-то необычным. Довольно часто современные металисты оживляют классику рока своими непотребными криками. В третью часть вошли всего две композиции, но именно они особенно порадуют поклонников тяжёлого метала. Хит SLAYER “Seasons In The Abyss” поляки исполнили в стиле кантри, и пускай по музыке разглядеть этот хит трэша не представляется возможным, лирика сохранена полностью. “Close Your Eyes and Forget Your Name” под живенький ритм, очень весело. И, конечно же, “Nothing Else Matters” METALLICA, превращённый в какой-то дурацкий бравурный хит.</P>
+<P>Как и всякий удачный кавер-альбом, “Fishdick” должен понравиться многим. Весело и задорно, а, главное, ещё и качественно и интересно. Рекомендую.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

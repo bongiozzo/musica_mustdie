@@ -27,6 +27,17 @@ doom
 * C группой "Harmahis" Lefthander
 * C группой "Harmahis" Senmuth
 
+## Публикации
+
+### 05.10.2011 news Новый альбом TENOCHTITLAN
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.10/21424.jpg" width=400 align=right border=0>Ethnic doom-metal проект<STRONG> TENOCHTITLAN</STRONG> закончил работу над своим новым альбомом "<STRONG>Сотворение Мира</STRONG>". Трек-лист:</P>
+<P>1. <STRONG>Тлальтекутли<BR></STRONG>2. <STRONG>Начало<BR></STRONG>3. <STRONG>Сокол и Змей</STRONG><BR>4. <STRONG>Нуаль</STRONG><BR>5. <STRONG>Похороны Монтесумы</STRONG><BR>6. <STRONG>Цветок Ишчель</STRONG></P>
+<P>Состав:</P>
+<P><STRONG>Senmuth</STRONG> - гитары, вокал, programming<BR><STRONG>Lefthander </STRONG>- вокал, тексты, музыка, гитары<BR><STRONG>Brutal Harry</STRONG> - музыка<BR><STRONG>Archon</STRONG> - вокал</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

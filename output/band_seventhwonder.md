@@ -90,6 +90,19 @@ Mixed and mastered by: Tommy Hansen
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.07.2016 news SEVENTH WONDER выпускают DVD
+
+<p>23 сентября на<strong> Frontiers Records</strong> выходит 2DVD/2CD<strong> SEVENTH WONDER "Welcome To Atlanta Live 2014"</strong>. Как ясно из названия, на издание попал концерт группы на фестивале в Атланте, США.</p><p>Ниже можно увидеть трейлер DVD.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/TANcV7StP3s" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.07.2016 news SEVENTH WONDER DVD&#39;s trailer
+
+<p>On September 23 via Frontiers Records will be out 2DVD/2CD <strong>SEVENTH WONDER</strong>'s "<strong>Welcome To Atlanta Live 2014</strong>". As the name implies, the video featuring the concert on festival in Atlanta, USA.</p><p>Below you can see the trailer for the DVD.</p><p>&nbsp;</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/TANcV7StP3s" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

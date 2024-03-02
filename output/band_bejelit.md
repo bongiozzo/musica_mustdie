@@ -47,6 +47,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.02.2012 news Новое видео BEJELIT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип итальянцев <STRONG>BEJELIT</STRONG> на песню "<STRONG>Emerge</STRONG>" можно посмотреть ниже. Трек взят с одноимённого альбома коллектива, который выйдет 26 марта на<STRONG> Bakerteam Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/HqXoMR9M-iU?version=3&feature=player_embedded"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/HqXoMR9M-iU?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

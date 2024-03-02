@@ -165,6 +165,19 @@ The album is a dedication to Surtr; Giant and Ruler of the world of flames Mъsp
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.10.2016 news ARCKANUM подписались на Folter Records
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Шведская black metal легенда<strong> ARCKANUM</strong> подписала контракт с немецким лэйблом <strong>Folter Records</strong>. В настоящее время единственный участник группы <strong>Shamaatae</strong> работает над новым материалом, который выйдет на новом альбоме весной 2017 года.</font></p><p><center><img width="350" height="350" src="/images/news_rus/2016.10/30105.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.10.2016 news ARCKANUM signs with Folter Records
+
+<p>The Berlin based label has signed Swedish Black Metal legend <strong>ARCKANUM</strong>. At the moment, band founder <strong>Shamaatae</strong> is working on new songs – a release is scheduled for Spring 2017.</p><p><strong>ARCKANUM</strong> is active since 20 years and released nine albums and lots of EPs and split-releases. Their latest album „<strong>Fenris Kindir</strong>“ was released in 2013 via <strong>Season of Mist Underground Activities</strong>.</p><p><center><img width="350" height="350" src="/images/news_rus/2016.10/30105.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

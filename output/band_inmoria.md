@@ -44,6 +44,27 @@
 * C группой "Tad Morose" Peter Moren (drums)
 * C группой "Steel Attack" Peter Moren (drums)
 
+## Публикации
+
+### 23.02.2010 news Видео INMORIA
+
+<P><STRONG>INMORIA</STRONG> опубликовали новый клип на песню <STRONG>"In My Dreams".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9Bzb6M_JJak&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/9Bzb6M_JJak&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.09.2011 news Новый альбом INMORIA
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.09/20900.jpg" width=300 align=right border=0>7 октября на <STRONG>Rock It Up</STRONG> выходит второй альбом <STRONG>INMORIA "A Farewell To Nothing - The Diary Part 1"</STRONG>. Альбом станет дебютом для нового вокалиста коллектива Soren <STRONG>Nico Adamsen (ARTILLERY, ex-CRYSTAL EYES).</STRONG> Кроме него в группе участвуют следующие музыканты:</P>
+<P><STRONG>Christer Andersson</STRONG> - Guitars (TAD MOROSE)<BR><STRONG>Danne Eriksson</STRONG> - Keyboards (TAD MOROSE)<BR><STRONG>Tommi Karppannen</STRONG> - Bass (MORGANA LEFAY, TAD MOROSE)<BR><STRONG>Peter Moren</STRONG> - Drums (TAD MOROSE, STEEL ATTACK)</P>
+<P>Трек-лист:</P>
+<P>1.<STRONG> Blinded</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>2. <STRONG>My Shadow Fall</STRONG>&nbsp; <BR>3. <STRONG>Watch Me Bleed</STRONG>&nbsp; <BR>4. <STRONG>End Of The Line</STRONG>&nbsp; <BR>5. <STRONG>In My Dreams</STRONG>&nbsp;&nbsp;&nbsp; <BR>6. <STRONG>Just Another Lie</STRONG>&nbsp;&nbsp; <BR>7. <STRONG>Save Me</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>8. <STRONG>Hear My Prayers</STRONG>&nbsp;&nbsp; <BR>9. <STRONG>Watch Me Bleed</STRONG>&nbsp;&nbsp;&nbsp; <BR>10. <STRONG>The Silence Within Me</STRONG> <BR>11. <STRONG>All For Granted</STRONG>&nbsp;&nbsp; <BR>12. <STRONG>Why&nbsp; </STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

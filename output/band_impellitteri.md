@@ -213,6 +213,136 @@ Glen Sobel-Drums
 * C группой "Rob Rock" Rob Rock
 * C группой "Firewind" Rob Rock
 
+## Публикации
+
+### 21.10.1999 reviews 
+
+<p>Очередной альбом гитарного мастера Криса Импеллиттери и компании. Альбом выдержан в том же ключе, что и предыдущие работы этого ансамбля. Плотные рифы, достаточно высокий вокал, виртуозные соло. Ещё один плюс заключается в том, что Крис не занимается самолюбованием, не запиливая так, что забываешь, а где песня, и вокальные партии всё-таки являются основой альбома, а не обязательной, но не нужной аттрибутикой. Хочеться отметить, что эта группа незаслуженно обделена вниманием. Мне очень нравится из плотный тяжёлый мелодизм, а на этом альбоме даже добавлено немного разнообразия, правда и альбом достаточно длинный, плюс добавлен бонус-диск "Victim Of the System", так что к концу немного утомляет. Рекомендую всем любителям современно-звучащего старого хэви. 8 из 10</p>
+
+Автор: Vit Belov
+
+### 19.04.2001 news Chris Impellitteri готовит бомбу.....
+
+<p>Гитарный гуру Chris Impellitteri вместе с вернувшимся в ряды команды ветераном Graham Bonnet (RAINBOW, MSG, ALCATRAZZ) дописывают новый альбом. Glen Sobel уже записал все барабанные треки (в голливудской Track Record), а сейчас прописываются гитары и басс.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news IMPELLITTERI&#39;s upcoming studio album....
+
+<p>Guitar hero Chris Impellitteri has posted the following update on the status of IMPELLITTERI's upcoming studio album, the first since the return of vocalist Graham Bonnet (i.e. RAINBOW, MSG, ALCATRAZZ) to the group's ranks: "As you can imagine, the boys of IMPELLITTERI have been very busy recording the new music. We have just completed the drum tracks at Track Record in Hollywood. Glen Sobel played on all the tracks. We are now doing bass and guitars. We usually spend about 2 or 3 months doing the guitars, especially the solos. This album is very heavy, with some very exciting guitar and drum work. Our goal is to make a very honest record, with music we will truly enjoy playing live. Our fans do expect a certain sound or style of music from us, which we do intend do deliver in a big way. Graham Bonnet is patiently waiting to start his vocal tracks. Graham has written some very heavy vocal melodies for this record. It should be very intense. Graham may play some shows in Europe with some old friends, which should get him in great shape for the IMPELLITTERI record. IMPELLITTERI have agreed to do a full major tour in support of the new record. There has been such major interest in this new record that it is likely IMPELLITTERI will do a worldwide release. We do look forward to touring continually behind the new record. We should have a very exciting show for the fans. For the fans that remember the IMPELLITTERI line-up with Bonnet as the frontman, you should remember the endless wall of Marshall speaker cabinets and huge lighting show. We do intend to outdo ourselves. We hope to see all the fans soon, Chris Impellitteri". Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.02.2002 news IMPELLITTERI Set Release Date ....
+
+<p>IMPELLITTERI, featuring returning frontman Graham Bonnet (ex-MSG/RAINBOW), have set March 21st as the Japanese release date for their long-awaited new studio album, entitled System X. The full track listing for the CD is as follows: <BR><BR> 01. United We Stand<BR> 02. Perfect Crime<BR> 03. End Of The World<BR> 04. She's A Nighttime Lover<BR> 05. Slow Kill<BR> 06. Why Do They Do That<BR> 07. Rock'n'Roll Heroes<BR> 08. Gotta Get Home<BR> 09. What Kind Of Sanity<BR> 10. Falling In Love With A Stranger<BR></p>
+
+Автор: Yermola
+
+### 18.02.2002 news Система Икс от IMPELLITTERI ....
+
+<p>"IMPELLITTERI" совместно с вернувшимся фронтменом Graham Bonnet (ex-MSG/RAINBOW) объявили дату релиза нового альбома "System X" - 21-е марта. Список песен: <BR><BR> 01. United We Stand<BR> 02. Perfect Crime<BR> 03. End Of The World<BR> 04. She's A Nighttime Lover<BR> 05. Slow Kill<BR> 06. Why Do They Do That<BR> 07. Rock'n'Roll Heroes<BR> 08. Gotta Get Home<BR> 09. What Kind Of Sanity<BR> 10. Falling In Love With A Stranger<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news Very Best of Impellitteri
+
+<p>21 сентября 2002 года в Японии выходит альбом-сборник CHRIS IMPELLITERI "Very Best of Impellitteri". В альбом войдут следующие вещи:</p>
+<p> 01. Lost In The Rain <BR> 02. Stand In Line <BR> 03. Power Of Love <BR> 04. When The Well Runs Dry<BR> 05. Victim Of The System<BR> 06. Fly Away <BR> 07. Warrior <BR> 08. 17th Century Chicken Pickin' <BR> 09. Rat Race <BR> 10. Shed Your Blood <BR> 11. Paradise <BR> 12. Beware Of The Devil <BR> 13. Spanish Fire<BR> 14. Texas Nuclear Boogie<BR> 15. Perfect Crime <BR> 16. Rock & Roll Heroes<BR> 17. Freakshow (prev. unreleased) <BR> 18. Cyberflesh (prev. unreleased) <BR> 19. Anti Social Disease (new)</p>
+
+Автор: Dimas
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 06.04.2003 news Второй сольник бывшего вокалиста IMPELLITERI
+
+<p>26 мая 2003 года на Massacre Records выйдет второй соло-альбом Роб Рока "Eyes Of Eternity". В альбом, который продюссировал Roy Z. войдут следующие вещи:</p>
+<P> 01. Bridge to Infinity<BR> 02. Rock the Earth <BR> 03. Conquerors Hymn<BR> 04. Stranglehold<BR> 05. Fields of Fire<BR> 06. You Know <BR> 07. Eyes of Eternity<BR> 08. The Everlasting <BR> 09. Rage of Creation <BR> 10. The Hour of Dawn <BR> 11. Children of the Wasteland</>
+<P> Первая и последняя композиция войдут только на японский релиз альбома. В качестве гостевых музыкантов на альбоме засветились Roy Z., Gus G. (DREAM EVIL, FIREWIND), Tom Naumann (PRIMAL FEAR), Carl Johan Grimmark (NARNIA), Jeff Kollman (GLENN HUGHES), Jack Frost (SEVEN WITCHES, ex-SAVATAGE), Howie Simon (TAMPLIN, JEFF SCOTT SOTO), Jimi Bell (WAYNE) и Axel Rudi Pell.</>
+
+Автор: Dimas
+
+### 20.09.2003 news IMPELLITTERI взял нового вокалиста
+
+<P>IMPELLITTERI официально заявили о принятии в группу нового вокалиста <B>Curtis Skelton</B> <B>(</B>ex-<B>SPEAK NO EVIL).</B> Группа закончит запись новой пластинки в начале 2004 года. CD, записываемый вместе с <B>Greg Reely (FEAR FACTORY, MACHINE HEAD),</B>&nbsp;ознаменует отход группы от своего прежнего нео-классического звучания. <B>Greg Reely</B>: "Я могу описать их новую работу, как слияние тяжести <B>FEAR FACTORY, DISTURBED, SOILWORK</B> и даже <B>SLIPKNOT</B> с техничными гитарными соло."</P>
+Автор: Vit Belov
+
+### 11.02.2004 news IMPELLITERI назвал новый альбом
+
+<IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.02/5991.jpg" width=300 align="left" border=0>Новый альбом <B>IMPELLITERI</B> будет называться <B>Pedal for The Medal</B>. Ориентировочно пластинка увидит свет в марте в Японии. Затем будет объявлена дата для Европы и, возможно, для США. Сообщается, что в каждой стране выйдет отличная от других версия альбома.
+Автор: Vit Belov
+
+### 11.02.2004 news IMPELLITTERI news
+
+<B><IMG height=200 alt="" hspace=0 src="/images/news/2004.02/5992.jpg" width=300 align="left" border=0>IMPELITTERI</B> has named their forthcoming new album <B>'Pedal for the Medal'</B>. Album will be released in March in Japan. Then it will be released in Europe and USA. In every territory <B>'Pedal For The Medal'</B> will be in different versions.
+Автор: Vit Belov
+
+### 18.07.2004 reviews Стандартный альбом IMPELLITTERI
+
+<P><I>Очередной хороший альбом от <B>IMPELLITTERI</B>. Главным отличием от предыдущей&nbsp;пластинки стало наличие нового вокалиста <B>Curtis Skelton</B>, которой практически неизвестен широкой публике.</I></P>
+<P>Неоклассическая тяжёлая heavy-музыка с хорошими соло, свойственная всем альбомам <B>IMPELLITTERI</B>, разнообразиться здесь несколькими вещами. Во-первых, вокалист в некоторых местах использует гроулинг (!!!). Во-вторых, откровенно антиамериканская лирика (альбом вышел в Японии), начиная от борьбы против войны на '<B>Destruction</B>', кончая полным уничижением американского heavy-metal на <B>'The Fall Of Titus'</B>. Ещё одним хитом этого альбома является '<B>Punk</B>' - пародия на <B>Eminem</B>. Забойная и качовая,&nbsp;и в тоже время смешная, со всеми своими "ла-ла-ла" и.т.п. При всём этом, есть и несколько провальных песен, например, 'Stay Tonight' с риффом, позаимствованном&nbsp;в известной песне <B>Bon Jovi</B>.&nbsp;Новый вокалист совсем неплох, хрипловатый, совсем невысокий вокал,&nbsp;что не портит музыки, но и назвать <B>Curtis Skelton</B>&nbsp;откровением - нельзя.</P>
+<P>Неплохой, стандартный альбом <B>IMPELLITTERI </B>для всех его поклонников.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 30.03.2005 reviews Надавил педаль метала - что-то музыка пропала...
+
+<P>Американский виртуоз Chris Impellitteri на своей новой пластинке с невразумительным названием "Pedal To The Metal" сделал столь же невразумительную попытку скрестить melodic heavy metal с nu-metal. Собственно, на этом можно было бы рецензию и закончить. Ибо если всё это делалось совершенно серьезно, то непонятно, кому это вообще может понравиться. Ежели это своего рода стёб, то он тоже крайне неудачен (исключая разве что издевательства над Eminem в 'Punk'), если не сказать бльшего. Получилось из серии "хотел сделать так и так, только понятия не имел, как надо". Немалую роль сыграл и новый вокалист группы Куртис Скелтон из лос-анджелесской ню-метал банды Speak No Evil. Мелодий ноль (а за те, что есть, можно смело ставить "незачёт"), совершенно нецепляющие риффы, метающийся из стороны в сторону вокал, примитивные смены ритма, непонятные "закосы" в пауэр-метал -&nbsp; вот что такое Impellitteri образца 2005 года. Что ж, возможно, я не заметил скрытого глубинного и исключительно тонкого юмора этого супергитариста (естественно, не забывшего продемонстрировать своё искусство игры), но эта пластинка явно навсегда "отгостилась" в моем СД-плеере. После "Pedal To The Metal" я даже совершенно не понравившийся мне последний альбом Kreator готов назвать отличной пластинкой. И обложка у диска идиотская.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 10.05.2008 news Rob Rock вернулся к Impellitteri
+
+<P><STRONG>IMPELLITTERI</STRONG> заняты работой над новой пластинкой "<STRONG>Good And Evil</STRONG>". Стало известно, что в группу вернулся вокалист <STRONG>Rob Rock</STRONG>, с которым были записаны классические альбомы коллектива.</P>
+Автор: Vit Belov
+
+### 04.01.2009 news Rob Rock рассказал об IMPELLITERI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=219 alt="" hspace=0 src="/images/news_rus/2009.01/13282.jpg" width=300 align=left border=5>Певец <STRONG>Rob Rock</STRONG> прояснил ситуацию с новым альбомом <STRONG>IMPELLITERI "Wicked Maiden"</STRONG>, который выходит 21 января в Японии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Существует множество спекуляций, являюсь ли я постоянным членом IMPELLITERI. Я официально заявляю, Rob Rock и IMPELLITERI воссоединились. Мы планируем записать много альбомов вместе, ездить в туры, в общем, всячески продвигать группу на новый уровень. Наш новый альбом - настоящий металл с высоким вокалом, отличной продукцией и, конечно же, мощной гитарой. "Wicked Maiden" был сведён в Ванкувере Greg Reely, а мастеринг проделал George Marino. Вообще, 2009-ый будет очень насыщенным для меня. Помимо релиза и тура с IMPELLITERI предстоит тур с моей сольной командой, а так же DRIVER выступит на фестивале Bang Your Head</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После релиза в Японии последуют даты для Европы и США.</FONT></P>
+Автор: Vit Belov
+
+### 14.01.2009 news Обложка нового IMPELLITTERI
+
+<P><STRONG>IMPELLITTERI</STRONG> опубликовали обложку своего нового альбома "<STRONG>Wicked Maiden</STRONG>", который выходит в этом месяце в Японии.</P>
+<P><center><IMG height=300 src="/images/news_rus/2009.01/13363.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 15.01.2009 news Новая песня IMPELLITTERI
+
+<P><STRONG>IMPELLITTERI </STRONG>выложили на своей <STRONG>MySpace</STRONG> страничке песню со своего нового "эпохального" альбома "<STRONG>Wicked Maiden</STRONG>", на котором в состав группы вернулся вокалист <STRONG>Rob Rock</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/impellitteriofficialsite">http://www.myspace.com/impellitteriofficialsite</A></P>
+Автор: Vit Belov
+
+### 20.01.2009 news Дата релиза IMPELLITTERI
+
+<P>Новый альбом<STRONG> IMPELLITTERI</STRONG> <STRONG>"Wicked Maiden" </STRONG>получил дату релиза в Европе. Пластинка выйдет 24 апреля на<STRONG> Metal Heaven</STRONG>.</P>
+Автор: Vit Belov
+
+### 31.08.2009 reviews Классический альбом для IMPELLITTERI
+
+<P>Скажу сразу Chris Impellitteri – мой любимый гитарист-шреддер. Дело не в том, что я, досконально разбираясь в технике этих самых гитаристов, сделал вывод в его пользу. Или не в том, что его песни как-то по-особенному будят во мне восторг и благородные порывы души. Всё очень просто. Его альбомы, как это ни странно звучит, стали первыми из гитарной неоклассики, которые услышал прожженный любитель death/thrash/black metal.</P>
+<P>Более того, первыми стали работы IMPELLITTERI именно с Rob Rock на вокале. Поэтому не стоит лишний раз рассказывать, в каком я был восторге, когда узнал, что Rob возвращается к Chris, и вместе они собрались записать классический альбом для этой группы. Безусловно, уже тогда в моей голове появились те высокие баллы, которые я, не дрогнув рукой, выставляю “Wicked Maiden”. В творчестве IMPELLITERRI нет слабых альбомов. Как неоклассический гитарист и композитор Chris всегда очень высоко держит марку, а с возвращением Rob Rock мы вновь получили тот голос, который идеально подходит этой музыке. Отличная реализация, мощные мелодичные трэки, великолепные соло и мощный вокал. Здесь есть всё.</P>
+<P>Советую любителям подобной музыки. Если вам не очень нравится, что делает сейчас Yngwie Malmsteen, вам сюда. Да, в общем-то, и без сравнения с последними творениями Yngwie, “Wicked Maiden” выглядит очень достойно.</P>
+Автор: Vit Belov
+
+### 05.06.2010 news IMPELLITTERI пишет саундтрэки
+
+<P>Лидер-гитарист<STRONG> IMPELLITTERI Chris Impellitteri</STRONG> занялся сочинением саундтрэков. Музыкант сообщил, что подготовил демо для фильма "<STRONG>Железный Человек 2</STRONG>", но в нём была использована музыка <STRONG>AC/DC</STRONG>. <STRONG>Chris</STRONG> понравилось это занятие, и он решил записать ещё несколько саундтрэков, которые могут быть использованы в каких-нибудь будущих проектах. А могут и не быть использованы.</P>
+<P>Также музыкант занимается и своими прямыми обязанностями и сочиняет материал для новой пластинки <STRONG>IMPELLITTERI</STRONG>.</P>
+<P>Последняя работа группы с вернувшимся вокалистом <STRONG>Rob Rock "Wicked Maiden"</STRONG> вышла в России в прошлом году на <STRONG>Irond/Dark Division</STRONG>. Музыкант готовит специальный релиз альбома для США на начало 2011 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

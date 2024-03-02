@@ -37,6 +37,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2011 news Второй альбом MEDO
+
+<P><STRONG><IMG height=420 alt="" hspace=0 src="/images/news_rus/2011.07/20071.jpg" width=419 align=right border=0>War Productions</STRONG> объявили от выпуске второго альбома португальской black-metal команды <STRONG>MEDO "Materia Negra"</STRONG>. Лэйбл обещает пластинку, вдохновлённую мастерами "олдскульного" black-metal. Также нам обещают некоторое количество экспериментальным моментов, которые разнообразят саунд. Трек-лист:</P>
+<P>1. <STRONG>Por Tras Da Porta De Ferro</STRONG>&nbsp;&nbsp; <BR>2. <STRONG>O Portador Das Tormentas <BR></STRONG>3. <STRONG>You Will Never Burn All The Witches</STRONG> <BR>4.<STRONG> Trabalho De Magia Negra (Segundo S. Cipriano)&nbsp; <BR></STRONG>5. <STRONG>Medium&nbsp;&nbsp;&nbsp;&nbsp;</STRONG>&nbsp;&nbsp; <BR>6. <STRONG>Misterio Da Nau Da Morte</STRONG><BR>7. <STRONG>Vultos De Uma Batalha&nbsp; <BR></STRONG>8. <STRONG>Almas Penadas</STRONG>&nbsp;&nbsp;&nbsp; <BR>9. <STRONG>O Verdugo</STRONG>&nbsp;&nbsp; <BR>10. <STRONG>Licantropo - A Maldicao</STRONG><BR>11. <STRONG>Rituale Romanum</STRONG>&nbsp; </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

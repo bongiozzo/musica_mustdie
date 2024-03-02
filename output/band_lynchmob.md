@@ -124,6 +124,43 @@ Michael 'Fro' Frowein - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.06.2001 news Новый альбом LYNCH MOB ....
+
+<p>Вокалист "LYNCH MOB" Oni Logan под руководством продюссеров Jeff Menke и Gile в студии Soul 7 записывает вокальные партии для грядущего полноформатника группы. Гитарист George Lynch в это же время занят пре-продукцией гитарных партий в собственной студии Stonehouse. Работа Джорджа по записи гитар будет проходить в присутствии студентов изучающих запись в комплексе New Media.</p>
+
+Автор: Yermola
+
+### 06.06.2001 news LYNCH MOB&#39;s Oni Logan is presently laying down ....
+
+<p>LYNCH MOB's Oni Logan is presently laying down vocal tracks for the group's forthcoming studio album with producers Jeff Menke and Jason Gile at Soul 7 recording studios in LA. Meanwhile, guitarist George Lynch is in pre-production and is writing additional material for both LM and his solo project at his new recording studio, Stonehouse. George will also be recording at Expressions for New Media in Oakland, CA, a 30-million dollar complex that teaches recording arts. George will reportedly be working alongside students who will participate in the recording process. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.12.2002 news L&#x2F;P Ink Deal With SPITFIRE RECORDS
+
+<p>L/P, the new group featuring former DOKKEN members George Lynch (guitar) and Jeff Pilson (bass/vocals), are about to sign a domestic deal with Spitfire Records and "we're over-the-top excited about it," Pilson wrote on his official web site. "A final release date has yet to be named, but my guess is March or April, shouldn't be any later than that. The label has been so supportive of the music and direction, and that was pretty much what made us go with them. I'm going to be working hard with them to try and incorporate as much of the Internet fan base as we can, so all of you can be active participants in the record campaign if you choose. We'd like to organize street teams, etc. in the hopes that more people will hear this than the usual release. It's funny how a lot of new heavy bands are starting to acknowledge us [DOKKEN, George, etc.] as influences, so maybe a new audience will appreciate what we do. I would be very happy if the record is made aware to anyone who will listen and they have an opportunity to judge it on its own merits. This could be an exciting year for us, and I'm hoping that everyone here can be an integral part of it. For those of you wanting to join in, get ready to start writing a lot of e-mails!" <BR><BR> In the same update on his web site, Pilson also once again addressed his decision to file a lawsuit against two of his ex-bandmates, singer/guitarist Don Dokken and drummer Mick Brown, to dissolve their musical and financial partnership.<BR><BR> "[The lawsuit] was never really intended to be a public issue, but apparently the rock press has a system for discovering any lawsuits filed which involve people in their data base," he said. "This suit is strictly a business matter, which I've been left no choice but to pursue. However this in no way affects what DOKKEN was, or what any of us have ever contributed to it. Someone on the message board posted something about how maybe we all should never have met, and it made him or her sick! I gotta say, I can relate to that! If I were to read about this kind of thing, I'd probably say, 'how pathetic!' And you know what, it IS pathetic, and unfortunate. But I will never say that I wish we were never to have become a band. Even amongst the dreadful string of memories, I still remain extremely proud of the work we did and the music we made. It is time to move on, however, and I think everyone involved owes the franchise DOKKEN a great deal of respect, and we'll all have to trust that the outcome will be positive for all parties. I'm sure it will, and I'd like nothing more than for everyone to get a clean start and their fair share of opportunities. I trust it will all be good in the end."</p>
+
+Автор: Yermola
+
+### 31.07.2010 news James Lomenzo вошёл в состав LYNCH MOB
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16983.jpg" width=216 height=250>James Lomenzo</STRONG> (<B itxtvisited="1">MEGADETH</B>, <B itxtvisited="1">BLACK LABEL SOCIETY</B>, <B itxtvisited="1">WHITE LION</B>) был принят&nbsp;в состав <B itxtvisited="1">LYNCH MOB</B>, что бы закончить летний тур группы.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время в состав&nbsp;<STRONG><FONT color=#ddd9d0>LYNCH MOB</FONT></STRONG></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>, помимо <STRONG>Lomenzo</STRONG>,&nbsp;входят:</FONT></P>
+<P><B itxtvisited="1">George Lynch</B> (гитара), <B itxtvisited="1">Oni Logan</B> (вокал)&nbsp;и <B itxtvisited="1">Brian Tichy</B> (ударные; <B itxtvisited="1">FOREIGNER</B>, <B itxtvisited="1">OZZY OSBOURNE</B>, <B itxtvisited="1">VELVET REVOLVER</B>, <B itxtvisited="1">WHITESNAKE</B>). <BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 26.08.2013 news DOWNSET снова в строю
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26107.jpg" width=300 height=300>Тогда, как одни герои уходят в небытьё, другие, напротив, возвращаются к жизни. </P>
+<P>Лосанджелеская rapcore формация <STRONG>DOWNSET</STRONG>, известная&nbsp;даже самым равнодушным к подобной музыке фэнам благодаря своему хиту <A href="http://youtu.be/H6IQxhkVIEw">"Anger"</A>, решила снова вернуться на музыкальную сцену после распада в мае&nbsp;2009 года.</P>
+<P>Около месяца назад группа выпустила новую песню под названием <STRONG>"Forgotten"</STRONG> и отправилась в европейский тур.</P>
+<P>Гостевое участние в записи <STRONG>"Forgotten"</STRONG> приняли <STRONG>Sen Dog</STRONG> (<STRONG>CYPRESS HILL</STRONG>) и <STRONG>George Lynch</STRONG> (<STRONG>DOKKEN</STRONG>, <STRONG>LYNCH MOB</STRONG>).&nbsp;Послушать трек можно здесь: <A href="http://music.yandex.ru/#!/album/1513329">http://music.yandex.ru/#!/album/1513329</A></P>
+<P>Hынешний состав <STRONG>DOWNSET</STRONG> включает в себя двоих оригинальных у частников -&nbsp;это&nbsp;<STRONG>Rogelio Lozano</STRONG> (гитара), <STRONG>Chris Lee</STRONG> (барабаны), а также двоих новичков - <STRONG>Neil Roemer</STRONG> (вокал) и<STRONG> J.D.</STRONG> <STRONG>Manhart</STRONG> (бас).</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

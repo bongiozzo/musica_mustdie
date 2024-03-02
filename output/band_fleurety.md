@@ -28,6 +28,15 @@ Marian Aas Hansen - Female Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.10.1999 news 
+
+<p>Fleurety начали микс своего нового альбома. Произведение будет называться "Department of Apocalyptic Affairs", и на нём появятся много приглашённых музыкантов, в частности Hellhammer и Maniac из Mayhem и Sverd из Arcturus.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

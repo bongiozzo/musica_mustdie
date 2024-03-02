@@ -8,6 +8,9 @@ Satan Death metal from Krasnoyarsk
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

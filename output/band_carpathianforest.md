@@ -202,6 +202,112 @@ Born In The Hands Of Doom
 * C группой "Nattefrost" 
 * C группой "Chain Collector" G. Bomann
 
+## Публикации
+
+### 12.10.2001 news Выходит новый альбом Carpathian Forest
+
+<p>Новый альбом Carpathian Forest "Morbid fascination of Death" выходит в этом месяце на Avantgarde Records. Второй из двух концептуальных альбомов был записан одновременно с предыдущим "Strange Old Brew". Альбом записывался ещё старым составом, включая Nattefrost'а и Nordavind'а (в настоящее время не участвующими в концертных выступлениях Carpathian Forest). Релиз обещает быть весьма сильным и содержательным. Он будет доступен ещё до официальной даты выпуска во время европейских концертов в рамках совместного тура с Behemoth "The Act Of Rebellion Tour 2001", стартующего с середины октября.</p>
+
+Автор: Morsus
+
+### 12.10.2001 news New Carpathian Forest album will be released soon
+
+<p>New Carpathian Forest album "Morbid fascination of Death" will be released this month through Avantgarde Records. This second of a two concept albums was recorded at the same time and location as their previous "Strange Old Brew". A solid line-up, joining old members Nattefrost and Nordavind (at the moment out of the Carpathian Forest live line-up) makes the recording very consistant and strong. New album will be available first time from the official release date at european shows "The Act Of Rebellion Tour 2001" with Behemoth, which will start from middle October.</p>
+
+Автор: Morsus
+
+### 14.02.2002 news Карпатские лесники подписали сделку....
+
+<p>Норвежские блэкстеры "CARPATHIAN FOREST" подписали контракт на два альбома с Season of Mist Records и в Июле садятся в Sound Suite Studio для записи первого альбома для лэйбла....</p>
+
+Автор: Yermola
+
+### 14.02.2002 news CARPATHIAN FOREST Ink Deal With Season Of Mist Records ...
+
+<p>Norwegian black metallers CARPATHIAN FOREST have inked a two-album deal with Season of Mist Records and will enter Sound Suite Studio during July to record their first album for the label, due at the end of the year.</p>
+
+Автор: Yermola
+
+### 11.03.2002 reviews И Мона Лиза постепенно разрушается
+
+<p> Зараза, неужели блэк старой закалки всё-таки сдох? Это плохо. Оччень, надо сказать, плохо. Альбом чрезвычайно уважаемой мною группы Carpathian Forest был одним из самых ожидаемых. Сколько было надежд. И вот он вышел. И что? И всё... </p>
+<p> Помню, как ещё совсем недавно, уставший от бесконечных самоплагиатов Darkthrone, экспериментов Satyricon и страдающих фигней Mayhem (это не про Grand Declaration Of War, не подумайте плохого), я откопал в магазине творение тогда ещё почти андерграундной группы Carpathian Forest "Black Shining Leather". Вот это был АЛЬБОМ!!! Я даже могу сказать, АЛЬБОМИЩЕ!!!! </p>
+<p> Блэк безо всяких размытий, инфлюенций и оркестровок, с отличным качеством записи... Он просто поразил меня.После первого же прослушивания мне начали грезиться загромождённые поваленными деревьями полянки карпатских гор, избушки на курьих ножках и прочие радости жизни. Атмосфера, злоба, откровенность и в то же время МУЗЫКАЛЬНОСТЬ - вот чем был CF тогда. Теперь же многое изменилось. Свалил Нордавинд, приперся Vrangsinn. И все это хозяйство влезло одной ногой в дыру, имя коей - лоснящаяся жопа коммерциализации. Да, играть они стали профессиональнее. Да, качество записи стало лучше. Да, музыка стала побогаче. Но душа-то, душа где? В разрисованном пентаграммами и полуголыми "Slave Of Satan" в кровище буклете? Нет, ребят, вы ошиблись. По сравнению со Strange Old Brew этот альбом, мягко говоря, похуже будет, не говоря уже об остальных. Пора вернуться к корням... Мать вашу! </p>
+<p> P.S. На самой деле альбом очень даже хорош. Все же не Ancient Rites какие-нибудь. Просто мне кажется, что Carpathian Forest ещё рано развиваться. Пусть еще парочку альбомов выпустят, тогда поглядим. Не надо растрачивать свой потенциал! </p>
+
+Автор: Blackvdaergl
+
+### 15.07.2002 news Юбилейный альбом Carpathian Forest
+
+<p>Carpathian Forest закончили работу над юбилейным альбомом в честь своего 10-тилетия. Продукт с длинным названием "We're Going To Hell For This - Over A Decade Of Pervertions" будет состоять из нескольких новых песен, а также каверов и концертных записей. Кроме того, 10 августа начнётся запись следующего нормального студийного альбома "Defending The Throne Of Evil".</p>
+
+Автор: Morsus
+
+### 15.07.2002 news 10th anniversary album of Carpathian Forest
+
+<p>Carpathian Forest have finished work on their 10th anniversary album. The album is titled "We're Going To Hell For This - Over A Decade Of Pervertions" and it will feature some new songs, covers and live recordings. In related news the new studio album of the band will be titled "Defending The Throne Of Evil" and recordings start in August 10th.</p>
+
+Автор: Morsus
+
+### 09.11.2002 news Новости от CARPATHIAN FOREST
+
+<p>Культовая норвежская black metal банда CARPATHIAN FOREST выпустит свой новый альбом "Defending The Throne Of Evil" 17 марта 2003 года. Альбом записывается в Sound Suite Studio с продюссером Terje Refsnes.</p>
+
+Автор: Dimas
+
+### 09.11.2002 news CARPATHIAN FOREST news
+
+<p>Norwegian cult black metal band CARPATHIAN FOREST will release their new album, "Defending The Throne Of Evil", on Mar. 17, 2003. The CD, the group's first full-length collection of all-new material in over three years, was once again recorded at Sound Suite Studio in France with producer Terje Refsnes.</p>
+
+Автор: Dimas
+
+### 21.11.2002 news Вокалист ABORYM арестован...
+
+<p>Бывший вокалист "MAYHEM" и действующий "ABORYM" - Attila Csihar арестован в Тревизо (Италия) и находится в тюрьме. Он арестован за хранение таблеток экстази и гашиша. Оставшиеся участники "ABORYM" заявили, что новый альбом "With No Human Intervention" в любом случае будет выпущен в январе 2003 на Code666 в Европе и WW3 (Mercenary Musick) в США. В качестве гостей на диске приняли участие Bard "Faust" Eithun (ex-EMPEROR, на данный момент - барабанщик DISSECTION), Nattefrost (лидер CARPATHIAN FOREST), а также Irrumator (босс ANAAL NATHRAKH). <BR><BR> Трек-лист:<BR><BR> 01. Antichristian Codec (intro)<BR> 02. With No Human Intervention<BR> 03. U.V. Impaler<BR> 04. Humechanics-Virus<BR> 05. Does Not Compute<BR> 06. Faustian Spirit Of The Earth<BR> 07. Digital Goat Masque<BR> 08. The Triumph<BR> 09. Black Hole Spell<BR> 10. Me(N)Tal Striken Terror Action<BR> 11. 11 Out Of Shell<BR> 12. Chernobyl Generation<BR> 13. The Alienation Of A Blackened Heart<BR> 14. Automatik Rave'olution Aborym</p>
+
+Автор: Yermola
+
+### 02.03.2005 news CARPATHIAN FOREST готовы войти в студию
+
+<P>Норвежские суровые&nbsp;блэкстеры&nbsp;<B>CARPATHIAN FOREST</B> готовятся войти в студию на следующей неделе, для записи своего нового альбома под названием&nbsp;<B>"Fuck You All!"</B>,&nbsp;выпуск которого запланирован в мае через&nbsp;<B>Season of Mist</B>. </P>
+Автор: Dimas
+
+### 31.08.2005 news Дата релиза CARPATHIAN FOREST
+
+<P><STRONG>Season Of Mist</STRONG> назначили дату релиза нового альбома <STRONG>CARPATHIAN FOREST</STRONG> - 16 января. Группа уже закончила запись и осталось только смикшировать и отмастерить диск.</P>
+Автор: Vit Belov
+
+### 31.08.2005 news CARPATHIAN FOREST release date
+
+<P><STRONG>Season of Mist</STRONG> have announced a release date for the upcoming <STRONG>CARPATHIAN FOREST</STRONG> album; 16th of January (Europe) and 17th of January (USA) 2006. The band is almost finished with all recordings, only a few details left, and will decide where to mix the album within a short period of time.</P>
+Автор: Vit Belov
+
+### 08.02.2006 news Inferno Metal Festival Norway 2006
+
+<P>С 13-го по 15-е апреля в столице Норвегии Осло пройдет <B>Inferno Metal Festival</B>. Свое согласие на участие дали такие команды как <B>Usurper, Emperor, Cathedral, Marduk, Bolt Thrower, Dismember, Carpathian Forest</B> и <B>Witchcraft</B>. Практически все билеты по интернету уже раскуплены! Попытать всё же счастья, а заодно узнать побольше информации о фестивале можно на сайте <A href="http://www.infernofestival.net/"><U>http://www.infernofestival.net/</U></A></P>
+Автор: Ixtiandr
+
+### 04.04.2006 news CARPATHIAN FOREST, новый трек в сети!
+
+<P>На сайте <STRONG>Season Of Mist</STRONG> наконец-то появилась дата выхода нового альбома "<STRONG>Fuck You All!!!!"</STRONG> культовых норвежцев <STRONG>CARPATHIAN FOREST</STRONG>&nbsp;- 22 мая! Кроме того, вы можете уже сейчас скачать трек "<STRONG>Start up the Incinerator (here comes another useless Fool)"</STRONG> с сайта лейбла<STRONG>.</STRONG> Как всегда группа записала безкомпромисный материал в своем стиле,&nbsp; который порадует поклонников жанра.&nbsp;Вот некоторые названия песен будущего альбома: <STRONG>"The frostbitten Woodlands of Norway", "Submit to Satan!!!",&nbsp; "Shut up, there is no Excuse to live...".</STRONG></P>
+Автор: Bizarre
+
+### 10.01.2007 news CARPATHIAN FOREST потеряли басиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из <STRONG>CARPATHIAN FOREST</STRONG> ушёл басист <STRONG>Vrangsinn</STRONG>. Группа отменила все концерты на ближайшие полгода. Бас для записываемого сейчас нового альбома <STRONG>"Universal Evil" </STRONG>запишут <STRONG>Tchort</STRONG> и <STRONG>Nattefrost</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 04.01.2009 news CARPATHIAN FOREST работают над материалом
+
+<P>Норвежцы <STRONG>CARPATHIAN FOREST</STRONG> сочиняют песни для новой пластинки и ищут лэйбл для её издания. Коллектив не давал концертов с 2006 года, в 2009 году <STRONG>CARPATHIAN FOREST</STRONG> всё-таки вытупят несколько раз. Одно из выступлений состоится на фестивале<STRONG> Inferno</STRONG> в Осло в начале апреля. Так как у группы нет нового альбома, который нужно раскручивать, black-metal'исты отыграют совершенно оригинальный сэт, некоторые песни из которого никогда не исполнялись вживую. Это шоу будет отснято для будущего DVD.</P>
+Автор: Vit Belov
+
+### 22.05.2009 news Tchort покинул CARPATHIAN FOREST
+
+<P>Гитарист<STRONG> Tchort</STRONG> покинул<STRONG> CARPATHIAN FOREST</STRONG>. В своём заявлении он сообщил, что начал новую группу с отличными музыкантами.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

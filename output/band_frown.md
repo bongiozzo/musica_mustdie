@@ -29,6 +29,21 @@ Alex-The-Rock-Lobster (Layout & The Rest)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.11.2002 reviews Тоска зелёная
+
+<p>Вполне вероятно у меня отсутствует чувство юмора, музыкальный вкус и... лобные доли мозга. Но... Понять группу, которая сначала оформляет альбом в стиле Type 'O Negative, затем называет его тоже как-то очень похоже и в конце концов добросовестно воет все 45 минут, я не могу. Зачем? На хохму это не похоже, а до полноценного творчества не дотягивает. Не оригинально и скучно. Может у ребят мужские достоинства больше, чем у Пита Стила? Тогда стоит подождать съёмок в каком-нибудь подпольном порнографическом журнале... А пока три с минусом, именно, за этот глупый плагиат.</p>
+
+Автор: Vit Belov
+
+### 23.11.2002 reviews Melancholy is green.
+
+<p>Quite probably I do not have sense of humour, musical taste and... frontal share of a brain. But... To understand group, which at first makes design of an album in style of Type ' O Negative, then names it too as very similar and eventually honesty shout all 45 minutes, I can not. What for? On joke it is not similar, and before high-grade creativity does not hold out. Not originally and boringly. Can at the guys man's advantages more, than Pete Steel? Then it is necessary to wait of shootings in any underground porno magazine... For now three with a minus, for this silly plagiat.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

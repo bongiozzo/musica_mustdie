@@ -122,6 +122,21 @@ Produced by Bruce Botnick and the Doors
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.07.2002 news Еще один концерт DOORS...
+
+<p>Вокалист THE CULT - Ian Astbury примет участие в Сентябрьском концерте THE DOORS с оставшимися оригинальными участниками — Ray Manzerek, Robby Krieger и John Densmore. Помимо Йэна DOORS выступали в прошлом году на шоу "VH1 Storytellers" со: Scott Weiland (STONE TEMPLE PILOTS), Scott Stapp (CREED), Perry Farrell (JANE'S ADDICTION), Pat Monaghan (TRAIN) и Travis Meeks (DAYS OF THE NEW). Это будет второй концерт группы за последние 30 лет. <BR><BR> Сейчас Робби, Рэй и Джон записывают новый материал планируют записать альбом в 2003. За ним последует Американский и Европейский туры...</p>
+
+Автор: Yermola
+
+### 09.07.2002 news THE CULT&#39;s IAN ASTBURY To Perform With THE DOORS ...
+
+<p>THE CULT's Ian Astbury will perform with the surviving members of THE DOORS—Ray Manzerek, Robby Krieger and John Densmore—on September 7th at the California Motor Speedway, just outside L.A. County, according to Undercover. <BR><BR> At this stage it is planned that Densmore will be part of the show although THE DOORS have advised fans he is not in the best of health and they will have to decide closer to the date if he is capable of performing. In the meantime, they are rehearsing with an alternate drummer just in case.<BR><BR> Astbury will perform most of the songs in the set but there are also a number of guest vocalists who will perform lead on some songs. Although the identities of the other singers have not yet been revealed, THE DOORS performed with STONE TEMPLE PILOTS' Scott Weiland, JANE'S ADDICTION's Perry Farrell, CREED's Scott Stapp, TRAIN's Pat Monaghan, and DAYS OF THE NEW's Travis Meeks on the VH1 Storytellers show a year ago.<BR><BR> The only two times THE DOORS have performed in the last 30 years were for their the rock and roll hall of fame induction and the aforementioned Storytellers special. The band's last concert was in 1972.<BR><BR> The one off show will be used to evaluate the next move forward. Already Robby, Ray and John are writing new material and plan to record a new album next year. They also plan a full US and European tour in 2003.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

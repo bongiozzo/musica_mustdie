@@ -123,6 +123,33 @@ Guest Backing Vocals by Philip Anselmo(PANTERA)
 
 * C группой "Agoraphobic Nosebleed" Scott Hull
 
+## Публикации
+
+### 25.12.2001 news Anal Cunt распались...
+
+<p>Рухнул последний оплот бескомпромиссного тру-грайнда. После концерта 21-го декабря в Fitchburg, Massachusetts "Anal Cunt" решили разойтись. Как говорится в заявлении команды "... больше не будет записей, концертов, 15-ти летней годовщины, ничего. Единственная причина для распада это скука...". Если у вас есть вопросы к участникам команды - пишите: gestapohq@hotmail.com - гитарист Josh Martin, timmorseisgay@hotmail.com - вокалист Seth Putnam.</p>
+
+Автор: Yermola
+
+### 30.12.2010 news ANAL CUNT возвращаются с новым альбомом
+
+<P><STRONG>ANAL CUNT</STRONG>&nbsp;возвращаются с новым альбомом! Диск, получивший название&nbsp;<STRONG>"Fuckin' A"</STRONG>, выйдет 11 января 2011.&nbsp;&nbsp;<STRONG>"Fuckin' A"</STRONG> будет распространяться через лейблы<STRONG> Patac</STRONG> в С.Ш.А. и <B itxtvisited="1">Trendkill Entertainment</B> в Европе, и сперва будет доступен&nbsp;только&nbsp;на CD.&nbsp;Весной планируется выпустить расширенную версию альбома на виниле.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17988.jpg" width=300 height=300>Трек-лист <STRONG>"Fuckin' A"</STRONG>:</P>
+<P>01. <B itxtvisited="1">Fuck Yeah</B><BR itxtvisited="1">02. <B itxtvisited="1">Crankin' My Bands Demo On A Box At The Beach</B><BR itxtvisited="1">03. <B itxtvisited="1">Loudest Stereo</B><BR itxtvisited="1">04. <B itxtvisited="1">Kickin' Your Ass And Fuckin' Your Bitch</B><BR itxtvisited="1">05. <B itxtvisited="1">Hot Girls On The Road</B><BR itxtvisited="1">06. <B itxtvisited="1">Whiskey, Coke And Sluts</B><BR itxtvisited="1">07. <B itxtvisited="1">All I Give A Fuck About Is Sex</B><BR itxtvisited="1">08. <B itxtvisited="1">I'm Gonna Give You AIDS</B><BR itxtvisited="1">09. <B itxtvisited="1">Yay! It's Pink!</B><BR itxtvisited="1">10. <B itxtvisited="1">I Wish My Dealer Was Open</B><BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">ANAL CUNT</B> это:</P><B itxtvisited="1"></B>
+<P><B itxtvisited="1">Seth Putnam</B> - вокал, гитара<BR itxtvisited="1"><B itxtvisited="1">Tim Morse</B> - ударные</P>
+Автор: Headcrusher
+
+### 13.06.2011 news Умер Seth Putnam
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.06/19650.jpg" width=216 height=307>В субботу, 11 июня от сердечного приступа умер<STRONG>&nbsp;Seth Putnam - лидер&nbsp;&nbsp;ANAL CUNT</STRONG>.<STRONG> </STRONG>Это подтвердил в своём твиттере<STRONG>&nbsp;</STRONG>журналист <B>Kim Kelly</B>&nbsp;из компании&nbsp;<B>Catharsis PR</B>. Сету было 43 года.</P>
+<P>Комментарии&nbsp;<B>Kelly</B> в его персональном блоге: </P>
+<P><EM>"Да, это правда. <B>Seth Putnam</B>, один из самых скандальных музыкантов, которых когда-либо видела экстремальная сцена, <STRONG>GG Allin</STRONG> от грайндкора,&nbsp;умер от&nbsp;сердечного приступа.</EM></P>
+<P><EM>"Я занимался рекламой последнего альбома <B>ANAL CUNT</B>&nbsp;"<B>Fuckin' A"</B> и <B>Seth </B>всегда с радостью&nbsp;отзывался на любую мою просьбу. Перед его смертью группа работала над новым альбомом, так что есть шансы, что эпитафия к его музыкальной карьере ещё не написана.</EM></P>
+<P><EM>"Я хочу напомнить всем, что независимо от того, насколько возмутительный и спорный была его музыкальная карьера, Сет был&nbsp; человеком с друзьями и семьей, которые любили его. Я надеюсь, что Интернет будет помнить об этом. Это очень печальное и тяжелое время для тех, кто знал его и последней вещью, которую они должны видеть, это излияния ненависти. Человек жил и умер по своим собственным правилам; уважайте его, хотя бы,&nbsp;за это."</EM></P>
+<P>Путнэм был известен за свой зверский вокал и лирику, которая шокировала, оскорбляла или содержала нездоровый юмор. В течение своей карьеры Путнэм был вовлечен в качестве гостя&nbsp;в различные проекты, в том числе записи бэк-вокала для альбома <STRONG>"The Great Southern Trendkill"</STRONG>&nbsp;группы <STRONG>PANTERA</STRONG>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Anal Cunt что имелась введу?

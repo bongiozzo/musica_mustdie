@@ -146,6 +146,146 @@ Alexander Dietz - guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.03.2007 news HEAVEN SHALL BURN в Москве
+
+<P><IMG height=566 alt="" hspace=0 src="/images/shows_rus/2007.04/11291.jpg" width=400 align=right border=5>22 Апреля, Москва, клуб «Тabula Rasa», 19:00.<BR>Heaven Shall Burn (Germany) <BR>BREAKWAR, REANIMA.<BR>Билеты: 400 р. – предпродажа, в день концерта – 500р.<BR>Концерт проходит в рамках акции «Сквот Проджект».<BR>Генеральный спонсор – сеть магазинов «Сквот».<BR>Генеральная информационная поддержка – канал А1.</P>
+Автор: Vit Belov
+
+### 19.03.2008 reviews Немцы не разочаровывают и не удивляют
+
+<P>Пятый полноформатный альбом немцев HEAVEN SHALL BURN продолжает традиции, заложенные на предыдущих пластинках. Брутальная смесь thrash и death-metal с небольшой примесью hardcore. О HEAVEN SHALL BURN уже можно говорить, как о надежде жанра.</P>
+<P>Эта группа уже достигла некоторого статуса не только у себя на Родине, но и в других странах. Не даром HSB занимаются на Century Media. В последний год и в России вышло сразу три их альбома, включая разнообразные переиздания, “Iconoclast” – четвёртый, доступный у нас, диск. Нельзя сказать, что этот альбом станет откровением для поклонников группы, всё это они уже слышали. Мясное звучание, качовые риффы, незамысловатые мелодии, не сбивающие с ритма, меланхоличные проигрыши. Думается, HEAVEN SHALL BURN из тех групп, у которых любимым для потребителя становится первый прослушанный диск. Для меня это предыдущий альбом “Deaf To Our Prayers”. Найти что-то более интересное в творчестве HSB я не смог, хотя, если быть честным, и новый альбом очень не плох. Выделяется кавер на песню EDGE OF SANITY “Black Tears”, но это такой хит, который и должен выделяться. Помнится, и у ETERNAL TEARS OF SORROW, которые играли этот трэк, он выделялся. С отрицательной стороны отмечу оформление “Iconoclast”, какие-то злобные комиксы, которые, к сожалению, набирают популярность и у тяжёлых групп, новый IN FLAMES оформлен в таком же духе.</P>
+<P>Поклонникам тяжёлого metalcore рекомендую, забоя и атмосферы здесь хватает. Но в остальном пластинка не выходит за рамки качества, достигнутого группой на предыдущих пластинках.</P>
+Автор: Vit Belov
+
+### 31.07.2008 news HEAVEN SHALL BURN снимут DVD
+
+<P>12 сентября немцы <STRONG>HEAVEN SHALL BURN</STRONG> отснимут своё юбилейное шоу, посвящённое 10-летию коллектива, для грядущего DVD. Концерт состоится в Вене и будет называться "<STRONG>1000 Years Of HSB</STRONG>". </P>
+Автор: Vit Belov
+
+### 14.10.2008 news HEAVEN SHALL BURN в Москве (ФОТО)
+
+Немцы <STRONG>HEAVEN SHALL BURN</STRONG> дали концерт в клубе <STRONG>Plan B</STRONG> 10 октября. Фоторепортаж с этого мероприятия можно посмотреть по этому адресу: <A href="/ru/galleries/1/262/">http://musica.mustdie.ru/ru/galleries/1/262/</A>
+Автор: Vit Belov
+
+### 27.02.2009 news HEAVEN SHALL BURN готовят DVD
+
+<P>12 сентября в Вене <STRONG>HEAVEN SHALL BURN</STRONG> отсняли концерт для грядущего DVD. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 13.03.2009 news Иконоборчество 2
+
+<P>Немцы <STRONG>HEAVEN SHALL BURN</STRONG> назвали свой дебютный DVD. Релиз получил название созвучное с заголовком последнего альбома - <STRONG>"Bildersturm – Iconoclast II (The Visual Resistance)".</STRONG></P>
+Автор: Vit Belov
+
+### 08.04.2009 news HEAVEN SHALL BURN сняли кавер EDGE OF SANITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>HEAVEN SHALL BURN</STRONG> на кавер-версию песни <STRONG>EDGE OF SANITY</STRONG> "<STRONG>Black Tears</STRONG>" можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=55145867">Heaven Shall Burn - Black Tears [NEW DVD OUT: MAY (EU)/June(US)]</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=55145867,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=55145867,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.06.2009 news HEAVEN SHALL BURN попали в чарты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный DVD <STRONG>HEAVEN SHALL BURN</STRONG> <STRONG>"Bildersturm – Iconoclast II (The Visual Resistance)" </STRONG>попал в чарты видео в Германии и Австрии. При этом в Германии группа стартовала на третьем месте, уступив только<STRONG> IRON MAIDEN</STRONG> и <STRONG>ERIC CLAPTON</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 07.04.2010 news Новый альбом HEAVEN SHALL BURN
+
+<P>Новый альбом <STRONG>HEAVEN SHALL BURN</STRONG> <STRONG>"Invictus" </STRONG>выходит 24 мая на <STRONG>Century Media</STRONG>. Пластинка была записана в студии <STRONG>Tue Madsen Antfarm</STRONG>. Трэк-лист:</P>
+<P>01. <B>Intro</B><BR>02. <B>The Omen</B><BR>03. <B>Combat</B><BR>04. <B>I Was I Am I Shall Be</B><BR>05. <B>Buried In Forgotten Grounds</B><BR>06. <B>Sevastopoll</B><BR>07. <B>The Lie You Bleed For</B><BR>08. <B>Return To Sanity</B><BR>09. <B>Against Bridge Burners</B><BR>10. <B>Of Forsaken Poets</B><BR>11. <B>Given In Death</B><BR>12. <B>Outro</B></P>
+Автор: Vit Belov
+
+### 05.06.2010 news HEAVEN SHALL BURN поставили рекорд
+
+<P>Новый альбом немцев <STRONG>HEAVEN SHALL BURN "Invictus"</STRONG> попал в официальные чарты Германии на девятое место, тем самым установив новый рекорд для своего лэйбла <STRONG>Century Media</STRONG>. Этот релиз знаменитого лэйбла стал первым, который попал в немецкий Top 10. </P>
+<P>Группа сообщает, что находится в полнейшем экстазе от этого события. Германия не единственная страна, где популярны <STRONG>HEAVEN SHALL BURN</STRONG>. Их новейший альбом попал в чарты также в Австрии и Швейцарии. </P>
+<P>"<STRONG>Invictus</STRONG>" был издан в России <STRONG>Mazzar Records</STRONG> в формате digipack, который легко можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+### 30.06.2010 reviews Небеса всё ещё не горят, но сгорят обязательно
+
+<P>Бывает случается так, что не мы являемся причиной каких-либо событий, но события меняют нашу судьбу. Немецкая группа HEAVEN SHALL BURN яркий пример подобного развития. До поры до времени музыканты этого коллектива и не помышляли о широкой известности. Стиль, в котором они играли, на стыке melodic death-metal и thrash-metal, хоть и вызывал уважение у фэнов тяжёлой музыки, но никак не являлся флагманом направления. Ничего не изменило даже подписание контракта с крупным «значком» Century Media, HSB оставались в немецком UG. Но вдруг… Один умный человек переименовал подобный death-thrash в metalcore, другой умный человек раскрутил его в новой обёртке до заоблачных высот. И вот HEAVEN SHALL BURN штурмуют чарты в Германии, и о них знают уже во всём мире.</P>
+<P>Музыка же группы не претерпела особых изменений. Это всё тот же death-thrash metal с лёгким уклоном в hardcore с достаточно крепкими мелодиями и отсутствием хитов. Под такую музыку хорошо отрываться на концерте, но не стоит петь её в ванной комнате. Новый альбом HEAVEN SHALL BURN мало отличается от своего предшественника. Ровные вещи с минимумом изысков. Например, в одной песне к исполнению подключается Sabine Weniger из другой популярной немецкой группы DEADLOCK. Девушка старается, но её песня явно не является лучшей на альбоме. Между трэками постоянно звучит какая-то атмосферная мелодия, целью которой безусловно является создание благоприятного контраста для основного забоя. Этой цели HEAVEN SHALL BURN достичь удаётся, каждый новый трэк поражает как гром небесный. Слушатель точно не отвлечётся и не заснёт.</P>
+<P>В общем и целом, крепкий средний альбом, успех которого является загадкой для меня. Ведь ничего, в сущности, в музыке HEAVEN SHALL BURN не меняется. Меняется только упаковка, обложки и ярлыки, но порой даже такой мелочи достаточно, чтобы сдвинуть камень с мёртвой точки.</P>
+Автор: Vit Belov
+
+### 27.07.2010 news Видео-клип HEAVEN SHALL BURN
+
+<P>Мультипликационный клип <STRONG>HEAVEN SHALL BURN</STRONG> на песню <STRONG>"Combat" </STRONG>можно посмотреть ниже. Ролик был создан финской студией <STRONG>Animaatiokopla.</STRONG></P>
+<P>Песня взята с последнего альбома немцев <STRONG>"Invictus"</STRONG>, который вышел на <STRONG>Century Media/Mazzar</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2jCd-KTTR_I&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2jCd-KTTR_I&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 16.07.2016 news Трейлер нового HEAVEN SHALL BURN
+
+<p>Ниже можно увидеть трейлер нового альбома <strong>HEAVEN SHALL BURN</strong>, из которого, видимо, следует, что он будет называться "<strong>Wanderer</strong>" и выйдет 16 сентября на <strong>Century Media</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/PIq_VwmruAw" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 16.07.2016 news Trailer of new HEAVEN SHALL BURN&#39;s album
+
+<p>Below you can see the trailer for the new album, <strong>HEAVEN SHALL BURN</strong>, from which, apparently, it follows that it will be called "<strong>The Wanderer</strong>" and will be released September, 16 on <strong>Century Media</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/PIq_VwmruAw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 20.07.2016 news Подробности о новом альбоме HEAVEN SHALL BURN и новая песня
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>HEAVEN SHALL BURN</strong> выпускают новый альбом "<strong>Wanderer</strong>" 16 сентября на<strong> Century Media</strong>. Основной идеей альбома стала мысль об отдохновении от повсеместных проблем современной жизни. Для этого группа послала своего друга фотографа <strong>Christian Thiele</strong> на поиски умиротворяющих пейзажей, которые мы увидим и в буклете и в лирик-видео с новой песней "<strong>Downshifter</strong>" ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Альбом был снова спродюсирован гитаристом группы <strong>Alexander Dietz,</strong> со-продюсер другой гитарист <strong>Maik Weichert</strong>. Барабаны были записаны в <strong>Chameleon Studios</strong> в Гамбурге, остальной альбом был записан в собственной студии Dietz <strong>Chemical Burns</strong>. Сведение и мастеринг сделал<strong> Tue Madsen</strong> в <strong>Antfarm Studios</strong>.</font>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>1. The Loss Of Fury<br>2. Bring The War Home<br>3. Passage Of The Crane<br>4. They Shall Not Pass<br>5. Downshifter<br>6. Prey To God<br>7. Agent Orange (not available on the standard jewel-case and standard digital album)<br>8. My Heart Is My Compass<br>9. Save Me<br>10. Corium<br>11. Extermination Order<br>12. A River Of Crimson<br>13. The Cry Of Mankind</p><p>Будут доступны следующие форматы:</p><p>Ltd. Deluxe 3CD Artbook<br>Ltd. 2CD Mediabook<br>Ltd. 2CD Digipak (North America only)<br>Standard CD Jewelcase<br>Gatefold 2LP+CD<br>Digital Album (Deluxe Edition)<br>Digital Album<br>The Ltd. 2CD Mediabook and Ltd. 2CD Digipak (North America only) both come with an extended 40-pages booklet.</p><p>На бонус-диск "<strong>Too Good To Steal From</strong>" попали все кавер-версии, записанные группы с момента подписания контракта с Century Media в 2003 году. </p><p>&nbsp;<center><img width="480" height="480" src="/images/news_rus/2016.07/29623.jpg" border="0"></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/Jqpgk3ekodo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 20.07.2016 news HEAVEN SHALL BURN – announce release of “Wanderer” September 19, 2016
+
+<p>“<em>He seeks distance to change his perspective<br>In freedom and seclusion he arranges his thoughts<br>Strength and power he regains in nature’s shielding bosom<br>In vivid silence and familiar remoteness he can listen to his heart<br>Yet he experienced that from no wayfare you return the same<br>He knows that nothing will change until you change yourself<br>And therefore every revolutionary is a wanderer</em>.”</p><p><strong>HEAVEN SHALL BURN</strong> open the visually stunning booklet for their eighth studio album, “<strong>Wanderer</strong>”, with a quote which sums up the overall idea of the album: During confusing and troubled times you occasionally need to retreat from all the madness that surrounds you. This allows you to gain new perspective, energy and focus, so that you can attack change with a refreshed and strengthened mindset. Modern life has become so complex that sometimes choosing simplicity and solitude can give you the strength to conquer the chaos around and within you. “Wanderer” isn’t merely offering interesting historical and political stories, but also serves as a travelogue of a journey into one’s inner self. A search for a safe haven for our daily stress as well as an outlet for negative feelings and aggression. For its breathtaking artwork, HEAVEN SHALL BURN sent their friend and photographer <strong>Christian Thiele</strong> on a quest and asked him to capture the beauty of mountains, plains and shorelines. Once again the album was produced by guitarist <strong>Alexander Dietz</strong> and co-produced by guitarist <strong>Maik Weichert</strong>. While the drums were tracked by <strong>Eike Freese</strong> at <strong>Chameleon Studios</strong> in Hamburg, the rest of the album was recorded at Dietz’s own <strong>Chemical Burn Studios</strong> in Bad Kцsen. <strong>Tue Madsen</strong> mixed and mastered “Wanderer” at Chemical Burn Studios as well as at his <strong>Antfarm Studios</strong> in Aarhus, Denmark.</p><p>The track listing of “Wanderer” is as follows:</p><p>1. The Loss Of Fury<br>2. Bring The War Home<br>3. Passage Of The Crane<br>4. They Shall Not Pass<br>5. Downshifter<br>6. Prey To God<br>7. Agent Orange (not available on the standard jewel-case and standard digital album)<br>8. My Heart Is My Compass<br>9. Save Me<br>10. Corium<br>11. Extermination Order<br>12. A River Of Crimson<br>13. The Cry Of Mankind</p><p>The following formats will be available:</p><p>Ltd. Deluxe 3CD Artbook<br>Ltd. 2CD Mediabook<br>Ltd. 2CD Digipak (North America only)<br>Standard CD Jewelcase<br>Gatefold 2LP+CD<br>Digital Album (Deluxe Edition)<br>Digital Album<br>The Ltd. 2CD Mediabook and Ltd. 2CD Digipak (North America only) both come with an extended 40-pages booklet.</p><p>For the “<strong>Too Good To Steal From</strong>” bonus CD the band compiled all cover versions they had ever recorded since initially signing with Century Media Records in 2003.</p><p>The luxurious coffee table Artbook comes with an extended 60-page booklet as well as the ”Too Good To Steal From“ CD. On top of all that, fans get an alternative mix, entitled the “Dark Purity Mix”, of all original songs done by Eike Freese at Chameleon Studios, Hamburg.</p><p>&nbsp;<center><img width="480" height="480" src="/images/news_rus/2016.07/29623.jpg" border="0"><p></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/Jqpgk3ekodo" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+### 02.09.2016 news HEAVEN SHALL BURN выпустили лирик-видео
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Немцы<strong> HEAVEN SHALL BURN</strong> выпустили новый трек "<strong>Bring The War Home</strong>" в лирик-видео. Трек войдёт в новый альбом коллектива "<strong>Wanderer</strong>", который выйдет 16 сентября.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Ed5CqrVS7ok" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.09.2016 news HEAVEN SHALL BURN – launch lyric video for “Bring The War Home”
+
+<p><strong>HEAVEN SHALL BURN</strong> have just launched <strong>“Bring The War Home”</strong>, a band-new track and lyric video taken from their upcoming album, “<strong>Wanderer</strong>”, which is due for a worldwide release on September 16th, 2016.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Ed5CqrVS7ok" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 16.09.2016 news Новый клип HEAVEN SHALL BURN
+
+Новое видео немцев <strong>HEAVEN SHALL BURN</strong> на песню <strong>"Passage Of The Crane"</strong> можно посмотреть ниже. Трек вошёл в только что вышедший альбом группы "<strong>Wanderer".</strong><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/8kLeSi3uXaY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 16.09.2016 news HEAVEN SHALL BURN released new clip
+
+<p>New video of the Germans<strong> HEAVEN SHALL BURN</strong> song "<strong>Passage Of The Crane</strong>" can be viewed below. The track was included in the newly released album "<strong>Wanderer</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/8kLeSi3uXaY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 19.09.2016 reviews HEAVEN SHALL BURN реанимируют melodic death metal
+
+<p>Немцы HEAVEN SHALL BURN являются настоящими звёздами на европейской тяжёлой сцене. Группа ездит в туры хэдлайнером, а в качестве суппорта в Европе у них могут быть такие уважаемые ветераны, как HYPOCRISY или DYING FETUS. Коллектив выпустил несколько альбомов в жанре metalcore, но HEAVEN SHALL BURN никогда далеко не уходили от традиционного death metal звучания.</p><p>Начинали немцы довольно скромно, но уже с третьим альбомом «Antigone” в 2004 году HEAVEN SHALL BURN получили контракт с Century Media, и их карьера устремилась в верх. В тот период самым запоминающимся альбомом стал «Deaf To Our Prayers” - злой death thrash metal без всяких признаков компромиссов. После этого альбома звучание группы несколько облегчилось, но уже к предыдущей работе «VETO” не могло быть никаких претензий в плане тяжести звучания.</p><p>Новая работа «Wanderer” начала раскручиваться музыкантами ещё летом. Первое видео на трек «Downshifter” содержало фотоработы знаменитого фотографа дикой природы, а сам трек представлял из себя нечто атмосферное и расплывчатое. Очень удивили комментарии на YouTube к этому клипу, фэны буквально требовали традиционного melodic death metal от HEAVEN SHALL BURN. Слушая ту песню, я усмехнулся, где трек про горы, а где традиционный melodic death metal? Мой скепсис был разрушен практически сразу после того как «Wanderer” попал в мой проигрыватель.</p><p>Этот альбом — настоящий melodic death metal! При этом группа не зацикливается на стандартных ходах, расцвечивает музыку разными нестандартными для стиля ходами, но при этом всегда HEAVEN SHALL BURN на этом альбоме возвращаются к melodic death metal. Поклонники этого стиля будут в восторге. Здесь нет чистого вокала, здесь нет «коровых» ритмов, это традиционный материал от одной из самых известных и модных групп Европы. В качестве бонуса добавлена знаменитая вещь MY DYING BRIDE “The Cry Of Mankind”, на котором меньше скрипок, но тоже почти нет чистого вокала! Вообще, HEAVEN SHALL BURN всегда выпускали отличные кавер-версии, а музыку, которые слушают ребята, мы все любили очень сильно. Здесь и SODOM ('Agent Orange' ещё один кавер на этом альбоме), и TIAMAT, и BLIND GUARDIAN, и EDGE OF SANITY. Все эти треки собраны на втором диске в лимитированном mediabook от Century Media.</p><p>Отличный альбом. Да, он несколько старомоден, и поклонники metalcore возможно будут недовольны, но HEAVEN SHALL BURN являются тем связующим звеном между прошлым и будущим тяжёлого метала, которые находят возможность предложить молодёжи олдскульную музыку в новой модной обёртке. Надеюсь, и «Wanderer” докажет, что melodic death metal не умер.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

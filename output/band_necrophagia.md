@@ -116,6 +116,84 @@ Shawn Slusarek: drums
 * C группой "Soul Forsaken" Fug
 * C группой "Wurdulak" Fug
 
+## Публикации
+
+### 18.11.2000 news О будущем альбоме Necrophagia...
+
+<p> Ровно год придется ждать выхода нового альбома поклонникам творчества группы Necrophagia. Релиз диска "Ritual Harvest" намечен на начало ноября следующего года.</p>
+
+Автор: Nybras
+
+### 17.04.2001 news Некроновости....
+
+<p>"NECROPHAGIA" наконец-то подписали контракт с "Season Of Mist/Renegade Records". Также произошли изменения состава, теперь в команду входят: Killjoy, Dustin Havnen (басс), Wayne Fabra (барабаны) и Phil Anselmo (собственно Anton Crowley) гитара. В ближайшее время выходит EP/Video/DVD "Cannibal Holocaust". Точная дата выхода "Harvest Ritual" еще не известна, но Killjoy пообещал, что "Это будет самый тяжелый и мрачный релиз всех времен. Мы собираемся задать новый уровень ужасающего и больного гор-металл."</p>
+
+Автор: Yermola
+
+### 17.04.2001 news Necronews...
+
+<p>NECROPHAGIA has inked a deal with Season Of Mist/Renegade Records. Killjoy is joined by Dustin Havnen on bass, Wayne Fabra on drums and Phil Anselmo (formerly Anton Crowley) on guitars. The band will soon be releasing the Cannibal Holocaust EP/Video/DVD. Killjoy says that &#8992;Our upcoming album Harvest Ritual will be our heaviest and darkest release ever! We are going to take everything to a completely new level of horrific-gore drenched metal sickness and depravity."</p>
+
+Автор: Yermola
+
+### 21.12.2001 news Блэк металл из страны суши и харакири...
+
+<p><IMG SRC="/images/bands_rus/2001.12/2185.jpg" ALT="pho" width="175" height="250" hspace="15" vspace="5" border="1" align="left" /> Помимо занятий своим национальным видом спорта "харакири" и употребления суши под рюмочку другую сакэ, настоящие самураи играют еще и блэк-металл. Новый альбом черепашек-ниндзя "Sigh" будет называться "Gavotte Grim" и продолжит психоделическую линию взятую на "Imaginary Sonicscape". Сейчас команда как раз посередине процесса записи о котором фронтмэн Mirai сказал, что это будет "...мощнейший прогресс!". Сам Mirai исполнит обязанности вокалиста и клавишника, а обязанности бассиста исполнит Yasuyuki из Abigail. <BR><BR> Из других новостей, прошлый альбом "Imaginary Sonicscape" будет переиздан на двойном виниле шведской Metal Fortress Entertainment. Также Sigh принимают участие на трибьюте Джона Колтрэйна с вещью "Spiritual". Альбом выйдет на Mainstream Records. Что касается проекта "Enoch", состоящего из Mirai, Necrophagia'вского Killjoy и Фила Ансельмо из "Pantera", дата выхода дебюта пока отложена на неизвестное время. <BR><BR> "Gavotte Grim" выйдет в середине 2002 на Century Media Records. Б-А-А-Н-З-А-А-Й-Й!!!!!!!!!!</p>
+
+Автор: Yermola
+
+### 21.12.2001 news Sigh have given, Gavotte Grim, as the title of the follow-up to Imaginary Sonicscape...
+
+<p><IMG SRC="/images/bands_rus/2001.12/2185.jpg" ALT="pho" width="175" height="250" hspace="15" vspace="5" border="1" align="left" /> Japanese psychedelic black metallers Sigh have given, Gavotte Grim, as the title of the follow-up to Imaginary Sonicscape. <BR><BR> The band are already in the middle of writing for the album and it appears frontman Mirai says it'll be Sigh's "greatest progression yet." If Mirai stays true to his word, the metal world can only wonder what will be on Sigh's sixth studio album. In band related news, Mirai will take over keyboards and vocals, so the band can search for a permanent bassist. It looks like Yasuyuki of Abigail will be the man for the job, but Sigh isn't saying if he's an actual member yet. <BR><BR> In similar news, Sigh's Imaginary Sonicscape will be released on double vinyl on Sweden's Metal Fortress Entertainment. A release date hasn't been set yet. Sigh will also partake on the upcoming John Coltrane tribute, where the band will cover "Spiritual" from Coltrane's Village Vanguard album. The tribute album will be on Mainstream Records. Also, Enoch, featuring Mirai, Necrophagia's Killjoy and Pantera's Phil Anselmo, will not have their debut album happen anytime soon. The split 7" with Necrophagia has also been put on ice. Mirai cites the "current world climate" as reasons for these projects not happening. <BR><BR> Fans of Sigh can expect Gavotte Grim and the John Coltrane tribute album out sometime in mid- to late-2002. Gavotte Grim will be on Century Media Records.</p>
+
+Автор: Yermola
+
+### 07.06.2002 news PHILIP ANSELMO ушел из NECROPHAGIA ....
+
+<p>Вокалист Philip Anselmo ушел из "NECROPHAGIA". Теперь самурайская капелла имеет в своих рядах: Iscariah (ex-IMMORTAL, басс), Frediablo (GORELORD/WURDULAK, гитара), Fug (WURDULAK, гитара) и Mirai Kawashima (SIGH, клавиши). Дополненная главарем Killjoy и барабанщиком Wayne Fabra команда начинает запись очередного творения "The Divine Art Of Torture" для выхода на Season of Mist Records аккурат в праздник Хэлловин. Песни будут такие: <BR><BR> 01. Rue Morgue Disciple<BR> 02. Blaspheme the Body<BR> 03. Tombs Of Uncreation<BR> 04. Flowers of Flesh and Blood<BR> 05. Faceless</p>
+
+Автор: Yermola
+
+### 07.06.2002 news NECROPHAGIA Part With PHILIP ANSELMO...
+
+<p>NECROPHAGIA have parted ways with PANTERA frontman Philip Anselmo and have revamped their line-up with the addition of Iscariah (ex-IMMORTAL, bass), Frediablo (GORELORD/WURDULAK, guitars), Fug (WURDULAK, guitars), and Mirai Kawashima (SIGH, keyboards). The band—completed by mainman Killjoy and drummer Wayne Fabra—will shortly begin recording their new album, The Divine Art Of Torture, for a Halloween released through Season of Mist Records. Among the tracks set to appear on the forthcoming CD are: <BR><BR> 01. Rue Morgue Disciple<BR> 02. Blaspheme the Body<BR> 03. Tombs Of Uncreation<BR> 04. Flowers of Flesh and Blood<BR> 05. Faceless<BR><BR> Killjoy describes the new material as "very heavy, violent and horror-filled. It is in many ways a homage to Brazilian director Jose Mojica Marins, aka Coffin Joe. His films are extremely blasphemous and his visions directly influenced the mood for writing The Divine Art Of Torture. NECROPHAGIA also plans to work with Mr. Marins on a video, as well as appearing on some new kult horror/gore DVDs which will be announced shortly."</p>
+
+Автор: Yermola
+
+### 09.11.2002 news NECROPHAGIA news
+
+<p>NECROPHAGIA — featuring mainman Killjoy, drummer Wayne Fabra Iscariah (ex-IMMORTAL, bass), Frediablo (GORELORD/WURDULAK, guitars), Fug (WURDULAK, guitars), and Mirai Kawashima (SIGH, keyboards) — have finalized the track listing for their new album, "The Divine Art of Torture", due in February 2003 through Season Of Mist Records. It is as follows (in no particular order):</p>
+<p> 01. Ze Do Caixao <BR> 02. Upon Frayed Lips of Silence <BR> 03. Blaspheme the Body <BR> 04. Parasite Eve <BR> 05. The Sick Room <BR> 06. Flowers of Flesh & Blood<BR> 07. Conjuring The Unamable <BR> 08. Maim Attraction<BR> 09. The Divine Art of Torture</p>
+
+Автор: Dimas
+
+### 09.11.2002 news Новый альбом NECROPHAGIA
+
+<p>NECROPHAGIA, в состав которой входят вокалист Killjoy, ударник Wayne Fabra, басист Iscariah (ex-IMMORTAL), гитаристы Frediablo (GORELORD/WURDULAK) и Fug (WURDULAK), клавишник Mirai Kawashima (SIGH) закончили запись своего нового альбома под названием "The Divine Art of Torture". Выход альбома запланирован на февраль 2003 года на Season Of Mist Records. В альбом войдут следующие вещи:</p>
+<p> 01. Ze Do Caixao <BR> 02. Upon Frayed Lips of Silence <BR> 03. Blaspheme the Body <BR> 04. Parasite Eve <BR> 05. The Sick Room<BR> 06. Flowers of Flesh & Blood <BR> 07. Conjuring The Unamable <BR> 08. Maim Attraction <BR> 09. The Divine Art of Torture</p>
+
+Автор: Dimas
+
+### 11.03.2003 reviews Божественное искусство пытки
+
+<p>Целых пять лет металлический мир с вожделением ждал нового альбома этой американской культовой группы играющей horror-gore-death-black metal уже двадцать лет. В состав команды на данный момент входят ее лидер Killjoy отвечающий за рвотоподобные изрыгания и вопли подобным тем, что издают мертвецы, мастурбатор адских струн и собиратель сатанинских сказаний Frediablo (GORELORD/WURDULAK), дегустатор козлиной крови и расколотых копыт Iscariah (ex-IMMORTAL), некромантик-самоубийца Fug (WURDULAK), великий инквизитор - повелитель боли и пыток Mirai Kawashima (SIGH) и танцующий на могильном камне и в ведьмовском огне Titta Tani. Всем им вместе удалось создать одно из самых страшных, тяжелых и мрачных творений, когда-либо записанного кем-либо. Тяжелейший бритвенный гитарный звук, жуткие звуковые гаммы и спецэффекты, громоподобные двойные бочки, апокалиптические клавишные и раздирающие душу вокализации пугают и ужасают. Но все это сделано на высоком техническом уровне и с особой притягивающей красотой. Такая музыка очень неплохо бы подошла в качестве звуковой дорожки к какому-нибудь действительно страшному фильму ужасов. Бесноватая, невменяемая и больная музыка полная шизоидных настроений, но тем не менее интересная и пробуждающая желание переслушать ее еще раз. Если вы готовы к психоделичному терроризированию вашего мозга, то обязательно послушайте это творение.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 28.05.2003 news NECROPHAGIA в действии
+
+<p>NECROPHAGIA планирует 31 октября (на праздник Halloween) выпуск нового мини-альбома "Goblins Be Thine" через Coffin Records. А чуть позднее, выйдет DVD группы "Nightmare Scenarios" через Red Stream Records.</p>
+
+Автор: Dimas
+
+### 16.02.2006 reviews Некроатмосфера от Киллджоя и Со - всем бояться!!!
+
+<P>Често признаюсь, что никогда я не был особым фанатом мрачного музыкального работоголика Киллджоя, который и возглавляет формацию Necrophagia, посему перед прослушиванием их новейшего творения "Harvest Ritual, Volume 1" уже настроился на пессимистический лад. И зря! Ибо альбом получился если и не шикарным, то очень хорошим как минимум. Самое главное, что удалось Киллджою и Со. - это плюнуть на все стандарты и условности дэт-метала. В частности, добавились клавишные (Мираи Кавашима), которые в основном и создают мрачную угнетающую атмосферу, в которой есть порой что-то блэковое. Некоторые вставки наводят на мысли о хоррор-фильмах. А демонический скриминг самого Киллджоя отнюдь не прибавляет музыке позитивности. Отличная работа гитаристов зачастую ближе по стилю к хэви-металу или даже к среднетемповому трэшу и думу, нежели, скажем,&nbsp;к дэту. Только вот плоховато слышно бас и в паре мест мне не очень понравилось, как звучат ударные, но это уже скорее мелкие придирки. Притом песни получились весьма разнообразными, но без каких-либо беспомощных метаний между стилями (сравните, к примеру, крышесносящие 'Dead Skin Slave', 'Return To Texas' или 'Unearthed' с мелодичной, но по-ледяному жуткой 'Akumu'). В некоторых вещах&nbsp;мне почему-то вспомнились американцы Acheron. Среди гостей на альбоме замечен Joey Jordison из Slipknot (на 'Stitch Her Further', он же соавтор этой песни). Пожалуй, это пока самая сильная работа Киллджоя на сегодняшний день. Что ж, судя по названию альбома, будем ждать часть вторую - надеюсь, она получится ничуть не хуже.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

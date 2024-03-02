@@ -12,6 +12,31 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.10.2008 reviews Зачем нам вторичный клон Доро?
+
+<P>Самый главный плюс американского коллектива под странным названием Hydrogyn - это фронтвуменша Julie Westlake (а рулит в группе вообще всем её супруг Jeff Westlake) с то ли четвертым, то ли пятым размером бюста. В остальном же на третьем (речь уже не про бюст) студийнике под названием "Deadly Passions" вы не найдете ничего интересного. Довольно стандартный, если не сказать примитивный, хард-энд-хэви, притом с явным закосом вокалистки под Доро или Ли Аарон. Первая пара песен слушается неплохо, потом становится просто скучно. Хиты у Hydrogyn не получаются никак, ну а ВИА с женским вокалом мы перевидали и переслушали немало, так что этим никого не удивишь. К сожалению, больше про этот релиз сказать просто нечего. "Deadly Passions" (кстати, опять весь буклет состоит из одного листочка) можно рекомендовать исключительно собирателям альбомов тяжелых команд с женским вокалом. Все остальные могут спокойно проходить мимо. Добавлю лишь, что на альбоме есть кавер хита Alanis Morissette 'You Oughta Know' (с альбома "Jagged Little Pill" 1995-го года).</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 29.01.2009 news Новое видео HYDROGYN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип "канадской группы с женским вокалом"<STRONG> HYDROGYN</STRONG> на песню <STRONG>"Candles Light Your Face" </STRONG>можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/gIsxW4ZqH7U&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/gIsxW4ZqH7U&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.11.2010 news Продажи в США на этой неделе
+
+<P>Появились результаты в чартах<STRONG> Billboard</STRONG> на этой неделе в США. Наиболее успешной пластинкой в тяжёлом жанре стал новый альбом <STRONG>MONSTER MAGNET</STRONG> <STRONG>"Mastermind", </STRONG>попавший на 165-ое место с 3000 экземпляров. Другие представители металической музыки не могут похвастаться и подобным. Например, вышедший только сейчас в США новый альбом <STRONG>THERION</STRONG> <STRONG>"Sitra Ahra" </STRONG>реализовался только в 800 копиях. Возвращение <STRONG>FORBIDDEN</STRONG> <STRONG>"Omega Wave"&nbsp;</STRONG>в 950 копиях, а альбом <STRONG>HYDROGYN</STRONG> <STRONG>"Judgement" </STRONG>в 1500 экземплярах. </P>
+<P>Не смог совершить прорыв и новый гитарист <STRONG>OZZY OSBOURNE Gus G.</STRONG>, со своей группой <STRONG>FIREWIND</STRONG> и новым альбомом <STRONG>"Days Of Defiance" </STRONG>в первую неделю он смог продать в США лишь 700 пластинок.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -243,6 +243,1399 @@ Limited Edition slipcase will come with a bonus:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.11.1999 news 
+
+<p>Destruction войдут в студию Abyss в ноябре, чтобы записать новый альбом вместе с продюсером Питером Тагтгреном и вокалистом Марселем Шмирмером.</p>
+
+Автор: Vit Belov
+
+### 22.02.2001 news DESTRUCTION - Back To Hell...
+
+<p>DESTRUCTION работают над новым материалом для того чтобы в Апреле засесть в Abyss Studios. Продюссером по доброй традиции опять будет Питер Тэгтгрен. Так же в ближайшее время команда собирается отыграть несколько Южно-Американских и Мексиканских концертов.</p>
+
+Автор: Yermola
+
+### 22.02.2001 news DESTRUCTION - Back To Hell
+
+<p>DESTRUCTION are currently working on new material in preparation for entering Abyss Studios in April. Peter Tдgtgren will once again produce. In the mean time, the band will play some South American and Mexican dates in late March.</p>
+
+Автор: Yermola
+
+### 02.05.2001 news DIMMU BORGIR в Риге!
+
+<p> 21 мая 2001 года в Риге (Латвия) состоится концерт норвежских блэкстеров DIMMU BORGIR. Поддержка ожидается от возвратившихся в прошлом году к металлической жизни немцев из DESTRUCTION и лучшей латвийской команды NEGLECTED FIELDS. Концерт состоится в рижской киностудии, где год назад отыграли THERION со своей великолепной программой. Начало концерта в 19:00.</p>
+<p></p>
+
+Автор: Dimas
+
+### 17.05.2001 news Закончена запись нового альбома Destruction.
+
+<p> Запись нового убийственного полноформатника под незатейливым рабочим названием "Destruction" завершена в Abyss Studio в Швеции. Скорее всего, спродюссированный Питером Тагтгреном альбом выйдет 27 августа, сразу после окончания тура с Kreator.</p>
+
+Автор: Morsus
+
+### 17.05.2001 news The recording for new album of Destruction is finished.
+
+<p> The recording for new Killer-Longplayer (tentatively titled "Destruction") has been completed in the Abyss Studio in Sweden. Most probably the Tagtgren-produced album will be out on August 27, shortly after that they will go on tour with Kreator.</p>
+
+Автор: Morsus
+
+### 05.06.2001 news Антихрист из Германии...
+
+<p>Отрада германского трэша "DESTRUCTION" опубликовали название нового альбома - "The Antichrist". Релиз выйдет в Европе 27 августа через Nuclear Blast Records. Также команда примет участие в Graspop Festival в Бельгии и With Full Force Festival в Германии.</p>
+
+Автор: Yermola
+
+### 05.06.2001 news DESTRUCTION&#39;s brand new studio album.....
+
+<p>DESTRUCTION's brand new studio album, The Antichrist, will be released through Nuclear Blast Records in Europe on Monday, August 27th. Like its predecessor, last year's All Hell Breaks Loose, The Antichrist was recorded at Sweden's The Abyss Studios with producer Peter Tagtgren (HYPOCRISY, PAIN). In other DESTRUCTION news, the band have been added to the list of artists performing at the Graspop Festival in Dessel, Belgium on June 22nd (DESTRUCTION goes on at 9:10 PM) and the With Full Force Festival, which takes place on the air field in Roitzschjoera/Leipzig, Germany on June 23rd. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.09.2001 news Как вы судно назовёте, так оно и поплывёт!
+
+<p>Во процессе производства новейшего альбома Destruction "The Antichrist" многие вещи пошли наперекосяк, поставив под угрозу саму дату выпуска альбома. Так картонные коробки для лимитированого издания напечатали коричневым цветом, вместо чёрного, в результате чего пару сотен дисков оказалось перепачкаными. Утверждается, что ровно 666! Плюс вместо трэка "Thrash Till Death", открывающего альбом, первым стал "Dictators Of Cruelty", а футболки оказались с кроваво-красной картинкой вместо цветной. Что и говорить - бес попутал... или работники Nuclear Blast стали позволять себе пропустить рюмочку-другую на рабочем месте.</p>
+
+Автор: Odiumaniac
+
+### 01.10.2001 reviews Пришествие Антихриста
+
+<p>Слушая современный Destruction я пытаюсь понять, зачем вообще им нужно было воссоединяться? Единственный ответ, который я нахожу - люди решили заработать денег! Громкое воссоединение группы, еще более громкая реклама второго после воссоединения альбома The Antichrist. Попытка копировать имидж 80-х с самих себя - теже проклепанные кожанные прикиды, пулеметные ленты, масса огня - выглядит это сегодня как цирк. На задней стороне обложки изображена группа, и какой-то лысый мужик в майке, заляпанной кровью, которого вокалист Destruction режет бензопилой. Видимо этот мужик и есть Антихрист. Иного объяснения я не вижу! Теперь касательно музыки - это все тот же трэш метал, которым всегда славились Destruction. Ничего нового, никакого влияния современной музыки. Это скорее хорошо, чем плохо, старым фэнам понравится, а молодые слушают другие группы, и вряд ли будут слушать Destruction. Единственный минус - звук на альбоме. Запись сделана в самой популярной на сегодня в Европе студии Abyss под руководством Питера Тагтгрена из Hypocrisy. И все бы ничего, только этот звук подходит дэт и блэк группам, но никак не Destruction. В общем и целом альбом неплохой, но почему нельзя было собраться, и спокойно играть музыку, как это делают например Kreator, а надо обязательно строить из себя клоунов...</p>
+
+Автор: Vic Thor
+
+### 23.10.2001 news Разрушения у DESTRUCTION...
+
+<p>Германские супер-трэшеры "DESTRUCTION" расстались с барабанщиком Sven Vormann. По поводу замены фронтмэн Schmier заявил: "....это будет точно не бывший барабанщик Олли...он никогда понастоящему не был в металле...он в BEATLES и джазе..."</p>
+
+Автор: Yermola
+
+### 23.10.2001 news DESTRUCTION are strongly rumored to have parted ways with drummer Sven Vormann...
+
+<p>German thrashers DESTRUCTION are strongly rumored to have parted ways with drummer Sven Vormann. So far, no official statement from the band has been issued, but frontman Schmier indicated on the band’s official message board that it’s “too early to tell” if the rumors are true and that more details would be forthcoming “within the next [few] days”. Schmier then went on to state that “not everybody can....’Thrash ‘til death’... I guess...” In other postings, the bassist/vocalist makes it clear that, whoever Sven’s replacement ends up being, it most certainly will not be former drummer Olly, who, according to Schmier “[has] never been into metal… he is totally into BEATLES and jazz... That’s one of the reason why DESTRUCTION split up!!! He’s a good drummer but ain’t a f.ckinґ METALHEAD...but that’s what WE need...” We will have more information on this as soon as it becomes available. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 14.11.2001 news DESTRUCTION нашли барабанщика....
+
+<p>"DESTRUCTION" объявили имя нового барабанщика. Им стал 31-летний Marc Reign, до этого игравший в группах GUNJAH, ORTH и UPTIDE. Посмотреть картинки с видами Марка можно <A HREF="http://www.destruction.de/">здесь...</A></p>
+
+Автор: Yermola
+
+### 14.11.2001 news DESTRUCTION have announced the addition of 31-year-old drummer Marc Reign ...
+
+<p>German thrashers DESTRUCTION have announced the addition of 31-year-old drummer Marc Reign to the group’s ranks following the departure of Sven Vormann last month. Born in Berlin, Germany, Marc had previously played in thrash/death metal acts GUNJAH and ORTH, as well as in the “alternative rock/grunge/crossover/gothic” band UPTIDE. To see pictures of Marc, as posted on DESTRUCTION’s official web site, click <A HREF="http://www.destruction.de/">here ...</A></p>
+
+Автор: Yermola
+
+### 16.11.2001 news Wacken Festival...
+
+<p>Знаменитый "Wacken Festival" в следующем году будет проходить со 2-го по 3-е августа в Вакен (Германия). Уже заявлены следующие участники: <BR><BR> BLIND GUARDIAN <BR> RAVEN <BR> PUNGENT STENCH <BR> DIMPLE MINDS <BR> KREATOR <BR> DESTRUCTION <BR> J.B.O <BR> IN EXTREMO <BR> FALCONER <BR> AMON AMARTH</p>
+
+Автор: Yermola
+
+### 29.11.2001 news KREATOR, SODOM, and DESTRUCTION European tour...
+
+<p>Florida female-fronted act WYKKED WYTCH, featuring DIVINE EMPIRE/ex-MALEVOLENT CREATION bassist Jason Blachowicz, has secured the opening slot for the KREATOR, SODOM, and DESTRUCTION European tour, dubbed Hell Comes To Your Town, after HOLY MOSES were forced to pull out of the trek in order to concentrate on the writing and recording of their new studio album. The confirmed dates for the outing are as follows: <BR><BR> Dec. 26 – Ludwigsburg, GER @ Rockfabrik <BR> Dec. 27 - Bochum, GER @ Zeche <BR> Dec. 28 – Zaandam, NETH @ De Kade <BR> Dec. 29 - Hamburg, GER @ Markthalle <BR> Dec. 30 - Halle, GER @ Easy Schorre <BR> Dec. 31 - Osnabrьck, GER @ Hyde Park <BR> Jan. 02 - Offenbach, GER @ Hafenbahn <BR> Jan. 03 - Dorndorf, GER @ Kulturhaus <BR> Jan. 04 - Glauchau, GER @ Alte Spinnerei <BR> Jan. 05 - Berlin, GER @ Music Hall Berlin <BR> Jan. 06 – Warschau, POL @ Proxima <BR> Jan. 07 – Katowice, POL @ Mega Club <BR> Jan. 09 - Nьrnberg, GER @ Hirsch <BR> Jan. 10 – Dornbirn, AUS @ Conrad Sohm <BR> Jan. 11 – Salzburg, US @ Rockhaus <BR> Jan. 12 – Wien, AUS @ Planet Music <BR> Jan. 14 – Ravenna, ITA @ Rock Planet <BR> Jan. 15 – Pratteln, SWI @ Z 7 <BR> Jan. 16 - Andernach, GER @ JUZ Live Club <BR> Jan. 17 - Cottbus, GER @ Gladhouse <BR> Jan. 18 - Lьbeck, GER @ Holstentorhalle <BR> Jan. 19 – Motala, SWE @ Folkets Park <BR> Jan. 20 – Oslo, NOR @ Betong <BR> Jan. 21 – Gothenburg, SWE @ Kеren <BR> Jan. 22 – Stockholm, SWE @ Klubben <BR> Jan. 24 – Helsinki, FIN @ Nosturi</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 04.06.2002 news Новая группа от участников DESTRUCTION ....
+
+<p>Участники "DESTRUCTION " Sven Vormann (барабаны), Michael "Ano" Piranio (гитара) и Thomas Rosenmerkel (вокал), совместно с гитаристом Micheal Gerstlauer (DRYROT) и бассистом Bernhard "Erna" Matt (NECRONOMICON/EPHEMERA'S PARTY) организовали новый проект JCS (JESUS CHRYSLER SUPERSKUNK). На <A HREF="http://www.jesus-chrysler-superskunk.de/">официальном сайте </A>группы можно послушать три новых песни в МР3.... Все вещи выдержаны в ключе "старый добрый трэш-метал": <BR><BR> 01. Fear Freedom<BR> 02. Dshihad<BR> 03. M.T. Head<BR></p>
+
+Автор: Yermola
+
+### 04.06.2002 news Former DESTRUCTION Members Launch New Band....
+
+<p>Germany's JCS (JESUS CHRYSLER SUPERSKUNK), who feature in their ranks former DESTRUCTION members Sven Vormann (drums), Michael "Ano" Piranio (guitar, also in EPHEMERA'S PARTY) and Thomas Rosenmerkel (vocals, also in EPHEMERA'S PARTY), along with DRYROT guitarist Micheal Gerstlauer, and NECRONOMICON/EPHEMERA'S PARTY bassist Bernhard "Erna" Matt, have launched their official web site at <A HREF="http://www.jesus-chrysler-superskunk.de/">this location</A>. Currently available for download via the above-mentioned site are full-length MP3s of the group's recently-completed demo, which contains three "old-school thrash metal" tracks. The songs featured are as follows: <BR><BR> 01. Fear Freedom<BR> 02. Dshihad<BR> 03. M.T. Head</p>
+
+Автор: Yermola
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 30.01.2003 news Два в одном!
+
+<p>Две немецкие thrash metal легенды KREATOR и DESTRUCTION мощно зажгут 29 марта в московском дворце спорта "Динамо" в совместном концерте на земле Российской.</p>
+
+Автор: Dimas
+
+### 03.04.2003 articles Война слов
+
+<p><B>Бойня в Ираке породила войну мнений во всем мире. Каждый считает долгом высказать умные и не очень мысли насчет Буша, Ирака и прелести демократии, распространяемой с помощью бомб. Коснулась сия напасть и музыкантов - отличный повод посмотреть, у кого из них в голове есть извилины. </B><BR> Война слов началась еще прошлой осенью - тогда Том Морелло (гитарист левацких групп RAGE AGAINST THE MACHINE и AUDIOSLAVE) и Серж Танкян (вокалист SYSTEM OF A DOWN) создали организацию "Огонь правосудия", от имени которой отвечали на все вопросы, связанные с империализмом, эксплуатацией, борьбой за права человека и экспансией США во всем мире. Естественно, все это обильно сдабривалось цитатами из Карла Маркса, речей Че Гевары и примерами из истории. Эта левая пропаганда жутко не понравилась Билли Милано, лидеру старой и бестолковой нью-йоркской команды M.O.D.: "К черту правосудие, пусть эти два миллионера-коммуниста едут в Ирак и там тратят свои миллионы на мир! Да здравствуют бомбы и нефть!". Миллионеры-коммунисты этот выпад проигнорировали, а меломаны прилепили ярлык к Милано - "неофашист". <BR> Вся эта перепалка так и осталась бы в прошлом, но началась война. Как только Буш объявил свой ультиматум, три девицы из DIXIE CHICKS, обладатели "Грэмми", вышли на сцену с плакатами: "Сколько иракцев стоит один галлон нефти?" и "В одной техасской деревне исчез дурачок. Вы его не видели?". Следом среагировал Эминем - парень высказался незамысловато: "Война - фигня, к черту войну, мне не нужны кадры невинных жертв на ТВ - лучше крутите мои клипы!" Поначалу пацифисты вели себя достаточно пассивно, ограничиваясь воспоминаниями об эре хиппи и призывом к миролюбию. Зато их оппоненты показали себя ярыми сторонниками Белого дома и его аргументов. 18 марта Майк Портной, барабанщик великолепной прогрессив-команды DREAM THEATER, начал стыдить всех критиков Буша: "Я не люблю войну. Но то, что было начато 11 сентября, должно быть завершено - США должны разгромить терроризм и защитить свободу! Все, кто против, идите-ка домой и посмотрите еще раз хронику той катастрофы: как горят здания, люди выпрыгивают из окон и рушится символ процветания!". <BR> Как только на головы иракцев посыпались бомбы и кадры войны пошли по ТВ, Фред Дерст, лидер рэпперов LIMP BIZKIT, не удержался от комментариев: "Вы видели это? Сюрреализм какой-то… Я молюсь за народ Ирака и за всех, кто погибнет. Но я молюсь и за победу наших солдат - пусть они скорее возвращаются домой с победой! Не нужно больше протестовать против войны, нужно поддержать нашу страну: вперед, США!". <BR> К числу милитаристов примкнул и Закк Уайлд, гитарист Оззи Осборна: "Войска США будут крушить врагов и господствовать везде! Это лучшая армия в сегодняшнем мире!". Интересно, с какими чувствами этот парень играет с Оззи песни "War Pigs" ("Военные свиньи") и "God thank you for the bomb!" ("Господи, спасибо за бомбу!")? В том же ключе выступил и древний рокер Тед Наджент - мол, во Второй мировой войне вмешательство США помогло спасти миллионы евреев, и на этот раз война поможет спасти невинных! По каким учебникам этот парень учил историю и как он смотрит новости: кого должны спасти американские бомбы? Лучше умереть от оружия свободы, чем жить при диктатуре Хусейна? <BR> В конечном счете большинство американских музыкантов так или иначе поддержали войну. Зато меньшинство принялось активно действовать - Лени Кравиц и R.E.M. отправились в студию писать антивоенные песни, а Зак Де Ла Роша, экс-вокалист RAGE AGAINST THE MACHINE, уже это сделал, назвав при этом Буша палачом, а Серж Танкян и Том Морелло каждый концерт начинают с антивоенных речей. Правда, власти страны образцовой демократии ставят им палки в колеса как могут: с 25 марта на MTV запрещены к показу все песни со словами "Ирак, "война", "бомба" и т.д., а из эфира уже сняты несколько клипов: "Boom!" SYSTEM OF A DOWN и "Holy Wars" MEGADETH (последний, кстати, вышел ровно десять лет назад во время первой иракской войны и содержал жестокие кадры бомбардировок). Хуже всего пришлось группе B-52 - ребята ничего не имеют против войны, но они называются так же, как и бомбардировщики, которые несут 1-тонные заряды свободы иракцам, и потому упоминание этой группы в прессе и эфире сейчас нежелательно… <BR> В Европе иной расклад - антивоенные настроения доминируют. Только шведы MARDUK выпали из общего ряда: "Война не наша проблема - пусть танки действуют!". Зато немцы SODOM в прошлом году выпустили альбом, целиком посвященный американским приемам ведения войны во Вьетнаме - этакий экскурс в историю уничтожения жизни. Теперь эта работа снова актуальна. А их земляки DESTRUCTIОN на днях записали кавер-версию песни британцев THE EXPLOITED с красноречивым названием "Fuck The U.S.A.". <BR> Только Ларс Ульрих, барабанщик METALLICA, высказался наиболее разумно в этой перепалке: "Если ты музыкант и люди слушают твое мнение, это вовсе не значит, что нужно комментировать все подряд. Я уважаю то, что делают Том Морелло и Серж Танкян, всех тех, кто столь эмоционально выступает сегодня по проблеме войны, но я не хотел бы использовать имя METALLICA как трибуну. Читайте газеты, смотрите, что пишут в Интернете, создавайте свое собственное мнение и не слушайте какого-то придурка только потому, что он играет в какой-то рок-группе. Музыканты - не самые умные люди, так что лучше думайте своей головой!". <BR> <B>MAKE MUSIC NOT WAR!</B></p>
+
+Автор: Tornado
+
+### 26.04.2003 news Металлическая разрядка
+
+<p>29 сентября 2003 года на Nuclear Blast records выходит новый альбом ветеранов германского thrash metal DESTRUCTION. В альбом под названием "Metal Discharge" войдут следующие вещи:</p>
+<p> 1. The Ravenous Beast <BR> 2. Mortal Remains <BR> 3. Metal Discharge <BR> 4. Savage Symphony of Terror <BR> 5. Made to be Broken <BR> 6. Desecrators of the New Age <BR> 7. Vendetta <BR> 8. Rippin&acute; the Flesh Apart <BR> 9. Fear of the Moment <BR> 10. Historical Force Feed</p>
+
+Автор: Dimas
+
+### 22.09.2003 news DESTRUCTION news...
+
+German thrashers DESTRUCTION have posted their video for the track "Desecrators (Of The New Age)" on their website. "Desecrators (Of The New Age)" comes off the group's forthcoming CD, Metal Discharge, out on October 21. The album marks the recording debut with the group of new drummer Marc Reign, who replaced Sven Vormann in 2001. <br><br>
+
+The German thrashers have also posted six cuts from their forthcoming CD, Metal Discharge, in streaming Real Audio format at their official web site.<br><br>
+
+The final track listing for Metal Discharge is as follows:<br><br>
+
+01. The Ravenous Beast<br>
+02. Metal Discharge<br>
+03. Rippin' The Flesh Apart<br>
+04. Fear Of The Moment<br>
+05. Mortal Remains<br>
+06. Desecrators (Of The New Age)<br>
+07. Historical Force Feed<br>
+08. Savage Symphony Of Terror<br>
+09. Made To Be Broken<br>
+10. Vendetta
+Автор: Yermola
+
+### 24.09.2003 news DESTRUCTION выпустят бонус-CD
+
+Новейший диск <B>DESTRUCTION 'Metal Discharge'</B> будет доступен в Европе вместе с бонус-диском, который будет содержать трэки не вошедшие на обычную версию. Бонус-трэк-лист:<BR>01. <B>Killers</B> (<B>IRON MAIDEN</B>)<BR>02. <B>Whiplash</B> (<B>METALLICA</B>)<BR>03. <B>Fuck The U.S.A.</B> (<B>THE EXPLOITED</B>)<BR>04. <B>Bestial Invasion</B> (unreleased version 1999)<BR>05. <B>The Butcher Strikes Back</B> (Demo 1999)<BR>06. <B>Nailed to the Cross</B> (Demo 2001)<BR>07. <B>Metal Discharge</B> (Demo 2003)<BR>Также доступны mp3 с нового альбома. <A href="/samples/d/destruction/2003_893.mp3">Качать здесь!!!</A>
+Автор: Vit Belov
+
+### 15.10.2003 news DESTRUCTION finished video
+
+<SPAN lang=EN-GB>The legendary Thrash Metal Trio recently finished works on a video clip for „<B>Desecrators Of The New Age</B>“ which is currently on air at various TV stations. Together with their label mates <B>GRAVEWORM, DEW-SCENTED and MISERY INDEX, DESTRUCTION</B> will play the X-Mas Festivals 2003 and are already confirmed to play the Wacken Anniversary Festival 2004.</SPAN>
+Автор: Vit Belov
+
+### 19.10.2003 reviews Очередной немецкий thrash-metal альбом
+
+<P>Европейский thrash-metal 80-х был, в основе своей, представлен тремя немецкими группами DESTRUCTION, KREATOR и SODOM. Все три боевые единицы продолжают существовать, успешно сотрудничают с крупными лэйблами, выпускают альбомы. Новейшее творение DESTRUCTION должно порадовать любителей сырого и забойного трэша. И говорить здесь больше нечего... Нефанатам DESTRUCTION этот диск в коллекции просто не нужен. Довольно однообразные композиции, которые кто-то прослушает на одном дыхании, а у кого-то голова заболит уже на третьей вещи. Schimier and Co, пожалуй, выдают самый true материал из всей вышеупомянутой троицы, который не пересекается с дугими направлениями металл-музыки ни в одной точке. Ближайшим его родственником является какой-нибудь punk от The Exploited. На российское издание вошли&nbsp;7 бонусов с &nbsp;бонусного диска. Это ранее доступные кавера на песни IRON MAIDEN, METALLICA, и мною нигде до этого не встреченный кавер на 'USA' THE EXPLOITED,&nbsp;&nbsp;а также три демо-трека 'The Butcher Strickes Back' 1999 года, 'Nailed to the Cross' 2001 года и 'Metal Discharge' 2003 года.</P>
+<P>Диск предоставлен точкой B2-100</P>
+<CENTER><IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 19.10.2003 reviews Ordinary German thrash-metal album
+
+Europian thrash-metal of 80s was basically presented by 'trinity' of German bands - DESTRUCTION, KREATOR and SODOM. All three fighting units continue to exist, signed with bigest labels and releases their albums. The latest album by DESTRUCTION has to&nbsp;make all fans of raw and heavy thrash-metal happiest people on the Earth. And here is nothing more to say... This CD is not needed to collection of non-fans of DESTRUCTION. Rather monotonous tracks, which somebody will listen to with one breath, but somebody will have headache already on 3 track. Schmier and Co releases the true-est material from the above-mentioned 'trinity', which doesn't cross with other metal styles. Nearest relative of this music is punk from The EXPLOITED. There is 7 bonus-tracks from bonus-disk on Russian release of this album. This is accessible early covers on songs by IRON MAIDEN, METALLICA and not accessible (I didn't meet) cover on THE EXPLOITED 'USA'. And also three demo-tracks 'The Butcher Strickes Back' 1999, 'Nailed to the Cross' 2001 and &nbsp;'Metal Discharge' 2003.
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 15.11.2003 news Новое видео DESTRUCTION
+
+<P>Легендарное немецкое thrash metal трио <B>DESTRUCTION</B> закончило работу над новым видеоклипом <B>"Desecrators Of The New Age"</B>, который представляет из себя фрагменты с выступлений на открытом воздухе. Вскоре вместе со своими "товарищами по лейблу" <B>GRAVEWORM</B>, <B>DEW-SCENTED</B> и <B>MISERY INDEX</B> группа будет выступать в серии фестивалей X-Mas Festivals 2003, а в 2004 году примет участие в Wacken Anniversary Festival 2004.</P>
+Автор: Darkfall
+
+### 05.12.2003 reviews 
+
+Destruction? Что это?<br>
+Это что не на есть Трэш.<br>
+<p>
+Исходя из вышеупомянутых строк, можно сказать, что группа хорошо потрудилась над своим третьим альбомом под названием Release from Agony, релиз которого произошёл уже достаточно давно, - в 1988 году. Вто время, как помнится, был рассвет глэма, поп-метала и... трэша. Так вот, не отходя всё дальше от сути, примусь за рецензию.
+<p>
+Для начала состав:<br>
+Marcel Schirmer - bass/vocals<br>
+Mike Sifrinfer - guitar<br>
+Harry Wilkens - guitar<br>
+Olly - drums<br>
+<p>
+Итак, в этом альбоме восемь треков, включая интро. Собственно тяжеляк начинается с песни Release from Agony, она вторая по счёту, которая сразу же порадовала своей напористостью и плотным саундом. Хочется отметить и жёсткость гитарных рифов, которые "пробирают" организм и неостановочны на всём протяжении композиции. Вторая песня носит название Dissatisfied Existence. В переводе вроде как "Неудовлетворенное Существование". В общем, соответсвует названию и сама музыка. Конечно же, надо и отметить Sign of Fear - самую медленную и самую длинную песню, которая получилась затянутой немного и нудной, по сравнению с остальным материалом. Unconscious Ruins - одна из лучших композиций в альбоме. Это, в общем, объяснимо. Если вдаваться в подробности самого построения песни, то можно выделить соло и идущие после него гитарные рифы, которые, в общем-то, говорят не о исполнении трэша, а об исполнении дэта (только рифы). О следующих Incriminated и Our Oppression можно сказать также кучу хороших слов. Отмечу подпевки на Our Oppression, которые "врезаются" в барабанные перепонки (уж болно они на первом плане стоят). Напор и плотный саунд! Самой неожиданной вещью была последняя - Survive to Die. В конце которой, прикола ради, была сыграна очень знакомая мелодия, - получилось весьма смешно.
+<p>
+Итак, вывод. <br>
+Минусы: неудовлетворительное качество звука.<br>
+Плюсы: скорость, напор, жёсткость.<br>
+Итого: 9 баллов. Отличный альбом. Для ценителей настоящего Трэша и просто металлистов, а также для людей, "любящих" тяжёлую музыку.<br>
+Автор: Riddler
+
+### 10.12.2003 reviews Самый сильный альбом новейшего периода существования команды
+
+<P>Третий диск после возрождения казалось бы из небытия. Кардинальная смена концепции оформления (вместо традиционного красочного монстра трёхцветная обложка) как бы готовит слушателя к определённым изменениям касательно музыкальной составляющей. Первое впечатления после прослушивания – в этот раз поработали со звуком намного тщательнее, чем на предыдущем релизе “Antihcrist” и его качество прямо-таки поражает. Это очень приятно и внушает оптимизм, определённую гордость за современных представителей одного из самых выдержанных проверенных временем стилей экстремальной музыки.</P>
+<P>Теперь подробнее о самой музыке. “The Ravenous Beast” и “Metal Discharge”, две первые песни, производят очень сильное впечатление определёнными музыкальными находками, не совсем традиционным для группы звучанием барабанов. Очень приятно, что таких песен как “лучше слушать диск на 35 минут длиной, чем такие пенки”. Так что ребята молодцы. </P>
+<P>Также на диске есть 7 (!) каверов. Мда, рекомендуется к внимательному прослушиванию любителям халявы и халтуры. Три кавера (“Killers” Iron Maiden”, Whiplash” Metallica и “U.S.A.” The Exploited), два из которых уже давно вполне доступны на соответствующих трибьютах. К своей радости я не слышал ни одной песни группы The Exploited и ничего умного по этому поводу сказать не могу. Гораздо большие сомнения вызывает идея издавать демки песен в качестве бонусов в таком безумном количестве. Иногда бывает забавно послушать одну демо запись и сравнить её с официальной, но слушать четыре абсолютно безликие композиции удовольствие сомнительное. Предлагаю на следующем альбоме издать партии, например, баса минут этак на 25.</P>
+<P>Даже не знаю кому порекомендовать этот диск. Не рискую советовать альбом как ортодоксам от трэша (ведь трэш умер с 91-м году с приходом гранжа!), так и фанатам более современной тяжелой музыке (по той же причине!) Лично мне альбом показался очень-очень вполне. Самый сильный альбом новейшего периода существования команды.</P>
+Автор: Uneral
+
+### 20.01.2004 news DESTRUCTION выпустят DVD
+
+<P>В феврале на <B>NUCLEAR BLAST</B> увидит свет <B>DVD DESTRUCTION "Live Discharge - 20 Years Of Total Destruction</B>". Говорит <B>Schmier</B>: "<B>Данный DVD включает в себя материал DESTRUCTION за время всего существования группы</B>". На диск войдут концертные записи разных лет, интервью, два видео-клипа и история.&nbsp;</P>
+Автор: Vit Belov
+
+### 20.01.2004 news DESTRUCTION prepare DVD
+
+<P><SPAN lang=EN-GB><B>Schmier</B>, the singer of Germany’s famous Thrash Metal band, <B>DESTRUCTION</B>, recently talked about the band’s new live DVD “<B>Live Discharge - 20 Years Of Total Destruction</B>": “<B>This DVD features DESTRUCTION material from all eras including myself on vocals. We did try to catch that energy of a thrash show rather than just recording the most perfect, clean and flawless concert</B>.” Beside a large live section with concerts filmed at Wacken Open Air, With Full Force and the Metal Days at the Swiss club Z7 the DVD also contains a lot of bonus material in the form of backstage and extra footage, interviews, two video clips (‘<B>Desecrators Of The New Age’</B> and ‘<B>The Ravenous Beast’</B>) and a detailed band history among other things. </SPAN></P>
+<P><SPAN lang=EN-GB>Release Date: February 2004</SPAN></P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 16.02.2004 news DEW-SCENTED - новый басист и отмена тура
+
+<P><B><IMG height=148 alt="" hspace=0 src="/images/news_rus/2004.02/6039.jpg" width=200 align="right" border=0>DEW-SCENTED</B> и <B>DESTRUCTION</B> были вынуждены отменить свой тур, который должен был состояться в феврале-марте. Новым басистом группы стал <B>Alexander Pahl (OBSCENITY),</B> он заменил ушедшего в 2003 оригинального музыканта <B>Patrick</B>.</P>
+Автор: Vit Belov
+
+### 28.02.2004 news DVD от DESTRUCTION задерживается
+
+Первый DVD от легендарной thrash-metal банды <B>DESTRUCTION "Live Discharge – 20 Years Of Total Destruction"</B> выйдет 8 марта вместо 23 февраля на <B>Nuclear Blast</B>. Проблемы возникли, из-за огромного количества материала, который так и не влез на диск.
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 07.11.2004 news DESTRUCTION в Москве!
+
+<P><IMG height=228 src="/images/news_rus/2004.10/7222.jpg" width=324 align=left border=0>ALIVE CONCERTS и МАИ ТУР СЕРВИС с гордостью представляют:<BR>Единственный концерт в Москве Отцов немецкой трэш-сцены:</P>
+<P><FONT size=5><SPAN style="COLOR: #ff0000"><FONT size=5>DESTRUCTION</FONT></SPAN></FONT></P>
+<P>Специальные гости: <STRONG>Hieronimus Bosch</STRONG>, <STRONG>Manic Depression</STRONG></P>
+<P><FONT size=3>Москва, 12.11.2004, CDК МАИ</FONT></P>
+<P>Начало в 19:00.</P>
+<P>Адрес: г. Москва, ул. Дубосековская, д. 8.<BR>Проезд до станции метро "Сокол". Выход по указателям в сторону улицы Балтийской. Далее троллейбусом № 70, № 12 или трамваем № 23 до второй остановки, которая называется «Авиационный и Пищевой Институты».<BR>Автотранспортом: съезд с Ленинградского проспекта на Волоколамское шоссе, далее до поворота на улицу Дубосековскую.</P>
+<P>Билеты можно приобрести&nbsp;в&nbsp;театральных кассах и кассах метро, кассах СДК МАИ (тел. 158 44 70), рок-магазинах города.</P><FONT color=#152b4d size=3>
+<P>CУПЕРАКЦИЯ: ТОЛЬКО В ОКТЯБРЕ И ТОЛЬКО В CDK МАИ МОЖНО ПРИОБРЕСТИ БИЛЕТЫ ПО 500 РУБ. КОЛИЧЕСТВО БИЛЕТОВ ОГРАНИЧЕНО! С 1 НОЯБРЯ СТОИМОСТЬ БИЛЕТОВ - 700 РУБ.</P>
+<P>ВНИМАНИЕ КОНКУРС!!! В РОЗЫГРЫШЕ ДВА БИЛЕТА НА КОНЦЕР DESTRUCTION!!!</P>
+<P>Вопрос: Что вошло на бонус-диск в европейскому релизу последнего альбома<STRONG> DESTRUCTION 'Metal Discharge'</STRONG>?</P>
+<P>Ответы: <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A>&nbsp;(крайний срока приёма ответов 10 ноября 16-00, в письме укажите Ваши координаты)</P>
+<P>Объявлены победители: Булатников Андрей, Кирилл (Kvasilev)</P></FONT>
+Автор: Morsus
+
+### 15.11.2004 articles Destruction в Москве: ураган пронёсся, есть ли разрушения?
+
+<P>Событие: Концерт DESTRUCTION в Москве<BR>Место: СДК МАИ<BR>Участники: MANIC DEPRESSION, HIERONYMUS BOSCH, DESTRUCTION<BR>Организаторы: Alive Concerts совместно с Маи Тур Сервис</P>
+<P><IMG height=385 alt="" hspace=0 src="/images/articles_rus/2004.11/7368.jpg" width=300 align=left border=5>Каких впечатлений мог желать человек, который вечером в пятницу 12 ноября предпочёл DESTRUCTION, и не пошёл на WHITE SNAKE? Глупый вопрос: ему нужен УГАР!!! На концерте немцев этого угару было столько, что многие более уравновешенные и трезвые люди не смогли присутствовать в зале всё шоу, а курсировали от бара в зал и обратно.</P>
+<P>Но начнём по порядку. Открывали концерт две наших группы. Скорее всего, не забесплатно! Хотя начало выступления и задержалось на 30 минут, в клубе, а тем более, в зале народу было немного. Я уже неоднократно высказывал своё мнение о проплаченных разогревах, поэтому повторяться не стану. Отмечу только, что с таким звуком, как у первой группы MANIC DEPRESSION, на сцену лучше не выходить. Летом я присутствовал на их бесплатном концерте в «Горбушкином Дворе», где ребята смотрелись просто превосходно. Их музыка ориентирована не только на забой, но и на композицию. Особенно впечатляли гитарные дуэли между Максом и Виталием. Получить представление об этом посетители в этот раз не смогли. Гитар просто не было. Ребята отрабатывали по полной, но в зале была слышна только ритм-секция, что, согласитесь, не способствовало получению эстетического удовольствия. Поджечь, публику MANIC DEPRESSION не удалось, в этот раз не удалось. Но только задумайтесь, с каким отношением покидали зал фэны, ранее не знакомые с творчеством москвичей? Жалкое долбилово? Обидно.</P>
+<P>А вот HIERONYMUS BOSCH порадовали. И порадовали сильно. Sarquanaar из группы CRYSTAL ABYSS подтвердил свою репутацию очень хорошего инженера, и звучали HIERONYMUS BOSCH в этот вечер лучше всех. Также, как звучали лучше всех, двумя неделями ранее, SEDUCER’s EMBRACE и РОГАТЫЕ ТРУПОЕДЫ. Но главное, конечно же, это не звук. Великолепная музыка. Интересная музыка. Забойная музыка. Артисты удивляют каждый такт, каждый аккорд. Но самое главное, это постоянное удивление, совсем не создаёт впечатления загруженности. Песни захватывают и заставляют плясать, скакать, рубиться (нужное подчеркнуть). Обещаю Вам эстетическое удовольствие от посещения концерта группы, это не относится к тем, кто любит только DESTRUCTION. К ним и переходим.</P>
+<P><IMG height=366 alt="" hspace=0 src="/images/articles_rus/2004.11/7369.jpg" width=300 align=right border=5>Ну, что ж. Существует множество хитростей, с помощью которых, хэдлайнерам удаётся сразу же показать, кто они есть. Лучший свет, громкий звук, сценический имидж, настрой зала… Не знаю, что в этом конкретном случае, но немцы привлекли к себе внимание зала сразу. Большинство присутствующих начало сразу же рубиться, не разбирая промежутков между песнями. Schmier бегал, как заведённый от микрофона к микрофону, периодически переставая насиловать свой бас, лишний раз доказывая, что завести зал можно и не обладая сверхтехникой. Конечно же, к DESTRUCTION это не относится, с техникой у них всё в порядке. Подкачал звук. Опять было ничего не разобрать, но ураганный ритм ощущался чётко, и этот ритм раскачивал фэнов. Правда, после первых песен мой энтузиазм поутих. Выяснилось, что неспроста я не являюсь фанатом группы. Создавалось впечатление, что группа играет одну очень большую, очень злую и очень однообразную песню. Конечно же, поклонники, которых, кстати, собралось в этот вечер не меньше 1000 человек, не согласятся со мной. Но я и не прошу их одобрения. Thrash-metal от DESTRUCTION самая тупая, и быть может гениальная в своей тупости, музыка, которую я слышал в последнее время.</P>
+<P>Концерт удался, DETRUCTION отыграли особенно большой сэт, зрители нарубились до полуобморочного состояния, но эстетам, которые слушали выступление HIERONYMUS BOSCH и пришли специально на них, а такие были, поверьте, можно было смело уходить, не дожидаясь окончания мероприятия, что они, думается, и сделали.</P>
+Автор: Vit Belov
+
+### 15.12.2004 news DESTRUCTION ищут лэйбл
+
+<P><STRONG>DESTRUCTION</STRONG> подготовили материал для нового альбома и ищут новый лэйбл для его издания. <STRONG>Schmier</STRONG> обещает, что имя лэйбла будет объявлено до начала года, а запись пластинки начнётся в январе.</P>
+Автор: Vit Belov
+
+### 14.01.2005 news DESTRUCTION на AFM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DESTRUCTION</STRONG> заключили контракт с <STRONG>AFM</STRONG>. Новый альбом выйдет летом на этом немецком лэйбле.</FONT></P>
+Автор: Vit Belov
+
+### 05.03.2005 news DESTRUCTION работают над альбомом
+
+<P><STRONG>DESTRUCTION</STRONG> находятся сейчас в студии, где работают над альбомом, который выйдет 15 августа на <STRONG>AFM</STRONG>. Продюсером и инженером выступает<STRONG> Peter Tagtgren</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.03.2005 news DESTRUCTION назвали альбом
+
+<P>Новый альбом <STRONG>DESTRUCTION </STRONG>будет называться "<STRONG>Inventor Of Evil</STRONG>". Как уже сообщалось, пластинка выйдет 15 августа на <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.05.2005 reviews Ты помнишь, как все начиналось?
+
+<P>Два первых альбома ветеранов немецкого трэш-движения Destruction от 84 и 85 года. Давненько я не слышал этих релизов, со времен детства, когда фотографии суровых волосатых дядек в проклепанных напульсниках и ошейниках, с ног до головы увешанных пулеметными лентами, занимали достойное место на стене перед моим письменным столом.</P>
+<P>Сейчас эта пластинка слушается немного наивно, технически процесс звукозаписи шагнул далеко вперед, да и сам стиль претерпел значительные изменения. Но что сразу же бросается в глаза (а точнее в уши) – в середине 80-х это немецкое трио оставляло далеко позади собратьев по оружию из Kreator и Sodom по технике исполнения и профессионализму. Так что, несмотря на свою древность, диск вполне нормально слушается, да и к тому же, как гласит надпись на обложке Infernal Overkill, материал претерпел ремастеринг. Довольно познавательный релиз для тех, кто желает узнать, с чего начиналась германская трэш-сцена, ну а тем, кто слушал эти альбомы в те далекие года – прекрасная возможность ностальгировать по золотому времени трэша.</P>
+<P>Диск предоставлен концерном «Группа СОЮЗ».</P>
+Автор: Fucker
+
+### 10.06.2005 news Подробности о новом альбоме DESTRUCTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2005.06/8789.jpg" width=400 align=left border=5>DESTRUCTION</STRONG> опубликовали кавер-артворк своего нового альбома "<STRONG>Inventor Of Evil</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме этого, группа сообщила некоторые подробности. На альбом попала песня "<STRONG>The Allanz Of Hellhoundz</STRONG>", на которой споют 10 разных вокалистов, что будет символизировать единение металлеров всего мира и всех стилей. Среди певцов: <STRONG>Biff (SAXON), Doro, Shagrath (DIMMU BORGIR), Speed (SOILWORK), Paul Di Anno (ex-IRON MAIDEN), Messiah (CANDLEMASS), Mark Osegueda (DEATH ANGEL), Peavy (RAGE), Peter Tagtgren (HYPOCRISY, PAIN).</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 21.08.2005 news Дата релиза нового DESTRUCTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DESTRUCTION "Inventor Of Evil"</STRONG> выйдет 22 августа на <STRONG>AFM</STRONG> (то есть завтра).</FONT></P>
+Автор: Vit Belov
+
+### 21.08.2005 news Release-dates for DESTRUCTION
+
+<P>Here are the worldwide streetdates of the new <STRONG>DESTRUCTION</STRONG> album "<STRONG>Inventor of Evil</STRONG>":</P>
+<P>Europe - 22. august via <STRONG>AFM Records</STRONG><BR>Japan - 24. august via <STRONG>King Records</STRONG><BR>South America - 30. september via <STRONG>Laser<BR></STRONG>North America - 25. october via <STRONG>Candlelight Records</STRONG></P>
+Автор: Vit Belov
+
+### 21.09.2005 news Видео-клип DESTRUCTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>DESTRUCTION "The Alliance of Hellhoundz"</STRONG>&nbsp;с нового альбома можно посмотреть здесь: <A href="http://www.destruction.de/index.php?s_id=7&lang=en">http://www.destruction.de/index.php?s_id=7&lang=en</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Thrash-гимн с участием знаменитейших вокалистов в heavy-metal, а также стриптизёрш и лесбиянок.</FONT></P>
+Автор: Vit Belov
+
+### 17.04.2006 news DESTRUCTION несут разрушение в Эквадор
+
+<P>После отмены концерта <STRONG>DESTRUCTION&nbsp;</STRONG>в Эквадоре, из-за недостатка охраны и малого размера помещения площадки, куда было продано 2000 билетов, раздосадованные фэны разгромили&nbsp;клуб, а организаторы концерта были арестованы.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Schmier</STRONG>: "<EM>Впервые на моей памяти мы столкнулись с таким поведением организатора. Например, на сцене полностью отсутствовало световое оборудование. Подобные проблемы встретили нас и в Колумбии, там свет вырубился на первой песне, но мы отыграли сэт полностью. Бешенные фэны рубились в кромешной тьме</EM>". </FONT></P>
+Автор: Vit Belov
+
+### 10.05.2006 news DESTRUCTION перезапишут старые вещи
+
+<P><STRONG>DESTRUCTION</STRONG> обнародовали планы на ближайшее будущее. В конце мая у немцев начинается североамериканский тур, а после него трэшеры войдут в студию, чтобы перезаписать песни с первых альбомов. Эти версию войдут на новый релиз<STRONG> DESTRUCTION</STRONG>, планируемый&nbsp;к выходу.</P>
+Автор: Vit Belov
+
+### 05.09.2006 news DESTRUCTION перезаписывают свои хиты
+
+<P>Ветераны немецкого трэша <B>DESTRUCTION</B> решили заново перезаписать свои классические хиты, которые станут основой их следующего альбома под названием <B>"Best of Classix"</B>, выход которого запланирован на начало 2007 года через <B>AFM Records</B>. Релиз будет интересен еще и тем, что на него войдут одна-две темы с альбома "<STRONG>Cracked Brain</STRONG>", в записи которого не примал участие <STRONG>Schmier.&nbsp;</STRONG>Новые версии известных песен будут&nbsp;более тяжелые, мощные и брутальные.&nbsp;</P>
+Автор: Dimas
+
+### 08.11.2006 news Новый релиз DESTRUCTION
+
+<P>22 января на <STRONG>AFM </STRONG>выходит новый релиз от <STRONG>DESTRUCTION</STRONG> <STRONG>"Thrash Anthems". </STRONG>Трэк-лист:</P>
+<P>01. <B>Deposition (Your Heads Will Roll)</B> *<BR>02. <B>Invincible Force</B> <BR>03. <B>Release from Agony</B> <BR>04. <B>Mad Butcher</B> <BR>05. <B>Sign of Fear</B> <BR>06. <B>Death Trap</B> <BR>07. <B>Life Without Sense</B> <BR>08. <B>Total Desaster</B> <BR>09. <B>Bestial Invasion</B> <BR>10. <B>Reject Emotions</B> <BR>11. <B>Tormentor</B> <BR>12. <B>Unconscious Ruins</B> <BR>13. <B>Curse the Gods</B> <BR>14. <B>Cracked Brain</B> <BR>15. <B>Profanity</B> *<BR>16. <B>Eternal Ban</B> (Bonus Track) <BR>Как уже сообщалось, на диск попали вещи с ранних работ группы, переизаписанные в этом году.</P>
+Автор: Vit Belov
+
+### 26.01.2007 news DESTRUCTION выложили клип
+
+<P>Видео-клип на песню <STRONG>"Total Desaster"&nbsp;DESTRUCTION</STRONG> выложили в сеть. Его можно посмотреть по этому адресу: <A href="http://www.destruction.de/index.php?s_id=7&lang=en">http://www.destruction.de/index.php?s_id=7&lang=en</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 22.04.2008 news DESTRUCTION вошли в студию
+
+<P>Ветераны немецкого&nbsp;thrash metal&nbsp;<B>DESTRUCTION</B>&nbsp;вошли в датскую&nbsp;<B>Hansen Studios</B> с продюсером <B>Jacob Hansen</B> для записи своего новейшего альбома под названием <STRONG>"D.E.V.O.L.U.T.I.O.N.".</STRONG> Его выход ожидается 29 августа. Музыканты обещают ознаменовать своё двадцатипятилетие классическим материалом в традиционном для группы духе. Новый, очень динамичный материал удовлетворит всех трэш маньяков. </P>
+<P>Также, в планах&nbsp;<STRONG>&nbsp;</STRONG><B>DESTRUCTION</B>&nbsp;выпуск DVD, посвященного двадцатипятилетию группы. <BR></P>
+Автор: Dimas
+
+### 16.05.2008 news Schmier и Jorn исполнили классику
+
+<P>В сети появилась любительская запись с фестиваля <STRONG>Rock Hard</STRONG>, прошедшего 11 мая. <STRONG>Jorn Lande</STRONG> и его группа при участие фронтмэна <STRONG>DESTRUCTION Schmier</STRONG> исполняют хит <STRONG>JUDAS PRIEST</STRONG> "<STRONG>Breaking The Law</STRONG>".</P>
+<P><center><object width="425" height="355"><param name="movie" value="http://www.youtube.com/v/sfc_divhrK4&rel=0&hl=en"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/sfc_divhrK4&rel=0&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></object></center></P>
+Автор: Vit Belov
+
+### 22.05.2008 news Трейлер нового альбома DESTRUCTION
+
+<P><STRONG>AFM Records</STRONG> в преддверии выпуска нового альбома <STRONG>DESTRUCTION</STRONG> под названием <STRONG>"D.E.V.O.L.U.T.I.O.N.",</STRONG> выход которого ожидается 29 августа, запустили рекламный ролик альбома, с которым могут ознакомиться все желающие.</P>
+<P></P>
+<CENTER>
+<OBJECT height=353 width=400><PARAM NAME="movie" VALUE="http://video.rutube.ru/f4a72bf0c6792b0098f0e72e34798498"><PARAM NAME="wmode" VALUE="window"><PARAM NAME="allowFullScreen" VALUE="true">
+<EMBED src="http://video.rutube.ru/f4a72bf0c6792b0098f0e72e34798498" type="application/x-shockwave-flash" wmode="window" width="400" height="353" allowFullScreen="true" ></EMBED></OBJECT></CENTER>
+Автор: Dimas
+
+### 17.07.2008 news Новый альбом DESTRUCTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что новый альбом <STRONG>DESTRUCTION</STRONG> <STRONG>"D.E.V.O.L.U.T.I.O.N." </STRONG>выходит 22 августа на <STRONG>AFM</STRONG>. Стали известны подробности. В качестве приглашённых гитаристов на пластинке появятся <STRONG>Gary Holt</STRONG> (<B>EXODUS</B>) and <B>Jeff Waters</B> (<B>ANNIHILATOR</B>). Трэк-лист:</FONT></P>
+<P>01. <B>D.evolution</B><BR>02. <B>E.levator To Hell</B><BR>03. <B>V.icious Circle - The 7 Seven Deadly Sins</B><BR>04. <B>O.ffenders Of The Throne</B><BR>05. <B>L.ast Desperate Scream</B><BR>06. <B>U.rge (The Greed Of Gain)</B><BR>07. <B>T.he Violation Of Morality</B><BR>08. <B>I.nner Indulgence</B><BR>09. <B>O.dyssey Of Frustration</B><BR>10. <B>N.o One Shall Survive</B></P>
+Автор: Vit Belov
+
+### 04.02.2009 reviews Статусный немецкий «трэш»
+
+<P>DESTRUCTION – представители большой тройки немецкого thrash-metal, который олицетворяет отдельное направление в современной тяжёлой музыке. Несмотря на высокий статус группы Schmier’а, которого она добилась многолетним трудом на благо сцены, я считаю DESTRUCTION слабейшей группой из трёх лучших.</P>
+<P>KREATOR, которые, по моему мнению, здесь вне конкуренции «делают» коллег по всем параметрам. Ненамного отстали SODOM, а DESTRUCTION ничем, кроме трудоспособности, своих амбиций не подтверждают. Все отдают этой группе должное, взять хотя бы наличие огромного количества приглашённых музыкантов на последних альбомах, но каких-то мощных произведений в XXI веке из под пера музыкантов не выходит. После периода увлечения мощным забоем, периода, который подвёл черту под сотрудничеством группы с Nuclear Blast, DESTRUCTION оборотили взор к более мелодичной стороне thrash-metal. “D.E.V.O.L.U.T.I.O.N.” несёт в себе черты изданного в прошлом году HEADHUNTER. Нет, он не столь мелодичен, но некоторые места вызывают вопросы. Даже мерзкий вокал Schmier иногда переходит границы дозволенной мелодичности. К несчастью, главного, чего не хватает этому альбому, это хитов. А ведь DESTRUCTION дали понять, что готовы идти на компромиссы. В итоге немцы очередной раз зря пожертвовали своей «брутальностью». С мелодикой у них ничего не получилось.</P>
+<P>Такие группы есть. Качественные, правильные, статусные. Без контрактов они не останутся, но странно, что такое количество альбомов не содержат практически ни одной запоминающейся песни.</P>
+<P>P.S.: Отмечу буклет лицензионного издания. CD-Maximum чего-то там лаком подкрасили. Фетишистам понравится.</P>
+Автор: Vit Belov
+
+### 27.03.2009 news DESTRUCTION записывают концертник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DESTRUCTION</STRONG> записали свой концерт в Западном Голливуде 24 марта для грядущего концертного альбома. Также будет записано шоу в клубе <STRONG>B. B. King</STRONG> в Нью-Йорке. Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 05.06.2009 news DESTRUCTION: новый концертный альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.06/14151.jpg" width=400 align=right vspace=5 border=0>Стала доступна обложка нового концертного альбома от немецких трэшеров <STRONG>DESTRUCTION</STRONG>. Двойной диск, выходящий этим летом, получил название <STRONG>"The Curse Of The Antichrist - Live In Agony"</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 12.06.2009 news Дата релиза концертника DESTRUCTION
+
+<P>Новый концертный альбом немцев <STRONG>DESTRUCTION</STRONG> <STRONG>"The Curse Of The Antichrist - Live In Agony" </STRONG>увидит свет 31 июля на<STRONG> AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.06.2009 news Трэк-лист концертного DESTRUCTION
+
+<P>Стал известен трэк-лист нового концертного альбома<STRONG> DESTRUCTION</STRONG> <STRONG>"The Curse Of The Antichrist - Live In Agony":</STRONG></P>
+<P>01. <B>The Butcher Strikes Back</B><BR>02. <B>Curse The Gods</B><BR>03. <B>Mad Butcher</B><BR>04. <B>The Alliance Of Hellhoundz</B><BR>05. <B>D.E.V.O.L.U.T.I.O.N.</B><BR>06. <B>Eternal Ban</B><BR>07. <B>Urge The Greed Of Gain</B><BR>08. <B>Thrash Till Death</B><BR>09. <B>Metal Discharge</B><BR>10. <B>The Damned</B><BR>11. <B>Cracked Brain</B><BR>12. <B>Soulcollector</B><BR>13. <B>Death Trap</B><BR>14. <B>Unconscious Ruins</B><BR>15. <B>Life Without Sense</B><BR>16. <B>The 7 Deadly Sins</B><BR>17. <B>The Antichrist</B><BR>18. <B>Thrash Till Death</B><BR>19. <B>Reject Emotions</B> (three drumkits Wacken Inferno version)<BR>20. <B>Total Desaster</B><BR>21. <B>Bestial Invasion</B></P>
+Автор: Vit Belov
+
+### 01.09.2009 news Гитарист DESTRUCTION сломал палец
+
+<P>Гитарист немцев <STRONG>DESTRUCTION</STRONG> <STRONG>Mike Sifringer</STRONG> сломал палец на фестивале <STRONG>Vlamrock </STRONG>в Бельгии. Группа вышла посмотреть шоу брутальных hardcore'щиков. Во время moshpit кто-то прыгнул на <STRONG>Mike</STRONG> и сломал ему палец. Теперь он вынужден пропустить две недели, которые его будет заменять приглашённый музыкант.</P>
+Автор: Vit Belov
+
+### 05.09.2009 news DESTRUCTION нашли временную замену
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=301 alt="" hspace=5 src="/images/news_rus/2009.09/15013.jpg" width=200 align=right vspace=5 border=0>Как уже всем&nbsp;известно, гитарист группы <STRONG>Mike</STRONG> сломал палец на прошлой неделе, в Бельгии. Группа <STRONG>DESTRUCTION</STRONG> нашла ему временную замену для грядущего концерта в Португалии. Ею стал гитарист английской группы <STRONG>EVILE</STRONG> - <STRONG>Ol Drake</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Комментирует <STRONG>Ol</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Я был ошарашен новостью о ране Майка. Я желаю всего наилучшего ему и надеюсь, он быстро поправится. </EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Я получил письмо от <STRONG>Schmier</STRONG>,&nbsp;в котором он спрашивал, смогу ли я заменить Майка. Мой ответ был очевидным - Да.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Я очень люблю <STRONG>DESTRUCTION</STRONG>&nbsp;и это большая честь и привилегия для меня. Не могу дождаться! Это будет круто! К счастью, являясь фэном группы, я уже играю большинство песен из сет-листа.</EM></FONT></P>
+<P><EM>Огромное спасибо <STRONG>Schmier</STRONG>, <STRONG>Mike</STRONG>&nbsp;и <STRONG>Marc</STRONG> за концерт моей мечты".</EM></P>
+Автор: Headcrusher
+
+### 09.12.2009 news Трэйлер DVD DESTRUCTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В феврале выходит новый DVD <STRONG>DESTRUCTION</STRONG> <STRONG>"A Savage Symphony - The History Of Annihilation". </STRONG>Этот диск был произведён берлинской<STRONG> Roax Films</STRONG> и содержит юбилейный концерт группы на <STRONG>Wacken 2007 </STRONG>с участием множества приглашённых музыкантов, в том числе и бывших участников группы. Также вы сможете найти документальный фильм и концертный бонус-материал. Трэйлер этого релиза можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ZT4_a5XBwMg&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ZT4_a5XBwMg&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.03.2010 news DESTRUCTION покинул барабанщик
+
+<P>Барабанщик <STRONG>Marc Reign</STRONG> покинул<STRONG>&nbsp;DESTRUCTION</STRONG>. Причиной этого события названы музыкальные и личные разногласия, вызванные "туровым стрессом". <STRONG>Marc</STRONG> решил сконцентрироваться на своём рок-проекте <STRONG>VOLCANO</STRONG>. Ни одно запланированное шоу немцев не будет отменено, так как будет найден сессионный барабанщик. В настоящее время группа продолжает работу над новым альбомом.&nbsp;</P>
+Автор: Vit Belov
+
+### 09.06.2010 news DESTRUCTION вернулись на Nuclear Blast
+
+<P><STRONG>DESTRUCTION</STRONG> заключили новое соглашение с <STRONG>Nuclear Blast Records</STRONG>. Лидер группы <STRONG>Schmier</STRONG> поблагодарил свой прежний лэйбл <STRONG>AFM</STRONG> и сообщил о возвращении группы "домой". Именно на Nuclear Blast вышли первые альбомы немцев после возвращения в музыку.</P>
+Автор: Vit Belov
+
+### 10.07.2010 news Новый альбом DESTRUCTION
+
+<P>Легендарные трэшеры&nbsp;<B itxtvisited="1">DESTRUCTION</B> назвали свой новый альбом <B itxtvisited="1">"Day Of Reckoning"</B>. Предположительная дата выпуска назначена на январь 2011. Согласно заявлению на&nbsp;офицальном сайте группы,&nbsp;новый альбом будет быстрее и "более турбулентнее", чем его предшественник.&nbsp;&nbsp;</P>
+<P>Группа, до сих пор, не анонсировала замену барабанщику Марку Рейну (<STRONG>Marc Reign</STRONG>), который покинул её ряды в марте 2010.</P>
+Автор: Headcrusher
+
+### 16.11.2010 news DESTRUCTION: обложка нового альбома &quot;Day Of Reckoning&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17616.jpg" width=400 height=400>Трэш металлисты&nbsp;<B itxtvisited="1">DESTRUCTION</B> выпускают свой новый альбом, <B itxtvisited="1">"Day Of Reckoning"</B>, 18 февраля 2011 года в Европе и 22 февраля в С.Ш.А./Канаде&nbsp;на <B itxtvisited="1">Nuclear Blast Records</B>. </P>
+<P>Напомним, что ранее в этом году барабанщик группы <STRONG>Marc Reign</STRONG> покинул <STRONG>DESTRUCTION</STRONG> по причине персональных и музыкальных разногласий, вызванных&nbsp;гастрольным туром.&nbsp;Группа обещает анонсировать имя нового барабанщика на этой неделе.</P>
+Автор: Headcrusher
+
+### 23.11.2010 news Новый барабанщик DESTRUCTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=252 alt="" hspace=5 src="/images/shows_rus/2010.11/17671.jpg" width=350 align=right vspace=5 border=0>Группа&nbsp;<STRONG>DESTRUCTION</STRONG> представила музыкальной&nbsp;общественности своего нового барабанщика.&nbsp;Им стал&nbsp;мужчина, откликающийся на псевдоним&nbsp;<STRONG>Vaaver</STRONG> (<STRONG>INDUKTI, ex-UNSUN</STRONG>). Некоторые фанаты <STRONG>DESTRUCTION</STRONG> уже имели шанс увидеть его на сцене с группой во время летних фестивалей этого года. У него есть музыкальное образование ("McGill University"&nbsp;Монреаля)&nbsp;и двойное гражданство - Польши и Канады.</FONT></P>
+Автор: Headcrusher
+
+### 19.02.2011 news DESTRUCTION: клип на песню &quot;Hate Is My Fuel&quot;
+
+<P>Группа <STRONG>DESTRUCTION</STRONG> обнародовала клип на песню<STRONG> "Hate Is My Fuel"</STRONG>. Видео было создано немецкой компанией <B>Roax Films</B>. Концертные&nbsp;съёмки происходили 31 декабря 2010 года на <B>Headbangersball Silvester Festival</B> (Бургдорф, Швейцария).</P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/k4IS175qwMI?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/k4IS175qwMI?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 14.03.2011 reviews Nuclear Blast усмирил DESTRUCTION
+
+<P>DESTRUCTION неприятно удивили своих поклонников своим юбилейным десятым альбомом “D.E.V.O.L.U.T.I.O.N.”, вышедшим в 2008 году на AFM Records. В то же время лидер немецкой группы Schmier записывал новый альбом своего heavy-metal проекта HEADHUNTER, и, видимо, что-то перепутал, насытив альбом своего основного коллектива чистыми и нудными вокалами. Новейшая пластинка “Day Of Reckoning” вновь вышла на Nuclear Blast, а на крупнейшем лэйбле прекрасно понимают, что любые эксперименты неприемлемы.</P>
+<P>Как и ожидалось, немецкая группа вернулась к своему классическому звучанию. Мощный немецкий thrash-metal, DESTRUCTION даже удалось несколько разнообразить, не прибегая к различным мелодичным штучкам, которые не к лицу этим классикам бескомпромиссного стиля. Возможно, кто-то скажет, что всё это уже было. Действительно, DESTRUCTION выпускали подобные альбомы в последние годы неоднократно, но никому не нужны изыски там, где требуется прямолинейность и угар. “Day Of Reckoning” записан Jacob Hansen, как и недавний альбом ONSLAUGHT “Sound Of Violence”, по это причине я и сравню эти две пластинки одну с другой.</P>
+<P>Хороший альбом немецкой группы, способный вернуть к ней внимание любителей ортодоксального thrash-metal. Безусловно, ожидать чего-то гениального от DESTRUCTION не стоит, но лучше такой альбом, чем бесхребетно экспериментальный.</P>
+Автор: Vit Belov
+
+### 08.08.2012 news DESTRUCTION: гости на новом альбоме &quot;Spiritual Genocide&quot;
+
+<P>Немецкие трэшеры <STRONG>DESTRUCTION</STRONG> работают над новым альбомом, который получил название <STRONG>"Spiritual Genocide"</STRONG>. Гостевое участие в записи вокальных партий принял<STRONG> Tom Angelripper</STRONG>, фронтмен <STRONG>SODOM</STRONG>. Группа также планирует привлечь&nbsp;к записи вокала&nbsp;<STRONG>Gerre </STRONG>(<STRONG>TANKARD</STRONG>). 
+<CENTER><IMG border=0 src="/images/news_rus/2012.08/24602.jpg" width=350 height=466></CENTER>
+Автор: Headcrusher
+
+### 25.08.2012 news Подробности о новом DESTRUCTION
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.08/24678.jpg" width=450 height=672>Мы уже сообщали, что немцы <STRONG>DESTRUCTION</STRONG> работают над юбилейным альбомом <STRONG>"Spiritual Genocide"</STRONG>, посвящённом 30-летию группы, в <STRONG>Gernhart Studios</STRONG> в Тройсдорфе, Германия. Пластинка выйдет в ноябре этого года на Nuclear Blast. CD будет сведён <STRONG>Andy Classen, </STRONG>а в качестве гостей на нём появятся <STRONG>Thomas "Angelripper" Such</STRONG> (<B>SODOM</B>), <B>Andreas "Gerre" Geremia</B> (<B>TANKARD</B>)&nbsp;и <B>Ol Drake</B> (<B>EVILE</B>). Кроме этого, на одной песне случится историческое событие, для её записи вновь воссоединится состав<STRONG> DESTRUCTION</STRONG>, записывавший альбомы <STRONG>"Mad Butcher"</STRONG>/<STRONG>"Release From Agony": </STRONG>коротковременный возврат в группу совершат гитарист <STRONG>Harry Wilkens</STRONG> и барабанщик <B>Oliver Kaiser.</B></P>
+<P><STRONG>Marcel "Schmier" Schirmer</STRONG>: <STRONG>"</STRONG><EM>На юбилейном альбоме мы проделали поистине великолепную работу. Новые возможности для нас открыл новый барабанщик <STRONG>Vaaver</STRONG> [настоящее имя: <B>Wawrzyniec Dramowicz</B>; <B>INDUKTI</B>, ex-<B>UNSUN</B>]. На этой работе нет места ограничениям. Он самый брутальный, самый быстрый, и мы никогда не звучали так глубоко. Также немаловажны гостевые участники записи: <STRONG>Gerre</STRONG>&nbsp;и <STRONG>Tom Angelripper </STRONG>- наши старые друзья, <STRONG>Ol Drake - </STRONG>лучший молодой гитарист в thrash-metal - записал нам несколько соло. и конечно, наш старый состав, с которым мы записывали классику <STRONG>'Mad Butcher'</STRONG>/</EM><B><EM>'Release From Agony'</EM>.</B></P>
+<P>Музыкант уверяет, что новый альбом мощнее, чем предшественник <STRONG>'Day Of Reckoning'.</STRONG></P>
+<P>"<EM>На обложку вернулся Mad Butcher</EM>", - продолжает хвастаться Schmier. "<EM>Наш художник Gyula Havancsak проделал великолепную работу</EM>".</P>
+Автор: Vit Belov
+
+### 11.10.2012 news DESTRUCTION: трек-лист, обложка и новая песня альбома &quot;Spiritual Genocide&quot;
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.10/24927.jpg" width=450 height=450>DESTRUCTION</STRONG> представили на обозрение обложку нового альбома <STRONG>"Spiritual Genocide"</STRONG>, а так же его&nbsp;трек-лист и новую песню <STRONG>"Cyanide"</STRONG>, которую можно прослушать, перейдя&nbsp;по ссылке: <A href="http://www.nuclearblast.de/en/label/music/band/about/70956.destruction.html">www.nuclearblast.de</A></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Exordium</STRONG><BR>02. <STRONG>Cyanide</STRONG><BR>03. <STRONG>Spiritual Genocide<BR></STRONG>04. <STRONG>Renegades</STRONG><BR>05. <STRONG>City Of Doom<BR></STRONG>06. <STRONG>Legacy&nbsp;Of The Past<BR></STRONG>07. <STRONG>To Dust You Will Decay<BR></STRONG>08. <STRONG>Carnivore</STRONG><BR>09. <STRONG>No Signs Of Repentance<BR></STRONG>10. <STRONG>Riot Squad<BR></STRONG>11. <STRONG>Under Violent Sledge</STRONG></P>
+<P><EM>Limited-edition digipack bonus tracks:</EM></P>
+<P>12. <STRONG>Princess Of The Night<BR></STRONG>13. <STRONG>Carnivore</STRONG> <EM>(при участии <STRONG>Harry</STRONG> и <STRONG>Olly</STRONG>)</EM></P>
+<P>&nbsp;</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 13.11.2012 news DESTRUCTION: клип на песню &quot;Carnivore&quot;. 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DESTRUCTION</STRONG> презентовали клип на песню <STRONG>"Carnivore"</STRONG>.&nbsp;За&nbsp;производство видео отвечала компания <STRONG>Polish Mania Studio</STRONG> (<A href="http://www.maniastudio.pl/">http://www.maniastudio.pl</A>). Само же видео ознаменует возвращение классического персонажа группы -&nbsp;<STRONG>&nbsp;Безумного Мясника</STRONG>&nbsp;(Mad Butcher).</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/-XkoZCIsYhk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.02.2016 news DESTRUCTION: альбом &quot;Under Attack&quot; в мае
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкое трио <STRONG>DESTRUCTION</STRONG> опубликовало обложку нового альбома <STRONG>"Under Attack".</STRONG> Диск выходит 13 мая на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также, весной этого года группа планирует дать несколько концертов на территории России. Следите за обновлениями в нашем разделе <STRONG>"Shows"</STRONG>: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28784.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 29.03.2016 news DESTRUCTION: трек &quot;Second To None&quot;
+
+<P>Немецкие трэшеры <STRONG>DESTRUCTION</STRONG> опубликовали трек <STRONG>"Second To None"</STRONG>, который войдёт на их новый альбом под названием <STRONG>"Under Attack"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/xmIwDKnyAmM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 04.05.2016 news Destruction выпустили видео
+
+<p>Новый клип<strong> DESTRUCTION</strong> на песню "<strong>Under Attack"</strong> выложен в сеть. Трек взят с выходящего одноимённого альбома группы, который увидит свет 13 мая на<strong> Nuclear Blast</strong>. Видео было отснято в апреле студией <strong>Buntmetall (Motorhead, Saxon, Annihilator, Panzer, Cripper)</strong>. Лидер DESTRUCTION<strong> Schmier</strong> сказал: "<em>Мы продолжаем делать своё дело. "Under Attack" олицетворяет традиции группы, а видео должно провоцировать обывателя. Глобальное объединение невозможно при наличии консервативных религиозных верований любого рода. Космополиты!!! Сохраняйте своё стремление к свободе, в другом случае просто не будет рок'н'ролла</em>".
+</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/KNmbUDA0Spg" frameborder="0" allowfullscreen=""></iframe>
+<p></p></center>
+Автор: Vit Belov
+
+### 11.08.2016 news Новое лирик-видео DESTRUCTION
+
+<p>Новый клип с текстами от<strong> DESTRUCTION</strong> на песню "<strong>Generation Nevermore</strong>" можно посмотреть ниже. Трек взят с последнего альбома классической немецкой thrash metal группы "<strong>Under Attack</strong>", который вышел в мае на <strong>Nuclear Blast</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mE6YrH-9ly4" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 11.08.2016 news DESTRUCTION - Lyric video of &quot;Generation Nevermore&quot; released!
+
+<p>Iconic thrash metal band <strong>DESTRUCTION</strong> has released their new masterpiece "<strong>Under Attack</strong>” on May 13th via <strong>Nuclear Blast Records</strong>.</p><p>Today, the band has uploaded the lyric video for the track "<strong>Generation Nevermore</strong>" on YouTube. Check it out here:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mE6YrH-9ly4" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 30.08.2016 news Выбираем лучшую группу в &quot;большой четвёрке&quot; немецкого thrash metal
+
+<h1>Выбираем лучшую группу в "большой четвёрке" немецкого thrash metal</h1><p>Голосуйте в правой колонке или на нашей страничке VK: <a href="https://vk.com/mmustdie">https://vk.com/mmustdie</a></p><p><strong>TANKARD, DESTRUCTION, KREATOR, SODOM?</strong></p><p><strong></strong>&nbsp;</p>
+Автор: Vit Belov
+
+### 30.08.2016 news Choose the best band of the big four of German thrash metal
+
+<h1>Choose the best band of the big four of German thrash metal</h1><p>Vote in the right column or on our page in VK: <a href="https://vk.com/mmustdie">https://vk.com/mmustdie</a></p><p><strong>TANKARD, DESTRUCTION, KREATOR, SODOM</strong>?</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Здесь вы найдёте новые альбомы Destruction, Godgory и ещё...

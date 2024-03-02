@@ -19,6 +19,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.11.2011 news Новое видео FORGOTTEN HORROR
+
+<P>Финская группа <STRONG>FORGOTTEN HORROR</STRONG> опубликовала своё дебютное видео на песню <STRONG>"The Serpent Creation</STRONG>" с первого одноимённого альбома, который вышел на <STRONG>Woodcut</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Destroyer of Time&nbsp; <BR></STRONG>2. <STRONG>Poison of God&nbsp; <BR></STRONG>3. <STRONG>For Thy Crimson Glory</STRONG>&nbsp; <BR>4. <STRONG>Burial Ground Prayer</STRONG>&nbsp; <BR>5. <STRONG>She Who Dwells Beyond Death</STRONG>&nbsp; <BR>6. <STRONG>The Serpent Creation</STRONG>&nbsp; <BR>7. <STRONG>Hannibal&nbsp; <BR></STRONG>8. <STRONG>Dreams of Scipio</STRONG></P>
+<P>&nbsp;<center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/_A6Wz5ruTKM?version=3&feature=player_profilepage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/_A6Wz5ruTKM?version=3&feature=player_profilepage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

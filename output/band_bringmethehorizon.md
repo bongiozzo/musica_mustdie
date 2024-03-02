@@ -34,6 +34,66 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.01.2009 news Новое видео BRING ME THE HORIZON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на песню "<STRONG>Chelsea Smiles</STRONG>" группы <STRONG>BRING ME THE HORIZON</STRONG> можно посомтреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=49826846">BMTH Bring Me The Horizon - Chelsea Smile Official Video</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=49826846,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=49826846,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.12.2010 news BRING ME THE HORIZON: видео на песню &quot;Anthem&quot;
+
+<P>Англичане <B itxtvisited="1">BRING ME THE HORIZON </B>выпустили новое видео на песню "<STRONG>Anthem"</STRONG>. Песня вошла на третий альбом группы, <B itxtvisited="1">"There Is A Hell, Believe Me I've Seen It. There Is A Heaven, Let's Keep It A Secret"</B>, который, в первую неделю после выхода, был продан в количестве 20.000 экземпляров на территории С.Ш.А. и дебютировал на позиции&nbsp;No. 17 в чартах <STRONG>The Billboard 200</STRONG>. </P>
+<CENTER>
+<OBJECT width=640 height=390><PARAM NAME="movie" VALUE="http://www.youtube.com/v/WBPcpQvPMOY&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/WBPcpQvPMOY&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 23.03.2011 news BRING ME THE HORIZON: видео на песню &quot;Blessed With A Curse&quot;
+
+<P><STRONG>"Blessed With A Curse"</STRONG> - новый клип британцев <B>BRING ME THE HORIZON</B>, можно посмотреть ниже.</P>
+<CENTER><IFRAME title="YouTube video player" height=390 src="http://www.youtube.com/embed/dH9Cyu51WdM" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 26.08.2011 news Новое видео BRING ME THE HORIZON
+
+<P>Новый клип британской metalcore команды<STRONG> BRING ME THE HORIZON</STRONG> <STRONG>"Visions" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Plastic Kid, </STRONG>альтер-эго датского авангардного художника <STRONG>Jakob Printzlau. </STRONG>Трек взят с третьего альбома группы <STRONG>"There Is A Hell, Believe Me I've Seen It. There Is A Heaven, Let's Keep It A Secret".</STRONG></P>
+<P><STRONG></STRONG><center><iframe width="640" height="390" src="http://www.youtube.com/embed/KfGYH_ovUQc" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.08.2013 news Видео новинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26013.jpg" width=200 height=285>В этом постинге&nbsp;опубликованы ссылки на 10 самых последних видео новинок от&nbsp;&nbsp;тяжёлых групп, которые так или иначе заслуживают внимание:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLACK TUSK</STRONG> "Truth Untold": <A href="http://youtu.be/yJXIvu4HqiY">http://youtu.be/yJXIvu4HqiY</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRING ME THE HORIZON</STRONG> "Go To Hell, For Heaven's Sake": <A href="http://youtu.be/9xLiI_-N4Hc">http://youtu.be/9xLiI_-N4Hc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CATTLE DECAPITATION</STRONG> "Your Disposal": <A href="http://youtu.be/szOlMfoN-jU">http://youtu.be/szOlMfoN-jU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> "All That's Left Is Blood": <A href="http://youtu.be/9OCh9hIGbGo">http://youtu.be/9OCh9hIGbGo</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEADLOCK</STRONG> "I'm Gone": <A href="http://youtu.be/R7M97B7bLZU">http://youtu.be/R7M97B7bLZU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEBAUCHERY</STRONG> "Let There Be Blood": <A href="http://youtu.be/7W8EU9HykoI">http://youtu.be/7W8EU9HykoI</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KILLSWITCH ENGAGE</STRONG> "Always": <A href="http://youtu.be/xcZIwXABBKA">http://youtu.be/xcZIwXABBKA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY RUIN</STRONG> "Moriendo Renascor": <A href="http://youtu.be/wNP_nITIuyQ">http://youtu.be/wNP_nITIuyQ</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEWSTED</STRONG> "Above All": <A href="http://youtu.be/6AWprBmbyuU">http://youtu.be/6AWprBmbyuU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TERROR</STRONG> "I'm Only Stronger": <A href="http://youtu.be/Gnx6ZusJbE4">http://youtu.be/Gnx6ZusJbE4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приятного просмотра!</FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 25.06.2016 news Новый клип BRING ME THE HORIZON
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое видео <strong>BRING ME THE HORIZON</strong> на песню <strong>“Avalanche</strong>” можно посмотреть ниже. Трек взят с альбома 2015 года "<strong>That's The Spirit</strong>".</font>&nbsp;</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/UNaYpBpRJOY" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 25.06.2016 news New clip of BRING ME THE HORIZON
+
+<p>New video for <strong>BRING ME THE HORIZON</strong>'s song “<strong>Avalanche</strong>” can be seen below. The track is taken from the album of 2015 "<strong>That's The Spirit</strong>".</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/UNaYpBpRJOY" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

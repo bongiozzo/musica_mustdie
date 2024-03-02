@@ -102,6 +102,38 @@ Japanese release includes the bonus track "The Shape of Things to Come".
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.06.2003 reviews Облачность с прояснениями
+
+<p>Дебютный альбом итальянской команды исполняющей чувственный и эмоциональный melodic death metal, полный личных переживаний. По словам самих музыкантов, на их творчество повлияли такие гранды, как SOILWORK, OPETH, ARCH ENEMY и IN FLAMES. Я с этим соглашусь, и добавлю к списочку еще DARK TRANQUILLITY и ранний AMORPHIS. Подобный материал, можно даже в какой-то степени, назвать оригинальным. И профессиональным на все 100 процентов. Альбом был записан в собственной домашней студии. В процессе работы, музыканты показали отличное техническое мастерство, записав альбом так как они хотели, без чьего-либо давления и каких-либо ограничений. В результате, альбом был выпущен полностью на средства группы и разошелся по всей Европе. Одновременно грустный, мелодичный и атмосферный материал. DISARMONIA MUNDI умело комбинирует все самые лучшие выкладки из творчества своих любимых групп и делает это настолько умело, что большинство подобных команд могут с позором удалиться на покой. Разнообразный как по тяжести, так и по темпу материал, чередующий броские агрессивные вокалы с меланхоличным чистым (в духе SENTENCED), содержащий большое количество акустических мечтательных вставок. Неожиданно хороший релиз от неизвестной молодой группы, для которой эта запись - первая. Рекомендую всем поклонникам грустного и меланхоличного melodic death metal.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 06.04.2004 news Disarmonia Mundi выпускают второй альбом
+
+<P>Новый альбом итальянцев <B>DISARMONIA MUNDI</B> <B>"Fragments Of D-Generation" </B>выйдет 17 мая на <B>Scarlet</B>. На этом альбоме гостит вокалист <B>SOILWORK</B> <B>Bj&#246;rn "Speed" Strid.</B> Трэк-лист:</P>
+<P>01. <B>Common State Of Inner Violence</B><BR>02. <B>Morgue Of Centuries</B><BR>03. <B>Red Clouds</B> <BR>04. <B>Quicksand Simmetry</B> <BR>05. <B>Swallow The Flames</B><BR>06. <B>OceanGrave</B> <BR>07. <B>A Mirror Behind</B><BR>08. <B>Come Forth My Dreadful One</B> <BR>09. <B>Shattered Lives And Broken Dreams</B> <BR>10. <B>Colors Of A New Era</B> </P>
+Автор: Vit Belov
+
+### 08.11.2008 news DISARMONIA MUNDI назвали альбом
+
+<P>Четвёртый альбом <STRONG>DISARMONIA MUNDI</STRONG> будет называться <STRONG>"The Isolation Game"</STRONG>. Вокалист<STRONG> SOILWORK</STRONG>, который пел на двух предыдущих пластинках коллектива, в новой работе участвовать не будет.</P>
+Автор: Vit Belov
+
+### 23.05.2009 news DISARMONIA MUNDI подписали контракт
+
+<P><STRONG>DISARMONIA MUNDI</STRONG> заключили соглашение с <STRONG>Coroner Records</STRONG>. Новый альбом <STRONG>"The Isolation Game" </STRONG>выйдет в октябре/ноябре. До это лэйбл переиздаст дебютную работу группы <STRONG>"Nebularium".</STRONG></P>
+Автор: Vit Belov
+
+### 04.11.2009 news Новый альбом DISARMONIA MUNDI
+
+<P><IMG height=399 alt="" hspace=0 src="/images/news_rus/2009.11/15425.jpg" width=400 align=right border=5>Новый альбом <STRONG>DISARMONIA MUNDI</STRONG> <STRONG>"The Isolation Game" </STRONG>выйдет 9 декабря на <STRONG>Coroner Records</STRONG>. В записи приняли участие <STRONG>Bjorn "Speed" Strid</STRONG> (<B>SOILWORK</B>)&nbsp;и <B>Olof M&#246;rck</B> (<B>NIGHTRAGE</B>). Трэк-лист:</P>
+<P>01. <B>Cypher Drone</B><BR>02. <B>Structural Wound</B><BR>03. <B>Perdition Haze</B><BR>04. <B>Building An Empire Of Dust</B><BR>05. <B>Stepchild Of Laceration</B><BR>06. <B>The Isolation Game</B><BR>07. <B>Blacklight Rush</B><BR>08. <B>Glimmer</B><BR>09. <B>Ties That Bind</B><BR>10. <B>Losing Ground</B><BR>11. <B>Same Old Nails For A New Messiah</B><BR>12. <B>Digging The Grave Of Silence</B><BR>13. <B>Beneath A Colder Sun</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

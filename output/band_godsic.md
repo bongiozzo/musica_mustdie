@@ -8,6 +8,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2011 news Рекламный ролик дебютного GODSIC
+
+<P>Первый ролик о дебютном альбоме шведов <STRONG>GODSIC</STRONG> <STRONG>"As The Heavens Burn" </STRONG>можно посмотреть ниже. Группа состоит из бывших и ныненшних участников <STRONG>CONSTRUCDEAD</STRONG> и <STRONG>CARNAL FORGE: Peter Tuthill</STRONG> (vocals), <STRONG>Rickard Dahlberg</STRONG> (guitar), <STRONG>Chris Barkensjo</STRONG> (drums)&nbsp;и <STRONG>Thomas Wallander</STRONG> (bass; ex-<STRONG>CONSTRUCDEAD</STRONG>).</P>
+<P>Альбом выйдет осенью на пока не названном лэйбле.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/EhAdTdjnCPc" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -35,6 +35,49 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2016 news POLTERGEIST возвращаются
+
+<p>Швейцарцы<strong> POLTERGEIST</strong> заключили контракт с <strong>Pure Steel records</strong>. Коллектив выпустит новый альбом "<strong>Back To Haunt</strong>"&nbsp;после 22-летнего перерыва.</p><p>Подробности последуют.</p><p><center><img width="600" height="401" src="/images/news_rus/2016.08/29872.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 27.08.2016 news POLTERGEIST returned after 22 years
+
+<p>The Swiss Thrash Band<strong> POLTERGEIST</strong> from Liestal signed a worldwide deal with<strong> PURE STEEL RECORDS</strong>. The band which is active since the 80's (Depression, Behind My Mask, Nothing Lasts Forever), will release the new album "<strong>Back To Haunt</strong>" via PURE STEEL RECORDS after 22 years. More News coming soon.</p><p>Band Statment: "<em>Swiss Thrash Metal legend POLTERGEIST is extremely proud to announce the signing to Pure Steel Records for their upcoming new album ‚BACK TO HAUNT’!<br>The band originally released three albums between 1989 and 1993 before calling it quits</em>".</p><p>Reunited in 2013 followed by powerful shows at the 70'000 Tons Of Metal Cruise, the Metal Assault and Headbangers Open Air Festivals, POLTERGEIST has come full circle for it’s new and fourth album. POLTERGEIST the cult Thrash institution since the late 80s is back to haunt once again!</p><p><center><img width="600" height="401" src="/images/news_rus/2016.08/29872.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 31.08.2016 news POLTERGEIST: обложка, трек-лист и дата релиза
+
+<p>Швейцарские thrash metal'исты<strong> POLTERGEIST</strong>, возвращающиеся из небытия с новым альбомом "<strong>Back To Haunt</strong>", назначили 21 октября датой релиза на <strong>Pure Steel Records</strong>. Известная techno thrash metal банда не выпускала новой музыки 22 года.</p><p>Трек лист:</p><p>1. Back To Haunt<br>2. Gone And Forgotten<br>3. Patterns In The Sky<br>4. And So It Has Begun<br>5. When The Ships Arrive<br>6. The Pillars Of Creation<br>7. Faith Is Gone<br>8. Flee From Today<br>9. Shell Beach<br>10. Beyond The Realms Of Time<br>11. A Distant Knowledge (Bonustrack)</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29889.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 31.08.2016 news POLTERGEIST revealed track list, cover and releasedate
+
+<p>The release date of the <strong>POLTERGEIST</strong> album „<strong>Back To Haunt</strong>“ (plus bonus song on the limited Edition) on CD is October 21st, 2016.&nbsp;For aficionados of technical Thrash Metal the comeback of the Swiss POLTERGEIST might be one of the most sensational reunions.</p><p>With albums such as “Depression” (1989) and “Nothing Lasts Forever” (1993) the guys around mainman <strong>V.O. Pulver</strong> (guitar) and <strong>Andrй Grieder</strong> (vocals) presented evergreen albums of the genre, which are still count as references for many. 22 years after the split they return with their fourth studio album, which is released through <strong>Pure Steel Records</strong>. Technical Thrash Metal with melodic vocals, sophisticated songwriting and a good, powerful production are the main strengths of the ten new tracks (plus bonus song on the limited Edition). With “Back To Haunt” POLTERGEIST made a great album, followers of the genre will love.</p><p>Track list:</p><p>1. Back To Haunt<br>2. Gone And Forgotten<br>3. Patterns In The Sky<br>4. And So It Has Begun<br>5. When The Ships Arrive<br>6. The Pillars Of Creation<br>7. Faith Is Gone<br>8. Flee From Today<br>9. Shell Beach<br>10. Beyond The Realms Of Time<br>11. A Distant Knowledge (Bonustrack)</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29889.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 07.09.2016 news POLTERGEIST выпустили сингл
+
+<p>Швейцарцы<strong> POLTERGEIST</strong> выпустили первый сингл с выходящего нового альбома. Им стала заглавная песня "<strong>Back To Haunt</strong>". Techno thrash metal коллектив не выпускал новой музыки 22 года.</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281617365&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+### 07.09.2016 news POLTERGEIST to release single
+
+<p>The Swiss<strong> POLTERGEIST</strong> has released the first single from the upcoming album. It became the title song "<strong>Back To Haunt</strong>". Techno thrash metal band has not released new music for 22 years.</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281617365&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+### 23.09.2016 news Возродившиеся POLTERGEIST выпустили второй сингл
+
+<p>Новый альбом возродившихся thrash-metal'истов <strong>POLTERGEIST "Back To Haunt"</strong>&nbsp;выходит 21 октября на <strong>Pure Steel Records</strong>. Второй сингл <strong>"And So It Has Begun"</strong> можно послушать ниже.</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281617933&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+### 23.09.2016 news Official single of POLTERGEIST
+
+<p><strong>POLTERGEIST – “And So It Has Begun”</strong> – official single from the album "<strong>Back To Haunt</strong>" - official release date: 21st of October 2016 by <strong>PURE STEEL RECORDS</strong>.</p><p>For aficionados of technical Thrash Metal the comeback of the Swiss POLTERGEIST might be one of the most sensational reunions.</p><p>With albums such as “Depression” (1989) and “Nothing Lasts Forever” (1993) the guys around mainman V.O. Pulver (guitar) and Andrй Grieder (vocals) presented evergreen albums of the genre, which are still count as references for many. 22 years after the split they return with their fourth studio album, which is released through Pure Steel Records. Technical Thrash Metal with melodic vocals, sophisticated songwriting and a good, powerful production are the main strengths of the ten new tracks (plus bonus song on the limited Edition).</p><p>With “Back To Haunt” POLTERGEIST made a great album, followers of the genre will love.</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/281617933&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

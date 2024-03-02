@@ -30,6 +30,57 @@ Death Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.02.2001 news Группа Pessimist подписала контракт с лейблом Lost Disciple Records
+
+<p> Группа Pessimist подписала контракт с лейблом Lost Disciple Records на выпуск своего третьего диска. Это будет сборник, включающий несколько концертных трэков и три песни с демо "Resurrected Torment". А пока группа продолжает писать материал для нового альбома и в марте\апреле отправится в студию записывать новый полноформатник (рабочее название этого диска "The Greater of Two Evils").</p>
+
+Автор: Nybras
+
+### 05.03.2001 news Величайшее из зол от PESSIMIST
+
+<p>PESSIMIST садится в студию в июне для записи нового полноформатника "The Greater of Two Evils". На сегодняшний день трек-лист включает следующие вещи: "Stripped of Immortality", "Summoned to Suffer", "Infernal Abyss", "Metempsychosis", "Baptism of Blasphemy" и "Resurrected Torment". Последняя инкарнация состава выглядит следующим образом: Ralph (Bass/Vocals), Bill (Guitars), и John (drums). Команда планирует отыграть несколько американских дат с товарищами по цеху - Morbid Angel.</p>
+
+Автор: Yermola
+
+### 05.03.2001 news The Greater of Two Evils
+
+<p>Pessimist are gearing up for their third release titled "The Greater of Two Evils". Fans can expect this release to be fastest and heaviest material to date, and features the talents of new members yet retains the Evil and technical "Pessimist" sound. Song titles so far include "Stripped of Immortality", "Summoned to Suffer", "Infernal Abyss", "Metempsychosis", "Baptism of Blasphemy" and "Resurrected Torment". The new incarantion of Pessimist features Ralph (Bass/Vocals), Bill (Guitars), and John (drums), adding a whole new level of intensity, technicality and brutality. They have landed some opening dates with the legendary Morbid Angel in NY and VA with more TBA. Other tour plans include tentative plans for a full scale US/Canadian tour, a rescheduled S American tour and possibly a European tour. They will also be appearing at this years NJ Metal Fest, the MA Metal and Hardcore fest and the Milwaukee Metal Fest.</p>
+
+Автор: Yermola
+
+### 28.10.2001 news Скоро выйдет новый альбом Pessimist
+
+<p>Третий альбом Pessimist "Slaughtering the Faithful" вскоре появится на прилавках музыкальных магазинов. Мастеринг альбома проходил в студии Cyberella, художественным оформлением обложки занимался JonZig. Из-за задержек выпуск альбома был отложен на некоторое время, но группа обещает, что это были не напрасные ожидания. Получился самый скоростной, самый злобный и экстремальный альбом в истории команды. Сокрушительные 37 минут, 9 песен убойного Brutal Black Death Metal ожидаются осенью / зимой этого года на Lost Disciple Records.</p>
+
+Автор: Morsus
+
+### 28.10.2001 news New Pessimist CD out soon
+
+<p>The 3rd full-length Pessimist CD entitled "Slaughtering the Faithful" is coming soon. Artwork is being completed by JonZig, and the CD is being mastered at Cyberella Studios. Due to delays the release has been pushed back slightly, but band promise it will be worth the wait. This is by far fastest, sickest and most extreme music in the history of the band. A crushing 37 Minutes, 9 Songs of Brutal Black/Death Metal, coming Fall/Winter 2001 on Lost Disciple Records.</p>
+
+Автор: Morsus
+
+### 21.01.2002 news Pessimist объявили нового барабанщика...
+
+<p>Mick Kimock из Нью-Джэрсийской дэс-команды "CORRUPTURE" официально стал новым барабанщиком "PESSIMIST". После записи диска "Slaughtering" и Milwaukee Metalfest группа долго не могла найти замену John Grden, который решил заняться своим побочным проектом TRUE UNHOLY DEATH (с участием Sparky Voyles из MISERY INDEX/DYING FETUS/MOD). <BR><BR> По словам "пессимистов" Mick принес в группу смертельный и высокотехничный стиль игры который вознесет группу к еще большим высотам (ого!)... <BR><BR> Кстати, <A HREF="http://www.pessimist.com/sounds/stripped_of_immortality.mp3">здесь </A>можно скачать песенку Stripped of Immortality в МР3...</p>
+
+Автор: Yermola
+
+### 21.01.2002 news Pessimist drummer Announced....
+
+<p>It's now Official...Mick Kimock of NJ Death Metal Band CORRUPTURE (also band of PESSIMIST vox/bassist Reaper)is the new drummer for PESSIMIST.<BR><BR> After recording of the Slaughtering CD and Milwaukee Metalfest '01 the decision was made to find a replacement for drummer John Grden. Grden (Ex-FEAR OF GOD) has been an integral part of Pessimist the past year and a half, and we wish him the best as he continues with his side project TRUE UNHOLY DEATH (featuring Sparky Voyles, of MISERY INDEX/DYING FETUS/MOD).<BR><BR> Mick brings a lethal hi-tech drumming style that will propel the band to even further heights!! Long-time Pessimist fans will be pleased to hear the return of classics from the first two albums Cult of the Initiated and Blood For the Gods to our live set as well as songs from the new CD Slaughtering at upcoming shows in 2002!!!<BR><BR> UPCOMING SHOWS:<BR> 1/22 W. Springfield, VA (w/ Marduk, Amon Amarth, Diabolic)<BR> 2/10 Springfield, MA (w/Burial)<BR> 3/15 Baltimore, MD (w/Divine Rapture)<BR> 3/16 Gloucester, NJ (w/Mortal Decay)<BR> 4/05 Asbury Park, NJ - Metal Meltdown IV<BR><BR> More shows TBA including the CD Release Party in NY, and US Tour in '02. Complete info for all shows at the Pessimist web site http://www.pessimist.com<BR><BR> SLAUGHTERING THE FAITHFULCD: Coming Soon!<BR> Release Date: Feb. 12, 2002<BR> Label: Lost Disciple Recs<BR> Produced by Erik Rutan<BR> Art by Jon Zig<BR><BR> Track Listing:<BR> 1. Requiem <BR> 2. Baptized in Blasphemy<BR> 3. Summoned to Suffer<BR> 4. Embodiment of Impurity<BR> 5. Slaughtering the Faithful<BR> 6. Infernal Abyss<BR> 7. Metempsychosis <BR> 8. Resurrected Torment<BR> 9. Stripped of Immortality**<BR><BR> ** NEW MP3!! CLick <A HREF="http://www.pessimist.com/sounds/stripped_of_immortality.mp3">here to check it out...</A></p>
+
+Автор: Yermola
+
+### 12.06.2002 reviews Тупое американское рубилово
+
+<p>Тупое американское рубилово. Не больше, не меньше. А рекламную кампанию-то какую раздули! И Дерик Родди (MALEVOLENT CREATION) тут вам в качестве звукоинженера, и Эрик Рутан (в представлении, надо полагать, не нуждающийся) в кресле продюсера, и Йон Зиг (DEEDS OF FLESH), ответственный за мастеринг! И "одна из наиболее востребованных и уважаемых групп в андерграунде"! Ну да, запись достойная. Ну да, группа пользуется умеренной популярностью. А дальше то что? А ничего. Тупой, монотонный до омерзения death metal ярой антихристианской направленности. О том, что такое разнообразие, эти ребята, видать, и понятия не имеют. Способностью к воображению и желанием творчески мыслить их определённо обделили ещё при рождении. В результате, "имеем то, что имеем" (c) КМС. Больше десяти минут слушать не рекомендуется. По крайней мере, если вы за рулём. В качестве снотворного "Slaughtering The Faithful" действует безотказно.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

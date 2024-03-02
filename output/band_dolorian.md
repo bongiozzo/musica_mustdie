@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.06.2005 news DOLORIAN начали запись
+
+<P>После двух лет молчания black-doom группа <STRONG>DOLORIAN</STRONG> начали запись третьего альбома.</P>
+Автор: Vit Belov
+
+### 27.06.2005 news DOLORIAN start recordings
+
+<P>After two years of silence black-doom-metal band <STRONG>DOLORIAN</STRONG> start to record new third album.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -21,6 +21,34 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.05.2010 news Переиздание DEATHBRINGER
+
+<P><STRONG>MSR Productions</STRONG> представляет переиздание дебютного альбома белорусско-польского тандема<STRONG> DEATHBRINGER</STRONG>! Мощный, интеллектуальный progressive technical death metal стал последователем лучших традиций флоридского жанра (<STRONG>DEATH, ATHEIST, CYNIC</STRONG>). Альбом был записан в польской <STRONG>Studio-X</STRONG> и спродюссирован <STRONG>Szymon Czech</STRONG>, ранее работавшим с такими колективами как: <STRONG>SCEPTIC, VESANIA, YATTERING</STRONG> и др. В записи также принял участие <STRONG>Jacek Hiro (SCEPTIC, DIES IRAE)</STRONG>. Трэк-лист:</P>
+<P>1.<STRONG> Prisoner</STRONG><BR>2. <STRONG>The Keeper of Pain</STRONG><BR>3.<STRONG> I Am What I Am</STRONG><BR>4. <STRONG>Castigato</STRONG><BR>5. <STRONG>Aversion<BR></STRONG>6. <STRONG>Labores Semper Tecum</STRONG><BR>7. <STRONG>Aisthetes</STRONG> (instrumental)<BR>8. <STRONG>Black Pilgrim</STRONG><BR>9. <STRONG>No Mean City (part 2)</STRONG> – Nazareth cover<BR>10. <STRONG>Flesh And The Power It Holds</STRONG>&nbsp; - Death cover</P>
+<P>Композиции <STRONG>“Prisoner”</STRONG> и “<STRONG>Aversion</STRONG>” можно скачать отсюда: <A href="http://ifolder.ru/17683760">http://ifolder.ru/17683760</A><BR><A href="http://www.myspace.com/deathbringerband">http://www.myspace.com/deathbringerband</A><BR><A href="http://vkontakte.ru/club68882">http://vkontakte.ru/club68882</A></P>
+<P>Приобрести этот диск можно в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+### 17.07.2010 reviews Наследие Chuck Schuldiner
+
+<P>Дебютный и единственный на сегодня альбом белорусской группы DEATHBRINGER “Homo Divisus” вышел в 2007 году на Sound Age. По какой-то причине эта пластинка была переиздана на MSR Production в этом году. Если ориентироваться на качество представленного на работе материала, то он достоин множества переизданий. Но реальность такова, что первый пресс этой пластинки так и остался нераспроданным. Что же будет со вторым?</P>
+<P>“Homo Divisus” – один из лучших techno death-metal альбомов, созданных на территории бывшего СССР. И это факт. Бережное отношение к наследию рано ушедшего от нас лидера DEATH Chuck Schuldiner прослеживается на этом альбоме во всём. Философские размышления о жизни как в музыке, так и в текстах, цитаты известных философов, перемежаемые цитатами самого Schuldiner, неожиданные ходы, хаос, переходящий в завораживающую мелодию. Всё это есть здесь. Описать подобную музыку достаточно сложно, она комплексна и нетривиальна, но если вы являетесь поклонником DEATH, этот альбом безусловно для вас. Прибавьте к этому безупречное качество записи польского розлива, и вы получите идеальный альбом.</P>
+<P>Переиздание этой работы является ещё одним поводом для того, чтобы обратить на неё всеобщее внимание. Рекомендую к прослушиванию всем.</P>
+Автор: Vit Belov
+
+### 20.01.2013 news Penumbra Divisus Tour 2013: DEATHBRINGER (Беларусь) и PSILOCYBE LARVAE (Россия)
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25191.jpg" width=400 height=563>В феврале 2013 г. на земли Беларуси обрушится сокрушительный концертный ураган под названием <STRONG>Penumbra Divisus Tour 2013</STRONG>.</P>
+<P>Одни из самых интересных и мощных коллективов на постсоветском пространстве, <STRONG>DEATHBRINGER</STRONG> (Беларусь) и <STRONG>PSILOCYBE LARVAE </STRONG>(Россия), нанесут двойной удар по 6 городам страны. </P>
+<P>Прог-дэтстеры <STRONG>DEATHBRINGER</STRONG> отпразднуют 10-летие группы и выступят практически в своём первоначальном составе, собрав музыкантов из Беларуси, Польши и России; питерские <STRONG>PSILOCYBE LARVAE</STRONG> порадуют всех поклонников маниакально-депрессивного дарк-металла своим новым творением под названием <STRONG>"The Labyrinth Of Penumbra"</STRONG>.</P>
+<P><STRONG>Penumbra Divisus Tour 2013</STRONG>:</P>
+<P>19 февраля - <STRONG>Витебск</STRONG> - клуб "Зебра"<BR>20 февраля - <STRONG>Могилёв</STRONG> - клуб "Лига"<BR>21 февраля - <STRONG>Гомель</STRONG> - клуб "Немо"<BR>22 февраля - <STRONG>Минск</STRONG> - клуб "Rocker Bar"<BR>23 февраля - <STRONG>Брест</STRONG> - клуб "Сфера"<BR>24 февраля - <STRONG>Гродно</STRONG> - клуб "Парламент"</P>
+<P>Умри, но приди!</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -22,6 +22,9 @@
 * C группой "The Old Dead Tree" Nicolas Chevrollier (guitar)
 * C группой "The Old Dead Tree" Vincent Danhier (bass)
 
+## Публикации
+
+
 ## Обсуждения
 
 

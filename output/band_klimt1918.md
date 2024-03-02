@@ -47,6 +47,43 @@ and some alternative versions of some „Dopoguerra“ songs
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2003 reviews Совершенство достижимо
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off">My Kingdom Music продолжает радовать нас отличнейшими релизами. Надеюсь, вы уже в курсе, что первые три релиза этого лейбла оказались на редкость удачными. А коли не в курсе, рекомендую срочно озаботиться приобретением последними работами DEINONYCHUS, ROOM WITH A VIEWи CROWHEAD. “Undressed Momento”, дебютный полноформатник итальянцев из KLIMT 1918, им не уступает. Да чего уж там: этот альбом «делает» все альбомы всех итальянских команд, когда-либо отметившихся на ниве т.н. gothic-metal’а. Не спешите плеваться: love-metal’ом в духе HIM, сладеньким gothic rock’ом в духе THE 69 EYES или каким-нибудь ENTWINE’ом здесь и не пахнет. Ближайшие аналогии: поздняя ANATHEMA, поздний TIAMAT (послушайте хотя бы “IfOnlyYouCouldSeeMeNow”); иногда проскакивает поздняя же KATATONIA, а где-то и PORCUPINE TREE на пару с U2, NEW MODEL ARMY и NOZZLE. В завершающей альбом песне (“Stalingrad Theme”, которая, ИМХО, одновременно является и лучшей темой с “Undressed Momento”) на свет вылезает прог-дэтовое прошлое команды… Стоит также обратить внимание на шикарный голос вокалиста (чистый и только чистый!), блестящие аранжировки и отличную работу ритм-секции… Иногда некоторым удаётся-таки приблизиться к совершенству и коснуться его рукой…</TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE>
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off"></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE>
+<BLOCKQUOTE id=32f1c45d>
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%">
+<TD id=HB_Focus_Element vAlign=top width="100%" background="" height=250 UNSELECTABLE="off"></TD></TR>
+<TR UNSELECTABLE="on" hb_tag="1">
+<TD height=1 UNSELECTABLE="on">
+<DIV id=hotbar_promo></DIV></TD></TR></TBODY></TABLE></BLOCKQUOTE>
+Автор: Kai Mathias Stalhammar
+
+### 26.02.2005 news KLIMT 1918 выпускают новый альбом
+
+<P><STRONG>KLIMT 1918</STRONG> выпускают свой новый альбом "<STRONG>Dopoguerra</STRONG>" 25 апреля на <STRONG>Prophecy</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>-<BR></STRONG>2. <STRONG>They Were Wed By The Sea<BR></STRONG>3. <STRONG>Snow Of &#180;85<BR></STRONG>4. <STRONG>Rachel<BR></STRONG>5. <STRONG>Nightdriver<BR></STRONG>6. <STRONG>Because Of You, Tonight<BR></STRONG>7. <STRONG>Dopoguerra<BR></STRONG>8. <STRONG>La Tregua<BR></STRONG>9. <STRONG>Lomo<BR></STRONG>10. <STRONG>Sleepwalk In Rome</STRONG></P>
+<P>Tracklist Bonus CD of the Luxuary Edition:</P>
+<P>1. <STRONG>Never Ever<BR></STRONG>2. <STRONG>They Were Wed By The Sea<BR></STRONG>3. <STRONG>Cry A Little<BR></STRONG>4. <STRONG>Driving At The End Of The Night<BR></STRONG>and some alternative versions of some „<STRONG>Dopoguerra</STRONG>“ songs</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

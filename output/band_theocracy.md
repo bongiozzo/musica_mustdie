@@ -58,6 +58,49 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.08.2016 news Новый альбом THEOCRACY
+
+<p>Четвёртый альбом американской prog power metal команды<strong> THEOCRACY "Ghost Ship"</strong> выйдет 28 октября на <strong>Ulterium</strong>. Группа надеется повторить успех своего предыдущего опуса "<strong>As the World Bleeds</strong>", который пришёлся по вкусу всем любителям тяжёлого и не слишком заумного power progressive metal.</p><p>Трек-лист:</p><p>01. Paper Tiger<br>02. Ghost Ship<br>03. The Wonder Of It All<br>04. Wishing Well<br>05. Around the World and Back<br>06. Stir the Embers<br>07. A Call To Arms<br>08. Currency In A Bankrupt World<br>09. Castaway<br>10. Easter</p><p><center><img width="480" height="480" src="/images/news_rus/2016.08/29817.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 17.08.2016 news THEOCRACY will release new album in October
+
+<p>The Athens, Georgia-based melodic metal band<strong> THEOCRACY</strong> will release their new album <strong>"Ghost Ship</strong>" on October 28th in Europe and North America through <strong>Ulterium Records</strong>. Information on different editions and formats will be announced soon.</p><p>With Ghost Ship, Theocracy perfects the lively and fully-realized sound of As the World Bleeds, delivering 10 muscular and streamlined tracks that never lose focus and combine for one memorable journey. You like midtempo singalong anthems? Try the “Ghost Ship” title track. Thrashy rhythms and intensity? “The Wonder of It All” should be to your liking. Emotional ballads with huge melodic hooks? Go “Around the World and Back.” Or if you prefer epic, progressive tracks that do all these things and more, 10-minute album closer “Easter” is sure to be a favorite. Each song on Ghost Ship stands alone and has a unique signature, but every moment sounds unmistakably like Theocracy.</p><p>“<em>So many kids were coming up to us after shows and telling us their stories,”</em> says Theocracy vocalist <strong>Matt Smith</strong><em>. “A lot of them were searching for purpose and a place to fit in, and having grown up as an awkward and unpopular kid myself, their words really stuck with me. I started thinking about what a band of misfits Jesus’ disciples were: fishermen, tax collectors, and people of little consequence in the eyes of the world. Sometimes the ones most people don’t see, or choose to look straight through—the ghosts of society, as it were, dead to the world—end up having the biggest impact. That’s where the title and idea for Ghost Ship came from: all the misfits, the uncool, the outcasts, there is a place where you do fit in. Although Ghost Ship is not a concept album, this is a recurring theme, particularly in the title track and ‘Castaway</em>.’”</p><p>"Ghost Ship" track listing</p><p>01. Paper Tiger<br>02. Ghost Ship<br>03. The Wonder Of It All<br>04. Wishing Well<br>05. Around the World and Back<br>06. Stir the Embers<br>07. A Call To Arms<br>08. Currency In A Bankrupt World<br>09. Castaway<br>10. Easter</p><p><center><img width="480" height="480" src="/images/news_rus/2016.08/29817.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 07.09.2016 news Тизер нового альбома THEOCRACY
+
+<p>Мы уже сообщали, что новый альбом американской power progressive metal группы<strong> THEOCRACY "Ghost Ship"</strong> выходит 28 октября на <strong>Ulterium Records</strong>. Ниже можно услышать рекламный тизер этого альбома.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9gbecZlmiMc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 07.09.2016 news Teaser of THEOCRACY new album
+
+<p>We have already reported that the new album by American progressive power metal band <strong>THEOCRACY "Ghost Ship"</strong> coming out on October 28 on <strong>Ulterium Records</strong>. Below you can hear a promotional teaser of this album.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/9gbecZlmiMc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.09.2016 news Новое лирик-видео THEOCRACY
+
+<p>Новый клип "<strong>Wishing Well</strong>" от американской power progressive metal группы <strong>THEOCRACY</strong> можно послушать ниже. Трек в лирик-видео попадёт на новый альбом группы "<strong>Ghost Ship</strong>", который выйдет 28 октября на <strong>Ulterium Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VUHiIEbIY7M" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.09.2016 news New lyric video of THEOCRACY
+
+<p>New video for "<strong>Wishing Well</strong>" from the American progressive power metal band <strong>THEOCRACY</strong>, can be streamed below. Track in a lyric video will be on the new album, "<strong>Ghost Ship</strong>," which will be released October 28 on <strong>Ulterium Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VUHiIEbIY7M" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.10.2016 news THEOCRACY выпустили новый видео-клип
+
+<p>Новый ролик американской power progressive metal группы <strong>THEOCRACY</strong> на песню "<strong>Ghost Ship</strong>" можно посмотреть ниже. Трек войдёт в новый одноимённый альбом коллектива, который выйдет 28 октября на <strong>Ulterium Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/C9fpNQ67SaE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.10.2016 news THEOCRACY released new video
+
+<p>A new video of American power progressive metal band<strong> THEOCRACY</strong> for the song "<strong>Ghost Ship</strong>" can be viewed below. The track will be included in the new album "<strong>Ghost Ship</strong>", which will be released October 28 on <strong>Ulterium Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/C9fpNQ67SaE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -148,6 +148,153 @@ Outro
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Новый альбом Sodom будет называться "Code Red" и выйдет 17 мая. На альбоме будет 12 песен плюс бонус-кавер на песню Accept "I'm a Rebel". В паре с этим альбомом выйдет трибьют к самой группе "Homage To The Gods". На работе засветятся Cradle Of Filth, Impaled Nazarene, Dark Funeral, Atanatos, Enthroned, Brutal Truth и другие.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>В Москве нам предстоит два супер шоу. На первом 18 ноября в ДК им. Горбунова на МеталAgen Фесте выступят Marduk, Enthroned, Angel Corpse, а также одна литовская команда и россияне Thron и Neotruth. А 4 и 5 декабря нас ждёт встреча "королями металла" Manowar всё в той же Горбушке.</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 news 
+
+<p>Небирос покинул Enthroned, из-за того, что он хочет дэт вместо блэк</p>
+
+Автор: Vit Belov
+
+### 10.11.2000 bios Enthroned
+
+<p> Enthroned were formed during 1993 by Lord Sabathan and Cernunnos after the split of their previous bands Morbid Death (1987-1991) and Blaspherion (1991 - 1993). They were then reinforced by Tsebaoth on guitar who came to them from the unholy death metal band, Slanesh, and lo the Blackened Horde were born!</p>
+<p> Enthroned released a 5-track promo in mid '94 which attracted the attention of a few labels. Following that, the anti-Christian warriors released a 7" split-EP with Ancient Rites on the Belgian underground label, Afterdark Records. Upon the demise of Afterdark Records the horde had to look around for someone else to release their first infernal masterpiece, "Prophecies Of Pagan Fire" which was recorded in April 1995. A partner was found in Evil Omen Records a sub-division of Osmose Productions but this was to remain a one-off agreement.</p>
+<p> Sometime after that release, the band recruited a second string rapist by the name of Nornagest "Lord Of Hate, Wrath and Almighty Vengeance" who was the bassist/vocalist with the black/speed metal band, Heresia, prior to enlisting in the Blackened Horde. Eventually, Tsebaoth was replaced by Nebiros "Summoner Of The Black Flame", a very extreme musician who has brought his own brand of originality to the band and compliments the brutal and barbaric style of Nornagest.</p>
+<p> Since the release of their demo, the band have played many shows with bands such as: Marduk, Enslaved, Dark Funeral, Gehenna, Luciferion and Emperor to name but a few, as well as large open air festivals in Germany and Belgium. During a European Tour in '96 with Ancient Rites, Bewitched and Sacramentum, Enthroned wrought havoc in The Netherlands, Belgium, Germany, Italy, France, Spain and Portugal.</p>
+<p> In April '97, just as the band were due to record "Towards The Skullthrone Of Satan", Cernunnos committed suicide. For other bands this would perhaps have been the end but the band, in true Enthroned style, went on to record the album having recruited a session drummer and not a drum machine as stated on the internet and by false rumours.</p>
+<p> Towards The Skullthrone Of Satan" was followed up by "Regie Satanas" which was intended as a tribute to their war-brother Cernunnos and saw the first appearance by the new man behind the drums, Namroth Blackthorn. "Regie Satanas" included some old material plus some new tracks and a killer version of the Sodom track, The Conqueror.</p>
+<p> The year 1998 saw Enthroned on the road again. This time they raged through Europe with Dark Funeral in the Spring and with Hecate Enthroned and Usurper in the Winter thus showing, with their gut ripping live performances, that this band are an ever present force to be reckoned with.</p>
+<p> Now we write the year 1999 and Enthroned are preparing for the release of their most intense masterpiece to date, "The Apocalypse Manifesto". The release is planned for May 1999 and will be followed by diverse live shows around Europe and abroad. Plans are also currently being forged for a European tour later this year so look out for that.</p>
+<p> A word of warning then to all ye weak and feeble creatures, Enthroned are on the march and will crush everything that stands in their path for no force known on this earth will stand in the way of the Blackened Horde!!!</p>
+
+Автор: Nybras
+
+### 26.12.2000 news Enthroned закончили запись нового альбома
+
+<p> Enthroned закончили запись своего нового альбома "Armoured Bestial Hell", который станет их последней работой с леблом Blackened.</p>
+
+Автор: Nybras
+
+### 21.01.2002 news Enthroned подписали контракт с Napalm Records
+
+<p>Дремучие монстры бельгийской black metal сцены Enthroned недавно подписали контракт с Napalm Records. Альбом сей блэкушной банды ожидается ориентировочно в мае 2002 года.</p>
+
+Автор: Morsus
+
+### 21.01.2002 news Enthroned has signed to Napalm Records
+
+<p>The mighty Enthroned hailing from the depths of the Belgian black metal scene has recently signed to Napalm Records. Expect a worthy release from this blackened horde tentatively in May 2002.</p>
+
+Автор: Morsus
+
+### 09.07.2002 news MassaBrutto Radioshow #88, 8-9 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. SCARIOT - Death Request (band)<BR> 2. ENTHRONED - The Face Of Death (Blackend)<BR> 3. SINISTER - Sacramental Carnage (Nuclear Blast)<BR> 4. SINISTER - Creative Killings (Hammerheart)<BR> 5. SINISTER - Storm In My Mind [by POSSESSED] (Hammerheart)<BR> --- --- --- --- --- --- --- --- --- ---<BR> новости от Михаила Василькова<BR> --- --- --- --- --- --- --- --- --- ---<BR> 6. IMPIOUS - Dead Eyes Open (Hammerheart)<BR> 7. SINISTER - Sadistic Intent (Nuclear Blast)<BR> 8. SINISTER - Corridors To The Abyss (Nuclear Blast)<BR> 9. CRYHAVOC - Cryscythe (Spinefarm/Nuclear Blast/Legacy)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto</p>
+
+Автор: Yermola
+
+### 09.07.2002 news MassaBrutto Radioshow #88, 8-9 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SCARIOT - Death Request (band)<BR> 2. ENTHRONED - The Face Of Death (Blackend)<BR> 3. SINISTER - Sacramental Carnage (Nuclear Blast)<BR> 4. SINISTER - Creative Killings (Hammerheart)<BR> 5. SINISTER - Storm In My Mind [by POSSESSED] (Hammerheart)<BR> 6. IMPIOUS - Dead Eyes Open (Hammerheart)<BR> 7. SINISTER - Sadistic Intent (Nuclear Blast)<BR> 8. SINISTER - Corridors To The Abyss (Nuclear Blast)<BR> 9. CRYHAVOC - Cryscythe (Spinefarm/Nuclear Blast/Legacy)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 22.10.2002 reviews Всем &quot;трушникам&quot; и прочим &quot;ивелам&quot; посвящается...
+
+<p>Блэк. Бельгийский. Черный-пречёрный. Злобный-презлобный. И, простите, немного смешной. Что-то все эти скорченные в фальшивом пароксизме злости измалёванные рожи и "трушные" донельзя тексты с непременными обращениями к "отцу Сатане" (само собой, данные обращения не могут быть в количестве меньше двух штук на песню ;-)) в последнее время стали меня сильно веселить. И в цирк ходить не надо – достаточно открыть буклет любого альбома любых трушников-блэкушников. Впрочем, в цирке, как правило, препоганая музыка. Поэтому лично я выберу тот же ENTHRONED не только в целях экономии, но и из-за неё, родимой. Музыки, то бишь. Которая в данном случае весьма недурственна. Ничего странного – ведь ENTHRONED собрались далеко не вчера, а "Carnage In Worlds Beyond" далеко не первый их альбом. И не второй. И не третий. И даже не четвёртый. Шестой. Немногие группы, играющие прямолинейный скоростной блэк (а именно им с нами щедро делятся ребята из ENTHRONED), способны удержаться на плаву столько, сколько необходимо для такой вот, достаточно внушительной, дискографии. Ничего оригинального здесь и в помине нет, однако понять, что перед вами именно ENTHRONED и никто иной, как ни странно, не составляет труда. Несмотря на абсолютно неоригинальную музыку (да что уж там – Sabathan сотоварищи и не стремятся создавать таковую), у этой группы есть своё лицо. Что есть несомненный плюс. А есть ли здесь ещё какие-либо плюсы? Конечно. Во-первых, качественнейшая запись, вышедшая со стапелей Spiderhouse Studio, и отрежиссированная самим Харрисом Джонсом. Во-вторых, "трушность" НЕ вопреки здравому смыслу. В результате имеем хорошие аранжировки и качественную музыку, которая, тем не менее, страдает некоторым однообразием. В-третьих, альбом стоит купить хотя бы из-за того, чтобы услышать бесподобный вокал несравненного Sabathan'а. Бьюсь об заклад, Дональду Даку такой голос и не снился. С одной стороны, достаточно самобытно, с другой – до чёртиков смешно. "Трушникам" и прочим "ивелам" посвящается… ;-)</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 01.10.2004 news ENTHRONED выпускают новый альбом
+
+<P>Новый альбом <STRONG>ENTHRONED "XES Haereticum"</STRONG> выходит 1 ноября на <STRONG>Napalm Records</STRONG>. Кроме прочего, будет достопно лимитированное издание, на котором будут 3 бонус-трэка.</P>
+<P>MP3 здесь: <A href="/samples/e/enthroned/2004_1201.mp3">http://musica.mustdie.ru/samples/e/enthroned/2004_1201.mp3</A></P>
+Автор: Vit Belov
+
+### 01.10.2004 news ENTHRONED to release new album
+
+<P>The Belgium Black Metal band <STRONG>ENTHRONED</STRONG>, have completed work on their upcoming album "<STRONG>XES Haereticum</STRONG>" and are more than satisfied with the results. </P>
+<P><STRONG>Nornagest</STRONG> describes the new album as having "<EM>a more mature, varied, and darker aspect than previous releases, yet more intense and aggressive than ever before</EM>." </P>
+<P>"<STRONG>XES Haereticum</STRONG>" is scheduled for a 1 Nov release through <STRONG>Napalm Records</STRONG> and will be available as a regular and limited edition. The limited edition digipack version includes 3 bonus tracks!</P>
+<P>MP3 here: <A href="/samples/e/enthroned/2004_1201.mp3">http://musica.mustdie.ru/samples/e/enthroned/2004_1201.mp3</A></P>
+Автор: Vit Belov
+
+### 25.10.2006 news ENTHRONED расстались с вокалистом
+
+<P><STRONG>ENTHRONED </STRONG>расстались с вокалистом <STRONG>Sabathan.</STRONG> Основной причиной названа незаинтересованность певца в black-metal творчестве.</P>
+Автор: Vit Belov
+
+### 20.07.2007 news Новый альбом ENTHRONED
+
+<P><STRONG><IMG height=357 alt="" hspace=0 src="/images/news_rus/2007.07/11734.gif" width=360 align=right border=5>ENTHRONED</STRONG> сообщили подробности о своём новом альбоме "<STRONG>Tetra Karcist</STRONG>", выходящем в сентябре на <STRONG>Napalm Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Ingressvs Regnvm Spiritvs</B><BR>02. <B>Pray</B><BR>03. <B>Tellvm Scorpionis</B><BR>04. <B>Deviant Nerve Angelus</B><BR>05. <B>The Burning Dawn</B><BR>06. <B>Through the Cortex</B><BR>07. <B>The Seven Ensigns of Creation</B><BR>08. <B>Nox</B><BR>09. <B>Vermin</B><BR>10. <B>Antares</B></P>
+Автор: Vit Belov
+
+### 22.01.2008 news ENTHRONED на Regain
+
+<P><STRONG>ENTHRONED</STRONG> заключили сделку с <STRONG>Regain Records</STRONG>. Новостей о новом альбоме пока не поступало.</P>
+Автор: Vit Belov
+
+### 29.01.2009 news ENTHRONED назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Будущий альбом <STRONG>ENTHRONED</STRONG> получил название <STRONG>"Pentagrammaton". </STRONG>Пластинка выйдет в этом году на <STRONG>Regain Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.09.2009 news ENTHRONED поменяли двух человек
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бельгийцы <STRONG>ENTHRONED</STRONG> сообщили о том, что группу покинули барабанщик <STRONG>Ahephaim </STRONG>и гитарист <STRONG>Nguaroth</STRONG>. Им уже найдена замена, за барабанную стойку сядет бывший музыкант<STRONG> GORGOROTH</STRONG> <STRONG>Garghuf, </STRONG>а после пятилетней отлучки в группу вернулся гитарист <STRONG>Neraath.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 13.11.2009 news ENTHRONED начали запись
+
+<P>Бельгийцы <STRONG>ENTHRONED </STRONG>уже в студии, где начали запись нового альбома "<STRONG>Pentagrammaton</STRONG>". Новый барабанщик <STRONG>Garghuf</STRONG> (ex-<STRONG>GORGOROTH</STRONG>) уже сделал своё дело. Группа обещает лучший альбом <STRONG>ENTHRONED</STRONG>, что и понятно.</P>
+Автор: Vit Belov
+
+### 09.01.2010 news Новая песня ENTHRONED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бельгийцы<STRONG> ENTHRONED</STRONG> выложили свою новую песню <STRONG>"The Vitalized Shell" </STRONG>на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/enthronedhorde">http://www.myspace.com/enthronedhorde</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Этот трэк попадёт на новый альбом black-metal'истов <STRONG>"Pentagrammaton"</STRONG>, выходящий 22 марта на <STRONG>Regain Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 18.01.2012 news Обложка нового ENTHRONED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ENTHRONED "Obsidium"</STRONG> выйдет в начале этого года на<STRONG> Agonia Records</STRONG>. Группа выложила в сеть обложку этого релиза, созданную <STRONG>Olve J. W. I.</STRONG> </FONT></P>
+<P><center><IMG height=460 src="/images/news_rus/2012.01/22693.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 01.03.2012 news Новая песня ENTHRONED
+
+<P>Новый трек <STRONG>ENTHRONED "Nonus Sacramentvm - Obsidium" </STRONG>можно послушать ниже. Песня попала на новейший альбом бельгийского коллектива "<STRONG>Obsidium</STRONG>", который выйдет 20 марта на <STRONG>Agonia Records</STRONG>.</P>
+<P><center><iframe width="60%" height="166" scrolling="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F37274699&show_artwork=true" frameborder="0" ></iframe></P>
+Автор: Vit Belov
+
+### 01.03.2014 news Новая песня ENTHRONED
+
+<P>Трек <STRONG>'Of Feathers And Flames'</STRONG> c нового альбома<STRONG> ENTHRONED "Sovereigns"</STRONG> можно послушать ниже. Релиз альбома намечен на 15 апреля на <STRONG>Agonia Records</STRONG>. </P>
+<P>Трек-лист:</P>
+<P>01.<STRONG> Anteloquium</STRONG> | 02.<STRONG> Sine Qua Non</STRONG> | 03.<STRONG> Of Feathers and Flames</STRONG> | 04.<STRONG> Lamp of Invisible Lights</STRONG> | 05.<STRONG> Of Shrines and Sovereigns</STRONG> | 06.<STRONG> The Edge of Agony</STRONG> | 07. <STRONG>Divine Coagulation</STRONG> | 08. <STRONG>Baal al-Maut</STRONG> | 09. <STRONG>Nerxiarxin Mahathallah</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.03/26710.jpg" width=500 height=500>&nbsp;
+<P></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/3_wzmYOLzCs?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Enthroned (Бельгия) в СПб и Москве (2015 г.)

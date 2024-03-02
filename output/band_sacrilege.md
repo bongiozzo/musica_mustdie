@@ -49,6 +49,21 @@ Sorg
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

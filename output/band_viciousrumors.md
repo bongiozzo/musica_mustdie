@@ -127,6 +127,151 @@ Urteaga and Geoff Thorpe.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.03.2001 news Петерс Поп Шоу продолжается...
+
+<p>Бэй Ариа легенда Эрик Петерсон ("Testament") родил новый проект "DRAGONLORD". Уже достигнута договоренность со "Spitfire Records" на выпуск дебютника "Rapture" летом 2001. Эрику помогают братья по оружию: Jon Allen ("Sadus") - барабаны, Lyle Livingston ("Psypheria") - оркестровки, Steve Smyth ("Vicious Rumors") - соло гитара и сам Петерсон - вокал и ритм гитара. "Идея Dragonlord появилась у меня еще во время записи 'The Gathering' в 1998 году" - говорит Эрик. "Я кое что делал вместе с Дэйвом Ломбардо и ему очень понравился мой вокал. "Ты должен создать собственный проект!" - сказал он."</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Testament&#39;s Eric Peterson forges his own musical vision with DRAGONLORD
+
+<p>As the founding guitarist of Bay Area metal legends Testament, Eric Peterson has helped to keep the heavy metal flame burning for nearly two decades. Spitfire Records is proud to announce plans for Peterson's brand new project, DRAGONLORD. The bands debut album, "Rapture", is scheduled for a summer 2001 release.<BR><BR>Brought to life with comrades Jon Allen (Sadus) on drums, Lyle Livingston (Psypheria) on orchestrated keys of oblivion, Steve Smyth (Vicious Rumors) on lead guitar, Steve DiGiorgio (who needs no introduction) on fretless bass guitar and Peterson on vocals and rhythm/lead guitar, DRAGONLORD monolithically embraces classical and goth, while simultaneously dealing out some deathened blackness to provide controlled melodic insanity.<BR><BR>"Dragonlord was an idea I had floating around at about the time Testament was getting ready to record 'The Gathering' in mid 98," says Peterson. "I was playing some stuff for (drummer) Dave Lombardo and he was like 'dude that's you singing? You should do a project!' He kinda sparked the idea for me again. I wanted to do something more goth mixed with classical influences, more Euro sounding type stuff. I didn't want to lay that down on Testament since we got our knack back, so I decided to form Dragonlord. Now that the songs are born and I'm hearing them, they are exactly the way I pictured them! Beautifully eerie!"</p>
+
+Автор: Yermola
+
+### 03.04.2001 news Morgan Thorn уходит из VICIOUS RUMORS...
+
+<p>Вокалист "VICIOUS RUMORS" Morgan Thorn даже не стал дожидаться окончания запланированного на Апрель тура по Европе и оставил команду.</p>
+
+Автор: Yermola
+
+### 03.04.2001 news Morgan Thorn has quit VICIOUS RUMORS
+
+<p>Vocalist Morgan Thorn has quit VICIOUS RUMORS on the eve of their European tour with RAGE, which is set to begin on April 18th in Ludwigsburg, Germany. More information on this when it becomes available.</p>
+
+Автор: Yermola
+
+### 18.04.2001 news Рекруты David Chastain.....
+
+<p>Старый перец David Chastain собрал команду для записи своего очередного (128?) творения. В нее вошли: ритм-секция "VICIOUS RUMORS" - Dave Starr (басс) и Larry Howe (барабаны) и вокалистка Kate French.</p>
+
+Автор: Yermola
+
+### 18.04.2001 news Upcoming CHASTAIN album....
+
+<p>Original VICIOUS RUMORS members Dave Starr (bass) and Larry Howe (drums) have reunited for the first time since 1993 to compose material for the upcoming CHASTAIN album, featuring guitarist David Chastain and vocalist Kate French (Larry's wife). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 30.05.2001 news VICIOUS RUMORS утрясли состав....
+
+<p>По сообщению официального сайта "VICIOUS RUMORS" - www.viciousrumors.com в команду вернулся вокалист эпохи альбома "Cyberchrist" - Brian O'Connor, заменивший на своем посту Morgan Thorn. Сейчас команда занята записью нового альбома (выходящего в Январе 2002), аудио образцы репетиций с О'Коннором скоро можно будет скачать на сайте. Из других новостей "VICIOUS RUMORS" выступят на фестивале Classic Metal в Каламазу (Майами) 15 июня и на Bang Your Head Festival (Германия) 29 июня. Устоявшийся состав выглядит следующим образом: Brian O'Connor (вокал), Geoff Thorpe (гитара), Ira Black (гитара), Cornbread (басс) и Dan Lawson (барабаны).</p>
+
+Автор: Yermola
+
+### 30.05.2001 news VICIOUS RUMORS - Line Up Changes....
+
+<p>According to a press release that will be posted soon at the VICIOUS RUMORS website, www.viciousrumors.com, Cyberchrist-era vocalist Brian O'Connor is back in the band, replacing Morgan Thorn. The band is already writing a new album, shooting for a January 2002 release and audio of rehearsal with O'Connor will soon appear on the site. Upcoming live dates include the Classic Metal Festival in Kalamazoo, MI, on June 15th and the Bang Your Head Festival in Germany on June 29th. The current band lineup is: Brian O'Connor (vocals), Geoff Thorpe (guitar), Ira Black (guitar), Cornbread (bass) and Dan Lawson (drums).</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 25.07.2006 news VICIOUS RUMORS подготовили новый альбом
+
+<P>Американские хэви металл ветераны&nbsp;<B>VICIOUS RUMORS</B> изменили название своего нового альбома с&nbsp;<STRONG>"Sonic Rebellion"</STRONG> на <B>"Warball"</B>. Он был записан в <B>Trident Studios</B>. Это будет дебют в группе для нового вокалиста <B>James Rivera</B> (<B>HELSTAR</B>, <B>KILLING MACHINE</B>, <B>SEVEN WITCHES</B>). Самимузыканты представляют работу, как более мрачный и агрессивный вариант их классической работы 1987 года <B>"Digital Dictator".&nbsp;</B>Релиз запланирован на октябрь через <B>Mascot Records</B>.</P>
+Автор: Dimas
+
+### 11.01.2007 news Steve Smyth перенёс операцию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Steve Smyth</STRONG> (<STRONG>NEVERMORE, VICIOUS RUMORS, DRAGONLORD</STRONG>, ex-<STRONG>TESTAMENT</STRONG>) в декабре перенёс операцию по пересадке почки. <STRONG>Steve</STRONG> чувствует себя хорошо и собирается вернуться к работе в ближайшие месяцы.</FONT></P>
+Автор: Vit Belov
+
+### 04.12.2009 news VICIOUS RUMORS покинул вокалист
+
+<P>Певец <STRONG>Ronnie Stixx </STRONG>сообщил о своём уходе из <STRONG>VICIOUS RUMORS</STRONG>. Он пожаловался на несправедливое к себе отношение со стороны других участников коллектива.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я почувствовал себя чужим ещё в 2008 году. Мне были должны деньги за концерты того года, но я отдавался группе на 110 процентов. Несмотря на предупреждения многих, кто имели дела с этой группой ранее. Ок, теперь я согласен со всеми, но получил я очень неприятный опыт</EM>", - жалуется <STRONG>Ronnie</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Певец попросил фэнов группы не расстраиваться, а просто подумать, отчего в <STRONG>VICIOUS RUMORS</STRONG> было столько изменений в составе. </FONT></P>
+Автор: Vit Belov
+
+### 05.12.2009 news VICIOUS RUMORS не долго искали
+
+<P>Новым вокалистом <STRONG>VICIOUS RUMORS</STRONG> стал <STRONG>Brian Allen</STRONG> (<B>LAST EMPIRE</B>, <B>MALICE</B>, <B>WILD DOGS</B>).</P>
+Автор: Vit Belov
+
+### 29.12.2010 news VICIOUS RUMOURS: новый альбом &quot;Razorback Killers&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17980.jpg" width=394 height=394>Американские ветераны<STRONG> VICIOUS RUMORS </STRONG>подготовили к выпуску свой новый студийный альбом. Диск получивший название&nbsp; <B itxtvisited="1">"Razorback Killers"</B>, выйдет на&nbsp;лейбле <B itxtvisited="1">SPV</B>/<B itxtvisited="1">Steamhammer</B> (Даты выхода: Европа - 28 марта 2011, Германия - 25 марта 2011 и Америка&nbsp;- 5 апреля 2011).</P>
+<P><STRONG>"Razorback Killers"</STRONG> был записан в <B itxtvisited="1">Trident Studios</B> (Калифорния). В роле продюсеров выступили <B itxtvisited="1">Juan Urteaga</B> и <B itxtvisited="1">Geoff Thorpe</B>.</P>
+<P>Трек-лист альбома:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Murderball</B><BR itxtvisited="1">02. <B itxtvisited="1">Black</B><BR itxtvisited="1">03. <B itxtvisited="1">Razorback Blade</B><BR itxtvisited="1">04. <B itxtvisited="1">Blood Stained Sunday</B><BR itxtvisited="1">05. <B itxtvisited="1">Pearl Of Wisdom</B><BR itxtvisited="1">06. <B itxtvisited="1">All I Want Is You</B><BR itxtvisited="1">07. <B itxtvisited="1">Axe To Grind</B><BR itxtvisited="1">08. <B itxtvisited="1">Let The Garden Burn</B><BR itxtvisited="1">09. <B itxtvisited="1">Rite Of Devastation</B><BR itxtvisited="1">10. <B itxtvisited="1">Deal With The Devil</B><BR itxtvisited="1"><BR itxtvisited="1">Текущий состав <STRONG>VICIOUS RUMORS</STRONG>:</P>
+<P><B itxtvisited="1">Larry Howe</B> - ударные<BR itxtvisited="1"><B itxtvisited="1">Brian Allen</B> (<STRONG>LAST EMPIRE</STRONG>, <STRONG>MALICE</STRONG>, <STRONG>WILD DOGS</STRONG>) - вокал<BR itxtvisited="1"><B itxtvisited="1">Kiyoshi Morgan</B> - гитара<BR itxtvisited="1"><B itxtvisited="1">Stephen Goodwin</B> - бас<BR itxtvisited="1"><B itxtvisited="1">Geoff Thorpe</B> - гитара</P>
+Автор: Headcrusher
+
+### 13.05.2011 news Новый клип VICIOUS RUMORS
+
+<P>Новый клип <STRONG>VICIOUS RUMORS</STRONG> на песню <STRONG>"Murderball" </STRONG>можно посмотреть ниже. Трек взят с нового альбома американской группы <STRONG>"Razorback Killers".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER><IFRAME src="http://www.youtube.com/embed/DPxmBAYTja0" frameBorder=0 width=480 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.02.2013 news VICIOUS RUMORS: подробности одиннадцатого студийного альбома &quot;Electric Punishment&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.02/25467.jpg" width=400 height=400>Американский коллектив <STRONG>VICIOUS RUMORS</STRONG>&nbsp;готовит свой новый, одиннадцатый по счету альбом, получивший название <STRONG>"Electric Punishment"</STRONG>. Альбом выйдет 26 апреля&nbsp;на лейбле <STRONG>SPV/Steamhammer</STRONG>.</P>
+<P>В качестве продюсеров диска выступили гитарист и лидер коллектива<STRONG>&nbsp;Geoff Thorpe</STRONG> и <STRONG>Juan Urteaga</STRONG>.</P>
+<P>Обложку для альбома создал <STRONG>Christoph Schinzel</STRONG> (<A href="http://www.artwoerks.de/">www.artwoerks.de</A>), работавший прежде с такими группами, как&nbsp;<STRONG>AGENT STEEL</STRONG>, <STRONG>ANVIL</STRONG>, <STRONG>CIRCLE II CIRCLE</STRONG>&nbsp;и&nbsp;<STRONG>RAVEN</STRONG>.</P>
+<P>Сет-лист:</P>
+<P>01. <STRONG>I Am The Gun<BR></STRONG>02. <STRONG>Black X List<BR></STRONG>03. <STRONG>Electric Punishment<BR></STRONG>04. <STRONG>D-Block<BR></STRONG>05. <STRONG>Escape (From Hell)<BR></STRONG>06. <STRONG>Dime Store Prophet<BR></STRONG>07. <STRONG>Together We Unite<BR></STRONG>08. <STRONG>Eternally<BR></STRONG>09. <STRONG>Thirst For A Kill<BR></STRONG>10. <STRONG>Strange Ways</STRONG> (<STRONG>KISS</STRONG> Cover)</P>
+<P>Текущий состав <STRONG>VICIOUS RUMORS</STRONG>:</P>
+<P><STRONG>Geoff Thorpe</STRONG> - гитара, вокал<BR><STRONG>Larry Howe</STRONG> - барабаны<BR><STRONG>Stephen Goodwin</STRONG> - бас<BR><STRONG>Brian Allen</STRONG> - вокал</P>
+Автор: Headcrusher
+
+### 21.06.2016 news Новая музыка VICIOUS RUMORS
+
+<p>Новое лирик-видео<strong> VICIOUS RUMORS</strong> на песню "<strong>Chasing The Priest</strong>" можно послушать ниже. Трек взят с выходящего альбома "<strong>Concussion Protocol</strong>". Дата релиза: 26 августа на <strong>SPV</strong>.</p><p>Трек лист:</p><p>“Concussion Protocol”<br> “Chemical Slaves”<br> “Victims Of A Digital World”<br> “Chasing The Priest”<br> “Last Of Our Kind”<br> “1000 Years”<br> “Circle Of Secrets”<br> “Take It Or Leave It”<br> “Bastards”<br> “Every Blessing Is A Curse”<br> “Life For A Life”</p><p>&nbsp;<center><img width="640" height="640" src="/images/news_rus/2016.06/29428.jpg" border="0"></p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/35F9-nLdR0w?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 21.06.2016 news VICIOUS RUMORS: New lyric video
+
+<p>New lyric video of <strong>VICIOUS RUMORS</strong> with the song "<strong>Chasing The Priest</strong>" can be streamed below. The track is taken from the forthcoming Studio album "<strong>Concussion Protocol</strong>". Release date: August 26 via <strong>SPV</strong>.</p><p>Track list:</p><p>“Concussion Protocol”<br> “Chemical Slaves”<br> “Victims Of A Digital World”<br> “Chasing The Priest”<br> “Last Of Our Kind”<br> “1000 Years”<br> “Circle Of Secrets”<br> “Take It Or Leave It”<br> “Bastards”<br> “Every Blessing Is A Curse”<br> “Life For A Life”</p><p>&nbsp;<center><img width="640" height="640" src="/images/news_rus/2016.06/29428.jpg" border="0"><p></p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/35F9-nLdR0w?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 21.07.2016 news Новый клип VICIOUS RUMORS
+
+<p>Новый альбом<strong> VICIOUS RUMORS "Concussion Protocol"</strong> выйдет 26 августа на<strong> SPV</strong>. Клип на песню с этой работы "<strong>Take It Or Leave It</strong>" можно посмотреть ниже.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/F5updnhm9a4" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 21.07.2016 news New video of VICIOUS RUMORS
+
+<p>New album of <strong>VICIOUS RUMORS "Concussion Protocol" </strong>will be released on August 26 via <strong>SPV</strong>. The video for the song from that work "<strong>Take It Or Leave It</strong>" can be viewed below.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/F5updnhm9a4" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -110,6 +110,78 @@
 * C группой "Dimmu Borgir" Nick Barker (drums)
 * C группой "Brujeria" Nick Barker (drums)
 
+## Публикации
+
+### 14.11.2000 news Lock Up are turning their attention to their next album
+
+<p> According to www.lockup666.com, LOCK UP are turning their attention to their next album and they have already written/demoed 14 or so songs and they hope to go into the studio in early January.</p>
+
+Автор: Nybras
+
+### 14.11.2000 news Новости от Lock Up
+
+<p> По сообщению сайта www.lockup666.com, группа Lock Up уже сочинила достаточно материала (около 14 песен), чтобы отправиться в студию.</p>
+
+Автор: Nybras
+
+### 21.02.2002 reviews Афера Томаса... Линдберга
+
+<p>Поистине звездный проект. Бывший вокалист At The Gates (Lindberg), барабанщик Dimmu Borgir (Barker), гитарист (Pintado) и басист (Embury) Napalm Death. Казалось бы, должно получится что-то интересное. Но на поверку альбом оказался обычным death-grind-ом, очень похожем на, собственно Napalm (ранний, естественно). Качественный, злой, но абсолютно бездушный и вторичный. Нет характерного для этого стиля "мясного" звучания. Звук чистый, бритвенный, но, опять же не интересный. Еще один минус - на редкость однообразные композиции и аранжировки, и , при учете очень коротких пауз между треками, очень иногда сложно понять, когда заканчивается одна песня, и начинается другая. После прослушивания создается очень странное впечатление - качественный продукт, все, как говорится, по уму, но совершенно не запоминающийся. Подобных групп достаточно много, и , боюсь, Lock Up среди них просто затеряются. А жаль, такие имена...</p>
+
+Автор: Gonetz
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 06.07.2003 news LOCK UP готовят концертный альбом
+
+<p>Грайндкоровая формация LOCK UP, в состав которой входят басист Shane Embury (NAPALM DEATH), гитаристJesse Pintado (NAPALM DEATH), вокалист Tomas Lindberg (ex-AT THE GATES, THE CROWN) и ударник Nick Barker (DIMMU BORGIR), готовит к выпуску на Feto Records свой концертный альбом, записанный в ходе японского тура группы в июне 2002 года. Релиз ожидается к концу 2003 года.</p>
+
+Автор: Dimas
+
+### 04.12.2010 news Новая песня LOCK UP
+
+<P>Новый трэк вернувшихся к жизни<STRONG> LOCK UP "Life of Devastation" </STRONG>можно послушать ниже. Эта песня выйдет на совместном с <STRONG>MISERY INDEX</STRONG> сплите в следующем году.</P>
+<P><STRONG>LOCK UP</STRONG> вновь объединились после восьмилетнего перерыва. В настоящее время в составе коллектива вокалист <STRONG>AT THE GATES</STRONG> <STRONG>Tomas Lindberg, </STRONG>гитарист <STRONG>CRIMINAL</STRONG> <STRONG>Anton Reisenegger, </STRONG>заменивший покойного <STRONG>Jesse Pintado</STRONG>, басист <STRONG>Shane Embury</STRONG> из <STRONG>NAPALM DEATH</STRONG> и барабанщик <STRONG>Nick Barker</STRONG> (ex-<B>CRADLE OF FILTH</B>, <B>DIMMU BORGIR</B>).</P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://lads.myspace.com/Embeds/SongEmbed/SongEmbed.swf width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=77328885&pid=-6042600562563164031" AllowScriptAccess="always">&nbsp;<A href="http://www.myspace.com/music" target=_blank>&nbsp;</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.06.2011 news LOCK UP: Трейлер нового альбома
+
+<P>Новый альбом супер-группы <B>LOCK UP "Necropolis Transparent"</B> выходит 1 июля на <B>Nuclear Blast</B>. Десятиминутный видео-клип, посвящённый этому событию, можно посмотреть ниже.</P>
+<P>В составе коллектива: вокалист&nbsp;<B>Tomas Lindberg (AT THE GATES, DISFEAR)</B>,&nbsp;басист <B>Shane Embury (NAPALM DEATH, VENOMOUS CONCEPT)</B>,&nbsp;барабанщик <B>Nick Barker (ex-CRADLE OF FILTH, DIMMU BORGIR)</B>&nbsp;и гитарист&nbsp;<B>Anton Reisenegger (PENTAGRAM, CRIMINAL)</B>. Продюсером долгожданной работы выступил знаменитый <B>Andy Sneap (MEGADETH, TESTAMENT, ARCH ENEMY)</B>, а гостевое участие в записи приняли <B>Peter Tagtgren (PAIN/HYPOCRISY) </B>и <B>Jeff Walker (CARCASS)</B>.</P>
+<P>Трек-лист:</P>
+<P>1. <B>Brethren Of The Pentagram<BR></B>2. <B>Accelerated Mutation</B><BR>3. <B>The Embodiment Of Paradox And Chaos</B> (featuring Jeff Walker, backing vocals) <BR>4. <B>Necropolis Transparent</B> (Tomas Lindberg and Peter Tagtgren share vocal duties) <BR>5. <B>Parasite Drama</B> (featuring Jeff Walker, backing vocals) <BR>6. <B>Anvil Of Flesh</B><BR>7. <B>Rage Incarnate Reborn</B><BR>8. <B>Unseen Enemy</B> (featuring Jeff Walker, backing vocals) <BR>9. <B>Stygian Reverberations</B><BR>10. <B>Life Of Devastation</B><BR>11. <B>Roar Of A Thousand Throats<BR></B>12. <B>Infiltrate And Destroy<BR></B>13. <B>Discharge The Fear</B> (featuring Jeff Walker, backing vocals) <BR>14. <B>Vomiting Evil</B><BR>15. <B>Stigmatyr</B> (bonus track) <BR>16. <B>Through The Eyes Of My Shadow Self</B> (Tomas Lindberg and Peter Tagtgren share vocal duties) <BR>17. <B>Tartarus'</B> (instrumental) </P>
+ <p><center><object style="height: 390px"><param name="movie" value="http://www.youtube.com/v/z2Moo3U9MHA?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/z2Moo3U9MHA?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object>
+Автор: Vit Belov
+
+### 01.09.2011 reviews Где вдохновение, парни?
+
+<P>All-star проект LOCK UP был основан в конце прошлого века, и два его дебютных альбома не прошли незамеченными в те годы. Это не удивительно, так как в составе коллектива играли басист Shane Embury из NAPALM DEATH, покойный ныне гитарист Jesse Pintado (BRUJERIA, TERRORIZER, NAPALM DEATH), а так же барабанщик Nicholas Barker, участвоваший в огромном множестве высококлассных коллективов на современной тяжёлой сцене. Вокалистами в LOCK UP традиционно выступали шведы: на дебюте кричал Peter Tagtgren из HYPOCRISY, а на последыше Tomas Lindberg из AT THE GATES.</P>
+<P>Английская группа, если её можно считать английской, вновь собралась в студии в прошлом году. У микрофона вновь возник Lindberg, правда, Tagtgren помог ему в нескольких песнях, забегая вперёд, скажу, что эти песни он превратил в современный HYPOCRISY. Также в списках работавших над альбомом придирчивый слушатель обнаружит и легендарного Jeff Walker из CARCASS, ещё более придирчивый слушатель сможет и расслышать его бэк-вокал в некоторых местах. В остальном у LOCK UP за эти одиннадцать лет никаких изменений не произошло. Их музыка по-прежнему черпает силы в древнем как мир grindcore, примешивая к нему более современные элементы, которые, правда, к нашим временам уже лет как двадцать также устарели. Получился у коллектива качественнейший альбом без компромиссов с остросоциальной текстовкой, не позволяющей творцам слишком веселиться, что, как мне кажется, обедняет звучание этой пластинки. Подобные же грешки водятся и за NAPALM DEATH, которые в настоящее время сочиняют новый death-grind материал с каменным выражением лица. Ведь в мире столько всего плохого… Но нам-то какое дело до всего этого?</P>
+<P>Не подумаете, чего плохого. Любители гипертяжёлой музыки с отличными качеством записи и исполнения получат несомненное удовольствие от прослушивания нового альбома LOCK UP. Фэны же, требующие от музыки чего-то большего, должны поискать более отчаянные или ужасающие альбомы на современных «подземных» лэйблах.</P>
+Автор: Vit Belov
+
+### 08.03.2012 news Новое видео LOCK UP
+
+<P>Новый ролик<STRONG> LOCK UP</STRONG> на песню "<STRONG>Accelerated Mutation</STRONG>" можно посмотреть ниже. Трек взят с последнего альбома коллектива "<STRONG>Necropolis Transparent</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/UmJpdjrXsUg?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -241,6 +241,28 @@ Mixed By Andy Wallace.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.02.2002 news Куплены дневники и записные книжки Курта Кобэйна...
+
+<p>Издательство "Riverhead Books" за $4 000 000 выкупило права на дневники и записные книжки Курта Кобэйна. Любители Нирваны и вообще поэтического творчества покойного смогут приобрести книгу уже в ноябре. В 350 страничную печатную версию войдут картинки, тексты, списки музыкантов и т.п. Также будет рукописная версия классической "Smells Like Teen Spirit"....</p>
+
+Автор: Yermola
+
+### 28.02.2002 news KURT COBAIN&#39;s Diaries Purchased For $4 Million...
+
+<p>The diaries and notebooks of NIRVANA singer-songwriter Kurt Cobain were purchased by Riverhead Books, a division of Penguin Putnam, for $4 million, and a published compilation will be in stores by November. The proceeds from the book will go to the Cobain estate. “The journals are an intimate portrait of an artist of great influence,” said Julie Grau, Riverhead's co-editorial director. Cobain's notebook and diaries, which he began keeping when he was a teenager, are said to include black-and-white drawings, lyrics, lists of musicians who influenced him, and a handwritten draft of NIRVANA's classic "Smells Like Teen Spirit". The book was culled from 23 notebooks and more than 800 pages. The final version is expected to contain 350 pages.</p>
+
+Автор: Yermola
+
+### 29.07.2011 news Обложку NIRVANA запретили через 20 лет
+
+<P>Готовится к изданию специальное издание великого альбома<STRONG> NIRVANA "Nevermind"</STRONG>. Юбилейный&nbsp;релиз работы, изменившей навсегда тяжёлую музыку, будет содержать три бонус-диска и DVD. </P>
+<P>Тем временем, популярная социальная сеть <STRONG>Facebook </STRONG>"забанила" обложку этого альбома, появившуюся на странице, посвящённой<STRONG> NIRVANA</STRONG>. Голая пиписька младенца не прошла контроль.</P>
+<P><center><IMG height=478 src="/images/news_rus/2011.07/20347.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Самая-самая песня Нирваны!

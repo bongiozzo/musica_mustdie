@@ -65,6 +65,70 @@ Cornelius - vocals, guitar and bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.01.2003 news Новости от SOLEFALD
+
+<p>Норвежская команда SOLEFALD завершила процесс микширования своего четвертого альбома под названием "In Harmonia Universali", который должен выйти в начале февраля на Century Media Records. По словам музыкантов, им удалось добиться идеального звучания. альбом уникален многоязычной лирикой. Здесь есть песни на французском, норвежском, немецком, английском языках, а также на латыни. Трэк-лист альбома выглядит следующим образом:</p>
+<p> 01. Nutrisco et Extinguo <BR> 02. Mont Blanc Providence Crow <BR> 03. Christiania (Edvard Munch Commemoration) <BR> 04. Epictetus & Irreversibility <BR> 05. Dionysify This Night of Spring <BR> 06. Red Music Diabolos <BR> 07. Buy My Sperm <BR> 08. Fraternit&eacute; de la Grande Lumi&egrave;re <BR> 09. The Liberation of Destiny <BR> 10. Sonnenuntergang im Weltraum</p>
+
+Автор: Dimas
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+### 04.05.2003 news SOLEFALD have reaped largely enthusiastic reviews ...
+
+<p>"In Harmonia Universali is a code that cannot be cracked, a message in a bottle that refuses to come close to the shore, though you can’t help but watch it move back and forth, that great thing you’d build if you only knew how. Maddening as hell but impossible to leave alone." - Jedd Beaudoin, Sea Of Tranquillity.org <BR><BR> If ever there was a review that nailed the essence of an album, writer Jedd Beaudoin captured it in the above quote. Here's an update from the brilliant mind of vocalist/guitarist/bassist Cornelius Jakhelln on the sucess of the band's latest album, In Harmonia Universali, due out in North America on May 20th:<BR><BR> "Band news should mean good and not bad news. SOLEFALD have reaped largely enthusiastic reviews of the In Harmonia Universali album. The metalheads over and under the ground are as always the ones who support us first. In our cold native land Norway, the journalists are surprisingly slow when it comes to new (and not NU) metal. This means that reviews are rare, and the few reviews that are published in the national press are often more conservative in taste than the average piggy-wigged Tory. A brave exception was made by the national newspaper Aftenposten, who rated In Harmonia Universali 5 out of 6, and labelled the music 'art metal.' Except occurrences like these, only shockers such as the pighead-chopping Mayhem attract attention, and then usually entirely negative attention. The last thing we need as serious musicians and fans is to be thought of as perverts and lunatics and other kinds of crappy people. This is, alas, how mainstream media often describe metal musicians, and in some cases, we all agree, the musicians pretty much live up to those descriptions. The eye precedes the ear: and a gallon of blood won't make anybody love your music more.<BR><BR> Business: The young French-British director Tom Costigan is currently editing a video for the SOLEFALD track 'Mont Blanc Providence Crow,' featuring footage from Paris, Manchester, Bergen and Oslo. The video will be available on the SOLEFALD website. We also hope for space in different television programs. A right-thinking, well-meaning and generally wise Norwegian trust has also granted SOLEFALD a trip to Iceland in June, where we will write material for our fifth album: watch out for epic bizarrology of the old Norse kind."</p>
+
+Автор: Yermola
+
+### 14.05.2003 reviews Искусство и эклектика
+
+<p>Ещё один лик т.н. "progressive black"a". Хотя, по правде говоря, блэка в музыке этого норвежского дуэта осталось мало. Совсем мало. Не знаю, насколько хороша или плоха была предыдущая работа SOLEFALD"ов – не слышал. Зато первые две ("The Linear Scaffold" и "Neonism") были ОЧЕНЬ хороши. Хороша и эта. Хороша во всём – начиная с продуманных текстов (текстов? Какие к чёрту тексты?! Это самая настоящая поэзия!), не менее сложных, чем аранжировки и собственно музыка, и оформления, как графического, так и текстового. И заканчивая музыкальным полотном. Описывать особенности которого бесполезно. Это надо слушать. И пусть это эклектика, возведённая в абсолют. Пусть, – ибо эклектика это лишь во вторую очередь. В первую же очередь – это искусство.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 23.09.2003 news SOLEFALD переиздадут дебютную пластинку
+
+<B>SOLEFALD</B> переиздадут свой дебютный альбом <B>"The Linear Scaffold"</B> до конца года. "<B>После многих лет отсутствия эти 39 минут и 21 секунда злости и меланхолии снова будут выпущены. Слегка изменённый дизайн и новый фото-материал</B>", - сообщает группа на своём web-site. Сейчас группа находится в Исландии, где готовит материал для своего пятого альбома, который выйдет в начале 2004 года на <B>Century Media.</B>
+Автор: Vit Belov
+
+### 01.11.2006 news Новый альбом SOLEFALD
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2006.11/10845.jpg" width=400 align=right border=5>14 ноября на <STRONG>Season Of Mist</STRONG> выходит новый альбом <STRONG>SOLEFALD</STRONG> <STRONG>"Black for Death: An Icelandic Odyssey Part 2". </STRONG>Трэк-лист:</P>
+<P>01. <B>Red for Fire, Black for Death</B><BR>02. <B>Queen in the Bay of Smoke</B><BR>03. <B>Silver Dwarf</B><BR>04. <B>Underworld</B><BR>05. <B>Necrodyssey</B><BR>06. <B>Allfathers</B><BR>07. <B>Lokasenna Part 2</B><BR>08. <B>Loki Trickster God</B><BR>09. <B>Spoken to the End of All</B><BR>10. <B>Dark Waves Dying</B><BR>11. <B>Lokeasenna Part 3</B><BR>12. <B>Stagateller</B></P>
+Автор: Vit Belov
+
+### 10.12.2007 news SOLEFALD выпускают юбилейный альбом
+
+<P>Норвежцы <STRONG>SOLEFALD</STRONG> выпускают юбилейный альбом, посвящённый 10-летию группы.&nbsp;Ещё в 1998 году группа обещала выпустить альбом&nbsp;<STRONG>'The Circular Drain'</STRONG>&nbsp;, как продолжение своего дебюта&nbsp;<STRONG>'The Linear Scaffold'.</STRONG>&nbsp;Тогда альбом вышел только на кассетах, и вот теперь&nbsp;<STRONG>SOLEFALD</STRONG>&nbsp;переиздают его. Также пластинка будет дополнена дебютным демо группы&nbsp;<STRONG>'Jernlov'.</STRONG> Трэк-лист:</P>
+<P><STRONG>"Jernlov - The Iron Law"</STRONG> (SOLEFALD Demonstration Tape - 996 AF)<BR>01. <B>Motmenneske</B> <BR>02. <B>Philosophical Revolt</B> <BR>03. <B>Sivilisasjonens Slaer - Ravnens Fall</B> <BR>04. <B>When The Moon Is On The Wave</B> <BR><BR><B>"The Circular Drain - Det Sykliske Sluk"</B> (SOLEFALD Remixes & Free Mixes)<BR>05. <B>Red For Fire + Black For Death</B> - Exorcise <BR>06. <B>Survival Of Fhe Outlaw</B> - The Bombs Of Enduring Freedom <BR>07. <B>Fluorescent (The Total Orchestra)</B> - dj:!!j Lazare <BR>08. <B>Sun I Call</B> - Havoc Unit <BR>09. <B>There Is Need</B> - The Extreme Zweizz Fuckover <BR>10. <B>CK II Chanel no 6</B> - Half Sherman <BR>11. <B>A Motion Picture</B> - Red Sector A <BR>12. <B>Bragi (Prayer Of A Son)</B> - Havoc Unit <BR>13. <B>When The Moon Is On The Wave</B> - G.U.T. </P>
+Автор: Vit Belov
+
+### 29.04.2009 news SOLEFALD на Indie Recordings
+
+<P><STRONG>SOLEFALD</STRONG> подписали контракт с<STRONG> Indie Recordings</STRONG>. Новый альбом группы выйдет в 2009 году.</P>
+Автор: Vit Belov
+
+### 03.11.2010 news Новая музыка SOLEFALD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.11/17531.jpg" width=400 align=right border=5>Новую песню <STRONG>SOLEFALD</STRONG> <STRONG>"Vitets Vidd I Verdi" </STRONG>можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/solefaldofficial">http://www.myspace.com/solefaldofficial</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэк попадёт на новую пластинку норвежцев <STRONG>"Norron Livskunst", </STRONG>которая выйдет 15 ноября на <STRONG>Indie Recordings</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Song Til Stormen</B><BR>02. <B>Norron Livskunst</B><BR>03. <B>Tittentattenteksti</B><BR>04. <B>Stridsljod, (Blackabilly)</B><BR>05. <B>Eukalyptustreet</B> <BR>06. <B>Raudedauden</B><BR>07. <B>Vitets Vidd I Verdi</B><BR>08. <B>Haugferdi</B><BR>09. <B>Waves Over Vallhalla (An Icelandic Odyssey Part 3)</B><BR>10. <B>Til Heimen Yver Havet</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

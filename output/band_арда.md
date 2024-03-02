@@ -122,6 +122,972 @@ arda-info@mail.ru
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.05.2003 news VALIANT MUSIC Fest
+
+<p><IMG SRC="/images/news_rus/2003.05/4332.jpg" ALT="pho" width=300 height=212 hspace="15" vspace="5" border="1" align="left">7 июня 2003 в клубе Relax пройдёт VALIANT MUSIC Fest с участием SHADOW HOST, ENS COGITANS, АРДА и EVERLOST. <BR> Начало концерта в 18.00.<BR> Цена билета по флаеру - 100р. <BR> Адрес клуба: ул. Большая Юшуньская, 1а, гостиница "Севастополь", корп.6; ст. м. "Севастопольская" или "Каховская"</p>
+
+Автор: Dimas
+
+### 01.10.2003 news Хэллоуин-пати
+
+<P>Корпорация Монстров при поддержке Coronach records накануне ночи ужасов представляет брутальное Хэллоуин-пати </P>
+<P><B><IMG height=362 src="/images/shows_rus/2003.10/5103.jpg" width=253 align="left" border=0>SCRAMBLED DEFUNCTS (brutal death metal) 
+<P><B>АРДА (melodic metal) </P>
+<P><B>MIND ECLIPSE (black death metal) </P>
+<P><B>REST IN PAIN (psycho death metal) </P>
+<P><B>CHAOSPHERE (angry technothrash </P>
+<P><B>АТРОПИНОВЫЙ КРОЛИК (бескомпромиссный crossover)</P>
+<P>Клуб RELAX лучший металлический звук в Москве, т.318-71-61);<BR>адрес: м.Севастопольская (м.Каховская), 1й вагон из центра,<BR>от метро 5 минут пешком (1 минута бегом), ул.Большая Юшуньская, д.1а, гостиница "Севастополь", корпус 6.</P>
+<P>В день концерта:<BR>- в Релаксе с 17.30 до 18.00 билеты 100 руб.;<BR>- после 18.00 вход по флайеру 130 руб., без флайера 140 руб.<BR>Предварительная продажа билетов<BR>в клубе Релакс и рок-магазинах: 120 р.<BR>Флаеры искать в рок-магазинах,&nbsp;"Релаксе" и &nbsp;на сайте: http://coronach.com</P></B></B></B></B></B></B>
+Автор: Yermola
+
+### 07.12.2003 news Ночь перед рождеством
+
+<P><IMG height=236 alt="" hspace=10 src="/images/shows_rus/2004.01/5770.jpg" width=300 align="left" border=0>6-го января 2004 года в клубе <B>Релакс</B> состоится концерт группы <B>ЭПИДЕМИЯ</B>. Это первый концерт группы после записи нового альбома-оперы <B>«Эльфийская Рукопись»,</B> выход которого запланирован на конец января. Наряду со старыми хитами, будет исполнено несколько новых песен. На концерте будут продаваться новые футболки и плакаты группы по низким ценам. </P>
+<P>Также в концерте примет участие группа <B>АРДА</B>. </P>
+<P>Начало в 17.00. </P>
+<P>Вход по флаеру - 150 руб. </P>
+<P>Флаера можно приобрести в рок-магазинах г. Москвы, либо скачать <A href="http://www.epidemia.ru/images/other/fl.jpg">здесь</A>.</P>
+<P>Адрес клуба: метро Севастопольская или Каховская, ул. Большая Юшунская 1А, гостиница "Севастополь" 6-ой. </P>
+Автор: Dimas
+
+### 27.01.2004 news Альбомы российских команд от CD-MAXIMUM
+
+<P>Компания <B>CD-Maximum</B> с гордостью объявляет о выпуске в 2004 году ряда альбомов российских команд. Среди них:</P>
+<P><B>НАТИСК "Небо в огне"<BR></B>второй альбом московской группы, которую образовали опытные музыканты. <A href="http://www.natisk.ru/">http://www.natisk.ru</A></P>
+<P><B>КОМА "Осколок звезды"</B><BR>новый диск известной питерской КОМАнды (концертный состав Бони НеМ). <A href="http://koma.mft.ru/">http://koma.mft.ru</A></P>
+<P><B>ATRA MUSTUM "Black Autumn"<BR></B>надежда российского black metal, дебютный альбом коллектива</P>
+<P><B>АРДА "О скитаниях вечных и о Земле"<BR></B>дебют melodic-metal группы, неизменно собирающей на свои концерты множество фэнов</P>
+<P><B>КРЮГЕР "Дети вражды" </B>и <B>"Рожденный мраком"</B><BR>переиздание классических альбомов королей российского дизель-рока (впервые на CD). <A href="http://kruger.by.ru/">http://kruger.by.ru</A></P>
+<P><B>DIS PATER "Princess Of The Emerald Garden"</B><BR>дебютный альбом группы из Кенигсберга, исполняющей doom-metal<BR>Выпущен 26-го января</P>
+<P><B>CHILDERMAS "Argotique"<BR></B>gothic-rock из Мурманска, третий альбом коллектива</P>
+<P><B>UNCROSSED "DELetio"</B><BR>дебютный альбом техничной progressive death metal группы из Иркутска</P>
+Автор: Dimas
+
+### 04.02.2004 news Новый альбом АРДА
+
+<P><B>Суперновинка от компании CD-Maximum – дебютный альбом «О Скитаниях Вечных и о Земле» молодой российской группы АРДА. Это достойный ответ европейскому melodic metal и отечественным лидерам «тяжелой» сцены.</B></P>
+<P><IMG height=189 alt="" hspace=10 src="/images/news_rus/2004.02/5954.jpg" width=350 align="left" border=0>Группа <B>АРДА</B> была образована в конце 2000 года Павлом Окуневым - экс-вокалистом знаменитой московской команды <B>ЭПИДЕМИЯ</B>, в составе которой музыкант записал два альбома. В феврале 2002 <B>АРДА</B> подготовила первую демо-композицию, а в августе того же года «прогремела» в программе "Хранитель снов" на радиостанции "Эхо Москвы" с песней «Нет Никого», ныне претендующей стать народным хитом. Осенью 2003 года компания <B>CD-Maximum</B> подписала контракт с&nbsp;группой на выпуск дебютного альбома "О Скитаниях Вечных и о Земле". Большая часть композиций на диске – проверенные концертами хиты, однако, музыканты не забыли и о сюрпризах для поклонников melodic metal. Великолепный вокал, виртуозные гитары и слаженная ритм-секция - музыка в лучших традициях жанра.</P>
+Автор: Dimas
+
+### 05.03.2004 news CD-MAXIMUM Fest
+
+<P>04 апреля 2004 года в московском <B>Р-Клубе</B> состоится беспрецедентная акция, аналогов которой ещё никогда не было! Концертное агентство <A href="http://www.jcsound.ru/">JC-SOUND PROD</A>., совместно с одним из ведущих российских лейблов <B><A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></B>, с гордостью представляют первый фестиваль, посвящённый группам и продукции исключительно одной издающей компании - <B>CD-MAXIMUM Fest</B>. </P>
+<P><IMG height=213 alt="" hspace=15 src="/images/shows_rus/2004.04/6229.jpg" width=300 align="left" border=0>Программа фестиваля будет включать в себя множество приятных сюрпризов. Во-первых, в рамках концерта пройдет презентация первого долгожданного альбома московского коллектива <B>ATRA MUSTUM</B>, который своими живыми выступлениями уже давно снискал заслуженное уважение со стороны black death тусовки Москвы. Следующим подарком от организаторов и лейбла станет Супер-распродажа лучших позиций из каталога <A href="http://www.cd-maximum.ru/">CD-MAXIMUM </A>(в первую очередь вы сможете приобрести альбомы всех выступающих в этот день команд) по просто смешной цене в 100р.!<BR>Ну, и конечно же, кульминацией фестиваля станет грандиозное выступление ведущих групп лейбла, давно не нуждающихся в представлении:</P>
+<P><B>ATRA MUSTUM</B>&nbsp;(презентация альбома "<B>Black Autumn</B>")<BR><B>РОГАТЫЕ ТРУПОЕДЫ</B></P>
+<P><B>АРДА</B>&nbsp;(ex-<B>ЭПИДЕМИЯ</B>)<BR><B>ARIDA VORTEX</B></P>
+<P><B>MELANCHOLY</B></P>
+<P>Организаторы гарантируют вам отличное настроение, несколько часов замечательной музыки, качественный звук и просто великолепный вечер!</P>
+<P>Начало праздника в <B>18:00</B>!<BR>Цена билетов в предварительной продаже в кассе клуба и магазине «У дяди Бори» - <B>150</B>р.<BR>В день концерта в кассе клуба с флаером - <B>180</B>р.; без - <B>200</B>р.</P>
+<P>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21</P>
+Автор: Dimas
+
+### 16.03.2004 news Новый альбом АРДА
+
+<P><IMG height=250 alt="" hspace=15 src="/images/news_rus/2004.03/6233.jpg" width=250 align="left" border=0>Группа <B>АРДА</B> была образована в конце 2000 года Павлом Окуневым - экс- вокалистом знаменитой московской команды <B>ЭПИДЕМИЯ</B>, в составе которой музыкант записал два альбома. В феврале 2002 <B>АРДА</B> подготовила первую демо- композицию, а в августе того же года «прогремела» в программе "Хранитель снов" на радиостанции "Эхо Москвы" с песней «Нет Никого», ныне претендующей стать народным хитом. Осенью 2003 года компания <A href="http://www.cd-maximum.ru/">CD-Maximum </A>подписала контракт с <B>АРДОЙ</B> на выпуск дебютного альбома "О Скитаниях Вечных и о Земле". Большая часть композиций на диске – проверенные концертами хиты, однако музыканты не забыли и о сюрпризах для поклонников melodic metal. Великолепный вокал, виртуозные гитары и слаженная ритм-секция - музыка в лучших традициях жанра. Возможно, материал местами напомнит <B>АРИЮ</B>, а где-то - зарубежных звезд. Все- таки нот всего семь... Но сочетать находки мастеров стиля и собственное видение музыки, переплести традиционные "фишки" с новыми музыкальными ходами - сделать так, значит получить изумительный результат - по своей красоте и интересности. И особенно хочется отметить, что тексты на родном русском языке!</P>
+<P>Эта группа - коллектив, которым мы вправе гордиться. Современная сцена полна работ в стиле power, melodic metal, и качественный альбом с самобытными идеями и ходами - приятный сюрприз.</P>
+Автор: Dimas
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 13.04.2004 reviews Лучше не сравнивать эту группу с ЭПИДЕМИЕЙ
+
+<DIV><I>Группа бывшего вокалиста <B>ЭПИДЕМИЯ</B> <B>Павла Окунева</B>. <B>АРДА</B> не любят, когда их сравнивают с бывшей группой их фронтмэна, но от этого никуда не деться, тем более новейший альбом <B>ЭПИДЕМИИ</B> только что вышел.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Справедливости ради замечу, что<B> АРДА</B> склонны к более лиричным композициям, чем их популярные коллеги, и любители чистого power-heavy-metal смогут найти всего несколько песен, которые им понравятся. В основном группа <B>АРДА</B> представляет на суд слушателя медленные баллады, либо также балладного типа эпики, как заглавная композиция. Именно, эти песни и тянут группу вниз. Во-первых, в медленных вещах хорошо заметна вся сомнительность текстов группы. Во-вторых, сразу понимаешь, почему <B>Окунева</B> нет в <B>ЭПИДЕМИИ</B>. <B>Самосват</B> по сравнению с <B>Окуневым</B>, как профессионал рядом с любителем. Да, <B>Павел</B> - вокалист эмоцианльного плана, но хоть какая-то техника необходима. Мы не будем даже упоминать имени <B>Кипелова</B>, достаточно вспомнить вокалиста <B>CATHARSIS</B>, который очень сильно прибавил в технике, а по эмоциональности ни в чём не уступает (а даже превосходит) <B>Окунева</B>. Апофеозом всего этого можно назвать песню <B>'Нет никого'</B>, где&nbsp;пионерская манера пения накладывается на примитивно вдохновленный текст под аккомпанимент акустической гитары. За такие вещи можно смело ставить два и отправлять диск в корзину, но на альбоме есть неплохой "боевик" "<B>Возвращени Государя</B>", да и остальные трэки так или иначе имеют своё лицо.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Записан альбом с помощью <B>Рубена Казарьяна (ENS COGITANS, ex-NOR DREAM)</B> и <B>Игоря Лобанова (ex-End Zone),</B> что ещё сильнее отдаляет альбом от любителей power-metal. Звучание получилось несколько электронное, а это не отличительная черта power-metal.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Альбом откровенно разочаровал меня несоответствием обёртки начинке.</DIV>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 30.06.2005 news В России куют металл!!!
+
+<P>В ближайшее время, компания <B>CD-MAXIMUM</B> планирует порадовать многих любителей тяжелой музыки "<B>made in Russia</B>". <BR><BR>Первыми ласточками станут долгожданные альбомы&nbsp;групп <B>HIERONYMUS BOSCH "Artificial Emotions"</B> (дата релиза - <B>11 июля</B>) и <B>ТЕМНОЗОРЬ "Вольницей В Просинь Ночей"</B> (дата релиза - <B>18 июля</B>). <BR><BR>Также, в течение <B>июля-августа</B>, выйдут:<BR><BR>- ремастированные переиздания двух альбомов талантливых выборгских музыкантов <B>PSILOCYBE LARVAE "Stigmata"</B> и <B>"Agony"</B>, которые будут дополнены бонусом и мультимедиа-секцией. Превосходный black doom европейского образца. <BR><BR>- ремастированное переиздание второго альбома ярославских музыкантов <B>MIND ECLIPSE "Chaos Of Chronicles"</B> с бонусами и совершенно новым оформлением. И, конечно, новый альбом группы <B>"Utopia: Formula Of God"</B>. Высококачественный, сверхскоростной и мегабрутальный death black metal.<BR><BR>- новый альбом беларусов <B>ASGUARD "Dreamslave"</B>. Скоростной, агрессивный и очень мелодичный death black metal с оркестровой секцией струнных и духовых инструментов.<BR><BR>- дебютный альбом истринской группы <B>INSIDE YOU "Lost In The Faith"</B>. Атмосферный gothic doom death metal, напоминающий лучшие образцы классики стиля середины девяностых.<BR><BR>- новый концептуальный и эпохальный супер-альбом легендарных королей дизель-рока <B>KRUGER "Душа Изувера"</B>. <BR><BR>- мини-альбом группы <B>АРДА</B> (открытие 2004 года по опросу читателей DARK CITY) <B>"Экзорцист"</B>. Fantasy power metal. В релиз войдут пять новых песен, из которых только одна войдет в полнометражную работу группы, которая должна выйти в конце 2005 года.<BR><BR>- новый альбом московской группы <B>MORTEM "Corpsophagia"</B>. Зачинатели отечественного brutal death обещают очень жирное мясцо с крутым звуком.<BR><BR><B>5 сентября</B> - официальная дата релиза дебютного альбома группы <B>ФАКТОР СТРАХА "Театр военных действий. Акт первый"</B>. Это совместный проект <B>Кирилла НЕМоляева </B>и группы <B>ТРИЗНА</B>. Вас ждет modern metal с тяжёлыми запевами и очень мелодичными припевами, аналогов которому нет. Альбом записан при участии <B>Дмитрия Борисенкова (ЧЕРНЫЙ ОБЕЛИСК)</B> и <B>Максима Самосвата (ЭПИДЕМИЯ, MECHANICAL POET)</B>.<BR></P>
+Автор: Dimas
+
+### 21.11.2005 reviews Ого-го-го. АРДА - крута!!!
+
+<P>Ребята, ну это позор... Пора надавать по рукам и всё такое... Московская группа <STRONG>АРДА </STRONG>выпускает свои альбомы на <STRONG>СД-Максимум</STRONG>, где в последнее время обосновались такие "мажорные" коллективы, как <STRONG>КИПЕЛОВ</STRONG> и <STRONG>ЭПИДЕМИЯ</STRONG>. Естественно коллектив не отстаёт от метров, и первым выпустил мини-альбом... Ну, я подумал, что на высокобюджетный полноформатник деньжат не хватило, вот и выпускают миньон.<BR>&nbsp;<BR>Фак!!! Фак!!! Как начал сливной бачок стучать, так и стучал весь диск (это барабаны, прим. авт.). Все остальные инструменты смешались в одну кашку. На фоне этого безобразия завывает <STRONG>Павел Окунев</STRONG>, которого просто невозможно сравнивать ни с <STRONG>Кипеловом</STRONG>, ни с <STRONG>Самосватом</STRONG>. Это, как пионер, нет, даже октябрёнок, рядом с членом партии. Не просто младший товарищ, как комсомолец, а один из "шагающих дружно в ряд" на задних дворах школ на окраине Москвы.<BR>&nbsp;<BR>Этот диск получил бы волну критики и так, но то, что этот позор выпущен, как мини-альбом и предполагается, что фэн заплатит за пять песен этого "октябрятского" творчества, как за полный диск, совсем заставляет меня задохнуться от возмущения. Дешёвая поделка.<BR>&nbsp;<BR>Возможно... Возможно, можно было отыскать неплохие песни на "<STRONG>Экзорцисте</STRONG>", но этот вокал и эта запись убивает дуплетом наповал. Кто-то о себе слишком возомнил, я так думаю...<BR>&nbsp;<BR>Диск предоставлен CD-Maximum</P>
+Автор: Vit Belov
+
+### 10.02.2006 news Русское нашествие от CD-Maximum
+
+<P>Зимой-весной 2006 года, компания <B>CD-MAXIMUM</B> выпустит несколько релизов известных российских коллективов. Уже готовы к производству и скоро выйдут: </P>
+<P><B>АЛЕКСЕЙ СТРАЙК - Время полной луны</B> (melodic heavy metal)<BR><B>ЧЁРНЫЙ ОБЕЛИСК - Зелёный альбом</B> (heavy metal)<BR><B>СЕРГЕЙ МАВРИН - Откровение</B> (melodic heavy metal)<BR><B>НАТИСК - Второе дыхание</B> (hard'n'heavy)<BR>
+<P>Кроме того, в 2006 году планируются к выходу новые альбомы групп <STRONG>АРТЕРИЯ, BONEY'NEM, АРДА</STRONG> и<STRONG> РОГАТЫЕ ТРУПОЕДЫ</STRONG>, концертный альбом группы <B>ЛЕГИОН</B>, концертный альбом и dvd группы <B>КИПЕЛОВ</B>, а также dvd группы <B>ЭПИДЕМИЯ</B>. 
+<P>Помимо этого, готовятся к выходу альбомы еще некоторых российских коллективов. </P>
+Автор: Dimas
+
+### 22.02.2006 news Изменения в составе АРДА
+
+<P><IMG height=191 alt="" hspace=10 src="http://www.metalarda.net.ru/rus/news/anton.jpg" width=150 align=left border=1 bordercolor="#000000">Группа <B>АРДА</B> и барабанщик <B>Влад Алексеенко</B> приняли решение прекратить дальнейшую совместную творческую деятельность.&nbsp;Группа желает Владу музыкальных успехов и возможности реализовать всё то, к чему он стремится. </P>
+<P>
+<P>Новым барабанщиком&nbsp;<B>АРДА</B> стал <B><A href="http://www.metalarda.net.ru/rus/mus/anton.html" target=text>Антон Смольянин</A></B> (<B>Breakwar</B>, ex-<STRONG>Arida Vortex</STRONG>, ex-<B>Рогатые Трупоеды</B>), чей дебют&nbsp;в группе&nbsp;состоялся 10 февраля на фестивале "<B>Железный Занавес</B>". 
+<P>Антон уже включился в работу над материалом для нового альбома, и&nbsp;музыканты надеются, что результат не оставит&nbsp;никого равнодушными!!! <BR></P>
+Автор: Dimas
+
+### 26.02.2006 reviews Как при помощи power metal’а изгнать дьявола
+
+<P>Думаю, в каких-то особых представлениях эта группа не нуждается – в 2001-м ее основал экс-вокалист ЭПИДЕМИИ Павел Окунев, записавший с последними два альбома и покинувший коллектив по причине творческих разногласий.<BR>&nbsp;<BR>Первую работу АРДЫ – «О скитаниях вечных и о земле» - мне слышать не довелось (уж не знаю, к счастью или как), а на «Экзорцисте» слушателю предлагается в меру резвый heavy-power с обилием клавишных партий, местами напоминающий сольник “When Water Became Ice” клавишника SKYLARK Эдди Антонини. На диске – шесть композиций, из которых одна – интро, еще четыре - бодрые боевички, и плюс - обязательная для стиля баллада «Только пыль». Пафосный и манерный вокал Окунева звучит уверенно и довольно неплохо подходит к мелодике – да, это уже не тот парнишка с ломким взвизгивающим голосом, что пел когда-то про «Кольцо всевластья»… Правда, о чем он поет – я так и не понял: подобная лирика давно уже недоступна для моего восприятия. Что-то, несомненно, возвышенное и эпическое – «пока все плохо, но все будет хорошо»… На мой взгляд - «Страшно далеки они от народа…» (с).</P>
+<P>И все бы ничего, но… Есть, в общем, две причины, списывающие на нет все плюсы этого миньона. Первая – это непонятно как и непонятно где записанные барабаны. Африканские тамтамы какие-то. Вторая – абсолютно никакое сведение, убивающее релиз напрочь – саунд вышел слишком гулким, отчего высокий голос Окунева тонет среди басовых и гитарных партий, а все вместе это превращается в напрягающее месиво... Ну, и какой-либо ценности для жанра «Экзорцист», на мой взгляд, не представляет – шаблоны и стандарт. Время, потраченное на прослушивание этого диска, я потерянным не считаю, но вряд ли буду слушать его в дальнейшем.</P>
+Автор: Dr. Grandma
+
+### 09.02.2007 news Наша экология души - 5
+
+<CENTER><IMG height=320 src="/images/shows_rus/2007.03/11299.jpg" width=600 border=0></CENTER>
+Автор: Dimas
+
+### 26.07.2007 news Рок-фестиваль &quot;СЛАВА РОССИИ!&quot;
+
+<P>
+<CENTER><IMG height=251 src="/images/shows_rus/2007.08/11780.jpg" width=450 border=0></CENTER>
+<P></P>
+Автор: Dimas
+
+### 26.09.2007 news Долгожданный альбом АРДЫ
+
+<P>Компания <B><A href="http://www.cd-maximum.ru/index.php">CD-MAXIMUM</A> </B>выпустила в продажу с 24 сентября 2007 года новый, долгожданный альбом группы <B>АРДА "Море Исчезающих Времен". </B>Этот альбом - великолепный образец современного экспрессивного melodic metal, яркие и запоминающиеся мелодии, философская лирика, утяжеленный звук от знаменитой студии "<B>Чёрный Обелиск</B>". Материал альбома таит в себе немало сюрпризов, в записи альбома в качестве приглашенных гостей приняли участие друзья группы - музыканты ведущих коллективов российской тяжелой сцены. 
+<P>Релиз доступен в трех вариантах: обычный диск с упрощенным и полным оформлением и издание в формате digibook, которое будет содержать бонус трек - видеоклип композиции "Экзорцист". 
+<P>Спрашивайте в магазинах города и смотрите раздел "<A href="http://www.cd-maximum.ru/index.php?hid=4201">где купить</A>".
+<P><IMG height=350 alt="" hspace=15 src="/images/news_rus/2007.08/11830.jpg" width=350 align=left border=0>Трек-лист альбома: 
+<P><STRONG>1.&nbsp;За Гранью&nbsp;&nbsp;&nbsp;&nbsp; <BR>2.&nbsp;Через Шторм <BR>3.&nbsp;Здесь и Сейчас <BR>4.&nbsp;Тает Снег <BR>5.&nbsp;Море Исчезающих Времен<BR>6.&nbsp;Без Ответа <BR>7.&nbsp;Воздух <BR>8.&nbsp;Арда <BR>9.&nbsp;В Иллюзиях <BR>10.&nbsp;Последний Свет<BR>11.&nbsp;Экзорцист (live bonus track)</STRONG> 
+<P></P>
+Автор: Dimas
+
+### 18.10.2007 news АРДА: презентация нового альбома
+
+<CENTER><IMG height=330 src="/images/shows_rus/2007.11/11969.jpg" width=500 border=0></CENTER>
+Автор: Dimas
+
+### 09.11.2007 news День рождения клуба PLAN B
+
+<P>
+<CENTER><IMG height=318 src="/images/shows_rus/2007.12/12009.jpg" width=450 border=0></CENTER>
+<P></P>
+Автор: Dimas
+
+### 21.02.2008 news Новости из лагеря АРДЫ
+
+<P><IMG height=333 alt="" hspace=10 src="/images/news_rus/2008.02/12283.jpg" width=250 align=left border=0>После двух с половиной лет лет совместной работы, разошлись творческие пути группы <B>АРДА</B> и бас-гитариста <B>Дмитрия Голяшева</B>. Музыканты <B>АРДЫ</B> желают ему дальнейших творческих успехов и музыкальных побед! <BR>Новым бас-гитаристом <B>АРДЫ</B> стал <B>Андрей Шморгун</B>, который вместе с барабанщиком <B>Антоном Смольяниным </B>является музыкантом московской hardcore-группы <B>BREAKWAR</B>. <BR></P>
+Автор: Dimas
+
+### 21.01.2009 news АРДА на радио России
+
+<P><IMG height=304 alt="" hspace=10 src="/images/news_rus/2009.01/13425.jpg" width=400 align=right border=0>В этот четверг, 22 января в 21.10 гостем радиошоу "<B>Восьмая нота</B>" станет лидер и вокалист московской группы <B>АРДА Павел Окунев</B>. Музыкант расскажет о последних новостях своей группы, а также представит музыку и историю <B>АРДЫ</B>. Кроме того, всех слушателей Радио России ожидает сюрприз - в программе прозвучит фрагмент новой композиции <B>АРДЫ</B> с готовящегося альбома. 
+<P>Радио России можно слушать:<BR>- Первый канал трёхпроводного вещания,<BR>- CВ 873 КГц <BR>- ДВ 261 КГц <BR>- УКВ 66.44 МГц<BR>- открытый канал в интернете по адресу www.radiorus.ru</P>
+Автор: Dimas
+
+### 30.05.2009 news АРДА - Internet-сингл &quot;В Небо&quot;
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.05/14126.jpg" width=400 align=right border=5>Популярный московский melodic-metal коллектив <STRONG>АРДА</STRONG> в очередной раз удивляет своих поклонников и прочих ценителей тяжелого металла первым в своей дискографии официальным интернет-синглом - "<STRONG>В Небо</STRONG>". Предвосхищая выход полноформатного альбома,<STRONG> АРДА</STRONG> разрушает все возможные стереотипы, предлагая слушателям свое оригинальное видение актуальной на сегодняшний день металлической музыки, в которой удалось совместить как идеи и звучание нынешней<STRONG> АРДЫ</STRONG>, так и мелодии и ритмы бессмертной классики 90-х годов. Помимо музыкантов группы, в записи принял участие икона поп-музыки конца прошлого века - <STRONG>Shura</STRONG>, с которым коллектив записал кавер-версию одного из его хитов. АРДА с гордостью представляет вам 4 свежих трека, записанных и сведенных на лучших московских рекорд-студиях "<STRONG>Dreamport</STRONG>" и "<STRONG>Черный Обелиск</STRONG>", призванных скрасить нелегкое ожидание очередного полноформатного альбома группы, который явит собой очередной этап творческого развития коллектива.</P>
+<P>Скачать сингл можно по адресу: <A href="http://www.arda.su/audio/Arda_-_V_Nebo_(EP)_2009.rar">www.arda.su/audio/Arda_-_V_Nebo_(EP)_2009.rar</A></P>
+Автор: Vit Belov
+
+### 06.01.2010 news Первый клип АРДА
+
+<P>Первый видеоклип <STRONG>АРДА</STRONG> на песню "<STRONG>Небеса Опустошения</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/GcISTVyN6vk&hl=ru_RU&fs=1&"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/GcISTVyN6vk&hl=ru_RU&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.04.2010 news Интернет EP группы ARDA
+
+<P>Поднявшись "<STRONG>В Небо</STRONG>" в мае 2009 года, <STRONG>АРДА</STRONG> готова представить результаты своих изысканий в новом интернет-сингле "<STRONG>ХОЛОД</STRONG>". В качестве саунд-продюсера и звукорежиссера виртуального релиза, выступил<STRONG> Рубен Казарьян</STRONG>, известный поклонникам <STRONG>АРДЫ</STRONG> по первому альбому "<STRONG>О Скитаниях</STRONG>+", а так же по работе с группами <STRONG>Louna, Ens Cogitans</STRONG> и <STRONG>Southwake</STRONG>.</P>
+<P>Трэк-Лист Internet-сингла "<STRONG>ХОЛОД</STRONG>":</P>
+<P>1.<STRONG> Холод</STRONG> (музыка А.Андрюхин, слова А.Андрюхин/П.Окунев)<BR>2. <STRONG>Колыбельная</STRONG> (музыка А.Лежнёв, слова П.Окунев)<BR>3. <STRONG>Лезвие Сна</STRONG> (музыка А.Лежнёв/А.Андрюхин, слова П.Окунев/Г.Соловьёв)<BR>4. <STRONG>Только Пыль</STRONG> (музыка А.Андрюхин, слова Э.Шакирова/П.Окунев)</P>
+<P>Ссылка на скачивание в свободном доступе: <A href="http://www.arda.su/arda_holod_(EP)_2010.zip">http://www.arda.su/arda_holod_(EP)_2010.zip</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Группа АРДА feat. Мелисов в Релаксе 29-го ноября :)

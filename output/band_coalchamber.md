@@ -41,6 +41,65 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.09.2000 news Новости от Coal Chamber
+
+<p> Лейбл Roadrunner сделал заявление, касающееся ситуации в группе Coal Chamber. Стало известно, что группа готовится выпустить в недалеком будущем новый альбом, а пока полным ходом занимаются сочинением нового материала. Остальные подробности желающие могут узнать на официальном сайте группы.</p>
+<p></p>
+
+Автор: Nybras
+
+### 27.09.2000 news Coal Chamber&#39;s new album  will come soon
+
+<p> Roadrunner Records finally gives an light in the dark in Coal Chamber's situation and, yeah, they will be back with a new studio album soon: "WOW, it has been quite a while since the name Coal Chamber has been mentioned here, too long if you ask me. What the hell were we thinking? Well, that will just have to change... Did you know that Coal Chamber are currently writing the material for their next recording? They are looking to hit the studio to record their latest works this November, YES just a lil' over a month away. Also, Dez is currently planning some short 'junkets' (look it up in the dictionary, and let me know what it means too because I am not quite sure!) to Las Vegas and other such exotic destinations for inspiration in the writing process to finish up the lyrics, which hopefully most will be completed by the end of next week... What else is going on with the band? Well, there is finally a NEW news posting on their website. Check it out at http://www.coalchamber.com/kitchenmain.html to catch the full details. Rest assured, more news to come on this band more regularly from here on..."</p>
+<p></p>
+
+Автор: Nybras
+
+### 30.10.2000 news Новый альбом Coal Chamber
+
+<p>Coal Chamber записали новый альбом, который собираются выпустить в самом начале 2001-го года. А пока группа ломает голову над оформлением диска.</p>
+
+Автор: Nybras
+
+### 30.10.2000 news Coal Chamber has been busy working on their third album
+
+<p>Coal Chamber has been busy working on their third album, set for an early 2001 release and they want to get their fans involved with the still untitled album. The band is currently looking for photos of Coal Chamber tattoos to use in the packaging of the next album. For those of you who do have one, send your photo to: Coal Chamber Photos; 9255 Sunset Blvd.; 2nd Floor; W. Hollywood, CA 90069. Be sure to include your name, address, and e-mail address with your photo. Photos will not be returned. In related Coal Chamber news, drummer Mike Cox is doing some A&R work for a number of labels on the side. He is currently working Dead Girls Corp in hopes of landing a record deal. If you know of any bands that might strike his interest, e-mail him at makaroni666@aol.com</p>
+
+Автор: Nybras
+
+### 15.12.2000 news Coal Chamber написали материал для нового альбома.
+
+<p>Coal Chamber написали 13 песен для своего нового, пока еще безымянного, альбома, и готовятся в январе отправиться в студию NRG Studios.</p>
+
+Автор: Morsus
+
+### 15.12.2000 news Coal Chamber have finished writing 13 songs for new album.
+
+<p>Coal Chamber have finished writing 13 songs for their untitled upcoming new Roadrunner Records album. The band is scheduled to hit NRG Studios in Los Angeles, CA in January to begin recording.</p>
+
+Автор: Morsus
+
+### 28.05.2002 news German Media Control Chart ...
+
+<p>Вот так представлены хард-рок/метал в German Media Control (Top 100) chart по состоянию за прошедшую неделю: <BR><BR> 04. BОHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending May 27th (as reported by Rock Hard magazine): <BR><BR> 04. BЦHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 11.07.2003 news COAL CHAMBER распались
+
+<p>Официально прекратили свое существование COAL CHAMBER.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

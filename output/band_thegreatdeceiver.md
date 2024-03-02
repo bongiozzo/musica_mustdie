@@ -16,6 +16,66 @@ Death-hardcore-industrial (ex-AT THE GATES)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.09.2002 reviews Томас Линдберг: от СМДМ&#39;а к хардкору
+
+<p>Нет, Peaceville не переключились на арт-рок, а THE GREAT DECEIVER, соответственно, не имеют ровным счётом никакого отношения к KING CRIMSON, из творчества которых и взято название данного проекта. И уж тем более, это не модная MTV'шная жвачка для ушей, на выпуске которой Peaceville уже, похоже, собаку съели. Ко всяческим post-doom'овым делам а-ля KATATONIA, THINE и BEYOND DAWN, музыка THE GREAT DECEIVER также никоим образом не относится. С одной стороны, назови я имя фронтмэна этого славного коллектива, и закончи на этом рецензию, вы бы вряд ли сказали мне спасибо. Поскольку а) зовут его, как вы уже поняли, Томас Линдберг, НО б) музыку THE GREAT DECEIVER можно причислить к какому угодно стилю, окромя СМДМ'а. С другой стороны, для человека, знающего не только о самом факте присутствия Томаса в рядах AT THE GATES, но и о его давней любви к хардкору, ознакомление с "A Venom Well Designed" явно не будет сродни шоковой терапии. Эта группа появилась на свет практически сразу после предания AT THE GATES забвению, и, по словам самого Томаса, является ни чем иным, как "тёмной хардкоровой кузиной" его предыдущего коллектива. В музыке THE GREAT DECEIVER сплелось великое множество самых разных влияний: основу составляет коктейль из хардкора, индастриала и, что очевидно, дэта, однако на альбоме ясно слышны как блэковые позывные, так и отголоски творчества JOY DIVISION и VELVET UNDERGROUND. Стоит ли объяснять, почему "A Venom Well Designed" можно отнести к тем альбомам, в которые сначала необходимо "въехать", и уже только потом в полной мере оценить все их достоинства? В частности, такие как "непохожесть", "оригинальность" и "новаторство". Очень любопытная вещица.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR><BR> + конкурс от HATE и Moral Insanity Prods [email: moralinsanity@tut.by]<BR><BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 01.07.2003 reviews Музыка не для постоянного прослушивания
+
+<p>Томас Линдберг продолжает своё путешествие по различным командам после распада At The Gates. Не знаю, насколько долго он задержится в The Great Deceiver, но его вокал явно не главное на альбоме. Музыка, замешанная в таких шизофренических пропорциях, не нуждается ни в каком вокале. 'A Venom...' больше подходит для саундтрэка к какому-нибудь непонятному фильму в духе современных андеграундных режиссёров. А теперь начинаем медитировать: представьте себе, атмосферную gothic-rock музыку с индустриальным басом и блэковым вокалом. Порой гитара, вообще, замолкает, и мы слышим настораживающую басовую партию в сопровождении вокала Линдберга. Очень интересное творчество, но явно не настроенное на всеобщее поглощение. Неподготовленный психически слушатель не должен покупать этот альбом. Знайте, вставляя The Great Deciever в свой плэйер, Вы подвергаете себя риску... Риску непонимания того, что всё же там происходит.</p>
+
+Автор: Vit Belov
+
+### 11.07.2003 news THE GREAT DECEIVER...
+
+<p>Recording is complete for the follow up to the bands debut album: TERRORIZER' writers 5th best album of 2002, A Venom Well Designed. The album was recorded earlier this year at Dug Out Studio's in Uppsala, Sweden. The album is titled Terra Incognito (taken from Proust's - In Search Of Lost Time). Daniel Bergstrand famed for his work with: Meshuggah, Strapping Young Lad & In Flames produced the album with assistance from жrjan жrnkloo (guitarist with Misery Loves Company). Early plays have revealed a huge leap forward in the band's sound. Vocalist Tomas Lindberg told us after the session had ended that Daniel pushed the band extremely hard; resulting in the best work he's ever done. That really is saying something from a guy who's had so many fingers in so many musical pies in his career.<BR><BR> Live dates will be announced later in the year.</p>
+
+Автор: Yermola
+
+### 13.07.2003 news THE GREAT DECEIVER работают над новым альбомом
+
+<p>Шведы THE GREAT DECEIVER работают над своим новым альбомом под названием "Terra Incognito". Он записывается в Dug Out Studio’s вместе с продюсерами Daniel Bergstrand и Orjan Ornkloo.</p>
+
+Автор: Dimas
+
+### 15.10.2003 news Новости от THE GREAT DECEIVER
+
+<P>Шведская формация <B>THE GREAT DECEIVER, </B>в рядах которой замечен бывший фронтмэн <B>AT THE GATES </B>и <B>THE CROWN</B> <B>Tomas Lindberg, </B>готовит к выходу в марте 2004 года через <B>Peaceville Records </B>свой новый альбом под названием <B>"Terra Incognito". </B>Альбом будет записан в <B>Dug-Out</B> studio с продюсером <B>Daniel Bergstrand. </B></P>
+Автор: Dimas
+
+### 27.02.2004 news The Great Deciever выпускают новый альбом
+
+<B>The Great Deciever</B> уже записали новый альбом <B>'Terra Incognito'</B>. Альбом был спродюсирован <B>Daniel Bergstrand (MESHUGGAH, IN FLAMES, STRAPPING YOUNG LAD).</B> В настоящее время группа занята съёмками видеоклипа вместе с режисёром <B>Patric Ullaeus (DIMMU BORGIR)</B>. Трэк-лист: <B>'Today', 'We-The Dead', 'Lake Of Sulphur', 'From Bereavement To Resgination', 'Marathon Man', 'The Heel On The Throat Of The Young', 'Faust In Exile', 'Forward/Willing/Sickness', 'Conspiracy Theorist'</B>&nbsp;и <B>'Worm of Truth'</B>.
+Автор: Vit Belov
+
+### 27.02.2004 news THE GREAT DECIEVER recorded new album
+
+<B>Peaceville Records</B> confirms May 11 as the US release date for the second album from Sweden's <B>THE GREAT DECEIVER</B>, titled <B>Terra Incognito</B>.<BR><BR><BR><BR>Recorded during the summer of 2003, <B>Terra Incognito</B>, (from Proust's In Search Of Lost Time), was produced by <B>Daniel Bergstrand (MESHUGGAH, IN FLAMES, STRAPPING YOUNG LAD)</B>. The album finds further production assistance from <B>Orjan Ornkloo (MISERY LOVES COMPANY).</B> <BR><BR><BR><BR>The band have filmed their first video for the track <B>'Lake Of Sulphur'</B>. The clip was produced by Patric Ullaeus, who has previously worked with<B> DIMMU BORGIR</B>.<BR><BR><BR><BR>The track listing for Terra Incognito includes: <B>'Today', 'We-The Dead', 'Lake Of Sulphur', 'From Bereavement To Resgination', 'Marathon Man', 'The Heel On The Throat Of The Young', 'Faust In Exile', 'Forward/Willing/Sickness', 'Conspiracy Theorist'</B> and <B>'Worm of Truth'.</B>
+Автор: Vit Belov
+
+### 09.06.2004 reviews Хардкор по-шведски - это не хардкор
+
+<P>Мне все наперебой утверждали, что The Great Deceiver (эх, бедные Роберт Фрипп и Со...) это типа хардкор. Я долго сопротивлялся, но всё же сдался. С одной оговоркой. Это хардкор по-шведски, а, стало быть, вовсе и не хардкор. Это называется другим словом - отстой. Это попытка лидера группы Томаса Линдберга (ex-At the Gates, ex-The Crown) взять свои любимые стили и придать им хардкоровую структуру. Да обломись ты, Томас. В хардкоре не поют как в The Crown. А в 'The Heel On The Throat Of The Young' неприятно пахнуло СМДМ-ом. Какой, к чертовой бабушке, это хардкор? Давно я не слышал таких убогих попыток вылепить их одних стилей другой. 10 совершенно не отличающихся друг от друга потуг (полноценными песнями их даже назвать-то нельзя) составили сей релиз, за который такой лейбл как Peaceville должен краснеть до конца дней своих. Видимо, Линдберг, покинув предыдущую группу, решил сделать что-то посвежее, перекинуться в новый для себя стиль (есть также элементы ню-метала и метал-кора). Будь мы школе, я бы сказал ему: "Садись, Томас, двойка!" Вот альбом ее и получает.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

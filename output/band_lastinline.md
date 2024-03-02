@@ -23,6 +23,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.01.2016 news Jimmy Bain (19 декабря 1947 – 24 января 2016)
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2016.01/28720.jpg" width=400 height=482>24 января в возрасте 68 лет умер бас-гитарист&nbsp;<STRONG>Jimmy Bain</STRONG>.</P>
+<P>В момент своей смерти,<STRONG> Jimmy Bain</STRONG> находился в концертном круизе, устроенном группой <STRONG>DEF LEPPARD</STRONG>, где выступал со своим проектом <STRONG>LAST IN LINE</STRONG>.</P>
+<P>Причины смерти пока не известны.</P>
+<P>Наиболее яркие альмомы с участием музыканта:</P>
+<P><STRONG>RAINBOW<BR></STRONG>- "Rising" (1976)<BR>- "On Stage" (1977)<BR>- "Live In Germany" (1990, записан в 1976)</P>
+<P><STRONG>GARY MOORE<BR></STRONG>- "Dirty Fingers" (1983)</P>
+<P><STRONG>DIO<BR></STRONG>- "Holy Diver" (1983)<BR>- "The Last In Line" (1984)<BR>- "Sacred Heart" (1985)<BR>- "Intermission" (1986)<BR>- "Dream Evil" (1987)<BR>- "Magica" (2000)<BR>- "Killing The Dragon" (2002)</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

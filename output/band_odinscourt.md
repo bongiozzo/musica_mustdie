@@ -76,6 +76,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2011 news Новый клип ODIN&#39;S COURT
+
+<P>Новый ролик progressive-metal команды <STRONG>ODIN'S COURT</STRONG> на песню <STRONG>"Blue Line 5:30am (Inops)" </STRONG>с нового альбома <STRONG>"Human Life in Motion"</STRONG>, который вышел в мае на <STRONG>ProgRock Records</STRONG>, можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/Yp47d8t-ynE" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

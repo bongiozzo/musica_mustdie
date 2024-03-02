@@ -54,6 +54,70 @@
 * C группой "Leaves' Eyes" Moritz Neuner
 * C группой "Siegfried" Roland Wurzer
 
+## Публикации
+
+### 05.06.2003 news Замена вокалистки в DARKWELL
+
+<p>Австрийский gothic metal коллектив DARKWELL, с участием бывшего ударника ABIGOR Moritz Neuner, покинула вокалистка Alexandra P. Замена ей нашлась в лице некоей Stephanie M. Новый альбом группы выйдет на Napalm Records в начале 2004 года.</p>
+
+Автор: Dimas
+
+### 13.03.2004 news DARKWELL выпускают новый альбом
+
+<P><B>DARKWELL </B>выпускают свой второй альбом "<B>Metatron</B>" в апреле на <B>Napalm Records</B>. Альбом был записан в <B>Mirror Production Studios. </B>Микшировал пластинку <B>Alex Krull</B> в <B>Mastersound studios</B>.</P>
+Автор: Vit Belov
+
+### 23.09.2004 news Darkwell - новый альбом
+
+<P>22 ноября на <STRONG>Napalm Records</STRONG> выходит новый альбом <STRONG>DARKWELL 'Metat[r]on'</STRONG>. Трэк-лист:</P>
+<P>01. <B>Fate Prisoner</B><BR>02. <B>Strange</B><BR>03. <B>Metatron</B><BR>04. <B>Crown of Thorn</B><BR>05. <B>The Machine</B><BR>06. <B>Hope Unborn</B><BR>07. <B>Nothingness</B><BR>08. <B>Far Cry</B><BR>09. <B>Last Glance</B><BR></P>
+Автор: Vit Belov
+
+### 08.02.2005 reviews Sсhizo-готика c psycho-вокалом
+
+<P>Как многое в нашей жизни зависит от лэйбла, на котором выходит альбом. Например <STRONG>Napalm Records, </STRONG>одним своим названием рекламирует группы, выходящие под его значком. А уж если это gothic-metal группа, тем более.</P>
+<P>К <STRONG>DARKWELL</STRONG> это относится в первую очередь. Австрийская группа, которую, скорее всего, ждало бы признание только в узких кругах любителей psycho-prog-gothic-metal возглавляет чарты… Не всё, конечно же, так плохо… Но если Вам нравится <STRONG>LEAVES’ EYES</STRONG> или <STRONG>WITHIN TEMPTATION</STRONG>, и Вы хотите найти на альбоме <STRONG>DARKWELL</STRONG> нечто подобное, оставьте эту идею.</P>
+<P>Новая вокалистка <STRONG>DARKWELL Stephanie</STRONG> идеально подходит к задумке главных «психов» <STRONG>DARKWELL</STRONG>, среди которых, где только не игравший, <STRONG>Moritz Neuner</STRONG>. Если честно, мне этот альбом не понравился… И пение <STRONG>Stephanie</STRONG> мне не понравилось. Мой слух её крики и стенания не ласкают, а постоянные сбивки ритма и странные вокальные мелодии от композиторов <STRONG>DARKWELL </STRONG>заставляют чувствовать себя некомфортно. Возможно, в этих песнях существует некий глубокий смысл, но представить себе человека, который сидит и глубокомысленно пытается проникнуться некой прогрессивной готикой, мне тяжеловато. Возможно, даже некоторые прохожие примут его за идиота…</P>
+<P>На самом деле, поклонники у <STRONG>DARKWELL</STRONG> найдутся. Например, те, кому нравится <STRONG>ATROX</STRONG> или <STRONG>SINPHONIA</STRONG>. Повторюсь, я не из таких…</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Vit Belov
+
+### 25.07.2016 news Новый альбом DARWELL
+
+<p>Третий альбом австрийской группы <strong>DARKWELL "Moloch"</strong> выходит 23 сентября на <strong>Massacre Records</strong>. Ниже можно увидеть обложку этого альбома, нарисованную <strong>Jasmin Elisabeth Wanner</strong>.</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.07/29666.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 25.07.2016 news New album of DARKWELL
+
+<p><strong>DARKWELL</strong>'s 3rd studio album is called "<strong>Moloch</strong>", and will be released on September 23, 2016 via<strong> Massacre Records</strong>.</p><p>It was recorded, produced and mixed by <strong>Stefan Graf</strong> and<strong> Roland Wurzer</strong>. <strong>Eike Freese</strong> is responsible for the album's mastering.</p><p>The band has now revealed the cover artwork, created by <strong>Jasmin Elisabeth Wanner</strong>.</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.07/29666.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 11.08.2016 news DARKWELL объявили трек лист
+
+<p>Возвращающиеся к жизни в&nbsp;следующем месяце с выходом нового альбома<strong> "Moloch"</strong> австрийцы <strong>DARKWELL</strong> объявили его трек лист:</p><p>1. Moloch<br>2. In Nomine Serpentis<br>3. Yoshiwara<br>4. Fall Of Ishtar<br>5. Save My Sight<br>6. Bow Down<br>7. Clandestine<br>8. Loss Of Reason<br>9. Im Lichte<br>10. Golem<br>11. Awakening<br>12. Hope Unborn #2016 (Digipak Bonus)<br>13. Midlife Crisis (Digipak Bonus)</p><p><center><img width="550" height="361" src="/images/news_rus/2016.08/29791.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 11.08.2016 news DARKWELL release track list, announce release gig
+
+<p><strong>DAKRWELL</strong>'s new album "<strong>Moloch</strong>" will be released late next month. The Austrian gothic metal outfit has now revealed the tracklisting of the album, which will also be available as limited edition digipak with exclusive bonus tracks:</p><p>1. Moloch<br>2. In Nomine Serpentis<br>3. Yoshiwara<br>4. Fall Of Ishtar<br>5. Save My Sight<br>6. Bow Down<br>7. Clandestine<br>8. Loss Of Reason<br>9. Im Lichte<br>10. Golem<br>11. Awakening<br>12. Hope Unborn #2016 (Digipak Bonus)<br>13. Midlife Crisis (Digipak Bonus)</p><p>The album release show will take place on October 1, 2016 at the p.m.k in Innsbruck, Austria. Sin Deadly Sin and another, yet to be announced, band will join them. "Moloch" was recorded, produced and mixed by Stefan Graf and Roland Wurzer. Eike Freese is responsible for the album's mix. The cover artwork has been created by Jasmin Elisabeth Wanner. DARKWELL's new album "Moloch" is already available for pre-order and will be released on September 23, 2016 on Massacre Records.</p><p><center><img width="550" height="361" src="/images/news_rus/2016.08/29791.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 27.08.2016 news Новое видео DARKWELL
+
+<p>Как уже сообщалось, новый альбом <strong>DARKWELL "Moloch"</strong> выходит в следующем месяце на <strong>Massacre Records</strong>. Видео-клип на композицию "<strong>Yoshiwara</strong>" можно посмотреть ниже.</p><p>"<em>Антиутопии, как они показаны в "1984" Оруэлла и "Метрополис" Ланга, становятся всё более актуальными в наши дни. Об этом песня и клип</em>", - объяснил басист DARKWELL <strong>Roland Wurzner</strong>.&nbsp;</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/HqINQpr8pdw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 27.08.2016 news DARKWELL premieres new video
+
+<p>The release of<strong> DARKWELL</strong>'s new album "<strong>Moloch</strong>" is less than a month away!</p><p>The Austrian gothic rock/metal outfit teamed up with <strong>Felix Gorbach</strong> and<strong> Hanno Mayer</strong> of<strong> BlueBox Media</strong>, and shot a video for the new song "<strong>Yoshiwara</strong>".</p><p>Bassist<strong> Roland Wurzner</strong> comments: "<em>Dystopias as shown in Orwell's '1984' or Fritz Lang's 'Metropolis' have become more and more important these days, which also inspired our lyrics. The bigotry, as named and shamed in 'Metropolis', has found its way into today's society, but in a different way. The song 'Yoshiwara' is pretty much about this issue</em>."</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/HqINQpr8pdw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 13.10.2016 reviews Фантастическое путешествие в прошлое
+
+<p>Австрийская gothic metal группа DARKWELL в начале века выпустила два полноформатных альбома для Napalm Records - “Suspiria” и «Metat[r]on”. Благодаря лицензионным изданиям от Irond, группа была известна и в нашей стране. В те времена активно развивался gothic metal в современном ключе, больше похожий на симфоническую поп-музыку, DARKWELL же придерживались более традиционного стиля с женским вокалом, который можно было именовать gothic doom metal без всякого стеснения, хотя австрийцы и не использовали мужской вокал для полного счастья поклонников этого стиля.</p><p>В 2007 году DARKWELL как-то незаметно распались и вернулись к творческой деятельности только в 2014 году. В группу вернулась оригинальная певица Alexandra Pittracher, а выпуском нового альбома занялись на Massacre Records, в остальном на «Moloch” музыканты не поменяли вообще ничего. Здесь я ступаю на зыбкую почву субъективности. 20 лет назад я был молод и пьян, и альбомы THEATRE OF TRAGEDY заходили очень хорошо. Этот тонкий голосок Liv Kristine, романтичные мелодии. До сих пор я не могу избавиться от навождения, и если мне приходиться слышать ранние альбомы этой норвежской группы, никогда не выключаю. Отчего я завёл речь о классиках gothic doom metal? Ответ прост, «Moloch” отправит вас во времена вашей юности. Красивые неторопливые мелодии, оригинальный высокий женский вокал... Единственное, что выделяет DARKWELL, это некоторая неортодоксальность композиции, иногда австрийцы уходят в некое подобие progressive, что безусловно разнообразит материал, но всё-таки мелодизм для простого люда на «Moloch” усваивается лучше.</p><p>Ностальгический альбом. Буквально ничего не меняя в традиционном gothic doom metal с женским вокалом, DARKWELL удаётся добиться невозможного, перенести нас в прошлое. Конечно, поклонникам EPICA или DELAIN австрийцы покажутся недостаточно фирменными в плане звучания, но фэны женского вокала в самой первой его версии для тяжёлого метала останутся в восторге.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

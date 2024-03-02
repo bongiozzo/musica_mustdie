@@ -61,6 +61,47 @@ Daniel Bugno - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.09.2003 reviews Очередной неплохой melodic death-metal альбом
+
+<p>Очередной раз рассказывать об альбоме просто-таки нечего. Шведы, нарезающие melodic death-metal уже давно никому не в диковинку, поэтому Вам достаточно обратиться к другим нашим рецензиям. С уверенностью можно сказать, что ARISE будут радовать нас подобными пластинками довольно долго, так как спрос есть, и их конвейр начал работать безотказно. Ни супер-скоростей, ни супер-мелодий, зато всё кристально правильно, не придерёшься. Spinefarm сумеют распространить этот альбом хорошим тиражом, но супер-прорыв ребятам не грозит. Только отъявленным фанатам стиля.</p>
+<p>Диск предоставлен магазином B2-100 в ТВЦ "Рубин"</p>
+Автор: Vit Belov
+
+### 20.10.2003 reviews Поколение клонов
+
+<P>Вот уж действительно – «cloned generation»! Так и хочется рявкнуть: «Доколе?!» Не ответят. Хотят играть СМДМ, и благополучно играют. Видимо, европейский слушатель такой музыкой ещё не пресытился. Это во-первых. А во-вторых, второму альбому ARISE в России уготован тёплый приём, точно вам говорю. Почему? Да потому, что у нас только сейчас начали появляться многочисленные AT THE GATES’ы и IN FLAMES’ы. Как всегда, с опозданием на добрый десяток лет… Видать, судьба у российских групп такая: вечно плестись в хвосте и обладать чертовски замедленной реакцией на европейские и американские trend’ы. Что же до ARISE, то их музыка ближе к ATTHEGATES, нежели к тем же IN FLAMES. А теперь по пунктам:</P>
+<P>а)в меру зло;</P>
+<P>б) технично – впрочем, как и всегда;</P>
+<P>в) о качестве записи умолчим: Studiomega– не самая лучшая, но далеко и не самая худшая студия в Швеции;</P>
+<P>г) более-менее разнообразно – неподготовленный слушатель даже сможет отличить первые пять песен от последних пяти;</P>
+<P>д) как ни странно, имеется парочка запоминающихся вещей.</P>
+<P>Вывод: в первую очередь – поклонникам СМДМ, во вторую - … даже и не знаю. Решайте сами. Если вас ещё не тошнит от этого направления, то можете смело топать в магазин.</P>
+<P><I>Диск предоставлен компанией <B><A href="http://www.fono.ru/">ФОНО</A></B></I></P>
+Автор: Kai Mathias Stalhammar
+
+### 11.11.2004 news ARISE назвали альбом
+
+Новый альбом <STRONG>ARISE</STRONG> будет называться <STRONG>"The Beautiful New World" </STRONG>и выйдет в начале 2005 года на<STRONG> Spinefarm</STRONG>.
+Автор: Vit Belov
+
+### 13.07.2005 reviews Третий альбом - опять ни о одной мелодии... И это не brutal-death
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская группа <STRONG>ARISE</STRONG> продолжает свою деятельность. А что делать? Что делать четырём хорошим музыкантам, которые любят melodic-death-metal, <STRONG>IN FLAMES</STRONG> и Иисуса... Хотя, быть может, Иисуса они не любят.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Эти ребята отлично умеют плыть в русле модных течений. На новом альбоме они добавили то, что сейчас добавляют <STRONG>IN FLAMES</STRONG>. Модное звучание, чистоголосое пение. Опять не придерёшься.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот только мелодий сочинить <STRONG>ARISE</STRONG> не умеют. Это несчастное обстоятельство мешает слушать этот диск без раздражения и боли за чужие деньги, истраченные на этот диск. При этом деньги как издателя, так и покупателя. Этот&nbsp;альбом можно порекомендовать только настоящим маньякам по melodic-death.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A></FONT></P>
+Автор: Vit Belov
+
+### 02.04.2009 news ARISE возвращаются
+
+<P><STRONG><IMG height=289 alt="" hspace=0 src="/images/news_rus/2009.04/13887.jpg" width=300 align=right border=5>ARISE</STRONG> подготовили свой четвёртый альбом <STRONG>"The Reckoning"</STRONG>&nbsp;к выпуску этим летом на <STRONG>Regain Records</STRONG>. В записи этой работы приняли участие: <STRONG>Jonas Kjellgren</STRONG> (<B itxtvisited="1">SCAR SYMMETRY</B>, ex-<B itxtvisited="1">CARNAL FORGE</B>), <B itxtvisited="1">Mikael Stanne</B> (<B itxtvisited="1">DARK TRANQUILLITY</B>)&nbsp;и <B itxtvisited="1">Jake Fredem</B> (<B itxtvisited="1">NOSTRADAMEUS</B>). Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Adrenaline Rush</B><BR itxtvisited="1">02. <B itxtvisited="1">No Memory Of Light</B><BR itxtvisited="1">03. <B itxtvisited="1">Blindead</B><BR itxtvisited="1">04. <B itxtvisited="1">They Are Coming For You</B><BR itxtvisited="1">05. <B itxtvisited="1">Pitch Black</B><BR itxtvisited="1">06. <B itxtvisited="1">The Reckoning</B><BR itxtvisited="1">07. <B itxtvisited="1">Reclaiming The Soul</B><BR itxtvisited="1">08. <B itxtvisited="1">The Fury</B><BR itxtvisited="1">09. <B itxtvisited="1">Dead Silence</B><BR itxtvisited="1">10. <B itxtvisited="1">End Of Days</B></P>
+<P>Две песни здесь: <A href="http://www.myspace.com/ariseonline">http://www.myspace.com/ariseonline</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

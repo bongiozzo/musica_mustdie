@@ -24,6 +24,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.01.2013 news Новое видео ENFORCER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип шведов<STRONG> ENFORCER</STRONG> на песню <STRONG>"Mesmerized By Fire" </STRONG>можно посмотреть ниже. Трек попадёт на новую работу группы <STRONG>"Death By Fire"</STRONG>, которая выйдет 1 февраля на <STRONG>Nuclear Blast</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Bells Of Hades</B><BR>02. <B>Death Rides This Night</B><BR>03. <B>Run For Your Life</B><BR>04. <B>Mesmerized By Fire</B><BR>05. <B>Take Me Out Of This Nightmare</B><BR>06. <B>Crystal Suite</B><BR>07. <B>Sacrificed</B><BR>08. <B>Silent Hour</B> / <B>The Conjugation</B><BR>09. <B>Satan</B></P>
+<P><STRONG><center><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.01/25350.jpg" width=475 height=475></STRONG></P>
+<p><center><iframe width="640" height="360" src="http://www.youtube.com/embed/PYUJkg2SiZA?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

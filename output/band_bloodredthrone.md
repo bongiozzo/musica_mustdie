@@ -120,6 +120,131 @@ Ivan Gujic -Guitars
 * C группой "Satyricon" bassist-turned-guitarist Tchort
 * C группой "Einherjer" bassist-turned-guitarist Tchort
 
+## Публикации
+
+### 07.05.2002 news BLOOD RED THRONE готовятся к записи второго альбома...
+
+<p>Норвежцы "BLOOD RED THRONE" имеющие в своем составе бассиста/гитариста EMPEROR / SATYRICON / EINHERJER - Tchort садятся в Dub Studios для записи второго полноформатника "Affiliated With The Suffering" для летнего релиза на Hammerheart/The Plague Records. Трек-лист:<BR><BR> 01. A Dream of Death<BR> 02. Affiliated With the Suffering<BR> 03. Blood Pledge<BR> 04. Chaos Rising!<BR> 05. Unleashing Hell<BR> 06. Razor Jack<BR> 07. Gather the Dead<BR><BR> Из других новостей BLOOD RED THRONE в ближайшее время выпускают мини-CD "A Taste For Blood" с тремя песнями с нереализованного демо 2000 года, треки со сборника Nordic Metal II (Necropolis Records), кавер "MASSACRE" - "Cryptic Realms" и трек с Monument Of Death.</p>
+
+Автор: Yermola
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 16.03.2003 reviews Неважный из Чёрта композитор...
+
+<p>Р-а-з-о-ч-а-р-о-в-а-н-и-е. Ибо как ещё можно назвать альбом, на который возлагались такие надежды, и который оказался такой несусветной чушью?! BLOOD RED THRONE – норвежская группа, ведомая небезызвестным Чёртом (EMPEROR, CARPATHIAN FOREST, и т.д.), играющая… дэт. Нет, вы меня неправильно поняли: не тот дэт(-блэк) норвежского образца, что обрушивают на уши непосвящённых ребята из ZYKLON и MYRKSKOG. Эти группы действительно интересны. А вот BLOOD RED THRONE – неинтересен. Напрочь. Туповатый дэт непонятно-какого-образца… да ещё эти дурацкие барабанчики, звучащие не лучше тех, что присутствуют на демках и альбомах российских подвальных командочек. По MIDI-шному они как-то звучат, ей-богу. То есть – крайне паршиво. Видать, Hammerheart денег на запись не дали? Впрочем, не суть важно. При таком паршивом материале никакие Джины Холгланы вкупе с Доками не помогут. Одним словом – неважный из Чёрта композитор.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 17.03.2004 news Blood Red Throne готовят новый альбом
+
+<P><B>BLOOD RED THRONE</B> сочинили материал к новому альбому c ориентировочным названием "<B>Altered Genesis</B>". Запись пластинки начнётся в ближайшем будущем, а выйдет она на <B>Earache</B>.</P>
+Автор: Vit Belov
+
+### 29.01.2005 reviews Изменение происхождения
+
+<P>В очередной раз лейбл Earache решил порадовать любителей музыкального мяса. На сей раз вашему вниманию предлагается сочащийся кровью толстый край свежатинки от брутальщиков&nbsp; Blood Red Throne. Возглавляет данную формацию Tchort (tchort poberi "Бриллиантовая рука"), бывший гитарист Emperor, ныне нарезающий в коллективах Carpathian Forest и Green Carnation. Злобный, крышесрывательный&nbsp; дэт-метал, с довольно интересными рифами и техничными барабанными партиями. В основном все композиции среднетемповые, хотя, на мой взгляд,&nbsp; скоростных проходов можно было бы&nbsp; добавить. Музыка от этого бы только выиграла. Вокал - довольно банальный гроулинг, хоть и неплохой, но не яркий, стандартный для групп данного направления. И еще очень непонятно, зачем каждую композицию нужно было делить на 7-8 частей по 20-30 секунд. В результате, альбом состоит из 12 песен, которые записаны как 99 трэков. Это что, фишка такая? В целом, работа неплохая, но уж очень затянутая. 50 минут сваезабойного рубилова к концу прослушивания диска определенно начинают утомлять.</P>
+<P>Диск предоставлен концерном Группа Союз </P>
+Автор: Fucker
+
+### 17.02.2005 reviews Tchort&#39;ова дюжина
+
+<P>Норвежец-многостаночник, называющий себя скромно Tchort, выдает со своими коллегами по образованной в 1998 году группе Blood Red Throne третий полноформатник под названием "Altered Genesis". Я не слышал предыдущих пластинок этой команды, посему скажу лишь, что данный релиз представляет собой образчик бескомпромиссного американского (точнее, пожалуй, флоридского) дэт-метала, прямолинейного, довольно быстрого (но без бешеных скоростей), с мощным басом, классическим для жанра вокалом, вообще словно сыгранного по неписаным законам этой школы. Такие релизы сложно оценивать в том смысле, что, с одной стороны, придраться вроде бы не к чему, а с другой, вы это уже всё не раз слышали, да и 12 песен особым разнообразием не отличаются (хотя я хотел бы выделить заглавную вещь, где всплывает образ великих Death). Так что, хотите слушайте классиков жанра, а хотите проверьте, что наваял неутомимый Tchort (ex-Emperor, ныне Carpathian Forest/Green Carnation) сотоварищи. В любом случае, всем любителям качественного "смертельного" метала советую, по крайней мере, ознакомиться с этой пластинкой, ну а для кого слова "тяжело, мощно, энергично, брутально, агрессивно" - не пустой звук, тот, думаю, будет весьма доволен эти релизом. Мое единственное, пожалуй, замечание: альбом можно было бы сделать минут на 5-10 покороче.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 21.02.2005 news Видео-клип BLOOD RED THRONE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>BLOOD RED THRONE</STRONG> на песню "<STRONG>Smite</STRONG>" с нового альбома "<STRONG>Altered Genesis</STRONG>" доступно здесь: <A href="http://www.earache.com/bands/blood_red_throne/smite/player.html">http://www.earache.com/bands/blood_red_throne/smite/player.html</A></FONT></P>
+Автор: Vit Belov
+
+### 14.10.2005 news BLOOD RED THRONE поменяли вокалиста и барабанщика
+
+<P>Новыми членами <STRONG>BLOOD RED THRONE</STRONG> стали вокалист <STRONG>Vald</STRONG> и барабанщик <STRONG>Anders</STRONG>. Основной причиной ухода&nbsp;<STRONG>Mr. Hustler</STRONG> и <STRONG>Espen Antonsen</STRONG>&nbsp;стала невозможность выступать с группой на концертах.</P>
+Автор: Vit Belov
+
+### 09.03.2008 reviews Мощь и реализация: два главных козыря
+
+<P>Музыку надо любить! Death-metal музыку надо любить!!! Понятно, что если вы себя не причисляете к фэнам этого стиля, то не станете слушать новейший альбом норвежцев BLOOD RED THRONE “Come Death”. Но если вам хочется свежего питательного «мясца», то вы его получите.</P>
+<P>Отличительной особенностью этой пластинки является «мега-мясное» звучание. Низконастроенные гитары, чёткий ритм, музыка не без эстетских «передёргиваний». Всё это «пробирает до костей» любого любителя death-metal. Я тут почитал рецензии на нашем сайте от уважаемых коллег. Вступать в перпалку с ними, вот так сразу, я не стану, к сожалению, предыдущих работ BLOOD RED THRONE я не слышал, теперь послушаю обязательно, но “Come Death” убивает своим «драйвом» и мощнейшим настроением наповал. Безусловно, можно говорить о некоторой вторичности этого материала, но, то, как это исполнено, сглаживает любые возможные претензии. Конечно же, надо упомянуть в этой рецензии и Чёрта (GREEN CARNATION, CARPATHIAN FOREST), для порядка. Но что-то мне подсказывает не он один автор всего этого великолепия.</P>
+<P>О том, что является основной частью death-metal, можно спорить бесконечно. Мне думается, великолепная реализация и энергетический заряд являются немаловажными компонентами. BLOOD RED THRONE представляют всё это с избытком.</P>
+Автор: Vit Belov
+
+### 14.03.2008 news BLOOD RED THRONE в Москве!!!
+
+<P>Единственная известная уже на весь мир норвежская death metal группа <STRONG>BLOOD RED THRONE</STRONG> впервые в России! После выпуска нового альбома "<STRONG>COME DEATH</STRONG>" группа резко увеличила свои продажи по всему миру, а в Японии и Великобритании вообще стала топовым релизом<STRONG> Earache Records</STRONG>. Кроме того, группа известна тем, что в ее составе играют музыканты <STRONG>CARPATHIAN FOREST</STRONG> и ex<STRONG>-EMPEROR</STRONG>. <STRONG>BLOOD RED THRONE</STRONG> сыграют единственный концерт в России совместно со шведскими death metal монстрами<STRONG> GRAVE</STRONG> в московском клубе "ГОРОД" 5 апреля 2008 года!</P>
+Автор: Vit Belov
+
+### 29.03.2008 news GRAVE и BLOOD RED THRONE в Москве
+
+<CENTER><IMG height=300 src="/images/shows_rus/2008.03/12388.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 12.03.2009 news BLOOD RED THRONE отпразднуют в начале лета
+
+<P>Норвежцы<STRONG> BLOOD RED THRONE</STRONG> закончили запись нового альбома <STRONG>"Souls Of Damnation". </STRONG>Пластинка приурочена к десятилетию коллектива, и её лимитированное издание будет снабжено концертным DVD. Дата релиза: 1 июня на<STRONG> Earache</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.03.2009 news Обложка юбилейного BLOOD RED THRONE
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.03/13820.jpg" width=400 align=right border=5>BLOOD RED THRONE</STRONG> опубликовали обложку и трэк-лист своего нового альбома <STRONG>"Souls Of Damnation"</STRONG>, который выйдет 1 июня. Трэк-лист:</P>
+<P>01. <B>The Light, The Hate</B><BR>02. <B>Harme</B><BR>03. <B>Your Cold Flesh</B><BR>04. <B>Human Fraud</B><BR>05. <B>Demand</B><BR>06. <B>Throne Of Damnation</B><BR>07. <B>Prove Yourself Dead</B><BR>08. <B>Not Turgenjev, But Close</B><BR>09. <B>Ten Steps Of Purgatory</B><BR>10. <B>Manifest Of Lies</B> *<BR>11. <B>Affiliated With The Suffering</B> *<BR><BR>* Limited edition bonus tracks</P>
+Автор: Vit Belov
+
+### 02.04.2009 news Трэйлер BLOOD RED THRONE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>BLOOD RED THRONE</STRONG> <STRONG>"Souls Of Damnation" </STRONG>выходит в начале лета. Ниже можно посмотреть рекламный трэйлер этого альбома:</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Yzn8GkkXmFc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/Yzn8GkkXmFc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.04.2009 news Новая песня BLOOD RED THRONE
+
+<P>Новую песню <STRONG>BLOOD RED THRONE</STRONG> <STRONG>"The Light, The Hate" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/bloodredthrone666">http://www.myspace.com/bloodredthrone666</A></P>
+Автор: Vit Belov
+
+### 05.08.2009 reviews Понятный всем death-metal
+
+<P>В своей любви к современной музыке норвежцев BLOOD RED THRONE я признался ещё в рецензии на их прошлый альбом “Come Death”. Забив на разнообразные эксперименты, группа сконцентрировалась на своём death-metal звучании, и этот перфекционистский подход полностью оправдал себя. Теперь если кто спрашивает, что ему послушать из тяжёлого, но не слишком убийственного death-metal, на ум сразу приходят эти норвежцы.</P>
+<P>На своём новом юбилейном альбоме “Souls Of Damnation” BLOOD RED THRONE продолжили этот свой курс. Качественнейшая реализация, разнообразие ритмов и тяжеленные гитары. Настоящим поклонникам драйва больше ничего и не надо. Здесь нет излишней «техничности» или «прогрессивности». Нет здесь также и запредельной убийственной мрачности, которая часто отпугивает любителей старого доброго металла, которым иногда, а может и не иногда, хочется послушать чего-то потяжелее. Небольшая едва заметная примесь thrash-metal переводит эту тяжелейшую музыку в понятную dctv плоскость. </P>
+<P>Новый альбом BLOOD RED THRONE по-прежнему можно рекомендовать практически каждому. За один гитарный звук, думается, все простят этой группе любые возможные недочёты и некоторое однообразие.</P>
+Автор: Vit Belov
+
+### 18.06.2016 news BLOOD RED THRONE выпускают восьмой альбом
+
+<p>Новый альбом норвежской death metal банды <strong>BLOOD RED THRONE&nbsp;"Union Of Flesh and Machine"</strong>&nbsp;выходит 15 июля на <strong>Spinefarm Records</strong>. </p><p>Трек лист:</p><p>1. Revocation of Humankind <br>2. Proselyte Virus <br>3. Patriotic Hatred <br>4. Homicidal Ecstacy <br>5. Martyrized <br>6. Union of Flesh and Machine&nbsp; <br>7. Legacy of Greed&nbsp; <br>8. Exposed Mutation&nbsp; <br>9. Primal Recoil <br>10. Leather Rebel (Judas Priest cover)&nbsp; <br>11. Mary Whispers of Death</p><p><center><img width="650" height="650" src="/images/news_rus/2016.06/29393.jpg" border="0">&nbsp;</p>
+Автор: Vit Belov
+
+### 18.06.2016 news BLOOD RED THRONE to release eighth album
+
+<p>New album from Norwegian death metal band<strong> BLOOD RED THRONE "Union Of Flesh and Machine"</strong> will be released on July 15 via <strong>Spinefarm Records</strong>.</p><p>Track listing:</p><p>1. Revocation of Humankind <br>2. Proselyte Virus <br>3. Patriotic Hatred <br>4. Homicidal Ecstacy <br>5. Martyrized <br>6. Union of Flesh and Machine&nbsp; <br>7. Legacy of Greed&nbsp; <br>8. Exposed Mutation&nbsp; <br>9. Primal Recoil <br>10. Leather Rebel (Judas Priest cover)&nbsp; <br>11. Mary Whispers of Death</p><p><center><img width="650" height="650" src="/images/news_rus/2016.06/29393.jpg" border="0">&nbsp;<p></p></center>
+Автор: Vit Belov
+
+### 30.06.2016 reviews Тот самый death metal
+
+<p>Норвежская группа BLOOD RED THRONE была образована почти 20 лет назад двумя сессионными&nbsp;музыкантами SATYRICON Dod и Tchort. Намыкавшись по концертам с Satyr, который в то время вынашивал свою «Rebel Extravaganza”, два серьёзных дядьки решили организовать настоящую death metal банду.</p><p>Именно то, что BLOOD RED THRONE настоящая death metal банда и является главной её отличительной особенностью. После ухода Tchort в 2010 году, который совпал с окончанием сотрудничества BLOOD RED THRONE с Earache Records, норвежцы отдали должное и бруталу, но в любом своём виде музыка коллектива это прежде всего тот death metal, который был изобретён в Европе на рубеже 80-х и 90-х. В Америке death metal был изобретён параллельно, но он там слегка другой. В Европе ценится прямолинейность, ритм, идеальная монолитная реализация. Всё это есть и на новом альбоме BLOOD RED THRONE “Union Of Flesh And Machine”, который выйдет в середине июля на Spinefarm. После заезда на брутальный лэйбл Sevared в музыке группы сохранились элементы brutal death metal, в частности «двойной» вокал гроулинго-скрим, но невооружённым ухом слышно, что группа не растеряла своего «олдскульного» наследия. Родство подтверждается треком с первого альбома «Mary Whispers Of Death” и кавер-версией на JUDAS PRIEST “Leather Rebel”.</p><p>Я уже соскучился по этой группе. Некоторое время она не попадалась мне на глаза, при этом успешно выпуская альбомы, но уже новейший восьмой альбом норвежцев напомнил мне, с кем я имею дело. Этот материал надолго зависнет в моём плейере.</p>
+Автор: Vit Belov
+
+### 01.07.2016 reviews The same old death metal
+
+<p>The Norwegian band BLOOD RED THRONE was formed nearly 20 years ago by two session musicianss of SATYRICON bassist Tchort and guitarist Dod. They wondered with concerts with the Satyr, who at the time was nurtured his "Rebel Extravaganza". Two serious guys decided to organize a real death metal band.</p><p>Exactly what BLOOD RED THRONE is a real death metal band is its main distinguishing feature. After the departure of Tchort in 2010, which coincided with the end of BLOOD RED THRONE's cooperation with Earache Records, the Norwegians paid tribute to brutal, but in any of its form, the music is primarily that death metal was invented in Europe in the late 80s and begining of 90s. In America, death metal was invented in parallel, but it is there slightly different. In Europe valued straightness, rhythm, a perfect monolithic production. All this is on the new album from BLOOD RED THRONE “Union Of Flesh And Machine,” which will be released in mid-July via Spinefarm. After they were on the brutal label Sevared, music of the group has preserved the elements of brutal death metal, in particular "dual" vocals, growling-scream, but to the naked ear can hear that the group hasn't lost its "old school" heritage. The relationship is confirmed by a track from the first album "Mary Whispers Of Death" and a cover version on JUDAS PRIEST's "Leather Rebel".</p><p>I have missed this group. Some time they didn't catch my eye, successfully releasing albums, but the latest eighth full-length album of the Norwegians reminded me of who I'm dealing with. This material is permanently stuck in my CD player.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

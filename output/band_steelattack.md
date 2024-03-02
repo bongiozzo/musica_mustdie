@@ -100,6 +100,94 @@ Zebulon Olsson from Cryonic Temple.
 * C группой "Tad Morose" Peter Moren (drums)
 * C группой "Inmoria" Peter Moren (drums)
 
+## Публикации
+
+### 02.02.2003 news Новости от STEEL ATTACK
+
+<p>7 апреля 2003 года в Европе выходит новый альбом группы STEEL ATTACK под названием "Predator Of The Empire". В альбом войдут одиннадцать мощнейших heavy metal гимнов, записанных с новым вокалистом, высокий голос которого украшает эту работу. Трэк-лист выглядит следующим образом:</p>
+<p> 1-Predator of the Empire <BR> 2-Cursed Land <BR> 3-The Darkness <BR> 4-Point Of No Return <BR> 5-Heavy Metal God <BR> 6-The Holy Sign <BR> 7-Arise <BR> 8-Nightmare <BR> 9-One Way To Heaven One Way To Hell <BR> 10-Reality Unknown <BR> 11-Paradise (Japanese Bonus Track)</p>
+
+Автор: Dimas
+
+### 22.06.2003 reviews Power-heavy-metal без прикрас
+
+<p>Очередная пластинка, которая вполне могла бы пройти и незамеченной. STEEL ATTACK выпускают в России уже третий альбом, но по прежнему остаются на уровне группы подающей надежды. Ни более, ни менее, приличные мелодии, стандартные для стиля и кавер Helloween 'Dr. Stein', который сразу убивает всё, что было прослушано до этого. Плюс ко всему добавляется плохая реализация с задвинутой на задний план ритм-секцией. Arise Records, которому принадлежат все эти power-metal группы, уже спорит за звание их главного рассадника. Любители power спокойно могут покупать пластинки со значком этого испанского лэйбла, чтобы получить очередную порцию своей любимой воды без газа и без запаха. Остальным же лучше обойти вниманием 'Predator of Empire'. Не за что зацепиться...</p>
+
+Автор: Vit Belov
+
+### 04.12.2003 news У Steel Attack новый вокалист
+
+<P><B>STEEL ATTACK</B> объявили имя нового вокалиста. Им стал <B>Ronny Hemlin (Lack of Faith).</B> <B>STEEL ATTACK</B> войдут в студию в апреле будущего года<B>.</B></P>
+Автор: Vit Belov
+
+### 04.12.2003 news STEEL ATTACK - new singer
+
+<B>Ronny Hemlin (Lack of Faith)</B> is the new singer of the <B>STEEL ATTACK</B>.&nbsp;The band&nbsp;will record thier new album in April 2004.<BR>
+Автор: Vit Belov
+
+### 11.08.2004 news STEEL ATTACK готовы к нападению
+
+<P>Шведская heavy-power metal группа <B>STEEL ATTACK</B> подготовила к выпуску в октябре свой четвертый альбом <B>"Enslaved"</B> на <B>Arise Records</B>. "<I>Это лучший альбом группы за всю их карьеру</I>", - как сообщается на сайте группы. В него войдут следующие вещи:</P>
+<P><IMG height=131 alt="" hspace=0 src="/images/news_rus/2004.08/6896.jpg" width=250 align="right" border=5>1. <B>Gates Of Heaven</B><BR>2. <B>Out Of The Flames</B><BR>3. <B>Forsaken</B><BR>4. <B>Bless My Sins</B><BR>5. <B>Immortal Hate</B><BR>6. <B>Son Of A Thousand Souls</B><BR>7. <B>Enslaved</B> <BR>8. <B>Voices</B><BR>9. <B>When You Dream</B><BR>10. <B>Afraid No More</B><BR></P>
+Автор: Дофф
+
+### 08.02.2005 reviews Типичный продукт от Arise
+
+<P>Шведы <STRONG>STEEL ATTACK</STRONG> – типичная группа. Группа с типичным качеством записи, с типичным power-metal материалом, с типичным хорошим владением инструментами, выходящая на типичном power-metal лэйбле <STRONG>Arise Records</STRONG>…</P>
+<P>Если Вы любите power-metal немецкого образца, Вы смело приобретаете этот альбом и типично остаётесь довольны. Если Вы ждёте от ‘<STRONG>Enslaved</STRONG>’ шедевра, Вы покупаете этот альбом и типично остаётесь не довольны, так как ждать от <STRONG>STEEL ATTACK</STRONG> шедевра может только непроходимый… типичный любитель power-metal.</P>
+<P>Запала на весь альбом у группы не хватает, как обычно. Несколько первых песен слушается на ура, далее начинает всё буксовать. Мой фаворит – второй трэк ‘<STRONG>Out Of The Flames’</STRONG>, хотя, думается, расставь песни по-другому, и фавориты были бы другие.</P>
+<P>Также типично, что от альбома к альбому <STRONG>STEEL ATTACK</STRONG> ничего не меняют. И это-то и нравится фэнам стиля, остальные могут смело этот качественный (без сарказма) продукт пропустить.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 19.01.2006 news Новый STEEL ATTACK
+
+<P>Новый альбом <STRONG>STEEL ATTACK "Diabolic Symphony"</STRONG> выходит 21 апреля на <STRONG>Massacre</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.02.2006 news Новый альбом STEEL ATTACK
+
+<P>Мы уже сообщали, что новый альбом <STRONG>STEEL ATTACK "Diabolic Symphony"</STRONG> выходит 21 апреля на <STRONG>Massacre</STRONG>. Стал известе трэк-лист:</P>
+<P>01. <B>Diabolic Symphony</B> <BR>02. <B>Dead Forever</B> <BR>03. <B>Shallow Seas Of Hatred</B> <BR>04. <B>Dreaming</B> <BR>05. <B>Embraced By Fear</B> <BR>06. <B>Invisible God</B> <BR>07. <B>Sanctimonious</B> <BR>08. <B>Haunting</B> <BR>09. <B>Show Me The Way</B> <BR>10. <B>Winter Hell</B> <BR>11. <B>I Bow My Head In Shame</B> <BR>12. <B>The Other Side</B> </P>
+Автор: Vit Belov
+
+### 18.01.2008 news STEEL ATTACK назвали альбом
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2008.01/12149.gif" width=200 align=left border=5>Новый альбом <STRONG>STEEL ATTACK</STRONG>, выходящий 22 февраля на Massacre, будет называться <STRONG>"Carpe DiEnd". </STRONG>Пластинка была записана с <STRONG>Andy LaRocque </STRONG>в студии <STRONG>Sonic Train</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.01.2008 news STEEL ATTACK выложили новую песню
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>STEEL ATTACK</STRONG> выложили новую песню "<STRONG>Angels</STRONG>" на своей <STRONG>MySpace</STRONG> страничке. Эта песня войдёт на новый альбом группы <STRONG>"Carpe DiEnd", </STRONG>выходящий 22 февраля на <STRONG>Massacre</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/steelattack">http://www.myspace.com/steelattack</A></FONT></P>
+Автор: Vit Belov
+
+### 02.02.2008 news Новое видео от STEEL ATTACK
+
+<P><STRONG>STEEL ATTACK</STRONG> выложили видео на песню "<STRONG>Angels</STRONG>". Новая песня войдёт на грядущий альбом <STRONG>"Carpe DiEnd", </STRONG>выходящий 22 февраля на <STRONG>Massacre</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=373 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/xV5Mc3UeAyQ&rel=1&border=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/xV5Mc3UeAyQ&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 05.02.2009 news STEEL ATTACK поменяли гитариста
+
+<P>В <STRONG>STEEL ATTACK</STRONG> вернулся гитарист <STRONG>Johan Jalonen Penn. </STRONG>Он заменил ушедшего по личным причинам <STRONG>Simon Johansson</STRONG> (<B>MEMORY GARDEN</B>, <B>ABSTRAKT ALGEBRA</B>).</P>
+Автор: Vit Belov
+
+### 23.11.2009 news Большие перемены в STEEL ATTACK
+
+<P><STRONG>STEEL ATTACK</STRONG> расстались с тремя музыкантами<STRONG> Ronny Hemlin</STRONG> (vocals), <STRONG>Peter Moren</STRONG> (drums)&nbsp;и <STRONG>Johan Lofgren</STRONG> (bass). Оставшиеся участники объявили, что не могут продолжать свой путь вместе.</P>
+Автор: Vit Belov
+
+### 30.11.2009 news STEEL ATTACK объединятся в оригинальном составе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>STEEL ATTACK</STRONG>, которые уволилим недавно более половины своего состава, объединились с бывшими участниками в оригинальном составе на несколько концертов. Это тот состав, который записывал два первых альбома группы <STRONG>"Where Mankind Fails"</STRONG> (1999)&nbsp;и <B>"Fall Into Madness"</B> (2001):</FONT></P>
+<P><STRONG>Steve Steel</STRONG> (Stefan Westerberg) - Bass, Vocals<BR><B>John Allan</B> - Guitar<BR><B>Dennis Westman</B> - Guitar<BR><B>Andereas de Vera</B> - Drums</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

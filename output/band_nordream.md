@@ -44,6 +44,61 @@ Drums on "Ugly Face" by Andrei Ischenko (End Zone)
 * C группой "Ens Cogitans" Ruben (guitar)
 * C группой "Southwake" Ruben (guitar)
 
+## Публикации
+
+### 21.01.2001 reviews Музыка с большой буквы
+
+<p>Музыка с большой буквы! Целых три года я ждал этот альбом. Еще в 1997 году я попал на один из первых концертов группы в Ю-ту, и уже тогда меня поразила необыкновенная техника музыкантов (а особенно гитариста Рубена Казаряна) и непередаваемая мелодичность музыкального материала. Тогда у группы были проблемы с вокалистом, поэтому тот концерт был почти весь из инструментального материала. Недаром группой сразу заинтересовался фронтмэн End Zone Игорь Лобанов предложив Nordream свои услуги в качестве продюссера. Но, к сожалению, проблемы с вокалистом так и не решены до сих пор. На альбоме принимают участие многие известные люди. В качестве вокалиста гостит Олег Алимов из Ens Cogitans. Ему подпевает Игорь Лобанов, а партии речитативов произносит Борис Спектор. Партии ударных на одной из вещей исполняет один из лучших наших ударников - Андрей Ищенко (ex-Symbol, ex-Dreaming Soul, сейчас в E-Zone). Альбом был записан более года назад в легендарной SNC records. Долгое время решался вопрос с вокальными партиями. И вот только полгода назад наконец-то был завершен процесс микширования Евгением Трушиным и Игорем Лобановым. И вот перед нами потрясающий результат долгой, упорной и кропотливой работы, проделанной не зря. Придраться просто не к чему. Ровный звук, выверенные партии гитар и ритм-секции, атмосферно-туманные, а временами довольно резкие клавиши. Половина песен без вокала, чисто инструментальные, но безумно интересные. Изумительно красивая музыка, не поддающая класссификации, но если хочется, то можно назвать это прогрессивным готическим doom - металлом. Музыка довольно сложная, но без излишних заморочек, а потому приятна и легка для прослушивания. Пленяет слух постоянное соперничество соло-гитары и клавишных. Это первый альбом нашей команды, которому я решусь поставить самый высший балл!</p>
+
+Автор: Dimas
+
+### 21.03.2001 news Tribute To Ария
+
+<p>Небезызвестный Эджен Прайс готовит трибьют посвящённый 15-летию группы Ария. На нём примут участие Gods Tower (Воля и Разум на англ.яз. NB), Ens Cogitans, Mortifer, Роза Ветров, Black Raven, Morbit, Дилан Трой, Vortex, Nordream, а также эмбиентный проект Эджена Прайса(!). Также дописывают песни Эпидемия, Эш и End Zone.</p>
+
+Автор: Vit Belov
+
+### 15.04.2001 news Альбом-посвящение группе АРИЯ
+
+<p>Компания Metal Agen планирует выпуск альбома-посвящения Великой Русской хард-н-хэви Группе АРИЯ, отметившей в 2000 году своё 15-летие. На данный момент, в проекте принимают участие следующие группы GODS TOWER ("Воля и Разум" (на англ.языке)), ENS COGITANS ("Здесь куют металл"), MORTIFER ("Встань, страх преодолей"), THE ARROW / РОЗА ВЕТРОВ ("Дай руку мне"), BLACK RAVEN ("Потерянный рай"), MORBIT ("1100"), ДИЛАН ТРОЙ ("Мечты"), VORTEX ("Икар"), NORDREAM ("Улица Роз"), AGEN PRICE PROJECT ("Воля и Разум" (electro-tech-remix)). Также хотели принять участие, но пока не заявили названий песен следующие исполнители - END ZONE (Москва), ЭПИДЕМИЯ (Москва), ЭШ (Москва) и некоторые другие. Организатор проекта - Евгений Аксенов.</p>
+
+Автор: Dimas
+
+### 30.04.2001 news MetalAgen Fest - 2001
+
+<p> 16 мая 2001 года в клубе Точка состоится суперпрезентация новых альбомов Metal Agen - METALAGEN FEST - 2001. Участвуют и представляют свои альбомы группы T.H.R.O.N., MORTEM, IZAKARON, GODS TOWER, FORGIVE-ME-NOT, X-FACTOR/MORTIFER. Специальные гости фестиваля - ENS COGITANS, NEOTRUTH, NORDREAM и группа из Белоруссии RASTA.</p>
+<p> На концерте также будет презентация журнала Metal Art.</p>
+<p> Билеты продаются в рок-магазинах, клубе Точка и на станциях Московского метрополитена. Цена билета - 100 рублей. В день концерта - 200 рублей.</p>
+<p></p>
+
+Автор: Dimas
+
+### 02.11.2001 news Фестиваль интеллектуальной музыки
+
+<p><span style="background:#4d0000">11-го ноября</span> в воскресенье под эгидой журнала In Rock и компании MetalAgen организуется Фестиваль интеллектуальной музыки <B>In Prog'2001</B>. На нем выступят до сих пор не игравшие в Москве progressive-rock группа из Тында <B>AZAZELLO</B> и питерская prog-metal группа <B>FACE-X</B>, также примут участие в фестивале московские команды <B>NORDREAM</B> (prog-metal), <a href="http://musica.mustdie.ru/ru/band/elisium/">ELISIUM</a> (heavy-power) и <B>NYL</B> (neo-prog). Каждый купивший билет на концерт примет участие в розыгрыше призов от In Rock и MetalAgen. Фестиваль пройдет в Р-клубе. Начало концерта в 18 часов.<br> Адрес клуба: Москва, метро "Тульская", 4-й Рощинский пр., дом 19/21. Стоимость билета - 100 рублей.</p>
+<P> Подробности о фестивале смотрите по <A HREF="http://pfmusic.kulichki.net/inrock/progfest.htm">этому адресу &raquo;</A>.</>
+
+Автор: Dimas
+
+### 01.05.2002 news 8 июня в Москве состоится концерт Theatre of Tragedy
+
+<p><IMG SRC="/images/news_rus/2002.05/2696.jpg" ALT="Theatre Of Tragedy" width="285" height="198" vspace="5" align="left"></p>
+<p>8 июня в ДК Горбунова состоится концерт легендарной группы <A HREF="http://musica.mustdie.ru/ru/band/theatre_of_tragedy/">Theatre of Tragedy</A>. Начало концерта в 19-00. На разогреве - группа <A HREF="http://musica.mustdie.ru/ru/band/nordream/">Nordream</A>. Выступление <A HREF="http://musica.mustdie.ru/ru/band/theatre_of_tragedy/">Theatre of Tragedy</A> будет в основном построено на классических композициях группы, без электронных экспериментов. Цена билета: 500 руб. - партер, 600 руб. - балкон, 800 руб. - сидячий второй этаж. Билеты продаются в театральных кассах, в рок-магазинах, в Рубине и в кассе ДК Горбунова. Заказать билеты можно по телефону 145 9845. Телефон кассы (для справок) - 145 8098. Билеты также продаются на сайтах: <A HREF="http://www.sobytia.ru/">www.sobytia.ru</A>, <A HREF="http://www.biletik.ru/">www.biletik.ru</A>, <A HREF="http://www.kontramarka.ru/">www.kontramarka.ru</A>, <A HREF="http://www.parter.ru/">www.parter.ru</A>.</p>
+<p>Подробности о группе и о концерте - на сайте <A HREF="http://www.theatreoftragedy.ru/">www.theatreoftragedy.ru</A>.</p>
+<p>Организаторы концерта - MATRIX MGMT.</p>
+<p>Информационная поддержка - <A HREF="http://musica.mustdie.ru/">Musica.Mustdie.Ru</A></p>
+<p>В пятницу, 7 июня Thearte Of Tragedy тусуются в клубе <A HREF="http://www.svalka.net/">Свалка</A>. Можно общаться, брать автографы и т.п. Приглашаются все желающие.</p>
+<p>Объявлены победители конкурса.<br> 3 диска получат: Константин "Sinder", Олег Ефремов (OI), Андрей Лебедев.<br> 5 кассет: Kot, Felix Zaliaev, Анатолий "Earnest", Diabolus, Shadowspawn.<br> Призы будут вручены перед концертом Theatre Of Tragedy.</p>
+
+Автор: Morsus
+
+### 20.06.2002 news Компиляция   от   CORONACH   Records   &quot;Tunes   of  Dusk...&quot;
+
+<p>CORONACH Records представляет Tunes of Dusk... (compilation 2) <BR><BR> "Tunes of Dusk" - концептуальная компиляция, объединившая группы российского андеграунда. Это более 79 минут агрессивного зимнего BLACKMETAL, мощного DEATH звучания, задумчивых готических мелодий и экспериментальной музыки. "Tunes of Dusk" дает наиболее полное представление о современных тенденциях в металлической сцене России. <BR><BR> В проекте участвуют:<BR> Azazello, Blut Formicarium, Necrost, Nordream, Somnolence - известные своими выступлениями в московских клубах. Некоторые коллективы имеют диски изданные российскими и зарубежными лэйблами; Forest Stream (подписали контракт с Earache Records (England) на издание своего следующего диска); Слот (в проекте участвует гитарист группы Трактор Боулинг, вокалистка Тэка, выигравшая в 2001 году конкурс "Славянский базар"); а так же молодые коллективы: By Autumn Embraced, Factura, Nova Art, Uncrossed, Alpha Scorpii. <BR><BR> =-=-=-= трек-лист -=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-=-<BR><BR> CORONACH "Compilation-II: Tunes of Dusk" 2002<BR><BR> 01) Forest Stream "Mel Kor" (08:22) (winter black)<BR> 02) Factura "My Sorrows" (04:06) (angry techno thrash)<BR> 03) Somnolence "...and Dusk Hath Fallen" (05:45) (melodic mental doom)<BR> 04) Autumn Embraced "One Step Towards the Fading Sun" (04:45) (gothic black death)<BR> 05) Blut Formicarium "Ante Scortum Mortem" (03:36) (atm.melodic black-death)<BR> 06) Necrost "Divine" (04:45) (progressive death metal)<BR> 07) Nova Art "Freedom of a Closed Space" (07:15) (progressive metal)<BR> 08) Nordream "of a hope" (05:34) (heavier metal)<BR> 09) Uncrossed "Absurd Philosophy" (02:45) (progressive jazz death)<BR> 10) Forest Stream "Last Season Purity" (12:00) (winter black)<BR> 11) Слот "Клон" (03:37) (alternative nu metal)<BR> 12) Azazello & Divo "Divo" (03:04) (progressive folk-rock)<BR> 13) Somnolence "Woods Gothic" (06:26) (melodic mental doom)<BR> 14) Alpha Scorpii "Arctica" (06:53) (atmospheric darkwave)<BR><BR> TOTAL TIME 79:56<BR><BR> World Wide Web http://coronach.com<BR> e-mail: info@coronach.com<BR></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### NORDREAM?

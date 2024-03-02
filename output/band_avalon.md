@@ -76,6 +76,9 @@ Power metal
 * C группой "Domain" Chity Somapala (vocal)
 * C группой "Power Quest" Chity Somapala (vocal)
 
+## Публикации
+
+
 ## Обсуждения
 
 

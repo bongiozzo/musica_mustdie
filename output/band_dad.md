@@ -97,6 +97,103 @@ Stig Pedersen - Bass & Back-Back Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.08.2006 reviews Не шрамируйте свой слух
+
+<P>Надпись на обистрипе данной пластинки гласит: "Эмоциональные рок-номера, преисполненные первобытного драйва". Ну что же, подумалось мне, авось сейчас услышу клевый рок в духе Nashville Pussy или Spiritual Beggars, которые просто потрясли меня своими последними работами. Какого же было мое разочарование, когда я услышал D.A.D.- настоящим драйвом там и не пахло. Музыку этого коллектива я бы скорее охарактеризовал как брит-поп со слегка подгруженной гитарой. Вам нравится Blur? В таком случае, альбом "Scare Yourself" вполне может прийтись вам по вкусу.</P>
+<P>К радости или к сожалению, я слишком далек от такой музыки, поэтому данную рецензию оставляю без оценки ибо не компетентен. Простите.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 30.08.2006 reviews Пей, пой, веселись и мозгами не трудись
+
+<P>Дания не особо богата на знаменитостей тяжелой сцены. На ум приходят разве что Ларс Ульрих (Metallica) и King Diamond, ну, может, Olsen Brothers. Однако есть еще такая команда, как D.A.D., которая в свое проклятое время смогла завоевать популярность не только у себя на родине, но и за ее пределами. Не ломайте голову над этой аббревиатурой. Всё очень просто. Группа в начале своего существования (а именно лет эдак 20 назад) называлась Disneyland After Dark, но после вмешательства юристов всемогущей империи мультфильмов решила изменить название на скромное D.A.D. Скажу честно, я весьма смутно знаком с прошлыми работами этих датчан, которые начинали играть в стиле, который называли country-punk. Уж не знаю, что там раньше было, но на своем новейшем опусе "Scare Yourself" нам предлагают слегка утяжеленный вариант британского поп-рока с изрядной примесью панка и рок-н-ролла и совсем маленькой щепоткой гранджа (которым группа увлекалась в пору расцвета Nirvana и пр.) и глэма. Возможно, это просто не моё, но в наши суровые дни подобная музыка особого впечатления не производит. Песни сильно гитароориентированные, в них есть свой драйв, и мне кажется, что они весьма неплохо слушаются во время живых выступлений. В остальном же надо быть либо большим любителем подобных жанров, либо принадлежать к фанатам D.A.D., ибо ничего особо примечательного и притягательного в их музыке нет. Она проста и незамысловата и отлично подошла бы для какой-нибудь пивной вечеринки, когда хочется слушать что-то ненавязчивое и ненапрягающее, но в то же время веселое и танцевальное (как, например, песенку 'Hey Now', выдержаную в духе T. Rex, совершенно явный потенциальный хит; хм, одновременно пришла мысль об облегченных AC/DC).&nbsp; Ну а заключительная 'You Filled My Head' (которая почему-то названа бонус-трэком) напомнила мне&nbsp;поздних&nbsp;RHCP. Короче, пей, пой, веселись и мозгами не трудись. Вряд ли вы будете специально переслушивать эту пластинку, чтобы вдумчиво оценить ее музыкальную составляющую, но выше я уже отмечал, для какой цели лучше всего подойдет "Scare Yourself". В окончательном варианте альбом выйдет с видеоклипом на заглавную песню.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 26.08.2009 news &quot;Коробка&quot; от D-A-D
+
+<P>Датская группа <STRONG>D-A-D</STRONG>, выпустит новый релиз, названный <STRONG>"The Overmuch Box"</STRONG>, 16 ноября. Согласно сообщению группы, данная&nbsp;"коробка" будет содержать 10 студийных альбомов; миньон <STRONG>"Standin' On The Never Never"</STRONG> и диск <STRONG>"Behind The Seen"</STRONG>,&nbsp;в который&nbsp;войдут&nbsp;B-sid'ы и небольшое количество невыпущенных песен; и последнее, но немаловажное - книгу на 164 страницах&nbsp;о <STRONG>D-A-D</STRONG> и их музыке, иллюстрированную рисунками басиста <STRONG>Stig Pedersen и </STRONG>фотографиями из архивов группы.</P>
+<P><IMG height=270 alt="" hspace=100 src="/images/news_rus/2009.08/14932.jpg" width=400 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 24.09.2009 news Редкая песня D.A.D.
+
+<P><IMG height=300 alt="" hspace=5 src="/images/news_rus/2009.09/15103.jpg" width=264 align=right vspace=5 border=0>Группа <STRONG>D.A.D.</STRONG> опубликовала песню <STRONG>"Look What The Drug Dragged In" </STRONG>(слушать здесь:<STRONG> </STRONG><FONT style="BACKGROUND-COLOR: #000000"><A href="http://www.myspace.com/dad">http://www.myspace.com/dad</A>)</FONT>, которая войдёт&nbsp;на&nbsp;диск с редкостями под названием <STRONG>"Behind The Seen"</STRONG>. Данный альбом является частью юбилейного бокса <STRONG>"Overmuch Box"</STRONG>,&nbsp;подготовленного к 25-летию коллектива.&nbsp;Так же, данный бокс выйдет в формате <STRONG>Deluxe Limited Edition</STRONG> (на фото)&nbsp; и помимо визуальных отличий от&nbsp;обычного издания, будет содержать USB на&nbsp;2 гигабайта со всеми десятью альбомами группы, миньоном <STRONG>"Standin' On The Never Never"</STRONG>, бонус диском <STRONG>"Behind The Seen"</STRONG> и ультра редкими концертными записями, недоступными где-либо ещё.</P>
+Автор: Headcrusher
+
+### 30.10.2009 news Пиво от D.A.D.
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2009.10/15399.jpg" width=215 height=300>D.A.D.</STRONG> продолжают отмечать свой&nbsp;двадцать пятый юбилей.&nbsp;На этот раз, совместно с датской пивоварней <STRONG>Apollo</STRONG>, группа подготовила к продаже пиво, названное <STRONG>"Bad Craziness"</STRONG>. Пиво поступит в магазины в ноябре, а так же, возможно будет продаваться, как бочковое, на грядущем концерте группы в городе <STRONG>Ballerup</STRONG>. Не исключена и возможность того, что оно будет доступно, как бочковое и в некоторых барах Дании.</P>
+Автор: Headcrusher
+
+### 12.10.2011 news Новый альбом D-A-D в ноябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Датчане <STRONG>D-A-D</STRONG> выпускают свой новый альбом, получивший странное название <STRONG>"DIC.NII.LAN.DAFT.ERD.ARK"</STRONG>. Диск увидет свет 11 ноября на территории Германии, а 14 ноября в Датском Королевстве. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>11 ноября группа обещает сделать доступной онлайн прослушку всего альбома на своём официальном сайте по адресу: <A href="http://d-a-d.com/">http://d-a-d.com</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А пока, можно ознакомиться с первым синглом c&nbsp;<STRONG>"DIC.NII.LAN.DAFT.ERD.ARK"</STRONG> на песню<STRONG> "I Want What She's Got"</STRONG>: <A href="http://www.dic-nii-lan-daf-terd-ark.dk/">http://www.dic-nii-lan-daf-terd-ark.dk</A></FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2011.10/21534.jpg" width=500 height=363></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 31.01.2012 news D-A-D: &quot;I Want What She&#39;s Got&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на трек<STRONG> "I Want What She's Got"</STRONG> с альбома <STRONG>"DIC.NII.LAN.DAFT.ERD.ARK"</STRONG>&nbsp;датчан <STRONG>D-A-D</STRONG>, можно заценить ниже.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/riHdzZ5_K6U" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 27.05.2012 news D-A-D: &quot;We All Fall Down&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео датчан <STRONG>D-A-D</STRONG> на песню <STRONG>"We All Fall Down"</STRONG>, можно посмотреть ниже. <STRONG>"We All Fall Down" </STRONG>вошла на последний альбом<STRONG> </STRONG>группы, <STRONG>"DIC.NII.LAN.DAFT.ERD.ARK"</STRONG>, который увидел свет в ноябре прошлого года.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/95eapZ3aTlg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.01.2013 news Группа D-A-D выпускает фотокнигу &quot;Live Shots&quot;
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25233.jpg" width=600 height=293> 
+<P></P>
+<P>Датский квартет <STRONG>D-A-D</STRONG> выпускает фотокнигу<STRONG> "Live Shots"</STRONG>, снабжённую двумя компакт дисками. </P>
+<P>Заплатив 399 датских крон, что равняется примерно 53 евро, вы получите фотокнигу в жёстком переплёте размером 30 x 30 см., 204 страницы которой, наполнены изумительными фотографиями. Плюс к этому, к книге прилагаются два компакт диска, один&nbsp;из которых содержит&nbsp;концертные записи сделанные во время прошлогоднего тура <STRONG>"Fast On Wheels"</STRONG>, а другой - не выходившие ранее акустические версии песен, записанные в студии <STRONG>"Grape House"</STRONG> (Копенгаген).</P>
+<P>Дата выхода: 14 января 2013 г.</P>
+<P>Сделать предзаказ можно на сайте: <A href="http://dad.sonymusicshop.dk/">http://dad.sonymusicshop.dk</A></P>
+<P><STRONG>"Home Alive"</STRONG> - CD1<BR>01. <STRONG>A New Age Moving In<BR></STRONG>02. <STRONG>Jihad<BR></STRONG>03. <STRONG>The End<BR></STRONG>04. <STRONG>Everything Glows<BR></STRONG>05. <STRONG>Ridin' With Sue<BR></STRONG>06. <STRONG>Monster Philosophy<BR></STRONG>07. <STRONG>We All Fall Down<BR></STRONG>08. <STRONG>Last Time In Neverland<BR></STRONG>09. <STRONG>I Want Was She's Got<BR></STRONG>10. <STRONG>Gods Favorite<BR></STRONG>11.<STRONG> The Place Of The Heart<BR></STRONG><EM>Записано 13 - 14 апреля&nbsp;2012 г.&nbsp;на площадке&nbsp;"Falconer Salen", Копенгаген</EM></P>
+<P><STRONG>"The Campfire Favorites EP"</STRONG> - CD2<BR>01. <STRONG>I Want What She's Got<BR></STRONG>02. <STRONG>The End<BR></STRONG>03. <STRONG>A New Age Moving In<BR></STRONG>04. <STRONG>Last Time In Neverland<BR></STRONG>05. <STRONG>The Place Of The Heart<BR></STRONG><EM>Записано с 10 по 15 августа&nbsp;2012 г. на студии&nbsp;"Grape House", Копенгаген</EM></P></CENTER>
+Автор: Headcrusher
+
+### 08.01.2014 news D-A-D выпускают юбилейный сборник
+
+<P>Датский коллектив&nbsp;<STRONG>D-A-D</STRONG>,&nbsp;отмечающий в марте 2014 года&nbsp;&nbsp;30-летие своей музыкальной карьеры, выпускает&nbsp;сборник под нехитрым названием <STRONG>"30/30/30"</STRONG>.&nbsp;На двойной&nbsp;CD&nbsp;войдёт 30&nbsp;хитов группы, начиная с треков с самого первого EP&nbsp;и заканчивая песнями с&nbsp;11 студийного альбома.</P>
+<P>Выход <STRONG>"30/30/30"</STRONG> запланирован на 28 января. Также будет выпущена и виниловая версия сборника на трёх пластинках. Предварительный заказ можно сделать уже сейчас: <A href="http://dad.sonymusicshop.dk/">http://dad.sonymusicshop.dk</A> </P>
+<P>Все те, кто успеет заказать CD&nbsp;или винил&nbsp;до 13 января, получат<STRONG> </STRONG>его с автографами музыкантов!</P>
+<P>Ну и самая главная новость - в&nbsp;мае&nbsp;этого года,&nbsp;<STRONG>D-A-D</STRONG> впервые выступят в России и дадут один единственный концерт в Москве!</P>
+<P>Трек-лист <STRONG>"30/30/30"</STRONG>:</P>
+<P><EM>CD 1</EM>: 1. <STRONG>Marlboro Man</STRONG> | 2. <STRONG>Call Of The Wild</STRONG> | 3. <STRONG>Riding With Sue</STRONG> | 4. <STRONG>It's After Dark</STRONG> | 5. <STRONG>Isn't That Wild </STRONG>| 6. <STRONG>I Won't Cut My Hair</STRONG> | 7. <STRONG>Black Crickets</STRONG> | 8. <STRONG>Sleeping My Day Away</STRONG> | 9. <STRONG>Jihad</STRONG> | 10. <STRONG>Point Of View</STRONG> | 11. <STRONG>Girl Nation</STRONG> | 12. <STRONG>Bad Craziness</STRONG> | 13. <STRONG>Grow Or Pay </STRONG>| 14. <STRONG>Laugh and&nbsp;A&nbsp;Half</STRONG> | 15. <STRONG>Reconstrucdead</STRONG></P>
+<P><EM>CD 2</EM>: 1. <STRONG>Naked (But Still Strippin')</STRONG> | 2. <STRONG>Empty Heads</STRONG> | 3. <STRONG>Home Alone 4</STRONG> | 4. <STRONG>Hate To Say I Told You So</STRONG> | 5. <STRONG>Everything Glows</STRONG> | 6. <STRONG>Nineteenhundredandyesterday</STRONG> | 7. <STRONG>Something Good</STRONG> | 8. <STRONG>Evil Twin</STRONG> | 9.<STRONG> Soft Dogs</STRONG> | 10. <STRONG>Scare Yourself</STRONG> | 11. <STRONG>Lawrence Of Surburbia</STRONG> | 12. <STRONG>Monster Philosophy</STRONG> | 13. <STRONG>A New Age Moving In</STRONG> | 14.<STRONG> I Want What She's Got</STRONG> | 15. <STRONG>We All Fall Down</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.01/26479.jpg" width=500 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 21.01.2014 news D-A-D будут лицом компании &quot;Tak Rock&quot; в течении 2014 года
+
+<P>Датский&nbsp;пивной бренд&nbsp;<STRONG>Royal</STRONG> выбрал группу <STRONG>D-A-D</STRONG> в качестве лица своей&nbsp;компании <STRONG>"Tak Rock"*</STRONG> на<STRONG> </STRONG>2014 год.</P>
+<P>Чтобы отметить это, 18&nbsp;декабря пиво&nbsp;<STRONG>Royal</STRONG>, <STRONG>D-A-D</STRONG> и клуб <STRONG>"Gimle" </STRONG>(г. Роскилле)<STRONG> </STRONG>устроили рождественскую вечеринку, где среди прочих групп выступили и сами&nbsp;<STRONG>D-A-D</STRONG>, но анонимно, использовав для этого имя <STRONG>"Slow Rampage"</STRONG>. В зале присутствовало всего лишь 70 счастливчиков.&nbsp;</P>
+<P>Небольшой видеоролик, снятый во время этого выступления <STRONG>D-A-D</STRONG>, можно посмотреть ниже.</P>
+<P><STRONG>*</STRONG><EM>компания<STRONG> "Tak Rock"</STRONG> запущена брендом <STRONG>Royal</STRONG> в 2010 году&nbsp;для того чтобы поддерживать молодых датских рок-исполнителей.</EM></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/AZLA0snMlHU" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 07.02.2014 news D-A-D goes VK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.01/26547.jpg" width=200 height=285>В социальной сети ВКонтакте открылось неофициальное сообщество одной из самых заслуженных и старейших&nbsp;рок-групп Датского Королевства - <STRONG>D.A.D</STRONG>! </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом году датский коллектив отмечает своё тридцатилетие!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Всех неравнодушных к правильному рок-угару просим в гости: </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://vk.com/disneylandad">http://vk.com/disneylandad</A></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Motorhead and AC/DC

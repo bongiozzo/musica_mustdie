@@ -12,6 +12,21 @@ Polish Band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.11.2000 reviews Польские бывшие думстеры.
+
+<p>Поводом для научного исследования может стать тот факт, что многие команды не могут играть дум-металл на протяжении всей своей карьеры и меняют его на любые другие стили, в основном, электронные. Здесь же мы имеем путь, пройденный уже однажды группой Cathedral, когда от медленной музыки группа перешла к быстро-весёлой. На этом альбоме тоже присутствуют быстрые композиции, но они какие-то занудно-однотипные. Так и хочеться сказать, это песни о несовершенстве мира. Этот стиль последнее время стали stoner-rock называть. Очень подходит сюда и кавер на песню Black Sabbath "Headless Cross". Также можно добавить некоторый перебор с электроникой, но кто сейчас без этого обходится. По качеству звучание этот альбом тянет на оценку хорошо, а вот по оригинальности и мелодизму материала ниже среднего.</p>
+
+Автор: Vit Belov
+
+### 01.11.2000 reviews Polish former doomers
+
+<p>Occasion for scientific research can become that fact, that many bands can not play doom-metal during all career and change it for any other styles, basically, electronic. Here we have a way, gone already once by group Cathedral, when from slow music has passed to quickly - funny. On this album too there are fast compositions, but they are same at all. And I would like to tell, it is songs about imperfection of the world. This style last time began to name as stoner-rock. Very much approaches here is cover on a song by Black Sabbath " Headless Cross ". Also it is possible to add here is electronics very much, but who now without it manages. On quality sounding this album pulls on an estimation well, and on originality and melody of a material is lower than average.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

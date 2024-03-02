@@ -172,6 +172,313 @@ iTunes version will have two other bonus tracks as well :
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2002 news Возрождение SUFFOCATION ....
+
+<p>Легендарные нью-йоркские дэтстеры "SUFFOCATION" после распада и четырехлетнего перерыва решили собраться вновь и сейчас разучивают материал для концертов и нового альбома. Состав возрожденной группы: <BR><BR> Mike Smith - барабаны<BR> Terrance Hobbs - гитара<BR> Guy Marchais (INTERNAL BLEEDING) - гитара<BR> Frank Mullen - вокал<BR> Josh Barohn – басс</p>
+
+Автор: Yermola
+
+### 27.08.2002 news SUFFOCATION To Reunite &#39;For All The Wrong Reasons&#39;.....
+
+<p>Acclaimed New York death metallers SUFFOCATION, who released several successful album in the early '90s, have reunited after a four-year break and are said to be in the process of rehearsing for upcoming shows and a possible new album. <BR><BR> No official announcement has yet been made, but it is believed that the group's current line-up consists of the following musicians:<BR><BR> Mike Smith - drums<BR> Terrance Hobbs - guitar<BR> Guy Marchais (INTERNAL BLEEDING) - guitar<BR> Frank Mullen - vocals<BR> Josh Barohn – bass</p>
+
+Автор: Yermola
+
+### 04.09.2002 articles SUFFOCATION Drummer Speaks Out On Reunion....
+
+<p>SUFFOCATION drummer Mike Smith has denied former bassist Chris Richards' assertions that the legendary death metal act's planned reunion is purely money-motivated and has indicated that a new album from the group may surface sometime next year, provided the quintet's upcoming tour and subsequent songwriting sessions prove to be a success. <BR><BR> In the following exclusive interview conducted via e-mail, Smith offers insight into the group's future plans and their reasons for returning to the scene after a four-year hiatus.<BR><BR> Q: According to reports, the line-up of the reunited SUFFOCATION is Mike Smith (drums), Terrance Hobbs (guitar), Guy Marchais (guitar), Frank Mullen (vocals), and Josh Barohn (bass). Can you please confirm or deny?<BR><BR> Mike Smith: The actual lineup isn't written in stone because the position for second guitarist will be decided through tryouts. Guy Marchais [who was in an early incarnation of the group in addition to currently performing with INTERNAL BLEEDING—ed.] was offered the opportunity, because he is one that I happen to keep contact with, and he told me he was interested. As for myself, Terrance, Frank and Josh, that is set. The ultimate outcome will be whoever can successfully pull off their position. I can only speak for myself as a returning member that my spot is filled. Josh will set his own destiny. I can only wish the best for all involved. We have to take it seriously first or the fans won't.<BR><BR> Q: How did the idea to get back together come about?<BR><BR> Mike Smith: Frank first approached us all about rejoining. Myself, Terrance and Josh felt it was worth responding. SUFFOCATION internally has been through a lot since the original lineup. In my opinion, we were the worst clash of personalities growing up. We were tight in appearance to the fans but certain members had their own personal agendas that resulted in constant lineup changes, uncompromised music direction and predictably, complete band dismemberment. Focus was lost and we didn't take advantage of having the privilege of being a signed national act. Now years later, a few realize and are willing to fight to regain respect as true original musicians that have always, despite all the bad decisions, created incredible music. For the record, Jay Fligman as manager was the best thing for us. He asked for nothing, put all his time and money and in return go shit on. No one in the band was willing to do for ourselves what he did for us. If he was that terrible, I can't imagine why they would sign to his Vulture Entertainment label to release Despise the Sun years later. It makes no sense. <BR><BR> Q: You had previously stated that former bassist Chris Richards was not approached for the reunion. Why not?<BR><BR> Mike Smith: I did say Chris was not approached, but I'll admit I was wrong. By the time Frank had approached me, Josh had already been placed in the lineup and there was no mention of Chris. It turns out Chris was approached first along with Doug and they together decided that a response was unnecessary. The band has always been divided into certain cliques, that being one of them. It is sad, because I've known Chris a long time and Doug twice as long, but you can never really be sure if your right to consider them your close friends or acquaintances, whom somehow merged together to form the most brutal project of all our lives, SUFFOCATION. Maybe it is just me.<BR><BR> Q: You had previously stated that Doug didn't have the respect to respond to an invitation to be part of the reunion. What exactly do you mean?<BR><BR> Mike Smith: Terrance and Frank have tried repeatedly to contact Doug and they both failed. We know Doug's shoes will be hard to fill, but it can be done just like the rest of us who eventually faced the hatchet at one time or another.<BR><BR> Q: How did you decide to get Guy to take Doug's place in the band?<BR><BR> Mike Smith: Guy was the first-comer to show interest in the position. As true fans know, he was involved with us when SUFFOCATION first formed. Since then he has been one of the most dedicated musicians I've come across. So it is worth giving him a shot. Guy knows whoever successfully tries for the spot and solidly pulls it off will ultimately be, but it is worth a shot. He knows us all pretty well.<BR><BR> Q. What have you done in the years since you left SUFFOCATION, musically speaking and otherwise?<BR><BR> Mike Smith: Since I left SUFFOCATION, I have fooled with many different musicians, not necessarily speed metal-related, but once you have played with musicians like Doug, Terrance and Chris, others just don't seem to understand your need and desire for the next level of music. Most are intimidated, because I am just not feeling it the way they do. So I kept to myself, locked up in the studio and wrote a rap/whatever album directed mainly to these talentless rap artists who have successfully broken the barrier and crossed over into rock/rap and have the world on their knees believing that they know something about the extremes of being a musician or rock music. So I came out with an 18-song album under the moniker GRIMM REAL and titled it Demise of the Clones. It undoubtedly contains the most direct and chest-clearing lyrics I have had the opportunity to write. By no means did I care to be labeled a rap artist — that is just the form the lyrics came out as. I had been to Sony [Records' offices] a few times to discuss possible signing, but after wasted trips to see them, they finally admitted they didn't know what genre to label me as, and being I went to them with the album fully pressed and packaged, [it] backfired. I appeared too independently developed for them. They needed a clean slate to work with and prostitute like the rest, which is exactly what the album protests.<BR><BR> Q: What are your short-term and long-term goals for this reunion? Will there be another SUFFOCATION record?<BR><BR> Mike Smith: My short-term goals are to rebuild my stamina and shred the temporary fill-ins that took my spot. My long-term goal is to keep my mind healthy by playing what I know I am meant to play, music from the soul that touches people the same way. I know I am a musician and capable of staying updated and on the edge. If I have the opportunity to continue to what I started, I would be a fool to do otherwise. There is a lot of garbage music out here influencing people's lives in major ways. There has to be a little room for me. Once the lineup is intact, there will be another SUFFOCATION album but it won't be rushed.<BR><BR> Q: Have you actually gotten together and rehearsed as a band yet?<BR><BR> Mike Smith: Frank hasn't returned from Las Vegas to Long Island yet. When he does, which should be in one week, we will get it together. As for the rumor that we are working on an album and are ready to set shows up, that is false. We will be concentrating first on securing the lineup and relearning past albums Effigy Of The Forgotten and Pierced From Within, so we can hit the road promoting a solid Effigy/Pierced tour. That will get us in shape to create what we feel is needed at the time.</p>
+
+Автор: Yermola
+
+### 24.03.2003 news SUFFOCATION воссоединились
+
+<p>Спустя четыре года после распада воссоединилась одна из легенд американского death metal - SUFFOCATION. На сегодняшний день, в составе группы старые знакомые Frank Mullen (вокал), Terrance Hobbs (гитары), Mike Smith (ударные) and Josh Barohn (бас), плюс бывший гитарист PYREXIA и INTERNAL BLEEDING Guy Marchais. Сейчас, группа находится в стадии сочинения и записи материала к своему шестому альбому.</p>
+
+Автор: Dimas
+
+### 26.03.2003 news Drummer Kevin Talley to Collaborate with Dirt Nap on Upcoming Album
+
+<p>ATLANTA, March 15, 2003 -- When Atlanta techno death metal band Dirt Nap (www.dirt-nap.com) goes into the studio next month to begin recording, they'll be joined by a familiar face to extreme music fans: drummer Kevin Talley. Talley will pound the skins for "Concentrate Living," the band's first album under the name Dirt Nap.</p>
+<P> Guitarist Eyal Levi and vocalist Michael Kameron have been working together for ten years, the last two as Dirt Nap." The first time I heard Kevin play, I was blown away by how seamlessly he adapted to Dirt Nap's style," said Kameron. "And after our first session, he destroyed our drum kit. I knew then that he was the one."</>
+<P> Formerly of Dying Fetus and Misery Index, Talley was a finalist in Slayer's drummer auditions last year and has toured with '90s brutal death metal band Suffocation. He has been working on various independent projects since leaving Misery Index last summer.</>
+<P> "This is one of the most unique and refreshing bands I've heard in the extreme music world," Talley commented. "Nobody else mixes styles the way they do.</>
+<P> Levi and Kameron describe Dirt Nap as techno death metal. The band blends music from a variety of influences, though most listeners categorize their sound as a cross between techno, metal and soundtrack music.</>
+<P> Levi, the son of world renowned symphony conductor Yoel Levi, summed up in one sentence Dirt Nap's feelings about their collaboration with Talley. "It's about time we found a drummer who can keep up."</>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 27.12.2003 news &quot;American Heretic tour&quot; - новый концертный тур Morbid Angel
+
+<P>Менеджмент <B>MORBID ANGEL</B>&nbsp; заявил о предстоящем концертном туре, названном <B>"American Heretic tour".</B>&nbsp;Он стартует 14 апреля 2004 года и будет проходить в поддержку последнего альбома группы -&nbsp;&nbsp;<B>"Heretic".</B>&nbsp; В туре также примут участие <B>SUFFOCATION, SATYRICON</B>&nbsp;&nbsp;и <B>PREMONITIONS OF WAR</B>. Полный список дат концетов и городов выступления&nbsp;(всего их 25),&nbsp;будет обнародован в начале 2004 года.&nbsp;</P>
+Автор: Uneral
+
+### 05.03.2004 news Suffocation назначили дату релиза
+
+<P>Вновь собравшиеся death-metal звёзды <B>SUFFOCATION </B>назначилди дату релиза для нового альбома <B>Souls to Deny </B>27 апреля на <B>Relapse</B> для Северной Америки, а 17 мая он появится в остальном мире. Альбом был записан в <B>Full Force Studios</B>&nbsp;с инженером <B>Joe Cincotta.</B> Трэк-лист:</P>
+<P>01. <B>Souls to Deny</B><BR>02. <B>Deceit</B><BR>03. <B>Subconsciously Enslaved</B><BR>04. <B>Surgery of Impalement</B><BR>05. <B>Tomes of Atrimony</B><BR>06. <B>Immortally Condemned</B><BR>07. <B>Demise of the Clone</B><BR>08. <B>To Weep Once More</B></P>
+Автор: Vit Belov
+
+### 05.03.2004 news SUFFOCATION Set Release Date For &#39;Souls To Deny&#39;
+
+<DIV class=theText id=storyRepeater__ctl2_storyPanel>Reunited New York death metallers <B>SUFFOCATION</B> have set an April 27 North American release date through <B>Relapse Records</B> for their new album, <B>"Souls to Deny"</B>. The album will arrive overseas on May 17.<BR><BR>The band's first full album of new material since 1995's <B>"Pierced From Within"</B> was recorded at New York's <B>Full Force Studios</B> with engineer <B>Joe Cincotta</B> and is "the cleanest, heaviest <B>SUFFOCATION</B> album to date," according to drummer <B>Mike Smith</B>. Songtitles set to appear on the CD include:<BR><BR>01. <B>Souls to Deny</B><BR>02. <B>Deceit</B><BR>03. <B>Subconsciously Enslaved</B><BR>04. <B>Surgery of Impalement</B><BR>05. <B>Tomes of Atrimony</B><BR>06. <B>Immortally Condemned</B><BR>07. <B>Demise of the Clone</B><BR>08. <B>To Weep Once More</B><BR><BR><B>SUFFOCATION</B>'s current lineup consists of <B>Smith</B>, vocalist <B>Frank Mullen</B>, guitarists <B>Terrance Hobbs</B> and <B>Guy Marchais</B> and bassist <B>Derek Boyer</B>. </DIV>
+Автор: Vit Belov
+
+### 15.04.2004 news Suffocation объявили нового басиста
+
+Новым басистом <B>SUFFOCATION</B> стал <B>Derek Boyer, </B>который ради этого, покинул свою прежнюю команду <B>DECREPIT BIRTH.</B>
+Автор: Vit Belov
+
+### 29.05.2004 news SUFFOCATION in Europe
+
+Jun. 10 - GER @ T.B.A.<BR>Jun. 11 - Engelsdorg, GER @ Hellraiser<BR>Jun. 12 - Prague, CZR @ Abaton Club<BR>Jun. 13 - SLO @ T.B.A.<BR>Jun. 14 - ITA @ T.B.A<BR>Jun. 15 - SWI @ T.B.A.<BR>Jun. 16 - FRA @ T.B.A.<BR>Jun. 17 - Irun, SPA @ Tunk<BR>Jun. 18 - Barcelona, SPA @ Mephisto<BR>Jun. 19 - Madrid, SPA @ Ritmo Compas<BR>Jun. 20 - POR @ T.B.A<BR>Jun. 21 - SPA @ T.B.A.<BR>Jun. 22 - FRA @ T.B.A.<BR>Jun. 23 - FRA @ T.B.A.<BR>Jun. 24 - FRA @ T.B.A.<BR>Jun. 25 - Dessel, BEL @ Graspop<BR>Jun. 26 - NETH @ T.B.A.<BR>Jun. 27 - Le Mans, FRA @ Fury Fest T.B.C<BR>Jun. 28 - Paris, FRA @ La Locomotive <BR>
+Автор: Vit Belov
+
+### 11.07.2005 reviews Триумфальное возвращение легенды брутал-дэта
+
+<P>Ура! Свершилось чудо! А именно,то ,чего ждали многие. Irond подписал соглашение с Relapse'ом на выпуск лицензионной продукции. Новость, конечно, не может не радовать. И одним из первых дисков стал новейший альбом нью-йоркской группы&nbsp;<STRONG>SUFFOCATION </STRONG><EM>"Souls To Deny".</EM></P>
+<P>Не погрешу против истины, если назову <STRONG>SUFFOCATION </STRONG>отцами-основателями brutal death'a. Буквально взорвав металическую сцену, в уже далёком '91 году своим дебютным полноформатником <EM>"Effigy Of&nbsp; The Forgotten''</EM>, коллектив выбился в лидеры вполне заслуженно. Такого до них не выпускал никто:мясной и жёсткий рёв гитар, сложные структуры композиций и великолепный гроул Фрэнка Мюллена установили новые стандарты в мировом дэт-метале, которые многие коллективы придерживаются до сих пор. Затем последовал не очень удачный в плане звучания <EM>"Breeding The Spawn"('93)</EM>, который в композиторском плане, тем не менее, был весьма силён, а одноимённая композиция с этого альбома вообще общепризнанный шедевр.</P>
+<P>Вышедший двумя годами позже альбом, доказал, что группа не собирается сдавать своих позиций. Ещё больше усложнив структуру композиций, нью-йоркцы выдали на гора мрачный и по-настоящему тяжёлый материал, ставший уже классикой брутального дэта, гениальный <EM>"Pierced From Within"('95).</EM></P>
+<P>В '98 на прилавках магазинов появляется EP-шка <EM>"Despise&nbsp;The Sun" </EM>и... тишина на долгие шесть лет. Многие считали, что <STRONG>SUFFOCATION </STRONG>распались, почили в бозе, канули в Лету и т.д. В общем, ставили на группе <STRONG>жирный </STRONG>крест. Лично я считаю, что парни просто брали творческий отпуск. Не легко быть легендой при жизни! И тут, <STRONG>БАХ!</STRONG>, и новое творение, именуемое <EM>"Souls To Deny". </EM>Записанное, между прочим, почти в оригинальном составе. Вторым гитаристом на этот раз стал Guy Marchais, рвавший струны в Pyrexia и Internal Bleeding. И снова <STRONG>SUFFO </STRONG>доказали, что нет и не может быть им равных! Великолепная техника, всё тот же зверский гроул Мюллена, всё те же сложные, исконно саффокейшеновские риффы и мрачная атмосфера, которой пропитана буквально каждая композиция, всё это делает <EM>"Souls To Deny" </EM>одним из лучших, если не лучшим, релизом в жанре смертельного метала этого года.</P>
+Автор: Graver
+
+### 22.03.2006 news SUFFOCATION снимут DVD
+
+<P><STRONG>SUFFOCATION</STRONG> готовят к выпуску сразу два релиза. Новый альбом "<STRONG>Suffocation</STRONG>" и DVD. Группа надеется, что пластинки выйдут в один день.</P>
+Автор: Vit Belov
+
+### 21.06.2006 news SUFFOCATION закончили работу над новым альбомом
+
+<P>Легендарные американские дэтстеры <STRONG>SUFFOCATION</STRONG> завершили работу над своим новым одноименным альбомом. Его выход ожидается в начале сентября на <STRONG>Relapse records</STRONG>. Чуть позже, команда отправится в турне вместе с <STRONG>FEAR FACTORY</STRONG>, <STRONG>HYPOCRISY</STRONG> и&nbsp;<B>DECAPITATED.</B></P>
+Автор: Dimas
+
+### 11.07.2006 news Трек-лист предстоящего SUFFOCATION
+
+<P>Нью-йоркские дэтстеры <B>SUFFOCATION</B> опубликовали трек-лист своего нового альбома, выходящего 19 сентября на <STRONG>Relapse Records</STRONG>, а также предварительный вариант обложки. В него войдут следующие вещи:</P>
+<P><BR><IMG height=250 alt="" hspace=50 src="/images/news_rus/2006.07/10530.jpg" width=250 align=right border=0>1. <B>Oblivion</B><BR>2. <B>Abomination Reborn</B><BR>3. <B>Redemption</B><BR>4. <B>Bind Torture Kill</B><BR>5. <B>Inis Concieved</B><BR>6. <B>Translucent Patterns of Delirium</B><BR>7. <B>Creed of the Infidel</B><BR>8. <B>Regret</B><BR>9. <B>Entrails of You</B><BR>10. <B>The End of Ends</B><BR>11. <B>Prelude to Repulsion</B></P>
+Автор: Dimas
+
+### 11.07.2007 articles SUFFOCATION в Москве (пресс-релиз)
+
+<P>
+<CENTER><STRONG>The Flaming Arts/Musickness Russia представляют<BR>Впервые в Москве легенды New York Death Metal<BR>SUFFOCATION<BR>14 августа, клуб Точка</STRONG></CENTER>
+<P></P>
+<P align=right>14 августа москвичи смогут увидеть одну из наиболее влиятельных групп за всю историю death metal – <STRONG>SUFFOCATION</STRONG>. Коллектив образовался в 1990 году в Нью-Йорке, и уже их демо-запись «<STRONG>Reincremation</STRONG>», состоящая из 3-х композиций, привлекла внимание сразу нескольких лэйблов, вскоре команда подписалась на Relapse Records и в 1991 году выпустила свой первый ЕР «<STRONG>Human Waste</STRONG>». Он представлял собой техничный brutal death оригинального звучания, в похожем духе был выдержан и дебютный полноформатный альбом «<STRONG>Effigy of the Forgotten</STRONG>», вышедший в том же году, но уже на Roadrunner.&nbsp; Состав квинтета в то время выглядел так: вокалист Франк Муллен, гитаристы Терренс Хоббс и Даг Серрито, басист Джош Бэрон, ударник Майк Смит. Следующими двумя студийными работами – «<STRONG>Breeding the Spawn</STRONG>» и «<STRONG>Pierced from Within</STRONG>», вышедшими в 1993 и 1995 гг. на все том же лэйбле Roadrunner, <STRONG>SUFFOCATION</STRONG> утвердили себя в качестве безусловных лидеров нью-йоркской дэт-металлической сцены. Музыканты реформировали брутал-дэт, существенно разнообразив ритмы и структуру композиций, и в целом сделав акцент на технической составляющей. Успех альбомов команды был подкреплен весьма успешными турами, многочисленные поклонники встречали группу на ура, помимо США, Канады и Мексики, <STRONG>SUFFOCATION</STRONG> с неменьшим успехом выступали и в европейских странах. <BR>В 1996-м году в коллективе уже в третий раз сменился драммер, Даг Бон, игравший в группе с 1994 года после ухода Смита, уступил место Дэйву Карлосу, ранее стучавшему в <STRONG>Malevolent Creation</STRONG>. Басовыми партиями ещё с 1992-го ведал Крис Ричардс. ЕР «<STRONG>Despise the Sun</STRONG>» был записан в 1998 году вместе со знаменитым продюсером Скотом Бернсом и содержал интереснейший материал, но был выпущен на лэйбле Vulture Records ничтожным тиражом, ситуацию могло исправить возвращение группы под крыло Relapse Records, которые переиздали этот ЕР в 2000 году, однако проблемы внутри коллектива в конечном счете привели к его распаду. Впрочем, уже спустя полтора года появились слухи о возрождении знаменитой группы. В 2003 году <STRONG>SUFFOCATION</STRONG> выступили хэдлайнерами на одном из фестивалей, а в июне&nbsp; представили новую композицию. Все с нетерпением ждали новый альбом, и уже зимой группа собралась в студии, чтобы записать его. За микрофоном по-прежнему был Фрэнк Муллен, равно как никуда не исчез и гитарист Терренс Хоббс, а за ударной стойкой вновь оказался Майк Смит, стоявший у истоков <STRONG>SUFFOCATION</STRONG>, Гай Маркес стал вторым гитаристом, а Дерек Бойер новым басистом группы. В апреле 2004 года, спустя без одного месяца 9 лет с выхода последнего полноформатного релиза, появилась новая пластинка нью-йоркской легенды – «<STRONG>Souls to Deny</STRONG>». Сказать, что возвращения группы ждали – не сказать ничего, за полтора года группа провела 4 тура по северной Америке, дважды съездила в Европу, посетила Южную Америку, выступила на множестве фестивалей и в общей сложности дала около двух сотен концертов. Перерыв в столь плотном гастрольном графике пришелся на первую половину 2006 года, когда и был записан последний на сегодняшний день студийный альбом коллектива, название которого совпадает с именем группы. Альбом «<STRONG>Suffocation</STRONG>» вышел 19 сентября 2006, но ещё летом музыканты вновь с головой окунулись в концертную деятельность и за период с августа по декабрь дали ещё 70 концертов в Америке и Европе. Нынешний 2007-ой год также мало что изменил в бешенном распорядке <STRONG>SUFFOCATION</STRONG>, они побывали в Австралии, Новой Зеландии и Индонезии, дали ещё около 30 концертов в Европе, а на конец года у них уже запланирован очередной североамериканский тур.<BR>14 августа непревзойденные мастера techno brutal death metal впервые посетят Россию! <BR>Не пропустите единственный концерт знаменитых нью-йоркцев, который пройдет в московской Точке!<BR>Пресс-релиз подготовил Алан Ахметов (TheMetalList.com)<BR></P>
+Автор: Dimas
+
+### 12.07.2007 news SUFFOCATION в Москве
+
+<P>
+<CENTER><IMG height=450 src="/images/news_rus/2007.07/11747.jpg" width=318 border=0></CENTER>
+Автор: Dimas
+
+### 15.08.2007 articles SUFFOCATION в Москве: Точно круче CANNIBAL CORPSE
+
+<P>14 августа в Москве прошёл единственный и неповторимый концерт американских корифеев death-metal SUFFOCATION. Подобное незабываемое событие в самый душный день третьего месяца лета стало возможным, благодаря популяризаторам тяжёлого металла в Москве Musickness и интернациональному концертному агентству Flaming Arts.</P>
+<P>Поначалу идея привоза SUFFOCATION в Москву в августе казалась чистым безумием. В этом месяце в столице наблюдается полный штиль, как в культурной, так и деловой жизни. Поговаривают, что, заключив контракт на выступление на крымском фесте Red Alert/Metal Head Mission, американцы настоятельно просили завезти их и в Москву. Организаторы нашего гига прислушались к просьбам SUFFOCATION и, думается, не прогадали. Я ожидал, что в зале «наскребётся» не более 300 человек, но просчитался. Пусть аудитория и не переплюнула предыдущий death-metal концерт от CANNIBAL CORPSE по своей массовости, но ощущения отсутствия праздника не возникало. Давки не наблюдалось, но и в зрительном зале спокойно встать в удобном месте не получалось. Отмечу, что перед заокеанскими гостями выступали KATALEPSY и AVOID. Только лишь отмечу, так как выступления этих коллективов застать не удалось. Таким образом, SUFFOCATION во вторник в августе собрали просто феноменальную аудиторию.</P>
+<P>Группа появилась на сцене около 21-00, и равнодушных, если они в этот вечер и были, в зале не осталось. Не так часто к нам приезжают монстры американского дэта, поэтому сравнения последних концертов напрашиваются. Забавно, что и OBITUARY, и CANNIBAL CORPSE, и SUFFOCATION приехали к нам летом. Это, конечно же, не простое совпадение, американцы предпочитают отправляться в тур по Европе летом. Наличие огромного количества опен-эйров, опять же. Вот и хватают их наши организаторы во время трасс по Западной Европе и доставляют к нам, так дешевле. Что ж, SUFFOCATION, как и OBITUARY в прошлом году, экзамен выдержали. Видно, что для этих групп приезд к нам, равно как и любой другой концерт, не простая формальность. Музыканты рубились на сцене на полной скорости, выдавали всё, на что способны. Следует похвалить и работу звукорежиссёров, саунд вчера был самый, что ни на есть подходящий. Я не писал отчёт на июньский концерт CANNIBAL CORPSE. Отмечу здесь, что на фоне SUFFOCATION эти «отцы» смотрелись бледно. Полное отсутствие энтузиазма и хорошего настроения у «каннибалов» было заметно невооружённым глазом. SUFFOCATION же пленили всех своей раскованностью и открытостью, как и положено в металле. Пускай, длинные прогоны вокалиста Фрэнка Муллена между песнями понимали не многие, главное, что он хотел сказать нам что-то хорошее. Именно он, а так же и чернокожий гитарист Теренс приковывали к себе внимание публики. Фрэнк постоянно высовывал свой язык, видимо, символизируя «удушение», и скакал по сцене, как только что победивший профессиональный рестлер. Теренс же невозмутимо отрабатывал свои сложные соло, ни на минуту не позволяя усомниться в своём мастерстве. Забавно, что, фотографируясь после концерта с фэнами, в 95 процентах случаев Фрэнк позировал с высунутым языком.</P>
+<P>Праздник удался, его даже не удалось испортить некоторым фэнам. Например, парочке безумных «слэмеров» с обнажёнными торсами, которые несколько раз за концерт покидали зал курсом на туалет, чтобы смыть кровь. Или, например, тем охотникам за славой, которые мешали играть музыкантам, залезая на сцену. Мы к этому уже привыкли. Будем надеяться, что эти люди научатся себя вести и не будут пытаться портить нам подобные классные гиги. Отличный штамп, чтобы завершить статью, не правда ли?</P>
+Автор: Vit Belov
+
+### 13.02.2008 news Планы SUFFOCATION
+
+<P><STRONG>SUFFOCATION</STRONG> сообщили, что рабочее название нового альбома <STRONG>"Blood Oath"</STRONG>. Пластинка будет записана в июне и выйдет в июле/августе.</P>
+Автор: Vit Belov
+
+### 21.09.2008 news SUFFOCATION на Nuclear Blast
+
+<P><STRONG>Nuclear Blast</STRONG> подписали контракт с американской death-metal легендой <STRONG>SUFFOCATION</STRONG> на выпуск нового альбома "<STRONG>Blood Oath</STRONG>". Пластинка ожидается в начале 2009 года.</P>
+Автор: Vit Belov
+
+### 16.01.2009 news SUFFOCATION войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=250 alt="" hspace=0 src="/images/news_rus/2009.01/13388.jpg" width=325 align=left border=5>SUFFOCATION</STRONG> войдут в студию 31 января с <STRONG>Joe Cincotta</STRONG>, с которым записывали два предыдущих альбома, для записи новой пластинки <STRONG>"Blood Oath"</STRONG>,&nbsp;которая выйдет весной/летом на <STRONG>Nuclear Blast</STRONG>. Мастеринг этой работы сделает <STRONG>Zack Ohren</STRONG> (<B>ALL SHALL PERISH</B>, <B>DECREPIT BIRTH</B>), а картинку вновь нарисует <STRONG>Jon Zig</STRONG> (<B>DEEDS OF FLESH</B>, <B>DISGORGE</B>, <B>GORGASM</B>). Вот названия некоторых песен: <STRONG>"Dismal Dream"</STRONG>, <B>"Undeserving"</B>, <B>"Confines of Disillusion"</B>, <B>"Blood Oath"</B>, <B>"Come Hell Or High Priest"</B>&nbsp;и <B>"Provoking the Disturbed"</B>. </FONT></P>
+Автор: Vit Belov
+
+### 20.02.2009 news SUFFOCATION выпускают видеоигру
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали о том, что<STRONG> SUFFOCATION</STRONG> записывают новый альбом и гтовят к выпуску DVD. Группа также сообщила, что выпускает видеоигру с нереализованными трэками и книжкой комиксов.</FONT></P>
+Автор: Vit Belov
+
+### 03.03.2009 news SUFFOCATION продолжают запись
+
+<P><STRONG>SUFFOCATION </STRONG>находятся в студии, где записывают новый альбом "<STRONG>Blood Oath</STRONG>". Уже записаны гитары, бас и барабаны. Осталось поработать с вокалом и соло-гитарой. </P>
+Автор: Vit Belov
+
+### 08.04.2009 news Дата релиза SUFFOCATION
+
+<P><STRONG>Nuclear Blast</STRONG> назначили 3 июля днём для релиза нового альбома <STRONG>SUFFOCATION</STRONG> <STRONG>"Blood Oath".</STRONG></P>
+Автор: Vit Belov
+
+### 17.04.2009 news Новый альбом SUFFOCATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.04/13979.jpg" width=400 align=right border=5>Новая работа<STRONG> SUFFOCATION</STRONG> <STRONG>"Blood Oath" </STRONG>выходит 3 июля на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Blood Oath</B><BR>02. <B>Dismal Dream</B><BR>03. <B>Pray For Forgiveness</B><BR>04. <B>Images Of Purgatory</B><BR>05. <B>Cataclysmic Purification</B><BR>06. <B>Mental Hemorrhage</B><BR>07. <B>Come Hell Or High Priest</B><BR>08. <B>Undeserving</B><BR>09. <B>Provoking The Disturbed</B><BR>10. <B>Marital Decimation</B></P>
+Автор: Vit Belov
+
+### 16.05.2009 news Новая песня SUFFOCATION
+
+<P>Новая песня <STRONG>SUFFOCATION</STRONG> <STRONG>"Cataclysmic Purification" </STRONG>с а грядущего альбома <STRONG>"Blood Oath" </STRONG>доступна на MySpace: <A href="http://www.myspace.com/suffocation">http://www.myspace.com/suffocation</A></P>
+<P>Пластинка выйдет 3 июля на<STRONG> Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.06.2009 news Новый SUFFOCATION на MySpace
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SUFFOCATION "Blood Oath" </STRONG>можно послушать на <STRONG>MySpace:</STRONG> <A href="http://www.myspace.com/suffocation">http://www.myspace.com/suffocation</A></FONT></P>
+Автор: Vit Belov
+
+### 24.07.2009 news SUFFOCATION тоже попали в чарты
+
+<P>Ветераны death-metal <STRONG>SUFFOCATION</STRONG> попали в американские чарты со своим новым альбомом <STRONG>"Blood Oath",</STRONG> проданным тиражом 3600 копий. Группа заняла<STRONG> </STRONG>135 место<STRONG>.</STRONG></P>
+Автор: Vit Belov
+
+### 27.07.2009 reviews Современная классика
+
+<P>Когда слушаешь новые альбомы death-metal группа класса SUFFOCATION, невольно ловишь себя на мысли, что загонять их творчество только в рамки приписываемого стиля крайне несправедливо. Новая пластинка группы “Blood Oath” демонстрирует весь композиторский талант музыкантов и их технику. Каждый трэк на это пластинке заставляет удивляться.</P>
+<P>Удивляться прежде всего тому, что подобная музыка никак не представлена в реестре современной классической музыки. Сложнейшие гармонии и выверенные ходы соседствуют здесь с нечеловеческой тяжестью. Подобную музыку запросто можно изучать в школах. Мои слабые знания о течениях в классической музыке не позволяют меня причислить SUFFOCATION к лидерам композиторской мысли современности, но место для представления своего творчества они заслужили. Здесь нет свойственных techno-death-metal неожиданных, но просчитываемых ходов. Здесь есть именно музыка, которая захватывает и убивает. Не подумайте, что “Blood Oath” понравится каждому. Это не так. Пластинка вывернет вас наизнанку, а у неподготовленного слушателя даже может заболеть голова. Некоторым я даже посоветую слушать SUFFOCATION небольшими порциями, чтобы не обрушивать на себе весть этот «поток сознания» сразу.</P>
+<P>Совершенно не «попсовая», не прямолинейная, но зато зверская и прогрессивная музыка. Кто ещё называет progressive современные power-metal группы с кривыми мелодиями? Оставьте! Хотите интересной и сложной музыки? Послушайте SUFFOCATION!</P>
+Автор: Vit Belov
+
+### 16.09.2009 news Концертник SUFFOCATION
+
+<P><IMG height=216 alt="" hspace=0 src="/images/news_rus/2009.09/15048.jpg" width=216 align=right border=5>2 ноября на <STRONG>Relapse</STRONG> выходит концертный альбом <STRONG>SUFFOCATION</STRONG> <STRONG>"The Close Of A Chapter: Live In Quebec City". </STRONG>Шоу было записано в рамках турне в поддержку прошлого альбома группы <STRONG>"Souls To Deny"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Infecting The Crypts</B><BR>02. <B>Thrones Of Blood</B><BR>03. <B>Surgery Of Implalement</B><BR>04. <B>Catatonia</B><BR>05. <B>Liege Of Inveracity</B><BR>06. <B>Despise The Sun</B><BR>07. <B>Subconsciously Enslaved</B><BR>08. <B>Immortally Condemned</B><BR>09. <B>Effigy Of The Forgotten</B><BR>10. <B>Tomes Of Acrimony</B><BR>11. <B>Breeding The Spawn</B><BR>12. <B>Pierced From Within</B><BR>13. <B>Funeral Inception</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 14.11.2009 news Новое видео SUFFOCATION
+
+<P>Видеоклип на песню <STRONG>SUFFOCATION</STRONG> <STRONG>"Cataclysmic Purification" </STRONG>можно посмотреть ниже. Режиссёром этого ролика выступил <STRONG>David Brodsky</STRONG> (<B>ARSIS</B>, <B>GOD FORBID</B>, <B>KATAKLYSM</B>, <B>SWASHBUCKLE</B>). </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>Derek Boyer </STRONG>порекомендовал эту песню как портрет возможного будущего: "<EM>На последнем нашем альбоме "Blood Oath" мы сочетали невероятную брутальность и неожиданные интересные ходы, которые услышать будет интересно любому поклоннику SUFFOCATION</EM>".</FONT></P>
+<P>
+<CENTER>
+<OBJECT width=425 height=344><PARAM NAME="movie" VALUE="http://www.youtube.com/v/EEYSU4XGLpI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/EEYSU4XGLpI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.12.2012 news SUFFOCATION: обложка альбома &quot;Pinnacle Of Bedlam&quot; 
+
+<P>Легендарная ньюйоркская death metal бригада <STRONG>SUFFOCATION</STRONG> опубликовала обложку грядущего альбома<STRONG> "Pinnacle Of Bedlam"</STRONG>, который они обещают выпустить в следующем году на лейбле <STRONG>Nuclear Blast</STRONG>. Автор обложки: <STRONG>Raymond Swanland</STRONG>&nbsp;(<A href="http://www.raymondswanland.com/">www.raymondswanland.com</A>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.12/25098.jpg" width=410 height=410> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 15.12.2012 news Новая песня SUFFOCATION
+
+<P>Новый диск death-metal легенд <STRONG>SUFFOCATION</STRONG> <STRONG>"Pinnacle Of Bedlam" </STRONG>выйдет 15 февраля на<STRONG> Nuclear Blast</STRONG>. Трек <STRONG>"As Grace Descends" </STRONG>с этого альбома можно послушать ниже. Альбом был спрдюсирован самой группой в <STRONG>Full Force Studios. </STRONG>Сведение и мастеринг сделал <STRONG>Chris "Zeuss" Harris</STRONG> (<B>HATEBREED</B>, <B>ARSIS</B>, <B>SUICIDE SILENCE</B>).</P>
+<P>Трек-лист:</P>
+<P>01. <B>Cycles Of Suffering</B><BR>02. <B>Purgatorial Punishment</B><BR>03. <B>Eminent Wrath</B><BR>04. <B>As Grace Descends</B><BR>05. <B>Sullen Days</B><BR>06. <B>Pinnacle Of Bedlam</B><BR>07. <B>My Demise</B><BR>08. <B>Inversion</B><BR>09. <B>Rapture Of Revocation</B><BR>10. <B>Beginning Of Sorrow</B></P>
+Автор: Vit Belov
+
+### 15.12.2012 news Новая песня SUFFOCATION
+
+<P>Новый диск death-metal легенд <STRONG>SUFFOCATION</STRONG> <STRONG>"Pinnacle Of Bedlam" </STRONG>выйдет 15 февраля на<STRONG> Nuclear Blast</STRONG>. Трек <STRONG>"As Grace Descends" </STRONG>с этого альбома можно послушать ниже. Альбом был спрдюсирован самой группой в <STRONG>Full Force Studios. </STRONG>Сведение и мастеринг сделал <STRONG>Chris "Zeuss" Harris</STRONG> (<B>HATEBREED</B>, <B>ARSIS</B>, <B>SUICIDE SILENCE</B>).</P>
+<P>Трек-лист:</P>
+<P>01. <B>Cycles Of Suffering</B><BR>02. <B>Purgatorial Punishment</B><BR>03. <B>Eminent Wrath</B><BR>04. <B>As Grace Descends</B><BR>05. <B>Sullen Days</B><BR>06. <B>Pinnacle Of Bedlam</B><BR>07. <B>My Demise</B><BR>08. <B>Inversion</B><BR>09. <B>Rapture Of Revocation</B><BR>10. <B>Beginning Of Sorrow</B></P>
+<P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F71203962&show_artwork=true" frameBorder=no width="60%" scrolling=no></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.06.2017 reviews Танк под названием SUFFOCATION продолжает движение
+
+
+<p lang="ru-RU" style="margin-bottom: 0cm;">В этом году на
+<span lang="en-US">Nuclear Blast/Soyuz Music </span>вышел уже
+пятый альбом после ре-юниона в 2002 году
+классиков<span lang="en-US"> </span>из Нью-Йорка
+<span lang="en-US">SUFFOCATION</span>. Один из немногих
+оставшихся в живых коллективов,
+представляющий историю <span lang="en-US">death
+metal</span>, музыканты, стоявшие у его истоков,
+которые имеют множество заслуг перед
+стилем и во множестве случаев были
+первооткрывателями, пионерами... Несмотря
+на сложности с составом, о которых я
+упомяну ниже, танк под названием
+<span lang="en-US">SUFFOCATION </span>продолжает движение
+вперёд, давя и переламывая всё на своём
+пути. Новая работа «...<span lang="en-US">of the Dark
+Light” </span>несёт в себе все элементы музыки
+группы последних лет. Низкие тяжёлые
+гитары, удивительный гроул <span lang="en-US">Frank
+Mullen, </span>удушающая атмосфера, методично
+казнящая слушателя ритм-секция, неожиданно
+сменяющие друг друга ритмические рисунки
+и общее впечатление тяжести и безнадёжности
+всего происходящего в нашей жизни,
+саундтреком к которой является эта
+МУЗЫКА.</p>
+<p lang="ru-RU" style="margin-bottom: 0cm;"><br>
+В последние годы
+в <span lang="en-US">SUFFOCATION </span>произошли большие
+изменения в составе. Главные действующие
+лица басист <span lang="en-US">Derek Boyer </span>и
+гитарист <span lang="en-US">Terrance Hobbs </span>на месте,
+они и сочинили новый альбом практически
+без участия других музыкантов. Ещё одна
+«визитная карточка» коллектива вокалист
+<span lang="en-US">Frank Mullen </span>ещё несколько лет
+назад объявил о невозможности продолжить
+занятия музыкой в том же объёме, что
+раньше. Голосовые связки певца физически
+не выдерживают его манеры пения. <span lang="en-US">Frank
+</span>был вынужден отказаться от туровой
+активности, а <span lang="en-US">SUFFOCATION </span>продолжают
+работать по полной программе, туры по
+всему миру, контракт с крупным лэйблом,
+который накладывает обязательства по
+концертной деятельности. В итоге в
+группу был взят сессионый певец <span lang="en-US">Kevin
+Muller, </span>который, начиная с этого года,
+подменяет <span lang="en-US">Mullen </span>на концертах.
+К счастью, сил записать новый альбом у
+основного гроулера хватило, и на «...<span lang="en-US">of
+the Dark Light” </span>мы в основном слышим его
+легендарный голос. Кстати, поговаривают,
+что это настоятельная просьба боссов
+с <span lang="en-US">Nuclear Blast, </span>чтобы хотя бы
+на альбоме <span lang="en-US">Frank </span>продолжал
+петь. Также у <span lang="en-US">SUFFOCATION </span>возникли
+и другие проблемы с составом. В придачу
+к очередной смене барабанщика, группу
+покинул ещё один легендарный музыкант
+<span lang="en-US">Kevin Talley (ex-DYING FETUS, ex-SIX FEET UNDER),
+</span>так и не записавший с коллективом
+ни одного студийного альбома, добавилась
+смена второго гитариста, <span lang="en-US">Guy
+Marchais </span>ушёл из коллектива после долгих
+лет сотрудничества. На вакантные места
+заступили <span lang="en-US">Eric Morotti </span>и <span lang="en-US">Charlie
+Errigo, </span>думаю, в их профессионализме
+никто после прослушивания нового альбома
+не усомниться.</p>
+<p lang="ru-RU" style="margin-bottom: 0cm;"><br>
+В настоящее
+время <span lang="en-US">SUFFOCATION </span>в туре по США
+вместе с <span lang="en-US">MORBID ANGEL </span>и <span lang="en-US">REVOCATION,
+</span>а уже в середине лета приедут в
+Европу, где в течение августа дадут 23
+концерта. России в списке не значится.</p>
+<p lang="ru-RU" style="margin-bottom: 0cm;"><br>
+Покупайте новый
+альбом на сайте <span lang="en-US">escapemind.ru:
+http://escapemind.ru/goods/SUFFOCATION-Of-The-Dark-Light</span></p>
+<p lang="ru-RU" style="margin-bottom: 0cm;"><br>
+</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Есть ли радые восоединению Суфокации

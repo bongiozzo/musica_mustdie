@@ -12,6 +12,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.12.2002 reviews Retribute Recs&#39; worst release to date
+
+<p>This is the only black metal release UK’s Retribute Records have made available so far. And, alas, it’s far worse than any sludge / stoner / death metal CD ever released by Chris (the label owner). Finland’s BLOODROSE deliver regular sympho-black – no more, no less. Catchy? No. Untypical? No. Fascinating? No. Masterly performed? No. We have many bands of the same kind over here (read – in Russia), and all of them are no less than a disaster whilst playing live. Is there any possibility that BLOODROSE’s gigs are way better? I believe: yes, there is. However, it’s not the live performance we’re speaking about here. It’s the CD. And blame me for being too subjective, but it’s not exciting at all. Finland has dozens of bands which BLOODROSE cannot even dream of competing with.</p>
+<P>Website: <A HREF="http://www.retributerecords.com">http://www.retributerecords.com</A></>
+<P>Email: <A HREF="mailto:Retribute@aol.com">Retribute@aol.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

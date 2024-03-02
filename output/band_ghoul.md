@@ -46,6 +46,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.06.2013 news GHOUL: клип &quot;Americanized&quot;
+
+<P>Американские весельчаки&nbsp;<STRONG>GHOUL</STRONG>, выпустили видеоклип на песню <STRONG>"Americanized"</STRONG>. Гостевое участие на этом треке принял <STRONG>Oderus Urungus</STRONG> (вокалист <STRONG>GWAR</STRONG>), сама же песня является кавером на трек всё тех же <STRONG>GWAR</STRONG>,&nbsp;вошедший в&nbsp;их&nbsp;дебютный альбом 1988 года <STRONG>"Hell-O"</STRONG>.&nbsp;&nbsp;</P>
+<P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/fglfnPrfLvc" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

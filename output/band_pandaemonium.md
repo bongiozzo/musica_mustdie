@@ -36,6 +36,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2011 news PANDAEMONIUM на IceWarrior Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=198 alt="" hspace=0 src="/images/news_rus/2011.08/20508.jpg" width=198 align=right border=0>Итальянская power-metal команда <STRONG>PANDAEMONIUM</STRONG> подписала контракт с <STRONG>IceWarrior Records</STRONG>. Третья работа группы "<STRONG>The Last Prayer</STRONG>" выйдет на рубеже годов. Обложку нарисовал <STRONG>Diego Ferrarin</STRONG>. Состав коллектива:</FONT></P>
+<P><STRONG>Daniel Reda</STRONG> - Vocals<BR><STRONG>Lorenzo Zirilli</STRONG> - Bass<BR><STRONG>Steve Volta</STRONG> (PERPETUAL FIRE) - Guitars & Keyboards<BR><STRONG>Federico Ria</STRONG> (ex PERPETUAL FIRE, SKYLARK) - Drums</P>
+Автор: Vit Belov
+
+### 01.01.2012 news Новая музыка PANDAEMONIUM
+
+<P>Итальянцы <STRONG>PANDAEMONIUM</STRONG> выпускают свой новый альбом "<STRONG>The Last Prayer</STRONG>" 27 января на <STRONG>IceWarrior/Rock It Up</STRONG>. Обложку для альбома создал <STRONG>Diego Ferrarin (WHITE SKULL)</STRONG>. Трек-лист:</P>
+<P>1.<STRONG> Alone In The Dark</STRONG><BR>2. <STRONG>Two Spirits One Heart</STRONG><BR>3. <STRONG>Through the Wind<BR></STRONG>4. <STRONG>Holy Voice<BR></STRONG>5. <STRONG>Tower Of Fears</STRONG><BR>6. <STRONG>The White Voice</STRONG><BR>7. <STRONG>Go Your Own Way</STRONG><BR>8. <STRONG>Today<BR></STRONG>9. <STRONG>Braveheart<BR></STRONG>10. <STRONG>Epitaph<BR></STRONG>11.<STRONG> Until The End</STRONG></P>
+<P>Ниже можно послушать два клипа с этого альбома.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qsD5V62O4E4?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/qsD5V62O4E4?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT></CENTER>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/D3mqfco2_To?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/D3mqfco2_To?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

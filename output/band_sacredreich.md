@@ -72,6 +72,28 @@ Dave McClain - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.2000 news 
+
+<p>Sacred Reich официально заявили о своем распаде. Phil Rind занялся созданием собственного звукозаписывающего лейбла.</p>
+
+Автор: Vit Belov
+
+### 23.08.2001 news &quot;Священная&quot; жертва автокатастрофы
+
+<p>Wiley Arnett, гитарист SACRED REICH, пострадал в результате автокатастрофы. Он не справился с управлением собственного автомобиля и перевернулся. К счастью, обошлось всё "малой кровью" - медики констатировали переломы нескольких рёбер, ушиб селезёнки, многочисленные ссадины и кровоподтёки. В настоящее время Arnett усиленно экономит на медстраховке и занимается самолечением в домашних условиях.</p>
+
+Автор: Odiumaniac
+
+### 10.10.2012 news SACRED REICH: &quot;Live At Wacken&quot;  DVD+CD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.10/24912.jpg" width=287 height=389>Американские трэшеры <STRONG>SACRED REICH</STRONG>&nbsp;выпускают&nbsp;новый DVD+CD<STRONG> "Live At Wacken"</STRONG>.&nbsp;&nbsp;Релиз выйдет 12 октября в Европе на лейбле <STRONG>Golden Core/ZYX</STRONG> и 19 ноября в США на <STRONG>Metal Blade</STRONG>. На дисках можно будет увидеть и услышать профессиональную запись выступления группы 4 августа 2007 года на немецком фестивале <STRONG>"Wacken Open Air" </STRONG>в присутствии 60&nbsp;000 фэнов металла. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>The American Way<BR></STRONG>02. <STRONG>Administrative Decisions<BR></STRONG>03. <STRONG>One Nation<BR></STRONG>04. <STRONG>Love... Hate<BR></STRONG>05. <STRONG>Ignorance<BR></STRONG>06. <STRONG>Crimes Against Humanity<BR></STRONG>07. <STRONG>Who's To Blame<BR></STRONG>08. <STRONG>State Of Emergency<BR></STRONG>09. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG> cover)<BR>10. <STRONG>Independent</STRONG><BR>11. <STRONG>Death Squad<BR></STRONG>12. <STRONG>Surf Nicaragua</STRONG></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

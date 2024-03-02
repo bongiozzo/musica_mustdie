@@ -41,6 +41,55 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2011 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18870.jpg" width=250 height=250>Организаторы чешского фестиваля <STRONG>Brutal Assault</STRONG> анонсировали новых участников. Ими стали бразильцы <STRONG>SEPULTURA</STRONG>, американская hardcore группа <STRONG>FIRST BLOOD</STRONG>, норвежские авангардисты <STRONG>RAM-ZET</STRONG>, фины <STRONG>TURISAS</STRONG>, немецкие thrash/death металлисты <STRONG>DEW-SCENTED</STRONG>, почитатели марихуаны <STRONG>CANNABIS CORPSE</STRONG>, легенды NYHC <STRONG>CRO-MAGS</STRONG>, думстеры <STRONG>AHAB</STRONG>, а так же, возрождённые <STRONG>EXIVIOUS</STRONG>, в состав которых входят музыканты <STRONG>CYNIC</STRONG> и <STRONG>TEXTURES</STRONG>.</FONT></P>
+<P>Начиная с сегодняшнего дня и до 30 апреля, каждый желающий может купить электронный билет на фестиваль по сниженной цене в<STRONG> </STRONG>1257 чешских крон (примерно&nbsp;52.40 EUR) через систему <STRONG>PayPal</STRONG>! А уже начиная с мая месяца&nbsp;и до конца июля, такой же билет можно будет купить по цене 1357 шеских крон (примерно 56.60 EUR). Для получения дополнительной информации пройдите по ссылке: <A href="http://brutalassault.cz/en/tickets/">http://brutalassault.cz/en/tickets/</A></P>
+Автор: Headcrusher
+
+### 30.06.2011 news CANNABIS CORPSE: &quot;Beneath Grow Lights Thou Shalt Rise&quot; выходит 12 июля.
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.06/19819.jpg" width=350 height=350>CANNABIS CORPSE</STRONG>, в состав которых, помимо прочих,&nbsp;входят басист <B itxtHarvested="0" itxtNodeId="33">Philip "Landphil" Hall</B> (так же в <B itxtHarvested="0" itxtNodeId="32">MUNICIPAL WASTE</B>) и его брат <B itxtHarvested="0" itxtNodeId="31">Josh "HallHammer" Hall</B> (ударные), закончили работу над новым альбомом, получившим название&nbsp;<B itxtHarvested="0" itxtNodeId="30">"Beneath Grow Lights Thou Shalt Rise"</B>. CD выйдет 12 июля&nbsp;на лейбле <STRONG>Tankcrimes</STRONG>.</P>
+<P>За сведение альбома ответсвенен <B itxtHarvested="0" itxtNodeId="16">Erik Rutan</B> (<B itxtHarvested="0" itxtNodeId="15">Mana Studios</B>), а мастеренг произвёл <B itxtHarvested="0" itxtNodeId="14">Alan Douches</B> в студии <B itxtHarvested="0" itxtNodeId="13">West Side Music</B>. Оформление выполнил <STRONG>Andrei Bouzikov</STRONG> (<FONT color=#ddd9d0><A href="http://www.andreibouzikov.com/">www.andreibouzikov.com</A></FONT>).</P>
+<P>Кроме того, все страждущие смогут увидет группу живьём в конце августа на концертах в Москве и Санкт-Петербурге. Подробные анонсы концертов появятся в скором времени на нашем сайте&nbsp;в разделе <STRONG>Shows</STRONG>: <A href="/ru/shows">http://musica.mustdie.ru/ru/shows</A> </P>
+Автор: Headcrusher
+
+### 20.12.2011 news CANNABIS CORPSE лишились гитариста и вокалиста
+
+<P>Гитарист <STRONG>Nick "Nikropolis" Poulos</STRONG>&nbsp; и вокалист <STRONG>Andy "Weedgrinder" Horn</STRONG>&nbsp;покинули группу <STRONG>CANNABIS CORPSE</STRONG>. Бас-гитарист группы <STRONG>Philip "Landphil" Hall</STRONG> (так же в <STRONG>MUNICIPAL WASTE</STRONG>)&nbsp;заявил, что <STRONG>CANNABIS CORPSE </STRONG>"собираются продолжать выступать и выдавать убийственный death metal с новым составом". Музыканты желающие занять вакантные должности в группе, могут писать на e-mail: <A href="mailto:at@hotmail.com">Landphilbass[at]hotmail.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.12/22365.jpg" width=650 height=435> 
+<P></P>
+<P>Фотографии с выступления <STRONG>CANNABIS CORPSE</STRONG> в Москве <EM>(29 августа 2011)</EM> можно посмотреть по ссылке: <A href="/ru/galleries/81/767">http://musica.mustdie.ru/ru/galleries/81/767</A></P></CENTER>
+Автор: Headcrusher
+
+### 09.01.2012 news CANNABIS CORPSE: видеоклип на песню &quot;Where The Kind Lives&quot;.
+
+<P><STRONG>CANNABIS CORPSE</STRONG> опубликовали видеоклип на песню <STRONG>"Where The Kind Lives"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/fLBZ9Pb2yTU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.06.2013 news Теперь у CANNABIS CORPSE будет собственная доска для скейта
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Любители каннабиса и группы <STRONG>CANNIBAL CORPSE</STRONG>, бригада <STRONG>CANNABIS CORPSE</STRONG> из американского города Ричмонд, совместно с конторой <STRONG>Gutter Christ Productions</STRONG>, подготовила к выпуску доски для скейта общим количеством 50 штук.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже сейчас можно оставить предварительный заказ на сайте: <A href="http://gutterchristproductions.bigcartel.com/">http://gutterchristproductions.bigcartel.com</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.06/25842.jpg" width=620 height=169> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 21.06.2017 news Пятый студийник от CANNABIS CORPSE в сентябре
+
+<P>Пятый по счёту студийный альбом американских травокуров <STRONG>CANNABIS CORPSE "Left Hand Pass"</STRONG> выйдет 8 сентября на лейбле<STRONG> Season Of Mist</STRONG>. Автор обложки -<STRONG> Par Olofsson</STRONG> (<A href="http://www.parolofsson.se/">http://www.parolofsson.se</A>).</P>
+<P>Новый трек<STRONG> "Chronic Breed" </STRONG>можно послушать на Youtube: <A href="http://youtu.be/HX1I6d40wbg">http://youtu.be/HX1I6d40wbg</A><BR>Трек-лист: <A href="/ru/band/cannabis_corpse/22941/">http://musica.mustdie.ru/ru/band/cannabis_corpse/22941/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.06/30582.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### CANNABIS CORPSE (C.Ш.А.) и др. в Москве (29 августа)

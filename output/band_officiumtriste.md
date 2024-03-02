@@ -36,6 +36,31 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.03.2006 reviews Голландский дум: ортодоксально и мелодично
+
+<P>"Ne Vivam" это переиздание дебютного альбома голландского&nbsp;квинтета Officium Triste на российском лэйбле Serpent's Liar, а оригинальное издание было в 1997 году на андерграундном Teutonic Existence Records (а в 2003 году он еще и переиздавался на виниле на Badger Records). Новый релиз включает бонус-трэк 'Mountains Of Depressiveness', который выходил в 1996 на одноименной "семидюймовке" и был благополучно распродан. Играет же сия команда достаточно ортодоскальный дум-метал (с небольшой примесью дэта), медленный, весьма суровый, депрессивный, как и положено в жанре, но не лишенный, однако, мелодичности. В общем и целом, здесь "всё на месте". Несмотря на обильное (для дума) количество мелодий, тут нет никаких "соплей", эмоции строго в рамках, их как бы каждый должен развить сам для себя, а не ждать "подсказок" группы. Вокал тоже на уровне, то поющий, по "разговаривающий". Не могу сказать, что Officum Triste сказали какое-то новое слово в дум-метале и что они отличаются какой-то большой оригинальностью, но продукт получился настолько качественным, что я его без тени сомнения рекомендую к обязательному прослушиванию всем любителям жанра. К записи претензий тоже нет, хотя гитары можно было бы прописать и посочнее, но это уже, возможно, дело вкуса. Про оформление буклета, к сожалению, ничего сказать не могу, ибо сей альбом попал ко мне просто в прозрачном конвертике и без какой-либо дополнительной информации.</P>
+Автор: Ixtiandr
+
+### 17.01.2007 news OFFICIUM TRISTE дали название новому альбому
+
+<P>Голландские атмосферные думстеры&nbsp;<B>OFFICIUM TRISTE</B> назвали свой новый альбом "<B>Giving Yourself Away"</B>. Он будет записан в местной студии <B>Excess</B>. Гитарные соло будут прописаны в студии <B>El Pato</B>. Уже известны названия некоторых композиций: "<B>Your Eyes"</B>, "<B>My Charcoal Heart"</B>, "<B>Signals"</B>, "<B>On the Crossroad of Souls"</B>, "<B>Inside the Mind"</B> и "<B>Master of your own Demise"</B>. Продолжительность диска ожидается около 50 минут. Выход ожидается в апреле-мае. </P>
+<P>&nbsp;</P>
+Автор: Dimas
+
+### 20.02.2009 news OFFICIUM TRISTE готовят альбом
+
+<P><STRONG>OFFICIUM TRISTE</STRONG> готовят альбом, посвящённый 15-летнему юбилею группы. Пластинка будет называться <STRONG>'Charcoal Hearts - 15 Years of Hurt'</STRONG>. На неё попадёт одна новая песня "<STRONG>No Hope</STRONG>", перезаписанная вещь "<STRONG>Divinity</STRONG>" с альбома "<STRONG>The Pathway</STRONG>", акустическая версия "<STRONG>My Charcoal Heart</STRONG>", кавер на песню <STRONG>KILLING JOKE</STRONG> "<STRONG>Love Like Blood</STRONG>", а так же ремастированные версии сплита 1998 года с <STRONG>COLD MOURNING</STRONG> и EP <STRONG>'Mountains Of Depressiveness' </STRONG>1996 года.</P>
+Автор: Vit Belov
+
+### 13.09.2011 news Новый альбом OFFICIUM TRISTE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=388 alt="" hspace=0 src="/images/news_rus/2011.09/21046.jpg" width=450 align=right border=0>Голландские "думстеры" <STRONG>OFFICIUM TRISTE</STRONG> выпустят свой новый альбом <STRONG>"Mors Viri" </STRONG>в ближайшем будущем на пока не названном лэйбле. Пластинка была записана в студии клавишника коллектива <STRONG>Martin Kwakernaak, </STRONG>а сведением занимался <STRONG>Ronnie Bjornstrom</STRONG> в <B itxtHarvested="0" itxtNodeId="34">Enhanced Audio Productions</B>. Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="28">Your Fall From Grace</B><BR itxtNodeId="27">02. <B itxtHarvested="0" itxtNodeId="26">Burning All Boats And Bridges</B><BR itxtNodeId="25">03. <B itxtHarvested="0" itxtNodeId="24">Your Heaven, My Underworld</B><BR itxtNodeId="23">04. <B itxtHarvested="0" itxtNodeId="22">Interludium</B><BR itxtNodeId="21">05. <B itxtHarvested="0" itxtNodeId="20">To The Gallows</B><BR itxtNodeId="19">06. <B itxtHarvested="0" itxtNodeId="18">The Wounded And The Dying</B><BR itxtNodeId="17">07. <B itxtHarvested="0" itxtNodeId="16">One With The Sea (Part II)</B><BR itxtNodeId="15">09. <B itxtHarvested="0" itxtNodeId="14">Like Atlas</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### FORGOTTEN TOMB / ALTAR OF PLAGUES / OFFICIUM TRISTE (Москва, 15 октября)

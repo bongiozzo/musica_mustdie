@@ -565,6 +565,928 @@ Recorded at Grindstone Studios in Suffolk, UK.
 * C группой "My Dying Bride" Martin Powell
 * C группой "Anathema" Martin Powell
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>На самом деле, это вовсе никакая не вторая часть "The Cruelty And The Beast", а всего лишь бонус к новому, только что вышедшему лимитированному изданию альбома в коробке в форме креста размером с руку. Здесь мы имеем одну совершенно новую вещь, являющуюся продолжением последней вещи альбома. Также две потрясающих ковер-версии Venom и Iron Maiden, на мой взгляд, превосходящих даже оригиналы. Ну и два микса своих старых вещей. В общем, очень приятное дополнение к альбому, которое можно слушать и отдельно от него, и получать массу удовольствия.</p>
+
+Автор: Dimas
+
+### 12.02.1999 news 
+
+<p>Новости от Тома Ангелриппера из SODOM. Его соло проект сменил название на ONKEL TOM и выпустит новый альбом в феврале-марте, который будет называться "Ein Strauss Bunter Melodien". А новый альбом SODOM в середине мая, как бонус к нему появится трибьют к группе, на котором засветятся CRADLE OF FILTH, VADER, BRUTAL TRUTH, DARK FUNERAL и другие.</p>
+
+Автор: Vit Belov
+
+### 28.02.1999 news 
+
+<p>Барабанщик Nicholas Barker покинул Cradle Of Filth и начал заниматься своми музыкальными проектами На время записи нового альбома в группе играет барабанщик Was Sarginson (The Blood Divine и December Moon)</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>На предстоящем Европейском туре место за барабанной стойкой Dimmu Borgir займёт Николас Баркер, недавно ушедший из Cradle Of Filth.</p>
+
+Автор: Vit Belov
+
+### 01.04.1999 news 
+
+<p>Группа Cradle Of Filth записывает новый EP, который выйдет в конце мая. На нём будет присутствовать кавер на песню Anathema "Sleepless".</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Новый альбом Sodom будет называться "Code Red" и выйдет 17 мая. На альбоме будет 12 песен плюс бонус-кавер на песню Accept "I'm a Rebel". В паре с этим альбомом выйдет трибьют к самой группе "Homage To The Gods". На работе засветятся Cradle Of Filth, Impaled Nazarene, Dark Funeral, Atanatos, Enthroned, Brutal Truth и другие.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Новости о сайд-проектах участников Napalm Death. Шейн вместе с известными музыкантами Билли Гулдом и Дино Касаресом закончили новый альбом Brujeria, который выйдет позже в этом году. Митч закончил запись нового альбома Meathook Seed, который выйдет также в этом году. Также Джесси и Шейн объединились с Л.Г. Петровым (Entombed) и Николасом Бэйкером (ex-Cradle Of Filth), Dimmu Borgir) для запуска нового проекта Lock-On. Также в этом году Барни и Дэнни планируют записать новые песни для нового альбома Nothing But Contempt.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Flotsam&Jetsam выступят на знаменитом фестивале в Милуоки. Хэдлайнерами на нём будут Cradle Of Filth, Morbid Angel, Manowar и Machine Head. Также будут выступать Witchery, Marduk, Angra, Iced Earth, Satyricon, The Gathering, Sinister и другие. Всего более 120 групп. Кстати, всё это двухдневное удовольствие стоит всего 50 баксов. Это я так для сравнения.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Testament отправились в тур вместе с The Haunted. Тем временем The Haunted покинул барабанщик Адриан Эрландссон, который влился в ряды Cradle Of Filth. Новым стукачом стал Пер Мёллер Йенсен.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Барабанщик Ник Бэйкер, известный по Dimmu Borgir и Сradle Of Filth, поможет Borknagar во время их тура, а также при записи следующего альбома.</p>
+
+Автор: Vit Belov
+
+### 23.08.1999 news 
+
+<p>Гитарист Cradle Of Filth Гиан выступит, как приглашённый музыкант на концертах группы Chyristian Death вместе с Dreams Of Sanity и Catastophe Ballet В Мексике.</p>
+
+Автор: Vit Belov
+
+### 25.08.1999 news 
+
+<p>Cradle Of Filth выпустят новое видео "PanDaemonAemon" 30 августа.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Джиан Пайерс покинус Cradle Of Filth, из-за музыкальных разногласий. Сейчас он даёт концерты вместе с Christian Death.</p>
+
+Автор: Vit Belov
+
+### 29.10.1999 news 
+
+<p>Cradle Of Filth в ноябре выпустят новое EP "From The Cradle To Enslave". На него войдут 6 песен. Среди них кавера на песни Misfits и Anathema, а также ремикс песни "Funeral In Carpathia".</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Cradle Of Filth отменили свои европейские концерта, из-за смены состава. Группу покинули клавишник Лес Смит и гитарист Стюарт Антис. На их места вернулись Пол Аллендер и Джиан Пайерс. Что-то невнятной происходит в этой группе.</p>
+
+Автор: Vit Belov
+
+### 22.12.1999 reviews 
+
+<p> Вот наконец и он, новый малометражный альбом британских монстров мирового black-metal. Больше полугода откладывали и переносили его выпуск. приходилось запасаться огромным терпением. Теперь, многие с облегчением вздохнули. И что же мы имеем? Две сногсшибательные новые вещи, две ковер-версии (DANZIG и ANATHEMA) и два ремикса: один на новую же вещь и второй на старую. Всё просто великолепно, особенно ковер-версии и новая одноименная вещь. Слушаешь, аж дух захватывает. Но... Маловато будет, да и хочется побольше новенького. А пока, в скором ожидании новой работы группы, предлагаю насладиться данным релизом. (9)</p>
+
+Автор: Dimas
+
+### 21.03.2000 news 
+
+<p>Новый альбом Cradle Of Filth выйдет в июле.</p>
+
+Автор: Vit Belov
+
+### 03.07.2000 news Новый альбом Cradle Of Filth
+
+<p> Новый альбом Cradle Of Filth "Victorian England Under Martian Rule" будет выпущен в конце октября в виде двойного CD. Дэнни пригласил первоначальных членов команды поучаствовать в записи альбома, так что этот альбом будет в некотором роде воссоединением группы.</p>
+
+Автор: Nybras
+
+### 03.07.2000 news New album Of Cradle Of Filth
+
+<p>The new album of Cradle Of Filth is titled "Victorian England Under Martian Rule" and will be released at the end of October as a double CD. Danny invited the original members of the band to participate in the recordings of the album, so the album will be some kind of a re-union.</p>
+
+Автор: Nybras
+
+### 08.07.2000 news Информация о новом альбоме Cradle Of Filth.
+
+<p> Следующий альбом Cradle Of Filth действительно выйдет к Halloween, и его запись уже идёт в Англии в Parkgate Studios. Но называться он будет 'Midian', что значит город Midian, где обитают монстры. "Это альбом, в котором живут чудовищные песни!" - говорит Дэни. Альбом продюсируется Джоном Фриером, который уже работал с NIN, White Zombie, HIМ, а также над прошлым опусом COF "From the Cradle To Enslave". В записи будет принимать участие недавно пришедший в группу новый клавишник Мартин Пауелл (ex My Dying Bride, Anathema), а также подтвердила свое участие оперная дива Дайманда Галас.</p>
+
+Автор: Morsus
+
+### 08.07.2000 news New Cradle of Filth Album Info.
+
+<p> The latest album of Cradle Of Filth really will be realised to Halloween, recording has begun at Parkgate Studios in England. But it will be named 'Midian', that means the city of Midian , which is where the monsters live. "This album is where the monstrous songs live!" says Dani. The album is being produced by John Fryer, who has worked with NIN, White Zombie, HIM, and is also the man responsible for COF's last opus "From the Cradle To Enslave". The latest addition keyboard player Martin Powell (ex My Dying Bride, Anathema) will take in recording, also confirmed to appear opera diva Diamanda Galas.</p>
+
+Автор: Morsus
+
+### 26.08.2000 news Хорошие новости от Cradle of Filth
+
+<p> "Midian" - так будет называться новый альбом Cradle of Filth. В настоящий момент работа над диском идет полным ходом. К записи альбома примет участие некто Дуг Брэдли (Doug Bradley), актер, снявшийся в фильме "Воставший из ада" в роли "Пинхэда". Он запишет голосовые (речевые) партии для нескольких песен с альбома. Также сейчас идут съёмки полнометражного фильма "Cradle Of Fear", в котором в главной роли снимается Дани. Его персонаж, "The Man", верит, что он является вампиром. В фильме, в качестве саунд-трэка, будет использована песня "Lord Abortion" из будущего альбома группы. Фильм выйдет одновременно с "Midian" и будет доступен для просмотра через интернет. Подробности на сайте http://www.cradleoffear.com.</p>
+
+Автор: Nybras
+
+### 26.08.2000 news Dani Filth works with Doug Bradley, from Hellraiser movie
+
+<p>"Midian" would be the title of the new CRADLE OF FILTH album. Recording of new album is going full steam ahead with John Fryer on production duties. Continuing their penchant for appearances by horror icons on their albums, CRADLE OF FILTH have recruited the vocal talents of Doug Bradley, 'Pinhead' from the Hellraiser movie. He will perform a spoken word for one of the "Midian" tracks. Also currently in production is the full length movie 'Cradle Of Fear' which features Dani Filth as a character, who believes he's a vampire, called The Man. The Film will feature the CRADLE OF FILTH track 'Lord Abortion' which is taken from their forthcoming album. The film is due to be released simultaneously along with 'Midian' and will only be available to watch on the Internet where classification rules and regulations do not apply : http://www.cradleoffear.com.</p>
+
+Автор: Nybras
+
+### 25.10.2000 reviews Вампиры выходят на охоту
+
+<p>Вампиры выходят на охоту. Отдохнувшие и набравшие сил после долгой кровавой попойки. они радуют нас новым и долгожданным вампирическим шедевром. Все получилось замечательно, это слышно даже невооруженным ухом. Разнообразно, мелодично, довольно брутально. запоминается... Что еще нужно для очень хорошего альбома. Прежний "готический" black здесь уже пости не наблюдается. Риффы сиановятся все более и более heavy'образными, иногда даже Iron Maiden'оподобными. Скорее, это уже "вампирическо-готический" death-metal со своеобразным вокалом. Как всегда, радует оформление альбома. Все те же "грязные" и "чудовищные" темы в песнях. Альбом не напрягает, слушается легко, с интересом. Вряд ли он способен разочаровать, хоть и не несет собой ничего принципиально нового. Красивые мелодии, жесткая гитарная поддержка, сохранившиеся местами бласт-биты, мрачная и мистичная клавишная атмосфера, женский хорал на заднем плане, а вот общая атмосфера ужаса и страха немного потускнела. При всем при этом, альбом явно один из лучших релизов года. И с этим не поспоришь...</p>
+
+Автор: Dimas
+
+### 09.01.2001 news Гитарист Cradle Of Filth Стюарт Анстис теперь играет в еще одной группе
+
+<p> Гитарист группы Cradle Of Filth Стюарт Анстис, теперь принимает участие в эмбиентном проекте под названием Aphelion. Альбом этой новой группы выйдет в феврале на Iris Lirgh Records.</p>
+
+Автор: Nybras
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>После проведения однодневных Dynamo Open в последние годы, в этом году принято решение все-таки вернуться к трехдневной форме. Шестнадцатый фестиваль будет проходить на "De Schans" в Lichtenvoorde с 24 по 26 мая 2001. Уже подтвердили свое участие: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER и WICKED MYSTIC. Не пропустите!</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>After last years one day-Dynamo we strike back with a full three day -event, with campsite at "De Schans" in Lichtenvoorde. Our 16th edition will simply crush all other summerfestivals this year and takes place on the 24th, 25th and 26th of MAY … Bands Scheduled To Appear: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER feat. Arjen Lucassen, WICKED MYSTIC</p>
+
+Автор: Yermola
+
+### 02.04.2001 news CRADLE OF FILTH are embarking on a tour
+
+<p> CRADLE OF FILTH are embarking on a tour of Europe, Japan and Australia. Here is where you can catch them:</p>
+<p></p>
+<p> April 11 - Temple Bar Centre, Dublin, IRE</p>
+<p></p>
+<p> April 12 - The Limelight, Belfast, IRE</p>
+<p></p>
+<p> April 14 - Rock City, Nottingham, UK</p>
+<p></p>
+<p> April 19 - Heat Beat, Tokyo, JAP</p>
+<p></p>
+<p> April 20 - Bottom Line, Nagoya, JAP</p>
+<p></p>
+<p> April 22 - Shibuya Club, Tokyo, JAP</p>
+<p></p>
+<p> April 23 - Shibuya Club, Tokyo, JAP</p>
+<p></p>
+<p> April 26 - The Roundhouse, Sydney, AUST</p>
+<p></p>
+<p> April 27 - The Palace Melbourne, AUST</p>
+<p></p>
+<p> April 28 - The Arena Brisbane, AUST</p>
+<p></p>
+<p> May 26 - Dynamo Festival, Lichtenvoorde, NETH</p>
+<p></p>
+<p> June 08 - Mind Over Matter, Wiesen, AUS</p>
+<p></p>
+<p> June 09 - Gods of Metal, Milan, IT</p>
+<p></p>
+<p> June 22 - With Full Force, Dresden, GER</p>
+<p></p>
+<p> June 23 - Graspop Dessel, BEL</p>
+<p></p>
+<p> June 03 - Quart Festival Quart, NOR</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 03.04.2001 news Bitter Suites To Succubi....
+
+<p>CRADLE OF FILTH 22 мая выпускают ЕР "Bitter Suites To Succubi". Это будет первый релиз на их собственной фирме AbraCadaver. ЕР будет содержать четыре новых песни, "Black Goddess II- Ebon Nemesis", и перезаписанные "The Principle Of Evil Made Flesh" и "Summer Dying Fast".</p>
+
+Автор: Yermola
+
+### 03.04.2001 news Bitter Suites To Succubi EP
+
+<p>CRADLE OF FILTH have pushed up the release of their Bitter Suites To Succubi EP—the group’s first release through their own AbraCadaver imprint—to May 22nd. As previously reported, the EP will include four new songs, a sequel to “Black Goddess”, entitled simply "Black Goddess II- Ebon Nemesis", as well as re-recordings of "The Principle Of Evil Made Flesh" and "Summer Dying Fast".</p>
+
+Автор: Yermola
+
+### 10.04.2001 news CRADLE OF FILTH&#39;s show ...
+
+<p> CRADLE OF FILTH's show at Nottingham's Rock City on Saturday, April 14th will be available via a webcast worldwide at the following sites:</p>
+<p></p>
+<p> Australia - www.route666.shock.com.au</p>
+<p></p>
+<p> Belgium - Canal + www.canalplus.be</p>
+<p></p>
+<p> USA & Canada - BWBK www.bravewords.com</p>
+<p></p>
+<p> Denmark - www.metalized.net</p>
+<p></p>
+<p> France - Watt Music - www.wattmusic.com</p>
+<p></p>
+<p> Greece - Metalnation.com www.metalnation.com</p>
+<p></p>
+<p> Holland - www.aardschok.nl</p>
+<p></p>
+<p> Italy - www.Metallus.it</p>
+<p></p>
+<p> Norway - www.metalexpress.no</p>
+<p></p>
+<p> Spain - Rock News - www.mastertrax.com/rocknews</p>
+<p></p>
+<p> Sweden - www.deo.com/se/rock/default.jsp</p>
+<p></p>
+<p> The above-listed sites should begin to have more information about the webcast within the following week.</p>
+<p></p>
+
+Автор: Yermola
+
+### 13.07.2001 news Из ANATHEMA ушел Дэйв Пибус.........
+
+<p>"ANATHEMA" официально подтвердили уход бас-гитариста Дэйва Пибуса, который в настоящее время катается по штатам в качестве сессионного бассиста "CRADLE OF FILTH". По сообщению сайта команды это событие никак не повлияет на выход студийника "A Fine Day to Exit" запланированный на 11 сентября. В европе альбом выйдет через "Music For Nations" и в америке на "Koch Records".</p>
+
+Автор: Yermola
+
+### 13.07.2001 news ANATHEMA have officially confirmed the departure ....
+
+<p>ANATHEMA have officially confirmed the departure of bassist Dave Pybus, who is currently touring in US as a session bassist for CRADLE OF FILTH. According to the band’s official web site, Dave's departure won't have any effect on the release of ANATHEMA’s brand new studio album, A Fine Day to Exit, which is scheduled to be issued on September 11th through Music For Nations in Europe and Koch Records in North America. No replacement for Dave has yet been announced. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.07.2001 reviews Очередное дитя из нечистой колыбели
+
+<p> Не прошло еще и года с момента выхода предедущего творения Cradle Of Filth - "Midian", как уже нежданно-негаданно группа обрушила на нас новый опус, выпущенный на собственном лейбле Abrakadaver. Следует оговориться, что данный компакт диск, хотя и содержит 10 песен, причисляется к категории EP, то есть мини-альбом, потому как на нем представлены несколько новых творений, кавер "No Time To Cry" Sisters Of Mercy, а также перезаписанные композиции с альбома "The Principle Of Evil Made Flesh", а помимо этого диск, выпущенный в новом формате Enhanced CD, содержит видеклип на песню "Burn In A Burial Gown" и промо-клип фильма "Cradle Of Fear".</p>
+<p></p>
+<p> Первое и, пожалуй, главное, что следует сказать об этом релизе - это Cradle Of Filth как Cradle Of Filth. Кому-то это понравится, кому-то нет, но на этом ЦД мы имеем все тот-же комичный готик-блэк, который являли нам несколько предыдущих работ группы. Даже самый дотошный и внимательный слушатель, вооруженный самыми современными техническими средствами, как-то CD-проигрыватель, услитель и колонки (или наушники), вряд ли сможет обнаружить на круглом куске пластмассы под названием "Bitter Suits To Succubi" хоть какие-то стилистические нововведения. Видоематериалы также скроены по уже проверенной и хорошо зарекомендовавшей себя формуле "побольше крови и голых баб" (хотя до видеоизвращения "From The Cradle To Enslave", пожалуй, не дотягивают). Старые песни ("The Principle Of Evil Made Flesh", "Summer Dying Fast" и "The Black Goddes Rises II") переписаны заново достаточно близко к оригиналу, отличаясь от него звуком и манерой вокала Данни, которая с 1994 года все же заметно изменилась.</p>
+<p></p>
+<p> Конечно, трудолюбие и стахановская производительность Данни и компании не могут не вызывать уважение. Однако в отличие от своих ближайших конкурентов Dimmu Borgir, заметно меняющих звучание от альбома к альбому, Крэдл Оф в последнее время не утруждают себя каким-либо движением вперед, предпочитая без устали штамповать однажды найденные фишки. Конечно, сейчас Кренделя находятся на пике популярности, и любой продукт, выпущенный под маркой CoF, заставляет толпы людей бежать в магазин с единственной целью его приобретения. Чем эта бригада и пользуется, с постоянством хорошо налаженного конвейера выбрасывая на рынок все новые и новые релизы. Но не стоит забывать, что все даже самое интересное и свежее после тысяче-и-однократного повторения навязает в зубах и набивает оскомину. Хотя данный альбомчик, надо думать, является разминкой перед очередным полноразмерным CD, может быть, там мы и услышим что-либо более знаменательное.</p>
+
+Автор: Martin
+
+### 19.09.2001 news DVD &#x2F; видео от Колыбели Грязи...
+
+<p>Любимцы публики "Cradle Of Filth" 15-го октября выпускают в продажу DVD/VHS с записью концерта в Nottingham Rock City (прошедшего 14-го апреля). Действо содержит обычные фенечки группы как-то: мощное световое шоу, уроды и ходоки на ходулях Цирка Ужасов, плевание огнем и конечно же фирменный блэк-металлический "шум"... На DVD релизе будут 77 минут концерта и бонусы в виде: промо-клипа для "Born In A Burial Gown" и "Scorched Earth Erotics" с последнего альбома "Bitter Suites To Succubi"; съемок 'Fly On The Wall' из Японии, США и Ноттингема; Фото-галлереи; полной дикографии; web-ссылок и эксклюзивного артворка ДЖ.К.Поттера (делавшего кавер-дизайны для Клайва Баркера, Айзека Азимова и 'Midian' самих Крэдлов). На VHS кассете будут: те же 77 минут концерта, сокращенный Цирк Ужасов, промо "Born In A Burial Gown" и "Scorched Earth Erotics" и постер...</p>
+
+Автор: Yermola
+
+### 19.09.2001 news HEAVY, LEFT HANDED AND CANDID...
+
+<p>The world's biggest black metal band, Cradle Of Filth, release a live DVD and video of their recent sell out webcast concert at Nottingham Rock City. The DVD/Video will be released through Snapper Music on October 15th. On April 14th this year Cradle Of Filth took to the stage at Nottingham's 'Rock City'. The concert was filmed and, hours later streamed around the world via the Internet. The resulting audience for this concert was enough to fill Rock City hundreds of times over. The show featured everything that has made Cradle Of Filth the most provocative live metal band the world has seen: a stunning light show, freaks and stilt-walkers from the notorious Circus Of Horrors, fire-breathing and, of course, The Filth's distinctive brand of black metal noise. This DVD release includes the entire 77-minute Rock City concert from April 14th, with support from The Circus Of Horrors PLUS the following superb bonus features: <br> * Shocking promotional videos for "Born In A Burial Gown" and "Scorched Earth Erotics" from the band's latest release "Bitter Suites To Succubi." Not for the faint of heart.<br> * Exclusive 'Fly On The Wall' footage from Japan, the USA and Nottingham.<br> * A comprehensive Photo Gallery.<br> * A complete Cradle Of Filth discography<br> * Web links.<br> * Exclusive artwork by JK Potter, who not only designed cover art for Clive Barker, JG Ballard and Isaac Asimov,but also the stunning images for Cradle Of Filth's 'Midian' album.<br><br> VHS release features:<br> * Nottingham Show (77 minutes) <br> * Circus Of Horrors (edited to 3-5 minutes) <br> * Born In A Burial Gown promotional video<br> * Scorched Earth Erotica promotional video (Dark Version) <br> * Poster.<br><br> Nottingham Rock City Set List. April 14th 2001<br> Intro<br> Lord Abortion 6.02<br> Ebony Dressed As Sunset 2.55<br> The Forest Whispers Her Name 4.39<br> Cthulhu Dawn 4.11<br> The Principle Of Evil Made Flesh 4.32<br> Cruelty Brought Thee Orchids 7.15<br> Her Ghost In The Fog 7.30<br> Summer Dying Fast 5.29<br> Encore<br> From The Cradle To Enslave 4.55<br> Queen Of Winter Throned 9.53<br> Shaft 0.17<br></p>
+
+Автор: Yermola
+
+### 22.10.2001 news Крендели в Грязи...
+
+<p>Любимые народом "CRADLE OF FILTH" примут участие в Mad Maz’s show на сайте TotalRock 1-го ноября с 18 по 21 PM(UK!). Вы можете послушать на <a href="http://www.totalrock.com/">www.totalrock.com.</a></p>
+
+Автор: Yermola
+
+### 22.10.2001 news CRADLE OF FILTH will be &quot;taking over&quot; Mad Maz&#39;s show ...
+
+<p>CRADLE OF FILTH will be "taking over" Mad Maz’s show on TotalRock on Thursday, November 1st from 6-9 PM (UK time). You may access TotalRock on Sky Digital Channel 885 and also on the internet at <a href="http://www.totalrock.com/">www.totalrock.com. </a>Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.11.2001 news CRADLE OF FILTH are currently composing material for the group&#39;s first album for Sony Records...
+
+<p>British black metal sensation CRADLE OF FILTH are currently composing material for the group’s first album for Sony Records, and according to a report that was published in Kerrang!, they have no intention of watering down their sound for a mainstream audience. "I don't care what the label expects, they can expect to get a f**king CRADLE OF FILTH album, and that's it," vocalist Dani Filth told the magazine. "They wouldn't have signed us if they didn't like what we were doing and there's no point cumming in the ingredients. I think we'll try to take the best bits from all our previous stuff, basically. The songs are more like proper songs now though, they're going to be a bit simpler. We might de-tune on this album, too, just to get a heavier vibe to it." CRADLE OF FILTH's next album is expected to emerge in the first half of 2002 via the Sony label.</p>
+
+Автор: Yermola
+
+### 05.11.2001 news CRADLE OF FILTH пишут альбом для Сони Рекордс...
+
+<p>Британская блэк-металлическая сенсация "CRADLE OF FILTH" в данный момент заняты сочинением материала для первого альбома группы на Sony Records. По словам Дэни опубликованным в журнале "Kerrang!", никаких изменений в саунде команды по этому поводу не предвидится. "Мне наплевать чего от нас ожидает лэйбл. Они могут получить трах-тарарах альбом CRADLE OF FILTH и все.... Они бы не подписали нас, если бы им не нравилось, что мы делаем..." Релиз ожидается в первой половине 2002 года.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Новости из гнезда разврата
+
+<p>Cradle Of Filth собираются записывать в студии первый альбом для мажорного лейбла Sony Records в начале мая следующего года с небольшим перерывом для участия в ежегодном фестивале Dynamo Open Air в Голландии. Сам альбом по стилю обещает быть концептуальной работой в духе "Cruelty And The Beast". Рабочее название - "Damnation And A Day". Уже написаны две композиции, работа над ещё двумя будет закончена до Рождественских праздников.</p>
+
+Автор: Morsus
+
+### 14.12.2001 news News from Cradle Of Filth
+
+<p>Cradle Of Filth are due to go into the studio to record their first album for a major label at the beginning of May with a brief respite in recording to allow the band to perform at next year's Dynamo festival in Holland. The album itself looks like being another conceptual work (much in the vein that "Cruelty And The Beast" was) with a tentative working title of "Damnation And A Day", with two songs already written and two more to be completed before the Xmas sojourn.</p>
+
+Автор: Morsus
+
+### 08.04.2002 news CRADLE OF FILTH To Issue &quot;Very Best Of&quot; Double CD
+
+<P>On May 13th, CRADLE OF FILTH will release Lovecraft & Witch Hearts (The Very Best Of CRADLE OF FILTH), a specially-packaged double CD. </P></>
+<P> </P></>
+<P>This release is the culmination of the band's six years signed to independent label Music For Nations. Featuring 24 of CRADLE's masterpieces, this double CD clocks up an amazing 143 minutes and 47 seconds of the most extreme, lavish, blood-curdling and adventurous music ever conceived. </P></>
+<P> </P></>
+<P>With sales of over one million copies worldwide, CRADLE OF FILTH's decade long career has escalated in status with each release. This meteoric rise, which left their compeers in their wake, reached maximum density in the period 1996–2001, and is documented in full on this album. </P></>
+<P> </P></>
+<P>In true CRADLE OF FILTH style, Lovecraft & Witch Hearts not only features what are considered to be the best tracks from their three albums and one EP with Music For Nations (Dusk And Her Embrace, Cruelty And The Beast, From The Cradle To Enslave and Midian), but is also awash with special tracks that were previously available only on limited-edition packages or foreign versions of the albums. </P></>
+<P> </P></>
+<P>The full track listing for Lovecraft & Witch Hearts is as follows: </P></>
+<P> </P></>
+<P>Disc One: </P></>
+<P>01. Creatures That Kissed In Cold Mirrors </P></>
+<P>02. Dusk And Her Embrace </P></>
+<P>03. Beneath The Howling Stars </P></>
+<P>04. Her Ghost In the Fog </P></>
+<P>05. Funeral In Carpathia (Be Quick Or Be Dead Version) </P></>
+<P>06. The Twisted Nails Of Faith </P></>
+<P>07. From The Cradle To Enslave </P></>
+<P>08. Saffron's Curse </P></>
+<P>09. Malice Through The Looking Glass </P></>
+<P>10. Cruelty Brought Thee Orchids </P></>
+<P>11. Lord Abortion </P></>
+<P> </P></>
+<P>Disc Two: </P></>
+<P>01. Once Upon Atrocity </P></>
+<P>02. Thirteen Autumns And A Widow </P></>
+<P>03. For Those Who Died – Return To The Sabbat Mix * </P></>
+<P>04. Sodomy And Lust * </P></>
+<P>05. Twisting Further Nails ** </P></>
+<P>06. Amor E Morte </P></>
+<P>07. Carmilla's Masque </P></>
+<P>08. Lustmord And Wargasm – The Relicking Of Cadaverous Wounds </P></>
+<P>09. Dawn Of Eternity * </P></>
+<P>10. Of Dark Blood And F.cking </P></>
+<P>11. Dance Macabre ** </P></>
+<P>12. Hell Awaits * </P></>
+<P>13. Hallowed Be Thy Name * </P></>
+<P> </P></>
+<P>* cover </P></>
+<P>** remix </P></>
+<P> </P></>
+<P>Lovecraft & Witch Hearts will be presented with brand new artwork designed by John Coulthart in conjunction with CRADLE OF FILTH in a jewel case contained within a slip-case. The release also features a 24-page poster booklet, as well as a 12-page booklet containing a foreword by Dani Filth and a history of CRADLE written by friend and ex-band member Damien.</P></>
+
+Автор: Yermola
+
+### 17.05.2002 news WIN FREE MUSIC!!!
+
+<P>WIN FREE MUSIC!!! </P></>
+<P> </P></>
+<P>Spitfire Records and Metal Maniacs presents: </P></>
+<P> </P></>
+<P>..the compilation featuring Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) and MORE. 15 bands, one CD and all you need to do to snag a copy is answer some simple metal trivia questions (below). </P></>
+<P> </P></>
+<P>RULES: Answer the questions. Win the goods. It's THAT simple. ALL ENTRIES MUST BE SENT TO: maniacsmail@yahoo.com or maniacsmail@metalmaniacs.com </P></>
+<P>(any entries sent to this address will not be accepted) </P></>
+<P>or snail mailed to: </P></>
+<P> </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Include your full name, address, phone # and e-mail. All entries must be in by Monday, June 10th. </P></>
+<P> </P></>
+<P>1. Which drummer played on the Megadeth track “Peace Sells”? </P></>
+<P>2. What does Deicide’s Glen Benton have burned into his forehead? </P></>
+<P>3. Crowbar’s Kirk Windstein also performs with which New Orleans supergroup? </P></>
+<P>4. The new Pissing Razors album is called ‘Where We Come From’. Where DO they come from? </P></>
+<P>5. Chris Barnes of Six Feet Under is previously of what band? </P></>
+<P>6. Which South Carolina band opened for Cradle Of Filth on their 2001 North American tour? </P></>
+<P>7. Name five bands Danny Lilker has played in. </P></>
+<P>8. What legendary NYHC band was fronted by Pro Pain’s Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 17.05.2002 news Играйте и выигрывайте!!!
+
+<P>Дорогие маздайцы! Вы можете принять участие в конкурсе проводимом лэйблом Spitfire Records и журналом Metal Maniacs. Если вы правильно ответите на приведенные ниже вопросы то станете обладателем одного из сборника "DERANGED" с участием Megadeth ("Peace Sells"), Deicide ("Dead By Dawn"), Six Feet Under ("Hacked To Pieces"), Cannibal Corpse ("Staring Through the Eyes of the Dead"), S.O.D. ("United Forces"), Cradle Of Filth ("Principle Of Evil Made Flesh" ) и др. (всего 15 групп). </P></>
+<P> </P></>
+<P>Все ответы (написанные хорошим английским языком) должны быть посланы на e-mail: maniacsmail@yahoo.com или maniacsmail@metalmaniacs.com </P></>
+<P> </P></>
+<P>Также вы можете послать их по почте: </P></>
+<P>Metal Maniacs - Deranged Contest, </P></>
+<P>333 7th Ave 11th Floor, New York, NY 10001 </P></>
+<P> </P></>
+<P>Незабудьте вписать свое имя, почтовый адрес, телефон и e-mail. Крайний срок приема ответов - 10-е июня. </P></>
+<P> </P></>
+<P>Вопросы: </P></>
+<P> </P></>
+<P>1. Какой барабанщик играл в треке Megadeth - “Peace Sells”? </P></>
+<P>2. Что любит поджигать Deicide’овский Glen Benton у себя на лбу? </P></>
+<P>3. В какой Нью-Орлеанской супергруппе играет Kirk Windstein из Crowbar? </P></>
+<P>4. Новый альбом Pissing Razors называется ‘Where We Come From’. Так откуда именно они пришли? </P></>
+<P>5. В какой команде раньше участвовал Chris Barnes из Six Feet Under? </P></>
+<P>6. Какая команда из Южной Каролины разогревала Cradle Of Filth в их Северо-американском туре 2001 года? </P></>
+<P>7. Перечислите пять групп в которых играл Danny Lilker? </P></>
+<P>8. В какой легендарной Нью-Йоркской команде выступал фронтмен Pro Pain - Gary Meskil? </P></>
+
+Автор: Yermola
+
+### 23.05.2002 articles Беседа Марго Лосевой ака Succubus Filth с Алексом Чэндоном
+
+<p> И вот… Страх уже здесь… НО КАК? Смотри, и увидишь. Ведь кровь лишь за тем, чтоб ее проливать, не так ли? Да, да… Что еще может с такой легкостью, заставить трепетать человеческое существо, как не вид свежепролитой крови? Что заставит тебя чувствовать низменный животный страх? Изуродованная, покромсанная, МЁРТВАЯ человеческая плоть. Алекс Чендон считает именно так. Вышедший из под его пера полнометражный фильм «Колыбель Страха», является настоящим отождествлением, воплощением в реаль, всех человеческих страхов. Даже подсознательных. Хочется классического ужаса в стиле Альфрэда Хичкока? Посмотри «Колыбель Страха» и протрясешься и, даже проблюешься по полной программе, ибо есть над чем. По его словам, он хотел всего лишь напомнить людям о классическом жанре Horror. Да, наши подростки не знакомы с настоящим кинематографом сего жанра. Самые, холодящие в венах кровь, ужасы, остались далеко в 70-80-х. <BR><BR> Алекс Чендон, кровь из носу, пытался (почти в прямом смысле) добиться такого глубинно душевного трепета, как фильмы подобные: «Оживление Мертвеца», «Реаниматор», «Нечто», «Зловещие Мертвецы»… И, надо сказать, у него это здорово получилось. <BR><BR> В главной роли снялся Дани Филт. А вот, краткое содержание фильма: В первых же минутах фильма, Дани убивают местные бандюки. Парни собрались просто грабануть разодетого придурка. И только шарить по карманам, как не тут то было! Убив тело, они разбудили монстра. За что и поплатились жизнями. Фильм состоит из четырех отдельных, как бы, историй, скрепленных одним мотивом. В больнице для душевно больных, заключен маньяк убийца, который убивал детей и жрал их плоть. Мерзкий доктор Кэмпер. Ему нужен был сподвижник на воле. И он нашел Дани. Точнее того монстра который проснулся в нем после смерти. Дани помогает Кэмперу заниматься своими погаными делишками, за пределами его тюрьмы. Каждый раз, Кэмпер отправляет записки Дани, который после получения указаний, не заставляет себя долго ждать. Но все не так просто! Кэмпер мстил тем, кто помог заточить его в дурку! Но надо сказать, что и сами то они были, не слишком, положительными гражданами нашего общества. Полицейский расследует серию этих убийств… в конце фильма, ему сообщают, что его собственный сын найден мертвым. Еще несколькими минутами позже выясняется, что тот маньяк, которого он так пытался поймать, и есть его собственный сын. Но как же? Ведь найдено мертвое тело! Вот тут то и вступает в ход мистическая строна. Но о ней я лучше не буду рассказывать. По последним сводкам, фильм этот получил полное разрешение к тиражированию и скоро он будет доступен в любой стране, как на обычных кассетах, так и на DVD. <BR> <BR> <BR> - Привет, Алекс! Я тут кружила, кружила вокруг тебя и решила задать пару вопросов о твоем творчестве. Да и сам ты, интересуешь всех не меньше, чем твои «жутики». И так начнем: Расскажи, было ли что-либо интересное во время съемок фильма?<BR><IMG SRC="/images/articles_rus/2002.05/2792.jpg" ALT="Alex ad Dani" width="350" height="228" hspace="15" vspace="5" border="1" align="left"><BR> - Да, есть полно чего вспомнить! Очень смешные вещи происходили, когда кровища и кишки летали повсюду… я собираюсь снять документальный фильм, о том, как мы это делали… это будет очень прикольно. Каждый день возникают все новые и новые проблемы, когда ты снимаешь низко-бюджетный фильм. Я приходил на съемки намного раньше, и мы ВСЕ подготавливали заранее, но все равно, каждый день мы выходили из графика, уходили поздно и приходя домой, просто падали замертво… ВСЕ происходило дольше, чем планировалось. С траханьем и кровавыми сценами, было труднее всего. Это было как борьба за первенство и совершенство. Дерьмовая аппаратура все делала не так как нужно. Но к счастью никто не пострадал слишком сильно (нечаянно гвоздь в палец попал, ушибы, так или иначе ничего такого). Все это кажется очень смешным, когда сейчас вспоминаешь про это… но тогда, все время, все мы были под жутко большим стрессом!!! <BR> <BR> - Расскажи о команде, кто были остальные актеры, помимо великолепного Дани? <BR> <BR> - Ну… в первой истории, это наша милая Эмили Боффант, которуй мы открыли… она инграла в PERVIRELLA (ИЗВРАЩЕНКА). С тех пор она стала слегка звездой… представляющей 3 серии компьютерной игры, шоу, которое называется BITZ, оно идет по 4-му каналу (UK) телевидения, так же она снималась в фото сессиях журналов для парней, и еще у нее есть свой собственный успешный сайт www.bouff.tv. Она и Эйлен (RAZORBLADE SMILE) Дэйли, так же имела маленькую роль в первом клипе Cradle of Filth “FROM CRADLE TO ENSLAVE” . Играющая противоположную роль Эмили, это Мелисса Форти (я не правильно произнес ее имя в кредитах!), которая усеяна звездами парочкой заслуг ее родственников из Италии. Наш оператор открыл ее работая в ночном клубе Лондона! Следующая история особенна еще двумя девушками с которыми я уже работал раньше… это Ребека Иден, которая играла Демона Нэнни в Перверелле и которая редактор порно журнал (!!) для того чтоб прожить… и Эмма Райс, которая тоже была в “From cradle… “, в роли девушки вампира которая встала из ванны с кровью, та что выдирала зубы и та которая заманила Дани к его погибели!! <BR> Так же о парнях… Ну есть потрясающий Льюис Бронсел, который сыграл Ника в истории с ногой, с которым я познакомился через моего приятеля по спец эффектам… Он был у них «на всякий случай» в SAVING PRIVATE RYAN… И когда я сказал что мне нужен чел с ампутированной конечность для клипа “From Cradle…” меня познакомили с Льюисом и мы стали друзьями… и похожая история и с другими людьми «интересной формы». Старый тип которого сыграл Эл Стокс, который играл тощего демона у Aphex Twins в COME TO DADDY видео… А Вилли Еванс (БАНДИТЫ ВРЕМЕНИ), тот маленький парень в истории про интернет. Мне было приятно получить Стюарта Лэйна на главную роль в той же истории. Он конечно друг, но также и очень успешно восходящий актер. Я не думал что он захочет принимать в этом участие, но ему понравился сценарий. Так что это был удачный ход. Он играл одну из главных ролей в, недавно поимевшем успех, Британском фильме SOUTH WEST NINE. Мы так же были счастливы найти, через небольшую актерскую сессию, Дэвида МакЕвана (Кэмпер) и Эдмунда Дена (Детектив Нельсон), которые привносили профессиональный вклад в наши труды…. До тех пор, пока мы не перепачкали их в крови и кишках, и они не стали такими же детьми как и все мы. Мне действительно нужно работать с людьми, я люблю находиться рядом с приятными людьми которые так же хорошо относятся к окружающим их людям… я не люблю когда у кого-то присутствует эго. Я не люблю когда актеры обращаются с остальным персоналом как с дерьмом. Я хочу, чтоб все мои актеры и команда помогали друг другу, и в этой атмосфере я понял, что мы можем получить из кучи дерьма весьма хорошо сделанный фильм. <BR><BR> - Алекс, что вдохновило тебя на идею такого мрачного, кровавого фильма? <BR><IMG SRC="/images/articles_rus/2002.05/2795.jpg" ALT="Kemper" width="300" height="450" hspace="15" vspace="5" border="1" align="left"> <BR> - Я вырос любящим такие окровавлено кровавые фильмы. Моя мама отвела меня на фильм «Челюсти» (определенно это очень кроваво/ужасный фильм для 6-ти летнего ребенка), когда я был еще маленьким. Я купил кровавый постер. И вот с тех пор я был втянут в ужасно-кроваво-мясные фильмы. Мы пускали слюни по пиратским копиям «НЕЧТО» в 1982 г. и всем работам Люиса Фальци…. И такая больная совершенно тема как ПОСЛЕДНИЙ ДОМ СЛЕВА, КОШМАР В ПРОКЛЯТОМ РАЗУМЕ, и тд. И тп…. Сильная тема для 13-ти лет и всех моих приятелей! Я помню как мы с корешами прогуливали школу, сбегая домой, чтоб посмотреть DRILLER KILLER, покурить травки, и тогда же, в 82, мы все запали на ЗЛОВЕЩИХ МЕРТВЕЦОВ… этот фильм действительно изменил мою жизнь… с того дня, я стал мечтать смотреть свои фильмы через камеру. И делать кино. Я думаю, я использую окровавленность как Питер Джэксон в ПЛОХОМ ВКУСЕ, или МЁРТВЫЕ МОЗГИ… в основном это смешно и бьет по мозгам… но это не СЛИШКОМ сильно отвратительно. Я хочу, чтобы мои фильмы были коммерческими, такими же простыми и хорошими!!! <BR> <BR> - Твои планы на будущее. Еще один фильм? <BR> <BR> - Не просто ОДИН…КУЧУ!!! Я хочу сделать до фига фильмов… Хоррор, Триллер, Экшн, про науку и… УЖАСЫ!!! Это та работа, которую, я обожаю. В моей голове всегда есть идеи для фильмов… я всегда хочу создавать… так что я надеюсь и молюсь, чтоб моя карьера режиссера постановщика, будет продолжаться… Это как наркотик. И я втянут!!! Создавать фильмы, это все равно что дети строят замки из песка… мы создаем фантазии из ничего, из других миров, других жизней… в них наши мечты и эмоции… мы, создатели фильмов, как боги, другие боги которые любят кровь!!! <BR> <BR> - Слушай, тут многие спрашивают… видимо сильно запали, а будет ли «Колыбель Страха – 2»? <BR><BR> - Да… я бы хотел сделать еще одну часть, но первое что нам необходимо сей час, это финансирование. Я бы тогда хотел сделать этот фильмом для кинотеатра… Велико бюджетный такой фильм!!! У меня уже есть неплохие идеи, чтобы продолжить эту историю. Это будет еще более чекнутое, сраное, сумасшедшее дерьмо!!! <BR><BR> - А, будешь ли ты работать снова над клипами для CoF? <BR><BR> - Да, я надеюсь, так и будет… Они там сей час все заняты, пишут треки для нового альбома, первого на Sony, на новом лэйбле. Я уже послушал некоторые демки… мелодии звучали просто офигенно потрясающе! Я и Дани уже говорили о неопределенных идеях для клипа… Я бы страшно хотел сделать еще один… такой призрачный, как HER GHOST IN THE FOG… очень готический и мрачный и… до усрачки, чтоб было много насилия, извращений! Чтоб в конце концов он стал ЗАПРЕЩЕННЫМ!!! <BR><BR> - Круто! Еще вопрос, Алекс, а ты работаешь с какими-либо еще другими группами кроме Cradle of Filth? <BR><BR> - Я бы работал, если бы мне понравилась музыка, концепция и бюджет!!! Я готов сделать ЧТО-НИБУДЬ в принципе… кое в чем мы и на маленьком бюджете можем быть достаточно эксперементальны. Так что я могу делать клипы для ЛЮБЫХ групп. Кроме говнючих груп «сопливых мальчиков», или говнючей попсы!!! Это должен быть РОК! <BR><BR> - Расскажи о себе. Где и когда ты родился? <BR><BR> - Мне 33. Я родился 3-го Ноября 1968 года. Мое полное имя Алексис, но мне больше нравиться Алекс. Родился, вырос и продолжаю жить на Севере Лондона, в Англии. Нормальное доброе детство… ни каких травм, ни каких ритуальных насильств над ребенком, ничего такого, что могло бы указать на нездоровое содержание, что на поверхности моих фильмов. Так что у меня такое предположение, это наш злой мир отражается в моем рассудке… <BR><BR> - Кроме фильмов у тебя есть еще другие хобби? <BR><BR> - Чтоб быть честным… все мои хобби, что были у меня и, что я делал на протяжении 2-х лет… это создание фильмов, быть соавтором в создании клипов, роликов забрало ВСЮ мое время. Так что от моей социальной жизни ничего не осталось. Я не привык много выходить. Я не был на праздниках… У меня нет времени писать или рисовать, а я люблю рисовать.. и еще много всего… После того как я покинул художественный колледж, я работал в отделе искуств, моделированием построек, всего прочего, так я зарабатывал деньги. Все работы были очень большого бюджета, так что у меня был шанс видеть то, как кинопризводство ежемесячно выкидывает кучу денег просто коту под хвост. Я привык воровать декорации из тех работ, над которыми мы тогда работали, чтоб использовать их потом в своих фильмах. Я обожаю материал из отдела искуств! Я делал те деревья в HER GHOST IN THE FOG! <BR><IMG SRC="/images/articles_rus/2002.05/2794.jpg" ALT="Mel" width="344" height="242" hspace="15" vspace="5" border="1" align="left"><BR> - А какую музыку ты слушаешь? <BR><BR> - Так же точно как и мои вкусы в кино, мои вкусы в музыке разделяют много разных жанров… drums ‘n’ bass, техно, метал, рок 60-х, кислотное всякое и т.д. и т.п. Много всего различного. Я обожаю почти все из Cradle Of Filth с периода “From the cradle…” особенно такие изменчивые инструменталы, а новый материал должен быть даже еще лучше. Я вовлечен во всю тяжелую музыку, будь это метал, панк, индастриал, drums ‘n’ bass, рок или кислотное техно. Я люблю метал если он крут, имеет ритм и крутые переходы, я не так зациклен на ультро –быстром – трэш – нойзе. Но я люблю тяжелую форму из большинства типов музыки. Я хочу делать больше крутых клипов для Cradle of Filth, мы можем разрушить на хрен, весь этот говенный мир, нашим сумасшедшим, траханым видео! Я ХОЧУ УЙТИ UBER-MENTAL!!! <BR><BR> - Какие книги ты читаешь? Ведь ты читаешь? <BR><BR> - Не достаточно!!! Мне нравится большинство книг Яна Банкса, (прочти его THE WASP FACTORY.... сразу становится страшно !!)... Я обожаю Alex Garland's THE BEACH ( но ненавижу говняный фильм). Я вырос на James Herbert (THE RATS, THE FOG, LAIR) и страшные книги Стивена Кинга. Я люблю Hunter Davis' FEAR AND LOATHING IN LAS VEGAS... но, опять таки, мне не нравиться фильм... Я бы хотел читать больше... но мое время кажется заполнено на все дни.... Мне нужен перерыв!! <BR><BR> - Ок! Я думаю что этого достаточно. Спасибо тебе большое, Алекс за интересную беседу! <BR><BR> - Спасибо тебе, Succubus Meg... И спасибо вам Россия... я желаю чтобы наш фильм стал более легко доступным у вас там!!! Пожалуйста зайдите сюда WWW.CRADLEOFFEAR.COM для информации и может вы купите кино. И последнее... Dani говорит мне, что CRADLE OF FILTH приедут в Россию, в конце этого года... так, что может быть, я увижу вас чекнутых-сумасшедших-трахнутых-великих-русских там!!! ДА ЗДРАВСТВУЕТ НОВАЯ ПЛОТЬ!!! SLAVO!! VODKA!! <BR><BR> <BR><BR> 22 Апреля, 2002. Марго Лосева ака Succubus Meg. <BR><BR></p>
+
+Автор: Nybras
+
+### 28.05.2002 news German Media Control Chart ...
+
+<p>Вот так представлены хард-рок/метал в German Media Control (Top 100) chart по состоянию за прошедшую неделю: <BR><BR> 04. BОHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 06.06.2002 articles Dani&#39;s Inferno
+
+<p><B>И так, для тех, кто не знает, кто, так сказать, не осведомлен, о том, что этот Мракобес, Антихрист во плоти, Демон разврата и похоти, Dani Filth занимается... Журналистикой! А вы что подумали? Свеживанием дергающихся трупов вчерашних девственниц? Или еще круче, принимает души с их кровью? Как не стыдно: Вот и представьте себе, что Дани иногда гуляет отдельно от своего демона и просто любит побыть нормальным таким, приколистом и придурком... У него есть собственная колонка в самом наипопулярнейшем металюжном журнале Metal Hammer. Походу пишет он в ней, все, что приходит в его, мраком убитую голову. И называется сие Dani's Inferno, что переводится как Ад. Преисподняя, ну или Инфернальные миры для тех кто продвинут в сфере всяких астральных дел.<BR> <BR> И вот, я - Succubus Filth - намерена освещать всевозможные творения моего "утерянного по ту сторону братца" Дани, и с привеликим удовольствием, раз в неделю, буду постить сюда все Инферны. Надеюсь вам понравиться и вы ухохочитесь в дрысть.<BR> И так: Добро пожаловать в сегодняшний Ад, Инфернальные миры Дани:</B><BR> <BR> <BR> <I><B>Во имя Сатанинской участи...</B></I><BR> <br> Глава вторая - кошка посреди волчьего логова. <BR><BR> Мои приветствия с предсмертно-молитвенного ложа, <BR><BR> В обычном состоянии я бы оценил бурные аплодисменты, которые сопутствуют заявлениям такого рода, но сегодня моя голова чувствует себя как один из тех японских бумажных фонарей, и она примерно так же стабильна, как ядерный реактор в Чернобыле в последние секунды перед расплавлением. Короче говоря, я, очевидно, неизлечимо болен, так что уважьте пожалуйста желание умирающего - потерпите меня, потому что предстоящие заметки скалисты и полны опасностей и, согласно моей "Книге Пингвина о Серьезных Болезнях", я страдаю от чрезмерного испражнения словесного кала - только я не только изрекаю дерьмо, но и поставляю его небутилированным. <BR><BR> <IMG SRC="/images/articles_rus/2002.06/2851.jpeg" ALT="Dani Filth" width=300 height=500 hspace="15" vspace="5" border="1" align="RIGHT"> Классическое приключение этого месяца в Чандерлендe произошло из-за того, что обычно является полной анафемой для священных страниц "Metal Hammer"- музыкальных награждений "Kerrang!". Изничножитель запретов, (все из-за того, что Music For Nations любезно получили приглашения для Его Преосвященства Ублюдка Николаса и для меня самого на этот вечер), я решил, что для меня было бы идеальной возможностью проделать немного разнюхательской журналистики, неимоверно напиться и подоставать так много моей потенциальной ровни, как только возможно. <BR><BR> Ладно, двое из трех все еще делают вечер интересным... Я никогда не был по-настоящему журналистом, так что я позаимствовал несколько вступительных фишек у гуру флеймогонных ревью Дэна Силвера, прибавляя слово 'Filth' к его погонялу для пущего эффекта. Dan 'Silver' Filth. Звучит хорошо - очень метально, и мертвецки изысканно так. <BR><BR> Я вывел свой диктофон из вечно полудохлого состояния (то есть я запихал туда какие-то батарейки) и, как долговязый паук, понесся с намерением поймать в ловушку любую знаменитость из тех, кто очутится в моих любопытствующих объятиях. И будь вы хоть Адамом и Евой, это чертовски хорошо сработало. <BR><BR> Несмотря на все тот же самый дерьмовый вопрос - "Могу ли я спросить, что Вы думали о сегодняшних награждениях "Kerrang!" ?" - я имел краткие, но красноречивые базары с множеством экзотических звезд, большинство которых и не подозревало о том, кто я на самом деле - как, скажем, Chaos Lord Thule, Progenitor и Archdeacon из "Fear to Hell", и вся эта неустанная мелкая сошка. <BR><BR> Среди тех, кто стоит испускаемых по их поводу воплей, были вожделенная королева "третьей страницы" Jo Guest. (ее "это было действительно мило" не особенно отдает многословием, но как однажды заметил некто остроумный, "кто-то желает трахать бомбардира Гаскойна?"), Джо Эллиотт (в комплекте с новым ужасающим париком), Джулия Валет (я смог быть жестоким и спросил ее относительно музыки), Lemmy, LG Petrov (кто нянчил свое похмелье в начале вечера), Джонатан Дэвис, Брюс Дикинсон, и т.д.. <BR><BR> Бывшей владычице "Big Breakfast" Zoe Ball, очевидно, все было в кайф; судя по ее комментариям, она чувствовала себя "раскованной". Кое-что, надо признать, она подправляла довольно быстро, благослови ее сердце... Хотя вам стоило бы оказаться свидетелями выжидательного восторга, осенявшего ангельское личико нашего барабанщика в течение нескольких волшебных моментов. <BR><BR> Я не стал бы наскучивать вам до фригидности собственно итогами награждений, но награды загребала обычная кодла: Jon "жопястый халявщик" Bon Jovi, Marilyn Manson, "The Prodigy" и другие. Хотя некоторые из бОльших имен не выбирали их персонально, они прерывали свои празднества, дабы осчастливить нас короткой речью у видео-стены (возможно вот почему там было очень немного дополнительно приглашенных вроде меня). <BR><BR> Откровенно говоря, я саркастичен, хотя ни в коем случае это не значит, что я делаю попытку за глаза насрать на "Kerrang!" Или вообще на всю церемонию награждения... По большей части, это было неимоверно престижное мероприятие. Атмосфера была эклектична. Жрачка, а в особенности выпивка, были в изобилии, а главное, все прибыли для приятного времяпрепровождения, что является основной причиной того, что все мы в этой "честной игре", индустрии, прессе и похожих групппах (хотя, вы могли бы поспорить, просто в деньгах и всем таком прочем). <BR><BR> Я бы мог предположить, что все хорошо, что хорошо кончается, но это кажется слегка ироничным, что если бы я не смешивал свое бухло, словно белену с рутой, в течение добрых 11-ти часов той ночью, я вполне мог бы ощущать себя сегодня человеком. Так что перед тем, как я отправлюсь разглядывать какие-нибудь свеженькие гадости, что природа выбьет из моих внутренностей (через рот, конечно), я подведу итог двумя нижеследующими моментами,представляющими интерес. <BR><BR> Во-первых - ранне-утренний отель "Колумбия", Гайд-парк, Генри из pist.on (наши застольные компаньоны для шоу) дает взбучку Рики Уорвику за то, что тот сказал ему убавить шум в столь поздний час... (ну, я думал, что это было забавно). И во-вторых... <BR><BR> Кто-нибудь помнит препирательства между "Cradle of Filth" и группой, формально известной как "Manhole"? Нет никакого смысла воскрешать это в памяти - достаточно сказать, что Nasty Spice Tairrie B была одной из моих целей для опроса. И вместо пробежки в позе ротвейлера на "Red Bull", в ожидании которой я и явился, я обнаружил, что она мила и очаровательна. Вслед за этим, мы уладили все противоречия, поцеловались и помирились (простите, мистер Белл, язык мой - враг мой). <BR><BR> Так или иначе, все теперь хорошо, так что видимо настало время перестать быть таким пугающе милым и завести несколько новых врагов ... (помимо моей печени - в этот самый момент я действительно должен улучшить взаимоотношения с этой частью моего тела). <BR><BR> Пока, до следующего раза, когда мы поплаваем на пакостных руинах посудины под названием "Psychobabble" (Шизобиблия). <BR><BR> <BR> Ваш злодей, <BR> Dani. <BR><BR>Перевод <A HREF="http://succubus.galactic.ru/" target="w2">Margo Succubus Filth</A> <BR> <DIV ALIGN="RIGHT"><SPAN CLASS="path">печатается с разрешения автора</SPAN></DIV></p>
+
+Автор: Nybras
+
+### 15.06.2002 articles Dani&#39;s Inferno  #2
+
+<p><B>О Господи, муравьи! Они огромны! Это...</B> <br><br> <br> <I>Глава Восьмая - Очищаясь Нечистью</I> <br><br> Ночь холодна, темна и корыстна; луна висит в покрытом тучами небе, как гнилой ломоть сыра. Ветер бросает скрюченные, извитые ветви деревьев в безумие, их скелетовидные пальцы скрежещут о ваши окна, словно погребенный заживо некрофил, царапающийся в неприступную крышку гроба своей любовницы. <br><br> Вы выворашиваете открытый огонь из углей, посылая вспышку мерцающих эльфов, несущихся вверх в узкий дымоход и далее восвояси в потустороннюю тьму; их быстро исчезающие следы присутствия по пути к каким-нибудь ужасам, которые повсюду в сегодняшний вечер... в этот Канун Мертвых Душ вы одни дома. Вы боитесь, что эти невидимые кошмары, что крадутся по границам ваших самых низменных снов, скоро познакомятся с вашей плотью с изнанки.<IMG SRC="/images/articles_rus/2002.06/2873.jpeg" ALT="Dani" width=256 height=399 hspace="15" vspace="5" border="1" align="left"> <br><br> Отчаянно стараясь, чтобы ваше воображение не сорвалось со своей привязи, вы пытаетесь обнаружить хоть шепот интереса в последнем номере "Metal Hammer", пролистываясь сквозь его сморщенные страницы (результат двоюродной даты с владычицей Val Ium), тщетно надеясь, что еще одно интервью с Дэйвом Мастейном сможет стремительно доставить вас в забвенность сна. Но увы: похоже, даже мистер Мандэйн (модный) убыстряет ваш пульс в сегодняшнюю ночь - настолько сильно, что вы швыряете его изображение на пол (пожалуйста... здесь подразумевается драматичность), тихо проклиная восстановительный центр Элизабет Тэйлор как причину развала его некогда великой группы...<br><br> Странно, в общем-то, что пока ваши глаза пробегают по словам "Dani's Inferno", что читаются как иероглифы, начерченные спастической рукой фараона, всему этому слишком знакомому зловонию предстоит захлестнуть остатки ваших ощущений до того, как... СЛИШКОМ ПОЗДНО! Вы осознаете, к вашему ужасу, что в любимой гостевой колонке "Metal Hammer" (только между нами; к несчастью, я не являюсь позершей с парой больших сисек), вы непроизвольно обосрались. <br><br> Теперь, словно в издевательском порыве, стихии возобновили свое страшное лязганье, нездоровая луна начинает выть на своей оси, в то время как кровавые таинственные символы появляются на стенах и окнах... И когда последняя свеча испускает дух и погружает вас в поток черной Тьмы, ваш последний след сознания выкрикивает, все выше и выше, как тонкая красная серия ударов ножа мясника, гортанные слова: "Гребаная восьмая колонка, и это по-прежнему куча старых задницссссссс!.." <br><br> Я должен извиниться за длину предисловия, но мне действительно нравится большое вступление (и, более или менее часто, ремесленничество), так что сейчас мне бы лучше закончить это настолько безболезненно, насколько только возможно, если я собираюсь ухватить хоть последние заказы. Правильно, вот вы уже тут приперлись, безжалостные ублюдки...<br><br> Поскольку событие впоследствии изгадило все, кроме моей поруганной гордости, мой достопочтенный советчик (преподобный Rudus Priest) убедил меня своей почти что фанатичной верой в Господа, исповедаться в фактах (и не отмазываться мелко) касаемо прошлогодней вечеринки Venom в Лондоне. Те безмозглые среди вас, обдолбанные клеем и ганжой, могут вспомнить историю, имеющую отношение к автокатастрофе и пострадавшим от нее Ублюдку Николасу и мне лично, когда мы возвращались домой на машине по темной и узкой проселочной дороге. <br><br> Это правда, что полиция тащила нас под конвоем в Колчестерскую больницу, где Ника врачевали по поводу разбития яйца (пардон, я имел в виду головы), а меня кололи от сотрясения мозга. Однако, факты просят несколько другого объяснения причин наших увечий. <br><br> Грязевые часы передают... <br><br> Тем вечером мы прибыли в клуб Venom в Сохо вместе с американским драм-техником группы и моей девушкой Toni. Как вам скажет любая деревенщина, если кто-то приглашает вас на Большое Пыханье в ночь халявного бухла и металла - дело пошло! И вы неизменно оказываетесь буйными и в жопу пьяными одновременно, что (только пять предыдущих недель мы были привязаны, как калеки, к альбомным репетициям) мы и осуществили с практически фатальным знанием дела. Здесь по сценарию Ублюдок Николас, хлопающий свою 12-ю текилу и слегка потерявший координацию, с силой обрушивающий стакан на свою руку - на которой он разлетелся вдребезги, раскроив три его пальца, заливая кровью все повсюду (кульминация вечеринки, скажу я вам).<br><br> <IMG SRC="/images/articles_rus/2002.06/2872.JPG" ALT="Dani" width=300 height=352 hspace="15" vspace="5" border="1" align="right"> Тут вышибала тащит его в ночной магазинчик по соседству с намерением перевязать ему руку, перед тем как вызвать скорую. Однако поскольку американцы - такие милые крикуны (а уж тем более после трех пинт водки), наш драм-техник ковыляет за ними и поносит шестифутового вышибалу за вышвыривание Николаса вон с непременным избиением. <br><br> К счастью, после отдаления наших отношений от грани развода (публично поспорив, кто насколько был пьян), мы с моей девушкой ковыляем наружу и умудряемся спасти ситуацию до того, как она доходит до ручки, обещая доставить Ника в больницу настолько же быстро, насколько мы покинули Лондон. <br><br> Бухие всерх всякой меры и по-детски разочарованные тусклостью того, что обещало быть столь классным, мы брели, покачиваясь, сквозь толчею ночных гуляк, пока в пяти минутах от дороги и меньше чем в двух бомжах до подземки на голову Николаса не обрушилось бутылкой "Гролша" несчастье.<br><br> Возьмите в жопу пьяного кекса вместе с шайкой настолько же окосевших парней, унижительный комментарий, обмен словами с посыланиями и бессмыслицей в точке наивысшего накала: вы получите драку в одни ворота, результат которой - храброе, но, к несчастью, ужасное и кровавое поражение. <br><br> Мы передислоцируемся дальше по Чэринг Кросс вместе с моей девушкой, которая, к счастью, продолжала блаженно идти, ничего не сознавая и втолковывая Нику, что где-то в середине драмы стеклянная бутылка была разбита о его голову. Следовательно, кровоструйные эффекты Ценобайта из "Нellraiser"... (ваши варианты ответа, пожалуйста, шлите почтой по...) <br><br> Итак, чтобы сократить длинную историю, это было чудо бога Rudus Priest - то, как у нас получилось добраться из центра Лондона в Колчестерскую больницу, не доведя Николаса до смертельного кровоиспускания; хотя, с другой стороны, на полу вагона оказалось достаточно крови для того, чтобы мне на ней поскользнуться, и поставить синяк себе еще и под другой глаз. <br><br> Затем Тони заставила водителя прорваться сквозь несколько остановок, так что мы могли упечь наш полицейский эскорт в больницу еще до того, как Ник истек бы кровью. <br><br> Я надеюсь, люди простят нам наши прегрешения из уважения к нашей маленькой белой лжи, но правда была сокрыта из гордости... со всей эффектностью, скоростная машина разбивается сама по себе, чтобы стать куда более чем достаточно, метальной, для надирания ваших пиписек.<br><br> <br> Пока, до моей следующей месячной поллюции, <br> <B><I>Dani.</I></B> <br><br> Перевод <A HREF="http://succubus.galactic.ru/" target="w2">Margo Succubus Filth</A> <BR> <DIV ALIGN="center"><SPAN CLASS="path">печатается с разрешения автора</SPAN></DIV></p>
+
+Автор: Nybras
+
+### 25.08.2002 news Новости от CRADLE OF FILTH
+
+<p>После шести совместных лет музыкальной деятельности гитарист CRADLE OF FILTH Gian Pyres покидает команду по причине острой нехватки врмени на личную жизнь. <BR> Тем временем, группа готовится к записи своего первого альбома для Epic Records "Damnation And A Day". Выход альбома планируется в феврале 2003 года, предварительно, в январе выйдет сингл к альбому. <BR> Также, CRADLE OF FILTH готовят к выпуску двойной концертный альбом "Live Bait For The Dead", выпуск которого берет на себя Snapper Records.</p>
+
+Автор: Dimas
+
+### 19.12.2002 news Дани совершает паломничество?
+
+<p><IMG SRC="/images/news_rus/2002.12/3525.jpg" ALT="Dani" width=190 height=257 hspace="15" vspace="5" border="1" align="right"> Случившиеся на кануне долгожданных концертов, проблемы с животом, кажется, странным образом повлияли на мировоззрение Дани Филта.<br> А именно: 10 декабря, у Дани случился страшный приступ. По словам Алекса Чандона это выглядело следующим образом: «Я думаю – говорит Алекс – что половина его кишек просто взорвалась… это все из-за стресса… Дани много нервничал последние месяцы… Все эти промедления с выходом нового альбома. Он так много возлагал надежд на эти концерты - и на тебе дерьмо!!!» <br> Так или иначе, Дани дома, в постели, и чувствует себя намного лучше. По словам того же Алекса, на этой неделе Дани отправляется в заслуженный отпуск, в Индию. Вместе со своей вечной спутницей жизни Тони… На все рождественские праздники!<br> Вам не кажется это весьма странным, когда пробитый чернушник едет отдыхать в Индию, чтоб отметить там Рождество Христово? ,)<br> Благодарю за внимание.<br><br> <I>Margo Succubus Filth</I></p>
+
+Автор: Nybras
+
+### 09.01.2003 news Грядет новый альбом CRADLE OF FILTH
+
+<p>Установлена точная дата европейского релиза нового альбома британской группы CRADLE OF FILTH под названием "Damnation And A Day" - 10 марта 2003 года.</p>
+
+Автор: Dimas
+
+### 22.01.2003 news Проклятие и День...
+
+<p>"CRADLE OF FILTH" опубликовали трек-лист своего нового CD "Damnation And A Day" который должен выйти в Европе 10 марта на Sony Music: <BR><BR> <IMG SRC="/images/news_rus/2003.01/3700.gif" ALT="pho" width=150 height=150 hspace="15" vspace="5" border="1" align="right"> 01. A Bruise Upon The Silent Moon<BR> 02. The Promise Of Fever<BR> 03. Hurt And Virtue<BR> 04. An Enemy Led The Tempest<BR> 05. Damned In Any Language ( A Plague On Words)<BR> 06. Better To Reign In Hell<BR> 07. Serpent Tongue<BR> 08. Carrion<BR> 09. The Mordant Liquor Of Tears<BR> 10. Presents From The Poison-Hearted<BR> 11. Doberman Pharaoh<BR> 12. Babalon A.D. (So Glad For The Madness)<BR> 13. A Scarlet Witch Lit The Season<BR> 14. Mannequin<BR> 15. Thank God For The Suffering<BR> 16. The Smoke Of Her Burning<BR> 17. End Of Daze<BR><BR> Альбом продюссировали Doug Cook и Scrap 60 Productions (работали с ANTHRAX, 36 CRAZYFISTS, DRY KILL LOGIC). В записи участвовали симфонический оркестр из 40 человек и хор из Будапешта. Первый сингл - "Babalon AD (So Glad For The Madness)" запланирован к выходу 24 февраля. Видео к нему снимал Wiz (работавший с MARILYN MANSON).</p>
+
+Автор: Yermola
+
+### 22.01.2003 news CRADLE OF FILTH Unveil &#39;Damnation And A Day&#39; Track Listing, Cover Art ...
+
+<p>CRADLE OF FILTH have finalized the track listing for their forthcoming CD, "Damnation And A Day", due in Europe on March 10 via Sony Music. <BR><BR> "Damnation And A Day" will contain the following songs:<BR><BR> <IMG SRC="/images/news/2003.01/3701.gif" ALT="pho" width=150 height=150 hspace="15" vspace="5" border="1" align="right"> 01. A Bruise Upon The Silent Moon<BR> 02. The Promise Of Fever<BR> 03. Hurt And Virtue<BR> 04. An Enemy Led The Tempest<BR> 05. Damned In Any Language ( A Plague On Words)<BR> 06. Better To Reign In Hell<BR> 07. Serpent Tongue<BR> 08. Carrion<BR> 09. The Mordant Liquor Of Tears<BR> 10. Presents From The Poison-Hearted<BR> 11. Doberman Pharaoh<BR> 12. Babalon A.D. (So Glad For The Madness)<BR> 13. A Scarlet Witch Lit The Season<BR> 14. Mannequin<BR> 15. Thank God For The Suffering<BR> 16. The Smoke Of Her Burning<BR> 17. End Of Daze<BR><BR> As previously reported, the CD, which was co-produced by Doug Cook and mixed by Scrap 60 Productions (ANTHRAX, 36 CRAZYFISTS, DRY KILL LOGIC), features a 40-piece orchestra and a 32-piece choir from Budapest, Hungary. The first single off the album, "Babalon AD (So Glad For The Madness)" , is scheduled for release on Feb. 24. The video for "Babalon AD (So Glad For The Madness)" was directed by Wiz (MARILYN MANSON) and filmed in a derelict Jesuit seminary. Images within the video pay homage to "120 Days of Sodom" by the infamous Marquis De Sade, and much of the original footage has been cut to allow the video to be shown in the U.K. <BR><BR> CRADLE OF FILTH are set to hit the road in Europe beginning March 23 in Lyon, France and running through April 23 in Norwich, England. North American dates will follow.</p>
+
+Автор: Yermola
+
+### 06.04.2003 reviews Правосудие от рождения
+
+<p>Три года томительного ожидания и результатом долгой и кропотливой работы стал седьмой полнометражный альбом группы содержащий только новый материал. Можно сказать только одно: Грандиозно! Концептуальный альбом из семнадцати трэков в четырех частях, целых семьдесят семь минут звучания, издающий лэйбл - Sony Music, в записи альбома задействован венгерский оркестр из 40 музыкантов и венгерский же хор из 32 персон, мрачнейшая атмосфера (мрачнее, чем когда-либо и у кого-либо), вампирический дух и ненасытная мелодика. Несмотря на подписание под мажорный лэйбл, группа не изменила своему стилю и традициям, продолжая делать давно начатое дело. Разрушительной силы оркестровый horror black metal с сырым звуком, зловещими риффами, двойным бас-драмом, бласт-битами, сатанинской символикой и прочими атрибутами экстремального black metal, плюс возвышенная театральная помпезность. Бесспорно, этот альбом - самая грандиозная и масштабная работа группы в ее музыкальной карьере, вот только лучшей ее назвать, язык не поворачивается. Альбом умело нагнетает атмосферу, он полон животной ярости, все музыканты потрудились на славу, ну а про вокальную работу вообще можно говорить часами. Также, впрочем, как и про весь альбом, который я пренепременно советую прослушать от начала до конца и не один раз, чтобы понять весь масштаб и глобальность работы проделанной музыкантами.</p>
+
+Автор: Dimas
+
+### 22.09.2003 news DANI из CRADLE OF FILTH озвучил роль в мультфильме
+
+Фронтмэн <B>CRADLE OF FILTH Dani Filth</B> озвучил ведущего героя в мультфильме "<B>Dominator</B>". В фильме также используется песня "<B>Carion</B>"&nbsp;с последнего альбома <B>COF</B>. На <B>DVD</B> с этим фильмом войдёт специальное интервью с <B>Dani</B>.
+Автор: Vit Belov
+
+### 19.11.2003 news Type&#39;O&#39;Negative, Cradle Of Filth and Moonspell in North America
+
+11/13 Albany, NY (no Type O Negative)<BR>11/14 Worcester, MA <BR>11/15 Asbury Park, NJ <BR>11/17 Columbus, OH <BR>11/18 Grand Rapids, MI <BR>11/20 Milwaukee, WI <BR>11/21 Cleveland, OH <BR>11/22 Chicago, IL <BR>11/24 Minneapolis, MN <BR>11/25 St. Louis, MO <BR>11/26 Oklahoma City, OK <BR>11/28 Ft. Worth, TX <BR>11/29 San Antonio, TX <BR>12/01 Phoenix, AZ <BR>12/02 Los Angeles, CA <BR>12/03 Las Vegas, NV <BR>12/05 San Francisco, CA <BR>12/06 Portland, OR <BR>12/07 Seattle, WA <BR>12/09 Colorado Springs, CO <BR>12/11 Des Moines, IA <BR>12/12 Detroit, MI <BR>12/13 Pittsburgh, PA <BR>12/15 Washington DC <BR>12/16 Philadelphia, PA <BR>12/17 Hartford, CT (no Type O Negative)<BR>12/18 Montreal, QUE (no Type O Negative)
+Автор: Vit Belov
+
+### 24.12.2003 news CRADLE OF FILTH на Roadrunner Records
+
+Британские музыканты из <B>CRADLE OF FILTH</B> подписали новое соглашение на выпуск нового альбома с <B>Roadrunner Records</B>. Уже готов материал для него и рабочее название "<B>Nymphetamine</B>". Его запись начнется в январе, а дата релиза назначена на июнь 2004 года. Предварительный трэк-лист альбома:</P>
+<P>1. <B>Medusa And Hemlock</B><BR>2. <B>Nemesis</B><BR>3. <B>Prey</B><BR>4. <B>Gilded Cunt</B><BR>5. <B>Absinthe With Faust</B><BR>6. <B>Painting Flowers White Never Suited My Palette</B> <BR>7. <B>Coffin Fodder</B><BR>8. <B>Filthy Little Secret</B><BR>9. <B>Gabrielle</B> <BR>10. <B>Swansong For A Raven</B>
+Автор: Dimas
+
+### 06.07.2004 news Новый альбом CRADLE OF FILTH
+
+<P>Новый альбом <B>CRADLE OF FILTH</B> <B>"Nymphetamine" </B>выйдет 13 сентября на <B>Roadrunner</B>. Продюсером альбома выступил гитарист <B>ANTHRAX</B> <B>Rob Caggiano,</B> а микшировал пластинку <B>Colin Richardson</B> (<B>FEAR FACTORY</B>, <B>MACHINE HEAD</B>, <B>NAPALM DEATH</B>).&nbsp;</P>
+Автор: Vit Belov
+
+### 09.07.2004 news Liv Kristine споёт на новом альбоме CRADLE OF FILTH
+
+<P>Гостевые партии женского вокала на новом альбоме <B>CRADLE OF FILTH</B> <B>"Nymphetamine" </B>исполнит <B>Liv Kristine Espenaes Krull (ex-THEATRE OF TRAGEDY, LEAVES' EYES)</B>.</P>
+Автор: Vit Belov
+
+### 17.07.2004 news Новый альбом CRADLE OF FILTH
+
+<P>Стали известны все подробности о новом альбоме CRADLE OF FILTH <B>"Nymphetamine"</B>, выходящем в конце сентября на RoadRunner. Спродюсировал альбом гитарист ANTHRAX <B>Rob Caggiano, </B>а смикшировал <B>Colin Richardson</B> (<B>FEAR FACTORY</B>, <B>MACHINE HEAD</B>, <B>NAPALM DEATH</B>). Трэк-лист:</P>
+<P><IMG height=342 alt="" hspace=0 src="/images/news_rus/2004.07/6753.jpg" width=342 align="right" border=5>01. <B>Satyriasis</B> (Intro)<BR>02. <B>Gilded Cunt</B><BR>03. <B>Nemesis</B><BR>04. <B>Gabrielle</B><BR>05. <B>Absinthe with Faust</B><BR>06. <B>Nymphetamine (Overdose)</B> (feat. <B>Liv Kristine</B>)<BR>07. <B>Painting Flowers White Never Suited My Palette</B> (Instrumental)<BR>08. <B>Medusa and Hemlock</B> <BR>09. <B>Coffin Fodder</B> <BR>10. <B>English Fire</B> <BR>11. <B>Filthy Little Secret</B> <BR>12. <B>Swanson For A Raven</B> <BR>13. <B>Mother of Abominations</B><BR></P>
+Автор: Vit Belov
+
+### 17.08.2004 news CRADLE OF FILTH сняли клип на заглавную песню альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CRADLE OF FILTH</STRONG> сняли клип на песню <STRONG>"Nymphetamine" </STRONG>с одноимённого нового альбома. Интересно, что наряду с двумя актрисами в клипе снялась <STRONG>Liv Kristine</STRONG> [<B>LEAVES' EYES</B>, ex-<B>THEATRE OF TRAGEDY</B>]. Надеюсь, её там не оголили до неприличия:)))</FONT></P>
+Автор: Vit Belov
+
+### 21.09.2004 news Фабрика отказалась печатать майки CRADLE OF FILTH
+
+<P><STRONG><IMG height=380 alt="" hspace=0 src="/images/news_rus/2004.09/7163.jpg" width=240 align=right border=5>TOT Shirts Ltd. </STRONG>- так называется завод, который отказался напечатать майки<STRONG> CRADLE OF FILTH</STRONG>. Присмотритесь, там что-то происходит.</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 17.01.2005 news CRADLE OF FILTH выпускают лимитированную версию &#39;Nymphetamine&#39;
+
+<P><STRONG>CRADLE OF FILTH</STRONG> выпустят лимитированную версию '<STRONG>Nymphetamine</STRONG>' в марте на <STRONG>RoadRunner</STRONG>. На 2 диска войдёт сам альбом, видео-клип с участием <STRONG>Liv Kristine</STRONG>, 2 новых песни, 2 нереализованных песни, плюс кавера <STRONG>Ozzy 'Mr. Crowley'</STRONG>, <STRONG>BATHORY 'Bestial Lust'</STRONG>, <STRONG>Cliff Richard 'Devil Woman'</STRONG> (в записи принял участие <STRONG>King Diamond</STRONG>).</P>
+Автор: Vit Belov
+
+### 25.01.2005 news Dave Pybus покинул CRADLE OF FILTH
+
+<P>Басист <STRONG>Dave Pybus</STRONG> покинул <STRONG>CRADLE OF FILTH</STRONG> по личным причинам. Группа ищет замену.</P>
+Автор: Vit Belov
+
+### 25.01.2005 news Dave Pybus has left CRADLE OF FILTH
+
+<P>Basist <STRONG>Dave Pybus</STRONG> has left <STRONG>CRADLE OF FILTH</STRONG> for personal reasons. The band are looking for replacement.</P>
+Автор: Vit Belov
+
+### 17.03.2005 articles Adrian Erlandsson (CRADLE OF FILTH, ex-AT THE GATES): &quot;Re-union AT THE GATES состоится&quot;.
+
+<P><IMG height=300 alt="" hspace=0 src="/images/articles_rus/2005.03/8139.jpg" width=400 align=left border=5>В своём недавнем интервью Tartarean Desire барабанщик Adrian Erlandsson из CRADLE OF FILTH рассказал о новом басисте коллектива, о своём европейском турне, а также о возможном re-union AT THE GATES.</P>
+<P>О re-union AT THE GATES<BR>Adrian: «Раньше это было, вообще, невозможно. Я живу в Англии, и вот недавно здесь выступали THE HAUNTED и NIGHTRAGE играли вместе с ARCH ENEMY. Я встретился и с Tompa (Tomas Lindberg), и с близнецами (Anders и Jonas Bjorler), и мы решили, что мы объединимся на несколько концертов в ближайшем будущем, когда все смогут выкроить время».</P>
+<P>Об Ozzfest 2003<BR>Adrian: «Хммм, это туровый фестиваль… Это означает, что в это время нет никаких саундчеков. Просто выходишь на сцену и играешь. Мы выступали в три часа по полудню. Стояла ужасная жара. Но несомненным плюсом стало приобретение нами новых фэнов в США. С другой стороны, не так много народа смотрят на тебя в середине дня. В любом случае, я не хотел бы повторить подобное. Довольно тяжело не быть дома 10 недель».</P>
+<P>О переменах в составе CRADLE OF FILTH<BR>Adrian: «Мне не нравятся перемены в составе. Dave Pybus, наш басист, должен был бы остаться, но ему надоело ездить в тур. Он говорил, что уходит на некоторое время, но если он не справляется с турами, он не сможет быть в группе. У Cradle было множество смен состава, каждый раз это происходило из-за того, что люди были не готовы посвятить группе всё своё время. Я думаю, Ozzfest как раз и надломил Dave, но ему потребовался год, чтобы понять, что его энергия кончилась. Мы провели 24 недели вдали от дома и дали 107 концертов, и если у тебя не остаётся никакого желания играть музыку, ты должен уйти. Наш новый туровый басист является другом девушки, большой подруги моей жены. Он работает учителем гитары в Колчестерском гитарном институте. До этого он играл только в пабах в различных кавер-группах, но блестяще подошёл для отведённой роли. Ему было немного сложновато на сцене, это связано с костюмами и гримом. Когда мы играли в Бельгии перед 2000 фэнов, он немного струхнул, но музыкант он стабильный. Пока мы ждём, вернётся ли Dave, а дальше посмотрим».</P>
+<P>О DVD<BR>Adrian: «Мы собираемся снять DVD 3 апреля в Париже. Пластинка выйдет в октябре. У нас накопилось множество видео «за сценой» со времени релиза нашего последнего DVD. Сейчас мы записываем всё, что происходит во время тура, на цифровую камеру, а потом решим, что включать в DVD».</P>
+Автор: Vit Belov
+
+### 20.05.2005 news CRADLE OF FILTH Готовят DVD
+
+<P><STRONG>CRADLE OF FILTH</STRONG> сейчас готовят концертное DVD, которое было отснято в течение двух аншлаговых шоу в Париже 2 и&nbsp;3 апреля. DVD выйдет в октябре и будет также содержать съёмки за сценой, интервью и видео-клипы. </P>
+Автор: Vit Belov
+
+### 01.06.2005 news CRADLE OF FILTH расстались с клавишником
+
+<P>Клавишник <STRONG>Martin Powell</STRONG> (ex-<STRONG>MY DYING BRIDE</STRONG>, ex-<STRONG>ANATHEMA</STRONG>) покинул <STRONG>CRADLE OF FILTH</STRONG>. "<EM>Из-за личных обстоятельств, я понял, что не могу полностью отдаваться&nbsp;работе в CRADLE OF FILTH. Поэтому я вынужден покинуть группу, в которой провёл пять лет</EM>", - рассказывает <STRONG>Martin</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа сообщила в ответном заявлении, что очень расстроена этим обстоятельством, но пообещала, что ни одна дата предстоящих концертов не будет отменена.</FONT></P>
+Автор: Vit Belov
+
+### 17.08.2005 news CRADLE OF FILTH готовят новый альбом!
+
+<P>По заявлению <STRONG>Dani Filth'a</STRONG>&nbsp;<STRONG>CRADLE OF FILTH</STRONG> уже написали более 60% нового материала и 10 октября приступает к записи. Уже известны названия некоторых песен: <STRONG>'I Am The Thorn'</STRONG>, <STRONG>'Lovesick For Mina'</STRONG>, <STRONG>'The Byronic Man'</STRONG>, <STRONG>'Cemetery And Sundown'</STRONG>, <STRONG>'Libertina Grimm'</STRONG>, <STRONG>'The Flora Of Nightfall</STRONG>,<STRONG> The Fauna Of War', 'Dirge Inferno'.</STRONG> Так же сообщаяется что на альбоме будет первый за всю историю группы инструментальный трек.</P>
+<P>Кроме того в конце осени группа должна выпустить свой новый DVD.</P>
+Автор: Bizarre
+
+### 01.09.2005 news Опять изменения в составе CRADLE OF FILTH
+
+<P><STRONG>CRADLE OF FILTH</STRONG> покинул гитарист <STRONG>James Mcllroy</STRONG>. На его место переведён сессионный басист коллектива <STRONG>Charles Hedger</STRONG>, а басистом стал вернувшийся после некоторого перерыва <STRONG>Dave Pybus</STRONG>.</P>
+Автор: Vit Belov
+
+### 01.09.2005 news CRADLE OF FILTH update
+
+<P>Here is update from <STRONG>CRADLE OF FILTH's</STRONG> official site:</P>
+<P>"<EM>Greetings fans, friends, fiends and boys and ghouls of all persuasions.</EM></P>
+<P><EM>Things have been going exceptionally well in the Cradle Of Filth camp of late, with the American airing of 'Viva La Bam' being shown for public consumption at the beginning of the month; (we're pursuing the European showing date even as this is being written... )</EM></P>
+<P><EM>And, more importantly we have over sixty per cent of the new album under our belts; including the following laments... 'I Am The Thorn', 'Lovesick For Mina', 'The Byronic Man', 'Cemetery And Sundown', 'Libertina Grimm', 'The Flora Of Nightfall, The Fauna Of War' and 'Dirge Inferno' to name but a few. There will also be a band instrumental on this new musical opus, which, although remaining untitled as yet, will be a first for the band in its eleven year career. The initial start date for recording the album is scheduled for October 10th.</EM></P>
+<P><EM>On the DVD front, a cover representation will be posted shortly with the title of 'Peace Through Superior Firepower' and pending the documentary of backstage shenanigans, being completed over the next few weeks, by Dani and guitarist Paul Allender, a release date of late October/early November is to be expected.</EM></P>
+<P><EM>Book-wise; 'The Gospel Of Filth -The Midian Bible' is coming on very nicely with the chapter about 'Serial Murderers' currently being expounded upon. Next month's arrival of the 'Member's Only' chamber on the website entitled, ‘The Order Of The Dragon’, will see excerpts from this unholy tome being revealed unto the unwary with the countdown to the release of the book’s special edition (which features an extra chapter by Dani Filth and is signed by both authors alike in a gilded leather-bound cover... ); sometime early next year.</EM></P>
+<P><EM>Incidentally, this 'Members Only' chamber will not only include up-to-the-minute information, but will also feature live band chats, video messaging, special promotional items, tickets for exclusive one-off shows, downloads, competitions to win band property and interaction with band decisions in the form of consensus and polls (i.e in deciding titles, themes, new products and songs etc, etc...) to name but a few. More on this as it arrives.</EM></P>
+<P><EM>Last but not least, some other strange occurrences have been happening to the band line-up since last I put severed wrist to paper; in the form of a further departure, a turnaround and a come-back! It has been known to the select few that this band is a sum of it's parts and sometimes more than just a band, sometimes more a lifestyle, so it is not often surprising that, (as magazines and other creative workplaces do all the time), people unfortunately come and go; yet the entity that is the band remains the same. The plan has always been to deliver on the musical front for at least another five to ten years, regardless of what and whom are in the line-up.</EM></P>
+<P><EM>Anyway, the departure is that of James McIlroy A.K.A 'Germs Warfare' who has left to pursue a Masters degree and other things musical; in the wake of his last appearance with the band on 'Viva La Bam'. As always in these situations, our best wishes and hopes for the future go out to him on his new journey through this abysmal farce called life.</EM></P>
+<P><EM>His replacement is none other than Charles Hedger (who people would have seen fulfilling bass duties on our last European tour...; his primary function being that of playing and tutoring in the guitar, along with maintaining another high level of blondness). Bass duties resume being manhandled by Dave Pybus A.K.A 'Herr Pubis', who returns after a short sojourn from the live circuit and all the vile machinations of the music industry. These changes having been secretly implemented before the main bulk of the writing process started.</EM></P>
+<P><EM>As yet a suitable keyboard replacement has yet to be found, (please keep those demo ceedees winging their way in... ), but this offers the band little concern as the parts are being written and being further expanded upon by Daniel Presley, who has arranged and orchestrated for the band over the last two albums. So absolutely no worries there at all.</EM></P>
+<P><EM>The Future is Bright. The future is the darkest shade of ebony black, as they are prone to say.</EM></P>
+<P><EM>Dani Filth - 12th August, 2005</EM>"</P>
+Автор: Vit Belov
+
+### 07.12.2005 news Вокалист THE HAUNTED выступил по телевидению
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>THE HAUNTED Peter Dolving</STRONG> выступил по норвежскому телевидению с заявлением, мягко говоря, не лестным по отношению к <STRONG>CRADLE OF FILTH</STRONG>. В своём пространном монологе 29 ноября в эфире шоу <STRONG>NRK P3</STRONG> он назвал англичан: шлюхами, дырками от задницы, пердунами, лузерами, отвратительными музыкантами, дерьмовыми композиторами, жадинами и fucking нулями. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Интересно, что в <STRONG>CRADLE OF FILTH</STRONG> участвует <STRONG>Adrian Erlandsson</STRONG> (ex-<STRONG>AT THE GATES/THE HAUNTED</STRONG>). В своём последующем заявлении на официальном сайте <STRONG>THE HAUNTED Dolving</STRONG> сообщил, что вышеозначенные эпитеты к нему не относятся, а в остальном всё правда.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я думаю, COF были неплохой группой раньше, поэтому Adrian и присоединился к ним, но сейчас Dani превращает их в бродячий&nbsp;цирк. Музыка его больше не ворлнует, а волнуют только деньги</EM>", - продолжил <STRONG>Peter</STRONG> свои обличения.</FONT></P>
+Автор: Vit Belov
+
+### 18.03.2006 news CRADLE OF FILTH пишут новый альбом
+
+<P><STRONG>CRADLE OF FILTH</STRONG> записывают новый альбом. В настоящее время осталось записать вокал для 4-5 песен, работа над которыми остановилась, из-за болезни <STRONG>Dani Filth</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стали известны имена гостевых вокалистов для будущего альбома. Это <STRONG>Sarah Jezebel Deva</STRONG> и <STRONG>Ville Valo</STRONG> из<STRONG> HIM</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 03.05.2006 news Новый альбом CRADLE OF FILTH
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> будет называться "<STRONG>Thornography</STRONG>" и выйдет 19 сентября на <STRONG>Roadrunner</STRONG>. Вот некоторые названия песен: <STRONG>"Libertina Grim", "Tonight in Flames", "Cemetery and Sundown", "I Am the Thorn", "The Byronic Man"</STRONG> (с участием вокалиста <STRONG>H.I.M. Ville Valo</STRONG>) и "<STRONG>Temptation</STRONG>".</P>
+Автор: Vit Belov
+
+### 21.06.2006 news Новости от CRADLE OF FILTH
+
+<P><IMG height=300 alt="" hspace=30 src="/images/news_rus/2006.06/10454.jpg" width=300 align=left border=0>Британцы <STRONG>CRADLE OF FILTH</STRONG> продолжают работу над своим новым альбомом под названием <STRONG>"Thornography".</STRONG> Напомним, что он поступит в продажу с 19 сентября через <STRONG>Roadrunner Records</STRONG>. Известны названия некоторых композиций: <B>"Libertina Grim"</B>, <B>"Tonight in Flames"</B>, <B>"Cemetery and Sundown"</B>, <B>"I Am the Thorn"</B>, <B>"The Byronic Man"</B> (с гостевым вокалом лидера&nbsp;<B>H.I.M.</B> <B>Ville Valo</B>) и<B>"Temptation"</B>. <B>"Thornography"</B> записывается в британской <B>Chapel</B> <STRONG>studios</STRONG> с продюсером <B>Rob Caggiano</B> (<B>BLEEDING THROUGH</B>, <B>ANTHRAX</B>). <BR></P>
+Автор: Dimas
+
+### 31.07.2006 news Трек-лист предстоящего CRADLE OF FILTH
+
+<P>Британцы <STRONG>CRADLE OF FILTH</STRONG>&nbsp;опубликовали окончательный трек-лист своего нового альбома под названием&nbsp;<B>"Thornography"</B>, который выйдет 16 октября на Roadrunner Records. В него войдут следующие вещи:<BR><BR>1. <B>Under Pregnant Skies She Comes Alive Like Miss Leviathan</B><BR>2. <B>Dirge Inferno</B><BR>3. <B>Tonight in Flames</B><BR>4. <B>Libertina Grimm</B><BR>5. <B>Byronic Man</B><BR>6. <B>I Am The Thorn</B><BR>7. <B>Cemetery And Sundown</B> <BR>8. <B>Lovesick For Mina</B><BR>9. <B>The Foetus Of A New Day Kicking</B><BR>10. <B>Rise Of The Pentagram</B><BR>11. <B>Under Huntress Moon</B><BR>12. <B>Temptation</B><BR><BR>Роль повествователя на <B>"Thornography"</B> вновь доверена актеру <B>Doug Bradley</B> (который играл Пинхэда в серии фильмов <B>"Восставший из ада"</B>'),&nbsp;он также сотрудничал с музыкантами при записи&nbsp;<B>"Her Ghost in the Fog"</B>&nbsp;и <B>"Swansong for a Raven"</B>.</P>
+Автор: Dimas
+
+### 16.11.2006 news CRADLE OF FILTH расстались с барабанщиком
+
+<P><STRONG>Adrian Erlandsson </STRONG>покинул <STRONG>CRADLE OF FILTH</STRONG>. Основной причиной названа занятость музыканта в своих проектах <STRONG>NEEDLEYE</STRONG>&nbsp;и <B>NEMHAIN.&nbsp;</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 17.11.2006 news Новый ударник CRADLE OF FILTH
+
+<P>Новым ударником британских монстров&nbsp;<B>CRADLE OF FILTH</B> стал чешский драммер <B>Marthus</B> (настоящее имя&nbsp;<B>Martin Skaroupka</B>), который заменил на этом посту <B>Adrian Erlandsson</B>.&nbsp;До этого, он набирался опыта в коллективах&nbsp;<STRONG>GALACTIC INDUSTRY</STRONG>&nbsp;и <B>INNER FEAR.</B></P>
+Автор: Dimas
+
+### 14.03.2007 news CRADLE OF FILTH приедут к нам
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CRADLE OF FILTH</STRONG> объявили даты тура по России и Украине:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>3 мая - Екатеринбург</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>4 мая - Краснодар</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>5 мая - Москва</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>6 мая - Санкт-Петербург</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>7 мая - Киев</FONT></P>
+Автор: Vit Belov
+
+### 05.05.2007 news CRADLE OF FILTH в Москве
+
+<CENTER><IMG height=300 src="/images/shows_rus/2007.05/11577.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 12.05.2007 articles CRADLE OF FILTH в Москве: &quot;Дани в порядке!&quot;
+
+<P>5 мая в рамках своего мини-тура по нашей стране Москву посетили CRADLE OF FILTH. Группа настолько примечательная, что даже при цене билетов больше 40 долларов клуб «Тень» был заполнен достаточно плотно.</P>
+<P>Знаменитые англичане приезжают к нам уже третий раз, но каждый их визит привлекает внимание наших металлистов. При этом возраст публики, посещающей концерты COF, остаётся неизменным. Большинство фанатов едва закончили школу. Как правило, они одеты в косухи и майки АРИИ, фанатки же выкрашены на готический манер. Такое впечатление, что угодил на «огонёк» - дискотеку в школе, где учатся одни готы и металлисты. Особую пикантность ситуации придаёт стоимость билета, которая для многих явно оказалась неподъёмной. Интересно, сколько народа пришло бы в клуб «Тень», если бы цена была более демократичной. Феномен «крэдлов» как раз в этом и заключается. Немногие их российские фэны слышали все их пластинки в надлежащем качестве, немногие их фэны внятно опишут стиль группы или правильно произнесут её название. Народная молва вознесла их в ранг группы, на которую должен сходить каждый уважающий себя металхэд. Пускай их слава не такая мощная, как у METALLICA, MANOWAR и OZZY, а ажиотаж, связанный с концертом в «Тени» не сравним с ажиотажем перед шоу этих монстров, но… Молва делает многое. Помнится, не менее легендарные MEGADETH играли в «Луже» при полупустом зале, а что будет твориться на выступлении METALLICA мы увидим. Не забывайте про разницу «прайса» за концерт этих групп, сравнение всё равно будет в пользу Металлика. Наш менталитет неискореним. Например, COF смотрятся на сцене очень бледно, равно, как и MANOWAR, но зал полон. Зал полон надежд разглядеть своих кумиров, сравнить их с изображением на затёртом постере, висящем в спальне. Что ж, и Дани Филф, и Эрик Адамс похожи на себя, как две капли воды. Об этом заботятся гримёры. Жаль только, что на их концертах драйв отходит на второй план. Радует, что фонограмму использовать они пока не решаются. Мне <BR>кажется, публика и это бы всяко простила.</P>
+<P>Интересно, что CRADLE OF FILTH всё-таки относятся к экстремальной музыке. В отличие от вышеназванных «мажоров», в их репертуаре нет песни “Gods Of Metal”, и нет песни “Unforgiven Part II”. Специальной раскруткой англичан в нашей стране никто не занимается. Лицензионные диски выходят на мажорных подразделениях, опять же без специальной рекламы. Исключением является их последний диск, промоутировавшийся Irond, да и то с его поставками возникали некоторые перебои, что помешало его продажам. Те же DIMMU BORGIR, идущие параллельным курсом, думается, более успешны в смысле продаж лицензионной продукции. Но норвежцы в своём репертуаре не имеют видео, где показывают женские гениталии, оно помогло COF больше любой рекламы в любом журнале, так же с обложек дисков «боргиров» на нас смотрят шумерско-месопотамские божества, а не обнажённые девушки. Майку с девушкой не зазорно одеть любому суровому мужчине, а за шумерскую символику могут и из школы выгнать. Вот такая нехитрая арифметика. Можно только поаплодировать, пусть и не новому, но очень действенному способу от Дани Филфа. Эпатаж, помноженный на очень неплохую музыку.</P>
+<P>Кстати, на концерте англичане действительно звучат очень нехорошо. Где бы они не выступали у нас, звук кашеобразный, поведение статичное, качество игры среднее.&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>Отдельных слов заслуживает клуб «Тень». «Тень» он и есть тень. Попадая в него, не стоит забывать об осторожности. В потёмках можно налететь на что угодно. Попривыкнув, вы без труда найдёте общий туалет (это стало модно в наш век «унисекс») с 20-тью кабинками на всех, бар с чрезвычайно разбавленным пивом за 100 рублей (за 60 не пробовал, может оно лучше?) и водкой неизвестных производителей с модными названиями «Журавлик» и «Веля». В общем и целом, в клубе «Тень» можно проводить хорошие концерты. Думается, и звук там бывает хороший. Правда есть ещё один небольшой минус. Если вы решите посетить это заведение впервые, лучше уцепитесь за металлистами и приготовьтесь идти минут двадцать. Иначе найти «Тень» не удастся. Кстати, кто не знает, туда переехала «Горбушка». Люди, курировавшие ДКГ, теперь обосновались в «Тени». Думается, замена неадекватная.</P>
+<P>Остаётся, как обычно, поблагодарить организаторов концерта из «Спики».&nbsp; </P>
+Автор: Vit Belov
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 08.12.2007 news CRADLE OF FILTH пишут материал
+
+<P><STRONG>CRADLE OF FILTH</STRONG> закончили свой тур по всему миру и засели на репетиционной базе, где сочиняют материал для нового альбома. Пластинка увидит свет в 2008 году на <STRONG>Roadrunner</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.12.2007 news CRADLE OF FILTH выпускают deluxe издание
+
+<P>5 февраля на <STRONG>Roadrunner</STRONG> выходит deluxe издание последнего альбома <STRONG>CRADLE OF FILTH</STRONG>&nbsp; <B>"Thornography Deluxe – Harder, Darker, Faster"</B>. На пластинку войдёт полностью последний альбом группы, а так же 6 новых вещей в форматах DVD-audio и MP3, 3 видеоклипа и многое другое. Трэк-лист:</P>
+<P>01. <B>Under Pregnant Skies She Comes Alive Like Miss Leviathan</B><BR>02. <B>Dirge Inferno</B><BR>03. <B>Tonight In Flames</B><BR>04. <B>Libertina Grimm</B><BR>05. <B>The Byronic Man</B><BR>06. <B>I Am The Thorn</B><BR>07. <B>Cemetery And Sundown</B><BR>08. <B>Lovesick For Mina</B><BR>09. <B>The Foetus Of A New Day Kicking</B><BR>10. <B>Rise Of The Pentagram</B><BR>11. <B>Under Huntress Moon</B><BR>12. <B>Temptation</B><BR>13. <B>Murder In The Thirst</B><BR>14. <B>In The Snake-Eyed And Venomous</B><BR>15. <B>Halloween II</B> (MISFITS cover) (remix)<BR>16. <B>Courting Baphomet</B><BR>17. <B>Stay</B> (SHAKESPEARS SISTER cover)<BR>18. <B>Devil To The Metal</B><BR>19. The Making Of The Video for <B>"The Foetus Of A New Day Kicking"</B></P>
+Автор: Vit Belov
+
+### 03.01.2008 news Подробности о новом релизе &quot;крэдлов&quot;
+
+<P><STRONG>CRADLE OF FILTH</STRONG> опубликовали трэк-лист своего нового релиза <STRONG>"Thornography - Harder Darker Faster". </STRONG>Как ясно из названия, на DVD-audio диск войдёт новая версия последнего альбома группы. Трэк-лист:</P>
+<P>Album (DVD Audio):<BR>01. <B>Under Pregnant Skies She Comes Alive Like Miss Leviathan</B><BR>02. <B>Dirge Inferno</B><BR>03. <B>Tonight In Flames</B><BR>04. <B>Libertina Grimm</B><BR>05. <B>The Byronic Man</B><BR>06. <B>I Am The Thorn</B><BR>07. <B>Cemetery And Sundown</B><BR>08. <B>Lovesick For Mina</B><BR>09. <B>The Foetus Of A New Day Kicking</B><BR>10. <B>Rise Of The Pentagram</B><BR>11. <B>Under Huntress Moon</B><BR>12. <B>Temptation</B><BR><BR>"Harder, Darker, Faster...":<BR>01. <B>Murder In The Thirst</B><BR>02. <B>The Snake-Eyed and The Venomous</B><BR>03. <B>Halloween III - Season Of The Bitch</B> (MISFITS cover) (remix)<BR>04. <B>Courting Baphomet</B><BR>05. <B>Stay</B> (SHAKESPEARS SISTER cover)<BR>06. <B>Devil To The Metal</B><BR><BR>Videos:<BR>01. <B>Tonight In Flames</B><BR>02. <B>The Foetus Of A New Day Kicking</B><BR>03. <B>Temptation</B><BR><BR>Extra content includes:<BR>* "The Making Of The Video" for <B>"The Foetus Of A New Day Kicking"</B><BR>* MP3s of entire album (same tracklisting as DVD audio)<BR><BR>The following tracks come in U Myx format which allows you to remix the tracks:<BR>a) <B>Dirge Inferno</B><BR>b) <B>The Foetus Of A New Day Kicking</B><BR><BR>* Mobile Content<BR>* Wallpapers, photos and truetones</P>
+<P>Есть на что потратить свои деньги поклонникам британцев, начиная с 5 февраля.</P>
+Автор: Vit Belov
+
+### 15.01.2008 news Новая песня CRADLE OF FILTH
+
+<P>Новую песню<STRONG> CRADLE OF FILTH</STRONG> <STRONG>"Devil To The Metal"</STRONG>, которая войдёт на переиздание их последнего альбома <STRONG>"Thornography - Harder Darker Faster", </STRONG>можно послушать на официальной <STRONG>MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/cradleoffilth">http://www.myspace.com/cradleoffilth</A></P>
+Автор: Vit Belov
+
+### 22.07.2008 news Новый альбом CRADLE OF FILTH
+
+<P><STRONG>CRADLE OF FILTH</STRONG> опубликовали название и трэк-лист нового альбома. 72-минутная концептуальная пластинка о знаменитом убийце 15 века <STRONG>Gilles De Rais </STRONG>будет называться <STRONG>"Godspeed On The Devil's Thunder" </STRONG>и выйдет в октябре на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P>01. <B>In Grandeur And Frankincense Devilment Stirs</B><BR>02. <B>Shat Out Of Hell</B><BR>03. <B>The Death Of Love</B><BR>04. <B>The 13th Caesar</B><BR>05. <B>Tiffauges</B><BR>06. <B>Tragic Kingdom</B><BR>07. <B>Sweetest Maleficia</B><BR>08. <B>Honey And Sulphur</B><BR>09. <B>Midnight Shadows Crawl To Darken Counsel With Life</B><BR>10. <B>Darkness Incarnate</B><BR>11. <B>Ten Leagues Beneath Contempt</B><BR>12. <B>Godspeed On The Devil's Thunder</B><BR>13. <B>Corpseflower</B></P>
+Автор: Vit Belov
+
+### 17.10.2008 news Новая песня &quot;Крэдлов&quot;
+
+<P><STRONG>CRADLE OF FILTH</STRONG> выложили новую песню <STRONG>"Midnight Shadows Crawl To Darken Counsel With Life" </STRONG>на своей MySpace страничке. Новый альбом <STRONG>"Godspeed On The Devil's Thunder" </STRONG>выйдет 28 октября на<STRONG> Roadrunner</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/cradleoffilth">http://www.myspace.com/cradleoffilth</A></P>
+Автор: Vit Belov
+
+### 25.10.2008 news CRADLE OF FILTH выложили видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CRADLE OF FILTH</STRONG>&nbsp;опубликовали новое видео на песню <STRONG>"Honey And Sulphur</STRONG>" в сети.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=346 width=420><PARAM NAME="movie" VALUE="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/2283"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/2283" type="application/x-shockwave-flash" allowfullscreen="true" width="420" height="346"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 05.11.2008 news Продажи CRADLE OF FILTH в США
+
+<P>За первую неделю в США продано 11000 копий нового альбома <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Godspeed On The Devil's Thunder".</STRONG> С этим результатом группа дебютировала на 48 месте в чартах. Интересно, что продажи англичан в США падают с каждым альбомом. Предыдущей работы "<STRONG>Thornography</STRONG>" было продано 13000 копий за первую неделю, а альбом "<STRONG>Nymphetamine</STRONG>" продался тиражом 14000 за этот же период.</P>
+Автор: Vit Belov
+
+### 05.11.2008 reviews Красивая и дорогая пластинка
+
+<P>Английская группа CRADLE OF FILTH уже не первый год является тем товарным знаком от sympho/gothic black-metal, на который можно смело истратить свои кровные. Всем понятно, что очередной их хоррор эпик не несёт в себе ничего нового, но удовольствие вы в любом случае получите. Думается, музыку этой группы можно смело сравнить с голливудским блокбастером. Всё предсказуемо, но очень дорого и красиво.</P>
+<P>Отличный буклет, великолепная реализация, «морозпокожные» мелодии, страшные лица на обложке, концептуальная история о маньяке – стандартный, но от этого не менее желанный коктейль. Желанный всеми поклонниками CRADLE OF FILTH в нашей стране и её окрестностях. На новой пластинке англичане собрали всё воедино и попытались переплюнуть свой же “Midian”. Опять не получилось, но это не беда. К несчастью, за мощными и помпезными проигрышами и крутым говорком знаменитого артиста Дуга Брэдли (Hellraiser) я не смог обнаружить множества разнообразных мелодий, смен настроений и филигранного владения моими чувствами. Более того, я даже слегка заскучал, но мне это простительно, я слишком много музыки всякой разной послушал за прошедший месяц. </P>
+<P>Тем же, кто не может похвастаться обилием покупок за октябрь и ищет чего-нибудь дорогого и качественного, этот альбом придётся по вкусу. Также отмечу на полях, что, как всегда, музыки в стиле «типа CRADLE OF FILTH» не хватает, и это главная причина, по которой вы послушаете «Godspeed On The Devils Thunder».</P>
+Автор: Vit Belov
+
+### 03.02.2009 news Sarah Jezebel Deva работает над соло-альбомом
+
+<P>Бывшая вокалистка <STRONG>CRADLE OF FILTH</STRONG> и <STRONG>ANGTORIA Sarah Jezebel Deva</STRONG> работает над своим сольным альбомом <STRONG>"A Sign of Sublime" </STRONG>в Австралии. Барабаны уже записал <STRONG>Max Blunos</STRONG> из <STRONG>TRIGGER THE BLOODSHED</STRONG>. Релиз этой работы состоится позже в&nbsp;наступившем году.</P>
+Автор: Vit Belov
+
+### 28.05.2009 news Dani начал бегать со сцены
+
+<P>24 мая во время концерта <STRONG>CRADLE OF FILTH</STRONG> в Аделаиде, Австралия <STRONG>Dani Filth</STRONG> покинул сцену, не доиграв и первого часа шоу. Никаких объяснений публикой получено не было.</P>
+Автор: Vit Belov
+
+### 01.08.2009 news Новое видео CRADLE OF FILTH
+
+<P>Последнее видео <STRONG>CRADLE OF FILTH</STRONG> на песню <STRONG>"The Death Of Love" </STRONG>можно посмотреть ниже:</P>
+<P>
+<CENTER>
+<OBJECT id=flashObj codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0 height=412 width=486 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="12859"><PARAM NAME="_cy" VALUE="10901"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://c.brightcove.com/services/viewer/federated_f9/13590588001?isVid=1&publisherID=13564929001"><PARAM NAME="Src" VALUE="http://c.brightcove.com/services/viewer/federated_f9/13590588001?isVid=1&publisherID=13564929001"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE="http://admin.brightcove.com"><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="FFFFFF"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="0"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://c.brightcove.com/services/viewer/federated_f9/13590588001?isVid=1&publisherID=13564929001" bgcolor="#FFFFFF" flashVars="videoId=31211865001&playerID=13590588001&domain=embed&" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.08.2009 news Гитарист CRADLE OF FILTH пострадал на сцене
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вчера во время выступления <STRONG>CRADLE OF FILTH</STRONG> на фестивале <STRONG>Bloodstock </STRONG>в английском Дербишире из толпы кто-то метнул некий "объект", который попал в гитариста группы <STRONG>Paul Allender. </STRONG>Музыкант был вынужден прекратить своё выступление, ему потребовалась медицинская помощь. <STRONG>CRADLE OF FILTH</STRONG> покинули сцену.</FONT></P>
+Автор: Vit Belov
+
+### 22.11.2009 news Новый CRADLE OF FILTH будет более тяжёлым
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>CRADLE OF FILTH Paul Allender</STRONG> рассказал о процессе сочинения материала для нового альбома группы. <EM>"Я уже сочинил половину материала для новой пластинки. Альбом получается более жёстким и быстрым, чем "Godspeed"</EM>", - поделился <STRONG>Paul</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подоробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 30.04.2010 news CRADLE OF FILTH на Peaceville
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"All Hallows Eve" </STRONG>выйдет в октябре на <STRONG>Peaceville</STRONG>. Группа войдёт в студию <STRONG>Monkey Puzzle </STRONG>в этом месяце. </P>
+Автор: Vit Belov
+
+### 05.08.2010 news CRADLE OF FILTH назвали альбом
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> будет называться <STRONG>"Darkly Darkly Venus Aversa" </STRONG>и выйдет 22 октября на <STRONG>Peaceville</STRONG>. </P>
+Автор: Vit Belov
+
+### 21.08.2010 news Обложка нового CRADLE OF FILTH
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Darkly, Darkly, Venus Aversa" </STRONG>выходит 1 ноября на <STRONG>Peaceville Records</STRONG>. Обложку данного релиза можно посмотреть ниже.</P>
+<P><center><IMG height=446 src="/images/news_rus/2010.08/17059.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 29.09.2010 news Новый ролик Dani Filth
+
+<P>Видео-клип на песню <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Forgive Me Father (I Have Sinned)" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Dani Jacobs</STRONG>, который уже работал с англичанами над их видео "<STRONG>Nymphetamine",</STRONG> а также известен по сотрудничеству с <STRONG>PHIL COLLINS</STRONG>, <STRONG>THE CORRS</STRONG>&nbsp;и <STRONG>MOBY.</STRONG></P>
+<P>Песня войдёт на новый альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Darkly, Darkly, Venus Aversa", </STRONG>который выйдет 1 ноября на<STRONG> Peaceville.</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wUmpSr2i740&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wUmpSr2i740&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.11.2010 news CRADLE OF FILTH готовят новый проект
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=192 alt="" hspace=0 src="/images/news_rus/2010.11/17602.jpg" width=250 align=right border=5>CRADLE OF FILTH</STRONG> объявили о своём намерении войти в студию в декабре для реализации нового проекта. Им станет альбом "<STRONG>Midnight In The Labyrinth"</STRONG>, на котором группа переработает материал с первых четырёх пластинок с использованием симфонического струнных инструментов, хоров и.т.п. Лидер группы <STRONG>Dani Filth</STRONG> обещает звучание сходное с саундтрэками фильмов ужасов. &nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 18.11.2010 news CRADLE OF FILTH попали в чарты Billboard
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Darkly, Darkly, Venus Aversa"</STRONG>, вышедший в Штатах на прошлой неделе, попал в чарты <STRONG>Billboard 200</STRONG> на 99-ое место. В первую неделю было продано 5800 копий, что почти в два раза меньше, чем у предшественника <STRONG>"Godspeed On The Devil's Thunder"</STRONG>, проданного тиражом 11000 копий.</P>
+<P>Новый альбом <STRONG>GWAR</STRONG> <STRONG>"Bloody Pit Of Horror" </STRONG>был продан тиражом 2800 копий. Также первая неделя продаж случилась у нового альбома <STRONG>ATHEIST "Jupiter"</STRONG>, который продался удручающим тиражом 500 копий. Более приемлемый результат продемонстрировали<STRONG> HELLOWEEN</STRONG> с новым хитом "<STRONG>7 Sinners</STRONG>" - продано 1900 копий. </P>
+<P>Хороших продаж добились со своим вторым альбомом <STRONG>"Contagion"</STRONG>&nbsp;<STRONG>OCEANO</STRONG> - 3000 копий. </P>
+Автор: Vit Belov
+
+### 24.11.2010 reviews «Ретро» от CRADLE OF FILTH
+
+<P>В следующем году английской группе CRADLE OF FILTH исполняется уже 20 лет. Стиль, соавторами которого они стали, постепенно переходит в разряд «ретро». Sympho-black-metal команд на большой орбите появляется всё меньше и меньше, а статус самих CRADLE OF FILTH падает. Если прибавить к этому то, что и сама группа начала искать в своей музыке новые горизонты, получается совсем безрадостная картина. Картина осиротевшего sympho black-metal, от которого постепенно отказываются родители, но и новых друзей он не приобретает.</P>
+<P>Для CRADLE OF FILTH в этой ситуации напрашивается одно простое решение. Нужно, как говорится, возвращаться в своим корням. Конкурентов там уже нет, а ретро-командам необходимо играть ту музыку, за которую их полюбили. На “Darkly, Darkly, Venus Aversa” Dani Filth показал, что с лёгкостью может повторить успех “Midian” или “Cruelty and the Beast”. Без лишних «галлюцинаций» CRADLE OF FILTH выдали простой и хитовый, ужасающий и эротичный sympho-black, за который их полюбили. На обозреваемом альбоме нет сложных ходов, нет техничных наворотов и излишнего театрального артистизма, зато здесь есть хорошие мелодии и женский вокал, а также запоминающиеся тексты. Пластинка слушается очень приятно. Умом, конечно же, понимаешь, что всё это мы слышали десять лет назад, но это же «ретро», за этим его и покупают.</P>
+<P>Интересно сравнить новые альбомы DIMMU BORGIR и CRADLE OF FILTH, двух корифеев sympho-black-metal. Эти группы, хоть и являются яркими представителями одного стиля, были всё-таки мало похожи при ближайшем рассмотрении. В этом году норвежцы и британцы выпустили новые альбомы, обе группы попытались немного изменить своё звучание. Если DIMMU BORGIR создали что-то новое, CRADLE OF FILTH просто вернулись к проверенному временем. Пожалуй, вариант CoF мне больше по душе, наверное, я тоже люблю «ретро».</P>
+Автор: Vit Belov
+
+### 27.05.2011 news Новый клип CRADLE OF FILTH
+
+<P>Новое видео <STRONG>CRADLE OF FILTH</STRONG> на песню "<STRONG>Lilith Immaculate</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME src="http://player.vimeo.com/video/22135770?title=0&byline=0&portrait=0" frameBorder=0 width=400 height=170></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.09.2011 news CRADLE OF FILTH выпускают новый мини-альбом
+
+<P><IMG height=445 alt="" hspace=0 src="/images/news_rus/2011.09/20952.jpg" width=446 align=right border=0>Новый мини-альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Evermore Darkly…" </STRONG>выйдет этой осенью. Релиз появится в продаже в формате CD/DVD вместе с концертом <STRONG>Graspop Metal Meeting</STRONG>. Трек-лист:</P>
+<P>01. <B>Transmission From Hell</B>?<BR>02. <B>Thank Your Lucky Scars</B><BR>03. <B>Forgive Me Father (I Have Sinned) - Elder Version</B><BR>04. <B>Lilith Immaculate (Extended Length)</B><BR>05. <B>The Persecution Song - Elder Version</B><BR>06. <B>Forgive Me Father (I'm In A Trance)</B><BR>07. <B>The Spawn Of Love And War - Elder Version</B><BR>08. <B>Summer Dying Fast ("Midnight In The Labyrinth" breadcrumb trail)</B><BR><BR><B>"Venus Diversa"</B> DVD:<BR>01. <B>"Lilith Immaculate"</B> Promo Video<BR>02. <B>"You Can't Polish A Turd…But You Can Roll It In Glitter"</B> Rockumentary<BR>03. <B>"Burning Down Graspop"</B>, Dessel, Belgium, June 25, 2011 Live Footage&nbsp;</P>
+Автор: Vit Belov
+
+### 29.01.2012 news Dani Filth работает с гитаристом ANTHRAX и бывшим басистом GORGOROTH
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2012.01/22846.jpg" width=400 align=right border=0>TEMPLE OF THE BLACK MOON</STRONG> - так называется новый проект, в состав которого входят вокалист <STRONG>Dani Filth (CRADLE OF FILTH)</STRONG>, гитарист <STRONG>Rob Caggiano (ANTHRAX)</STRONG>, басист<STRONG> Tom Cato Visnes</STRONG> (aka King Ov Hell; <STRONG>OV HELL, GOD SEED, GORGOROTH</STRONG>), барабанщик <STRONG>John Tempesta (THE CULT, ex-WHITE ZOMBIE)</STRONG> и гитарист <STRONG>Arve "Ice Dale" Isdal (ENSLAVED)</STRONG>. Музыканты поработали над материалом в Норвегии и дали интервью на радио, где представили новый материал.</P>
+<P>Вот названия некоторых песен: <STRONG>'Beautifully Perverse', 'Into The Void', 'Don't Call Up What You Can't Put Down', 'Infernal Desire Machine', 'Alchemy, Myself And I', 'Dark Eyes For Trouble', 'C.N.T (All That's Missing Is You)', 'Persephone', 'Last Of The Vampire Playboys', 'Another Dead Thing Between Us'</STRONG> и<STRONG> 'Catch'</STRONG>.</P>
+<P>Группа находится в стадии переговоров по контракту с лэйблом. Подробности последуют.</P>
+<P>Послушать отрывок передачи можно здесь: <A href="http://p3.no/pyro/the-first-interview-ever-with-temple-of-the-black-moon/">http://p3.no/pyro/the-first-interview-ever-with-temple-of-the-black-moon/</A></P>
+Автор: Vit Belov
+
+### 15.03.2012 news Обложка оркестрового CRADLE OF FILTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложка оркестрового альбома <STRONG>CRADLE OF FILTH "Midnight In The Labyrinth"</STRONG> можно посмотреть ниже. Релиз состоится 21 апреля, на альбоме группа переиграла вещи с первых четырёх альбомов с участием оркестра.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=417 src="/images/news_rus/2012.03/23259.jpg" width=463 border=0></FONT></P>
+Автор: Vit Belov
+
+### 16.08.2012 news Свечи от CRADLE OF FILTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>CRADLE OF FILTH</STRONG> запустила в продажу "аккультные свечи" имени себя. Согласно рекламе, они сделаны из жира младенцев, серы, крови, спермы, гвоздей, дистиллированных слёз ангелов, ванильной эссенции, медянки, белены, печали,&nbsp;витамина b13.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И годны для использования при поджогах, спиритических сеансах, жертвоприношениях девственниц, BDSM, поэтическом настроении, подлых деяниях, романтических поступках и просто, чтобы увидеть что-то в темноте.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Закупиться подобным шедевром, можно, например, здесь: <A href="http://www.jsrdirect.com/cgi-bin/category.cgi?category=COF">www.jsrdirect.com</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.08/24638.jpg" width=600 height=241></CENTER>
+Автор: Headcrusher
+
+### 28.08.2012 news CRADLE OF FILTH: обложка альбома &quot;The Manticore &amp; Other Horrors&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый, 10 по счёту, альбом британцев <STRONG>CRADLE OF FILTH</STRONG> получил название <STRONG>"The Manticore & Other Horrors"</STRONG>. Его выпуск в Северной Америке намечен на 30 октября на лейбле <STRONG>Nuclear Blast</STRONG>. Обложку диска можно увидеть ниже.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.08/24713.jpg" width=450 height=450></P>
+Автор: Headcrusher
+
+### 07.06.2013 news Новое видео CRADLE OF FILTH
+
+<P>Новый клип британцев <STRONG>CRADLE OF FILTH</STRONG> на песню <STRONG>"For Your Vulgar Delectation" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома группы <STRONG>"The Manticore And Other Horrors", </STRONG>вышедшего в прошлом году.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/rrdnwnXxBw4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 20.02.2014 news Третье демо CRADLE OF FILTH выйдет на виниле
+
+<P>Спустя более чем 20 лет, третье демо англичан<STRONG> CRADLE OF FILTH</STRONG> под названием&nbsp;<STRONG>"Total Fucking Darkness"</STRONG>, будет выпущено ограниченным тиражом на&nbsp;двойном&nbsp;виниле. Оформление для него создал&nbsp;<STRONG>Daniel&nbsp;P.&nbsp;Carter</STRONG>. Помимо самого демо <STRONG>"Total Fucking Darkness"</STRONG>, на этот релиз, также войдёт несколько невыпускавшихся ранее записей, сделанных в другой временной период.</P>
+<P>Всего будет три цветовых варианта&nbsp;издания, каждый тиражом в 222 копии.&nbsp;Выпуск запланирован на&nbsp;5 мая.</P>
+<P>Трек-лист:</P>
+<P><STRONG>Side I</STRONG>: 01. <STRONG>Spattered In Faeces</STRONG> | 02. <STRONG>The Black Goddess Rises</STRONG> | 03. <STRONG>As Deep As Any Burial</STRONG></P>
+<P><STRONG>Side II</STRONG>: 01. <STRONG>Unbridled At Dusk</STRONG> | 02. <STRONG>The Raping Of Faith</STRONG> | 03. <STRONG>Fraternally Yours, 666</STRONG></P>
+<P><STRONG>Side III</STRONG>: 01. <STRONG>Devil Mayfair (Advocatus Diaboli)</STRONG> | 02. <STRONG>The Black Goddess Rises</STRONG> | 03. <STRONG>Seance And Mandrake</STRONG> (instrumental)</P>
+<P><STRONG>Side IV</STRONG>: 01. <STRONG>The Raping Of Faith</STRONG> | 02. <STRONG>Unbridled At Dusk</STRONG> | 03. <STRONG>Hekate Enthroned</STRONG> (instrumental)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.02/26666.jpg" width=500 height=498> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.09.2014 news CRADLE OF FILTH не поддерживают санкции
+
+<P>Британцы <STRONG>CRADLE OF FILTH</STRONG> объявили даты своего октябрьского концертного тура по России. В списке 13 городов:</P>
+<P>Октябрь<BR>&nbsp;10 - Ярославль<BR>&nbsp;11 - Санкт-Петербург<BR>&nbsp;12 - Москва<BR>&nbsp;13 - Краснодар<BR>&nbsp;15 - Нижний Новгород<BR>&nbsp;16 - Самара<BR>&nbsp;18 - Екатеринбург<BR>&nbsp;19 - Омск<BR>&nbsp;20 - Новосибирск<BR>&nbsp;21 - Барнаул<BR>&nbsp;23 - Красноярск<BR>&nbsp;25 - Иркутск<BR>&nbsp;26 - Хабаровск</P>
+<P>Как мы видим, <STRONG>CRADLE OF FILTH</STRONG> плевать хотели на политику! Интересно, а наши православные активисты тоже плевать хотели на <STRONG>CRADLE OF FILTH</STRONG>?</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.09/27315.png" width=410 height=492> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.10.2014 news Dani Filth - башкотряс
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В официальный магазин группы <STRONG>CRADLE OF FILTH</STRONG> поступила в продажу фигурка Дэни Филта, сделанная в виде так называемого "башкотряса". Всего на свет&nbsp;было прозведено 1500 экземпляров данной красоты! Так что, поторопитесь с покупкой!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На данный момент цена этого чуда составляет всего 20 английских фунтов стерлингов, но уже с первого ноября цену обещают повысить до 25 ф.с.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказать&nbsp;Дэни&nbsp;можно по ссылке: <A href="http://www.cradleoffilthstore.co.uk/acatalog/Dani-Filth-Bobblehead.html">www.cradleoffilthstore.co.uk/acatalog/Dani-Filth-Bobblehead.html</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.10/27402.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 17.06.2016 news CRADLE OF FILTH &quot;переиздадут&quot; альбом
+
+<p><strong>CRADLE OF FILTH</strong> объединили усилия с возродившимся лэйблом <strong>Cacophonous</strong> и выпустят 8 июля альбом "<strong>Dusk… And Her Embrace: The Original</strong> Sin". Как следует из названия, этот релиз будет вариацией на тему второго полноформатного альбома англичан "<strong>Dusk And Her Embrace</strong>", в оригинале вышедшего в 1996 году. Однако, музыканты утверждают, что мы получим какой-то всеми забытый артефакт.</p><p>Простейшее сравнение трек-листов альбомов позволяет понять, что мы имеем переиздание с переставленными местами песнями:</p><p>“Macabre, This Banquet”<br>“Nocturnal Supremacy”<br>“Heaven Torn Asunder”<br>“Dusk And Her Embrace”<br>“A Gothic Romance”<br>“The Graveyard By Moonlight”<br>“Funeral In Carpathia”<br>“Beauty Slept In Sodom”<br>“The Haunted Shores Of Avalon”<br>“Carmilla’s Masque”<br>“A Gothic Romance” (Bonus Demo Track)<br>“Nocturnal Supremacy” (Bonus Demo Track)</p><p><center><img width="640" height="640" src="/images/news_rus/2016.06/29380.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 17.06.2016 news CRADLE OF FILTH will re-release album
+
+<p><strong>CRADLE OF FILTH</strong> have teamed up with the revived label <strong>Cacophonous</strong> and will release on July 8, the album "<strong>Dusk... And Her Embrace: The Original Sin</strong>". As the name implies, this release is a variation on the second full-length album of the British "<strong>Dusk And Her Embrace</strong>", originally released in 1996. However, the musicians say that we'll get some forgotten artifact.</p><p>A simple comparison of the track lists of the albums allows us to understand that we have the reissue with swapped songs:</p><p>“Macabre, This Banquet”<br>“Nocturnal Supremacy”<br>“Heaven Torn Asunder”<br>“Dusk And Her Embrace”<br>“A Gothic Romance”<br>“The Graveyard By Moonlight”<br>“Funeral In Carpathia”<br>“Beauty Slept In Sodom”<br>“The Haunted Shores Of Avalon”<br>“Carmilla’s Masque”<br>“A Gothic Romance” (Bonus Demo Track)<br>“Nocturnal Supremacy” (Bonus Demo Track)</p><p><center><img width="640" height="640" src="/images/news_rus/2016.06/29380.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 24.08.2016 news CRADLE OF FILTH работают над новым альбомом
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>CRADLE OF FILTH</strong> сообщили, что сочиняют новый материал. В настоящее время группа находится в студии в чешском городе Брно, где работает над последователем "<strong>Hammer Of The Witches</strong>", который вышел в 2015 году. В настоящее время сочинено около 50 процентов нового альбома.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности последуют.</font></p><p><center><img width="500" height="750" src="/images/news_rus/2016.08/29858.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 24.08.2016 news CRADLE OF FILTH - writing new material!
+
+<p><strong>CRADLE OF FILTH</strong> the UK’s most visionary and hellish outfit are very pleased to announce that they are currently writing new material. The band have been locked away for the past week in a studio in Brno, Czech Republic, working on the follow up to their 2015 opus »<strong>Hammer Of The Witches</strong>«.</p><p>The evening before embarking on their creative quest, rather vocal front man<strong> Dani Filth</strong> said the following: "<em>As a band we are very much looking forward to our writing session in Brno. It's going to be very inspirational to just bury ourselves away in a rehearsal room in the Czech Republic and knead our ammunition of razor sharp flesh-ripping sonic torments into sinister form. Hopefully when we emerge from our musical chrysalis one week later, something beautiful will be born. The new CRADLE OF FILTH album will be mostly written. Then will come the long Autumnal evenings bringing the monster further to life by dressing it in lyricism. I can hardly wait!</em></p><p><em>As a band, CRADLE OF FILTH have already written about fifty percent of the material towards the new album, which now requires collating and readdressing. We started writing shortly after returning from our highly successful tour of the U.S. and Canada back in March. We were adrenalised by the whole reaction we received out there, having not been back to that part of the world for a fair few years. The camaraderie of playing to that many people across seven weeks really inspired us to start writing material again so soon after the release of our previous endeavour, »Hammer Of The Witches«.</em></p><p><em>There are certainly a few songs completed already, though these will undoubtedly be scrutinised thoroughly when we hit the rehearsal studio. It'll just be awesome to play through it all creatively in the rehearsal room.</em></p><p><em>We can reveal that there is one song carried over from the previous album, a veritable lament entitled 'Achingly Beautiful'. We've worked some more on it, fleshing it out considerably. It is very old school CRADLE OF FILTH, featuring a haunting middle section full of soaring female vocals and choir very akin to 'A Gothic Romance' from the album »Dusk... and Her Embrace«. It may not even make this album's grade in the end, as we're being extremely thorough with quality control, but it's definitely something that is being delivered to the proverbial butcher's block from the off</em>.”</p><p>CRADLE OF FILTH chose Brno as a location for several reasons aside from the draw of its elegance and rich architecture; drummer Marthus and second guitarist Ashok live there, plus Brno is also home to Europe's second largest Ossuary, which is essentially a medieval charnel house filled with fifty thousand skeletons, second only in size to the catacombs in Paris.</p><p><center><img width="500" height="750" src="/images/news_rus/2016.08/29858.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 26.08.2016 articles Андрей &#39;Andy&#39; Корюхин: &quot;За прошедшее лето ничего интересного я не услышал&quot;
+
+<p><em><center><img width="390" height="1021" src="/images/articles_rus/2016.08/29867.jpg" border="0"></em></p><p><em>Продолжение нашей традиционной рубрики, в которой мы общаемся на музыкальные темы с известными людьми из мира тяжёлой музыки России. На этот раз у нас в гостях главный редактор журнала Dark City Андрей 'Andy' Корюхин.</em></p><p><strong>На днях вышел новый 93 номер журнала Dark City. Расскажи людям, почему им надо быстрее бежать в магазин за ним?</strong></p><p>Ну, во-первых, потому что бежать за новым номером DarkCity нужно в любом случае - не было ни разу, чтобы оно того не стоило! Во-вторых, в это раз у нам помимо целого созвездия ярких имен в разделе статей и интервью (Pain, Rage, Ihsahn, Crematory, Babymetal и т.д.) оказалось и немало тематических "околомузыкальных" материалов: например, первая часть очень детального обзора столичных рок-магазинов (с историческим уклоном), арт-материалы про логотипы метал-групп и дизайны микрофонных стоек, очень большая статья авторства Юры Хирурга про жизненный путь Ника Менцы (Megadeth), ну а также почти сотня рецензий на свежие альбомы, плюс, конечно же репортажи с концертов и фестивалей. Ах да, забыл сюда добавить (как это любят делать в одном отечественном фэнзине) - масса рекламно-информационных материалов :)) А еще постеры - шикарные постеры PAIN, CATHARSIS, SODOM и RUNNING WILD!</p><p><strong>Прочёл, что у вас следующий номер юбилейный, четвертьвековой. Тебе всего 40. Ты чего с 15 лет трудишься в Dark City?</strong></p><p>Нет, конечно, ведь официально первый номер журнала под названием DarkCity вышел в 2000 году. Однако по сути DarkCity - это полноценный преемник легендарного журнала RockCity, а его первый номер вышел как раз ровно 25 лет назад - в 1991 году!</p><p><strong>И какие нас ждут ништяки?</strong></p><p>Ну это пока секрет - подождите месяца полтора, и тогда всё станет известно в деталях!</p><p><strong>Ну ладно. Давай теперь о музыке поговорим. Что для тебя самое актуальное сейчас?</strong></p><p>Самое актуальное для меня за последние месяцы всегда нетрудно отслеживать в разделе персональных Top-5 в конце каждого номера журнала. На этот раз первые три строчки моего топа остались пустыми - за прошедшее лето ничего интересного я не услышал. Так что под настроение приходится переслушивать классику тяжелого рока, причем по возможности на виниле. Ну а если говорить о последнем приобретенном диске в мою коллекцию, то им стала свежая версия великолепного альбома CRADLE OF FILTH 'Dusk... And Her Embrace', получившая приставку 'The Original Sin' - действительно интересная и никогда ранее не слышанная версия этого шедевра!</p><p><strong>Да-да. Четвёртое место занял Equilibrium. Что скажешь об этом альбоме? Вообще, о развитии стиля folk-metal?</strong></p><p>Equilibrium - молодцы. На редкость разноплановый и при этом хитовый и интересный альбом, в котором нашлось место и стёбу - а такое сейчас встречается крайне редко. Вот только к фолк-металу я бы его не стал причислять - он куда разнообразнее, чем принято в рамках этого жанра. А вообще фолк-метал практически исчерпал свой потенциал, и по большей части альбомы в этом жанре стали выходит однотипные и скучные. Особенно у нас в стране.</p><p><strong>То есть тебе Аркона не нравится?</strong></p><p>Скажем так - я их альбомы под настроение не слушаю.</p><p><strong>А есть русские группы, которые внесли вклад, по твоему мнению?</strong></p><p>Несомненно. Та же Аркона, Butterfly Temple. Вот Омелу я очень люблю из этого направления. Про остальные группы не скажу - встречаются интересные команды, альбомы, но в общем и целом это направление на нашей сцене у меня восторга не вызывает.</p><p><strong>Sabaton. Вышел на днях. Что скажешь об этих кумирах?</strong></p><p>Пока не слышал, так что сказать про этот альбом мне нечего. Хотя я не сомневаюсь в том, что это будет достойная работа... и без сюрпризов.</p><p><strong>Ну а если оценивать без сюрпризов? Прёт тебя от такой музыки?</strong></p><p>Конкретно от Сабатона - нет. Вот Manowar - другое дело! :)</p><p><strong>На днях вышел новый сингл METALLICA. Ждёшь с нетерпением новый альбом?</strong></p><p>Отнюдь. Я давно уже ничего не жду от Металлики. И абсолютно никакой заглавный сингл только убедил меня в правильности моих не-ожиданий.</p><p><strong>Как относишься к старым группам, которые, как правило, по-прежнему в первых рядах, на обложках журналов?</strong></p><p>По большей части хорошо, хотя в последние годы они редко выпускают достойные новые альбомы. Такова, увы, тенденция. Поэтому лучше переслушать их классические записи, чем мучить себя их новыми потугами. Исключения здесь крайне редки - за последние пару лет я могу припомнить разве что SLAYER да AMORPHIS, у которых вышли действительно сильнейшие пластинки!</p><p><strong>Не могу не задать вопрос от многих ваших читателей. Ведь вы постоянно пишете об одних и тех же группах?</strong></p><p>Отнюдь. Мы пишем о разных группах. Просто наиболее заслуженные из них появляются на наших страницах чаще остальных. Впрочем, любой музыкальный журнал пишет по сути об одних и тех же группах, просто у одних этот диапазон чуть шире, у других - чуть уже.</p><p><strong>Самому наверное сложно уже составлять журнал? За эти 25 лет, про этих уже писали, это уже спрашивали? Вижу, стали активно писать на околомузыкальные темы... Есть какие-то планы по развитию этого направления?</strong></p><p>Да, составлять каждый новый номер нелегко, но в этом деле помогает опыт и наработки всех этих лет. Конечно, имеется некая шаблонность в материалах - это касается и интервью, и построения номера в целом, но, опять же, это присуще практически всем музыкальным журнала - не только у нас в стране, но и в мире. Поэтому приходится проявлять фантазию и искать оригинальные темы, которые были бы интересны нашим читателям. Ведь надо понимать, что насколько упёртым бы ни был меломан, он всё равно чем-то ещё в жизни интересуется: смотрит кино, играет в компьютерные игрушки, увлекается рисованием или фотографией... Вот мы и пытаемся рассказывать о таких "околомузыкальных" темах.</p><p><strong>Вы называете себя "ведущее издание о тяжёлой музыке". Кто это определял? Как это звучит по отношению к вашим конкурентам?</strong></p><p>Ну это же очевидный факт - по качеству издания, объему, тиражу, контенту, в конце концов, - разве есть или было у нас в стране издание, которое могло бы нас обойти и стать ведущим?</p><p><strong>Ладно. Вернёмся к музыке. Как ты думаешь, должен главный редактор издания о музыке слушать все новинки?</strong></p><p>Конечно нет. Чисто физически все новинки прослушать невозможно, даже если это делать нон-стопом 24 часа в сутки. Сейчас выходит слишком много новой музыки - и, к сожалению, бОльшая часть её не достойна внимания.</p><p><strong>А hard rock, которым все сейчас бредят, слушаешь? Как относишься к тому, что подобным ретро увлеклись некогда лэйблы, занимавшиеся только металом? Napalm, Nuclear Blast...</strong></p><p>Ну если группа исполняет интересный и качественный материал, то не важно, хард-рок это, хэви или ню-метал. Харду я, конечно, слушаю - как слушал и 10, и 20, и почти 30 лет назад. Не сказать, что меня очень интересуют молодые команды в этом жанре, но по классике, особенно на виниле, я всегда готов пройтись :)</p><p><strong>Ну, всё-таки есть группы, которые сейчас "гремят". BLUES PILLS, например. Что думаешь о них?</strong></p><p>Думаю, что это хорошо, однако сам их не слышал :)</p><p><strong>В последнее время стали отменять концерты не только тяжёлой музыки, но и других артистов в неформальных жанрах. Как относишься к этому? Можно ли что-то сделать, чтобы не происходило подобного в России?</strong></p><p>Да, я уже высказывался на эту тему в журнале пару номеров назад. Вкратце могу сказать, что предотвратить подобные срывы может исключительно профессионализм организаторов, их компетентность во всех сферах этого бизнеса и правильно налаженные связи с представителями органов правопорядка.</p><p><strong>Как живёт журнал в нынешней непростой экономической ситуации? Качают, небось?</strong></p><p>Качают сейчас всё - даже выступления церковников, которые по телеканалу Спас показывают! Так что да, и нас качают. Раньше мы переживали по этому поводу, даже пытались сделать вёрстку такой, чтобы ее скан было сложнее прочитать. Но потом как-то поспокойнее относиться стали - постер то со скачанного pdf-скана на стену не повесишь, да и читать журнал куда удобнее в печатном виде, чем мутноватый скан.</p><p><strong>А pdf не продаёте через сеть?</strong></p><p>Нет, пока мы мы продаем только бумажную версию журнала.</p><p><strong>Как ты думаешь, всё-таки будущее за файлами? Это и музыки касается. Вон, Союз электронными продажами своих артистов "золотыми" делает.</strong></p><p>Сложно сказать, за чем именно будущее. Скорее, за мерчем и гастрольным чёсом. Цифровые продажи приносят даже крупным артистам сущие копейки, так что продажа 5 тысяч копий "золотого" альбома в России принесёт Тарье в лучшем случае пару сотен Евро, что сопоставимо с продажей пары десятков копий на виниловых пластинках. Так что винил и всякие интересные лимитированные CD-издания альбомов будут всегда для фанатов и самих групп куда более интересными форматами, нежели бестелесная цифра...</p><p><strong>Ну, а как же большое количество молодых групп, которые что-то даже зарабатывают на Bandcamp? Раньше им это было недоступно.</strong></p><p>Для молодых групп и такая копеечка, видимо, приятна, т.к. с концертов они пока вряд ли могут зарабатывать деньги - скорее, наоборот, им приходится самим платить за выступления в саппорте у больших групп. Да и диски им хлопотнее выпускать... в общем, для них цифровые площадки вроде bandcamp оказываются пока единственным источником дохода с их музыки.</p><p><strong>А что скажешь о ситуации в России? Лицензия, кажется, не в лучшей форме сейчас?</strong></p><p>В России цифровые продажи музыки - это, скорее, исключение, нежели правило. Если есть торренты и бесплатная яндекс.музыка, то зачем платить за "воздух", только лицензионный? Если же говорить о физических лицензионных носителях, то тут положение дел, прямо скажем, неважнецкое. Впрочем, падение продаж дисков - явление всемирное, просто мы тут оказались, как говорится, "впереди планеты всей".</p><p><strong>Ну и чем это может кончиться? Все будут качать и иногда ходить на концерты? Журнал-то DARK CITY будут покупать?</strong></p><p>Чем, как и когда всё кончится - я не знаю. И никто не знает. А вот в ближайшей перспективе на одной чаше весов будут лежать живые концерты, всевозможный мерч и лимитированные издания CD/LP, а на другой - цифровые скачки, и не важно - легальные, полулегальные или пиратские. У журнала такой вариативности, понятное дело, нет - если только нашей редакции не устраивать гастроли по городам и сёлам, где авторы со сцены клубов с выражением читали бы свои материалы :) Так что мы просто будем делать свою работу, и стараться делать её как можно лучше - пока она остаётся хоть кому-то нужной!</p>
+Автор: Vit Belov
+
+### 16.06.2017 news CRADLE OF FILTH: новый альбом в сентябре
+
+<P>Новости из лагеря <STRONG>CRADLE OF FILTH</STRONG>: группа обнародовала обложку к своему новому альбому, который получил название <STRONG>"Cryptoriana - The Seductiveness Of Decay"</STRONG>. Дата выхода: 22 сентября.</P>
+<P><center><IMG border=0 src="/images/news_rus/2017.06/30569.jpg" width=500 height=500></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Где достать качественные фотки Cradle of Filth ?

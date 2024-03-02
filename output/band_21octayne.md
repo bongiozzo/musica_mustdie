@@ -16,6 +16,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.10.2015 news Видео-клип 21Octayne
+
+<P>Второй альбом немецкой hard-rock группы <STRONG>21OCTAYNE</STRONG> с незатейливым названием "<STRONG>2.0</STRONG>" вышел в сентябре на<STRONG> AFM/Фоно</STRONG>. В группе объединили свои усилия вокалист <STRONG>Hagen</STRONG> <STRONG>Grohe (The Joe Perry Project)</STRONG>, гитарист <STRONG>Marco Wriedt (ex-Axxis)</STRONG> и барабанщик <STRONG>Alex Landenburg (Rhapsody)</STRONG>. Видео на песню "<STRONG>When You Go</STRONG>" можно посмотреть ниже.</P>
+<P>Диск как в фирменном, так и в лицензионном варианте можно приобрести здесь: <A href="http://escapemind.ru/search?q=21Octayne">http://escapemind.ru/search?q=21Octayne</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/D_mlASeTLh4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -408,6 +408,620 @@ Deluxe 12” Hardbook featuring:
 * C группой "Diabolical Masquerade" Anders Nystrom
 * C группой "Bloodbath" Anders Nystrom
 
+## Публикации
+
+### 23.02.1999 news 
+
+<p>Katatonia села за запись нового полнометражного альбома Tonight's Decision. Альбом ожидается похожим на последней релиз группы Discouraged Ones, но на нём будет больше соло и гораздо больше вариаций.</p>
+
+Автор: Vit Belov
+
+### 12.04.1999 news 
+
+<p>Новости от Дэна Свано. Этот великолепный музыкант сыграет все партии барабанов на новом альбоме Katatonia. Также он работает над альбомом Edge Of Sanity, посвящённом десятилетию группы. На этом альбоме будут тонны неизданного материала, разнообразные ремиксы и демо-версии, а также одна песня, где вместе споют Дэн и новый вокалист группы Роберт. Дэн подумывает над своим новым сольником, это будет нечто наподобие альбома Edge Of Sanity "Crimson" - один гигантский трэк. Как уже сообщалось, ожил проект Дэна Nightingale. Для нового альбома "I" записано 10 композиций. На альбоме все инструменты будут живые, и он выйдет приблизительно осенью. Это только широкоизвестные проекты Дэна, если обо всех писать, я состарюсь. Также намечаются оживления таких групп Дэна или Свано-пародюсера, как Steel, Bloodbath, Odyssey, Infestdead и Unicorn.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Английский лэйбл Peaceville заключил контракт с Katatonia и Opeth. Новый альбом Katatonia выйдет в конце лета, и, как сообщалось, барабанщиком на нём будет Дэн Свано. Opeth начали работу над новым альбомом, который выйдет ранней осенью.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Миньон группы Bloodbath выйдет на Century Media. В эту группу входят Дэн Свано и члены Opeth и Katatonia. Группа представит нашего вниманию дэт-металл в духе ранних Death и Entombed.</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>К концу года будет переиздан мини-CD Katatonia "For Funeral To Come".</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Шведские рокеры Katatonia в ближайшее время отправятся в студию для записи своего нового альбома.</p>
+
+Автор: Vit Belov
+
+### 18.07.2000 news О новом альбоме Katatonia...
+
+<p> Релиз нового альбома шведов Katatonia, обещанный уже в июле, откладывается до поздней осени, из-за того, что процесс записи перманентно прерывался по техническим причинам.</p>
+<p> А 28 июля Кататонию можно будет увидеть живыми на Milwaukee Metalfest. Помимо них там также выступят Anathema.</p>
+
+Автор: George Dysangelist
+
+### 05.08.2000 news Неожиданная новость от Katatonia
+
+<p>Выступление Katatonia на прошедшем Milwaukee Метал-Фесте было примечательно тем, что вокалист Jonas Renkse впервые за несколько лет исполнил старый хит "Endtime" в традиционном стиле гроулинга. Как известно, на последних двух альбомах мы могли слышать только clean-вокал, но возможно, на новом альбоме группы, для которого уже записываются вокальные партии будет присутствовать модное нынче сочетание чистого вокала и гроулинга.</p>
+
+Автор: George Dysangelist
+
+### 04.10.2000 news Katatonia все еще работают над новым альбомом
+
+<p> Эти дни члены группы Katatonia проводят в стокгольмской Sunlight Studios, где записывают свой новый полнометражник, пока еще лишенный названия. Тем временем их предыдущая работа "Tonights Decision" будет переиздана с двумя дополнительными композициями и в скором времени поступит в продажу в США.</p>
+
+Автор: Phantom Lord
+
+### 18.11.2000 news Katatonia записывают новый альбом
+
+<p> Хорошие новости. Katatonia сейчас в студии записывает материал для нового альбома, который, как обещают, будет смесью "Brave Murder Day" и "Discouraged Ones". Релиз диска - в январе.</p>
+
+Автор: Nybras
+
+### 03.12.2000 news Записан новый альбом Katatonia
+
+<p>"Last Fair Deal Gone Down" окончательно сведён. Всего на альбоме будет представлено 11 композиций: 1. Dispossession 2. Chrome 3. We Must Bury You 4. Teargas 5. I Transpire 6. Tonight's Music 7. Clean Today 8. The Future of Speech 9. Passing Bird 10. Sweet Nurse 11. Don't Tell a Soul. Остальные новости - на сайте Katatonia Syndrome.</p>
+
+Автор: George Dysangelist
+
+### 15.03.2001 reviews Небольшая эволюция шведской группы
+
+<p>Небольшая эволюция шведской группы. Последняя успешно и справедливо завершенная сделка. Пятый альбом скорее близок к "Discouraged Ones", чем к "Tonight's Decision", но более зрелый, под большим влиянием холодной музыки и менее тяжелый с оттенками gothic музыки. Старые black-металлические корни полностью искоренены и мы имеем только холодную, мелодичную, депрессивную и меланхоличную тяжелую атмосферу. Некоторые из вещей просто превосходны в этом музыкальном жанре, главным образом при помощи эмоциональной атмосферы. Хотя, альбом очень необычный и вызывает много споров. Или он нравится, или не нравится. Безусловно, альбом нужно прослушать не один раз, чтобы полностью понять эту атмосферу. Что я и предлагаю вам сделать. Об этом альбоме можно составить только свое мнение. Все чужие мнения о нем, все равно не дадут вам полной картины об этом релизе.</p>
+
+Автор: Dimas
+
+### 23.10.2001 news Новый сингл KATATONIA
+
+<p>Впервые за последние пять лет группа Katatonia отправляет в месячный европейский тур в ноябре 2001 года вместе с давними друзьями OPETH и NOVEMBRE. Специально к этому событию был выпущен новый сингл группы вышедший в свет 22 октября. " Tonight's Music" содержит две новые песни, записанных специально для этого события и кавер версию хита некоего Will Oldham. Заглавный трэк альбома записывался в студии Sunlightс помощью Tomas Skogsberg'a.</p>
+
+Автор: Dimas
+
+### 25.03.2002 news Новый альбом BLOODBATH
+
+<p>DAN SWANO и его друзья из KATATONIA заперлись наглухо в студии, чтобы через некоторое время представить на всеобщий суд новое полнометражное творение своего брутального проекта BLOODBATH.</p>
+<P> Также в этом году ожидаются новые работы основных групп музыкантов. KATATONIA планирует выпуск своего нового творения к концу 2002 года, а летом 2002 года должен выйти новый альбом NIGHTINGALE (суперпроект DAN SWANO).</>
+
+Автор: Dimas
+
+### 06.08.2002 news Новости от KATATONIA
+
+<p>"Brave Yester Days - A Kompendium" - так называется новый альбом-сборник группы KATATONIA, дающий представление о раннем творчестве группы. Туда войдут песни с мини-альбомов группы и песни не вошедшие на альбомы (нереализованный материал). Какие именно песни войдут в альбом пока еще точно неизвестно. В Европе альбом будет выпущен в этом году через Avantgarde Music а в Америке через Century Media.</p>
+<p> Вместе с тем, группа активно работает над материалом своего нового шестого альбома. Осенью группа планирует начать студийные работы.</p>
+
+Автор: Dimas
+
+### 06.08.2002 news KATATONIA news
+
+<p>"Brave Yester Days - A Kompendium" is the title of a new KATATONIA compilation CD focusing on the sounds of yesterday. The compilation will feature previousy sold out miniCDs and various leftovers all featured on the same disc. What will precisely be included on the disc has not yet been decided. It will be released in Europe by Avantgarde Music and in the US by Century Media</p>
+<p> KATATONIA are currently hard at work writing material and doing pre-production of their sixth full-length album. A new studio has been found and will be booked over autumn for the recordings. More in depth information will follow shortly.</p>
+
+Автор: Dimas
+
+### 20.11.2002 news Katatonia записывают новый альбом
+
+<p>Katatonia записывают свой шестой, пока ещё не названный, альбом в студии, расположенной недалеко от Стокгольма. Всего должно быть 15 композиций. Ударные и бас уже готовы. Также завершили запись гитар Андерс и Фред. Сейчас вовсю идёт запись вокала, после чего альбом останется только смикшировать.</p>
+
+Автор: Morsus
+
+### 20.11.2002 news Katatonia are recording new album
+
+<p>Katatonia now are recording their yet untitled 6:th album in studio, located just outside Stockholm. 15 tracks are to be recorded. The drums and bass tracks for the 15 songs have been recorded. Anders and Fred just finished up a massive doze of guitars. An intense vocal session has now begun as the last stage before mixdown.</p>
+
+Автор: Morsus
+
+### 14.12.2002 news Новости от KATATONIA
+
+<p>Шведская группа KATATONIA пригласила Dan Swano для микширования своего шестого альбома, который должен выйти в начале 2003 года на Peaceville Records. Именно он микшировал самый первый альбом группы "Dance Of December Souls". Новый материал обещается быть самым жестким за всю историю группы (?!?!).</p>
+
+Автор: Dimas
+
+### 05.02.2003 news Новый альбом KATATONIA
+
+<p>24 марта на Peaceville Records выйдет новый альбом шведской группы KATATONIA под названием "Viva Emptiness". Альбом который продюссировал Dan Swano, был записан за четыре недели. В течение пятидесяти трех минут нам будет предоставлена возможность услышать самый жесткий материал, когда-либо записанный группой. В альбом войдут следующие вещи:</p>
+<p> <IMG SRC="/images/news_rus/2003.02/3770.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. Ghost Of The Sun <BR> 02. Sleeper <BR> 03. Criminals <BR> 04. A Premonition<BR> 05. Will I Arrive <BR> 06. Burn The Remembrance <BR> 07. Wealth <BR> 08. One Year From Now <BR> 09. Walking By A Wire<BR> 10. Complicity <BR> 11. Evidence <BR> 12. Omerta <BR> 13. Inside The City Of Glass</p>
+
+Автор: Dimas
+
+### 22.03.2003 news KATATONIA Europian Tour...
+
+<p>Wed 02.04.03 Tavastia, Helsinki, Finland.<BR> Thu 03.04.03 Lutakko, Jyvдskylд, Finland.<BR> Fri 04.04.03 Sддtдmц, Turku, Finland.<BR> Sat 05.04.03 Tuiskula, Nivala, Finland.<BR> Tue 08.04.03 Faust, Hannover, Germany.<BR> Wed 09.04.03 Club SRC, Wroclaw, Poland.<BR> Thu 10.04.03 TV Studio Krzemionki, Krakow, Poland.<BR> Fri 11.04.03 Mega Pub, Budapest, Hungary.<BR> Sat 12.04.03 East Club, Bischofswerda, Germany.<BR> Sun 13.04.03 Waschhaus, Potsdam, Germany.<BR> Tue 15.04.03 Kulturfabrik, Krefeld, Germany.<BR> Wed 16.04.03 Nachtleben/Batschkapp, Frankfurt, Germany.<BR> Thu 17.04.03 Kiff, Aarau, Switzerland.<BR> Fri 18.04.03 Terminal Export, Nancy, France.<BR> Sat 19.04.03 Dioxin, Schindellegi/Schwyz, Switzerland.<BR> Sun 20.04.03 Midian Club, Vicenza, Italy.<BR> Mon 21.04.03 Alpheus, Rome, Italy.<BR> Tue 22.04.03 Transilvania Live, Milan, Italy.<BR> Thu 24.04.03 Crockmore, Perpignan, France.<BR> Fri 25.04.03 K.G.B., Barcelona, Spain.<BR> Sat 26.04.03 Caracol, Madrid, Spain.<BR> Sun 27.04.03 SWR VI, Barroselas, Portugal.<BR> Tue 29.04.03 Republicca II, Valencia, Spain.<BR> Wed 30.04.03 West Rock, Cognac, France.<BR> Thu 01.05.03 Rail Theatre, Lyon, France.<BR> Fri 02.05.03 Infernal, Calais, France.<BR> Sat 03.05.03 Rock City, Nottingham, UK.<BR> Sun 04.05.03 Bierkeller, Bristol, UK.<BR> Mon 05.05.03 Eamon Dorans, Dublin, Ireland.<BR> Tue 06.05.03 Bierkeller, Manchester, UK.<BR> Wed 07.05.03 Cathouse, Glasgow, UK.<BR> Thu 08.05.03 Rio, Bradford, UK.<BR> Fri 09.05.03 ULU, London, UK.<BR> Sat 10.05.03 Eland, Gent, Belgium.<BR> Sun 11.05.03 Tivoli, Utrecht, The Netherlands.<BR> Mon 12.05.03 Logo, Hamburg, Germany.<BR> Tue 13.05.03 ????, Arhus, Denmark.<BR> Wed 14.05.03 Stengade30, Copenhagen, Denmark.<BR> Thu 15.05.03 Debaser, Stockholm, Sweden.<BR> Fri 16.05.03 John Dee, Oslo, Norway.<BR> Sat 17.05.03 Club Frenzy, Goteborg, Sweden.</p>
+
+Автор: Vit Belov
+
+### 08.05.2003 reviews Гениальность или дешёвая поделка?
+
+<p>Многие гиганты, можно сказать мастодонты, вскяких думов и дэтов начала-серидины 90-х в настоящее время превратились..., во что не знаю, но перевоплотились сильно. И если с такими бандами, как Tiamat и Paradise Lost вроде бы всё ясно... Не в обиду им сказано, их творчество довольно понятно. То, например, Anathema углубились настолько в собственное ощущение мира, что отнести их к какому-либо стилю стало просто невозможно. Самое интересное, что многие группы пошли по этому, вроде бы, очень личностному пути. Во главе кучки последователей шведы из Katatonia. При прослушивании их новой работы возникают очень противоречивые чувства. Скажу откровенно, первое впечатление было очень неготивным, зачем, мол, нам столько суицидально-наркоманских групп. Тем более 'Viva Emptiness' не дотягивал до эталона жанра... После третьего прослушивания удалось разглядеть нечто, что могло даже понравится. Вот только мне кажется, что всё равно, данная музыка отдаёт второсортицей, чувствуется какая-то неискренность... Если же мне всё это причудилось, слушать новую Katatonia можно... Музыка утопическая и безнадёжная по стилю, но не по форме.</p>
+
+Автор: Vit Belov
+
+### 11.07.2003 news KATATONIA...
+
+<p>After a highly successful headline tour of Europe the laconic Swedes are back in Stockholm, holed up in bed with lots of hankies & night nurse for company, shaking off a nasty bout of tour bus lurgy. As the media train shows no sign of slowing down since the release of their sixth album - Viva Emptiness, Jonas is still in full interview swing between bouts of coughing & sneezing. Poor love. Viva Emptiness sales have exceeded even our high expectations. Expect more festival dates to be announced real soon.</p>
+
+Автор: Yermola
+
+### 12.11.2003 reviews Надежда умирает последней. Но умирает
+
+<SPAN id=hbblock><LABEL id=HbSession SessionId="3558741534"></LABEL>
+<P>Судя по отзывам, новый релиз KATATONIA разочаровал стольких же любителей некогда очень хорошей команды, скольких привел в восторг. Честно признаюсь, что не ожидал от этого диска кататонийцев чего-либо выдающегося, но, как известно, надежда умирает последней. Что оная с успехом и сделала после прослушивания мной свежего опуса группы. Бросайте в меня камни, но вместо искренности и душевности KATATONIA вывалила на нас изрядную порцию жалостливого нытья, приправив всё это дело новомодным саундом, балансируя при этом на грани с ню-металлом. Боги мои, неужели для рецепта успешного альбома обязательно требуется этот самый чертов ню-металл? А вот запоминающихся мелодий зато нет вообще. Не исключаю, что после сего релиза у команды появятся новые фэны, как и не исключаю того, что многие слушатели, знавшие ту "настоящую" Кататонию, окончательно потеряют интерес к группе, поставив на ней большой и жирный крест. Единственное, что мне действительно понравилось - это оформление, Трэвис Смит, как всегда, великолепен. За что диск и получает лишний балл.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P></SPAN>
+Автор: Ixtiandr
+
+### 09.03.2004 news Выходит сборник KATATONIA
+
+<P>'Brave Yester Days' - так называется сборник редких, и не очень, вещеё KATATONIA, который готовится к выходу в мае. Трэк-лист:</P>
+<P>Volume One (disc 1):<BR><BR>"Jhva Elohim Meth"<BR>01. <B>Midwinter Gates (Prologue)</B> <BR>02. <B>Without God</B><BR>03. <B>Palace Of Frost</B><BR>04. <B>The Northern Silence</B><BR>05. <B>Crimson Tears (Epilogue)</B><BR><BR>"Dance Of December Souls"<BR>06. <B>Gateways Of Bereavement</B><BR>07. <B>Velvet Thorns (Of Drynwhyl)</B><BR><BR>"War Compilation Vol One"<BR>08. <B>Black Erotica</B><BR>09. <B>Love Of The Swan</B><BR><BR>"For Funerals To Come…"<BR>10. <B>Funeral Wedding</B><BR>11. <B>Shades Of Emerald Fields</B><BR>12. <B>For Funerals To Come</B><BR>13. <B>Epistel</B><BR><BR>Volume Two (Disc 2):<BR><BR>"Brave Murder Day"<BR>01. <B>Murder</B><BR>02. <B>Rainroom</B><BR><BR>"Sounds Of Decay"<BR>03. <B>Nowhere</B><BR>04. <B>At Last</B><BR>05. <B>Inside The Fall</B><BR>06. <B>Untrue</B> (Previously Unreleased)<BR><BR>"Saw You Drown"<BR>07. <B>Nerve</B><BR>08. <B>Saw You Drown</B><BR>09. <B>Quiet World</B><BR>10. <B>Scarlet Heavens</B> </P>
+Автор: Vit Belov
+
+### 11.03.2004 news Новости из Швеции - одной строкой
+
+<P>Выход нового альбома <B>KATATONIA</B> запланирован на осень 2004 года.</P>
+<P>Реанимировавшиеся недавно <B>BLOODBATH</B> нашли нового вокалиста и нового ударника. Это известные в мире death metal личности, но их имена пока держатся в большом секрете. Запись нового альбома уже начата.</P>
+<P>Из-за занятости в <B>BLOODBATH</B>, <B>Blakkheim</B> и <B>Dan Swano</B> приостановили работу над новым альбомом <B>DIABOLICAL MASQUERADE</B>.</P>
+<P><B>AMON AMARTH</B> приступили к сочинению песен для нового альбома.</P>
+Автор: Dimas
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 11.10.2004 news KATATONIA не поддерживает переиздание первого альбома
+
+<P><IMG height=250 alt="KATATONIA не поддерживают переиздание" hspace=0 src="/images/news_rus/2004.10/7217.gif" width=250 align=left border=5>Шведская фирма <STRONG>Black Lodge</STRONG> собралась переиздать первый альбом <STRONG>KATATONIA</STRONG> <STRONG>'Dance Of December Souls'</STRONG>. Группа дистанцировалась от этого переиздания.</P>
+<P>"<EM><STRONG>Black Lodge</STRONG>&nbsp;переиздают <STRONG>'Dance Of December Souls'</STRONG>. Мы были бы не против, если пластинку переиздали с оригинальным оформлением и лого, но на фирме придумали какой-то новый кавер, в котором использованы мотивы наших новых работ, а также лого "новой эры". Мы не поддерживаем этот релиз и предупреждаем фэнов, чтобы они не приняли этот компакт-диск за новую пластинку <STRONG>KATATONIA</STRONG></EM>".</P>
+Автор: Vit Belov
+
+### 11.10.2004 news KATATONIA don&#39;t support re-issue of their classic
+
+<P><STRONG><IMG height=250 alt="KATATONIA don't support" hspace=0 src="/images/news/2004.10/7218.gif" width=250 align=left border=5>KATATONIA </STRONG>don't support re-issue of their classic album <STRONG>'Dance Of December Souls'</STRONG>. Press-statement from their web-site:</P>
+<P>"<EM>It has been known to us, that Black Lodge records are going to re-issue the old classic 'Dance of December Souls' album. Although the CD could just as well have been re-pressed with the original cover and old logo, it now ridicules both the past and present by showing up with a new pathetic cover trying to depict elements from our last album and the abuse of the "new era" logo on something that was released more than 10 year ago. Don't be fooled into confusing this is for a new Katatonia release. Consequently, we do not support this re-issue and take complete distance from its existance</EM>".</P>
+Автор: Vit Belov
+
+### 17.10.2004 news KATATONIA выпускают ещё один сборник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Зимой&nbsp;на <STRONG>Peaceville</STRONG> выходит ещё один сборник <STRONG>KATATONIA 'The Black Sessions'</STRONG>. На него войдут вещи "новой эры" 1998-2004 года. Альбом выйдет в двойном digi-pack и на нём можно будет найти все кавера, b-side и нереализованные вещи за этот период, а также избранные лучшие песни.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Примерно в это же время свет увидит DVD от <STRONG>KATATONIA</STRONG>, на котором будет записано прошлогоднее шоу группы в Кракове.</FONT></P>
+Автор: Vit Belov
+
+### 17.10.2004 news KATATONIA to release &#39;best of&#39; and DVD
+
+<P><STRONG>KATATONIA</STRONG> posted this satement on their official site:</P>
+<P>"<EM>Peaceville will be issuing a limited edition compilation entitled 'The Black Sessions' featuring selected material from the "new era" (defined 1998-2004) as opposed to the "old era" material covered in 'Brave Yester Days' at the end of January. The packaging will be a box set of two discs featuring all the single's b-sides, cover songs and selective songs off 'Discouraged Ones' up and til 'Viva Emptiness' (including one unreleased track from this recording session). There'll also be a third disc in the form of a live DVD with a Katatonia live show from April 2003 that was shot in Kracow, Poland. The layout of a 12 page booklet + poster will be handled by Travis Smith.</EM></P>
+<P><EM>The official DVD release that has been in the works since over a year and a half has been postponed to a yet undecided future date, likely during the later part of 2005. Reason is we didn't feel entirely happy with the way it was shaping up and it wouldn't meet our own demands of what should be Katatonia's first offical DVD release. A new main show for this DVD will be planned and shot with more careful directing behind it during next year (tba). We're also pretty far on our way of gathering cool backstage and bootleg shots with our own handycam, that will in the end make up some great bonus footage for a well worthwhile killer release</EM>."</P>
+Автор: Vit Belov
+
+### 09.01.2005 news Подробности о новом сборнике KATATONIA
+
+<P>21 февраля выходит 3-дисковый сборник<STRONG> KATATONIA 'The Black Sessions'</STRONG>. Трэк-лист:</P>
+<P>CD #1:</P>
+<P>1. <STRONG>Teargas</STRONG> [3:32]<BR>2. <STRONG>Right Into The Bliss</STRONG> [5:05] <BR>3. <STRONG>Criminals </STRONG>[3:47]<BR>4. <STRONG>Help Me Disappear</STRONG> [5:14]<BR>5. <STRONG>Nerve </STRONG>[4:30]<BR>6. <STRONG>The Future Of Speech</STRONG> [5:39]<BR>7. <STRONG>Ghost Of The Sun</STRONG> [4:07]<BR>8. <STRONG>I Am Nothing</STRONG> [4:37]<BR>9. <STRONG>Deadhouse</STRONG> [4:35]<BR>10. <STRONG>Passing Bird</STRONG> [3:38]<BR>11.<STRONG> Sleeper</STRONG> [4:08]<BR>12.<STRONG> Sulfur</STRONG> [6:23]<BR>13. <STRONG>No Devotion</STRONG> [4:49]<BR>14. <STRONG>Chrome</STRONG> [5:14]<BR>15.<STRONG> A Premonition</STRONG> [3:34] </P>
+<P>CD #2 </P>
+<P><IMG height=183 alt="" hspace=0 src="/images/news_rus/2005.01/7628.jpg" width=200 align=right border=5>1. <STRONG>Dispossession</STRONG> [5:37]<BR>2. <STRONG>Cold Ways</STRONG> [5:23]<BR>3. <STRONG>Nightmares By The Sea</STRONG> [4:16]<BR>4. <STRONG>O How I Enjoy The Light</STRONG> [2:44]<BR>5. <STRONG>Evidence</STRONG> [4:36]<BR>6. <STRONG>March 4</STRONG> [3:53]<BR>7. <STRONG>I Break</STRONG> [4:22]<BR>8. <STRONG>For My Demons</STRONG> [5:43]<BR>9. <STRONG>Omerta </STRONG>[2:58]<BR>10. <STRONG>Tonight's Music</STRONG> [4:20]<BR>11. <STRONG>Stalemate </STRONG>[4:19]<BR>12. <STRONG>Wait Outside</STRONG> [3:38]<BR>13. <STRONG>Fractured</STRONG> [5:52]<BR>14. <STRONG>Sweet Nurse</STRONG> [3:56]<BR>15. <STRONG>Black Session</STRONG> [7:02] </P>
+<P>DVD: <STRONG>LIVE AT KRAKOW, POLAND, APRIL 2003</STRONG> </P>
+<P>1. <STRONG>Ghost Of The Sun</STRONG><BR>2. <STRONG>Criminals</STRONG><BR>3. <STRONG>Teargas<BR></STRONG>4. <STRONG>I Break</STRONG><BR>5. <STRONG>I Am Nothing</STRONG><BR>6. <STRONG>Sweet Nurse</STRONG><BR>7. <STRONG>Sleeper<BR></STRONG>8. <STRONG>Tonight's Music</STRONG><BR>9. <STRONG>For My Demons</STRONG><BR>10. <STRONG>Chrome<BR></STRONG>11. <STRONG>Future Of Speech</STRONG><BR>12. <STRONG>Complicity</STRONG><BR>13. <STRONG>Burn The Remembrance</STRONG><BR>14. <STRONG>Evidence<BR></STRONG>15. <STRONG>Deadhouse<BR></STRONG>16. <STRONG>Murder</STRONG></P>
+Автор: Vit Belov
+
+### 25.03.2005 news KATATONIA объявили о концертах в России
+
+<P>"<EM>С большим удовлетворением мы анонсируем наше первое выступление в России. "Mother Russia" ждёт нас в середине сентября. Нашими целями станут Москва и Санкт-Петербург</EM>", - сообщает <STRONG>KATATONIA</STRONG> на своём сайте. </P>
+<P>16 сентября коллектив отметится в клубе "Порт", а 17 сентября - в клубе "Точка".&nbsp;</P>
+Автор: Vit Belov
+
+### 24.06.2005 news KATATONIA записывают новый альбом
+
+<P><STRONG>KATATONIA</STRONG> записывают новый альбом. В настоящий момент записаны барабаны и половина ритм-гитар. Запись проходит в<STRONG> Fascination Street</STRONG>, где группа микшировала "<STRONG>Viva Emptiness</STRONG>".</P>
+Автор: Vit Belov
+
+### 29.08.2005 articles KATATONIA в Москве и Санкт-Петербурге, пресс-релиз
+
+KATATONIA – шведская группа c мировым именем. При его упоминании всегда невольно проскакивает мысль: “Сравнения напрасны”. Если лавина депрессии и безысходности гениальных работ KATATONIA второй половины 90-х поставила мировую сцену металлической музыки на колени, то каждый новый альбом не только укрепляет завоёванные ранее позиции группы, но даже заставляет равнодушных учтиво склонять головы при одном только упоминании имени “KATATONIA”. Это музыка, рождённая в ночи. Сладкая печаль, горечь потери и отчаяние в красивейшей оболочке, сотканной из нитей дума, готик-рока и того самого компонента, который свойственен только KATATONIA и в чистом виде не имеет аналогов… который заставляет ещё раз вспомнить о том, что “сравнения напрасны”. Шанс убедиться в этом лично вам дарит в начале этой осени компания JC-Sound. Впервые за свою карьеру KATATONIA ступит на русскую землю, чтобы дать два эксклюзивных по своему содержанию концерта: в Санкт-Петербурге и Москве!<BR><BR>А началось всё в 1991 году… с Греции! Именно от греческого “katatonos”, что значит “натянутый”, происходит название группы. Этим словом в науке принято обозначать психическое расстройство с преобладанием двигательных нарушений. Конечно, в воздухе витали и другие названия: Decomposed, Drifter, Entity – но отцы-основатели Андерс Нистром и Йонас Ренксе предпочли “KATATONIA”, и уже через год витиеватый логотип украшал обложку первой демо-кассеты ‘Jhva Elohim Meth’. Сегодня музыка этого релиза может показаться чересчур архаичной и малоинтересной, но тринадцать лет назад, в 1992-ом году, KATATONIA была одной из первых шведских групп, которая начала сочетать в своей музыке медленный ритм и жёсткий вокал. В этом нет ничего удивительного – в то время на Андерса и Йонаса большое влияние оказывала музыка британцев Paradise Lost. Как оказалось, не только на них – первый тираж ‘Jhva Elohim Meth’, который группа записала с именитым продюсером Дэном Свано (Opeth, Dark Funeral, Theatre Of Tragedy, Marduk и многие другие), разошёлся очень быстро, и сегодня это настоящая коллекционная редкость!<BR><BR>Первый полноценный альбом ‘Dance Of December Souls’ KATATONIA подготовила при непосредственном участии нового басиста Гийома Ле Хуче в 1993 году. Все песни были записаны с первого “дубля” так, как они звучали на репетициях, но, несмотря на это и на огрехи в звучании, дебютный альбом удался на славу. Здесь можно встретить почти всё: от монотонного готического фона и думовых гитар, до дэтового вокала и блэковой тематики в текстах. А песня ‘Without God” всколыхнула тысячи людей и стала настоящим хитом. ‘Dance Of December Souls’ вывел группу на мировой уровень, с ним началось фантастическое движение.<BR><BR>Если о ‘Dance Of December Souls’ многие говорили, как о попытке имитировать звучание Tiamat и Paradise Lost, то следующая работа группы ‘Brave Murder Day’, вышедшая на Avantgarde Records в 1996 году, надолго отбила у завистников желание говорить об отсутствии у KATATONIA творческих сил идти по оригинальному пути музыкального развития. Это был значительный скачок вверх. Снова в качестве трио (уже без Гийома Ле Хуче, но с новым гитаристом Фредом Норрманом) KATATONIA изобрела новую формулу. “Среднетемповый ровный барабанный ритм с обрушивающейся стеной монотонных дисторшированных гитар” – так её охарактеризовал гитарист Андерс Нистром. Гипнотическая простота тяжести. Интересен этот релиз ещё и тем, что в процессе его подготовки выяснилось, что штатный вокалист KATATONIA, барабанщик Йонас Ренксе, утратил способность петь дэтовым вокалом, и группе пришлось обратиться за помощью к Микаелю Акерфельдту из Opeth. Тот потрясающе справился со своей работой и даже подумывал о том, чтобы остаться в KATATONIA, но… судьба распорядилась иначе. Не лишним будет заметить, что ‘Brave Murder Day’ покорил сердца не только простых поклонников тяжёлой музыки – поговаривают, что сам Грэг Макинтош из Paradise Lost после прослушивания этого альбома долго не мог прийти в себя.<BR><BR>После появления у Йонаса проблем с гроулингом отношение KATATONIA к музыке стало более открытым. ‘Brave Murder Day’ дал ясно понять, что группа стоит на пороге чего-то нового, находится в поиске своей индивидуальности. ‘Discouraged Ones’ – так называется третий альбом KATATONIA, увидевший свет в 1998 году. “Упавшие духом” музыканты постарались начать работу с чистого листа. Унаследовав от своего предшественника монотонность и отрешённость, ‘Discouraged Ones’ поразил мир металлической музыки апатичным звуком, крайне депрессивным настроем и, что не менее важно, “чистым” вокалом Ренксе, в котором сквозили и жалость, и грусть, и отрешённость. Проводя аналогии с поговоркой “аппетит приходит после еды” можно сказать, что эмоции, рождаемые музыкой ‘Discouraged Ones’, наваливаются на человека только после того, как стихает последний аккорд. Настолько альбом захватывает внимание слушателя. Если ‘Brave Murder Day’ был гипнотической простотой тяжести, то ‘Discouraged Ones’ стал её квинтэссенцией.<BR><BR>Успех ‘Discouraged Ones’ принёс KATATONIA контракт на пять альбомов с легендарным английским лейблом Peaceville (Paradise Lost, Anathema, My Dying Bride). Для группы настали новые времена, но в музыкальном плане KATATONIA продолжила развивать идеи, заложенные в ‘Discouraged Ones’. Альбом ‘Tonight’s Decision’ (1999) является логическим продолжением своего предшественника, но в то же время… он другой! Музыка стала немного сложней, звук уже не такой грязный и андеграундный, он более гладкий и тяжёлый. Настроение записи носит суицидальный характер, бал правит безысходность. Вокал Йонаса звучит ещё эмоциональней. Быть может, потому, что он сложил с себя обязанности барабанщика, а может и потому, что партии вокала в основном записывались по ночам и источником вдохновения для него служила абсолютная тишина вокруг и мысли о полном одиночестве. Кстати, на выручку тогда KATATONIA пришёл Дэн Свано, который за день разучил все партии ударных и помог рождению очередного шедевра.<BR><BR>Продолжение последовало в 2001 году. ‘Last Fair Deal Gone Down’ – так музыканты решили назвать свой очередной альбом. А их в KATATONIA к тому моменту было уже пять: к группе присоединились басист Маттиас Норрман и барабанщик Даниель Лильеквист. Сегодня ‘Last Fair Deal Gone Down’ считается одним из лучших альбомов KATATONIA. Группе удалось добиться более глубокой звуковой картины, впервые больше внимания было уделено партиям ударных, вокал Йонаса звучал великолепно, а песни до сих пор не потеряли своей актуальности. Вместо ожидаемого многими перехода к использованию электроники KATATONIA записала очередной гитарно-ориентированный альбом, который многие, по собственному же признанию, смогли понять только после нескольких прослушиваний.<BR><BR>Облегчать звучание KATATONIA не хотела и со следующим альбомом ‘Viva Emptiness’ (2003). Сегодня группа делает ставку на тяжесть в звуке и структуру песен, утопленную в атмосфере. Тяжёлые гитарные риффы и злой перегруженный дисторшн – вот что делает музыку KATATONIA конкурентно способной. Именно поэтому ‘Viva Emptiness’ стал самым сложным и агрессивным альбомом группы за последние годы.<BR><BR>Отдельного внимания заслуживают живые выступления, ибо каждый концерт KATATONIA – настоящий эмоциональный взрыв. “Я вижу полное смешение атмосферы и отрыва” – так видит свою группу “живьём” гитарист Андерс Нистром. Но это всего лишь одна из составляющих концертных выступлений KATATONIA. Неподдельная искренность – вот наиболее важный компонент, достойный упоминания в свете грядущего приезда группы в России. Ни в коем случае нельзя забывать, что это будет первая встреча с легендой не только для нас с вами – KATATONIA никогда прежде не выступала в России и встреча с русской публикой, которая считается не менее легендарной, для неё тоже будет первой. Именно поэтому группа постарается по максимуму разнообразить свою программу, состоящую из хитов с последних альбомов, нетленной классикой прошлого. Украшением обоих вечеров станет выступление группы Forest Stream с новой программой. Мечты начнут сбываться 16 и 17 сентября – это дни, когда депрессия и счастье сойдутся на одной сцене и пробудят в каждом из вас доселе неиспытанные чувства.<BR><BR>Пресс-релиз подготовил <B>Алексей "KiDd" Кузовлев</B>
+Автор: Vit Belov
+
+### 07.09.2005 news KATATONIA в Москве и Санкт-Петербурге
+
+<IMG height=282 alt="" hspace=0 src="/images/shows_rus/2005.07/8995.jpg" width=400 align=left border=5>Концертное агентство <B>JC-SOUND PROD.</B> представляет:<BR><B>16-го сентября в питерском "Порту" и 17-го сентября в московском клубе "Точка"</B> впервые за свою крайне успешную и продолжительную карьеру на российскую землю приедут легендарные шведские doom-металлисты <B>KATATONIA</B>. И т.к. эти концерты станут историческими не только для отечественных фэнов doom-metal, но и для самих музыкантов - между организаторами и группой была достигнута договорённость не делать упор на песни с последнего альбома и максимально разнообразить программу. Сет-лист, который <B>KATATONIA</B> подготовит специально только для этих российских концертов, позволяет придать этим и без того ярким концертам самый эксклюзивный статус! Также стоить отметить, что support-band этого мини-тура группа <B>Forest Stream</B> (с новой программой) станет тем самым редким случаем, когда открывающая группа станет отличным дополнением к хедлайнеру. Более того, обе команды готовят совместный сюрприз для своих поклонников! Не пропустите свой шанс вживую услышать композиции, которые уже давно стали классикой doom-metal!</B><BR><BR>Стоимость билетов:<BR>VIP - <B>1000р.</B> (по вопросам приобретения звоните в клуб "Точка" - 7377666)<BR><B>ВНИМАНИЕ!!! С 14-го июля и до конца первой недели августа первые 200 билетов в партер на московский концерт будут продаваться ТОЛЬКО в магазине "Зиг-Заг" по специальной цене в </B><B>550р.</B> С 8 августа билеты в партер будут стоить <B>700р.</B> и поступят в продажу также в кассу клуба, в театральные кассы Москвы и на точку "Metal and Progressive" ТЦ Рубин.<BR><BR>Билеты на питерский концерт поступят в продажу (сеть магазинов "Айсберг", рок-магазины города) ближе к концу июля - <B>500р.</B><BR>Начало концертов: <B>19-00</B><BR><BR>Организация - концертное агентство <B>JC-Sound Prod.</B><BR>Контакты: <B><A href="mailto:jeff@irond.ru">jeff@irond.ru</A></B> или <B><A href="mailto:jc-sound@mail.ru">jc-sound@mail.ru</A></B><BR>Дополнительная информация на сайте: <B><A href="http://www.jcsound.ru/">www.jcsound.ru</A></B><BR>
+Автор: Vit Belov
+
+### 03.10.2005 articles KATATONIA в Москве: они приехали осенью
+
+<P><EM>Katatonia, Москва, клуб "Точка", 17 сентября 2005 г. Организатор: JC Sound.</EM></P>
+<P><IMG height=310 src="/images/articles_rus/2005.10/9459.jpg" width=245 align=left border=0>Всё меньше и меньше остаётся групп, не побывавших с концертами в России. Вот и Кататония отметилась у нас, сыграв два концерта в Питере и в Москве. Концерт анонсировался ещё в начале лета, с середины июля можно было покупать билеты со скидкой. Готовились к приезду загодя, основательно.</P>
+<P>Многие мечтали увидить воочию любимую группу, но мало кто&nbsp;кажется всерьёз рассчитывал&nbsp;услышать именно ту старую Кататонию. Знаю лично нескольких ценителей ранних альбомов Кататонии,&nbsp;проигнорировавших концерт, даже несмотря на маркетинговый ход в виде обещания некоего сюрприза, кое-чего эксклюзивного из старого репертуара. Всё-таки время идёт вперёд и старой Кататонии давно уже нет. Но есть всё те же люди и они сочиняют отличную музыку. Факт. Самим музыкантам очень даже нравятся все их ранние альбомы, но на концертах они ничего из этого не играют. Музыка меняется, люди меняются, а новые альбомы Кататонии по-прежнему великолепны, хоть и в другом ключе. И поклонников у группы не становится меньше. Полный зал. Не так как на Лэйк оф Тирс конечно, но вполне прилично. Люди не случайные, отлично знают на&nbsp;какую группу&nbsp;пришли.&nbsp;С первой же песни Ghost Of The Sun&nbsp;плотные ряды&nbsp;самых фанатичных поклонников&nbsp;у сцены напирая на спины друг друга слаженно заорали вместе с вокалистом, что аж уши заложило, и дальше одну за другой все песни пелись на ура. Впечатляет. А чуть дальше, в середине зала&nbsp;- настоящий слэм, стоит музыке&nbsp;чуть чуть прибавить напора и экспрессии, и понеслась - прыгающие потные туши, отдавленные ноги, и вроде приличные на вид люди. Лишь&nbsp;отойдя от сцены метров на десять подальше, можно спокойно постоять послушать.&nbsp;</P>
+<P><IMG height=310 src="/images/articles_rus/2005.10/9460.jpg" width=245 align=left border=0>Что касается зала, то тут&nbsp;всё ясно,&nbsp;а вот обстановка на сцене оставила двоякое впечатление. Я не видел концертного ДВД Кататонии, поэтому совершенно не представлял заранее, каковы они на сцене.&nbsp;По общему впечатлению - Кататонию концертной группой назвать нельзя. Нет, всё вполне нормально, музыканты не стоят как истуканы, видно что&nbsp;играют с&nbsp;удовольствием,&nbsp;польщены тёплым приёмом, но не более того. Если на гитариста Блэкхейма на пару с басистом ещё любо посмотреть, какие финты они&nbsp;порой выделывали со своими инструментами и какие рожи корчили, то&nbsp;фронтмен Йонас Ренске подвижностью не отличался напрочь. Почти на одном и том же месте простоял весь концерт, а ведь его вид задаёт&nbsp;впечатление о группе в целом. В нужных местах тряс хайром,&nbsp;грустно улыбался, говорил спасибо.&nbsp;В майке The Sisters of Mercy, флегматичный, даже как бы усталый с виду. Микрофон намертво привязан к стойке и не вынимался на протяжении всего концерта, не то чтобы там протянуть в зал или побегать с ним с одного края сцены к другому. Но народу для счастья достаточно было узнавать свои любимые песни, слышать их живьём. Наверное, есть группы, для которых этого и правда достаточно для хорошего концерта, и Кататония из их числа.</P>
+<P>Сет-лист целиком состоял из песен с последних альбомов и лишь в конце сыграли Murder, вызвав всеобщий восторг. Попрощались и ушли. Отличная концовка, но на финал ещё не похоже. Должен же быть законный бис, как же без него. Орали, орали и дождались... эээ... опять Форест Стрим. Типа вот, группа Кататония попросила нас выйти и сыграть за них эту песню. Хе, забавная фишка. Странно даже. Вот он значит какой сюрприз. Не, Форест Стрим - замечательно, спору нет, и в качестве разогрева отличный выбор. Более того, их выступление многим показалось даже&nbsp;сильнее хедлайнеров. Но ведь ээ... мм... на бис то Кататонию ждали, настрой так сказать был такой, а тут ломается весь&nbsp;привычный ход концерта&nbsp;и приходится слушать&nbsp;Without God в исполнении снова Форест Стрим. И ведь отлично исполнено, сочно так, с приятным рыком, но всё же... Уже и песня к концу идёт, где ж сюрприз то?&nbsp;И&nbsp;вот в последнем куплете выходят участники Кататонии и сумбурно, но эффектно все вместе допевают песню. И теперь точно конец, все расходятся.</P>
+Автор: Morsus
+
+### 02.12.2005 news Звёзды metal называют любимые альбомы в 2005 году
+
+<P>Шведский журнал <STRONG>Close-Up</STRONG> попросил известных музыкантов назвать любимые альбомы в 2005 году. Единодушия среди артистов не возникло. Только несколько пластинок было названо в тройки несколькими голосовавшими. Например, альбом <STRONG>OPETH "Ghost Reveries"</STRONG> назвали <STRONG>Leif Edling</STRONG> (<STRONG>CANDLEMASS</STRONG>) и <STRONG>Anders Nystrom</STRONG> (<STRONG>KATATONIA</STRONG>), а альбом <STRONG>SYSTEM OF A DAWN</STRONG> "<STRONG>Mesmerize</STRONG>" - <STRONG>Nergal </STRONG>(<STRONG>BEHEMOTH</STRONG>) и <STRONG>Robert Flynn</STRONG> (<STRONG>MACHINE HEAD</STRONG>). Также по нескольку раз упоминались альбомы <STRONG>SOILWORK</STRONG>&nbsp;и&nbsp;<STRONG>SPIRITUAL BEGGARS</STRONG>.</P>
+<P>В остальном выбор звёзд был хаотичен и слишком разнообразен по стилевым направлениям.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 21.03.2006 reviews Держась рядом, но на &quot;прохладной дистанции&quot;
+
+<P>После трехлетнего перерыва шведские меланхолики Katatonia наконец-то разродились новым полноформатником под названием "The Great Cold Distance", предполагая, видимо, держаться на определенном отдалении от своих слушателей. Собственно, данный альбом является логическим продолжением линии, выбранной на "Viva Emptiness". Большинство вещей довольно спокойные, построенные по классическому принципу "припев-куплет" (кстати, немного смахивает на гранджевые дела - очень неторопливый, "тихий" куплет и взрывной - относительно, естественно -&nbsp;рефрен). Слава Господу, заунывного нытья, которое буквально заболотило предыдущий опус именитой команды, стало намного меньше, да и оставшийся модерновым саунд не такой перегруженный, а вот сама меланхолия как-то стала посветлее, если можно так выразиться. Так что в общем и целом "The Great Cold Distance" слушается намного приятнее релиза 2003-го года, но общее впечатление портит отсутствие хитов и некоторая однообразность композиций; какую-то вещь из этих двенадцати композиций выделить практически невозможно. К середине альбома возникает ощущение, что ты слушаешь одну и ту же песню. Но все-таки нельзя не отметить, что, несмотря на название пластинки, "The Great Cold Distance" всё же будет поближе к слушателю (во всяком случае к тому, кто любит более ранние вещи группы), чем "Viva Emptiness". И еще один момент. Я не видел буклета альбома (у меня только промо), но красный цвет обложки подходит музыке Katatonia, как, простите, корове седло.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 12.09.2006 news Peaceville переиздаст наследие KATATONIA
+
+<P>Нынешний лэйбл<STRONG> KATATONIA Peaceville</STRONG> приобрёл права на бэк-каталог <STRONG>KATATONIA</STRONG> и периздаст старые работы группы в формате Digi-pack с бонусами. Первенцем станет переиздание "<STRONG>Brave Murder Day</STRONG>", которое выйдет 23 октября. Также английский лэйбл купил права на альбомы сайд-проектов участников <STRONG>KATATONIA</STRONG>: <STRONG>DIABOLICAL MASQUERADE</STRONG> и <STRONG>OCTOBER TIDE</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.03.2007 news KATATONIA выпускают CD&#x2F;DVD
+
+<P><STRONG>KATATONIA</STRONG> выпустят материал со своего выступления на прошлогоднем фестивале<STRONG> Summerbreeze</STRONG> в качестве CD/DVD 28 мая этого года. Релиз будет называться "<STRONG>Live Conservation</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>Leaders <BR></STRONG>2. <STRONG>Wealth<BR></STRONG>3. <STRONG>Soil's Song <BR></STRONG>4. <STRONG>Had To (Leave) <BR></STRONG>5. <STRONG>Cold Ways <BR></STRONG>6. <STRONG>Right Into The Bliss <BR></STRONG>7. <STRONG>Ghost Of The Sun<BR></STRONG>8. <STRONG>Criminals <BR></STRONG>9. <STRONG>Deliberation </STRONG><BR>10. <STRONG>July<BR></STRONG>11.<STRONG> Evidence </STRONG></P>
+Автор: Vit Belov
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 28.12.2007 news KATATONIA осенью
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KATATONIA</STRONG> сообщили, что забронировали студию в 2008 году. По плану группы пластинка выйдет в середине будущей осени.</FONT></P>
+Автор: Vit Belov
+
+### 04.06.2009 news KATATONIA войдут в студию
+
+<P>Запись нового альбома<STRONG> KATATONIA</STRONG> начнётся 10 июня. Именно в этот день будут записаны барабаны к восьмой работе шведов. Группа обещает несколько крупных сюрпризов на этой пластинке.</P>
+Автор: Vit Belov
+
+### 24.07.2009 news KATATONIA назвали альбом
+
+<P>Новый альбом <STRONG>KATATONIA</STRONG> получил название <STRONG>"Night Is the New Day" </STRONG>и выйдет 16 октября на <STRONG>Peaceville</STRONG>. На пластинку попадёт 11-12 трэков.</P>
+Автор: Vit Belov
+
+### 19.08.2009 news Альбом KATATONIA перенесён
+
+<P>Новый альбом <STRONG>KATATONIA</STRONG> <STRONG>"Night Is The New Day" </STRONG>выйдет 2 ноября на <STRONG>Peaceville</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.11.2009 news Новое видео KATATONIA
+
+<P>Видеоклип<STRONG> KATATONIA</STRONG> <STRONG>"Day And Then The Shade" </STRONG>можно посмотреть ниже. Ролик снят режиссёром <STRONG>Lasse Hoile (OPETH, PORCUPINE TREE). </STRONG>Песня попала на новый альбом группы <STRONG>"Night Is The New Day"</STRONG>,&nbsp;выходящий на этой неделе на <STRONG>Союзе</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=100584079,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=100584079,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.11.2009 reviews Беспроигрышный сезон для KATATONIA
+
+<P>Новый альбом KATATONIA подоспел как раз вовремя. Осень пора самоубийств и обострения подобных настроений в массах людей с отклонениями психики. Не подумайте, что я кого-то хочу обидеть, просто таких людей очень много, а стрессы и меланхолическое восприятие мира не являются признаками каких-то определённых диагностируемых заболеваний.</P>
+<P>Давно уже прошли те времена, когда KATATONIA были властителями дум одних людей, которым нравился их супердебют “Dance Of December Souls”. Теперь наступили другие времена, когда шведы являются властителями дум совсем других людей. Мрачная, атмосферная музыка с несильным намёком на запоминающиеся мелодии, но с великолепной дозой меланхолии, которая пронизывает слушателя всего насквозь. Это скорее рок, чем метал, хотя на новом альбоме есть несколько подозрительных мест с тяжёлой кривой гитарой в духе современных “–core” элементов. Но эти места быстро проходят, как проходит быстро всё, что имеется в этой музыке, кроме её атмосферы. Слушая этот альбом, я натолкнулся на отличный индикатор возможного фаната этой музыки. Если вы готовы приобрести альбом, где в одной из песен вокалист напевает себе под нос под акустическую гитару: «Ла-ла-ла», “Night Is The New Day” для вас. В обратном случае, не тратьте деньги.</P>
+<P>KATATONIA понравится также любителям ANATHEMA, но, к сожалению, я не смог обнаружить у шведов мелодий англичан, от которых в конце 90-х все сходили с ума, не взирая на желание или нежелание кончать с собой. Здесь делается упор на атмосферу. Если это была единственная цель, группа справилась с ней на «отлично». Если нет, оценку можно и занизить.</P>
+Автор: Vit Belov
+
+### 23.12.2009 news KATATONIA покинули два музыканта
+
+<P>Гитарист<STRONG> Fredrik "North" Norrman</STRONG> и басист <B>Mattias "Kryptan" Norrman</B> покинули <STRONG>KATATONIA</STRONG>. Первый был в группе 15 лет, а второй - 10. Это первая смена состава у шведов с 1999 года. <STRONG>KATATONIA </STRONG>уже назвали имена временных участников. Гитаристом стал техник группы и участник <STRONG>BLOODBATH</STRONG> <STRONG>Per 'Sodomizer' Eriksson, </STRONG>а басистом - <STRONG>Niklas 'Nille' Sandin.</STRONG></P>
+Автор: Vit Belov
+
+### 03.03.2010 news Новое видео KATATONIA
+
+<P><STRONG>KATATONIA</STRONG> опубликовали клип на песню <STRONG>"The Longest Year". </STRONG>Режиссёром ролика выступил <STRONG>Charlie Granberg</STRONG> (<STRONG>BLOODBATH, MY DYING BRIDE</STRONG>).</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/b9E53eUhEmA&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/b9E53eUhEmA&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.04.2010 articles KATATONIA в Санкт-Петербурге: &quot;Черная гамма ярких эмоций&quot;
+
+<P style="TEXT-ALIGN: center; MARGIN: 0cm 0cm 10pt" class=MsoNormal align=center><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>KATATONIA </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">в Санкт-Петербурге (16 апреля, 2010)</SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">В пятницу 16-го в клубе «Орландина» было черным-черно. Нет, там ни кто не умер и не было траура. Скорее, наоборот, в большом концертном зале даже воздух был заряжен каким-то зловещим весельем. Все дело в том, что в рамках обширного Европейского тура под названием</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"> <SPAN style="mso-spacerun: yes">&nbsp;</SPAN>“</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">New Night </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>O</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">ver Europe Tour” 2010 к нам приехала депрессивнейшая группа планеты </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>KATATONIA</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">. Этот концерт стал завершающий в туре, до нас группа успела объехать практически всю Европу. Концерты прошли в Великобритании, Нидерландах, Бельгии, Испании, Италии, Чехии, Польши и многих других странах. И вот, наконец, блэк-металлисты добрались до конечной точки своего большого путешествия- Питера.<?xml:namespace prefix = o ns = "urn:schemas-microsoft-com:office:office" /><o:p></o:p></SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">Не смотря на то, что тур не заладился еще до его начала, накладок в процессе практически не было. Каждый поклонник группы </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>KATATONIA</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1"> понимает, о чем сейчас идет речь. А именно, об уходе 22 декабря 2009 года <SPAN style="mso-spacerun: yes">&nbsp;</SPAN>братьев Норрманов - Маттиаса и Фредрика. Они объявили об этом практически сразу после оглашения новости о весеннем туре, а мотивировали они свое решение <SPAN style="mso-spacerun: yes">&nbsp;</SPAN>множеством мелких факторов, которые не позволят им находиться далеко от дома в ближайший год, то есть семейными причинами. Но, как известно, свято место пусто не бывает, и замену Норрманам нашли оперативно. Маттиаса заменил Никлас Сандин, а место Фредрика занял много лет работавший техником в группе - Пер Эрикссон. Причем новенькие настолько быстро и хорошо вписались в команду, что фанаты, похоже, даже не ощутили особых перемен. <o:p></o:p></SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">К моменту начала концерта не только участники группы чувствовали себя уставшими от продолжительного тура, но и зрители были не совсем в кондиции. Все дело в количестве групп разогрева. Ни кто лично не имел ни чего против данных команд, однако слушать все 3 группы, а потом еще бодро подпевать Кататонии оказалось довольно трудной задачей. Однако, стойко застолбившие свои места в первых рядах фанаты даже не думали делать попыток капитуляции к бару за все 3 часа пока их «грели»!<o:p></o:p></SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">И вот в 22.00 сцену заволокло дымом и послышались первые звуки песни Forsaker . Все потеряли связь с реальностью. Концерт проходил на одном дыхании, однако многие расстроились, что не прозвучали такие песни как </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>D</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">eparter и </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>P</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">alace </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>O</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">f </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>F</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">rost. Хотя с кем бы </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>D</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">eparter могла быть спета? Ведь в оригинале ее исполняют Йонас с<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>Кристером Линдером. Но людей это, по сути, мало волновало и они требовательно выкрикивали из зала название любимой композиции! В начале песни </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>T</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">ear </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>G</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">as барабанщик то ли устал и запутался, то ли просто задумался и «простучал» что-то не то. Но группа дружно посмеялась над ним, вместе </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>c</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1" lang=EN-US> </SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">теми из зала, кто заметил накладочку и продолжили.<o:p></o:p></SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1; mso-ansi-language: EN-US" lang=EN-US>KATATONIA</SPAN><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1"> предпочитали петь, а не говорить. То есть, общения со зрителями было по минимуму во время концерта, буквально пара фраз. Однако стоило прозвучать последней ноте завершающей композиции Criminals, как группа тут же «пошла в массы». Они жали руки, кланялись, улыбались, расписывались. В общем, полностью компенсировали недостаток общения во время концерта!</SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">(Текст: Анна Ходакова)</SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">Трэк-лист концерта:</SPAN></P>
+<P style="MARGIN: 0cm 0cm 10pt" class=MsoNormal><SPAN style="LINE-HEIGHT: 115%; FONT-FAMILY: 'Verdana','sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-bidi-font-family: 'Times New Roman'; mso-themecolor: background1">01. Forsaker<BR>02. Liberation<BR>03. My Twin<BR>04. Onward Into Battle<BR>05. Complicity<BR>06. The Longest Year<BR>07. Omerta<BR>08. Teargas<BR>09. Idle Blood<BR>10. Ghost of the Sun<BR>11. Evidence<BR>12. July<BR>13. Criminals</SPAN></P>
+Автор: Headcrusher
+
+### 01.01.2012 news KATATONIA выпустят альбом до лета
+
+<P><STRONG>KATATONIA</STRONG> работают над своим девятым альбомом, который выйдет до конца лета. Также группа завершает свой юбилейный DVD "<STRONG>Last Fair Day Gone Night</STRONG>". Подробности последуют в наступившем году.</P>
+<P><center><IMG height=609 src="/images/news_rus/2012.01/22429.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.05.2012 news KATATONIA назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>KATATONIA,</STRONG> который выйдет в сентябре на <STRONG>Peaceville</STRONG>, получил название <STRONG>"Born From Nothing". </STRONG>Альбом был записан в студии <STRONG>Ghost Ward, </STRONG>а спродюсировали его лидеры коллектива <STRONG>Anders "Blakkheim" Nystrom</STRONG>&nbsp;и <B>Jonas Renkse.</B></FONT></P>
+<P>
+<CENTER><IMG height=317 src="/images/news_rus/2012.05/23887.jpg" width=475 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 27.05.2012 news KATATONIA выступят без Anders Nystrom
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>KATATONIA</STRONG> дадут сегодня изавтра два концерта в России. Коллектив приехал к нам без гитариста <STRONG>Anders</STRONG> <STRONG>Nystrom, </STRONG>который сильно заболел и не смог присоединится к группе в поездке в нашу страну.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сегодня шоу состоится в Санкт-Петербурге, а завтра - в Москве.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.05/24033.jpg" width=431 height=604></P>
+Автор: Vit Belov
+
+### 30.05.2012 news Новый альбом KATATONIA
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.05/24051.jpg" width=475 align=right border=0>Новая работа <STRONG>KATATONIA</STRONG> <STRONG>"Dead End Kings" </STRONG>выйдет 27 августа на <STRONG>Peaceville</STRONG>. Трек-лист:</P>
+<P>01. <B>The Parting</B><BR>02. <B>Hypnone</B><BR>03. <B>Undo You</B><BR>04. <B>The Racing Heart</B><BR>05. <B>Buildings</B><BR>06. <B>Leech</B><BR>07. <B>The One You Are Looking For Is Not Here</B> (with Silje Wergeland)<BR>08. <B>First Prayer</B><BR>09. <B>Ambitions</B><BR>10. <B>Lethean</B><BR>11. <B>Dead Letters</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Katatonia

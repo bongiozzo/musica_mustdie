@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2016 news ENTITY выпустили сингл
+
+<p>Канадская death metal банда <strong>ENTITY</strong> выпустила сингл "<strong>200.000 Years</strong>". В качестве приглашённого гостя при записи этого трека отметился<strong> Roger Mowat</strong> из<strong> GOD SAID KILL</strong>. Трек войдёт в дебютный альбом коллектива "<strong>Phobia Of The Formless</strong>", который выйдет в 2017 году.</p><p><center><iframe width="60%" height="450" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/users/8499641&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false" frameborder="no" scrolling="no"></iframe><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.07/29581.jpg" border="0"><p></p></center></center>
+Автор: Vit Belov
+
+### 13.07.2016 news ENTITY to release single
+
+<p>Canadian death metal band<strong> ENTITY</strong> released the single "<strong>200.000 Years"</strong>. As a guest at the recording of this track marked <strong>Roger Mowat</strong> of <strong>GOD SAID KILL</strong>. The track will be included in the debut album, "<strong>Phobia Of The Formless</strong>", which will be released in 2017.</p><p><center><iframe width="60%" height="450" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/users/8499641&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false" frameborder="no" scrolling="no"></iframe><p>&nbsp;<center><img width="500" height="500" src="/images/news_rus/2016.07/29581.jpg" border="0"><p></p></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

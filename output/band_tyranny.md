@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.11.2015 news Второй за 10 лет новый альбом TYRANNY
+
+<P>Проект финского музыканта <STRONG>Matti Makela (PROFETUS) TYRANNY</STRONG> выпустил второй альбом "<STRONG>Aeons In Tectonic Interment</STRONG>". Funeral doom metal команда выпустила вторую работу за 10 лет, ведь предыдущий диск группы вышел в 2005 году. Приобрести диск можно здесь: <A href="http://escapemind.ru/goods/TYRANNY-Aeons-In-Tectonic-Interment-CD">http://escapemind.ru/goods/TYRANNY-Aeons-In-Tectonic-Interment-CD</A></P>
+<P>Трек-лист:</P>
+<P><STRONG>1. Sunless Deluge<BR>2. A Voice Given unto Ruin<BR>3. Preparation of a Vessel<BR>4. The Stygian Enclave<BR>5. Bells of the Black Basilica</STRONG> </P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/HUfZjzo4AiI" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

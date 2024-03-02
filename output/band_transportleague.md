@@ -43,6 +43,57 @@ Transport League  -  Arranger, Vocals (bckgr), Mixing
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.09.2001 news Органный Урожай от Лиги Транспортников...
+
+<p>Шведы "TRANSPORT LEAGUE" с октября садятся в Studio Fredman для записи новейшего творения - Multiple Organ Harvest. Крутить ручки и нажимать на педали будет маститый Fredrik Nordstr&ouml;m (THE HAUNTED, IN FLAMES, AT THE GATES, SPIRITUAL BEGGARS, HAMMERFALL, etc.), а войдут на "Урожай": 01. Fold 'n Disgusted 02. Safe (Houdini) 03. Cop-Out 04. Disconnect Massconnect 05. Lobotomico 06. Slack, Wrist и 07. Smack...</p>
+
+Автор: Yermola
+
+### 17.09.2001 news Multiple Organ Harvest...
+
+<p>Sweden’s TRANSPORT LEAGUE will now enter Studio Fredman on October 20th to record their new album, entitled Multiple Organ Harvest. Due to be produced by Fredrik Nordstrцm (i.e. THE HAUNTED, IN FLAMES, AT THE GATES, SPIRITUAL BEGGARS, HAMMERFALL, etc.), the album will include the following tracks, among others: 01. Fold 'n Disgusted 02. Safe (Houdini) 03. Cop-Out 04. Disconnect Massconnect 05. Lobotomico 06. Slack, Wrist 07. Smack Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.01.2002 news Время собирать урожай....
+
+<p>Шведы "TRANSPORT LEAGUE" в Oral Majority Recordings Studios с продюссером Roberto Laghiin работают над альбомом "Multiple Organ Harvest". Трек-лист: <BR><BR> 01. El Gordo<BR> 02. Sick Scum<BR> 03. Never to Burn<BR> 04. Fold 'n Disgusted<BR> 05. Safe (Houdini) <BR> 06. Cop-Out<BR> 07. Disconnect Massconnect<BR> 08. Lobotomico<BR> 09. Slack, Wrist<BR> 10. Smack<BR> 11. No Soul Attached<BR> 12. Wrapt Dead Inside<BR> 13. My Master<BR><BR> Во время записи альбома из команды ушли гитарист Peter Hunyadi и барабанщик Patrik J. Sten, новым соло-гитаристом стал бассист (!!!) Adam Magnusson, так же в группу пришли Stipe (барабаны ex-MERCILESS) и Stitch (ex-DIA PSALMA) ...</p>
+
+Автор: Yermola
+
+### 03.01.2002 news TRANSPORT LEAGUE To Record New CD In February ...
+
+<p>Sweden's TRANSPORT LEAGUE will enter Oral Majority Recordings Studios with producer Roberto Laghiin February to lay down their next effort, to be entitled Multiple Organ Harvest. Among the titles that are set to appear on the forthcoming album are the following: <BR><BR> 01. El Gordo<BR> 02. Sick Scum<BR> 03. Never to Burn<BR> 04. Fold 'n Disgusted<BR> 05. Safe (Houdini) <BR> 06. Cop-Out<BR> 07. Disconnect Massconnect<BR> 08. Lobotomico<BR> 09. Slack, Wrist<BR> 10. Smack<BR> 11. No Soul Attached<BR> 12. Wrapt Dead Inside<BR> 13. My Master<BR><BR> As previously reported, TRANSPORT LEAGUE recently parted ways with guitarist Peter Hunyadi and drummer Patrik J. Sten due to “musical differences” and have almost completely revamped their line-up, with bassist Adam Magnusson switching to lead guitar, and new members Stipe (drums ex-MERCILESS) and Stitch (ex-DIA PSALMA) coming into the fold. The new line-up will make its live debut on February 1st at Gothenburg's Belsepub.</p>
+
+Автор: Yermola
+
+### 28.05.2002 news Транспортники займутся ампутацией....
+
+<p>Известные шведские транспортники выпустили EP "Grand Amputation" на собственном лэйбле Hoffa Communications и через MNW distribution. Ампутация может быть заказана путем посылания по почте $10 US/10 EUR/100 SEK на адрес: <BR> <BR> Transport League<BR> Linnеgatan 52<BR> 41308 Gothenburg<BR> SWEDEN<BR><BR> Трек-лист:<BR><BR> 01. Accessus Adligo…<BR> 02. Lobotomico<BR> 03. Disconnect Massconnect<BR> 04. El Gordo<BR> 05. Slack, Wrist, Smack<BR> 06. Safe (Houdini)<BR> 07. Exitus Adligo…<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news TRANSPORT LEAGUE Strike Back With &quot;Grand Amputation&quot; ....
+
+<p>Sweden's TRANSPORT LEAGUE have just issued a brand new EP, entitled Grand Amputation, through their own Hoffa Communications via MNW distribution in Scandinavia. An impressive exercise in post-MACHINE HEAD groove-laden crunch with more than a fair share of melody throw in for good measure, Grand Amputation can be obtained by sending $10 US/10 EUR/100 SEK in well-concealed cash to: <BR><BR> Transport League<BR> Linnйgatan 52<BR> 41308 Gothenburg<BR> SWEDEN<BR><BR> The full track listing for Grand Amputation is as follows:<BR><BR> 01. Accessus Adligo…<BR> 02. Lobotomico<BR> 03. Disconnect Massconnect<BR> 04. El Gordo<BR> 05. Slack, Wrist, Smack<BR> 06. Safe (Houdini)<BR> 07. Exitus Adligo…<BR><BR> In other news, TRANSPORT LEAGUE performed at the Rock i Dalen street festival in Цrkelljunga, Sweden on Saturday, May 25th as a last-minute replacement for ENTOMBED, who withdrew from the event for undisclosed reasons.<BR><BR> For more information on TRANSPORT LEAGUE, visit the band's official web site at <A HREF="http://www.transportleague.cjb.net/">this location.</A></p>
+
+Автор: Yermola
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> новости<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> news<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

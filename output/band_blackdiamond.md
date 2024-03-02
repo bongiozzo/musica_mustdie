@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2016 news Karthago переиздадут BLACK DIAMOND
+
+<p>Известные коллекционеры heavy metal редкостей с лэйбла<strong> Karthago</strong> издадут 26 августа альбом немецкой группы <strong>BLACK DIAMOND "Faces",</strong> добитый разнообразными демо-записями. BLACK DIAMOND - это проект <strong>Andreas Roch</strong>, группа существовала до <strong>DORIAN GRAY</strong>.</p><p>Трек лист:</p><p>1. Fight Together<br>2. Break Out<br>3. Metal Opening - Rockwire<br>4. Hard Rock<br>5. Temple of Love<br>6. Angel's Ride (Bonustracks)<br>7. Surplus Love (Bonustrack)<br>8. Time (Bonustrack)<br>9. Watch Out (Bonustrack)<br>10. Rock Time (Bonustrack)<br>11. Night Rider (Bonustrack)<br>12. Delivery (Bonustrack)<br>13. Hello Again (Bonustrack)</p><p>Total Playing Time 55:46 min</p><p><center><img width="400" height="400" src="/images/news_rus/2016.07/29626.jpg" border="0"></p><p><center><img width="600" height="473" src="/images/news_rus/2016.07/29627.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 20.07.2016 news Karthago will re-release BLACK DIAMOND
+
+<p>The release date of the<strong> BLACK DIAMOND</strong> album „<strong>Faces</strong>“ on CD is August 26th, 2016. The pre-order phase will start on August 12th.</p><p>BLACK DIAMOND from Northrhine-Westfalia/Germany was <strong>Andreas Roch</strong>'s project before <strong>DORIAN GRAY</strong>. His musical abilities showed themselves for the first time with BLACK DIAMOND and luckily he made also some albums with his later band. Sadly BLACK DIAMOND released only one EP in 1985. All other songs were put out only as Demos. The speedy sound on the EP combined with catchy songlines ("Break out", "Hard Rock" and "Temple Of Love") was typical for the time but had a higher class than many competitors.</p><p>The musical direction changed a little bit with the 1989-Demo. "Hello Again" and "Night Rider" were less speedy but catchy again. "Delivery" and "Rock Time" contained an epic touch. Really fine material without doubt, but the missing promotion and distribution made it hard for this good band to survive. The vocalist Uwe Merz and main songwriter Andy Roch decided to open a new chapter and founded DORIAN GRAY. Many more great and unique songs were written and released on 6 albums (one album was only instrumental work), but the success never came, because also with DORIAN GRAY marketing and distribution were too weak to support a breakthrough in a reasonable way!</p><p>Track list:</p><p>1. Fight Together<br>2. Break Out<br>3. Metal Opening - Rockwire<br>4. Hard Rock<br>5. Temple of Love<br>6. Angel's Ride (Bonustracks)<br>7. Surplus Love (Bonustrack)<br>8. Time (Bonustrack)<br>9. Watch Out (Bonustrack)<br>10. Rock Time (Bonustrack)<br>11. Night Rider (Bonustrack)<br>12. Delivery (Bonustrack)<br>13. Hello Again (Bonustrack)</p><p>Total Playing Time 55:46 min</p><p><center><img width="400" height="400" src="/images/news_rus/2016.07/29626.jpg" border="0"><p></p><p><center><img width="600" height="473" src="/images/news_rus/2016.07/29627.jpg" border="0"><p></p></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

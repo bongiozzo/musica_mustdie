@@ -38,6 +38,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.10.2011 news Новый альбом TALAMYUS
+
+<P>Третий альбом канадских викингов <STRONG>TALAMYUS "Raven's Call To Annihilation"</STRONG> вышел в октябре. Одна из самых уважаемых метал-команд в провинции Квебек анонсирует свой тур по Канаде совместно с <STRONG>АРКОНА</STRONG> в ноябре. </P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/talamyus">http://www.myspace.com/talamyus</A></P>
+<P><center><IMG height=216 src="/images/news_rus/2011.10/21483.jpg" width=325 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

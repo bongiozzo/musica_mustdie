@@ -36,6 +36,14 @@ Free My Soul
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.01.2009 news GODIVA покинули три музыканта
+
+<P><STRONG>Peter Gander</STRONG> (drums), <B>Mitch Koontz</B> (bass)&nbsp;и <B>Steve Papacharitos</B> (lead guitar) покинули <STRONG>GODIVA</STRONG>, из-за музыкальных разногласий и проблем с менеджментом.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

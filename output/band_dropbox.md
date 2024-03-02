@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.12.2002 news DROPBOX IS COMING...
+
+<p>Godsmack's Front man Sully Erna to sign first band on his brand new Universal Records imprint label. Dropbox. Carving Rock Sonics out of Obscure Material. Looking Towards a Universal Records Release for Spring 2003.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

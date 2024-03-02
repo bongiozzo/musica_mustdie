@@ -36,6 +36,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.04.2009 reviews Шведы умеют играть тяжело и мелодично
+
+<P>Молодые шведы ZONARIA выпустили свой второй альбом “The Cancer Empire” на Century Media, а это уже некоторая рекомендация. Весть о том, что музыканты играют мелодичный black-metal с клавишами, вообще, должна некоторых лишить покоя.</P>
+<P>В настоящее время не так много групп в подобных стилях находятся на металлических «major лэйблах». В основном симфонично-мелодичный блэк обитает на подпольных скдладах, поэтому появление подобной группы на Century Media само по себе должно привлекать внимание. Что ж, заметив на полях, что подобных групп в той же Швеции можно отыскать огромное количество, скажу, что этот альбом мне понравился. Чёткая современная реализация, хорошие мелодии, неожиданные звуковые решения, разнообразный материал. В музыке ZONARIA отлично сочетаются мелодичные, порой даже медленные, моменты и black-death-metal забой, который мог бы оказаться и на альбоме BELPHEGOR, например. Под конец, правда, музыканты излишне увлекаются мелодиями, чтобы порекомендовать этот альбом любителям забоя, но поклонники black-metal с клавишами останутся довольны.</P>
+<P>Хорошая пластинка, которой смело можно выставлять высокую оценку. Качество, мелодии, стандарт… Покупатели и коллекционеры не ошибутся в выборе.</P>
+Автор: Vit Belov
+
+### 11.01.2010 news ZONARIA войдут в студию
+
+<P>Шведы <STRONG>ZONARIA</STRONG> готовятся войти в студию<STRONG> Abyss</STRONG> с продюсером <STRONG>Jonas Kjellgren</STRONG> (<B>SCAR SYMMETRY</B>, <B>SONIC SYNDICATE</B>, <B>HYPOCRISY</B>, <B>CENTINEX</B>, <B>CARNAL FORGE</B>) для записи нового альбома.</P>
+Автор: Vit Belov
+
+### 17.05.2012 news ZONARIA на Listenable
+
+<P><IMG border=0 hspace=0 alt="" align="right" src="/images/news_rus/2012.05/23946.jpg" width=475 height=317>Шведские death/black-metal'исты&nbsp; подписали контракт с Listenable. Третий альбом музыкантов <B>"Arrival Of The Red Sun" </B>был записан в Abyss Studio с продюсером <B>Jonas Kjellgren</B> (<B itxtHarvested="0" itxtNodeId="49">SCAR SYMMETRY</B>, <B itxtHarvested="0" itxtNodeId="48">SONIC SYNDICATE</B>, <B itxtHarvested="0" itxtNodeId="47">HYPOCRISY</B>, <B itxtHarvested="0" itxtNodeId="46">CENTINEX</B>, <B itxtHarvested="0" itxtNodeId="45">CARNAL FORGE</B>) и выдет 23 июля. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="37">Arrival Of The Red Sun</B><BR itxtNodeId="36">02. <B itxtHarvested="0" itxtNodeId="35">Silent Holocaust</B><BR itxtNodeId="34">03. <B itxtHarvested="0" itxtNodeId="33">Gunpoint Salvation</B><BR itxtNodeId="32">04. <B itxtHarvested="0" itxtNodeId="31">Liberation Zero</B><BR itxtNodeId="30">05. <B itxtHarvested="0" itxtNodeId="29">The Blood That Must Be Paid</B><BR itxtNodeId="28">06. <B itxtHarvested="0" itxtNodeId="27">Desert Storms</B><BR itxtNodeId="26">07. <B itxtHarvested="0" itxtNodeId="25">A Lullaby To Those Still Alive</B><BR itxtNodeId="24">08. <B itxtHarvested="0" itxtNodeId="23">Full Spectrum Dominance</B><BR itxtNodeId="22">09. <B itxtHarvested="0" itxtNodeId="21">My Vengeance Remains</B><BR itxtNodeId="20">10. <B itxtHarvested="0" itxtNodeId="19">Face My Justice</B><BR itxtNodeId="18">11. <B itxtHarvested="0" itxtNodeId="17">CC Cowboys</B> (bonus track limited-edition CD only)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

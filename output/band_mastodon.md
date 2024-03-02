@@ -148,6 +148,168 @@ Mixed at Henson Studios in Los Angeles.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.06.2006 news Гора крови от MASTODON
+
+<P>Американские монстры тяжёлой сцены <STRONG>MASTODON </STRONG>завершили работу над своим третьим альбомом под названием <STRONG>"Blood Mountain"</STRONG>,&nbsp;который выйдет осенью на новом для группы лейбле <STRONG>Warner Bros.</STRONG> Он был записан в сиэтльской студии с продюсером <STRONG>Matt Bayles</STRONG> (<B>ISIS</B>, <B>HORSE THE BAND</B>).&nbsp;Микшировался материал в Нью-Йорке под присмотром&nbsp;<B>Rich Costey</B> (<B>AUDIOSLAVE</B>, <B>MY CHEMICAL ROMANCE</B>). В альбом войдут такие вещи, как <B>"Circle of Cysquatch"</B>, <B>"Hunters of the Sky"</B>, <B>"The Sleeping Giant"</B>, <B>"Bladecatcher"</B>, <B>"The Colony of Birchmen"</B>, <B>"Pendulous Skin"</B>, <B>"The Siberian Divide"</B>, <B>"Capillarian Crest"</B>, <B>"Hand of Stone"</B>, <B>"Crystal Skull"</B>, <B>"The Wolf Is Loose"</B>&nbsp;и <B>"This Mortal Soil"</B>. <BR></P>
+Автор: Dimas
+
+### 30.10.2008 news Новый альбом MASTODON
+
+<P>Новый альбом <STRONG>MASTODON "Crack the Skye" </STRONG>выходт в начале 2009 годана <STRONG>Reprise Records</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Oblivion</B><BR itxtvisited="1">02. <B itxtvisited="1">Divinations</B><BR itxtvisited="1">03. <B itxtvisited="1">Quintessence</B><BR itxtvisited="1">04. <B itxtvisited="1">The Czar</B><BR itxtvisited="1">I. Usurper<BR itxtvisited="1">II. Escape<BR itxtvisited="1">III. Martyr<BR itxtvisited="1">IV. Spiral<BR itxtvisited="1">05. <B itxtvisited="1">Ghost of Karelia</B><BR itxtvisited="1">06. <B itxtvisited="1">Crack The Skye</B><BR itxtvisited="1">07. <B itxtvisited="1">The Last Baron</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 09.01.2009 news Новая песня MASTODON
+
+<P><STRONG>MASTODON</STRONG> выложили на своём сайте новую песню "<STRONG>Oblivion</STRONG>". Она войдёт на новую пластинку американцев "<STRONG>Crack The Skye</STRONG>", выходящую в марте.</P>
+<P>Ссылка: <A href="http://www.mastodonrocks.com/splash/">http://www.mastodonrocks.com/splash/</A></P>
+Автор: Vit Belov
+
+### 27.01.2009 news Обложка MASTODON
+
+<P>Новый альбом <STRONG>MASTODON</STRONG> <STRONG>"Crack The Skye" </STRONG>выйдет вскоре. Группа опубликовала обложку.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.01/13453.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.02.2009 news MASTODON сыграют весь альбом
+
+<P><STRONG>MASTODON </STRONG>отыграют новый альбом "<STRONG>Crack the Skye</STRONG>" целиком на каждом шоу будущего тура. Группа также планирует снять небольшой фильм по этому альбому.</P>
+Автор: Vit Belov
+
+### 07.03.2009 news Новое видео MASTODON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню<STRONG> "Divinations" MASTODON</STRONG> можно посмотреть ниже. Режиссёром выступил <STRONG>Roboshobo</STRONG>.</FONT></P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:346252 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D346252%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A346252%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A346252" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/mastodon/artist.jhtml" target=_blank>Mastodon</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.03.2009 news MASTODON можно послушать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MASTODON</STRONG> <STRONG>"Crack The Skye" </STRONG>можно послушать на<STRONG> MySpace</STRONG> страничке: <A href="http://www.myspace.com/mastodon">http://www.myspace.com/mastodon</A></FONT></P>
+Автор: Vit Belov
+
+### 27.03.2009 news MASTODON очень популярны в Штатах
+
+<P>Новый альбом <STRONG>MASTODON</STRONG> <STRONG>"Crack The Skye"</STRONG>, вышедший в США на прошлой неделе, продался в количестве от 30000 до 35000 экземпляров. Данные о чартах<STRONG> Billboard</STRONG> поступят позже.</P>
+Автор: Vit Belov
+
+### 10.06.2009 news Новое видео от MASTODON
+
+<P>Видео <STRONG>MASTODON</STRONG> на песню <STRONG>"Oblivion" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=58673491,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=58673491,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.12.2009 reviews Музыка для высоких умов
+
+<P>Американскую команду MASTODON нельзя назвать малоизвестной, но их новейший альбом “Crack The Skye” стал первым, с которым я ознакомился. Я понимаю, почему так и не смог осилить ни одну работу американцев до этого.</P>
+<P>Обозреваемая пластинка представляет собой progressive-metal, основанный не на традициях art-rock, как у многих их коллег по стилю, а на традициях core, alternative и даже grunge. Представьте себе ALICE IN CHAINS или SOUNDGARDEN, которые играют сложносоставную концептуальную музыку. Нелинейные мелодии, разнообразные вокалы, поют все участники группы после того, как их покинул вокалист, завораживающие переходы. Всё это настолько оригинально, что не поддаётся детальному описанию. Просто странная музыка, которая должна впечатлить любителей всего нового и интересного, но вряд ли понравится поклонникам традиционных стилей метала. Я себя больше отношу ко второй категории, как не стыдно в этом признаваться. По этой причине, группа MASTODON не пробудила во мне благородных стремлений и не возбудила в моей голове гармонического разума, поражающего своей глубиной. В общем, не понравилось мне.</P>
+<P>Забавная музыка. Почему-то мне кажется, что MASTODON – это эдакие хиппи, которые, при полном своём пофигизме, каким-то образом впечатляют продвинутую публику, признающую их безусловные достоинства. А эти ребята просто разводят руками, не понимая, почему музыка, которая до этого нравилась только им самим, теперь продаётся тысячными тиражами.</P>
+Автор: Vit Belov
+
+### 25.05.2010 news MASTODON отменили тур
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MASTODON</STRONG> отменили тур по Европе, из-за обострившегося панкреатита гитариста <STRONG>Bill Kelleher. </STRONG>В рамках этой трассы группа должна была выступать в Москве 29 июня.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыкант планирует поправиться к осеннему туру по Штатам, куда<STRONG> MASTODON</STRONG> поедут вместе с <STRONG>ALICE IN CHAINES</STRONG> и <STRONG>DEFTONES</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.02.2011 news MASTODON: CD&#x2F;DVD &quot;Live At The Aragon&quot;
+
+<P>Группа&nbsp;<B itxtHarvested="1" itxtNodeId="442">MASTODON</B> впервые выпускает концертный релиз, получивший название <B itxtHarvested="1" itxtNodeId="441">"Mastodon: Live At The Aragon"</B>.&nbsp;&nbsp;Издание будет включать CD и DVD,&nbsp;на которых запечатлён звуковой шторм, записанный и снятый на концерте в поддержку альбома&nbsp;<STRONG>"Crack The Skye"</STRONG>&nbsp;в чикагском зале <STRONG>Aragon Ballroom</STRONG> 19 октября 2009 года.&nbsp;&nbsp;Дата выхода CD/DVD&nbsp;запланированна на 15 марта&nbsp;на <B itxtHarvested="1" itxtNodeId="440">Reprise Records</B>. <BR itxtNodeId="438"><BR itxtNodeId="437">В данный момент на сайте&nbsp;&nbsp;<A href="http://www.mastodonrocks.com/" target=_blank itxtBad="1" itxtNodeId="424"><U><FONT color=#0000ff>MastodonRocks.com</FONT></U></A>, можно сделать предзаказ на специальное издание <B itxtHarvested="1" itxtNodeId="423">"Mastodon: Live At The Aragon"</B>, которое включает в себя гитарный медиатр и копию <STRONG>all-access</STRONG> бейджа.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.02/18493.jpg" width=475 height=317> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 07.07.2011 news MASTODON: обложка альбома &quot;The Hunter&quot;
+
+<P>Обложку для нового&nbsp;полноформатника <STRONG>MASTODON</STRONG>,&nbsp;получившего название&nbsp;<B>"The Hunter"</B>, можно посмотреть ниже. Иллюстрация была выполнена резчиком по дереву по имени <B>AJ Fosik</B>. Он так же является автором рисунка, который группа использует в качестве "задника"&nbsp;в текущем туре. Это будет первый альбом <B>MASTODON</B>, на котором не будет красоваться картина от <B>Paul Romano</B>.</P>
+<P>Фотографии, с прошедшего 4 июля в Москве концерта <STRONG>MASTODON</STRONG>, можно посмотреть у нас на сайте в разделе <STRONG>Photos</STRONG>: <A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.07/19969.jpg" width=475 height=475> 
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+### 14.07.2011 news Трейлер нового MASTODON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальный трейлер нового альбома <STRONG>MASTODON</STRONG> <STRONG>"The Hunter" </STRONG>можно посмотреть ниже. Пластинка должна выйти в октябре.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/QMN5FcgBvBU?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/QMN5FcgBvBU?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></CENTER>
+Автор: Vit Belov
+
+### 17.08.2011 news MASTODON: клип на песню &quot;Curl Of The Burl&quot;
+
+<P><STRONG>MASTODON</STRONG> представили новый клип на трек <STRONG>"Curl Of The Burl"</STRONG>,&nbsp;с выходящего в скором времени альбома<STRONG> "The Hunter"</STRONG>.&nbsp;Режиссёр ролика Аарон Хаймс (<STRONG>Aaron Hymes</STRONG>). </P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=349 src="http://www.youtube.com/embed/f3LLX9ThXjI" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 27.09.2011 news Новый клип MASTODON
+
+<P>Видео-клип американцев <STRONG>MASTODON</STRONG> на песню "<STRONG>Curl Of The Burl</STRONG>" можно посмотреть ниже. Режиссёром ролика выступил<STRONG> Roboshobo</STRONG>, работавший с <STRONG>METALLICA</STRONG>. Новый альбом группы "<STRONG>The Hunter</STRONG>", с которого взята эта песня, выйдет 27 сентября.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/lAihDAJX8Ow" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 25.01.2012 news Новый клип MASTODON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>MASTODON</STRONG> на песню "<STRONG>Dry Bone Valley</STRONG>" можно посмотреть ниже. Трек взят с сентябрьского альбома<STRONG> MASTODON "The Hunter"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/wBIDmUoTYqQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 28.10.2013 news MASTODON выпускают концертный релиз &quot;Live At Brixton&quot;
+
+<P><STRONG>MASTODON</STRONG> выпускают новый концертный альбом, записанный на аншлаговом концерте в Лондоне 11 февраля прошлого года. </P>
+<P>На него войдут 97 минут музыки. Дата выхода: 10 декабря 2013 г.</P>
+<P>Также будет доступна видео версия концерта, режиссёром которой стал<STRONG> Ryan Mackfall</STRONG> (<STRONG>Crashburn Media</STRONG>). </P>
+<P>Рекламный ролик концерта можно посмотреть по ссылке: <A href="http://youtu.be/vC2zcKJl0Zc">http://youtu.be/vC2zcKJl0Zc</A></P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Dry Bone Valley</STRONG> | 2. <STRONG>Black Tongue</STRONG> | 3. <STRONG>Crystal Skull</STRONG> | 4. <STRONG>I Am Ahab</STRONG> | 5. <STRONG>Capillarian Crest</STRONG> | 6. <STRONG>Colony of Birchmen</STRONG> | 7. <STRONG>Megalodon</STRONG> | 8. <STRONG>Thickening</STRONG> | 9. <STRONG>Blasteroid</STRONG> | 10. <STRONG>Sleeping Giant</STRONG> | 11. <STRONG>Ghost Of Karelia</STRONG> | 12. <STRONG>All The Heavy Lifting</STRONG> | 13. <STRONG>Spectrelight</STRONG> | 14. <STRONG>Curl Of The Burl</STRONG> | 15. <STRONG>Bedazzled Fingernails</STRONG> | 16. <STRONG>Circle Of Cysquatch</STRONG> | 17. <STRONG>Aqua Dementia</STRONG> | 18. <STRONG>Crack The Skye </STRONG>|19.<STRONG> Where Strides The Behemoth</STRONG> | 20. <STRONG>Iron Tusk</STRONG> | 21. <STRONG>March Of The Fireants</STRONG> | 22. <STRONG>Blood And Thunder</STRONG> | 23.<STRONG> Creature Lives</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.10/26285.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 18.04.2014 news MASTODON: новый трек в сети
+
+<P><STRONG>MASTODON</STRONG> представили новый трек под названием <STRONG>"High Road"</STRONG>. Песня войдёт в их шестой студийный альбом <STRONG>"Once More Round The Sun"</STRONG>, который планируется к выходу летом 2014 г.</P>
+<P>Послушать <STRONG>"High Road"</STRONG> можно по ссылке: <A href="http://www.mastodonrocks.com/highroad">www.mastodonrocks.com/highroad</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26910.jpg" width=660 height=291></P>
+Автор: Headcrusher
+
+### 29.04.2014 news MASTODON: детали альбома &quot;Once More &#39;Round The Sun&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стала известна дата выхода нового альбома <STRONG>MASTODON</STRONG>. Диск <STRONG>"Once More 'Round The Sun"</STRONG>&nbsp;выйдет 24 июня 2014 года на <STRONG>Reprise Records</STRONG>.&nbsp; </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ниже также можно посмотреть сет-лист альбома и обложку, которую нарисовал человек, скрывающийся под псевдонимом <STRONG>Skinner</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Больше его работ можно посмотреть по адресу: <A href="http://www.theartofskinner.com/">www.theartofskinner.com</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист: </FONT></P>
+<P>01. <STRONG>Tread Lightly</STRONG> | 02. <STRONG>The Motherload</STRONG> | 03. <STRONG>High Road</STRONG> | 04. <STRONG>Once More 'Round The Sun</STRONG> | 05. <STRONG>Chimes At Midnight</STRONG> | 06. <STRONG>Asleep In The Deep</STRONG> | 07. <STRONG>Feast Your Eyes</STRONG> | 08. <STRONG>Aunt Lisa</STRONG> | 09. <STRONG>Ember City</STRONG> | 10. <STRONG>Halloween</STRONG> | 11. <STRONG>Diamond In The Witch House</STRONG> (при участии&nbsp;<STRONG>Scott Kelly</STRONG> из <STRONG>NEUROSIS</STRONG>) 
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26950.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 29.09.2014 news MASTODON: клип на песню &quot;The Motherload&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>MASTODON</STRONG> опубликовали новый видоклип на песню <STRONG>"The Motherload"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>18+</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/Sp7CYvh8FwA?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 15.08.2016 reviews Прогрессивные фрики меняют себя, не изменяя себе
+
+<p>Бравая четверка американских фриков не сдается и продолжает свой путь к искушенным ушам слушателей и вершине хит-парада Billboard. Это по моим подсчётам уже 7ой диск бородатых беспредельщиков.</p><p>Чётко охарактеризовать жанр Mastodon не представляется возможным современной науке, в целом можно отметить тенденцию перехода от утробного техничного "дэт-образного" sludge metal к мелодичному, более мягкому, но по прежнему немного сумасшедшему stoner/heavy metal, и слушать каждый виток этого пути крайне интересно. В целом - альбом получился в хорошем смысле коммерческим - короткие песни, эмоциональные припевы, цепляющие соляки, вкуснейший самобытный саунд (а когда было по другому?), но и психоделичность, "неподражательная странность" ансамбля тоже никуда не делась. Поют почти все участники команды (или вообще все, я так и не разобрал), поют здорово и душевно. Все как то безбашенно, а вместе с тем и продумано - более динамичный трек сменяется психоделическим, "балладо-образным", вокалисты так же чередуются. В целом диск похож на своего предшественника, но зацепил меня он почему-то больше, по видимому он более эмоционально насыщенный, нервный в хорошем смысле.</p><p>Всем ценителям оригинальной и прогрессивной, в хорошем смысле, тяжёлой музыки надо непременно послушать эту пластинку. Впрочем, если раньше творчество Mastodon казалось вам слишком техничным и сумасшедшим, так же попробуйте оценить именно этот альбом - музыканты явно сделали шаг вам навстречу.</p>
+Автор: Horeok
+
+
 ## Обсуждения
 
 

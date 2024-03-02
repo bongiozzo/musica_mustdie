@@ -105,6 +105,73 @@ Sand In The Wind
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.04.2001 reviews Немного о падении Авроры...
+
+<p> Угадайте с трех попыток в каком стиле играет группа, на обложке диска которой изображен задумчивый молодой рыцарь с огроменным мечом, взирающий на поверженную нечисть, пришпиленную копьем к дереву напротив? Нет ответа? Хорошо, а если скажу, что группа называется Highlord (Высокоблагородие :-)) и альбом называется «Когда падает Аврора» (Аврора – это звезда и богиня, а не крейсер, как думают многие :-))? Все равно без мазы? А если известно, что это пятеро итальянцев? Ну конечно же!!! Симфо-фэнтези–пауэр!!! Итак, на наш суд представлен второй альбом этого коллектива. Их дебютный альбом Heir of Power, вышедший в 1999 году, по большому счету ничем не запомнился – посредственное, по большому счету, сведение звука с проваленными барабанами, слабым вокалом и отсутствием каких-либо запоминающихся мелодий (за исключением может быть первой песни). Короче, глухой запас, как говорят в спорте. Поэтому, ставя в аппарат их новый альбом, я, честно говоря, на многое не рассчитывал. Каково же было мое удивление, когда из динамиков раздался супермелодичный, быстрый, клавишноориентированный пауэр made in Italia. От былой посредственности не осталось и следа. Наверное сменили половину состава, подумал я. Ни фига! В группу пришел только новый драммер Luca Pellegrino. Что же произошло? Наверное маленькое чудо, т.к. прогресс группы, достигнутый за один год впечатляет. Судите сами – раньше вокалист с большим трудом сипел свои партии, а теперь его вокал стал живо напоминать некую смесь Фабио Лионе (Rhapsody) и Fabio Dozzo (Skylark), откуда-то появились запоминающиеся мелодии, резко увеличилось количество клавишных (да и в общем то качество их улучшилось), которые устраивают нехилые скоростные дуэли с гитарами. Но факт остается фактом – прогресс на лицо. При этом я не будут говорить, что группа сотворила что-то из ряда вон выходящее – человек, знающий пауэр, без труда уловит массу знакомых моментов. На мой взгляд, явственно слышны мотивы Stratovarius, Vision Divine и в огромном количестве Skylark. Влияние последнего коллектива проявляется буквально везде – начиная с вокала и манеры пения, заканчивая клавишными партиями. В целом альбом достаточно разноплановый – помпезное симфоническое интро When the Aurora falls, гиперскоростные композиции Dark Kill Me Again, Frozen Heaven, классическая (в смысле акустического куплета и монументального припева) баллада Again, типично пауэрный эпик Tears Of Darkness (продолжительностью на 9 с лишним минут, с частой сменой темпа, и обязательной вставкой потустороннего голоса, вещающего чего-то про смерть..). Что тут говорить - качественнейший итальянский мелодик-симфо-фэнтази-пауэр.</p>
+<p> Напоследок замечу, что альбом был записан в New Sin Studio («помеченной» Vision Divine). В итоге можно было бы половину балла накинуть за прогресс, но я пожалуй ограничусь вышесказанным, а то, не дай бог, перехвалю :-)).</p>
+<p></p>
+
+Автор: Helloween
+
+### 24.09.2002 news A TRIBUTE TO HELLOWEEN PART II
+
+<p>Окончательно стало известно, что вторая часть посвящения HELLOWEEN "The Keepers Of Jericho - A Tribute To Helloween Part II -" выйдет 9 декабря 2002 года на Arise Records. Трэк-лист альбома:</p>
+<p> IRON SAVIOR - PHANTOMS OF DEATH <BR> STEEL ATTACK - DR.STEIN<BR> POWERGOD - STARLIGHT<BR> BETO VAZQUEZ INFINITY - A TALE THAT WASN&acute;T RIGHT (Featuring Elisa - DARK MOOR -)<BR> ARWEN - MARCH OF TIME<BR> HIGHLORD - POWER <BR> FRETERNIA - MURDERER <BR> PARAGON - METAL INVADERS<BR> VHALDEMAR - GORGAR <BR> CELESTY - THE CHANCE <BR> DRAGONLAND - SOUL SURVIVOR <BR> AXENSTAR - TWILIGHT OF THE GODS <BR> RED WINE - RISE & FALL</p>
+<p> Все трэки на альбоме эксклюзивные и записывались специально для него. Обложку для альбома нарисовал Travis Smith.</p>
+
+Автор: Dimas
+
+### 05.04.2003 bios Highlord Bio
+
+<p>Highlord started in 1996 but at that time monicker was Avatar. The band recorded a demo tape featuring four of the songs, later released in the first album. Thanks to that tape Underground Symphony had them sign for its roster but unfortunately due to line-up problems the band wasn't able to record cd at Zenith studios. Some time passed and Highlord had a new agreement with another new born label "Northwind Rec." as well as line-up changes. Vascй joined them and "Heir of Power" was finally recorded and released in 1998.</p>
+<P>"When the Aurora falls..." was recorded in July 2000 at New Sin studios and released in January 2001. The responce of the audience and specialized press was good and Highlord could take its place in the Italian and foreign Metal scene.</>
+<P> The band supported the release of the album with several live show around all Italy: Transilvania live Milan, Rome, Genova and Agglutination Festival with Kiko Lureiro of Angra in front of 2000 persons. In 2002 Vascй left the band and the new singer Andrea Marchisio joined.</>
+<P> In May 2002 Highlord recorded the new album "Breath of Eternity" that has been released later in Japan by Sound Holic on August 21st. Japanese cd features bonus track "Pegasus Fantasy" cover of "Make-up" and soundtrack of the famous anime "Saint Seya". The European version has been released in the beginning of November 2002. Italian specialized press grant top-scores to іBreath of EternityІ in last issues.</>
+<P> In July 2002 Highlord took part in the second issue of "The Keepers of Jericho" Helloween tribute by Arise Records performing the song "Power" from the album "The time of the Oath". The Cd was released in December 2002.</>
+<P> Highlord signs with Arise Records.The new album of the band will be released in 2004.</>
+
+Автор: Vit Belov
+
+### 02.02.2004 news Highlord: четвёртый альбом
+
+<P>Итальянцы Highlord только что закончили запись своего четвертого альбома под названием "Medusa's Coil" в New Sin Studios. Новый альбом выйдет 4 мая на испанском лейбле Arise Metal.</P>
+Автор: Morsus
+
+### 02.02.2004 news Highlord have recorded the fourth album
+
+<P>The Italian metal act Highlord is just finishing the recording of their fourth album entitled "Medusa's Coil" at New Sin Studios, the new album will be released on May 04th through Arise Metal.</P>
+Автор: Morsus
+
+### 22.04.2004 news HIGHLORD опубликовали трэк-лист
+
+<P>Новый альбом итальянской power-metal группы <B>HIGHLORD 'Medusa's Coil' </B>можно будет приобрести, начиная с 5 мая. Трэк-лист:</P>
+<P>01. <B>Medusa's Coil</B><BR>02. <B>Far From The Light Of God</B><BR>03. <B>Dancing With Destiny</B><BR>04. <B>Scarlet Tears</B><BR>05. <B>Where My Hero Lies</B><BR>06. <B>Moonseas</B><BR>07. <B>Your Story Too</B><BR>08. <B>The Hand of God</B><BR>09. <B>Tough Boy</B> (Japanese bonus track)<BR>10. <B>Tough Boy - Karaoke version</B> (Japanese bonus track) </P>
+Автор: Vit Belov
+
+### 16.09.2004 reviews Если Вам по-пержнему не хватает sympho-power-metal
+
+<P><EM><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянцы <STRONG>HIGHLORD</STRONG> уже приобрели достаточное количество поклонников в среде любителей симфонического power-metal. Выше</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;головы им всё равно не прыгнуть, поэтому вряд ли&nbsp;это число увеличится.</FONT></EM></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На новейшем альбоме <STRONG>HIGHLORD</STRONG> - всё на крепком среднем уровне. Запись, мелодии, офрмление... Пожалуй, только вокалист не дотягивает до этого среднего уровня, хотя с натяжкой можно и его туда причислить. Согласитесь, средний уровень - это совсем не хороший уровень. Стандартные боевики с клавишами, записанные не так, как мы привыкли слышать у флагманов жанра.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>К сожалению, и каких-то конкретных удач у <STRONG>HIGHLORD</STRONG> здесь немного. Мелодий, которые зацепят, здесь нет.&nbsp;Пластинка для любителей подобной музыки, если Вам по-пержнему не хватает sypho-power-metal.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[+]&nbsp;- <STRONG>HIGHLORD</STRONG> не обманут ожиданий любителей стиля</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[-] - средний итальянский уровень</FONT>&nbsp;</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 22.09.2009 news Новый альбом HIGHLORD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=365 alt="" hspace=0 src="/images/news_rus/2009.09/15074.jpg" width=400 align=right border=5>Новый альбом <STRONG>HIGHLORD</STRONG> <STRONG>"The Death Of The Artists" </STRONG>выйдет в октябре на <STRONG>Scarlet Records</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Simple Man</B><BR>02. <B>Every Thrash Of Me</B><BR>03. <B>Canticle Of The Flesh</B><BR>04. <B>It Takes Some Passion</B><BR>05. <B>The Death Of The Artists</B><BR>06. <B>Dance In A Flame</B><BR>07. <B>The Scream</B><BR>08. <B>Slave To Darkness</B><BR>09. <B>A Queen In My Pocket</B><BR>10. <B>Rebel Yell</B> (BILLY IDOL cover) (bonus track)<BR>11. <B>Zankokuna Tenshi No Te-ze</B> (bonus track)</P>
+Автор: Vit Belov
+
+### 15.09.2016 reviews Серый альбом от известного power metal коллектива
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Итальянцы HIGHLORD были одним из символов power metal во времена зарождения лэйбла CD-Maximum, а может даже и раньше, во времена «аллеи» на Горбушке. В то время, на рубеже веков, появилось огромное количество групп с юга Европы, которые творчески начали осваивать музыку корифеев стиля из Германии. И Rhapsody были лишь одним самым приятным эпизодом той вакханалии. «Весёлые картинки» - так мы называли тогда эту музыку. Обложки с разнообразными рыцарями, обнажёнными девушками, драконами и всякой другой героической фигнёй, выполненные в аляповатом стиле журнала «Мурзилка» и разнообразных пиратских «Романтических коллекций». Именно тогда появились на нашем горизонте HIGHLORD. Их альбом «When The Aurora Falls...” я до сих пор помню. Не помню, что на нём было, но помню обложку очень живо. В то время HIGHLORD были безусловными лидерами итальянского лэйбла Northwind Records, альбомы которого переиздавали на CD-Maximum в пору филофонического CD-бума. Затем HIGHLORD перешли на не менее одиозный лэйбл Arise Records из Испании, открывший нам DARK MOOR и кучу других подобных коллективов, включая ARWEN, AXENSTAR, CELESTY, STEEL ATTACK. Этот лэйбл тоже приказал нам долго жить, и после этого у HIGHLORD начались нелучшие времена. Один альбом им даже пришлось издавать самостоятельно, один альбом вышел на трешевом лэйбле Punishment 18, был в дискографии ещё альбом на более подходящем Scarlet records, но там итальянцы также долго не задержались. И вот альбом 2016 года «Hic Sunt Leones” вышел на Massacre Records. Возрождение славы грядёт?</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">На самом деле, конечно нет. Я не знаю, как HIGHLORD попали на знаменитый немецкий значок, но их творчество намертво застряло в нулевом году, а с тех пор много воды утекло. Столь слабореализованные альбомы даже в power metal уже не признаются фэнами. Материал прошёл мастеринг в знаменитой студии Fascination Street в Швеции, но это ему явно не помогло. Также остались в строю, чисто итальянский эмоциональный вокал, мелодизм, поражающий своей банальностью, альбом длится всего 46 минут, но кажется, что он не кончается вечность. Несколько раз мы слышим гроул, и это убивает окончательно, в столь сырой работе ещё и несвойственные стилю элементы? Шутки ради, отмечу присутствие гостевой вокалистки Linnea Vikstrom, которая является дочкой бывшего фронтмена CANDLEMASS Thomas Vikstrom. Её HIGHLORD даже сняли в клипе, неплохой ход, всегда приятно на девушку полюбоваться.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Честно говоря, я почему-то ожидал от этого альбома большего. То ли мне показалось, что HIGHLORD пошли на повышение и теперь вдарят настоящего павера, то ли я просто соскучился по итальянской музыке, но прослушивание этой работы превратилось для меня в настоящее мучение.</font></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -34,6 +34,21 @@
 * C группой "Gehenna" S. Winter (drums)
 * C группой "Aeternus" S. Winter (drums)
 
+## Публикации
+
+### 12.04.2002 news Forlorn отправляются в студию
+
+<p>Норвежские викинги Forlorn укомлектовали состав тремя новыми музыкантами и заказали с 15 апреля студию Sans Samlings, где будут писать новый металлический продукт. Альбом увидит свет в августе и сразу после выпуска группа планирует отправиться в турне.</p>
+
+Автор: Morsus
+
+### 12.04.2002 news Forlorn will be going in studio
+
+<p>Forlorn have completed their line up with three new members and have booked Sans Samlings Studios from the 15th of April, where they will be recording their upcoming album. The album will see the light of day on August and the band hopes to tour for the first time after the release.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

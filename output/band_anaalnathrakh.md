@@ -134,6 +134,72 @@ Rage, Rage Against The Dying of the Light
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.11.2002 reviews Ice-cold hyperblasting black noisecore
+
+<p>Ice-cold hyperblasting black noisecore. How do you like such a definition, huh? Actually, I wish I could say “The Codex Necro” is way better than “Total Fucking Necro” (2000)… alas, I cannot. And the reason is: less black metal, and much more noise. Less atmosphere, and much more noise. Less brutality, and… well, you guessed it. “The Codex Necro” doesn’t fascinate, doesn’t devour, doesn’t make you shiver. Absolutely not bad, however… again, I wish I could say “The Codex Necro” is way better than “Total Fucking Necro”.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 05.07.2006 news Новости от ANAAL NATHRAKH
+
+<P>Британские экстремалы <B>ANAAL NATHRAKH</B> готовят к выходу свой третий полнометражник под названием <STRONG>"Eschaton".</STRONG> Дата релиза - 16 октября на <B>Season of Mist</B>. Среди гостевых музыкантов: <B>Shane Embury</B> (<B>NAPALM DEATH</B>) и <B>Attila Csihar</B> (<B>MAYHEM</B>). Кроме того, <B>ANAAL NATHRAKH</B>&nbsp;планируют переиздать <B>"The Codex Necro"</B> и <B>"When Fire Rains Down From The Sky, Mankind Will Reap As It Has Sown"</B> с кучей бонусного материала.</P>
+Автор: Dimas
+
+### 14.10.2008 news ANAAL NATHRAKH начали запись
+
+<P><STRONG>ANAAL NATHRAKH</STRONG> закончили (-л)&nbsp;работу над сочинением материала для новой пластинки. Сейчас он записывается в студии <STRONG>Necrodeath</STRONG>. Вокал будет записан&nbsp;только в феврале,&nbsp;а готовая работа выйдет в июне.&nbsp;</P>
+Автор: Vit Belov
+
+### 26.02.2009 news ANAAL NATHRAKH на Candlelight
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ANAAL NATHRAKH</STRONG> подписали контракт с <STRONG>Candlelight</STRONG>. Дуэт записывает новый альбом <STRONG>"In The Constellation Of The Black Widow"</STRONG>, который выйдет летом.</FONT></P>
+Автор: Vit Belov
+
+### 18.04.2009 news Дата релиза ANAAL NATHRAKH
+
+<P>Новый альбом <STRONG>ANAAL NATHRAKH</STRONG> <STRONG>"In The Constellation Of The Black Widow" </STRONG>выйдет 29 июня на <STRONG>Candlelight</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.04.2009 news Новые песни ANAAL NATHRAKH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Две новых песни <STRONG>"More Of Fire Than Blood"</STRONG>&nbsp;и <STRONG>"The Lucifer Effect" </STRONG>с будущей пластинки <STRONG>ANAAL NATHRAKH</STRONG> <STRONG>"In The Constellation Of The Black Widow" </STRONG>можно послушать здесь: <A href="http://www.myspace.com/anaalnathrakh">http://www.myspace.com/anaalnathrakh</A></FONT></P>
+Автор: Vit Belov
+
+### 24.07.2012 news &quot;Brutal Assault 2012&quot;: программа на каждый день, последние участники, информация о билетах
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24432.png" width=300 height=150>На сайте&nbsp;фестиваля <STRONG>"Brutal Assault"</STRONG>&nbsp;стала доступна программа с&nbsp;группами-участниками на каждый день.&nbsp;Ознакомиться с ней можно в разделе <STRONG>"Расписание"</STRONG> (<A href="http://www.brutalassault.cz/ru/schedule/">www.brutalassault.cz/ru/schedule/</A>). Более подробное (повременное)&nbsp;расписание выступлений станет известно в ближайшие дни (включая и&nbsp;расписание новой, третьей сцены, под названием <STRONG>Budweiser Budvar</STRONG>).</P>
+<P>Организаторы фестиваля анонсировали последних участников этого года, ими стали&nbsp;белорусские язычники&nbsp;<STRONG>GODS TOWER</STRONG>, французские авантгардисты <STRONG>SEBKHA-CHOTT</STRONG>, британцы&nbsp;<STRONG>ANAAL NATHRAKH</STRONG>, южно-африканские металкорщики&nbsp;<STRONG>TRUTH AND ITS BURDEN</STRONG> и два представителя Чехии: <EM>old-school death metal</EM> банда <STRONG>BRUTALLY DECEASED</STRONG> и блэк-металлисты <STRONG>TROLLECH</STRONG>.</P>
+<P>Организаторы <STRONG>"Brutal Assault"</STRONG> настоятельно рекомендуют озадачиться покупкой фестивальных&nbsp;билетов заранее. Вы всё ещё можете&nbsp;сделать это&nbsp;по сниженной, предпродажной цене в 1550,- CZK (+&nbsp;комиссия Paypal), но помните, что такая возможность будет доступна&nbsp;только до конца июля.</P>
+<P>К сожалению, <EM>death metal </EM>ветераны <STRONG>DEICIDE</STRONG> отменили свой летний европейский тур&nbsp;в связи с непредвиденными обстоятельствами.</P>
+<P>Их заменой станут хорошо известные бразильские коммандос, группа <STRONG>KRISIUN</STRONG>.</P>
+Автор: Headcrusher
+
+### 22.03.2013 news ANAAL NATHRAKH: интервью
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В преддверии завтрашнего московского концерта&nbsp;англичан&nbsp;<STRONG>ANAAL NATHRAKH</STRONG>, все подробности которого можно почерпнуть из раздела&nbsp;<STRONG>"Shows"</STRONG> (<A href="/ru/shows/#69126">http://musica.mustdie.ru/ru/shows/#69126</A><A href="/ru/shows/"></A>)&nbsp;нашего сайта, предлагаем вам посмотреть небольшое интервью, которое группа дала порталу <STRONG>Драг.металлы</STRONG> 29 января 2013 года.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/U3Ahr-ck4M0" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 21.03.2015 reviews Натрах на всё анаалом
+
+<P>Группа из Бирмингема с коробящим слух правоверного обывателя названием ANAAL NATHRAKH выпустила на новом для себя лэйбле Metal Blade восьмой альбом "Disederatum". За уже достаточно длинную историю существования британцы немного научились играть и сподобились сочинить мелодии (!!!). Теперь их творчество носит на себе не только следы социального протеста против зашоренности обывателей, но и некую музыкальную составляющую.</P>
+<P>Обозреваемый альбом напомнил мне раннее творчество других любителей поглумиться DIE APOKALIPTISCHEN REITER. Нарочито неслушабельные вопли, перемежаемый мелодиями, такими же нарочито попсовыми. ANAAL NATHRAKH предлагают свой фирменный псевдограйндкорный электронный саунд, из глубин которого выплывает вдруг мелодия в духе позднего IN FLAMES, исполненная чистым готишным вокалом. Безусловное хулиганство, отсутствие какой-либо ценности с точки зрения высокого искусства, но задорно и смешно. </P>
+<P>Мелодизм пошёл группе на пользу. Вот только вопрос, как ко всему этому отнесутся поклонники не с таким большим чувством юмора, да и фэнам мелодичного метала здесь по-прежнему делать нечего.</P>
+Автор: Vit Belov
+
+### 18.08.2016 news Новый альбом ANAAL NATHRAKH выходит в октябре
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новая работа беспредельщиков<strong> ANAAL NATHRAKH "The Whole Of The Law"</strong> выходит 28 октября на <strong>Metal Blade</strong>. Ниже можно услышать первый трек с этого альбома "<strong>Depravity Favours The Bold</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1. The Nameless Dread&nbsp;&nbsp; <br>2. Depravity Favours the Bold<br>3. Hold Your Children Close and Pray for Oblivion&nbsp;&nbsp; <br>4. We Will Fucking Kill You&nbsp;&nbsp; <br>5. ...So We Can Die Happy&nbsp;&nbsp; <br>6. In Flagrante Delicto&nbsp;&nbsp; <br>7. And You Will Beg for Our Secrets&nbsp;&nbsp; <br>8. Extravaganza!&nbsp;&nbsp; <br>9. On Being a Slave&nbsp;&nbsp; <br>10. The Great Spectator&nbsp;&nbsp; <br>11. Of Horror, and the Black Shawls</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/hzghSOZW7Zk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 18.08.2016 news New album by ANAAL NATHRAKH will be released in October
+
+<p>New work of extremists <strong>ANAAL NATHRAKH "The Whole Of The Law"</strong> comes out on October 28 on <strong>Metal Blade</strong>. Below you can hear the first track from the album "<strong>Depravity Favours The Bold</strong>".</p><p>Track list:</p><p>1. The Nameless Dread&nbsp;&nbsp; <br>2. Depravity Favours the Bold<br>3. Hold Your Children Close and Pray for Oblivion&nbsp;&nbsp; <br>4. We Will Fucking Kill You&nbsp;&nbsp; <br>5. ...So We Can Die Happy&nbsp;&nbsp; <br>6. In Flagrante Delicto&nbsp;&nbsp; <br>7. And You Will Beg for Our Secrets&nbsp;&nbsp; <br>8. Extravaganza!&nbsp;&nbsp; <br>9. On Being a Slave&nbsp;&nbsp; <br>10. The Great Spectator&nbsp;&nbsp; <br>11. Of Horror, and the Black Shawls</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/hzghSOZW7Zk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Английский Анал Натрах в Москве (23 мартя 2013)

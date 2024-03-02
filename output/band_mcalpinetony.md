@@ -133,6 +133,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.09.2002 news Former YNGWIE MALMSTEEN Frontman To Issue Solo CD ...
+
+<p>Former YNGWIE MALMSTEEN frontman Mark Boals will issue a solo album, entitled Edge Of The World, in Japan on October 23rd though Marquee Inc, and in other territories shortly after. <BR><BR> Described in an official press release as "his most diverse and creative solo album yet," Edge Of The World "is very much a melodic hard rock album, whilst utilizing progressive, (some) neo-classical and classic rock influences." The album features keyboardist Erik Norlander (LANA LANE, ROCKET SCIENTISTS), drummers Vinny Appice (DIO, BLACK SABBATH) and Virgil Donati (RING OF FIRE, PLANET X), and guitarists Tony MacAlpine, Chris Brooks, Neil Citron and Jeff Kollman. Bass guitar and additional rhythm guitar duties were handled by Boals himself. 13 tracks (including a bonus track for the Japanese pressing) are contained on the CD, which was produced by Boals and engineered by Erik Norlander and Neil Citron.</p>
+
+Автор: Yermola
+
+### 09.09.2002 news Лезвие Мира.......
+
+<p>Экс-вокалист "YNGWIE MALMSTEEN" - Mark Boals выпускает соло-альбом названный "Edge Of The World". В Японии диск выйдет 23 октября через Marquee Inc и почти сразу же для остального мира.<BR><BR> Описанный в пресс-релизе как "...очень мелодичный хард-роковый альбом, с элементами прогрессива, неоклассики и классического рока..." - "Edge Of The World " собрал известных музыкантов: клавишник Erik Norlander (LANA LANE, ROCKET SCIENTISTS), барабанщики Vinny Appice (DIO, BLACK SABBATH) и Virgil Donati (RING OF FIRE, PLANET X), гитаристы Tony MacAlpine, Chris Brooks, Neil Citron и Jeff Kollman. Партии баса и ритм-гитар были записаны самим Боалзом. Диск содержит 13 вещей (включая обычные бонусы для Японии) и был спродюссирован Боалзом и записан Erik Norlander и Neil Citron.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

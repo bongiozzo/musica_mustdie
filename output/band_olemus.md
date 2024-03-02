@@ -57,6 +57,46 @@ Discourage
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.11.2002 news MassaBrutto Radioshow #124, 11-12 Nov 2002.
+
+<p>Playlist:<BR> <BR> 1. LOVE LIES BLEEDING - S.I.N. (CCP Recs/CD-Maximum Ltd)<BR> 2. OLEMUS - Rising (CCP Recs/CD-Maximum Ltd)<BR> 3. LITHIUM - Hero In Paradise (Cold Recs/CD-Maximum Ltd)<BR> 4. DEFORMITY - 7 Fathers 1 (Displeased Recs/CD-Maximum Ltd)<BR> 5. ALGHAZANTH - The Circle Of Six (Woodcut Recs/CD-Maximum Ltd)<BR> 6. ALGHAZANTH - Symphony Of Destruction [by MEGADETH] (Woodcut Recs/CD-Maximum Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. BOUND AND GAGGED - Seven Bodies (United Guttural Recs)<BR> 8. BOUND AND GAGGED - XX (United Guttural Recs)<BR> 9. SIKFUK - Still Born Feast/Festering Maggots (United Guttural Recs)<BR> 10. SIKFUK - Maggots Gorelore (United Guttural Recs)<BR> 11. FLESHGRIND - Sorrow Breeds Hatred... Bleed On Me [live] (United Guttural Recs)<BR> 12. FLESHGRIND - Litany Of Murder [live] (United Guttural Recs)<BR> 13. FLESHGRIND - Ejaculate On Entrails [live] (United Guttural Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.11.2002 news MassaBrutto Radioshow #124, 11-12 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LOVE LIES BLEEDING - S.I.N. (CCP Recs/CD-Maximum Ltd)<BR> 2. OLEMUS - Rising (CCP Recs/CD-Maximum Ltd)<BR> 3. LITHIUM - Hero In Paradise (Cold Recs/CD-Maximum Ltd)<BR> 4. DEFORMITY - 7 Fathers 1 (Displeased Recs/CD-Maximum Ltd)<BR> 5. ALGHAZANTH - The Circle Of Six (Woodcut Recs/CD-Maximum Ltd)<BR> 6. ALGHAZANTH - Symphony Of Destruction [by MEGADETH] (Woodcut Recs/CD-Maximum Ltd)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 7. BOUND AND GAGGED - Seven Bodies (United Guttural Recs)<BR> 8. BOUND AND GAGGED - XX (United Guttural Recs)<BR> 9. SIKFUK - Still Born Feast/Festering Maggots (United Guttural Recs)<BR> 10. SIKFUK - Maggots Gorelore (United Guttural Recs)<BR> 11. FLESHGRIND - Sorrow Breeds Hatred... Bleed On Me [live] (United Guttural Recs)<BR> 12. FLESHGRIND - Litany Of Murder [live] (United Guttural Recs)<BR> 13. FLESHGRIND - Ejaculate On Entrails [live] (United Guttural Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 21.11.2002 reviews Я - Бог или Бог - Я?
+
+<p>Четвертый полнометражный альбом австрийских музыкантов продолжает логическую линию их прошлогоднего опуса "Passion Fall". И это совсем не похоже на то, с чего группа начинала. На этом альбоме мы слышим жесткий, но очень мелодичный, мрачно-атмосферный, но спокойный gothic metal или электронный dark metal. Модное ныне направление. Музыка любви и самопознания. Вместе с жесткими гитарными риффами здесь соседствуют компьютерно-синтезаторные сэмплы, вокал варьируется от агрессивного до томного чистого вокала, впридачу к нему еще нечастый чистый женский вокал. Несмотря на обилие электронных звуков, эту музыку не назовешь безжизненной и синтетической. Музыка довольно разнообразна и содержит множество настроений и эмоций. Качественный звук только подчеркивает индивидуальность каждой песни. Трудно сравнить их с кем бы то ни было. Иногда это похоже на CREMATORY, иногда на PARADISE LOST, иногда музыка напоминает nu-metal, но в целом это не похоже ни на кого. Похоже, группа находится на правильном пути в поисках своей собственной марки.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Вышел новый OLEMUS!

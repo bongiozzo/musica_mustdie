@@ -21,6 +21,26 @@ Threatened By A New Plague
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.05.2009 reviews Бразильцы a-la SEPULTURA
+
+<P>В середине 90-х любую новую бразильскую команду было принято сравнивать с SEPULTURA или ANGRA. Именно тогда на свет появились наши сегодняшние герои EMINENCE. Коллектив играет в относительно редком стиле death-thrash-metal и избежать сравнений со своими старшими братьями ему не удаётся.</P>
+<P>В принципе второй альбом группы “The God Of All Mistakes” именно тем и интересен, что местами он звучит, как SEPULTURA классического периода. Гитары, барабаны, отчаянный напор или среднетемповые «шаманские» проходы. У EMINENCE всё это есть в наличии. Многие фэны «главных бразильцев» прослезятся, услышав эти ходы. Мы уже не раз поднимали вопрос о качественном копировании. Многие группы, не стесняясь, занимаются этим и изредка даже обгоняют в качестве оригинал. Если EMINENCE и может соревноваться с современной, достаточно блеклой, SEPULTURA, классические работы этой группы ей не по зубам. Обозреваемой группе явно не хватает злобы и агрессии, а также запоминаемости материала.</P>
+<P>Альбом для ностальгирующих по SEPULTURA. Не подумайте, что вся пластинка состоит из пародий, но, к сожалению, тогда, когда на SEPULTURA не похоже, слушать совсем скучно.</P>
+Автор: Vit Belov
+
+### 04.10.2009 news Видео EMINENCE
+
+<P>Бразильская группа<STRONG> EMINENCE</STRONG> выложила в сеть видео на песню "<STRONG>The God Of All Mistakes</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/kbojxyK2Jds&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/kbojxyK2Jds&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

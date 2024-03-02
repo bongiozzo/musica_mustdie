@@ -42,6 +42,186 @@
 * C группой "Изморозь" Belf
 * C группой "Ashen Light" Belf
 
+## Публикации
+
+### 15.01.2008 news ПУТЬ СОЛНЦА записывают альбом
+
+<P><IMG height=441 alt="" hspace=0 src="/images/news_rus/2008.01/12142.jpg" width=400 align=right border=5>Группа<STRONG> ПУТЬ СОЛНЦА</STRONG> (Мирон (ex-<STRONG>Butterfly Temple</STRONG>)) подготовила материал для своего дебютного альбома с рабочим названием <STRONG>"....один</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>Моя Северная Страна...<BR></STRONG>2. <STRONG>Памяти След...<BR></STRONG>3. <STRONG>Песнь ветров<BR></STRONG>4. <STRONG>Война?...Война!</STRONG><BR>5. <STRONG>Последний рассвет<BR></STRONG>6. <STRONG>Дорога в ...<BR></STRONG>7. <STRONG>Руны познай</STRONG><BR>8. <STRONG>Мёртвый воин</STRONG></P>
+<P>Материал уже частично записан, группе осталось дописать вокалы и дополнительные инструменты. Послушать демо некоторых песен можно здесь: <A href="http://minf-tv.ttk.ru/ps_music.php">http://minf-tv.ttk.ru/ps_music.php</A><BR>Также произошла полная смена музыкантов (напомним, что раньше в группе играли музыканты из <STRONG>Rest In Pain, Tantal, Fatal Band</STRONG>). Теперь на их месте <STRONG>Вано, Женя"Миллер"</STRONG> из группы <STRONG>МАНЁВРЫ</STRONG> и барабанщик <STRONG>Веденей</STRONG>. Музыканты подготовили новую концертную программу, которую можно услышать на концерте 19 января в клубе Релакс.</P>
+Автор: Vit Belov
+
+### 05.12.2008 news Группа ПУТЬ СОЛНЦА (MirRon ex-Butterfly Temple) начинает работать с новым барабанщиком
+
+<P>Группа&nbsp; <STRONG>ПУТЬ СОЛНЦА</STRONG> наконец-то определилась с драмером. После долгих поисков постоянного барабанщика вновь встретились <STRONG>MirRon </STRONG>и <STRONG>Вадим «Ennom»</STRONG>. Нам известны их работы в группах <STRONG>ETERNAL SICK</STRONG> и <STRONG>EDUCATED SCUM</STRONG>. Поэтому&nbsp; результат сотрудничества можно попробовать спрогнозировать, хотя лучше всё-таки послушать.</P>
+<P>Вот что сказал <STRONG>MirRon</STRONG>: ”<EM>Я давно искал постоянного барабанщика в группу, очень не удобно работать с сессионными музыкантами. Хотелось постоянства и серьёзной проработки материала. Я предложил Вадиму присоединится к группе, он согласился. К тому же тогда он&nbsp; не был&nbsp; занят в других проектах, это хорошо. Я знаю его как хорошего и ответственного музыканта, и думаю, что теперь Путь Солнца обретёт ту мощь, скорость и саунд которые должны содержать наши песни</EM>”.</P>
+Автор: Vit Belov
+
+### 20.09.2009 news ПУТЬ СОЛНЦА пишут альбом
+
+<P><IMG height=220 alt="" hspace=0 src="/images/news_rus/2009.09/15072.jpg" width=400 align=left border=5>Группа <STRONG>ПУТЬ СОЛНЦА</STRONG> приступила к записи нового альбома "<STRONG>Победитель Всегда остаётся Один</STRONG>". Запись проходит на студии <STRONG>KIV Record</STRONG>, под руководством <STRONG>Игоря Кив (STIGMATIC CHORUS, ARCANE GRAIL)</STRONG>. Саунд продюсером выступили <STRONG>Игорь Кив</STRONG> и <STRONG>Бельф</STRONG>. Уже записаны партии барабанов, гитары и баса. На альбоме будут и сюрпризы. Так, несколько соло партий записал известный гитарист <STRONG>А.Страйк</STRONG>, а несколько треков сыграл барабанщик&nbsp;<STRONG> А.Карпухин</STRONG>. Как сказал лидер группы <STRONG>MirRon</STRONG>, это ещё не все сюрпризы. Музыканты планируют закончить запись к концу месяца. Трэк-лист:</P>
+<P>1. <STRONG>Руны познай</STRONG><BR>2. <STRONG>Убита память<BR></STRONG>3. <STRONG>Забудь меня</STRONG><BR>4. <STRONG>Танец смерти</STRONG><BR>5. <STRONG>Последний бой, победа или смерть<BR></STRONG>6. <STRONG>Песнь ветров</STRONG><BR>7. <STRONG>Последний рассвет</STRONG><BR>8. <STRONG>Война сердца</STRONG><BR>9. <STRONG>Моя Северная Страна<BR></STRONG>10. <STRONG>Победитель всегда остаётся один</STRONG></P>
+<P>Подробнее на <A href="http://www.putsolnca.ru/">www.putsolnca.ru</A></P>
+Автор: Vit Belov
+
+### 17.10.2009 news &quot;Сводный оркестр&quot; ПУТЬ СОЛНЦА
+
+<P>Группа <STRONG>ПУТЬ СОЛНЦА</STRONG> закончила запись альбома "<STRONG>Победитель всегда остаётся один</STRONG>". В записи приняли участие приглашенные музыканты:</P>
+<P><STRONG>А.Страйк</STRONG><BR><STRONG>А.Карпухин</STRONG><BR><STRONG>Егор STARBOY Аверьянов</STRONG> (БеZумные Усилия)<BR><STRONG>Михаил MishGun Кузнецов</STRONG> (Rule 24)<BR><STRONG>Вано</STRONG> (Манёвры)<BR><STRONG>Артём Щербаков</STRONG> (Reign The Absolute)<BR><STRONG>Игорь Kiv</STRONG><BR><STRONG>Samvel SickMan Antashyan</STRONG> (Abnormity)<BR><STRONG>Рома Arsafes</STRONG> (Невидь)<BR><STRONG>Руслан Beast Масленников</STRONG> (Melancholy)<BR><STRONG>Наталья Терехова</STRONG> (Dark Princess)<BR><STRONG>Денис Розадеев</STRONG></P>
+<P>Благодаря такому количеству приглашённых музыкантов, все песни приобрели неповторимую окраску.</P>
+Автор: Vit Belov
+
+### 06.01.2010 news Новый альбом ПУТЬ СОЛНЦА
+
+<P>Группа <STRONG>ПУТЬ СОЛНЦА</STRONG> представляет 13 угарных трэков нового альбома "<STRONG>Победитель всегда остается один</STRONG>". Среди них как абсолютно новые, так и перезаписанные уже известные композиции группы, такие как <STRONG>"Убита память", "Песнь ветров", "Моя северная страна", "Забудь меня"</STRONG> и др. По заверениям Мирона - лидера группы, альбом станет откровением не только для поклонников группы, но и для любого беспристрастного слушателя:</P>
+<P>"<EM>Мы долго шли к нашему первому полноформатному альбому.Менялся состав музыкантов, переделывались песни,выпускались мини альбомы. И вот сейчас получилось действительно,то что хотелось.Это цельное произведение с общей музыкальной и текстовой линией ,проходящей металлической нитью через весь альбом.Это состояние человека в современном мире, его поиски своего жизненного пути, понимания своей цели.&nbsp; Достоинство этого альбома - это полный эффект присутствия. Получилась не работа в лабораторных условиях, избавленная от всех шероховатостей, а одна большая эмоциональная история - пульсирующая и захватывающая. Родилась почти настоящая пьеса - имеющая пролог, развитие и эпилог, как и вся наша жизнь.</EM>" </P>
+<P>Саунд-продюсерами альбома выступили <STRONG>Бельф (Ashen Light/Невидь/Stigmatic Chorus)</STRONG> и <STRONG>Игорь Кив (Kiv Records)</STRONG>. Помимо членов группы, в записи альбома приняло участие множество дружественных музыкантов: <STRONG>А.Страйк, А.Карпухин, Егор STARBOY Аверьянов (гр БеZумные Усилия), Михаил MishGun Кузнецов ( гр. Rule 24), Вано (гр. Манёвры), Артём Щербаков ( гр Reign The Absolute ), Игорь Kiv, Samvel SickMan Antashyan (Abnormity), Рома Arsafes (Невидь), Руслан Beast Масленников (Melancholy), Наталья Терехова (Dark Princess), Денис Розадеев.</STRONG></P>
+<P>Отчасти с трэками альбома уже можно ознакомиться на официальном майспейсе группы: <A href="http://www.myspace.com/psolnca">http://www.myspace.com/psolnca</A> </P>
+<P><center><object width="320" height="265"><param name="movie" value="http://www.youtube.com/v/VBjRlpzMqoI&hl=ru_RU&fs=1&"></param><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><embed src="http://www.youtube.com/v/VBjRlpzMqoI&hl=ru_RU&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="320" height="265"></embed></object></P>
+Автор: Vit Belov
+
+### 02.02.2010 news Видео ПУТЬ СОЛНЦА
+
+<P>Видеоклип на песню <STRONG>ПУТЬ СОЛНЦА "Забудь Меня"</STRONG> можно посмотреть ниже. Ролик можно также обнаружить на лимитированном издании нового альбома группы "<STRONG>Победитель Всегда Остаётся Один</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/vPQ8LDGOjO8&hl=ru_RU&fs=1&"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/vPQ8LDGOjO8&hl=ru_RU&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.02.2010 articles RAGNAROK в Москве: &quot;Все мы умрём&quot;
+
+<P>Благодаря усилиям Flaming Arts Agency Россию с туром вновь посетили норвежские «богохульники» RAGNAROK. 13 февраля группа дала концерт в московском клубе “Plan B” при поддержке внушительного отечественного «суппорта» в лице STIGMATIC CHORUS, ATRA MUSTUM, ПУТЬ СОЛНЦА и ROSSOMAHAAR.</P>
+<P>В случае с RAGNAROK необходимость их очередного пришествия совсем не очевидна. Пускай, коллектив, существуя с 1994 года, является одной из старейших норвежских групп в этом направлении (из ныне существующих), их статус уже не столь высок, как раньше. В 2010 году у группы выходит новый альбом “Collectors Of The King”, но до этого нового материала мы не слышали почти шесть лет. Кроме прочего, в составе норвежцев сейчас сплошь новые лица. Единственным оригинальным участником остаётся барабанщик Jontho, все же остальные участники пришли только в 2008 году. В Москве выступал ещё и второй гитарист, имени которого мне отыскать не удалось, но, думается, эта проблема не столь важна. Начнём с разогрева.</P>
+<P>Полный обзор разогревающих составов я сделать не смогу, так как, несмотря на достаточную известность открывающих групп, четыре штуки это всё-таки перебор. Мои впечатления ограничились только двумя из них – ПУТЬ СОЛНЦА и ROSSOMAHAAR. При этом ПУТЬ СОЛНЦА я застал только во время исполнения ими последнего хита одноимённой вещи с дебютной пластинки «Победитель всегда остаётся один», вышедшей в этом месяце на 1Rock Records. В составе этой группы Алексей Миронов, известный по недолгому пребыванию в BUTTERFLY TEMPLE и более длительной работе в «кабельной» передаче Music Infection и басист Belf (STIGMATIC CHORUS, ASHEN LIGHT, НЕВИДЬ, ex-SINFUL). Безусловно, ПУТЬ СОЛНЦА могут сказать новое слово в отечественной музыке. Miron отрастил «дрэды» и своим поведением напоминает Max Cavalera, такие же ассоциации вызвала и прослушанная вещь. Скачущий SOULFLY-образный рифф, экспрессивное поведение фронтмэна… Целиком новый альбом мне прослушать ещё не удалось, но, говорят, Мирон унаследовал от BUTTERFLY TEMPLE и pagan-идеологию. И вот это действительно ново! Pagan с «дрэдами» и «mother fucker» ритмами. Посовещавшись с некоторыми товарищами в зале, я пришёл к выводу, что чернокожие люди тоже могут быть язычниками. Более того, последователями национальных культов на Чёрном континенте является большой процент населения, но выглядит всё это слишком оригинально. Возможно, вышеуказанная песня является исключением, и всё остальное творчество группы представляет собой старый добрый black-metal, но «дрэды» ведь никуда не выкинешь. Однако.</P>
+<P>Выступление группы ROSSOMAHAAR я описывать не стану. Чуть менее трёх лет назад я уже рассказывал об их шоу в «Релаксе», за это время ничего коренным образом не изменилось. Нового альбома нет, новых эмоций тоже. Крепко, профессионально, качественно, но не более.</P>
+<P>Все мои скептические слова, сказанные выше о новом составе RAGNAROK, развеялись как дым с их выходом на сцену. Мрачнейшее «интро» со словами на латыни за каких-то две минуты погрузило зал в нужное состояние. Мне кажется, RAGNAROK не нужен был и разогрев, достаточно было проиграть эти зловещие звуки, и все бы всё поняли. На моих глазах из зала убежала женщина, которую спутник пытался заставить прослушать это. Древний, утробный black-metal, который представили RAGNAROK, погрузил всех в хаос. Жужжащие гитары, сменявшиеся чётким, почти thrash-metal’ическим, ритмом заводили тех немногих, которые решились посетить это мероприятие. Безусловно, этот концерт стоил того, чтобы его посетить. Колоритные персонажи, игравшие музыку, навели меня на философскую мысль о бренности всего живого. Любого человека ждёт смерть. «Покойнички» на сцене это доказывали. «Человек-гора» и «человек-камень», стоявшие на сцене справа, субтильный вокалист, перемазанный в крови… Все эти люди когда-то были живы, но в субботу их души совершенно точно принадлежали Сатане. Быть может, это всё смешно читать, но впечатление RAGNAROK оказывали сильное. Никакой особой техники, никакого кристального звука (ROSSOMAHAAR, например, звучали поинтересней), но адский угар. Странно, что при всей внешней силе нашей black-metal сцены в Москве получать такое же удовольствие от шоу мне давно не приходилось. Пожалуй, можно вспомнить только питерцев DRAMA, о которых давненько ничего не слышно. И вроде бы всё так просто… Задник, интро и угар. Но почему-то не у всех это выходит.</P>
+<P>Лишний раз убеждаюсь, что для качественного концертного выступления ничего не нужно, кроме энергетики выступающих и минимального шоу. Если вы не постесняетесь всё это представить зрителям, они будут ваши.</P>
+Автор: Vit Belov
+
+### 19.05.2010 news ПУТЬ СОЛНЦА - обновление состава!
+
+<P>В группе<STRONG> ПУТЬ СОЛНЦА</STRONG> новый гитарист. Теперь на гитаре играет <STRONG>Александр "CrownSteel</STRONG>" известный также по работе в группе&nbsp;<STRONG>STIGMATIC CHORUS</STRONG>. Прежний гитарист, <STRONG>Александр Иванов</STRONG> не смог уделять должного времени работе в группе, по причине большой занятости в коллективе<STRONG> БЕЛЫЙ ШАМАН</STRONG>. С новым гитаристом уже было сыгранно несколько концертов. </P>
+<P><STRONG>MirRon</STRONG>: "<EM>С приходом Александра "CrownSteel" звучание на концертах стало более плотным и мощным, что придаёт выступлениям большего угара и энергии. Также группа приступает к работе над новым материалом и Александр уже работает над своими партиями и это очень здорово. У него свой взгляд на современную музыку, он любит классику хэви метала и трэша.Я думаю если нам удасться это совместить, то получиться чумовейший альбом в лучших традициях Путь Солнца. У нас уже готовы 7 новых композиций и буквально скоро мы запишем демо нового альбома, чтоб детально заняться вокальными партиями и аранжировками</EM>".</P>
+<P>Также группа продолжает активную концертную деятельность в рамках продвижения своего альбома "<STRONG>Победитель всегда остаётся один</STRONG>".</P>
+Автор: Vit Belov
+
+### 11.10.2010 news ПУТЬ СОЛНЦА выпускает DVD
+
+<P>Группа<STRONG> ПУТЬ СОЛНЦА</STRONG> выпускает DVD «<STRONG>Live MegaSun</STRONG>». За основу был взят концерт в клубе <STRONG>Б 1 Maximum</STRONG>, когда коллектив выступал на разогреве у <STRONG>MEGADETH</STRONG>. Выступление было профессионально снято на четыре камеры, и записан поканально звук. В качестве бонусов представлены четыре видео и фотогалерея. </P>
+<P>MirRon: «<EM>Выступая на такой большой площадке, где есть место чтоб развернуться и потрясти башкой, мы не могли упустить возможность снять всё это на видео. Идея выпуска DVD пришла неожиданно, я просматривал смонтированный материал, и в принципе остался доволен качеством</EM>».</P>
+<P>DVD выпускается ограниченным тиражом и будет распространяться только на концертах группы или&nbsp; через&nbsp; сайт.</P>
+<P>Трэйлер релиза можно посмотреть ниже.</P>
+<P><center><object width="480" height="385"><param name="movie" value="http://www.youtube.com/v/_MNWlHCXOB8?fs=1&hl=ru_RU"></param><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><embed src="http://www.youtube.com/v/_MNWlHCXOB8?fs=1&hl=ru_RU" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></object></P>
+Автор: Vit Belov
+
+### 27.02.2011 news Новый альбом ПУТЬ СОЛНЦА
+
+<P><IMG height=392 alt="" hspace=0 src="/images/news_rus/2011.02/18749.jpg" width=400 align=right border=0>Группа <STRONG>ПУТЬ СОЛНЦА</STRONG> записала новый альбом "<STRONG>Ветер</STRONG>". <STRONG>MirRon</STRONG>:" <EM>В работе над этим альбомом,&nbsp; над материалом&nbsp; и в процессе&nbsp; записи мы, если так можно сказать, применяли как современные, так и "олдскульные" технологии.Ну во-первых, в сочинение нового материала принимали участие все музыканты, записав новые песни в домашних студиях, мы пересылали их друг другу (современный подход). Чтоб потом на студии сразу играть, импровизировать&nbsp; и записывать (олдскул). И вообще альбом существенно отличается от предыдущих наших работ. Более подробно обо всё мы раскажем в интервью</EM>". Трек-лист:</P>
+<P>1. <STRONG>Руби<BR></STRONG>2. <STRONG>Мы все возвратимся домой</STRONG><BR>3. <STRONG>Ветер<BR></STRONG>4. <STRONG>Тень Солнца</STRONG><BR>5. <STRONG>Ненависть<BR></STRONG>6. <STRONG>Выбор<BR></STRONG>7. <STRONG>Кровь сквозь время</STRONG><BR>8. <STRONG>Мёртвый воин</STRONG><BR>9. <STRONG>Небо в ладонях</STRONG><BR>10. <STRONG>Перед битвой<BR></STRONG>11. <STRONG>Моментальная смерть<BR></STRONG>12. <STRONG>Сердце</STRONG> (стихи <STRONG>Лесьяра</STRONG>)</P>
+<P>Состав группы:<BR><STRONG>Александр "Crownsteel"</STRONG> - гитара<BR><STRONG>Бельф</STRONG> - бас<BR><STRONG>Андрей Ищенко</STRONG> - барабаны<BR><STRONG>Алексей MirRon</STRONG> - гитара, вокал</P>
+<P>В записи принимали участие <STRONG>Макс с Болтом</STRONG> (Manic Depression), <STRONG>Рома Arsafes</STRONG> (Кartikeya, Невидь), <STRONG>Буслай</STRONG> (вокал в песнях 9 и 12), <STRONG>Игорь Kiv</STRONG>. Записано и сведено в студии <STRONG>Kiv Rec</STRONG> февраль 2011 год. Барабаны в студии&nbsp; <STRONG>Sunfall Rec</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.04.2011 news Новинки от MUSICA Production
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit1><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>MUSICA Production представляет</FONT></SPAN></FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit2><IMG height=199 alt="" hspace=0 src="/images/news_rus/2011.04/19050.jpg" width=200 align=right border=0>три убийственные новинки отечественного тяжёлого метала</FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3>MP045 LYCANTHROPY "Instinct For Vengeance"</FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>-black-death-metal; Загляните в мрачный отечественный underground с четвёртым альбомом российско-украинской группы <STRONG>LYCANTHROPY</STRONG>. Ужасающий black-death-metal в духе лучших коллективов скандинавской сцены. Плевок ядовитой слюны в уши слушателей;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/lycanthropy6black6metal6">http://www.myspace.com/lycanthropy6black6metal6</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.04/19049.jpg" width=200 align=left border=0>MP046 NIMPHAION "In Darkness"</FONT></P>
+<P>-melodic death/black-metal; Дебютный альбом sympho-melodic black-metal группы из города Шуя. Эпичный и помпезный материал в духе <STRONG>CRADLE OF FILTH, ETERNAL TEARS OF SORROW</STRONG>. “<STRONG>In Darkness</STRONG>” открывает <STRONG>NIMPHAION</STRONG> дорогу к вершинам отечественной сцены;</P>
+<P>MySpace: <A href="http://www.myspace.com/nimphaion">http://www.myspace.com/nimphaion</A></P>
+<P><SPAN class=tit3><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.04/19051.jpg" width=200 align=right border=0>MP047 ПУТЬ СОЛНЦА "Ветер"</P>
+<P>-thrash-death-metal; Второй альбом группы бывшего вокалиста <STRONG>BUTTERFLY TEMPLE MiRron</STRONG>’a. Брутальный thrash-death в духе <STRONG>SEPULTURA</STRONG> и <STRONG>PANTERA </STRONG>с русскоязычными текстами. За свою карьеру <STRONG>MiRron</STRONG> также отметился в <STRONG>ETERNAL SICK, FATAL BAND</STRONG> и <STRONG>EDUCATED SCUM</STRONG>. В записи альбома также принимали участие басист <STRONG>Belf </STRONG>(<STRONG>ASHEN LIGHT, STIGMATIC CHORUS, ИЗМОРОЗЬ, НЕВИДЬ</STRONG>) и барабанщик <STRONG>Андрей Ищенко</STRONG> (<STRONG>CATHARSIS, SCARTOWN, HIERONYMUS BOSCH</STRONG>);</P>
+<P>MySpace: <A href="http://www.myspace.com/psolnca">http://www.myspace.com/psolnca</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru">http://mp.musica.mustdie.ru</A></P>
+<P>Эти диски и многое другое уже сейчас можно приобрести в нашем магазине: <A href="/ru/shop/">http://musica.mustdie.ru/ru/shop/</A></P></SPAN></SPAN>
+Автор: Vit Belov
+
+### 07.04.2011 news Концертное видео ПУТЬ СОЛНЦА
+
+<P>Представляем вашему вниманию видео на новую песню <STRONG>ПУТЬ СОЛНЦА</STRONG> с альбома "<STRONG>Ветер</STRONG>". Видео снято в клубе <STRONG>Rock House</STRONG>, на концерте - презентации, которая прошла 3 апреля. Альбом выпустил лэйбл<STRONG> Musica Prod</STRONG>. Сейчас группа собирается отыграть несколько концертов в других городах в рамках тура "<STRONG>Солнцестояние Live</STRONG>" совместно с <STRONG>BUTTERFLY TEMPLE</STRONG> и<STRONG> ОМЕЛА</STRONG>. И в рамках тура "<STRONG>Live UnDead</STRONG>" совместно со <STRONG>STIGMATIC CHORUS</STRONG>.</P>
+<P>Все подробности на<BR><A href="http://putsolnca.ru/">http://putsolnca.ru</A><BR><A href="http://vkontakte.ru/event25755036#/putsolnca">http://vkontakte.ru/event25755036#/putsolnca</A></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/V8oExe39ogo?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/V8oExe39ogo?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 12.07.2011 news Новый клип ПУТЬ СОЛНЦА
+
+<P>Концертный сезон 2011 группа <STRONG>ПУТЬ СОЛНЦА</STRONG> закончила двумя мощными турами. "<STRONG>Солнцестояние</STRONG>" совместно с группами <STRONG>Butterfly Temple</STRONG> и <STRONG>Омела,</STRONG>&nbsp; тур "live Undead" с группой <STRONG>Stigmatiс Chorus</STRONG>. Также группа выступила хэдлайнером на фестивале Fire Fest. Весь этот материал лег в основу нового клипа на песню "<STRONG>Руби</STRONG>". Сейчас музыканты готовят новую программу для концертов которые планируются уже осенью.</P>
+<P>Трек "<STRONG>Руби</STRONG>" открывает новейший альбом <STRONG>ПУТЬ СОЛНЦА "Ветер"</STRONG>, который вышел в мае на <STRONG>MUSICA Production</STRONG>. Его можно приобрести в магазине на нашем сайте.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/lnTtH0cRCI8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/lnTtH0cRCI8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.07.2011 news ПУТЬ СОЛНЦА на фестивале OST MOUNTAIN FEST
+
+<P><IMG height=560 alt="" hspace=0 src="/images/news_rus/2011.07/20163.jpg" width=400 align=right border=0>22 июля группа&nbsp;<STRONG>ПУТЬ СОЛНЦА</STRONG>&nbsp;выступит на фестивале <STRONG>OST MOUNTAIN FEST</STRONG> в городе Рашнов (Румыния). Хэдлайнерами на нём выступит группа <STRONG>KEEP OF KALESSIN</STRONG>. Этот концерт пройдёт в рамках Украино-Румыно-Молдавского тура <STRONG>Way Wind Tour 2011</STRONG>. Также музыканты выступят на фестивале в городе Кишинёв. Этими концертами группа завершает промоушен альбома "<STRONG>Ветер</STRONG>" и музыканты приступают к работе над следующим релизом. <STRONG>MirRon</STRONG>: "<EM>Мы немного изменили процесс записи и работы над аранжировками для этого хотим поработать с Ромой Arsafes на его студии SunFall. Ну а основную запись, сведение и мастеринг конечно на нашей любимой студии Kiv Rec,ну это техническая сторона, а с точки зрения материала мы хотим сделать альбом который будет отличатся от предыдущих работ, но при этом чтоб не потерять наших слушателей, чтоб под эти песни можно было и отрыватся на концертах и просто слушать в плеере на ночь</EM>."</P>
+<P><A href="http://www.ostmountainfest.ro/">http://www.ostmountainfest.ro/</A><BR><A href="http://putsolnca.ru/">http://putsolnca.ru</A> <BR><A href="http://vkontakte.ru/putsolnca">http://vkontakte.ru/putsolnca</A></P>
+Автор: Vit Belov
+
+### 20.09.2011 news Тройной Удар - наш ответ &quot;большой четвёрке&quot;
+
+<P><IMG height=291 alt="" hspace=0 src="/images/news_rus/2011.09/21152.jpg" width=400 align=right border=0>Музыканты групп <STRONG>ИЗМОРОЗЬ, STIGMATIC CHORUS</STRONG> и <STRONG>ПУТЬ СОЛНЦА</STRONG> объявили о создании концертного проекта "<STRONG>Тройной Удар</STRONG>". Пресс-релиз:</P>
+<P>"<EM>Насмотревшись,&nbsp; как&nbsp; "большая четверка" катается по всему миру и устраивает грандиозное шоу и мощные концерты, мы решили создать проект "Тройной Удар". В тур поехали музыканты&nbsp; трёх групп - Ashen Light, Путь Солнца и Изморозь. Таким образом&nbsp; был достигнут "максимальный эффект при минимальных затратах". В прошлом году уже было множество концертов с участием этих групп -&nbsp; в Сибири, в Поволжье и на Урале. Публика&nbsp; окрестила эти концерты "Тройной угар".&nbsp; В этом году Тройной удар поддерживают Путь Солнца, Изморозь и Stigmatic Chorus. География концертов расширяется, теперь под Тройной удар&nbsp; попал Юг и центральная часть России, ну и конечно Сибирь. Также в этом году у "Тройного удара" появился саппорт: некоторые концерты пройдут при поддержке группы Arcana Imperia,&nbsp; группы Melancholy и Inside You тоже не прочь съездить в некоторые города и добавить там "удара". В каждом городе будет производиться видеосъёмка концертов, потом всё это выйдет на отдельном DVD</EM>".</P>
+<P>Канал YouTube: <A href="http://www.youtube.com/watch?v=pTe_cFtyxNE&feature=channel_video_title">http://www.youtube.com/watch?v=pTe_cFtyxNE&feature=channel_video_title</A></P>
+Автор: Vit Belov
+
+### 17.10.2011 news ПУТЬ СОЛНЦА ведёт на запад
+
+<P>Группа <STRONG>ПУТЬ СОЛНЦА</STRONG> начинает работать с компанией "<STRONG>ASOCIATIA OST CULTURAL EVENTS</STRONG>" (<A href="http://www.facebook.com/asociatiaost">www.facebook.com/asociatiaost</A>). Они будут представлять группу на западном рынке, заниматься концертами и участием коллектива в фестивалях. </P>
+<P>MirRon: "<EM>Этим летом мы учавствовали в фестивале Ost Mountain Fest.О том как мы туда ехали и как там отыграли можно написать большую статью. А вкратце, мы ещё не успели вернуться домой как нам пришло письмо, о том что с нами хотят сотрудничать в дальнейшем</EM>." </P>
+<P>И вот теперь группа отправляется в тур по Румынии. В концертах примут участие местные коллективы <STRONG>Akral Necrosis, N.E.G.A.T.I.V., Open Fire </STRONG>и<STRONG> STIGMATIC CHORUS</STRONG>. Для начала это будет несколько концертов по Румынии и Украине. В дальнейшем география выступлений будет расширяться. Также музыканты выпускают новый DVD "<STRONG>Way Wind, Way True</STRONG>". Презентация диска состоится 9 октября, с этого концерта и начнётся тур "<STRONG>Trail Of Fire</STRONG>"!</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/vManLDmUo6o?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/vManLDmUo6o?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.12.2011 news DVD от ПУТЬ СОЛНЦА
+
+<P>Группа<STRONG> ПУТЬ СОЛНЦА</STRONG> выпускает новый DVD. На него вошли одиннадцать песен с концерта в московском клубе <STRONG>Rock House</STRONG> и три клипа группы. </P>
+<P><STRONG>Mirron</STRONG>: "<EM>Мы назвали его "Дорогой ветра". потому что этот концерт подводит черту под альбомом "Ветер", в поддержку которого мы в течении года сыграли множество концертов, выступили на многих фестивалях и Open -Air. Посетили с турами Украину, Румынию, заехали в Минск. В процессе концертов мы поняли, как студийные песни должны звучать, чтоб на концерте, в живом исполнении они максимально достигали эффекта. Пришлось внести некоторые коррективы, где то их сыграть быстрее, какие-то наоборот помедленнее. Поэтому все песни в концертном варианте отличаются от студийных, и этим этот релиз интересен. Также к DVD будет прилагаться дополнительно CD этого концерта</EM>".</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/RLzkjYD75c8?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/RLzkjYD75c8?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 03.02.2012 news Новость от ПУТЬ СОЛНЦА и новое видео
+
+<P>Группа <STRONG>ПУТЬ СОЛНЦА</STRONG> на одном из своих концертов исполнила песню<STRONG> "ПОПС" Гражданской Обороны</STRONG>.</P>
+<P><STRONG>MirRon</STRONG>: "<EM>В 90-х годах Егор Летов и его творчество оказало большое влияние на мою жизнь. Частенько в угаре мы ходили по улицам и пели песни Гражданской Обороны, за что у нас возникали конфликты с нашей доблестной милицией,.......Мы много слушали ГО, многие песни исполняли в моей первой группе.Что тут говорить,&nbsp; многие вышли из панк рока и Гражданской Обороны. Панк до сих пор остаётся в нашем угаре и в нашей печёнке.....Спасибо тебе Егор....R.I.P</EM>"</P>
+<P>Соло исполнил<STRONG> Игорь "Kiv" Королев</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/10zQsKNDoOA?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/10zQsKNDoOA?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 13.07.2012 news ПУТЬ СОЛНЦА - OPEN FIRE TOUR, новые песни для Украины
+
+<P>Группа <STRONG>ПУТЬ СОЛНЦА</STRONG> отправляется в тур, в рамках которого сыграют на двух фестивалях. Это <STRONG>"Open Air - Лиса гора</STRONG>" в Украинском городе Жмеринка и "<STRONG>Open Air - Forest Kap</STRONG>" в Каприяны, Молдавия. В этом туре будут исполнены новые песни с будущего альбома, запись которого начнётся в августе. </P>
+<P><STRONG>Mirron</STRONG>: "<EM>Мы уже проехались по Украине, несколькими большими турами,&nbsp; как говорится "вдоль и поперёк", поэтому в этот раз мы решили для наших поклонников приготовить сюрприз в виде новых песен. Так что новые песни, с будущего альбома, впервые прозвучат на Украине. По поводу нового релиза могу сказать что уже готово более 20 песен, из них мы&nbsp; выберем десяток лучших на наш взгляд и представим вам в виде альбома под названием "Волк</EM>".</P>
+<P>Путь Солнца: <A href="http://vk.com/putsolnca">http://vk.com/putsolnca</A></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/U7zXH26Gj24?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/U7zXH26Gj24?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 26.09.2014 news Новый альбом ПУТЬ СОЛНЦА: &quot;Настоящий true thrash pagan metal!&quot;
+
+<P>Новый альбом <STRONG>ПУТЬ СОЛНЦА "Гимны Победы. Часть 1"</STRONG> готовится к выходу. Трек-лист:</P>
+<P>1. <STRONG>Армия Тьмы</STRONG><BR>2. <STRONG>Рай или Ад</STRONG> <BR>3. <STRONG>Твой день</STRONG><BR>4. <STRONG>Флаг Победы</STRONG><BR>5. <STRONG>О чём молчат деревья</STRONG> <BR>6. <STRONG>Слэм (танец воинов перед битвой)</STRONG><BR>7. <STRONG>Odin один</STRONG><BR>8. <STRONG>Солнце - Хоровод</STRONG></P>
+<P><EM>"Это настоящий True Thrash Pagan Metal. Здесь нет "дудочек, волынок, свистулек, женского вокала и псевдо русско-народных распевов".Только настоящая ярость, скорость и гимны которые приведут вас к победе.Альбом в котором вы услышите рассказы о боях, больших походах, победах, поражениях и потерях. Рассказ о судьбе которая ждёт вас, о выборе своего пути. Издание содержит так же DVD "Summer Storm". Это концерт снятый на фестивале Summer Folk Fest 2014 и бонус видео выступления группы с приглашёнными музыкантами (Алексей Страйк, Ратияр (Ameks), Глен (Невидь), Вадим Zodiak666 (Demons of Guillotine), Сергей Абрамов (Омела)",</EM> - сообщает группа.</P>
+<P>Альбом записывался в составе:</P>
+<P><STRONG>Mirron</STRONG> - вокал<BR><STRONG>Belf</STRONG> - бас, вокал<BR><STRONG>Roman</STRONG> - гитары<BR><STRONG>A.Smirnoff</STRONG> - барабаны</P>
+<P><STRONG>Путь Солнца</STRONG>: "<EM>Мы приступили к записи новых песен, как и планировали, всё "живьём", сразу сыграть. Для этого мы отправились на студию Mindcrash Labs, что находится в сказочно - космическом лесу. Руслан руководитель процессом сразу всё настроил, но наши умы и руки не хотели играть на гитарах, видно лес подействовал расслабляюще. В итоге мы записали барабаны, чем остались вполне довольны. Через несколько дней мы отправились на Forest Fog Studio, чтоб пропитаться атмосферой трэша, паган, и разобраться с гитарами. Далее Рома приступил к записи гитар, Бельф рубил на басу, а Мирон продюсировал. Сказал, что он будет "Риком Рубиным", лег на диван, пил кофе и молчал. Когда всё записано в работу включается Игорь Кив, начинает сводить, мастерить и колдовать. Было решено разбить альбом на две части. Так что через полгода (а может и раньше), вас ожидает продолжение мистической истории. Ну и конечно будут бонусы - это видео с концертов. Мы ждём всех на наших концертах-презентациях нового альбома!"</EM></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/F1fMoffyoZQ" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### БЕЛЬФ сегодня женится в эфире Первого канала.

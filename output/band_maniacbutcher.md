@@ -75,6 +75,15 @@ Barbarud Horn - Summoning
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.10.2011 news MANIAC BUTCHER переиздали альбом
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2011.10/21495.jpg" width=250 align=right border=0>Чешская black-metal орда <STRONG>MANIAC BUTCHER</STRONG> переиздала свой второй альбом "<STRONG>Lucan-Antikrist</STRONG>", в оригинале вышедший в 1996 году, на мексиканском лэйбле <STRONG>Azermedoth Records</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Zrada<BR></STRONG>2. <STRONG>Pulnocni Rise</STRONG><BR>3. <STRONG>Lucane<BR></STRONG>4. <STRONG>Zatecky Hrad</STRONG><BR>5. <STRONG>Posledni Bitva</STRONG><BR>6. <STRONG>Soudny Den</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

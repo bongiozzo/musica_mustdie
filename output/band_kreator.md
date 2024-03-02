@@ -409,6 +409,646 @@ Wacken Open Air 2008:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.04.1999 reviews 
+
+<p>Вышел новый альбом легенд трэш-металл. Что можно сказать? Во-первых, и самое главное, это уже мало похоже на трэш. На альбоме работает на подпевках Тило Вольф из Lacrimosa, Милле Петроцца написал не все песни, гитарист Томми Ветерли вовсю использует гитарный синтезатор. Всё это лишь подтверждает мой первый тезис. Я долго сидел и придумывал, как бы окрестить стиль, в котором играет теперь Kreator, но не смог. Лично мне, всё это напомнило то, что происходило с другим столпом трэша Megadeth. Вряд ли кто-то скажет, что они теперь играют, а обидеть не хочется. "Endorama" очень хорош в музыкальном плане, все песни запоминаются и слушаются на одном дыхании, что не может не радовать. Как говорится, мастерство не пропьёшь, всё-таки Милле великолепный музыкант. А так, альбом полон всевозможных фенечек не свойственных Kreator ранее, Милле почти везде поёт чистым голосом, да и мелодии все какие-то добрые (почти). Некоторые песни смахивают на Sentenced, некоторые на тот же Megadeth (новый). Часто используется пианино. Я всё это написал, чтобы стало понятно, что сейчас Kreator вышел на новый виток развития. Я думаю любому поклоннику их музыки будет интересно это послушать. Великолепный, с музыкальной точки зрения, альбом, но если вам убрать этикетку с пластинки, вы, на некоторых песнях, можете не узнать группу.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Сборник Kreator
+
+<p>Noise Records работает над выпуском альбома лучших вещей Kreator. Вы можете проголосовать за свои любимые песни на сайте Noise. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Best Of Kreator
+
+<p>Noise Records works above issue of an album of the best things Kreator. You can vote for the favourite songs on a site of Noise. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 08.02.2001 news Новое творение &quot;Творца&quot;
+
+<p>Одна из лучших немецких трэш команд KREATOR, собирается подновить подмоченную "Эндорамой" репутацию. С 7-го Февраля парни засели в студию с Andy Sneap и пишут (как я надеюсь!) новую ТРЭШ симфонию "Violent Revolution". Хотелось бы верить, что альбом будет в духе "Extreme Aggressions" или "Coma Of Souls".</p>
+
+Автор: Yermola
+
+### 08.02.2001 news New creation of &quot;Kreator&quot;
+
+<p>"Violent Revolution", so the title of the next album, of the Thrashers, will be recorded from February 7 on together with Andy Sneap.</p>
+
+Автор: Yermola
+
+### 10.05.2001 news Насильственная революция ... (интересно, а другие бывают???)
+
+<p>KREATOR завершили запись альбома "Violent Revolution". На запланированный к выходу летом диск войдут: 01. The Patriarch 02. Reconquering The Throne 03. Bittersweet Revenge 04. Of The Same Blood 05. Ghetto War 06. King In Hell 07. Mind On Fire 08. Replicas Of Life 09. Slave Machinery 10. System Decay. По обещаниям группы "Насильственная революция" будет музыкальным продолжением легендарного "Coma Of Souls", только записанного с помощью современных музыкальных средств.</p>
+
+Автор: Yermola
+
+### 10.05.2001 news Violent Revolution ....
+
+<p>KREATOR's recently-completed Violent Revolution CD is tentatively scheduled to be released at the end of the summer. Among the tracks that are set to appear on the Andy Sneap-produced effort are the following: 01. The Patriarch 02. Reconquering The Throne 03. Bittersweet Revenge 04. Of The Same Blood 05. Ghetto War 06. King In Hell 07. Mind On Fire 08. Replicas Of Life 09. Slave Machinery 10. System Decay. KREATOR will premiering some of the new material at a free Open Air concert, to be held August 31st in their hometown of Essen, Germany. As previously reported, Violent Revolution represents a return to the band's thrash glory days, featuring a direction that is being described as a modern version of the group's Coma Of Souls album. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.05.2001 news Перестановки у KREATOR.....
+
+<p>Гитарист Tommy Vetterli (ex-CORONER) покинул "KREATOR" и был заменен на участника "WALTARI" - Sami Yli-Sirni&ouml;. Yli-Sirni&ouml; - не новичок в стане "KREATOR", он уже ездил с ними на гастроли в конце 90-х. Также Sami работал с "TIAMAT" и "GRIP INC" как студийный музыкант.</p>
+
+Автор: Yermola
+
+### 18.05.2001 news Tommy Vetterli has left Germany&#39;s KREATOR....
+
+<p>Guitarist Tommy Vetterli (ex-CORONER) has left Germany's KREATOR and has reportedly been replaced by former WALTARI axe-slinger Sami Yli-Sirniц. Yli-Sirniц is not a new face in the KREATOR camp, having toured with the Teutonic thrashers in the late '90s and having made his home in Germany for several years after leaving his native Finland in the mid-'90s. Sami is also said to have been involved with TIAMAT and GRIP INC. as a studio musician. As previously reported, KREATOR's Violent Revolution CD is now complete and is due to be released through SPV/Steamhammer Records during September. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 10.07.2001 news Дата выхода нового альбома Kreator.
+
+<p> Новый альбом Kreator "Violent Revolution" должен появиться в продаже 24-ого сентября.</p>
+
+Автор: Morsus
+
+### 10.07.2001 news The release date for Kreator&#39;s new album.
+
+<p> Kreator's new album "Violent Revolution" is due to be released 24th of September.</p>
+
+Автор: Morsus
+
+### 03.09.2001 articles Революции другими не бывают!!!
+
+<p>За свою шестнадцатилетнюю карьеру "Kreator" всегда удерживал позиции главного предмета германского металлического экспорта. Их музыка всегда была брутальна и прямолинейна, а их отношение к жизни всегда было простым и рабоче-крестьянским, поскольку родом ребята были из известного своим рабочим классом Рура. Здесь, где солнце едва видно от смога работающих угледобывающих шахт, вокалист/гитарист Милле Петроцца сделал явью свои "металлические" мечты... Ну что же... Более миллиона проданных пластинок по всему миру, гастроли по Франции, Англии, Скандинавии, Австрии, Швейцарии, Испании, Венгрии, Польше, Румынии, Греции, Израилю, Японии, Америке (семь раз!), Чили, Мексике, Австралии, Бразилии и даже России. После временного (я очень надеюсь!) выпадения на более мелодичные (и попсовые) территории, мастермайнд герр Петроцца и обновленная команда представляют обновленную версию своих металлических корней. Новый альбом "Насильственная Революция" - это настоящий трэш! Более тяжелый саунд получился, возможно в результате смены состава: гитарист Томми Ветерли (ex-Coroner) ушел и был заменен "горячим" финским парнем Sami Yli-Sirniц, который до этого играл в "Waltari" и "In Rags", а также уже ездил с Криэйтором на гастроли. Сам Милле Петроцца говорит по поводу Violent Revolution: "...возвращение к корням, но с накопленным к сегодняшему дню опытом. Новая версия Криэйтора смешанная с пониманием предыдущих Pleasure To Kill, Extreme Aggression, Coma Of Souls, Outcast и Endorama." Такие номера, как "Reconquering The Throne" или "Second Awakening" могли бы быть на Coma Of Souls, а "All Of The Same Blood (Unity)" и "Replicas Of Life", с мощными гитарами и голосом Petrozza напоминают времена "Pleasure To Kill". С другой стороны, "Slave Machinery" вызывает в памяти "Outcast", где интро к "Replicas Of Life" встречается с тенденциями "Endorama". "Вы можете почувствовать, что мы занимались этим альбомом с великолепным чувством свободы и с огромной энергией..." - говорит Петроцца, объясняя все эти перемены переходом на другой лэйбл - "Наша новая записывающая компания позволяет нам оставаться самими собой". Эта внутренняя свобода, разновидность личной революции против устоявшихся условий и является основой для лирики этого альбома. Этот материал о личном опыте, поддерживаемом параллелями, описанными в Оруэлловской "Animal Farm". "Violent Revolution" - это концептуальный альбом, в котором нет хронологического порядка, но все песни подчинены центральной теме. <img src=/images/articles_rus/2001.09/1644.jpg border=1 align=left width=300 height=256 ></p>
+
+Автор: Yermola
+
+### 10.10.2001 reviews Возвращение героев трэш-метал!
+
+<p>Kreator вернулись с новым альбомом! Не просто выпустили новый альбом, а именно вернулись. Милле и Ко завязали с экспериментами в духе Endorama, и вернулись к своему фирменному звучанию, к своему старому стилю. Violent Revolution представляет из себя старый добрый трэш метал! Хотя конечно заметно небольшое влияние их позднего творчества - музыка более мелодична, не так агрессивна, как в 80-х. По звучанию, по стилистике Violent Revolution больше всего мне напомнил Coma Of Souls. Кстати, и обложка тоже напоминает Coma Of Souls. Незнаю, почему это вдруг группа решила вернуться к своему фирменному стилю, слишком далеко зашли их эксперименты на двух предыдущих альбомах. Причем, в отличие от Destruction, которые на каждом углу кричат про свое возвращение к старому звучанию и имиджу, Kreator совершенно не афишируют это. Несомненно, с выходом этого диска поклонники группы разделятся на два лагеря - одним понравится то что альбом записан в старом стиле, другие будут плеваться от этого, говорить о кризисе идей. Лично мне пришелся по душе Violent Revolution. Я рад, что слышу настоящий Kreator. После Outcast и Endorama я поставил крест на этой группе. А они взяли и выпустили отличный альбом! Всем бы так!</p>
+
+Автор: Vic Thor
+
+### 17.10.2001 news KREATOR в немецких чартах...
+
+<p>Последний альбом "KREATOR" - "Violent Revolution" достиг 38 места в German Media Control Album charts. Из других новостей, команда завершила работу над видео к своему новому творению. Съемки велись гамбургской компанией Q-Film, известной по сотрудничеству с RAMMSTEIN.</p>
+
+Автор: Yermola
+
+### 17.10.2001 news KREATOR have entered the German Media Control Album charts ...
+
+<p>KREATOR have entered the German Media Control Album charts at position #38 with their latest release, Violent Revolution. In other news, KREATOR have completed a video for the title track to their new album in conjunction with Q-Film, a Hamburg, Germany-based video company that had previously worked with RAMMSTEIN, among others. According to the group’s official web site, “KREATOR are currently working on a very detailed video show to visualize certain aspects in their music for the next tour”. Meanwhile, all the dates for the group’s upcoming three-way co-headlining European tour with DESTRUCTION and SODOM have been announced. The details are as follows: <br> Dec. 26 - Ludwigsburg, GER @ Rockfabrik <br> Dec. 27 - Bochum, GER @ Zeche <br> Dec. 28 - Zaandam, NETH @ De Kade <br> Dec. 29 - Hamburg, GER @ Markthalle <br> Dec. 30 - Halle, GER @ Easy Schorre <br> Dec. 31 - Osnabrьck, GER @ Hyde Park <br> Jan. 02 - Offenbach, GER @ Hafenbahn <br> Jan. 03 - Dorndorf, GER @ Kulturhaus <br> Jan. 04 - Glauchau, GER @ Alte Spinnerei <br> Jan. 05 - Berlin, GER @ Music Hall Berlin <br> Jan. 06 - Warschau, POL @ Proxima <br> Jan. 07 - Katowice, POL @ Mega Club <br> Jan. 09 - Nьrnberg, GER @ Hirsch <br> Jan. 10 - Dornbirn, AUS @ Conrad Sohm <br> Jan. 11 - Salzburg, AUS @ Rockhaus <br> Jan. 12 - Wien, AUS @ Planet Music <br> Jan. 14 - Ravenna, ITA @ Rock Planet <br> Jan. 15 - Pratteln, SWI @ Z 7 <br> Jan. 16 - Andernach, GER @ JUZ Live Club <br> Jan. 17 - Cottbus, GER @ Gladhouse <br> Jan. 18 - Lьbeck, GER Holstentorhalle <br> Jan. 19 - Motala, SWE Folkets Park <br> Jan. 20 - Oslo, NOR Betong <br> Jan. 21 - Gothenburg, SWE @ Kеren <br> Jan. 22 - Stockholm, SWE @ Klubben <br> Jan. 24 - Helsinki, FIN @ Nosturi <br> Jan. 25 - Tampere, FIN @ TBA <br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 09.11.2001 reviews Рафинированный трэш-метал в лучших традициях жанра
+
+<p>Новая работа KREATOR представляет собой стопроцентное попадание в цель – рафинированный трэш-метал в лучших традициях жанра. Впору вспоминать все титулы, что присваивали команде лет десять назад – лидеры тевтонского металла, боги евротрэша… Вы пока продолжайте копаться в архивах и воспоминаниях синонимов, а я добавлю: теперь все эти слова вновь актуальны – потому что сердитый потомок арийцев Милле Петроцца сотворил один из лучших альбомов KREATOR за всю историю группы. То есть почти за двадцать лет. <BR> Пожалуй, это самый совершенный альбом KREATOR – сбалансированный звук, мелодии, агрессия (разве что название типа "Масло масляное" звучит не очень…). "Violent Revolution" собрал воедино все, что раньше было разбросано по отдельным дискам: мелодии "Outcast" и "Endorama", плотный звук и ритмичность "Coma of Souls". Только вот злоба "Extreme Agression" и ранних альбомов представлена чуть в меньшей степени – что, однако, альбом вовсе не портит.<BR> Пожалуй, на этом можно и остановиться… Но диск звучит с такой ностальгией по прошлым золотым годам трэша, что просто напрашивается вывод – музыкальная эволюция KREATOR, похоже, завершена и ничего другого "созидатели" больше сказать не хотят. Что ж, "Coma of Souls" часть вторая - вполне достойный финал. А что будет дальше? На диске просто нет ни одного намека на прогресс. Шедевров уже не переплюнуть, а новые эксперименты, похоже, аудитории KREATOR не нужны – вряд ли кто-то захочет слушать вторую часть "RENEWAL". Да и вряд ли Петроцца решится на подобные пробы. <BR> Но это – проблемы завтрашнего дня. А на сегодня мы имеем один из лучших альбомов KREATOR. Вот и хорошо.</p>
+
+Автор: Tornado
+
+### 16.11.2001 news Wacken Festival...
+
+<p>Знаменитый "Wacken Festival" в следующем году будет проходить со 2-го по 3-е августа в Вакен (Германия). Уже заявлены следующие участники: <BR><BR> BLIND GUARDIAN <BR> RAVEN <BR> PUNGENT STENCH <BR> DIMPLE MINDS <BR> KREATOR <BR> DESTRUCTION <BR> J.B.O <BR> IN EXTREMO <BR> FALCONER <BR> AMON AMARTH</p>
+
+Автор: Yermola
+
+### 26.11.2001 news KREATOR запишут живой CD...
+
+<p>Ветераны немецкого трэша "KREATOR" во время предстоящих Европейских гастролей запишут живой CD и DVD. Альбом будет содержать 24 песни показывающих все периоды истории группы, видео-клипы, редкий материал и съемки из частных архивов. Дата выхода - конец 2002 года. Сейчас "KREATOR" обратился к фэнам с просьбой помочь придумать название диска. Победитель получит право пообедать с командой... Пишите: <A HREF="mailto:kreatoronline@lycos.de">kreatoronline@lycos.de</A></p>
+
+Автор: Yermola
+
+### 26.11.2001 news KREATOR will be recording a live CD and DVD ...
+
+<p>Veteran German thrashers KREATOR will be recording a live CD and DVD on their upcoming European tour, according to an official statement posted at the group’s web site. The album will reportedly include 24 songs from all periods of KREATOR’s history, while the DVD will contain one professionally-recorded, full-length live concert, as well as all the video clips, TV appearances, rare material and obscure stuff from the band’s private archives. The release date for both is tentatively penciled in for late 2002. KREATOR is presently asking their fans for help in naming the live album/DVD, with the Grand Prize set to consist of “an exclusive dinner with the band”. All suggestions should be e-mailed to: <A HREF="mailto:kreatoronline@lycos.de">kreatoronline@lycos.de</A></p>
+
+Автор: Yermola
+
+### 29.11.2001 news KREATOR, SODOM, and DESTRUCTION European tour...
+
+<p>Florida female-fronted act WYKKED WYTCH, featuring DIVINE EMPIRE/ex-MALEVOLENT CREATION bassist Jason Blachowicz, has secured the opening slot for the KREATOR, SODOM, and DESTRUCTION European tour, dubbed Hell Comes To Your Town, after HOLY MOSES were forced to pull out of the trek in order to concentrate on the writing and recording of their new studio album. The confirmed dates for the outing are as follows: <BR><BR> Dec. 26 – Ludwigsburg, GER @ Rockfabrik <BR> Dec. 27 - Bochum, GER @ Zeche <BR> Dec. 28 – Zaandam, NETH @ De Kade <BR> Dec. 29 - Hamburg, GER @ Markthalle <BR> Dec. 30 - Halle, GER @ Easy Schorre <BR> Dec. 31 - Osnabrьck, GER @ Hyde Park <BR> Jan. 02 - Offenbach, GER @ Hafenbahn <BR> Jan. 03 - Dorndorf, GER @ Kulturhaus <BR> Jan. 04 - Glauchau, GER @ Alte Spinnerei <BR> Jan. 05 - Berlin, GER @ Music Hall Berlin <BR> Jan. 06 – Warschau, POL @ Proxima <BR> Jan. 07 – Katowice, POL @ Mega Club <BR> Jan. 09 - Nьrnberg, GER @ Hirsch <BR> Jan. 10 – Dornbirn, AUS @ Conrad Sohm <BR> Jan. 11 – Salzburg, US @ Rockhaus <BR> Jan. 12 – Wien, AUS @ Planet Music <BR> Jan. 14 – Ravenna, ITA @ Rock Planet <BR> Jan. 15 – Pratteln, SWI @ Z 7 <BR> Jan. 16 - Andernach, GER @ JUZ Live Club <BR> Jan. 17 - Cottbus, GER @ Gladhouse <BR> Jan. 18 - Lьbeck, GER @ Holstentorhalle <BR> Jan. 19 – Motala, SWE @ Folkets Park <BR> Jan. 20 – Oslo, NOR @ Betong <BR> Jan. 21 – Gothenburg, SWE @ Kеren <BR> Jan. 22 – Stockholm, SWE @ Klubben <BR> Jan. 24 – Helsinki, FIN @ Nosturi</p>
+
+Автор: Yermola
+
+### 20.12.2001 news Kreator canceled their show on &quot;Anti X-mass festival&quot;
+
+<p>A terible news came. They canceled show(s)</p>
+<p>That means we can't see them in Ljubljana (Slovenia) and any other country where the festival is organised. But there's a hope. Anti X-mass festival stays. In Ljubljana there are going to play: NOCTIFERIA, PROSPECT, DUSK DELIGHT, ROOT A' BALLUTA in MAGUS NOCTUM (they play some kind of black/pagan/mystic metal). These are ALL Slovenian metal bands.</p>
+<p>If anyone is interested to visit it, the price is 800 SIT (approximate 7.00 DEM)</p>
+<p>There's is going to be even a DJ, which will bring you back to the good 80's and 90's thrash metal years.</p>
+
+Автор: Immortal
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 26.01.2002 articles Куда катится мир или как Kreator на разогреве у Cannibal Corpse играл.
+
+<p> Вот и приехал я из далекой страны вина, любви и декаданса Бодлера, а именно из Франции, где в течении 4-х месяцев проходил стажировку. Вообще отправляясь в эту "чудесную" страну (кавычки я разъясню в другой статье) я рассчитывал попасть на концерт моих любимых Мизантропов, которые в октябре как раз колесили по стране в обойме с Gloomy Grim и Yearning, являющиеся, как и Misanthrope, служителями славного лейбла Holy Records, подарившего миру помимо всего прочего Septic Flesh. Так вот эти ребята кинули всех металлеров города Лиона, где я собственно и жил, и пришлось мне ждать конца ноября, когда должно было произойти грандиозное действо в виде концерта групп Krisiun, Kreator и Cannibal Corpse. Сразу оговорюсь, что шел я исключительно на Креатор, т.к. творчество группы Корпса Гриндера привлекает меня в весьма узком диапазоне (альбом Vile).</p>
+<p> Билетик мне обошелся в 125 франков, что по нашим деньгам составляет ровно 500 деревянных. Согласитесь, для концерта такого уровня более чем приемлемая цена, тем более за бугром. Ну в общем, скорешился я местными мИталлистами (а по другому французских чмошников назвать сложно: в музыке не смыслят абсолютно, слов не знают, альбомов не знают, названий групп - в принципе тоже) и пошел на это действо.</p>
+<p> Что меня прибило только на подходе к концертному залу (вернее зальчику как потом оказалось), так вот это просто огромное количество тачек. Вы себе представляете российского металлера-алкоголика на новеньком Пежо 206? Я с трудом. а у них - запросто! У каждого крутая аудиосистема с CD changerом... Круто короче!</p>
+<p> Ну заходим в зал - и тут мне плохо становится...зал оказался размером со Свалку!!! А сцена меньше, чем в Р-Клубе!!!! Ну, думаю, как они играть то будут? Еще хреново то, что раздевалки не было. Пришлось в тачку идти шмотки оставлять.</p>
+<p> Уместилось туда народу, человек 600-700. Все вначале попили пивка (цены - так себе: 40 рублей по нашим тугрикам стоит 0,33 пива. Ну я пива сразу литр в себя влил. У французов от ТАКОЙ :) дозы шары сразу выкатились! Они вообще-то слабачки в этом вопросе. Ну стоим пъем пивко, я параллельно смотрю за торговлей атрибутикой. Дороговато надо сказать, но в принципе как у нас на буржуйских концертах, тока у них за 400 р. можно нормальную фирменную майку с Креатором было купить.</p>
+<p> В общем, вначале были Кризиун. Ребята из Бразилии, но играют очень техничный блэк-дет модного нынче разлива. Что-то вроде Zyklon, Susperia, Old Man's Child, только без клавиш. Короче мне понравились они гораздо больше Каннибалов, от которых у меня честно говоря голова болит сильно.</p>
+<p> Ну а минут через 15 началось самое сладкое для меня. Боги тевтонского треша собственной персоной во главе с нестареющим Милле Петрозой.</p>
+<p> Вначале они зарядили Terror Zone с Комы Душ. Затем была новая композиция Reconquering the Throne, от которой мне стало еще теплее. Но одного я не мог понять: то ли все на Каннибалов пришли, то ли никто аглицкого не знает, но слов не знал НИКТО!!! Хотя у Креатора-то вроде текста учить - милое дело: и ритмика есть и рифма, особенно на новом альбоме. Затем пустили Экстремальную Агрессию! Что тут началось!!! Людили пачками слэмовали со сцены, и что удивительно их все исправно носили на руках. Мне отдавили всю шею и спину. Слэмуют они там, кстати, дай боже, и никто никого не кидает. Толкаются тоже хорошо. Тока вот в музыке ни хрена не смыслят. Уроды одним словом.</p>
+<p> Сыграли затем еще пару новых вещей, клевых очень, еще чего-то с Coma of Souls, и вроде начали уже играть мою любимую Violent Revolution и вдруг заткнулись! Я им ору, давайте, мол, играйте Violent Revolution (народ, кстати, кроме меня ваще не проссал, что это за песня :) ), а Милле так обернулся, улыбнулся, мол все нормально, типа "так надо", и ушел отдыхать. Во время этого перерывчика, барабанщик зарядил свое стандартное соло, все ему похлопали и стали ждать продолжения. Продолжение оказалось так себе: песнка с Outcast (Lost), песенка с Renewal, c Endorama вещица, кое что из свежачка... Все немножко стухли. Но на последок ребята порадовали своих преданных фанатов бовичками вроде Flag of Hate и Pleasure to Kill. Короче, неоднозначное впечатление осталось от креаторовского выступления: могли и побольше поиграть (40 минут для таких крутых парней маловато, учитывая то, что Каннибалы играли где-то на полчаса больше) и получше (с Extreme Agressions не играли болше ничего!).</p>
+<p> Ну а затем вышли великие и ужасные Cannibal Corpse во главе с еще более ужасным Corpse Grinder. Их выступление мне сложно оценить объективно, т.к. как я уже говорил выше, страстным поклонником этой группы я не являюсь. "И тут , вероятно вы зададите мне вопрос: позвольте, уважаемый, а где же яйца?", вернее "А как же звук?". А вот звук как раз был выше всяких похвал: сочный, плотный, так что даже Каннибалы звучали просто обалденно! Ну я хаером немножко помахал, Devoured by Vermin порычал и пиво пошел пить. А Каннибалы, как мне рассакзали потом, вроде бы новую программу обкатывали. Но вот почему Креатор у них на разогреве был, я так и не понял. САБЖ короче!</p>
+<p> Вот такие пироги. Понравилось мне в принципе практически все. Следует еще сказать, что за те 3 месяца, что я был в Лионе, у них еще был здоровый фестиваль (это уже в другом зале, он побольше) пауэра, на который я не пошел по идейным соображениям. Там были Edguy с Gamma Ray хедлайнеры, и еще были всякие Heavenly, Sinergy и прочая поверная шелуха :)). Еще была мало известная группа... как же название...а! ну да! Анафема кажется :) В январе, уже после моего отъезда ожидались Agressor, Mortician, Iced Earth. Ну а в феврале вообще должны были приехать какие-то никому не известные команды вроде Immortal, Hypocrisy, Malevolent Creation, Vader и Catastrophic (и все это в одном флаконе рублей за 700 максимум). Вот так вот! А мы тут Мунспелу радуемся как дети! И почему эти уроды буржуйские к нам не едут :(( Обидно....</p>
+
+Автор: Soubbterranean
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 13.08.2002 news MassaBrutto Radioshow #98, 12-13 Aug 2002.
+
+<p>Playlist: <BR><BR> 1. KREATOR - Violent Revolution (SPV/Soyuz)<BR> 2. IMMORTAL DOMINION - Demon Voices (band)<BR> 3. GLUECIFER - Easy Living (SPV/Soyuz)<BR> 4. GLUECIFER - Reversed (SPV/Soyuz)<BR> 5. GLUECIFER - Brutus (SPV/Soyuz)<BR> 6. GLUECIFER - Black Book Lodge (SPV/Soyuz)<BR> --- --- --- --- --- --- --- --- --- ---<BR> \\ новости \\<BR> --- --- --- --- --- --- --- --- --- ---<BR> 7. CARCASS - Pyosified (Earache)<BR> 8. DEMONS OF DIRT - Demon Blues (Hammerheart)<BR> 9. DEMONS OF DIRT - Repetitions (Hammerheart)<BR> 10. SOULREAPER - Darken The Sign (Nuclear Blast/EastWest/Legacy)<BR> 11. DYSANCHELY - In The Dust Of Eternity (Leviathan Recs)<BR> 12. EUTHANASIA - One Last Wish (Leviathan Recs)<BR> _________________________________________________________ <BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 30.01.2003 news Два в одном!
+
+<p>Две немецкие thrash metal легенды KREATOR и DESTRUCTION мощно зажгут 29 марта в московском дворце спорта "Динамо" в совместном концерте на земле Российской.</p>
+
+Автор: Dimas
+
+### 10.04.2003 news Во славу Создателя
+
+<p>Немецкая легенда thrash metal KREATOR выпускает 23 июня двойной концертный альбом "Live Kreation (Revisioned Glory)". Альбом выйдет как в формате CD, так и на DVD. Трэк-лист состоит из следующих композиций:</p>
+<p> 1. The Patriarch<BR> 2. Violent Revolution<BR> 3. Reconquering The Throne <BR> 4. Extreme Aggression <BR> 5. People Of The Lie <BR> 6. Lost <BR> 7. Coma Of Souls <BR> 8. All Of The Same Blood (Unity)<BR> 9. Phobia <BR> 10. Black Sunrise <BR> 11. Pleasure To Kill <BR> 12. Renewal <BR> 13. Servant In Heaven - King In Hell<BR> 14. Terrible Certainty <BR> 15. Riot Of Violence <BR> 16. Terrorzone <BR> 17. Betrayer <BR> 18. Flag Of Hate <BR> 19. Tormentor <BR> 20. Second Awakening<BR> 21. Under The Guillotine<BR> 22. Golden Age <BR> 23. Awakening Of The Gods <BR> 24. Leave This World Behind</p>
+<p> Последние пять трэков войдут только на CD версию альбома. DVD помимо концертных записей будет содержать закулисные съемки с тура, детализированную историю группы, все видеоклипы KREATOR c 1987 по 2001 год, плюс новый видеоклип на песню "Phobia".</p>
+
+Автор: Dimas
+
+### 06.06.2003 news Первый концертный релиз легенды германского Thrash Metal
+
+<p>23 июня на SPV/Steamhammer/Soyuz выйдет первый концертник KREATOR в их истории. 'Live Kreation' выйдет в формате DVD и CD (2CD).</p>
+<p>Трэк-лист версии на компакт-диске: <br><b>CD1</b> <br>The Patriarch <br>Violent Revolution <br>Reconquering The Throne <br>Extreme Aggression <br>People Of The Lie <br>All Of The Same Blood <br>Phobia <br>Pleasure To Kill <br>Renewal <br>Servant In Heaven - King In Hell <br>Black Sunrise <br>Terrible Certainty <br>Riot Of Violence</p>
+<p><b>CD2</b> <br>Lost <br>Coma Of Souls <br>Second Awakening <br>Terrorzone <br>Betrayer <br>Leave This World Behind <br>Under The Guillotine <br>Awakening The Gods <br>Golden Age <br>Flag Of Hate <br>Tormentor</p>
+<p>Концертник записан в Корее и Бразилии. На DVD версию войдут ранее неизданные материалы, видео-клипы и интервью.</p>
+
+Автор: Vit Belov
+
+### 16.09.2003 news KREATOR начнут запись нового альбома
+
+KREATOR войдут в студию для записи нового альбома в мае 2004 года. CD выйдет&nbsp;в 2004 году на SPV. В настоящее время группа готовится к турне "Art Of Noise Part 2" вместе с NILE, VADER, AMON AMARTH и GOATWHORE.
+Автор: Vit Belov
+
+### 01.10.2003 news Nile, Kreator, Vader, Amon Amarth and Goatwhore in USA
+
+10/03 Austin, TX <BR>10/04 Dallas, TX <BR>10/05 El Paso, TX <BR>10/06 Phoenix, AZ <BR>10/07 Hollywood, CA <BR>10/08 Santa Ana, CA <BR>10/09 Sacramento, CA <BR>10/10 San Francisco, CA <BR>10/11 Portland, OR <BR>10/12 Seattle, WA <BR>10/14 Denver, CO <BR>10/15 Lawrence, KS <BR>10/16 Minneapolis, MN <BR>10/17 Sauget, IL <BR>10/18 Chicago, IL <BR>10/19 Cincinnati, OH <BR>10/20 Cleveland, OH <BR>10/21 New York, NY <BR>10/23 Philadelphia, PA <BR>10/24 Poughkeepsie, NY <BR>10/25 Worcester, MA <BR>10/26 West Springfield, VA <BR>10/29 Fort Lauderdale, FL <BR>10/30 Tampa, FL <BR>10/31 Atlanta, GA
+Автор: Vit Belov
+
+### 23.10.2003 news Kreator in South America
+
+01.11. M&eacute;xico-Monterrey - Caf&eacute; Iguana<BR>02.11. M&eacute;xico-Puebla - Plaza de Toros El Relicario<BR>04.11&nbsp; M&eacute;xico-Guadalajara - Hard Rock Caf&eacute;<BR>06.11. Costa Rica-San Jos&eacute; - Planet Mall<BR>07.11. Colombia-Cali - tbc.<BR>08.11. Equador-Quito - tbc.<BR>09.11. Brasil-Manaus - tbc.<BR>13.11. Brasil-Bel&eacute;m - Ginasio Altino Pimenta<BR>14.11. Brasil-S&atilde;o Luis - Boate Estravagance<BR>15.11. Brasil-Santo Andr&eacute; - Victoria Hall<BR>16.11. Brasil-Santos - tbc.<BR>19.11. Brasil-Porto Alegre - Opini&atilde;o Bar<BR>20.11. Brasil-Curitiba - Via Rebou&ccedil;as<BR>21.11. Brasil-Belo Horizonte - tbc.<BR>22.11. Brasil-Rio de Janeiro - tbc.
+Автор: Vit Belov
+
+### 03.11.2003 reviews Старый конь борозды не портит
+
+<P align="left">Впервые за почти уже 20 лет своего существования живая легенда немецкого трэша группа KREATOR выпустила концертный альбом (также имеется соответствующий DVD). На двух дисках уместились в общей сложности 24 трека, записанных, если верить&nbsp;пометкам в буклете,&nbsp;на концертах в Сан-Паулу, Лионе, Лилле, Афинах и Вакене, проходивших в 2001-2002 гг. в ходе мирового турне германских ветеранов трэш-сцены. Сейчас любой альбом, выпущенный "стариками" в этом жанре, моментально приковывает к себе внимание. Что ж, концертник, безусловно, хорош: Петроцца и Со. легко затыкают за пояс все эти модные ныне группы трэша "новой волны". Мелодии и агрессия, мощные риффы и&nbsp;цепляющие песни&nbsp;- всего этого на альбоме в достатке, кто из новичков может похвастать такими достижениями? Очень удобно сделан буклет (сразу замечу:&nbsp;пожалуй, это самый пухлый буклет "союзовских" лицензионных релизов, который я до сего дня держал в руках; но хочется сказать, что если будет добавлена еще пара страниц -&nbsp;то начнется та беда, которой уже страдает, к примеру,&nbsp;Айронд: книжечку вставить обратно невозможно, она рвется; посему или тоньше берите бумагу - что опять-таки чревато, или используйте иные коробки): указывается, с какого альбома та или иная песня, и с какого концерта запись, плюс текст. Здесь в той или иной степени представлены все 10 студийников команды (хоть упор и сделан на последний альбом), так что, приобретая этот релиз, вы сможете получить довольно точное представление о том, что есть KREATOR сегодня&nbsp; и какие песни группа писала в годы своей наибольшей популярности. И всё бы хорошо, но после прослушивания сего двойника меня не оставляла мысль о том, что золотые годы немецкого трэша всё же далеко позади...</P>
+<P align="left">Диск предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 05.03.2004 news На альбоме EDGUY будет два бонус-трэка
+
+На грядущем альбоме <B>EDGUY 'Hellfire Club'</B> будет два бонус трэка. Первый новая версия старой вещи группы <B>'Children of Steel'.</B> А второй песне станет другая версия <B>Mysteria, </B>на которой Sammet споёт дуэт с <B>Mille Petrozza (KREATOR).</B>
+Автор: Vit Belov
+
+### 19.05.2004 news KREATOR войдут в студию
+
+<P><B>KREATOR</B> войдут в студию 21 мая для записи 12 песен для нового альбома с продюсером <B>Andy Sneap</B>.</P>
+Автор: Vit Belov
+
+### 06.07.2004 news Новый альбом KREATOR
+
+<P>Стали известны названия всех песен нового альбома <B>KREATOR</B>, который выйдет в январе на <B>SPV</B>:</P>
+<P>01. <B>Enemy of God</B><BR>02. <B>Impossible Brutality</B><BR>03. <B>Suicide Terrorist</B><BR>04. <B>Murder Fantasies</B><BR>05. <B>Dying Race Apocalypse</B><BR>06. <B>One Evil Comes - A Milion Follow</B><BR>07. <B>Dystopia</B><BR>08. <B>World Anarchy</B><BR>09. <B>Voices</B><BR>10. <B>Under A Blackened Sky</B><BR>11. <B>When Death Takes It's Dominion</B><BR>12. <B>The Ancient Plague</B><BR></P>
+Автор: Vit Belov
+
+### 09.07.2004 news А Mike Amott сыграет на новом альбоме KREATOR
+
+<B>Mike Amott (ARCH ENEMY)</B> записал гостевые соло для песни<B> KREATOR</B> <B>"Murder Fantasies"</B> с нового альбома.
+Автор: Vit Belov
+
+### 23.09.2004 news KREATOR выпускают новый альбом
+
+<P>"<STRONG>Enemy Of God</STRONG>" - название нового альбома <STRONG>KREATOR</STRONG>, который выйдет 10 января на <STRONG>SPV</STRONG>. Название песен:</P>
+<P>01. <B>Enemy of God</B><BR>02. <B>Impossible Brutality</B><BR>03. <B>Suicide Terrorist</B><BR>04. <B>Murder Fantasies</B> (feat. <B>Michael Amott</B>)<BR>05. <B>Dying Race Apocalypse</B><BR>06. <B>One Evil Comes - A Milion Follow</B><BR>07. <B>Dystopia</B><BR>08. <B>World Anarchy</B><BR>09. <B>Voices</B><BR>10. <B>Under A Blackened Sky</B><BR>11. <B>When Death Takes It's Dominion</B><BR>12. <B>The Ancient Plague</B></P>
+Автор: Vit Belov
+
+### 13.12.2004 news KREATOR выложили сэмплы
+
+<P>Сэмплы с нового альбома <STRONG>KREATOR 'Enemy Of God'</STRONG> выложены в сеть. Качайте по ссылкам:</P>
+<P><STRONG>Enemy Of God</STRONG>: <A href="http://www.kreator-terrorzone.de/site/asxmaker.php?file=EnemyOfGod-128.wma">http://www.kreator-terrorzone.de/site/asxmaker.php?file=EnemyOfGod-128.wma</A></P>
+<P><STRONG>Impossible Brutality</STRONG>: <A href="http://www.kreator-terrorzone.de/site/asxmaker.php?file=ImpossibleBrutality-128.wma">http://www.kreator-terrorzone.de/site/asxmaker.php?file=ImpossibleBrutality-128.wma</A></P>
+<P><STRONG>World Anarchy</STRONG>: <A href="http://www.kreator-terrorzone.de/site/asxmaker.php?file=WorldAnarchy-128.wma">http://www.kreator-terrorzone.de/site/asxmaker.php?file=WorldAnarchy-128.wma</A></P>
+Автор: Vit Belov
+
+### 19.01.2005 reviews Мелодичный некреативный эксперимент
+
+<P>Думаю, что не ошибусь, если скажу, что многие из вас перед выпуском нового творения ветеранов немецкой трэш-сцены Kreator (а под этим именем они выступают уже практически 20 лет) гадали, в каком же направлении двинут свои стопы "старички". Back to the roots? Но возвращение к корням может быть как довольно успешным (Tankard), так и не очень (Destruction). Или modern thrash аля The Haunted? Или modern metal в духе Anthrax? А, может, уйдут в модный нынче thrash-death вдогонку за The Crown и другими? Или же начнут "издеваться" над трэшем, как Grip Inc.? Или... Гадать можно было бесконечно. И даже вновь появившаяся на обложке башка, знакомая по "Coma Of Souls" и "Violent Revolution", ничем не могла помочь. За последние 5 лет немецкие трэшеры выпустили весьма спорные "Endorama" и "Violent Revolution" плюс свой первый концертник "Live Kreation" (отличная работа, но это не был студийный альбом). Западные рецензенты словно соревнуются сейчас между собой по количеству хвалебных слов в адрес "Enemy Of God", да и выпускающий этот опус по лицензии "Союз" тоже не отстает: "Чистый брутальный трэш - страшный, сложный, плотный, жесткий, скоростной, мелодичный; тонны быстрых риффов и острейших соло". Вы уже чувствуете, что здесь что-то не так? Но перейдем непосредственно к предмету рецензии. Альбом начинается с заглавной вещи и подает надежды на то, что впереди нас ждет классический Kreator - 'Enemy Of God' быстрая, техничная, "острая" вещь; правда, несколько замедляющаяся где-то в середине, как будто кто-то неведомый нажал на невидимый тормоз. 'Impossible Brutality' открывается барабанной дробью, сдобренной весьма мелодичными гитарами, неплохая среднескоростная (в темпе "быстрого марша") вещица. 'Suicide Terrorist' чуть побыстрее, но вот уже начинают закрадываться сомнения, а всё ли так прекрасно в королевстве Kreator? Ощущается нехватка фантазии, да и скорости могли бы быть повыше, хотя гитарные соляки тут хороши. А вот в 'World Anarchy' паровоз, похоже, начинает разгоняться - гитары и особенно ударные работают на полную мощь. Вокал Петроцца, похоже, не претерпел никаких изменений - а ближе к завершению песни ребята даже выдают небольшой медленный акустический пассаж с чистым вокалом! А вот начиная с 5-ой песни 'Dystopia' начинается самое неприятное. Наряду со сногсшибательными гитарными соло и раскатами барабанов на свет Божий потихонечку выползает "мелодичная гадина"... И вот в 'Voices Of The Dead' на нас вываливается то, чего ждали, наверное, меньше всего - мелодик-дэт! И припев, и межкуплетные проигрыши являют собой чуть ли не чистый мелодик-дэт с некоторыми отголосками альбома "Endorama". Вот какой сюрприз приготовили немецкие трэшеры, и лично мне в данном музыкальном контексте он совершенно не по душе. В 'Murder Fantasies' появляется никто иной, как Michael Amott (Carcass, Arch Enemy) со всеми вытекающими отсюда последствиями. Альбом всё дальше начинает сносить с трэшевой колеи черт знает куда. И вот уже - для тех кто ждал фирменный креаторовский стиль - впечателение от&nbsp;пластинки испорчено. 'When Death Takes It's Dominion' кажется уже какой-то вымученной, 'One Evil Comes...' просто неинтересной, а 'Dying Race Apocalypse' звучит чуть ли не как трэшевый вариант тру-хэви-металической песенки аля Manowar. В 11-ой 'Under A Total Blackened Sky' квартет вроде бы пытается вернуться к своему стилю, но "мелодичный вирус" уже запущен, и даже красивые гитарные сольные проходы не спасают положения. Ну и заключительная 'The Ancient Plague' тоже понравится разве что любителям мелодичных гитарных проигрышей. Возможно, вам покатит эта пластинка и вы сочтете данные эксперименты группы вполне удачными и привносящими новизну в звучание ее музыки. Однако ортодоксам тут, кроме первой трети альбома, ловить практически нечего. Мне даже страшно подумать, каким может оказаться следующий&nbsp; релиз легенд немецкого трэша... В завершение добавлю, что продюсировал альбом Энди Снип, кроме обычного издания будет выпущен и вариант с бонусным DVD, куда войдет материал "making of" нового альбома, различная информация о группе, концертные видео вещей 'Toxic Track' и 'Coma Of Souls', новое видео 'Impossible Brutality' и куча иных сюрпризов от Kreator для своих фэнов.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 22.01.2005 news KREATOR снова в России!
+
+<P><STRONG>KREATOR</STRONG> объявили даты своего выступления в России:</P>
+<P>26 мая - Санкт-Петербург, Клуб "Порт"</P>
+<P>27 мая - Москва СДК МАИ</P>
+Автор: Vit Belov
+
+### 24.01.2005 reviews Новая высота Kreator.
+
+<P>Эх, давно не брал я в руки шашку! Точнее, пластинку, которая была бы так хороша. Итак, новое творение ветеранов германского трэша Kreator. Не скрою, я ждал этот релиз, и предполагал, что альбом будет неплох, но то, что услышал мой довольно искушенный в<BR>трэше слух, превзошло все ожидания. Enemy Of God, по сути, напоминает предыдущую работу группы Violent Revolution, вот только новый материал гораздо более хитовый. Все композиции легко ложатся на слух и быстро запоминаются.&nbsp; С самого начала 90-х лидер банды Миланд Петроцца провел очень много музыкальных экспериментов, и довольно успешно. Трэш - металл коллектива смешивался с альтернативой, индастриалом, готикой - но все равно это оставался Kreator. И все это&nbsp; всегда выгодно отличало его от довольно однообразных альбомов других немецких собратьев&nbsp; по оружию. Работа 2001 года представляла собой трэш с легкой примесью скандинавского мелодичного дэта, что в принципе неудивительно - новым гитаристом группы стал Sami Yli-Sirnio (Waltary), финн по национальности. Он то и привнес все эти мелодичные интервальные гитарные подклады, которые придали композициям новую и довольно оригинальную окраску.&nbsp; Теперь попробую описать музыку нового альбома: как я уже говорил, берем Violent Revolution, и добавляем к нему понемногу все лучшее, что было наработано группой, начиная с Extreme Agression. За звук на альбоме, как и в прошлый раз, отвечал Энди Снип, который на сегодняшний день очень популярен в трэш - тусовке (последние работы Testament, Exodus) Никаких претензий к работе Энди - этот человек знает, как спродюсировать трэш так, чтобы он, оставаясь олдскульным,&nbsp; при этом звучал достаточно современно, с учетом всех новшеств в возможностях записывающей аппаратуры и звуке в целом. Феноменальная работа, просто шедевр! Недрогнувшей рукой ставлю 10 баллов, хотя впору ставить 15! </P>
+<P>Диск предоставлен концерном Группа Союз&nbsp;&nbsp; </P>
+Автор: Fucker
+
+### 04.04.2005 reviews Почувствуй бесконечную боль
+
+<P>В середине 80-х годов прошлого века на музыкальных прилавках забугорных магазинов, а так же в подпольных каталогах студий звукозаписи на территории СССР появился дебютный альбом западногерманского коллектива Kreator. Называлась пластиночка Endless Pain, а нарезали трое тинейджеров из города Эссен популярный тогда трэш – метал. Альбом получил очень хорошие отзывы критиков и снискал бешеную популярность у слушателей. Помнится, я сам с удовольствием заслушивался этим диском – настолько свежей, злобной и агрессивной была музыка банды. </P>
+<P>Промчались годы боевые, и 20-лет спустя вышло ремастированное переиздание альбома, включающее 4 бонуса - дебютное демо группы Tormentor (первое название коллектива, замененное позже на Kreator). Каждая композиция несет в себе такой заряд энергии, что можно простить музыкантам все: кривовато исполненные местами барабанные брэйки, непопадалова друг в друга и соляки сыгранные там, куда случайно пальцы легли. Немудрено, ведь для парней, скрывающихся под именами Милле, Роб и Вентор это был первый студийный опыт, а было им тогда меньше 18-ти лет, да и записано все было за 10 дней. Тем не менее, материал, представленный на альбоме настолько был настолько интересен и самобытен, что моментально вывел группу на вершины европейских хит-парадов и большую сцену. Забавно, что на Endless Pain половина вещей спета барабанщиком Вентором (впоследствии он полностью отказался от записи вокала, уступив место у микрофона Милле Петроцце). Бонусы, несмотря на ремастеринг, звучат очень кошмарно и, по большому счету, представляют только коллекционную ценность, а вот общий саунд альбома претерпел значительные изменения в лучшую сторону. 12-ти страничный буклет снабжен текстами, ранними фотографиями группы и коротким рассказом Милле о начале их творчества. </P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 04.04.2005 reviews Вторая ступень на пути к славе
+
+<P>Вторая работа Kreator стала новой ступенью в развитии группы. Альбом Pleasure To Kill был записан спустя 10 месяцев с момента релиза дебютного диска и на сей раз музыканты и лейбл подошли к записи более ответственно. В исполнении композиций появилось больше сыгранности, была выбрана другая студия, к записи и продюсированию был привлечен Харрис Джонс, успевший поработать с такими группами, как Хэлловин и Слайм. Материал, представленный на пластинке, очень напоминает по духу Endless Pain, только более жесткий и брутальный, более продуманный и техничнее исполненный. Несомненными хитами являются вещи Pleasure To Kill, Under The Guillotine, и конечно Riot Of Violence с Вентором на вокале (единственная песня, которая до сих пор включается во все концертные сет-листы, где мы можем услышать голос Вентора). </P>
+<P>В качестве бонусов на диске представлен 3-х песенный mini-LP “Flag Of Hate”, спродюсированый Ральфом Хубертом (Mekong Delta). </P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 05.04.2005 reviews Учение и труд все перетрут
+
+<P>Намедни, год 1987-й. На просторах СССР полным ходом идет перестройка, тяжелая музыка вылезла из андеграунда на полулегальное положение: официально ее еще не разрешили, но за нее уже не гоняют. Западногерманская рок- группа Kreator выпускает свой третий альбом Terrible Certainty. Эта пластинка стала первым релизом группы, на которой участники научились владеть инструментами на нужном уровне. Собственно, это не мудрено – за плечами у коллектива было два опыта студийной работы и два больших турне по Европе и США. Для записи, на сей раз, был привлечен английский продюсер Рой Роуленд и саунд группы претерпел значительные изменения. Kreator отошли от сырого, «веномовского» звучания и сделали основной упор на техничное исполнение своих партий. Барабанщик играет все очень профессионально и ровно, не выбиваясь из клика. Гитаристы, усиленно поработав над звукоизвлечением, тщательно вычесывают все риффовые рисунки, не оставляя без внимания ни одной ноты. </P>
+<P>Несмотря на все эти характерные плюсы, пластинке явно чего-то не достаёт. Создается впечатление, что команда нащупала нужную нить, потянула за нее, но размотать клубок до конца не смогла. Размотать клубок у них сторицей получится на следующем альбоме, но это уже совсем другая история…</P>
+<P>В качестве бонусов на ремастированном издании представлен ЕР группы “Out Of The Dark…Into The Light” от 1988 года, включающий в себя два студийных и три концертных трэка.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 05.04.2005 reviews Экстремально трэшевая агрессия
+
+<P>Классика жанра. Шедевр. Альбом, навсегда вошедший в анналы трэш – металла, как один из эталонов стиля. Музыка, звучащая на диске, на все сто оправдывает название релиза – Экстремальная Агрессия. Каждая композиция просто насквозь пронизана злобой и брутальностью. Прибавьте к этому безупречное, сверхвиртуозное и скоростное исполнение и стопроцентную хитовость материала. Для записи этого релиза коллектив покинул родные пенаты и отправился в заокеанский Голливуд, который, как известно, является не только колыбелью синематографа, но и Меккой звукозаписи и саунд-продюсирования. Результаты этого вояжа налицо: звучание альбома безукоризненно – даже по сегодняшним меркам. Выход этой пластинки моментально вывел Kreator на качественно новый уровень и сразу же показал, кто есть кто в европейском трэше. </P>
+<P>Буклет достаточно аскетичен и представляет из себя только тексты на белых страницах (кстати, в фирменном варианте он выглядит так же). Вот только одно не понятно – куда на лицензионном издании подевались, так называемые, сэнксы? А ведь список благодарностей на Extreme Agression достаточно забавный. Как вам например, указание в нем таких позиций, как Moskovskaja или Teresa Orlowski.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 06.04.2005 reviews Шедевр! (без комментариев)
+
+<P>После грандиозного успеха Extreme Agression, Kreator записывают, наверное, самую лучшую свою пластинку – Coma Of Souls. Материал, представленный на альбоме, такой же жесткий, бескомпромиссный и напористый трэш, как и на предыдущей работе, только в песнях появилось больше мелодики. Можно назвать это коммерциализацией, но в данном случае она пошла только на пользу – каждая композиция является несомненным хитом, ввиду красивых и гармоничных построений гитарных риффов, и, как следствие, моментальное запоминание песен слушателями. Записывался диск опять в штатах, но на сей раз не на западном, а на восточном побережье, в местечке Тампа, под жарким солнцем Флориды. Стоит заметить, что на место покинувшего группу гитариста Тритзе был рекрутирован Франтишек Годзик, бывший гитарист коллектива Sodom, более известный как Frank Blackfire. Для группы это была просто находка: продуманные и очень техничные соло Фрэнка придали музыке своеобразный колорит и разбавили достаточно сумбурные и психоделичные соло Милле. Лично для меня этот альбом навсегда останется лучшей работой Kreator. Если вы любите трэш и не слышали этот диск, то могу вас заверить – вы многое потеряли и этот пробел просто необходимо заполнить.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 06.04.2005 reviews Германское поле экспериментов
+
+<P>Альбом 1992 года Renewal произвел просто взрыв в музыкальной среде и дал отчет новой эры в творчестве Kreator – эре экспериментов. Диск моментально поделил армию поклонников группы на два лагеря. Одни, более консервативные и ждавшие продолжения дела Extreme Agression и Coma Of Souls, утверждали, что Милле продался, повелся на поводу у модных музыкальных течений и Kreator начал играть не пойми что. Другие, более продвинутые и прогрессивные, утверждали, что альбом просто феноменален. Спорам не было конца и края. А все дело в том, что музыка данного релиза представляла собой сплав трэша, альтернативы, да еще и была приправлена элементами индастриала. Такой коктейль для многих был просто в новинку. Скажу честно, я разделял мнение первого лагеря и эксперимент группы просто не понял. И только несколько лет спустя, переслушав альбом, смог проникнуться его идеей и по достоинству оценить сей релиз. На мой скромный взгляд, этот альбом был очень смелым и новаторским для 92-го года, и немного опередил свое время.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 13.04.2005 articles KREATOR в Москве: пресс-релиз
+
+<P>Наше радио <BR>и «МАИ тур-сервис»<BR>представляют<BR>27 мая 2005г.<BR>«KREATOR»</P>
+<P>&nbsp;</P>
+<P>KREATOR снова на самой поверхности экстремальной музыки со своим, пожалуй, самым сильным альбомом “Enemy Of God”. </P>
+<P>Совершив невероятное возвращение на сцену со своим предыдущим альбомом “Violent Revolution”, овеянная легендой группа, вновь обретя прямую связь со своими поклонниками и твёрдую почву под ногами со своим сегодняшним мощным составом музыкантов, начинает новый тур 2005, и 26-27 мая выступит в России.</P>
+<P>Прежние эгоцентричные альбомы были очень важны для KREATOR, но сегодня приоритеты группы чётко определены: энергия, брутальность и интенсивность в музыке. И это суть их концертных шоу. Люди должны двигаться больше…</P>
+<P>Ставки были высоки, но они с этим справились. Группа вновь дала выход своему творческому потенциалу и пробудила новый шторм во вселенной KREATOR(-a), не экспериментируя с другими музыкальными стилями и инструментами; перкуссией, клавишными и т. д. Только гитары, ударные, бас и вокал. Запуская всё это за пределы возможного !</P>
+<P>Сегодняшний материал группы базируется на реалиях наших дней: религиозных войнах, борьбой конфликтующих миров, миров полных эгоизма, страха и ненависти. Сегодня KREATOR звучит небывало мощно, как отлаженная машина; современно и одновременно очень хорошо узнаваемо. </P>
+<P>В туре “Enemy Of God” 2005, KREATOR играет для своих старых, закалённых в боях, и новых фэнов, лучшее из своего прославленного прошлого, а также всё самое актуальное новое, оставаясь непримиримым врагом богов, которые превращают всё вокруг в руины. Mille расскажет вам всё об этом: о боге и об этом мире. </P>
+<P>KREATOR – Enemy Of God – tour 2005 RUSSIA:<BR>27 мая –&nbsp; Москва, СDК МАИ</P>
+<P>Состав: <BR>Mille Petrozza - гитара, вокал<BR>Christian Giesler - бас <BR>Ventor - ударные <BR>Sami Yli Sirni&#246; - гитара</P>
+<P>Новый альбом: KREATOR “Enemy Of God”</P>
+<P>Вход открыт с 19:00. Начало концерта в 20:00.</P>
+<P>Стоимость билетов:<BR>500 р. – студентам МАИ и владельцам ISIC-карт,<BR>700 р. – танцпол (предварительная продажа в CDK МАИ),<BR>750 р. – танцпол (стоимость в городских кассах и в CDK МАИ в день концерта)<BR>1500-1200 р. - балкон</P>
+<P>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></P>
+Автор: Vit Belov
+
+### 27.05.2005 news KREATOR в Москве
+
+<P align=center><IMG height=284 alt="" hspace=0 src="/images/shows_rus/2005.05/8315.jpg" width=400 align=right border=5>«МАИ тур-сервис»<BR>представляет<BR>KREATOR – Enemy Of God – tour 2005 RUSSIA:<BR>27 мая –&nbsp; Москва, СDК МАИ</P>
+<P align=center>Вход открыт с 19:00. Начало концерта в 20:00.</P>
+<P align=center>Стоимость билетов:<BR>500 р. – студентам МАИ и владельцам ISIC-карт,<BR>700 р. – танцпол (предварительная продажа в CDK МАИ),<BR>750 р. – танцпол (стоимость в городских кассах и в CDK МАИ в день концерта)<BR>1500-1200 р. - балкон</P>
+<P align=center>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></P>
+<P align=center><STRONG>ВНИМАНИЕ: Сессия автографов KREATOR состоится 27 мая в 14-00 в магазине ВсеСОЮЗный центр музыки и кино по адресу Ленинский проспект, дом 11</STRONG></P>
+<P align=center>&nbsp;</P>
+Автор: Vit Belov
+
+### 30.05.2005 articles 27.05.05 Kreator в СДК МАИ.
+
+<P>Долгих пять лет прошло с того времени, как ветераны трэш – движения, коллектив Kreator последний раз играли концерт в Москве. Много воды утекло с тех пор, в группе поменялся гитарист, были записаны два сногсшибательных альбома, ознаменовавшие собой возвращение к корням и вот, величайшие немцы снова в столице России, площадка – СДК МАИ. Честно говоря, именно последний факт слегка настораживал многих поклонников группы – данный ДК всегда славился, мягко скажем, не очень качественным звуком, но в этот раз нам обещали отличный саунд, и ради этого организатор даже отказал в выступлении разогревающим коллективам, дабы Kreator смогли провести полноценный саундчек.</P>
+<P>Начнем по порядку. Начало концерта традиционно затянулось, вход в заведение был закрыт и пришедшая публика вовсю тусовалась перед зданием СДК МАИ, выполняя месячный план по продаже пива и прочих алкогольных напитков в близлежащих магазинах – благо на дворе май – месяц и погода способствовала пребыванию на улице, общению и возлияниям. Но вот, коллектив подъехал к зданию, и народ, скопившийся уже в достаточном количестве, начали впускать внутрь. В результате, концерт, заявленный по одной информации на 19:00, по другой – на 20:00 начался около 21-го часа. Зал, забитый под завязку, зашелся в радостных овациях и на сцену вышли Kreator.</P>
+<P>С первых же риффов стало понятно, что никакие саундчеки положения не исправили –звук, характерный для данной площадки остался неизменным: шквал ритм - секции и полностью просаженные кашеобразные гитары. Причем я уверен, что за пультом, который расположен в VIP зоне на балконе, ситуация была более-менее нормальной. Особенность СДК МАИ такова, что акустика зала неравномерна – когда наверху вроде бы все хорошо, внизу не хватает середины и гитар в зале не слышно. Может быть, имеет смысл повесить объявление об этом факте перед пультом на нескольких языках, что бы звукорежиссеры были в курсе? В общем, человек плохо знающий материал группы, вряд ли смог ориентироваться в песнях, звучащих со сцены, хотя для фэнов команды этот факт уже был не столь важен: перед сценой вовсю шло рубилово под знакомые композиции из разных периодов творчества Kreator. Отвратительно (впрочем, как и всегда) вели себя стэйдждайверы на этом концерте. Ну, нравится тебе прыгать со сцены в зал – прыгай. Но зачем же мешать музыкантам, сшибать мониторы и ломать стойки во время исполнения. Лидер группы Mille Petrozza даже сделал замечание по этому поводу, сказав что «всегда готов пожать фэнам руки после шоу, но не надо ломать оборудование и создавать неудобства во время концерта» и пригрозил «надрать задницу особо ретивым стэйдждайверам, не контролирующим свое поведение». (арт-директор клуба Стас Зализняк сообщил, что вполне возможно теперь на металл-концертах в СДК МАИ будут устанавливать ограждение перед сценой, прим. ред.)</P>
+<P>И все - таки, несмотря на отвратительный звук и небольшие накладки с любителями мешать музыкантам на сцене, атмосфера в зале была отличная. Поклонники принимали группу по полной программе, а группа старалась, насколько это было возможно, не разочаровывать преданных фэнов и, по окончании основного сета, отыграла на бис 3 любимых публикой боевика. Надеюсь, что следующее посещение Kreator-ом России пройдет не через пять лет, а в обозримом будущем. И в качестве площадки хотелось бы видеть ДКГ (как это было оба предыдущих раза) если администрация СДК МАИ не предпримет надлежащих мер по звукоизоляции помещения.</P>
+<P>Трэк - лист концерта:</P>
+<P><SPAN>1.Intro-Choir Of The Damned <BR>2.Enemy Of God <BR>3.Impossible Brutality <BR>4.Pleasure To Kill <BR>5.Phobia <BR>6.Violent Revolution <BR>7.World Anarchy <BR>8.Renewal <BR>9.Suicide Terrorist <BR>10.Extreme Agression <BR>11.People Of The Lie <BR>12.Voices From The Dead <BR>13.All Of The Same Blood <BR>14.Riot Of Violence<BR>15.Terrible Certainty <BR>16.Reconquering The Throne <BR>17.Betrayer <BR></SPAN>Бис<SPAN>: <BR>18.Love Us Or Hate Us <BR>19.Flag Of Hate <BR>20.Tormentor</SPAN></P>
+<P><SPAN>P.S. от Vit Belov: на 14-00 в магазине всеСОЮЗный на Ленинском была намечена автограф-сессия с музыкантами. В намеченное время она не состоялась, а была задержана более чем на час. Особенно хочется обратить внимание на то, что пришедшая публика была вынуждена ждать, пока Mille ответит на вопросы журналистов в эксклюзивных интервью.&nbsp;"Семеро одного не ждут", об этой истине промо-менеджер СДК МАИ Дина Дроздова, видимо позабыла.</SPAN></P>
+Автор: Fucker
+
+### 19.03.2007 reviews Халтурное качество картинки в 21-ом веке, или опять For true fans only
+
+<P>Вдогонку к вышедшему альбому "Enemy Of God" немецкие трэшеры Kreator решили выпустить и DVD. Данный релиз состоит из следующих блоков: 1) часовой концерт на Wacken Open Air в 2005-ом году (звук вы можете выбрать как 2.0. так и 5.1.); 2) бонусный материал из трех концертных песен в немецком же Rockpalast, поименнованный как бутлег; 3) полностью альбом "Enemy Of God" в формате DTS 5.1. (Propaganda 5.1. Remix)&nbsp;с анимированным текстом и некоторыми визуальными эффектами; 4) пять клипов (точнее, четыре, ибо пятый представляет собой making of клипа на заглавную песню альбома). То есть, для фанатов must have. Что касается всех остальных... К части с клипами претензий, в общем-то, нет. Но. Во-первых, особо ли интересно вам слушать этот альбом в 5.1.? Во-вторых, особо ли вам интересны те три песни в Рокпаласте, притом с не лучшим звуком и практически любительской работой оператора? (ну бутлег он и есть бутлег). И в-третьих... Не знаю, была ли такая супер-пупер-задумка, но смотреть час выступления на Вакене с картинкой такого качества - это, пардон, уже не удовольствие, а пытка какая-то. Такой "зернистой снежности" я давненько на DVD не видал. При всем при этом звук явно доделывали потом в студии, что еще больше усугубляет контраст. Кроме как на перемотке, это смотреть просто невозможно (естественно, если вы не упертый фанат Kreator). Как можно было такое налепить в наше время, ума не приложу. И заметьте, концертная часть - основная на диске, ведь это именно то, ради чего, собственно, всё с этим DVD и затевалось. Итак, к сожалению, мы имеем очередной вариант for fans only, ибо всем остальным выкидывать свои кровные на это безобразие просто не рекомендую. Поэтому "Enemy Of God Revisited" остается без оценки.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 17.05.2007 news KREATOR выступят на Extreme Power в Киеве
+
+<P><IMG height=239 alt="" hspace=0 src="/images/news_rus/2007.05/11636.jpg" width=350 align=left border=5>Подтвержден один из хедлайнеров фестиваля!&nbsp;Немецкая легенда треш-метала <STRONG>KREATOR</STRONG> подтвердили свое участие, как одни из хедлайнеров фестиваля <STRONG>EXTREME POWER Open Air 2007</STRONG>. <STRONG>KREATOR</STRONG> на счету которых 17 альбомов за 25 летнею историю отыграют в Киеве свои самых громкие хиты. Напомним, что ранее о своем участии на самом громком событии года в рок музыке объявили американские хардкорщики <STRONG>SICK OF IT ALL</STRONG> и <STRONG>PRO-PAIN</STRONG>, а также&nbsp;датские команды<STRONG> ILLDISPOSED</STRONG> и <STRONG>HATESPHERE</STRONG>. </P>
+<P><A href="http://www.extremepowerfestival.com/">http://www.extremepowerfestival.com</A> </P>
+Автор: Vit Belov
+
+### 04.06.2007 reviews Стафф для фэнов!
+
+<P>Последнее время у многих коллективов прослеживается тенденция выпускать эксклюзивные издания своих релизов со всеразличными бонусами, прилагающимися DVD и прочим стаффом, интересным, в первую очередь, поклонникам группы. Не миновала чаша сия и ветеранов европейской трэш-сцены Kreator. На сей раз группа предложила слушателям свое последнее номерное творение Enemy Of God пересведенное в формате Propaganda 5.1 mix. Но самое ценное, что есть в этом релизе - видео бонусы. Помимо 2-х официальных видеоклипов на композиции Enemy Of God и Impossible Brutality, можно увидеть ролик о том, как делался первый клип, анимационный клип Dystopia , и любительское видео Dying Race Apokalypse. И самое главное: концертное выступление коллектива на крупнейшем европейском фесте Wacken Open Air 2005. Несмотря на слегка зернистое изображение, видео заслуживает отдельного внимания. Во-первых, видеоряд концерта очень хорошо смонтирован, что называется, с душой. Во-вторых, в отличии от предыдущего официального DVD, данный гиг смотрится более "живым" - несмотря на доводку аудио трэков в студии, явно слышно, что большинство дорожек реально прописаны со сцены. Просмотр данного действа доставил мне неподдельное удовольствие. На "закуску" к концерту предлагается три композиции, отснятые для немецкого ТВ-шоу Rockpalast в том же 2005 году. Отличный подарок всем поклонникам коллектива, пребывающим в ожидании нового релиза Kreator.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 09.08.2007 news Extreme Power Metal Fest отменён
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фестиваль <STRONG>Extreme Power Metal</STRONG> в Киеве, намеченный на 15 сентя</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>бря, отменён. Напомним, там должны были выступить <STRONG>KREATOR, PRO-PAIN</STRONG> и др. Организаторы объяснили этот факт назначенными на 30 сентября выборами в Верховную Раду Украины. Из-за политического кризиса на Украине, организаторы не смогли получить разрешающие документы от проверяющих организаций. "<EM>Все заняты выборами, ни у кого нет времени подписать эти документы</EM>", - жалуются промоутеры. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Организаторы планируют провести фест весной 2008 года. </FONT></P>
+Автор: Vit Belov
+
+### 05.12.2007 news KREATOR выпустят ещё одно DVD
+
+<P><STRONG>KREATOR </STRONG>объявили перерыв в активной концертной деятельности, из-за записи нового альбома. Группа планирует выпустить новый студийник в январе 2009 года. Чтобы фэнам было легче ждать, группа переиздаст на DVD два концерта <STRONG>"Live in East Berlin"</STRONG>&nbsp;и <B>"Hallucinative Comas"</B> ранее доступные только на VHS. Все вместе эти шоу получат новое название <STRONG>"At The Pulse Of Kapitulation - Live In East Berlin 1990"</STRONG>.&nbsp;Картинка была отцифрована и приведена к современным стандартам, звук был перемикширован <STRONG>Andy Sneap</STRONG>&nbsp;в формат 5.1. DVD выйдет 31 марта.</P>
+Автор: Vit Belov
+
+### 31.05.2008 news Новый альбом KREATOR
+
+<P><STRONG>KREATOR</STRONG> собираются в <STRONG>Titonus</STRONG> <STRONG>studios</STRONG>&nbsp;в Берлине, где с продюсером <STRONG>Moses Schneider </STRONG>запишут новый альбом, который выйдет в январе на <STRONG>SPV</STRONG>. Сводит пластинку будет знаменитый <STRONG>Colin Richardson</STRONG> (<B>MACHINE HEAD</B>, <B>SLIPKNOT</B>).</P>
+Автор: Vit Belov
+
+### 21.07.2008 news KREATOR вошли в студию
+
+<P><STRONG>KREATOR</STRONG> вошли в студию 20 июля для записи нового альбома. Впервые со времён "<STRONG>Pleasure To Kill</STRONG>" группа запишет пластинку вживую.</P>
+Автор: Vit Belov
+
+### 28.08.2008 news Как KREATOR пишут новую песню в студии
+
+<P>По этому адресу: <A href="http://www.youtube.com/watch?v=cWf9xAurBZw">http://www.youtube.com:80/watch?v=cWf9xAurBZw</A>&nbsp;вы можете посмотреть фрагмент (<I>short teaser</I>) записи новой песни немецких трэш-монстров <B>KREATOR</B> в студии. Еще больше угара, еще больше трэша, еще больше брутальности!</P>
+Автор: Ixtiandr
+
+### 01.10.2008 news Новый альбом KREATOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая пластинка<STRONG> KREATOR</STRONG> "<STRONG>Hordes Of Chaos</STRONG>" выйдет 19 января на <STRONG>SPV</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Hordes Of Chaos (A Necrologue For The Elite)</B><BR>02. <B>Warcurse</B><BR>03. <B>Escalation</B><BR>04. <B>Amok Run</B><BR>05. <B>Destroy What Destroys You</B><BR>06. <B>Radical Resistance</B><BR>07. <B>Absolute Misanthropy</B><BR>08. <B>To The Afterborn</B><BR>09. <B>Corpses Of Liberty</B><BR>10. <B>Demon Prince</B></P>
+Автор: Vit Belov
+
+### 08.10.2008 news KREATOR опубликовали трэк-лист
+
+<P><STRONG><IMG height=395 alt="" hspace=0 src="/images/news_rus/2008.10/12923.jpg" width=400 align=right border=5>KREATOR</STRONG> опубликовали трэк-лист и кавер нового альбома "<STRONG>Hordes Of Chaos</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>Hordes Of Chaos (A Necrologue For The Elite)</STRONG> - 05:04 <BR>2.<STRONG> Warcurse</STRONG> - 04:10 <BR>3. <STRONG>Escalation</STRONG> - 03:24 <BR>4. <STRONG>Amok Run</STRONG> - 04:12 <BR>5. <STRONG>Destroy What Destroys You</STRONG> - 03:13 <BR>6. <STRONG>Radical Resistance</STRONG> - 03:43 <BR>7. <STRONG>Absolute Misanthropy</STRONG> - 03:37 <BR>8. <STRONG>To The Afterborn</STRONG> - 04:53 <BR>9. <STRONG>Corpses Of Liberty</STRONG> - 00:55 <BR>10. <STRONG>Demon Prince</STRONG> - 05:16 </P>
+<P>Bonus DVD <BR>- The Making of Hordes Of Chaos directed by Stephanie von Beauvais <BR>- 'Awakening Of The Gods' - live at Summer Breeze Open Air Germany 2006 <BR>- "Coma Of Souls" - live at Summer Breeze Open Air Germany 2006 <BR>- 'Hordes Of Chaos' - videoclip <BR>running time approx.: 35 min</P>
+Автор: Vit Belov
+
+### 10.01.2009 news Mille рассказал о новом клипе
+
+<P><IMG height=202 alt="" hspace=0 src="/images/news_rus/2009.01/13333.jpg" width=350 align=left border=5>Лидер<STRONG> KREATOR Mille Petrozza</STRONG> рассказал о новом клипе группы на заглавную вещь с нового альбома "<STRONG>Hordes Of Chaos</STRONG>". Ролик был отснят в Берлине 3 ноября с режиссёром <STRONG>Jorn Heitman</STRONG> (<STRONG>RAMMSTEIN</STRONG>), который уже работал с группой на видео к песне "<STRONG>Enemy Of God</STRONG>".</P>
+<P>"<EM>Он, конечно же, немного "клишированный". Мечь и Магия. "Конан-Варвар 300", но мне он кажется брутальным и весёлым. Мне действительно нравится режиссёр, и он сделал хорошую работу. Для него это была большая работа, но нас снимали только два часа, остальные шесть часов снимали боевые сцены, а мы просто ждали. В самом видео куча мертвецов, и мы в середине этой кучи. Конечно же, они не были мертвы по-настоящему, но я до сих пор вспоминаю это необычное чувство, когда ты стоишь в куче мёртвых людей</EM>". </P>
+Автор: Vit Belov
+
+### 22.01.2009 news KREATOR на 165-ом месте
+
+<P>За первую неделю продажи нового альбома <STRONG>KREATOR "Hordes Of Chaos"</STRONG> в США было продано 2800 копий, что означало 165-ое место в чарте <STRONG>Billboard 200</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.01.2009 news Новые чарты KREATOR
+
+<P>Появились данные о поподании в чарты нового альбома <STRONG>KREATOR "Hordes Of Chaos"</STRONG> в Европе:</P>
+<P>Germany: #16<BR itxtvisited="1">Austria: #33<BR itxtvisited="1">Holland: #66<BR itxtvisited="1">Norway: #73<BR itxtvisited="1">Sweden: #47</P>
+Автор: Vit Belov
+
+### 29.01.2009 reviews Мелодично, но тяжело… и с хитами
+
+<P>Немцы KREATOR, пожалуй, самая авторитетная thrash-metal команда из Европы. На протяжении всей своей карьеры группа доказывала, что стиль, в котором она выступает, остаётся востребованным и современным. Сменив несколько раз направление своего развития, KREATOR, кажется, окончательно определились со своим звучанием. Жесточайший, но мелодичный thrash, вот «товарный знак» Mille Petrozza and Co.</P>
+<P>Есть и ещё одна примета нынешнего KREATOR. На каждом новом альбоме группа приготовляет несколько таких бронебойных хитов, что устоять не представляется возможным. В этот раз в этом качестве представлен трэк “Radical Resistance”, да и не только он. Но шестая композиция с “Hordes of Chaos” прокручивалась мною не единожды. “Unite to fight, Unite to fight”, - настоящий гимн thrash-маньяков. Господин Petrozza знает своё дело. Великолепная реализация, классное исполнение, отличные песни… Старые поклонники могут упрекнуть группу в излишнем мелодизме, но мне думается, KREATOR он только к лицу. Ещё во времена “Endorama” стало ясно, что в жёстких рамках thrash-metal молотилова Mille прятал великолепное мелодическое дарование. Теперь он научился использовать его по полной программе. В честь тех хитов, которые мы получили на “Hordes Of Chaos” мы даже простим группе некоторое количество «порожняков», которые завершают альбом.</P>
+<P>KREATOR достойно открыли новый thrash-metal год. Отличный альбом от великолепной группы.</P>
+Автор: Vit Belov
+
+### 01.02.2009 reviews Четыре года прошли почти впустую
+
+<P>По заявлению Mille Petrozza, "Hordes Of Chaos", двенадцатый студийник немецких трэшеров Kreator, является первым случаем после пластинки 1986-го года "'Pleasure To Kill", когда альбом записывался в студии "живьем". Что ж, нечасто встречающееся дело в наши продвинутые времена. Этого релиза полконники группы ждали давно, ведь предыдущая работа вышла в не таком уж теперь близком 2005-ом году. За это время фанаты разделились, грубо говоря, на два лагеря. Одни, ортодоксы,&nbsp;совершенно не восприняли "Enemy Of God" из-за его излишней, по их мнению, мелодичности и уходу в примерно половине вещей практически в мелодик-дэт. Другим же, напротив, понравилась такая своеобразная эволюция группы. Впрочем, у немцев было почти четыре года, чтобы решить, в какую сторону им двигаться дальше. Логичным было предположить, что Kreator на своей новой работе постараются угодить и тем, и другим. И, чисто формально, им это удалось. Однако - в отличие от предыдущего альбома, вне зависимости от того, понравился он или нет - "Hordes Of Chaos" чем-то оригинальным похвастаться не может. Избитые и стандартные риффы, уже слегка подсевший и даже порой "ошибающийся" вокал Милле (да и вздыхать что-то он стал часто), мелодичные проигрыши порой вызывают мысль что надо было "поставить галочку". Похоже, что группа таки исписалась, или, по крайней мере, начала исписываться. Всё&nbsp;же за четыре года можно было подготовить материал и посильнее, и поразнобразнее, и пооригинальнее. Правда, в случае с данной пластинкой нам приходится быть довольно необъективными, так как за подобную работу менее опытные и известные трэшеры получили бы весьма высокий балл. Но Kreator не дебютанты, и мы знаем, на что они (были) способны. Наиболее удачными&nbsp;я бы назвал открывашку 'Hordes Of Chaos (A Necrologue For The Elite)', выполненную в фирменном&nbsp;креаторовском стиле, и довольно интересную по своей структуре&nbsp;'Amok Run'. Также очень неплохой и нестардартной получилась&nbsp;'To The Afterborn', но Милле - как ни странно это звучит - нехило так подпортил её своим вокалом. Вообще, честно говоря, мне данный релиз понравился больше, чем "Enemy Of God", так как здесь всё же поменьше, простите, соплей, да и "мелодик-дэтовость", слава Богу, практически исчезла. Но в золотую копилку группы этот альбом вряд ли попадет. Остается добавить, что "Hordes Of Chaos" будет явной головной болью для фанатов-коллекционеров: кроме обычного издания "в стекле", есть еще вариант CD+DVD (deluxe edition), где на бонусном диске вы найдете "making of", два номера в концертном исполнении и видеоклип на заглавную песню; далее, есть вариант ultra deluxe edition, где вы получите еще и футболку, книжку и расширенный вариант DVD; плюс ко всему есть издание на виниле, обложка которого отличается от вариантов на всех остальных форматах.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 14.02.2009 news Новое видео KREATOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>KREATOR</STRONG> на песню "<STRONG>Hordes of Chaos</STRONG>" с одноимённого альбома можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:341833 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D341833%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A341833%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A341833" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/kreator/artist.jhtml" target=_blank>Kreator</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.02.2009 news KREATOR: Полная чарт-коллекция
+
+<P>Продолжают поступать данные о попадании в чарты нового альбома <STRONG>KREATOR "Hordes Of Chaos"</STRONG>.</P>
+<P>Germany: #16<BR itxtvisited="1">Finland: #16<BR itxtvisited="1">Austria: #33<BR itxtvisited="1">Czech Republic: #35<BR itxtvisited="1">Hungary: #39<BR itxtvisited="1">Sweden: #47<BR itxtvisited="1">Switzerland: #57<BR itxtvisited="1">Holland: #66<BR itxtvisited="1">Norway: #73<BR itxtvisited="1">France: #85<BR itxtvisited="1">USA: #165</P>
+Автор: Vit Belov
+
+### 03.09.2009 news К нам приедет другой барабанщик KREATOR
+
+<P>Барабанщик<STRONG> Ventor</STRONG> не сможет принять участие в ближайших концертах <STRONG>KREATOR</STRONG> по личным мотивам. Ему уже найдена временная замена, к нам приедет <STRONG>Marco Minnemann (NECROPHAGIST</STRONG>, <STRONG>ILLOGICIST,</STRONG> <STRONG>EPHEL DUATH)</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.02.2010 news KREATOR на Nuclear Blast!!
+
+<P><STRONG>KREATOR </STRONG>подписали соглашение с<STRONG> Nuclear Blast</STRONG>. Контракт рассчитан на несколько альбомов.</P>
+Автор: Vit Belov
+
+### 25.06.2010 news Новое видео от KREATOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на песню <STRONG>KREATOR</STRONG> <STRONG>"Destroy What Destroys You" </STRONG>можно посмотреть ниже. Видео для ролика было снято во время концерта немцев в Чили местным режиссёром <STRONG>Carlos Toro.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последняя работа <STRONG>KREATOR "Hordes Of Chaos"</STRONG> будет переиздана в боксе 12 июля на <STRONG>SPV</STRONG>. На специальное издание <STRONG>Hordes Of Chaos - Ultra Riot" </STRONG>войдут 2 видео, 5 демо-версий, две кавер-версии на песни <STRONG>BAD RELIGION</STRONG> и <STRONG>SLIME</STRONG>. Альбом получит новую обложку и новый буклет, а также фотобуклет знаменитого немецкого художника <STRONG>Harald Hoffmann.</STRONG></FONT></P>
+<P>
+<CENTER>
+<OBJECT height=279 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=a979778923af77b40dd8" quality="high" bgcolor="#000000"  width="450" height="279" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.11.2010 news Эксклюзивный концертный альбом KREATOR для журнала &quot;Rock Hard&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17550.jpg" width=300 height=381>К декабрьскому номеру немецкого журнала <B itxtvisited="1">Rock Hard </B>будет прилагаться эксклюзивный концертный CD <B itxtvisited="1">KREATOR</B>. <B itxtvisited="1">"Terror Prevails - Live At Rock Hard Festival"</B> это запись потрясающего выступления группы, которое произошло в мае этого года на сцене&nbsp;"Gelsenkirchen Amphitheater" (Германия). </P>
+<P>Говорит <B itxtvisited="1">Holger Stratmann</B>, издатель журнала <STRONG>Rock Hard: </STRONG><EM>"На данный момент <STRONG>KREATOR</STRONG> достигли вершины своей карьеры. Последние три альбома занимали первое место&nbsp;в&nbsp;наших читательских хит-парадах, да и по всему Миру,&nbsp;<STRONG>KREATOR</STRONG> удерживают оборону, являясь в своём жанре не менее популярными, чем&nbsp;<STRONG>SLAYER</STRONG>."</EM></P>
+<P><STRONG>Rock Hard</STRONG> и <B itxtvisited="1">KREATOR</B> прошли долгий путь, будучи в приятельских отношениях с самых ранних лет существования.&nbsp;Этот факт и, конечно же, 25 годовщина группы, будет отпразднована на страницах журнала, куда войдёт большая статья о группе (11 страниц), множество эксклюзивных, исторических фотографий и свежая фото-съёмка, сделанная в&nbsp;&nbsp;<STRONG>Ruhr Museum</STRONG> города Эссен.</P>
+<P>Digipak CD (первая часть двойного концертного альбома) будет содержать следующие треки:&nbsp;</P>
+<P>01. <B itxtvisited="1">Choir Of The Damned</B> (intro)<BR itxtvisited="1">02. <B itxtvisited="1">The Pestilence</B><BR itxtvisited="1">03. <B itxtvisited="1">Hordes Of Chaos</B><BR itxtvisited="1">04. <B itxtvisited="1">Phobia</B><BR itxtvisited="1">05. <B itxtvisited="1">Enemy Of God</B><BR itxtvisited="1">06. <B itxtvisited="1">Impossible Brutality</B><BR itxtvisited="1">07. <B itxtvisited="1">Endless Pain</B><BR itxtvisited="1">08. <B itxtvisited="1">Pleasure To Kill</B><BR itxtvisited="1">09. <B itxtvisited="1">Terrible Certainty</B></P>
+<P>Вторая часть этого концертника, будет, так же, доступна через журнал <B itxtvisited="1">Rock Hard</B>. Дата её&nbsp;выхода будет анонсирована позже.</P>
+<P>Декабрьский же&nbsp;номер журнала <B itxtvisited="1">Rock Hard</B> поступит в продажу 17 ноября в Германии, Австрии и Швейцарии, общим тиражом в 75,000 экземпляров. Желающие заказать его, могут писать на: <A href="mailto:oversand@rockhard.de">oversand@rockhard.de</A>.</P>
+Автор: Headcrusher
+
+### 30.01.2011 news KREATOR: книга &quot;Violent Evolution&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18357.jpg" width=286 height=400>В марте этого года, группа <STRONG>KREATOR</STRONG> выпускает книгу, получившую название&nbsp;"<STRONG>Violent Evolution</STRONG>".&nbsp;</P>
+<P>Автор книги&nbsp;- <STRONG>Hilmar Bender</STRONG>. </P>
+<P>Пока "<STRONG>Violent Evolution</STRONG>" будет доступна только на немецком языке, но в будущем планируется и её английская версия.</P>
+Автор: Headcrusher
+
+### 30.06.2011 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" align=right src="/images/news_rus/2011.06/19820.jpg" width=250 height=250>Чешский фестиваль <STRONG>Brutal Assault</STRONG> опубликовал ещё несколько имён участников, которые выступят на его сцене в этом году, это - брутальные канадцы&nbsp;<STRONG>CRYPTOPSY</STRONG>,&nbsp;death/thrash металлисты из Соеденённых Арабских Эмиратов - <STRONG>NERVECELL</STRONG>, ещё одни канадцы - <STRONG>KATAKLYSM</STRONG>, викинги&nbsp;<STRONG>TYR</STRONG>, французская эмбиент/эксперементальная группа <STRONG>UNEVEN STRUCTURE</STRONG>, а так же,&nbsp;вперые на фестивале&nbsp;выступят немецкие трэшеры <STRONG>KREATOR</STRONG>.&nbsp;</P>
+<P>К сожалению, по причине того, что группу <STRONG>NEVERMORE</STRONG>&nbsp;покинили двое её участников -&nbsp;&nbsp;<STRONG>Jeff Loomis</STRONG> и <STRONG>Van Williams</STRONG>, ей пришлось отменить все ранее запланированные выступления, в том числе и на фестивале<STRONG> Brutal Assault</STRONG>' 2011.&nbsp;&nbsp;И ещё одной отменой стали фины <STRONG>NORTHER</STRONG>, которые не смогут принять участие в фестивале по причине непрофессиональной работы своего&nbsp;агента.</P>
+Автор: Headcrusher
+
+### 09.07.2011 news KREATOR будут работать с Jens Bogren
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В недавнем интервью лидер <STRONG>KREATOR Mille Petrozza</STRONG> сообщил, что&nbsp;немцы забронировали время в студии<STRONG> Fascination Street</STRONG> на январь будущего года для записи новой работы. Продюсером альбгома станет <STRONG>Jens Bogren (AMON AMARTH, OPETH)</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Столь неожиданный выбор лидер<STRONG> KREATOR</STRONG> объяснил надеждой получить очень тяжёлый звук в комбинации немецкой thrash-metal группы и этого звукоинженера.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=267 src="/images/news_rus/2011.07/20019.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 09.01.2012 news KREATOR начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Thrash-ветераны<STRONG> KREATOR</STRONG> вошли в <STRONG>Studiomega</STRONG> в шведском Варберге, где запишут новый альбом с продюсером <STRONG>Jens Bogren (OPETH, AMON AMART, PARADISE LOST)</STRONG>. Новый альбом коллектива выйдет в конце весны.</FONT></P>
+<P><center><IMG height=300 src="/images/news_rus/2012.01/22555.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 02.02.2012 news KREATOR назвали альбом
+
+<P>Новый альбом <STRONG>KREATOR </STRONG>получил название "<STRONG>Phantom Antichrist</STRONG>". В Европе работа выйдет 1 июня&nbsp;на<STRONG> Nuclear Blast</STRONG>, в Северной Америке дата релиза назначенна на 5 июня, так же, на <STRONG>Nuclear Blast</STRONG>.&nbsp;В данный момент музыканты записывают материал в <STRONG>Fascination Street Studios</STRONG> с продюсером Йенсом Богреном (<STRONG>Jens Bogren</STRONG>, <STRONG>OPETH</STRONG>, <STRONG>KATATONIA</STRONG>, <STRONG>SOILWORK</STRONG>, <STRONG>DEVIN TOWNSEND</STRONG>, <STRONG>AMON AMARTH</STRONG>). </P>
+<P>Кроме того, <STRONG>KREATOR</STRONG> выпустят эксклюзивный 7" сингл, одного с альбомом названия. Его можно будет приобрести с 20 апреля в интернет магазине <STRONG>Nuclear Blast</STRONG> (<A href="http://www.nuclearblast.de/shop">www.nuclearblast.de/shop</A>). Сингл будет доступен в двух видах:&nbsp;красный&nbsp;винил (250 штук) и прозрачный винил&nbsp;(250 штук). Обложку сингла можно увидеть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.02/22936.jpg" width=475 height=475> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.02.2012 news KREATOR: обложка &quot;Phantom Antichrist&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>KREATOR</STRONG> представила на всеобщее обозрение обложку для своего нового полноформатника<STRONG> "Phantom Antichrist"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор сего художества - <STRONG>Wes Benscoter</STRONG> (<A href="http://www.wesbenscoter.com/">www.wesbenscoter.com</A>).</FONT></P>
+<P><STRONG>„Phantom Antichrist“</STRONG> станет дебютным альбомом группы для лейбла <STRONG>Nuclear Blast</STRONG>. Даты выхода диска&nbsp;назначенны на 1 июня 2012 (Европа) и 5 июня 2012&nbsp;(Северная Америка).</P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.02/23025.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.03.2012 news Обложка для лимитированого издания альбома KREATOR &quot;Phantom Antichrist&quot;
+
+<P>Немецкий ансамбль <STRONG>KREATOR</STRONG> опубликовал обложку для лимитированого издания своего нового альбома&nbsp;<STRONG>"Phantom Antichrist"</STRONG>. Данное издание выйдет в формате двухдискового диджипэка, где вторым диском&nbsp;будет бонус DVD.</P>
+<P><STRONG>Mille Petrozza</STRONG>: <EM>"<STRONG>Jan Meininghaus</STRONG>, который нарисовал эту обложку, художник из моего родного города Эссен. Мне очень нравится то, что он сделал для лимитированого издания нашего&nbsp;альбома. Это настоящее месиво, полное энергии и тьмы!"</EM></P>
+<P>Официальный сайт художника: <A href="http://www.jan-meininghaus.de/">www.jan-meininghaus.de</A></P>
+<P><STRONG>"Phantom Antichrist"</STRONG>&nbsp;выйдет 1 июня в Европе и 5 июня в Северной Америке на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>CD:<BR itxtNodeId="149"><BR itxtNodeId="148">01. <B itxtHarvested="0" itxtNodeId="147">Mars Mantra</B><BR itxtNodeId="146">02. <B itxtHarvested="0" itxtNodeId="145">Phantom Antichrist</B><BR itxtNodeId="144">03. <B itxtHarvested="0" itxtNodeId="143">Death To The World</B><BR itxtNodeId="142">04. <B itxtHarvested="0" itxtNodeId="141">From Flood Into Fire</B><BR itxtNodeId="140">05. <B itxtHarvested="0" itxtNodeId="139">Civilisation Collapse</B><BR itxtNodeId="138">06. <B itxtHarvested="0" itxtNodeId="137">United In Hate</B><BR itxtNodeId="136">07. <B itxtHarvested="0" itxtNodeId="135">The Few, The Proud, The Broken</B><BR itxtNodeId="134">08. <B itxtHarvested="0" itxtNodeId="133">Your Heaven In My Hell</B><BR itxtNodeId="132">09. <B itxtHarvested="0" itxtNodeId="131">Victory Will Come</B><BR itxtNodeId="130">10. <B itxtHarvested="0" itxtNodeId="129">Until Our Paths Cross Again</B><BR itxtNodeId="128">11. <B itxtHarvested="0" itxtNodeId="127">Iron Destiny</B> (Japan exclusive)<BR itxtNodeId="126"><BR itxtNodeId="125">Limited-edition bonus DVD:<BR itxtNodeId="124"><BR itxtNodeId="123">* Conquerers Of The Ice – The Making Of Phanom Antichrist<BR itxtNodeId="122">* Harvesting The Grapes Of Horror<BR itxtNodeId="121">* Live at Wacken Open Air in 2011 and 2008 (mixed by Klaus Scheuermann, edited by Marcel Schleif and Stephan Lier)<BR itxtNodeId="120"><BR itxtNodeId="119">Wacken Open Air 2011:<BR itxtNodeId="118"><BR itxtNodeId="117">01. <B itxtHarvested="0" itxtNodeId="116">Choir Of The Damned</B><BR itxtNodeId="115">02. <B itxtHarvested="0" itxtNodeId="114">Hordes Of Chaos</B><BR itxtNodeId="113">03. <B itxtHarvested="0" itxtNodeId="112">War Curse</B><BR itxtNodeId="111">04. <B itxtHarvested="0" itxtNodeId="110">Coma Of Souls</B> / <B itxtHarvested="0" itxtNodeId="109">Endless Pain</B><BR itxtNodeId="108">05. <B itxtHarvested="0" itxtNodeId="107">Pleasure To Kill</B><BR itxtNodeId="106">06. <B itxtHarvested="0" itxtNodeId="105">Destroy What Destroys You</B><BR itxtNodeId="104">07. <B itxtHarvested="0" itxtNodeId="103">Phobia</B><BR itxtNodeId="102">08. <B itxtHarvested="0" itxtNodeId="101">Terrible Certainity</B> / <B itxtHarvested="0" itxtNodeId="100">Reconquering The Throne</B><BR itxtNodeId="99">09. <B itxtHarvested="0" itxtNodeId="98">Flag Of Hate</B> / <B itxtHarvested="0" itxtNodeId="97">Tormentor</B><BR itxtNodeId="96"><BR itxtNodeId="95">Wacken Open Air 2008:<BR itxtNodeId="94"><BR itxtNodeId="93">10. <B itxtHarvested="0" itxtNodeId="92">The Patriarch</B><BR itxtNodeId="91">11. <B itxtHarvested="0" itxtNodeId="90">Violent Revolution</B><BR itxtNodeId="89">12. <B itxtHarvested="0" itxtNodeId="88">People Of The Lie</B><BR itxtNodeId="87">13. <B itxtHarvested="0" itxtNodeId="86">Europe After The Pain</B></P>
+<P>
+<CENTER><IMG height=500 src="/images/news_rus/2012.03/23346.jpg" width=506 border=0> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.05.2012 news KREATOR: видеоклип на трек &quot;Phantom Antichrist&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие трэшеры <STRONG>KREATOR</STRONG> опубликовали видеоклип на титульный трек с выходящего альбома <STRONG>"Phantom Antichrist"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/YL7SnADwAF0" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.11.2012 news KREATOR: клип &quot;Civilization Collapse&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео германского ансамбля <STRONG>KREATOR</STRONG> на песню <STRONG>"Civilization Collapse"</STRONG>, можно увидеть ниже. Данный трек вошёл в последний альбом коллектива <STRONG>"Phantom Antichrist"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/EApMitnsXgg?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 31.05.2013 news Mille нужны ваши фотографии в футболках с логотипом KREATOR
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.05/25768.jpg" width=350 height=489>Легендарная немецкая&nbsp;thrash metal&nbsp;формация <STRONG>KREATOR</STRONG> в настоящее время работает над своим новым DVD/Blu Ray под названием <STRONG>"Dying Alive"</STRONG>. </P>
+<P>Группа обращается к своим поклонникам с просьбою&nbsp;о помощи.</P>
+<P>Говорит <STRONG>Mille</STRONG> (вокалист/гитарист):</P>
+<P><EM>"<STRONG>KREATOR</STRONG> нуждается в вас!<BR>Станьте частью будущего концертного релиза<STRONG> "Dying Alive"</STRONG>!<BR>Пришлите нам свои клёвые фотографии, на которых вы или ваши друзья запечатлены во время шоу <STRONG>KREATOR</STRONG> или те фотографии, где вы носите футболку, жилет или что-либо другое с символикой <STRONG>KREATOR</STRONG>. <BR>Мы расчитываем на вас!"</EM></P>
+<P>Дата окончания приёма фотографий - 3 июня 2013 года. </P>
+<P>Электронный адрес, куда следует их отправлять: <A href="mailto:pics@kreator-dying-alive.com">pics@kreator-dying-alive.com</A></P>
+<P>Но перед тем, как это сделать,&nbsp;поситите&nbsp;<A href="http://www.kreator-dying-alive.com/">www.kreator-dying-alive.com</A>, чтобы&nbsp;ознакомиться с условиями использования ваших фотографий.</P>
+<P><EM>Автор карикатуры: </EM><A href="http://www.behance.net/Szekeylfi"><EM>Lorant Szekelyfi</EM></A></P>
+Автор: Headcrusher
+
+### 16.06.2013 news KREATOR: концертный релиз &quot;Dying Alive&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.06/25818.jpg" width=400 height=558>Немцы <STRONG>KREATOR</STRONG> опубликовали обложку своего концертного видео <STRONG>"Dying Alive"</STRONG>,&nbsp;а также дату его выхода.&nbsp;</P>
+<P>Концертный DVD/Blue Ray, названный&nbsp;<STRONG>"Dying Alive"</STRONG>, выйдет 30 августа 2013 на&nbsp;<STRONG>Nuclear Blast</STRONG>.</P>
+<P>В основу его войдёт аншлаговое выступление&nbsp;в городе Оберхаузен (Германия) 22 декабря 2012, которое состоялось после интенсивного 45 дневного европейского тура в поддержку последнего альбома&nbsp;<STRONG>"Phantom Antichrist"</STRONG>. Концерт был снят на 24 камеры,&nbsp;были использованы и такие, которые крепятся на голову гитарного грифа. Не был обделён и эпицентр концерта - мош пит.&nbsp;</P>
+<P>На&nbsp;DVD/Blu Ray войдёт сам концерт, закулисные съёмки, а также&nbsp; видео клипы.&nbsp;Примерная продолжительность <STRONG>"Dying Alive"</STRONG> составляет 115 минут. </P>
+<P>Полный перечень различных видов изданий, на которых можно будет купить <STRONG>"Dying Alive"</STRONG>:</P>
+<P>- DVD/2CD<BR>- Blu Ray/2CD<BR>- Earbook (DVD/Blu Ray/2CD + Bonus CD&nbsp;с демонстрационными записями&nbsp;<STRONG>"Phantom Antichrist"</STRONG>)<BR>- Earbook + 7" (DVD/Blu Ray/2CD + Bonus CD&nbsp;с демонстрационными записями&nbsp;<STRONG>"Phantom Antichrist"</STRONG>) – доступный к заказу только в интернет магазине <STRONG>Nuclear Blast</STRONG>.</P>
+<P>- Чёрный двойной винил</P>
+<P>- Красный двойной винил</P>
+<P>- Оранжевый двойной винил</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 10.07.2013 news KREATOR: второй рекламный ролик &quot;Dying Alive&quot; и подробности премьерного показа
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие трэшеры<STRONG> KREATOR</STRONG> опубликовали&nbsp;второй&nbsp;рекламный ролик (первый здесь: <A href="http://youtu.be/FyWFAYar37U">http://youtu.be/FyWFAYar37U</A>)&nbsp;своего концертного релиза <STRONG>"Dying Alive"</STRONG>. Его выход намечен на 30 августа (Европа), 2 сентября (Англия) и 3 сентября (США).</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/YhxvCCHuU4A" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+<P>Группа также анонсировала эксклюзивный премьерный&nbsp;показ <STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Dying Alive"</FONT></STRONG>&nbsp;в кинотеатре<STRONG> "Lichtburg"</STRONG> своего родного города Эссен.&nbsp;Он состоится&nbsp;29 августа в 20.00. Лидер группы, <STRONG>Mille Petrozza</STRONG>, посетит показ, а также ответит на все вопросы после его окончания.&nbsp;Помимо этого, запланирована&nbsp;и&nbsp;автограф-сессия, которая состоится сразу после официальной части.&nbsp;Билеты можно купить на сайте&nbsp;<A href="http://www.lichtburg-essen.de">www.lichtburg-essen.de</A></P>
+Автор: Headcrusher
+
+### 30.08.2016 news Выбираем лучшую группу в &quot;большой четвёрке&quot; немецкого thrash metal
+
+<h1>Выбираем лучшую группу в "большой четвёрке" немецкого thrash metal</h1><p>Голосуйте в правой колонке или на нашей страничке VK: <a href="https://vk.com/mmustdie">https://vk.com/mmustdie</a></p><p><strong>TANKARD, DESTRUCTION, KREATOR, SODOM?</strong></p><p><strong></strong>&nbsp;</p>
+Автор: Vit Belov
+
+### 30.08.2016 news Choose the best band of the big four of German thrash metal
+
+<h1>Choose the best band of the big four of German thrash metal</h1><p>Vote in the right column or on our page in VK: <a href="https://vk.com/mmustdie">https://vk.com/mmustdie</a></p><p><strong>TANKARD, DESTRUCTION, KREATOR, SODOM</strong>?</p>
+Автор: Vit Belov
+
+### 29.10.2016 news KREATOR опубликовали детали своего нового студийного альбома &quot;Gods Of Violence&quot;
+
+<P>Четырнадцатый&nbsp;полноформатный альбом группы&nbsp;<STRONG>KREATOR</STRONG>&nbsp;будет выпущен 27 января 2017 года на лейбле <STRONG>Nuclear Blast</STRONG>. Обложку <EM>(под номером 1)</EM>&nbsp;для пластинки создал известный немецкий художник <STRONG>Jan Meininghaus</STRONG>, работавший над оформлением лимитированного издания <STRONG>"Phantom Antichrist"</STRONG> (2012) и концертного релиза <STRONG>"Dying Alive"</STRONG> (2013). На счету Яна также работы для <STRONG>ACCEPT</STRONG>, <STRONG>BOLT THROWER</STRONG>, <STRONG>OVERKILL</STRONG>, <STRONG>LOST SOCIETY</STRONG> и многих других. Специально для выпуска альбома&nbsp;на территории&nbsp;Северной Америки был сделан другой вариант обложки<EM> (под номером 2)</EM>. Художник: <STRONG>Marcelo Vasco</STRONG> (<STRONG>SLAYER</STRONG>, <STRONG>HATEBREED</STRONG>, <STRONG>ASSASSIN</STRONG>, <STRONG>SOULFLY</STRONG>, <STRONG>BORKNAGAR</STRONG>, <STRONG>MACHINE HEAD</STRONG>&nbsp;и др.).</P>
+<P><EM>«<STRONG>"Gods Of Violence"</STRONG> стала первой песней, написанной мной&nbsp;для нового альбома и сразу засела у меня в голове,&nbsp;&nbsp;как заглавный трек пластинки. Альбом <STRONG>"Gods Of Violence"</STRONG> содержит всё то,&nbsp;чем славен&nbsp;<STRONG>KREATOR</STRONG> и он взорвёт ваши мозги. Обещаю!»</EM> - говорит лидер <STRONG>KREATOR</STRONG> <STRONG>Mille Petrozza</STRONG>.</P>
+<P>Трек-лист:<BR>01. Apocalypticon<BR>02. World War Now<BR>03. Satan Is Real<BR>04. Totalitarian Terror<BR>05. Gods Of Violence<BR>06. Army Of Storms<BR>07. Hail To The Hordes<BR>08. Lion With Eagle Wings<BR>09. Fallen Brother<BR>10. Side By Side<BR>11. Death Becomes My Light</P>
+<P><STRONG>"Gods Of Violence"</STRONG> был записан с продюсером Йенсом Богреном (<STRONG>Jens Bogren</STRONG>), известным по работе с <STRONG>OPETH</STRONG>, <STRONG>KATATONIA</STRONG>, <STRONG>SOILWORK</STRONG>, <STRONG>AMON AMARTH</STRONG>, с которым <STRONG>KREATOR</STRONG> работали над <STRONG>"Phantom Antichrist"</STRONG>. Мастеринг сделал <STRONG>Tony Lindgren</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.10/30129.jpg" width=500 height=500> 
+<P></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.10/30130.jpg" width=500 height=500> 
+<P></P></CENTER></CENTER>
+Автор: Headcrusher
+
+### 18.11.2016 news Новый клип KREATOR
+
+<p>Первый сингл <strong>KREATOR "Gods Of Violence"</strong> с нового одноимённого альбома можно посмотреть в видео-клипе ниже. Новая работа немецких трешеров выйдет на <strong>Nuclear Blast</strong> 27 января будущего года.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/xeUBJ2Ha-FM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Самый радующий альбом Kreator

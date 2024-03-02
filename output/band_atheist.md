@@ -115,6 +115,273 @@ GWAR).
 * C группой "Neurotica" Atheist
 * C группой "Gnostic" 
 
+## Публикации
+
+### 08.05.2000 news 
+
+<p>На NMG Records в скором будущем будут переизданы 3 альбома группы Atheist. Все 3, прошедшие ремастеринг, альбома - 'Piece Of Time' (1988), 'Unquestionable Presence' (1991) и 'Elements'(1993) - будут дополнены концертными бонус-трэками, демо записями, комментариями и редкими фотографиями.</p>
+
+Автор: Vit Belov
+
+### 06.12.2000 news Atheist возвращаются на металлическую сцену.
+
+<p>Короли techno/death из Соединенных Штатов вновь напоминают о себе после долгого перерыва. Atheist записывают свой новый альбом, выход которого ожидается в 2001 году.</p>
+
+Автор: Morsus
+
+### 06.12.2000 news Atheist are back to metal scene.
+
+<p>Kings of techno/death from United States are back after long silence. Atheist is recording their new album, which will be out in 2001.</p>
+
+Автор: Morsus
+
+### 21.02.2001 news Новости Atheist
+
+<p>Восставшие из небытия Atheist записывают новый альбом и готовятся отправиться в тур. На сегодняшний день состав выглядит так: Burkey (guitar), Steve (drums), Kelly Shaefer (vocals), Frank Emmi (guitar). Единственная проблема - отсутствие басс-гитариста. Так что если вы чувствуете себя достойным - свяжитесь с менеджментом группы.</p>
+
+Автор: Yermola
+
+### 21.02.2001 news Atheist news
+
+<p>Atheist are reuniting for a new album and tour. The line-up will include Burkey (guitar), Steve (drums), Kelly Shaefer (vocals), Frank Emmi (guitar). The band is in need of a new bass player. If you think you can tackle the Atheist sound than contact band management.</p>
+
+Автор: Yermola
+
+### 25.03.2001 articles ATHEIST INTERVIEW
+
+<p>Спасибо, Рэнд. Ниже следуют вопросы.</p>
+<p> Итак.... Парни, мы (я имею ввиду металлхэды) очень рады услышать о вашей возобновленной активности и с нетерпением ждем нового альбома.</p>
+<p> Начнем.</p>
+<p> 1) Почему Atheist (В связи с чем выбрано такое название для команды)?</p>
+<p></p>
+<p> По определению, слово означает "тот - кто не верит в Бога". Это слово часто сбивает с толку, но мы использовали его чтобы показать, что наше определение Бога отлично от других. Таким образом "Атеист" показывает наше неверие в то во что большинство вкладывает понятие Бога.</p>
+<p></p>
+<p> 2) Можешь ли ты рассказать нам вкратце (или нет) о причинах вашего предыдущего распада?</p>
+<p></p>
+<p> Стив поступал в институт и так как музыка не приносила больше деньги, он сделал этот выбор для обеспечения своего будущего. Я также уходил по подобной причине.</p>
+<p></p>
+<p> 3) Вопросы для Frank Emmi и Burkey -</p>
+<p> · Ваши музыкальные авторитеты... перечислите их...</p>
+<p> · Rand: Мои авторитеты – обычные гитарные герои такие как: Yngwie, Joe Striani и Eddie Van Halen. Также мой кумир на все времена - Tony Iommi (Black Sabbath). В свое время группы повлиявшие на меня были: Black Sabbath, Kreator, Pink Floyd, King Crimson, и Zappa. Спустя годы мой вкус переменился и сейчас я наслаждаюсь любой музыкой кроме кантри энд вестерн.</p>
+<p> · Ваши гитары и процессора?</p>
+<p> · Rand: Я использую Mesa Boogie Mark III с предусилителем Digitech 2101. При записи альбомов я использовал процессор KORG A3 (!!!! Yermola) с гитарой Gibson '83 V и звукоснимателями EMG-80.</p>
+<p> · Frank: Я использую усилитель Roctron и процессор Rocktron intellifex FX с гитарой Ibanez.</p>
+<p></p>
+<p> 4) Вы уже нашли басиста? Кто он?</p>
+<p> Мы попробовали нескольких, но до сих пор еще не опредилились. Если кто-нибудь из читающих интервью уверен в своих силах – пишите на: startraveller7@home.com</p>
+<p></p>
+<p> 5) Измените ли вы стиль на новом альбоме или он останется прежним?</p>
+<p></p>
+<p> Мы собираемся сохранить в достаточной степени наш оригинальный стиль по которому люди и узнают нас. Конечно, времена меняются и музыка тоже и многие команды заявляют: "Мы никогда не продадимся!", но это просто значит что они решили не заниматься заколачиванием денег. Лично я люблю деньги, но также у меня есть чувство собственного достоинства и я люблю писать замороченную музыку. Если вы совместите все эти вещи, вы получите УЛУЧШЕННЫЙ Атеист которым смогут наслаждаться еще больше людей. У нас уже есть пара песен которые звучат как Unquestionable Presence или Elements, но остальные будут с новыми влияниями. Не пугайтесь, и не забывайте кто мы. Мы просто не в состоянии написать что-либо, что вам не понравиться. Как и последние три раза, когда мы переходили через новую грань, и люди просто не занли как это понимать...Мы сделаем это вновь. У нас есть очень оригинальные идеи и материал будет отличаться от сделанног ранее, но повторюсь: "Не забывайте, кто мы! Мы не позволим фэнам разочароваться."</p>
+<p></p>
+<p> 6) В отличие от других дэс-метал команд вы никогда не использовали символику в виде черепов, смерти, крови и т.п. Почему?</p>
+<p></p>
+<p> Да, мы не используем символику смерти и ужаса. Конечно, все это забавно, но мы говорим о совершенно других вещах в нашей музыке. Я лично люблю расширять рамки человеческого сознания с учетом паранормальных знаний. Я не имею ввиду пошлые штучки типа НЛО, в мире хватает по настоящему экстремальных вещей которые невозможно объяснить. Представьте, если вернуться в 1800 год и показать кому-нибудь компьютер...Нас бы посчитали Богами... А спустя годы, нынешний уровень развития покажется очень примитивным. Компьютер будет выглядеть просто доисторическим калькулятором. Я наслаждаюсь открытиями и неизведанными тайнами в науке, которые затрагивают наше существование. Что, если бы я показал Вам абсолютное доказательство, что мы существуем одновременно в пределах других измерений? И что другие формы жизни сосуществуют совместно с нами, но мы не можем их видеть? То, что мы просто увязли в глупом трехмерном существовании, где время – повелитель? Как вы бы отнеслись к тому если бы я сказал, что существуют способы изменить пространство используя обычные вещи? Вы бы сказали: "Что за фигня?". В будущем это может стать повседневной реальностью. Чтобы вы сказали, если б я объяснил, что используя энергию капли воды можно обеспечить энергией целый город? И это правда. Ученые уже сейчас способны объяснить это и это уже не новость в научном мире. Мне нравиться помещать все это в мою музыку и позволять людям услышать об этом.</p>
+<p></p>
+<p> 7) Знаете ли вы, что вы повлияли на многие металлические команды в мире?</p>
+<p></p>
+<p> Да</p>
+<p></p>
+<p> 8) Как бы вы сами описали собственный музыкальный стиль?</p>
+<p></p>
+<p> М-м-м-мм-м-м-м...Знаете что, это по-настоящему тяжелый металлический гитарный саунд + полу-мелодичные гитарные партии с хрустящими аккордами + множество различных стилей музыки и все это преподносится на сумасшедшей скорости под миллионом различных точек зрения.</p>
+<p></p>
+<p> 9) Кто еще играет в таком же как у вас стиле (я имею ввиду команды)?</p>
+<p></p>
+<p> Я честно говоря никогда такого не слышал. Есть вокалисты похожие на нашего Келли, но они не могут писать такую лирику и так исполнять ее, также я не слышал барабанщиков похожих на Стива или гитары и басс похожие на нас. Вобщем я не слышал ничего похожего!</p>
+<p> I really haven't heard anyone sound really too much like us at all. Конечно я не могу говорить о всех командах...Я их просто не слышал, и може быть и есть кто-нибудь звучащий похоже на нас.</p>
+<p></p>
+<p> 10) Знаешь ли ты русских классических композиторов (Стравинский, Мусоргский, Чайковский e.t.c.)?</p>
+<p></p>
+<p> Да. У меня довольно много компактов из тех кого ты перечислил и есть еще другие.</p>
+<p></p>
+<p> 11) Знаешь ли ты кого-нибудь из русской металлической (особенно death metal!) сцены?</p>
+<p></p>
+<p> Да. Я видел и слышал кое-кого в Интернете. Uncrossed (!!!! Yermola)........Radigost (!!!!! Yermola) etc......</p>
+<p> Хорошие команды...</p>
+<p></p>
+
+Автор: Yermola
+
+### 25.03.2001 articles ATHEIST INTERVIEW!!!
+
+<p>Well....Guys we are (I mean metalheads) happy to know about your reunion activity. And we'll wait for your new album as well.</p>
+<p> So, 1) Why Atheist (Why did you choose this name for band)?</p>
+<p></p>
+<p> Well, by definition, the word means someone who doesn't believe in God. It's kind of confusing but we have used this word to mean that simply our definition of God is different so naturally we would be 'atheist' in terms of not believing in what most people refer to as God.</p>
+<p></p>
+<p> 2) Can you tell us shortly (or no) about the reasons of your previous break up?</p>
+<p></p>
+<p> Steve was going to college and since the music wasn't making any money, he opted for securing his future. I personally quit for a similar reason.</p>
+<p></p>
+<p> 3) Questions for Frank Emmi and Burkey -</p>
+<p> Do you have some influences? Please list 'em.</p>
+<p></p>
+<p> Rand: My guitar influences are the usaual guitar heroes like Yngwie, Joe Striani. and Eddie Van Halen. My alltime favorite would have to be Tony Iommi from Black Sabbath. As far as music goes, some of my favorite bands that influenced me are Black Sabbath, Kreator, Pink Floyd, King Crimson, and Zappa. Through the years my musical taste has changed to the extent that I will enjoy just about anything except country and western.</p>
+<p></p>
+<p> ·Your guitars, amps and processors?</p>
+<p></p>
+<p> Rand: I use a mesa Boogie MarkIII with a Digitech 2101 preamp. On the alkbums I used a KORG A3 processor for FX My guitar is a Gibson '83 V with an EMG-80 pickup.</p>
+<p> Frank: I use a Roctron amp and a Rocktron intellifex FX processor and an Ibanez 6 string.</p>
+<p></p>
+<p> 4) Did you find the bass player yet? Who is he?</p>
+<p></p>
+<p> We have tried a few out, there are a few possibilities but we are still looking.. If there is anyone reading this who believes themselves worthy, please write to us at: startraveller7@home.com</p>
+<p></p>
+<p> 5) Will you change the style on your new album or it will be the same one?</p>
+<p></p>
+<p> We are going to keep just enough of our original style so people know it's us. Of course, times change and so does the music but like a lot of bands have said, "We'll never sell out" ya' know, that just means they've decided not to go with making money. Personally, I like money but I also have my pride and I love writing brain twisting music. If you put those two things together you have a much better ATHEIST that a whole lot more people will enjoy. We will definately have one or two songs that will sound like they are straight off of Unquestionable Presence or Elements but the majority will be new ground. Don't get scared now, and don't forget who we are. We are not capable of writing something you will not like. Like the last three times when we broke new ground and people didn't know what to think... we will simply do it again. We have very original ideas and the material will certainly be different as before and it may take while to get use to, but again I reitterate, do not forget who we are! We will not let the fans down.</p>
+<p></p>
+<p> 6) In the contrary of other Death metal bands you didn't use evil symbols as sculls, demons, blood, dead e.t.c., can you tell us why?</p>
+<p></p>
+<p> We are not about death and scary stuff. Sure it's all fun to get into all that scary stuff but we are into talking about different things in our music.I personally like to expand peoples minds with knowledge of the paranormal and just plain strange. I am not your typical U.F.O. buff but there are a lot of bizarre things occurring in our universe a well as right here on our own planet that are unexplained that I think everyone should help to figure it out. It's kind of like back in the 1800's if we had shown somebody a computer, we would certainly be regarded as gods. Now a hundred years from now our present day occurences will appear very primitive. A computer then will appear as a simple prehistoric calculator appears to us now. I enjoy discovery and unexplored mysteries in science that affect our very existence. What if I showed you absolute proof that we are existing simultaneously within other dimensions? That other lifeforms are co-existing within our own space but we can't see them? That we are simply stuck in a silly three dimensional existence where time is the master? How about if I told you that there re ways to bend space and look into those dimensions using typical everyday items? You might say that's bullshit. In the future, that will be common knowledge. What if I told you that by using cold fusion that you can power an entire city with one drop of water? That is true. Scientists are already able to do it and that is 'old news' in the scientific community. I like putting this into music and giving it to people to hear.</p>
+<p></p>
+<p> 7) Do you know about influence that you've made for many metal bands in the world?</p>
+<p></p>
+<p> Yes</p>
+<p></p>
+<p> 8) How can you describe your own music style?</p>
+<p></p>
+<p> hmmmmmmmm...ya' know, I'd have to say that it's real heavy metallic guitar sound, semi-melodic guitars with crunchy chords, contains a lot of different styles of music and it is delivered at breakneck speed at a million different angles.</p>
+<p></p>
+<p> 9) Who's also playing in the same as you way (the bands!)?</p>
+<p></p>
+<p> I have never heard any actualy. I've heard singers who resemble Kelly but never the way he writes and places lyrics. I have never heard a drummer like Steve, or guitar and bass work like ours. I really haven't heard anyone sound really too much like us at all. Of course, I am not real aware of all the bands that are out there. There must be some band that sounds a little like us but I have never heard them.</p>
+<p></p>
+<p> 10) Do you know russian classic composers (Stravinskiy, Musorgskiy, Tchaykovskiy e.t.c.)?</p>
+<p></p>
+<p> Yes I have a lot of CD's of all of those you listed and more.</p>
+<p></p>
+<p> 11) Do you know somebody in russian metal (especially death metal!) scene?</p>
+<p></p>
+<p> Yes. I have seen and heard many of them on the internet. Uncrossed........Radigost etc......some very good bands.</p>
+<p></p>
+<p> Well that's all. Thank you very much for your attention.</p>
+<p></p>
+<p> This interview will be published at Music Must Die Web-Zine at</p>
+<http://music.mustdie.ru/></http>
+<p> Best regards and see you, guys!</p>
+<p></p>
+<p></p>
+<p> Yermola,</p>
+<p> Music Must Die,</p>
+<p> Mobile: +7-300-211-0141</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 06.04.2001 news Безбожные новости...
+
+<p>Культовые Флоридские прогрессив дэс-металлеры "ATHEIST", по сообщению фронтмэна команды Келли Шэфера (также участника "NEUROTICA") подписали контракт с французской Seasons Of Mist Records на переиздание трех альбомов группы с разичными бонусами и добавками. Также в ближайшее время ожидается подписание американской сделки.</p>
+
+Автор: Yermola
+
+### 06.04.2001 news ATHEIST have struck a deal with France?s Seasons Of Mist Records
+
+<p>Florida cult progressive metallers ATHEIST, who featured in their ranks current NEUROTICA frontman Kelly Shaefer, have struck a deal with France’s Seasons Of Mist Records for the re-release of the group’s three albums with bonus tracks and liner notes. ATHEIST are also hoping to land an American deal for the reissues in the coming weeks.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news Kelly Shaefer начинает нервничать....
+
+<p>Флоридская "NEUROTICA" имеющая в своем составе гитариста/вокалиста культовых "ATHEIST" - Келли Шэфера, объявила о достигнутой договоренности с Smackdown Records. Контракт будет подписан в течении двух недель.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news NEUROTICA having to do with the signing of a new record deal ...
+
+<p>Florida's NEUROTICA, featuring ex-ATHEIST guitarist/vocalist Kelly Shaefer, are said to be "gearing up for a HUGE announcement in the next two weeks", presumably having to do with the signing of a new record deal with WWF's new rock'n'roll record company Smackdown Records. More information as it becomes available. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Premier death-jazz band of the century
+
+<p>ATHEIST, the long-defunct “premier death-jazz band of the century”, have launched a new official web site at <A HREF="http://www.atheist-music.com/ ">http://www.atheist-music.com/ </A>Created by Chris Burkey, brother of former guitarist Rand Burkey, the site will soon host an online chat with the members of ATHEIST, and there will be many more videos available very soon, mostly from America and a few from Europe. There will also be a live CD recording of assorted shows, from all over, available soon. Meanwhile, Rand himself has launched a web site at <A HREF="http://www.randburkey.com/ ">http://www.randburkey.com/ </A>and is continuing to work on original music, which spans a wide variety of styles, including rock, heavy metal, fusion, progressive metal, progressive jazz, alternative rock, and contemporary music. According to the guitarist’s site, “possibly Rand's most bizarre and remarkable feature is his left handed nature. Not only does he play left handed, but the guitar is upside down and the strings are kept aligned for a right handed player. This has left many a musician amazed at his ability to even play a guitar with this left hand alignment structure.” You can hear some of Burkey’s recent musical compositions via his page at MP3.com at <A HREF="http://artists.mp3s.com/artists/279/rand_burkey.html">this location</A>. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Первый дэс-джазз ансамбель...
+
+<p>Первый дэс-джаз ансамбель всех времен и народов "ATHEIST" запустил новый официальный сайт на <A HREF="http://www.atheist-music.com/">http://www.atheist-music.com/</A>. Созданный Крисом Барки (братом Рэнда) ресурс содержит разнообразную информацию о команде, скоро будут выложены концертные видео из Америки и Европы. Сам Рэнд администрирует собственный сайт <A HREF="http://www.randburkey.com/">http://www.randburkey.com/ </A>и продолжает работать над оригинальной и смешивающей стили музыкой... Вы можете послушать его новые вещи на <A HREF="http://artists.mp3s.com/artists/279/rand_burkey.html">MP3.com ...</A></p>
+
+Автор: Yermola
+
+### 12.03.2002 news Слухи о возрождении Атеиста....
+
+<p>К огромному сожалению, слухи о возрождении Атеиста оказались не более, чем слухами. По информации предоставленной гитаристом Rand Burkey, участники группы слишком заняты в собственных проектах, например фронтмен Kelly Shaefer работает сейчас над полноформатником его команды "Neurotica" для Koch Entertainment. Уже готовы вещи: "Whirlwind," "10 Feet Tall," "Get With It" и "POW". Сам Shaefer описывает стиль диска как: "коммерческий мэйнстрим с тяжёлым саундом и мясными аккордами...."</p>
+
+Автор: Yermola
+
+### 07.01.2004 news Гитарист ATHEIST затевает новый проект
+
+<B>Rand Burkey</B>, гитарист <B>ATHEIST,</B> сообщил о создании своего нового сольного проекта <B>RANDOM XAOS,</B> несколько отличного по стилю от своей предыдущей группы. Если кого-нибудь интересуют подробности, то можно написать на <A href="mailto:randomxaos@hotmail.com">randomxaos@hotmail.com</A>.
+Автор: Uneral
+
+### 07.02.2009 news ATHEIST сводят концертник
+
+<P><STRONG>ATHEIST</STRONG> сводят концертник <STRONG>'Live At Wacken'</STRONG>. Пластинка была записана на фестивале <STRONG>Wacken</STRONG> в 2006 году, во время ре-юниона группы. Лидер коллектива<STRONG> Kelly Shaefer</STRONG> сообщает, что звук получается очень сырым и "концертным".</P>
+Автор: Vit Belov
+
+### 07.03.2009 news ATHEIST и GNOSTIC на Season Of Mist
+
+<P><STRONG>ATHEIST </STRONG>подписались на <STRONG>Season Of Mist</STRONG>. Новый альбом группы выйдет до конца года. Также французский лэйбл подписал новый проект участников <STRONG>ATHEIST</STRONG> под названием <STRONG>GNOSTIC</STRONG>. Его дебютный альбом <STRONG>'Engineering the Rule' </STRONG>выйдет уже до лета.</P>
+Автор: Vit Belov
+
+### 26.06.2009 news ATHEIST выпускают концертник
+
+<P><IMG height=398 alt="" hspace=0 src="/images/news_rus/2009.06/14236.jpg" width=400 align=right border=5>21 июля на <STRONG>Relapse</STRONG> выйдет концертный альбом <STRONG>ATHEIST</STRONG> <STRONG>"Unquestionable Presence: Live At Wacken". </STRONG>Концерт был записан на Вакене 2006. Трэк-лист:</P>
+<P>01. <B>Mother Man</B><BR>02. <B>Unquestionable Presence</B><BR>03. <B>Your Life's Retribution</B><BR>04. <B>Enthralled in Essence</B><BR>05. <B>Incarnation's Dream</B><BR>06. <B>Formative Years</B><BR>07. <B>Brains</B><BR>08. <B>And The Psychic Saw</B></P>
+Автор: Vit Belov
+
+### 28.05.2010 news ATHEIST войдут в студию
+
+<P>Реактивированные<STRONG> ATHEIST</STRONG> войдут в студию <STRONG>LedBelly </STRONG>в Атланте 5 июля для записи долгожданного альбома. Сводить пластинку будет <STRONG>Jason Suecof</STRONG> (<B itxtvisited="1">TRIVIUM</B>, <B itxtvisited="1">CHIMAIRA</B>, <B itxtvisited="1">DEVILDRIVER</B>). Выход новой&nbsp;работы намечен на конец 2010 года. </P>
+<P>Это будет первый альбом классиков techno-death&nbsp;за 17 лет.</P>
+Автор: Vit Belov
+
+### 02.09.2010 news ATHEIST и новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17142.jpg" width=400 height=400>9 ноября пионеры техничного смертельного металла <STRONG>ATHEIST</STRONG> выпустят свой долгожданный четвёртый альбом "<STRONG>Jupiter</STRONG>" на лейбле <STRONG>Season Of Mist</STRONG>. Диск был записан в студии <STRONG>LedBelly</STRONG> (Atlanta, Georgia) со звукорежиссёром <STRONG>Matt</STRONG>'ом <STRONG>Washburn</STRONG>'ом&nbsp; и сведён <STRONG>Jason</STRONG>'ом <STRONG>Suecof</STRONG> (<STRONG>TRIVIUM</STRONG>, <STRONG>CHIMAIRA</STRONG>, <STRONG>DEVILDRIVER</STRONG>). Обложку нарисовал <STRONG>Eliran</STRONG> <STRONG>Kantor</STRONG>, известный по своей работе с <STRONG>TESTAMENT</STRONG>, <STRONG>SIGH</STRONG>, <STRONG>ANACRUSIS</STRONG>, <STRONG>GWAR</STRONG> и многими другими.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Tрек лист "<STRONG>Jupiter</STRONG>"</U>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Second To Sun<BR></STRONG>02. <STRONG>Fictitious Glide<BR></STRONG>03. <STRONG>Fraudulent Cloth<BR></STRONG>04. <STRONG>Live And Live Again<BR></STRONG>05. <STRONG>Faux King Christ</STRONG><BR>06. <STRONG>Tortoise The Titan<BR></STRONG>07. <STRONG>When The Beast<BR></STRONG>08. <STRONG>Third Person</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист группы <STRONG>Jonathan Thompson</STRONG> записал все партии баса для "<STRONG>Jupiter</STRONG>". Он, так же, играет на басу в другой команде барабанщика <STRONG>ATHEIST</STRONG> Стива Флинна (<STRONG>Steve Flynn</STRONG>) -&nbsp;<STRONG>GNOSTIC</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По словам вокалиста <STRONG>Kelly Shaefer</STRONG>'а, <EM>"когда люди услышат этот альбом, они скажут - "Это - <STRONG>ATHEIST</STRONG>!"</EM></FONT></P>
+<P><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><EM><BR itxtvisited="1"></EM></FONT></P></FONT>
+Автор: Headcrusher
+
+### 08.10.2010 news Новая песня ATHEIST
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.10/17348.jpg" width=400 align=right border=5>Новый трэк возрождённых<STRONG> ATHEIST</STRONG> <STRONG>"Second To Sun" </STRONG>можно послушать на сайте группы: <A href="http://atheistmusic.com/Mp3Player/index.html">http://atheistmusic.com/Mp3Player/index.html</A></P>
+<P>Песня попадёт на новый альбом группы <STRONG>"Jupiter", </STRONG>который выйдет 8 ноября на <STRONG>Season Of Mist</STRONG>. Пластинка была записана в студии <STRONG>LedBelly </STRONG>в Атланте с инженером <STRONG>Matt Washburn </STRONG>и была сведена <STRONG>Jason Suecof</STRONG> (<B>TRIVIUM</B>, <B>CHIMAIRA</B>, <B>DEVILDRIVER</B>). Трэк-лист:</P>
+<P>01. <B>Second To Sun</B><BR>02. <B>Fictitious Glide</B><BR>03. <B>Fraudulent Cloth</B><BR>04. <B>Live And Live Again</B><BR>05. <B>Faux King Christ</B><BR>06. <B>Tortoise The Titan</B><BR>07. <B>When The Beast</B><BR>08. <B>Third Person</B></P>
+Автор: Vit Belov
+
+### 16.11.2010 reviews Ожидание поклонников ATHEIST не будут обмануты
+
+<P>Группа ATHEIST – очередная легенда тяжёлого метала, которая вернулась к слушателю спустя более чем десятилетие отсутствия. В настоящее время практически не осталось монстров 80-х – 90-х годов, которые не тряхнули стариной в наши времена, но каждый раз слушатели получают непредсказуемый результат. </P>
+<P>ATHEIST выпустили до сего дня три альбома, которые стали нетленной классикой среди всех любителей нетривиального метала. Авангардный техничный джазовый death-thrash metal удивлял нестандартными ходами и будоражил кровь эстетов. В недавнем прошлом к жизни вернулись ещё две легенды этого стиля CYNIC и PESTILENCE. У каждого своя судьба, но, пожалуй, у ATHEIST лучше всего получилось поддержать старую славу. В настоящее время в группе лишь два оригинальных музыканта: вокалист Kelly Shaefer и барабанщик Steve Flynn, но главное, что в сочинении материала принимают участие все музыканты. Новые участники ATHEIST уже доказали свою состоятельность в techno-death команде GNOSTIC, чей альбом вышел в прошлом году. “Jupiter” ещё более навороченный, ещё более интересный. Музыки на нём чуть больше чем на полчаса, но познавать новую музыку ATHEIST можно вечно. </P>
+<P>Американцы представили альбом, который так долго ждали их поклонники. Именно музыка подобная “Jupiter” помогает причислять тяжёлый метал к современной музыкальной классике. </P>
+Автор: Vit Belov
+
+### 18.11.2010 news CRADLE OF FILTH попали в чарты Billboard
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Darkly, Darkly, Venus Aversa"</STRONG>, вышедший в Штатах на прошлой неделе, попал в чарты <STRONG>Billboard 200</STRONG> на 99-ое место. В первую неделю было продано 5800 копий, что почти в два раза меньше, чем у предшественника <STRONG>"Godspeed On The Devil's Thunder"</STRONG>, проданного тиражом 11000 копий.</P>
+<P>Новый альбом <STRONG>GWAR</STRONG> <STRONG>"Bloody Pit Of Horror" </STRONG>был продан тиражом 2800 копий. Также первая неделя продаж случилась у нового альбома <STRONG>ATHEIST "Jupiter"</STRONG>, который продался удручающим тиражом 500 копий. Более приемлемый результат продемонстрировали<STRONG> HELLOWEEN</STRONG> с новым хитом "<STRONG>7 Sinners</STRONG>" - продано 1900 копий. </P>
+<P>Хороших продаж добились со своим вторым альбомом <STRONG>"Contagion"</STRONG>&nbsp;<STRONG>OCEANO</STRONG> - 3000 копий. </P>
+Автор: Vit Belov
+
+### 08.06.2011 news ATHEIST: новый гитарист в составе
+
+<P>Группа&nbsp;<B itxtNodeId="421" itxtHarvested="0">ATHEIST</B> объявила имя нового гитариста, который заменит ушедшего Джонатана Томпсона (<STRONG>Jonathan Thompson</STRONG>). Им стал&nbsp;27 летний Джейсон Холловэй&nbsp;(<B itxtNodeId="420" itxtHarvested="0">Jason Holloway</B>).&nbsp;Он и новый басист группы Трэвис Морган (<STRONG>Travis Morgan</STRONG>, 20 лет) примут участие в грядущем американском и европейском турах в поддержку последнего альбома <STRONG>"Jupiter"</STRONG>.&nbsp;И согласно заявлению вокалиста группы Келли Шафира&nbsp;(<B itxtNodeId="413" itxtHarvested="0">Kelly Shaefer</B>), эти двое&nbsp;<EM>"привнесли много новой энергии в <STRONG>ATHEIST</STRONG>".</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.06/19594.jpg" width=550 height=330> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Интервью ATHEIST???

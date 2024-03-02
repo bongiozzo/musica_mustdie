@@ -138,6 +138,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.2012 news HANZEL UND GRETYL: обложка и трек-лист альбома &quot;Born To Be Heiled&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.08/24676.jpg" width=400 height=400>Американские индустриальные металлисты <STRONG>HANZEL UND GRETYL</STRONG> выпускают новый альбом. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск, получивший название <STRONG>"Born To Be Heiled"</STRONG>, выходит 27 ноября 2012 на дочернем лейбле <STRONG>Metropolis Records</STRONG>&nbsp;- <STRONG>Metropolis Metal Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Hanzel Und Gretyl Fur Immer<BR></STRONG>02. <STRONG>Understutzung 87<BR></STRONG>03. <STRONG>Blitzkrieger Und Hellriderz<BR></STRONG>04. <STRONG>Hammerzeit</STRONG><BR>05. <STRONG>Der Furor</STRONG><BR>06. <STRONG>Born To Be Heiled<BR></STRONG>07. <STRONG>Holy Shiza<BR></STRONG>08. <STRONG>Motorschwein</STRONG><BR>09. <STRONG>I'm Movin' To Deutschland <BR></STRONG>10. <STRONG>Ironstars Outlaws<BR></STRONG>11. <STRONG>More German Than German</STRONG></P>
+<P>Все желающие смогут увидеть группу живьём уже совсем скоро<STRONG>. <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>HANZEL UND GRETYL</FONT></STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff> выступять со своей концертной программой в рамках фестиваля <STRONG>"Oktobierfest"</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>5 октября - Санкт-Петербург - клуб "Арктика"</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>6 октября - Москва - КЗ "Москва"</FONT></P>
+Автор: Headcrusher
+
+### 25.07.2013 news HANZEL UND GRETYL выпускают альбом ремиксов
+
+<P>Американские германофилы <STRONG>HANZEL UND GRETYL</STRONG> выпускают диск ремиксов под названием <STRONG>"Fur Immer"</STRONG>.<BR>На данный CD войдут исключительно песни с альбома <STRONG>"Born To Be Heiled"</STRONG>. Автор ремиксов - <STRONG>KyzrWol</STRONG>f. Под этим именем скрывается никто иной, как <STRONG>Kaiser Von Loopy</STRONG>&nbsp;собственной персоной.</P>
+<P>Выход <STRONG>"Fur Immer" </STRONG>намечен на 8 октября 2013 на <STRONG>Metropolis Records</STRONG>.</P>
+<P>Стоить добавить, что&nbsp;в начале октября 2013 г. все желающие смогут увидеть группу живьём в Москве и Санкт-Петербурге. Больше подробностей в разделе <STRONG>Shows</STRONG> нашего сайта: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25928.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Oktobierfest 2012: KNORKATOR (Гер.) / TURMION KATILOT (Фин.) / HANZEL UND GRETYL (С.Ш.А.)

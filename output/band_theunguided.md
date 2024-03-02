@@ -64,6 +64,9 @@ Roger Sjunnesson - Lead Guitar, Keyboards
 
 * C группой "Sonic Syndicate" 
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,40 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.11.2001 news Metal Maniacs Xmass Ball Tour 2001...
+
+<p>ELECTRIC WIZARD will be taking part in the Metal Maniacs Xmass Ball Tour 2001 along with touring partners ENSLAVED, MACABRE, DIABOLIC and SCAR CULTURE. Confirmed dates so far are as follows: <BR> <BR> Dec. 05 - Philadelphia, PA @ The Trocadero Theater <BR> Dec. 06 - TBA <BR> Dec. 07 - Brooklyn, NY @ North Six <BR> Dec. 08 - Attleboro, MA @ Jarrod's Place <BR> Dec. 09 - Springfield, VA @ Jaxx Niteclub <BR> Dec. 10 - Cleveland, OH @ Peabody's <BR> Dec. 11 - Pittsburgh, PA @ The Strand Theater <BR> Dec. 12 - St. Louis, MO @ Creepy Crawl <BR> Dec. 13 - Chicago, Il @ Double Door <BR> Dec. 14 - Aurora, IL @ Riley's Rockhouse <BR> Dec. 15 - Detroit, MI @ The Shelter <BR> Dec. 16 - Bowling Green, OH @ Howards Club H <BR> Dec. 18 - Toronto, ON @ Reverb <BR> Dec. 19 - Montreal, QB @ Foufounes Electroniques <BR> Dec. 20 - TBA <BR> Dec. 21 - New London, CT @ The El N Gee Club<BR></p>
+
+Автор: Yermola
+
+### 06.12.2001 news MARDUK&#x2F;AMON AMOARTH&#x2F;DIABOLIC US tour...
+
+<p>Here are the re-scheduled dates for the upcoming MARDUK/AMON AMOARTH/DIABOLIC US tour, which was originally due to take place a couple of months back, but ended up getting cancelled after members of MARDUK encountered “visa problems”: <BR><BR> Jan. 11 - The Lab - St. Paul, MN <BR> Jan. 12 - Riley's - Aurora, IL <BR> Jan. 13 - Shelter - Detroit, MI <BR> Jan. 14 - Flying Machine - Cleveland, OH <BR> Jan. 15 - Emerson Theatre - Indianapolis, IN <BR> Jan. 16 - The Blue Max - Lexington, KY <BR> Jan. 17 - Obsessions - Randolph, NJ <BR> Jan. 18 - L'amour - Brooklyn, NY <BR> Jan. 19 - Kathedral Room - Toronto, Ont. <BR> Jan. 20 - Foufounes Electrique - Montreal, Que <BR> Jan. 22 - Jaxx - W. Springfield, VA <BR> Jan. 23 - Ziggy's - Winston - Salem, NC <BR> Jan. 24 - Cotton Club - Atlanta, GA <BR> Jan. 25 - Imperial Lounge - Jacksonville, FL <BR> Jan. 27 - Culture Room - Ft. Lauderdale, FL <BR> Jan. 29 - Cardi's - Houston, TX <BR> Jan. 30 - Trenton Point Hall - Edingburg, TX <BR> Jan. 31 - Flamingo Cantina - Austin, TX <BR> Feb. 01 - E-9 - El Paso, TX <BR> Feb. 02 - Launchpad - Albuquerque, NM <BR> Feb. 03 - Mason Jar - Phoenix, AZ <BR> Feb. 04 - Chain Reaction - Anaheim, CA <BR> Feb. 05 - The Pound - San Francisco, CA <BR> Feb. 07 - Bluebird - Denver, CO <BR> Feb. 08 - Pig Pen - Clinton, IA <BR> Feb. 09 - Creepy Crawl-St. Louis, MO</p>
+
+Автор: Yermola
+
+### 04.01.2002 news MARDUK Box Set Postponed, US Tour Finalized ....
+
+<p>The release of MARDUK's forthcoming Blackcrowned box set has been delayed because of printing problems. A new release date has been set for February 18th. In other news, here are the dates for MARDUK's upcoming US tour with AMON AMARTH and DIABOLIC: <BR><BR> Jan. 11 - The Lab - St. Paul, MN<BR> Jan. 12 - Riley's - Aurora, IL<BR> Jan. 13 - Shelter - Detroit, MI<BR> Jan. 14 - Flying Machine - Cleveland, OH<BR> Jan. 15 - Emerson Theatre - Indianapolis, IN<BR> Jan. 16 - The Blue Max - Lexington, KY<BR> Jan. 17 - Obsessions - Randolph, NJ<BR> Jan. 18 - L'amour - Brooklyn, NY<BR> Jan. 20 - Foufounes Electrique - Montreal, QUE<BR> Jan. 21 - Living Room - Providence, RI<BR> Jan. 22 - Jaxx - W. Springfield, VA w/Pessimist<BR> Jan. 24 - Masquerade - Atlanta, GA<BR> Jan. 25 - Imperial Lounge - Jacksonville, FL<BR> Jan. 26 - Brass Mug - Tampa, FL<BR> Jan. 27 - Culture Room - Ft. Lauderdale, FL<BR> Jan. 29 - Cardi's - Houston, TX<BR> Jan. 30 - Trenton Point Hall - Edingburg, TX<BR> Jan. 31 - Center Theater - Corpus Christi, TX<BR> Feb. 01 - E-9 - El Paso, TX<BR> Feb. 02 - Launchpad - Albuquerque, NM<BR> Feb. 03 - Mason Jar - Phoenix, AZ<BR> Feb. 04 - Troubadour - Hollywood, CA<BR> Feb. 05 - The Pound - San Francisco, CA<BR> Feb. 08 - Starlight - Ft. Collins, Co<BR> Feb. 09 - Creepy Crawl - St. Louis, MO <BR></p>
+
+Автор: Yermola
+
+### 18.01.2002 news MARDUK: Still Waiting For American Visas ....
+
+<p>Sweden's MARDUK have still not received the proper paperwork from the American Embassy in order to enable them to embark on their North American tour with AMON AMARTH and DIABOLIC, a trek that was originally due to start on January 11th in St. Paul, Minnesota. MARDUK vocalist Legion offered the following update on the situation via a post on the message board of Metal Maniacs magazine yesterday: <BR> <BR> "This is Legion of MARDUK. I would just want all of you to know that we still have not recieved all the papers we need to enter the U.S. from the American Embassy. We were promised that we would be fine by the end of last week but still all the members have not got their stuff. The reception chick I talked to today was really surprised about that and said that we all should have our stuff by now but B. War is still waiting for his visa. I know that you might wonder why this has not been dealt with earlier since we have had a full three months to get our shit together but the case was not approved by U.S. Traffic Control until the 21st of December and the embassy is not allowed to issue shit before they do thumbs up. We are doing all in our power to hurry up things I have called, faxed and sent letters there. Yesterday I even drove to the embassy but was sent home at the gate since no visitors are allowed because of the Afghanistan situation. We are in limbo right now and I can't really tell when the last visa is gonna show since we have been promised things over and over and my confidence in the ambassadors credibility is zero. I will post anything new as soon as I know. Also check out www.marduk.nu, which will be updated very soon. I have been pushing really hard but feel like I'm losing my mind since I sent the last additional requested 'post Sep 11th' material in early November and was promised to be home free when we got back from Europe. We have tickets and gear on stand by and are gonna show asap when B. War gets his stuff." <BR> <BR> MARDUK and AMON AMARTH were originally scheduled to tour in North America during October/November, but had their visa requests denied in the wake of the September 11th terrorist attack. AMON AMARTH and DIABOLIC are reportedly performing the shows as scheduled.</p>
+
+Автор: Yermola
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

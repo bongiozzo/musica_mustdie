@@ -262,6 +262,120 @@ Agner  -  Drum Sticks
 * C группой "Unisonic" Mandy Meyer (guitar)
 * C группой "Asia" Mandy Meyer (guitar)
 
+## Публикации
+
+### 09.04.2002 news Возрождение Крокус
+
+<p> Гитарист Fernando Von Arb и вокалист Marc Storace возродили самую, пожалуй, успешную группу Швейцарии &ndash; "KROKUS" и сейчас записывают новый альбом в Лозаннской Soundlake Studio для летнего релиза. Поддерживающий тур по Европе и Штатам начнется в июне. </p>
+<p> "KROKUS" до сих пор остаются единственной швейцарской группой продавшей более 10 миллионов альбомов и получавшей "золотой" и "платиновый" статус. В 80-е/98-е команда записала такие супер-популярные альбомы как: Metal Rendez-Vous, Hardware, One Vice At The Time, Headhunter и The Blitz... </p>
+<p> Текущий состав KROKUS: </p>
+<p> Marc Storace &ndash; вокал <br> Fernando Von Arb &ndash; соло-гитара <br> Dave Stettler &ndash; гитара <br> Marcel Kopp &ndash; барабаны <br> Tony "TC" Castell &ndash; басс </p>
+
+Автор: Yermola
+
+### 31.07.2003 news Новый альбом KROKUS
+
+<p>Ветераны швейцарского hard rock KROKUS готовят к выпуску свой новый альбом, содержащий всю классику группы, а также некоторые концертные записи. Альбом под названием "Long Stick Goes Boom: The Anthology" должен выйти в начале 2004 года на Sanctuary/Castle Music. В альбом войдут следующие вещи:</p>
+<p> <IMG SRC="/images/news_rus/2003.07/4671.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right"> 1. Long Stick Goes Boom<BR> 2. Bad Boys Rag Dolls <BR> 3. I'm On The Run <BR> 4. To The Top <BR> 5. American Woman <BR> 6. Headhunter <BR> 7. Screaming In The Night <BR> 8. Stayed Awake All Night <BR> 9. Ballroom Blitz <BR> 10. Ready To Rock <BR> 11. Out Of Control <BR> 12. Midnite Maniac <BR> 13. School's Out <BR> 14. Boy's Nite Out <BR> 15. Hot Shot City <BR> 16. Long Stick Goes Boom (live) <BR> 17. Lay Me Down (live) <BR> 18. Eat The Rich (live)</p>
+
+Автор: Dimas
+
+### 04.07.2005 news KROKUS в России
+
+<P><STRONG>KROKUS</STRONG> сообщили, что впервые в своей истории выступят в России. </P>
+<P>28 октября - Клуб Точка, Москва</P>
+<P>30 октября - Клуб Порт, Санкт-Петербург</P>
+Автор: Vit Belov
+
+### 12.10.2005 articles KROKUS в Москве: пресс-релиз
+
+<P>СПИКА МЕРЧЕНДАЙЗИНГ ПРЕДСТАВЛЯЕТ</P>
+<P>Впервые в России швейцарская группа&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>KROKUS<BR>28/10- клуб ТОЧКА (Москва)<BR>30/10- клуб ПОРТ (Питер)</P>
+<P>KROKUS- Live power guaratted!</P>
+<P>В 2003 году Krokus отметили свое возвращение к творческой деятельности альбомом ‘Rock The Block’. Почти мгновенно этот альбом принес известной швейцарской группе первое место в чартах и вскоре стал золотым. Альбом с живых выступлений ‘Fire And Gasoline’, записанный в прошлом году в Швеции и Швейцарии (в Герисау, Цюхвиле и&nbsp; Цюрихе), доказывает, что наиболее сильно группа проявляет себя именно на сцене, благодаря стараниям Фернандо фон Арба и Марка Стораса. Помимо хитов из альбома ‘Rock The Block’, двойной компакт-диск содержит и самые знаменитые хиты в почти тридцатилетней истории группы, поэтому его выход был встречен с большим интересом не только в Швейцарии, но и за ее пределами. Приятное дополнение в виде DVD содержит видеоклипы с выступления группы в Монтре, а также несколько треков с концерта в Волене. Это нестоящий праздник для ваших ушей и глаз!</P>
+<P>Группа оставила свой яркий след в истории рока такими альбомами, как ‘Metal Rendezvous’, ‘Headhunter’ и&nbsp; ‘Hardware’, а также несколькими бессмертными хитами, такими как ‘Heatstrokes’, ‘Tokyo Nights’, ‘Long Stick Goes Boom’ и ‘Bedside Radio’. Все эти хиты включены в их последний двойной альбом ‘Fire And Gasoline’.</P>
+<P>Сложные и притягательные гитарные рифы фон Арба, дополненные сильным голосом Стораса до сих пор также неподражаемы, как и десять лет назад, когда группа Krokus показала всем своим конкурентам, как надо играть рок.</P>
+<P>И наконец Krokus посетят нашу страну. Компания Spika Merchandising предоставляет всем поклонникам творчества группы Krokus возможность увидеть легендарных швейцарцев 28 октября в московском клубе ТОЧКА и 30 октября в питерском клубе ПОРТ.</P>
+<P><A href="http://www.krokusonline.com/">www.krokusonline.com</A></P>
+<P><BR>Начало концерта- 19.00<BR>Цена билетов в Москве- 800руб.<BR>Цена билетов в Санкт-Петербурге- 650руб.</P>
+<P>Телефон для справок 76 77 037</P>
+Автор: Vit Belov
+
+### 19.01.2006 news KROKUS назвали имя нового барабанщика
+
+<P>Новым барабанщиком <STRONG>KROKUS</STRONG> стал знаменитый <STRONG>Stefan Schwarzmann (ex-ACCEPT, U.D.O., HELLOWEEN</STRONG>).</P>
+Автор: Vit Belov
+
+### 10.07.2006 news Новый альбом KROKUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<STRONG>Midnight Fantasy</STRONG>" - так будет называться новый альбом <STRONG>KROKUS</STRONG>, который выйдет 15 сентября на<STRONG> AFM</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 01.09.2006 news Детали нового альбома KROKUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Швейцарские ветераны хард-рока <STRONG>KROKUS</STRONG> подготовили к выпуску свой новый альбом под названием <STRONG>"Hellraiser". </STRONG>Его выход запланирован на 18 сентября через <STRONG>AFM Records</STRONG>. Продюсером записи выступил <B>Dennis Ward</B> (<B>PINK CREAM 69</B>). В нынешнем составе группы&nbsp;в качестве&nbsp;ударника выступает&nbsp;<STRONG>Stefan Schwarzmann</STRONG> (ex-<B>ACCEPT</B>, <B>U.D.O.</B>, <B>HELLOWEEN</B>). Трек-лист:<BR><BR><IMG height=204 alt="" hspace=50 src="/images/news_rus/2006.09/10664.jpg" width=204 align=right border=0>1. <B>Hellraiser</B><BR>2. <B>Too Wired To Sleep</B><BR>3. <B>Hangman</B><BR>4. <B>Angel Of My Dreams</B><BR>5. <B>Fight On</B><BR>6. <B>So Long</B><BR>7. <B>Spirit Of The Night</B><BR>8. <B>Midnite Fantasy</B><BR>9. <B>No Risk No Gain</B><BR>10. <B>Turnin’ Inside Out</B><BR>11. <B>Take My Love</B><BR>12. <B>Justice</B><BR>13. <B>Love Will Survive</B><BR>14. <B>Rocks Off!</B><BR></FONT></P>
+Автор: Dimas
+
+### 26.04.2007 reviews Ну могём... Не могём, а мОгем (с), или В бой идут швейцарские старики
+
+<P>Самой известной рок-группе из страны сыров и часов Krokus уже более 30 лет. Многое пришлось пережить за это время музыкантам. Взлеты и падения, бесконечная чехарда с составом, бешеная популярность и полное забытье. Однако поклонники "швейцарского ответа AC/DC"&nbsp;никогда не теряли надежды. Поэтому, когда пришло время для уже третьего камбэка группы (со "старым" певцом Marc Storace), фэны не позабыли своих любимцев. Альбом "Rock The Block" взлетел на первое месте в швейцарских чартах и стал платиновым! Не подкачал и пятнадцатый студийник группы, "Hellraiser". Голос Storace словно и не собирается стареть, наряду с вещами, неумолимо напоминающими "австралийских учителей", гармонично соседствуют хард-роковые номера, больше ассоциирующиеся с Deep&nbsp; Purple и более поздними мелодик-роковыми коллективами. Не обошлось и без полубалладных композиций типа 'So Long'. А 'Spirit Of The Night' это вообще... практически чистый пауэр-метал в лучших традициях немецкой школы! Есть интересности и в составе. В группу вновь вернулся Mandy Meyer (lead guitar), недавно покинувший швейцарцев же Gotthard, а место за ударной установкой занял никто иной, как Stefan Schwarzmann (ex-Accept, ex-UDO, ex-Running Wild, ex-Helloween). И, думаю, я не буду далек от истины, если скажу, что "Hellraiser" оказался одним из лучших релизов Krokus за всю историю коллектива. На лицензионном издании от "СД-Максимум" вы сможете послушать бонус-трэк 'Walking In The Spirit', посмотреть два концертных&nbsp;видео 'Hellraiser' и 'Rock City' (с древнего альбома "Hardware" 1981-го года) и скачать себе обои для рабочего стола. При просмотре видео обратите внимание, сколько народа присутствуют на концерте швейцарцев (а не наши позорные 200 человек в 2005-ом году). Пусть кому-то эти песни покажутся старомодными или просто подражанием более именитым коллегам по хард-рок-сцене, но, по крайней мере, такие альбомы, как "Hellraiser" должны вызывать хотя бы уважение. Я не зря поставил заголовком к данной рецензии цитату из одного из лучших советских фильмов "В бой идут одни старики". Добавлю лишь, что продюсером выступил Dennis Ward (Pink Cream 69) - надеюсь, что и это имя для вас не пустой звук.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 06.02.2008 news KROKUS на отдыхе
+
+<P><STRONG>KROKUS</STRONG> объявили на своём сайте, что уходят в отпуск. Подробностей не сообщается.</P>
+Автор: Vit Belov
+
+### 20.02.2009 news KROKUS на Sony
+
+<P><STRONG>KROKUS </STRONG>подписали контракт с швейцарским подразделением <STRONG>Sony Music</STRONG>. Пластинка выйдет до конца года.</P>
+Автор: Vit Belov
+
+### 10.03.2009 news KROKUS откроют хоккейный чемпионат
+
+<P>Швейцарцы <STRONG>KROKUS</STRONG> сочинили официальную песню на чемпионата мира по хоккею, который начнётся в их родной стране 24 апреля. Группа исполнит <STRONG>"Live For The Action" </STRONG>на церемонии открытия, которая состоится перед матчем Швейцария - Франция.</P>
+Автор: Vit Belov
+
+### 18.12.2009 news Новый альбом KROKUS
+
+<P>Новая пластинка <STRONG>KROKUS</STRONG> будет называться <STRONG>"Hoodoo" </STRONG>и выйдет 26 февраля 2010 года на швейцарском подразделении <STRONG>Sony Music</STRONG>. </P>
+Автор: Vit Belov
+
+### 18.01.2010 news Новая песня KROKUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэк с нового альбома<STRONG> KROKUS</STRONG> <STRONG>"Hoodoo"</STRONG>, который выйдет 26 февраля, доступен на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/krokusonline">http://www.myspace.com/krokusonline</A></FONT></P>
+Автор: Vit Belov
+
+### 09.06.2010 news Новое видео KROKUS
+
+<P>Новый клип<STRONG> KROKUS</STRONG> на песню <STRONG>"Too Hot" </STRONG>можно посмотреть ниже. Режиссёрами видео стали <STRONG>Kaya Inan</STRONG>&nbsp;и <B>Matthias Gunter</B>. Песня была взята с последнего альбома группы <STRONG>"Hoodoo". </STRONG>Руководитель фэн-клуба <STRONG>KROKUS</STRONG> сравнил ролик с фильмами культового режиссёра <STRONG>Квентина Тарантино</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qhw9Tthel7w&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/qhw9Tthel7w&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.01.2013 news KROKUS: альбом &quot;Dirty Dynamite&quot; выходит 22 февраля
+
+<P>Швейцарская группа <STRONG>KROKUS</STRONG> выпускает новый альбом. </P>
+<P>Диск записанный в легендарной студии<STRONG> "Abbey Road"</STRONG> (Англия, Лондон), получил название <STRONG>"Dirty Dynamite"</STRONG> и выйдет в свет 22 февраля 2013 г. на<STRONG> Sony Music</STRONG>.</P>
+<P>В качестве гостей в записи альбома приняли участие: барабанщик <STRONG>Kosta Zafiriou</STRONG> (<STRONG>PINK CREAM 69</STRONG>, <STRONG>UNISONIC</STRONG>) и вокалисты <STRONG>Mark Fox</STRONG> (<STRONG>SHAKRA</STRONG>)&nbsp;и <STRONG>Tommy Heart</STRONG> (<STRONG>FAIR WARNING</STRONG>, <STRONG>SOUL DOCTOR</STRONG>).</P>
+<P>Основной состав группы выглядит следующим образом: <STRONG>Marc Storace</STRONG> - вокал | <STRONG>Chris Von Rohr</STRONG> - бас, бэк-вокал | <STRONG>Fernando Von Arb</STRONG> - гитара, бэк-вокал | <STRONG>Mark Kohler</STRONG> - гитара | <STRONG>Mandy Meyer</STRONG> - гитара.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25232.jpg" width=500 height=500> 
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+### 18.01.2013 news Новый клип KROKUS
+
+<P>Новый ролик<STRONG> KROKUS</STRONG> на заглавный трек с нового альбома <STRONG>"Dirty Dynamite" </STRONG>можно посмотреть ниже. </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/jEg4rNH09rM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

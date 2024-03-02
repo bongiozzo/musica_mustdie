@@ -205,6 +205,77 @@ credits (featuring "Eating My BLT 2004")
 * C группой "HammerFall" Pontus Norgren
 * C группой "Ring, The" Pontus Norgren
 
+## Публикации
+
+### 03.07.2002 news TALISMAN Commence Work On New Studio CD
+
+<p>Legendary Swedish/American hard rock act TALISMAN, featuring former YNGWIE MALMSTEEN members Jeff Scott Soto (vocals) and Marcel Jacob (bass), are reportedly in pre-production for the group's next studio album, which will not include any contributions from guitarist Pontus Norgren, who is said to have had a huge falling out with Jacob following the group's performance at Stockholm's Pub Anchor in early May. According to a message posted via Soto's official web site, "To clarify the latest gossip surrounding TALISMAN & HUMANIMAL, the real deal is there will no longer be HUMANIMAL. Jeff has issued the statement that HUMANIMAL in a way was a retooling of sorts in where the direction of TALISMAN should & would go, now reuniting the band with drummer Jamie Borger for a possible spring release. The band are now in preproduction with the new songs & should get recording started by September. The long awaited Live At Sweden Rock album recorded last summer will also be out in the next couple of months, more info to come soon. No labels are confirmed for either release at press time. <BR><BR> In related news, tentative plans exist for Soto to embark on a full solo tour in November following the release of his second solo album, entitled Prism. According to the singer's web site, "There's even talk that Jeff and Frontiers Records will do their best to have the ERIC MARTIN BAND along during the European dates. Jeff is hoping to cover a vast majority of Europe, South America, Japan & possibly Australia. Jeff has even hinted that he would like the show to be 'tailored' to what each territory would like to hear from the archives of his past in which we may posting a poll of 'What JSS songs would u like to hear at a JSS show?'. A ballot of Jeff's many songs will be posted for you all to choose what you'd like to hear most & chosen by popular demand as a 'give the people what they want' gesture."<BR><BR> Also on the Soto front, Jeff plans to shoot two videos from his new album, which will be added to the Prism CD as an enhanced multimedia release. The titles "Eyes Of Love" and "Holding On" were chosen for the videos, which will be directed and edited by Gary Schutt. The shoots will take place simultaneously sometime in mid-July.</p>
+
+Автор: Yermola
+
+### 04.07.2003 news Переиздания TALISMAN
+
+<p>Осенью, на GMR Music Group планируется переиздание шести классических альбомов шведской хард-рок команды TALISMAN, чьей основной движущей силой являются басист Marcel Jacob (ex-YNGWIE MALMSTEEN, JOHN NORUM) и вокалист Jeff Scott Soto (ex-YNGWIE MALMSTEEN). Среди них:</p>
+<p> "Talisman" (1990) <BR> "Genesis" (1993) <BR> "Humanimal" (1994) <BR> "Humanimal Part 2" (1994) <BR> "Life" (1995) <BR> "Truth" (1999)</p>
+<p> Альбомы пройдут ремастеринг и будут дополнены бонус-трэками.</p>
+
+Автор: Dimas
+
+### 12.07.2003 reviews Талисман кошек и собак
+
+<p>“Талисман” – одна из тех самодостаточных команд, которые не заморачиваются на таких мелочах, как большие деньги, гигантские тиражи альбомов, ротация на МTV, и толпы юных поклонниц, швыряющих лифчики на сцену. Они прекрасно знают, кто представляет их аудитория. Конечно те, кто давно услышал и проникся очарованием хрипловатого вокала Джеффа Скотта Сото. Прекрасно представляя, что хотят услышать эти люди эта группа, состоящая из проверенных профессионалов, делает понятную только любителям старого доброго хард рока музыку. И делают это здорово. Слушать их интересно даже при отсутствии в некоторых пеcнях интересных мелодий. То, что еще более интересно слушать самого Сотто даже и не обсуждается. Он как всегда на высоте. Он не может по-другому. К сожалению, в этот раз обошлось без каверов, что, казалось бы, стало визитной карточкой группы. Зато есть два клеевых хита – Wherever, Whenever, Whatever и Hell In Paradise. Плюс забавная цитата из «Металлики» в песне Lost In The Wastland.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+### 25.01.2005 news TALISMAN выпускают концертный CD и DVD
+
+<P>Шведы <STRONG>TALISMAN</STRONG> выпускают 21 марта концертные CD "<STRONG>Five Men Live</STRONG>"&nbsp;и DVD "<STRONG>World's Best Kept Secret</STRONG>"&nbsp;на <STRONG>Frontiers Records</STRONG>. Материал был записан в 2003 году во время тура в поддержку последней работы <STRONG>'Cats and Dogs'</STRONG>. </P>
+<P>Трэк-лист DVD:</P>
+<P>DVD1<BR>Mondo <BR>Recorded live at Club Mondo Stockholm, Sweden - August 2003<BR><IMG height=209 alt="" hspace=0 src="/images/news_rus/2005.01/7763.jpg" width=146 align=right border=5>1. <STRONG>Break Your Chains</STRONG> <BR>2. <STRONG>Color My Xtc<BR></STRONG>3. <STRONG>Fabricated War<BR></STRONG>4. <STRONG>Mysterious<BR></STRONG>5. <STRONG>Skin On Skin</STRONG> <BR>6. <STRONG>Tears In The Sky</STRONG> <BR>7. <STRONG>Break It Down Again</STRONG> <BR>8. <STRONG>In Make Believe</STRONG> <BR>9. <STRONG>Scream Of Anger</STRONG> <BR>10. <STRONG>If You Would Only Be My Friend<BR></STRONG>11. <STRONG>I'll Be Waiting<BR></STRONG>12. <STRONG>Outta My Way<BR></STRONG>13. <STRONG>Standing On Fire</STRONG></P>
+<P>Sweden Rock Festival<BR>Recorded live at Sweden Rock Festival, Solvesborg, Sweden - June 2003<BR>1. <STRONG>Break Your Chains</STRONG><BR>2. <STRONG>Color My Xtc</STRONG><BR><IMG height=208 alt="" hspace=0 src="/images/news_rus/2005.01/7764.jpg" width=208 align=right border=5>3. <STRONG>Fabricated War<BR></STRONG>4. <STRONG>Tears In The Sky<BR></STRONG>5. <STRONG>Crazy<BR></STRONG>6. <STRONG>Break It Down Again</STRONG> <BR>7. <STRONG>Mysterious <BR></STRONG>8. <STRONG>Standing On Fire <BR></STRONG>9. <STRONG>In Make Believe <BR></STRONG>10. <STRONG>I'll Be Waiting</STRONG></P>
+<P>Bonus Features<BR>Multi-angle Concert Videos: Mysterious; If You Would Only Be My Friend; Outta My Way</P>
+<P>Lyric subtitles for Club Mondo concert</P>
+<P>DVD2<BR>Retrospect - The Movie - including:<BR>1. <STRONG>I'll Be Waiting</STRONG> (Video) <BR>2. <STRONG>Just Between Us</STRONG> (Video)<BR>3. <STRONG>Mysterious</STRONG> (Video)<BR>4. <STRONG>Time After Time</STRONG> (Live In Japan, 1993)<BR>5. <STRONG>Comin' Home</STRONG> (Live In Japan, 1993)<BR>6. <STRONG>All Or Nothing</STRONG> (Live In Japan, 1993)<BR>7. <STRONG>Color My Xtc</STRONG> (Video)<BR>8. <STRONG>Here 2day, Gone 2day</STRONG> (Live At Sweden Rock Festival, 2001)<BR>9. <STRONG>Body </STRONG>(Live At Sweden Rock Festival, 2001)<BR>10. <STRONG>Fabricated War</STRONG> (Live At Lokerse Feesten, 2003)<BR>11. <STRONG>Tears In The Sky</STRONG> (Live At Lokerse Feesten, 2003)<BR>12. <STRONG>Crazy</STRONG> (Live At Lokerse Feesten, 2003)<BR>13. <STRONG>Skin On Skin</STRONG> (Video)<BR>14. <STRONG>Outta My Way</STRONG> (Live At Lokerse Feesten, 2003)<BR>15. <STRONG>In Make Believe</STRONG> (Video).</P>
+<P>Bonus Features:<BR>Discography; Shred Video; Naked Bassplayer; DVD credits (featuring "Eating My BLT 2004")</P>
+Автор: Vit Belov
+
+### 25.01.2005 news TALISMAN to release live DVD and CD
+
+<P><STRONG>TALISMAN</STRONG> will release live CD&nbsp;"<STRONG>Five Men Live</STRONG>" and DVD "<STRONG>World's Best Kept Secret</STRONG>" 21st of March via <STRONG>Frontiers Records</STRONG>. Here is track-list of double DVD:</P>
+<P>DVD1<BR>Mondo <BR>Recorded live at Club Mondo Stockholm, Sweden - August 2003<BR><IMG height=209 alt="" hspace=0 src="/images/news_rus/2005.01/7763.jpg" width=146 align=right border=5>1. <STRONG>Break Your Chains</STRONG> <BR>2. <STRONG>Color My Xtc<BR></STRONG>3. <STRONG>Fabricated War<BR></STRONG>4. <STRONG>Mysterious<BR></STRONG>5. <STRONG>Skin On Skin</STRONG> <BR>6. <STRONG>Tears In The Sky</STRONG> <BR>7. <STRONG>Break It Down Again</STRONG> <BR>8. <STRONG>In Make Believe</STRONG> <BR>9. <STRONG>Scream Of Anger</STRONG> <BR>10. <STRONG>If You Would Only Be My Friend<BR></STRONG>11. <STRONG>I'll Be Waiting<BR></STRONG>12. <STRONG>Outta My Way<BR></STRONG>13. <STRONG>Standing On Fire</STRONG></P>
+<P>Sweden Rock Festival<BR>Recorded live at Sweden Rock Festival, Solvesborg, Sweden - June 2003<BR>1. <STRONG>Break Your Chains</STRONG><BR>2. <STRONG>Color My Xtc</STRONG><BR><IMG height=208 alt="" hspace=0 src="/images/news_rus/2005.01/7764.jpg" width=208 align=right border=5>3. <STRONG>Fabricated War<BR></STRONG>4. <STRONG>Tears In The Sky<BR></STRONG>5. <STRONG>Crazy<BR></STRONG>6. <STRONG>Break It Down Again</STRONG> <BR>7. <STRONG>Mysterious <BR></STRONG>8. <STRONG>Standing On Fire <BR></STRONG>9. <STRONG>In Make Believe <BR></STRONG>10. <STRONG>I'll Be Waiting</STRONG></P>
+<P>Bonus Features<BR>Multi-angle Concert Videos: Mysterious; If You Would Only Be My Friend; Outta My Way</P>
+<P>Lyric subtitles for Club Mondo concert</P>
+<P>DVD2<BR>Retrospect - The Movie - including:<BR>1. <STRONG>I'll Be Waiting</STRONG> (Video) <BR>2. <STRONG>Just Between Us</STRONG> (Video)<BR>3. <STRONG>Mysterious</STRONG> (Video)<BR>4. <STRONG>Time After Time</STRONG> (Live In Japan, 1993)<BR>5. <STRONG>Comin' Home</STRONG> (Live In Japan, 1993)<BR>6. <STRONG>All Or Nothing</STRONG> (Live In Japan, 1993)<BR>7. <STRONG>Color My Xtc</STRONG> (Video)<BR>8. <STRONG>Here 2day, Gone 2day</STRONG> (Live At Sweden Rock Festival, 2001)<BR>9. <STRONG>Body </STRONG>(Live At Sweden Rock Festival, 2001)<BR>10. <STRONG>Fabricated War</STRONG> (Live At Lokerse Feesten, 2003)<BR>11. <STRONG>Tears In The Sky</STRONG> (Live At Lokerse Feesten, 2003)<BR>12. <STRONG>Crazy</STRONG> (Live At Lokerse Feesten, 2003)<BR>13. <STRONG>Skin On Skin</STRONG> (Video)<BR>14. <STRONG>Outta My Way</STRONG> (Live At Lokerse Feesten, 2003)<BR>15. <STRONG>In Make Believe</STRONG> (Video).</P>
+<P>Bonus Features:<BR>Discography; Shred Video; Naked Bassplayer; DVD credits (featuring "Eating My BLT 2004")</P>
+Автор: Vit Belov
+
+### 19.01.2006 news TALISMAN пишут новый материал
+
+<P>Вокалист <STRONG>Jeff Scott Soto</STRONG> и басист <STRONG>Marcel Jacob</STRONG> пишут новый альбом "<STRONG>Bar</STRONG>".</P>
+Автор: Vit Belov
+
+### 04.08.2006 news Подробности о новом альбоме TALISMAN
+
+<P>20 октября на <STRONG>Frontiers Records</STRONG> выйдет новый студийный альбом шведской группы <B>TALISMAN</B>&nbsp;под лаконичным названием&nbsp;<STRONG>"7".</STRONG> В составе группы басист и идейный вдохновитель уоллектива<STRONG> Marcel Jacob</STRONG> (ex-<STRONG>YNGWIE MALMSTEEN</STRONG>),&nbsp;&nbsp;талантливый вокалист <STRONG>Jeff Scott Soto</STRONG> (<STRONG>SOUL SIRKUS, </STRONG><STRONG>JOURNEY</STRONG>),&nbsp;ударник <STRONG>Jamie Borger</STRONG> (TREAT</B>) и гитарист <STRONG>Fredrik &#197;kesson</STRONG> (<STRONG>ARCH ENEMY</STRONG>). Трек-лист издания:</P>
+<P>1. <B>Falling</B><BR>2. <B>Nowhere Fast</B><BR>3. <B>Rhyme Or Reason</B><BR>4. <B>End of the Line</B><BR>5. <B>The 1 I'm Living 4</B><BR>6. <B>On My Way</B><BR>7. <B>Forevermore</B><BR>8. <B>Succumb 2 My Desire</B><BR>9. <B>Shed a Tear Goodbye</B><BR>10. <B>Troubled Water</B><BR>11. <B>Back 2 the Feeling</B><BR></P>
+Автор: Dimas
+
+### 14.03.2009 news TALISMAN войдут в студию
+
+<P>Шведы <STRONG>TALISMAN </STRONG>войдут в студию в этом году для записи пластинки, которая выйдет в 2010.</P>
+Автор: Vit Belov
+
+### 22.07.2009 news Умер Marcel Jacob
+
+<P>Вокалист <STRONG>Jess Scott Soto (TALOSMAN, JOURNEY, YNGWIE MALMSTEEN)</STRONG> сделал следующее заявление:</P>
+<P>"<EM>С большой скорбью и сожалением сообщаю, что с сегодняшнего дня, 21 июля, наш брат, друг и великолепный музыкант Marcel Jacob больше не с нами. Marcel покончил жизнь самоубийством после нескольких лет борьбы с болезнью и личных неурядиц. Мы только вчера (20 июля) разговаривали с ним, обсуждая детали наших новых дел, и вот сегодня я получил эту новость. Я хочу запомнить его тихим и интеллигентным человеком, с которым работаю вместе с 1994 года, когда мы основали&nbsp;TALISMAN.&nbsp;Спи спокойно, мой друг. Надеюсь ты сыграешь свой джэм мечты с Phil Lynott</EM>".&nbsp;&nbsp;</P>
+<P><STRONG>Marcel Jacob</STRONG> основал<STRONG> RISING FORCE</STRONG> вместе с <STRONG>Yngwie Malmsteen</STRONG> в 1978 году. Также он участвовал в пре-<STRONG>EUROPE</STRONG> группе<STRONG> FORCE</STRONG>, <STRONG>HUMAN CLAY</STRONG> и <STRONG>HUMANIAMAL</STRONG>. Ему было 45.</P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

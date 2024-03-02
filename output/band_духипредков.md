@@ -12,6 +12,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.09.2011 news ДУХИ ПРЕДКОВ на Metalism Records
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.09/20875.jpg" width=400 align=right border=0>7 сентября на лейбле <STRONG>Metalism Records</STRONG> выходит дебютный альбом саратовской pagan metal группы <STRONG>ДУХИ ПРЕДКОВ "Terra Ursorum"</STRONG>. Коллектив образован 17 сентября 2005 года, за время существования стилистика неоднократно менялась, сохраняя настроение pagan metal. На данный момент музыканты характеризуют стиль как pagancore, что характеризуется использованием жестких гитарных риффов и экстремального мужского вокала, кроме того, на альбоме присутствуют красивый женский вокал, партии флейты и клавишных, играющих интересные и не всегда чисто фолковые мелодии. </P>
+<P>Диск будет выпущен лимитированным тиражом в формате digibook. Обложка и буклет оформлены небезызвестным <STRONG>W. Smerdulak</STRONG>.<BR>&nbsp;<BR>Даты российского тура: <A href="http://vkontakte.ru/dukhi_predkov">http://vkontakte.ru/dukhi_predkov</A><BR>Бесплатная цифровая версия: <A href="http://files.mail.ru/DCIQPK">http://files.mail.ru/DCIQPK</A><BR>Потоковое аудио: <A href="http://www.lastfm.ru/music/Духи+предков/Terra+Ursorum">http://www.lastfm.ru/music/Духи+предков/Terra+Ursorum</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -38,6 +38,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.07.2011 news SKULL FIST - очередные убийцы фальшивого метала
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.07/19841.jpg" width=300 align=right border=0>Долгожданный дебютный альбом <STRONG>SKULL FIST „Head of the Pack“</STRONG> выйдет 26 августа на <STRONG>NoiseArt</STRONG>. Группа уже наделала шуму в совместном туре с <STRONG>BULLET</STRONG> и <STRONG>ENFORCER</STRONG>, её музыку рекомендуют поклонникам <STRONG>JUDAS PRIEST</STRONG> и <STRONG>IRON MAIDEN</STRONG>. После релиза пластинки музыканты отправятся в очередной тур вместе с <STRONG>GRAVE DIGGER, SABATON</STRONG>&nbsp;и <STRONG>POWER WOLF</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Head of the Pack<BR></STRONG>2. <STRONG>Ride the Beast<BR></STRONG>3. <STRONG>Commanding the Night</STRONG><BR>4. <STRONG>Get fisted</STRONG><BR>5. <STRONG>Cold Night</STRONG><BR>6. <STRONG>Tear Down the Wall</STRONG><BR>7. <STRONG>Commit to Rock</STRONG><BR>8. <STRONG>Ride on</STRONG><BR>9. <STRONG>Like a Fox</STRONG><BR>10. <STRONG>Attack Attack</STRONG><BR>11. <STRONG>No False Metal</STRONG></P>
+<P>Facebook: <A href="http://www.facebook.com/skullfisted">http://www.facebook.com/skullfisted</A></P>
+Автор: Vit Belov
+
+### 05.10.2011 news Новый клип SKULL FIST
+
+<P>Канадские борцы с фальшивым металом<STRONG> SKULL FIST</STRONG> выложили в сеть видео-клип на заглавную песню с нового альбома "<STRONG>Head of the Pack</STRONG>". Пластинка вышла в этом году на <STRONG>NoiseArt Records</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/Ko1uUgmIJVM?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/Ko1uUgmIJVM?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### SKULL FIST (Канада), BASTARDIZER (Австралия) и др. | Москва

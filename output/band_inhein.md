@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2010 news Дебют от INHEIN
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.03/16403.jpg" width=400 align=right border=5>8 марта на испанском лэйбле <STRONG>Antichristian Front Records</STRONG> вышел дебютный альбом отечественной группы <STRONG>INHEIN "Pestrapture"</STRONG>. Дистрибуцией этого издания на территории нашей страны будет заниматься <STRONG>MSR Distro</STRONG>. Вот, что пишет группа в собственном пресс-релизе:</P>
+<P>“<EM>Дебютный альбом российской black metal группы Inhein отправляет к чёрту весь блеск дешёвых жестянок конвейера Nuclear Blast и трещащий кухонный беспредел андеграунда. Анафеме также предаётся мораль. Альбом прошёл мастеринг в шведской студии Cutting Room, известной по своей работе с Hypocrisy, Behemoth, Opeth, Katatonia</EM>“.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -84,6 +84,100 @@
 * C группой "Brazen Abbot" J-L Turner
 * C группой "Sunstorm" J-L Turner
 
+## Публикации
+
+### 04.07.2001 news JOE LYNN TURNER становится все более святым....
+
+<p>Культовый вокалист JOE LYNN TURNER готовит продолжение для прошлогоднего "Holy Man". По информации официального сайта - альбом будет очень RAINBOW-ориентированным и выдержан в духе песен - "Fire Dance" и "Death Alley Driver" (Вау!!!). Среди музыкантов - Akira Kajiyama - гитара (он же записывал партии на "Holy Man"), барабанщик - Kenny Kramme, бассист - Eric Czar и клавишник Paul Morris (ex-RAINBOW). Запись проходит в Нью-Йоркской Unique Recording Studios с продюссером Bob Held. Уже готовы вещи: Slam, Face of a Stranger и Heart of the Night.</p>
+
+Автор: Yermola
+
+### 04.07.2001 news JOE LYNN TURNER is in the process of recording ....
+
+<p>Former RAINBOW/DEEP PURPLE vocalist JOE LYNN TURNER is in the process of recording the follow-up to last year’s Holy Man solo album, which he describes as "heavier... darker… [than its predecessor], from subject matter to tonalities… and only one ballad!" According the the singer’s official web site, the music on the upcoming effort is very RAINBOW-esque, similar to the heavier tracks like "Fire Dance" or "Death Alley Driver" off Bent Out of Shape and Straight Between The Eyes, respectively. The line-up of musicians featured on the effort includes guitarist Akira Kajiyama (with whom Joe co-wrote most of the tracks, just as he did on Holy Man), drummer Kenny Kramme, bassist Eric Czar, and keyboardist Paul Morris (ex-RAINBOW). The sessions are taking place at Unique Recording Studios in New York City, with Turner’s longtime friend and sometime writing partner Bob Held co-producing the album. Among the titles set to appear on the as-yet-untitled effort are: “Slam”, “Face of a Stranger”, and “Heart of the Night”. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 25.12.2001 news Долгожданный проект HUGHES - TURNER ...
+
+<p>Наконец-то реализован долгожданный проект "HUGHES TURNER", созданный экс-участниками культовых DEEP PURPLE/BLACK SABBATH/RAINBOW/ - Joe Lynn Turner и Glenn Hughes. Одноименный диск выходит (пока в Японии) 6-го февраля 2002. Трек-лист: <BR><BR> 01. Devil's Road<BR> 02. You Can't Stop Rock'N'Roll<BR> 03. Missed Your Name<BR> 04. Mystery Of The Heart<BR> 05. Sister Midnight<BR> 06. Better Man<BR> 07. Heaven's Missing An Angel<BR> 08. Fade Away<BR> 09. Ride The Storm<BR> 10. Run Run Run<BR> 11. Against The Wall<BR> 12. On The Ledge<BR><BR> В записи альбома участвовали Joe Lynn Turner (вокал), Glenn Hughes (вокал, басс), J. J. Marsh (гитара), Vince DiCola (клавиши) и Shane Galaas (барабаны). Среди гостевых музыкантов были: John Sykes (гитара), Paul Gilbert (гитара) и Akira Kajiyama. Продюссировали релиз Glenn Hughes, Joe Lynn Turner и Mike Scott.</p>
+
+Автор: Yermola
+
+### 30.04.2003 news Новый альбом JLT
+
+<p>Один из бывших вокалистов RAINBOW и DEEP PURPLE Joe Lynn Turner готовит к выпуску 16 июня на MTM Music свой новый сольный альбом "JLT". Он обещает возвращение своего творчества к его блюзовым и рок-н-ролльным корням. В записи альбома приняли участие гитарист Al Pitrelli (MEGADETH, SAVATAGE) и ударник John O'Reilly (RAINBOW). Трэк-лист альбома включает в себя:</p>
+<p><IMG SRC="/images/news_rus/2003.04/4231.jpg" ALT="pho" width=200 height=198 hspace="15" vspace="5" border="1" align="left"> 1. In Cold Blood <BR> 2. Jump Start <BR> 3. Dirty Deal <BR> 4. Love Don’t Live Here <BR> 5. Excess<BR> 6. Let’s Go <BR> 7. Cryin’ Out Loud <BR> 8. Fantasize <BR> 9. Blood Fire <BR> 10. Drivin’ With My Eyes Closed <BR> 11. Hit the Switch <BR> 12. Reprise</p>
+
+Автор: Dimas
+
+### 10.09.2004 news Hughes и Turner не боятся террористов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Glenn Hughes</STRONG> и <STRONG>Joe Lynn Turner</STRONG> посетят нашу страну, несмотря на вылазки террористов, сообщил сотрудник мэрии <STRONG>Михаил Мень</STRONG> в интервью <STRONG>Интерфакс</STRONG>. Напомним, что у этого чиновника совместный проект с легендами hard-rock.</FONT></P>
+Автор: Vit Belov
+
+### 18.11.2004 news Joe Lynn Turner на Frontiers
+
+<P><STRONG>Joe Lynn Turner</STRONG> подписал соглашение на выпуск очередного сольного альбома <STRONG>'Usual Suspects'</STRONG> с <STRONG>Frontiers Records</STRONG>. Запись пластинки будет закончена в декабре, а увидит она свет в феврале.</P>
+Автор: Vit Belov
+
+### 05.12.2004 news Новый альбом JOE LYNN TURNER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая сольная пластинка <STRONG>JOE LYNN TURNER 'The Usual Suspect'</STRONG>, как уже сообщалось, скоро выходит на <STRONG>Frontiers</STRONG>. Продюсерами альбома выступили сам <STRONG>Joe</STRONG> и <STRONG>Bob Held</STRONG>. В записи приняли участие: <STRONG>Al Pitrelli</STRONG> (<STRONG>SAVATAGE, ex-MEGADETH</STRONG>), <STRONG>Karl Cochran</STRONG> (<STRONG>Ace Frehley</STRONG>). Трэк-лист:</FONT></P>
+<P>1. <STRONG>All Alone <BR></STRONG>2. <STRONG>Devil's Door <BR></STRONG>3. <STRONG>Really Loved <BR></STRONG>4. <STRONG>Rest of My Life <BR></STRONG>5. <STRONG>Unfinished Business<BR></STRONG>6. <STRONG>Blood Money</STRONG> (exclusive bonus track for Europe)<BR>7. <STRONG>Into the Fire Jacknife</STRONG> <BR>8. <STRONG>Ball and Chain <BR></STRONG>9. <STRONG>Live and Love Again <BR></STRONG>10. <STRONG>Power of Love</STRONG></P>
+Автор: Vit Belov
+
+### 21.12.2004 news Альбом Joe Lynn Turner выходит 21 февраля
+
+<P>Новый сольник <STRONG>Joe Lynn Turner 'Usual Suspects'</STRONG> выходит 21 февраля. Стало известно, что соглашение с <STRONG>Frontiers</STRONG> заключила российская контора<STRONG> Irond</STRONG>, и, вероятнее всего, этот альбом выйдет на одном из его подразделений. Трэк-лист (немного изменился порядок песен):</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.12/7531.jpg" width=300 align=right border=5>1. <STRONG>Power Of Love<BR></STRONG>2. <STRONG>Devil's Door&nbsp; <BR></STRONG>3. <STRONG>Jacknife<BR></STRONG>4. <STRONG>Really Loved<BR></STRONG>5. <STRONG>Rest Of My Life<BR></STRONG>6. <STRONG>Into The Fire<BR></STRONG>7. <STRONG>Blood Money</STRONG><BR>8. <STRONG>All Alone<BR></STRONG>9. <STRONG>Ball And Chain<BR></STRONG>10. <STRONG>Live And Love Again</STRONG><BR>11. <STRONG>Unfinished Bizness</STRONG> (European bonus track)</P>
+Автор: Vit Belov
+
+### 25.04.2005 reviews Live and Love Again!!!
+
+<P>Девятый альбом Джо Линн Тернера, не нуждающегося в представлении, оформлен потрясающе убого. Невнятная обложка и фотографии все голубого цвета. Это намек что ли? Явно сэкономили на дизайнере. Побывал я на его сайте – The 5<SUP>th</SUP>-density.com, и понял, это еще этот «художник» в данном случае выше головы прыгнул, другие его работы еще хуже. Обидно, что этот же криворук испоганил еще и альбом Гленна Хьюза. Давить таких уродов надо. </P>
+<P>Но главное, что содержание не соответствует оформлению. Я удивляюсь, на сколько талантлив Тернер. Ведь, вроде, сколько он времени отдает проекту HTP. Сочинение материала, записи, мировые турне. И вот помимо всего вышеперечисленного, такой результат сольного творчества. Музыка – классический хард-рок а-ля “Rainbow”. Жирные мелодии, запоминающиеся если не с первого, то со второго прослушивания, точно. Несколько убойных хитов, вроде открывающего диск – “Power Of Love, профессиональная работа музыкантов. Традиционно перечислю их - гитаристы Karl Cochran (Dirt, TT Quick, Ace Frehley) и Al Pitrelly (Savatage, Asia, Great White), клавишники Paul Morris (Doro, Rainbow) и Andy Burton (More), барабанщик John O`Reilly (Rainbow) басист – известный продюсер (Prince. A-Ha итп) и музыкант (John Mayall, Trans-Siberian Orchestra) David Z. Они не просто аккомпаниаторы, они делают музыку.</P>
+<P>Ну и сам Тернер. Говорят, некоторые считают очень слабым вокалистом. У этих тугоухов есть шанс убедиться в обратном – деньги в кассу, сиди в проигрыватель и слушайте, как этот человек поет на “Devils Door” и “Live And Love Again”. Последняя песня вообще стоит отдельного разговора. По убойности она встала в моем хит-параде рядом с классической “Miss Mistreated”.</P>
+<P>Мастхэв классический. Альбом без недостатков. Танцуют все!</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Дофф
+
+### 16.11.2006 news Новый двд от Yngwie Malmsteen
+
+<P>Поклонники певцов <STRONG>Jeff Scott Soto</STRONG> и<STRONG> Joe Lynn Turner</STRONG>&nbsp;могут теперь добавить в свою коллекцию еще один двд от&nbsp;<STRONG>Yngwie Malmsteen "Far Beyond The Sun"</STRONG>, который вышел на&nbsp;<B>Universal Music</B>.&nbsp;Прошедший мастеринг двд включает в себя два концерта: японский&nbsp;1985 года&nbsp;(с участием&nbsp;<STRONG>JSS</STRONG>) и ленинградский 1989 года&nbsp;(с участием&nbsp;<STRONG>JLT</B></STRONG>), плюс видеоклипы и свежее интервью 2006 года с <STRONG>Yngwie Malmsteen</STRONG>.</P>
+Автор: Dimas
+
+### 18.01.2007 news JOE LYNN TURNER в России
+
+<P>Объявлены даты концертов <STRONG>JOE LYNN TURNER</STRONG> в России. 10 февраля знаменитый вокалист выступит в клубе "Апельсин", а 16 февраля в клубе "Форте" в Москве. Также намечены концерты в Иваново, Кинешме и Калиниграде.</P>
+Автор: Vit Belov
+
+### 13.02.2007 news Новый альбом JOE LYNN TURNER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>Joe Lynn Turner</STRONG> наносит последние штрихи к своему новому сольному альбому "<STRONG>Second Hand Life</STRONG>". <STRONG>Joe</STRONG> описывает новую работу, как смесь своего последнего&nbsp;альбома "<STRONG>Usual Suspects</STRONG>" и <STRONG>Sunstorm</STRONG>, группы, где певец пел недавно. Крен в сторону <STRONG>SUNSTORM Joe Lynn Turner</STRONG> объясняет успехом последних.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песни на пластинке написали <STRONG>Jim Peterik, Bob Held, Karl Cochran, Martin Briley</STRONG> и даже <STRONG>Ritchie Blackmore</STRONG>.&nbsp;</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 06.03.2007 news JOE LYNN TURNER выпустит альбом
+
+<P><IMG height=259 alt="" hspace=0 src="/images/news_rus/2007.03/11389.jpg" width=259 align=right border=5>20 апреля <STRONG>JOE LYNN TURNER</STRONG> выпускает свой новый альбом "<STRONG>Second Hand Life</STRONG>" на <STRONG>Frontiers</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Love is Life<BR></STRONG>2. <STRONG>Got Me Where You Want Me<BR></STRONG>3. <STRONG>Second Hand Life<BR></STRONG>4. <STRONG>In Your Eyes<BR></STRONG>5. <STRONG>Blood Red Sky <BR></STRONG>6. <STRONG>Stroke of Midnight <BR></STRONG>7.<STRONG> Over the Top<BR></STRONG>8. <STRONG>Cruel<BR></STRONG>9. <STRONG>Sweet Obsession<BR></STRONG>10. <STRONG>Love Is On Our Side</STRONG><BR>11. <STRONG>Two Lights</STRONG> (European exclusive bonus track)</P>
+Автор: Vit Belov
+
+### 13.02.2009 news Joe Lynn Turner рассказал о OVER THE RAINBOW
+
+<P><STRONG>Joe Lynn Turner</STRONG> рассказал о возникновении идеи создания кавер-группы <STRONG>OVER THE RAINBOW</STRONG>, в которую, помимо бывших участников <STRONG>RAINBOW</STRONG>, попал сын <STRONG>Ritchie Blackmore</STRONG>. Оказалось, что российские промоутеры были непосредственными участниками этого проекта, и эта идея родилась во время разговора <STRONG>Joe</STRONG> с ними. </P>
+<P><STRONG>OVER THE RAINBOW</STRONG> едут в тур по России.</P>
+Автор: Vit Belov
+
+### 17.04.2009 news Turner наехал на Coverdale
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В интервью испанскому журналу <STRONG>The Metal Circus</STRONG> вокалист <STRONG>Joe Lynn Turner</STRONG>, отвечая на вопрос об использовании им фонограммных плёнок на концерте, рассказал следующее:</FONT></P>
+<P>"<EM>Я не использую этого. Есть правда одна "машинка", которая позволяет мне делать бэк-вокалы, но это не плёнки. Я пою сам, а программа делает с голосом то, что надо. Здесь нет чудес, здесь нет и фонограммы. Недавно я прочитал в Интернет, что David Coverdale использует фонограмму. Окей, я был в прошлом году на фестивале Sauna Open Air в Финляндии вместе с Graham Bonnet. Там же выступали и Whitesnake. Я не мог поверить своим ушам, но David действительно использовал фонограмму для основного пения. Не для бэков, а для ведущего голоса!!! Я просто стоял с открытым ртом: "Как же так, David? Как ты можешь? Ты выглядишь, как дурак!" Это всех так беспокоило. Но это меня не касется. Я пою вживую... Никакого дерьма... Все это видят. Насчёт Coverdale я в шоке, ведь он всегда был одним из моих любимейших певцов. Использовать фонограмму для lead singing!!!??? Для "бэков" я ещё понимаю, если другие музыканты не поют, но для ведущего вокала!!! Он что шутит, блин?</EM>"</P>
+<P>Сегодня же <STRONG>David Coverdale</STRONG> опубликовал опровержение, обозвав<STRONG> Joe</STRONG> нехорошими словами, но "слово - не воробей". Старички не сдаются.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Старички жгут!!!:)

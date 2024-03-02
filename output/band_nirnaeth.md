@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.08.2016 news Новое видео NIRNAETH
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип французов<strong> NIRNAETH</strong> на песню "<strong>Nihil In Me</strong>" можно посмотреть ниже. Трек взят с нового мини-альбома коллектива, вышедшего на сплите с<strong> AZZIARD</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/jRjlTe7e6Zw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.08.2016 news New clip of NIRNAETH
+
+<p>New clip of the French <strong>NIRNAETH</strong> for the song "<strong>Nihil In Me</strong>" can be viewed below. The track is taken from new mini-album, released on the split with <strong>AZZIARD</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/jRjlTe7e6Zw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

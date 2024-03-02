@@ -28,6 +28,22 @@ Data Track
 * C группой "Viper" Andre Matos
 * C группой "Heavens Gate" Sacha Paeth
 
+## Публикации
+
+### 13.11.2001 reviews Самолюбование в прогрессирующей степени
+
+<p>Недавно Вы могли прочесть моё мнение по поводу нового творения Angra. А вот теперь первый из сайд-проектов Матоса Virgo. Вместе с ним выступает известный продюсер и музыкант Sascha Paeth. Теперь становится ясным, зачем Андре ушёл из Angra. В его группах не должно быть ничего примечательного, кроме его голоса. На этом CD ему удалось воплотить этот постулат в жизнь. Pop-rock не очень высокого качества с отличным вокалом. Paeth здесь, вообще, не нужен... Так для рекламы. Всё настолько пафосно, что и говорить не хочется. Зачем Вам музыка, когда есть я. Советую всем фанатам Матоса, как мужчины. Также можно посмотреть видео-клип, где вся группа придуривается, не смешно шутит и исполняет самую "тяжёлую" вещь "Babydoll".</p>
+<p>Диск предоставлен департаментом по зарубежному репертуару концерна "ГРУППА СОЮЗ"</p>
+
+Автор: Vit Belov
+
+### 14.11.2001 reviews Self-conceit in a progressing degree
+
+<p>Recently you could read my opinion concerning new creation of Angra. And now first of the side-projects of Matos - Virgo. We can listen to Sacha Paeth, known producer and musician, together with him. Now becomes clear, what for Andre has left Angra. In his bands there should not be nothing remarkable, except of his voice. On it CD it was possible to him embody this postulate in life. Pop-rock of not so high quality with excellent vocal. Paeth here, in general, is not necessary... So for advertising. Everithing is so pafos, as to speak it would not be desirable. Why do you want to listen to the music, when I AM. I advise to all fans of Matos, as the man. Also it is possible to look a video-clip, where group plays the fool, not ridiculously jokes and plays the most "heavy" thing "Babydoll".</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

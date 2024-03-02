@@ -25,6 +25,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.04.2016 news MANTAR: видеоклип &quot;Cross The Cross&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новые питомцы лейбла <STRONG>Nuclear Blast</STRONG>, немецкий дуэт <STRONG>MANTAR</STRONG>, выпустили видеоклип на песню<STRONG> "Cross The Cross"</STRONG> со своего нового альбома. Диск, уже второй по счёту у группы, получил название <STRONG>"Ode To The Flame"</STRONG> и вышел 15 апреля этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже совсем скоро <STRONG>MANTAR</STRONG> выступит в Москве (20 мая) и Санкт-Петербурге (21 мая), где разделит сцену с двумя другими&nbsp;иностранными&nbsp;группами. Подробности в нашем разделе&nbsp;"Shows":&nbsp;<A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/B-KjHGpMxag" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Спешите видеть! Три иностранных ансамбля в одном концерте! (20 и 21 мая 2016 в Москве и СПб).

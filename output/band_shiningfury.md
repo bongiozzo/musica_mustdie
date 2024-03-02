@@ -32,6 +32,15 @@ Ross Lukather (drums)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.11.2003 news SHINING FURY дебютируют на Metal Blade Records
+
+<P>Итальянцы <B>SHINING FURY</B> закончили запись нового альбома <B>"Last Sunrise"</B>, который станет их дебютом на <B>Metal Blade Records</B>. Продюсером нового творения, записанного и смиксованного в <B>FP Recording Studios</B>, будет <B>Freddy Delirio</B>. Трэк-лист:</P><BR>
+<P>01. <B>Intro</B><BR>02. <B>Broken Hopes</B><BR>03. <B>060501</B><BR> 04. <B>Sleepin' Coma</B><BR>05. <B>Snake's Game</B><BR>06. <B>Last Sunrise</B><BR>07. <B>Memories</B><BR>08. <B>Speed Of Life</B><BR>09. <B>Declaration Of A Cheat</B><BR>10. <B>Net Love</B><BR>11. <B>Rosanna</B></P><BR><P>Альбом был записан в составе: <B>Francesco Neretti</B> (вокал), <B>Tommy Pellegrini</B> (гитара), <B>Toniello</B> (гитара), <B>Alessandro Cola</B> (бас) и <B>Ross Lukather</B> (ударные). Европейский релиз <B>"Last Sunrise"</B> состоится 12 января 2004 года через <B>Metal Blade Records</B>.</P>
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2016 news Новый клип PROJECT F
+
+<p>Новый клип канадских industial маньяков<strong> PROJECT F</strong> на песню "<strong>Unbegun</strong>" можно посмотреть ниже. Трек взят с мини-альбома коллектива "<strong>The Butterfly Effect</strong>". </p><p>Трек-лист:</p><p>1. The Butterfly Effect (1:32)<br>2. Tongue (4:53)<br>3. Cut Your Wings (3:46)<br>4. Unbegun (3:49)<br>5. 03:47:09:08:1945 (1:58)<br>6. Fatman (4:24)<br>7. When the Angel Fell From the Sky (4:56)</p><p><center><img width="600" height="600" src="/images/news_rus/2016.06/29279.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/IOK3Q2e8564" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 08.06.2016 news PRJECT F: New Video
+
+<p>Montreal industrial monsters <strong>PROJEKT F</strong> have posted a new video '<strong>Unbegun</strong>' in support of their recently released EP <strong>'The Butterfly Effect'</strong>. The EP is their loudest release to date featuring seven pinnacle tracks for your auditory senses discussing the torrid relationship between man and God to continue their thematic discography ‘<strong>Skins</strong>’ (2013) and ‘<strong>Under The Skin’</strong> (2014).</p><p><em>''We consider 'The Butterfly Effect' to be an extremely raw and honest EP. Early in the process of making it, we knew that we would not be making a music video for it. However, we thought it was important to give something to our fans. So we decided to make a video that would show a side of Projekt F that hasn't been seen before. Like the EP, a raw and honest one. Many of you have seen our "on stage persona” before, but with this video that we have made for our single, "Unbegun", we are sharing a different side of ourselves.</em>'' comments vocalist <strong>Jonh M. Miller</strong>.</p><p><center><img width="600" height="600" src="/images/news_rus/2016.06/29279.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/IOK3Q2e8564" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -40,6 +40,77 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.06.2004 news AMATORY сняли клип
+
+<P>Питерские death-metal'исты <B>AMATORY</B> сняли свой первый клип&nbsp;на песню 'Осколки" с альбома <B>'Вечно Прячется Судьба'</B>. Скачать его можно по этому адресу <A href="http://www.deviantcreations.net/download/Amatory%20-%20Oskolki.mpg">http://www.deviantcreations.net/download/Amatory%20-%20Oskolki.mpg</A></P>
+<P>Также Вы можете услышать эту песню на нашем сайте в формате MP3:&nbsp;</P>
+<P><A href="/samples/a/amatory/2004_1097.mp3">http://musica.mustdie.ru/samples/a/amatory/2004_1097.mp3</A></P>
+Автор: Vit Belov
+
+### 22.06.2004 news AMATORY filmed first video
+
+<P>St. Petersburg death-metal band <B>AMATORY </B>filmed their first video on song '<B>Oskolki</B>' of album <B>'Vechno Pryachetcy sud'ba'</B> (Doom is hiding forever). You can download it from <A href="http://www.deviantcreations.net/download/Amatory%20-%20Oskolki.mpg">http://www.deviantcreations.net/download/Amatory%20-%20Oskolki.mpg</A></P>
+<P>This song in format MP3 <A href="/samples/a/amatory/2004_1097.mp3">http://musica.mustdie.ru/samples/a/amatory/2004_1097.mp3</A></P>
+Автор: Vit Belov
+
+### 13.05.2005 news DVD от AMATORY
+
+<P><IMG height=554 alt="" hspace=0 src="/images/news_rus/2005.05/8458.jpg" width=400 align=left border=5>[<STRONG>AMATORY</STRONG>] полностью закончили работу над своим первым DVD "<STRONG>PS</STRONG>". DVD содержит хронику о жизни команды за 2004-2005 года. Сюда включены студийные съёмки на <STRONG>DDT</STRONG> и <STRONG>HANSEN STUDIO</STRONG>, гастроли, домашние видеозаписи, интервью с участниками команды + различные бонусы.</P>
+<P>18 мая в <STRONG>МИРАЖ СИНЕМА</STRONG> на Большом проспекте П.С. 35 (Санкт-Петербург) в зале Молния на 197 мест в 19.00 состоится его премьера. После фильма можно будет пообщаться с музыкантами и задать им свои вопросы.<BR>БИЛЕТЫ по 150р. в магазинах <STRONG>ФАРШМАГ</STRONG> с 28 апреля!</P>
+<P>Презентация DVD состоится:<BR>20 мая - Москва -ТОЧКА<BR>21 мая - Тверь - От Заката До Рассвета<BR>22 мая - Санкт-Петербург - ПОРТ<BR>в Москве и Твери спецгости - Амнезия</P>
+Автор: Vit Belov
+
+### 20.06.2005 news Первый DVD AMATORY
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2005.06/8818.jpg" width=400 align=left border=5>На лэйбле Капкан Records вышел первый DVD питерской группы [AMATORY] под названием "P.S.". Лейтмотивом DVD является последний альбом [AMATORY] "НЕИЗБЕЖНОСТЬ", ставший настоящим прорывом на российской альтернативной и метал-сцене. Съёмки студийной работы на DDT И HANSEN STUDIO, гастроли, домашние видеозаписи, эксклюзивные интервью с участниками коллектива откроют музыкантов с новой стороны, со всеми плюсами и минусами, с неприкрытыми эмоциями...</P>
+<P>Содержание DVD:<BR>-HOME VIDEO<BR>-LIVE<BR>-VIDEOCLIPS<BR>-AUDIO(Remixes&Demos)<BR>-MULTIMEDIA </P>
+<P>Total time: 100 min.</P>
+<P>Рекламный трэйлер(13 mb) можно скачать по следующей ссылке <A href="http://www.deviantcreations.net/download/DVD_PS_trailer.mpg">http://www.deviantcreations.net/download/DVD_PS_trailer.mpg</A> </P>
+Автор: Vit Belov
+
+### 12.07.2006 news AMATORY - Работа над третьим альбомом началась
+
+<P><IMG height=600 alt="" hspace=0 src="/images/news_rus/2006.07/10533.jpg" width=400 align=left border=5>Жарким июльским утром 11 числа в Санкт Петербург из Копенгагена прибыл продюсер<STRONG> Jacob Hansen</STRONG>, уже работавший с<STRONG> [AMATORY]</STRONG> над альбомом <STRONG>“Неизбежность</STRONG>”. Начиная с сегодняшнего <BR>дня,&nbsp; группа будет находиться на студии <STRONG>DDT</STRONG>, где и будет происходить запись нового полноформатного альбома. Перерыв в работе будет сделан лишь для небольшого тура, состоящего из выступлений на крупнейших российских фестивалях - "<STRONG>Escape From The Studio ToOur 2006</STRONG>"))).</P>
+<P>Все самые свежие новости о работе над альбомом можно найте на официальном сайте группы, официальном ЖЖ коммьюнити, а также фэн-сайте группы по адресам:<BR><A href="http://www.amatory.ru/">www.amatory.ru</A><BR><A href="http://community.livejournal.com/amatory_ru/">http://community.livejournal.com/amatory_ru/</A><BR><A href="http://www.breeder.amatory.ru/">www.breeder.amatory.ru</A> </P>
+Автор: Vit Belov
+
+### 27.03.2007 news [AMATORY] в СК Юбилейный (Санкт-Петербург)
+
+<P><IMG height=410 hspace=5 src="/images/shows_rus/2007.04/11551.jpg" width=290 align=left border=0>НАШЕ РАДИО И ПЕРВЫЙ АЛЬТЕРНАТИВНЫЙ</P>
+<P>представляют:</P>
+<P>Эксклюзивно для Санкт-Петербурга, 26 апреля в СК Юбилейный состоится финальное шоу LIVE EVIL тура группы [AMATORY]. Киловатты звука и света, многоуровневая сцена, спецэффекты, свето- и видеоинсталляции, будут ярким дополнением к грандиозному выступлению [AMATORY] в родном городе. Это будет зрелищное действо, которое войдет как знаменательное событие в историю группы и альтернативной музыки. Все будет снято на видео десятками камер компанией Project Helix и будет выпущен концертный DVD. Режиссер проекта Прист (компания Project Helix) уже работал с [AMATORY], он снял DVD "P.S." и клип "Черно-белые дни".</P>
+Автор: Morsus
+
+### 03.05.2007 news [AMATORY] завершили Live Evil Tour
+
+<P><IMG height=267 alt="" hspace=0 src="/images/news_rus/2007.05/11588.jpg" width=400 align=left border=5>Группа <STRONG>[AMATORY]</STRONG> 26 апреля в родном Санкт-Петербурге отыграла заключительный концерт <STRONG>Live Evil</STRONG> тура, который начался в октябре 2006 года. Музыканты посетили с концертами более 60 городов России и стран СНГ. В Питере<STRONG> [AMATORY]</STRONG> отыграли самый грандиозный и масштабный концерт в истории группы! Помимо нескольких тысяч поклонников, которые пришли на концерт любимой группы, в этот вечер в Юбилейном были замечены Вася Васин из «Кирпичей», Алексей Горшенев «Кукрыниксы» и другие коллеги по цеху.</P>
+<P>Все происходящее в тот вечер снимали для последующего выпуска концертного DVD, поэтому действо было продумано до мелочей. <STRONG>[AMATORY]</STRONG> отыграли порядка 24 песен, на которых поклонники группы устраивали «стену смерти», «сайкл пит», «слэм», «стейдж дайвинг» и прочие «украшения» шоу. Весь концерт сопровождался специальными видеороликами, которые транслировались на большом экране. Двухчасовое шоу было разделено на два отделения: белое и черное. Во второй части<STRONG> [STEWART]</STRONG> устроил продолжительное соло на барабанах, не оставившее равнодушным, пожалуй, ни одного зрителя. Завершился концерт <STRONG>[AMATORY]</STRONG> «снегопадом» под песню «Снег в аду».</P>
+<P>Дата выхода DVD пока неизвестна. В настоящий момент идет работа над сведением звука и монтажом видео.</P>
+<P>Московские поклонники группы<STRONG> [AMATORY]</STRONG> смогут попасть на их концерт уже 26 мая, который состоится в CDK МАИ.</P>
+<P>(nashe.ru)</P>
+Автор: Vit Belov
+
+### 16.05.2007 news [AMATORY] не будут разогревать LINKIN PARK
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2007.05/11632.jpg" width=300 align=left border=5>[AMATORY]</STRONG> опровергли слухи о своём участии в концертах <STRONG>LINKIN PARK</STRONG> в России: "<EM>В связи с появлением огромного числа слухов, вопросов и домыслов, менеджмент группы официально сообщает, что группа [AMATORY] не будет принимать участия в концертах 5 и 6 июня с группой Linkin Park. Предложение о выступлении к нам действительно поступило, но мы отказались от него в связи с сольным концертом в Москве и благотворительным концертом памяти [GANG]'a в Санкт-Петербурге</EM>".</P>
+Автор: Vit Belov
+
+### 28.03.2008 news Новое DVD AMATORY в сети
+
+<P><STRONG>AMATORY </STRONG>выложили в сеть свой выходящий DVD "<STRONG>Live Evil</STRONG>". В его основу положено выступление коллектива в <STRONG>ДС Юбилейный</STRONG> в Санкт-Петербурге.</P>
+<P>Ссылка: <A href="http://www.nashe.ru/.nashe-tv/">http://www.nashe.ru/.nashe-tv/</A></P>
+Автор: Vit Belov
+
+### 03.12.2008 news Новый альбом AMATORY
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.12/13117.jpg" width=400 align=right border=5>И вот она долгожданная новость!!! Группа <STRONG>[AMATORY]</STRONG> подписала контракт с<STRONG> ФГ "Никитин"</STRONG>, с которой будет выпукать свой новый полноформатный альбом, получивший название "<STRONG>VII</STRONG>". Четвертый студийный альбом <STRONG>[AMATORY] "VII"</STRONG> выйдет в свет 18 декабря этого года. <BR>Альбом включил в себя 14 треков: </P>
+<P>01. <STRONG>Пыль. Свет. Тишина</STRONG>. <BR>02. <STRONG>В глазах твоя жизнь</STRONG> <BR>03. <STRONG>Спарта <BR></STRONG>04. <STRONG>Дыши со мной</STRONG> <BR>05. <STRONG>Моя месть</STRONG> <BR>06. <STRONG>Сжигая мосты <BR></STRONG>07. <STRONG>Вы все лишены своей жизни</STRONG> <BR>08. <STRONG>Новый герой <BR></STRONG>09. <STRONG>Прямо сейчас (В наших руках) <BR></STRONG>10. <STRONG>Зачем мечтать <BR></STRONG>11. <STRONG>Нас никто не остановит</STRONG> <BR>12. <STRONG>Падая вниз <BR></STRONG>13.<STRONG> Время придумало смерть <BR></STRONG>14. <STRONG>Нить длиною в жизнь</STRONG> </P>
+<P>По случаю выхода альбома <STRONG>"VII"</STRONG> 18 декабря в Санкт-Петербурге состоится автограф-сессия! В магазине партнеров группы компании MixArt, которые представляют в России бренды Audio-Technica и Markbass. Начало в 17:00. Адрес: Санкт-Петербург, ул. Марата, 62. Телефон: (812) 764-9431</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

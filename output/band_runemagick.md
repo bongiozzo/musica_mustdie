@@ -82,6 +82,69 @@ Side Magick
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.04.2001 news RUNEMAGICK ушли с Century Media Records.....
+
+<p>Шведские дэтстеры "RUNEMAGICK" после выпуска трех альбомов ушли от "Century Media Records". "У нас есть несколько интересных предложений от лэйблов, но мы пока еще выбираем..." - сообщила группа на оффициальном веб-сайте. Также троица закончила запись нового СД "Revelation of Darkness", в который вошли: 01. Fathomless Genius Loci 02. The Infinity in Trinity 03. Ways Of Death Aggression 04. Pure Metallic Tribalance 05. One Road to Megiddo 06. Solstice of the Succubus 07. Non Divine Dirty Dead Blood 08. The Devil's Demimonde 09. Corpse Nexus Hightime. А еще команда записала версию классической песни BATHORY "The Return of Darkness and Evil" для сборника In Conspiracy With Satan II.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news Sweden&#39;s RUNEMAGICK have reportedly parted ways with Century Media Records....
+
+<p>Sweden's RUNEMAGICK have reportedly parted ways with Century Media Records after having released two full-length CDs through the label. "We have already some interested labels but we have not decided anything yet," the group stated on their official web site in a posting dated more than two months ago. According to the trio, RUNEMAGICK have already completed work on the bulk of the music for their forthcoming CD, tentatively titled Revelation of Darkness. Song titles set to appear on the album include the following: 01. Fathomless Genius Loci 02. The Infinity in Trinity 03. Ways Of Death Aggression 04. Pure Metallic Tribalance 05. One Road to Megiddo 06. Solstice of the Succubus 07. Non Divine Dirty Dead Blood 08. The Devil's Demimonde 09. Corpse Nexus Hightime. RUNEMAGICK will also be recording their version of the BATHORY classic "The Return of Darkness and Evil", to be released on the upcoming In Conspiracy With Satan II compilation. A limited-edition LP of unreleased and live material will also be coming out through Bloodstone Entertainment. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.05.2002 news RUNEMAGICK записывают новый материал...
+
+<p>Продолжатели дела At The Gates - "RUNEMAGICK" завершили запись барабанов в Magick Sound Studio для 40-минут нового материала и в ближайшее время будут накладывать партии гитар. Релиз выйдет в конце лета в виде CD с ограниченным тиражом. Трек-лист: <BR><BR> 01. Revolution Of The Dead<BR> 02. Grand Sabbath Pact<BR> 03. Dark Deeds Of Temptation<BR> 04. Upon The Red Thrones<BR> 05. The Necro Ambassador<BR><BR> Также "RUNEMAGICK" арендовали время в Гетенбергской Los Angered Recording (принадлежащей гитаристу KING DIAMOND - Andy LaRocque) в ноябре для записи полноформатного альбома. Планируемая дата выхода которого - март 2003.</p>
+
+Автор: Yermola
+
+### 23.05.2002 news RUNEMAGICK Record New Material.....
+
+<p>Sweden's RUNEMAGICK have finished tracking the drums for 40 minutes' worth of new material at Magick Sound Studio and will shortly commence laying down guitars for what may or may not be issued as a special limited-edition CD after the summer. Among the tracks currently being recorded are the following: <BR><BR> 01. Revolution Of The Dead<BR> 02. Grand Sabbath Pact<BR> 03. Dark Deeds Of Temptation<BR> 04. Upon The Red Thrones<BR> 05. The Necro Ambassador<BR><BR> In other news, RUNEMAGICK have booked time at Gothenburg, Sweden's Los Angered Recording (owned by KING DIAMOND guitarist Andy LaRocque) during November for the recording of their next "real" album. A March 2003 release is expected.</p>
+
+Автор: Yermola
+
+### 25.08.2002 news Runemagick new album
+
+<p><IMG SRC="/images/news/2002.08/3068.jpg" ALT="pho" width=200 height=181 hspace="15" vspace="5" border="1" align="left">New albums of death-metallers Runemagick is only for fans and followers. "Moon Of the Chaos Eclipse" is limited 1000 copies on CD and 300 copies on a great picture vinyl 10''. 4th album of this band had good estimations from media.</p>
+
+Автор: Vit Belov
+
+### 04.10.2002 news Мрачная dark death компиляция
+
+<p>Шведская группа RUNEMAGICK готовит к выпуску компиляцию своих ранних и нереализованных вещей "Death Magick". В альбом войдут следующие вещи:</p>
+<p> 01. Intro - Darkness Death and Doom <BR> 02. Death Magick (unreleased version) <BR> 03. Eternal Dark (new song) <BR> 04. Malediction of Mankind (recorded during the Requiem... session) <BR> 05. Stair to the Void of Escape (recorded during the Requiem... session) <BR> 06. Temple of Skin (remixed!) <BR> 07. Grand Sabbath Pact (remixed!) <BR> 08. Piece of Magick (taken from Moon Of The Chaos Eclipse 10" vinyl version) <BR> 09. The Return of Darkness and Evil (BATHORY cover) <BR> 10. Funeral Caravan (demo version taken from Sepulchral Realms Demo-CDR)<BR> 11. Death Magick (demo version taken from Sepulchral Realms Demo-CDR) <BR> 12. Mlbeg (demo version taken from Sepulchral Realms Demo-CDR) <BR> 13. In the Grip of Pagan Fire (taken from old unreleased demo) <BR> 14. Outro - Funeral Departure (taken from old unreleased demo, later released on Ancient Incantations 7" EP)</p>
+<p> В ноябре, группа начнет работу над новым пятым альбомом, выход которого планируется на март 2003 года.</p>
+
+Автор: Dimas
+
+### 21.11.2003 news Runemagick начали запись альбома
+
+<P><B>RUNEMAGICK</B> начали запись нового альбома "<B>Darkness Death Doom</B>", который выйдет на <B>Aftermath Music</B> в апреле.</P>
+Автор: Vit Belov
+
+### 21.11.2003 news Runemagick began to record new album
+
+<P><B>Runemagick</B> starts this week to record their upcoming album "<B>Darkness Death Doom</B>", to be released in the spring of 2004 on <B>Aftermath Music</B>!</P>
+Автор: Vit Belov
+
+### 06.01.2004 news RUNEMAGICK закончили работу над новым альбомом.
+
+<P><B>"On Funeral Wings"</B> выйдет весной на&nbsp;<B>Aftermath Music</B>. Трэк-лист такой:</P>
+<P>01. <B>Monolithic Death</B> <BR>02. <B>Rise of the 2nd Moon</B> <BR>03. <B>On Funeral Wings</B> <BR>04. <B>Dragon of Doom</B> <BR>05. <B>Hyperion</B> <BR>06. <B>Ocean Demon</B> <BR>07. <B>Emperor of the Underworld</B> <BR>08. <B>Trifid Nebula</B> <BR>09. <B>The Doomsday Scythe</B> <BR>10. <B>Riders of Endtime</B> <BR>11. <B>In a Darkened Tomb</B> <BR>12. <B>Black Star Abyss</B> <BR>13. <B>Wizard with the Magick Runes</B> <BR><BR>Total playing time: 73:52<BR><BR></P>
+Автор: Uneral
+
+### 10.01.2004 news Новые песни RUNEMAGICK выложены в сети
+
+<P align="right">Выложены песни <B>RUNEMAGICK</B> с выходящего&nbsp;25&nbsp;февраля&nbsp;альбома <B>"On Funeral Wings"</B> (обложка <A target=_blank href="http://www.runemagick.se/img/disc_ofw_booklet400.jpg">здесь</A>):</P>
+<P>01. <B>On Funeral Wings</B> (<A target=_blank href="http://www.varulv.com/temp/Runemagick_-_On_Funeral_Wings_3MINCLIP.mp3"><U>mp3</U></A>)<BR>02. <B>Dragon of Doom</B> (<A target=_blank href="http://www.varulv.com/temp/Runemagick_-_Dragon_of_Doom_3MINCLIP.mp3"><U>mp3</U></A>)<BR>03. <B>Emperor of the Underworld</B> (<A target=_blank href="http://www.varulv.com/temp/Runemagick_-_Emperor_of_the_Underworld_3MINCLIP.mp3"><U>mp3</U></A>)</P>
+Автор: Uneral
+
+
 ## Обсуждения
 
 

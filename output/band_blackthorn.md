@@ -51,6 +51,148 @@ Female moscow dramatic-metal band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.01.2009 news BLACKTHORN закончили работу
+
+<P><IMG height=393 alt="" hspace=0 src="/images/news_rus/2009.01/13364.jpg" width=400 align=right border=5>Работа над дебютным альбомом московской dramatic female symphonic metal группы <STRONG>BLACKTHORN "Gossamer Witchcraft"</STRONG>, наконец, полностью завершена! В настоящее время группа находится в поиске издающего лейбла, а пока Вашему вниманию представляются 2 новых трека - "<STRONG>Edenbest</STRONG>" и "<STRONG>Saturnia</STRONG>", которые можно прослушать на сообществе группы на vkontakte, странице на myspace и официальном сайте. Альбом записан на студиях <STRONG>EM-Sound</STRONG> и <STRONG>Зверинец</STRONG>, сведение и мастеринг произведены на студии <STRONG>KIV Records</STRONG> звукорежиссёром <STRONG>Игорем Королёвым</STRONG> в начале 2009 года. Дизайн обложки выполнен <STRONG>Kron NeChrist</STRONG>. Также записана русскоязычная версия альбома. Трэк-лист:</P>
+<P>1.<STRONG> Immortelle for the hollow grave</STRONG> <BR>2. <STRONG>Edenbeast <BR></STRONG>3. <STRONG>Necromance </STRONG><BR>4. <STRONG>The Moon Emerged from behind clouds</STRONG> <BR>5. <STRONG>Saturnia <BR></STRONG>6. <STRONG>Blackthorn Winter</STRONG> <BR>7. <STRONG>The Blackness I prowl</STRONG> <BR>8. <STRONG>Gossamer Witchcraft</STRONG> <BR>9. <STRONG>Will-o’- the – wisp <BR></STRONG>10. <STRONG>The cobweb veils fall down with grace</STRONG></P>
+<P><A href="http://vkontakte.ru/club73087">http://vkontakte.ru/club73087</A><BR><A href="http://blackthornian.com/">http://blackthornian.com</A> <BR><A href="http://www.myspace.com/blackthornian">http://www.myspace.com/blackthornian</A></P>
+Автор: Vit Belov
+
+### 09.05.2009 news BLACKTHORN на Musica Production
+
+<P>Начало мая в московской symphonic metal группе<STRONG> BLACKTHORN</STRONG> ознаменовалось ответами на несколько животрепещущих вопросов. Прежде всего, группа рады сообщить всем, что после кропотливого отбора претенденток новой бас-гитаристкой стала <STRONG>Greta the Adust Anomic Suicide</STRONG>. В новом составе группа<STRONG> BLACKTHORN</STRONG> подписала контракт с московским лейблом<STRONG> MUSICA Production</STRONG> на выпуск дебютного русскоязычного альбома "<STRONG>Аранеум</STRONG>", и это вторая приятная новость!</P>
+<P><A href="http://vkontakte.ru/club73087">http://vkontakte.ru/club73087</A><BR>myspace.com/blackthornian</P>
+Автор: Vit Belov
+
+### 26.12.2009 news Новогодние подарки от MUSICA Production
+
+<P><SPAN class=tit1>MUSICA PRODUCTION представляет</SPAN></P>
+<P><SPAN class=tit2>Новогодние подарки для всех любителей мелодичного метала</SPAN></P>
+<P><SPAN class=tit3><SPAN class=tit1><IMG height=295 alt="" hspace=0 src="/images/news_rus/2009.12/15860.jpg" width=300 align=right border=5></SPAN>Два новейших релиза </SPAN></P>
+<P><STRONG>MP038 BLACKTHORN "Аранеум</STRONG>"</P>
+<P>-sympho-gothic-metal; Великолепный дебют для всех любителей gothic-metal с женским вокалом. Группа, состоящая из одних (!!!!) девушек представляет незабываемый материал. Симфонические аранжировки и мрачная атмосфера, чарующий голос и мистическая русскоязычная лирика. Запись <STRONG>EM-Sound</STRONG> и <STRONG>Зверинец</STRONG>. При участии <STRONG>Алексея Арзамазова (SHADOW HOST)</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Где под вуалью тонких паутин в бессмертниках стоит твоя гробница</STRONG><BR>2. <STRONG>Одем<BR></STRONG>3. <STRONG>Некроманс</STRONG><BR>4. <STRONG>Чары Безумной Луны</STRONG><BR>5. <STRONG>Сатурния</STRONG><BR>6. <STRONG>Терновая Зима<BR></STRONG>7. <STRONG>Таящийся во тьме<BR></STRONG>8. <STRONG>Аранеум<BR></STRONG>9. <STRONG>Блуждающий Огонь</STRONG><BR>10. <STRONG>И тишь падёт на лес как саван белоснежный</STRONG></P>
+<P>MySpace: <A href="http://myspace.com/blackthornian">http://myspace.com/blackthornian</A></P>
+<P><STRONG><IMG height=293 alt="" hspace=0 src="/images/news_rus/2009.12/15861.jpg" width=300 align=left border=5>MP039 ТРОЯ "Воздушные Замки"</STRONG></P>
+<P>-power-metal; Второй альбом отечественной группы<STRONG> ТРОЯ,</STRONG> который заявляет о своих претензиях&nbsp;на лидерство в "трудном" жанре русскоязычного heavy-power-metal. Зажигательные мелодии, отличная вокальная работа и разнообразные материал. Настоящий подарок для всех любителей подобной музыки. Запись <STRONG>KIV Records</STRONG>. При участии <STRONG>Алексея Тышкевича</STRONG> и <STRONG>Андрея Малиновского</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Серые Дни</STRONG><BR>2. <STRONG>Герой интернета</STRONG><BR>3. <STRONG>Воздушные замки</STRONG><BR>4. <STRONG>Формула счастья</STRONG><BR>5. <STRONG>Осень </STRONG>(инструментал)<BR>6. <STRONG>Позиция один</STRONG><BR>7. <STRONG>Крылья собственной веры</STRONG><BR>8. <STRONG>Умчаться вдаль<BR></STRONG>9. <STRONG>Где-то...</STRONG><BR>10. <STRONG>Брошенный рай</STRONG><BR>11. <STRONG>Поля у Атенрай</STRONG></P>
+<P>MySpace: <A href="http://myspace.com/troyrus">http://myspace.com/troyrus</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru">http://mp.musica.mustdie.ru</A></P>
+<P>Все наши диски, а так же диски нашей дистрибьюции всегда без проблем можно приобрести в нашем Интренет-магазине: <A href="/ru/shop/">http://musica.mustdie.ru/ru/shop/</A></P>
+Автор: Vit Belov
+
+### 05.10.2010 news BLACKTHORN работают над материалом
+
+<P><IMG height=201 alt="" hspace=0 src="/images/news_rus/2010.10/17344.jpg" width=300 align=right border=5>Московская женская симфоник-метал группа <STRONG>BLACKTHORN</STRONG>, не так давно засветившаяся своим дебютным альбомом в двух версиях - «<STRONG>Аранеум</STRONG>» (на русском языке) и «<STRONG>Gossamer Witchcraft</STRONG>» (на английском), спешит порадовать своих поклонников свежими новостями. На данный момент группа активно работает над записью своего второго полноформатного альбома! Работа ведется на home-studio Эльвиры <STRONG>Alchemida</STRONG> и в студии <STRONG>Kiv-records</STRONG>, где сводился первый альбом.&nbsp;</P>
+<P>Также в <STRONG>BLACKTHORN</STRONG> произошло пополнение «тернового семейства» в лице скрипачки <STRONG>Less</STRONG>. Эти изменения - шаг на пути к более оркестровому и экспрессивному звучанию, которое можно будет оценить после выпуска альбома.</P>
+Автор: Vit Belov
+
+### 04.03.2011 news Девушки зажигают!
+
+<P>Совсем скоро, накануне 8 марта состоится российский тур<STRONG> Metal Valkyries</STRONG> в рамках которого нашу страну посетят шведские металлистки - <STRONG>Hysterica</STRONG> (heavy metal) и <STRONG>Frantic Amber</STRONG> (melodic death metal). Апогеем этого тура станет<STRONG> фестиваль Железные Девы</STRONG>, который уже в пятый раз пройдёт в Калуге. Россию на этом фестивале представят группы <STRONG>Вольная Стая</STRONG> (heavy metal),<STRONG> Blackthorn</STRONG> (sympho metal) и <STRONG>Little Black Dress</STRONG> (gothic metalcore). Примечательно, в составах всех пяти групп, принимающих участие в фестивале, метал нарезают очаровательные девушки, ни одного мужчины!</P>
+<P>Не пропустите этот уникальный металлический праздник металла с женским лицом!</P>
+<P>5 марта - Рязань, клуб Hollywood<BR>6 марта - Тула, ДК Машзавода<BR>7 марта - Калуга, ОМЦ, Фестиваль Железные Девы-5<BR>8 марта - Москва, клуб Каста</P>
+<P><STRONG><A href="http://rockaluga.ru/2011/afisha/7-03-kaluga-zheleznyie-devyi-2/">http://rockaluga.ru/2011/afisha/7-03-kaluga-zheleznyie-devyi-2/</A></STRONG></P>
+<P>&nbsp;</P>
+<P>
+<CENTER><IMG height=381 src="/images/news_rus/2011.03/18788.jpg" width=604 border=0><IMG height=285 src="/images/news_rus/2011.03/18787.jpg" width=604 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.07.2011 news BLACKTHORN заканчивают альбом
+
+<P>Московская all-female symphonic metal группа <STRONG>BLACKTHORN</STRONG> завершает работу над своим вторым альбомом, который находится на стадии сведения в студии <STRONG>KIV-Records</STRONG>. Группа обещает более экстремальное звучание по сравнению с дебютником "<STRONG>Аранеум</STRONG>", вышедшем в 2009-м году на <STRONG>Musica Production</STRONG>. </P>
+<P>Также, 13 августа <STRONG>BLACKTHORN</STRONG> выступят на международном фестивале <STRONG>Metal Crowd 2011</STRONG>, который пройдёт в белорусском городе Речица.</P>
+<P><center><IMG height=428 src="/images/news_rus/2011.07/19901.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 05.07.2011 news BLACTHORN are finishing recording
+
+<P>Moscow's all-female dramatic symphonic metal band <STRONG>BLACKTHORN</STRONG> have finished work on their as yet untitled second album, which is currently in the mixing stage at <STRONG>Studio KIV Records</STRONG>. </P>
+<P>The band promises their new album will be more extreme and symphonic sounding, compared with their debut, <STRONG>"Araneum"</STRONG>, released in 2009 via <STRONG>MUSICA Production</STRONG>. </P>
+<P>In live news, <STRONG>BLACKTHORN</STRONG> will take the stage at the <STRONG>Metal Crowd Festival</STRONG> on August 13th in the Belarussian town of Rechitsa. </P>
+<P><center><IMG height=428 src="/images/news/2011.07/19902.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 27.10.2011 news Второй альбом BLACKTHORN
+
+<P>Московская женская symphonic metal группа <STRONG>BLACKTHORN</STRONG> завершила работу над своим вторым полноформатным альбомом под названием "<STRONG>Codex Archaos</STRONG>"! Cведение и мастеринг были сделаны <STRONG>Игорем Королёвым</STRONG> в студии "<STRONG>KIV Records</STRONG>", а концептуальное оформление для диска разработал<STRONG> W. Smerdulak</STRONG>. Российский релиз нового CD состоится зимой 2011 года на лейбле "<STRONG>MSR Productions</STRONG>". Кроме этого, группа представляет Вашему вниманию одну из новых композиций "<STRONG>Vehemence Came As Anodyne</STRONG>".</P>
+<P>Трек-лист:</P>
+<P>1.<STRONG> Divination in Blood<BR></STRONG>2. <STRONG>Vehemence Came As Anodyne</STRONG><BR>3. <STRONG>Nemesis Incarnation<BR></STRONG>4. <STRONG>Gorgon the Ascendant</STRONG><BR>5. <STRONG>Emptysis Kiss<BR></STRONG>6. <STRONG>Arria Marcella<BR></STRONG>7. <STRONG>Posthumous Passion Ephemera</STRONG><BR>8. <STRONG>Dismalediction and the Remedy<BR></STRONG>9. <STRONG>Серебряный ключ<BR></STRONG>10. <STRONG>Hexshadow Turned to Flesh<BR></STRONG>11. <STRONG>Bestial Satan of Grotesque Beauty</STRONG><BR>12. <STRONG>The Fading Ceremony</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F25920925"><PARAM NAME="allowscriptaccess" VALUE="always">
+   <embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F25920925" type="application/x-shockwave-flash" width="100%"></embed> </OBJECT></CENTER>
+Автор: Vit Belov
+
+### 21.12.2011 news Новые релизы от MSR Productions!!!
+
+<P>Под занавес уходящего 2011-го года <STRONG>MSR Productions</STRONG> приготовило всем любителям металлической музыки подарок в виде трёх релизов от групп: <STRONG>BLACKTHORN, SINFUL</STRONG> и <STRONG>ARMAGA</STRONG>! </P>
+<P><STRONG><IMG height=250 alt="" hspace=0 src="/images/news_rus/2011.12/22366.jpg" width=250 align=right border=0>BLACKTHORN "Codex Archaos"</STRONG></P>
+<P>Наполненный уверенными яростными мелодиями, монументальными хорами и переливами рояля, пронзающий динамичными оркестровками и стеной плотного гитарного звука, слившегося воедино с артиллерией ритм-секции, новый альбом Blackthorn “<STRONG>Codex Archaos</STRONG>” - симфоническое погружение в темный водоворот хаоса, скрывающий в своих глубинах истинный свет. Студийная работа:<STRONG> Magna Opera Studio</STRONG> и <STRONG>KIV Records</STRONG>. Концептуальное оформление для диска разработал <STRONG>W.Smerdulak</STRONG>.</P>
+<P>Трек-лист:<BR>1. <STRONG>Divination in Blood</STRONG> <BR>2. <STRONG>Vehemence Came As Anodyne</STRONG><BR>3. <STRONG>Nemesis Incarnation</STRONG><BR>4. <STRONG>Gorgon the Ascendant</STRONG><BR>5. <STRONG>Emptysis Kiss<BR></STRONG>6. <STRONG>Arria Marcella</STRONG><BR>7. <STRONG>Posthumous Passion Ephemera</STRONG><BR>8. <STRONG>Dismalediction and the Remedy</STRONG><BR>9. <STRONG>Серебряный ключ</STRONG><BR>10. <STRONG>Hexshadow Turned to Flesh</STRONG><BR>11. <STRONG>Bestial Satan of Grotesque Beauty</STRONG><BR>12. <STRONG>The Fading Ceremony</STRONG></P>
+<P><A href="http://vkontakte.ru/blackthorn_metal">http://vkontakte.ru/blackthorn_metal</A><BR><A href="http://www.myspace.com/blackthornian">http://www.myspace.com/blackthornian</A><BR><A href="http://www.facebook.com/BlackthornMetal">http://www.facebook.com/BlackthornMetal</A></P>
+<P><STRONG><IMG height=252 alt="" hspace=0 src="/images/news_rus/2011.12/22367.jpg" width=250 align=right border=0>SINFUL “The XIII-th Apostle”</STRONG> (English version)</P>
+<P>"<STRONG>XIII Апостол</STRONG>" открыл новую главу в истории развития<STRONG> SINFUL</STRONG>. Стилистически это творение трудно отнести к какому-либо определённому жанру. Его музыка на всём протяжении будет то погружать слушателя в леденящую атмосферу бескрайней бездны, то поднимать на высоты вселенского могущества и триумфа! Лирика, оформление и музыкальный материал пронизаны единой концепцией, основанной на древней гипотезе о существовании тринадцатого апостола... Вся работа: запись, сведение и мастеринг - была сделана в самой знаменитой польской студии <STRONG>"Hertz" (Vader, Decapitated, Hate)</STRONG>. Барабанные партии записал <STRONG>Pawel "Paul" Jaroszewicz</STRONG> - ударник <STRONG>Vader </STRONG>и <STRONG>Crionics</STRONG>. Оформлением CD занимался один из лучший российских художников <STRONG>W.Smerdulak</STRONG>.</P>
+<P>Трэк-лист: <BR>I. <STRONG>At the Crossways</STRONG><BR>II. <STRONG>The XIII-th Apostle</STRONG><BR>III. <STRONG>God’s Experiment<BR></STRONG>IV.<STRONG> Delusion<BR></STRONG>V. <STRONG>The child of Chaos</STRONG><BR>VI. <STRONG>Forbidden Fruit</STRONG><BR>VII. <STRONG>Extremum<BR></STRONG>VIII. <STRONG>Theomancy</STRONG></P>
+<P><A href="http://www.sinful.ru/">www.sinful.ru</A><BR><A href="http://www.vkontakte.ru/sinfulblack">www.vkontakte.ru/sinfulblack</A><BR><A href="http://www.facebook.com/sinfulblack">www.facebook.com/sinfulblack</A><BR><A href="http://www.myspace.com/sinfulblack">www.myspace.com/sinfulblack</A></P>
+<P><STRONG><IMG height=375 alt="" hspace=0 src="/images/news_rus/2011.12/22368.jpg" width=250 align=right border=0>ARMAGA "Walpurgis Night"</STRONG> (DVD)</P>
+<P>Московская группа <STRONG>ARMAGA </STRONG>уже запомнилась на российской метал-сцене своими низкими тяжёлыми рифами, загадочностью и брутальностью своего звучания! Первый долгожданный концертный DVD "<STRONG>Walpurgis Night</STRONG>" позволит вам воочию ощутить всю ту мощь и энергетику, которые присущи каждому живому выступлению группы.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Overgrown Gates</STRONG><BR>2. <STRONG>Heartless<BR></STRONG>3. <STRONG>Cave<BR></STRONG>4. <STRONG>Fear Is Near<BR></STRONG>5. <STRONG>Dark Waltz</STRONG><BR>6. <STRONG>One Ghost's Story</STRONG><BR>7. <STRONG>Phantom<BR></STRONG>8. <STRONG>Cryptic Mirror</STRONG><BR>9. <STRONG>Last Exile</STRONG><BR>10. <STRONG>Shadows<BR></STRONG>11. <STRONG>Time Has Gone</STRONG><BR>+ bonus material "Backstage"</P>
+<P><A href="http://www.armaga.ru/">www.armaga.ru</A><BR>vkontakte.ru/armaga<BR><A href="http://www.facebook.com/group.php?v=info&ref=mf&gid=59530129744">www.facebook.com/group.php?v=info&ref=mf&gid=59530129744</A><BR><A href="http://www.myspace.com/armagaband">www.myspace.com/armagaband</A></P>
+<P>Интернет-магазин <STRONG>MSR Productions</STRONG> (Атрибутика, CD, DVD): <A href="http://msrprod.ru/merchandise/">http://msrprod.ru/merchandise/</A></P>
+Автор: Vit Belov
+
+### 30.01.2012 reviews Оперетта о вампирах
+
+<P>Московская группа BLACKTHORN была отмечена слушателем уже после выхода дебютной работы «Аранеум», ведь коллективов, играющих тяжёлый метал, при этом состоя исключительно из особ слабого пола, в нашей стране совсем не много. Интересно, что BLACKTHORN, представляя материал, приближённый по звучанию к gothic-metal, всё-таки ориентируются на мрак и оккультизм симфонического black-metal.</P>
+<P>В принципе, если бы певица Aina чаще использовала гроул и скрим, музыка BLACKTHORN носила бы название black-metal. Новая работа группы “Codex Archaos” лишь убеждает слушателя в этом. Коллективу идеально удалось скомпоновать «вампирско-готический» настрой CRADLE OF FILTH с глубоким и интересным голосом вокалистки. Теперь у слушателя не остаётся сомнений, что перед ним работа, которая заслуживает несомненного внимания, как представитель оригинального течения в современной тяжёлой музыке. Конечно же, творчество BLACKTHORN носит скорее театральный нежели серьёзно-агрессивный характер, но от этого оно не становится менее привлекательным.</P>
+<P>Красивый подарок всем ценителям мрачной артистической тяжёлой музыки. Оформление в стиле digi-book лишь подтверждает эту мысль. Если вам не хочется злобы и мизантропии, и вам нравятся современные фильмы про вампиров, этот диск для вас.</P>
+Автор: Vit Belov
+
+### 08.01.2016 reviews Редкий пример музыкально успешной отечественной группы
+
+<P>Очень редко, когда выпадает возможность сказать, что отечественный коллектив сумел создать что-то новое в популярном метале. Популярный метал, вообще, среди российских авторов не в чести. Нашим композиторам не дают покоя лавры первооткрывателей, эдаких нанотехнологов от тяжёлой музыки. Вот и создают они опусы для личного пользования, а «исторический шанс» отечественного метала, кажется, окончательно потерян. Низкие тиражи, отсутствие внятной дистрибуции, самостоятельная оплата тиражей на «лэйблах» - всё это суровые будни отечественной тяжёлой музыки. Но всё-таки не бывает правил без исключений. В конце прошлого года вышел новый альбом московской группы BLACKTHORN, который окончательно выводит коллектив в высшую лигу нашей тяжёлой музыки.</P>
+<P>Естественно чем-то новым является вовсе не то, что BLACKTHORN в данный момент состоят только из девушек. И не то, что вокалистка Aina не только поёт, но и «скримит», при этом жёсткий голос настолько хорош, что его сложно отличить от мужского. Дело в том, что само строение музыки очень оригинально. Перед нами настоящий sympho black metal с хором и соответствующими аранжировками, но исполненный большей частью чистым женским голосом. При этом композиция на «Witch Cult Ternion” очень интересна, и где-то даже прогрессивна. Альбом кажется очень мелодичным, но в то же время он очень тяжёл, и это понимаешь после нескольких прослушиваний. </P>
+<P>Любителям женского вокала BLACKTHORN к обязательному приобретению. Альбом очень удачен во всех смыслах, высочайшие рекомендации.</P>
+Автор: Vit Belov
+
+### 18.02.2016 articles Aina (BLACKTHORN): &quot;Мы старались сделать альбом особенным&quot;
+
+<P><EM><IMG border=1 hspace=0 alt="" align=right src="/images/articles_rus/2016.02/28843.jpg" width=450 height=333>Российская «женская» группа BLACKTHORN выпустила третий альбом «Witch Cult Ternion” в конце прошлого года. Коллективу удалось создать нечто особенное. Мы связались с вокалисткой Aina и задали несколько вопросов.</EM></P>
+<P><STRONG>В конце прошедшего года твоя группа Blackthorn выпустила третий по счёту полноформатный альбом. Что изменилось в вашем творчестве? Как ты можешь охарактеризовать текущий момент в истории группы?</STRONG></P>
+<P>Я бы сказала, что наше творчество совершенно точно стало более гармоничным. Думаю, вызвано это в первую очередь тем, что мы сами теперь чувствуем себя в своей музыке гораздо увереннее, чем прежде. "Witch Cult Ternion', на мой взгляд, наиболее точно отображает идеологию нашей группы, а его звучание уже вполне можно назвать фирменным звучанием Blackthorn, которое выделяет нас среди многих других коллективов. Текущий момент в истории группы считаю очень волнительным и позитивным. Недавно состоялась презентация нашего нового альбома, и с этого момента мы все чувствуем какой-то невероятный прилив сил. Для меня это был больше ритуал, нежели концерт в привычном понимании этого слова. Теперь альбом постепенно расходится по всему миру, получает положительные рецензии, привлекает в наши ряды новых слушателей... И я верю, что это только начало. "Witch Cult Ternion" способен на большее!</P>
+<P><STRONG>Действительно, альбом получился очень удачным. Blackthorn предлагают слушателю особенный материал. Как бы ты сама описала ваше творчество? Это блэк? Готика? Какой-то новый стиль?</STRONG></P>
+<P>Мы правда очень старались сделать альбом особенным, выделяющимся на фоне других современных релизов. Мне очень сложно описать наше творчество одним словом, тем более, что ни блэком, ни готикой в чистом виде нашу музыку назвать нельзя. Понимаю, что людям нужна конкретика, особенно, если они слышат о группе впервые. Поэтому я терпимо отношусь к любым вменяемым характеристикам. Верно будет сказать, что музыка, которую мы играем - это экстремальный симфонический метал. Создать новый стиль в метале было бы классно, но, если честно, это не является нашей главной целью.</P>
+<P><STRONG><IMG border=1 hspace=0 alt="" align=left src="/images/articles_rus/2016.02/28844.jpg" width=450 height=678>Звук получился "фирменным". Все эти симфонизмы... Где вы записывали альбом? Как проходил этот процесс?</STRONG></P>
+<P>Запись альбома проходила в студии MAGNA OPERA, владелицей которой является наша гитаристка Эльвира. Сессии вне этой студии проводились на базе Soundchek, чьими постоянными клиентами мы являемся уже в течение нескольких лет. При создании нашего нового альбома мы вновь обратились к хору Московской Консерватории "Silver Voice", а также не забыли о полюбившемся нам еще со времен записи CODEX ARCHAOS рояле. Я присутствовала во время записи этого инструмента, и уже тогда было понятно, что это чертовски хорошая идея. На мой взгляд, живой рояль придает композициям глубину и создает особенную атмосферу. Своеобразным экспериментом стало наше сотрудничество со струнным квартетом Universal Music Band. Парни также помогли сделать этот альбом еще более симфоничным.</P>
+<P><STRONG>Расскажи о лирике. Что за мрачные темы, о которых вы поёте?</STRONG></P>
+<P>Основная тематика нашей лирики - это колдовство, искусство ведьм. Многие считают, что мы избрали такую тему, подражая другим более известным коллективам нашего жанра. Разубедить людей будет сложно, как ни крути - а тема эта очень популярная! И все же, я думаю, данная тематика сама нас нашла и гармонично воплотилась в нашей идеологии и сценическом стиле. Наши тексты - это, конечно же, фантастические образы (я считаю, в творчестве обязательно должно быть место фантазии), но если копнуть глубже -&nbsp; это, прежде всего, путешествие на темную и таинственную сторону женской сущности. Сторона эта абсолютно реальна и есть в каждой представительнице прекрасного пола, кто бы что ни говорил.</P>
+<P><STRONG>А в чём эта тёмная сторона женской сущности проявляется?</STRONG></P>
+<P>Спектр проявления этой стороны велик. От обольстительницы, разбивающей сердца,&nbsp; до женщины-серийной убийцы, которая, как это уже доказано криминалистами, будет убивать с большей изощренностью, нежели мужчина. Наверное, все зависит от того, насколько глубоко тот или иной человек погрузился в эту темную и малоизученную область и какой выбор он сделал для себя.</P>
+<P><STRONG>Большую известность для Blackthorn приносит факт, что группа состоит из одних девушек. Насколько тяжело было собрать женский состав, и как ты относишься к тому, что многие только на это и обращают внимание?</STRONG></P>
+<P>В принципе, собрать девушек-музыкантов в один коллектив вполне реально. Нам было немного сложнее, потому что мы также уделяли огромное внимание уровню исполнительства потенциальной одногруппницы, ее характеру, ее личностным качествам.&nbsp; Ну, и конечно найти достойную барабанщицу - это отдельная история... На поиски может уйти очень много времени. Пускай люди обращают внимание прежде всего на наш образ. Лично для меня не так уж и важно, чем мы привлекаем, гораздо важнее то, чем мы удерживаем, и подозреваю, что дело тут не только в гендерной принадлежности, на которой в наш пресыщенный век уже в принципе далеко не уедешь.</P>
+<P><STRONG>Вы ездите в туры, в том числе и в зарубежные страны. Возникают ли какие-то проблемы, связанные с вашим полом, ведь в турах, прямо скажем, не устроишься с удобствами?</STRONG></P>
+<P>Думаю, путешествие из города в город, а иногда и из страны в страну, в принципе предполагает временный отказ от комфортных бытовых условий. Иногда условия не то что не очень - они, прямо скажем, экстремальные. И это уже сама по себе проблема для всех участников тура, это не нравится не только нам. Но мы все берем себя в руки и, утешаясь мыслями, что это не навсегда, как-то приспосабливаемся к ситуации. Если концерты в турах проходят успешно, то, конечно же, это с лихвой компенсирует все бытовые недостатки.</P>
+<P><STRONG>Как, вообще, проходили концерты не в России? Какие-то ближайшие планы?</STRONG></P>
+<P>По-разному. Где-то публика на концерте стояла на ушах, где-то была более сдержанной... Нам показалось, что, больше всего из всех тех стран, которые мы посетили, отрываются Польша и Словакия. Планы у нас, конечно же, есть, но мы крайне редко о них говорим. Что о них говорить - их надо претворять в жизнь! Конечно, основной упор сейчас будет идти на продвижение нашего нового релиза.</P>
+<P><STRONG>Россия считается не самой "метальной" страной. Как ты считаешь, существует ли особое восприятие тяжёлой музыки из России как за рубежом, так и непосредственно здесь? Стали ли больше любить отечественные группы здесь?</STRONG></P>
+<P>Для иностранцев мы сами по себе люди необычные, те самые "загадочные русские души", а наши метал-группы - вещь малоизученная. Многие мои знакомые "оттуда" считают, что на всю Россию примерно 5-10 метал формаций. Наверное, когда иностранный слушатель узнает о новой русской метал-команде, он чувствует себя кем-то вроде первооткрывателя... И справедливо будет сказать, чаще всего высоко оценивает творчество новой для себя группы. Что уж говорить - большинство современных метал-коллективов России стали делать качественную музыку! Восприятие русского металла в России, на мой взгляд, особым по-прежнему делают великие критики и глупые стереотипы. Грустно, когда наши соотечественники ставят крест на группе, даже не ознакомившись с ее творчеством, потому что "это же русская группа, значит однозначно фигня, я русский металл принципиально не слушаю". И таким образом проходят мимо огромного количества шикарных релизов. И все же замечу, что, к счастью, все больше и больше людей начинают понимать, что метал в нашей стране тоже умеют ковать, и год от года, кстати, все лучше и лучше. Так что тенденция однозначно положительная.</P>
+<P><STRONG><IMG border=1 hspace=0 alt="" align=right src="/images/articles_rus/2016.02/28845.jpg" width=450 height=300>Всё-таки продажи носителей говорят об обратном. Отечественная музыка практически полностью перестала продаваться на CD. А вы много рассчитываете продать вашего CD? Или это уже больше сувениры?</STRONG></P>
+<P>Осознание того факта, что у нас тоже умеют делать качественный метал, не особо влияет на продажи музыки на CD. Пожалуй, не особо влияет это и на посещаемость концертов. Сейчас вся жизнь кипит в интернете - и именно по отзывам наших соотечественников можно заметить повышение интереса к российской тяжелой музыке. Мы не рассчитываем, мы уже довольно неплохо продаем наш альбом на CD. По России продажи немного ниже, чем за границей, но не намного. Цифровой релиз тоже покупают весьма охотно, почти так же, как и физический. Конечно, пока альбом "свеж", продажи всегда выше, по крайней мере, у группы нашего уровня.</P>
+<P><STRONG>А что скажешь о нелегальном скачивании? Этот аспект тебя беспокоит?</STRONG></P>
+<P>Конечно, мне бы хотелось, чтобы слушатели всегда уважали труд музыкантов и выражали свою признательность честной покупкой.&nbsp; Но, мне кажется, с реальным положением вещей ничего не поделаешь, по крайней мере пока вроде никто не придумал какой-то действительно стоящий выход из этой ситуации. А раз с этим ничего нельзя сделать - зачем беспокоиться? Так что, лично я пытаюсь даже найти в этом какие-то плюсы. Мы не группа мирового уровня, мы заинтересованы в том, чтобы о нас услышало больше людей, и тот, кто скачивает нашу музыку с какого-нибудь файлообменника в интернете, бесплатно создает рекламу нашему продукту.</P>
+Автор: Vit Belov
+
+### 01.04.2017 news BLACKTHORN выпустили клип
+
+<p>All female band <strong>BLACKTHORN</strong> представляют новый видеоклип, снятый на композицию "<strong>MOONBREED SIGIL</strong>". Трек вошел в концептуальный альбом "<strong>WITCH CULT TERNION</strong>", изданный на лейбле <strong>MSR Productions</strong> в конце 2015 года.</p><p>Диск можно приобрести в магазине <a href="http://escapemind.ru/goods/BLACKTHORN-Witch-Cult-Ternion-digi">Escapemind.ru</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/m6IcfgfeCZw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Презентация альбома BLACKTHORN &quot;АРАНЕУМ&quot;+Sinful,Arcanorum Astrum,Zymotic Symphony,Skylord

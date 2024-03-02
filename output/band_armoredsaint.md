@@ -135,6 +135,58 @@
 * C группой "Anthrax" Joey Vera (bass)
 * C группой "Seven Witches" Joey Vera (bass)
 
+## Публикации
+
+### 21.03.2001 news Святой вооружается....
+
+<p>ARMORED SAINT с вокалистом John Bush (ANTHRAX) в своих стройных рядах 11 июня выпускают CD раритетов "Nod To The Old School". Альбом выйдет в виде двойника и только в Европе (через Metal Blade Records). Трек-лист: 01. Swagger (новая песня) 02. Unstable (новая песня) 03. Day Of The Eagle (ROBIN TROWER cover) 04. Never Satisfied (JUDAS PRIEST cover) 05. March Of The Saint (новая 2001 версия) 06. Creepy Feelings (Live) 07. After Me The Flood (Live) 08. Tainted Past (акустическая версия) 09. Lesson Well Learned (EP версия) 10. False Alarm (EP версия) 11. On The Way (EP версия) 12. Stricken By Fate (from EP sessions) 13. Reign Of Fire (1989 studio demo w/ Dave Prichard) 14. People (1989 4 track demo) 15. Pirates (1989 4 track demo) 16. Midieval Nightmares (1989 4 track demo) 17. Nothing Between The Ears (1989 4 track demo) 18. Get Lost (1989 4 track demo) + CDROM files: 19. Live video (from the Whiskey 2000) 20. Live video (from the Whiskey 2000) 21. Reign Of Fire (video) 22. Last Train Home (video)</p>
+
+Автор: Yermola
+
+### 21.03.2001 news Nod To The Old School...
+
+<p>ARMORED SAINT, featuring ANTHRAX vocalist John Bush, will be issuing a CD of rarities through the European branch of Metal Blade Records on June 11th. Titled Nod To The Old School, the CD’s first edition will be a double-CD limited to 10,000 copies. When that one is sold out there will be only the normal CD-version with less tracks and video-clips. Here is the full track listing to the Europe-only, “limited” edition version of Nod To The Old School: 01. Swagger (new song) 02. Unstable (new song) 03. Day Of The Eagle (ROBIN TROWER cover) 04. Never Satisfied (JUDAS PRIEST cover) 05. March Of The Saint (new 2001 version) 06. Creepy Feelings (Live) 07. After Me The Flood (Live) 08. Tainted Past (acoustic version) 09. Lesson Well Learned (original EP version) 10. False Alarm (original EP version) 11. On The Way (original EP version) 12. Stricken By Fate (from EP sessions) 13. Reign Of Fire (1989 studio demo w/ Dave Prichard) 14. People (1989 4 track demo) 15. Pirates (1989 4 track demo) 16. Midieval Nightmares (1989 4 track demo) 17. Nothing Between The Ears (1989 4 track demo) 18. Get Lost (1989 4 track demo) CDROM files: 19. Live video (from the Whiskey 2000) 20. Live video (from the Whiskey 2000) 21. Reign Of Fire (video) 22. Last Train Home (video)</p>
+
+Автор: Yermola
+
+### 09.11.2001 reviews Незамысловатый хард-н-хэви
+
+<p>Незамысловатый хард-н-хэви. Ставка на драйв прямолинейных риффов, сильный и яркий голос Джона Буша (который, правда, тоже особо не хитрит и поет незамысловато). В целом очень качественная и ровная работа – звезд с неба "бронированные святые" не хватают, но и лицом в грязь не падают. Местами "святоши" заигрывают с чем-то модным – например, на "Day of The Eagle" на втором плане можно услышать намек на фанкующую гитару. Но это так, шутки ради. <BR> Всяческие редкости в виде концертных треков и ремиксов и новые песни 2001 года рождения призваны заставить всех купить этот альбом без продолжительных раздумий. Что было бы правильно, не будь среди этого добра несколько старых хитов, изрядно отдающих банальностью и нафталином. Хотя сыграно хорошо, прописано великолепно и отлично демонстрирует концертную мощь коллектива. К счастью, на пластинке среди 18 треков этих самых древних хитов не больше трех-четырех, так что в целом слушать можно. И даже с удовольствием.</p>
+
+Автор: Tornado
+
+### 24.10.2003 news ARMORED SAINT выпустят DVD
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2003.10/5225.jpg" width=150 align="right" border=0>На 17 ноября 2003 года на <B>Metal Blade Records</B> назначен ре-релиз легендарного <B>"A Trip Thru Red Times"</B> на DVD, на котором еще будет много-много всякого интересного.</P>
+<P>А если быть точным, то этот DVD будет содержать четыре видео, которые раньше никто не видел, также никому ранее неизвестные <B>"Reign of Fire"</B> и <B>"Last Train Home</B>, одно из последних интервью, слайд-шоу группы, записанное в 2002 году, большое количество редких фотографий и, наконец, полная дискография с трэк-листами и обложками.</P>
+<P>Бонус CD включает в себя видеозаписи живых выступлений <B>ARMORED SAINT</B> времен начала их творчества, 1984 года. Трэк-лист:</P>
+<P>DVD:<BR><BR>01. <B>Lesson Well Learned</B><BR>02. <B>March Of The Saint</B><BR>03. <B>Can U Deliver</B><BR>04. <B>Aftermath</B><BR>05. <B>Raising Fear</B><BR>06. <B>Nervous Man</B><BR>07. <B>Human Vulture</B><BR>08. <B>Chemical Euphoria</B><BR>09. <B>Stricken By Fate</B><BR>10. <B>Book Of Blood</B><BR>11. <B>Long Before I Die</B><BR><BR>Bonus Videos:<BR><BR>01. <B>Reign Of Fire</B><BR>02. <B>Last Train Home</B><BR>03. <B>Feel Me Tonight</B><BR>04. <B>Isolation</B><BR>05. <B>Madhouse</B><BR>06. <B>You're Never Alone</B><BR><BR>Также на DVD:<BR><BR>- Шесть видео, которые ранее никто не видел<BR>- Часовое интервью с музыкантами и слайд-шоу группы<BR>- Огромное количество редких фотографий<BR>- Полная дискография с трэк-листами и обложка<BR>Все это сопровождается прекрасным меню и звуком Dolby 5.1 Surround<BR><BR>Bonus CD:<BR><BR>01. <B>March Of The Saint</B><BR>02. <B>Mutiny On The World</B><BR>03. <B>Stricken By Fate</B><BR>04. <B>Seducer</B><BR>05. <B>Take A Turn</B></P>
+Автор: Darkfall
+
+### 17.12.2003 news Еще один DVD от ARMORED SAINT
+
+<P>Новый DVD, названный <B>"Armored Saint Magazine: Lessons Not Well Learned"</B>, уже готов. Релиз состоится приблизительно весной 2004 года. Создателем DVD является <B>Joey Vera</B>. Диск содержит 12 различных видео с концертных выступлений группы, даты которых варьируются от 1991 до 2002 года. Также на диск помещены съемки со студийный сессий 1990-1991 годов, времен альбома <B>"Symbol Of Salvation"</B>. Европейский релиз будет также содержать бонус-CD (концертник). Более о нем пока ничего неизвестно. Что касается DVD, то к нему уже известен плэй-лист:<BR><BR>01. <B>Pay Dirt</B><BR>02. <B>Warzone</B><BR>03. <B>The Truth Always Hurts</B><BR>04. <B>After Me, The Flood</B><BR>05. <B>Take A Turn</B><BR>06. <B>Symbol Of Salvation</B><BR>07. <B>Tainted Past</B><BR>08. <B>Creepy Feelings</B><BR>09. <B>Another Day</B><BR>10. <B>For The Sake</B><BR>11. <B>Tension</B><BR>12. <B>Tribal Dance</B></P>
+Автор: Darkfall
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 20.01.2010 news Новый альбом ARMORED SAINT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=359 alt="" hspace=0 src="/images/news_rus/2010.01/16014.jpg" width=400 align=right border=5>Новый альбом <STRONG>ARMORED SAINT</STRONG> <STRONG>"La Raza" </STRONG>выходит 16 марта на<STRONG> Metal Blade</STRONG>. Запись была произведена в <STRONG>Tranzformer Studios, </STRONG>принадлежащей <STRONG>Dave Jerdan</STRONG> (<B>ALICE IN CHAINS</B>, <B>JANE'S ADDICTION</B>), который продюсировал классическую работу коллектива <STRONG>"Symbol of Salvation". </STRONG>Продюсером же новой работы выступил басист <STRONG>Joey Vera. </STRONG>Трэк-лист:</FONT></P>
+<P>01. <B>Loose Cannon</B><BR>02. <B>Head On</B><BR>03. <B>Left Hook From Right Field</B><BR>04. <B>Get Off the Fence</B><BR>05. <B>Chilled</B><BR>06. <B>La Raza</B><BR>07. <B>Black Feet</B><BR>08. <B>Little Monkey</B><BR>09. <B>Blues</B><BR>10. <B>Bandit Country</B></P>
+<P>Новую вещь группы <STRONG>"Left Hook From Right Field" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/armoredsaint1">http://www.myspace.com/armoredsaint1</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Armored Saint 'Revelation'

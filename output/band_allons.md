@@ -18,6 +18,27 @@ Thrash-death from Almaty Kazakhstan
 * C группой "Neformat" 
 * C группой "Lead Weight" Басс гитарист
 
+## Публикации
+
+### 19.03.2004 news Второе пришествие Христа!
+
+<p><IMG SRC="http://www.mms.kz/JSsmall.jpg" width="299" height="262" hspace="15" vspace="5" border="1" align="right">
+Долгожданным новым участником группы LEAD WEIGHT согласился стать виртуоз 5 струн ... <B>JESUS Cr</B>. Не больше и не меньше. Теперь когда на команду снизошла Божья благодать, будет продолжена запись концептуального творения "ALLY". Также после серии репетиций в новом составе будет возобновлена  концертная деятельность. <br><br>
+
+Послужной список <B>JESUS'a</B> (в качестве мастермайнда, основого вокалиста и бассиста) включает в себя культовый трэш-дет-индастриал проект ALLONS и нынешнее участие в хард-кор / дет формации NEFORMAT.<br><br>
+
+С НАМИ БОГ!</p>
+Автор: Yermola
+
+### 25.03.2004 news The second advent of Jesus!!!!
+
+<p align="center"><IMG SRC="http://www.mms.kz/JSsmall.jpg" width="299" height="262" hspace="15" vspace="5" border="1" align="right">
+Virtuoso of 5 strings… <B>JESUS Cr</B>. became a long-awaited new participant of LEAD WEIGHT band. Now, when the band has the “God’s” blessing, recording of conceptual creation “ALLY” will be continued. Also after a series of rehearsals with a new member, the band will recommence its concert activity.<br><br>
+Service record of <B>JESUS</B> (in the role of mastermind, main vocalist and bass player) includes the cult thrash-death-industrial project <a href="http://www.allons.neformat.com/" target=_blanc>ALLONS</a> and current participation in hard-core/death formation <a href="http://www.neformat.com" target=_blanc>NEFORMAT</a>.<br><br>
+<b>GOD BLESS US!</b></p></font>
+Автор: Yermola
+
+
 ## Обсуждения
 
 

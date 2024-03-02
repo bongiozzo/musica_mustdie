@@ -77,6 +77,52 @@ Featuring Steve Perry, Michael Lee Firkins, Matt and Gregg Bissonette, Steve Hun
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.02.2001 news TRIBUTE TO JASON BECKER
+
+<p>Lion Music подтвердили в самое ближайшее время выход альбома трибьюта Джэйсону Бэйкеру "WARMTH IN THE WILDERNESS". На диске будут представлены его работы в составе Дэвид Ли Рот, Cacophony & solo. Участвуют: Marty Friedman, Anders Johansson, Stormwind, Carina Alfie, Phantom Blue, Torben Enevoldsen, Phi Ansari Yaan-Zek, Rolf Munkes, Alex Masi, Lars Eric Mattsson, Kelly Keeling, Mark Boals, Sultan Of Swing, Patrick Rondat, Stuart Smith, Jesse Bradman, James Byrd, Tommy Denander, Chris Sterberl, Terry Syerk, Dave Martone, Jeff Scheetz, Slav Simanic, Mike Campese, Symphony X, Neil Zaza, Stephen Ross, Goran Edman, Tony Franklin, Paul Shortino, Freak Kitchen и Lance King.</p>
+<p>Трек-лист: Black Stallion Jam, Primal Stormwind, A Little Ain't Enough, Baby's on Fire, Altitudes, Air, The Dogtown Shuffle, Tell the Truth, Hammerhead Shark, Dweller in the Cellar, Outro Jam, Desert Island, Opus Pocus, Temple of the Absurd, Higher, Sensible Shoes, Speed Metal Symphony, Images, Mandy's Throbbing Little Heart, End of the Beginning, It's Showtime, Rain, Urmila, Eleven Blue Egyptians, Drop in the Bucket, ESP, Hawking, Dang Sea of Sansara, Perpetual Burn, If You Have to Shoot.</p>
+
+Автор: Yermola
+
+### 28.02.2001 news A TRIBUTE TO JASON BECKER
+
+<p>Lion Music confirmed relise of Jason Becker tribute album "WARMTH IN THE WILDERNESS" featuring interpretations of his work in David Lee Roth, with Cacophony and solo performed by friends and musicians who have been touched and influenced by Jason's music. The album is so far set to feature Marty Friedman, Anders Johansson, Stormwind, Carina Alfie, Phantom Blue, Torben Enevoldsen, Phi Ansari Yaan-Zek, Rolf Munkes, Alex Masi, Lars Eric Mattsson, Kelly Keeling, Mark Boals, Sultan Of Swing, Patrick Rondat, Stuart Smith, Jesse Bradman, James Byrd, Tommy Denander, Chris Sterberl, Terry Syerk, Dave Martone, Jeff Scheetz, Slav Simanic, Mike Campese, Symphony X, Neil Zaza, Stephen Ross, Goran Edman, Tony Franklin, Paul Shortino, Freak Kitchen and Lance King with other players to be announced. Track list as follows: Black Stallion Jam, Primal Stormwind, A Little Ain't Enough, Baby's on Fire, Altitudes, Air, The Dogtown Shuffle, Tell the Truth, Hammerhead Shark, Dweller in the Cellar, Outro Jam, Desert Island, Opus Pocus, Temple of the Absurd, Higher, Sensible Shoes, Speed Metal Symphony, Images, Mandy's Throbbing Little Heart, End of the Beginning, It's Showtime, Rain, Urmila, Eleven Blue Egyptians, Drop in the Bucket, ESP, Hawking, Dang Sea of Sansara, Perpetual Burn, If You Have to Shoot.</p>
+
+Автор: Yermola
+
+### 15.03.2001 bios Becker, Jason
+
+<p> I have had ALS since I was almost 20 years old. I’m going on 30 now. I was a guitarist until this disease swiped that little skill (for the time being, anyway). I wrote songs and recorded four albums. But as my guitar playing dwindled, something else in my music got better. Something indefinable. Every song on this album was done during this time. They are like my kids. My mother calls them her grandsongs.</p>
+<p></p>
+<p> I believe I will be healed, but if not, so be it. Even though I have this disease I am really lucky in most ways. I am surrounded by friends and loved ones who never let me forget my inner fire, hope and faith. Many handicapped people do not have this luxury. Please do what you can to be aware of them, help them, or just give them some positive thoughts. And keep your butts out of the blue zones. Please try to feel and give only love and compassion to everyone; you will be happy. Don’t judge or hate anything; you will be unhappy."</p>
+<p></p>
+<p> "I absolutely love it!" (Steve Young, San Francisco 49ers)</p>
+<p></p>
+<p> "To call Jason a genius is an understatement. He doesn't cater to trends, target audiences, marketing gimmicks or anything like that. He plays out the emotions from his heart and makes real music that is a salute to the human spirit. Jason is a prodigy and on 'Perspective' he realizes his miraculous potential." (Marty Friedman)</p>
+<p></p>
+<p> "It is clear that on Jason Becker's 'Perspective', Jason has discovered a brilliant source of inspiration within himself. His deep soul searching has resulted in a body of music that reveals courage and insight and is deeply moving. Right on, dude." (Steve Vai)</p>
+<p></p>
+<p> "It is a triumphantly powerful and beautiful album." (Joe Satriani)</p>
+<p></p>
+<p> "Not knowing what to expect when the first track began, I heard a brilliant fresh sound with rhythmic interest and captivating melody. I really began to wonder how he made it all happen. Regardless of how, he had proven my theory, that music comes from the heart. I was very impressed." (Steve Morse)</p>
+<p></p>
+<p> "Jason Becker's enthusiasm, energy and continued drive are an inspiration to us all. These are the ingredients with which he has always created his music. This, more than anything, is the greatest message that any musician could propose. Congratulations and good luck." (David Lee Roth)</p>
+<p></p>
+<p> "Courageous: While the world marvels at Christopher Reeve's dynamic spunk, the music world offers another remarkable story of a performer who refuses to quit despite terrible odds. Critically hailed rock guitarist Jason Becker, stricken with Lou Gehrig's disease seven years ago at age 19, is coming out with an album May 27 called 'Perspective'. Using a MIDI-based studio including a keyboard, Macintosh, sequencing software and an analog recording system, Becker has created his own system for making music via computer. 'As my guitar playing dwindled, something else in my music got better,' said Becker. 'Many times in music, if you are given limitations, it expands the creativity.' Becker features an impressive array of guest performers on the record including Journey's Steve Perry." (Marilyn Beck and Stacy Jenel Smith in their syndicated column, Celebrities)</p>
+<p></p>
+<p> "Jason is one of the most unique stylists I've ever had the opportunity to work with." (Steve Perry)</p>
+<p></p>
+<p> "I was at once struck by the enormous variety in the music of Jason Becker. This is a sure sign that he is a musician of great imagination and creativity. I thoroughly enjoyed this collaboration and so did my orchestra." (Michael Morgan, Music Director, Oakland East Bay Symphony)</p>
+<p></p>
+<p> "I've admired Jason's playing for a long time. His technical skills were beyond anything I could ever do. He's impressive, yet expressive musically. His latest record is a triumph over his unfortunate circumstances. There's a very positive energy exuding from this record." (Dweezil Zappa)</p>
+<p></p>
+<p> "Jason's the only real guitar hero I know. He will always be an inspiration musically and spiritually to us all." (Craig Chaquico)</p>
+
+Автор: BeerBong
+
+
 ## Обсуждения
 
 ### JASON BECKER TRIBUTE-"WARMTH IN THE WILDERNESS"

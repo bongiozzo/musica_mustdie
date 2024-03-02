@@ -100,6 +100,355 @@ Cover art by John Coulthart.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.08.2003 reviews Мифологический зоопарк
+
+<p>Сначала «джинн». Теперь «сфинкс». Ну ей-богу, прямо-таки зоопарк мифологический. Впрочем, музыка MELECHESH как была, так и осталась, как минимум, интересной. До сих пор ума не приложу: откуда такая сыгранность? Один проживет в США, второй во Франции, остальные – в Голландии. О репетициях, соответственно, речь не идёт. Так каким же образом на свет появляется столь замечательная музыка? Что ж, браво музыкантам. И отдельно – Proscriptor’у. Ибо без этого человека MELECHESH попросту не был бы MELECHESH’ем. Не барабанщик – зверь. При этом ничего похожего на его партии я ранее не слышал… По крайней мере, в блэке. Остальные музыканты, надо отдать им должное, ненамного хуже. На уровне и звук. Ибо Andy La Roque. Ибо студия Los Angered. Пакостно звучащие альбомы оттуда если и выходят, то крайне редко. И наш «сфинкс», ясное дело, к таковым не относится. Но чёрт с ней, с уровнем музыкантом. Чёрт с ним, с качеством записи. Главное здесь – оригинальность. Что, простите? Не так уж это и важно, говорите? Очевидно, что иной клон выдаёт достойную музыку. Однако в данном случае, оригинальность – именно то, чем берёт MELECHESH. Поверьте, для блэковой сцены образца 2003 года – это крайне редкое явление. Месопотамский блэк-металл? Почему бы и нет…</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 14.12.2005 news MELECHESH собираются в студию
+
+<P><STRONG>MELECHESH</STRONG> войдут в студию Woodhouse в январе для записи нового альбома <STRONG>"Emissaries"</STRONG>. Вот названия некоторых трэков: <STRONG>"Sand Grain Universe"</STRONG>, <B>"Deluge of Delusional Dreams: Act I. Cast Tempest From the East; Act II. Ashur's Retaliation"</B>&nbsp;и <B>"Touching the Spheres of Sephiroth"</B>.</P>
+Автор: Vit Belov
+
+### 29.02.2008 news MELECHESH на Nuclear Blast
+
+<P><STRONG>MELECHESH&nbsp;</STRONG>заключили сделку с <STRONG>Nuclear Blast</STRONG>. Группа сочиняет новый материал, но дата записи пока не определена.</P>
+Автор: Vit Belov
+
+### 09.03.2008 reviews У-у, Шайтан!
+
+<P>Одна из самых оригинальных современных black-death-metal групп MELECHESH подготовила свой четвёртый полноформатный альбом “Emissaries”. Сплав брутального и техничного антирелигиозного black-death-metal с этнической музыкой никого не оставит равнодушным.</P>
+<P>При этом главным достоинством бывших израильтян, а ныне голландцев, является то, что в их музыке слияние этих двух направлений настолько полное, что отделить этнику от блэка невозможно. Эта музыка должна нравиться, прежде всего, любителям тяжёлой экстремальной музыки, она не привлекает к себе дешёвое внимание наличием домры или какого-нибудь «восточного барабана». Ближневосточные мелодии спрессованы в black-death-metal звучание, за которое не было бы стыдно и самим BELPHEGOR. Безусловно, наличествуют и чистые этнические трэки, но они воспринимаются, как некий chill-out перед следующей воинственной и бескомпромиссной песнею. MELECHESH принято хвалить, и есть за что. В настоящее время, когда широкой публике не хватает даже прямолинейной и жёсткой музыки, такие зверские комплексные шедевры просто необходимы. Вроде бы наговорил, что-то, а ни с чем не сравнил, никуда не направил вашу фантазию в представлении того, что вы можете услышать. Что ж, сравнивать с чем-то эту музыку достаточно сложно, но мне “Emissaries” немного напомнили последнюю, почти шедевральную, работу ROTTING CHRIST.</P>
+<P>MELECHESH не злоупотребляют внешними атрибутами folk-black-death-metal, так популярными в pagan-black в наши дни, у нас в стране в том числе. Их музыка более серьёзная, и нельзя себе представить покупателя, который захочет приобрести их новый диск, прослушав несколько первых аккордов на дешёвом магнитофоне. Здесь вы не найдёте «дудок», но национальная принадлежность музыкантов станет вам очень понятна, когда вы послушаете эту пластинку повнимательнее. Советую всем!</P>
+Автор: Vit Belov
+
+### 17.02.2009 news MELECHESH записывают демки
+
+<P><STRONG>MELECHESH</STRONG> записывают демки для нового альбома. Уже есть три песни, а так же намечены скелеты для ещё&nbsp;нескольких. Группа попадёт в студию не раньше осени этого года.</P>
+Автор: Vit Belov
+
+### 02.12.2009 news MELECHESH взяли басиста
+
+<P>Сессионный басист <STRONG>MELECHESH Rahm</STRONG> взят в группу на постоянной основе. Он рад свалившейся на него чести и утверждает, что ничего сложного для него в этом не будет, так как он дал с группой уже девять концертов.</P>
+Автор: Vit Belov
+
+### 27.07.2010 news MELECHESH назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MELECHESH</STRONG> получил название <STRONG>"The Epigenesis"</STRONG>, он выйдет до конца года на <STRONG>Nuclear Blast</STRONG>. 11 песен записано в новой студии <STRONG>Babajim Studios</STRONG> в Стамбуле. Лидер группы <STRONG>Ashmedi </STRONG>обещает музыку, не похожую на предыдущие работы<STRONG> MELECHESH</STRONG>. Например, анонсирован 12-минутный эпик, на котором будут перемешаны средневосточные мотивы, психоделический рок и метал.</FONT></P>
+Автор: Vit Belov
+
+### 05.08.2010 news Обложка MELECHESH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятый альбом <STRONG>MELECHESH "The Epigenesis"</STRONG> выходит 1 октября на <STRONG>Nuclear Blast</STRONG>. Группа опубликовала обложку этой пластинки, которую нарисовал англичанин <STRONG>John Coulthart</STRONG>.</FONT></P>
+<P><center><IMG height=400 src="/images/news_rus/2010.08/16998.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 14.09.2010 news Новая песня MELECHESH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news_rus/2010.09/17180.jpg" width=300 align=right border=5>Новую песню<STRONG> MELECHESH</STRONG> <STRONG>"Grand Gathas Of Baal Sin" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/melechesh">http://www.myspace.com/melechesh</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Композиция попадёт на новую работу "шумерского" коллектива <STRONG>"The Epigenesis", </STRONG>которая выйдет 1 октября на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в студии <STRONG>Babajim Studios </STRONG>в Стамбуле.</FONT></P>
+Автор: Vit Belov
+
+### 20.09.2010 news NILE едут в тур вместе с MELECHESH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NILE</STRONG> анонсировал свой тур <STRONG>"Those Whom The Gods Detest Tour 2011 - Part II" </STRONG>по Европе на январь/февраль будущего года. Партнёрами американцев будут<STRONG> MELECHESH</STRONG>. Могучий тандем проедет и по Восточной Европе, включая страны Прибалтики.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=428 src="/images/news_rus/2010.09/17211.jpg" width=300 border=0></FONT></P>
+Автор: Vit Belov
+
+### 21.12.2010 reviews Чистая незамутнённая любовь
+
+<P>Тому, кто первый решил скрестить black-metal с восточной народной музыкой, надо поставить памятник. Кто это был, разберутся архивариусы от тяжёлого метала, но меня настолько волнуют эти мотивы, что остановить моё прослушивание нового альбома MELECHESH “The Epigenesis”, можно только выдернув из сети розетку моего проигрывателя.</P>
+<P>С момента выхода предыдущей работы MELECHESH “Emissaries”, разорвавшей мне мозг, прошло уже четыре года, и выхода на Nuclear Blast нового альбома этой группы я ждал без всякой опаски. Я знал, что любая тяжело и бескомпромиссно записанная музыка, содержащая различные ситары и биндиры, будоражит мне кровь. MELECHESH не обманули ожиданий. Шаманские ритмы, сменяющиеся здесь ужасающим black-metal с плавным переходом в длительные зомбирующие атмосферные проигрыши на народных инструментах, чрезвычайно бодрят. Ashmedi и компания приглашают слушателя в длительное путешествие по мрачным закоулкам Востока, открывая мистические тайны этого необычного края. В общем, рассказывать можно долго, но если вас не пугает органичная смесь black-metal и ориентального мракобесия, этот альбом для вас.</P>
+<P>Очередной высший балл, заслуженный MELECHESH. Возможно, именно это называют любовью, и музыка группы не заслуживают столь превосходных оценок, но ничего поделать с собой я не могу. Действительно великолепная работа.</P>
+Автор: Vit Belov
+
+### 26.03.2011 news Новое видео MELECHESH
+
+<P>Клип <STRONG>MELECHESH </STRONG>на песню <STRONG>"Grand Gathas Of Baal Sin" </STRONG>можно посмотреть ниже. Ролик был снят в турецком Стамбуле канадским режиссёром <STRONG>Rouzbeh Heydari</STRONG>. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/0O5D0A-YHxg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/0O5D0A-YHxg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.03.2015 reviews Лучшая группа на Земле
+
+<P>Существует ли лучшая на белом свете тяжёлая группа? Можно ли вот так взять и назначить какую-то группу лучшей в целом жанре современной музыки? Скорее всего, любые попытки сделать это закончатся неудачей. Более того, любой результат голосования/анализа будет подвергнут нещадной критике сообщества. Попробую предложить своего кандидата на эту роль на современной сцене. MELECHESH!</P>
+<P>В творчестве лидера коллектива&nbsp; Ashmedi есть всё. Захватывающие мелодии, агрессивный напор, фолковое разнообразие, уничижительная атмосфера, великолепная реализация. Новый альбом группы может быть рекомендован практически всем. Его покупают люди, слушающие prog-metal и true-black metal, melodic death и thrash-metal. Никто не останется равнодушным, при этом CD воспринимается именно как альбом, а не как набор хитов или разрозненный сборник песен в разных стилях. Прослушивая "Enki" ощущаешь целую гамму эмоций, и каждые переживёт что-то своё.</P>
+<P>Хвалить всегда сложно. Кажется, что к каждой воспевающей музыку фразе можно придраться, каждый эпитет опровергнуть. Что ж, это право слушателя, но я просто в восторге от этого альбома, и готов слушать его снова и снова.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

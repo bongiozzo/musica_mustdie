@@ -187,6 +187,193 @@ X. Wish
 * C группой "Sebastian Bach" Bobby Jarzombek  (drums)
 * C группой "Arch/Matheos" Frank Aresti (guitar)
 
+## Публикации
+
+### 21.04.1999 news 
+
+<p>Гитарист Empty Tremor Даниэль Ливерани закончил свой соло альбом "Viewpoint". На этом альбоме играет басист Fates Warning Джоэй Вера.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>В свою очередь Fates Warning не будет ничем заниматься несколько месяцев, из-за занятости членов коллектива в других проектах. Вокалист Рэй Элдер работает над соло-альбомом вместе с гитаристом Берни Версайлесом (Agent Steel), Джоэй Вера (Armored Saint/Fates Warning) и барабанщиком Питом Парада (Face To Face). Гитарист Джим Матеос микширует свой соло-альбом вместе с Терри Брауном. Джоэй Вера занят на реюнионе Armored Saint. Также бывший гитарист группы Франк Арести занялся своей новой группой All That Is.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Новый альбом Fates Warning называется "Disconnected". Его запись уже закончена, но релиз состоится только в конце июля. Стоит отметить тот факт, что в записи принимал участие клавишник Kevin Moore (ex-Dream Theater).</p>
+
+Автор: Vit Belov
+
+### 10.07.2000 reviews Стильная навороченная музыка
+
+<p>Стильная навороченная музыка. Сплошные сложные, но плавные и мелодичные структуры. прогрессивно и технично. ветераны американского progressive-metal продолжают свои эксперименты, пытаясь найти новый музыкальный звук. На этом альбоме музыканты экспериментируют уже не только с чисто гитарным звучанием и клавишными. Много используется индустриальных наворотов и компьютерных вставок, что создает эффект техно-звучания. Многих, боюсь, это отпугнет. Поэтому, не знаю, на что рассчитывают музыканты. Скорее, они просто играют для себя, для своего удовольствия, не стремясь к коммерческой выгоде. Но сделано все на очень высоком профессиональном уровне, что высокая оценка их творчества просится сама собой.</p>
+
+Автор: Dimas
+
+### 11.07.2000 reviews Stylish abstract music
+
+<p>Stylish abstract music. Solid composite, but smoothly varying and melodious frames. Progressively and tecnically. The veterans American progressive-metal prolong the experiments, attempting to find a new musical note. On this album the musicians experiment any more only only guitar sounding and keyboard. Will much be used industrial and computer inserts, that creates effect of techno-sounding. Of many, I am afraid, it will frighten off. Therefore, I do not know, on what the musicians calculate. Without delay, they simplly play for themselves, for the pleasure, not aiming to commercial profit. But all is made at a very high professional level, that the high estimation of their creativity is asked of itself.</p>
+
+Автор: Dimas
+
+### 08.02.2001 news FATES WARNING
+
+<p>После продолжительной дистрибуции на Metal Blade в США, FATES WARNING решили доверить им вести дела группы также и во всем мире. Выпуск нового "Disconnected" пердварительно запланирован на конец 2001 года.</p>
+
+Автор: Yermola
+
+### 08.02.2001 news FATES WARNING
+
+<p>After being on Metal Blade for all their life, so to say, in the USA already, FATES WARNING now have signed with Metal Blade for a world-wide deal. For the end of this or the beginning of next year they also announce their follow-up to "Disconnected".</p>
+
+Автор: Yermola
+
+### 27.05.2002 news Новый суперпроект...
+
+<p>Барабанщик DREAM THEATER - Mike Portnoy, гитарист FATES WARNING - Jim Matheos, клавишник CHROMA KEY/ex-DREAM THEATER - Kevin Moore, бассист GORDIAN KNOT/ex-CYNIC - Sean Malone и вокалист PAIN OF SALVATION - Daniel Gildenlоw объединили усилия в новом пока-еще-не-названном проекте. Запись альбома запланирована на Июнь и релиз в Октябре/Ноябре на Inside Out Records.....</p>
+
+Автор: Yermola
+
+### 27.05.2002 news DREAM THEATER, FATES WARNING Members Join Forces ....
+
+<p>DREAM THEATER drummer Mike Portnoy, FATES WARNING guitarist Jim Matheos, CHROMA KEY/ex-DREAM THEATER keyboardist Kevin Moore, GORDIAN KNOT/ex-CYNIC bassist Sean Malone and PAIN OF SALVATION vocalist Daniel Gildenlцw have joined forces in a brand new, as-yet-unnamed supergroup which is scheduled to record its debut album in early June for a late October/early November release—possibly through Inside Out Records. In a May 18th update on his official web site, Malone commented on the project by saying that "there will be an announcement soon of a new project that will be recorded this summer. I'm not allowed to reveal the players just yet, but it's a project involving some people whose names won't be unfamiliar to you. I'm very excited about it for a few reasons - one, just glad I got picked for it, but also that I can go back to just bein</p>
+
+Автор: Yermola
+
+### 21.07.2002 news Дебютный альбом Orchestra of Strategic Influence ожидается этой осенью...
+
+<p>Для тех, кто пока не в курсе, что собственно представляет из себя Orchestra of Strategic Influence (для краткости - OSI), поясним: это новый проект, в состав которого входят гитарист Jim Matheos (Fates Warning), клавишник Kevin Moore (Chroma Key, экс-Dream Theater) и барабанщик Mike Portnoy (Dream Theater, Transatlantic). Обещается, что дебютный альбом одного с группой названия будет доступен уже этой осенью, посредством InsideOut Music America. В IOMA ожидают, что "Orchestra of Strategic Influence" окажется одним из самых продаваемых дисков за всю историю компании.</p>
+<P>Помимо клавишных, Moore также ответственнен и за большинство вокальных партий. Помимо него на альбоме будут петь несколько приглашённых вокалистов, чьи имена пока не разглашаются, а место бас-гитариста займёт Sean Malone (Gordian Knot).</>
+<P>Запись диска на данный момент производится в Carriage House Studios, что в Коннектикуте, под контролем обладателя Грэмми Фила Магнотти.</>
+<P>Что до музыкальной составляющей, то согласно Матеосу, "Orchestra of Strategic Influence" не имеет ничего общего ни с Fates Warning, ни с Dream Theater, ни с Chroma Key. Звучит интригующе.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 14.01.2004 news Сольник вокалиста HAMMERFALL
+
+<P>Вокалист <B>HAMMERFALL Joacim Cans</B> подписал контракт с <B>Sanctuary Records (Noise Records)</B>&nbsp;на выпуск своего дебютного сольного альбома "<B>Beyond The Gates</B>".&nbsp;При записи ему помогали&nbsp;<B>Matt Sinner (Sinner), Metal Mike Chlasciak (Halford), Stefan Elmgren (Hammerfall)&nbsp;</B>и<B> Mark Zonder (Fates Warning)</B>. Альбом выйдет 26 апреля 2004 года.</P>
+Автор: Dimas
+
+### 03.08.2004 news Новый альбом FATES WARNING
+
+<P>5 октября на <B>Metal Blade Records</B> выходит новый альбом известнейшей прогрессивной команды <B>FATES WARNING "FWX</B>". Альбом был записан в американской <B>Carriage House</B> в Коннектикуте. В альбом войдут следующие вещи:</P>
+<P><IMG height=248 alt="" hspace=10 src="/images/news_rus/2004.08/6856.jpg" width=250 align="right" border=0>1. <B>Left Here</B><BR>2. <B>Simple Human</B><BR>3. <B>River Wide Ocean Deep</B><BR>4. <B>Another Perfect Day</B><BR>5. <B>Heal Me</B><BR>6. <B>Sequence # 7</B><BR>7. <B>Crawl</B><BR>8. <B>A Handful Of Doubt</B><BR>9. <B>Stranger (With A Familiar Face)</B><BR>10. <B>Wish</B> </P>
+Автор: Дофф
+
+### 29.08.2004 reviews Выхода нет!!
+
+<P><B>Было такое время, когда прогрессив-метал был действительно прогрессивным, в буквальном смысле этого слова, направлением в музыке, а не просто названием одного из стилей тяжелой музыки. А группа из солнечного Лос-Анджелеса “Fates Warning”, была одной из тех, кто сформировал этот стиль, заложил основы, и идеями которой до сих пор питаются и вдохновляются десятки прогрессив-металических команд.</B></P>
+<P><B>“No Exit” стал первым, по настоящему, коммерчески успешным альбомом. Тираж превысил 100000 экземпляров, а в общем чарте Биллборда диск попал на 111 место, что удивительно для столь популярной в очень узких кругах команды. После выхода винила, “Fates Warning” провели 4 месяца в турне по Штатам вместе с “Krokus”, “Armored Saint”, “Warlock” или “Savatage”, правда в роли разогревающего коллектива. На концертах же, на которых “Fates Warning” были хэдлайнерами, приходило от 500 до 1000 человек.</B></P>
+<P><B>“No Exit” стал дебютом для вокалиста Рэя Элдера, певшего ранее вгруппе «Сайрус», которая выпустила нашумевшее в андерграундных кругах демо. Рэй успешно справился с поставленной задачей, и успех альбома не в последнюю очередь связан с ним. Его высокий, чистый и очень разнообразно звучащий голос отлично подошел к музыке и лучше воспринимался публикой. </B></P>
+<P><B>Первые три альбома, хотя и с восторгом принятые музыкальными критиками, у широкой массы публики встретили непонимание. “No Еxit” же получился более доходчивым, а так же более зрелым в композиторском плане. При этом группа осталась верна выбранной стилистике, и альбом звучит именно как “Fates Warning”. Лучшим треком пластинки стала двадцатидвухминутная “<I>The Ivory Gate Of Dreams</I>”, состоящая из восьми частей. Здесь и акустические балладные кусочки, и тяжелые пассажи в среднем темпе и громоподобные быстрые рифовые структуры. Звучит это удивительно целостно мелодично и разнообразно, великолепные мастерские гитарные соло и выверено-четкая ритм секция.</B></P>
+<P><B>Классика, которая обязательно быть в каждой коллекции любителей умной и интеллигентной музыки.</B> </P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.fono.ru/cgi-bin/releases" target=_blank>Фоно</A> 
+<HR>
+<A href="http://www.fono.ru/cgi-bin/releases"></A>
+<P></P>
+Автор: Дофф
+
+### 31.08.2004 reviews Выхода нет всё равно...
+
+<P><B>Вышедший, следом за прорывным “No Exit”, в 1989 году, альбом “Perfect Symmetry” оказался еще более зрелым и качественным. Несмотря на то, что запись длилась меньше месяца, продюсерам и музыкантам удалось сделать еще один шаг вперед в развитии группы и добиться более чистого звучания. Немало для этого сделал новый участник группы – барабанщик Марк Зондер, незадолго до этого покинувший коллектив “Warlord”. Марк оказался гораздо более разносторонним и стилистически уникальным ударником, а так же, вдобавок к профессиональным качествам – незаурядной творческой личностью. Некоторые критики, тогда, сравнивали его манеру игры с Нейлом Пиртом из “Rush”. </B></P>
+<P><B>Музыка “Fates Warning” стала еще сложнее, больше стало акустических гитар. На “<I>At Fates Hands</I>” клавишную партию записал Кевин Мур, появились даже струнные. Что вообще было очень смелым и оригинальным шагом. Ведь в это время некоторые группы вели активную борьбу за чистоту стиля. И их призывы находили горячий отклик у поклонников тяжелой музыки. Несмотря на это, специально для исполнения соло на “<I>Chasing Time</I>”, была приглашена виолончелистка из Коннектикута Faith Fraeoli. </B></P>
+<P><B>Волевым решением продюсеры сменяют художника, занимавшегося оформлением диска. </B></P>
+<P><B>Очень многим не понравилось, как выглядел “No Exit” и на роль дизайнера был приглашен именитый Хью Сайм, приложивший свою руку к оформлению пластинок “Rush” и “White Snake”.</B></P>
+<P><B>Но, несмотря на это, особый коммерческий успех альбому не сопутствовал. Несмотря на восторженные отзывы в профильных журналах, он так и остался уделом избранных ценителей. Еще один пример того, что музыкальные критики порой смотрят куда дальше и глубже, чем толпа потребителей музыкальной продукции. </B></P>
+<P><B>По любому, “Perfect Symmetry” - классика прогрессивного метала. В этом же, 1989 году, появится первый альбом почитаемого теперь «Дрим Театра». Подозрительно похожий на работы FW диск…</B> </P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.fono.ru/cgi-bin/releases" target=_blank>Фоно</A> </P>
+Автор: Дофф
+
+### 18.01.2005 news Mike Portnoy сыграет с FATES WARNING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Mike Portnoy</STRONG> (<STRONG>DREAM THEATER</STRONG>) продолжает удивлять любителей своего таланта. Теперь объявлено, что 3 апреля в Голландии на фестивале <STRONG>Headway</STRONG>, он сыграет с <STRONG>FATES WARNING</STRONG>. Историческое событие?&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 18.01.2005 reviews Десятое предупреждение
+
+<P>Лаконичное название альбома подсказывает неискушенному слушателю, что перед ним – ветераны. Действительно, FATES WARNING были сформированы в 1982 году, одними из первых выступив под флагом прогрессивной тяжелой музыки. Шли годы, менялась мода, менялась музыка группы, взрослели люди, инструменты становились совершеннее. Но одно оставалось неизменным во все времена – качественное звучание и классические прогрессивные ходы, которые буквально переполняют десятый альбом группы.</P>
+<P>&nbsp;Не будучи в состоянии смириться с господством DREAM THEATER на прогрессивно-металлической сцене в конце девяностых годов, FATES WARNING находят свой стиль, свой звук, текущий на границе упомянутых «театралов», немцев SIEGES EVEN из середины девяностых прошлого века и относительно молодого коллектива DEAD SOUL TRIBE, основанного по инициативе Devon Graves(PSYCHOTIC WALTZ). FATES WARNING звучат как и ранее, храня верность своим традициям, тогда как большинство их конкурентов либо молоды, либо сошли со сцены, либо трансформировали свой стиль в угоду взыскующим новых (не всегда верных и приятных) решений слушателям. Альбом содержит 10 композиций, лежащих ближе к DEAD SOUL TRIBE “January Three” (2004), несколько более прямолинейных, в меру психоделических и успокаивающих. Особенно хочу отметить “Simple Human”, “Another Perfect Day”, инструментальную “Sequence” и мощную “Crawl”, в лучших традициях тяжелого прог-рока. А ещё хороша “Stranger (With A Familiar Face)”! Альбом великолепен и обязателен к прослушиванию для каждого, пардон, «хэдбэнгера», считающего себя любителем интеллектуального металла. И ещё кое-что. 52 минуты для ТАКОГО альбома – непростительно короткий плейтайм!!!</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A></P>
+Автор: Vlad
+
+### 19.01.2005 news В турне с FATES WARNING поедет драммер SPOCK&#39;s BEARD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как вчера сообщалось, на одном из фестов <STRONG>FATES WARNING</STRONG> отыграет сэт в компании <STRONG>Mike Portnoy</STRONG> из <STRONG>DREAM THEATER</STRONG>, а сейчас был объявлен музыкант, который отыграет весь тур - это <STRONG>Nick D'Virgilio</STRONG> из<STRONG> SPOCK'S BEARD</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.01.2010 news Переиздание FATES WARNING &quot;Parallels&quot;
+
+<P>16 марта - ориентировочная дата выпуска специального издания классического альбома группы <STRONG>FATES WARNING "Parallels"</STRONG> на лейбле <STRONG>Metal Blade Records</STRONG>. В дополнение к ремастированному альбому, в издание войдёт второй аудио диск с концертными и демо материалами.&nbsp;А так же, DVD диск продолжительностью почти три часа, с полным концертом времён альбома <STRONG>"Parallels"</STRONG> и документальным фильмом о работе над диском.&nbsp;Помимо концертных и студийных съёмок, фильм включает в себя современные интервью со всеми участниками группы, продюсером альбома <B itxtvisited="1">Terry Brown</B> и <B itxtvisited="1">Brian Slagel</B> (глава <B itxtvisited="1">Metal Blade Records</B>).</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2010.01/16035.jpg" width=300 align=right border=0>Содержание&nbsp;издания:</P>
+<P>CD 1 - "Parallels"<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Leave The Past Behind</B> <BR itxtvisited="1">02. <B itxtvisited="1">Life In Still Water</B> (feat. James LaBrie) <BR itxtvisited="1">03. <B itxtvisited="1">Eye To Eye</B> <BR itxtvisited="1">04. <B itxtvisited="1">The Eleventh Hour</B> <BR itxtvisited="1">05. <B itxtvisited="1">Point Of View</B> <BR itxtvisited="1">06. <B itxtvisited="1">We Only Say Goodbye</B> <BR itxtvisited="1">07. <B itxtvisited="1">Don't Follow Me</B> <BR itxtvisited="1">08. <B itxtvisited="1">The Road Goes On Forever</B> <BR itxtvisited="1"><BR itxtvisited="1">CD 2 - "Parallels" Live In Hollywood, California (January 23, 1992)<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Leave The Past Behind</B> (live) <BR itxtvisited="1">02. <B itxtvisited="1">Don't Follow Me</B> (live) <BR itxtvisited="1">03. <B itxtvisited="1">Eleventh Hour</B> (live) <BR itxtvisited="1">04. <B itxtvisited="1">Point Of View</B> (live) <BR itxtvisited="1">05. <B itxtvisited="1">Eye To Eye</B> (live) <BR itxtvisited="1">06. <B itxtvisited="1">Nothing Left To Say</B> (live)<BR itxtvisited="1">07. <B itxtvisited="1">Quietus</B> (live) <BR itxtvisited="1">08. <B itxtvisited="1">Through Different Eyes</B> (live) <BR itxtvisited="1">09. <B itxtvisited="1">Leave The Past Behind</B> (demo) <BR itxtvisited="1">10. <B itxtvisited="1">Eye To Eye</B> (demo) <BR itxtvisited="1">11. <B itxtvisited="1">Eleventh Hour</B> (demo) <BR itxtvisited="1">12. <B itxtvisited="1">Point Of View</B> (demo) <BR itxtvisited="1">13. <B itxtvisited="1">Don't Follow Me</B> (demo) <BR itxtvisited="1"><BR itxtvisited="1">DVD <BR itxtvisited="1"><BR itxtvisited="1">* Filmed live in concert in New Haven, Connecticut on February 13, 1992 <BR itxtvisited="1">* Features current interviews with all band members as well as acclaimed producer <B itxtvisited="1">Terry Brown</B> and <B itxtvisited="1">Metal Blade Records</B> CEO <B itxtvisited="1">Brian Slagel</B> <BR itxtvisited="1">* Rare and exclusive interviews and behind-the-scenes footage from the 1992 U.S. tour</P>
+<P><BR itxtvisited="1">Группа планирует дать несколько концертов в составе, записавшем<STRONG> "Parallels"</STRONG>:</P>
+<P><STRONG>Ray Alder</STRONG> (вокал), <B itxtvisited="1">Jim Matheos</B> (гитара), <B itxtvisited="1">Frank Aresti</B> (гитара), <B itxtvisited="1">Joe DiBiase</B> (бас) и <B itxtvisited="1">Mark Zonder</B> (ударные).</P>
+<P>На данный момент подтверждено только два шоу в Греции, намеченных на конец марта.</P>
+Автор: Headcrusher
+
+### 24.11.2013 articles FATES WARNING, Москва, &quot;Москва Hall&quot;, 22.10.2013
+
+<P>Fates Warning – несомненно, уникальный коллектив, с огромным историческим и музыкальным наследием, одни из столпов прогрессивного металла, начавших свою карьеру ещё тогда, когда такого термина как progressive metal ещё не существовало, а нынешние лидеры этого жанра были весьма юны и только учились играть на своих инструментах. Стартовав ещё в 82-м году под названием Misfit, группа пережила не одну смену состава, но с 87-го года ядром проекта оставались креативные лидеры гитарист Джим Матеос и вокалист Рэй Олдер, пережившие все трудные времена, неплохо поработавшие и «на стороне» в сайд-проектах, лишь для того, чтобы вернуться с новыми силами и новым релизом «Darkness In A Different Light», первым за 9 лет.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26372.jpg" width=735 height=490> 
+<P></P>
+<P>Если в прошлый (первый) приезд в Москву в марте прошлого года будущее группы было под вопросом в связи с вышеупомянутой активностью Джима вместе с бывшим клавишником Dream Theater Кевином Муром в OSI и с бывшим вокалистом Fates Warning Джоном Арчем в новой формации Arch/Matheos, а также деятельностью Рэя Олдера в Redemption, то в этот раз к моменту приезда уже состоялся релиз и, помимо проверенных временем хитов, поклонники группы могли оценить и три композиции со свежего альбома, которого лично я ждал с некоторыми опасениями. Ведь трудно предсказать, сколько ярких идей оставили музыканты для своего «основного» детища. В итоге «Darkness In A Different Light» получился достаточно интересным по звучанию и по музыке, хотя вряд ли его можно поставить в один ряд с самими сильными работами Fates Warning.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26373.jpg" width=735 height=490> 
+<P></P>
+<P>Moscow Hall, который в последнее время стал чуть ли не самым частым местом организации металлических концертов, за час до начала выступления оказался подозрительно пуст. Скромная пара десятков человек, бродившая по залу и в «предбаннике» вызывала странные ощущения, что концерт либо отменён, либо перенесён, а знают об этом не все. Забегая вперёд, скажу, что и к началу в 20-30 собралось едва ли больше ста человек – довольно шокирующая цифра, учитывая культовый статус (пусть и в узких кругах) американцев, которые, к тому же, до этого посещали столицу всего один раз… Где же были любители прогметала, которые забивали площадки на Dream Theater и которые, по идее, должны были почтить своим присутствием концерт Fates Warning – дома, утомлённые тяжёлыми трудовыми буднями (а концерт проходил во вторник) или же на организованном в тот же день Prog Day в клубе Козлова? Или же всё-таки интерес к группе сошёл на нет?</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26374.jpg" width=735 height=490> 
+<P></P>
+<P>Не имея вразумительного ответа на данные вопросы, всё же подчеркну, что все присутствующие, включая самих музыкантов, отметили это событие как нечто особенное, ибо данный клубный концерт обладал всеми необходимыми плюсами скромных шоу – а именно полным контактом публики и «виновников торжества» и максимально тёплым приёмом хоть не многочисленной, но преданной аудитории, ради которых американцы подготовили очень длинный (17 трэков на 1 час 50 минут) и близкий к идеалу сет-лист. Великолепное действо, неплохой звук и свет, видеоряд (хотя, довольно скромный) на трёх экранах и магия музыки – всё это трудно описать словами, которые блекнут и теряются при воспоминаниях о том вечере в Moscow Hall, которое, повторюсь, оценить было, по большому счёту, некому… И хотя группа в течение выступления не раз выражала своё искреннее удовольствие и обещала скоро вернуться снова, теперь данная перспектива кажется дольно призрачной. А жаль! <BR>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26375.jpg" width=735 height=490> 
+<P></P>
+<P>Если сравнивать с прошлым московским выступлением, то новые трэки с Darkness In A Different Light - One Thousand Fires, Firefly и I Am, а также 6-я часть концептуальной A Pleasant Shade Of Gray (в дополнение к уже присутствующим в сетлисте 3-й и 11-й) и мега-зажигательная в живом исполнении Pieces Of Me заменили противоречивую Heal Me с предпоследнего альбома FWX, а также Outside Looking In, плюс два классических номера – At Fates Hands и The Ivory Gate of Dreams: IV. Quietus. Что, впрочем, не явилось трагедией, ведь деликатесов в свежем музыкальном меню от Fates Warning хватало и без этого: тут были и мелодик-хиты Point Of View, Eye To Eye, Through Different Eyes, и сложные «заковыристо»-проговые три части A Pleasant Shade Of Gray, Monument и фееричная 16-минутная Still Remains, плюс тяжеленная Pieces Of Me (один из моих личных фаворитов на этом шоу), да и новые композиции прозвучали достаточно убедительно.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26376.jpg" width=735 height=490> 
+<P></P>
+<P>Если в прошлый приезд перед москвичами предстал новый барабанщик Бобби Ярзомбек (также числящийся в проекте Arch/Matheos и не только), сменивший ветерана Марка Зондера, а также вернувшийся в 2005-м году после 9-летнего отсутствия оригинальный гитарист Фрэнк Арести, то в этот раз на место Фрэнка был рекрутирован молодой Майкл Эбдоу, который хоть и смотрелся на сцене не совсем уверенно, но с гитарными партиями справлялся вполне достойно. Радовали глаз и все остальные участники группы – усато-бородатый Бобби, с грозным видом восседавший за своей барабанной установкой, и фронтмэн Рэй Олдер, с присущим ему драматизмом исполнявший свои философские тексты, и, конечно же, маэстро Джим Матеос, со слегка отстранённым, грустным, мудрым лицом и пышной шевелюрой.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26377.jpg" width=735 height=490> 
+<P></P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26378.jpg" width=735 height=490> 
+<P></P>
+<P>Стоит отметить, при всём великолепии шоу Fates Warning, в нём не обошлось и без минусов. И если явно не идеальный звук не стал пресловутой ложкой дёгтя в бочке прогметаллического мёда американского производства, то вокал Рэя можно смело подвергнуть довольно жёсткой критике. Мало того, что он вообще не пел высоких нот, и все мелодии композиций конца 80-х – начала 90-х годов преображались далеко не в лучшую сторону, он, по всем видимости, был серьёзно осипшим. Во время концерта он не раз откашливался и с мученически-извиняющимся видом поглядывал на Джима. Впрочем, лично меня сама атмосфера концерта на склонила к излишней критичности, плюс, плотный октябрьский концертный график группы вызывал как уважение, так и сочувствие к заслуженному 46-летнему ветерану некоммерческой прогрессивной сцены, который выложился на все сто, как и все остальные участники давно как культовой, но до сих пор так и не оценённой по достоинству группы...</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2013.11/26379.jpg" width=735 height=490> 
+<P></P>
+<P><U>Сет-лист</U>:</P>
+<P>01. One Thousand Fires <BR>02. Life in Still Water <BR>03. One <BR>04. A Pleasant Shade of Gray, Part III <BR>05. Another Perfect Day <BR>06. Down to the Wire <BR>07. A Pleasant Shade of Gray, Part VI <BR>08. Pieces of Me <BR>09. I Am <BR>10. The Eleventh Hour <BR>11. Point of View <BR>12. Firefly <BR>13. Through Different Eyes <BR>14. A Pleasant Shade of Gray, Part XI <BR>15. Monument </P>
+<P>Бис:</P>
+<P>16. Still Remains <BR>17. Eye to Eye</P>
+<P>Текст: <STRONG>Дмитрий Дасов</STRONG></P></CENTER></CENTER></CENTER></CENTER></CENTER></CENTER></CENTER></CENTER>
+Автор: Headcrusher
+
+### 03.06.2016 news Новая музыка FATES WARNING
+
+<p>Новый альбом progressive королей <strong>FATES WARNING "Theories Of Flight"</strong> выходит 1 июля на <strong>Inside Out</strong>. Первую композицию с этого альбома "<strong>From The Rooftops</strong>" можно послушать в лирик видео ниже. </p><p>Трек-лист:</p><p>CD 1<br>“From The Rooftops” (6:52)<br>“Seven Stars” (5:33)<br>“SOS” (4:34)<br>“The Light And Shade Of Things” (10:14)<br>“White Flag” (5:20)<br>“Like Stars Our Eyes Have Seen” (5:13)<br>“The Ghosts Of Home” (10:31)<br>“Theories of Flight” (4:00)</p><p>CD 2 – Acoustic Bonus Disc:<br>“Firefly” (3:15)<br>“Seven Stars” (4:25)<br>“Another Perfect Day” (3:25)<br>“Pray Your Gods” (3:45) - Toad The Wet Sprocket cover<br>“Adela” (2:25) Joaquin Rodrigo cover<br>“Rain” (4:03) Uriah Heep cover</p><p><center>&nbsp;<img width="640" height="640" src="/images/news_rus/2016.06/29241.jpg" border="0"></p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/8kkJ8qtgLBY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 03.06.2016 news New music by FATES WARNING
+
+<p>The new album of kings of progressive FATES WARNING's "Theories Of Flight" comes out July 1 on Inside Out. First track from the album "From The Rooftops" can be heard in the lyric video below. </p><p>Track listing:</p><p>CD 1<br>“From The Rooftops” (6:52)<br>“Seven Stars” (5:33)<br>“SOS” (4:34)<br>“The Light And Shade Of Things” (10:14)<br>“White Flag” (5:20)<br>“Like Stars Our Eyes Have Seen” (5:13)<br>“The Ghosts Of Home” (10:31)<br>“Theories of Flight” (4:00)</p><p>CD 2 – Acoustic Bonus Disc:<br>“Firefly” (3:15)<br>“Seven Stars” (4:25)<br>“Another Perfect Day” (3:25)<br>“Pray Your Gods” (3:45) - Toad The Wet Sprocket cover<br>“Adela” (2:25) Joaquin Rodrigo cover<br>“Rain” (4:03) Uriah Heep cover</p><p><center>&nbsp;<img width="640" height="640" src="/images/news_rus/2016.06/29241.jpg" border="0"><p></p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/8kkJ8qtgLBY" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+### 20.09.2016 news Новый клип FATES WARNING
+
+<p>Новое видео<strong> FATES WARNING</strong> на хит "<strong>Seven Stars</strong>" можно посмотреть. Последний альбом королей progressive metal <strong>"Theories Of Flight</strong>" вышел этим летом на<strong> InsideOut</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/0hguUU-VYug" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 20.09.2016 news New clip of FATES WARNING
+
+<p><strong>FATES WARNING</strong>'s new video for the hit <strong>"Seven Stars"</strong> can be seen below. The last album of the progressive metal kings "<strong>Theories Of Flight</strong>", was released on<strong> InsideOut</strong> this summer.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/0hguUU-VYug" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Fates Warning?

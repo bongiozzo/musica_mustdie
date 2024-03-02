@@ -12,6 +12,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.11.2002 reviews This eight-tracker takes us back in time...
+
+<p>True Norwegian black metal never dies, huh? Well, in fact ARMAGEDDA isn’t the kind of combo anyone can mock on. For it’s not a joke at all. This eight-tracker takes us back in time, in early nineties, when DARKTHRONE just have released their outstanding “Under A Funeral Moon”, and IMMORTAL, in their turn – “Pure Holocaust”. These are the only bands ARMAGEDDA may be compared to, although this comparison is pretty much weak anyway. Since ARMAGEDDA is ARMAGEDDA. Even if this “True Norwegian black metal” thing appears to be their main source of inspiration, this trio doesn’t deliver music that is hackneyed, generic, too raw and overfilled with cliches. If you’d like to hear anything like that (‘hackneyed, generic…’), go and try to find someone else. Even though it bears a trace of those two greatest works by DARKTHRONE and IMMORTAL, “The Final War Approaching” sounds _fresh_ and enormously bewitching. This CD forces a unique atmosphere; the ambiences it’s impregnated with… arggh, I wish I could describe it all properly. However; I cannot. And don’t you blame my English – any human language is too poor to picture you what “The Final War Approaching” really is and what is really stands for. Perhaps, “The Devil And The Whore” by MEGIDDO is the only CD which affected me the same way this one did… A MUST, you scum!</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

@@ -21,6 +21,16 @@ Slowly
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.05.2011 news Ralf Scheepers и Mike Vescera споют в новом мюзикле
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежский музыкант и композитор <STRONG>Andreas Nergard </STRONG>сочинил металический мюзикл под названием <STRONG>"Memorial For A Wish"</STRONG>. Материал записывается в <STRONG>Trondheim Studio </STRONG>с продюсером <STRONG>Conor Patrick </STRONG>и выйдет двумя альбомами в 2011-2012 годах. История повествует о реальном событии, случившемся в Дублине в 1890 году. Человек по имени <STRONG>Peter O'Donnell </STRONG>был несправедливо осуждён на 20 лет за ограбление,&nbsp;рассказ начинается, когда он выходит из тюрьмы, полностью отсидев&nbsp;свой срок. Норвежцу удалось собрать некоторое количество известных вокалистов:</FONT></P>
+<P>* <B>Ralf Scheepers</B> (PRIMAL FEAR, GAMMA RAY) <BR>* <B>Tony Mills</B> (TNT, SHY) <BR>* <B>Mike Vescera</B> (YNGWIE MALMSTEEN, LOUDNESS)<BR>* <B>&#197;ge Sten Nilsen</B> (WIG WAM)<BR>* <B>Goran Edman</B> (YNGWIE MALMSTEEN, JOHN NORUM)<BR>* <B>Helge Engelke</B> (FAIR WARNING)<BR>* <B>David Reece</B> (BANGALORE CHOIR, ACCEPT)&nbsp;</P>
+<P><center><IMG height=400 src="/images/news_rus/2011.05/19439.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

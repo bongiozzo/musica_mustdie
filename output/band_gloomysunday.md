@@ -20,6 +20,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.03.2007 news Новый релиз на Solitude
+
+<P>Doom-metal лейбл<STRONG> Solitude Productions</STRONG> представляет свой 11 по счёту релиз - дебютный альбом "<STRONG>Beyond Good And Evil</STRONG>" шведской группы <STRONG>GLOOMY SUNDAY</STRONG>. Музыка в стиле stoner sludge doom, близкая по духу <STRONG>Electric Wizard, Eyehategod</STRONG> и <STRONG>Crowbar</STRONG> придётся по вкусу всем любителям экстремальных течений в doom-metal.</P>
+<P><IMG height=150 alt="" hspace=0 src="/images/news_rus/2007.03/11422.jpg" width=150 align=right border=5>Треклист "<STRONG>Beyond Good And Evil</STRONG>":<BR>1.<STRONG> Living Dead At The Tradecentre Morgue</STRONG><BR>2. <STRONG>Dead Of Season<BR></STRONG>3. <STRONG>Xanor<BR></STRONG>4. <STRONG>Beyond The Light<BR></STRONG>5. <STRONG>Fluoxetin Selena<BR></STRONG>6. <STRONG>Burn Out The Sun<BR></STRONG>7. <STRONG>End Trip<BR></STRONG>8. <STRONG>Sunrise Casualty<BR></STRONG>9. <STRONG>Dead Love Autumn</STRONG></P>
+<P>Сайт лейбла: <A href="http://www.solitude-prod.com/">http://www.solitude-prod.com</A><BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

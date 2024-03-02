@@ -32,6 +32,29 @@ Ryan Buesnel: Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.01.2005 news Новости от THE ETERNAL
+
+<P><IMG height=293 alt="" hspace=50 src="/images/news_rus/2005.01/7759.jpg" width=221 align=right border=0>Австралийская melodic&nbsp;doom metal&nbsp;формация <B>THE ETERNAL</B> готовится войти в феврале в <B>Palm Studio</B> для записи своего второго альбома <B>"Everlasting"</B>. В него войдут одиннадцать вещей, среди которых <B>"Everlasting"</B>, <B>"To Drown"</B>, <B>"Hollow Inside"</B>, <B>"A Dream's End"</B>, <B>"In My Skin"</B>, <B>"Beneath the Soil"</B>, <B>"The Sleep of Reason"</B>, <B>"The Dying Light"</B>&nbsp;и <B>"Weight of Empathy"</B>. Релиз ожидается в начале лета на <B>Firebox Records</B>.<BR>В группе новый ударник - <B>Marty O'Shea</B>. </P>
+Автор: Dimas
+
+### 01.03.2005 news Новости от THE ETERNAL
+
+<P>Австралийский&nbsp;melodic doom metal коллектив <B>THE ETERNAL</B> (бывший <B>CRYPTAL DARKNESS</B>)&nbsp;продолжает работу над своим вторым альбомом под названием&nbsp;<B>"Everlasting"</B>, выход которого планируется летом на <B>Firebox Records</B>. Альбом будет содержать одиннадцать трэков, среди которых будут <B>"Everlasting"</B>, <B>"To Drown"</B>, <B>"Hollow Inside"</B>, <B>"A Dream's End"</B>, <B>"In My Skin"</B>, <B>"Beneath the Soil"</B>, <B>"The Sleep of Reason"</B>, <B>"The Dying Light"</B>&nbsp;и <B>"Weight of Empathy"</B>.<BR></P>
+Автор: Dimas
+
+### 30.06.2005 reviews Дебют, doom-metal, Австралия
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный альбом doom-metal группы из Австралии. Звучит достаточно привлекательно для </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"металлических" гурманов. Пожалуй, у этой группы есть недостатки, но для дебютного альбома все они простительны.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мне показалось, что все песни на этом альбоме были записаны на протяжении времени. Материал разнороден и не создаёт впечатления одного единого полотна. Начинается всё с милого грустного интро, первых тягучих аккордов, что может настроить вас на funeral настроение, но... Песня продолжается уже gothic-metal в духе<STRONG> PARADISE LOST</STRONG>, непритязательного такого gothic-metal.&nbsp;Плюс реализация несколько легковесна для doom-metal.&nbsp;И пусть группа иногда старается играть мрачно и&nbsp;"безнадёжно", вы уже знаете, что пройдёт совсем немного времени и загробная грусть превратится в любовную (ну, максимум мизантропичную), а это, согласитесь, не одно и тоже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отмечу вокалиста Марка, все отмечают, и я отмечу. Действительно, ему удаётся петь и гроулингом, и&nbsp;чувственным "финским" вокалом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пластинка неплохая. Где-то даже хорошая. Я думаю, стоит послушать, австралийцы ведь. Вот только не рассчитываете услышать шедевр, дебют, он и есть дебют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>P.S.:&nbsp;Кстати, на одной песене поёт&nbsp;бывший вокалист <STRONG>ANATHEMA Darren White</STRONG>. Ну, поёт и поёт, молодец...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A>&nbsp;&nbsp;</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

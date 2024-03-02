@@ -112,6 +112,108 @@ CD Mastered at dB Recordings Studio by Dali Sternisa
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.11.2002 news Новая команда на Sound Riot Records
+
+<p>Анонсирована норвежская группа Gaia Epicus, которая может быть интересна любителям heavy metal, участием в ней басиста легендарных TNT Morty Black. Пластинка представит из себя мелодичный power metal и выйдет в январе.</p>
+
+Автор: Vit Belov
+
+### 07.11.2002 news SOUND RIOT RECORDS new signing
+
+<p>Mr. Morty Black from legendary Heavy Metal band TNT from Norway will be playing bass on the GAIA EPICUS album! Album was called 'Satrap' and will release on Sound Riot in January.</p>
+
+Автор: Vit Belov
+
+### 19.09.2003 reviews Сатрап из страны сфинксов и анубисов.
+
+<P>История проекта Gaia Epicus начинается в 1992 году, когда гитарист и вокалист Thomas Hansenс двумя товарищами создал свою первую группу. Играли панк-рок. Похоже не плохо. Заняли на норвежском рок-фестивале четвертое место. Записали демо. В 93 в группу пришел новый барабанщик, который популярно объяснил друзьям, что играют они тухлую музыку, и они, попав под его влияния, меняют стиль на трэш, а название на Execution.</P>
+<P>В 96 году в группе появляется второй гитарист Joakim Kjelstad. Музыканты переключаются на прогрессив и павер метал и заниматься сменой названий. “Millenium” – “Theater Of Pain” - “Eternal Flame”. Постоянная чехарда составов привела к тому, что в начале 2001 Thomasи Joakim остались вдвоём и создали “Gaia Epicus”. Материал для их первого альбома был, в принципе, готов и оставалось его только качественно переписать. Для чего в студию, в качестве сессионных музыкантов, были приглашены, басист Morty, Black (TNT), ударник Alessandro Elide (Manifest) и клавишник DJ Dritskummel. Насчет качества я не уверен. Иногда барабаны звучат как кастрюли, тарелки, как алюминиевые крышки. Но это так… некоторые недочеты, мелкие недоделки. В целом то все неплохо.</P>
+<P>Хуже с обложкой. Опять египетские мотивы. Сфинксы, анубисы, космические корабли в форме пирамид бороздящие просторы Вселенной. Автор всего этого ужаса известный, в узких кругах, художник J. P. Fournier (Avantasia, Immortal, Freedom Call).</P>
+<P>В музыкальном плане все гораздо лучше. “Keepers Of Time”, “Heavens Gate”, “Fire & Ice”, “Inside The Storm”, “Die For The King” и “Cyber Future”- отличные Helloween/Gamma Ray-подобные прямолинейные скоростные мелодичные хиты с великолепными гитарными соло. “Watch The Sky”, “Freedom Calls” и “Star Wars” масштабные сложные полотна с обильными клавишами, скорее напоминают “Stratovarius”, то есть без лишних заумных наворотов. А вот инструментальная “Innovation” уже гораздо ближе к прог-металу. Ну и как не отметить новый гимн тяжелого метала – “Heavy Metal Heart”. Трогательная клятва верности. </P>
+<P>“Satrap” не самый оригинальный альбом, но зато очень правильный и очень мелодичный.</P>
+<P>Не думаю, что паверщики пожалеют о потраченных на CD деньгах.</P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 28.09.2004 news GAIA EPICUS работают над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежская power-metal группа <STRONG>GAIA EPICUS</STRONG> работает над вторым альбомом <STRONG>"Symphony of Glory" </STRONG>в <STRONG>Top Room Studios </STRONG>с продюсером <STRONG>Borge Finstad</STRONG>. Пластинка выйдет 9 декабря на <STRONG>Sound Riot</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Welcome</B> (intro)<BR>02. <B>Time and Space</B><BR>03. <B>Miracles</B><BR>04. <B>Sieze the Day</B><BR>05. <B>Hand of Fate</B><BR>06. <B>Wings of Freedom</B><BR>07. <B>Spanish Eyes</B><BR>08. <B>No Release?</B><BR>09. <B>Chamber of Secrets</B><BR>10. <B>Be Thy Cross My Victory</B><BR>11. <B>Symphony of Glory</B><BR></P>
+Автор: Vit Belov
+
+### 28.09.2004 news GAIA EPICUS are recording their second album
+
+<P><STRONG>GAIA EPICUS</STRONG> are currently with the producer <STRONG>Bшrge Finstad</STRONG> at famous <STRONG>Top Room Studios</STRONG> (<STRONG>Tristania, Vintersog, Borknagar</STRONG>) recording their 2nd album, they will take 5 weeks at studio. The album title will be "<STRONG>Symphony of Glory</STRONG>" and some song names are: <STRONG>Wings of Freedom, Time & Space</STRONG>, and <STRONG>Be Thy Cross My Victory</STRONG>. <STRONG>Michael A. Mueller</STRONG>&nbsp;will do the cover artwork; <STRONG>Michael</STRONG> has also done some works for <STRONG>Megadeth</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.03.2005 news Басист GAIA EPICUS погиб
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист норвежской power-metal группы<STRONG> GAIA EPICUS</STRONG> <STRONG>Yngve Hanssen</STRONG> погиб<STRONG> </STRONG>в автокатасрофе 2 марта. Ему было всего 29. RIP</FONT></P>
+Автор: Vit Belov
+
+### 31.03.2005 news GAIA EPICUS пытаются разорвать соглашение с Sound Riot
+
+<P><STRONG>GAIA EPICUS</STRONG> недовольны работой своего португальского лэйбла <STRONG>Sound Riot</STRONG>. По утверждению группы, лэйбл нарушил множество пунктов их контракта. В настоящее время коллектив ведёт консультации со своими адвокатами и ищет новый лэйбл.</P>
+Автор: Vit Belov
+
+### 05.05.2005 news GAIA EPICUS отказались покидать Sound Riot
+
+<P><STRONG>GAIA EPICUS</STRONG> будут всё-таки вынуждены выпустить альбом на <STRONG>Sound Riot</STRONG>, так как лэйбл отказался добровольно расторгнуть контракт. Напомним, что недавно группа грозилась подать в суд, так как португальская контора не выполнила условий контракта. Видимо, оказалось не слишком много аргументов.</P>
+Автор: Vit Belov
+
+### 21.08.2005 reviews Стандартный happy-power-metal
+
+<P><STRONG>GAIA EPICUS</STRONG>, хоть и выпускают уже второй альбом, вряд ли имеют шансы стать самой популярной группой в power-metal. Норвежский&nbsp;коллектив попытался привлечь к своим проблемам внимание слушателей, растрезвонив везде о своих&nbsp;трениях с издающим лэйблом Sound Riot.&nbsp;Мол, песни они местами хотят поменять, ещё что-то. Не знаю, на какое количество увеличится армия фэнов <STRONG>GAIA EPICUS</STRONG>, играют они вполне обыденный power. Можно и песни местами поменять, если надо...</P>
+<P>"<STRONG>Symphony Of Glory</STRONG>" настоятельно рекомендую любителям power-metal к прослушиванию. <STRONG>HELLOWEEN/GAMMA RAY</STRONG>-подобная музыка с живыми мелодиями. Некоторые песни поразительно напоминают и <STRONG>HELLOWEEN</STRONG>, и <STRONG>GAMMA RAY</STRONG> сразу. Это ничего. Зато если поискать, здесь есть хиты. Припевы хочется подпеть иногда.</P>
+<P>Реализация вновь не на самом высоком уровне, и это становится настоящей проблемой для <STRONG>GAIA EPICUS</STRONG>. Слушать порой альбом не очень приятно, а так как заменителей в мире тяжеляка полно, альбом может ждать печальная судьба.</P>
+Автор: Vit Belov
+
+### 04.08.2006 news Новый альбом GAIA EPICUS
+
+<P>Норвежские музыканты <STRONG>GAIA EPICUS</STRONG> закончили в <STRONG>Top Room Studios </STRONG>работу над своим третьим альбомом <STRONG>"Victory".</STRONG> Группа, по-прежнему, находится в поиске выпускающего лейбла. Трек-лист нового альбома:</P>
+<P>1. <B>New Life</B><BR>2. <B>Iron Curtain</B><BR>3. <B>The Sign</B><BR>4. <B>Revenge is Sweet</B><BR>5. <B>In Memory</B><BR>6. <B>Awaken the Monster</B><BR>7. <B>Rise of the Empire</B> <BR>8. <B>When Darkness Falls</B> <BR>9. <B>Fortress of Solitude</B> <BR>10. <B>Through the Fire</B><BR>11. <B>Victory</B><BR></P>
+Автор: Dimas
+
+### 19.09.2006 reviews Унылая симфония
+
+<P>Уже вторая полноформатная&nbsp;работа норвежского коллектива, лидером которого является <STRONG>Thomas Hansen</STRONG> -&nbsp;однофамилец небезызвестного немецкого маэстро, на творчество которого, в принципе, и ориентируется <STRONG>GAIA EPICUS</STRONG>. Как и первенец, этот альбом был записан в сжатые сроки (20 дней) и представляет собой образец наистандартнейшего и примитивного power speed metal, без какой-либо доли изобретательности. Вполне мелодичный и веселый материал сильно напоминающий <STRONG>HELLOWEEN</STRONG> и <STRONG>GAMMA RAY</STRONG>. Большую помощь в записи альбома музыкантам оказали их земляки из <STRONG>HIGHLAND GLORY</STRONG>, записав гостевые клавишные и вокальные партии. Правда, при этом, надо отметить, что хоровые партии звучат натужно и жидко, не идя в сравнение со многими коллективами.&nbsp;Также, угнетает качество записи. Вроде и неплохое, но лучше бы Hansen не сам занимался продюсированием своего проекта, а отдал бы его в руки&nbsp;другого известного&nbsp;датского однофамильца, который рулил звуком на альбомах <STRONG>HELLOWEEN</STRONG> и <STRONG>PRETTY MADES</STRONG>. Да и вокал самого маэстро Хансена (Томаса, а не Кая) совершенно неубедителен, а иногда просто портит всю музыкальную картину.&nbsp;На этом альбоме даже не за что зацепиться уху, ни одной песни выше среднего уровня. Даже не знаю кому порекомендовать сие творение, ну разве что самым упертым поклонникам классического power metal.</P>
+<P>P.S. Удручителен еще и тот факт, что басист группы <FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>Yngve Hanssen</STRONG> погиб<STRONG> </STRONG>в автокатастрофе 2 марта 2006 года. Ему было всего 29...</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен компанией <STRONG>MYSTIC EMPIRE</STRONG></FONT></P>
+Автор: Dimas
+
+### 06.02.2007 reviews Есть над чем работать
+
+<P>Норвежская power-metal группа GAIA EPICUS выпускает уже свой третий альбом. Коллектив покинул непонравившийся им португальский лэйбл Sound Riot со скандалом и теперь выпускается на собственном значке Epicus Records.</P>
+<P>“Victory” – достойное продолжение карьеры норвежцев. Забавно, что группа сочетает в себе, казалось бы, не сочетаемые вещи. Штампы от классического power-metal и некую самобытность. На предыдущих альбомах лидер группы Thomas Hansen активно эксплуатировал различные мелодические решения HELLOWEEN и EDGUY, но выходило это у него так хорошо, что альбомы наполучали кругом хороших оценок и были встречены очень тепло публикой. На новой работе GAIA EPICUS пошли ещё дальше. Влияний EDGUY почти не осталось, зато появились влияния совсем ранних HELLOWEEN и, внимание, … MEGADETH!!! По крайней мере, я услышал некоторые элементы ранних альбомов корифеев thrash-metal. Отмечу, что саунд группы остаётся power-metal’ическим, но музыка стала более прямолинейной и забойной, что ли. Конечно, на альбоме полно и power-metal хитов. Также ассоциации с вышеперечисленными группами могут быть связаны и с вокалом норвежского Hansen. Он такой же неканонический, как у Mustaine и немецкого Hansen.</P>
+<P>И всё-таки GAIA EPICUS никак не удаётся пробить дорогу на самый верх. Не помогает ни запоминающееся название, ни отличные обложки (в этот раз тоже всё на уровне). Наследие power-metal тянет группу вниз. Норвежцам надо прибавить и в оригинальности, и в хитовости песен. Есть над чем работать.</P>
+Автор: Vit Belov
+
+### 28.11.2007 news Новый GAIA EPICUS
+
+<P>Новый альбом <STRONG>GAIA EPICUS</STRONG> будет называться "<STRONG>Damnation</STRONG>" и выйдет в марте 2008 года. Пластинка будет записана с участием сессионных басиста и клавишника. Трэк-лист:</P>
+<P>01. <B>Damnation</B><BR>02. <B>Masters of the Sea</B><BR>03. <B>Firestorm</B><BR>04. <B>The Wizard's Return</B> (instrumental)<BR>05. <B>You are a Liar!</B><BR>06. <B>Cyborgs from Hell</B><BR>07. <B>The Saviour (Will Come)</B><BR>08. <B>A Hero in All</B><BR>09. <B>Salvation is Here</B></P>
+Автор: Vit Belov
+
+### 18.03.2008 news GAIA EPICUS выложили картинку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.03/12380.jpg" width=400 align=right border=5>GAIA EPICUS</STRONG> опубликовали обложку своего нового альбома "<STRONG>Damnation</STRONG>", который выйдет этим летом. В записи этой работы приняли участие <STRONG>Roland Grapow</STRONG> (<B>MASTERPLAN</B>, ex-<B>HELLOWEEN</B>)&nbsp;и <B>Andreas Olsson</B> (<B>NARNIA</B>, <B>ROB ROCK</B>, <B>STORMWIND</B>).<BR></FONT></P>
+Автор: Vit Belov
+
+### 23.02.2009 news GAIA EPICUS уже планируют альбом
+
+<P>Норвежцы<STRONG> GAIA EPICUS</STRONG> не успели выпустить свой четвёртый альбом "<STRONG>Damnation</STRONG>", как уже анонсировали пятую пластинку. Известны не только названия некоторых песен,&nbsp; <B itxtvisited="1">'Beyond The Universe'</B>, <B itxtvisited="1">'The Raven'</B>, <B itxtvisited="1">'Lost Forever'</B>&nbsp;и <STRONG>'Behind These Walls', </STRONG>но и название самого альбома - <STRONG>'Dark Secrets'.</STRONG></P>
+Автор: Vit Belov
+
+### 17.04.2009 reviews Best of Power-Metal
+
+<P>Норвежская группа GAIA EPICUS не очень вписывается в современную металл-сцену. Сначала у музыкантов были проблемы с издающим лэйблом Sound Riot, с которым со скандалом был расторгнут контракт, а теперь GAIA EPICUS стали one-man project гитариста-вокалиста Thomas Hansen.</P>
+<P>С другой стороны, этот Hansen активно «вписывается» в виртуальную тусовку power-metal’истов. На всех альбомах у него присутствует кучка приглашённых звезд разного уровня, чаще всего низкого, конечно же. Коллектив активно поддерживается на разнообразных новостных сайтах, публикуются интервью в различных «зинах». Да и сама музыка представляет собой набор power-metal хитов, понадёрганных из творчества лучших групп стиля. Это не плагиат, но очень качественное подражание HELLOWEEN, GAMMA RAY, IRON SAVIOR… На четвёртом альбоме “Damnation” можно найти трэки в стиле этих групп. Здесь и фэнтази, и одна огромная эпическая вещь, и параноидально оптимистические боевики о победе над злом. Самое смешное, что этот альбом увлекает. Его хочется послушать ни один раз, так что, если вы любитель стиля, вам есть на что обратить внимание.</P>
+<P>GAIA EPICUS – хорошая крепкая евро-power-metal команда. Отличное блюдо для коллекционеров стиля с запоминающимися мелодиями и предсказуемыми ходами.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

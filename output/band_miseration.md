@@ -58,6 +58,49 @@
 * C группой "Unmoored" Christian Alvestam
 * C группой "Solution .45" Christian Alvestam
 
+## Публикации
+
+### 10.02.2009 reviews Тяжеленный melodic death-metal от гитариста-христианина
+
+<P>MISERATION – совместный проект гитариста-мультиинструменталиста Jani Stefanovic и бывшего певца SCAR SYMMETRY Christian Alvestam. Господин Stefanovic очень плодовит. Его проекты не всегда захватывают дух своей музыкой, но всегда поражают своим качеством.</P>
+<P>В этот раз музыкант решил сыграть предельно тяжёлый для себя melodic death-metal, где стандартные для этого шведского стиля мелодические проходы сменяются практически брутальным забоем. Jani известен узком кругу поклонников скандинавского тяжёлого металла своими проектами DIVINE FIRE, MEHIDA, SINS OF OMISSION и ещё десятью другими совсем малоизвестными группами. DIVINE FIRE, например, вызвали у меня восторженную реакцию. Христианский power-metal максимально возможной тяжести впечатлял. В случае с MISERATION мы тоже имеем продукт, за который не стыдно. К сожалению, каких-то явных хитов мне заметить не удалось, но просто заполнить свой вечер прослушиванием хорошей музыки с помощью этой работы возможно. MISERATION курсируют от death-metal через melodic death-metal куда-то в район sympho-black. Господин Alvestam использует гроулинг, что тоже отличает в лучшую сторону эту пластинку, повальное увлечение чистыми вокалами её не задело.</P>
+<P>Я думаю, Jani Stefanovic считает этот альбом тяжелейшим. Не будем его переубеждать, ведь его уверенностью заразились даже на Союзе, там сравнивают альбом с HATE ETERNAL. Ничего подобного здесь конечно нет, но освежить своё восприятие melodic death-metal, как стиля, “Your Demons – Their Angels” позволят.</P>
+Автор: Vit Belov
+
+### 25.04.2009 news MISERATION войдут в студию
+
+<P>Шведы <STRONG>MISERATION</STRONG> войдут в <STRONG>Panic Room </STRONG>в конце июня для записи нового альбома. Пластинка будет называться <STRONG>"The Mirroring Shadow" </STRONG>и выйдет в конце года на<STRONG> Lifeforce</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.09.2009 news MISERATION закончили работу
+
+<P>Второй альбом <STRONG>MISERATION</STRONG> <STRONG>"The Mirroring Shadow" </STRONG>выйдет 16 ноября на <STRONG>Lifeforce</STRONG>. Пластинка была записана в студии <STRONG>Panic Room</STRONG>&nbsp;с продюсером <STRONG>Tomas "Plec" Johansson</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=400 src="/images/news_rus/2009.09/15031.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 31.05.2010 news Jani Stefanovic покинул SOLUTION.45 и MISERATION
+
+<P>Гитарист <STRONG>Jani Stefanovic</STRONG> покинул <STRONG>SOLUTION .45</STRONG> и <STRONG>MISERATION</STRONG>. В своём заявлении талантливый гитарист сообщил, что сделал это, из-за желания больше времени проводить со своей семьёй и друзьями. Новым гитаристом этих групп стал музыкант, известный по <STRONG>TORCHBEARER</STRONG>, <STRONG>Patrik Gardberg.</STRONG></P>
+<P><STRONG>Jani</STRONG> был одним из двух основных авторов музыки обоих групп, которые были созданы им совместно с вокалистом <STRONG>Christian Alvestam</STRONG>, ушедшим из <STRONG>SCAR SYMMETRY</STRONG>. Кое-какая музыка гитариста будет и на второй работе <STRONG>SOLUTION .45</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.01.2012 news Новый клип MISERATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>MISERATION</STRONG> сняли новый клип на песню "<STRONG>Dreamdecipher</STRONG>", который можно посмотреть ниже. Коллектив является плодом кооперации бывшего вокалиста <STRONG>SCAR SYMMETRY Christian Alvestam</STRONG> и гитариста <STRONG>Jani Stefanovic (DIVINEFIRE, SOLUTION.45)</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2JkYLQumvH8?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2JkYLQumvH8?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.04.2012 news Обложка нового MISERATION
+
+<P>Новый альбом шведов <STRONG>MISERATION "Tragedy Has Spoken"</STRONG> выйдет 2 июля. Обложку для этой работы создал <STRONG>Par Olofsson (IMMORTAL, ABYSMAL DAWN, IMMOLATION, THE FACELESS)</STRONG>. Её можно увидеть ниже.</P>
+<P><center><IMG height=475 src="/images/news_rus/2012.04/23667.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -60,6 +60,64 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.06.2008 reviews Не лучшее открытие Napalm Records
+
+<P>Голландский коллектив выпустил на Napalm Records всю свою дискографию. Вместе с новым альбомом “Walhalla Wacht” вышло переиздание дебюта группы, добитого миньоном. Что ж, знаменитый австрийский лэйбл, видимо, решил ознакомить нас сразу со всем творческим багажом этой нетривиальной, по их мнению, группы.</P>
+<P>Сначала о Napalm Records. Лэйбл в последнее время поймал новую волну в своём бизнесе. Группы с женским вокалом и языческий металл. Действительно в популярности этим стилям не откажешь, в том числе и в нашей стране. Австрийцы собирают язычников по всей Европе, таким образом, выводя их на новую орбиту, ведь дистро Napalm Records более сильная, чем у любого UG лэйбла, где до недавнего времени обитали новые выдвиженцы. Среди них и наши земляки АРКОНА, фарерский TYR, KAMPFAR. Эти группы заслуживают всяческого внимания. Обратим свой взор на новых героев HEIDEVOLK.</P>
+<P>Голландцы исполняют достаточно приземлённую folk-metal музыку c чистым вокалом. По звучанию они ближе всего к TYR, но явно уступают им в качестве музыки. HEIDEVOLK не отягощают себя сочинением сложных мелодий или аранжировок. Они играют проверенные временем песни, куски которых можно встретить у многих классиков жанра. Например, STORM, которые гремели в середине 90-х, сейчас слушаются уже не с таким восторгом. Чего уж говорить о newcomers, у которых нет таких заслуг перед современной metal музыкой.</P>
+<P>HEIDEVOLK можно посоветовать только большим любителям folk-metal музыки. «Заунывная», нетяжёлая, но с использованием рожков и скрипок, она способна понравиться коллекционерам этого стиля.</P>
+Автор: Vit Belov
+
+### 10.11.2009 news HEIDEVOLK начали запись
+
+<P>Голландцы<STRONG> HEIDEVOLK</STRONG> вошли в студию <STRONG>S&K Studio </STRONG>с продюсером <STRONG>Dick Kemper</STRONG>&nbsp;для записи нового альбома, который выйдет в начале следующего года. На пластинку попадут 11 вещей, которые простилаются "от эпических и фолковых до брутальных и безжалостных", как сказано в пресс-релизе.</P>
+Автор: Vit Belov
+
+### 02.12.2009 news Новый альбом HEIDEVOLK
+
+<P><STRONG>HEIDEVOLK </STRONG>закончили работу над новым альбомом <STRONG>"Uit Oude Grond" </STRONG>в <STRONG>S&K Studio</STRONG> с продюсером <STRONG>Dick Kemper</STRONG>. Трэк-лист:</P>
+<P>01. <B>Nehalennia</B> <BR>02. <B>Ostara </B><BR>03. <B>Vlammenzee</B> (Sea Of Flames)<BR>04. <B>Een Geldersch Lied</B> (A Gueldrian Song)<BR>05. <B>Dondergod</B> (God Of Thunder)<BR>06. <B>Reuzenmacht</B> (Giants' Might)<BR>07. <B>Alvermans Wraak</B> (Revenge Of The Alverman)<BR>08. <B>Karel Van Egmond, Hertog Van Gelre</B> (Karel Of Egmond, Duke Of Guelders)<BR>09. <B>Levenslot</B> (Fate Of Life)<BR>10. <B>Deemstering</B> (Dusk)<BR>11. <B>Beest Bij Nacht</B> (Beast By Night)</P>
+Автор: Vit Belov
+
+### 27.01.2010 news Новая песня HEIDEVOLK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> HEIDEVOLK</STRONG> <STRONG>"Uit Oude Grond" </STRONG>выйдет 26 марта на<STRONG> Naplam Rec</STRONG>ords. Новую песню группы <STRONG>"Nehalennia" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/OfficialHeidevolk">http://www.myspace.com/OfficialHeidevolk</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэк-лист:</FONT></P>
+<P>01. <B>Nehalennia</B> <BR>02. <B>Ostara </B><BR>03. <B>Vlammenzee</B> (Sea Of Flames)<BR>04. <B>Een Geldersch Lied</B> (A Gueldrian Song)<BR>05. <B>Dondergod</B> (God Of Thunder)<BR>06. <B>Reuzenmacht</B> (Giants' Might)<BR>07. <B>Alvermans Wraak</B> (Revenge Of The Alverman)<BR>08. <B>Karel Van Egmond, Hertog Van Gelre</B> (Karel Of Egmond, Duke Of Guelders)<BR>09. <B>Levenslot</B> (Fate Of Life)<BR>10. <B>Deemstering</B> (Dusk)<BR>11. <B>Beest Bij Nacht</B> (Beast By Night)</P>
+Автор: Vit Belov
+
+### 07.04.2010 news Видео-клип HEIDEVOLK
+
+<P>Новый клип <STRONG>HEIDEVOLK</STRONG> <STRONG>"Nehalennia" </STRONG>появился в сети. Посмотреть его можно ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/KBpDom4QWHE&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/KBpDom4QWHE&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.09.2010 reviews Бесхребетная музыка
+
+<P>Голландцы HEIDEVOLK – плод активной региональной работы австрийского лэйбла Napalm Records. Начав коллекционировать группы в стиле pagan-metal, эта контора обратила свой взгляд на активно растущие сцены в странах, которые до этого не могли похвастаться успешными актами. Голландия никогда не славилась чем-то кроме gothic-metal с женским вокалом и GOREFEST с SINISTER. Честно говоря, и сейчас этой стране на pagan металической сцене похвастать нечем. HEIDEVOLK интересны только ярым коллекционерам.</P>
+<P>Два года назад Napalm Records порадовали нас сразу двумя работами этих голландцев. Наряду с новой на тот момент второй работой был переиздан и дебют, который до этого не заинтересовал ни один лэйбл. Новая пластинка, вышедшая этой весной, выдержана в ключе прошлых двух. Пожалуй, можно отметить большую долю чистого вокала в современном творчестве HEIDEVOLK. Музыка этого коллектива, как мне кажется, не имеет хребта. Простые и достаточно лёгкие для стиля гитарные прогоны с редким вкраплением народных инструментов – это всё, что могут предложить музыканты. Создаётся такое, пусть и обманчивое, впечатление, что подобный альбом смогла бы записать любая, даже начинающая, команда юношей-музыкантов. Здесь нет ярких мелодий, нет техничного исполнения, нет даже какой-то особенной атмосферы. Мы имеем незатейливое переложение народных мелодий на язык тяжёлой музыки, этим сейчас уже никого не удивить.</P>
+<P>Думается, слушать этот альбом будут только из-за «правильной» его направленности. Лирически HEIDEVOLK подпитывают гордость язычников всей Европы. Как впрочем и сотни других подобных коллективов.</P>
+Автор: Vit Belov
+
+### 28.01.2012 news Новый HEIDEVOLK выйдет в марте
+
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2012.01/22844.jpg" width=240 align=right border=0>Голландские folk-metal'исты <STRONG>HEIDEVOLK </STRONG>подготовили к релизу в марте на <STRONG>Napalm Records</STRONG> новый альбом "<STRONG>Batavi</STRONG>". Трек-лист:</P>
+<P>1. <STRONG>Een nieuw begin</STRONG> (A New Beginning) <BR>2. <STRONG>Als ons de toekomst lonkt</STRONG> (When The Future Beckons) <BR>3. <STRONG>Het verbond met Rome</STRONG> (The Alliance With Rome) <BR>4. <STRONG>Wapenbroeders</STRONG> (Brothers In Arms) <BR>5. <STRONG>In het woud gezworen</STRONG> (Sworn In The Woods) <BR>6.<STRONG> Veleda</STRONG><BR>7. <STRONG>Als de dood weer naar ons lacht</STRONG> (When Death Smiles At Us Again) <BR>8. <STRONG>Einde der zege</STRONG> (The End Of Victory) <BR>9. <STRONG>Vrijgevochten</STRONG> (Fought To Freedom) </P>
+Автор: Vit Belov
+
+### 20.02.2012 news Новый клип HEIDEVOLK
+
+<P>Новый ролик <STRONG>HEIDEVOLK</STRONG> на песню ‘<STRONG>Als De Dood Weer Naar Ons Lacht’</STRONG> можно посмотреть ниже. Трек взят с новой пластинки группы <STRONG>"Batavi"</STRONG>, который выйдет 2 марта на <STRONG>Napalm Records</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/WReRUdTF2tA?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

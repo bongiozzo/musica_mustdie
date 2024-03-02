@@ -36,6 +36,49 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.04.2008 news Первое видео DEVIAN
+
+<P>Шведская black-death-metal группа<STRONG> DEVIAN</STRONG> выложила в сеть своё дебютное видео на песню "<STRONG>Scarred</STRONG>". В составе коллектива бывшие члены <STRONG>MARDUK</STRONG>: вокалист<STRONG> Legion</STRONG> и барабанщик <STRONG>Emil Dragutinovic</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/LrZyIGYPnZk&hl=en"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/LrZyIGYPnZk&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 29.07.2008 news DEVIAN в студии
+
+<P>Группа бывшего вокалиста <STRONG>MARDUK Legion DEVIAN</STRONG> вошла в студию для записи второго альбома.</P>
+Автор: Vit Belov
+
+### 12.02.2009 news Видео от DEVIAN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Нецензурированную версию видеоклипа <STRONG>DEVIAN</STRONG> на песню <STRONG>"Assailant" </STRONG>можно посмотреть ниже. Ролик был снят <STRONG>Rasmus Tirzitis</STRONG> / <STRONG>Tirzitis Entertainment, </STRONG>и, по словам группы, вряд ли попадёт на телевидение.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/yt_W_vo3WZ8&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/yt_W_vo3WZ8&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.04.2009 reviews Всё дальше от MARDUK
+
+<P>DEVIAN – группа бывшего вокалиста MARDUK Legion – выпускает уже второй альбом. Бывший суровый вояка немного смягчил свои требования к музыке. Несмотря на наличие ножа и крови на обложке, DEVIAN уже никого не обманут.</P>
+<P>Дебют, вышедший в 2007, производил впечатление на всех любителей black-death-metal, но мелодическая эволюция сделала своё дело, и теперь DEVIAN адресуется любителям мелодичного и тяжёлого материала. “God To The Illfated” наполнен до краёв мелодичными гитарными соло. В некоторых местах встречается даже неоклассика!!! Любителям MARDUK посоветовать этот альбом уже нельзя, но ведь не на одном «брутале» свет клином сошёлся? Этот альбом впечатлит всех любителей мелодий. И им есть, где разгуляться. DEVIAN немного напоминают поздний BELPHEGOR, правда, их музыка не столь мрачна и бескомпромиссна, а мелодии не столь болезненны.&nbsp; </P>
+<P>Советую DEVIAN. Это не восторг, но качество и мелодизм, вкупе с black-death-metal радуют. Зачётная работа.</P>
+Автор: Vit Belov
+
+### 24.06.2011 news DEVIAN прекратили своё существование
+
+<P><IMG height=255 alt="" hspace=0 src="/images/news_rus/2011.06/19713.jpg" width=475 align=right border=0>Многообещающапя шведская группа <STRONG>DEVIAN</STRONG> прекратила своё существование, издав всего два альбома. После того, как коллектив покинул вокалист <STRONG>Legion</STRONG> (ex-<STRONG>MARDUK</STRONG>), а лэйбл <STRONG>Century Media</STRONG> отказался от группы, <STRONG>DEVIAN</STRONG> не смогли найти нового издателя, который удовлетворил бы их студийные запросы. </P>
+<P>Некоторое время поэксперементировав с чистым вокалом, <STRONG>DEVIAN </STRONG>объявили о прекращении обственного существования.</P>
+<P>Некоторые музыканты продолжают свой творческий путь. Например, гитарист <STRONG>Tomas Nilsson</STRONG> работает над hardcore проектом <STRONG>Aktiv Dodshjalp</STRONG> вместе с <STRONG>Roberth Karlsson</STRONG> (ex-<STRONG>DEVIAN, ex-EDGE OF SANITY, FACEBREAKER, SCAR SYMMETRY</STRONG>).</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

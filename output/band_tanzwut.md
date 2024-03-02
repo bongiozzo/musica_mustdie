@@ -126,6 +126,557 @@ DISC 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 23.02.2005 news TANZWUT в Москве
+
+<P><IMG height=285 alt="" hspace=0 src="/images/shows_rus/2005.03/7890.jpg" width=400 align=left border=5>«МАИ тур-сервис» представляет российскую презентацию альбома “LIVE” фолк-гот-группы из Германии TANZWUT!!!</P>
+<P>12 марта 2005 года, TANZWUT дадут единственный московский концерт. ВПЕРВЫЕ В РОССИИ!!!</P>
+<P>Вход открыт с 19:00. Начало концерта в 20:00.</P>
+<P>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></P>
+Автор: Vit Belov
+
+### 25.02.2005 articles TANZWUT: пресс-релиз концерта
+
+<P>«МАИ тур-сервис» представляет&nbsp;&nbsp;&nbsp; российскую презентацию альбома “LIVE” фолк-гот-группы из Германии TANZWUT.<BR>12 марта 2005 года, TANZWUT дадут единственный московский концерт. ВПЕРВЫЕ В РОССИИ!<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>В конце 90-х годов участники немецкого фолкового проекта, специализировавшегося на средневековой музыке, "Corvus Corax" организовали новую музыкальную единицу под названием "Tanzwut" (что можно перевести как "неистовый танец"). В команду вошли Тойфель (вокал), Брандан (волынка, гитара), Кастус (лира, волынка, ударные, вокал, шалмайн, драмшайт), Вим и Колл.А (волынки, свирели, дудки). Группа пошла по пути, проложенного другим германским коллективом, "In extremo"– скрещивание средневековых мотивов и современных ритмов (только с уклоном не в рок, а в электронику), этакий готический индастриал середины тысячелетия. <BR>Одним из ведущих инструментов в "Tanzwut" стали волынки, изготовлением которых, кстати, занимался один из участников проекта. Кроме этого были использованы такие экзотические вещи как шалмайн и драмшайт (специальные средневековые инструменты). Облаченные в кожу и увешанные цепями музыканты создавали на концертах нВ 1999 году "Tanzwut" записали свой дебютный диск с одноименным названием. Альбом содержал одиннадцать треков, среди которых были две инструментальные вещи, "Das Schicksal" и "Die Balz", удачные композиции "Verruckt", "Konigreich", "Im Rausch" и потенциальный хит с красивейшим вокалом "Augen Zu", изданный впоследствии синглом. Критики отнеслись к пластинке с изрядной долей скептики, но музыкантов это не особо смутило. В компании с группой "Umbra et Imago" они записали отличную песню "Weinst du?", изданную синглом. Приступив к работе над вторым альбомом с новым продюсером Томми Хейном, в 2000 году они выпустили "Labyrinth der Sinne". <BR>В отличие от дебюта пластинка, содержавшая уже тринадцать треков, получилась более ровной и качественной, а композиции стали более зрелыми и профессиональными. <BR>Первая композиция под названием "Tanzwut" когда-то входила в репертуар "Corvus corax", но была переделана музыкантами до неузнаваемости. Кроме этого на пластинке присутствовали песня о садомазохизме "Bitte, bitte", ремикс на бетховеновскую "Оду радости", композиция "Gigolo", удачно сочетающая элементы индастриала и средневековой музыки, а также другие интересные вещи. Следующие за выходом "Labyrinth der Sinne" два года были потрачены группой на концертные выступления и подготовку следующего диска. <BR>Третий альбом группы, "Ihr wolltet Spass", появился на прилавках музыкальных магазинов в апреле 2003 года. А незадолго до этого Брандона сменил гитарист по имени Патрик <BR>Биография <BR>«В лето 1351 от Рождества Христова проскакал Черный Всадник по Европе и собрал богатый урожай. И пришли в город музыканты с волынками и барабанами и сказали людям: «Вот, видите, смерть стоит у вашего порога, и все бессмысленно». И заиграли. И впали люди в безумство, и перед лицом смерти закружились в неистовом танце. И смерть отступила, ибо встала на ее пути Пляшущая Ярость – Tanzwut». <BR>На пороге третьего тысячелетия это полузабытое слово из немецких сказаний вернулось в мир вместе с самой молодой группой, играющей в стиле Neue deutsche Hдrte. Пятерка берлинцев: Teufel(вокал), Brandan (гитара), Castus (волынки, рожки, Drumscheit), Tec (клавишные) и Norry (барабаны) – выбрала для себя именно это название. Несмотря на официальную принадлежность к Neue deutsche Hдrte, музыка Tanzwut коренным образом отличается от творений собратьев по цеху. Помимо стандартных электро-гитар, клавишных и барабанов, Tanzwut используют несколько средневековых инструментов: волынку, немецкий рожок, а также инструмент, называемый по-немецки Drumscheit. «В Средние Века этот инструмент называли Marina Trombona и использовали в монастырях для имитации низких голосов монахов», - объясняет Teufel. – «Сумасшедший инструмент, первый дисторшн в мире. Очень трудно объяснить, как он выглядит, если Вы никогда его не видели. В общем, это деревянная планка с натянутой струной. Звучит обалденно – как ррррр!!!» <BR>Помимо пятерых постоянных музыкантов в группе есть еще два сессионных волынщика: Wim и Koll A., - которых приглашают на концерты. <BR>Самое поразительное заключается в том, что все средневековые инструменты делает один из музыкантов. «Это не какое-то там любительство из серии «сделай сам», - с гордостью подчеркивает Teufel. – «Он профессионал и действительно изучал это серьезное искусство. Мы считаем, что он делает лучшие волынки в мире, и очень рады, что он играет в нашей группе». <BR>Tanzwut – не первый проект Тойфеля и компании. До этого в течение почти 9 лет они играли чистой воды средневековую музыку и назывались Corvus Corax (Черные Вороны (лат.)). В конце концов Средневековье им прискучило и ребята решили завертеть мир в безумной пляске ярости – как те музыканты много веков назад. <BR>Музыку Tanzwut не спутаешь ни с какой другой. Она соединяет в себе жесткие гитарные риффы, техно-ритмы и средневековые напевы. У берлинской пятерки всего 2 альбома. Зато каких! Первый, с одноименным названием, вышел в 1999 году (Tanzwut делали его вместе с продюсером Die Toten Hosen Jon Cafferey). Второй – «Labyrinth der Sinne» (Лабиринт разума) – в 2000 г. Они похожи и не похожи. В первом примерно поровну жестких индустриальных композиций и стилизованных под Средневековье инструменталов. Второй более однородный. В нем меньше киданий из крайности в крайность, музыка менее агрессивная, а сам стиль можно (с известной долей условности) определить как фолк-индастриал. <BR>Tanzwut на сцене – это воплощенная в явь фантазия средневекового чернокнижника. Пять человек в цепях, шипах, металлических килтах и бог знает в чем еще бегают по сцене с волынками и творят такое, что хочешь не хочешь, а ярость танца тебя захватит. В Mexico, в ходе одного из концертов они буквально ввергли в экстаз 16.000 толпу. В Европе число их поклонников растет постоянно, особенно среди женщин. Как верно отметил Castus: "Девушкам нравится такое - пятеро мужиков на сцене, которые не одеваются слишком тепло..." ...и выглядят при этом будь здоров! Так или иначе концерт в Mexico был не последним концертом TANZWUT где трусы и лифчики летели на сцену. <BR>Берлинские волынщики принимают довольно активное участие в жизни немецкой рок-тусовки. Они дружат с Rammstein («Наши репетиционные базы находятся по соседству и мы знаем друг друга уже много лет» (Teufel)). Недавно Tanzwut сделали 2 совместных шоу с Megaherz. Свой последний альбом украсили отличной ковер-версией на песню Die Дrzte „Bitte, bitte“. С Umbra et Imago записали песню «Weinst Du», которая вошла в последний альбом Umbra et Imago «Mea Culpa». После выхода в 1999 году сингла «Weinst Du» Tanzwut и Umbra et Imago провели совместное турне по Европе, имевшее грандиозный успех. В будущем обе команды собираются его повторить. <BR>«То, что мы играем, это ни рок-н-ролл, ни техно, ни драм-н-басс. Так что же это?» - спрашивает Teufel. И сам же отвечает: «Это Tanzwut». </P>
+<P><BR>Вход открыт с 19:00. Начало концерта в 20:00.</P>
+<P>Стоимость билетов:<BR>400 р. – студентам МАИ и владельцам ISIC-карт,<BR>500 р. – танцпол (предварительная продажа в CDK МАИ),<BR>600 р. – танцпол (стоимость в городских кассах и в CDK МАИ в день концерта)<BR>1200 р. – балкон</P>
+<P><BR>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A><BR>Аккредитация журналистов - агентство MediaPolis. Справки по тел: (095) 970-1283 (Ольга Сальникова, <A href="mailto:mail@mediapolis.ru">mail@mediapolis.ru</A>, Ольга Попова <A href="mailto:news@mediapolis.ru">news@mediapolis.ru</A>). </P>
+Автор: Vit Belov
+
+### 15.03.2005 articles TANZWUT в Москве: сумасшедшая немецкая дискотека.
+
+<P><IMG height=330 alt="" hspace=0 src="/images/articles_rus/2005.03/8113.jpg" width=400 align=left border=5>Концерт немецкой группы TANZWUT, по моему мнению, вполне мог затеряться среди шоу, которые окружали его – CREMATORY и LAKE OF TEARS. К радости, этого не произошло. Представление немцев в СДК МАИ посетило достаточное количество фэнов немецкой готическо-народной музыки.</P>
+<P>Никаких особенных проблем с организацией концерта не возникло, пожалуй, только начало задержалось на пол часа. СДК МАИ – место, которое можно рекомендовать к посещению металлистам любой категории платёжеспособности. </P>
+<P>В 21-30 на сцене появилась группа. Уйти от сравнений с другими звёздами, которых мы могли увидеть за последний месяц не удастся. Что ж, если вы хотели шоу, вы должны были посетить этот концерт. Я не стану распространяться и критиковать саму музыку TANZWUT, к которой могут быть претензии. К происходящему на сцене претензий быть не может. Начнём с того, что на ней был построен дополнительный подиум, таким образом, барабанщик и клавишник оказались под самым потолком. Спереди находились гитарист, басист и певец, а «свободными» бегающими игроками стали два мастера духовых инструментов: волынок и разнообразных рожков. Имидж музыкантов можно сравнить с обликом RAMMSTEIN, те же фартуки и «грязные лица». К элементам шоу можно отнести светящиеся гитары, авангардные головные уборы, инвалида с радиолой, выкатываемого перед одной из песен. Периодически все артисты, кроме клавишника и барабанщика, хватали волынки и бегали по сцене, изрядно заводя зал. Именно, звучание волынок особенно привлекало слушателей, которые от этого протяжного звука просто бесновались.</P>
+<P>Есть всё-таки один вопрос к TANZWUT. Его могут задать поклонники «живых» рок-концертов. Что играли ребята, осталось для меня неизвестным? Волынки не были подключены ни к чему, хотя, возможно, бывают и электрические варианты. Но электрических вариантов «дудочек», маленьких таких, быть не может. Плюс ко всему, эти «дудочки» звучали идентично волынкам. Также мне неизвестно, что играл гитарист, который довольно часто отвлекался, но звуковая стена от этого совсем не страдала. В общем, выходит так, что мы присутствовали на дискотеке, где, признаться, шоу-артисты неплохо заводили публику.</P>
+<P>Резюмируя всё сказанное, отмечу, что шоу TANZWUT превосходит продукты многих артистов, приезжавших к нам в гости. Если же вы ортодоксальный рокер, то вряд ли вы его бы оценили по заслугам.</P>
+<P>Фотографии: <A href="/ru/galleries/1/147/">http://musica.mustdie.ru/ru/galleries/1/147/</A></P>
+Автор: Vit Belov
+
+### 10.05.2005 reviews Присоеденись к яростному танцу
+
+<P>· Скажу прямо – двойной концертный CD группы Tanzwut стоит брать только в том случае, если у вас дома нет DVD проигрывателя. И если вы действительно только слушаете «Live», знайте, вы не получаете ровно пятидесяти процентов удовольствия, от того, что могло б вам подарить группа «Яростный танец». На мой взгляд, аудиоверсия сильно теряет по сравнению с полным вариантом. Теряется атмосфера, некоторые песни становятся скучными, а во время просмотра, не говоря уже о присутствии на живом концерте, благодаря прекрасному шоу, любая, даже не самая хитовая песня воспринимается на ура. Могли б сократить концертник до одного компакта. Драйва было б больше.</P>
+<P>· Но если не знать, на сколько здорово Tanzwut смотрятся на сцене, то альбом заслуживает очень высокой оценки. Прекрасное качество записи, адекватная реакция публики на выступление любимой команды, не теряется ощущение, что это всё же живое выступление. Отличный сет-лист на 26 песен – гарантия того, что свою любимую композицию вы услышите. </P>
+<P>· Одна из лучших концертных записей, что я слышал. Объективная оценка – 9 из 10.</P>
+<P>· Но я видел DVD… и я был на их живом выступлении в ДК МАИ (кстати, тот сет-лист почти совпадал с записанными треками с “Live”, если я не ошибаюсь, на московском концерте прозвучали три песни отсутствующие на альбоме, но и штук 5 с альбома не попали в московский сет-лист) и поэтому оценка всего 6…</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Дофф
+
+### 16.02.2008 news TANZWUT снова в Москве
+
+<P>
+<CENTER><IMG height=553 src="/images/news_rus/2008.03/12090.jpg" width=400 border=0></CENTER>
+<P>
+<CENTER>15 марта, Москва, клуб «Точка» 20:00<BR>Цена билета в предварительной продаже: 900 р.<BR>Билеты в предварительной продаже в кассах клуба, магазинах Зиг-Заг, Рок арсенал.</CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 01.12.2012 articles Wave Gotik Treffen 2012, 25 - 28 мая, Лейпциг, Германия
+
+<H2>25 мая 2012, пятница: Первый день</H2>/ <A href="/ru/galleries/61/1051">Галерея</A> 
+<P>Первый день начался традиционно с языческой деревни. Нет, конечно же при желании можно начать фестивальную пятницу в клубе или в парке Агра, но мне нравится открывать для себя WGT под звуки волынок. К тому же в этот день деревня не забита людьми — можно спокойно побродить по территории, поразглядывать товар на прилавках и выпить бокал медового вина.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1055/30386.jpg"></DIV>
+<P>Деревня располагается на территории исторического объекта — водяной мельницы Дёлиц и её ворота открываются в 11 утра. У языческого поселения своя программа, которая стоит особняком. Выступления групп сменяют театрализованные представления, танцы и чтения — с утра и до поздней ночи. Но в пятницу мне довелось увидеть лишь Reliquiae — команду, играющую средневековый фолк. Группа была создана в 2009 году пятью музыкантами, которые поставили своей целью тщательно изучить традиции и культуру средневековья и донести их до современности с помощью музыки.</P>
+<P>Следующим обязательным номером пятничной программы стал викторианский пикник в парке Клары Цеткин. Формально его суть в том, что на пикник приходят все желающие с пледами, корзинками, легкой едой и напитками — всем, что нужно для пикника. Единственное условие — дресс-код: главные действующие лица должны быть одеты в наряды в викторианском стиле, в стиле стим-панк, барокко, рококо или во что-то, приближающееся к этим стилям. Фактически же участники пикника пускают фантазию вскачь и можно встретить костюмы, относящиеся к каким угодно эпохам, даже реально не существовавшим.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1055/30422.jpg"></DIV>
+<P>Начало официально назначено на 15:00, но люди начинают собираться раньше, хотя первое время фотографов на лужайках парка гораздо больше, чем гостей пикника. Зрелище поистине грандиозное, ибо пикник с каждым годом привлекает все больше людей и их фантазия становится всё изощреннее. В прошлые годы их креативность находила отражение в выборе одеяния и аксессуаров, но в этот раз одной паре удалось удивить всех присутствующих, когда они <A href="/images/picts/1056/30437.jpg">прибыли на белой карете с кучером</A>, запряженной парой лошадей. Я уверена, что любой эстет, фанат реконструкции или просто любитель выразить себя в одежде просто обязан посетить это мероприятие.</P>
+<P>Но всё это касается немузыкальных событий, скажем так, а именно выступления групп начинаются обычно на главной сцене Агры ближе к вечеру. В этом году открывали фестиваль метал-фолкеры Tanzwut — причем открыли шумно, весело и бодро. Действительно прекрасный выбор группы для яркого начала фестиваля, Тойфель и компания зажгли, совместив свои лучшие хиты с песнями из альбома Wei&#223;e Nachte, который вышел в 2011 году.</P>
+<P>Следующей концертной площадкой этого дня стал Кольрабициркус, где я планировала увидеть Соню Краусхофер с ее относительно новым проектом Coma Divine и — уже под конец дня — хэдлайнеров Lacuna Coil.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1051/30271.jpg"></DIV>
+<P>Coma Divine можно пожалуй охарактеризовать как готик-метал с легким налётом шизофрении. Соня и раньше питала слабость к вычурности и безумной эстетике и в новом проекте она развернулась вовсю: стилистически выверенные костюмы всей группы напоминающие оборванные робы пациентов викторианской психбольницы; музыка с внезапными переходами, паузами и взлётами; шёпот , переходящий в крик; странные танцы с изломанными движениями. Я надеюсь, что возможность самовыражаться в этом проекте приносит музыкантам радость, ибо как мне показалось, публика не особо прониклась духом сумасшествия и приветствовала группу довольно сдержанно.</P>
+<P>Сетлист:<BR>01. I remember<BR>02. The odd one out<BR>03. Secret lover<BR>04. Everything you want<BR>05. From time to time<BR>06. Praise the fallen<BR>07. Burn, sister<BR>08. About a girl<BR>09. Dead end </P>
+<P>А вот итальянцы Lacuna Coil были напротив приняты на «ура!» с первой же минуты. Когда-то давно, лет 7-8 назад я очень часто слушала эту группу и мне было весьма любопытно увидеть их живьем. Но «увидеть» - это как-то сильно сказано. Оператор, отвечающий за работу дымовых машин кажется задался целью догнать и перегнать Эйяфьятлайокудль, отчего сцена казалась туманным сгустком, из которого доносилась музыка.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1051/30276.jpg"></DIV>
+<P>Lacuna Coil, как и Tanzwut, для фестиваля выбрали сборную солянку из проверенных временем хитов, таких как Entwined, Heaven's a lie, Our truth, и песен из более поздних альбомов.</P>
+<P>Сетлист:<BR>01. Kill the light<BR>02. Heaven's a lie<BR>03. Entwined<BR>04. Give me something more<BR>05. Spellbound<BR>06. Our truth<BR>07. Upsidedown<BR>08. In visible light<BR>09. To the edge<BR>10. Fragile<BR>---<BR>11. Swamped<BR>12. Trip the darkness<BR>13. My spirit<BR></P>
+<P>На этом для меня первый день WGT подошел к концу.</P>
+<H2>26 мая 2012, суббота: Второй день</H2>/ <A href="/ru/galleries/61/1052">Галерея</A> 
+<P>Второй день я решила начать с прогулки в старом городе. Во время фестиваля там всегда можно встретить пары и компании людей в прекрасных нарядах и удивительных образах — трудно представить фотографа, который отказался бы запечатлеть такое. К тому же на крыше старой крепости Моритцбастай, что находится в центре рядом с площадью Августусплатц, располагается обычно маленький средневековый базар с небольшой сценой, который привлекает к себе желающих себя показать и других посмотреть.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1056/30464.jpg"></DIV>
+<P>Ассортимент товаров на этом базарчике схож с ассортиментом языческой деревни — это вариант для тех, кому лень ехать на другой конец города.</P>
+<P>К счастью погода оставалась теплой и солнечной на протяжении всего времени — эта традиция поддерживается уже несколько лет. Дождь может идти до фестиваля или сразу после, но уже примерно четвертый год в Лейпциге на Троицу летняя жара и чистое небо.</P>
+<P>Поохотившись немного в центре города, я еду в языческую деревню — посмотреть что там нового и интересного.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1057/30489.jpg"></DIV>
+<P>Однозначно там много нового народа. Да честно говоря там просто яблоку негде упасть, ибо на территорию деревни можно проходить не только гостям фестиваля, но и всем остальным — правда уже за отдельную плату.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30290.jpg"></DIV>
+<P>Когда я приехала, на сцене выступали Tibetrea. Свою музыку они называют фэнтезийным фолком, ибо играют они действительно некие фантазии на тему кельтских, индийских и средневековых мелодий.</P>
+<P>Немного отдохнув в деревне, снова бегу к остановке трамвая. Следующая точка — открытая сцена Паркбюне в парке Клары Цеткин.<BR>Меня интересовали Dope Stars Inc, но я приехала немного раньше и успела увидеть The Danse Society. Эта группа из Англии, игравшая ранее в стиле пост-панк, пережила пик популярности в конце 80-х, а после распалась. Совсем недавно они решили вновь воссоединиться, взяв вокалисткой Maethelyiah — певицу с сильным и красивым голосом. Это выступление на фестивале было первым живым шоу за 25 лет.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30291.jpg"></DIV>
+<P>После небольшого перерыва на сцену вышли Dope Stars Inc. Если заглянуть в Википедию, то можно узнать, что Dope Stars Inc. (DSI) — итальянская индастриал-рок-группа, которую образовали Виктор Лав (Victor Love), Грэйс Холд (Grace Khold), Дэрин Йевонде (Darin Yevonde) и Брайан Вольфрам (Brian Wolfram) в 2003 году. </P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30302.jpg"></DIV>
+<P>Честно сказать, я слабо разбираюсь в разновидностях классической рок-музыки, думаю не всегда отличу индастриал от готик-рока, поэтому вряд ли смогу оценить выступление с музыкальной точки зрения. Но одно могу сказать точно: Dope Stars Inc. не были скучными. И это при том, что расшевелить европейскую публику во время шоу — это весьма нетривиальная задача. Большое спасибо музыкантам еще и за то, что они не игнорировали фотографов, как некоторые, а очень охотно общались с фотопитом.</P>
+<P>После Паркбюне было несколько вариантов мест, куда можно было поехать. Но я выбрала Центральный театр, где должны были играть норвежские фолкеры Wardruna. Я пропустила их выступление на сцене языческой деревни в понедельник, о чем очень жалела — присутствовавшие отзывались об их шоу как о чем-то потрясающем. Конечно на сцене театра предполагается немного иная атмосфера, но упускать и эту возможность увидеть группу я не собиралась.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30306.jpg"></DIV>
+<P>У сцены Центрального театра предусмотрены только сидячие места, поэтому все выступления проходящие там, отличаются камерностью и созерцательностью. И поскольку количество мест ограничено, крайне рекомендуется приходить заранее, особенно если вы идете на известную и популярную группу.</P>
+<P>Wardruna – это норвежский музыкальный проект, черпающий вдохновение в древних нордических мелодиях. Это руны, шаманство, фолк, амбиент, впадение в транс и голос скандинавского севера. Автор проекта — Kvitrafn, бывший ударник Gorgoroth, вокалист, автор музыки и текстов. Также в качестве вокалистов в проекте участвуют Gaahl и Lindy Fay Hella.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30308.jpg"></DIV>
+<P>Музыка Wardruna не является тем, что мы обычно привыкли слышать со сцены. Это переплетающиеся звуки, бормотание шамана, бьющего в барабан, звуки леса и треск костра. Слушая эти мелодии ты полностью погружаешься в атмосферу крайнего севера, суровых зим и магических рун. <BR>Для меня лично Wardruna стала грандиозным открытием этого года и я очень надеюсь, что для меня еще выпадет возможность побывать на их сольном концерте.</P>
+<P>На этом второй день фестиваля для меня был завершен. </P>
+<H2>27 мая 2012, воскресенье: Третий день</H2>/ <A href="/ru/galleries/61/1053">Галерея</A> 
+<P>Воскресенье началось с традиционной фотоохоты в центре Лейпцига и автограф-сессии Qntal в кинотеатре Синестар. Из-за того, что невозможно охватить всё, что хочется, я не попала на выступление Qntal, которым очень симпатизирую, поэтому решила это в какой-то мере возместить фотографиями с раздачи афтографов.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30314.jpg"></DIV>
+<P>На обратном пути я заглянула в Kroch-Hochhaus, в котором распологается египетский музей университета Лейпцига. В музее я застала внушительную толпу разнообразно одетых граждан, сосредоточенно слушавших лекцию о культуре Древнего Египта.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1057/30523.jpg"></DIV>
+<P>Далее за этим последовало возобновление фотоохоты, в течение которой я увидела: юношу с большим топором на плече, бодро шагающим куда-то мимо Оперного театра; Соню Краусхофер, решительным шагом направляющуюся со спутником в сторону Моритцбастай; девушку с обнаженным бюстом, ведомую на цепочке другой девушкой; семейство, одетое в стиле стим-панк; железную крысу на паровом ходу; юношу с черными крыльями; деву-зомби с собакой... Знаете, во время Wave Gotik Treffen в Лейпциге кого только не встретишь. И это становится обыденным. Даже наоборот, через несколько дней уже люди в обычной одежде и без мэйк-апа начинают вызывать недоумение и легкое чувство внутреннего дискомфорта.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1058/30530.jpg"></DIV>
+<P>Что касается концертов, то на воскресенье у меня были запланированы только две концертные площадки: клуб Werk II и сцена в зале Агры.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30327.jpg"></DIV>
+<P>В клубе в этот день выступали Nachtmahr — EBM/индастриал-проект Томаса Райнера из «L'ame Immortelle». И я сразу скажу, что запихнуть их в клуб было воистину дурацкой идеей. Nachtmahr со своим маршево-электронным расколбасом уже достаточно популярны, чтобы предложить им сцену побольше — в Werk II была серьезная давка, пробравшиеся к сцене рисковали не досчитаться пуговиц на одежде. Да и свет был так себе, особо эффектные фото не сделаешь, хотя девушки с водяными автоматами, поливающие публику под «Feuer Frei!», были прекрасны. Томас Райнер благоразумно вдарил по хитам и я удивляюсь как вообще присутствующие в экстазе не разнесли клуб по кирпичику. На обратном пути от фотопита к выходу душа уже болела не за оторванные пуговицы, а за штаны и прочую одежду как таковую.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1058/30563.jpg"></DIV>
+<P>Еще немного фотошутинга на пути от клуба до Агры — и к половине десятого фотографы собираются у сцены. Mono Inc – одна из завершающих этот вечер групп, почти что хэдлайнеры. А я их видела еще тогда, когда их еще никто не знал! Это был фестиваль Dark Storm в 2008 году. С тех пор группа обрела немалую популярность. Я думаю тут дело не только в музыке — они играют хороший, мелодичный готик-рок, но при этом несколько грешат самоцитированием. Дело еще и в их искренней открытости на сцене: Мартин Энглер каждую свободную минуту кому-нибудь в зале махал рукой, подмигивал, улыбался и посылал воздушные поцелуи. Иногда он еще хулиганил и троллил самого противного охранника Агры, теребя его сверху за лысину. Мартин просто нравится людям.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30330.jpg"></DIV>
+<P>Хэдлайнеры воскресного вечера в Агре, ради которых я планировала выстоять до конца — Diary of Dreams, немецкий дарквэйв, если доверять различным источникам информации. Хотя я бы затруднилась как-то охарактеризовать их стиль, оперируя лишь общепринятыми жанрами. Это просто Diary of Dreams, это просто их музыка и стиль. Хорошо, если нужно, то пусть это будет дарквэйв и всё, что около. Для фотографов у прохода к сцене было размещено объявление, что во время первой песни (это так назвали) фотографирование запрещено и пускать в фотопит не будут по причине использования пиротехники. А теперь как это выглядело: гаснет свет, некоторое время длится ожидание, затем мы слышим интро из нового альбома Ego:X, долго слышим — столько, сколько оно и длится на альбоме, потом все стихает, в тишине и темноте раздается слабое «Пук!» и по бокам от сцены краткосрочно вспыхивают два небольших фейерверка. Вот она какая — очень опасная для жизни пиротехника! Мой муж, который специально пошел вглубь зала, чтобы заснять чудеса огненного шоу, потом долго ругался.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30343.jpg"></DIV>
+<P>Это выступление было посвящено новому альбому Ego:X, если я не ошибаюсь, то были исполнены песни Lebenslang, Echo in Me и Undividable. Я не помню, были ли сыграны другие вещи из нового альбома, ибо — даже сама не верю, что это пишу — я ушла примерно с середины выступления. Не потому что мне не понравилось, отнюдь, просто под конец третьего дня у меня уже не осталось сил даже просто стоять и воспринимать музыку. Я даже не совсем помню само выступление. Пришлось уйти, увы.</P>
+<H2>28 мая 2012, понедельник: Четвертый день</H2>/ <A href="/ru/galleries/61/1054">Галерея</A> 
+<P>На четвертый день фестиваля уже откровенно никуда не хочется бежать. Только лишь силой воли удалось ко второй половине дня погрузить себя в трамвай, идущий в сторону концертной точки Фельзенкеллер. Там обычно выступают паган- и блэк-металлисты, а также прочий андеграунд. </P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1058/30572.jpg"></DIV>
+<P>Я приехала к началу сета киргизской блэк-металл группы Darkestrah. Сама я о них практически ничего не знаю, потому обращусь к википедии.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30352.jpg"></DIV>
+<P><I>Darkestrah — киргизская pagan black metal - группа, сформирована в середине 1999 года в городе Бишкек, выпустила четыре полноформатных альбома, два демо и один мини-альбом. Альбом Epos (2007) посвящён озеру Иссык-Куль. Последний альбом — The Great Silk Road («Великий Шёлковый Путь») — вышел в мае 2008 года. Все альбомы "пропитаны" духом природы, слушая каждую композицию, ощущаешь себя максимально приближенным к природе. Альбом Epos оказывает наиболее сильное впечатление на слушателя. </I></P>
+<P>Опять же — я не отнесу себя к людям, которые хорошо разбираются в блэке, мне трудно оценить музыкальную сторону. Ну да, мелодично, гроулисто, блэково и несколько отчужденно. Публика принимала группу довольно сдержанно, может потому что Darkestrah мало известны в Европе, а может потому что они сами были довольно замкнуты на сцене и погружены в себя. </P>
+<P>Кстати последненее предположение легко подтверждает вышедшая на сцену Arkona. Если кто-то еще не в курсе, то Аркона — русская фолк-\паган-группа с прекрасной Марией Архиповой на вокале, которая легко совмещает классическое пение, гроул и скрим. Лирика песен Арконы пропитана русским фольклором, сказками и мифами.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30370.jpg"></DIV>
+<P>Мария выглядела так, как будто попала с корабля на бал — кажется на сцену ее выдернули сразу после душа, она даже не успела высушить волосы. Впрочем ее это нисколько не смущало, она мгновенно перемещалась по сцене как маленький воин в битве, причиняя глубокую душевную боль фотографам. Автофокус просто не успевал за ней.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30364.jpg"></DIV>
+<P>Я недостаточно хорошо знаю дискографию Арконы, чтобы порассуждать о тонкостях постоения их сетлиста, но то, что каждая песня горячо принималась публикой — вполне могу утверждать. Это как раз к вопросу о замкнутости и открытости — Мария очень открыта и умеет держать связь с аудиторией, без этого умения вряд ли может получиться хорошее живое выступление.<BR>Аркона однозначно стала лучшей группой этого дня.</P>
+<P>Ну а финальным аккордом фестиваля стали Agonoize в Агре. <BR>Agonoize — немецкая электро-индастриал группа, не чурающаяся некоторой театральности на сцене. Опять же многие EBM и индастриал команды для меня на одно лицо, внимание привлекают те, кто сумел отличиться от общей массы каким-либо способом. Agonoize я думаю многие фотографы хорошо запомнят из-за вокалиста Криса Эля, который ловко облил фотопит искусственной кровью. Мне повезло, а некоторым пришлось потратить большую часть времени на то, чтобы привести оптику в надлежащий вид.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30376.jpg"></DIV>
+<P>После я еще немного побродила по Агре, рассматривая поредевший палаточный городок — многие уехали еще в воскресенье — и наслаждаясь тем, что больше ничего фотографировать не нужно. Четыре дня фестиваля — это оптимально: с одной стороны мозг переваривает огромное количество информации и впечатлений, слегка сожалея, что всё закончилось, а с другой стороны ты радуешься, что всё уже закончилось, ибо сил продолжать больше просто нет.</P>
+<H2>Что дальше? Wave Gotik Treffen 2013</H2>
+<P>В следующем году фестиваль будет проходить с 17 по 20 мая. Билеты дорожают от года к году, так что следует ожидать, что цена на стандартный билет составит порядка 90-100 евро. Если заказывать билеты онлайн, то возможно цена будет ниже.</P>
+<P>Билет дает своему обладателю право прохода на все концертные площадки и все фестивальные мероприятия, в том числе выставки, чтения, кинопоказы и театральные представления. Подробный список мест и мероприятий будет указан на специальной карте, которую выдают вместе с билетом. Также билет дает право пользоваться любым общественным транспортом (трамваи, автобусы, электрички) в пределах 110-ой транспортной зоны — она охватывает весь Лейпциг. Вам не нужно покупать отдельные билеты на транспорт на время фестиваля.</P>
+<P>На данный момент известно лишь несколько групп, которые подтвердили свое участие в фестивале: Patenbrigade: Wolff (Германия), Gothic (Румыния), Abney Park (США) и возможно Wave, но пока неизвестно какая именно из групп, их несколько с таким названием. В целом ожидается как обычно порядка двух сотен групп и исполнителей.</P>
+<P>Если вы раздумываете над поездкой на фестиваль, то возможно вам пригодятся несколько советов.</P>
+<UL>
+<LI>Гостиница. Если вы не хотите жить в палатке, то о гостинице нужно позаботиться уже сейчас. Именно в ноябре-декабре начинают разбирать номера в гостиницах и если вы вспомните об этом в апреле, то может случиться так, что свободных номеров просто не будет. Гостиницу лучше выбирать либо ближе к центру, либо ближе к южной окраине города — именно там располагается Агра. 
+<LI>Если вы добираетесь до Германии на самолете, а после до Лейпцига — на поезде, то вы можете немного сэкономить, купив земельный билет. Например если вы едете компанией из Берлина в Лейпциг, то вам достаточно купить Brandenburg-Berlin-Ticket, по которому можно кататься на электричках по Берлину и по земле Бранденбург компанией до 5 человек, и билет Sachsen-Ticket на нужное вам количество человек для проезда по Саксонии. В таком случае расходы для компании до 5 человек включительно суммарно будет около 50 евро. Если же вы едете из Дрездена, то для проезда хватит лишь Sachsen-Ticket. Эти билеты можно купить либо у кассира, либо в специальных автоматах. Внимание! Эти билеты недействительны на поездах IC и ICE, это скорые поезда, а земельные билеты действительны только в поездах ближнего следования. Узнать на каком именно поезде вам лучше ехать в этом случае можно на сайте bahn.de, только не забудьте поставить галочку «Nur Nahverkehr» в форме поиска. И да — еще не забудьте написать на билете ваше имя, там есть специальное поле. 
+<LI>Учтите, что основные концертные площадки расположены либо в центре, либо южнее. И лишь одна из них — клуб «Анкер» — расположен довольно далеко на севере города. Это нужно учитывать, если вы планируете ездить из Анкера в Агру, поездка займет порядка часа. Нелишне будет вообще узнать какие трамвайные и автобусные маршруты соединяют интересующие вас точки, карты с маршрутами есть на каждой остановке. 
+<LI>Если вы всерьез планируете оббежать как можно больше концертных площадок во время фестиваля, то позаботьтесь о хорошей обуви. Серьезно, я не шучу. Или активное перемещение, прогулки и «одна нога здесь, другая там», или туфли на платформе. Поверьте, совместить эти две вещи без риска для здоровья невозможно. 
+<LI>Действительно насладиться всей прелестью языческой деревни можно пожалуй только в пятницу. В другие дни вам придется протискиваться сквозь толпы людей и долго искать хоть какое-то место, чтобы спокойно выпить пива. Территориально деревня находится за одну остановку до Агры.</LI></UL>
+<P>Текст и фото: <STRONG>Юлия Бучацкая</STRONG></P>
+Автор: Headcrusher
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 19.05.2016 news TANZWUT: видео на песню с нового альбома «Schreib Es Mit Blut»
+
+<P>Немецкие металлисты <STRONG>TANZWUT</STRONG> выпустили сингл/видео на заглавный трек с нового альбома «<STRONG>Schreib Es Mit Blut</STRONG>», который будет выпущен 8 июля в Европе и 19 августа в США на <STRONG>AFM Records</STRONG>. Диск будет доступен в виде digipak-издания и лимитированного boxset.<BR><BR>«<STRONG>Schreib Es Mit Blut</STRONG>» - уже десятый альбом коллектива, его концепция основана на знаменитой истории о «сделке с дьяволом» из «Фауста» Гете.&nbsp; Это по-прежнему любимая поклонниками <STRONG>TANZWUT </STRONG>зажигательная смесь industrial, средневекового и танцевального металла с текстами на немецком. В записи альбома приняла участие экс-вокалистка <STRONG>LEAVES’ EYES Лив Кристин.<BR><BR></STRONG>Трек-лист «<STRONG>Schreib Es Mit Blut</STRONG>»:<BR><STRONG>1. Schreib Es Mit Blut<BR>2. Steig Ein<BR>3. Bruder Leichtsinn<BR>4. Chaos<BR>5. Reiter Ohne Kopf<BR>6. Geteert Und Gefedert<BR>7. Stille Wasser<BR>8. Reicher Als Ein K&#246;nig<BR>9. Hahnenkampf<BR>10. Wenn Ich Tot Bin<BR>11. An Den Klippen<BR>12. Bleib Bei Mir<BR>13. Wer Wir Sind<BR>14. Neue Ufer<BR>15. Stille Wasser</STRONG> feat. Liv Kristine (Bonus Track)</P>
+<P><BR>&nbsp;</P>
+<CENTER><IFRAME height=370 src="http://www.youtube.com/embed/TNABHax-Qt0" frameBorder=0 width=490 data-link="http://www.youtube.com/watch?v=TNABHax-Qt0" allowfullscreen="allowfullscreen"></IFRAME></CENTER>
+Автор: Dimas
+
+### 11.06.2016 news Новый клип TANZWUT с участием Liv Kristine
+
+<p>Новый альбом немцев <strong>TANZWUT "Schreib Es Mit Blut"</strong> выходит 8 июля на<strong> AFM</strong>. Группа выложила в сеть видео-клип на песню с этого альбома “<strong>Stille Wasser</strong>”. В записи песни и съёмках клипа приняла участие вокалистка <strong>Liv Kristine</strong> (ex-LEAVES' EYES, ex-THEATRE OF TRAGEDY).</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TW-O8w1qw5s" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 11.06.2016 news TANZWUT: video with Liv Kristine
+
+<p>The new album of the Germans <strong>TANZWUT "Schreib Es Mit Blut"</strong> comes out July 8 via <strong>AFM</strong>. The group has posted a video clip for the song from the album “<strong>Stille Wasser</strong>”. Vocalist <strong>Liv Kristine</strong> (ex-LEAVES' EYES, ex-THEATRE OF TRAGEDY) took part in the recording of this songsong and the filming of the video.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TW-O8w1qw5s" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 09.07.2016 news Лирик видео от TANZWUT
+
+<p><strong>TANZWUT</strong> опубликовали лирик видео на песню “<strong>Reiter Ohne Kopf</strong>”. Трек взят с вышедшего вчера на AFM альбома "<strong>Schreib Es Mit Blut</strong>". На следующей неделе лицензионная версия будет доступна на<strong> Fono</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/Sy6LwPlf3GY" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 09.07.2016 news New lyric video by TANZWUT
+
+<p><strong>TANZWUT</strong> has published a lyric video for the song “<strong>Reiter Ohne Kopf</strong>”. The track is taken from released yesterday at<strong> AFM</strong> album "<strong>Schreib Es Mit Blut</strong>".</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/Sy6LwPlf3GY" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### TANZWUT 12.03.2005 CDK

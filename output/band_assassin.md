@@ -94,6 +94,77 @@ Frank Nellen - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 24.09.2008 news ASSASSIN выложили песню
+
+<P><STRONG>ASSASSIN</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке новую песню, которая войдёт на&nbsp;новый альбом группы. Пластинка выйдет в конце 2009 года.</P>
+<P>Ссылка: <A href="http://www.myspace.com/assassinthrashmetal">http://www.myspace.com/assassinthrashmetal</A></P>
+Автор: Vit Belov
+
+### 05.12.2010 news Новый альбом ASSASSIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=396 alt="" hspace=0 src="/images/news_rus/2010.12/17737.jpg" width=400 align=right border=0>Реактивированные немецкие трэшеры <STRONG>ASSASSIN</STRONG> подготовили к релизу новый альбом <STRONG>"Breaking The Silence". </STRONG>Пластинка выйдет 25 февраля на<STRONG> SPV</STRONG>. Пластинка была записана легендарным продюсером <STRONG>Harris Johns. </STRONG>Трэк-лист:</FONT></P>
+<P>01. <B>Breaking the Silence</B><BR>02. <B>Raise In The Dark</B><BR>03. <B>Judas</B><BR>04. <B>Turf War</B><BR>05. <B>Destroy The State</B><BR>06. <B>No Fear</B><BR>07. <B>Kill Or Be Killed</B><BR>08. <B>Real Friends</B><BR>09. <B>Strike Back</B><BR>10. <B>I like Cola</B></P>
+<P>Весной 2010 года группа отсняла своё шоу в Японии для релиза на DVD. Также <STRONG>SPV</STRONG> планируют переиздать классические работы ASSASSIN <STRONG>"The Upcoming Terror"</STRONG> и <B>"Interstellar Experience"</B>.</P>
+Автор: Vit Belov
+
+### 15.04.2011 reviews Взрыв из прошлого
+
+<P>Немецкая группа ASSASSIN распалась в 1989 году, когда у музыкантов были украдены все инструменты и оборудование. Бедные люди не имели возможности приобрести новые орудия труда, и группа прекратила своё существование. К 2002 году ASSASSIN всё-таки накопили денег на гитары и микрофон. Их ре-юнион альбом “The Club” в 2005 прошёл практически незамеченным, и сейчас немцы подготовили новый альбом, с которым серьёзно планируют покорить весь металический мир.</P>
+<P>Раскруткой “Breaking The Silence” занялся прежний лэйбл музыкантов SPV. Неудачный “The Club”, который толком никто не слышал, был забыт как страшный сон, а новейший альбом подаётся как новое пришествие отставных богов thrash-metal. Можно отметить, что как таковое, возвращение некогда легендарной группы не обещает безусловного успеха на рынке. Фэны хотят услышать хороший материал, а уж затем обращают внимание на былые заслуги музыкантов. Взять хотя бы пример ONSLAUGHT. Их альбом-возвращение сначала сразил всех наповал своими хитами, а уж затем многие вспомнили, что уже слышали их музыку в 80-х. Обратных примеров тоже хватает. В thrash-metal есть два варианта для вернувшихся из небытия. Первые играют музыку нового образца с современным звучанием, другие пытаются клонировать свои успешные работы. ASSASSIN можно отнести ко второму варианту развития событий. К реализации идей немцев был привлечён знаменитейший в прошлом продюсер Harris Johns (SODOM, HELLOWEEN, KREATOR), он нарулил ASSASSIN великолепное old-school звучание. За забытыми мелодиями дело тоже не стало. И вот мы имеем среднестатистический немецкий thrash-metal альбом из 80-х, который вышел в 2011 году.</P>
+<P>Каждый решит сам. Безусловно, главным достоинством “Breaking The Silence” его эксклюзивность на современной сцене. Подобные вещи можно встретить только на UG-лэйблах, да и то, нужно очень сильно поискать. ASSASSIN предлагают подобный материал через SPV. На Союзе уже распродан весь тираж альбома KREATOR “Pleasure To Kill”, обозреваемая пластинка станет ему отличным заменителем.</P>
+Автор: Vit Belov
+
+### 13.07.2011 news ASSASSIN переиздали легендарные альбомы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SPV</STRONG> переиздали два легендарных альбома немецких трешеров <STRONG>ASSASSIN "The Upcoming Terror"</STRONG>&nbsp;и <STRONG>"Interstellar Experiance"</STRONG>&nbsp;в одном digi-pack с бонусами. Один из бонус-треков <STRONG>'Low Intensity Warfare (Casbah Coverversion)'</STRONG> можно послушать ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также вышеназванные альбомы будут доступны на&nbsp;виниле. Трек-лист 2CD-digi-pack:</FONT></P>
+<P>CD1 - <STRONG>The Upcoming Terror <BR itxtNodeId="173"></STRONG>1. <STRONG>Forbidden Reality</STRONG><BR itxtNodeId="172">2. <STRONG>Nemesis<BR itxtNodeId="171"></STRONG>3. <STRONG>Fight (To Stop The Tyranny)<BR itxtNodeId="170"></STRONG>4. <STRONG>The Last Man<BR itxtNodeId="169"></STRONG>5. <STRONG>Assassin<BR itxtNodeId="168"></STRONG>6. <STRONG>Holy Terror</STRONG><BR itxtNodeId="167">7. <STRONG>Bullets</STRONG><BR itxtNodeId="166">8. <STRONG>Speed Of Light</STRONG><BR itxtNodeId="165">Bonus tracks: <BR itxtNodeId="163">9. <STRONG>Assassin</STRONG> (Live In Osaka 2010) <BR itxtNodeId="162">10. <STRONG>Baka</STRONG> (Live In Osaka 2010) </P>
+<P>CD2 -<STRONG> Interstellar Experience</STRONG><BR itxtNodeId="159">1. <STRONG>Abstract War</STRONG><BR itxtNodeId="158">2. <STRONG>A.G.D.<BR itxtNodeId="157"></STRONG>3. <STRONG>A Message To Survive</STRONG><BR itxtNodeId="156">4. <STRONG>Pipeline<BR itxtNodeId="155"></STRONG>5. <STRONG>Resolution 588<BR itxtNodeId="154"></STRONG>6. <STRONG>Junkfood<BR itxtNodeId="153"></STRONG>7. <STRONG>Interstellar Experience</STRONG><BR itxtNodeId="152">8. <STRONG>Baka<BR itxtNodeId="151"></STRONG>Bonus tracks: <BR itxtNodeId="149">9. <STRONG>Strange World</STRONG><BR itxtNodeId="148">10. <STRONG>Low Intensity Warfare</STRONG> (Casbah Coverversion)</P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=83016484&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=83016484&pid=-1964530124935517634" AllowScriptAccess="always"> 
+<P><A href="http://www.myspace.com/music" target=_blank></A>&nbsp;</P></DIV>
+<P><center><IMG height=225 src="/images/news_rus/2011.07/20114.jpg" width=320 border=0></P></CENTER>
+Автор: Vit Belov
+
+### 20.03.2014 news ASSASSIN: Robert Gonella покинул ряды немецких трэшеров
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие трэшеры, группа <STRONG>ASSASSIN</STRONG>, сообщила на своей facebook-странице, что их ряды покинул <STRONG>Robert Gonella</STRONG> <EM>(на фото)</EM>&nbsp;вокалист, который записал с группой все альбомы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По этой причине <STRONG>ASSASSIN</STRONG> отменяют все свои предстоящие концерты, а вместо них, примутся работать над новыми песняит и займутся поисками нового певца.</FONT></P>
+Автор: Headcrusher
+
+### 21.03.2014 news Robert Gonella покинул ряды немецких трэшеров ASSASSIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.03/26753.jpg" width=250 height=370>Немецкие трэшеры, группа <STRONG>ASSASSIN</STRONG>, сообщили на своей facebook-странице, что их ряды покинул <STRONG>Robert Gonella</STRONG> <EM>(на фото),</EM>&nbsp;вокалист, который записал с группой все альбомы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По этой причине <STRONG>ASSASSIN</STRONG> отменяют все свои предстоящие концерты, а вместо них, примутся работать над новыми материалом и будут искать нового певца.</FONT></P>
+Автор: Headcrusher
+
+### 17.05.2014 news ASSASSIN объявили имя нового вокалиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие трэшеры <STRONG>ASSASSIN</STRONG> объявили имя своего нового вокалиста. Им стал <STRONG>Ingo Bajonczak </STRONG>(на фото),&nbsp;участник группы <STRONG>SUPERSOMA</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В данный момент <STRONG>ASSASSIN</STRONG> записывают новый альбом, который должен выйти до конца 2014 года.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.05/26992.jpg" width=334 height=396>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 19.09.2016 news Frank Blackfire присоединился к ASSASSIN
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">После 16 лет совместной работы <strong>ASSASSIN</strong> расстались с гитаристом<strong> Michael Hoffmann</strong>. Уже во время записи последнего альбома thrash metal группы "<strong>Combat Cathedral</strong>" музыкант подумывал об уходе, поэтому его вклад на этой пластинке был минимальным. В итоге он ушёл из группы по персональным причинам.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Замена была найдена быстро, из-за грядущих концертов ASSASSIN. Новым гитаристом группы стал<strong> Frank Blackfire</strong>, известный по работе с KREATOR и SODOM.</font></p><p><center><img width="600" height="400" src="/images/news_rus/2016.09/29981.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.09.2016 news New guitarist of ASSASSIN: Frank Blackfire
+
+<p>After more than 16 years guitarist <strong>Michael Hoffmann</strong> decided to leave <strong>ASSASSIN</strong>. His decision to leave became apparent already during the recordings and production of the new album „<strong>Combat Cathedral</strong>“, because he didn't take part of it much. After a long time of thinking about it, his decision came because of personal reasons.</p><p>A good and valid substitute had to be find fast, because ASSASSIN is going to present their new master piece combined with old ASSASSIN-classicals from mid September on.</p><p>This musician was found with<strong> FRANK BLACKFIRE</strong> who is going to play the second guitar in the band. And members of the Metal Scene will know him from bands like Kreator and Sodom, as well. So check out what the ASSASSIN guys are going to present on stage in the next upcoming future!</p><p><center><img width="600" height="400" src="/images/news_rus/2016.09/29981.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

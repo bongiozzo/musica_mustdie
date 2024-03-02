@@ -23,6 +23,16 @@ US thrash-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.09.2011 news Дебютный альбом TORMENTER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=366 alt="" hspace=0 src="/images/news_rus/2011.09/21242.jpg" width=366 align=right border=0>На мекисканском лэйбле<STRONG> Endless Brutality Of Men</STRONG> вышел дебютный альбом трешеров из Калифорнии <STRONG>TORMENTER "Pulse Of Terror"</STRONG>. Музыка коллектива стоит в одном ряду с творчеством других молодых американских групп <STRONG>BONDED BY BLOOD</STRONG> и<STRONG> WARBRINGER</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Gallery of Reality</STRONG><BR>2. <STRONG>Absolution</STRONG><BR>3.<STRONG> No Anesthesia</STRONG> <BR>4. <STRONG>Pulse of Terror</STRONG> <BR>5.<STRONG> Hunger For Violence</STRONG> <BR>6. <STRONG>Messiah On Trial</STRONG> <BR>7. <STRONG>Inhumanity Personified</STRONG> <BR>8. <STRONG>A Season in the Plague</STRONG>&nbsp; <BR>9. <STRONG>Severe Enforcement</STRONG><BR>10. <STRONG>Assault from Beyond the Grave</STRONG><BR>11. <STRONG>Dismantle the World</STRONG> <BR>12. <STRONG>Pantheon of Lunacy</STRONG></P>
+<P><STRONG>MySpace: <A href="http://www.myspace.com/tormentermetal">http://www.myspace.com/tormentermetal</A></STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

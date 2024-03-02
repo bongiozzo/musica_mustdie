@@ -101,6 +101,360 @@ Rannalta Haettu
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.07.2000 news Tenhi are busy with new album.
+
+<p> Tenhi are already busy with the follower of their successful debut album "Kauan". The recordings for a new folklore masterpiece will take place in autumn this year. Before they will enter the studio again you have the chance to see them live on the Wave Gothic Meeting in Leipzig and on the Kaustinen Folk Festival in Finland.</p>
+
+Автор: Morsus
+
+### 05.07.2000 news Tenhi работают над новым альбомом
+
+<p> Tenhi уже работают над продолжением своего успешного дебюта "Kauan". Запись нового фольклорного шедевра начнётся осенью этого года. Прежде чем они войдут в студию, их выступления можно будет увидеть на фестивалях Wave Gothic Meeting в Лейпциге и Kaustinen Folk Festival в Финляндии.</p>
+
+Автор: Morsus
+
+### 07.12.2000 news Tenhi записывают мини-CD и полный альбом.
+
+<p>Tenhi усердно трудятся в студии, записывая выходящий в следующем году мини-CD. Он, по-видимому, будет как и прежде развивать этно-направление в тяжёлой музыке. И уже в декабре группа снова отправится в студию записывать второй полный альбом.</p>
+
+Автор: Morsus
+
+### 25.07.2001 news Dornenreich едут в тур
+
+<p>Dornenreich едут в тур вместе с Tenhi и Of The Wand And The Moon. Группа будет исполнять акустическую программу, в которую будут включены песни с последнего альбома Her von welken N&auml;chten.</p>
+
+Автор: Vit Belov
+
+### 07.08.2001 news Новый мини-альбом от Tenhi
+
+<p>Prophecy Productions выпустили новый мини-альбом группы Tenhi "airut:ciwi". Этот альбом представляет собой душевный и атмосферный материал сравнимый с дебютным альбомом "Kauan". Завораживающая пьеса с красивыми и трагическими фольклорными моментами.</p>
+
+Автор: Dimas
+
+### 08.08.2001 news MCD &quot;airut:ciwi&quot; is now available
+
+<p>TENHI's brandnew MCD "airut:ciwi" is now available. This work presents the band from a a slightly more etho inspired angle compared to their Debutalbum "Kauan" yet it is an equally fascinating piece of most beautiful tragic finish folklore!</p>
+
+Автор: Dimas
+
+### 14.08.2002 news Tenhi обещают альбом к концу года
+
+<p>Новый альбом Tenhi будет называться "Vare" и выйдет к концу этого года на Prophecy Productions. Стилистически альбом продолжит линию, начатую на дебютнике "Kauan", и заведёт слушателя ещё дальше в туманные глубины бесконечности.</p>
+
+Автор: Morsus
+
+### 14.08.2002 news Tenhi&#39;s new album will appear at the end of the year
+
+<p>The new album will carry the title"Vare" and will appear at the end of the year. Stylistically the album will carry on along the lines of the debut 'Kauan' and lead the listener once again on a musical journey into the endless distance.</p>
+
+Автор: Morsus
+
+### 02.02.2003 reviews Холодная мертвая музыка
+
+<p>Второй полнометражный альбом финских неортодоксалов. И снова они предлагают нам звуковое путешествие сквозь разные чувственные ощущения в рамках прогрессивной folk-gothic музыки. Лирика на финском языке передаваемая отстраненным и бесчувственным мужским голосом повествует о различных явлениях природы и смене сезонов представляя все это в эзотерическом и мистическом виде. Стилистически альбом выдержан в духе дебютного альбома. Это все такая же, трудная для понимания музыка, полная печали, безысходности и глубочайшей атмосферы создаваемой натуральными акустическими инструментами, скрипками, флейтой и арфой. Очень мрачная, медленная музыка, поражающая своим спокойствием. Эта музыка подобна тишине. Качество продукции на высоте. Но это музыка предназначенная для ограниченного и узкого круга почитателей подобной музыки - новаторской, зрелой и очень оригинальной, вместе с тем жутко скучной и вялой, не вызывающей никаких телодвижений и эмоций. Под такую шаманскую музыку хорошо медитировать и предаваться нирване, когда нужно отойти от мира и не думать ни о чем. Среди всех песен чрезвычайно трудно выделить какую-либо. Будучи простыми и легкими, они содержат настолько однообразный и бедный набор звуков, что все песни слушаются как единая песня. Очень спорная работа, которую невозможно оценить однозначно. Рекомендую этот альбом мизантропическим личностям, отшельникам и любителям тишины.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 15.06.2005 news Новый альбом TENHI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> TENHI</STRONG> будет называться "<STRONG>TENHI III maaaet</STRONG>". Трэк-лист:</FONT></P>
+<P>1. <STRONG>kuoppa<BR></STRONG>2. <STRONG>varpuspaiva<BR></STRONG>3. <STRONG>salain<BR></STRONG>4. <STRONG>vahainen violetissa</STRONG><BR>5. <STRONG>sarastuskavija<BR></STRONG>6. <STRONG>aatos<BR></STRONG>7. <STRONG>kausien ranta<BR></STRONG>8. <STRONG>uuvu oravan luu<BR></STRONG>9.<STRONG> tuulenkaato<BR></STRONG>10. <STRONG>viimeiseen<BR></STRONG>11. <STRONG>maa syttyy<BR></STRONG>12. <STRONG>rannalta haettu</STRONG></P>
+Автор: Vit Belov
+
+### 30.05.2007 reviews Быть единым с природой
+
+<P>Поклонникам финской неофолковой группы Tenhi пришлось ждать нового релиза своих любимцев почти четыре года после выхода предыдущей работы, "V&#228;re". Альбом "Maa&#228;et", по большому счету, продолжает музыкальное направление коллектива, которое он взял еще десять лет назад, так что особых изменений не наблюдается, разве что вещи стали еще более мрачными, не опускаясь, однако, до суицидальных настроений. Все песни исполняются на финском языке (в буклете приведен перевод на английский), и я бы хотел сказать, что это как нельзя лучше подходит к музыке, исполняемой Tenhi. И дело здесь не в фольклорных мотивах, народных песенках или "типичных" фолковых инструментах. Tenhi это музыкальное единение с природой, и её, родимую, эти финны умеют чувствовать, как мало какая другая группа. Возможно, только эльфы (которых никто никогда не видел) могли когда-то стать единым существом с деревьями, реками, травами, могли услышать шепот каждого листика и неподвластное человеческому слуху ворчание древнего дуба, умели разговаривать со стремящейся только ей ведомо куда речкой и отдать своё тепло ищущим свой путь к солнцу&nbsp;в несогревшейся ещё земле семенам растений. Кто знает... Но если бы эльфы эти сочиняли песни, полные меланхолии и первородной грусти, то вполне возможно, что эти творения походили бы на оные от Tenhi. Быть может, после прослушивания новой работы группы вам захочется в одиночку пойти в лес, вдыхая ароматы благоухающих растений и прислушиваясь к звонкому смеху ручейка; а может быть, вы решите найти высокий холм, с которого так хорошо взирать на раскинувшееся неподалеку озеро; или вы зажгёте костёр и будете долго-долго смотреть на стремящееся к небу пламя и улыбаться веселому треску хвороста, а Луна будет снисходительно поглядывать на вас, на песчинку в огромной Вселенной, и беззвучно смеяться над одинокой фигуркой у пляшущего огня. Послушайте новый альбом Tenhi, и попытайтесь хотя бы на час стать единым существом с природой, поверьте, для вас наверняка откроётся что-то новое...</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 02.06.2007 news TENHI выпускают сборник
+
+<P><STRONG>TENHI</STRONG> выпускают сборник нереализованных вещей "<STRONG>Folk Aesthetic 1996-2006</STRONG>". На три диска войдёт около трёх часов материалов. Диги-бук издание будет включать в себя 76(!!!)-страничный буклет. Трэк-лист:</P>
+<P>CD 1</P>
+<P><STRONG><IMG height=120 alt="" hspace=0 src="/images/news_rus/2007.06/11663.jpg" width=120 align=right border=5>Kertomuksia</STRONG> (demo 1997)<BR>1. <STRONG>nakin laulu<BR></STRONG>2. <STRONG>havuisissa saleissa</STRONG><BR>3. <STRONG>tenhi</STRONG></P>
+<P><STRONG>Hallavedet</STRONG> (mcd 1998)<BR>1. <STRONG>hallavedet<BR></STRONG>2. <STRONG>hiljaiseksi lampi jaa</STRONG></P>
+<P><STRONG>Airut:ciwi</STRONG> (mcd 2000)<BR>1. <STRONG>tuulennostatus<BR></STRONG>2. <STRONG>kielo<BR></STRONG>3. <STRONG>ciwenkierto</STRONG></P>
+<P>CD 2</P>
+<P>1. <STRONG>kausienranta</STRONG> (unreleased)<BR>2. <STRONG>suortuva </STRONG>(alternative version)<BR>3. <STRONG>etaisyyksien taa</STRONG> (from promo 1997)<BR>4. <STRONG>linnuit</STRONG> (unreleased)<BR>5. <STRONG>tuulenkaato</STRONG> (alternative version)<BR>6. <STRONG>sydanvalkea</STRONG> (unreleased)<BR>7. <STRONG>kuoppa</STRONG> (demo version)<BR>8. <STRONG>korvenraivaajat</STRONG> (jaljen demo version)<BR>9. <STRONG>kielo</STRONG> (bonus song from Kauan album 1999)<BR>10. <STRONG>niin auer hiljaa vie</STRONG> (bonus song from Kauan album 1999)</P>
+<P>CD 3 <BR>Unreleased album entity called ‘<STRONG>Kaski</STRONG>’. (Swidden).</P>
+<P>1. <STRONG>haie<BR></STRONG>2. <STRONG>luo varjo<BR></STRONG>3. <STRONG>koiranlainen peura</STRONG><BR>4. <STRONG>suruiksi soi<BR></STRONG>5. <STRONG>sarahdus<BR></STRONG>6. <STRONG>tuuli varista<BR></STRONG>7. <STRONG>laule<BR></STRONG>8. <STRONG>vasen<BR></STRONG>9. <STRONG>neidiie</STRONG></P>
+Автор: Vit Belov
+
+### 07.03.2008 news TENHI насочиняли песен
+
+<P>Финны <STRONG>TENHI</STRONG> насочиняли много новых песен для нового альбома "<STRONG>Saivo</STRONG>". Вот их названия: <STRONG>'Noiad'</STRONG>, <B>'Rinta Maan'</B>, <B>'Kuolleet Lehdet'</B>, <B>'Vapaus Saimaa'</B>, <B>'Kuunteluy&#246;t'</B>, <B>'Uloin'</B>, <B>'Horrospuhuja'</B>, <B>'Pojan Kiiski'</B>, <B>'Kuvavuori'</B>, <B>'Lintusalo'</B>, <B>'Laulu Kuolevalla'</B>, <B>'Luut'</B>, <B>'Pohjan'</B>, <B>'Maa Ja Veri'</B>, <B>'Paluu Joelle'</B>, <B>'Polku Rantaan'</B>, <B>'Risukko'</B>, <B>'Pienet Purot'</B>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем группу покинул вокалист/гитарист <STRONG>Ilkka Salminen</STRONG>, но <STRONG>TENHI </STRONG>утверждают, что ничего страшного не произошло, и группа продолжит своё существование безболезненно.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

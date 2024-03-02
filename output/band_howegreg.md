@@ -90,6 +90,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.08.2004 news Jordan Rudess выпускает сольный альбом
+
+<P><STRONG>Jordan Rudess</STRONG>, клавишник<STRONG> DREAM THEATER</STRONG>, выпускает новый сольный альбом <STRONG>'Rhythm Of Time'</STRONG> 31 августа на <STRONG>Magna Carta</STRONG>. Среди обилия приглашённых звёзд:&nbsp; гитаристы <STRONG>Joe Satriani, Steve Morse, Vinnie Moore</STRONG>&nbsp;и <STRONG>Greg Howe</STRONG>, басист&nbsp;<STRONG>Dave LaRue</STRONG>, барабанщик&nbsp;<STRONG>Rod Morgenstein</STRONG> и вокалист&nbsp;<STRONG>Kip Winger</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Time Crunch</STRONG><BR>2. <STRONG>Screaming Head</STRONG><BR>3. <STRONG>Insectsamongus<BR></STRONG>4. <STRONG>Beyond Tomorrow (with Kip Winger)<BR></STRONG>5. <STRONG>Bar Hopping With Mr Picky</STRONG><BR>6. <STRONG>What Four<BR></STRONG>7. <STRONG>Ra<BR></STRONG>8. <STRONG>Tear Before The Rain (with Kip Winger)<BR></STRONG></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2016 news Новое видео OMRADE
+
+<p>Новый ролик французской авангардной группы <strong>OMRADE</strong> на песню "<strong>Luxurious Agony</strong>" можно посмотреть ниже. Трек взят с дебютного альбома коллектива "<strong>Edari</strong>", вышедшего на <strong>My Kingdom</strong>.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/8lpsOZGpycA" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 25.07.2016 news New video of OMRADE
+
+<p>French Avantgardish Metal masters<strong> OMRADE</strong> just release the second video off their debut album "<strong>Edari</strong>". It is for the track "<strong>Luxurious Agony</strong>" which sees <strong>Guillaume Bideau</strong> as special guest on voice and can be viewed below.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/8lpsOZGpycA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

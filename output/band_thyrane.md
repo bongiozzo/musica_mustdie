@@ -80,6 +80,79 @@ Kristonic - Drums
 
 * C группой "Maple Cross" Avather (guitar)
 
+## Публикации
+
+### 18.05.2001 reviews Дух мятежа или мочи Назорея
+
+<P>Финляндия, как нечестиво-музыкальная страна, просто растет на глазах и если и далее так пойдет, то скоро переплюнет Норвегию со Швецией. К великому сожалению первый полноформатник группы прошел мимо моих ушей (не нашел пока...), но данный же, второй, очень даже привлекателен, хоть и не привносит ничего нового. Музыка этого блэкового альбома, как ни странно, имеет большей частью чисто трэшовое звучание а-ля SODOM перемежаемое очень душевными мясорубно-блэковыми запилами в духе лучших работ IMMORTAL-а (прямо thrash-black какой-то получается!) и редкими партизанскими вылазками в эдакий индустриальный death-black в стиле "Rebel Extravaganza" SATYRICON-a. Нисколько не портят работу аж целых два приглашенных клавишника (даже прямо нельзя поругать ребят за отступление от рамок стиля TRUE-BLACK) - клавиш не так уж и много, а те что есть, злые, сердитые, мрачные и агрессивные: никаких соплей, все очень жестоко. Вокал - классический блэковый скриминг низкой тональности, который вещает до мозга костей сатанинско-нечестивые тексты в лучших традициях DARK FUNERAL, понося на чем свет стоит (как ни странно без матюгов) дохлого назорея с его садо-мазохистскими порядками, да уж заодно и всю свору его приспешников и прихлебателей, расползшуюся по Земле. Откровенным плагиатом работу назвать нельзя, но все равно на фоне классиков материал выглядит несколько подражательным и вторичным и привлекает к себе лишь искренностью, мастерством и энергией исполнения - каждый рифф рубится с таким неистовством, словно большим ржавым молотком забивается еще и еще один зазубренный гвоздь в Гроб Господень, чтобы иноземный сионистский враг человечества, тиранящий род людской, никогда больше оттдуда не выбрался. Одним словом "Дух Мятежа" брызжет просто через край и после прослушивания альбома искренне хочется пойти сжечь пару Х-тианских церквей или устроить антисемитский погром. Одним словом, очень даже приятственная работа, и хоть новизной далеко не блещет, все равно заслуживает очень даже положительной оценки.</P>
+Автор: Alexey Pitirimov
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> LABELS, if you want Belarusian metalheads to be acquainted with your releases we recommend you to put MassaBrutto Radioshow address in your promo and mailing lists. <BR><BR> All kinds of quiz actions featuring your products as prizes can be performed in MassaBrutto. You may discuss all conditions with us by using any way of connection.<BR><BR> Nevertheless we live in ex-Soviet state where music piracy dwells, MASSA BRUTTO RADIOSHOW DOESN'T SUPPORT ANY KIND OF MUSIC PIRACY ON PRINCIPLE !!! <BR> So, you may be sure that:<BR> - there wasn't and there won't any of illegal CDs broadcasted within MassaBrutto Radioshow;<BR> - any of official or licensed CDs sent to MassaBrutto will not become the property of music pirates.<BR><BR> If you or someone that you know is in a band that is interested in getting some guaranteed airplay on a radio station in Belarus then all you need to do is to get in contact with us. <BR><BR> If there are any questions - feel free to ask.<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 24.03.2003 news Новый альбом THYRANE
+
+<p>19 мая 2003 года на Century Media Records выходит новый альбом финских блэкстеров THYRANE под названием "Hypnotic". В альбом войдут следующие вещи:</p>
+<p> 01. Human Weed<BR> 02. Firework<BR> 03. Glamorama Demystified<BR> 04. Dance In The Air<BR> 05. Armaya<BR> 06. The Symptomatic<BR> 07. Phantasmal Paranoia<BR> 08. Sickening<BR> 09. Of Suns And Flames<BR> 10. Heretic Hunt</p>
+
+Автор: Dimas
+
+### 01.07.2003 reviews Ещё один The Kovenant или Rammstein?
+
+<p>Это не праздный вопрос. Корни подобной гитарно-индустриальной музыки в общем понимании уходят в творчество RAMMSTEIN. Но другим европейским группам, а прежде всего THE KOVENANT и RAM-ZET удалось преобразовать стиль и приблизить его к канонам Европейской metal-музыки, добавив клавишные и женский вокал, а главное - добавив непримитивные мелодии. Финская группа Thyrane на своём третьем альбоме пошла по проторенной дорожке. Отказавшись от теряющего популярность black-metal, коллектив обратил свой взгляд в сторону industrial. Что ж, финны смогли создать неплохой альбом в жанре industrial-black-metal, но, к сожалению, лишь неплохой. До уровня родоначальников жанра дотягивает лишь первый трэк 'Human Weed', на котором используется некая псевдо-классическая мелодия, и последняя "баллада" 'Heretic Hunt'. Остальные композиции не запоминаются ни чем. Включи альбом с любого трэка, и он понравится, но отдельные песни теряются в общей массе. Танцевальные ритмы, обилие примитивных клавиш и электронных риффов. Неплохая попытка, 100-процентное попадание в трэнд, что принесёт хорошие продажи диску, но отсутствие оригинальных песен и собственного лица.</p>
+
+Автор: Vit Belov
+
+### 20.07.2003 reviews Удивительные метаморфозы…
+
+<p>Удивительные метаморфозы… Когда-то THYRANE были одними из наиболее ярких представителей финской блэковой сцены. Наличие собственного лица и до чёртиков интересная музыка делала обязательным наличие их альбомов в коллекции любого чернушника. Плохо ли это, хорошо ли, но “Hypnotic” с “Black Harmony”, “Symphonies of Infernality” и “Spirit of Rebellion” не имеет ничего общего. THYRANE #1 остались в прошлом. На смену им пришли THYRANE #2. Какой был в этом смысл? К чему эти перемены? Вопрос остаётся открытым. THYRANE #2 однозначно НЕ лучше THYRANE #1. Но хуже ли? Сказать сложно. Вместо яростного блэка с минимальным количеством клавиш, как это было в случае со “Spirit of Rebellion”, мы имеем весьма модный post-black в духе THE KOVENANT. Среднетемповый, хорошенько нагруженный весьма простыми партиями клавиш. Но, увы, не хитовый напрочь. Ничего не имею против такой «модной» музыки, но уже если изволите её играть, извольте и хиты предоставить. Хотя бы наподобие “Jihad” или “New World Order”. Нету их здесь (разве что только “Human Weed”). Что автоматически сбрасывает несколько баллов. Хотя в целом работа очень неплохая…</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 02.02.2005 news THYRANE сочинили новый материал
+
+<P><STRONG>THYRANE</STRONG> сочинили материал для нового альбома, который, предположительно, будет называться <STRONG>'Travesty Of Heavenly Essence'</STRONG> и на него попадут песни со следующими названиями: "<STRONG>Prisoner Of Pain</STRONG>", "<STRONG>Divine Under Will</STRONG>", "<STRONG>Decay Of Christ's Empire</STRONG>". Запись альбома будет проходить в марте и мае.</P>
+<P>Из других новостей, группу покинул <STRONG>Avather</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.02.2005 news THYRANE writed new material
+
+<P>The new <STRONG>THYRANE</STRONG> album will be recorded in <STRONG>Tico-Tico</STRONG>, Kemi, during March and May 2005. The album - which has a working title <STRONG>'Travesty Of Heavenly Essence'</STRONG> - will contain 11 songs as <STRONG>'Prisoner of pain'</STRONG>, <STRONG>'Travesty Of Heavenly Essence'</STRONG>, <STRONG>'Divine Under Will'</STRONG>, <STRONG>'Decay Of Christ's Empire'</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.02.2005 news THYRANE подписали контракт с Spinefarm
+
+<P><STRONG>THYRANE</STRONG> подписали контракт на выпуск двух альбом с <STRONG>Spinefarm records</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.04.2005 news THYRANE пишут новый альбом
+
+<P>Финская группа&nbsp;<B>THYRANE</B> начнет с 15 мая в студии <B>Ti</B><B>co-Tico</B>&nbsp;запись своего четвертого полнометражного альбома&nbsp;<B>"Travesty of Heavenly Essence"</B>, выход которого запланирован на сентябрь. В альбом войдут одиннадцать композиций, среди которых <B>"Prisoner of Pain"</B>, <B>"Travesty of Heavenly Essence"</B>, <B>"Divine Under Will"</B>&nbsp;и <B>"Decay Of Christ's Empire"</B>.</P>
+Автор: Dimas
+
+### 24.01.2006 reviews Отличная sympho-black-metal работа после невнятных экспериментов
+
+<P>А вот это сюрприз! После прошлой работы <STRONG>THYRANE</STRONG>, где они попытались переплюнуть <STRONG>THE KOVENANT</STRONG>, я уже поставил на них крест. Обычно оттуда не возвращаются. Популярность гарантирована, высокие продажи тоже. Зачем же вновь метал играть? Скорее всего, эти метания связаны с поиском прибыли, ведь новая работа тоже находится «в струе», но талант свой <STRONG>THYRANE</STRONG> доказывают. Признаюсь, я таланта на прошлой пластинке не заметил, ошибся, должно быть.</P>
+<P>Здесь мы имеем классический sympho-black metal, приправленный острыми специями, в виде слегка осовремененного звучания и humppa элементов в духе <STRONG>FINNTROLL</STRONG>. При этом все эти вкрапления происходят не в ущерб тяжести. Некоторые риффы по-настоящему цепляют, а общее впечатление от альбома крайне позитивное.</P>
+<P>Эту пластинку, безусловно, можно отнести к лучшим в стиле в прошедшем году. Советую всем фэнам <STRONG>DIMMU BORGIR</STRONG> и любителям экстремальных финнов.</P>
+Автор: Vit Belov
+
+### 10.05.2006 news THYRANE развалились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финская группа <STRONG>THYRANE</STRONG> перестала существовать. Краткая запись в новостной ленте официального сайта коллектива гласит: "<EM><STRONG>THYRANE</STRONG> больше нет (1994 - 2006</EM>)".</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

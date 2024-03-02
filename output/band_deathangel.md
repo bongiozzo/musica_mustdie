@@ -185,6 +185,460 @@ Guitar solo on Truce done by Jason Suecof
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.06.2003 news Возвращение DEATH ANGEL
+
+<p>Реформированный DEATH ANGEL готовит свои новые концертные выступления. Также, коллектив находится в поисках лэйбла, для выпуска своего нового альбома в начале 2004 года. Последняя их запись "Act III" датируется 1990 годом.</p>
+
+Автор: Dimas
+
+### 11.10.2003 news Новый альбом DEATH ANGEL
+
+После тринадцатилетнего молчания металисты из Сан-Францизско <B>DEATH ANGEL</B> решили вернуться на метал-сцену и заключили контракт с <B>Nuclear Blast Records</B>. Группа войдет в студию в начале 2004 года для записи нового творения, последователя <B>"Act III"</B>. Релиз состоится в конце 2004 года.
+Автор: Darkfall
+
+### 12.10.2003 news DEATH ANGEL подписались на NUCLEAR BLAST
+
+Ещё одним приобритением <B>NUCLEAR BLAST</B> стали <B>DEATH ANGEL</B>. Вновь собравшееся легендарная Bay Area группа приступит к записи первого альбома после 1990 года в начале следующего года.<BR>
+Автор: Vit Belov
+
+### 15.10.2003 news DEATH ANGEL on Nuclear Blast
+
+<IMG height=124 alt="" hspace=0 src="/images/news/2003.10/5086.jpg" width=200 align="right" border=0><B>DEATH ANGEL</B> have signed a longterm deal with <B>Nuclear Blast! DEATH ANGEL</B> are now working on new material for their 4th studio album, which is scheduled to be released April 26th 2004
+Автор: Vit Belov
+
+### 19.10.2003 news Death Angel w&#x2F; DISBELIEF, MYSTIC PROPHECY, MNEMIC in Europe
+
+Nov. 03 – Paris, FRA @ La Locomotive<BR>Nov. 04 – London, UK @ Underworld<BR>Nov. 06 – Amsterdam, NETH @ Melkweg<BR>Nov. 07 – Groningen, NETH @ Vera<BR>Nov. 08 – Vosselaar, BEL @ Biebob<BR>Nov. 09 – Den Bosch, NETH @ Willem Ii<BR>Nov. 11 – Essen, GER @ Zeche Carl<BR>Nov. 12 – Munster (Breitefeld), GER @ Live Arena<BR>Nov. 13 – Salzburg, AUT @ Rockhouse<BR>Nov. 14 – Budapest, HUN @ Mega Club<BR>Nov. 15 – Ljubljana, SLO @ K4<BR>Nov. 16 – Milano, ITA @ Transilvania<BR>Nov. 17 – Pratteln, SWI @ Z7<BR>Nov. 18 – Osnabruck, GER @ Works
+Автор: Vit Belov
+
+### 15.11.2003 news Новый видеоклип DARKANE
+
+<P><B>DARKANE</B> закончили съемки видеоклипа на песню <B>"Chaos vs. Order"</B>. В новом видео можно увидеть ex-вокалиста группы <B>Lawrence Mackrory</B>, а также фрагметны различных выступлений, как, например, рок-фестиваль в Швеции и Rock Hard festival. <B>DARKANE</B> вскоре отправятся в турне с <B>DEATH ANGEL</B>, <B>DISBELIEF</B>, <B>MNEMIC</B> и <B>MYSTIC PROPHECY</B> для того, чтобы отдохнуть перед записью их четвертого альбома.</P>
+Автор: Darkfall
+
+### 16.02.2004 news DEATH ANGEL - близиться новый альбом
+
+<P><IMG height=130 alt="" hspace=0 src="/images/news_rus/2004.02/6037.jpg" width=200 align="left" border=0>Re-union альбом <B>DEATH ANGEL</B> выходит 27 апреля. Он будет называться "<B>The Art Of Dying</B>". Альбом был записан в <B>SF Soundworks Studios</B>&nbsp;в <B>San Francisco, California</B> вместе с продюсером <B>Brian Joseph Dobbs (VOIVOD, MANMADEGOD).</B> </P>
+Автор: Vit Belov
+
+### 25.05.2004 reviews Ещё одно хорошее возвращение
+
+<P><I><B>DEATH ANGEL</B> вслед за<B> EXODUS</B> выпустили свой re-union альбом на<B> Nuclear Blast</B>. И вновь никто не будет разочарован.</I></P>
+<P>Ни <B>DEATH ANGEL</B>, ни <B>EXODUS</B> не предали своего стиля. Да и не нужно было бы реформироваться, чтобы записывать что-то другое. Thrash-metal сцена начинает потихоньку возрождаться. Уже можно вновь подразделять несколько видов даже bay-area подстиля. Если <B>EXODUS</B> выдали великолепный прямолинейный альбом, <B>DEATH ANGEL</B> уже наворачивают на эту прямолинейность виртуозные соляки, смены ритма, акучстические вставки. Альбом, вообще, начинается, как <B>'Ride The Lightning'</B> с акустического интро.</P>
+<P>И всё-таки, <B>DEATH ANGEL</B> немного не хватает животный агрессии, которая принесена в жертву некоторой сложности музыки. Но это недостаток только для любителей очень прямолинейной музыки, другие же фэны старого thrash должны быть в восторге.</P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 18.06.2004 news DEATH ANGEL in Europe
+
+24.06.2004 BALINGEN - WOM (pre-Bang Your Head) (D)<BR>26.06.2004 BALINGEN - Bang Your Head (D)<BR>27.06.2004 DESSEL - Graspop Metal Meeting (BEL)<BR>29.06.2004 COPENHAGEN - Vega Jr. (DK)<BR>30.06.2004 OSLO - John Dee (NOR)<BR>01.07.2004 STOCKHOLM - Klubin (SWE)<BR>02.07.2004 ROITZSCHJORA - With Full Force Festival (D)<BR>03.07.2004 HAARLEM - Patronaat (NL)<BR>04.07.2004 EINDHOVEN - Effenaar (NL)<BR>06.07.2004 MьNCHEN - Backstage (D)<BR>07.07.2004 BOCHUM - Matrix (D)<BR>08.07.2004 MILTON KEYES - Woughton Centre (UK)<BR>10.07.2004 ROME - Festival (ITA)<BR>12.07.2004 GLASGOW - Cathouse (SCO)<BR>13.07.2004 DUBLIN - Music Centre (IRE)<BR>14.07.2004 MANCHESTER - Academy 3 (UK)<BR>15.07.2004 LONDON - Garage (UK)<BR>17.07.2004 HELSINKI - Tuska Metal Festival (FIN)<BR>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 16.12.2007 news Новый альбом DEATH ANGEL
+
+<P><STRONG>DEATH ANGEL</STRONG> закончили запись нового альбома <STRONG>"Killing Season"</STRONG> в <STRONG>Studio 6</STRONG>06. Пластинка выйдет 29 февраля на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>Lord of Hate</B><BR>02. <B>Sonic Beatdown</B><BR>03. <B>Dethroned</B><BR>04. <B>Carnival Justice</B><BR>05. <B>Buried Alive</B><BR>06. <B>Soulless</B><BR>07. <B>The Noose</B><BR>08. <B>When Worlds Collide</B><BR>09. <B>God vs God</B><BR>10. <B>Steal the Crown</B><BR>11. <B>Resurrection Machine</B></P>
+Автор: Vit Belov
+
+### 08.01.2008 news DEATH ANGEL выложилиновую песню
+
+<P>Мы уже сообщали, что 26 февраля на <STRONG>Nuclear Blast</STRONG> выходит новый альбом <STRONG>DEATH ANGEL "Killing Season</STRONG>". Группа выложила новую песню "<STRONG>Sonic beatdown</STRONG>" на своей официальной <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/deathangel">http://www.myspace.com/deathangel</A></P>
+Автор: Vit Belov
+
+### 19.05.2008 reviews Thrash-metal возрождение. Это не про DEATH ANGEL.
+
+<P>О возрождении thrash-metal, которое произошло в последние несколько лет, мы уже рассуждали. Прошлый год подтвердил слухи об этом возрождении. Альбомы ONSLAUGHT, OVERKILL, EXODUS показали, что стиль не мёртв. В нём можно до сих пор придумывать что-то новое, пускай, это и касается в первую очередь звучания, а не содержания. Содержание же в thrash-metal всегда было на уровне. Главное, не предаваться излишним заумствованиям, как METALLICA, и успех придёт.</P>
+<P>Группа американских филиппинцев DEATH ANGEL оказалась на гребне волны возрождений, и эта волна занесла эту крепкую, но не звёздную группу на Nuclear Blast. В те времена, когда обозреваемый коллектив выпустил свой неплохой ре-юнион альбом, EXODUS реализовали эпохальный “Tempo Of The Damned”. DEATH ANGEL были где-то рядом. Свой следующий альбом “Killing Season” филиппинцы выпустили только в этом году. Что ж, фон у DEATH ANGEL и на этот раз был неслабым. В эти дни вышел TESTAMENT, до этого в России только начал продаваться ещё один современный мега-thrash-альбом от ONSLAUGHT. К сожалению, обозреваемая пластинка затерялась. Старомодный thrash-metal, сдобренный слишком мелодичными ходами, который вы найдёте здесь, не затронет чувствительные струны вашей души. Эдакий утяжелённый heavy-metal с примесью hardcore, популярный во времена юности DEATH ANGEL, когда мир ещё не знал death и black-metal, и подобные вещи казались верхом тяжести.</P>
+<P>Старомодный, не слишком запоминающийся альбом, который рекомендуется только прожженным коллекционерам.</P>
+Автор: Vit Belov
+
+### 11.01.2009 news DEATH ANGEL нашли басиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым басистом <STRONG>DEATH ANGEL</STRONG> стал <STRONG>Sammy Diosdado. </STRONG>Музыкант играл в hardcore группе <STRONG>THE SICK</STRONG>, а также играл в панк-команде <STRONG>ALL TIME HIGHS </STRONG>вместе<STRONG> </STRONG>с вокалистом <STRONG>DEATH ANGEL</STRONG> <STRONG>Mark Osegueda</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 11.02.2009 news Chuck Billy и DEATH ANGEL исполнили песню METALLICA
+
+<P>29 ноября 2008 года на концерте в Сан-Франциско, в помощь басисту <STRONG>DEFTONES</STRONG> <STRONG>Chi Cheng, </STRONG>к <STRONG>DEATH ANGEL</STRONG> на сцене присоединился вокалист <STRONG>TESTAMENT Chuck Billy</STRONG>. Группа исполнила песню <STRONG>METALLICA "Trapped&nbsp;Under Ice"</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/XuDTgettpz4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/XuDTgettpz4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.04.2009 news DEATH ANGEL выпускают DVD
+
+<P><IMG height=330 alt="" hspace=0 src="/images/news_rus/2009.04/13885.jpg" width=330 align=right border=5>17 апреля выходит DVD <STRONG>DEATH ANGEL</STRONG> <STRONG>"Sonic German Beatdown", </STRONG>на которое попадут два концерта в Германии: на фестивале <STRONG>Rock Hard 2007</STRONG> и концерт в городе Адельшейм. Трэк-лист:</P>
+<P>Live at the <B itxtvisited="1">Rock Hard Festival 2007</B>:<BR itxtvisited="1">* <B itxtvisited="1">Intro</B><BR itxtvisited="1">* <B itxtvisited="1">Seemingly Endless Time</B><BR itxtvisited="1">* <B itxtvisited="1">Voracious Souls</B><BR itxtvisited="1">* <B itxtvisited="1">Mistress Of Pain</B><BR itxtvisited="1">* <B itxtvisited="1">EX-TC</B><BR itxtvisited="1">* <B itxtvisited="1">3rd Floor</B><BR itxtvisited="1">* <B itxtvisited="1">Thrown To The Wolves</B><BR itxtvisited="1">* <B itxtvisited="1">5 Steps Of Freedom</B><BR itxtvisited="1">* <B itxtvisited="1">Thicker Than Blood</B><BR itxtvisited="1">* <B itxtvisited="1">The Devil Incarnate</B><BR itxtvisited="1">* <B itxtvisited="1">Disturbing The Peace</B><BR itxtvisited="1">* <B itxtvisited="1">Stagnant</B><BR itxtvisited="1">* <B itxtvisited="1">The Ultra Violence</B><BR itxtvisited="1">(introduction: Carnival Justice)<BR itxtvisited="1">* <B itxtvisited="1">Bored</B><BR itxtvisited="1">* <B itxtvisited="1">Kill As One</B><BR itxtvisited="1"><BR itxtvisited="1">Live in Adelsheim, Live Factory, 2008:<BR itxtvisited="1">* <B itxtvisited="1">Lord of Hate</B><BR itxtvisited="1">* <B itxtvisited="1">Evil Priest</B><BR itxtvisited="1">* <B itxtvisited="1">Sonic Beatdown</B><BR itxtvisited="1">* <B itxtvisited="1">Dethroned</B><BR itxtvisited="1">* <B itxtvisited="1">Voracious Souls</B><BR itxtvisited="1">* <B itxtvisited="1">Carnival Justice</B><BR itxtvisited="1">* <B itxtvisited="1">Buried Alive</B><BR itxtvisited="1">* <B itxtvisited="1">Soulless</B><BR itxtvisited="1">* <B itxtvisited="1">When Worlds Collide</B><BR itxtvisited="1">* <B itxtvisited="1">Seemingly Endless Time</B><BR itxtvisited="1">* <B itxtvisited="1">God vs. God</B><BR itxtvisited="1">* <B itxtvisited="1">Steal The Crown</B><BR itxtvisited="1">* <B itxtvisited="1">Devil Incarnate</B><BR itxtvisited="1">* <B itxtvisited="1">3rd Floor</B><BR itxtvisited="1">* <B itxtvisited="1">Kill As One</B><BR itxtvisited="1">* <B itxtvisited="1">Resurrection Machine</B><BR itxtvisited="1">* <B itxtvisited="1">Thrown to The Wolves</B><BR itxtvisited="1"><BR itxtvisited="1">Bonus video clips:<BR itxtvisited="1">* <B itxtvisited="1">Thicker Than Blood</B><BR itxtvisited="1">* <B itxtvisited="1">Dethroned</B></P>
+Автор: Vit Belov
+
+### 29.05.2009 news DEATH ANGEL теряют бойцов
+
+<P>Оригинальный барабанщик <STRONG>Andrew Galeon </STRONG>покинул <STRONG>DEATH ANGEL</STRONG>. Его заменить призван <STRONG>Will Carroll</STRONG> (<B>SCARECROW</B>, <B>OLD GRANDAD</B>, <B>VICIOUS RUMORS</B>, etc.).</P>
+Автор: Vit Belov
+
+### 27.02.2010 reviews Отличный подарок фанатам DEATH ANGEL
+
+<P>Группа филиппинцев из США DEATH ANGEL имеет репутацию в тяжёлой музыке. В 80-е годы несколько альбомов этого коллектива прочно заняли свою нишу на thrash-metal сцене. Объединившись в 2001 году и попав на Nuclear Blast, DEATH ANGEL продолжают активную деятельность и выпустили уже два студийных альбома. Пришла очередь и концертного DVD.</P>
+<P>Поклонники DEATH ANGEL останутся в восторге от “Sonic German Beatdown”. На него попало два полноценных концерта: на фестивале Rock Hard 2007 и в Live Factory в 2008 году. Группа представляет тот особый вариант thrash-metal, специально подготовленного для широкой публики. Никаких злобных сатанинских воплей, никакой ритмической накачки на сверхвысоких оборотах. Частые лирические отступления, много чистого вокала, не очень подходящие стилю мелодии, которые лучше смотрелись бы у glam-rock группы. Даже имидж музыкантов… Шляпы, белые майки. Лично мне слушать подобное очень не легко. Всегда хочется, чтобы музыка ускорилась, чтобы риффовые проходы не замедлялись, а вокал не превращался в странное пение, и всегда был бы агрессивным и прямолинейным. В общем, мне хочется, чтобы это были не DEATH ANGEL, а какие-нибудь EXODUS.Понятно, что глупо смотреть и рецензировать DVD DEATH ANGEL, а в заметке сожалеть об отсутствие на записи EXODUS, но ничего поделать с собой не могу. Обозреваемая группа зависла между стилями, ей не хватает тяжести, но не хватает и мелодичности. Претензии к этому DVD находятся за пределами объективных оценок, только субъективизм. Качество же реализации и исполнения удовлетворят самого взыскательного любителя DVD-концертов.</P>
+<P>DEATH ANGEL предстают во всей красе. Если вы любите группу, вам необходимо приобретать этот DVD. В принципе можно посмотреть этот фильм и большим любителям METALLICA и MEGADETH. Я же слегка заскучал у телевизора.</P>
+Автор: Vit Belov
+
+### 16.06.2010 news DEATH ANGEL в сентябре
+
+<P>Новый альбом "трэшеров" <STRONG>DEATH ANGEL</STRONG> выйдет 3 сентября на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Audiohammer Studios </STRONG>в Сэнфорде, Флорида с продюсером <STRONG>Jason Suecof</STRONG> (<B>TRIVIUM</B>, <B>AUGUST BURNS RED</B>, <B>THE BLACK DAHLIA MURDER</B>, <B>ALL THAT REMAINS</B>, <B>WHITECHAPEL</B>, <B>DEVILDRIVER</B>).&nbsp;</P>
+<P>Группа обещает самый агрессивный и техничный материал в своей истории.&nbsp;</P>
+Автор: Vit Belov
+
+### 23.07.2010 news Подробности о новом альбоме DEATH ANGEL
+
+<P>Трэш ветераны из <STRONG>DEATH ANGEL</STRONG> подготовили к выпуску новый альбом. Диск получивший название <B itxtvisited="1">"Relentless Retribution"</B> будет выпущен 3 сентября в Европе и 14 сентября в Америке на <B itxtvisited="1">Nuclear Blast Records</B>. Запись <STRONG>"Relentless Retribution"</STRONG> проходила в <B itxtvisited="1">Audiohammer Studios</B>&nbsp; (Sanford, Florida) с продюсером <B itxtvisited="1">Jason Suecof</B> (<B itxtvisited="1">TRIVIUM</B>, <B itxtvisited="1">ALL THAT REMAINS</B>, <B itxtvisited="1">WHITECHAPEL</B>, <B itxtvisited="1">DEVILDRIVER</B>). Обложку альбома нарисовал <STRONG>Brent Elliot White</STRONG> (<A href="http://brentelliottwhite.com/">http://brentelliottwhite.com</A>), работавший до этого с <B itxtvisited="1">JOB FOR A COWBOY</B>, <B itxtvisited="1">CARNIFEX</B>, <B itxtvisited="1">WHITECHAPEL</B>.</P>
+<P>Вот что сказал вокалист группы <B itxtvisited="1">Mark Osegueda</B> касательно оформления нового альбома: <EM>"Я никогда не был так восхищён какой-либо другой обложкой альбома <STRONG>DEATH ANGEL</STRONG>,&nbsp;как этой!&nbsp; Она соответствует всей теме альбома! Яростная и агрессивная! Я думаю, что меня восхищает больше всего тот факт, что <B itxtvisited="1">Brent</B> нарисовал обложку основываясь на наших текстах. Эта не был заранее готовый рисунок".</EM></P>
+<P>Добавляет художник<EM> </EM><STRONG>Brent Elliot White</STRONG>: <EM>"Первоначально темой альбома было предательство близких и месть лжецам. После достаточно горячих дебат с <STRONG>Робом</STRONG> (<STRONG>Rob Cavestany</STRONG>, гитара) и переписки по e-mail, появилось выражение "волк в овечье шкуре". В основном мы кружили вокруг этой метафоры, пока не стало ясно, что её интерпритация на бумаге подошла бы лучшим образом."</EM></P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16933.jpg" width=400 height=399>Трек лист альбома:</P>
+<P>01. <STRONG>Relentless Revolution</STRONG><BR>02. <STRONG>Claws In So Deep</STRONG><BR>03. <STRONG>Truce</STRONG><BR>04. <STRONG>Into The Arms Of Righteous Anger</STRONG><BR>05. <STRONG>River Of Rapture<BR></STRONG>06. <STRONG>Absence Of Light<BR></STRONG>07. <STRONG>This Hate</STRONG><BR>08. <STRONG>Death Of The Meek<BR></STRONG>09. <STRONG>Opponents At Sides<BR></STRONG>10. <STRONG>I Chose The Sky<BR></STRONG>11. <STRONG>Volcanic</STRONG><BR>12. <STRONG>Where They Lay</STRONG></P>
+Автор: Headcrusher
+
+### 15.09.2010 news Новые песни DEATH ANGEL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=5 hspace=0 alt="" align=right src="/images/news_rus/2010.09/17185.jpg" width=300 height=225>Две новые песни<STRONG> DEATH ANGEL</STRONG> можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/deathangel">http://www.myspace.com/deathangel</A></FONT></P>
+<P><STRONG>"Truce"</STRONG>&nbsp;и <STRONG>"River Of Rapture" </STRONG>вошли на новую работу трэшеров <STRONG>"Relentless Retribution"</STRONG>, которая вышла на<STRONG> Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Audiohammer Studios </STRONG>с продюсером <STRONG>Jason Suecof</STRONG> (<B>TRIVIUM</B>, <B>AUGUST BURNS RED</B>, <B>THE BLACK DAHLIA MURDER</B>, <B>ALL THAT REMAINS</B>, <B>WHITECHAPEL</B>, <B>DEVILDRIVER</B>). </P>
+Автор: Vit Belov
+
+### 16.11.2010 news Новый клип DEATH ANGEL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>DEATH ANGEL</STRONG> на песню <STRONG>"Truce" </STRONG>можно посмотреть ниже. Клип отснял режиссёр <STRONG>Robert Sexton</STRONG> (<B itxtvisited="1">SOULFLY</B>, <B itxtvisited="1">THE DWARVES</B>, <B itxtvisited="1">MONDO GENERATOR</B>, <B itxtvisited="1">AMEN</B>).</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/erSBEaeL808&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/erSBEaeL808&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.12.2010 reviews Thrash-metal’истам старшего поколения
+
+<P>Американская группа филиппинского происхождения DEATH ANGEL продолжает свой боевой путь в тяжёлом роке. После возрождения команды в 2001 году музыканты выпускают уже третий студийный альбом при одном концертном DVD, их поздний творческий путь уже сравнялся по своей длительности с первым этапом, длившемся с 1982 по 1990 год.</P>
+<P>DEATH ANGEL представляют нашему вниманию коммерческий американский thrash-metal, который изобрели в своё время корифеи METALLICA. Забойные риффы, сменяемые чистоголосыми припевами и почти «глэмовыми» ходами. Этот стиль находит своего почитателя по всему миру, среди поклонников тяжёлой музыки со стажем. Экстремальные thrash-metal группы по типу SODOM или OVERKILL слишком брутальны и агрессивны для старшего поколения, но музыка DEATH ANGEL вовсе не такая. Пусть на группу довольно давно навесили ярлык thrash-metal, но он их совсем не стесняет. На “Relentless Retribution” слишком много вещей, которые вызовут явное отторжение у упёртых поклонников стиля. </P>
+<P>В общем, в музыке DEATH ANGEL ничего не изменилось. Всё это мы уже видели и слышали на их последнем концертном DVD и последнем студийном альбоме “Killing Season”. Я не в восторге от подобной музыки, но поклонники мелодичного thrash-metal останутся довольны.</P>
+Автор: Vit Belov
+
+### 24.01.2011 news DEATH ANGEL: видео на песню &quot;River Of Rapture&quot;
+
+<P>Группа <STRONG>DEATH ANGEL</STRONG> опубликовала видео на песню <STRONG>"River Of Rapture"</STRONG>. Съёмки происходили прошлым летом,&nbsp;во время совместного&nbsp;тура <STRONG>DEATH ANGEL</STRONG> и <STRONG>SOILWORK</STRONG>.&nbsp;Режиссёр клипа -&nbsp;<B itxtvisited="1">Tommy Jones</B>.</P>
+<CENTER><IFRAME class=youtube-player title="YouTube video player" height=390 src="http://www.youtube.com/embed/HbwOUpgOk38" frameBorder=0 width=640 type="text/html" allowFullScreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 08.02.2014 news Новый ролик DEATH ANGEL
+
+<p>Ещё один клип<strong> DEATH ANGEL</strong> на песню <strong>"Left For Dead</strong>" можно посмотреть ниже. Трек взят с последнего альбома музыкантов "<strong>The Dream Calls for Blood</strong>", вышедшего в конце прошлого года на <strong>Nuclear Blast.</strong></p><p><center><iframe src="//player.vimeo.com/video/85899765" width="500" height="281" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.05.2015 news DEATH ANGEL выпускают DVD &quot;A Thrashumentary&quot;
+
+<P>Американские трэшеры&nbsp;<STRONG>DEATH ANGEL</STRONG>&nbsp;объявили о выпуске DVD <STRONG>"A Thrashumentary"</STRONG>! За создание фильма отвечал <STRONG>Томми Джонс</STRONG> (<STRONG>Tommy Jones</STRONG>, <STRONG>KATAKLYSM</STRONG>, <STRONG>SOILWORK</STRONG>, <STRONG>LAMB OF GOD</STRONG>, <STRONG>CARCASS</STRONG>, <STRONG>TESTAMENT</STRONG>).</P>
+<P>DVD, на который также вошла запись концерта <STRONG>"The Bay Calls For Blood"</STRONG> (в формате CD), выйдет 24 июля на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Сделать предварительный заказ можно по ссылке: <A href="http://nblast.de/DEATHANGELdvd">http://nblast.de/DEATHANGELdvd</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.05/27995.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 18.02.2016 news DEATH ANGEL: обложка альбома &quot;The Evil Divide&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские трэшеры <STRONG>DEATH ANGEL</STRONG> опубликовали обложку альбома<STRONG> "The Evil Divide"</STRONG>, который выйдет 27 мая на лейбле <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Небольшой отрывок новой композиции группы можно послушать у них на сайте: <A href="http://www.deathangel.us/">http://www.deathangel.us</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28846.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 04.06.2016 reviews Вегетарианский thrash metal
+
+<p>Май стал месяцем thrash metal. В этом месяце вышли DESTRUCTION, FLOTSAM&JETSAM, ASSASSIN... На закуску в конце отрезка появился новый альбом DEATH ANGEL “The Evil Divide”. </p><p>Это уже пятый релиз американской группы после возрождения в 2004 году. Сейчас уже можно смело делать вывод о том, что музыкантам в полной мере прорыв не удался. Безусловно, заслуженные ветераны заняли своё место в пантеоне действующих thrash metal команд, но создать новую легенду у DEATH ANGEL не получилось. Им не удалось записать эпохального альбома, как, например, получилось у EXODUS с их «Tempo Of The Damned” или у ONSLAUGHT с «Killing Peace”. У них не получилось попасть в какие-то значимые клубы живых легенд метала, они просто продолжили свою профессиональную деятельность на высоком эстетическом уровне, а при поддержке Nuclear Blast им удаётся постоянно быть на слуху.</p><p>Новый альбом продолжает линию DEATH ANGEL нового времени. Качественный, быстрый, не очень тяжёлый, но в меру запоминающийся материал без особых всплесков, но и без явных провалов. Вообще, хочется обратить внимание на достаточное сильное облегчание американских thrash metal команд. Новые альбомы ANTHRAX, MEGADETH (кто-то считает его тяжёлым, я не из таких). FLOTSAM & JETSAM, вообще, заиграли как IRON MAIDEN, EXODUS сильно «устарили» своё звучание на последнем альбоме. Держатся только SLAYER, TESTAMENT и, конечно же, OVERKILL. В итоге мы имеем эдакий вегетарианский thrash metal, у DEATH ANGEL вроде всё здорово, быстро, зажигательно, едкий вокал, но общее впечатление такое, что альбом записан для любителей heavy metal, которым, по какой-то причине, иногда хочется послушать чего-то потяжелее.</p><p>В целом альбом очень не плохой, всё на месте, музыка приятная, но прорыва вновь не случилось. Думаю, и не случится и далее.<br></p>
+Автор: Vit Belov
+
+### 04.06.2016 reviews Vegetarian thrash metal
+
+<p>May was a month of thrash metal. DESTRUCTION, FLOTSAM&JETSAM, ASSASSIN was released this month... In the end of period there's a new DEATH ANGEL album “The Evil Divide”. </p><p>This is the fifth release from the American group after the revival in 2004. Now we can safely conclude that the musicians fully breakthrough failed. Certainly, the veteran took his place in the Pantheon of current thrash metal bands, but DEATH ANGEL could not create a new legend. They failed to record the landmark album, such as, for example, turned out with EXODUS "Tempo Of The Damned" or with ONSLAUGHT "Killing Peace". They have failed to get into any meaningful clubs of living legends in metal, they simply continued his professional activities at the highest aesthetic level, and with the support of Nuclear Blast they manage to constantly be at the hearing.</p><p>The new album continues the line of DEATH ANGEL of a new time. Quality, quick, not very heavy but memorable material without spikes, but with no apparent failures. I also want to pay attention to softening of American thrash metal bands. New albums from ANTHRAX, MEGADETH (some consider it's heavy, I don't think so). FLOTSAM & JETSAM, in general, played as IRON MAIDEN, EXODUS much "aged" their sound on the last album. SLAYER, TESTAMENT and, of course, OVERKILL are still standing. In the end we have a kind of vegetarian thrash metal, DEATH ANGEL play great, fast, fiery, caustic vocals, but the overall impression is that the album for fans of heavy metal, which, for some reason, sometimes want to listen to something heavier.</p><p>Overall, the album is not bad, it's all here, the music is nice, but again breakthrough not happened. I don't think it will happen in a future.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Death Angel!!!

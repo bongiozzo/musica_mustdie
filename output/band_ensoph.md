@@ -59,6 +59,40 @@ for Sephiroth Graphix: awf@aruba.it
 
 * C группой "Drastique" Mahavira
 
+## Публикации
+
+### 07.01.2003 reviews Кто такой Ananke?
+
+<p>Был кажется такой футболист в Спартаке. Должно быть это всё-таки не он. Продукция итальянской Beyond...Productions вызывает неподдельный интерес... Разве что Satarial немного непонятен. Ensoph - смесь Eisregen, Lacrimosa и Dark Reality. Странный коктейль почему-то пришёл в голову. С Eisregen всё понятно, black-metal с тягучими индустриальными вставками и резким скримингом. C Dark Reality тоже вроде не особо сложно, мрачные вступления на флейте... А вот где там Lacrimosa не могу понять. Наверное в концептуальности и отсутствии боязни останавливаться на мелочах. Очень странная пластинка, которую хочется порекомендовать к пруслушиванию всем, кто любит останавливаться на мелочах, а не мчаться без оглядки вперёд вместе с лихими power-кавалеристами или злобными brutal-демонами.</p>
+<p> P.S.: Ананке - это древнегреческое воплощение судьбы. Богиня, властная даже над высшими богами. (с)Борис Иванов.</p>
+
+Автор: Vit Belov
+
+### 06.02.2003 reviews Who is Ananke?
+
+<p>There was such footballer in Spartak Moscow... I think, this is not he. Albums from Italian Beyond...Production causes interest... Unless Statarial is not approaches here. ENSOPH is mix of EISREGEN, LACRIMOSA and DARK REALITY. Strange cocktail, which comes to my head for some reason. EISREGEN is clear, black-metal with viscous industrial additions and sharp screaming. DARK REALITY is also clear, deepest introductions on flute... Where is LACRIMOSA? I can't understand. Likely It's in conception and absence of fear to stop in triviality. Very strange CD, which I'd like to recommend everybody, whom like to stop in triviality, but do not like to rush with valiant power-metal horsemen or angry btutal demons.</p>
+
+Автор: Vit Belov
+
+### 29.11.2003 news ENSOPH выпускают новый альбом
+
+<B><IMG height=150 alt="" hspace=0 src="/images/news_rus/2003.11/5608.jpg" width=200 align="left" border=0>ENSOPH</B> заключили контракт с <B>Cruz Del Sur Music</B> на выпуск нового альбома "<B>Opus Dementiae<SPAN lang=EN-GB> - </SPAN></B><SPAN lang=EN-GB><B>per speculum et in aenigmate</B>" в апреле 2004 года. 10 трэков тотального безумия, включая ремикс, сделанный <B>B. Kramm (Das Ich).</B></SPAN>
+Автор: Vit Belov
+
+### 29.11.2003 news Ensoph signed with Cruz Del Sur
+
+<P><B><SPAN><SPAN style="COLOR: #ffffff"><B><IMG height=150 alt="" hspace=0 src="/images/news/2003.11/5609.jpg" width=200 align="left" border=0>CRUZ DEL SUR MUSIC </B></SPAN></SPAN></B>and <B>ENSOPH</B> have reached an agreement for the worldwide release of <B>ENSOPH</B><SPAN> new album entitled “<B>Opus Dementiae</B></SPAN><B><SPAN lang=EN-GB> - </SPAN><SPAN lang=EN-GB>per speculum et in aenigmate</SPAN></B><SPAN>”, which will be released in April 2004. Album will c<SPAN lang=EN-GB>ontains the remix of "<B>Sophia's Fall</B>" made by <B>B.Kramm</B> from <B>Das Ich</B></SPAN><SPAN lang=EN-GB>. </SPAN></SPAN></P>
+Автор: Vit Belov
+
+### 02.06.2005 reviews Много всего интересного из Италии
+
+<P>Италия явно меняет свой статус «сопли-пауэр»-державы…. Еще одна итальянская банда – для меня стала открытием. Какая, однако, музыка – нет никаких рамок, никаких преград, никаких условностей, позволено все. Были бы желания, была бы фантазия… а вот ее-то как раз, смею вас заверить, предостаточно.</P>
+<P>Здесь множество самого разного в самых разных сопряжениях, здесь есть все в ассортименте – и агрессивные жесткие гитары, и фольковые дудки – привет IN EXTREMO, и яростные какие-то флейты, и психоделическая атмосфера DEAD CAN DANCE, и электронное потустороннее бульканье, и словно зомбирующая ритмика… Впечатления от всего этого – на грани глубоких внутренних ощущений и размытых, неявных образов: как если бы древний рыцарь в стальных лязгающих доспехах явил свету свое цифровое нутро с множеством проводов и кристаллических дисплеев… Да, именно так. Все это – намертво спаянное одно целое.</P>
+<P>Примерно также обстоят дела с вокалами – один из них вроде карканья Колыбельного Дани из сами знаете откуда, второй – низкий, неживой, преисполненный пафоса и ответственности за декламируемые прокламации, и третий – срывающийся в истерику и стенания плач а ля Анна Варни (SOPOR AETERNUS). Это потустороннее трио шепчет, воет, рычит, визжит и причитает… словно калейдоскоп сменяющих одна другую личин. Особенно хороши моменты, когда – как, например, в “Faith Defeat”, - гитары берут разгон, и подгоняемые барабанами, срываются с места в карьер, а над этой электронно-металлической вакханалией парят величественные клавишные переливы… В мелодике “Opus Dementiae” – словно восточный, арабский привкус, и думается мне, что из всего этого представления мог бы получиться недурственный саундтрэк к какому-нибудь фильму про мистические культы пустынь… К слову, над песенкой “Sophia’s Fall” потрудился небезызвестный Бруно Крамм (Bruno Kramm, DAS ICH), заделав интересный ремикс – вполне возможно, кого-то этот факт заинтересует.</P>
+<P>Все true – как от ортодоксального металла, так и от electro/gothic/industrial, - могут смело чалить мимо и не тратить времени на этот пласт, а вот людям с более широким вкусовым диапазоном этот альбом наверняка придется по душе.</P>
+Автор: Dr. Grandma
+
+
 ## Обсуждения
 
 

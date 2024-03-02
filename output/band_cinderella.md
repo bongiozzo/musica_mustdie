@@ -171,6 +171,40 @@ Anthony Artiaga  -  Photography
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.04.2001 news Новые туфли у Золушки.....
+
+<p>Возрожденная "CINDERELLA" ищет продюссера для записи уже готового материала следующего студийного альбома. Это будет первая работа за последние семь лет и дебютник для "Portrait Records" (подразделение "Sony"). Барабанщик Fred Coury поделился, что "Это будет классическая Синдерелла..., некоторые песни - тяжелые, а другие... немного иные...". Также альбом явит оригинальный состав (впервые после "Heartbreak Station" 1990 года). Посмотрим, что удастся создать команде без поддержки мощнейшего продюссера John Paul Jones (Led Zeppelin).....</p>
+
+Автор: Yermola
+
+### 17.04.2001 news CINDERELLA - Classic...With A Current Twist....
+
+<p>CINDERELLA are still looking for the right producer for their next studio album, their first in seven years and their debut for Portrait Records, a division of Sony. Drummer Fred Coury told Cinderella.net that the new material is "classic Cinderella with a current twist, some songs are heavy and some are a little different..." This will also be the first album with the original lineup since 1990's Heartbreak Station. The reunited lineup has been touring off and on over the last couple of years.</p>
+
+Автор: Yermola
+
+### 24.04.2013 news Tom Keifer: альбом &quot;The Way Life Goes&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.04/25642.jpg" width=400 height=400><STRONG>Tom Keifer</STRONG>, вокалист и гитарист&nbsp;группы&nbsp;<STRONG>CINDERELLA</STRONG>, чей пик популярности пришёлся на конец 80-x, выпускает свой дебютный сольный альбом. </P>
+<P>Диск получил название <STRONG>"The Way Life Goes"</STRONG> и выйдет 30 апреля (США)&nbsp;на лейбле <STRONG>Merovee </STRONG>(<A href="http://www.meroveerecords.com/">www.meroveerecords.com</A>).</P>
+<P><STRONG>"The Way Life Goes"</STRONG> станет первой студийной работой Тома с 1994 года, когда группа <STRONG>CINDERELLA</STRONG> выпустила свой последний, на сегодняшний момент, альбом<STRONG> "Still Climbing"</STRONG>.</P>
+<P>Такой большой перерыв в студийной работе&nbsp;был&nbsp;вызван постоянно возникающими&nbsp;проблемами с голосовыми связками Тома.</P>
+<P>Отрывки всех песен диска можно прослушать на официальном сайте артиста: <A href="http://www.tomkeifer.com/">www.tomkeifer.com</A> </P>
+Автор: Headcrusher
+
+### 25.04.2014 news Старые концертные записи CINDERALLA выходят в новой обёртке
+
+<P>16 мая лейбл <STRONG>Collectors Dream</STRONG>&nbsp;выпускает старые концертные записи группы <STRONG>CINDERELLA</STRONG> в новой обёртке.</P>
+<P>Диск получил название&nbsp;<STRONG>"Stripped"</STRONG> и в него&nbsp;войдут записи&nbsp;двух концертов, которые&nbsp;состоялись 2 и 3 октября 1998 года в голливудском "<STRONG>Key Club"</STRONG> в во время тура <STRONG>"Unfinished Business"</STRONG>. Ранее эти&nbsp;записи&nbsp;уже можно было услышать&nbsp;концертных альбомах <STRONG>"Live At The Key Club"</STRONG> (<STRONG>Cleopatra Records</STRONG>, 1999) и <STRONG>"Caught In The Act"</STRONG> (<STRONG>Mausoleum Records</STRONG>, 2011). Нынешний релиз отличается от предыдущих тем, что на него, в качестве бонус треков, добавлены две песни, записанные живьем в 1991 году.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>The More Things Change</STRONG> | 02. <STRONG>Push Push</STRONG> | 03. <STRONG>Gypsy Road</STRONG> | 04. <STRONG>Fallin Apart At The Seams</STRONG> | 05. <STRONG>Heartbreak Station</STRONG> | 06. <STRONG>The Last Mile</STRONG> | 07. <STRONG>Shelter Me</STRONG> | 08. <STRONG>Coming Home</STRONG> | 09. <STRONG>Hot And Bothered</STRONG> | 10. <STRONG>Night Songs</STRONG> | 11. <STRONG>Nobody's Fool</STRONG> |&nbsp; 12. <STRONG>Somebody Save Me</STRONG> | 13. <STRONG>Shake Me</STRONG> | 14. <STRONG>Don't Know What You Got</STRONG> | 15.<STRONG> Sick For The Cure</STRONG> (bonus) | 16. <STRONG>Make Your Own Way</STRONG> (bonus) 
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26942.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### к знатокам Cinderella

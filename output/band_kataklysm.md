@@ -270,6 +270,637 @@ Live at Party.San Open Air - August 12, 2006 in Bad Berka, Germany
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2000 news 
+
+<p>Новый альбом Kataklysm называется The Prophecy (Stigmata Of The Immaculate) и выйдет в Европе 8 апреля</p>
+
+Автор: Vit Belov
+
+### 29.03.2001 news Эпическая Поэзия Войны...
+
+<p>Канадский дэс / грайнд металлеры "KATAKLYSM" завершили работу над очередным шедевром названным "EPIC (The Poetry Of War)" в Монреальской Victor Studio. Запланированный к выходу 3 Сентября 2001 альбом будет содержать следующие песни: 01. Il Diavolo In Me 02. Shivers Of A New World 03. Era Of The Mercyless (Roma Part 1) 04. As The Glorious Weep (Roma Part 2) 05. Damnation Is Here 06. Manipulator Of Souls 07. Wounds 08. What We Endure 09. When Time Stands Still... "KATAKLYSM" планируют канадский тур в Августе с "QUO VADIS" и американский с "VADER".</p>
+
+Автор: Yermola
+
+### 29.03.2001 news EPIC (The Poetry Of War)
+
+<p>Canadian death metallers KATAKLYSM have completed their latest studio album, titled EPIC (The Poetry Of War), at Victor Studio in Montreal. Scheduled for release on September 3rd, EPIC (The Poetry Of War) will feature the following track listing: 01. Il Diavolo In Me 02. Shivers Of A New World 03. Era Of The Mercyless (Roma Part 1) 04. As The Glorious Weep (Roma Part 2) 05. Damnation Is Here 06. Manipulator Of Souls 07. Wounds 08. What We Endure 09. When Time Stands Still... KATAKLYSM will be embarking on a Canadian tour in August with QUO VADIS as support. There is also talk of a July pairing with Poland’s VADER in the US, as part of the Summertime Slaughter festivals, but nothing has yet been confirmed. In other KATAKLYSM-related news, the planned THE COALITION project, featuring members of KATAKLYSM and CRYPTOPSY, has now been put on hold (possibly permanently) due to the hectic schedules of all the people involved. However, KATAKLYSM vocalist Maurizio Iacono will continue to record material for his solo project L.O.S.T., which will tentatively issue its debut release Living On Sympathy & Trust in early 2002.</p>
+
+Автор: Yermola
+
+### 21.11.2001 reviews Поэзия войны
+
+<p>На редкость точное определение для альбома, выведено в название пластинки. Группа выдала чуть более мелодичный материал, но всё такой же мощно брутальный. Поэзия войны - барабаны, как пулемётная очередь, сбивки ритма и мелодий. Следует отметить классное оформление пластинки, оно также с самого начала настраивает на подходящий лад. Лирическое наполнение тоже подходящее, главные состовляющие воинственный Рим, эволюция, кровавые войны. Великолепный brutal-death нового поколения. К недостаткам можно отнести лишь не очень хорошо слышный вокал, но вокалист поддерживает высокий уровень записи, исполняю партии как гроулингом, так и скримингом. Рекомендую всем любителям данного стиля, Вы не прогадаете. Диск предоставлен фирмой Irond.</p>
+
+Автор: Vit Belov
+
+### 21.11.2001 reviews Poetry of War
+
+<p>On a rarity the exact definition for an album, is deduced in the name of a CD. The band has given out hardly more melodious material, but everything is same powerful and brutal. Poetry of war - drums, as hail of bullets, changes of a rhythms and melodies. It is necessary to note class artwork of a album, it also adjusts on suitable mood from the very beginning. Lyrical filling too suitable, main consists is Terrible Rome, evolution, bloody wars. Magnificent brutal-death of new generation. To lacks it is possible to notice only not so well audible vocal, but vocalist supports a high level of record, perfoming parties both by growling, and by screaming. I recommend to all fans of the this style you will not lose.</p>
+
+Автор: Vit Belov
+
+### 07.12.2001 news Kataklysm has now decided to give the fans what they are asking for...
+
+<p>After the band's decision last month to not tour the US in support of Epic (The Poetry of War), which was released on September 18th, Kataklysm has now decided to give the fans what they are asking for. Kataklysm vocalist, Maurizio, has this to say: <BR> <BR> "After receiving an overwhelming amount of e-mails from fans all over the States, disapproving the band's decision of stopping their touring activities on North American soil, Kataklysm has decided to give it another shot! So, you guys will have the chance to see the Poetry of War devastate your town! That's assuming everything goes according to plan. For now, the band will play some select shows - Deux-Montagnes (QC) on Dec. 8th and Trois-Rivieres (QC) on the 15th. Check with www.braveconcerts.com for info. Please take note that the show in Montreal on the 23rd has been pushed to a later date in February 2002. Last but most definitely not least - to support the success of Epic overseas, Kataklysm will embark on our first European headlining tour ever, starting March 11th for 3 weeks, with Malevolent Creation & Catastrophic as support... This will be Kataklysm's 2nd European tour in 6 months! Keep faith in the Hyperblasters, and thanks to all the fans who clogged up our email capacity."</p>
+
+Автор: Yermola
+
+### 10.01.2002 news Malevolent Creation will go into Abyss Studio?!?!?
+
+<p>Malevolent Creation will be invading the following countries, and then will go into Abyss Studio with producer Peter Tagtgren to record they're 8th studio album. Working title at this time is "The Will To Kill". Florida Death Metal being recorded in Sweden? It should be interesting!<BR><BR> Malevolent Creation//Kataklysm//Catastrophic<BR><BR> March<BR> 3/10/02 UK // T.B.A. <BR> 3/11/02 Ireland // Belfast<BR> 3/12/02 Ireland // Dublin<BR> 3/13/02 UK // Newcastle<BR> 3/14/02 UK // London<BR> 3/15/02 France // Rennes<BR> 3/16/02 Belgium // T.B.A.<BR> 3/17/02 France // Paris<BR> 3/18/02 France // Amneville<BR> 3/19/02 France // Perpignan<BR> 3/20/02 France // T.B.A.<BR> 3/21/02 Spain // Barcelona<BR> 3/22/02 Spain // Murcia<BR> 3/23/02 Spain // Madrid <BR> 3/24/02 Spain // Irun<BR> 3/25/02 France // T.B.A.<BR> 3/26/02 France // T.B.A.<BR> 3/27/02 Switzerland // Wil<BR><BR> No Mercy Festival's<BR> Immortal//Hypocrisy//Vader//Malevolent Creation//Disbelief//Catastrophic//Destroyer 666//Obscenity<BR><BR> March<BR> 3/28/02 Germany // Berlin<BR> 3/29/02 Germany // Engelsdorf<BR> 3/30/02 Germany // Offenbach<BR> 3/31/02 Belgium // Antwerpen<BR><BR> April<BR> 4/1/02 Holland // Tilburg<BR> 4/2/02 Germany // Essen<BR> 4/3/02 Switzerland // Pratteln<BR> 4/4/02 Italy // Milano<BR> 4/5/02 Austria // Vienna<BR> 4/6/02 Austria //Wels<BR> 4/7/02 France // Strasbourg<BR> 4/8/02 Germany // Offenbach<BR><BR> Malevolent Creation will then do a series of dates till May 4th in the following countries: Denmark,Sweden,Norway,Poland,Croatia,Slovenia,Czech Republic and Greece.These dates are being put together at this time,check our website for updates.Then it off to the studio for they're 8th Murderous studio album!</p>
+
+Автор: Yermola
+
+### 19.02.2002 news Malevolent Creation Tour Update.....
+
+<p>MALEVOLENT CREATION / KATAKLYSM / CATASTROPHIC<BR><BR> 13.03.2002. UK NEWCASTLE @ TRILLIANS<BR> 14.03.2002. UK LONDON @ GARAGE<BR> 15.03.2002. FR RENNES @ L'ANTIPODE<BR> 16.03.2002. BL MACHELEN(zulte) @ KAKKEWIET<BR> 17.03.2002. FR PARIS @ LOCOMOTIVE<BR> 18.03.2002. FR AMNEVILLE @ AFTER CLUB<BR> 19.03.2002. FR PERPIGNAN @ CROCK-MORE<BR> 20.03.2002. FR TRAVEL<BR> 21.03.2002. SP BARCELONA @ MEPHISTO<BR> 22.03.2002. SP MURCIA @ GAMMA<BR> 23.03.2002. SP IRUN @ TUNK<BR> 24.03.2002. SP MADRID @ RITMO & COMPAS<BR> 25.03.2002. SP TRAVEL<BR> 26.03.2002. ITA MILANO @ INDIAN'S SALOON<BR> 27.03.2002. CH WIL @ REMISE<BR> 28.03.2002. D BERLIN @ COLUMBIA HALLE * *<BR> 29.03.2002. D ENGELSDORF @ HELLRAISER * *<BR> 30.03.2002. D OFFENBACH @ HAFENBAHN * *<BR> 31.03.2002. BL ANTWERPEN @ HOF TER LO *<BR> 01.04.2002. NL TILBURG @ 013 *<BR> 02.04.2002. D ESSEN @ ZECHE CARL * *<BR> 03.04.2002. CH PRATTELN @ Z7 * *<BR> 04.04.2002. ITA MILANO @ PALA AQIUATICA * *<BR> 05.04.2002. A VIENNA @ ARENA * *<BR> 06.04.2002. A WELS @ SCHLACHTHOF * *<BR> 07.04.2002. FR STRASBOURG @ LA LAITERIE * *<BR> 08.04.2002. D OSNABRUCK @ HYDE PARK* *<BR><BR> * NO MERCY FESTIVALS<BR> ** WITHOUT KATAKLYSM<BR> EVERY DAY ANOTHER HEADLINNER<BR></p>
+
+Автор: Yermola
+
+### 04.06.2002 news Тени и пыль...
+
+<p>Канадские дэтстеры "KATAKLYSM" начали запись нового альбома "Shadows & Dust". Действо проходит в Монреальской Victor Studios с продюссером J-F Dagenais. Релиз - 4-го ноября через Nuclear Blast Records. Трек-лист: <BR><BR> 01. Where the Enemy Sleeps<BR> 02. Beyond Salvation<BR> 03. Illuminati<BR> 04. Bound in Chains<BR> 05. In Shadows & Dust<BR> 06. Centuries (Beneath the Dark Waters)<BR> 07. Face the Face of War<BR> 08. Chronicles of the Damned<BR> 09. Years of Enlightment/Decades in Darkness<BR> 10. Inside the Material Flesh (US bonus track)</p>
+
+Автор: Yermola
+
+### 04.06.2002 news KATAKLYSM Finalize Track Listing For &quot;Shadows &amp; Dust&quot;...
+
+<p>Canadian death metallers KATAKLYSM entered Montreal's Victor Studios this past Saturday (June 1st) with producer J-F Dagenais to begin recording their brand new album, entitled Shadows & Dust, for a November 4th release through Nuclear Blast Records. Due to be mixed at ex-OBLIVEON guitarist Pierre Remillard's studio Wildsound, the album will contain the following track listing: <BR><BR> 01. Where the Enemy Sleeps<BR> 02. Beyond Salvation<BR> 03. Illuminati<BR> 04. Bound in Chains<BR> 05. In Shadows & Dust<BR> 06. Centuries (Beneath the Dark Waters)<BR> 07. Face the Face of War<BR> 08. Chronicles of the Damned<BR> 09. Years of Enlightment/Decades in Darkness<BR> 10. Inside the Material Flesh (US bonus track)<BR><BR> In other news, KATAKLYSM have confirmed their appearance at the Snakepit Radio Festival in North Carolina on June 27-29. The band will then fly to Germany for the With Full Force festival, where they will co-headline the Hardbowl stage on July 5th, before returning to North America for a late summer trek under the Death Across America banner. <BR><BR> Finally, KATAKLYSM have announced that they have solved their issues with Digger International and will be rejoining the roster of the booking agency.</p>
+
+Автор: Yermola
+
+### 20.06.2002 reviews Худшая работа франкоговорящих канадцев
+
+<p>"Ребята начали играть СМДМ, только забыли сказать об этом своему барабанщику" (с) Seducer. А ведь верно, чёрт возьми! Гаденькие поползновения в сторону ненавистной многим "шведятины" были заметны ещё на "The Prophecy" (2000), однако тяга к более мелодичной музыке стала очевидной лишь год спустя. И что же? Имеем, пожалуй, худшую работу франкоговорящих канадцев. Честно говоря, я вообще с трудом воспринимаю KATAKLYSM без Сильвана и его незабываемого рыка – по сравнению с ним Маурицио очень слабый вокалист. Нет больше уникальных в своём роде стихов, нет больше единственной в мире команды, исполняющей оккультный грайнд. Есть какое-то несусветное смешение СМДМ'а, гиперскоростных барабанных дробей, хардкора, местами переходящего в эдакий дэтовый nu-metal ("Manipulator Of Souls") и околоблэковых кусков. Плюс тексты из разряда "чтобы были". Плюс полное отсутствие осмысленности. Грустно. Лично для меня KATAKLYSM раз и навсегда потеряли всё своё очарование. Хотя не стоит забывать, что это всего лишь моё субъективное мнение – альбом нравится очень и очень многим.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.07.2002 news KATAKLYSM&#39;s MAURIZIO IACONO: &quot;New Album Is My Favorite&quot;
+
+<p>Canadian death metallers KATAKLYSM have finished recording their brand new album, entitled Shadows & Dust, for a November 4th release through Nuclear Blast Records. According to singer Maurizio Iacono, "Shadows & Dust is without a doubt the most impressive KATAKLYSM release we've done. [Producer/guitarist Jean-Francois Dagenais] has done and incredible job on the production side... you guys will not believe the sound, it crushes all!!! Max's performance is godly, my voice never sounded as complete and as full as on this album, musically its devastating.. I'm very proud of everyone in the band, we've delivered the goods, now it's up to you guys to be the real judges, one thing is for sure this is my favorite album!"</p>
+
+Автор: Yermola
+
+### 24.10.2002 reviews А мяса сегодня не завезли...
+
+<p>Надо сразу оговорится, что избежать сравнения с потрясающим "Epic (The Poetry Of War)" этому творению не удастся. И, к сожалению, оно будет не в пользу "Shadows & Dust". Альбом получился несколько холодным, и, что самое плохое, гораздо менее энеригчным, чем его предшественник. Стало гораздо больше скрима, и, соответственно, меньше гроулинга, что и создает ощущение излишней приблэкованности музыки. Мелодии радуют слух, но, к сожалению, совершенно незапоминаются. И самое главное, пропало то чудесное "мясо", та неотъемлимая часть death-grind, которая в сочетании с талантливыми мелодиями и профессионализмом давала ту завараживающую картину, которую мы лицезрели в прошлом году.Звучание крайне скудное, ему сильно недостает полноты, из-за этого даже короткие песни слегка навевают скуку, и кажутся затянутыми. Остается только гадать, что это - просто неудачный альбом, или начало конца потрясающей группы? На эти мысли наталкивает то, что после прослушивания диска, вы его тут же забудете. Но! Если встанет вопрос приобретать или нет этот диск, то я посоветовал бы все-таки взять. Ибо если этот альбом и не шедевр, то это не значит, что он бездарен. Просто немножко не этого мы ждали. Очевидно корону death-grind в этом году присудили землякам Kataklysm - канадским фигуристам!</p>
+
+Автор: Gonetz
+
+### 21.01.2003 news KATAKLYSM Split With Drummer...
+
+<p>Canadian death metallers KATAKLYSM have parted ways with longtime drummer Max Duhamel following the completion of the band's recent European tour. According to an official press release, "Max announced to the band that he will be retiring but accepted nonetheless to do the upcoming North American tour in Feb./March 2003 with HATE ETERNAL, DYING FETUS and INTO ETERNITY... But to the band's surprise, Max has decided to pull out of that engagement a few days ago, leaving the band stranded to find a drummer."</p>
+
+Автор: Vit Belov
+
+### 21.01.2003 news Изменения в KATAKLYSM
+
+<p>Канадские бруталлеры KATAKLYSM расстались со своим ударником Max Duhamel. Сейчас, в преддверии североамериканского тура с HATE ETERNAL, DYING FETUS и INTO ETERNITY, группа занята поисками нового барабанщика. До самой осени группа предполагает заниматься активной концертной деятельностью, а в ноябре начать запись своего нового альбома под названием "Serenity in Fire". Выпуск альбома ожидается на Nuclear Blast Records в начале 2004 года.</p>
+
+Автор: Dimas
+
+### 29.09.2003 news Новости от KATAKLYSM
+
+<P><B>KATAKLYSM</B> засели в монреальскую <B>Studio Victor</B> для записи своего нового альбома <B>"Serenity In Fire"</B>, выход которого назначен на 16 февраля 2004 года через <B>Nuclear Blast Records</B>. Продюсер записи - гитарист группы <B>Jean-Francois Dagenais,</B> работавший также над альбомами <B>MISERY INDEX</B> и&nbsp;<B>MALEVOLENT CREATION</B>. В альбом войдут следующие вещи:</P>
+<P>1. The Ambassador of Pain<BR>2. As I Slither<BR>3. The Resurrected<BR>4. 10 Seconde from the End<BR>5. The Tragedy I Preach<BR>6. For All Our Sins<BR>7. The Night They Returned<BR>8. Blood on the Swans<BR>9. Serenity in Fire<BR>10. Under the Bleeding Sun </P>
+Автор: Dimas
+
+### 23.10.2003 news KATAKLYSM передвинули дату релиза
+
+<IMG height=200 alt="" hspace=0 src="/images/news_rus/2003.10/5277.jpg" width=200 align="right" border=0>KATAKLYSM Объявили о переносе даты релиза своего нового альбома "<B>Serenity In Fire" </B>на 8 марта. Сообщается, что на бонус-CD войдут видео-клипы <B>"In Shadows & Dust"</B>, <B>"The Awakener"</B>,&nbsp;и два новых клипа: <B>"As I Slither"</B>&nbsp;и <B>"The Night They Returned"</B>.
+Автор: Vit Belov
+
+### 08.12.2003 news Peter Tagtgren спел для KATAKLYSM
+
+<P>Лидер <B>HYPOCRISY Peter Tagtgren</B> записал партии гостевого вокала для нового альбома <B>KATAKLYSM 'Serenity In Fire'</B>, который выйдет 8 марта. </P>
+Автор: Vit Belov
+
+### 08.12.2003 news Peter Tagtgren on KATAKLYSM album
+
+<P><SPAN lang=EN-GB><B>HYPOCRISY</B> mainman <B>Peter T&auml;gtgren</B> has recorded a guest vocal appearance for the new <B>KATAKLYSM</B> album, "<B>Serenity In Fire</B>", due on </SPAN><SPAN lang=EN-GB>March 8, 2004</SPAN><SPAN lang=EN-GB>.</SPAN></P>
+<P><SPAN lang=EN-GB>As previously reported, the much-anticipated effort will contain the following video clips: "<B>In Shadows & Dust</B>", "<B>The Awakener</B>", and two new video clips from the upcoming album: "<B>As I Slither</B>" and the movie theme song "<B>The Night They Returned</B>". </SPAN></P>
+<P><SPAN lang=EN-GB>The latter will be filmed in </SPAN><SPAN lang=EN-GB>Montreal</SPAN><SPAN lang=EN-GB> on November 20. The clip will contain band shots in the studio and movie excerpts. <BR><BR>The artwork duties have once again been handled by acclaimed artist <B>Thomas Ewerhard (HYPOCRISY, AMON AMARTH).</B> </SPAN></P>
+Автор: Vit Belov
+
+### 20.12.2003 news Работа над новым альбомом KATAKLYSM завершена
+
+Работа над новым альбомом канадских дэтстеров <B>KATAKLYSM "Serenity In Fire"</B> завершена, и релиз состоится на <B>Nuclear Blast Records</B> 8 марта 2004 года.
+Автор: Darkfall
+
+### 02.01.2004 news Новый Kataklysm
+
+<P class="">Трэк <B>"The Ambassador of Pain"</B> с нового альбома <B>KATAKLYSM "Serenity In Fire"</B>&nbsp;можно скачать&nbsp;<A target=_blank href="http://www.kataklysm.net/downloads/KATAKLYSM-Ambassador_of_Pain.mp3">здесь</A>.&nbsp;&nbsp;<B>"Serenity In Fire"</B> выходит в праздничный день &nbsp;8 марта 2004 года на <B>Nuclear Blast Records</B>. Обложку диска можно посмотрть по <A target=_blank href="http://www.kataklysm.net/images/newalbum.jpg">этому</A> адресу, а предворительный трэк-лист выглядит так:</P>
+<P class="">01. <B>The Ambassador of Pain</B><BR>02. <B>As I Slither</B><BR>03. <B>The Resurrected</B><BR>04. <B>10 Seconds from the End</B><BR>05. <B>The Tragedy I Preach</B><BR>06. <B>For All Our Sins</B> (feat. <B>HYPOCRISY</B>'s <B>Peter T&auml;gtgren</B>)<BR>07. <B>The Night They Returned</B><BR>08. <B>Blood on the Swans</B><BR>09. <B>Serenity in Fire</B><BR>10. <B>Under the Bleeding Sun</B> <BR></P>
+Автор: Uneral
+
+### 01.04.2004 reviews KATAKLYSM - скорее всего ещё death, но совсем не brutal death
+
+<DIV><I>Канадцы из <B>KATAKLYSM </B>продолжают продвигать в массы искусство death-metal. Вероятнее всего, многие любители стиля уже не считают группу своими кумирами, но это не важно.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>На <B>'Serenity In Fire'</B> коллектив продолжают линию, начатую на последних трёх работах. Максимально возможное облегчение и повышение мелодичности. <B>KATAKLYSM</B> уже нельзя назвать "мясной" группой. Элементы melodic-death-metal и thrash сыграли свою роль. Апологеты ранних альбомов группы, мне думается, уже перестали серьёзно воспринимать коллектив, но огромное количество поклонников мелодичных металлических суррогатов вполне могут причислить канадцев к своим фаворитам. Обращаюсь к любителям мелодичного металла, если Вы не слушали ещё <B>KATAKLYSM</B>, из-за их репутации суровой death-metal группы, послушайте...</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Вообще, положительным фактором в творчестве <B>KATAKLYSM </B>является их внешняя суровость в звучании при достаточно мелодичной музыке. Группа способна стать самым тяжёлым, что послушают огромное количество metalheads. Эдакие "популяризаторы стиля".</DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>KATAKLYSM</B> - скорее всего ещё death, но совсем не brutal death.</DIV>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 13.01.2005 news KATAKLYSM вернули барабанщика
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KATAKLYSM</STRONG> покинул барабанщик<STRONG> Martin Maurais</STRONG>, причины не сообщаются. Его место занял, вернувшийся в группу, <STRONG>Max Duhamel</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 28.01.2005 news KATAKLYSM назвали новый альбом
+
+Новый альбом <STRONG>KATAKLYSM</STRONG> будет называться <STRONG>'In The Arms Of Devastation'</STRONG> и выйдет 17 октября!!! Далеко смотрят!
+Автор: Vit Belov
+
+### 10.06.2005 news Новости от KATAKLYSM
+
+<P><STRONG>KATAKLYSM </STRONG>войдут сегодня в студию<STRONG> Victor</STRONG>, где начнут запись барабанов для своего будущего альбома "<STRONG>In The Arms Of Devastation</STRONG>". Выход пластинки перенесён на февраль 2006 года. В то же время выйдет DVD, посвящённый 15-летию коллектива "<STRONG>The Taste Of Time</STRONG>". На него войдут все исторические моменты с 1991 года по наши дни.</P>
+Автор: Vit Belov
+
+### 18.07.2005 news Гости нового альбома KATAKLYSM
+
+<P><STRONG>KATAKLYSM </STRONG>объявили имена музыкантов, которые примут участие в записи нового альбома. Самым интересным пассажиром стала <STRONG>Morgan Lander</STRONG> -вокалистка из <STRONG>KITTIE</STRONG>. Кроме неё, примут участие <STRONG>Rob</STRONG> и <STRONG>Tim</STRONG> из<STRONG> INTO ETERNITY</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.07.2005 news Guests on the new KATAKLYSM
+
+<P>Singer from <STRONG>KITTIE Morgan Lander</STRONG> will do guest appearence on the new <STRONG>KATAKLYSM</STRONG> album. Also <STRONG>Rob</STRONG> and <STRONG>Tim</STRONG> from<STRONG> INTO ETERNITY</STRONG> will take part in recordings.</P>
+Автор: Vit Belov
+
+### 05.09.2005 news Cover-artwork для нового KATAKLYSM
+
+<P>Как мы уже сообщали, новый альбом<STRONG> KATAKLYSM "In The Arms Of Devastation"</STRONG> практически готов. Группа и лэйбл <STRONG>Nuclear Blast</STRONG> объявили конкурс на лучший кавер-артворк для этого релиза. В финал вышли 5 фэнов, вы можете проголосовать здесь: <A href="http://www.nuclearblast.de/katavoting.php">http://www.nuclearblast.de/katavoting.php</A></P>
+Автор: Vit Belov
+
+### 05.09.2005 news KATAKLYSM cover-artwork contest
+
+<P><STRONG>KATAKLYSM</STRONG> and <STRONG>Nuclear Blast</STRONG> informed about contest for cover-artwork for new <STRONG>KATAKLYSM</STRONG> album "<STRONG>In The Arms Of Devastation</STRONG>". You may vote for cover here: <A href="http://www.nuclearblast.de/katavoting.php">http://www.nuclearblast.de/katavoting.php</A></P>
+Автор: Vit Belov
+
+### 10.09.2005 news Новый альбом KATAKLYSM
+
+<P>Новый альбом <STRONG>KATAKLYSM "In The Arm Of Devastation"</STRONG> выходит 20 февраля 2006 года. Трэк-лист:</P>
+<P>1. <STRONG>Temptation's Nest<BR></STRONG>2. <STRONG>Let Them Burn<BR></STRONG>3. <STRONG>Crippled & Broken<BR></STRONG>4. <STRONG>Open Scars<BR></STRONG>5. <STRONG>To Reign again<BR></STRONG>6. <STRONG>In Words of Desperation<BR></STRONG>7. <STRONG>Like Angels Weeping the Dark<BR></STRONG>8. <STRONG>It Turns To Rust<BR></STRONG>9. <STRONG>The Road to Devastation</STRONG></P>
+Автор: Vit Belov
+
+### 10.09.2005 news New album of KATAKLYSM
+
+<P>New album of <STRONG>KATAKLYSM "In The Arm Of Devastation"</STRONG>&nbsp;will hit the stores&nbsp;on&nbsp;20th of the February. Track-list:</P>
+<P>1. <STRONG>Temptation's Nest<BR></STRONG>2. <STRONG>Let Them Burn<BR></STRONG>3. <STRONG>Crippled & Broken<BR></STRONG>4. <STRONG>Open Scars<BR></STRONG>5. <STRONG>To Reign again<BR></STRONG>6. <STRONG>In Words of Desperation<BR></STRONG>7. <STRONG>Like Angels Weeping the Dark<BR></STRONG>8. <STRONG>It Turns To Rust<BR></STRONG>9. <STRONG>The Road to Devastation</STRONG></P>
+Автор: Vit Belov
+
+### 19.05.2006 reviews Канадцы становятся модерновее
+
+<P>Восьмой студийный полноформатник канадских дэтстеров Kataklysm отличается от своих предшественников прежде всего звуком. На этот раз к саунду приложил руку не только гитарист группы Jean-Francois Dagenais, но и известный в определенных кругах Tue Madsen (работавший с такими командами, как Gorefest, Konkhra, Grope, Raunchy, The Haunted, Panzerchrist, Mnemic, Ektomorph, Destiny, Aborted, Disbelief, Born From Pain). Посему звук получился очень "модерновым", порой пластинка слушается даже перепродюсированной. В остальном больших различий от последних работ Kataklysm нет, разве что опять вернулся ударник Max Duhamel. Есть вещи и быстрые, и среднетемповые (которые, по моему мнению, удаются группе лучше). Но вот порой излишний мелодизм явно не на пользу команде, она начинает звучать практически как мелодик-дэтовая группа. В общем и целом, получился довольно неоднозначный релиз, который наверняка понравится фанатам Kataklysm и любителям присутствия мелодики в дэт-метале. Не признающим же "соплей" в этом жанре, "In The Arms Of Devastation" вряд ли придется по вкусу. Добавлю лишь, что в записи альбома принимали участие Morgan Lander (Kittie), Rob Doherty и Tim Roth (оба - Into Eternity).</P>
+<P>Альбом предоставлен компанией Irond</P>
+Автор: Ixtiandr
+
+### 01.11.2006 news DVD от KATAKLYSM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В начале 2007 года на <STRONG>Nuclear Blast</STRONG> выходит DVD<STRONG> KATAKLYSM</STRONG> <STRONG>"Live in Deutschland (The Devastation Begins)". </STRONG>Трэк-лист:</FONT></P>
+<P><IMG height=237 alt="" hspace=0 src="/images/news_rus/2006.11/10843.jpg" width=168 align=right border=5>Disc 1 (DVD)<BR>Live At <B>Party.San Open Air</B> - August 12, 2006 in Bad Berka, Germany:<BR>01. <B>Like Angels Weeping (The Dark)</B><BR>02. <B>Where the Enemy Sleeps</B><BR>03. <B>The Ressurected</B><BR>04. <B>Let Them Burn</B><BR>05. <B>As I Slither</B><BR>06. <B>As the Glorious Weep</B><BR>07. <B>The Ambassador of Pain</B><BR>08. <B>Manipulator of Souls</B><BR>09. <B>Crippled & Broken</B><BR>10. <B>In Shadows & Dust</B><BR>11. <B>Face the Face of War</B><BR>12. <B>The Road To Devastation</B><BR><BR>Live At The Medley in Montreal, Canada (Bonus Footage):<BR>13. <B>Illuminati</B><BR>14. <B>To Reign Again</B><BR>15. <B>The Awakener</B><BR>16. <B>Sorcery</B> <BR><BR><B>"The Test of Time"</B> Documentary:<BR>* Band profilers/interviews<BR>* Band/fan Pictures<BR>* On the Road footage<BR>* Video Clips: <BR>- <B>The Awakener</B><BR>- <B>In Shadows & Dust</B><BR>- <B>As I Slither</B><BR>- <B>Crippled & Broken</B><BR>- <B>To Reign Again</B><BR><BR>Disc 2 (CD):<BR>Live at <B>Party.San Open Air</B> - August 12, 2006 in Bad Berka, Germany</P>
+Автор: Vit Belov
+
+### 19.02.2008 news Новый KATAKLYSM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=397 alt="" hspace=0 src="/images/news_rus/2008.02/12259.jpg" width=400 align=left border=5>Новый альбом <STRONG>KATAKLYSM "Prevail" </STRONG>выходит 23 мая на <STRONG>Nuclear Blast</STRONG>. Гостевое участие на этой пластинке приняли <STRONG>Pat O'Brien</STRONG> (<B>CANNIBAL CORPSE</B>) и <B>Dave Linsk</B> (<B>OVERKILL</B>). Группа опубликовала кавер-арт будущей работы. Решено сохранить на обложке персонажа, появившегося на прошлом альбоме, которому дано имя "<STRONG>The HeartBeast</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 03.04.2008 news Новая песня KATAKLYSM
+
+<P><STRONG>KATAKLYSM</STRONG> опубликовали на своей <STRONG>MySpace </STRONG>страничке новую песню "<STRONG>The Chains Of Power</STRONG>", которая войдёт на новый альбом "<STRONG>Prevail</STRONG>".</P>
+<P>Ссылка: <A href="http://www.myspace.com/kataklysm">http://www.myspace.com/kataklysm</A></P>
+Автор: Vit Belov
+
+### 04.07.2008 reviews В чём успех KATAKLYSM?
+
+<P>В чём успех канадской death-metal формации KATAKLYSM? Я думаю, уже смело можно говорить именно об успехе. Стартовав, как и все, в начале 90-х эта группа продолжает своё существование, привлекая новых поклонников и сохраняя старых, выпуская новые, каждый раз, очень не плохие альбомы на Nuclear Blast. В то время, как большинство соратников по сцене тихонечко скончались или перешли в глубокий underground, KATAKLYSM продолжают ездить с турами по всему миру, осваивая в качестве партнёров по ним новые и даже начинающие тяжёлые коллективы.</P>
+<P>“Prevail” – очередной крепкий, качественнейший и хороший альбом от этих канадцев вышел в мае. Не очень быстрый, тяжёлый, грамотно реализованный и мелодичный материал этой пластинки придётся по душе всем старым фэнам KATAKLYSM. Также не надо исключать появление и новых почитателей их таланта, так как такая музыка, мелодичная и, в то же время, жутко серьёзная всегда найдёт своего почитателя. Хотя прошло уже почти 10 лет с тех пор, когда я в первый раз восхитился альбомом этого коллектива, я послушал “Prevail” со сдержанным удовольствием. По мне, этому альбому немного не хватило динамики, быстрые песни можно пересчитать по пальцам одной руки, но даже среднетемповые композиции у KATAKLYSM всегда выходят «зачётно».</P>
+<P>Нужно ли отвечать на вопрос, который я поставил в самом начале? Или можно смело подождать до следующего альбома группы, который не заставит себя долго ждать, а писать о нём что-то надо будет? Думается, поклонники тяжёлой музыки сами смогут ответить. Эта работа не всколыхнула во мне былых восторгов, но ничего плохого KATAKLYSM я не желаю, всегда приятно врезать чем-нибудь подобным по ушам соседей, при этом самому особенно не напрягаясь.</P>
+Автор: Vit Belov
+
+### 27.11.2008 news Новое видео KATAKLYSM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>KATAKLYSM</STRONG> на песню "<STRONG>Blood In Heaven</STRONG>" можно посомтреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=47135774">KATAKLYSM - Blood In Heaven</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=47135774,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=47135774,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 10.06.2009 news Гитариста KATAKLYSM поймало ФБР
+
+<P>Возвращаясь из России, <STRONG>KATAKLYSM</STRONG> пережили очень неприятный инцидент в аэропорту Вашингтона. Гитариста группы <STRONG>Jean-Francois Dagenais </STRONG>на паспортном контроле задержало ФБР. Продержав его пять часов в комнате для допросов, агенты выяснили, что в списке разыскиваемых Интерпол находится другой человек с тем же именем.</P>
+<P>В своём заявлении вокалист <STRONG>KATAKLYSM</STRONG> <STRONG>Maurizio Iacono </STRONG>посмеялся над тем, что неприятностей канадцы ждали в нашей стране, но настигли они их на Родине.</P>
+Автор: Vit Belov
+
+### 01.12.2009 news Новый альбом KATAKLYSM будет техничным
+
+<P><STRONG>KATAKLYSM</STRONG> рассказали о процессе написания материала для своего нового альбома, который выйдет летом.осенью следующего года на <STRONG>Nuclear Blast</STRONG>. "<EM>Следующий альбом будет отличаться от "Prevail". На нём будут традиционные для KATAKLYSM вещи, но эта пластинка будет самой сложной у KATAKLYSM</EM>", - рассказал гитарист <STRONG>Jean-Francois Dagenais</STRONG>. </P>
+<P>Также альбом обещает быть очень мелодичным и в то же время техничным. В отличие от предыдущей работы сведением займётся<STRONG> Tue Madsen</STRONG>. </P>
+Автор: Vit Belov
+
+### 28.12.2009 news KATAKLYSM назвали альбом
+
+<P>Новый альбом <STRONG>KATAKLYSM</STRONG>, который выйдет в октябре на <STRONG>Nuclear Blast</STRONG>, будет называться <STRONG>"Heaven's Venom".</STRONG></P>
+Автор: Vit Belov
+
+### 28.05.2010 news KATAKLYSM закончили запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KATAKLYSM </STRONG>закончили запись нового альбома <STRONG>"Heaven's Venom". </STRONG>Пластинка была записана под руководством гитариста группы <STRONG>Jean-Francois Dagenais</STRONG> (<B>MALEVOLENT CREATION</B>, <B>MISERY INDEX</B>) и сейчас микшируется в Дании <STRONG>Tue Madsen</STRONG> (<B>THE HAUNTED</B>, <B>MNEMIC</B>, <B>DARK TRANQUILLITY</B>). Дата релиза: 20 августа на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа заявляет, что хочет остаться в истории метала, как коллектив, который никогда не сдавался и не был подвержен сиюминутной моде.</FONT></P>
+Автор: Vit Belov
+
+### 15.06.2010 news Обложка KATAKLYSM
+
+<P>Новый альбом<STRONG> KATAKLYSM</STRONG> <STRONG>"Heaven's Venom" </STRONG>выходит 23 августа на<STRONG> Nuclear Blast</STRONG>. Группа опубликовала обложку будущей пластинки с тем же главным героем, что и ранее.</P>
+<P><center><IMG height=400 src="/images/news_rus/2010.06/16807.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.07.2010 news Новая песня KATAKLYSM
+
+<P><STRONG>"Determined (Vows Of Vengeance)"</STRONG>, так называется новая песня <STRONG>KATAKLYSM</STRONG>, которую можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/kataklysm">http://www.myspace.com/kataklysm</A></P>
+<P>Новый альбом брутальных канадцев <STRONG>"Heaven's Venom"</STRONG>&nbsp;выйдет уже 13 августа на<STRONG> Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.08.2010 news Новое видео KATAKLYSM
+
+<P>Новый клип <STRONG>KATAKLYSM</STRONG> на песню <STRONG>"Push The Venom" </STRONG>можно посмотреть ниже. Видео было снято в сербском Белграде режиссёром <STRONG>Ivan Colic</STRONG> (<B>TYPE O NEGATIVE</B>, <B>UNLEASHED</B>, <B>DEATHSTARS</B>, <B>EX DEO</B>).</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/hlUNc8vA1Tg&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/hlUNc8vA1Tg&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.09.2010 reviews А мяса сегодня не завезли… - 2
+
+<P>Секрет успеха канадской группы KATAKLYSM в грамотном смешении тяжести и мелодизма в собственном творчестве. Коллектив нельзя назвать самым мелодичным или самым брутальным, но получаемый музыкантами коктейль приходится по вкусу как любителям death-metal, так и поклонникам более мелодичных сортов тяжёлой музыки.</P>
+<P>Разница между последними пятью – шестью альбомами, пожалуй, заключается только в пропорциях, применяемых KATAKLYSM к своим излюбленным ингредиентам, перечисленным выше. На мой вкус канадцам постоянно необходимо подстёгивать свою брутальную ипостась, чтобы их мелодичные эпики сохраняли свою кровавую свежесть и мясистую звероподобность. С мелодизмом на последних альбомах проблем нет, а вот с риффами бывают. У “Heaven’s Venom” мелодичный рецепт. Нет, записано всё великолепно, это ещё один козырь KATAKLYSM, но обилие элементов melodic death-metal уже никак скрыть не получается. В данном случае канадцы теряют некоторую часть своей привлекательности, и с этим ничего поделать нельзя. С другой стороны, обозреваемый альбом можно порекомендовать поклонникам melodic death-metal, уже без всяких оговорок. Стоит отметить, что в прошлом году музыканты KATAKLYSM реализовали ещё и дебют проекта EX DEO, прямо скажем, великолепный дебют. По этой причине, я думаю, мы можем простить музыкантам одну маленькую промашку. Но только одну!</P>
+<P>К сожалению, не самый лучший альбом KATAKLYSM, но дюже мелодичный. Как писал один наш рецензент в статье про один из предыдущих альбомов группы: «Мяса сегодня не завезли». Это выражение можно смело использовать и для характеристики “Heaven’s Venom”. </P>
+Автор: Vit Belov
+
+### 16.02.2011 news KATAKLYSM готовят юбилейный DVD
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.02/18605.jpg" width=300 align=right border=0>KATAKLYSM</STRONG> продолжают работу над своим юбилейным DVD <STRONG>"The Iron Will: 20 Years Determined". </STRONG>Главным блюдом готовящегося релиза станет масштабный документальный фильм о истории канадской группы, начиная с 1991 года. Режиссёр <STRONG>Tommy Jones</STRONG> (<B>LAMB OF GOD</B>, <B>SOILWORK</B>, <B>DEATH ANGEL</B>) собрал вместе туровые кадры и интервью всех участников, включая оригинального вокалиста <STRONG>Sylvain Houde</STRONG>, который пел на первых трёх пластинках <STRONG>KATAKLYSM</STRONG>.</P>
+<P>Любителям концертного "экшена" будет предоставлено шоу на фестивале <STRONG>Summer Breeze </STRONG>этого года<STRONG>,</STRONG> на котором группа исполнит вещи со всех 11 своих альбомов. Также летом будет записана заглавная вещь "<STRONG>The Iron Will</STRONG>" и будет снят на неё видео-клип. </P>
+Автор: Vit Belov
+
+### 06.04.2011 news Новый клип KATAKLYSM
+
+<P>Новый видео-клип <STRONG>KATAKLYSM</STRONG> на песню <STRONG>"At The Edge Of The World" </STRONG>можно посмотреть ниже. Ролик был отснят 20 марта на концерте в родном городе группы режиссёром <STRONG>Tommy Jones</STRONG> (<B>DEATH ANGEL</B>, <B>SOILWORK</B>). </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/XD1BBE-XYxQ?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/XD1BBE-XYxQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.06.2011 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" align=right src="/images/news_rus/2011.06/19820.jpg" width=250 height=250>Чешский фестиваль <STRONG>Brutal Assault</STRONG> опубликовал ещё несколько имён участников, которые выступят на его сцене в этом году, это - брутальные канадцы&nbsp;<STRONG>CRYPTOPSY</STRONG>,&nbsp;death/thrash металлисты из Соеденённых Арабских Эмиратов - <STRONG>NERVECELL</STRONG>, ещё одни канадцы - <STRONG>KATAKLYSM</STRONG>, викинги&nbsp;<STRONG>TYR</STRONG>, французская эмбиент/эксперементальная группа <STRONG>UNEVEN STRUCTURE</STRONG>, а так же,&nbsp;вперые на фестивале&nbsp;выступят немецкие трэшеры <STRONG>KREATOR</STRONG>.&nbsp;</P>
+<P>К сожалению, по причине того, что группу <STRONG>NEVERMORE</STRONG>&nbsp;покинили двое её участников -&nbsp;&nbsp;<STRONG>Jeff Loomis</STRONG> и <STRONG>Van Williams</STRONG>, ей пришлось отменить все ранее запланированные выступления, в том числе и на фестивале<STRONG> Brutal Assault</STRONG>' 2011.&nbsp;&nbsp;И ещё одной отменой стали фины <STRONG>NORTHER</STRONG>, которые не смогут принять участие в фестивале по причине непрофессиональной работы своего&nbsp;агента.</P>
+Автор: Headcrusher
+
+### 21.01.2012 news Обложка нового DVD KATAKLYSM
+
+<P>Весной на <STRONG>Nuclear Blast</STRONG> выходит новый концертный DVD<STRONG> KATAKLYSM "The Iron Will: 20 Years Determined"</STRONG>. Обложку релиза можно посмотреть ниже.</P>
+<P><center><IMG height=447 src="/images/news_rus/2012.01/22718.jpg" width=447 border=0></P>
+Автор: Vit Belov
+
+### 24.04.2012 news Новый клип KATAKLYSM
+
+<P>19 июня на <STRONG>Nuclear Blast</STRONG> выходит новый мультидисковый DVD<STRONG> KATAKLYSM "The Iron Will: 20 Years Determined"</STRONG>. Ниже можно увидеть видео на заглавный новый трек этого релиза.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/KSs6Jp7X0uY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 06.08.2013 news KATAKLYSM опубликовали версию обложки своего нового альбома &quot;Waiting For The End To Come&quot; для издания на CD и кассетах
+
+<P>Канадцы <STRONG>KATAKLYSM</STRONG> опубликовали обложку своего нового альбома под названием <STRONG>"Waiting For The End To Come"</STRONG>. Автор обложки - <STRONG>Peter Sallai</STRONG> (<A href="http://www.mortpaintgraphics.com/">www.mortpaintgraphics.com</A>).</P>
+<P>Комментирует <STRONG>Maurizio Iacono</STRONG> (вокал, <STRONG>KATAKLYSM</STRONG>):</P>
+<P><EM>"Обложка альбома изображает ребёнка, который олицетворяет невинность человечества, покрытую грязью и кровью жизненного опыта. Перед ним его смерть в виде жнеца, который пришёл, чтобы потребовать его душу для загробной жизни или, возможно,&nbsp;для преисподнии. Пусть фэны сами решат для чего, в зависимости от своих верований. В любом случае, это переход между жизнью и смертью".</EM></P>
+<P>Данная картина будет использоваться только&nbsp;для оформления компакт-дисков и кассет (которые группы планирует выпустить ограниченным тиражом). </P>
+<P>Издание же альбома в формате винила и 'deluxe edition digipak'&nbsp;будет украшено оформлением&nbsp;от Элирана Кантора (<STRONG>Eliran Kantor</STRONG>, <A href="http://www.elirankantor.com/">www.elirankantor.com</A>). Группа планирует представить его 11 августа.</P>
+<P>Выход альбома намечен на октябрь 2013 г.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26050.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 01.11.2013 reviews KATAKLYSM  с косметическим ремонтом
+
+<p>Одиннадцатый альбом корифеев мелодичного death-metal из Канады. Закончив празднования своего 20-летнего юбилея и выпустив соответствующее DVD, завершив работу над вторым альбомом EX DEO, KATAKLYSM предстали перед нами в слегка изменённом виде. Upgrade слегка улучшил все компоненты группы, но не огорчил верных поклонников коллектива.</p><p>Канадцы стали чуть более брутальными, чуть лучше записались, слегка усложнили музыкальный материал, но это всё тот же узнаваемый KATAKLYSM, который мы все любим. Жёсткие риффы, высококачественная запись, брутальный вокал и притрешёванные проходы – всё это есть на “Waiting for the End to Come”. Группа очередной раз показала, что не даром пользуется любовью у потребителей тяжёлой музыки «для всех».</p><p>Альбом KATAKLYSM можно смело рекомендовать всем поклонникам группы последнее десятилетие, но и не стоит отворачиваться от KATAKLYSM тем, кто слушает более мелодичные стили музыки. Попробуйте, может понравится.</p>
+Автор: Vit Belov
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+### 24.03.2015 news KATAKLYSM: детали альбома &quot;Of Ghosts And Gods&quot;
+
+<P>Канадская death metal банда <STRONG>KATAKLYSM</STRONG> обнародовала детали своего нового альбома. </P>
+<P>Диск получил название <STRONG>"Of Ghosts&nbsp;And Gods"</STRONG>.&nbsp;</P>
+<P>Обложку для него выполнил&nbsp;<STRONG>Surtsey Castano</STRONG> (<A href="http://www.facebook.com/ocvltadesigns">www.facebook.com/ocvltadesigns</A>). </P>
+<P>Альбом выйдет на лейбле <STRONG>Nuclear Blast</STRONG>&nbsp;31 июля этого года.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Breaching The Asylum</STRONG> | 02. <STRONG>The Black Sheep</STRONG> | 03. <STRONG>Thy Serpents Tongue</STRONG> | 04. <STRONG>Soul Destroyer</STRONG> | 05. <STRONG>Vindication</STRONG> | 06. <STRONG>Marching Through Graveyards</STRONG> | 07. <STRONG>Shattered</STRONG> | 08. <STRONG>Hate Spirit</STRONG> | 09.<STRONG> Carrying Crosses</STRONG> | 10. <STRONG>The World Is&nbsp;A Dying Insect</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.03/27809.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 07.06.2015 news KATAKLYSM выпускают острый соус
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадская группа <STRONG>KATAKLYSM</STRONG> выпускает два вида острого соуса. В продажу они поступят с третьего августа. Ну а сейчас уже можно сделать предварительный заказ, так как их количество строго ограничено.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка для заказа: <A href="http://kataklysm.ca/hot-sauces/">http://kataklysm.ca/hot-sauces/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28072.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Kataklysm vs Morbid Angel

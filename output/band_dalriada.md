@@ -64,6 +64,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.07.2011 news Видео-клип DALRIADA
+
+<P>Новый видео-клип венегрской folk-pagan группы<STRONG> DALRIADA</STRONG> на песню "<STRONG>Haidutanc</STRONG>" можно посмотреть ниже. Трек взят с последнего альбома коллектива "<STRONG>Igeret</STRONG>", который вышел <STRONG>AFM Records</STRONG> в феврале.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9F7b4skyUy4?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/9F7b4skyUy4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Folk Summer Fest 2015: Finntroll, Tanzwut, Dalriada, Аркона и др. (17,18,19 июля)

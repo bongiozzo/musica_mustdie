@@ -20,6 +20,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.09.2011 news Дебютная пластинка SERPENT ASCENDING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=250 alt="" hspace=0 src="/images/news_rus/2011.09/21244.jpg" width=250 align=right border=0>Дебютная работа финского one-man band проекта <STRONG>SERPENT ASCENDING "The Enigma Unsettled"</STRONG> вышла на лэйбле . Группа является проектом <STRONG>Jarno Nurmi (SLUGATHOR, DESECRESY, NERLICH)</STRONG> и выступает в жанре среднетемпового death/doom metal в духе <STRONG>ASPHYX</STRONG> и раннего <STRONG>PARADISE LOST</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>The Mournful Pilgrimage - Part 1<BR></STRONG>2. <STRONG>Saturnal<BR>3.</STRONG> <STRONG>The Human Ladders</STRONG><BR>4. <STRONG>The Mournful Pilgrimage - Part 2</STRONG> <BR>5.<STRONG> The Entwinement</STRONG> <BR>6. <STRONG>World of Flesh on Bone</STRONG> <BR>7. <STRONG>Serpent Ascending</STRONG>&nbsp; <BR>8. <STRONG>The Enigma Unsettled</STRONG>&nbsp;&nbsp; <BR>9. <STRONG>Endless Initiations</STRONG> </P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/serpentascending">http://www.myspace.com/serpentascending</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

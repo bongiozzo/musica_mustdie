@@ -112,6 +112,27 @@ Beherit - Vocals, Percussion, Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.03.2009 news BEHERIT вернулись в &quot;разрушающее искусство&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.03/13735.jpg" width=200 align=left border=5>Финский <STRONG>BEHERIT</STRONG> выпускает новый альбом <STRONG>"Engram"</STRONG>&nbsp;9 апреля на <STRONG>Spinefarm Records</STRONG>. Весь материал для пластинки был сочинён лидером проекта <STRONG>Nuclear Holocaust Vengeance</STRONG>. Музыкант заявил, что вернулся в "разрушающее искусство" и воссоздал&nbsp;саунд<STRONG> BEHERIT</STRONG>. Образцы этого саунда на <A href="http://www.beherit.fi/">http://www.beherit.fi/</A>&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 03.07.2009 reviews Произведение искусства
+
+<P>Ещё одно возвращение. На этот раз в black-metal. После более чем десятилетнего перерыва финские мизантропы вернулись в металл, и это надо сказать у них получилось очень эффектно.</P>
+<P>Обозреваемая пластинка один из идеальнейших альбомов в black-metal за последнее время. Мрачная и холодная атмосфера, мизантропия в каждом аккорде. Честно говоря, я не ожидал такого эффекта на собственную психику. Здесь нет каких-либо симфонизмов, индустриальных наворотов или авангарда (пожалуй, за исключением какой-то «трубы» на «открывашке»), но простыми black-metal средствами BEHERIT рассказали о том, о чём рассказывали классики стиля в 90-х годах, к классикам, кстати, финнов тоже легко можно отнести. Последнее время подобное настроение, мягко говоря, недовольства окружающим миром встретишь нечасто. Мне кажется, что поводов для этого недовольства не стало меньше и, будем надеяться, подобные альбомы будут появляться.</P>
+<P>Выйдя из транса, ставлю высочайшую оценку. Безусловное произведение искусства без оглядки на стили.</P>
+Автор: Vit Belov
+
+### 09.10.2011 news &quot;Дебютный&quot; альбом BEHERIT
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.10/21476.jpg" width=400 align=right border=0>19 июня этого года вышел новый CD финнов <STRONG>BEHERIT </STRONG>под названием "<STRONG>At The Devil's Studio 1990</STRONG>". Утверждается, что эта работа должна была стать дебютным альбомом знаменитой true black-metal группы, но не вышла в свой срок, из-за проблем лэйбла <STRONG>Turbo Music</STRONG>. Нашему вниманию представлен материал, записанный в живую в студии <STRONG>Ala Ky</STRONG> в 1990 году. Эту запись отыскал в своём архиве один из лидеров <STRONG>BEHERIT Sodomatic Slaughter</STRONG>. На диск попало два нереализованных ранее трека, а остальной материал представлен в отличном от привычного виде. Трек-лист:</P>
+<P>1. <STRONG>Rehearsal<BR></STRONG>2. <STRONG>Grave Desecration Vengeance <BR></STRONG>3. <STRONG>At the Devil's Churns<BR></STRONG>4. <STRONG>Nocturnal Evil <BR></STRONG>5. <STRONG>Whores of Belial&nbsp; <BR></STRONG>6. <STRONG>Witchcraft<BR></STRONG>7. <STRONG>The Oath of Black Blood</STRONG>&nbsp; <BR>8. <STRONG>Six Days with Sadistic Slayer</STRONG> <BR>9. <STRONG>Demonomancy</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

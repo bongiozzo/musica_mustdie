@@ -24,6 +24,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2016 news Видео-клип от CARACH ANGREN
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Голландская sympho black metal группа <strong>CARACH ANGREN</strong> выпустила видео-клип на песню "<strong>When Crows Tick on Windows</strong>". Трек взят с альбома 2015 года выпуска "<strong>This Is No Fairytale</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/USIao3W2W1E" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.09.2016 news CARACH ANGREN premier horror video
+
+<p><strong>CARACH ANGREN</strong> are currently unleashing a sinister video clip for the track "<strong>When Crows Tick on Windows</strong>" taken from the Dutch latest horror metal masterpiece&nbsp; <strong>'This Is No Fairytale'</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/USIao3W2W1E" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

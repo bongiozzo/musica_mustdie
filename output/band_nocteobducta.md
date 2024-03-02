@@ -163,6 +163,32 @@ Additional recordings were done at Studio Hauptdeck.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.09.2002 reviews Туман, кровь, лес и безмолвие мертвых детей
+
+<p>Туман, кровь, лес и безмолвие мертвых детей. Вот такая картина рождается при прослушивании четвертого альбома немецкой группы NOCTE OBDUCTA образованной в свое время клавишником AGATHODAIMON, пожертвовавшим участием в основной группе ради этого проекта. Эта музыка более серьезная, более злая и брутальная, чем весь остальной немецкий black metal. Это ближе к norwegian true black metal. Можно сравнить с DARK THRONE, но у немцев все разнообразнее, намного техничнее и местами имеются неплохие мелодии. Сумасшедшие скорости, сырой звук, гитарные жужжания, ураганные бласт-биты, непроницаемые атмосферные клавишные и обычный для подобной музыки вокал. Альбом показывает, что группа от альбома к альбому выходит на все более высокий уровень, и до вершины уже недалеко. Отличный подарок для всех любителей экстремального black metal.</p>
+
+Автор: Dimas
+
+### 29.09.2004 news Nocte Obducta выпускают новый альбом
+
+<P><STRONG>NOCTE OBDUCTA</STRONG> готовят новый альбом "<STRONG>Nektar Teil 2</STRONG>" к выходу 10 января 2005 года на <STRONG>Supreme Chaos Records</STRONG>. Тем временем, группу покинул клавишник-вокалист <STRONG>Stefan:Emanon</STRONG>, который решил сконцентрироваться на своей другой группе <STRONG>MISANTHROPIC</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.09.2004 news NOCTE OBDUCTA to release new album
+
+<P>Keyboard player and death metal vocalist <STRONG>Stefan:Emanon</STRONG> has left the <STRONG>NOCTE OBDUCTA</STRONG> to be available for his death metal formation <STRONG>MISANTHROPIC</STRONG> where he is doing the vocals. He is now replaced by <STRONG>Flange</STRONG> who may be known to some of you who followed <STRONG>NOCTE OBDUCTA</STRONG> for a long time. So he will the keyboards in the future, but is not playing on "<STRONG>Nektar Teil 2</STRONG>", yet, because both parts were recorded at the same time in March 2004.</P>
+<P>The release date of "<STRONG>Nektar Teil 2</STRONG>" is set to the 10th of January 2005 now. More information will come soon.</P>
+Автор: Vit Belov
+
+### 29.11.2006 reviews Покорение неземных вершин
+
+<P>Шестое полнометражное творение одного из лучших немецких коллективов. Уникальное творение созданное, безусловно, незаурядными умами. Атмосферный black metal, мрачный и мелодичный, потрясающий сменами настроений, с прекрасным качеством записи и великолепным продюсированием. Это музыка не для "левых ушей". На мой взгляд, этот проект музыкантов из <STRONG>AGATHODAIMON</STRONG>, уже перерос своих родителей. С каждым своим альбомом, музыканты растут и добиваются немыслимых результатов, при этом совершенно не изменяя однажды выбранной стилистике. Порой, их музыка принимает самые невообразимые формы. <STRONG>NOCTE OBDUCTA</STRONG> рисуют абстрактные картины на фоне мелодичного, но зловещего black metal. Здесь есть все, что угодно. Эта музыка с самого начала поражает своей жесткостью и агрессивностью, при этом она быстра и бескомпромиссна. Но, вдруг, она становится медленной и мелодичной, с акустическими переливами и причудливыми проигрышами. Затем, следует еще несколько изломанных переходов от какофонии к полифонии. И так далее. Вторая часть "Нектара" лишь незначительно отличается от первой. Лучше всего их слушать в совокупности. Мне, почему-то, хочется сравнить <STRONG>NOCTE OBDUCTA</STRONG> с <STRONG>OPETH</STRONG>, и назвать их блэк-металлическим аналогом шведского коллектива.&nbsp;Музыка немцев также прогрессивна (хотя и не является новаторской), разнообразна&nbsp;и напоминает эпос о вечном. Рекомендую всем любителям progressive black metal.</P>
+<P>Диск предоставлен компанией <STRONG>MYSTIC EMPIRE</STRONG></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

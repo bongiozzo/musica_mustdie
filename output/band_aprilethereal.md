@@ -8,6 +8,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.06.2002 news Latest news from April Ethereal...
+
+<p>The band will enter Green Studio in Krakow (Poland) on the 1st of July 2002 in order to record "Al Azif", their second album. The recording process will take 18 days and here's the tracklisting of the upcoming album: 1. Al Azif, 2. The Shadow Of Nyarlathotep, 3. Behind The Wings Of Cthulu, 4. The Strange High House In The Mist, 5. (song title still unknown) and a sixth instrumental song, still unnamed. "Al Azif" will be recorded with a real drummer and a real bass player, the drums will be recorded acoustically (without ddrum), analog mixing and analog mastering will give "Al Azif" the best sound possible. As guest appearances on the album, there will be Beldaroh from the polish black metal horde Besatt and Peter from the polish doom metal band Eternal Tear, who will record clean vocals on one song. Before the "Al Azif" recording session, April Ethereal will play 2 gigs, presenting only the new songs from the second album; <BR><BR> 2002-06-14 April Ethereal, Eternal Tear, Gortal. (POL) Warszawa Bar Pod Lipa;<BR> 2002-06-23 April Ethereal, Asgaard, Carnal (POL) Opole<BR><BR> and then after summer more shows confirmed to promote "Al Azif" on: <BR><BR> 2002-10-26 Benediction, Hell-Born, April Ethereal, Immemorial, Epitome + special guest. (GBR) London Underworld + few in Europe.</p>
+
+Автор: Yermola
+
+### 31.07.2002 news APRIL ETHEREAL are completing opus &quot;Al Azif&quot;...
+
+<p>APRIL ETHEREAL are also completing their second opus "Al Azif". Album was recorded at Green Studio in Krakow (one of the best studio for metal bands) and will be available in October/November 2002.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

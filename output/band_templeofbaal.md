@@ -28,6 +28,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.09.2015 news Новый альбом TEMPLE OF BAAL
+
+<P>Новый диск французской death-black metal команды<STRONG> TEMPLE OF BAAL</STRONG> выходит 2 октября на польском лэйбле <STRONG>Agonia</STRONG>. Песню с этой работы “<STRONG>Divine Scythe</STRONG>” можно послушать ниже.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><STRONG>“Lord Of Knowledge And Death”<BR>“Magna Gloria Tua”<BR>“Divine Scythe”<BR>“Hosanna”<BR>“Dictum Ignis”<BR>“Black Redeeming Flame”<BR>“Holy Art Thou”<BR>“All In Your Name”<BR>“The Golden Walls Of Heaven”</STRONG> (Bathory cover, vinyl bonus track)</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/gi2yqmKvUtw" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -110,6 +110,182 @@ Jason Bittner - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2001 news Мертвый Мир от SHADOWS FALL ....
+
+<p>SHADOWS FALL выпускают новый EP "Deadworld" (наверное посвященный падению станции Мир:-))) через JVC Records 22 Августа. На диск войдут: 01. Deadworld (новая) 02. Stepping Outside the Circle (новая) 03. Of One Blood (живая запись CBGBs, New York) 04. Crushing Belial (живая запись Boston’s WERS radio) 05. The First Noble Truth (живая запись Boston’s WERS radio).</p>
+
+Автор: Yermola
+
+### 06.07.2001 news SHADOWS FALL will release a new, Japanese-only ....
+
+<p>SHADOWS FALL will release a new, Japanese-only EP entitled Deadworld through JVC Records on August 22nd. The EP’s release will coincide with the band's appearance at the Beast Feast Festival in Yokohama, Japan on August 25th, where SHADOWS FALL will share the stage with 29 other bands, including PANTERA, SLAYER, SEPULTURA and MACHINE HEAD. Still drummer-less at the time of this writing, SHADOWS FALL have reportedly enlisted the percussive talents of Derek Kerswill, a longtime friend of the band, for recording and temporary touring purposes. Kerswill will record two new songs for the EP and will perform with the band in Japan and at a few Northeastern US shows leading up to the festival. The full track listing for Deadworld is as follows: 01. Deadworld (new) 02. Stepping Outside the Circle (new) 03. Of One Blood (recorded live at CBGBs, New York) 04. Crushing Belial (recorded live for Boston’s WERS radio) 05. The First Noble Truth (recorded live for Boston’s WERS radio). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 21.02.2002 news Падающие тени...
+
+<p>"Shadows Fall" после европейских гастролей с Kittie отправятся в студию записывать новый альбом "Fear Will Drag You Down". Трек-лист: <BR><BR> 1. Deadworld<BR> 2. Stepping Outside The Circle<BR> 3. Crushing Belial<BR> 4. Of One Blood<BR> 5. The First Noble Truth<BR> 6. Fleshold<BR> 7. Root Bound Apollo<BR> 8. Revel In My Loss<BR> 9. Montauk<BR> 10. To Ashes<BR> 11. Serenity<BR> 12. Pain Glass Vision<BR> Live Bonus-Tracks:<BR> 13. Crushing Belial<BR> 14. The First Noble Truth<BR> 15. Fleshold<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news Shadows Fall will begin recording their follow up ....
+
+<p>Shadows Fall will be touring Europe with Kittie until March 2. Here's a tour update from vocalist Brian Fair: "People have been going apeshit! It is ridiculous! The KITTIE girls are awesome and have been totally helping us out." <BR><BR> Upon returning to the states, the band will begin recording their follow up to the critically-acclaimed Of One Blood.<BR><BR> Fear Will Drag You Down, a European-only release featuring Of One Blood and the Japanese-only Deadworld EP, was released on February 11. Here is the tracklisting:<BR><BR> 1. Deadworld<BR> 2. Stepping Outside The Circle<BR> 3. Crushing Belial<BR> 4. Of One Blood<BR> 5. The First Noble Truth<BR> 6. Fleshold<BR> 7. Root Bound Apollo<BR> 8. Revel In My Loss<BR> 9. Montauk<BR> 10. To Ashes<BR> 11. Serenity<BR> 12. Pain Glass Vision<BR> Live Bonus-Tracks:<BR> 13. Crushing Belial<BR> 14. The First Noble Truth<BR> 15. Fleshold<BR><BR> Overcast, the band for which Brian Fair sang prior to joining Shadows Fall, will be performing a reunion show at this year's New England Metal And Hardcore Festival. This will be the first show for the legendary band, which also features current members of Killswitch Engage and Medium, since they broke up in 1998.</p>
+
+Автор: Yermola
+
+### 17.05.2002 news Shadows Fall are putting the finishing touches on their third album.....
+
+<P>Shadows Fall are putting the finishing touches on their third album, The Art Of Balance, which will be in stores late Summer or early Fall. The Massachusetts-based quintet will be debuting material from the new album on their upcoming White Trash Thrash Metal Comeback Tour with Lamb Of God, Darkest Hour and Unearth. Dates and venues are listed below. </P></>
+<P> </P></>
+<P>MTV is also featuring Shadows Fall on their Web site (www.mtv.com/news/yhif/), where they are streaming an early recording of the song "Stepping Outside The Circle," which will appear on The Art Of Balance. </P></>
+<P>For more on Shadows Fall, please consult the Official Shadows Fall Web site: www.shadowsfall.com </P></>
+<P> </P></>
+<P>The White Trash Thrash Metal Comeback Tour </P></>
+<P>Featuring Shadows Fall </P></>
+<P>5/23 The Edge – Augusta, ME (w/ Unearth, Scissorfight) </P></>
+<P>5/24 The Met - Providence, RI (w/ Lamb Of God, Darkest Hour, Unearth, </P></>
+<P>Scissorfight) </P></>
+<P>5/25 Saratoga Winners - Albany, NY (w/ Lamb Of God, Darkest Hour, Unearth, </P></>
+<P>Scissorfight) </P></>
+<P>5/26 Fat Cat - Springfield, MA (w/ Lamb Of God, Darkest Hour, Unearth, </P></>
+<P>Scissorfight) </P></>
+<P>5/28 TBA - Syracuse, NY (w/ Darkest Hour, Unearth, Scissorfight) </P></>
+<P>5/29 Upstage - Pittsburgh, PA (w/ Darkest Hour, Unearth, Scissorfight) </P></>
+<P>5/30 9:30 Club - Washington, DC (w/ Lamb Of God, Unearth, Scissorfight) </P></>
+<P>5/31 Krome - South Amboy, NJ (w/ Lamb Of God, Unearth, Scissorfight) </P></>
+<P>6/02 Trocadero - Philadelphia, PA (w/ Lamb Of God, Unearth, Scissorfight) </P></>
+<P>6/03 CBGB - New York, NY (w/ Unearth, From Autumn To Ashes)</P></>
+
+Автор: Yermola
+
+### 02.07.2002 news Shadows Fall on tour...
+
+<p>07/09/02 St. Louis, MO Pops Nite Club<BR> 07/10/02 Bloomington, IL Lafayette Club <BR> 07/12/02 Minneapolis, MN First Avenue <BR> 07/13/02 Edgerton, WI Club Raven <BR> 07/14/02 Fargo, ND Playmakers Pavillion <BR> 07/16/02 Tulsa, OK The Other Side <BR> 07/17/02 Pittsburg, KS Foxtown City Limits <BR> 07/19/02 Dallas, TX Canyon Club <BR> 07/20/02 San Antonio, TX Sunset Station <BR> 07/21/02 Huston, TX Fitzgeralds <BR> 07/23/02 Corpus Christi, TX Party On The Patio <BR> 07/24/02 Mcallen, TX Villa Real 2000 <BR> 07/26/02 Killeen, TX Club Oz <BR> 07/27/02 Lubbock, TX The Paviliion <BR> 07/28/02 San Angelo, TX Santa Fe Junction <BR> 08/01/02 Albuquerque, NM Sunshine Theatre <BR> 08/10/02 Tucson, AZ Rialto Theatre <BR> 08/11/02 Mesa, AZ Nile Theatre</p>
+
+Автор: Yermola
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 05.09.2002 news График релизов CENTURY MEDIA RECORDS....
+
+<p>Сент. 3 NOCTURNAL RITES - Shadowland<BR> Сент. 3 …AND OCEANS - Cypher<BR> Сент. 3 INTO ETERNITY - Dead Or Dreaming<BR> Сент. 17 SHADOWS FALL - The Art of Balance<BR> Окт. 15 YAKUZA - Way of the Dead<BR> Окт. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Окт. 29 LACUNA COIL - Comalies<BR> Окт. 29 ROTTING CHRIST - Genesis<BR> Нояб. 12 ICED EARTH - Tribute To The Gods<BR> Нояб. 12 BLOODBATH - Resurrection Through Carnage<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads....
+
+<p><font size="2" face="Arial, Helvetica, sans-serif">...And Oceans - <a href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</a><br> Avantasia - <a href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</a><br> Dark Tranquillity - <a href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</a><br> Into Eternity - <a href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</a><br> Lacuna Coil - <a href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</a><br> Nocturnal Rites - <a href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</a><br> Rotting Christ - <a href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</a><br> Shadows Fall - <a href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</a><br> Unleashed - <a href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</a></font><br> <SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif">Yakuza - <a href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</a></font></SPAN></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads...
+
+<P><FONT face="Arial, Helvetica, sans-serif" size=2>...And Oceans - <A href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</A><BR>Avantasia - <A href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</A><BR>Dark Tranquillity - <A href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</A><BR>Into Eternity - <A href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</A><BR>Lacuna Coil - <A href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</A><BR>Nocturnal Rites - <A href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</A><BR>Rotting Christ - <A href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</A><BR>Shadows Fall - <A href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</A><BR>Unleashed - <A href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</A></FONT><BR><SPAN style="FONT-FAMILY: Arial"><FONT face="Arial, Helvetica, sans-serif" size=2>Yakuza - <A href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</A></FONT></SPAN></P></>
+
+Автор: Yermola
+
+### 16.03.2003 reviews Чудовищный гибрид nu-metal&#39;щины и СМДМ&#39;щины
+
+<p>Ну и за каким, извините, хреном Century Media понадобилось издавать эту группу? Если дебютный альбом американцев – "Somber Eyes to the Sky" – ещё можно было как-то слушать, то ЭТО… увольте. Чудовищный гибрид nu-metal'щины и СМДМ'щины… брр! И не спасает это, с позволения сказать, "творение" ни мультимедийный диск, ни шикарная кавер на PINK FLOYD'овскую "Welcome to the Machine". В помойку.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 21.03.2003 reviews Thrash-metal на грани death-metal
+
+<p>Очень суровая американская группа. Что это power, thrash, а может death? Сразу не разберёшь... Ясно только, что это американская группа... Очень уж прямолинейная. Трясти хайером, где-нибудь у сцены на концерте, либо получить заряд энергии перед роковым объяснеием с работодателем. Просто слушать дома немного неинтересно. Зараннее известно, где Вас ждёт рифф, а где соло. И всё-таки главное это риффы и иногда попадаются очень неплохие. Хочется обратить внимание на второй диск, без которого Вы не сможете приобрести этот альбом. И в этом главная засада... Даже если Вы захотите заценить этого прямолинейного "трешу", Вам придётся раскошелиться и купить Cd-rom, на котором скорее всего ненужные биография, картинки, 3 концертных видео и интервью. Непонятная стратегия издающего лэйбла просто уничтожает этот альбом.</p>
+
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 14.07.2005 reviews Янки в очередной раз уделывают шведов
+
+<P>Не так давно я писал про американскую группу Unearth, которая нарезает смесь из трэша и СМДМ-а, и делает это очень здорово. И вот, пожалуйста - еще один штатовский коллектив, работающий в этом же ключе - Shadows Fall с альбомом “The War Within”. Альбомчик, кстати, как и у Безземельных, записан в Массачусетсе – это что, новая кузница американских трэш/мелодик детстеров? Пластинка получилась довольно органичной и сильной: хороший вокал в рамках жанра, достаточно интересные риффы.</P>
+<P>Не шедевр, конечно, но очень крепкая работа. Если вам нравятся группы типа The Haunted, HateSphere или те же Unearth, то альбом данной формации вы наверняка будете слушать с удовольствием.</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Fucker
+
+### 26.01.2006 news SHADOWS FALL на Roadrunner
+
+<P><STRONG>Roadrunner </STRONG>заключили сделку с американцами <STRONG>SHADOWS FALL</STRONG>. Теперь лэйбл будет распространять альбому коллектива и в Европе.</P>
+Автор: Vit Belov
+
+### 10.11.2006 news SHADOWS FALL объявили название нового альбома
+
+<P>Массачусетский коллектив <STRONG>SHADOWS FALL</STRONG> объявил, что их новый альбом будет называться <STRONG>"Threads of Life".</STRONG> Дата его релиза намечена на март 2007 года через <STRONG>Atlantic Records</STRONG>. Запись альбома пройдет в калифорнийской <B>Studio 606</B>&nbsp;под управлением продюсера&nbsp;<B>Nick Raskulinecz</B> (<B>FOO FIGHTERS</B>, <B>STONE SOUR</B>, <B>RUSH</B>).</P>
+Автор: Dimas
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 04.02.2009 news SHADOWS FALL начали запись
+
+<P>Американцы <STRONG>SHADOWS FALL</STRONG> начали работу над новым альбомом. В настоящее время барабаны записывает музыкант коллектива <STRONG>Jason Bittner.</STRONG></P>
+Автор: Vit Belov
+
+### 23.06.2009 news SHADOWS FALL назвали альбом
+
+<P>Американцы <STRONG>SHADOWS FALL</STRONG> назвали свой новый альбом <STRONG>"Retribution".</STRONG> Пластика выйдет 15 сентября на <STRONG>Warner Music.</STRONG></P>
+Автор: Vit Belov
+
+### 12.08.2009 news Новое видео SHADOWS FALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео<STRONG> SHADOWS FALL</STRONG> на песню <STRONG>"Still I Rise" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=61774965,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=61774965,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.09.2009 news SHADOWS FALL тоже попали
+
+<P>Новый альбом <STRONG>SHADOWS FALL</STRONG> <STRONG>"Retribution"</STRONG>&nbsp;также попал в чарты <STRONG>Billboard</STRONG>. Продано 13000 копий и 35-ое место.</P>
+Автор: Vit Belov
+
+### 13.02.2010 news Новое видео SHADOWS FALL
+
+<P><STRONG>SHADOWS FALL</STRONG> опубликовали видео на свою кавер-версию на песню <STRONG>Ozzy Osbourne</STRONG> <STRONG>"Bark At The Moon".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER><FONT face=Verdana color=#999999 size=1><BR><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=102859231">Bark At The Moon</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=102859231,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=102859231,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT><BR><A href="http://profile.myspace.com/index.cfm?fuseaction=user.viewprofile&friendid=2772672">Shadows Fall</A> | <A href="http://music.myspace.com/index.cfm?fuseaction=videos">MySpace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.05.2012 news Вышло новое видео SHADOWS FALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип <STRONG>SHADOWS FALL "The Unknown"</STRONG> можно посмотреть ниже. Трек взят с альбома коллектива <STRONG>"Fire From The Sky"</STRONG>, который выйдет 15 мая. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 11.01.2013 news Jon Donais (SHADOWS FALL) стал временной заменой в ANTHRAX
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25294.jpg" width=300 height=400>ANTHRAX</STRONG> объявили, кто станет временной заменой недавно ушедшему гитаристу Робу Каджиано (<STRONG>Rob Caggiano</STRONG>). Счастливчиком стал <STRONG>Jon Donais</STRONG> <EM>(на фото),</EM> гитарист американской metalcore&nbsp;группы<STRONG> SHADOWS FALL</STRONG>. Джон выйдет на сцену с <STRONG>ANTHRAX</STRONG> на их предстоящих выступлениях в Индии,&nbsp;&nbsp;австралийской части фестивалей <STRONG>Soundwave</STRONG> и северо-американском туре <STRONG>Metal Alliance</STRONG>.</P>
+<P><EM>"Я вырос слушая <STRONG>ANTHRAX</STRONG>, они часть thrash сцены, они одни из Большой Четвёрки, я должен быть ненормальным, чтобы не хотеть сыграть с ними,"</EM> - комментирует <STRONG>Donais</STRONG>. <EM>"Первоначально</EM> <EM><STRONG>Rob</STRONG> позвонил мне и сказал, что он покидает группу и спросил, было бы мне интересно подменить его. Затем <STRONG>Scott&nbsp;Ian</STRONG>&nbsp;обратился ко мне с тем же самым вопросом и всё получилось как нельзя лучше. <STRONG>Rob</STRONG> был так добр, что поработал со мной над соло и другими гитарными партиями через Skype. Так же я хочу поблагодарить участников своей группы, которые поддержали меня и воодушивили на этот поступок."</EM></P>
+<P>Группа <STRONG>SHADOWS FALL</STRONG> уже несколько раз выручала <STRONG>ANTHRAX</STRONG> в прошлом, когда их барабанщик <STRONG>Jason Bittner</STRONG> временно заменял<STRONG> Charlie Benante</STRONG>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Shadows Fall. Что скажете о них?

@@ -31,6 +31,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.07.2012 news Новый альбом THE AQUARIUS
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.07/24419.jpg" width=350 height=358>Вышел&nbsp;новый альбом московской power-metal команды <STRONG>THE AQUARIUS "На Пределе Времен" </STRONG>на лэйбле <STRONG>Soundage</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Гибель Атлантов (часть I)&nbsp; <BR></STRONG>2. <STRONG>Гибель Атлантов (часть II) <BR></STRONG>3. <STRONG>Иллюзорный Мир</STRONG>&nbsp; <BR>4. <STRONG>Пустота&nbsp; </STRONG><BR>5. <STRONG>Стань Дождём</STRONG>&nbsp; <BR>6. <STRONG>Посланники Небес</STRONG>&nbsp; <BR>7. <STRONG>Скрытая Правда</STRONG>&nbsp; <BR>8. <STRONG>Последний Выбор <BR></STRONG>9. <STRONG>На Пределе Времён</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

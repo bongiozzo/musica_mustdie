@@ -32,6 +32,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news SOULFALLEN запишут третий альбом
+
+<P>Финны <STRONG>SOULFALLEN</STRONG> вошли в <STRONG>Studio Watercastle </STRONG>для записи нового альбома, который выйдет в этом году. Третий альбом получил название <STRONG>'The Promise Of Hell'. </STRONG></P>
+<P>Предыдущая работа коллектива <STRONG>"Grave New World" </STRONG>вышла в 2009 году на<STRONG> Off Records</STRONG>. В составе dark-metal группы бывшие и нынешние участники <STRONG>KATRA, OCTOBER FALLS, FARMAKON, FUNERIS NOCTURNUM</STRONG> и <STRONG>ALGHAZANTH</STRONG>.</P>
+<P><center><IMG height=466 src="/images/news_rus/2011.07/19920.jpg" width=350 border=0></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Новое видео SOULFALLEN
+
+<P>18 января финны <STRONG>SOULFALLEN</STRONG> выпускают новый альбом "<STRONG>The Promise Of Hell</STRONG>". Видео-клип на трек с этого альбома "<STRONG>Scars Aligned</STRONG>" можно посмотреть ниже. Обложку для пластинки нарисовала&nbsp;<STRONG>Maija Ranka</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>The Birth Of Newfound Death</STRONG><BR>2. <STRONG>Questions And Answers<BR></STRONG>3. <STRONG>Ghosts<BR></STRONG>4. <STRONG>Scars Aligned</STRONG><BR>5. <STRONG>The Silence Of The Storm</STRONG><BR>6. <STRONG>Cold Beneath The Sun</STRONG><BR>7. <STRONG>Dead And Dying<BR></STRONG>8. <STRONG>Bring Me My Demons</STRONG><BR>9. <STRONG>At The Heart Of Dying</STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/8aMhJo8KFQo?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

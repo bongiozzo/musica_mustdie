@@ -515,6 +515,794 @@ Jean Dolabella  Drums
 
 * C группой "Soulfly" Max Cavalera
 
+## Публикации
+
+### 16.02.1999 reviews Среднетемповый брутальный трэш
+
+<P>Всех поклонников группы сильно волновал вопрос, каким же будет новый альбом группы. С у ходом Макса Кавалеры, и приходом в группу чернокожего вокалиста Дерика Грина возникла куча предположений. Возникали мнения, что "Against" будет похож на ранние творения SEPULTURA, так как основной модернист и любитель бразильской культуры Макс покинул группу. Но, как говорится, свежо питание... После прослушивания первого трэка, действительно, появились какие-то ассоциации с "Shizophrenia" и т. п., но уже дальше начинаются показательные выступления для любителей и коллекционеров. В этом смысле напрашивается сравнение с альбомом "Roots", там также весело начали, а потом доиграли в совершенно другом стиле. Да, мне нравится другая старая SEPULTURA, и поэтому прошу вас воспринимать мои слова только с этой позиции. Кому понравился "Roots" , возможно, понравится и "Against". Ну что ж продолжим, думая сейчас о прошедшем этапе в творчестве группы, я понял, что мы недооценили значение песни "Kaiowas". Именно с этой песни начались все эти эксперименты, и её следует считать начальным этапом в новой волне творчества группы. Кстати, на альбоме есть похожие работы, например, последняя композиция (не пишу названия, т. к. ни русский, ни английский шрифты этого не осилят), половина которой записана н одном микрофоне в каком-то городе на отдыхе. Так и хочется представить четырёх мужиков, сидящих у одного микрофона и рубущих на каких-то заморских инструментах. В общем весь альбом представляет собой среднетемповый брутальный трэш с использованием большого количества различных ситар, там-тамов и т. п. Слушается он не очень хорошо из-за какой-то не связности и некоторой занудности. Оживляют картину участие на песне "Hatred Aside" Джейсона Ньюстеда, и вокал неизвестного мне Жоао Гордо на песне "Reza". Это, по-моему, наряду с "Against" единственные быстрые забойные композиции. Также стоит отметить участие какого-то японского ансамбля на композиции "Kamaitachi", который в общем-то не сильно там и заметен. Эту работу можно порекомендовать любителям последнего творчество бразильских фольклористов, коллекционерам редких музыкальных инструментов, а также фанатам вышеупомянутой группы.</P>
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Буча закипает вокруг видеоклипа Sepultura на песню "Choke". RoadRunner отказалась брать версию клипа, записанную в Бразилии и фэны организовываются, чтобы дать отпор "зарвавшимся капиталистам".</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>Sepultura собирается выпустить первый концертный альбом в начале следующего года.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Sepultura работает над новым альбомом, который выйдет в апреле-мае.</p>
+
+Автор: Vit Belov
+
+### 14.06.2000 news Tattoo the Earth Tour
+
+<p>По сообщению launch.com Sepultura и Slayer были добавлены в когорту групп, которые выступят в Tattoo the Earеh tour, который начнётся в июле в Портленде, США. Однако сообщается, что Sepultura может игнорировать некоторые концерты, из-за проблем с продюсерами. Тем временем Soulfly покинули данный тур ради участия в Ozzfest. В Нью-Джерси вся честная компания пересечётся с туром KId ROCK/METALLICA. Таким образом поедут по Штатам: Slipknot, Slayer, Sepultura, Sevendust, Coal Chamber, Nashville Pussy и другие.</p>
+
+Автор: Vit Belov
+
+### 28.07.2000 news Новости от Sepultura
+
+<p> Поклонникам Sepultura придется еще минимум пол года ждать выхода нового альбома группы, хотя некоторые песни для него уже готовы и даже включены в стандартный концертный трэк-лист. В сентябре группа отправится в студию и начнет запись нового материала. Предположительно, диск будет содержать произведения со следующими названиями: "One Cure", "Sep Nation", "Revolt", "Saga", "Label Us Dead" и "Ways Of Faith".</p>
+
+Автор: Nybras
+
+### 14.08.2000 news Запись нового альбома Sepultura
+
+<p>1 сентября в одной из бразильских студий Sepultura приступят к записи своего нового альбома. Их продюсером на этот раз будет Steve Evetts, работавший с такими группами как Hatebreed и Snapcase.</p>
+
+Автор: Phantom Lord
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 27.09.2000 news Новый альбом Sepultura почти готов
+
+<p> По сообщению Roadruner Records, Sepultura сейчас в студии заканчивает запись нового диска 'Nation'. Трэк-лист альбома таков: "Sepulnation", "Ways Of Faith", "Border Wars", "Politricks", "Reject!", "One Man Army", "Vox Populi" и "Saga".</p>
+
+Автор: Nybras
+
+### 27.09.2000 news Sepultura&#39;s new album
+
+<p> According Roadruner Records, Sepultura are in the studio finishing 'Nation'. The list of confirmed songtitles have improved, as follows: Sepulnation / Ways Of Faith / Border Wars / Politricks / Reject! / One Man Army / Vox Populi / Saga.</p>
+
+Автор: Nybras
+
+### 27.10.2000 news Sepultura закончили работу над новым альбомом
+
+<p>Sepultura закончили работу над альбомом "Nation". По сообщению MTV Online, бразильцы Sepultura покинули студию, завершив запись нового альбома "Nation". Ребята записали 17 новых песен, среди которых три кавера. Скорее всего эти три песни ("Bela Lugosi's Dead" группы Bauhaus, "Rise Above" группы Black Flag и "Annihilation" группы Crucifix) будут изданы позже самого альбома в качестве саундтреков или в составе синглов. Также группа выложила на своём официальном вэб-сайте www.sepultura.com концертную версию песни "Sepulnation", записаную во время "Tattoo The Earth tour".</p>
+
+Автор: Dimas
+
+### 27.10.2000 news Sepultura finishes their new studio effort
+
+<p>Sepultura finishes their new studio effort, 'Nation' According MTV Online, Brazilian metal band Sepultura is left a Rio De Janeiro studio recording its latest album, "Nation". A rendition of Bauhaus' 1979 Goth-punk classic "Bela Lugosi's Dead" is expected to make the record, while covers of Black Flag's "Rise Above" and Crucifix's "Annihilation" likely will surface later as B-sides or soundtrack songs. A live version of the new track "Sepulnation", recorded during the Tattoo The Earth tour, has been posted on the band's official Web site, www.sepultura.com.</p>
+
+Автор: Dimas
+
+### 10.01.2001 news &quot;Nation&quot; 2001 of Sepultura
+
+<p>Sepultura в ближайшее время займутся мастерингом ожидаемого многими альбома "Nation". Финальный трек лист релиза выглядит следующим образом: 1. Sepulnation 2. Border Wars 3. Revolt 4. One Man Army 5. Who Must Die? 6. Saga 7. Ways Of Faith 8. Vox Populi 9. Uma Cura 10. Human Cause 11. Politricks 12. Reject 13. Water. Две вещи Annihilation (Crucifix cover) и Rise Above (Black Flag cover) выйдут в виде B-sides, а судьба Valtio (with Apocalyptica). Tribe To A Nation и Bela Lugosi's Dead (Bauhaus cover) пока неясна.</p>
+
+Автор: Yermola
+
+### 13.01.2001 articles SEPULTURA: нация алкоголиков
+
+<p> В 1997 году об очередном альбоме горячей бразильской группы SEPULTURA “Roots” было сказано — «обязательно послушать перед смертью». Неизвестно, правда, зачем – то ли смерть не такой страшной покажется, то ли ласты скорее склеятся... Но если вас вдруг занесет в страну кофе, футбола, донов Педров и диких обезьян — обязательно найдите время, вырвитесь из объятий полуголых бразильских девиц и посетите концерт этой безумной группы– даже если умирать пока не собираетесь. SEPULTURA вернулись в Бразилию после 10-летнего пребывания в США и записали новый альбом “NATION”. Всю весну герои Бразилии будут обкатывать новый материал на концертных площадках Южной Америки.</p>
+<p> Каково вам вновь записывать альбомы на родине – в Бразилии?</p>
+<p> Игорь Кавалера (ударные): Весело! Работать в студии, близкой от дома очень легко, это расслабляет и позволяет великолепно работать.</p>
+<p> И когда же вы в последний раз так расслаблялись?</p>
+<p> Игорь: В 1989 году, когда записывали "Beneath The Remains" в Рио-Де-Жанейро. Прошло уже 11 лет – и все это время мы записывались только в США.</p>
+<p> У нового альбома "Nation" есть какая-либо концепция?</p>
+<p> Андреас Киссер (гитара): призыв к созданию Нации – без границ, войн, оружия, с религиозной свободой. Этого никогда не было ранее и очень трудно создать сегодня. Наш альбом – послание к миру. Все песни, полностью альбом посвящен созданию такой новой Нации.</p>
+<p> Вы вновь на сцене бразильского фестиваля "Rock in Rio"? как вам это нравится?</p>
+<p> Игорь: на днях наша бразильская команда играет футбольный матч с командой Армении – и наши должны надрать им задницу! Вот с этой мыслью мы йвыйдем на сцену! Ну а так, вообще – это мерприятие открывает раскрутку нашего нового альббома в Южной Америке. Будет пресса –и много фэнов SEPULTURA. Мы всех сожрем!</p>
+<p> Помнится, последний раз вы выступали на этом ежегодном фестивале 11 лет назад….</p>
+<p> Андреас: да, вместе с Megadeth, Judas Priest и Queensryche. Мы играли первыми – и свели публику с ума. Мы тогда свели народ с ума! Queensryche очень хорошая группа, но не совсем металлическая, и выйдя на сцену после нас, они вместо аплодисментов получили шквал бутылок и гнилых фруктов.</p>
+<p> Паоло (бас): Они доиграли первую песню, сыграли половину второй и были вынуждены уйти со сцены….</p>
+<p> Андреас: Ребята испугались за свое здоровье!</p>
+<p> На новом альбоме вы сотрудничали с Джеймом из HATEBREED а был ли кто-то еще?</p>
+<p> Игорь: да, очень много разных людей. Джелло Биафра (Dead Kennedys) спел на песне «Politricks». Были ребята из ненормальной финской группы, которые играют металл на виолончелях – Apocolypitica! Они помогли записать песню "Valtio." Ну и помогало много наших бразильских друзей.</p>
+<p> Особый вопрос для Паоло – о ваших пьянках ходят легенды… Как много вы пили во время записи альбома?</p>
+<p> Паоло: Ох…. Ну, много. Сейчас только отошел от двухдневной пьянки.</p>
+<p> И что пили?</p>
+<p> П.: Только пиво – в неограниченных колчествах.</p>
+<p> Говорят, что вы один можете выпить десять бутылок вина…</p>
+<p> П.: – 13.</p>
+<p> И за какой промежуток времени?</p>
+<p> П.: За два часа.</p>
+<p> Правда? А плохо потом не стало?</p>
+<p> П.: Нет, нет. Мне плохо, только когда я смешиваю спиртное. Да и всем советую – пейте или пиво, или вино, а иначе нехорошо будет…</p>
+<p></p>
+
+Автор: Tornado
+
+### 02.04.2001 reviews Предельно скучный альбом
+
+<p> Мало у кого первое из записанных в отсутствии легендарного фронтмена Макса Кавалеры творение Sepultura (называлось оно, напомню, "Against", и вышло, кажется, в 98-м году прошлого столетия) вызвало прилив оптимизма в отношении будущего этой банды. Новый альбом "Nation" не только подвердил, но и усилил впечатление, что с уходом Макса группа перестала представлять из себя что-либо интересное.</p>
+<p> В музыкальном плане новый альбом являет собой смесь из "Chaos A.D.", "Roots" и "Against", сделанную без души и какого-либо энтузиазма. Если на "Against" можно было, напрягшись, насчитать 3 более-менее интересных и бодрых трека, то здесь не найти и одного. Создается впечатление, что альбом записан очень усталыми людьми, которые не знают или не помнят, зачем они играют музыку, и делают это чисто по инерции, только потому, что они привыкли делать это последние 15 лет. Непонятно из каких соображений взятый в группу вокалист Деррек Грин тоже не добавлят радужных красок к общей картине. Особенно угнетает полное отсутствие в музыке каких-либо идей, не то что бы новых или оригинальных, но вообще хотя бы каких-нибудь.</p>
+<p> Так или иначе, ответ на вопрос - кто был главной движущей силой в Sepultura, по-моему, очевиден. Я не являюсь большим поклонником Soulfly, но не могу не отметить, что продукция детища Макса Кавалеры выглядит на пару порядков бодрее и убедительнее, нежели унылые потуги его бывших коллег.</p>
+
+Автор: Martin
+
+### 03.04.2001 news SEPULTURA dates...
+
+<p> SEPULTURA have announced the dates for their upcoming European headlining tour, the group's first in support of their just-released Nation CD. Here is how the schedule is shaping up right now:</p>
+<p></p>
+<p> May 01 - Berlin, GER @ Columbia-halle</p>
+<p></p>
+<p> May 02 - Hamburg, GER @ Docks Konzerte</p>
+<p></p>
+<p> May 03 - Dusseldorf, GER @ Stahlwerk</p>
+<p></p>
+<p> May 04 - Strasbourg, FRA @ Hall Rhenus</p>
+<p></p>
+<p> May 06 - Munich, GER @ Babylon</p>
+<p></p>
+<p> May 07 - Stuttgart, GER @ Longhorn</p>
+<p></p>
+<p> May 09 - London, UK @ The Astoria</p>
+<p></p>
+<p> May 11 - Paris, FRA @ Elysee Montmarte</p>
+<p></p>
+<p> May 12 - Herford, GER @ Kick</p>
+<p></p>
+<p> May 13 - Chemnitz, GER @ Suedbahnhof</p>
+<p></p>
+<p> May 14 - Bochum, GER @ Zeche</p>
+<p></p>
+<p> May 15 - Amsterdam, NETH @ Paradiso</p>
+<p></p>
+<p> May 17 - Zurich, SWI @ X-Tra Limmathaus</p>
+<p></p>
+<p> May 18 - Milan, ITA @ Rolling Stone</p>
+<p></p>
+<p> May 19 - Istres, FRA @ L'Usine</p>
+<p></p>
+<p> May 20 - San Sebastian, SPA @ Velodromo de Anoeta</p>
+<p></p>
+<p> May 21 - Madrid, SPA @ Macumba</p>
+<p></p>
+<p> May 22 - Barcelona, SPA @ Razz Club @ Razzmatazz</p>
+<p></p>
+<p> May 24 - Torhout, BEL @ Torhout Festival</p>
+<p></p>
+
+Автор: Yermola
+
+### 11.04.2001 news Нецивилизованные BIOHAZARD ....
+
+<p>BIOHAZARD до сих пор ищут лэйбл для реализации в Америке нового СД "Uncivilization". В Европе альбом выходит 25 июня на SPV / Steamhammer Records. Среди гостей на диске отметились Phil Anselmo ("PANTERA"), Peter Steele ("TYPE O NEGATIVE"), Igor Cavalera и Derrick Green ("SEPULTURA"), и участники HATEBREED, NAUGHTY BY NATURE и CYPRESS HILL. По обещаниям группы альбом являет возвращение к хард-коровым корням.</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Uncivilization .....
+
+<p>BIOHAZARD are still in negotiations with several US labels for the release of the group’s forthcoming Uncivilization CD, which is scheduled to be issued in Europe through SPV / Steamhammer Records on June 25th. The album, which features guest appearances from PANTERA’s Phil Anselmo, TYPE O NEGATIVE’s Peter Steele, SEPULTURA’s Igor Cavalera and Derrick Green, members of HATEBREED, NAUGHTY BY NATURE and CYPRESS HILL, is reportedly the group’s most diverse effort to date, with several of the tracks marking a return to the group’s hardcore roots while others are said to be unlike anything the band had ever done before.</p>
+
+Автор: Yermola
+
+### 13.04.2001 news Новый альбом SKINLAB...
+
+<p>По сообщению менеджмента, "SKINLAB" - завербовали продюссера Steve Evetts (EARTH CRISIS, SEPULTURA, SNAPCASE) для работы над следующим полноформатником группы "The Revolting Room". Рекордная сессия начинается 7 июня в "Hyde Street Studios" (Сан-Франциско, Калифорния), а выход диска запланирован через "Century Media Records" в сентябре. Трек-лист: 01. Come And Get It 02. Purify (feat. UNJUST’s Paul Mendoza) 03. Better Than Jesus 04. Slave The Way 05. Anthem For A Fallen Star 06. Take As Needed (feat. 36 CRAZYFISTS’ Brock Lindow) 08. Never Give In 09. Isolation</p>
+
+Автор: Yermola
+
+### 13.04.2001 news The Revolting Room (SKINLAB)....
+
+<p> According to SKINLAB management representative Jess Redmon of Artistkorp Management, SKINLAB have once again had a change of plans and have now enlisted producer Steve Evetts (i.e. EARTH CRISIS, SEPULTURA, SNAPCASE) to man the boards for their third full-length effort, tentatively titled The Revolting Room, which is due out in September through Century Media Records. Recording is set to begin on June 7th at Hyde Street Studios in San Francisco, CA. Tentative song titles include the following:</p>
+<p></p>
+<p> 01. Come And Get It</p>
+<p></p>
+<p> 02. Purify (feat. UNJUST’s Paul Mendoza)</p>
+<p></p>
+<p> 03. Better Than Jesus</p>
+<p></p>
+<p> 04. Slave The Way</p>
+<p></p>
+<p> 05. Anthem For A Fallen Star</p>
+<p></p>
+<p> 06. Take As Needed (feat. 36 CRAZYFISTS’ Brock Lindow)</p>
+<p></p>
+<p> 08. Never Give In</p>
+<p></p>
+<p> 09. Isolation</p>
+<p></p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 03.05.2001 news Подробности о Uncivilization - BIOHAZARD.....
+
+<p>BIOHAZARD договорились с Sanctuary Records о дистрибуции "Uncivilization" в Северной Америке. Выход альбома запланирован на Июль. Похоже,что при записи в качестве "гостей" собралась "веселенькая" компания: Сепультурцы Andreas Kisser и Derrick Green отметились на треке "Trap", драммер Igor Cavalera присутствует на "Gone", Phil Anselmo ("PANTERA") поет на HFFK (Hate, Fuck, Fight, Kill - гы-гы...), Sen Dog ("CYPRESS HILL") - рэп на "Last Man Standing", также в ряде треков бэк и лид вокалы исполнены членами HATEBREED и Peter Steele ("TYPE O NEGATIVE"). Трек-лист: 01. Unified 02. Population Control 03. HFFK 04. Last Man Standing 05. Getaway 06. Gone 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news BIOHAZARD&#39;s forthcoming Uncivilization CD....
+
+<p>As previously reported, BIOHAZARD's forthcoming Uncivilization CD — due for release in Europe on June 25th through SPV/Steamhammer Records — is turning out to be a guest-heavy affair, with SEPULTURA's Andreas Kisser and Derrick Green appearing on a track called "Trap", SEPULTURA drummer Igor Cavalera playing percussion on the song "Gone", PANTERA's Phil Anselmo screaming his way through "HFFK (Hate, F.ck, Fight, Kill)", CYPRESS HILL's Sen Dog rapping on "Last Man Standing", and HATEBREED members contributing backing and lead vocals to various cuts on the CD (TYPE O NEGATIVE's Peter Steele also appears on an as-yet-unspecified track). BIOHAZARD have just returned from their recent South American jaunt, where they reportedly premiered new material to a great reaction from the group's rabid Latin American fans: "South America was awesome, we had a great time," guitarist Billy Graziadei told Metal Hammer. "It's so incredible to be able to tour countries like Chile where I can donate my precious digital camcorder to such financially handicapped people." Uncivilization has yet to receive an official US release date, but reports indicate that an announcement will be made shortly regarding BIOHAZARD's much-rumored signing with Sanctuary Records for the North American territory, with the album likely to be made available domestically through the label sometime in July. Uncivilization is tentatively scheduled to include the following tracks: 01. Unified 02. Population Control 03. HFFK (Hate, F.ck, Fight, Kill) (feat. PANTERA's Phil Anselmo) 04. Last Man Standing (feat. CYPRESS HILL's Sen Dog) 05. Getaway 06. Gone (feat. SEPULTURA's Igor Cavalera) 07. Treason 08. Never Turn Your Back On Me 09. Sellout 10. Crossed The Line 11. Trap (feat. SEPULTURA's Andreas Kisser). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.05.2001 articles КОМУ НЕ НУЖНЫ ДЕНЬГИ?
+
+<p>Бразильцам <a href="/ru/band/sepultura/">SEPULTURA</a>!</p>
+<p> Футбола особого масштаба в этом году вроде бы не предвидится, спрос на кофе не растет, так что бразильским донам педрам в этом году остается экспортировать только музыку. Здесь, кстати, тоже не все хорошо – времена ламбады давно канули в лету и не спешат возвращаться, так что остается злобная металлическая группа <a href="/ru/band/sepultura/">SEPULTURA</a>.</p>
+<p> Однако и тут не все слава Богу – квартет из трех бразильцев и одного черного американца отказался от крайне заманчивого предложения Оззи Осборна сыграть на одной сцене вместе с <a href="/ru/band/black_sabbath/">BLACK SABBATH</a> на летнем фестивале-турне OZZFEST-2001. Многие думают, что зря – Осборн в этом году развил просто неуемную творческую и коммерческую активность, и фестиваль вместе с новым альбомом <a href="/ru/band/black_sabbath/">BLACK SABBATH </a>обещает стать событием №1 в мире популярной музыки.</p>
+<p> Недавно группа выпустила новый альбом 'Nation', который уже получил «золотой» статус на родине <a href="/ru/band/sepultura/">SEPULTURA</a>, в Бразилии. В то же время, несмотря на то, что альбом получил в прессе Великобритании благосклонные рецензии, он сейчас находится только на 88 месте национального хит-парада туманного Альбиона, и в прочих странах положение не лучше. Предложение Осборна могло бы стать спасительной соломинкой, но чего-то там не сложилось. Что именно,берется поведать Игорь Кавалера, барабанщик <a href="/ru/band/sepultura/">SEPULTURA</a>:</p>
+<p> - Мы будем играть на фестивале TATTOO THE EARTH вместо OZZFEST-2001 – по мне это более реалистичный фестиваль. Цены на билеты OZZFEST просто безумные, и я чувствовал бы себя не в своей тарелке, если бы заставил наших фэнов платить такие деньги за встречу с нами. Уж лучше провести свой собственный тур, где мы к тому же будем основной группой!</p>
+<p> - Вы знаете, что ваши тиражи сейчас не столь велики, как раньше?</p>
+<p> - Честно? Мне плевать на продажи альбома. Нам всем очень нравится эта пластинка и прочее меня не волнует. Это наша фирма должна беспокоится о вещах подобного рода. Мы лишь проводим концерты, а всю маркетинговую компанию пусть делают они. Мы же можем помочь лишь выступлениями, подобными тому, что было недавно на бразильском фестивале «Рок в Рио».</p>
+<p> Немного странные слова – если группа не будет волноваться о продаже пластинки, то и фирма не будет волноваться о судьбе группы. И тогда – прощай, сцена! Экий горячий бразильский парень, не подумав ведь ляпнул: с таким подходом никакого экспорта не наладишь… Бедная Бразилия, что же тебя ждет в этом году? Хотя бы бананы уродились, что ли…</p>
+<p></p>
+
+Автор: Tornado
+
+### 04.07.2001 news Сепультура уходит с Roadrunner Records?
+
+<p>Бразильцы "SEPULTURA" оказались очень разочарованы сотрудничеством с "Roadrunner Records". Группе не понравилось как лэйбл продвигает последний альбом "Nation" и вообще как были организованы гастроли в поддержку релиза. Лучшим промоушеном для команды по их мнению был бы тур "Tattoo The Planet" с участием "PANTERA" и "SLAYER". В ближайшее время планируется съемка видео на трек "One Man Army", хотя сомневаюсь, что это поможет улучшить положение дел с альбомом...</p>
+
+Автор: Yermola
+
+### 04.07.2001 news SEPULTURA may be parting ways with Roadrunner Records ....
+
+<p>Unconfirmed reports indicate that SEPULTURA may be parting ways with Roadrunner Records following the disappointing performance of the group’s Nation CD and subsequent disagreements between the band and the label over tour support issues. According to sources, SEPULTURA were especially peeved that the above-mentioned disagreements led to the group pulling out of the Tattoo The Planet European festival tour alongside PANTERA and SLAYER, which the band viewed as a much-needed opportunity to introduce the group’s current line-up to a wider audience and potentially reverse their current pattern of dwindling record and ticket sales in Europe and the US (a factor that the band reportedly blames squarely on the record company’s lack of promotional support). In the meantime, there are still plans for SEPULTURA to shoot a video for the track “One Man Army”, off the aforementioned Nation release, in Brazil during the coming weeks. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.07.2001 news Derrick Green снимает кино....
+
+<p>Вокалист "SEPULTURA" - Derrick Green за последние три года проведенные с командой умудрился снять фильм повествующий о закулисной и гастрольной жизни оной. Блок-бастер названный "Tribus" будет в продаже в ближайшее время. Фанаты Силипутры уже могут посмотреть небольшой рекламный ролик-дразнилку <a href="http://www.uol.com.br/sepultura/multimedia/tribus_trailer.mov"> здесь... </a></p>
+
+Автор: Yermola
+
+### 13.07.2001 news Derrick Green will soon release a movie.........
+
+<p>According to Sepultribe, SEPULTURA vocalist Derrick Green will soon release a movie filmed on the road, featuring footage shot during the last three years—from the beginning of the Against touring cycle onwards—through as-yet-undisclosed outlets. The entire movie, which is entitled Tribus, will reportedly feature SEPULTURA music and show tour life as well as plenty of behind-the-scenes footage. A short teaser for the upcoming movie can be viewed at this <a href"http://www.uol.com.br/sepultura/multimedia/tribus_trailer.mov"> location.</a> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 31.07.2001 news Чат с SEPULTURA ...
+
+<p>Вы сможете пообщаться он лайн с "SEPULTURA" во время чата, который пройдет в среду 1-го августа в 5:00 PM (8:00 PM GMT) на Бразильском сайте <a href="http://batepapo.uol.com.br/batepapo/convid.htm">здесь</a>.</p>
+
+Автор: Yermola
+
+### 31.07.2001 news SEPULTURA will be taking part in an online chat...
+
+<p>SEPULTURA will be taking part in an online chat with their fans this Wednesday, August 1st at 5:00 PM (8:00 PM GMT) via this <a href="http://batepapo.uol.com.br/batepapo/convid.htm">Brazilian web site</a>. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 29.01.2002 news Видео Силипутры...
+
+<p>Унылые бразильские мачо, дабы развеять тоску вызванную уходом кавалерии (i.e. Макса Кавалеры) снялись во время концерта на ТВ-шоу MuSiKaOs и выложили сие творение в виде потокового Real Video. Любителям - нажимать здесь: <BR><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura1.smi">01. Sepulnation</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura2.smi">02. Who Must Die?<BR></A> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura3.smi">03. Troops Of Doom</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura4.smi">04. Roots Bloody Roots</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura5.smi">05. Spit</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura6.smi">06. Revolt</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura7.smi">07. Territory</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura8.smi">08. Biotech Is Godzilla </A><BR></p>
+
+Автор: Yermola
+
+### 29.01.2002 news SEPULTURA Live On Brazilian TV—And On Your Computer ...
+
+<p>A recording of SEPULTURA performing eight songs on the Brazilian TV show MuSiKaOs in early October can be viewed in streaming Real Video at the following locations:<BR> <BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura1.smi">01. Sepulnation</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura2.smi">02. Who Must Die?<BR></A> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura3.smi">03. Troops Of Doom</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura4.smi">04. Roots Bloody Roots</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura5.smi">05. Spit</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura6.smi">06. Revolt</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura7.smi">07. Territory</A><BR> <A HREF="http://www.tvcultura.com.br/musikaos/100/imagens/musica-sepultura8.smi">08. Biotech Is Godzilla </A><BR></p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 26.03.2002 news Некогда культовая Силипутра...
+
+<p>Знававшая и лучшие времена SEPULTURA разошлась с менеджментом Rick Sales (SLAYER, SYSTEMATIC) разорвала контракт с Sanctuary Records (а в прошлом году ушла с Roadrunner...). Плохому танцору известно что мешает... Но надеюсь новый менеджер Джим Льюс (так же работает с YNGWIE MALMSTEEN) как-то сможет поправить дела. Сейчас Сепультурцы пишут новый материал для альбома продолжения по отношению к прошлогоднему и не очень удачному "Nation". <BR><BR> В дополнение к сказанному, голландская Mascot Records выкупила европейскую лицензию у бразильского представительства Roadrunner Records на практически неизвестный релиз No Coracao Dos Deuses (В переводе с португальского на English “In The Heart Of The Gods”), на котором можно услышать Cavalera и Andreas Kisser. Выпущенный в 1999 году и доступный только в Бразилии "No Coracao Dos Deuses" представляет также в качестве гостя участника FAITH NO MORE/FANTOMAS - Mike Patton на треке "Procura O Cara". В Европе диск появится в продаже в мае. Трек-лист: <BR><BR> 01. O Desconhecido<BR> 02. Walkman<BR> 03. Bigao De Couro<BR> 04. Bruxaria<BR> 05. Aldeia<BR> 06. Tamandua De Troia<BR> 07. Enforcamento<BR> 08. Tauana E Pedro<BR> 09. Procura O Cara (с участием Mike Patton)<BR> 10. Saida Das Canoas<BR> 11. Indios<BR> 12. Martirios<BR> 13. A Feiticaraia De Gabriel<BR> 14. Terra De Manoa<BR></p>
+
+Автор: Yermola
+
+### 26.03.2002 news SEPULTURA: Without A Record Deal, Pursuing Side Projects ...
+
+<p>SEPULTURA have parted ways with Rick Sales Management (i.e. SLAYER, SYSTEMATIC) and have broken off contract negotiations with Sanctuary Records following the group's split with Roadrunner last year, drummer Igor Cavalera has exclusively told BLABBERMOUTH.NET. Although initial discussions between Sanctuary and SEPULTURA had taken place (a fact that was affirmed by a Sanctuary label ad placed last year in trade publication Billboard that prematurely listed SEPULTURA as part of the company's roster), differences over the terms of the contract were too substantial for the band and the label to be able to come to an agreement, and a decision was eventually made by the group to begin exploring other options. <BR><BR> Currently represented by former YNGWIE MALMSTEEN manager Jim Lewis, SEPULTURA are writing material for the follow-up to 2001's Nation and have thus far completed the music for three new tracks, none of which presently have titles. In addition, the band will be embarking on a lengthy Brazilian tour in April, which will be preceded by an appearance at the Topagunea Festival in Ellorio, Spain on March 31st.<BR><BR> Although SEPULTURA plan on continuing the writing process throughout the spring and the summer, the group's recent “down time” has allowed Cavalera to focus his attention on several potential side projects, including a possible collaboration with BIOHAZARD axeman Billy Graziadei and Brazilian electronic DJ and “professional raver” DJ Patife in an as-yet-unnamed group that is shortly due to begin demoing material at Graziadei 's mobile studio in Brazil (where Billy is temporarily residing with his Brazilian wife Karin and the couple's first child, Isabela).<BR><BR> In addition to the above-mentioned activities, Holland's Mascot Records recently acquired the European licensing rights from the Brazilian representatives of Roadrunner Records for the little-known soundtrack entitled No Coracao Dos Deuses (Portuguese for “In The Heart Of The Gods”), which features music written and performed primarily by Cavalera and SEPULTURA guitarist Andreas Kisser. Originally issued in 1999 and presently only available in Brazil, No Coracao Dos Deuses includes a guest appearance by former FAITH NO MORE/current FANTOMAS frontman Mike Patton in the track "Procura O Cara" and is due to receive a European release in late May. The full track listing for the effort is as follows:<BR><BR> 01. O Desconhecido<BR> 02. Walkman<BR> 03. Bigao De Couro<BR> 04. Bruxaria<BR> 05. Aldeia<BR> 06. Tamandua De Troia<BR> 07. Enforcamento<BR> 08. Tauana E Pedro<BR> 09. Procura O Cara (feat. Mike Patton)<BR> 10. Saida Das Canoas<BR> 11. Indios<BR> 12. Martirios<BR> 13. A Feiticaraia De Gabriel<BR> 14. Terra De Manoa<BR></p>
+
+Автор: Yermola
+
+### 27.06.2002 news Под тусклым серым небом...
+
+<p>По сообщению Roadrunner Records 27-го августа SEPULTURA обрадуют поклонников новым живым альбомом "Under a Pale Grey Sky". Опус представит запись концерта 1996 года в Лондонской Brixton Academy в классическом составе: Max Cavalera (гитара/вокал), Igor Cavalera (барабаны), Andreas Kisser (гитара) и Paulo Pinto Jr. (басс). Трек-лист: <BR><BR> 01. Roots Bloody Roots<BR> 02. Spit<BR> 03. Territory<BR> 04. Breed Apart<BR> 05. Attitude<BR> 06. Cut-Throat<BR> 07. Troops Of Doom<BR> 08. Beneath The Remains<BR> 09. Mass Hypnosis<BR> 10. Born Stubborn<BR> 11. Desperate Cry<BR> 11. Necromancer<BR> 12. Dusted<BR> 13. Endangered Species<BR> 14. We Who Are Not As Others<BR> 15. Straighthate<BR> 16. Dictatorshit<BR> 17. Refuse/Resist<BR> 18. Arise<BR> 19. Slave New World<BR> 20. Biotech Is Godzilla<BR> 21. Inner Self<BR> 22. Policia (TITAS)<BR> 23. We Gotta Know (CRO-MAGS)<BR> 24. Kaiowas<BR> 25. Ratamahatta<BR> 26. Orgasmatron (MOT&Ouml;RHEAD)</p>
+
+Автор: Yermola
+
+### 27.06.2002 news SEPULTURA To Issue &quot;Under A Pale Grey Sky&quot; In August ...
+
+<p>SEPULTURA's forthcoming live album has been re-dubbed Under a Pale Grey Sky, according to Roadrunner Records, who are scheduled to issue the effort on August 27th. <BR><BR> A recorded document of the last-ever performance of the classic SEPULTURA line-up of Max Cavalera (guitar/vocals), Igor Cavalera (drums), Andreas Kisser (guitar) and Paulo Pinto Jr. (bass), which took place at Brixton Academy in London on December 16th, 1996, the double-CD will feature a track listing culled from the following set list performed on that historic night (not all tracks are certain to appear on the final release):<BR><BR> 01. Roots Bloody Roots<BR> 02. Spit<BR> 03. Territory<BR> 04. Breed Apart<BR> 05. Attitude<BR> 06. Cut-Throat<BR> 07. Troops Of Doom<BR> 08. Beneath The Remains<BR> 09. Mass Hypnosis<BR> 10. Born Stubborn<BR> 11. Desperate Cry<BR> 11. Necromancer<BR> 12. Dusted<BR> 13. Endangered Species<BR> 14. We Who Are Not As Others<BR> 15. Straighthate<BR> 16. Dictatorshit<BR> 17. Refuse/Resist<BR> 18. Arise<BR> 19. Slave New World<BR> 20. Biotech Is Godzilla<BR> 21. Inner Self<BR> 22. Policia (TITAS)<BR> 23. We Gotta Know (CRO-MAGS)<BR> 24. Kaiowas<BR> 25. Ratamahatta<BR> 26. Orgasmatron (MOTЦRHEAD)</p>
+
+Автор: Yermola
+
+### 03.07.2002 news SEPULTURA To Record EP Of Cover Songs
+
+<p>SEPULTURA are tentatively set to enter Trama studios in Sгo Paulo, Brazil during August to record a mini-CD consisting of five or six cover songs, to be released later in the year through an as-yet-undetermined label. At the moment, the plan is for the EP to be issued in Brazil only, although a possibility exists that it will be released in other parts of the world, "depending on how [the CD] turns out," according to drummer Igor Cavalera.<BR><BR> Among the songs currently being considered for inclusion on the upcoming EP are the following:<BR><BR> 01. HELLHAMMER - "Messiah"<BR> 02. PUBLIC ENEMY – " Black Steel In The Hour Of Chaos"<BR> 03. JANE'S ADDICTION – "Mountain Song"<BR> 04. DEVO – "Mongoloid"<BR> 05. U2 – "Bullet The Blue Sky"<BR><BR> In other news, SEPULTURA are still seeking a label deal following their split with Roadrunner Records last year and have reportedly had discussions with several different companies in various territories—including Germany's SPV/Steamhammer Records and Japan's JVC Records—about releasing the group's next full-length effort, due in early 2003.</p>
+
+Автор: Yermola
+
+### 23.07.2002 news Под небом золотым...
+
+<p><IMG SRC="/images/news_rus/2002.07/2995.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right"> Вот так будет выглядеть Сепультуровский альбом "Under A Pale Grey Sky"...</p>
+
+Автор: Yermola
+
+### 29.08.2002 news Former METALLICA Bassist To Release Much-Circulated Demos ...
+
+<p>Former METALLICA bassist Jason Newsted will be releasing a six-song split CD from two of his long-running projects — IR8 and SEXOTURICA — through his own Chophouse imprint, according to the label's web site. IR8's three-tracker, which was recorded in 1994, features Newsted, Tom Hunting of the Bay Area thrash band EXODUS and Canadian STRAPPING YOUNG LAD mastermind Devin Townsend, while SEXOTURICA's portion of the CD was laid down in early 1995 and includes Hunting and SEPULTURA guitarist Andreas Kisser. <BR><BR> "[These recordings] been traded in the underground a little bit here and there, but now it's time to unleash it to everybody properly," stated Newsted about the upcoming release.<BR><BR> For more information on how to order a copy, send an e-mail to sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 30.08.2002 news Jason Newsted выпускает два демо...
+
+<p>Бывший участник "METALLICA" бассист Jason Newsted на своем лэйбле Chophouse выпускает сплит-CD двух проектов IR8 и SEXOTURICA. <BR><BR> Три песни от "IR8" были записаны в 1994 году в составе самого Ньюстеда, Tom Hunting (EXODUS) и участника "STRAPPING YOUNG LAD" - Devin Townsend. А "SEXOTURICA" демо было записано в 1995 в составе Ньюстеда, Hunting'а и гитариста "SEPULTURA" - Andreas Kisser. Заказать CD можно по e-mail: sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 05.11.2002 reviews Равнение на SEPULTURA!
+
+<p><B>Бомба, а не пластинка. Убаюкивающая экзотика акустической гитары и индейских распевов сменятся имитацией землетрясения – на сцене легендарная SEPULTURA в расцвете сил, в золотом составе</B><BR> 16 декабря 1996 года, Брикстон Экэдеми, Лондон – последнее шоу классического состава лучшей бразильской группы. Только-только появился на прилавках их шедевр "Roots", на слуху и предыдущие работы, уже ставшие классикой тяжелого рока: "Chaos A.D.", "Arise", "Beneath The Remains". Все это – в полную мощь концертной аппаратуры, ревущей, словно разъяренный вулкан. "Under a pale grey sky" – не просто отличный концертный альбом, демонстрирующий всю мощь SEPULTURA, но наверняка и один из лучших "живых" дисков рок-музыки вообще. Звук, настроение, реакция публики, динамика, творческая форма музыкантов… Слышны даже некоторые погрешности и ошибки в игре музыкантов – тот необходимый минимум, что отличает живую музыку от выученных назубок бестолковых упражнений. За два часа музыканты сыграли все лучшее, что имели – хрустальная акустика мистической "Kaiowas", безумная пляска "Ratamahatta", дикая "Attitude", в финал которой "вмонтирован" фрагмент классики BLACK SABBATH "Under the Sun", скорострельные "Arise", "Beneath the Remains". Из сюрпризов – кавер-версия панков CROMAGS "We gotta know" и "Orgasmotron" британцев MOTORHEAD, в исполнении SEPULTURA доведенный до температуры плавления металла.<BR> Впрочем, не только музыкальная начинка делает этот концертник уникальным. За несколько месяцев до этого погиб в автокатастрофе приемный сын Макса Кавалеры, Дана Уэлс, о чем Макс также говорит со сцены. И практически сразу после завершения этого выступления SEPULTURA раскалывается – коллеги по группе заявляют Максу, что не желают далее видеть его жену Глорию Кавалера в качестве менеджера группы. Кавалера уходит вместе с супругой… <BR> Между двумя эмоциональными всплесками – два часа беспредельной энергетики, максимальной самоотдачи и профессиональной работы высшей пробы. Вот вам и эталон качества – равнение на SEPULTURA!</p>
+
+Автор: Tornado
+
+### 09.11.2002 news SPV + SEPULTURA
+
+<p>Бразильские герои девяностых - группа SEPULTURA после долгого сотрудничества с Roadrunner Records, решили поменять лэйбл и подписали соглашение с SPV. Andreas Kisser, Igor Cavalera, Paulo Jr. и Derrick Green планируют выпуск нового альбома на новом лэйбле уже весной 2003 года.</p>
+
+Автор: Dimas
+
+### 09.11.2002 news SPV have signed Brazilian metal heroes SEPULTURA
+
+<p>Active since the 80‘s, the band have given up their long-time Roadrunner home and joined the SPV fold.<BR> Everything began in Brazil, the homeland of Andreas Kisser, Igor Cavalera and Paulo Jr. With the 1998 addition of New York’s Derrick Green, the band have continued to build on their Worldwide success with their most recent studio albums, “Against” (1998) and “Nation” (2001).<BR> Spring 2003 brings a new Sepultura studio album, which will be released by SPV in Europe.<BR> SPV is excited about their latest signing, and welcomes Sepultura to the family.</p>
+
+Автор: Dimas
+
+### 26.12.2002 reviews Сердце SEPULTURA
+
+<p><B>Обычно писать о музыке к фильмам не хочется – потому что такая музыка. Саундтреки давно превратились в чисто коммерческое мероприятие, где вдохновение – третий лишний между дебетом и кредитом. Как же приятно встретить исключение!</B><BR> Эта музыка к бразильскому фильму была написана двумя музыкантами бразильской же группы SEPULTURA, барабанщиком Игорем Кавалера и гитаристом Андреасом Киссером аж в 1999 году. Впрочем, прямого отношения к творчеству SEPULTURA (читать – шквалу и грохоту) это отношения почти не имеет – хотя все и началось с того, что режиссер фильма, услышав акустическую песню SEPULTURA "Kaiowas", попросил сделать что-то подобное почти на час. Получился шедевр. <BR> Здесь все сделано по законам звуковой дорожки к фильму – есть основная тема, которая обыгрывается в различных вариантах и аранжировках, есть динамика и есть развитие. Выделяет эту работу из ряда подобных то, что сделано все настолько талантливо, что музыка даже без фильма рисует впечатляющие и загадочные картины. Все получилось максимально эффектно – изначально хороший мелодический материал, высочайший профессионализм музыкантов, его обработавших и… Получился шедевр, который вдруг задышал, зажил собственной жизнью. Именно поэтому его и вытащили с полок, сдули пыль и запустили в тираж. <BR> Бразильская экзотика здесь представлена во всей красе – напористые барабаны и зажигательные ритмы, яркая мелодика и акустическая гитара. Есть и исключения –шаманская скороговорка "Martirios", "Procura O Cara" хит для любителей альтернативы с легендарным Майком Пэттоном у микрофона, и "Walkman" легко вписываются в стандарты рок-музыки. Все прочее – магия акустической гитары и бразильской ритмики. Лучше один раз услышать, чем сто раз прочесть об этой талантливой работе. Желаю удачи в поисках этой редкости!</p>
+
+Автор: Tornado
+
+### 11.02.2003 news SEPULTURA CD To Feature PARALAMAS Drummer ....
+
+<p>The track "Urge" on the forthcoming full-length album from SEPULTURA will feature a guest appearance by Joгo Barone, the drummer of the Brazilian band PARALAMAS. Barone recorded his contribution yesterday (Feb. 9) at AR Studios in Rio De Janeiro, Brazil where the band have been tracking the new album since early January. The as-yet-untitled follow-up to last year's "Nation" is being produced by Steve Evetts (SNAPCASE, EARTH CRISIS), and is tentatively scheduled to surface in late spring/early summer through SPV/Steamhammer Records in Europe, JVC Records in Japan, and FNM/Universal Records in Brazil. The group are still negotiating a North American deal following their split with Roadrunner Records early last year. <BR><BR> SEPULTURA have just released a covers-only EP, titled "Revolusongs", in Brazil and have shot a video for their rendition of U2's "Bullet The Blue Sky" — one of the cover tracks included on the CD. "Revolusongs" is tentatively scheduled to receive a European release through SPV/Steamhammer in April.</p>
+
+Автор: Yermola
+
+### 04.07.2003 reviews Бац-бац - и мимо
+
+<p><B>Критическое мышление – величайшая ценность для музыканта. Кто-то называет это нюхом на хорошие идеи, кто-то – интуицией или просто талантом, но в любом случае без этого – никуда. В противном случае титул "Посмешище" – ваш навеки.</B> <BR> Все это в полной мере относится к новому альбому некогда великой бразильской группы SEPULTURA. Бодрое начало, рваные ритмы, привычный для этой команды среднетемповый трэш-метал, солидно разбавленный бразильской экзотикой, – все это когда-то было на шедеврах "Chaos A.D." и "Roots". Музыканты уже в который раз пытаются повторить свои старые хиты, но время вспять не вернешь, и неплохое настроение первых боевых гимнов изрядно подпорчено просто никаким голосом Деррика Грина, способного лишь хрипеть на одной ноте и монотонно завывать, не чувствуя тональности. Двухметровый афроамериканец настолько упорен в этом, что кажется, будто это не проклятие, а талант – он может испортить абсолютно любую песню! Мало того, что на протяжении нескольких лет он делает это со старым и новым репертуаром самой SEPULTURA, так недавно группа выпустила мини-альбом из чужих песен, где Деррик поиздевался и над чужим творчеством. В общем, ничего святого для парня нет. <BR> Невольно задаешься вопросом – как остальные музыканты терпят это? И к середине диска находишь ответ. У ребят серьезные проблемы со свежими идеями, и творческое развитие они видят только в исполнении всех своих старых находок задом наперед – чтобы никто не догадался. Но безрезультатно, дослушать этот диск до конца крайне сложно – инстинкт самосохранения не позволяет. <BR> Похоже, на группе можно ставить крест, но… Ведь был же великолепный саундтрек к бразильскому фильму "No Corasao Des Deuses" в 1999 году, где SEPULTURA, выступив анонимно (и без Деррика Грина!), зазвучала очень свежо и самобытно. Но новое музыкальное направление, видно, не прельстило музыкантов – зарабатывать деньги на тускнеющей славе все же сподручнее, чем покорять новые вершины. А все из-за отсутствия того самого критического мышления.</p>
+
+Автор: Tornado
+
+### 03.11.2003 news Sepultura in Europe and Australia
+
+10.11. Hamburg - Gro&szlig;e Freiheit 36<BR>11.11. Kiel - Traum GmbH (Ex-Traumfabrik)<BR>12.11. M&uuml;nster - Skaters Palace<BR>13.11. Hannover - Capitol<BR>15.11. G&ouml;ttingen - Universit&auml;t (ZHG Zentralgeb.)<BR>16.11. Stuttgart - Die R&ouml;hre (Sepultura Headlineshow)<BR>17.11. CH-Fribourg - Fri-Son<BR>18.11. CH-Basel - Kaserne<BR>19.11. NL-Eindhoven - Effenaar<BR>26.11. AUS-Brisbaine - The Arena<BR>27.11. AUS-Sydney - Nsw Uni<BR>28.11. AUS-Melbourne - The Metro<BR>30.11. AUS-Adelaide - Tbc<BR>02.12. AUS-Perth - The Lookout<BR>
+Автор: Vit Belov
+
+### 09.02.2005 news SEPULTURA посоревнуются с Данте
+
+<P><STRONG>SEPULTURA</STRONG> сочиняют и репитируют материал для нового альбома. Главной новостью на сегодня является то, что группа сочинит 18 песен, которые будут основаны на известнейшем произведении <STRONG>Данте</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.04.2005 news SEPULTURA записали DVD
+
+<P><STRONG>SEPULTURA</STRONG> записали шоу в Бразилии для DVD. Трэк-лист шоу:</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2005.04/8298.jpg" width=400 align=right border=5>1. <STRONG>Apes Of God</STRONG> <BR>2. <STRONG>Slave New World</STRONG> <BR>3. <STRONG>Propaganda <BR></STRONG>4. <STRONG>Attitude </STRONG><BR>5. <STRONG>Choke <BR></STRONG>6. <STRONG>Innerself / Beneath The Remains <BR></STRONG>7. <STRONG>Escape To The Void</STRONG> <BR>8. <STRONG>Mindwar</STRONG> <BR>9. <STRONG>Troops Of Doom</STRONG> (w/ Jairo Guedz) <BR>10. <STRONG>Necromancer</STRONG> (w/ Jairo Guedz + Alex Kolesne from Krisiun) <BR>11. <STRONG>Sepulnation <BR></STRONG>12. <STRONG>Refuse/Resist <BR></STRONG>13.<STRONG> Territory</STRONG> <BR>14. <STRONG>Buller The Blue Sky <BR></STRONG>15. <STRONG>Reza</STRONG> (w/ Joao Gordo) <BR>16. <STRONG>Biotech is Godzilla</STRONG> (w/ Joao Gordo) <BR>17. <STRONG>Black Steel in The Hour of Chaos</STRONG> (w/ Ze Gonzales + BNegao) <BR>12. <STRONG>Arise / Dead Embrionic Cells</STRONG> <BR>13. <STRONG>Come Back Alive</STRONG> <BR>14. <STRONG>Roots Bloody Roots</STRONG> <BR>-- <BR>15.<STRONG> Bullet The Blue Sky</STRONG> <BR>15. <STRONG>Black Steel in The Hour of Chaos</STRONG> <BR>16. <STRONG>Roots Bloody Roots</STRONG></P>
+Автор: Vit Belov
+
+### 08.01.2006 news Новый альбом SEPULTURA
+
+<P><STRONG>SEPULTURA</STRONG> выпускают свой 11-ый альбом "<STRONG>Dante XXI</STRONG>" в этом году на <STRONG>SPV</STRONG>. Новая работа бразильцев основана на "<STRONG>Божественной Комедии" Данте</STRONG>. Трэк-лист:</P>
+<P>01. <B>Dark Wood of Error</B><BR>02. <B>Convicted In Life</B><BR>03. <B>City of Dis</B><BR>04. <B>False</B><BR>05. <B>Fighting On</B><BR>06. <B>Ostia</B><BR>07. <B>Buried Words</B><BR>08. <B>Nuclear Seven</B><BR>09. <B>Repeating the Horror</B><BR>10. <B>Crown and Miter</B><BR>11. <B>Still Flame</B></P>
+Автор: Vit Belov
+
+### 25.05.2006 reviews Еще один незачёт &quot;старичкам&quot;, или Трэшевая альтернатива
+
+<P>После ухода Макса Кавалеры из самой известной группы Бразилии Sepultura многие поставили на ней крест (и не без оснований). "Сепультурцы" опять пытаются заставить о себе заговорить, на этот раз с помощью нового творения "Dante XXI", то бишь налицо явное переложение "Божественной комедии" Данте на времена наши грешные. Да Бог с ним, с Данте. Нам важнее, что получилось у бразильцев в музыкальном плане. А получилось-то не ахти. Прежде всего удивил звук. Попытка смешать коровый саунд (особенно вокал и гитары) &nbsp;с довольно сухим и глухим звуком барабанов дала какой-то странный результат, как будто-то что-то хотели эдакое современное замутить, да не доделали. И хотя получилось всё очень тяжело, но вот не цепляет тут ни одна песня, хоть тресни. Включение скрипки в 'Ostia' тоже не помогло, точнее, вещь сама по себе неплоха, но она настолько не вписывается в альбом и вообще не подходит к Sepultura, что начинаешь задумываться о том, что, может быть, просто не под той вывеской ребята уже выступают? Ведь какая-то трэшевая альтернатива получилась, да простят мне сиё определение. Да и черт с ней, со стилевой классификацией! Но вот песен-то хороших нет, увы. Слышатся какие-то отголоски с альбомов еще той, "правильной" Сепы, но и не более. Да, за модеринизацию саунда сегодня берутся многие трэшевые команды, но "Dante XXI" вот уже третий за недавнее время (после последних опусов Kreator и Sodom) совершенно неудачный результат среди корифеев жанра. Похоже - намеренно ли, случайно ли - что Sepultura загоняет сама себя в тупик, откуда выбраться потом будет ой как нелегко. И многие вещи обрываются как бы посередине, зачем это? Да и буклетик, хоть, видимо, и с изрядной долей стёба, вышел каким-то абсолютно любительским по исполнению. Хорошо хоть, что альбом сей длится меньше 40 минут, ибо уже где-то к десятой песне он начинает просто-напросто утомлять. Жаль, еще один незачёт группе из семейства старичков.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 11.07.2006 reviews Второе дыхание
+
+<P>Вслед за своим бывшим фронтменом Максом Кавалерой и его Soulfly, бразильцы Sepultura решили кардинально вернуться к корням и записать трэшевый альбом в духе великого Arise, когда-то вознесшего группу к самой вершине музыкального металлического Олимпа.</P>
+<P>Как и в случае с "Полетом Души", эксперимент с олдскульными заигрываниями удался на все сто. Конечно же, это не та музыка, которую мы слышали от группы в начале 90-х, но смысла сейчас записывать второй Arise или Chaos A.D. абсолютно нет. Новый альбом звучит достаточно современно, модные альтернативные фишки красиво и органично сочетаются с олдскульными трэшевыми риффами. Игорь кавалера не перестает радовать замысловатыми брейками и оригинальными бочечными заморочками. Среди явных хитов: Dark Wood Of Error, Convicted In Life, Nuclear Seven и конечно же Ostia с прекрасным соло на виолончели. Кстати, этот инструмент очень часто звучит на альбоме, особенно в интро которых на Dante XXI аж четыре.</P>
+<P>Одним словом, альбом очень сильный и крутой. Данная пластинка вернула мне интерес к группе, который был потерян достаточно давно.Пользуясь спортивной терминологией, у Sepultura открылось второе дыхание. Будем надеяться, что надолго.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 25.07.2006 news Новый драммер SEPULTURA
+
+<P>Как известно, <STRONG>Igor Cavalera</STRONG> покинул недавно пенаты родного коллектива <STRONG>SEPULTURA</STRONG>. Заменой ему стал <STRONG>Jean Dolabella</STRONG> (ex-<B>UDORA</B>). Серьезным дебютом для него стало выступление группы на фестивале <STRONG>Vilar de Mouros</STRONG> в Португалии.</P>
+Автор: Dimas
+
+### 26.07.2006 news Новая серия сборников от Roadrunner Records
+
+<P>11 сентября на <B>Roadrunner Records</B> будет&nbsp;реализована новая серия альбомов. Она представляет собой сборники лучших вещей от лучших коллективов лейбла. Первыми в этой серии отметились <B>FEAR FACTORY</B>, <B>SEPULTURA</B>&nbsp;и <B>TYPE O NEGATIVE</B>. Предлагаем вашему вниманию трек-листы этих сборников:<BR><BR><B>SEPULTURA</B> – "The Best Of"<BR>1. <B>Troops Of Doom</B><BR>2. <B>Beneath The Remains</B><BR>3. <B>Inner Self</B><BR>4. <B>Arise</B><BR>5. <B>Dead Embryonic Cells</B><BR>6. <B>Desperate Cry</B><BR>7. <B>Refuse/Resist</B><BR>8. <B>Territory</B><BR>9. <B>Slave New World</B><BR>10. <B>Biotech Is Godzilla</B><BR>11. <B>Roots Bloody Roots</B><BR>12. <B>Attitude</B><BR>13. <B>Ratamahatta</B><BR><BR><B>TYPE O NEGATIVE</B> - "The Best Of"<BR>1. <B>Unsuccessfully Coping With The Natural Beauty Of Infidelity</B><BR>2. <B>Christian Woman</B><BR>3. <B>Black No. 1</B><BR>4. <B>Too Late: Frozen</B><BR>5. <B>Love You To Death</B><BR>6. <B>My Girlfriend's Girlfriend</B><BR>7. <B>Cinnamon Girl</B><BR>8. <B>Everyone I Love Is Dead</B><BR>9. <B>Everything Dies</B><BR>10. <B>Highway Star</B><BR>11. <B>I Don't Wanna Be Me</B><BR>12. <B>Life Is Killing Me</B><BR><BR><B>FEAR FACTORY</B> - "The Best Of"<BR>1. <B>Martyr</B><BR>2. <B>Scapegoat</B><BR>3. <B>Scumgrief</B><BR>4. <B>Demanufacture</B><BR>5. <B>Self-Bias Resistor</B><BR>6. <B>Zero Signal</B><BR>7. <B>Replica</B><BR>8. <B>Shock</B><BR>9. <B>Edgecrusher</B><BR>10. <B>Resurrection</B><BR>11. <B>Cars</B><BR>12. <B>Linchpin</B> </P>
+Автор: Dimas
+
+### 30.06.2007 news Max и Igor войдут в студию
+
+<P>Бразильский журнал<STRONG> Bizz</STRONG> сообщает, что основатели и бывшие члены <STRONG>SEPULTURA Max</STRONG> и <STRONG>Igor Cavalera</STRONG> войдут в студию в Лос-Анжелесе уже в июле для записи нового материала для пока не названного нового проекта. Уже известно, что будущая работа выйдет на <STRONG>Roadrunner</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.07.2007 news Cavalera назвали свой проект
+
+<P><STRONG>Max Cavalera</STRONG> сообщил в интервью журналу <STRONG>Metal Hammer</STRONG> название их совместного с братом-барабанщиком<STRONG> Igor</STRONG> проекта. Он будет называться...нет не <STRONG>SEPULTURA</STRONG>. Он будет называться <STRONG>INFLIKTED</STRONG>. Братья обещают нарезать мощный hardcore/punk.</P>
+Автор: Vit Belov
+
+### 10.01.2008 news SEPULTURA выложили видео
+
+<P>Второй видеоклип с последнего альбома <STRONG>SEPULTURA</STRONG> <STRONG>"Dante XXI" </STRONG>на песню <STRONG>"Ostia" </STRONG>выложен в сеть.</P>
+<P><center><object width="425" height="373"><param name="movie" value="http://www.youtube.com/v/4Pr0F_x_Zbk&rel=1&border=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/4Pr0F_x_Zbk&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></object></center></P>
+Автор: Vit Belov
+
+### 19.05.2008 news SEPULTURA начали запись
+
+<P><STRONG>SEPULTURA </STRONG>вошли в студию для записи нового альбома, который выйдет в октябре на <STRONG>SPV</STRONG>. Пластинка вновь будет концептуальной и будет посвящена роману <STRONG>Anthony Burgess</STRONG> "<STRONG>Заводной Апельсин</STRONG>", по которому <STRONG>Стэнли Кубрик</STRONG> снял свой знаменитый фильм.&nbsp;</P>
+Автор: Vit Belov
+
+### 31.07.2008 news Гитарист SEPULTURA выпускает сольник
+
+<P>Гитарист <STRONG>SEPULTURA Andreas Kisser</STRONG> выпустит 6 октября свой дебютный сольный альбом, двойной диск под названием "<STRONG>Hubris I & II</STRONG>". Музыкант рассказал, что на эти диски попали все влияния, которым он подвергался за последние 15 лет. Релиз будет доступен через <STRONG>Mascot</STRONG>. Трэк-лист:</P>
+<P>I:<BR>01. <STRONG>Protest!<BR></STRONG>02. <STRONG>Euphoria/Desperation<BR></STRONG>03. <STRONG>Eu Humano</STRONG><BR>04. <STRONG>The Forum</STRONG><BR>05. <STRONG>Virgul&#226;ndia<BR></STRONG>06. <STRONG>God's Laugh</STRONG><BR>07. <STRONG>R.H.E.T.<BR></STRONG>08. <STRONG>Em Busca Do Ouro</STRONG><BR>09. <STRONG>Lava Sky</STRONG><BR>10. <STRONG>A Million Judas Iscariotes</STRONG></P>
+<P>II:<BR>01. <STRONG>Sad Soil</STRONG><BR>02. <STRONG>Worlds Apart<BR></STRONG>03.<STRONG> Breast Feeding</STRONG><BR>04. <STRONG>Page<BR></STRONG>05. <STRONG>Domenicana<BR></STRONG>06. <STRONG>Vivaldi<BR></STRONG>07. <STRONG>0120<BR></STRONG>08. <STRONG>Armonia<BR></STRONG>09. <STRONG>Hubris<BR></STRONG>10. <STRONG>Mythos<BR></STRONG>11. <STRONG>O Mais Querido</STRONG></P>
+Автор: Vit Belov
+
+### 09.08.2008 news SEPULTURA продолжают концепции
+
+<P>Новый альбом <STRONG>SEPULTURA</STRONG> получил название <STRONG>"A-Lex". </STRONG>Пластинка, которая выйдет в ноябре, вновь концептуальная. На этот раз группа обратилась к произведению "<STRONG>Заводной Апельсин</STRONG>" писателя <STRONG>Anthony Burgess</STRONG>. По этой книге знаменитый фильм снял&nbsp;&nbsp;<STRONG>Stanley Kubrick.</STRONG> Трэк-лист:</P>
+<P>01. <B itxtvisited="1">A-Lex I</B><BR itxtvisited="1">02. <B itxtvisited="1">Moloko Mesto</B><BR itxtvisited="1">03. <B itxtvisited="1">Filthy Rot</B><BR itxtvisited="1">04. <B itxtvisited="1">We've Lost You</B><BR itxtvisited="1">05. <B itxtvisited="1">What I do! </B><BR itxtvisited="1">06. <B itxtvisited="1">A-Lex II</B><BR itxtvisited="1">07. <B itxtvisited="1">The Treatment</B><BR itxtvisited="1">08. <B itxtvisited="1">Metamorphosis</B><BR itxtvisited="1">09. <B itxtvisited="1">Sadistic Values</B><BR itxtvisited="1">10. <B itxtvisited="1">Forceful Behavior</B><BR itxtvisited="1">11. <B itxtvisited="1">Conform</B><BR itxtvisited="1">12. <B itxtvisited="1">A-Lex III</B><BR itxtvisited="1">13. <B itxtvisited="1">The Experiment</B><BR itxtvisited="1">14. <B itxtvisited="1">Strike</B><BR itxtvisited="1">15. <B itxtvisited="1">Enough Said</B><BR itxtvisited="1">16. <B itxtvisited="1">Ludwig Van</B><BR itxtvisited="1">17. <B itxtvisited="1">A-Lex IV</B><BR itxtvisited="1">18. <B itxtvisited="1">Paradox</B></P>
+Автор: Vit Belov
+
+### 05.11.2008 news Дата релиза SEPULTURA
+
+<P><STRONG>SEPULTURA </STRONG>назначили дату для релиза своего нового концептуального альбома "<STRONG>A-Lex</STRONG>". Пластинка выйдет 26 января на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.01.2009 news Гитарист SEPULTURA выступил со SCORPIONS
+
+<P>Ниже можно посмотреть профессиональные съёмки бразильского телевидения с концерта <STRONG>SCORPIONS</STRONG> 7 сентября 2008 года в Ресифе. На сцене к знаменитым немцам присоединился гитарист <STRONG>SEPULTURA</STRONG> <STRONG>Andreas Kisser</STRONG>. Кроме него приняли участие различные перкуссионисты и девушки на подпевках.</P>
+<P><STRONG>"Always Somewhere"</STRONG>:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9ovWgW1Xq-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/9ovWgW1Xq-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+<P><STRONG>"Rock You Like a Hurricane"</STRONG>:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/iw_4ZCilpes&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/iw_4ZCilpes&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 11.01.2009 news SEPULTURA репетируют
+
+<P>Бразильцы <STRONG>SEPULTURA</STRONG> репетируют перед тем, как отправиться в широкомасштабный тур по миру, в рамках которого они приедут к нам в начале марта. Съёмки репетиции можно посмотреть ниже. Согласно сообщению на официальном сайте группы, нас ждут некоторые сюрпризы в сэте, который уже утверждён.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/0kly-VqBwtM&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/0kly-VqBwtM&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 19.01.2009 news Новый альбом SEPULTURA можно послушать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая пластинка<STRONG> SEPULTURA "A-Lex"</STRONG> выходит 26 января на <STRONG>SPV</STRONG> и доступна для прослушивания по адресу: <A href="http://sepultura.uol.com.br/a-lex/">http://sepultura.uol.com.br/a-lex/</A></FONT></P>
+Автор: Vit Belov
+
+### 20.01.2009 news Andreas Kisser: &quot;Max Cavalera просто чокнутый&quot;.
+
+<P><IMG height=365 alt="" hspace=0 src="/images/news_rus/2009.01/13417.jpg" width=350 align=left border=5>Гитарист <STRONG>SEPULTURA Andreas Kisser</STRONG> дал интервью <STRONG>Blistering.Com</STRONG>, в котором рассказал о новом альбоме группы и прошёлся по своему бывшему коллеге <STRONG>Max Cavalera</STRONG> (<STRONG>CAVALERA CONSPIRACY, SEPULTURA</STRONG>).</P>
+<P>"<EM>Мы большие фэны фильма Стэнли Кубрика&nbsp;"Заводной апельсин". Это классика. Очень особенная и мощная, близкая мне по настроению. После релиза предыдущего концептуального альбома "Dante XXI" мы попали на саундтрэк к фильму здесь в Бразилии. Очень интересно писать музыку для кино, связанную одним общим сюжетом. В кино ты должен считаться с мнением режиссёра и сценаристом, ты делаешь вещи, которые не стал бы делать обычно</EM>".</P>
+<P>Интересно, что в недавнем интервью бывший коллега <STRONG>Andreas Max Cavalera</STRONG> рассказал, что всем членам <STRONG>SEPULTURA</STRONG> никогда не нравился фильм "Заводной апельсин". А нравился он только ему, Максу, поэтому для господина <STRONG>Cavalera</STRONG> выглядит странным решение нынешней <STRONG>SEPULTURA</STRONG> обратиться к этой киноклассике в своём творчестве. Вряд ли господин<STRONG> Kisser</STRONG> читал эти высказывания, но <STRONG>Max Cavalera</STRONG> от него досталось.</P>
+<P>"<EM>Везде SEPULTURA очень хорошо встречают, и лишь в США ждут ре-юниона группы в классическом составе. Это понятно. Max Cavalera ведёт там свою пропаганду. Он даёт множество интервью, поддерживает постоянный интерес к своей персоне. Я думаю, это нормально, Max просто чокнутый и говорит ерунду в своих интервью. Ему нельзя доверять, и многие убедились в этом. Люди могут говорить и думать что угодно, но мы бы без этих высказываний обошлись. У нас есть шанс вернуться в Штаты, так как альбом очень хорош, и на нём есть что послушать. Люди, которые слушают музыку с открытым разумом и ушами, оценят нашу работу. Многие считают, что SEPULTURA закончилась в середине 90-х, но это не так. Мы создаём историю SEPULTURA здесь и сейчас. Меня часто спрашивают о ре-юнионе группы в классическом составе. Мы в этом не заинтересованы, мы просто двигаемся вперёд</EM>".</P>
+Автор: Vit Belov
+
+### 22.01.2009 news Новая супергруппа HAIL!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом январе туром по Чили дебютирует новая супергруппа <STRONG>HAIL!</STRONG>, которая будет исполнять кавер-версии знаменитых рок-хитов. В составе: гитарист <STRONG>Andreas Kisser</STRONG> (<B>SEPULTURA</B>),&nbsp;певец <B>Tim "Ripper" Owens</B> (<B>JUDAS PRIEST</B>, <B>BEYOND FEAR</B>, <B>YNGWIE MALMSTEEN</B>, <B>ICED EARTH</B>),&nbsp;барабанщик <B>Jimmy DeGrasso</B> (<B>ALICE COOPER</B>, <B>MEGADETH</B>)&nbsp;и басист&nbsp;<B>David Ellefson</B> (<B>F5</B>, <B>MEGADETH</B>).</FONT></P>
+Автор: Vit Belov
+
+### 23.01.2009 news Первые кадры HAIL!
+
+<P>Мы уже сообщали, о новй супергруппе <STRONG>HAIL!</STRONG> с участием <STRONG>TIM 'RIPPER' OWENS, ANDREAS KISSER </STRONG>и<STRONG> DAVID ELLEFSON. </STRONG>Кадры с шоу в столице Чили Сантьяго можно посмотреть ниже. Вот некоторые песни, которые будут исполняться группой:</P>
+<P>* JUDAS PRIEST - "Grinder"<BR>* BLACK SABBATH - "Neon Knights"<BR>* SEPULTURA - "Territory"<BR>* MOT&#214;RHEAD - "Ace of Spades"<BR>* PANTERA - "Fucking Hostile"<BR>* ACCEPT - "Balls to the Wall"<BR>* BLACK SABBATH - "Paranoid"<BR>* MEGADETH - "Symphony of Destruction"</P>
+<P><STRONG>JUDAS PRIEST - "Grinder"<BR></STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mbFFye9QWXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/mbFFye9QWXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 02.02.2009 news Трэйлер тура SEPULTURA
+
+<P><STRONG>SEPULTURA </STRONG>выложили трэйлер своего европейского тура, стартующего 6 февраля в Софии, Болгария. В рамках этого тура группа заедет к нам. Концерт в Москве состоится 2 марта, а в Санкт-Петербурге - 3 марта.</P>
+<P>
+<CENTER>
+<OBJECT height=225 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=2935014&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=2935014&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="225"></embed></OBJECT><BR><A href="http://vimeo.com/2935014">SEPULTURA Winter TOUR 09</A> from <A href="http://vimeo.com/frenchie">ERIC FRENCHIE</A> on <A href="http://vimeo.com/">Vimeo</A>. 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.02.2009 news SEPULTURA в Москве
+
+<CENTER><IMG height=300 alt="" hspace=0 src="/images/shows_rus/2009.03/13398.jpg" width=400 align=right border=5>THE FLAMING ARTS / MUSICKNESS RUSSIA ПРЕДСТАВЛЯЮТ:<BR>SEPULTURA В МОСКВЕ<BR>ВОЗВРАЩЕНИЕ ЛЕГЕНДАРНЫХ БРАЗИЛЬЦЕВ: <BR>2 марта - клуб 1Rock (ул. Дербеневская, д. 20.)</CENTER>
+<CENTER>Несколько лет назад в интернете появилась информация о том, что бразильская группа SEPULTURA записала песню "Roots Bloody Roots" совместно с Лучано Паваротти. Впоследствии музыканты легендарного бразильского коллектива опровергли данную информацию, рассказав, что появившийся в интернете трэк этого якобы совместного исполнения создан группой J.B.O., при этом оригинальные сэмплы ни бразильцев, ни великого итальянца не использовались. Трэк гуляет и пользуется популярностью в сети до сих пор. Впрочем, оригинальное творчество SEPULTURA значительно более известно, чем данное творение немецких шутников. Композиция, над которой они так оригинально поглумились, в 1996 году была в чартах Франции, Германии, Англии и других европейских стран, а в Финляндии и вовсе вышла на вторую позицию!&nbsp; Именно SEPULTURA в свое время совершили невозможное и заявили всему миру, что в Бразилии хорошо умеют не только танцевать самбу и проводить карнавалы, но и исполнять тяжелый рок – сверхкачественно, на мировом уровне. Сегодня SEPULTURA - одна из самых известных и признанных групп среди экстремальных направлений тяжелой музыки, в этом году коллективу исполняется 25 лет, на их счету сотни концертов и миллионы проданных дисков. Альбом "Arise", вышедший в 1991-м, за полтора года разошелся тиражом&nbsp; в 1 миллион экземпляров, в рамках тура были даны более 200 концертов, тогда же группа впервые посетила Москву и Санкт-Петербург. Следующие два альбома "Chaos A.D." и "Roots" также не были обделены успехом, только в США тиражи каждого из них перевалили за полмиллиона. На раннем этапе в музыке SEPULTURA преобладал трэш с вкраплениями дэт-металла, затем появились элементы хардкора, трэш начал трансформироваться в грув, с конца 90-х коллектив работает преимущественно в хардкоровом ключе, но сравнивать их с кем-либо совершенно невозможно, и жанром можно лишь попытаться охарактеризовать звучание, ибо музыкальная составляющая у SEPULTURA всегда была уникальной и неповторимой. <BR>Басист Пауло в группе с самого основания, со времен второго альбома&nbsp; в ней прочно осел и гитарист Андреас Киссер. После ухода знаменитого Макса Кавалера в группе появился грозный чернокожий великан по имени Деррик Леон Грин, который и по сей день блестяще справляется с ролью вокалиста, не забывая при этом и про вторую гитару. Брат Макса Игорь играл в коллективе на ударных вплоть до 2006 года, когда, наконец, решил помириться с братом, сделавшим за эти годы весьма успешную карьеру в SOULFLY, и вскоре братья стартовали с новым проектом. Вакантную должность в SEPULTURA занял&nbsp; на тот момент 28-летний барабанщик Жан Долабелла.<BR>23 января 2009 года – дата релиза 11 студийного альбома SEPULTURA «A-Lex». Спустя две недели в столице Болгарии Софии стартует месячный европейский тур коллектива в его поддержку. В начале марта бразильцы дадут концерты в России, Украине и Белоруссии. Не упустите возможность увидеть культовую группу и услышать живое исполнение новых песен вместе с проверенными временем хитами. Открывать выступление SEPULTURA будет белорусский modern synth metal коллектив RASTA и Московский progressive black metal коллектив ARCANA IMPERIA.<BR>Билеты: <BR>- в кассе клуба, магазинах Рок-арсенал, Зиг-заг, Айронд (Горбушкин Двор), У дяди Бори – 1400 руб.<BR>- по телефону 8-915-4970747 - 1300 руб.<BR>Пресс-релиз подготовил Алан Ахметов (TheMetalList.com)</CENTER>
+Автор: Vit Belov
+
+### 03.02.2009 reviews SEPULTURA продолжается, несмотря ни на что
+
+<P>Многие не воспринимают бразильскую группу SEPULTURA после того, как её покинул один из «главарей» Max Cavalera больше десяти лет назад. Недавно легенду постигло ещё одно несчастье, выход из состава барабанщика-брата Igor Cavalera. В итоге в SEPULTURA остались лишь два «отца» гитарист Andreas Kisser и басист Paulo Xisto. Тем временем музыканты продолжают разрабатывать необычный для брутальной музыки жанр концептуального альбома.</P>
+<P>Новый “A-Lex” написан по мотивам произведения «Заводной апельсин», легшего в основу одноимённого фильма с&nbsp;Малькольмом Макдауэллом (!!!, спасибо Декстер Морган)&nbsp;в главной роли. Возможно, кто-то любит этот фильм, любит концепции в металле, вообще… Этим людям альбом просто необходим, но было бы интересно взглянуть на современную SEPULTURA, не обращая внимания на тексты, и попытаться понять что в творчестве группы осталось от классических альбомов типа “Arise”. К сожалению, сделать это очень сложно. Я прослушал “A-Lex” раза три и даже после этого не смог определить своего к нему отношения. Безусловно, есть несколько хитовых брутальных мест, которые с поправкой на прошедшее время можно отнести к «нужной» SEPULTURA. Но есть и бесконечные проигрыши и муторные «грузящие» моменты, которые появились в более позднем творчестве группы, и в принципе её совсем не красят. С помощью этих мест бразильцам удаётся создать гнетущую атмосферу, которая может подтолкнуть особо неуравновешенных к необдуманным поступкам, но это не то, за что многие любят группу с названием SEPULTURA.</P>
+<P>Продолжается дискуссия о роли Max Cavalera в музыке SEPULTURA. Возможно ли считать то, что сейчас так называется, настоящей группой? Заменил ли чернокожий певец Derrick Green господина Cavalera полноценно? Может ли продолжать существовать коллектив без братьев Cavalera? Ответов я не знаю, но приятно, что по прошествии десяти лет, SEPULTURA, примерив на себя маску концептуальной группы, продолжают существовать как оригинальная во всех смыслах музыкальная единица.</P>
+Автор: Vit Belov
+
+### 04.02.2009 news Продажи SEPULTURA в США падают
+
+<P>Опубликованы данные по прадаже нового альбома <STRONG>SEPULTURA "A-Lex"</STRONG> в США в первую неделю. Группа продала всего 1600 экземпляров. Вот продажи на первой неделе альбомов <STRONG>SEPULTURA</STRONG> без <STRONG>Max Cavalera </STRONG>в составе:</P>
+<P>* <B>"A-Lex"</B> (2009): 1,600<BR>* <B>"Dante XXI"</B> (2006): 2,300 <BR>* <B>"Roorback"</B> (2003): 4,000<BR>* <B>"Nation"</B> (2001): 10,000<BR>* <B>"Against"</B> (1998): 18,000</P>
+Автор: Vit Belov
+
+### 08.02.2009 news SEPULTURA начали тур
+
+<P>Тур<STRONG> SEPULTURA</STRONG> по Европе стартовал в пятницу в Софии. В рамках этого тура в начале марта группа выступит в Москве и Санкт-Петербурге. Сэт-лист выступления:</P>
+<P>01. <B itxtvisited="1">A-Lex</B> / <B itxtvisited="1">Moloko Mesto</B> ("A-Lex" '09)<BR itxtvisited="1">02. <B itxtvisited="1">Intro</B> / <B itxtvisited="1">Filthy Rot</B> ("A-Lex" '09)<BR itxtvisited="1">03. <B itxtvisited="1">What I Do!</B> ("A-Lex" '09)<BR itxtvisited="1">04. <B itxtvisited="1">Manifest</B> ("Chaos A.D." '93)<BR itxtvisited="1">05. <B itxtvisited="1">Convicted In Life</B> ("Dante XXI" '06)<BR itxtvisited="1">06. <B itxtvisited="1">Intro</B> / <B itxtvisited="1">We've Lost You</B> ("A-Lex" '09)<BR itxtvisited="1">07. <B itxtvisited="1">A-Lex II</B> / <B itxtvisited="1">The Treatment</B> ("A-Lex" '09)<BR itxtvisited="1">08. <B itxtvisited="1">False</B> ("Dante XXI" '06)<BR itxtvisited="1">09. <B itxtvisited="1">Intro</B> / <B itxtvisited="1">Dead Embryonic Cells</B> ("Arise" '91)<BR itxtvisited="1">10. <B itxtvisited="1">Troops Of Doom</B> ("Morbid Visions" '86)<BR itxtvisited="1">11. <B itxtvisited="1">Forceful Behaviour</B> ("A-Lex" '09)<BR itxtvisited="1">12. <B itxtvisited="1">Septic Schizo</B> / <B itxtvisited="1">Escape To The Void</B> ("Schizophrenia" '87)<BR itxtvisited="1">13. <B itxtvisited="1">Mass Hypnosis</B> ("Beneath The Remains" '89)<BR itxtvisited="1">14. <B itxtvisited="1">Inner Self</B> ("Beneath The Remains" '89)<BR itxtvisited="1">15. <B itxtvisited="1">A-Lex III</B> / <B itxtvisited="1">The Experiment</B> ("A-Lex" '09)<BR itxtvisited="1">16. <B itxtvisited="1">Sepulnation</B> ("Nation" '01)<BR itxtvisited="1">17. <B itxtvisited="1">Refuse/Resist</B> ("Chaos A.D." '93)<BR itxtvisited="1">18. <B itxtvisited="1">Territory</B> ("Chaos A.D." '93)<BR itxtvisited="1">19. <B itxtvisited="1">Arise</B> ("Arise" '91)<BR itxtvisited="1">20. <B itxtvisited="1">Kaiowas</B> ("Chaos A.D." '93)<BR itxtvisited="1">21. <B itxtvisited="1">Enough Said</B> ("A-Lex" '09)<BR itxtvisited="1">22. <B itxtvisited="1">Conform</B> ("A-Lex" '09)<BR itxtvisited="1">23. <B itxtvisited="1">Roots Bloody Roots</B> ("Roots" '96) </P>
+<P>Видео:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-bUouR8j-vc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/-bUouR8j-vc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.02.2009 news Andreas Kisser (SEPULTURA): &quot;Нам не надо много продавать&quot;.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В интервью на болгарском радио гитарист <STRONG>SEPULTURA Andreas Kisser&nbsp;</STRONG>прокомментировал низкие продажи нового альбома группы "<STRONG>A-Lex</STRONG>":</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>SEPULTURA не такая группа, для которой важны продажи альбомов. 25-летняя история позволяет нам думать так. Падение продаж это реальность, которая касается всех. Когда мы начинали, из техники входу были только факс-машины, сейчас каждый может зайти в Интернет и скачать</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 18.02.2009 news Видеорепортаж о SEPULTURA
+
+<P><STRONG>SEPULTURA</STRONG> находятся в туре по Европе, в рамках которого группа заедет к нам. В сети появился первый видеорепортаж об этом событии, включающий кадры за сценой и интервью с участниками коллектива.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/-k0F6Z4QpHg&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/-k0F6Z4QpHg&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.02.2009 news Проект вокалиста SEPULTURA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Певец <STRONG>SEPULTURA Derrick Green</STRONG> войдёт в студию в марте со своим новым проектом <STRONG>MUSICA DIABLO. </STRONG>Будет записано 16 песен, которые будут предложены европейским лэйблам.</FONT></P>
+Автор: Vit Belov
+
+### 22.02.2009 news Новое видео SEPULTURA
+
+<P>Видеоклип <STRONG>SEPULTURA</STRONG> на песню <STRONG>"We've Lost You" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/SxF-aKNgcV0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/SxF-aKNgcV0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.03.2009 news Последние съёмки SEPULTURA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Любительское видео<STRONG> SEPULTURA</STRONG> с концерта 27 февраля в Голландии можно посмотреть ниже. Сегодня группа выступит в московском клубе<STRONG> 1Rock</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ZqshlBUBsCA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/ZqshlBUBsCA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.03.2009 articles SEPULTURA в Москве: &quot;Вглядывайтесь в афишу&quot;.
+
+<P>02 марта в Москве после многолетнего перерыва выступила бразильская группа SEPULTURA. В клубе ‘1Rock’ мы увидели уже совсем другой коллектив. Осталось неизменным только его желание играть мощный thrash-metal и дарить фэнам угар огромными порциями.</P>
+<P>Необходимо отметить, что SEPULTURA не являются однозначными кумирами для современных фанатов тяжёлой музыки. После ссоры в середине 90-х годов группу покинул гитарист/фронтмэн Max Cavalera, основавший SOULFLY. Заменой ему стал темнокожий певец Derrick Green, которого почитатели SEPULTURA приняли не сразу, если вообще приняли. Дело тут не только в том, что Max Cavalera обладал неоспоримой харизмой и сочинял большое количество материала группы. Многих разочаровал цвет кожи музыканта, как это не прискорбно звучит. Чёрные не умеют играть в хоккей и не умеют играть металл, такое расхожее мнение бытует не только в нашей стране. Стоит отметить, что стало падать и качество альбомов SEPULTURA. “Against”, “Nation”, “Roorback”, “Dante XXI” и новая работа “A-Lex” так и не доказали своего право на место в ряду классических альбомов бразильцев. Последние две пластинки, вообще, концептуальные, очень спорное решение для группы, играющей пусть брутальный, но thrash-metal. С другой стороны, последние пластинки SEPULTURA с Максом тоже начали потихоньку распугивать преданных фанатов old school звучания. Например, и для меня “Roots” не стал персональным фаворитом, мягко говоря. В то время это «хип-хоп» скаканье не вызывало никакого оптимизма. С высоты прошедшего десятилетия понимаешь, что эти вещи были лишь робкими попытками освежить саунд, но тогда даже с Кавалерой SEPULTURA могла для меня закончиться, как в принципе она для кого-то и закончилась.</P>
+<P>Год за годом остатки SEPULTURA пытались достичь уровня начала 90-х, но слишком многое было потеряно. Перед новейшим альбомом “A-Lex” группу покинул второй брат Cavalera – барабанщик Igor. Братья основали ещё один клон CAVALERA CONSPIRACY, что совсем ослабило позиции бразильцев. Новая концептуальная пластинка вряд ли добавит SEPULTURA популярности. На ней есть несколько мощнейших хитов, но напор и прямолинейность, свойственная этим хитам, размыты разнообразными проигрышами и ситуационными дополнениями, необходимыми рассказываемой истории. И после всего сказанного я утверждаю, прошедший концерт стал лучшим для меня за последний год. Вообще, существует какая-то странная закономерность. По моему пониманию великолепные концерты не собирают должного количества зрителей. Вот и в этот раз в зале было человек 500. Обидно за поклонников тяжёлой музыки. Очень важные в плане концертной энергетики шоу ими не посещаются, и это ставит жирный крест на возможности вновь увидеть классные концертные коллективы в нашей стране. Многие путают хорошую и актуальную группу в записи с хорошей и актуальной группой на концерте. Безусловно, посидеть послушать какой-нибудь gothic-metal или progressive за кружкой пива не самое ужасное занятие. К сожалению, большинство рок-клубов в нашей столице не самые комфортные заведения, поэтому было бы резонно посоветовать некоторым любителям музыки попить пива дома перед экраном телевизора. Но вот послушать CANDLEMASS, SEPULTURA или OVERKILL необходимо пусть даже в самом грязном клубе. Энергия, которую вы получите от этих выступлений, ничем не заменима. </P>
+<P>SEPULTURA не оставили без внимания свой “A-Lex”. Даже достаточно слабые композиции обрели новую жизнь в концертном исполнении. Шикарный звук, мощная гитара, великолепные барабаны, а чёрный парень… Это, вообще, без комментариев. Настолько заразительной работы фронтмэна мне давно видеть не приходилось. Уже к середине шоу хотелось просто переорать этого бесноватого мужика. Такое классное ощущение, редко приходящее на обычных шоу. Когда закончился “A-Lex”, наступило самое интересное. Обилие хитов с “Arise” и “Chaos A.D.”, вот зачем пришли все люди. И они получили их в полном объёме и на самом высочайшем уровне.</P>
+<P>Что ещё говорить? Не надо судить поверхностно, вот, что я скажу. Агитировать за концерт SEPULTURA как-то глупо. Вряд ли шоу бразильцев состоится в Москве в ближайшее время. Те, кто пропустили концерт, уже ничего не вернут. Но не пропустить следующее мощное выступление в Москве ещё не поздно. Как говориться, следите за афишей. Следите внимательно!</P>
+<P>Спасибо Musickness, Flaming Arts и Виталику ‘Man’ за незабываемый концерт.</P>
+Автор: Vit Belov
+
+### 16.03.2009 news Andreas Kisser продолжает выступать
+
+<P>Гитарист <STRONG>SEPULTURA Andreas Kisser</STRONG> одной из тактик раскрутки своего нового альбома "<STRONG>A-Lex</STRONG>" выбрал словесную пикировку с бывшими коллегами. В первую очередь с <STRONG>Max Cavalera</STRONG>. В интервью <STRONG>MetalPaths</STRONG> господин <STRONG>Kisser </STRONG>высказал своё мнение об альбоме <STRONG>CAVALERA CONSPIRACY</STRONG>.</P>
+<P>"<EM>Я слышал пластинку, она не плоха, но они могли сделать гораздо лучше. Для тех же фэнов, которые с нетерпением ожидали этот альбом, она очень слаба. Что касается нашего возможного воссоединения? Я уважаю наше общее прошлое, но смотрю вперёд</EM>".</P>
+Автор: Vit Belov
+
+### 08.11.2009 news SEPULTURA снимут DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В следующем году <STRONG>SEPULTURA</STRONG> отпразднуют 25-летний юбилей. Гитарист<STRONG> Andreas Kisser</STRONG> сообщает, что в следующем году группа снимет DVD, посвящённое этому событию. Планируется возможное участие оркестра и чего-то такого же помпезного.</FONT></P>
+Автор: Vit Belov
+
+### 12.06.2010 news Max Cavalera хочет ре-юниона с Andreas Kisser, но на своих условиях
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист/гитарист <STRONG>SEPULTURA Max Cavalera</STRONG> продолжает обсуждать возможный ре-юнион бразильской группы. Для того, чтобы событие произошло нужно воссоединение <STRONG>Paulo Jr.</STRONG> и <STRONG>Andreas Kisser</STRONG> с одной стороны и братьев <STRONG>Cavalera</STRONG> с другой. <STRONG>Max</STRONG> признал факт того, что в прошлом году они обсуждали возможность возрождения классического состава <STRONG>SEPULTURA</STRONG> с <STRONG>Andreas Kisser</STRONG> по телефону, но сделка не состоялась. Камнем преткновения стала роль жены<STRONG> Max Cavalera Gloria</STRONG> в ре-юнионе. Дело в том, что при развале <STRONG>SEPULTURA </STRONG>в 1996 году большую роль играли внутрисемейные отношения. Господин<STRONG> Cavalera</STRONG> утверждает, что предложил господину<STRONG> Kisser</STRONG> разделить менеджмент новой <STRONG>SEPULTURA</STRONG> 50/50. При этом 50 процентов братьев<STRONG> Cavalera</STRONG> должна была осуществлять<STRONG> Gloria Cavalera</STRONG>. <STRONG>Kisser</STRONG> не согласился.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я хочу сделать этот ре-юнион&nbsp;не ради денег. Мне хочется показать людям, как хороша была SEPULTURA. Просто отыграть хорошие шоу, чтобы показать всю важность нашей группы. Никакого нового материала для группы я сочинять не планирую. Старые песни всё равно лучше</EM>", - поясняет <STRONG>Max Cavalera</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыкант также рассказал, что его брат <STRONG>Igor </STRONG>не хочет даже разговаривать с <STRONG>Andreas Kisser</STRONG>. Но он готов принять участие в ре-юнион туре ради самого<STRONG> Max Cavalera</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме прочего, в этом интервью журналу<STRONG> FaceCulture</STRONG> вокалист приоткрыл завесу тайны над распадом<STRONG> SEPULTURA</STRONG> в 1996 году и поведал странные вещи. Оказывается, в 1996 году погиб пасынок <STRONG>Max</STRONG>'a <STRONG>Dana</STRONG>. Семья <STRONG>Cavalera</STRONG> немедленно вылетела из Донингтона, где тогда выступали<STRONG> SEPULTURA</STRONG>, но выяснилось, что жена<STRONG> Andreas Kisser</STRONG> по какой-то причине решила сама похоронить <STRONG>Dana</STRONG> до приезда его матери.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Несмотря на это "зло", <STRONG>Max Cavalera</STRONG> готов зарыть топор войны, чтобы объединить силы с бывшим товарищем в ре-юнион туре не ради денег.</FONT></P>
+Автор: Vit Belov
+
+### 08.07.2010 news SEPULTURA на Nuclear Blast
+
+<P>В год своего 25-летнего юбилей бразильская легенда <STRONG>SEPULTURA</STRONG> подписала контракт с<STRONG> Nuclear Blast</STRONG>. Новый альбом коллектив выпустит в 2011 году.</P>
+<P>Последние пластинки группы выходили на <STRONG>SPV/Союз</STRONG>. Предыдущая работа бразильцев "<STRONG>A-Lex</STRONG>" вышла в январе 2009 года и стала первой для коллектива без какого-либо брата <STRONG>Cavalera</STRONG> в составе.</P>
+Автор: Vit Belov
+
+### 30.11.2010 news SEPULTURA сыграют &quot;Arise&quot;
+
+<P><IMG border=1 hspace=0 alt="" align=right src="/images/news_rus/2010.11/17699.jpg" width=300 height=194>Бразильцы <STRONG>SEPULTURA</STRONG> на концерте, посвящённом 16-летию клуба<STRONG> Manifesto Bar</STRONG> в Сан-Пауло, который состоится в субботу 11 декабря, отыграют целиком свой легендарный альбом "<STRONG>Arise</STRONG>" 1991 года выпуска. </P>
+<P>Сейчас&nbsp;в коллективе осталось лишь два члена, принимавших участие в записи этого альбома - гитарист <STRONG>Andreas Kisser</STRONG> и басист <STRONG>Paulo Xisto Pinto Jr. </STRONG></P>
+<P>В последнее время стало очень популярным среди звёзд тяжёлой музыки старшего поколения организовывать подобные концерты и даже туры. Достаточно вспомнить тур <STRONG>MEGADETH</STRONG>, посвящённый легендарному альбому "<STRONG>Rust In Peace</STRONG>" или тур <STRONG>W.A.S.P.</STRONG>, посвящённый не менее легендарному "<STRONG>The Crimson Idol</STRONG>".</P>
+<P><STRONG>SEPULTURA</STRONG> совсем недавно заключили контракт с <STRONG>Nuclear Blast</STRONG> и войдут в студию для записи новой работы до конца текущего года.</P>
+Автор: Vit Belov
+
+### 01.12.2010 news SEPULTURA объявили продюсера
+
+<P>Бразильцы<STRONG> SEPULTURA</STRONG> назвали имя продюсера своего нового альбома, который выйдет в начале 2011 года на <STRONG>Nuclear Blast</STRONG>. Неожиданный выбор пал на <STRONG>Roy Z.</STRONG> (<B>JUDAS PRIEST</B>, <B>HALFORD</B>, <B>BRUCE DICKINSON</B>, <B>HELLOWEEN</B>). Запись пройдёт в <STRONG>Trama Studios</STRONG> в Сан-Пауло.</P>
+Автор: Vit Belov
+
+### 04.12.2010 news Max Cavalera: &quot;Paulo Jr. просто не умел играть&quot;.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=262 alt="Paulo Jr не умел играть на басу" hspace=0 src="/images/news_rus/2010.12/17732.jpg" width=200 align=right border=0>В недавнем интервью журналу<STRONG> Revolver Max Cavalera</STRONG> из <STRONG>SOULFLY</STRONG> рассказал о новом альбоме <STRONG>CAVALERA CONSPIRACY</STRONG> и вновь открыл некоторые тайны функционирования легендарной группы <STRONG>SEPULTURA</STRONG>, в которой он участвовал до записи альбома "<STRONG>Roots</STRONG>" включительно. На этот раз объектом исследования стал басист группы <STRONG>Paulo Jr</STRONG>. На вопрос о своём отношении&nbsp;к концерту 12 декабря, на котором <STRONG>SEPULTURA</STRONG> собираются отыграть "<STRONG>Arise</STRONG>", и о своём участии в сочинении материала для него, <STRONG>Max</STRONG> ответил следующее:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>В сочинении материала я даю другим музыкантам шанс проявить себя. Например, Igor (барабанщик SEPULTURA в то время Igor Cavalera)&nbsp;приносил&nbsp;некоторые идеи. Единственный, кто не участвовал в работе басист Paulo Jr. Я думаю, первый альбом, на котором мы его записали, был "Roots". На предыдущих альбомах я и Andreas Kisser записывали партии баса, так как Paulo не умел играть так хорошо. Но мы были друзьями, поэтому оставляли его в группе. Мы так и говорили: "Ты можешь остаться в группе, мы просто сделаем тебя потише</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 15.03.2011 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18870.jpg" width=250 height=250>Организаторы чешского фестиваля <STRONG>Brutal Assault</STRONG> анонсировали новых участников. Ими стали бразильцы <STRONG>SEPULTURA</STRONG>, американская hardcore группа <STRONG>FIRST BLOOD</STRONG>, норвежские авангардисты <STRONG>RAM-ZET</STRONG>, фины <STRONG>TURISAS</STRONG>, немецкие thrash/death металлисты <STRONG>DEW-SCENTED</STRONG>, почитатели марихуаны <STRONG>CANNABIS CORPSE</STRONG>, легенды NYHC <STRONG>CRO-MAGS</STRONG>, думстеры <STRONG>AHAB</STRONG>, а так же, возрождённые <STRONG>EXIVIOUS</STRONG>, в состав которых входят музыканты <STRONG>CYNIC</STRONG> и <STRONG>TEXTURES</STRONG>.</FONT></P>
+<P>Начиная с сегодняшнего дня и до 30 апреля, каждый желающий может купить электронный билет на фестиваль по сниженной цене в<STRONG> </STRONG>1257 чешских крон (примерно&nbsp;52.40 EUR) через систему <STRONG>PayPal</STRONG>! А уже начиная с мая месяца&nbsp;и до конца июля, такой же билет можно будет купить по цене 1357 шеских крон (примерно 56.60 EUR). Для получения дополнительной информации пройдите по ссылке: <A href="http://brutalassault.cz/en/tickets/">http://brutalassault.cz/en/tickets/</A></P>
+Автор: Headcrusher
+
+### 26.03.2011 news Andreas Kisser заменит гитариста ANTHRAX на концертах в июле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18963.jpg" width=234 height=350>Гитарист <STRONG>SEPULTURA</STRONG> Андреас Киссер (<B itxtNodeId="391" itxtHarvested="1">Andreas Kisser</B>, на фото)&nbsp;отыграет 8 концертов с группой <B itxtNodeId="390" itxtHarvested="1">ANTHRAX</B> в июле 2011,&nbsp;в&nbsp;том числе и на нескольких выступлениях, которые пройдут в Европе в рамках фестиваля <STRONG>Sonisphere</STRONG>. Андреас станет временной заменой Скотту Иану (<B itxtNodeId="389" itxtHarvested="1">Scott Ian</B>), который в это время, вместе со своей женой <B itxtNodeId="388" itxtHarvested="1">Pearl Aday</B>, будет ожидать рождение первого ребёнка. </P>
+<P>Дочь легендарного певца&nbsp;<B itxtNodeId="385" itxtHarvested="1">Meat Loaf</B>, <B itxtNodeId="384" itxtHarvested="1">Pearl</B> получила своё имя в честь <B itxtNodeId="383" itxtHarvested="1">Janis Joplin</B><EM> (<STRONG>Pearl</STRONG> - кличка и название 4 альбома Джоплин),</EM>&nbsp;её крёстницой&nbsp;является&nbsp;американская фолк-певица <STRONG>Maria Muldaur</STRONG>. Ко всему прочему, <STRONG>Pearl Aday</STRONG> некоторое время гостролировала с группой <B itxtNodeId="381" itxtHarvested="1">M&#214;TLEY CR&#220;E </B>в качестве бэк вокалистки, а&nbsp;её сольная&nbsp;группа открывала концерты перед&nbsp;<B itxtNodeId="380" itxtHarvested="1">VELVET REVOLVER</B>.</P>
+Автор: Headcrusher
+
+### 03.05.2011 news Новый альбом SEPULTURA
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.05/19420.jpg" width=400 height=400>24 июня на <STRONG>Nuclear Blast</STRONG> выходит новый альбом <STRONG>SEPULTURA</STRONG> <STRONG>"Kairos". </STRONG>Обложку альбома нарисовал <STRONG>Erich Sayers. </STRONG>Пластинка была записана в Сан-Пауло в <STRONG>Trama Studios</STRONG> с продюсером <STRONG>Roy Z.</STRONG> (<B>JUDAS PRIEST</B>, <B>HALFORD</B>, <B>BRUCE DICKINSON</B>, <B>HELLOWEEN</B>). Всего было записано 13 треков, включая кавер на<STRONG> MINISTRY</STRONG> <STRONG>"Just One Fix" </STRONG>и <STRONG>THE PRODIDGY</STRONG> <STRONG>"Firestarter"</STRONG>. Трек-лист:</P>
+<P>01. <B>Spectrum</B> <BR>02. <B>Kairos</B><BR>03. <B>Relentless</B><BR>(2011) <BR>04. <B>Just One Fix</B> (MINISTRY cover)<BR>05. <B>Dialog</B> <BR>06. <B>Mask</B> <BR>(1433) <BR>07. <B>Seethe</B> <BR>08. <B>Born Strong</B> <BR>09.<B>Embrace The Storm</B><BR>(5772) <BR>10. <B>No One Will Stand</B> <BR>11. <B>Structure Violence</B> (Azzes)<BR>(4648)</P>
+<P>Bonus tracks (deluxe edition):<BR>12. <B>Firestarter</B> (THE PRODIGY cover)<BR>13. <B>Point Of No Return</B></P>
+Автор: Vit Belov
+
+### 02.07.2011 news Новый проект басиста SEPULTURA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая группа басиста <STRONG>SEPULTURA Paulo Jr.</STRONG> <STRONG>THE UNABOMBER FILES </STRONG>выложила в сеть короткий промо-ролик, который можно посмотреть ниже. Недавно новообразованный коллектив записал три дебютных песни <STRONG>"Borderline"</STRONG>, <B itxtHarvested="0" itxtNodeId="44">"The Clown"</B>&nbsp;и <STRONG>"Buried in My Bunker" </STRONG>в студии в Бело Оризонте. Состав:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Allan Wallace</STRONG> (EMINENCE) - Guitar <BR itxtNodeId="36"><B itxtHarvested="0" itxtNodeId="35">Paulo Jr.</B> (SEPULTURA) - Bass<BR itxtNodeId="34"><B itxtHarvested="0" itxtNodeId="33">Vladimir Korg</B> (THE MIST) - Vocals<BR itxtNodeId="32"><B itxtHarvested="0" itxtNodeId="31">Andre Marcio</B> (EMINENCE) - Drums </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR itxtNodeId="42"><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/48r2Z9aVVzk?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/48r2Z9aVVzk?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P></FONT>
+Автор: Vit Belov
+
+### 08.07.2011 news SEPULTURA попали в чарты
+
+<P>Новый альбом <STRONG>SEPULTURA "Kairos"</STRONG> достиг высоких позиций в чартах трёх европейских стран:</P>
+<P>Switzerland: #45<BR>Germany: #49<BR>Austria: #75 </P>
+<P>В нашей стране пластинка вышла на прошлой неделе на<STRONG> Irond</STRONG>, но чартов у нас нет, поэтому о результатах продаж вы сможете узнать только на ЦТ. Приобрести диск можно и в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P><center><IMG height=475 src="/images/news_rus/2011.07/19995.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 18.07.2011 reviews Концепцию перемкнуло
+
+<P>Концепция – штука, конечно, хорошая. Некоторые группы просто минуты новой музыки не могут сочинить без подходящей концепции. И чем концепция лучше, тем глубже и великолепней эта минута музыки. Бразильцы SEPULTURA, которые продолжают доказывать своё право на существование без братьев Кавалера, эти концепции сочиняют на раз. Каждая лучше предыдущей, но что-то на музыке это никак не отражается, а если и отражается, то обратно пропорционально.</P>
+<P>Вы без труда обнаружите в сети Интернет перевод длинного рассказа гитариста SEPULTURA Andreas Kisser о концепции этого альбома. Безусловно, и ваш покорный слуга обязательно бы прочёл его сентенции, если бы альбом “Kairos” (на сайте Irond дважды написано, что это древнегреческое слово, обозначающее время перемен, неуловимый период времени, во время которого происходит что-то особенное) произвёл хоть какое-то впечатление. К сожалению, дебютная пластинка «Сепы» для Nuclear Blast оказалась просто никакой. Музыканты в этот раз решили отказаться от собственного лица. Альбом не содержит каких-либо элементов классической SEPULTURA, в отличие от своего предшественника "A-lex", на котором было две забойные вещи, поразительно напоминавшие ту группу, которую мы все полюбили. На “Kairos” есть даже RAMMSTEIN-подобный industrial, но старого доброго “Refuse/Resist” нет.</P>
+<P>Как-то незаметно проходит этот альбом, оставляя только неприятную пустоту в голове. Прерывается процесс только кавер-версией на песню THE PRODIDGY “Firestarter”, да и та, честно говоря, не шибко ломовая. Похоже альбом только для заполнения коллекций SEPULTURA-ведов.</P>
+Автор: Vit Belov
+
+### 09.08.2011 news Andreas Kisser: новое тату в память о выступлениях в составе ANTHRAX
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20523.jpg" width=372 height=491>Andreas Kisser</STRONG>, гитарист группы <STRONG>SEPULTURA</STRONG>, сделал себе на руке памятное тату о своих недавних выступлениях в составе <STRONG>ANTHRAX</STRONG>, в ходе которых он заменял Сотта Иана (<STRONG>Scot Ian</STRONG>), занятого&nbsp;заботами о своём&nbsp;первенце.</P>
+<P>Напомним, что новый альбом <STRONG>ANTHRAX "Worship Music"</STRONG> выйдет в Европе 16 сентября на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Headcrusher
+
+### 06.01.2012 news SEPULTURA: Eloy Casagrande - новый барабанщик группы
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22536.jpg" width=332 height=500>Группа <B itxtHarvested="0" itxtNodeId="54">SEPULTURA</B> поменяла барабанщика. Новым участником группы стал <B itxtHarvested="0" itxtNodeId="53">Eloy Casagrande</B> (на фото, <B itxtHarvested="0" itxtNodeId="52">GL&#211;RIA</B>, <B itxtHarvested="0" itxtNodeId="51">ANDR&#201; MATOS</B>). to their arsenal of world-class musicians, replacing <B itxtHarvested="0" itxtNodeId="50">Jean Dolabella</B> as the band's full-time percussionist.<BR itxtNodeId="49"><BR itxtNodeId="48">Двадцати летний <STRONG>Eloy&nbsp;</STRONG>родом из&nbsp;The 20-year-old drum prodigy from S&#227;o Paulo, Brazil, who won the <B itxtHarvested="0" itxtNodeId="47">Modern Drummer</B> "Undiscovered Drummer" contest as a teenager in 2006, is more than eager to begin his career with the veteran metal icons.<BR itxtNodeId="46"><BR itxtNodeId="45">"When I got the invitation to join <B itxtHarvested="0" itxtNodeId="44">SEPULTURA</B>, I was in shock," said <B itxtHarvested="0" itxtNodeId="43">Casagrande</B>, who was born in Santo Andr&#233;, S&#227;o Paulo, Brazil on January 29, 1991, the same year <B itxtHarvested="0" itxtNodeId="42">SEPULTURA</B>'s classic fourth album, <B itxtHarvested="0" itxtNodeId="41">"Arise"</B>, was released. "I'm a fan of the band for years; it'll be an honor to play with them."<BR itxtNodeId="40"><BR itxtNodeId="39">Commented guitarist <B itxtHarvested="0" itxtNodeId="38">Andreas Kisser</B>: "I'm sure <B itxtHarvested="0" itxtNodeId="37">Eloy</B> will do a great job with <B itxtHarvested="0" itxtNodeId="36">SEPULTURA</B>. He's already a musician who shows a lot of strength and technique, although he's young. We did a rehearsal with him and it was fantastic; he played the old and new material as if he was in the band for a long time. <B itxtHarvested="0" itxtNodeId="35">SEPULTURA</B> will show the world another Brazilian talent on the drums."<BR itxtNodeId="34"><BR itxtNodeId="33"><B itxtHarvested="0" itxtNodeId="32">Dolabella</B>, who leaves <B itxtHarvested="0" itxtNodeId="31">SEPULTURA</B> after a five-year run of relentless touring and two studio albums, will depart to focus on personal projects.<BR itxtNodeId="30"><BR itxtNodeId="29">"The period we spent with <B itxtHarvested="0" itxtNodeId="28">Jean</B> in the band was very positive," added <B itxtHarvested="0" itxtNodeId="27">Kisser</B>. "We've recorded two great albums together and did a lot of concerts which will be in <B itxtHarvested="0" itxtNodeId="26">SEPULTURA</B>'s history. We only have reasons to thank him for his contribution and energy all these years."<BR itxtNodeId="25"><BR itxtNodeId="24"><B itxtHarvested="0" itxtNodeId="23">Dolabella</B> joined <B itxtHarvested="0" itxtNodeId="22">SEPULTURA</B> in 2006 following the departure of the band's original drummer, <B itxtHarvested="0" itxtNodeId="21">Igor Cavalera</B>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Headcrusher
+
+### 25.08.2012 news Благотворительная выставка вокалиста SEPULTURA в Санкт-Петербурге
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.08/24677.jpg" width=308 height=331>Derrick Green</STRONG>, вокалист группы <STRONG>SEPULTURA</STRONG>, устраивает свою первую фотовыставку и не абы где, а в городе на Неве. </P>
+<P>Выставка носит благотворительный характер и пройдёт с 28 августа по 25 сентября. Все средства с продаж фоторабот Деррика пойдут на ремонт Детского Дома Интерната №7.</P>
+<P>Этот приют был выбран среди многих,&nbsp;после долгих консультаций и дискуссий с представителями общественного движения <STRONG>"Петербургские родители"</STRONG>. </P>
+<P>Выбор основывался на том факте, что данное учреждение находится в очень плачевном состоянии и расположено в отдалённом районе. Именно его местонахождение&nbsp;не позволяет оказывать ему поддержку городскими и бизнес-структурами Санкт-Петербурга на том же уровне, что и детским домам,&nbsp;&nbsp;находящимся в черте&nbsp;города.</P>
+<P>Устроительство подобных выставок планируется также в Лондоне и Москве.</P>
+<P><U>Место проведения выставки</U>: </P>
+<P>г. Санкт-Петербург, набережная реки Мойки, д.&nbsp;99, отель <STRONG>"Domina Prestige"</STRONG>.</P>
+<P>Вход на выставку свободный.</P>
+<P>Больше подробностей о выставке: <A href="http://www.derrickgreenphotography.org/">www.derrickgreenphotography.org</A></P>
+<P>Ознакомиться с работами Деррика можно здесь: <A href="http://www.flickr.com/photos/greenlion">www.flickr.com/photos/greenlion</A></P>
+Автор: Headcrusher
+
+### 14.10.2013 news SEPULTURA: альбом &quot;The Mediator Between Head And Hands Must Be The Heart&quot; в этом месяце
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бразильский ансамбль <STRONG>SEPULTURA</STRONG> выпускают свой новый альбом, получивший название&nbsp;<STRONG>"The Mediator Between Head And Hands Must Be The Heart"</STRONG>.&nbsp;Дата выхода диска: 25&nbsp;октября в Европе и 28 октября в Англии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложку для альбома создал бразильский художник <STRONG>Alexandre Wagner</STRONG>. Её можно увидеть ниже. В создании обложки, <STRONG>Alexandre</STRONG> использовал уголь, бумагу и дерево.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трек <STRONG>"The Age Of The Atheist"</STRONG> можно послушать по ссылке: <A href="http://youtu.be/eWILExgA5GE">http://youtu.be/eWILExgA5GE</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Trauma Of War</STRONG> | 02. <STRONG>The Vatican</STRONG> | 03. <STRONG>Impending Doom</STRONG> | 04. <STRONG>Manipulation Of Tragedy</STRONG> | 05. <STRONG>Tsunami</STRONG> | 06. <STRONG>The Bliss Of Ignorants </STRONG>| 07. <STRONG>Grief</STRONG> | 08. <STRONG>The Age Of The Atheist</STRONG> | 09. <STRONG>Obsessed</STRONG> | 10. <STRONG>Da Lama ao Caos</STRONG> (Chico Science & Nacao Zumbi cover) | 11. <STRONG>Stagnate State Of Affairs</STRONG> (<EM>Bonus</EM>) | 12. <STRONG>Zombie Ritual</STRONG> (Death cover, <EM>Bonus</EM>)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.10/26269.jpg" width=500 height=484> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 01.11.2013 reviews Поток сознания
+
+<p>“The Mediator Between Head And Hands Must Be The Heart”. Вы купили бы пластинку с подобным названием? Я бы сильно задумался перед её приобретением. А именно так называется новейший альбом классиков тяжёлого метала SEPULTURA. В общем-то, нам не привыкать. После того, как коллектив покинул Max Cavalera, Andreas Kisser выделавает исключительно экстравагантные па.</p><p>Закончив с разнообразными концептуальными работами в жанре thrash-death, гитарист ничуть не отступил на своём новом альбоме от нагромождённости риффов и высоколобых атмосферных вставок. Слушать альбом SEPULTURA как рок-пластинку не представляется возможным. Всё время приходится заглядывать в буклет, думать над тем, что хотят сказать музыканты и.т.п. Многие из нас готовы заниматься этим за собственные деньги? Поток незамутнённого сознания от этой SEPULTURA тяжёл для расшифровывания и пригодится только любителям криптографии.</p><p>Конечно, ждать от SEPULTURA чего-то интересного в наши дни не стоит. Предыдущая пластинка, вышедшая в 2011 году, зародила в нас некоторые надежды, но они теперь безжалостно разбиты, и, думается, теперь SEPULTURA попросят и с Nuclear Blast.</p>
+Автор: Vit Belov
+
+### 06.11.2013 news SEPULTURA: клип &quot;The Vatican&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бразильский ансамбль <STRONG>SEPULTURA</STRONG> опубликовал видеоклип на песню <STRONG>"The Vatican"</STRONG>. Его можно посмотреть ниже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня,&nbsp;как&nbsp;и клип, повествуют о тёмной стороне&nbsp;жизни&nbsp;церкви и её служителей.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/SSqYDgT-ykg" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 24.04.2015 news SEPULTURA выпускает 7&quot; сингл
+
+<P>5 июня группа <STRONG>SEPULTURA</STRONG> выпускает новый 7" сингл под названием <STRONG>"Sepultura Under My Skin"</STRONG>. В оформлении сингла были использованы татуировки поклонников группы. Винил будет доступен в трёх цветовых вариациях.</P>
+<P>Трек-лист:</P>
+<P>Сторона "A":<BR>01. <STRONG>Under My Skin<BR></STRONG>Сторона "B":<BR>01. <STRONG>Kairos</STRONG> (Live)</P>
+<P>В этом году бразильцы также отмечают тридатилетие коллектива туром <STRONG>"30th Anniversary Tour"</STRONG>.</P>
+<P>Сингл <STRONG>"Sepultura Under My Skin" </STRONG>можно заказать тут: <A href="http://nblast.de/SEPULTURAeptour">http://nblast.de/SEPULTURAeptour</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2015.04/27923.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 30.07.2016 news Братья Cavalera сыграют &quot;Roots&quot;
+
+<p><strong>Max & Iggor Cavalera</strong> анонсировали тур <strong>"Return to Roots</strong>", посвящённый 20-летнему юбилею выхода альбома<strong> SEPULTURA</strong>. Музыканты проедутся по Северной Америке, на выступлениях будет исполняться "<strong>Roots</strong>" целиком. В состав кроме двух братьев войдут музыканты <strong>CAVALERA CONSPIRACY Mark Rizzo</strong> и<strong> Johny Chow</strong>. </p><p>Турне стартует в Лас Вегасе 12 сентября.</p><p>&nbsp;<center><img width="566" height="800" src="/images/news_rus/2016.07/29697.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 30.07.2016 news Announcing the &quot;Max &amp; Iggor Cavalera RETURN TO ROOTS&quot; Tour
+
+<p>Announcing the <strong>Max & Iggor Cavalera</strong> <strong>RETURN TO ROOTS</strong> tour - celebrating the 20th anniversary of the legendary album<strong> Roots</strong> - to be played in its entirety each night! The North American tour, which kicks off in Las Vegas on September 12, will feature direct support on select dates from The Black Dahlia Murder and Combichrist, with additional support from Allegaeon, All Hail The Yeti and Oni.</p><p>Max & Iggor Cavalera will perform their set with their <strong>Cavalera Conspiracy</strong> brothers, guitarist <strong>Marc Rizzo</strong> and bassist <strong>Johny Chow</strong>.</p><p>Tickets are on-sale beginning today and can be purchased via each individual venue. Visit your local RETURN TO ROOTS tour venue's website for more information, or check back to <a href="http://www.maxandiggorreturntoroots.com">www.maxandiggorreturntoroots.com</a> for updated ticket links as they become available.</p><p>In addition, very special Meet & Greet passes can be purchased at Max & Iggor Cavalera's merch booth each night. Fans will be given the opportunity to take a photo with Max & Iggor, and they will each sign a Roots CD, cassette or vinyl. This applies to only the Roots album and one autograph and one photo will be permitted per person. Don't miss this unique opportunity to have your Roots album signed by the men behind the music.</p><p>"<em>Metalheads! It's time," declares Max Cavalera. "20 years ago, we released the Roots album and changed the face of metal forever. Now, we're returning to "the roots" to show everybody the magic and inspiration of the Roots live experience! You cannot miss this RETURN TO ROOTS 2016</em>!"</p><p>Iggor Cavalera adds, "<em>I am very proud to play Roots again, to reaffirm that after 20 years, it still moves people! We hit the stage again with Roots to destroy everywhere we pass by!</em>"</p><p>Max & Iggor Cavalera are the original founding members of influential RIAA Gold-Certified Brazilian heavy metal legends Sepultura, and specifically the team behind the band's early albums, including seminal releases Arise, Chaos A.D. and Roots. Since the band's formation over 30 years ago, the Cavalera brothers have each seen unparalleled successes in the music industry. Max's more recent work with Soulfly, Cavalera Conspiracy (also featuring Iggor) and Killer Be Killed, in addition to Iggor's project MIXHELL, proves the lasting power of the Cavalera legacy.&nbsp;</p><p>Later this year, Warner Music will release a special vinyl edition of Roots, in addition to a CD/vinyl box set of classic Sepultura records, with more surprises in store. Stay tuned for a full announcement on the new editions, coming soon.</p><p>***Show line-ups vary per date - see below for the full tour routing with openers.</p><p>2016 Return to Roots Tour Dates:<br>9/12/2016 Las Vegas, NV @ LVCS w/ Combichrist, Allegaeon<br>9/13/2016 Albuquerque, NM @ Sunshine Theater w/ Combichrist, Allegaeon<br>9/15/2016 Nashville, TN @ Exit / In w/ Combichrist, Allegaeon<br>9/16/2016 Louisville, KY @ Diamond Concert Hall w/ Combichrist, Allegaeon<br>9/17/2016 Rochester, NY @ Montage Music Hall w/ Combichrist, Allegaeon<br>9/18/2016 Philadelphia, PA @ Rock Allegiance Festival (line-up)<br>9/19/2016 Knoxville, TN @ The Concourse w/ Combichrist, Allegaeon<br>9/20/2016 Athens, GA @ Georgia Theater w/ Combichrist, Allegaeon<br>9/22/2016 Oklahoma City, OK @ Diamond Ballroom w/ Combichrist, Allegaeon<br>9/23/2016 Dallas, TX @ Gas Monkey w/ Support TBA<br>9/24/2016 Houston, TX @ Houston Open Air Festival (line-up)<br>9/25/2016 New Orleans, LA @ Southport Music Hall w/ All Hail The Yeti<br>9/30/2016 Jacksonville, NC @ Hooligans w/ Combichrist, All Hail The Yeti, Oni<br>10/1/2016 St Petersburg, FL @ State Theater w/ Combichrist, All Hail The Yeti, Oni<br>10/2/2016 Ft Lauderdale, FL @ Culture Room w/ Combichrist, All Hail The Yeti, Oni<br>10/6/2016 Chicago, IL @ Reggie's w/ Combichrist, All Hail The Yeti, Oni<br>10/7/2016 Detroit, MI @ Harpos w/ Combichrist, All Hail The Yeti, Oni<br>10/8/2016 Dayton, OH @ Oddbodys w/ Combichrist, All Hail The Yeti, Oni<br>10/9/2016 Pittsburgh, PA @ Rex Theater w/ Combichrist, All Hail The Yeti, Oni<br>10/10/2016 Ottawa, ON @ Mavericks w/ The Black Dahlia Murder, Allegaeon, Oni<br>10/11/2016 Toronto, ON @ Opera House w/ The Black Dahlia Murder, Allegaeon, Oni<br>10/12/2016 Montreal, QC @ Les Foufounes Electriques w/ The Black Dahlia Murder, Allegaeon, Oni<br>10/14/2016 Quebec City, QC @ Imperial Theatre w/ Allegaeon, Oni<br>10/15/2016 Worcester, MA @ Rock N Shock Festival w/ Combichrist, All Hail The Yeti, Oni<br>10/16/2016 Cleveland, OH @ Agora Ballroom w/ Combichrist, All Hail The Yeti, Oni<br>10/17/2016 Sauget, IL @ Pop's w/ Combichrist, All Hail The Yeti, Oni<br>10/20/2016 Los Angeles, CA @ The Regent w/ All Hail The Yeti, Oni<br>10/21/2016 Tempe, AZ @ Club Red / D-Low FEST w/ Soulfly, Incite, Lody Kong, Oni<br>10/23/2016 Sacramento, CA @ Aftershock Festival (line-up)</p><p>&nbsp;<center><img width="566" height="800" src="/images/news_rus/2016.07/29697.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 30.10.2016 news SEPULTURA назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Новый альбом<STRONG> SEPULTURA</STRONG> получил название "<STRONG>Machine Messiah</STRONG>". Диск увидит свет 13 января на <STRONG>Nuclear Blast</STRONG>. Работа записана с продюcером <STRONG>Jens Borgen</STRONG> (SOILWORK, OPETH, KATATONIA, AMON AMARTH) в студии <STRONG>Fascination Street</STRONG>. Обложку нарисовал филиппинский художник <STRONG>Camille Della Rosa</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. Machine Messiah<BR>2. I Am The Enemy<BR>3. Phantom Self<BR>4. Alethea<BR>5. Iceberg Dances<BR>6. Sworn Oath<BR>7. Resistant Parasites<BR>8. Silent Violence<BR>9. Vandals Nest<BR>10. Cyber God</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.10/30132.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.10.2016 news SEPULTURA named new album
+
+<p>Brazilian heavy metal icons <strong>SEPULTURA</strong> have revealed the title of their upcoming studio album, »<strong>Machine Messiah</strong>«. Inspired by the robotisation of our society, the album will be released on January 13th via <strong>Nuclear Blast Records</strong>.</p><p>The album was produced by the band and <strong>Jens Borgen</strong> (SOILWORK, OPETH, KATATONIA, AMON AMARTH) of <strong>Fascination Street Studios</strong> in Цrebro, Sweden.</p><p>The stunning cover artwork of »Machine Messiah« was created by Filipino artist <strong>Camille Della Rosa</strong>. </p><p>Track list:</p><p>1. Machine Messiah<br>2. I Am The Enemy<br>3. Phantom Self<br>4. Alethea<br>5. Iceberg Dances<br>6. Sworn Oath<br>7. Resistant Parasites<br>8. Silent Violence<br>9. Vandals Nest<br>10. Cyber God</p><p><center><img width="500" height="500" src="/images/news_rus/2016.10/30132.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Постокавалеровская Sepultura

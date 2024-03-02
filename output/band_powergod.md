@@ -35,6 +35,74 @@ You and I ( M.A.R.S / DRIVER )
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.12.1999 reviews 
+
+<p>Новая группа с претензией на звание королей хэви-пауэр-металл. На фоне сегодняшнего подъёма данного стиля можно сказать, что они сорвут хорошие бабки. Ничего интересного музыка из себе не представляет. Очередной клон Helloween и Gamma Ray. Всё рассчитано, как на калькуляторе, где, что надо сыграть, где, что спеть. И получилась довольно слушабельная, нигде не угнетающая слух вещь, которая должна очень понравиться всем фэнам немецкой пауэр-музыки. Вот для них-то всё это и сделано. Они-то это и купят, а точнее уже купили. Но единственное настораживает, что если сейчас под влиянием моду все начнут так играть, то мы все ошизеем это слушать и это рецензировать.</p>
+<P></>
+<P> 7,5 из 10</>
+<P> Диск предоставлен фирмой "Спюрк"</>
+
+Автор: Vit Belov
+
+### 03.08.2000 reviews Альбом заставляющий дрожать стены
+
+<p>Альбом заставляющий дрожать стены. Бесподобные короткие гитарные перестрелки. Трудно классифицировать эту музыку. Временами это power-metal, временами speed-metal, но часто проскакивают фишки от thrash-metal и классического heavy-metal. Мелодично, быстро, временами зло. Этакая смесь Helloween, Exciter и Accept. Гремучая и сокрушительная, сметающая все на своем пути. Под стать музыке сокрушительный мощнейший вокал. Альбом - явное продолжение дебютного альбома, хотя и более зрелое и выверенное. пафосно-эпический альбом особенно понравится поклонникам классической школы тевтонского heavy-metal.</p>
+
+Автор: Dimas
+
+### 15.08.2000 reviews Album making to shiver walls
+
+<p>Album making to shiver walls. Incomparable short guitar crossfires. It is difficult to categorize this music. From time to time it power-metal, from time to time speed-metal, but often is overshot by chesspieces from thrash-metal and classic heavy-metal. Is melodious, fast, is from time to time angry. This is a mixture Helloween, Exciter and Accept. Fulminic and crushing, sweeping away all on the path(route). Under to become to music crushing most powerful vocal. An album - manifestative prolongation of a debut album, though both more mature and verified. Epic album specially is pleasant to the admirers of classic school tevtonic heavy-metal.</p>
+
+Автор: Dimas
+
+### 11.12.2001 reviews Урок настоящего реального heavy metal
+
+<p>Урок настоящего реального heavy metal. Альбом-посвящение составленный из любимых произведений музыкантов группы, составляющих классику speed-power-heavy metal. Своеобразная дань учителям. Альбом составлен сплошь из быстрых и тяжелых боевиков и не соджержит ни одной баллады и смазливой песенки. Только тяжелые, жесткие и бескомпромиссные песни. Очень плотный и самодостаточный звук и отличный вокал President Evil'а способного менять свой голос от песни к песне. Шестнадцать сумасшедших трэков-каверов таких групп как Agent Steel, Manowar, Warlock, Metal Church, Anthrax, Stryper, Yngwie Malmsteen и других. Каверы сделаны великолепны. В узнаваемом формате, но с сболее современным звучанием. Этот альбом - хорошая покупка для тех кто мало знаком с хэвиметаллической классикой. Кстати, в записи альбома приняли участие некоторые музыканты из составов самых разных групп (Agent Steel, Warlock, Stormwind, Holy Moses и других). Превосходный альбом для того, чтобы вспомнить восьмидесятые. Сразу видно, насколько хороши были преподаватели у Powergod.</p>
+
+Автор: Dimas
+
+### 13.02.2002 reviews Lesson of the real heavy metal
+
+<p>Lesson of the real heavy metal. Album - dedication made from favourite products of the musicians of band, components classics speed-power-heavy metal. Original tribute to the teachers. The album is made entirely of fast and heavy hits and not consists of any ballad. Only heavy and rigid songs. A very dense and self-sufficient sound and excellent vocal by President Evil capable to change the vote from songs to a song. Sixteen mad tracks-covers of such groups as Agent Steel, Manowar, Warlock, Metal Church, Anthrax, Stryper, Yngwie Malmsteen and others. Covers are made magnificent. In known format, but with more modern sounding. This album - good purchase for those who is poorly familiar withheavy metal classics. By the way, some musicians from the most different groups (Agent Steel, Warlock, Stormwind, Holy Moses and others) have taken part in record of an album. Excellent album to recollect eightieth. At once it is visible, as far as the teachers at Powergod were good.</p>
+
+Автор: Dimas
+
+### 01.07.2002 news POWERGOD To Record HELLOWEEN Cover.
+
+<p>Germany's POWERGOD will soon be entering the studio to record a version of HELLOWEEN's "Starlight" for a spanish tribute to the German melodic metal pioneers.</p>
+
+Автор: Natural born loser
+
+### 24.09.2002 news A TRIBUTE TO HELLOWEEN PART II
+
+<p>Окончательно стало известно, что вторая часть посвящения HELLOWEEN "The Keepers Of Jericho - A Tribute To Helloween Part II -" выйдет 9 декабря 2002 года на Arise Records. Трэк-лист альбома:</p>
+<p> IRON SAVIOR - PHANTOMS OF DEATH <BR> STEEL ATTACK - DR.STEIN<BR> POWERGOD - STARLIGHT<BR> BETO VAZQUEZ INFINITY - A TALE THAT WASN&acute;T RIGHT (Featuring Elisa - DARK MOOR -)<BR> ARWEN - MARCH OF TIME<BR> HIGHLORD - POWER <BR> FRETERNIA - MURDERER <BR> PARAGON - METAL INVADERS<BR> VHALDEMAR - GORGAR <BR> CELESTY - THE CHANCE <BR> DRAGONLAND - SOUL SURVIVOR <BR> AXENSTAR - TWILIGHT OF THE GODS <BR> RED WINE - RISE & FALL</p>
+<p> Все трэки на альбоме эксклюзивные и записывались специально для него. Обложку для альбома нарисовал Travis Smith.</p>
+
+Автор: Dimas
+
+### 11.02.2003 news Второй метал-урок от POWERGOD
+
+<p>Немецкая команда POWERGOD продолжает свое сотрудничество с Massacre Records и подписала контракт с конторой еще на три альбома. В ближайших планах группы - выпуск коллекции культовых металлических кавер-версий под названием "Practice What You Preach — That's Metal Lesson 2".</p>
+
+Автор: Dimas
+
+### 24.07.2003 news POWERGOD дадут второй металлический урок
+
+<p>Немецкие пауэрщики POWERGOD подготовили к выпуску вторую часть сборника собственных кавер-версий своих любимых металлических композиций под названием "Long Live The Loud - That's Metal Lesson 2". Среди тех, кто участвовал в записи, стоит отметить таких музыкантов, как Mille Petrozza, Tom Angelripper, Alex Krull и Martin Schirenc. В альбом войдут следующие вещи:</p>
+<p> 1. "Motormount" (ANVIL) <BR> 2. "Rockin" with you " (MALICE) <BR> 3. "D'ailleurs" (SORTILEGE) <BR> 4. "The Dungeon of acres calling" (SAVATAGE) <BR> 5. "The Calling" (LEATHERWOLF) <BR> 6. "Long live the loud" (EXCITER) <BR> 7. "Heavy chain" (LOUDNESS) <BR> 8. "Better off DEAD" (HELLION) <BR> 9. "Screams from the grave" (ABATTOIR) <BR> 10. "Bombs OF death" (HIRAX) <BR> 11. "Rockin ' through the night" (ROSY VISTA) <BR> 12. "Totally disasters" (DESTRUCTION) <BR> 13. "Ready ton skirt" (WENDY O ' WILLIAMS) <BR> 14. "I'd sleeping" (D.R.I.) <BR> 15. "The was drags ever on" (TANK) <BR> 16. "Deathrider" (OMEN) <BR> 17. "Mind of over Metal" (RAVEN)</p>
+
+Автор: Dimas
+
+### 19.09.2003 news Из POWERGOD ушёл вокалист
+
+Певец President Evil покинул POWERGOD, и группа в настоящее время ищет нового вокалиста. Также группа работает над своим пятым альбомом "Long Live The Loud - That's Metal Lesson II", который опять будет трибьютным, посвящённым их любимым группам.
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -21,6 +21,15 @@ Ridin One The Wind (Judas Priest-cover)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.09.2000 news Новый альбом Centurion
+
+<p> Итальянцы Centurion только что закончили запись нового альбома "Hyper Martyrium". Сама группа определила свой стиль как "Pure Violence Metal". Трэк лист альбома: "Arise of The Empire" (Intro), "Deflagration Of Violence", "Hyper Martyrium", "Talis Pater", "Katerpillar", "Monolitic Triumphator", "Into The Arena", "Stormfront Vanguard", "Call Of The Blood", "Ridin One The Wind" (Judas Priest-cover).</p>
+
+Автор: Nybras
+
+
 ## Обсуждения
 
 

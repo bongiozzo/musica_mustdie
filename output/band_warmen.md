@@ -84,6 +84,97 @@ Japanese bonus track:
 * C группой "Elias Viljanen" Jari Kainulainen
 * C группой "Symfonia" Jari Kainulainen
 
+## Публикации
+
+### 27.07.2000 reviews Почти инструментальный альбом
+
+<p>Почти инструментальный альбом. Сольный проект Janne Wirman - клавишника Children Of Bodom. На альбоме также засветились такие известности, как Jari Kainulainen - басист Stratovarius, Roope Latvala - гитарист Waltari и Kimberly Goss (Sinergy), которая спела две песенки для которых сама же и написала лирику. Все же остальные вещи инструментальные, где в основном, демонстрируется техника игры на клавишах. Но, надо отметить, гитары тоже очень много и она всячески борется с партиями клавишных. Красивая супермелодичная музыка в прогрессивном металлическом ключе, близком к hard'n'heavy и speed-melodic metal. Все сделано на высшем уровне, профессионально и технично, приятно послушать!</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews Almost instrumentalic album
+
+<p>Almost instrumentalic album. The solo project Janne Wirman - keyboardman Children Of Bodom. On an album such notorieties also were lighted, as Jari Kainulainen - bassman Stratovarius, Roope Latvala - guitar player Waltari and Kimberly Goss (Sinergy), which one is ripe two songs for which one and has written lyrics. Nevertheless remaining things instrumental, where basically, engineering of the game on keys is demonstrated. But, it is necessary to mark, it is a lot of guitar too also she in every possible way struggles with crews keyboard. Beautiful supermelodious music in a progressive metallical key, close to hard'n'heavy and speed-melodic metal. All is made top-level, is professional and technically, it is pleasant to listen!</p>
+
+Автор: Dimas
+
+### 25.12.2001 reviews Вторая сольная работа клавишного виртуоза
+
+<p>Вторая сольная работа клавишного виртуоза. Janne Wirman (Children Of Bodom) на сей раз основательно разбавил свои инструментальные упражнения вокальными партиями. На этот раз вокал используется в половине композиций с альбома. Для этой цели он пригласил, как и в прошлый раз, метал-деву Kimberly Goss (Sinergy), а также Timo Kotipelto (Stratovarius). Получился напыщенный, полифоничный, техничный и прогрессивный melodic speed-metal с влияниями hard-rock напоминающий поочередно Rainbow, Artension, Sinergy и Stratovarius. Удивительная техника и быстрые пальцы Janne Wirmanа придают музыке необыкновенную красоту и восхитительную музыкальную картину. Новый альбом чуть лучше предыдущего и заслуживает также как и дебют очень высокой оценки. Он более зрелый, но в тоже время более упрощенный. Название альбома символично. Все музыканты играют на пределе своих возможностей и способностей, иногда даже выходя за их рамки. Очень интересен кавер группы Heart "Alone". Душещипательная песенка получилась. Альбом состоит из сплошных клавишно-гитарных соло исполняемых с юношеским задором и героизмом. Правда соло немного похожи друг на друга, но это не беда, в целом альбом не особо грешит однообразием. Все мелодично и отлично.</p>
+
+Автор: Dimas
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 04.01.2005 news Новый альбом CHILDREN OF BODOM
+
+<P>Стали известны первые подробности о новом альбоме <STRONG>CHILDREN OF BODOM</STRONG>. Пока не названная пластинка будет записана вместе с продюсером <STRONG>Mikko Karmila</STRONG>, но не в студии <STRONG>Finnvox</STRONG>. Альбом выйдет в августе-сентябре на <STRONG>Spinefarm/Universal</STRONG>, если не случится задержек с записью.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей. Третий сольный альбом клавишника группы <STRONG>WARMEN</STRONG> выйдет в мае на<STRONG> Spinefarm</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.01.2005 news Третий сольник Janne Wirman
+
+<P>Фронтмэны <STRONG>CHILDREN OF BODOM</STRONG>&nbsp;&nbsp;(<B>Alexi Laiho)</B>&nbsp;и <B>STRATOVARIUS</B>&nbsp;(<B>Timo Kotipelto)</B>&nbsp;будут среди вокалистов, которые запишут вокальные партии для третьего альбома <STRONG>WARMAN</STRONG> - проекта<STRONG> </STRONG>клавишника&nbsp;<STRONG>CHILDREN OF BODOM</STRONG>&nbsp; <B>Janne Wirman</B>. Как уже сообщалось, релиз нового альбома ожидается в мае 2005 года.</P>
+Автор: Dimas
+
+### 03.06.2005 news Подробности о новом альбоме WARMEN
+
+<P>Клавишник<STRONG> CHILDREN OF BODOM</STRONG> <B>Janne Wirman</B> закончил работу над своим третьим сольным альбомом под названием <STRONG>"Accept the Fact"</STRONG>,&nbsp;выход которого запланирован 6 июля на&nbsp;<B>Spinefarm Records</B>. Сингл <STRONG>"Somebody's Watching Me"</STRONG> выйдет 8 июня и будет содержать трек <STRONG>"Faithful Eyes",</STRONG> который не войдет в полнометражник. Гостевое участие в записи приянли фронтмен <B>CHILDREN OF BODOM</B> <B>Alexi Laiho</B> и вокалист <B>STRATOVARIUS</B>&nbsp;<B>Timo Kotipelto</B>. Трек-лист альбома:</P>
+<P>1. <B>Accept the Fact</B><BR>2. <B>Invisible Power</B><BR>3. <B>Watersof Lethe</B><BR>4. <B>Roppongi Rumble</B><BR>5. <B>They All Blame Me</B><BR>6. <B>Puppet</B><BR>7. <B>Lying Delilah</B><BR>8. <B>Return of Salieri</B><BR>9. <B>Somebody's Watching Me</B><BR><BR></P>
+Автор: Dimas
+
+### 22.07.2005 reviews Преданным поклонникам мистера Warman
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В 2000 году на волне успеха<STRONG> CHILDREN OF BODOM</STRONG> клавишник этой группы <STRONG>Janne Warman</STRONG> выпустил свой первый сольник. На нём он перерабатывал на свой манер всевозможные неоклассические штампы, пропуская их через призму своей манеры игры на клавишных. Получилось довольно цепляюще, и среди металлистов, не очень хорошо знакомых с оригиналами этих штампов, пластинка разошлась "на ура".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже на дебюте было несколько приглашённых вокалистов, которые были лишь приятным дополнением к основному блюду. Сейчас колличество "клавишных боевиков" сведено к минимуму, да и звучат они спустя пять лет несколько заезженно, мелодии-то не меняются:) Несколько песен поёт <STRONG>Timo Kotipelto</STRONG> (<STRONG>STRATOVARIUS</STRONG>) и&nbsp;другие приглашённые&nbsp;вокалисты. Вот песни у мистера <STRONG>Warman</STRONG>, вообще, писать не получается. Все эти "потуги" представляют собой среднетемповый мелодичный hard-rock, несколько напоминающий последний сольник того же<STRONG> KOTIPELTO</STRONG>, который благополучно&nbsp;проходит мимо ушей.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По-моему, <STRONG>WARMEN</STRONG> должен был остаться проектом одного альбома. Все эти сиквелы никому не нужны. Только преданным поклонникам молодого человека по фамилии <STRONG>Warman</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.02.2009 news WARMEN пишут четвёртый альбом
+
+<P>Клавишник <STRONG>CHILDREN OF BODOM Janne Wirman</STRONG> записывает четвёртый альбом своего проекта<STRONG> WARMEN</STRONG>. Сообщается, что на пластинке будет лишь две инструментальные вещи, а остальные будут исполнять знаменитые вокалисты, имена которых пока не разглашается.</P>
+Автор: Vit Belov
+
+### 20.02.2009 news WARMEN перепоют Janet Jackson
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На новом сольном альбоме клавишника <STRONG>CHILDREN OF BODOM Janne Wirman</STRONG> будет исполнена кавер-версия на песню <STRONG>Janet Jackson</STRONG> <STRONG>"Black Cat", </STRONG>её споёт финская певица <STRONG>Jonna Kosonen</STRONG>. Другими вокалистами будут <STRONG>Alexi Laiho</STRONG> (<B itxtvisited="1">CHILDREN OF BODOM</B>)&nbsp;и <B itxtvisited="1">Pasi Rantanen</B> (ex-<B itxtvisited="1">THUNDERSTONE</B>).</FONT></P>
+Автор: Vit Belov
+
+### 25.04.2009 news Janne Wirman объявил дату
+
+<P>Новый сольный альбом клавишника <STRONG>CHILDREN OF BODOM Janne Wirman WARMEN</STRONG> будет называться <STRONG>"Japanese Hospitality" </STRONG>и выйдет 24 августа на <STRONG>Spinefarm</STRONG>. </P>
+Автор: Vit Belov
+
+### 05.11.2009 reviews Лучше бы Janne сконцентрировался на клавишных
+
+<P>Релиз первого сольника клавишника CHILDREN OF BODOM Janne Wirman “Unknown Soldier” стал безусловным событием на отечественном лицензионном рынке в 2000 году. Дело не только в том, что инструменталы, представленные на этой пластинке были достаточно живы и интересны. Главное, любой оригинальный релиз в 2000 году на лицензионном рынке становился событием.</P>
+<P>На том альбоме Janne делал то, что у него получается лучше всего. Клавишное «поливалово» было главным на той работе. К сожалению, дальше музыканту показалось этого мало и уже на следующих сольниках песням стало уделяться гораздо больше внимания. И вот на новом четвёртом альбоме WARMEN “Japanese Hospitality” вокал присутствует на девяти трэках из десяти. Здесь поют Timo Kotipelto, Pasi Rantanen, Alexi Laiho и девушка Jonna Kosonen, исполнившая целых четыре песни. К сожалению, собственный музыкальный материал WARMEN, как и прежде, не впечатляет. Среднетемповый hard’n’heavy без ярких мелодий. Одно дело запилы на клавишных, совсем другое – мощные хиты. </P>
+<P>Этот альбом вряд ли понравится многим. Я думаю, он не требует излишнего внимания. Проходная ‘all-star’ пластинка со средним материалом.</P>
+Автор: Vit Belov
+
+### 12.11.2009 news Японский бонус WARMEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кавер-версия <STRONG>WARMEN</STRONG> на песню <STRONG>ROXETTE</STRONG> <STRONG>"Fading Like A Flower" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/warmenofficial">http://www.myspace.com/warmenofficial</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня попала на японскую версию последнего альбома <STRONG>WARMEN</STRONG> <STRONG>"Japanese Hospitality"</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 05.11.2011 news WARMEN вошли в студию
+
+<P>Проект клавишника<STRONG> CHILDREN OF BODOM Janne Wirman WARMEN</STRONG> вошёл в студию для записи нового релиза. Пластинка должна выйти в 2012 году.</P>
+<P><center><IMG height=501 src="/images/news_rus/2011.11/21846.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### warmen

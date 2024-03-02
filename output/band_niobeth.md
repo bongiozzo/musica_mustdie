@@ -39,6 +39,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.09.2011 news Второй альбом NIOBETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=204 alt="" hspace=0 src="/images/news_rus/2011.09/21021.jpg" width=200 align=right border=0>Второй альбом испанской gothic/epic/symphonic metal команды<STRONG> NIOBETH "Silvery Moonbeams"</STRONG> выйдет 19 сентября на лэйбле <STRONG>Dreamcell11</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>The Banished Princess</STRONG> <BR>2. <STRONG>Eclipse&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR></STRONG>3. <STRONG>Withered Lullabies</STRONG>&nbsp;&nbsp;&nbsp;&nbsp; <BR>4. <STRONG>Sons Of The Earth</STRONG>&nbsp;&nbsp;&nbsp; <BR>5. <STRONG>Campeon&nbsp;</STRONG>&nbsp;&nbsp;&nbsp;&nbsp; <BR>6. <STRONG>Stolen Innocence</STRONG>&nbsp;&nbsp;&nbsp;&nbsp; <BR>7.<STRONG> My Dead Angel</STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>8. <STRONG>I Know That I Know Nothing</STRONG> <BR>9. <STRONG>I Need You To Need Me</STRONG>&nbsp;&nbsp;&nbsp; <BR>10. <STRONG>Sadako's Wings Of Hope</STRONG>&nbsp; <BR>11. <STRONG>Polovtsian Dances</STRONG> <BR>12. <STRONG>Solitude</STRONG>&nbsp; </P>
+<P>Трек <STRONG>"Eclipse"</STRONG> с этой пластинки можно послушать ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F21785155"><PARAM NAME="allowscriptaccess" VALUE="always">
+   <embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F21785155" type="application/x-shockwave-flash" width="100%"></embed> </OBJECT></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

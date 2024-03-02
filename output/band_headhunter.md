@@ -35,6 +35,35 @@ Schmier project
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.01.2008 news HEADHUNTER выпускают новый альбом
+
+<P>Воссоединившиеся в прошлом году<STRONG> HEADHUNTER</STRONG> в апреле выпустят новый альбом <STRONG>"Parasite of Society"</STRONG> на <STRONG>AFM</STRONG>. Группа состоит из известных музыкантов: <STRONG>Marcel "Schmier" Schirmer (</STRONG>вокал, <STRONG>DESTRUCTION</STRONG>), <STRONG>Jorg Michael </STRONG>(барабаны, <STRONG>STRATOVARIUS</STRONG>) и <STRONG>Schmuddel</STRONG> (ex-<STRONG>TALON</STRONG></B>). Эту группу в начале 90-х организовал ушедший из <STRONG>DESTRUCTION&nbsp;Schmier</STRONG>. <STRONG>AFM</STRONG>&nbsp;уже&nbsp;переиздали три ранних альбома <STRONG>HEADHUNTER</STRONG>: <STRONG>"Parody of Life"</STRONG> (1990), <B>"A Bizarre Gardening Accident"</B> (1992) и&nbsp;<B>"Rebirth"</B> (1994).</P>
+Автор: Vit Belov
+
+### 08.02.2008 news Новый альбом HEADHUNTER
+
+<P>Ре-юнион альбом <STRONG>HEADHUNTER</STRONG>&nbsp; <B>"Parasite of Society"</B> выходит 23 мая на <STRONG>AFM</STRONG>. Стал известен трэк-лист этой пластинки:</P>
+<P>01. <B>3rd Man Introduction</B><BR>02. <B>Parasite Of Society</B><BR>03. <B>Silverskull</B><BR>04. <B>Remission</B><BR>05. <B>Doomsday For The Prayer</B><BR>06. <B>18 And Life</B><BR>07. <B>Read My Lips</B><BR>08. <B>Backs To The Wall</B><BR>09. <B>Egomaniac</B><BR>10. <B>The Calling</B><BR>11. <B>Payback Time</B><BR>12. <B>Rapid Fire</B></P>
+<P>Новую песню <STRONG>"Doomsday For The Prayer"</STRONG> можно послушать по нижеприведённой ссылке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/officialheadhunter">http://www.myspace.com/officialheadhunter</A></P>
+Автор: Vit Belov
+
+### 07.05.2008 news HEADHUNTER выложили трэк
+
+<P><STRONG>HEADHUNTER</STRONG> выложили титульный трэк с нового альбома <STRONG>"Parasite of Society" </STRONG>на своей <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/officialheadhunter">http://www.myspace.com/officialheadhunter</A></P>
+Автор: Vit Belov
+
+### 12.08.2008 reviews Поклонникам HEADHUNTER
+
+<P>Немецкая группа HEADHUNTER была основана басистом/вокалистом Schmier после того, как он покинул DESTRUCTION в начале 90-х. Вместе с гитаристом Schmuddel и знаменитым барабанщиком Jorg Michael он выпустил три альбома. Пришло время, и всплеск популярности thrash-metal заставил музыканта возродить свой проект, на этот раз не покидая DESTRUCTION.</P>
+<P>Переиздав три классических альбома, HEADHUNTER взялись за сочинение нового материала. Группа не стала изобретать велосипед и записала альбом, который запросто можно поставить в один ряд с первыми её работами. По этой причине сразу говорю, тем, кто любит творчество HEADHUNTER никак этот альбом пропускать нельзя. Мы же поговорим с остальными. Справедливо отмечено CD-Maximum, что HEADHUNTER играют heavy-thrash-metal. При этом отмечу, что heavy в их музыке гораздо больше, к thrash-metal можно отнести грубый вокал Schmier и лишь иногда грубые тяжёлые риффы. Подобной музыки немного. Можно вспомнить ICED EARTH, которых тоже кличут heavy-thrash, но эта музыка более серьёзная и мощная, чем HEADHUNTER. В принципе сущность этой формации вполне сносно демонстрирует исполненный ими кавер на песню SKID RAW “18 And Life”. Видно, что после DESTRUCTION мощный басист хотел сыграть что-то более мелодичное и менее радикальное. К этому располагало и время, в начале 90-х многие суровые металлисты решили слегка сбавить обороты и зацепить фэнов смежных стилей. Думается, сам Schmier и не думал сейчас записывать альбомы HEADHUNTER, но неожиданная любовь поклонников к тем работам вновь заставила музыканта отвлечься от забоя DESTRUCTION. Если же оценивать ценность тех работ группы, которые стали образцом для “Parasite Of Society”, сквозь призму времени, она окажется не столь высока. Думается, сейчас много таких полутрэшовых альбомов, а вот настоящего классического «трэш-угара» не хватает.</P>
+<P>Новая работа HEADHUNTER не впечатлила меня, но это не мешает мне отметить её положительные черты. Немцы по-прежнему звучат оригинально, и они смогли сочинить несколько неплохих мелодий. О качестве исполнения и реализации я уж не говорю.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

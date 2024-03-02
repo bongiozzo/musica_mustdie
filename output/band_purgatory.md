@@ -83,6 +83,15 @@ Female vocals by Janett.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2011 news Новый альбом PURGATORY
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.08/20808.jpg" width=450 align=right border=0>Немцы<STRONG> PURGATORY</STRONG> в этом году выпустили новый альбом "<STRONG>Necromantaeon</STRONG>" на <STRONG>War Anthem Records</STRONG>. "Старомодный" материал для любителей <STRONG>VADER</STRONG> и<STRONG> MORBID ANGEL</STRONG> представлен на девяти новых треках:</P>
+<P>1. <STRONG>Arrival of the Undivine</STRONG>&nbsp; 01:05&nbsp;&nbsp;&nbsp; <BR>2. <STRONG>Reaping the Diseased</STRONG>&nbsp; 03:44&nbsp;&nbsp; <BR>3. <STRONG>Where Darkness Reigns</STRONG>&nbsp; 03:19&nbsp; <BR>4. <STRONG>Glorification of the Lightbearer</STRONG>&nbsp; 03:22&nbsp; <BR>5. <STRONG>Downwards Into Unlight</STRONG>&nbsp; 04:08 <BR>6. <STRONG>Scourging Blasphemies</STRONG>&nbsp; 03:17&nbsp;&nbsp;&nbsp; <BR>7. <STRONG>Calling the Grand Destroyers</STRONG>&nbsp; 03:45 <BR>8. <STRONG>Necromantaeon&nbsp;</STRONG> 04:18&nbsp; <BR>9. <STRONG>The Collapse of Tides</STRONG>&nbsp; 05:33 </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

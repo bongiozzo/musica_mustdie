@@ -25,6 +25,45 @@
 * C группой "Flotsam & Jetsam" Jason Newsted
 * C группой "Papa Wheelie" Jason Newsted
 
+## Публикации
+
+### 20.07.2001 news Эхо ... мозги Джэйсона Ньюстеда...
+
+<p>Экс-Металликовец - неугомонный Джэйсон со своими подопечными "ECHOBRAIN" выпустил альбом и уже продает его <a href="http://www.ebaystores.com/echobrainmusic">здесь</a>. Копий доступно всего 500! ТАк что торопитесь... 15 долларов с доставкой. Состав: сам Newsted (басс), барабанщик Brain Sagrafina и певец/гитарист Dylan Dawkin. Ко-продюссировал альбом Brian Dobbs (MANMADEGOD), среди гостей были Kirk Hammett (METALLICA), гитарист "FAITH NO MORE" Jim Martin и участники Симфонического Оркестра Сан-Франциско (того самого с которым писалась S&M).</p>
+
+Автор: Yermola
+
+### 20.07.2001 news ECHOBRAIN CD available via Ebay ...
+
+<p>Former METALLICA bassist Jason Newsted is making 500 copies of his ECHOBRAIN CD available via Ebay for the very reasonable price of $15 plus shipping at this <a href="http://www.ebaystores.com/echobrainmusic">location</a>. As previously reported, ECHOBRAIN includes in its line-up Newsted, drummer Brain Sagrafina and guitarist/singer Dylan Dawkin. The group's self-titled album, which was produced by Brian Dobbs (i.e. MANMADEGOD), features guest appearances by METALLICA guitarist Kirk Hammett, former FAITH NO MORE guitarist Jim Martin, and members of the San Francisco Symphony Orchestra, with whom METALLICA collaborated for its S&M album and subsequent live concerts. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 31.07.2001 news ECHOBRAIN дебют...
+
+<p>Опубликован трек-лист дебютного альбома "ECHOBRAIN": 01. Colder World (3:20) 02. The Feeling Is Over (3:37) 03. Spoonfed (4:45) 04. Adrift (3:15) 05. Keep Me Alive (3:49) 06. We Are Ghosts (3:50) 07. SuckerPunch (5:36) (feat. Kirk Hammett) 08. HWY 44 (4:16) 09. I Drank You (3:08) 10. Cryin' Shame (12:06).</p>
+
+Автор: Yermola
+
+### 31.07.2001 news ECHOBRAIN the new project....
+
+<p>Here is the full track listing for the debut self-titled CD from ECHOBRAIN, the new project headed by former METALLICA bassist Jason Newsted: 01. Colder World (3:20) 02. The Feeling Is Over (3:37) 03. Spoonfed (4:45) 04. Adrift (3:15) 05. Keep Me Alive (3:49) 06. We Are Ghosts (3:50) 07. SuckerPunch (5:36) (feat. Kirk Hammett) 08. HWY 44 (4:16) 09. I Drank You (3:08) 10. Cryin' Shame (12:06) Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 10.01.2002 news Пища для мозгов....
+
+<p>Джэйсон Ньюстед со своей командой "ECHOBRAIN" определился с датой выхода дебютного одноименного альбома. Он появится на прилавках музыкальных магазинов 4-го марта (причем будет выпущен через собственнй Ньюстедовский лэйбл Chophouse/Surfdog). Окончательный (и бесповоротный!) трек-лист: <BR><BR> 'Colder World' <BR> 'The Feeling Is Over' <BR> 'Spoonfed' <BR> 'Adrift' <BR> 'Keep Me Alive' <BR> 'We Are Ghosts' <BR> 'Suckerpunch' <BR> 'Hwy 44' <BR> 'I Dank You' <BR> 'Cryin' Shame'<BR><BR> Команда была создана басс-гитаристом еще во время "Металлики" в 1995 году с помощью, тогда еще 15-ти летнего барабанщика Брайана Саграфена и его дружка гитариста/вокалиста Дилана Донкина...</p>
+
+Автор: Yermola
+
+### 10.01.2002 news BRAIN FOOD...
+
+<p>Former METALLICA bassist JASON NEWSTED is finally to release new material from ECHOBRAIN, the band he left the rock giants to form. The group will release their eponymous debut album on March 4 through Newsted's own Chophouse/Surfdog label. <BR><BR> Newsted formed the band as a side project in 1995 when he heard the then 15-year-old Brian Sagrafena drumming. Sagrafena's friend Dylan Donkin was hired as vocalist and guitarist. However, it wasn't until Newsted quit Metallica on health grounds last year that Echobrain began to work seriously as a unit. Metallica guitarist Kirk Hammett is amongst the guests on the album. <BR><BR> The full tracklisting for Echobrain is as follows: <BR><BR> 'Colder World' <BR> 'The Feeling Is Over' <BR> 'Spoonfed' <BR> 'Adrift' <BR> 'Keep Me Alive' <BR> 'We Are Ghosts' <BR> 'Suckerpunch' <BR> 'Hwy 44' <BR> 'I Dank You' <BR> 'Cryin' Shame'<BR></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Echobrain

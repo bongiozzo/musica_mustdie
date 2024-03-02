@@ -41,6 +41,26 @@ The Demise Of Oblivion
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2004 reviews Непременно, всем любителям мелодичной тяжёлой музыки
+
+<P><EM><STRONG>PERSEFONE</STRONG> (не путать с <STRONG>PERSEPHONE</STRONG>, группой участников <STRONG>L'AME IMMORTALLE</STRONG>)&nbsp;со своим дебютником напрямую вышли на <STRONG>CD-MAXIMUM</STRONG> в России, альбом того стоит.</EM></P>
+<P>Правда, российский лэйбл пошёл на определённый риск с этой группой, зато любители неординарной музыки будут довольны. Невозможно чётко обрисовать стиль, в котором выступает группа, а это&nbsp;определённо помешает коммерческому успеху работы. Ситуация схожа с многими российскими группами. Идей вагон, мелодий миллион, а широкому слушателю это не нужно.&nbsp;Правда, у <STRONG>PERSEFONE</STRONG>&nbsp;несколько лучше обстоят дела с реализацией, чем у большинства наших "бедных" соотечественников.</P>
+<P><STRONG>Truth Inside The Shades</STRONG> - замешанная на black-death-metal гипер-мелодичная музыка. Соло-гитары, клавишные (местами, даже их звучание схоже с neo-prog), чистый вокал, атмосферность,&nbsp;- Вы это здесь найдёте. Разнообразный подход к написанию материала:&nbsp;скажем,&nbsp;песни&nbsp;очень длинные, но это не вызывает чувства скуки. С большой долей&nbsp;вероятности, альбом можно назвать black-doom-metal, но сравнить в целом ни с чем&nbsp;практически невозможно. К успехам также можно отнести последнюю вещь '<STRONG>The Demise Of Oblivion'</STRONG>, где группа неплохо "заигрывает" с классикой и достаточно плотно использует хор. </P>
+<P>Такие группы с возрастом становятся более стилистически выдержаны или пропадают в забвении. На плаву&nbsp;остаются лишь гении с подобным творчеством, но при всём, я не могу отнести <STRONG>PERSEFONE</STRONG>&nbsp;к гениям. Именно, молодость группы и есть её главный недостаток, но всем любителям мелодичной тяжёлой музыки советую к неприменному прослушиванию.&nbsp;&nbsp;&nbsp;&nbsp;</P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><EM>Диск предоставлен</EM> <A href="http://www.cd-maximum.ru/"><EM>CD-MAXIMUM</EM></A></STRONG></FONT> 
+<P></P>
+Автор: Vit Belov
+
+### 29.08.2004 reviews Certainly, to all fans of melodious heavy music
+
+<P><EM><STRONG>PERSEFONE</STRONG> (don't tangle with <STRONG>PERSEPHONE</STRONG> (feat. <STRONG>L'AME IMMORTALLE</STRONG> members)) with their debute signed with <STRONG>CD-Maximum</STRONG> in Russia straight on, album is worth for it.</EM></P>
+<P>To be true, Russian label went on the positive risk with this CD, but the fans of unusual music will be satisfied. It's impossible to describe style, band playing, and it will prevent commercial success of the album. Situation is close to many Russian bands. Million melodies, many ideas, but most fans don't need it. In other hand <STRONG>PERSEFONE</STRONG> has better producing then most of our "poor" compatriots.</P>
+<P><STRONG>'Truth Inside The Shades'</STRONG> is hyper-melodious music, mixing on black-death-metal. Solo-guitars, keyboards (sometimes even in neo-prog vein), clean vocal, atmosphear, - you find them here. Different approach to writing songs, they are very long, but you will not bore. I think, album can be named as black-doom-metal, but i couldn't find any clear compairs. Last track <STRONG>'The Demise Of Oblivion'</STRONG> can be relate to success of the band, <STRONG>PERSEFONE</STRONG> 'flirt' with classic and use chorus there.</P>
+<P>Such bands will become more style consistent or lost in oblivion. Only genius stays in history, but unfortunatly i can't rank <STRONG>PERSEFONE</STRONG>&nbsp;as geniuses. Just youth of this band is main defect of this album, but all fans of melodious heavy-music have to listen to this.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

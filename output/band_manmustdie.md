@@ -48,6 +48,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2011 news Новая песня MAN MUST DIE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню шотландской группы <STRONG>MAN MUST DIE</STRONG> <STRONG>"Hiding In Plain Sight" </STRONG>можно послушать в клипе ниже.&nbsp;Композиция была записана в студии <STRONG>Devil's Own </STRONG>в Глазго и выйдет в 2012 году на новом альбоме группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний на сегодня альбом <STRONG>MAN MUST DIE</STRONG> <STRONG>"No Tolerance For Imperfection"&nbsp;</STRONG>вышел в 2009 году на<STRONG> Relapse Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG></STRONG></FONT><center><iframe width="640" height="390" src="http://www.youtube.com/embed/eC4DsXZ92Fo" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

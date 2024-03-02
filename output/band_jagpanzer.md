@@ -164,6 +164,147 @@ The Monks from The Order of Saint Hubbins - Gregorian chants
 
 * C группой "Satan's Host" Harry Conklin (vocal)
 
+## Публикации
+
+### 05.01.2000 news 
+
+<p>Jag Panzer работают над новым альбом вместе с прдюсером Джимом Моррисом. Альбом будет концептуальным, основой станет драма Шекспира "Макбет".</p>
+
+Автор: Vit Belov
+
+### 14.09.2000 reviews Внушительная порция мощнейшего power-metal
+
+<p>Внушительная порция мощнейшего power-metal. При первых звуках я подумал, что меня обманули наглым образом и вместо диска Jag Panzer подсунули новый диск Iced Earth! Но смотрю, вроде все сходится: и трэк-лист, и время звучания, да и лирика в конце концов. Да умеют эти американцы играть мощную жесткую музыку (death, power, но не black). В этом их не упрекнешь. Альбом концептуальный, основанный на произведении самого Уильяма, понимаешь ли, Шекспира. Получилась этакая power-опера с агрессивными, но мелодичными риффами, множественными излияниями соло-гитары, правильными клавишной и симфонической поддержками, при участии Московского струнного квартета и многовокального хора на некоторых композициях. В результате имеем универсальный альбом, который обязательно понравится тем, кому нравится творчество таких групп, как Iced Earth, Savatage и Rage. Наконец-то группа, которая выпустила уже несколько альбомов за десяток лет сумела проявить свои таланты и недюжинные способности, записав этот замечательный альбом.</p>
+
+Автор: Dimas
+
+### 18.09.2000 reviews Возраст мастерства
+
+<p>Крепкий альбом американских классиков стиля пауэр. Может и не такой блистательный или концептуальный, но слушается легко и не напряжно. Может быть не хватает каких-то ярких мелодий или соло. Вобщем изобретать заново велосипед они не стали. Намешали старых добрых кусков и сдобрили супчик вокалом Harry 'The Tyrant' Conklin. Советую лучше купить последний 'Thane to the Throne' поставленный по Шекспиру. Оценка 7/10.</p>
+<p> P.S. Да забыл, на обложке диска в виде мужика с топором изображен роуди команды Ник Кабрера.</p>
+
+Автор: Yermola
+
+### 14.03.2001 news JAG PANZER - два в одном...
+
+<p>Американские пауэрщики JAG PANZER готовят сдвоенный СД "Mechanized Warfare". По словам гитариста Mark Briody, Панцеры разрываются между родной Колорадщиной (родина колорадского жука, by the way) и Morrissound Studio где заканчивают микс. Десять треков уже готово. Релиз ожидается летом.</p>
+
+Автор: Yermola
+
+### 14.03.2001 news JAG PANZER -Twin Pack On The Way
+
+<p>"I'm expecting twins," enthuses guitarist Mark Briody, "so we'll have to arrange touring around that." The event isn't scheduled until this summer, after the release of Mechanized Warfare, the ten latest tracks from the Colorado thrashers. Recently, Jag Panzer sandwiched a trip to Chicago between recording and the just completed mixing, at Morrissound Studio. There, they mixed business with pleasure, coupling the photo shoot for Mechanized Warfare with a triumphant perforamce at the inaugrual Prog-Power festival. "I thought it was great: a lot of people, an attentive audience and one of the best run shows I've ever attended, from a band point of view. Everything was well done. The promoter didn't treat you like cattle. We all had a great time." While the Jags were one of the heavier entries in a line-up that also included Destiny's End, Pain Of Salvation and Evergrey, the invitation actually came about through Briody's computer fixation. "The promoter is one of the regular posters on the Perpetual Motion board, one of the bulletin boards on the Internet for progressive and heavy music. I post on there quite a bit and we got to know each other from there. So when he was putting the festival together, we were one of the first people he asked. He'd seen us at PowerMad, in Baltimore, and liked us, so he asked if we'd be interested in his Chicago gig."</p>
+
+Автор: Yermola
+
+### 04.05.2001 news Механизированные приемы войны.....
+
+<p>Jag Panzer завершили запись очередного творения "Mechanized Warfare". Работа шла в "некоей" Morrisound Studios во Флориде с продюссером Jim Morris. Артворк выполнил Travis Smith. Окончательный трек-лист: "Take To The Sky," "Frozen In Fear," "Unworthy," "The Silent," "The Scarlet Letter," "Choir Of Tears," "Cold Is The Blade (And The Heart That Wields It)," "Hidden In My Eyes," "Power Surge" и "All Things Renewed." Из других новостей: гитарист Chris Broderick сейчас ведет переговоры с Московским Струнным Квартетом о живых выступлениях с исполнением вещи "The Prophecies (Fugue in D minor)" записанной ими для прошлого альбома панцеров "Thane To The Throne". В свободное время Chris продолжает вести курс классической гитары в Университете Дэнвера (Колорадо).</p>
+
+Автор: Yermola
+
+### 04.05.2001 news JAG PANZER - Mechanized Warfare.....
+
+<p>Jag Panzer has completed recording their next album, Mechanized Warfare, with producer Jim Morris at Morrisound Studios in Florida. This stuff's heavier and more raw than Thane To The Throne and more in the direction of their classic Ample Destruction release! The album will be graced with incredible artwork by Travis Smith, and is due out in late August. The track listing is: "Take To The Sky," "Frozen In Fear," "Unworthy," "The Silent," "The Scarlet Letter," "Choir Of Tears," "Cold Is The Blade (And The Heart That Wields It)," "Hidden In My Eyes," "Power Surge" and "All Things Renewed." For those who don't know, guitarist Chris Broderick's Thane To The Throne classical piece "The Prophecies (Fugue in D minor)" was performed on the album by The Moscow String Quartet from Russia, who are artists in residence at the University of Denver (Colorado). Upon hearing the news that Chris wanted this piece performed by them, the First Violinist was curious to know if Chris was a composition major. This isn't very far from the truth, as he is a Performance major in Classical Guitar at the University of Denver and currently teaches classical guitar in his hometown of Denver, Colorado.</p>
+
+Автор: Yermola
+
+### 27.09.2001 reviews Механизированная война из Америки
+
+<p>Механизированная война из Америки. Jag Panzer - одна из наиболее недооцененных металлических групп нашего времени без любого сомнения. Уже восемнадцать лет они играют истинную музыку и прежде всего, они играют реальный тяжелый металл. Однако... до сих пор они известны лишь небольшому кругу слушателей. Прошлый альбом группы получил самые высокие оценки, поэтому на группу немного давил этот фактор, она должна была выпустить альбом, по крайней мере не уступающей предыдущему. В принципе, это группе удалось, но этот альбом, несмотря ни на что, не смог меня впечатлить настолько же, как "Thane To The Throne". Хотя он очень успешен, но успех его повторяет успех предыдущего альбома. По сути - это повторение пройденного. Но очень удачное... Гладкие гитарные риффы со сложными структурами, притрэшованный звук, горланный вокал - все в лучших традициях американского power mеtal. Ну и конечно сохранились все тонкости прошлого альбома: использование скрипок, женского хора и грегорианского хора монахов из Ордена. Получается причудливая симфония голосов на фоне мощнейшего гитарного рубилова с жестким саундом и красивыми мастерскими изливаниями соло-гитары. Энергичная и мощная музыка очень мелодична, с располагающими темпами, драматическими вокалами и эпическим ритмом. Рекомендую всем тем, кому нравится Iced Earth и американский power в целом.</p>
+
+Автор: Dimas
+
+### 16.11.2001 news Bang Your Head Festival...
+
+<p>Вот список артистов уже подтвердивших свое участие в фестивале "Bang Your Head", который пройдет в Балингене (Германия) с 28 по 29 июня 2002: <BR><BR> GAMMA RAY <BR> MAGNUM <BR> SYMPHONY X <BR> TITAN FORCE (с участием фронтмэна JAG PANZER - Harry Conklin) <BR> RHAPSODY <BR> NEVERMORE <BR> OVERKILL <BR> VANDEN PLAS <BR> JAG PANZER <BR> TANKARD <BR> PARADOX <BR> IRON SAVIOR <BR> RAWHEAD REXX <BR> S.A. ADAMS <BR> RIVAL</p>
+
+Автор: Yermola
+
+### 27.12.2001 news Новогодние поздравлялки от JAG PANZER....
+
+<p>Колорадские жук.. (ой!) пауэр металлеры "JAG PANZER" записали и выложили на своем сайте две рождественские песенки. Послушать их можно здесь: <BR><BR> <A HREF="http://www.jagpanzer.com/what.mp3">01. What Child Is This</A><BR> <A HREF="http://www.jagpanzer.com/dosee.mp3">02. Do You See What I See</A><BR><BR> Из других новостей, JAG PANZER подтвердили участие в Фестивале Bang Your Head в следующем году (пройдет 28-29 июня 2002 в Баллингене, Германия). Также команда планирует выпуск "живого" ЕР записанного на коцерте в Дэнвере.</p>
+
+Автор: Yermola
+
+### 27.12.2001 news JAG PANZER Release Christmas Songs....
+
+<p>Colorado power metal kings JAG PANZER made available for download two Christmas songs via their web site. They are as follows:<BR><BR> <A HREF="http://www.jagpanzer.com/what.mp3">01. What Child Is This</A><BR> <A HREF="http://www.jagpanzer.com/dosee.mp3">02. Do You See What I See</A><BR><BR> In other news, JAG PANZER have been confirmed for next years Bang Your Head Festival, which is scheduled to take place on June 28-29, 2002 at the Messegelдnde in Balingen, Germany. US tour dates should be available in a month or so. Also on the JAG PANZER front, there are still plans for the band to release a live EP, but the group was unable to get a live recording from their recent Denver show. However both festivals in Europe last summer were recorded, so if the audio is suitable, one of those shows will be released.</p>
+
+Автор: Yermola
+
+### 29.01.2002 news JAG PANZER перезапишут ранние альбомы....
+
+<p>После пяти лет разбирательств с правами на песни, Колорадские пауэрщики "JAG PANZER" договорились с экс-гитаристом Joey Tafolla переиздать первые альбомы (Tyrants EP, Ample Destruction и Dissident Alliance) на Century Media. Причем это будет не просто выпуск старых ремастерированных записей, а полностью переигранные и записанные вновь альбомы. <BR> <BR> Из других новостей команда собирается выпустить лимитированный DVD во время своего апрельского тура по Америке с ICED EARTH и IN FLAMES.</p>
+
+Автор: Yermola
+
+### 29.01.2002 news JAG PANZER To Re-Record Early Classics For Upcoming CD ...
+
+<p>After five years of trying to secure the rights to reissue their back catalog, Colorado power metallers JAG PANZER appear to have been unable to reach an agreement with ex-guitarist Joey Tafolla to allow them to re-release the early classics through the Century Media label. As a result, the band have decided to take the best tracks from their pre-Century Media releases (the Tyrants EP, Ample Destruction and Dissident Alliance) and record them “as if they were new songs,” according to guitarist Mark Briody. “This means no remixes, everything will be recorded new from scratch. I realize that this has been done often (ICED EARTH, GAMMA RAY). However we are in the unique (and unfortunate) situation of not having the rights to any of this back catalog.” In other news, JAG PANZER will be making available a limited-edition DVD on their upcoming North American tour with ICED EARTH and IN FLAMES (which is scheduled to kick off in April) and from the group's official web site. The first run of the DVD will be a North American release only. Century Media Europe has the option for a European release.</p>
+
+Автор: Yermola
+
+### 30.01.2003 news Metal-Rules.com - Volume I
+
+<p>30 декабря 2002 года вышел в свет сборник "Metal-Rules.com - Volume I". Целью сборника было собрать нереализованный или новый материал групп различных стилистических направлений из разных стран. В диск вошло 16 композиций от таких групп, как IMAGIKA, PERSUADER, JAG PANZER, DARK ORDER, SEASONS OF THE WOLF, JULIE LAUGHS NOMORE, FAHRENHEIT, YGGDRASIL и других. Приятно осознавать, что в число этих команд попала и российская группа REST IN PAIN с композицией "With Inner Light of Supreme Truth". Напомню, что команда родилась 28 ноября 1999 года, но до сих пор ей пока, по разным причинам, не удалось выпустить полноценного альбома. Но группа полна желания расквитаться с этой проблемой и выпустить в ближайшее время свой дебютный альбом. Данный сборник можно заказать на сайте <A HREF="http://www.metal-rules.com/CD/MetalRules-VolumeI.htm">Metal-Rules.com</A>.</p>
+
+Автор: Dimas
+
+### 27.02.2004 news Умер бывший вокалист JAG PANZER
+
+Умер <B>Daniel Conca</B>, который являлся вокалистом <B>JAG PANZER</B> на альбоме <B>'Dissident Alliance'</B>. Подробностей не сообщается.
+Автор: Vit Belov
+
+### 14.04.2004 news JAG PANZER выпускают новый альбом
+
+<P>Power-metal группа <B>JAG PANZER</B> выпускает новый альбом <B>"Casting the Stones" </B>в октябре на <B>CENTURY MEDIA</B>. Альбом только будет записан в <B>Morrisound Studio</B> с <B>Jim Morris</B>.</P>
+Автор: Vit Belov
+
+### 14.05.2004 news Новый tribute to Black Sabbath
+
+<P><B>Cleopatra Records</B> выпускает новый tribute to <B>BLACK SABBATH</B>. Трэк-лист:</P>
+<P><IMG height=217 alt="" hspace=0 src="/images/news_rus/2004.05/6513.jpg" width=216 align="right" border=5>01. <B>ICED EARTH</B> - "Black Sabbath"<BR>02. <B>PRIMAL FEAR</B> - "Die Young"<BR>03. <B>JAG PANZER</B> - "Children Of The Sea"<BR>04. <B>RACER X</B> - "Children Of The Grave"<BR>05. <B>LYNCH/NEIL</B> - "Paranoid"<BR>06. <B>ICARUS WITCH</B> - "Falling Off The Edge Of The World"<BR>07. <B>FOREVER SAY DIE!</B> - "Sabbath Bloody Sabbath"<BR>08. <B>ORDER OF NINE</B> - "Disturbing The Priest"<BR>09. <B>STEEL PROPHET</B> - "Neon Knights"<BR>10. <B>AGENT STEEL</B> - "Hole In The Sky"<BR>11. <B>DOFKA</B> - "N.I.B."<BR>12. <B>TWISTED TOWER DIRE</B> - "Glory Ride"<BR>13. <B>OCTOBER 31</B> - "Danger Zone"<BR></P>
+Автор: Vit Belov
+
+### 27.06.2004 news JAG PANZER Опубликовали трэк-лист нового альбома
+
+<P>В октябре на <B>Century Media</B> выходит новый альбом <B>JAG PANZER 'Casting The Stones'</B>. Альбом был записан в студии <B>Morrisound</B>. Трэк-лист:</P>
+<P>01. <B>Feast Or Famine</B><BR>02. <B>The Mission (1943)</B><BR>03. <B>Vigilant</B><BR>04. <B>Achilles</B><BR>05. <B>Temptest</B><BR>06. <B>Legion Immortal</B><BR>07. <B>Battered & Bruised</B><BR>08. <B>Cold</B><BR>09. <B>Starlight's Fury</B><BR>10. <B>The Harkening</B><BR>11. <B>Precipice</B><BR></P>
+Автор: Vit Belov
+
+### 26.02.2005 reviews Оригинальный heavy-metal
+
+<P>Поклонники тяжёлой музыки, которые, как и я, признаюсь, ожидают услышать на новом альбоме JAG PANZER стандартный heavy-metal американского образца, будут наверное разочарованны. «Casting The Stones» - очень непрост.</P>
+<P>JAG PANZER представляют, не побоюсь этого слова, progressive heavy-metal. Тягучий, среднетемповый, с нестандартными ходами, оригинальными вокальными мелодиями. Слушать пластинку очень интересно. Несмотря на несколько однообразный темп, альбом совсем не клонит в сон, как многие похожие релизы.</P>
+<P>«Casting The Stones» вряд ли придётся по вкусу сторонникам ортодоксального heavy-metal, которым он может даже показаться совсем не мелодичным. Я же думаю, что JAG PANZER создали отличный альбом с оригинальными мелодиями, хотя и несколько тяжеловатыми для восприятия.</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Fono</A></P>
+Автор: Vit Belov
+
+### 26.01.2009 news JAG PANZER назвали альбом
+
+<P>Новый альбом<STRONG> JAG PANZER</STRONG> будет называться <STRONG>"The Scourge Of Light". </STRONG>Группа сейчас находится без контракта на выпуск этого альбома.</P>
+Автор: Vit Belov
+
+### 22.11.2010 news JAG PANZER: опубликованы обложка и трек-лист нового альбома &quot;Scourge Of The Light&quot;
+
+<IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17643.jpg" width=400 height=400>Группа <B itxtvisited="1">JAG PANZER</B> опубликовала обложку для&nbsp;своего нового альбома, получившего название <STRONG>"Scourge Of The Light"</STRONG>. Картина была нарисована лос-анжелесским художником <B itxtvisited="1">Justin Yun</B>.<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">"Scourge Of The Light"</B> планируется к выходу в феврале 2011 на <B itxtvisited="1">SPV</B>/<B itxtvisited="1">Steamhammer Records</B>. Прежде группа была выходила на лейбле&nbsp;<B itxtvisited="1">Century Media</B>.<BR itxtvisited="1"><BR itxtvisited="1">Трек-лист <STRONG>"Scourge Of The Light"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Condemned To Fight</B><BR itxtvisited="1">02. <B itxtvisited="1">The Setting Of The Sun</B><BR itxtvisited="1">03. <B itxtvisited="1">Bringing On The End</B><BR itxtvisited="1">04. <B itxtvisited="1">Call To Arms</B><BR itxtvisited="1">05. <B itxtvisited="1">Cycles</B><BR itxtvisited="1">06. <B itxtvisited="1">Overlord</B><BR itxtvisited="1">07. <B itxtvisited="1">Let It Out</B><BR itxtvisited="1">08. <B itxtvisited="1">Union</B><BR itxtvisited="1">09. <B itxtvisited="1">Burn</B><BR itxtvisited="1">10. <B itxtvisited="1">The Book Of Kells</B>
+Автор: Headcrusher
+
+### 10.03.2011 news Новое видео JAG PANZER
+
+<P>Новый клип<STRONG> JAG PANZER</STRONG> на песню <STRONG>"Burn" </STRONG>можно посмотреть ниже. Трэк попал на новейший альбом американцев <STRONG>"Scourge Of The Light"</STRONG>, который вышел на <STRONG>Century Media</STRONG> и в России на <STRONG>Союзе</STRONG>.</P>
+<P><center><object width="456" height="357" id="AOLVP_us_818767987001" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000"><param name="movie" value="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"></param><param name="bgcolor" value="#000000"></param><param name="allowFullScreen" value="true"></param><param name="wmode" value="transparent"/><param name="allowscriptaccess" value="always"></param><param name="flashvars" value="codever=1&videoid=818767987001&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Fus%2Fmusic%2Fmusicvideos%2Fsteamhammer%2Fjagpanzer%2Fjagpanzer%5Fburn%5Fb%5Fvideo%5Fstill%5F480%2Ejpg&publisherid=1612833736&playerid=61371447001"></param><embed src="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" bgcolor="#000000" width="456" height="357" name="AOLVP_us_818767987001" flashvars="codever=1&videoid=818767987001&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Fus%2Fmusic%2Fmusicvideos%2Fsteamhammer%2Fjagpanzer%2Fjagpanzer%5Fburn%5Fb%5Fvideo%5Fstill%5F480%2Ejpg&publisherid=1612833736&playerid=61371447001"></embed></object></P>
+Автор: Vit Belov
+
+### 28.07.2011 news JAG PANZER прекращают деятельность
+
+<P>Американцы<STRONG> JAG PANZER</STRONG> объявили о прекращении своего существования. Финальный альбом группы <STRONG>"Scourge Of The Light" </STRONG>вышел 28 февраля на<STRONG> SPV</STRONG>.</P>
+<P>Группа просуществовала 30 лет и выпустила 9 полноформатных альбомов.</P>
+<P><center><IMG height=349 src="/images/news_rus/2011.07/20337.jpg" width=480 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

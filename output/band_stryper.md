@@ -92,6 +92,51 @@ I.G.W.T.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.02.2003 news STRYPER  BACK  IN  THE  STUDIO!
+
+<p>It's been 11+ years since all 4 original members of Stryper have set foot in a studio to record any NEW material as Stryper. Well, the wait is over! All four original members (Michael Sweet, Robert Sweet, Oz Fox, & Tim Gaines) entered the studio in January of 2003 to record 2 NEW songs that will be included on a "Best of Stryper" CD to be released by Hollywood Records! At this time the following details have been made available: The CD will consist of the band's favorite Stryper songs PLUS the 2 NEW songs. The 2 NEW songs are described as being "heavy" & "modern". The CD will be produced by Michael Sweet. Hollywood Records plans to release the CD in the Spring of 2003</p>
+
+Автор: Vit Belov
+
+### 08.06.2003 news STRYPER возвращаются
+
+<p>Классики христианского heavy metal STRYPER объявили о своем воссоединении. В их планах - издание коллекции лучших хитов "7: The Best Of Stryper" и 25 концертов в августе.</p>
+
+Автор: Dimas
+
+### 04.01.2009 news STRYPER подготовили альбом
+
+<P>Реактивированные hard-rock христиане <STRONG>STRYPER </STRONG>опубликовали трэк-лист своего нового альбома <STRONG>"Murder By Pride":</STRONG></P>
+<P>01. <B>Eclipse Of The Son</B> (4:04)<BR>02. <B>4 Leaf Clover</B> (3:42)<BR>03. <B>Peace Of Mind</B> (3:58)<BR>04. <B>Alive</B> (3:36)<BR>05. <B>The Plan</B> (3:10)<BR>06. <B>Murder By Pride</B> ((3:18)<BR>07. <B>I Believe</B> (3:43)<BR>08. <B>Run In You</B> (4:15)<BR>09. <B>Love Is Why</B> (4:07)<BR>10. <B>Mercy Over Blame</B> (4:07)<BR>11. <B>Everything</B> (4:26)<BR>12. <B>My Love</B> (3:14)</P>
+<P>Комментирует певец <STRONG>Michael Sweet</STRONG>: "<EM>После многих лет прослушивания пожеланий фэнов о том, что они хотят услышать на альбоме STRYPER я решился записать пластинку, держа в уме эти слова. У нас получился альбом, который очень похож на классику группы, но с современными чертами"</EM>. </P>
+<P>Сэмпл можно послушать ниже в интерфейсе <STRONG>YouTube</STRONG>:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/skcNDMm41c8&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/skcNDMm41c8&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 27.02.2009 news Дата релиза STRYPER
+
+<P>Новый альбом <STRONG>STRYPER</STRONG> <STRONG>"Murder By Pride" </STRONG>выйдет в конце июля на <STRONG>Big 3 Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 30.07.2009 news STRYPER попали в чарты
+
+<P>Христианская hard'n'heavy команда<STRONG> STRYPER</STRONG> попала в чарты Billboard со своим новым альбомом <STRONG>"Murder By Pride". </STRONG>73 место и 5900 копий в первую неделю.</P>
+Автор: Vit Belov
+
+### 04.01.2010 reviews Поклонникам слова “Love”
+
+<P>Группа STRYPER была популярна в 80-х годах. Одним из факторов, привлекающих к ней внимание, стали христианские тексты, которые в тяжёлой музыке встречаются не столь часто.&nbsp; Потенциальным верующим всегда приятно, когда их кумиры в лосинах и с «химией» на голове проповедуют «правильный смысл» в своих песнях.</P>
+<P>Коллектив возродился после более чем десятилетнего перерыва в 2003 году. “Murder by Pride” уже второй альбом группы после этого события. Но не музыкой единой живут STRYPER. Например, весь прошлый год таблоиды пестрели сообщениями о личной жизни певца Michael Sweet.&nbsp; При этом каждый раз упоминалось, что его жена – бывшая проститутка. Не слишком интересуясь музыкой STRYPER, их текстами, а тем более личной жизнью, я узнал буквально всё про душеспасительную деятельность этой Марии Магдалины наших дней и её не менее праведного мужа. Но не Верой единой, как говорится… Что же сочинили и сыграли STRYPER на своём новом альбоме? Ре-юнион “Reborn” запомнился мне достаточно жёстким звуком для hard-rock. Первая вещь с “Murder By Pride” тоже порадовала. Жёсткий рифф, рок’н’ролльный «проход», но дальше темп стал замедляться, а в текстах всё больше стало появляться слово “Love”. Когда группа использует это слово слишком часто, пиши пропало. STRYPER заваливают слушателя обилием однотипных и проникновенных баллад, которые, безусловно, понравятся любителям подобного. К сожалению, себя я отнести к подобным любителям не могу, поэтому под конец этого опуса я уже прикорнул на своей мягонькой подушечке.</P>
+<P>STRYPER нужны верующим любителям тяжёлой музыки, которые отчаянно проглядывают тексты своих любимых исполнителей в безуспешных попытках найти там слово “Love”. Остальные запросто могут пропускать этот альбом.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

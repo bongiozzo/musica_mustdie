@@ -138,6 +138,139 @@ Sy Keeler - Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.01.2008 reviews Славные традиции британского трэша
+
+<P>А вот и Onslaught – британская трэшевая команда – решили воссоединиться, словно для того, чтобы показать – трэш умеют играть не только в Калифорнии или Германии, но и в стране, которая является родиной для команд, оказавших влияние на абсолютное большинство рок- и металлических направлений и стоявших у их истоков. К сожалению, трэш-металл в какой-то степени является исключением - достойные коллективы этого жанра типа Xentrix не смогли заработать ту известность, которая соответствовала бы уровню их музыки, - и всех их постигло творческое упокоение. Однако, как это принято говорить в таких случаях, «иногда они возвращаются» - не так давно заново собрались для памятного турне те же Xentrix, бутлегеры переиздали Deathwish (один из двух альбомов – что уже хорошо), и вот, очевидно, на этой волне у Onslaught (благодаря бутлегерам) вышла запись их копенгагенского концерта 1987 года, а потом появился, вполне официально, и новый альбом – “Killing Peace”. </P>
+<P>В данном случае, для более предметного понимания данного релиза, нельзя не провести аналогию между Onslaught и… Annihilator. Представьте, что последние распались после альбома “Set The World On Fire”, а воссоединившись, записали бы сразу “Criteria For A Black Widow”. Предыдущий альбом Onslaught был достаточно необычен по трэшевым меркам тех лет, и тогдашний вокалист пел довольно высоким и чистым голосом, а сам альбом - “In Search Of Sanity” - был насыщен ярко выраженным мелодизмом. При этом забористо-скоростной риффинг и жёсткий гитарный «чёс» на нём тоже присутствовали, что сделало его своего рода предтечей именно такого необычного, но в то же время замечательного релиза, как “Set The World On Fire” (правда, сомневаюсь, что Джефф Уотерс об этом знал, ха-ха). А вот “Killing Peace” – это самый настоящий thrashback, без «соплей», без каких-то заигрываний с широкой аудиторией, сотворённый в русле второго альбома Onslaught “The Forсe” и по заветам классиков thrash-metal – среди коих надо поименовать Sodom и Exodus. Именно на блестящие альбомы “Tempo Of The Damned” и “Shovel Headed Kill Machine” последних более всего походит новая работа Onslaught. Речь, разумеется, не идёт о тупом копировании, хотя кое-какие фишки у команды Гэри Хольта англичане подрезали (пожалуй, это единственный минус рецензируемого альбома). “Killing Peace” буквально напичкан всем тем, что жаждет любой почитатель трэш-металла, который устал от засилья той продукции, которую большинство металлических лейблов издают с завидной активностью последние несколько лет. </P>
+<P>А именно, речь идёт о: фирменном звучании Энди Снипа, который стал продюсером альбома, а также «как надо» настроенных гитарах – низких, слушающихся чуть суховато; высокотехничных, замысловатых и в то же время неимоверно цепляющих риффах, которые положены на скоростные, но не примитивные ритмические рисунки; крайне злых, рявкающих и рычащих вокальных партий, спетых оригинальным «вокиллером» Си Килером. Самое главное – в этом альбоме нет ни капли занудства а-ля поздняя Sepultura или Destruction. Все песни на альбоме либо крайне «качёвые», либо откровенно угарные – в том числе за счёт отличной работы барабанщика, который бесподобно отстучал по своей «кухне». Нет ни одной композиции, которую можно было бы описать как «мы играем медленно, и нам так нравится, а если вам кажется, что это скучно, переслушайте одну быструю песню в начале альбома». Наконец, несомненное достоинство “Killing Peace” – песни с него практически сразу оседают в памяти. Например, взять хотя бы завершающую “Shock And Awe” – в ней совместная двухгитарная атака при поддержке словно обезумевшего барабанщика вызывает вполне отчётливые ассоциации с тем, как звучит военный вертолёт, который на дикой скорости устремляется в воздушную атаку. </P>
+<P>Итак, на фоне исписавшегося Уотерса и Annihilator, впавших в тотальный маразм Nuclear Assault, резко помодневших Kreator (список можно, увы, продолжить) - Onslaught встали в один (виртуальный) ряд с теми трэш-бригадами, творчество которых словно не подвержено коррозии и обесцвечиванию - и выглядят ни больше ни меньше своеобразными трэш-подвижниками, которые безо всяких приглашенных гостей, модных студий звукозаписи и обращения к какому-нибудь металкору / мелодик-дэту взяли и изваяли альбом, который на данный момент является, бесспорно, лучшим в своём жанре за 2007 год. Отрадно, что посредством компаний Mazzar / Mystic Empire этот убийственый альбом вышел по лицензии и в России.</P>
+Автор: Kostolom
+
+### 02.02.2008 news Гитарист покинул ONSLAUGHT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Alan Jordan</STRONG> покинул ряды реактивированных<STRONG> ONSLAUGHT</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 04.05.2009 news ONSLAUGHT выпустят концертник
+
+<P>На <STRONG>Candlelight</STRONG> в этом году выйдет концертный альбом<STRONG> ONSLAUGHT</STRONG>, записанный 22 ноября на <STRONG>Damnation Festival</STRONG> в Лидсе.</P>
+Автор: Vit Belov
+
+### 26.05.2009 news Обложка концертника ONSLAUGHT
+
+<P>Мы уже сообщали, что в ближайшее время на <STRONG>Candlelight </STRONG>выйдет концертный альбом <STRONG>ONSLAUGHT "Live Damnation"</STRONG>. Опубликована обложка этой работы.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.05/14113.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 21.04.2010 news ONSLAUGHT готовят альбом
+
+<P>Британцы <STRONG>ONSLAUGHT</STRONG> сообщили, что сочиняют материал для нового альбома, который выйдет в этом году. Никаких подробностей пока не сообщается, но уже известно, что продюсером новой работы будет не <STRONG>Andy Sneap</STRONG>, который работал на прошлом хите "<STRONG>Killing Peace</STRONG>".</P>
+Автор: Vit Belov
+
+### 23.06.2010 news ONSLAUGHT на AFM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Британцы <STRONG>ONSLAUGHT</STRONG> заключили контракт с <STRONG>AFM Records</STRONG>. Коллектив сейчас в студии, где записывает последователя своему феноменальному альбому 2007 года <STRONG>"Killing Peace". </STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Nige Rockett </STRONG>объяснил свой выбор впечатлением от работы лэйбла с последним альбомом<STRONG> FEAR FACTORY</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 16.08.2010 news Название нового альбома ONSLAUGHT
+
+<P>Англичане <STRONG>ONSLAUGHT</STRONG> назвали свой новый альбом <STRONG>"Sounds Of Violence"</STRONG>. Этот альбом станет пятым студийником в дискографии группы и выйдет до конца года на немецком лейбле <STRONG>AFM</STRONG>. Последователь диска <STRONG>"Killing Peace"</STRONG> будет записан в датской студии <STRONG>Hansen </STRONG>с продюсером Якобом Хансеном (<B itxtvisited="1">RAUNCHY</B>, <B itxtvisited="1">MERCENARY</B>, <B itxtvisited="1">VOLBEAT</B>, <B itxtvisited="1">HEAVEN SHALL BURN</B>).</P>
+Автор: Headcrusher
+
+### 17.11.2010 news Обложка нового ONSLAUGHT
+
+<P>Новый альбом британских трэшеров<STRONG> ONSLAUGHT</STRONG> <STRONG>"Sounds Of Violence" </STRONG>выходит 28 января. Обложку этого релиза можно увидеть ниже.</P>
+<P><center><IMG height=400 src="/images/news_rus/2010.11/17622.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 17.12.2010 news Видео ONSLAUGHT
+
+<P>Видео-клип <STRONG>"Bomber"</STRONG> на песню<STRONG> MOTORHEAD</STRONG> в исполнении<STRONG> ONSLAUGHT</STRONG> можно посмотреть ниже. Внимательный зритель разглядит в нём вокалиста<STRONG> SODOM</STRONG> <STRONG>Tom Angelripper </STRONG>и гитариста <STRONG>MOTORHEAD</STRONG> <STRONG>Phil Campbell. </STRONG></P>
+<P>
+<CENTER><FONT face=Verdana color=#999999 size=1><A href="http://www.myspace.com/video/vid/107201698">ONSLAUGHT - Bomber (Mot&#246;rhead Cover)</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowScriptAccess" VALUE="always"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=107201698,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=107201698,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent" allowScriptAccess="always"></embed></OBJECT><BR><A href="http://www.myspace.com/149118539">AFM Records</A> | <A href="http://www.myspace.com/music/videos">Myspace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.03.2011 news Видео ONSLAUGHT
+
+<P>Новый ролик<STRONG> ONSLAUGHT</STRONG> на заглавную песню с нового альбома <STRONG>"The Sound Of Violence" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=d6bf11ea146ed563f211" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.03.2011 reviews ONSLAUGHT продолжают &quot;мочить&quot; thrash
+
+<P>2007 год стал знаменательным для всех поклонников thrash-metal на планете Земля. В ряды живых с новым студийным альбомом “Killing Peace” вернулась английская thrash-metal группа ONSLAUGHT. Не многие из нас помнили этот коллектив из 80-х, но теперь не многие смогут забыть призывные звуки их великолепнейшей музыки нового тысячелетия.</P>
+<P>Для меня предыдущий альбом англичан поистине стал thrash-metal альбомом 2007 года. Зубодробительные риффы, агрессивнейший вокал и разрывающие мозг мелодии “Killing Peace” каждый раз предполагают мой восторг и поклонение. От нового альбома ONSLAUGHT “Sounds Of Violence” я ожидал как минимум не меньшего. И пластинка, вышедшая в январе начавшегося 2011 года, в общем-то, не обманула моих ожиданий. На новейшей работе англичан, к сожалению, нет настолько ураганного хита как “Burn”, но в целом этот альбом представляет всё тот же thrash-metal высочайшего качества. Стоит отметить, что на обозреваемом альбоме у ONSLAUGHT сменился продюсер. Место непревзойдённого Andy Sneap занял подающий надежды, но явно не великий датчанин Jacob Hansen. Это сказалось на звучании, оно из великолепного превратилось просто в обычное. Ничего, переживём. “Sounds Of Violence” можно сравнить с поздним творчеством KREATOR, этот альбом мелодичен, тяжёл и энергичен. Безусловные рекомендации.</P>
+<P>“Killing Peace” ONSLAUGHT переплюнуть не удалось, но это не самое главное. Самое главное то, что новый альбом группы займёт важнейшее место в коллекциях всех поклонников thrash-metal.</P>
+Автор: Vit Belov
+
+### 05.07.2011 news Новая группа ONSLAUGHT
+
+<P><IMG height=240 alt="" hspace=0 src="/images/news_rus/2011.07/19897.jpg" width=175 align=right border=0>Уволенный барабанщик<STRONG> ONSLAUGHT</STRONG> <STRONG>Steve Grice</STRONG>, который являлся одним из основателей группы и играл на всех альбомах группы как до ре-юниона, так и после, основал новый проект <STRONG>ONSLAUGHT "THE SANITY DAYS"</STRONG>. Помимо <STRONG>Grice</STRONG> в эту инкарнацию английской группы войдут другие бывшие участники: гитарист <STRONG>Alan Jordan, </STRONG>записывавший шедевр 2007 года "<STRONG>Killing Peace</STRONG>", басист <STRONG>Jase Stallard, </STRONG>игравший на альбомах 1985 года <STRONG>"Power From Hell"</STRONG> и 1986 года <STRONG>"The Force", </STRONG>а также известный певец <STRONG>Steve Grimmett (GRIM REAPER)</STRONG>, певший на пластинке <STRONG>"In Search Of Sanity"</STRONG> 1989 года выпуска.</P>
+<P>Группа планирует вести активную концертную деятельность, выступая на крупных фестивалях по всему Миру. </P>
+<P><STRONG>Grice</STRONG> покинул <STRONG>ONSLAUGHT,</STRONG> из-за отдаления группы от своих корней. Видимо, с новой группой он заново собирается эти корни нащупать.</P>
+Автор: Vit Belov
+
+### 08.08.2013 news ONSLAUGHT: подробности нового альбома &quot;VI&quot;
+
+<P>20 сентября британские трэшеры <STRONG>ONSLAUGHT</STRONG> выпускают свой новый альбом под нехитрым названием <STRONG>"VI"</STRONG>. Выпускающий лейбл AFM обещает, что он будет таким же брутальным, как и его обложка, которую создал <STRONG>Par Oloffson</STRONG> (<A href="http://www.parolofsson.se/">www.parolofsson.se</A>).</P>
+<P>Гитарист&nbsp;<STRONG>Nige Rockett</STRONG> о новом альбоме:<BR><EM>"Чтобы создать этот альбом, мы работали на пределе своих возможностей&nbsp;и я думаю, это очень хорошо по нему видно. <STRONG>"VI"</STRONG> - без вопросов, самый злой и техничный альбом, который когда-либо делали <STRONG>ONSLAUGHT</STRONG>.&nbsp;В создании этого альбома мы использовали совершенно другой подход, начиная от оформления и заканчивая сведением&nbsp;от Томаса Йоханссона (<STRONG>Thomas Johansson</STRONG>), который вместе с нашим барабанщиком Майклом Хуриханом (<STRONG>Michael Hourihan</STRONG>) подняли планку этого альбома на очень высокий уровень! Мы очень горды новым альбомом и уверены, что нашим поклонникам он тоже очень понравится</EM>!"<BR>&nbsp;<BR>Трек-лист:<BR>01. <STRONG>A New World Order</STRONG> |<STRONG> </STRONG>02. <STRONG>Chaos Is King </STRONG>| 03. <STRONG>Fuel For My Fire </STRONG>| 04. <STRONG>Children Of The Sand </STRONG>| 05. <STRONG>Slaughterize </STRONG>| 06. <STRONG>66’Fucking’6 </STRONG>| 07. <STRONG>Cruci-Fiction </STRONG>| 08. <STRONG>Dead Man Walking </STRONG>| 09. <STRONG>Enemy Of My Enemy </STRONG>| 10. <STRONG>Shellshock</STRONG> (доп. трек для винила и digipak издания)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26055.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 11.08.2013 news ONSLAUGHT в России
+
+<CENTER><IMG border=0 src="/images/shows_rus/2013.09/26123.jpg" width=400 height=600></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Москва: <A href="http://vk.com/onslaught_fmf">http://vk.com/onslaught_fmf</A></CENTER>
+<CENTER>Самара: <A href="http://vk.com/event57154143">http://vk.com/event57154143</A></CENTER>
+<CENTER>Уфа: <A href="http://vk.com/event56242221">http://vk.com/event56242221</A></CENTER>
+<CENTER>Челябинск: <A href="http://vk.com/onslaught74">http://vk.com/onslaught74</A></CENTER>
+<CENTER>
+<CENTER>Екатеринбург: <A href="http://vk.com/event56800991">http://vk.com/event56800991</A></CENTER></CENTER>
+<CENTER>Ижевск: <A href="http://vk.com/event55857786">http://vk.com/event55857786</A></CENTER>
+<CENTER>Нижний Новогород: <A href="http://vk.com/onslaughtnn">http://vk.com/onslaughtnn</A></CENTER>
+<CENTER>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 06.09.2013 news ONSLAUGHT: новая песня &quot;Chaos Is King&quot;
+
+<P>Лейбл <STRONG>AFM</STRONG> опубликовал трек <STRONG>"Chaos Is King"</STRONG> английских трэшеров <STRONG>ONSLAUGHT</STRONG> с выходящего, совсем скоро, их нового альбома под названием <STRONG>"IV"</STRONG>.</P>
+<CENTER><IFRAME height=480 src="//www.youtube.com/embed/4n4bQmQDU1s" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 26.09.2014 news Первый вокалист ANTHRAX присоединился к ONSLAUGHT
+
+<P>Вокалист <STRONG>Neil Turbin</STRONG>, бывший вокалистом на первом альбоме<STRONG> ANTHRAX "Fistful Of Metal"</STRONG>, станет концертным певцом в <STRONG>ONSLAUGHT</STRONG> во время их тура по США и Канаде в октябре-ноябре вместе с <STRONG>ARTILLERY</STRONG>. Основной фронтмен британцев <STRONG>Sy Keeler</STRONG> не сможет выехать вместе с <STRONG>ONSLAUGHT</STRONG>, из-за проблем со здоровьем у его сына.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.09/27316.jpg" width=410 height=846> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.01.2016 news ONSLAUGHT выпускают концертный релиз &quot;Live At The Slaughterhouse&quot;
+
+<P>12 февраля английские трэшеры <STRONG>ONSLAUGHT</STRONG> выпускают концертный CD/DVD под названием <STRONG>"Live At The Slaughterhouse"</STRONG>.</P>
+<P>На данный релиз войдут записи с двух&nbsp;концертов, в Лондоне и Бристоле, которые состоялись в 2014 году.</P>
+<P>Трек-лист DVD/CD:</P>
+<P>01. <STRONG>The Sound Of Violence</STRONG> | 02.<STRONG> Killing Peace</STRONG> | 03. <STRONG>Chaos Is King</STRONG> | 04. <STRONG>Let There Be Death</STRONG> | 05. <STRONG>Children Of The Sand</STRONG> | 06. <STRONG>Rest In Pieces</STRONG> | 07. <STRONG>66 'Fucking' 6</STRONG> | 08. <STRONG>Destroyer Of Worlds</STRONG> | 09. <STRONG>In Search Of Sanity</STRONG> | 10. <STRONG>Fight With The Beast</STRONG> | 11. <STRONG>Metal Forces </STRONG>| 12. <STRONG>Onslaught (Power From Hell) </STRONG>| 13. <STRONG>Thermonuclear Devastation</STRONG></P>
+<P>Бонусный материал на DVD:<BR>- 20 минутный документальный фильм.<BR>- видеоклип “66 Fucking 6”<BR>- реклама</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.01/28725.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Адский thrashback-2007: ONSLAUGHT - Killing Peace

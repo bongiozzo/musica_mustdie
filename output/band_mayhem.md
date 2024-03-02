@@ -264,6 +264,1188 @@ Tracks 8-12 Pre-production tracks from Grand Declaration Of War sessions
 * C группой "Winds" HellHammer
 * C группой "Burzum" Varg Vikernes (bass)
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Mayhem закончили работу над художественным оформлением нового альбома "Mediolanium Capta Est", который выйдет уже весной.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Maniack, лидер Mayhem, свовершил попытку самоубийства и находится в больнице. Группа продолжает выступать, как трио. Причём поёт Blasphemer.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Объявлено о новом all star проекте Eibon, в который войдут Killjoy из Necrophagia, Fenriz из Dark Throne, Blasphemer и Maniack из Mayhem и Satyr из Satyricon. Как вы догадываетесь группа будет играть блэк.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Dark Funeral записали в знаменитой студии Abyss четыре кавера на песни Sodom, Slayer, King Diamond и Mayhem. Команда работала с продюсером Томми Тагтгреном, братом знаменитого Питера. Эти кавера увидят (-или) свет в этом году на сборниках, посвящённых вышеперечисленным великим группам.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Сообщалось, что вокалист Maniack из Mayhem совершил попытку самоубийства. Теперь же группа сообщает, что он "всего лишь" попал в автокатастрофу.</p>
+
+Автор: Vit Belov
+
+### 04.10.1999 news 
+
+<p>Fleurety начали микс своего нового альбома. Произведение будет называться "Department of Apocalyptic Affairs", и на нём появятся много приглашённых музыкантов, в частности Hellhammer и Maniac из Mayhem и Sverd из Arcturus.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Mayhem 14 октября вошли в студию для записи нового альбома.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Mayhem выпустят новый альбом в мае под названием "The Grand Declaration Of War".</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Mayhem отправились в тур
+
+<p>Mayhem отправились в тур в июне. Начали они во Франции, затем отыграют на Динамо. В следующем же месяце группа отправится в США.(tombstone)</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Mayhem have departed to round in June
+
+<p>Mayhem have departed to round in June. They have begun in France, then will win back on Dynamo. In the following month the group will depart in USA. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 23.07.2000 news Mayhem собираются в турне в поддержку своего нового альбома
+
+<p> Mayhem собираются в турне по странам Европы в поддержку своего последнего альбома "Grand Declaration Of War". Вместе с Mayhem отправятся группы Borknagar, Red Harvest и Griffin. Первое их выступление состоится 8-го сентября в Нидерладнах, а последнее - 24-го числа этого же месяца во Франции. В ходе турне будет снято официальное видео.</p>
+
+Автор: Nybras
+
+### 23.07.2000 news Mayhem - Declare War On Europe
+
+<p> Mayhem are heading out for a European tour in support of their latest CD, Grand Declaration Of War. The tour, which includes support from Borknagar, Red Harvest and Griffin, kicks off on September 8th in the Netherlands and winds it's way through Europe before wrapping up in France on September 24th. A professional video will be shot throughout the tour for an official release at a later date.</p>
+
+Автор: Nybras
+
+### 06.08.2000 news Tribute to Mayhem
+
+<p>Avangarde music запланировали релиз долгожданного трибьюта культовой black metal группы Mayhem на Октябрь, 2000.</p>
+
+Автор: George Dysangelist
+
+### 25.09.2000 news Новое видео Mayhem
+
+<p> Вчера, во время концерта в Марселе, проходили съёмки нового видео группы Mayhem. Эта съемка стала результатом профессиональной работы, с хорошим качеством изображения и звука; гораздо лучшим, чем на их предыдущем видео "Live in Bischofswerda". Купившие кассету найдут на ней, собственно, саму запись концерта, закулисные съёмки, интервью и т.д. Появится она в магазинах в следующем году в форматах как VHS, так и DVD. (по сообщению агенства EMN)</p>
+
+Автор: Nybras
+
+### 11.03.2001 news Более эпичный чем Quintessence...
+
+<p>В настоящий момент команда готовится к записи еще не названного полноформатника. Продюссером будет Borge Finnstad, а студия Fagerborg и Top Room studios. Finnstad был продюссером на альбоме MAYHEM "Grand Declaration of War". Говорит Oysten G. Brun: "Продюссирование на Declaration - просто невероятное!". Новый релиз будет также испытанием для вновьпришедших Tyr (bass) и Vintersorg (vocal).</p>
+
+Автор: Yermola
+
+### 11.03.2001 news Slightly More Epic Than Quintessence....
+
+<p>BORKNAGAR will record their yet-to-be titled album at the end of May. The band is set to work on their fifth full-length with co-producer Borge Finnstad at Fagerborg and Top Room studios. Finnstad handled the production duties for MAYHEM's Grand Declaration of War.<BR><BR>"I look forward to working with Borge Finnstad because he seems to be very professional and we have the best recording facilities available," said ringleader Oysten G. Brun. "Production wise we'll head for the best to date possible!" The new album is also the first release with newcomers Tyr (bass) and Vintersorg (vocals). "I am exited in the sense that it will be a great recording session," Brun confirmed. "I am fully convinced that the costellation will result in a killer album!" There are a myriad of new forces in the Borknagar camp, but Brun reaffirmed that the album will still retain the essence of Borknagar. "Nobody should be afraid that we'll do a sudden change of style or something," the guitarist said. "Compared to Quintessence it will be a bit more diverse. There will be a bit more of everything really. I think the new album will be slightly more epic than Quintessence, and a bit more complex as well. But how the final result comes out in the end of the day, we have to see as well."</p>
+
+Автор: Yermola
+
+### 19.06.2001 reviews Разве так объявляют войну?
+
+<p> Вряд ли какая другая группа может выдать за 17 лет своего существования лишь очень небольшое количество песен (чуть более десятка), но таких, что каждая из которых является просто шедевром и может настолько сильно привлекать к себе, что их хочется переслушивать еще и еще, хоть и так помнишь их практически наизусть. Но все в мире изменяется - изменился до неузнаваемости и MAYHEM: давно уже нет ни потрясающего вокала венгра Attila, нет больше пальнувшего себе в голову из дробовика Dead-а (Pelle Ohlin) - замечательного злющего басиста и вокалиста, который, как известно, перед концертами дышал из пакетика с дохлой вороной, чтобы причаститься к запаху смерти, нет и Euronymous-а (Oystein Aarseth-а) зарезанного неким Kristian-ом Vikernes-ом, нет больше и тех самых замечательных идей взращенных этими погибшими людьми, вместе с которыми умерло почти все, за что боролась группа, стоявшая у истоков TRUE-NORVEGIAN-BLACK-METAL. Ибо MAYHEM, также как и BURZUM, был явлением намного большим, чем просто обыкновенная компания парней с гитарами, играющих либо для заработка, либо для своего тщеславия (каких полным-полно), MAYHEM, также как BURZUM и DARK THRONE, был не просто TRUE-BLACK группой, он был ядром антихристианского движения, к тому же задающим стандарты TRUE-NORVEGIAN-BLACK-METAL. Лидер группы Oystein Aarseth имел большие планы как для MAYHEM-а в частности, так и для норвежского TRUE-BLACK-METAL-а вцелом: во-первых, Euronymous организовал свой собственный лэйбл, Deathlike Silent Production (DSP), на котором предполагалось издавать альбомы только TRUE-BLACK групп, таких, как MAYHEM, ABRUPTUM и BURZUM, также он организовал свой собственный магазин записей "Helvete" ("Ад"), и банду, названную "Черный Круг", в задачи которй входило повсеместное сжигание христианских церквей и террор попсовых мажорных групп, позорящих как TRUE-BLACK в частности, так и металл вообще - таких, как THERION и PARADISE LOST. А злющая и всеопустошающая музыка, которую играл MAYHEM, была просто одним из средств выражения своих идей, простирая "Похоронный Туман" над заполонившей мир христианской чумой.</p>
+<p> Ныне, увы, больше нет многих из тех людей, посвятивших себя "Тайным Обрядам Сатаны" и закладывавших все основы MAYHEM, начиная от стандартов играемой музыки и кончая сжиганием вражеских церквей, а те немногие, что остались от старого состава, да и вновь пришедшие занимаются совершенно другими делами, хоть и нацепили на себя то самое "лого" MAYHEM, ни на грамм ими не заработанное. Второй за 17 лет полноформатный альбом MAYHEM "A Grand Declaration of War" тому самое наглядное подтверждение. Во время прослушивания данного занудства очень часто у меня было впечатление, что я слышу "Nine Inch Nails", которому вымученно пытается подражать Rune Erickson "Blasphemer", а под конец вообще все скатилось в гитарный рэп Limp Bizkit. Вокал Maniac-а (Svein Erik Kristiansen) стал какой-то совсем не такой - сладко-добренький до полной неузнаваемости, да и практически все НОВО-Майхемовские мелодии стали примитивны просто до дикой "бурзумовщины", а местами вообще граничащие с трехнотной "философемовщиной". Вся зверская энергия полного опустошения куда-то улетучилась, исчезнув безвозвратно, и впечатление от музыки остается такое, что под нее бы не христианские церкви пачками сжигать вместе с попами, а наоборот, ходить евангелия проповедовать, возлюбя всех прихожан. Немного радует лишь молоток Jan Alex Blomberg "Hellhammer" на ударных, который не смотря на Arcturus и The Kovenant мастерство таки не пропил и убойно стучать не разучился. Но тем не менее эта ложка меда всю огромную бочку дегтя подсластить не может... Если немного пофантазировать, то вариантом того, как примерно мог бы всеопустошающе звучать MAYHEM будь жив ныне Euronymous (или если бы остальные музыканты не предали бы его идей и устремлений) является WALHALLA - жестоко-мясной сайд-проект музыкантов из THY SERPENT, SOULGRIND и GLOOMY GRIM, решивших здорово поэкспериментировать со своим звучанием. Но, увы, это только фантазии... А выводы, которые можно сделать после прослушивания "Объявления Войны" таковы: Rune Erickson "Blasphemer" никоим образом Euronymous-а не заменит, а от кончины "Волка" Kristian-а Vikernes-а, при всей горячей похвальности его благородной и замечательной языческой и антихристианской деятельности, музыкальный мир потерял бы намного меньше, чем от смерти зарезанного им Oystein Aarseth-а, а на группе MAYHEM, как TRUE-BLACK акте, можно ставить большой жирный перевернутый крест.</p>
+
+Автор: Alexey Pitirimov
+
+### 19.09.2001 news MAYHEM в Москве!
+
+<p>Наконец-то! И все-таки MAYHEM приедут в Москву!</p>
+<p> <img src=/images/news_rus/2001.09/1727.jpg border=1 align=left width=110 height=150 vspace="5"> Итак, 7 октября в Москве, в клубе "Точка" (м. "улица 1905 года", Звенигородское шоссе, д.4) в 19:00 часов состоится единственный концерт норвежцев в Москве. По сведениям менеджмента это будет концерт заключительного тура, который поставит точку в истории коллектива, по окончании которого музыканты займутся своими собственными проектами. Mayhem готовит убийственное шоу, специально для русских фэнов. Разогрева никакого не будет. Стоимость билетов - 300 рублей, в день концерта - 400 рублей.</p>
+<p> И САМОЕ ГЛАВНОЕ: <br> <b>Только для посетителей сайта MUSICA.mustdie.ru</b><br> и их друзей! Только два дня - суббота и воскресенье - 22 и 23 сентября. Только в магазине Рок-Галлерея "ЗИГ-ЗАГ"(ст. метро Арбатская). <br>Билеты на концерт Mayhem <b>со скидкой 10%</b>!!! <br> Официальная продажа для всех остальных - с 24 сентября.</p>
+<p> Предполагаемое время для пресс-конференции - 17.00 часов 7 октября, перед концертом. <b>Аккредитация представителей прессы - metalagen@soyuz.ru<b></p>
+<p> Информационная поддержка концерта - MUSTDIE Productions.</p>
+
+Автор: Dimas
+
+### 25.09.2001 news Fatal Ecstasy Productions presents EASTERN FRONT TOUR 2001
+
+<p>... ими можно восхищаться.. <br> ....их можно ненавидеть. <br> .. но их нельзя игнорировать..</p>
+<p> <a href="/ru/band/mayhem">MAYHEM</a></p>
+<p> Норвежская блэк-легенда оказала решающее влияние на формирование метал-сцены 90-х</p>
+<p> <b>05.10 - С.ПЕТЕРБУРГ/ РОССИЯ</b> <br> клуб ПОЛИГОН, 20:00. <br> Адрес: С.Петербург, Лесной пр.65 корп.5. <br> Цена билетов: <br> Предварительная продажа - 250 руб. (Титаник, Сайгон, Караван, Рок-подвал, Greenforest, КастлРок, Фенька, Сканг, Дохлая Рыба, Культура); <br> в день концерта - 300 руб.; <br> заказ в интернете http://polygon.cool.ru/money.phtml - 200 руб. (количество ограничено). <br> Инфо: <a href="http://www.polygonclub.spb.ru">http://www.polygonclub.spb.ru</a>, (<a href="mailto:promotion@polygonclub.spb.ru">promotion@polygonclub.spb.ru</a>).</p>
+<p> <b>07.10 - МОСКВА/ РОССИЯ</b> <br> клуб ТОЧКА, 18:00. <br> Адрес: Москва, ул. 1905 года, Звенигородское шоссе, 4 (ст.метро "ул.1905 года"). <br> Цена билетов: <br> Предварительная продажа с 24.09 - 300 руб. (в кассе клуба, рок-магазинах города); <br> в день концерта - 400 руб..</p>
+<p> <b>10.10 - МИНСК/ БЕЛАРУСЬ</b> <br> клуб РЕАКТОР, 18:00. <br> Адрес: Минск, В.Хоружей, 29. <br> Цена билетов: <br> 10.000 - с 26 сентября по 5 октября; <br> 13.000 - с 5 октября по 9 октября; <br> 15.000 - в день концерта. <br> Предварительная продажа, заказ билетов, формирование автобусных туров из других городов с 26 сентября: <br> Минск: D-SHOP (Притыцкого, 40), ACC (ун-г Беларусь, подземный город, бокс 65); <br> Гомель: AUDIOBOX (Первомайская, 23), 8-029-6017982; <br> Могилев: 463-011 (22:00-0:00); <br> Брест: 236-808; <br> Речица: PARADISE (Урицкого), 32-347; <br> Витебск: МУЗЫКАЛЬНЫЙ КИОСК (Московский пр-т, напротив ВГУ), 8-029-6621291. <br> Инфо, заказ билетов: 8-029-6022062, (<a href="mailto:fatalecstasy@tut.by">fatalecstasy@tut.by</a>, <a href="mailto:chaotica@tut.by">chaotica@tut.by</a>).</p>
+<p> Организаторы тура:<br> <a href="mailto:fatalecstasy@tut.by">Fatal Ecstasy Productions</a></p>
+<p> Все новости о туре можно найти на сайте <a href="http://run.to/fatalecstasy"> Fatal Ecstasy</a>,<br></p>
+<p> Информационная поддержка:<br> <a href="http://musica.mustdie.ru">Musica Mustdie</a><br> <a href="http://nestor.minsk.by/mg">Музыкальная Газета</a>,<br> <b>Hard Zone/ MTV Russia</b> (каждую ночь с пятницы на субботу в 2.00)</p>
+
+Автор: Dimas
+
+### 14.06.2002 reviews Очень средненький концертный альбом
+
+<p>После провального выступления с позволения сказать "легендарных" норвежцев в Москве, мне было вдвойне интересно ознакомиться с этим концертником. К сожалению, о том, где именно был записан материал для "European Legions" буклет скромно умалчивает – известно лишь, что запись происходила во время тура "Grand Declaration Of War" 2000 года. Говоря по правде, я был уверен, что на "European Legions" мне мало что напомнит московский концерт. Ведь не могут же Season Of Mist выпустить та-а-а-кой концертник та-а-а-кой группы, предварительно не отполировав звук до тошноты. В какой-то степени всё так и есть – подвальным духом "Live In Leipzig" здесь и не пахнет. Однако лажи предостаточно. Видать, то, что вживую MAYHEM – полный ноль, скрыть невозможно. На "European Legions" представлен как старый, так и новейший материал, и стоит ли говорить, что "классика" звучит в сто крат сильнее? "Grand Declaration Of War" – хороший альбом, но он явно не предназначен для исполнения вживую. Тем более, такими музыкантами как Necrobutcher и Blasphemer. Hellhammer хорош, как, впрочем, и всегда, однако даже глухой не сможет не понять, что датчики он использовал не только в Москве. Нехорошо. Вернее, нечестно. Троим музыкантам косточки мы, вроде бы, перемыли; остался Маньяк. Вот уж кто поистине "слабое звено". Бедняга безбожно лажает – лажает так, что на нескольких вещах с "Grand Declaration Of War" эти вопли жестоко отсодомированного пингвина слушать становится решительно невозможно. Итак, неплохая, но исключительно _студийная_ группа, бездарный вокалист, и очень средненький концертный альбом. Аминь.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 18.10.2002 news Former YNGWIE MALMSTEEN Singer Parts With Solo Band ....
+
+<p>Former YNGWIE MALMSTEEN and current MASTERPLAN frontman Jorn Lande has parted ways with his solo backing band, which included current MAYHEM/KOVENANT drummer Hellhammer. Personal differences are being blamed for the split, which coincides with Lande's announced departure from WILD WILLY'S GANG, the "just-for-fun" project of ex-ROAD drummer Willy Bendiksen and his friends.</p>
+
+Автор: Yermola
+
+### 18.10.2002 news Йорн Ланде покинул свой соло проект...
+
+<p>Бывший вокалист Ингви Мальмстина и нынешний участник "MASTERPLAN" - Йорн Ланде покинул свой соло проект организованный совместно с барабанщиком MAYHEM/KOVENANT - Hellhammer'ом. Также им оставлен проект "WILD WILLY'S GANG" с членами "ROAD"...</p>
+
+Автор: Yermola
+
+### 21.11.2002 news Вокалист ABORYM арестован...
+
+<p>Бывший вокалист "MAYHEM" и действующий "ABORYM" - Attila Csihar арестован в Тревизо (Италия) и находится в тюрьме. Он арестован за хранение таблеток экстази и гашиша. Оставшиеся участники "ABORYM" заявили, что новый альбом "With No Human Intervention" в любом случае будет выпущен в январе 2003 на Code666 в Европе и WW3 (Mercenary Musick) в США. В качестве гостей на диске приняли участие Bard "Faust" Eithun (ex-EMPEROR, на данный момент - барабанщик DISSECTION), Nattefrost (лидер CARPATHIAN FOREST), а также Irrumator (босс ANAAL NATHRAKH). <BR><BR> Трек-лист:<BR><BR> 01. Antichristian Codec (intro)<BR> 02. With No Human Intervention<BR> 03. U.V. Impaler<BR> 04. Humechanics-Virus<BR> 05. Does Not Compute<BR> 06. Faustian Spirit Of The Earth<BR> 07. Digital Goat Masque<BR> 08. The Triumph<BR> 09. Black Hole Spell<BR> 10. Me(N)Tal Striken Terror Action<BR> 11. 11 Out Of Shell<BR> 12. Chernobyl Generation<BR> 13. The Alienation Of A Blackened Heart<BR> 14. Automatik Rave'olution Aborym</p>
+
+Автор: Yermola
+
+### 14.06.2003 news Новости от MAYHEM
+
+<p>Норвежские пионеры black metal MAYHEM планируют на ноябрь запись своего нового альбома под названием "Chimera". Выход релиза запланирован на начало 2004 года через Season Of Mist Records.</p>
+
+Автор: Dimas
+
+### 12.07.2003 news Новый альбом MAYHEM
+
+<p>Mayhem войдут в студию Puk Studio в Дании в ноябре, чтобы начать запись их нового альбома "Chimera". Запись будет идти в течении 4-5 недель. Уже известны несколько новых творений, которые войдут на альбом: "Chimera", "Rape Humanity With Pride", "Dark Night Of The Soul" и "Deathwhore".</p>
+
+Автор: Darkfall
+
+### 23.09.2003 news MAYHEM заключили договор
+
+<B>MAYHEM</B> заключили ещё один договор с <B>Season Of Mist Records</B> на выпуск новой пластинки '<B>Chimera</B>'. Компакт-диск будет записан в ноябре-декабре и выйдет в марте. По сообщениям источников близких к группе, альбом будет ознаменовывать возврат к старым мрачным временам. Вот названия некотрых песен:
+01. <B>Rape Humanity With Pride</B><BR>02. <B>Chimera</B><BR>03. <B>Dark Night Of The Soul</B><BR>04. <B>Deathwhore</B>
+Автор: Vit Belov
+
+### 05.03.2004 news MAYHEM &#39;Chimera&#39; подробности
+
+<P>Новый альбом <B>MAYHEM 'Chimera'</B> выйдет 29 марта на <B>Season Of Mist</B>. Известен трэк-лист:</P>
+<P>01. <B>Whore</B><BR>02. <B>Dark Night Of The Soul</B><BR>03. <B>Rape Humanity With Pride</B><BR>04. <B>My Death</B><BR>05. <B>You Must Fall</B><BR>06. <B>Slaughter Of Dreams</B><BR>07. <B>Impious Devious Leper Lord</B><BR>08. <B>Chimera</B></P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 28.06.2004 news Грандиозные перемены в MAYHEM!!!
+
+<P>По неподтверждённой пока информации, <B>MAYHEM</B> покидает вокалист <B>Maniac</B>. Новым старым вокалистом группы станет <B>Attila Csihar</B> (<B>TORMENTOR</B>, <B>ABORYM</B>), который уже работал с группой на альбоме 1993 года.</P>
+Автор: Vit Belov
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 18.11.2004 news MAYHEM: Слухи подтвердились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как предполагали некоторые ранее, <STRONG>Maniac</STRONG> покинул <STRONG>MAYHEM</STRONG>. В группу вернулся вокалист <STRONG>Attila Csihar</STRONG> (<B>TORMENTOR</B>, <B>ABORYM</B>).</FONT></P>
+Автор: Vit Belov
+
+### 18.01.2005 news Номинанты норвежской Alarm Awards
+
+<P>Определились номинанты в категории "<STRONG>Metal</STRONG>" норвежской премии <B>Alarm Awards</B>, вручение которой состоится в Осло 5 февраля. Это оказались группы <B>SUSPERIA,</B>&nbsp;<B>MAYHEM</B>, <B>ENSLAVED</B>, <B>RED HARVEST</B>&nbsp;и <B>KHOLD</B>. Сделать свой выбор можно по <A href="http://www.alarmweb.org/2005/nyheter/index-05metal.html">этому</A> адресу. Пока лидируют музыканты <STRONG>ENSLAVED</STRONG>.</P>
+Автор: Dimas
+
+### 05.05.2006 news Новый альбом MAYHEM
+
+<P>Новый альбом<STRONG> MAYHEM "Ordo Ab Chao" </STRONG>выходит в скором времени на<STRONG> Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.05.2006 news MAYHEM - продлен контракт с Season Of Mist
+
+<P>"<EM>Мы рады объявить о том что новый альбом легендарных блекметалистов <STRONG>MAYHEM </STRONG>выйдет на <STRONG>Season of Mist</STRONG>. Этот темный альянс воюет вместе уже более семи лет и окончания не предвидиться.&nbsp; "<STRONG>Ordo Ab Chao</STRONG>" станет третим полноформатником группы на французском лейбле. Кроме того в нашем составе впервые с 1993 года за микрофонной стойкой <STRONG>Attila Csihar</STRONG>! Зверь еще не был так силен как сейчас."</EM><BR></P>
+Автор: Bizarre
+
+### 12.12.2006 news MAYHEM закончили запись
+
+<P><STRONG>MAYHEM</STRONG> закончили запись нового альбома <STRONG>"Ordo Ab Chao"</STRONG>. Гитарист <STRONG>Blasphemer</STRONG> сообщает, что звук новой работы сырой и мощный, и относит его ко временам <STRONG>'Wolf's Lair Abyss'</STRONG>&nbsp;только с более философским оттенком. "<EM>Альбом содержит самые агрессивные песни в нашей истории</EM>",&nbsp;-&nbsp;резюмирует <STRONG>Blasphemer</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.06.2007 news Hellhammer сломал руку
+
+<P>Барабанщик<STRONG> Хэлхаммер (Hellhammer)</STRONG> сломал руку во время тура с <STRONG>DIMMU BORGIR</STRONG> в США, в связи с этим группа <STRONG>MAYHEM</STRONG> отменила запланированные выступления на фестивале <STRONG>HELLFEST</STRONG> (Франция)&nbsp; и тур в США.&nbsp;Сообщается, что музыканту требуется операция и длительное восстановление.</P>
+Автор: Bizarre
+
+### 17.10.2007 articles MAYHEM в Москве: пресс-релиз
+
+<P>SPIKA CONCERT AGENCY ПРЕДСТАВЛЯЕТ:</P>
+<P>MAYHEM<BR>ЛЕГЕНДЫ BLACK METAL ВНОВЬ В РОССИИ</P>
+<P>13 ноября – Санкт-Петербург, клуб Орландина<BR>14 ноября – Москва, клуб Точка</P>
+<P>Этой группе уже третий десяток лет, в этом году вышел их новый альбом, и он лишь четвертый. Однако столь редкие студийные релизы не мешают им оставаться одной из самых известных и, без преувеличения, культовых групп в мире экстремального металла. Речь идет о MAYHEM, отцах норвежского black metal.</P>
+<P>Черное знамя подняли в 1984 году гитарист Euronymous, басист Necrobutcher и ударник Manheim. Спустя два года у группы появляются первые демо-записи, за микрофоном успели побывать сам Евронимус и ещё один вокалист, Messiah, затем появился Maniac и следом первый ЕР «Deathcrush». По звучанию это был очень грязный трэш, весьма некачественно записанный и с очень примитивными партиями, однако пластинке суждено было стать культовой спустя годы, а титульному трэку «Deathcrush» - постоянным номером концертных программ. Маньяк тем временем перестал быть участником группы, сменив микрофон на койку в психушке (туда он попал после попытки суицида). В 1988 году новым вокалистом становится Dead, а ударника Манхейма сменяет Хеллхаммер, ныне один из наиболее востребованных драммеров в блэк-металле. При этом группа замолчала, концерты записывались, работы в студии также велись, но до поклонников все это не доходило. Дэд стал автором текстов песен, сочиненных в этот период, когда формировался black metal второй волны, прославился он и эпатажным поведением на сцене. В 1991 году он покончил жизнь самоубийством, на тот момент его вокал в составе MAYHEM можно было услышать лишь на бутлегах, уже посмертно Дэд стал одной из наиболее уважаемых и почитаемых фигур в истории black metal сцены. В том же году группу покинул один из её основателей, басист Necrobutcher. 1993 год оказался богатым на события. Во-первых, был издан первый и единственный официальный концертный альбом с Дэдом на вокале, он содержал запись живого выступления коллектива в Лейпциге в конце 1990 года. В том же году записывается первый студийный полноформатник – «De Mysteriis Dom Sathanas», в записи приняли участие Евронимус, Хеллхаммер, Аттила Чихар из венгерской группы Tormentor исполнил вокальные партии, а басовые записал Варг Викернесс (Burzum). Альбом был записан, но ещё не издан, когда произошла ставшая знаменитой история. Суть её заключалась в том, что Викернесс, что-то не поделив с Евронимусом (и по сей день высказываются самые разные версии) нанес ему множество ножевых ранений, от чего Евронимус и скончался. Варг оказался в тюрьме, где находится и по сей день, но это уже другая история, а что же MAYHEM... Лишившись разом двух участников, один из которых был основателем и лидером в группе, она перестала бы существовать, если бы не Хеллхаммер. Прежде всего, он окончательно подготовил к изданию дебютный альбом, «De Mysteriis Dom Sathanas» вышел в мае 1994 года. Для многих поклонников жанра, этот релиз и по сей день является непревзойденным шедевром норвежского black metal. Сырой звук, необычайно злая и мрачная атмосфера и уникальный демонический вокал Аттилы – таков первый альбом&nbsp; MAYHEM. Следом за релизом диска, Хеллхаммер предлагает Маньяку вновь занять место вокалиста, в 1995-м возвращается один из основателей группы Necrobutcher, и в том же году у группы появляется новый гитарист Blasphemer. В этом составе группа просуществовала следующие 9 лет. В 1996-м вышли сингл и ЕР со студийными записями с Дэдом на вокале. В следующем году наконец-то был издан новый материал – ЕР «Wolf's Lair Abyss». Ещё спустя два года появился новый концертник, «Mediolanum Capta Est», а долгожданный второй студийный альбом появился в 2000-м. У одних диск «Grand Declaration of War» вызвал отторжение, у других, наоборот, восхищение, одно можно сказать наверняка – равнодушным он не оставил никого. Основная часть вокальных партий была исполнена чистоголосым чтением текста, ударные напоминали военный марш, альбом просто кишел электронными наворотами, экспериментами и пр. Группа отправилась в тур, в Марселе был записан часовой концертный диск, а в октябре 2001 года музыканты впервые посетили Россию.</P>
+<P>В конце марта 2004 года увидел свет третий альбом норвежцев – «Chimera», музыканты оставили эксперименты с электроникой, забыли про обилие чистого вокала и выдали потрясающий, очень техничный, агрессивный и разнообразный диск. И практически сразу после его выхода буквально ошеломили фэнов новостью. Маньяк покидает группу, а место вокалиста занимает Аттила Чихар. Аттила, последние годы плотно работавший в итальянском коллективе Aborym, оставил этот проект в 2005-м и полностью сосредоточился на работе в MAYHEM. Стоит ли говорить, что поклонники первого альбома коллектива были в истинном восторге от подобной замены. Уже в октябре 2005 года появилась информация о грядущем альбоме, спустя год с небольшим группа оказывается в студии, где в течение трех недель пишет свою четвертую пластинку - «Ordo Ad Chao». Альбом вышел 16 апреля 2007 года и вновь поразил слушателей и критиков. Нарочно созданный эффект сырого и грязного звучания, небыстрые рифы, жуткая атмосфера мрака и хаоса, и над всем этим бросающийся в скриминг, зловеще хрипящий, назойливо ноющий и торжественно декларирующий Аттила Чихар, чей вокал стал ещё более разнообразным многогранным. </P>
+<P>MAYHEM выступают редко, ограничиваясь небольшими мини-турами и единичными выступлениями, иногда появляются на фестивалях, каждое их выступление – большое событие, тем более, что группа весьма известна и в плане зрелищности своих концертов. Знаменитые норвежцы сыграют 13 и 14 ноября в Питере и Москве. Не пропустите уникальный шанс увидеть живую легенду Black Metal.</P>
+<P>Состав: Attila Csihar – вокал / Blasphemer – гитара / Hellhammer – ударные / Necrobutcher – бас</P>
+<P>Пресс-релиз подготовил Алан Ахметов (TheMetalList.com)</P>
+Автор: Vit Belov
+
+### 18.03.2009 news MAYHEM заменили Blasphemer
+
+<P>Норвежцы <STRONG>MAYHEM</STRONG> объявили имя концертного гитариста, который заменил<STRONG> Blasphemer</STRONG>. Новым музыкантом стал француз <STRONG>Silmaeth</STRONG> (ex-<B>VORKREIST).</B></P>
+Автор: Vit Belov
+
+### 05.04.2009 news Maniac попал на Season Of Mist
+
+<P>Новая группа<STRONG> SKITLIV</STRONG> бывшего вокалиста <STRONG>MAYHEM Maniac</STRONG> подписала контракт с <STRONG>Season Of Mist</STRONG>. Альбом black-doom-metal группы <STRONG>"Skandinavisk Misantropi" </STRONG>выйдет в этом году. </P>
+Автор: Vit Belov
+
+### 17.11.2009 news MAYHEM арестовали в Голландии
+
+<P>Норвежцы <STRONG>MAYHEM</STRONG> и их команда техников были арестованы вчера в голландском Тилбурге. Музыканты нанесли непоправимый ущерб своему гостиничному номеру. Ущерб составил несколько тысяч долларов.</P>
+<P>Музыканты будут находиться в тюрьме пока не выплатят все свои долги перед отелем.</P>
+Автор: Vit Belov
+
+### 19.11.2009 news Не стоит обманывать MAYHEM!
+
+<P>Вокалист <STRONG>MAYHEM</STRONG> <STRONG>Attila Csihar</STRONG> рассказал об инциденте, в результате которого были арестованы все члены группы и её команды в Тилбурге, Голландия. "<EM>К счастью, я и басист Necrobutcher не участвовали в погроме, поэтому мы на свободе. Чтобы понять, что произошло, надо рассказать историю этого тура</EM>", - начинает <STRONG>Attila</STRONG> издалека.</P>
+<P>По словам музыканта, их обманул местный промоутер, который организовал три даты в Германии и Голландии. 18-летний&nbsp;парень скрылся в неизвестном направлении с 1000 Евро аванса. "<EM>В этом вся проблема Интернета, каждый может выдать себя за промоутера</EM>", - жалуется <STRONG>Csihar</STRONG>.</P>
+<P>Группа проявила себя с самой лучшей стороны. Чтобы не обманывать ожиданий фэнов, которые уже купили&nbsp;билеты на шоу, <STRONG>MAYHEM</STRONG> самолично приобрели авиабилеты и выдвинулись на место действия. "<EM>Вы понимаете, в каком состоянии были парни по окончании этого тура? После последнего концерта они напились и разрушили этот никчемный отель, в котором даже не было удобств в номерах</EM>", - заканчивает <STRONG>Attila</STRONG>.</P>
+<P>Следует отметить, что в разгроме участвовали не только музыканты <STRONG>MAYHEM</STRONG>, но и местный персонал, среди которого были, например, водители их автобуса.</P>
+Автор: Vit Belov
+
+### 13.02.2011 news MAYHEM заменили гитариста
+
+<P><STRONG><IMG height=190 alt="" hspace=0 src="/images/news_rus/2011.02/18531.jpg" width=300 align=right border=0>MAYHEM </STRONG>расстались с французским гитаристом <STRONG>Silmaeth</STRONG> (ex-<B>VORKREIST</B>). Новым участником легендарной группы стал <STRONG>Teloch</STRONG> (<B>NIDINGR</B>, <B>GOD SEED</B>, <B>OV HELL</B>). В настоящее время в составе норвежцев:</P>
+<P><STRONG>Attila Csihar</STRONG>: Vocals<BR><B>Necrobutcher</B> (a.k.a. Jorn Stubberud): Bass<BR><B>Hellhammer</B> (a.k.a. Jan Axel Blomberg): Drums<BR><B>Morfeus</B> (a.k.a. Krister Dreyer): Guitar<BR><B>Teloch</B>: Guitar</P>
+Автор: Vit Belov
+
+### 01.07.2011 news MAYHEM достали настоящие кости
+
+<P>Норвежские изуверы <STRONG>MAYHEM</STRONG> признались, что в офрмлении сцены во время выступления на французском <STRONG>Hellfest</STRONG> они использовали настоящие человеческие останки. По словам вокалиста группы <STRONG>Attila Csihar, </STRONG>это было сделано не в развлекательных целях. Группа соорудила настоящий "Алтарь Смерти" в присутствии 8000 человек перед сценой, и это имеет мистическое значение. </P>
+<P>"<EM>Хочу поблагодарить всех присутствовавших на этом мероприятии. Они сделали сей великий акт возможным</EM>", - заявил певец.</P>
+<P><STRONG>MAYHEM</STRONG> использовали настоящие черепа и кости, их можно разглядеть на видео-ролике, снятом одним из участников знатного капища в простом французском городке, который можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ZBh6yCZs77g?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ZBh6yCZs77g?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.11.2011 news Из басиста MAYHEM пытались изгнать Дьявола
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ниже можно посмотреть телепередачу норвежского национального ТВ, одним из сюжетов которой стал визит басиста <STRONG>MAYHEM Necrobutcher</STRONG> к специалисту по изгнанию дьявола <STRONG>Bob Larson</STRONG> (смотреть с 13-ой минуты). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Bob Larson</STRONG> известен тем, что давно занимается проблемой металистов-сатанистов. В своём интервью журналу <STRONG>Metal Hammer</STRONG> он рассказал о своём общении со <STRONG>SLAYER</STRONG> и даже с такой одиозной личностью, как <STRONG>Glen Benton</STRONG> из<STRONG> DEICIDE</STRONG>.&nbsp;Телепроповедник считает, что Дьявол обуял музыкантов, и им можно помочь, изгнав его и вернув заблудших к Господу.</FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/nJk9Ul1K_V0?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/nJk9Ul1K_V0?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.01.2012 news AURA NOIR выпускают пятый альбом в марте
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22583.jpg" width=500 height=332> 
+<P></P>
+<P>Норвежские thrash/black металлисты <STRONG>AURA NOIR</STRONG>&nbsp;закончили колдовать над своим пятым студийным альбомом, получившим название <STRONG>"Out To Die"</STRONG>.</P>
+<P>Как и его предшественник, диск<STRONG> "Hade's Rise"</STRONG> (2008), новый альбом был спродюсирован самой группой и&nbsp;должен&nbsp;доставит истинное удовольствие при прослушивание фэнам ранних работ <STRONG>SLAYER</STRONG> и <STRONG>SODOM</STRONG>. </P>
+<P><STRONG>"Out To Die"</STRONG> ознаменовал возвращение в состав <STRONG>AURA NOIR</STRONG>&nbsp;бывшего участника <STRONG>MAYHEM</STRONG>, гитариста&nbsp;по кличке&nbsp;<STRONG>Blasphemer</STRONG>, который нынче проживает в Португалии&nbsp;и которому пришлось предпринять несколько поездок в Норвегию, чтобы поработать над новыми песнями вместе с&nbsp;&nbsp;двумя другими музыкантами коллектива.</P>
+<P>Говорит <STRONG>Aggressor</STRONG> (гитара, вокал): <EM>"Я хотел бы, чтобы мы жили в одной комнате и репетировали каждый день, все вместе втроём, но очевидно, что это невозможно, т.к. у&nbsp;всех нас есть своя личная жизнь. Однако подобная ситуация принесла и новые способы совместной работы и в итоге всё закончилось успешно."</EM></P>
+<P><STRONG>"Out To Die"</STRONG> выходит 23 марта на <STRONG>Indie Recordings</STRONG>. </P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Trenches</STRONG><BR>02. <STRONG>Fed To The Flames<BR></STRONG>03. <STRONG>Abbadon</STRONG><BR>04. <STRONG>The Grin From The Gallows<BR></STRONG>05. <STRONG>Withheld</STRONG><BR>06. <STRONG>Priest's Hellish Fiend<BR></STRONG>07. <STRONG>Deathwish</STRONG><BR>08. <STRONG>Out To Die</STRONG></P></CENTER>
+Автор: Headcrusher
+
+### 22.02.2014 news Новая песня MAYHEM
+
+<p>Новую музыку <strong>MAYHEM</strong> можно услышать в ролике ниже. <strong>"Psywar</strong>" - заглавная песня сингла, который выйдет на <strong>Season Of Mist</strong> в апреле.</p><p><center><iframe width="640" height="360" src="//www.youtube.com/embed/7d7cr-zdm1Y?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p><center><img width="410" height="411" src="/images/news_rus/2014.02/26686.png" border="0"><center></center></center>
+Автор: Vit Belov
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 02.09.2016 articles Евгений &#39;Agen Price&#39; Аксёнов: &quot;Петер из VADER так говорил: &quot;Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!&quot;
+
+<p><em></em><center><em><img width="500" height="748" src="/images/articles_rus/2016.09/29910.jpg" border="0"></em><center><p></p><p><em>Продолжаем нашу рубрику, в которой беседуем с людьми так или иначе связанными с тяжёлой музыкой в нашей стране. На этот раз наш гость Евгений 'Agen Price' Аксенов, знаменитый "промоутер", один из первых металических деятелей в СССР.</em></p><p><strong>Начнём с вопроса о твоих нынешних делах. Давненько от тебя не было новостей. Совсем отошёл от металопросветительской деятельности?</strong></p><p>Можно сказать, что да. В качестве хобби издаю понемножку винил. Не так давно совместно с Beverina Productions переиздали альбом группы Alkonost "Каменного сердца кровь"... Есть планы на переиздание ещё нескольких альбомов разных групп. CD&nbsp; практически перестали продаваться, а от того и интерес к ним тоже пропал. А вот просветительскую деятельность как раз продолжаю. Часто обращаются музыканты, промоутеры, издатели с тем или иным вопросом. Помогаю чем могу, как нашим, так и иностранцам.</p><p><strong>Ну значит мы к тебе по адресу. Как ты думаешь, что наиболее актуально в тяжёлой музыке сейчас?</strong></p><p>Мне кажется, что продвинуться и подняться сейчас смогут те группы, которые в своём творчестве будут использовать синтез различных стилей и звучаний. Недавно переслушал почти все альбомы Slipknot. И что мне показалось интересным... Вроде бы ничего нового они не придумали, но использование одновременно нескольких барабанных установок, плюс перкуссия... значительно улучшают звук, делаю его ураганным, что ли... В принципе это не новое слово в музыке... много групп и раньше использовали одновременно несколько соло-гитар, но с разными партиями. Или несколько клавишных, опять же, играющих каждый свою партию. Голос опять же, давняя схема. Скажем, гроулинг+чистый вокал... Но при всем при этом, всегда впереди будут самородки, сочиняющие красивые мелодии или темы с драйвом. Всегда будут любители усложнённой музыки. Ну и первооткрыватели, само собой, всегда в чести будут. Потому что последователей всегда будут сравнивать с ними.</p><p><strong>Каких первооткрывателей ты видишь на сцене в последние годы?</strong></p><p>Я физически не имею возможности слушать всё то, что выходит в последнее время, поэтому тут сложно быть объективным. Это в 70-е годы сплошь были открытия и групп раз-два и обчелся... Сейчас в тяжелой музыке мне кажется есть некий застой. Всё, что ни выходит, так или иначе что-то напоминает, что было уже. Ну, это лично моё мнение. Может я чего-то не услышал. Более или менее оригинальными мне показались альбомы TODTGELICHTER или SOLSTAFIR... А может быть я просто ударился в эту тему... Север, холод, уныние, тоска, печалька... и т.п.</p><p><strong>А что опечалился?</strong></p><p>Я сам-то как раз не опечалился... Просто тема Севера очень притягивает... Я ведь служил там и меня всегда восхищали северные моря, фьорды, заливы, тамошняя природа, даже погода! Хотя она и очень сурова. Есть такой в нашей тусовке человек Андрей Мизери, у него свой лейбл, занимающийся нойзовой музыкой, так вот он почти каждый год ездит в Норвегию... Счастливчик! Не то, что мы... Всё по европам, да по африкам... Ну и ещё один момент... Окружение, то есть, те люди с кем ты постоянно общаешься. Так вот они тоже подсели на меланхоличную музыку, большинство конечно на ту, что полегче, типа Muse. Но вот у нас мода такая...</p><p><strong>Давай поговорим о более весёлых временах. О прошлом. Ты ведь стоял у истоков становления отечественого тяжеломузыкального бизнеса. Доволен во что вылились твои начинания?</strong></p><p>Я не думал об этом. Всё произошло как-то само собой. Ну, я конечно всегда любил тяжелый рок, но вместе с ним и весь классический рок, а потом и диско. Не особо меня впечатлили панк, да и металл, когда он только появился. Для меня это была лишь новая вывеска, ярлык, который приклеили к обычному хард-року, а к коммерции всегда есть какая-то настороженность. И только с появлением трэша, я осознал, что вот она... новая музыка, новые стили, новые горизонты... Интерес к этому всему был неимоверный. Это была уже середина, точнее вторая половина 80-х. Как раз тогда я начал активную переписку c иностранными лейблами и музыкантами. Понятное дело, что они оказали на меня большое влияние. Тем более, что помимо теории (переписки и обмена продукцией) это имело какую-то уже практическую направленность. Как-то организация собственного лейбла и обмен концертами. Они к нам, мы к ним... Первые страны, точнее люди этих стран, с которыми я завязался были Польша, Болгария, Югославия и Норвегия... В итоге, больше всего и лучше... получилось с Польшей... С остальными как-то банально и тупо прекратилось... Югославию разбомбили, в Норвегии был убит Еуронимус, с кем я вёл все дела и переписку... А Болгария просто на тот момент так и не заимела нормальных метал-групп... Может они и были, но мы друг о друге не узнали.</p><p><strong>Еуронимус? То есть если бы его Варг не замочил, поехал бы в Норвегию с Коррозией?</strong></p><p>Да, но первые гастроли, которые мы планировали провести в тогда ещё СССР... были концерты Mayhem. Во что это вылилось? У меня особо ни во что... После Союза у меня как-то всё надломилось, пропал интерес, как-то всё пошло вяло. Запала уже точно не было как раньше. Помню на Мастдае ещё, в ходе наших бурных дебатов... Лёша Ихтиандр сказал, мол, надо освобождать дорогу молодым... Я сначала всё это в штыки восприянял, а потом задумался... А ведь это правда, так и должно быть. По натуре я кустарь-одиночка, всё привык делать сам и один. Каких-то корпораций и концернов не создал... Двигать дальше тему будет просто не по силам... Да и денег таких нет, а тупо влачить какое-то невнятное существование... ну это просто не интересно... Плюс ко всему, у меня дети, внуки, семья... Надо и им внимание уделить... Всё же в следующем году мне уже будет 60... Сколько можно ещё предаваться "трэшу, угару и содомии"? Пора и остепениться... Я тогда был президентом Мытищинского рок-клуба, с Коррозией был мало знаком и у нас были свои кандидаты - Фаланга и Месса. Но первыми к нам должны были приехать норвеги.</p><p><strong>Расскажи про Петера из VADER. Вы же с ним общались. Он вон до сих пор мотается с турами по всему свету. В сентябре во Владивосток собрался. Были какие-то истории с ним связанные?</strong></p><p>Первыми в Россию из Польши приехали Magnus, потом Bloodlust и Slashing Death, в которых барабанил Доцент, вот с ним-то мы и познакомились первым из Vader. Но все приезжающие к нам поляки, и музыканты, и техники, постоянно твердили мне, что я обязательно должен пригласить Vader, мол, это новая звезда thrash'n'death metal, и что они скоро удивят всех. Что вскоре и случилось. С Петром мы реально задружились, так он оказался очень дружественным и порядочным человеком. Мы много с ним встречались на разных концертах и фестивалях в Польше, да и вообще, просто так, в тусовках, рок-магазинах, на лейблах, на радио. Он всегда спрашивал, есть ли какие проблемы и чем он может помочь. Отличный парень! На дебютном альбоме Vader, который вышел на Earache, в кредитах с благодарностью есть и моё имя. Чем я несказанно горд. Это не байка, кто хочет, может Петра спросить об этом, но приезжающим к нам музыкантам Петер так говорил: "Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!"...</p><p><strong>Я тут брал у него интервью, он признавался в любви к России. Как ты думаешь не испортятся у нас отношения с польскими музыкантами из-за политики?</strong></p><p>К России кто угодно может изменить отношение, только не Петер. Я повторю, это глубоко порядочный и душевный человек. Несмотря на то, что он и сочиняет и играет брутальную музыку. Вот скажем, за Адама из Behemoth я никогда не стал бы давать каких-то гарантий. Хотя... может быть, что я просто не настолько близко его знаю. А люди все разные. Как в России, так и в Польше есть народ с разными мировоззрениями и разным воспитанием. Во всяком случае, у меня там осталось очень много друзей, которые примут меня в любой момент и окажут всяческое содействие. И второе, Петер прекрасно понимает и помнит, откуда началось триумфальное восхождение Vader на музыкальный Олимп. И все это знают, и многие в мире видели тв-кадры с полными залами, стадионами на наших фестивалях в те времена. В Европе же они тогда собирали лишь небольшие клубы.</p><p><strong>А как относишься к фактам отмены концертов у нас? Под раздачу как раз поляки попали. Адам Nergal, Батюшка.</strong></p><p>Отношусь негативно. Отмены ни к чему хорошему не приводят. Тем не менее, под раздачу попали как раз группы строящие свой имидж во многом на эпатаже. А раз ты находишься в таком состоянии и ситуации, оценивай обстановку трезво. Тем более, что в последнее время у нас сплошь крайности, что с одной, что с другой стороны. Всем нужно показать себя, либо свою силу, либо неординарность. Петя со-товарищи спокойно делает своё дело и не лезет в за...упу. Но повторюсь, сейчас в России общество крайне полярно и каждый использует любую возможность, чем и как бы насолить друг другу...</p><p><strong>То есть думаешь BEHEMOTH и Batushka в некотором роде сами виноваты?</strong></p><p>А ты считаешь нет? В Польше на Адама гонят ещё больше чем в России, за то, что он порвал библию и трезвонит об этом на каждом углу. Больше того, он стал нерукопожатным в некоторых кругах и у музыкантов. Поляки гораздо более религиозная нация, чем мы и там такое не прощают и не забывают. Батюшку же... считаю просто провокационным проектом... Хотя, на провокациях во многом построен современный шоу-бизнес...</p><p><strong>Знаю, часто ходишь на концерты и сейчас. Ностальгия мучает?&nbsp; Стадионов ведь больше не собирают.</strong></p><p>На концерты как раз хожу совсем редко. Ностальгия не то, что не мучает, её просто нет. Но с благодарностью и теплом вспоминаю те времена. Что было, то и было... Видимо такая судьба. То, что стадионы не собирают метал-группы, ну так это тоже, веяние времени. Значит так оно должно и быть. Это тем, кто бизнес на этом свой строил, можно сожалеть... А мне от этого не горячо и не холодно.</p><p><strong>Вот Круиз воссоединился. Был на концерте? Что думаешь?</strong></p><p>Был. Конечно было интересно посмотреть на них, в каком они состоянии, тонусе. Молодцы! Настоящие музыканты! Сохранили в себе задор, угар и владение инструментами. Также очень хотелось встретиться с людьми из прошлого, кого не видел уже несколько десятков лет. Общался большую часть фестиваля... Круиз конечно весь посмотрел, фрагментарно Арию, Доро, Слот, Хиппи Хаос... Хотя, есть ощущение, что время уходит. И вкусы у молодёжи стали другие... Да и вообще, как-то всё не радостно у нас... Хороших металлических журналов, как не было, так и нет. Я имею ввиду тиражные издания, чтобы в каждом киоске лежали. Как нет фестивалей подобных Вайкену, да и многим другим европейским, так и нет... И вывод из этого следует не радостный... Как не было у нас массовой культуры в металле, так её и нет... А это значит, что концерты так и будут малопосещаемыми, и диски будут продаваться мизерными тиражами. Бизнеса на этом нормально не построишь и всё будет держаться до поры до времени на плечах энтузиастов... пока и у них на это хватит сил...</p><p><strong>Печальная картина. А что думаешь о отечественной сцене? Случился какой-то качественный скачок или мы до сих пор на задворках мировой музыки?</strong></p><p>Есть хороший пример для всех нас - Аркона. Они всем показали, что наша музыка может быть на одном уровне с мировой. Просто для этого к музыкальному таланту (а у нас бескрайнее море талантов) нужно приложить самоотверженную работоспособность... Помню время, когда ещё работала старая Горбушка... Иду на свою точку и вижу, как Лазарь с Князем клеят афиши имени себя самих... они тогда презентовали свой дебютный альбом Rossomahaar... Подошёл к ним, поздоровались... Спрашиваю, а чой-то вы афиши клеите, наняли бы кого... А Лазарь и говорит, а мы, мол, всё сами, в своих руках хотим держать... Меня это просто проняло что ли, ну, говорю, молодцы, вас точно рано или поздно слава и успех найдут... Это как хороший наглядный пример... Сам для себя не сделаешь, никто для тебя особо разрываться и не будет. Так что разгонять свой паровоз всегда нужно самим, а от того, как разгонишь, так он дальше и полетит... или поедет... или остановится...</p><p><strong>Вот ты начинал почти одновременно с такими лейблами как Nuclear Blast, Century Media или там Osmose Productions, а высот подобных им так и не добился, что помешало этому?</strong></p><p>Можно конечно просто ответить... Совок и запад, разные величины, разные люди, разный менталитет, разный подход к делу, разная инфраструктура (у нас её в полном понимании, как я считаю, так и не возникло, выше уже отвечал про журналы, концерты, фестивали)... Но лично я думаю, что я просто распылил всю свою энергию, силы и средства. Вот скажем, Эдуард Ратников (глава Talent Concert International), промоутер на которого можно и нужно равняться всем. Он сосредоточился на теме, изучил опыт работы, как наш, так и зарубежный. Сделал поправки на особенности работы в странах бывшего СНГ, само собой плюс его неимоверная работоспособность и амбиции... Как итог - он и его команда лучшие в России по части организации рок-концертов. И металлических артистов, тяжелых групп и исполнителей в его бэкграунде внушительное количество. Я же взял за основу схему польских компаний Carnage Records, Morbid Moizz и конечно же Metal Mind Productions... Мне нравилось в них то, что они выполняли весь спектор работ или услуг на рынке... Прежде всего, это издание носителей - LP, CD, MC, DVD и прочее. Это и работа со своими собственными коллективами, менеджмент, букирование, организация туров и прочее... Организация своих фестивалей и издание собственных печатных изданий. У Carnage - Thrash'em All, Morbid Noizz одноимённый журнал и у Metal Mind польская версия Metal Hammer, который можно было купить в каждом газетном киоске и стоил он всего полтора доллара, при этом был великолепного цветного качества, содержал большие плакаты и на праздники CD-компиляции. Я попробовал сделать тоже самое, издавал и журналы, организовывал фестивали, продюсировал группы... И всё это требовало невообразимых затрат, сил и времени. И очень часто не приносило никакой прибыли. Так что вся эта работа была чисто подвижничеством и благотворительностью. Плюс ко всему, все кризисы которые у нас только не случались, целиком и полностью отражались на мне. И ладно бы это было так, между прочим, в процессе работы... Но нет, кризисы случались именно в тот момент, когда я форсировал свою деятельность. То есть, вкладывался в запись альбомов, съёмку клипов, в организацию больших проектов и фестивалей. Друзья уже смеясь, придумали такую феньку... мол, если Женя набрал кредитов - жди кризиса в стране... А отдавать приходилось годами... Так что богатства особого я так и не нажил...</p><p>Ещё в качестве P.S. И в заключение хочу дать один рецепт быстрого приготовления вкусняшки. Это польская запеканка. Поскольку сейчас много грибов она будет весьма кстати. Покупаем багет, желательно помягче. Режем его вдоль, отделяем верхнюю часть с корочкой. А нижнюю оставляем, она должна быть длиной 30 см. можно и больше. Сверху тонким слоем мажем томатной пастой. Заранее приготовленные грибы (их надо отварить, остудить, нашинковать помельче, а потом с лучком пережарить) накладываем на багет. Сверху посыпаем тёртым сыром и в духовку или микроволновку. 2-5 минут и у вас отличная хрустящая запеканочка! Этакая польская пица... Сейчас в Поляндии тоже с палатками идёт война, а своё время запеканки продавались на каждом шагу. Приятного аппетита!</p></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Mayhem - Grand Declaration of War

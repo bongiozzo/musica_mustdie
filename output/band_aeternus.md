@@ -78,6 +78,170 @@ In the Darkest Circles of Time [05:39]
 * C группой "Gehenna" S. Winter (drums)
 * C группой "Forlorn" S. Winter (drums)
 
+## Публикации
+
+### 03.03.1999 news 
+
+<p>Появился материал о норвежской dark-black группе Aeternus в разделе Articles</p>
+
+Автор: Vit Belov
+
+### 03.03.1999 articles В поисках себя
+
+<p>Норвежская металл-сцена в первую очередь прославлена огромным количеством групп выступающих в блэк стиле. Несмотря не на какие перемены десятки, а то и сотни коллективов, продолжают поиски в данном жанре музыки. Одной из групп, нашедших себя на этом поприще является Aeternus. Проект, в котором принимает участие бывший вокалист таких достаточно известных групп, как Gorgoroth и Immortal, Арес, выпустил в прошлом году альбом под названием "?And So The Night Begin". Aeternus играют музыку, которую я могу классифицировать, как dark-black металл с элементами doom. Это средне темповая музыка с достаточным мелодизмом и подходящим для этого стиля вокалом привлекает внимание к этому коллективу на фоне большого разно-однообразия норвежских групп.</p>
+<P> Продолжим повествование в компании с вокалистом группы Аресом. Насколько материал на новом альбоме удовлетворил его, как музыканта:</>
+<P> -Да, новый альбом получился именно таким, каким мы хотели его видеть. Когда ты находишься, так сказать, в процессе записи, ты не можешь адекватно судить о том, что получится в конце концов, а когда работа закончена, начинаются фразы типа: "Я подправил бы здесь что-нибудь, и здесь чуток". Это можно объяснить постоянным желанием прогрессировать, но на самом деле, сейчас я могу сказать: "Да, я удовлетворен тем, что вышло в итоге". Я очень горд результатом, на новом альбоме видно, что мы стали более зрелыми. Это касается всего, нашей музыки, стихов, звука, вокала. И сейчас, в течение новой сессии записи, у меня опять появилась куча идей, как сделать всё ещё лучше на новом альбоме.</>
+<P> Вот и новый альбом скоро выйдет. На самом деле эта группа достаточно скороспелая и сильно плодовитая. Судите сами, в 1997 году выходит первый альбом, длительностью далеко за 45 минут, затем в прошедшем году выходит не менее длительная работа, а вот уже и новый диск на подходе.</>
+<P> -Кстати, я уже могу обнародовать название нашей новой работы, "Shadows Of Olds". На альбоме будет представлен более контрастный материал. Там будет и медленные, и тяжёлые части и всё, конечно же, сдобрено нашими убойными "сатанинскими" рифами.</>
+<P> С каждым альбомом группа продолжает ускоряться. В чём причина?</>
+<P> -Это "вина" нашего барабанщика Вролока. Его техника становится всё лучше и лучше, и это значит, что мы можем ускорять нашу музыку без риска упасть до уровня обычной шумихи. Главной нашей целью в будущем будет увеличения контраста между быстрыми и медленными частями нашей музыки.</>
+<P> Похвальные цели. Действительно, вряд ли стоит уподобляться другим, обычным для стиля, группам. Быстрые композиции, в исполнении группы, уже на последнем альбоме выглядели очень привлекательно. Особенно выделяется звук, он мало похож на звучание других коллективов.</>
+<P> -Да, я замечаю это. Ещё в 1995 году, при записи нашего первого мини-альбома "Dark Sorcery", я почувствовал, что получается нечто особенное. Наш звук не похож на звук, применяемый другими блэк и дэт командами, но мы звучим достаточно убойно. Aeternus создаёт стену звука, наполненного напыщенностью и "почерневшего" от скандирования древних воинов. Мы можем классифицировать свою музыку, как чистейший дарк-металл, потому что вся она пропитана насквозь "тёмными" эмоциями. Слово Dark (темнота) может иметь кучу различных значений, но для нас это, прежде всего отсутствие света, зло и мысли о безысходности. Aeternus особенная команда, которая не похожа ни на одну Норвежскую группу.</>
+<P> Ну что ж, главное верить в своё будущее, и тебя будет ждать успех. А почва для будущего признания у группы имеется. Продолжим разговор, затронув тему лирики группы. В своих песнях группа использует слова древних Норвежских гимнов, что, впрочем, малооригинально, но всё-таки хотелось бы узнать, где группа черпает вдохновение для своего текстового творчества.</>
+<P> -Многие считают, что я беру текста из средневековых книг и манускриптов, но это не так. Многие текста взяты из моих собственных мыслей. Я стараюсь не писать много о моём отвращении к религии и христианству, потому что другие группы пишут об этом, и это всё надоедает через некоторое время. Я стараюсь больше концентрироваться на всём величественном, победном и таинственном. Например, о природе, о колдовстве и средневековых обрядах, войнах и, особенно, о том, что происходит в голове воина. Я стараюсь не браться за обыденные темы, а обращаюсь к темам, которые трогают меня эмоционально.</>
+<P> Aeternus пытаются найти себя и выделиться из общей массы серости, затмившей их национальную сцену. Каждый их альбом заканчивается фольклорной инструментальной композицией, что тоже добавляет им оригинальности.</>
+<P> -Эта традиция родилась в момент записи нашего первого альбома "Dark Sorcery". У нас оставалось немного времени в студии, и я предложил: "А почему бы нам не записать акустическую композицию!". Прошло два часа, и у нас была простенькая акустическая работа, которая, к нашему удивлению, звучала очень фольклорно. Всей группе это очень понравилось, и мы решили повторить это на наших последующих альбомах. На "?And So The Night Became" последняя композиция подвержена большому влиянию народной музыки. Причиной тому, является то, что народное творчество - неисчерпаемый источник, как в плане слов, так и в плане музыки. Иногда, вы слышите небольшие штрихи народной музыки в наших песнях, а иногда вся песня посвящена только этому, потому что эмоции и атмосфера в нашей музыке идентичны народным. До сегодняшнего момента мы черпали вдохновение из фольклорного творчества 11-12 веков. Например, на альбоме 1997 года "Beyond The Wandering Moon" песня "The Last Feast" - кавер на песню, сочинённую в 1014 году одним из вождей кельтов, который сумел победить викингов. Он надрал нам задницы, вы можете себе это представить? (Хе-хе) Кстати, народная музыка моё хобби, наряду с Aeternus. Я также участвую в группе Corona Borealis, это чистейшая фольклорная музыка, и мы выпускаем альбом в начале 1999 года. В этой группе я могу применить идеи, которые никогда не подойдут под концепцию Aeternus.</>
+<P> Вот такой представляется многообещающая группа, которая количеством альбомов и их качеством собирается штурмовать Европейский рынок. Что ж, будем надеяться, что мир получит ещё одну классную команду из северной и холодной Норвегии. Но всё же, Арес так хочет отличаться от серой массы Норвежских коллективов. Ощущает ли он свои Норвежские корни?</>
+<P> -Конечно, я настоящий норвежец. Норвежец - это внушительный характер, это чистота. У нас лучшие металлические команды. Норвегия - это моя родина, это всё для меня!!</>
+<P> Ну, как говорится, привет вам "горячие" норвежские парни и ждём от вас новых работ.</>
+<P></>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Aeternus выпускают новый EP, на который войдут студийные и концертные записи. За новый альбом группа засядет осенью.</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news Новый альбом Aeternus
+
+<p>Новый альбом Aeternus будет называться "Denial Of salvation". Он выйдет в 2001 году, но ещё до этого выйдет мини-CD, на который войдут одна песня с нового альбома, две ранее нереализованные вещи и концертные записи.</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news New album of Aeternus
+
+<p>The new Aeternus new opus will be called "Denial of Salvation" this will be released in 2001, but before that they will release a MCD with one new track from "Denial of Salvation", two unreleased studio tracks and four live tracks.</p>
+
+Автор: Vit Belov
+
+### 30.10.2000 news Вышел новый диск группы Aeternus
+
+<p>Новый мини-альбом Aeternus "Burning The Shroud" недавно появился в продаже. Он содержит одну новую песню, одну старую, но ранее не изданную вещь, четыре песни, ранее выпущенные в составе синглов и на виниле, и еще четыре концертных трэка</p>
+
+Автор: Nybras
+
+### 30.10.2000 news Aeternus&#39; new EP, Burning The Shroud, is now available
+
+<p>Aeternus' new EP, Burning The Shroud, is now available. It contains one new song, one unreleased song, one re-recorded track, three sold out tracks taken from several 7" singles and b-sides and four live songs</p>
+
+Автор: Nybras
+
+### 22.03.2001 news Aeternus трудятся над новым диском
+
+<p> Дедушка Питтен сидит в сырой и темной студии Grieghallen и микширует в компании с Aeternus их новый альбом "Ascention of Terror". Как участливо сообщают нам с лэйбла Hammerheart, где народ уже послушал одну песенку с апкоминга ("Burning the Shroud"), нам следует трепетать в ожидании очередного шедевра Dark Metal. Заманчиво. (De Niss/Legion Online)</p>
+
+Автор: Nybras
+
+### 16.08.2001 news Вспышки террора...
+
+<p>Суровые норвежские блэкстеры "AETERNUS" завершили раболту над четвертым полноформатником "Ascension of Terror". Писалось все это хозяйство в Grieghallen Studio и содержит теперь вот такие песни: 01. Possessed by the Serpents Vengeance 02. Slaying the Lambs 03. Ascension of Terror 04. The Essence of the Elder 05. Warlust 06. Wrath of the WarLord 07. Burning the Shroud 08. Denial of Salvation 09. The Lair of Anubis.</p>
+
+Автор: Yermola
+
+### 16.08.2001 news Ascension of Terror...
+
+<p>Norway’s AETERNUS have completed work on their fourth full-length album, entitled Ascension of Terror. Recorded at Grieghallen Studio in June/July 2000 and mixed in February 2001, the album will contain the following track listing: 01. Possessed by the Serpents Vengeance 02. Slaying the Lambs 03. Ascension of Terror 04. The Essence of the Elder 05. Warlust 06. Wrath of the WarLord 07. Burning the Shroud 08. Denial of Salvation 09. The Lair of Anubis. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.02.2002 news Aeternus have left Hammerheart Records ...
+
+<p>Norwegian death metallers Aeternus have left Hammerheart Records after four full-length albums and two mini-albums. <BR> <BR><IMG SRC="/images/news/2002.02/2391.jpg" ALT="pho" width="209" height="191" hspace="15" vspace="5" border="1" align="right" /> "We would like to state very clearly that no bad things have happened," states frontman Ares on Aeternus' official website. "Aeternus finished their contract and were free to go. Hammerheart offered them a new deal but the band decided to look for a new record label since they felt that Hammerheart could no longer provide the bands needs." <BR><BR> "We would like to thank Peter and Guido from Hammerheart for the nice co-operation and the trust and hard work they have put into Aeternus over the last years," Ares continues. "This decision leaves Aeternus free for all options so we advice all record companies to get in touch with Metalmania agency if you would like to offer Aeternus a new deal or to retrieve more info." <BR><BR> In similar news, Aeternus' massive European tour with Mцrk Gryning, Hecate Enthroned and Agathodaimon has been cancelled due to reported unprofessional activities at Aeternus' booking agent, World Progress. The band cites an unfair contract and a largely unconfirmed itinerary as reasons for parting with the agency. Fellow touring partners Mцrk Gryning have also reportedly dropped off the tour in support of Aeternus, although their official website fails to mention the matter. <BR><BR> We'll have more news on Aeternus as it becomes available.</p>
+
+Автор: Yermola
+
+### 04.02.2002 news Aeternus ушли с Hammerheart Records ...
+
+<p><IMG SRC="/images/news/2002.02/2391.jpg" ALT="pho" width="209" height="191" hspace="15" vspace="5" border="1" align="right" /> Норвежские металлисты "Aeternus" ушли с Hammerheart Records после выпуска четырех полноформатников и двух мини-альбомов. Как заявил фронтмен Ares: "У Aeternus закончился контракт и мы были свободны с выбором. Hammerheart предложили нам новую сделку, но мы решили поискать новый лэйбл...."</p>
+
+Автор: Yermola
+
+### 10.06.2002 news Убийца душ от AETERNUS ....
+
+<p>Норвежцы "AETERNUS" выложили в сети трек песни "Soul Slayer". Послушать можно <A HREF="http://www.aeternus.ch/sound/getsong.asp?songID=6c4u8z3b4y7r9y0q5o7p925865">здесь.... </A>Сейчас группа подписалась с Nocturnal Art Productions (RED HARVEST, SIRIUS) после работы с Hammerheart Records и сейчас занята пре-продукцией нового альбома продолжающего линию прошлогоднего Ascension of Terror и в ближайшее время планирует сесть в Greighallen Studios с продюссером Pytten (ENSLAVED, MORK GRYNING)....</p>
+
+Автор: Yermola
+
+### 10.06.2002 news AETERNUS: New Demo Track Posted Online ...
+
+<p>Norway's AETERNUS have made available for download a demo recording of a new track entitled "SoulSlayer" at <A HREF="http://www.aeternus.ch/sound/getsong.asp?songID=6c4u8z3b4y7r9y0q5o7p925865">this location</A>. <BR><BR> As previously reported, AETERNUS have officially signed to Nocturnal Art Productions (i.e. RED HARVEST, SIRIUS) after a lengthy stay at Hammerheart Records. The group are currently in pre-production for the follow-up to last year's Ascension of Terror and plan to head into Greighallen Studios shortly with Pytten (i.e. ENSLAVED, MORK GRYNING) at the production helm.</p>
+
+Автор: Yermola
+
+### 25.08.2002 news Новости от AETERNUS
+
+<p>В конце ноября норвежские музыканты AETERNUS войдут в Greighallen Studios с продюссером Pytten (ENSLAVED, MORK GRYNING) для записи своего нового альбома "A Darker Monument", выпуск которого планируется в начале 2003 года на Nocturnal Art Productions.</p>
+
+Автор: Dimas
+
+### 05.02.2003 news Новый альбом AETERNUS
+
+<p>Норвежская dark-death команда AETERNUS завершила производство своего нового альбома "A Darker Monument", выпуск которого планируется весной 2003 года на Nocturnal Art Productions. Альбом был записан в знаменитой Greighallen Studios с не менее знаменитым продюссером Pytten'ом. Альбом будет содержать следующие трэки:</p>
+<p> 01. Slavestate <BR> 02. Litany of Ra <BR> 03. Sword of the Earth <BR> 04. The Trident<BR> 05. Genocide Delight <BR> 06. SoulSlayer <BR> 07. DarkStorm <BR> 08. Sons of War</p>
+
+Автор: Dimas
+
+### 03.05.2003 news Новости от AETERNUS
+
+<p>Норвежская группа AETERNUS подготовила к выпуску свой новый альбом под названием "A Darker Monument". Он был записан в Greighallen Studios с культовым продюссером Pytten'ом (ENSLAVED, MORK GRYNING) и выйдет 5 мая 2003 года на Nocturnal Art Productions.</p>
+
+Автор: Dimas
+
+### 14.08.2003 reviews Просто хорошая музыка
+
+<p>Пожалуй, это самый заДУМчивый альбом норвежцев. Не поймите меня неправильно: это, конечно же, дэт. Или dark / death, - кому как больше нравится. Но… И ещё раз «но». “… and So the Night Became” и, к примеру, “Shadows of Old” чертовски похожи. При этом между этими альбомами на удивление мало общего. Бред? Возможно. Проблема (?) в том, что AETERNUS – группа достаточно самобытная. В смысле: вы слушаете AETERNUS, и понимаете, что это именно AETERNUS, а не какой-нибудь убогий ILDJARN. Плюс? Плюс. Вместе с этим, ранние альбомы данного трио под завязку напичканы чертовски длинными интро, а бласт-биты, если и встречаются, то редко. В случае с “Shadows of Old” и “Ascension of Terror” всё наоборот. Интересен ли “… and So the Night Became”? Ага. Интересен ли “Shadows of Old”? Угу. Хорошая команда, что там говорить… Главное: не верьте тем, кто попытается уверить вас в том, что это блэк. Не блэк это. Просто хорошая музыка.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.09.2003 news AETERNUS начали работу над новым материалом
+
+<B>AETERNUS</B> начали работу над своим шестым альбомом, который увидит свет в середине 2004 года на <B>Nocturnal Art Production</B>.
+Автор: Vit Belov
+
+### 09.03.2004 news AETERNUS назвали новый альбом
+
+<P><B>AETERNUS</B> назвали свой будущий альбом "<B>Revolution 9</B>". Пластинка будет записана в июне в <B>Grieghallen Studios.</B> И выйдет позже в этом году на<B> Nocturnal Art Productions.</B> </P>
+Автор: Vit Belov
+
+### 22.04.2005 news Новости от AETERNUS
+
+<P>Норвежский dark metal коллектив <STRONG>AETERNUS</STRONG> покинул гитарист <STRONG>Stian.</STRONG> Причины его ухода неизвестны. </P>
+<P>В настоящий момент, музыканты все свое свободное время проводят в <STRONG>Grieghallen Studios,</STRONG> работая со знаменитым норвежским&nbsp;продюсером <STRONG>Eirik "Pytten" Hundvin</STRONG> над своим новым альбомом под названием <STRONG>"Hexaeon"</STRONG>, воход которого ожидается в конце весны на <STRONG>Nocturnal Art Productions</STRONG>.</P>
+Автор: Dimas
+
+### 20.02.2006 news AETERNUS заменили барабанщика
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым барабанщиком<STRONG> AETERNUS</STRONG> стал <STRONG>S. Winter</STRONG> (<STRONG>FORLORN, GEHENNA</STRONG>). Он заменил <STRONG>Erik 'Vrolok'</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 28.05.2009 news AETERNUS работают
+
+<P><STRONG>AETERNUS </STRONG>начали трудиться над материалом к седьмому альбому группы.</P>
+Автор: Vit Belov
+
+### 17.05.2012 news AETERNUS собираются в студию
+
+<P>Норвежцы <STRONG>AETERNUS</STRONG> войдут в <STRONG>Conclave And Earshot Studios </STRONG>в Бергене в июне для записи своего седьмого альбома <STRONG>"And The Seventh His Soul Detesteth" </STRONG>с продюсером <STRONG>Bjornar E. Nilsen</STRONG> (<B itxtHarvested="0" itxtNodeId="30">VULTURE INDUSTRIES</B>, <B itxtHarvested="0" itxtNodeId="29">BLACK HOLE GENERATOR</B>). Релиз намечен на 2012 год на <STRONG>Dark Essence Records</STRONG>.</P>
+<P>Из оригинального состава в группе остался лишь гитарист и вокалист<STRONG> Ares</STRONG>, укомплектовали новый <STRONG>AETERNUS</STRONG> барабанщик <STRONG>Phobos (GRAVDAL, GALAR, MALSAIN) </STRONG>и гитарист <STRONG>Specter (GRAVDAL, live session guitarist GALAR and VULTURE INDUSTRIES</STRONG>). 19 мая коллектив выйдет на сцену <STRONG>Hub and Heuy Metalfest</STRONG> в Голландии, где отыграет целиком два первых альбома <STRONG>"Beyond the Wandering Moon"</STRONG>&nbsp;и <B itxtHarvested="0" itxtNodeId="17">"And So the Night Became"</B>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.05/23943.jpg" width=475 height=318></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Aeternus

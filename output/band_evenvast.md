@@ -62,6 +62,26 @@ Records (Belgium)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.02.2003 reviews Вокалистки опомнитесь!!!
+
+<p>Гениальными были те люди, что в древности придумывали музыкальные инструменты. Великолепное звучание фортепиано, гитары, скрипки, барабанов... Уже сейчас всё это с успехом синтезируется на компьютере, более того, это уже считается нормальным. Единственное, что пока не принято синтезировать, так это вокал, и если мужские рыки и хрипенья можно улучшить сэмплами, то женский голос трогать пока не осмеливаются. А популярность женских голосов в металле растёт, а девушки не очень любят данный стиль, вот и приходится брать в группы кого попало. И если эти "кто попало" беруться на подпевки, то всё в порядке. Если же наоборот, то получится группа Even Vast. Очередная находка компании Irond, призванная облегчить нам ожидание новых перлов от The Gathering. Вот в этом вся разгадка, если Вы что-то ждёте от голландцев, слушайте обозреваемую группу. В общем, очень слабая работа, где основная роль отводится очень слабому вокалу.</p>
+
+Автор: Vit Belov
+
+### 06.05.2003 reviews Female-singers, come to oneself
+
+<p>Those people, whom invented musical instruments, were genious. Magnificent sound of piano, guitar, violin, drums... Every instruments are already synthesized on PC with success. It is even normal. One thing, that not synthesized, is vocal. And if you can do better male growling and screaming by PC, female vocal is not touched by programmers. In this time popularity of female vocals in metal is growing up, but girls don't like this style of music very much. Musicians have to recruit in the band "singers". And if you get such singers on background, it's OK. But wrong way is in EVENVAST. Next find of IROND, which has to make lighter to wait for new pearls by THE GATHERING. This is guissing!!! If you wait for new album of Holland band, listen to this album. In general, very poor work, where basic role is leaded to very poor female vocal.</p>
+
+Автор: Vit Belov
+
+### 24.05.2004 news EVEN VAST подписались на Cruz Del Sur
+
+<P><IMG height=235 alt="" hspace=0 src="/images/news_rus/2004.05/6528.jpg" width=150 align="left" border=5>Итальянския gothic-metal группа <B>EVEN VAST</B> подписала контракт на выпуск альбом с <B>Cruz Del Sur</B>. Новый состав, сформированный вокруг основателей коллектива <B>Luca Martello</B>&nbsp;и <B></B>, начнёт запись нового альбома в августе.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -32,6 +32,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.10.2016 news PESTE NOIRE запретили в Норвегии
+
+<p>Организаторы проходящего в Бергене, Норвегия&nbsp;<strong>Blastfest</strong>&nbsp;вынуждены были отменить выступление&nbsp;<strong>PESTE NOIRE</strong> на фестивале будущего года. Это произошло под давлением левых политических групп. Встал вопрос об отмене фестиваля, если <strong>PESTE NOIRE</strong> не будут исключены из состава участников.</p><p>В знак солидарности с французскими коллегами снялись с фестиваля финны&nbsp;<strong>HORNA</strong>.</p><p>В 2017 году фест пройдёт с 22 по 25 февраля. Состав участников: Devin Townsend Project / Scour / Marduk / Hell / Between The Buried & Me / Dying Fetus / Leprous / Hour Of Penance / Angelcorpse / Batushka / Memoriam / Akercocke / HateSphere / Benighted / Blood Red Throne / Gehenna / Ajattara / The Monolith Deathcult / Misс&shy;yrming / Torture Killer / Nordjevel / Regarde Les Hommes Tomber / Cut Up / Zhrine / Emptiness / Lucifer's Child / Audn / Deluge / IXXI / Abyssic / Aspherium / Trident / Beneath / Darkend / Burning Hatred / Avslut / Overoth / Ade / Doomas Plus More TBA</p><p><center><img width="600" height="600" src="/images/news_rus/2016.10/30108.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

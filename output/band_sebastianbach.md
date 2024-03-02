@@ -55,6 +55,27 @@ Youth Gone Wild [Live]
 * C группой "Arch/Matheos" Bobby Jarzombek  (drums)
 * C группой "Riot" Bobby Jarzombek  (drums)
 
+## Публикации
+
+### 26.06.2011 news Sebastian Bach выступил с CHILDREN OF BODOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист<STRONG> SKID ROW Sebastian Bach</STRONG> присоединился на сцене к финнам <STRONG>CHILDREN OF BODOM</STRONG> во время их выступления в Западном Голливуде, Калифорния в прошедшую пятницу. Видео исполнения музыкантами вещи <STRONG>CHILDREN OF BODOM "Hate Crew Deathroll"</STRONG> можно&nbsp;посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHILDREN OF BODOM</STRONG> находятся сейчас в туре по США в поддержку своего последнего альбома <STRONG>"Relentless Reckless Forever</STRONG>", который дебютировал в чартах<STRONG> Billboard</STRONG>&nbsp;на 42-ом месте.</FONT>&nbsp;</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/TyhrkiVGTz4?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/TyhrkiVGTz4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.07.2011 news SEBASTIAN BACH: обложка и трек-лист альбома &quot;Kicking &amp; Screaming&quot;
+
+<P>Бывший вокалист <B>SKID ROW</B> Себастьян Бах (<B>Sebastian Bach</B>) выпускает свой новый сольный альбом, названный <B>"Kicking & Screaming"</B> 27 сентября на&nbsp;<B>Frontiers Records</B>. Диск был спродюсирован Бобом Марлетте (<B>Bob Marlette</B>, <B>BLACK SABBATH</B>, <B>SHINEDOWN</B>, <B>ATREYU</B>, <B>FILTER</B>).</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/20014.jpg" width=400 height=400>Трек лист<STRONG> "Kicking & Screaming"</STRONG>:<BR><BR>01. <B>Kicking & Screaming</B><BR>02. <B>My Own Worst Enemy</B><BR>03. <B>TunnelVision</B> (featuring John 5)<BR>04. <B>Dance On Your Grave</B><BR>05. <B>Caught In A Dream</B><BR>06. <B>As Long As I Got The Music</B><BR>07. <B>I'm Alive</B><BR>08. <B>Dirty Power</B><BR>09. <B>Live The Life</B><BR>10. <B>Dream Forever</B><BR>11. <B>One Good Reason</B><BR>12. <B>Lost In The Light</B><BR>13. <B>Wishin'</B><BR><BR>Bonus tracks:<BR><BR>14. <B>Jumpin' Off The Wagon</B> (только на CD/DVD издании)<BR>15. <B>Ain't There Yet</B> (только для iTunes)<BR><BR></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

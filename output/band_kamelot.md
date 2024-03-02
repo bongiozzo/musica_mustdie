@@ -661,6 +661,320 @@ Disc 2
 * C группой "Mayan" Simone Simons (vocal)
 * C группой "Sons Of Seasons" Simone Simons (vocal)
 
+## Публикации
+
+### 22.05.1999 news 
+
+<p>Kamelot собираются выпустить новый альбом. Пре-продукция пройдёт в июле, и затем группа войдёт в студию для записи нового материала.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Noise Records объявила о новых альбомах, которые выйдут на лэйбле в ближайшее время. Стоит обратить внимание на альбом Stratovarius "The Chosen Ones" - сборник лучших песен, выбранных фэнами (последняя попытка срубить денег на группе, уходящей на Nuclear Blast), а также новые, пока не названные, альбомы Kamelot и Elegy в 2000 году.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Новый альбом Kamelot "The Fourth Legacy" закончен.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 reviews Мощный прогрессивный power
+
+<p>Мощный прогрессивный power. Вот что ждет вас при прослушивании этого альбома. Этим монстрам power-metal удалось создать убийственный альбом, показывающий огромный прогресс группы по сравнению с предыдущими записями. Очень красивая музыка в концептуальном оформлении. Впечатляет мощная симфоническая поддержка. Больше стало в творчестве группы прогрессивных моментов. Музыка усложнилась, упорядочилась ее структура. Качество музыкального материала очень высокое. Альбом повергающий в восторг и заставляющий наслаждаться мелодиями текущими из динамиков на протяжении всей его продолжительности. Просто супер!</p>
+
+Автор: Dimas
+
+### 13.06.2000 reviews Powerful progressive power
+
+<p>Powerful progressive power. That waits for you for want of listening of this album. These monsters power-metal managed to create a terrible album indicating huge progress of group on a comparison with the previous entries. Very beautiful music in conceptual registration. The powerful symphonic support impresses. Became in creativity of group of progressive moment more. Music was complicated, the structure was ordered it. Quality of a musical material very high. An album plunging in delight and forcing to enjoy tunes current from dynamics on stretch by all it of a duration. Simply super!</p>
+
+Автор: Vit Belov
+
+### 04.07.2000 news Kamelot закончили концертный альбом.
+
+<p>Kamelot записали концертный альбом под названием "The Live Legacy". Всё было сделано во время тура с Crimson Glory в апреле.</p>
+
+Автор: Vit Belov
+
+### 07.10.2000 news О новом альбоме Kamelot
+
+<p> По сведениям официального сайта группы Kamelot, ребята уже сочинили 85% нового материала для нового альбома, название для которого пока еще не придумано. Продюсировать диск будут небезызвестные Sascha Paeth и Miro.</p>
+<p></p>
+
+Автор: Nybras
+
+### 07.10.2000 news About Kamelot&#39;s new album
+
+<p> According Kamelot's website, the band already written 85% of new songs for the new album. Production will be by Sascha Paeth and Miro.</p>
+<p></p>
+
+Автор: Nybras
+
+### 11.11.2000 news Kamelot  работают над новым альбомом
+
+<p> По сообщению официального сайта Kamelot, группа практически завершила сочинение материала для своего следуюшего альбома. А потом, на период с декабря по февраль, ребята отправятся записываться в одну из немецких студий.</p>
+<p></p>
+
+Автор: Nybras
+
+### 06.02.2001 news О новом альбоме Kamelot
+
+<p> Thom Youngblood, гитарист группы Kamelot, заявил, что процесс работы над их новым альбомом подходит к завершению. На, пока еще безымянном диске, будет 12 композиций выдержаных в стиле "The Fourth Legacy".</p>
+
+Автор: Nybras
+
+### 20.02.2001 news Тяжелая Карма Камелота
+
+<p>Продолжается работа над альбомом "Карма". В него уже точно войдут: 'Forever', 'Once And Future King', 'Karma', 'Across The Highlands', 'Fate' и Elizabeth Trilogy - 'Mirror Mirror', 'Requiem For The Innocent' и 'Fall From Grace.'</p>
+
+Автор: Yermola
+
+### 20.02.2001 news KAMELOT&#39;s next album
+
+<p>KAMELOT's next album is currently going by the working title Karma. Songs that have been completed so far include: 'Forever', 'Once And Future King', 'Karma', 'Across The Highlands', 'Fate' and the Elizabeth Trilogy - 'Mirror Mirror', 'Requiem For The Innocent' and 'Fall From Grace.'</p>
+
+Автор: Yermola
+
+### 14.03.2001 news KAMELOT представляет...
+
+<p> Американские фэнтази-пауэрщики KAMELOT завершили работу над своим новым эпиком под названием "Karma". Диск содержит 12 следующих треков : "Regalis Apertura", "Forever", "Wings of Despair", "The Spell", "Don't You Cry", "Karma", "The Light I Shine on You", "Temples of Gold", "Across the Highlands", Elizabeth: I. "Mirror Mirror", II. "Requiem for the Innocent", III. "Fall from Grace". У французов будет бонус в виде "Ne Pleure Pas", а наши узкоглазые други получат "Future King". Релиз назначен на 30 апреля. В настоящее время завершается работа над оформлением диска, а также проводятся организационные мероприятия по готовящемуся туру в поддержку альбома. Остается верить, что в расписании окажется Россия...</p>
+<p></p>
+
+Автор: Helloween
+
+### 23.06.2001 reviews Реквием для невинных
+
+<p>Реквием для невинных. Фантастические мелодии преисполненные Великой силой! Мастерский подход к делу, ничего не скажешь. И музыканты хороши, и продюсеры тоже. Хотя... Именно продюссерский тандем в лице Sascha Paeth и Miro, которые также трудятся над записями Rhapsody, придал этому альбому симфоничность, камерность и манерность итальянцев. В некоторых местах ритм-секцию и вокальные дела от рапсодиевских почти не отличить. Хотя слащавости, присущей итальянцам, здесь совершенно не наблюдается. Уже на второй вещице мне почудился знакомый клавишный ряд напомнивший мне песню Аллы Пугачевой "Старинные часы", хотя, может действительно почудилось...Потому что все-таки, это скорее напоминает "Песню Сольвейг" Грига. Все вещицы потрясают своими колоритностью и глубиной. Особенно чувственная баллада "Don't You Cry" написанная Thomas'ом Youngblood'ом в честь его отца. Также ошеломляет заключительная трилогия посвященная Elizabeth Bathory. А вообще подборка песен впечатляет. Ни одной неинтересной композиции, которую хотелось бы пропустить дабы включить следующую, более интересную. Супермелодизм, харизматичный вокал создающий контраст с гитарами, симфонический фон из классических оркестровых вставок, не назойливые клавишные, гармоничные гитары, тяжелая атмосфера - вот они составляющие этого шедевра. Величественные композиции создают непередаваемую ауру и настроение. С каждым новым прослушиванием этого альбома, он нравится все больше и больше и мнение о его шедевральности и претенциозности подтверждается. Так что, если вы хотите что-нибудь качественное и интересное, тогда "Судьба" - это то, что вам нужно - и если вы не приобретете этот альбом, то нет вам никакого оправдания!</p>
+
+Автор: Dimas
+
+### 01.11.2001 news KAMELOT and AXXIS have announced the dates for their upcoming European tour...
+
+<p>KAMELOT and AXXIS have announced the dates for their upcoming European tour. They are as follows: <BR> <BR> Jan. 16 - Planet B - Korbach, GER <BR> Jan. 17 - Aladin - Bremen, GER <BR> Jan. 18 - Alte Festhalle - Tuttlingen, GER <BR> Jan. 19 - Zeppelinhalle - Kaufbeuren, GER <BR> Jan. 20 - Universal DOG - Laar, GER <BR> Jan. 21 - Take Off - Ulm, GER <BR> Jan. 23 - Hirsch - Nьrnberg, GER <BR> Jan. 24 - Live Music Hall - Kцln, GER <BR> Jan. 25 - Quasimodo - Pirmasens, GER <BR> Jan. 26 - Hafenbahn - Offenbach, GER <BR> Jan. 27 - Zeche - Bochum, GER <BR> Jan. 29 - Z 7 - Pratteln, SWI <BR> Jan. 30 - Transilvania Live - Milano, ITA <BR> Jan. 31 - Rockstore - Montpellier, FRA <BR> Feb. 01 - Mephisto - Barcelona, SPA <BR> Feb. 02 - Sala Jam - Bergara, SPA <BR> Feb. 03 - Hard Club - Porto, POR <BR> Feb. 04 - TBA <BR> Feb. 05 - Koslow - Bordeaux, FRA <BR> Feb. 06 - TBA - Paris, FRA <BR> Feb. 07 - Underworld - London, UK <BR> Feb. 08 - Biebob - Vosselaar, BEL <BR> Feb. 09 - Struik - Lemelerveld, NETH <BR> Feb. 10 - Boerderij - Zoetermeer, NETH</p>
+
+Автор: Yermola
+
+### 04.09.2002 news Эпика от Камелот...
+
+<p>Флоридско/Норвежские пауэрщики "Kamelot" выбрали "Epica" в качестве названия для своего нового шестого по счету альбома. Сейчас группа вместе с продюссерами Sascha Paeth и Miro (Rhapsody, Angra) занята записью в германской Gate Studios в Вольфсбурге. <BR><BR> "Новые песни имеют обычный саунд Kamelot'а, а концепция лирики отправит слушателя в путешествие по всему миру... " - говорится в официальном пресс-релизе. "Эпика - это еще один шаг группы к вершинам металлической музыки".<BR><BR> Дата выхода - январь 2003. Лэйбл - Noise/Sanctuary Records.</p>
+
+Автор: Yermola
+
+### 04.09.2002 news Kamelot have set Epica....
+
+<p>Floridian/Norwegian power metallers Kamelot have set Epica as the title of their forthcoming, sixth studio album. Epica is currently being recorded at Gate Studios in Wolfsburg, Germany with producers Sascha Paeth and Miro (Rhapsody, Angra). <BR><BR> "The new songs contain the Kamelot sound with an emphasis on a lyrical and musical concept that takes the listener through a journey around the world," stated an official press release. "Epica will prove to be another step in Kamelot's ascension to the top of the metal arena." <BR><BR> Kamelot's Epica is due out sometime in early 2002 (January, February) through Noise/Sanctuary Records. Stay tuned for more information on Kamelot.</p>
+
+Автор: Yermola
+
+### 13.12.2002 news Новости от KAMELOT
+
+<p>Флоридские prog-power металлисты из группы KAMELOT выпускают 4 февраля 2003 года на Sanctuary/NOISE Records свой новый альбом под названием "Epica". Альбом продолжает грандиозные музыкальные традиции группы, лирическая концепция альбома основана на произведении Гете "Фауст". Продюсеры альбома - Sascha Paeth и Miro. В качестве гостей при записи альбома засветились Luca Turilli (RHAPSODY), Ian Parry (ELEGY) и Robert Hunecke-Rizzo (HEAVEN'S GATE и VIRGO). Трэк-лист альбома содержит следующие вещи:</p>
+<p> 1. Prologue <BR> 2. Center of the Universe <BR> 3. Farewell <BR> 4. Interlude I (Opiate Soul) <BR> 5. The Edge of Paradise <BR> 6. Wander <BR> 7. Interlude II (Omen) <BR> 8. Descent of the Archangel <BR> 9. Interlude III (At the Banquet) <BR> 10. A Feast for the Vain <BR> 11. On the Coldest Winter Night <BR> 12. Lost & Damned <BR> 13. Helena's Theme <BR> 14. Interlude IV (Dawn) <BR> 15. The Mourning After <BR> 16. III Ways to Epica</p>
+
+Автор: Dimas
+
+### 04.02.2003 reviews Добро пожаловать в эпицентр Вселенной
+
+<p>Шестой альбом флоридских prog-power металлистов из группы KAMELOT удался на славу! Альбом продолжает грандиозные музыкальные традиции группы, эпический power metal c лирической концепцией основанной на произведении Гете "Фауст". Главные персонажи этого концептуального творения - Ariel, Helena и Mephisto. Epica - это своеобразный центр Вселенной, место сосредоточения всех человеческих мыслей, надежд и мечтаний. Альбом настолько монументален и эпичен, что при прослушивании поневоле погружаешься во внутренний мир альбома и начинаешь сопереживать главным героям. Музыкальный материал на альбоме самого высокого уровня. Достаточно просто посмотреть на список гостей альбома (среди которых Gunter Werno (VANDEN PLAS), Luca Turilli (RHAPSODY), Robert Huneckke Rizzo (HEAVENS GATE), Ian Parry (ELEGY)) и становится понятно, что была проделана огромнейшая работа при записи альбома. Шестнадцать сложенных в единое неразрывное целое композиций отличаются большим разнообразием и выполнены в melodic power ключе с прогрессивными элементами. Несмотря на то, что продюссированием альбома снова занимался дуэт Sascha Paeth и Miro, на новом альбоме группы почти не наблюдается музыки в стиле RHAPSODY, в отличие от предыдущего альбома "Karma". Тяжелые и мелодичные композиции с использованием местами женских вокалов, грегорианских хоров и оркестровых вставок. Как всегда, хорош вокал Khan'a, да и Youngblood отлично работает с гитарой, выдавая гармоничные звуки сложенные в красивые мелодии. Музыка группы стала более прогрессивной и более симфоничной. Этот альбом из разряда тех, что можно переслушивать раз за разом, не теряя интереса к нему, а потому и писать про него можно долго и много. Но я этого делать не стану. Лучше купите альбом и наслаждайтесь этой музыкой сколько угодно.</p>
+
+Автор: Dimas
+
+### 10.03.2003 news Новый альбом AT VANCE
+
+<p>19 мая 2003 года на AFM Records выйдет новый альбом германской neoclassical melodic power metal группы AT VANCE под названием "The Evil In You". После этого, группа отправляется в европейский тур вместе с KAMELOT.</p>
+
+Автор: Dimas
+
+### 17.07.2003 news KAMELOT на SPV&#x2F;Steamhammer
+
+<p>Американские power металлеры KAMELOT подписали контракт на выпуск своих следующих альбомов с SPV/Steamhammer Records. Музыканты уже начали работу над новым материалом и готовятся в скором времени отправиться в студию.</p>
+
+Автор: Dimas
+
+### 12.08.2004 news KAMELOT почти закончили запись нового альбома
+
+<P><IMG height=249 alt="Thomas Youngblood" hspace=0 src="/images/news_rus/2004.08/6915.jpg" width=200 align="right" border=5>Новый альбом <B>KAMELOT </B>выйдет ещё до конца года на <B>SPV</B>. Вот некоторые названия песен: <B>"Pride"</B>, <B>"Abandoned"</B>, <B>"March of Mephisto"</B>, <B>"Nothing Ever Dies"</B> and <B>"Serenade"</B>.</P>
+<P><B>Thomas Youngblood</B>&nbsp;(гитара): "<I>После 24 часов дороги я наконец-то дома во Флориде. В Германии погода не очень - жарко и солнечно. Альбом ещё не готов полностью, но 90 процентов работы окончено. Также мы встречались с <B>Derek Gores, </B>который нарисовал свой очередной фантастический кавер для нашей новой работы</I>".&nbsp;</P>
+Автор: Vit Belov
+
+### 29.10.2004 news KAMELOT закончили запись нового альбома
+
+<P>Новый альбом <STRONG>KAMELOT 'The Black Hal</STRONG>o'&nbsp;выходит в январе-феврале на<STRONG> SPV</STRONG>, а группа собирается в тур. На двух песнях на этой пластинке сыграл клавишник <STRONG>STRATOVARIUS Jens Johansson</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 06.01.2005 news Дата релиза нового альбома KAMELOT
+
+<P><STRONG>KAMELOT </STRONG>выпускают новый альбом <STRONG>'The Black Halo'</STRONG> 14 марта на <STRONG>SPV</STRONG>. Первое издание будет в формате digi-pack и будет содержать бонус-материал.</P>
+Автор: Vit Belov
+
+### 21.01.2005 reviews Эпика: сделка Камелота с Мефистофелем
+
+<P>Новый альбом американских (формально) прог-пауэрщиком Kamelot под названием "The Black Halo" вот-вот увидит свет, а мы пока поговорим об их предыдущей работе под лаконичным, но "говорящим" названием "Epica". Альбом во многом вдохновлен гётовским "Фаустом" и является, само собой разумеется, концептуальным. Музыкально его можно было бы назвать просто симфо-прог-пауэр-металом, но "Epica" вобрал в себя намного больше, чем просто слитые воедино элементы различных стилей. Здесь мы слышим влияния и классики, и фолка, тут звучат неожиданные вкрапления аккордеона ('Lost & Damned') и акустического баса ('On The Coldest Winter Night'). Пригласи Kamelot кучу вокалистов, и перед нами была бы еще одна метал-опера, причем сделанная весьма и весьма фундаментально. Вообще, данная работа выдержана на том уровне, когда говоришь, что практически ничего лишнего нет и ничего не надо добавлять. Возможно, альбом бы получился более разнообразным и живым, не будь вокал Roy Khan'а столь "академичным". Запись, исполнение и продюсирование (Саша Паэт и Миро) на высоте, а помогали "камелотовцам", серди прочих, Miro, вокалистка Mari, Sascha Paeth и Luca Turilli. Жаль, что на выпущенной "Союзом" по лицензии альбом не попали бонус-трэк 'Snow' и мультимедийная секция, которые были добавлены на дигипачное издание "Epica".</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 21.03.2005 news Видео KAMELOT
+
+<P><STRONG>KAMELOT</STRONG> разместили видео-клипы со своего нового альбома "<STRONG>The Black Halo</STRONG>" на официальном сайте. "<STRONG>March Of Mephisto</STRONG>" - <A href="http://www.kamelot.com/mom_videodetails_en_mephisto.htm">http://www.kamelot.com/mom_videodetails_en_mephisto.htm</A>&nbsp;, "<STRONG>The Haunting</STRONG>" - <A href="http://www.kamelot.com/th_videodetails_en_mephisto.htm">http://www.kamelot.com/th_videodetails_en_mephisto.htm</A></P>
+Автор: Vit Belov
+
+### 31.03.2005 reviews Мефистофель и Камелот не расстаются
+
+<P>Могу с уверенностью сказать, что новейший релиз американо-норвежских мастеров прог-пауэра Kamelot под мрачным названием "The Black Halo" станет одной из "бомб" года в данном стиле. Как и предыдущий альбом группы "Epica", мне данную пластинку пришлось "расслушивать", так как сначала она мне не показалась чем-либо выдающимся. Думаю, это самый мрачный диск Kamelot, но все фирменные знаки никуда не делись. Опять-таки "The Black Halo" слушается эдакой мини-металоперой, но этот альбом будет поразнообразнее той же "Epica", в первую очередь, за счет вокала Khan'a, который отбросил к чёрту свою "академичность" и показал, на что он действительно способен. То, что у Rhapsody превратилось в позорный помпезный кич, у Kamelot приобрело чёткие границы и выверенные до последней ноты дозировки оркестровок и хоров. Ну а какие гости на альбоме! После открывающего эпика 'March Of Memphisto' с участием Шаграта (Dimmu Borgir) и Йенса Йоханссона (Stratovarius) мне захотелось выбросить к чёртовой матери не менее десятой части своей коллекциии дисков, ибо находиться на одной полке рядом с таким шедевром позволено далеко не каждому! Почетную гостевую команду дополняют Simone Simons (Epica), Mari (Masqueraid), Herbie Langhans (7th Avenue), Miro, Thomas Rattke (Heaven's Gate) и другие. Продюсированием занимались вновь Саша Паэт и Миро, так что и на этот счет можете быть спокойны. Великолепное сочетание совершенно разных вокалов, яркие мелодии, зачастую классические, но при этом совершенно не скучные построения композиций, то торжественно-тяжелые, то воздушно-легкие клавишные - и всё это стянуто в тугую, но прочную, не подверженную разрыву струну: вот что затягивает с первых секунд прослушивания "The Black Halo", и спустя почти час вас постигает лишь одно разочарование: пластинка уже закончилась. Повторюсь, к таким мыслям и чувствам я пришел, послушав альбом раз пять. Не гадайте, плюс это или минус - ваши уши скажут вам намного больше, чем сотни и тысячи слов других людей.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 28.02.2006 news KAMELOT работают над альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KAMELOT</STRONG> уже работают над песнями к новому альбому, запись которого начнётся летом. В настоящее время коллектив также заканчивает работу над первым DVD <STRONG>'One Cold Winter's Night', </STRONG>который выйдет осенью/зимой.</FONT></P>
+Автор: Vit Belov
+
+### 06.09.2006 news CD&#x2F;DVD от KAMELOT
+
+<P><STRONG>KAMELOT</STRONG> выпускают свой первый CD/DVD релиз "<STRONG>One Cold Winter's Night</STRONG>" 30 октября на <STRONG>SPV</STRONG>. Шоу для альбома было записано в феврале в Норвегии. Трэк-лист:</P>
+<P>DVD 1 </P>
+<P><IMG height=320 alt="" hspace=0 src="/images/news_rus/2006.09/10687.jpg" width=237 align=right border=5>1. <STRONG>Intro: Un Assasino Molto Silenzioso</STRONG><BR>2. <STRONG>The Black Halo</STRONG><BR>3. <STRONG>Soul Society</STRONG><BR>4. <STRONG>The Edge of Paradise</STRONG><BR>5. <STRONG>Center of the Universe</STRONG><BR>6. <STRONG>Nights Of Arabia</STRONG><BR>7. <STRONG>Abandoned<BR></STRONG>8. <STRONG>Forever<BR></STRONG>9. <STRONG>Keyboard Solo</STRONG><BR>10. <STRONG>The Haunting</STRONG><BR>11. <STRONG>Moonlight<BR></STRONG>12. <STRONG>When The Lights Are Down</STRONG><BR>13. <STRONG>Elizabeth (Part I, II & III)<BR></STRONG>14. <STRONG>March Of Mephisto</STRONG><BR>15. <STRONG>Karma<BR></STRONG>16. <STRONG>Drum Solo</STRONG><BR>17. <STRONG>Farewell<BR></STRONG>18. <STRONG>Curtain call/Outro</STRONG> </P>
+<P>DVD 2 </P>
+<P>Behind the Scenes, Band interviews, Making of <STRONG>'The Haunting'</STRONG>, Up-close interview with <STRONG>Thomas Youngblood</STRONG> at home, <STRONG>Casey Grill</STRONG> at ddrum, Interview with <STRONG>Simone Simons</STRONG> from <STRONG>EPICA</STRONG>, Huge photo gallery, Band Bio and Top 5, Discography </P>
+<P>Videos -<STRONG> 'The Haunting', 'March Of Mephisto', 'March Of Mephist' (uncensored), 'Serenade', 'March Of Mephisto'</STRONG> live at Sweden Rock 2006 </P>
+Автор: Vit Belov
+
+### 12.12.2006 reviews Горячий триумф морозным норвежским вечером
+
+<P>"One Cold Winter's Night" это второй концертник группы Kamelot. Представленные на нем вещи в основном из последних трех альбомов: "The Black Halo" (7), "Epica" (3) и "Karma" (3). Одной вещью представлен более ранний "The Fourth Legacy" ('Night Of Arabia'), а вот с первых трех пластинок ни одной песни тут нет. Впрочем, ничего удивительно, что они сделали акцент на более новые песни. Для любого фаната Kamelot это настоящий подарок, тем более, что выбирать можно между тремя изданиями: двойной CD, двойной DVD или же 2 CD +2 DVD (между прочим, концерт снимали с 18 (!) камер). Прежде всего стоит отметить, в какой отличной форме находится вокалист Roy Khan, порой просто невозможно поверить, что он поет вживую ничуть не хуже, чем на студийный альбомах. При этом данной пластинке свойственен именно живой звук, ибо слышно, что его "не доделывали" в студии (или правили совсем уж немного). Нет характерного для студийника более жирного, мощного и плотного саунда, что кому-то может и не понравиться, но зато аутентичность сохранена. Хотя зрителей слышно в основном только в перерывах между песнями, но слишком ли это мешает? Вообще, не только Khan, но и вся группа сейчас в прекрасной форме, что она&nbsp;и подтверждает на данном концерте, состоявшимся действительно морозным вечером 11-го февраля 2006-го года в столице Норвегии Осло в зале Rockefeller Musichall. Не обошлось и без приглашенных участников: Sascha Paeth, Simone Simons, Elisabeth Kajarnes, Snowy Shaw, Mari Yooungblood... Не хватает разве что Шаграта, но тот, видимо, либо не смог, либо не захотел участвовать в данном перформансе. Так что от покупки этого концертника вас могут "отпугнуть" только две вещи: вы вообще не любите такую музыку и Kamelot в частности, или вам нравятся только первые альбомы группы. Для полного счастья надо приобретать, конечно же, и DVD, ибо, как утверждают смотревшие его, это еще более интересно, чем слушать просто аудиодиск (кстати, так бывает далеко не всегда). Я же, не будучи страстным поклонником группы, но более чем позитивно воспринимая ее творчество, ставлю оценку, близкую к очень хорошо.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 22.03.2007 news Новый альбом KAMELOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>KAMELOT "Ghost Opera"</STRONG> выйдет 4 июня на <STRONG>SPV</STRONG>. Пластинка была записана в <STRONG>Gate Studio</STRONG> и <STRONG>Pathway Studios</STRONG>&nbsp;вместе с продюсерами <STRONG>Sascha Paeth</STRONG> и <STRONG>Miro</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 10.05.2007 news Концерт KAMELOT перенесён
+
+<P><STRONG>KAMELOT</STRONG> сообщили о переносе своего московского концерта на 18 июня. У группы возникли проблемы с получением&nbsp;российских виз.</P>
+Автор: Vit Belov
+
+### 07.08.2007 reviews Прыгнуть выше головы не получилось
+
+<P>Вкладывая новый диск группы Kamelot "Ghost Opera" в свой CD-плейер, я ожидал услышать некий концептуальный альбом продолжительностью эдак с часик или даже больше. Однако оба раза мимо. "Ghost Opera" концепции не содержит и длится всего 44 минуты. "Solch 'ne Ueberraschung", возникла в голове фраза по-немецки, и я принялся изучать буклет, правда, довольно быстро бросил это занятие, так как что-либо прочитать мелким курсивом. не ломая при этом глаз, попросту невозможно (за подобные выходки всегда хочется оторвать руки дизайнерам буклетов, или как они там себя гордо величают). Но вернёмся к музыке.&nbsp;Я был почти восхищен предыдущей работой Kamelot, "The Black Halo", и, честно говоря, надеялся, что эти чародеи прогрессивного пауэра (а я их считаю лучшими представителями жанра) выдадут опять что-то такое эдакое. Но... признаться, я был после прослушивания пластинки несколько разочарован. Да, вроде всё на месте, всё как надо, звук вообще вне всяких похвал - я редко когда встречаю такую стену звука (притом кристально чистую) у команд, играющих пауэр - Khan показывает всё, на что он способен (притом с нехилым таким запасом), и с симфонизмом не переборщили, но... Опять это "но". И этого самого "но" не хватает, чтобы сказать: "Блестящий альбом!" Да, Kamelot дадут и с "Ghost Opera" сто очков вперёд любому прог-пауэрному акту (да и чуть ли не любому прог-метальному), но прыгнуть выше головы у них не получилось. "А ведь могли", проскользнула мысль. "А, может, и не могли", тут же появилась другая. Ведь группе, поставившей довольно высоко планку самой себе, приходится очень тяжело: ведь вы понимаете, что,&nbsp;например,&nbsp;после рекордного прыжка в высоту от спортсмена в следующий раз ждут покорения еще большей высоты и разочарованно разводят руками, если такового не последовало, и никого не волнует, что это не так уж&nbsp;просто. Впрочем, хватит лирических отступлений. Kamelot записали хороший альбом, о котором иная группа не могла бы даже и мечтать. Но себя они не превзошли и даже, наверное, до своих рекордов не добрались. Но ставить этой работе меньше семи баллов было бы, простите, просто кощунством. Добавлю, что "Ghost Opera" доступна также в формате Limited Edition с бонус-трэком и бонус-DVD, в который вошли интервью, студийные съемки и making of.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 03.01.2009 news KAMELOT тоже рассказали
+
+<P><STRONG>KAMELOT</STRONG> тоже сообщили своим фэнам о ближайших планах. Группа собирается в масштабный "хэдлайнер" тур по Европе с заедом в Великобританию. В январе коллектив соберётся в Норвегии и начнёт готовить будущий альбом.</P>
+Автор: Vit Belov
+
+### 29.04.2009 news KAMELOT войдут в студию
+
+<P>В июне<STRONG> KAMELOT</STRONG> войдут в студию в июне этого года. Пластинка должна выйти в 2010 году.</P>
+Автор: Vit Belov
+
+### 13.05.2009 news Новый клип KAMELOT
+
+<P>Новый клип<STRONG> KAMELOT</STRONG>&nbsp;на песню "<STRONG>Love You To Death</STRONG>" можно посмотреть ниже. Видео было снято в Белграде, Сербия местной компанией<STRONG> ICode</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=220 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=4602208&server=vimeo.com&show_title=0&show_byline=0&show_portrait=0&color=00ADEF&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=4602208&server=vimeo.com&show_title=0&show_byline=0&show_portrait=0&color=00ADEF&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="220"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.12.2009 news KAMELOT взяли нового басиста
+
+<P>Новым басистом <STRONG>KAMELOT</STRONG> стал <STRONG>Sean Tibbetts, </STRONG>который является уже 2,5 года концертным музыкантом коллектива. Он, теперь на постоянной основе, заменил <STRONG>Glenn Barry, </STRONG>который не смог&nbsp;выдержать высокую занятость в группе.</P>
+Автор: Vit Belov
+
+### 19.05.2010 news Gus G. сыграет для KAMELOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>OZZY OSBOURNE/FIREWIND Gus G.</STRONG> сыграл соло для одной из песен с нового альбома <STRONG>KAMELOT</STRONG>. Гитарист этой группы <STRONG>Thomas Youngblood</STRONG> сообщил, что они договорились об этом ещё несколько лет назад, когда <STRONG>KAMELOT</STRONG> ездили в тур в Японию вместе с <STRONG>DREAM EVIL</STRONG>, где <STRONG>Gus G.</STRONG> тогда играл. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Другим контрибутором на будущей работе выступила певица<STRONG> EPICA Simone Simons</STRONG>, которая уже не первый раз участвует в записи новой работы <STRONG>KAMELOT</STRONG>. <STRONG>Simone</STRONG> является девушкой клавишника этой группы <STRONG>Oliver Palotai, </STRONG>с которым также записывала другой проект <STRONG>SON OF THE SEASONS</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 05.08.2010 news Обложка нового KAMELOT
+
+<P>Новая пластинка <STRONG>KAMELOT</STRONG> <STRONG>"Poetry For The Poisoned" </STRONG>выходит 10 сентября на <STRONG>earMUSIC</STRONG>/<B>Edel</B>.&nbsp;Альбом был записан в <STRONG>Gate Studios</STRONG> в Германии с продюсерами <STRONG>Sascha Paeth</STRONG>&nbsp;и <B>Miro</B>. В записи приняли участие приглашённые звёзды: <STRONG>Simone Simons</STRONG> (<B>EPICA</B>), <B>Gus G.</B> (<B>OZZY OSBOURNE</B>, <B>FIREWIND</B>), <B>Bjorn "Speed" Strid</B> (<B>SOILWORK</B>)&nbsp;и <B>Jon Oliva</B> (<B>SAVATAGE</B>, <B>JON OLIVA'S PAIN</B>). Обложку, которую вы можете видеть ниже, создала группа художников в составе <STRONG>Seth Siro Anton</STRONG>, <B>Natalie Shau</B> и <B>Michal Loranc</B>.</P>
+<P><center><IMG height=406 src="/images/news_rus/2010.08/16997.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 29.08.2010 news Сэмплы от KAMELOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Три с половиной минуты новой музыки от <STRONG>KAMELOT</STRONG> доступны на их <STRONG>MySpace</STRONG> странице: <A href="http://www.myspace.com/kamelot">http://www.myspace.com/kamelot</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сэмпл состоит из фрагментов композиций, которые попадут на новый альбом группы <STRONG>"Poetry For The Poisoned",</STRONG> выходящий 10 сентября.</FONT></P>
+Автор: Vit Belov
+
+### 23.09.2010 news KAMELOT попали в чарты Billboard
+
+<P>Новый альбом <STRONG>KAMELOT</STRONG> <STRONG>"Poetry For The Poisoned" </STRONG>в первую неделю продаж очутился на 74-ом месте в чартах <STRONG>Billboard 200</STRONG>. Группой было продано 6100 экземпляров пластинки.</P>
+<P>На этой неделе новый эпос <STRONG>KAMELOT </STRONG>выходит и в России на <STRONG>Союзе</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.12.2010 news Fabio Lione присоединился к KAMELOT
+
+<P><IMG height=292 alt="Fabio Lione" hspace=0 src="/images/news_rus/2010.12/17883.jpg" width=200 align=right border=0>Вокалист <STRONG>Roy Khan</STRONG> по личным и медицинским причинам не сможет продолжить тур вместе со своей группой <STRONG>KAMELOT</STRONG>. Музыканты быстро нашли замену, исполнять партии вокала на концертах будет фронтмен <STRONG>RHAPSODY OF FIRE Fabio Lione</STRONG>. Ему помогать будут <STRONG>Simone Simons</STRONG> (<B>EPICA</B>)&nbsp;и <B>Tommy Karevik</B> (<B>SEVENTH WONDER</B>). </P>
+Автор: Vit Belov
+
+### 21.01.2011 reviews Разбег на рубль, удар на копейку
+
+<P>Американцы KAMELOT заслуженно заняли своё почётное место в когорте нетривиальных power-metal групп современности. Их альбомы, начиная с пластинки 1999 года “The Fourth Legacy”, всегда радовали поклонников «power-metal&nbsp; с наворотами». Музыканты щедро разбавляли своё творчество неоклассическими мелодиями и нестандартными ритмическими решениями. В определённый момент к определению ‘power’ плотно приклеился и ярлык ‘progressive’. Похоже, это смутило самих исполнителей.</P>
+<P>Всем понятно, что до сложности progressive-metal KAMELOT далековато. Группе явно не хватало красок, чтобы раскрыть перед слушателем полноценную музыкальную панораму. Добавить в стандартному мелодичному power-metal музыку Э. Грига - это одно, а сочинять комплексные рок-оперы – это совсем другое. На новейшем альбоме “Poetry For The Poisoned” KAMELOT не в первый раз решили поразить слушателя концептуальностью. Интересно, что на первых порах пластинка действительно завораживает. Чувствуется, что события развиваются неспешно, но скоро нас ждёт нечто такое, что ввергнет в культурный шок и навсегда переменит все наши представления о тяжёлом prog-metal. К несчастью, до самого конца у KAMELOT так ничего и не происходит. Изредка подпевают приглашённые вокалисты, особо отмечу Jon Oliva, чей голос великолепно подходит для подобных, повествовательных, альбомов, но каких-то ярких откровений KAMELOT подготовить не удаётся. Подобные произведения часто встречаются во всех жанрах современного искусства. Всё красиво, всё высокобюджетно, но совершенно пусто и малоинтересно. После прослушивания подобного альбома или просмотра подобного фильма всегда хочется задать вопрос, зачем мы потратили драгоценные часы своей жизни.</P>
+<P>KAMELOT имеют высокий статус на современной тяжёлой сцене, это несомненно. PR-менеджеры этой американской группы знают своё дело, но подкрепить шумиху качественным музыкальным материалом у KAMELOT не получается.</P>
+Автор: Vit Belov
+
+### 24.04.2011 news Roy Khan всё-таки покинул KAMELOT
+
+<P>Вокалист<STRONG> Roy Khan</STRONG> окончательно покинул<STRONG> KAMELOT</STRONG>. Напомним, недавно певец уже не смог отправиться в тур вместе с группой, и на его замену был вызван <STRONG>Fabio Lione</STRONG> из <STRONG>RHAPSODY OF FIRE</STRONG>.&nbsp;Оставшиеся участники коллектива пожелали <STRONG>Roy</STRONG> успеха и начали поиска нового музыканта.</P>
+<P>
+<CENTER><IMG height=333 src="/images/news_rus/2011.04/19293.jpg" width=500 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.11.2011 news Новое видео KAMELOT
+
+<P>Новый клип <STRONG>KAMELOT </STRONG>на песню <STRONG>"Necropolis" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома коллектива <STRONG>"Poetry For The Poisoned"</STRONG>, который вышел в прошлом году. </P>
+<P>В январе коллектив войдёт в студию к продюсеру <STRONG>Sascha Paeth</STRONG> для записи нового альбома с пока не названным новым вокалистом.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/r8pd99KBLjs?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/r8pd99KBLjs?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 20.07.2012 news KAMELOT назвали альбом
+
+<P>Новая работа<STRONG> KAMELOT</STRONG> получила название <STRONG>"Silverthorn". </STRONG>Альбом выйдет 25 сентября на <STRONG>SPV</STRONG> и станет дебютом для нового вокалиста коллектива <STRONG>Tommy Karevik (SEVENTH WONDER).</STRONG></P>
+<P>Ниже можно увидеть рекламный плакат этого альбома, который не является его обложкой.</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.07/24400.jpg" width=475 height=475></P>
+Автор: Vit Belov
+
+### 03.10.2012 news NIGHTWISH расстались с Anette Olzon, объявлена временная замена
+
+<P>1 октября финская группа <STRONG>NIGHTWISH</STRONG> опубликовала на своём официальном сайте следующее заявление:</P>
+<P><EM>"Еще одна глава истории <STRONG>NIGHTWISH</STRONG> закончилась сегодня. <STRONG>NIGHTWISH</STRONG> и <STRONG>Anette Olzon</STRONG> решили расстаться, по взаимному согласию, на благо всех заинтересованных сторон.</EM></P>
+<P><EM>В последнее время стало всё более очевидо, что существует конфликт относительно направления и потребностей группы, это и привело к раздору, который мы не можем уладить.</EM></P>
+<P><EM><STRONG>NIGHTWISH</STRONG> не собираются отменять какой-либо из предстоящих концертов, и&nbsp;по этому&nbsp;мы решили привлечь временную вокалистку на замену, начиная с выступления в Сиэтле 1 октября 2012. Её зовут <STRONG>Floor Jansen</STRONG>, (ex-<STRONG>AFTER FOREVER</STRONG>, <STRONG>REVAMP</STRONG>) она из Голландии, и она любезно согласилась помочь нам завершить мировое турне в поддержку альбома&nbsp;<STRONG>"Imaginaerum"</STRONG>.</EM></P>
+<P><EM>Мы все твердо преданы нашему пути, этой машине&nbsp;духа, и мы уверены, что расставание приведет обе стороны&nbsp;к более светлому будущему.</EM></P>
+<P><EM>Мы всегда будем в восторге от грядущих приключений, мы очень гордимся двумя прекрасными альбомами и замечательными концертами, которые мы&nbsp;отграли вместе." </EM></P>
+<P>- <EM><STRONG>NIGHTWISH</STRONG>&nbsp;и <STRONG>Anette Olzon</STRONG>.</EM></P>
+<P>Незадолго до этого, 28 сентября, на концерте в Денвере, бэк-вокалистки группы <STRONG>KAMELOT&nbsp;-</STRONG>&nbsp;<STRONG>Elize Ryd</STRONG> (также в <STRONG>AMARANTHE</STRONG>) и <STRONG>Alissa White-Glu</STRONG>z (также в <STRONG>THE AGONIST</STRONG>), заменили заболевшую <STRONG>Anette Olzon</STRONG>. Как потом написала у&nbsp;себя в блоге (<A href="http://anette-olzon.blogspot.com/">http://anette-olzon.blogspot.com</A>)&nbsp;последняя, участники <STRONG>NIGHTWISH</STRONG> произвели&nbsp;замену без какого-либо на то согласия с её стороны.</P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.10/24858.jpg" width=541 height=474> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 27.10.2012 news Новый клип KAMELOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ролик<STRONG> KAMELOT</STRONG> На песню <STRONG>"Sacrimony (Angel Of Afterlife)" </STRONG>можно посмотреть ниже. Трек взят с новейшей работы progressive-power банды <STRONG>"Silverthorn"</STRONG>, который только что вышел на <STRONG>SPV</STRONG>. В клипе отметились <STRONG>Elize Ryd</STRONG> (<B>AMARANTHE</B>)&nbsp;и <B>Alissa White-Gluz</B> (<B>THE AGONIST</B>).</FONT></P>
+<P>&nbsp;<center><iframe width="640" height="360" src="http://www.youtube.com/embed/LvWT-7l6vJU?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.09.2015 news Новое видео KAMELOT с участием вокалистки ARCH ENEMY
+
+<P>Новый клип <STRONG>KAMELOT “Liar Liar (Wasteland Monarchy)”</STRONG> можно посмотреть ниже. В одной из ролей в видео снялась вокалистка<STRONG> ARCH ENEMY Alissa White-Gluz</STRONG>. Трек взят с альбома <STRONG>KAMELOT "Insomnia"</STRONG>, который вышел на <STRONG>Napalm Records</STRONG> и <STRONG>Mazzar</STRONG>.</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/VDLZ6Mqy7AM" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Kamelot - Karma

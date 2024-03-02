@@ -129,6 +129,128 @@ Sida De La Mente
 * C группой "Fear Factory" Dino Cazares
 * C группой "Fear Factory" Raymond Herrera
 
+## Публикации
+
+### 27.11.2000 news Новая порция гниющего мяса
+
+<p>Мясники из патологической команды "Brujeria" обрадовали мир новым релизом. Альбом, не долго думая, назвали "Brujerizmo". Трек-лист: Brujerizmo, Vayad Sin Miedo, La Traicion, Pititis Te Invoco, Laboratorio Cristalitos, Division Del Norte, Marcha De Odio, Anti-Castro, Cuiden A Los Ninos, El Bajon, Mecosario, El Desmadre, Sida De La Mente.</p>
+
+Автор: Yermola
+
+### 21.02.2001 news Номинирование Brujeria...
+
+<p>Что общего между Brujeria, Кристиной Агилера, Рики Мартином и Дженифер Лопез? Не так мало как вы подумали! Все они номинированы на 2001 Billboard Latin Music Award. Brujerizmo - проходит в категории Latin Rock Album Of The Year. Результаты будут опубликованы 26 апреля. Мд-а-а... Похоже грайнд становится понемногу явлением массовой поп-культуры....</p>
+
+Автор: Yermola
+
+### 21.02.2001 news Brujeria nominated!!!
+
+<p>Which one of the following does not belong - Gloria Estefan, Ricky Martin, Christina Aguilera, Jennifer Lopez, Enrique Iglesias, Brujeria. If you chose Jennifer Lopez, you are absolutely correct. The rest of the acts all hold one thing in common - they are all 2001 Billboard Latin Music Award nominees. It's true! That's right! Brujeria's Brujerizmo has been nominated under the category for Latin Rock Album Of The Year in this year's Billboard Latin Music Awards. Like I said, it's all about the company you keep... The results will be known April 26th, we'll let you know the outcome.</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Мексиканский брухо уходит с Roadrunner ...
+
+<p>Злобный мексиканский колдун в лице гитариста Дино Казареса, барабанщика Рэймонда Херреро и бассиста Билли Гоулда ушел с лэйбла Roadrunner Records и следующий альбом выйдет уже на новой собственной фирме Kool Arrow Records. Последний релиз группы "Mextremist Greatest Hits" (содержащий альтернативные варианты песен с трех релизов для Роадраннер) с сегодняшнего дня находится в продаже...</p>
+
+Автор: Yermola
+
+### 23.10.2001 news Mextremist Greatest Hits ...
+
+<p>BRUJERIA, which features in its ranks FEAR FACTORY guitarist Dino Cazares, drummer Raymond Herrera and ex-FAITH NO MORE bassist Billy Gould, has severed ties with their label, Roadrunner Records, and will be releasing their next album on their own label, Kool Arrow Records. The group’s latest release, Mextremist Greatest Hits, is a collection of classic BRUJERIA songs, as well as alternate versions of songs from their three releases on Roadrunner Records. Mextremist Greatest Hits comes out on October 23rd. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 11.07.2003 news Изменения в BRUJERIA
+
+<p>Новым басистом BRUJERIA стал Shane Embury (NAPALM DEATH), заменивший Billy Gould (ex-FAITH NO MORE). Теперь в составе группы, помимо него, вокалист El Brujo, гитарист Dino Cazares (ex-FEAR FACTORY) и ударник Nick Barker (DIMMU BORGIR, ex-CRADLE OF FILTH).</p>
+
+Автор: Dimas
+
+### 12.07.2003 news Roadrunner Records восстанавливает корни
+
+<p>Roadrunner Records планирует беспрецедентную акцию под названием "The Roots Of Roadrunner". Это будет выпуск серии дисков "The Best Of" от различных известных команд с лэйбла с аннотацией от известных музыкантов, являющихся поклонниками этих коллективов. Выход первых семи дисков из серии запланирован на 22 сентября 2003 года. Среди них:</p>
+<p> "Best Of DEICIDE" <BR> Аннотации от Joey Jordison (SLIPKNOT)</p>
+<p> 1. Dead By Dawn <BR> 2. Carnage In The Temple Of The Damned <BR> 3. Lunatic Of God's Creation<BR> 4. Sacrificial Suicide <BR> 5. Crucifixation <BR> 6. Satan Spawn, The Caco-Daemon <BR> 7. Trifixion <BR> 8. In Hell I Burn <BR> 9. Dead But Dreaming <BR> 10. Once Upon The Cross <BR> 11. They Are The Children Of The Underworld <BR> 12. When Satan Rules His World <BR> 13. Trick Or Betrayed <BR> 14. Behind The Light Thou Shall Rise <BR> 15. Serpents Of The Light <BR> 16. Bastard Of Christ <BR> 17. Blame It On God <BR> 18. This Is Hell We're In <BR> 19. Bible Basher <BR> 20. Standing In The Flames</p>
+<p> "Best Of BRUJERIA" <BR> Аннотация от Hank Williams III (SUPERJOINT RITUAL)</p>
+<p> 1. Pura De Venta <BR> 2. Leyes Narcos <BR> 3. Matando Gueros <BR> 4. Castigo Del Brujo <BR> 5. Sacrificio <BR> 6. Padre Nuestro <BR> 7. Raza Odida (Pito Wilson) <BR> 8. La Ley De Plomo <BR> 9. Colas De Rata <BR> 10. Hechando Chingasos (Grenudo Locos II) <BR> 11. La Migra (Cruza La Frontera II) <BR> 12. Consejos Narcos <BR> 13. Brujerizmo <BR> 14. Vayan Sin Miedo <BR> 15. Pititis, Te Invoco <BR> 16. Laboratorio Cristalitos <BR> 17. Division Del Norte <BR> 18. Anti-Castro <BR> 19. El Desmadre <BR> 20. Ritmos Satanicos</p>
+<p> "Best Of LIFE OF AGONY" <BR> Аннотация от TBC</p>
+<p> 1. This Time<BR> 2. River Runs Red <BR> 3. Through And Through <BR> 4. Bad Seed <BR> 5. Underground<BR> 6. Here I Am, Here I Stay <BR> 7. Damned If I Do <BR> 8. Lost At 22 <BR> 9. Other Side Of The River <BR> 10. Let's Pretend <BR> 11. How It Would Be <BR> 12. Tangerine <BR> 13. My Mind Is Dangerous <BR> 14. Weeds <BR> 15. Angry Tree <BR> 16. Honeycomb</p>
+<p> "Best Of KING DIAMOND" <BR> Аннотация от Dave Ellefson (ex-MEGADETH)</p>
+<p> 1. The Candle <BR> 2. Charon <BR> 3. Halloween <BR> 4. No Presents For Christmas <BR> 5. Arrival <BR> 6. A Mansion In Darkness <BR> 7. The Family Ghost <BR> 8. Abigail <BR> 9. Welcome Home <BR> 10. The Invisible Guests <BR> 11. Tea <BR> 12. At The Graves <BR> 13. Sleepless Nights <BR> 14. Eye Of The Witch <BR> 15. Burn</p>
+<p> "Best Of MERCYFUL FATE" <BR> Аннотация от Mark Hunter (CHIMAIRA)</p>
+<p> 1. Doomed By The Living Dead <BR> 2. A Corpse Without Soul <BR> 3. Nuns Have No Fun <BR> 4. Evil <BR> 5. Curse Of The Pharaohs <BR> 6. Into The Coven <BR> 7. Black Funeral <BR> 8. Satan's Fall<BR> 9. A Dangerous Meeting <BR> 10. Desecration Of Souls <BR> 11. Gypsy<BR> 12. Come To The Sabbath <BR> 13. Burning The Cross <BR> 14. Return Of The Vampire</p>
+<p> "Best Of MALEVOLENT CREATION" <BR> Аннотация от Deron Miller (CKY)</p>
+<p> 1. Eve Of The Apocalypse <BR> 2. Sacrificial Annihilation <BR> 3. Monster<BR> 4. Dominated Resurgency <BR> 5. Multiple Stab Wounds <BR> 6. Genetic Affliction (demo version) <BR> 7. Geared For Gain <BR> 8. Slaughter Of Innocence <BR> 9. Premature Burial <BR> 10. Decadence Within <BR> 11. The Way Of All Flesh <BR> 12. Iced <BR> 13. Carnivorous Misgivings <BR> 14. Remnants Of Withered Decay <BR> 15. The Coldest Survive <BR> 16. Thou Shall Kill! <BR> 17. Mindlock <BR> 18. Piece By Piece</p>
+<p> "Best Of MADBALL" <BR> Аннотация от Jamey Jasta (HATEBREED) и Roger Miret (AGNOSTIC FRONT)</p>
+<p> 1. Set It Off <BR> 2. New York City <BR> 3. It's Time <BR> 4. Across Your Face <BR> 5. Down By Law <BR> 6. Smell The Bacon (What's With You?) <BR> 7. Friend or Foe<BR> 8. Demonstrating My Style <BR> 9. Unity <BR> 10. Live Or Die <BR> 11. Pride (Times Are Changing) <BR> 12. Hardcore Still Lives! <BR> 13. Nuestra Familia <BR> 14. Ball of Destruction <BR> 15. Look My Way <BR> 16. Moment of Truth <BR> 17. Waste of Time <BR> 18. Been There, Done That <BR> 19. Talkin' To Myself <BR> 20. Fools Die</p>
+
+Автор: Dimas
+
+### 03.03.2004 news Nick Barker записывает с Brujeria новый альбом
+
+<P>Уволенный из <B>DIMMU BORGIR</B> барабанщик <B>Nick Barker</B> записывает в данный момент новый альбом вместе с <B>BRUJERIA</B>. Также Nick был близок к участию в <B>TESTAMENT</B>, но группа предпочла <B>Paul Bostaph</B>. </P>
+Автор: Vit Belov
+
+### 14.05.2016 news BRUJERIA &quot;поддержала&quot; Трампа
+
+<P>Экстремальные металисты <STRONG>BRUJERIA</STRONG> готовят к выпуску четвёртый альбом на <STRONG>Nuclear Blast</STRONG> в этом году. Коллектив подготовил к пятнице, 13 новый сингл с духоподъёмным названием<STRONG> "Viva Presidente Trump!"</STRONG>. Посмотреть лирик-видео можно ниже. Вокалист BRUJERIA <STRONG>Juan Brujo</STRONG> рассказал, что песня лежала довольно долгое время в запасниках, так как никак не удавалось придумать текст. «<EM>Песня должна была стать Anti-Castro, часть два, но текст не приходил, появился Трамп, и мы нашли друг друга</EM>». </P>
+<P>В настоящее время в «туровом» составе <STRONG>BRUJERIA</STRONG>, помимо прочих,&nbsp;числятся&nbsp;<STRONG>Jeff Walker (CARCASS)</STRONG> (a.k.a. El Cynico) на басу и<STRONG> Shane Embury (NAPALM DEATH)</STRONG> (a.k.a. Hongo) на гитаре.</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/dliVvMbWB4o" frameBorder=0 width=600 allowfullscreen=""></IFRAME></CENTER>
+<P></P>
+<P>&nbsp;Тем временем, нынешний президент США <STRONG>Барак Обама</STRONG> принимал у себя глав северных государств, в том числе президента Финляндии<STRONG> Sauli Niinisto</STRONG>. В своей приветственное речи хозяин Белого Дома похвалил Финляндию за хорошее государственное управление и heavy metal музыку. Что ж, есть за что!</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.05/29194.jpg" width=645 height=363></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 02.07.2016 news BRUJERIA выпускает первый альбом за 16 лет
+
+<p><strong>BRUJERIA</strong> назвали 16 сентября датой выхода нового альбома <strong>"Pocho Aztlan</strong>" на <strong>Nuclear Blast</strong>. Пластинка станет первой за 16 лет с момента выхода в 2000 году альбома <strong>"Brujerizmo</strong>". Сведение <strong>Russ Russel</strong> (NAPALM DEATH).&nbsp;</p><center><img width="640" height="640" src="/images/news_rus/2016.07/29522.jpg" border="0"><p></p><p>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 02.07.2016 news BRUJERIA to release first album in 16 years
+
+<p><strong>BRUJERIA</strong> called the September, 16 a release date for new album "<strong>Pocho Aztlan</strong>"&nbsp;via <strong>Nuclear Blast records</strong>. The record will be the first in 16 years since the release of the album "<strong>Brujerizmo</strong>" (2000) . Mixed by<strong> Russ Russel</strong> (NAPALM DEATH).</p><center><img width="640" height="640" src="/images/news_rus/2016.07/29522.jpg" border="0"><p></p><p>&nbsp;</p></center>
+Автор: Vit Belov
+
+### 29.07.2016 news Новый трек BRUJERIA
+
+<p>Четвёртый альбом <strong>BRUJERIA "Pocho Aztlan"</strong> выходит 16 сентября (день Мексики) на <strong>Nuclear Blast</strong>. Новый сингл "<strong>No Aceptan Imitaciones</strong>" доступен в лирик-видео ниже.&nbsp;</p><center><iframe width="665" height="375" src="https://www.youtube.com/embed/J1oUCeg67IQ" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 29.07.2016 news New lyric video of BRUJERIA
+
+<p>Fourth album by <strong>BRUJERIA "Pocho Aztlan"</strong> out 16 September (day of Mexico) via <strong>Nuclear Blast records</strong>. New single "<strong>No Aceptan Imitaciones</strong>" is available as a lyric video below.</p><p>&nbsp;<center><iframe width="665" height="375" src="https://www.youtube.com/embed/J1oUCeg67IQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 17.08.2016 news Ещё один сингл от BRUJERIA
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый сингл <strong>BRUJERIA "Bruja"</strong> можно послушать ниже. Трек войдёт в долгожданный новый альбом "<strong>Pocho Aztlan</strong>", который выйдет на <strong>Nuclear Blast</strong> 16 сентября.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zf0NoHg1ueI" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 17.08.2016 news One more single from new BRUJERIA
+
+<p><strong>BRUJERIA </strong>new single "<strong>Bruja</strong>" can be streamed below. The track will be included in the long-awaited new album, "<strong>Pocho Aztlan</strong>", which will be released on<strong> Nuclear Blast</strong> on September 16.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zf0NoHg1ueI" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 12.09.2016 news Новый трек BRUJERIA
+
+<p><b>BRUJERIA </b>выпускают новый альбом "<b>Pocho Aztlan</b>" 16 сентября на<b> Nuclear Blast</b>. Сингл с этой работы "<b>Plata O Plomo</b>" можно послушать ниже.</p> <p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mWDZayTVScU" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.09.2016 news BRUJERIA - debut brand new song, &#39;Plata O Plomo&#39; (N.S.F.W.)!
+
+<p>Extreme metallers <b>BRUJERIA</b> will release their fourth full length album, entitled »<b>Pocho Aztlan</b>«, on Mexican Independence Day (September 16) via <b>Nuclear Blast Entertainment</b>. Today, the band has debuted a very "N.S.F.W." video for the track <b>'Plata O Plomo'</b>.</p> <P><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mWDZayTVScU" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 07.10.2016 reviews Возвращение нашумевшего 15 лет назад проекта
+
+<p>В 2012 году Nuclear Blast взяли на работу бывшего вице-президента Roadrunner Monte Conner. Под него было образовано подразделение Nuclear Blast Entertainment. Monte стал подтягивать на этот значок своих бывших клиентов и получил некоторую свободу в подборе репертуара из числа популярных в США коллективов в стилях deathcore, nu-metal и.т.п. В частности на NBE вышли альбомы SOULFLY, MACHINE HEAD, OPETH, DEVIL YOU KNOW, FALLUJAH. Все эти коллективы, больше популярные за океаном, подписал бывший работник Roadrunner. BRUJERIA, чей последний альбом вышел в 2000 году, стоже попала в этот список.</p><p>Этот коллектив безусловно имеет статус культового в США. Я не знаю, чем мексиканские музыканты заслужили такой почёт, но к двум испаноязычным исполнителям до этого ничем не отметившимся в тяжёлой музыке — Fantasma и Juan Brujo – присоединились в 1989 году басист FATH NO MORE Billy Gould и гитарист Dino Cazares, в то же время основавший FEAR FACTORY. Этих персонажей в BRUJERIA в настоящий момент нет, но зато есть Shane Embury из NAPALM DEATH, которого здесь кличут Hongo, знаменитый барабанщик Nicholas Barker и Jeff Walker из CARCASS, которых соответственно зовут Hongo Jr и El Cynico. Более того, я с удивлением обнаружил, что именно басист NAPALM DEATH, который здесь играет на гитаре, является основным композитором на «Pocho Aztlan”. Не знаю, что заставляет столь статусных музыкантов заниматься BRUJERIA, возможно, это связано с какими-то убеждениями. Группа отстаивает права мексиканского народа в столь экзотической форме, альбом вышел в День Мексики, а сингл «Viva Presidente Trump!”, объявил войну национализму США. </p><p>Что касается непосредственно музыки, BRUJERIA играют типичный death grind классической школы. Без различных современных заморочек типа «порно» или «гуттурала». Тяжёлый death metal звук и некоторая легковесность композиции, сдобренная юмором на испанском языке. Альбом слушается очень приятно, не скучно, но такая музыка несколько устарела. Более того, советую вам не ожидать чего-то сверхъестественного от «Pocho Aztlan”. В этом случае вы приятно проведёте время за прослушиванием этой работы. Если же, начитавшись рекомендаций от знатоков «культа BRUJERIA”, будете надеяться на откровение, ничего не поймёте.</p><p>Неплохой альбом известной группы, который должен был выйти лет 10 назад. В этом случае его ждал бы успех, сейчас у мексиканцев не получится вновь создать столько шума, даже с поддержкой Nuclear Blast.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Brujeria

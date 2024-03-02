@@ -51,6 +51,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.09.2011 news Dead Center Prod. переиздадут альбомы APOKALYPTIC RAIDS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=254 alt="" hspace=0 src="/images/news_rus/2011.09/21256.jpg" width=247 align=right border=0>Украинский лэйбл <STRONG>Dead Center Prod.</STRONG> объявил о переиздании всех альбомов бразильской группы <STRONG>APOKALYPTIC RAIDS</STRONG>. Уже в этом месяце выйдет дебют коллектива 2001 года "<STRONG>Only Death is Real</STRONG>..." с ранним демо группы в качестве бонуса. Пресс-релиз:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Для тех, кто не знаком с творчеством APOKALYPTIC RAIDS - если для тебя HELLHAMMER не пустой звук - тогда ты обязан узнать APOKALYPTIC RAIDS! Они играют то, что не успели сделать HELLHAMMER! Сырой, дьявольский, Реальный DEATH METAL!</EM>"</FONT></P>
+<P>Состав:</P>
+<P><STRONG>Necromaniac</STRONG> - гитара\вокал (также известен по культовой Бразильской Heavy Metal группе METALMORPHOSE (since 1983)<BR><STRONG>Hellpreacher</STRONG> - басс-гитара (также известен по УЖЕ заслужившей широкое внимание Thrash/Punk группе ATOMIC ROAR)<BR><STRONG>Marcio Cativeiro</STRONG> - барабаны</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

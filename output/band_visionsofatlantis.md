@@ -80,6 +80,126 @@ Texte von Chris Kamper
 
 * C группой "Aesma Daeva" Melissa Forlaak (female vocal)
 
+## Публикации
+
+### 20.12.2003 news Новый контракт VISIONS OF ATLANTIS
+
+<p>VISIONS OF ATLANTIS подписали контракт с Napalm Records. Второй альбом австрийцев будут продюссировать Emppu Vuorinen&nbsp;(NIGHTWISH)&nbsp;и Marcelo Cabuli (BETO VAZQUEZ, BARILARI).</p>
+Автор: Morsus
+
+### 03.02.2005 reviews Тем, кому хочется женщин
+
+<P>VISIONS OF ATLANTIS в своё время открыл нашему слушателю Irond, заключив контракт напрямую с группой. Теперь группа выпускается на Napalm Records, а уж оттуда попадает на Irond. Можно порадоваться за VoA, и попечалится за наши уши. Уже на дебютном альбоме коллектив не подавал никаких надежд. Жалкая копия первого альбома NIGHTWISH оставляла лишь надеяться, что коллектив ждёт такая же эволюция.</P>
+<P>Видимо, это верх возможностей. Второй альбом ничем не лучше, а скорее даже хуже, ведь бюджет записи должно быть совсем другой, но это VoS не помогло. Тот же подвальный звук, слабое владение инструментами, отвратительные вокалы. Мальчик (именно, мальчик по голосу) поёт старательно и бездарно, как подросток на школьном вечере, выпивший лишнюю кружку пива. Девушка, которая и является лицом группы, так как VoS "толкаются" именно, как клон NIGHTWISH, удручает. Она поёт тяжело, как будто только что толкала вагон с нотами. В таком плохом оформлении простенькие мелодии группы не могут быть усвоены не в коем случае.</P>
+<P>Неужели покупателям настолько хочется женщин и девушек, что они готовы поедать даже такие просроченные блюда. Отвечаю сам – да, настолько.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Vit Belov
+
+### 31.03.2005 news VISIONS OF ATLANTIS объявили имя нового гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым гитаристом <STRONG>VISIONS OF ATLANTIS</STRONG> стал <STRONG>Wolfgang "Wops" Koch</STRONG>. Он будет выступать вместе с группой во время ближайшего тура в апреле.</FONT></P>
+Автор: Vit Belov
+
+### 12.10.2005 news VISIONS OF ATLANTIS поменяли вокалистку
+
+<P><STRONG><IMG height=238 alt="" hspace=0 src="/images/news_rus/2005.10/9519.gif" width=175 align=left border=5>Nicole Bogner</STRONG> больше не является вокалисткой <STRONG>VISIONS OF ATLANTIS</STRONG>. Расставание прошло без особых осложнений. Новой фронтвуман стала <STRONG>Melissa Ferlaak</STRONG>, профессиональная певица. 26-летния жительница США закончила консерваторию в Бостоне. Также она известна по работе в <STRONG>AESMA DAEVA</STRONG>. </P>
+Автор: Vit Belov
+
+### 27.11.2006 news VISIONS OF ATLANTIS назвали альбом
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2006.11/10968.jpg" width=250 align=left border=5>Новый альбом <STRONG>VISIONS OF ATLANTIS</STRONG>, который выйдет в марте, будет называться "<STRONG>Trinity</STRONG>". Подробности последуют.</P>
+Автор: Vit Belov
+
+### 06.03.2007 news Новый альбом VISIONS OF ATLANTIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>VISIONS OF ATLANTIS "Trinity"</STRONG> выходит 25 мая на <STRONG>Napalm Records</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <STRONG>At The Back of Beyond</STRONG><BR>02. <STRONG>The Secret<BR></STRONG>03. <STRONG>Passing Dead End<BR></STRONG>04. <STRONG>The Poem<BR></STRONG>05. <STRONG>Nothing Left<BR></STRONG>06. <STRONG>My Darkside Home <BR></STRONG>07. <STRONG>Wing-Shaped Heart<BR></STRONG>08. <STRONG>Return To You</STRONG><BR>09. <STRONG>Through My Eyes<BR></STRONG>10. <STRONG>Flow This Desert<BR></STRONG>11. <STRONG>Seven Seas</STRONG></P>
+Автор: Vit Belov
+
+### 29.11.2007 news VISIONS OF ATLANTIS опять потеряли вокалистку
+
+<P>Вокалистка <STRONG>Melissa Ferlaak</STRONG>&nbsp;и гитарист <STRONG>Wolfgang "Wops" Koch</STRONG> покинули<STRONG> VISIONS OF ATLANTIS</STRONG>. <STRONG>Мелисса </STRONG>объяснила своё решение утратой интереса к металлу. Оставшиеся ищут замену.</P>
+Автор: Vit Belov
+
+### 24.01.2009 news VISIONS OF ATLANTIS назовут имя певицы
+
+<P><STRONG>VISIONS OF ATLANTIS</STRONG> назовут имя новой вокалистки на следующей неделе. В настоящее время девушка участвует в своей первой фотосессии для группы, чтобы предстать перед нами во всей красе.</P>
+Автор: Vit Belov
+
+### 02.02.2009 news VISIONS OF ATLANTIS показали вокалистку
+
+<P>Новой вокалисткой<STRONG> VISIONS OF ATLANTIS</STRONG> стала <STRONG>Joanna Nieniewska. "</STRONG><EM>20-летняя девушка с отличным сопрано и хорошим чувством вокальной мелодии</EM>", - рассказывается в пресс-релизе. </P>
+<P><center><IMG height=375 src="/images/news_rus/2009.02/13486.jpg" width=250 border=0></P>
+Автор: Vit Belov
+
+### 30.07.2009 news VISIONS OF ATLANTIS вновь поменяли певицу
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=316 alt="Maxi Nil" hspace=0 src="/images/news_rus/2009.07/14743.jpg" width=250 align=left border=5>VISIONS OF ATLANTIS</STRONG> объявили о замене вокалистки. По причинам слабого здоровья теперь уже бывшая певица <STRONG>Joanna Nieniewska </STRONG>покинула коллектив. С ней австрийская команда не записала ни одного альбома. В короткие сроки ей была найдена замена - греческая вокалистка <STRONG>Maxi Nil, </STRONG>которая работала с <STRONG>MOONSPELL</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 18.03.2010 news VISIONS OF ATLANTIS войдут в студию
+
+<P><STRONG>VISIONS OF ATLANTIS</STRONG> войдут в студию <STRONG>Dreamscape </STRONG>в Мюнхене в конце мая для записи четвёртого альбома, который выйдет осенью. Эта пластинка станет дебютом для новой певицы <STRONG>Maxi Nil. </STRONG>Некоторые названия песен:</P>
+<P>* <B>Aeon</B><BR>* <B>Memento</B><BR>* <B>Reflections</B><BR>* <B>Gravitate Towards Fatality</B><BR>* <B>New Dawn</B><BR>* <B>Beyond Horizon - The Poem Pt. II</B></P>
+Автор: Vit Belov
+
+### 04.12.2010 news Новый альбом VISIONS OF ATLANTIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Четвёртый альбом <STRONG>VISIONS OF ATLANTIS</STRONG> <STRONG>"Delta" </STRONG>выходит 25 февраля на <STRONG>Napalm Records</STRONG>. Компакт-диск был записан в студии <STRONG>Dreamscape Studios </STRONG>и станет дебютом для новой певицы <STRONG>Maxi Nil, </STRONG>которая присоединилась к коллективу в прошлом году. Вот некоторые названия песен нового альбома: <STRONG>"Aeon", "Memento", "Reflections", "Gravitate Towards Fatality", "New Dawn" </STRONG>и <STRONG>"Beyond Horizon - The Poem Pt. II".</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.12/17734.jpg" width=400 border=0></FONT></STRONG></P>
+Автор: Vit Belov
+
+### 27.12.2010 news Новый альбом VISIONS OF ATLANTIS
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.12/17951.jpg" width=400 align=right border=0>Четвёртый альбом<STRONG> VISIONS OF ATLANTIS</STRONG> <STRONG>"Delta" </STRONG>выходит 25 февраля на <STRONG>Napalm Records</STRONG>. Пластинка была записана в <STRONG>Dreamscape Studios </STRONG>в Мюнхене и стала дебютом для новой певицы <STRONG>Maxi Nil. </STRONG>Трэк-лист:</P>
+<P>01. <B>Black River Delta</B><BR>02. <B>Memento</B><BR>03. <B>New Dawn</B><BR>04. <B>Where Daylight Fails</B><BR>05. <B>Conquest Of Others</B><BR>06. <B>Twist Of Fate</B><BR>07. <B>Elegy Of Existence</B><BR>08. <B>Reflection</B><BR>09. <B>Sonar</B><BR>10. <B>Gravitate Towards Fatality</B></P>
+<P>Следует отметить, что часть песен этой пластинки<STRONG> VISIONS OF ATLANTIS</STRONG> повествует о египетской мифологии. Это не первая группа с женским вокалом, обратившаяся к восточным темам.</P>
+Автор: Vit Belov
+
+### 26.02.2011 news Видео-клип VISIONS OF ATLANTIS
+
+<P>Группа с женским вокалом <STRONG>VISIONS OF ATLANTIS</STRONG> представила нашему вниманию свой новый клип на песню <STRONG>"New Dawn". </STRONG>Трэк взят с нового альбома австрийцев <STRONG>"Delta"</STRONG>, который только что вышел на <STRONG>Napalm Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/HbUIB-anUBw?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/HbUIB-anUBw?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.05.2011 reviews Раскованный австрийский сапог
+
+<P>Австрийская группа VISIONS OF ATLANTIS выпустила свой дебют в 2002 году, и за ней прочно закрепился титул клонов NIGHTWISH. Действительно, группа практически один в один дублировала первый альбом знаменитых финнов. За прошедшие с того времени девять лет коллектив поменял три вокалистки, практически полностью изменил свой «саунд», а главным певцом теперь выступает мужчина. Таким образом, для фэнов VoA есть сообщение - группа теперь совсем не похожа на NIGHTWISH, а уж плохая эта новость или хорошая, выбирайте сами.</P>
+<P>Нынешней певицей VISIONS OF ATLANTIS является гречанка Maxi Nil, известная по работе на концертных подпевках в MOONSPELL. Что ж, девушка симпатичная и, как любая бэк-вокалистка, не ошибается и поёт ровно и приятно. Как я уже сообщил, она не является главным персонажем у VoA, но, как говорится, ladies first. Есть что-то общее у трёх австрийских питомцев Napalm Records – SERENITY, EDENBRIDGE и VISIONS OF ATLANTIS. Эти группы представляют симфонический метал, но каждая из них, несмотря на довольно внушительный бюджет, играет во второй лиге. Австрийцам не хватает изюминки, не хватает мощи, чтобы поработить нас своими шедеврами. Видимо, с годами австрийская нация стала излишне романтичной, а обозреваемой группе явно не хватает немецкой мощи Священной Римской Империи. Ответственна за это впечатление не только музыка, которая очень прозрачна и тонка, но и исполнители, в частности, певец Mario Plank. Он должно быть хороший человек, но металический вокалист из него никакой. Наверняка каждая девушка мечтает услышать нечто подобное его исполнению у себя под балконом, но вряд ли рад будет такой серенаде волосатый металист в заклёпанных штанах.</P>
+<P>Ну, да фиг с ним, с этим волосатым. Не только и не столько волосатые и потные мужчины являют собой контингент, обращающий свой взор на гордый австрийский sympho-metal. Те люди, которым нравится, должны немедленно приобретать “Delta”, возможно, именно этого альбома не хватает в коллекциях почитателей романтики от тяжёлой музыки.</P>
+Автор: Vit Belov
+
+### 26.08.2011 news VISIONS OF ATLANTIS выпустят EP
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.08/20787.jpg" width=475 align=right border=0>Новый миньон <STRONG>VISIONS OF ATLANTIS</STRONG> <STRONG>"Maria Magdelena" </STRONG>выйдет 21 октября. Трек-лист:</P>
+<P>01. <B>Maria Magdalena</B><BR>02. <B>Melancholia</B><BR>03. <B>Change Of Tides</B><BR>04. <B>Last Shut Of Your Eyes</B><BR>05. <B>Distant Shores</B><BR>06. <B>Beyond Horizon- The Poem Pt. II</B></P>
+Автор: Vit Belov
+
+### 07.01.2012 news Умерла бывшая вокалистка VISIONS OF ATLANTIS
+
+<P>Оригинальная вокалистка австрийцев <STRONG>VISIONS OF ATLANTIS Nicole Bogner</STRONG> умерла в возрасте 27 лет после продолжительной болезни. Конкретные причины смерти не сообщаются.</P>
+<P>Оставить свои соболезнования можно на Facebook: <A href="http://www.facebook.com/inmemoriamnicolebogner">http://www.facebook.com/inmemoriamnicolebogner</A></P>
+<P><center><IMG height=353 src="/images/news_rus/2012.01/22539.jpg" width=240 border=0></P>
+Автор: Vit Belov
+
+### 28.01.2012 news VISIONS OF ATLANTIS назвали альбом
+
+<P><STRONG>VISIONS OF ATLANTIS</STRONG> вошли в студию<STRONG> Artesonika</STRONG> в Венеции для записи пятого альбома, названного "<STRONG>Ethera</STRONG>". Пластинка выйдет в этом году на<STRONG> Napalm Records</STRONG>. </P>
+<P>Продюсерами альбома будут <STRONG>Fabio D'Amore (SERENITY)</STRONG> и<STRONG> Ivan Moni Bidin</STRONG>.</P>
+<P><center><IMG height=175 src="/images/news_rus/2012.01/22843.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 18.01.2013 news Новый альбом VISIONS OF ATLANTIS
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2013.01/25338.jpg" width=475 height=472>Новый альбом <STRONG>VISIONS OF ATLANTIS</STRONG> <STRONG>"Ethera" </STRONG>увидит свет 22 марта на <STRONG>Napalm Records</STRONG>. Трек-лист:</P>
+<P>01. <B>The Ark</B><BR>02. <B>Machinage</B><BR>03. <B>Avatara</B><BR>04. <B>Vicious Circle</B><BR>05. <B>Hypnotized</B><BR>06. <B>Tlaluc's Grace</B><BR>07. <B>Burden Of Divinity</B><BR>08. <B>Cave Behind The Waterfall</B><BR>09. <B>A.E.O.N. 19th</B><BR>10. <B>Bestiality Vs. Integrity</B><BR>11. <B>Clerics Emotion</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

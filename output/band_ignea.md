@@ -23,6 +23,19 @@ female fronted sympho metal from Ukraine
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.06.2016 news Украинская группа IGNEA собирает просмотры на Youtube
+
+<p>Группа с женским вокалом из Украины <strong>IGNEA</strong>, предлагающая называть свой стиль oriental metal, выпустила в конце прошлого года дебютный сингл "<strong>Alga</strong>" с участием симфонического оркестра. Видео на Youtube посмотрело к сегодняшнему дню уже 300000 человек. В настоя щее время коллектив записывает дебютный альбом и готовится к концертам в Украине и Молдове.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/6KOXbzMRQHs" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 13.06.2016 news IGNEA: Debut single collected 300000 views on Youtube
+
+<p>Band with female vocals from Ukraine<strong> IGNEA</strong>, offering to call her style oriental metal, released at the end of last year, debut single "<strong>Alga</strong>" with the participation of the symphonic orchestra. Youtube video collected 300000 views to date. At the present time, the band are working on their debut album and preparing for concerts in Ukraine and Moldova.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/6KOXbzMRQHs" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

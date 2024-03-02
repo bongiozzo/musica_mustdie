@@ -21,6 +21,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.10.2016 news WORDS OF FAREWELL: обложка и трек-лист нового альбома
+
+<p>Немецкая melodic death/progressive группа <strong>WORDS OF FAREWELL</strong> готовится выпустить новый альбом "<strong>A Quiet World</strong>" 18 ноября на <strong>AFM Records</strong>. </p><p>Группа была образована в Германии в 2007 году. Выпустив несколько демо-записей, в 2011 году коллектив заключил контракт с AFM Records на выпуск дебютного альбома “<strong>Immersion</strong>”. Несколько лет ушло на подготовку новой работы, на которой WORDS OF FAREWELL представили более зрелый и «техничный» материал. Для поклонников Scar Symmetry, Dark Tranquillity, Insomnium.</p><p>Трек-лист "A Quiet World":<br>01. My Share of Loneliness<br>02. Gaia Demise<br>03. Gallows Frame<br>04. Limit Cycle<br>05. Zero Temperance<br>06. Momentary Life<br>07. Oversoul<br>08. The Farthest Reach<br>09. This Shadow My Likeness</p><p>Официальный сайт: <a href="http://www.wordsoffarewell.com/">http://www.wordsoffarewell.com/</a></p><p><center><img width="480" height="480" src="/images/news_rus/2016.10/30031.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 16.10.2016 news Песня с нового альбома WORDS OF FAREWELL
+
+<p>Немецкая melodic death/progressive группа <strong>WORDS OF FAREWELL</strong> опубликовала песню “<strong>My Share of Loneliness</strong>”, которая войдет в новый альбом "<strong>A Quiet World</strong>", готовящийся к выходу 18 ноября на <strong>AFM Records</strong>. </p><p>Группа была образована в Германии в 2007 году. Выпустив несколько демо-записей, в 2011 году коллектив заключил контракт с AFM Records на выпуск дебютного альбома “Immersion”. Несколько лет ушло на подготовку новой работы, на которой WORDS OF FAREWELL представили более зрелый и «техничный» материал. Для поклонников Scar Symmetry, Dark Tranquillity, Insomnium.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/_NDjFhJXeRw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

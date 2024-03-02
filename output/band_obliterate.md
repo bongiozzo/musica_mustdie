@@ -12,6 +12,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.12.2003 news OBLITERATE release new album
+
+2nd album of grind core masters from Slovakia <B>OBLITERATE</B> will released through <B>EXTREMIST records</B>. 9 tracks, including one remix, on 27 minutes. Press-statement:&nbsp;<B>"Expect highly technical, fast, aggressive and uncompromising grind core with great dynamic, dense and professional sound. Recommended to all fans of sophisticated extreme music in the vein of Napalm Death, Origin, Misery Index, Burnt By The Sun or Rotten Sound - great musicianship and relentless energy."</B><BR>
+Автор: Vit Belov
+
+### 28.02.2004 reviews Очередная группа из Европейского рассадника death-metal
+
+<DIV><I>Чехия и Словакия очень богаты группами, нарезающими качественный brutal. Их там настолько много, что за честь выпустить одну из таких групп борятся даже зарубежный лэйблы.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Второй альбом <B>OBLITERATE</B> из Словакии вышел на американском лэйбле <B>EXTREMIST Records</B>. Американцы, пожалуй, лучше всех знают толк в подобной музыке, поэтому делайте вывод сами. Рассматриваемый коллектив нам предлагают считать grind-бандой. Это вряд ли так. <B>OBLITERATE</B> играют brutal death-metal без примесей grind. Иногда их даже и brutal невсегда можно назвать. В Словакии группа очень уважаема, ведь играют ребята с 1992 года. Правда, из глубокого underground вылезти им не удаётся. <B>'Tangled Ways'</B> записан в домашней студии и по звучанию сильно проигрывает образцам жанра.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В остальном группа неплохая. Радует своей работой вокалист, да и остальные музыканты на крепком Европейском уровне. На альбом домавлен ремикшированный (танцевальный) кавер <B>TESTIMONY</B>.</DIV>
+Автор: Vit Belov
+
+### 29.02.2004 reviews Good band from lair of Europian death-grind
+
+<DIV><I>Czech and Slovakia&nbsp;are rich of bands playing quality brutal. There is so many bands, that they are releasing even through foreign labels.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Second album of <B>OBLITERATE</B> from Slovakia was released through American label <B>EXTREMIST Records</B>. Perhaps Americans know about such music more then somebody, you can do conclusion by yourself. <B>OBLITERATE</B> is named as grind. But I don't think so. Band is playing brutal death-metal without any additions from grindcore. Sometimes we would not able to name their style as 'brutal' also. <B>OBLITERATE</B> is respected band in Slovakia,&nbsp;guys play&nbsp;since 1992. To be true, They can not get out from 'underground'. <B>'Tangled Ways'</B> was recorder in home studio and it loses to&nbsp;models of the genre.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>In other hand The band is not bad. Singer gladden by his work, and other musicians are on normal Europian level. There is also remixed cover on song&nbsp;of <B>TESTIMONY</B> on the album.&nbsp;</DIV>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

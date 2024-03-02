@@ -16,6 +16,39 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2016 news Второй альбом VEONITY
+
+<p>Шведская power metal группа <strong>VEONITY</strong> выпускает второй альбом "<strong>Into The Void</strong>" 23 сентября. Работа была записана в <strong>Studio Seven</strong> с продюсером<strong> Ronny Milianowicz</strong> (Shadowquest, ex Dionysus). Мастеринг сделал <strong>Jens Borgen</strong> в <strong>Fascination Street Recording Studios</strong>.</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.08/29760.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 08.08.2016 news VEONITY to release second album
+
+<p>The Swedish power metal band <strong>VEONITY</strong> releases their second studio album September 23rd.</p><p>The album, called "<strong>Into The Void</strong>", was produced<strong> Ronny Milianowicz</strong> (Shadowquest, ex Dionysus) at Studio Seven and mastered at <strong>Jens Bogren’s Studio</strong>, <strong>Fascination Street</strong> Recording Studios in Цrebro, Sweden. The idea was to create a genuine and powerful sound that would bring out the best of Veonity’s energetic, glorious and guitar driven Power Metal.</p><p>“Into The Void” is a concept album best described as a dystopic, futuristic space saga about the earth, dying due to mankind's greed and a lonely man who escapes into space.&nbsp;</p><center><img width="600" height="600" src="/images/news_rus/2016.08/29760.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 02.09.2016 news Новый клип шведов VEONITY
+
+<p>"<strong>Warriors Of Time</strong>" - песню шведской power metal группы<strong> VEONITY</strong> можно послушать в клипе ниже. Новый альбом музыкантов "<strong>Into The Void</strong>" выходит на лэйбле<strong> Sliptrick</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/vJriqXFYppQ" frameborder="0" allowfullscreen></iframe></p></center>
+Автор: Vit Belov
+
+### 02.09.2016 news New video of VEONITY
+
+"<strong>Warriors Of Time</strong>" - song of the Swedish power metal band <strong>VEONITY</strong> can be heard in the clip below. New album of musicians, "<strong>Into The Void</strong>" out on the label <strong>Sliptrick</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/vJriqXFYppQ" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 15.09.2016 news Новый сингл VEONITY
+
+<p>Шведская power metal группа<strong> VEONITY</strong> выпускает второй альбом "<strong>Into The Void</strong>" 23 сентября. Ниже можно услышать новый сингл в лирик-видео на заглавную песню с этого альбома.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/kWtw90FWPgg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 15.09.2016 news VEONITY released new single
+
+Swedish power metal band<strong> VEONITY</strong> will release their second album <strong>"Into The Void"</strong> on September 23. Below you can hear the new single in a lyric video for the title track from this album.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/kWtw90FWPgg" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

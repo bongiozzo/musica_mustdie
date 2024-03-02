@@ -120,6 +120,368 @@ Mixing and mastering at Priory Recording Studios.
 * C группой "Hate Forest" Khaoth
 * C группой "Khors" Wortherax
 
+## Публикации
+
+### 24.04.1999 reviews 
+
+<p> А вот и наши бывшие соотечественники. На самом деле - этот альбом переиздание прошлогоднего релиза группы. Но на прошлогоднем релизе, вышедшем на END RECORDS были две русскоязычные композиции, несколько грязноватый звук и совершенно неразличимые элементы фольклора. Этот же альбом был перезаписан специально для выпуска на NUCLEAR BLAST. Теперь все композиции на английском, звук немного получше, а вот фольклорные элементы по-прежнему немного тонут в общем звуковом шквале. На первых двух альбомах такого не было. Ну и, конечно, музыкальный материал по сравнению с первыми двумя альбомами также изменился. Стал менее оригинальным, всё более напоминающим последнюю работу EMPEROR. Такой же ужасно быстрый, ужасно зловещий, местами довольно мелодичный и мрачный black-metal. И главное, ничуть не уступающий в профессиональном плане.</p>
+
+Автор: Dimas
+
+### 24.08.1999 news 
+
+<p>Nokturnal Mortum закончили запись нового альбома "NeChrist", который содержит ... 88 песен. Дата выхода оного уточняется.</p>
+
+Автор: Vit Belov
+
+### 24.08.2000 reviews А вот и гарны хлопцы с Украины
+
+<p>А вот и гарны хлопцы с Украины. Их уже четвертое творение продолжает их прогресс в сторону true-black-metal. За это время они прошли полный путь от мелодичного black-doom-metal до true-black-metal. Единственное, что оставалось неизменным на протяжении всех альбомов - пристрастие к народным традициям (фольклору). Даже под эту злую и очень агрессивную музыку местами хочется пуститься в пляс, особенно когда слышишь все эти скрыпочки, свисты, улюлюканья и трель народных инструментов. С каждым альбомом звук группы становился все сырее и отмороженнее, куда-то испарились все их мелодичные гитары и клавиши.. Осталась только мелодичная. но холодная и строгая атмосфера, истеричный вокал и мрачная злая музыка. Замечу, что такое больше никто не играет. А значит музыка Nokturnal Mortum оригинальна. И хоть мне по душе больше первые два их альбома. последние два я тоже высоко оцениваю, особенно NeChrist. Одно изумляет - зачем эта непонятная под конец вставка из 77(!) трэков по 4 секунды каждый? Последний же трэк - русскоязычный ремикс хита с самого первого альбома. Именно прослушивая эту вещь и вспоминая оригинал понимаешь насколько группа изменилась за эти 5 лет.</p>
+
+Автор: Dimas
+
+### 27.08.2000 reviews Well, there is cool guys from Ukraine
+
+<p>Well, there is cool guys from Ukraine. Them already fourth creation prolongs their advance in the party true-black-metal. For this time they have passed a full path from melodious black-doom-metal up to true-black-metal. Alone, that remained invariable during all albums - favour for national traditions (folklore). Even under this malicious and very aggressive music by places it would be desirable to be let in dance, specially when hear all these national tools. With each album the note of group became all wetly and is more frost-bitten, their melodious guitars and keys somewhere have evaporated all.. The note is clean Bathory. Has remained only melodious. But cold and severe atmosphere, hysterical voice and sad malicious music. I shall note, that such more than nobody plays. So music Nokturnal Mortum is original. And though to me подуше more maiden two their albums, last two I too highly estimate, specially NeChrist. One is amazed - what for by this not clear under the end an insert from 77 (!) трэков for 4 seconds each? Last track - russian remix of a hit from the very first album. Listening this thing and recalling the original perceive as far as the group has changed for these 5 years.</p>
+
+Автор: Dimas
+
+### 01.09.2001 news Этого и следовало ожидать.
+
+<p> The End Records разорвали какие-либо отношения с Nokturnal Mortum, мотивируя это недовольством откровенно профашистскими взглядами её участников. Так, на новом логотипе, вместо привычного козлика и перевёрнутых крестов, красуются мечи и щит с четырьмя свастиками… Фирма ещё успела переиздать “Lunar Poetry”, а о подарочном CD-боксе, приуроченному к десятилетию группы, вероятно, следует забыть.</p>
+
+Автор: Odiumaniac
+
+### 22.03.2002 news NOKTURNAL MORTUM в Беларуси
+
+<p>31 марта в Минске состоится единственный концерт легендарных блэк металлеров с Украины NOKTURNAL MORTUM. Разогревом будет выступать могилевская группа ASGUARD, другой разогревающей командой будет INFESTUM. Концерт пройдет в клубе "База" по адресу П. Бровки, 8а. Начало концерта в 18:00. <BR> Цена билета: в предварительной продаже - 6.000, в день концерта - 7.000.<BR> Предварительная продажа с 20.03 в магазине D-Shop (Притыцкого,40) и кассе клуба (пятница, суббота, воскресенье с 19:00 до 21:00).</p>
+<P> Желающие могут посмотреть <A HREF="http://musica.mustdie.ru/ru/galleries/1/16">афишу</A> данного мероприятия.</>
+
+Автор: Dimas
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 10.10.2004 news Концерт NOKTURNAL MORTUM отменён с помощью &quot;Новой Газеты&quot;
+
+<P>7 октября в "<STRONG>Новой Газете</STRONG>" появилась публикация, обличавшая концерт в клубе "Эстакада", где в субботу должны были выступить украинцы <STRONG>NOKTURNAL MORTUM</STRONG>. Вот выдержки из гневной статьи журналистки <STRONG>Ольги Бобровой</STRONG>.</P>
+<P>"<EM>Послезавтра в Москве, в клубе «Эстакада» (Рязанский проспект, 39), — фашистский фестиваль. Уже приехали музыканты из других городов, готовятся к «празднику». Их поклонники тоже готовятся — планируют нападение на приезжих после концерта. Решают, как, где и кого. В интернет-форумах идет ожесточенный спор о том, стоит ли нападать на таджиков в том случае, если они попадут под горячую руку</EM>".</P>
+<P>"<EM>В префектуре ЮВАО очень удивились, когда узнали, что практически прохлопали ЧП на территории округа. В УВД вряд ли кто-то удивился. Милиция знает об экстремистах почти все. Целые отделы на Петровке занимаются этим вопросом. И тогда, в сентябре, знали, чем все может кончиться, однако вмешиваться не стали. В таком случае непонятно, чем отличаются работники этих отделов от пособников террористов. Незаконно регистрировать в Москве боевиков. А фашистов — законно</EM>?"</P>
+<P>Ссылка по теме: <A href="http://2004.novayagazeta.ru/nomer/2004/74n/n74n-s07.shtml">http://2004.novayagazeta.ru/nomer/2004/74n/n74n-s07.shtml</A></P>
+Автор: Vit Belov
+
+### 13.07.2010 reviews Победа язычества и умеренного национализма
+
+<P>Первая и единственная группа из бывшего СССР на Nuclear Blast! Было всё это очень давно. NOKTURNAL MORTUM также принадлежит и другой примечательный титул, титул пионеров pagan-black metal, стиля, который теперь правит бал на тяжёлой сцене наших просторов. Сколько воды за эти более чем десять лет утекло, у фанатов тяжёлой музыки появились другие герои, но NOKTURNAL MORTUM по-прежнему в строю, и их новый, вышедший в самом конце прошлого года, релиз «Голос Сталi» привлекает к себе величайшее внимание.</P>
+<P>В конце прошлого века NM гремели не только своей музыкой, но необычной по тем временам идеологией. Далеко не все слушали их альбомы, но слышали об их непримиримой позиции и неординарных поступках все. Например, утверждали, что NOKTURNAL MORTUM ушли (!!!) с Nuclear Blast, не захотев издаваться на одном лэйбле с христианской группой MORTIFICATION. Или ещё одна былина, лидер харьковской группы Varggoth якобы не любит москалей настолько сильно, что не готов даже выступать в Москве. Естественно, всё это мифы. По крайней мере в 2010 году. Теперь NM группа со стажем, имеет собственный лэйбл, записывает лирические композиции и нравится даже журналистам глянцевых изданий.</P>
+<P>Новый альбом «Голос Сталi», безусловно, очень хорош. Трэки, представленные на нём, очень разнообразны и красивы. Слушатель, любитель народной музыки, легко принимает настроение, бережно создаваемое музыкантами. Varggoth и его друзья грозно глядят из буклета в напульсниках и правильной коже. Слушая NOKTURNAL MORTUM, каждый должен понимать, что внимает не просто мелодичной фолк-музыке, но и провокативному и языческо-философскому посланию, доступному только людям экстремальной ориентации. К сожалению, я получил от этого альбома не то, что ожидал. NM теперь представляют больше мелодичности, больше «музыки», практически полностью убрав из своей музыки экстремальные настроения. Даже заглавная вещь «Голос Сталi» больше впечатляет своей атмосферной фолк составляющей, несмотря на грозный боевой текст и лязгающие звуки в некоторых местах. Мощь и агрессия black-metal полностью уступила место южнославянской душевности и мелодизму. Дальше больше. Каждый трэк отмечается собственной лирической находкой, но вновь и вновь не оставляет места радикализму. Доходит до смешного. Седьмая веешь «Небо Сумних Ночей» напомнила мне творчество позднего Бутусова, а конкретно известную всем по широкой ротации в радиоэфире «Ходить по воде».</P>
+<P>Видя на обложке огненный молот, слыша название NOKTURNAL MORTUM, хочется немного иной музыки. Представители pagan-black metal порой так удачно скрещивают мелодии народной музыки с радикализмом первородного black-metal, вызванным маргинальностью языческих и националистических убеждений. Видимо, в современной России и Украине, да что там, и в Европе в целом, язычество и умеренный национализм приобрели достаточную популярность, чтобы не считаться маргинальными убеждениями. Но это уже другая история…</P>
+Автор: Vit Belov
+
+### 13.07.2012 news DVD от NOKTURNAL MORTUM
+
+<P><STRONG><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.07/24352.jpg" width=300 height=427>NOKTURNAL MORTUM</STRONG> объявили о выходе дебютного DVD "<STRONG>Коловорот</STRONG>". Концерт снят на фестивале <STRONG>"Коловорот</STRONG>" в декабре 2010 года. Трек-лист:</P>
+<P>1. <STRONG>Інтро<BR></STRONG>2. <STRONG>Голос Сталі</STRONG><BR>3. <STRONG>Валькирия<BR></STRONG>4. <STRONG>Украiна</STRONG><BR>5. <STRONG>Біла Вежа</STRONG><BR>6. <STRONG>В Огне Деревянных Церквей<BR></STRONG>7. <STRONG>Небесное Серебро Перуна<BR></STRONG>8. <STRONG>Мировоззрение</STRONG><BR>9. <STRONG>Новая Эра Мечей</STRONG><BR>10. <STRONG>Слава Героям</STRONG><BR>11. <STRONG>Черный Ворон</STRONG>&nbsp;&nbsp; <BR>12. <STRONG>Моei Мріi Острови</STRONG><BR>13. <STRONG>Коляда</STRONG><BR>14. <STRONG>Небо Сумних Ночей</STRONG> / Outro</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -60,6 +60,28 @@ Recorded At SNC Studio, Moscow, Feb-Mar. 1993.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.07.2015 news Переиздание SHAH на виниле
+
+<P>Компания <STRONG>"Мирумир"</STRONG> собирается переиздать два альбома группы <STRONG>SHAH</STRONG> на виниле.<BR>Выбор пал на&nbsp;альбомы<STRONG> "Terror Collection"</STRONG>, выпускавшийся на виниле в 1991 году лейблом <STRONG>SNC</STRONG> и&nbsp;<STRONG>"Escape From Mind"</STRONG>, выходивший только в формате аудиокассеты в 1994 году на <STRONG>Moroz Records</STRONG>. Оба диска будут ремастированы, дополнены редкими фотографиями и изданы в коллекционной серии по 300 экземпляров каждый. Ориентировочная дата выхода - конец 2015 года.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.07/28187.jpg" width=660 height=330> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 04.04.2016 news SHAH: переиздание &quot;Escape From Mind&quot;
+
+<P>Лейбл <STRONG>Stormspell</STRONG> анонсировал переиздание альбома <STRONG>"Escape From Mind"</STRONG> группы <STRONG>SHAH</STRONG>, выходивший в 1994 году на <STRONG>Moroz Records</STRONG>&nbsp;только в формате аудио кассеты.&nbsp;Издание будет включать в себя 12-страничный буклет с архивными фотографиями,&nbsp;а также&nbsp;заново отрисованную обложку и комментарии <STRONG>Антона Гарсии</STRONG> и <STRONG>Андрея Сазонова</STRONG>.&nbsp;Тираж диска всего&nbsp;500 <SPAN data-offset-key="3ifbb-0-0"><SPAN data-text="true">э</SPAN></SPAN>кземпляров.</P>
+<P>Трек-лист: </P>
+<P>1. <STRONG>Escape</STRONG> | 2. <STRONG>No Return</STRONG> | 3. <STRONG>From Out Of Insane</STRONG> | 4. <STRONG>Outside</STRONG> | 5. <STRONG>Last In The Night</STRONG> | 6. <STRONG>Under Grief</STRONG> | 7. <STRONG>Reason X</STRONG> | 8. <STRONG>Escape From Mind </STRONG></P>
+<P>Послушать две песни с этого альбома можно по ссылке: <A href="http://stormspell.bandcamp.com/album/escape-from-mind">http://stormspell.bandcamp.com/album/escape-from-mind</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.04/29073.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

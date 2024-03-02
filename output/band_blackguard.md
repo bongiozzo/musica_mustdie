@@ -42,6 +42,26 @@ Terry (Rhythm Guitar)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.05.2009 reviews Что получится, если смешать CHILDREN OF BODOM и FINNTROLL
+
+<P>Канадская группа BLACKGUARD, ранее известная кое-кому, как PROFUGUS MORTIS, попала на Nuclear Blast со своим дебютным альбомом, выиграв очередной конкурс демо, устроенный немецким лэйблом. Прошлым победителем подобного соревнования стали SONIC SYNDICATE, так что подобные события себя оправдывают, находятся для широкой дистрибуции группы, которые нравятся фэнам.</P>
+<P>BLACKGUARD также фэнам понравятся. Не, может быть понравятся, и не, возможно понравятся, а понравятся точно и беспрекословно. Их melodic-death-black-metal с примесью фолка, симфонизма и пофигизма просто не может не понравится. Каждый трэк на этом альбоме наполнен мелодией, а сами песни пролетают быстро и ненапряжно, так как BLACKGUARD использовали любимый финнами приём. CHILDREN OF BODOM здесь смешали с FINNTROLL. Всем известно, что получится от смешения этих двух ингредиентов. Получится ENSIFERUM. Он здесь и получился. Все поклонники вышеуказанных групп должны приобретать “Profugus Mortis”.</P>
+<P>Мы же, скромно потупив свой занудливый взгляд на вещи, отметим, что BLACKGUARD, к сожалению, не слишком выделяются из общей массы подобных команд. Персональным фаворитом у меня этот альбом явно не станет, но это вовсе не отменяет моей рекомендации, сделанной в предыдущем абзаце.</P>
+Автор: Vit Belov
+
+### 19.03.2011 news Новый клип BLACKGUARD
+
+<P>Новое видео канадцев <STRONG>BLACKGUARD</STRONG> на заглавную песню с нового альбома <STRONG>"Firefight" </STRONG>можно посмотреть ниже. Второй альбом коллектива выйдет 29 марта на <STRONG>Victory Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CsWYBWqviqI?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/CsWYBWqviqI?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

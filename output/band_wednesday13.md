@@ -97,6 +97,40 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.05.2008 reviews Нестрашные ужастики
+
+<P>Не слишком оригинальная идея, назвать свой проект "Среда 13-е", по понятной аналогии, не так ли? Однако такие простые вещи, тем не менее, иногда срабатывают. "Skeletons" это уже третий студийный альбом под вывеской Wednesday 13, а за ней скрывается некий Joseph Poole, работавший также в командах Maniac Spider Trash, Frankenstein Drag Queens From Planet 13, Murderdolls и&nbsp;Bourbon Crow. Сам Джозеф, он же Wednesday 13, увлекается пародиями на фильмы ужасов, в том числе "Семейки Аддамс". О том же и тексты песен. Музыкально стиль Wednesday 13 классифицируют как хоррор-панк, но на самом деле ничего&nbsp;там ужасного нет. Отдаленно это напоминает Элиса Купера, правда, с небольшой оговоркой: таких хитов, как дедушке шок-рока,&nbsp;мистеру Пулу сочинять не удается. Его песенки вполне слушабельны, балладки вполне милы, ритмы вполне бодры. И наверняка Среда 13-е имеет свой, пусть и не очень широкий, круг поклонников, особенно среди тех, кто знает его еще по упомянутым выше группам. Альбом "Skeletons" можно совершенно спокойно поставить фоном на какой-нибудь весёлой вечеринке (лучше всего для этого выбрать Хэлловин), для, так сказать, разнообразия, если танцевальные шлягеры уже поднадоели. Слушать же такое серьезно и вдумчиво вряд ли кому придет в голову.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 25.02.2010 news Винил WEDNESDAY 13
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.02/16294.jpg" width=179 height=250>Бывший фронтмен <STRONG>MURDERDOLLS</STRONG> по имени <STRONG>Wednesday 13</STRONG> завершает работу над новым релизом, который увидит свет только на виниле. Пластинка получила название&nbsp;<B itxtvisited="1">"From Here To The Hearse" </B>и будет выпущена строго ограниченным тиражом (1000 шт. в С.Ш.А) в gatefold colored формате. На неё войдут песни сразу нескольких групп, в которых в своё время засветился вокалист&nbsp;- <STRONG>BOURBON CROW</STRONG>, <STRONG>GUNFIRE 76 </STRONG>и<STRONG>&nbsp;WEDNESDAY 13</STRONG>, а так же один никогда неиздававшийся трек.</P>
+<P>Оформление снова будет выполнено <STRONG>Marlene Elizabeth</STRONG>, известной по своим предыдущим работам для дисков <STRONG>Wednesday 13,</STRONG> тогда как фотографии к альбому будут сделаны <STRONG>James</STRONG>'ом <STRONG>Williams</STRONG>'ом.</P>
+<P>Выпуск <STRONG>"From Here To The Hearse"</STRONG> запланирован на раннюю весну.</P>
+Автор: Headcrusher
+
+### 14.07.2011 news Новый альбом WEDNESDAY 13
+
+<P>Певец <STRONG>MURDERDOLLS WEDNESDAY 13 </STRONG>выпустит свой новый сольный альбом <STRONG>"Calling All Corpses" </STRONG>11 октября. Трек-лист:</P>
+<P>01. <B>Blood Fades To Black</B><BR>02. <B>I Wanna Be Cremated</B><BR>03. <B>Ghoul Of My Dreams</B><BR>04. <B>One Knife Stand</B><BR>05. <B>Calling All Corpses</B><BR>06. <B>Miss Morgue</B><BR>07. <B>Silver Bullets</B><BR>08. <B>Bad At Being Human</B><BR>09. <B>London After Midnight</B><BR>10. <B>Candle For The Devil</B><BR>11. <B>We All Die</B><BR>12. <B>Something Wicked This Way Comes</B><BR>13. <B>Blood Fades To Black (Reprise)</B></P>
+<P>Обложку для альбома нарисовал <STRONG>D.A. Frizell (SEVENDUST, AVENGED SEVENFOLD). </STRONG>Мастеринг альбома выполнил <STRONG>Tom Baker</STRONG> (<STRONG>NINE INCH NAILS</STRONG>, <B>ROB ZOMBIE</B>, <B>MARILYN MANSON,</B> <STRONG>MINISTRY). </STRONG>Отрывок песни <STRONG>"I Wanna Be Cremated" </STRONG>можно послушать ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18954162&"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18954162&" type="application/x-shockwave-flash" width="100%"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 18.08.2011 news Новый альбом Wednesday 13 &quot;Calling All Corpses&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20630.jpg" width=400 height=400>Фронтмен <STRONG>MURDERDOLLS</STRONG> по кличке <B>Wednesday 13</B> выпустит свой новый сольный альбом <B>"Calling All Corpses" </B>11 октября. Обложку для диска создал&nbsp;художник&nbsp;<B>D.A. Frizell</B>, известный по своей работе&nbsp;на оформлением альбома&nbsp;<B>SEVENDUST</B> <B>"Cold Day Memory"</B>, нескольких обложек для <B>AVENGED SEVENFOLD -</B>&nbsp;диски <B>"Nightmare"</B>, <B>"Book Of Nightmare"</B> и <B>"Diamonds In The Rough/ Live In The LBC"</B>, а так же, созданию их&nbsp; клипа на песню <B>"A Little Piece Of Heaven"</B>.</P>
+<P>Трек-лист альбома:</P>
+<P>01. <B>Blood Fades To Black</B><BR>02. <B>I Wanna Be Cremated</B><BR>03. <B>Ghoul Of My Dreams</B><BR>04. <B>One Knife Stand</B><BR>05. <B>Calling All Corpses</B><BR>06. <B>Miss Morgue</B><BR>07. <B>Silver Bullets</B><BR>08. <B>Bad At Being Human</B><BR>09. <B>London After Midnight</B><BR>10. <B>Candle For The Devil</B><BR>11. <B>We All Die</B><BR>12. <B>Something Wicked This Way Comes</B><BR>13. <B>Blood Fades To Black (Reprise)</B></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

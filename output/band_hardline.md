@@ -28,6 +28,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.08.2016 news Новый клип HARDLINE
+
+<p>Новый&nbsp;клип группы вокалиста<strong> Johnny Gioeli</strong> (AXEL RUDI PELL) <strong>HARDLINE</strong> на песню "<strong>Where will we go from here</strong>" можно посмотреть ниже. Трек войдёт в новый альбом группы "Human Nature", выходящий на Frontiers 14 октября.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/67pmoEB4sjE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.08.2016 news New video of HARDLINE
+
+<p>New video of vocalist<strong> Johnny Gioeli</strong> (AXEL RUDI PELL)<strong> HARDLINE</strong> for the song "<strong>Where will we go from here</strong>" can be viewed below. The track will be included in the new album, "<strong>Human Nature"</strong> coming out on<strong> Frontiers</strong> on October 14.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/67pmoEB4sjE" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 04.10.2016 news Новый клип HARDLINE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый ролик<strong> HARDLINE</strong> на песню "<strong>Take You Home</strong>" можно посмотреть ниже. Баллада вошла в новый альбом группы "<strong>Human Nature</strong>", который вышел на <strong>Frontiers Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/SyUYMidtkw4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.10.2016 news New video by HARDLINE
+
+<p><strong>HARDLINE</strong>'s new video for the song "<strong>Take You Home</strong>" can be viewed below. The ballad is from the band's new album "<strong>Human Nature</strong>", which was released on <strong>Frontiers Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/SyUYMidtkw4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

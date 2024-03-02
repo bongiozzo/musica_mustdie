@@ -22,6 +22,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2012 news Дебютный альбом Андрея Пучинского
+
+<P><STRONG><IMG height=361 alt="" hspace=0 src="/images/news_rus/2012.02/22939.jpg" width=400 align=right border=0>Андрей Пучинский</STRONG> – гитарист, композитор, аранжировщик. Участник московской metal группы <STRONG>«Morigan»</STRONG>. Ех-гитарист групп <STRONG>«Асферикс», «Fiend»</STRONG>. Официальный эндорсер гитар Dean. Андрей представляет Вашему вниманию композицию "<STRONG>Мир устал от нас</STRONG>" со своего дебютного сольного альбома «<STRONG>В Свободном Падении</STRONG>», выход которого запланирован весной 2012 года.</P>
+<P>В альбом войдут 5 композиций с вокалом, а так же 5 инструментальных композиций.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Интро</STRONG><BR>02. <STRONG>Вечность - не срок<BR></STRONG>03. <STRONG>Эмоции<BR></STRONG>04. <STRONG>Надежда<BR></STRONG>05. <STRONG>Прощай<BR></STRONG>06. <STRONG>Новый день</STRONG><BR>07. <STRONG>Обойди меня стороной</STRONG><BR>08. <STRONG>Не просто мечты<BR></STRONG>09. <STRONG>Мир устал от нас<BR></STRONG>10. <STRONG>В свободном падении<BR></STRONG>11. <STRONG>Ничего нет</STRONG></P>
+<P>В записи альбома принимали участие:</P>
+<P><STRONG>Андрей Пучинский</STRONG> – гитара, вокал, тексты песен, аранжировка.<BR><STRONG>Леонид Максимов</STRONG> (группа «Сергей Маврин») – бас-гитара.<BR><STRONG>Дмитрий Ковалёв</STRONG> («Armaga», «Biorate», ex-«Колизей», ex-«Натиск», ex-«Асферикс») – барабаны.</P>
+<P>Запись бас-гитары, гитар, вокала – <STRONG>Recastman Studio</STRONG> (март-ноябрь 2011)<BR>Запись барабанов – <STRONG>Kolizei Sound Studio</STRONG> (январь 2011)</P>
+<P><A href="/ru/band/puchinskij_andrej/19200/#samples">http://musica.mustdie.ru/ru/band/puchinskij_andrej/19200/#samples</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

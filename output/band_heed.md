@@ -36,6 +36,9 @@ Jorgen Olsson - Bass
 * C группой "Lost Horizon" Fredrik Olsson
 * C группой "Fullforce" Tommy Larsson
 
+## Публикации
+
+
 ## Обсуждения
 
 

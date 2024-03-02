@@ -397,6 +397,614 @@ Deluxe edition bonus CD track list:
 * C группой "Halford" Rob Halford
 * C группой "Iced Earth" Tim Owens
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>JUDAS PRIEST работают в студии над своим новым альбомом, а в это время их номинировали на Грэмми в номинации "Лучшее металлический концерт".Также в Японии читатели журнала BURRN! Присудили группе звания "Лучшее шоу в Японии", "Лучший вокалист" и "Лучшая группа 1998 года".</p>
+
+Автор: Vit Belov
+
+### 05.03.1999 news 
+
+<p>Witchery закончили запись своего мини-альбома "Witchburner". Новая работа выйдет в марте и будет содержать кавер-версии WASP, Black Sabbath, Judas Priest и Accept. Также на альбоме будет три новых песни. В данный момент группа работает над новым полнометражным альбомом "Dead, Hot and Ready".</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>Определены участники традиционного OZZFEST. Хэдлайнером будут, что не удивительно, Black Sabbath. Также на главной сцене выступят Rob Zombie, Slayer, Deftones, Primus и Godsmack. На второй сцене засветятся Judas Priest, Nashville Pussy, Puya, Push Monkey и малоизвестные Flashpoint и Apartment 26 (группа сына Гизера Батлера). По сообщению Шарон Озборн, тур будет "лебидиной песней" Black Sabbath, после него группа распадётся, чтобы музыканты могли заняться своими сольными проектами. Ozzfest начнётся 28 мая во Флориде, а закончится 17 июля в Лос Анджелесе.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Роб Хэлфорд решил вернуться к своим корням и пишет новый материал вместе со своей группой.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Гитарист Judas Priest Глен Типтон сообщил, что группа в скором времени войдёт в студию для нанесения последних штрихов на новый альбом. Глен также извиняется за задержки с выходом альбома, объясняя это некими проблемами с лэйблами.</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Scorpions, Judas Priest и Nazareth собираются записать симфонический концерт в Вене, а затем выпустить Unplugged.</p>
+
+Автор: Vit Belov
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 19.02.2001 news Иудейский монах возвращается...
+
+<p>"Старый конь - борозды не испортит!" Будем надеяться, что так и произойдет с "Judas Priest", которые только что завершили запись нового полноформатного творения. Мастеринг пройдет в начале марта. По словам команды "Мы работали не покладая сил над этим альбомом!" Так же команда объявила о контракте с Sony Records на выпуск 12 альбомов от ‘Sin After Sin Right’ до ‘Painkiller’. Не забудьте сходить на официальный сайт за свежей информацией www.judaspriest.com</p>
+
+Автор: Yermola
+
+### 19.02.2001 news Priest is back ...
+
+<p>Judas Priest have nearly finished recording their new album, the mastering is expected to start next month. ‘We know you're getting impatient but as we have said a million times before we are working very hard on this album - there are no problems within the band - we are just keeping our heads down concentrating on getting it finished!! We are very pleased with it - it is sounding great!’ The band have also finalised a deal with Sony Records to have Judas Priest back catalogue – twelve albums – from ‘Sin After Sin Right’ through to ‘Painkiller’ re-mastered and re-released through Columbia Records. Visit www.judaspriest.com for more info</p>
+
+Автор: Yermola
+
+### 29.03.2001 news JUDAS PRIEST &quot;Demolition&quot;
+
+<p>Появились новости об альбоме JUDAS PRIEST "Demolition" который запланирован к выходу на 28 мая. Он будет содержать 13 или 14 песен, среди них: 01. Machine Man 02. In Between 03. Lost And Found 04. One On One 05. Feed On Me 06. Metal Messiah. По сообщению координатора Jayne Andrews команда скоро объявит даты американского тура.</p>
+
+Автор: Yermola
+
+### 29.03.2001 news JUDAS PRIEST &quot;Demolition&quot;
+
+<p>More information has trickled in about the forthcoming JUDAS PRIEST CD, entitled Demolition, which has a May 28th European release date. According to the band’s official web site, the album will include 13 or 14 tracks, some of which have the following titles: 01. Machine Man 02. In Between 03. Lost And Found 04. One On One 05. Feed On Me 06. Metal Messiah. JUDAS PRIEST have just completed a round of press interviews in the UK while continuing work on the mixing sessions for Demolition, and according to Management Co-ordinator Jayne Andrews, the band “will announce our US tour as soon as it is finalized. At the moment, we are still working on the dates and cannot announce anything until it is all confirmed.”</p>
+
+Автор: Yermola
+
+### 16.04.2001 news Супер-герои....
+
+<p>Похоже ответ на вопрос поставленный Д.Мастэйном: "Нужен ли миру новый герой?" - найден. Нужен. И им вполне может стать гипер-скоростной нарезальщик Paul Gilbert ("ex-MR. BIG") который после выпуска альбома "Superheroes" и объединения с барабанщиком Scott Travis ("JUDAS PRIEST") героически отправился в Америку поддерживать свой опус на фестивале "Whisky A Go Go".</p>
+
+Автор: Yermola
+
+### 16.04.2001 news RACER X will be playing California&#39;s &quot;Whisky A Go Go&quot;....
+
+<p>The reunited RACER X, featuring JUDAS PRIEST drummer Scott Travis and ex-MR. BIG guitarist Paul Gilbert, will be playing West Hollywood, California's Whisky A Go Go on May 25th in what is being billed as "possibly the only time the band will perform in the US" in support of its recently-released (in Japan only!) Superheroes CD. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.05.2001 news Разрушение от Иудейского Монаха.....
+
+<p>Обещанный народу полноформатник "Demolition" передвинут на следующие даты: Европа - 16 июля, и штаты - 31 июля. Стал известен окончательный трек-лист альбома: 01. Machine Man 02. One On One 03. Hell Is Home 04. Feed On Me 05. Jekyll & Hyde 06. Devil Digger 07. Close To You 08. Subterfuge 09. Metal Messiah 10. Cyberface 11. Bloodsuckers 12. In Between 13. Lost & Found.</p>
+
+Автор: Yermola
+
+### 02.05.2001 news Demolition opus can finally be revealed.....
+
+<p>The full track listing for JUDAS PRIEST's forthcoming Demolition opus can finally be revealed. However, please note that this is not the album's final running order: 01. Machine Man 02. One On One 03. Hell Is Home 04. Feed On Me 05. Jekyll & Hyde 06. Devil Digger 07. Close To You 08. Subterfuge 09. Metal Messiah 10. Cyberface 11. Bloodsuckers 12. In Between 13. Lost & Found. Demolition is scheduled for release on July 16th in Europe and July 31st in USA/Canada. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.05.2001 news JUDAS PRIEST показывают кино...
+
+<p>JUDAS PRIEST засняли на видео работу в студии над "Demolition". Вы можете посмотреть фильм на сайте SPV/Steamhammer Records на: http://www.spv.de/eng/artikel/judaspriest-e.html</p>
+
+Автор: Yermola
+
+### 04.05.2001 news JUDAS PRIEST have filmed a video ....
+
+<p>JUDAS PRIEST have filmed a video statement about their current work on the upcoming Demolition album, which can be viewed exclusively via the SPV/Steamhammer Records web site from this location: http://www.spv.de/eng/artikel/judaspriest-e.html Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.07.2001 reviews Demolition - нелишнее демо в Вашей коллекции
+
+<p> Почти 4 года прошло в томительном ожидании после выхода неодозначного и многими не понятного альбома Jigulator, первого с новым вокалистом Риппером, и вот новый альбом гигантов-хэви метала Judas Priest, наименованный Demolition, увидел свет. Нельзя сказать, что Demolition прольет бальзам на души поклонников старого звучания JP, но он определенно должен понравится им больше своего предшественника. Новый альбом плюхнулся как раз в середину между мощной, но нудноватой тяжестью Jigulator'а и мелодичной агрессией ранних работ. Трудно утверждать, что эта середина является золотой, но определенный компромисс найден, и это есть хорошо.</p>
+<p></p>
+<p> Альбом довольно разнообразен - имеются ударные номера - "Machine Man", "One On One" и "Bloodsucker" (не очень, правда, убедительные), тяжелые, но размеренные вещи, коих, пожалуй, большинство, пара медляков. А "Metal Messian" - пожалуй, лучший трэк диска, который может встать в один ряд со старой пристовской классикой, - удачно сочетает мощные риффы, традиционно-мелодичный хэви-металлический припев, вокальные упражнениями Риппера в восточном стиле, и даже что-то, похожее на.. гм... рэп (кстати, достаточно удачный эксперимент). Кто-то поставит им это в заслугу, а кто-то в вину, но, в отличие от еще полтора десятка лет назад законсервировавшихся в собственной музыке Iron Maiden, JP явно пытаются следить за состоянием современной сцены. Вот где-то промелькнули интонации Rammstein, в другом месте послышался Machine Head, тут какие-то сэмплики на заднем плане, а вот здесь... господи, что это?.. неужели Korn?!.. нет, кажется почудилось. И тем не менее, несмотря на все эти современные вкрапления (не очень, впрочем, навязчивые), перед нами именно альбом Judas Priest. Риппер, кстати говоря, пусть и не Хэлфорд, но уж конечно не Блэйз Бэйли - сильный и разнообразный вокалист, который неплохо вписался в современную стилистику группы.</p>
+<p></p>
+<p> И все же в целом Demolition оставляет двоякое, половинчатое впечатление. Безусловно, он не дотягивает до Painlkiller и других легендарных шедевров, а может быть даже и до подкупающего прямолинейной хеви-металлической атакой хэлфордовского Resurrection - нет в нем того сочетания энергии, агрессии и мелодичности, за которые Judas Priest столь любимы в народных металлических массах. Однако эти люди и в 50 продолжают упрямо искать свой собственный путь, а значит, мы еще услышим от них что-то интересное. Хотя хорошо бы, конечно, Хэлфорда обратно - так оно лучше будет.</p>
+
+Автор: Martin
+
+### 25.08.2001 news Какие люди в Голливуде...
+
+<p> JUDAS PRIST вовсю открещиваются от какой-либо своей причастности к фильму "Rock Star", в скором времени выходящем на экраны и расказывающем о пути Ripper Owens'a от певца кавер-группы JUDAS PRIEST до замены Rob Halford'a у микрофонной стойки. "Первоначально нам чрезвычайно польстило такое внимание, - говорит Glenn Tipton, - но, постепенно, сценарий превратился в настоящую голливудскую фантазию и мы нехотим иметь с этим ничего общего."</p>
+
+Автор: Odiumaniac
+
+### 18.09.2001 news PRIEST US tour...
+
+<p>Having previously postponed their European headlining trek to January/February in order to accommodate their support slot on the aforementioned PRIEST US tour, ICED EARTH are now faced with the unenviable task of possibly having to postpone their European tour a second time, assuming that they are still offered the opening slot on the rescheduled PRIEST US dates. Although no official announcement has yet been made regarding the status of ICED EARTH’s rescheduled European tour, the group have released all the new dates via their official web site, indicating that they are still planning on going ahead with the revised trek. The details are as follows: <br> Jan. 18 – Belgium, Antwerpen, Hof Ter Lo <br> Jan. 19 – Netherlands, Tilburg, 013 <br> Jan. 20 – UK, London, TBA <br> Jan. 21 – Germany, Bochum, Zeche <br> Jan. 22 – Germany, Kцln, Live Music Hall <br> Jan. 23 – France, Paris, Elysйe Montmatre <br> Jan. 25 – Spain, Barcelona, Razzmatazz <br> Jan. 26 – Spain, Bergara, Sala Jam <br> Jan. 27 – Portugal, Porto, Hard Club <br> Jan. 28 – Spain, Madrid, Revolver <br> Jan. 29 – Spain, Valencia, Republicca <br> Jan. 31 – France, Lyon, Rail Theatre <br> Feb. 01 – Switzerland, Pratteln, Z7 <br> Feb. 02 – Germany, Kaufbeuren, Zeppelinhalle <br> Feb. 03 – Germany, Nьrnberg, Z-Bau <br> Feb. 04 – Germany, Lange, Stadthalle <br> Feb. 05 – Germany, Stuttgart, Longhorn/LKA <br> Feb. 07 – Austria, Salzburg, Rockhaus <br> Feb. 08 – Hungary, Budapest, Petofi Hall <br> Feb. 09 – Austria, Wien, Planet Music <br> Feb. 10 – Italy, Milan, Rolling Stone <br> Feb. 12 – Germany, Halle, Easy Schorre <br> Feb. 13 – Germany, Hamburg, Markthalle <br> TBA – Greece, Athens, TBA <br> TBA – Greece, Thessaloniki, TBA<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Награды Ассоциации Звукозаписывающей Индустрии...
+
+<p>Американская Ассоциация Звукозаписывающей Индустрии (Recording Industry Association Of America) выдала следующие золотые и платиновые сертификаты:<BR> <BR> Золото (500,000 проданных копий):<BR> JUDAS PRIEST - Priest...Live! (дата выхода: 6/9/87) <BR> PUDDLE OF MUDD - Come Clean (дата выхода: 8/28/01)<BR><BR> Платина (1,000,000 проданных копий):<BR> SYSTEM OF A DOWN - Toxicity (дата выхода: 9/4/01) <BR> P.O.D. - Satellite (дата выхода: 9/11/01)<BR> SLIPKNOT - Iowa (дата выхода: 8/28/01)<BR><BR> Мульти-платина:<BR> DISTURBED - The Sickness (дата выхода: 3/7/00) (2x platinum) <BR> JUDAS PRIEST - Screaming For Vengeance (дата выхода: 6/23/82) 2x platinum</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Here are some of the latest official gold and platinum certification from the RIAA ...
+
+<p>Here are some of the latest official gold and platinum certification from the RIAA (Recording Industry Association Of America): <BR><BR> Gold (500,000 copies sold):<BR> JUDAS PRIEST - Priest...Live! (release date: 6/9/87) <BR> PUDDLE OF MUDD - Come Clean (release date: 8/28/01)<BR><BR> Platinum (1,000,000 copies sold):<BR> SYSTEM OF A DOWN - Toxicity (release date: 9/4/01) <BR> P.O.D. - Satellite (release date: 9/11/01) <BR> NICKELBACK - Silver Side Up (release date: 9/11/01) <BR> SLIPKNOT - Iowa (release date: 8/28/01)<BR><BR> Multi Platinum:<BR> DISTURBED - The Sickness (release date: 3/7/00) (2x platinum) <BR> JUDAS PRIEST - Screaming For Vengeance (release date: 6/23/82) 2x platinum</p>
+
+Автор: Yermola
+
+### 05.12.2001 news JUDAS PRIEST Japanese dates...
+
+<p>JUDAS PRIEST have announced the following Japanese dates that are taking place next week: <BR><BR> Dec. 10 - Tokyo, JAP @ Nakano Sun Plaza <BR> Dec. 11 - Tokyo, JAP @ Nakano Sun Plaza <BR> Dec. 12 - Osaka, JAP @ Kosei Nenkin Hall <BR> Dec. 14 - Nagoya, JAP @ Diamond Hall <BR> Dec. 15 - Fukuoka, JAP @ Zepp</p>
+
+Автор: Yermola
+
+### 28.12.2001 news JUDAS PRIEST сняли на видео шоу в London&#39;s Brixton Academy.....
+
+<p>"JUDAS PRIEST" сняли на видео свой концерт 19-го Декабря в London's Brixton Academy. Шоу будет выпущено на DVD до конца 2002 года. Трек-лист:<BR><BR> 01. Metal Gods<BR> 02. Heading Out to the Highway<BR> 03. Grinder<BR> 04. Touch Of Evil<BR> 05. Bloodstained<BR> 06. Victim Of Changes<BR> 07. The Sentinel<BR> 08. One On One<BR> 09. Running Wild<BR> 10. The Ripper<BR> 11. Diamonds and Rust<BR> 12. Feed on Me<BR> 13. Green Manalishi<BR> 14. Beyond the Realms of Death<BR> 15. Burn In Hell<BR> 16. Hell is Home<BR> 17. Breaking the Law<BR> 18. Desert Plains<BR> 19. You've got Another Thing Coming<BR> 20. Turbo Lover<BR> 21. Painkiller<BR> 22. Hellion/Electric Eye<BR> 23. United<BR> 24. Living After Midnight<BR> 25. Hell Bent for Leather</p>
+
+Автор: Yermola
+
+### 28.12.2001 news JUDAS PRIEST Brixton DVD Set List Revealed....
+
+<p>Here is the final set list performed by JUDAS PRIEST at their December 19th gig at London's Brixton Academy:<BR><BR> 01. Metal Gods<BR> 02. Heading Out to the Highway<BR> 03. Grinder<BR> 04. Touch Of Evil<BR> 05. Bloodstained<BR> 06. Victim Of Changes<BR> 07. The Sentinel<BR> 08. One On One<BR> 09. Running Wild<BR> 10. The Ripper<BR> 11. Diamonds and Rust<BR> 12. Feed on Me<BR> 13. Green Manalishi<BR> 14. Beyond the Realms of Death<BR> 15. Burn In Hell<BR> 16. Hell is Home<BR> 17. Breaking the Law<BR> 18. Desert Plains<BR> 19. You've got Another Thing Coming<BR> 20. Turbo Lover<BR> 21. Painkiller<BR><BR> (First Encore)<BR> 22. Hellion/Electric Eye<BR> 23. United<BR> 24. Living After Midnight<BR><BR> (Second Encore)<BR> 25. Hell Bent for Leather<BR><BR> As previously reported, the show was filmed for an upcoming DVD release, which is tentatively due at the end of 2002.</p>
+
+Автор: Yermola
+
+### 03.01.2002 news JUDAS PRIEST Reunion With Rob Halford: Just A Matter Of Time ....
+
+<p>JUDAS PRIEST fans who are desperately hoping for a reunion with vocalist Rob Halford on the group's next studio offering will be reassured by the fact that the sales of both PRIEST's and Halford's post-split efforts have gone steadily downhill since the singer announced his departure from the band back in 1992. Even though JUDAS PRIEST's last studio album with Halford, 1990's Painkiller, was certified gold for sales of over 500,000 copies in the US in January 1991, the band's subsequent releases—1997's Jugulator and 2001's Demolition—have shifted only a fraction of that amount. Meanwhile, Halford's solo attempts—first with FIGHT, then with TWO, and finally with HALFORD—started out strong, but quickly lost steam, with the vocalist's most recent studio CD, 2000's Resurrection, having failed to break the 60,000 mark (according to Soundscan), despite having garnered excellent reviews and been widely hailed as the album PRIEST should have made after Painkiller. <BR><BR> Here are the exact Soundscan figures for all the releases in question for the week ending December 30th, 2001:<BR><BR> FIGHT - War Of Words (1994): 223,385<BR> FIGHT - Small Deadly Space (1995): 67,253<BR> TWO - Voyeurs (1998): 47,431<BR> HALFORD - Resurrection (2000): 58,933<BR> HALFORD - Live Insurrection (2001): 22,449<BR> JUDAS PRIEST - Jugulator (1997): 107,707<BR> JUDAS PRIEST - Demolition (2001): 36,457<BR></p>
+
+Автор: Yermola
+
+### 04.01.2002 news Арифметика против JUDAS PRIEST ....
+
+<p>Soundscan опубликовал цифры продаж JUDAS PRIEST и сольников Роба Халфорда по состоянию на 30 декабря 2001: <BR><BR> FIGHT - War Of Words (1994): 223,385<BR> FIGHT - Small Deadly Space (1995): 67,253<BR> TWO - Voyeurs (1998): 47,431<BR> HALFORD - Resurrection (2000): 58,933<BR> HALFORD - Live Insurrection (2001): 22,449<BR> JUDAS PRIEST - Jugulator (1997): 107,707<BR> JUDAS PRIEST - Demolition (2001): 36,457<BR><BR> И это притом, что последний альбом в классическом составе Painkiller получил "золото" за 500 000 копий еще в 1991 году. Единственный напрашивающийся вывод: "А не пора ли ребятам снова объединиться?"</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 24.06.2002 news Первый DVD от Judas Priest
+
+<p>23 июля станет доступен первый DVD от Judas Priest. 'Live in London' был записан в Brixton Academy в декабре прошлого года во время всемирного турне группы. По словам представителей SPV, посредством которой и будет выпущен диск, 'Live in London' является прекрасным подтверждением тому, что Judas Priest действительно являются живыми классиками тяжёлой музыки. Продолжительность DVD - 90 с небольшим минут, а чтобы покупатель по-настоящему ощутил атмосферу концерта, предлагаются такие опции как Dolby Digital 5.1 Surround Sound и Dolby Digital 2.0. Как пишет авторитетное английское издание Classic Rock, "Это опыт сродни религиозному. Купите, возьмите у друзей, украдите в конце концов - но вы должны это увидеть. Хотя бы потому, что вскоре этот DVD станет классикой! Лучший концерт года, чёрт возьми!" Помимо самого концерта, диск включает в себя закулисные съёмки и интервью, 25-минутный soundcheck - во время оного играются новые песни, три из которых группа так и не отыграла на лондонском концерте. Розничная цена: $21,98</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 18.07.2002 news Трибьют JUDAS PRIEST ...
+
+<p>9-го Сентября Nuclear Blast Records выпускает сборник посвященный заслуженным.... гомосексуалистам хэви-металл - JUDAS PRIEST "A Tribute To The Priest". Трек-лист: <BR><BR> 01. ANNIHILATOR - "Hell Bent For Leather"<BR> 02. PRIMAL FEAR - "Metal Gods"<BR> 03. WITCHERY - "Riding On The Wind"<BR> 04. ICED EARTH - "Screaming For Vengeance"<BR> 05. SIEBENB&Uuml;RGEN - "Jawbreaker"<BR> 06. HAMMERFALL - "Breaking The Law"<BR> 07. BENEDICTION - "Electric Eye"<BR> 08. DEATH - "Painkiller"<BR> 09. SILENT FORCE - "All Guns Blazing"<BR> 10. STEEL PROPHET - "Dreamer, Deceiver"<BR> 11. ARMORED SAINT - "Never Satisfied"<BR> 12. THERION - "Green Manalishi"<BR> 13. THUNDERSTONE - "Diamonds And Rust"<BR> 14. SKID ROW (feat. Rob Halford) - "Delivering The Goods" (live)</p>
+
+Автор: Yermola
+
+### 18.07.2002 news JUDAS PRIEST Tribute CD: &quot;A Tribute To The Priest&quot; ....
+
+<p>On September 9th, Nuclear Blast Records will be issuing a brand new JUDAS PRIEST tribute album, entitled A Tribute To The Priest. The complete track listing for the CD is as follows (in no particular order): <BR><BR> 01. ANNIHILATOR - "Hell Bent For Leather"<BR> 02. PRIMAL FEAR - "Metal Gods"<BR> 03. WITCHERY - "Riding On The Wind"<BR> 04. ICED EARTH - "Screaming For Vengeance"<BR> 05. SIEBENBЬRGEN - "Jawbreaker"<BR> 06. HAMMERFALL - "Breaking The Law"<BR> 07. BENEDICTION - "Electric Eye"<BR> 08. DEATH - "Painkiller"<BR> 09. SILENT FORCE - "All Guns Blazing"<BR> 10. STEEL PROPHET - "Dreamer, Deceiver"<BR> 11. ARMORED SAINT - "Never Satisfied"<BR> 12. THERION - "Green Manalishi"<BR> 13. THUNDERSTONE - "Diamonds And Rust"<BR> 14. SKID ROW (feat. Rob Halford) - "Delivering The Goods" (live)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock в Германских Чартах...
+
+<p>Вот так выглядит Топ-100 Германских Медиа Контрол Чартов по состоянию на текущую неделю... <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. B&Ouml;HSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending August 19th: <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. BЦHSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 05.09.2002 news DVD от JUDAS PRIEST в чартах...
+
+<p>DVD JUDAS PRIEST: 'Live In London' после нахождения в германских чартах Music DVD на первом месте на этой неделе сместился вниз и занимает третью строчку...</p>
+
+Автор: Yermola
+
+### 05.09.2002 news JUDAS PRIEST: &#39;Live In London&#39; Riding High On German Charts ...
+
+<p>After entering the German Music DVD charts at #1, JUDAS PRIEST are currently occupying position #3 with their much-acclaimed Live In London offering.<BR><BR> As previously reported, Live In London contains performance footage recorded at the Brixton Academy in London on December 19th, 2001 in addition to behind-the-scenes material, rare footage, interviews, soundcheck footage and lots more.</p>
+
+Автор: Yermola
+
+### 23.03.2003 news Роб Хэлфорд опроверг слухи...
+
+<p>Роб Хэлфорд опроверг слухи о своём возможном воссоединении с JUDAS PRIEST и возложил ответственность за их появление на свой бывший менеджмент Sanctuary Music Group.</p>
+<p>Хэлфорд: "Во-первых, хочу извиниться перед моими слушателями за слухи, распростаняемые моим бывшим менеджером Родом Смолвудом и его компанией Sanctuary Music Management. Эта компания заинтересована в трёх группах, вовлечённых в эту сплетню. Видимой целью этих слухов можно назвать желание смутить моих фэнов, Североамериканских промоутеров и многих других. В течение моей 30-летней музыкальной карьеры я всегда был честен с моими слушателями. вы можете мне доверять, и я хочу завершить эту акцию, недостойную взрослого человека, немедленно. Хочу заявить, я не член JUDAS PRIEST, и не имею желания реформировать группу в прежнем составе. Я стараюсь наладить свои отношения с Кеном, Гленном и Яном, начиная с 1999 года, но всё-таки мы не на той стадии, на которой я смог бы себя представить с ними на одной сцене. Разрыв в 1992 очень сильно повлиял на наши отношения. Ну и наконец, я сообщаю, что прекратил своё сотрудничество с Sanctuary ещё в прошлом году, из-за разногласий по деловым, творческим и философским вопросам."</p>
+
+Автор: Vit Belov
+
+### 12.07.2003 news Rob Halford снова в JUDAS PRIEST
+
+<p>По данным зарубежной прессы, основанной на сообщениях от музыкантов JUDAS PRIEST, они собираются воссоединиться спустя двенадцать лет с их бывшим вокалистом Rob Halford. Вместе с ним, они запишут свой новый альбом и проведут тур, посвященный тридцатилетию коллектива. Запись нового материала начнется в сентябре, а выход нового альбома и начало тура запланированы на конец лета 2004 года. В составе группы также гитаристы Glenn Tipton и K.K. Downing, басист Ian Hill и ударник Scott Travis.</p>
+
+Автор: Dimas
+
+### 20.01.2004 news Бывший барабанщик JUDAS PRIEST обвинён...
+
+<P><B>David Holland</B> - бывший барабанщик <B>JUDAS PRIEST</B> - обвинён в сексуальных домогательствах в отношении 17-летнего мальчика, который брал у него уроки игры на барабанах. У Холланда уже были проблемы с законом. В частности, его обвиняли в попытке изнасилования.</P>
+Автор: Vit Belov
+
+### 25.03.2004 news Judas Priest: новый альбом с Робом
+
+<B>JUDAS PRIEST</B> с вернувшимся вокалистом <B>Rob Halford</B> в настоящее время записывают новый альбом под руководством продюсера <B>Roy Z (HALFORD, HELLOWEEN, BRUCE DICKINSON).</B> Барабанщик <B>Scott Travis</B> прилетел в Англию на прошлой неделе и сейчас прописывает барабанные партии. Запись гитарных партий в полном разгаре, а <B>Halford</B> присоединится к группе на днях для работы над вокалом. Запись басовых партий также пока не началась.
+Автор: Omon Ra
+
+### 04.04.2004 news Новый альбом JUDAS PRIEST выйдет на Sony
+
+<P><IMG height=169 alt="" hspace=0 src="/images/news_rus/2004.04/6338.jpg" width=225 align="left" border=10>В своём интервью радио-станции <B>KDKB</B> из американского Феникса <B>Роб Хэлфорд</B> "неофициально" подтвердил, что группа близка к подписанию нового договора с <B>Sony Music</B>. напомним, что последние альбомы <B>JUDAS PRIEST</B> выходили на <B>SPV</B>. На фото Rob в компании <B>Alice Cooper</B>, который тоже принял участие в радио-программе.</P>
+Автор: Vit Belov
+
+### 15.05.2004 news ANNIHILATOR with JUDAS PRIEST on tour
+
+02.06.04 HANNOVER (D) - STADIONSPORTHALLE <BR>06.06.04 FRAUENFELD (CH) – T.B.A.<BR>08.06.04 BERLIN (D) - ARENA TREPTOW<BR>13.06.04 OBERHAUSEN (D) - ARENA<BR>14.06.04 PRAGUE<SPAN lang=en-gb> (CZ) - T-MOBILE</SPAN>
+Автор: Vit Belov
+
+### 19.06.2004 articles Хроника: Счастливые мгновения из жизни Rob Halford – Chris Poland не присоединялся к MEGADETH – Улица имени AC&#x2F;DC – Charlie Benante хочет в предвыборный штаб – Некролог Quorthon – Скупой Glenn Benton и жадная Metalysee
+
+<P><I>Счастливые мгновения из жизни </I><B><I>Rob </I><I>Halford </I></B><I>– </I><B><I>Chris </I><I>Poland </I></B><I>не присоединялся к </I><B><I>MEGADETH </I></B><I>– Улица имени </I><B><I>AC/</I><I>DC </I></B><I>– </I><B><I>Charlie Benante </I></B><I>хочет в предвыборный штаб – Некролог </I><B><I>Quorthon</I></B><I> – Скупой </I><B><I>Glenn Benton </I></B><I>и жадная </I><B><I>Metalysee</I></B><I></I></P>
+<P>Одним из самых значимых событий за последнее время в metal-музыке стало воссоединение <B>JUDAS PRIEST</B>с <B>Rob Halford</B>. В интервью журналу <B>Revolver Rob </B>поделился своими мыслями по поводу этого события. «<I>В 1997 году, когда вышел ‘</I><B><I>Jugulator</I></B><I>’ я подумал, что шансов на воссоединение у нас не осталось. Они выпустили альбом с </I><B><I>Tim </I><I>Owens</I></B><I>, поехали в тур… Я никогда не рассказывал об этом, но ещё во время записи первого альбома </I><B><I>FIGHT</I></B><I> я подумывал о возвращении в </I><B><I>JUDAS </I><I>PRIEST</I></B><I>, я связался с одним человеком, близким к группе, но получил отказ. Мне тогда показалось, что моими бывшими коллегами владело чувство обиды</I>», - рассказывает <B>Rob</B>. Также <B>Halford </B>описал сам момент возрождения группы в классическом составе: «<B><I>Sony</I></B><I> собралась выпустить коллекцию </I><B><I>JUDAS </I><I>PRIEST</I></B><I> на четырёх дисках ‘</I><B><I>Metalogy</I></B><I>’, и мы все вместе собрались, чтобы отобрать песни для этих дисков. Мы сидели на моей кухне, и когда основное дело было кончено, мы посмотрели друг другу в глаза и сказали: «Ну, что Вы думаете о </I><I>re-</I><I>union?». Мы решили, что если это не случится сейчас, это не случится никогда. Все разъехались в разных направлениях, а я сидел дома и повторял: «Я снова в группе! Я снова в группе!»</I>». За всей этой мелодраматической историей заметна тень <B>Sony Music</B>, которым очень выгодно воссоединения «бедного» <B>Halford </B>со своим друзьями-врагами. Альбом будет записан осенью, а в настоящее время группа даёт свои первые концерты в обновлённом составе. Вот сэт-лист одного из них в Ганновере:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2004.06/6633.jpg" width=300 align="right" border=0>01. <B>Hellion</B><SPAN><BR>02. <B>Electric Eye</B> <BR>03. <B>Metal Gods</B> <BR>04. <B>Heading Out to the Highway</B> <BR>05. <B>The Ripper</B> <BR>06. <B>Touch of Evil</B> <BR>07. <B>The Sentinel</B> <BR>08. <B>Turbo Lover</B> <BR>09. <B>Victim of Changes</B> <BR>10. <B>Diamonds and Rust</B> <BR>11. <B>Breaking the Law</B> <BR>12. <B>Beyond the Realms of Death</B> <BR>13. <B>The Green Manalishi (With the Two Pronged Crown)</B><BR>14. <B>Painkiller</B> <BR>Encore:<BR>15. <B>Hell Bent For Leather</B> <BR>16. <B>Living After Midnight</B> <BR>17. <B>United</B> <BR>18. <B>You Got Another Thing Coming</B> </SPAN></P>
+<P><B>MEGADETH </B>записали новую пластинку. В записи <B>Dave Mustain </B>помогал его бывший коллега по группе <B>Chris Poland</B>, который дал на прошлой неделе интервью<B> <SPAN><A href="http://dallasmusicguide.com/" target=_blank><SPAN style="COLOR: #ffffff">Dallas Music Guide</SPAN></A></SPAN></B>, в котором рассказал немного об этой свой работе. «<B><I>Dave</I></B><I> позвонил мне и попросил записать соло для своей новой работы, которая должна была стать либо новым альбомом </I><B><I>MEGADETH</I></B><I>, либо сольной пластинкой </I><B><I>Dave </I><I></I><I>Mustain</I></B><I><SPAN>. Одной из основных причин моего согласия стала наличие за барабанной стойкой <B>Vinnie Colaiuta, </B>фэном которого я являюсь долгое время</SPAN></I>». Также <B>Chris </B>сообщил, что не собирается присоединяться к <B>MEGADETH </B>на постоянной основе, так как в настоящее время он предпочитает играть другой сорт музыки. Вот как <B>Poland </B>описывает будущий альбом <B>MEGADETH</B><SPAN>: «<I>Новая пластинка – это смесь </I></SPAN><B><I>Rust </I><I></I><I>In </I><I></I><I>Peace</I></B><I> и </I><B><I>Peace </I><I></I><I>Sells</I></B><I>… Также есть некоторые черты первого альбома. Многие песни необходимо слушать несколько раз, так как врубиться в них с первого раза тяжеловато. Гитарные партии очень сложные, я не могу вспомнить, что я играл на этом альбоме, для каждой песни собственное сложное соло. Вы можете ожидать нечто подобное, но каждый составит своё мнение после прослушивания этого альбома</I>».</P>
+<P>Почётная, и одновременно забавная, новость пришла из Австралии. По сообщению <B>CNN</B>, власти города Мельбурн собираются переименовать одну из улиц города <B>Corporation Lane </B><SPAN>в (угадайте!!!) <B>AC/DC Lane. </B>«<I>Они, возможно, самая успешная австралийская группа</I>», - говорят в мэрии города. «<I>Рок’н’ролл сообщество города ищет возможность воздать должное группе. Тем более, один из клипов </I></SPAN><I>AC/</I><I>DC<B>"</B></I><B><I>It'</I><I>s </I><I>A </I><I>Long </I><I>Way </I><I>to </I><I>the </I><I>Top"</I></B><I> снимался на улицах Мельбурна</I>», - заканчивают своё выступление государственные деятели. <B>CNN </B>напоминает, что улица имени <B>AC/DC </B>уже есть в Мадриде.</P>
+<P>Бывшие thrash-metal’исты <B>ANTHRAX </B>продолжают привлекать к себе внимание общественности разнообразными высказываниями в прессе. В интервью своему немецкому фэн-клубу все другие заявления, включая мнение музыкантов о новом-старом басисте <B>ANTHRAX Joey Vera</B>, затмили очередные «предвыборные заявления». <B>Charlie Benante</B>: «<I>Я с самого первого дня ненавидел самою мысль, что </I><B><I>Bush</I></B><I> будет нашим президентом. Подобные чувства вселили действия, которые он и его группа идиотов производили. Я американец и горжусь этим, но одна мысль не даёт мне покоя: «Что думают о нас люди со всего мира, если мы выбрали себе такого президента?» Мы не такие, как он!!! Я за мир во всём мире и буду бороться за это</I>». Не иначе, как дела в группе идут не очень хорошо, и <B>Charlie </B>захотел подработать на стороне в предвыборном штабе <B>John Kerry</B>. </P>
+<P>7 июня скончался <B>Thomas "Quorthon" Forsberg </B>лидер и один из основателей <B>BATHORY</B>. У него просто остановилось сердце на сороковом году жизни после многолетней борьбы с сердечным недугом. Таковы скудные подробности случившегося. Многие известные музыканты выступили с заявлением по поводу кончины <B>Thomas</B><SPAN>. Одним из них стал <B>Jonas </B></SPAN><B>Akerlund, </B>который основал <B>BATHORY </B>вместе с <B>Quorthon </B>в начале 80-х, а затем успешно занимался клипмейкерством. Среди исполнителей, работавших с ним, <B>METALLICA, Madonna </B>и <B>U2</B><SPAN>. «<I>Это так грустно. Он мог столько ещё всего написать</I>», - говорит </SPAN><B>Jonas</B>. “<B><I>BATHORY</I></B><I> появились на сцене очень рано, и многие коллективы вдохновлялись песнями </I><B><I>Quorthon</I></B><I>. Парни из </I><B><I>METALLICA</I></B><I> и многие другие группы рассказывали мне, что слушали </I><B><I>BATHORY</I></B><I>. </I><B><I>Quorthon</I></B><I> имел культовый статус. Его не интересовало, что слушают люди, он просто сочинял музыку</I>». Ещё один «некролог» пришёл из Норвегии. <B>Satyr (SATYRICON):</B><SPAN> «<I>Услышать о смерти было очень грустно, ему было всего 39 лет… </I></SPAN><B><I>BATHORY</I></B><I> оказали огромное влияние на меня и </I><B><I>Frost</I></B><I>, когда мы основывали </I><B><I>SATYRICON</I></B><I><SPAN>. Первый кавер, который записала наша группа, был <B>'Born For Burning'. </B>Не многие люди встречались с </SPAN></I><B><I>Quorthon</I></B><I><SPAN>, он был замкнут и не являлся частью норвежской металл-сцены. Мы разговаривали с ним по телефону несколько раз в середине 90-х, и я рад даже такому общению с этой культовой фигурой. В первый раз мы говорили три часа, и я нашёл его очень дружелюбным и приветливым человеком. Наш режиссер клипов <B>Jonas </B></SPAN></I><B><I>A</I><I>kerlund </I></B><I>рассказывал много интересного о своей работе с </I><B><I>Quorthon</I></B><I> над первым альбомом </I><B><I>BATHORY</I><I>. </I></B><I>Спасибо за всё, что ты сделал для музыки, </I><B><I>Quorthon</I></B><I>! Все, зажгите 13 свечей и включите альбом </I><B><I>BATHORY</I></B><I>, чтобы помянуть короля</I>». R.I.P.</P>
+<P>После такой грустной темы надо немного разрядиться, и на этот случай у меня припасена история «<B>DEICIDE и Metalysee Booking Agency</B>». Напомню, что, именно, <B>Metalysee </B>были одним из организаторов приезда в Россию группы <B>MARDUK</B>, отсутствие которой на сцене ДК им. Горбунова повлекло за собой беспорядки среди фэнов и фактическое разорение Эджен Price и его лэйбла <B>Metalagen</B>. Совсем недавно <B>DEICIDE </B>отменили своё турне по Европе. Такое случается, но <B>Metalysee </B><SPAN>не дали спустить это дело на тормозах и выступили с обличительным заявлением. «<I>Вчера, 8 июня, </I></SPAN><B><I>DEICIDE </I><I></I></B><I>скоропостижно отменили свой европейский тур. В этот день они должны были играть в Лондоне, но вместо этого группа ожидала рейса в США в аэропорту Хитроу. Все проблемы начались за неделю до этого, когда </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> потребовал значительного увеличения гонорара за каждое шоу, в противном случае </I><B><I>DEICIDE</I></B><I> отказывались выступать. Мы были вынуждены принять их условия, так как не могли отменить этот тур. Однако 8 июня группа потребовала ещё больших денег. Дошло до того, что они просили двойного увеличения первоначальной суммы. Мы не стали выполнять эти просьбы. Наряду с финансовыми разногласиями </I><B><I>DEICIDE</I></B><I> не понравились условия транспортировки, в автобусе был сломан кондиционер. В конце концов, группа развернулась и улетела домой, оставив три группы, участвующих с ними в трассе, агентов, промоутеров и, конечно же, обманутых зрителей</I>». Ответ <B>Glenn Benton </B><SPAN>не заставил себя ждать: «<I>Во-первых, мы прервали своё сотрудничество с </I></SPAN><B><I>Metalysee</I></B><I> много лет назад, из-за ущемления прав групп, практикуемых на этой фирме. Сейчас мы вновь связались с этой конторой, считая, что многое должно измениться, например, трансферы. Замечу, что мы требовали всего 400 долларов за шоу. Но когда поняли, что за эти деньги нам придётся провести 4 недели в автобусе вместе с ещё 20 людьми, немного расстроились. Теперь автобус… Мы провели ночь на стоянке, дожидаясь его. </I><B><I>Johan</I></B><I> (босс </I><B><I>Metalysee</I></B><I>) врал нам, что он сломался, что неудивительно, когда пытаешься сэкономить на всём, чтобы заработать побольше, не считаясь с удобствами музыкантов. Автобус показался, опоздав на 7 с половиной часов… И у него не было кондиционера. Он не был сломан, его просто не было. Дохлые жучки повсюду, неубранные за прошлой группой помои. В контракте был указан «хороший автобус», этот не был таковым. Это же опасно для здоровья. Я вернулся домой с лёгочной инфекцией. После нескольких часов езды мы все были больны, запах моноксида углерода доконал нас. Я уже говорил </I><B><I>Johan</I></B><I>, что мы не можем путешествовать на подобных автобусах. Поверьте, нам не доставляет удовольствия отменять тур. Дал бы нам другой автобус или хотя бы почистил этот! А так, нам пришлось истратить 5000 долларов своих личных денег, чтобы вернуться домой, и ночевать на полу в аэропорту</I>». <B>Metalysee </B><SPAN>немедленно ответили на эти заявления: «<I>То, что сказал этот парень, может сказать только идиот. Мы работаем с лучшими </I></SPAN><I>black</I><I>-</I><I>death</I><I><SPAN> коллективами и никогда не кидаем своих партнёров. Касаемо транспорта, мы работаем только с лучшим перевозчиком в Европе <B>Starline-De Wit-Gaanon. </B>Мы все просто счастливы, что отделались от </SPAN></I><B><I>DEICIDE</I></B><I>. Многие локальные промоутеры больше не будут работать с этой группой. Посмотрим, какое ещё агентство обеспечит все требования </I><B><I>DEICIDE</I></B><I>: перелёт, трансфер, бэклайн и многое другое. </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> самый отвратительный тип, с которым я работал. Желаю ему, всего наилучшего</I>». Начитавшись подобных заявлений, к схватке присоединился бывший гитарист <B>HADES Dan Lorenzo</B><SPAN>: “<I>Никогда бы не подумал, что поддержу </I></SPAN><B><I>Glenn </I><I></I><I>Benton</I></B><I>. Но, прочитав его заявление, я вспомнил то, о чём редко рассказывал. Одной из главных причин распада </I><B><I>HADES</I></B><I> сразу после европейского тура 1989 года была работа </I><B><I>Metalysee</I></B><I>. У нас было огромное количество народу в автобусе, который был рассчитан всего на 8 человек. Мы не могли никому высказать претензии, так как </I><B><I>Johan</I><I></I></B><I>просто исчез. После 10 дней мучений мы уже решили не продолжать </I><B><I>HADES</I></B><I>, но всё-таки доиграли тур, чтобы не кидать наших фэнов</I>». Многие группы были переломаны под колёсами этого автобуса, который носится по Европе битком набитый отбросами и black-death коллективами. Кстати, теперь понятно, почему <B>MARDUK </B><SPAN>не приехали. Видимо, они были настолько измотаны подобными переездами, что просто не смогли справиться ещё и с нашими неурядицами. Для полноты картины приведу здесь высказывания <B>Евгения Аксёнова (</B></SPAN><B>Metalagen)</B> о несостоявшихся концертах <B>MARDUK</B>: «<I>Я, как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством <B>Metalysee</B>. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали <B>Pro-Pain & Co</B>. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт <B>Marduk & Co</B>. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае, сейчас я просто ничего не соображаю, но <B>Metalagen</B> больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего</I>». </P>
+Автор: Vit Belov
+
+### 29.07.2004 news JUDAS PRIEST назначили дату релиза
+
+<P>Ре-юнион альбом <B>JUDAS PRIEST</B> выйдет 28 декабря на <B>Epic</B>. </P>
+Автор: Vit Belov
+
+### 25.10.2004 news JUDAS PRIEST переносят дату релиза на 31 января
+
+<P><STRONG>JUDAS PRIEST</STRONG> отодвигают дату релиза нового альбома на 31 января 2005 года (Великобритания и Европа) и 1 февраля (США). Как следует из заявления на официальном сайте www.judaspriest.com, такое решение исходило от издающего лейбла Sony Music/Epic Records, которому необходимо более основательно подготовить промо-компанию. Название и трек-лист будущего альбома не разглашаются. Также <STRONG>JUDAS PRIEST</STRONG> готовятся к мировому туру - даты и города, где можно будет увидеть звёздный состав Halford/Tipton/Downing/Hill/Travis, будут объявлены позже.</P></FONT></FONT>
+Автор: Morsus
+
+### 14.12.2004 news JUDAS PRIEST назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>JUDAS PRIEST</STRONG> назвали свой альбом <STRONG>'Angel Of Retribution'</STRONG>. Напомним, пластинка выйдет 28 февраля на <STRONG>Sony/Epic</STRONG>. Вот названия нескольких песен: <STRONG>"Judas Rising"</STRONG>, <B>"Deal with the Devil"</B>, <B>"Revolution"</B>, <B>"Worth Fighting For"</B>&nbsp;и "<B>Hellrider"</B>.</FONT></P>
+Автор: Vit Belov
+
+### 30.12.2004 news Новая песня JUDAS PRIEST!!!
+
+<P>Новую песню<STRONG> JUDAS PRIEST 'Revolution'</STRONG> в радио-качестве (списанную с радио?) можно скачать на нашем сайте: <A href="/samples/j/judas_priest/2005_1280.mp3">http://musica.mustdie.ru/samples/j/judas_priest/2005_1280.mp3</A>.</P>
+Автор: Vit Belov
+
+### 16.01.2005 news Подробности о новом JUDAS PRIEST
+
+<DIV class=regular>Стали известны последние подробности о новом альбоме<STRONG> JUDAS PRIEST</STRONG> <B>"Angel of Retribution"</B>. Это будет первый, после <STRONG>"Painkiller"</STRONG> и пятнадцатилетнего перерыва<STRONG>,</STRONG> альбом с участием старого вокалиста группы Роба Хэлфорда. Его релиз намечен на 1 марта 2005 года на <STRONG>Sony Music</STRONG>. Продюсером альбома <B>"Angel of Retribution"</B>&nbsp;выступил <B>Roy Z</B>,&nbsp;записывавший ранее сольные альбомы&nbsp;<B>Halford</B> и <STRONG>Bruce Dickinson, </STRONG>а также <STRONG>Helloween</STRONG>. В альбом войдут следующие вещи:</DIV>
+<DIV class=regular><BR>&nbsp;</DIV>
+<DIV class=regular><IMG height=250 alt="" hspace=20 src="/images/news_rus/2005.01/7715.jpg" width=250 align=right border=0>1. <B>Judas Rising</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>2. <B>Deal With The Devil</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>3. <B>Revolution</B> </DIV>
+<DIV class=regular><BR>4. <B>Worth Fighting For</B><BR>&nbsp;</DIV>
+<DIV class=regular>5. <B>Demonizer</B><BR>&nbsp;</DIV>
+<DIV class=regular>6. <B>Wheels Of Fire</B>&nbsp;<BR>&nbsp;</DIV>
+<DIV class=regular>7. <B>Angel</B><BR>&nbsp;</DIV>
+<DIV class=regular>8. <B>Hellrider</B></DIV>
+<DIV class=regular>&nbsp;</DIV>
+<DIV class=regular>9. <B>Eulogy</B><BR>&nbsp;</DIV>
+<DIV class=regular>10. <B>Lochness</B></DIV>
+<DIV class=regular><BR><BR></DIV>
+Автор: Dimas
+
+### 10.02.2005 news Новый видео-клип JUDAS PRIEST
+
+<P>Новое видео <STRONG>JUDAS PRIEST</STRONG> На новейшую песню '<STRONG>Revolution</STRONG>' можно посмотреть на их сайте: <A href="http://www.judaspriest.com/AngelOfRetribution/default.asp#video">http://www.judaspriest.com/AngelOfRetribution/default.asp#video</A></P>
+Автор: Vit Belov
+
+### 09.03.2005 reviews Старики-разбойники
+
+<P><STRONG><EM>Judas Priest.</EM></STRONG> Это название известно каждому любителю тяжёлого металла.На мой взгляд именно этот британский коллектив олицетворяет собой данный музыкальный жанр.Мы говорим Judas Priest-подразумеваем хеви-металл...Группа существует более тридцати лет,а это ,согласитесь, срок не маленький.За это время "присты" записали пятнадцать номерных альбомов(супер-успешных и не очень),а также пережили расставание с Робом Хэлфордом,после которого стали заниматься непонятно чем,выпустив два ,по мнению многих,противоречивых альбома - "Jugulator" и "Demolition".И вот было объявленно о воссоединении и записи нового альбома...</P>
+<P>Признаться я сомневался,что "присты" запишут что-то дельное.Наверное,когда ждёшь от <STRONG><EM>такой </EM></STRONG>группы,а уж тем более от <STRONG><EM>такого</EM></STRONG> реюниона,нового альбома,то требования всегда завышенны.Так бывало,и не раз...Тем приятнее,что мои сомнения не оправдались.</P>
+<P>"Angel of Retribution" напоминает хэлфордовский "Resurrection" ,и не напрасно,т.к. продюсером и того и другого является Roy Z. В итоге получился альбом,вобравший в себя всё лучшее ,что сделали "присты" за всё время своего существования.Оячень крепкая и ровная работа,проделанная профессионалами своего дела.Особенно приятно,что британцы не стали экспериментировать,как это было на "Jugulator" и&nbsp; "Dеmolition" , а записали 100% хеви-металлический диск,который можно смело рекомендовать старым поклонникам Judas Priest. Может на альбоме не хватает скоростных боевиков,но что поделаешь-старость-не радость,и пальцы уже не могут бегать по струнам с былой быстротой.В остальном-<STRONG><EM>JUDAS RISING!!! </EM></STRONG>Приобретайте новую работу JP не раздумывая,ибо в наше время это настоящий бриллиант.</P>
+Автор: Graver
+
+### 15.03.2005 reviews The Legend Of Heavy British Steel
+
+<P>Отношение к реюниону JUDAS PRIEST у меня было двойственным – с одной стороны, возвращение Роба Хэлфорда являлось бесспорным событием с большой буквы, с другой – ощущение исключительно коммерческого хода. «Это бизнес, детка!» (с). Признаться, и к прослушиванию “Angel Of Retribution” я подходил с большой опаской – уж слишком много копий было сломано в спорах по поводу нового альбома Пристов. Кто-то говорил, что их музыка стала похожа на работы конца семидесятых, кто-то – что на новом альбоме совсем нет быстрых песен, одни скучные баллады, а кто-то вообще сравнивал с безжизненным и мутным “Demolition”. Соответственно, ожидалось нечто, вообще непотребное и неудобоваримое…</P>
+<P>Не убоялся. Послушал. Оценил. </P>
+<P>Оказалось, что Присты придумали и записали просто потрясающий альбом, имеющий полное право занять место рядом с классическими работами типа “Defenders Of The Faith”, “Ram It Down” или “Painkiller”. Настоящий хэви-метал, отлитый из прославленной британской стали по классическим рецептам, но с современным звучанием – мощным, плотным и насыщенным. К слову, обложку для этого альбома рисовал Марк Уилкинсон – художник, оформлявший “Ram It Down” и “Painkiller”. Слабые песни – их просто нет, каждая из десяти запоминается с первого раза. И лысый герой сольного плавания – мистер Хэлфорд – здесь силен и убедителен, как никогда.<BR>“Judas Rising” – эта песня легко вписалась бы на любой другой альбом JUDAS PRIEST, настолько она характерна для их творчества, и недаром музыканты поставили ее в трэк-листе первой. Открывалка сработала как надо!</P>
+<P>“Deal With The Devil” – великолепный напористый боевик в духе “Sentinel”. Кто говорил, что здесь нет быстрых песен?</P>
+<P>“Revolution” – среднетемповая гимнообразная композиция с всесокрушающим ритмом, один из лучших бриллиантов в короне под названием “Angel Of Retribution”.</P>
+<P>“Worth Fighting For” – очень эмоциональная полубаллада с запоминающимися гитарными партиями. </P>
+<P>“Demonizer” – мрачный качовый трэк, злой и жесткий, и Хэлфорд здесь - как никогда собран и суров. Кстати, эта композиция хорошо бы смотрелась на первом диске его сольной команды FIGHT, но и здесь она – на своем месте. Хм, крайне разносторонний альбом получается… и это хорошо.</P>
+<P>“Wheels Of Fire” – еще одна песня в лучших традициях Пристов, посвященная байкерам – энергичный и ритмичный хэви-метал.</P>
+<P>“Angel” – красивая и трогательная баллада… уж чего-чего, а баллады им всегда хорошо удавались. </P>
+<P>“Hellrider” – тяжелая, агрессивная и скоростная вещь, заставляющая вспомнить тот самый знаменитый “Painkiller”… барабаны словно вколачивают в голову - “Hellrider – Breaking Their Will, Hellrider – In For The Kill”…</P>
+<P>“Eulogy” – коротенькая медленная песня - баллада с тревожной атмосферой, звучащая прелюдией к “Lochness”.</P>
+<P>“Lochness” – самая необычная вещь на альбоме – мистический эпик с гнетущим гитарными риффами и удивительно проникновенным припевом… </P>
+<P>Я слушал “Angel Of Retribution” много раз, пытаясь найти хоть какой-нибудь огрех или повод для претензии. Неудачно. Но зато теперь я с уверенностью могу сказать одно – воссоединение одной из величайших групп состоялось. И состоялось не зря. JUDAS RISING!</P>
+Автор: Dr. Grandma
+
+### 10.09.2005 news JUDAS PRIEST на просторах бывшего СССР
+
+<P><STRONG>JUDAS PRIEST</STRONG> объявили даты концертов на территории пост-советских республик:</P>
+<P>24.11 Киев, Дворец спорта<BR>27.11 Москва, Лужники<BR>29.11 Санкт-Петербург, Новая ледовая арена<BR>01.12 Saku Arena, Таллин<BR>02.12 Kipsala hall, Рига<BR>03.12 Ice Hall, Вильнюс</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 01.11.2005 news JUDAS PRIEST выпускают DVD
+
+<P>15 ноября выходит новый концертный DVD <STRONG>JUDAS PRIEST "Rising In The East</STRONG>", записанный в Японии. Трэк-лист:</P>
+<P>1. <STRONG>The Hellion/Electric Eye<BR></STRONG>2. <STRONG>Metal Gods</STRONG> <BR>3. <STRONG>Riding On The Wind<BR></STRONG>4. <STRONG>The Ripper</STRONG><BR>5. <STRONG>A Touch Of Evil</STRONG><BR>6. <STRONG>Judas Rising<BR></STRONG>7. <STRONG>Revolution<BR></STRONG>8. <STRONG>Hot Rockin<BR></STRONG>9. <STRONG>Breaking The Law<BR></STRONG>10. <STRONG>I'm A Rocker</STRONG><BR>11. <STRONG>Diamonds And Rust<BR></STRONG>12. <STRONG>Worth Fighting For</STRONG><BR>13. <STRONG>Deal With The Devil<BR></STRONG>14. <STRONG>Beyond The Realms Of Death<BR></STRONG>15. <STRONG>Turbo Lover<BR></STRONG>16. <STRONG>Hellrider<BR></STRONG>17. <STRONG>Victim Of Changes</STRONG><BR>18. <STRONG>Exciter<BR></STRONG>19. <STRONG>Painkiller<BR></STRONG>20. <STRONG>Hell Bent For Leather</STRONG><BR>21. <STRONG>Living After Midnight<BR></STRONG>22. <STRONG>You've Got Another Thing Comin</STRONG></P>
+Автор: Vit Belov
+
+### 09.11.2005 articles JUDAS PRIEST в России: пресс-релиз
+
+<P>&nbsp;27 ноября 2005 год<BR>19.00<BR>ДС Лужники</P>
+<P><BR>ЛЕГЕНДА БРИТАНСКОГО ХЭВИ-МЕТАЛЛ<BR>В РОССИИ!!!</P>
+<P>Пожалуй трудно найти более харизматичного имени для хэви-металла, чем «Священник Иуда»! Агрессивный и изысканный тандем двух соло-гитаристов К.К.Даунина и Гленна Типтона, неистовая и неподрожаемая манера фронтмена Роба Хэлфорда, плотная ритм секция неизменного басиста Яна Хилла и барабанщика Скотта Трэвиса….. Именно в таком составе группа записала&nbsp; последний на сегодняшний день альбом “Angel Of Retribution”, еще раз подтвердив свой незыблемый статус «металлических богов». Альбом занял 13 место в США, что, по сути, является высшим достижением группы.</P>
+<P>&nbsp;Джудас Прист нередко называют непоколебимым бастионом «британской стали». Но у группы, чей музыкальный стаж насчитывает уже 36 лет, не все было так гладко, им пришлось пройти неоднозначный и довольно тернистый путь. Группа была образована в 1969 году в Бирмингеме, металлургическом, как в прямом, так и в переносном смысле, сердце Англии. Как не парадоксально из оригинального состава до сегодняшнего дня в группе никого не осталось. Первым вокалистом был Алан Аткинс. В&nbsp; девяностых годах, когда Джудас Прист были в состоянии полураспада, Аткинс выпустил 4 сольные пластинки, в принципе приближенные по духу и музыкальному стилю к ранним работам группы. Именно Алан Аткинс и дал миру название, узнаваемое в характерном логотипе, позаимствовав его из песни Боба Дилана “The Ballad Of Frankie Lee And Judas Priest” с альбома 1967 года. Первый состав Джудас Прист просуществовал несколько лет и, не снискав особой популярности, в начале семидесятых развалился. Второе рождение группы состоялось лишь в 1973 году, когда и сформировался основной костяк Джудас Прист: неразлучная парочка гитаристов К.К Даунин и Гленн Типтон, басист Ян Хиллс и вокалист Роб Хелфорд. Роб Хэлфорд до этого вокалировал в группах Lord Lucifer и Hiroshima, а Гленн Типтон выступал с группой Flying Hat Band, где значился не только гитаристом, но еще выполнял и&nbsp; обязанности пианиста. Единственным проблемным местом на заре их творчества была неопределенность с барабанщиком. На первом этапе в группе успели посидеть за ударной установкой Джон Эллис (John Ellis) и Крис Кэмпбелл (Chris Campbell), но на запись первого альбома Присты ангажировали Джона Хинча (John Hinch). Итак, в сентябре1974 года в свет вышел долгожданный альбом с оригинальным оформлением и звучным названием “Rocka Rolla”. Альбом был спродюсирован Роджером Бейном, известным по работе с Black Sabbath. Несмотря на отмеченный критиками ряд заимствований, а в качестве примера приводились Led Zeppelin и Black Sabbath,&nbsp; пластинка показала неслабый потенциал группы. Первым, по настоящему значимым событием в истории Джудас Прист, стало выступление на Ридингском фестивале, где музыканты продемонстрировали не только вещи с первого альбома, но и ряд новых композиций, часть из которых надолго задержались в сет-листах группы: Victim Of Changes, The Ripper, Tyrant...Там же Присты сыграли чуть ли не единственный раз песню Father Mother Son-великолепную балладу, так и не увидевшую свет в своем законченном студийном виде. В марте 1976 года Gull Records выпускает “Sad Wings Of Destiny”- второй лонгплей группы. Гениальный альбом, перенасыщенный для того времени новаторскими мыслями и музыкальными идеями. На пластинке означился новый-старый барабанщик Аллан Мур (Allan Moore), уже работавший с джудасами непродолжительное время в 1971 году. Продюсировали альбом Макс Вест&nbsp;&nbsp; и Джефри Кэлверт.&nbsp; В том же 76 году группа заключает пятилетний контракт с фирмой CBS.&nbsp; В апреле 1977 года&nbsp; выходит очередной альбом “Sin After Sin”, попавший в первую неделю на 34 место в британских чартах&nbsp; и разошедшийся по миру тиражом более чем в сто тысяч копий. И снова в группе новый драммер Саймон Филипс, к сожалению сессионно,&nbsp; и новый продюсер Роджер Гловер. К марту 1978 группа заканчивает запись четвертого полноформатника “Stained Glass”.Очередным барабанщиком стал Джеймс Лесли Бинкс (James Leslie Binks), а очередным продюсером Денис МакКеннон. Стоит отметить, что именно в 1978 году Джудас Прист заложили основы того, что в последствии будет трактоваться как хэви-металл. Присты первые отказались от «хиппозных шмоток» и затянулись в кожу. Неотемлемой частью двухуровневой сцены стали мотоцикл, беспроводные гитары и лазерные спецэффекты. В промежутке с 77 по 78 год Джудас Прист впервые посетили страну восходящего солнца, где произвели настоящий фурор. В октябре 78 года выходит 5 диск группы “Killing Machine/Hell Bent For Leather”. Только лишь в одной Японии диск продался более чем 150 тысяч копий. Именно на основе тура по Японии был собран первый концертный альбом группы “Unleashed In The East”. Присты принадлежат к тому редкому числу групп, чьи концертные выступления по качеству исполнения максимально приближены к студийным работам. Концертник вышел в сентябре 1979 года и продюссировал его никто иной, как Том Алом, человек чье имя будет связано с группой почти десятилетие. В апреле 1980 года увидел свет легендарный альбом “British Steel” , подаривший такие шедевральные песни как Metal Gods, Breaking The Low, Living after Midnight, United.... Альбом по праву стал золотым в 12 странах Европы, а в США- четырежды золотым.&nbsp; Ударником в группе стал Дэйв Холланд (Dave Holland). Присты отправляются в тур с разогревом в лице&nbsp; Iron Maiden. Именно песня “Grinder”&nbsp; с этого альбома дала название популярной нынче марке обуви. “Point Of Entry”- седьмой студийный альбом группы вышел в феврале 1981 года. Это был первый диск записанный тем же составом, что и предыдущий. И опять гастроли, гастроли и еще раз гастроли…. В этом же году Присты отметились на праздновании 100 летия марки Levi’s, как самая популярная на тот момент тяжелая группа. Июль 1982 года ознаменовался выходом следующего альбома “Screaming For Vengeance”-каноническая обложка, сумасшедшая по энергетике пластинка, подарившая миру хит всех времен и народов You’ve Got Anоther Think Comin. Вслед за этим последовало выступление уже в качестве хедлайнера на US FEST 1983. Январь 1984 года, выходит следующий лонгплей “Defenders Of The Faith”… и группа снова отправляется в турне, на этот раз с новой сценой и огромным, местами оживающем Металлиане- фирменной эмблемой Пристов. Из всего тура стоит отметить два события- это концерт 18 июня в Мэдисон Сквер Гарден, а также выступление 12 и 13 августа на LIVE AID вместе с Queen,Status Quo, Black Sаbbath.... В апреле 1986 года вышел достаточно неоднозначный альбом “Turbo”…Фанаты группы упрекнули её в попсовом звучании, а критика дружно отметила коммерциализацию пластинки. Ну а Присты традиционно отправляются в очередное турне, и по результатам концерта в Далласе выпускается концертное видео. Май 1988 года, выходит альбом “Ram It Down”, это был последний диск записанный при непосредственном участии Дэйва Холланда, как барабанщика, и Тома Аллана, как продюсера. В сентябре 1990 года&nbsp; Джудас Прист выпускают эталонный альбом своего жанра “Painkiller”. Невероятно дикая и яркая пластинка стала образчиком всего того, чем принято олицетворять жанр хэви-металл. За ударные на альбоме отвечал Скот Трэвис ( Scott Travis). Тем временем атмосфера в группе далека от идеала. На июль 1991 было назначено начало гастролей, но вместо этого начинается нелепый судебный процесс, в штате Невада, озаглавленный «Соединенные Штаты Америки против Judas Priest». Более 6 недель проходило разбирательство по факту влияния песни JP “Better By You, Better Than Me” на смерть двух подростков, и, наконец, вылившееся в еще более нелепый штраф- 120 долларов! Потрясенные Присты отправляются в мировое турне и, окончательно разругавшись между собой, завершают его выступлением в C.N.E. Gardens в Торонто. Именно начиная с 1992 года дорожки Джудас Прист и Роба Хэлфорда разошлись. Хэлфорд запускает несколько соло проектов- Fight (альбомы “War Of Words”, “Mutations”, “A Small Deadly Space”), TWO с альбомом “Voyers” и HALFORD ( альбомы “Ressurection”, “Live Insurrection”, “Crucible”), участвует на записях и концертах таких групп как Pantera,Black Sabbath,Skid Row, Ugly Kid Joe. Гленн Типтон выпускает сольник в 1997 году “Baptizm Of Fire”. В том же 97 году Джудас Прист с новым вокалистом Тимом “Ripper” Оуэнсом записывают альбом “Jugulator”, и успешно откатав турне выпускают концертник “Live Meltdown”. В 2001 году в свет выходит альбом “Demolition” и очередной концертник “Live In London”…. И наконец, спустя много лет обоюдных нападок и ссор, 11 июля 2003 года, Роб Хэлфорд возвращается в Джудас Прист. Спустя пару лет в 2005 году легендарный «пайнкиллеровский» состав Гленн Типтон, Скотт Трэвис, К.К.Даунин, Ян Хилл и Роб Хэлфорд выпускают последний на сегодняшний день альбом JUDAS PRIEST&nbsp; “Angel Of Retribution”…..</P>
+<P>И впервые, легендарные музыканты выступят на просторах пост-советского пространства!!</P>
+<P>&nbsp;</P>
+<P>Пресс-релиз подготовлен<BR>Max “JP” Syssoeff<BR>Leo_Slo</P>
+Автор: Vit Belov
+
+### 02.02.2006 news JUDAS PRIEST начинают...
+
+<P><STRONG>JUDAS PRIEST</STRONG> начнут сочинять материал для нового альбома уже в февраля. Об этом <STRONG>Glen Tipton</STRONG> сообщил ресурсу <STRONG>Billboard.com</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.04.2006 news JUDAS PRIEST расскажут о Нострадамусе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>JUDAS PRIEST</STRONG> объявили, что новый альбом станет первой концептуальной пластинкой в истории группы. Творение будет основано на жизни деяниях Нострадамуса. На сцене же фэны увидят театральную постановку по мотивам альбома.</FONT></P>
+Автор: Vit Belov
+
+### 18.04.2008 news JUDAS PRIEST поведают миру о Нострадамусе
+
+<P>16 июня на <STRONG>Columbia Records</STRONG> увидит свет новейший, шестнадцатый по счёту, альбом британских классиков heavy metal <STRONG>JUDAS PRIEST</STRONG>. Релиз под названием <STRONG>"Nostradamus"</STRONG> будет двойным и концептуальным, впервые в истории коллектива. В нем будет поведана история про известнейшего предсказателя <STRONG>Нострадамуса</STRONG>, жившего в 16 веке. Альбом будет доступен в трёх вариантах: в простом стекле, в картонном диджибуке из 48 страниц и в супербоксе, который будет в себя включать тройной винил, двойной диск с расширенным буклетом и постер. 21 апреля в сеть будут выложены mp3 песен с альбома и будет обнародована обложка альбома. Трек-лист выглядит следующим образом:</P>
+<P>1. <B>Dawn of Creation</B> /&nbsp;<B>Prophecy</B><BR>2. <B>Awakening</B> / <B>Revelations</B><BR>3. <B>The Four Horsemen</B> / <B>War</B><BR>4. <B>Sands of Time</B> / <B>Pestilence And Plague</B><BR>5. <B>Death</B><BR>6. <B>Peace</B> / <B>Conquest</B><BR>7. <B>Lost Love</B><BR>8. <B>Persecution</B><BR>9. <B>Solitude</B> / <B>Exiled</B><BR>10. <B>Alone</B><BR>11. <B>Shadows In the Flame</B> / <B>Visions</B><BR>12. <B>Hope</B> / <B>New Beginnings</B><BR>13. <B>Calm Before the Storm</B> / <B>Nostradamus</B><BR>14. <B>Future Of Mankind</B></P>
+Автор: Dimas
+
+### 22.04.2008 news JUDAS PRIEST обнародовали обложку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=300 alt="" hspace=20 src="/images/news_rus/2008.04/12462.jpg" width=300 align=left border=0>JUDAS PRIEST</STRONG> обнародовали обложку своего нового альбома "<STRONG>Nostradamus</STRONG>". Кроме того, стал доступен заглавный трек с альбома под одноименным названием. Его можно скачать <A href="http://samples.musica.mustdie.ru/j/judas_priest/2008_2383.mp3">здесь</A><BR></FONT></P>
+Автор: Dimas
+
+### 26.06.2008 news Возрождение &quot;металла&quot; пришло
+
+<P><STRONG>JUDAS PRIEST</STRONG> со своим новейшим двойным альбомом "<STRONG>Nostradamus</STRONG>"&nbsp;рекордно попали в чарты <STRONG>Billboard</STRONG> на 11 месте. Этот результат продаж за первую неделю в США стал лучшим за всю карьеру группы. Вот места, которые занимал коллектив со всеми своими альбомами:</P>
+<P>&nbsp;#11 - <B>"Nostradamus"</B> (2008)<BR>#13 - <B>"Angel of Retribution"</B> (2005)<BR>#165 - <B>"Demolition"</B> (2001)<BR>#82 - <B>"Jugulator"</B> (1997)<BR>#155 - <B>"Metalworks"</B> (1993)<BR>#26 - <B>"Painkiller"</B> (1990)<BR>#31 - <B>"Ram It Down"</B> (1988)<BR>#38 - <B>"Priest Live"</B> (1987)<BR>#17 - <B>"Turbo"</B> (1986)<BR>#18 - <B>"Defenders of the Faith"</B> (1984)<BR>#17 - <B>"Screaming for Vengeance"</B> (1982)<BR>#39 - <B>"Point of Entry"</B> (1981)<BR>#34 - <B>"British Steel"</B> (1980)<BR>#70 - <B>"Unleashed in the East"</B> (1979)<BR>#128 - <B>"Hell Bent for Leather"</B> (1978)<BR>#178 - <B>"Stained Class"</B> (1978)</P>
+Автор: Vit Belov
+
+### 02.08.2008 reviews Гигантская работа
+
+<P>JUDAS PRIEST удивили в этом году всех. Объявив о записи концептуального альбома о Нострадамусе, группа выпустила двойной CD, на котором открылась с другой самой выгодной стороны.</P>
+<P>Интересно, что ветераны тяжёлой музыки редко занимаются экспериментами. Они выпускают и выпускают альбомы в своём «любимом» жанре, и единственное, что с ними случается, это творческая импотенция, не позволяющая им выйти на прежний уровень и удовлетворить взыскательного поклонника. Но уж если какие-нибудь из монстров, хоть на чуть-чуть, сдвинутся со своих позиций, это вызывает настоящий фурор. В принципе, жанр рок-оперы (читай, концептуальной пластинки) не нов, этим зарабатывают себе очки многие заслуженные музыканты. Другое дело, когда на эту стезю выходят музыканты, которые всю жизнь считались оплотом ортодоксального и прямолинейного heavy-metal. JUDAS PRIEST можно смело относить к подобным артистам. Все их “British Steel” и “Breaking The Law” не позволяли надеяться на что-то вдумчивое и многогранное. Думалось, что они залепят что-нибудь прямолинейное с текстами про Нострадамуса, а нам потом слушай, мучайся два диска. Пример HELLOWEEN с их третьими «Киперами», второй диск которых отчаянно не хотелось даже включать, очень ясно стоял перед глазами. Считаю, что скептики были посрамлены. JUDAS PRIEST выпустили не только великолепный с мелодической точки зрения альбом, но им даже удалось создать атмосферу мрачного Средневековья, отчуждения и «мрачного пророческого экстаза»… Текстов в «буклете» от Sony/BMG я не обнаружил, но лирика настолько понятна, поэтична и красива, что, честно говоря, в общих чертах историю, рассказанную Хэлфордом, понял даже я. Очередной раз отмечу отвратительную реализацию лицензионного диска, выполненную отечественным подразделением Sony/BMG. Irond или CD-Maximum отдали бы многое, чтобы получить к себе в каталог такую позицию, страшно представить какие нас ждали бы «буки» или «диги-паки», а тут даже название группы на корешке написано неправильно «Judas Pries». Оставим этот позор, ведь сей великолепный альбом достоин того, чтобы приобрести его на «фирме», 900 рублей, думается, не утянут, зато в коллекцию можно будет получить настоящий алмаз. “Nostradamus” поразил меня в первую очередь своими мелодиями. Такие песни, как “Prophecy”, “Revelations” или “Exiled” я лично переслушивал по несколько раз. Особенно, “Revelations” с её неоклассическими влияними и великолепным проигрышем. Кто-то отметит, что на этой пластинке слишком много лирических, медленных композиций, и ей явно не хватает прямолинейного «металл» долбилова, но то, как Хэлфорд исполняет эти вещи, не может не впечатлять. Он, кто может переорать гудок паровоза, вкладывает в эту историю всю свою душу, что находит в слушателе ответную реакцию.</P>
+<P>Отличный концептуальный диск тем более прекрасный, сколь и неожиданный. Думается, “Nostradamus” будет моим фаворитом в ближайшие недели, а то и месяцы. Более того, скажу крамольную вещь, JUDAS PRIEST переплюнули многих профессионалов-концептуальщиков. То, что те делают навороченностью композиции и обилием вокалистов, легендарной группе удалось создать с использованием обычных рок-инструментов и лишь с лёгким добавлением симфоничности.</P>
+Автор: Vit Belov
+
+### 14.10.2008 news &quot;Nostradamus&quot; скорее понравился
+
+<P>Также закончился опрос, посвящённый новому альбому <STRONG>JUDAS PRIEST "Nostradamus"</STRONG>. Читатели признали пластинку хорошей, именно такой её считают 36 процентов, шедевром назвали эту работу 26.5 процентов, обычным CD 25.5 процентов, и остоем эту двухдисковую концептуальную работу посчитали 12 процентов респондентов.</P>
+Автор: Vit Belov
+
+### 05.01.2009 news JUDAS PRIEST могут выпустить &quot;зальник&quot;
+
+<P><IMG height=417 alt="" hspace=0 src="/images/news_rus/2009.01/13293.jpg" width=300 align=left border=5>В интервью <STRONG>SundayMercury.net</STRONG> гитарист <STRONG>JUDAS PRIEST Glenn Tipton</STRONG> рассказал о ближайших планах группы:</P>
+<P>"<EM>Мы планируем подготовить программу, в которой представим наш последний альбом "Nostradamus" от начала до конца. В настоящее время мы подыскиваем площадки по всему миру, которые будут соответствовать нашим требованиям для реализации этого проекта. Сейчас мы отправимся в тур по Европе вместе с MEGADETH и TESTAMENT, будем петь несколько вещей с последней пластинки, классику группы, всё, как обычно. В ближайшее же время мы планируем выпустить концертник. Мы запишем несколько шоу, а потом выберем лучшее. С другой стороны, с JUDAS PRIEST никогда нельзя быть полностью уверенным в будущем. В этом и прелесть нашей группы, мы отыграем тур, сядем в студию и просто начнём сочинять. Может получиться, что угодно</EM>".</P>
+<P>Ещё об одном забавном случае с тура 1984 года рассказал мистер<STRONG> Tipton</STRONG>: </P>
+<P>"<EM>Нью-Йоркский дворец Madison Square Garden "забаннил" нашу группу пожизненно. Во время тура в поддержку <STRONG>"Defenders of the Faith",</STRONG> мы давали там концерт, а публика пришла в неистовство и повырывала все стулья. Хозяева зала вынуждены были потратить четверть миллиона долларов на восстановление. Как-то мы с K.K. пошли на этот стадион посмотреть матч с участием John McEnroe. Мы пришли инкогнито, нарядились незаметно... Но подошли служащие площадки и сказали: "Спасибо за новые стулья</EM>".</P>
+Автор: Vit Belov
+
+### 08.01.2009 news Glenn Tipton: &quot;В мире рецессия&quot;.
+
+<P><IMG height=330 alt="" hspace=0 src="/images/news_rus/2009.01/13315.jpg" width=330 align=left border=5>Гитарист <STRONG>JUDAS PRIEST</STRONG> дал интервью <STRONG>Classic Rock</STRONG>. Вот несколько цитат, связанных с мнением господина<STRONG> Tipton</STRONG>&nbsp;о <STRONG>Rob Halford</STRONG> и предстоящем туре по Европе.</P>
+<P>"<EM>Я думаю, в возрасте 56 лет Rob&nbsp;Halford поёт даже лучше, чем раньше. То, что он сам говорит, что уже не может петь некоторые вещи, как раньше, это лишь его собственная низкая самооценка. Он по-прежнему имеет самый широкий спектр голоса&nbsp;из всех металлических певцов и делает свою работу очень хорошо</EM>". </P>
+<P>"<EM>Были некоторые проблемы с фэнами, которые недовольны тем, что с нами в ближайший тур по Европе едут TESTAMENT и MEGADETH. Они хотели что-нибудь более мелодичное, типа SCORPIONS. SCORPIONS наши большие друзья, и играть с ними всегда большое удовольствие, но мы уже ездили с ними несколько раз, и я очень доволен нынешним составом. Мы хотели настоящий металлический состав, многие ездят в тур слишком разнообразным составом, это не очень хорошо, я думаю. К сожалению, билеты на наш тур в Англии продаются не очень хорошо. В Ноттингеме концерт был, вообще, отменён, в Манчестере шоу перенесено на более маленькую площадку, а в Бирмингеме и Шеффилде предлагают два билета по цене одного. Это не повлияет на наши планы. Промоутеры назначили слишком много шоу в одном районе, мы никак не можем повлиять на это. В мире финансовый кризис и рецессия, дети не могут платить за билеты, а Бирмингем, Шеффилд, Манчестер и Ноттингем находятся слишком близко к друг другу</EM>".</P>
+Автор: Vit Belov
+
+### 22.01.2009 news Новая супергруппа HAIL!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом январе туром по Чили дебютирует новая супергруппа <STRONG>HAIL!</STRONG>, которая будет исполнять кавер-версии знаменитых рок-хитов. В составе: гитарист <STRONG>Andreas Kisser</STRONG> (<B>SEPULTURA</B>),&nbsp;певец <B>Tim "Ripper" Owens</B> (<B>JUDAS PRIEST</B>, <B>BEYOND FEAR</B>, <B>YNGWIE MALMSTEEN</B>, <B>ICED EARTH</B>),&nbsp;барабанщик <B>Jimmy DeGrasso</B> (<B>ALICE COOPER</B>, <B>MEGADETH</B>)&nbsp;и басист&nbsp;<B>David Ellefson</B> (<B>F5</B>, <B>MEGADETH</B>).</FONT></P>
+Автор: Vit Belov
+
+### 23.01.2009 news Первые кадры HAIL!
+
+<P>Мы уже сообщали, о новй супергруппе <STRONG>HAIL!</STRONG> с участием <STRONG>TIM 'RIPPER' OWENS, ANDREAS KISSER </STRONG>и<STRONG> DAVID ELLEFSON. </STRONG>Кадры с шоу в столице Чили Сантьяго можно посмотреть ниже. Вот некоторые песни, которые будут исполняться группой:</P>
+<P>* JUDAS PRIEST - "Grinder"<BR>* BLACK SABBATH - "Neon Knights"<BR>* SEPULTURA - "Territory"<BR>* MOT&#214;RHEAD - "Ace of Spades"<BR>* PANTERA - "Fucking Hostile"<BR>* ACCEPT - "Balls to the Wall"<BR>* BLACK SABBATH - "Paranoid"<BR>* MEGADETH - "Symphony of Destruction"</P>
+<P><STRONG>JUDAS PRIEST - "Grinder"<BR></STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mbFFye9QWXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/mbFFye9QWXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 19.02.2009 news Сольник Tim Owens
+
+<P><IMG height=364 alt="" hspace=0 src="/images/news_rus/2009.02/13615.jpg" width=400 align=right border=5>В мае выйдет первый сольный альбом бывшего вокалиста<STRONG> JUDAS PRIEST Tim 'Ripper' Owens</STRONG> <STRONG>"Play My Game" </STRONG>выйдет в мае на <STRONG>SPV</STRONG>. Диск содержит новые песни, сочинённые самим<STRONG> Tim</STRONG> и его друзьями: <STRONG>Bob Kulick</STRONG>, <B itxtvisited="1">Chris Caffery</B> (<B itxtvisited="1">SAVATAGE</B>, <B itxtvisited="1">TRANS-SIBERIAN ORCHESTRA</B>), <B itxtvisited="1">Mike Callahan</B> (ex-<B itxtvisited="1">EARSHOT</B>)&nbsp;и <B itxtvisited="1">John Comprix</B> (<B itxtvisited="1">BEYOND FEAR</B>, <B itxtvisited="1">RINGWORM</B>). Список гостевых музыкантов:</P>
+<P>Guitar:<BR itxtvisited="1"><B itxtvisited="1">Bob Kulick</B><BR itxtvisited="1"><B itxtvisited="1">Bruce Kulick</B> (GRAND FUNK RAILROAD, ex-KISS)<BR itxtvisited="1"><B itxtvisited="1">Carlos Cavazo</B> (RATT, ex-QUIET RIOT)<BR itxtvisited="1"><B itxtvisited="1">Craig Goldy</B> (DIO)<BR itxtvisited="1"><B itxtvisited="1">Zeil Zaza<BR itxtvisited="1">Chris Caffery</B> (SAVATAGE, TRANS-SIBERIAN ORCHESTRA)<BR itxtvisited="1"><B itxtvisited="1">Mike Callahan</B> (ex-EARSHOT)<BR itxtvisited="1"><B itxtvisited="1">John Comprix</B> (BEYOND FEAR, RINGWORM). <BR itxtvisited="1"><B itxtvisited="1">Doug Aldrich</B> (WHITESNAKE)<BR itxtvisited="1"><B itxtvisited="1">Michael Wilton</B> (QUEENSR&#376;CHE)<BR itxtvisited="1"><B itxtvisited="1">Jeff Loomis</B> (NEVERMORE)<BR itxtvisited="1"><B itxtvisited="1">Steve Stevens</B> (BILLY IDOL)<BR itxtvisited="1"><BR itxtvisited="1">Bass:<BR itxtvisited="1"><B itxtvisited="1">Marco Mendoza</B> (ex-WHITESNAKE)<BR itxtvisited="1"><B itxtvisited="1">Billy Sheehan</B> (MR BIG, ex-DAVID LEE ROTH)<BR itxtvisited="1"><B itxtvisited="1">Dave Ellefson</B> (ex-MEGADETH)<BR itxtvisited="1"><B itxtvisited="1">Rudy Sarzo</B> (DIO, ex-OZZY OSBOURNE, QUIET RIOT)<BR itxtvisited="1"><B itxtvisited="1">James Lomenzo</B> (MEGADETH)<BR itxtvisited="1"><B itxtvisited="1">Tony Franklin</B> (ex-BLUE MURDER)<BR itxtvisited="1"><B itxtvisited="1">Dennis Hayes</B> (BEYOND FEAR)<BR itxtvisited="1"><BR itxtvisited="1">Drums:<BR itxtvisited="1"><B itxtvisited="1">Simon Wright</B> (DIO, ex-AC/DC)<BR itxtvisited="1"><B itxtvisited="1">Vinny Appice</B> (HEAVEN AND HELL, BLACK SABBATH, DIO)<BR itxtvisited="1"><B itxtvisited="1">Ray Luzier</B> (KORN, DAVID LEE ROTH)<BR itxtvisited="1"><B itxtvisited="1">Bobby Jarzombek</B> (SEBASTIAN BACH, RIOT, HALFORD)<BR itxtvisited="1"><B itxtvisited="1">Brett Chassen</B></P>
+Автор: Vit Belov
+
+### 16.03.2009 news Tim Owens: Авторы на сцену
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=397 alt="" hspace=0 src="/images/news_rus/2009.03/13766.jpg" width=400 align=right border=5>Мы уже сообщали, что заменявший <STRONG>Rob Halford</STRONG> в <STRONG>JUDAS PRIEST</STRONG> певец <STRONG>Tim 'Ripper' Owens</STRONG> готовит к выходу свой сольник "<STRONG>Play My Game</STRONG>" на <STRONG>SPV</STRONG>. Музыкант обнародовал список песен, их авторов и музыкантов.</FONT></P>
+<P>* 01. <B>Starting Over</B><BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B><BR>Guitar - <B>Bob Kulick</B><BR>Bass - <B>Rudy Sarzo</B><BR>Drums - <B>Simon Wright</B><BR>* 02. <B>Believe</B><BR>Written by: <B>Tim Owens</B><BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Simon Wright</B> <BR>Lead Guitar - <B>Craig Goldy</B> <BR>* 03. <B>The Cover Up</B><BR>Written by: <B>Tim Owens</B><BR>Guitar - <B>John Comprix</B><BR>Bass - <B>James Lomenzo</B><BR>Drums - <B>Brett Chassen</B><BR>Lead Guitar - <B>Jeff Loomis</B><BR>* 04. <B>Pick Yourself Up</B><BR>Written by: <B>Tim Owens</B>, <B>Mike Callahan</B> <BR>Guitar - <B>Mike Callahan</B>/<B>Bob Kulick</B><BR>Bass - <B>Dennis Hayes</B><BR>Drums - <B>Ray Luzier</B><BR>Lead Guitar - <B>Steve Stevens</B> <BR>* 05. <B>It Is Me</B><BR>Written by: <B>Tim Owens</B><BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Simon Wright</B> <BR>Lead Guitar - <B>Carlos Cavazo</B> <BR>* 06. <B>No Good Goodbyes</B> <BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B>, <B>Brett Chassen</B> <BR>Guitar - <B>Bob Kulick</B><BR>Bass - <B>Billy Sheehan</B><BR>Drums - <B>Brett Chassen</B> <BR>Lead Guitar - <B>Bruce Kulick</B> <BR>* 07. <B>The World Is Blind</B> <BR>Written by: <B>Tim Owens</B> <BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Billy Sheehan</B><BR>Drums - <B>Simon Wright</B> <BR>Lead Guitar - <B>Doug Aldrich</B> <BR>* 08. <B>To Live Again</B> <BR>Written by: <B>Tim Owens</B> <BR>Guitar - <B>Michael Wilton</B>/<B>Bob Kulick</B><BR>Bass - <B>David Ellefson</B><BR>Drums - <B>Simon Wright</B><BR>Lead Guitar - <B>Michael Wilton</B><BR>* 09. <B>The Light</B> <BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B> <BR>Guitar - <B>Bob Kulick</B><BR>Bass - <B>Tony Franklin</B> <BR>Drums - <B>Bobby Jarzombek</B> <BR>* 10. <B>Play My Game</B> <BR>Written by: <B>Tim Owens</B>, <B>John Comprix</B><BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Simon Wright</B><BR>Lead Guitar - <B>Neil Zaza</B><BR>* 11. <B>Death Race</B> <BR>Written by: <B>Tim Owens</B>, <B>John Comprix</B><BR>Guitar - <B>John Comprix</B><BR>Bass - <B>James Lomenzo</B><BR>Drums - <B>Brett Chassen</B><BR>* 12. <B>The Shadows Are Alive</B> <BR>Written by: <B>Tim Owens</B>, <B>Chris Caffery</B> <BR>Guitar - <B>Chris Caffery</B> <BR>Bass - <B>Marco Mendoza</B><BR>Drums - <B>Simon Wright</B> <BR>* 13. <B>A Challenge</B> (bonus track; <B>iTunes</B> exclusive) <BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B><BR>Guitar - <B>Bob Kulick</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Vinny Appice</B></P>
+Автор: Vit Belov
+
+### 18.03.2009 news JUDAS PRIEST сыграют &quot;British Steel&quot;
+
+<P>Чтобы отметить 30-летие выхода альбома "<STRONG>British Steel</STRONG>", <STRONG>JUDAS PRIEST</STRONG> будут играть его целиком во время летнего тура по США. Фэны услашат классику:</P>
+<P>01. <B>Rapid Fire</B><BR>02. <B>Metal Gods</B><BR>03. <B>Breaking the Law</B><BR>04. <B>Grinder</B><BR>05. <B>United</B><BR>06. <B>You Don't Have to Be Old to Be Wise</B><BR>07. <B>Living After Midnight</B><BR>08. <B>The Rage</B><BR>09. <B>Steeler</B></P>
+Автор: Vit Belov
+
+### 28.03.2009 news JUDAS PRIEST всё ещё планируют Нострадамуса
+
+<P><STRONG>Rob Halford</STRONG> заявил, что уже осенью этого года <STRONG>JUDAS PRIEST</STRONG> перенесут свой последний концептуальный альбом <STRONG>"Nostradamus</STRONG>" на сцену. Пока музыканты размышляют над тем, как это будет выглядеть, но то, что это случится, несомненно.</P>
+Автор: Vit Belov
+
+### 19.05.2009 news Новый концертник JUDAS PRIEST
+
+<P>Летом выйдет очередной концертный альбом <STRONG>JUDAS PRIEST "A Touch Of Evil - Live"</STRONG>. Он будет содержать 11 трэков, раннее не издававшихся в живом исполнении. Все песни были записаны в течение тура группы с 2005 по 2008 годы.</P>
+Автор: Vit Belov
+
+### 26.05.2009 news Трэк-лист и обложка нового концертника JUDAS PRIEST
+
+<P><IMG height=397 alt="" hspace=0 src="/images/news_rus/2009.05/14112.jpg" width=400 align=right border=5>Мы уже сообщали о грядущем выходе свежего концертного альбома <STRONG>JUDAS PRIEST "A Touch Of Evil: Live"</STRONG>. Стал известен трэк-лист этой работы:</P>
+<P>01. <STRONG>Judas Rising</STRONG><BR>02. <STRONG>Hellrider<BR></STRONG>03. <STRONG>Between The Hammer & The Anvil</STRONG> <BR>04. <STRONG>Riding On The Wind</STRONG><BR>05. <STRONG>Death</STRONG><BR>06. <STRONG>Beyond The Realms Of Death</STRONG><BR>07. <STRONG>Dissident Aggressor</STRONG><BR>08. <STRONG>A Touch Of Evil</STRONG><BR>09. <STRONG>Eat Me Alive</STRONG><BR>10. <STRONG>Prophecy</STRONG><BR>11. <STRONG>Painkiller </STRONG></P>
+Автор: Vit Belov
+
+### 24.07.2009 news У JUDAS PRIEST даже концертник в чартах
+
+<P>Новый концертный альбом <STRONG>JUDAS PRIEST</STRONG> <STRONG>"A Touch of Evil: Live" </STRONG>попал в чарты <STRONG>Billboard</STRONG> на 87-е место, продавшись в количестве 5300 копий в первую неделю в США.</P>
+Автор: Vit Belov
+
+### 01.02.2010 news JUDAS PRIEST и AC&#x2F;DC выиграли &quot;Грэмми&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>JUDAS PRIEST</STRONG> выиграли премию "Грэмми" в номинации "Best Metal Performance" за песню <STRONG>"Dissident Aggressor" </STRONG>с концертного альбома <STRONG>"A Touch of Evil: Live"</STRONG>. Ветераны обошли <STRONG>LAMB OF GOD, MEGADETH, MINISTRY </STRONG>и <STRONG>SLAYER</STRONG>, которые также номинировались. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В номинации "Best Hard Rock Performance" победу ождержали <STRONG>AC/DC</STRONG> за песню <STRONG>"War Machine" </STRONG>с последнего альбома "<STRONG>Black Ice</STRONG>". Ещё одни ветераны обошли <STRONG>ALICE IN CHAINS, LINKIN PARK, METALLICA</STRONG> и <STRONG>NICKELBACK</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 08.12.2010 news JUDAS PRIEST уходят!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=202 alt="" hspace=0 src="/images/news_rus/2010.12/17765.jpg" width=400 align=right border=0>Легенды heavy-metal <STRONG>JUDAS PRIEST</STRONG> объявили о своём прощальном турне, получившем название <STRONG>"Epitaph". </STRONG>После 40 лет существования коллектив собирается сказать громкое "Прощай!" с этой трассой, которая пройдёт по всем значимым точкам нашей планеты. Пока объявлены только даты на летних фестивалях в 2011 году, где фэны смогут лицезреть<STRONG> JUDAS PRIEST</STRONG> в последний раз:</FONT></P>
+<P>Jun. 09 - Sweden Rock Festival, Solvesborg, Sweden <BR>Jun. 11 - Sauna Open Air, Tampere, Finland <BR>Jun. 17 - Copenhell, Copenhagen, Denmark<BR>Jun. 19 - Hellfest, Clisson, France <BR>Jun. 22 - Gods of Metal, Milan, Italy<BR>Jun. 25 - Graspop Metal Meeting, Dessel, Belgium<BR>Jul. 23 - High Voltage, London, UK<BR>Aug. 05 - Wacken Open Air, Wacken, Germany </P>
+<P>Дополнительные даты последуют.</P>
+<P>Последним на сегодня студийным альбомом <STRONG>JUDAS PRIEST</STRONG> стала двойная метал-опера <STRONG>"Nostradamus"</STRONG>, вышедшая в 2008 году.</P>
+Автор: Vit Belov
+
+### 28.01.2011 news JUDAS PRIEST работают над новым материалом
+
+<P><IMG height=201 alt="" hspace=0 src="/images/news_rus/2011.01/18342.jpg" width=300 align=right border=0>Гитарист<STRONG> JUDAS PRIEST</STRONG> <STRONG>Glenn Tipton </STRONG>сообщил, что группа работает над новым материалом. Несколько месяцев назад группа объявила о своём прощальном туре, поэтому известие о написании новой музыки является сюрпризом. </P>
+<P>В том же сообщении господин <STRONG>Tipton</STRONG> уверил всех, что группа отыграет свой последний тур, но сейчас&nbsp;речь идёт только о написании нового материала. Видимо, музыканты различают концертную и студийную активности.</P>
+Автор: Vit Belov
+
+### 21.04.2011 news K. K. Downing не доиграет в JUDAS PRIEST
+
+<P>Гитарист<STRONG> K.K. Downing</STRONG> покинул<STRONG> JUDAS PRIEST</STRONG> и не примет в прощальном турне группы. Оставшиеся музыканты с уважением восприняли решение многолетнего коллеги и взяли нового гитариста 31-летнего англичанина <STRONG>Richie Faulkner</STRONG> (<B>LAUREN HARRIS</B>, <B>DIRTY DEEDS</B>). </P>
+<P>В грядущем туре группа исполнит песни с каждого альбома <STRONG>JUDAS PRIEST</STRONG>. Также в следующем году коллектив планирует издать и новый студийный альбом.</P>
+<P><center><IMG height=442 src="/images/news_rus/2011.04/19256.jpg" width=394 border=0></P>
+Автор: Vit Belov
+
+### 14.06.2011 news JUDAS PRIEST не так поняли
+
+<P>В четверг 9 июня <STRONG>JUDAS PRIEST</STRONG> дали масштабную пресс-конференцию на <STRONG>Sweden Rock Festival</STRONG>. Во время интервью музыканты заявили, что<STRONG> JUDAS PRIEST</STRONG> не собираются заканчивать свою карьеру. Текущий "<STRONG>Epitaph Tour</STRONG>", который был объявлен прощальным, знаменует собой лишь окончание глобальной концертной деятельности группы. <STRONG>JUDAS PRIEST</STRONG> заявили, что больше не будет 18-месячных мировых туров.</P>
+<P>В ближайшее время группа приступит к записи нового альбома, а после этого будет давать концерты, но не&nbsp;ездить туры.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/yjEc61YUuL4?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/yjEc61YUuL4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 05.07.2011 news Фотографии с фестиваля &quot;Sauna Open Air &#39;2011&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/19855.jpg" width=300 height=400>С 9 по 11 июня в городе&nbsp;Тампере&nbsp;(Финляндия), прошёл очередной фестиваль <STRONG>"Sauna Open Air"</STRONG> (<A href="http://www.sauna-open-air.fi/">www.sauna-open-air.fi</A>), на котором выступили такие звёзды сталилитейного жанра, как<STRONG> OZZY OSBOURNE</STRONG>, <STRONG>JUDAS PRIEST</STRONG>, <STRONG>HELLOWEEN</STRONG>, <STRONG>DORO</STRONG>, <STRONG>SAXON</STRONG>, <STRONG>ACCEPT</STRONG>, а так же, несколько групп рангом пониже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Посмотреть фото-репортажи с&nbsp;выступлений&nbsp;этих замечательных ансамблей&nbsp;можно в разделе нашего сайта <STRONG>Photos</STRONG>, по адресу: </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="/ru/galleries">http://musica.mustdie.ru/ru/galleries</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор всех фотографий: <STRONG>Анна Ходакова</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 18.08.2011 news JUDAS PRIEST выпускают CD-бокс под названием &quot;Single Cuts&quot;
+
+<P>10 октября 2011 года&nbsp;британцы<STRONG> JUDAS PRIEST</STRONG> выпускают специальный CD-бокс под названием <STRONG>"Single Cuts"</STRONG>, в который войдёт полная коллекция их синглов (52&nbsp;трека на 20 CD), выпущенных на трерритории Англии лейблом <STRONG>CBS/Columbia</STRONG>.</P>
+<P>Первоночальный выпуск <STRONG>"Single Cuts" </STRONG>был намечен на 25 августа, но по техническим причинам был перенесён на октябрь. В качестве компенсации всем тем, кто уже сделал предварительный заказ на сайте <A href="http://www.judaspriest.com/">www.judaspriest.com</A>, группа вложит в бокс набор магнитов с изображением обложек альбомов&nbsp;<STRONG>JUDAS PRIEST</STRONG>.</P>
+<P><STRONG>JUDAS PRIEST</STRONG>, так же, планируют к выпуску очередной бокс, под названием&nbsp;<B itxtHarvested="0" itxtNodeId="11">"The Classic Albums Collection"</B>, который будет содержать ремастированные версии всех 17 альбомов группы, включая&nbsp;2 диска, вышедших на <B itxtHarvested="0" itxtNodeId="10">Gull Records</B>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20649.jpg" width=475 height=336> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 13.09.2011 news JUDAS PRIEST: сборник &quot;The Chosen Few&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/21042.jpg" width=400 height=400>Согласно сайту&nbsp;<A href="http://www.rollingstone.com/music/news/judas-priest-announce-new-compilation-album-20110912" target=_blank><U><FONT color=#0000ff>RollingStone.com</FONT></U></A>,&nbsp;11 октября английская легендарная группа&nbsp;<B>JUDAS PRIEST</B> выпустит новый сборник. Диск получил название <B>"The Chosen Few"</B> и увидет свет&nbsp;на лейбле&nbsp;<B>Legacy</B>/<B>Sony</B>. <STRONG>"The Chosen Few" </STRONG>будет содержать треки, выбранные&nbsp;известными деятелями мира хард рока и хэви метал,&nbsp;среди них -&nbsp;<STRONG>Ozzy Osbourne</STRONG>, <B>Slash</B>, <B>James Hetfield</B> и <STRONG>Lars Ulrich </STRONG>(<STRONG>METALLICA</STRONG>), <B>Alice Cooper</B> и <B>Corey Taylor</B> (<STRONG>SLIPKNOT</STRONG>).<BR><BR><EM>"Это сборник песен, которые были&nbsp;выбранны нашими друзьями и уважаемыми коллегами"</EM> -&nbsp;сказал&nbsp;<B>Rob Halford</B> в интервью <B>RollingStone.com</B>. <EM>"Так что мы надеямся, что все метал маньяки угарят под трэки выбранные металлическими легендами."<BR></EM><BR>Буклет <STRONG>"The Chosen Few"</STRONG> будет содержать комментарии к каждой песне&nbsp;от выбравшего её музыканта.</P>
+<P>Трек-лист<STRONG> "The Chosen Few"</STRONG>:<BR><BR>01. <B>Diamonds And Rust</B> (1977) -&nbsp;выбор <STRONG>Joe Elliott</STRONG> (<STRONG>DEF LEPPARD</STRONG>)<BR>02. <B>Dissident Aggressor</B> (1977) -&nbsp;выбор <STRONG>Steve Vai</STRONG> и <STRONG>Geoff Tate</STRONG> (<STRONG>QUEENSR&#376;CHE</STRONG>)<BR>03. <B>Exciter</B> (1978) -&nbsp;выбранна группой&nbsp;<STRONG>ACCEPT</STRONG><BR>04. <B>Beyond The Realms Of Death</B> (1978) - выбор <STRONG>Lars Ulrich</STRONG> (<STRONG>METALLICA</STRONG>)<BR>05. <B>Delivering The Goods</B> (1979) -&nbsp;выбор <STRONG>Kerry King</STRONG> (<STRONG>SLAYER</STRONG>)<BR>06. <B>The Green Manalishi</B> (with the Two-Pronged Crown) (1979) - выбор <STRONG>David Coverdale</STRONG> (<STRONG>WHITESNAKE</STRONG>) и <STRONG>Randy Blythe</STRONG> (<STRONG>LAMB OF GOD</STRONG>) <BR>07. <B>The Ripper</B> (1979) -&nbsp;выбор <STRONG>Ozzy Osbourne<BR></STRONG>08. <B>Victim Of Changes</B> (1979) -&nbsp;выбор <STRONG>James Hetfield</STRONG> (<STRONG>METALLICA</STRONG>)<BR>09. <B>Breaking The Law</B> (1980) -&nbsp;выбор <STRONG>Lemmy</STRONG> (<STRONG>MOT&#214;RHEAD</STRONG>)<BR>10. <B>Rapid Fire</B> (1980) -&nbsp;выбор <STRONG>Vinnie Paul</STRONG> (<STRONG>PANTERA</STRONG>, <STRONG>HELLYEAH</STRONG>)<BR>11. <B>Grinder</B> (1980) -&nbsp;выбор <STRONG>Zakk Wylde</STRONG> (<STRONG>BLACK LABEL SOCIETY</STRONG>)<BR>12. <B>Living After Midnight</B> (1980) -&nbsp;выбор <STRONG>Alice Cooper</STRONG> и <STRONG>Geezer Butler</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>13. <B>Screaming For Vengeance</B> (1982) -&nbsp;выбор <STRONG>Slash</STRONG> (<STRONG>GUNS N ROSES</STRONG>)<BR>14. <B>You’ve Got Another Thing Coming</B> (1982) - выбор <STRONG>Klaus Meine</STRONG> (<STRONG>SCORPIONS</STRONG>)&nbsp;и <STRONG>Corey Taylor</STRONG> (<STRONG>SLIPKNOT</STRONG>)<BR>15. <B>The Sentinel</B> (1984) -&nbsp;выбор <STRONG>Chris Jericho</STRONG> (<STRONG>FOZZY</STRONG>)<BR>16. <B>Turbo Lover</B> (1986) -&nbsp;выбор <STRONG>Jonathan Davis</STRONG> (<STRONG>KORN</STRONG>)<BR>17. <B>Painkiller</B> (1990) -&nbsp;выбор <STRONG>Joe Satriani</STRONG></P>
+Автор: Headcrusher
+
+### 18.11.2011 news Оригинальный вокалист JUDAS PRIEST выпускает новый альбом
+
+<P>Оригинальный вокалист <STRONG>JUDAS PRIEST Al Atkins</STRONG> подготовил к выпуску совместный альбом с христианским гитаристом <STRONG>Paul May</STRONG>. Видео-клип на песню "<STRONG>Figh</STRONG>t" с альбома "<STRONG>Serpent's Kiss</STRONG>" можно посмотреть ниже. Трек-лист:</P>
+<P>01. <B>The Shallowing</B><BR>02. <B>Traitors Hand</B><BR>03. <B>Dream Maker</B><BR>04. <B>Can You Hear Me?</B><BR>05. <B>Signz</B><BR>06. <B>Fight</B><BR>07. <B>Judge</B><BR>08. <B>Betta Than Twisted</B><BR>09. <B>Cold Gin</B> (KISS cover)<BR>10. <B>Theatre of Fools</B></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/MP2px44Q-Wg?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/MP2px44Q-Wg?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 08.12.2011 news Супергруппа HAIL! в Москве 11 декабря
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22281.jpg" width=390 height=520>Уже в это воскресенье в московском клубе <STRONG>"Hleb"</STRONG> состоиться выступление супергруппы <STRONG>HAIL!</STRONG>, в состав которой входят <STRONG>Paul Bostaph</STRONG> (ударные, <STRONG>FORBIDDEN</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>TESTAMENT</STRONG>), <STRONG>Glen Drover</STRONG> (гитара, <STRONG>EIDOLON</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>KING DIAMOND</STRONG>), <STRONG>Tim "Ripper" Owens</STRONG> (вокал, <STRONG>JUDAS PRIEST</STRONG>,<STRONG> ICED EARTH</STRONG>, <STRONG>YNGWIE MALMSTEEN</STRONG>) и <STRONG>James Lomenzo</STRONG> (бас, <STRONG>WHITE LION</STRONG>, <STRONG>BLACK</STRONG> <STRONG>LABEL SOCIETY</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>DAVID LEE ROTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На своих концертах группа <STRONG>HAIL!</STRONG> исполняет хиты различных металлических коллективов первой величины. Песни, которые поклонники тяжелой музыки любят с детства и знают наизусть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен сет-лист, который группа отыграла в городе Иркутск 2 декабря:</FONT></P>
+<P>01. <STRONG>Stand Up & Shout</STRONG> (<STRONG>DIO</STRONG>)<BR>02. <STRONG>Flight Of Icarus</STRONG> (<STRONG>IRON MAIDEN</STRONG>)<BR>03. <STRONG>Seek & Destroy</STRONG> (<STRONG>METALLICA</STRONG>)<BR>04. <STRONG>World Painted Blood</STRONG> (<STRONG>SLAYER</STRONG>)<BR>05.<STRONG> Wake Up Dead</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>06. <STRONG>Mob Rules</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>07. <STRONG>Burn In Hell</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>08. <STRONG>Another Thing Coming</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>09. <STRONG>Symphony Of Destruction</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>10. <STRONG>Heaven & Hell</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>11. <STRONG>Walk</STRONG> (<STRONG>PANTERA</STRONG>)<BR>12. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>----------<BR>13. <STRONG>Ace Of Spades</STRONG> (<STRONG>MOTORHEAD</STRONG>)<BR>14. <STRONG>Creeping Death</STRONG> (<STRONG>METALLICA</STRONG>)<BR>15. <STRONG>Peace Sells</STRONG> (<STRONG>MEGADETH</STRONG>)</P>
+<P>Адрес клуба <STRONG>"Hleb"</STRONG>: г. Москва, Звенигородское шоссе, д. 11</P>
+Автор: Headcrusher
+
+### 16.04.2012 news JUDAS PRIEST в Москве
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.04/23439.png" width=450 height=225>JUDAS PRIEST</STRONG> @ STADIUM.LIVE</P>
+<P>18 апреля 2012 года, 20.30</P>
+<P><A href="http://www.stadium-live.ru/">www.stadium-live.ru</A> <BR><A href="http://www.judaspriest.com/">www.judaspriest.com</A></P>
+<P>Британская рок-группа <STRONG>JUDAS PRIEST</STRONG> приедет в Россию в рамках прощального мирового турне, которое стартовало больше года назад. Металлические боги представят отчетное шоу <STRONG>"Epitaph"</STRONG> 18 апреля на сцене новой московской площадки <STRONG>"Stadium.Live"</STRONG> и 20 декабря в ДС<STRONG> "Юбилейный"</STRONG> в Санкт-Петербурге.</P>
+<P>Купить билет: <A href="http://concert.ru/Order.aspx?ActionID=26486&ActionDate=2012-04-18+20%3a30">www.concert.ru</A></P>
+<P>Адрес<STRONG> "Stadium.Live"</STRONG>: г. Москва, Ленинградский пр-т, д. 80 корп. 17, м. "Сокол"</P>
+Автор: Headcrusher
+
+### 01.08.2012 news JUDAS PRIEST: юбилейное переиздание &quot;Screaming For Vengeance&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.08/24469.jpg" width=400 height=400>В честь тридцатилетия со момента выпуска, группа <STRONG>JUDAS PRIEST</STRONG>, переиздаёт свой легендарный альбом <STRONG>"Screaming For Vengeance"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Издание получило название <STRONG>"Screaming For Vengeance - Special 30th Anniversary Edition"</STRONG> и помимо ремастеринга&nbsp;самого альбома и бонус треков, в него, также,&nbsp;войдёт&nbsp;DVD с концертом, который состоялся 29 мая 1983 года в городе Сан Бернандино (С.Ш.А.).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подробнее о диске: </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.judaspriest.com/screaming-for-vengeance/">www.judaspriest.com/screaming-for-vengeance/</A></FONT></P>
+Автор: Headcrusher
+
+### 29.04.2014 news &quot;Redeemer Of Souls&quot;: новый трек от JUDAS PRIEST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>JUDAS PRIEST</STRONG> опубликовали титульный трек с грядущего альбома под названием <STRONG>"Redeemer Of Souls"</STRONG>. Послушать его можно ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом выходит 14 июля в Великобритании на <STRONG>Columbia Records</STRONG>, а 15 июля в С.Ш.А. на <STRONG>Epic Records</STRONG>.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/mhkoNQ-7uRw" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 16.05.2014 news JUDAS PRIEST: обложка альбома &quot;Redeemer Of Souls&quot;
+
+<P><STRONG>JUDAS PRIEST</STRONG> опубликовали обложку альбома <STRONG>"Redeemer Of Souls"</STRONG>, который выходит в июле 2014 года.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.05/26989.jpg" width=500 height=499></P>
+Автор: Headcrusher
+
+### 16.06.2014 news JUDAS PRIEST: гитара &quot;British Steel&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Компания <STRONG>ASG</STRONG> (<STRONG>Artist Series Guitar</STRONG>)&nbsp;и легентарная группа <STRONG>JUDAS PRIEST</STRONG> объединили свои усилия в создании гитары,&nbsp;в оформлении которой&nbsp;использована обложка легендарного альбома <STRONG>"British Steel"</STRONG> (1980).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Всего будет выпущего 30 таких гитар.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предварительный заказ&nbsp;на гитару станет доступен с завтрашнего дня: <A href="http://artistseriesguitar.com/judas-priest/">http://artistseriesguitar.com/judas-priest/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27076.jpg" width=660 height=264></CENTER>
+Автор: Headcrusher
+
+### 20.07.2016 news BABYMETAL спели с Rob Halford
+
+<p><strong>BABYMETAL</strong> выступили с<strong> Rob Halford</strong> на церемонии вручения <strong>Journey's Alternative Press Music Awards</strong>. Группа спела дуэтом с легендарным певцом классические вещи<strong> JUDAS PRIEST</strong> "<strong>Breaking The Law</strong>" и "<strong>Painkiller</strong>".</p><p><center><iframe width="320" height="260" src="http://video.rollingstone.com/players/zW8usDB3-necgKPaX.html" frameborder="0" scrolling="auto"></iframe><p></p></center>
+Автор: Vit Belov
+
+### 20.07.2016 news Watch the Official Footage of BABYMETAL and Rob Halford Teaming Up to Perform Judas Priest&#39;s &quot;Painkiller&quot; and &quot;Breaking The Law&quot;
+
+<p>The summer's most anticipated metal mash up performance - featuring pop metal icons<strong> BABYMETAL</strong> and Judas Priest's legendary vocalist <strong>Rob Halford</strong> - took place last night at the third annual Journey's Alternative Press Music Awards, Fueled by Monster Energy. The performance, which featured BABYMETAL's <strong>SU-METAL</strong> and Halford's dueling vocals on <strong>Judas Priest</strong> classics "<strong>Painkiller</strong>" and "<strong>Breaking The Law</strong>", saw the meeting of the "Fox God" and the "Metal God".</p><p><center><iframe width="320" height="260" src="http://video.rollingstone.com/players/zW8usDB3-necgKPaX.html" frameborder="0" scrolling="auto"></iframe><p></p></center>
+Автор: Vit Belov
+
+### 10.05.2017 news Поводки и ошейники для фанатов JUDAS PRIEST
+
+<P>Фирма <STRONG>Caninus Collars</STRONG>, специализирующаяся на продаже поводков и ошейников для собак и кошек, выпустила серию своих товаров с мотивом альбома <STRONG>"Screaming For Vengeance"</STRONG> группы <STRONG>JUDAS PRIEST</STRONG>!</P>
+<P>Больше картинок по ссылке: <A href="http://www.caninuscollars.com/judaspriest">http://www.caninuscollars.com/judaspriest</A></P>
+<P>Помимо набора товаров под маркой <STRONG>JUDAS PRIEST</STRONG>, на их сайте также можно найти продукцию с логотипами <STRONG>SICK OF IT ALL</STRONG>, <STRONG>MADBALL</STRONG>, <STRONG>TERROR</STRONG>, <STRONG>MISFITS</STRONG> и <STRONG>INDECISION</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2017.05/30519.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 19.07.2017 news JUDAS PRIEST: игра для iOS
+
+<P><STRONG>JUDAS</STRONG> <STRONG>PRIEST </STRONG>выпустили игру для пользователей мобильной операционной системы iOS. Игра получила название<STRONG> "Road To Valhalla"</STRONG>. Все подробности по ссылке: <A href="http://apple.co/2uG3i3n">http://apple.co/2uG3i3n</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2017.07/30644.jpg" width=660 height=433></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Judas Priest "Demolition"

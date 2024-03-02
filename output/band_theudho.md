@@ -62,6 +62,24 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.10.2011 news THEUDHO выложили миньон
+
+<P><IMG height=390 alt="" hspace=0 src="/images/news_rus/2011.10/21756.jpg" width=400 align=right border=0>Бельские pagan-black'металисты <STRONG>THEUDHO</STRONG> выпустили первый в своей истории цифровой мини-альбом "<STRONG>War Into The World</STRONG>". На релиз попали четыре трека: одна новая песня с будущего альбома, перезаписанный старый трек и два кавера на песни <STRONG>BATHORY</STRONG> и <STRONG>VORT</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>War into the World</STRONG> (edit version)<BR>2. <STRONG>Terror Cimbricus<BR></STRONG>3. <STRONG>The Raven flies North<BR></STRONG>4. <STRONG>For all those who died</STRONG></P>
+<P>Бесплатно скачать альбом можно здесь: <A href="http://www.aurora-australis.com.au/ecards/theudho_war_world/theudho_ecard.html">http://www.aurora-australis.com.au/ecards/theudho_war_world/theudho_ecard.html</A></P>
+<P>Четвёртый альбом <STRONG>THEUDHO “When Ice Crowns the Earth” </STRONG>выйдет в ноября на австралийском лэйбле <STRONG>Aurora Australis</STRONG>. Все новые песни были отмастерены знаменитым <STRONG>Dan Swano</STRONG> в студии <STRONG>Unisound</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.01.2012 news Новый альбом THEUDHO
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=356 alt="" hspace=0 src="/images/news_rus/2012.01/22588.jpg" width=475 align=right border=0>Четвёртый альбом бельгийцев <STRONG>THEUDHO "When Ice Crowns The Earth"</STRONG> выйдет в середине этого месяца на австралийском лэйбле<STRONG> Aurora Australis Records</STRONG>. Мастеринг альбому выполнил знаменитый <STRONG>Dan Swano</STRONG> в студии <STRONG>Unisound</STRONG>. Трек-лист:</FONT></P>
+<P>01. <STRONG>War Into The World</STRONG><BR>02. <STRONG>When Ice Crowns The Earth<BR></STRONG>03. <STRONG>The Second Coming<BR></STRONG>04. <STRONG>Nior Ok Nordr</STRONG><BR>05. <STRONG>Heracleidae (Seevolkersturm)</STRONG><BR>06. <STRONG>Sacrifice The King</STRONG><BR>07. <STRONG>Lokabrenna</STRONG><BR>08. <STRONG>The Straw Deat</STRONG></P>
+<P><A href="http://www.theudho.com/">http://www.theudho.com/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

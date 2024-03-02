@@ -64,6 +64,49 @@ Bob Katsionis - Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2016 news SERIOUS BLACK: обложка и трек-лист нового альбома 
+
+<p>«Звездный» power metal коллектив <strong>Serious Black</strong> планирует выпустить второй студийный альбом “<strong>Mirrorworld</strong>” 9 сентября на <strong>AFM Records</strong>. Будет доступно обычное издание на CD, digipak (с семью бонус-треками), винил, двойной винил издание ("Mirrorworld" и "As Daylight Breaks") и специальное «коробочное» издание. Предварительный заказ альбома: <a href="http://shop.afm-records.de/en/serious-black-en">http://shop.afm-records.de/en/serious-black-en</a></p><p>Дебютный альбом группы ‘<strong>As Daylight Breaks’</strong> вышел в 2015 году и стал заметным явлением на мировой power сцене. Группа отправилась в тур с HammerFall в его поддержку, а затем – с Gamma Ray, выступила в качестве специального гостя в летнем немецком туре Kamelot. </p><p>В состав группы входят вокалист <strong>Urban breed</strong> (ex-Bloodbound, Tad Morose), гитаристы<strong> Bob Katsionis</strong> (Firewind) и<strong> Dominik Sebastian</strong> (Edenbridge), басист <strong>Mario Lochert</strong> (ex-Visions Of Atlantis), клавишник <strong>Jan Vacik</strong> (ex-Dreamscape) и барабанщик<strong> Alex Holzwarth</strong> (Rhapsody of Fire).</p><p>Трек-лист:<br>01. Breaking The Surface<br>02. As Long As I’m Alive<br>03. Castor Skies<br>04. Heartbroken Soul<br>05. Dying Hearts<br>06. You’re Not Alone<br>07. Mirrorworld<br>08. Emotional Blackmail (Digipak Bonus)<br>09. The Life That You Want (Digipak Bonus)<br>10. State of My Despair<br>11. The Unborn Never Die<br>12. This Machine Is Broken (Digipak Bonus)<br>13. Hello Moon (Digipak Bonus)<br>14. Goodbye My Angel (Digipak Bonus)<br>15. I Show You My Heart - Acoustic Version (Digipak Bonus)<br>16. Sealing My Fate - Acoustic Version (Digipak Bonus)</p><p>Официальный сайт: <a href="http://www.serious-black.com/">http://www.serious-black.com/</a></p><p>&nbsp;<center><img width="480" height="480" src="/images/news_rus/2016.07/29668.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 05.08.2016 news Lyric video SERIOUS BLACK
+
+<p>Мы уже сообщали, что новый альбом <strong>SERIOUS BLACK "Mirrorworld"</strong> выйдет 9 сентября. Лирик-видео на песню "<strong>As Long As I'm Alive</strong>" можно посмотреть ниже.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/SoeXsLwkQdk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 05.08.2016 news New lyric video from SERIOUS BLACK
+
+<p>We have already reported that the new album <strong>SERIOUS BLACK "Mirrorworld"</strong> will be released September 9. A lyric video for the song "<strong>As Long As I'm Alive</strong>" can be viewed below.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/SoeXsLwkQdk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.08.2016 news Грядёт новый SERIOUS BLACK
+
+<p>Новый альбом <strong>SERIOUS BLACK "MirrorWorld"</strong> выйдет 9 сентября на <strong>AFM</strong> и <strong>Фоно</strong>. Лимитированное издание альбома будет содержать 7 бонус-треков. Они также войдут и на российское лицензионное издание. Ниже можно услышать отрывки песен с этого альбома.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/-YLyWBK2s00" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.08.2016 news Samples from new SERIOUS BLACK album
+
+<p>New album of<strong> SERIOUS BLACK "Mirror World"</strong> will be released September 9 via<strong> AFM</strong>. Below you can hear excerpts of songs from the album.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/-YLyWBK2s00" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.08.2016 news Новое видео Serious Black
+
+<p>«Звездный» power metal коллектив <strong>SERIOUS BLACK</strong>, в состав которого входят вокалист <strong>Urban Breed</strong> (ex-Bloodbound, Tad Morose), гитаристы <strong>Bob Katsionis</strong> (Firewind) и <strong>Dominik Sebastian</strong> (Edenbridge), басист <strong>Mario Lochert</strong> (ex-Visions Of Atlantis), клавишник<strong> Jan Vacik</strong> (ex-Dreamscape), а также барабанщик <strong>Alex Holzwarth</strong> (Rhapsody of Fire), представил видео на песню "<strong>Castor Skies</strong>" с нового альбома “<strong>Mirrorworld</strong>”, который выходит 9 сентября на <strong>AFM Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/Q_TiBaQRA0g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.08.2016 news New video of SERIOUS BLACK
+
+<p>The "star" power metal band <strong>SERIOUS BLACK</strong>, which is consists of vocalist<strong> Urban Breed</strong> (ex-Bloodbound, Tad Morose), guitarist <strong>Bob Katsionis</strong> (Firewind) and<strong> Dominik Sebastian</strong> (Edenbridge), bassist <strong>Mario Lochert</strong> (ex-Visions Of Atlantis), keyboardist <strong>Jan Vacik</strong> (ex-Dreamscape), and drummer <strong>Alex Holzwarth</strong> (Rhapsody of Fire), presented a video for the song "<strong>Castor Skies</strong>" from the new album "<strong>Mirrorworld</strong>" which comes out September 9 via<strong> AFM Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/Q_TiBaQRA0g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.09.2016 reviews Продолжение от всезвёздного power metal проекта
+
+<p>Мода на all-star проекты не проходит с годами. Музыканты разной степени известности кучкуются под разными вывесками, выпуская огромное количество музыкального материала. Особенно часты эти случаи в hard rock, где уже мало оригинальных коллективов, но проектов выходит по 3-4 штуки в неделю. В power metal такие варианты встречаются реже, по всей видимости, из-за меньшей коммерческой привлекательности стиля. Бывший участник VISIONS OF ATLANTIS басист Mario Lochert взялся за дело основательно. Дебютная работа его проекта SERIOUS BLACK “As Daylight Breaks” вышла в 2015 году, в то время ему удалось привлечь в свои ряды Roland Grapow (ex-HELLOWEEN, MASTERPLAN) и Thomen Stauch (ex-BLIND GUARDIAN). Прошёл всего год и на прилавках появился второй альбом «Mirrorworld”.</p><p>Состав за это время стал менее звёздным: Грапова поменял клавишник FIREWIND Bob Katsionis, а за барабанной установкой объявился Alex Holzwarth из RHAPSODY OF FIRE. Перемены в составе не повлияли на качество музыки, а отличный вокалист Urban Breed (ex-BLOODBOUND, ex-TAD MOROSE) остался, а это уже половина дела. Музыка на «Mirrorworld” стала более клавишнориентирванная чем на предшественнике, но мелодии столь же классические для power metal, как и раньше. Смесь неоклассики и HELLOWEEN, что ещё нужно фанату стиля? </p><p>Закрепить успех, дело хорошее. Лишний раз напомнить о себе качественным материалом, лучшая реклама для SERIOUS BLACK. Качество музыки и исполнение на отличном уровне, вот только соскучиться мы ещё не успели, поэтому «Mirrorworld” вряд ли ждали с большим нетерпением. В любом случае, альбом займёт достойное место в коллекциях фэнов power metal.</p><p>Купи CD на сайте Escapemind.ru: <a href="http://escapemind.ru/goods/SERIOUS-BLACK-Mirrorworld-Ltd">http://escapemind.ru/goods/SERIOUS-BLACK-Mirrorworld-Ltd</a></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

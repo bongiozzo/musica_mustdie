@@ -70,6 +70,59 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2001 news SOIL объявили название нового альбома....
+
+<p>Стало известно название нового альбома "SOIL" - "S C A R S". Дебют команды на J Records будет писаться в Чикагской Johnny K's Groovemaster Studios. Всего планируется 13 треков среди которых: 01. Inside Out 02. Breaking Me Down 03. Unreal 04. Halo 05. My Own 06. Need To Feel. Демо версии уже можно послушать в формате Real Audio на сайте команды www.soilmusic.com</p>
+
+Автор: Yermola
+
+### 08.06.2001 news Chicago&#39;s SOIL, who feature in their ranks former BROKEN HOPE&#x2F;SINDROME bassist Shaun Glass ...
+
+<p>Chicago's SOIL, who feature in their ranks former BROKEN HOPE/SINDROME bassist Shaun Glass on guitar, have set S C A R S as the title to their forthcoming J Records debut, which is currently being recorded at producer Johnny K's Groovemaster Studios in Chicago. Around 13 tracks are being recorded for the album, which is tentatively due in September. Song titles set to appear on the CD include the following: 01. Inside Out 02. Breaking Me Down 03. Unreal 04. Halo 05. My Own 06. Need To Feel. Sound clips of demo versions of a few of the above-mentioned songs-including the projected first single, "Halo"-are currently available is streaming Real Audio format via the band's official web site: www.soilmusic.com Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Chicago&#39;s SOIL...
+
+<p>In related news, Chicago’s SOIL, who feature in their ranks former BROKEN HOPE/SINDROME bassist Shaun Glass on guitar, have lined up a host of live performances prior to the September 11th release of the group’s J Records debut, S C A R S. The dates are as follows: <br> Aug. 24 - Bossier City, LA @ Taylortown Store <br> Aug. 25 - San Antonio, TX @ Savages <br> Aug. 26 - Lubbock, TX @ West Texas Canyon Amphitheater <br> Aug. 28 - Dallas, TX @ Trees <br> Aug. 29 - Tulsa, OK @ Otherside <br> Aug. 30 - Springfield, MO @ Juke Joint <br> Aug. 31 - Des Moines, IA @ Toad Holler <br> Sept. 11 - Chicago, IL @ The Metro <br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.10.2001 news A Night Of Merry Mayhem ...
+
+<p>A Night Of Merry Mayhem tour, featuring OZZY OSBOURNE, ROB ZOMBIE, MUDVAYNE and SOIL, will have its inaugural date on October 31st in Tucson, Arizona, with the final show currently scheduled to take place on December 31st in Phoenix, Arizona. Here are the unofficial dates for the outing: <br> Oct. 31 - Tucson, AZ - TCC <br> Nov. 01 - Albuquerque, NM - Tingley Coliseum <br> Nov. 03 - El Paso, TX - Don Haskins Event Center <br> Nov. 05 - Memphis, YN - Pyramid <br> Nov. 07 - New Orleans, LA - Arena <br> Nov. 9th Houston, TX - Compaq Center <br> Nov. 10th Bossier City, LA - Century Tel Center <br> Nov. 12th Knoxville, TN - Thompson-Boiling Arena <br> Nov. 14th Cincinnatti, OH - Firstar Center <br> Nov. 15th Cleveland, OH - Gund Arena <br> Nov. 17th Nashville, TN - Gaylord Entertainment Center <br> Nov. 19th Birmingham, AL - BJCC <br> Nov. 21st Miami, FL - American Airlines Arena <br> Nov. 23rd Greensboro, NC - Coliseum <br> Nov. 24th Atlanta, GA - Philips Arena <br> Nov. 29th Grand Forks, SD - Alerus Center <br> Dec. 1st Madison, WI - Alliant Energy Center <br> Dec. 2nd Des Moines, IA - Vets Memorial <br> Dec. 4th Moline, IL - The Mark <br> Dec. 6th Chicago, IL - Allstate Arena <br> Dec. 8th Detroit, MI - Cobo Arena <br> Dec. 10th Louisville, KY - Freedom Hall <br> Dec. 11th Grand Rapids, MI - Van Andel Arena <br> Dec. 13th Hartford, CN - Civic Center Coliseum <br> Dec. 15th Worcester, MA - Centrum <br> Dec. 16th Buffalo, NY - HSBC Arena <br> Dec. 18th Albany, NY - Pepsi Arena <br> Dec. 20th Baltimore, MD - TBA <br> Dec. 21st Uniondale, NY - Nassau Coliseum <br> Dec. 23rd East Rutherford, NJ - Meadowlands <br> Dec. 28th Los Angeles, CA - Sports Arena <br> Dec. 29th San Diego, CA - Sports Arena <br> Dec. 31st Phoenix, AZ - Desert Sky Amph<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.11.2001 news Некоторые цифры продаж...
+
+<p>Вот вам цифры американских продаж некоторых металлических и не очень групп... Данные на начало Ноября. Предоставлены Soundcscan (цифра в скобках означает количество недель в чартах): <BR> <BR> SYSTEM OF A DOWN – Toxicity: 817,286 (9) <BR> OZZY OSBOURNE – Down To Earth: 269,374 (3) <BR> SLIPKNOT – Iowa: 553,043 (10) <BR> SLIPKNOT – Slipknot: 1,345,891 (123) <BR> METALLICA – Metallica: 12,890,072 (484) <BR> MISFITS – Cuts From The Crypt: 4,811 (1) <BR> SOIL – Scars: 34,433 (8) <BR> MACHINE HEAD – Supercharger: 24,202 (5) <BR> QUEENSRYCHE – Live Evolution: 20,727 (6) <BR> SLAYER – God Hates Us All: 121,179 (8)</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 07.07.2013 news SOIL: видеоклип &quot;Shine On&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американская банда <STRONG>SOIL</STRONG>, некода гремевшая изо всех утюгов своим хитом <STRONG>"Halo"</STRONG>, завершила запись нового альбома. Новый диск получил название <STRONG>"Whole"</STRONG> и будет выпущен 16 августа на лейбле <STRONG>AFM</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А пока можно заценить первый трек с этого альбома и клип на него. Песня называется <STRONG>"Shine On"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/yuHa6lUMj-w" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Soilwork '2001

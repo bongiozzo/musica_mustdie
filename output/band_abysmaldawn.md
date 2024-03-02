@@ -16,6 +16,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.11.2010 news Новый альбом ABYSMAL DAWN
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17625.jpg" width=362 height=362>Лос-анжелесская команда&nbsp;<B itxtvisited="1">ABYSMAL DAWN</B> выпускает свой третий альбом, <B itxtvisited="1">"Leveling The Plane Of Existence"</B>, в Северной Америке 1 февраля 2011 года на <B itxtvisited="1">Relapse Records</B> (7 февраля&nbsp;в Англии, 11 февраля в&nbsp;Германии и странах Бенелюкса, 14 февраля в остальной Европе). Сведение и мастеринг диска выполнил <B itxtvisited="1">Erik Rutan</B> (<B itxtvisited="1">CANNIBAL CORPSE</B>, <B itxtvisited="1">GOATWHORE</B>, <B itxtvisited="1">HATE ETERNAL</B>) в <B itxtvisited="1">Mana Recording Studios</B>.</P>
+<P>Трек-лист альбома<STRONG>:</STRONG></P>
+<P>01. <B itxtvisited="1">The Age of Ruin</B><BR itxtvisited="1">02. <B itxtvisited="1">Pixilated Ignorance</B><BR itxtvisited="1">03. <B itxtvisited="1">In Service of Time</B><BR itxtvisited="1">04. <B itxtvisited="1">Rapture Renowned</B><BR itxtvisited="1">05. <B itxtvisited="1">Our Primitive Nature</B><BR itxtvisited="1">06. <B itxtvisited="1">Perpetual Dormancy</B><BR itxtvisited="1">07. <B itxtvisited="1">Leveling the Plane of Existence</B><BR itxtvisited="1">08. <B itxtvisited="1">Manufactured Humanity</B><BR itxtvisited="1">09. <B itxtvisited="1">My Own Savior</B><BR itxtvisited="1">10. <B itxtvisited="1">The Sleeper Awakens</B><BR itxtvisited="1"></P>
+<P>Обложку для альбома создал <B itxtvisited="1">P&#228;r Olofsson</B> (<B itxtvisited="1">THE FACELESS</B>, <B itxtvisited="1">IMMORTAL</B>).</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

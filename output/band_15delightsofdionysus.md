@@ -12,6 +12,17 @@ Dark Ambient
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.10.2002 reviews It could have been a perfect soundtrack to “Lost Highway”…
+
+<p>It could have been a perfect soundtrack to “Lost Highway”… or any other surreal movie, as dark and twisted as that one is. “The Nightmare Muzeum” is divided into eight themes – each of them possesses it's own kind of atmosphere, yet they unsurprisingly though quite weirdly adjoin one another, thus creating indivisible eerie canvas. Riddick brothers, this time helped by someone named Mike Bull, once again managed to derive absolutely astonishing work… and who said this ‘dark-electro-ambient…whatever’ thing can't be artistic? It IS artistic, at least that's what fully regards “The Nightmare Muzeum”. Terrifying, anxious, dismal and incredibly grim… almost inhuman in terms of perception… This is absolutely one of the best efforts ever done within the bounds of ‘dark ambient’ music.</p>
+<P> Website: <A HREF="http://www.erols.com/tsbb/fdungeon">http://www.erols.com/tsbb/fdungeon</A></>
+<P> Email: <A HREF="mailto:yamatu@erols.com">yamatu@erols.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

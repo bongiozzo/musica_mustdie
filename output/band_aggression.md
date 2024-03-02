@@ -42,6 +42,45 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.02.2009 news Умер барабанщик AGGRESSION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=321 alt="" hspace=0 src="/images/news_rus/2009.02/13519.jpg" width=227 align=right border=5>Барабанщик канадцев<STRONG> AGGRESSION</STRONG> <STRONG>Gaetan "Gate" Bourassa </STRONG>скончался в возрасте 43 лет от сердечного приступа.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>R.I.P.</FONT></P>
+Автор: Vit Belov
+
+### 05.06.2016 news Канадцы AGGRESSION выпускают новый альбом
+
+<p>Канадские ветераны thrash metal <strong>AGGRESSION </strong>выпускают новый альбом <strong>"Fragmented Spirit Devils</strong>" в октябре 2016 года. Новый трек "<strong>Unleashing The Ghost</strong>" можно послушать ниже. На альбом войдёт также кавер-версия на классику <strong>NAZARETH "Razamanaz"</strong>, где гостевое соло исполнил бывший гитарист этой группы <strong>Manny Charlton</strong>.</p><p>Трек-лист:</p><p>1. At Play In The Fields Of Satan<br>2. Chapel Of Horrors<br>3. Unleashing The Ghost<br>4. Insanity Without Indulgence<br>5. Halo Of Maggots<br>6. Furnace Creek<br>7. Dark Shadow Crossing<br>8. Strangulation Ejaculation<br>9. Evil Pox 2016 A.D.<br>10. Razamanaz (Nazareth cover featuring Manny Charelton from Nazareth on guest guitar solo)</p><p><center><img width="500" height="500" src="/images/news_rus/2016.06/29251.jpg" border="0"><center><p>&nbsp;</p><center><iframe width="420" height="315" src="https://www.youtube.com/embed/Uv1ZYWzRvSA" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 05.06.2016 news AGGRESSION: New album in October
+
+<p>Canadian veterans of the thrash metal <strong>AGGRESSION</strong> to release new album<strong> "Fragmented Spirit Devils"</strong> in October 2016. New track <strong>"Unleashing The Ghost</strong>" can be streamed below. The album will also include cover version of the <strong>NAZARETH</strong> classic "<strong>Razamanaz</strong>", where he performed a guest solo by former guitarist of this band <strong>Manny Charlton</strong>.</p><p>Track listing:</p><p>1. At Play In The Fields Of Satan<br>2. Chapel Of Horrors<br>3. Unleashing The Ghost<br>4. Insanity Without Indulgence<br>5. Halo Of Maggots<br>6. Furnace Creek<br>7. Dark Shadow Crossing<br>8. Strangulation Ejaculation<br>9. Evil Pox 2016 A.D.<br>10. Razamanaz (Nazareth cover featuring Manny Charelton from Nazareth on guest guitar solo)</p><p><center><img width="500" height="500" src="/images/news_rus/2016.06/29251.jpg" border="0"><center><p>&nbsp;</p><center><iframe width="420" height="315" src="https://www.youtube.com/embed/Uv1ZYWzRvSA" frameborder="0" allowfullscreen=""></iframe></center></center></center>
+Автор: Vit Belov
+
+### 30.08.2016 news Дебют канадцев AGGRESSION будет переиздан
+
+<p>Испанский лэйбл<strong> Xtreem</strong> объявил о переиздании легендарного дебюта канадских трешеров<strong> AGGRESSION "The Full Treatment"</strong>. Дата релиза: 1 октября.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Arp52m5jRR0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 30.08.2016 news AGGRESSION (ca) re-issues their &#39;87 debut album on Xtreem Music
+
+<p>Legendary canadian Thrashers <strong>AGGRESSION</strong> are going to see their cult debut 1987 album "<strong>The Full Treatment</strong>" re-issued with original artwork for the very first time through <strong>Xtreem Music</strong>!!</p><p>Emerged in 1985 together with other legendary Canadian Thrash Metal acts like SACRIFICE, INERNAL MAJESTY, RAZOR, ARMOROS, SOOTHSAYER, DBC, etc., AGGRESSION made waves with their three demos during '85/'86 and the inclusion of some of these songs in New Renaissance Rec. compilations like "Thrash Metal Attack" and "Speed Metal Hell II", until their debut full length "The Full Treatment" was released on Banzai Records in '87. However, the band didn't last too long after that and their popularity couldn't reach higher levels, but this album remains as a true gem for any lover of intense yet catchy Thrash Metal in the vein of bands like MORBID SAINT, DARK ANGEL, ARMOROS... who will definitely love this classic!!</p><p>Release date for "The Full Treatment" will be October 1st through<strong> Xtreem Music</strong> on CD format while a vinyl version on picture 12"LP will be out on Weird Face Prod. being followed by an european tour during that month.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Arp52m5jRR0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 16.10.2016 news Канадские трешеры AGGRESSION выпускают третий альбом
+
+<p>Канадские thrash metal ветераны<strong> AGGRESSION</strong> выпускают новый альбом "<strong>Fragmented Spirit Devils</strong>" 10 ноября на<strong> Xtreem Music</strong>. Ниже можно услышать первый сингл с альбома "<strong>Halo Of Maggots</strong>".</p><p>Трек лист:</p><p>01. At Play in the Fields of Satan<br>02. Chapel of Horrors<br>03. Unleashing the Ghost<br>04. Insanity Without Indulgence<br>05. Halo of Maggots<br>06. Furnace Creek<br>07. Dark Shadow Crossing<br>08. Strangulation Ejaculation<br>09. Evil Pox 2016<br>10. Razamanaz *<br>(*) Featuring Manny Charlton of Nazareth</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ro37Gnv1ID0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 16.10.2016 news Legendary AGGRESSION (can) signs with Xtreem Music!
+
+<p>The legendary thrashers<strong> AGGRESSION</strong> from Canada have reunited to stay, not just a temporal reunion, and proof of this is that they've inked a worldwide deal (except USA & Canada) with <strong>Xtreem Music</strong> for the release of their long awaited new album, first one recorded since their classic debut from '87 "<strong>The Full Treatment</strong>" recently re-issue also through Xtreem Music.</p><p>&nbsp;"<strong>Fragmented Spirit Devils</strong>" is the title of this third album cos in fact, their '04 album was that unreleased album from '86 which most of the songs were re-recorded on their definite debut album in '87. AGGRESSION 2016 is a strong and more brutal incarnation of the band featuring Brian Langley (ex-INFERNДL MДJESTY) on vocals and a little bit more Death Metal tinged approach while still retaining that main full raging Thrash Metal basis. Their sound swims in the same seas of bands like POSSESSED, DARK ANGEL, HELLWITCH, INFERNДL MДJESTY, MORBID SAINT... with strong riffing by original guitarist Denis "Sasquatch" Barthe, relentless drumming and demonic vocal delivery.</p><p>AGGRESSION will be touring Europe next month of November on support for their new album as well the re-issue of their debut. Here are the confirmed dates so far:</p><p>02.11 GER - Augsburg<br>03.11 GER - Nuermberg<br>04.11 FRA - Nancy<br>05.11 HOL - Eindhoven<br>06.11 HOL - Amsterdam<br>07.11 GER - Hamburg<br>08.11 GER - Leipzig<br>09.11 GER - Weimar<br>12.11 HUN - Budapest<br>13.11 ROM - Bucharest<br>14.11 GRE - Kavala<br>15.11 GRE - Athens<br>16.11 BUL - Sofia<br>17.11 SER - Belgrade<br>18.11 ITA - Turin<br>19.11 ITA - Padua<br>20.11 ITA - Milan<br>22.11 GER - Essen</p><p>Tracklist for "Fragmented Spirit Devils" is as follows:</p><p>01. At Play in the Fields of Satan<br>02. Chapel of Horrors<br>03. Unleashing the Ghost<br>04. Insanity Without Indulgence<br>05. Halo of Maggots<br>06. Furnace Creek<br>07. Dark Shadow Crossing<br>08. Strangulation Ejaculation<br>09. Evil Pox 2016<br>10. Razamanaz *<br>&nbsp;&nbsp;&nbsp;&nbsp; (*) Featuring Manny Charlton of Nazareth</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ro37Gnv1ID0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -28,6 +28,56 @@ SataniChaoSymphony
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.01.2007 reviews Avantgarde black-metal. Можем получить хорошую группу…
+
+<P>Одновременно с появлением информации о грядущем совместном туре по России и СНГ MARDUK с поляками DEVILISH IMPRESSIONS к нам пришёл новейший диск этой avantgarde-black-metal команды с английско-польского лэйбла Conquer. Ну, тур-туром… Будет ли он неизвестно, а вот диск DEVILISH IMPRESSIONS надо слушать.</P>
+<P>На дебютнике DEVILISH IMPRESSIONS есть несколько очень неплохих трэков. Согласитесь, для первой работы в таком необычном и интеллектуальном стиле, это совсем не мало. Открывается “Plurima Mortis Imago” торжественным интро, которое подошло бы скорее CRADLE OF FILTH или BAL-SAGOTH, но уже с первой полноценной песни фэны симфо-дел разочаруются. Нелинейный забойный black-death-metal никак для них не подходит. Честно говоря, и любителям avant-garde слушать на первых вещах особо нечего. Но дальше, начиная с четвёртой “Dracula’s Mechanized Universe”, когда добавляются партии клавишных и чистого вокала, становится много интереснее. Иногда же музыка DEVILISH IMPRESSIONS захватывает очень сильно. Местами поляки рекомендуют себя, как незаурядные мелодисты. Вот в этом направлении и следует двигаться группе. Если всё пойдёт как надо, мы сможем получить очень качественную и самобытную команду.</P>
+<P>Уже сейчас DEVILISH IMPRESSIONS заслуживает самого пристального внимания публики. И если они доедут до России с помощью Flaming Arts нас ждёт достаточно интересный концерт. А MARDUK? Мне кажется, ему надо оставаться «неприездным», так веселее и интереснее, а то можем разочароваться после стольких лет бесплодного ожидания.</P>
+Автор: Vit Belov
+
+### 13.02.2007 news К нам приедет S.Winter
+
+<P>Поляки <STRONG>DEVILISH IMPRESSIONS</STRONG> объявили о том, что в тур по Восточной Европе вместе с <STRONG>MARDUK</STRONG> в их составе отправится барабанщик <STRONG>S. Winter</STRONG> (<STRONG>AETERNUS, ELD</STRONG>, ex-<STRONG>FORLORN</STRONG>).</P>
+<P>Напомним, что нам обещают эти выступления...</P>
+Автор: Vit Belov
+
+### 08.04.2007 news MARDUK в Москве
+
+<CENTER><IMG height=323 src="/images/shows_rus/2007.04/11437.jpg" width=450 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+Автор: Dimas
+
+### 13.11.2011 news DEVILISH IMPRESSIONS объявили приглашённых
+
+<P><IMG height=246 alt="" hspace=0 src="/images/news_rus/2011.11/22015.jpg" width=400 align=right border=0>Поляки <STRONG>DEVILISH IMPRESSIONS</STRONG> работают над новым альбомом "<STRONG>Simulacra</STRONG>", который выйдет в 2012 году на<STRONG> Icaros Records</STRONG>. Группа назвала некоторых известных музыкантов, которые погостили на этом альбоме - это <STRONG>Orion (BEHEMOTH, VESANIA), Jacek Grecki (LOST SOUL)</STRONG> и <STRONG>Flumen (ASGAARD)</STRONG>.</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/devilishimpressions">http://www.myspace.com/devilishimpressions</A></P>
+Автор: Vit Belov
+
+### 01.01.2012 news Новый альбом DEVILISH IMPRESSIONS
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22431.jpg" width=400 align=right border=0>В начале наступившего года на польском лэйбле <STRONG>Icaros Records</STRONG> выйдет новый альбом авангардных блекеров <STRONG>DEVILISH IMPRESSIONS "Simulacra"</STRONG>. Обложку для релиза нарисовал<STRONG> Michal Loranc (NILE, KAMELOT)</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>Icaros</STRONG> <BR>02. <STRONG>Legion of Chaos</STRONG> <BR>03. <STRONG>Lilith <BR></STRONG>04. <STRONG>Fear no gods!</STRONG> <BR>05. <STRONG>The Scream of The Lambs <BR></STRONG>06. <STRONG>Spiritual Blackout <BR></STRONG>07. <STRONG>Vi Veri Vniversum Vivus Vici</STRONG> <BR>08. <STRONG>The Last Farewell</STRONG> <BR>09. <STRONG>Solitude </STRONG></P>
+Автор: Vit Belov
+
+### 02.07.2012 news DEVILISH IMPRESSIONS: контракт с Lifeforce Records
+
+<P>Польские металлисты&nbsp;<B itxtNodeId="60" itxtHarvested="0">DEVILISH IMPRESSIONS</B> недавно подписали контракт с&nbsp;американским&nbsp;<B itxtNodeId="59" itxtHarvested="0">Lifeforce Records</B>. </P>
+<P>Третий альбом группы, <B itxtNodeId="58" itxtHarvested="0">"Simulacra"</B>, будет выпущен на этом лейбле 30 июля в Европе и 31 июля в Северной Америке.</P>
+<P>На территории Польши этот альбом&nbsp;вышел ещё в марте 2012 года на лейбле <STRONG>Icaros</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Для&nbsp;ознакомления доступен открывающий диск трек -&nbsp;<STRONG>"Icaros"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/uD3Lhcy9RHk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 03.02.2013 reviews Долой собственное лицо
+
+<P>Польский коллектив DEVILISH IMPRESSIONS уже немного известен в нашей стране. Несмотря на то, что два первых альбома коллектива вышли на мелких лэйблах и удивительно не произносимое название, поляки смогли привлечь к себе внимание некоторым количеством концертов в России. Новую работу коллектива издали Metal Spirit Resurrection, в турах которых группа и выступала в наших краях.</P>
+<P>Третья работа DEVILISH IMPRESSIONS увидела свет в Европе на Lifeforce, этот лэйбл более известен и занимается более мелодичной музыкой, нежели первые издатели польской группы. Музыканты откликнулись на смену «конюшни» более мелодичным и понятным материалом. Всякие поиски собственного лица прекратились, и DEVILISH IMPRESSIONS сконцентрировались на воспроизведении sympho-black metal образца DIMMU BORGIR с обильными вкраплениями готичного чистого вокала. Получается эта музыка у коллектива не плохо, группе удаётся сделать нам красиво и помпезно. Качество реализации, как и у всех польских коллективов на высоте, претензий и с этой стороны предъявить невозможно.</P>
+<P>Красивая и внятная работа для всех поклонников стиля. Лично мне не очень понравилось обилие чистого вокала, но с созданием нужной атмосферы у него проблем не возникает.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

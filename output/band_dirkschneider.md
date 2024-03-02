@@ -8,6 +8,45 @@ U.D.O. sings ACCEPT
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.07.2016 news Детали концертного альбома DIRKSCHNEIDER
+
+<p>Концертный альбом <strong>DIRKSCHNEIDER</strong> (проект, в котором группа исполняет песни Accept), записанный в ходе тура "<strong>Back To The Roots</strong>", будет выпущен 28 октября на<strong> AFM Records</strong>. В продаже появится двойное digipack издание, а также трехдисковое виниловое издание в четырех вариантах цвета (черный, золотой, серебряный и прозрачный).</p><p>Материал для альбома <strong>"Live - Back To The Roots" </strong>был записан на аншлаговом концерте в клубе "<strong>Kaminwerk</strong>" в городе Memmingen, Germany 2 апреля 2016 года и содержит следующие песни:</p><p>01. Intro<br>02. Starlight<br>03. Living For Tonite<br>04. Flash Rockin‘ Man<br>05. London Leatherboys<br>06. Midnight Mover<br>07. Breaker<br>08. Head Over Heels<br>09. Neon Nights<br>10. Princess Of The Dawn<br>11. Winterdreams<br>12. Restless And Wild<br>13. Son Of A Bitch<br>14. Up To The Limit<br>15. Wrong Is Right<br>16. Midnight Highway<br>17. Screaming For A Love-Bite<br>18. Monsterman<br>19. T.V. War<br>20. Losers And Winners<br>21. Metal Heart<br>22. I’m A Rebel<br>23. Fast As A Shark<br>24. Balls To The Wall<br>25. Burning</p><p>Также к выпуску запланировано DVD / Blu Ray издание. Детали уточняются.</p><p><center><img width="600" height="300" src="/images/news_rus/2016.07/29688.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 29.07.2016 news Track list of live DIRKSCHNEIDER
+
+<p>Live album of<strong> DIRKSCHNEIDER</strong> (project, in which the band performs songs of Accept), recorded during the tour "<strong>Back To The Roots</strong>", will be released on October 28 via <strong>AFM Records</strong>. The sale will be a double digipack edition, as well as a three-disc Deluxe edition vinyl in four color options (black, gold, silver and transparent).</p><p>The material for the album <strong>"Live - Back To The Roots"</strong> was recorded at a sold-out concert in the club "<strong>Kaminwerk</strong>" in the city of Memmingen, Germany April 2, 2016 and contains the following songs:</p><p>01. Intro<br>02. Starlight<br>03. Living For Tonite<br>04. Flash Rockin‘ Man<br>05. London Leatherboys<br>06. Midnight Mover<br>07. Breaker<br>08. Head Over Heels<br>09. Neon Nights<br>10. Princess Of The Dawn<br>11. Winterdreams<br>12. Restless And Wild<br>13. Son Of A Bitch<br>14. Up To The Limit<br>15. Wrong Is Right<br>16. Midnight Highway<br>17. Screaming For A Love-Bite<br>18. Monsterman<br>19. T.V. War<br>20. Losers And Winners<br>21. Metal Heart<br>22. I’m A Rebel<br>23. Fast As A Shark<br>24. Balls To The Wall<br>25. Burning</p><p>Also DVD/Blu-Ray edition is on the way. Details will follow.</p><p><center><img width="600" height="300" src="/images/news_rus/2016.07/29688.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 30.09.2016 news DIRKSCHNEIDER выпустил сингл с концертного альбома
+
+<p>Классическую вещь <strong>ACCEPT "Breaker"</strong> можно услышать в концертном исполнении группы<strong> DIRKSCHNEIDER</strong>. Знаменитый вокалист сейчас ездит в туре, в котором в последний раз в своей карьере исполняет нетленки своей бывшей группы.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VSf6JzzzMQY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.09.2016 news DIRKSCHNEIDER released &quot;Breaker&quot;
+
+<p>Classic song of the <strong>ACCEPT "Breaker"</strong> can be heard in a concert performance of the group <strong>DIRKSCHNEIDER</strong>. Famous singer now goes in the round the world in which the last time in his career sings hits of the former group.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VSf6JzzzMQY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 16.10.2016 news Новый трек с концертного альбома DIRKSCHNEIDER
+
+<p>Опубликован еще один трек с концертного альбома проекта<strong> DIRKSCHNEIDER "Live- Back To The Roots"</strong>, выходящего 28 октября на <strong>AFM Records</strong>. В рамках проекта DIRKSCHNEIDER Удо Диркшнайдер и его группа исполняют классику ACCEPT. В продаже появится двойное digipack издание, а также трехдисковое виниловое издание в четырех вариантах цвета (черный, золотой, серебряный и прозрачный).</p><p>Новая версия "<strong>Midnight Highway</strong>" доступна для прослушивания ниже.</p><p>Материал для альбома "Live - Back To The Roots" был записан на аншлаговом концерте в клубе "Kaminwerk" в городе Memmingen, Germany 2 апреля 2016 года. 21 ноября начинается российский тур DIRKSCHNEIDER.</p><p>Все даты: <br>21.11.2016 НАЛЬЧИК ДК Профсоюзов<br>22.11.2016 СТАВРОПОЛЬ ДДТ<br>23.11.2016 КРАСНОДАР Арена<br>24.11.2016 РОСТОВ-НА-ДОНУ ДК Ростсельмаш <br>26.11.2016 МОСКВА Stadium Live (Ария-Фест)<br>27.11.2016 ЯРОСЛАВЛЬ Горка<br>29.11.2016 САМАРА Звезда<br>30.11.2016 САНКТ-ПЕТЕРБУРГ Зал<br>02.12.2016 НИЖНИЙ НОВГОРОД Мило<br>03.12.2016 КАЛИНИНГРАД Ялта<br><a href="http://udo-online.com/">http://udo-online.com/</a> </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-ojqYi1umqc" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 03.03.2017 news Гитарист Kasperi Heikkinen покинул U.D.O.&#x2F;DIRKSCHNEIDER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2017.03/30395.jpg" width=400 height=400>Гитарист <STRONG>Kasperi</STRONG> <STRONG>Heikkinen</STRONG>&nbsp;покинул<STRONG> U.D.O./DIRKSCHNEIDER</STRONG> по личным причинам.</P>
+<P>Завление <STRONG>Kasperi</STRONG>: "Я хочу поблагодарить всех, особенно поклонников, за те четыре года, которые я был в группе.&nbsp;Я также желаю всего наилучшего группу в её будущих начинаниях.&nbsp;С этого момента я сфокусируюсь на других своих музыкальных проектах и других видах творчества. Вы ещё обязательно услышите обо мне, когда придёт время!"</P>
+<P>В данный момент <STRONG>Kasperi </STRONG>состоит в группе <STRONG>BEAST IN BLACK</STRONG>, в состав которой также входит<STRONG> Антон Кабанен</STRONG>, бывший участник и основной композитор финнов <STRONG>BATTLE</STRONG> <STRONG>BEAST</STRONG>.<BR><A href="http://facebook.com/beastinblackofficial/">http://facebook.com/beastinblackofficial/</A></P>
+<P>Помимо прочего, на октябрь месяц уже заявлено два российских шоу группы <STRONG>DIRKSCHNEIDER</STRONG>.</P>
+<P>Подробнее: <A href="http://goo.gl/IFXbYU">http://goo.gl/IFXbYU</A> </P>
+<P>Кто же станет заменой <STRONG>Kasperi</STRONG>? Ждём анонса.</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

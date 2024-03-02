@@ -55,6 +55,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.10.2016 news Новая музыка HELMET в официальном lyric video
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом американцев <strong>HELMET "Dead To the World"</strong> выходит 28 октября на<strong> earMusic</strong>. Лирик-видео с песней "<strong>Bad News</strong>" можно послушать ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1. Life or Death&nbsp;03:02&nbsp; <br>2. I Love My Guru&nbsp;02:51&nbsp; <br>3. Bad News&nbsp;02:36&nbsp; <br>4. Red Scare&nbsp;03:19&nbsp; <br>5. Dead to the World&nbsp;03:32&nbsp; <br>6. Green Shirt&nbsp;03:02&nbsp; <br>7. Expect the World&nbsp;04:07&nbsp; <br>8. Die Alone&nbsp;02:40&nbsp; <br>9. Drunk in the Afternoon&nbsp;04:21&nbsp; <br>10. Look Alive&nbsp;04:10&nbsp; <br>11. Life or Death (Slow)&nbsp;03:14</p><p><center><img width="500" height="500" src="/images/news_rus/2016.10/30042.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/TkFMvststF0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 06.10.2016 news New lyric video of HELMET
+
+<p>The new album of Americans <strong>HELMET "Dead To the World"</strong> comes out on October 28 via <strong>earMusic</strong>. A lyric video with the song "<strong>Bad News</strong>" can be streamed below.</p><p>Track list:</p><p>1. Life or Death&nbsp;03:02&nbsp; <br>2. I Love My Guru&nbsp;02:51&nbsp; <br>3. Bad News&nbsp;02:36&nbsp; <br>4. Red Scare&nbsp;03:19&nbsp; <br>5. Dead to the World&nbsp;03:32&nbsp; <br>6. Green Shirt&nbsp;03:02&nbsp; <br>7. Expect the World&nbsp;04:07&nbsp; <br>8. Die Alone&nbsp;02:40&nbsp; <br>9. Drunk in the Afternoon&nbsp;04:21&nbsp; <br>10. Look Alive&nbsp;04:10&nbsp; <br>11. Life or Death (Slow)&nbsp;03:14</p><p><center><img width="500" height="500" src="/images/news_rus/2016.10/30042.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/TkFMvststF0" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

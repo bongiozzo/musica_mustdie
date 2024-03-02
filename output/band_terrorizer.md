@@ -59,6 +59,51 @@ Jesse Pintado - Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.06.2004 news Новости от MORBID ANGEL
+
+<P><B>Trey Azagthoth</B> поделился своими планами о создании совместного проекта с певицей <B>Anneke van Giersbergen</B>&nbsp;из <B>THE GATHERING</B>.&nbsp;В настоящее время музыканты пытаются совместить свои графики.</P>
+<P>Кроме этого, барабанщик <B>Pete Sandoval</B>&nbsp;рассказал,&nbsp;что пытается собрать <B>TERRORIZER</B> для записи&nbsp;нового альбома. Pete надеется, что они войдут в студию в конце года.</P>
+Автор: Vit Belov
+
+### 29.08.2006 news Смерть Jesse Pintado
+
+<P>В минувший уикенд, в одном из голландских госпиталей скоропостижно скончался гитарист <STRONG>Jesse Pintado</STRONG> (<B>TERRORIZER</B>, ex-<B>NAPALM DEATH</B>).&nbsp;Последний релиз записанный с участием этого музыканта - долгожданный реюнион альбом группы&nbsp;<B>TERRORIZER</B> под названием <B>"Darker Days Ahead"</B>,&nbsp;который только&nbsp;что вышел на&nbsp;<B>Century Media Records</B>. </P>
+Автор: Dimas
+
+### 24.11.2011 news TERRORIZER выпустят новый альбом
+
+<P>Легенды grindcore <STRONG>TERRORIZER </STRONG>выпускают новый альбом <STRONG>"Hordes Of Zombies" </STRONG>в феврале на<STRONG> Season Of Mist</STRONG>. В настоящем составе группы барабанщик <STRONG>Pete Sandoval</STRONG> и басист <STRONG>David Vincent</STRONG> из <STRONG>MORBID ANGEL</STRONG>, а так же вокалист <STRONG>Anthony Rezhawk, </STRONG>певший на предыдущем альбоме группы <STRONG>"Darker Days Ahead". </STRONG>Умершего гитариста <STRONG>Jesse Pintado</STRONG> заменила <STRONG>Katina Culture</STRONG> (<B>RESISTANT CULTURE</B>).</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/cnAyibPHwvQ?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/cnAyibPHwvQ?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 20.12.2011 news TERRORIZER: новый альбом &quot;Hordes Of Zombies&quot; 28 февраля 2012
+
+<P>Непотопляемый проект <STRONG>TERRORIZER</STRONG> выпускает свой новый альбом <STRONG>"Hordes Of Zombies"</STRONG> 28 февраля 2012 на французком лейбле&nbsp;&nbsp;<STRONG>Season Of Mist</STRONG>.</P>
+<P>В нынешний соства <STRONG>TERRORIZER</STRONG> входят: <STRONG>Pete Sandoval</STRONG> (барабаны, <STRONG>MORBID ANGEL</STRONG>), <STRONG>Anthony Rezhawk</STRONG> (вокал, <STRONG>RESISTANT CULTURE</STRONG>), <STRONG>David Vincent</STRONG> (бас, <STRONG>MORBID ANGEL</STRONG>) и <STRONG>Katina Culture</STRONG> (гитара, <STRONG>RESISTANT CULTURE</STRONG>)</P>
+<P>Трек-лист альбома: 01. <STRONG>Intro </STRONG>/ 02. <STRONG>Hordes Of Zombies</STRONG> / 03. <STRONG>Ignorance And Apathy</STRONG> / 04. <STRONG>Subterfuge</STRONG> / 05. <STRONG>Evolving Era</STRONG> / 06. <STRONG>Radiation Syndrome</STRONG> / 07. <STRONG>Flesh To Dust</STRONG> / 08. <STRONG>Generation Chaos</STRONG> / 09. <STRONG>Broken Mirrors</STRONG> / 10. <STRONG>Prospect Of Oblivion</STRONG> / 11. <STRONG>Malevolent Ghosts</STRONG> / 12. <STRONG>Forward To Annihilation</STRONG> / 13. <STRONG>State Of Mind</STRONG> / 14. <STRONG>A Dying Breed</STRONG></P>
+<P>Бонус&nbsp;трек под названием&nbsp;"<STRONG>Wretched</STRONG>", войдёт на электронную версию альбома и пластинку, тогда как демо-версия титульной песни будет включена в издание альбома в формате&nbsp;limited-edition digipak.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.12/22358.jpg" width=475 height=475></CENTER>
+Автор: Headcrusher
+
+### 18.01.2012 news TERRORIZER: &quot;Subterfuge&quot; - первый трек c альбома &quot;Hordes Of Zombies&quot; в сети
+
+<P>Лейбл <STRONG>Season Of Mist</STRONG> опубликовал песню <STRONG>"Subterfuge"</STRONG>, с готовящегося к выходу нового альбома <STRONG>TERRORIZER ""Hordes Of Zombies"</STRONG>.</P>
+<CENTER>
+<OBJECT width="100%" height=81><PARAM NAME="movie" VALUE="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F33026440&"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F33026440&" type="application/x-shockwave-flash" width="100%"></embed></OBJECT><SPAN><A href="http://soundcloud.com/season-of-mist/terrorizer-subterfuge">TERRORIZER - Subterfuge</A> by <A href="http://soundcloud.com/season-of-mist">Season of Mist</A></SPAN></CENTER>
+Автор: Headcrusher
+
+### 15.03.2012 news Новый клип TERRORIZER
+
+<P><STRONG>"Hordes of Zombies"</STRONG> - новый видео-ролик легендарных <STRONG>TERRORIZER</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/kTPO5A4KFlc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### TERRORIZER - ваше отношение к данному коллективу!

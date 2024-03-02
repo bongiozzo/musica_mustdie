@@ -76,6 +76,26 @@ Matti Torro - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.12.2002 reviews Призрак в раю
+
+<p>Второй альбом финской группы играющей не совсем типичную музыку. Группа играет довольно разнообразный материал и нельзя точно понять что это: традиционный hard-rock либо интеллектуальный prog-power, но немного мягковатый. Одно ясно: корни этой музыки находятся в музыке семидесятых, что-то иногда проскакивает даже от URIAH HEEP. Мелодичный материал с уникальным мягким звуком, мощным вокалом и органными клавишами в некоторых местах. Все это приправлено хорошими аранжировками, новаторскими гитарными риффами и современным звуком. Быстрые воздушные песни чередуются среднетемповыми качовыми. По сравнению с дебютом, новый альбом более агрессивный и более чувственный. В целом, все тот же melodic metal исполненный с чувством, толком и правильной расстановкой. Приглашаю вас совершить увлекательное романтическое путешествие по дебрям музыкального рая.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 27.12.2011 news Новый клип MYON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видео-ролик финской группы <STRONG>MYON</STRONG> на песню "<STRONG>Call Of The Senses</STRONG>" можно посмотреть ниже. Режиссёром и главной героиней клипа выступила модель журнала <STRONG>Hustler Kimberly Knox, (a.k.a. Veera Julia Ikkala</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/bOmX1Cbc5bk?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/bOmX1Cbc5bk?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

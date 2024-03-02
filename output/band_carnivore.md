@@ -46,6 +46,36 @@ All Songs Written By Pete Steele
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 24.04.2006 news CARNIVORE вернулись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легенды американской сцены <STRONG>CARNIVORE</STRONG>, известные участием <STRONG>Peter Steele</STRONG> (<STRONG>TYPE O'NEGATIVE</STRONG>), возвращаются. Анонсированы концерты на Wacken и, возможно, на Monsters Of Rock в Болгарии.</FONT></P>
+Автор: Vit Belov
+
+### 16.04.2010 news Умер Peter Steele (4 января 1962 - 14 апреля 2010).
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.04/16546.jpg" width=200 height=300>14 апреля, в возрасте 48 лет, скончался&nbsp;<STRONG>Peter Steele</STRONG> (настоящее имя -&nbsp;<STRONG>Petrus T. Ratajczyk</STRONG>)&nbsp;&nbsp;лидер и вокалист <STRONG>TYPE O' NEGATIVE</STRONG>.&nbsp;Причина смерти - сердечная недостаточность. В середине 80-х,&nbsp;<STRONG>Peter</STRONG> прославился, как фронтмэн скандальной&nbsp;thrash/crossover&nbsp;группы <STRONG>CARNIVORE</STRONG>.</P>
+<P>Стоит отменить, что в 2005 году на сайте группы <STRONG>TYPE O' NEGATIVE</STRONG> было опубликовано сообщение о смерти <STRONG>Peter</STRONG>'а, но&nbsp;как выяснилось позже, данное объявление было совеобразным чёрным юмором музыканта.</P>
+Автор: Headcrusher
+
+### 16.04.2010 news Peter Steele (04.01.1962 – 14.04.2010)
+
+<P><IMG border=0 hspace=20 alt="" align=left src="/images/news_rus/2010.04/16547.jpg" width=250 height=250>Печальные новости пришли из Америки... 14 апреля 2010 года скончался <STRONG>Peter Steele</STRONG> (настоящее имя Peter Ratajczyk) - лидер известной группы <STRONG>TYPE O NEGATIVE</STRONG>. В середине 80-х,&nbsp;<STRONG>Peter</STRONG> прославился, как фронтмэн скандальной&nbsp;thrash/crossover&nbsp;группы <STRONG>CARNIVORE</STRONG>.</P>
+<P>Причиной смерти 48-летнего&nbsp;музыканта называют сердечную недостаточность.</P>
+<P>Эту информацию уже подтвердили другие участники коллектива и их менеджер.</P>
+<P>Официальное заявление о смерти Питера с комментариями музыкантов и его семейства можно прочитать на&nbsp;<A href="http://www.typeonegative.net/index.php">сайте группы</A></P>
+<P>Покойся с миром...</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Moscow, Megadeth, technocarnivore & Uncle Pecas tour

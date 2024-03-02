@@ -33,6 +33,25 @@ Into the Pentagram
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2004 reviews &quot;Не сдувайте пыль&quot; с раритетов!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Что заставляет "сдувать пыль" с подобных альбомов? Шотландский лэйбл <STRONG>Golden Lake production</STRONG>, а за ним и российский <STRONG>CD-Maximum</STRONG>, переиздали древнюю работу польской black-metal банды <STRONG>LUNA AD NOCTUM</STRONG>.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И это не повод бежать в магазин. Очередной black-metal альбом среденького-серенького европейского уровня. <STRONG>LUNA AD NOCTUM</STRONG> не цепляют ни брутальностью, ни мелодичностью. Что-то околосимфоничное и среднебыстренькое. Однотипное, недотягивающее до высокого уровня ни по каим параметрам. Кто только не играл подобную музыку на рубеже веков. Исключетельно локальный уровень.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Писать-то больше и нечего. Среднетемповое, редкомелодичное, с аутро и интро... Only for fans.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><EM>Диск предоставлен</EM> <A href="http://www.cd-maximum.ru/"><EM>CD-MAXIMUM</EM></A></STRONG></FONT></P>
+Автор: Vit Belov
+
+### 21.07.2005 reviews LUNA AD NOCTUM обросли мясом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Помнится, совсем недавно <STRONG>CD-Maximum</STRONG> уже выпустил дебютный альбом поляков<STRONG> LUNA AD NOCTUM</STRONG>, который поразил своею невзрачностью, а, главное, полным отсутствием достоинств, которые могли сподвигнуть этот лэйбл на издание той работы. Единственная причина - это то, что это black-metal. Но достаточная ли это причина?</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И вот вторая работа. Конечно же, назвать её великолепной я не могу, но шаг вперёд очевиден. Нет, это не мелодичный блэк, любители мелодики, успокойтесь. 10 кусков отборного мяса с хорошей примесью "блэчины". <STRONG>LUNA AD NOCTUM</STRONG> добавили в свою музыку изрядное количество death-metal, как говорится, их black оброс мясом. И вот уже группу можно рекомендовать поклонникам<STRONG> BEHEMOTH</STRONG>, например.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>LUNA AD NOCTUM</STRONG> выпустили крепкий альбом, который может занять место в коллекциях... А может и не занять... На ваш вкус.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

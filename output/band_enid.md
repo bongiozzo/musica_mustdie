@@ -100,6 +100,47 @@ All music and lyrics by Martin Wiese.
 
 * C группой "Summoning" Martin Wiese
 
+## Публикации
+
+### 11.10.2001 news Enid подписали контракт с code666
+
+<p>Музыканты известной немецкой команды Enid после двух альбомов, выпущенных на лейбле CCP, заключили долгосрочный контракт с code666 и уже сейчас в Mirrors Studio в Инсбруке (Австрия) записывают первый альбом для нового лейбла. Сей продукт под названием "Seelenspiegel" выйдет в течение февраля 2002 года. В качестве приглашённого музыканта на альбоме засветится Moritz Neuner, барабанщик Abigor, Korovakill, DornenReich, Darkwell. Уникальный стиль Enid - это подлинное метал-фэнтэзи искуство, сочетающее мрачные средневековые мелодии, black metal агрессию и мечтательную атмосферность.</p>
+
+Автор: Morsus
+
+### 11.10.2001 news Enid signed a deal with code666
+
+<p>Enid, the well-known German Band, after 2 albums on CCP records, signed a long-term deal with code666, and right now are in Mirrors Studio in Innsbruck (Austria) to record their first album for new label, titled "Seelenspiegel", scheduled for February 2002 on Digipack-CD. The Album Feature Moritz Neuner, drummer of Abigor, Korovakill, DornenReich, Darkwell... Enid performs an Unique style, where Medieval melodies, Black Metal aggression and Dreamy Atmospheres create a true Metallic Fantasy Art.</p>
+
+Автор: Morsus
+
+### 24.05.2002 reviews Отражение сердечных рефлексов
+
+<p>Третий альбом австрийских музыкантов. Эта смесь акустических бардовских песнопений со средневековыми мелодиями и мелодичного folk-black metal дарует волшебное спокойствие и непередаваемое ощущение красоты окружающего мира. Она мне напомнила творения EMPYRIUM, STORM и ULVER (такой как на "Kveldszanger"). Альбом очень контрастный и изобилует резкими переходами и сменами темпа. Акустические спокойные пассажи с чистым экспрессивным и мужественным вокалом резко сменяются скоростным жужжанием и скримингом, а иногда проскакивают power-куски в виде гитарных соло-проходов. Лидер группы Martin Wiese (ex-SUMMONING) записал все виды вокала, клавишные, флейты и сочинил всю лирику. Группа заметно выросла творчески и технически. Музыка инновационна и оригинальна. Величественные хоры, богатая торжественная атмосфера за счет синтезаторов, бросающаяся мелодика, приятный тяжелый гитарный звук. По сравнению с предыдущими альбомами, изменения только в лучшую сторону. Стало больше гитарных партий и музыка стала намного разнообразнее. Многие вещи и захватывающие дух мелодии прочно оседают в голове. Это все здорово напоминает классическую оркестровую музыку, музыку к кинофильму. Время потраченное на прослушивание альбома - время не потерянное зря.</p>
+<p> Диск выпущен по лицензии компанией CD-MAXIMUM</p>
+
+Автор: Dimas
+
+### 03.06.2002 reviews Reflection of intimate reflexes
+
+<p>The third album of the Austrian musicians. This mix acoustic bardsongs with medieval melodies and melodious folk-black metal gives magic calmness and inexpressible sensation of beauty of the environmental world. It has reminded me creations by EMPYRIUM, STORM and ULVER (such as on "Kveldszanger"). The album very contrast also abounds sharp transitions and changes of tempo. Acoustic quiet passages with clean expressive and courageous vocal are sharply replaced high-speed buzz and screeming, and sometimes slip power-pieces as guitar solo-passes. The leader of group Martin Wiese (ex-SUMMONING) has written down all kinds of vocal, keyboard, flutes and has composed all lyrics. The group appreciablly has grown creatively and technically. Music also is original. Majestic choruses, rich solemn atmosphere for the account of synths, rushing melodic, pleasant heavy guitar sound. In comparison with the previous albums, change only in the best party. Became more guitar parties and music became much more various. Many things and the fascinating spirit of a melody is strong subside in a head. It is all is healthy reminds classical orchestral music, music to a film. Time spent on listening of an album - time is not lost.</p>
+
+Автор: Vit Belov
+
+### 07.10.2003 news Новости от ENID
+
+<P>Немецкие эпик-металлисты <B>ENID</B> закончили запись своего нового студийного альбома под названием <B>"Grandwanderer".</B> Его выход ожидается в начале 2004 года через <B>Code666</B>.</P>
+Автор: Dimas
+
+### 18.01.2005 reviews От нереального к удивительному
+
+<P>&nbsp;Иногда я не понимаю, почему жизнь обошлась со мной так несправедливо. Мне 24 года, я пока ещё ничего не достиг, чтобы казаться значимым даже самому себе. Я не создал ни одной научной школы, я не умею нормально готовить и играть на музыкальных инструментах. У меня нет композиторского таланта, я плохо пишу картины и все мои начинания, хоть и заканчиваются успешно, слишком мелки по сравнению с грандиозными историческими преобразованиями, немым свидетелем которых я являюсь. </P>
+<P>&nbsp;Судьба же правдива сама с собой. Если счастья и удачи нет у одного, то она непременно одарит другого своей благосклонной улыбкой. Вот и теперь, слушая диск ENID (не путать с англичанами, существовавшими немного ранее), я наблюдаю такую улыбку.</P>
+<P>&nbsp;Примерно 7 лет назад у австрийской группы ENID появился лидер и вдохновитель, создатель и наставник – Мартин Вайс. Будучи без ума от классической музыки и атмосферного блэка, он напару со своим единомышленником Флорианом Даммашом начал создавать просто шедевриальные произведения. Предлагаемый Вашему вниманию альбом – четвертое, последнее на сегодняшний день творение. Если Вы можете представить себе смесь LACRIMOSA,SUMMONING, THYRFING, современным гитарным и симфоническим неоклассицизмом, и VINTERSORG, с преобладанием первых двух над прочими, - Вы можете себе представить ENID. Но не тешьте себя надеждами. Ибо фантазия Ваша слишком ничтожна. А жизнь ведь богаче воображения! Поэтому просто берем и слушаем альбом “Gradwanderer”. И несправедливость жизни превратится в миф, в грезы пессимистов и неудачников. Посмотрите вокруг – мир улыбается Вам Загадочной улыбкой Ницше. ENID. Металлическая картина со многими гранями от Музыкальных классиков современности.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vlad
+
+
 ## Обсуждения
 
 

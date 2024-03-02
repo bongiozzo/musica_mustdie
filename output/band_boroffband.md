@@ -8,6 +8,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.05.2011 news BOROFF BAND в Москве
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/shows_rus/2011.05/19512.jpg" width=400 height=531>31 мая, Москва, клуб "Hleb"</P>
+<P>Начало: 20-00</P>
+<P>Вход: 500 р.</P>
+<P>Встреча: <A href="http://vkontakte.ru/event27184467">http://vkontakte.ru/event27184467</A></P>
+<P>Фан-клуб: <A href="http://borof.ru/">http://borof.ru</A></P>
+<P>---------------------------------</P>
+<P>Адрес клуба "Hleb":</P>
+<P>г. Москва, Звенигородское шоссе, д. 11</P>
+<P><A href="http://www.clubhleb.ru/">http://www.clubhleb.ru</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### BOROFF BAND и HUNTERS в клубе &quot;Джими&quot; (9 мая, Москва)

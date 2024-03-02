@@ -8,6 +8,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.03.2013 news DRAUGGARD: видеоклип на песню &quot;Сны Бальдра&quot;
+
+<P>Вышел официальный видеоклип российской блэк-метал формации <STRONG>DRAUGGARD</STRONG> на песню <STRONG>"Сны Бальдра"</STRONG> с альбома <STRONG>"Da Nobis Tenebras"</STRONG>, партии барабанов на котором записал бывший барабанщик австрийской группы <STRONG>BELPHEGOR</STRONG> <STRONG>Tomasz "Nefastus" Janiszewski</STRONG>, известный также по участию в <STRONG>DEBAUCHERY</STRONG> и <STRONG>LYFTHRASYR</STRONG>. Альбом был выпущен 8 марта немецким лейблом <STRONG>Terror Records</STRONG>. В записи альбома приняли гостевое участие музыканты <STRONG>NECRONOMICON</STRONG> (Германия), <STRONG>CONTRADICTION</STRONG> (Германия) и <STRONG>MEMORAIN</STRONG> (Греция).</P>
+<P>Съемки видеоклипа проходили в Румынии под руководством известного художника и режиссера Костина Чиорену (<STRONG>Costin Chioreanu</STRONG>), работавшего ранее с <STRONG>MAYHEM</STRONG> (клип "Anti"), <STRONG>DEMONICAL</STRONG>, <STRONG>AVE INFERI</STRONG> и др. <BR>Костин выступил в качестве режиссера, сценариста и оператора видео. По словам режиссера, видеоклип <STRONG>DRAUGGARD</STRONG> стал самой трудоемкой и, по его мнению, лучшей из его работ в этой области и представляет собой скорее короткометражный, наполненной символикой фильм, чем видеоклип в широком понимании слова.</P>
+<P>Клип можно посмотреть ниже.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/yDdXzVxRY74" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

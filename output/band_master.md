@@ -133,6 +133,100 @@ November 1992.
 * C группой "Gordian Knot" Paul Masvidal (guitar, vocal)
 * C группой "Death" Paul Masvidal (guitar, vocal)
 
+## Публикации
+
+### 16.08.2009 news MASTER готовит новый альбом
+
+<P>Легендарная группа <STRONG>MASTER</STRONG>, под руководством бессменного лидера <STRONG>Paul Speckmann</STRONG>, готовит к выпуску новый материал. Десятый полноформатный альбом будет выпущен на лейбле <STRONG>Pulverised Records</STRONG> в начале 2010 года и называться <STRONG>"The Human Machine"</STRONG>. За оформление альбома ответственен <STRONG>Eliran Kantor </STRONG>(<A href="http://www.elirankantor.com">http://www.elirankantor.com</A>).</P>
+<P><IMG height=400 alt="" hspace=100 src="/images/news_rus/2009.08/14842.jpg" width=400 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 15.06.2010 reviews Звуки, переданные из мрачных глубин
+
+<P>Из холодных глубин космоса приходят сигналы от экспедиции бывшего американца, а ныне чеха Paul Speckmann. Эти отважные храбрецы отправились в своё нелёгкое путешествие несколько десятилетий назад (два!!!) и до сих пор уплывают всё дальше и дальше от нашей планеты со скоростью близкой к скорости света. Для нас прошли уже десятилетия, для них часы или даже минуты. MASTER, а именно так называется корабль, на котором путешествует команда, передаёт на землю «нетленки» собственного сочинения, раз в несколько лет, а может раз в 10 минут?</P>
+<P>“The Human Machine” – так называется очередной кусок радиограммы, полученный лэйблом Pulverized Records и распространённый по всему обитаемому миру. Не остались в стороне от космической одиссеи и магнаты с отечественного лэйбла Союз, который позволит каждому фанату древности приобрести копию послания на компакт-диске. </P>
+<P>Путешественники между мирами в качестве своей «азбуки Морзе» избрали death-metal, придуманный кем-то в середине 80-х годов. Древний и угарный, как все исходные стили, этот метал не откроет никому ничего нового. Ритмичные и однообразные риффы высверливают в голове слушателя маленькую дырочку, через которую утекают все мысли, и остаются только животные рефлексы, заставляющие человеческую особь подпрыгивать на месте и дико кривляться. Ни в коем случае не хочу принижать «творчество» MASTER. Безусловно, у обозреваемого альбома найдутся поклонники среди фанатов «олд-скульного» звучания. Чего на этой пластинке нет, так это компромиссов, а это уже может быть лучшей рекомендацией для некоторых типов, у которых дырка в голове никогда не зарастает. Кстати, эта дырка и у меня в голове ещё не успела зарубцеваться, поэтому новый альбом MASTER я прослушал с некоторым удовольствием.</P>
+<P>Хорошая работа для любителей древностей. Те люди, что любили ранние работы BENEDICTION или OBITUARY, могут попробовать MASTER, но только эти люди.</P>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 03.02.2012 news Новый альбом MASTER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.02/22942.jpg" width=400 height=400>Легенды death-metal<STRONG> MASTER</STRONG> выпустят одиннадцатый альбом в своей картере, получивший название <STRONG>"The New Elite"</STRONG>, в этом году на <STRONG>Pulverized Records</STRONG>. Пластинка была вновь записана в <STRONG>Shaark Studios</STRONG>.&nbsp;Обложку нарисовал <STRONG>Mark Bridgeman</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01.<STRONG> The New Elite</STRONG><BR>02. <STRONG>Rise Up And Fight</STRONG><BR>03. <STRONG>Remove The Knife</STRONG><BR>04. <STRONG>Smile As You're Told<BR></STRONG>05. <STRONG>Redirect The Evil<BR></STRONG>06. <STRONG>Out Of Control<BR></STRONG>07. <STRONG>As Two Worlds Collide<BR></STRONG>08. <STRONG>New Reforms<BR></STRONG>09. <STRONG>Guide Yourself</STRONG><BR>10. <STRONG>Souls To Dissuade<BR></STRONG>11. <STRONG>Twist Of Fate</STRONG></FONT></P>
+<P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F35351169&show_artwork=true" frameBorder=0 width="100%" scrolling=no></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.05.2012 news MASTER: переиздание альбома &quot;Let&#39;s Start A War&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.05/23942.jpg" width=400 height=400>Лейбл <STRONG>Grindhouse Music</STRONG> переиздаст альбом <STRONG>"Let's Start A War"</STRONG> ВИА <STRONG>MASTER</STRONG> под руководством Пола&nbsp;Спекманна (<STRONG>Paul Speckmann</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В качестве бонуса,&nbsp;на переиздание войдёт <STRONG>"Follow Your Savior"</STRONG> EP (2001). Дата выхода диска: 11 сентября 2012 г.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первоначально полноформатник <STRONG>"Let's Start A War"</STRONG>&nbsp;вышел в свет в 2002 году&nbsp;на лебле <STRONG>System Shock</STRONG>&nbsp;в Европе и на <STRONG>Pavement</STRONG>&nbsp;в Северной Америке.</FONT></P>
+Автор: Headcrusher
+
+### 23.06.2012 news MASTER: трек &quot;Guide Yourself&quot; с альбома &quot;The New Elite&quot; (2012)
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Guide Yourself"</STRONG> - новая песня группы <STRONG>MASTER</STRONG> c альбома <STRONG>"The New Elite"</STRONG>, доступна для прослушивания по ссылке: <A href="http://www.reverbnation.com/play_now/song_13594629">www.reverbnation.com/play_now/song_13594629</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.06/24230.jpg" width=499 height=343> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.01.2013 news Paul Speckmann + Rogga Johansson
+
+<P><STRONG>Paul Speckmann</STRONG> (<STRONG>MASTER</STRONG>, <STRONG>ABOMINATION</STRONG>, <STRONG>DEATH STRIKE</STRONG>)&nbsp;и <STRONG>Rogga Johansson</STRONG> (<STRONG>BONE GNAWER</STRONG>, <STRONG>DEMIURG</STRONG>, <STRONG>PAGANIZER</STRONG>, <STRONG>RIBSPREADER</STRONG>)&nbsp;в скором времени выпускают свой совместный проект <STRONG>"Sulphur Skies"</STRONG>. Диск выйдет в количестве 1000 экземпляров на <STRONG>Vic Records</STRONG>. Автор обложки: <STRONG>Arvin Palma</STRONG> (<A href="http://www.facebook.com/TorturedPalmArtOfficial">www.facebook.com/TorturedPalmArtOfficial</A>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25369.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.07.2013 news MASTER переиздаёт альбомы &quot;The Spirit Of The West&quot; (2004) и &quot;Four More Years Of Terror&quot; (2005)
+
+<P>Легендарный чикагский ансамбль <STRONG>MASTER</STRONG>, ныне базирующийся в Чехии, переиздаёт два своих альбома на немецком лейбле&nbsp;<A href="http://www.hrrecords.de/">High Roller</A>.</P>
+<P>Для переиздания были выбраны диски <STRONG>"The Spirit Of The West"</STRONG> (2004) и <STRONG>"Four More Years Of Terror"</STRONG> (2005). Помимо CD, эти альбомы будут впервые изданы на виниле.</P>
+<P>Количество каждого диска в виниловом издании будет равняться пятистам экземплярам. Причём 150 штук будет напечатано на чёрном виниле, а&nbsp;350 - на прозрачном кроваво-красном. А альбом <STRONG>"Four More Years Of Terror"</STRONG> будет снабжён бонусной семидюймовкой.</P>
+<P>Для этих альбомов также было сделано новое оформление. Его автор, немецкий художник <STRONG>Alexander von Wieding</STRONG> (<A href="http://www.zeichentier.com/">www.zeichentier.com</A>).</P>
+<P>Дата выхода дисков: 16 августа 2013 г.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25956.jpg" width=645 height=325> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 12.08.2013 news MASTER: новый альбом &quot;The Witchhunt&quot; выходит 27 сентября
+
+<P>27 сентября ансамбль <STRONG>MASTER</STRONG> под руководством Пола Спекманна (<STRONG>Paul Speckmann</STRONG>), выпускает свой 12 студийный полноформатник под названием <STRONG>"The Witchhunt"</STRONG>&nbsp;на лейбле <STRONG>F.D.A. Rekotz</STRONG> (<A href="http://www.fda-rekotz.com/">www.fda-rekotz.com</A>).</P>
+<P><STRONG>"The Witchhunt"</STRONG>, в который войдёт 11 треков, выйдет в формате&nbsp;CD&nbsp;и винила.&nbsp;Оформление - <STRONG>ArtWars Mediadesign</STRONG>. </P>
+<P>Некоторые подробности издания альбома в виниловом&nbsp;формате. Помимо обычного издания на чёрном виниле, которое будет включать в себя сам винил (140 грамм), вкладку и сделанный из прочного картона конверт самой пластинки, также будут доступны две другие версии <STRONG>"The Witchhunt"</STRONG>. </P>
+<P>Это:</P>
+<P>- издание на прозрачном синем виниле + постер формата А2 + вышитая нашивка <STRONG>MASTER</STRONG>, вкладка и сделанный из прочного картона конверт самой пластинки (всего 100 экземпляров)<BR>- издание на белом виниле + постер формата А2, вкладка, и сделанный из прочного картона конверт самой пластинки (всего 200 экземпляров)</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>The Witchhunt</STRONG>&nbsp;&nbsp;| 02. <STRONG>Plans Of Hate</STRONG> | 03. <STRONG>Another Suicide</STRONG> | 04. <STRONG>Waiting To Die</STRONG> | 05. <STRONG>The Parable</STRONG> | 06.<STRONG> God Of Thunder</STRONG> | 07. <STRONG>Remove The Clowns</STRONG> | 08. <STRONG>Raise Your Sword</STRONG> | 09. <STRONG>Wipe Out The Aggressor</STRONG> | 10. <STRONG>Manipulated To Exterminate</STRONG> | 11. <STRONG>The American Dream</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26063.jpg" width=500 height=499> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 16.01.2016 news Новый альбом MASTER
+
+<P>Новый альбом классиков&nbsp;death metal<STRONG> MASTER "An Epiphany Of Hate"</STRONG>&nbsp;выходит 29 января на<STRONG>&nbsp;F.D.A. Rekotz</STRONG>. Обложку нарисовал <STRONG>Mark Cooper</STRONG>.Трек-лист:</P>
+<P>1. Subdue The Politician<BR>2. Fiction Soon Becomes Reality<BR>3. Face Your Fear<BR>4. Just Be Yourself<BR>5. Just Take My Right Arm<BR>6. An Epiphany Of Hate<BR>7. It's Clearly Eden<BR>8. The People Of The Damned<BR>9. Senses All Will Be Controlled<BR>10. Red Alert</P>
+<P>
+<CENTER><IFRAME height=360 src="https://www.youtube.com/embed/JQAc7FjIfUA" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

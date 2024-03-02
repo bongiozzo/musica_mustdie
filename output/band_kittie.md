@@ -59,6 +59,39 @@ Christopher Shaw  -  Mixing
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2001 news Китти... но не Китти-Кэт...
+
+<p>Бодрые канадские девчушки-погремушки "KITTIE" 30-го октября выпускают на Artemis Records новое творение "Oracle". Сейчас они в Ванкуверской Warehouse Studio завершают микширование с ветераном кнопочно-нажимательского дела Рэнди Стаубом (уже делавшем это с METALLICA, BON JOVI и т.д.). Песни на альбоме будут такие: 01. Oracle 02. Mouth Full Of Poison 03. What I've Always Wanted 04. In Winter 05. Pain 06. Safe 07. Run Like Hell (PINK FLOYD cover) 08. No Name. Из печальных новостей, группу покинул гитарист Fallon Bowman. Вакантное место пока пустует, девчонкам пришлось срочно рекрутировать гитарного техника ренегата - Jeff Phillips, чтобы поучаствовать в живых представлениях.</p>
+
+Автор: Yermola
+
+### 29.08.2001 news Oracle ...
+
+<p>According to Chart Attack, Canada’s KITTIE treated various media types to a preview of their forthcoming Oracle CD on Tuesday, August 21st at Warehouse Studio in Vancouver B.C., where the girls have been busy mixing the effort with veteran knob-twiddler Randy Staub (i.e. METALLICA, BON JOVI, BACKYARD BABIES). Scheduled for release on October 30th through Artemis Records, Oracle is set to include the following tracks, among others: 01. Oracle 02. Mouth Full Of Poison 03. What I've Always Wanted 04. In Winter 05. Pain 06. Safe 07. Run Like Hell (PINK FLOYD cover) 08. No Name. As previously reported, KITTIE have parted ways with guitarist Fallon Bowman and have recruited their former guitar tech, Jeff Phillips, for live performances, while KITTIE will continue officially as a three-piece, with no plans to find a permanent replacement for Bowman at this time. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 03.12.2001 news KITTIE have lined up the dates ...
+
+<p>KITTIE have lined up the dates for their forthcoming European headlining tour. The details are as follows: <BR><BR> Feb. 02 - QMU – Glasgow, UK <BR> Feb. 03 - Wulfrun - Wolverhampton, UK <BR> Feb. 05 - Fleece and Firkin - Bristol, UK <BR> Feb. 06 - Wedgewood Rooms - Portsmouth, UK <BR> Feb. 08 - Hop & Grape - Manchester, UK <BR> Feb. 11 - Electric Ballroom - London, UK <BR> Feb. 14 - La Laiterie - Strasbourg, FRA <BR> Feb. 15 - Elysee Montmarte - Paris, FRA <BR> Feb. 19 - Metroplois - Munich, GER <BR> Feb. 20 - Zeche Carl - Essen, GER <BR> Feb. 22 - SO36 - Berlin, GER <BR> Feb. 24 - Batschkapp - Frankfurt, GER <BR> Feb. 25 - Schlachthof - Hamburg, GER <BR> Feb. 27 - Vega - Copenhagen, DEN <BR> Feb. 28 - Klubben - Stockholm, SWE <BR> Mar. 02 - Melkweg - Amsterdam, HOL</p>
+
+Автор: Yermola
+
+### 21.07.2011 news Новый альбом KITTIE
+
+<P><IMG height=417 alt="" hspace=0 src="/images/news_rus/2011.07/20279.jpg" width=417 align=right border=0>Шестой альбом<STRONG> KITTIE</STRONG> <STRONG>"I've Failed You"</STRONG> выйдет 30 августа на <STRONG>eOne Music</STRONG>. Пластинка была записана в <STRONG>Beach Road Studios. </STRONG>Очередной раз группа работала с продюсером <STRONG>Siegfried "Siggy" Meier</STRONG>,&nbsp;с которым записывался предыдущий альбом <STRONG>KITTIE "In The Black"</STRONG>. Трек-лист:</P>
+<P>01. <B>I've Failed You</B><BR>02. <B>We Are The Lamb</B><BR>03. <B>Whisper of Death</B><BR>04. <B>What Have I Done</B><BR>05. <B>Empires (Part 1)</B><BR>06. <B>Empires (Part 2)</B><BR>07. <B>Come Undone</B><BR>08. <B>Already Dead</B><BR>09. <B>Never Come Home</B><BR>10. <B>Ugly</B><BR>11. <B>Time Never Heals</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

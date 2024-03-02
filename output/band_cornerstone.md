@@ -114,6 +114,1012 @@ Disc 2
 * C группой "Malmsteen, Yngwie" vocalist Doogie White
 * C группой "Rainbow" vocalist Doogie White
 
+## Публикации
+
+### 13.09.2000 news Новая группа Cornerstone
+
+<p> Steen Mogensen (экс-Royal Hunt) и Dougie White (экс-Deep Purple) вместе, под именем Cornerstone, выпускают дебютный альбом 20-го ноября. Говорят, эта музыка будет представлять собой нечто среднее между Royal Hunt и Deep Purple :)</p>
+
+Автор: Nybras
+
+### 05.11.2001 news CORNERSTONE are mixing their second album...
+
+<p>CORNERSTONE, the project featuring YNGWIE MALMSTEEN/ex-RAINBOW vocalist Doogie White and ROYAL HUNT bassist Steen Mogensen, are mixing their second album, entitled Human Stain at Media Sound Studios in Copenhagen, under the guidance of Peter Brander, who also was in charge of the mixing of the group’s debut, Arrival. The full track listing for Human Stain is as follows: <BR> <BR> 01. Unchosen One <BR> 02. Wounded Land <BR> 03. Some People Fly <BR> 04. Singing Alone <BR> 05. House Of Nevermore <BR> 06. Midnight In Tokyo <BR> 07. Forever Young <BR> 08. Future Rising <BR> 09. Resurrection Sympathy <BR> 10. Sail On Stormy Waters <BR> 11. Candy Man<BR><BR> According to a statement on the group’s official web site, “the record company in Europe, Massacre, are very excited by the sound, direction and songs on this new album. It’s a departure from Arrival and we wanted to explore other musical avenues and not just make Arrival 2. This is both our vision of taking CORNERSTONE forward, taking a little from the well from the past and a bold vision of the future. It would be nice to think that with this album we have enough variety to do some gigs here and there. YES, we have talked about it and it is something we are both keen to do!! I hope we get the chance to do that album launch thing again... Maybe one in Denmark and a couple elsewhere.”</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Краеугольный камень не чуждый человеческого...
+
+<p>"CORNERSTONE" - молодой проект имеющий в своем составе экс-RAINBOW/YNGWIE MALMSTEEN вокалиста Дуги Уайт и бассиста ROYAL HUNT - Steen Mogensen сейчас микширует свой второй альбом названный "Human Stain" в копенгагенской Media Sound Studios. Руководит процессом - Peter Brander, уже делавший это на дебютнике "Arrival". Полный трек-лист: <BR> <BR> 01. Unchosen One <BR> 02. Wounded Land <BR> 03. Some People Fly <BR> 04. Singing Alone <BR> 05. House Of Nevermore <BR> 06. Midnight In Tokyo <BR> 07. Forever Young <BR> 08. Future Rising <BR> 09. Resurrection Sympathy <BR> 10. Sail On Stormy Waters <BR> 11. Candy Man</p>
+
+Автор: Yermola
+
+### 16.01.2002 news Продолжение успешного дебюта
+
+<p>После успешного дебюта в 2000 году, мелодичные хэви-металлеры CORNERSTONE готовят выпуск своего второго альбома "Human Stain". Новый материал намного тяжелее и корнями более близок к DEEP PURPLE. Альбом будет выпущен 25 февраля.</p>
+
+Автор: Dimas
+
+### 16.01.2002 news CORNERSTONE are on the start again
+
+<p>After their successful debut in 2000, CORNERSTONE are on the start again. The melodic heavies have just finished the recordings to their second album “Human Stain”, the new material is definitely much harder and partly tends to the Deep Purple/Rainbow style, but still has its own unmistakable touch. The lyrics are all about the “good” things in life: corruption, conceit, conspiracy. We can already tell you some titles and information around them: “UNCHOSEN ONE” is about corruption and conspiracy theories and puts questions like “Is there a new world order?”, while “FOREVER YOUNG” reminds a little bit of Oscar Wilde.s “Picture of Dorian Gray”, where a man let his painting grow older instead of himself, but in the meantime he becomes dissolute concerning his character. What might seem important and good from the outside, does not necessarily mean the same for the character of a person. “HUMAN STAIN” will be released 25th of February 2002. Not only singer Doughie White, who needed only five days to record his parts this time, is enthusiastic about the songs already!!</p>
+
+Автор: Dimas
+
+### 05.03.2002 reviews Наслаждение приятной мелодичной музыкой
+
+<p>Наслаждение приятной мелодичной музыкой. Второй альбом проекта двух музыкантов успевших поиграть в известных группах - это Dougie White (вокалист RAINBOW и YNGWIE MALMSTEEN) и Steen Mogensen (басист ROYAL HUNT). Приятный, совершенно не напрягающий hard-rock, с еле заметным прогрессивным налетом, в духе ROYAL HUNT и DEEP PURPLE. Хотя, заметно, сравнений с ROYAL HUNT на новом альбоме все меньше и меньше, несмотря на то, что в качестве сессионных музыкантов отметились все музыканты ROYAL HUNT, за исключением Андерсена. Перпловские хаммонд-клавиши и хантовская атмосферика с легковесностью гитарных риффов плюс отличная вокальная работа поднимают этот материал на довольно высокий уровень на современной хард-рок сцене. Небольшие броские песни запоминаются быстро и легко, радуя слух и наводя ощутимые параллели с классическими хард-роковыми произведениями семидесятых. Новый альбом более мрачный и, местами, более тяжелый (насколько это возможно) чем дебют. Похоже, что CORNERSTONE переживает статус проекта и превращается в полноценную группу. Все десять песен являются потенциальными хитами с качественным и чистым современным звуком и интересными развернутыми мелодиями. Эта музыка не несет в себе совершенно ничего нового, но, в то же время, такая музыка будет интересна во все времена.</p>
+<P> Мне показалось, что ведущий рифф на "Forever Young" что-то подозрительно напоминает... вспоминается только "Kashmir" от Led Zeppelin.</>
+
+Автор: Dimas
+
+### 24.05.2002 news YNGWIE MALMSTEEN атакует!
+
+<p>Новый альбом YNGWIE MALMSTEEN будет называться "Attack" и выйдет в продажу через Spitfire Records в конце лета. Сейчас проходит запись. Продюссирует сам Ингви, записывает Tom Fletcher в Майами, Флорида. Состав музыкантов: <BR><BR> Yngwie J. Malmsteen - басс, гитара и бэк-вокал<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - основной вокал<BR> Derek Sherinian (ex-DREAM THEATER) - клавиши<BR> Patrick Johansson (STORMWIND) - барабаны<BR></p>
+
+Автор: Yermola
+
+### 24.05.2002 news YNGWIE MALMSTEEN: &quot;Attack&quot; Recording Line-Up Revealed....
+
+<p>The recording line-up for YNGWIE MALMSTEEN's forthcoming Attack CD has finally been announced. The album, which is currently being produced by Malmsteen and engineered by Tom Fletcher in Miami, Florida, will feature the following musicians: <BR><BR> Yngwie J. Malmsteen - bass/guitar and vocals<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - vocals<BR> Derek Sherinian (ex-DREAM THEATER) - keyboards<BR> Patrick Johansson (STORMWIND) - drums<BR><BR> A late summer release through Spitfire Records is expected.</p>
+
+Автор: Yermola
+
+### 02.09.2003 news CORNERSTONE обещают новый альбом
+
+<p>CORNERSTONE закончили работу над новой пластинкой "Once Upon Our Yesterdays", которая выйдет 3 ноября на Massacre Records. Трэк-лист:</p>
+<p> 01. "When the Hammer Falls" <br>02. "Hour of Doom" <br>03. "Once Upon Our Yesterdays" <br>04. "Scream" <br>05. "Passion to Warfare" <br>06. "End of the World" <br>07. "Some Have Dreams" <br>08. "Welcome to Forever" <br>09. "Man Without Reason" <br>10. "21st Century Man"</p>
+<p>В записи альбома, кроме White и Mogensen, приняли участие Kasper Damgaard (гитара) и Allen Sorensen (барабаны). Также гостят два клавишника, Rune Brink и Andre Andersen (ROYAL HUNT).</p>
+<p>'<b>Мы все впечатлены новым альбомом и уверены, что тем, кому понравился предыдущий 'Human Stain', понравится и наша новая работа. Мы продолжаем усовершенствовать классический звук, как в композиторском, так и в продукционном плане </b>', - говорит вокалист Doogie White.</p>
+
+Автор: Vit Belov
+
+### 20.10.2003 news CORNERSTONE to release new album
+
+<P><B><IMG height=226 alt="" hspace=0 src="/images/news/2003.10/5128.jpg" width=222 align="left" border=0>CORNERSTONE</B>'s new album <B>'Once Upon Our Yesterdays'</B> is now being released on November 10 on <B>Massacre Records</B>. </P>
+<P>Negotiations are still underway for the Japanese release.&nbsp; Discussions are also underway to release the album in South America and the USA.&nbsp; </P>
+<P>Трэк-лист:</P>
+<P>01. <B>When the Hammer Falls</B><BR>02. <B>Hour of Doom</B><BR>03. <B>Once Upon Our Yesterdays</B><BR>04. <B>Scream</B><BR>05. <B>Passion to Warfare</B><BR>06. <B>End of the World</B><BR>07. <B>Some Have Dreams</B><BR>08. <B>Welcome to Forever</B><BR>09. <B>Man Without Reason</B><BR>10. <B>21st Century Man</B><BR></P>
+Автор: Vit Belov
+
+### 20.10.2003 news CORNERSTONE передвинули дату релиза
+
+<P><B><IMG height=226 alt="" hspace=0 src="/images/news_rus/2003.10/5129.jpg" width=222 align="right" border=0>CORNERSTONE</B> передвинули дату релиза нового альбома <B>'Once Upon Our Yesterdays'</B> на 10 ноября на <B>Massacre</B>. Напоминаем трэк-лист:</P>
+<P><B>01. "When the Hammer Falls" <BR>02. "Hour of Doom" <BR>03. "Once Upon Our Yesterdays" <BR>04. "Scream" <BR>05. "Passion to Warfare" <BR>06. "End of the World" <BR>07. "Some Have Dreams" <BR>08. "Welcome to Forever" <BR>09. "Man Without Reason" <BR>10. "21st Century Man"</B></P>
+Автор: Vit Belov
+
+### 03.12.2003 news King Diamond - первый в ноябре...
+
+<P><B>KING DIAMOND</B>&nbsp;со своим новейшим альбомом <B>'Puppet Master'</B>, в лицензионной версии <B>ART-MUSIC GROUP</B>, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С небольшим отрывом отстали&nbsp;<B>STRATOVARIUS 'Elements, Part II' (Irond)</B> и&nbsp;ещё одна новинка от <B>ART-MUSIC GROUP - CORNERSTONE 'Once Upon Our Yersterdays</B>'. В первую десятку вошли:</P>
+<TABLE cellSpacing=0 cellPadding=2 width=649 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="39%" height=17><B>KING DIAMOND</B></TD>
+<TD align=middle width="51%" height=17><B>THE PUPPET MASTER</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="51%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="11%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>CORNERSTONE</B></TD>
+<TD align=middle width="51%" height=17><B>ONCE UPON OUR YESTERDAYS</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>REBELLION</B></TD>
+<TD align=middle width="51%" height=17><B>BORN A REBEL</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>BONEY NEM</B></TD>
+<TD align=middle width="51%" height=17><B>ROMANTIC COLLECTION</B></TD>
+<TD align=middle width="11%" height=17><B>Эм и Нем</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>STILLIFE</B></TD>
+<TD align=middle width="51%" height=17><B>REMEMBRANCE</B></TD>
+<TD align=middle width="11%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>BONFIRE</B></TD>
+<TD align=middle width="51%" height=17><B>FREE</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>RAGE</B></TD>
+<TD align=middle width="51%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="11%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>MELOTRON</B></TD>
+<TD align=middle width="51%" height=17><B>STERNENSTAUB</B></TD>
+<TD align=middle width="11%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>FALCONER</B></TD>
+<TD align=middle width="51%" height=17><B>SCEPTRE OF DECEPTION</B></TD>
+<TD align=middle width="11%" height=17><B>Fono</B></TD></TR></TBODY></TABLE>
+<P>Любой из этих дисков вы легко можете заказать в нашем <A href="/ru/shop">магазине.</A></P>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 09.12.2003 reviews CORNESTONE - не супер-проект-однодневка!!!
+
+CORNERSTONE - одна из новых групп, грамотно воспользовавшихся своей родословной. Такие известные люди, как Doogie White (ex-Rainbow) и Steen Morgenesen (ROYAL HUNT), объединились в группу для исполнения качественного heavy-metal материала, содержащего элементы, как RAINBOW, так и ROYAL HUNT. CORNERSTONE не стали командой-однодневкой, обосновавшись на крепком лэйбле MASSACRE, интернациональный состав быстро завоёвывает популярность, и уже с третьим альбомо группа приблизилась по показателям популярности к ROYAL HUNT, например. Главным же фактором является появление собственных фэнов, которым не важно, где музыканты играли ранее. 'Once Upon Our Yesterdays' пусть и не супер-оригинален, но очень мелодичен и добротен. Ни один любитель&nbsp;heavy с небольшой примесью клавишной музыки не должен пройти мимо.&nbsp;
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 18.01.2004 reviews CORNERSTONE is not one-day super-project!!!
+
+CORNERSTONE is one of the newest bands, which avails their pedigree very well. Such famous people like Doogie White (ex-RAINBOW) and Steen Morgensen (ROYAL HUNT) united in band for playing quality heavy-metal material, containing elements as of RANIBOW, as also of ROYAL HUNT. CONRERSTONE didn't become one-day band. They signed to good Europian label MASSACRE and attained popularity very quickly. For example, Internetional band can approach to proofs of ROYAL HUNT already with third album. And the main factor is appearance of own fans. It's not important for this fans, where musicians played before. 'Once Upon Our Yesterdays' is not super-original, but it's very melodious and qualitive. No lovers of heavy-metal with additions of keyboard music can go past.
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 11.02.2005 news CORNERSTONE выпускают концертный альбом
+
+<P><STRONG>CORNERSTONE </STRONG>только что вернулись из первого в своей истории тура, во время которого было записано несколько шоу. Эти записи и составят концертный альбом, выходящий в скором будущем.</P>
+Автор: Vit Belov
+
+### 26.04.2005 news Концертный альбом CORNERSTONE
+
+<P><STRONG>CORNERSTONE</STRONG> подготовили свой первый концертный альбом, который получил название "<STRONG>CORNERSTONE, In Concert</STRONG>". Он выйдет сначала в Японии, а затем в Европе 11 июля на <STRONG>Massacre Records</STRONG>. В настоящее время группа планирует новый студийник на 2006 год.</P>
+Автор: Vit Belov
+
+### 31.05.2005 news Концертник от CORNERSTONE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, 11 июля на Massacre выходит концертный альбом <STRONG>CORNERSTONE</STRONG> "<STRONG>Cornerstone, In Concert</STRONG>". Трэк-лист:</FONT></P>
+<P>Disc 1<BR>1. <STRONG>Intro</STRONG><BR>2. <STRONG>Welcome to Forever</STRONG> <BR>3. <STRONG>Wounded Land</STRONG><BR>4. <STRONG>Future Rising</STRONG><BR><IMG height=98 alt="" hspace=0 src="/images/news_rus/2005.05/8586.jpg" width=100 align=right border=5>5. <STRONG>Passion to Warfare ~ Gtr solo<BR></STRONG>6. <STRONG>21st Century Man<BR></STRONG>7.<STRONG> House of Nevermore</STRONG><BR>8. <STRONG>When The Hammer Falls</STRONG> <BR>9. <STRONG>Some People Fly</STRONG><BR>10. <STRONG>Once Upon Our Yesterdays ~ Gtr Solo </STRONG></P>
+<P>Disc 2<BR>1. <STRONG>Hour of Doom<BR></STRONG>2. <STRONG>Singing Alone<BR></STRONG>3. <STRONG>Black Masquerade</STRONG><BR>4. <STRONG>Scream</STRONG><BR>5. <STRONG>Unchosen One</STRONG><BR>6. <STRONG>Im Alive</STRONG><BR>7. <STRONG>Midnight in Tokyo<BR></STRONG>8. <STRONG>Video clip</STRONG> </P>
+Автор: Vit Belov
+
+### 20.01.2006 news CORNERSTONE работают над новым альбомом
+
+<P><STRONG>CORNERSTONE</STRONG> работают в Лондоне над новым альбомом <STRONG>"Two Tales and One Tomorrow", </STRONG>который выйдет позже в этом году.</P>
+Автор: Vit Belov
+
+### 11.10.2006 news CORNERSTONE перезаключили контракт
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CORNERSTONE</STRONG> перезаключили контракт с <STRONG>Massacre</STRONG>, где и выйдет их новый альбом <FONT color=#ddd9d0><STRONG>"Two Tales and One Tomorrow". </STRONG>Вот названия некоторых песен: <STRONG>"Prey"</STRONG>, <B>"Mother of Mercy"</B>, <B>"Requiem"</B>, <B>"Wicked"</B>&nbsp;и <STRONG>"Two Tales and One Tomorrow".</STRONG></FONT></FONT></P>
+Автор: Vit Belov
+
+### 24.11.2006 news Новый альбом CORNERSTONE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>CORNERSTONE</STRONG> <STRONG>"Two Tales and One Tomorrow" </STRONG>выходит 23 февраля на <STRONG>Massacre</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Misery</B> <BR>02. <B>One Mans Hell</B><BR>03. <B>Mother Of Mercy</B> <BR>04. <B>Two Tales of One</B> <BR>05. <B>Tomorrow</B> <BR>06. <B>Prey</B> <BR>07. <B>Blinded</B> <BR>08. <B>Starlight and Mystery</B> <BR>09. <B>The Dance</B> <BR>10. <B>Wicked</B> <BR>11. <B>We Are The Dead</B></P>
+Автор: Vit Belov
+
+### 05.01.2007 news CORNERSTONE выложили сэмплы
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2007.01/11138.jpg" width=300 align=left border=5>Мы уже сообщали, что новый альбом <STRONG>CORNERSTONE</STRONG> <STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Two Tales and One Tomorrow"</FONT></STRONG>&nbsp;выходит 23 февраля на <STRONG>Massacre</STRONG>.&nbsp;В&nbsp;предверии его релиза группа выложила в сеть два сэмпла.</P>
+<P>Отрывки новых песен "<STRONG>One Mans Hell</STRONG>" и "<STRONG>Mother Of Mercy</STRONG>" можно послушать на нашем сайте: <A href="/ru/band/cornerstone/12873/">http://musica.mustdie.ru/ru/band/cornerstone/12873/</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 29.02.2008 news Doogie White работает над сольником
+
+<P>Бывший вокалист <STRONG>RAINBOW Doogie White</STRONG> работает над сольным альбомом вместе с гитаристом <STRONG>Craig Goldy. </STRONG>Также планируется, что в записи примут участие: <STRONG>Pontus Norgren</STRONG> [<B>TALISMAN</B>, <B>GREAT KING RAT</B>], <B>Rudy Sarzo</B> [<B>QUIET RIOT</B>, <B>DIO</B>, <B>OZZY OSBOURNE</B>], <B>Neil Murray</B> [<B>BLACK SABBATH</B>, <B>WHITESNAKE</B>]&nbsp;и <B>Greg Smith</B>, <B>Patrik Johansson</B> [<B>YNGWIE MALMSTEEN</B>] и <B>Derek Sherinian</B> [<B>DREAM THEATER</B>, <B>YNGWIE MALMSTEEN</B>]. <STRONG>Doogie</STRONG> направил приглашение и своему старому другу <STRONG>Ritchie Blackmore</STRONG>, но ответа пока не получил.</P>
+Автор: Vit Belov
+
+### 05.08.2011 news Сольник Doogie White выходит осенью
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2011.08/20436.jpg" width=350 align=right border=0>Сольный альбом бывшего вокалиста <STRONG>RAINBOW Doogie White</STRONG> <STRONG>"As Yet Untitled" </STRONG>выйдет 24 октября на <STRONG>Metal Mind Production</STRONG>. Список приглашённых музыкантов на эту работу:</P>
+<P>* <B>Patrick Johansson</B> (YNGWIE MALMSTEEN) - Drums<BR>* <B>Thomas Broman</B> (GLENN HUGHES) - Drums<BR>* <B>Derek Sherinian</B> (BLACK COUNTRY COMMUNION) - Keyboards<BR>* <B>Tony Carey</B> (RAINBOW) - Keyboards<BR>* <B>Neil Murray</B> (WHITESNAKE) - Bass<BR>* <B>Greg Smith</B> (TED NUGENT) - Bass<BR>* <B>Paul Logue</B> (EDEN'S CURSE) - Bass<BR>* <B>Pontus Norgren</B> (HAMMERFALL) - Guitar<BR>* <B>Marcus Jidell</B> (ROYAL HUNT) - Guitar<BR>* <B>Phil Hilborne</B> (QUEEN Musical) - Guitar<BR>* <B>Mick Tucker</B> (TANK) - Guitar<BR>* <B>Patti Russo</B> (MEATLOAF, CHER) - Guest vocals.</P>
+<P>Записью альбома занимался гитарист <STRONG>Pontus Norgren</STRONG> (<B>HAMMERFALL</B>).</P>
+Автор: Vit Belov
+
+### 14.08.2011 news Doogie White: трек-лист и обложка сольного альбома
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20575.jpg" width=400 height=360>Как уже ранее сообщалась, лейбл<STRONG> Metal Mind Productions</STRONG> этой осенью выпускает сольный альбом Дуги Вайта&nbsp;(<B>Doogie White</B>), получивший название <B>"As Yet Untitled"</B>. В сети появились обложка и трек-лист диска. </P>
+<P>Трек-лист:<BR><BR>01. <B>Come Taste The Band</B><BR>02. <B>Time Machine</B><BR>03. <B>Dreams Lie Down And Die</B><BR>04. <B>Lonely</B><BR>05. <B>Land Of The Deceiver</B><BR>06. <B>Secret Jesus</B><BR>07. <B>Sea Of Emotion</B> <BR>08. <B>Catz Got Yer Tongue</B> <BR>09. <B>Living On The Cheap</B> <BR>10. <B>Times Like These</B><BR><BR>Шотландский вокалист впервые&nbsp;попал под пристальное внимание музыкального мира после того, как&nbsp;сам <B>Ritchie Blackmore</B> попросил его стать певцом в реформированных <B>RAINBOW</B>. Вместе они записали один альбом — <STRONG>"Stranger In Us All" </STRONG>(1995). После этого <STRONG>Doogie</STRONG>&nbsp; встал микрофонную стойку&nbsp;в группе Ингви Мальмстина (<B>Yngwie Malmsteen</B>) на целых шесть с половиной лет: записал два альбома и гастролировал по всему миру. Он, так же, записал четыре альбома и гастролировал в составе <B>CORNERSTONE</B>. А на сегодняшний день он является вокалистом&nbsp;легендарной британской группы&nbsp;<B>TANK</B>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

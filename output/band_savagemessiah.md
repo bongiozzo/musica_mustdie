@@ -51,6 +51,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.07.2011 news SAVAGE MESSIAH вошли в студию
+
+<P>Британские трешеры <STRONG>SAVAGE MESSIAH</STRONG> вошли в студию для записи нового альбома, который выйдет в этом году на <STRONG>Earache Records</STRONG>. Пластинка будет записана в <STRONG>Grindstone Studios</STRONG> с продюсером <STRONG>Scott Atkins (SYLOSIS, BEHEMOTH)</STRONG>. </P>
+<P>Группа была образована в 2007 году и уже успела выпустить два альбома "<STRONG>Spitting Venom</STRONG>"&nbsp;и "<STRONG>Insurrection Rising</STRONG>". Заглавную песню второго альбома можно послушать ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/f3R2uE2l8R4?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/f3R2uE2l8R4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

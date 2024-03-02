@@ -25,6 +25,23 @@ Spiderhouse Studio, Lutte, Germany summer 2002.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.01.2003 news Дебютный альбом израильской трэш-групы
+
+<p><IMG SRC="/images/news_rus/2003.01/3564.jpg" ALT="Nail Within" width="155" height="150" vspace="5" align="left">Израильтяне Nail Within, в составе которой музыканты, ранее игравшие в Betrayer и Azazel, в начале февраля выпускают на Listenable Records одноимённый дебютный альбом. И о нём уже ходят разговоры. Ещё бы! В записи песни "Dirty - Colored - Knife" приняли участие Mille Petrozza (Kreator), Tomas Lindberg (The Great Deceiver) и Zeev Tananboim (Salem) в качестве бэк-вокалиста. Roberto Gonnele из легендарной немецкой трэшевой группы Assassin немного подпел на "Bleed Forever". Всё это дело записано в германской Spiderhouse Studio (Sodom, Krisiun, Night In Gales), продюсировали альбом Harris Johns (Kreator, Sodom, Helloween) и Zeev Tananboim. Помимо одиннадцати трэш-композиций, в качестве бонус-трека на альбоме будет чумовое видео на песню "Dirty-Colored-Knife". Сплошной трэшшш и угаррр!</p>
+<p>MP3 "Bleed Forever" доступно <A HREF="http://www.listenable.net/mp3/nailwithin-bleed_forever.mp3">здесь</A>.</p>
+
+Автор: Morsus
+
+### 05.01.2003 news Israeli Nail Within are releasing their debut album
+
+<p><IMG SRC="/images/news_rus/2003.01/3564.jpg" ALT="Nail Within" width="155" height="150" vspace="5" align="left">Israeli Nail Within are releasing their much talked about self titled debut album in early February. It features the following hot tracks: "Dirty - Colored - Knife" with Mille Petrozza (Kreator) and Tomas Lindberg (The Great Deceiver) and Zeev Tananboim from Salem on backing vocals, "Bleed Forever" with Roberto Gonnele from legendary German thrash band Assassin on backing vocals. Also, as if the package wasn't strong enough, there will be a sick video of "Dirty-Colored-Knife" as a bonus. Nail Within debut album was recorded in Spiderhouse Studio in Germany (Sodom, Krisiun, Night In Gales) and produced by Harris Johns (Kreator, Sodom, Helloween) and Zeev Tananboim.</p>
+<p> An MP3 "Bleed Forever" is available <A HREF="http://www.listenable.net/mp3/nailwithin-bleed_forever.mp3">there</A>.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

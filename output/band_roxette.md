@@ -125,6 +125,9 @@ Back Vocals - Vicki Benckert, Staffan Ofwerman, Woodwind Quartet From Swedish Ra
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### Roxette. А не выразить ли нам своё отношение к этому дуэту?

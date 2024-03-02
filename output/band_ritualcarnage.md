@@ -21,6 +21,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2002 news NEW RITUAL CARNAGE
+
+<p>The band has just completed recording its 3rd (and most definitely their best!) album titled "The Birth ountainside of Hachioji, Japan, this album is probably the best produced and engineered recording ever from Japan. 11 songs for the cd , 2bonus tracks for the lp, and 2 bonus tracks for the limited digi-pack release. 1 of the tracks is a cover of Death`s "Infernal Death", dedicated to the memory and tragic death of metal pioneer Chuck Schuldiner. Song titles for the upcoming release are: The Sixth Sense, The Birth of Tragedy, Burning Eyes of Rage, Paradox of Democracy, Fall of the Empire, Shroud of Secrecy, Sanity`s Thin Line, Grave New World, Dawn of Decadence, Psycho-Sadistic Psychosis, Infernal Death. The album has been bumped up for a May 21st release date, so order early so you can headbang all summer long, and get your hand on the limited LP and digi-pack</p>
+
+Автор: Dimas
+
+### 26.03.2002 news Новый RITUAL CARNAGE
+
+<p>Группа RITUAL CARNAGE завершила запись своего третьего и (как утверждают музыканты) лучшего альбома, который будет называться "Birth Of Tragedy". Японская группа записала 11 вещей, 2 бонус-трэка для виниловой версии и 2 бонус-трэка для ограниченного digi-pack издания. Среди них - кавер-версия Death "Infernal Death", в память о трагической смерти пионера death-metal Chuck Schuldiner'a. В альбом войдут следующие вещи:</p>
+<P> The Sixth Sense<BR> The Birth of Tragedy<BR> Burning Eyes of Rage<BR> Paradox of Democracy<BR> Fall of the Empire<BR> Shroud of Secrecy<BR> Sanity`s Thin Line<BR> Grave New World<BR> Dawn of Decadence<BR> Psycho-Sadistic Psychosis<BR> Infernal Death</>
+<P> Дата выхода альбома - 21 мая 2002 года.</>
+
+Автор: Dimas
+
+### 13.01.2003 reviews Чистой воды трэш
+
+<p>Помнится, эти японцы начинали с притрэшованного дэт/блэка… Что ж, всё меняется, и теперь RITUAL CARNAGE – не японская группа, а японо-американская (т.к. за вокал и партии бас-гитары отвечает некий Danny Carnage – классический пример туповатого metalhead'а made in USA), а играют они ни что иное, как чистый воды трэш. Ну, быть может, не чистой воды, а с примесью дэта, но всё-таки трэш. В сотый раз скажу: не люблю я такого рода музыку. И в сотый же раз оговорюсь: на каждое правило обязательно найдётся своё исключение. Я к тому, что "The Birth of Tragedy" не только не вызвал у меня рвотный рефлекс, но и в какой-то степени понравился. Зубодробительный трэш? Он самый. С одной стороны, вроде бы брутальнее некуда, а с другой – имеется в творчестве RITUAL CARNAGE осмысленность, выгодно отличающая их от, простите, тупорылых до омерзения коллег. "The Birth of Tragedy" похвально разнообразен и не удручает слушателя паршиво скроенными композициями. Даже ублюдочный вокал Дэнни – и тот не раздражает. Каков вывод? Этот альбомчик должен прийтись по душе <B>любому</B> ценителю тяжёлой музыки.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

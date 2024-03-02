@@ -175,6 +175,139 @@ Recorded: live at Wacken open Air, Germany, Aug 8 1997
 * C группой "Trident" Johan Norman
 * C группой "Soulreaper" Johan Norman
 
+## Публикации
+
+### 12.05.2001 news Сенсационные новости от Dissection.
+
+<p> Dissection выпускают концертный альбом, запись которого была сделана во время тура "Storm Of The Lights Bane". Это будет первый релиз группы за последние пять лет. А в настоящее время Джон работает над новыми песнями. Ему позволили принести звукозаписывающее оборудование в тюремную камеру, так что недалек тот день, когда появится новый студийный альбом Dissection.</p>
+
+Автор: Morsus
+
+### 12.05.2001 news Sensational news from Dissection.
+
+<p> Dissection will soon release a live album. Recorded during their "Storm Of The Lights Bane"-tour, it will be the first release since five years. Currently, Jon is working on new songs! He was allowed to bring some recording equipment to his prison cell, so you can be sure that there will be a new Dissection-studio album one day!</p>
+
+Автор: Morsus
+
+### 03.02.2002 news Выход концертника Dissection откладывается
+
+<p>Выход анонсированного ранее концертного альбома Dissection откладывается на неопределённое время. Вместо этого будет переиздан классический альбом "Storm Of The Lights Bane". В новое издание так же войдёт EP "Where Dead Angels Lie" в качестве бонус-треков. Кроме того, будет новый буклет.</p>
+
+Автор: Morsus
+
+### 03.02.2002 news Live album from Dissection will be delayed
+
+<p>The announced live album from Dissection will be delayed for an indefinite time period. Instead, there'll be a re-release of the classic album "Storm Of The Lights Bane" including the sold-out "Where Dead Angels Lie"-EP as bonus tracks, as well as a new booklet.</p>
+
+Автор: Morsus
+
+### 28.08.2002 news Nuclear Blast is still looking for video bootlegs ...
+
+<p>Nuclear Blast is still looking for video bootlegs to compile a DVD featuring different live recordings of Dissection. The band meanwhile had a look at all contributions, but they still lack of material which was filmed during 1993-94! If you've got videos from that era, please get in touch at dissection@nuclearblast.de</p>
+
+Автор: Yermola
+
+### 28.08.2002 news Nuclear Blast продолжают поиск видео-бутлегов ...
+
+<p>Nuclear Blast продолжают поиск видео-бутлегов для DVD-компиляции, включающей в себя концертные записи Dissection. У группы уже есть некоторый материал, но им требуются материалы, снятые в 1993-94. Если у Вас есть подобные видео, пишите dissection@nuclearblast.de</p>
+
+Автор: Yermola
+
+### 21.11.2002 news Вокалист ABORYM арестован...
+
+<p>Бывший вокалист "MAYHEM" и действующий "ABORYM" - Attila Csihar арестован в Тревизо (Италия) и находится в тюрьме. Он арестован за хранение таблеток экстази и гашиша. Оставшиеся участники "ABORYM" заявили, что новый альбом "With No Human Intervention" в любом случае будет выпущен в январе 2003 на Code666 в Европе и WW3 (Mercenary Musick) в США. В качестве гостей на диске приняли участие Bard "Faust" Eithun (ex-EMPEROR, на данный момент - барабанщик DISSECTION), Nattefrost (лидер CARPATHIAN FOREST), а также Irrumator (босс ANAAL NATHRAKH). <BR><BR> Трек-лист:<BR><BR> 01. Antichristian Codec (intro)<BR> 02. With No Human Intervention<BR> 03. U.V. Impaler<BR> 04. Humechanics-Virus<BR> 05. Does Not Compute<BR> 06. Faustian Spirit Of The Earth<BR> 07. Digital Goat Masque<BR> 08. The Triumph<BR> 09. Black Hole Spell<BR> 10. Me(N)Tal Striken Terror Action<BR> 11. 11 Out Of Shell<BR> 12. Chernobyl Generation<BR> 13. The Alienation Of A Blackened Heart<BR> 14. Automatik Rave'olution Aborym</p>
+
+Автор: Yermola
+
+### 03.07.2003 news DISSECTION в поисках
+
+<p>Возобновившая недавно активную деятельность, шведская группа DISSECTION, состоящая на сегодня из гитариста-вокалиста Jon Nodtvedt и ударника Bard "Faust" Eithun, подготовила материал к новому альбому из одиннадцати вещей. Сейчас, группа находится в поисках басиста и второго гитариста. Как только они будут найдены, планируется поход в Abyss Studios. Выход альбома ожидается в 2004 году на Nuclear Blast Records.</p>
+
+Автор: Dimas
+
+### 07.10.2003 news DISSECTION в поисках новых участников
+
+После возвращения, шведам <B>DISSECTION</B>, в состав которых на данный момент&nbsp;входят вокалист/гитарист <B>Jon Nodtveit</B> и барабанщик <B>Bard "Faust "Eithun" (ex-EMPEROR)</B>, необходимы гитарист и бас-гитарист для того, чтобы закончить запись их нового альбома.
+Автор: Darkfall
+
+### 14.12.2003 news B&amp;aring;rd &quot;Faust&quot; Eithun покинул DISSECTION
+
+<P>Барабанщик <B>B&aring;rd "Faust" Eithun</B> покинул <B>DISSECTION</B>. Главной причиной этого называется невозможность поддержки сатанинской идеологии команды. "<B>Мои отношения с DISSECTION были чисто музыкальные. А проблема в том, что группа существует больше, как культ..."</B></P>
+Автор: Vit Belov
+
+### 27.12.2003 reviews Расчленение по-шведски
+
+<P>Так уж получилось, что последнее время, а особенно 2003-й год выдалось богатым на концертные альбомы. <B>“Sodom”, “Kreator”, “Annihilator”…</B> Все они вышли достаточно удачными. В этой череде немногие припомнят обозреваемый концертник. </P>
+<P>Путь его к слушателю выдался долог. Все записи были сделаны ещё во время тура <B>"Storm Of The Lights Bane"</B> в 95-97 году, но многочисленные проблемы с издающим лейблом, арестом участников группы, сменой состава позволили выпустить диск относительно недавно.</P>
+<P>Концерт на удивление хорошо записан. Я не думал, что концертная запись позволит передать одновременно весь мелодизм и мощь студийного звучания, особенно альбома <B>“The Somberlain”.</B> На альбоме всего семь трэков: интро и шесть песен, зато каких! Вся классика ранних альбомов, помноженная на концертную энергетику. Кстати продолжительность диска 40 минут, что не так мало. При всём желании сложно навесить ярлык на группу: здесь есть black, death, готика в совершенно невообразимой смеси. Этим всем и подкупает. Чума!</P>
+Автор: Uneral
+
+### 19.06.2004 news DISSECTION возвращаются
+
+<P><B>DISSECTION</B> назначили первый концерт за 7 лет на 30 октября 2004 года. На разогреве выступят <B>DEATHSTARS</B>.</P>
+Автор: Vit Belov
+
+### 19.06.2004 news DISSECTION comeback gig
+
+Sweden's groundbreaking Death metallers <B>DISSECTION</B> are going to play a comeback gig on October 30th 2004 in Stockholm. It's the band's first concert after seven years. As supporting act, Industrial newcomers <B>DEATHSTARS </B>– featuring <B>Jon</B>'s younger brother <B>Emil Nцdtveidt</B> on guitar – have just been confirmed. Because of the overwhelming demand it's now also possible for fans all over the world to order tickets for the show. For more information, please visit <A href="http://www.dissection.nu/" target=_blank><U>http://www.dissection.nu</U></A>
+Автор: Vit Belov
+
+### 29.07.2004 news DISSECTION начали работу над новым альбомом
+
+<P><B>DISSECTION</B> вошли в студию для записи новых песен. Первый сингл обещается уже в сентябре.</P>
+Автор: Vit Belov
+
+### 29.08.2004 news DISSECTION выпускают сингл
+
+<P><STRONG>DISSECTION</STRONG> выпускают сингл под названием <STRONG>"Maha Kali". </STRONG>Этот альбом будет доступен только на официалтьном сайте коллектива и во время тура. Вот, как описывается этот сингл: "<EM>Maha Kali - это гимн ужасной чёрной богине хинди Махапралая, великому порождению космоса Джаи Маха Кали</EM>".</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 26.04.2005 news DEATHSTARS записывают новый альбом
+
+<P><STRONG>DEATHSTARS</STRONG> работают над новой пластинкой в своей собственной студии <STRONG>Black Syndicate</STRONG>. Уже записаны все партии кроме вокала. Новая пластинка выйдет осенью.</P>
+<P>Интересно, что в этой же студии будет записан и новый альбом <STRONG>DISSECTION</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.05.2005 news Dave Mustaine не хочет DISSECTION
+
+<P><B>DISSECTION </B>вынуждены были отказаться от выступления на <B>Metalist Festival</B> в Израиле, из-за того что <B>Dave Mustaine</B> из <B>MEGADETH</B> отказался выступать на одной сцене с сатанистами. </P>
+<P>Вот отрывок из заявления лидера<B> DISSECTION Jon Nodtveidt</B>: "<I>Также у нас было запланировано совместное выступление с MEGADETH на Fury Fest во Франции. И вот, что я хочу сказать. Mustaine, ты не хочешь нас встречать, потому что боишься реальных оппонентов твоей вере? Мы действительно Сатанисты, настоящие твои враги. Мы антиподы таких трусов, как ты. Если ты по-настоящему верующий человек, встреться с нами во Франции на Fury Fest. Или ты опять заставишь нас отменять выступление</I>?"</P>
+Автор: Vit Belov
+
+### 20.02.2006 news Новый альбом DISSECTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DISSECTION "Reinkaos"</STRONG> выходит 30 апреля на собственном лэйбле группы <STRONG>Black Horizon Music</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Nexion 218</B><BR>02. <B>Beyond The Horizon</B><BR>03. <B>Starless Aeon</B><BR>04. <B>Black Dragon</B><BR>05. <B>Dark Mother Divine</B><BR>06. <B>Xeper-I-Set</B><BR>07. <B>Chaosophia</B><BR>08. <B>God Of Forbidden Light</B><BR>09. <B>Reinkaos</B><BR>10. <B>Internal Fire</B><BR>11. <B>Maha Kali</B></P>
+Автор: Vit Belov
+
+### 31.05.2006 news DISSECTION прекращают своё существование
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер<STRONG> DISSECTION Jon Nodtveidt</STRONG> объявил, что новейший альбом "<STRONG>Reinkaos</STRONG>" станет последним для группы. "<EM>C "Reinkaos" мы достигли последней главы, история DISSECTION закончена</EM>", - сказал гитарист-вокалист в интервью для официального сайта группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как и положено,<STRONG> DISSECTION</STRONG> дадут серию прощальных концертов.</FONT></P>
+Автор: Vit Belov
+
+### 02.08.2006 news DISSECTION выпустили DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=397 alt="" hspace=0 src="/images/news_rus/2006.08/10584.jpg" width=284 align=right border=5>DISSECTION</STRONG> выпустили DVD в конце июля. На "<STRONG>Rebirth Of Dissection</STRONG>" вошёл полуторачасовой концерт в Стокгольме, интервью с лидером коллектива Jon Nodtveidt и видео-клип "<STRONG>Starless Aeon</STRONG>". Трэк-лист:</FONT></P>
+<P>1. <STRONG>Intro: At the Fathomless Depths</STRONG> <BR>2. <STRONG>Nights Blood <BR></STRONG>3. <STRONG>Frozen <BR></STRONG>4. <STRONG>Maha Kali <BR></STRONG>5. <STRONG>Soulreaper <BR></STRONG>6. <STRONG>No Dreams Bread In Breathless Sleep</STRONG> <BR>7.<STRONG> Where Dead Angels Lie</STRONG> <BR>8. <STRONG>Retribution... Storm of the Lights Bane</STRONG> <BR>9. <STRONG>Unhallowed <BR></STRONG>10. <STRONG>Thorns of Crimson Death <BR></STRONG>11. <STRONG>Heavens Damnation</STRONG> <BR>12. <STRONG>In the Cold Winds of Nowhere</STRONG> <BR>13.<STRONG> Elizabeth Bathory <BR></STRONG>14. <STRONG>The Somberlain</STRONG> <BR>15. <STRONG>A Land Forlorn</STRONG> </P>
+Автор: Vit Belov
+
+### 21.08.2006 news Лидер DISSECTION умер
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер<STRONG> DISSECTION Jon Nodtveidt</STRONG> покончил жизнь самоубийством. В пресс-релизе на официальном сайте группы сказано, что он закончил жизнь, как истинный сатанист. "<EM>Он сам выбрал время своего конца. Не все могут понять его, но все должны уважать его решение. Многие из нас, которые видели его в последние дни, утверждают, что он был счастливее и сильнее, чем когда либо</EM>".</FONT></P>
+<P>В продолжении этого заявления авторы призывают не употреблять по отношению к <STRONG>Jon</STRONG> выражения Rest In Peace, потому что ему предстоят сражения и победы до тех пор, пока его космическая судьба не будет окончательно совершена.</P>
+<P>Напомним, что в&nbsp;начале лета <STRONG>Nodtveidt </STRONG>объявил о роспуске<STRONG> DISSECTION</STRONG> и собирался дать последние концерты в Штатах, куда, к сожалению, его не пустили, из-за уголовного прошлого.&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 05.09.2006 news Bravewords опубликовали интервью с Jon Nodtveidt
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Журнал BW&BK начал выкладывать в сеть интервью с лидером DISSECTION Jon Nodtveidt, которое войдёт на новейший DVD группы "Rebirth Of Dissection". Jon недавно совершил ритуальное самоубийство.</FONT></P>
+<P>Ссылка: <A href="http://www.bravewords.com/videos/1">http://www.bravewords.com/videos/1</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Dissection

@@ -12,6 +12,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.11.2002 reviews Dark ambient. Multilayered though rather minimalist
+
+<p>Oh… If The Fossil Dungeon keeps on releasing albums like this one, I believe they will soon turn into a sort of America's own Cold Meat Industry. DARK MUSE is a project led by a girl who contrives to combine writing music, performing it and singing. Therefore, “Sounds From Beyond The Silver Wheel” was fully conceived, played and sung by one single person – and it's not quite common to come across a work similar to “Sounds…”, a work released by a woman. DARK MUSE offers multilayered though simultaneously rather minimalist canvas, where hypnotizing ambiences successfully co-exist with the ones that are thrice as perturbing. Vocals are mainly done in a semi-chant-like vein, rarely rising up to actually singing. Sounding as if it's an echo from the worlds beyond our reality and imagination, they add to overall _anxiety_ a bit more… and there's a lot of _it_, believe me. No doubt that this music should be listened to and enjoyed whilst the one who dares to do so, is all alone… preferably with dim lights, in a slightly darkened room or area. And I bet it affects you even stronger if you play “Sounds…” somewhere outside. Cliche? Whatever… I'm stunned anyway.</p>
+<P> Website: <A HREF="http://www.erols.com/tsbb/fdungeon">http://www.erols.com/tsbb/fdungeon</A></>
+<P>Email: <A HREF="mailto:yamatu@erols.com">yamatu@erols.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

@@ -74,6 +74,244 @@ Bonus:
 
 * C группой "MUSICA (compilation)" Hostile Breed
 
+## Публикации
+
+### 19.12.2000 news SLAYER  Party
+
+<p>В субботу 23 декабря 2000 года в Р-Клубе состоится SLAYER Party. Вы сможете услышать кавер-версии культовой группы в исполнении таких команд как Merlin, Shadow Host, Surly Dogs (ex-Transylvania), Butterfly Temple и Stigmatic Chorus (ex-Charon). Начало концерта в 18:00. Проезд до станции метро Тульская, первый вагон из центра, 4-й Рощинский пр-д, 19/21. На концерте будут продаваться кассеты Merlin. Цена билета - 70 рублей.</p>
+
+Автор: Dimas
+
+### 01.05.2001 news Супершоу в поддержку новых альбомов
+
+<p> 19 мая 2001 года HTTP://MUSICA.MUSTDIE.RU и IROND RECORDS представляют зажигательное супершоу в поддержку свежереализованных альбомов групп CATHARSIS, HOSTILE BREED и BUTTERFLY TEMPLE. Поддержку им оказывают специальные гости из Белоруссии - VICIOUS CRUSADE. Открывает концерт группа VORTEX.</p>
+<p> На концерте вы сможете приобрести лицензионную продукцию IROND RECORDS по специальным ценам, а также новый мини-альбом VICIOUS CRUSADE и, конечно же, компиляцию MUSICA.MUSTDIE.RU</p>
+<p> Начало концерта в 18:00. Место действия - Р-клуб. Цена билета - 70 рублей по флаеру, 80 рублей без него. Проезд: метро Шаболовская, далее 26 трамвай до остановки Духовской переулок или метро Тульская, первый вагон из центра, далее пешком до 4-ого Рощинского проезда, дом 19/21</p>
+<p> На этом шоу будет проводиться съемка и запись нашего концерта профессиональной аппаратурой предоставленной нашими друзьями - крупнейшим российским интернет-магазином фото, видео и аудиотехники http://WWW.FOTO.RU/</p>
+<p></p>
+
+Автор: Dimas
+
+### 02.05.2001 news Новый альбом московской команды
+
+<p> Irond records представляет новый альбом Hostile Breed "Green wound". Дебютный альбом московской группы Hostile breed не оставит равнодушными всех поклонников экстремальной музыки. Сумасшедшая смесь из thrash, angry, new metal, (в духе групп: Pantera, Testament, Forbidden, Machine head). 45 минут европейского звучания !!!!!! 10 убийственных треков !!!!!! Хорошие рецензии из многих стран мира.</p>
+<p> Подробнее об альбоме на http://hostilebreed.musica.mustdie.ru и http:// irond.narod.ru</p>
+<p></p>
+
+Автор: Dimas
+
+### 06.05.2001 reviews Angry metal из России
+
+<p>Angry metal из России. Дебютный альбом московской группы Hostile Breed не оставит равнодушным всех поклонников экстремальной музыки. Сумасшедшая смесь из thrash, angry, new modern metal в духе групп Pantera, Sepultura и Machine Head. 45 минут европейского звучания отличного качества. 10 убийственных треков. Честно говоря, меня в последнее время подобная музыка уже мало волновала. Ничего нового, все довольно заезженное и приевшееся. И тут мне в руки сначала попали демо записи группы, потом я сходил на презентацию их нового альбома, затем послушал сам альбом. И пришел к выводу, что есть еще герои способные творить что-то неординарное в этом стиле. Жесточайшие интересные гитарные риффы просто бесподобны, великолепный вокал отлично вписывающийся именно в такой материал, про ударника я вообще молчу... Зубодробительно! Модные качовые звуки обрушиваются со второй песни и не прекращаются до конца альбома поражая своей агрессивностью и яростью. Вместе с тем, группе не чужды и элементы мелодизма. Если хотите послушать действительно что-то интересное и стоящее в последних более-менее трэшовых делах, то не слушайте последнюю Sepultura или Crowbar, лучше послушайте Hostile Breed. Уверен - не пожалеете!</p>
+
+Автор: Dimas
+
+### 28.05.2001 articles 19.05 Москва, Р-клуб
+
+<p> Москва - большой город. Россия - большая страна. СНГ - огромная территория. Heavy metal - отличная музыка. Почему никто практически ничего не знает о металле на территории СНГ? Данную статью можно рассматривать, как рекламную акцию, а можно и как начало великого дела по продвижению правильной музыки в массы.</p>
+<p> Начну с теоремы, которую очень хочется превратить в аксиому. Металл в СНГ существует. Завершение металлического сезона 2000-2001 гг. в Москве выдалось символичным. Третий MUSICA.mustdie.ru fest, собравший в одной обойме три наиболее прогрессирующих московских команды, Catharsis, Hostile Breed и Butterfly Temple, и наиболее прибавившую за последние годы белорусскую банду Vicious Crusade. Вторым знаковым событием стал выход сборника тех же MUSICA.mustdie.ru, в котором приняли участие 15 команд со всего СНГ.</p>
+<p> Одним из основополагающих факторов, которое намечает движение вперёд, является появление на просторах России независимого лэйбла Irond Records, который даёт возможность выпускать альбомы российским группам. Благодаря развёрнутой системе дистрибьюции, об этих группах узнают далеко за пределами Москвы. Первыми релизами стали альбомы Catharsis "Dea", Butterfly Temple "Колесо Чернобога" и Hostile Breed "Green Wound". Об альбомах данных коллективов Вы можете прочитать в разделе рецензии, гораздо интереснее будет написать о поведении данных коллективов на сцене. Любой из этих групп под силу собирать залы исключительно под себя. Отличный сценический имидж: романтический Catharsis (ребята играют во фраках (сюртуках, как хотите)), агрессивный у Hostile Breed (в лучших традициях hardcore), концептуально-фолковый у Butterfly Temple. Посещение концерта этих групп не вызовет разочарования ни у одного любителя профессионально-сыгранной тяжёлой музыки.</p>
+<p> Обозреваемый концерт состоялся 19 мая в Р-клубе. Стоит отметить, что за последние годы в Москве появилось несколько площадок, не боящихся предоставлять сцену для тяжёлых коллективов. Наряду с самым демократическим, в хорошем смысле слова, Р-клубом, это Ю-ту, славящееся своими тоталитарными порядками и РаСпутник, в котором предпочитаю отдыхать блэк-металлисты. Чёрные времена настали для Горбушки, после закрытия рынка и прихода в клуб новой администрации, аренда поднялась до такого уровня, что даже Doro и UDO не смогли позволить себя выступить там. Также событием данного сезона стоит назвать появление гигант-клуба "Точка", который с успехом ДК им. Горбунова заменил.</p>
+<p> Открывала концерт группа Vortex - восходящая звезда московского power-metal. Группа успешно играет в русле Stratovarius (только без клавиш). Посмотрев на них, любой сможет сказать, российский power не умрёт. Очень грамотно и качественно. Недавно в рок-кругах появилось демо этого коллектива, будем надеяться, что не за горами и полновесный альбом. Butterfly Temple продолжили свою борьбу за звание лучшей slavonic-black-metal команды в мире. Всевозможные атрибуты того, что группа играет этот самый slavonic, начиная от бубна и заканчивая "чистым" вокалистом. Если Вы любите Soulfly, Machine Head и.т.д., то Вам просто необходимо посетить концерт angry-metal банды Hostile Breed, есть лишняя энергия, пожалуйста, выбрасывай её! Ну и, наконец, Catharsis, который можно назвать очередной сенсацией, если группа продолжит в том же духе, на неё будут ходить столько же народу, что и на Арию сейчас. Нео-симфонические мелодии уносят далеко-далеко, а чувственный вокал заставляет вспомнить обо всём хорошем.</p>
+<p> Отдельно хочется обратить внимание на группу из Белоруссии Vicious Crusade. Данному коллективу по силам выбиться на вершину не только в Минске, где они уже это сделали, но и в других странах СНГ. Они достойны внимание не меньше, чем уже названные в этой статье команды, очень оригинально и качественно, а работают с публикой они, по-моему, даже сильнее, чем московские коллективы. Считаю также, в довершение всего, необходимо указать некоторые наиболее полно описывающие Vicious Crusade высказывания посетителей форума MUSICA.mustdie.ru.</p>
+<p> "Vicious Crusade. Как всегда, времени оставалось мало, но ЧТО они за это время сыграли, думаю, ни у кого не оставило чувства разочарования. Разве что опять же тем, что было мало. Но впечатление все получили - впечатление отличное. Замечательная команда, красивейшая музыка, в составе два вокала - гроул (небезызвестный Басик из М-а) и женский, и даже скрипач!" (Impaler)</p>
+<p> "Ну а уж Vicious Crusade - это просто чума!!!! Один номер скрипача с басистом и ударником чего стОит (Ванесса Мей тихо курит в сторонке-)) Я не знаю как классифицировать эту музыку, но то, что она не оставляет равнодушным никого - это факт." (Helloween)</p>
+<p> "Vicious Crusade. Здорово. Славянско-кельтский фолк-метал (с налетом трэша) с вокалом в духе Милле Петроццы и женским вокалом Выделю работу Маркуса и presence Алены. Рыжая Ведьма (в лучшем смысле этого слова), правда, немного мазала мимо, но это, как я понял из-за того, что плохо себя слышала. "Каприс" для скрипки и басухи - супер. Как по музыке, так и по сценической драматургии..." (Pafos)</p>
+<p> Таким образом, данные группы можно отнести к авангарду метала на территории СНГ. Также стоит отметить другие московские банды, которые, в скором времени, могут выстрелить: Seducer's Embrace - melodic death, Absurd - melodic death, Melancholy - death-doom, Merlin - death-metal, Elysium - heavy metal, Radigost - black metal, Nor Dream - progressive metal и многие другие, о которых вы обязательно ещё услышите.</p>
+
+Автор: Vit Belov
+
+### 25.07.2001 news Первый сборник MUSICA
+
+<p>Вышел в свет первый сборник металлических команд из стран бывшего СНГ - MUSICA. На нём Вы найдёте такие команды, как Seducer's Embrace, Absurd, Lead Weight, Samhain, Rossomahaar, Elisium и многие другие. Более 70 минут интересной музыки. Сборник целиком и полностью поддержан нашим сайтом. По вопросам приобритения оптом и в розницу: vbelov@online.ru</p>
+
+Автор: Vit Belov
+
+### 23.11.2001 articles MUSICA - сборник рок-андерграунда СНГ
+
+<p>Самое главное достоинство этого диска (и, на мой взгляд, причина заиметь таковой в свою фонотеку) – это возможность поставить диагноз металлическому андерграунду едва ли не всего СНГ. На сборнике представлено пятнадцать команд, занимающихся литьем железа самых разных видов - и, о чудо, среди таковых есть даже три казахстанские группы: FORREST GUMP, LEAD WEIGHT, REQUIEM. <BR><BR> Отделять зерна от плевел в подобных солянках – дело почти бессмысленное: собственно, на то и сборник, чтобы каждый сам смог выбрать фаворитов. Но раз уж пластинка в руках – грех не посудачить о содержимом. <BR><BR> В первую очередь бросается в глаза разница в качестве звука у разных команд – кто-то вложил в запись серьезные деньги и даже имеет нормально записанный студийный альбом (HOSTILE BREED, ROSSOMAHAAR), А КТО-ТО ЛИШЬ НА ПОЛПУТИ К ЭТОМУ. Также диск дает понять, что шведский мелодичный death metal правит умами современного андерграунда: более половины групп копируют стандарты стиля. Все бы ничего, да только звучат они вторично и даже третично, и к тому же трудно отличить их даже друг от друга. По той же причине HOSTILE BREED, последователи американцев BIOHAZARD, и FORREST GUMP со своими фольклорными мотивами выглядят белыми воронами. <BR><BR> Теперь о лучших треках диска. Неплохо звучат ROSSOMAHAAR (не пугайтесь, это всего лишь россомаха) и VORTEX – первые показали, что и блэк-метал при умелом обращении можно превратить в хорошую музыку, а вторые просто хорошо и приятно процитировали немцев HELLOWEEN, GAMMA RAY и целый батальон прочих команд, причем сделали это внятно, динамично, без занудства и слепого поклонения. Но безусловные жемчужины – лишь в завершении диска: москвичи ABSURD и наши земляки FORREST GUMP. ABSURD, в отличие от прочих поклонников шведского варианта дэс-метал, смогли не потонуть в сопливых мелодиях и выковать настоящее злобное и сверкающее железо, каким оно и должно быть. Ну а FORREST GUMP в связке со скрипкой Жамили Серкебаевой, лучше один раз услышать – инструментал того стоит. <BR><BR> Пожалуй вот такой финал и оправдывает название сборника – MUSICA. Все прочее – скорее пища для размышлений. Но, надо заметить, пища неплохая.</p>
+
+Автор: Tornado
+
+### 01.02.2002 news Последние новости из клана HOSTILE BREED
+
+<p>В настоящее время московская группа занимается, в основном, концертной деятельностью и поиском контракта с западным лэйблом. Вот некоторые из ближайших выступлений группы: <BR> 8 февраля в Р-клубе пройдет сольное выступление группы МАСТЕР в котором HOSTILE BREED примут участие как специальные гости.<BR> 10 февраля состоится единственный концерт HOSTILE BREED в городе Ярославль. Место выступления пока уточняется.<BR> 3 марта в Р-клубе - презентация нового альбома группы ROSSOMAHAAR. Специальный гость - HOSTILE BREED. Открывает концерт - NECROST.<BR> <A HREF="http:/hostilebreed.musica.mustdie.ru">Информация о группе</A></p>
+
+Автор: Dimas
+
+### 21.06.2002 news Новости от HOSTILE BREED
+
+<p>Музыканты группы HOSTILE BREED закончили написание материала для нового альбома. Записано демо с новым материалом, фрагменты которого вы скоро сможете найти на официальном сайте группы по адресу http://www.hostilebreed.com или http://hostilebreed.musica.mustdie.ru (кстати, на сайте группы произошло тотальное обновление дизайна, заходите туда и оставляйте свои отзывы в гостевой книге).<BR> Начало записи нового альбома запланировано на середину июля в московской студии CDM-records. По словам музыкантов, новые девять песен несут в себе огромный заряд энергии и должны понравится всем поклонникам тяжелой музыки.</p>
+
+Автор: Dimas
+
+### 26.07.2002 news MassaBrutto Radioshow #93, 26 Jul 2002.
+
+<p>Гость программы: Максим Жуков из BUTT Records [email: nitkie@mailru.com]<BR><BR> Playlist:<BR><BR> 1. SHITFUN - Majestic Ritual Of God Perun's Poor Devourment (DeathBell Prods)<BR> 2. SHITFUN - Appretiation, Not Devination (DeathBell Prods)<BR> 3. GOLDPRICK vs KATAFALK - Замачы Суседку (BUTT Recs)<BR> 4. S.W.A.M.P. - Brutal Bog (BUTT Recs)<BR> 5. VICARIUS FILII DEI - To Gleam Them The Ground (BUTT Recs)<BR> 6. LKT - Не Я (BUTT Recs)<BR> 7. HOSTILE BREED - Mad Noise Invasion (Irond Ltd)<BR> 8. NOSFERATOS - The Immortals [by UNLEASHED] (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.07.2002 news MassaBrutto Radioshow #93, 26 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SHITFUN - Majestic Ritual Of God Perun's Poor Devourment (DeathBell Prods)<BR> 2. SHITFUN - Appretiation, Not Devination (DeathBell Prods)<BR> 3. GOLDPRICK vs KATAFALK - Замачы Суседку (BUTT Recs)<BR> 4. S.W.A.M.P. - Brutal Bog (BUTT Recs)<BR> 5. VICARIUS FILII DEI - To Gleam Them The Ground (BUTT Recs)<BR> 6. LKT - Не Я (BUTT Recs)<BR> 7. HOSTILE BREED - Mad Noise Invasion (Irond Ltd)<BR> 8. NOSFERATOS - The Immortals [by UNLEASHED] (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 04.08.2002 news HOSTILE BREED в поисках вокалиста
+
+<p>Московская angry metal формация HOSTILE BREED объявляет прослушивание на роль свободного вокалиста. Ориентиры: MACHINE HEAD и SKINLAB. Заинтересовавшихся просьба обращаться на tr@ bibirevo.net</p>
+
+Автор: Dimas
+
+### 22.11.2002 news MassaBrutto Radioshow #127, 22 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. HOSTILE BREED - Little Green Man (Irond Ltd)<BR> 2. MANGLER - Zombie Invasion (DAC Prods)<BR> 3. МАСТЕР - Мастер (Moroz Recs)<BR> 4. МАСТЕР - Тату (Moroz Recs)<BR> 5. МАСТЕР - Наплевать (Moroz Recs)<BR> 6. МАСТЕР - Берегись (Moroz Recs)<BR> 7. МАСТЕР - Только Ты Сам (Moroz Recs)<BR> 8. BRAVURA - Out Of Sight, Out Of Mind (band/Invasion Wreck Chords)<BR> 9. DR.FAUST - Eyes Of The Shadow (Soyuz)<BR> 10. ZHRAJA - Over Him (DeathBell Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.11.2002 news MassaBrutto Radioshow #127, 22 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. HOSTILE BREED - Little Green Man (Irond Ltd)<BR> 2. MANGLER - Zombie Invasion (DAC Prods)<BR> 3. МАСТЕР - Мастер (Moroz Recs)<BR> 4. МАСТЕР - Тату (Moroz Recs)<BR> 5. МАСТЕР - Наплевать (Moroz Recs)<BR> 6. МАСТЕР - Берегись (Moroz Recs)<BR> 7. МАСТЕР - Только Ты Сам (Moroz Recs)<BR> 8. BRAVURA - Out Of Sight, Out Of Mind (band/Invasion Wreck Chords)<BR> 9. DR.FAUST - Eyes Of The Shadow (Soyuz)<BR> 10. ZHRAJA - Over Him (DeathBell Prods)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 14.02.2003 news MORDOR FEST
+
+<p><IMG SRC="/images/news_rus/2003.02/3815.jpg" ALT="pho" width=222 height=250 hspace="15" vspace="5" border="1" align="left">8 марта (суббота) 2003 года в клубе "Эстакада" состоится <U><B>MORDOR FEST</B></U> с участием групп <I><B>ROSSOMAHAAR, HOSTILE BREED, ARKONA, DESPAIR </B></I>и гостей из Санкт-Петербурга <I><B>AMBER</B></I>. <BR> Начало концерта в <B>17 </B>часов.<BR> Цена билета в предварительной продаже - <B>140 </B>рублей, в день концерта - <B>160 </B>рублей по флаеру, вход для девушек - <B>100 </B>рублей.<BR> Билеты продаются в кассе клуба, рок-галерее "Зиг-Заг" и рок-магазине "У дяди Бори".<BR> Адрес клуба: Рязанский проспект, д. 39, ДК 40-летия Октября.<BR> Проезд: м. Марксистская, далее авт. 51, тролл. 63 или м.такси 63, или м. Рязанский проспект, далее авт. 169, 143, 29, 160, 725, тролл. 63, или м. Текстильщики, далее авт. 29, 160, 725, тролл. 63 или м.такси 63 до остановки "Ул. Стахановская".<BR> Информационная поддержка - <B>MUSICA.MUSTDIE.RU </B></p>
+
+Автор: Dimas
+
+### 28.12.2003 news Hostile Breed выпустят альбом на Irond
+
+Группа <B>HOSTILE BREED</B> находится в финальной стадии записи альбома с рабочим названием <B>'The First Line'</B>.&nbsp;Часть материала альбома уже записана в студии CDM (продюсер - руководитель группы <B>Rossomahaar</B> Лазарь).&nbsp;Диск увидит свет в течение 2004 года.<BR>
+Автор: Vit Belov
+
+### 13.01.2004 news Новости HOSTILE BREED
+
+<P>Из-за неразрешимых проблем на <SPAN><B>CDM</B></SPAN><SPAN> студии (продюсер - руководитель группы <B>Rossomahaar</B> Лазарь), сроки сведения нового альбома </SPAN><B>HOSTILEBREED</B> перенеслись на январь 2004 года. Место сведения <B>Hansenstudio</B> (Denmark), а продюсером сведения выступит <B>JacobHansen (Invocator, Mnemic, Rauncy, Hatesphere</B><SPAN><B> и др.)</B> (<A href="http://www.jacobhansen.com/"><U>http://www.jacobhansen.com</U></A>; </SPAN><SPAN><A href="http://www.jacobhansen.com/News.htm"><U>http<SPAN lang=RU>://</SPAN>www<SPAN lang=RU>.</SPAN>jacobhansen<SPAN lang=RU>.</SPAN>com<SPAN lang=RU>/</SPAN>News<SPAN lang=RU>.</SPAN>htm</U></A></SPAN>).Название пластинки тоже изменено. Теперь она называется ‘<B>TheSecondCut</B>”. <B>SteevEsquivel (Skinlab</B><SPAN><B>),</B> дал свое согласие на запись вокальных партий в одной из наших песен. Его вокал должен стать достойным украшением нового альбома! Настоящим сюрпризом станет уникальная работа нового вокалиста - <B>Андрея "DrOn" Полякова</B>. Диск увидит свет в течение 2004 года.</SPAN></P>
+Автор: Vit Belov
+
+### 10.02.2004 news Вокалист из SKINLAB спел для HOSTILE BREED
+
+<P><B>Hostile Breed</B> <SPAN lang=RU>и </SPAN><SPAN lang=RU>вокалист</SPAN> <B>Skinlab</B>! <SPAN lang=RU>То, что было лишь мечтой и слухами стало реальностью – сотрудничество российских и западных музыкантов состоялось. <B>Steev Esquivel (Skinlab, Def Ignition)</B> и звукоинженер <B>Chris Hanson (Machine Head, Technocracy, Vio-Lence, Def Ignition),</B> закончили запись вокальных партий на песню под рабочим названием <B>«Show Me The Road</B>”, которую можно будет услышать на втором альбоме москвичей <B>Hostile Breed ‘The Second Cut’</B>. Материал переправлен в Данию для окончательной доработки - микширования и мастеринга. Этим занимается <B>Jacob Hansen</B> (гитарист группы <B>Invocator</B>, а также продюсер / звукоинженер для <B>Ancient, Falconer, Hatesphere, Illdisposed, Manticora, Mercenary, Mnemic, Pale Forest, Raunchy</B>). Он также исполнит некоторые гитарные партии и займется программированием для альбома. В качестве бэк вокалиста на композицию «<B>Сolor Of Freedom</B>” был привлечен певец датской группы <B>Sacrificial</B>. Над оформлением альбома продолжает кропотливо работать московская арт-студия <B>TRAUM</B>. Российское издание будет содержать дополнительные сюрпризы.</SPAN></P>
+Автор: Vit Belov
+
+### 10.02.2004 news SKINLAB and HOSTILE BREED
+
+<P><SPAN><B>SKINLAB</B> frontman <B>Steev Esquivel</B> has finished laying down vocals on the song titled "<B>Show Me The Road</B>" for Russian band <B>HOSTILE BREED</B> with sound engineer <B>Chris Hanson</B> (<B>MACHINE HEAD, TECHNOCRACY, VIO-LENCE</B>). This song will be included in the group's upcoming second album, "<B>The Second Cut</B>", due late spring. Album is scheduled for release through top russian metal label <B>Irond Records</B>. The recorded material has been sent to <B>Hansen Studio</B> in Denmark for final mixing. Production on the album will be handled by&nbsp; <B>Jacob Hansen (INVOCATOR, MNEMIC, RAUNCHY, HATESPHERE</B>). The CD, which will also include a guest appearance by the singer from Danish band <B>SACRIFICIAL</B> and guitarist <SPAN style="COLOR: #ffffff">Flemming C. Lund from </SPAN><B>INVOCATOR</B>, will feature cover artwork by the Moscow art studio Traum. <B>Hostile Breed</B> presents angry modern metal in the vein of Machine Head, Killswitch Engage and Skinlab.&nbsp; More information is available on band's official web site: <A href="http://www.hostilebreed.com/"><U>www.hostilebreed.com</U></A>.&nbsp; </SPAN></P>
+Автор: Vit Belov
+
+### 20.02.2004 news Latest news from HOSTILE BREED!
+
+<DIV><IMG height=120 alt="" hspace=0 src="/images/news/2004.02/6077.jpg" width=120 align="right" border=0>Hostile Breed presents angry modern metal in the vein of Machine Head, Killswitch Engage and Skinlab. Tracklist &&nbsp;cover of forthcoming album 'The Second Cut' is available now! Amazing artwork performed by the Moscow art studio “Traum”. </DIV>
+<DIV>&nbsp;</DIV>
+<DIV>
+<DIV>Tracklist:</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>01. Intro <BR>02. Die Inside<BR>03. Resonance<BR>04. Visions<BR>05. Promethean<BR>06. Wound Of Soul<BR>07. Show Me The Road&nbsp; (feat. Steev Esquivel)<BR>08. Civilization Of Hatred<BR>09. Color Of Freedom <BR>10. Pseudo Life<BR>11. Like A Bullet</DIV></DIV>
+Автор: Vit Belov
+
+### 26.02.2004 news Hostile Breed опубликовали обложку
+
+<P><B><IMG height=250 alt="" hspace=0 src="/images/news_rus/2004.02/6095.jpg" width=250 align="right" border=0>Hostile Breed</B> - единственный российский коллектив, находящийся на гребне волны всё более популярной нынче музыки в стиле актуальных работ <B>Machine Head, Slipknot</B> и <B>Skinlab</B>. Теперь группой опубликован примерный трек-лист альбома <B>'The Second Cut'</B> и его обложка. Над оформлением работала московская арт-студия "<B>Traum</B>". Для создания обложки использовались фотографии реальных трёхмерных моделей, в частности - протез глаза, который поклонники группы специально похитили из морга и передали дизайнерам. Релиз предполагается на <B>Irond Records</B> в апреле 2004 года (www.irond.ru).</P>
+<P>Tracklist:</P>
+
+<P><SPAN><B>01. Intro </B></SPAN></P>
+<P><SPAN><B>02. Die Inside</B></SPAN></P>
+<P><SPAN><B>03. Resonance</B></SPAN></P>
+<P><SPAN><B>04. Visions</B></SPAN></P>
+<P><SPAN><B>05. Promethean</B></SPAN></P>
+<P><SPAN><B>06. Wound Of Soul</B></SPAN></P>
+<P><SPAN><B>07. Show Me The Road(feat. Steev Esquivel)</B></SPAN></P>
+<P><SPAN><B>08. Civilization Of Hatred</B></SPAN></P>
+<P><SPAN><B>09. Color Of Freedom </B></SPAN></P>
+<P><SPAN><B>10. Pseudo Life</B></SPAN></P>
+<P><B>11. Like A Bullet</B></P>
+Автор: Vit Belov
+
+### 20.03.2004 news Latest news from HOSTILE BREED
+
+<P><SPAN><B>Hostile Breed</B> presents angry modern metal in the vein of Machine Head, Killswitch Engage and Skinlab.</SPAN></P>
+<P><SPAN>Now band presents two exclusive MP3 files from the forthcoming album ‘<B>The Second Cut’</B>. </SPAN></P>
+<P>01. Die Inside</P>
+<P><SPAN>- <A href="http://www.irond.ru/mp3/HostileBreedDieInside.mp3%20(3300"><U>http://www.irond.ru/mp3/HostileBreedDieInside.mp3 (3300</U></A> kb)</SPAN></P>
+<P>02. Civilization Of Hatred (Guitar solo by Flemming C.Lund/Invocator)</P>
+<P><SPAN>- <A href="http://www.irond.ru/mp3/HostileBreedCivilizationOfHatred.mp3%20(2700"><U>http://www.irond.ru/mp3/HostileBreedCivilizationOfHatred.mp3 (2700</U></A> kb)</SPAN></P>
+<DIV>SKINLAB frontman Steev Esquivel has finished laying down vocals on the song titled "Show Me The Road" for Russian band HOSTILE BREED with sound engineer Chris Hanson (MACHINE HEAD, TECHNOCRACY, VIO-LENCE). Mixed & co-produced by Jacob Hansen (INVOCATOR, MNEMIC, RAUNCHY, HATESPHERE). Guitar solo on "Civilization Of Hatred" performed by Flemming C. Lund (INVOCATOR). The CD, which will also include a guest appearance by the singer from Danish band SACRIFICIAL Chris Hanson on the song "Color Of Freedom", will feature cover artwork by the Moscow<SPAN> art studio “Traum”. More information is available on band's official web site: <A href="http://www.hostilebreed.com/"><U>www.hostilebreed.com</U></A>.</SPAN><SPAN>Album is scheduled for release through top Russian metal label Irond Records (<A href="http://www.irond.ru/"><U>www.irond.ru</U></A>).</SPAN></DIV>
+Автор: Vit Belov
+
+### 20.03.2004 news Hostile Breed предлагает для ознакомления два эксклюзивных трека с нового альбома ‘The Second Cut’
+
+<P><SPAN><B>Hostile Breed</B> предлагает для ознакомления два эксклюзивных трека с нового альбома ‘</SPAN><B>The Second C</B><SPAN><B>ut’</B>. </SPAN></P>
+<P><SPAN>01. <B>Die Inside</B></SPAN></P>
+<P><SPAN>- <A href="http://www.irond.ru/mp3/HostileBreedDieInside.mp3%20(3300"><U>http://www.irond.ru/mp3/HostileBreedDieInside.mp3</U></A></SPAN></P>
+<P><SPAN>02. <B>Civilization Of Hatred (Guitar solo by Flemming C.Lund/Invocator)</B></SPAN></P>
+<P><SPAN>- <A href="http://www.irond.ru/mp3/HostileBreedCivilizationOfHatred.mp3%20(2700"><U>http://www.irond.ru/mp3/HostileBreedCivilizationOfHatred.mp3</U></A></SPAN></P>
+Автор: Vit Belov
+
+### 10.08.2004 news Новости от Hostile Breed
+
+<P>На официальном сайте группы <SPAN><A href="http://www.hostilebreed.com/"><U>www<SPAN lang=RU>.</SPAN>hostilebreed<SPAN lang=RU>.</SPAN>com</U></A></SPAN> вы можете посмотреть отчет с эксклюзивным фоторепортажем о фестивале <B>Graspop 2004</B>. Составучастников- <B>Sipknot, Fear Factory, Chimaira, Ill Nino, Iced Earth</B> … и многие другие. </P>
+Автор: Vit Belov
+
+### 03.08.2005 news Новости от HOSTILE BREED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В московской студии <STRONG>CDM</STRONG> под наблюдением Сергея Атрашкевича (<STRONG>Lazar</STRONG>) завершается запись третьего альбома монстров российской angry-сцены <STRONG>HOSTILE BREED</STRONG> под названием <STRONG>«Узоры шрамов – законы войны». </STRONG>Группа имеет серьезный статус и реально взрослый подход к своему творчеству. Ранние альбомы группы выходили на известном московском лейбле <STRONG>Irond</STRONG>. <STRONG>HOSTILE BREED</STRONG>&nbsp;сотрудничали с такими монстрами мировой сцены как <STRONG>SOULFLY</STRONG> (поддержка в российском туре) и <STRONG>SKINLAB</STRONG> (совместный трек на альбоме «<STRONG>The Second Cut</STRONG>»). Новый релиз будет существенно отличаться именно тем, что будет ориентирован непосредственно на российского слушателя и будет представлен на русском языке. Релиз альбома&nbsp;намечен на осень 2005 года&nbsp;на питерском независимом лэйбле <STRONG>КАПКАН Records</STRONG>.<BR><BR></FONT></P>
+Автор: Dimas
+
+### 12.09.2005 news Новости от HOSTILE BREED
+
+<P><STRONG>D.D. Elrich (SLIPKNOT, AMERICAN HEAD CHILDREN, CREMATORIUM)</STRONG> в своей калифорнийской студии приступил к сведению альбома «<STRONG>Узоры шрамов - Законы войны</STRONG>» от <STRONG>HOSTILE BREED</STRONG>.</P>
+<P><EM>«… это будет самая тяжелая пластинка, которая, когда либо выходила на российском рынке</EM>», -&nbsp;сказал <STRONG>Daniel </STRONG>после получения записанных трэков.</P>
+Автор: Vit Belov
+
+### 21.10.2005 news Новый альбом HOSTILE BREED
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2005.10/9595.jpg" width=400 align=right border=5>HOSTILE BREED</STRONG> опубликовали трэк-лист и обложку альбома "<STRONG>Узоры Шрамов - Законы воины</STRONG>". Релиз задерживается из за проблем у <STRONG>D.D.Elrich</STRONG>, который занимается сведением и мастерингом материала. Трэк-лист:<BR>01. <STRONG>Язвы<BR></STRONG>02. <STRONG>V.I.P.<BR></STRONG>03. <STRONG>Танцы на костях</STRONG> <BR>04. <STRONG>Путь смерти</STRONG> <BR>05. <STRONG>Заранее виновен</STRONG><BR>06. <STRONG>Ложь<BR></STRONG>07. <STRONG>Цвета крови</STRONG><BR>08. <STRONG>Цивилизация боли</STRONG><BR>09. <STRONG>Законы войны</STRONG><BR>Bonus:<BR>10. <STRONG>Pseudo life</STRONG> (live)<BR>11. <STRONG>Wound of soul</STRONG> (live)<BR>12. <STRONG>Visions</STRONG> (live)<BR>&nbsp;<BR>Демо версию песни "<STRONG>Танцы на костях</STRONG>" - качать здесь (<A href="http://www.hostilebreed.com/music/dim_test_mix_dark.mp3">www.hostilebreed.com/music/dim_test_mix_dark.mp3</A>)</P>
+Автор: Vit Belov
+
+### 05.12.2005 news Клип от HOSTILE BREED
+
+<P>Премьера видео на песню "<STRONG>V.I.P</STRONG>." с нового альбома <STRONG>HOSTILE BREED</STRONG> "<STRONG>Узоры шрамов- законы войны</STRONG>". Группа обещает 3,5 минуты жеского рубилова от мастеров мясного производства, которые&nbsp;не оставят вас в покое. Смотреть здесь <A href="http://extremevideo.ru/music" target=_blank><U>http://extremevideo.ru/music</U></A></P>
+Автор: Дофф
+
+### 30.05.2006 news Вторая часть сборника клипов российских команд
+
+<P>В ближайшее время, на <STRONG>CD-Maximum</STRONG> выйдет вторая часть сборника клипов ведущих групп российского тяжметмузпрома от <STRONG>Music Infection</STRONG> под навзанием "<STRONG>Totum Dissemination, Vol.2</STRONG>". В него войдут следующие работы:</P>
+<P><STRONG>1. INSIDE YOU - In A Winter Wood<BR>2. MELANCHOLY - Die, Forgive<BR>3. КОМА - Какая разница?!<BR>4. RASTA - New God<BR><IMG height=362 alt="" hspace=50 src="/images/news_rus/2006.05/10418.jpg" width=250 align=right border=0>5. ANAL NOSOROG - Vagina Says<BR>6. ШМЕЛИ - Стриптиз интеллекта<BR>7. КУВАЛДА - Das Fleisch<BR>8. SHADOW HOST - Before The Storm<BR>9. HOSTILE BREED - V.I.P.<BR>10. KOMMANDA ГУ - Эпизод<BR>11. МАСТЕР - 33 жизни<BR>12. АРТЕРИЯ - Один на один<BR>13. SATARIAL - Шлюха-смерть<BR>14. BESTIAL DEFORM - Jesus Is Dead<BR>15. K.G.B. - The Barren Sycamine<BR>16. BUTTERFLY TEMPLE - Время Мары<BR>17. MURK EXORBITANCE - Desecrated Reality<BR>18. ХАРИЗМА - Охотник<BR>19. TARTHARIA - Crowned By Name<BR>20. S.C.A.R.T. - The Last<BR>21. ЧЕРНЫЙ КОФЕ - Церквушки<BR>22. KRUGER - Нация РОК!<BR>23. Э.С.Т. - Катюша - live in Тушино'91 (bonus)<BR>24. ROSSOMAHAAR - Praise Departure Of Spiritual Streinch - live (bonus)<BR>25. АРКОНА - Восстание Рода - live (bonus)</STRONG></P>
+Автор: Dimas
+
+### 31.10.2006 news HOSTILE BREED тоже остались без вокалиста
+
+<P>По данным с официального сайта&nbsp;московской команды <STRONG>HOSTILE BREED</STRONG>, коллектив после&nbsp;&nbsp;четырех лет совместной творческой деятельности покинул вокалист <STRONG>Dron</STRONG>. Причина - расхождение во взглядах на дальнейшее развитие группы. Музыканты группы не дают никаких комментариев по этому поводу и продолжают работать над написанием материала для нового альбома. Место вокалиста группы пока остается вакантным.<BR></P>
+Автор: Dimas
+
+### 18.12.2006 news Новый вокалист HOSTILE BREED
+
+<P>По данным официального сайта московской группы <STRONG>HOSTILE BREED</STRONG>, их новым вокалистом стал <STRONG>Ardentis</STRONG>, известный по своему основному проекту <STRONG>STARDOWN</STRONG>. Несмотря на занятость в нем, он плотно репетирует с <STRONG>HOSTILE BREED</STRONG> на постоянной основе и вносит свой вклад в творчество коллектива. 21 декабря группа зайдет в <STRONG>CDM</STRONG> студию, где под руководством Lazar'я запишет одну новую композицию, которая станет своеобразной визитной карточкой нового альбома. </P>
+Автор: Dimas
+
+### 01.10.2015 news ##### в Москве
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/shows_rus/2015.10/28451.jpg" width=399 height=564>31 октября, Москва<BR>клуб "Театръ"<BR>#####<BR><A href="http://vk.com/fivediezofficialgroup">http://vk.com/fivediezofficialgroup</A><BR>Полный клуб зомби, вурдалаков и кровопийц в едином порыве разрывают себя на части, по стенам струится кровь. Грешники пускаются в последний танец, в надежде смыть свои преступления и проступки. Праведники теряют надежду выбраться обратно. Ужас и хаос правит бал. На сцене <STRONG>#####</STRONG> с зубодробительным звуком крушат остатки сознания. Мысли, чувства и реальность обращаются в прах. </P>
+<P>P.S. Придешь без костюма - сгоришь в Аду.</P>
+<P>Специальный гость концерта - группа <STRONG>Hostile Breed</STRONG>. Первое выступление после семилетнего перерыва.</P>
+<P>вход в клуб с 19-00<BR>билеты от 499 руб.</P>
+<P>Предварительная продажа:<BR><A href="http://ponominalu.ru/event/5diez/31.10/20:00">http://ponominalu.ru/event/5diez/31.10/20:00</A><BR><A href="https://msk.kassir.ru/kassir/event/view/21595">https://msk.kassir.ru/kassir/event/view/21595</A></P>
+<P>м. Курская, Старая Басманная, 20, стр. 1<BR><A href="http://teatrclub.com/">http://teatrclub.com</A></P>
+Автор: Headcrusher
+
+### 22.09.2016 news Подробности нового релиза от HOSTILE BREED
+
+<p>22 Октября, на Московском лейбле<strong> MAZZAR Records</strong> (<a href="http://www.mazzar.ru">www.mazzar.ru</a>) увидит свет новый, долгожданный релиз "<strong>Травля</strong>" московских энгри - металлистов<strong> HOSTILE BREED</strong>. Это первый релиз группы после продолжительного перерыва в обновленном составе.&nbsp; Физическое издание альбома выйдет на двойном, шестипанельном дигипаке и помимо 3-х концертных бонус треков, будет содержать дополнительный диск с альбомом "The Second Cut" выпущенного группой в 2004 году. </p><p>"<em>Мы очень рады сотрудничеству с MAZZAR</em>" - говорит гитарист группы <strong>D.Frans</strong>. "<em>У меня уже есть продуктивный опыт работы с этим лейблом и я очень рад, что наш новый релиз увидит свет под их крылом</em>" </p><p>Сведением и мастерингом нового релиза занимался Алексей Стецюк (Drygva Studio)</p><p>Трек лист альбома выглядит следующим образом:</p><p>CD/1 - ТРАВЛЯ<br>1. Intro<br>2. Мутная вода<br>3. Корми своих волков<br>4. Бей!<br>5. Слов нет<br>6. Сгореть<br>7. Другие<br>8. Цвета крови (lIve)<br>9. Язвы (live)<br>10. Корми сових волков (live)</p><p>CD/2 - The Second cut<br>1. Intro<br>2. Die inside <br>3. Resonance<br>4. Visions<br>5. Promethean<br>6. Wounds of soul<br>7. Show me the road <br>8. Civilization of hatred<br>9. Color of freedom<br>10. Pseudo life <br>11. Like a bullet</p><p>Московский концерт - презентация нового релиза состоится 22 октября в клубе Rock House (<a href="https://vk.com/mazzar22oct">https://vk.com/mazzar22oct</a>).</p><p>&nbsp;<img width="600" height="600" src="/images/news_rus/2016.09/30007.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/4j7BS2N6FGI" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.10.2016 news HOSTILE BREED выпустили лирик-видео
+
+<p><strong>HOSTILE BREED</strong>: "<em>Приветствуем всех “враждебных” поклонников нашей группы. Вот и наступил момент представить вам лирик – видео на стартовый трек с нового релиза “ТРАВЛЯ” под названием “МУТНАЯ ВОДА”.</em></p><p><em>Очень надеемся, что этот бескомпромиссный сгусток энергии не оставит вас равнодушным, и вы поможете нам максимально распространить его не дав раствориться бесследно в “мутной воде” интернет траффика.</em></p><p><em>Врубайте звук на полную и оставайтесь враждебным</em>!"</p><p>Новый релиз под названием “<strong>ТРАВЛЯ</strong>” выйдет 22 октября на лейбле <strong>MAZZAR Records</strong>.</p><p>Издание выйдет в шестипанельном дигипаке снабжённый бонус диском “<strong>The Second cut</strong>”!</p><p>CD1 “Травля”:</p><p>1. Intro<br>2. Мутная вода<br>3. Корми своих волков<br>4. Бей!<br>5. Слов нет<br>6. Сгореть<br>7. Другие<br>8. Цвета крови (lIve)<br>9. Язвы (live)<br>10. Корми своих волков (live)</p><p>CD2 “The Second cut”</p><p>1. Intro<br>2. Die inside<br>3. Resonance<br>4. Visions<br>5. Promethean<br>6. Wounds of soul<br>7. Show me the road<br>8. Civilization of hatred<br>9. Color of freedom<br>10. Pseudo life<br>11. Like a bullet</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/4Gs8UkTP8eE" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Р-Клуб, суббота, Hostile Breed, "Green Wound"

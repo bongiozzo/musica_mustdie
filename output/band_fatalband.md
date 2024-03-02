@@ -15,6 +15,32 @@
 * C группой "Rest in Pain" Дмитрий Игнатьев
 * C группой "Butterfly Temple" Алексей Миронов
 
+## Публикации
+
+### 20.03.2007 news Promo-single от FATAL BAND
+
+<P><IMG height=165 alt="" hspace=0 src="/images/news_rus/2007.03/11475.jpg" width=400 align=left border=5>Московский брутал дэт оркестр <STRONG>FATAL BAND</STRONG> представляет вашему вниманию свой промо-сингл&nbsp; "<STRONG>The Worst</STRONG>". На диск вошли две собственные оригинальные композиции с прогрессивными фишками&nbsp; и плотной гроул-секцией, а также видео клип и кавер версия на<STRONG>&nbsp;MEGADETH</STRONG> (<STRONG>Tornado Of Souls</STRONG>) и&nbsp;<STRONG>PESTILENCE</STRONG> <STRONG>(Twisted Truth</STRONG>). Материал промо-сингла доступен для свободного скачивания по адресу <A href="http://fatalband.com/">http://fatalband.com</A></P>
+<P>Основателем и идейным вдохновителем коллектива является <STRONG>Сhristophor Moleskin</STRONG> (<STRONG>REST IN PAIN</STRONG>), сумевший в начале 2005 года заинтересовать собственными маниакально-нездоровыми музыкальными идеями опытнейших музыкантов подмосковья <STRONG>Алексея Миронова</STRONG> (<STRONG>ПУТЬ СОЛНЦА</STRONG>, ex-<STRONG>BUTTERFLY TEMPLE</STRONG>) и <STRONG>Дмитрия Игнатьева</STRONG> (<STRONG>REST IN PAIN, TANTAL</STRONG>). </P>
+<P>Сейчас музыканты заняты работой над материалом для первой полноформатной пластинки, которую планируют выпустить осенью.</P>
+Автор: Vit Belov
+
+### 29.01.2010 news Дебютная работа FATAL BAND
+
+<P>Дебютная работа московской experimental death группы <STRONG>FATAL BAND</STRONG> выйдет 15 марта на лейбле<STRONG> Technical Sound Records</STRONG>. Пластинка получила&nbsp; название "<STRONG>Fatal Band</STRONG>" и включила в себя 7 композиций. Альбом был записан в московской студии "<STRONG>Дай Рекордс</STRONG>" под руководством <STRONG>Евгения Виноградова</STRONG>. Сведение прошло в <STRONG>Navahohut Records</STRONG>. В качестве приглашенного музыканта в записи принял участие гитарист бельгийской группы <STRONG>IN-QUEST Douglas Verhoeven</STRONG>.</P>
+<P><A href="http://www.myspace.com/fatalband">http://www.myspace.com/fatalband</A><BR><A href="http://www.myspace.com/technicalsoundrec">http://www.myspace.com/technicalsoundrec</A></P>
+Автор: Vit Belov
+
+### 01.08.2010 news FATAL BAND на MSR Production
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.08/16989.jpg" width=400 align=right border=5>20-го июля на лейбле <STRONG>MSR Productions</STRONG> вышел дебютный диск московской группы<STRONG> FATAL BAND</STRONG>! Музыкальный материал, получивший лаконичное название "<STRONG>Cornered</STRONG>", впитал в себя не только лучшие традиции technical death metal (Pestilence, Carcass), но и современные элементы math-core и даже ambient (Animosity, Aborted, Obsidian, Benighted). Лирика посвящена феномену обратной стороне разума человека. "<STRONG>Cornered</STRONG>" – это мир тотального разрушения и морального разложения; это - серое небо перенаселенных мегаполисов, мрачные пейзажи будущего и сам человек, как худший враг самого себя. Запись была сделана в студии <STRONG>Dai Records</STRONG>, а сведение и мастеринг в небезызвестной <STRONG>Navaho Hut Records</STRONG>. В качестве приглашенных музыкантов в работе над альбомом приняли участие: <STRONG>Douglas Verhoeven</STRONG> (соло-гитара, In-Quest), <STRONG>Дмитрий Игнатьев</STRONG> (гитара, Tantal), <STRONG>Дмитрий ‘Dimebag’ Дасов</STRONG> (вокал, лирика, Educated Scum), <STRONG>Андрей Ищенко</STRONG> (ударные, Scrambled Defuncts, Hieronimus Bosch, Crystal Abyss), <STRONG>Евгений Ткачёв</STRONG> (Rushus project, перкуссия). </P>
+<P>Трэк-лист:</P>
+<P>1. <STRONG>It’s All Over</STRONG> <BR>2. <STRONG>Dead Civilization</STRONG><BR>3. <STRONG>The Antisymbol</STRONG><BR>4. <STRONG>Million Names, Thousand Eyes</STRONG> <BR>5. <STRONG>Torture Killer</STRONG> (Six Feet Under cover)<BR>6. <STRONG>Cornered<BR></STRONG>7. <STRONG>Reframe</STRONG></P>
+<P>Композицию “<STRONG>Dead Civilization</STRONG>” можно скачать отсюда: <A href="http://ifolder.ru/18624183">http://ifolder.ru/18624183</A></P>
+<P>Интернет-ресурсы Fatal Band:</P>
+<P><A href="http://www.myspace.com/fatalband">http://www.myspace.com/fatalband</A> <BR><A href="http://vkontakte.ru/club859886">http://vkontakte.ru/club859886</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

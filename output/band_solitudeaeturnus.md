@@ -129,6 +129,47 @@ Recorded At Regal Studios, Dallas, Texas.
 
 * C группой "Candlemass" Rober Lowe (vocal)
 
+## Публикации
+
+### 11.02.2003 news SOLITUDE AETURNUS все еще вместе
+
+<p>Думстеры из Техаса SOLITUDE AETURNUS снова собрались вместе для записи своего нового творения. Выпуск альбома намечен на конец 2003 года на Massacre Records. В настоящее время, группа находится в студии, где записывает тринадцать вещей выдержанных в духе true doom metal.</p>
+<p> Из других новостей, на собственном лэйбле группы Brainticket Records планируется переиздание первых двух альбомов группы "Into the Depths of Sorrow" и "Beyond the Crimson Horizon". Альбомы выйдут с бонус-трэками.</p>
+
+Автор: Dimas
+
+### 05.06.2006 news SOLITUDE AETERNUS записывают...
+
+<P><STRONG>SOLITUDE AETERNUS</STRONG> сейчас находятся в студии <STRONG>Nomad</STRONG>, где записывают новый альбом "<STRONG>Alone</STRONG>", который выйдет на <STRONG>Massacre</STRONG>. Пластинка&nbsp;увидит свет&nbsp;осенью.</P>
+Автор: Vit Belov
+
+### 22.01.2007 news Rober Lowe - новый вокалист CANDLEMASS
+
+<P>Вокалист <STRONG>SOLITUDE AETERNUS Rober Lowe</STRONG> присоединился к <STRONG>CANDLEMASS</STRONG>! <STRONG>Rober</STRONG> уже пишет партии вокала для нового альбома группы. Остальные музыканты <STRONG>CANDLEMASS</STRONG> в восторге от получающегося результата.</P>
+<P><STRONG>Lowe</STRONG> остаётся в составе <STRONG>SOLITUDE AETERNUS</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.04.2008 reviews Первый блин не комом, но стандартом
+
+<P>Концерт думовой группы - вещь особенная. Здесь нет драйва в общепринятом смысле, здесь нет скачек и плясок публики или безудержного веселья. Подобные перформансы посещают люди, которые приходят, чтобы вДУМчиво слушать,&nbsp;а не выплескивать свою энергию в партерных безумствах и стейдждайвинге. Лишнее тому подтверждение - первый DVD американской группы Solitude Aeturnus, которая вот уже 20 лет радует поклонников этого жанра. "Hour Of Despair" продукт польского тяжелого лейбла Metal Mind, и нет ничего удивительного в том, что основная часть материала представляет собой концерт в варшавском клубе Stodola (12.02.2007). Из двенадцати вещей четыре представляют альбом "Alone", четыре "Through The Darkes Hour", две "Adagio" и по одной "Downfall" и&nbsp;"Into The Depths Of Sorrow", так что никаких тут редкостей нет. По картинке и звуку (можете выбрать 2.0 или 5.1) всё в порядке, но всё же вряд ли кому будет интересен этот DVD (даже ради простого любопытства), кроме фанатов Solitude Aeturnus. Таковым, кстати, неплохо бы поискать и лимитировнный вариант, включающий еще и CD с записью этого концерта. Дополнительный материал тоже довольно стандартен. "Бонус-видео" демонстрирует фрагменты двух концертов в техасских клубах в 1987-ом и 1992-ом годах, которые являются бутлегами и по сути, и по качеству звука и картинки (не говоря уже про "работу оператора"). Купившим DVD также предлагается интервью с вокалистом группы Робертом Лоуи (который сейчас попутно голосит в Candlemass) и гитаристом Джоном Пересом, довольно жиденькая фотогалерея, биография и дискография группы, картинки для рабочего стола компьютера и парочка веб-ссылок. В общем и целом, "Hour Of Despair" объективно тянет на твердый трояк с плюсом, ну а у фанатов, как всегда, будет своё специальное отношение к этому диску. Будем надеяться, что Solitude Aeturnus смогут через некоторое время порадовать нас не только новым музыкальным материалом, но и более интересным следующим DVD.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 17.02.2009 news Аудио-версия DVD SOLITUDE AETURNUS
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2009.02/13612.jpg" width=350 align=right border=5>2 марта на <STRONG>Metal Mind</STRONG> выходит аудио-версия концертного DVD <STRONG>SOLITUDE AETURNUS</STRONG> <STRONG>"Hour of Despair". </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Scent of Death</B><BR itxtvisited="1">02. <B itxtvisited="1">Haunting the Obscure</B><BR itxtvisited="1">03. <B itxtvisited="1">Mental Pictures</B><BR itxtvisited="1">04. <B itxtvisited="1">Destiny Falls to Ruin</B><BR itxtvisited="1">05. <B itxtvisited="1">Sightless</B><BR itxtvisited="1">06. <B itxtvisited="1">9th Day: Awakening</B><BR itxtvisited="1">07. <B itxtvisited="1">Phantoms</B><BR itxtvisited="1">08. <B itxtvisited="1">Is There</B><BR itxtvisited="1">09. <B itxtvisited="1">Pawns of Anger</B><BR itxtvisited="1">10. <B itxtvisited="1">Waiting for the Light</B><BR itxtvisited="1">11. <B itxtvisited="1">Days of Prayer</B><BR itxtvisited="1">12. <B itxtvisited="1">Falling</B></P>
+Автор: Vit Belov
+
+### 01.07.2011 news Сборник SOLITUDE AETERNUS
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2011.07/19829.jpg" width=299 align=right border=0>15 июля на <STRONG>Massacre Records</STRONG> выйдет компиляция doom-metal команды<STRONG> SOLITUDE AETERNUS</STRONG> под названием <STRONG>"In Times Of Solitude". </STRONG>В неё войдут демо и редкие треки этого заслуженного коллектива из Техаса. Послушать одну песню <STRONG>"It Came Upon One Night" </STRONG>можно на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/massacrerecordseurope/blog/543435486">http://www.myspace.com/massacrerecordseurope/blog/543435486</A></P>
+<P>Трек-лист:</P>
+<P>01. <B>It Came Upon One Night</B><BR>02. <B>Transcending Sentinels</B><BR>03. <B>Into Battle</B><BR>04. <B>Sojourner</B><BR>05. <B>Where Angels Dare To Tread</B><BR>06. <B>Rememberance Of A Life</B><BR>07. <B>And Justice For All</B><BR>08. <B>Sojourner</B><BR>09. <B>Mirror Of Sorrow</B></P>
+<P>Последний студийный альбом <STRONG>SOLITUDE AETERNUS "Alone"</STRONG> вышел в ноябре 2006 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

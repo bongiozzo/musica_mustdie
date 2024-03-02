@@ -227,6 +227,202 @@ Paul Morris - keyboards
 * C группой "Dio" Vocalist, Ronnie James Dio
 * C группой "Faith And Fire" John Miceli (drums)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>На фото вы можете увидеть кавер нового альбома GAMMA RAY. Известно, что на альбоме будет кавер песни RAINBOW "Long Live Rock?N?Roll".</p>
+
+Автор: Vit Belov
+
+### 16.02.1999 news 
+
+<p>Барабанщик Helloween Ули Кюш, объявил состав музыкантов, которые примут участии на организованном им проекте "Tribute to Rainbow". На проекте засветятся Ральф Шипперс из Primal Fear, члены Helloween Маркус Гроскопф, Михаэль Вейкат, Анди Дерис, Роланд Грапов. А также клавишники Фредди Донберг(Rough Silk), Аксел Маттенрок(Punch), бассисты Йенс Бекер (Grave Digger), Уве Вессел (ex-Gamma Ray) и гитарист Хеньо Рихтер (Gamma Ray).</p>
+
+Автор: Vit Belov
+
+### 30.03.2001 news All Star Project...
+
+<p>Гитарист "VANIZE" Rolf Munkes для своего второго сольника собрал супер-звездную команду: клавиши - Don Airey ("RAINBOW"), вокал - Lance King ("BALANCE OF POWER") и Mark Boals ("ex-YNGWIE MALMSTEEN"). Микшировать альбом в Cologne’s ROXX Studios будет барабанщик "ACCEPT" - Stefan Kaufmann.</p>
+
+Автор: Yermola
+
+### 30.03.2001 news solo effort from VANIZE guitarist Rolf Munkes...
+
+<p>The upcoming second solo effort from VANIZE guitarist Rolf Munkes will feature a guest appearance from former RAINBOW keyboardist Don Airey. The as-yet-untitled album will also include an appearance by BALANCE OF POWER singer Lance King and ex-YNGWIE MALMSTEEN vocalist Mark Boals. Former ACCEPT drummer Stefan Kaufmann will be mixing the CD at Cologne’s ROXX Studios during June.</p>
+
+Автор: Yermola
+
+### 02.04.2001 news Альбом о Мишеле Нострадамусе...
+
+<p>Новый проект с участием известных музыкантов. Гитарист Nikolo Kotzev и команда "NOSTRADAMUS" записали рок-оперу (еще одна!!!) посвященную известному астрологу. Двойной альбом выходит через немецкую SPV Records в Европе 21 мая. Японский релиз ожидается 5 апреля, дата американского еще не уточнена. Более 100 минут музыки и симфонический оркестр из 35 человек. Среди вокалистов: G&ouml;ran Edman (GLORY / ex-YNGWIE MALMSTEEN), Glenn Hughes (ex-DEEP PURPLE / BLACK SABBATH), J&oslash;rn Lande (YNGWIE MALMSTEEN / ARK / MILLENNIUM), Joe Lynn Turner (ex-RAINBOW / YNGWIE MALMSTEEN), Doogie White (ex-RAINBOW), Alannah Myles, Sass Jordan. Более подробная информация на сайте www.nostramusic.com.</p>
+
+Автор: Yermola
+
+### 02.04.2001 news Michel de Nostredame....
+
+<p> NOSTRADAMUS, guitarist Nikolo Kotzev's rock opera about the famous Michel de Nostredame, will be released through Germany’s SPV Records in Europe on May 21st. The Japanese release date is set for April 5th, while the American details are still being worked out. Nostradamus will be released on a double CD and will contain more than 100 minutes of music, featuring a 35-piece symphonic orchestra along with a hard rock band and the following seven singers:</p>
+<p></p>
+<p> Gцran Edman (GLORY / ex-YNGWIE MALMSTEEN)</p>
+<p></p>
+<p> Glenn Hughes (ex-DEEP PURPLE / BLACK SABBATH)</p>
+<p></p>
+<p> Jшrn Lande (YNGWIE MALMSTEEN / ARK / MILLENNIUM)</p>
+<p></p>
+<p> Joe Lynn Turner (ex-RAINBOW / YNGWIE MALMSTEEN)</p>
+<p></p>
+<p> Doogie White (ex-RAINBOW)</p>
+<p></p>
+<p> Alannah Myles</p>
+<p></p>
+<p> Sass Jordan</p>
+<p></p>
+<p> More information can be obtained by visiting the official NOSTRADAMUS web site: www.nostramusic.com.</p>
+<p></p>
+
+Автор: Yermola
+
+### 19.04.2001 news Chris Impellitteri готовит бомбу.....
+
+<p>Гитарный гуру Chris Impellitteri вместе с вернувшимся в ряды команды ветераном Graham Bonnet (RAINBOW, MSG, ALCATRAZZ) дописывают новый альбом. Glen Sobel уже записал все барабанные треки (в голливудской Track Record), а сейчас прописываются гитары и басс.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news IMPELLITTERI&#39;s upcoming studio album....
+
+<p>Guitar hero Chris Impellitteri has posted the following update on the status of IMPELLITTERI's upcoming studio album, the first since the return of vocalist Graham Bonnet (i.e. RAINBOW, MSG, ALCATRAZZ) to the group's ranks: "As you can imagine, the boys of IMPELLITTERI have been very busy recording the new music. We have just completed the drum tracks at Track Record in Hollywood. Glen Sobel played on all the tracks. We are now doing bass and guitars. We usually spend about 2 or 3 months doing the guitars, especially the solos. This album is very heavy, with some very exciting guitar and drum work. Our goal is to make a very honest record, with music we will truly enjoy playing live. Our fans do expect a certain sound or style of music from us, which we do intend do deliver in a big way. Graham Bonnet is patiently waiting to start his vocal tracks. Graham has written some very heavy vocal melodies for this record. It should be very intense. Graham may play some shows in Europe with some old friends, which should get him in great shape for the IMPELLITTERI record. IMPELLITTERI have agreed to do a full major tour in support of the new record. There has been such major interest in this new record that it is likely IMPELLITTERI will do a worldwide release. We do look forward to touring continually behind the new record. We should have a very exciting show for the fans. For the fans that remember the IMPELLITTERI line-up with Bonnet as the frontman, you should remember the endless wall of Marshall speaker cabinets and huge lighting show. We do intend to outdo ourselves. We hope to see all the fans soon, Chris Impellitteri". Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 30.05.2001 news DIO и Rainbow???
+
+<p>ПО сообщению фэн-клуба DIO, сам Ронни и Ричи Блэкмор объединили силы и возродили супер-группу "RAINBOW"! Летом в Японии будет записан новый альбом.</p>
+
+Автор: Yermola
+
+### 30.05.2001 news DIO and Rainbow???
+
+<p>Rumors of a DIO-era RAINBOW reunion are again making the rounds. The latest gossip has Ritchie Blackmore and Ronnie James Dio teaming up in Japan this summer to record a new album. Dio's fan club allegedly has a) confirmed that Rainbow will be recording this year, but b) denied Ronnie will be in Japan at the same time.</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Проблемы Джона Лорда...
+
+<p>Клавишник "DEEP PURPLE" Джон Лорд вынужден был прервать тур с командой из за проблем с коленом (ему понадобилось срочное хирургическое вмешательство) и сможет присоединиться к "темно-лиловым" только к итальянским гастролям. Пока же его обязанности будет выполнять экс-Рэйнбоу/Блэк Саббат клавишник - Don Airey.</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Due to a recent knee surgery, DEEP PURPLE keyboardist ...
+
+<p>Due to a recent knee surgery, DEEP PURPLE keyboardist Jon Lord will not be joining the rest of the band until after the German shows of the current tour. Former RAINBOW/BLACK SABBATH keyboardist Don Airey will continue to handle the keyboards in his place. Jon Lord hopes to re-join DEEP PURPLE for the Italian dates, possibly also the Monaco shows. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Новая команда Ингви...
+
+<p>Шведскому вундеркинду удалось наконец-то полностью укомплектовать состав своей группы для продолжения тура по Южной Америке (с 12 по 30 сентября). Если все пойдет по плану, то этот состав и будет записывать новый альбом гитариста в 2002. Итак, line-up таков: <br> Doogie White (RAINBOW) – вокал<br> Yngwie J. Malmsteen - гитара<br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - клавиши<br> Mick Cervino (BLACKMORE' S NIGHT) - басс<br> Patrik Johansson (STORMWIND) – барабаны.</p>
+
+Автор: Yermola
+
+### 23.08.2001 news YNGWIE MALMSTEEN has assembled ...
+
+<p>Swedish axe-hero YNGWIE MALMSTEEN has assembled a 100% new band for his upcoming South American tour, which is scheduled to take place between September 12th and September 30th. According to official sources, if the chemistry of this team gels, this line-up may also appear on the guitarist’s next studio album, which is not due to emerge until sometime in 2002. The line-up for the South American tour is as follows: <br> Doogie White (RAINBOW) – vocals <br> Yngwie J. Malmsteen - guitars <br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - keyboards <br> Mick Cervino (BLACKMORE' S NIGHT) - bass <br> Patrik Johansson (STORMWIND) – drums. <br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Краеугольный камень не чуждый человеческого...
+
+<p>"CORNERSTONE" - молодой проект имеющий в своем составе экс-RAINBOW/YNGWIE MALMSTEEN вокалиста Дуги Уайт и бассиста ROYAL HUNT - Steen Mogensen сейчас микширует свой второй альбом названный "Human Stain" в копенгагенской Media Sound Studios. Руководит процессом - Peter Brander, уже делавший это на дебютнике "Arrival". Полный трек-лист: <BR> <BR> 01. Unchosen One <BR> 02. Wounded Land <BR> 03. Some People Fly <BR> 04. Singing Alone <BR> 05. House Of Nevermore <BR> 06. Midnight In Tokyo <BR> 07. Forever Young <BR> 08. Future Rising <BR> 09. Resurrection Sympathy <BR> 10. Sail On Stormy Waters <BR> 11. Candy Man</p>
+
+Автор: Yermola
+
+### 24.05.2002 news YNGWIE MALMSTEEN атакует!
+
+<p>Новый альбом YNGWIE MALMSTEEN будет называться "Attack" и выйдет в продажу через Spitfire Records в конце лета. Сейчас проходит запись. Продюссирует сам Ингви, записывает Tom Fletcher в Майами, Флорида. Состав музыкантов: <BR><BR> Yngwie J. Malmsteen - басс, гитара и бэк-вокал<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - основной вокал<BR> Derek Sherinian (ex-DREAM THEATER) - клавиши<BR> Patrick Johansson (STORMWIND) - барабаны<BR></p>
+
+Автор: Yermola
+
+### 24.05.2002 news YNGWIE MALMSTEEN: &quot;Attack&quot; Recording Line-Up Revealed....
+
+<p>The recording line-up for YNGWIE MALMSTEEN's forthcoming Attack CD has finally been announced. The album, which is currently being produced by Malmsteen and engineered by Tom Fletcher in Miami, Florida, will feature the following musicians: <BR><BR> Yngwie J. Malmsteen - bass/guitar and vocals<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - vocals<BR> Derek Sherinian (ex-DREAM THEATER) - keyboards<BR> Patrick Johansson (STORMWIND) - drums<BR><BR> A late summer release through Spitfire Records is expected.</p>
+
+Автор: Yermola
+
+### 04.06.2002 news Бывший клавишник Rainbow ставит мюзикл...
+
+<p>Клавишник "золотого периода" RAINBOW - David Rosenthal работает над созданием мюзикла "Movin' Out". Хореограф и режиссер - Twyla Tharp. Действие базируется на песнях Билли Джоэла. Премьера состоится на Бродвее в Театре Richard Rogers - 24-го октября.</p>
+
+Автор: Yermola
+
+### 04.06.2002 news Former RAINBOW Keyboardist Working On Musical ....
+
+<p>Former RAINBOW keyboardist David Rosenthal is currently working on a new musical called Movin' Out. Conceived, choreographed and directed by Twyla Tharp and based on the songs of Billy Joel, the musical will open on Broadway at the Richard Rogers Theatre on October 24th. Told through 26 of Billy's songs, Movin' Out follows the lives of six small-town Americans through the turbulent years of 1967-1987. David's involvement includes scoring and arranging of keyboard parts, synthesizer programming, etc. More information as it becomes available.</p>
+
+Автор: Yermola
+
+### 22.10.2003 news Tribute to Riychie Blackmore
+
+<P><B>Tribute To Ritchie Blackmore</B> выйдет в ноябре на Lion Music и будет называться "<B>Blackmore's Castle: A Tribute to Deep Purple and Rainbow"</B>. Трэк-лист:</P>
+<P>01. <B>MISTER KITE</B> – Bloodsucker<BR>02. <B>TRANSCENDENCE</B> – Perfect Strangers<BR>03. <B>ARABESQUE</B> – STARGAZER<BR>04. <B>LARS ERIC MATTSSON</B> – Self Portrait<BR>05. <B>REIGN OF TERROR</B> – Sixteenth Century Greensleeves<BR>06. <B>IRON MASK</B> – Gates of Babylon<BR>07. <B>HEADLINE</B> – Battle Rages On<BR>08. <B>CONDITION RED</B> – Black Night<BR>09. <B>TORBEN ENEVOLDSEN</B> – Space Truckin'<BR>10. <B>ERIC ZIMMERMANN</B> – Man on the Silver Mountain<BR>11. <B>WINTERLONG</B> – Highway Star<BR>12. <B>JASON RICHARDSON</B> – Lazy<BR>13. <B>CONDITION RED</B> – Still I'm Sad&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 29.02.2008 news Doogie White работает над сольником
+
+<P>Бывший вокалист <STRONG>RAINBOW Doogie White</STRONG> работает над сольным альбомом вместе с гитаристом <STRONG>Craig Goldy. </STRONG>Также планируется, что в записи примут участие: <STRONG>Pontus Norgren</STRONG> [<B>TALISMAN</B>, <B>GREAT KING RAT</B>], <B>Rudy Sarzo</B> [<B>QUIET RIOT</B>, <B>DIO</B>, <B>OZZY OSBOURNE</B>], <B>Neil Murray</B> [<B>BLACK SABBATH</B>, <B>WHITESNAKE</B>]&nbsp;и <B>Greg Smith</B>, <B>Patrik Johansson</B> [<B>YNGWIE MALMSTEEN</B>] и <B>Derek Sherinian</B> [<B>DREAM THEATER</B>, <B>YNGWIE MALMSTEEN</B>]. <STRONG>Doogie</STRONG> направил приглашение и своему старому другу <STRONG>Ritchie Blackmore</STRONG>, но ответа пока не получил.</P>
+Автор: Vit Belov
+
+### 23.06.2008 news Старички решили заработать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывшие члены <STRONG>BLACK SABBATH</STRONG>, <STRONG>DIO</STRONG>, <STRONG>RAINBOW</STRONG> и <STRONG>DEEP PURPLE</STRONG> объявили о создании новой супер-группы <STRONG>PURPLE RAINBOW</STRONG>. В её состав войдут:</FONT></P>
+<P><STRONG>Joe Lynn Turner</STRONG> (RAINBOW, DEEP PURPLE, YNGWIE MALMSTEEN) - Vocals<BR itxtvisited="1"><B itxtvisited="1">Bobby Rondinelli</B> (RAINBOW, BLACK SABBATH) - Drums<BR itxtvisited="1"><B itxtvisited="1">Tony Carey</B> (RAINBOW, PLANET P. PROJECT) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Craig Goldy</B> (DIO) - Guitar</P>
+<P>Ни о каком студийном альбоме речь не идёт. Группа принимает заявки на выступления с классикой жанра в течение 2009 года.</P>
+Автор: Vit Belov
+
+### 31.12.2008 news OVER THE RAINBOW едут в тур
+
+<P><IMG height=236 alt="" hspace=0 src="/images/news_rus/2008.12/13262.jpg" width=400 align=right border=5>Группа бывших участников легендарных<STRONG> RAINBOW</STRONG>, возглавляемая сыном великого <STRONG>Ritchie Blackmore Jurgen Blackmore</STRONG>, собирается в тур по России под названием <STRONG>OVER THE RAINBOW</STRONG>. В коллективе участвуют:</P>
+<P>vocals: <STRONG>Joe Lynn Turner</STRONG> (Rainbow 1980-1984) <BR>keyboards: <STRONG>Tony Carey</STRONG> (Rainbow 1975-1978) <BR>drums: <STRONG>Bobby Rondinelli</STRONG> (Rainbow 1980-1983)<BR>bass: <STRONG>Greg Smith</STRONG> (Rainbow 1994-1997) <BR>guitar:<STRONG> Jurgen ("J.R.") Blackmore</STRONG></P>
+<P>Даты:</P>
+<P>Февраль<BR>14 - Минск<BR>16 - Санкт-Петербург<BR>18 - Москва<BR>19 - Иваново <BR>21 - Екатеринбург<BR>23 - Одесса<BR>24 - Киев<BR>26 - Харьков<BR>27 - Днепропетровск </P>
+Автор: Vit Belov
+
+### 16.02.2009 news Сэт-лист OVER THE RAINBOW
+
+<P>14 февраля в Минске прошёл первый концерт <STRONG>OVER THE RAINBOW</STRONG>, группы бывших участников<STRONG> RAINBOW</STRONG> и сына <STRONG>Ritchie Blackmore</STRONG>. Сэт-лист этого выступления:</P>
+<P>01. <B itxtvisited="1">Tarot Woman</B><BR itxtvisited="1">02. <B itxtvisited="1">Kill the King</B><BR itxtvisited="1">03. <B itxtvisited="1">Street of Dreams</B><BR itxtvisited="1">04. <B itxtvisited="1">Man on the Silver Mountain</B><BR itxtvisited="1">05. <B itxtvisited="1">Death Alley Driver</B><BR itxtvisited="1">06. <B itxtvisited="1">Eyes of the World</B><BR itxtvisited="1">07. <B itxtvisited="1">Ariel</B><BR itxtvisited="1">08. <B itxtvisited="1">Wolf To The Moon</B><BR itxtvisited="1">09. <B itxtvisited="1">Power</B><BR itxtvisited="1">10. <B itxtvisited="1">Can't Happen Here</B><BR itxtvisited="1">11. <B itxtvisited="1">Jealous Lover</B><BR itxtvisited="1">12. <B itxtvisited="1">Drum Solo</B><BR itxtvisited="1">13. <B itxtvisited="1">Stargazer</B><BR itxtvisited="1">14. <B itxtvisited="1">Long Live Rock and Roll</B><BR itxtvisited="1">Encore 1<BR itxtvisited="1">15. <B itxtvisited="1">Since You Been Gone</B><BR itxtvisited="1">16. <B itxtvisited="1">I Surrender</B><BR itxtvisited="1">Encore 2<BR itxtvisited="1">17. <B itxtvisited="1">All Night Long</B></P>
+Автор: Vit Belov
+
+### 26.06.2009 news OVER THE RAINBOW вновь едут к нам
+
+<P>Группа бывших участников <STRONG>RAINBOW </STRONG>с <STRONG>Joe Lynn Turner</STRONG> во главе вновь едет к нам. Вот даты тура <STRONG>OVER THE RAINBOW</STRONG>.</P>
+<P>Сен. 15 - Краснодар<BR>Сен. 17 - Ростов-На-Дону<BR>Сен. 19 - Тюмень<BR>Сен. 21 - Пермь<BR>Сен. 23 - Самара<BR>Сен. 27 - Омск<BR>Сен. 29 - Иркутск<BR>Окт. 01 -&nbsp;Красноярск <BR>Окт. 03 - Новосибирск<BR>Окт. 05 - Москва</P>
+Автор: Vit Belov
+
+### 05.08.2011 news Сольник Doogie White выходит осенью
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2011.08/20436.jpg" width=350 align=right border=0>Сольный альбом бывшего вокалиста <STRONG>RAINBOW Doogie White</STRONG> <STRONG>"As Yet Untitled" </STRONG>выйдет 24 октября на <STRONG>Metal Mind Production</STRONG>. Список приглашённых музыкантов на эту работу:</P>
+<P>* <B>Patrick Johansson</B> (YNGWIE MALMSTEEN) - Drums<BR>* <B>Thomas Broman</B> (GLENN HUGHES) - Drums<BR>* <B>Derek Sherinian</B> (BLACK COUNTRY COMMUNION) - Keyboards<BR>* <B>Tony Carey</B> (RAINBOW) - Keyboards<BR>* <B>Neil Murray</B> (WHITESNAKE) - Bass<BR>* <B>Greg Smith</B> (TED NUGENT) - Bass<BR>* <B>Paul Logue</B> (EDEN'S CURSE) - Bass<BR>* <B>Pontus Norgren</B> (HAMMERFALL) - Guitar<BR>* <B>Marcus Jidell</B> (ROYAL HUNT) - Guitar<BR>* <B>Phil Hilborne</B> (QUEEN Musical) - Guitar<BR>* <B>Mick Tucker</B> (TANK) - Guitar<BR>* <B>Patti Russo</B> (MEATLOAF, CHER) - Guest vocals.</P>
+<P>Записью альбома занимался гитарист <STRONG>Pontus Norgren</STRONG> (<B>HAMMERFALL</B>).</P>
+Автор: Vit Belov
+
+### 14.08.2011 news Doogie White: трек-лист и обложка сольного альбома
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20575.jpg" width=400 height=360>Как уже ранее сообщалась, лейбл<STRONG> Metal Mind Productions</STRONG> этой осенью выпускает сольный альбом Дуги Вайта&nbsp;(<B>Doogie White</B>), получивший название <B>"As Yet Untitled"</B>. В сети появились обложка и трек-лист диска. </P>
+<P>Трек-лист:<BR><BR>01. <B>Come Taste The Band</B><BR>02. <B>Time Machine</B><BR>03. <B>Dreams Lie Down And Die</B><BR>04. <B>Lonely</B><BR>05. <B>Land Of The Deceiver</B><BR>06. <B>Secret Jesus</B><BR>07. <B>Sea Of Emotion</B> <BR>08. <B>Catz Got Yer Tongue</B> <BR>09. <B>Living On The Cheap</B> <BR>10. <B>Times Like These</B><BR><BR>Шотландский вокалист впервые&nbsp;попал под пристальное внимание музыкального мира после того, как&nbsp;сам <B>Ritchie Blackmore</B> попросил его стать певцом в реформированных <B>RAINBOW</B>. Вместе они записали один альбом — <STRONG>"Stranger In Us All" </STRONG>(1995). После этого <STRONG>Doogie</STRONG>&nbsp; встал микрофонную стойку&nbsp;в группе Ингви Мальмстина (<B>Yngwie Malmsteen</B>) на целых шесть с половиной лет: записал два альбома и гастролировал по всему миру. Он, так же, записал четыре альбома и гастролировал в составе <B>CORNERSTONE</B>. А на сегодняшний день он является вокалистом&nbsp;легендарной британской группы&nbsp;<B>TANK</B>.</P>
+Автор: Headcrusher
+
+### 24.01.2016 news Jimmy Bain (19 декабря 1947 – 24 января 2016)
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2016.01/28720.jpg" width=400 height=482>24 января в возрасте 68 лет умер бас-гитарист&nbsp;<STRONG>Jimmy Bain</STRONG>.</P>
+<P>В момент своей смерти,<STRONG> Jimmy Bain</STRONG> находился в концертном круизе, устроенном группой <STRONG>DEF LEPPARD</STRONG>, где выступал со своим проектом <STRONG>LAST IN LINE</STRONG>.</P>
+<P>Причины смерти пока не известны.</P>
+<P>Наиболее яркие альмомы с участием музыканта:</P>
+<P><STRONG>RAINBOW<BR></STRONG>- "Rising" (1976)<BR>- "On Stage" (1977)<BR>- "Live In Germany" (1990, записан в 1976)</P>
+<P><STRONG>GARY MOORE<BR></STRONG>- "Dirty Fingers" (1983)</P>
+<P><STRONG>DIO<BR></STRONG>- "Holy Diver" (1983)<BR>- "The Last In Line" (1984)<BR>- "Sacred Heart" (1985)<BR>- "Intermission" (1986)<BR>- "Dream Evil" (1987)<BR>- "Magica" (2000)<BR>- "Killing The Dragon" (2002)</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### RAINBOW Live In Germany October'77 DVD

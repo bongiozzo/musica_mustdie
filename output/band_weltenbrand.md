@@ -95,6 +95,14 @@ Graphic design by Ingo Romling
 * C группой "Erben Der Schopfung" Dina Falk-Zambelli (Vocal)
 * C группой "Erben Der Schopfung" Rino Vetsch (Guitar)
 
+## Публикации
+
+### 04.07.2006 news Новости от WELTENBRAND
+
+<P>Романтичные готик металлеры из Лихтенштейна <B>WELTENBRAND</B> подготовили к изданию свой пятый альбом под названием <B>"The End of the Wizard"</B>,&nbsp;выход которого запланирован на 29 августа через <B>Napalm Records</B>. Кроме обычного издания будет также лимитированный диджипак с двумя бонус-треками. Это будет дебют для новой вокалистки группы <B>Dina Zambelli</B>. Трек-лист:<BR><BR>1. <B>Bewitched Herds Boys</B><BR>2. <B>The Ghost of New Year's Eve</B><BR>3. <B>Question by the Night Ghost</B><BR>4. <B>The French and the Wine</B><BR>5. <B>The End of the Wizard</B><BR>6. <B>Among Them</B><BR>7. <B>Foal in an Egg</B><BR>8. <B>Overheard</B><BR>9. <B>Gipsy Magic</B><BR>10. <B>Cursed by the Zyprio</B> (limited edition)<BR>11. <B>A Witch Reveals Herself</B> (limited edition) </P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -45,6 +45,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2011 news Четвёртый альбом американской группы BLACK COBRA готов
+
+<P>Американский коллектив<STRONG> BLACK COBRA</STRONG>, выступающая в жанре punk/hardcore/sludge-metal, закончил работу над четвёртым альбомом <STRONG>"Invernal". </STRONG>Альбом выйдет осенью на <STRONG>Southern Lord Recordings</STRONG>. Альбом записан в студии гитариста<STRONG> CONVERGE</STRONG> <STRONG>Kurt Ballou.</STRONG></P>
+<P><STRONG>MySpace: <A href="http://www.myspace.com/blackcobra">http://www.myspace.com/blackcobra</A></STRONG></P>
+<P><center><IMG height=139 src="/images/news_rus/2011.07/20261.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

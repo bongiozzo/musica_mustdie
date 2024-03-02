@@ -43,6 +43,31 @@ Exit Wound 187
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.08.2000 reviews Sympho-black-metal с элементами мелодичного death-metal
+
+<p>Sympho-black-metal с элементами мелодичного death-metal. Сильный интересный материал с мистической тематикой. Присутствуют также влияния pagan-black и dark-metal. Атмосферная приятная музыка. Все трэки выдержаны в едином духе. Симфоничное начало, скорострельный black-metal с задушенным вокалом преходящий в клавишно поддерживаемый мелодичный поворот и под конец мы уже слышим мощный гроулинг на фоне более растянутых риффов мелодичного death-metal. Но в однообразии ребят не упрекнешь. За счет разнообразия музыкальных форм и пассажей этот альбом и выигрывает у своих многочисленных конкурентов. Вы не пожалеете послушав этот замечательный альбом.</p>
+
+Автор: Dimas
+
+### 27.08.2000 reviews Sympho-black-metal with elements of melodious death-metal
+
+<p>Sympho-black-metal with elements of melodious death-metal. A strong interesting stuff with mystical themes. There are also influencings pagan-black and dark-metal. Atmospheric pleasant music. All tracks are sustained in unified spirit. Symphonic beginning, rapid-fire black-metal with strangled voice transient in key the bolstered melodious turn and under the end we is already aural potent grawling on a background more spread rhyphs melodious death-metal. But in monotony of the guys will not reproach. At the expense of a diversification of the musical forms and passages this album also benefits against the numerous competitors. You will not regret having listened this remarkable album.</p>
+
+Автор: Dimas
+
+### 22.08.2004 reviews Ещё немного и альбом ждёт всеобщее забвение
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Австрийская black-metal группа <STRONG>AMORTIS</STRONG> пополнила армию порожняков в современном black-metal со своим альбомом <STRONG>'Gift Of Tongues'</STRONG>.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Этот альбом 2001 года только сейчас увидел свет в российском издании. Думается, что пропусти наши лэйбл эту пластинку, никто бы не расстроился. Даже самый отмороженный фанат стиля, а <STRONG>AMORTIS </STRONG>играют медленный black-metal с клавишами, вряд ли выдвинул бы кому-нибудь претензии по этому поводу. <STRONG>AMORTIS</STRONG> нельзя назвать лидерами ни в своей стране, ни тем более в мире.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Монотонный, среднетемповый black-metal с клавишами и чистым вокалом можно сравнить с <STRONG>ANCIENT</STRONG>, последний альбом которых&nbsp;тоже разочаровал. Стандартный набор black-metal элементов разбавляется мелодичными вставками на клавишных, и это то, что хоть как-то можно слушать. Можно, но не нужно. Главным же недостатком можно назвать "думовую" продолжительность песен.&nbsp;Почему-то <STRONG>AMORTIS</STRONG>&nbsp;решили, что им по силам не потерять интерес слушателя на столь большом промежутке времени. Они ошиблись! Вам захочется перемотать каждую песню коллектива.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из положительных сторон: очередной сумасшедший кавер-артворк <STRONG>Niklas Sundin</STRONG>, но в то время любая группа могла приобрести подобные картинки за кругленькую сумму. Также есть несколько неплохих кусочков в самой музыке: несколько отрезков на <STRONG>'Hyperthalamic Prey'</STRONG>&nbsp;и неплохой проигрыш на&nbsp;"<STRONG>Exit Wound 187</STRONG>", который сгодился бы для какого-нибудь хорошого альбома в стиле black-metal в качестве outro.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В общем, вряд ли <STRONG>AMORTIS</STRONG> ждёт успех. Их никто не знал, да и не надо. Нехватка идей&nbsp;и отсутствие всяких перспектив у этой группы налицо. <STRONG>CD-MAXIMUM</STRONG> продлили жизнь этому альбому, но довольно быстро он всё-таки уйдёт во всеобщее забвение.&nbsp;&nbsp;&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM><STRONG>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></STRONG></EM></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

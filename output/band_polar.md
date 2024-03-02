@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.08.2016 news Новый клип POLAR
+
+<p>Hardcore коллектив<strong> POLAR</strong> выложил в сеть новый клип на песню "<strong>King Of Kings</strong>". Трек взят с нового третьего альбома музыкантов<strong> "No Cure No Saviour</strong>", который&nbsp;вышел в этом году на <strong>Prosthetic</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Jq6fUXejrfw" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 09.08.2016 news New video of POLAR
+
+<p>Hardcore band <strong>POLAR </strong>posted a new video for the song "<strong>King Of Kings</strong>". The track is taken from the new third album of the band <strong>"No Cure No Saviour</strong>", which was released this year on <strong>Prosthetic records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Jq6fUXejrfw" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

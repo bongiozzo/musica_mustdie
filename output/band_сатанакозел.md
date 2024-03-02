@@ -28,6 +28,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.10.2008 news САТАНАКОЗЕЛ на Soundage
+
+<P><STRONG><IMG height=169 alt="" hspace=0 src="/images/news_rus/2008.10/12932.jpg" width=170 align=right border=5>Soundage </STRONG>сообщили о выходе в России digi-pack альбома новой российской folk-metal группы <STRONG>САТАНАКОЗЕЛ</STRONG> "<STRONG>Рогатыя</STRONG>".</P>
+<P>Ссылка: <A href="http://www.myspace.com/satanakozel">http://www.myspace.com/satanakozel</A></P>
+Автор: Vit Belov
+
+### 06.11.2015 news Новый альбом САТАНАКОЗЕЛ
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Увидел свет новый альбом петрозаводской folk-metal команды <STRONG>САТАНАКОЗЕЛ "Север"</STRONG>. Диск в формате digibook был издан лэйблом<STRONG> Soundage</STRONG>. Приобретайте в магазине <A href="http://escapemind.ru/">http://escapemind.ru</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/1RhXAYPjg_g" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### 16.05.15, фестиваль &quot;Усладов Пир&quot;, vol.3

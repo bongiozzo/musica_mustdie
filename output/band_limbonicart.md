@@ -92,6 +92,104 @@ The yawning abyss of madness
 * C группой "Sirius" Daemon (vocals)
 * C группой "Zyklon" Daemon (vocals)
 
+## Публикации
+
+### 23.02.1999 news 
+
+<p>Emperor отправляются в европейский тур вместе с Limbonic Art, Morbid Angel, The Crown, Absu и Peccatun.</p>
+
+Автор: Vit Belov
+
+### 23.08.1999 news 
+
+<p>Emperor готовят новое видео, в которое войдут записи с концерта в Асстории в Лондоне, а также записи из жизни музыкантов между концертами. Видео выйдет в конце года. Candlelight Records переиздаст последний альбом группы "IX Equillibrium". На него войдут несколько различных версий песен. Например, Трикстер Джи (Ulver, Arcturus) работает над ремиксом песни "Sworn". Для наших фэнов будет интересно, что группа выступит на фестивале в Польше 9 октября вместе с Peccatum, Limbonic Art, Hypocrisy, The Kovenant (новое название Covenant). Концертный клавишник Emperor Шарман Гримлох выпусти свой сольный альбом "The Red Jewel" в сентябре.</p>
+
+Автор: Vit Belov
+
+### 04.10.1999 news 
+
+<p>Limbonic Art выпустила новый альбом "Act Noctum - Dynasty Of The Dead".</p>
+
+Автор: Vit Belov
+
+### 12.11.2000 news Limbonic Art пишут новый материал.
+
+<p>Limbonic Art работают над материалом для нового альбома. Студия в настоящее время ещё не заказана, но в планах музыкантов выпустить альбом осенью 2001 года.</p>
+
+Автор: Morsus
+
+### 12.11.2000 news Limbonic Art are writing a new material.
+
+<p>Limbonic Art are working on new material for a new album. No studio time is booked at this moment, but the plan is to release the album in the autumn of 2001.</p>
+
+Автор: Morsus
+
+### 16.03.2001 news Выходит новый альбом Sirius
+
+<p> Новая гениальная работа португальских симфо-блэкарей Sirius "Spectral Transiton - Dimension SiriuS" появится на прилавках магазинов 19-го марта. Из официального заявления музыкантов: "Сразу можем сказать, что 'Spectral Transition...' - экстремальный, гитарно-ориентированный брутальный альбом. Некоторые оркестровые темы и аранжировки всё ещё присутствуют, но уже в другом духе. Также в некоторые клавишные партии мы ввели электро-индустриальные тона, придав альбому гораздо более тяжёлый и холодный оттенок по сравнению с предшественником. Итак, что произошло во время записи? Для создания альбома были приглашены особые гости, и мы с гордостью заявляем, что легендарный экс-драммер Faust из Emperor вернулся! Ему удалось на некоторое время выбраться из тюрьмы и присоединиться к нам в студии, чтобы записать несколько ударных и вокальных сэмплов. Также в записи вокала нам помогал Daemon (Limbonic Art/Zyklon), "пропев" безумным скримингом в четырёх трэках альбома. Samoth (Emperor/Zyklon) внёс свой вклад сыграв басу в песне 'The Majesty of the Nightsky'."... Трэк-лист альбома: Spectral Transition, Spiritual Metamorphosis - Destroy the Earthly, In Astral Pains of Trance, Abstract Eerie Corridors, Desolate Magnetic Fields, Into Forbidden Dimensions, Axis, Stellar Transcendence, Paradox Timeline, Dimensional Quantum, The Majesty of the Nightsky (Cover)</p>
+<p></p>
+
+Автор: Nybras
+
+### 25.08.2001 news ZYKLON штормит.
+
+<p> Выступление на августовском Milwaukee Metal Fest стало последним для Daemon'a (LIMBONIC ART) в качестве вокалиста нопвежской супер-группы ZYKLON. Замена ему уже подыскивается.</p>
+
+Автор: Odiumaniac
+
+### 01.03.2002 news Limbonic Art объявили название альбома
+
+<p>Limbonic Art на этой неделе обнародовали название следующего альбома - "The Ultimate Death Worship". Также известны заголовки двух песен - "Funeral of Death" и "Towards the Oblivion of Dreams". Сейчас группа работает в студии и планирует завершить запись за следующие несколько недель. Выход альбома ожидается этим летом.</p>
+
+Автор: Morsus
+
+### 01.03.2002 news Limbonic Art unveiled the album&#39;s title
+
+<p>Limbonic Art this week unveiled the album's title - "The Ultimate Death Worship". Song titles already available include "Funeral of Death" and "Towards the Oblivion of Dreams". The band now works in the recording studio and looks to finish up recording over the next few weeks before moving into post-production duties. Their new album lands this summer.</p>
+
+Автор: Morsus
+
+### 27.04.2002 news LIMBONIC ART Complete Work On &quot;The Ultimate Death Worship&quot;
+
+<p>Norway's LIMBONIC ART today confirm the near completion of their forthcoming album titled The Ultimate Death Worship. The album, with song titles still pending, is expected for release later this summer.</p>
+
+Автор: Vit Belov
+
+### 27.04.2002 news Limbonic Art закончили работу над новым альбомом
+
+<p>Limbonic Art завершили свой новый альбом "The Ultimate Death Worship". Альбом, названия песен которого ещё не определены, выйдет летом.</p>
+
+Автор: Vit Belov
+
+### 07.06.2002 news Безоговорочное поклонение смерти....
+
+<p>"Жизнерадостные" норвеги LIMBONIC ART опубликовали трек-лист своего нового альбома "The Ultimate Death Worship": <BR><BR> 01. The Ultimate Death Worship<BR> 02. Suicide Commando<BR> 03. Purgatorial Agony<BR> 04. Towards the Oblivion of Dreams<BR> 05. Last Rite for the Silent Darkstar<BR> 06. Interstellar Overdrive<BR> 07. From Shades of Hatred<BR> 08. Funeral of Death<BR><BR> Альбом должен выйти 17-го сентября на Nocturnal Art Productions/Candlelight Records. В качестве на треке "From Shades of Hatred" отметился Attila Csihar из MAYHEM......</p>
+
+Автор: Yermola
+
+### 07.06.2002 news LIMBONIC ART Finalize Track Listing ....
+
+<p>Norway's LIMBONIC ART have finalized the track listing for their brand new CD, entitled The Ultimate Death Worship, which is tentatively due to be released on September 17th through Nocturnal Art Productions/Candlelight Records. <BR><BR> The full track listing for the album is as follows:<BR><BR> 01. The Ultimate Death Worship<BR> 02. Suicide Commando<BR> 03. Purgatorial Agony<BR> 04. Towards the Oblivion of Dreams<BR> 05. Last Rite for the Silent Darkstar<BR> 06. Interstellar Overdrive<BR> 07. From Shades of Hatred<BR> 08. Funeral of Death<BR><BR> The Ultimate Death Worship closes the chapter on a two-year hiatus for the Norwegian band. Expected to be one of the fall's bigger metal releases, the album includes a guest appearance by MAYHEM's Attila Csihar on the track "From Shades of Hatred".</p>
+
+Автор: Yermola
+
+### 17.11.2002 reviews Done with sympho-black
+
+<p>LIMBONIC ART are completely done with sympho-black which once gained ‘em fame, aren’t they? I fell in love with “Moon In The Scorpio” once I heard it. I wasn’t so anxious about “In Abhorrence Dementia”, though. I liked both “Epitome Of Illusions” and “Ad Noctum”. I do not consider – and actually never considered – those ones masterpieces, however. And well, I wouldn’t say “The Ultimate Death Worship” blew me away. Nor would I say, it’s unworthy. This isn’t that hypnotizing sympho-black anymore… a pity, indeed. Even though “Moon In The Scorpio” was thousand times rawer and hundred times worse in terms of musicianship and sound execution… it was truly a genius effort. Unfortunately, this one isn’t. LIMBONIC ART seem to explore the path of Norwegian death (more) / black (less) metal ever further, however if I want to listen to anything like that, I’d better pick up a CD by MYRKSKOG or ZYKLON. Of course, “The Ultimate Death Worship” seems to be an unmatched milestone of human genius if compared to MACTATUS, SUSPERIA and others of that ilk… however would you compare IRON MAIDEN to some worthless copycat? We have the same kind of case here. MACTATUS and such are these ‘worthless copycats’ by default, and I doubt if anything or anyone would ever contrive to change it for better. And who are LIMBONIC ART? Or, more likely, who were they? You know the answer. Both answers. ‘Are’ and ‘were’, you see. And by the way, what’s the sense in this fag image?</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 20.02.2007 news LIMBONIC ART возвращаются
+
+<P><STRONG>LIMBONIC ART</STRONG> возродились. Два лидера группы <STRONG>Daemon</STRONG> и <STRONG>Morpheus</STRONG> перезаключили контракт с <STRONG>Nocturnal Art/Candlelight</STRONG> и выпускают новый альбом "<STRONG>Legacy Of Evil</STRONG>".</P>
+Автор: Vit Belov
+
+### 19.05.2007 news Дата релиза LIMBONIC ART
+
+<P><STRONG>LIMBONIC ART</STRONG> выпустят свой камбэк альбом "<STRONG>Legacy Of Evil</STRONG>" 27&nbsp;сентября на<STRONG> Candlelight</STRONG>.&nbsp;Подробности последуют.&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### limbonic art 2002

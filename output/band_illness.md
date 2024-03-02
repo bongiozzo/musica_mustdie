@@ -52,6 +52,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.01.2012 news Новый альбом &quot;шизиков&quot; ILLNESS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=235 alt="" hspace=0 src="/images/news_rus/2012.01/22532.jpg" width=236 align=right border=0>Польская schizo-black-metal группа <STRONG>ILLNESS</STRONG> выпустила третий альбом "<STRONG>Planet Paranoia</STRONG>". Работа будет интересна поклонникам авангардного black-metal. Трек-лист:</FONT></P>
+<P>01. <STRONG>Intro<BR></STRONG>02. <STRONG>Total Paranoia<BR></STRONG>03. <STRONG>Deadlights<BR></STRONG>04. <STRONG>Into The Paranoic Abyss<BR></STRONG>05. <STRONG>Selftorture<BR></STRONG>06. <STRONG>Death And War<BR></STRONG>07. <STRONG>Higher Level Of Inhumanity<BR></STRONG>08. <STRONG>Visions<BR></STRONG>09. <STRONG>Cmentarz<BR></STRONG>10. <STRONG>I’m The One<BR></STRONG>11. <STRONG>Terrified<BR></STRONG>12.<STRONG> Outro</STRONG></P>
+<P>Один трек можно скачать здесь: <A href="/ru/band/illness/18990/">http://musica.mustdie.ru/ru/band/illness/18990/</A></P>
+<P>Приобрести этот альбом можно в нашем магазине или заказать по E-Mail: <A href="mailto:musica2005@yandex.ru">musica2005@yandex.ru</A></P>
+<P>Подробнее о магазине: <A href="/ru/shopinfo/">http://musica.mustdie.ru/ru/shopinfo/</A></P>
+<P>Также приобретайте другую продукцию экспериментальных лэйблов <STRONG>Nihil Art/Margin Art/Vomit in Silence/Deleting Soul</STRONG>:</P>
+<P><STRONG>Moloch/Begotten/Deviator - On The Stub Of Fate New Life Will Not Grow</STRONG> - black-metal<BR><STRONG>Dmitriy Rodionov Experience - Seventeen Moments Of Winter</STRONG> - dark ambient<BR><STRONG>Говнилиум - Все В Дерьме</STRONG> - doom-metal<BR><STRONG>Bokrag - Mental Sickness</STRONG> - death-metal<BR><STRONG>Infauna&nbsp;- e' requiem [EP]</STRONG> - gothic-doom-metal<BR><STRONG>Sorfeum&nbsp;- Ancient Rocks</STRONG> - dark ambient<BR><STRONG>Mindvoid - Crime Against</STRONG> - experimental dark ambient<BR><STRONG>Vladovski - Melody For You</STRONG> - lounge/trance/jazz-rock<BR><STRONG>Frozen Ocean - Likegyldig Raseri</STRONG> - black-metal<BR><STRONG>Margg - Balkhorno Horn [EP]</STRONG> - black-metal<BR><STRONG>Rise in Hatred - Castle of Misanthropy</STRONG> - black-metal<BR><STRONG>Limited Liability Sounds - Minimus Clangor</STRONG> - dark ambient/noise<BR><STRONG>Mummified - Embalming The Nazarene</STRONG> - death-metal</P>
+<P>Цена всех дисков 160 рублей;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

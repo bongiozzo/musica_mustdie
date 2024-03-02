@@ -156,6 +156,111 @@ IRS Studios, Los Angeles
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.01.2002 news Трэш-маньяки на острие атаки!!!
+
+<p>Небезизвестный Dan Lilker намерен собрать в оригинальном составе легендарных трэшеров NUCLEAR ASSAULT, чьё существование было пренесено в жертву BRUTAL TRUTH. Пока речь идёт о нескольких выступлениях на летних фестивалях, а там уж чем чёрт не шутит...</p>
+
+Автор: Odiumaniac
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 24.07.2002 news Возрождение NUCLEAR ASSAULT...
+
+<p>Фронтмен "NUCLEAR ASSAULT" - John Connelly сейчас в студии Screaming Ferret работает над "живым" альбомом возрожденной группы. Релиз появится в продаже осенью на пока еще не известном лэйбле...<BR><BR> Новая реинкарнация "NUCLEAR ASSAULT" уже заявлена к участию в фестивале Wacken Open Air 3-го августа...</p>
+
+Автор: Yermola
+
+### 24.07.2002 news NUCLEAR ASSAULT Frontman Completes Touch-Up Work ...
+
+<p>NUCLEAR ASSAULT frontman John Connelly spent time this past weekend at Screaming Ferret Studios in southern New Hampshire completing "clean-up" work for the group's upcoming live reunion release, due later in the year through an as-yet-undisclosed label. While at the studio, Connelly also laid down lead vocals for the track "Smoke Stack", which will appear on the upcoming CANDY STRIPER DEATH ORGY album, slated for release later this year through Screaming Ferret Wreckords. John also tracked lead guitars on the CSDO song "Holicostic", which will be included on the same album. <BR><BR> The reunited NUCLEAR ASSAULT are scheduled to perform at Wacken Open Air Festival in Wacken, Germany on August 3rd.</p>
+
+Автор: Yermola
+
+### 09.11.2002 news Возвращение NUCLEAR ASSAULT
+
+<p>Спустя девять лет на большую сцену возвращаются нью-йоркские трэшеры NUCLEAR ASSAULT. Группа отправляется в турне с 22 января по 8 февраля 2003 года, в течении которого будет записан материал для концертного альбома группы под названием "Alive Again", который выйдет весной 2003 года на Screaming Ferret Wreckords.</p>
+
+Автор: Dimas
+
+### 21.03.2003 news Воссоединение металлических титанов NUCLEAR ASSAULT...
+
+<p>Воссоединившиеся металлические титаны NUCLEAR ASSAULT собираются в массивное концертное турне 2003 в поддержку своего нового мирового концертного релиза 'Alive Again' на Steamhammer/SPV <BR><BR> Когда нью-йоркские легенды NUCLEAR ASSAULT объявили о своем мировом туре 2003 с целью поддержки нового концертного альбома "Alive Again" выходящего на Steamhammer/SPV - это стало одним из наиболее обсуждаемых и долгожданных реюнионов, одно из главных металлических событий начала 2003 года.<BR><BR> На сегодняшний день в группу входят:<BR> John Connelly - вокал, гитара,<BR> Danny Lilker - бас,<BR> Anthony Bramante - гитара,<BR> Glenn Evans - гитара,<BR> В течение 2002 группа приняла участие в некоторых фестивалях и перфомансах. Это была своеобразная проверка - готов ли мир к возвращению NUCLEAR ASSAULT и их музыке - "беспримерному, скоростному и бескомпромисному металлу с изрядной долей юмора".<BR><BR> Группу в 1984 году основал Danny Lilker (среди прочих, он основатель Anthrax, S.O.D., Brutal Truth). За свою 10-летнюю карьеру NUCLEAR ASSAULT выпустили 6 студийных альбомов и мини-альбомов, провели ряд концертных туров по всему миру.<BR> В списке мишеней группы - ряд социальных язв и болячек: от политической тирании и деспотизма до загрязнения окружающей среды, от политических и финансовых кризисов до человеческой апатии и равнодушия. Свое отношение группа высказывает с изрядной долей черного юмора и неприкрытого сарказма.<BR><BR> Грядущий концертный альбом 'Alive Again' - первый релиз NUCLEAR ASSAULT за последние 9 лет. Lilker комментирует: "Скоро мы выпустим наш новый концертный альбом. Скептики смогут убедиться в том, что нас еще рано списывать на свалку истории. Я знаю массу трэш-команд, к воссоединению которых слушатели относились с подозрением: "Они еще способны поставить кого-то на уши??" безусловно способны!"<BR><BR> NUCLEAR ASSAULT не считают свое возрождение коммерческим ходом или игрой на нервах ностальгирующей публики. В самом ближайшем будущем группа планирует начать работу над студийным альбомом. Danny Lilker комментирует: "Сейчас мы в процессе написания нового материала, и могу вам с уверенностью сказать, что весь он в ключе классического репертуара группы."<BR><BR> Ниже приводится треклист концертного альбома Nuclear Assault "Alive Again", рядом - название студийного альбома, на котором данная вещь присутствует <BR><BR> 1) Rise from the ashes / (SURVIVE)<BR> 2) Brainwashed / (SURVIVE)<BR> 3) F# / (SURVIVE)<BR> 4) New Song / (HANDLE WITH CARE)<BR> 5) Critical Mass / (HANDLE WITH CARE)<BR> 6) SIN / (GAME OVER)<BR> 7) Betrayal / (GAME OVER)<BR> 8) Radiation Sickness / (GAME OVER)<BR> 9) Game Over / (THE PLAGUE)<BR> 10) Butt F**ck / (THE PLAGUE)<BR> 11) Trail Of Tears / (HANDLE WITH CARE)<BR> 12) Hang the Pope / (GAME OVER)<BR><BR> Также CD будет включать мультисекцию, в которую войдут короткие интервью с Danny Lilker, Glenn Evans и живая съемка "Brainwashed", 2002, New Jersey Metal Meltdown (USA).<BR><BR> Тур 2003 "No Mercy Festivals Tour" Участники TESTAMENT, MARDUK, DEATH ANGEL, DIE APOKALYPTISCHEN REITER, PRO-PAIN, MALEVOLENT CREATION, DARKANE and CALLENISH CIRCLE<BR><BR> Tuesday, April 8th London, ENGLAND Mean Fiddler<BR> Wednesday, April 9th Paris, FRANCE La Locomotive<BR> Thursday, April 10th Essen, GERMANY Zeche Carl<BR> Friday, April 11th Engelsdorf, GERMANY Hellraiser<BR> Saturday, April 12th Wels, AUSTRIA Schlachthof<BR> Sunday, April 13th Ludwigsburg, GERMANY Rockfabrik<BR> Monday, April 14th Pratteln, SWITZERLAND Z7<BR> Tuesday, April 15th Milan, ITALY Alcatraz<BR> Wednesday, April 16th Munich, GERMANY Babylon<BR> Thursday, April 17th Strasbourg, FRANCE La Laiterie<BR> Friday, April 18th Vienna, AUSTRIA Planete Music<BR> Saturday, April 19th Berlin, GERMANY Columbia Halle<BR> Sunday, April 20th Antwerp, BELGIUM Hof Ter Lo<BR> Monday, April 21st Tilburg, NETHERLANDS 013<BR><BR> Европейский тур "The Bonded By Metal Over Europe Tour 2003". Участники EXODUS, NUCLEAR ASSAULT, AGENT STEEL, BEHEMOTH, MORTICIAN, CARNAL FORGE, OCCULT, CALLENISH CIRCLE<BR> Oct. 08 Sheffield, UK - Corporation<BR> Oct. 09 London, UK - Camden Palace<BR> Oct. 10 Eindhoven, NETH - Effenaar<BR> Oct. 11 Antwerpen, BEL - Hof Ter Loo<BR> Oct. 12 Paris, FRA - La Locomotive<BR> Oct. 13 Essen, GER - Zeche Carl<BR> Oct. 14 Berlin, GER - Columbia Halle Fritz<BR> Oct. 15 Hamburg, GER - Markthalle<BR> Oct. 16 Munster (Breitefeld), GER - Live Arena<BR> Oct. 17 Bischofswerda, GER - Hanger<BR> Oct. 18 Warszawa, POL - Proxima<BR> Oct. 19 Praha, CZ - Lucerna Music Club<BR> Oct. 20 Innsbruck, AUT - Hafen<BR> Oct. 21 Pratteln, SWI - Z7</p>
+
+Автор: Yermola
+
+### 10.04.2003 news NUCLEAR ASSAULT снова живы!
+
+<p>В ближайшее время на SPV/Steamhammer Records запланирован к выходу новый альбом NUCLEAR ASSAULT под названием "Alive Again". Это будет первый релиз группы за последние девять лет. В него войдут следующие вещи:</p>
+<P> 1. Rise From The Ashes <BR> 2. Brainwashed <BR> 3. F# <BR> 4. New Song <BR> 5. Critical Mass <BR> 6. SIN <BR> 7. Betrayal <BR> 8. Radiation Sickness <BR> 9. Game Over <BR> 10. Butt Fuck <BR> 11. Trail Of Tears <BR> 12. Hang the Pope</>
+<P> Мультимедийная секция будет содержать интервью с басистом Danny Lilker и ударником Glenn Evans.</>
+
+Автор: Dimas
+
+### 08.09.2004 reviews Ядерная атака на чуму
+
+<B><I>
+<P><B><I>“</I><I>Game </I><I>Over”</I> – более чем убедительный дебют группы (мини “Brain Death” в расчет не берем из-за микроскопического тиража), основанной Дэном Лилкером. </B></P>
+<P><B>Лилкер стал знаменит после участия в записи культового альбома “Anthrax” <I>“</I><I>Fistful </I><I>Of </I><I>Metal”. «</I>Сибирскую язву» Дэн покинул из-за творческих разногласий и желания играть более быструю и тяжелую музыку (!!!). С более тяжелой музыкой Дэн побаловался в проекте “S.O.D” вместе с Чарли Бенанте, Скоттом Яном и дорожным рабочим “Anthrax” – Билли Милано. Проект был затеян как шутка, но к удивлению многих, гремучая смесь панка и метала имела успех у определенной части публики. Но, слава богам, вовремя одумавшись, Лилкер обратился к более серьезной и умной музыке. Хотя без влияний хардкора, к моему сожалению, не обошлось и на <I>“</I><I>Game </I><I>Over”. </I>Радует лишь то, что отвратительные “Hang The Pop” и “My America” не раздражают уши более минуты. Зато остальные песни просто ласкают слух. Бессмертная классика. В то время, подобное, называли, забытым сейчас термином, «кроссовер». <I>“</I><I>Game </I><I>Over” </I>– вкусная смесь из гармонично соседствующих спидовых и продуманных трешовых вещей, изобилующих бессмертными отточенными гитарными риффами. Заслуживает отдельного упоминания и вокалист Джон Коннели, который мог бы совершенно спокойно солировать в модной глэмовой команде, но так уж сложилось, и его голос идеально лег на столь жесткую, на тот момент, музыку. Популярности альбома у публики способствовала и, вдохновленная панком, злободневная юморная лирика, с некоторой долей сатанизма. </B></P>
+<P><B>“Fono” выпустил диск вместе последовавшем за <I>“</I><I>Game </I><I>Over” </I>мини-альбомом <I>“</I><I>The </I><I>Plague”. </I>Он содержит 6 ранее неопубликованных вещей сделанных по оправдавшему ожидания рецепту первого винила. Спид + трэш. Ну и хардкор. Куда ж без него. Мода.</B> </P>
+<P><I>Диск выпущен по лицензии компанией </I><A href="http://www.fono.ru/"><U><I>FONO</I></U></A></P></I></B>
+Автор: Дофф
+
+### 11.09.2004 reviews Последняя ядерная атака
+
+<P><B>“Nuclear Assault” на пике славы, на вершине творческой карьеры. Предыдущий альбом “Survive” вышел на пальцегнутом лейбле IRS, а гонорары исчислялись цифрами с пятью нулями. Борясь за независимость, или бесясь с жиру, я не знаю, но в 1989 году Лилке и товарищи его, возвращаются на свой родной и скромный Combat Records, где и записывают очередную трешовую икону. Кстати, на звуке смена лейбла сказалось… Песочек, легкий, чувствуется. Но это мелочь. 11 образцовых композиций, которые можно приводить в качестве примеров, объясняя не сведущей молодежи, что же это за стиль такой – трэш… 11, а не 12 из присутствующих на альбоме, потому, что грайндкоровое прошлое не забыло… есть помоечный трек и на <I>“</I><I>Handle </I><I>With </I><I>Care”. </I>Mother’sDay<I>…</I>Бедная мамочка. Хорошо хоть после этих секунд ужаса идет идеальная,во всех отношениях, <I>“</I><I>Trail </I><I>Of </I><I>Tears”.</I></B></P>
+<P><B>Успех альбома был велик, турне по штатам, по Европе, аншлагами, залы, не только на 30-500 человек. Подтверждением тому записанный в престижном Хаммерсмитовском Одеоне концертник, вышедший чуть позже. </B></P>
+<P><B>Все хорошо, но трэш стал постепенно выходить из моды, и Лилкер опять увлекся несколько другой музыкой, и переключился на другой проект. И шедевральных альбомов от “Nuclear Assault» мы больше не услышим.</B> </P>
+<P><I>Диск выпущен по лицензии компанией </I><A href="http://www.fono.ru/"><U><I>FONO</I></U></A></P>
+Автор: Дофф
+
+### 16.03.2005 reviews Трэш жил, трэш жив, трэш будет жить!
+
+<FONT face="Times New Roman" color=#000000 size=3><SPAN style="COLOR: #ffffff"><FONT face="Times New Roman" color=#000000 size=3><SPAN style="BACKGROUND: #000000; COLOR: #ffffff"><FONT face="Times New Roman" color=#000000 size=3><SPAN style="COLOR: #ffffff">
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt" align=justify>Первая пластинка, записанная после девятилетнего перерыва одним из старейших американских трэш – коллективов Nuclear Assault. Очередной реюнион трэшевой банды, которых за последнее время появилось достаточно: наглядный пример тому - возрождение Exodus, Destruction. Говорит ли это о&nbsp; пробуждении спроса на стиль? Скорее да, чем нет.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt" align=justify>В отличии от других коллективов, первый альбом в реанимированном составе команда решила выдать концертный. То ли материала нового не успели написать, то ли решили&nbsp; повторить подвиг великих Black Sabbath – не суть важно. Главное, альбом получился довольно неплохой.&nbsp; Жесткие, скоростные ритмы, которые в начале 90-х радовали не одну тысячу поклонников по всему миру, звучат так, как будто не было этих 9 лет перерыва в творчестве. Команда находится в отличной форме. Остается надеяться, что в ближайшее время парни выдадут на-гора новый полноформатный номерной альбом, с материалом на голову выше предыдущего. В качестве бонуса на пластинке представлен видеотрэк, включающий в себя интервью и концертный клип группы.</P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 0pt" align=justify>Диск предоставлен концерном Группа СОЮЗ.</SPAN></FONT><SPAN style="FONT-SIZE: 12pt; FONT-FAMILY: 'Times New Roman'; mso-ansi-language: RU; mso-fareast-font-family: 'Times New Roman'; mso-fareast-language: RU; mso-bidi-language: AR-SA"><SPAN style="FONT-SIZE: 12pt; FONT-FAMILY: 'Times New Roman'; mso-ansi-language: RU; mso-fareast-font-family: 'Times New Roman'; mso-fareast-language: RU; mso-bidi-language: AR-SA"><FONT color=#000000></FONT></SPAN></SPAN></SPAN></FONT></P></SPAN></FONT>
+Автор: Fucker
+
+### 27.06.2005 news Новый альбом от NUCLEAR ASSAULT
+
+<P>Ветераны треша <STRONG>NUCLEAR ASSAULT</STRONG> готовят к выходу новый альбом "<STRONG>Third World Genocide</STRONG>"</P>
+<P>Трек-лист: <BR>01. <STRONG>Third World Genocide</STRONG> (3:37)<BR>02. <STRONG>Price Of Freedom</STRONG> (4:10)<BR>03.<STRONG> Human Wreckage</STRONG> (2:38)<BR>04. <STRONG>Living Hell</STRONG> (5:09)<BR>05. <STRONG>Whine And Cheese</STRONG> (2:28)<BR>06. <STRONG>Defiled Innocence</STRONG> (4:29)<BR>07. <STRONG>Exoskeletal </STRONG>(3:00)<BR>08. <STRONG>Discharged Reason</STRONG> (2:14)<BR>09. <STRONG>Fractured Minds</STRONG> (3:59)<BR>10. <STRONG>The Hockey Song</STRONG> (0:14)<BR>11. <STRONG>Eroded Liberty</STRONG> (2:51)<BR>12. <STRONG>Long Haired Asshole</STRONG> (2:12)<BR>13. <STRONG>Glenn's Song</STRONG> (3:22)</P>
+Автор: Bizarre
+
+### 01.10.2005 reviews Оттаявшие, но не адаптированные
+
+<P>Первый полноформатник за последние десять лет от ветеранов американского трэш – движения Nuclear Assault, если не брать в расчет концертный экзерсис, ознаменовавший возвращение группы на сцену.</P>
+<P>При прослушивании альбома у меня сложилось впечатление, что музыканты все эти годы находились в полной изоляции – очень уж олдскульно звучит группа. Никаких новых веяний, все как в старых добрых 80-х. Хорошо исполненные, но до банальности стандартные риффы. Барабанщик так вообще остался в золотой эпохе трэша, не подозревая, что во второй половине 90-х в игре на ударных были выведены новые эталоны, и играть нынче так прямо, медленно и однообразно в данном направлении музыки – правила дурного тона. Единственное, на что можно сделать скидку – участники группы все - таки не новички, вполне может быть, что замучила их ностальгия – вот и налабали материала родом из прошлого. Вспомнила бабка, как девкой была. Если бы мне сказали, что данный альбом записан группой до распада – я бы не усомнился. Песни все построены по стандартным клише, выведенным американскими трэшерами в прошлом столетии – спасают ситуацию только Whine And Cheese, выдержанная в классическом духе панк – гимна, да Long Haired Asshole, являющая собой опус в стиле кантри. Вот уж где я повеселился от души.</P>
+<P>В целом не могу сказать, что альбом плохой, но вот только как-то не цепляет, в отличии, например, от прошлогоднего релиза Exodus, который тоже был первым после реюниона. Nuclear Assault вышли из заморозки, но сориентироваться на местности не смогли. Ностальгирующим поклонникам олдскула посвящается.</P>
+<P>Диск предоставлен Концерном « Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 06.01.2012 news MUNICIPAL WASTE закончили запись пятого альбома
+
+<P><STRONG>MUNICIPAL WASTE</STRONG> закончили работу над своим пятым студийным альбомом, который увидет свет весной 2012.&nbsp;Диск получил название <STRONG>"The Fatal Feast"</STRONG>.&nbsp;В качестве приглашённых гостей на нём отметились:</P>
+<P><STRONG>John Connelly</STRONG> [гитарист и&nbsp;вокалист <STRONG>NUCLEAR ASSAULT</STRONG>], </P>
+<P><STRONG>Steve Moore</STRONG> [басист и клавишник space-rock дуэта <STRONG>ZOMBI</STRONG>], </P>
+<P>вокалист&nbsp;<STRONG>Tim Barry</STRONG> [<STRONG>AVAIL</STRONG>].</P>
+<P><STRONG>"The Fatal Feast"</STRONG> станет дебютом <STRONG>MUNICIPAL WASTE</STRONG> для лейбла&nbsp;<STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22535.jpg" width=500 height=331> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### че вы думаете о Nuclear assault

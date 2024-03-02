@@ -20,6 +20,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2012 news FRAILTY готовят альбом
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.02/22926.jpg" width=400 align=right border=0>23 февраля рижские Doom Death металлисты <STRONG>FRAILTY</STRONG> порадуют своих поклонников выходом нового полноформатного альбома, который будет называться в честь музы трагедии Мельпомены. <STRONG>"Melpomene</STRONG>" - это 9 треков, имеющие собственую уникальную историю, которая объединяет весь альбом, полностью посвященный трагизму и поиску музыкантами трагедии во всем.</P>
+<P>Релиз будет состоять из 9 треков общей продолжительность почти 70 минут и выйдет на украинском лейбле <STRONG>ARX Production</STRONG>. Стоит отметить нехарактерную обложку для групп данного направления, которую создала дизайнер <STRONG>Renate Milune</STRONG>. За звук отвечали <STRONG>Ginta Lundberga (Skyforger. Obtest, Vic Anselmo)</STRONG> и <STRONG>Janis Krivans (Urskumug</STRONG>).</P>
+<P><STRONG>FRAILTY</STRONG> –&nbsp; "мрачные и угнетающие звуки меланхолии и трагедии, отражение болезней, печалей и холодности человечества, выраженные в многосторонних музыкальных произведениях, в которых дум-дэт порой эволюционирует в эмбиент и этлические звуковые ландшафты”.</P>
+<P>Трек-лист: </P>
+<P>1. <STRONG>Wendigo</STRONG><BR>2. <STRONG>Cold Sky</STRONG><BR>3. <STRONG>Desolate Moors</STRONG><BR>4. <STRONG>Underwater<BR></STRONG>5. <STRONG>Onegin’s Death<BR></STRONG>6. <STRONG>The Doomed Halls of Damnation<BR></STRONG>7. <STRONG>Eternal Emeral<BR></STRONG>8. <STRONG>Thundering Heights</STRONG><BR>9. <STRONG>The Cemetery of Colossus</STRONG></P>
+<P><A href="http://www.facebook.com/FrailtyMetalOfficial">http://www.facebook.com/FrailtyMetalOfficial</A></P>
+<P><A href="http://www.myspace.com/frailtymetal">http://www.myspace.com/frailtymetal</A></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/5lv1bGpGfz8?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/5lv1bGpGfz8?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -88,6 +88,150 @@ Widows And Orphans
 * C группой "Arch/Matheos" Joey Vera (bass)
 * C группой "Anthrax" Joey Vera (bass)
 
+## Публикации
+
+### 02.03.2001 news Дед Мороз и семь ведьм...
+
+<p>Мастермайнд "SEVEN WITCHES" Jack Frost совместно с новым вокалистом Wade Black (ex-"CRIMSON GLORY") готовят песни для своего первого альбома на Sanctuary Records. Интересно что после перекупки предыдущего лэйбла команды Massacre Records, новые хозяева даже не стали слушать демо-ленты "Ведьм", а сразу предложили контракт на два альбома. Уже полностью готовы 6 песен. Сейчас Дед Мороз со товарищем арендовали базу во Флориде и усиленно тренируются. Для записи гитар будет использована Casey Grillo's ("KAMELOT") studio, а басс будет писаться в DD's (Verni, "OVERKILL" / "BRONX CASKET CO.") studio.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Jack Frost and SEVEN WITCHES....
+
+<p>Jack Frost has kept SEVEN WITCHES and new vocalist, Wade Black (ex-CRIMSON GLORY) on hold, but not any more. "I'm really excited," enthuses Black, over a Hooters lunch down the street from his Florida home. "I've got two songs completely written; words, music, everything. Jack tells me he's got four done, then we'll do a Witches cover tune. That doesn't leave too many when we finally get together. We'll probably rent him a place down here in Florida, so we can do pre-production and the guitars. I've been using Casey Grillo's (KAMELOT) studio, then Jack will take the tapes up north. He wants to use DD's (Verni, OVERKILL/BRONX CASKET CO.) studio for the bass tracks." The as yet untitled disc will be the first on Sanctuary, who recently bought out Massacre Records. "The label has shown amazing faith in me, signing the band to a new contract without ever hearing any Witches demos with me on them. I know I'll have to prove myslef all over again, but that's OK. I'm used to that."</p>
+
+Автор: Yermola
+
+### 12.07.2001 news Зимний вылет Семи ведьм
+
+<p> Группа Seven Witches планирует выпустить новый диск в феврале. По словам лидера группы, гитариста Джэка Фроста, им написано достаточное количество материала для альбома. Запись завершится в ноябре, а релиз первого сингла с рабочим названием Metal Tyrant намечен на декабрь.</p>
+
+Автор: Helloween
+
+### 08.04.2002 news Эл Питрелли вернулся в SAVATAGE ....
+
+<P>SAVATAGE без объяснения причин уволили гитариста Jack Frost и заменили его вернувшимся Элом Питрелли. Как сказал Frost журналу Brave Words: “[The SAVATAGE] солгали мне... Мне нравилось играть в команде. И мне казалось что это друзья. Когда мы вместе ездили в тур они говорили мне как им нравится играть со мной и строили планы на следующий альбом и фестиваль летом. Если вы это назовете "друзья", то для меня это враги... " </P></>
+<P> </P></>
+<P>Сейчас Фрост собирается сконцентрироваться на проекте SEVEN WITCHES, который в конце Апреля отправляется в европейский тур с ANNIHILATOR....</P></>
+
+Автор: Yermola
+
+### 08.04.2002 news Former MEGADETH Guitarist Rejoins SAVATAGE ...
+
+<P>SAVATAGE have fired recently-recruited guitarist Jack Frost and have replaced him with returning axeman Al Pitrelli (ex-MEGADETH), according to a report posted at Brave Words. </P></>
+<P> </P></>
+<P>“[The SAVATAGE] guys lied to me,” Frost said. “You can't lie to the fans. </P></>
+<P> </P></>
+<P>“I loved playing in that band. I thought they were friends. We toured together, telling me how much they enjoyed me being in the band, made plans for the next record and the festivals this summer. If that's what you consider 'friends,' then be my enemy. </P></>
+<P> </P></>
+<P>“They call me up and say I'm fired, just like that. </P></>
+<P> </P></>
+<P>“I'm not a drunk or a drug addict. They never complained about the live performances, just the opposite, complimenting me, in the press, about how much renewed energy I brought to the show. So at the end of the day, it was just a decision to bring 'their boy' [Pitrelli] back.” </P></>
+<P> </P></>
+<P>Frost will now reportedly concentrate full-time on SEVEN WITCHES, who are scheduled to kick off a European tour with ANNIHILATOR at the end of April. </P></>
+
+Автор: Yermola
+
+### 23.04.2002 reviews Музыка для жизни
+
+<p>Можно, как угодно относиться к такой ортодоксальной музыке, как прямолинейный heavy-power metal, но не признать за ним жизнеутверждающей составляющей невозможно. Пускай где-то Вас угнетают, где-то пугают, но всё это, как бы, понарошку, а главное Вы бодро шагаете вперёд под ритмически-убойные риффы, жёсткие барабаны, строгий вокал... Теперь о главном, группе Джека Фроста (ex-Savatage, Metalium) всего хватает, даже я бы чего-нибудь выкинул. Например, какие-то неясные медленные заморочки на "Warmth of Winter" (на грани new-metal). На альбоме засветились Джон Олива (Savatage) и Джо Комо (Annihilator, ex-Overkill), последний спел заключительную вещь "See You In Hell" в дуэте с основным певцом. Ну, а недостатки? Самый главный недостаток - вторичность материала, который маячит где-то между Iron Maiden и Primal Fear. Плюс куча мелких недоточётов, начиная от слабой реализации и заканчивая не сильным вокалом. Для любителей прямолинейной музыки.</p>
+
+Автор: Vit Belov
+
+### 23.04.2002 reviews Music for life
+
+<p>It is possible, somehow to concern to such orthodox music, as rectilinear heavy-power metal, but to not recognize behind it life-asserting composition it is impossible. Start up somewhere you oppress, somewhere frighten, but it's, as though, for fun, and main you vigorously walk forward under rhytm-killer riffes, rigid drums, strict vocal... Now about main, band of Jack Frost (ex-Savatage, Metalium) all suffices, even I would throw out something. For example, any not clear slow stuff on " Warmth of Winter " (on a side of new-metal). On an album were lighted Jon Oliva (Savatage) and Joe Comeau (Annihilator, ex-Overkill), last is sung a final thing " See You In Hell " in a duet with the basic singer. Well, and lacks? The most important lack - secondary of a material, which loom somewhere in between Iron Maiden and Primal Fear. Plus a heap of fine deficit, beginning from weak realization and finishing by not strong vocal. For the fans of rectilinear music.</p>
+
+Автор: Vit Belov
+
+### 24.06.2002 news Seven Witches searching for new singer!
+
+<p>Right after the European tour with Annihilator, SEVEN WITCHES and Wade Black decided to part ways due to personal reasons. Wade wants to focus on his solo career now. Before long Jack Frost, Joey Vera and Brian Craig will start recording the fourth WITCHES album "BETRAYER", expected to be released in February 2003 as the follow-up album to "Xiled To Infinity And One". The hottest candidate for the vocals is Charles Rytkцnen, his unmistakable voice well-known from his days with both Morgana Lefay and Lefay. Jack has been a fan of Charles' for ages and Charles seems to be rather interested as well ...</p>
+
+Автор: Yermola
+
+### 24.06.2002 news Seven Witches ищут нового певца...
+
+<p>Сразу после европейского тура с Annihilator, SEVEN WITCHES решили разбежаться со своим вокалистом - Wade Black. Вэйд решил сфокусироваться на собственной сольной карьере. Еще до этих событий Jack Frost, Joey Vera и Brian Craig начали запись четвертого альбома "Ведьм" - "BETRAYER", который должен выйти в продажу в феврале 2003. Пока что самая реальная кандидатура на пост певца - Charles Rytk&ouml;nen, который известен по работе Morgana Lefay и Lefay.....</p>
+
+Автор: Yermola
+
+### 15.03.2003 news TRUE METAL ASSAULT California Mini-Tour
+
+<p>DESERT ROCK PROMOTIONS is proud to announce the TRUE METAL ASSAULT Southern California mini-tour featuring two of the best and hard hitting heavy metal bands currently performing on the live circuit: Noise / Sanctuary Records artists SEVEN WITCHES and Massacre Records artists CAGE. The following are the dates for the TRUE METAL ASSAULT California Mini-Tour:</p>
+<p> Thursday April 17, 2003 - The Galaxy - Santa Ana, California<br> Friday April 18, 2003 - Brick by Brick - San Diego, California (special guests Chaotic Order & Wither) <br> Saturday April 19, 2003 - Paladinos - Reseda, California (special guests Wither)</p>
+
+Автор: Vit Belov
+
+### 31.08.2003 news Jack Frost обнародовал подробности о своём сольном альбоме
+
+<p>Бывший гитарист SAVATAGE и нынешний гитарист SEVEN WITCHES опубликовал трэк-лист своей дебютной соло-пластинки "Raise Your Fist To Metal", которая выйдет в октябре на NOISE/SANCTUARY.</p>
+<p> 01. Stay<br> 02. The Chase <br> 03. Brotherhood of Lies<br> 04. What's Left<br> 05. The Man I Am<br> 06. Nippin at your Ear<br> 07. What I Say<br> 08. Fight Fire with Fire<br> 09. Slow Burn<br> 10. Lack of Communication</p>
+<p>А вот музыканты, которые поддержат Фроста:<br> Gonzo (ARMORED SAINT, LIFE AFTER DEATH)<br> Johnny Dee (DORO, BRITNY FOX)<br> Mike Duda (W.A.S.P.)<br> Joey Vera (ARMORED SAINT, FATES WARNING, SEVEN WITCHES, ENGINE)<br> Billy Childs (BRITNY FOX)<br> Harry Hess (HAREM SCAREM)<br> Rob Rock (IMPELLITTERI, WARRIOR, AXEL RUDI PELL, PROJECT DRIVER)<br> David DeFeis (VIRGIN STEELE)<br> Bobby Lucas (EXHIBITION, OVERLORD, ex-SEVEN WITCHES)<br> Joe Comeau (ex-ANNIHILATOR, ex-OVER KILL)<br> Steve Braun (AZRA, ex-SILOAM)</p>
+
+Автор: Vit Belov
+
+### 04.11.2004 reviews Не стреляйте в вокалиста, он поет, как может или У семи ведьм певец без гласу
+
+<P>Именно, как может. Зачем Джеку Фросту пришла идея взять&nbsp;в группу Джеймса Ривера (ex-Helstar, Destiny's End, Flotsam & Jetsam), ума не приложу. В принципе, он вокалист-то неплохой, с мощным голосом, но его неуёмное желание кричать в духе бесталанного горлопана "Рипера" Оуэнса, притом совершенно ни к месту, просто бесит и портит общую картину настолько, что постоянно хочется нажать пимпу "стоп". А иногда это похоже на отвратительную копию Кинга Даймонда. Пожалуй, сей релиз Seven Witches даже хуже последней пластинки Iced Earth, а это уж никуда не годится. Правда, в плане чисто музыкальном не всё так плохо, но вокал, боги мои... Альбом как бы поделен на две части: 6 "обычных" вещей плюс 8 частей второй, типа концептуальной, части под общим названием 'Jacob' (вроде бы в ней речь идет о библейском Иакове), хотя они слушаются опять-таки как просто отдельные песни. В целом абсолютно средний релиз, если не сказать большего. У Джека Фроста еще есть шанс исправить плачевную ситуацию в группе, но захочет ли он что-то менять?</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 04.01.2005 reviews Металлический шабаш с семью ведьмами
+
+<P>Хороший такой хэви- пауер. Даже, скорее хэви, чем пауэр. С первых же риффов композиции Metal Asulum (чуть не написал Metal Messiah), которая открывает альбом, понимаешь, откуда у музыки ноги растут - группа смело использует идеи, наработанные британцами из Judas Priest. Причем, использует достаточно умело и ненавязчиво. Чем-то мне их творчество напомнило Primal Fear, только помедленней сыгранный и с более мелодичными гитарными партиями. За гитару в Ведьмах отвечает Джек Фрост, известный своими работами в коллективах Frost и Savatage, он же и автор практически всей музыки, причем зачастую соавтором указан не менее легендарный музыкант- Joey Vera. Вторая часть альбома представляет из себя единое концептуальное произведение озаглавленное Jacob. Одним словом,&nbsp; стандартный альбом, ничего нового, но исполнено и сыграно все на хорошем уровне, не занудно, с нормальной металлической подачей, что уже есть не так уж и плохо.</P>
+<P>Диск предоставлен Концерном Группа Союз</P>
+Автор: Fucker
+
+### 05.04.2005 news Новости от SEVEN WITCHES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SEVEN WITCHES</STRONG> сообщают, что их контракт с <STRONG>Sanctuary</STRONG> истёк. В настоящее время группа ищет новый лэйбл, на котором выпустит новую работу, которой уже придумано название "<STRONG>Metal Nation</STRONG>". Также готовится к выходу DVD "<STRONG>The Years Of The Witch</STRONG>", туда войдут концертные съёмки, видео и интервью с группой.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей, лидер группы <STRONG>Jack Frost</STRONG> подготовил второй сольный альбом "<STRONG>Out In The Cold</STRONG>". Вместе с <STRONG>Jack</STRONG> на нём примут участие такие известные люди, как <STRONG>Joey Vera</STRONG>, <STRONG>Ted Poley</STRONG>, <STRONG>Red Jones</STRONG> (<STRONG>MSG</STRONG>), <STRONG>Terri Ilous </STRONG>(<STRONG>XYZ</STRONG>), <STRONG>Jeff Martin</STRONG> (<STRONG>Racer X</STRONG>), <STRONG>Chuck White</STRONG> (<STRONG>Ion Vein</STRONG>) и <STRONG>Patrick Johanson</STRONG> (<STRONG>Yngwie J Malmsteen</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 26.04.2005 news James Rivera покинул SEVEN WITCHES
+
+<P>Певец <STRONG>James Rivera</STRONG> сообщил о своём намерении покинуть <STRONG>SEVEN WITCHES</STRONG>. Основная причина этого, занятость Джэймса в <STRONG>KILLING MACHINE</STRONG>, к которым он присоединился недавно.</P>
+Автор: Vit Belov
+
+### 15.06.2005 news Новый вокалист SEVEN WITCHES
+
+<P>Новым вокалистом <STRONG>SEVEN WITCHES</STRONG> стал <STRONG>Alan Tecchio</STRONG>, известный по группам <STRONG>HADES</STRONG>, <STRONG>NON-FICTION</STRONG> и <STRONG>WATCH TOWER</STRONG>. Новая пластинка группы уже в работе, она будет называться "<STRONG>Metal Nation</STRONG>".</P>
+Автор: Vit Belov
+
+### 15.07.2005 reviews Дело Judas Priest вечно
+
+<P>Альбом 2002 года от команды Семь Ведьм, ведомой гитаристом Джеком Фростом, известным своим участием в Savatage, мало чем отличается от других альбомов Seven Witches. Та же мощь и напор, те же пристообразные риффы – одним словом, стопроцентный хэви – метал, такой, каким он должен быть. Может быть, все достаточно стандартно и заезжено, но чистый хэви не терпит компромиссов и музыка в данном направлении строится по определенным шаблонам – шаг влево, шаг вправо и мы уже получаем новый стиль. Да и к тому же, у этого течения достаточно много поклонников –поэтому музыку группы можно смело назвать правильной. Исполнено все на очень высоком уровне, технично и к месту. В качестве приглашенных гостей на альбоме отметились такие исполнители, как Джон Олива (Savatage) и Джо Камю (Overkill, Annihilator). Альбом рекомендован к прослушиванию любителям Judas Priest, Primal Fear и иже с ними.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 02.11.2006 reviews Очередной хороший альбом от SEVEN WITCHES
+
+<P>SEVEN WITCHES – группа гитариста Jack Frost. Jack Frost - человек, которого знают. Его хорошо знают журналисты, благодаря постоянному PR на новостных сайтах, его немного знают поклонники тяжёлой музыки, благодаря кратковременному участию в SAVATAGE. В SAVATAGE он заменял Al Pitrelli, который уходил в MEGADETH. Как только MEGADETH развалились в 2001, Al вернулся, а Jack’a попросили. Вот тогда-то он и понежился в лучах славы, «покостерив» своих бывших коллег. Между тем альбомы его основной группы SEVEN WITCHES как-то незаметно выходили и выходили. В среде любителей прямолинейного среднетемпового американского heavy-power-metal группу знают и любят. В нашей стране группа любителей сего стиля не очень широка, соответственна и известность SEVEN WITCHES.</P>
+<P>Jack Frost, как вы обратили внимание, человек несколько вздорный. Музыканты с ним работают не очень долго. Вот и на описываемом альбоме появился новый певец Alan Tecchio (ex-HADES), который идеально подходит к музыке. Выпевает несложные вокальные мелодии под аккомпанемент напористых традиционных heavy-metal риффов. Музыка не разочарует поклонников стиля, любителей сурового сырого (не в плане записи) первозданного heavy-metal. На мой вкус, надо бы добавить немного в скорости, чтобы сразу не проигрывать европейским группам a-la PRIMAL FEAR. Ну что ж поделаешь, издержки стиля. Кроме прочего, на пластинке можно услышать кавер на песню Billy Idol “Flesh For Fantasy”, которая, как выяснилось, идеально вписывается в стилевые рамки SEVEN WITCHES.</P>
+<P>Хороший альбом хорошей группы с недостатками, свойственными стилю, фанаты которого их не заметят.&nbsp; </P>
+Автор: Vit Belov
+
+### 02.06.2011 news Новый клип SEVEN WITCHES
+
+<P><STRONG>"Fields Of Fire", </STRONG>новый видео-клип <STRONG>SEVEN WITCHES</STRONG> можно посмотреть ниже. Песня взята с новейшего альбома heavy-metal группы <STRONG>"Call Upon The Wicked"</STRONG>, который выйдет завтра на<STRONG> Massacre Records</STRONG>.</P>
+<P><center><iframe width="480" height="303" src="http://www.youtube.com/embed/qI8RjCpaLrM" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 27.09.2011 news James Rivera ушёл из SEVEN WITCHES
+
+<P>Певец <STRONG>James Rivera (HELSTAR)</STRONG> объявил о своём желании покинуть <STRONG>SEVEN WITCHES</STRONG>. Музыкант не примет участия в ближайших концертах коллектива. </P>
+<P><STRONG>James</STRONG> решил сконцентрироваться на своём трибьют-проекте <STRONG>SABBATH JUDAS SABBATH</STRONG> и ищет варианты для концертов в Европе.</P>
+<P><center><IMG height=375 src="/images/news_rus/2011.09/21285.jpg" width=250 border=0></P>
+Автор: Vit Belov
+
+### 18.09.2015 news Новое видео SEVEN WITCHES
+
+<P>Новый ролик американцев <STRONG>SEVEN WITCHES</STRONG> на песню "<STRONG>World Without Man</STRONG>". Новый альбом коллектива "<STRONG>The Way Of The Wicked</STRONG>" вышел сегодня.</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/upAG2Cpp1uM" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

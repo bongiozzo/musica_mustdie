@@ -96,6 +96,69 @@ Disc 2 (DVD) - Dormant Heart Sessions
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.12.2008 reviews Metalcore в вариации epic thrash-metal
+
+<P>Всегда приятно, когда группа из Англии. Есть в этом что-то такое, что напоминает о корнях рок-музыки, о временах, когда всё самое лучшее на этот рынок поставляла эта страна. SYLOSIS – это начинающие metalcore деятели, которым повезло выпустить сразу свой дебют на Nuclear Blast.</P>
+<P>Пускай, издающий лэйбл почему-то относит музыку этого коллектива к thrash-metal, придумав звучный термин epic thrash-metal, я думаю, “Conclusion Of An Age” хорошо вписывается в идеологию metalcore. Идеей этого стиля является добавление в уже известные течения различных элементов, ранее ему не свойственных. Здесь SYLOSIS не стали особо оригинальничать и добавили чистый вокал и мелодии. Я не говорю, что в thrash-metal нет мелодий, но здесь они слишком «мелодичны» для этого ортодоксального стиля. Альбом реализован очень хорошо и слушается достаточно живо. Мощные риффы сменяются мелодичным припевом, группа Америки не открывает.</P>
+<P>Любителям современного металлического звучания. Хороший вариант добавить себе в коллекцию thrash-metal группу с чистым вокалом и интересными проигрышами на акустической гитаре. Будем ждать от SYLOSIS дальнейших успехов, а этот альбом засчитаем за хороший дебют.<BR></P>
+Автор: Vit Belov
+
+### 19.11.2009 news SYLOSIS в студии
+
+<P><STRONG>SYLOSIS</STRONG> вошли в студию 13 ноября для записи своего второго альбома, который выйдет в следующем году на <STRONG>Nuclear Blast</STRONG>. Продюсером вновь выступит <STRONG>Scott Atkins, </STRONG>который записывал и дебют английской команды.</P>
+<P>Группа обещает более зрелый, более тяжёлый и более мрачный материал. В настоящее время&nbsp;SYLOSIS запишут только барабаны, после чего отправятся в тур вместе с <STRONG>DRAGONFORCE</STRONG>. Альбом будет записан к январю.</P>
+Автор: Vit Belov
+
+### 24.12.2009 news Видео SYLOSIS
+
+<P>Клип <STRONG>SYLOSIS </STRONG>на песню с дебютного альбома <STRONG>"After Lifeless Years" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/DKQYQ9sNWiE&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/DKQYQ9sNWiE&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.01.2011 news Новый альбом SYLOSIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.01/18014.jpg" width=400 align=right border=0>Второй альбом англичан <STRONG>SYLOSIS</STRONG> <STRONG>"Edge Of The Earth"</STRONG> выйдет 11 марта на <STRONG>Nuclear Blast</STRONG>. Продюсером этой работы выступил <STRONG>Scott Atkins, </STRONG>который уже работал с группой на дебюте <STRONG>"Conclusion Of An Age". </STRONG>Трэк-лист:</FONT></P>
+<P>01. <B>Procession</B><BR>02. <B>Sands Of Time</B><BR>03. <B>Empyreal</B><BR>04. <B>Empyreal (Part 2)</B><BR>05. <B>A Serpents Tongue</B><BR>06. <B>Awakening</B><BR>07. <B>Kingdom Of Solitude</B><BR>08. <B>Where The Sky Ends</B><BR>09. <B>Dystopia</B><BR>10. <B>Apparitions</B><BR>11. <B>Altered States Of Consciousness</B><BR>12. <B>Beyond The Resurrected</B><BR>13. <B>Eclipsed</B><BR>14. <B>From The Edge Of The Earth</B></P>
+Автор: Vit Belov
+
+### 22.03.2011 news Видео SYLOSIS
+
+<P>Новый клип<STRONG> SYLOSIS</STRONG> на песню <STRONG>"Empyreal" </STRONG>можно посмотреть ниже. Трек взят с новейшего альбома английской группы <STRONG>"Edge Of The Earth"</STRONG>, который вышел 11 марта на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qXdPoL1yQsA?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/qXdPoL1yQsA?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.06.2012 news Новый альбом SYLOSIS
+
+<P>Англичане<STRONG> SYLOSIS</STRONG> подготовили к выходу третий альбом <STRONG>"Monolith"</STRONG>, который был записан в <STRONG>Monnow Valley Studio </STRONG>в Уэльсе. CD увидит свет 7 сентября на<STRONG> Nuclear Blast</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.06/24232.jpg" width=475 height=176></P>
+Автор: Vit Belov
+
+### 08.12.2012 news Новый клип SYLOSIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик английских трешеров <STRONG>SYLOSIS</STRONG> на песню <STRONG>"Fear The World". </STRONG>Трек взят с нового альбома коллектива <STRONG>"Monolith"</STRONG>, который вышел на <STRONG>Nuclear Blast</STRONG>. В России диск издан усилиями<STRONG> Союза</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/tocEwt4HHOg?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.10.2014 news SYLOSIS - первый релиз года на Nuclear Blast
+
+<P>"<STRONG>Dormant Heart</STRONG>" - новый альбом британцев <STRONG>SYLOSIS</STRONG> выйдет 12 января на <STRONG>Nuclear Blast</STRONG>. Клип на песню "<STRONG>Mercy</STRONG>" смотрите ниже.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/EXPQR22UwO0" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.10/27377.png" width=410 height=410></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

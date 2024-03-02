@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.10.2016 news GOTHIC подписались на Loud Rage
+
+<p>Румынские ветераны gothic doom / death doom metal <strong>GOTHIC </strong>подписали контракт с <strong>Loud Rage</strong>. Музыканты готовят новый альбом, который увидит свет в 2017 году.</p><p>Пока мы можем послушать трек "<strong>Demons</strong>" в последнем на сегодня видео румынов.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ouwS141W_Bs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.10.2016 news GOTHIC signed to Loud Rage
+
+<p><strong>Loud Rage Music</strong> proudly announces its recent agreement with one of the best Romanian Metal bands, <strong>GOTHIC</strong>! </p><p>Established back in 1992 by <strong>Alin Petrut</strong> in the heart of the Carpathian Mountains of Transilvania, Romania, the band became in a short period of time one of the most respected Metal bands in the country and kept the same statute to this day by touring extensively within Romania and abroad all over Europe, playing alongside acts like Manowar, Dimmu Borgir, Europe, Korpiklaani, Gojira, Napalm Death, Decapitated, and many more. </p><p>GOTHIC are currently working on the upcoming release of their fourth highly awaited full-length album expected to be out in the beginning of 2017 on Loud Rage Music. In anticipation of the new album the band released a new video for the track <strong>Demons</strong>, streaming here:</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/ouwS141W_Bs" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

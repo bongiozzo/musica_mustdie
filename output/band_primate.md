@@ -20,6 +20,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.2011 news PRIMATE на Relapse Records
+
+<P><STRONG>Relapse Records</STRONG> анонсировал подписание договора о сотрудничестве с punk/grind группой <B itxtHarvested="0" itxtNodeId="24">PRIMATE</B>.<BR itxtNodeId="23"><BR itxtNodeId="22">В состав<STRONG> PRIMATE</STRONG> входят: <B itxtHarvested="0" itxtNodeId="20">Kevin Sharp</B> (вокал, <B itxtHarvested="0" itxtNodeId="19">BRUTAL TRUTH, VENOMOUS CENCEPT</B>), гитаристы <B itxtHarvested="0" itxtNodeId="18">Bill Kelliher</B> (<B itxtHarvested="0" itxtNodeId="17">MASTODON</B>) и <B itxtHarvested="0" itxtNodeId="16">Mike Brennan</B>,&nbsp;басист <STRONG>Dave Whitworth </STRONG>(<STRONG>THE DESPISED</STRONG>)&nbsp;и барабанщик <STRONG>Shayne Huff </STRONG>(<STRONG>THE DESPISED</STRONG>).&nbsp;<BR itxtNodeId="13"><BR itxtNodeId="12">Группа успела&nbsp;выпустить всего один&nbsp;EP <STRONG>"Draw Back A Stump"</STRONG>&nbsp;на своём собственном лейбле<STRONG> Primitive Recordings</STRONG>&nbsp;и в данный момент работает над дебютным полноформатником для <STRONG>Relapse</STRONG>. 
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20785.jpg" width=600 height=337> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

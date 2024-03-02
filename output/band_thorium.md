@@ -16,6 +16,33 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.05.2000 reviews 
+
+<p>Очень странный альбом для норвежской команды. Хотя, там появляется все больше и больше команд играющих музыку совсем не в норвежском духе, примером тому недавний альбом группы ULCUS. Здесь же мы видим слияние шведской и американской школ смертельного металла. Буквально, недавно уже вышел альбом с подобной музыкой от шведской команды SOUL REAPER, поэтому если хотите понять, что звучит на этом альбоме, прочитайте рецензию на альбом SOUL REAPER. Одно могу сказать, альбом предельно мелодичен, брутален и быстр. Намного выше среднего уровня. На закуску ковер-версия DEICIDE "Lunatic Of God's Creation" в шведском стиле!</p>
+
+Автор: Dimas
+
+### 15.11.2001 news Выпускающие Демонов...
+
+<p>Смертельные датчане "THORIUM" весь январь будут заняты в студии Red House (Польша), работая над новым альбомом "Unleashing The Demons". Продюссировать "Демонов" будет гитарист "VADER" - Peter. На диске будет десять вещей, включая кавер "CANCER" - "Cancer F.cking Cancer". Выйдет альбом в конце весны и будет предваряться мощным туром с INIQUITY и WITHERING SURFACE....</p>
+
+Автор: Yermola
+
+### 15.11.2001 news THORIUM will be entering Poland’s Red House Studios...
+
+<p>Denmark's THORIUM will be entering Poland’s Red House Studios during January to record their second full-length album, tentatively entitled Unleashing The Demons. As previously rumored, the album will be produced by VADER guitarist/vocalist Peter, and it will include around 10 tracks, including a cover of CANCER's "Cancer F.cking Cancer". A late spring release is expected, with tentative plans to support the CD with a summer festival tour, also featuring INIQUITY and WITHERING SURFACE.</p>
+
+Автор: Yermola
+
+### 01.12.2002 reviews Purely antichristian death metal
+
+<p>Purely antichristian death metal. A bit old-school and slightly blackened. This time these Danish beerdrinkers went to… Slovakia, hence this CD was recorded at Exponent Studio instead of Norway’s Grieghallen as it happened before (“Ocean Of Blasphemy” CD, 2000). A change for better, I believe, since “Unleashing The Demons” sounds way more powerful than it’s predecessor. Powerful, complex, in-your-face. I doubt if anyone would be stupid enough to compare it to any so-called ‘modern death metal’ representatives. And that’s good. Because “Unleashing The Demons” doesn’t have anything to do neither with Gothenburg school, nor with anything in the vein of WITHERED EARTH (even if the latter is generally a really good band). Thanks god in hell. <BR> P.S. And just by the way… Just like “Ocean Of Blasphemy”, this one also features a cover. This time: CANCER’s “Cancer Fucking Cancer”. Good one.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

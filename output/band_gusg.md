@@ -53,6 +53,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.03.2014 news Сольный альбом Gus G.
+
+<P>Сольный альбом гитариста <STRONG>FIREWIND</STRONG>&nbsp;и <STRONG>Ozzy Osbourne Gus G. "I Am The Fire"</STRONG>&nbsp;выходит 16&nbsp;апреля на&nbsp;<STRONG>Century Media</STRONG>.&nbsp;В записи пластинки приняли участие&nbsp;<STRONG>Mats Leven, Jeff Scott Soto, Tom S. Englund</STRONG> и другие. Трек-лист:</P>
+<P><STRONG>'My Will Be Done' (featuring Mats Leven) <BR>'Blame It On Me' (featuring Mats Leven) <BR>'I Am The Fire' (featuring Devour The Day) <BR>'Vengeance' (featuring David Ellefson) <BR>'Long Way Down' (featuring Alexia Rodriguez) <BR>'Just Can't Let Go' (featuring Jacob Bunton) <BR>'Terrified' (featuring Billy Sheehan) <BR>'Eyes Wide Open' (featuring Mats Leven) <BR>'Redemption' (featuring Michael Starr) <BR>'Summer Days' (featuring Jeff Scott Soto) <BR>'Dreamkeeper '(featuring Tom S. Englund) <BR>'End Of The Line' (featuring Mats Leven)</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26725.png" width=410 height=410></P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/rPqtMMGJAO4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 02.09.2016 news Новый клип GUS G.
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое видео гитарного виртуоза <strong>GUS G.</strong> на открывашку "<strong>The Quest</strong>"&nbsp;с последнего альбома "<strong>Brand New Revolution</strong>", вышедшего в прошлом году на <strong>Century Media</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Фирменный диск можно приобрести в магазине Escapemind.ru: <a href="http://escapemind.ru/goods/GUS-G-Brand-New-Revolution-Special-Edition-CD-Digipack">http://escapemind.ru/goods/GUS-G-Brand-New-Revolution-Special-Edition-CD-Digipack</a></font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d4uPFunsE6I" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 02.09.2016 news GUS G. – Launches new video for “The Quest”
+
+<p>Guitar-wizard,<strong> Ozzy Osbourne</strong> band member and<strong> FIREWIND</strong> band-leader <strong>GUS G.</strong> continues to promote his sophomore solo effort “<strong>Brand New Revolution</strong>” from 2015 by premiering a special new video clip for the album’s instrumental opening track “<strong>The Quest</strong>” via the website of his new endorsement partners Jackson Guitars.</p><p>GUS G. checked in to comment on the clip as follows: “<em>Today is a very exciting day for me - not only it's the start of my Solo tour in the US (w/ Angel Vivaldi), but the premier of my new video for "The Quest". This is a very special track, as it's the only instrumental from my "Brand New Revolution" solo album, and it's an over the top, high energy Metal track, with tons of shredding, big melodies and crazy arrangements. Since the album release, people have been telling me how much they've been enjoying this song, so I decided to make a video for it!<br>&nbsp;<br>Working with the iCode Team in Serbia was a great experience and our goal was to make a crazy, cinematic, action packed video inspired by some of my favorite 80s cult classic films like Mad Max, Conan The Barbarian & Highlander. If you're into any of these movies, I'm sure you'll dig this video! Plus, is there a guitar player on this Earth that wouldn't wanna kill bad guys with his guitar superpowers? Enjoy my friends!”</em></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d4uPFunsE6I" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

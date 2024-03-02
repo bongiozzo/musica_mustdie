@@ -27,6 +27,49 @@ superb thrash-metal from Brazil
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.2008 reviews Thrash-metal прозрение Earache
+
+<P>Я уже не раз писал, что то, что мы подразумеваем под «современной металл-сценой» лишь верхушка айсберга. На лицензионном рынке мы имеем дело только с группами, тщательно отобранными для нас нашими и зарубежными ведущими лэйблами. От этого и складывается то неверное впечатление о некотором застое в нашей любимой музыке. Фэны жалуются на отсутствие интересных работ в своих любимых жанрах и говорят о полном провале тяжёлой музыки, глядя на топчущихся на месте мастодонтов.</P>
+<P>Между тем в мире полно свежей крови. Молодые металхэды-музыканты никуда не пропали, и у них хватит идей и задора, чтобы переубедить большинство слушателей. Вот только на широкую дорогу выйти им очень не легко. Корпоративные и бизнес правила душат любую инициативу на корню. Кому охота возиться и рисковать деньгами с малоизвестной группой из Латинской Америки, например, если можно «запулить» очередной средний материал от известного имени? Так вечно продолжаться не может. В эпоху Интернет и беспроблемного скачивания любой музыки металхэды, возможно, скоро поймут, что им впихывают. Я не знаю, по какой причине Earache обратили свой взгляд на бразильскую группу VIOLATOR. Может быть по этой, а может они просто thrash-metal любят. Но здесь мы имеем типичный мощный underground продукт, который по счастливой случайности вышел на крупном значке. 10 мощнейших хитов без претензий на оригинальность, но с мощным драйвом, которому позавидуют практически все сегодняшние «монстры» металла. Так в лучшие годы звучали KREATOR, EXODUS и SLAYER. Бронебойные прямолинейные риффы, которые вытряхнут вас из штанов и заставят вспомнить времена своей юности.</P>
+<P>Дебют от VIOLATOR снёс мне крышу. Эти ребята просто любят ту же музыку, что и я. Они просто ещё и умеют её играть. Рекомендую всем.</P>
+Автор: Vit Belov
+
+### 03.10.2008 reviews Ну... за настоящий трэш!
+
+<P>Бразильцы Violator не изобретают велосипеда. Их ориентир - это олдскульный трэш, в самом его лучшем и прямом виде. Slayer, Kreator, Nuclear Assault и всё, что вам еще придет в голову. 10 крышесносящих вещей в классическом темпе,&nbsp;с острыми, резкими, быстрыми и колючими риффами, с типичным для жанра вокалом, с веселеньким оформлением буклета - тут всё на месте, и не надо ничего выдумывать. Никаких модерновых фишек, никаких попыток склеить трэш и хардкор или что еще. Безусловно, мы всё это уже сто раз слышали, притом довольно давно, но какая разница, если всё сделано с душой?&nbsp; На протяжении всех 37 минут вам не дают никакой передышки, трэш, трэш и только трэш.&nbsp;И если мы не будем оглядываться на классиков стиля из 80-х, то сможем сказать, что "Chemical Assault" звучит сегодня потрясающе свежо и дает сто очков вперед куче среднечковых команд, которые пытаются найти себе место под солнцем, следуя влияниям моды. Оставьте это, купите побольше пива, пригласите девчонок попроще - и вечеринка, считай, удалась! Исключительно приятная работа. Ну.... за настоящий трэш!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 27.01.2010 news Трек-лист и обложка нового VIOLATOR
+
+<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бразильские трэш-маньяки <STRONG>VIOLATOR</STRONG> опубликовали обложку и трек-лист грядущего альбома, названного <STRONG>"Annihilation Process"</STRONG>. Оформление диска было выполнено Андреем Бузиковым (<STRONG>MUNICIPAL WASTE</STRONG>, <STRONG>AMEBIX</STRONG>, <STRONG>FUELED BY FIRE</STRONG>, <STRONG>CANNABIS</STRONG> <STRONG>CORPSE</STRONG>, <STRONG>VOETSEK</STRONG>, <STRONG>SKELETONWITCH</STRONG>&nbsp;и др.) </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Одну песню с нового альбома - <STRONG>"Deadly Sadistic Experiments"</STRONG>, можно послушать по адресу:</FONT></P>
+<P><A href="http://www.myspace.com/viothrash"><U><FONT color=#0000ff><IMG height=304 alt="" hspace=5 src="/images/news_rus/2010.01/16085.jpg" width=304 align=right vspace=5 border=0>http://www.myspace.com/viothrash</FONT></U></A></P>
+<P>Трек-лист альбома:</P>
+<P>01. <STRONG>Poisoned by Ignorance</STRONG></P>
+<P>02. <STRONG>Uniformity is Conformity</STRONG></P>
+<P>03. <STRONG>Give Destruction or Give me Death</STRONG></P>
+<P>04. <STRONG>Apocalypse Engine</STRONG></P>
+<P>05. <STRONG>Deadly Sadistic Experiments</STRONG></P>
+<P>06. <STRONG>Futurephobia</STRONG></P>
+<P>07.&nbsp;<STRONG>You’ll Come Back Before Dying (Executer)</STRONG></P></FONT>
+Автор: Headcrusher
+
+### 08.01.2013 news VIOLATOR: подробности второго альбома &quot;Scenarios Of Brutality&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25263.jpg" width=400 height=400>Бразильские трэшеры <STRONG>VIOLATOR</STRONG> заканчивают работу над своим вторым полноформатником. На данный момент известны почти все детали альбома, кроме даты его выпуска.</P>
+<P>Диск, получивший название <STRONG>"Scenarios Of Brutality"</STRONG>, был записан в <STRONG>Stage One Studio</STRONG> с продюсером <STRONG>Andy Classen</STRONG> и выйдет на <STRONG>Kill Again Records</STRONG>.</P>
+<P>Обложку для альбома нарисовал&nbsp;<STRONG>Andrei Bouzikov</STRONG> (<A href="http://andreiboo.blogspot.ru/">http://andreiboo.blogspot.ru</A>).</P>
+<P>Все песни на <STRONG>"Scenarios Of Brutality" </STRONG>повествуют о недавних конфликтах и политической ситуации на территории Южной Америки.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. <STRONG>Echoes Of Silence<BR></STRONG>2. <STRONG>Endless Tyrannies<BR></STRONG>3. <STRONG>Dead To This World<BR></STRONG>4. <STRONG>Respect Existence Or Expect Resistance<BR></STRONG>5. <STRONG>Waiting To Exhale<BR></STRONG>6. <STRONG>Death Descends (Upon this World)<BR></STRONG>7. <STRONG>Colors Of Hate<BR></STRONG>8. <STRONG>No Place For The Cross<BR></STRONG>9. <STRONG>Unstoppable Slaughter</STRONG></P>
+<P>Песню <STRONG>Endless Tyrannies</STRONG> можно послушать по ссылке: <A href="http://www.youtube.com/watch?v=P72WLaEBbhQ">www.youtube.com/watch?v=P72WLaEBbhQ</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

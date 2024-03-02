@@ -85,6 +85,70 @@ Steve Bolognese - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 10.01.2005 news Новый вокалист INTO ETERNITY
+
+<P>Канадские progressive death metal&nbsp;гении <B>INTO ETERNITY</B> анонсировали нового вокалиста. Им стал некий <B>Stu</B> из группы <STRONG>OMEGA CROM.</STRONG> Выбор несколько необычный, учитывая то, что вокальная манера нового вокалиста очень схожа с фальцетом <STRONG>Роба Хэлфорда.</STRONG> Но, обещается. что помимо чистого вокала, он будет петь и гроулингом.<BR></P>
+Автор: Dimas
+
+### 21.06.2006 news Новая работа канадцев
+
+<P>Канадские прогрессив мелодик дэтстеры<STRONG> INTO ETERNITY</STRONG> закончили запись своего нового альбома. Сейчас проходит процесс микширования, которым руководит <STRONG>Andy Sneap</STRONG> (<B>NEVERMORE</B>, <B>EXODUS</B>, <STRONG>ARCH ENEMY).</STRONG> Дата релиза запланирована на начало осени на <STRONG>Century media records.</STRONG> Музыканты обещают смесь первых своих двух работ с неожиданными ходами, включая пять различных вокалов. Эта работа станет дебютом для нового вокалиста группы <STRONG>Stu Block.</STRONG></P>
+Автор: Dimas
+
+### 24.10.2008 reviews Категория «не для всех»
+
+<P>Канадцы INTO ETERNITY – очень не простая группа. “The Incurable Tragedy” уже пятый полноформатник группы, четыре альбома которой издавались в нашей стране. Первые работы вышли у нас на CD-Maximum по лицензии некоего DVS Records, и в те времена они не наделали шуму. Интерес к группе поднялся с прошлого альбома, который выходил уже на Century Media. Неординарная смесь melodic-techno-death-metal с progressive и thrash-metal впечатлит любителей оригинальной музыки со сложной композицией.</P>
+<P>Честно говоря, всё это хорошо, но не надо выплёскивать младенца вместе с водой. Пластинки INTO ETERNITY очень разнообразны, но не всегда можно уследить за мыслью музыкантов, которые постоянно перескакивают с одного на другое. Например, высокий «трэшовый» вокал сменяется каким-то ломанным «дэтовым» риффом, а затем начинаются мелодичные песнопения в духе современных modern-death/metalcore коллективов. Кстати, подобные мелодичные вставки, граничащие, по своему настроению, с gothic-metal, здесь совсем ни к чему и вызывают только недоумение. Есть на этом альбоме и несколько «балладных» вещей с акустической гитарой. Очень мило, но их можно скорее воспринимать, как наполнитель, предназначение которого предоставить отдых ушам слушателя. Тоже спорное решение. Те, кто хотят «прогрессивного» и «авангардного» «крошева» заскучают, остальные же люди вряд ли станут слушать INTO ETERNITY.</P>
+<P>Этот альбом можно смело рекомендовать любителям навороченного progressive-metal, они здесь разберутся. Если же вы хотите не просто слушать и восторгаться, а ещё и понимать и сочувствовать тому, что творится на альбоме, данная пластинка не для вас. INTO ETERNITY можно смело зачислять в категорию «не для всех».</P>
+Автор: Vit Belov
+
+### 11.12.2008 news Новое видео INTO ETERNITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В сети появился клип на песню <STRONG>INTO ETERNITY</STRONG> <STRONG>"Time Immemorial". </STRONG></FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=47983160">INTO ETERNITY - Time Immemorial</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=47983160,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=47983160,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 02.01.2009 news INTO ETERNITY рассказали о 2008
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=240 alt="" hspace=0 src="/images/news_rus/2009.01/13271.jpg" width=160 align=right border=5>Лидер и гитарист <STRONG>INTO ETERNITY Tim Roth</STRONG> рассказал о сових впечатлениях от прошедшего года:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"2008-ой стал отличным годом для INTO ETERNITY. Мы совершили успешный тур с SYMPHONY X. К сожалению, я не смог быть с группой в середине сентября. Моя жена ждала ребёнка, и я не мог оставить её одну. 28 ноября у меня родился сын, который получил имя Lucca Jacob Yngwie Roth."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также<STRONG> Tim</STRONG> назвал лучшие, по его мнению, пластинки в ушедшем году:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtvisited="1">YNGWIE MALMSTEEN</B> - Perpetual Flame <BR itxtvisited="1">02. <B itxtvisited="1">GUNS N' ROSES</B> - The Chinese Democracy <BR itxtvisited="1">03. <B itxtvisited="1">CYNIC</B> - Traced In Air <BR itxtvisited="1">04. <B itxtvisited="1">OPETH</B> - Watershed <BR itxtvisited="1">05. <B itxtvisited="1">DRAGONFORCE</B> - Ultrabeatdown <BR itxtvisited="1">06. <B itxtvisited="1">TESTAMENT</B> - Formation Of Damnation <BR itxtvisited="1">07. <B itxtvisited="1">METALLICA</B> - Death Magnetic <BR itxtvisited="1">08. <B itxtvisited="1">WARREL DANE</B> - Praises To The War Machine <BR itxtvisited="1">09. <B itxtvisited="1">TRIVIUM</B> - Shogun <BR itxtvisited="1">10. <B itxtvisited="1">ZERO HOUR</B> - Dark Deceiver <BR itxtvisited="1">11. <B itxtvisited="1">KATAKLYSM</B> - Prevail <BR itxtvisited="1">12. <B itxtvisited="1">JUDAS PRIEST</B> - Nostradamus <BR itxtvisited="1">13. <B itxtvisited="1">BUCKCHERRY</B> - Black Butterfly<BR itxtvisited="1"></FONT></P>
+Автор: Vit Belov
+
+### 16.03.2011 news Stu Block станет новым вокалистом ICED EARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18891.jpg" width=244 height=350>Группа <STRONG>ICED EARTH</STRONG> анонсировала имя человека, который будет заменой Мэтту Бэрлоу (<STRONG>Matt Barlow</STRONG>). Им стал вокалист группы&nbsp;<STRONG>INTO ETERNITY</STRONG> Стю Блок (<STRONG>Stu Block</STRONG>, на фото).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Stu Block </STRONG>приступит к своей работе после выступлений <STRONG>ICED EARTH</STRONG> на летних фестивалях в Европе, которые станут последними для Мэтта Барлоу в составе группы.</FONT></P>
+<P>Гитарист и лидер <STRONG>ICED EARTH</STRONG> Джон Шаффер (<STRONG>Jon Schaffer</STRONG>) вспоминает одну ночь в сентябре 2008, когда <FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>INTO ETERNITY</STRONG> выступали в роли разогревающей группы перед <STRONG>ICED EARTH</STRONG>:</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"<STRONG>ICED EARTH</STRONG> были за кулисами и готовились к своему выходу на сцену. И тут мы услышали невероятный вопль Стю. Я помню, что повернулся к Мэтту и сказал: 'Чёрт, у этого чувака очень широкий вокальный диапазон'".</EM></FONT></P>
+Автор: Headcrusher
+
+### 16.02.2012 news Новая песня INTO ETERNITY
+
+<P>Новый сингл <STRONG>INTO ETERNITY "Fukushima"</STRONG> можно послушать ниже. Песня посвящена мартовской трагедии в Японии.</P>
+<P>
+<CENTER>
+<IFRAME style="DISPLAY: block; WIDTH: 400px; POSITION: relative; HEIGHT: 100px" src="http://bandcamp.com/EmbeddedPlayer/v=2/album=3823780959/size=venti/bgcol=FFFFFF/linkcol=4285BB/" frameBorder=0 width=400 height=100 allowTransparency><a href="http://intoeternity.bandcamp.com/album/fukushima-single">Fukushima (Single) by Into Eternity</a></IFRAME></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

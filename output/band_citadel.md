@@ -12,6 +12,29 @@ finnish power-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2003 news Citadel signs to Low Frequency
+
+<p>Finnish four piece powermetal outfit CITADEL has recently signed with finnish Low Frequency Records. LFR and CITADEL agreed the terms for 4 full-lenght albums. CITADEL will hit the "Popstudios" (f.ex Demigod) in 4th of April to record their yet untitled debut album. Mastering will take place at Finnvox Studios by Mika Jussila.</p>
+
+Автор: Vit Belov
+
+### 11.06.2003 news Citadel recorded new album
+
+<p>New extremelly skillfulled and potential finnish power/heavy metal four piece CITADEL finished recently their debut album "Transition" recordings. Recordings and mixing took place at Pop Studios (f.ex Demigod) Loimaa, Finland. Album was finalised and mastered at famous Finnvox Studios by Mika Jussila.</p>
+<p> "Transition" will hit firstly the streets of Japan the 24th of July. Album will be released by Soundholic Co Ltd (which is known for releasing such bands as Soilwork, Grave Digger, Marduk etc). Rest of the world release date follows in late 2003.</p>
+
+Автор: Vit Belov
+
+### 17.04.2004 reviews Финнам надо ещё поработать
+
+<P><I>Мы привыкли к высокому качеству любой metal-продукции из Финляндии. Power-metal не исключение, но молодая группа <B>CITADEL</B> относится скорее ко второй лиге финского power</I>.</P>
+<P>Два главных недостатка этой группы: вокал и реализация. Вокалист-басист <B>Petteri Urmas</B> сочиняет всю музыку и текста у <B>CITADEL</B>. И если музыку можно было бы слушать, то его вокальные партии не выдерживают никакой критики. Тут дело не в тембре голоса или манере, человек просто не имеет никакого голоса, а пытается соответствовать стандартам стиля. Реализация <B>CITADEL</B> не на "финском" уровне, но это не главное. На передний план выведены клавишные (<B>Joona Kukkola</B> играет совсем неплохо), но от этого страдают другие инструменты, поэтому этот power ощущения мощи никак не производит. </P>
+<P>Музыкальный материал от <B>CITADEL</B> хорошего среднего уровня, но группе просто необходимо устранить эти недостатки. Надеюсь на следующем альбоме группа возьмёт нового певца и даст поиграть своему гитаристу.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

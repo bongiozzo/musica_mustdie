@@ -504,6 +504,653 @@ Nick Marinovich - Keyboards (additional)
 * C группой "HammerFall" Anders Johansson (drums)
 * C группой "Fullforce" Anders Johansson (drums)
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Кнут Хассел покинул группу Destiny после десятилетнего пребывания в ней. Замена нашлась быстро - Андерс Фагерстранд. Группа записывает песню "Anguish And Fear" для преближающегося трибьюта Ингви Малмстину.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Yngwie Malmsteen записывает новый альбом, который выйдет в сентябре-октябре.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Yngwie Malmsteen заменил своего вокалиста Джона Уэста на своего же старого вокалиста Марка Боалса. Новый альбом выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Yngwie Malmsteen записал свой новый альбом Alchemy. Название навеяно историями об алхимиках, которые превращали металл в золото, что и собирается сделать Ингви. На альбоме присутствует песня об одном из кумиров Малмстина Леонардо Да Винчи.</p>
+
+Автор: Vit Belov
+
+### 24.08.2000 news Новый альбом Yngwie Malmsteen
+
+<p> Новый альбом Yngwie Malmsteen выходит 22 ноября, в Японии, на Pony Canyon; неделей позже - в Европе на DreamCatcher и в Северной и Южной Америке на лейбле Spitfire. В записи диска принимали участие: вокалист Mark Boals, клавишник Mats Olausson и драммер John Macaluso.</p>
+<p></p>
+
+Автор: Nybras
+
+### 24.08.2000 news Yngwie Malmsteen&#39;s forthcoming album
+
+<p> Yngwie Malmsteen's forthcoming album, featuring vocalist Mark Boals, keyboardist Mats Olausson and drummer John Macaluso, will be released on November 22nd through Pony Canyon in Japan and the following week in Europe on DreamCatcher and North and South America on Spitfire.</p>
+
+Автор: Nybras
+
+### 12.09.2000 reviews &quot;Marching Out&quot;
+
+<p>Второй полноценный альбом шведского гитарного монстра, я не считаю за оные Стокгольмское творчество и релизы в составе "Alkatrazz". Для своего времени является просто шедевром. И если альбом "Rising Force" возвестил эру гитарных виртуозов и явил миру первый инструментальный альбом в этом стиле, то второй можно смело считать предтечей всего неоклассического Power Metal. Стоит внимательно прослушать Helloween, Gamma Ray и иже с ними, и становится понятным "откуда ноги растут". Более того, все нынешние "открытия" наподобие Rhapsody, Labyrinth, Edguy, Sonata Arctica и т.д. и т.п., просто эксплуатируют находки Ингви. Яркие мелодии, запоминающиеся соло, мощный вокал (Джефф Скотт Сотто!) и братишка клавишника Андерс Йоханнсон за батареей, вот краткое описание программы. И если "Rising Force" просто перенасыщен комплексами неполноценности Ингви, а соответственно всяческими соло-извращениями (часто в ущерб мелодии!), то на "Marching Out", наконец-то, достигнут баланс между важнейшими составляющими. Немного старомодный звук дисторшена у гитары (Но на дворе то 1985!) и одинаковые аранжировки по звуку. Простим, ведь это первенец стиля!</p>
+
+Автор: Yermola
+
+### 12.09.2000 reviews &quot;Rising Force&quot;
+
+<p> Первый гитарно-ориентированный альбом в истории! Для целого поколения гитаристов стал причиной начать играть! Просто ПОТРЯСАЮЩИЙ ШЕДЕВР!!! Стиви Вэй, Джо Сатриани, Марти Фридман... Все они были вторыми. Альбом задал высочайшую и непревзойденную планку мастерства для своего времени. Перед гитаристами встал вопрос или научиться играть также быстро и технически чисто, или просто вылететь из обоймы. Недаром по итогам года "Rising Force" становится лучшим инструментальным альбомом и открытием года! Вцелом, Инви Мальмстина можно (и нужно!) критиковать и ругать, но он создал целый стиль и собственную гитарную школу, что не удалось сделать многим другим прославленным асам. Да, он не слазит с минорных рельсов, он использует одинаковые арпеджио и приемы, но это, действительно, новаторски и СВЕЖО! Минусом альбома является некоторое изобилие инструментальных моментов в ущерб мелодии и вокалу, а также некоторые заимствования у "Рэйнбоу" и Ричи Блэкмора. Но ведь это инструментальный альбом и все "Какофони" и "Серфинг Виз Зэ Элиен" будут потом....</p>
+
+Автор: Yermola
+
+### 12.09.2000 reviews Trilogy
+
+<p>Первый всепланетный бестселлер Ингви. Очень простые, яркие аранжировки, при некоторой попсовости только подчеркивают талант гитариста, и каждое соло просто искрится как шампанское. Неудивительно, что такой простой и доходчивый альбом отлично продается и быстро становится платиновым. Можно считать его началом шведского вторжения в роке и предтечей "Europe" и их сиропной "Final Countdown". Прекрасный вокалист Mark Boals несколько разбавляет тройку викингов (Кстати, имя Ингви переводится как "Юный предводитель викингов"!). Остальные члены группы уже известны по предыдущим альбомам. Партии бас-гитары записаны самим Мальмстином и это практически, первый басс записанный на такой скорости (Хотя где-то не за горами уже появление Билли Шихана )! Жемчужиной альбома является интсрументалка "Трилогия".</p>
+
+Автор: Yermola
+
+### 12.09.2000 reviews Odyssey
+
+<p>После полосы неудач преследовавших Ингви (сломанная в аварии правая рука, смерть матери, финансовые проблемы и т.д.) наступает творческий подъем и альбом получается просто прекрасным. Новый вокалист из конюшни Ричи Блэкмора (Вы знаете кого либо из музыкантов игравших с ним и не добившихся собственного успеха?) добавил новые мелодии и более зрелые и грамотные тексты на английском. Лирика самого Мальмстина обычно страдала примитивизмом: "Как эта будет сказат по английски?". Мощные вокальные линии немного придавили доминирование гитар и создали необходимый баланс. На мой взгляд это одна из лучших и любимых работ гитариста.</p>
+
+Автор: Yermola
+
+### 13.09.2000 reviews Alchemy
+
+<p>Сбылась мечта Ингви использовать хорал и он сделал это в песне "Леонардо". В целом звучание альбома приближено к ранним работам (гитарный звук, аранжировки и т.п.). Более того, в нестройные ряды вернулся Марк Боалс (певший на Трилогии). Он, правда, стал петь гораздо выше. Это конечно круто, но местами переходит практически в фальцет и напрягает (немного). Интересная работа художника над буклетом. Как обычно, Крис Тсангаридис за пультом оператора. Вполне нормальный альбом для поклонников неоклассики и лично Мальмстина.</p>
+
+Автор: Yermola
+
+### 14.09.2000 reviews Concerto Suite For Electric Guitar And Orchestra In E flat Minor Op.#1
+
+<p>Сбылась мечта сына шведского полковника. Альбомом "Concerto Suite For Electric Guitar And Orchestra In E flat Minor Op.#1" могла бы гордиться фрекен Ланнербак. Сынок вырос совсем большой... С симфоническим оркестром играет. Во как. Ну что можно сказать про альбом? Здорово. Наверное это он положил моду на симфонизацию современного металла. Symphony & Metallica, Scorpions, Heretic Виктора Смольского это уже целое направление получается. Не скажу что Мальмстин первый. Нет. Конечно же за сто лет до него были Deep Purple c Оркестром и Jemini Suite, но и у Ингви эксперимент впечатляющий. Человека с консерваторией за плечами удивят, я думаю, грамотные оркестровки и аранжировки, а обычного металлиста альбом может заставить обратиться к серьезной музыке. Получилось, в общем-то, грамотное симфоническое произведение. Не слабо? Минус альбома я вижу только в использовании уже записанных им же мелодий. Самоплагиат. Например, Icarus Dream Fanfare уже звучала на альбоме "Rising Force" и т.д. С учетом поправок оценка 8.</p>
+
+Автор: Yermola
+
+### 14.09.2000 news Трек лист нового альбома Мальмстина
+
+<p>Стал известен трек лист нового альбома юного предводителя викингов (релиз ожидается 22 ноября). "War To End All Wars" Yngwie Malmsteen's new album: 1. Prophet of Doom 2. Crucify 3. Bad Reputation 4. Catch 22 5. Masquerade 6. Molto Arpeggiosa 7. Miracle of Life 8. The Wizard 9. Preludium 10. Wild One 11. Tarot 12. InstruMENTAL INSTITUTION 13. War to End All Wars 14. American Bonus Track: Black Sheep of the Family (Anders Khan Guest Vocal)</p>
+
+Автор: Yermola
+
+### 14.09.2000 reviews Лицом к зверю?
+
+<p>Может быть появление в рядах единомышленников старого перца Cozy Powell, а может просто благосклонность звезд, позволили Ингви создать удачный альбом. Крепко поет Mike Vescera, кнопки, как обычно, нажимает Крис Тсангаридис. несколько видоизмененный стиль. Может быть попытка найти новое звучание? Heathens From The Nord и Facing The Animal демонстрируют тяготение к прог-металлу, а Enemy - просто признание в любви группе YES (Уже не первое надо сказать! Помните альбом "Inspiration"?). Оценка 8, можете стрелять в меня, если не согласны.</p>
+
+Автор: Yermola
+
+### 14.11.2000 news Смена вокалиста у Ингви Мальмстина
+
+<p>Старый друг и соратник Ингви - Марк Боалс, после записи последнего альбома "War To End All Wars" решил, все-таки, заняться своей сольной карьерой и оставил Маэстро. Ему на смену уже рекрутирован вокалист классического состава времен "Marching Out" - Джефф Скотт Сотто.</p>
+
+Автор: Yermola
+
+### 16.11.2000 articles &quot;War is coming!&quot; - Yngwie Malmsteen exclusive interview
+
+<p> Эксклюзивное интервью с Ингви Мальмстином. Подготовлено Yermola 15.11.2000 специально для Music Must Die. Особая благодарность Анне (Президенту Официального Фэн Клуба) и Майклу Спитцеру (Менеджеру Ингви) за помощь в организации интервью.</p>
+<p> Yermola: Прежде всего, для меня очень приятно побеседовать с тобой и "Спасибо за время которое ты мне уделяешь!" Фанатам металла в России и СНГ будет весьма интересно узнать о твоем новом альбоме "War To End All Wars". Данное интервью будет опубликовано на сервере Music Mustdie по адресу http://music.mustdie.ru/.</p>
+<p> Итак... Какие чувства ты испытываешь по отношению к новому альбому? Есть ли какие-нибудь изменения в стиле, вокальных линиях, гитарных партиях и т.п.?</p>
+<p> Yngwie: "War..." - более песенно ориентирована чем "Alchemy". На "Алхимии" я хотел записать гитарный альбом который просто сбивал бы с ног своей интенсивностью. "Война" - также содержит очень интенсивную гитарную игру, но песни имеют более цепляющие риффы.</p>
+<p> Yermola: Можешь ли ты рассказать нам что случилось с Марком Боалсом и Джеффом Скотт Сотто? Я имею ввиду - "Какие проблемы были с марком и почему ты решил заменить его?" Мы знаем, что оба они великолепные вокалисты, но голос Марка выше чем Джеффа (правда, голос Джеффа - сильнее!).</p>
+<p> Yngwie: Джефф имеет очень мощный голос, но, конечно же, он не поет в таком верхнем регистре как Марк. Что касается Марка.... В Штатах основной маркетинг и промоушен я получаю от Спитфайр Рекордс. Они распространяют меня на видео, биллбордах и более чем на 130 радиостанциях. Завтра, я уезжаю в 30-дневный тур совместно с Дио, и скоро буду выступать в Европе и Азии. Поскольку все расходы будут оплачиваться по статье маркетинга, бюджет тура будет ограничен. Марк просто хотел получать больше денег за свое участие в туре, а бюджет не позволял этого. Вот так все и было. Марк имеет превосходную подачу и диапазон, единственная область где он не 100%, как мне кажется, это сила. И он не имеет полноценно мощного тона, временами он может звучать тонко. Но он очень хорош, как бы то ни было.</p>
+<p> Yermola: Что ты думаешь о пиратских копиях твоих альбомов? На самом деле, в некоторых странах и особенно в России этот рынок очень развит. Серднемесячная зарплата составляет 100-300$ и люди предпочитают покупать пиратские диски по цене 1-3 dollars! Это большая проблема для официальных дистрибьюторов и музыкантов. Как ты считаешь, хороша ли данная ситуация для местных меломанов в целом?</p>
+<p> Yngwie: Я понимаю что в странах третьего мира существуют проблемы с экономикой, но если честно, воровство - есть воровство, как бы ты лично к нему не относился. Особенно я не согласен с такими компаниями как Напстер, где дети загружают целые альбомы и слушают их без какой-либо оплаты. Но к сожалению, способа рационализировать или урегулировать это нет... Это период воровства!</p>
+<p> Yermola: Все мы очень хорошо помним твои гастроли в Ленинграде - ты был, практически первым гитарным героем, который посетил нашу страну после падения коммунизма. Ты помнишь что-нибудь об этом шоу (какие-либо смешные случаи, реакция фанов и т.д.) ? И есть ли у тебя планы вновь посетить Россию (может быть в рамках WAR-tour!)?</p>
+<p> Yngwie: Ну.... это было очень давно! Ха-ха! Мы пытаемся организовать WAR-tour у вас, но трудно решить некоторые проблемы.</p>
+<p> Yermola: Какой у тебя любимый альбом (из собственных)?</p>
+<p> Yngwie: Мне нравится альбом Alcatrazz с Грэмом Боннетом, конечно же новый WAR TO END ALL WARS, Trilogy, Alchemy и Seventh Sign.</p>
+<p> Yermola: Сейчас появилось много новых гитарных мастеров, что ты думаешь об них? Знаешь ли ты кого-нибудь и кто тебе нравится?</p>
+<p> Yngwie: Честно говоря, я не слушаю других гитаристов или группы. Я видел журнал со статьей о группе Slipknot с музыкантами наряженными клоунами и в Хэллоувиновских масках и подумал "Что это за хрень еще такая?" Как то я включал радио и слышал команду Limp Bizkit. Я просто не мог ничего понять. Это все не музыкально, в общем-то. Больше всего, я слушаю старых Deep Purple и подобные команды, а также классическую музыку.</p>
+<p> Yermola: По моему мнению, ты один из лучших современных исполнителей играющих обработки произведений классических композиторов, таких как, Вивальди, Бетховен и т.д. Это была бы великолепная идея для тебя - записать полный альбом обработок классики. Мы уже слышали твой "Concerto for guitar and orchestra" и твои собственные опусы в классическом стиле, но это было бы очень интересно для фанов получить твою версию... "Le Quattro Stagione" Вивальди, например. Или других твоих любимых барокко композиторов. Я не знаю.....</p>
+<p> Yngwie: В следующем Июне у меня будет три ночных выступления с симфоническим оркестром. Также у меня есть планы записать Второй Концертный альбом в будущем, но это, для меня, занимает очень много времени, по сравнению с рок-вещами.</p>
+<p> Yermola: У нас в России есть очень известный гитарист Виктор Зинчук, играющий в похожем на втой стиле, ты слышал что-нибудь о нем? У него были туры в Европе с обработками Баха, Шуберта и Вивальди.</p>
+<p> Yngwie: Да, я слышал о нем, но я не слишком знаком с его вещами. Надеюсь вам понравится WAR.</p>
+<p> Спасибо за интервью и .... Играй погромче, парень!</p>
+<p></p>
+
+Автор: Yermola
+
+### 16.11.2000 articles &quot;War is coming!&quot; - Yngwie Malmsteen exclusive interview
+
+<p> Yngwie Malmsteen's Interview. Prepared by Yermola especially for Musica Must Die. 15.11.2000 Extra thanks to Anna (Official Fan Club President) and Michael Spitzer (Manager) for help.</p>
+<p> Yermola: Well... What is your own feeling about album? Do you have any changes in style, vocal lines, guitars and so on?</p>
+<p> Yngwie: War is more song oriented than Alchemy. With Alchemy I just wanted to do a guitar album that would blow everybody away with intensity. War still has very intense guitar playing, but the songs have catchier riffs.</p>
+<p> Yermola: Can you tell us more about Mark Boals and Jeff Scott Sotto? I mean - do you have some problems with Mark and why you have replaced him? We knows that both of them are very good singers, but Mark's vocal is higher than Jeff (but maybe Jeff's voice is stronger).</p>
+<p> Yngwie: Jeff has a very powerful voice, but of course he does not have quite the high range that Mark had. Regarding Mark... In the US I am getting major marketing and promotion now with Spitfire Records. I have been on VH1, Billboard and now over 130 radio stations. I leave for a 30 day tour with Dio tomorrow and will soon be touring Europe and Asia. Because of all the expenses being paid for marketing, the tour budget was tight. Mark simply wanted more money to be on the tour and the budget did not allow it. That was all there was to it. Mark does have excellent pitch and range, the only area where he is not 100% what I desire as a singer is with his power. He does not have a full powerful tone, he can sound thin at times. But he is very good overall.</p>
+<p> Yermola: What do you think about piracy copies of your albums? For your information this market is very strong in some countries and especially in Russia. Similar monthly salary is around 100-300$ and people prefer to buy piracy CD with cost around 1-3 dollars! It's a big problem for official distributors and musicians too I think. So, do you think that this situation is good for melomans here?</p>
+<p> Yngwie: I understand the problem in areas of thw world where economies are tough, but honestly theft is theft no matter how you look at it. I especially disagree with companies like Napster where kids upload albums and then share them for free. There is no way to rationalize or justify this... it is stealing period !</p>
+<p> Yermola: All of us remembered your Leningrad Show in Russia - you was first guitar hero who visited our country after falling of communism. So, do you remember this session (I mean some memories about, maybe fun stories, fans reaction e.t.c.)? Do you have some plans to visit Russia again (maybe during your War Tour)?</p>
+<p> Yngwie: Well that was a long time ago (HA HA). We are trying to make arrangements to play the WAR tour there, but it is tough to get things locked in.</p>
+<p> Yermola: What about your favourite own album?</p>
+<p> Yngwie: I like my Alcatrazz album with Graham Bonnett, this new one of course WAR TO END ALL WARS, Trilogy, Alchemy and Seventh Sign among the best.</p>
+<p> Yermola: There are a lot of new guitar masters right now, what do you think about them? Do you know somebody and who do you like?</p>
+<p> Yngwie: I really don't listen much to other guitar players and bands. I saw a magazine with tis group called Slipknot or something like that wearing clown and halloween masks and thought "What kind of joke is that ?". I occassionally turn on the radio and hear bands like Limp Bizkit and shake my head in disbelief... Not musical at all. I listen more to old Deep Purple and bands like that as well as classical music.</p>
+<p> Yermola: As I think you are the best modern musician who plays classic composers as Vivaldi, Beethoven and so on. It will be great idea for you to record some only classical album. We got your "Concerto for guitar and orchestra" and we got your vision of your own opuses in this style. But it will be very interesting for fans to get your vision of... "Le Quattro Stagione" Vivaldi concerto for example. Or your favourite barocco composers... I don't know....</p>
+<p> Yngwie: In June, I will be performing the Concerto with a live orchestra for three (3) sold out nights. There are plans for me to do another Concerto 2 album in the future but it takes me longer to write classical pieces than it does rock pieces.</p>
+<p> Yermola: In Russia we have some famouse guitar player as Victor Zinchuk who plays in very the same style as you. Do you know something about him? He has some tours in Europe with his visions of Bach, Shubert, Vivaldi.</p>
+<p> Yngwie: I have heard of him but am not closely familair with his work. I hope you like WAR.</p>
+<p> Thanks and Play Loud Pal !</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Tour dates 3
+
+<p>VINTERSORG<BR>4/6 Convention Hall - Asbury Park, NJ ^Metal Meltdown^<BR>4/8 Le Medley - Montreal, QUE w/Anhkrehg, Migister Dixit, etc<BR><BR> <BR>YNGWIE J. MALMSTEEN w/ Lizzy Borden<BR>3/11 Canyon Club - Dallas, TX<BR>3/12 Numbers - Houston, TX<BR>3/13 Sunset Station - San Antonio, TX<BR>3/14 The Back Room - Austin, TX<BR>3/16 Five Points Music Hall - Birmingham, AL<BR>3/17 328 Performance Hall - Nashville, TN<BR>3/18 The Masquerade - Atlanta, GA<BR>3/19 Frankie's Patio Bar & Grill - Tampa, FL<BR>3/20 Orbit - Boynton Beach, FL<BR>3/21 Lillian's - Jacksonville Beach, FL<BR>3/23 Tremont Music Hall - Charlotte, NC<BR>3/25 NorVA Theater - Norfolk, VA<BR>3/26 Ziggy's - Winston-Salem, NC<BR>3/27 House of Blues - N. Myrtle Beach, SC<BR>3/28 Jaxx - W. Springfield, VA<BR>3/29 Mulcahy's - Wantagh, NY<BR>3/30 Birch HIll - Old Bridge, NJ<BR>3/31 Saratoga Winners - Cohoes, NY<BR>4/1 Webster Theater - Hartford, CT<BR>4/4 Beehive Theater - Pittsburgh, PA<BR>4/5 Sideshow Music Hall - Lackawanna, NY<BR>4/6 Dock's Concert Hall - Toronto, ONT<BR>4/7 Harpo's - Detroit, MI<BR>4/8 The Odeon - Cleveland, OH<BR>4/10 Newport Music Hall - Columbus, OH<BR>4/11 House of Blues - Chicago, IL<BR>4/12 The Rave - Milwaukee, WI<BR>4/13 Fine Line Music Cafe - Minneapolis, MN<BR>4/14 Rnach Bowl Ent. Center - Omaha, NE<BR>4/17 The Pageant - St Louis, MO<BR>4/18 The Beaumont Club - Kansas City, MO<BR>4/20 Ogden Theater - Denver, CO<BR>4/21 Colorado Music Hall - Colorado Springs, CO<BR>4/23 The Metro - Tucson, AZ<BR>4/24 Cane's Bar & Grill - San Diego, CA<BR>4/25 Ventura Theater - Ventura, CA<BR>4/26 House of Blues - Los Angeles, CA<BR>4/27 House of Blues - Las Vegas, NV<BR>4/28 House of Blues - Anaheim, CA</P></p>
+
+Автор: Yermola
+
+### 30.03.2001 news All Star Project...
+
+<p>Гитарист "VANIZE" Rolf Munkes для своего второго сольника собрал супер-звездную команду: клавиши - Don Airey ("RAINBOW"), вокал - Lance King ("BALANCE OF POWER") и Mark Boals ("ex-YNGWIE MALMSTEEN"). Микшировать альбом в Cologne’s ROXX Studios будет барабанщик "ACCEPT" - Stefan Kaufmann.</p>
+
+Автор: Yermola
+
+### 30.03.2001 news solo effort from VANIZE guitarist Rolf Munkes...
+
+<p>The upcoming second solo effort from VANIZE guitarist Rolf Munkes will feature a guest appearance from former RAINBOW keyboardist Don Airey. The as-yet-untitled album will also include an appearance by BALANCE OF POWER singer Lance King and ex-YNGWIE MALMSTEEN vocalist Mark Boals. Former ACCEPT drummer Stefan Kaufmann will be mixing the CD at Cologne’s ROXX Studios during June.</p>
+
+Автор: Yermola
+
+### 02.04.2001 news Альбом о Мишеле Нострадамусе...
+
+<p>Новый проект с участием известных музыкантов. Гитарист Nikolo Kotzev и команда "NOSTRADAMUS" записали рок-оперу (еще одна!!!) посвященную известному астрологу. Двойной альбом выходит через немецкую SPV Records в Европе 21 мая. Японский релиз ожидается 5 апреля, дата американского еще не уточнена. Более 100 минут музыки и симфонический оркестр из 35 человек. Среди вокалистов: G&ouml;ran Edman (GLORY / ex-YNGWIE MALMSTEEN), Glenn Hughes (ex-DEEP PURPLE / BLACK SABBATH), J&oslash;rn Lande (YNGWIE MALMSTEEN / ARK / MILLENNIUM), Joe Lynn Turner (ex-RAINBOW / YNGWIE MALMSTEEN), Doogie White (ex-RAINBOW), Alannah Myles, Sass Jordan. Более подробная информация на сайте www.nostramusic.com.</p>
+
+Автор: Yermola
+
+### 02.04.2001 news Michel de Nostredame....
+
+<p> NOSTRADAMUS, guitarist Nikolo Kotzev's rock opera about the famous Michel de Nostredame, will be released through Germany’s SPV Records in Europe on May 21st. The Japanese release date is set for April 5th, while the American details are still being worked out. Nostradamus will be released on a double CD and will contain more than 100 minutes of music, featuring a 35-piece symphonic orchestra along with a hard rock band and the following seven singers:</p>
+<p></p>
+<p> Gцran Edman (GLORY / ex-YNGWIE MALMSTEEN)</p>
+<p></p>
+<p> Glenn Hughes (ex-DEEP PURPLE / BLACK SABBATH)</p>
+<p></p>
+<p> Jшrn Lande (YNGWIE MALMSTEEN / ARK / MILLENNIUM)</p>
+<p></p>
+<p> Joe Lynn Turner (ex-RAINBOW / YNGWIE MALMSTEEN)</p>
+<p></p>
+<p> Doogie White (ex-RAINBOW)</p>
+<p></p>
+<p> Alannah Myles</p>
+<p></p>
+<p> Sass Jordan</p>
+<p></p>
+<p> More information can be obtained by visiting the official NOSTRADAMUS web site: www.nostramusic.com.</p>
+<p></p>
+
+Автор: Yermola
+
+### 10.04.2001 news Канадские приключения YNGWIE MALMSTEEN ....
+
+<p>Во время нынешнего канадского тура на голову бедолаги Ингви, посыпались всевозможные проблемы, благодаря которым команде пришлось выступать в Торонтских "Доках" в слегка...э-э-э..усеченном составе, а именно без вокалиста и клавишника (?!?). Оказалось, что (ныне уже уволенный!) менеджер не оформил правильно визы и соответствующие документы на всех участников группы. В итоге публику развлекали: сам Ингви, барабанщик John Macaluso и бассист Randy Coven. По словам маэстро: "Я был поставлен перед выбором, или отмена концерта или следование старому принципу шоу-бизнеса ‘the show must go on’".</p>
+
+Автор: Yermola
+
+### 10.04.2001 news YNGWIE MALMSTEEN was forced to perform at The Docks in Toronto ....
+
+<p>As reported yesterday, YNGWIE MALMSTEEN was forced to perform at The Docks in Toronto on Friday, April 6th with a reduced, three-piece band after it was discovered that proper visas and work permits had not been secured for his entire group by the time they got to the Canadian border. Yngwie, drummer John Macaluso, and bassist Randy Coven reportedly performed a full set as a power-trio and, by all accounts, did an admirable job considering the unusual circumstances. However, it appears that some fans had registered complaints through the guitarist’s official web site, thus prompting Yngwie to respond on Sunday with the following “official” statement: "Friday night's show in Toronto Canada was a tough call for me to make". "Early in the week, we learned that the tour manager (who had to be fired for several reasons), had not secured proper paperwork (visas, work permits) for all the band members in all tour countries. I was faced with the choice of cancelling the show altogether or following the old show-business slogan of ‘the show must go on.’ We had just played near Buffalo the night before, which is relatively close to Toronto, but it has been quite some time since I played in Canada and a large amount of fan mail has been asking for me to play there again. "We spoke with the promoter and many others for their opinions, and the consensus of opinion was that people come to an Yngwie Malmsteen show to see Yngwie Malmsteen, and it would be a bigger disappointment to cancel the show altogether. I don't like to disappoint fans, which is why I give 110% when I am playing on stage. "I wish the entire band could have been with me on stage that night instead of sitting at the border on top of boxes of merchandise. I wanted to at least give the people of Toronto all I could give them under the circumstances rather than cancel the show, walk away, and give them nothing at all." --Sincerely, Yngwie Malmsteen”</p>
+
+Автор: Yermola
+
+### 12.04.2001 news YNGWIE MALMSTEEN отменил шоу с 10 по 16 апреля....
+
+<p>Продолжаются неприятности у Ингви Мальмстина. После прошедших за кулисами разборок с вокалистом Jorn Lande и барабанщиком John Macaluso (на которые даже приходилось вызывать полицию!) оба они решили оставить команду прямо посередине тура. Похоже, что завершать гастроли будет уже новая команда... Ингви срочно через своего флоридского менеджэра пришлось искать замену. Пока что, достигнута предварительная договоренность с Jeff Scott Soto (вокал) и Barriemore Barlow (барабаны). Оба они были в оригинальном составе "RISING FORCE" и вобщем-то, именно они помогли создать узнаваемый саунд группы и с ними были записаны самые удачные и ставшие классическими альбомы. Оставшиеся члены команды (клавишник Mats Olausson, бассист Randy Coven, техники и Ингви) сейчас возвращаются в Майами для активных репетиций с новыми участниками. Возобновление тура назначенно на 17 апреля в зале "Pageant" (St Louis).</p>
+
+Автор: Yermola
+
+### 12.04.2001 news YNGWIE MALMSTEEN Shows Cancelled for April 10-16th;  New Band To Finish Tour.. Possibly With Original RISING FORCE Members
+
+<p>Press Release: As many of you have already heard from the Internet, singer Jorn Lande was involved in a dispute backstage before the show in Cleveland, Ohio, on Sunday April 8. The dispute elevated to a point which prompted security personnel to call in the local police. Being a close friend of Lande's, drummer John Macaluso felt a loyalty to Jorn and has also left the band. This sudden unexpected departure of both the singer and drummer forces Yngwie Malmsteen to cancel the following shows... April 10 - April 16. Following this incident, Yngwie phoned his manager in Florida and the two have spent several hours on the phone speaking with musicians who expressed an interest in filling these spots. At this time, the top two prospects to join Yngwie on the road are Barriemore Barlow on DRUMS and Jeff Scott Soto on VOCALS. (Note: Nothing is confirmed at this time). If this is confirmed on Tuesday or Wednesday of this week, this would be a blessing for Yngwie fans as they are both members of the ORIGINAL RISING FORCE line up. Jeff Scott Soto is usually considered the # 1 Yngwie singer of all time. Barlow was the drummer on Yngwie's first solo album and thus played on classic songs such as "Black Star", "Evil Eye", and "Far Beyond the Sun". Yngwie, [keyboardist] Mats [Olausson], [bassist] Randy [Coven], and crew are now on their way back to Miami to regroup. The plan is to carry out a 4-5 day intensive rehearsal and be back on the road TUESDAY, APRIL 17 to perform at the Pageant in St Louis. This is the best recovery method available under the circumstances. Yngwie Malmsteen expresses deep regret that these circumstances arose in the midst of such a strong resurgence in the United States and sends his apologies to those fans who will be affected by the cancelled shows. Updates will be posted as available.</p>
+
+Автор: Yermola
+
+### 13.04.2001 news Сообщения с другой стороны баррикад......
+
+<p>В дополнение к уже опубликованному нами пресс-релизу от Ингви, стало известно и мнение противной стороны. Во-первых "прижимистый" Мальмстин уже несколько недель не платил вокалисту зарплату и это собственно и послужило причиной спора и дальнейшей потасовки. Йорну Ланде пришлось за свои деньги лететь во Флориду, а оттуда уже за счет его записывающей компании (Now & Then / Frontiers Records) - домой в Норвегию. Также Йорн был просто потрясен организацией тура, в частности визами и прочими вещами для пересечения канадской границы. Кстати теперь обязанности уволенного тур-менеджера исполняет его же....теща(!!!). Барабанщик Джон Макалузо также был удивлен экономией Ингви на гостинице для него. Тот, зная, что Джон родом из Нью-Йорка, во время американской части тура, предложил ему ездить ночевать к родителям (2 часа езды!). В добавок, во время потасовки барабанщик сломал два пальца (Уау! Ингви!!!) и доктор посоветовал ему длительное время воздержаться от игры на барабанах. Мда-а-а-а...</p>
+
+Автор: Yermola
+
+### 13.04.2001 news Jorn Lande and drummer John Macaluso leaving the YNGWIE MALMSTEEN ....
+
+<p> The events leading up to singer Jorn Lande and drummer John Macaluso leaving the YNGWIE MALMSTEEN tour prior to the Clevelend, Ohio show on Sunday, April 8th were more complicated and less complimentary towards the Swedish guitarist than Yngwie's offical press release would have everyone believe, with Lande reportedly not having been paid his salary for the last few weeks of the tour, thereby leaving the singer no way to get home. Luckily, he managed to arrange a flight for himself to Florida, where he is staying until today, Thursday, April 12th, before flying home to Norway on a flight booked by his record company (for Jorn’s solo project), Now & Then / Frontiers Records.</p>
+<p></p>
+<p> As previously reported, Jorn was stranded this past weekend at the Canadian border with Mats Olausson after the tour manager did not process visas and work permits for Mats or Jorn in time for the Toronto show, thereby preventing the pair from crossing the border to play the gig. The tour manager was subsequently fired, and his mother-in-law (!?) is reportedly now undertaking the role. Moreover, according to melodicrock.com, drummer John Macaluso had recently broken two of his fingers, with doctors advising him he should not be playing at all. But, he had been continuing the tour without getting his money either and also despite not having a hotel room arranged for him in New York. John complained, but as John is from New York, [Yngwie and the tour manager] didn't see the need for a room for him and suggested he should drive the 2 hours out of town to his family home despite being told by the doctor to do nothing other than play drums.</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 16.04.2001 news Нет повести печальнее на свете....чем повесть о гастролях Ингви в Канаде. (Продолжение)...
+
+<p>С назойливостью "мыльной оперы" продолжают появляться новости о турне Ингви Мальмстина. Похоже Ингви рискует остаться "без наследства"... Обещанный на прошлой неделе Jeff Scott Soto на своем сайте сообщил, что возможно примет участие в Европейской и Азиатской частях, но не в американской... Таким образом Канадско/Американские гастроли под большим вопросом. Что касается поднятого экс-вокалистом и барабанщиком денежного вопроса, представитель менеджмента Мальмстина - Mike Spitzer сообщил: "Зарплата команде выплачивалась регулярно - раз в неделю. Часть команды запросила получение оплаты в виде банковского перевода на счета в их банках, что означало некоторую задержку в подтверждении между банками (особенно иностранными)." Сейчас ведутся переговоры с Jeff Scott Soto, Mark Boals, Barrymore Barlowe, Doogie White, Ray Luzier и возможно проблема будет скоро решена...</p>
+
+Автор: Yermola
+
+### 16.04.2001 news YNGWIE MALMSTEEN&#39;s news....
+
+<p>According to a posting on vocalist Jeff Scott Soto's official web site, it appears that the remainder of YNGWIE MALMSTEEN's U.S. tour is being canceled, and that Jeff will, unfortunately, not get to do any US gigs with YNGWIE at this time. Apparently, there may still be a chance that Jeff will hook up with MALMSTEEN for a European or Asian tour, but nothing has been confirmed as of yet. This follows a particularly bad week for the guitarist, which saw singer Jorn Lande and drummer John Macaluso walk out of the band prior to the group's scheduled performance in Cleveland, Ohio on Sunday, April 8th. Meanwhile, YNGWIE MALMSTEEN's management company representative, Mike Spitzer, has responded to the Internet reports that painted a less-than-flattering picture about the Swedish guitarist's role in the events that led to vocalist Lande and Macaluso leaving the band mid-tour in Cleveland. The following is Spitzer's official response to the account that was first reported via melodicrock.com: "The band was being paid a flat salary on a weekly basis. Some members requested bank wire transfers to their personal banks, which meant, of course, they had little cash on hand. In the case of a few people (especially foreign members), there were delays in wire transfers and confirmations between the banks, so although the weekly pay may have been running several days late most of the time, everybody was in fact getting paid regularly. Does anyone who read this report honestly think the remainder of the band is out there working for free? "Nonsense... of course not. The very premise of this report is flawed. With the firing of the tour manager, things did indeed get a bit disorganized on the road in terms of some hotel reservations, daily planning and such. In these instances, group co-operation to solve the immediate problem would have been preferred over emotional fits of anger over relatively minor incidents like a hotel room not being ready (i.e.. pay cash and go to a different hotel... Settle up in the morning.. Easy!). "The story reported on MelodicRock suffers from creative embellishment and an attempt at stirring drama to incite readers. In the end, this falls back to the old adage...... "There are 2 sides to every story and the reality is always somewhere in the middle". "The cold hard facts are this was a marriage not meant to work and the two (2) members of ARK are now back doing their own thing. "No hard feelings on this end. "Meanwhile, the last two days have been spent speaking with Jeff Scott Soto, Mark Boals, Barrymore Barlowe, Doogie White, Ray Luzier and a number of other musicians .. ALL of which have an interest in joining back up on this tour. "If it were not for the tight tour budgets bands face today, I would suggest we bring BOTH Jeff Soto and Mark Boals on the road to share singing duties on different songs, but alas, that would be too costly. "After all, over the years when you look at Goran Edman, Joe Lynn Turner, Mats Leven, Mike Vescera, etc... It is always Jeff and/or Mark who people want to see fronting RISING FORCE and it is these guys who always maintain their long tie to Yngwie. "Time to move on and set up the touring band we should have had in the first place. "Mike Spitzer Mgmt. — YNGWIE MALMSTEEN". Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 28.04.2001 news Mark Boals и Ингви...
+
+<p>Mark Boals согласился стать заменой ушедшему Йорну Ланде в туре "YNGWIE MALMSTEEN". Боалз уже получил и подписал финальный вариант контракта и сейчас вылетел во Флориду для репетиций. По словам вокалиста: "Он решил присоединиться к туру, чтобы выручить Ингви и также встретиться со своими фанатами".</p>
+
+Автор: Yermola
+
+### 28.04.2001 news Mark Boals has finally accepted MALMSTEEN&#39;s invitation .....
+
+<p>Former YNGWIE MALMSTEEN vocalist Mark Boals has finally accepted MALMSTEEN's invitation to take part in the guitarist's upcoming Japanese and European tours in the place of the recently-departed Jorn Lande, who left the axeman's US tour prior to the group's scheduled performance in Cleveland on April 8th. Boals has reportedly received the final draft of his contract with YNGWIE and is leaving for Florida today to begin rehearsing for the upcoming tour. According to an official statement, "Mark Mark decided to [join] the tour simply because [he wanted] to help YNGWIE's tour and meet Mark's fans' great expectation. Mark always trusts his fans [to know what's] best. The things which begin from pure good will should always bring good results." Source BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 14.06.2001 news YNGWIE MALMSTEEN ищет новый лэйбл....
+
+<p>YNGWIE MALMSTEEN вынужден искать новый лэйбл в Европе, поскольку его контракт на шесть альбомов с английской Dream Catcher Records закончился с выходом "War To End All Wars". Менеджер Ингви Michael Spitzer сообщил, что следующим релизом будет DVD/CD "Concerto for Orchestra and Electric Guitar in E Flat Minor" с японским филармоническим оркестром. Запись пройдет с 15 по 17 июня в Токио и будет выпущена через Pony Canyon Records. После этого гитарист вернется к работе с традиционным хард-рок/металлическим альбомом, который должен выйти в начале 2002.</p>
+
+Автор: Yermola
+
+### 14.06.2001 news Guitar virtuoso YNGWIE MALMSTEEN is reportedly looking .....
+
+<p>Guitar virtuoso YNGWIE MALMSTEEN is reportedly looking for a new label home in Europe following a six-album stint (including live and "best of" releases) with the UK's Dream Catcher Records that ended with the release of last year's War To End All Wars CD. According to the guitarist's manager Michael Spitzer, YNGWIE's next release will be a live DVD/CD package of his Concerto for Orchestra and Electric Guitar in E Flat Minor with the New Japan Philharmonic Orchestra, the recording of which will take place June 15-17th in Tokyo and will be released in that territory by Pony Canyon Records. Negotiations are reportedly in place with PBS in the US to nationally broadcast this classical performance. Following this release, YNGWIE will return to his trademark brand of hard rock/metal for the next album, which is not expected until early 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.06.2001 news BEYOND TWILIGHT - скандинавский прог&#x2F;пауэр проект...
+
+<p>Ушедший от Ингви Мальмстина вокалист Jorn Lande (также MILLENIUM/ARK) и клавишник Finn Zierler (TWILIGHT) создали прог/пауэр проект "BEYOND TWILIGHT" и 23 июля уже выпускают дебютный диск "The Devil's Hall Of Fame". Продюссировал альбом Томми Хансен. Будут следующие песни: 01. Hellfire 02. Godless And Wicked 03. Shadowland 04. The Devil's Waltz (instr.) 05. Crying 06. The Devil's Hall Of Fame 07. Closing The Circle (instr.) 08. Perfect Dark</p>
+
+Автор: Yermola
+
+### 18.06.2001 news BEYOND TWILIGHT, the new Scandinavian prog&#x2F;power ....
+
+<p>BEYOND TWILIGHT, the new Scandinavian prog/power metal project featuring MILLENIUM/ARK singer Jorn Lande and TWILIGHT keyboardist Finn Zierler, will be issuing their debut album, The Devil's Hall Of Fame, on July 23rd. Produced by Tommy Hansen (PRETTY MAIDS, HELLOWEEN), the CD will include the following track listing: 01. Hellfire 02. Godless And Wicked 03. Shadowland 04. The Devil's Waltz (instr.) 05. Crying 06. The Devil's Hall Of Fame 07. Closing The Circle (instr.) 08. Perfect Dark Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.07.2001 news Ингви Мальмстину придется прищуриться.....:-)))
+
+<p>Китайское правительство после супер-успешного концерта Ингви в Гонг-Конге, предложило гитаристу сыграть несколько шоу в поднебесной. Тур пройдет по Пекину, Шанхаю, Ксияну и нескольким другим городам. Во всех сэйшенах сопровождать Мальмстина будет Национальный Симфонический Оркестр. После прослушивания, члены правительства официально заявили: "Музыка Ингви не похожа на типичную "западную", а вместо этого соединяет в себе потрясающую технику и мелодизм...". Также, в заявлении гитарист был назван "современным Моцартом, только с электричеством...".</p>
+
+Автор: Yermola
+
+### 03.07.2001 news YNGWIE MALMSTEEN received a special invitation from the members of the Chinese government.....
+
+<p>According to the guitarist’s official web site, YNGWIE MALMSTEEN received a special invitation from the members of the Chinese government to be one of the few Western musicians ever to tour the whole of China. After reportedly witnessing the axeman’s performance in Honk Kong, the government officials commented that “YNGWIE's music was not like the typical western music they hear, but instead contained complex technique and melodic content which they find lacking in most modern-day Western music”, going as far as to refer to YNGWIE as a "modern-day Mozart with electricity". As a guest of the Chinese government, YNGWIE would be performing both rock shows and Concertos with the Chinese National Orchestra in Beijing, Shanghai, Xian, and many other cities throughout China. More information on this as it becomes available. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.08.2001 news YNGWIE и DOD выпускают примочку...
+
+<p>Известный производитель DOD/Digitech скооперировавшись с неким YNGWIE MALMSTEEN разработали и выпустили педаль эффектов для гитары. Overdrive/Preamp - создана на базе полюбившейся Ингви модели 70-х годов - DOD Overdrive 250. Новая примочка называется - "YJM 308".</p>
+
+Автор: Yermola
+
+### 16.08.2001 news &quot;YJM 308&quot; pedal...
+
+<p>DOD/Digitech is moving ahead with the production and issue of a special Overdrive/Preamp pedal based on one of YNGWIE MALMSTEEN's favorite personal old gray DOD Overdrive 250 pedals from the 70's. This new pedal will be called the "YJM 308" pedal. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Новая команда Ингви...
+
+<p>Шведскому вундеркинду удалось наконец-то полностью укомплектовать состав своей группы для продолжения тура по Южной Америке (с 12 по 30 сентября). Если все пойдет по плану, то этот состав и будет записывать новый альбом гитариста в 2002. Итак, line-up таков: <br> Doogie White (RAINBOW) – вокал<br> Yngwie J. Malmsteen - гитара<br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - клавиши<br> Mick Cervino (BLACKMORE' S NIGHT) - басс<br> Patrik Johansson (STORMWIND) – барабаны.</p>
+
+Автор: Yermola
+
+### 23.08.2001 news YNGWIE MALMSTEEN has assembled ...
+
+<p>Swedish axe-hero YNGWIE MALMSTEEN has assembled a 100% new band for his upcoming South American tour, which is scheduled to take place between September 12th and September 30th. According to official sources, if the chemistry of this team gels, this line-up may also appear on the guitarist’s next studio album, which is not due to emerge until sometime in 2002. The line-up for the South American tour is as follows: <br> Doogie White (RAINBOW) – vocals <br> Yngwie J. Malmsteen - guitars <br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - keyboards <br> Mick Cervino (BLACKMORE' S NIGHT) - bass <br> Patrik Johansson (STORMWIND) – drums. <br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.10.2001 news Уроки американского патриотизма от Ингви Мальмстина...или Боже, благослови Америку!
+
+<p>Сегодня утром многие средства массовой информации осветили событие произошедшее во время южно-американских гастролей гитариста. А именно: во время концерта в бразильском Порто-Алегре во вторник 2-го октября, команде пришлось спастись бегством со сцены и оставить всю аппаратуру на растерзание возмущенной толпы зрителей... Как объяснил по этому поводу единственный 100% американец в группе - Дерек Шериньян (ex-DREAM THEATER): "...Прежде всего, я хотел бы сказать, что я не поклонник использования статуса музыканта для пропаганды политических или религиозных взглядов... То что случилось прошлой ночью в Porte Allegre, Brazil - было шокирующим... Примерно посередине выступления, Ингви завершил свое соло фрагментом из "Star Spangled Banner". Толпа примерно в 1500 человек начала кричать "Бу-у-у-у" и бросать всякое дерьмо на сцену... Видеть по CNN анти-американские настроения - это одно, а оказаться посередине их - это по настоящему страшно... После того соло мы сыграли еще где-то пять песен... И после этого мы все отправились в гримерную. Я сказал: "Я отказываюсь выходить на бис при любых обстоятельствах, пошли они все на XXX"... После моих слов Ингви вернулся на сцену один и снова сыграл "Звездно-полосатое Знамя" для кричащего хора толпы и затем сказал в микрофон: "Боже, благослови Америку и пошли вы все на XXX!!!" и ушел со сцены... Толпа немедленно начала швырять что попало на сцену и мы сразу же вернулись в отель." И напоследок Дерек добавил: "Вы, люди из Порте-Аллегре, вам должно быть стыдно. Я никогда наXXX не буду играть снова в вашем городе из третьего мира наполненным крестьянами. Боже, благослови Америку!"</p>
+
+Автор: Yermola
+
+### 05.10.2001 news God bless America...
+
+<p>A minor riot erupted at the conclusion of YNGWIE MALMSTEEN’s headlining show in Porto Alegre, Brazil on Tuesday, October 2nd, causing the band to storm off the stage and leaving the group’s equipment vulnerable to damage as a result of the angry crowd throwing objects in protest over the way the concert ended. Here is a letter from YNGWIE MALMSTEEN touring keyboardist Derek Sherinian (ex-DREAM THEATER) explaining the events leading up to the riot and his feelings on the matter: "First of all, I would like to preface this letter by saying that I am not a fan of one using their musical status to promote religious or political beliefs. I am also not one to post on message boards, but something happened to me on stage last night that I feel compelled to write this letter. “I am currently the only American in YNGWIE MALMSTEEN's touring band. “What happened at last night's gig in Porte Allegre, Brazil was shocking. “Midway through the set, YNGWIE finished his guitar solo spot with the ‘Star Spangled Banner’. The crowd of about 1,500 people started immediately booing very loudly, and throwing sh.t on stage. “To see the Anti-American rallies on CNN is bad enough, but to be in the middle of one is scary beyond words. “So after YNGWIE's solo we had about 5 more songs to play. All of my spirit was gone. I finished the set disgusted, and without looking at the crowd for the rest of the show. “After the final song, the band went to the dressing room. I told YNGWIE, ‘I refuse to go out for the encore under any circumstances, F.CK THESE PEOPLE.’ “YNGWIE went back on stage by himself and played the ‘Star Spangled Banner’ again to a choir of loud boos. He then said on the microphone, ‘God Bless America, and F.CK YOU ALL’ and walked off stage. “The crowd went into a riot and started throwing sh.t on stage. We immediately were rushed back to our hotel. I have no idea of the status of our gear. I want to thank YNGWIE for taking my back, and for standing up for the USA. “To the people in Porte Allegre, you should be ashamed of yourselves. I don't give a fuck if I ever play your peasant infested third world city again. "God bless America, Derek Sherinian” Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 30.10.2001 reviews Война не состоялась...
+
+<p>Ну что я могу сказать, объявленное Маэстро побоище ... не состоялось. На мой взгляд (и к сожалению) это самый слабый альбом Ингви (после Eclipse!). Не знаю внутренний ли кризис тому виной, или вечные проблемы с составом и "альтер эго", но ничем хорошим диск не порадовал. Что-то пищит некогда крутой Марк Боулз, что-то жужжит Ингви, вроде бы работает ритм-секция, при этом целой и стройной картины не наблюдается. Много вторичности и пережевывания собственных риффов и на удивление мало интересных мелодий. То и дело при прослушивании возникает ощущение какой-то "деревянности" происходящего. Очень странный и необычный саунд, то ли это была попытка нарулить что-то новаторское и очень тяжелое, то ли звукооператор пил все время сессии беспробудно (вместе с Ингви!)... Таким образом имеем... учебное пособие для начинающих соло-гитаристов или аналогичный учебный материал для практикующих психоаналитиков. Оценка 5 из 10. <BR><BR> P.S. Обложка очень подошла бы к любому альбому "Рапсодии"! :-)))</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Краеугольный камень не чуждый человеческого...
+
+<p>"CORNERSTONE" - молодой проект имеющий в своем составе экс-RAINBOW/YNGWIE MALMSTEEN вокалиста Дуги Уайт и бассиста ROYAL HUNT - Steen Mogensen сейчас микширует свой второй альбом названный "Human Stain" в копенгагенской Media Sound Studios. Руководит процессом - Peter Brander, уже делавший это на дебютнике "Arrival". Полный трек-лист: <BR> <BR> 01. Unchosen One <BR> 02. Wounded Land <BR> 03. Some People Fly <BR> 04. Singing Alone <BR> 05. House Of Nevermore <BR> 06. Midnight In Tokyo <BR> 07. Forever Young <BR> 08. Future Rising <BR> 09. Resurrection Sympathy <BR> 10. Sail On Stormy Waters <BR> 11. Candy Man</p>
+
+Автор: Yermola
+
+### 25.12.2001 news Former YNGWIE, SABBATH Members Appear On Upcoming Lana Lane CD...
+
+<p>Former YNGWIE MALMSTEEN vocalist Mark Boals has collaborated with female singer Lana Lane on the latter's new album, entitled Project Shangri-La, which is scheduled to receive a worldwide release on January 23rd. Mark is said to have contributed songwriting and vocals to the track "Time To Say Goodbye", a duet with Lana, which was reportedly “arranged to English rock style from an Italian classic aria”. Also appearing on the album is former DIO/BLACK SABBATH drummer Vinny Appice.</p>
+
+Автор: Yermola
+
+### 27.12.2001 news Мальмстин и Дуги Уайт пишут новый альбом...
+
+<p>YNGWIE MALMSTEEN записывает новый студийный альбом с экс-вокалистом "RAINBOW" - Doogie White. По словам Дуги: "Я просто счастлив поработать с Ингви.... Он попросил меня приготовить несколько собственных вещей и после Нового Года мы будем работать над ними.... Также нам придется проехаться с туром по Китаю в рамках завершения [War To End All Wars]... " <BR><BR> Из других новостей, Дуги Уайт исполнил "Gethsemane" из Jesus Christ Superstar во время шоу в Лондоне. "Я всегда хотел спеть ее..." прокомментировал он. Также вокалист записал бэкграунд вокалы к треку "Sunshine on a Rainy Day" Эммы Бантон...</p>
+
+Автор: Yermola
+
+### 27.12.2001 news MALMSTEEN To Collaborate With Former RAINBOW Vocalist On Upcoming CD...
+
+<p>YNGWIE MALMSTEEN is due to begin writing material for his forthcoming studio CD shortly, and if all goes according to plan, former RAINBOW and current MALMSTEEN vocalist Doogie White will be contributing to the process. According to White, "I am really excited about the challenge of working in a recording situation with YNGWIE. We will exchange ideas early in the New Year and see if it's possible to write together. I know that writing for him is a solitary pursuit, but he has asked me to bring in some ideas and I am really happy to do that. There is also the possibility of a tour of China early in the year to finish the [War To End All Wars] album tour." In other Doogie White-related news, the singer recently performed "Gethsemane" from Jesus Christ Superstar at a theater show in London. "I've always wanted to sing 'Gethsemane' and after the disappointment of losing out on the part this time last year, I jumped at the chance to sing it, if only this once,” Doogie commented. “It was nerve wracking as hell but tons of fun." Following his performance he was approached by a theatrical agent keen to work with him in the future. "It's something that I can consider for later on,” White stated. “In the meantime I am concentrating on putting together ideas for YNGWIE's next album." Also on the White front, CORNERSTONE—the project featuring Doogie and ROYAL HUNT bassist Steen Mogensen—will issue their second album, entitled Human Stain, on February 25th through Massacre Records. Finally, White did backing vocals for Baby Spice Emma Bunton on a track called "Sunshine on a Rainy Day", which appeared on the latter singer's A Girl Like Me CD, released earlier in the year.</p>
+
+Автор: Yermola
+
+### 18.01.2002 news План Мастера или Мастер Плана?!?!
+
+<p>Бывшие участники "HELLOWEEN" Roland Grapow и Uli Kusch выбрали название "MASTERPLAN" в качестве имени своего нового проекта и пригласили ex-YNGWIE MALMSTEEN/ARK вокалиста Jorn Lande присоединиться к группе. По словам Роланда, Йорн был выбран из многих как наиболее прибилженный к классическим Дио/Ковердэйлу. Ланде уже успел записать с новой командой кавер Лэд Зеппелин “Black Dog”, который выйдет на трибьютном диске Испанского лэйбла Locomotive Music весной. Сейчас "MASTERPLAN" планируют запись дебютника в Грапповской Crazy Cat Studio в Гамбурге с продюссером Andy Sneap и после этого будут искать контракт с выпускающими фирмами. Также известно, что бывший вокалист "HELLOWEEN" - Michael Kiske запишет партии лид-вокала в одной песне и дуэт с Йорном на второй. Если все пойдет по плану, фэны увидят (и услышат!) диск уже летом....</p>
+
+Автор: Yermola
+
+### 18.01.2002 news YNGWIE MALMSTEEN в японских чартах....
+
+<p>Ингвимальмстиновский альбом "Concerto Suite Live" занял четвертую строчку в Японском Интернэшнл Поп Чарт и 29 место в Национальном Чарте Альбомов... Также пристуствуют в International Album Chart - ENYA, BACKSTREET BOYS и MARIAH CAREY....</p>
+
+Автор: Yermola
+
+### 18.01.2002 news Former HELLOWEEN Duo Announce Name, Singer For New Project ....
+
+<p>Former HELLOWEEN guitarist Roland Grapow and drummer Uli Kusch have set MASTERPLAN as the name of their new band and have selected ex-YNGWIE MALMSTEEN/current ARK vocalist Jorn Lande to front the much-talked-about group. According to Roland, Jorn was selected in part because his approach is much more in the classic Dio/Coverdale vein than the operatic wailings that HELLOWEEN had become known for, thereby ensuring that MASTERPLAN would forge its own path and would not draw immediate comparisons to the members' previous output. Lande has thus far sung on MASTERPLAN's cover of LED ZEPPELIN's “Black Dog”, which is set to be included on an upcoming LED ZEPPELIN tribute CD, due for release via Spain's Locomotive Music in the spring. Despite the fact that the group have yet to secure a record contract, MASTERPLAN are planning on completing their debut album at Grapow's Crazy Cat Studio in Hamburg, Germany with producer Andy Sneap by the end of March before shopping around for a deal. As previously reported, former HELLOWEEN vocalist Michael Kiske will contribute lead vocals to one song, a duet with Jorn, in February, and if all goes according to plan, the CD will see the light of day sometime this summer.<BR><BR> In related news, HELLOWEEN have yet to announce the replacement for Roland Grapow, but reports indicate that the band will issue a CD of remixes and b-sides, tentatively entitled Treasure Chest, later in the year. Due to include material from the group's post-Walls Of Jericho era, the album will not contain the previously-announced new version of "Windmill" (which appeared on 1993's Chameleon), featuring Andi Deris on vocals, since the original multi-track master tapes for the song cannot be located.</p>
+
+Автор: Yermola
+
+### 18.01.2002 news YNGWIE MALMSTEEN Hits Japanese Charts ....
+
+<p>YNGWIE MALMSTEEN's Concerto Suite Live has entered the Japanese International Pop Chart at #4 and the Japanese National Album Chart #29. Also appearing in the top 4 of the International Album Chart this week are ENYA, BACKSTREET BOYS and MARIAH CAREY.</p>
+
+Автор: Yermola
+
+### 24.01.2002 articles YNGWIE TALKS TO BURRN! ABOUT HIS YEAR .....
+
+<p>YNGWIE TALKS TO BURRN! ABOUT HIS YEAR (interview conducted Feb. 2002 by: John "Shooter" Harrell / transcribed by: D. Under). Here are some highlights from Yngwie's interview in the Feb. 2002 edition of BURRN! magazine. In it Yngwie discusses his year, the WTEAW tour, WTEAW's production, line-up changes, and MORE! <BR><BR> --------------------------------------------------------------------------------<BR><BR> JH: So how was the last year?<BR><BR> YM: I was on tour continuously from November 1st 2000 till the end of October 2001.... all twelve months. It was very interesting because both the band and the crew were changed, but it wasn't that important. I'm concentrating on making some new music, and I've relaxed a bit. If I'm always working and I don't play with my little boy, he gets grumpy (laughs).<BR><BR> JH: The new live album is coming out. It's called "Concerto Suite Live for Electric Guitar and Orchestra in E flat minor, Live" which is not only a CD but a DVD...<BR><BR> YM: That's the most important part to me.<BR><BR> JH: So it's the live version of the Concerto Suite of the same name you released a few years ago isn't it?<BR><BR> YM: No. It's not at all.<BR><BR> JH: Of course some music was added though...<BR><BR> YM: It's a very big part of it. What I want to say first of all, is that this was my first experience to do this. It was a like a religious experience. Thinking about the concert with the orchestra, I think the actual performance is better than the studio version. And besides, there are 6 extra songs which were also arranged for the orchestra. They are 'Black Star', 'Far Beyond The Sun', 'Evil Eye', 'Brothers', 'Blitzkrieg' and 'Trilogy'. When I did this, I wasn't anxious or nervous, but it was very hard.<BR><BR> JH: Which part has the most intensity on "Concerto Suite Live"?<BR><BR> YM: Well, it was very very very fun to play the acoustic parts. "Fugue" is one of my favorites. I've played it during my rock shows. It was really fun to play "Far Beyond The Sun" with the orchestra. I enjoyed it with all my heart.<BR><BR> JH: Regarding the arrangements, after you'd actually played, was there any part that you thought could have been better if you'd done it a different way?<BR><BR> YM: No. There wasn't, but if I had one, I think I would have liked to add more choir parts overall. The choir was excellent. But I think that's the only part. I'm satisfied.<BR><BR> JH: How would you rate your performance at that concert?<BR><BR> YM: I'll tell my honest opinion. I think it's the most amazing thing I've ever done. It would be the greatest achievement of my career as an artist. Even now when I think back, I wonder how on earth I did it. I was a bit nervous, but realistically, when you consider that I didn;t have any time to prepare for it, it was really amazing. The result was beyond my expectations.<BR><BR> JH: Incidentally, your band has changed again. So far you've had Jorn Lande, Jeff Scott Soto...<BR><BR> YM: (interrupts) Jorn never joined my band. He's nothing to do with the band. He's a fool. He doesn't count. Never mention his name again!<BR><BR> JH: Did he interfere with your plans? Did he ruin your tour? <BR><BR> YM: No. He can't even do that! He's useless.<BR><BR> JH: But that's four singers in one year! <BR><BR> YM: Yeah I know. So?<BR><BR> JH: I've known you since the time you were in L.A., and I've never had any trouble with you or argued with you. But there are a lot of people that complain that it's hard to work with you. I read that you were saying that there's never a problem in the band as along as the members do as you say.<BR><BR> YM: That's right. It's true. My band's motto is "Yngwie or the Highway". Do you think Leonardo Da Vinci allowed someone who came later to add to his paintings? It's impossible. That's the whole issue, John. I'm not a typical rock 'n' roll guitarist, nor a simple band member. It's not my way that one of the members comes up with a riff (sings the Smoke On the Water riff) and then the bassist and singer come in and add to it. I write everything!!! If you don't like it, leave - quickly.<BR><BR> JH: As you told me while we were driving, it would be hard to find musicians who meet your ability. I saw your show in LA and Atlanta a year ago, and the band was nothing special.<BR><BR> YM: Yeah.<BR><BR> JH: But now you have Derek Sherinian playing keyboards. He's very good, and a music school graduate. You also have a great drummer in Patrik Johansson.<BR><BR> YM: He's an amazing drummer. He bashes every drum very hard night after night. Of course Derek is very good. Mick Sorvino is on bass and Doogie White who was in Rainbow is on vocals. It's a great band. Very good. I went to South America with this line-up, and I'm very satisfied. They were telling my crew everyday how fortunate they were to be in my band, so it seems they are very proud to be standing up on stage with me. I don't need them to flatter me, it's not my style. But it helps to get that gratitude for my situation. It's made clear that it's not appropriate in this place for idiots to complain to everybody if the hotel's not booked or to get angry is they haven't received their weekly $100 extra. Unfortunately, in the past few years I've had more to do with the business side than in the past, and I truly don't enjoy it. I've been doing it for my family. I have my beautiful wife and child. I have a house and a studio and they have to be paid for. So I have to calm down and make sure things are handled properly, and I have to discuss money with the band members because I came to handle the business. It's not fun at all. People who join my organization are usually very cool at first, but they become troublesome later. So this time, I decided to get a new band altogether. I fired the crew and that was very effective. <BR><BR> JH: Last time you went to Japan, Tim Donahue was with you on drums, and you said that he was a great drummer.<BR><BR> YM: Yeah, he is great. <BR><BR> JH: What happened to him? Why did he disappear? <BR><BR> YM: I decided to eliminate everything and replace everyone. If one person remains, it wouldn't be completely new. I parted ways with the band, crew, everyone, and said "See Ya!". They were always something that had a bad influence. They were tiny parts that are replaceable. They were not essential.<BR><BR> JH: So, are you going to make your new album, with this lineup of Doogie, Derek, Patrik and Mick?<BR><BR> YM: Yeah, I think so. No doubt they are candidates.<BR><BR> JH: Please don't produce the album yourself this time!<BR><BR> YM: Why?<BR><BR> JH: "War To End All Wars" was awful! There were good songs, but the sound was terrible. It made the whole record awful.<BR><BR> YM: That's not my fault.<BR><BR> JH: You were the producer. Why is it not your fault? Who's fault is it then?<BR><BR> YM: It's a petty engineer's fault, not mine.<BR><BR> JH: Really? I looked forward to that album, but when I heard it, I thought there was no quality control, and I wondered why you released such a disappointing album in that state.<BR><BR> YM: It's simple. I only had enough money to hire a terrible person who wasn't an engineer whatsoever because I was firing Jim Lewis. That guy worked on the drums (sounds). So the other parts sounded great in every way, but with the drums it was different. That gives the impression of a bad sounding album. I'll admit that. But the album had great songs and at the live shows they were great, in fact the best.<BR><BR> JH: I think if the sound was good, the impact of the songs would have been stronger.<BR><BR> YM: I agree with you.<BR><BR> JH: But you wont talk about Jorn? (laughs) <BR><BR> YM: Who cares about Jorn? Why do you want to talk about him? No one is interested. Who is he? Did he suddenly become Robert Plant?<BR><BR> JH: After the incident in Cleveland, he talked about what happened, from his point of view, and criticized your side, your wife and her family. So, did you fire all of the band members at that time because they were all members of ARK? That was my guess, and it's not far from the truth, is it?<BR><BR> YM: Who's ARK. Is it for us to talk about? Is it such an important band? Are they such an incredible band that will turn the world upside down? I don't think so!<BR><BR> JH: Can you see yourself doing another gig like in Alcatrazz or playing with Deep Purple?<BR><BR> YM: You know, I don't like saying this, but they could do a lot better than what they have now. Steve Morse is a very good guitar player, but he's American and he's using humbucker pickups. If you ask me, those two are not good. I don't want to say it like this, but if they (Deep Purple) could have got me in that band they would have a performance that would blow people's head off. Even now I can play from the beginning of "Made in Japan" to the end. I can do it right now without missing a note.<BR><BR> Even now, I like the Deep Purple era from 1971/72. I don't like after that very much. I think I could do a good job as the guitarist of Deep Purple, but I'm against the idea personally. For me, Deep Purple is Richie Blackmore, and to my disappointment, Richie doesn't want to do it anymore. He wants to play acoustic now and be with his wife, so good luck to him. Let him do what he wants. <BR><BR> --------------------------------------------------------------------------------<BR><BR> Source: <a href="http://webpages.charter.net/cynthias/Burrn2002.htm">http://webpages.charter.net/cynthias/Burrn2002.htm</a></p>
+
+Автор: Yermola
+
+### 07.03.2002 news Новые гитарные усилители от Ингви и Rhino Amps
+
+<p><IMG SRC="/images/news_rus/2002.03/2507.jpg" ALT="Black Star" width="333" height="181" hspace="15" vspace="5" border="0" align="right" /> Известный шведский нарезальщик YNGWIE MALMSTEEN поимел свой собственный именной ламповый гитарный усилитель, разработанный совместно с Rhino Amps. Информацию о продукте можно почитать на сайте <A HREF="http://www.rhinoamps.com/">Rhino Amps</A>.</p>
+
+Автор: Yermola
+
+### 07.03.2002 news YNGWIE MALMSTEEN Signature Amplifier Sees Light Of Day ....
+
+<p>Legendary Swedish axeman YNGWIE MALMSTEEN has had his own Yngwie J. Malmsteen Signature Amplifier manufactured via Rhino Amps. For more information on this product, click <A HREF="http://www.rhinoamps.com/">here....</A> <IMG SRC="/images/news_rus/2002.03/2507.jpg" ALT="pho" width="333" height="181" hspace="15" vspace="5" border="1" align="center" /></p>
+
+Автор: Yermola
+
+### 22.03.2002 news YNGWIE MALMSTEEN new CD
+
+<p>YNGWIE MALMSTEEN will shortly be releasing a new CD, entitled The Genesis!, consisting of the guitarist's old material re-mastered by YNGWIE himself. A bonus song will be included as well as an interview with YNGWIE about how the songs really came together. Although most of this material has previously been issued on countless bootlegs and other supposedly “official” releases, YNGWIE's management would like all the fans to know that “YNGWIE has never given anyone permission to release any of YNGWIE's early music — those who have done so are only attempting to make money at YNGWIE's expense without his knowledge or agreement”. The Genesis! will be made available via YNGWIE's official merchandise site YJM Merchandising Inc. in the coming weeks.</p>
+
+Автор: Dimas
+
+### 22.03.2002 news YNGWIE MALMSTEEN порадует нас своим новым альбомом ремиксов
+
+<p>В скором времени своим новым альбомом нас порадует маэстро YNGWIE MALMSTEEN. Альбом под названием "The Genesis!" будет состоять из ремастерированного старого материала музыканта. Бонусом к диску будет интервью с музыкантом, где он расскажет об истории создания этих песен.</p>
+
+Автор: Dimas
+
+### 26.03.2002 news Некогда культовая Силипутра...
+
+<p>Знававшая и лучшие времена SEPULTURA разошлась с менеджментом Rick Sales (SLAYER, SYSTEMATIC) разорвала контракт с Sanctuary Records (а в прошлом году ушла с Roadrunner...). Плохому танцору известно что мешает... Но надеюсь новый менеджер Джим Льюс (так же работает с YNGWIE MALMSTEEN) как-то сможет поправить дела. Сейчас Сепультурцы пишут новый материал для альбома продолжения по отношению к прошлогоднему и не очень удачному "Nation". <BR><BR> В дополнение к сказанному, голландская Mascot Records выкупила европейскую лицензию у бразильского представительства Roadrunner Records на практически неизвестный релиз No Coracao Dos Deuses (В переводе с португальского на English “In The Heart Of The Gods”), на котором можно услышать Cavalera и Andreas Kisser. Выпущенный в 1999 году и доступный только в Бразилии "No Coracao Dos Deuses" представляет также в качестве гостя участника FAITH NO MORE/FANTOMAS - Mike Patton на треке "Procura O Cara". В Европе диск появится в продаже в мае. Трек-лист: <BR><BR> 01. O Desconhecido<BR> 02. Walkman<BR> 03. Bigao De Couro<BR> 04. Bruxaria<BR> 05. Aldeia<BR> 06. Tamandua De Troia<BR> 07. Enforcamento<BR> 08. Tauana E Pedro<BR> 09. Procura O Cara (с участием Mike Patton)<BR> 10. Saida Das Canoas<BR> 11. Indios<BR> 12. Martirios<BR> 13. A Feiticaraia De Gabriel<BR> 14. Terra De Manoa<BR></p>
+
+Автор: Yermola
+
+### 26.03.2002 news SEPULTURA: Without A Record Deal, Pursuing Side Projects ...
+
+<p>SEPULTURA have parted ways with Rick Sales Management (i.e. SLAYER, SYSTEMATIC) and have broken off contract negotiations with Sanctuary Records following the group's split with Roadrunner last year, drummer Igor Cavalera has exclusively told BLABBERMOUTH.NET. Although initial discussions between Sanctuary and SEPULTURA had taken place (a fact that was affirmed by a Sanctuary label ad placed last year in trade publication Billboard that prematurely listed SEPULTURA as part of the company's roster), differences over the terms of the contract were too substantial for the band and the label to be able to come to an agreement, and a decision was eventually made by the group to begin exploring other options. <BR><BR> Currently represented by former YNGWIE MALMSTEEN manager Jim Lewis, SEPULTURA are writing material for the follow-up to 2001's Nation and have thus far completed the music for three new tracks, none of which presently have titles. In addition, the band will be embarking on a lengthy Brazilian tour in April, which will be preceded by an appearance at the Topagunea Festival in Ellorio, Spain on March 31st.<BR><BR> Although SEPULTURA plan on continuing the writing process throughout the spring and the summer, the group's recent “down time” has allowed Cavalera to focus his attention on several potential side projects, including a possible collaboration with BIOHAZARD axeman Billy Graziadei and Brazilian electronic DJ and “professional raver” DJ Patife in an as-yet-unnamed group that is shortly due to begin demoing material at Graziadei 's mobile studio in Brazil (where Billy is temporarily residing with his Brazilian wife Karin and the couple's first child, Isabela).<BR><BR> In addition to the above-mentioned activities, Holland's Mascot Records recently acquired the European licensing rights from the Brazilian representatives of Roadrunner Records for the little-known soundtrack entitled No Coracao Dos Deuses (Portuguese for “In The Heart Of The Gods”), which features music written and performed primarily by Cavalera and SEPULTURA guitarist Andreas Kisser. Originally issued in 1999 and presently only available in Brazil, No Coracao Dos Deuses includes a guest appearance by former FAITH NO MORE/current FANTOMAS frontman Mike Patton in the track "Procura O Cara" and is due to receive a European release in late May. The full track listing for the effort is as follows:<BR><BR> 01. O Desconhecido<BR> 02. Walkman<BR> 03. Bigao De Couro<BR> 04. Bruxaria<BR> 05. Aldeia<BR> 06. Tamandua De Troia<BR> 07. Enforcamento<BR> 08. Tauana E Pedro<BR> 09. Procura O Cara (feat. Mike Patton)<BR> 10. Saida Das Canoas<BR> 11. Indios<BR> 12. Martirios<BR> 13. A Feiticaraia De Gabriel<BR> 14. Terra De Manoa<BR></p>
+
+Автор: Yermola
+
+### 24.05.2002 news YNGWIE MALMSTEEN атакует!
+
+<p>Новый альбом YNGWIE MALMSTEEN будет называться "Attack" и выйдет в продажу через Spitfire Records в конце лета. Сейчас проходит запись. Продюссирует сам Ингви, записывает Tom Fletcher в Майами, Флорида. Состав музыкантов: <BR><BR> Yngwie J. Malmsteen - басс, гитара и бэк-вокал<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - основной вокал<BR> Derek Sherinian (ex-DREAM THEATER) - клавиши<BR> Patrick Johansson (STORMWIND) - барабаны<BR></p>
+
+Автор: Yermola
+
+### 24.05.2002 news YNGWIE MALMSTEEN: &quot;Attack&quot; Recording Line-Up Revealed....
+
+<p>The recording line-up for YNGWIE MALMSTEEN's forthcoming Attack CD has finally been announced. The album, which is currently being produced by Malmsteen and engineered by Tom Fletcher in Miami, Florida, will feature the following musicians: <BR><BR> Yngwie J. Malmsteen - bass/guitar and vocals<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - vocals<BR> Derek Sherinian (ex-DREAM THEATER) - keyboards<BR> Patrick Johansson (STORMWIND) - drums<BR><BR> A late summer release through Spitfire Records is expected.</p>
+
+Автор: Yermola
+
+### 03.07.2002 news TALISMAN Commence Work On New Studio CD
+
+<p>Legendary Swedish/American hard rock act TALISMAN, featuring former YNGWIE MALMSTEEN members Jeff Scott Soto (vocals) and Marcel Jacob (bass), are reportedly in pre-production for the group's next studio album, which will not include any contributions from guitarist Pontus Norgren, who is said to have had a huge falling out with Jacob following the group's performance at Stockholm's Pub Anchor in early May. According to a message posted via Soto's official web site, "To clarify the latest gossip surrounding TALISMAN & HUMANIMAL, the real deal is there will no longer be HUMANIMAL. Jeff has issued the statement that HUMANIMAL in a way was a retooling of sorts in where the direction of TALISMAN should & would go, now reuniting the band with drummer Jamie Borger for a possible spring release. The band are now in preproduction with the new songs & should get recording started by September. The long awaited Live At Sweden Rock album recorded last summer will also be out in the next couple of months, more info to come soon. No labels are confirmed for either release at press time. <BR><BR> In related news, tentative plans exist for Soto to embark on a full solo tour in November following the release of his second solo album, entitled Prism. According to the singer's web site, "There's even talk that Jeff and Frontiers Records will do their best to have the ERIC MARTIN BAND along during the European dates. Jeff is hoping to cover a vast majority of Europe, South America, Japan & possibly Australia. Jeff has even hinted that he would like the show to be 'tailored' to what each territory would like to hear from the archives of his past in which we may posting a poll of 'What JSS songs would u like to hear at a JSS show?'. A ballot of Jeff's many songs will be posted for you all to choose what you'd like to hear most & chosen by popular demand as a 'give the people what they want' gesture."<BR><BR> Also on the Soto front, Jeff plans to shoot two videos from his new album, which will be added to the Prism CD as an enhanced multimedia release. The titles "Eyes Of Love" and "Holding On" were chosen for the videos, which will be directed and edited by Gary Schutt. The shoots will take place simultaneously sometime in mid-July.</p>
+
+Автор: Yermola
+
+### 16.07.2002 news YNGWIE MALMSTEEN: New MP3 Clip Posted Online ....
+
+<p>YNGWIE MALMSTEEN has posted a clip of the track "Rise Up!" , taken from his forthcoming studio album, Attack, at <A HREF="http://www.yngwie.org/discog/sound/RiseUp.mp3">this location</A>. <BR><BR> Attack is tentatively set for an early September release through Japan's Pony Canyon Records.</p>
+
+Автор: Yermola
+
+### 16.07.2002 news YNGWIE MALMSTEEN: новый трек в MP3 ...
+
+<p>Новый альбом "YNGWIE MALMSTEEN" будет называться "Attack" и выйдет в Сентябре на японском лэйбле Pony Canyon Records. Фрагмент песни "Rise Up!" в виде МР3 вы можете скачать <A HREF="http://www.yngwie.org/discog/sound/RiseUp.mp3">здесь....</A></p>
+
+Автор: Yermola
+
+### 20.08.2002 news Атака отложена....
+
+<p><IMG SRC="/images/news_rus/2002.08/3045.jpg" ALT="pho" width=207 height=200 hspace="15" vspace="5" border="1" align="right"> Новый альбом Ингви "Attack" не будет выпущен в штатах через Spitfire Records. Уже точно ясно, что Японии диск выйдет 4-го сентября, а в Европе - 16-го. Пока что менеджмент гитариста решает эту проблему...</p>
+
+Автор: Yermola
+
+### 20.08.2002 news YNGWIE MALMSTEEN: No US Release Date Scheduled For &quot;Attack&quot; ...
+
+<p><IMG SRC="/images/news_rus/2002.08/3045.jpg" ALT="pho" width=207 height=200 hspace="15" vspace="5" border="1" align="right"> YNGWIE MALMSTEEN's latest album, Attack, will not receive a US release through Spitfire Records, the label that issued the guitarist's last CD, War To End All Wars. It is presently unclear if MALMSTEEN has secured an American deal for the album, which is due to come out in Japan on September 4th and in Europe on September 16th.</p>
+
+Автор: Yermola
+
+### 30.08.2002 news Новости от &quot;Хранителя снов&quot;...
+
+<p>Еженедельное ночное радиошоу о тяжелой музыке "Хранитель Снов" сменило время и место вещания. Отныне вы можете слушать "Хранитель Снов" каждую неделю со среды на четверг с часа ночи на радио "Эхо Москвы" (91.2 FM).</p>
+<P> Следующим совместным проектом "хранителей" и Концерна СОЮЗ станет презентация нового альбома Ингви Мальмстина - с 11 на 12 сентября. Помимо интервью с музыкантом, розыгрышей и.т.д. слушателей ожидает еще несколько неожиданных сюрпризов, работа над которыми ведется в настоящее время.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.09.2002 news YNGWIE MALMSTEEN - герой октябрьского номера BURRN!
+
+<p><IMG SRC="/images/news_rus/2002.09/3113.jpg" ALT="pho" width=220 height=315 hspace="15" vspace="5" border="1" align="right"> Видимо в связи со скорым выходом нового альбома "Attack", YNGWIE MALMSTEEN будет героем номера и человеком с обложки октябрьского номера популярного журнала Burrn!</p>
+
+Автор: Yermola
+
+### 03.09.2002 news YNGWIE MALMSTEEN Lands Another BURRN! Cover
+
+<p><IMG SRC="/images/news_rus/2002.09/3113.jpg" ALT="pho" width=220 height=315 hspace="15" vspace="5" border="1" align="right"> Swedish guitar legend YNGWIE MALMSTEEN is featured on the cover of the October 2002 issue of Japan's biggest metal magazine, Burrn!</p>
+
+Автор: Yermola
+
+### 09.09.2002 news Former YNGWIE MALMSTEEN Frontman To Issue Solo CD ...
+
+<p>Former YNGWIE MALMSTEEN frontman Mark Boals will issue a solo album, entitled Edge Of The World, in Japan on October 23rd though Marquee Inc, and in other territories shortly after. <BR><BR> Described in an official press release as "his most diverse and creative solo album yet," Edge Of The World "is very much a melodic hard rock album, whilst utilizing progressive, (some) neo-classical and classic rock influences." The album features keyboardist Erik Norlander (LANA LANE, ROCKET SCIENTISTS), drummers Vinny Appice (DIO, BLACK SABBATH) and Virgil Donati (RING OF FIRE, PLANET X), and guitarists Tony MacAlpine, Chris Brooks, Neil Citron and Jeff Kollman. Bass guitar and additional rhythm guitar duties were handled by Boals himself. 13 tracks (including a bonus track for the Japanese pressing) are contained on the CD, which was produced by Boals and engineered by Erik Norlander and Neil Citron.</p>
+
+Автор: Yermola
+
+### 09.09.2002 news Лезвие Мира.......
+
+<p>Экс-вокалист "YNGWIE MALMSTEEN" - Mark Boals выпускает соло-альбом названный "Edge Of The World". В Японии диск выйдет 23 октября через Marquee Inc и почти сразу же для остального мира.<BR><BR> Описанный в пресс-релизе как "...очень мелодичный хард-роковый альбом, с элементами прогрессива, неоклассики и классического рока..." - "Edge Of The World " собрал известных музыкантов: клавишник Erik Norlander (LANA LANE, ROCKET SCIENTISTS), барабанщики Vinny Appice (DIO, BLACK SABBATH) и Virgil Donati (RING OF FIRE, PLANET X), гитаристы Tony MacAlpine, Chris Brooks, Neil Citron и Jeff Kollman. Партии баса и ритм-гитар были записаны самим Боалзом. Диск содержит 13 вещей (включая обычные бонусы для Японии) и был спродюссирован Боалзом и записан Erik Norlander и Neil Citron.</p>
+
+Автор: Yermola
+
+### 13.09.2002 reviews Новая атака шведского мастера шести струн
+
+<p>Перед нами новое творение, сильно разжиревшего за прошедшую декаду, шведского мастера шести струн, по фамилии Мальмстин. Что же мы видим? <BR> В отличие от предыдущего опуса “War To End All Wars”, “Attack!” спродюсирован просто замечательно. Ингви не стал допускать еще одной ошибки в звучании своего творения, дабы потом не объяснять всем подряд, что, мол, плохое звучание альбома – это такая задумка. С чем мы его и поздравляем! По-моему, данный альбом не содержит никакой концептуальной линии. Всё 15 песен “Attack!!”довольно разнообразны и каждая повествует о своём. <BR> Немного о составе, в котором был записан данный шедевр. Почему шедевр? Да потому - что сам Ингви считает каждый свой альбом таковым! <BR> Вокальные партии на альбоме исполнил Дуги Вайт (Doogie White), который большинству слушателей известен тем, что принимал участие в записи “Stranger Us All”(95) возрождённых Rainbow. А так же, был кандидатом на вакантное место в Iron Maiden, после ухода Брюса Дикинсона в 1993. За клавишные ответственен Derek Sherinian - достаточно известный персонаж в мире музыки, который до недавнего времени значился клавишником Dream Theater, а в конце восьмидесятых принимал активное участие в концертных выступлениях Элиса Купера. И ещё один участник альбома - барабанщик Patrik Johansson (Ещё один брат Йоханссон?!). Все гитарные партии, впрочем, как и партии бас гитары исполнил сам маэстро, что само по себе не ново. Особняком на альбоме стоит песня “Freedom Isn’t Free” с вокалом самого Ингви, которая сделана в блюзовом ключе и напоминает нам о тех временах, когда гитара Джими Хендрикса безраздельно правила миром. <BR> Теперь только остаётся ожидать европейского выпуска “Attack!!”(японский релиз - 4 сентября), который состоится совсем скоро -16 сентября, по средствам SPV. И возможного последующего выхода лицензионного диска на “Союзе”. <BR> В заключении же хочется сказать, что, как и предыдущие работы Ингви, этот альбом явно понравится всем преданным фанатам его творчества и неоклассического звучания в хард - роке, все же остальные, прекрасно обойдутся и без оного.</p>
+<p></p>
+<p ALIGN="RIGHT">автор рецензии - <A HREF="headcrusher@mtu-net.ru">Headcrusher</A></p>
+
+Автор: Dimas
+
+### 17.09.2002 news Вниманию поклонников Ингви Мальмстина...
+
+<p>18 сентября, в ночь со среды на четверг, в 01.15 минут состоится чат с Ингви Мальмстином на странице программы ХРАНИТЕЛЬ СНОВ - http://www.drmkeeper.narod.ru</p>
+<P> В самой программе ХРАНИТЕЛЕЙ в этот вечер прозвучит новый альбом MOB RULES - премьера, релиз - 23 сентября.</>
+<P> Ингви начнет "об-чаться" в 01-15 / 01-20 по Москве. Перспектива (если в среду все пройдет без накладок) - ПИВИ ВАГНЕР, дальнейшая перспектива - "военная тайна", но все будут изрядно удивлены.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 18.10.2002 news Former YNGWIE MALMSTEEN Singer Parts With Solo Band ....
+
+<p>Former YNGWIE MALMSTEEN and current MASTERPLAN frontman Jorn Lande has parted ways with his solo backing band, which included current MAYHEM/KOVENANT drummer Hellhammer. Personal differences are being blamed for the split, which coincides with Lande's announced departure from WILD WILLY'S GANG, the "just-for-fun" project of ex-ROAD drummer Willy Bendiksen and his friends.</p>
+
+Автор: Yermola
+
+### 18.10.2002 news Йорн Ланде покинул свой соло проект...
+
+<p>Бывший вокалист Ингви Мальмстина и нынешний участник "MASTERPLAN" - Йорн Ланде покинул свой соло проект организованный совместно с барабанщиком MAYHEM/KOVENANT - Hellhammer'ом. Также им оставлен проект "WILD WILLY'S GANG" с членами "ROAD"...</p>
+
+Автор: Yermola
+
+### 21.11.2002 news YNGWIE MALMSTEEN Tries Out Mix Of Old And New Material For Upcoming Tour
+
+<p>YNGWIE MALMSTEEN vocalist Doogie White will be flying out to Florida in a couple of days to begin the rehearsals for the band's upcoming Asian tour. There will be four days of rehearsals with Doogie, where a set mixed with older songs and songs from MALMSTEEN's current release, "Attack", will be tried out. "We'll have to see which songs work in the live form from 'Attack'," stated White. "Some will and some won't. It's trial, error, groove and feel. The mood of something like 'Rise Up' is ripe for live work, whereas others only work as album tracks. The intention is to change the set some nights and bring in some surprises. So I have been learning some old classics from all the other albums. It's been a lot of fun catching up on some material I have missed over the years."</p>
+
+Автор: Yermola
+
+### 26.12.2003 news Лучшие инструменталы от Yngwie Malmsteen
+
+21 января 2004 года на японской <B>Pony Canyon Records</B> выйдет сборник лучших инструментальных работ шведского гитариста-виртуоза <B>Yngwie Malmsteen</B>. В компиляцию под простым названием <B>"Instrumental Best Album"</B> войдут следующие вещи:</P>
+<P>1. <B>Brothers</B> <BR>2. <B>Dawn</B> <BR>3. <B>Air On A Theme</B> <BR>4. <B>Britzkrieg</B> <BR>5. <B>Blue</B> <BR>6. <B>Asylum</B> <BR>7. <B>Sky Euphoria</B> <BR>8. <B>Quantum Leap</B> <BR>9. <B>Power And Glory-theme for Nobuhiko Takada-</B> <BR>10. <B>Molto Arpeggiosa</B> <BR>11. <B>Preludium</B> <BR>12. <B>Instru-Mental Institution</B> <BR>13. <B>Treasure From The East</B> <BR>14. <B>Requiem</B> <BR>15. <B>Far Beyond The Sun</B> (Live)
+Автор: Dimas
+
+### 02.02.2005 news Новый альбом Yngwie Malmsteen
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=198 alt="" hspace=0 src="/images/news_rus/2005.02/7823.jpg" width=200 align=left border=5>Новый альбом <STRONG>Yngwie Malmsteen 'Unleash The Fury'</STRONG> появится в скором времени на прилавках магазинов. Первой датой релиза столо 23 февраля в Японии.</FONT></P>
+Автор: Vit Belov
+
+### 27.06.2006 news Yngwie Malmsteen сочинил новые песни
+
+<P>Легендарный шведский гитарист-виртуоз <B>Yngwie Malmsteen</B> вместе с ударником <B>Patrick Johansson</B> готовятся засесть во флоридской <B>Malmsteen</B>'s studio для записи нового альбома <B>YNGWIE MALMSTEEN'S RISING FORCE</B>. <B>Doogie White</B> (ex-<B>RAINBOW</B>) запишет все партии вокала для этой работы, выход которой ожидается в начале 2007 года. </P>
+Автор: Dimas
+
+### 16.11.2006 news Новый двд от Yngwie Malmsteen
+
+<P>Поклонники певцов <STRONG>Jeff Scott Soto</STRONG> и<STRONG> Joe Lynn Turner</STRONG>&nbsp;могут теперь добавить в свою коллекцию еще один двд от&nbsp;<STRONG>Yngwie Malmsteen "Far Beyond The Sun"</STRONG>, который вышел на&nbsp;<B>Universal Music</B>.&nbsp;Прошедший мастеринг двд включает в себя два концерта: японский&nbsp;1985 года&nbsp;(с участием&nbsp;<STRONG>JSS</STRONG>) и ленинградский 1989 года&nbsp;(с участием&nbsp;<STRONG>JLT</B></STRONG>), плюс видеоклипы и свежее интервью 2006 года с <STRONG>Yngwie Malmsteen</STRONG>.</P>
+Автор: Dimas
+
+### 03.12.2006 articles TRAIL OF TEARS надорвались в Мексике - UNLEASHED будут в death-metal ещё 15 лет - Секреты Yngwie Malmsteen
+
+<P><EM><IMG height=327 alt="" hspace=0 src="/images/articles_rus/2006.12/11013.jpg" width=400 align=left border=5>TRAIL OF TEARS надорвались в Мексике</EM></P>
+<P>На прошлой неделе появились сообщения о распаде норвежской группы TRAIL OF TEARS. Правда, само сообщение об этом событии на официальном сайте группы было несколько странным. Сообщалось, что группу покинули практически все участники, и из-за этого коллектив распался. Но ведь надо кого-то покинуть, а кого покидать, если группа не существует. Оказалось, есть ещё одна сторона у этого события, вокалист-основатель Ronny Thorsen, который чуть позже также выступил через официальную страничку TRAIL OF TEARS. В своём сообщении Ronny признался, что ему нелегко говорить о ситуации в группе, но он вынужден это делать, чтобы пресечь слухи, циркулирующие вокруг. «26 ноября группа закончила своё десятидневное турне по Мексике», - начинает Ронни. «Этот тур был очень неудачно организован, и все, кто принимали участие в нём, потеряли деньги. В результате я был вызван в отель 28 ноября, где остальные музыканты группы заявили, что, из-за сложившейся ситуации, они прекращают деятельность TRAIL OF TEARS немедленно. Это решение было принято без моего участия, поэтому я заявляю, TRAIL OF TEARS НЕ ПРЕКРАЩАЮТ СВОЕГО СУЩЕСТВОВАНИЯ, а возродятся в новой форме и составе». Ронни рассказывает, что пытался договориться с музыкантами, но ничего не вышло. Он даже предлагал возместить коллегам тысячные убытки из собственного кармана, но всё было бесполезно. Лидер TOT возмущается непреклонностью бывших коллег, которые кинули своим решением не только его, но и лэйбл, который выпускает новый альбом “Existentia” и не будет иметь должной раскрутки, из-за отсутствия концертов, фэнов и многих других. Нам же остаётся только всплеснуть руками и удивиться. Даже группы, крепкие европейские середнячки, вынуждены вкладывать собственные деньги для раскрутки собственных имён. Что уж говорить о наших соотечественниках и наших лейблах.</P>
+<P><EM><IMG height=267 alt="" hspace=0 src="/images/articles_rus/2006.12/11014.jpg" width=400 align=right border=5>UNLEASHED будут в death-metal ещё 15 лет</EM></P>
+<P>Новый альбом легендарных шведских дэтстеров UNLEASHED “Midvinterblot” вышел совсем недавно на SPV/Союз. Чтобы сообщить некоторые подробности о настоящем положении дел в UNLEASHED, мы обратили внимание на интервью, данное басистом/вокалистом группы Johnny Hedlund журналу Voices From The Darkside. Джонни предстал несколько уставшим от происходящего (интервью с ночи до утра) и, первым делом, рассказал о недавнем трёхлетнем отпуске группы. «Нам был необходим этот перерыв после 8 лет непрерывного тура и записей. Главное, что с выпуском новых пластинок мы стали сильнее, и этот отпуск пошёл нам на пользу», - говорит Джонни. «Я верю, что UNLEASHED – группа будущего death-metal. Я думаю, мы переведём стиль на новый уровень. Мы хорошо отдохнули, и организация нашего дела позволяет нам говорить о следующих 15 годах плодотворного существования группы. Мне кажется, у нас множество возможностей развивать стиль, не выходя за его рамки. Использование агрессии, мрачности… Трэшовые риффы тоже не говорят о предательстве дэт-металлической стилистики». На новейших альбомах UNLEASHED сменили продюсера. Они покинули знаменитого в 90-х годах Waldemar Sorychta, и продюсированием пластинок, начиная с “Hell’s Unleashed”, занялся гитарист группы Fredrik Folkare. Мы сменили Вальдемара потому, что хотели получить другой звук. Все идеи по звучанию наших работ исходят от Фредерика, он главный в группе в этом вопросе. Часы его работы не пропали даром. Я считаю, что его результаты гораздо лучше, чем у Сорихты», - объясняет Джонни. Группы-ветераны, такие, как UNLEASHED, в которых музыканты перешагнули уже 30-летний рубеж, обзавелись семьями, детьми, всё равно продолжают работать в этом бизнесе. Что меняется, когда проходит столько времени? Отвечает Джонни: «Конечно, у всех разные истории. Но главное в том, что приходится оплачивать больше счетов, появляется больше обязанностей. Я, например, работаю финансовым директором, и это отнимает много времени. С другой стороны есть и плюсы. Я теперь получаю большее удовольствие от живых выступлений. Не волнуюсь, из-за оборудования, из-за нерадивых инженеров, которые плохо делают свою работу. Я просто играю и пою наши песни с сотнями друганов по всему миру. Люди, которые устали от секса, должны просто послушать death-metal». Мне думается, поэтому Джонни и планирует свою деятельность в death-metal на 15 лет вперёд.</P>
+<P><EM><IMG height=277 alt="" hspace=0 src="/images/articles_rus/2006.12/11015.jpg" width=200 align=left border=5>Секреты Yngwie Malmsteen</EM></P>
+<P>Что-то захотелось нам вспомнить о шведском виртуозе Yngwie Malmsteen. Ингви дал интервью австралийскому журналу X-Press Online, в котором рассказал немного о своём «звёздном» творчестве. «Я был младшим ребёнком в семье», - начинает господин Мальмстин свою историю. «У меня были старший брат, старшая сестра. У меня были мама, папа, дяди, тёти…», - продолжается повествование. «…Все родственники – музыканты. Мой дедушка был барабанщиком! Это, как музыка, музыка, музыка везде… Музыка и искусство!». Мама дала маленькому Ингви гитару, когда ему исполнилось пять лет. И понеслось. Когда ему было семь, он увидел Джимми Хендрикса по телевизору. Показывали, как он сжигает свою гитару. Это так увлекло маленького Мальмстина, что он запомнил точную дату чернокожего видения. 18 сентября 1970 года – день окончания борьбы за звание лучшего гитариста мира. Через год старшая сестра Лулу подарила начинающему музыканту альбом DEEP PURPLE “Fireball”. «Все влияния классической музыки на моё творчество пришло не от DEEP PURPLE. Все так считают, но это неправда. Эта группа - моя любимая. Но любовь к классике пришла не от них, а вот любовь к тяжёлой музыке от них. Как-то я увидел по телевизору парня-скрипача, который играл Паганини, и я подумал, вот то, что нужно сыграть на гитаре. Моё творчество на 99 процентов состоит из Паганини, Вивальди и Чайковского… Плюс немного Баха и тяжёлый звук». Триллер! Несчастный мальчик в семье, состоящей из одних музыкантов, с дедушкой-барабанщиком, с кучей дядь и тёть, и, главное, с телевизором, где услышал Паганини первый раз только лет в восемь-десять. Вот как происходят генетические нарушения, дающие миру таких гениев, как Ингви Мальмстин! «Первым концертом, который я посетил в своей жизни, стало шоу Ritchie Blackmore’s RAINBOW в составе: Dio, Blackmore, Powell… Я был в шоке. Позже я работал с Кози Пауэллом на альбоме “Facing The Animal”. Ian Paice из DEEP PURPLE отличный музыкант, но Кози… Он был, как несущийся поезд». Выводом из всей этой истории стали поучительные напутственные&nbsp; слова, адресованные будущим поколениям. «Продолжайте работать! Не знаю, как выразить словами. Работайте. Не могу выразиться точнее, но моя книга расскажет об этом лучше». В остальных словах Ингви запугивает поколение матерными словами и туманными перспективами. В книге, которая, к сожалению, пока недоступна российским гитаристам, наверняка всё рассказано более точно. Так что будем ждать. Мой же совет гитаристам: побольше смотрите телевизор, желательно на канале «Культура», или «Спорт» на худой конец, заимейте дедушку-барабанщика, можно не родного, и, главное, запоминайте все вехи своей биографии, чтобы рассказать потомкам.</P>
+Автор: Vit Belov
+
+### 27.02.2008 news Tim &quot;Ripper&quot; Owens у Yngwie Malmsteen
+
+<P><STRONG>Yngwie Malsteen</STRONG> опубликовал новый состав своей группы. </P>
+<P><STRONG>Yngwie Malmsteen</STRONG> - гитара<BR><STRONG>Tim "Ripper" Owens</STRONG> (ex-JUDAS PRIEST, ICED EARTH) - вокал<BR><STRONG>Bjorn Englen</STRONG> - бас<BR><STRONG>Michael Troy</STRONG> - клавиши<BR><STRONG>Patrik Johansson</STRONG> - барабаны</P>
+<P><STRONG>Tim Owens</STRONG> и <STRONG>Yngwie Malmsteen</STRONG> уже работали вместе на записи кавера для <STRONG>Tribute To Ozzy Osbourne</STRONG>.<BR></P>
+Автор: Vit Belov
+
+### 18.09.2008 news Новый альбом Yngwie Malmsteen
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=352 alt="" hspace=0 src="/images/news_rus/2008.09/12854.jpg" width=350 align=right border=5>Новый альбом <STRONG>YNGWIE MALMSTEEN</STRONG> "<STRONG>Perpetual Flame</STRONG>", первый для бывшего вокалиста <STRONG>ICED EARTH</STRONG> и <STRONG>JUDAS PRIEST</STRONG> <STRONG>Tim Owens</STRONG> за микрофонной стойкой, выходит 10 октября на собственном лэйбле&nbsp;гитариста <STRONG>Rising Force Records</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Death Dealer</B><BR itxtvisited="1">02. <B itxtvisited="1">Damnation Game</B><BR itxtvisited="1">03. <B itxtvisited="1">Live to Fight (Another Day)</B><BR itxtvisited="1">04. <B itxtvisited="1">Red Devil</B><BR itxtvisited="1">05. <B itxtvisited="1">Four Horsemen (Of the Apocalypse)</B><BR itxtvisited="1">06. <B itxtvisited="1">Priest of the Unholy</B><BR itxtvisited="1">07. <B itxtvisited="1">Be Careful What You Wish For</B><BR itxtvisited="1">08. <B itxtvisited="1">Caprici Di Diablo</B><BR itxtvisited="1">09. <B itxtvisited="1">Lament</B><BR itxtvisited="1">10. <B itxtvisited="1">Magic City</B><BR itxtvisited="1">11. <B itxtvisited="1">Eleventh Hour</B><BR itxtvisited="1">12. <B itxtvisited="1">Heavy Heart</B></P>
+Автор: Vit Belov
+
+### 09.10.2008 news ANJ покоряют Америку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Российская группа<STRONG> ANJ</STRONG> гастролирует сейчас в США, поддерживая в турне<STRONG> Yngwie Malmsteen</STRONG>. Группа распространила следующее заявление:</FONT></P>
+<P>«<EM>Мы даже не ожидали, что нас будет так тепло встречать публика. Первые концерты зарядили нас запасом энергии на весь тур, даже страшно представить, какой бесконечный драйв впереди. Мы рады, что именно нам выпал шанс стать официальным саппортом в туре Ингви Мальмстина по США.&nbsp; Он настоящий профессионал и отличный парень.&nbsp; Постепенно мы будем выкладывать на нашем официальном сайте фотографии с тура, и, если получится,&nbsp; небольшие дорожные заметки</EM>».</P>
+<P>Фотки с концерта в Далласе можно посмотреть тут: <A href="http://www.anj.su/photos/detail.php?ID=2019">http://www.anj.su/photos/detail.php?ID=2019</A></P>
+Автор: Vit Belov
+
+### 20.02.2009 news Yngwie Malmsteen выпускает акустический инструментал
+
+<P>10 марта на <STRONG>Rising Force Records</STRONG> выходит акустический инструментальный альбом <STRONG>Yngwie Malmsteen</STRONG> <STRONG>"Angels Of Love". </STRONG>На альбом попали акустические версии баллад <STRONG>Malmsteen</STRONG>, записанные с участием хора и струнного квартета.</P>
+Автор: Vit Belov
+
+### 25.02.2009 news Два концертника Yngwie Malmsteen
+
+<P>24 марта на <STRONG>Rising Force Records</STRONG> выходят сразу два концертных&nbsp;DVD гитариста <STRONG>Yngwie Malmsteen</STRONG>. <STRONG>"Live Animal" </STRONG>запечатлел выступление мастера в Бразилии в 1998 году, а <STRONG>"Live In Budokan" </STRONG>представил концерт в Токио, ранее не издававшийся в Европе.</P>
+Автор: Vit Belov
+
+### 03.03.2009 news Подробности об инструментале Yngwie Malmsteen
+
+<P>Мы уже сообщали, что<STRONG> Yngwie Malmsteen</STRONG> на своём собственном лэйбле <STRONG>Rising Force</STRONG> готовит к выпуску инструментальный альбом "<STRONG>Angels Of Love</STRONG>". Пластинка будет содержать акустические версии баллад гитариста. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Like An Angel</B><BR itxtvisited="1">02. <B itxtvisited="1">Save Our Love</B><BR itxtvisited="1">03. <B itxtvisited="1">Prelude To April</B><BR itxtvisited="1">04. <B itxtvisited="1">Sorrow</B><BR itxtvisited="1">05. <B itxtvisited="1">Memories</B><BR itxtvisited="1">06. <B itxtvisited="1">Miracle Of Life</B><BR itxtvisited="1">07. <B itxtvisited="1">Forever One</B></P>
+Автор: Vit Belov
+
+### 13.03.2009 news Девушка с голыми ногами от Yngwie Malmsteen
+
+<P><STRONG>Yngwie Malmsteen</STRONG> выложил сэмплы своего акустического альбома "<STRONG>Angels Of Love</STRONG>" на <STRONG>MySpace</STRONG>. Оценить версии можно здесь: <A href="http://www.myspace.com/yngwiemalmsteen">http://www.myspace.com/yngwiemalmsteen</A></P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.03/13738.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.06.2009 news Tim Owens вновь споёт у Malmsteen
+
+<P>В недавнем интервью вокалист <STRONG>Tim 'Ripper' Owens</STRONG> заявил, что споёт на ещё одном альбоме <STRONG>Yngwie Malmsteen</STRONG>. Напомню, что подразумевалось, что <STRONG>Tim</STRONG> покинул великого гитариста.</P>
+Автор: Vit Belov
+
+### 01.09.2009 news Соло альбом Mats Leven
+
+<P><STRONG>Mats Levеn</STRONG>,&nbsp;вокалист известный своим участием в&nbsp;<STRONG>KRUX</STRONG>, <STRONG>THERION&nbsp;</STRONG>и&nbsp;<STRONG>YNGWIE MALMSTEEN</STRONG>, в настоящее время записывает демо для своего сольного альбома. </P>
+<P><EM>"В данный момент я работаю над&nbsp;12 - 14&nbsp;вещами.&nbsp;Я собираюсь&nbsp;написать 20 - 25 песен, прежде чем начну запись альбома."</EM> -&nbsp;говорит <STRONG>Mats</STRONG>.</P>
+Автор: Headcrusher
+
+### 03.03.2010 news Yngwie Malmsteen едет к нам
+
+<P>Знаменитый гитарист<STRONG> Yngwie Malmsteen</STRONG> объявил, что возвращается в Россию после 21-летнегго перерыва. 21 апреля его группа выступит в Москве, а 24 апреля в Санкт-Петербурге.</P>
+<P><center><IMG height=331 src="/images/news_rus/2010.03/16321.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 15.10.2010 news Новый альбом YNGWIE MALMSTEEN
+
+<P><IMG border=5 hspace=0 alt="" align=right src="/images/news_rus/2010.10/17383.jpg" width=400 height=400>22 ноября на собственном лэйбле гитариста <STRONG>YNGWIE MALMSTEEN Rising Force Records</STRONG> выходит новый альбом музыканта&nbsp;<STRONG>"Relentless". </STRONG>Вокалистом на этой работе вновь выступил <STRONG>Tim "Ripper" Owens</STRONG> (<B>JUDAS PRIEST</B>, <B>ICED EARTH</B>). Трэк-лист:</P>
+<P>01. <B>Overture</B><BR>02. <B>Critical Mass</B><BR>03. <B>Shot Across The Bow</B><BR>04. <B>Look At You Now</B><BR>05. <B>Relentless</B><BR>06. <B>Enemy Within</B><BR>07. <B>Knight Of The Vasa Order</B><BR>08. <B>Caged Animal</B><BR>09. <B>Into Valhalla</B><BR>10. <B>Tide Of Desire</B><BR>11. <B>Adagio B Flat Minor Variation</B><BR>12. <B>Axe To Grind</B><BR>13. <B>Blinded</B><BR>14. <B>Cross To Bear</B><BR>15. <B>Arpeggios From Hell</B> *</P>
+<P>*Bonus track</P>
+Автор: Vit Belov
+
+### 25.11.2010 news Tim &#39;Ripper&#39; Owens ничего не знает о новом альбоме Yngwie Malmsteen
+
+<P><IMG height=376 alt="" hspace=0 src="/images/news_rus/2010.11/17677.jpg" width=250 align=right border=1>22 ноября на собственном лэйбле <STRONG>Rising Force</STRONG> гитарист <STRONG>YNGWIE MALMSTEEN</STRONG> издал свой очередной альбом <STRONG>"Relentless". </STRONG>Эта пластинка стала второй для вокалиста <STRONG>Tim 'Ripper' Owens</STRONG> (ex-<STRONG>JUDAS</STRONG> <STRONG>PRIEST</STRONG>). Однако сам певец ничего не слышал о этом альбоме. В интервью <STRONG>Sweden Rock Magazine</STRONG> музыкант рассказал, что не знает, поёт ли он на новом CD<STRONG> YNGWIE MALMSTEEN</STRONG>: "<EM>Мы записали много песен во время сессии к предыдущему альбому "Perpetual Flame", поэтому, возможно, именно эти песни попали на новую работу. Я должен проверить контракт, имеет ли он право так поступать</EM>".</P>
+<P>Также <STRONG>Tim</STRONG> сказал, что не очень расстроится, если<STRONG> Malmsteen</STRONG> возьмёт другого вокалиста, так как из-за занятости в своих проектах, они с гитаристом последний раз встречались несколько месяцев назад.</P>
+<P>Убедиться, что на альбоме поёт <STRONG>Tim Owens</STRONG> можно послушав сэмплы на сайте <A href="http://www.amazon.com/Relentless/dp/B004B4TXN6/ref=sr_1_4?ie=UTF8&s=dmusic&qid=1289285348&sr=8-4">Amazon</A>.</P>
+Автор: Vit Belov
+
+### 13.01.2012 news Yngwie Malmsteen опять едет к нам
+
+<P>Шведская гитарная легенда <STRONG>Yngwie Malmsteen</STRONG> объявил две концертные даты в России. 18 февраля маэстро должен выступить в Москве, а 21 февраля в Краснодаре.</P>
+<P><center><IMG height=600 src="/images/news_rus/2012.01/22617.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 12.11.2012 news Yngwie Malmsteen: новый альбом &quot;Spellbound&quot;
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.11/25037.jpg" width=400 height=400>Yngwie Malmsteen</STRONG> готовит к выпуску свой новый альбом. Диск получил название <STRONG>"Spellbound"</STRONG> и увидет свет 5 декабря. Пока остаётся тайной, кто же записал вокал на новом альбоме и будет ли он там вообще, т.к. вокалист <STRONG>Tim "Ripper" Owens</STRONG>, (<STRONG>BEYOND FEAR</STRONG>, ex-<STRONG>JUDAS PRIEST</STRONG>, ex-<STRONG>ICED EARTH</STRONG>), который выступал и записывался с группой&nbsp;маэстро с 2008 года, не принимал участите в работе над этим диском.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Spellbound<BR></STRONG>02. <STRONG>High Compression Figure<BR></STRONG>03. <STRONG>Let's Sleeping Dog Lie<BR></STRONG>04. <STRONG>Repent</STRONG><BR>05. <STRONG>Majestic 12 Suite 1,2 & 3<BR></STRONG>06. <STRONG>Electric Duet<BR></STRONG>07. <STRONG>Nasca Lines<BR></STRONG>08. <STRONG>Poisoned Mind<BR></STRONG>09. <STRONG>God Of War<BR></STRONG>10. <STRONG>Iron Blues<BR></STRONG>11. <STRONG>Turbo Amadeus<BR></STRONG>12.<STRONG> From A Thousand Cuts<BR></STRONG>13. <STRONG>Requiem For The Lost</STRONG></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Техника игры на соло гитаре

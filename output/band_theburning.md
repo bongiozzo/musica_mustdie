@@ -31,6 +31,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.11.2010 news Видео на песню &quot;Bait The Hook&quot; группы THE BURNING
+
+<P><STRONG>"Bait The Hook"</STRONG> - новый видеоклип датского квартета&nbsp;<B itxtvisited="1">THE BURNING</B>, можно посмотреть ниже. Клип был снят и срежиссирован компанией <B itxtvisited="1">Division 666</B> (<B itxtvisited="1">HORNED ALMIGHTY</B>, <B itxtvisited="1">THE KANDIDATE</B>, <B itxtvisited="1">DAWN OF DEMISE</B>).<BR itxtvisited="1"><BR itxtvisited="1">Песня <STRONG>"Bait The Hook"</STRONG> вошла в новый альбом группы,&nbsp;<B itxtvisited="1">"Hail The Horde"</B>, вышедший в прошлом месяце в Европе на <B itxtvisited="1">Massacre Records</B>.</P>
+<CENTER>
+<OBJECT width=640 height=390><PARAM NAME="movie" VALUE="http://www.youtube.com/v/HVkGaQfnZDk&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/HVkGaQfnZDk&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

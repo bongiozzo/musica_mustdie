@@ -275,6 +275,634 @@ Can You Hear Them
 * C группой "Black Sabbath" Former vocalist, mr. Osbourne's band
 * C группой "Zombie, Rob" Rob Nicholson (bass)
 
+## Публикации
+
+### 26.03.1999 news 
+
+<p>Coal Chamber и Оззи Озборн закончили запись кавера на песню Питера Габриэла "Shock the Monkey".</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Новости об Оззи от нашего корреспондента по Осборну. Оззи Осборн отметился еще одним совместным проектом. 20 апреля 99 в Америке увидит свет новый альбом Rick Wakeman под названием "Return To The Centre Of The Earth". Вокал Оззи можно будет услышать в песенке "Buried Alive". Эта песня была записана 16 ноября 98 года в Голливудской A&M Studios.</p>
+<p>Официальное видео. 6 июня 99 фирма Sony выпустит официальное видео Black Sabbath "Reunion". Это будет запись концерта в Бирмингеме, состоявшегос 4-5 декабря 97 года.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Новости про Оззи от нашего постоянного корреспондента по этому исполнителю Ярослава Прокоптчука.</p>
+<p>После окончания Ozzfest участники Black Sabbath займутся сольными проектами. Сольный концерт Tony Iommi практически готов, и должен увидеть свет в конце этого года. Geezer Butler будет записывать свой материал с гитаристом Pedro Howse, но дата выхода этого альбома неизвестна. Bill Ward должен выпустить в течении этого года альбом под названием Remembering.</p>
+<p>Оззи Осборн собирается выпустить свой новый соло-альбом в течении 2000 года. Продюсером этой записи будет Brian Eno. Предварительный состав музыкантов, которые будут работать с Оззи в студии: Robert Trujilo - бас, Joe Holmes - гитара, Michael Bordin - барабаны. Одновременно с выходом альбома должен выйти и новый видеофильм.</p>
+<p>Motley Crue официально сообщили в новостях MTV, что Randy Castillo, который работал с Оззи Осборном с конца 80-х, станет заменой уволенного барабанщика Tommy Lee на время Maximum Rock tour, который пройдет совместно со Scorpions. Castillo очень давно знаком с Motley Crue, и даже играл с Винсом Нейлом. Также Рэнди работал вместе с Литой Форд и периодически участвовал в концертах Оззи в этом году. Никки Сикс в своем интервью MTV сказал - "Он действительно крутой парень. Он играл с лучшими людьми, и он профессионал. Я смотрю вперед с надеждой на то, что Рэнди вольет новую энергию в группу."</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>Новые новости об Оззи и Black Sabbath от Ярослава Прокоптчука:</p>
+<p>В Америке в продажу скоро должен поступить Aerosmith tribute-альбом под названием "Back In The Saddle". В записи принимали участие бывшие/нынешние участники сольных проектов Оззи Осборна. Rudy Sarzo записывал партию баса на "Back In The Saddle", Mike Inez & Randy Castillo играли в песне "Draw The Line", Tommy Aldridge барабанил в "Last Child".</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>Вокалист группы WORLD WAR III Mandy Lion готовится создать свою новую goth metal группу. Однозначно известно только то, что его гитаристом будет JAKE E. LEE, игравший в средине 80-х у Оззи Осборна.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>В одном из последних интервью Оззи выразил желание вернуться в Европу: "Для Блэк Саббат было бы очень неплохо вернуться к своим корням, туда где мы начинали свою карьеру - в Бирмингем". По этому поводу планируется два грандиозных концерта - 21 или 23 декабря 1999 года. А пока Саббат продолжают совместные гастроли по Америке с DRAIN STH и GODSMACK.</p>
+
+Автор: Vit Belov
+
+### 25.08.1999 news 
+
+<p>Новый альбом Оззи выйдет весной 2000 года. Альбом начнёт записываться после окончания ОззФест.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Новый сольник Оззи Озборна выйдет 29 июня.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>07/04/2000 Оззи в живую общался со своими поклонниками по Интернету. По его словам, работа над новым альбомом идет в полном разгаре. "Быстрее он выйдет после окончания фестиваля Ozzfest'2000. Я работаю на столько быстро, на сколько это возможно. У меня уже есть записанный материал, но с окончательным выходом я не спешу. Я хочу сделать свою лучшую в жизни запись". Также он сказал, что рабочее название альбома - INFERNO, но в любое время оно может поменяться. Сейчас с ним работают: Joe Holmes-гитара, Robert Trujillo-бас, и новый барабанщик Roy Mayorga. Полное описание чата - www.ozzfest.com Русскоязычный Оззи-сайт - http://ozzy.osbourne.i.am</p>
+
+Автор: Vit Belov
+
+### 23.02.2001 articles Волшебник страны HEAVY-METAL
+
+<p> То, что Джон Майкл "Оззи" Осборн – немного сумасшедший, в мире му-зыки известно давно. Но на днях старикан выкинул новые фокусы, которые дают основание предположить об усилении "сдвига по фазе" – то ли в связи с надвигающейся старостью, то ли от давнего неупотребления алкоголя. В лю-бом случае – волшебник страны хэви-метал будет одним из самых популярных и обсуждаемых музыкантов в этом году.</p>
+<p> И все из-за одного очень короткого заявления на MTV: "Оригинальный состав <a href="/ru/band/black_sabbath/">BLACK SABBATH</a> вновь возглавит фестиваль OZZFEST-2001 по крайней мере, в Америке". И это при том, что Оззи уже объявлял OZZFEST-2000:</p>
+<p> - своим последним туром, после которого он якобы никогда не выйдет на сцену;</p>
+<p> - последним туром http://musica.mustdie.ru/ru/band/black_sabbath/BLACK SABBATH</a>, после которого те распадутся навсегда;</p>
+<p> - последним фестивалем OZZFEST вообще.</p>
+<p> Комментарий Осборна: "Такой уж я человек: когда в пути - хочу домой, когда я дома - опять хочу в путь. Я никогда ничем не доволен, где бы я не был". Вот так – сначала языком молоть и народ огорчать, а потом с невозмутимым видом продолжать делать то, что обещал прекратить. И что самое забавное – никто за него на это не в обиде. Более того, публика привыкла и серьезно слушает только песни мистера Осборна, а не его откровения.</p>
+<p> С ветеранами и по совместительству отцами хэви-метал сцену разделят <a href="/ru/band/marilyn_manson/">MARILYN MANSON</a>, <a href="/ru/band/slipknot/">SLIPKNOT</a>, PAPA ROACH, DISTURBED и LINKIN PARK. Также на сцену выйдет BLACK LABEL SOCIETY и сольный проект "осборновского" гитариста Закка Уайлда.</p>
+<p> А сам старичок Оззи отмочит на сцене фестиваля свою собственную соло-программу. В сопровождающей его группе будет играть бывший муж Памелы Андерсон (который, к тому же, некогда играл в ВИА MOTLEY CRUE) Томми Ли. Интересно, что ра-ди возможности постучать для Великого и Ужасного, Томми отменил тур и отложил за-пись нового альбома своей собственной группы METHODS OF MAYHEM. В числе прочих участников концертного бэнда Оззи - Закк Уайлд и басист Роберт Трухильо. Этим же со-ставом (плюс гитарист ALICE IN CHAINS Джерри Кантрелл) будет записан и новый соль-ный альбом Оззи.</p>
+<p> В дополнение к новому шоу выходит документальный фильм "We Sold Our Souls for Rock & Roll. The OZZFEST '99, где будут редкие кадры прошлых туров OZZFEST.</p>
+<p> И под завязку – самая дурацкая новость. Оззи Осборн подписал контракт с некой те-левизионной компанией, которая начнет снимать… мыльный сериал, основанный на фак-тах "оззиковской" жизни. Сюжет прост: некая музыкальная звезда, ныне живущая на хол-мах Беверли-Хиллз, в самом богатом и престижном районе Лос-Анжелеса, вспоминает свою жизнь… Рабочее название сериала "Ozzy and Harriet".</p>
+<p></p>
+<p></p>
+
+Автор: Tornado
+
+### 12.03.2001 news Black Sabbath готовятся к Ozzfestу
+
+<p>Ozzy, Tony, Geezer, и Bill, также известные миру под именем Black Sabbath находятся в репетиционной студии в Англии и готовятся к летнему Ozzfestу. Интересно то, что разучивается несколько вещей не исполнявшихся с 70-х годов.</p>
+
+Автор: Yermola
+
+### 12.03.2001 news Black Sabbath In Rehearsals For Ozzfest
+
+<p>Ozzy, Tony, Geezer, and Bill, the outfit known as Black Sabbath, are in a British rehearsal studio preparing for this summer's edition of Ozzfest. Word is they'll pull out a few tracks they haven't played live since the 70's! The official line up and tour dates will be released shortly.</p>
+
+Автор: Yermola
+
+### 13.03.2001 news Ozzy выпускает компьютерную игру...
+
+<p>'OZZY'S BLACK SKIES'....Это не название альбома трибьюта великому и ужасному, это новая игра разработанная для Sony's PlayStation 2, Microsoft's Xbox и Windows-based PCs. По жанру игра относится к экшн/адвенчер. Разработанная iROCK Interactive совместно с Оззменом игра появится на прилавках до конца лета. Оззи выполнил озвучивание собственного персонажа и записал специальный трек 'OZZY'S BLACK SKIES'.</p>
+
+Автор: Yermola
+
+### 13.03.2001 news OZZY&#39;S BLACK SKIES
+
+<p>No, it's not the title of yet another horrendous Ozzy tribute album. It's the kickin' name of Ozzy's first game for Sony's PlayStation 2, Microsoft's Xbox, and Windows-based PCs. Developed by iROCK Interactive, 'Ozzy's Black Skies' is a creature-based action/adventure game set in an awesome fantasy world inspired by the Ozzman himself. The game features dozens of creatures from dragon-like Zelits to beastly Pytts to, of course, Ozzy as an in-game playable character. In addition to the wide array of creatures and characters, 'Black Skies' also features a dynamic storyline that drives the game through dozens of cool environments such as lush canyons, desecrated ruins, and hellish wastelands. Not only is 'Black Skies' Ozzy's first foray into the world of gaming but it's also the title of a wicked new song he recorded exclusively for the game. "The work Ozzy has done on the new music and character voiceovers has been really awesome. We've definitely got some exciting stuff for Ozzy fans and gamers alike." Robert Stevenson, VP of Production at iROCK. Already about a year into development, 'Black Skies' will be in stores this October.</p>
+
+Автор: Yermola
+
+### 14.03.2001 news Волшебник Страны Озз...
+
+<p>Неугомонный старик Оззи собрался выпустить новый альбом. Скооперировшись с Reeves Gabrels (David Bowie), гитаристом Zakk Wylde (Black Label Society), Jerry Cantrell (Alice In Chains) и продюссером Danny Saber (Marilyn Manson), старый планирует повторить успех предыдущего творения. Ко-продюссером выступит Tim Palmer. Дата выхода 26 Июня.</p>
+
+Автор: Yermola
+
+### 14.03.2001 news Ozzy Album...
+
+<p>Ozzy Osbourne will be releasing his newest album on a tentative date of June 26. He collaborated with Reeves Gabrels (David Bowie), guitarist Zakk Wylde (Black Label Society), Jerry Cantrell(Alice In Chains) and producer Danny Saber (Marilyn Manson), while the album itself will be produced by Tim Palmer.</p>
+
+Автор: Yermola
+
+### 04.05.2001 articles Шабаш нового тысячелетия
+
+<p>Старики <a href="/ru/band/black_sabbath/">BLACK SABBATH </a>("Черный шабаш") либо совсем выжили из ума, либо превратились в гениев музыки, на-гора выдающих шедевры. Иначе объяснить возросшую активность этого древнего квартета из эпохи динозавров объяснить невозможно.</p>
+<p> Пять лет назад <a href="/ru/band/black_sabbath/">BLACK SABBATH</a> были почетными аутсайдерами британской рок-сцены, от которых не ожидалось ничего, кроме скучных песен. Хотя больше всего от них ждали окончательного распада. Но музыканты оригинального состава группы вдруг решили, что эту дряхленькую тележку еще можно растолкать до сверхсветовой скорости. И растолкали. Поначалу были концертный прощальный тур и запись официального последнего альбома <a href="/ru/band/black_sabbath/">BLACK SABBATH</a> – концертного "Reunion". Затем последовал самый последний тур в поддержку продажи этого диска. Потом еще один – ну совсем последний-препоследний тур, после которого квартет пообещал уйти на пенсию. И вот теперь – долгожданная пенсия… в виде очередного тура хэдлайнерами на фестивале OZZFEST-2001 и записи нового студийного альбома золотым составом <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>это при том, что каждый участник группы выпустит в этом году собственный сольный альбом. Что ж, кто-то с появлением седины начинает бегать за юбками, а кто-то усиленно музицировать. В любом случае – мир требует комментариев!</p>
+<p> Билл Уорд, барабанщик:</p>
+<p> - 3 мая я завершил практически всю работу. Я записал аккордеон, хор, пару двенадцатиструнных гитар, остался оркестр на одну песню и вокал на все. Сводить запись будут в то время, пока я буду занят на туре Ozzfest – не очень хочется при этом сидеть. Все и так в надежных руках.</p>
+<p> Хочу сразу сказать - с моим новым сольником не будет никаких гастролей. И думать не хочу об организационных проблемах, менеджерах, сессионных музыкантах… Лучше просто поиграю в моей любимой команде <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>е буду морочить себе и всем окружающим голову!</p>
+<p> Кстати, кое-что из записанного я сочинил еще десять лет назад для Оззи. Но так и не удалось ему показать это тогда, а теперь я сам это пою.</p>
+<p> Ну а что касается <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>конец-то я почувствовал себя в хорошей форме именно как барабанщик! С тех пор как группа возродилась, начались эти туры, я пошел на поправку и наконец-то вошел в ритм. Сейчас я пытаюсь внести кое-какие джазовые элементы в хард-рок, как когда-то в старые добрые времена. Все это пригодится в новых песнях<a href="/ru/band/black_sabbath/"> BLACK SABBATH</a> – ведь там есть и настоящий металл, и мелодичный хард-рок. Но вообще-то идей больше чем на один альбом. И все звучит очень разнообразно. Так что вся эта круто заваренная каша с новым студийным альбомом мне очень нравится!</p>
+<p> Гизер Батлер также готовит сольный альбом – уже третий по счету. Два предыдущих оказались сенсацией в мире тяжелой музыки, и теперь Гизер готов подарить миру новую "бомбу":</p>
+<p> - Да, альбом почти готов, но работа над ним продолжится только после завершения тура OZZFEST-2001. Сейчас готовы двенадцать песен - я опять работаю с гитаристом Педро Хаусом, который играл на всех моих сольниках, и с вокалистом Кларком Брауном, который пел на моем втором альбоме "Black Science".</p>
+<p> - Что-нибудь из ваших записей может превратиться в песни для<a href="/ru/band/black_sabbath/"> BLACK SABBATH</a>?</p>
+<p> - Да, есть одна задумчивая и мрачноватая песенка, которую Билл Уорд хочет увидеть в альбоме <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>, также кое-что нравится и Томи Айомми (гитарист <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>). Но звучать это все будет только в новом альбоме GEEZER.</p>
+<p> - Что скажете о новых песнях <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>?</p>
+<p> - Пока мы сочинили шесть или семь песен. У них еще нет названий, но в целом это возвращение к корням, к старым добрым 70-м, и простому звуку. Ничего общего с двумя новыми песнями с диска "Reunion". Мы используем старые рецепты - просто сидим в студии, как когда-то при записи первых трех альбомов, импровизируем и записываем все. Результат слушаем дома, выбираем то, что понравилось, и продолжаем над этим работать. Настоящее совместное творчество. И кстати, я больше не пишу стихи ко всем песням! Теперь это делают трое остальных. И мы снова пишемся в Уэльсе.</p>
+<p> - Что-нибудь уже готово?</p>
+<p> - Пока только несколько песен, да и то без текстов – это последнее, что мы пишем. Три песни можно записывать хоть сейчас. Осталось написать еще двенадцать таких же крепких, и можно приступать. В отборе песен мы очень критичны – если вещь нравится лишь двоим из нас, то мы ее просто не играем.</p>
+<p> Среди готовых песен есть одна странная песенка – что-то вроде баллады, ее наверняка будут крутить по радио и всех этим достанут. Но мы не собираемся носиться с этим альбомом как дурень с писаной торбой – если он не будет звучать, как настоящий <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>, то его просто никто не услышит.</p>
+<p> В отличие от коллег по группе великий и ужасный Оззи свой новый сольный альбом никак не комментирует – он слишком занят делами <a href="/ru/band/black_sabbath/">BLACK SABBATH</a>. И хотя на фирме SONY, выпускающей альбомы мистера Осборна, рвут волосы от отчаяния (последний его альбом "Ozzmosis" вышел аж шесть лет назад) и подсчитывают упущенную прибыль, Оззи непоколебим: миру нужен именно "Черный Шабаш" - он его получит.</p>
+<p> И ничего с этим не поделать - кому захочется чинить препятствия этому явлению и навлекать проклятия миллионов фэнов на свою голову?</p>
+<p></p>
+
+Автор: Tornado
+
+### 29.08.2001 news Вниз к земле...
+
+<p>Неугомонный OZZY OSBOURNE снял видео к первому синглу "Gets Me Through" со своего нового альбома "Down To Earth". Съемки проходили всю предыдущую неделю в Лос-Анджелесе с режиссером Йонасом Акерлундом уже снимавшем для METALLICA и MADONNA. Также официально подтвержден Black Christmas Тур в который Оззи поедет с Робом Зомби уже в ноябре.</p>
+
+Автор: Yermola
+
+### 29.08.2001 news Down To Earth ...
+
+<p>OZZY OSBOURNE shot a video for the first single, entitled "Gets Me Through", from his upcoming Down To Earth CD, with director Jonas Akerlund (i.e. METALLICA, MADONNA, U2) in Los Angeles this past weekend. In other news, the previously rumored Black Christmas tour has now officially been confirmed, with OZZY and ROB ZOMBIE the only currently announced acts to be taking part in the November/December arena trek. MARILYN MANSON and DISTURBED are strongly rumored to be two of the other three acts that will be part of the package. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.09.2001 news OZZY OSBOURNE&#39;s news....
+
+<p>Тринадцатый сольник Оззи - "Down To Earth" уже прошел мастеринг и запланирован к выходу на 16-е октября. Продюссировал альбом Тим Палмер. Трек-лист: 01. Gets Me Through 02. Something That I Never Had 03. Dreamer 04. Easy Way Out 05. Facing Hell 06. You Know... 07. Junkie 08. Running Out of Time 09. Black Illusion 10. Alive 11. Can You Hear Them? Также были записаны две B-sides которые будут использованы в дальнейшем в виде бонус-треков. Кроме того, MTV готовит получасовую передачу на 16 сентября предваряющую мировую премьеру клипа к синглу "Gets Me Through". <br><br> _________________________________________________ <br> Из других новостей, экс-OZZY OSBOURNE/BADLANDS гитарист Jake E. Lee записал композицию "Surfing With The Alien" для трибьют альбома "Little Guitars: A Tribute to Joe Satriani and Steve Vai", который выйдет на Versailles Records в январе 2002.</p>
+
+Автор: Yermola
+
+### 04.09.2001 news OZZY OSBOURNE&#39;s 13th solo album.....
+
+<p>OZZY OSBOURNE’s 13th solo album, entitled Down To Earth, was officially mastered on Wednesday, August 29th, and is on schedule to make the October 16th street date. Produced by Tim Palmer, Down To Earth will include the following track listing: 01. Gets Me Through 02. Something That I Never Had 03. Dreamer 04. Easy Way Out 05. Facing Hell 06. You Know... 07. Junkie 08. Running Out of Time 09. Black Illusion 10. Alive 11. Can You Hear Them? Two B-sides have also been recorded and will be issued as overseas bonus tracks. Meanwhile, MTV will air a half-hour special on OZZY on September 16th, followed by the world premiere of the clip for the album’s first single, "Gets Me Through", which was directed by acclaimed Swedish director (and former CANDLEMASS roadie!) Jonas Akerlund (i.e. METALLICA, MADONNA, THE PRODIGY, U2). Last week, amidst his hectic schedule of photo shoots, interviews, and recording sessions, OZZY also sat down with VH-1 to tape more interview footage for his Behind the Music episode to be used to complement the original 1998 Behind the Music, which was reportedly one of the bio-program's top-rated episodes. <br> _________________________________________________ <br> Former OZZY OSBOURNE/BADLANDS guitarist Jake E. Lee has covered the JOE SATRIANI track Surfing With The Alien for the upcoming SATRIANI/STEVE VAI tribute album entitled Little Guitars: A Tribute to Joe Satriani and Steve Vai, which is due through Versailles Records in January 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.10.2001 news A Night Of Merry Mayhem ...
+
+<p>A Night Of Merry Mayhem tour, featuring OZZY OSBOURNE, ROB ZOMBIE, MUDVAYNE and SOIL, will have its inaugural date on October 31st in Tucson, Arizona, with the final show currently scheduled to take place on December 31st in Phoenix, Arizona. Here are the unofficial dates for the outing: <br> Oct. 31 - Tucson, AZ - TCC <br> Nov. 01 - Albuquerque, NM - Tingley Coliseum <br> Nov. 03 - El Paso, TX - Don Haskins Event Center <br> Nov. 05 - Memphis, YN - Pyramid <br> Nov. 07 - New Orleans, LA - Arena <br> Nov. 9th Houston, TX - Compaq Center <br> Nov. 10th Bossier City, LA - Century Tel Center <br> Nov. 12th Knoxville, TN - Thompson-Boiling Arena <br> Nov. 14th Cincinnatti, OH - Firstar Center <br> Nov. 15th Cleveland, OH - Gund Arena <br> Nov. 17th Nashville, TN - Gaylord Entertainment Center <br> Nov. 19th Birmingham, AL - BJCC <br> Nov. 21st Miami, FL - American Airlines Arena <br> Nov. 23rd Greensboro, NC - Coliseum <br> Nov. 24th Atlanta, GA - Philips Arena <br> Nov. 29th Grand Forks, SD - Alerus Center <br> Dec. 1st Madison, WI - Alliant Energy Center <br> Dec. 2nd Des Moines, IA - Vets Memorial <br> Dec. 4th Moline, IL - The Mark <br> Dec. 6th Chicago, IL - Allstate Arena <br> Dec. 8th Detroit, MI - Cobo Arena <br> Dec. 10th Louisville, KY - Freedom Hall <br> Dec. 11th Grand Rapids, MI - Van Andel Arena <br> Dec. 13th Hartford, CN - Civic Center Coliseum <br> Dec. 15th Worcester, MA - Centrum <br> Dec. 16th Buffalo, NY - HSBC Arena <br> Dec. 18th Albany, NY - Pepsi Arena <br> Dec. 20th Baltimore, MD - TBA <br> Dec. 21st Uniondale, NY - Nassau Coliseum <br> Dec. 23rd East Rutherford, NJ - Meadowlands <br> Dec. 28th Los Angeles, CA - Sports Arena <br> Dec. 29th San Diego, CA - Sports Arena <br> Dec. 31st Phoenix, AZ - Desert Sky Amph<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.10.2001 news Общество Черной Метки...
+
+<p>Закк Уальд и его "Общество Черной Метки" выпускают новый альбом. Названный "Deathcore War Machine Eternal" релиз выйдет на Spitfire Records в феврале 2002. Кроме того Закк будет участвовать в записи Оззиевского "Down To Earth" и поедет с ним в тур "A Night Of Merry Mayhem" (так же будут ROB ZOMBIE, MUDVAYNE and SOIL). Также Оззи сотоварищи выступят на "The Tonight Show" - 12 октября и на "Late Night With Conan O'Brien" - 19-го.</p>
+
+Автор: Yermola
+
+### 05.10.2001 news BLACK LABEL SOCIETY will be issuing its next studio effort...
+
+<p>Zakk Wylde’s BLACK LABEL SOCIETY will be issuing its next studio effort, entitled Deathcore War Machine Eternal, through Spitfire Records in February 2002. Along with re-joining OZZY OSBOURNE for the recording of OZZY's new Down To Earth album (due on October 16th), Zakk will be the guitarist for OZZY's upcoming A Night Of Merry Mayhem tour which runs from October 31st through December 31st (also featuring ROB ZOMBIE, MUDVAYNE and SOIL). OZZY OSBOURNE will be appearing on The Tonight Show on October 12th and the Late Night With Conan O'Brien show on October 19th. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 24.10.2001 reviews Великий и Ужасный Оззи
+
+<p>…Живые ударные, ухающий на заднем фоне размытый бас, сверплотные гитары с пониженным строем, а в гармониях и мелодиях узнается все тот же Великий и Ужасный Оззи. Осборн нашел самый верный способ осовременить свою музыку – лишь слегка подправил звук на более плотный и тяжелый, оставив почти без изменений дух своих песен. В итоге перед нами все тот же бесноватый и циничный клоун, не утративший ни грамма своей психопатии. Бог мой, а какой состав записывал это "падение"! Рычащая и визгливая гитара Закка Уайлда узнается за версту. Какие соло – мастер шести струн никуда не торопится и не гонится за скоростью ради скорости, и играет именно мелодии! Великолепна работа барабанщика Майка Бордина (ex-FAITH NO MORE) – уступая всем инструментам в общем сведении, Майк умудряется сделать альбом еще более тяжелым своей неторопливой работой. А его вступление к "Can You Hear Them" звучит как Апокалипсис… Не понимаю, как монстру пятиструнных бас-гитар Роберту Трухильо (ex-Suicidal Tendencies) удалось сдержать себя и не превратить все в сплошной фанк звенящим слэпом – инструмент в его руках превращается в размеренный низкочастотный пульс, обрисовывая очень глубокий фон для южно-роковых пассажей Закка и голоса Маэстро. Эти музыканты одним своим исполнением могут превратить заурядную песню в хорошую. Ну а хорошую – в крепкое спиртное, срывающее крышу. Но Оззи в компании с несколькими соавторами постарался от души – слабых вещей здесь нет. К счастью это не попытка уделать слегка нудноватый и очень мелодичный "Ozzmozis", о нет! Оззи с такой легкостью переходит от клавишных пассажей к плотному гитарному "мясу", что аж мурашки по коже… Неторопливый нагнетающий темп "Facing Hell" разбивает демонический смех Осборна, что начинаешь верить во все те слухи, что ходят о крестном отце хэви-метал. Упомянутая "Facing Hell", пожалуй, самая дьявольская песня альбома, где гитарный звук рушится, словно бетонная плита. А в почти фанковой "Junkie" гитарный бог Закк Уайлд основным риффом буквально заставляет струны плясать пляской святого Витта. "You Know" – как призрачный голос исчезающего мира, баллада в одну минуту, что могла бы стать хитом, будь она раз в пять длиннее… Альбом можно покупать только потому, что здесь хороши сами песни, достигнут очень органичный сплав современного звука и мелодии, и нет никаких претензий на эмтивишную ультрамодность. Тот факт, что это записал Оззи Осборн, лично для меня вторичен – впечатляет музыка, а не имя на обложке. Не к этому ли должны стремиться все без исключения?</p>
+<P> P.S. Конечно, это не стопроцентный шедевр – но очевидный претендент на один из лучших релизов года. Настолько профессионально, качественно и красиво сделанная музыка не может заслуживать иной оценки. Если кто-то вам скажет вдруг – что альбом так себе и Оззи уже не тот, не верьте. Через пару дней и несколько повторных прослушиваний мнение будет полностью противоположным. Уже проверено.</>
+
+Автор: Tornado
+
+### 13.11.2001 news Некоторые цифры продаж...
+
+<p>Вот вам цифры американских продаж некоторых металлических и не очень групп... Данные на начало Ноября. Предоставлены Soundcscan (цифра в скобках означает количество недель в чартах): <BR> <BR> SYSTEM OF A DOWN – Toxicity: 817,286 (9) <BR> OZZY OSBOURNE – Down To Earth: 269,374 (3) <BR> SLIPKNOT – Iowa: 553,043 (10) <BR> SLIPKNOT – Slipknot: 1,345,891 (123) <BR> METALLICA – Metallica: 12,890,072 (484) <BR> MISFITS – Cuts From The Crypt: 4,811 (1) <BR> SOIL – Scars: 34,433 (8) <BR> MACHINE HEAD – Supercharger: 24,202 (5) <BR> QUEENSRYCHE – Live Evolution: 20,727 (6) <BR> SLAYER – God Hates Us All: 121,179 (8)</p>
+
+Автор: Yermola
+
+### 13.11.2001 news OZZY OSBOURNE FORCED BY DOCTORS TO POSTPONE SOME DATES ON MERRY MAYHEM TOUR
+
+<p>OZZY OSBOURNE has been forced by doctors to postpone ten dates on the Merry Mayhem tour due to a stress fracture in his leg. The fracture occurred when OZZY fell coming out of the shower before the Tucson show on 10/31. He was unaware that the leg was fractured and continued to perform each night until the pain became unbearable. It was only yesterday [November 8th] that OZZY went to the doctor and discovered that his fall had resulted in a stress fracture injury to his leg. The doctor immediately ordered OZZY to stay off his leg and to cease touring to prevent further injury. OZZY is flying back to Los Angeles today to consult with his personal physician to assess the extent of his injuries and to determine when he can resume touring. The dates will remain postponed until otherwise notified. The dates immediately affected are as follows: <BR> <BR> Nov. 09 - Houston, TX @ Compaq Center <BR> Nov. 10 - Bossier City, LA @ CenturyTel Arena <BR> Nov. 12 - Knoxville, TN @ Thompson Boling Arena <BR> Nov. 14 - Nashville, TN @ Gaylord Entertainment Center <BR> Nov. 15 - Cleveland, OH @ Gund Arena <BR> Nov. 17 - Cincinnati, OH @ Firstar Center <BR> Nov. 19 - Birmingham, AL @ BJCC <BR> Nov. 21 - West Palm Bch, FL @ Mars Music Amphitheater <BR> Nov. 23 - Greensboro, NC @ Greensboro Coliseum <BR> Nov. 24 - Atlanta, GA @ Philips Arena<BR><BR> Further news regarding OZZY OSBOURNE’s condition, and the rescheduling of the dates postponed, will be forthcoming as soon as it becomes available.</p>
+
+Автор: Yermola
+
+### 13.11.2001 news Доктора заставили Оззи отложить тур...
+
+<p>Из за проблем с ногой, доктора заставили Оззи Озборна отложить десять ноябрьских концертов в рамках "Merry Mayhem tour". Вылезая из душа перед концертом в Таксоне, он подвернул ногу и не обратив на это внимания принял участие в шоу. Затем, когда боль стала невыносимой, Оззи обратился к докторам которые категорически потребовали прекратить тур и дать ноге полный отдых. Сейчас "великий и ужасный" прилетел в родной Лос-Анджелес и консультируется с личным врачом...</p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 15.01.2002 news ZAKK WYLDE Gets &quot;Head&quot; From Marshall ....
+
+<p>OZZY OSBOURNE/BLACK LABEL SOCIETY guitarist Zakk Wylde has had a Signature Amplifier Head issued by Marshall, featuring Zakk's signature bulls-eye graphic on the front panel. Product will be in extremely limited production (only 200 heads will be released in the U.S.). The details are follows:<BR><BR> Product number: 2203ZW/JCM WYLDE <BR> Retail: $2,499.99 <BR> Appoximate Sale Price: $1,999.99 <BR> Availibility: May 2002 – Dec. 2002</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Marshall выпустили усилитель посвященный ZAKK WYLDE ....
+
+<p>Известные производители музыкального оборудования "Marshal" выпустили гитарный усилитель (модель 2203ZW/JCM WYLDE) посвященный гитаристу OZZY OSBOURNE / BLACK LABEL SOCIETY - Zakk Wylde. На передней панели будет представлен автограф музыканта. Усилитель выпущен ограниченным тиражом - в штатах будет продано только 200 копий...</p>
+
+Автор: Yermola
+
+### 17.01.2002 news ТВ шоу об Оззи Озборне...
+
+<p>OZZY OSBOURNE и его семья стали объектами телесериала "The Osbournes" дебютный показ которого на MTV состоится 5-го марта. Будет показан 6-месячный период из жизни Оззи. Во время съемок группа MTV получит неограниченный доступ к частной и профессиональной жизни певца. "... никто не смог бы сыграть персонажи Оззи, Шэрон, Джека и Келли. Они слишком реальные для этого..." - говорит Lois Curren Вице Президент MTV. "MTV пришлось создать новую форму - реальное шоу... Ничего похожего сейчас на телевидении нет."</p>
+
+Автор: Yermola
+
+### 17.01.2002 news OZZY OSBOURNE And Family Land TV Show....
+
+<p>OZZY OSBOURNE and his family will be the subject of a new TV series, The Osbournes, to debut on MTV on March 5th. The series is based on a six-month period during which Ozzy and family allowed MTV nearly unlimited access to their personal and professional lives. According to the network, the show deals with typical and not-so-typical family issues such as school, pets, tattoos, adolescence and life on the road. "The Osbournes is such compelling television because no one could write the characters of Ozzy, Sharon, Jack and Kelly. They're simply too real," said Lois Curren, Sr. VP, Music Development, MTV. "MTV has really created a new form - it's part reality show, part sit-com, and there is nothing like it on TV." The Osbournes will air at 10:30 PM on March 5th, immediately after The Real World.</p>
+
+Автор: Yermola
+
+### 28.01.2002 news Оззи переиздает классические альбомы...
+
+<p>Неугомонный классик жанра OZZY OSBOURNE решил переиздать классические альбомы "Blizzard of Ozz", "Diary of a Madman", "Tribute" и "No More Tears". Выйдут релизы 26-го марта и будут содержать следующее: <BR><BR> - оригниальный ковер-арт<BR> - оригинальную информацию с диска<BR> - бонус-треки<BR> - новые фотографии<BR> - заметки Phil Alexander (главный редактор Kerrang!)<BR> - звук ремастерированный с оригинальных лент<BR><BR> Бонусы:<BR><BR> Blizzard Of Ozz:<BR> 01. You Lookin' At Me Lookin' At You (с английской версии Blizzard Of Ozz)<BR> 02. You Said It All (live) (B-side of the "Mr. Crowley" single)<BR><BR> Diary Of A Madman:<BR> 01. I Don't Know (live) (B-Side of "Flying High Again" single)<BR><BR> Tribute:<BR> 01. No Bone Movies (никогда не выходила ранее)<BR><BR> No More Tears:<BR> 01. Don't Blame Me (B-side)<BR> 02. Party With The Animals (B-side) <BR></p>
+
+Автор: Yermola
+
+### 28.01.2002 news OZZY OSBOURNE: Expanded Reissues On The Way ...
+
+<p>OZZY OSBOURNE will be releasing “expanded editions” of his Blizzard of Ozz, Diary of a Madman, Tribute, and No More Tears CDs on March 26th. All reissues will come with the following: <BR><BR> - Original cover art restored<BR> - All original issue information featured<BR> - Bonus tracks<BR> - New, never-before-seen photos<BR> - In-depth liner notes from Phil Alexander (editor-in-chief of Kerrang! )<BR> - Digitally remastered from the original master tapes for the ultimate sound<BR><BR> Bonus Tracks:<BR><BR> Blizzard Of Ozz:<BR> 01. You Lookin' At Me Lookin' At You (from UK version of Blizzard Of Ozz)<BR> 02. You Said It All (live) (from UK B-side of the "Mr. Crowley" single)<BR><BR> Diary Of A Madman:<BR> 01. I Don't Know (live) (taken from B-Side of "Flying High Again" single)<BR><BR> Tribute:<BR> 01. No Bone Movies (previously unreleased single edit)<BR><BR> No More Tears:<BR> 01. Don't Blame Me (B-side)<BR> 02. Party With The Animals (B-side) <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 reviews Волшебник Страны Озз или Вниз К Земле....
+
+<p>После полетов где-то в области недосягаемой стратосферы Старик Оззи опустился на землю... Да и как говорится - лицом в грязь. Собирался слушать альбом совершенно без предубеждения и даже заинтересованно после предыдущих увиденных рецензий... НО. Альбом меня совершенно не порадовал. Закк Уальд?!? Невразумительные модные риффы (уже смертельно надоевшие начиная с Accident Of Birth угадайте кого?), чуть ли не Корн/Лимп Бискит саунд... Ни ярких соло, ни интересной ритм-секции... Более того, "Down to Earth" практически на голову ниже своего предшественника - "Ozzmosis", где при всех новомодных штучках присутствовал драйв и песни были не вымученными! Я не говорю уже о сравнении с культовыми альбомами периода Рэнди Роудса и Джэйка И.Ли. Небо и Земля! И вот из этого неба и на эту землю и вернулся... Великий и ужасный. Плачьте Элли, Дровосек и храбрый лев. Только из уважения к былым заслугам - оценка 6.</p>
+
+Автор: Yermola
+
+### 28.03.2002 news Скончался RANDY CASTILLO
+
+<P>Скончался барабанщик Рэнди Кастилло, участник проектов OZZY OSBOURNE/MOTLEY CRUE. Причина смерти &ndash; та же, что и у Чака Шульдинера &ndash; рак. До самой смерти Castillo работал над новым проектом с ex-ALICE IN CHAINS бассистом Mike Inez. </P></>
+<P>Карьера Кастилло начиналась в 1984 году с Литой Форд (альбом Dancin' On The Edge), после которого он был барабанщиком OZZY OSBOURNE на пяти альбомах: 1986 &ndash; Ultimate Sin, 1989 &ndash; No Rest For The Wicked, 1990 &ndash; Just Say Ozzy, 1991 &ndash; No More Tears и 1993 &ndash; Live & Loud. </P></>
+
+Автор: Yermola
+
+### 28.03.2002 news Randy Castillo reportedly passed away....
+
+<P>Former OZZY OSBOURNE/MOTLEY CRUE drummer Randy Castillo reportedly passed away yesterday due to complications stemming from his long-running battle with cancer. Castillo was 51 years old. </P></>
+<P> </P></>
+<P>MOTLEY CRUE bassist Nikki Sixx posted the following message at www.motley.com following Randy's death: “You used to joke around with me all the time, saying that we had 'dented halo's'. I'll miss you my friend, and I love you.” </P></>
+<P> </P></>
+<P>Prior to his passing, Castillo was reportedly working with ex-ALICE IN CHAINS bassist Mike Inez and an undisclosed guitarist in a new project, which was in the process of writing music and checking out prospective singers. </P></>
+<P> </P></>
+<P>It was only this past November that Castillo proclaimed himself to be “100% back, strong & kicking” in an interview posted at CRUE's official web site. The drummer seemed to be particularly excited about the new band and called the experience of working with Inez “very refreshing and satisfying”. </P></>
+<P> </P></>
+<P>Castillo's recording career began with the 1984 LITA FORD album Dancin' On The Edge, after which the drummer joined OZZY OSBOURNE for a total of five albums—1986's Ultimate Sin, 1989's No Rest For The Wicked, 1990's Just Say Ozzy, 1991's No More Tears, and 1993's Live & Loud. </P></>
+<P> </P></>
+<P>Castillo underwent emergency surgery after suffering a ruptured stomach ulcer in the weeks following the completion of the most recent MOTLEY CRUE album, 2000's New Tattoo. He was subsequently replaced in CRUE's touring line-up by HOLE drummer Samantha Maloney. </P></>
+<P> </P></>
+<P>Randy learned that he had cancer shortly after the above-mentioned operation, and immediately began an intensive radiation-and-chemotherapy program. Subsequent messages from Castillo indicated that his condition was improving, with one such posting, back in April of 2001, stating in no uncertain terms that the drummer had "won the battle against the big C!" </P></>
+<P> </P></>
+<P>Rest in peace, Randy. You will be missed. </P></>
+
+Автор: Yermola
+
+### 15.04.2002 news Старик Оззи получил звезду...
+
+<P>Несмотря на то, что последний альбом старого волшебника оказался полным дерьмом (или именно благодаря этому?), Оззи получил именную звезду, залитую цементом, на Голливудском бульваре. Ура!!! Как сказал сам "именинник": "Сказать что это большая честь &ndash; просто недостаточно. Это просто невероятно &ndash; увидеть всех вас вставших так рано (11:30 утра! Прим. авт.), чтобы увидеть мою старую задницу..." </P></>
+<P>Если окажетесь неподалеку &ndash; заходите: 6780 Hollywood Blvd in Hollywood, California, USA. :-) </P></>
+
+Автор: Yermola
+
+### 16.04.2002 news OZZY OSBOURNE Gets Star On Hollywood&#39;s Walk Of Fame ....
+
+<P>At 11:30 AM yesterday morning, at 6780 Hollywood Blvd in Hollywood, California, Ozzy Osbourne was awarded a star on Hollywood's Walk of Fame. Accepting the honor, Ozzy told the crowd of over 1,000: “To say that this is an honor is not enough. This is just so overwhelming, with all of you turning out so early in the morning to see my old butt.” </P></>
+<P> </P></>
+<P>Marilyn Manson delivered a speech at the sidewalk ceremony, part of which is transcribed below: </P></>
+<P> </P></>
+<P>“Most people think that you have to be happy to succeed socially, politically or financially or that success brings happiness. In turn, those who are eternally unhappy are expected to go insane and or become criminals. This star proves that it is quite obvious that Ozzy has managed to succeed while remaining insane and strangely happy despite his various crimes against man and nature.” </P></>
+
+Автор: Yermola
+
+### 03.06.2002 articles Выступят ли в Москве Оззи и Rammstein?
+
+<p>Ситуация вокруг концертов Rammstein и Оззи Осборна в Тушино, о которых «ГАЗЕТА» писала на прошлой неделе, продолжает оставаться неясной. Правительство Москвы по-прежнему тянет с выдачей разрешений на проведение двух шоу. Зрители, уже купившие билеты на концерты, теряются в догадках – сдавать их в кассы или успокоиться. Корреспондент «ГАЗЕТЫ» встретился с организатором концерта Оззи Осборна, директором компании JSA Александром Стрижаком, чтобы прояснить ситуацию.<BR><BR> - Правда ли, что начался массовый возврат билетов в кассы? <BR><BR> - Не совсем так. Мы рассчитывали продать на шоу Осборна тридцать тысяч билетов. На сегодня разошлось уже процентов двадцать. Правда, после того как «ГАЗЕТА» на прошлой неделе написала о проблемах, продажа немного притормозилась. К тому же мы пошли навстречу ГУВД и решили немного сократить число зрителей – до 20-25 тысяч. <BR><BR> - Возможен ли перенос выступления Оззи Осборна? <BR><BR> - Нет. Перенести концерт невозможно в принципе, гастрольный график артистов такого уровня верстается за год до начала тура. В случае отмены или переноса нам грозит огромная неустойка. <BR><BR> - Дорого привезти Оззи? <BR><BR> - Достаточно. Но по договору с агентом артиста я не имею права разглашать никаких цифр. Единственное, что могу сказать: общие расходы на организацию шоу составляют несколько сот тысяч долларов, в которые входит и гонорар, и расходы на сцену, охрану и прочее. <BR><BR> - За счет чего вы отбиваете эти деньги? <BR><BR> - За счет билетов – этот концерт не спонсируется СПС. Немцов упомянул о концерте Оззи в письме, которое он направил Юрию Лужкову, видимо, потому, что демократические принципы равны для всех, а концерты Rammstein и Оззи проходят на одном поле с разницей в три дня. <BR><BR> - Но при чем тут демократические принципы? Проблема ведь в юных спортсменах, для охраны которых от скинхедов правительство Москвы стягивает в город милицейскую армию, разве нет? <BR><BR> - Нельзя все валить на скинхедов. В той же Англии их предостаточно, но проведению летних фестивалей они не мешают. А теракты 11 сентября в результате ведь не помешали проведению Олимпиады в США. Мы же налогоплательщики – мы платим за нашу безопасность. И если проходят одни культурные события, то почему не должны проходить другие? Тем более что это статусные концерты, которые влияют на имидж Москвы и России. <BR><BR> - Насколько мне известно, после письма Бориса Немцова Лужкову, в котором аргументированно была изложена проблема вокруг обоих концертов, Юрий Михайлович дал отмашку срочно выдать разрешения на оба концерта. <BR><BR> - Я тоже об этом слышал. Но разрешения до сих пор нет. Мне кажется, что проблема тут бюрократическая – существует определенная чиновничья иерархия, притом что никто не хочет брать на себя ответственность. Видимо, существует и лоббирование интересов других компаний, организующих крупные концерты (основные игроки на этом рынке – JSA (Оззи Осборн), TCI (Rammstein), SAV Entertainment, Росинтерфест и РАЙС. – «ГАЗЕТА»). Но это лишь предположение. <BR><BR> 31.05.2002<BR> Антон Помещиков<BR> <A HREF="http://www.gzt.ru/rubricator.gzt?rubric=reviu&id=12550000000004020">http://www.gzt.ru/</A></p>
+
+Автор: Yermola
+
+### 05.06.2002 news OZZY OSBOURNE с семейкой подписали выгодную сделку...
+
+<p>Нестареющий мастер черного PR - OZZY OSBOURNE (чего стоят акции с откусыванием голов летучим мышам!) и семья подписали сделку с компанией Signatures Network, которая будет выпускать сотни продуктов посвященных Оззи... Стикеры, кружки, наклейки, фигурки и т.п. <BR> <BR> Dell Fuyrano - шеф Signature - работал с Осборнами последние 20 лет выпуская мерчандайзинг. По его словам продажи в год составят около 200 млн. долларов, из которых Оззи с Шэрон перепадет от 10 до 15 млн.</p>
+
+Автор: Yermola
+
+### 05.06.2002 news OZZY OSBOURNE And Family Sign Master Licensing Deal ....
+
+<p>OZZY OSBOURNE and family have signed a master licensing deal with Signatures Network in San Francisco to allow the firm to market hundreds of OZZY OSBOURNE products, including backpacks, notebooks, caps, wallets, hosiery, loungewear, stickers, dart boards and action figures. <BR><BR> Prices will range from 50 cents for a magnet to more than $40 for a figurine of OZZY or his wife/manager Sharon.<BR><BR> Dell Fuyrano, Signature CEO who has worked with the OSBOURNE clan for nearly 20 years marketing OZZY merchandise, estimates the merchandise should yield about $200 million in retail sales by the end of the year, with about $10 to $15 million going to the family.<BR><BR> In related news, the following was published in today's edition of the New York Post:<BR><BR> The venerable BBC, which has been airing the "F-word" for so long it's lost any power to shock, got all coy with its worldwide broadcast of last night's London pop concert marking the Queen's Golden Jubilee. The Beed put out a 30-second delay on the telecast because it was terrified of what flavor-of-the-month OZZY OSBOURNE might blurt out from the stage. Probably right to be concerned — earlier in the piece OZZY wondered aloud to the press about what Prince Charles was doing with "that Camilla with a face like a sack of s---."</p>
+
+Автор: Yermola
+
+### 06.06.2002 news Выступления группы Оззи Осборна прерваны и все концерты, начиная с 8 июня 2002г., отменены!!!
+
+<p>Агентство, представляющее интересы Оззи Осборна (Ozzy Osbourne) и отвечающее за организацию его европейского и российского туров, официально уведомило нас о том, что выступления группы Оззи Осборна прерваны и все концерты, начиная с 8 июня 2002г., отменены. <BR><BR> Причиной является внезапная болезнь гитариста группы Закка Уайлда (Zakk Wylde), который был срочно отправлен в США для прохождения курса лечения.<BR><BR> Таким образом, аннулированы уже объявленные концерты:<BR> 08 июня, Цюрих, Халленстадион<BR> 10 июня, Копенгаген, Валбихаллен<BR> 11 июня, Стокгольм, Глобен<BR> 13 июня, Хельсинки, Хартволл<BR> 15 июня, Санкт-Петербург, Ледовый Дворец<BR> 16 июня, Москва, аэродром Тушино<BR><BR> Оззи Осборн, музыканты его группы и менеджмент выражают сожаление в связи с этим непредвиденным событием. Они надеются, что поклонники группы и просто любители рока, которым хорошо известно имя Закка Уайлда, с пониманием и сочувствием отнесутся к вынужденному решению об отмене гастролей. <BR><BR> Со своей стороны мы, как организаторы московского концерта Оззи Осборна, выражаем искреннее сочувствие всем тем, кто ждал этого события.<BR><BR> Мы не теряем надежды, что после выздоровления Закка Уайлда, нам удастся выполнить свое обещание и устроить праздник рока для всех поклонников Оззи Осборна. Новые даты концертов будут сообщены, как только это позволят обстоятельства.<BR><BR> Информация, касающаяся порядка возврата билетов, будет сообщена в самое ближайшее время. Дополнительная информация на сайтах <A HREF="http://www.jsa.ru ">www.jsa.ru </A>или www.ozzy.com<BR><BR> Александр Стрижак <BR> Директор компании JSA</p>
+
+Автор: Yermola
+
+### 10.06.2002 news Биография Оззи...
+
+<p>В скором времени увидит свет биография Оззи Осборна, 'Rockdetector- Ozzy Osbourne'. Эксклюзивные интервью с Bob Daisley, Lee Kerslake, Bernie Torme, Carmine Appice, Steve Vai, Pete Way, Phil Soussan, Tommy Aldridge, Lyndsay Bridgwater, Terry Nails, Don Airey, Dana Strum, Frank Hall, Dave Potts, Terry Horbury, Lita Ford, Fred Coury, Kelly Garni, Paul Chapman, Ray Gomez и Randy Castillo. Вступительная глава доступна на <A HREF="http://www.cherryred.co.uk/books/ozzytxt.htm">http://www.cherryred.co.uk/books/ozzytxt.htm</A></p>
+
+Автор: Yermola
+
+### 10.06.2002 news The &#39;Rockdetector- Ozzy Osbourne&#39; book is out ...
+
+<p>The 'Rockdetector- Ozzy Osbourne' book is out in about 2-3 weeks now. An advance chapter is posted at: <A HREF="www.cherryred.co.uk/books/ozzytxt.htm">www.cherryred.co.uk/books/ozzytxt.htm</A>Interviewed exclusively for the book are Bob Daisley, Lee Kerslake, Bernie Torme, Carmine Appice, Steve Vai, Pete Way, Phil Soussan, Tommy Aldridge, Lyndsay Bridgwater, Terry Nails, Don Airey, Dana Strum, Frank Hall, Dave Potts, Terry Horbury, Lita Ford, Fred Coury, Kelly Garni, Paul Chapman, Ray Gomez and the late Randy Castillo among others. "The book includes first hand accounts of the song writing, recording and auditioning processes that made up the band. The very first attempts at building the Blizzard Of Ozz band, the people that made it into the band as well as those who came close. Never before has the Ozzy Osbourne band history been documented in so much detail. Each individual musician is also given a full solo career discography and history.", - authors said.</p>
+
+Автор: Yermola
+
+### 16.06.2002 articles О порядке возврата приобретенных билетов на концерт Оззи Осборна.
+
+<p>Компания JSA, организатор московского концерта Оззи Осборна, сообщает о порядке возврата приобретенных билетов. <br> Билеты на несостоявшийся концерт Оззи Осборна, намеченный на 16 июня в Тушино, будут выкупаться с 1 по 10 июля 2002 г. в специальной кассе у входа на аэродром Тушино. <BR> Проезд до станции метро Тушинская, далее следуйте указателям до входа на аэродром. <BR> Кассы будут работать ежедневно кроме воскресенья с 11:00 до 19:00, без перерыва на обед. <BR> Справки по телефону 230-10-12 или www.jsa.ru <BR> Компания JSA выражает сожаление в связи с отменой концерта по независящим от нее условиям и благодарит поклонников Оззи Осборна за понимание и поддержку. <BR> Благодарим администрацию НАК им. Чкалова за помощь и поддержку. <BR> JSA, 14 июня 2002 г.</p>
+
+Автор: Vit Belov
+
+### 10.07.2002 news Поздравим Закка Уайльда....
+
+<p>Поздравим гитариста BLACK LABEL SOCIETY/OZZY OSBOURNE - Закка Уайльда - вчера у него родился третий ребенок простенько названный Hendrix Halen Michael Rhodes Wylde.... Ох уж эти гитаристы... :-))</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Металл&#x2F;Хард Рок в Германских чартах Медиа Контрол...
+
+<p>Представляем вашему вниманию жанр Металл/Хард Рок в Германских Медиа Контрол чартах (топ 100) по состоянию на текущюю неделю: <BR><BR> 01. (новичок) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) B&Ouml;HSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> Число в скобках показывает позицию на прошлой неделе...</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart* for the week ending July 22nd (as reported by Rock Hard magazine): <BR><BR> 01. (new) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) BЦHSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Auswдrtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> * number in parenthesis indicates last week's chart position</p>
+
+Автор: Yermola
+
+### 30.07.2002 news Сериал &quot;THE OSBOURNES&quot; будет выпущен на DVD....
+
+<p>Miramax Films подписали контракт с семейкой Озборн на выпуск серий "The Osbournes" на DVD и видео. Заправляющая делами мужа Шэрон осталась в восторге от руководителя Miramax - Harvey Weinstein и считает, что лучшей компании для выпуска сериала на носителях не существует... В продаже все это появится еще до конца 2002 года.</p>
+
+Автор: Yermola
+
+### 30.07.2002 news &quot;THE OSBOURNES&quot; To Be Made Available On DVD
+
+<p>Miramax Films has reportedly signed The Osbournes TV series for DVD and video. <BR><BR> Sharon Osbourne is said to have signed the deal after negotiating directly with Miramax chairman Harvey Weinstein. "As soon as I discussed this project with Harvey, I knew that Miramax was the right home for The Osbournes, said Sharon Osbourne in a statement. "With the marketing plans for the DVD and video, it just had to be 'bleeping' Miramax."<BR><BR> Under the deal, Miramax will release the entire first series as well as the yet-to-be-made second series.<BR><BR> "The Osbournes have the perfect mix of family, music and drama we've always appreciated here at MMX," said Harvey Weinstein. "The show's incredible following, never-before-seen footage and other DVD extras will make The Osbournes a key addition to Miramax's family of DVD and video hits."<BR><BR> The DVD of the first season is expected to be released before the end of this year.</p>
+
+Автор: Yermola
+
+### 02.08.2002 news Metal&#x2F;Hard Rock в германском Media Control Chart ...
+
+<p>Вот так на текущей неделе выглядит German Media Control (Top 100) чарт в жанре металл/хард рок: <BR><BR> 16. PAPA ROACH – Lovehatetragedy<BR> 22. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 23. NIGHTWISH - Century Child<BR> 30. SYSTEM OF A DOWN - Toxicity<BR> 31. KORN - Untouchables<BR> 39. MANOWAR - Warriors Of The World<BR> 40. B&Ouml;HSE ONKELZ - Dopamin<BR> 45. NICKELBACK - Silver Side Up<BR> 54. SOULFLY - 3<BR> 61. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 70. PUDDLE OF MUDD - Come Clean<BR> 75. DONOTS - Amplify The Good Times<BR> 83. DARK TRANQUILLITY - Damage Done</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock в Германских Чартах...
+
+<p>Вот так выглядит Топ-100 Германских Медиа Контрол Чартов по состоянию на текущую неделю... <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. B&Ouml;HSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending August 19th: <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. BЦHSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 21.08.2002 news Оззи против Дэйзли и Керслэйка....
+
+<p>По сообщению "The New York Times" закончено судебное разбирательство между Оззи Озборном и бывшими участниками его проекта басистом Бобом Дэйзли и барабанщиком Ли Керслэйком, которые пытались взыскать с ответчика 20 000 000 долларов в качестве авторских гонораров за участие в написании песен двух "классических" альбомов. Судья Кристина Снайдер закрыла дело из-за истечения срока давности на авторские права. Как заявил юрист Озборна - Орин Снайдер (однофамилец судьи!): "Это замечательная победа и она пришла вовремя...".</p>
+
+Автор: Yermola
+
+### 21.08.2002 news DAISLEY&#x2F;KERSLAKE Case Dismissed By Judge ...
+
+<p>The following article appears in today's edition of The New York Times: <BR><BR> Here is a scene viewers won't see on the MTV show The Osbournes: OZZY OSBOURNE handing over millions in royalties to his onetime bass player and drummer.<BR><BR> The bass player, Bob Daisley, and the drummer, Lee Kerslake, sued Mr. Osbourne in federal court in Los Angeles in 2000. They said he owed them about $20 million for writing the songs on two heavy-metal albums from his pre-reality-television, pre-household-name days.<BR><BR> Judge Christina A. Snyder dismissed the case last week, saying that the statute of limitations had long since expired. She also said that the two men had failed to explain why they believed they had been improperly credited on record labels.<BR><BR> A lawyer for the Osbournes, Orin Snyder of the Manhattan firm of Parcher, Hayes & Snyder, said they were "delighted."<BR><BR> "It's a nice victory, and it comes at a good time," said Mr. Snyder, who is not related to the judge.</p>
+
+Автор: Yermola
+
+### 28.08.2002 articles Ex-OZZY Bassist BOB DAISLEY: I Am Astounded By Court Ruling In OSBOURNE Case ....
+
+<p>Former OZZY OSBOURNE bassist Bob Daisley has issued the following statement in response to the August 16th ruling by the Los Angeles Federal Court dismissing the lawsuit over unpaid performance royalties brought by Daisley and ex-OZZY drummer Lee Kerslake against Ozzy and Sharon Osbourne: <BR><BR> "Obviously this is a disappointing ruling, but it's not over yet. This case has merit — Lee and I have been struggling for two decades just to receive the correct royalties and credit that's due us — and we are confident that we will prevail in the end."<BR><BR> Bob told Paul Cashmere of Australia's Undercover News he found out the bad news in the early hours of the morning. "Lee phoned me because he had only just heard about the ruling from our lawyer," Bob said. "I think it was early Wednesday morning, Tuesday night in England where Lee phoned from. We were both astounded because we had rulings in the past, this case has been going on for four years plus, we've had a couple of rulings in the past that were totally in our favor. This was totally surprised and we were astounded that this came up. I'm pretty much speechless now. Let's see what happens now. We haven't decided on which way we are going to go with it. It's not over, I can tell you that".<BR><BR> As previously reported, the case was expected to go before the judge early next year but that is all now up in the air. "The courts were booked to go into court and that was that judge who gave us that date to go into court in February next year, which is less than 6 months away" Bob told Undercover. "I don't know what's going to happen now. I guess we'll have to wait and see what is going to happen over the next six months with our comeback on this situation".<BR><BR> Despite reports to the contrary, Daisley continues to get paid his songwriting royalties for the songs he wrote on the first Blizzard of Ozz album and the follow-up Diary of a Madman. The issue here, apparently, is about performance royalties. "The performance thing is different to the songwriting thing," Daisley told Undercover. "There is songwriting what we still get. Performance is what this whole thing is about, performance royalties and now they have taken us off. There is still all the past millions and millions of records been sold with our performance on them and that is what this case is all about, plus our credits on the first album that our performances are on that we didn't get credited for. We have always had our songwriting credits on both these albums. But the second album Diary of a Madman we didn't get our credit for performing on it. I can't say enough about this particular situation until the dust settles. It's just been a matter of days since we heard the news. We are going to regroup and see what the next plan of action is."</p>
+
+Автор: Yermola
+
+### 19.02.2003 news OZZFEST 2003
+
+<p>Ozzy Osbourne returns to headline Ozzfest 2003 to do what he loves best - play rock n'roll. The Prince of Darkness will hit the stage with band mates Zakk Wylde, Robert Trujillo, and Michael Bordin with a hard-hitting set of songs culled from his 33-year career as rock's purveyor of heavy metal.</p>
+<P> Korn, have signed on for their first Ozzfest, bringing their rich sonic assault to the masses; Marilyn Manson returns with his unforgettable stage show; Ozzfest favorites Disturbed are back with more of their anthemic metal; and Ozzfest 2002 Second Stagers Chevelle have graduated and will usher in the Main Stage entertainment beginning at 5pm.</>
+<P>This year the tradition continues with a second stage bill that includes the best young acts in the constantly changing hard rock scene. Presiding over the Second Stage are English goth-metal phenoms Cradle of Filth who will make their first U.S. rock festival appearance on Ozzfest 2003 and Trust Company. Underground favorites Shadow's Fall, Killswitch Engage, and Nothingface bring a heavier edge to the second stage, joining upstarts Hotwire, Grade 8, Twisted Method, Unloco, and Memento are just a few of the 14 bands that will round out the second stage line-up. (More bands TBA.)</>
+<P>Tickets go on sale in March with limited specially priced $10 tickets available at venue box offices. Regularly priced tickets are available at all Ticketmaster outlets.</>
+<P> Tour Dates (all subject to change - on-sale dates to be announced by week's end)</>
+<P> Sat-Jun-28 San Antonio Verizon Wireless Amphitheatre<BR> Sun-Jun-29 Dallas Smirnoff Music Center<BR> Wed-Jul-02 Phoenix Cricket Pavilion<BR> Thu-Jul-03 San Diego Coors Amphitheatre<BR> Sat-Jul-05 Los Angeles Glen Helen Pavilion<BR> Tue-Jul-08 San Francisco Shoreline Amphitheatre<BR> Wed-Jul-09 Sacramento Sleep Train Amphitheatre<BR> Sat-Jul-12 Seattle White River Amphitheatre<BR> Tue-Jul-15 St. Louis UMB Bank Pavilion<BR> Thu-Jul-17 Kansas City Verizon Wireless Amphitheatre<BR> Sat-Jul-19 Minneapolis Float-Rite Park<BR> Sun-Jul-20 Chicago Tweeter Center<BR> Tue-Jul-22 Cleveland Blossom<BR> Thu-Jul-24 Detroit DTE Entergy Music Theatre<BR> Wed-Jul-30 Pittsburgh Post-Gazette Pavilion<BR> Thu-Jul-31 Indianapolis Verizon Wireless Amphitheatre<BR> Sat-Aug-02 Milwaukee Alpine Valley<BR> Sun-Aug-03 Columbus, OH Polaris Amphitheatre<BR> Tue-Aug-05 Scranton, PA Montage Mountain<BR> Thu-Aug-07 Philadelphia Tweeter Waterfront<BR> Sat-Aug-09 Hartford Meadows Music Theatre<BR> Mon-Aug-11 Buffalo Darien Lakes<BR> Thu-Aug-14 Boston Tweeter Center<BR> Mon-Aug-18 New York PNC Bank Arts Center<BR> Fri-Aug-22 Washington DC Nissan Pavilion<BR> Sun-Aug-24 Charlotte Verizon Wireless Amphitheatre<BR> Tue-Aug-26 Atlanta Hi-Fi Buys Amphitheatre<BR> Thu-Aug-28 West Palm Beach Coral Sky Amphitheatre</>
+<P> http://www.ozzfest.com/<BR> http://www.ozzy.com/</>
+
+Автор: Vit Belov
+
+### 27.02.2003 news Роб Трухильо - новый бассист Металлики...
+
+<p>Metallica официально объявили имя нового басс-гитариста. Им стал Rob Trujillo игравший с Suicidal Tendencies/Ozzy Osbourne band member as its new bassist. Trujillo появится уже на новом студийном альбоме всадников - "St. Anger" который запланирован к выходу на Elektra 10-го июня. Долговременный продюссер и друг металликовцев Боб Рок исполнял эту роль во время редких концертов и в студии. <BR><BR> Также группа объявила о длительном Северо-Американском туре "Sanitarium" с Limp Bizkit и Linkin Park. Знакомство с Трухильо для команды состоялось еще в 1993 году во время тура Suicidal Tendencies с Metallica. "Когда Роб приехал в Сан-Франциско и поджемовал с нами, мы поняли что возникла какая то магия между нами..." - говорит группа. <BR><BR> Что же касается ушедшего Джэйсона, он объявлен официальным участником ветеранов Voivod и также продюссировал их альбом который выходит 4-го марта на его собственном лэйбле Chophouse Records.</p>
+
+Автор: Yermola
+
+### 27.02.2003 news Metallica Signs Up Bassist Rob Trujillo ...
+
+<p>Metallica has named former Suicidal Tendencies/Ozzy Osbourne band member Rob Trujillo as its new bassist. Trujillo replaces Jason Newsted, who departed in early 2001, and will appear on the quartet's upcoming studio album, "St. Anger," due June 10 from Elektra. Longtime producer Bob Rock has played bass at sporadic concert experiences and in the studio with Metallica since Newsted's departure, and the group had been vague as to whether or not it was seeking a full-time fourth member. <BR><BR> Earlier this month, Metallica announced its North American Summer Sanitarium tour with Limp Bizkit and Linkin Park, but evaded questions on the open bass position. The band's connection to Trujillo stretches back to 1993, when Suicidal Tendencies toured with Metallica, and a post on the band's Web site implies that Trujillo was present for much of the new album's recording sessions. <BR><BR> "When Rob came to San Francisco the first time and jammed with us, we all felt this incredible magic between the four of us," the band writes. "It was just something we could not describe, we all just knew it."<BR><BR> Additionally, drummer Lars Ulrich writes, "The last two years of just being the three of us have taught me soo [sic] much about myself, about James and Kirk and about Metallica. To welcome Rob into Metallica in 2003 after all the growth and soul searching we've been through for the last two years, feels ... awesome. Being at full strength again is at this moment indescribable."<BR><BR> Meanwhile, the band has confirmed 16 dates for the Summer Sanitarium tour, including a July 26 performance at the Hawthorne Racetrack in Chicago and an Aug. 9 date at the Coliseum in Los Angeles. Among the cities still awaiting dates and venues are New York, San Francisco, and Toronto. Updates will be posted on Metallica's Web site. <BR><BR> Metallica will embark on a brief tour of the European festival circuit before its North American outing, and continue to sprinkle in overseas dates throughout the summer. The group is pegged to play dates June 6 at the Rock Im Park festival in Nuremberg, Germany, and will travel between continents until a pair of gigs Aug. 22 and 24 at the U.K.'s Reading and Leeds festivals.<BR><BR> As for Newsted, the bassist has become a official member of veteran metal act Voivod. He also produced the band's upcoming self-titled album, which is due March 4 via Newsted's Surfdog imprint Chophouse Records. <BR><BR> -- Todd Martens, L.A.</p>
+
+Автор: Yermola
+
+### 23.03.2003 news Jason Newstead примкнул к Оззи...
+
+<p>Экс-бассист Metallica Джейсон Ньюстэд примкнул к Оззи Озборну. Ларс Ульрих, барабанщик METALLICA, в радио-интервью отметил, что его бывший коллега, видимо, "потерялся", если принял предложение Великого и Ужасного.</p>
+<p>"Если бы Ларс был бы достаточно хорош, он присоединился бы к ОЗЗИ тоже", - сказал Джейсон в интервью греческому журналу Rock On. "Ларс может поцеловать меня в задницу. Я думаю, что он просто забыл, какая группа разогревала выступления Озборна в далёком 1986 году (намёк на METALLICA)".</p>
+<p>Ньюстэд, который всё ещё и постоянный член Voivod, будет выступать дважды на предстоящем ОззФесте и в течение канадского тура Озборна в июне. Ведь в обоих событиях будет участвовать и Voivod.</p>
+<p>В это же время поступают комментарии от других участников проекта Озборна. Барабанщик Майк Бордин сказал, что он удовлетворён включением Джейсона в коллектив. "Это событие поразило меня, я знаю Джейсона уже 15 лет", - сказал Майк. "Я знаю его с тех пор, когда он сменил в METALLICA моего друга Клиффа Бартона, который погиб".</p>
+<p>Ирония судьбы ещё заключается и в том, что бывший басист Озборна Роберт Трухилио, только что, присоединился к METALLICA. Бордин сравнил это событие с бейсбольным трэйдом. Роберт Трухилио отыграл свой последний концерт с Оззи 14 марта и был постоянным участником его группы с 1995 года.</p>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Jason Newstead is in Ozzy Osborne band
+
+<p>Ex-METALLICA bassist Jason Newsted has hit out at Lars Ulrich for stating in a recent radio interview that Newsted seemed "lost" by accepting the job as OZZY OSBOURNE's new four-stringer.</p>
+<p> "If Lars was good enough he would have joined OZZY, too," Jason told Greek magazine Rock On. "Lars can kiss my ass. I think that he doesn't remember which band was opening the shows for OZZY back in 1986 [referring to METALLICA's opening slot with OSBOURNE—ed.]."</p>
+<p> Jason Newsted, who is still a "full-time member" of VOIVOD, will pull double duty both on this summer's Ozzfest and the BLACK SABBATH singer's Canadian tour in June.</p>
+<p> OSBOURNE with special guests VOIVOD start the Canadian tour June 1 in Vancouver. Ozzfest 2003 begins June 28 in San Antonio.</p>
+<p> OZZY OSBOURNE drummer Mike Bordin says that he is excited about working with his band's newest member, former METALLICA bassist Jason Newsted. "It's exciting to me, I mean, I've known [Jason] for 15 years," he said. "I've known him since he replaced my friend [Cliff Burton]. That was my friend in METALLICA that died. I mean that was the first person I've ever played music with was Cliff. So, I've known the guy. I'm comfortable. I've seen him coming 14 years now, so I think I'm ready."</p>
+<p> Osbourne's former bassist, Robert Trujillo, ironically enough, has just joined METALLICA's lineup, which Bordin thinks is sort of like a baseball trade. He says: "It's (Red Sox shortstop) Nomar (Garciaparra) for (New York Yankees shortstop) Derek Jeter. There's no (Texas Rangers shortstop Alex Rodriguez) A-Rods here."</p>
+<p> Trujillo's last gig with Osbourne's band was Friday (March 14th). Trujillo had been Ozzy's bass player since 1995.</p>
+
+Автор: Vit Belov
+
+### 05.12.2003 news Jason Newstead покинул Ozzy
+
+<B>Jason Newstead (ex-METALLICA, VOIVOD)</B> покинул <B>Ozzy Osborne</B>, пробыв в группе Великого и Ужасного менее года. Новым басистом стал <B>Rob Nicholson (Rob Zombie).</B>
+Автор: Vit Belov
+
+### 21.03.2004 news Ozzy: скорее жив, чем мёртв или наоборот?
+
+Дедушка хэви-метала в последнее время проявляет не совсем характерную для себя творческую активность. Оззи не спешит на отдых, заработанный участием его семейства в МТВ-шном шоу. Он закончил работу над материалом к мюзиклу "Распутин" и уже ломает голову над тем, как сделать так, чтобы следующий альбом не опозорил его славные седины. Попросту говоря, сочиняет материал для своего нового опуса. В то же время Оззи помышляет вместе с женой вернуться в Великобританию, мотивируя это тем, что "умереть лучше всего на родине, а не в чужой стране за океаном"...
+Автор: Omon Ra
+
+### 31.03.2004 news Geezer воссоединился с OZZY
+
+<P>Басист <B>Rob "Blasko" Nicholson </B>недолго пробыл в составе группы <B>Ozzy Osborne</B>. Заменой ему станет <B>Geezer Butler,</B> с которым <B>Ozzy</B> работал в <B>Black Sabbath</B>. </P>
+Автор: Vit Belov
+
+### 31.07.2006 news Ozzy Osbourne объявил о своих планах
+
+<P><STRONG>Ozzy Osbourne</STRONG> объявил о том, что работает в данный момент сразу над двумя своими новыми альбомами. Причем, первый из них должен выйти уже в феврале 2007 года. Как сказал Оззи, он не хочет выпускать просто новый свой релиз, это должен быть обязательно великий альбом. Также, Оззи подтвердил, что на этих альбомах гитарные партии запишет <B>Zakk Wylde</B>, чей коллектив <B>BLACK LABEL SOCIETY</B>&nbsp;значится в хэдлайнерах предстоящего&nbsp;<B>Ozzfest</B>.</P>
+Автор: Dimas
+
+### 06.03.2007 news OZZY пишет альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Ozzy Osbourne</STRONG> занят работой над новым альбомом. Уже известно, что на пластинку попадут 11 новых песен. В интервью журналу <STRONG>Rolling Stone Ozzy</STRONG> сообщил, что большое влияние на него оказала война в Ираке. Пластинка будет записана в собственной студии музыканта в Беверли-Хиллс. В работе над ней примут участие гитарист <STRONG>Zakk Wylde</STRONG>, барабанщик <STRONG>Mike Bordin</STRONG> и бывший басист <STRONG>Rob Zombie Rob Nicholson</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 16.04.2007 news Новый альбом OZZY
+
+<P>Новый альбом <STRONG>OZZY "Black Rain"</STRONG> выходит 22 мая в США и Канаде (даты релиза в остальных территориях уточняются). Трэк-лист:</P>
+<P>1.<STRONG> I Don't Wanna Stop</STRONG> (First single)<BR>2. <STRONG>Not Going Away<BR></STRONG>3. <STRONG>Thank God For The Almighty Dollar</STRONG><BR>4. <STRONG>Civilize The Universe<BR></STRONG>5. <STRONG>Black Rain<BR></STRONG>6. <STRONG>Countdown's Begun</STRONG><BR>7. <STRONG>Trap Door<BR></STRONG>8. <STRONG>Here for You<BR></STRONG>9. <STRONG>Lay Your World Down on Me<BR></STRONG>10. <STRONG>11 Silver<BR></STRONG>Сэмплы песен можно послушать на официальном сайте лэйбла<STRONG> Sony Music</STRONG>: <A href="http://www.sonymusic.com/">www.sonymusic.com</A></P>
+Автор: Vit Belov
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 23.07.2008 news Ozzy готовится к записи
+
+<P><STRONG>OZZY OSBOURNE</STRONG> войдёт в студию 9 августа для записи новой работы.</P>
+Автор: Vit Belov
+
+### 17.03.2009 news Zakk Wylde сочиняет Ozzy альбом
+
+<P>В недавнем интервью гитарист <STRONG>Zakk Wylde</STRONG> сообщил, что в апреле продолжит работу над новым сольником <STRONG>Ozzy Osbourne</STRONG>, который должен выйти в 2010 году.</P>
+Автор: Vit Belov
+
+### 19.05.2009 news Ozzy снялся в рекламе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>Ozzy Osbourne</STRONG> снялся в рекламе смартфонов <STRONG>Samsung</STRONG>. Посмотреть ролик можно ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/gTkgwT4sP2g&rel=0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/gTkgwT4sP2g&rel=0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.08.2009 news Gus G. заменит Zakk Wylde
+
+<P>По слухам из нескольких источников, на выставке <STRONG>BlizzCon convention</STRONG> в Анахейме, Калифорния <STRONG>Ozzy Osbourne</STRONG> выступит с новым гитаристом, которым станет <STRONG>Gus G.</STRONG> из <STRONG>FIREWIND</STRONG>.&nbsp;В интервью июньскому <STRONG>Classic Rock Ozzy</STRONG> уже сообщал, что ищет замену своему текущему гитаристу <STRONG>Zakk Wylde</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 22.08.2009 news Gus G. всё-таки сыграет с Ozzy Osbourne
+
+<P>Подтвердились слухи о том, что на закрытии конференции игровой фирмы <STRONG>Blizzard</STRONG> 22 августа <STRONG>OZZY OSBOURNE</STRONG> выступит с гитаристом <STRONG>Gus G.</STRONG> из <STRONG>FIREWIND</STRONG>, который заменит занятого с <STRONG>BLACK LABEL SOCIETY Zakk Wylde</STRONG>. Также будет и новый барабанщик <STRONG>Tommy Clufetos</STRONG> [<B>ROB ZOMBIE</B>, <B>ALICE COOPER</B>, <B>TED NUGENT</B>]. Он заменит занятого сейчас в <STRONG>FAITH NO MORE Mike Bordin</STRONG>.</P>
+<P>Не сообщается, что эти музыканты станут постоянными участниками "коллектива".</P>
+Автор: Vit Belov
+
+### 19.12.2009 news OZZY OSBOURNE назвал альбом?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По сообщению <STRONG>NME.com</STRONG>, <STRONG>OZZY OSBOURNE</STRONG> назовёт свой новый альбом <STRONG>"Soul Sucka". </STRONG>Ругается старичок.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме заглавного трэка, на пластинку попадут "нетленки": <STRONG>"Let It Die"</STRONG> и <B>"Diggin' Me Down".</B></FONT></P>
+Автор: Vit Belov
+
+### 15.04.2010 news OZZY OSBOURNE назначил дату
+
+<P>Десятый сольник <STRONG>OZZY OSBOURNE</STRONG> <STRONG>"Scream" </STRONG>выходит 15 июня на<STRONG> Epic Records</STRONG>. Пластинка стала первой работой для нового гитариста <STRONG>Gus G.</STRONG> (<B>FIREWIND</B>, ex-<B>DREAM EVIL</B>, <B>ARCH ENEMY</B>). Названия некоторых песен:</P>
+<P>* <B>Let Me Hear You Scream</B><BR>* <B>Diggin' Me Down</B><BR>* <B>Let It Die</B><BR>* <B>Soul Sucker</B><BR>* <B>Fearless</B><BR>* <B>I Want It All</B><BR>* <B>Time</B><BR>* <B>Crucify</B><BR>* <B>I Love You All</B></P>
+Автор: Vit Belov
+
+### 30.04.2010 news Обложка нового OZZY OSBOURNE
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.04/16633.jpg" width=400 align=right border=5>15 июня на <STRONG>Epic Records</STRONG> выходит новый альбом <STRONG>OZZY OSBOURNE</STRONG> <STRONG>"Scream". </STRONG>Опубликована обложка этого релиза. Трэк-лист:</P>
+<P>01. <B>Let It Die</B><BR>02. <B>Let Me Hear You Scream</B><BR>03. <B>Soul Sucker</B><BR>04. <B>Life Won't Wait</B><BR>05. <B>Diggin' Me Down</B><BR>06. <B>Crucify</B><BR>07. <B>Fearless</B><BR>08. <B>Time</B><BR>09. <B>I Want It More</B><BR>10. <B>Latimer's Mercy</B><BR>11. <B>I Love You All</B></P>
+Автор: Vit Belov
+
+### 16.06.2010 news OZZY OSBOURNE на MySpace
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый сольный альбом <STRONG>OZZY OSBOURNE</STRONG> <STRONG>"Scream" </STRONG>целиком можно послушать на<STRONG> MySpace</STRONG> певца: <A href="http://www.myspace.com/ozzyosbourne">http://www.myspace.com/ozzyosbourne</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом в Европе выходит на этой неделе. Пластинка стала первой для нового гитариста<STRONG> Gus G. (FIREWIND)</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.06.2010 news Новое видео OZZY OSBOURNE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>OZZY OSBOURNE</STRONG> на песню <STRONG>"Let Me Hear You Scream" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Jonas Akerlund </STRONG>(<B>METALLICA</B>, <B>SATYRICON</B>, <B>RAMMSTEIN</B>, <B>MADONNA,</B> <STRONG>THE PRODIGY). </STRONG>Десятый сольник знаменитого певца "<STRONG>Scream</STRONG>" вышел на этой неделе. В том числе и в России. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/p5JJy8Z4dNM&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/p5JJy8Z4dNM&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.07.2010 news OZZY OSBOURNE попал в чарты
+
+<P>Новый альбом <STRONG>OZZY OSBOURNE "Scream"</STRONG>&nbsp;зарегистрировал следующие позиции в чартах разных стран:</P>
+<P>Finland: #3<BR>Canada: #4<BR>Japan: #4 (international chart, #11 on combined chart)<BR>U.S.: #4<BR>Norway: #5<BR>Germany: #7<BR>Australia: #11<BR>U.K.: #12</P>
+<P>В США в первую неделю было продано 81000 копий, что в два раза меньше, чем с предыдущей работой шоумена <STRONG>"Black Rain"</STRONG>, которая "открылась" с 152000 копий. Места в чартах <STRONG>Billboard</STRONG> не слишком разнятся, тогда третье, а сейчас четвёртое.</P>
+<P>В России<STRONG> "Scream"</STRONG> издан в красивом digi-pack с использованием технологии выборочного лакирования при печати. Приобрести этот диск можно в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+Автор: Vit Belov
+
+### 05.07.2010 reviews Альбом в век цифровых технологий
+
+<P>Вокалист BLACK SABBATH Ozzy Osbourne прославился в последнее время больше не как музыкант, а как звезда разнообразных шоу и организатор масштабного ежегодного тура Ozzfest, где его собственное выступление отнюдь не является самым актуальным для тяжёлой музыки. Кроме прочего, Ozzy постоянно подбрасывает новостные поводы для разнообразных тяжёлых изданий. Например, перед релизом “Scream” он поменял гитариста, отправив в отставку своего, казалось бы, вечного друга Zakk Wylde, или пытался судиться с Tony Iommi за имя BLACK SABBATH. Любой профессиональный «пиарщик» скажет, что главное быть в новостях, при этом совсем не обязательно выпускать новые альбомы.</P>
+<P>Тем более сейчас, когда от продаж пластинок очень больших денег не заработаешь, но “Scream” вышел всего через три года после “Black Rain”, что для музыканта такого калибра, как Ozzy Osbourne, ничтожно малый срок. Я никогда не был большим поклонником Ozzy как композитора. Как шоумен он вызывает большое уважение своим «творчеством», но его музыка не всегда оправдывала всю ту шумиху, которая вокруг неё искусно создавалась. И на “Scream” ничего выдающегося обнаружить не удалось. Типичные боевики, созданные специально под голос исполнителя, несколько вязких “блэксабатовских» риффов, баллада, современный «примоченный» звук, запоминающиеся рефрены, но я поймал себя на одной мысли. «Старик» выпустил альбом!!! Именно «альбом» в том, старом, понимании этого слова. Каждая песня имеет своё собственное лицо, видно, что ни одна не была сочинена «до кучи», от прослушивания пластинки целиком остаётся чёткое представление, даже тексты, как во времена тотального незнания английского, оседают в голове мгновенно, хочется подпевать. Этот феномен, вообще, не имеет чёткого объяснения. Когда ничего не понимая, заучивали набор непонятных фраз, часто ошибаясь в произношении, и подпевали любимому исполнителю.</P>
+<P>Ozzy Osbourne записал альбом в век «интернет-синглов» и MP3. Когда из альбома выбирается одна песня, качается везде, трэки продаются по отдельности, ставятся как звонки или гудки, композиции штампуются ради отдельной продажи. Прошли те времена, когда альбомы разбирались по кирпичикам: что значит эта песня, или кто сыграл соло в том или ином месте. Теперь это никого не волнует. Все агрессивно потребляют и ни на что не обращают внимания. Глобализация… А Ozzy выпустил пластинку, зачем-то… Пел бы “Let Me Hear You Scream” в разных передачах и продавал бы этот рефрен на звонки. При всей спорности качества представленного на “Scream” материала, он звучит как глоток свежего воздуха в потоке однотипных альбомов стилистической направленности. </P>
+<P>P.S.: Что-то понесло, а в плане рецензии стоял ещё и рассказ о новом гитаристе Gus G. из FIREWIND. Что ж, ограничимся пока лишь его упоминанием. Он, наверное, не бухает как Zakk Wylde.</P>
+Автор: Vit Belov
+
+### 24.08.2010 news Новое видео OZZY
+
+<P>Новый клип <STRONG>OZZY OSBOURNE</STRONG> <STRONG>"Life Won't Wait" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил сын певца <STRONG>Jack</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/jAh_SCjCh8A&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/jAh_SCjCh8A&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.12.2010 news Номинанты &quot;Грэмми&quot; за этот год
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2010.12/17727.jpg" width=400 align=right border=0>Объявлены номинанты музыкальной премии<STRONG> "Грэмми"</STRONG> за 2010 год. 53 церемония вручения наград состоится 13 февраля 2011 года в <STRONG>Staples Center</STRONG> в Лос-Анджелесе. </P>
+<P>На звание лучшей 'hard-rock' команды претендуют следующие&nbsp;песни и исполнители:</P>
+<P>* <B>ALICE IN CHAINS</B> - "A Looking In View" (from "Black Gives Way to Blue")<BR>* <B>OZZY OSBOURNE</B> - "Let Me Hear You Scream" (from "Scream")<BR>* <B>SOUNDGARDEN</B> - "Black Rain" (from "Telephantasm")<BR>* <B>STONE TEMPLE PILOTS</B> - "Between The Lines" (from "Stone Temple Pilots")<BR>* <B>THEM CROOKED VULTURES</B> - "New Fang" (from "Them Crooked Vultures")</P>
+<P>На премию в категории "метал" номинированы:</P>
+<P>* <B>IRON MAIDEN</B> - "El Dorado" (from "The Final Frontier")<BR>* <B>KORN</B> - "Let The Guilt Go" (from "Korn III: Remember Who You Are")<BR>* <B>LAMB OF GOD</B> - "In Your Words" (from "Wrath")<BR>* <B>MEGADETH</B> - "Sudden Death" (from "Guitar Hero: Warriors Of Rock")<BR>* <B>SLAYER</B> - "World Painted Blood" (from "World Painted Blood")</P>
+<P>На заветный "граммофон" могут претендовать исполнители, выпустившие новую музыку с 1 сентября 2009 года по 30 сентября 2010 года.</P>
+Автор: Vit Belov
+
+### 10.12.2010 news Лучшие альбомы 2010 года по мнению Оззи
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17789.jpg" width=250 height=310>Блог "<A href="http://new.music.yahoo.com/blogs/listoftheday/140022/ozzy-osbournes-top-10-metal-picks-for-2010/" target=_blank><U><FONT color=#810081>List Of The Day</FONT></U></A>" на <STRONG>Yahoo! Music</STRONG> опубликовал лучшие альбомы 2010 года, выбранные великим и ужасным Оззи (<STRONG>Ozzy Osbourne</STRONG>). К сожалению, никаких откровений он не принёс.</P>
+<P>Вот, как он выглядит:</P>
+<P>01. <B itxtvisited="1">OZZY OSBOURNE</B> - "Scream"<BR itxtvisited="1">02. <B itxtvisited="1">BLACK LABEL SOCIETY</B> - "Order of the Black"<BR itxtvisited="1">03. <B itxtvisited="1">MOT&#214;RHEAD</B> - "The W&#246;rld is Yours"<BR itxtvisited="1">04. <B itxtvisited="1">SLASH</B> - "Slash"<BR itxtvisited="1">05. <B itxtvisited="1">HALFORD</B> - "Made of Metal"<BR itxtvisited="1">06. <B itxtvisited="1">KORN</B> - "III: Remember Who You Are"<BR itxtvisited="1">07. <B itxtvisited="1">PANTERA</B> - "Cowboys from Hell" (reissue)<BR itxtvisited="1">08. <B itxtvisited="1">LAMB OF GOD</B> - "Hourglass" box set<BR itxtvisited="1">09. <B itxtvisited="1">FIREWIND</B> - "Days of Defiance"<BR itxtvisited="1">10. <B itxtvisited="1">AC/DC</B> - "Iron Man 2"</P>
+Автор: Headcrusher
+
+### 22.01.2011 news Бог ненавидит Ozzy Osbourne!
+
+<P><IMG height=248 alt="" hspace=0 src="/images/news_rus/2011.01/18261.jpg" width=200 align=right border=0>"<EM>Бог ненавидит OZZY OSBOURNE</EM>", - об этом рассказали миру активисты Баптистской Церкви Вестборо. Члены этой общины намерены пикетировать концерт бывшего вокалиста <STRONG>BLACK SABBATH</STRONG> 22 января в Канзас-Сити. Эти люди уже высказывали своё протест на похоронах <STRONG>Ronnie James Dio</STRONG> в прошедшем июне. </P>
+<P>В своём заявлении БЦВ также сообщили, что<STRONG> Ozzy</STRONG> прибыл из Англии, "сраны проклятых содомитов", и проповедует порок и мятеж.</P>
+<P>Похоже главари этой церкви плотно подсели на<STRONG> BLACK SABBATH</STRONG> и теперь решили наказать всех, кто связан с этой группой.</P>
+Автор: Vit Belov
+
+### 25.01.2011 news OZZY OSBOURNE: клип на песню &quot;Let It Die&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип&nbsp;на песню&nbsp;<STRONG>"Let It Die"</STRONG>, с последнего альбома <STRONG>"Scream"</STRONG>, группы Оззи Осборна (<B>OZZY OSBOURNE</B>) можно посмотреть ниже.</FONT></P>
+<CENTER><IFRAME class=youtube-player title="YouTube video player" height=390 src="http://www.youtube.com/embed/L6c95Bp6On0" frameBorder=0 width=640 type="text/html" allowFullScreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.07.2011 news Фотографии с фестиваля &quot;Sauna Open Air &#39;2011&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/19855.jpg" width=300 height=400>С 9 по 11 июня в городе&nbsp;Тампере&nbsp;(Финляндия), прошёл очередной фестиваль <STRONG>"Sauna Open Air"</STRONG> (<A href="http://www.sauna-open-air.fi/">www.sauna-open-air.fi</A>), на котором выступили такие звёзды сталилитейного жанра, как<STRONG> OZZY OSBOURNE</STRONG>, <STRONG>JUDAS PRIEST</STRONG>, <STRONG>HELLOWEEN</STRONG>, <STRONG>DORO</STRONG>, <STRONG>SAXON</STRONG>, <STRONG>ACCEPT</STRONG>, а так же, несколько групп рангом пониже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Посмотреть фото-репортажи с&nbsp;выступлений&nbsp;этих замечательных ансамблей&nbsp;можно в разделе нашего сайта <STRONG>Photos</STRONG>, по адресу: </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="/ru/galleries">http://musica.mustdie.ru/ru/galleries</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор всех фотографий: <STRONG>Анна Ходакова</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 13.12.2015 news Ozzy Osbourne: свитер на Рождество
+
+<P>Великий и ужасный, <STRONG>Ozzy Osbourne</STRONG>, тоже неравнодушен к Рождеству... или решил положить на свой счёт в банке несколько тысяч баксов?</P>
+<P>Недолго думая, и он запустил в продажу свой праздничный свитер.</P>
+<P>Заказать его можно по ссылке: <A href="http://www.ozzyshop.com/collections/new-arrivals/products/how-ozzy-stole-christmas-sweatshirt">www.ozzyshop.com/collections/new-arrivals/products/how-ozzy-stole-christmas-sweatshirt</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.12/28583.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Ozzy Osbourne - Down To Earth 2001

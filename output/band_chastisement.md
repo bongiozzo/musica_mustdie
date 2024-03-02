@@ -20,6 +20,9 @@ Life Denied
 * C группой "Aeon" Markus Edvardsson (bass), Nils Fjellstrom (drums)
 * C группой "In Battle" Markus Edvardsson (bass), Nils Fjellstrom (drums)
 
+## Публикации
+
+
 ## Обсуждения
 
 

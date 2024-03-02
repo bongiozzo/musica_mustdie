@@ -337,6 +337,255 @@ Recorded at Little Sun Creek Lounge Studio, Germany.
 * C группой "Powerworld" Nils Neumann (keyboards)
 * C группой "Gamma Ray" Nils Neumann (keyboards)
 
+## Публикации
+
+### 21.03.2002 articles EDGUY &amp; FREEDOM CALL, Москва, 9-го марта 2002 года.
+
+<p>Ещё до концерта меня посещали мысли, много ли народу на него придёт? Ведь когда на афише написано Helloween или Manowar &ndash; это практически гарантия того, что зал соберется полный, потому что Россия пока ещё не особенно избалована концертами западных групп, хотя в последнее время ситуация в Москве и Питере меняется в лучшую сторону. Названия "Edguy", а тем более "Freedom Call" ещё не стали легендарными, и об этих командах знают не так много народу, чтобы собирать полные залы. С другой стороны, старые, хорошо известные группы зачастую приезжают к нам далеко не в самое лучшее время своей карьеры, а Edguy сейчас находятся в расцвете своих сил. Они приехали в Москву в поддержку своего последнего и лучшего в дискографии альбома Mandrake. Концерт проходил при поддержке компаний Союз и CD Maximum, которые выпускают в России диски Freedom Call и Edguy по лицензии, поэтому реклама концерта была на высшем уровне! И, тем не менее, мои опасения оправдались &ndash; на концерт собралось от силы треть зала ДК Горбунова. Хотя во всем есть свои плюсы &ndash; не было давки и толкотни, как на Nightwish, не было пьяных и бурных фэнов, пиво можно было купить без очереди, все было спокойно и довольно мило. Организован был концерт на самом высшем уровне, за что отдельное спасибо компании GOST Music, выступавшей в роли организаторов.</p>
+<p class="h2">FREEDOM CALL</p>
+<p> Перед концертом я специально послушал два альбома этой команды, и надо сказать, они мне совершенно не понравились. Слабоватый материал, несмотря на то, что в группе играют именитые люди, например Дэн Циммерман из Gamma Ray. На концерте я ожидал увидеть плохое выступление второсортной пауэр-метал группы, но увиденное было прямо противоположно моим ожиданиям. Высочайший профессионализм, мастерское исполнение, непринужденное поведение на сцене. Группе удалось завести зал, и это несмотря на то, что Freedom Call у нас мало известны. Хотя конечно над материалом группе следует поработать, потому что некоторые песни слушались скучновато... но все же лучше, чем на компакт-диске. Freedom Call довольно новая и не самая популярная группа на сегодняшний день, но то как они работают на сцене заслуживает похвалы. Люди в группе играют взрослые, особенного угара на их концерте нет, но смотреть на них очень приятно, особенно в контрасте в русскими тяжелыми командами. Я думаю, после этого концерта группа станет более популярной в России, тем более что их диски выпускаются у нас по лицензии.</p>
+<p class="h2">EDGUY</p>
+<p> Итак, Freedom Call закончили свое выступление, и после непродолжительной паузы в зале погас свет, на сцене появились декорации по мотивам обложки альбома Mandrake, заиграло интро, и на сцене появились Edguy. Их выход был довольно стремителен &ndash; без представлений, без обявлений. Впрочем все и так знали, кто должен появиться на сцене. Выступление группы представляло из себя отлично проработанное, построенное с умом шоу, в котором не было ничего лишнего. Хиты со всех альбомов, барабанное, басовое и гитарное соло, все вовремя, ничего лишнего. За весь концерт не было ни одного момента, когда становилось скучно или неинтересно! Музыканты в группе все довольно молодые, им очень нравится то, что они делают, музыка еще не успела превратиться для них в повседневную работу, поэтому их выступление представляло из себя "первобытный" металлический угар. Вокалист Тобиас носился по сцене как угорелый, и очень напоминал молодого Брюса Диккинсона. В целом, концерт Edguy мне напомнил далекие 80-е, золотые годы heavy-metal! Не очень многим молодым современным командам удается так хорошо держаться на сцене во время выступления. Качественный уровень групп сейчас заметно ниже, чем 10-15 лет назад, но Edguy приятное исключение из этого правила! Трэк-лист выступления группы выглядел следующим образом:</p>
+<p> 1. Intro<BR> 2. Fallen Angels<BR> 3. Tears Of Mandrake<BR> 4. Babylon<BR> 5. Land Of The Miracle<BR> 6. Painting On The Wall<BR> 7. Wings Of A Dream<BR> 8. The Headless Game<BR> 9. The Pharaoh<BR> 10. Vain Glory Opera<BR> 11. Save Us Now<BR> 12. How Many Miles<BR> 13. Avantasia<BR> 14. Out Of Control</p>
+<p>Несмотря на свою молодость, у Edguy уже есть довольно большой опыт концертной деятельности, поэтому скучать публике не давали. Зал подпевал что есть силы, музыканты были даже немного удивлены, насколько хорошо знают их материал. Ближе к концу концерта Тобиас неожиданно запел русскую песню &ndash; маленькой елочке холодно зимой, из лесу елочку взяли мы домой &ndash; и после этого попросил зал продолжить. И тут выяснилось, что публика знает песни Edguy гораздо лучше, чем песню про елочку. После выхода группы на бис, Тобиас сказал &ndash; сейчас мы сыграем кавер-версию одной песни, которая никогда не была записана группой Edguy, и никогда не выходила под этим названием. И тут гитарист начал играть одну из песен Slayer, что привело в шок многих присутствующих. Но в итоге эта кавер-версия оказалась песней с сольного альбома Тобиаса Саммета Avantasia. В общем подборка песен для концерта была отличная, немного огорчало отсутствие таких хитов как Fairytale. Несмотря на то, что публика требовала эту песню, ее так и не сыграли. Хотя огорчаться тут особенно нечего, так как все хорошие песни Edguy все равно не засунешь в формат одного выступления!</p>
+<p>Концерт закончился, и я не встретил ни одного человека, которого выступление Freedom Call и Edguy сильно разочаровало. Были конечно немного недовольные, но в основном всем очень понравилось. Хочется отметить то, как обе группы, особенно Edguy, хорошо работали с залом. Этого часто не достает сейчас многим командам. А перед концертом никто и не ожидал, что всё пройдет так хорошо. Я сам получил массу положительных эмоций, чего давненько не бывало после концертов западных звёзд в Москве. Отличная организация, отличный звук, приятная музыка! Зал ДК Горбунова ещё раз подтвердил свою репутацию лучшей площадки для проведения тяжёлых концертов в Москве. Остается надеятся на то, что мы увидели Freedom Call и Edguy в Москве не в последний раз, как и было обещано музыкантами.</p>
+
+Автор: Vic Thor
+
+### 05.04.2002 news Свежий power от Freedom Call
+
+<p>3 июня выходит новый опус Freedom Call под названием "Eternity". Немецкие мелодик-пауэрщики помимо традиционных вещей предствят на суд стушателей две сочные баллады "Bleeding Heart" и "Turn Back Time". Продюсер альбома - Чарли Бауэрфойнд (Blind Guardian, Rage), автор обложки - Пол Грегори (Saxon, Molly Hatchet).</p>
+
+Автор: Morsus
+
+### 05.04.2002 news Fresh power-metal from Freedom Call
+
+<p>"Eternity" is title of the new Freedom Call longplayer, to be released on June 3rd. The German Melodic Metal Band shows also the soft side on the album with two mellow songs "Bleeding Heart" and "Turn Back Time". Produced by Charly Bauerfeind (Blind Guardian, Rage), artwork by Paul Gregory (Saxon, Molly Hatchet).</p>
+
+Автор: Morsus
+
+### 15.07.2002 reviews Вечность может и повториться…
+
+<p>Третий альбом группы Freedom Call под названием «Eternity» (Вечность) оказался не хуже предыдущего. Похожесть на Gamma Ray потрясающая! Вокалист копирует Хансена, барабанщик… Барабанщик копирует самого себя, так как до сих пор в Gamma Ray играет (и как он только успевает!). Хоровые куплеты, сдвоенные соло, мелодичные гитарные ходы. Но все же это не полная копия! Клавиши – вот что отличает две эти команды. У Freeedom Call их есть много. Но это вам, конечно, не Rapsody! Прочитав буклет, понимаешь, кто задает тон в группе — это поющий гитарист-клавишник, Крис Бэй (Chris Bay). Он является автором почти всех слов и музыки. Талант у него, несомненно, имеется, но куда более скромный, нежели у того же Хансена или Тобиаса Саммета в компании с которым Freedom Cаll выступал в Москве. Теперь еще раз о повторах и похожести. Вещица под название Land of Light весьма похожа на хит Europe «The Final Countdown», Island Of Dreams напоминает наш (!) Archontes. Но, несмотря на это, советую данный альбом хоть раз, но послушать. Качественная работа в своем жанре. Особенно запоминаются Flying High, Metal Invasion, The Eyes Of The World, Island Of Dreams. Достойный диск в коллекцию меломана, собирающего Melodic Speed & Power Metal.</p>
+
+Автор: Msparrow
+
+### 12.02.2004 news FREEDOM CALL выпускают концертник
+
+<P><FONT color=#ffffff><STRONG><IMG height=150 alt="" hspace=0 src="/images/news_rus/2004.02/6006.jpg" width=250 align=left border=0>FREEDOM CALL</STRONG> записали концертник и выпустят его под назвыанием <STRONG>'Live Invasion'</STRONG> 19 апреля. На второй диск войдёт EP <STRONG>'Taragon'</STRONG>, до этого легально доступный только во Франции.</FONT></P>
+<P><FONT color=#ffffff>Трэк-лист:</FONT></P>
+<P>CD 1:<BR><STRONG>Freedom Call, Heart of the Rainbow, Tears of Taragon, Warriors, Metal Invasion, Land of Light, Eyes of the world, Rise up, We are one, The Quest, Hymn to the Brave</STRONG></P>
+<P><IMG height=205 alt="" hspace=0 src="/images/news_rus/2004.02/6005.jpg" width=208 align=right border=0>CD 2:<BR><STRONG>(EP Taragon), Warriors of light, Dancing with tears in my eyes, Heart of the Brave, Kingdom Come (EP Version), Tears of Taragon ( Story Version),Hiroshima, Dr. Stein</STRONG></P>
+Автор: Vit Belov
+
+### 12.02.2004 news FREEDOM CALL to release new album
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news/2004.02/6007.jpg" width=250 align=left border=0>2004 is the continuing of the Wacken Road Show. This time it will be <STRONG>Freedom Call</STRONG> who particpates. Right on time for the start of the tour will be the new double live album "<STRONG>Live Invasion</STRONG>" on the market. 0n 4/19 you might pick it up in one of the numerous stores. CD 2 will have tracks of the EP "<STRONG>Taragon</STRONG>" until now only released in France.</P>
+<P>Here are the tracks not guaranteed in this order:<BR>CD 1:<BR><STRONG>Freedom Call, Heart of the Rainbow, Tears of Taragon, Warriors, Metal Invasion, Land of Light, Eyes of the world, Rise up, We are one, The Quest, Hymn to the Brave</STRONG></P>
+<P>CD 2:<BR><STRONG><IMG height=205 alt="" hspace=0 src="/images/news/2004.02/6008.jpg" width=208 align=right border=0>(EP Taragon), Warriors of light, Dancing with tears in my eyes, Heart of the Brave, Kingdom Come (EP Version), Tears of Taragon ( Story Version),Hiroshima, Dr. Stein</STRONG></P>
+Автор: Vit Belov
+
+### 15.04.2004 news FREEDOM CALL выпустят концертник в мае
+
+<P><B>FREEDOM CALL</B> перенесли выпуск своего концертного альбома <B>'Live Invasion'</B> на 10 мая.</P>
+Автор: Vit Belov
+
+### 23.06.2004 reviews Стандартное блюдо немецкой кухни. Но с десертом
+
+<P>Хотите послушать стандартный немецкий паверный альбом? Авек плезир - перед вами свежеиспеченный двойник немцев Freedom Call под незатейлевым названием "Live Invasion". На этом рецензию можно было бы и закончить, если бы не одно "но". Первый диск сего релиза является действительно записью части тура Freedom Call весной 2002 года под названием "Eternal World Tour" (как ни странно, в альбом вошли выступления исключительно в родных для группы городах - Дюссельдорфе, Мюнхене и Штутгарте, а ведь "фридомколловцы" посетили и иные страны в туре, ту же Россию, кстати, где они весьма неплохо смотрелись рядом с соотечественниками Edguy; "традиционное" фото на Красной площади и изображение билета на тот концерт в буклете присутствуют). А вот второй бонус-диск это уже лакомый кусочек для фанатов команды, ибо на него вошел EP "Taragon", выходивший только в Японии и во Франции,&nbsp;плюс три кавера, а именно 'Dancing With Tears In My Eyes' Ultravox, 'Hiroshima' (авторства Дэйва Моргана) Сандры (!) и&nbsp;'Dr. Stein' Helloween. Так что за подобную эксклюзивность смело ставлю альбому 6 из 10.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 16.08.2004 news FREEDOM CALL приступают к записи
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>FREEDOM CALL</STRONG> начинают работу над новой пластинкой, которая выйдет в начале 2005 года на <STRONG>SPV</STRONG>. Подробности пока не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 23.11.2004 news FREEDOM CALL почти закончили новый альбом
+
+<P>Новый альбом <STRONG>FREEDOM CALL 'The Circle Of The Life'</STRONG> почти закончен. Пластинка выйдет на <STRONG>SPV</STRONG> в марте 2005 года. Трэк-лист (порядок не точный):</P>
+<P>1. <STRONG>The Gathering</STRONG> <BR>2. <STRONG>The Rhythm of life</STRONG> <BR>3. <STRONG>Mother Earth <BR></STRONG>4. <STRONG>Starchild</STRONG> <BR>5. <STRONG>Kings and Queens</STRONG> <BR>6. <STRONG>High enough</STRONG><BR>7. <STRONG>Hunting high and low</STRONG><BR>8. <STRONG>Hero Nation</STRONG><BR>9. <STRONG>The Eternal Flame</STRONG><BR>10. <STRONG>Starlight </STRONG><BR>11. <STRONG>The Circle of Life</STRONG></P>
+Автор: Vit Belov
+
+### 23.11.2004 news FREEDOM CALL new album is about to ready
+
+<P>New album of <STRONG>FREEDOM CALL 'The Circle of Life'</STRONG> is ready. CD will be released in March of 2005 through <STRONG>SPV</STRONG>. Track-list (no particular order):</P>
+<P>1. <STRONG>The Gathering</STRONG> <BR>2. <STRONG>The Rhythm of life</STRONG> <BR>3. <STRONG>Mother Earth <BR></STRONG>4. <STRONG>Starchild</STRONG> <BR>5. <STRONG>Kings and Queens</STRONG> <BR>6. <STRONG>High enough</STRONG><BR>7. <STRONG>Hunting high and low</STRONG><BR>8. <STRONG>Hero Nation</STRONG><BR>9. <STRONG>The Eternal Flame</STRONG><BR>10. <STRONG>Starlight </STRONG><BR>11. <STRONG>The Circle of Life</STRONG></P>
+Автор: Vit Belov
+
+### 04.02.2005 news FREEDOM CALL назначили дату релиза
+
+<P>Как уже сообщалось, новый альбом <STRONG>FREEDOM CALL 'The Circle Of Life'</STRONG> готов. Стало известно, что он выйдет 21 марта на<STRONG> SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.02.2005 news FREEDOM CALL set release date
+
+<P>The new <STRONG>FREEDOM CALL</STRONG> album called "<STRONG>The Circle of Life</STRONG>" will be released on March 21th. At the moment band are working out a tour in April and May. Tourdates will be released asap.</P>
+Автор: Vit Belov
+
+### 14.02.2005 news Новые песни FREEDOM CALL
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.02/7909.jpg" width=200 align=left border=5>FREEDOM CALL</STRONG> выложили в сеть отрывки трёх песен с нового альбома <STRONG>'A Circle Of Life'</STRONG>.</P>
+<P><A href="/samples/f/freedom_call/2005_1408.mp3">"Mother Earth"</A></P>
+<P><A href="/samples/f/freedom_call/2005_1410.mp3">"Hunting High And Low"</A></P>
+<P><A href="/samples/f/freedom_call/2005_1409.mp3">"Kings And Queens"</A></P>
+Автор: Vit Belov
+
+### 14.02.2005 news FREEDOM CALL&#39;s new songs
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news/2005.02/7910.jpg" width=200 align=left border=5>FREEDOM CALL</STRONG> have uploaded samples of three new songs from album <STRONG>'A Circle Of Life'</STRONG>.</P>
+<P><A href="/samples/f/freedom_call/2005_1408.mp3">"Mother Earth"</A></P>
+<P><A href="/samples/f/freedom_call/2005_1410.mp3">"Hunting High And Low"</A></P>
+<P><A href="/samples/f/freedom_call/2005_1409.mp3">"Kings And Queens"</A></P>
+Автор: Vit Belov
+
+### 31.03.2005 reviews Суровая битва за сладкие йогурты
+
+<P>Если вы когда-нибудь снимете мультфильм о бравых воинах, сметающих на необъятных полях сражений полчища врагов и возвращающихся с триумфом под стены родных городов, и вам понадобится придумать к нему саундтрэк, не ломайте долго голову и не изобретайте велосипед, ибо перед вами идеальное готовое решение данной задачи: новый, четвертый по счету (без EP "Taragon" и прошлогоднего концертника) альбом немецкого квинтета Freedom Call под названием "The Circle Of Life". Да, именно так всё и обтсоит: смесь сурового&nbsp;heavy metal&nbsp;с типичным happy power "фриломколловцев", звучащая порой на грани с pop-metal. Не обращайте внимания на названия песен, это не альбом каверов, это всё свежие, как йогурты в супермаркете - порой со сладкой добавкой, порой без оной и с минимальным процентом жирности - песни детища бывшего барабанщика Gamma Ray Дэна Циммерманна. Бегут вперед рисованые человечки-воины, машут рисоваными мечами и щитами, летят в разные стороны отрубленные головы рисованых врагов; благодарный рисованый народ чествует рисованых победителей, рисованые короли и королевы ('Kings & Queens') возлагают лавровые венки на головы рисованых народных героев ('Hero Nation'), в их честь даже зажигают рисованый вечный огонь ('The Eternal Flame'), даже рисованые звёзды щедро раздают свет и детей ('Starlight', 'Starchild') и рисованая матушка-земля ('Mother Earth') покорно вращается в этом выдуманном неким лукавым художником ритме жизни ('The Rhythm Of Life'). Уфф, вот такой круговорот йогуртов... простите, жизни наших удачливых рисованых герове ('The Circle Of Life'). Куча хитового, мелодичного материала, безукоризненно записанного, сыгранного и спетого сделает данный релиз настоящим подарком любителю немецкого пауэра, который без зазрения совести накинет еще пару баллов к моей оценке. Остальные могут так же спокойно эту пару баллов заочно отнять и отправиться слушать более взрослую музыку.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 21.07.2005 news FREEDOM CALL потеряли гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из <STRONG>FREEDOM CALL</STRONG> ушёл гитарист <STRONG>Cede</STRONG>. Он отыграет оставшиеся несколько концертов, и группа займётся поиском нового музыканта. Основной причиной этого события стала прописка <STRONG>Cede</STRONG>. Он живёт в Швейцарии.</FONT></P>
+Автор: Vit Belov
+
+### 21.07.2005 news FREEDOM CALL split with guitarist
+
+<P>Guitarist <STRONG>Cede</STRONG> will leave <STRONG>FREEDOM CALL</STRONG>. New guitarplayer is not announced yet. Here is statement from <STRONG>Cede</STRONG>:</P>
+<P><EM>"After hundreds of beers, thousands of driven miles for rehearsals and gigs, endless moments of pure fun and great friendship within the band, plus months, days and never ending hours of thinking about my future, I took the decision to leave the Freedom Call camp. </EM></P>
+<P><EM>Believe it: for me it was quite a tough thing to come up to Chris, Daniel, Ilker and Nils to tell them that I don’t feel like continuing shredding the guitar in Freedom Call anymore. On one hand it was a hard decision cause this line-up was pure Rock n’ Roll in my opinion, but on the other hand it was an easy decision cause I know that I couldn’t go on like this for me and my future. </EM></P>
+<P><EM>So, why do I leave the band? As a lot of you know, I’m living in Switzerland and it takes me an unbelievable amount of time to play in Freedom Call, it just got too much for me, as I think I wanna give at least 100% and not only 90% to play in this band. Of course I still believe that without sweat, tears and engagement you won’t get to any point in this business but I just figured out that I don’t want to be that much involved in music business anymore. I just wanna concentrate on one professional band and that’s by far enough if you’re working eight-to-five besides the music-thing. Living in another country, playing in two bands, that is just too much to take for me. </EM></P>
+<P><EM>Most important thing was to me, that Freedom Call respects and understands my decision. And I’m glad that they totally do. We still have a great partnership and friendship, we still got a lot of fun together. And that’s what I really appreciate! ! ! </EM></P>
+<P><EM>So, that’s all I can say about it at the moment. I want you, the fans, to fucking party on with Freedom Call, and I wish all the best to the guys in finding a new guitar player that will have as much fun in the band as I had with them. </EM></P>
+<P><EM>You guys rock, and thank you so much for everything! You made my last 4 years a pure adventure ride :-) </EM></P>
+<P><EM>Cheers and see you around!”</EM>&nbsp;</P>
+Автор: Vit Belov
+
+### 03.10.2005 news FREEDOM CALL продолжают своё существование
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вслед за гитаристом <STRONG>Cede FREEDOM CALL</STRONG> покинул басист<STRONG> Ilker</STRONG>. Группа сообщает, что продолжает существовать и ищет новых музыкантов.</FONT></P>
+Автор: Vit Belov
+
+### 09.11.2005 news FREEDOM CALL нашли басиста
+
+<P>Новым басистом<STRONG> FREEDOM CALL</STRONG> назван <STRONG>Armin Donderer</STRONG>, известный по записи в составе сольной группы <STRONG>HARTMANN</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.02.2006 news Новости от INSIDE OUT MUSIC
+
+<P>2006 - год <B>EVERGREY</B>. В ближайших планах шведского квинтета - выпуск нового диска <B>"Monday Morning Apocalypse"</B> (релиз намечен на конец марта) и посещение церемонии вручения шведской Грэмми, откуда музыканты, в минувшем году порадовавшие шикарным DVD <B>"A Night To Remember"</B>, намерены унести свою первую серьезную награду. <BR><BR><B>Джим Матеос (FATES WARNING)</B>, <B>Кевин Мур</B> (ex-<B>DREAM THEATER, CHROMA KEY</B>) и <B>Майк Портной (DREAM THEATER)</B> готовят новый диск под вывеской <B>O.S.I. - the Office Of Strategic Influence</B>. Пластинка выйдет в конце марта и намерена реабилитировать провал альбома 3-хлетней давности. Следим за "осями"!<BR><BR>Выход очередной работы канадских прогстеров <B>SAGA</B> под рабочим названием <B>"Trust"</B> запланирован на начало апреля.&nbsp; <BR><BR><B>STREAM OF PASSION</B> выпустят сингл <B>"Out In The Real World"</B>. Кроме ремикшированной версии заглавного трека (оригинал ищите на дебютной пластинке группы - <B>"Embrace The Storm"</B>), 7-дюймовка будет содержать две новых версии старых песен <B>AYREON</B> и "цепеллиновский" кавер "<B>When The Levee Breaks"</B>. В магазинах - с 10 февраля.<BR><BR>Непоколебимый <B>Ройне&nbsp;Столт</B> почти закончил работу над новым комбо от <B>THE FLOWER KINGS</B>. Двойной альбом <B>"Paradox Hotel"</B> выйдет в самое ближайшее время.<BR>&nbsp;<BR>Знаменитый фестиваль <B>ProgPower</B> продолжает захватывать территории - вслед за площадками США и Страны Тюльпанов всю "силу прога" познают подданные Британской Короны. Представление назначено на 25 марта. Среди групп и музыкантов, подавших заявку на участие - <B>THERION, THRESHOLD, ORPHANED LAND и FREEDOM CALL</B>.<BR><BR><B>VANDEN PLAS</B> перенесли выход своего альбома <B>"Christ 0"</B> на конец апреля из-за проблем с микшированием. Напомним, что <B>"Christ 0"</B> - это концептуальная работа, основанная на классическом романе Александра Дюма "Граф Монте-Кристо".<BR><BR>В марте <B>Revisited Records</B> начинает издание бэк-каталога <B>PETE</B> <B>TOWNSHEND</B>. Первыми релизами станут <B>"Who Came First", "Rough Mix" </B>(совместно с <B>Ronnie Lane</B>), <B>"Empty Glass", "Scoop"</B>. Также в планах <B>Revisited</B>&nbsp; - издание более 20 сольных альбомов участника <B>Yello CARLOS PERON</B>, которые будут выпущены с интервалом в несколько месяцев. Серия начнется в марте с издания альбомов <B>"Impersonator I", "Nothing Is True, Everything Is Permitted", "Die Sch&#246;pfung der Welt", "Gold For Iron" и "Terminatrix".</B> Также вскоре ожидается еще 2 переиздания <B>FRANK MARINO & MAHOGANY RUSH</B> (<B>"Double Live"</B> и <B>"From The Hip"</B>) и еще 3 переиздания <B>GURU GURU</B> (<B>"Dance Of The Flames", "Hey Du", "30 Jahre live"</B>). <A href="http://www.petetownshend.co.uk/"><U>www.petetownshend.co.uk</U></A> <A href="http://www.carlosperon.de/"><U>www.carlosperon.de</U></A>&nbsp;<A href="http://www.mahoganyrush.com/"><U>www.mahoganyrush.com</U></A> <A href="http://www.guru-guru.com/"><U>www.guru-guru.com</U></A>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>RPWL</B> готовят к выпуску свой концертный DVD. Его основной частью станут съемки концерта в Баварии для телепрограммы "Rockpalast". DVD планируется к выпуску в начале лета. Группа также планирует концерты в Германии, Франции, Люксембурге и Испании. <A href="http://www.rpwl.de/"><U>www.rpwl.de</U></A><BR><BR>-------------------------------------------------------------------- <BR>НОВЫЕ РЕЛИЗЫ / <B>InsideOut Music<BR></B>--------------------------------------------------------------------<BR><BR><B>JADIS: "Photoplay"</B>, February 24th<BR><B>PROTO-KAW: "The Wait Of Glory"</B>,&nbsp;January 20th <BR><B>SPIRITUAL BEGGARS: "Live Fire"</B> (DVD), January 27th<BR><B>STREAM OF PASSION: "Out In The Real World"</B> (CD-Single), February 10th<BR><B>THE TANGENT: "A Place In The Queue"</B>, February 3rd<BR><B>THE DEVIN TOWNSEND BAND: "Synchestra"</B>,&nbsp; January 27th<BR><BR>-----------------------------------------------------<BR>НА ПОДХОДЕ / <B>InsideOut Music</B><BR>-----------------------------------------------------<BR><BR><B>ASIA: "Architect of Time"</B>, Mai 5th<BR><B>EVERGREY: "Monday Morning Apocalypse"</B>, March 24th<BR><B>THE FLOWER KINGS: :Paradox Hotel"</B> (double CD), March 24th<BR><B>O.S.I.</B>: new studio album, March 31st<BR><B>SAGA: "Trust"</B> (working title),&nbsp; April 21st<BR><B>UMPHREY'S McGEE: "Safety In Numbers"</B>,&nbsp; March 31st<BR><B>VANDEN PLAS: "Christ 0"</B>, April 21st<BR><BR>---------------------------------------------------------------------------<BR>Новинки <B>Revisited Records</B> &#8730; подразделение <B>InsideOut Music</B><BR>---------------------------------------------------------------------------<BR><BR><B>KRAAN: "Flyday"</B>,&nbsp; December 9th<BR><B>KRAAN: "Dancing In The Shade"</B>,&nbsp; December 9th<BR><B>KRAAN: "Live 2001"</B>, December 9th<BR><B>KLAUS SCHULZE: "Das Wagner Desaster - Live"</B>, December 16th<BR><B>KLAUS SCHULZE: "Moondawn"</B>, December 16th<BR><B>KLAUS SCHULZE: "Angst"</B>, December 16th<BR><B>KLAUS SCHULZE: "Vanity Of Sounds"</B>, December 16th<BR><BR>-------------------------------------------------------------------------------------<BR>НА ПОДХОДЕ <B>/ Revisited Records</B> &#8730; подразделение <B>InsideOut Music</B><BR>-------------------------------------------------------------------------------------<BR><BR><B>FRANK MARINO & MAHOGANY RUSH: "Double Live"</B>, April 28th<BR><B>FRANK MARINO & MAHOGANY RUSH: "From The Hip"</B>, 28. April 28th<BR><B>GURU GURU: "Dance Of The Flames"</B>, April 28th<BR><B>GURU GURU: "Hey Du"</B>,&nbsp;April 28th<BR><B>GURU GURU: "30 Jahre live"</B>, April 28th<BR><B>CARLOS PERON: "Impersonator I"</B>, March 31st<BR><B>CARLOS PERON: "Nothing Is True, Everything Is Permitted"</B>,&nbsp;March 31st<BR><B>CARLOS PERON: "Die Sch&#246;pfung der Welt"</B>, March 31st<BR><B>CARLOS PERON: "Gold For Iron"</B>, March 31st<BR><B>CARLOS PERON: "Terminatrix"</B>, March 31st<BR><B>PETE TOWNSHEND: "Who Came First"</B>, March 24th<BR><B>PETE TOWNSHEND & RONNIE LANE: "Rough Mix"</B>, March 24th<BR><B>PETE TOWNSHEND: "Empty Glass"</B>, March 24th<BR><B>PETE TOWNSHEND: "Scoop"</B>, March 24th<BR><BR>--------------------------------------<BR><B>InsideOut</B> Дистрибьюция<BR>--------------------------------------<BR><BR><B>RITUAL: "Live"</B> (double CD), January 20th <BR><BR>------------------------------------------------------------<BR><B>InsideOut</B> Дистрибьюция / <B>ECLECTIC DISCS</B><BR>------------------------------------------------------------<BR><BR><B>BARCLAY JAMES HARVEST: "All Is Safely Gathered In"</B> (5 CD box),&nbsp;December 16th<BR><B>EDGAR BROUGHTON BAND: "Live Hits Harder"</B>,&nbsp;February 17th<BR><B>EDGAR BROUGHTON BAND: "Bandages"</B>, February 17th<BR><B>SAINT STEVEN: "Saint Steven"</B>,&nbsp;February 17th<BR><BR>-----------------<BR>новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+Автор: Ixtiandr
+
+### 12.09.2006 news FREEDOM CALL назвали новый альбом
+
+<P>Материал для нового альбома <STRONG>FREEDOM CALL</STRONG> уже сочинён. Группа войдёт в студию в октябре, а выпустить пластинку намерена в марте/апреле будущего года. "<STRONG>Dimensions</STRONG>", так будет называться эта работа. Вот рабочие названия некоторых песен: <STRONG>"Mr. Evil", "Far Away", "Mission Divine", "Firestorm", "Dimensions", "Blackened Sun", "Power", "Starborn", "Ride the universe", "Heaven is Hell", "Castaway".</STRONG></P>
+Автор: Vit Belov
+
+### 09.01.2007 news Дата релиза FREEDOM CALL
+
+<P>Новый альбом <STRONG>FREEDOM CALL "Dimensions"</STRONG> выйдет 20 апреля.</P>
+Автор: Vit Belov
+
+### 06.03.2007 news Новый альбом FREEDOM CALL
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.03/11387.jpg" width=400 align=right border=5>23 апреля на <STRONG>SPV</STRONG> выходит новый альбом <STRONG>FREEDOM CALL</STRONG> "<STRONG>Dimensions</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>Demons Dance <BR></STRONG>2. <STRONG>Innocent World <BR></STRONG>3. <STRONG>United Alliance <BR></STRONG>4. <STRONG>Mr. Evil <BR></STRONG>5. <STRONG>Queen Of My World <BR></STRONG>6.<STRONG> Light Up The Sky</STRONG> <BR>7. <STRONG>Words Of Endeavour <BR></STRONG>8. <STRONG>Blackened Sun <BR></STRONG>9. <STRONG>Dimensions <BR></STRONG>10. <STRONG>My Dying Paradise</STRONG> <BR>11. <STRONG>Magic Moments <BR></STRONG>12. <STRONG>Far Away </STRONG></P>
+Автор: Vit Belov
+
+### 25.05.2007 reviews Helloween light. Продажа совершеннолетним запрещена
+
+<P>Кто хотя бы раз слышал немецкую группу Freedom Call под управлением барабанщика Gamma Ray Дэна Циммерманна, тот уже не нуждается в каких-либо пояснениях по поводу музыки данного коллектива. Солнечный хэппи-пауэр с настроением "а&nbsp;мне всегда хорошо и я счастлив и доволен&nbsp;как удав". Ясное дело, что и на своем пятом студийном альбоме эти веселые ребятишки не изменили себе, даже несмотря на двух новоприобретенных участников (Армин Дондерер, бас, и Ларс Реттковитц, гитара). Более того, они пошли еще "дальше". Чтобы еще больше подчеркнуть детскую радость своей музыки, они включили и детский же хор ('Innocent World'), а также сделали практически диско-песню (!) 'Mr. Evil' (ну со слегка тяжелыми гитарками, естественно), 'Magic Moments' в куплете сразу напоминает 'You Can't Hurry Love' Фила Коллинза, а в 'Far Away' включили дудки, отчего она стала сразу напоминать залихватскую народную песню "под пивко". Слушаешь и думаешь: еще минута, и из динамиков полезут солнечные зайчики, цветочки и бабочки. Freedom Call можно без всяких оговорок назвать "the happiest metal band in the world". Даже ударные здесь какие-то ненастоящие, игрушечные, жиденькие. Стоит ли воспринимать эту музыку серьезно? Фанаты группы скажут, да, конечно. Те же, кто уже вырос из детсадовских штанишек, ответят, скорее всего, отрицательно. Впрочем, не будем судить этих немцев строго. В конце концов, каждый находит счастье и удовольствие в чем-то своем. Ведь взрослые здоровые мужики не только копаются в движках автомобилей, но и клеют авиамодельки и собирают марки. Поэтому предлагаю теперь (хотя давно пора было бы) на альбомах Freedom Call делать пометку "Helloween light" и "Продажа совершеннолетним запрещена". Ну, кто курит, те меня поймут.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 30.03.2009 news FREEDOM CALL заканчивают альбом
+
+<P><STRONG>FREEDOM CALL</STRONG> заканчивают работу над новым альбомом с рабочим названием <STRONG>"Legend Of The Shadowking". </STRONG>Пластинка рассказывает о неком джентельмене из 19 века и выйдет в конце лета - начале осени.</P>
+<P>Тем временем, немцы поменяли басиста. Новым музыкантом стал <STRONG>Samy Saemann.</STRONG></P>
+Автор: Vit Belov
+
+### 14.12.2009 news Новый альбом FREEDOM CALL
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.12/15743.jpg" width=200 align=right border=5>1 февраля на<STRONG> SPV</STRONG> выходит новый альбом <STRONG>FREEDOM CALL</STRONG> <STRONG>"Legend Of The Shadowking". </STRONG>Трэк-лист:</P>
+<P>01. <B>Out Of The Ruins</B> (4:21)<BR>02. <B>Thunder God</B> (3:31) <BR>03. <B>Tears Of Babylon</B> (3:38) <BR>04. <B>Merlin – Legend Of The Past</B> (4:17) <BR>05. <B>Resurrection Day</B> (3:34) <BR>06. <B>Under The Spell Of The Moon</B> (5:08) <BR>07. <B>Dark Obsession</B> (4:45) <BR>08. <B>The Darkness</B> (5:06) <BR>09. <B>Remember!</B> (4:21) <BR>10. <B>Ludwig II – Prologue</B> (2:19) <BR>11. <B>The Shadowking</B> (5:13) <BR>12. <B>Merlin – Requiem</B> (2:34) <BR>13. <B>Kingdom Of Madness</B> (3:59) <BR>14. <B>A Perfect Day</B> (3:58)</P>
+Автор: Vit Belov
+
+### 13.02.2010 news Dan Zimmermann покинул FREEDOM CALL
+
+<P>Основатель<STRONG> FREEDOM CALL</STRONG> барабанщик <STRONG>Dan Zimmermann</STRONG> покинул группу, из-за конфликта расписаний с его основной группой <STRONG>GAMMA RAY</STRONG>. </P>
+Автор: Vit Belov
+
+### 19.03.2010 reviews Из второй лиги в высший дивизион
+
+<P>Немецкая группа FREEDOM CALL была организована в 1998 году продюсером Chris Bay, который стал в ней и вокалистом и гитаристом. До недавнего времени в группе также был барабанщик GAMMA RAY Dan Zimmermann, который покинул коллектив сразу после релиза обозреваемого альбома, из-за конфликта расписаний между его двумя составами. </P>
+<P>Chris Bay не первый продюсер, который решил стать музыкантом. Можно вспомнить Piet Sielck из IRON SAVIOR, Fredrik Nordstrom из DREAM EVIL. Продукция этих групп схожа. Люди, сидящие за пультом, прекрасно знают, как должен звучать power-metal альбом, чтобы он стал успешным. Chris Bay удалось выпустить традиционный альбом. В музыке FREEDOM CALL сочетается лучший power-metal от таких групп, как EDGUY и GAMMA RAY. Плюс к этому, немцы не забывают и об эпичности и симфоничности звучания, что видно на большой концептуальной вещи о последнем короле Баварии Людвиге Втором. На “Legend Of The Shadowking” есть всё, что нравится поклоннику power-metal. FREEDOM CALL не ищут новых форм, они просто играют ту музыку, которую от них ждут фанаты. Очень часто получается, что группа второго эшелона выбивается в лидеры из-за того, что прежние фавориты уходят в тень. Кто из любителей power-metal до сих пор с интересом слушает EDGUY или AVANTASIA? Этим людям обязательно надо обратить внимание на FREEDOM CALL, здесь они найдут всё, что сделало мегапопулярной классику EDGUY “Theater Of Salvation” и “Vain Glory Opera”.</P>
+<P>Неожиданно отличный альбом в стиле мелодичного power-metal. Без исканий, метаний и экспериментов. Поклонники стиля со стажем будут удовлетворены.</P>
+Автор: Vit Belov
+
+### 22.09.2010 news Новое видео FREEDOM CALL
+
+<P>Видео-клип<STRONG> FREEDOM CALL</STRONG> на песню <STRONG>"Thunder God" </STRONG>можно посмотреть ниже. Песня взята с альбома <STRONG>"Legend Of The Shadowking"</STRONG>,&nbsp; который вышел в этом году на<STRONG> SPV/Союз</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/GGOcRqR2UHc?fs=1&hl=en_US"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/GGOcRqR2UHc?fs=1&hl=en_US" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.03.2011 news Дебютный DVD FREEDOM CALL
+
+<P><IMG height=320 alt="" hspace=0 src="/images/news_rus/2011.03/18954.jpg" width=216 align=right border=0>14 июня на <STRONG>SPV</STRONG> выйдет двойной DVD <STRONG>FREEDOM CALL</STRONG> <STRONG>"Live In Hellvetia". </STRONG>Материал для релиза был отснят в конце прошлого года в Швейцарии. Трек-лист:</P>
+<P>01. <B>We Are one</B> <BR>02. <B>United Alliance</B> <BR>03. <B>Thunder God</B> <BR>04. <B>Tears Of Babylon</B> <BR>05. <B>Blackenend Sun</B><BR>06. <B>Queen Of My world</B> <BR>07. <B>Out Of The ruins</B> <BR>08. <B>Hunting High And Low</B><BR>09. <B>Drum Solo</B> <BR>10. <B>Metal Invasion</B> <BR>11. <B>Merlin - Requiem</B><BR>12. <B>Merlin - Legend of the Past</B> <BR>13. <B>The Quest</B> <BR>14. <B>Warriors</B> <BR>15. <B>A Perfect Day</B> <BR>16. <B>Far Away</B> <BR>17. <B>Mr. Evil</B> <BR>18. <B>Land Of Light</B> <BR>19. <B>Freedom Call</B> <BR>20. <B>Hymn To The Brave</B> </P>
+<P>Состав группы на этом выступлении:</P>
+<P><STRONG>Chris Bay</STRONG> - Vocals & Guitar<BR><B>Lars Rettkowitz</B> - Guitar, Backing Vocals<BR><B>Samy Saemann</B> - Bass, Backing Vocals<BR><B>Klaus Sperling</B> - Drums, Backing Vocals</P>
+Автор: Vit Belov
+
+### 21.12.2011 news Новый альбом FREEDOM CALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=466 alt="" hspace=0 src="/images/news_rus/2011.12/22371.jpg" width=472 align=right border=0>Новая работа немцев <STRONG>FREEDOM CALL</STRONG> <STRONG>"Land Of The Crimson Dawn" </STRONG>выйдет 27 февраля на<STRONG> SPV</STRONG>. Лимитированное издание альбома будет содержать второй диск, на который войдут популярные композиции авторства <STRONG>FREEDOM CALL</STRONG> в исполнении других групп. Трек-лист:</FONT></P>
+<P>CD 1<BR>01. <B>Age Of The Phoenix</B> (3:37)<BR>02. <B>Rockstars</B> (5:08)<BR>03. <B>Crimson Dawn</B> (6:29)<BR>04. <B>66 Warriors</B> (5:20)<BR>05. <B>Back Into The Land Of Light</B> (5:39)<BR>06. <B>Sun In The Dark</B> (4:49)<BR>07. <B>Hero On Video</B> (3:50)<BR>08. <B>Valley Of Kingdom</B> (4:32)<BR>09. <B>Killer Gear</B> (4:42)<BR>10. <B>Rockin' Radio</B> (4:13)<BR>11. <B>Terra Liberty</B> (4:09)<BR>12. <B>Eternity</B> (4:23)<BR>13. <B>Space Legends</B> (4:04)<BR>14. <B>Power & Glory</B> (3:30)<BR><BR>CD 2<BR>01. <B>Flame In The Night</B> (performed by POWERWORLD)<BR>02. <B>Hunting High And Low</B> (performed by DOWNSPIRIT)<BR>03. <B>Fairyland</B> (performed by SECRET SPHERE)<BR>04. <B>Palace Of Fantasy</B> (performed by MANIMAL)<BR>05. <B>Land Of The Light</B> (performed by NEONFLY)<BR>06. <B>Warriors</B> (performed by Hannes Braun of KISSIN' DYNAMITE)</P>
+Автор: Vit Belov
+
+### 07.02.2012 news Новый клип FREEDOM CALL
+
+<P>Новое видео немцев <STRONG>FREEDOM CALL</STRONG> на песню "<STRONG>Hero On Video</STRONG>" можно посмотреть ниже. Трек выйдет 24 февраля на новом альбоме коллектива "<STRONG>Land Of The Crimson Dawn</STRONG>".</P>
+<P><center><object width="410" height="357" id="AOLVP_us_1436969594001" classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000"><param name="movie" value="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"></param><param name="bgcolor" value="#000000"></param><param name="allowFullScreen" value="true"></param><param name="wmode" value="transparent"/><param name="allowscriptaccess" value="always"></param><param name="flashvars" value="codever=1&playerid=61371447001&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Fus%2Fmusic%2Fmusicvideos%2Fsteamhammer%2Ffreedomcall%2Ffreedomcall%5Fheroonvideo%5Fvideo%5Fstill%5F480%2Ejpg&publisherid=1612833736&videoid=1436969594001"></param><embed src="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" bgcolor="#000000" width="410" height="357" name="AOLVP_us_1436969594001" flashvars="codever=1&playerid=61371447001&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Fus%2Fmusic%2Fmusicvideos%2Fsteamhammer%2Ffreedomcall%2Ffreedomcall%5Fheroonvideo%5Fvideo%5Fstill%5F480%2Ejpg&publisherid=1612833736&videoid=1436969594001"></embed></object></P>
+Автор: Vit Belov
+
+### 16.04.2013 news Новое видео FREEDOM CALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип на оригинальную версию песни<STRONG> FREEDOM CALL "Rockin' Radio"</STRONG> можно посмотреть ниже. Трек взят с второго диска юбилейного альбома немцев <STRONG>"Ages Of Light"</STRONG>, который выйдет 26 апреля на <STRONG>SPV</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Второй диск этого издания представляет особый интерес для поклонников <STRONG>FREEDOM CALL</STRONG>, так как именно на него попали новые версии старых хитов группы в необычном исполнении.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<DIV style="TEXT-ALIGN: center">
+<SCRIPT type=text/javascript src="http://pshared.5min.com/Scripts/PlayerSeed.js?sid=281&width=560&height=345&playList=517742855"></SCRIPT>
+<BR><A href="http://on.aol.com/video/rockin-radio-by-freedom-call-517742855" target=_blank>'Rockin' Radio' by Freedom Call</A> </DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.07.2016 news Новый сингл FREEDOM CALL
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>FREEDOM CALL</strong> выпустили новый сингл "<strong>Hammer Of The Gods</strong>" вчера. Ниже можно услышать лирик видео, это первый материал с выходящего&nbsp; ближайшем будущем нового альбома немцев "<strong>Master Of Light</strong>".</font></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/k9xYStrPgOw" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 09.07.2016 news Ne single of FREEDOM CALL
+
+<p><strong>FREEDOM CALL</strong> released a new single "<strong>Hammer Of The Gods</strong>" yesterday. Below you can hear a lyric-video, this is the first material from the new album from German "<strong>Master Of Light</strong>".</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/k9xYStrPgOw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 03.11.2016 news FREEDOM CALL выпустили видео &quot;Metal Is For Everyone&quot;
+
+<p>Новый альбом<strong> FREEDOM CALL "Master Of Light"</strong> выйдет на следующей неделе на <strong>SPV</strong>. Диск будет выпущен по лицензии на Союзе. Новый сингл "<strong>Metal Is For Everyone</strong>" слушайте в видео-клипе ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Vy4CQOyQ-0k" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 03.11.2016 news &#39;Metal is for Everyone&#39; from FREEDOM CALL
+
+<p>New<strong> FREEDOM CALL</strong> album, "<strong>Master Of Light</strong>" will be released next week on<strong> SPV</strong>. The new single "<strong>Metal Is For Everyone</strong>"&nbsp;could be heard&nbsp;in the video clip below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Vy4CQOyQ-0k" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Freedom Call - самый добрый метал

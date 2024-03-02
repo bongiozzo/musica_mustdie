@@ -45,6 +45,99 @@ Gavin Harte - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.02.2001 news CALLENISH CIRCLE&#39;s new album
+
+<p>The Dutch band is announcing the release of their second-album "Graceful...Yet Forbidding" via Norway's EdgeRunner Records-label. The album already had been out in the Benelux-states, but will now be released Europe-wide, with the complete "Escape"-MCD as a bonus.By the end of April they will enter the Stage One Studio, to record their third album under the eyes of Andy Classen. According to the band the material will be a good lot straighter and more aggressive. They will also record two cover-versions, one of which of a non-Metal-band, which should surprise many people.</p>
+
+Автор: Yermola
+
+### 07.02.2001 news Новый альбом датских думстеров
+
+<p>Датские думстеры CALLENISH CIRCLE анонсировали выход своего второго альбома "Graceful...Yet Forbidding" на Норвежском EdgeRunner Records лэйбле. Альбом уже продавался в Бенилюксе и сейчас выпущен для продажи в Европе с бонусом "Escape"-MCD. В конце Апреля команда планирует запись своего третьего творения. Уже выбрана студия - это Stage One Studio, и продюссер - это "некий" Andy Classen. Материал обещает быть более агрессивным. Также будут записаны два кавера - сюрприза.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 29.06.2002 reviews Голландский At The Gates
+
+<p>Нидерланды - очень интересная страна. Никогда ещё ни в одном стиле музыки представители этого государства не выходили на ведущие позиции, но всем известны несколько музыкантов во всех стилях занимающие солидные места. Ayreon, The Gathering, Living Blues. Я всегда знал, что там найдётся всё. Callenish Circle на этом альбоме посягнули на святое, на лавры давно почивших At The Gates. Уж кто на эти лавры не посягал? Но до сих пор нет ни одной, такой популярной, группы, где на таком уровне сочетались бы мелодизм и брутальность. Обозреваемая группа вроде бы имеет все шансы, Metal Blade никак не слабее Earache, да вот только с качеством композиторской работы не сходится. Почему-то я смог даже представить, как эти ребята песни сочиняют. Придумывают пару риффов, затем в серидине вставляют медленный проигрыш, либо соло. Выделяются, пожалуй, медляк Bleeding и разнообразная Suffer My Disbelief. Дополняется это всё cover-artwork от Никласа Сандина, в общем, всё как надо. Любители стиля, не пропустите, может понравится.</p>
+
+Автор: Vit Belov
+
+### 16.01.2003 news Новости от CALLENISH CIRCLE
+
+<p>5 мая 2003 года на Metal Blade Records выходит новый альбом голландской melodic death группы CALLENISH CIRCLE под названием "My Passion // Your Pain". Как и предыдущий альбом 2002 года "Flesh-Power-Dominion", он записывался в Stage One studio под руководством Andy Classen.</p>
+
+Автор: Dimas
+
+### 28.08.2003 reviews Новые звёзды melodic death-metal?
+
+<p>Как-то очень незаметно группа CALLENISH CIRCLE превратилась из начинающей пионерской группы, с кучей идей и не умением их реализовать, в крепкий профессиональный коллектив, который уже может с оптимизмом смотреть в будущее. Возникает два вопроса: хорошо ли, что группа пошла по проторенному пути, и "светит" ли им что-нибудь в затянувшейся борьбе за лавры AT THE GATES? На новом альбоме ребята продолжают нарезать материал в духе последних работ знаменитых шведов. Прогресс замедлился, и новая пластинка ни чем не отличается от предшественницы. Это не очень хорошо, но и не очень плохо. Поклонников подобной музыки по прежнему очень много, и совершенно ясно, что CALLENISH CIRCLE должны были уже осесть в их блокнотах, как группа не играющая плохую музыку. В свою очередь нельзя сказать, что группа играет и очень хорошую музыку. Можно посоветовать любителям жёсткого мелодичного death-metal, но частота выхода пластинок заставляет усомниться в глубоком осмыслении нового материала коллективом. В качестве бонуса на диске представлен кавер PESTILENCE 'Out Of The Body', а также мультимедийная секция с биографией, дискографией, фото и концертным видео на песню с предыдущего альбома.</p>
+
+Автор: Vit Belov
+
+### 05.10.2003 news CALLENISH CIRCLE нашли басиста на тур
+
+Ralph Roelvink (GENETIC WISDOM) заменит басиста Rocco в CALLENISH CIRCLE на время их 'Bonded By Metal Over Europe' тура.
+Автор: Vit Belov
+
+### 22.01.2004 news the 2nd edition of Antwerp&#39;s Haunted Ball
+
+<DIV align="center">The festival will take place on Saturday 21st of February 2004 @ Hof Ter Lo in Antwerpen (B).</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center"><U>The complete billing of Antwerp</U><SPAN><U>'</U></SPAN><U>s Haunted Ball is as following:</U></DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center"><B>CRUACHAN (IRE)</B></DIV>
+<DIV align="center"><B>CALLENISH CIRCLE (NL)</B></DIV>
+<DIV align="center"><B>OCEANS OF SADNESS (B)</B></DIV>
+<DIV align="center"><B>PANCHRYSIA (B)</B></DIV>
+<DIV align="center"><B>BUTCHER (B)</B></DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">- TICKETS:&nbsp;12&nbsp;euro (presale)&nbsp;& 15 euro (door).</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">-&nbsp;ORGANISED BY&nbsp;ASB ENTERTAINMENT vzw : <A href="mailto:info@naski.be"><U>info@naski.be</U></A></DIV>
+Автор: Vit Belov
+
+### 10.03.2004 reviews Страсть и боль в одном флаконе
+
+<P><I>Уже четвёртый по счёту полноформатник голладцев, изменивших дэт-думу с мелодик-дэтом. Впрочем, было это давно и неправда. По крайней мере, что на “</I><I>Graceful </I><I></I><I>Yet </I><I></I><I>Forbidding</I><I>”, что на “</I><I>Flesh</I><I>_</I><I>Power</I><I>_</I><I>Dominion</I><I>”, что на “</I><I>My </I><I></I><I>Passion</I><I> // </I><I>Your </I><I></I><I>Pain</I><I>” звучит самый настоящий </I><I>melodic </I><I></I><I>death</I><I>. Правда, слово “</I><I>melodic</I><I>” в данном случае имеет весьма косвенное отношение к незабвенному СМДМ’у. Чудится иногда что-то шведское, но, хоть убейте, не могу я назвать это чистой воды «шведятиной». Также чудится иногда и что-то </I><I>GOREFEST</I><I>’овское (голландские корни дают о себе знать?), но, опять же, я не могу провести параллелей с творчеством Яна-Криса де Койера сотоварищей. Иногда возникают ассоциации с </I><I>GOD </I><I></I><I>DETHRONED</I><I>… возникают и тут же исчезают. Музыку </I><I>CALLENISH </I><I></I><I>CIRCLE</I><I> вряд ли можно назвать оригинальной, - но и чёткие сравнения я привести не в состоянии. Итог таков: чертовски приятный альбом, достаточно брутальный для того, чтобы не вызвать идиосинкразию у брутальщиков, и достаточно мелодичный для того, чтобы понравиться любителям СМДМ'а. В меру яркий, в меру свежий, в меру запоминающийся. Плюс недурственный кавер “</I><I>Out </I><I></I><I>of </I><I></I><I>the </I><I></I><I>Body</I><I>”, в оригинале исполненный одной андерграундной командочкой под названием </I><I>PESTILENCE</I><I> ;-). </I></P>
+<P><I></I></P><I>Диск предоставлен компанией <B>ФОНО</B></I>
+Автор: Kai Mathias Stalhammar
+
+### 23.03.2005 news Новый альбом CALLENISH CIRCLE
+
+<P><STRONG>CALLENISH CIRCLE</STRONG> заняты сочинением нового материала для своего пятого альбома. Уже написаны 6 новых песен. Запись пройдёт в мае-июне в Голландии, а микширование осуществится в <STRONG>Antfarm Studios</STRONG> с <STRONG>Tue Madsen</STRONG>. Дата релиза: ноябрь на<STRONG> Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.09.2005 news Новый альбом CALLENISH CIRCLE
+
+<P><STRONG>CALLENISH CIRCLE</STRONG> записали свой пятый альбом <STRONG>"[Pitch.Black.Effects]".</STRONG> Пластинка выйдет 14 ноября на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.09.2005 news CALLENISH CIRCLE news
+
+<P>Here is update from the official <STRONG>CALLENISH CIRCLE</STRONG> web-site:</P>
+<P>"<EM>We finally finished the recordings of our new (and meanwhile 5th) album titled [Pitch.Black.Effects]. It was recorded at aRe U Recordings in Holland under supervision of producer Gail Liebling and the final mix was done at the well-known Antfarm Studio in Denmark with Tue Madsen (a.o. The Haunted, Illdisposed & Mnemic). Mastering duties were handled again by Peter Neuber at Mega Wimp Sound in Germany and last but not least the complete artwork was created by Danish art talent Mircea Gabriel Eftemie at Cadaverman Media. The European releasedate for [Pitch.Black.Effects] is sheduled on the 14th of November through Metal Blade Records. </EM></P>
+<P><EM>Official statement from guitar player Ron on the new album... </EM>
+<P><EM>‘This time we decided to record, mix and master the album on different locations. We recorded the album over here in Holland with our long-time (live) sound-engineer Gail Liebling and the final mix was done in Denmark with Tue Madsen at his Antfarm Studio. Last but not least the mastering was done by Peter Neuber at Mega Wimp Sound and this turned out to be a perfect combination. The sound is absolutely killer! Gail, who is also responsible for all digital/wacky sounds on ‘My Passion // Your Pain’, was also involved in the writing process now. Result is that the amount of digital sounds increased, also being more integrated in the music, which turned out great. I think we made a big step forward regarding production and song writing and we’re very anxious to hear what the fans and press think of it. What we think… groovy as hell, catchy as Justin Timberlake and heavy as fuck! You’ll be surprised, that’s for sure!!!</EM>' </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

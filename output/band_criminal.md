@@ -107,6 +107,35 @@ La Santa Muerte
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.11.2003 news CRIMINAL записали новый альбом
+
+<P><B>CRIMINAL</B> закончили запись нового альбома <B>"No Gods No Masters"</B>, которая проходила в <B>Springvale Studios</B> в Великобритании. Европейский релиз альбома состоится 23 февраля 2004 года на <B>Metal Blade Records</B>.</P><BR><P>Трэк-лист:<BR><BR>01. <B>Aberration</B><BR>02. <B>Deconstruction</B><BR>03. <B>Consumed</B><BR>04. <B>No Return</B><BR>05. <B>Tidal Wave</B><BR>06. <B>Downfall</B><BR>07. <B>Idol</B><BR>08. <B>Dark Half</B><BR>09. <B>Faceless</B><BR>10. <B>Violent Change</B><BR>11. <B>Bow To None</B></P><BR><P>Как известно, бас-гитарист группы, <B>Rob Eaglestone</B>, ушел еще в феврале, поэтому бас-гитарные партии исполняли оба гитариста.</P>
+Автор: Darkfall
+
+### 02.02.2009 news CRIMINAL выложили песню
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.02/13488.jpg" width=400 align=right border=5>27 февраля на <STRONG>Massacre Records</STRONG> выходит новый альбом<STRONG> CRIMINAL "White Hell"</STRONG>. Песню <STRONG>"Crime and Punishment" </STRONG>можно послушать на официальной <STRONG>MySpace </STRONG>страничке группы. Трэк-лист:</P>
+<P>01. <B>21st Century Paranoia</B><BR>02. <B>Crime and Punishment</B><BR>03. <B>Incubus</B><BR>04. <B>Black Light</B><BR>05. <B>The Deluge</B><BR>06. <B>Strange Ways</B><BR>07. <B>Mobrule</B> <BR>08. <B>The Infidel</B> <BR>09. <B>Invasion</B> <BR>10. <B>Eyes of Temptation</B> <BR>11. <B>Bastardom</B> <BR>12. <B>Sons of Cain</B> </P>
+<P>В Европе альбом будет доступен в лимитированном издании с бонусным DVD.</P>
+<P>Ссылка: <A href="http://www.myspace.com/criminal">http://www.myspace.com/criminal</A></P>
+Автор: Vit Belov
+
+### 14.07.2011 news Новый альбом CRIMINAL
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.07/20126.jpg" width=475 align=right border=0>Седьмой студийный альбом трешеров<STRONG> CRIMINAL</STRONG> <STRONG>"Akelarre" </STRONG>выйдет 19 августа на <STRONG>Massacre Records</STRONG>. Пластинка была записана в <STRONG>HVR Recording Studios</STRONG> в британском Саффолке. Трек-лист:</P>
+<P>01. <B>Order From Chaos</B><BR>02. <B>Resistance Is Futile</B> <BR>03. <B>The Ghost We Summoned</B> <BR>04. <B>Akelarre</B> <BR>05. <B>State Of Siege</B> <BR>06. <B>Tyrannicide</B> <BR>07. <B>Feel The Void</B> <BR>08. <B>The Power Of The Dog</B><BR>09. <B>Vows Of Silence</B> <BR>10. <B>La Santa Muerte</B></P>
+<P>Предыдущая работа англо-чилийской группы <STRONG>"White Hell" </STRONG>вышла в феврале 2009 года.</P>
+Автор: Vit Belov
+
+### 18.07.2011 news Новая песня CRIMINAL
+
+<P>Новый альбом трешеров<STRONG> CRIMINAL "Akelarre"</STRONG> выходит 19 августа на <STRONG>Massacre Records</STRONG>. Заглавный трек с этой пластинки можно послушать на сайте лэйбла: <A href="http://www.massacre-records.com/">http://www.massacre-records.com/</A></P>
+<P><center><IMG height=303 src="/images/news_rus/2011.07/20206.jpg" width=303 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

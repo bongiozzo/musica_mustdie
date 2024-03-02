@@ -24,6 +24,20 @@ USA thrash
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.09.2004 news SOULLESS write new material
+
+<P><STRONG>SOULLESS</STRONG> have finally finished the mixing and layout for half of the “<STRONG>Scorn on the Fourth of July</STRONG>” split 7” w/ the <STRONG>NUNSLAUGHTER</STRONG>. Look for an early November release.</P>
+Автор: Vit Belov
+
+### 14.03.2008 news SOULLESS выпустили альбом
+
+<P><IMG height=303 alt="" hspace=0 src="/images/news_rus/2008.03/12369.jpg" width=303 align=right border=5>Американские thrash-metal'исты<STRONG> SOULLESS</STRONG> выпустили новый альбом "<STRONG>Forever Defiant</STRONG>" на японском лэйбле <STRONG>World Chaos Production</STRONG>. На издание попали 2 бонуса, среди которых кавер на песню <STRONG>RAINBOW</STRONG> "<STRONG>Kill The King</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>What Remains</STRONG> <BR>2. <STRONG>The Price Of Life<BR></STRONG>3. <STRONG>To The Death<BR></STRONG>4. <STRONG>The Devil's Hand<BR></STRONG>5. <STRONG>Of Liar And Thieves</STRONG><BR>6. <STRONG>As Darkness Dawns <BR></STRONG>7. <STRONG>D-Composition<BR></STRONG>8. <STRONG>The Hunt<BR></STRONG>9. <STRONG>Deadly Sins<BR></STRONG>10. <STRONG>Betray The Light</STRONG><BR>11. <STRONG>Prey On The Weak</STRONG><BR>12. <STRONG>Dead To Me<BR></STRONG>13. <STRONG>Straight To Hell<BR></STRONG>14. <STRONG>Hollow Eyes</STRONG> (Bonus track)<BR>15. <STRONG>Kill The King</STRONG> (<STRONG>RAINBOW</STRONG> cover) (Bonus track)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

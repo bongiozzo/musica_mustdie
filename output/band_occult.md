@@ -94,6 +94,56 @@ Richard - Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.07.2002 reviews От блэка к трэш-дэту...
+
+<p>Любопытно… Когда-то блэковая команда теперь играет нечто трэш-дэтовое. Впрочем, подобного рода метаморфозы приключались со множеством коллективов, так что OCCULT далеко не исключение из правил. По крайней мере, от блэка они начали отдаляться уже на втором своём альбоме – как раз тогда, когда в группу была принята некая Рэйчел Хейцер, на сегодняшний день более известная как вокалистка SINISTER. Покинула ли она "оккультистов" после почти шести лет, проведенных вместе – тайна за семью печатями. Определённо можно сказать лишь одно: в записи этого альбома она принимала самое что ни на есть активное участие. Соответственно, вокалистов на "Rage To Revenge" по-прежнему двое: Морис (ранее известный как Сефирот), ответственный за скриминг, и Рэйчел, ответственная за гроулинг. Или наоборот? Чёрт их знает… Поверьте, разобраться, кто где поёт, достаточно сложно – да и какая в конце концов разница? Что касается музыки, то, как уже было сказано выше, это нечто на пересечении дэт и трэш металла, нечто, местами здорово напоминающее других голландцев – GOD DETHRONED. Все девять трэков словно пролетают на одном дыхании – уж чего-чего, а скуки и однообразия здесь отродясь не водилось. Что касается звука, то "Rage To Revenge" очень недурственно записан, хотя, на мой взгляд, звук барабанов… гмм… не очень выразителен, что ли… Это, пожалуй, единственное, к чему можно придраться. Достойная работа.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.07.2003 news Occult представляют новый альбом
+
+<p>Occult только что покинули Stage-One-Studios в Германии, где совместно с продюсером и звукоинженером Энди Классеном записали пятый номерной альбом "Elegy for the Weak". В сентябре альбом выйдет на Painkiller Records. А в октябре Lowlifemedia Productions планируют выпустить DVD, охватывающий всю историю группы с 1990 по 2003 год.</p>
+
+Автор: Morsus
+
+### 12.07.2003 news Occult just left the Studio
+
+<p>Occult just left the Stage-One-Studios in Germany where they recorded their 5th album called: "Elegy for the weak" produced and engineered by Andy Classen. The album will be out in September on Painkiller Records. Also DVD will be out in october on Lowlifemedia Productions covering the complete band story from 1990 until 2003.</p>
+
+Автор: Morsus
+
+### 07.01.2004 news OCCULT Sign With KARMAGEDDON MEDIA
+
+<DIV class=theText id=storyRepeater__ctl25_storyPanel>Dutch thrashers <B>OCCULT</B> have inked a deal with <B>Karmageddon Media</B> for the release of their fifth studio album, <B>"Elegy For The Weak"</B>, due in early March. A U.S. release through <B>Candlelight Records</B> is expected a short time after the European release.<BR><BR>The follow-up to 2001's <B>"Rage To Revenge"</B> was produced by <B>Andy Classen</B> at <B>Stage One</B> studios in B&uuml;hne, Germany and contains the following track listing:<BR><BR>01. <B>Disturbing The Dead</B><BR>02. <B>Nuclear Torment</B><BR>03. <B>Nocturnal Predator</B><BR>04. <B>Feel The Blade</B><BR>05. <B>Expire</B><BR>06. <B>Warbeast</B><BR>07. <B>Obsessed By The Grave</B><BR>08. <B>Slaughtering The Pigs</B><BR>09. <B>Reapers Call</B><BR>10. <B>Slut Of Sodom</B><BR><BR>Commented vocalist <B>Maurice Swinkels</B>: "We are very happy we are signed to <B>Karmageddon Media</B> now. We are convinced <B>Karmageddon Media</B> will guide us to a higher level when it comes to promotion and distribution of our albums. Hopefully we can attack some of the upcoming festivals as well. <B>'Elegy for the Weak'</B> is without doubt the best album we recorded in our history... also due to <B>Andy Classen</B>'s excellent work since he blessed the album with a killer sound. THRASH... OR BE THRASHED!!!"<BR><BR>In other news, <B>OCCULT</B> recently released a DVD through <B>Lowlifemedia Productions</B> covering the complete band story from 1990 until 2003.<BR><BR>Titled <B>"To Be Thrashed – By Occult"</B>, the DVD contains the following:<BR><BR>- <B>OCCULT</B> live and backstage, from the earliest club gigs, through their <B>Dynamo Open Air</B> appearance, to recent European tours with bands such as <B>MORBID ANGEL</B> and <B>DARK FUNERAL</B><BR>- Interviews with band members and friends, including ex-vocalist <B>Rachel</B> (now <B>SINISTER</B>) and ex bassist <B>Sjors</B>, and <B>Wannes</B> of <B>PENTACLE</B><BR>- Live onstage jams with <B>PENTACLE</B> and <B>DESASTER</B><BR>- Early '90s feature story on <B>OCCULT</B> filmed for Dutch TV<BR>- Appearances by <B>SINISTER</B>, <B>GODDESS OF DESIRE</B>, <B>FLESH MADE SIN</B>, <B>INHUME</B>, and others....<BR>- Feature length approximately 83 minutes<BR>- Including video clip for <B>"Killing for Recreation"</B> and the previously unreleased <B>"Doomsday Destroyer"</B> video.<BR>- Most recordings from master tapes for excellent audio and video quality<BR>- Studio-produced English narration<BR>- Region code free </DIV>
+Автор: Uneral
+
+### 10.01.2004 news Occult выпустят альбом на Karmageddon
+
+<B>OCCULT</B> подписали контракт с <B>Karmageddon Media</B> (бывший Hammerheart) на выпуск нескольких альбомов, первым из которых станет <B>'Elegy For A Week'</B>.
+Автор: Vit Belov
+
+### 10.02.2004 news Occult выпустят альбом 8 марта
+
+<P>8 марта на <B>Karmageddon Media</B> выходит новый альбом <B>Occult 'Elegy For a Weak'</B>. Стал известен полный трэк-лист:</P>
+<P><B>Disturbing the Dead<BR>Nuclear Torment<BR>Nocturnal Predator<BR>Feel the Blade<BR>Expire<BR>Warbeast<BR>Obsessed by the Grave<BR>Slaughtering the Pigs<BR>Reapers Call<BR>Slut of Sodom</B></P>
+<P>Альбом был записан в <B>Stage One Studio</B> вместе с <B>Andy Classen</B>. </P>
+Автор: Vit Belov
+
+### 10.02.2004 news OCCULT will release new album
+
+<P><B>Occult's ELEGY FOR THE WEAK</B>, to be released on the 8th of March through <B>Karmageddon Media</B>. Album was recorded at&nbsp;<B>Stage One Studio</B>, under supervision of producer <B>Andy Classen (Dew Scented, Callenish Circle, Die Apokalyptischen Reiter). </B>Track-list:</P>
+<P><B>Disturbing the Dead<BR>Nuclear Torment<BR>Nocturnal Predator<BR>Feel the Blade<BR>Expire<BR>Warbeast<BR>Obsessed by the Grave<BR>Slaughtering the Pigs<BR>Reapers Call<BR>Slut of Sodom</B><BR><BR><BR></P>
+Автор: Vit Belov
+
+### 18.11.2004 news OCCULT записывают новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>OCCULT</STRONG> заняты записью своего шестого альбома "<STRONG>Malevolent Rapture</STRONG>". Пластинка записана в <STRONG>Stage One</STRONG> студии с продюсером <STRONG>Andy Classen</STRONG>. Дата релиза: март 2005 года. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Legion of the Damned<BR></STRONG>2. <STRONG>Death's Head March<BR></STRONG>3. <STRONG>Werewolf Corpse</STRONG><BR>4. <STRONG>Into the Eye of the Storm</STRONG><BR>5. <STRONG>Malevolent Rapture<BR></STRONG>6. <STRONG>Demonfist<BR></STRONG>7. <STRONG>Taste of the Whip</STRONG><BR>8. <STRONG>Bleed for Me</STRONG><BR>9. <STRONG>Scourging the Crowned King<BR></STRONG>10. <STRONG>Killing for Recreation (bonus)</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

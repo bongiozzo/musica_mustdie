@@ -206,6 +206,422 @@ Christian Jungelbuth and Lars Ratz.
 * C группой "At Vance" Mark Cross (Drums)
 * C группой "Nightfall" Mark Cross (Drums)
 
+## Публикации
+
+### 10.07.2000 reviews Вторая часть металлической истории
+
+<p>Вторая часть металлической истории. несмотря на перемены в составе и уход некоторых звезд, группа пребывает в состоянии триумфа и с радостью дарит нам свой новый альбом. Второй альбом, на мой взгляд, получился посильнее дебюта. Искрометный и мелодичный speed-hard-metal обрушивается на слушателя в исполнении группы-одного из открытий 1999 года. Неплохи и лиричные отступления. Все сделано с большим вкусом и великолепным звучанием. Альбом для тех, кто хочет познакомиться с действительно настоящим (не фальшивым) металлом.</p>
+
+Автор: Dimas
+
+### 11.07.2000 reviews The second part of a metallical history
+
+<p>The second part of a metallical history. Despite of changes in a structure and maintenance of some asters, the group abides in a condition of triumph and with pleasure gives to us the new album. The second album, on my view, has received is better of a debut. Fireplays and melodious speed-hard-metal falls upon the listener in fulfilment of group - one of discoverings 1999. It's not s a bad and lirically of departure. All is made with large taste and magnificent sounding. The album for those who wants meet with really present (not false) metal.</p>
+
+Автор: Dimas
+
+### 23.04.2001 news Новости METALIUM .....
+
+<p>METALIUM начали запись нового альбома. Уже известна планируемая дата выхода - Сентябрь 2001. Также команда выпускает 60 минутное документальное видео, повествующее о первых трех годах существования группы.</p>
+
+Автор: Yermola
+
+### 23.04.2001 news new with METALIUM...
+
+<p>METALIUM have started writing the material for the next album, due out September 2001. Prior to that, watch for a 60 minute documentary covering the first three years of the band's existence,due out June 6th in Europe.</p>
+
+Автор: Yermola
+
+### 22.05.2001 news METALIUM подписались на новый лэйбл...
+
+<p>Германцы "METALIUM" подписали сделку с лэйблом "Locomotive music". Первый релиз будет состоять из VHS видео + CD. На видео войдут концертные клипы и интервью, а на CD - 8 новых или еще неопубликованных песен. Дата выхода - лето 2001.</p>
+
+Автор: Yermola
+
+### 22.05.2001 news METALIUM Signs To New Label.....
+
+<p>The German band METALIUM have signed with Locomotive music. Their first release will be a VHS video + CD package. The video will feature concert clips, interviews and more. The CD will include 8 tracks (new and unpublished songs and live performances). This impressive package will be released during Summer 2001.</p>
+
+Автор: Yermola
+
+### 06.09.2001 news Новый барабанщик HELLOWEEN ...
+
+<p>Судя по циркулирующим в сети слухам, новым барабанщиком "HELLOWEEN" станет Mark Cross (METALIUM/ex-KINGDOM COME). Правда в настоящее время он занят записью третьего диска METALIUM - "Chapter III". Официальных заявлений по этому поводу пока не было...</p>
+
+Автор: Yermola
+
+### 06.09.2001 news Mark Cross is strongly rumored to have joined HELLOWEEN ....
+
+<p>METALIUM/ex-KINGDOM COME drummer Mark Cross is strongly rumored to have joined HELLOWEEN as a replacement for the recently departed Uli Kusch, who is presently playing in a new band with ex-HELLOWEEN guitarist Roland Grapow. At the time of his alleged departure from METALIUM, Cross had been working with the band on their upcoming third full-length CD, tentatively titled Chapter III, which is scheduled for an early 2002 release through Locomotive Music. No official statement has yet been issued by either camp. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.09.2001 news Mark Cross - новый барабанщик Хэлловин...
+
+<p>"HELLOWEEN" официально подтвердили на своем сайте прием барабанщика "METALIUM" - Mark Cross в качестве постоянного участника группы. Как заявил Марк: "Я должен был принять это решение и оставить METALIUM. HELLOWEEN - великая команда с высоким потенциалом, хорошими музыкантами и прекрасными людьми..." Из других новостей - украдена большая часть оборудования использованного командой в последнем туре. Из склада где хранились вещи пропали Epiphone V, Les Paul, оранжевый ESP Mirage, черная акустическая гитара Ovation и два Ямаховских Страта Михаэля Вэйката и басс-гитары Fender Jazz, Precision, Warwick и Music Man у Маркуса... Если вы чем-то можете помочь команде, пишите: drstein@helloween.org</p>
+
+Автор: Yermola
+
+### 11.09.2001 news Mark Cross as the replacement for the recently departed Uli Kusch...
+
+<p>HELLOWEEN have officially acquired former METALIUM drummer Mark Cross as the replacement for the recently departed Uli Kusch, a previously rumored move that was first reported here last week. According to HELLOWEEN’s official web site, Cross’ addition to the group’s ranks had not been made public until now “due to the fact that Mark was still officially in METALIUM and [he] had not told Lars Ratz and the rest of the band that he was leaving yet.” Meanwhile, Cross has issued a statement of his own, saying simply that “leaving METALIUM was a decision I had to take. HELLOWEEN is a great band with high potential, good musicians and nice down-to-earth people! I’m looking forward to working with them. We’re still good friends with METALIUM and they understand my decision. Of course it was bad timing, because we were just about to start working on the new album. But I wish them all the best and am sure that their next albums will be as good as the first ones.” HELLOWEEN have yet to announce a replacement for guitarist Roland Grapow, who is presently busy composing material for an as-yet-unnamed new project with Kusch, which is due to record its debut album at producer Andy Sneap's (NEVERMORE, MACHINE HEAD, etc.) Backstage studio from September 24th through November 11th, with additional mixing scheduled to take place at Roland Grapow's home studio in Hamburg. In other news, HELLOWEEN had a good portion of their equipment used on the last tour stolen last week when someone broke into the warehouse where the band stores their gear and walked off with many of guitarist Michael Weikath's axes and Markus' basses. Michael Weikath is missing a white Epiphone V and Les Paul, an orange ESP Mirage with green MPTOK on it, a black Ovation acoustic guitar, two almost brandnew Yamaha Pacifica Strats in whitish/fleshy color with tribal boomerang inlays in the fretboard. Markus is missing a variety of Fender Jazz and Precision basses as well as a few Warwick and Music Man ones, as seen live and in pictures. If ANYONE has an information about these missing items or has seen them, send an e-mail to: drstein@helloween.org. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.01.2002 news Нация героев
+
+<p>„Hero-Nation – Chapter III“. Так будет называться новый альбом группы METALLIUM. Он будет выпущен 25 февраля и обещает стать сенсационным. С точки зрения квартета из Гамбурга, этот альбом - лучшее творение в истории команды. Альбом довольно разнообразен по подбору песен. В качестве гостевых музыкантов на альбоме отметились Ken Hensley (ex- Uriah Heep) и Don Airey (ex Ozzy Osbourne), сыгравшие некоторые клавишные партии, включая оригинальные партии в "Blizzard Of Ozz".</p>
+
+Автор: Dimas
+
+### 16.01.2002 news Hero-Nation
+
+<p>„Hero-Nation – Chapter III“ , this will be the title of the new METALIUM album, and it.s no exaggeration to call the LP which will be released 25th of February a sensation. The quartet from Hamburg presents itself as a homogene unity from the personal point of view, and they have the best material in the band.s history, because “Hero-Nation” convinces with versatility.Along with typical up-tempo doublebass bangers, this time there are also some mid-tempo songs; in addition to that, the guest appearances of the keyboard legends Ken Hensley (ex- Uriah Heep) and Don Airey (ex Ozzy Osbourne) give a special flair to the songs, especially the original keyboardsounds of the “Blizzard Of Ozz” milestone from the madman used by Don Airey are a real ear-candy. Carolin Fortenbacher is one more guest, her unbelievable vocal range puts a further highlight to the song “Infinite Love”, a great duet with Metalium frontman Henning Basse. It goes without saying that the concept story of the Metalin finds its continuation on this album. Let yourselves be surprised by the really interesting experiences which happen to the Metalian. By the way, the Metalian will not just remain a painted fantasy-figure, but soon will be brought to life: in March it will be available as a plastic puppet – or you can win it in some magazines.</p>
+
+Автор: Dimas
+
+### 06.03.2002 reviews У каждой нации свои герои
+
+<p> У каждой нации свои герои. Третье концептуальное творение немецких хэви-металлистов. Каждая песня альбома посвящена отдельным национальным героям, среди которых Жанна Д'Арк, Распутин, Один, Одиссей, Ромео и Джульетта и другие. Смысл в том, что Metalian (ключевая фигура предыдущих двух альбомов) путешествует по миру. При этом, его душа перевоплощается в души национальных героев определенного исторического периода человечества, и он переживает те же приключения, успехи и падения, что испытывали герои, в которых переселялась его душа. Он переносит на себе все драматические моменты того времени и той местности в которых жили его герои. Музыка же альбома вполне традиционна и представляет собой лучшие выдержки предыдущих альбомов группы. Настоящий тевтонский мощный heavy-power metal. Не сказать, что это лучшее произведение группы, но и не самое плохое. </p>
+<p> В качестве гостевых музыкантов на альбоме засветились такие две знаменитости, как Don Airey (Ozzy Osbourne, Whitesnake, Rainbow) и Ken Hensley (Uriah Heep) записавшие клавишные партии на некоторых вещах. В конце альбома есть скрытый трэк "Heart Of The Tiger", информация о котором полностью отсутствует. </p>
+<p> Неплохой альбом, здесь есть все что нужно для успешного релиза. Но, в то же время, чувствуется некая однообразность материала. Для фэнов группы альбом вышел в специальном варианте на двух дисках, где второй диск включает в себя два концертных видео, хранитель экрана, заставку для рабочего стола windows, набор файлов и интерактивную эксклюзивную часть с голосами и звуками всех принимавших участие в записи альбома. </p>
+
+Автор: Dimas
+
+### 18.03.2002 reviews Each nation have own heroes
+
+<p>Each nation have own heroes. The third conceptual creation of German heavy-metallers. Each song of an album is devoted to the separate national heroes, among which Janna D'Ark, Rasputin, Odin, Odyssey, Romeo and Juliette and others. The sense that Metalian (key figure of the previous two albums) travels on the world. Thus, his soul reincarnates in souls of the national heroes of the certain historical period of mankind, and he experiences the same adventures, successes and falls, that the heroes tested, in which his soul moved. He transfers on himself all drama moments of that time and that district in which his heroes lived. Music of an album is quite traditional and represents of the best endurance of the previous albums of group. Present powerful heavy-power metal. To not tell, that this best product of group, but also not most bad. As the guest musicians on an album such two celebrities, as Don Airey (Ozzy Osbourne, Whitesnake, Rainbow) and Ken Hensley (Uriah Heep) written down keyboard parties on some things were lighted. At the end of an album is latent track " Heart Of The Tiger ", the information about which completely is absent. The quite good album, here is all that is necessary for successful release. But, at the same time, certain monotony of a material is felt. For fans of group the album has left in special variant on two disks, where the second disk includes two concert videoes, screensaver, prompt for a working table windows, set of files and interactive exclusive part with votes and sounds all taking part in record of an album.</p>
+
+Автор: Dimas
+
+### 03.05.2003 news Четвертая глава в истории METALIUM
+
+<p>В конце 2003 года ожидается выход нового альбома германской формации METALIUM под названием "In League As One - Chapter Four". Как и предыдущие альбомы группы, он выйдет на Massacre Records.</p>
+
+Автор: Dimas
+
+### 05.04.2004 reviews Короли пафоса
+
+<DIV><I>Группу <B>METALIUM</B> запросто можно назвать королями пафоса. Почему? Да, потому что самый неприятный пафос - это пафос ничем не подкреплённый.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Группа начиналась, как all-star band. <B>Mike Terrana, Jack Frost</B> и др. не записывали с группой более одного альбома. Теперь <B>METALIUM</B> превратились в группу басиста <B>Lars Ratz</B>. Из громких имён остался только клавишник <B>DEEP PURPLE Don Airey</B>, пару раз нажавший на свой клавишный аппарат. Что сказать? Сравнивать этот коллектив с <B>MANOWAR</B> - это не уважать классиков true heavy-metal.&nbsp;У <B>METALIUM</B> один большой недостаток, отсутствие хороших мелодий.&nbsp;Зато огромное количество аксессуаров, типа шепчущих девушек и страшных голосов-роботов. Апофеозом станет медленная вещь <B>Illuminated (Opus I)</B> на 10 минут, во время прослушивания которой хочется удавится.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Следует только похвалить продюсеров <B>METALIUM</B> за то, что они умудрились сделать из группы конфетку. Это их огромный успех.</DIV>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 28.01.2005 news METALIUM работают над новым альбомом
+
+<P><STRONG>METALIUM</STRONG> работают над новым альбом, который выйдет 25 апреля. Пока известно только то, что кавер для него нарисует <STRONG>Frans Mensink</STRONG>, который также работал над оформлением дебютной работы коллектива.</P>
+Автор: Vit Belov
+
+### 17.02.2005 news Новый альбом METALIUM
+
+<P>Новый альбом <STRONG>METALIUM "Demons Of Insanity - Chapter V'</STRONG> выходит 25 апреля на <STRONG>Armageddon Media</STRONG>. Это концептуальный альбом, который спродюссировал вновь <STRONG>Lars Ratz</STRONG>, а клавишные партии&nbsp;снова исполнил <STRONG>Don Airey</STRONG>. Трек-лист альбома:</P>
+<P>1. <B>Intro</B><BR>2. <B>Power Of Time</B><BR>3. <B>Demons Of Insanity</B><BR>4. <B>Cyber Horizon</B><BR>5. <B>Ride On</B><BR>6. <B>Endless Believer</B><BR>7. <B>Sky Is Falling</B> <BR>8. <B>Destiny</B><BR>9. <B>Mother Earth</B> <BR>10. <B>Out Of The Silence</B> <BR>11. <B>Atrocity</B> <BR>12. <B>Silence Of The Night</B><BR>13. <B>Visions Of Paradise</B> <BR>14. <B>One By On</B></P>
+Автор: Vit Belov
+
+### 19.09.2006 news Шестая глава от METALIUM
+
+<P>Немецкий коллектив&nbsp;<B>METALIUM</B> начал работу над своим шестым творением <B>"Nothing To Undo – Chapter VI"</B>, выход которого запланирован на начало 2007 года. Предварительный трек-лист:<BR><BR>1. <B>When Death Calls</B> <BR>2. <B>Dare</B> <BR>3. <B>Insane</B> <BR>4. <B>Gates</B> <BR>5. <B>On My Way</B> <BR>6. <B>Hellfire</B> <BR>7. <B>Spirits</B> <BR>8. <B>Never Die</B> <BR>9. <B>Walls</B> <BR>10. <B>The Heroes Failed</B> <BR>11. <B>Mindless</B> <BR>12. <B>Mental Blindness</B> <BR>13. <B>Follow The Sign</B> <BR>14. (undisclosed <B>QUEEN</B> cover)<BR></P>
+Автор: Dimas
+
+### 10.01.2008 news Новый альбом METALIUM
+
+<P>Новая пластинка<STRONG> METALIUM</STRONG>, которая выйдет позже в этом году на <STRONG>Massacre Records</STRONG>, будет носить название "<STRONG>Incubus</STRONG>". Трэк-лист:</P>
+<P>01. <B>Trust</B> (Intro)<BR>02. <B>Resurrection</B><BR>03. <B>Gates</B><BR>04. <B>Incubus</B><BR>05. <B>Take Me Higher</B><BR>06. <B>Never Die</B><BR>07. <B>At Armageddon</B><BR>08. <B>Sanity</B><BR>09. <B>Meet Your Maker</B><BR>10. <B>Hellfire</B><BR>11. <B>Soulchaser</B> (Japan Bonus) </P>
+Автор: Vit Belov
+
+### 22.01.2008 news Вокалист METALIUM выступил с GAMMA RAY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист/гитарист <STRONG>GAMMA RAY Kai Hansen</STRONG> заболел гриппом во время тура группы в Испании. Врачи запретили <STRONG>Kai </STRONG>петь и на выручку поспешил старый друг знаменитого музыканта вокалист <STRONG>METALIUM Henning Basse</STRONG>. Видео "<STRONG>Heaven Can Wait</STRONG>" с концерта в Люго можно посмотреть ниже.</FONT></P>
+<P><center><object width="425" height="373"><param name="movie" value="http://www.youtube.com/v/qzkedmWUhQk&rel=1&border=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/qzkedmWUhQk&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></object></center></P>
+Автор: Vit Belov
+
+### 16.07.2008 reviews Очередь за названиями
+
+<P>Есть такой анекдот про очередь на небе за деталями для тела. Точно уже не помню, но фраза коронная такая: «Ты что последним в очереди за руками (ногами, головой) был?». Немецкая группа METALIUM стояла одной из первых в очереди за названием для группы. Первыми, пожалуй, стояли METALLICA, затем они.</P>
+<P>Название, пусть и с долей нахальства, лидер коллектива басист Lars Ratz придумал хорошее, осталось подтвердить его делом. Первые несколько альбомов выходили на Massacre Records, и состав на них был действительно сильным, не отставала от имён и музыка. Затем METALIUM перешли на собственный лэйбл Lars Armageddon, и в басисте проснулся бизнесмен. Все звёзды были отсечены ради экономии средств. Музыку господин Ratz теперь пишет сам, продюсирует сам, альбомы «выплёвывает» чуть ли не каждый год. В общем, если вы поклонник METALIUM вы не заскучаете, благо в нашей стране Irond достаточно упорно выпускает все эти пластинки. На своей седьмой работе, чтобы вы не запутались, немцы дают каждой пластинке подзаголовок Chapter N, в нашем случае Chapter Seven, METALIUM не открывают Америки. Всё те же, в меру качественные, серенькие heavy-metal боевики, со средненьким вокалом и реализацией. Честно говоря, группа вряд ли будет претендовать в ближайшем будущем на ведущие роли. Она успешный и крепкий бизнес-проект Lars Ratz, которого, судя по всему, всё в ней устраивает.</P>
+<P>Группа, обманом проникшая в очередь за названием, продолжает захламлять рынок посредственными heavy-metal альбомами. Если же взглянуть с другой стороны, можно отметить, что, купив новый альбом METALIUM, вы вряд ли разочаруетесь сверх меры.</P>
+Автор: Vit Belov
+
+### 17.06.2009 news METALIUM закончили новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>METALIUM </STRONG>назвали свой новый альбом, который выйдет осенью, <STRONG>"Grounded - Chapter VIII". </STRONG>Трэк со звучным названием "<STRONG>Heavy Metal</STRONG>" можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/metalium">http://www.myspace.com/metalium</A></FONT></P>
+Автор: Vit Belov
+
+### 02.07.2009 news Новая песня METALIUM
+
+<P>Песня<STRONG> METALIUM</STRONG> с будущего альбома <STRONG>"Grounded - Chapter VIII", </STRONG>который выйдет 25 сентября на <STRONG>Massacre</STRONG>, можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/metalium">http://www.myspace.com/metalium</A></P>
+Автор: Vit Belov
+
+### 14.09.2010 news METALIUM готовятся к роспуску
+
+<P><IMG height=152 alt="" hspace=0 src="/images/news_rus/2010.09/17182.jpg" width=300 align=right border=5>Немецкая группа <STRONG>METALIUM</STRONG> сообщила о своём скором роспуске. Музыканты заняты во многих других проектах, поэтому группа приняла решение остановиться в 2011 году. В ближайшее время группа даст несколько прощальных шоу, которые будут сняты для DVD. На этих концертах музыканты отыграют четыре-пять новых вещей, которые будут записаны до конца 2010 года.</P>
+<P><STRONG>METALIUM </STRONG>записали 9 альбомов и выпустили 2 DVD за 13 лет своего существования.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -114,6 +114,186 @@ Recorded at Studio Haga in Kinna, Mark Municipality, Sweden.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.06.2000 articles Ablaze My Sorrow: &quot;Wait for our album in 2000&quot;
+
+<p> Q: First. Where are you? We couldn't see your new CDs for a long time.</p>
+<p></p>
+<p> -We have been taking a break for some time now because of the fact that we study/work in different cities. And since this, of corpse, is a problem we decided to take a break.</p>
+<p></p>
+<p> Q: What did band do for all this time?</p>
+<p></p>
+<p> -We did, as I said before, take a break. But we'll probably start rehearsing quite soon again, you'll see.</p>
+<p></p>
+<p> Q: When can we wait for you new work? Is it in the same style as last one?</p>
+<p></p>
+<p> -I'm not really sure when we'll record a new album but maybe during the summer or autumn this year(2000). But absolutely nothing is decided yet, maybe there'll never be another album. But you'll notice that if you live for that long.</p>
+<p></p>
+<p> Q: Do you still on old label?</p>
+<p></p>
+<p> -Yes, as far as I know we're still on No Fashion records. We'll stay there until a better offer crosses or path. But since they so far have been ok we'll not leave themn until we're sure that we'll gert something better. Sounds pretty natural, doesn't it? You can check out my "new" band at this adress:http://deification.tripod.com</p>
+<p> The bands concists of members from Ablaze My Sorrow, Anata, Apostle, Immemoreal and Zahrim. Watch out!!! Keep in touch!</p>
+<p></p>
+<p> Q: Deification? I've never heard about this band. What do you play? Why did you do this project? Don't you satisfy with your basic band?</p>
+<p></p>
+<p> The band has been going since the beginning of 1999 I think but I've only been a member since october 1999. We play a more american style of necro death metal. A demo called "Deformed Creations" was released in the summer of 1999 and it contains 4 trax of extremely brutal death metal. Check it out, the band can be contacted through e-mail:</p>
+<p> deification@angelfire.com</p>
+<p> http://deification.tripod.com</p>
+<p></p>
+<p> Q: About Defication. When will you release first album? Do you think, that american brutal death metal is actual in Europe now? Or you just love this music?</p>
+<p></p>
+<p> I love bands such as Cannibal Corpse, Deranged, Nile, Sinister, Morbid Angel, Deicide et.c. About the next release I'm not sure. We'll probably record a new demo, or a 7"-ep, during this summer. Violence guaranteed!</p>
+<p></p>
+<p> Q: You said, that you lives in different cities and you study/work. In what cities do you live? What do you study? Where do you work? Don't music give to you enough money?</p>
+<p></p>
+<p> I study media in Leksand which is situated 600 kilometers from Falkenberg. If I get enough money from the music? No fucking way.</p>
+<p></p>
+<p> Q: Your study. Will you be journalist? What will you write about? Do you like policy, sport,...?</p>
+<p></p>
+<p> I have planned to work with radio or television. I've also been studying reording/studio-technic earlier but I'm not really sure what I'll work with. Like with everything else I'll just have to wait and see.</p>
+<p></p>
+<p> Q: Name of your band. This name is suitable for doom-gothic band, i think. You play melodic death-black. Why did you name your band so?</p>
+<p></p>
+<p> I agree with you on that point. When we started the band in 1993 it was a more doom-oriented band with tons of black/heavy-metal influences. But I think it's a good and original name so I'm still satisfied with it.</p>
+<p></p>
+<p> Q: You said, that may be you will not record another album. You don't have interest with AMS or is another reason? Do you meet with collegues in band often?</p>
+<p></p>
+<p> I'm very interested in continuing with Ablaze My Sorrow since it has been my life since for the last seven years. I'll be moving back to Falkenberg in May so we'll hopefully start rehearsing then again, but nothing is decided. The ones who live shall see the future.</p>
+<p></p>
+<p> Q: Sorry for my persistence. But I don't understand. Who don't want to continue with AMS? Other musicians?</p>
+<p></p>
+<p> No one of the members have said that they don't want to continue, but we haven't decided anything for the future. But since we have 4 new recorded trax there will probably be a mini-cd released anyway. I'll do what I can to keep the band going.</p>
+<p></p>
+<p> Q: AMS were like an In Flames. Are you influenced by this band?</p>
+<p></p>
+<p> Hm...I wouldn't say influenced, I haven't got any of In Flames albums in my collection which includes quite a big amount of records. But I'll probably but their new album soon since I really like that one. If you refer to their melodies and some folk-tunes I can say that our first demo, which was recorded in 1993, includes tons of those ingredients. But we have been compared with them for some years now.</p>
+<p></p>
+<p> Q: What do you know about Russia? Don't you know some Russian metal bands?</p>
+<p></p>
+<p> I know I've heard some Russian bands but at this very moment I can't come up with one single name.</p>
+<p></p>
+<p> Q: What would you say to your Russian fans?</p>
+<p></p>
+<p> Keep banging your head and drinking that vodka. I also would like to thank them for their support, I've gotten a big amount of letters from Russia. So again: Keep banging!!!</p>
+<p></p>
+<p> Q: What's your hobby? Do you like Ice-Hockey? I think we will defeat your team in St.Peterburg in this year?</p>
+<p></p>
+<p> My hobbies besides music are drinking, reading, fishing I think. Yes, I love hockey and football too. You won't stand a chance against the swedish team. We'll bring you down on your knees!!!</p>
+<p></p>
+<p> Q: What do you think about politicy and church?</p>
+<p></p>
+<p> I'm quite interested in politics but have as a unwritten law never to talk about that in the name of the band, sorry. What I think about the church? Huh...nothing at all, I don't really care since I don't see them as a threat in any way.</p>
+<p></p>
+<p> Vitaliy Belov</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 articles Ablaze My Sorrow: &quot;Ждите наш альбом в 2000-м году.&quot;
+
+<p> В: Куда Вы пропали? Мы уже очень долго не видели Ваших новых релизов.</p>
+<p> Мы сделали перерыв на некоторое время, потому что, фактически, мы все учимся\работаем в разных городах. И с тех пор мы решаем эту проблему, просто делая не большие перерывы.</p>
+<p> В: Чем занималась группа все это время?</p>
+<p> Мы, как я ранее сказал, сделали перерыв. Но уже очень скоро мы опять начнем вместе репетировать.</p>
+<p> В: Когда можно ожидать Ваш новый альбом? Он будет в том же стиле, что и предыдущий?</p>
+<p> Я точно не могу сказать, когда мы запишем новый альбом, но скорее всего в течении этого лета или осени. Но на данный момент еще абсолютно ничего не решено, может быть, нового альбома никогда больше не будет.</p>
+<p> В: Вы останетесь на своем старом лейбле?</p>
+<p> Да, насколько мне известно, мы останемся на нашем No Fashion Records. Мы будем оставаться на этом лейбле до тех пор, пока не поступит лучшее предложение. Пока он обходился с нами очень хорошо, и я не думаю, что какой-нибудь другой лейбл может предложить нам лучшие условия. Вы можете познакомиться с моей "новой" группой по этому адресу: http://deification.tripod.com. Группа состоит из членов групп Ablaze My Sorrow, Anata, Apostle, Immemoreal и Zahrim.</p>
+<p> В: Deification? Я никогда раньше не слышал об этой группе. Что вы играете? И почему ты сделал этот проект? Ты не удовлетворен работой в своей основной группе?</p>
+<p> Группу собрали в начале 1999 года. Мы играем в американском стиле necro-death-metal. Наше демо, которое называлось "Deformed Creations", появилось летом 1999-го года и состояло из четырех треков. Послушайте его! С нами можно связаться по e-mail: deification@angelfire.com</p>
+<p> В: Что касается группы Defication. Когда состоится релиз первого альбома? Вы думаете, что американский брутальный дэт-металл сейчас актуален в Европе? Или Вы просто любите эту музыку?</p>
+<p> Мне нравятся такие группы, как Cannibal Corpse, Deranged, Nile, Sinister, Morbid Angel, Deicide и т.д. А насчет следующего релиза, я точно не знаю. Мы, вероятно, запишем новое демо этим летом. Беспредел гарантирован!</p>
+<p> В: Ты сказал, что Вы живете в разных городах и Вы работаете\учитесь. В каком городе живешь ты? Где ты учишься и где работаешь? Музыка не приносит тебе достаточно денег?</p>
+<p> Я живу и учусь в Лександе, который находится на расстоянии 600 километров от Фалкенберга. Получаю ли я достаточно денег своей музыкой? Ни хрена подобного!</p>
+<p> В: Твоя учеба.. Ты будешь журналистом? О чем ты будешь писать? Тебе нравится политика, спорт...?</p>
+<p> Я планирую работать на радио или телевидении. Я также раньше учился на звукорежиссера но я не уверен, что буду работать по этой профессии. Как и многие другие я просто подожду и посмотрю, что получится.</p>
+<p> В: Название Вашей группы, мне кажется, хорошо подходит для готической группы. Вы же играете мелодичный дэт-блэк. Почему Вы так назвали её?</p>
+<p> Здесь я согласен с тобой. Когда мы собрали группу, в 1993-м году, это была группа, играющая дум-металл с элементами блэк\хэви-металла. Я думаю - это хорошее название и нам оно очень нравится.</p>
+<p> В: Ты сказал, что, возможно, Вы не будите больше записывать альбом. Это Вам просто не интересно, или есть другая причина?</p>
+<p> Мне очень интересно работать с Ablaze My Sorrow. Скоро я вернусь в Фалкенберг и мы будем репетировать. А что касается выхода нового альбома, то время всё покажет.</p>
+<p> В: извини за мою настойчивость. Но я не понимаю, кто же не хочет продолжать играть в AMS? Остальные музыканты?</p>
+<p> Ни один из членов группы прямо не сказал, что он не хочет больше играть. Но у нас нет никаких планов на будущее. Но поскольку у нас есть уже готовые и записанные 4 песни, то мини-CD мы выпустим в любом случае. Я сделаю всё, чтобы сохранить группу.</p>
+<p> В: AMS была похожа на In Flames. Творчество этой группы оказало на вас влияние?</p>
+<p> Хм… Я бы не сказал, что оказало. У меня даже нет ни одного диска In Flames. Если ты имеешь в виду их мелодии и некоторые фольковые фишки, я могу сказать, что наше первое демо, записанное в 1993 году, содержит кучу подобных штучек.</p>
+<p> В: Что тебе известно о России? Знаешь ли ты какие-нибудь российские металлические группы?</p>
+<p> Я знаю, я слышал несколько российских групп, но в данный момент я не могу вспомнить их названия.</p>
+<p> В: Что ты хочешь сказать своим русским фэнам?</p>
+<p> Пейте больше водки!;) И также хочу поблагодарить их за поддержку. У меня есть много писем от российских фэнов.</p>
+<p> В: У тебя есть хобби? Тебе нравится хоккей? Я думаю, что мы победим Вашу команду в Санкт-Петербурге в этом году.</p>
+<p> Я люблю читать, ходить на рыбалку и еще люблю выпивать! Да, я люблю хоккей и футбол тоже. У Вас нет шансов устоять против нашей команды! Мы поставим Вас на колени!</p>
+<p> В: Что ты думаешь о политике и церкви?</p>
+<p> Да, я интересуюсь политикой. А что касается церкви. Хе-хе, я не беспокоюсь, потому что не вижу с ее стороны никакой угрозы.</p>
+<p> Vitaliy Belov</p>
+<p> перевод Nybras</p>
+<p></p>
+
+Автор: Nybras
+
+### 07.08.2000 news Новый альбом Ablaze My Sorrow
+
+<p>Ablaze My Sorrow засели в студию. В группу вернулись два оригинальных участника Martin Qvist(vox) и Magnus Carlsson(guit). Сейчас записываются новые песни, также будет снят видео-клип на песню "Suicide".</p>
+
+Автор: Vit Belov
+
+### 07.08.2000 news Ablaze My Sorrow&#39;s news.
+
+<p>Ablaze My Sorrow are back in the rehearsal-place writing new material for their upcoming album. The new tracks are in the typical AMS-style, which meens aggressive and violent but still catchy and melodic death metal. Fredrik Arnesson(vox) and Anders Lundin(guit) have been replaced by the original-members Martin Qvist(vox) and Magnus Carlsson(guit). Ablaze My Sorrow now stands stronger and than ever. In a couple of weeks some new songs will be recorded in a new studio to check it out, a video for the track "Suicide" will also be recorded and maybe sooner released in some way.</p>
+
+Автор: Vit Belov
+
+### 25.10.2001 news Новый вокалист ABLAZE MY SORROW
+
+<p>Martin Qvist снова уходит из ABLAZE MY SORROW. Новый вокалист группы - Kristian Lonnsjo из брутальной дэт-метал группы Deification. 12 новых песен уже записаны, и вот названия некоторых из них - "Erase/relieved", "Ad libitum", "Slit Wide Open" и "Suicidal". Новый материал группы - смесь двух первых альбомов с дополнительной дозой агрессии. Ждите выхода нового альбома "Anger, Hate and Fury" - и он убьет вас!</p>
+
+Автор: Vic Thor
+
+### 25.10.2001 news ABLAZE MY SORROW&#39;s new singer
+
+<p>Martin Qvist is out of ABLAZE MY SORROW again! The new singer in the band is Kristian Lonnsjo from the brutal death metal squadron Deification. 12 new tracks has been recorded and some titles are "Erase/relieved", "Ad libitum", "Slit Wide Open" and "Suicidal". The new songs are a mixture of the the two earlier Ablaze my sorrow albums with an extra dose of aggression and intensity. Beware the arrival of the new album "Anger, Hate and Fury", it will kill you for sure.</p>
+
+Автор: Vic Thor
+
+### 30.01.2002 news Утоли мои печали...
+
+<p>Шведы "ABLAZE MY SORROW" завершили работу над диском "Anger, Hate And Fury". Это первый альбом для нового вокалиста Kristian Lonnsjo (ex-DEIFICATION). Песни будут такие: <BR><BR> 01. Erased/Relieved<BR> 02. Suicidal<BR> 03. Where The Strong Live Forever<BR> 04. Machine Supreme<BR> 05. Paradies<BR> 06. Retention Of Illusions<BR> 07. Thou Shalt Forever Suffer<BR> 08. Shrouded Are The Pleasures Of Flesh<BR> 09. Heartless<BR> 10. Slit Wide Open<BR> 11. Ad Libitum<BR><BR> Картинку к обложке рисовал Niklas Sundin (DARK TRANQUILLITY). Релиз ожидается весной на No Fashion Records....</p>
+
+Автор: Yermola
+
+### 30.01.2002 news ABLAZE MY SORROW Complete Work On Third CD ...
+
+<p>Sweden's ABLAZE MY SORROW have completed work on their third full-length album, entitled Anger, Hate And Fury, at Recordia Studios in Varberg. The first CD to feature new vocalist Kristian Lцnnsjц (ex-DEIFICATION), the album will include the following track listing: <BR><BR> 01. Erased/Relieved<BR> 02. Suicidal<BR> 03. Where The Strong Live Forever<BR> 04. Machine Supreme<BR> 05. Paradies<BR> 06. Retention Of Illusions<BR> 07. Thou Shalt Forever Suffer<BR> 08. Shrouded Are The Pleasures Of Flesh<BR> 09. Heartless<BR> 10. Slit Wide Open<BR> 11. Ad Libitum<BR><BR> Described as “a mixture of the the two earlier ABLAZE MY SORROW albums with an extra dose of aggression and intensity”, the follow-up to 1998's The Plague will feature artwork by Niklas Sundin (DARK TRANQUILLITY). A spring release through No Fashion Records is expected.</p>
+
+Автор: Yermola
+
+### 31.12.2002 reviews Давным-давно была такая группа
+
+<p>На заре melodic death-metal была и такая группа, и успела она выпустить 2 неплохих альбома, а может даже очень хороших альбома. И пропала группа с небосклона, и жаловался её лидер на то, что не может записать новый материал без музыкантов, что живут они в разных городах и недосуг... И вот под новый 2003 год нежданно - негаданно появляется альбом, который с первого риффа относит нас к тем далёким временам, когда в Швеции все играли melodic death, In Flames не были популярны в Америке, а использование электронники в песнях считалось крупнейшим грехом. (Кстати, Children Of Bodom тоже ещё не было). Обычный и качественный melodic death порадует всех поклонников данного стиля, а некоторые мелодии, как например, Where The Strong Live Forever, может даже заставят пуститься в пляс. Хочется отметить, что иногда кто-то может даже услышит отголоски black-metal, но не верьте этому чувству, это просто страшная мелодия.</p>
+
+Автор: Vit Belov
+
+### 31.12.2002 reviews Many times ago...
+
+<p>There was this band at dawn of melodic death metal. And It released two not-bad albums or even it released two very good albums. And band falled from the sky, and its lider complained that he could not record new material without musicians that they lived in different towns and didn't want it... And Now album is released unexpectedly in new 2003 year's eve. This album returns us to ancient times, when everybody in Sweden played melodic death metal, when In Flames was not popular in USA, when using of electronics in songs was huge sin. (By The way, Children of Bodom also had not been yet). Usual and qualitative melodic death metal will please all fans of this style, and some melodies, such as 'Where The Strong Live Forever', force to dance. I'd like to note that somebody can hear features of black metal sometimes. But don't believe to yourself this is just terrible melody...</p>
+
+Автор: Vit Belov
+
+### 22.01.2003 reviews Гнев, ненависть и ярость
+
+<p>Первые же звуки этого альбома напоминающие машинную пилораму как бы говорят о том, что милости не ждите. Никакого мягкого звучания и гипермелодичности, присущей молодым командам. Только мощный агрессивный звук, брутальный вокал и мелодичность в рамках экстремального melodic death metal. Третий альбом группы на десятом году существования группы, вышедший после пятилетнего перерыва, показал, что не перевелись еще на земле шведской группы способные потрясти мир своим материалом без использования разных новомодных штучек. Новый материал группы сделан в прежнем свойственном группе духе с экстремальной дозой агрессии, разрушительной интенсивности и ненавистной ярости. Он полностью оправдывает свое название. На мой взгляд, эта работа напоминает творчество группы SLAYER смешанное с AT THE GATES. Грубый, почти трэшовый, но очень качественный звук. Технически безупречная и интересная работа. В лирике группы преобладают мысли о жизни и смерти и некоторые религиозные темы. Продукция высшего класса, которая займет достойное место в фонотеке любого поклонника экстремальной музыки и доставит реальное удовольствие вашим ушам.</p>
+
+Автор: Dimas
+
+### 08.06.2016 news ABLAZE MY SORROW возвращаются
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Шведская melodic death metal команда <strong>ABLAZE MY SORROW</strong> возвращается с новым альбомом "<strong>Black</strong>". Это первая новая музыка от коллектива за последние 14 лет. Дата релиза: 5 августа на <strong>Apostasy Records</strong>. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>“Black”<br>“One Last Sting”<br>“Tvaenighet”<br>“When All Is…”<br>“Send The Ninth Plague”<br>“To Reclaim What Is Ours”<br>“Insomnia”<br>“Blood Heritage”<br>“Razorblade Revolution”<br>“The Storm”<br>“My Blessing”</p><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29269.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 08.06.2016 news ABLAZE MY SORROW: First new music in 14 years
+
+<p>Swedish melodic death metal band<strong> ABLAZE MY SORROW</strong> returns with a new album<strong> "Black"</strong>. This is the first new music from the group over the last 14 years. Release date: August 5, on <strong>Apostasy Records</strong>.</p><p>Track listing:</p><p>“Black”<br>“One Last Sting”<br>“Tvaenighet”<br>“When All Is…”<br>“Send The Ninth Plague”<br>“To Reclaim What Is Ours”<br>“Insomnia”<br>“Blood Heritage”<br>“Razorblade Revolution”<br>“The Storm”<br>“My Blessing”</p><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29269.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Other Album of Ablaze My Sorrow

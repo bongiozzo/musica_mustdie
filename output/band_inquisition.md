@@ -60,6 +60,40 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.08.2011 news Фестиваль &quot;Hammer Open Air&#39; 2011&quot;: фото-отчёт
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20414.jpg" width=300 height=119> 
+<P></P>
+<P>15 и 16 июля в Финляндии прошёл фестиваль "<STRONG>Hammer Open Air</STRONG>". Среди участников фестиваля в основном преобладали андеграундные финские и шведские коллективы, исключением, пожалуй лишь, стали&nbsp;<STRONG>ABSU</STRONG>, <STRONG>PRIMORDIAL</STRONG> и <STRONG>AUTOPSY</STRONG>. Последние, к сожалению, не попали в объектив нашего фотографа.</P>
+<P>Фотографии с выступлений можно посмотреть на нашем сайте, пройдя по ссылкам указанным&nbsp;ниже.</P>
+<P>День 1: <A href="/ru/galleries/1/740/">http://musica.mustdie.ru/ru/galleries/1/740/</A></P>
+<P>День 2: <A href="/ru/galleries/1/742/">http://musica.mustdie.ru/ru/galleries/1/742/</A></P></CENTER>
+Автор: Headcrusher
+
+### 26.07.2016 news Новый сингл INQUISITION
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом американской группы <strong>INQUISITION 'Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith'</strong> выходит 26 августа на <strong>Season of Mist</strong>. Сегодня состоялась премьера новой песни с этого альбома "<strong>Vortex From The Celestial Flying Throne Of Storms</strong>". </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Альбом был записан в легендарной London Bridge Studios в Сиэттле, где записывались ALICE IN CHAINS и QUEENSRYCHE. Инженер:<strong> Arthur Rizk </strong>(PRURIENT, POWER TRIP).</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>1. Intro: The Force Before Darkness<br>2. From Chaos They Came<br>3. Wings Of Anu<br>4. Vortex From The Celestial Flying Throne Of Storms<br>5. A Black Aeon Shall Cleanse<br>6. The Flames Of Infinite Blackness Before Creation<br>7. Mystical Blood<br>8. Through The Divine Spirit Of Satan A Glorious Universe Is Known<br>9. Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith<br>10. Power From The Center Of The Cosmic Black Spiral<br>11.&nbsp; A Magnificent Crypt Of Stars<br>12. Outro: The Invocation Of The Absolute, The All, The Satan<br>13.&nbsp; Coda: Hymn To The Cosmic Zenith</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29681.jpg" border="0"><p></p><p><center><iframe width="738" height="480" src="https://www.youtube.com/embed/R9ddL0ivIgQ" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 26.07.2016 news INQUISITION stream new song from upcoming album
+
+<p><strong>INQUISITION</strong> are now unleashing the third crushing track taken from their forthcoming full-length <strong>'Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith'</strong>. The new album of the US black metal duo has been scheduled for release on the 26th of August.</p><p>The song "<strong>Vortex From The Celestial Flying Throne Of Storms</strong>" can be streamed in a clip below.</p><p>Frontman<strong> Dagon</strong> states about "Vortex From The Celestial Flying Throne Of Storms": "<em>In the universe, where order within disorder mirrors the struggle of two astral gods, serpent versus eagle as they battle upon their thrones for the supremacy of quantum mechanic laws, a vortex left behind their war-thrones sets motion to death portals within our stellar black ocean generating a cosmic whirlpool of infinite movement and renewal at every level, consuming all matter and light.</em>"</p><p>INQUISITION recorded 'Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith' at the legendary <strong>London Bridge Studios</strong> in Seattle (ALICE IN CHAINS, QUEENSRYCHE, WOLVES IN THE THRONE ROOM, and many more) with long time engineer <strong>Arthur Rizk</strong> (PRURIENT, POWER TRIP).</p><p>Artwork and tracklist of 'Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith' are shown below.</p><p>1. Intro: The Force Before Darkness<br>2. From Chaos They Came<br>3. Wings Of Anu<br>4. Vortex From The Celestial Flying Throne Of Storms<br>5. A Black Aeon Shall Cleanse<br>6. The Flames Of Infinite Blackness Before Creation<br>7. Mystical Blood<br>8. Through The Divine Spirit Of Satan A Glorious Universe Is Known<br>9. Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith<br>10. Power From The Center Of The Cosmic Black Spiral<br>11.&nbsp; A Magnificent Crypt Of Stars<br>12. Outro: The Invocation Of The Absolute, The All, The Satan<br>13.&nbsp; Coda: Hymn To The Cosmic Zenith</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29681.jpg" border="0"><p></p><p><center><iframe width="738" height="480" src="https://www.youtube.com/embed/R9ddL0ivIgQ" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 17.08.2016 news INQUISITION выложили новый альбом целиком
+
+<p>Новый альбом<strong> INQUISITION 'Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith'</strong> выйдет 26 августа на <strong>Season Of Mist</strong>. Группа сделала доступным весь альбом целиком на Youtube.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/36YumVOT5BA?list=PLArAJlC1y55_DuoU_UJ1ColVR4HByK1UE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 17.08.2016 news INQUISITION premier new album
+
+<p><strong>INQUISITION</strong> are now premiering their complete forthcoming full-length <strong>'Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith'</strong>, which has been scheduled for release on the 26th of August.</p><p>'Bloodshed Across The Empyrean Altar Beyond The Celestial Zenith' is streaming via Youtube clip below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/36YumVOT5BA?list=PLArAJlC1y55_DuoU_UJ1ColVR4HByK1UE" frameborder="0" allowfullscreen=""></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Колумбийские небожители снова в Москве (14 февраля 2015)!

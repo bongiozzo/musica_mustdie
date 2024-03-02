@@ -109,6 +109,32 @@ Deluxe edition contains a bonus track - Concerto (Cacophony cover)
 * C группой "Mayan" Jeroen Paul Thesseling (bass)
 * C группой "Pestilence" Jeroen Paul Thesseling (bass)
 
+## Публикации
+
+### 16.01.2011 news OBSCURA: новый альбом &quot;Omnivium&quot; выходит весной
+
+<P>Обложку для&nbsp;<B itxtvisited="1">"Omnivium"</B>, нового альбома прогрессив дес металлистов <B itxtvisited="1">OBSCURA</B>, можно посмотреть ниже. Её автор - <B itxtvisited="1">Orion Landau</B> (<B itxtvisited="1">ORIGIN</B>, <B itxtvisited="1">DYING FETUS</B>, <B itxtvisited="1">ZEKE</B>, <B itxtvisited="1">DISFEAR</B>).<BR itxtvisited="1"><BR itxtvisited="1">Последователь альбома&nbsp;<B itxtvisited="1">"Cosmogenesis"</B>, <B itxtvisited="1">"Omnivium"</B> будет выпущен в Северной Америке 29 марта, на лейбле <STRONG>Relapse</STRONG>, сразу в трёх форматах <STRONG>-</STRONG>&nbsp;CD,&nbsp;двойной винил, электронном.&nbsp;Так же, будет выпущен "limited deluxe"&nbsp;CD&nbsp;-&nbsp;к диску в&nbsp;формате digipak, содержащий один&nbsp;дополнительный трек, будет прилагаться нашивка группы, медиатор, и наклейка с изображением обложки альбома <B itxtvisited="1">"Omnivium"</B>. <BR itxtvisited="1"><BR itxtvisited="1"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18200.jpg" width=400 height=400>Трек-лист<STRONG> "Omnivium"</STRONG>: <BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Septuagint</B><BR itxtvisited="1">02. <B itxtvisited="1">Vortex Omnivium</B><BR itxtvisited="1">03. <B itxtvisited="1">Ocean Gateways</B><BR itxtvisited="1">04. <B itxtvisited="1">Euclidean Elements</B><BR itxtvisited="1">05. <B itxtvisited="1">Prismal Dawn</B><BR itxtvisited="1">06. <B itxtvisited="1">Celestial Spheres</B><BR itxtvisited="1">07. <B itxtvisited="1">Velocity</B><BR itxtvisited="1">08. <B itxtvisited="1">A Transcendental Serenade</B><BR itxtvisited="1">09. <B itxtvisited="1">Aevum</B><BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">"Omnivium"</B> был записан в <B itxtvisited="1">Woodshed Studio</B>, на юге Германии, с инженером <B itxtvisited="1">V. Santura</B> (<B itxtvisited="1">TRIPTYKON</B>, <B itxtvisited="1">DARK FORTRESS</B>). Альбом основан на книге немецкого философа&nbsp;Фридриха Шеллинга "О связи природы с миром духа"&nbsp;(<B itxtvisited="1">Friedrich Schelling</B> <B itxtvisited="1">"On Nature's Connection to the Spirit World"</B>).<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 08.07.2011 news OBSCURA покинул басист
+
+<P>Басист <STRONG>Jeroen Paul Thesseling </STRONG>покинул немецкую techno-death metal команду <STRONG>OBSCURA.</STRONG> Музыкант мотивировал своё решение недостатком времени, который не позволяет ему ездить&nbsp;c <STRONG>OBSCURA</STRONG> в турне. </P>
+<P>Совсем недавно<STRONG> Jeroen</STRONG> вернулся в <STRONG>PESTILENCE</STRONG>, с которыми записал новейший альбом <STRONG>"Doctrine". </STRONG>Он также недавно покинул проект музыкантов <STRONG>AFTER FOREVER</STRONG> и<STRONG> EPICA</STRONG> - <STRONG>MAYAN</STRONG>.</P>
+<P>Последний альбом <STRONG>OBSCURA</STRONG> <STRONG>"Omnivium" </STRONG>вышел в марте на<STRONG> Relapse Records</STRONG>.</P>
+<P><center><IMG height=317 src="/images/news_rus/2011.07/19990.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 21.06.2016 news Новый клип OBSCURA
+
+<p>Немецкие tech death metal'исты<strong> OBSCURA</strong> опубликовали видео на песню "<strong>Ten Sepiroth</strong>” с последнего альбома "<strong>Akroasis</strong>", который вышел на <strong>Relapse/Mazzar</strong>.</p><p>Купи <a href="http://escapemind.ru/goods/Obscura-Akroasis">здесь</a>.&nbsp;</p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/T2yTbYWUc_Y?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 21.06.2016 news OBSCURA: New video
+
+<p>German tech death metal band<strong> OBSCURA</strong> has posted a video for the song "<strong>Ten Sepiroth</strong>” from their latest album "<strong>Akroasis</strong>", which was released on<strong> Relapse records/Mazzar</strong>.</p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/T2yTbYWUc_Y?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

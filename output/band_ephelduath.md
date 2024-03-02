@@ -93,6 +93,121 @@ Davide Tolomei - skimming vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.04.2002 news Ephel Duath репетируют новый материал
+
+<p>Ephel Duath набрали полный состав и теперь репетируют новый материал. По мнению музыкантов, звук по сравнению с дебютом "Rephormula" стал более "органическим" и гораздо более прогрессивным, почти джазовым.</p>
+
+Автор: Morsus
+
+### 01.04.2002 news Ephel Duath are rehearsing the new material
+
+<p>Ephel Duath has put a full band together and are presently rehearsing the new material. The sound is said to be more "organic" than the Rephormula debut, and the early indications of the material show a far more progressive, almost jazzy nature.</p>
+
+Автор: Morsus
+
+### 12.05.2002 news Ephel Duath &quot;рисуют&quot; новый альбом
+
+<p>В последнее время Ephel Duath напряжённо работают над песнями для нового альбома "The Painter's Palette" с тем, чтобы в июле начать запись в Fear Studio в Италии. Ephel Duath на этом альбоме покажут новое лицо, будет более человеческий подход и меньше компьютеров в сравнении с "Phormula" и "Rephormula". Всё это в немалой степени благодаря новым участникам: живому барабанщику с классическим образованием, басисту, играющему в стиле free-jazz-prog, вокалисту с чистым вокалом в духе Tool, и по-настоящему сильному скримеру-блэкушнику, который ещё надерёт всем задницы на будущих концертах. Поскольку наконец-то это стало возможно, Ephel Duath начнёт серию живых выступлений осенью-зимой 2002 года. "Painter's Palette" будет концептуальным, "цветным" альбомом, где каждой песне будет сопоставлен свой определённый цвет, передающий настроение и смысл песни. Естественно, обложка и всё оформление диска разовьёт и обогатит эту концепцию. Известны уже несколько рабочих названий песен: "Ruins" (голубой с немного фиолетовым оттенком), "The Picture" (бордовый), "Praha" (старинное золото), "The Other's Touch" (амарант), "The Unpoetic Circle" (зеленый изумруд)... плюс ещё 5 песен, которые также скоро будут готовы.</p>
+
+Автор: Morsus
+
+### 12.05.2002 news Ephel Duath are &quot;painting&quot; a new album
+
+<p>In the last months Ephel Duath have worked really hard to ultimate the songs for their new album titled "The Painter's Palette", as they will record it in July at Fear Studio in Italy. Ephel Duath with this album will show a new face, with a more human approach and less Computers comparing to "phormula" and "rephormula". This is also possible thanks to the new members: an (un)human classically-trained drummer, a bass player free-jazz-prog addicted, a clean vocalist with a very "Toolish" style, and a really violent and sick sonic screamer that will kick your ass in future live show. Because finally it will be possible, Ephel Duath will start playing live gigs during Autumn-Winter 02. The "Painter's Palette" will be a sort of "conceptual coloured album", infact, every songs will associate with a particular colour that represents the mood and the meaning of the track. Of course all the cd-packaging and artwork (by temno un.art as usual) will develop and enrich that concept. Here are some working titles: "Ruins" (blu and a little of violet), "The Picture" (bordeaux), "Praha" (ancient gold), "The Other's Touch" (Amaranth), "The Unpoetic Circle" (emerald green)... plus 5 more songs near to be finished.</p>
+
+Автор: Morsus
+
+### 19.08.2002 news Новости Elitist Records
+
+<p>Elitist Records - подразделение лейбла EARACHE, специализирующееся на современном "state-of-the-art" и "cutting-edge" андеграундном металле.</p>
+<P>ELITIST заключили контракт с WOLVERINE. Шведские прог-металлеры Wolverine заключили с лейблом Elitist сделку на запись 4 альбомов. Работа над дебютом для Elitist начнется в конце 2002 года. Группа уже выпустила два альбома -"Fervent Dream" и "The Window Purpose". Последний получил статус "Альбом месяца" издания Aardschok. Wolverine - исключительно молодая и талантливая группа, одаренная как в плане идей, так и музыкально. Их традиционно звучащий прогрессивный метал изрядно сдобрен влиянием дет-металлических корней коллектива.</>
+<P>Дебютный альбом LUNARIS на выходе. Дебютный альбом "...The Infinte" от Lunaris - новой надежды норвежского прогрессивного блэк-дет метала выходит 16 сентября. Lunaris - полноценный работающий музыкальный коллектив, со своими амбициями и планами, и они готовы стать реальной движущей силой на металлической сцене. С их музыкальной искушенностью, квалификацией, опытом и мастерством - занятие ведущих позиций на андеграундной металлической сцене должно стать простой формальностью.</>
+<P>FOREST STREAM заканчивают работу над альбомом. Российское трио заканчивает работу над своим дебютным альбомом "Tears Of Mortal Solitude". Он будет включать 11 треков .Максимально темный, величественный, эпический black-металл.</>
+<P>RAKOTH завершают работу над пластинкой. "Tiny Deaths" - третий студийный альбом Rakoth - близок к завершению. Сейчас группа записывает большее количество материала, чем может войти в альбом. В настоящий момент трек-лист будущего альбома выглядит так:</>
+<P> 1. Into 2. The Crypt / Planekeep 3. Fevered 4. Dawn 5. Trust This 6. Edge 7. June 3 8. Horizon 9. Just Another Lament 10. Vicious Life 11. Tiny Deaths</>
+<P>Группа предприняла более атмосферный, почти Avant-экспериментальный подход к песням нового альбома. При этом сохранено оригинальное звучание Rakoth. Хотя некоторые из поклонников их традиционного стиля могут быть несколько обескуражены.</>
+<P>EPHEL DUATH завершают работу над своим демо. Итальянцы Ephel Duath завершили работу над своими новыми демо-записями, сработанными в режиме "живьем в студии". Группа писалась в своем новом составе. Эта запись - подготовка к записи будущего альбома "Painter's Palette". В состав группы входят 2 музыканта, которые параллельно работают в группах, исполняющих свободный джаз. Это отражается на музыке Ephel Duath и делает ее более органичной, сумасшедшей, более слоистой и многомерной чем прежде. Ephel Duath берет курс в сторону экстремального и нелогичного Avant-металла. Примерно как "Темной-темной ночью Naked City навещают Emperor и они вместе записывают альбом". Новый шаг в направлении black metal.</>
+<P>WITHOUT FACE планируют европейский тур. Венгерские герои прогрессив-металла Without Face планируют организовать несколько европейских шоу до конца этого года. В адрес своего последнего альбома "Astronomicon" группа получила богатый урожай хвалебных отзывов, рецензий и обзоров. В том числе титул "альбом месяца" британского издания Metal Hammer.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 09.09.2002 news MassaBrutto Radioshow #106, 9-10 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. DANSE MACABRE - Cypress Tree (Hammerheart)<BR> 2. DECEMBER - Waiting For Rain (Earache)<BR> 3. PUNGENT STENCH - Shrunken And Mummified Bitch (Nuclear Blast)<BR> 4. NOVEMBERS DOOM - Broken (Dark Symphonies)<BR> 5. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 6. OBTEST - Auka Seniems Dievams (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. FLESHLESS - Slaughterhouse [by MORTICIAN] (Obscene Prods/Relapse)<BR> 8. CARCASS - Inpropagation (Earache)<BR> 9. CARCASS - Symposium Of Sickness (Earache)<BR> 10. CARCASS - Carneous Cacoffiny (Earache)<BR> 11. EPHEL DUATH - The Embossed (Earache)<BR><BR> massaradio@yandex.ru<BR> massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 06.04.2003 news Второй альбом EPHEL DUATH
+
+<p>19 мая 2003 года на Elitist Records выходит второй альбом итальянских авангард-блэкстеров EPHEL DUATH под названием "The Painter's Palette".</p>
+
+Автор: Dimas
+
+### 08.04.2003 news EPHEL DUATH news...
+
+<p>The Painter's Palette, the eagerly awaited second album from these Italian maestros will be released in Europe on May 19th. Those expecting "Rephormula" part two will be in for a bit of a shock.<BR><BR> This is not an album to try and define with standard parameters. All types of music, past, present and future are quoted in a single sound. The band's desire and creativity to innovate and articulate their vision has reaped massive rewards for themselves and the listener. <BR><BR> Conceptually inspired from the connection between sounds and colours, "The Painter's Palette's" artwork is published strictly in black and white. The intention of Ephel Duath is to give colour through their sounds or, if you prefer, to play the sound of colours. Every song is depicted by a different chromatic shade, where the listener's mind becomes a painting with infinite possibilities of sounds and colours, musical tonalities and contrasting hues.<BR><BR> The mp3 previews released set a new precedent, reaching 20.000 downloads of the single "The Passage". The resultant feedback has been staggering. People have been stunned by what the band have achieved and are desperate for more. Metal bands in the past have toyed with Jazz or Fusion passages, but never has a band pushed the limits to the extent of actually defining a genre.<BR><BR> "The Painter's Palette" is a genuinely groundbreaking release from a band that is pushing the boundaries of what was previously thought possible.</p>
+
+Автор: Yermola
+
+### 04.08.2003 news EPHEL DUATH остались без вокалиста
+
+<p>Ряды итальянской группы EPHEL DUATH покинул вокалист Davide Tolomei. В настоящее время, остальные музыканты заняты активными поисками нового фронтмена.</p>
+
+Автор: Dimas
+
+### 16.09.2003 news EPHEL DUATH начали пре-продукцию
+
+EPHEL DUATH готовятся к записи своего третьего альбома, который выйдет в 2004/2005 годах на Elitist Records. '<B>Мы начнём пре-продукцию некоторых инструментальных партий с нашим продюсером Paso в конце сентября</B>'. В настоящее время группа ищет замену своему певцу Davide Tolomei, который покинул EPHEL DUATH в июле.
+Автор: Vit Belov
+
+### 04.11.2003 reviews Итальянский сюрприз
+
+<P>Новый подход к блэку? Нет. Не верьте тем, кто скажет, что на этом альбоме есть блэк. Нету его тут. А есть потрясающая смесь хардкора, почти авангардного джаза и прога. Несовместимые, на первый взгляд, стили оказались настолько органично переплетены между собой, что просто диву даешься. Пятеро итальянцев, двое из которых являются вокалистами, а один - 47-илетним (!) джазовым (!!)драммером, при поддержке электронщика-синтезаторщика и трубача (манера игры которого иногда напоминает великого Майлза, а иногда срывается на авангардные эксперименты на грани с фри-джазом) несут слушателю один из самых необычных и интересных релизов года. Судя по названиям треков, сей альбом является выражением видения исполнителями различных цветов (бутылочно-зеленого, малинового, грязно-белого, бордо и др.) через призму смелых музыкальных экспериментов по смешению уже названных выше стилей. В отличие от&nbsp;отрецензированного мной несколько ранее диска группы FARMAKON, настоящий релиз оказался удачным не только по задумке, но и по реализации. Скажу сразу, что "Палитра Художника" придется по вкусу далеко не каждому: любители мелодий упрекнут материал за излишние, на их взгляд, какофоничность, авангардизм и кричачий во всю глотку вокал, приверженцы экстремальщины будут кривиться из-за акустических вставок, экскурсов в джазовые дебри и включений чистого вокала (справедливости ради замечу, что совершенно ничем не выдающегося). Этот альбом для тех, кто не боится экспериментов в современной музыке, кто не застыл на прослушивании какого-то одного направления. Думаю, что любителям актов типа CULT OF LUNA, DILLINGER ESCAPE PLAN или&nbsp;DISHARMONIC ORCHESTRA (хотя стилистически все эти команды, естественно, различаются) этот опус безумных итальянцев придется по душе. Оформление буклета тоже с каким-то налетом авангарда, причем в весьма грустных, но не мрачных тонах (кому понравится, тому рекомендую посетить официальный - и весьма сипатично сделанный - сайт группы <A href="http://www.ephelduath.net/">http://www.ephelduath.net</A>). На альбом также добавлена мультимедийная секция. Я не слышал предыдущих дисков группы (на подразделении Earache Elitist это уже их второй релиз), может быть, они действительно играли блэк, но данный релиз стал для меня действительно приятным сюрпризом. Остается лишь поздравить как Earache, так и выпустивший данный альбом по лциензии "Союз" с удачным приобретением. Совсем маленькая капля дегтя: жаль, что альбом длится чуть более 46 минут...</P>
+<P>Диск предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 28.01.2005 news EPHEL DUATH готовы к записи
+
+<P>Итальянцы <STRONG>EPHEL DUATH</STRONG> войдут в <STRONG>Studio 73</STRONG> в Равенне, Италия 16 февраля для записи третьего альбома <STRONG>'Pain</STRONG> <STRONG>Necessary To Know'</STRONG>. Альбом выйдет поздней весной на<STRONG> Earache</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.06.2005 news EPHEL DUATH продолжают работу над новым альбомом
+
+<P>Итальянские любители джаза в металле&nbsp;<B>EPHEL DUATH</B> продолжают работу над своим новым альбомом в итальянской <B>Studio 73</B> с продюсером <STRONG>Paso,</STRONG> работавшим с музыкантами над предыдущим альбомом <STRONG>"The Painter's Palette"</STRONG>. Альбом <B>"Pain Necessary to Know"</B> должен выйти уже в октябре этого года. В него войдут такие вещи, как <B>"I Killed Rebecca"</B>, <B>"Few Stars"</B>, <B>"Imploding"</B>, <B>"Christalline Whirl"</B>, <B>"New Disorder"</B>, <B>"Pleonasm"</B>, <B>"Glockenspiel"</B>&nbsp;и <B>"Vector"</B>.</P>
+Автор: Dimas
+
+### 24.06.2005 news EPHEL DUATH закончили запись
+
+<P><STRONG>EPHEL DUATH</STRONG> закончили запись новыого альбома. В понедельник 27 июня начнётся микс. Уже сейчас известен трэк-лист:</P>
+<P>1. <STRONG>New Disorder</STRONG><BR>2.<STRONG> Vector, third movement<BR></STRONG>3. <STRONG>Crystalline Whirl<BR></STRONG>4. <STRONG>Few stars, no refrain and a cigarette</STRONG> (instrumental)<BR>5. <STRONG>Pleonasm<BR></STRONG>6. <STRONG>Vector<BR></STRONG>7. <STRONG>I killed Rebecca</STRONG><BR>8. <STRONG>Vector, Second movement</STRONG> (instrumental)<BR>9. <STRONG>Imploding </STRONG></P>
+Автор: Vit Belov
+
+### 12.10.2005 news Новый альбом EPHEL DUATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>EPHEL DUATH "Pain Necessary To Know"</STRONG> выходит 30 октября на <STRONG>Earache</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 12.10.2008 reviews Электронный психо-эксперимент Эральдо Берноччи над звуком, ушами и мозгами
+
+<P>Чтобы, как выражался мой школьный военрук, не рассказывать долго свою биографию, процитирую сразу фразу из буклета (точнее, там два листика всего) альбома: "Pain Remixes The Known is an electronic deconstruction of the 2005 album Pain Necessary To Know". Что же такое, этот альбом ремиксов от одной из самых интересных команд экстремального жанра, итальянских джазкор-авангард-металистов Ephel Duath? И что можно от него ожидать, если продюсированием и собственно ремиксами занимался Eraldo Bernocchi, известный, среди прочего, своим сотрудничеством с такими фигурами, как Mick Harris (Napalm Death, Scorn, Lull, Painkiller), Bill Laswell и Toshinori Kondo? Dub, house, trip-hop, ambient, avantarde, noise, industrial&nbsp;- вот какие понятия придут вам на ум, когда вы поставите "Pain Remixes The Known". Собственно, металистам тут ловить нечего. Как, впрочем, нечего ловить и завсегдатаям клубной музыки, ибо данная работа будет для них слишком сложной, "малотанцевальной" и экстремальной. Но если вы примерно представляете себе, на что, в принципе, способны Ephel Duath, то для вас подобный психо-эксперимент над звуком, ушами и мозгами не будет уж совсем сюрпризом. Не могу сказать, что подобная музыка мне сильно по душе, но выдумки Эральдо Берноччи мне понравились. Прежде всего отсутствием тупизма и многочисленных повторений одних и тех же пассажей, которые порой присущи работам в электронных стилях. Все девять вещей с "Pain Necessary To Know" не только изменены практически до неузнаваемости, но и получили иные названия: 'Hole I', 'Hole II' и так далее до 'Hole IX'. Сто раз подумайте, стоит ли вам тратить 45 минут на прслушивание музыки, к которой вы совершенно не привыкли - а то потом будете плеваться. По понятным причинам, оценивать баллами "Pain Remixes The Known" я не буду. Ну а всех меломанов-безумцев - милости просим!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 30.01.2009 news Новая песня EPHEL DUATH
+
+<P>26 января на <STRONG>Earache</STRONG> вышел "самый извращенный" альбом <STRONG>EPHEL DUATH "Through My Dog's Eye"</STRONG>. Концептуальный альбом написан с точки зрения собаки. Песню "<STRONG>Bark Loud</STRONG>" можно послушать на <STRONG>MySpace </STRONG>страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/ephelduath">http://www.myspace.com/ephelduath</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Ephel Duath... Слышали?

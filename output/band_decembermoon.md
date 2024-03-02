@@ -32,6 +32,15 @@ Additional Orchestration - Mags
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.02.1999 news 
+
+<p>Барабанщик Nicholas Barker покинул Cradle Of Filth и начал заниматься своми музыкальными проектами На время записи нового альбома в группе играет барабанщик Was Sarginson (The Blood Divine и December Moon)</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -26,6 +26,9 @@ a project of Sol Invictus' trumpet player Eric Roger
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -48,6 +48,9 @@ photos by paul taylor&ravinder bassi
 * C группой "Dio" Jeff Pilson
 * C группой "Dokken" Jeff Pilson
 
+## Публикации
+
+
 ## Обсуждения
 
 

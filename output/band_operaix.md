@@ -93,6 +93,88 @@
 
 * C группой "Cadaveria" Cadaveria
 
+## Публикации
+
+### 22.05.2001 reviews Черная ОПЕРА
+
+<P>Вот такого я от итальянцев не ожидал! Этот третий их полноформатник, и первый записанный ими за пределами Италии аж в самой многоуважаемой музыкально-нечестивой Швеции (Studio Underground), похоже, самый лучший в творчестве этой молодой даровитой команды. Определить точно жанр, в котором играет группа, я не мог ни на их первых двух релизах, не могу и теперь - пожалуй, это и в самом деле ОПЕРА (без оркестра!!!), а слово BLACK здесь, видимо, имеет в виду не black metal, а просто мрачную атмосферу, создаваемую музыкой и до мозга костей богохульно-нечестивыми текстами, ибо от BLACK здесь практически ничего нет, ни музыкально, ни вокально. Кстати, о вокале: такого замечательного низкого женского (и только женского!) вокала, похоже, и в самом деле ни у одной группы больше нет; по крайней мере, того интересного и экспериментального вокального извращения, что было на "Sacro Culto" (и от которого на этом альбоме музыканты к счастью отказались), где вокалистка Cadaveria не только пела на два ну просто жутко не женских голоса, а еще пыталась изобразить уйму прочих разных, кххммм..., шумов и эффектов, точно никому не повторить! Музыкально же все более похоже на смесь некоторой разновидности хард-рока (надо сказать, довольно тяжелого) с death-doom-ом с подчеркнутой и ярко выраженной ритмичной басовой секцией (давно не слышал так безупречно сыгранного и записанного баса!) и очень даже неплохими и приятными соло на заднем плане. Как ни смешно это звучит, но во всех отношениях "Black Opera..." мне почему-то больше всего напомнила небезызвестный хит "Фантом" со знаменитого "Ордена Сатаны" КОРРОЗИИ МЕТАЛЛА - по крайней мере манера игры баса чем-то очень похожа! Одним словом, также как и "Sacro Culto", эта "Black Opera..." (не просто набор треков, а логически законченное произведение: Черная Опера в шести актах!!!) просто обязательна для ознакомительного прослушивания любителям всех направлений металла ибо многим, как и мне, она может просто "запасть в душу", а еще многие многут поучится интересным басовым ходам, представленным на этом опусе. Ну и под занавес очень даже неплохой кавер "Bela Lugosi's dead" by Bauhaus (хотя, если говорить о каверах но на Tribute to IRON MAIDEN легендарные тринадцатиминутные "Rhymes of the Ancient Mariner" сыграны Opera IX так, что могут посоперничать с оригиналом!!!) В общем, альбом просто замечателен, и положительно выделяется не только на фоне волны слащавого пауэра (от Рапсодии до Центуриона) льющегося в последние годы с Аппеннинского полуострова, но и сам по себе. Эти итальянцы доказали, что в Италии могут играть, и играть очень даже неплохую музыку, а не только устраивать межклановые мафиозные разборки между семействами. Интересно как будет развиваться группа дальше - ибо каждый из трех ее альбомов более чем экспериментален. А пока это один из лучших релизов в 2000-м году - достойное завершение тысячелетия!</P>
+Автор: Alexey Pitirimov
+
+### 01.09.2001 news Зачем вы, девушки?
+
+<p> Друзья мои, я опечален… Несравненная Cadaveria больше не является вокалисткой Opera IX. На её место приглашен некий Madras, а заодно Flegias’a за ударной установкой заменил Taranis.</p>
+
+Автор: Odiumaniac
+
+### 09.10.2001 news Новая группа бывшей вокалистки Opera IX
+
+<p>Певица Cadaveria и барабанщик Flegias, покинувшие Opera IX, организовали новый проект, простенько названный Cadaveria. Ещё в апреле 2001 года разногласия творческого и личного плана в Опера IX сделали невозможной дальнейшую совместную работу. По этим причинам Cadaveria и Flegias ушли из группы. В то время как остальная часть команды предпочла замалчивать сей факт, Cadaveria и Flegias начали потихоньку работать над новым проектом и теперь, после нескольких месяцев инкубации, объявили о создании новой группы. В неё вошли Cadaveria (вокал), Frank Booth (гитара), Killer Bob (бас), Baron Harkonnen (клавиши) и Marcelo Santos (ударные). Группа Cadaveria сейчас сочиняет песни и ищет лейбл.</p>
+
+Автор: Morsus
+
+### 09.10.2001 news New project of former Opera IX vocalist
+
+<p>Former Opera IX vocalist Cadaveria and drummer Flegias have formed a brand new project entitled simply Cadaveria. In April 2001 there have been some artistic and personal incomprehensions inside Opera IX that annihilating every possibility to continue to create music together. For these reasons Cadaveria and Flegias decided to leave the band. While the rest of band preferred to keep the event secret, Cadaveria and Flegias started working on a new musical project and now, after some months of incubation, they are proud to announce the world a new band was founded. Comprised of Cadaveria (vocals), Frank Booth (guitar), Killer Bob (bass), Baron Harkonnen (keyboards), and Marcelo Santos (drums), Cadaveria is now working on compositions and is looking for a label.</p>
+
+Автор: Morsus
+
+### 19.10.2001 news Опера IX репетирует новый материал
+
+<p>Opera IX теперь снова на ногах и более сильна, чем прежде. Все участники группы в полном составе, включая новичков Madras'а и Taranis'а, проводят бессонные ночи в своей репетиционной студии в глухом лесу, внося последние штрихи в свой следующий альбом "Maleventum".</p>
+
+Автор: Morsus
+
+### 19.10.2001 news Opera IX is rehearses a new material
+
+<p>Opera IX is now on their glorious legs again and stronger than before. The band, including new members Madras and Taranis, is currently spending their nights in their "in a forest" (seriously) rehearsal room putting final touches to their next album "Maleventum".</p>
+
+Автор: Morsus
+
+### 19.02.2002 news Opera IX finish recording session of new album
+
+<p>Opera IX finish recording session of new album called "Maleventum". New Album out on half/end of March. Here you are the tracking list: MALEVENTUM, PRINCESS OF THE ANCIENT, UNEARTED ARCANA, IN THE DARK I FOUND THE REFLECTION OF THE HIDDEN MIRRORS, MUSCARIA, FORGOTTEN GODS, IN THE RAVEN'S EYE.</p>
+
+Автор: Vit Belov
+
+### 19.02.2002 news Opera IX назначили дату выхода нового альбома
+
+<p>Итальянцы Opera IX закончили запись нового альбомак, который выйдет в марте под названием "Maleventum". Уже известен трэк-лист сего творения: MALEVENTUM, PRINCESS OF THE ANCIENT, UNEARTED ARCANA, IN THE DARK I FOUND THE REFLECTION OF THE HIDDEN MIRRORS, MUSCARIA, FORGOTTEN GODS, IN THE RAVEN'S EYE.</p>
+
+Автор: Vit Belov
+
+### 19.11.2002 reviews Didn&#39;t they call it quits?
+
+<p>Holy hell, I thought these chaps are going to call it quits after Cadaveria left! But no, they weren't; moreover, it looks (and sounds) like OPERA IX came up with a CD much better than anything they've done previously. Surprising, isn't it? I suppose you're itching to find out who replaced miss Cadaveria? Whether it's a man or a woman? Well, it's a man. Once again… surprising, isn't it? It definitely is. And what is even more surprising, OPERA IX only gained by inviting Madras. He's not the best singer around when attempting to sing “clean”, however he's not bad at it as well. And man, listen to this guy when he shrieks! But enough with vocals. Speaking about music, I guess I won't be wrong asserting that diversity now seems to be OPERA IX's second name. “Maleventum” sounds much more variable than f.ex. “The Black Opera” and thus – this time UNsurprisingly – way more bewitching. It's also slightly sophisticated, and even if Ossian, Vlad, Taranis and Lunaris aren't yet ready to accompany Arjen Lucassen, they're more or less good musicians – at least, there's not much to cavil at here unless finding out who made a mistake here or there is a new hobby of yours. Listen and enjoy. Free your mind and let yourself be utterly devoured by the unique ambiences “Maleventum” breathes with.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 21.06.2004 news OPERA IX готовят новый альбом опять в новом составе
+
+<p>Anphisbena - так будет называться новый альбом OPERA IX. Группу вновь потрясли кадровые изменения и на этом альбоме впервые предстанут новый барабанщик Dalamar и новый вокалист M the Bard. Оба достойные музыканты, а M the Bard известен также своим участием в командах Skoll и The True Endless and A Forest. В июле группа отправится в студию.</p>
+Автор: Morsus
+
+### 21.06.2004 news News from OPERA IX
+
+<p>Anphisbena is the title given to the new OPERA IX album. Recordings will start by the of July. This will be the first album with new members Dalamar (drums) and M the Bard (vocals). The drummer is spoken to be a real war-machine, while the new OIX frontman is yet quite known in the underground for being the mainman of bands like Skoll, The True Endless and A Forest. 
+He fits perfectly the role enhancing the epic and black spirit of Opera IX.</p>
+Автор: Morsus
+
+### 27.07.2011 news OPERA IX на Agonia Records
+
+<P>Польский лэйбл <STRONG>Agonia Records</STRONG> продолжает набирать известные группы в свою "конюшню". На этот раз подписан контракт с итальянцами <STRONG>OPERA IX</STRONG>. Новый альбома группы "<STRONG>Strix Maledictae In Aeternum</STRONG>" выйдет в ноябре этого года. Пластинка была записана в <STRONG>Occultum</STRONG> studios, принадлежащей гитаристу итальянцев <STRONG>Ossian.</STRONG></P>
+<P>Обложка была нарисована <STRONG>Kris Verwimp</STRONG>. Ниже можно посмотреть "тизер" альбома.</P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/uUbgh0ZCHY4" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.11.2011 news OPERA IX в январе
+
+<P>Новый альбом <STRONG>OPERA IX</STRONG> <STRONG>"Strix Maledictae In Aeternum" </STRONG>выйдет 24 января на <STRONG>Agonia Records</STRONG>. Мастеринг пластинки прошёл в <STRONG>Necromorbus Studio. </STRONG>Обложку создал знаменитый <STRONG>Kris Verwimp</STRONG>.</P>
+<P><center><IMG height=475 src="/images/news_rus/2011.11/22146.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

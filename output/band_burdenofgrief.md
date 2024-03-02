@@ -50,6 +50,40 @@ fast melodic death metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.10.2001 reviews Темные следы мелодик-дэта
+
+<p>Новый диск немецких мелодик-дэстеров Burden Of Grief - On Darker Trails - оказался слабее предшественника под названием Haunting Requiems, вышедшего 2000 году. А жаль, прошлый альбом был очень неплох, и если бы новый диск получился бы лучше, группа попала бы в высшую лигу melodic death metal. В целом, On Darker Trails продолжает музыкальную линию, начатую на Haunting Requiems, но песни стали менее интересные, более простые. Звук, да и сама музыка звучит более брутально и тяжело нежели на прошлом альбоме, но лучше от этого не становится. Создается впечатление, что партии соло-гитары сыграны просто так, без особой работы над ними. На диске представленно 9 трэков на 40 минут, один из них - кавер-версия песни Master Of Puppets группы Metallica, почти на 10 минут. Своего материала очень мало. Master Of Puppets сделана не очень интересно, переиграна ноль-в-ноль, хотя если бы сыграть ее поэнергичнее, изменив немного партии ударных, кавер-версия получилась бы очень интересной. Несмотря на все минусы, этот диск может понравится любителям старого melodic death metal в духе At The Gates или Unanimated, тем более в свете почти полного отсутствия новых релизов в этом стиле. И будем надеятся, что в будущем Burden Of Grief будут лучше работать над новым материалом.</p>
+
+Автор: Vic Thor
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 01.07.2003 news В ожидании BURDEN OF GRIEF
+
+<p>В конце 2003 года на Massacre Records ожидается релиз нового альбома германской death thrash metal формации BURDEN OF GRIEF под названием "Fields Of Salvation". Продюсер альбома - Tommy Hansen (HELLOWEEN, PRETTY MAIDS).</p>
+
+Автор: Dimas
+
+### 17.01.2004 reviews Быстро, технично, разнообразно
+
+<P>Эта группа известна в первую очередь свом участием на<SPAN> <SPAN lang=EN-US><B>“Tribute to the Beast” (“Prowler”)</B> и<B> “Tribute to Four Horseman” (“Master Of Puppets”)</B>, </SPAN></SPAN>причём вторая песня есть на этом диске. Стиль команды представляет собой быстрый мелодичный death-thrash с очень хорошим гроулингом. Сама музыка вполне интересная, достаточно разноплановая. Очевидным плюсом, является то, что имеются разнообразные акустические вставки, гитарное соло в одной песне отличается от соло в другой.</P>
+<P>Всего на альбоме 9 композиций общей продолжительностью чуть меньше сорока минут. Самые удачные, на мой взгляд, песни собраны в конце диска:<B> “Frozen Pain”, “Under Burning Skies”</B> и уже упоминавшаяся <B>”Master of Puppets”.</B> Если вы фанат данного стиля, то диск вас точно не разочарует, а вполне может быть, что и очень сильно порадует, как меня.</P>
+Автор: Uneral
+
+### 27.11.2006 news BURDEN OF GRIEF звершили работу над новым альбомом
+
+<P>Немецкий&nbsp;death thrash metal&nbsp;акт <B>BURDEN OF GRIEF</B>&nbsp;завершил работу над своим четвертым полнометражным альбомом под названием&nbsp;"<STRONG>Death End Road</STRONG>", выход которого запланирован на март 2007 года.&nbsp;Он был записан в&nbsp;немецкой <B>Krachgarten Tonstudio</B>, а сведением в датской <B>Jailhouse Studios</B> занимался продюсер альбома <B>Tommy Hansen</B> (<B>HELLOWEEN</B>, <B>PRETTY MAIDS</B>, <B>HATESPHERE</B>). Окончательный трек-лист:<BR><BR><IMG height=300 alt="" hspace=10 src="/images/news_rus/2006.11/10973.jpg" width=300 align=left border=0>1. <B>Death End Road</B> (instrumental)<BR>2. <B>Vita Reducta</B><BR>3. <B>Swallow The Sun</B><BR>4. <B>The Game</B><BR>5. <B>Running Scared</B><BR>6. <B>The Killer In Me</B><BR>7. <B>Drown In Sorrow</B><BR>8. <B>Schizophrenic</B><BR>9. <B>Passion Of The Night</B><BR>10. <B>Road Of Visions</B><BR>11. <B>Smashed To Pieces '07</B> (bonus track)<BR>12. <B>Immense Infinity '07</B> (bonus track)<BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

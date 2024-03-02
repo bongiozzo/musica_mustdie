@@ -12,6 +12,9 @@ rap-rock/metal outfit, formed in Palo Alto, CA
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

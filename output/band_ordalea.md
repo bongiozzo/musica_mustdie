@@ -8,6 +8,9 @@ progressive/thrash/death from Moscow
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

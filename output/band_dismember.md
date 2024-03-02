@@ -220,6 +220,502 @@ Where No Ghost Is Holy
 
 * C группой "General Surgery" Matti K&#228;rki
 
+## Публикации
+
+### 19.03.1999 news 
+
+<p>Dismember готовы к записи нового альбома. Это будет работа, посвящённая десятилетию группы. Пластинка будет записана в Das Boot студии, а продюсером будет барабанщик группы Фред Эстби.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Новым басистом Dismember стал Шарли Д'Анджело (Arch Enemy, Witchery, Mercyful Fate). Группа записывает новый альбом, который выйдет осенью.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 reviews 
+
+<p>А вот и ещё один альбом обгоняющий время. Тоже вышедший у нас за месяц до его официального выхода. Альбом посвящен десятилетию существования группы. И ребята не оплошали, выпустив убойнейший суперальбом, короткий, но хитовый. Совершив некоторый круговорот, поэкспериментировав со своим звучанием, группа вернулась на круги своя. "Hate Campaign" выполнен в том же духе и с тем же колоритным звучанием, что было на "Like An Ever Flowing Stream". Те же очень низко и грязно настроенные гитары, чудовищные ударные и дикие басы. Скрежещущий и лязгающий звук проходит сквозь альбом и заставляет вспомнить события десятилетней давности. Тот же мелодизм, те же скорости. В общем, ностальгический шведский death-metal. Такого уже никто не играет, а зря...Советую группе и дальше продолжать в том же духе. Тем более, что такая музыка звучит вполне современно и радует слух.</p>
+
+Автор: Dimas
+
+### 13.01.2001 reviews Тяжелее, еще тяжелее?
+
+<p>Видимо, сочтя свой предшествующий диск 1997 года слишком попсовым, шведы Dismember вернулись к более ранней формуле своего творчества – быстро, быстрее, еще быстрее, с эпилептической скоростью…. Тяжелее, еще тяжелее… Чугуний отдыхает. Мелодии на этом альбоме строго дозированы – на предшествующем диске “Death Metal” они просто лились через край, что сделало это творение не только одним из лучших в дискографии Dismember, но и одним из лучших в дэс-метал вообще. Новый же альбом “Hate Campaign” – доказательство, что группа пороху не растратила, злобы хватит на целую дивизию головорезов, а адреналина на то, чтобы всю планету свести в могилу единым приступом инфаркта. Ни одного замедления, ни одного послабления. Бескомпромиссная работа. Так что классический дэс-метал жив в лице классических же представителей. Группа ни на шаг не выходит за рамки жанра – или ни на шаг не предает родные каноны, и все это не в ущерб качеству. Если вдруг вся музыка стала казаться вам жевательной резинкой и занудством, то Dismember – то, что доктор прописал. Рекомендую послушать “Hate Campaign” только хотя бы ради того, чтобы увидеть, что можно сделать с мелодией, добавив к ней виртуозность, тысячепроцентную самоотдачу и - злости, ярости…. Ну, чего хотите добавляйте, только адреналина побольше подмешивайте, побольше. И мелодия от этого только выигрывает. Просто прелесть, а не альбом.</p>
+
+Автор: Tornado
+
+### 07.02.2001 news Dismember + Hammerheart &#x3D; Co-operation!
+
+<p>Динозавры шведского Death Metal - DISMEMBER подписали контракт с Hammerheart Records. Новый альбом, по словам группы, ожидается в конце этого года.</p>
+
+Автор: Yermola
+
+### 07.02.2001 news Dismember + Hammerheart &#x3D; Co-operation!
+
+<p>The Swedish Death Metal-dinosaurs have signed with Hammerheart Records. Their new album should be out still this year.</p>
+
+Автор: Yermola
+
+### 25.03.2001 news ENTOMBED + DISMEMBER &#x3D; MURDER SQUAD....
+
+<p>Что будет если смешать немного ENTOMBED с DISMEMBER? Правильно, новая супер-группа: MURDER SQUAD. Андерграундная общественность уже трепещет в ожидании грядущего "UNSANE, INSANE AND MENTALLY DERANGED". Почитать о новой группе можно здесь http://pavementmusic.com , а послушать здесь: http://pavementmusic.com/Music/msquad1.html</p>
+
+Автор: Yermola
+
+### 25.03.2001 news ENTOMBED + DISMEMBER &#x3D; MURDER SQUAD....
+
+<p>ENTOMBED and DISMEMBER are two of the most well respected bands in the underground today. Each individual band has achieved success through sales of their vast catalog of titles. Now it's time to bring the two together in the form of MURDER SQUAD. Pre-promotion has already started with this highly anticipated new release with an MP3 giveaway. The underground is already churning in anticipation to help bring "UNSANE, INSANE AND MENTALLY DERANGED" instant success.<BR><BR>Visit http://pavementmusic.com to learn more. Check out some music samples at http://pavementmusic.com/Music/msquad1.html</p>
+
+Автор: Yermola
+
+### 06.06.2001 reviews Кампания ненависти
+
+<p>Как это ни странно, но складывается такое впечатление, что альбом, посвященный десятилетию группы, неспроста имеет название "Кампания Ненависти", в котором просто нельзя не увидеть подтекст: DISMEMBER, наконец, сделал очень правильный и решительный шаг, распрощавшись с до нельзя окоммерциолизовавшимся и в конец опопсевшим лейблом NUCLEAR BLAST. Причем, что самое интересное, на фоне просто глобального всемирного облегчения и опопсения Matti Karki и Co ни на миллиметр не отклонились от выбранного направления и издали очень даже качественный приятный и потрясный материал, в лучших традициях своей замечательной группы, и, как кажется со стороны, сделали это совершенно без усилий. Стойкость DISMEMBER-а меня всегда поражала и восхищала: как можно существовать добрый десяток лет под давлением такого коммерческого лейбла и ни на шаг не сдать своих позиций!!! Гитары с ослабленными струнами по прежнему издают все тот же жуткий лязгающий звук воистину смертельного и быстрого металла, как от колонны едущих по асфальту гусеничных тракторов, а во время прослушивания возникает полное ощущение того, что эти самые гусеницы подминают слушателя под себя, наматывая ошметки кожи на катки и размазывая измочаленные мышцы и кишки по колесам, а по окончании же альбома стоит большого труда отчистить себя от раздавивших все кости стальных трэков и то, только лишь для того, чтобы нажать на "повтор", чтобы еще и еще раз испытать это неповторимое ощущение, вызванное мощью и силой музыки. Одним словом, "Расчленители" хоть и не выдали ничего революционно нового, но и ни коим образом не посрамили своего имени, честно заработанного тяжким трудом, по крайней мере мне было нисколько не жалко довольно внушительной суммы отданной за всего лишь коротенькие полчаса.</p>
+
+Автор: Alexey Pitirimov
+
+### 24.10.2001 news DISMEMBER возвращаются!
+
+<p>Шведы DISMEMBER сейчас репетирует новый материал. Недавно они потеряли место для репетиций, но сейчас они снова в строю! Новый альбом скорее всего будет записан Фрэдом Эстби в Das Boot Studios. По звучанию группа останется верна своим корням, тем более что Ричард Кабеза теперь снова постоянный участник DISMEMBER.</p>
+
+Автор: Vic Thor
+
+### 24.10.2001 news DISMEMBER is back!
+
+<p>The swedish band DISMEMBER are in rehearsal again perfecting their new material. They had an unfortunate set back when they lost their long time rehearsal space recently but everything is once again on track. It's most likely that Fred will again produce the album and that Das Boot Studios will be used. Early signs indicate more of a return to the old school sound of the Death Metal album now that Richard is a permanent member of the band again.</p>
+
+Автор: Vic Thor
+
+### 03.01.2002 news DISMEMBER, SINISTER, Others To Blitz Europe During Summer...
+
+<p>Holland's SINISTER, Sweden's DISMEMBER, NECROPHOBIC, SATARIEL, Denmark's MERCENRARY and Norway's BLOOD RED THRONE will join forces in June for the Generation Armageddon Festival I European tour. The confirmed dates for the package are as follows:<BR><BR> Jun. 20 – Stockholm, SWE @ TBA<BR> Jun. 21 – Copenhagen, DEN @ TBA<BR> Jun. 22 – Berlin, GER @ TBA<BR> Jun. 23 – Leipzig, GER @ TBA<BR> Jun. 24 – Essen, GER @ TBA<BR> Jun. 25 – Stuttgart, GER @ TBA<BR> Jun. 26 – Milan, ITA @ TBA<BR> Jun. 27 – Strassbourg, FRA @ TBA<BR> Jun. 28 – Vosselaar, BEL @ TBA<BR> Jun. 29 – Hardenberg, NETH @ TBA<BR> Jun. 30 – Tilburg, NETH @ TBA<BR><BR> DISMEMBER, SINISTER & NECROPHOBIC only!<BR> Jul. 01 - Paris, FRA @ TBA<BR> Jul. 02 - Marseille, FRA @ TBA<BR> Jul. 03 – Barcelona, SPA @ TBA<BR> Jul. 04 – Lyon, FRA @ TBA<BR> Jul. 05 – Rotterdam, NETH @ TBA<BR> Jul. 06 – Graspop, BEL @ TBA<BR> Jul. 07 – GER @ With Full Force Festival <BR></p>
+
+Автор: Yermola
+
+### 12.05.2002 news Dismember пишут новые песни
+
+<p>Dismember заняты написанием новых песен для своего первого альбома на новом лейбле Hammerheart Records. Группа планирует пойти записываться в студию этим летом.</p>
+
+Автор: Morsus
+
+### 12.05.2002 news Dismember are writing new songs
+
+<p>Dismember are busy writing new songs for their debut album for Hammerheart Records. The band has planned to enter the studio during the summer to begin recording the album.</p>
+
+Автор: Morsus
+
+### 25.01.2003 news Более агрессивный, чем когда-либо
+
+<p>Шведские death металлисты из DISMEMBER заперлись в студии для записи своего нового альбома под названием "Where Ironcrosses Grow". Выпуск альбома запланирован в сентябре 2003 года на Hammerheart Records. Новый материал обещает быть более мрачным, менее мелодичным и более агрессивным, чем когда-либо.</p>
+
+Автор: Dimas
+
+### 31.10.2003 news DISMEMBER выпускают DVD
+
+<B><IMG height=300 alt="" hspace=0 src="/images/news_rus/2003.10/5341.gif" width=200 align="left" border=0>DISMEMBER</B> выпускают DVD '<B>Hate / Kill / Live'</B> 26 января 2004 года. На первый диск войдёт выступление группы в Стокгольме, а на второй - докусентальный фильм на 90 минут с полной историей группы. Новейший альбом группы "<B>Where Ironcrosses Grow"</B> выйдет на <B>KARMAGEDDON MEDIA</B> в январе<B>.</B>
+Автор: Vit Belov
+
+### 12.03.2004 reviews Динозавры стиля
+
+<DIV><I>Лучшая группа в шведском death-metal последних лет выпустила новый альбом. <B>DISMEMBER</B> останется лучшим, так как в своём стиле он чуть ли не единственный.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Динозавры&nbsp;death-metal мучаются, переходя с лэйбла на лэбл. На этот раз за релиз взялись голландцы из <B>KARMAGEDDON MEDIA</B>.&nbsp;Малый коммерческий успех предыдущих пластинок доказывает заметное падение интереса к стилю. На новом альбоме <B>DISMEMBER</B> остались верны себе. Легкоузнаваемое звучание,&nbsp;быстрые ритмичные песни и мелодичные соло. Ничего нового. Главным недостатком альбома следует&nbsp;считать его реализацию.&nbsp;<B>DISMEMBER</B> всегда звучали довольно грязно,&nbsp;а на новом альбоме <B>Fred Estby</B> (барабанщик)&nbsp;просто провалился. Гитара задвинута настолько далеко, что не вслушиваясь не поймёшь, чем гитарист занимается в данный момент. Его&nbsp;просто жалко, особенно, когда музыкант играет соло.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В остальном, обычная для <B>DISMEMBER</B> пластинка. В середине 90-х она стала бы хитом. Сейчас можно рекомендовать только фанатам коллектива.</DIV>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 01.06.2004 news DISMEMBER выступят в Прибалтике
+
+<P><B>DISMEMBER</B> проедутся с небольшим туром по Прибалтике. </P>
+<P>Jul. 15 – <B>Riga, LAT - Aura</B> <BR>Jul. 16 – <B>Vilnius, LIT -Mulen Ruzas</B> <BR>Jul. 17 - <B>Vana-Vigala, EST - Hard Rock Laager 2004</B><BR></P>
+Автор: Vit Belov
+
+### 07.01.2005 news DISMEMBER на Regain
+
+<P><STRONG>DISMEMBER</STRONG> на <STRONG>Regain</STRONG>. До этого группа выпустила один альбом на<STRONG> Karmageddon Media</STRONG> после ухода с <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.03.2005 news Вся классика DISMEMBER будет переиздана
+
+<P><STRONG>DISMEMBER </STRONG>готовят к переизданию на <STRONG>Regain Records</STRONG> в ремастированном варианте следующие альбомы:</P>
+<P><STRONG>Dismember "Dismembered, Last Blasphemies & Reborn in Blasphemy (complete demos)"<BR>Dismember "Pieces"<BR>Dismember "Indecent & Obscene"<BR>Dismember "Massive Killing Capacity"<BR>Dismember "Death Metal"<BR>Dismember "Hate Campaign"</STRONG></P>
+Автор: Vit Belov
+
+### 12.12.2005 news Новый альбом DISMEMBER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DISMEMBER</STRONG>, который выйдет на <STRONG>Regain</STRONG>, будет называться <STRONG>"The God That Never Was"</STRONG>. Барабанщик <STRONG>Fred Estby</STRONG>: "<EM>Мы попытались создать лучшее, что можем на данном этапе. На всем около 30 лет, и мы хотим доказать себе кое-что</EM>". Трэк-лист (порядок не точный):</FONT></P>
+<P>01. <B>The God That Never Was</B><BR>02. <B>Shadows of the Mutilated</B><BR>03. <B>Time Has Nothing</B><BR>04. <B>Autopsy</B><BR>05. <B>Never Forget, Never Forgive</B><BR>06. <B>Trail of the Dead</B><BR>07. <B>Phantoms (Of the Oath)</B><BR>08. <B>Into the Temple of Humiliation</B><BR>09. <B>Blood for Paradise</B><BR>10. <B>Feel the Darkness</B><BR>11. <B>Where No Ghost Is Holy</B></P>
+Автор: Vit Belov
+
+### 08.01.2006 news Артворк нового DISMEMBER
+
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, в скором будущем выходит новый альбом <STRONG>DISMEMBER</STRONG> "<STRONG>The God That Never Was". </STRONG>Группа выложила обложку будущей пластинки.</CENTER></FONT>
+<P></P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2006.01/9919.jpg" width=400 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 08.02.2006 news Inferno Metal Festival Norway 2006
+
+<P>С 13-го по 15-е апреля в столице Норвегии Осло пройдет <B>Inferno Metal Festival</B>. Свое согласие на участие дали такие команды как <B>Usurper, Emperor, Cathedral, Marduk, Bolt Thrower, Dismember, Carpathian Forest</B> и <B>Witchcraft</B>. Практически все билеты по интернету уже раскуплены! Попытать всё же счастья, а заодно узнать побольше информации о фестивале можно на сайте <A href="http://www.infernofestival.net/"><U>http://www.infernofestival.net/</U></A></P>
+Автор: Ixtiandr
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+### 19.09.2006 articles DISMEMBER в Москве: &quot;Шведский бульдозер&quot;.
+
+<P>В прошлую пятницу в рамках своего турне по России и странам СНГ в Москве в клубе «Релакс» выступили ещё одни легенды. На этот раз легенды шведского death-metal – DISMEMBER.</P>
+<P><IMG height=266 alt=MORTEM hspace=0 src="/images/articles_rus/2006.09/10735.jpg" width=250 align=right border=5>Начало концерта в 18-00 в будний день не располагало к прослушиванию разогревающих групп. А на разогреве было на что посмотреть. Три группы заслуживали внимания: SEDUCER’S EMBRACE, GRAVESIDE и MORTEM. Уже на входе я встретил гитариста «Седьюсеров» Алексей Дохова, который сообщил мне, что группа уже выступила. Послушать SEDUCER’S EMBRACE мне не удалось, зато я узнал, что запись нового альбома группы продолжается, но дата выхода пластинки опять задерживается, в связи со свадьбой второго гитариста коллектива Макса “Blindbard’a” и очередным пополнением в семье самого Seducer’a. Задержавшись, таким образом, на входе я не успел и на GRAVESIDE, чьё возрождение вызывало сдержанный интерес у публики. По отзывам очевидцев, группа выступала пока не так, как положено выступать легендам отечественного death-metal. А вот другие легенды российской сцены MORTEM порадовали без сомнений. Их зажигательный сэт довёл публику до нужного состояния. Особенно отмечу басиста коллектива, который играет в MORTEM по совместительству со своей основной группой SEDUCER’S EMBRACE. Подобная «свежая кровь» пошла на пользу обоим коллективам. На фоне заматеревших основных участников групп этот парень смотрится просто великолепно.</P>
+<P><IMG height=187 alt=DISMEMBER hspace=0 src="/images/articles_rus/2006.09/10736.jpg" width=250 align=left border=5>DISMEMBER не заставили себя ждать. Что меня поразило особенно, так это звук. Он не был не хорошим, не плохим, дело не в этом. Он был фирменным Dismember’овским. Такое низкое гудение гитар, как работа двигателя автомобиля. Грузового автомобиля. Молодые люди, которых я встречал в зале, жаловались на это. Говорили, что так, дескать, играть сейчас уже нельзя. Не знаю, я так просто получил огромное удовольствие. Жаль только барабаны выбивались из общей картины. Но проблемы со звучанием барабанов имели и MORTEM, и, смею предположить, все группы, выступавшие в «Релаксе» в последнее время. DISMEMBER сыграли практически все хиты, не забыв и самый спорный, но мелодичный «Massive Killing Capacity», и даже ранние альбомы. К сожалению, новейший релиз группы ещё не вышел в России, поэтому послушать его мне не удалось, но я думаю, публику в зале это особо и не волновало. Драйв, как говорится, был. Кстати, о публике. Несмотря на то, что DISMEMBER такая же старая и уважаемая группа, как и недавно приезжавшие OBITUARY, в зале было замечено гораздо больше любителей слэма, которые не жалели ни себя, ни соседей. Видимо, сыграли свою роль место проведения концерта и более низкая цена на билет.</P>
+<P>Следующим подобным death-metal концертом станет выступление словаков SANATORIUM в октябре. Приятно, что underground группы получили возможность проехаться по нашей стране с туром, ведь иначе выступить в Москве им было бы практически невозможно. Поблагодарим за это, в первую очередь, белорусское агентство Flaming Arts, которое и организовывает, не побоюсь этого слова, эти чудеса. В отношении SANATORIUM это слово будет особенно верным. </P>
+Автор: Vit Belov
+
+### 24.01.2007 reviews Приятный сюрприз, или Шведы не собираются сдавать позиции
+
+<P>Вот ведь как бывает: порой ждешь от группы интересного релиза, а он оказывается провальным. И наоборот: от группы уже ничего не ждешь, а она возьми да выдай продукт высшего качества. Именно второй вариант применим&nbsp;к случаю с новым, уже седьмым по счету, студийным полноформатником&nbsp;шведских дэтстеров Dismember "The God That Never Was". Я уже было поставил на группе крест, оставив в своей коллекции лишь дебютник "Like An Ever Flowing Stream". Однако новый альбом шведов сбивает с ног, как удар увесистым кирпичом по башке. На "The God That Never Was" им удалось то, чего так не хватало на их предыдущих творениях, а именно органично соединить брутальный материал, быстрый темп и практически "мейденовскую" мелодичность. Пожалуй, группа никогда не была в столь прекрасной форме, как сейчас! Наряду с последним альбомом соотечественников Dismember Unleashed, "The God That Never Was" оказался одним из лучших релизов смертельного метала 2006-го года. Так что шведы своих позиций сдавать пока не собираются. Новая пластинка Dismember интересна еще и тем, что на ней есть инструментал 'Phantoms (Of The Oath)', случай достаточно редкий для дэт-металических команд. И тем он больше примечателен, что просто отлично вписался в общую картину альбома. Отличная работа, приятный сюрприз!</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 23.06.2007 news ROCK PALACE OPEN-AIR-2007 в Пушкине
+
+<P>"Пушкинская Медиа Группа" и "DeeP Promotion" (ПЦ Д. Бурмана) представляют:</P>
+<P>"ROCK PALACE OPEN-AIR-2007"<BR>Единственный в России open-air тяжелой рок-культуры.</P>
+<P>Дата: 22 июля (воскресенье)<BR>Место: Пушкин, Запасной (Владимирский) дворец, ул. Садовая, дом 22<BR>Время: 13.00-23.00</P>
+<P>Участники:</P>
+<P>GRAVE (Швеция, Death metal) - впервые в России!<BR>DISMEMBER (Швеция, Death metal)<BR>SWALLOW THE SUN (Финляндия, death/doom metal) - впервые в России!<BR>FALL OF THE LEAFE (Финляндия, gothic metal)<BR>МАСТЕР (Москва, heavy metal)<BR>STARDOWN (nu metal)<BR>PERIMETER (deathcore)<BR>ТРОЛЛЬ ГНЕТ ЕЛЬ (пивной folk)<BR>XE-NONE (Киров, industrial dance metal)<BR>VERGELTUNG (cyber industrial metal)<BR>MORAY EEL (Москва, thrashcore)<BR>О.Х. (Пушкин, heavy/thrash)<BR>CATTLE EXTERMINATION (grindcore)<BR>FROSTED GLASS (thrash/progressive)<BR>DEVILISH DISTANCE (death metal, Самара)</P>
+<P>Билеты: <BR>560 р. - предварительная продажа.<BR>650 р. - на входе в день фестиваля.</P>
+<P>Билеты в магазинах (с 20 июня): Castle Rock, PreeDooRock, Дохлая Рыб-ба, Фенька, OJR, Фаршмаг, Титаники, Айсберги, Десятки, театральные кассы СПБ.</P>
+<P>Проезд на фестиваль из Санкт-Петербурга:<BR>Ровно 15 минут от железнодорожной станции «Купчино» или 30 минут от Витебского вокзала (м. «Пушкинская») на ЛЮБОЙ электричке (направление «от Санкт-Петербурга») до вокзала г. Пушкина. Далее, от вокзала 10 минут пешком вверх по Софийскому бульвару или на маршрутных такси № 370,376,381,382 (УТОЧНИТЬ У ВОДИТЕЛЯ НАПРАВЛЕНИЕ: К ЦЕНТРУ!) до Любезных ворот (стоимость проезда 10-13 рублей). <BR>Либо 20 минут от «м. Московская» на маршрутных такси №№ 545, 342, 347, 299 до Любезных ворот (посадочная остановка за памятником Ленину; стоимость проезда - 25 рублей). <BR>И самый долгий вариант (минут 40) – автобусом № 187 от «м. Московская» до Пушкинского вокзала.</P>
+Автор: Vit Belov
+
+### 30.10.2007 news Fred Estby покинул DISMEMBER
+
+<P>Как выяснилось, это уже не новость, но барабанщик <STRONG>Fred Estby</STRONG> покинул <STRONG>DISMEMBER</STRONG> по семейным обстоятельствамещё в апреле. Интересно, что, именно,<STRONG> Фред</STRONG> отвечал за звук на всех последних альбомах группы. Что нас ждёт дальше?</P>
+Автор: Vit Belov
+
+### 16.11.2007 news Новый альбом DISMEMBER
+
+<P>Новый альбом <STRONG>DISMEMBER "Dismember"</STRONG> выходит в марте 2008 года на<STRONG> Regain</STRONG>. Пластинка была записана в <STRONG>B.A.S. studios</STRONG> с продюсером <STRONG>Nico Elgstrand</STRONG> (<B>MURDER SQUAD</B>, <B>KRUX</B>, <B>MERCILESS</B>, <B>ENTOMBED</B>). Трэк-лист:</P>
+<P>01. <B>Death Conquers All</B><BR>02. <B>Europa Burns</B><BR>03. <B>Under A Bloodred Sky</B><BR>04. <B>The Hills Have Eyes</B><BR>05. <B>Legion</B><BR>06. <B>Tide Of Blood</B><BR>07. <B>Combat Fatigue</B><BR>08. <B>No Honor In Death</B><BR>09. <B>To End It All</B><BR>10. <B>Dark Depths</B><BR>11. <B>Black Sun</B></P>
+Автор: Vit Belov
+
+### 12.12.2007 news Новая песня DISMEMBER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лэйбл <STRONG>Regain Records</STRONG> открыл<STRONG> MySpace</STRONG> страничку <STRONG>DISMEMBER</STRONG>, где выложил новую песню группы&nbsp;<STRONG>"Europa Burns"</STRONG>, которая войдёт на новейший релиз группы "<STRONG>Dismember</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/dismemberpromo">http://www.myspace.com/dismemberpromo</A></FONT></P>
+Автор: Vit Belov
+
+### 29.01.2008 news Кавер DISMEMBER
+
+<P><IMG height=298 alt="" hspace=0 src="/images/news_rus/2008.01/12195.jpg" width=300 align=right border=5>18 февраля выходит новый альбом<STRONG> DISMEMBER</STRONG> "<STRONG>Dismember</STRONG>". Группа опубликовала обложку новой работы.</P>
+Автор: Vit Belov
+
+### 25.06.2008 reviews «Юбилейный» юбилейный альбом
+
+<P>Шведские мастера death-metal DISMEMBER подготовили в этом году свой десятый альбом. Группа серьёзно подошла к этому событию и выпустила действительно «юбилейный» юбилейный альбом.</P>
+<P>В прошлом году группу покинул её многолетний «капитан» барабанщик Fred Estby. Музыкант не только играл заметную роль в сочинении материала, но и в одиночку продюсировал альбомы DISMEMBER. Как мне казалось, именно он отвечал за фирменное бульдозерное звучание шведов. Порой он даже перегибал палку, и за «шумом моторов» мы не могли разобрать музыки, но «расчленители» никогда не отличались филигранной реализацией, их козырями были напор и почти «трэшовый» угар, которым подобный звук играл только на руку. К счастью, с музыкой группы ничего не произошло. Был Fred Estby? Ушёл Freed Estby? DISMEMBER остались верны себе. Начну издалека. Первым альбомом, который я услышал у группы, стал самый мелодичный и «попсовый» “Massive Killing Capacity”. Именно на этой работе шведы полностью отринули death-metal строгость, но добавили какой-то классический stoner-metal напор, постоянные соляки на гитаре и практически heavy-metal мелодизм. В то время многие экспериментировали в этом направлении. Достаточно вспомнить альбомы CARCASS “Swansong” и GOREFEST “Soul Survivor”. Стоит отметить, что после выпуска этих эпохальных альбомов, все эти группы, будто бы испугавшись собственной смелости, не удержались на выбранном пути. Кто-то развалился, а DISMEMBER, назвав уже следующий опус “Death Metal”, ринулись доказывать всем, что то было лишь минутное помрачение рассудка. И вот день юбилея настал. На своей новой работе DISMEMBER естественно вспомнили и окинули взглядом все свои девять предыдущих альбомов, но такой радости поклонникам “Massive Killing Capacity” группа не приносила ещё ни разу. Отыграв несколько мощнейших и грязнейших композиций, шведы уже на “Under a Blood Red Sky”, третью композицию, вставили такой проигрыш, за который и IRON MAIDEN было бы не стыдно. Дальше больше. Забойные куплеты и припевы сменяются мелодичными соло, которых мы не слышали от DISMEMBER уже давно. Главное же, это настроение. Мне показалось, что группа наконец-то перестала стыдиться той слабости 95-го года. Ну, а что мы? Мы, любители не только мясца, но и мелодичного и несколько «попсового» забоя будем только рады.</P>
+<P>Очень часто последнее время встречаются юбилейные альбомы различных заслуженных коллективов, время пришло, но редко случается так, чтобы группа, празднующая круглую дату, вобрала в новую пластинку всё то, за что её любят. DISMEMBER удалось скомбинировать, как забойные куски своей богатой истории, так и еретически мелодичные. За это мы скажем им спасибо, попутно заметив, что обозреваемый альбом чуть ли не лучший у группы за последние 10 лет.</P>
+Автор: Vit Belov
+
+### 16.09.2008 reviews Проигранный раунд
+
+<P>Последнее время борьба за первое место на пъедестале шведского смертельного метала идет, в основном, между тремя группами: Entombed, Unleashed и Dismember (Grave всё же лично я считаю ступенькой пониже). Entombed я давненько уже не слыхал, а вот две другие банды выдают очень сильный материал. Как вы понимаете, ждать каких-то музыкальных новшеств тут не приходится. Dismember выпустили свой восьмой студийный альбом, не заморачиваясь особо с его названием. "Dismember" одновременно оказался первым релизом, выпущенным без Фреда Эстби, который на протяжении многих лет был ударником в группе, ныне же он решил, что проводить всё время в турне ему более не подходит и пора заняться семьей. И что же можно сказать о новой работе нашей веселой шведской "расчленёнки"? Думается, что в этот раз Dismember немного подвело чувство меры. С одной стороны, они хотели звучать так, как на дебютнике 91-го года. С другой, они явно были польщены реакцией на свою предыдущую работу, "The God That Never Was" (2006), и немного "перебрали" с мелодичными проигрышами, а также переусердствовали с "плясовыми" песнями. Да и продакшен не сказать, чтобы на высоте. Не очень понравилось отсутствие пауз между песнями, это далеко не всегда здесь логично. А так, в общем и целом, никаких особых придирок к материалу нет. Очень многим понравился трек 'Under A Blood Red Sky', но там как раз тот самый перебор с проигрышами, о чем я писал выше. А вот мне очень приглянулась вещица 'No Honor In Death', медленная, очень тяжелая (даже для Dismember), очень злобная. Но таких классных композиций на альбоме маловато,&nbsp;поэтому всё же раунд 2008-го года остался за Unleashed.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 28.05.2009 news DISMEMBER выпускают DVD
+
+<P>Новый DVD <STRONG>DISMEMBER "Under Bloodred Skies"</STRONG> выйдет в июня на <STRONG>Regain</STRONG>. На два диска попадут два разных концерта: на фесте <STRONG>Party.San</STRONG> в прошлом году и концерт в Голландии.</P>
+Автор: Vit Belov
+
+### 04.06.2010 news Fred Estby возвращается
+
+<P><IMG height=167 alt="" hspace=0 src="/images/news_rus/2010.06/16779.jpg" width=450 align=right border=5>Бывший барабанщик<STRONG> DISMEMBER Fred Estby</STRONG> организовал новый проект <STRONG>NECRONAUT. </STRONG>Дебютная одноимённая пластинка проекта выходит в сентябре на <STRONG>Regain Records</STRONG>.<STRONG> Fred</STRONG> записал песни с разными вокалистами и гитаристами. Вот их список:</P>
+<P>Вокалисты:<BR><BR>* <B>Chris Reifert</B> (ABSCESS, AUTOPSY)<BR>* <B>Hellbutcher</B> (NIFELHEIM)<BR>* <B>Tompa Lindberg</B> (DISFEAR, LOCK UP)<BR>* <B>Nicke Andersson</B> (IMPERIAL STATE ELECTRIC)<BR><BR>Гитаристы:<BR><BR>* <B>Tyrant</B> (NIFELHEIM, DAGGER)<BR>* <B>Uffe Cederlund</B> (DISFEAR, ex-ENTOMBED, PRINCIPALS OF EXISTENCE)<BR>* <B>Robert Pehrsson</B> (DEATH BREATH, DUNDERT&#197;GET)<BR>* <B>Robert "Strings" Dahlqvist</B> (DUNDERT&#197;GET)<BR>* <B>David Blomqvist</B> (DISMEMBER, DAGGER)</P>
+<P>Песни с этой пластинки можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/necronaut666">http://www.myspace.com/necronaut666</A></P>
+<P>Музыкант заявил, что хочет выпустить музыку, достойную ранних <STRONG>VENOM </STRONG>и <STRONG>BATHORY</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.10.2011 news DISMEMBER развалились
+
+<P>Бас-гитарист&nbsp;<B>Tobias Cristiansson</B> (так же в <STRONG>GRAVE</STRONG>)&nbsp;шведских death metal ветеранов <B>DISMEMBER</B> сделал следующее заявление сайту <B>BLABBERMOUTH.NET</B>:</P>
+<P><EM>"После 23 лет, <B>DISMEMBER</B> решили разойтись. Мы хотим поблагодарить всех наших фэнов за поддержку." </EM></P>
+<P>23 июня 2011 года,&nbsp;<STRONG>DISMEMBER</STRONG> впервые, начиная с 2008 года, отыграли свой сет в рамках немецкого&nbsp;фестиваля <B>Death Feast Open Air</B>. Они были приглашены на фестиваль в качестве замены группы <B>GORGUTS</B>, которые отменили все свои выступления на летних фестивалях.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.10/21581.jpg" width=500 height=344><BR>
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Лучший альбом Dismember

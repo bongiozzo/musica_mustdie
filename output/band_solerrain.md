@@ -20,6 +20,45 @@ Melodic Death from St. Peterburg
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.2010 news Новый альбом SOLERRAIN
+
+<P><SPAN class=tit1>
+<CENTER>MUSICA PRODUCTION представляет</SPAN> 
+<P></P>
+<P><SPAN class=tit2>
+<CENTER>Лучшая отечественная группа в стиле знаменитых CHILDREN OF BODOM</SPAN> 
+<P></P>
+<P><SPAN class=tit3>
+<CENTER>Оглушительный дебют "Fighting The Illusions"</SPAN> 
+<P></P>
+<P><IMG height=407 alt="" hspace=0 src="/images/news_rus/2010.05/16669.jpg" width=400 align=right border=5>Запись: <STRONG>студия&nbsp;"Phantom Pain"</STRONG>, Санкт-Петербург. Сведение: <STRONG>Anssi Kippo</STRONG> в <STRONG>Astia Studio</STRONG> (<STRONG>CHILDREN OF BODOM</STRONG>). Melodic death-metal, живо напоминающий классические альбомы <STRONG>Alexi Laiho и Co</STRONG>, конца 90-х годов. Русскоязычныя лирика. Великолепный дизайн <STRONG>Арсения 'A-Ra' Мышцына</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Побеждая Иллюзии</STRONG><BR>2. <STRONG>Обещание</STRONG><BR>3. <STRONG>Верой и Правдой</STRONG><BR>4. <STRONG>Нечего Терять</STRONG><BR>5. <STRONG>Твой Ад</STRONG><BR>6. <STRONG>Вечный Обман<BR></STRONG>7. <STRONG>Восходящая Власть</STRONG><BR>8. <STRONG>Последний Свет</STRONG><BR>9. <STRONG>Проклятье</STRONG></P>
+<P>Больше информации: <A href="http://www.solerrain.ru/">http://www.solerrain.ru</A></P>
+<P>MySpace: <A href="http://www.myspace.com/solerrain">http://www.myspace.com/solerrain</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru">http://mp.musica.mustdie.ru</A></P>
+<P>MP3: <A href="/ru/band/solerrain/15979/#samples">http://musica.mustdie.ru/ru/band/solerrain/15979/#samples</A></P>
+<P>Диск можно приобрести в нашем магазине: <A href="/ru/shop/">http://musica.mustdie.ru/ru/shop/</A></P></CENTER></CENTER></CENTER>
+<P>Оптовым покупателям: <A href="http://www.fono.ru/">http://www.fono.ru</A></P>
+Автор: Vit Belov
+
+### 08.05.2010 news New album of SOLERRAIN
+
+<P><STRONG><IMG border=5 hspace=0 alt="" src="/images/news/2010.05/16681.jpg" width=400 align=right height=407>MUSICA Production</STRONG> have just released debut album of <STRONG>SOLERRAIN "Fighting The Illusions"</STRONG>. The CD was recorded&nbsp;at <STRONG>Phantom Lord Studio</STRONG> in Saint-Petersburg, Russia, mixed by <STRONG>Anssi Kippo</STRONG> at<STRONG> Astia Studio</STRONG> (<STRONG>CHILDREN OF BODOM</STRONG>) and mastered by <STRONG>Teemu Myyrylainen</STRONG> at <STRONG>SonicHouseTM</STRONG>. This band is already named as 'Russian CHILDREN OF BODOM' and they played material in a vein of classic albums of this band "Hatebreeder" and "Follow The Reaper". Track-list:</P>
+<P>1. <STRONG>Fighting The Illusions</STRONG><BR>2. <STRONG>The Promise<BR></STRONG>3. <STRONG>Of Faith And Truth</STRONG><BR>4. <STRONG>Nothing Left To Loose</STRONG><BR>5. <STRONG>Your Hell</STRONG><BR>6. <STRONG>The Eternal Lies</STRONG><BR>7. <STRONG>The Rising Power</STRONG><BR>8. <STRONG>The Only Light</STRONG><BR>9. <STRONG>The Curse</STRONG></P>
+<P>2 Songs form this album can be downloaded from <A href="/ru/band/solerrain/15979/#samples">http://musica.mustdie.ru/ru/band/solerrain/15979/#samples</A></P>
+<P>MySpace: <A href="http://www.myspace.com/solerrain">http://www.myspace.com/solerrain</A></P>
+<P>Label: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<p><center><form target="paypal" action="https://www.paypal.com/cgi-bin/webscr" method="post">
+<input type="hidden" name="cmd" value="_s-xclick">
+<input type="hidden" name="hosted_button_id" value="3BRFCMULXW4KL">
+<input type="image" src="https://www.paypalobjects.com/en_GB/i/btn/btn_cart_LG.gif" border="0" name="submit" alt="PayPal – The safer, easier way to pay online.">
+<img alt="" border="0" src="https://www.paypalobjects.com/ru_RU/i/scr/pixel.gif" width="1" height="1">
+</form>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

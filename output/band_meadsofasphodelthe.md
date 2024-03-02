@@ -79,6 +79,14 @@
 * C группой "Sigh" Mirai Kawashima
 * C группой "Blood From the Soul" Mirai Kawashima
 
+## Публикации
+
+### 15.12.2009 news THE MEADS OF ASPHODEL готовят новый альбом
+
+<P>Прогрессивная black-metal команда из Англии <STRONG>THE MEADS OF ASPHODEL</STRONG> готовит новую работу <STRONG>"The Murder Of Jesus The Jew". </STRONG>Партии для этой пластинки запишут <STRONG>Hoest</STRONG> (<B>TAAKE</B>)&nbsp;и <B>Vincent Crowley</B> (<B>ACHERON</B>). Вот некоторые названия песен: <STRONG>"From Eagle To Cross"</STRONG>, <B>"God Of Sand"</B>, <B>"Apostle Of The Uncircumcised"</B>, <B>"Jew Killer"</B>&nbsp;и <B>"The Man From Keiroth"</B>. Альбом увидит свет в середине 2010 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

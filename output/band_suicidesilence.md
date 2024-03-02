@@ -48,6 +48,114 @@ Mixed by Tue Madsen at Antfarm Studio, Denmark
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.2008 reviews Американцы слушают что-то другое
+
+<P>Поразительные вещи творятся в Америке. Давно минули те дни, когда мы здесь заслушивались дебютными альбомами TESTAMENT, OVERKILL или SLAYER. Новые имена с того берега океана уже давно не занимают таких мест в наших сердцах. Дебютный альбом SUICIDE SILENCE “The Cleansing” попал в чарт Billboard, что стало самым большим успехом лэйбла Century Media для дебютных альбомов. Как SUICIDE SILENCE там оказались, нам не известно. Но, в отличие от многих рейтингов в нашей стране, мы уверены, что “The Cleansing” заслужил этот успех своими продажами.</P>
+<P>Ядрёная туповатая смесь hardcore и death-metal поражает своей примитивностью. Группа взяла тяжёлое звучание от своих death-metal коллег и примитивность от hardcore команд. В итоге потерялась техничность звучания классики брутального американского «дэта» и разухабистотсть и качёвость hardcore музыки. Долбилово и вопли.</P>
+<P>Быть может, кто-то поспорит со мной. В этом случае мои оппоненты наверняка упомянут такую же хаотичную, но отнюдь не тупую шведскую группу MESHUGGAH. Возможно, любители MESHUGGAH смогут оценить “The Cleansing”, но мне всё-таки кажется, что сравнивать SUICIDE SILENCE с этими спорными классиками не корректно.</P>
+<P>Что ж, как и любой продукт современной американской музыкальной индустрии, SUICIDE SILENCE найдут в нашей стране пару сотен поклонников, но, согласитесь, это неадекватный результат для коллектива, попавшего в сотню в чарте Billboard.</P>
+Автор: Vit Belov
+
+### 05.02.2009 news Название нового SUICIDE SILENCE
+
+<P><STRONG>SUICIDE SILENCE</STRONG> войдут в студию на этой неделе с продюсером <STRONG>Machine</STRONG> (<B>LAMB OF GOD</B>). Альбом <STRONG>"No Time To Bleed"</STRONG> выйдет летом на <STRONG>Century Media.</STRONG></P>
+Автор: Vit Belov
+
+### 12.03.2009 news SUICIDE SILENCE не протекут
+
+<P>Американцы<STRONG> SUICIDE SILENCE</STRONG> закончили запись нового альбома "<STRONG>No Time To Bleed</STRONG>" с продюсером <STRONG>LAMB OF GOD Machine</STRONG>. Пластинка выйдет летом на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.04.2009 news Новая песян SUICIDE SILENCE
+
+<P><STRONG>SUICIDE SILENCE</STRONG> выложили песню "<STRONG>Lifted</STRONG>" на<STRONG> MySpace</STRONG>. Трэк попадёт на новый альбом группы <STRONG>"No Time To Bleed"</STRONG>, выходящий 30 июня на<STRONG> Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.06.2009 news SUICIDE SILENCE запустили игру
+
+<P>Американцы <STRONG>SUICIDE SILENCE</STRONG> выложили в сеть on-line игру для раскрутки нового альбома <STRONG>"No Time To Bleed". </STRONG>Попытаться спасти жертву от маньяка можно по этому адресу: <A href="http://www.notimetobleed.org/">http://www.notimetobleed.org/</A></P>
+Автор: Vit Belov
+
+### 10.07.2009 news SUICIDE SILENCE попали в чарты
+
+<P>Молодой коллектив<STRONG> SUICIDE SILENCE</STRONG> попал в чарты <STRONG>Billboard</STRONG> со своим новым альбомом "<STRONG>No Time To Bleed</STRONG>". 32 место с 14000 проданных альбомов.</P>
+Автор: Vit Belov
+
+### 28.10.2009 reviews Безумная группа с современным звуком
+
+<P>Второй альбом SUICIDE SILENCE продолжает традиции их успешного в США дебютника. Hardcore-риффы и полное отсутствие даже намёка на внятную музыкальную составляющую.</P>
+<P>Эта группа заставила меня задуматься. На этот раз темой для моих размышлений стала музыкальная наполненность современных американских metalcore-коллективов. Почему-то при общем названии стиля многие группы выступают в диаметрально противоположных направлениях. Думается, общим у этих групп является звучание, с помощью которого они излагают нам свою музыку. У SUICIDE SILENCE музыки нет. Они сконцентрировались на своём правильном ‘modern’ звучании, но что-то выдумывать дополнительно не стали. Просто медленно отыграли риффы и разбавили их какими-то ‘horror’-проигрышами. Получилось брутально, современно, ужасно и совершенно бессмысленно. Дослушать до конца вторую работу SUICIDE SILENCE смогут только большие любители современного тяжёлого американского звучания.</P>
+<P>Подобные группы встречаются и в других стилях тяжёлой музыки. Все мы помним нашествие heavy-power-metal, death-doom-metal или melodic death-metal коллективов, многие из которых просто представляли правильное звучание, но внятного наполнения сочинить были не в состоянии.</P>
+Автор: Vit Belov
+
+### 04.07.2010 news Новое видео SUICIDE SILENCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на песню deathcore маньяков <STRONG>SUICIDE SILENCE</STRONG> <STRONG>"Disengage" </STRONG>можно посмотреть ниже. Ролик был отснят в Лос-Анджелесе режиссёром <STRONG>Thomas Mignone</STRONG> (<B>MUDVAYNE</B>). Последний альбом группы <STRONG>"No Time To Bleed"</STRONG>&nbsp;вышел ровно год назад на <STRONG>Century Media</STRONG>. В нашей стране его изданием занимался<STRONG> Союз</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/fnxaZNUyFGI&hl=en_US&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/fnxaZNUyFGI&hl=en_US&fs=1" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.04.2011 news SUICIDE SILENCE назвали альбом
+
+<P>Новый альбом <STRONG>SUICIDE SILENCE</STRONG> получил название <STRONG>"The Black Crown". </STRONG>Пластинка должна выйти в июле на <STRONG>Century Media</STRONG>. Компакт-диск&nbsp;был записан вместе с продюсером <STRONG>Steve Evetts</STRONG> (<B>THE DILLINGER ESCAPE PLAN</B>, <B>EVERY TIME I DIE</B>, <B>HATEBREED</B>). Вот некоторые названия песен: <STRONG>"Human Violence"</STRONG>, <B>"Cancerous Skies"</B>&nbsp;и <B>"Fuck Everything"</B>.</P>
+<P><center><IMG height=302 src="/images/news_rus/2011.04/19100.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 09.07.2011 news Вокалист KORN подпел SUICIDE SILENCE
+
+<P>Новую песню деткорщиков <STRONG>SUICIDE SILENCE</STRONG> <STRONG>"Witness The Addiction", </STRONG>в записи которой принял участие вокалист <STRONG>KORN</STRONG> <STRONG>Jonathan Davis, </STRONG>можно послушать в клипе ниже. Трек взят с новейшего альбома <STRONG>"The Black Crown"</STRONG>, который выйдет 12 июля на <STRONG>Century Media</STRONG>.</P>
+<P>
+<CENTER>
+<DIV style="WIDTH: 520px; BACKGROUND-COLOR: #000000">
+<DIV style="PADDING-RIGHT: 4px; PADDING-LEFT: 4px; PADDING-BOTTOM: 4px; PADDING-TOP: 4px"><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:671309/cp~vid%3D671309%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A671309 width=512 height=288 type=application/x-shockwave-flash allowFullScreen="true" allowScriptAccess="always" base="." flashVars=""></EMBED> 
+<P style="PADDING-RIGHT: 4px; MARGIN-TOP: 4px; PADDING-LEFT: 4px; FONT-SIZE: 12px; MARGIN-BOTTOM: 0px; PADDING-BOTTOM: 4px; PADDING-TOP: 4px; FONT-FAMILY: Arial, Helvetica, sans-serif; BACKGROUND-COLOR: #ffffff; TEXT-ALIGN: left">Get More: <A href="http://www.mtv.com/ontv/" target=_blank>MTV Shows</A></P></DIV></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.07.2011 news SUICIDE SILENCE попали в 30
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские деткорщики <STRONG>SUICIDE SILENCE</STRONG> забрались на 28-ое место в чартах <STRONG>Billboard</STRONG> со своим новейшим альбомом <STRONG>"The Black Crown", </STRONG>который вышел на <STRONG>Century Media</STRONG>. В первую неделю продаж было реализовано 14400 экземпляров альбома. Это практически повторяет результат коллектива 2009 года и их предыдущего альбома "<STRONG>No Time To Bleed</STRONG>".</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 src="/images/news_rus/2011.07/20281.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 15.02.2012 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.02/23062.png" width=300 height=165>Фестиваль <STRONG>Brutal Assault</STRONG> добавил в свой состав участников ещё три группы и они&nbsp;помогут избавиться вам&nbsp;от лишних киллограмов, которые вы возможно набрали во время новогодних праздников. </P>
+<P>Это троица из Штатов и она заставит вас мошиться, как сумашедших: <STRONG>HATEBREED</STRONG>, <STRONG>SUICIDE SILENCE</STRONG> и <STRONG>MUNICIPAL WASTE</STRONG>.</P>
+Автор: Headcrusher
+
+### 14.04.2012 news Новый клип SUICIDE SILENCE
+
+<P>Новое видео <STRONG>SUICIDE SILENCE</STRONG> на песню "<STRONG>Slaves To Substance</STRONG>" можно посмотреть ниже. Трек взят с нового альбома группы "<STRONG>The Black Crown</STRONG>", который вышел на<STRONG> Century Media/Mazzar</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/k27N-jRofrM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 10.10.2012 news SUICIDE SILENCE: клип на трек &quot;Fuck Everything&quot;
+
+<P>Deathcore банда <STRONG>SUICIDE SILENCE</STRONG> поделилась с миром своим новым творением - клипом на трек<STRONG> "Fuck Everything"</STRONG>. За съёмку и последующее редактирование видеоряда ответственнен <STRONG>Jeremy Schott</STRONG> из конторы <STRONG>MentalSuplex Productions</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/j6Sos3q6ASo" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 07.10.2015 news SUICIDE SILENCE: &quot;Sacred Words&quot; EP
+
+<P><STRONG>SUICIDE SILENCE</STRONG>&nbsp;выпусят мини-альбом<STRONG> "Sacred Words"</STRONG> 23 ноября на лейбле <STRONG>Nuclear Blast</STRONG>. На&nbsp;него войдёт одноименная песня и ранее не публиковавшиеся треки. Три из них были записаны 9 августа 2015 г. на венгерском фестивале <STRONG>"RockPart"</STRONG>.<BR>Трек-лист:<BR>1. <STRONG>Sacred Words<BR></STRONG>2. <STRONG>Inherit The Crown</STRONG> (live)<BR>3. <STRONG>Cease To Exist</STRONG> (live)<BR>4. <STRONG>Sacred Words</STRONG> (live)<BR>5. <STRONG>Sacred Words</STRONG> (We Are Strong remix)<BR>6. <STRONG>Sacred Words</STRONG> (instrumental)</P>
+<P>Свой последний студийный альбом <STRONG>"You Can't Stop Me"</STRONG> калифорнийские дэткорщики&nbsp;выпустили в июле&nbsp;2014 г.</P>
+<P><CENTER>
+<IMG border=0 src="/images/news_rus/2015.10/28389.jpg" width=500 height=500></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 07.01.2017 news SUICIDE SILENCE опубликовали новый клип
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый ролик возвращающихся к жизни "дэткорщиков"<strong> SUICIDE SILENCE "Doris" </strong>можно посмотреть ниже. Трек войдёт в новый альбом группы "<strong>Suicide Silence</strong>", который выйдет 24 февраля на <strong>Nuclear Blast</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/KQgMTuyjATk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### SUICIDE SILENCE в Москве (17 июля 2012)

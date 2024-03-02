@@ -87,6 +87,16 @@ February 25th,1990.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -16,6 +16,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.09.2015 news Видео-клип от ESSENCE
+
+<P>Датские трешеры <STRONG>ESSENCE</STRONG> выпустили новый клип на песню&nbsp;“<STRONG>Untouchable</STRONG>”. Третий альбом коллектива "<STRONG>Prime</STRONG>" выйдет 2 октября на <STRONG>Spinefarm</STRONG>.</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/ypD3AY9WWwM" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

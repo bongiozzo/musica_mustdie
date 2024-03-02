@@ -85,6 +85,53 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.04.2002 news Новый альбом AGALLOCH
+
+<p>AGALLOCH завершили запись своего нового альбома. Группа умело справилась со сложными музыкальными вариациями разработкой которых занялась еще на предыдущем творении "Pale Folklore". Группа использует такие уникальные музыкальные инструменты, как тромбон и аккордеон, для расширения полета своих музыкальных мыслей и фантазий. Новый альбом "The Mantle" - это более семидесяти минут сложного и многомерного путешествия по пространствам dark folk experimental metal. Альбом выйдет на End Records в мае 2002 года. Трэк-лист:</p>
+<p> 1. A Celebration for the Death Of Man... <BR> 2. In The Shadow Of Our Pale Companion <BR> 3. Odal <BR> 4. I Am the Wooden Doors <BR> 5. The Lodge <BR> 6. You Were But a Ghost In My Arms <BR> 7. The Hawthorne Passage <BR> 8. ...And the Great Cold Death Of The Earth <BR> 9. A Desolation Song<BR></p>
+
+Автор: Dimas
+
+### 25.04.2002 news AGALLOCH new album
+
+<p>AGALLOCH new album "The Mantle" is now completed. Agalloch here have managed to further build on the layering themes found on "Pale Folklore," yet managing to assimilate and utilize unique instruments such as the accordion and trombone to broaden the scope of the musical journey found within. At almost 70 minutes this is an elaborate and multi-dimensional journey into dark folk experimental metal. Scheduled for a release in July. Tracklist:</p>
+<p> 1. A Celebration for the Death Of Man... <BR> 2. In The Shadow Of Our Pale Companion <BR> 3. Odal <BR> 4. I Am the Wooden Doors <BR> 5. The Lodge <BR> 6. You Were But a Ghost In My Arms <BR> 7. The Hawthorne Passage <BR> 8. ...And the Great Cold Death Of The Earth <BR> 9. A Desolation Song<BR></p>
+
+Автор: Dimas
+
+### 31.10.2002 reviews Hypnotizing...
+
+<p>Hypnotizing… If AGALLOCH's previous offering, the “Pale Folklore” CD, was excellent, this one doubtlessly is beyond excellence. Beyond any critics, beyond any definitions… It looks like this trio stepped on a path IN THE WOODS… once made open, although don't you look for any similarities. Not only with IN THE WOODS…, but with anyone else at all. AGALLOCH possess what many others don't even dare to dream of; personality. Well, whenever you're in need of a certain genre to reckon AGALLOCH to, you won't be wrong choosing ‘dark metal’. At least, “The Mantle” doesn't fit any of the existing categories (whilst ‘dark metal’ is more of a collective concept). This effort is pretty much long in terms of duration, however it would have been a pity if it lasted for at least ten minutes less. Well, it would have equally been a pity if even one single song was left aboard. When put together, “The Mantle” makes one think of it as of an indivisible musical canvas… like one long story which wouldn't be THAT impressive lacking any of the chapters which were originally supposed to be therein. Dismally dreamy, weirdly romantic, surprisingly tranquil and intelligently soothing… this is AGALLOCH A.D. 2002. Four songs out of nine appear to be instrumental, and that's not too much as some may think. Once again: “The Mantle” wouldn't be so incredibly artistic without them. This album transfers absolutely indescribable atmosphere only quite a few may ever force. “Clean” vocals are many, as many as there're acoustic guitars which are supplemented by woodchimes, contrabass, trombone and piano. What's most important, “The Mantle” doesn't sound incomprehensible… or even experimental… it sounds like… well, Music. Music listening to which grants you an unimaginable pleasure. Bonus for a stunning graphic appearance which, needless to say, fits music and atmosphere of “The Mantle” like a glove. In short, this review exactly is the one where I can't leave ‘true masterpiece’ left unsaid.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 19.01.2003 reviews Поклонение перед природой
+
+<p>Счастливейший человек, кто сумеет извлечь из окружающей среды все то, что она может дать человеку. Второй полнометражный альбом американской команды рушит все представления об идеальной музыке. Уникальная музыка группы - это комбинация холодного звука, мрачной печали и естественной красоты. Волшебный и эпический dark metal с мрачной концепцией и фольклорной эстетикой. Семидесятиминутное эпохальное творение, которое хочется переслушивать раз за разом и представлять окружающий мир в трансцендентальном, экзистенциальном и нигилистическом виде. В пиковом виде на альбоме выражены такие состояния, как депрессия, тоска, упадок сил и отчаяние от несбывшихся надежд. Прекрасное сочетание скриминга и тонкого чистого вокала, очень много акустической гитары, атмосферные клавиши, томные мелодии, жесткие комплексные риффы, богатый звук, прогрессивные нотки и очень качественная продукция. Инструментальная работа на диске занимает большую его часть. Очень мало вокализаций. Лирическая сторона альбома выражает через природные метафоры такие человеческие чувства, как горе, боль, мучение и страх. Они насквозь поражены скептицизмом. Все песни на альбоме обращают на себя внимание. Этот альбом можно слушать в любую погоду, при любом настроении. Он делает слушателя одновременно грустным и счастливым. Одна из самых красивых и инновационных работ за последние годы. В первую очередь порекомендовал бы это творение поклонникам творчества IN THE WOODS, KATATONIA и OPETH. Хотя, на мой взгляд, подобный материал будет интересен всем любителям оригинальной и красивой музыки.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 11.05.2006 news AGALLOCH установили дату релиза
+
+<P>На американском лейбле <STRONG>The End Records</STRONG> 8 августа 2006 года увидит свет новое творение группы <B>AGALLOCH </B>под названием&nbsp;<B>"Ashes against the Grain"</B>. Будет специальное издание альбома, информация о котором появится позже. Трек-лист:<BR>1. <B>Limbs</B><BR>2. <B>Falling Snow</B><BR>3. <B>This White Mountain On Which You Will Die</B><BR>4. <B>Fire Above, Ice Below</B> <BR>5. <B>Not Unlike The Waves</B> <BR>6. <B>Our Fortress Is Burning... I</B> <BR>7. <B>Our Fortress Is Burning... II - Bloodbirds</B> <BR>8. <B>Our Fortress Is Burning... III - The Grain</B><BR></P>
+Автор: Dimas
+
+### 05.01.2008 news AGALLOCH выложили новую песню
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AGALLOCH</STRONG> выложили новую песню <STRONG>'Sowilo Rune'</STRONG> на своей <STRONG>MySpace</STRONG> страничке. Эта композиция вошла на новый релиз коллектива "<STRONG>The White EP</STRONG>". Очередной миньон группы, на котором музыканты экспериментируют со своим звучанием.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/agalloch">http://www.myspace.com/agalloch</A></FONT></P>
+Автор: Vit Belov
+
+### 21.10.2008 reviews Бесконечное существование без радости
+
+<P>Хочется сразу предупредить, что третий полноформатник американцев Agalloch очень трудно однозначно классифицировать по стилистике. Возьмите практически любой из мрачных жанров, и вы найдете его на "Ashes Against The Grain": дарк-метал, дум, пост-рок, блэк, неофолк, пост-кор, прогрессив. При этом композиции наполнены весьма красивыми мелодиями. Кстати, их названия найти с первого раза не удастся, так как обычного трэк-листа нет, просто они выделены белым цветом в текстах в буклете. Оформление буклета и самого диска (черные буквы на черном фоне) сразу настраивает вас на нужный лад: ясно, что здесь не будет место веселым и отпимистичным песенкам. "Кататониевская" меланхолия, "анафемная" щемящая грусть, "неврозисные" гармонии и "опетовские" сумерки, вот какая атмосфера царит на этой пластинке. Многократно повторяющиеся гитарные проигрыши, амбиентные шумы, подчеркнуто торжественные ударные&nbsp;усиливают ощущение бесконечности существования без радости; то шепчущий, то каркающий, то эмоционально резкий вокал (которого в общем и целом немного) внушает вам,&nbsp;медленно, но верно ввинчиваясь в мозг, что солнечные дни бывают только в кино да книжках, а для реальной жизни&nbsp;значение&nbsp;имеет только один цвет, черный. Несмотря на среднюю продолжительность девяти композиций примерно по десять минут каждая, они не кажутся занудными или скучными. Музыка на "Ashes Against The Grain" не подойдет ни для фона, ни для вечеринки, да и вообще её лучше слушать в одиночестве: способствует мыслительному процессу, знаете ли. Главное, не особо налегать на виски, а то мало ли что полезет&nbsp;в голову... Короче говоря, альбом весьма своеобразный и предназначается для всех dark-freak'ов, а также любителей погрустить без компании. Фанатам придется несладко, ибо кроме слипкейса была издана версия&nbsp;deluxe wooden box (500 штук) и виниловая версия (1000 штук, из которых 400 clear orange edition, 400 black edition и 200 clear/orange splatter edition).&nbsp;В случае с&nbsp;виниловой версией примечательно еще и то, что она (во всех трех своих испостасях) содержит бонусный трэк 'Scars Of The Shattered Sky (Our Fortress Has Burned To The Ground)'.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

@@ -80,6 +80,14 @@ Curtis Beeson - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.12.2003 news Возвращение NASTY SAVAGE
+
+<P>Вскоре состоится релиз нового альбома <B>NASTY SAVAGE "Psycho Psycho"</B> на <B>Metal Blade Records</B> в Европе и на <B>Crook'd Records</B> в США.<BR>Альбом был записан группой в следующем составе: <B>Nasty Ronnie</B> - vocals, <B>Ben Meyer</B> - guitars, <B>David Austinm</B> - guitars, <B>Richard Bateman</B> - bass, <B>Curtis Beeson</B> - drums. Новое творение содержит двенадцать композиций, одна из которых является новой версией классической вещи <B>"Savage Desire"</B>. Также известно, что три трэка записаны вместе с <B>Chris Jericho</B>. Один из них именно <B>"Savage Desire"</B>. Релиз альбома состоится в марте 2004 года.</P>
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

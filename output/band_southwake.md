@@ -24,6 +24,9 @@ ex-NOR DREAM
 * C группой "Nordream" Ruben (guitar)
 * C группой "Ens Cogitans" Ruben (guitar)
 
+## Публикации
+
+
 ## Обсуждения
 
 

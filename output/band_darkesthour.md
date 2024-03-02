@@ -45,6 +45,53 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.02.2001 news Американские death-металлеры....
+
+<p>Американские death-металлеры DARKEST HOUR подписались на Victory Records. К концу лета ожидается выход нового альбома. Скоро на сайте VICTORYRECORDS.COM откроется страничка группы.</p>
+
+Автор: Yermola
+
+### 16.02.2001 news American death-metallers...
+
+<p>American death-metallers DARKEST HOUR signed with Victory Records. Band combines Swedish death metal sounds with new-school hardcore undertones. Look for more information, as well as the official Darkest Hour page here on VICTORYRECORDS.COM coming soon! The upcoming album will be on sale at August.</p>
+
+Автор: Yermola
+
+### 08.01.2011 news DARKEST HOUR: новый альбом &quot;The Human Romance&quot; в феврале
+
+<P>Американцы <B itxtvisited="1">DARKEST HOUR</B> завершили работу над своим седьмым студийным альбомом <B itxtvisited="1">"The Human Romance"</B>. Релиз диска намечен на 22 февраля 2011 на лейбле <B itxtvisited="1">eOne Music</B>. <STRONG>"The Human Romance"</STRONG> был записан на студии <STRONG>North Carolina</STRONG> с продюсером Питером Вичерсом (<STRONG>Peter Wichers</STRONG>), который, так же, является гитаристом <B itxtvisited="1">SOILWORK</B>. Абложку альбома можно посмотреть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.01/18102.jpg" width=400 height=400>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 13.08.2011 news DARKEST HOUR: клип на трек &quot;Love As A Weapon&quot;
+
+<P>Опубликован клип группы<STRONG> DARKEST HOUR</STRONG> на песню <STRONG>"Love As A Weapon"</STRONG>. Данный трек увидел свет на последнем альбоме группы <STRONG>"The Human Romance"</STRONG>.</P>
+<CENTER><IFRAME height=349 src="http://www.youtube.com/embed/l5wSexIGURs" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 20.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; анонсирует новых участников
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22713.png" width=300 height=165>Фестиваль&nbsp;&nbsp;<STRONG>BRUTAL ASSAULT</STRONG> опубликовал имена ещё нескольких участников, которые выступят на его сцене в 2012 году. Ими стали американцы<STRONG> DARKEST HOUR</STRONG>, бельгийские дет/грайндеры <STRONG>ABORTED</STRONG> и американские метал-панки <STRONG>TOXIC HOLOCAUST</STRONG>.</P>
+<P>А так же, ВИА <STRONG>SIX FEET UNDER</STRONG> под руководством Криса Барнса (<STRONG>Chris Barnes</STRONG>), легенды хардкора из Нью Йорка <STRONG>SICK OF IT ALL</STRONG> и титаны грайнкора из американского штата Вирджиния <STRONG>PIG DESTROYER</STRONG>.</P>
+Автор: Headcrusher
+
+### 24.01.2013 news Новый проект IRON REAGAN
+
+<P><STRONG>IRON REAGAN</STRONG> - новый thrashcore проект, в который входят 2 нынешних участника <STRONG>MUNICIPAL WASTE</STRONG> и 2 бывших музыканта&nbsp;<STRONG>DARKEST HOUR</STRONG>, выпускает свой дебютный альбом <STRONG>"Worse Than Dead"</STRONG> в начале марта.</P>
+<P>Альбом <STRONG>"Worse Than Dead"</STRONG> выйдет в формате CD на лейбле <STRONG>Magic Bullet </STRONG>(<A href="http://www.magicbulletrecords.com/">www.magicbulletrecords.com</A>), виниловая же версия увидет свет на <STRONG>A389 Recordings </STRONG>(<A href="http://www.a389records.com/">www.a389records.com</A>). Всего на диск вошло 19 треков.</P>
+<P>Обложка <STRONG>"Worse Than Dead" </STRONG>принадлежит перу&nbsp;хозяина&nbsp;<STRONG>Magic Bullet</STRONG>,<STRONG> </STRONG>Бренту Айстону&nbsp;(<STRONG>Brent Eyestone</STRONG>). Её можно увидеть ниже.</P>
+<P>В прошлом году <STRONG>IRON REAGAN</STRONG> уже порадовали&nbsp;фанатов трэшкора&nbsp;дебютной демо записью, которую можно послушать пройдя по ссылке: <A href="http://www.ironreagan.bandcamp.com/">www.ironreagan.bandcamp.com</A></P>
+<P>А совсем недавно, лейбл <STRONG>Clearview</STRONG> выпустил это пяти песенное демо на виниле, аж в трёх различных вариантах.&nbsp;Заказать его можно на сайте <A href="http://www.interpunk.com/">www.interpunk.com</A></P>
+<P>В состав <STRONG>IRON REAGON</STRONG> входят: <STRONG>Tony Foresta</STRONG> (<STRONG>MUNICIPAL WASTE</STRONG>) - вокал | <STRONG>Landphil Hall</STRONG> (<STRONG>MUNICIPAL WASTE</STRONG>, <STRONG>CANNABIS CORPSE</STRONG>) - гитара | Paul Burnette - Bass (ex-<STRONG>DARKEST HOUR</STRONG>) | Ryan Parrish - Drums (ex-<STRONG>DARKEST HOUR</STRONG>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25355.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

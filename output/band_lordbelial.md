@@ -167,6 +167,219 @@ originally released on the "Scythe of Death" MCD.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.1999 news 
+
+<p>Вышел давно записанный (август 1998 года) новый альбом группы Lord Belial "Unholy Crusade".</p>
+
+Автор: Vit Belov
+
+### 17.01.2001 news Гитарист Lord Belial покинул группу.
+
+<p>Гитарист Lord Belial Pepa af Vassago ушёл из группы по личным причинам. Он объясняет это нехваткой времени для концертов, репетиций и прочей деятельности с Lord Belial. Помимо этого, Pepa af Vassago решил направить всю свою энергию на новый проект Vassago. Lord Belial нашли ему замену в лице Plague (Mastema, B.E.A.S.T.).</p>
+
+Автор: Morsus
+
+### 17.01.2001 news Lord Belial guitarist has left the band.
+
+<p>Lord Belial guitarist Pepa af Vassago has left the band for personal reasons. He has not enough space for gigging, rehearsing, etc with Lord Belial. Besides Pepa af Vassago has decided to put all energy into the new project Vassago. His replacement is Plague (Mastema, B.E.A.S.T.).</p>
+
+Автор: Morsus
+
+### 29.10.2001 news Lord Belial завершили запись нового альбома
+
+<p>Новый альбом Lord Belial "Angelgrinder" будет содержать 8 песен общей продолжительностью около 40 минут. Запись проходила в гётеборгской студии Энди Ля Рока Los Angered. Альбом выйдет в марте 2002 года на лейбле No Fashion Records. А в апреле группа отправится в турне по Германии, Бельгии и Голландии совместно с Satanic Slaughter.</p>
+
+Автор: Morsus
+
+### 29.10.2001 news Lord Belial has finished the recording of the new album
+
+<p>New album will be entitled "Angelgrinder" and contain 8 songs (about 40 minutes). The recording was done at Los Angered Recordings, Gothenburg, Sweden. Engineered by Andy La Roque. The release will be at No Fashion Records in March 2002. In April 2002, Lord Belial will tour Germany, Belgium and Holland together with Satanic Slaughter.</p>
+
+Автор: Morsus
+
+### 25.01.2002 news Ангелоразрыватель или &quot;Бросьте жертву в пасть Баала...&quot;
+
+<p>Уточнена дата выхода альбома "Angelgrinder" шведских блэкстеров LORD BELIAL - он выйдет на No Fashion Records/House Of Kicks/MNW 2-го апреля....</p>
+
+Автор: Yermola
+
+### 25.01.2002 news LORD BELIAL To Release &quot;Angelgrinder&quot; In April ....
+
+<p>Swedish black metallers LORD BELIAL will issue their long-awaited Angelgrinder opus through No Fashion Records/House Of Kicks/MNW on April 2nd.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news Новая Сатанинская Резня
+
+<p>В апреле 2002 года выходит новейший альбом группы SATANIC SLAUGHTER "Banished The Underworld". Альбом выпускается Black Sun Records, оформление обложки - Niklas Sundin. За выходом альбома последует турне по Европе вместе с LORD BELIAL и CORPORATION 187. Трэк-лист нового альбома:</p>
+<P>Bringers Of Armageddon<BR>Banished The Underworld<BR>Dark Tewmptation<BR>Towards Damnations End<BR>Infernal<BR>Antichrist<BR>Apocalyptic War<BR>One Night In Hell<BR>Season Of Sorrow<BR>Ending In Misery</>
+
+Автор: Dimas
+
+### 27.02.2002 news SATANIC SLAUGHTER NEWS
+
+<p>SATANIC SLAUGHTER have finished the recording of the new album "Banished The Underworld". Tracklist:</p>
+<P> Bringers Of Armageddon<BR> Banished The Underworld <BR> Dark Tewmptation <BR> Towards Damnations End <BR> Infernal <BR> Antichrist <BR> Apocalyptic War <BR> One Night In Hell <BR> Season Of Sorrow <BR> Ending In Misery</>
+<P> Release date - april 2002. Cover art by Niklas Sundin. Label - Black Sun Records. After The release wiil be europen tour with LORD BELIAL & CORPORATION 187.</>
+
+Автор: Dimas
+
+### 17.11.2002 reviews LESS complex. LESS exciting. LESS imaginative... LESS musical.
+
+<p>LORD BELIAL unmasked? Well, they never wore corpsepaint. They used handles instead of real names of theirs, however. Now it’s over. And forth comes the surprise: three guys out of four comprising LORD BELIAL bear the same surname. Are they brothers or what? Nevermind. What really matters, they replaced their former drummer with this “third brother”… or is it just seems? I’ve drawn such a conclusion judging by how drumming on “Angelgrinder” was executed. Actually it wasn’t executed anyhow… For it sounds 1000% similar to some fucking drummachine. As far as I remember, LORD BELIAL never utilized such, for there was no need. Now it looks like there IS a need… Too bad. This is one of the reasons why “Angelgrinder” sounds million times less impressive than f.ex. “Unholy Crusade”. In fact, it sounds million times less impressive regarding almost each and every point. Yes, they use tapping (is it still black metal? ;-)), yes, they aren’t bad composers, yes, “Angelgrinder” nevertheless is more or less fine effort… However; LESS complex, LESS exciting, LESS imaginative, LESS atmospheric, LESS black metallish, and lastly – LESS musical.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 29.06.2003 news Замена ударника в LORD BELIAL
+
+<p>Шведская группа LORD BELIAL рассталась со своим ударником Michael Backelin. Замена ему - Daniel Moilanen из RUNEMAGICK. В данный момент, музыканты сочиняют материал к своему новому альбому, который планируется к выходу в начале 2004 года на Regain Records.</p>
+
+Автор: Dimas
+
+### 11.08.2003 news LORD BELIAL приступают к записи
+
+<p>Шведские блэкстеры LORD BELIAL приступают к записи своего нового альбома под названием "The Seal Of Belial". Запись пройдет в Los Angered Recording под руководством Nicklas Rudolfsson и Andy La Rocque. Выход альбома ожидается в самом начале 2004 года через Regain Records.</p>
+
+Автор: Dimas
+
+### 21.11.2003 news LORD BELIAL выпустили mini-CD
+
+<B><IMG height=150 alt="" hspace=0 src="/images/news_rus/2003.11/5513.jpg" width=150 align="right" border=0>LORD BELIAL</B> 18 ноября выпустили новый мини-альбом "<A href="http://www.lordbelial.com/iframe_discografi_scytheofdeath.htm"><I>SCYTHE OF DEATH</I></A>" лимитированным тиражом в 1666 копий. Из других новостей: в группу вернулся барабанщик <B>Micke Backelin</B>, а его замену <B>Daniel Moilanen</B> попросили со своего поста, на котором он пробыл около 4 месяцев.
+Автор: Vit Belov
+
+### 21.11.2003 news LORD BELIAL released mini-CD
+
+<IMG height=150 alt="" hspace=0 src="/images/news/2003.11/5514.jpg" width=150 align="right" border=0><B>LORD BELIAL</B> released&nbsp;Mini-CD "<A href="http://www.lordbelial.com/iframe_discografi_scytheofdeath.htm">SCYTHE OF DEATH</A>" on&nbsp;November 17. Limited to 1666 copies, order your copy now at <A target=_blank href="http://www.metalfortress.com/"><U>www.metalfortress.com</U></A>&nbsp;Other news: <B>Micke Backelin</B> has rejoined <B>Lord Belial</B> after a short break!. Last drummer <B>Daniel Moilanen</B> was in band for about 4 months
+Автор: Vit Belov
+
+### 07.04.2004 news LORD BELIAL выпускают новый альбом
+
+20 июня на <B>Regain Records</B> выйдет новый альбом <B>LORD BELIAL</B> <B>"The Seal Of Belial"</B>. Пластинка была записана вместе с <B>Nicklas Rudolfsson</B>&nbsp;и <B>Andy La Rocque</B> (<B>KING DIAMOND</B>)&nbsp;в <B>Los Angered Recording. </B>
+Автор: Vit Belov
+
+### 07.01.2005 news LORD BELIAL все еще работают над новым альбомом
+
+<DIV class=regular id=storyRepeater__ctl17_storyPanel>Шведы&nbsp;<B>LORD BELIAL</B> все еще&nbsp;трудятся над своим новым безымянным альбомом. Работа идет под руководством <B>Andy La Rocque</B> (<B>KING DIAMOND</B>) в его собственной студии <B>Los Angered Recording</B>. </DIV>
+Автор: Dimas
+
+### 21.10.2005 articles LORD BELIAL: &quot;Мы переиграли во многих отвратительным местах в Европе.&quot;
+
+<P><IMG height=600 alt="" hspace=0 src="/images/articles_rus/2005.10/9600.jpg" width=400 align=left border=5>Наш корреспондент в Германии Genia, впечатлившись выступлением LORD BELIAL на фестивале Party San, связалась с Micke Backelin из этой шведской black-metal группы и задала ему несколько вопросов.</P>
+<P>В: Привет, Micke! Расскажи что-нибудь о LORD BELIAL, люди здесь не очень хорошо вас знают. Скоро ли у Вас выходит новый альбом?</P>
+<P>О: Привет, Genia! LORD BELIAL – группа из Швеции. Мы играем среднескоростной black-death metal. Наша новая работа “Nocturnal Beast” выходит 21 ноября на Regain.</P>
+<P>В: Как случилось так, что вы назвали группу LORD BELIAL? Можешь что-нибудь рассказать о вашем составе, я вижу, у вас играют два брата?</P>
+<P>О: Мы хотели назвать группу просто BELIAL, но оказалось, что уже есть группа с подобным названием, поэтому пришлось добавить LORD в начале. Да, в нашей группе полно родственников. Я и наш вокалист-гитарист Thomas – братья, а басист Anders - наш кузен. </P>
+<P>В: Вы связаны с оккультизмом или сатанизмом? Что вы думаете об этих или других религиях?</P>
+<P>О: Нет. Мы не религиозная команда, даже, несмотря на то, что в своём творчестве мы некоторым образом касаемся сатанизма. Нор я не могу назвать себя сатанистом.</P>
+<P>В: Можете рассказать нам что-то о вашей лирике? Где вы черпаете вдохновение? Например, песня “Purify Sweden Song”. Это ваше мнение о шведских политиках?</P>
+<P>О: В настоящее время Thomas – автор всей нашей лирики. Поначалу я и Pepa писали немного текстов, но слова Thomas настолько лучше наших, что мы бросили этим заниматься&#61514; Лирика названной тобой песни не имеет никакого отношения к политике. LORD BELIAL никогда её не касался, и никогда не коснётся.</P>
+<P>В: Есть ли какие влияния в вашей музыке?</P>
+<P>О: Да. На нас влияет любая музыка, которую мы слушаем. Не только неколько групп.</P>
+<P>В: Что нам ждать на новом альбоме?</P>
+<P>О: Наш альбом выйдет 21 ноября. Вы можете качнуть две новых вещи на нашем официальном сайте – <A href="http://www.lordbelial.com/">http://www.lordbelial.com</A> Альбом будет длиться 43 минуты и на него войдёт 11 трэков.</P>
+<P>В: С какими группами вы больше всего выступали? Были ли среди них группы, которых вы не могли терпеть?</P>
+<P>О: Пока мы не выступали с подобными группами. Но, конечно же, мы встречались с некоторыми бандами, которые были нам не очень приятны. В особенности те коллективы, которые эксплуатируют «рок-стар» имидж. Не буду называть никаких имён, так как предпочитаю не обсуждать группы за их спинами.</P>
+<P>В: Где у Вас были лучшие выступления, а где худшие?</P>
+<P>О: Один из наших лучших гигов случился в маленьком городке Уддевалла в Швеции несколько лет назад. Также концерт в Париже во время нашего тура 1997 года вместе с DISMEMBER был очень неплох. Я не могу назвать какое-либо худшее место, потому что мы переиграли во многих отвратительных местах в Европе. Одна из худших сцен была где-то в Италии в 2002 году. Сцена была на 5 см выше уровня пола, никаких проводов, никаких микрофонов, бэкстэйдж – метровый стол и.т.п.</P>
+<P>В: Какие планы у группы на будущее?</P>
+<P>О: Как я уже говорил, у нас выходит новый альбом, и мы надеемся на то, что сможем поехать в тур в его поддержку. Также мы заняты строительством своей собственной маленькой студии, где начнём запись нового материала.</P>
+Автор: Genia
+
+### 21.10.2005 articles LORD BELIAL: &quot;We have been playing at so many really bad places around Europe&quot;
+
+<P><IMG height=600 alt="" hspace=0 src="/images/articles/2005.10/9601.jpg" width=400 align=left border=5>1. Hi Micke, tell me something about LORD BELIAL to the people out there that didnґt knew to much about your band - your new album is coming out soon?</P>
+<P>* Hello Genia! Lord Belial is a band from Sweden and we play mid tempo black/death metal with lots of melodies. We will release our 6th album "Nocturnal Beast" on Regain Records the 21st of November 2005.</P>
+<P>2. How did you come up to LORD BELIAL as the bandname? Can you tell us something about your current Line-Up, I see youґre two brothers playing together in the same band?</P>
+<P>* We wanted to call the band just BELIAL but as there was another band already with this name we added LORD in front of it. The line up is Thomas Backelin -vocals & guitars, Hjalmar Nielsen -lead guitars, Anders Backelin -bass, Micke Backelin -drums. Me and Thomas are brothers and Anders is our cousin.</P>
+<P>3. Are you into okkultism or satanism? What do you think about this and other religions?</P>
+<P>* Nope, we are not a religious band at all even though we can feel some connections to Satanism. But I don't call myself a Satanist.</P>
+<P>4. Can you tell me something about your lyrics, where do you find your Inspiration? How about the Purify Sweden Song? Is that your opinion towards Swedish politics?</P>
+<P>* Thomas is the author of all lyrics nowadays. In the beginning I and Pepa wrote some lyrics as well but Thomas writes so much better lyrics so that's his responsibility now :) The lyrics to "Purify Sweden" have nothing at all <BR>to do with politics. Lord Belial doesn't deal with politics at all, never has and never will.</P>
+<P>5.Are there some influences in your music?</P>
+<P>* Sure! I guess we get influenced by all music we ever listen to, not just a few bands.</P>
+<P>6.Youґll have a new studio album coming soon - what can we expect?</P>
+<P>* Yes it will be released November 21st. There is two complete songs for download at our website (<A href="http://www.lordbelial.com/">www.lordbelial.com</A>) and we have got really good response from people about those two songs. The album is about 43 minutes (11 songs including intro and outro).</P>
+<P>7.The band exists quite a long time now&nbsp; - how comes we can see you live on stage so few times? How do you think abot the Party San festival this year?</P>
+<P>* We play as often as we can. Party.San is absolutely the best arranged festival I have ever been at! Even<BR>though we got some problems with the bass drum microphones at the gig it was a pleasure being a part of the 2005 festival!</P>
+<P>8.With which band did you like touring most? Did you ever play gigs with bands you couldn't stand?</P>
+<P>* Actually we have not toured with any band we couldn't stand (yet) but of course we have met a few bands out on the road which we just couldn't stand. we really hate the rock star attitude that some bands got.. I will not mention any band names since I don't like to comment people/bands behind their backs.</P>
+<P>9.Will we see you Guys in Germany some more time?</P>
+<P>*Absolutely! But we don't have any gigs booked for now. Hopefully we will go for some smaller tours to support the release of Nocturnal Beast.</P>
+<P>10. Where was the best/worsest show, country?</P>
+<P>* One of the best gigs was at a small gig in Uddevalla, Sweden a few years ago. Also at Club Gibus in Paris, France at the European Tour with Dismember and Disfear in 1997 was really good. We have been playing at so many really bad places around Europe so I don't really know if there is just one place to call the worst. One of the worst stages was in Italy (in 2002 I think). the stage was like 5 cm high, no microphones, no cables.nothing. the "backstage" was at a table, 1 meter in front of the stage.etc</P>
+<P>11. What do you think about the European Metal Scene at the moment? How do you think about metal scene in Sweden? Is there anything special about it?</P>
+<P>*I don't really know, I was more into it some time ago when I run the webzine "Extreme Terror Zine" but now I don't.</P>
+<P>12. Are there some future plans for LORD BELIAL?</P>
+<P>*As I mentioned above, we really hope to be able to do some tours in support for the new album. We are building ourselves a small recording studio so we will soon start to write some new material for the future releases..</P>
+<P>The last words are yours!!</P>
+<P>*Download the new songs and drop a line in the guestbook at <A href="http://www.lordbelial.com/">www.lordbelial.com</A></P>
+Автор: Genia
+
+### 03.04.2006 news LORD BELIAL покинул вокалист-гитарист
+
+<P>Вокалист-гитарист <STRONG>Thomas Backelin</STRONG> ушёл из <STRONG>LORD BELIAL</STRONG> по личным мотивам. Замена пока не объявлена, но сообщается, что трасса, намеченная на апрель состоится, как и было задумано.</P>
+Автор: Vit Belov
+
+### 02.08.2006 news LORD BELIAL начинают новую запись
+
+<P><STRONG>LORD BELIAL</STRONG> сегодня входят в <STRONG>Los Angered Studio</STRONG> для записи нового альбома "<STRONG>Revelation</STRONG>".</P>
+Автор: Vit Belov
+
+### 06.09.2006 reviews Акустический black-metal?
+
+<P>Шведы LORD BELIAL никогда не хватали звёзд с неба. Выпустив несколько неплохих альбомов в 90-е, они продолжили свой кропотливый труд и в новом веке. Их пластинки никогда нельзя было назвать чем-то 100-процентно необходимым к приобретению, но в то же время поклонники black-metal не забывают причислять LORD BELIAL к группам достойным. Последняя работа коллектива, которая только что вышла в продажу, появилась в России почти с годовым опозданием. Думается, фанаты black-metal не слишком расстраивались по этому поводу.</P>
+<P>Уже в эти дни группа записывает свой следующий седьмой альбом. LB берут не чем-то оригинальным и суперкачественным, а стабильным и предсказуемым. Группа «трудяг» остаётся на поверхности лишь благодаря этим своим качествам. Вот и эта работа коллектива не поражает воображения. Мелодичный «странноакустический» black-metal. К сожалению, отсутствуют как запоминающиеся мелодии, так и драйв. Второе – более необходимо black-metal альбому, чем первое. Возможно, если бы альбом был записан не с Andy LaRock, а хотя бы с Tommy Tagtgren, мы бы и не обращали особого внимания на отсутствие мелодий. С другой стороны можно назвать это звучание особым знаком LORD BELIAL.</P>
+<P>Честно говоря, здесь субъективное мнение пересилило объективное. Поклонники экстремальной музыки, может, найдут что-либо интересное в новом альбоме LORD BELIAL. Мне же этого сделать не удалось.</P>
+Автор: Vit Belov
+
+### 19.09.2006 news LORD BELIAL остались без гитариста
+
+<P>Шведы&nbsp;<B>LORD BELIAL</B> расстались со своим гитаристом <B>Hjalmar Nielsen</B>. Вместо него, спустя три года, в группу вернулся ее оригинальный участник <STRONG>Niclas "Pepa" Andersson</STRONG>. В&nbsp;обновленном составе,<STRONG>&nbsp;LORD BELIAL</STRONG>&nbsp;выступят 28 октября на шведском фестивале <B>Linkoping Metal Massacre II</B>.<BR>Седьмой альбом&nbsp;коллектива под названием<STRONG>&nbsp;</STRONG>&nbsp;<STRONG>"Revelation" </STRONG>будет записан в студии&nbsp;<B>Los Angered</B> (собственная студия гитариста <B>KING DIAMOND</B> <B>Andy La Rocque</B>).&nbsp;Релиз запланирован на самый конец 2006 года через&nbsp;<B>Regain Records</B>.</P>
+Автор: Dimas
+
+### 25.02.2007 news Дата релиза LORD BELIAL
+
+<P>Новый альбом <STRONG>LORD BELIAL "Revelation"</STRONG> выходит 30 апреля на <STRONG>Regain</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.01.2008 news LORD BELIAL запишут новый альбом
+
+<P><STRONG>LORD BELIAL</STRONG> войдут в студию в марте вместе с продюсером <STRONG>Valle Adzic</STRONG> для записи новой пластинки <STRONG>"The Black Curse"</STRONG>. CD увидит свет летом.</P>
+Автор: Vit Belov
+
+### 08.05.2008 reviews Слишком медленно и мелодично
+
+<P>И вновь новый альбом шведов LORD BELIAL вышел в России с запозданием. “Revelation” – седьмой альбом коллектива – продолжает ранее взятый курс.</P>
+<P>Шведы всегда пытались угодить, как поклонникам black-metal, так и любителям мелодичного металла. Забавно, что эти попытки никогда не зачисляли LORD BELIAL в категорию «позёров», место в которой группа забронировала себе по многим очевидным причинам. Видимо, ничего особенного от LB фэны black-metal никогда не ожидали, поэтому и не разочаровывались. На “Revelation” представлен мелодичный среднетемповый black-metal, который оставит любителей стандартного материала в некотором недоумении. Иногда музыканты отправляются в такие мелодические дебри, что их музыке больше подходит название dark-metal, пускай, я за столько лет так и не понял, что этот термин означает. Рискну предположить, что седьмой альбом LORD BELIAL лучше шестого, но не намного.</P>
+<P>Только для фанатов этой группы, которые, наверное, уже появились. Людям же не знакомым с прошлым творчеством группы “Revelation” не подойдёт, из-за своей явной ущербности в плане стилеопределения. </P>
+Автор: Vit Belov
+
+### 24.05.2008 news LORD BELIAL переиздают демки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Regain Records</STRONG> в июне выпустят демки <STRONG>LORD BELIAL</STRONG> на одном CD под названием <STRONG>"Ancient Demons"</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 13.06.2008 news Новая песня LORD BELIAL
+
+<P><STRONG>LORD BELIAL</STRONG> выложили новую песню <STRONG>"Sworn"</STRONG> с нового альбома <STRONG>"The Black Curse"</STRONG>, выходящего в сентябре на <STRONG>Regain</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/lordbelialpromo">http://www.myspace.com/lordbelialpromo</A></P>
+Автор: Vit Belov
+
+### 14.01.2009 news LORD BELIAL приостановили свою деятельность
+
+<P><STRONG><IMG height=240 alt="" hspace=0 src="/images/news_rus/2009.01/13362.jpg" width=235 align=left border=5>LORD BELIAL</STRONG> распространили следующее заявление через свой сайт:</P>
+<P>"<EM>LORD BELIAL останавливают всякую активность в январе 2009 года. Все грядущие концерты отменены. Мы благодарим всех фэнов, организаторов концертов и лэйблы, с которыми работали в течение 17 лет существования. Основной причиной наших проблем стали проблемы со здоровьем нашего барабанщика Micke Backelin.&nbsp;Мы не считаем замену музыканта решением наших проблем в будущем и вернёмся только в&nbsp;случае хотя бы частичного восстановления слуха у Micke</EM>". &nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 13.07.2010 news LORD BELIAL вернулись
+
+<P>Мы не успели ещё соскучиться, а распавшиеся полтора года назад шведские блэкари<STRONG> LORD BELIAL</STRONG> уже вернулись в оригинальном составе. Группа занята сочиненияем нового материала, который увидит свет в скором будущем.</P>
+<P>Основной причной приостановки деятельности <STRONG>LORD BELIAL</STRONG> в январе прошлого года стали проблемы со слухом у барабанщика коллектива <STRONG>Micke Backelin.</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

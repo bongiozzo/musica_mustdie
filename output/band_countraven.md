@@ -92,6 +92,21 @@ Christer Pettersson - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.09.2005 news Переиздания COUNT RAVEN
+
+<P>Шведские мастера эпического doom metal <STRONG>COUNT RAVEN</STRONG> подготовили к переизданию на немецком лейбле <STRONG>Cyclone Empire</STRONG>&nbsp;ремастированные варианты всех своих четырех классических&nbsp;альбомов.&nbsp;Первые два -&nbsp;<B>"Storm Warning"</B>&nbsp;и <B>"Destruction of the Void"</B> — выйдут в свет 14 октября, оставшиеся два - <B>"High on Infinity"</B>&nbsp;и <B>"Messiah of Confusion"</B>&nbsp; - 11 ноября.&nbsp;Ремастеринг альбомов провел&nbsp;<B>Achim Kohler</B> (<B>ACCEPT</B>, <B>PSYCHOTIC WALTZ</B>, <B>STEEL PROPHET</B>, <B>VOIVOD</B>, <B>BRAINSTORM</B>, <B>PRIMAL FEAR</B>). Все издания будут содержать бонус-треки и специальные буклеты (а <STRONG>"Messiah Of Confusion"</STRONG> будет выпущен с новым артворком). </P>
+<P>Кроме того,&nbsp;в 2006 году планируется выпустить&nbsp;<STRONG>special box</STRONG>, куда войдут редкие и нереализованные вещи, клипы и фрагменты концертных выступлений. </P>
+<P>В настоящее время, музыканты работают над новым материалом к своему пятому альбому, выход которого ожидается в следующем году.</P>
+Автор: Dimas
+
+### 17.02.2006 news COUNT RAVEN поменяли двух музыкантов
+
+<P>Шведские думстеры <STRONG>COUNT RAVEN</STRONG> потеряли басиста <STRONG>Tommy "Wilbur" Eriksson </STRONG>и барабанщика <STRONG>Christer "Renfield" Petersson. </STRONG>Новыми музыкантами названы <STRONG>Fredrik Jansson</STRONG> (ex-<B>ABRAMIS BRAMA</B>) и <STRONG>Jens Bock</STRONG> (ex-<B>DOOMSDAY GOUVERNMENT</B>).</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

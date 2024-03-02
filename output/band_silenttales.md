@@ -28,6 +28,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.06.2007 news 
+
+<P><STRONG><IMG height=340 alt="" hspace=0 src="/images/news_rus/2007.06/11673.jpg" width=340 align=right border=5>Metalagen & Soyuz Music</STRONG> представляют альбом воронежской folk-metal группы<STRONG> SILENT TALES</STRONG></P>
+<P>Группа <STRONG>SILENT TALES</STRONG> была образована в июле 2003 году <STRONG>Стасом Чурсиным</STRONG>&nbsp; и <STRONG>Алексеем Скороваровым</STRONG>,&nbsp; ранее&nbsp; работавших вместе в составе воронежской&nbsp; doom-metal команды <STRONG>LITTLE DEAD BERTHA</STRONG> (в период с 1995 по 1999г.г.) и решивших реализовать накопившийся&nbsp; к этому времени собственный музыкальный материал. В результате записывается студийный инструментальный альбом "<STRONG>Lost In The Dreamland</STRONG>", в который вошло 13 композиций, выдержанных в духе Celtic-folk с элементами doom-metal. Осенью того же года начинается работа над новым материалом, в котором обязанности вокалиста берёт на себя Алексей, а в качестве "живого" барабанщика к&nbsp; группе присоединяется <STRONG>Дмитрий Пальцев</STRONG>. В марте 2005г. группа приступает к записи&nbsp; альбома "<STRONG>From The Hiding</STRONG>" на <STRONG>''Digital Mystery Studio''</STRONG>, окончательное сведение которого завершается&nbsp; в декабре 2005г. В данный момент группа работает над материалом для следующего альбома, а также планирует расширение состава.</P>
+<P>Состав <STRONG>SILENT TALES</STRONG>:<BR><STRONG>Алексей Скороваров</STRONG> - вокал, басс-гитара,<BR><STRONG>Стас Чурсин</STRONG> - гитара, клавишные,<BR><STRONG>Дмитрий Пальцев</STRONG> - ударные,<BR><STRONG>Вероника Беляева</STRONG> - скрипка (сессионный музыкант)</P>
+<P>Трек-лист альбома "<STRONG>From The Hiding</STRONG>"</P>
+<P>1. <STRONG>Infinity Calls</STRONG> - 1:12<BR>2. <STRONG>What The Thing Made From</STRONG> - 6:20<BR>3. <STRONG>From the Hiding</STRONG> - 4:36<BR>4. <STRONG>The Clay</STRONG> - 5:44<BR>5. <STRONG>Fire From Within</STRONG> - 5:09<BR>6.<STRONG> Breath of Autumn</STRONG> - 1:02<BR>7. <STRONG>When the Rain Start</STRONG> - 5:15<BR>8. <STRONG>Walley of the Seven Winds</STRONG> - 4:53<BR>9. <STRONG>Selena</STRONG> - 5:16<BR>10. <STRONG>Last Battle Song</STRONG> - 5:04<BR>11. <STRONG>Elvenwood</STRONG> - 2:01</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -168,6 +168,191 @@ Disc 2  (instrumental)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.06.2008 reviews Не «трендом» единым
+
+<P>Швейцарская группа ELUVEITIE на волне популярности pagan-metal скакнули с почившего лэйбла Fear Dark на Nuclear Blast. К счастью, мы имеем дело не просто с «трэндом», группа заслужила подобное изменение в своей судьбе. Несмотря на достаточную однотипность мелодий, налагаемую на музыку ELUVEITIE рамками стиля, группа выдаёт качественный и где-то даже разнообразный материал.</P>
+<P>Безусловно, им помогает то, что наряду с разнообразными скрипками, мандолинами, свистульками, группа не забывает играть и на тяжёлых гитарах. Музыкально их творчество ближе всего к материалу ENSIFERUM, пожалуй, только в death-metal ELUVEITIE меньше финского, но больше шведского. Так же, как я уже сообщил, швейцарцы широко используют народные инструменты. Всё это вместе и не даёт скучать искушённому слушателю, а уж любители фолка в тяжёлой музыке, вообще, должны быть в восторге.</P>
+<P>Хороший качественный альбом, заслуживающий всяческого внимания. Побольше бы таких групп, играющих металл…</P>
+Автор: Vit Belov
+
+### 15.01.2009 news Акустический альбом ELUVEITIE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Швейцарская фолк-группа <STRONG>ELUVEITIE</STRONG> подготовила акустический альбом "<STRONG>Evocation I: The Arcane Dominion</STRONG>". Пластинка выйдет 10 апреля на <STRONG>Nuclear Blast</STRONG> и будет содержать 15 фолковых композиций. В записи альбома также приняли участие <STRONG>Oliver S. Tyr</STRONG> (<STRONG>FAUN</STRONG>) и <STRONG>Alan A. Nemtheanga</STRONG> (<STRONG>PRIMORDIAL</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 22.01.2009 news Обложка нового ELUVEITIE
+
+<P>Мы уже сообщали, что 11 апреля на Nuclear Blast выходит акустические альбом<STRONG> ELUVEIT</STRONG>IE <STRONG>"Evocation I: The Arcane Dominion". </STRONG>Группа выложила обложку.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.01/13433.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.01.2009 news Трэк-лист акустического ELUVEITIE
+
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2009.01/13460.jpg" width=300 align=right border=5>11 апреля на <STRONG>Nuclear Blast</STRONG> выходит акустический альбом <STRONG>ELUVEITIE</STRONG> <STRONG>"Evocation I: The Arcane Dominion". </STRONG>Трэк-лист:</P>
+<P>01. <B>Sacrapos - At First Glance</B> (feat. A.A. Nemtheanga on voice)<BR>02. <B>Brictom</B><BR>03. <B>A Girls Oath</B><BR>04. <B>The Arcane Dominion</B> (feat. Oli S. Tyr on long-necked lute)<BR>05. <B>Within The Grove</B> (feat. Fredy Schnyder on hammered dulcimer, Mina The Fiddler on five-stringed viola)<BR>06. <B>The Cauldron Of Renascence</B><BR>07. <B>Nata</B> (feat. A.A. Nemtheanga on additional vocals)<BR>08. <B>Omnos</B><BR>09. <B>Carnutian Forest</B><BR>10. <B>Dessumiis Luge</B><BR>11. <B>Gobanno</B> (feat. Sarah Wauquiez, Fredy Schnyder on hammered dulcimer, Mina The Fiddler on five-stringed viola)<BR>12. <B>Voveso In Mori</B><BR>13. <B>Memento</B><BR>14. <B>Ne Regv Na</B><BR>15. <B>Sacrapos - The Disparaging Last Gaze</B></P>
+Автор: Vit Belov
+
+### 10.03.2009 news Новая песня ELUVEITIE
+
+<P><STRONG>ELUVEITIE </STRONG>выложили на своей<STRONG> MySpace</STRONG> страничке песню <STRONG>"Omnos" </STRONG>с акустического альбома <STRONG>"Evocation I: The Arcane Dominion"</STRONG>, выходящего 11 апреля на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/eluveitie">http://www.myspace.com/eluveitie</A></P>
+Автор: Vit Belov
+
+### 25.03.2009 news Новое видео ELUVEITIE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<STRONG>Omnos</STRONG>" - новое видео от<STRONG> ELUVEITIE</STRONG> доступно к просмотру ниже. Трэк попадёт на первый акустический альбом группы, выходящий в начале апреля на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=54593798">ELUVEITIE - Omnos</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=54593798,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=54593798,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.04.2009 news Слушайте новый альбом ELUVEITIE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый акустический альбом<STRONG> ELUVEITIE</STRONG> <STRONG>"Evocation I: The Arcane Dominion" </STRONG>можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/eluveitie">http://www.myspace.com/eluveitie</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пластинка выйдет 11 апреля.</FONT></P>
+Автор: Vit Belov
+
+### 06.05.2009 reviews Гаульский язык, дудка, скрипка и женский вокал
+
+<P>Швейцарская группа ELUVEITIE лишь недавно стала известна отечественному слушателю. Что там отечественный слушатель. Я думаю, она стала известна и европейскому слушателю совсем недавно, когда её альбом вышел на Nuclear Blast. Несмотря на столь короткий стаж и неокрепший авторитет, ELUVEITIE взялись за по-настоящему эпохальный труд. Группа собирается выпустить целую серию акустических фолковых альбомов с народными мелодиями и песнями на древнем «гаульском» языке. Страшное дело.</P>
+<P>Я это о чём? Да всё о том же. Видимо, Nuclear Blast решили поставить эксперимент и заиметь в своём ростере группу, играющую фолк. Но не танцевальный фолк, как у KORPIKLAANI, а всамделишный фолк с разными дудками и хурди-гурди да на гаульском языке. Печально, что нарождающиеся поклонники ELUVEITIE из металлистов сейчас останутся в стороне, зато настоящие «народники» обратят своё внимание. Но вернёмся к музыке, хотя вы должны понять, я тот самый нарождающийся поклонник группы из металлистов, и такой поворот событий меня впечатлить изначально не мог. Поэтому, забегая вперёд, и сообщу, что данный релиз остаётся без оценки. Открывает альбом дудочка и текст. В принципе дудочка здесь есть везде, и группа совмещает дудочку, женский вокал и акустическую гитару в различных дозах. Из этих коктейлей и состоит почти 75 процентов альбома. Иногда получаются инструменталы, иногда фолковые песни, а иногда даже какой-то фолк ориентированный поп-рок с женским вокалом. Есть и несколько атмосферных композиций с горловым пением или без оного. Как тут не вспомнить отечественные коллективы КАЛЕВАЛА или ВЕТЕР ВОДЫ. Меня смущало отсутствие «примоченной» гитары у этих коллективов, но теперь нам продемонстрировали естественность такого перехода. Фолк-металл это всё-таки не только металл, правда ведь?</P>
+<P>Есть у меня сомнения, что мы увидим вторую часть “Evocation” на Nuclear Blast. Верится с трудом, что этот альбом найдёт широкий отклик. Или хотя бы между двумя частями ELUVEITIE выпустят стандартный металлический боевик со скрипкой и дудкой, за который их, в общем-то, и полюбили.</P>
+Автор: Vit Belov
+
+### 14.10.2009 news ELUVEITIE закончили запись
+
+<P>Новый альбом <STRONG>ELUVEITIE</STRONG> <STRONG>"Everything Remains" </STRONG>выйдет в начале 2010 года. Лидер группы <STRONG>Chrigel Glanzmann </STRONG>занимается сведением вместе с продюсером <STRONG>Colin Richardson</STRONG> (<B>SLIPKNOT</B>, <B>MACHINE HEAD</B>, <B>KREATOR</B>, <B>BEHEMOTH</B>, <B>BULLET FOR MY VALENTINE</B>). Этот альбом станет продолжением акустической пластинки, вышедшей в этом году на <STRONG>Nuclear Blast</STRONG>.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.10/15271.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 06.11.2009 news Трэк-лист нового ELUVEITIE
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.11/15433.jpg" width=400 align=right border=5>ELUVEITIE </STRONG>опубликовали трэк-лист нового альбома <STRONG>"Everything Remains", </STRONG>который выйдет в начале следующего года на <STRONG>Nuclear Blast</STRONG>:</P>
+<P>01. <B itxtvisited="1">Otherworld</B><BR itxtvisited="1">02. <B itxtvisited="1">Everything Remains As It Never Was</B><BR itxtvisited="1">03. <B itxtvisited="1">Thousandfold</B><BR itxtvisited="1">04. <B itxtvisited="1">Nil</B><BR itxtvisited="1">05. <B itxtvisited="1">The Essence Of Ashes</B><BR itxtvisited="1">06. <B itxtvisited="1">Isara</B><BR itxtvisited="1">07. <B itxtvisited="1">Kingdom Come Undone</B><BR itxtvisited="1">08. <B itxtvisited="1">Quoth The Raven</B><BR itxtvisited="1">09. <B itxtvisited="1">(Do)minion</B><BR itxtvisited="1">10. <B itxtvisited="1">Setlon</B><BR itxtvisited="1">11. <B itxtvisited="1">Sempiternal Embers</B><BR itxtvisited="1">12. <B itxtvisited="1">Lugdunon</B><BR itxtvisited="1">13. <B itxtvisited="1">The Liminal Passage</B></P>
+Автор: Vit Belov
+
+### 24.12.2009 news Видеоклип ELUVEITIE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню с будущего альбома <STRONG>ELUVEITIE</STRONG> <STRONG>"Thousandfold" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><FONT face=Verdana color=#999999 size=1><BR><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=101305868">ELUVEITIE - Thousandfold</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=101305868,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=101305868,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT><BR><A href="http://profile.myspace.com/index.cfm?fuseaction=user.viewprofile&friendid=55881276">ELUVEITIE - the new wave of folk metal</A> | <A href="http://music.myspace.com/index.cfm?fuseaction=videos">MySpace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.02.2010 news Новый альбом ELUVEITIE на MySpace
+
+<P>19 февраля на <STRONG>Nuclear Blast</STRONG> выходит новый альбом<STRONG> ELUVEITIE</STRONG> <STRONG>"Everything Remains (As It Never Was)". </STRONG>Послушать диск можно на<STRONG> MySpace</STRONG> странице группы: <A href="http://www.myspace.com/eluveitie">http://www.myspace.com/eluveitie</A></P>
+<P>Сведением этой работы занимался знаменитый <STRONG>Colin Richardson</STRONG> (<B>SLIPKNOT</B>, <B>MACHINE HEAD</B>, <B>KREATOR</B>, <B>BEHEMOTH</B>, <B>BULLET FOR MY VALENTINE</B>). Трэк-лист:</P>
+<P>01. <B>Otherworld</B><BR>02. <B>Everything Remains As It Never Was</B><BR>03. <B>Thousandfold</B><BR>04. <B>Nil</B><BR>05. <B>The Essence Of Ashes</B><BR>06. <B>Isara</B><BR>07. <B>Kingdom Come Undone</B><BR>08. <B>Quoth The Raven</B><BR>09. <B>(Do)minion</B><BR>10. <B>Setlon</B><BR>11. <B>Sempiternal Embers</B><BR>12. <B>Lugdunon</B><BR>13. <B>The Liminal Passage</B></P>
+Автор: Vit Belov
+
+### 02.04.2010 reviews ELUVEITIE вернулись к нам
+
+<P>В прошлом году швейцарская группа ELUVEITIE выпустила акустический альбом “Evocation I – The Arcane Dominion”. На нём музыканты потворствовали любителям фолковой музыки, метала на той работе почти не было. На новой работе группа вернулась к тяжёлому звучанию. </P>
+<P>ELUVEITIE уже сейчас можно назвать одной из сильнейших folk-metal групп в Европе. Мелодичные запоминающиеся трэки с обилием фольклорных инструментов и несколькими типами вокалов понравятся любому почитателю этого стиля. На новой работе ELUVEITIE продолжили свою линию. Музыка стала ещё более разнообразна, а собственный материал коллектива ещё более «хитовым». На обозреваемой пластинке можно встретить и gothic-death-doom-metal, и melodic death-metal, и просто folk-rock. Скучать не придётся.</P>
+<P>Хорошая группа с хорошим альбомом. Что ещё нужно поклонникам метала, замешанного на фольклоре.</P>
+Автор: Vit Belov
+
+### 03.09.2011 news ELUVEITIE назвали альбом
+
+<P>Швейцарцы <STRONG>ELUVEITIE</STRONG> вошли в <STRONG>New Sound Studio </STRONG>с продюсером <STRONG>Tommy Vetterli</STRONG> (a.k.a. <B>Tommy T. Baron</B>; <B>CORONER</B>/ex-<B>KREATOR</B> гитарист) для записи нового альбома. Пластинка, получившая название <STRONG>"Helvetios", </STRONG>выйдет в начале следующего года. </P>
+<P>Предыдущая работа <STRONG>ELUVEITIE</STRONG> <STRONG>"Everything Remains (As It Never Was)" </STRONG>вышла в феврале прошлого года на <STRONG>Nuclear Blast</STRONG>.</P>
+<P><center><IMG height=316 src="/images/news_rus/2011.09/20886.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 22.09.2011 news WAVE GOTIK TREFFEN &#39;2011: фото-репортаж
+
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">
+<CENTER><IMG border=0 hspace=5 alt="" src="/images/news_rus/2011.09/21131.jpg" width=468 height=60></SPAN> 
+<P></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">С 10 по 13 июня в городе Лейпциге (Германия)&nbsp;прошёл очередной, двадцатый по счёту, фестиваль <STRONG>Wave Gotik Treffen</STRONG>. Являясь самым большим и<SPAN style="mso-spacerun: yes">&nbsp;</SPAN>знаменитым фестивалем<SPAN style="mso-spacerun: yes">&nbsp;"</SPAN>Тёмной<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>Сцены"<SPAN style="mso-spacerun: yes"> </SPAN>не только в Европе, но и в Мире,<SPAN style="mso-spacerun: yes"><STRONG> </STRONG></SPAN><STRONG>WGT</STRONG> ежегодно собирает от 15.000 до 25.000 зрителей. На фестивале выступило огромное количество разноплановых музыкальных коллективов. Вашему вниманию предлагается фото-репортаж с этого грандиозного мероприятия.</SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>DAS ICH</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>SWEET WILLIAM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>OSWALD HENKE</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/757">http://musica.mustdie.ru/ru/galleries/21/757</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>SARAH JEZEBEL DEVA</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CHTHONIC</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/758">http://musica.mustdie.ru/ru/galleries/21/758</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>GOTHMINISTER</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>UMBRA ET IMAGO</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DIORAMA</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/759">http://musica.mustdie.ru/ru/galleries/21/759</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>ANATHEMA</STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG>: <A href="/ru/galleries/21/760">http://musica.mustdie.ru/ru/galleries/21/760</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>EMPYRIUM</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>HELHEIM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DORNENREICH</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/762">http://musica.mustdie.ru/ru/galleries/21/762</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>LAKE OF TEARS</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TIAMAT</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/763">http://musica.mustdie.ru/ru/galleries/1/763</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>WAVES UNDER WATER</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TROBAR DE MORTE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>BEATI MORTUI</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>KILLING JOKE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>FIELDS OF NEPHILIM</STRONG></SPAN></STRONG>:</FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><A href="/ru/galleries/1/768">http://musica.mustdie.ru/ru/galleries/1/768</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>NORTHLAND</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>COPPELIUS</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CRIMFALL</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/769">http://musica.mustdie.ru/ru/galleries/1/769</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>MEDIAEVAL BAEBES</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>ELUVEITIE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>MISFITS</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/770">http://musica.mustdie.ru/ru/galleries/1/770</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN>: <A href="/ru/galleries/1/772">http://musica.mustdie.ru/ru/galleries/1/772</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN> <STRONG><SPAN style="BACKGROUND: #009966">(часть 2)</SPAN>:</STRONG> <A href="/ru/galleries/1/773">http://musica.mustdie.ru/ru/galleries/1/773</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0></FONT></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0>Автор всех фотографий - <STRONG>Юлия Бучацкая</STRONG> (кроме <STRONG>MISFITS</STRONG> - <STRONG>Альберт Бучацкий</STRONG>).</FONT></SPAN></P></CENTER>
+Автор: Tess
+
+### 03.12.2011 news Новый альбом ELUVEITIE
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.12/22249.jpg" width=475 align=right border=0>Новая работа швейцарцев<STRONG> ELUVEITIE</STRONG> <STRONG>"Helvetios" </STRONG>выйдет 10 февраля на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>New Sound Studio </STRONG>с продюсером <STRONG>Tommy Vetterli</STRONG> (a.k.a. <B>Tommy T. Baron</B>; <B>CORONER</B>/ex-<B>KREATOR</B> гитарист). Трек-лист:</P>
+<P>01. <B>Prologue</B><BR>02. <B>Helvetios</B><BR>03. <B>Luxtos</B><BR>04. <B>Home</B><BR>05. <B>Santonian Shores</B><BR>06. <B>Scorched Earth</B><BR>07. <B>Meet The Enemy</B><BR>08. <B>Neverland</B><BR>09. <B>A Rose For Epona</B><BR>10. <B>Havoc</B><BR>11. <B>The Uprising</B><BR>12. <B>Hope</B><BR>13. <B>The Siege</B><BR>14. <B>Alesia</B><BR>15. <B>Tullianum</B><BR>16. <B>Uxellodunon</B><BR>17. <B>Epilogue</B></P>
+Автор: Vit Belov
+
+### 23.01.2012 news Новый видео-клип ELUVEITIE
+
+<P>Швейцарцы<STRONG> ELUVEITIE</STRONG> выпускают новый альбом "<STRONG>Helvetios</STRONG>" в начале февраля на <STRONG>Nuclear Blast</STRONG>.&nbsp;Видео на песню "<STRONG>A Rose For Epona</STRONG>"&nbsp;можно посмотреть ниже. Сняли ролик поляки со студии <STRONG>Grupa13</STRONG>, которые ранее работали с <STRONG>BEHEMOTH</STRONG> и <STRONG>AMON AMARTH</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/_1lXdLus2WI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.02.2012 news Ещё одно видео ELUVEITIE
+
+<P>Второй ролик с нового альбома <STRONG>ELUVEITIE "Havoc"</STRONG> можно посмотреть ниже. Новый релиз швейцарцев "<STRONG>Helvetios</STRONG>" увидит свет в пятницу на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><iframe width="640" height="360" src="http://www.youtube.com/embed/XM1v-00C6AM?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.06.2012 news ELUVEITIE переиздадут ранний материал
+
+<P>17 августа выйдет двухдисковая компиляция раннего материала швейцарцев<STRONG> ELUVEITIE</STRONG> <STRONG>"The Early Years". </STRONG>На издание попадёт дебютный альбом коллектива <STRONG>"Spirit" </STRONG>и перезаписанный миниальбом <STRONG>"Ven"</STRONG>,&nbsp;работа над которым сейчас ведётся в <STRONG>Newsound </STRONG>Studio с продюсером <STRONG>Tommy Vetterli</STRONG> (<B itxtHarvested="0" itxtNodeId="37">CORONER</B>, <B itxtHarvested="0" itxtNodeId="36">KREATOR</B>).</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.06/24237.jpg" width=475 height=475></P>
+Автор: Vit Belov
+
+### 02.06.2014 news ELUVEITIE: подробности альбома &quot;Origins&quot;
+
+<P>Швейцарские фолк-металлисты <STRONG>ELUVEITIE</STRONG> выпускают новый студийный альбом. Диск получил название <STRONG>"Origins"</STRONG> и был записан в <STRONG>New Sound Studio</STRONG> с <STRONG>Tommy Vetterli</STRONG>&nbsp;(гитарист <STRONG>CORONER</STRONG>) в качестве продюсера.</P>
+<P>Обложку альбома выполнил <STRONG>Chrigel Glanzmann</STRONG>, вокалист группы.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Origins</STRONG> | 02. <STRONG>The Nameless</STRONG> | 03. <STRONG>From Darkness</STRONG> | 04. <STRONG>Celtos</STRONG> | 05. <STRONG>Virunus</STRONG> | 06. <STRONG>Nothing</STRONG> | 07. <STRONG>The Call Of The Mountains</STRONG> | 08. <STRONG>Sucellos</STRONG> | 09. <STRONG>Inception</STRONG> | 10. <STRONG>Vianna</STRONG> | 11. <STRONG>The Silver Sister</STRONG> | 12. <STRONG>King</STRONG> | 13. <STRONG>The Day Of Strife</STRONG> | 14. <STRONG>Ogmios</STRONG> | 15. <STRONG>Carry The Torch</STRONG> | 16. <STRONG>Eternity</STRONG></P>
+<P>Даты выхода&nbsp;<STRONG>"Origins"</STRONG>: 1 августа по всему миру, 4 августа - Англия, Шотландия и Ирландия, 5 августа - Северная Америка.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.06/27037.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 30.07.2014 news ELUVEITIE: клип &quot;The Call Of The Mountains&quot;
+
+<P align=right>Швейцарская группа <STRONG>ELUVEITIE</STRONG> презентовала видеоклип на трек <STRONG>"The Call Of The Mountains"</STRONG>. Песня вошла на альбом <STRONG>"Origins"</STRONG>, выход которого состоится 1 августа на <STRONG>Nuclear Blast</STRONG>.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/hb0Ot2wd-10?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+### 17.09.2016 news ELUVEITIE работают над второй частью акустического альбома
+
+<p>Швейцарцы<strong> ELUVEITIE</strong> работают над новым альбомом, которым станет долгожданная вторая часть акустического диска "<strong>Evocation II</strong>". Группа планирует начать запись в конце года и выпустить альбом следующей весной.</p><p>&nbsp;<center><img width="600" height="401" src="/images/news_rus/2016.09/29971.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 17.09.2016 news ELUVEITIE are working on new album
+
+<p>It has been rumoured for a long time and now it’s official: Folk metal superstars <strong>ELUVEITIE </strong>are working on their next album! And it will be the long expected second part of their acoustic-concept “<strong>EVOCATION</strong>”!</p><p>The band plans to start the studio recording at the end of the year and to release the album next spring!</p><p>Mastermind <strong>Chrigel Glanzmann</strong> comments:<br>“<em>We’re looking forward to “EVOCATION II”! The concept of the album sticks in our head already for years and it has matured a lot. Our second acoustic-album will continue the tradition of the first one but it will be even more rough, folk and mystic! It will be the celtic mythology in its pure culture, formed into music</em>!”</p><p>Guitar player <strong>Rafael Salzmann</strong> adds:<br>“<em>Exactly! We’re really motivated and creative as well. “EVOCATION II” will become definitely a folk-album filed in details!</em>”</p><p>&nbsp;<center><img width="600" height="401" src="/images/news_rus/2016.09/29971.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,21 @@ german power-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2000 reviews Немецкая самореализация
+
+<p>Немецкая самореализация. Альбом записан и выпущен на средства группы. Это сразу заметно. Если бы я ничего не знал об этой группе, то мое первое предположение было бы, что это демо-запись какой-то российской команды. Уровень тот же (да не обидьтесь на меня российские команды!). Очень много недочетов: плоховатый звук, глухие барабаны, недостаточно сильный и высокий вокал (прямо скажем, слабоватый), мало мелодичности (если учитывать то, что группа играет power). В общем, группе еще многому надо учиться и совершенствоваться, тем более, что задатки для этого есть. может тогда, глядишь на них и обратит внимание один из лэйблов.</p>
+
+Автор: Dimas
+
+### 19.07.2000 reviews German self-implementation
+
+<p>German self-implementation. The album is recorded and is exhausted on means of group. It at once notably. If I nothing knew about this group, my maiden supposition would be, what is it demo-record of any Russian command. A level same (yes do not take offence at me the Russian commands!). It is a lot of defects: badly a note, dead barrels, unsufficiently strong and high vocal (directly we shall say, not good), it is not enough melodic (if to allow for that, what group plays power). In common, the group still much should to study and be perfected, as the deposits for this purpose are. Can then, look at them and one of labels will pay attention.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

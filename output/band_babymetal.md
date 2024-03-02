@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2016 news BABYMETAL спели с Rob Halford
+
+<p><strong>BABYMETAL</strong> выступили с<strong> Rob Halford</strong> на церемонии вручения <strong>Journey's Alternative Press Music Awards</strong>. Группа спела дуэтом с легендарным певцом классические вещи<strong> JUDAS PRIEST</strong> "<strong>Breaking The Law</strong>" и "<strong>Painkiller</strong>".</p><p><center><iframe width="320" height="260" src="http://video.rollingstone.com/players/zW8usDB3-necgKPaX.html" frameborder="0" scrolling="auto"></iframe><p></p></center>
+Автор: Vit Belov
+
+### 20.07.2016 news Watch the Official Footage of BABYMETAL and Rob Halford Teaming Up to Perform Judas Priest&#39;s &quot;Painkiller&quot; and &quot;Breaking The Law&quot;
+
+<p>The summer's most anticipated metal mash up performance - featuring pop metal icons<strong> BABYMETAL</strong> and Judas Priest's legendary vocalist <strong>Rob Halford</strong> - took place last night at the third annual Journey's Alternative Press Music Awards, Fueled by Monster Energy. The performance, which featured BABYMETAL's <strong>SU-METAL</strong> and Halford's dueling vocals on <strong>Judas Priest</strong> classics "<strong>Painkiller</strong>" and "<strong>Breaking The Law</strong>", saw the meeting of the "Fox God" and the "Metal God".</p><p><center><iframe width="320" height="260" src="http://video.rollingstone.com/players/zW8usDB3-necgKPaX.html" frameborder="0" scrolling="auto"></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

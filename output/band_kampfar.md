@@ -120,6 +120,94 @@ The album cover itself is a 1981 oil painting by Polish artist Zdzisіaw Beksiс
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.04.2008 news KAMPFAR начали запись
+
+<P><STRONG>KAMPFAR </STRONG>вошли в студию для записи нового альбома для релиза в этом году на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.07.2008 news Новый альбом KAMPFAR
+
+<P><STRONG>KAMPFAR</STRONG> назвали свой новый альбом <STRONG>"Heimgang". </STRONG>Пластинка выйдет 26 сентября на <STRONG>Napalm Records</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Vantro</B><BR itxtvisited="1">02. <B itxtvisited="1">Inferno</B><BR itxtvisited="1">03. <B itxtvisited="1">Dodens Vee</B><BR itxtvisited="1">04. <B itxtvisited="1">Skogens Dyp</B><BR itxtvisited="1">05. <B itxtvisited="1">Antvort</B><BR itxtvisited="1">06. <B itxtvisited="1">Vansinn</B><BR itxtvisited="1">07. <B itxtvisited="1">Mareham</B><BR itxtvisited="1">08. <B itxtvisited="1">Feigdarvarsel</B><BR itxtvisited="1">09. <B itxtvisited="1">Vettekult</B><BR itxtvisited="1">10. <B itxtvisited="1">Vandring</B></P>
+<P>Ссылка на фрагменты песен: <A href="http://www.myspace.com/norsepagans">http://www.myspace.com/norsepagans</A></P>
+Автор: Vit Belov
+
+### 30.11.2008 reviews Мелодично, но не слишком
+
+<P>Норвежцы KAMPFAR были широко известны в узких кругах, как это часто бывает с хорошими UG группами, в конце прошлого века. Их два первых альбома порадовали любителей сурового pagan-black-metal. Затем группа ненадолго распалась и воссоединилась вновь в 2004 году под крылом Napalm Records. Этот знаменитый австрийский лэйбл активно собирает pagan группы со всего мира, но KAMPFAR выделяются на общем фоне их продукции. Несмотря на то, что с возрастом группа становится всё более мелодичной, она по-прежнему один из самых жёстких pagan проектов на Napalm Records.</P>
+<P>Музыка KAMPFAR - это атмосферный монотонный black-metal в лучших традициях норвежской школы с призрачными едва уловимыми мелодиями. Предыдущий альбом “Kvass” проникал в самое нутро и оставался там надолго. На протяжении нескольких минут в музыке могло ничего не происходить, но отойти от проигрывателя было решительно невозможно. Новое творение KAMPFAR “Heimgang” углубляет общие разногласия в музыке норвежцев. Звук по-прежнему остаётся очень black-metal, скриминг по-прежнему очень «скрим», но музыка становится всё более и более мелодичной. В итоге получился очень интересный симбиоз – бескомпромиссный чернушный материал и популярные «викингские» мелодии. Нет, конечно же, мелодии не настолько «ужасно танцевальны», как у коллег группы по стилю с Napalm Records, но ритмика и настроение слегка поменялись.</P>
+<P>Группа KAMPFAR – это событие на европейской металлической сцене. Возможно, в UG находится ещё много подобных коллективов, и их оттуда скоро вытащат какие-нибудь Napalm Records. Но пока из того, что выходит на лицензии, “Heimgang” выделяется. Великолепный образец настоящего black-metal с оригинальной viking-metal атмосферой без мелодических излишеств.</P>
+Автор: Vit Belov
+
+### 02.10.2009 news KAMPFAR подготовят альбом
+
+<P><STRONG>KAMPFAR</STRONG> начнут сочинять материал для нового альбома в 2010 году. Также в следующем году группа собирается попасть в студию для его записи.</P>
+Автор: Vit Belov
+
+### 21.10.2010 news KAMPFAR назвали альбом
+
+<P>Норвежские black-metal'исты<STRONG> KAMPFAR</STRONG> назвали свой новые альбом "<STRONG>Mare</STRONG>". Пластинка должна выйти 25 марта 2011 года на <STRONG>Napalm Records</STRONG>. Альбом был записан в знаменитой<STRONG> Abyss</STRONG> студии с продюсером <STRONG>Peter Tagtgren (HYPOCRISY, PAIN)</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.01.2011 news KAMPFAR: трек-лист и обложка альбома &quot;Mare&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18330.jpg" width=400 height=400>Норвежские блэкстеры <B itxtvisited="1">KAMPFAR</B> выпускают свой новый альбом, <B itxtvisited="1">"Mare"</B>, 25 марта в Европе и 5 апреля в С.Ш.А. на лейбле <B itxtvisited="1">Napalm</B>.&nbsp;Диск был записан на студии&nbsp;<B itxtvisited="1">Abyss</B> , с продюсером&nbsp;Питером Тагтгреном (<B itxtvisited="1">Peter T&#228;gtgren</B>, <B itxtvisited="1">HYPOCRISY</B>, <B itxtvisited="1">PAIN</B>).<BR itxtvisited="1"><BR itxtvisited="1">Трек-лист <STRONG>"Mare"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Mare</B><BR itxtvisited="1">02. <B itxtvisited="1">Ildstemmer</B><BR itxtvisited="1">03. <B itxtvisited="1">Huldreland</B><BR itxtvisited="1">04. <B itxtvisited="1">Bergtatt</B><BR itxtvisited="1">05. <B itxtvisited="1">Trolldomspakt</B><BR itxtvisited="1">06. <B itxtvisited="1">Volvevers</B><BR itxtvisited="1">07. <B itxtvisited="1">Blitzwitch</B><BR itxtvisited="1">08. <B itxtvisited="1">Nattgang</B><BR itxtvisited="1">09. <B itxtvisited="1">Altergang</B><BR itxtvisited="1">10. <B itxtvisited="1">Bergtatt (In D Major)</B> (bonus track)</P>
+Автор: Headcrusher
+
+### 17.06.2011 news Новинки от Mazzar Records
+
+<P><SPAN class=h1><IMG height=551 alt="" hspace=0 src="/images/news_rus/2011.06/19563.jpg" width=400 align=right border=0>MAZZAR & NAPALM RECORDS представляют июньские новинки!</SPAN></P>
+<P><SPAN class=tit2>LEAVES’EYES «Merdead» специальное Российское издание в формате DIGIPACK</SPAN>.<BR><A href="http://www.leaveseyes.com/">http://www.leaveseyes.com/</A><BR><A href="http://www.myspace.com/leaveseyespage">http://www.myspace.com/leaveseyespage</A></P>
+<P><SPAN class=tit2>ALESTORM «Back Through Time» специальное Российское издание в формате DIGIPACK</SPAN><BR><A href="http://www.myspace.com/alestorm">http://www.myspace.com/alestorm</A><BR><A href="http://www.alestorm.net/">http://www.alestorm.net/</A></P>
+<P><SPAN class=tit2>TYR «The Lay of Thrym» специальное Российское издание в формате DIGIPACK<BR></SPAN><A href="http://www.myspace.com/tyr1">http://www.myspace.com/tyr1</A></P>
+<P><SPAN class=tit2>KAMPFAR «Mare» <BR></SPAN><A href="http://www.kampfar.com/">http://www.kampfar.com/</A><BR><A href="http://www.myspace.com/norsepagans">http://www.myspace.com/norsepagans</A></P>
+<P>Дополнительная информация на издающем лейбле <A href="http://www.mazzar.ru/">http://www.mazzar.ru/</A> и в интернет магазине: <A href="http://www.metalcd.ru/">http://www.metalcd.ru/</A></P>
+Автор: Vit Belov
+
+### 07.07.2011 news Вокалист KAMPFAR напишет книгу
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист норвежских black-metal ветеранов <STRONG>KAMPFAR Dolk</STRONG> сообщил о своём намерении написать книгу о раннем этапе развития black-metal. В своём сообщении музыкант сказал, что видит заинтересованность публики в исторической ретроспективе всего происходившего на норвежской сцене и хочет рассказать всю историю.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Книга пока на самом первом этапе написания, но<STRONG> Dolk</STRONG> хочет пройти весь путь до её конечной реализации.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом<STRONG> KAMPFAR "Mare"</STRONG> вышел несколько недель назад в России на <STRONG>Mazzar Records</STRONG>. Приобрести его можно в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></FONT></P>
+<P><center><IMG height=484 src="/images/news_rus/2011.07/19953.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 10.11.2011 reviews Сермяжный black-metal
+
+<P>Норвежцы KAMPFAR являются заслуженными ветеранами европейской black-metal сцены. В 1994 году, когда группа начала свою деятельность, они были лишь одними из многих, но сейчас, когда на сцене остались только самые стойкие, KAMPFAR входят в число самых мастеровитых.</P>
+<P>“Mare”, вышедший в этом году, является пятым альбомом норвежцев. На заре своего существования в 90-х годах группа выпустила лишь две пластинки, но начиная с 2006 года, альбомы KAMPFAR выходят с завидной регулярностью. Видимо, музыканты научились использовать свою творческую энергию на благо, а не распыляться на посторонние увлечения и околомузыкальные дрязги. Альбомы получаются на редкость ровными и очень качественными. Музыка KAMPFAR представляет собой монолит, не разрываемый на различные ответвления и авангардные ходы. Кому-то подобный подход может показаться довольно скучным, но поклонники настоящего норвежского звучания наверняка останутся очень довольны. Нет в музыке группы и чрезвычайной доли агрессии и напористости, что тоже добавляет творчеству KAMPFAR своеобразности. Музыка коллектива обволакивает слушателя и погружает его в мизантропическо-экологический транс.</P>
+<P>Хороший альбом с большой долей мелодизма, но без лишней попсовости и, главное, пафосности. Сермяжный black-metal для всех поклонников стиля.</P>
+Автор: Vit Belov
+
+### 12.03.2012 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.03/23250.png" width=300 height=165>Ещё несколько участников добавилось в состав фестиваля <STRONG>"Brutal Assault"</STRONG> этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это - легендарная группа из Северной Каролины<STRONG> CORROSION OF CONFORMITY</STRONG>, канадские дет-металлисты <STRONG>GORGUTS</STRONG>, исландцы <STRONG>SOLSTAFIR</STRONG>, норвежские блэкари <FONT color=#ddd9d0><STRONG>KAMPFAR</STRONG> и поклонники древних египетских культов <STRONG>NILE</STRONG>.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также, одни из пионеров industrual <STRONG>GODFLESH</STRONG>, подтвердили своё участие в фестивале 2012 года.&nbsp;Проект образованный <STRONG>Джастином Бродриком</STRONG>&nbsp;(<FONT color=#ddd9d0>Justin Broadrick) и <STRONG>Джи Си Грином</STRONG> (G. C. Green)</FONT>&nbsp;в 1988 году и успешно просуществовал до 2002 года, после чего, была распущен, но снова вернулась к деятельности в 2010, выступив на нескольких фестивалях.</FONT></P>
+Автор: Headcrusher
+
+### 02.12.2015 news KAMPFAR: Новый альбом и видео
+
+<P>Норвежские ветераны чёрного метала <STRONG>KAMPFAR</STRONG> выпустили новый альбом "<STRONG>Profan</STRONG>" 13 ноября на <STRONG>Indie Recordings</STRONG>. Альбом записан в трёх студиях в апреле-мае текущего года и демонстрирует продолжение курса группы на атмосферный black-metal. Приобрести лицензионное издание альбома в "стекле" или в digi-pak можно в магазине Escapemind.ru: <A href="http://escapemind.ru/goods/KAMPFAR-Profan">http://escapemind.ru/goods/KAMPFAR-Profan</A></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип на песню с этого альбома "<STRONG>Daimon</STRONG>" можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/3deZDltV-Fc" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.07.2016 news Новый клип KAMPFAR
+
+<p>Новое видео норвежцев <strong>KAMPFAR</strong> на песню "<strong>Tornekratt</strong>" можно посмотреть ниже. Трек взят с последнего альбома коллектива <strong>"Profan</strong>", за который музыканты получили норвежскую премию "Грэмми".</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/49KDDs3ZDJs" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 06.07.2016 news New video of KAMPFAR
+
+<p>New video of the Norwegians <strong>KAMPFAR</strong>'s song "<strong>Tornekratt</strong>" can be viewed below. The track is taken from the latest album, "<strong>Profan</strong>", for which the band received a Norwegian Grammy award.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/49KDDs3ZDJs" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

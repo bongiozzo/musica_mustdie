@@ -77,6 +77,9 @@ west coast rap, latin, alternative & hardcore rap from L.A.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

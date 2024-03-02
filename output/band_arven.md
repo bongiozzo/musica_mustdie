@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2011 news Massacre Records нашли ещё девушек
+
+<P>Немецкий лэйбл<B> Massacre Records</B> объявил о подписании контракта с группой <B>ARVEN</B>, состоящей преимущественно из особ женского пола (фото ниже). Дебютный альбом коллектива "<B>Music Of Light</B>" выйдет 23 сентября. Обложку для работы нарисовал <B>Jan Yrlund (KORPIKLAANI, STATOVARIUS, SIRENIA)</B>. Послушать музыку и подробнее узнать об <B>ARVEN</B> можно на <B>MySpace</B>: <A href="http://www.myspace.com/arvenband">http://www.myspace.com/arvenband</A></P>
+<P><center><IMG height=251 src="/images/news_rus/2011.06/19785.jpg" width=320 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

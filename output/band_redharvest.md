@@ -120,6 +120,67 @@ Lars Sorensen - Synth, Samples
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.04.1999 news 
+
+<p>К группе Demonic присоединился бывший барабанщик Red Harvest Като Бекквольд. Ребята репетируют новый материал, который войдёт на второй альбом группы "Bizarre Ritual Killings", который обещает быть ещё более дэтметаллическим.</p>
+
+Автор: Vit Belov
+
+### 08.12.2000 news Новый альбом &quot;Red Harvest&quot;
+
+<p>Опубликован трек-лист нового (четвертого) альбома норвежцев "Red Harvest": 1. Omnipotent 2. Last Call 3. Absolut Dunkel:heit 4. Cold Dark Matter 5. Junk-O-Rama 6. Fix.Hammer.Fix 7. The Itching Scull 8. Death In Cyborg Era 9. Move Or Be Moved 10. Ad Noctum 11. Move Or Be Moved (preview) 12. Swallow The Sun 13. Pity The Bastard. Выход альбома запланирован на 23 января 2001.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news Sick Transit Gloria Mundi...
+
+<p>RED HARVEST’s forthcoming studio album, which is currently being recorded at Akkerhaugen Studios (i.e. EMPEROR, MYRKSKOG) with famed producer Neil Kernon (i.e. QUEENSRYCHE, NEVERMORE, CANNIBAL CORPSE), is tentatively titled Sick Transit Gloria Mundi, and it will contain 11 songs, including an as-yet-unspecified cover of cult industrialists GGFH. According to mainman Ketil Eggum (aka Selveste Turbonatas), the follow-up to last year's celebrated Cold Dark Matter effort is a "really heavy one" and an "industrial paranoiametal for Feinschmeckers. If you can imagine a mixture of VOIVOD, LAIBACH, NEUROSIS and GGFH you should get the point." Eggum also said producer Kernon was mildly amused about RED HARVEST's after-studio activities, which includes wiling away time at a local trailerpark called Beaver Island. A video for the track "AEP" has also been completed and will be included as a CD-ROM on the album. Among the titles that are set to appear on Sick Transit Gloria Mundi are the following: <BR><BR> 01. Weltschmertz <BR> 02. Godtech <BR> 03. CyberNaut <BR> 04. AEP <BR> 05. Humanoia <BR> 06. Sick Transit Gloria Mundi <BR> 07. Beyond The End<BR><BR> In other news, British musician Matt J. (Void) has remixed two tracks ("Fix, Hammer, Fix" and "Junk-O-Rama") from the aforementioned Cold Dark Matter opus for possible release via a limited edition version of Sick Transit Gloria Mundi or as a separate CD. Sick Transit Gloria Mundi is due out in spring 2002.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news Так проходит быстротекущая слава...
+
+<p>"RED HARVEST" завершили запись нового студийного творения "Sick Transit Gloria Mundi". Рекордная сессия проходила в Akkerhaugen Studios (где обычно пишутся EMPEROR, MYRKSKOG) с продюссером Neil Kernon (работал с QUEENSRYCHE, NEVERMORE, CANNIBAL CORPSE). По словам лидера группы Ketil Eggum (aka Selveste Turbonatas) альбом получился гораздо тяжелее прошлогоднего предшественника: "Представьте себе смесь VOIVOD, LAIBACH, NEUROSIS и GGFH... Вы получите представление... ". Так же на "Sick Transit Gloria Mundi" войдет видео к треку "AEP". Трек-лист: <BR><BR> 01. Weltschmertz <BR> 02. Godtech <BR> 03. CyberNaut <BR> 04. AEP <BR> 05. Humanoia <BR> 06. Sick Transit Gloria Mundi <BR> 07. Beyond The End<BR><BR> Кроме того британский музыкант Matt J. (Void) ремикшировал два трека ("Fix, Hammer, Fix" и "Junk-O-Rama") из альбома Cold Dark Matter для включения на limited edition версию диска. Дата выхода - весна 2002.</p>
+
+Автор: Yermola
+
+### 14.03.2002 news Red Harvest записали новый альбом
+
+<p>Red Harvest закончили запись альбома в Akkerhaugen Lydstudio при участии американского продюсера Нейла Кернона, работавшего с бессчётным количеством команд, включая Cannibal Corpse, Nevermore, Macabre, Yes, Queensryche и т.д. Альбом будет называться "Sick Transit Gloria Mundi" и содержать в числе прочих песни "Humanoia", "Godtech", "Cybernaut", "Weltsmerte", "A.E.P" и др. Дата выхода альбома на Nocturnal Art Productions - 15 апреля.</p>
+
+Автор: Morsus
+
+### 14.03.2002 news New album of Red Harvest
+
+<p>Red Harvest has finished the recording of their new album at Akkerhaugen Lydstudio. The band were joined by American producer Neil Kernon (who among countless of others have worked with bands such as Cannibal Corpse, Nevermore, Macabre, Yes, Queensryche, etc). The album will be entitled "Sick Transit Gloria Mundi", and feature tracks as "Humanoia", "Godtech", "Cybernaut", "Weltsmerte", "A.E.P."etc. Release date on the album is April 15.</p>
+
+Автор: Morsus
+
+### 18.01.2005 news Номинанты норвежской Alarm Awards
+
+<P>Определились номинанты в категории "<STRONG>Metal</STRONG>" норвежской премии <B>Alarm Awards</B>, вручение которой состоится в Осло 5 февраля. Это оказались группы <B>SUSPERIA,</B>&nbsp;<B>MAYHEM</B>, <B>ENSLAVED</B>, <B>RED HARVEST</B>&nbsp;и <B>KHOLD</B>. Сделать свой выбор можно по <A href="http://www.alarmweb.org/2005/nyheter/index-05metal.html">этому</A> адресу. Пока лидируют музыканты <STRONG>ENSLAVED</STRONG>.</P>
+Автор: Dimas
+
+### 14.11.2006 news Новый альбом от RED HARVEST
+
+<P>Норвежские авангардисты&nbsp;<B>RED HARVEST</B>&nbsp;приступили в студии <STRONG>Multimono </STRONG>к записи своего нового альбома&nbsp;<STRONG>"A Greater Darkness",</STRONG> выход которого ожидается 19 февраля 2007 года на&nbsp;<STRONG>Season of Mist</STRONG> . Уже известен его трек-лист:<BR><BR>1. <B>Antidote</B> <BR>2. <B>Hole In Me</B> <BR>3. <B>Dead Cities</B> <BR>4. <B>Mouth Of Madness</B> <BR>5. <B>Beyond The Limits Of Physical X-perience</B><BR>6. <B>Icons Of Fear… The Curse Of The Universe</B><BR>7. <B>I Sweat W.O.M.D</B> <BR>8. <B>WarThemes</B> <BR>9. <B>Distorted Eyes</B> <BR>10. <B>Proprioception</B><BR></P>
+Автор: Dimas
+
+### 16.01.2009 reviews Прогрессивный блэк с индастриальным гарниром
+
+<P>Норвежские индастриальщики Red Harvest вот уже скоро 20 лет (с 1989-го года) на сцене, а "A Greater Darkness" это восьмой их полноформатник. Ранее я работ данного коллектива не слышал, поэтому сравнивать этот альбом ни с чем не буду. По той же причине не могу согласиться или не согласиться с часто встречающимся утверждением, что звучание Red Harvest не спутаешь с оным другой банды. Впрочем, с чем сразу буду спорить, так это с классификацией сего проекта как индастриал. Да, безусловно, дела индустриальные там есть, но основа, на мой взгляд, все-таки блэковая. Есть и кое-какие электронные эксперименты, но на тот же, например, Samael это мало похоже. Ну и что-то эдакое прог-трэшевое и прог-дэтовое тоже можно услышать. Работа крепкая, но вот не очень понравилось, что структуры песен весьма похожи между собой, как и сами эти композиции. Как бы импровизации на одну и ту же заданную тему. В общем, нелегкая пища для ума, честно говоря. Больше же понравились спокойные, красивые акустические проигрыши между тяжелыми металическими пассажами. Даже не знаю, кому порекомендовать "A Greater Darkness". Думается, пластинка может хорошо пойти у любителей прогрессивного блэка или дэта и групп типа Minsitry. Другие тоже могут найти на этой работе норвежцев кое-то интересное для себя, но вот этого самого для них интересного у Red Harvest все же немного.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 02.06.2009 reviews Экспериментаторы с паровым молотом наперевес
+
+<P>Норвежцы Red Harvest - новое для меня имя, а между тем "A Greater Darkness" уже восьмая их полноформатная пластинка. Что ж, данная работа позволяет утверждать, что звучание группы весьма своеобразно и, пожалуй, ни на кого не похоже. После яростной атаки в открывашке 'Antidote', напомнившей о трэшевом прошлом коллектива, Red Harvest меняют темп на "мрачно-средний", продолжая обрабатывать уши слушателя мощным звуковым потоком. Кое-где слышны блэковые нотки, но основная звуковая волна состоит из тяжеленных индастриальных ритмов, но, возможно, кому-то покажется, что ни дум, ни дэт не чужды этим ребятам. Словно паровым молотом, норвежцы забивают рифф за риффом, удар за ударом, ноту за нотой. Торжественно-тревожно-мрачная атмосфера достигается и за счет многократных повторов одних и тех же пассажей - что дело для индастриала знакомое. Red Harvest делают очень умную вещь: они не бросаются в безумные ритмы с вокалом "на пределе" и барабанами уже "за пределом" (чем занимаются, например, The Berzerker). Здесь всё рассчитано с математической точностью: куда бить, сколько бить и с какой силой. Замечу, что сэмплы и все остальные электро-фишки очень органично вплетены в общую картину, и альбом слушается единым целым, а не как набор неживых звуков. Не буду говорить, что "A Greater Darkness", этот своеобразный альбом-саспенс, произвел на меня уж очень&nbsp; большое впечатление, но в оригинальности ему не откажешь, а это уже огромный плюс на фоне немеряного количества музыкальных коллективов, муссирующих одни и те же когда-то кем-то найденные рецепты.</P>
+<P>&nbsp;</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

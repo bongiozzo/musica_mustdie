@@ -12,6 +12,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.09.2016 news ZIX из Ливана подписались на Pure Steel Records
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Дебютный альбом ливанской heavy metal группы с женским вокалом <strong>ZIX "Tides Of The Final War"</strong> выходит 28 октября на <strong>Pure Steel Records</strong>. Диск был записан в Лас Вегасе в студии <strong>Vegas View</strong> с продюсером <strong>Steve Thompson</strong> (METALLICA, ANTHRAX, GUNS N ROSES etc.). Мастеринг <strong>Maor Appelbaum</strong> (Sepultura, Yngwie Malmsteen). Гостевые музыканты:<strong> Tony Martin</strong> (Black Sabbath), <strong>Blaze Bayley</strong> (Iron Maiden), <strong>Paul Di'Anno</strong> (Iron Maiden),<strong> Ross The Boss</strong> (ex-Manowar, Death Dealer).</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1. Buyer Of Souls<br>2. Metal Strike<br>3. Tides Of The Final War<br>4. Shadow Of A Dying Sun<br>5. Crucible<br>6. Dark Days Of Babylon<br>7. Heavens Eyes<br>8. Thousand Wars At Sea<br>9. Night Of Evil<br>10. The Warwhore</p><p>&nbsp;<center><img width="400" height="400" src="/images/news_rus/2016.09/30013.jpg" border="0"></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="595" src="/images/news_rus/2016.09/30014.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 23.09.2016 news ZIX from Lebanon signed to Pure Steel Records
+
+<p>The release date of the<strong> ZIX</strong> album „<strong>Tides Of The Final War</strong>“ on CD is October 28th, 2016. One of The best Heavy Metal bands from the Lebanon is without doubt ZIX.</p><p>The debut was recorded in the Vegas View studios, Nevada, by Steve Thompson (METALLICA, ANTHRAX, GUNS N ROSES etc.), mastered by Maor Appelbaum (Sepultura, Yngwie), remixed and remastered at QuSoundStudio in Germany by Michael Kusch. They show on their debut album true Metal hymns with fantastic female vocals! With True Metal I mean real Metal and no neosymphonic mass ware! Of course as you might expect the music contains also lyrics with "heaviness" because of the situation in the near east and the oppression of the headbangers there!</p><p>To support this there are guest musicians like Tony Martin (Black Sabbath), Blaze Bayley (Iron Maiden), Paul Di'Anno (Iron Maiden), Ross The Boss (ex-Manowar, Death Dealer) and many many more. I won't count them all here. Explore the album, you won't be disappointed!</p><p>Track list:</p><p>1. Buyer Of Souls<br>2. Metal Strike<br>3. Tides Of The Final War<br>4. Shadow Of A Dying Sun<br>5. Crucible<br>6. Dark Days Of Babylon<br>7. Heavens Eyes<br>8. Thousand Wars At Sea<br>9. Night Of Evil<br>10. The Warwhore</p><p>&nbsp;<center><img width="400" height="400" src="/images/news_rus/2016.09/30013.jpg" border="0"><p></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="595" src="/images/news_rus/2016.09/30014.jpg" border="0"><p></p></center></center>
+Автор: Vit Belov
+
+### 14.10.2016 news ZIX выпустили сингл с выходящего альбома
+
+<p>Группа с женским вокалом из Ливана <strong>ZIX</strong> выпустила заглавный сингл с нового альбома "<strong>Tides Of The Final War</strong>". Дата релиза: 28 октября.</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/286302257&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+### 14.10.2016 news ZIX released title track from upcoming albu,&#x3D;m
+
+<p>Band with female vocals from Lebanon<strong> ZIX</strong> released the title single from the new album "<strong>Tides Of The Final War</strong>". Release date: 28 Oct.</p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/286302257&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

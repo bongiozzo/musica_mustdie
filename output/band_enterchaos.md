@@ -97,6 +97,58 @@ Cover artwork by Niklas Sundin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.08.2002 news Вхождение в хаос...
+
+<p><IMG SRC="/images/news_rus/2002.08/3022.jpg" ALT="pho" width=340 height=337 hspace="15" vspace="5" border="1" align="right"> Польская супергруппа "ENTER CHAOS" имеющая в своем составе известных по другим проектам музыкантов: Azarath, Dar Semai, Demise, Luna Ad Noctum м ex-Immemorial девушку вокалистку 27 августа выпускает дебютный диск "DREAMWORKER". <BR><BR> Альбом содержит 9 мелодик-дэтовых песен среди которых и кавер At The Gates - "Cold". Трек-лист:<BR><BR> Blood Desire<BR> Chaos<BR> ...And The Angels Sing<BR> Dreamworker <BR> Lethal Dreams<BR> Electronic Zombies<BR> Industrial Disease<BR> Synthetic Future<BR> Lost In Ecstasy<BR> Cold (At The Gates cover)</p>
+
+Автор: Yermola
+
+### 14.08.2002 news DREAMWORKER...
+
+<p><IMG SRC="/images/news/2002.08/3024.jpg" ALT="pho" width=340 height=337 hspace="15" vspace="5" border="1" align="right"> ENTER CHAOS' debut album "DREAMWORKER" will be released on August 27th in Poland via Metal Mind. The album is a collection of 9 fast melodic death metal songs, some of them with psychedelic elements, and the At The Gates cover "Cold". <BR><BR> Tracklist: <BR><BR> 1. Blood Desire<BR> 2. Chaos<BR> 3. ...And The Angels Sing<BR> 4. Dreamworker<BR> 5. Lethal Dreams<BR> 6. Electronic Zombies<BR> 7. Industrial Disease<BR> 8. Synthetic Future<BR> 9. Lost In Ecstasy<BR> 10. Cold (At The Gates cover)<BR><BR> ENTER CHAOS is a band with members of well know polish bands such as Azarath, Dar Semai, Demise, Luna Ad Noctum and ex-Immemorial's female singer.<BR><BR> Also in August will be published interview with Enter Chaos in polish edition of Metal Hammer (no. 8/2002). More at ChaoticWEB: www.enterchaos.metal.pl</p>
+
+Автор: Yermola
+
+### 11.11.2002 news ENTER CHAOS news...
+
+<p>Lady Martex will be a part of book "Females In Extreme Music" written by Angela Gossow of Arch Enemy. As Angela said "This book will be written by women for women, based on hardfacts, tips and interviews. There will be no gossip and pin up posters". Besides interview with Martex, you'll find there interview with Doro, Jo Bench, Sabina Classen, The Great Kat and more... <BR> <BR> Meanwhile, guitarist Blasphemo has quit the band and has been replaced by guitarist Szymon of NYIA/Third Degree/ex-Prophecy and some other bands. He is also a producer at famous polish studio Selani.</p>
+
+Автор: Yermola
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 17.11.2002 reviews Теория вхождения в хаос
+
+<p>"Dreamworker" - дебютный альбом польского проекта состоящего из музыкантов таких брутальных команд, как DEMISE, AZARATH, LUNA AD NOCTUM, DAMNATION и DEVILYN. К сожалению, в проекте не смогли принять участие из-за туров и записи альбомов музыканты групп BEHEMOTH, TRAUMA и DIES IRAE. Группа играет сокрушительный и техничный death metal с разнообразными мелодиями и психоделичными настроениями. Что-то в духе DEATH и AT THE GATES, кавер которых "Cold" присутствует в самом конце альбома. Хотя, по современным меркам, язык не поворачивается назвать это melodic death metal'ом. Вокальные дела на этом альбоме на совести бывшей вокалистки IMMEMORIAL. Эта симпатичная стройная девушка прекрасно владеет брутальным и неистовым гроулингом-скримингом в духе Angela Gossow (ARCH ENEMY). И все это на фоне сплошного ударно-струнного террора. Десять брутальных боевиков с зубодробительными гитарными риффами, тяжелейшим звуком, почти при полном отсутствии клавиш. Четыре гитариста создают мощную и плотную звуковую стену. Очень профессиональная работа с хорошим качественным звуком. Эти десять вещей в очередной раз доказывают силу польской брутальной сцены.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 27.01.2003 news Enter Chaos will be a part of Metalmania 2003 ...
+
+<p>Polish death metal band Enter Chaos will be a part of the biggest Polish festival Metalmania 2003 together with Marduk, Immolation, Vader, Samael and Malevolent Creation. As always festival is taking place in Katowice (PL), on April 5th. The band also has an invitation to play with Soulfly in Warsaw, on February 3rd, but Enter Chaos withdrawn due to lack of time. <BR><BR> Enter Chaos debut "Dreamworker" has been choosen as debut of the year in the English radio station TotalRock on the "Sex To 9 with Maria" show! Polish band has made it to the "Honorable Mentions" of the Best Newcomer Category on the Online Metal Awards. The band would like to thank everyone who took the time to vote for them.<BR><BR> Also of note, Enter Chaos "Dreamworker" has been chosen 11th in Stefan Lejon's of Urkraft Webzine "album of the year" Top 20.</p>
+
+Автор: Yermola
+
+### 04.03.2003 news Enter Chaos news...
+
+<p>The band decided to re-sign a deal with Metal Mind for next 3 albums. Now the band working on the second album "Aura Sense"(working title). Enter Chaos plan to record vocals, guitars and drums in November at Hertz Studio and in December keys at Studio Ragnarok in Finland. Henri Sorvali of Finntroll/Moonsorrow will do some keyboard parts this time. Cover art will be done by Niklas Sundin of Dark Tranquillity/Cabin Fever Media. <BR><BR> Line-up:<BR> Marta (Martex) - vocals<BR> Ozz - guitars<BR> Verymetal - guitars<BR> D. - guitars<BR> Seb-Off - guitars<BR> L.Rambo - drums<BR> B.Low - bass<BR><BR> Also Enter Chaos is band of March in Spotlight section on Swedish Metal site (www.swedishmetal.net)<BR><BR> Forthcoming shows:<BR> March 28th, Warsaw (PL) - Kopalnia,<BR> with Demise, Neolithic, Kayzen<BR><BR> April 5th, Katowice (PL) - Metalmania 2003, Spodek<BR> with Samael, Saxon, Opeth, Mayhem, Vader, Anathema, Sweet Noise, Marduk,<BR> Immolation, Malevolent Creation.<BR><BR> April 22nd, Warsaw (PL) - Proxima Club<BR> with Cannibal Corpse, Sinister, Anal Stench</p>
+
+Автор: Yermola
+
+### 02.09.2003 news Enter Chaos - подробности о новой пластинке
+
+<p><IMG SRC="/images/news_rus/2003.09/4777.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">1 октября ENTER CHAOS начнут запись нового альбома "Aura Sense" в Studio X вместе с продюсером Szymon Czech (LUX OCCULTA, DEMISE). Будет записано 11-13 песен, среди которых не будет ни одного кавера. Кавер артворк к записи уже нарисован Niklas Sundin (DARK TRANQUILLITY). Также группа примет участие в 'Tribute to AT THE GATES' вместе с группами NAIL WITHIN, GODHATE (ex-THRONEAEON), MOONSKIN, IN AETERNUM, ILLDISPOSED, SOUL DEMISE, THE DUSKFALL, TAETRE.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

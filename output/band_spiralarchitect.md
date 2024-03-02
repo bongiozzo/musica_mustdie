@@ -41,6 +41,15 @@ Lena Zizanic  -  Photography
 * C группой "Sarke" Asgeir Mickelson (drums)
 * C группой "Testament" Asgeir Mickelson (drums)
 
+## Публикации
+
+### 20.05.2002 news Elitist Records c гордостью объявляют о подписании.....
+
+<p>Elitist Records c гордостью объявляют о подписании еще одной замечательной progressive / black / death-metal группы Lunaris. <BR> <BR> Родом из Норвегии, Lunaris включает участников Borknagar, 1349 и Spiral Architect. Однако это не "супер-группа" или "сайд-проджект". Lunaris - полноценный работающий музыкальный коллектив, со своими амбициями и планами. Группа закончила работу над своим дебютным альбомом "The Infinite", выход пластинки запланирован в августе месяце этого года.. <br>Альбом "The Infinite" был записан в составе - ударник Asgeir Mickelson (Spiral Architect & Borknagar), гитаристы Azarak (Spiral Architect и Satyricon) и M (также back-вокал), басист и вокалист Maztema (Spiral Architect), вокалист Balfori (ex-1349) и клавишник Ray. Однако, Mickelson уже ушел из группы, его заменил Janos Di Croce. Сейчас уже идет работа над несколькими песнями для следующего альбома, и Рэй обещал в будущем еще более технический и агрессивный подход к исполняемому материалу.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

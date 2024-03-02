@@ -19,6 +19,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.07.2011 news Переиздание единственного альбома DEATH STRIKE
+
+<P><IMG height=264 alt="" hspace=0 src="/images/news_rus/2011.07/20210.jpg" width=263 align=right border=0>Единственный альбом группы <STRONG>Paul Speckman</STRONG> из <STRONG>MASTER DEATH STRIKE "Fuckin' Death"</STRONG> переиздан в этом году. Настоящая классика, в оригинале вышедшая в 1991 году на<STRONG> Nuclear Blast</STRONG>, укомплектована четырьмя бонус-треками из нереализованного демо. Трек-лист:</P>
+<P>1. <STRONG>The Truth</STRONG>&nbsp; 03:21&nbsp;&nbsp;&nbsp; <BR>2. <STRONG>Mangled Dehumanization</STRONG>&nbsp; 01:58 <BR>3. <STRONG>Pay to Die</STRONG>&nbsp; 03:02&nbsp; <BR>4. <STRONG>Re-Entry and Destruction</STRONG>&nbsp; 03:35&nbsp;&nbsp; <BR>5. <STRONG>The Final Countdown</STRONG>&nbsp; 07:05 <BR>6. <STRONG>Man Killed America/Embryonic Misconceptions&nbsp;</STRONG> 06:02&nbsp; <BR>7. <STRONG>Pervert&nbsp;</STRONG> 02:58&nbsp; <BR>8. <STRONG>Remorseless Poison</STRONG>&nbsp; 05:25 <BR>9. <STRONG>Live for Free</STRONG> <BR>10. <STRONG>The Truth</STRONG><BR>11. <STRONG>Pay to Die</STRONG> <BR>12. <STRONG>Master</STRONG></P>
+Автор: Vit Belov
+
+### 26.01.2013 news Paul Speckmann + Rogga Johansson
+
+<P><STRONG>Paul Speckmann</STRONG> (<STRONG>MASTER</STRONG>, <STRONG>ABOMINATION</STRONG>, <STRONG>DEATH STRIKE</STRONG>)&nbsp;и <STRONG>Rogga Johansson</STRONG> (<STRONG>BONE GNAWER</STRONG>, <STRONG>DEMIURG</STRONG>, <STRONG>PAGANIZER</STRONG>, <STRONG>RIBSPREADER</STRONG>)&nbsp;в скором времени выпускают свой совместный проект <STRONG>"Sulphur Skies"</STRONG>. Диск выйдет в количестве 1000 экземпляров на <STRONG>Vic Records</STRONG>. Автор обложки: <STRONG>Arvin Palma</STRONG> (<A href="http://www.facebook.com/TorturedPalmArtOfficial">www.facebook.com/TorturedPalmArtOfficial</A>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25369.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

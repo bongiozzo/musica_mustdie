@@ -55,6 +55,91 @@ Valnes: synths, vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.03.2001 reviews Мрачная музыка из австрийского королевства
+
+<p>Мрачная музыка из австрийского королевства. Это уже третий альбом группы. Все тот же мрачный и симфоничный dark-metal. Впрочем такая продукция - это уже фирменный знак Prophecy Productions. Немецкоязычная лирика на фоне закрученной комбинации быстрого тяжелого black metal с мрачной клавишной атмосферой и скрипичной жалобной поддержкой. Потрясающий звуковой ряд. Музыка довольно сложная, местами звучит просто психоделический ряд. Напоминает временами Morgul и Ulver. Болезненный скриминг, мрачные хоры, и редкие женские подпевки, акустические вставки смешанные с синтезаторными. Высококачественный альбом, профессионально сделанный. Это не чистый black-metal, временами совсем не black, но со всеми его атрибутами. Правильнее конечно будет dark metal. Красивая мелодичная музыка с изрядной долей страха.</p>
+
+Автор: Dimas
+
+### 13.03.2001 reviews Dark music from the Austrian kingdom
+
+<p>Dark music from the Austrian kingdom. It already third album of group. All same sad and symphonic dark-metal. However such production is already logo Prophecy Productions. German lyrics on a background of a twisted speed key fast high-gravity black metal with sad keyboard atmosphere and violins by plaintive support. A startling sound number. Music is pleased composite, by places a simplly psychodelic number sounds. Resembles from time to time Morgul and Ulver. Morbid screaming, sad choruses, and infrequent female back vocals, acoustic inserts blended with synthetics. A high-performance album professionally made. It not clean black-metal, from time to time at all black, but with all by his attributes. It will be more correct certainly dark metal. Beautiful melodious music from a fair lobe of pavor.</p>
+
+Автор: Dimas
+
+### 25.07.2001 news Dornenreich едут в тур
+
+<p>Dornenreich едут в тур вместе с Tenhi и Of The Wand And The Moon. Группа будет исполнять акустическую программу, в которую будут включены песни с последнего альбома Her von welken N&auml;chten.</p>
+
+Автор: Vit Belov
+
+### 28.10.2001 news Dornenreich отправятся в студию
+
+<p>После акустических гигов с Of The Wand And The Moon и Tenhi, Dornenreich в ноябре направятся в студию, где начнут запись проекта "Hexenwind". Этим новым альбомом Dornenreich собираются освежить архаичный дух скандинавских команд начала 90-х.</p>
+
+Автор: Morsus
+
+### 28.10.2001 news Dornenreich will enter the studio
+
+<p>After the acoustic gigs with Of The Wand And The Moon and Tenhi, Dornenreich will enter the studio in November to start with the recordings of their project "Hexenwind". With "Hexenwind", they will re-create the archaic atmosphere of the dark, scandinavian bands from the early 90s.</p>
+
+Автор: Morsus
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 18.02.2005 news Новости от DORNENREICH
+
+<P><STRONG>DORNENREICH </STRONG>назвали свой четвёртый альбом "<STRONG>Hexenwind</STRONG>". В настоящее время коллектив работает над записью вокала, миксом и оформлением пластинки, которая ориентировочно выйдет осенью-весной этого года.</P>
+Автор: Vit Belov
+
+### 14.11.2005 news Новый альбом DORNENREICH
+
+<P>Новый альбом <STRONG>DORNENREICH "Hexenwind"</STRONG> выходит 18 ноября на<STRONG> Prophecy</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.05.2006 reviews Зимний ветерок
+
+<P>На сколько я понял, группа Dornenreich, когда-то, давным-давно имела какое то отношение к блэку. Сейчас, остаётся только догадываться, какое. Но порой даже ждешь какого-нибуть жуткого скрима, или урагана жужжащих гитар. Напрасно. Теперь Hexenwind – это продолжение идей американцев из Agalloch. Соответственно - полуакустические гитарные переборы, шепчущий вокал, иногда словно просыпающийся от берложьей спячки и удивленно вопрошающий что-то, тихо шелестящие ударные и мрачная и грустная зимняя атмосфера. Все это красиво сыгранно, и музыкантами были придуманны парочка интересных мелодийных ходов. Другое дело, что эти интересности растянуты, в минимальных вариациях, на весь диск и обсасываются во всевозможных вариантах. Но с другой стороны, несовременно малое время звучания альбома не позволяет слишком заскучать до сведения лицевых мышц, и в целом, Hexenwind оставляет приятное впечатление. При всем своем однообразии. Идеален для ночного фона&nbsp; для других приятных занятий готично настроенных меланхоликов. </P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Дофф
+
+### 22.09.2011 news WAVE GOTIK TREFFEN &#39;2011: фото-репортаж
+
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">
+<CENTER><IMG border=0 hspace=5 alt="" src="/images/news_rus/2011.09/21131.jpg" width=468 height=60></SPAN> 
+<P></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">С 10 по 13 июня в городе Лейпциге (Германия)&nbsp;прошёл очередной, двадцатый по счёту, фестиваль <STRONG>Wave Gotik Treffen</STRONG>. Являясь самым большим и<SPAN style="mso-spacerun: yes">&nbsp;</SPAN>знаменитым фестивалем<SPAN style="mso-spacerun: yes">&nbsp;"</SPAN>Тёмной<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>Сцены"<SPAN style="mso-spacerun: yes"> </SPAN>не только в Европе, но и в Мире,<SPAN style="mso-spacerun: yes"><STRONG> </STRONG></SPAN><STRONG>WGT</STRONG> ежегодно собирает от 15.000 до 25.000 зрителей. На фестивале выступило огромное количество разноплановых музыкальных коллективов. Вашему вниманию предлагается фото-репортаж с этого грандиозного мероприятия.</SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>DAS ICH</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>SWEET WILLIAM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>OSWALD HENKE</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/757">http://musica.mustdie.ru/ru/galleries/21/757</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>SARAH JEZEBEL DEVA</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CHTHONIC</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/758">http://musica.mustdie.ru/ru/galleries/21/758</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>GOTHMINISTER</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>UMBRA ET IMAGO</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DIORAMA</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/759">http://musica.mustdie.ru/ru/galleries/21/759</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>ANATHEMA</STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG>: <A href="/ru/galleries/21/760">http://musica.mustdie.ru/ru/galleries/21/760</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>EMPYRIUM</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>HELHEIM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DORNENREICH</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/762">http://musica.mustdie.ru/ru/galleries/21/762</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>LAKE OF TEARS</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TIAMAT</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/763">http://musica.mustdie.ru/ru/galleries/1/763</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>WAVES UNDER WATER</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TROBAR DE MORTE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>BEATI MORTUI</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>KILLING JOKE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>FIELDS OF NEPHILIM</STRONG></SPAN></STRONG>:</FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><A href="/ru/galleries/1/768">http://musica.mustdie.ru/ru/galleries/1/768</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>NORTHLAND</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>COPPELIUS</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CRIMFALL</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/769">http://musica.mustdie.ru/ru/galleries/1/769</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>MEDIAEVAL BAEBES</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>ELUVEITIE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>MISFITS</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/770">http://musica.mustdie.ru/ru/galleries/1/770</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN>: <A href="/ru/galleries/1/772">http://musica.mustdie.ru/ru/galleries/1/772</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN> <STRONG><SPAN style="BACKGROUND: #009966">(часть 2)</SPAN>:</STRONG> <A href="/ru/galleries/1/773">http://musica.mustdie.ru/ru/galleries/1/773</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0></FONT></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0>Автор всех фотографий - <STRONG>Юлия Бучацкая</STRONG> (кроме <STRONG>MISFITS</STRONG> - <STRONG>Альберт Бучацкий</STRONG>).</FONT></SPAN></P></CENTER>
+Автор: Tess
+
+
 ## Обсуждения
 
 

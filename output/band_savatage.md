@@ -485,6 +485,229 @@ Jeff Plate Drums
 * C группой "Jon Oliva's Pain" Jon Oliva
 * C группой "Trans-Siberian Orchestra" Jeff Plate (drums)
 
+## Публикации
+
+### 17.10.1999 news 
+
+<p>Новый альбом Savatage "Madmen And Poets" задерживается и выйдет в 2000 году.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>Savatage подписали контракт с Nuclear Blast и выпустят альбом весной следующего года</p>
+
+Автор: Vit Belov
+
+### 03.08.2000 news Новый альбом Savatage задерживается.
+
+<p>Запись нового альбома Savatage задерживается, из-за работы Trans siberrian orchestra, которые будут записывать музыку для нового фильма с Джимом Кэрри в главной роли. В октябре намечается тур Savatage, правда замена Элу Питреллиб ушедшему в Megadeth пока не найдена.</p>
+
+Автор: Vit Belov
+
+### 14.09.2000 news Новый альбом Six Feet Under
+
+<p> Новый альбом Six Feet Under будет называться "Graveyard Classics", и это будет сборник кавер-версий песен таких групп, как: Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix и Venom.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news New album of Six Feet Under
+
+<p> The new album of Six Feet Under will be titled "Graveyard Classics" and it will be a covers album with the band paying tribute to the bands that influenced them. The album will feature songs from Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix and Venom.</p>
+
+Автор: Nybras
+
+### 07.10.2000 news У Savatage проблемы с новым диском
+
+<p> Релиз нового альбома Savatage "Poets And Madmen" будет задержан до января следующего года.</p>
+
+Автор: Nybras
+
+### 07.10.2000 news Savatage&#39;s album delayed &#39;til January
+
+<p> The release of Savatage's new album "Poets And Madmen" will be delayed until January.</p>
+
+Автор: Nybras
+
+### 14.02.2001 news Утвержден срок выхода нового альбома Savatage.
+
+<p> Долгожданный альбом "Poets & Madmen" появится в музыкальных магазинах Европы 5 марта 2001 года. Он будет выпущен в трёх вариантах. Обычный CD будет содержать 10 треков. Лимитированное издание в специальной упаковке дополнит бонус-трек. Для почитателей винила выйдет ограниченным тиражом красочная 2LP версия. Трек-лист альбома: 1. "There in the Silence"; 2. "Commissar"; 3. "I Seek Power"; 4. "Drive"; 5. "Morphine Child"; 6. "The Rumor"; 7. "Man In The Mirror"; 8. "Surrender"; 9. "Awaken"; 10. "Back To Reason"; 11. (Bonus Track) "Stay".</p>
+
+Автор: Morsus
+
+### 14.02.2001 news Release date of a new Savatage album is confirmed.
+
+<p> The long-awaited studio album "Poets & Madmen" will finally be available in stores on 5 March 2001. There will be 3 different formats. The normal CD contains 10 Tracks. The limited edition will be available in a special packaging with a bonus track. For vinyl-fans there is a 2 LP version with picture vinyl produced in limited form. The tracklist is as follows: 1. "There in the Silence"; 2. "Commissar"; 3. "I Seek Power"; 4. "Drive"; 5. "Morphine Child"; 6. "The Rumor"; 7. "Man In The Mirror"; 8. "Surrender"; 9. "Awaken"; 10. "Back To Reason"; 11. (Bonus Track) "Stay".</p>
+
+Автор: Morsus
+
+### 13.03.2001 news Изменения в SAVATAGE ...
+
+<p>SAVATAGE взяли нового вокалиста и второго гитариста. Флоридец Damond Jiniya стал новым певцом. Как сказал Jon Oliva: "Когда он открыл рот чтобы петь - нас просто сдуло с места!". Обязанности второго гитариста (вместо Al Pitrelli ушедшего в MEGADETH) будет исполнять некий Jack Frost (SEVEN WITCHES, BRONX CASKET CO., SPEEED и METALIUM). Обещанный народу "Poets & Madmen" выходит на Nuclear Blast 17 Апреля.</p>
+
+Автор: Yermola
+
+### 13.03.2001 news SAVATAGE changes...
+
+<p>SAVATAGE have hired a new vocalist and a second guitarist. Florida's Damond Jiniya joins the band as the new vocalist. "We found Damond by accident at a mutual friend's house near my hometown in Florida," says founding member Jon Oliva. "When he opened his mouth to sing, we were all blown away." Jack Frost will take on the duties of second guitarist, replacing Al Pitrelli, who now plays in MEGADETH. Frost's resume includes SEVEN WITCHES, BRONX CASKET CO., SPEEED and METALIUM. "We've been friends with Jack Frost for years and always felt that we had great chemistry," says Oliva. "So, when Al left, we thought he was perfect for the direction of the band." Savatage's Poets & Madmen is out on April 17th through Nuclear Blast.</p>
+
+Автор: Yermola
+
+### 01.04.2001 reviews Третья рок-опера талантливых американцев
+
+<p>Третья рок-опера талантливых американцев. Группа отмечающая свое двадцатилетие и основанная братьями Oliva (Chris - R.I.P.) выпустила новейшую превосходную работу после четырехлетнего перерыва (во время которого полным ходом шла работа над двумя творениями Trans-Siberian Orchestra). Этот альбом - продолжение развития жанра rock-opera, начатого группой на альбомах "Streets" и "Dead Winter Dead". Концепция альбома основана на реальных событиях. Повествование идет об известном фотографе Кевине Картере, который покончил жизнь самоубийством, не сумев пережить события в Судане во время гражданской войны. Место вокалиста снова за Джоном Оливой, который прекрасно справился со своими задачами. Это, пожалуй, один из самых тяжелых и агрессивных альбомов группы. Хотя, здесь прекрасно сочетаются сумасшедшая тяжесть гитарных риффов и аккуратная мягкость акустических и клавишных вставок. Двойные гитарные соло, проигрыши на пианино, симфонические аранжировки, множество брэйков и красивые хоровые припевы-распевы. Цепляющие риффы, захватывающие мелодии, все это впечатляет! Мощнейшая красивейшая музыка которая ни кого не оставит равнодушным к себе. Очень разнообразный материал с массой интереснейших идей и великолепным их воплощением. Качественнейший медленно-среднетемповый heavy-power с множеством прогрессивных элементов. Серьезное драматическое музыкальное произведение, которое со временем обязательно станет классикой тяжелой музыки.</p>
+
+Автор: Dimas
+
+### 06.04.2001 news SAVATAGE shows ...
+
+<p>SAVATAGE have added more shows to their upcoming UK itinerary. The newly-added dates are as follows: April 24 - Commack, NY @ Villiage Pub April 29 - Hershey Park, PA @ Shakeys May 02 - State College, PA @ Crowbar May 04 - Gran Rapids, MI @ Orbit Room May 05 - St Paul, MN @ The Lab May 07 - Dekalb, IL @ Otto's May 13 - San Antonio, TX @ White Rabbit May 14 - New Orleans, LA @ House Of Blues May 16 - Atlanta, GA @ Cotton Club The May 5th show in Madison, WI has been changed to St Paul, MN at The Lab</p>
+
+Автор: Yermola
+
+### 19.06.2001 reviews Трагизм истории потрясает
+
+<p>Концептуальный альбом, повествующий о последних днях жизни фоторепортера Картера, снимавшего для ведущих западных изданий гражданскую войну и голод в Сомали. История реальная! Парень в конце концов просто покончил самоубийством – его преследовал кошмар, запечатленный на одном из фото: только что умершая девочка пяти лет и гриф, ждущий момента, чтобы растерзать маленькое тело… Кошмарная история, повторяющаяся в каждой войне год от года по всему миру. Музыканты пытаются музыкой воссоздать ужас картины, подвигшей молодого и талантливого фоторепортера за черту жизни….</p>
+<p> Трагизм истории потрясает. Но если остановиться только на музыке, то группе не удалось реализовать идею в целом. SAVATAGE пишут рок-оперы уже более десяти лет, и есть в их загашнике более динамичные и яркие творения: "Streets", "Wake of Magellan" и "Dead Winter Dead", где можно найти влияние QUEEN, крепкий хардовый драйв и раскладки вокальных партий на пять голосов. Здесь же есть лишь намеки на все это.</p>
+<p> Возможно, причина в том, что ряды группы поредели. Уволился второй и просто великолепный вокалист Закари Стивенс. Ушел в MEGADETH второй гитарист Эл Питрелли. В итоге – меньше выразительности и ярких идей. Звучание стало более монолитным – но для рок-оперы это вряд ли хорошо. Новая работа сама по себе неплоха – если позабыть все те шедевры, что группа записала ранее. А вот если сравнивать, то не в пользу новой пластинки. Тем же, кто с группой не знаком, лучше поискать другие альбомы команды в качестве предлога к "первому свиданию".</p>
+
+Автор: Tornado
+
+### 25.07.2001 news SAVATAGE dates...
+
+<p>SAVATAGE have confirmed the dates for their forthcoming European headlining tour. The schedule is as follows: <br> Oct. 05 - Oslo, Norway - Rockefeller <br> Oct. 06 - Copenhagen, Denmark - Vega Small <br> Oct. 07 - Malmo, Sweeden - KB <br> Oct. 10 - Berlin, Germany - Music Hall <br> Oct. 11 - Cologne, Germany - LMH <br> Oct. 12 - Langen, Germany - Stadhalle <br> Oct. 13 - Osnabruck, Germany - Halle Gartlage <br> Oct. 14 - Dortmund, Germany - Soundgarden <br> Oct. 15 - Stuttgart, Germany - Longhorn <br> Oct. 17 - Lichtenfels, Germany - Stadhalle <br> Oct. 18 - Prattelen, Switzerland - Z7 Koncertfabrik <br> Oct. 20 - Athens, Greece - Rodon Club <br> Oct. 21 - Athens, Greece - Rodon Club <br> Oct. 24 - Florence, Italy - Flog <br> Oct. 25 - Rome, Italy - Palacisalfa <br> Oct. 26 - Brescia, Italy - Palatenda <br> Oct. 28 - Antwerp, Belgium - Hof Ter Lo <br> Oct. 29 - Tilburg, Holland - 013 <br> Oct. 30 - Paris, France - Elysee Montmartre <br> Oct. 31 - London, England – Garage<br>Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 02.08.2001 news Школьные новости ...
+
+<p>После долгого затишья дал о себе знать экс Тестаментовско/Саватажевский гитарист - Алекс Скольник. На днях он открыл собственный веб-сайт во всемирной паутине: <a href="http://www.alexskolnick.com/">http://www.alexskolnick.com/</a>. В ближайшее время Алекс примет участие в записи Тестаментовской коллекции ранних песен "First Strike Is Deadly", также он выступит в концерте "Thrash Of The Titans" который будет проводиться в пользу больного раком вокалиста Чака Билли. Скольник сыграет с командой "LEGACY" (предшественником TESTAMENT!). Также будет оригинальный вокалист Steve Sousa, после перешедший в "EXODUS". Если же вы живете поблизости от Нью-Йорка, вы сможете сегодня поймать Алекса с его джазовым составом "funky ‘70s jazz". Концерт пройдет в Triad Lounge (72nd Street и Broadway) New York City.</p>
+
+Автор: Yermola
+
+### 02.08.2001 news Alex Skolnick has launched an official...
+
+<p>Former TESTAMENT/SAVATAGE guitarist Alex Skolnick has launched an official web site at www.alexskolnick.com. As previously reported, the six-stringer will be partaking in the recording of TESTAMENT’s upcoming collection of reworkings of early originals, entitled First Strike Is Deadly and due in October. Skolnick will also be making an appearance at next week’s Thrash Of The Titans benefit concert for TESTAMENT vocalist Chuck Billy—who was recently diagnosed with cancer—where Alex will be performing with LEGACY, the band that preceded TESTAMENT and featured in its ranks vocalist Steve Sousa, who later left the group to join EXODUS. If you live in the New York area (where Skolnick is presently based), you can also catch the guitarist with his “funky ‘70s jazz” project SKOL PATROL at The Triad Lounge (formerly Dark Star) on Thursday, August 2nd. The Triad Lounge is located at 72nd Street and Broadway in New York City. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.10.2001 news SAVATAGE have announced the new confirmed tour dates ...
+
+<p>SAVATAGE have announced the new confirmed tour dates for the European Leg of the group's Poets & Madmen World Tour. The band decided to postpone their European Tour that was scheduled for October 2001 following the tragic events in September. The new dates are as follows: <BR><BR> Jan. 17 – Malmo, SWE @ KB <BR> Jan. 18 – Ronneby, SWE @ Club Ron <BR> Jan. 19 – Oslo, NOR @ Rockefeller <BR> Jan. 20 – Copenhagen, DEN @ Vega Small <BR> Jan. 21 – Aarhus, DEN @ Voxhall <BR> Jan. 23 – Dortmund, GER @ Soundgarden <BR> Jan. 24 – Berlin, GER @ Musichall <BR> Jan. 26 – Athens, GRE @ Rodon Club <BR> Jan. 27 – Athens, GRE @ Rodon Club <BR> Jan. 29 – Langen, GER @ Stadthalle <BR> Jan. 30 – Stuttgart, GER @ Longhorn <BR> Jan. 31 – Pratteln, SWI @ Z7 <BR> Feb. 01 – Wцrgl, AUS @ Komma <BR> Feb. 02 – Wien, AUS @ Planet Music <BR> Feb. 03 – Graz, AUS @ Orpheum <BR> Feb. 05 – Florenz, ITA @ Tenax <BR> Feb. 06 – Rome, ITA @ Palacisalfa <BR> Feb. 07 – Brescia, ITA @ Palatenda <BR> Feb. 09 – Antwerpen, BEL @ Hof Ter Lo <BR> Feb. 10 – Paris, FRA @ Elysee Montmatre <BR> Feb. 11 – Tilburg, NETH @ 013 <BR> Feb. 12 – Hardenberg, NETH @ Podium <BR> Feb. 13 – London, UK @ Garage<BR> <BR></p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 08.04.2002 news Эл Питрелли вернулся в SAVATAGE ....
+
+<P>SAVATAGE без объяснения причин уволили гитариста Jack Frost и заменили его вернувшимся Элом Питрелли. Как сказал Frost журналу Brave Words: “[The SAVATAGE] солгали мне... Мне нравилось играть в команде. И мне казалось что это друзья. Когда мы вместе ездили в тур они говорили мне как им нравится играть со мной и строили планы на следующий альбом и фестиваль летом. Если вы это назовете "друзья", то для меня это враги... " </P></>
+<P> </P></>
+<P>Сейчас Фрост собирается сконцентрироваться на проекте SEVEN WITCHES, который в конце Апреля отправляется в европейский тур с ANNIHILATOR....</P></>
+
+Автор: Yermola
+
+### 08.04.2002 news Former MEGADETH Guitarist Rejoins SAVATAGE ...
+
+<P>SAVATAGE have fired recently-recruited guitarist Jack Frost and have replaced him with returning axeman Al Pitrelli (ex-MEGADETH), according to a report posted at Brave Words. </P></>
+<P> </P></>
+<P>“[The SAVATAGE] guys lied to me,” Frost said. “You can't lie to the fans. </P></>
+<P> </P></>
+<P>“I loved playing in that band. I thought they were friends. We toured together, telling me how much they enjoyed me being in the band, made plans for the next record and the festivals this summer. If that's what you consider 'friends,' then be my enemy. </P></>
+<P> </P></>
+<P>“They call me up and say I'm fired, just like that. </P></>
+<P> </P></>
+<P>“I'm not a drunk or a drug addict. They never complained about the live performances, just the opposite, complimenting me, in the press, about how much renewed energy I brought to the show. So at the end of the day, it was just a decision to bring 'their boy' [Pitrelli] back.” </P></>
+<P> </P></>
+<P>Frost will now reportedly concentrate full-time on SEVEN WITCHES, who are scheduled to kick off a European tour with ANNIHILATOR at the end of April. </P></>
+
+Автор: Yermola
+
+### 29.04.2002 news Экс-Мегадетовцы присоединились к Себастьяну Баху....
+
+<p>Участники MEGADETH бассист David Ellefson и гитарист Al Pitrelli (также SAVATAGE) присоединились к ex-SKID ROW вокалисту Sebastian Bach для серии концертов с 10 по 22 мая. Pitrelli будет временной заменой для постоянного гитариста Баха - Richie Scarlet, который сейчас занят со своей командой MOUNTAIN.</p>
+
+Автор: Yermola
+
+### 29.04.2002 news Ex-MEGADETH Bassist, Guitarist To Join SEBASTIAN BACH&#39;s Touring Line-Up ...
+
+<p>Former MEGADETH bassist David Ellefson and guitarist Al Pitrelli (currently in SAVATAGE) will be joining ex-SKID ROW singer Sebastian Bach and his touring group (which includes former ANTHRAX axeman Paul Crook), for several live shows beginning with a two-night stint at Stone Pony in Asbury Park, New Jersey on May 10-11. The confirmed dates are as follows: <BR><BR> May 10 - Asbury Park, NJ @ The Stone Pony <BR> May 11 - Asbury Park, NJ @ The Stone Pony <BR> May 15 – Towson, MD @ Recher Theatre<BR> May 16 – Wantagh, NY @ Mulcahy's <BR> May 17 – Hartford, CT @ Webster Hall <BR> May 18 - Clifton Park, NY @ Northern Lights <BR> May 22 - New York, NY @ Irving Plaza<BR><BR> Pitrelli will be filling in temporarily for regular Bach guitarist Richie Scarlet, who is currently busy touring with MOUNTAIN. Ellefson's appearance, on the other hand, has yet to be officially confirmed, although several outlets—including Tickets.com—are already advertising it in conjunction with the above-listed dates.<BR><BR> In related news, Bach has confirmed via his official web site that VH1 has pulled the plug on his Forever Wild show following the airing of episode #13 and the cable channel has instead “offered me a brand new show that would air at 4 PM in the afternoon, but would feature much more commercial videos than Forever Wild, so I am not sure if I am going to take them up on [it],” Sebastian wrote.</p>
+
+Автор: Yermola
+
+### 25.06.2002 news Al Pitrelli will not be able to play on this summer’s short Savatage Tour...
+
+<p>Due to commitments prior to the re-joining of Savatage, Al Pitrelli will not be able to play on this summer’s short Savatage Tour. A long time friend of Savatage; Annihilator guitarist/main-man Jeff Waters will step in to help out with the guitar duties. <BR><BR> "I’m more than happy to help out a great band made up of very talented and professional people; besides, I owe Chris Caffery: he took me to my first NHL hockey game!" says Jeff Waters <BR><BR> Savatage guitarist Chris Caffery "Jeff and I are very good friends, and he is also one of my favorite guitarists. When we contacted him I was very excited about the possibility of him playing these shows. I am definitely looking forward to working with him."</p>
+
+Автор: Yermola
+
+### 21.09.2003 news DORO празднует юбилей
+
+13 декабря в D&uuml;sseldorf <B>Doro Pesch</B> отпразднует юбилейным концертом 20-летие творческой деятельности. Будут исполнены все хиты из её биографии. В шоу также примут участие <B>SAXON, CIRCLE II CIRCLE</B>, а также <B>Lemmy (MOTORHEAD), Jon Oliva (SAVATGE)</B>&nbsp;и&nbsp;<B>Blaze Bayley (BLAZE).</B>
+Автор: Vit Belov
+
+### 10.12.2003 news The Jon Oliva Project!
+
+<P>Лидер <B>SAVATAGE Jon Oliva</B> начал работу над своим сольным альбомом, на котором ему помогут все бывшие&nbsp;участники <B>CIRCLE II CIRCLE</B>, которые только что покинули эту группу. В настоящее время новоиспечённая группа даёт концерты, на которых исполняет как сольный материал <B>Oliva</B>, так и песни <B>SAVATAGE</B>, редко исполнявшиеся вживую. В скором будущем группа запишет альбом, дата релиза которого ещё неизвестна.</P>
+Автор: Vit Belov
+
+### 10.12.2003 news The Jon Oliva Project!
+
+<DIV class=RTE><B>Jon Oliva</B>, founder member and mastermind of <B>Savatage</B>, has embarked on a new adventure. Jon has been writing material for a solo album for several years and has now begun the process of bringing that music to life. Jon has recruited the <B>former members of CircleIICircle </B>to peform a series of concerts showcasing his new solo material as well as classic Savatage material. Some of that Sava-material has never been performed live on stage. Some will remember&nbsp;Jon debuting some of&nbsp;his new material&nbsp;at the <B>Criss Oliva Memorial&nbsp;Concert</B> back in October.&nbsp;Jon is also toying with the idea of taking this show&nbsp;on the road in the&nbsp;US and possibly overseas. It is likely that the band (<B>Matt Laporte-guitar, Kevin Rothney-bass, Christopher Kinder-drums, and John Zahner-Keyboards</B>) will return to the studio with Jon to record more tracks for this&nbsp;solo project.&nbsp;There is no information available&nbsp;on a possible release date. </DIV>
+Автор: Vit Belov
+
+### 04.02.2004 news Jon Oliva назначил дату релиза
+
+Сообщено, что первый альбом сольного проекта <B>Jon Oliva (ex-SAVATAGE)</B>&nbsp;выйдет в мае.
+Автор: Vit Belov
+
+### 04.02.2004 news Jon Oliva set release date
+
+<SPAN class=postbody>Jon Oliva, founding member of Savatage and The JOP , announces the release of his highly anticipated solo album in May- 2004! <BR></SPAN>
+Автор: Vit Belov
+
+### 09.03.2004 news &quot;Jon Oliva&#39;s -&#39;Tage Mahal&quot; is now the official name for the solo project of Savatage mastermind...
+
+"Jon Oliva's -'Tage Mahal" is now the official name for the solo project of Savatage mastermind, Jon Oliva. <br><br>
+
+Although "The JOP" (Jon Oliva Project) was an easy way for fans to associate it with Jon, the band has been looking for a variety of creative ways to promote the new record and thought the name didn't leave much to the imagination. Along with the name change, The web-site will be undergoing a series of changes in the coming weeks to reflect the name and the attitude of the new record. <br><br>
+
+'Tage Mahal will be performing a "sneak preview" of the new record at Prog-Power V in Atlanta, GA. on September 16 & 17. This is the premier metal festival in the US. Make your plans to be there and remember that this show sold out in under 2 weeks last year. Tickets go on sale May 1. Further information can be found at: www.progpowerusa.com <br><br>
+
+'Tage Mahal is currently in week 2 of recording. Jon is joined, both in the studio and on tour, by the former members of Circle II Circle: Chris Kinder, Kevin Rothney, Matt LaPorte and John Zahner. The album is scheduled for a late spring/early summer release. 
+<br><br>
+Further information regarding "Jon Oliva's 'Tage Mahal" can be found at the official site: www.jonoliva.net
+Автор: Yermola
+
+### 26.11.2006 articles Tony Martin вернулся из России, где пел под фонограмму - NAPALM DEATH поют с вокалисткой THE GATHERING, как CELTIC FROST - «Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег» - MICHAEL SCHENKER опять метнул гитару
+
+<P><STRONG>Tony Martin вернулся из России, где пел под фонограмму</STRONG></P>
+<P><IMG height=210 alt="" hspace=0 src="/images/articles_rus/2006.11/10963.jpg" width=167 align=left border=5>С гастролями в этом месяце Россию посетил бывший вокалист BLACK SABBATH, а ныне успешный сольный артист, Tony Martin. Приехав домой, Tony опубликовал свои впечатления на своём официальном сайте. «Россия! Парни, вы молодцы. Отлично вернуться домой. У нас была ОЧЕНЬ интересная поездка», - восклицает Tony. По словам певца, первое шоу в клубе «Апельсин» было фантастическим. Он благодарит всех, кто посетил это мероприятие. «Следующие несколько дней были … интересными! Мы проехались по знаменитой Российской железной дороге!!! Если вы помните, у меня уже был подобный опыт, когда я ездил в Россию с M3! В этот раз было лучше. Во-первых потому, что я знал, чего ожидать от русских поездов, а во-вторых, в этот раз мы ехали в вагоне первого класса, в отличие от прошлого раза». Видимо, Tony даже первый класс показался не очень комфортным, если он упоминает о поразившем его транспорте в каждом отчёте о посещении нашей страны. Были гораздо более интересные вещи. Например, господин Martin участвовал в концерте, посвящённом группе ЗЕМЛЯНЕ, где столкнулся с некоторыми другими особенностями русской эстрады. Tony назвал себя мимом, потому что его попросили петь под фонограмму, что является «настойчивой просьбой русских». Можно сказать, опозорились. Особенно приятно, что кроме бывшего солиста BLACK SABBATH в этом фарсе участвовали SUPERMAX, NAZARETH, KINGDOM COME, Rick Wakeman и Tony Iommi. Присутствие последнего особенно поразило господина Мартина: «Там был Tony Iommi… Это не проблема. Но прикольно было, что диктор неправильно назвал его имя, а в «бегущей строке его фамилия отображалась с буквой Y. После выступления, Tony, которого я не видел много лет, куда-то исчез с парнями из KINGDOM COME, а шоу продолжилось. Это были часы дезорганизации. Фонограммы путались, ставились другие песни, куча непредвиденных изменений. Мы попытались сделать наше шоу вживую, но организаторы просто забрали все кабели с собой. Единственным плюсом был неплохой прием у публики». Несмотря на подобный провал, Тони в своём обращении похвалил музыкантов группы «Земляне» за то, что они пригласили их на своё 30-летие. Видимо, это было очень хлебосольное 30-летие, раз западные рок-музыканты готовы терпеть такое, и позорится пением под фонограмму. Позже этим вечером я видел Тони Мартина в компании с Гленном Хьюзом в эфире первого канала вместе с гламурным ведущим Малаховым, который выступил в таком духе, мол, Bonnie Tyler я знаю, она сидела рядом, а это что за джентльмены такие. Надеюсь, «динозавры рока» не зря подвергали себя подобным унижениям.</P>
+<P><STRONG>NAPALM DEATH поют с вокалисткой THE GATHERING, как CELTIC FROST</STRONG></P>
+<P><IMG height=136 alt="" hspace=0 src="/images/articles_rus/2006.11/10964.jpg" width=200 align=right border=5>В ближайшее время в России выйдет новый альбом NAPALM DEATH “Smear Campaign”. Лидер коллектива Mark “Barney” Greenway сейчас раздаёт много интервью. Я попытался нарыть в них что-нибудь интересное. «Мы не были слишком расслаблены, когда сочиняли материал для этой пластинки», - рассказывает Барни. «У нас не было достаточного количества времени, это был не самый лучший момент для написания нового альбома. Мы не хотим превращаться в группы, которые штампуют пластинки только потому, что этого требует бизнес. Странно, но мне понравилась эта ситуация. Однажды, я обнаружил себя пишущим новые тексты за компьютером. Оказывается, подобный цейтнот благотворно влияет на творчество NAPALM DEATH. Мы выполнили нашу работу на отлично». Видимо, решив всё-таки немного разнообразить своё творчество, NAPALM DEATH пригласили гостевую вокалистку. Ею стала Anneke Van Giersbergen из THE GATHERING. Моё предположение Барни опровергает: «Некоторые группы приглашают гостевых певцов только для того, чтобы кто-то спел на их альбоме. Мы же что-то делаем только со смыслом. Аннеке спела на двух песнях «Weltschmerz” и “In Deference”. Многих удивит наш выбор, вам надо послушать эти песни, чтобы понять, как группа NAPALM DEATH могла пригласить солистку THE GATHERING петь на своём альбоме. Мне кажется, оба трэка звучат, как ранний CELTIC FROST, периода «Morbid Tales”». Лирика на “Smear Campaign” связана с отношением Барни к религии. Вдохновившим певца событием стало введение в одной из школ в Англии предмета, который объяснял научные теории вмешательством Господа. «В настоящее время я вхожу в инициативную группу, которая будет бороться я подобными начинаниями», - заявляет музыкант. Мир сошёл с ума. Так будем же слушать живой death-grind на новом альбоме NAPALM DEATH, чтобы не сойти с ума вместе с подобными деятелями, которых достаточно и в нашей стране.</P>
+<P><STRONG>«Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег»</STRONG></P>
+<P><IMG height=285 alt="" hspace=0 src="/images/articles_rus/2006.11/10965.jpg" width=351 align=left border=5>Новым альбомом порадует нас в ближайшее время и Jon Oliva, чья вторая пластинка выйдет на AFM. В интервью Rock Hard Джон коснулся не только своей сольной карьеры, но и высказал несколько интересных мнений о своей группе SAVATAGE. Первый сольник Оливы вышел на SPV, теперь у певца контракт c AFM. “Люди на SPV – очень милые люди. Но они просто выпустили альбом и больше ничего не делали. Многие фэны просто не могли найти альбом. Я решил перейти на более мелкий лэйбл, чтобы получить больше внимания. Парни на AFM мне очень понравились, при первом же знакомстве, когда я писал песни для проекта Zach Stevens CIRCLE II CIRCLE. Мы общались с ними около года до заключения контракта. Они платят вовремя, мне нравится их отношение (смеётся). На SPV я был как маленькая рыбка в большом океане. Они не заботились обо мне, потому что Jon Oliva – это не SAVATAGE. Но я говорил им, что это и есть новый SAVATAGE. Просто играют другие люди, но материал и есть новый SAVATAGE. Они этого не поняли». Высказался Джон и о будущем SAVATAGE: «Всё очень просто. У вас есть Trans-Siberian Orchestra, собирающие 30-тысячную аудиторию и выпускающие мульти-платиновые альбомы. Это SAVATAGE, но с другими певцами. И у вас есть SAVATAGE с гораздо меньшей аудиторией. У меня есть пять платиновых альбомов, но не один из них не получен с SAVATAGE. У SAVATAGE был шанс, но он его не использовал. Сейчас группа интересует лишь несколько сотен фэнов по всему миру. Для меня SAVATAGE закончился после смерти Criss Oliva. Все альбомы, выходившие после этого: “Edge Of Thorns”, “Dead Winter Dead”, Handful Of Rain”, “The Wake Of Magellan” – это альбомы TRANS SIBERIAN ORCHESTRA для меня. Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег, а у меня семья. Группа просуществовала 15-20 лет, но так и не окупилась. Где вы хотите выступать в клубе в Греции перед 2000 фэнов или в Мэдисон Сквер Гарден перед 25000 фэнов?». Джон – честный парень, вам не кажется? </P>
+<P><STRONG><IMG height=432 alt="" hspace=0 src="/images/articles_rus/2006.11/10966.jpg" width=288 align=right border=5>MICHAEL SCHENKER опять метнул гитару</STRONG></P>
+<P>А Michael Schenker опять начудил. Опять в Японии. Опять заболел. В прошлый раз он заболел в Японии и несколько дней никто не мог сказать, где он и чем болен. В этот раз он заболел прямо на сцене в Токио. И бросил играть после третьей песни. Забавно, что господин Шенкер так и не объяснил, что с ним случилось. Рассказывает один из авторов сайта “Michael Schenker News and Tour Information”: «Что-то было не так с самого начала. Майкл не мог играть даже простые фразы песни “Assault Attack”, которая открывала шоу. Во время второго трэка “Ready To Rock” Майкл вышел на авансцену и пытался общаться с публикой и рубиться. Однако он не сыграл соло и ушёл за кулисы. После некоторого перерыва он вернулся к публике и попросил их поднять руки. “Let It Roll” – была следующей. После первого соло Майкл метнул свою гитару и ушёл со сцены опять. Остальные музыканты доиграли песню до конца и также покинули сцену. Публика продолжала хлопать и звать Майкла назад (во, японцы молодцы, прим.авт.). Прошло 10 минут. Он так и не вернулся. Было сообщено, что Шенкер не может продолжать концерт, из-за своего «плохого состояния». Подобное поведение известного своим вздорным характером гитариста не понравилось и басисту его группы Rev Jones: «Я хочу извиниться перед фэнами группы в Японии и Таиланде. Не могу представить, как плохо играл Шенкер. Мы выдавали 110 процентов, а Майкл не играл и на 1 процент своих возможностей. Ещё раз хочу извиниться за нас всех, потому что Шенкер никогда не извиниться сам. У нас осталось ещё два концерта и ВСЁ КОНЧИТСЯ». Напомним, что Шенкер отменил недавно и тур по США, из-за разногласий с вокалистом Jari Tiura. Правда потом господин Шенкер помирился с Яри, который продолжает сопровождать «супер-гитариста» по миру. </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый Savatage

@@ -20,6 +20,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.01.2012 news Новинки лэйбла Darzamadicus в нашем магазине
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=336 alt="" hspace=0 src="/images/news_rus/2012.01/22790.jpg" width=336 align=right border=0>Новинки македонского лэйбла <STRONG>Darazamadicus </STRONG>можно приобрести в нашем магазине.</FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><SPAN class=tit3><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>DR007 NOMENMORTIS "Forget Arcadia"</FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>-death-grind; Четвёртый альбом словацкого коллектива. Мощный и угарный brutal death-metal;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>DR006 ORTHODOX "Forever Not Yet"</FONT></SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>-death-metal; Великолепный дебют украинской группы. Запись Herz Studio (Польша).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подробнее: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Хотите сделать заказ? Самый простой способ, написать на <A href="mailto:musica2005@yandex.ru">musica2005@yandex.ru</A> Доставка в любой регион России наложенным платежом 150 рублей за любое количество дисков.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

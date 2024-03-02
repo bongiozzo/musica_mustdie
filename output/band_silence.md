@@ -12,6 +12,21 @@ heavy metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.02.2003 reviews Итальянский NWOBHM
+
+<p>Группа ТИШИНА из Италии прислала нам своё третье демо с тремя песнями на 15 минут. Хорошая музыка не для гурманов. Слегка утяжелённый Iron Maiden не оставляет места ни для придирок, ни для восторгов. Заглавный трэк 'Night Singer' - стандартный hard'n'heavy, на который едва ли кто-то сейчас обратит внимание. Инструментал Terra Libera весьма неплох, особенно впечатляет работа гитаристов, которые неплохо знают своё дело. Последняя же 'In Thy Embrace', которую группа записывает на каждую промку, среднетемповая, максимально приближенная к Iron Maiden, музыка. Из недостатков, слабо поставленный голос вокалиста...</p>
+
+Автор: Vit Belov
+
+### 18.05.2003 reviews Italian NWOBHM
+
+<p>SILENCE from Italy sent to us their third demo with three songs in 15 minutes. Good music not for gourmets... Slightly heavier IRON MAIDEN doesn't leave place r neither for quibbles nor for enthusiasms. First track 'Night Singer' - standart hard'n'heavy, which is not payed attention from anybody. Instrumental 'Terra Libera' is rather good, especially work of guitarists is impressed. This guys know their work not bad. Last song 'In Thy Embrace', which band re-recorded on every its demo, is middle-tempo, maimum related to IRON MAIDEN music. Poor coice of singer is a main defect...</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

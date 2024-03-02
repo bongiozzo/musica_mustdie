@@ -56,6 +56,577 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2003 news РОГАТЫЕ ТРУПОЕДЫ выходят на охоту
+
+<p>Наконец-то закончены запись и сведение альбома группы <B>РОГАТЫЕ ТРУПОЕДЫ </B>"Девки, Секс и Трупный Яд". В настоящий момент ведется мастеринг. Ориентировочная дата релиза на <B>CD-Maximum </B>- первая декада августа 2003 года. Окончательный трек-лист выглядит следующим образом:</p>
+<p> <IMG SRC="/images/news_rus/2003.07/4645.jpg" ALT="pho" width=250 height=250 hspace="15" vspace="5" border="1" align="left"> 1. Dancing on Your Grave<BR> 2. Warkraft<BR> 3. Армагеддон - День всех богов <BR> 4. This Life<BR> 5. Vengeanscythe<BR> 6. Я на солнышке гнию <BR> 7. Да будет Тьма!<BR> 8. Lady Mutant<BR> 9. Медсестра <BR> 10. Девки, секс и трупный яд<BR> 11. 666 Medley - The Anarchy of the Beast (live - bonus track)</p>
+<p> Сейчас музыканты усиленно готовятся к предстоящему концерту с CHILDREN OF BODOM, который пройдет в ДК Горбунова 16 августа 2003 года.</p>
+
+Автор: Dimas
+
+### 11.08.2003 news РОГАТЫЕ ТРУПОЕДЫ в прямом эфире
+
+<p>В ночь с 13 на 14 августа 2003 года на волнах радиостанции "Эхо Москвы" (на частотах 91.2 FM и 73.82 УКВ в Москве) Вас ожидает прямой эфир с группой <B>РОГАТЫЕ ТРУПОЕДЫ </B>в программе "Хранитель снов". В течение первого часа передачи (с часу до двух ночи) Вам представится возможность ознакомиться с дебютным альбомом российской супергруппы <B>"Девки, секс и трупный яд"</B>. Альбом выпущен компанией CD-MAXIMUM. Перед тем, как диск появится в продаже (18 августа), у Вас есть возможность послушать с него некоторые композиции. В программе Вас также ждет розыгрыш билетов на концерт группы 16 августа в ДК Горбунова, на разогреве у CHILDREN OF BODOM.</p>
+
+Автор: Dimas
+
+### 22.08.2003 news Ученье свет, да будет тьма - 2
+
+<p><IMG SRC="/images/news_rus/2003.08/4739.gif" ALT="pho" width=224 height=300 hspace="15" vspace="5" border="1" align="left">31 августа 2003 года в Р-клубе состоится фестиваль тяжелой музыки "Ученье свет, да будет тьма - 2 " при участии команд:</p>
+<p> КУВАЛДА (San-Klepano, Ryazan' oblast)<BR> ARTEMESIA (Moscow)<BR> INEXIST (Yaroslavl')</p>
+<p> Специальные гости концерта - РОГАТЫЕ ТРУПОЕДЫ</p>
+<p> Начало концерта в 18:00</p>
+<p> Стоимость билетов: <BR> в предварительной продаже - 120 рублей, <BR> в день концерта - 150 рублей</p>
+<p> Адрес клуба: г. Москва, 4-й Рощинский проезд, д.19 ( м. Тульская)</p>
+
+Автор: Dimas
+
+### 19.09.2003 articles Children of Bodom в Москве: угар по-фински
+
+<p>16 августа. Летний вечер. Праздник на улице миталистов. Children of Bodom. Промоутерская компания Big Brothers продолжает знакомить нас с тяжёлой миталической сценой соседней Финляндии, и на этот раз - родоначальники финской ветви melodic death metal.</p>
+<p>Концерт начался даже немного раньше заявленного времени, вот ведь как бывает. Не успел зайти в зал, а разогрев уже оказывается идёт полным ходом. Трупоеды в окровавленных халатах уже вовсю бесчинствуют на сцене. Некрозавр, Спиногрыз... остальных не видать, окутаны клубами смрадного дыма. Преданные фэны-некропехотинцы рубяцца у сцены в диком угаре, все прочие восторженно слушают и внимают. Всего каких-то пара лет группе, а уже известны в обеих столицах, есть узнаваемые популярные в народе песенки, диск на CD-Maximum вышел только что, и вот она слава - тысячный зал Горбушки. Что ж, нормально вынесли груз славы и ответственности, отыграли, не напрягаясь, будто в том же Р-Клубе. Молодцы.</p>
+<p>Children of Bodom долго ждать не заставили. После краткой технической паузы, даже пива выпить не успел, - инструментальный проигрыш, тра-ля-ля, Hate Me... и понеслась! Профессионализм, отменное владение инструментами и в то же время искренняя отдача. И как итог - тёплый приём публики, неповторимая адски душевная атмосфера. С первых же песен пробиться ближе к сцене невозможно, давит и трясёт уже в середине зала. Кто-то предпочёл отойти взад и спокойно смотреть оттуда, ну а те, кому удалось пролезть вперёд, в полной мере ощутили прелести эпицентра настоящего митального концерта. Давка, жара, мясорубка и рубилово, затихающее слегка на время соляков, падающие сверху тела в тяжёлых ботинках. Да уж, тела - это отдельная тема. На сцену вылазили по пять человек за раз. Кто увроачивался от секьюрити, а кто и не успевал, и тогда завязывалась потасовка, за которой и музыкантов порой не было видно. А уж сам концерт - постоянная фирменная дуэль скоростных техничных риффов Алекси и безумных клавиш Янне, барабанная доллбёжка Яски - некогда и дух перевести. Алекси - фронтмен, вовсю красовался на сцене, так и эдак разворачивал гитару, приседал, играя соляки. В перерывах между номерами смачно плевался направо и налево, перемежая обычную речь разнообразными факингфаками, мазафаками и тому подобным словесным рок-н-рольным мусором. Душка. Под пристальным вниманием - новый гитарист Роопе, рекрутированный из Sinergy взамен ушедшего Александра Куоппалы. Хорош. Смотрится, будто всегда играл в Children of Bodom. В дыму и копоти скрываются барабанщик и клавишник. Тьму прорезают сполохи и лучи света. Красота! И над всем этим - безумный убийца с озера Бодом, смотрящий в зал с подсвечиваемого задника. Народ поёт хором все песни, и не только признанные боевики "Silent Night, Bodom Night", "Lake Bodom", "Bodom after Midnight". Угар полный, но всё же, как будто этого мало, кто-то надул воздушные шарики и они перекатывались по рукам и головам в зале, добавляя ирреальности происходящему. Под конец среди прочего исполнили новый шлягер "Hate Crew Death Roll" с одноимённого альбома, по очереди были представлены все музыканты, и до свидания.</p>
+<p>После концерта, как водится, массовое распитие пива по пути к метро и около метро, обсуждение концерта, недовольная милиция. Теперь с наступлением осени и открытием нового сезона концерты будут один за другим, и хочется надеяться, что они пройдут не хуже.</p>
+Автор: Morsus
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 30.10.2003 news TOTAL FUCKING ARMAGEDDON
+
+<LABEL id=HbSession SessionId="2054852521"><IMG height=318 alt="" hspace=15 src="/images/shows_rus/2003.10/5257.jpg" width=250 align="left" border=0>29 ноября 2003 в субботу в клубе Релакс<BR>состоится фест, приуроченный к празднованию очередного Конца Света:<BR>"<B>TOTAL FUCKING ARMAGEDDON</B>!"<BR><BR>В программе Судного Дня:<BR><BR><B>INEXIST</B> (Ярославль)<BR><B>РОГАТЫЕ ТРУПОЕДЫ<BR>SEDUCER'S EMBRACE<BR>CRYSTAL ABYSS</B><BR><BR>и специальные гости концерта - группа<BR><B>MORRAH</B> (Санкт-Петербург)<BR><BR>Заключительную панихиду по планете отметит <B>TOTAL FUCKING JAM-SESSION</B>!<BR><BR>Начало в <B>18:00</B><BR><BR>Вход по флаеру - <B>120</B> р. / Без флаера - <B>150</B> р.<BR>----------------------------------------------------------------<BR>Адрес клуба: м. "Севастопольская" или "Каховская", <BR>Большая Юшуньская ул. 1а, <BR>гостиница "Севастополь", корпус 6<BR><BR></LABEL>
+Автор: Dimas
+
+### 15.11.2003 news День рождения группы MORRAH в СПб
+
+Концерт состоится 14 декабря 2003 года в<BR>RED CLUB (Санкт-Петербург, ул. Полтавская, 7).<BR>Начало в 18.00.<BR><BR>В программе выступления групп:<BR><B>MORRAH<BR>WOLFSANGEL<BR>STALWART<BR>РОГАТЫЕ ТРУПОЕДЫ</B><BR><BR>Организатор праздника - Rockhell.ru<BR><BR>Стоимость билетов - 120 руб.<BR>
+Автор: Vit Belov
+
+### 03.12.2003 news Смена состава в РОГАТЫХ ТРУПОЕДАХ
+
+<P><LABEL id=HbSession SessionId="2680036746">Так получилось, что концерт в Релаксе&nbsp;29 ноября&nbsp;с</LABEL><LABEL SessionId="2680036746">тал последним для текущего состава РОГАТЫХ ТРУПОЕДОВ. По личным разногласиям группу покинул барабанщик Череподробильник.&nbsp;Группа искренне благодарна ему за то время, что он провел с ними, и надеется, что его дальнейшая музыкальная карьера сложится успешно. К счастью, в настоящий момент замена Череподробильнику уже найдена, а потому концертный график группы остается без изменений. Место за барабанной установкой теперь будет занимать Душежнец. Свой концертный дебют новый участник РОГАТЫХ ТРУПОЕДОВ отметит на предстоящих выступлениях в городе Санкт-Петербурге 13 и 14 декабря.</LABEL></P>
+Автор: Dimas
+
+### 28.12.2003 reviews Да будет тьма!
+
+<P align="left"><B>Рогатые Трупоеды</B>, самый удачный проект на отечественной металл-сцене уходящего года, сделал очень важный шаг в своём существовании. Одно дело – концерты (какими бы чумовыми они не были) и тусовка, совсем другое – альбом. Диск вышел удачный. Три хита: <B>“The Anarchy of the Beast”,</B> <B>“Я на солнышке гнию”</B> и <B>“Девки, секс и трупный яд”.</B> Противоречивые (как показатель класса и интереса) отзывы, но в своей большей части положительные.</P>
+<P>Много было сказано о якобы совковости, глупости и примитивности музыкального материала, непрофессионализме. Я хочу остановиться на другом. Существует определённое количество людей, воспринимающих группу как один большой прикол, стёб. Эти люди не очень-то и любят дэт-метал. Случайно услышав песню «Я на солнышке гнию» они испытали примерно то же чувство, что испытывают металлисты, смотрящие «Пип/Shit-парад». (Я знаю много таких :)) Этот диск вам не нужен. Покупать его не стоит потому, что альбом на три четверти состоит из классного дета, с интересными гитарным рифами, барабанами и отличным гроулом. Справедливости ради стоит сказать, что индивидуальная непереносимость выявляется лишь опытным путём.</P>
+Автор: Uneral
+
+### 01.01.2004 news Эксклюзивный концерт в Р-клубе
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%"></TR>
+<TR UNSELECTABLE="on" hb_tag="1"></TR></TBODY></TABLE>
+<P>JC-SOUND PROD. представляет 31 января в Р-клубе&nbsp; эксклюзивный концерт, в котором примут участие одни из самых лучших представителей нашей отечественной metal-сцены! Такой сильный состав участников в одном концерте за последнее время явление достаточно редкое и по-своему в некоторой степени сенсационное! Судите сами на одной площадке выступят:</P>
+<P><B><IMG height=214 alt="" hspace=10 src="/images/shows_rus/2004.01/5855.jpg" width=300 align="left" border=0>CATHARSIS<BR>РОГАТЫЕ ТРУПОЕДЫ</B></P>
+<P><B>PSILOCYBE LARVAE</B> (г. Выборг; black/death - одна из самых перспективных и уважаемых команд нашей сцены);<BR><B>GREAT SORROW</B>&nbsp;(г. Санкт-Петербург; второй концерт в Москве после воссоединения);<BR><B>Затмение</B> (хеви/пауэр).</P>
+<P>Первая группа появится на сцене в 17:30!<BR>Билеты в предварительной продаже в магазинах "Зиг-Заг" и "У дяди Бори" - 150р.<BR>В день концерта с флаером - 180; без - 200!<BR><BR>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21</P>
+Автор: Dimas
+
+### 05.03.2004 news CD-MAXIMUM Fest
+
+<P>04 апреля 2004 года в московском <B>Р-Клубе</B> состоится беспрецедентная акция, аналогов которой ещё никогда не было! Концертное агентство <A href="http://www.jcsound.ru/">JC-SOUND PROD</A>., совместно с одним из ведущих российских лейблов <B><A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></B>, с гордостью представляют первый фестиваль, посвящённый группам и продукции исключительно одной издающей компании - <B>CD-MAXIMUM Fest</B>. </P>
+<P><IMG height=213 alt="" hspace=15 src="/images/shows_rus/2004.04/6229.jpg" width=300 align="left" border=0>Программа фестиваля будет включать в себя множество приятных сюрпризов. Во-первых, в рамках концерта пройдет презентация первого долгожданного альбома московского коллектива <B>ATRA MUSTUM</B>, который своими живыми выступлениями уже давно снискал заслуженное уважение со стороны black death тусовки Москвы. Следующим подарком от организаторов и лейбла станет Супер-распродажа лучших позиций из каталога <A href="http://www.cd-maximum.ru/">CD-MAXIMUM </A>(в первую очередь вы сможете приобрести альбомы всех выступающих в этот день команд) по просто смешной цене в 100р.!<BR>Ну, и конечно же, кульминацией фестиваля станет грандиозное выступление ведущих групп лейбла, давно не нуждающихся в представлении:</P>
+<P><B>ATRA MUSTUM</B>&nbsp;(презентация альбома "<B>Black Autumn</B>")<BR><B>РОГАТЫЕ ТРУПОЕДЫ</B></P>
+<P><B>АРДА</B>&nbsp;(ex-<B>ЭПИДЕМИЯ</B>)<BR><B>ARIDA VORTEX</B></P>
+<P><B>MELANCHOLY</B></P>
+<P>Организаторы гарантируют вам отличное настроение, несколько часов замечательной музыки, качественный звук и просто великолепный вечер!</P>
+<P>Начало праздника в <B>18:00</B>!<BR>Цена билетов в предварительной продаже в кассе клуба и магазине «У дяди Бори» - <B>150</B>р.<BR>В день концерта в кассе клуба с флаером - <B>180</B>р.; без - <B>200</B>р.</P>
+<P>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21</P>
+Автор: Dimas
+
+### 26.04.2004 news Рогатые Трупоеды сняли песню с альбома
+
+<SPAN class=postcolor><B><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.04/6419.jpg" width=300 align="left" border=0>"Рогатые Трупоеды"</B> были вынуждены снять со своего дебютного альбома "<B>Девки, секс и трупный яд</B>"&nbsp;песню "<B>Я на солнышке гнию</B>" из-за совершенно неожиданно возникших проблем с авторами&nbsp;оригинального трека к мультику про Львенка и Черепаху. По словам музыкантов, "<I>бОльшей глупости мы и представить себе не могли. Поздравляем, гонения на рок-н-ролл продолжаются!&nbsp;Всем спасибо...</I>"</SPAN>
+Автор: Vit Belov
+
+### 11.06.2004 articles Хроника: Бенефис РОГАТЫХ ТРУПОЕДОВ в Р-клубе – Горбушкин рок продолжает «наступление» - Alex Strapoli обещает лучший альбом RHAPSODY – Jeff Waters задерживает зарплату – Почему AYREON вышел на Irond? – Christofer Johnsson рад и полон планов.
+
+<P><B><I>Бенефис РОГАТЫХ ТРУПОЕДОВ в Р-клубе – Горбушкин рок продолжает «наступление» - </I><I>Alex </I><I>Strapoli обещает лучший альбом </I><I>RHAPSODY– </I><I>Jeff </I><I>Waters задерживает зарплату – Почему </I><I>AYREON вышел на </I><I>Irond? – </I><I>Christofer Johnsson рад и полон планов.</I></B></P>
+<P>Несмотря на окончание концертного сезона (летом нормальное количество народа могут собрать только зарубежные звёзды), прошедшая неделя порадовала некоторым количеством неплохих концертов. Под давлением обстоятельств личного характера мною было принято парадоксальное решение. Из всего обилия концертов (это и прог-фест, и 10-летие <B>SHADOW HOST</B>) я выбрал сольный концерт <B>РОГАТЫХ ТРУПОЕДОВ</B> под пафосным лозунгом ‘<B>За***ли кавер-парти’</B> – название остроумное, если учесть, что <B>Трупоеды</B> активно паразитируют на чужом материале. Разогревали новейших «звёзд» российского “death”-metal три московских коллектива: <B>THE NEVERLAND, ICEWIND BLAST </B>и<B> РЕТРИЕМ</B>. Поганейший звук, которым сопровождалось данное выступление, вряд ли позволил обычному слушателю адекватно оценить эти группы, но я попытаюсь это сделать, благо у каждой из них есть свои небольшие, надо признать, плюсы. <B>РЕТРИЕМ </B>представили русскоязычный heavy-metal, оригинальность которого оценить мне не удалось, зато соло-гитарист выдавал неплохие партии. <B>ICEWIND BLAST</B>предложили melodicdeath-metalс примесью танцевальных мотивов в духе <B>FINNTROLL</B>. Сама по себе эта смесь не очень понятна, поэтому, пожалуй, это была самая странная и менее удобоваримая группа вечера. <B>THE NEVERLAND </B>совсем не повезло со звуком, они так долго настраивались, что вокалиста задвинули так далеко, что я не смог по началу даже разобрать поёт он чистым голосом, или использует более брутальные варианты вокала. Сквозь эту кашу мне удалось услышать некоторое количество вполне приятных мелодий, плюс здесь тоже неплохо выступил соло-гитарист, которому помогала клавишница. В общем и целом, я не могу посоветовать ни одному читателю, посетить концерт вышеупомянутых групп. Быть может, в менее кашеобразном варианте Вы сможете отыскать нечто интересное, но в том виде, который был представлен в пятницу в Р-клубе, коллективам лучше не выступать. Так только можно отпугнуть и без того маленькую аудиторию слушателей underground-metal. Мой совет коллективам, попытаться организовать себе качественный sound, либо не выходить на сцену вовсе. <B>РОГАТЫЕ ТРУПОЕДЫ</B> в этот же вечер показали, что в Р-клубе подобный звук возможен: плотный, акцентированный и в тоже время понятный всем и каждому. <B>РТ</B> можно назвать популяризаторами death-metal в массах. Пусть истинные любители этого стиля вряд ли даже назовут музыку группы этим словом, зато масса подростков получает заряд положительной энергии от плотных рифов и грамотного вокала. Также хочу отметить песню «<B>Девки, секс и трупный яд</B>», подобного death-rock’n’roll зачастую не хватает для весёлого времяпрепровождения. Так что, концерт <B>РТ</B> можно порекомендовать, как ни к чему не обязывающее приятное шоу, особенно подходящие для распития пива, вплоть до полного отключения разума.</P>
+<P>Получив порцию впечатлений в пятницу, я продолжил их коллекцию в субботу. В Горбушкином дворе (торговый центр, не путать с домом культуры) прошёл бесплатный концерт из серии нарождающегося фестиваля «<B>Горбушкин Рок</B>». Прошлое моё выступление об этом мероприятии не осталось незамеченным его организаторами. Мне было выдвинуто множество контраргументов, главным из которых было утверждение о договорённости с руководством торгового центра об отсутствие рекламы данных фестивалей. Несмотря на отсутствие таковой, в этот раз у сцены собралось немного больше народу, чем в прошлый раз (человек 70). Мне удалось услышать только два коллектива <B>HUNTERS </B>и <B>MANIC DEPRESSION</B>. <B>HUNTERS </B>– группа бывших участников <B>ARCHONTES </B>вряд ли обратит на себя внимание искушённого слушателя. Незатейливый hard-rock с не очень хорошим вокалом. А вот <B>MANIC DEPRESSION</B>я ждал с интересом, так как всем известно, что thrash-metal чуть ли не лучше всех стилей звучит вживую. Ожидания меня не обманули: отличнейший звук, агрессивнейшее исполнение и стойкое желание у слушателей начать рубиться уже сейчас, несмотря на то, что должная доза алкоголя ещё не принята. Звук позволял сделать вывод о качестве материала<B>. MANIC DEPRESSION</B>сыграли несколько новых песен, которые должны расстроить всех фанатов их предыдущего альбома (пусть их и не много). Группа подалась в какие-то эксперименты, песни большей частью среднетемповые, какие-то «качовые». Вживую, мягко говоря, они прозвучали неубедительно. Жаль, если группа запишет альбом в подобном духе. Возвращаясь к организаторам этого концерта, хочу им сказать, что странная политика концертов ни для кого не окупает затраченных сил и эмоций. Вряд ли проходящие мимо рядовые покупатели с видеомагнитофонами и телевизорами помчались покупать диски, выступающих команд. Ну, ничего, подобными темпами на следующий концерт придёт человек 100, а дальше больше…</P>
+<P>На прошлой неделе клавишник <B>RHAPSODY Alex Strapoli </B>в интервью голландскому журналу <B>Lords of Metal </B>рассказал о новом альбоме группы ‘<B>Symphony Of Enchanted Lands, Part II’</B>, который выйдет осенью на <B>SPV</B>. «<I>Каждый альбом </I><B><I>RHAPSODY</I></B><I> – шаг в развитии группы», </I>- начал <B>Alex</B><I>. «На новой пластинке мы совершим невероятный прогресс. У нас есть оркестр, хор и </I><B><I>Christopher </I><I>Lee</I></B><I> (английский артист, сыгравший Сарумана во Властелине Колец, также оперный певец, прим. авт.). Новый альбом наконец-то покажет, что мы задумывали на прошлых пластинках. Там будет самый «величественный» звук, который можно только себе представить. В прошлом подобное не было возможно по разным причинам: отсутствие денег, технологии, нужных контактов</I>». Также<B> Strapoli </B>рассказал о влиянии на него трилогии «<B>Властелин Колец</B>»: «<I>Этот фильм изменил мой взгляд на музыку и на </I><I>fantasy, вообще. Мы посвящаем новый альбом этому фильму и книге. К сожалению, мы не имеем права использовать настоящие имена и события. Мы были поражены, когда узнали о возможности участия в записи одного из актёров из этого фильма </I><B><I>Christopher </I><I>Lee</I></B><I>. Сколько мы заплатили ему? Много, но это того стоит</I>». Аминь! Единственное, что мы можем сказать. Вполне возможно, что с переходом на новый лэйбл, <B>RHAPSODY </B>сделают прорыв, не даром же они назвали свой альбом второй частью самого интересного опуса группы?</P>
+<P>Ещё одно интересное интервью тому же журналу дал <B>Jeff Waters </B>из <B>ANNIHILATOR</B>. Он подтвердил то, о чём догадывались любители группы. «<B><I>ANNIHILATOR</I></B><I> компания одного человека. Все остальные музыканты просто работают на меня. Если год хороший, то я выплачиваю им постоянные дивиденды, если же нет, то они не могут рассчитывать на чек каждый месяц. По этой причине у </I><B><I>ANNIHILATOR</I></B><I> постоянно меняется состав, в год, когда мы не выпускаем альбома денег очень мало и музыканты разбегаются, кто куда</I>». Также <B>Waters </B>рассказал забавный анекдот из истории его общения с журналистами: «<I>Несколько лет назад мы были в туре вместе с<B> JUDAS </B></I><I><B>PRIEST</B>. В Греции я давал интервью одному крупному журналу и на вопрос о музыкальном радиовещании в Канаде ответил, мол, на станциях крутят всякое дерьмо, типа </I><B><I>METALLICA, </I><I>JUDAS </I><I>PRIEST</I></B><I> или </I><B><I>IRON </I><I>MAIDEN</I></B><I>. На следующий день на моей совместной пресс-конференции с </I><B><I>K.</I><I>K. </I><I>Downing </I></B><I>(</I><B><I>JUDAS</I><I>PRIEST</I></B><I>, прим. авт.) этот же журналист задал мне вопрос, почему я в туре с </I><I><B>JP</B>, если считаю их музыку гавном. Все были сконфужены, а я стал объяснять, что я не то имел в виду и.т.п. На это журналист объявил меня лжецом и представил плёнку с записью разговора, как доказательство. Очень неприятная история</I>».</P>
+<P>На прошлой неделе произошло ещё одно событие, которое просто нельзя игнорировать, вышел новый двойной альбом <B>AYREON</B>. В его записи и на этот раз приняли участие множество известных вокалистов. Например<SPAN>, <B>James LaBrie (DREAM THEATER), Devon Graves (DEAD SOUL TRIBE), Devin Townsend (STRAPPING YOUNG LAD), Mikael Akerfeldt (OPETH) </B></SPAN>и многие другие. Концептуальный альбом о человеке, который находится в коме и его осаждают разнообразные его чувства от любви до ярости. Тяжело нарисовать подобную картинку силами музыки, но <B>Arjen </B>это удалось. Подробнее мы обсудим эту тему в рецензии на этот альбом, а вот об одной вещи хотелось бы поговорить уже сейчас. Новый альбом <B>AYREON </B>вышел на <B>Inside Out</B>, а в России его почему-то издал <B>Irond</B>, а не <B>Soyuz </B>– официальный представитель этой фирмы в России. Мы обратились за разъяснениями к нашим «вечным» героям. <B>Юра «Хирург» (Irond)</B>: «<I>Мы издали этот альбом, п</I><I><SPAN>отому что права на Россию остались у <B>Лукассена</B>, а вот почему он отдал их нам - это результат работы нашего лицензионного отдела, личных контактов и так далее! Должно быть, его убедила наша работа, убедили наши релизы, образцы которых, мы отсылали, пистолет у его виска&nbsp; никто не держал!</SPAN></I><SPAN>». <B>Евгений Аксёнов (</B></SPAN><B>Soyuz):</B> “<I>Здесь просто исключительный случай.&nbsp;Подобные вещи время от времени возникают, как у нас, в нашей стране, так и во всём мире. </I><I><B>Айронд</B></I><I> изначально заключили контракт напрямую с </I><I><B>А.А.Лукассеном</B></I><I> на лицензионное издание всех альбомов </I><I><B>AYERON</B></I><I> (включая и новый)&nbsp;в России. Точно такая же ситуация обстоит и с новым альбомом </I><I><B>Nightwish</B></I><I>. На "фирме" и на всю Европу&nbsp;его выпускает&nbsp;</I><I>Nuclear Blast</I><I>, но вот лицензионное издание&nbsp;в России оставлено за </I><I>Фоно</I><I>. Поскольку первоначальным правообладателем на работы Nightwish всё же является <B>Spinefarm</B> (наверняка и в Финляндии у них эксклюзив), то они посчитали права на Ночную Нужду в России оставить у своих давних партнёров. В данном случае </I><I>ФОНО</I><I>, которые давно и успешно работают с этой группой в нашей стране</I>». Странно, что Евгений рассказал нам всё про <B>Фоно</B> и ничего не рассказал про <B>Soyuz</B>. Между прочим, нам стало известно, что права на <B>NIGHTWISH</B> предлагались и другим российским лэйблам, просто <B>Фоно </B>выиграли в конкурентной рыночной борьбе. Я думаю, при желании и <B>Soyuz </B>мог побороться за <B>AYREON</B>, ведь эта пластинка явно украсила бы их каталог, в котором progressive больше, чем у других наших контор вместе взятых.</P>
+<P><B></B></P>
+<P>Ну, и на закуску немного о <B>THERION</B>. Великая группа великого человека, не иначе. <B>Christofer Johnsson</B> опубликовал свои первые впечатления от релиза сразу двух своих альбомов ‘<B>Sirius B</B>’ и ‘<B>Lemuria</B><SPAN>’<B>. “</B><I>Наконец-то альбомы вышли, и могу сказать, что 99% всех отзывов отличные. Я ещё не успел детально ознакомиться с мнением простых фэнов, но не всё сразу. Кроме того, что я дал кучу интервью в последние 2 месяца, я был ещё и занят новым фэн-клубом </I></SPAN><I><B>THERION</B></I><I>, который расположен по адресу <B>therionsociety.com</B> . Мы готовимся к концертным выступлениям, у нас новый барабанщик <B>Petter Karlsson</B>, также с нами поедет в тур <B>Mats </B></I><B><I>Leven (</I><I>AT </I><I>VANCE, </I><I>ex-</I><I>Yngwie </I></B><I><B>Malmsteen)</B><SPAN><B>.</B> К сожалению, с нами не будет <B>Sarah Jezebel Deva</B>, которая заболела. Её заменит молодая певица <B>Karin Fjellander</B>. Кроме всего прочего, мы (музыканты </SPAN><B>THERION</B></I><I>) образовали </I><I>death-</I><I>metal<SPAN> проект <B>DEMONOID</B>, альбом которого выйдет в июле</SPAN></I><B>».</B></P>
+Автор: Vit Belov
+
+### 31.10.2004 articles IMPALED NAZARENE в Москве: сомнительное шоу
+
+<P>Событие: концерт IMPALED NAZARENE в Москве в рамках ‘Armageddon Over Russia Tour<BR>Участники: DARK INFINITY, THE NEVERLAND, SEDUCER’s EMBRACE, РОГАТЫЕ ТУРПОЕДЫ, IMPALED NAZARENE<BR>Организатор: JC Sound<BR>Место: Р-Клуб, Москва</P>
+<P>30 октября Москву вновь посетили финские маньяки-алкоголики IMPALED NAZARENE. Уже в первый раз их выступление запомнилось только массовым стриптизом на сцене СДК МАИ, поэтому изначально от этого концерта ждали, прежде всего, подобных представлений, а не музыкальных откровений. Ожидания оправдались лишь отчасти, но, как всегда, сначала.</P>
+<P>Вечер начался так же, как и закончился. Бездарно, но смешно. Black-metal коллектив DARK INFINITY нашёл деньги, чтобы выступить перед кумирами пьяной молодёжи, но не нашёл барабанщика. К сожалению, в Р-клубе не нашлось нужной аппаратуры, чтобы воспроизвести их MIDI, поэтому слушатели, пришедшие к началу в 17-00, могли увидеть уникальное выступление. True Black Metal без барабанов, вообще. Завораживающие звуки. Сразу хочется выть на луну и кого-то ударить (а может спалить церковь?). Вполне вероятно, это будущее стиля, и DARK INFINITY – первопроходцы. Скоро мы будем слушать блэкарей в корпс-пэйнте под одну гитару. А если серьёзно, то группе стоило отказаться от выступления, чем позориться в таком виде.</P>
+<P>В отличие от THE NEVERLAND, которых я слушаю в этом году регулярно, поэтому и пропускаю в отчёте, выступления SEDUCER’s EMBRACE проходили мимо меня последнее время. Что ж, группа сделала ощутимый шаг вперёд. Звук на этом выступлении SE был просто безупречным, а главное, новый материал. Более взрослый, более металлический. Это уже не просто набор мелодий, хороших и не очень, а построение композиции на уровне лучших авторов жанра. Приятно удивили несколько забойных вещей, которые уже можно сравнивать не с IN FLAMES, а с KATAKLYSM, например. Ждём новый альбом, который имеет все шансы при грамотной реализации. В качестве некоторого PS. Последний кавер на песню Nick Cave с Некрозавром в одной из ролей впечатляет, но в концовке не мешало бы добавить скорости и превратить её в death-metal. </P>
+<P>Сольник РОГАТЫХ ТРУПОЕДОВ описывался мною совсем недавно. Добавлю несколько слов. Несмотря на то, что шоу и подача материала у ребят, одни из лучших на московской сцене, им не стоит думать, что их собственное творчество заслуживает столь же высокого внимания. Взялся играть «тупо» и «забойно», перестань сочинять песни на 3-4 минуты. Пары минут на каждый набросок, типа ‘Die, Die, Bitch’ вполне хватило бы. Энтузиазм фэнов изрядно страдал, когда РТ начинали третий или четвёртый куплет в своих песнях. А так, всё прекрасно, например, многим группам не помешало бы включить в свой сэт песни нон-стоп, как у Некрозавра и компании.</P>
+<P>Во время выступления ТРУПОЕДОВ выяснилось, что к широкой группе «отключенцев», валяющейся по всему клубу, добавился один член, который мог запросто разрушить идиллию в карманах местных промоутеров. Из VIP отделения Р-клуба, есть и такое, вынесли Mika Luttinen и утащили прямиком на улицу. Поползли слухи, что фронтмэну финнов требуется врачебное вмешательство, но всё оказалось банальнее и ограничилось занюхиваниями и полосканиями. Mika выглядел плачевно. Еле держался на ногах и чего-то вякал на финском наречии. Выступление хэдлайнеров задерживалось, из-за того, что рвота никак не проходила. Уж не знаю, то ли это происшествие выбило IMPALED NAZARENE, то ли группа сама такая, но их выступление стало таким же true, как шоу DARK INFINITY, только с барабанами. Luttinen как-то дополз до сцены, но держался на ногах очень некрепко, всё время норовил упасть и что-то бурчал себе под нос, видимо считая это пением. Остальные музыканты, хоть и держались в стоячем положении, мало, чем отличались от «сладкоголосого». Их музыка напоминала скорее punk, при чём punk самого низкого пошиба. Невеселый, неугарный, кашеобразный. Думается мне, что теперь никто не захочет вести IN в Москву. Несколько неприятных минут организаторам, думается, пришлось провести, да и зрителей не заманишь теперь только голыми задницами и блевотиной во дворе.&nbsp;&nbsp; </P>
+<P>Сслыки по теме:</P>
+<P><A href="/ru/topic/120766/">http://musica.mustdie.ru/ru/topic/120766/</A> - обсуждение в форуме</P>
+Автор: Vit Belov
+
+### 11.01.2005 articles РОГАТЫЕ ТРУПОЕДЫ: &quot;Нам не дают покоя лавры Мелисова!&quot;
+
+<P><IMG height=217 alt="" hspace=0 src="/images/articles_rus/2005.01/7653.jpg" width=250 align=left border=5>РОГАТЫЕ ТРУПОЕДЫ – явление на нашей сцене. Недавно было объявлено, что группа едет в совместный тур с ещё одним явлением – АнЖ. Мы связались с Некрозавром и прояснили ситуацию.<BR>Вопрос: В прошедшем году Вы дали большое количество концертов. Поменялся цвет Вашего сценического имиджа. Что следует ожидать поклонникам от Ваших шоу в 2005 году?</P>
+<P>Ответ: Хмммм, сложный вопрос. Но думаю, что до выхода нового альбома, который все еще находится в процессе написания (осталось, как обычно, совсем чуть-чуть) никаких глобальных изменений не предвидится. Впрочем, не хочу загадывать, лично я никогда не знаю, что может взбрести в мою дурную голову перед тем или иным концертом.</P>
+<P>Вопрос: Вы едете в тур с АНЖ. Что ты думаешь об этой группе? Чем поможет Вам это турне?</P>
+<P>Ответ: Едем. :-) О группе АнЖ я особенно много не думаю, так как последнее время вообще слушаю музыку, прямо скажем, далекую от металла, а так - ну что сказать, нормальная группа, кому-то нравится, кому-то нет, во всяком случае, это имеет право на существование. Что же касается того, чем этот тур поможет нам - думаю, что это будет достаточно интересный экспириенс, мы проедемся сразу по трем городам, в которых мы никогда не были, посмотрим новые места, покажемся новой аудитории.</P>
+<P>Вопрос: Какие из групп, с которыми Вы выступали вместе произвели на Вас большее впечатление? Из наших, из зарубежных?</P>
+<P>Ответ: Вообще, на самом деле, тут я плохой судья, ибо обычно я приезжаю на концерт непосредственно перед собственным выступлением, и уезжаю сразу после него, так уж исторически сложилось. Впрочем, могу сказать, что очень приятно было работать с Children of Bodom - прекрасные ребята, абсолютно не напряжные и не пафосные. Из наших групп, пожалуй, стоит отметить Catharsis и Seducer's Embrace. </P>
+<P>Вопрос: Вы заключили некое соглашение с JC Sound. Довольны ли Вы сотрудничеством с ними? Что оно Вам принесло?</P>
+<P>Ответ: Да, вполне довольны, по крайней мере, на том уровне, который мы сами для себя запланировали на этот год. А принесло оно нам в первую очередь то, что у меня лично теперь абсолютно не болит голова по поводу организации концертов, того, каким номером мы будем выступать, сколько у нас будет времени, и сколько нам заплатят денег. Кроме того, JC-Sound, как правило, организуют концерты, на которые приходит много народу, а это самое главное, ибо играть перед пустым залом, в общем-то, не очень интересно. Ну и, кроме того, это была замечательная антиреклама - ты не поверишь, сколько народу мне сказали, что мы "зажрались" и "продались" сразу после того, как мы объявили о заключенной сделке. ;-)<BR>Вопрос: Была ещё одна PR-акция в этом году, связанная с "запрещённой песней". Не объяснишь подробнее, каким образом на Вас вышли?<BR><IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.01/7652.jpg" width=250 align=right border=5>Ответ: (с искренним возмущением) Это была никакая не PR-акция, это были натуральные гонения на рок-н-ролл в нашем лице :)))))))))) А получилось все до банальности просто - есть такая вещь как Российское Авторское Общество, которое собственно и заморочилось тем, что у нас на диске появилась переработка песни Гладкова, и вынудили нас снять эту песню с диска.</P>
+<P>Вопрос: Ну, а деньгами никак нельзя было этот вопрос решить?</P>
+<P>Ответ: Дешевле было киллера нанять :)))))))))))))))))</P>
+<P>Вопрос: Ты упомянул о новом альбоме. Что будет на нём принципиально нового? Сообщи названия песен. Будут ли какие кавера? Особенные фишки, которыми прославились Рогатые Трупоеды? Где он выйдет?</P>
+<P>Ответ: Принципиально нового на нем будет то, что он будет концептуальным (да, нам не дают покоя лавры Заммета и Мелисова! :) Повествование будет вращаться вокруг семи смертных грехов, рассматриваемых в контексте бродячего цирка-шапито, или, говоря проще, каждый персонаж будет подвержен тому или иному смертному греху от чего и помрет. В конце концов, все кончится хорошо: купол цирка обрушится на зрительный зал и все погибнут :) Среди уже точныхх названий песен будут фигурировать SnakeLust; Die, Die Bitch!; Grand Finale; Welcome to the Show; и еще точно будет песенка про сладкоежку-клоуна, подавившегося конфетками, который эта толстая сволочь отняла у маленькой девочки. С музыкальной точки зрения, альбом будет чуть-чуть побыстрее и помелодичнее, но без всякой голимой гетеборгской шведятины (увольте!) Кавер там будет, но мы его запихнем куда-нибудь хидден-треком, хватит с нас уже и истории с "Солнышком". Что же касается того, кто его издаст, сами еще пока не знаем, для начала записать надо, а там видно будет, что и как. <BR></P>
+Автор: Vit Belov
+
+### 10.02.2006 news Русское нашествие от CD-Maximum
+
+<P>Зимой-весной 2006 года, компания <B>CD-MAXIMUM</B> выпустит несколько релизов известных российских коллективов. Уже готовы к производству и скоро выйдут: </P>
+<P><B>АЛЕКСЕЙ СТРАЙК - Время полной луны</B> (melodic heavy metal)<BR><B>ЧЁРНЫЙ ОБЕЛИСК - Зелёный альбом</B> (heavy metal)<BR><B>СЕРГЕЙ МАВРИН - Откровение</B> (melodic heavy metal)<BR><B>НАТИСК - Второе дыхание</B> (hard'n'heavy)<BR>
+<P>Кроме того, в 2006 году планируются к выходу новые альбомы групп <STRONG>АРТЕРИЯ, BONEY'NEM, АРДА</STRONG> и<STRONG> РОГАТЫЕ ТРУПОЕДЫ</STRONG>, концертный альбом группы <B>ЛЕГИОН</B>, концертный альбом и dvd группы <B>КИПЕЛОВ</B>, а также dvd группы <B>ЭПИДЕМИЯ</B>. 
+<P>Помимо этого, готовятся к выходу альбомы еще некоторых российских коллективов. </P>
+Автор: Dimas
+
+### 14.03.2007 news Пятница 13
+
+<CENTER><IMG height=318 src="/images/shows_rus/2007.04/11516.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 05.12.2008 news Новый EP РОГАТЫХ ТРУПОЕДОВ
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.12/13121.jpg" width=400 align=right border=5>7 декабря 2008 г. выходит новый EP вокально-инструментального некро-шапито оркестра замогильно-веселой тревожной РОГ-музыки <STRONG>РОГАТЫЕ ТРУПОЕДЫ</STRONG> “<STRONG>The Kvlt and Troo and Eevil and Grimm and Nekro EP</STRONG>”. На релиз вошли три трека с готовящегося к выходу полноформатного альбома “<STRONG>Circus of Sins: Enter the Vices</STRONG>”, а именно: ‘<STRONG>Лень и Пламя’</STRONG>, ‘<STRONG>Die, Die, Bitch!</STRONG>’ и ‘<STRONG>Твой маленький сейф</STRONG>…’; перезаписанная версия песни ‘<STRONG>Dancing on Your Grave’</STRONG> с дебютного альбома группы, и кавер-версия на русский народный хит ‘<STRONG>Валенки</STRONG>’. Для предварительных заказов диск доступен на сайте группы <A href="http://www.trupoedy.net/">www.trupoedy.net</A></P>
+<P>Рогатые Трупоеды:<BR><STRONG>Некрозавр </STRONG>– вокал<BR><STRONG>Эксгуматор</STRONG> – гитара<BR><STRONG>Языкастый </STRONG>– гитара<BR><STRONG>Винторог </STRONG>– бас<BR><STRONG>Микроканнибал </STRONG>– барабаны</P>
+<P>Дизайн диска и новый логотип группы – <STRONG>W. Smerdulak</STRONG> (<A href="http://www.smerdulak.ru/">www.smerdulak.ru</A>)<BR>«Живьем» диск можно будет приобрести на ближайшем концерте группы 7 декабря 2008 г. в клубе «План Б», где <STRONG>Рогатые Трупоеды</STRONG> примут участие в презентации нового альбома <STRONG>Hieronymus Bosch</STRONG> ‘<STRONG>Equivoke</STRONG>’.</P>
+Автор: Vit Belov
+
+### 04.02.2009 news Sneak-preview от РОГАТЫХ ТРУПОЕДОВ
+
+<P>В рамках подготовки к выходу своего нового концептуального альбома ‘<STRONG>Circus of Sins: Enter the Vices’</STRONG> вокально-инструментальный некрошапито оркестр замогильно-веселой тревожной РОГ-музыки <STRONG>Рогатые Трупоеды</STRONG> начинает выкладывать серию sneak-previews истории, легшей в основу этой пластинки. Первый отрывок и первую иллюстрацию к буклету кисти <STRONG>Смердулака </STRONG>можно посмотреть на официальном некро-форуме <STRONG>Рогатых Трупоедов</STRONG> по адресу <A href="http://forum.trupoedy.net/">http://forum.trupoedy.net</A>&nbsp; (url= <A href="http://forum.trupoedy.net/viewtopic.php?f=3&t=45">http://forum.trupoedy.net/viewtopic.php?f=3&t=45</A>)</P>
+<P>Альбом<STRONG> ‘Circus of Sins: Enter the Vices’</STRONG> был записан в период с 2005 по 2007 год на студии <STRONG>AstaLaVista Records</STRONG> под чутким руководством <STRONG>Николая Венгржановича</STRONG>, и должен выйти в свет весной этого года. </P>
+<P>Одну из песен с ‘<STRONG>Circus of Sins: Enter the Vices</STRONG>’ – ‘<STRONG>Die, Die, Bitch!</STRONG>’ – можно послушать на официальной странице группы на <STRONG>MySpace</STRONG> – <A href="http://myspace.com/trupoedy">http://myspace.com/trupoedy</A> </P>
+Автор: Vit Belov
+
+### 17.02.2009 news РОГАТЫЕ ТРУПОЕДЫ: ВТОРОЙ ‘SNEAK-PREVIEW CIRCUS F SINS: ENTER THE VICES’ 
+
+<P><STRONG><IMG height=445 alt="" hspace=0 src="/images/news_rus/2009.02/13601.jpg" width=300 align=right border=5>Рогатые Трупоеды</STRONG> продолжают приоткрывать завесу тайны, скрывающей новый альбом группы «<STRONG>Circus of Sins: Enter the Vices</STRONG>». Новый отрывок истории, легшей в основу пластинки, и новую иллюстрацию авторства Смердулака можно посмотреть на официальном некро-форуме Рогатых Трупоедов по адресу <A href="http://forum.trupoedy.net/">http://forum.trupoedy.net</A>&nbsp; Альбом ‘<STRONG>Circus of Sins: Enter the Vices’</STRONG> был записан в период с 2005 по 2007 год на студии <STRONG>AstaLaVista Records</STRONG> под чутким руководством <STRONG>Николая Венгржановича</STRONG>, и должен выйти в свет весной этого года. <BR>Всего на ‘<STRONG>COS:ETV</STRONG>’ войдет 9 треков, на протяжении которых разворачивается кровавая история Цирка грехов:</P>
+<P>1. <STRONG>Welcome to the Show (intro)<BR></STRONG>2. <STRONG>SnakeLust (похоть)<BR></STRONG>3. <STRONG>Сахарная смерть (обжорство)<BR></STRONG>4. <STRONG>Лень и пламя (леность)<BR></STRONG>5. <STRONG>Твой маленький сейф… (алчность)<BR></STRONG>6. <STRONG>Die, Die, Bitch! (зависть)<BR></STRONG>7. <STRONG>Jungle Revenge (гнев)<BR></STRONG>8. <STRONG>Death by the Thread (гордыня)<BR></STRONG>9. <STRONG>Grand Finale (outro)</STRONG></P>
+<P>Еще одну песню с ‘<STRONG>Circus of Sins: Enter the Vices’</STRONG> – ‘<STRONG>Лень и пламя’</STRONG> – можно послушать на официальной странице группы на<STRONG> MySpace</STRONG> – <A href="http://myspace.com/trupoedy">http://myspace.com/trupoedy</A> </P>
+Автор: Vit Belov
+
+### 09.03.2009 news РОГАТЫЕ ТРУПОЕДЫ: НОВЫЙ SNEAK PREVIEW – НОВЫЙ МЕРЧ – НОВОЕ ИНТЕРВЬЮ
+
+<P><SPAN class=tit1><IMG height=444 alt="" hspace=0 src="/images/news_rus/2009.03/13694.jpg" width=300 align=right border=5>Адский некро-балаган «Рогатые Трупоеды» продолжает массированную артподготовку перед выходом нового альбома ‘Circus of Sins – Enter the Vices’. </P>
+<P></SPAN></SPAN></SPAN>На официальном форуме (link - <A href="http://forum.trupoedy.net/viewtopic.php?f=3&t=45&p=408#p408">http://forum.trupoedy.net/viewtopic.php?f=3&t=45&p=408#p408</A>) группы появился очередной отрывок из истории, легшей в основу концепции готовящегося релиза, в котором читатели смогут познакомиться с двумя новыми героями кровавой пьесы: гневливым дрессировщиком Тревольдом Фьюрелом и обленившимся факиром Анисимом Гардфруа. </P>
+<P>Как уже сообщалось ранее всего на альбом, рассказывающий о семи смертных грехах в контексте цирка-шапито, войдет 9 треков:</P>
+<P>1. <STRONG>Welcome to the Show</STRONG> (intro)<BR>2. <STRONG>SnakeLust </STRONG>(похоть)<BR>3. <STRONG>Сахарная смерть</STRONG> (обжорство) <BR>4. <STRONG>Лень и пламя</STRONG> (леность) <BR>5. <STRONG>Твой маленький сейф…</STRONG> (алчность) <BR>6. <STRONG>Die, Die, Bitch!</STRONG> (зависть) <BR>7. <STRONG>Jungle Revenge</STRONG> (гнев) <BR>8. <STRONG>Death by the Thread</STRONG> (гордыня) <BR>9. <STRONG>Grand Finale</STRONG> (outro)</P>
+<P><A href="http://trupoedy.printdirect.ru/index.php?action=addtocart&product=139696"><IMG height=280 alt="" hspace=0 src="http://printdirect.ru/blog_link/139696/000000/CCCCCC" width=240 align=left border=5></A>Оформление релиза целиком взял на себя ведущий российский «металлический» художник <STRONG>W.Smerdulak,</STRONG> известный широкой зрительской аудиторрии по работам с такими группами, как Аркона, Россомаха, Морра и многими-многими другими.</P>
+<P>Кроме того, начиная с прошлой недели в сети работает магазин с уникальным мерчандайзингом группы. Вашему вниманию предлагается три вида футболок (мужские и girlie), кружки с новым логотипом группы, значки и милейший плюшевый мишка.</P>
+<P><SPAN class=tit1><IMG height=135 alt="" hspace=0 src="/images/news_rus/2009.03/13693.jpg" width=100 align=right border=5></SPAN></P>
+<P>Ну, и наконец, начиная с этой недели, в продаже появился 49-й номер главного российского издания о тяжелой музыке журнала Dark City, на "чОрных страницах" которого вы сможете почитать эксклюзивное интервью с Некрозавром – вокалистом «Рогатых Трупоедов». Вопросы Некрозавру, рискуя жизнью и даже посмертием, задавал один из лучших авторов журнала Георгич. </P>
+<P>&nbsp;</P>
+<P><SPAN class=tit1></SPAN>&nbsp;</P>
+Автор: Vit Belov
+
+### 16.03.2009 reviews Ленивые факиры и гневливые дрессировщики в валенках
+
+<P>О «Рогатых» не было ничего слышно довольно давно. После успеха дебютной работы и настоящей концертной феерии группа на некоторое время затихла. Переведя дух, Некрозавр и партнёры снова ринулись в бой. На этот раз нас ждёт что-то поистине грандиозное. РОГАТЫЕ ТРУПОЕДЫ сочинили и записали концептуальную мегаугарную замогильно-весёлую тревожную РОГ-музыку о жизни бродячего цирка.</P>
+<P>Пока перед нами мини-альбом коллектива с убийственным названием “The Kvlt and Troo and Eevil and Grimm and Nekro EP”. На него попали 3 новых вещи, переигранный хит с первого альбома “Dancing on Your Grave” и кавер-версия на отечественный хит «Валенки». Что ж, уже понятно, что нас ждёт на будущем альбоме. Как и на дебюте, первоклассный не слишком брутальный, не слишком оригинальный и немного мелодичный death-metal в качественном исполнении и с текстами. Просто текстами. Оценивать ужасающий юмор Некрозавра не могу, но уверен, найдутся те, кто его оценит. Отмечу&nbsp; также «Валенки», очень по-Трупоедски. Смешно и страшно серьёзно.</P>
+<P>Будем ждать полного альбома, который должен выйти в каком-то супер-мега-дорогущем оформлении. Как оценим мы всю пластинку целиком, я не знаю, но знакомится с творчеством РОГАТЫХ ТРУПОЕДОВ будет, как всегда, интересно. EP же произвёл на меня впечатление. Мне понравилось, как музыкальный альбом. Смертные грехи в шапито, о которых поёт группа, меня пока не заинтересовали. Посмотрим позже на картинки, почитаем анекдот и, возможно, заинтересуемся.</P>
+Автор: Vit Belov
+
+### 23.03.2009 news РОГАТЫЕ ТРУПОЕДЫ - ПРЕЗЕНТАЦИЯ АЛЬБОМА
+
+<SPAN class=h1><IMG height=567 alt="" hspace=0 src="/images/news_rus/2009.03/13765.jpg" width=400 align=right border=5>РОГАТЫЕ ТРУПОЕДЫ - ПРЕЗЕНТАЦИЯ АЛЬБОМА 
+<P></P>
+<P></SPAN>17 мая 2009 г., в воскресенье, в 18:00 в московском клубе &lt;&lt;Релакс&gt;&gt; состоится презентация долгожданного нового концептуального альбома вокально-инструментального некрошапито-оркестра замогильно-веселой тревожной РОГ-музыки РОГАТЫЕ ТРУПОЕДЫ 'Circvs ov Sins: Enter the Vices'.</P>
+<P><A href="http://forum.trupoedy.net/">http://forum.trupoedy.net</A><BR><A href="http://myspace.com/trupoedy">http://myspace.com/trupoedy</A><BR><A href="http://trupoedy.printdirect.ru/">http://trupoedy.printdirect.ru</A></P>
+<P>Также в программе вечера:</P>
+<P>- Мастера Modern Melodic Death, любимцы московской публики, кавалеры почетных орденов Туве Янсон и Астрид Линдгрен, дикие, но очень симпатишные приведения - группа HATECRAFT (г. Рязань)<BR><A href="http://hatecraft.com/">http://hatecraft.com/</A><BR><A href="http://www.myspace.com/hatecraft">http://www.myspace.com/hatecraft</A></P>
+<P>- Апологеты эклектичного Modern Metal (не путать молл-кором!), один из лучших &lt;&lt;живых&gt;&gt; коллективов московского андерграунда группа SPAINT<BR><A href="http://www.spaint.org/">http://www.spaint.org/</A><BR><A href="http://www.myspace.com/spaintmusic">http://www.myspace.com/spaintmusic</A></P>
+<P>- Сравнительно молодая, но уже подающая большие надежды death-metal формация CRUEL SOLUTION<BR><A href="http://cruelsolution.com/">http://cruelsolution.com/</A><BR><A href="http://www.myspace.com/cruelsolution">http://www.myspace.com/cruelsolution</A></P>
+<P>Выступление Рогатых Трупоедов будет разделено на два отделения, в первом из которых будет исполнен целиком весь новый альбом, а во втором зрителей ждут уже знакомые вещи с первого диска, пара каверов, пара совсем новых вещей, пара приятных сюрпризов и подарки первым 100 посетителям!</P>
+<P>Специальные death-jam-гости - Joker (Scartown) и Dart Scarsson!</P>
+<P>Меж тем, на официальной странице РТ на MySpace (<A href="http://myspace.com/trupoedy">http://myspace.com/trupoedy</A>) появился еще один трек с нового альбома<BR>под названием &lt;&lt;Jungle Revenge&gt;&gt;, рассказывающий о трагической участи постигшей излишне гневливого укротителя тигров. Текст песни был написан Некрозавром в &lt;&lt;соавторстве&gt;&gt; с самим &lt;&lt;Вильямом нашим Шекспиром&gt;&gt;.</P>
+<P>Адрес: ул. Мельникова д.7<BR>цена билета 300 рублей в предварительной продаже и<BR>350 рублей в кассе клуба в день концерта</P>
+Автор: Vit Belov
+
+### 27.04.2009 news Рогатые Трупоеды - 2
+
+<SPAN class=h1><IMG height=527 alt="" hspace=0 src="/images/news_rus/2009.04/13991.jpg" width=400 align=right border=5>РОГАТЫЕ ТРУПОЕДЫ ВЫХОДЯТ НА ФИНИШНУЮ ПРЯМУЮ ПЕРЕД РЕЛИЗОМ! 
+<P></P>
+<P></SPAN>Итак, официальная дата релиза нового альбома вокально-инструментального некрошапито-оркестра замогильно-веселой тревожной РОГ-музыки<STRONG> РОГАТЫЕ ТРУПОЕДЫ ‘Circvs ov Sins: Enter the Vices’</STRONG> – 15 мая 2009 г. Всего на пластинку вошло 9 композиций, повествующих о семи смертных грехах в контексте бродячего цирка-шапито. Диск будет выпущен ограниченным тиражом в 1000 экземпляров в формате шести-панельного DVD digipak с 40-страничным буклетом. Помимо традиционных лириксов и фотографий, в буклете вы также найдете полный текст истории, легшей в основу концепции ‘<STRONG>COS: ETV’</STRONG>. Оформлением релиза занимался ведущий российский "металлический" художник <STRONG>W.Smerdulak</STRONG>. </P>
+<P>1. <STRONG>Welcome to the Show</STRONG> (intro)<BR>2. <STRONG>SnakeLust</STRONG> (похоть)<BR>3. <STRONG>Сахарная смерть</STRONG> (обжорство)<BR>4.<STRONG> Лень и пламя</STRONG> (леность)<BR>5. <STRONG>Твой маленький сейф…</STRONG> (алчность)<BR>6. <STRONG>Die, Die, Bitch!</STRONG> (зависть)<BR>7. <STRONG>Jungle Revenge</STRONG> (гнев)<BR>8. <STRONG>Death by the Thread</STRONG> (гордыня)<BR>9. <STRONG>Grand Finale</STRONG> (outro)</P>
+<P>Презентация альбома состоится 17 мая 2009 г., в воскресенье, в московском клубе ‘Релакс’ по адресу ул. Мельникова д. 7. (м. Дубровка/Пролетарская)</P>
+<P>Поздравлять <STRONG>РОГАТЫХ ТРУПОЕДОВ</STRONG> с релизом также будут помогать:<BR>- Мастера Modern Melodic Death, любимцы московской публики, кавалеры почетных орденов Янсон и Линдгрен, группа <STRONG>HATECRAFT</STRONG> (г. Рязань)<BR>- Апологеты эклектичного Modern Metal (не путать молл-кором!), один из лучших «живых» коллективов московского андерграунда, группа <STRONG>SPAINT</STRONG><BR>- Сравнительно молодая, но уже подающая большие надежды death-metal формация <STRONG>CRUEL SOLUTION</STRONG><BR>- А также специальные гости в лице Dart-а Scarsson-а (ex-Tilaris) и Joker-а (Scartown)<BR>- Откроет концерт украинская трэш-кор бригада <STRONG>HELL:ON</STRONG></P>
+<P>Кроме того, первых сто посетителей ждут подарки от Рогатых Трупоедов!</P>
+<P>Начало концерта в 18:00. Цена билета 300 рублей в предварительной продаже и 350 рублей в день концерта в кассе клуба. </P>
+Автор: Vit Belov
+
+### 13.05.2009 articles Некрозавр (РОГАТЫЕ ТРУПОЕДЫ): &quot;Мы Роб Зомби от death-metal&quot;
+
+<P><EM>Уже на следующей неделе выходит второй концептуальный альбом ВИА РОГАТЫЕ ТРУПОЕДЫ «Circvs ov Sins: Enter the Vices». Мы связались с Некрозавром и немного помучили его глупыми вопросами о жизни группы, её будущем и прошлом. Читайте и потом слушайте!</EM></P>
+<P><STRONG><IMG height=266 alt="" hspace=0 src="/images/articles_rus/2009.05/14090.jpg" width=400 align=right border=5>Вопрос: Хотелось бы начать с введения. А введением к нашему разговору должно послужить содержание предыдущих серий. Представь, что мы не слышали ничего о РОГАТЫХ ТРУПОЕДАХ с того момента, как у вас вышел дебют на CD-Maximum. Расскажи о том, что происходило с вами все эти годы.</STRONG></P>
+<P>Вах... :-) Ну, начнем-с... после выхода дебютного альбома мы в течение двух лет активно гастролировали, отыграв целый ряд концертов как с местными, так и с зарубежными коллективами, включая Dark Funeral, Mystic Circle, Impaled Nazarene&nbsp; и Pungent Stench, не забывая при этом потихоньку писать новый материал. По ходу дела мы два раза поменяли барабанщиков: сначала в ноябре 2003 года нас покинул Череподробильник, а еще через два года от нас ушел пришедший ему на смену Душежнец. Причиной в обоих случаях послужили «традиционные личные и музыкальные разногласия». Замена Душежнецу была найдена в лице главного барабанщика всех тяжелых коллективов Москвы и области Андрея Ищенко, принявшего «трупоедский постриг» под именем Микроканнибала. К февралю 2006 года РТ были в полной боевой готовности для нового похода в студию…<BR>Однако ж, как говорится, хочешь рассмешить богов – расскажи им о своих планах. В силу целого ряда объективных (и не очень) причин и обстоятельств, вместо запланированных двух месяцев, запись альбома заняла больше полутора лет. Вскоре после записи басовых партий из группы после пяти лет сотрудничества уходит Спиногрыз. Впрочем, потеряв одного ценного бойца, Трупоеды нашли ему на замену сразу двух новых. Летом 2006 года к группе присоединяются бас-гитарист Винторог (ex-Tilaris) и наш старый друг и приятель Языкастый (ex-Atra Mustum) на второй гитаре. В этом составе после более чем полуторагодичного перерыва в концертной деятельности мы дебютировали на сцене клуба «РелакС» 26 января 2007 года в рамках вечеринки, приуроченной ко дню рождения Стаса Мендора, ставшего концертным агентом нашего славного некро-балагана. <BR>Трекинг “COS: ETV” завершается в конце лета 2007 года, но на сведение и мастеринг уходит еще полтора года. Примерно в это же время я принял решение «детализировать концепцию», и «взялся за перо». То, что изначально планировалось как схематичная сюжетная линия, служащая «базой» для сочинения текстов, в результате выливается в 25-страничную мини-новеллу – «literature-track» к звуковому ряду альбома.<BR>Ну, а остальное, ты уже и так знаешь – 7 декабря мы выпустили 16-минутный ЕП-шник ‘The Kvlt and Troo and Eevil and Grimm and Nekro EP’, на который вошли три трека с нового альбома, а сейчас вот выпускаем альбом, презентация которого состоится 17 мая все в том же «Релаксе». Кстати, если все сложится удачно, то на концерте будут присутствовать практически все люди, так или иначе принявшие участие в создании этого диска, включая Володьку Смердулака (оформление), Колю Венгржановича (звук), и Стаса Мендора, само собой (фото). Так что будет настоящий праздник! :-)</P>
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/articles_rus/2009.05/14086.jpg" width=300 align=left border=5>Вопрос: Вот это введение! Думаю, наше интервью превратится в многотомный труд:) Ну, тогда перейдём к новому альбому, который, собственно, и стал поводом для нашего рассказа. Расскажи о концепции этой пластинки. И, если можно, приоткрой завесу тайны, окутывающую содержание новеллы.</STRONG></P>
+<P>Ну, сорри, я старался быть максимально кратким, но все-таки пять лет прошло с первого диска... :-)<BR>Что же до концепции, то тут тоже все непросто. Изначально идея семи смертных грехов в контексте бродячего цирка принадлежала Rag Doll с MetalKings.ru. Именно она – не без помощи Некропехотинцев (членов нашего фан-клуба, принимавших участие в онлайновых голосованиях) – придумала первоначальную базу. Однако ж мне этого показалось недостаточно, и я решил, вместо того, чтобы каждый раз долго и нудно рассказывать в интервью про концепцию альбома (ну, вроде как я сейчас это делаю ;-), почему бы ее сразу не изложить на бумаге и не вставить в оформление релиза. Идея, конечно, тоже не нова – Тоби Заммет это уже делал на «Авантазии», но у нас оно получилось толще, мощнее, и – хочется верить – интереснее. В общем, долго ли, коротко ли, но так в результате долгих бессонных ночей и появилась на свет эта история о бродячем цирке, и о том, как пятеро удальцов ухитрились уморить всю труппу вместе с 5000 зрителей да еще и недурно на этом нажиться.</P>
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/articles_rus/2009.05/14087.jpg" width=300 align=right border=5>Вопрос: :-) Прекрасная идея. Но что останется любителям музыки? Не забудете вы о них? Ведь легко затеряться за всеми этими концепциями и толстенными буклетами.</STRONG></P>
+<P>Любителям музыки останется 9 новых песен (по семи сметрным грехам + интро и аутро), сюжеты которых "какбэ вплетены в сюжетную линию концепции" ;-)</P>
+<P><STRONG>Вопрос: И всё-таки. Нас ждёт death-metal со смешными текстами или смешные тексты с death-metal? Многие не воспринимают РОГАТЫЕ ТРУПОЕДЫ, как серьёзную творческую единицу, именно, из-за ваших историй.</STRONG></P>
+<P>Вас ждет замогильно-веселая тревожная РОГ-музыка с остроумными текстами и озорной подачей материала, скажем так. Во всяком случае, мы не Петросяны от Death metal - это точно. Что же до восприятия, то каждый, конечно, волен воспринимать нас как ему/ей угодно, но лично мне хотелось бы, чтобы в нас видели Роба Зомби от Death Metal. То есть - балаган, но балаган, исполненный со вкусом, известной долей самоиронии и остроумием. Этакий веселый фильм ужасов, вроде "Дома 1000 трупов" или "Devil's Rejects"</P>
+<P><STRONG>Вопрос: «Дом 1000 трупов» - весёлый? Да меня чуть не стошнило…</STRONG></P>
+<P>Ну, тут уж на вкус и цвет... Я лично заливисто хохотал и сучил ножками от радости :-)</P>
+<P><STRONG>Вопрос: Вы выпустили сингл недавно. Для чего это делалось? Разве в современный век развития интернет-технологий синглы не обречены на провал?</STRONG></P>
+<P>Обречены, конечно. Но не ошибается только тот, кто ничего не делает. С другой стороны, мы а) напомнили о себе; б) показали слушателю, что новый материал реально существует, причем в CD-качестве (сам посуди, мы столько времени кормили наших наитерпеливейших поклонников "завтраками", что им впору было сказать: "врете вы все, любезные судари, не будет у вас никакого альбома!") и, наконец, в) извлекли из этого опыта несколько очень важных уроков. </P>
+<P><STRONG>Вопрос: Каких конкретно?</STRONG></P>
+<P>Ну, во-первых, что уровень интернет-проникновения в России-матушке вырос до вполне себе достаточного уровня, чтобы диски в "стекле" перестали продаваться вовсе. Во-вторых, что, мало просто выпустить диск, его еще и продвигать надо активно и рекламировать. В-третьих, что дистрибуцией заниматься - это тебе не по сцене скакать - это уметь нужно.</P>
+<P><STRONG><IMG height=331 alt="Вот это красота!" hspace=0 src="/images/articles_rus/2009.05/14085.jpg" width=400 align=left border=5>Вопрос: И, тем не менее, насколько я понял, изданием нового альбома вы будете заниматься сами?</STRONG></P>
+<P>Изданием - да. Точнее уже все сделали - диск получен и ждет "часа Икс". Дистрибуцией тоже частично будем заниматься сами, но основная нагрузка в этом плане должна лечь на умудренные опытом плечи легендарного Эджена Прайса, любезно согласившегося нам помочь.</P>
+<P><STRONG>Вопрос: Расскажи точнее, как будет выглядеть ваше издание. Уже ясно, что это будет какой-то «супер-пупер» digi-book, но какой конкретно? Будет ли обычное стекло?</STRONG></P>
+<P>Шести-панельный дигипак DVD-формата, в слипкейсе с вложенным в него 40 страничным буклетом. Обычного стекла пока делать не планируем.</P>
+<P><STRONG>Вопрос: А чего CD-Maximum покинули…? Вроде несколько лет назад ты говорил, что они даже аванс вам на альбом дали?</STRONG> </P>
+<P>Все верно. Но так получилось, что из-за того, что мы слишком затянули процесс записи, динамить их по срокам было уже банально неудобно с точки зрения любых норм приличия. Поэтому мы сочли правильным вернуть аванс и уйти в самостоятельное плавание...</P>
+<P><STRONG>Вопрос: Вернёмся к миньону. Там была ваша собственная версия хита «Валенки». Эту же песню переделывали БОНИ НЕМ на последнем альбоме. Слышал ли ты их версию? Можешь сравнить? Что ты, вообще, думаешь о группе Кирилла Немоляева? Можно ли вас сравнивать, ведь вы тоже пытаетесь смешивать юмор с тяжеляком?</STRONG> </P>
+<P>Начну с конца. К Кириллу Немоляеву и группе "Бони Нем" я как слушатель отношусь вполне положительно. Особенно к первым двум альбомам. Это отличные музыканты, которые прекрасно работают как на сцене, так и в студии, и вообще большие молодцы. Но. Если говорить о сравнениях, то, как мне кажется, оно в нашем с ними случае будет не вполне корректным. "Бони Нем" - это смешная кавер-банда, пародисты в стиле death metal, хотя и очень качественные и смешные. Мы же, повторюсь, стараемся делать несколько иное. Мы стараемся сочинять качественную музыку, в которой при этом будет присутствовать известная доля самоиронии и стеба, как над нами самими, так и над всем жанром. Так что амплуа у нас с Немоляевым несколько разные. Корректнее нас было бы сравнивать, наверное, с такими коллективами как Lawnmover Deth или Ugly Kid Joe, если не по стилю, то по задумке... Что же до "Валенок", то тут совсем другая история. Наши валенки были саранжированы и записаны еще в 2004 году, и то, что они вышли одновременно с Бони-Немовскими - чистой воды совпадение. Их версию я, кстати, не слышал, поэтому ничего сказать про нее не могу. </P>
+<P><STRONG><IMG height=266 alt="" hspace=0 src="/images/articles_rus/2009.05/14089.jpg" width=400 align=right border=5>Вопрос: Я давно не был на вашем концерте. Помню, тогда, когда я был, вы бегали в красных халатах. Чего теперь ждать вашим фэнам? Будут ли в программе принимать участие артисты цирка? Будут ли фокусы? Я так люблю фокусы!</STRONG></P>
+<P>Строгого имиджа у нас сейчас как такового нет - единственным непременным атрбиутом нашего сценического шоу сегодня является мой килт и все, что в него завернуто ;-) Артистов цирка и фокусов, боюсь, тоже предложить не сможем, но аццкий отжиг и бурю положительных эмоций - обещаем. </P>
+<P><STRONG>Вопрос: Ну, как-то вы сдали, как мне кажется. Раньше были халаты, а теперь только то, что под килтом… И фокусов не будет. Или это как раз и фокус?</STRONG></P>
+<P>Фи, папА, какой у вас дурной вкус! Нет, конечно, там никаких фокусов, только то, что нужно настоящему шотландцу - волынка и бутылка виски. А сдали, или не сдали... Ты вот пришел бы, да посмотрел сам, а потом уже и судил... ;-)</P>
+<P><STRONG>Вопрос: Расскажи какие-нибудь смешные истории. Я тут составлял план интервью, и так и пометил – «смешные истории». У такой группы, как РОГАТЫЕ ТРУПОЕДЫ, должны быть смешные истории на все случаи жизни.</STRONG></P>
+<P>А легко... Когда мы забирали тираж со склада, то на одной из коробок с нашими дисками увидели наклейку: "Богослужебные песнопения" :-)</P>
+<P><STRONG>Вопрос: А ещё?</STRONG></P>
+<P>Слушай, ну смешных историй и казусов много, из какой хоть оперы?</P>
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/articles_rus/2009.05/14088.jpg" width=300 align=left border=5>Вопрос: Нет. Ну, ты же сам берёшь интервью у некоторых групп. Наверняка спрашиваешь, ну и теперь расскажите какой-нибудь казус из вашей «групповой» жизни. Просто я подумал, что у людей с такими кличками должно быть этих казусов, хоть отбавляй.</STRONG></P>
+<P>Тут, какое дело, обычно все эти казусы происходят по пьяной лавочке, а у нас в последнее время с "бухашкой" как-то скромно все получается. Впрочем, сейчас постараюсь, что-нибудь, вспомнить... (Прошло несколько минут) Ну вот из совсем свежих новостей, нам сегодня рассказали, что половина сотрудников цеха, в котором сейчас изготовляются наши футболки, уже успела понаделать себе "пиратских" копий и в них нарядиться - обещали прислать фотографию :-) В общем, тухло сейчас со смешными историями - вот поедем в какие-нибудь гастроли, тогда обязательно чего-нибудь привезем смешного рассказать и показать. </P>
+<P><STRONG>Вопрос: Ну, и о мощных планах. Меня интересует такой вопрос. РОГАТЫЕ ТРУПОЕДЫ – это настоящая группа? Всё подсказывает, что настоящая, но я всё-таки спрошу. Будете ли вы ездить в туры? Выпускать по альбому каждые два года? Мощно стагнировать, а затем деградировать?</STRONG> </P>
+<P>Да мы будем ездить в туры, и да, мы будем записывать и выпускать новые песни. Кстати, две новых песни мы уже активно "катаем" на концертах - одна из них 10-минутный эпос под названием "A Misanthropic Mumble at Six O'clock in the Morning while Contemplating the Subtleties of Human Existence" и вторая "Bilbo Baggins" - самый настоящий некропанковский боевик в лучших традициях Murderdolls и иже с ними. Не обещаю, что диски будут выходить каждые два года, но скучать мы вам точно не дадим - это я могу гарантировать. А стагнировать и деградировать - это, хочется верить, уже пройденный этап в нашей карьере. Отныне - только вперед к новым свершениям! Рогатые Трупоеды - это самая настоящая группа. Всамделишнее некуда. Более того, как было заявлено на нашем дебютном альбоме - "Нам все равно, кто победит в этом мире. Ибо мы есть и будем всегда. Мы - Абсолют! Мы - Рогатые Трупоеды!".</P>
+<P><STRONG>Вопрос: Ну, пожелай что-нибудь всем нам…</STRONG></P>
+<P>Я тут на выходных катался до славного города Владимира, и в районе Петушков видел замечательный плакат, пришпиленный к стенке какого-то шиномонтажа. Плакат гласил: "В жопу кризис! И не такое видали...". Вот такого вот настроя я бы всем нам и пожелал. Ну, и традиционно: ДА ПРЕБУДЕТ С ВАМИ СКЛИЗКОЙ (гроулом) ОПАРЫЫЫЫЫЫШЪ!<BR></P>
+Автор: Vit Belov
+
+### 15.12.2009 reviews Слишком великолепная обложка
+
+<P>Мы уже уделили некоторое время новому альбому death-metal ансамбля РОГАТЫЕ ТРУПОЕДЫ этим летом. Пришло время написать и «официальную» рецензию на этот альбом. В принципе, мы получили всё то, на что могли рассчитывать после прослушивания предваряющего EP. Более того, на это же мы могли рассчитывать, просто почитав пресс-релизы, прилагаемые к этому релизу.</P>
+<P>За шесть лет многие могли позабыть этот коллектив, возглавляемый вокалистом Некрозавром. Первый альбом вышел в 2003 году на CD-Maximum. Его выход сопровождался агрессивной PR-кампанией, подкрепляемой запоминающимися шоу коллектива и скандалом с кавер-версией на песню «Я на солнышке лежу». Все эти истории без проблем можно отыскать в соответствующих разделах нашего сайта. На новой работе Некрозавр почти полностью сменил состав. К нему и гитаристу Эксгуматору присоединились новые садомазохисты-некрофилы с соответствующими никами. Но главное на этот раз мы получили более зрелый альбом в музыкальном и, тем более, в концептуальном смысле. Альбом повествует историю о семи смертных грехах, подоплёку которой вы также без труда отыщите на нашем сайте. Выполнено издание в шикарном digi-pack с толстенной книжкой и соответственной ценой. Музыка представляет собой превосходно реализованный old-school-death-metal с интересными ходами и разнообразными мелодиями. Всё это здорово, но мне не давала покоя одна мысль. О соотношении цены и качества, если так можно выразиться. Сложно представить себе, пусть даже очень качественный, death-metal альбом, который издаётся с таким шиком. Всё-таки сама музыка не подразумевает подобного ‘de-luxe’ отношения. В итоге мы получаем death-metal диск с достаточно существенной розничной ценой, которая запросто может отпугнуть потенциального покупателя. Сложно представить себе любителя подобной музыки, который вчитывается в лирику или перечитывает концепцию, аккуратно сдувая пыль с шикарного картонного издания.</P>
+<P>Остаётся надеяться, что уровень потребностей у фанатов подобной музыки сильно поднимется. А пока у данной работы основными покупателями станут любители красивых коробочек и ценители очень оригинального и концептуального юмора Некрозавра.</P>
+Автор: Vit Belov
+
+### 23.09.2015 reviews Некрозавр не стареет
+
+<P>А вот и новый релиз от РОГАТЫХ ТРУПОЕДОВ. Похоже группа решила радовать своих поклонников всё больше и больше, ведь всего через год после релиза третьего полноформатного альбома «Забодаю и Съем» мы имеем на руках мини-альбом «Отруби Лихую Голову».</P>
+<P>Раннему творчеству ВИА на наших страницах было посвящено достаточно много места, но в силу некоторых причин мы не смогли отрецензировать последний альбом коллектива. Что ж, РОГАТЫЕ ТРУПОЕДЫ окончательно заматерели в качественном развлечении поддатой публики, предпочитающей любой закуске death-metal. И если полноформатный альбом ещё можно было воспринимать как некое художественное произведение в жанровой тяжёлой музыке, миньон просто предлагает посмеяться и поплясать. Удивительно точные названия для песен: «Кантри-Шматри» или «Ода Винсбольду Храброму — истребителю крыс и Порождению Тьмы». Вот как слышится, так и слушается. Прибавьте к этому кавер на «Highway To Hell” где гроулинг чередуется с женским вокалом и кавер на «Whiskey In Jar” гибрид с пластилиновой вороной, вот этот последний, пожалуй, действительно забавен.</P>
+<P>Я старею, а Некрозавр, видимо, нет.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Концерт Бодунов прорулил неимоверно!!!!

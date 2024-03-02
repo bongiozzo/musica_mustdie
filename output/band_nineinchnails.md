@@ -77,6 +77,100 @@ performance; Trent Reznor
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.1999 news 
+
+<p>После 4 лет относительного затишья, Trent Reznor и Nine Inch Nails наконец-таки нарушили тишину. На официальном сайте группы www.nin.com появился трек из нового альбома группы The Fragile, выход которого планируется на сентябрь этого года. Итак, название трека скорее всего One, так как он расположен по адресу http://www.nin.com/one.swf. Сам сайт по видимому находится в процессе разработки. Сейчас на нем находится лишь логотип группы, выполненный с использованием Shockwave. Для того чтобы прослушать трек, возможно придется несколько раз обновить страницу. Чтобы ввести в курс дела, сообщу, что было слышно о NIN в последнее время. Итак, после выхода последнего альбома NIN "The Downward Spiral", а затем сингла и клипа на песню The Perfect Drug, Trent Reznor занимался в основном продюсерской работой на своем лейбле Nothing Records. Самыми видными работами в это время были все альбомы Marilyn Manson до Mechanical Animals, работы с David Bowie, саундтреки к Natural Born Killers и Lost Highway, а также множество других проектов.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>В прошлом году были выпущены две видеокассеты под названием Closure - фильм о туре Self Destruct, а также полная коллекция видеоклипов группы. Все это время все журналы писали о вот-вот готовящемся выходе нового альбома NIN, однако этого не происходило. Ходили слухи, что Trent конфликтует со своими боссами из Interscope Records, однако те заявляли, что это непрада, так как им совсем не нужно портить отношения с исполнителем, который выпускает мультиплатиновые альбомы. Как бы то ни было, альбом не выходил, Trent молчал. Однано уже в прошлом году серьезно заговорили о новом альбоме и стало известно его будущее название - The Fragile. Альбом будет состоять из двух дисков - с песнями и инструментальным диском - всегод около 25 песен. Сначала говорили об июньском выходе альбома, но его уже не будет. Теперь выходу альбома приурачивают символическую дату - 9 сентября - 9/9/1999 (см название группы - Nine Inch Nails ;) Журнал The Rolling Stone опубликовал статью о NIN, в которой упомянуты названия песен с нового альбома: The Day the World Went Away, The Wretched, Starfuckers Inc., We're in This Together, La Mer, Into the void, Pilgrimage. На песню The Day the World Went Away уже снят видеоклип и это будет первым синглом с альбома.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Стала известна официальная дата выхода нового альбома Nine Inch Nails "The Fragile". Альбом выходит во вторник, 21 сентября. Но прежде, у NIN выйдет еще один сингл и видеоклип на него. Первоначальные сведения о выходе клипа на The Day The World Went Away оказались неоправданны. Но теперь официально известно, что клип на песню "We're In This Together" был снят в Guadalajara Jalisco (Мексика) режиссером Mark Pellington. Премьера сингла и видеоклипа состоится 27 августа. MTV News сообщили, что Nine Inch Nails выступят на очередной церемонии награждения призов MTV 9-го сентября. Это выступление будет первым у NIN на MTV VMA. Также на церемонии выступят Lauryn Hill, DMX, Kid Rock и Jay-Z. Вести шоу будет Chris Rock.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Geffen Records сообщают, что 16 ноября выйдет ремиксовый альбом "Hellbilly Deluxe" Роба Зомби. На альбоме представлены ремиксы "Dragula", "Living Dead Girl" и "Superbeast", выполненные Charlie Clouser из Nine Inch Nails, а также "Return of the Phantom Stranger", выполненный бывшим барабанщиком Nine Inch Nails, Chris Vrenna. Другие ремиксы на альбоме сделали God Lives Underwater "How to Make a Monster" и Rammstein "Spookshow Baby". Rob Zombie сказал, что "Еще не все треки утверждены, так как некоторых я еще не слышал. Я послушал ремиксы Charlie Clouser. Они все fucking fantastic, потрясающие !" Кроме участия в Nine Inch Nails, Clouser и Vrenna широко сотрудничали с группами White Zombie и Marilyn Manson. Chris Vrenna в данный момент работает над своим сольным альбомом "Tweaker". Также он будет продюссером нового альбома Jack Off Jill, группы в которой играет Scott Puteski, известный нам как Daisy Berkowitz - бывший гитарист Marilyn Manson.</p>
+
+Автор: Vit Belov
+
+### 26.09.2000 news Nine Inch Nails готовят к выпуску новый диск
+
+<p> Nine Inch Nails запишут кавер версию песни "Metal" Гари Ньюмана и включат ее в трэк-лист своего будущего альбома под названием "Things Fall Apart". Этот диск также включит в ремиксы и ранее не изданные вещи, и в довесок к ним, новую песню "The Great Collapse". Диск выходит 23-го октября на Island/Universal.</p>
+
+Автор: Nybras
+
+### 26.09.2000 news Nine Inch Nails will cover a Gary Numan song
+
+<p> Nine Inch Nails are to cover Gary Numan's track 'Metal' on their forthcoming album 'Things Fall Apart'. The record will include remixes and previously unreleased material, including new track 'The Great Collapse' in addition to the cover. The album will be released on Island/Universal on October 23.</p>
+
+Автор: Nybras
+
+### 26.03.2001 news the Fragility CD&#x2F;DVD&#x2F;VHS....
+
+<p>NINE INCH NAILS подтвердили скорый выход CD/DVD/VHS "Fragility". Пока что Трент Резнор совместно с Дэвидом Карсоном работают над артворком и упаковкой альбома. Конкретной даты выхода пока нет.</p>
+
+Автор: Yermola
+
+### 26.03.2001 news NINE INCH NAILS confirmed the Fragility CD&#x2F;DVD&#x2F;VHS completion...
+
+<p>The official NINE INCH NAILS website confirmed on Friday evening the Fragility live CD/DVD/VHS is finally nearing completion. With the audio and video finished, Trent Reznor is now working with David Carson on concepts for the look of the artwork and packaging. Both features and additional content are also being finalized. There is no official title or release date yet. "Produced by Trent Reznor and directed by Rob Sheridan, the entire project has been created in-house, resulting in the most accurate representation of the Fragility performance possible, complete with high-fidelity digital surround sound," stated the official site. The site also hinted the CD will contain enhanced features with more details to be announced.</p>
+
+Автор: Yermola
+
+### 09.08.2002 reviews Парадокс Резнора
+
+<p>От концертного альбома классиков индустриальной музыки ждешь примерно того же, что и от экскурсии по цехам машиностроительного завода. Рев и грохот, скрип и скрежет, крики, лязганье и головная боль у выхода. Экипировка перед прослушиванием должна быть подобающей случаю: в уши - беруши, диск в проигрыватель и "Пуск"… А? Что? Кто это? Обманули! <BR> Разница между студийным и концертным звучанием "Девятидюймовых гвоздей" примерно такая же, как между металлической болванкой, сошедшей с конвейера, и поделкой ручной выделки. Вместо шквала синтезированных звуков, характерного для студийных альбомов NIN, здесь звук "живой" гитары, баса и ударных, а электроника сведена к минимуму. Правда, от такой честности мало что изменилось - электронные гимны анархии и депрессии остались неизменными по сути. И это главное. <BR> Содержимое диска подобно пружине, которая то сжимается в безумном напряжении, то вдруг резко выпрыгивает. Напористые, шумные какофонии "March of the Pigs", "Wish", "Gave Up" сменяются медленными и мрачными "Frail", "Sin", "Closer". При этом никакой середины, только крайности - идеология 90-х в концентрированном виде. Кстати, здесь же можете услышать и песни, с которых потом воровали мелодии герои сегодняшнего дня Мэрилин Мэнсон и Роб Зомби - "Starfucker" и "Head Like A Hole". Получите исходник и наслаждайтесь, благо, что звучит это много интересней. Электронный и мрачный рок-н-ролл 90-х, основанный на одной-единственной идее: "Иисус пользовался только девятидюймовыми гвоздями!" <BR> Трент Резнор, лидер группы (впрочем, и едва ли не единственный участник) ставил перед этим диском конкретную задачу - после нескольких лет молчания напомнить слушателям о своем существовании накануне выхода нового студийного альбома. Получилось - и еще как: на пластинке собраны практически все хиты "гвоздей" 90-х, сыграны в новом качестве, и сыграны просто блестяще. Правда, для того чтобы оценить прелесть самих песен, надо по меньшей мере обладать толерантностью к звуковым извращениям. Попробуйте - вдруг ваши скрытые желания проявятся именно здесь?</p>
+
+Автор: Tornado
+
+### 18.01.2005 news Новый альбом NINE INCH NAILS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>NINE INCH NAILS 'With teeth'</STRONG> выходит 2 мая на <STRONG>Universal</STRONG>. Пластинка была записана в <STRONG>Sound City Studio</STRONG> и будет содержать 12 трэков. За барабанной стойкой гостит <STRONG>Dave Grohl</STRONG> (<STRONG>FOO FIGHTERS</STRONG>, ex-<STRONG>NIRVANA</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 08.01.2007 news Новый NINE INCH NAILS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В Лос-Анжелесе начался процесс микширования нового альбома<STRONG> NINE INCH NAILS</STRONG>. Релиз намечен на апрель этого года.</FONT></P>
+Автор: Vit Belov
+
+### 11.01.2007 news NINE INCH NAILS назвали альбом
+
+<P>Новый альбом <STRONG>NINE INCH NAILS</STRONG>, который выйдет в апреле, будет называться "<STRONG>Year Zero</STRONG>".</P>
+Автор: Vit Belov
+
+### 03.03.2008 news NINE INCH NAILS выпустили альбом
+
+<P><STRONG>NINE INCH NAILS</STRONG> подготовили новый инструментальный альбом <STRONG>"Ghosts I-IV"</STRONG>, содержащий 36 трэков. Пластинка увидела свет на лэйбле <STRONG>Creative Commons.</STRONG></P>
+Автор: Vit Belov
+
+### 28.02.2011 news Trent Reznor выиграл Оскара
+
+<P>Главный человек в <STRONG>NINE INCH NAILS Trent Reznor</STRONG> минувшей ночью получил премию Оскар за саундтрэк к фильму "<STRONG>Социальная Сеть</STRONG>". Момент вручения награды музыканту и его соавтору <STRONG>Atticus Ross </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/MXx129apXMw?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/MXx129apXMw?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.07.2011 news Reznor борется с лэйблом
+
+<P>Лидер <STRONG>NINE INCH NAILS Trent Reznor</STRONG> в своём <STRONG>Twitter</STRONG> призвал фанатов не покупать переиздание дебютного альбома группы <STRONG>"Pretty Hate Machine". </STRONG>Он сообщил публике, что выпустивший его лэйбл <STRONG>TVT</STRONG> просто хочет срубить денег, так как новое переиздание ничем не отличается от оригинала.</P>
+<P>Сам<STRONG> Reznor</STRONG> переиздал свой дебют в ноябре прошлого года, добавив на него кавер-версию <STRONG>QUEEN</STRONG> <B>"Get Down, Make Love"</B>.</P>
+<P><center><IMG height=344 src="/images/news_rus/2011.07/20223.jpg" width=278 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

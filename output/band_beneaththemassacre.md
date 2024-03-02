@@ -47,6 +47,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.03.2010 reviews Яркий представитель современного death-metal
+
+<P>Канадцы BENEATH THE MASSACRE яркие представители современного заокеанского техничного death-metal. Жёсткая, быстрая и очень сложная музыка вызывает множество вопросов, но имеет большое количество поклонников по всему свету.</P>
+<P>Новое направление, которое часто называют deathcore, предлагает качество и тяжесть, что и продемонстрировали на своём втором альбоме “Dystopia” BTM. Весь вопрос нравится вам подобная музыка или нет. DESPISED ICON, PSYOPUS, OCEANO, THE RED CHORD, WHITECHAPEL… Альбомы этих групп вышли совсем недавно. BENEATH THE MASSACRE находится «в головке» этой группы, поэтому, если вам понравились какие-либо работы вышеназванных групп, можете смело приобретать и этот.</P>
+<P>Современный брутальный death-metal из Северной Америки, это своеобразный тренд. Сказать, что он очень меня привлекает, я не могу, но эта музыка безусловно очень тяжела.</P>
+Автор: Vit Belov
+
+### 20.12.2011 news BENEATH THE MASSACRE: новый полноформатник &quot;Incongruous&quot; в феврале 2012
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22357.jpg" width=400 height=400>Канадские лесорубы из <STRONG>BENEATH THE MASSACRE</STRONG> подготовили новый альбом под названием <STRONG>"Incongruous"</STRONG>. Дата релиза запланированна на 24 февраля 2012 на лейбле <STRONG>Prosthetic</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Трек-лист альбома</U>:</FONT></P>
+<P>01. <STRONG>Symptoms</STRONG> <BR>02. <STRONG>Hunted</STRONG> <BR>03. <STRONG>Left Hand <BR></STRONG>04. <STRONG>Hopes</STRONG> <BR>05. <STRONG>It</STRONG> <BR>06. <STRONG>Light</STRONG> <BR>07. <STRONG>Incongruous</STRONG> <BR>08. <STRONG>Pedestal</STRONG> <BR>09. <STRONG>Grief</STRONG> <BR>10. <STRONG>Damages</STRONG> <BR>11. <STRONG>Unheard</STRONG></P>
+Автор: Headcrusher
+
+### 12.01.2012 news Новый альбом BENEATH THE MASSACRE
+
+<P><IMG height=355 alt="" hspace=0 src="/images/news_rus/2012.01/22600.jpg" width=390 align=right border=0>Канадские мастера tech-death <STRONG>BENEATH THE MASSACRE</STRONG> выпустят новый альбом "<STRONG>Incongruous"</STRONG> 24 февраля на<STRONG> Prosthetic Records</STRONG>.&nbsp;Свёл и спродюсировал альбом <STRONG>Chris Donaldson (CRYPTOPSY)</STRONG>.&nbsp;Трек-лист: </P>
+<P>01. <STRONG>Symptoms</STRONG> <BR>02. <STRONG>Hunted<BR></STRONG>03. <STRONG>Left Hand <BR></STRONG>04. <STRONG>Hopes <BR></STRONG>05. <STRONG>It </STRONG><BR>06. <STRONG>Light <BR></STRONG>07. <STRONG>Incongruous <BR></STRONG>08. <STRONG>Pedestal <BR></STRONG>09. <STRONG>Grief <BR></STRONG>10. <STRONG>Damages <BR></STRONG>11. <STRONG>Unheard</STRONG></P>
+<P><center><iframe width="100%" height="166" scrolling="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F32958156&auto_play=false&show_artwork=true&color=a21010" frameborder="0" ></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

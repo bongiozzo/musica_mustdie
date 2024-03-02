@@ -12,6 +12,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.05.2004 news DEVILYN подписали контракт с Conquer Records
+
+<P>Польские death-metal'исты <B>DEVILYN </B>подписали контракт с <B>CONQUER RECORDS</B>. Их четвёртый альбом увидит свет в конце сентября этого года.</P>
+Автор: Vit Belov
+
+### 22.10.2004 news DEVILYN начинают запись нового альбома
+
+<P><STRONG>DEVILYN</STRONG> готовы к записи 8-9 новых песен для альбома '<STRONG>11</STRONG>', который выйдет на<STRONG> Conquer Records</STRONG>. Пластинка будет записана в студии <STRONG>Hertz</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.10.2004 news DEVILYN begin to record &#39;11&#39;
+
+<P>14 October <STRONG>DEVILYN</STRONG> began record session to newest album entitled "<STRONG>11</STRONG>". Session be holds in Bialystok <STRONG>studio Hertz</STRONG> where wil be registered all parties of instruments. On new publishing album will find itself about 8 - 9 track. </P>
+<P>"<EM>It brings itself it will be decidedly onto this that this material different from earlier production of group, works are very different and simultaneously fast and aggressive. Devilyn have new shape and form of which never did not have and this thanks new musicians, which fit in ideally into conceptions to which it aims Bonys and they influenced significantly onto musical content of this of album, no less yet he became kept style which Devilyn worked out himself through years. It stays only to wait to end of year because then CD should hit to shops expenditure of Conquer Records</EM>", - label writes.</P>
+Автор: Vit Belov
+
+### 11.04.2005 news DEVILYN расстались с басистом
+
+<P><STRONG>DEVILYN</STRONG> расстались с басистом <STRONG>Cyprian</STRONG>. Основной причиной названо отсутствие желания участвовать в творчестве. То есть <STRONG>Cyprian</STRONG> не сочинял нового материала.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### DEVILYN в Москве? (экс BEHEMOTH, VADER, DIES IRAE)

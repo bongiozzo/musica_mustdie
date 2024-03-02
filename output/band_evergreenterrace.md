@@ -29,6 +29,43 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.2008 reviews Яростный современный hardcore
+
+<P>Американцы EVERGREEN TERRACE играют интересные вариации на тему hardcore. “Wolfbiker” уже шестой в карьере этой американской группы и только первый для Metal Blade и Фоно. Соответственно, он первый и для большинства возможных российских поклонников этой группы.</P>
+<P>С первого трэка музыка EVERGREEN TERRACE поражает своей злобой. Ни на минуту не замолкающий вокалист, проделавший нечеловеческую работу над своим голосом. Его зверские вопли заставят задуматься о вечном даже видавших виды меломанов. Всё это происходит на фоне великолепной зажигательной музыки в духе AGNOSTIC FRONT. Представьте ритмику лучших hardcore альбомов, выразительный «скриминг» и утяжелённое почти death-metal звучание. Первые несколько песен выбивают дух своей энергетикой. Дальше дела идут уже не так хорошо, появляется чистый вокал, который постепенно вытесняет ярость «хрипуна», но от этого музыка не становится менее зажигательной. Разве что, мысли о death-metal заменяются мыслями об alternative-metal или metalcore.</P>
+<P>Первые песни с “Wolfbiker” настолько хороши, что я не побоюсь выставить альбому очень хорошую оценку. В будущем EVERGREEN TERRACE не стоит увлекаться чистыми вокалами и “MTV” музыкой, тогда группу ждёт настоящий успех.</P>
+Автор: Vit Belov
+
+### 29.04.2009 news EVERGREEN TERRACE назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>EVERGREEN TERRACE</STRONG> назвали свой новый альбом, выходящий в сентябре на <STRONG>Metal Blade</STRONG>, <STRONG>"Almost Home".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 07.07.2009 news Новая песня EVERGREEN TERRACE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>EVERGREEN TERRACE "Enemy Sex" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/evergreenterrace">http://www.myspace.com/evergreenterrace</A></FONT></P>
+Автор: Vit Belov
+
+### 06.12.2009 reviews Теперь не захватывает
+
+<P>Ещё одна группа, чей предыдущий альбом вызвал у меня самые тёплые чувства. Современный звук, яростный напор, мелодичность. Эти «ветераны» американского hardcore немного поменяли свою музыку на свежей работе. К сожалению, я не слышал пластинки, которые не лицензировались у нас, поэтому не могу проследить симптоматичность этих изменений. </P>
+<P>Одно ясно, что музыка ET стала более мелодичной. От hardcore-основания на некоторых новых песнях музыканты сдвинулись в punk с использованием его современных форм. С чистым вокалом и «попсовыми» мелодиями. От этого альбом выглядит в целом мелодичнее и менее агрессивно. Но качество и «безбашенность» сохранились. Теперь, правда, эти свойства выражаются в другом виде.&nbsp;Ныне EVERGREEN TERRACE можно рекомендовать не только любителям hardcore, но и мелодичного metalcore. На одной песне подпел вокалист AS I LAY DYING, что тоже может стать дополнительным аргументом в пользу прослушивания этой музыки. Благо длиться альбом совсем не долго, как и положено в стиле.</P>
+<P>Это работа меня не захватила, в отличие от предыдущей. Более того, теперь музыка группы находится в той области, на которую мои интересы не распространяются. Но, возможно, поклонникам ‘modern’ этот альбом понравится.</P>
+Автор: Vit Belov
+
+### 10.08.2010 news Видео EVERGREEN TERRACE
+
+<P>Новый клип<STRONG> EVERGREEN TERRACE</STRONG> на песню <STRONG>"Enemy Sex" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Salvatore Perrone (PARKWAY DRIVE</STRONG>, <STRONG>BURY YOUR DEAD</STRONG>, <STRONG>BRING ME THE HORIZON,</STRONG> <STRONG>SUICIDE SILENCE)</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=225 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=13668626&server=vimeo.com&show_title=1&show_byline=1&show_portrait=1&color=&fullscreen=1&autoplay=0&loop=0">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=13668626&server=vimeo.com&show_title=1&show_byline=1&show_portrait=1&color=&fullscreen=1&autoplay=0&loop=0" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="225"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

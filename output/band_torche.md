@@ -24,6 +24,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.11.2016 news Новый ролик TORCHE
+
+<p>Новый клип sludge metal группы<strong> TORCHE</strong> на песню <strong>"Annihilation Affair"</strong> можно посмотреть ниже. Мультик рассказывает о незадачливых инопланетянах, которые уничтожили себя из-за голой женщины.</p><p>Песня взята с последнего на сегодня альбома <strong>TORCHE "Restarter"</strong>, который вышел в феврале прошлого года на <strong>Relapse records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/cgIdoDPw5Xc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

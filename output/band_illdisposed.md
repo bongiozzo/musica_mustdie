@@ -228,6 +228,222 @@ Bonus Tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 05.12.2000 reviews Альбом сплошных перепевок
+
+<p>Альбом сплошных перепевок. Эти мастера брутального мясного ряда записали альбом состоящий сплошь из одних каверов. В их жертвы попали команды играющие самую разную музыку. Список впечатляет. Посудите сами: Dark Throne, Infernal Majesty, Carcass, Paradise Lost, Venom, Autopsy, Death, Motorhead, Pestilence, Obituary и AC/DC. Не буду рассказывать о каждой вещи отдельно. Некоторые вещи получились ничуть не хуже оригиналов, ну а некоторые явно не дотягивают (Шульдинера не переплюнешь :-)). Все они выдержаны в духе брутального и техничного death-metal, но оригиналы все равно очень узнаваемы. Это можно отнести и к недостаткам альбома. Слишком уж cover-version приближены к оригиналу, хоть и сыграны тяжелее и мощнее. Было бы немного интереснее послушать более оригинальные, может даже стебовые версии этих известных вещей. Хотя, кому как...</p>
+
+Автор: Dimas
+
+### 08.06.2001 news Выходит новый альбом Illdisposed.
+
+<p> В конце августа - начале сентября появится в продаже новый CD датского death metal акта Illdisposed. Называться он будет "Kokainium".</p>
+
+Автор: Morsus
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR><BR> + конкурс от HATE и Moral Insanity Prods [email: moralinsanity@tut.by]<BR><BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 06.09.2003 news ILLDISPOSED выложили в сеть свой кавер AT THE GATES
+
+<p>Как уже сообщалось, осенью на Drowned Scream Records выйдет tribute to AT THE GATES. Одной из групп записавших трэк для этой пластинки стали ILLDISPOSED. Послушать их вариант Slaughter Of The Soul вы сможете <a href="http://www.illdisposed.dk/sound/illdisposed-slaughter_of_the_soul.mp3">здесь.</a></p>
+
+Автор: Vit Belov
+
+### 25.03.2004 news ILLDISPOSED  на крупном лейбле
+
+Датские брутализмы <B>ILLDISPOSED </B>подписали соглашение с широкоизвестной конторой <B>Roadrunner Records</B> на выпуск целых четырех альбомов. В апреле-мае начнется запись нового альбома, из которого отдельные темы уже имеют названия: <B>"Incisive Souls", "Jeff", "Call In The Boys", "Dark", "The Demons Dance", "Pingo"</B>. <B></B>
+Автор: Omon Ra
+
+### 20.08.2004 news ILLDISPOSED записали новый альбом
+
+<P>Новый альбом <STRONG>ILLDISPOSED</STRONG> <STRONG>"1-800 Vindication" </STRONG>выходит 4 октября на <STRONG>Roadrunner</STRONG>. Альбом был спродюсирован <STRONG>Ziggy</STRONG> и смкширован в <STRONG>Antfarm Studio. </STRONG>Трэк-лист:</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.08/6992.jpg" width=300 align=right border=5>01. <B>I Believe In Me</B><BR>02. <B>Dark</B><BR>03. <B>Now We're History</B><BR>04. <B>When You Scream</B><BR>05. <B>Jeff</B><BR>06. <B>In Search Of Souls</B><BR>07. <B>Still Sane</B><BR>08. <B>You Against The World</B><BR>09. <B>No More Time</B><BR>10. <B>The Final Step</B> </P>
+<P>Песню <STRONG>'Dark</STRONG>' с этого альбома можно послушать здесь: http://musica.mustdie.ru/samples/i/illdisposed/2004_1154.mp3</P>
+Автор: Vit Belov
+
+### 20.12.2005 news Новый альбом ILLDISPOSED
+
+<P>Датские музыканты <B>ILLDISPOSED</B> назвали свой новый альбом <STRONG>"Burn Me Wicked". </STRONG>Его выход намечен на март-апрель 2006 года на&nbsp;<STRONG>Roadrunner Records</STRONG>. Он был записан в датской <B>Combi Sound Studio</B> с продюсером <B>Ziggy</B>. В группе новый гитарист <STRONG>Martin Thim</STRONG> (<B>EXMORTEM</B>). Трек-лист альбома:<BR><BR>1. <B>Back To The Street</B><BR>2. <B>Shine Crazy</B><BR>3. <B>Fear The Gates</B><BR>4. <B>Case Of The Late Pig</B><BR>5. <B>Burn Me Wicked</B><BR>6. <B>The Widow Black</B><BR>7. <B>Our Herion Recess</B><BR>8. <B>Nothing To Fear... Do It</B><BR>9. <B>Master And Servant</B><BR>10. <B>Throw Your Bolts</B><BR>11. <B>Illdispunk'd</B><BR><BR></P>
+Автор: Dimas
+
+### 06.04.2006 news Новый альбом ILLDISPOSED
+
+<P>Датские ветераны death metal&nbsp;<B>ILLDISPOSED</B>&nbsp;порадуют своих поклонников новым альбомом под названием&nbsp;<B>"Burn Me Wicked"</B>,&nbsp;который выйдет 26 мая через&nbsp;<B>Roadrunner Records</B>. Он был записан в датской <B>Combi Sound Studio</B> с продюсером <B>Ziggy</B>. На нём дебютировал новый гитарист коллектива <STRONG>Martin Thim</STRONG> (<B>EXMORTEM</B>). Трек-лист альбома:<BR><BR><IMG height=255 alt="" hspace=15 src="/images/news_rus/2006.04/10208.jpg" width=250 align=left border=0>1. <B>Shine Crazy</B><BR>2. <B>Case Of The Late Pig</B><BR>3. <B>Back To The Street</B><BR>4. <B>Our Heroin Recess</B><BR>5. <B>Throw Your Bolts</B><BR>6. <B>Burn Me Wicked</B><BR>7. <B>Fear The Gates</B><BR>8. <B>Slave</B><BR>9. <B>Nothing To Fear... Do It</B><BR>10. <B>The Widow Black</B><BR>11. <B>Illdispunk'd</B><BR></P>
+Автор: Dimas
+
+### 03.05.2007 news Новости киевского Extreme Power Fest
+
+<P>Датчане <STRONG>HATESPHERE</STRONG> и <STRONG>ILLDISPOSED</STRONG>, a также <STRONG>PRO-PAIN</STRONG> из США стали первыми участниками подтвердившими свое участие на<STRONG> EXTREME POWER Open</STRONG> Air, который состоится 15-го сентября этого года в Киеве и станет логическим продолжением недавно прогремевшего в стенах Киевского "Дворца Спорта" первой части фестиваля. В этот раз орагнизаторы пригласят еще больше именитых команд со всего мира и при этом сделают фестиваль доступным для всех металхэдов СНГ! Место встречи Киев, 15 сентября!!!&nbsp;&nbsp; <BR><A href="http://www.extremepowerfestival.com/">http://www.extremepowerfestival.com</A>&nbsp; </P>
+Автор: Vit Belov
+
+### 09.08.2007 news Extreme Power Metal Fest отменён
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фестиваль <STRONG>Extreme Power Metal</STRONG> в Киеве, намеченный на 15 сентя</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>бря, отменён. Напомним, там должны были выступить <STRONG>KREATOR, PRO-PAIN</STRONG> и др. Организаторы объяснили этот факт назначенными на 30 сентября выборами в Верховную Раду Украины. Из-за политического кризиса на Украине, организаторы не смогли получить разрешающие документы от проверяющих организаций. "<EM>Все заняты выборами, ни у кого нет времени подписать эти документы</EM>", - жалуются промоутеры. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Организаторы планируют провести фест весной 2008 года. </FONT></P>
+Автор: Vit Belov
+
+### 08.01.2008 news Новый альбом ILLDISPOSED
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.01/12122.jpg" width=400 align=right border=5>ILLDISPOSED</STRONG> назвали свой новый альбом&nbsp; <STRONG>"The Prestige". </STRONG>Он выйдет 28 марта на <STRONG>AFM</STRONG>. Трэк-лист:</P>
+<P>01. <B>Let Go</B><BR>02. <B>The Tension</B><BR>03. <B>Weak Is Your God</B><BR>04. <B>Working Class Zero</B><BR>05. <B>A Song Of Myself</B><BR>06. <B>Like Cancer</B><BR>07. <B>Love Is Tasted Bitter</B><BR>08. <B>She Knows</B><BR>09. <B>A Child Is Missing</B><BR>10. <B>The Key To My Salvation</B><BR>11. <B>...Your Devoted Slave</B><BR>12. <B>Ich Bin Verloren In Berlin</B></P>
+Автор: Vit Belov
+
+### 12.08.2008 reviews Проходной юбилейный альбом датчан
+
+<P>Датчане ILLDISPOSED подготовили свой десятый альбом “The Prestige”, который по какой-то непостижимой случайности вышел на AFM. В довольно обширной истории этой группы бывали разные времена. Многие альбомы ILLDISPOSED на нашем сайте проходят под литерой ‘death-grind’, в этом свете особенно весело слушать эту новую работу.</P>
+<P>“The Prestige” – типичная скандинавская death-metal продукция. Среднетемповая, забойная и достаточно мелодичная. Обозреваемый альбом должен понравиться любителям поздних HYPOCRISY и GOREFEST, а так же GRAVE и DISMEMBER. К сожалению, эта пластинка страдает некоторым однообразием, поэтому расширить ей свою аудиторию ILLDISPOSED не придётся. Российское издание добито тремя концертными трэками, что также не очень увеличивает ценность этой работы.</P>
+<P>Не знаю, играли ли когда-нибудь ILLDISPOSED ‘death-grind’, но надеюсь, это у них получалось лучше, чем их шведский death-metal. “The Prestige” весь сочинён одним человеком, гитаристом Jakob Batten, и это заметно. Идей ему отчаянно не хватило.</P>
+Автор: Vit Belov
+
+### 13.12.2008 news ILLDISPOSED на Massacre
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ILLDISPOSED</STRONG> подписали контракт с <STRONG>Massacre Records</STRONG>. Релиз их новой работы намечен на 29 августа 2009 года.</FONT></P>
+Автор: Vit Belov
+
+### 09.01.2009 news ILLDISPOSED сочинили пять песен
+
+<P>Датчане <STRONG>ILLDISPOSED</STRONG> сообщили о том, что сочинили пять песен для нового альбома. В начале апреля группа планирует войти в студию и записать пластинку, выходящую 28 августа на <STRONG>Massacre</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.06.2009 news Новый альбом ILLDISPOSED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая работа<STRONG> ILLDISPOSED</STRONG> будет называться <STRONG>"To Those Who Walk Behind Us"</STRONG>&nbsp;и выйдет 28 августа на <STRONG>Massacre Records</STRONG>. В тот же день на немецком лэйбле выйдут два переиздания датской группы, альбомы <STRONG>"1-800 Vindication"</STRONG> (2004)&nbsp;и <B>"Burn Me Wicked"</B> (2006).</FONT></P>
+<P><center><IMG height=397 src="/images/news_rus/2009.06/14218.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 01.02.2011 news ILLDISPOSED: новый альбом &quot;There Is Light (But It&#39;s Not For Me)&quot;
+
+<P>Новый альбом, <B itxtvisited="1">"There Is Light (But It's Not For Me)"</B>, датчан&nbsp;<B itxtvisited="1">ILLDISPOSED</B> выходит 25 марта&nbsp;на <B itxtvisited="1">Massacre Records</B>. Группа записала этот диск в датской <B itxtvisited="1">Antfarm Studio</B>, с продюсером&nbsp;<B itxtvisited="1">Tue Madsen</B> (<B itxtvisited="1">MOONSPELL</B>, <B itxtvisited="1">DARK TRANQUILLITY</B>, <B itxtvisited="1">GOREFEST</B>, <B itxtvisited="1">SICK OF IT ALL</B>).</P>
+<P>Обложку для&nbsp;<B itxtvisited="1">"There Is Light (But It's Not For Me)"</B> выполнил <STRONG>Lasse Hoile</STRONG> - художник, прежде работавший над оформлением двух других альбомов <B itxtvisited="1">ILLDISPOSED</B>: <B itxtvisited="1">"1-800 Vindication"</B> и <B itxtvisited="1">"Burn Me Wicked"</B>.</P>
+<P>Фотографии, сделанные во время работы над альбомом, можно посмотреть по адресу: <A href="http://illdisposed.dk/gallery/?dir=Antfarm2011">http://illdisposed.dk/gallery/?dir=Antfarm2011</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.02/18386.jpg" width=400 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 25.05.2012 news ILLDISPOSED в сентябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.05/24017.jpg" width=475 align=right border=0>Новый альбом<STRONG> ILLDISPOSED</STRONG> <STRONG>"Sense The Darkness" </STRONG>выйдет 21 сентября на <STRONG>Massacre Records</STRONG>. В настоящее время работа записывается в студии <STRONG>Antfarm Studio </STRONG>с продюсером <STRONG>Tue Madsen</STRONG> (<B itxtHarvested="0" itxtNodeId="69">MOONSPELL</B>, <B itxtHarvested="0" itxtNodeId="68">DARK TRANQUILLITY</B>, <B itxtHarvested="0" itxtNodeId="67">GOREFEST</B>, <B itxtHarvested="0" itxtNodeId="66">SICK OF IT ALL</B>). Вот названия песен:</FONT></P>
+<P>* <B itxtHarvested="0" itxtNodeId="61">Sense The Darkness</B> <BR itxtNodeId="60">* <B itxtHarvested="0" itxtNodeId="59">We Do This Alone</B><BR itxtNodeId="58">* <B itxtHarvested="0" itxtNodeId="57">The Poison</B> <BR itxtNodeId="56">* <B itxtHarvested="0" itxtNodeId="55">Eyes Popping Out</B> <BR itxtNodeId="54">* <B itxtHarvested="0" itxtNodeId="53">Another Kingdom Dead</B> <BR itxtNodeId="52">* <B itxtHarvested="0" itxtNodeId="51">Time To Dominate</B> <BR itxtNodeId="50">* <B itxtHarvested="0" itxtNodeId="49">She's Undressed</B> <BR itxtNodeId="48">* <B itxtHarvested="0" itxtNodeId="47">Never Compromise</B> <BR itxtNodeId="46">* <B itxtHarvested="0" itxtNodeId="45">War</B><BR itxtNodeId="44">* <B itxtHarvested="0" itxtNodeId="43">Stop Running</B> <BR itxtNodeId="42">* <B itxtHarvested="0" itxtNodeId="41">Desire</B> <BR itxtNodeId="40">* <B itxtHarvested="0" itxtNodeId="39">I Am Possessed</B> <BR itxtNodeId="38">* <B itxtHarvested="0" itxtNodeId="37">Too Blind To See</B></P>
+<P>Обложку создал <STRONG>Mircea Gabriel Eftemie</STRONG> (<B itxtHarvested="0" itxtNodeId="33">MNEMIC</B>).</P>
+Автор: Vit Belov
+
+### 06.01.2013 news Новый клип ILLDISPOSED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео датчан<STRONG> ILLDISPOSED</STRONG> на песню <STRONG>"Eyes Popping Out" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома коллектива <STRONG>"Sense The Darkness"</STRONG>, который вышел в сентябре на <STRONG>Massacre Records</STRONG>, а в России был издан на<STRONG> Mazzar Records</STRONG>.</FONT></P>
+<CENTER><IFRAME height=281 src="http://player.vimeo.com/video/56816901" frameBorder=0 width=500 webkitAllowFullScreen mozallowfullscreen allowFullScreen></IFRAME>
+<P><A href="http://vimeo.com/56816901"></P></CENTER></A>
+Автор: Vit Belov
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Illdisposed - недавно открыл для себя этот коллектив...

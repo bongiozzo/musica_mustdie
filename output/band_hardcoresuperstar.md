@@ -162,6 +162,105 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.03.2009 news HARDCORE SUPERSTAR на Nuclear Blast
+
+<P><STRONG>Nuclear Blast</STRONG> подписали группу<STRONG> HARDCORE SUPERSTAR</STRONG>. Шведские глэмовики трудятся в студии<STRONG> IN FLAMES</STRONG> над своим новым альбомом "<STRONG>Beg For It</STRONG>", который выйдет в июне.</P>
+Автор: Vit Belov
+
+### 04.04.2009 news Новый сингл HARDCORE SUPERSTAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сингл <STRONG>HARDCORE SUPERSTAR</STRONG> <STRONG>"Beg For It" </STRONG>можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/hcssgbg">http://www.myspace.com/hcssgbg</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Одноимённый новый альбом группы выйдет 5 июня на<STRONG> Nuclear Blast</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 16.04.2009 news Обложка нового HARDCORE SUPERSTAR
+
+<P><STRONG>HARDCORE SUPERSTAR</STRONG> опубликовали обложку нового альбома <STRONG>"Beg For It"</STRONG>, выходящего 2 июня на <STRONG>Nuclear Blast</STRONG>.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.04/13967.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 01.05.2009 news Сингл HARDCORE SUPERSTAR стал &quot;золотым&quot;
+
+<P>Новый сингл <STRONG>HARDCORE SUPERSTAR</STRONG> <STRONG>"Beg For It" </STRONG>занял пятое место в Швеции, где стал "золотым".</P>
+Автор: Vit Belov
+
+### 12.05.2009 news Шведы играют в футбол
+
+<P>В субботу 9 мая члены шведских групп <STRONG>IN FLAMES, SABATON, TIAMAT, HARDCORE SUPERSTAR, MILLENCOLIN, THE HAUNTED</STRONG> и <STRONG>BULLET</STRONG> приняли участие в футбольном турнире "<STRONG>Metallsvenskan</STRONG>". Команда в которой участвовал вокалист <STRONG>DARK TRANQUILLITY Mikael Stanne</STRONG> заняла третье место. Турнир планируется сделать ежегодным.</P>
+Автор: Vit Belov
+
+### 28.05.2009 news Послушай новый HARDCORE SUPERSTAR
+
+<P>Новый альбом <STRONG>HARDCORE SUPERSTAR "Beg For It"</STRONG> можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/hcssgbg">http://www.myspace.com/hcssgbg</A></P>
+Автор: Vit Belov
+
+### 25.06.2009 reviews Современный glam-metal
+
+<P>Шведы HARDCORE SUPERSTAR возникли на нашем рынке как-то неожиданно. Их прошлую очень задорную и качественную пластинку издал Irond по лицензии неких Gain Records. В первую очередь коллектив поражал несуразным дизайном альбома и подозрительным названием. Оказалось же, что HARDCORE SUPERSTAR существуют уже более десяти лет, а их альбомы выходили не где-нибудь, а на Music For Nations, до самой его кончины. Теперь HS под своё крыло взяли Nuclear Blast. Думается, сейчас все заговорят об этой группе.</P>
+<P>HARDCORE SUPERSTAR играют набирающий сейчас популярность «приметаллизированный» glam-rock. Традиционные весёлые мелодии от MOTLEY CRUE или GUNS’N’ROSES в современном очень жёстком звучании. Слушается просто великолепно. Мелодии настолько «попсовы», а звук настолько тяжёл, что кажется, эта музыка могла бы завоёвывать дискотеки. От деревенских до гламурных. Быть может, это где-то и происходит, но не в нашей стране. Хвала всему, что каким-то образом у нас в Отечестве сформировалась некая группа людей, которая за “Beg For It” отдаст всё на свете. </P>
+<P>Так всегда бывает. Молодые группы возрождают интерес к стилю, а старички приходят и всё забирают себе. Не позвольте себя обманывать. Если вы послушали новый альбом GUNS’N’ROSES, и вам показалось, что вам разонравился этот стиль, не верьте. Послушайте HARDCORE SUPERSTAR или THE POODLES! Вам точно понравится.</P>
+Автор: Vit Belov
+
+### 06.08.2009 news Видео HARDCORE SUPERSTAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип <STRONG>HARDCORE SUPERSTAR</STRONG> на песню <STRONG>"Beg For It" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/pirrr1DBjxo&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/pirrr1DBjxo&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.10.2010 news Обложка нового альбома HARDCORE SUPERSTAR
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17409.jpg" width=400 height=354>Шведы&nbsp;<B itxtvisited="1">HARDCORE SUPERSTAR</B> выпускают свой новый альбом, <B itxtvisited="1">"Split Your Lip"</B>, в Европе 26 ноября на <B itxtvisited="1">Nuclear Blast Records</B> (за исключением Скандинавии, где альбом&nbsp;выйдет на <B itxtvisited="1">Gain Records</B>). Первый сингл с альбома, с песнями <B itxtvisited="1">"Moonshine"</B> и <B itxtvisited="1">"Guestlist"</B>, выйдет в начале ноября, как эксклюзивное приложение к журналу <B itxtvisited="1">Sweden Rock</B>.</P>
+<P>Группа опубликовала обложку выходящего альбома.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Комментирует барабанщик&nbsp;<B itxtvisited="1">Magnus "Adde" Andreasson</B>: <EM>"Первоночальной идей для обложки было изобразить сексопильную&nbsp;женщину, царапующую спину мужчине, но позже, когда мы зависали в сауне и слушали наш новый альбом, всё пошло в совсем другом направлении. Мы были в сауне и слушали на нашем бумбоксе песню <B itxtvisited="1">"Split Your Lip"</B>, когда наш дорогой друг <B itxtvisited="1">Biffen</B> (техник <B itxtvisited="1">IN FLAMES</B>, <B itxtvisited="1">THE HAUNTED</B>, <B itxtvisited="1">ENTOMBED</B> и многих других) поднял руку, чтобы сделать универсальный&nbsp;жест, изображающий лизание "киски". Босс нашего лейбла, <B itxtvisited="1">Markus Tagaris</B>&nbsp;(<STRONG>Gain Records</STRONG>), немедленно ухватился за идею изображения этого жеста на обложке."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом <STRONG>"Split Your Lip"</STRONG> был записан за пять дней в студии <B itxtvisited="1">Bohus Sound</B> (Kung&#228;lv, Sweden) с продюсером Тобиасом Линделлом&nbsp;(<B itxtvisited="1">Tobias Lindell</B>).<BR itxtvisited="1"></P></FONT>
+Автор: Headcrusher
+
+### 21.10.2011 news HARDCORE SUPERSTAR выпускают сборник лучших песен
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21640.jpg" width=400 height=400>28 октября, шведы <STRONG>HARDCORE SUPERSTAR</STRONG> выпускают диск с лучшими своими песнями. Альбом, получивший название <STRONG>"The Party Ain't Over 'Til We Say So"</STRONG>, выходит на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Рекламный ролик альбома можно посмотреть по ссылке: </P>
+<P><A href="http://www.youtube.com/watch?v=He4MtVoTjT4">http://www.youtube.com/watch?v=He4MtVoTjT4</A></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>We Don't Need A Cure</STRONG> <EM>(новая песня)<BR></EM>02. <STRONG>We Don't Celebrate Sundays<BR></STRONG>03. <STRONG>Moonshine</STRONG><BR>04. <STRONG>My Good Reputation<BR></STRONG>05. <STRONG>Wild Boys<BR></STRONG>06. <STRONG>Someone Special<BR></STRONG>07. <STRONG>Dreamin' In A Casket<BR></STRONG>08. <STRONG>Into Debauchery<BR></STRONG>09. <STRONG>Here Comes That Sick Bitch<BR></STRONG>10. <STRONG>Last Call For Alcohol<BR></STRONG>11. <STRONG>Beg For It<BR></STRONG>12. <STRONG>Liberation</STRONG><BR>13. <STRONG>Bastards</STRONG><BR>14. <STRONG>Medicate Me<BR></STRONG>15. <STRONG>Standin' On The Verge<BR></STRONG>16. <STRONG>Still I'm Glad<BR></STRONG>17. <STRONG>Have You Been Around<BR></STRONG>18. <STRONG>Shame</STRONG><BR>19. <STRONG>Honey Tongue<BR></STRONG>20.<STRONG> Run To Yur Mama</STRONG></P>
+Автор: Headcrusher
+
+### 28.12.2012 news HARDCORE SUPERSTAR: детали 9 студийного альбома &quot;C’mon Take On Me&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25195.jpg" width=400 height=400>Шведские глэм-металлисты <STRONG>HARDCORE SUPERSTAR</STRONG> наносят завершающие штрихи к своему девятому студийному альбому. </P>
+<P>Диск получил название <STRONG>"C’mon Take On Me"</STRONG> и был спродюсирован&nbsp;Рэнди Стаубом (<STRONG>Randy Staub</STRONG>), который прежде работал с такими именами, как <STRONG>METALLICA</STRONG>, <STRONG>M&#214;TLEY CR&#220;E</STRONG>, <STRONG>THE CULT</STRONG>.</P>
+<P>Фотографию для обложки альбома выполнил <STRONG>Micke Johansson</STRONG>.</P>
+<P>Европейская дата выпуска <STRONG>"C’mon Take On Me" </STRONG>запланирована на 1 марта 2013 г. на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Cutting The Slack<BR></STRONG>02. <STRONG>C'mon Take On Me<BR></STRONG>03. <STRONG>One More Minute<BR></STRONG>04. <STRONG>Above The Law<BR></STRONG>05. <STRONG>Are You Gonna Cry Now<BR></STRONG>06. <STRONG>Stranger Of Mine<BR></STRONG>07. <STRONG>Won't Take The Blame pt. 1<BR></STRONG>08. <STRONG>Won't Take The Blame pt. 2 (Sect Meeting)<BR></STRONG>09. <STRONG>Dead Man's Shoes<BR></STRONG>10. <STRONG>Because Of You<BR></STRONG>11. <STRONG>Too Much Business<BR></STRONG>12. <STRONG>Long Time No See</STRONG></P>
+Автор: Headcrusher
+
+### 17.01.2013 news HARDCORE SUPERSTAR: клип на песню &quot;One More Minute&quot;
+
+<P align=right><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские глэмстеры <STRONG>HARDCORE SUPERSTAR</STRONG> презентовали своё новое видео на песню <STRONG>"One More Minute"</STRONG> на сайте английского <A href="http://www.metalhammer.co.uk/">Metal Hammer</A>.&nbsp;Его можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек <STRONG>"One More Minute" </STRONG>вошёл на&nbsp;альбом шведов <STRONG>"C'mon Take Me On"</STRONG>, который выйдет 4 марта на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/H5rwfgxFEIU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 11.05.2013 news HARDCORE SUPERSTAR: видеоклип &quot;C&#39;mon Take On Me&quot;
+
+<P>Новое видео глэмующих шведских металлистов <STRONG>HARDCORE SUPERSTAR</STRONG> на титульный трек с последнего альбома, можно посмотреть ниже.</P>
+<P>Напомним, что диск <FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>"C'mon Take Me On" </STRONG>вышел 4 марта&nbsp;этого года&nbsp;на <STRONG>Nuclear Blast</STRONG>.</FONT></FONT></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/R2cx7EPZRsk?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 07.02.2014 news HARDCORE SUPERSTAR представили концертный видеоролик на трек &quot;Last Call For Alcohol&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>HARDCORE SUPERSTAR</STRONG> представили концертный видеоролик на трек <STRONG>"Last Call For Alcohol"</STRONG>. Посмотреть его можно ниже.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/1Htk40fRczI" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

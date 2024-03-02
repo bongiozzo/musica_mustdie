@@ -57,6 +57,9 @@ Guitars Played By Divad (NECROMANTIA).
 * C группой "Necromantia" Magus Wampyr Daoloth
 * C группой "Raism" Magus Wampyr Daoloth
 
+## Публикации
+
+
 ## Обсуждения
 
 

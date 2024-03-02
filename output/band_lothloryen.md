@@ -33,6 +33,15 @@ heavy-folk from Brazil
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2009 news LOTHLORYEN выпустили альбом
+
+<P>Бразильская fantasy heavy-power-metal группа<STRONG> LOTHLORYEN</STRONG> выпустила новый альбом <STRONG>"Some Ways Back No More"</STRONG> в 2008 году на <STRONG>Die Hard</STRONG>. Ознакомиться с творчеством группы можно на <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/lothloryenband">http://www.myspace.com/lothloryenband</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

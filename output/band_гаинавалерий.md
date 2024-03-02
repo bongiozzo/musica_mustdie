@@ -74,6 +74,31 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.10.2008 news Новый альбом Валерия Гаины на CD-Maximum
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2008.10/12903.jpg" width=250 align=right border=5>Скоро на <STRONG>CD-Maximum</STRONG> выйдет второй сольный альбом легенды русского heavy metal<STRONG> Валерия Гаины</STRONG> под названием "<STRONG>С Кем Ты Играешь И Поёшь?!</STRONG>". В него войдут следующие композиции:</P>
+<P>1. <STRONG>Время</STRONG> <BR>2. <STRONG>Это твой день</STRONG><BR>3. <STRONG>С кем ты играешь и поёшь?!<BR></STRONG>4. <STRONG>Кануло в лету</STRONG><BR>5. <STRONG>Письмо<BR></STRONG>6. <STRONG>Наш парень<BR></STRONG>7. <STRONG>Хочешь не верить...</STRONG> <BR>8. <STRONG>Привет-пока!<BR></STRONG>9. <STRONG>Так дай же мне</STRONG><BR>10. <STRONG>Я иду</STRONG><BR>11. <STRONG>Плыви по течению</STRONG><BR>12. <STRONG>Switching Lanes</STRONG> (bonus track)</P>
+Автор: Vit Belov
+
+### 09.11.2011 news Новый диск Валерия Гаины &quot;Fingertips&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.11/21949.jpg" width=400 height=400>20 ноября на лейбле <STRONG>Metalism</STRONG> выходит новый диск <STRONG>Валерия Гаины "Fingertips</STRONG><STRONG>"</STRONG>.</P>
+<P>На альбом вошло 8 инструментальных трека и 4 песни.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Fingertips</STRONG><EM> <BR></EM>02. <STRONG>The Raptor</STRONG><EM><BR></EM>03. <STRONG>Творец</STRONG><EM><BR></EM>04. <STRONG>Punch In</STRONG><EM><BR></EM>05. <STRONG>Big Time</STRONG><EM><BR></EM>06. <STRONG>Война</STRONG><EM><BR></EM>07. <STRONG>Slow Go</STRONG><EM><BR></EM>08. <STRONG>Go For It</STRONG><EM><BR></EM>09. <STRONG>Твой Путь</STRONG><EM><BR></EM>10. <STRONG>Down Under</STRONG><EM> <BR></EM>11. <STRONG>Не Убий&nbsp;И Не Убей</STRONG><EM><BR></EM>12. <STRONG>Clean Run</STRONG></P>
+<P>Уже сейчас можно сделать предварительный заказ диска (с автографом музыканта)&nbsp;по адресу:</P>
+<P><A href="http://web.me.com/msalimova/gainamusic.com/Buy_music.html">http://web.me.com/msalimova/gainamusic.com/Buy_music.html</A></P>
+Автор: Headcrusher
+
+### 09.09.2012 news Новая песня Валерия Гаины &quot;Завтра&quot;
+
+<P><EM>"Моя новая композиция <STRONG>"Завтра"</STRONG> посвящена всем моим близким и друзьям, которых со мной уже нет."</EM> - <STRONG>Валерий Гаина</STRONG>.&nbsp;</P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F58772360&show_artwork=true" frameBorder=no width="100%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### ВАЛЕРИЙ ГАИНА в Москве, 29 сентября

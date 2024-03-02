@@ -36,6 +36,31 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.12.2011 news Второй альбом NOWEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=425 alt="" hspace=0 src="/images/news_rus/2011.12/22292.png" width=425 align=right border=0>Финская thrash-death metal команда <STRONG>NOWEN</STRONG> подготовила к выходу второй альбом "<STRONG>Essence Of Fear</STRONG>". Пластинка выйдет 11 января на <STRONG>Violent Journey Records</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Intro II<BR></STRONG>2. <STRONG>The Egotist<BR></STRONG>3.<STRONG> The Inner Beast</STRONG><BR>4. <STRONG>Crown of Fallacy</STRONG><BR>5. <STRONG>Path of Destruction</STRONG><BR>6. <STRONG>Deadly Force</STRONG><BR>7. <STRONG>Sacrifice For Nothing</STRONG><BR>8. <STRONG>The Honor<BR></STRONG>9. <STRONG>Acts of Deceit<BR></STRONG>10. <STRONG>Corrupted By Poison</STRONG><BR>11. <STRONG>Essence of Fear</STRONG></P>
+<P><STRONG>MySpace: <A href="http://www.myspace.com/nowenband">http://www.myspace.com/nowenband</A></STRONG></P>
+Автор: Vit Belov
+
+### 15.11.2016 news NOWEN signed with MUSICA Production
+
+<p>Melodic death thrash metal band from Finland<strong> NOWEN</strong> signed deal with Russian label <strong>MUSICA Production</strong>. The third album of the band “<strong>Peace With Death</strong>” will be released on CD for a first time on December, 9.</p><p>"Peace With Death" was recorded, mixed and mastered at SoundSpiral audio in Kouvola, Finland by<strong> Juho Raiha</strong> (NONEXISTENCE, BLACK SUN AEON) and Nowen during October 2014 and May 2015. Cover artwork painted by <strong>Jani Riikonen</strong> (SPIRIT DESEASE).</p><p>Track-list:</p><p>1. Intro III<br>2. When Death Arrives <br>3. In Death We Shine <br>4. The Lost Fire&nbsp; <br>5. The Gracious Farewell <br>6. Yearning&nbsp; <br>7. Peace with Death<br>8. Choices<br>8. Nothing to Forgive</p><p>Line-Up:</p><p>Mikko “Lappis” Lappalainen - Guitars & All Vocals<br>Jarno Nurmi – Bass<br>Ville Vehvilainen – Drums & Percussions</p><p>NOWEN was founded in 1999 as Mikko “Lappis” Lappalainen (ex-WITHERIA) solo project. Now band consists of former and current members of WALTARI, DESECRESY and FALCHION. NOWEN released two albums before: “Nothing But Hate” (2010, Violent Journey) and “Essence Of Fear” (2012, Violent Journey). </p><p>Contact us for reviews and interviews. </p><p>Facebook: <a href="https://www.facebook.com/NowenBand">https://www.facebook.com/NowenBand</a></p><p>
+</p><p lang="en-US" style="margin-bottom: 0cm;">You can order CD in our
+shop: <a href="http://rusmetal.net/"><u><font color="#000080">http://rusmetal.net</font></u></a></p><p>
+And in our shop on Ebay:
+<a href="http://stores.ebay.com/musicaproduction"><u><font color="#000080">http://stores.ebay.com/musicaproduction</font></u></a></p><p>
+</p><p><center><img width="315" height="315" src="/images/news/2016.11/30187.jpg" border="0"><p></p></center><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/CFLgsTTs_uI" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 14.02.2017 news NOWEN подписали контракт с MUSICA Production
+
+<p>Финская melodic death thrash metal группа <strong>NOWEN</strong> подписала соглашение с московским лэйблом <strong>MUSICA Production</strong> на издание на CD третьего студийного альбома «<strong>Peace With Dead</strong>”. Дата релиза диска в России — 3 февраля 2017 года.</p><p>«Peace with Dead” был записан и сведён в студии <strong>Souns Spiral Audio</strong> в финской Коувале с продюсером <strong>Juho Raiha</strong> (NONEXISTENCE, BLACK SUN AEON) в октябре 2014 — мае 2015 года. Обложку нарисовал <strong>Jani Riikonen</strong> (SPIRIT DESEASE).</p><p>Трек лист:</p><p>Intro III<br>When Death Arrives <br>In Death We Shine <br>The Lost Fire&nbsp; <br>The Gracious Farewell <br>Yearning&nbsp; <br>Peace with Death<br>Choices<br>Nothing to Forgive</p><p>Состав:</p><p>Mikko “Lappis” Lappalainen - Guitars & All Vocals<br>Jarno Nurmi – Bass<br>Ville Vehvilainen – Drums & Percussions</p><p>NOWEN были образованы в 1999 году Mikko “Lappis” Lappalainen (ex-WITHERIA). В настоящее время в группе бывшие и нынешние участники WALTARI, DESECRESY и FALCHION. Первые два альбома финнов: “Nothing But Hate” (2010, Violent Journey) и “Essence Of Fear” (2012, Violent Journey). </p><p>Facebook: <a href="https://www.facebook.com/NowenBand">https://www.facebook.com/NowenBand</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/CFLgsTTs_uI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

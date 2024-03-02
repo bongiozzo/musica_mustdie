@@ -9,6 +9,15 @@ Melodic death from St.Peterburg (Rus)
 
 * C группой "Exhumation (Russia)" 
 
+## Публикации
+
+### 18.02.2003 news 21-го февраля 2003 г. в клубе Carfex концерт...
+
+<p><IMG SRC="/images/news_rus/2003.02/3841.jpg" ALT="pho" width=250 height=170 hspace="15" vspace="5" border="1" align="right"> 21-го февраля 2003 г. в клубе Carfex пройдет концерт с участием следующих коллективов: <BR><BR> -Black Label (melodic metal)<BR> -Легионер (speed metal с элементами progressive)<BR> -Morrah (death metal)<BR> -Ascendancy (melodic death)<BR><BR> Начало в 19:00<BR> Адрес клуба "Carfex": <BR> <A HREF="http://www.black-label.ru/Rus/Concerts/CARFEX.jpg">Здание ДК "Красный Октябрь", ул. Блохина, д.8 - вход с улицы Яблочкова", м.Спортивная</A>:<BR> <BR> Вход - 80 руб.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

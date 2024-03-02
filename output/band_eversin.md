@@ -26,6 +26,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.10.2015 news Новый альбом EVERSIN
+
+<P>В мае этого года на лэйбле <STRONG>My Kingdom Music</STRONG> вышел третий альбом итальянской progressive/power/thrash metal команды <STRONG>EVERSIN "Trinity: The Annihilation"</STRONG>. Лирик-видео на песню "<STRONG>Chaosborn</STRONG>" можно посмотреть ниже.</P>
+<P>Альбом в формате digipak можно приобрести здесь по цене 499 рублей: <A href="http://escapemind.ru/goods/EVERSIN-Trinity-The-Annihilation-digi">http://escapemind.ru/goods/EVERSIN-Trinity-The-Annihilation-digi</A></P>
+<P>
+<CENTER><iframe width="560" height="315" src="https://www.youtube.com/embed/rEtykZ62Mlc" frameborder="0" allowfullscreen></iframe>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

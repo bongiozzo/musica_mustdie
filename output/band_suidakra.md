@@ -226,6 +226,549 @@ Track 7 is a previously unreleased demo version from the "Caledonia" album.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.10.2000 reviews Вот вам и фэнтезийный death-metal
+
+<P>Вот вам и фэнтезийный death-metal. Новый сокрушительный удар немецкой команды. Выбрав однажды и верно свою неподражаемую стилистику, они продолжают следовать в правильном направлении. Супермелодичный death-metal со скримингом - характерные черты шведского death-metal сплетаются с акустическими партиями и хоровой поддержкой в духе Blind Guardian. Ко всему этому подмешиваются обильные клавишные, фолковые инструменты и чистый бардовский вокал. Необычайно красивая и мощно-напористая музыка. Масса умопомрачительных мелодий, к тому же разнообразных. Альбом несомненно заслуживающий внимание и достойный всяческих похвал.</P>
+Автор: Dimas
+
+### 19.11.2001 news Emprise To Avalon...
+
+<p>Century Media Records подписали мелодичных немцев "SUIDAKRA", и теперь оные собираются творить четвертый альбом. "Emprise To Avalon" будет делаться в Stage One Studio с продюссером Andy Classen с 3-го по 23-е декабря. Выйдет альбом уже следующей весной и предшествовать ему будет мощный европейский тур в т.ч. и Summer Breeze Festival.</p>
+
+Автор: Yermola
+
+### 19.11.2001 news SUIDAKRA will be recording their fifth album and the follow-up ...
+
+<p>Century Media Records have signed German melodic black metal act SUIDAKRA. SUIDAKRA will be recording their fifth album and the follow-up to 2000’s The Arcanum with longtime producer Andy Classen at Stage One Studio in Germany between December 3rd and December 23rd. Entitled Emprise To Avalon, the new CD will be released via CM during the spring and will be followed by a full European tour, including an appearance at the Summer Breeze Festival.</p>
+
+Автор: Yermola
+
+### 04.07.2002 reviews Мелодичное обрамление мифологии
+
+<p>Новехонькая работа германских музыкантов. Свой пятый альбом музыканты выпустили на новом для себя лэйбле Century Media. В лирическом плане, альбом опирается на легенды и мифы о короле Артуре (Excalibur, Camelot и Magic of Avalon). В музыкальном плане, это все та же безумная, энергичная и красивая смесь melodic-death, fantasy power и folk metal. Все сделано очень качественно, музыка радует слух, но не несет в себе ничегошеньки нового. Все это лишь разработка собственных старых идей. Очаровательная волшебная музыка, этот альбом группе удался на славу. "Emprise To Avalon" проведет вас сквозь звуковой ландшафт войн и трагедий при комбинировании скоростного агрессивного материала с некоторыми атмосферными интермеццо и акустическими вставками, чередованием экстремального вокала с высоким и чистым и грамотными хоралами. В студии техническую работу с блеском проделал Andy Classen. Хороший богатый звук, отличная музыка, достойное производство. Вот вам секрет успеха от SUIDAKRA. Наслаждайтесь...</p>
+
+Автор: Dimas
+
+### 12.07.2002 news Emprise To Avalon...
+
+<p>Немцы недавно закончили работу над своим новым альбомом "Emprise To Avalon". Группа считает этот альбом лучшим и наиболее удачным. "Emprise To Avalon" содержит следующие треки: <BR><BR> <IMG SRC="http://www.suidakra.info/gfx/_cover_emprise-to-avalon.jpg" ALT="pho" width=215 height=215 hspace="15" vspace="5" border="1" align="left"> 01. Darkane Times<BR> 02. Dinas Emrys<BR> 03. Pendragons Fall<BR> 04. The Highking<BR> 05. The Spoils Of Annwn<BR> 06. The Quest<BR> 07. And The Giants Dance ...<BR> 08. Song Of The Graves<BR> 09. Still The Pipes Are Calling<BR><BR> Также в поддержку нового альбома Suidakra отправляется в тур по Европе, который начнется в октябре 2002г.</p>
+
+Автор: Korvin
+
+### 22.05.2003 news Suidakra записали новый альбом
+
+<p>Suidakra закончили запись нового полноформатника "Signs For The Fallen". Альбом был записан в Германии в студии Stage One совместно с продюсером Энди Классеном. Сабж должен выйти на Century Media 28 июля.</p>
+
+Автор: Morsus
+
+### 22.05.2003 news Suidakra have finished working on their new album
+
+<p>Suidakra have finished working on their new studio album, titled "Signs For The Fallen". The album was recorded at Stage One studios in Germany and produced by Andy Classen. It is scheduled for a July 28th release through Century Media.</p>
+
+Автор: Morsus
+
+### 22.09.2003 reviews Для вегетарианцев от музыки
+
+<P>Ума не приложу, почему эта команда столь популярна как у нас, так и на Западе. Понятно, что речь идёт о «широкой известности в узких кругах», но всё же. Иначе не было бы у этой, к слову – весьма посредственной команды контракт с мажорами в лице Century Media. Продаются, надо полагать, весьма неплохо. Впрочем, это легко объяснимо. Берётся щепотка мелодик-дэта, щепотка попсовенького блэка и щепотка псевдо-фолка. Вся эта красота лакируется акустическими пассажами и распевками а-ля BLINDGUARDIAN. Блюдо кладётся в хорошую духовку (читай – студию) и готовится под чутким наблюдением хорошего повара (читай – продюсера и звукоинженера). Затем украшается всяческой дребеденью (читай – красивой обложкой), и – милости просим к столу. Вкусно? Не то, чтобы очень. Так, приятно и относительно свежо. Разок перекусить можно, но в дальнейшем поедать эту стряпню нет никакого желания. Что-то здесь не то. Ага, знаю! Соли с перчиком не хватает. Пресное блюдо. Для вегетарианцев от музыки. </P>
+
+<P>P.S. И хоть бы какой-нибудь прогресс… да только хрен там. Если не ошибаюсь, это уже шестой альбом SUIDAKRA, и – всё то же самое. Нет, не выйдет из них MOTORHEADили RUNNINGWILD. Не того полёта птица.</P>
+<P><I>Диск предоставлен компанией <B><A href="http://www.fono.ru/">ФОНО</A></B></I></P>
+Автор: Kai Mathias Stalhammar
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 10.10.2003 news GREEN CARNATION, MORK GRYNING and SUIDAKRA in Europe
+
+Oct. 30 - Innsbruck, AUT @ Hafen <BR>Oct. 31 - Wels, AUT @ Alter Schlachthof <BR>Nov. 01 - Wien, AUT @ Planet Music <BR>Nov. 02 - Budapest, HUN @ E-Klub <BR>Nov. 03 - Munchen, GER @ Garage <BR>Nov. 04 - Essen, GER @ Zeche Carl <BR>Nov. 05 - Heidelberg, GER @ Schwimmbad Musicclub <BR>Nov. 06 - Berlin, GER @ Halford <BR>Nov. 07 - Glauchau, GER @ Alte Spinnerei <BR>Nov. 08 - Munster, GER @ Live Arena <BR>Nov. 09 - Hamburg, GER @ Markthalle&nbsp;
+Автор: Vit Belov
+
+### 09.03.2004 news SUIDAKRA ищут гитариста и вокалиста.
+
+<P><B>SUIDAKRA</B> находятся в поиске нового гитариста и вокалиста, но это не значит, что в настоящем составе группы произошли или произойдут изменения. </P>
+Автор: Vit Belov
+
+### 12.08.2004 news SUIDAKRA готовят новый альбом
+
+<P><B><IMG height=218 alt="" hspace=0 src="/images/news_rus/2004.08/6914.jpg" width=300 align="left" border=5>SUIDAKRA</B> назвали новый альбом <B>"Command to Charge". </B>Он выйдет приблизительно в начале 2005 года. Пластинка будет записана в ноябре. Вот названия некоторых песен: <B>"Decibel Dance"</B>, <B>"Reap The Storm"</B>, <B>"The Alliance"</B>, <B>"Strange Perfection"</B>, <B>"Second Skin"</B>&nbsp;и <B>"Gathered In Fear"</B> (acoustic).</P>
+<P>Кроме прочего, <B>SUIDAKRA</B> собираются записать на видео своё выступление, посвящённое 10-летию группы, 1 октября в Любеке для выпуска DVD.&nbsp;</P>
+Автор: Vit Belov
+
+### 07.02.2005 news SUIDAKRA нашли лэйбл
+
+<P><STRONG>SUIDAKRA</STRONG> подписали контракт на выпуск нового альбома <STRONG>'Command To Charge'</STRONG> с <STRONG>Armageddon Media</STRONG>. Дата релиза: 25 апреля. </P>
+Автор: Vit Belov
+
+### 07.02.2005 news SUIDAKRA found new label
+
+<P><STRONG>SUIDAKRA</STRONG> have inked a new record deal with <STRONG>Armageddon Music</STRONG>. Their seventh album, "<STRONG>Command to Charge</STRONG>", is scheduled for release on April 25. A limited-edition digipack containing various bonus material will also be available.</P>
+Автор: Vit Belov
+
+### 30.08.2005 reviews Ну, теперь-то это точно не фолк
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SUIDAKRA</STRONG> очередной перепрыгнули на другой лэйбл. На этот раз их "домом" стал <STRONG>Armageddon</STRONG>. К сожалению поклонников группы,&nbsp;немцы внесли некоторые коррективы и в свою музыку. Фолковая часть, из-за которой <STRONG>SUIDAKRA</STRONG> получала высокие оценки критиков и обращала на себя внимание тысяч слушателей, куда-то подевалась. К подобной музыке можно отнести только инструментал "<STRONG>Dead Man's Real</STRONG>" и акустическую вещь "<STRONG>A Runic Rhyme</STRONG>". Оба эти трэка выглядят, как кавер версии, непонятно зачем попавшие на этот melodic death-metal альбом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SUIDAKRA</STRONG> играют теперь melodic death-metal, находящийся по своей современности где-то между новым и старым<STRONG>&nbsp;IN FLAMES</STRONG>: чистоголосый вокал уже есть, а ломанных и качовых риффов ещё нет. Также нет здесь и запоминающих мелодий. Эдакий незапоминающийся melodic-death-metal. Качественный и грамотный, но совсем неинтересный.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом бывших немецкий фолкеров пригодится только собирателям всея пластинок этого популярного ныне жанра - SMDM.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен Irond</FONT></P>
+Автор: Vit Belov
+
+### 31.01.2006 articles Интервью с басистом группы SuidAkrA Маркусом Ривальдтом
+
+<P><B>«Угар неизбежен» - интервью с басистом группы SuidAkrA Маркусом Ривальдтом</B></P>
+<P><B>Германская folk/melodic death metal группа SuidAkrA впервые приедет в Россию с концертами.</B></P>
+<P><B>4 февраля 2006 года в питерском клубе «АрктикА» и 5 февраля 2006 года в московском клубе «Релакс» состоятся уникальные выступления SuidAkrA. Уникальные во всех смыслах. Группа будет играть программу продолжительностью почти в 2 часа, что на треть больше стандартной программы группы. Так как подготовка к концертам началась еще полгода назад, у музыкантов было достаточно времени чтобы вспомнить (и даже разучить с нуля) все хиты с ранних альбомов, которые уже давным давно не игрались в живую. Основу программы составят песни с лучших альбомов группы таких как «Arcanum», «Emprise to Avalon» и «Signs for the Fallen», которые будут сыграны практически целиком. Кроме того, впервые в живую прозвучат несколько песен с грядущего альбома «Caledonia». Сам альбом выйдет не раньше чем через полгода, так что у российской публики будет уникальная возможность оценить новый материал гораздо раньше. </B></P>
+<P><B>Более того, питерский концерт будет записываться с помощью профессиональной аудио и видео-аппаратуры. Музыканты решили, что раз уж такая программа никогда больше не прозвучит, то нужно будет оставить о ней память в виде DVD.</B></P>
+<P><B>Подробнее о подготовке к российским концертам и других новостях группы расскажет басист Маркус Ривальдт.</B></P>
+<P><B>Привет, Маркус. Расскажи пожалуйста, что за музыку вы играете, для тех, кто вас еще не слышал.</B></P>
+<P>Прежде всего, это melodic death metal. Сейчас к нему примешано достаточно много кельтского фолка, а раньше, лет 10 назад, все это было больше похоже на black metal. Мы также используем акустические гитары и чистый вокал. Можете заценить mp3 на нашем сайте <SPAN><A href="http://www.suidakra.com/"><U>www<SPAN lang=RU>.</SPAN>suidAkra<SPAN lang=RU>.</SPAN>com</U></A></SPAN>, ведь в конце концов мнение слушателей является определяющим.</P>
+<P><B>В Германии сильная фолк-метал сцена? Сколько групп играет подобную музыку? Есть ли специальные фолк-металлические фестивали?</B></P>
+<P>Групп достаточно много, но точного количества не скажу, так как сам предпочитаю слушать death metal. Фэнов фолк-метал групп еще больше, судя по всему, так как у нас есть несколько специализирующихся на фолк-метале фестивалей, куда съезжается много народа. Впрочем, все наши folk-metal группы чаще играют на смешанных фестивалях.</P>
+<P><B>Все «фолковые» мелодии для ваших песен вы сами сочиняете или же пользуетесь аутентичным кельтским фолком для вдохновения и, возможно, заимствования?</B></P>
+<P>Один из наших гитаристов (Марсель) до прихода в SuidAkrA играл в фолк-группе (не металл). Он то и познакомил нас с кельтской музыкой. Сегодня мы уже настолько вросли в кельтский фолк, что все фолковые мелодии рождаются сами по себе, без всяких влияний из вне. </P>
+<P><B>Какие новости о грядущем альбоме?</B></P>
+<P>Наш новый альбом под названием «Caledonia» будет концептуальным, его сюжет основан на древней шотландской истории. Мы решили, что этот альбом будет нашим «возвращением к корням», так как с последним альбомом «Command To Charge» мы немного поспешили. Он нам, конечно, нравится, просто он уж слишком модерново звучит для SuidAkrA. Поэтому мы решили сделать небольшой шаг назад, тем более Марсель снова вернулся в группу. Новый материал будет записываться с использованием больших шотландских волынок, все будет очень фолково и в нашем родном стиле. Кстати, несколько тем с нового альбома будут впервые сыграны на концертах в России.</P>
+<P><B>Насколько SuidAkrA популярна в Германии? Можешь назвать несколько групп, которые, по твоему мнению, имеют такой же уровень популярности как и SuidAkrA.</B></P>
+<P>Я думаю, мы весьма известны здесь, так как группа существует уже больше 12 лет, к тому же наши альбомы издают крупные лэйблы по всему миру. У SuidAkrA за плечами более 150 концертов в разных странах Европы, так что практически все, кто увлекается металлом, по крайней мере, слышали название «SuidAkrA».</P>
+<P><B>SuidAkrA из года в год выступают на крупнейших металлических фестивалях типа Wacken Open Air, SummerBreeze и многих других. Вас туда ваши лэйблы (Armageddon Music и Century Media Records) вписывают или же вас приглашают непосредственно организаторы этих фестивалей?</B></P>
+<P>Как правило, мы контактируем непосредственно с организаторами этих фестивалей. В этой связи хочется отметить большое количество фэнов нашей группы в разных странах, которые способствуют нашим гастролям. Так случилось и с нашими концертами в России.</P>
+<P>Возвращаясь к вопросу, хочу сказать, что нашими концертами занимаются два крупных концертных агентства в Германии, но также мы сами занимаемся собственными выступлениями. Что касается лэйблов, то от них в этом плане нет практически никакой помощи. Если бы мы полагались только на них, то практически не выступали бы.</P>
+<P>Кстати, если кто-нибудь желает пригласить нас поиграть, можете обращаться напрямую к группе по адресу <SPAN><A href="mailto:booking@suidAkra.com"><U>booking@suidAkra.com</U></A></SPAN>. </P>
+<P><B>У вас нет свободного вокалиста, который помимо своих прямых обязанностей занимался бы шоу на концертах. Вместо этого в SuidAkrA поют два гитариста. Как у вас решен вопрос со зрелищностью на концертах?</B></P>
+<P>Ну, отсутствие свободного вокалиста – это отнюдь не что-то уникальное. Можно держать внимание публики и без того, чтобы пить пиво сразу из двух бутылок одновременно или прыгать в толпу. Поверь, у нас в этом деле огромный опыт, так что пришедшие на концерт будут приятно удивлены. </P>
+<P><B>У вас весьма быстрая музыка. Вы и на концертах играете с такой же бешенной скоростью или же помедленней, чтобы не лажать?</B></P>
+<P>Мы играем без метронома, так что реальная скорость зависит от нашего барабанщика, который задает темп. Стараемся, конечно, играть с той же скоростью, что и на альбомах, однако частенько на концертах творится дикий угар и барабанщик все время порывается играть быстрее, чем положено. Тут уж нам ничего не остается, как взвинчивать темп. Для нас это не проблема, благо техника игры позволяет. А некоторые куски наоборот играем медленней, чтобы было больше кача. Так сказать, подгоняем ритм под амплитуду взмаха хаером среднестатистического металхэда, хаха!</P>
+<P><B>Насколько много знает о России типичный германский музыкант? И что вообще ожидаете от русских концертов?</B></P>
+<P>Честно говоря, мало чего знаем. Например, в европейской музыкальной прессе я ни разу не встречал информации о русских группах. Даже в интернете практически ничего нет. Поэтому нам будет любопытно взглянуть на русский андерграунд и посмотреть на ваши группы в Санкт-Петербурге и Москве. </P>Что касается ожиданий, то они достаточно высоки, потому что знакомые нам группы рассказывали о русской публике. В Германии все любят, чтобы на концертах все звучало как на альбоме, и публика часто стоит, скрестив руки, и внимательно следит за тем, чтобы группа, где чего не налажала. Поэтому нам больше нравится выступать на крупных фестивалях, где на группу смотрят десятки тысяч и при таком количестве угар неизбежен, или же за границей, где наша музыка всем еще в новинку, поэтому реакция публики всегда как минимум хорошая. Надеюсь, в России будет не менее угарно, чем на каком-нибудь Вакене, так что увидимся на концертах!
+Автор: Дофф
+
+### 13.02.2006 news SUIDAKRA пишут материал
+
+<P>Материал для нового альбома <STRONG>SUIDAKRA "Caledonia"</STRONG> уже написан. Пластинка будет концептуальной, основанной на шотландской истории.</P>
+Автор: Vit Belov
+
+### 14.04.2006 news SUIDAKRA готовятся к студийной работе
+
+<P>Немецкие melodic black death&nbsp;металлеры <B>SUIDAKRA</B> готовятся войти в июле в местную студию <B>Gernhart Records</B>&nbsp;для записи своего нового альбома под названием <B>"Caledonia"</B>, выход которого запланирован в октябре 2006 года. Оформлением обложки снова займётся <B>Kris Verwimp.</B> На альбом войдут десять песен, которые составят концептуальную сагу, по мотивам древней истории Шотландии. </P>
+Автор: Dimas
+
+### 31.07.2006 news Новый альбом SUIDAKRA
+
+<P><IMG height=250 alt="" hspace=10 src="/images/news_rus/2006.07/10579.jpg" width=250 align=left border=0>Немецкие melodic black death металлеры <B>SUIDAKRA</B> завершили процесс микширования своего нового альбома под названием <B>"Caledonia"</B>, выход которого намечен на октябрь через <B>Armageddon Music</B>. Он был записан в <B>Gernhart Records,</B>&nbsp;а оформлением занимался <B>Kris Verwimp</B>. По словам музыкантов, <B>'Caledonia'</B> будет концептуальным альбомом по мотивам средневековой шотландской истории. Известны названия некоторых песен: <B>'Highland Hills'</B>, <B>'Forth-Clyde'</B>&nbsp;и&nbsp;<B>'The IXth Legion'</B>."</P>
+Автор: Dimas
+
+### 16.10.2006 news Первое видео SUIDAKRA
+
+<P>Первый видеоклип в истории<STRONG> SUIDAKRA</STRONG> на песню с нового альбома "<STRONG>The IXth Legion</STRONG>" можно посмотреть здесь: <A href="http://www.myspace.com/suidakra">http://www.myspace.com/suidakra</A></P>
+Автор: Vit Belov
+
+### 14.03.2007 articles Презентация НЕВИДЬ: &quot;SUIDAKRA с НЕВИДЬ сравнивать не надо&quot;.
+
+<P>Ну и, наконец, в четвёртый день весны состоялась презентация нового альбома «Ярга» новой группы бывшего вокалиста BUTTERFLY TEMPLE Лесьяра НЕВИДЬ. Интересно, что 1-го марта на концерт BUTTERFLY TEMPLE пришло меньшее количество фэнов. Правда, сравнивать посещаемость двух концертов не стоит, ведь презентация BT прошло в четверг в малоизвестном клубе, а НЕВИДЬ играли в «Релаксе» в воскресенье, да с западной поддержкой.</P>
+<P>Наряду с НЕВИДЬ в этот день в клубе можно было послушать немецкий коллектив SUIDAKRA и несколько наших команд, среди которых были популярные нынче СВАРГА. Вот с них, пожалуй, и начну. Восторгов по поводу этой группы я не разделяю. Быть может, идеологически они что-то собой и представляют, но только их музыка больше напоминает ЧАЙФ или ЛЮБЭ. Вокалист так просто может идти петь авторскую песню какую-нибудь, металлические же куски выглядят в их музыке неестественно. Видно, что СВАРГА больше любит попеть «за жизнь». Интересно, что публика, в рядах которой, как обычно, были и люди «вздымающие руки», очень бодро принимает эту группу. Националистически настроенные любители металла в нашей стране почему-то предпочитают более лирические композиции. «Брутал» их не привлекает, в отличие от западных коллег, которые предпочитают слушать маргинальную музыку. Забавно, как под последний хит СВАРГИ, люди, только что приветсвовавшие друг друга запрещёнными знаками, раскачивались в такт мелодии в духе медляков от группы ЧАЙФ. Оставалось только зажигалки зажечь. Национализм с человеческим лицом!!!</P>
+<P>НЕВИДЬ не заставили себя долго ждать. Кое-как настроившись, группа отыграла свой сэт перед полным залом поклонников. На НЕВИДЬ пришла основная публика, а SUIDAKRA им была уже неинтересна. К сожалению, Лесьяр был в очень хорошем настроении, подпитанном несколькими порциями алкоголя. Текст некоторых вещей, как мне показалось, он просто зачитывал по бумажке. Да и вообще, pagan-black-metal не для него. Вокалист и поэт зажат в рамках идеологии и тяжёлометаллической музыки. Понятно, что вне стен «Релакса» НЕВИДЬ мало кому интересны, но столь явное неудовольствие тяжёлыми вещами в собственном исполнении удивляет. Забойные куски Лесьяр просто прорыкивал-прохрипывал, не обращая внимания на аккомпанемент музыкантов. Зато, когда начинались мелодичные фолковые куски, певец оживал, благо на новом альбоме «Ярга» их достаточно. Как и оживал он при появлении вокалистки Ксении, которая выступала с большим удовольствием. Неслучайно в качестве финала для концерта группа исполнила вещь на стихи Есенина. Этот кабацкий и разгульный «Озорной гуляка» определяет нынешнее настроение Лесьяра и товарищи. Да и что тут говорить, подобные песни больше идут этому рыжему певцу, нежели серьёзные, какие-то death-metal’ические, трэки «Зова Новой Гипербореи». И в очередной раз отмечу публику. Под Есенина ребята зажигали, как могли.</P>
+<P>Последними вышли SUIDAKRA. Народ рассосался, звук настроился, и мы увидели хороший среднеевропейский уровень. На последнем альбоме группа вернулась к своим folk корням, оставив никому не нужные эксперименты в духе melodic death-metal. Соответственно, и этому концерту подобное завершение подходило. Стало понятно тут же, чем отличается мировая рок-музыка от советско-российской. Не знаю, о чём там SUIDAKRA поют, возможно, их тексты не менее актуальны, чем вирши Лесьяра или СВАРГИ, но на первом плане у них всё-таки музыка. Мы услышали качественный black-death-metal с лёгким налётом viking-metal. Такой, каким его видит весь мир. Наши же музыканты не запирают себя в рамках стилей, не заморачиваются, встраивая своё творчество в общемузыкальные понятия. Они просто пропевают тексты, а музыкальный аккомпанемент их мало волнует. НЕВИДЬ выпустили, конечно же, очень неплохой альбом и сделали правильные выводы, приблизив своё звучание и мелодику к стандартам. СВАРГЕ до этого ещё далеко, их творчество пока слишком «попсово». SUIDAKRA же не поразили в этом зале никого, они просто отработали и поехали дальше. Вряд ли их концерт кого-то порадовал слишком сильно.</P>
+<P>Вот так закончилась первая неделя марта, от посещения стольких концертов я до сих пор отойти не могу. Главное же то, что я очередной раз убедился, что в Москве есть, что послушать в любой выходной. </P>
+Автор: Vit Belov
+
+### 24.04.2008 reviews 13 лет мелодик-дэта с волынками
+
+<P>Группа Suidakra, детище Аркадиуса Антоника (как известно, название группы ничего не обозначает, это просто имя её лидера, прочитанное наоборот), отметила свое тринадцатилетие (если быть совсем точным - четырнадцатилетие) выпуском DVD "13 Years Of Celtic Wartunes", к которому прилагается еще и CD "Best Of". DVD состоит из трех разделов. Во-первых, это запись выступления коллектива на фестивале Wacken Open Air 3-го августа 2007-го года на Black Stage (было это в 11 часов утра), где Suidakra представили 8 номеров со своих альбомов. Кто видел вакенские концерты, тот примерно уже может себе представить, о чем идет речь; здесь нет ничего необычного. Во-вторых, это акустический концерт 25.11.2006 в клубе "Die Pumpe" ("насос") в городе Киль. Кроме самого unplugged-исполнения, данный сет интересен еще и тем, что эти немцы играют здесь несколько каверов: 'The One Piece Puzzle' (Skyclad), 'Whiskey In The Jar' (ирландская национальная песня), 'Wish You Were Here' (Pink Floyd) и 'Johnny B' (The Hooters). И, будем честными, сет получился просто отличным. Наконец, в-третьих, это "обязательный бонус" (в том смысле обязательный, что сегодня почти каждый DVD имеет подобный раздел). Он состоит из двух (весьма малобюджетных) видеоклипов, 'The 9th Legion' и 'Forth Clyde', и довольно оригинально сделанного интверью на том самом вакенском фестивале в 2007-ом. При этом вы можете выбрать как оригинальный язык, т.е. немецкий, так и английские субтитры. Среди прочего, из этого интервью мы узнаем, что название группы было выбрано в ходе какой-то пьянки - вряд ли экстраординардное событие в суровом мире хэви-метал. Единственное, чего не хватает на этом DVD, так это выбора звука, здесь, как я понял, только 2.0. CD оказался никаким не повторением акустической части концертов, а представляет собой "бестник" с семнадцатью (плюс 'Intro') номерами со всех восьми студийных альбомов Suidakra, начиная с&nbsp;"Lupine Essence" (1997) и заканчивая "Caledonia" (2006). При этом все треки были ремастированы, а два даже записаны заново. Правда, вряд ли CD представляет большой интерес, ведь никакого эксклюзивного материала на нем не представлено. Всё это дело выходит в шикарном оформлении: формат "дигибук-книга" с красноватым переплетом. А наиболее яростные фанаты группы могут заказать себе на сайте Suidakra данный релиз еще и с футболкой (на выбор с коротким или длинным рукавом) и стикером. Действительно, группа постаралсь и не ударила лицом в грязь. А если вы никогда не слышали этой команды, то касательно её музыкального стиля можно сказать, что они играют мелодик-дэт ближе к скандинавскому разливу, снабжая его всякими шотландскими волынками и прочими подобными фолковыми делами.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 08.12.2008 news Новый альбом SUIDAKRA
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.12/13127.jpg" width=400 align=right border=5>Новая пластинка <STRONG>SUIDAKRA</STRONG> <STRONG>"Crogacht"</STRONG> выходит 23 февраля на <STRONG>Wacken Records/SPV</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Slan</B><BR itxtvisited="1">02. <B itxtvisited="1">Conlaoch</B><BR itxtvisited="1">03. <B itxtvisited="1">Isle Of Skye</B><BR itxtvisited="1">04. <B itxtvisited="1">Scathach</B><BR itxtvisited="1">05. <B itxtvisited="1">Feats Of War</B><BR itxtvisited="1">06. <B itxtvisited="1">Shattering Swords</B><BR itxtvisited="1">07. A<B itxtvisited="1">r Nasc Fola</B><BR itxtvisited="1">08. <B itxtvisited="1">Gilded Oars</B><BR itxtvisited="1">09. <B itxtvisited="1">Baile's Strand</B></P>
+Автор: Vit Belov
+
+### 02.01.2009 news Новое видео SUIDAKRA
+
+<P><STRONG>SUIDAKRA</STRONG> выложили в сеть видеоклип на новую песню <STRONG>"Shattering Swords" (</STRONG>режиссёр <STRONG>Sebastian Radtke</STRONG>). Песня войдёт на новый альбом группы <STRONG>"Crogacht"</STRONG>, о котором мы уже сообщали ранее. Пдастинка выйдет на<STRONG> SPV/Wacken Records</STRONG> 23 февраля.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/NbUaHNvvegM&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/NbUaHNvvegM&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 26.03.2009 reviews 9 штук за 12 лет. настоящая &quot;смелость&quot;!
+
+<P>Немцы SUIDAKRA продолжают свою карьеру, выпуская девятый альбом за двенадцать лет. Такой скорострельности может позавидовать любая группа. Подобный подход не претендует на регулярное создание шедевральных работ, но обеспечивает постоянное присутствие имени группы на прилавках магазинов.</P>
+<P>“Crogacht” означает на гаэльском языке шотландских кельтов «смелость». Пластинка повествует традиционную кельтскую историю о смерти единственного сына некоего Аоифа. Любителям фольклора и древностей стоит обратить внимание на эту концепцию, любители же тяжёлой музыки вряд ли отметят для себя последнюю работу SUIDAKRA. Крепкая, профессионально сколоченная пластинка без слабых мест, но и без всплесков. Таковы все последние альбомы немцев, исключая “Command To Charge”, где музыканты дали излишний крен в melodic death-metal, позабыв свои «кельтские корни». В этот раз с «корнями» всё в порядке. Разнообразные волынки, дудки, хоры и женский вокал здесь присутствуют в полном объёме, создавая нужные эффект.</P>
+<P>SUIDAKRA уже не удастся записать что-то очень убедительное, но хорошие пластинки в искомом жанре немцы выпускать способны.</P>
+Автор: Vit Belov
+
+### 26.01.2011 news SUIDAKRA на AFM
+
+<P><STRONG><IMG height=267 alt="" hspace=0 src="/images/news_rus/2011.01/18335.jpg" width=400 align=right border=0>SUIDAKRA</STRONG>&nbsp;подписали контракт с <STRONG>AFM Records</STRONG>.&nbsp;Десятый альбом группы&nbsp;<STRONG>"Book Of Dowth" </STRONG>выходит в конце марта.&nbsp;Пластинка была записана в&nbsp;<STRONG>Gernhart Studio&nbsp;</STRONG>с продюсером&nbsp;<STRONG>Martin Buchwalter</STRONG>.&nbsp;Обложку вновь нарисует знаменитый художник&nbsp;<STRONG>Kris Verwimp. </STRONG>Трэк-лист:</P>
+<P>01. <B>Over Nine Waves</B><BR>02. <B>Dowth 2059</B><BR>03. <B>Battle-Cairns</B><BR>04. <B>Birog's Oath</B><BR>05. <B>Mag Mell</B><BR>06. <B>The Dark Mound</B><BR>07. <B>Balor</B><BR>08. <B>Stone Of The Seven Suns</B><BR>09. <B>Fury Fomoraigh</B><BR>10. <B>Otherworlds Collide</B></P>
+Автор: Vit Belov
+
+### 04.02.2011 news Новый клип SUIDAKRA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип немцев <STRONG>SUIDAKRA</STRONG> <STRONG>"Dowth 2059"&nbsp;</STRONG>можно посмотреть ниже. Клип снял <STRONG>David Thelen. </STRONG>Песня взята с десятого альбома коллектива <STRONG>"Book Of Dowth", </STRONG>который выйдет 25 марта на<STRONG> AFM</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=f0001484ecae2466ce96" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.03.2011 news Концертное видео SUIDAKRA
+
+<P>Официальное концертное видео <STRONG>SUIDAKRA</STRONG> с песней <STRONG>"Stone Of The Seven Suns" </STRONG>можно посмотреть ниже. Песня попала на десятый альбом немцев <STRONG>"Book Of Dowth"</STRONG>,&nbsp;который выйдет сегодня на<STRONG> AFM</STRONG>. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3REUMWnM6Gc?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/3REUMWnM6Gc?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.12.2011 reviews Неконцептуальный pagan-metal
+
+<P>Немцы SUIDAKRA являются пионерами языческого метала. Образовавшись в 1994 году, музыканты играли pagan-metal тогда, когда никто ещё не обращал на него никакого внимания. Теперь SUIDAKRA находятся в «волне», но за былые заслуги никто сейчас любить не станет.</P>
+<P>Забавно, что ещё в 2005 году на альбоме “Command To Charge” SUIDAKRA отказались от своего звучания в пользу melodic death-metal, но поклонники не приняли той пластинки, и сейчас немцы продолжают смешивать тяжеляк с фолком. Новая работа группы – идеальный folk-black-death-metal образца 90-х годов с современным звуком. Здесь нет чересчур броских фольклорных начинаний, группа ограничилась женским вокалом и некоторым количеством дудок, зато есть оригинальные мелодии, а не просто однообразные переработки народной музыки. “Book Of Dowth” слушается легко и приятно. Он не надоедает и пролетает довольно быстро (40 минут звучания). Безусловно, шедевром пластинку никто не назовёт, но на фоне заполонившего сцену мусора она выглядит очень прилично.</P>
+<P>Хороший альбом для хороших людей. Тем, кто хочет послушать pagan-metal не в исполнении концептуальных скандинавов, этот альбом безусловно пригодится. </P>
+Автор: Vit Belov
+
+### 22.01.2012 news Новое видео SUIDAKRA
+
+<P>Новый клип<STRONG> SUIDAKRA</STRONG> на песню "<STRONG>Balor</STRONG>" можно посмотреть ниже. Трек взят с последнего альбома немецкого коллектива "<STRONG>Book Of Dowth</STRONG>".</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/NNyc_Z2to9o?version=3&feature=player_embedded"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/NNyc_Z2to9o?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 10.05.2016 news SUIDAKRA: новый альбом и видео с текстом
+
+<P>Немецкие музыканты <STRONG>SUIDAKRA</STRONG> представили видео с текстом на песню <STRONG>The Hunter's Horde</STRONG> со своего нового альбома «<STRONG>Realms Of Odoric</STRONG>», который выходит 20 мая на лейбле <STRONG>AFM Records</STRONG>. <BR><BR>«<STRONG>Realms Of Odoric</STRONG>» - это уже 12-й альбом в дискографии группы, который выходит спустя три года после своего предшественника. Digipack-издание диска включает 13 треков, таким образом, альбом станет самым продолжительным в истории коллектива. Звучание нового диска представляет собой привычный melodic death metal с элементами&nbsp; традиционного heavy metal и celtic folk. Концепция альбома создана совместно с художником <STRONG>Kris Verwimp</STRONG> и посвящена психологии персонажей фэнтезийного мира.<BR><BR>Альбом был записан в <STRONG>Gernhart Studio</STRONG> (<STRONG>Destruction, Perzonal War, Architects Of Chaos</STRONG>) в Германии с продюсером <STRONG>Martin Buchwalter</STRONG>. В работе над материалом приняли участие приглашенные музыканты:&nbsp; <STRONG>Tina Stabel</STRONG> (вокал), <STRONG>Axel Romer</STRONG> (pipes), <STRONG>Matthias Zimmer</STRONG> (vocals, <STRONG>Perzonal War</STRONG>), <STRONG>Sascha Abdach</STRONG> (vocals, <STRONG>Fall Of Carthage</STRONG>).<BR><BR>Трек-лист:<BR><STRONG>1. Into The Realm<BR>2. The Serpent Within<BR>3. The Hunter's Horde<BR>4. Creeping Blood<BR>5. Undaunted<BR>6. Lion Of Darcania<BR>7. Pictish Pride<BR>8. On Roads To Ruin<BR>9. Dark Revelations<BR>10. Braving The End<BR>11.One Against The Tide<BR>12. Cimbric Requiem</STRONG> -&nbsp;Бонус-трек (Digipak-издание)<BR><STRONG>13. Remembrance<BR></STRONG></P>
+<P><STRONG>&nbsp;</P></STRONG>
+<CENTER><IFRAME height=370 src="http://www.youtube.com/embed/ceuFfZ_LW1c" frameBorder=0 width=490 data-link="http://www.youtube.com/watch?v=ceuFfZ_LW1c" allowfullscreen="allowfullscreen"></IFRAME></CENTER>
+Автор: Dimas
+
+### 19.05.2016 news SUIDAKRA: новое официальное видео “Pictish Pride”
+
+<P>Немецкие музыканты <STRONG>SUIDAKRA </STRONG>представили новый видеоклип “<STRONG>Pictish Pride</STRONG>” на песню со своего нового альбома «<STRONG>Realms Of Odoric</STRONG>», который выходит 20 мая на лейбле <STRONG>AFM Records</STRONG>.</P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=370 src="http://www.youtube.com/embed/FU27OJjGwmk" frameBorder=0 width=490 data-link="http://www.youtube.com/watch?v=FU27OJjGwmk" allowfullscreen="allowfullscreen"></IFRAME></CENTER>
+Автор: Dimas
+
+### 26.08.2016 news Новое видео SUIDAKRA
+
+<p>Немецкие музыканты <strong>SUIDAKRA</strong> представили новый видеоклип "<strong>Braving The End</strong>" на акустическую композицию со своего нового альбома «<strong>Realms Of Odoric</strong>», который вышел в конце мая на лейбле <strong>AFM Records</strong>. В записи приняли участие <strong>Tina Stabel</strong>, которая записывает партии женского вокала для Suidakra и Sascha Abbach из группы <strong>Fall Of Carthage</strong>.</p><p>«Realms Of Odoric» - 12-й альбом в дискографии группы. Digipack-издание диска включает 13 треков, а звучание представляет собой привычный melodic death metal с элементами традиционного heavy metal и celtic folk. Концепция альбома создана совместно с художником Kris Verwimp и посвящена психологии персонажей фэнтезийного мира.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/NPZSqHJhtto" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news New video by SUIDAKRA
+
+<p>German musicians<strong> SUIDAKRA</strong> unveiled a new video for "<strong>Braving The End</strong>" on an acoustic song from his new album "<strong>Realms Of Odoric</strong>", which was released in late may via <strong>AFM Records</strong>. In recording took part <strong>Tina Stabel</strong>, who records the female vocals for Suidakra and <strong>Sascha AЯbach</strong> from the band <strong>Fall Of Carthage</strong>.</p><p>"Realms Of Odoric" the 12th album in the discography of the group. Digipack-edition CD includes 13 tracks and the sound is the usual melodic death metal with elements of traditional heavy metal and celtic folk. Concept album created in collaboration with artist Kris Verwimp and focuses on the psychology of the characters of the fantasy world.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/NPZSqHJhtto" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Suidakra

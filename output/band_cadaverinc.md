@@ -12,6 +12,25 @@ Norway's ex-Death Metal cult band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.12.2002 reviews Death metal? Not anymore.
+
+<p>CADAVER… Can you recall such a combo? Shame on you, if you can’t. CADAVER were one of the few (if not the only) band(s) that have put Norway on death metal map. Years passed; CADAVER was laid to rest… in order to be resurrected lately. However; get your hands off it, death metal freaks! Don’t you even try to find a trace of DM whilst giving “Discipline” a listen. Because you won’t find any. CADAVER was death metal. CADAVER INC. are BLACK metal. Distinctively Norwegian. Raw, AND ugly, AND stunningly performed. Contradiction? Nope. At least, “Discipline” proves you wrong and makes any contradictions of this kind groundless and untenable. Check out a site of theirs, by the way. Quite entertaining… you’ll be surprised :-).</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 08.09.2004 news CADAVER aka CADAVER INC развалились
+
+<P>Норвежская группа <STRONG>CADAVER INC</STRONG> (раннее <STRONG>CADAVER</STRONG>) распалась после 15 лет существования. &nbsp;</P>
+Автор: Vit Belov
+
+### 08.09.2004 news Norway CADAVER split up
+
+<P>Norwegian technical death metallers <B>CADAVER</B> have "decided to split up after 15 years of underground service and four studio albums," according to a posting on the group's official site. "We would like to thank our fans for all these years and all the people who supported us. Thank you all!!!!"</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

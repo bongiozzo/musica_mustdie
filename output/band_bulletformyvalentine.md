@@ -90,6 +90,16 @@ Bonuses:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.07.2010 news Подарок любителям хоккея
+
+<P>Ведущий производитель игровых спортивных симуляторов для компьютеров и приставок<STRONG> EA Sports</STRONG> объявил саундтрэк к новой версии <STRONG>NHL 11</STRONG>. Как обычно, в игре можно будет услышать множество интересных композиций с тяжёлой гитарой. Вот их список:</P>
+<P>* <B>IN WHISPERS</B> - "Here I Stand"<BR>* <B>AIRBOURNE</B> - "Bottom Of The Well"<BR>* <B>BULLET FOR MY VALENTINE</B> - "Your Betrayal"<BR>* <B>MEGADETH</B> - "Dialectic Chaos"<BR>* <B>PANTERA</B> - "Walk"<BR>* <B>DANKO JONES</B> - "Full of Regret"<BR>* <B>2 UNLIMITED</B> - "Twilight Zone"<BR>* <B>BLACK Box</B> - "Strike It Up"<BR>* <B>BLACK REBEL MOTORCYCLE CLUB</B> - "Mama Taught Me Better"<BR>* <B>BOUNCING SOULS</B> - "Ole!"<BR>* <B>DARUDE</B> - "Sandstorm"<BR>* <B>DROPKICK MURPHYS</B> - "Shipping Up To Boston (Live)"<BR>* <B>EUROPE</B> - "The Final Countdown"<BR>* <B>FOXY SHAZAM</B> - "Unstoppable"<BR>* <B>RAMONES</B> - "Blitzkrieg Bop"<BR>* <B>THE BLACK KEYS</B> - "Howlin’ For You"</P>
+<P>Создатели игры утверждают, что в этой музыке можно услышать "настоящий звук Национальной Хоккейной Лиги". Это верно. Я даже слышал<STRONG> DIMMU BORGIR</STRONG> на одном из хоккейных матчей за океаном.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

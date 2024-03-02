@@ -32,6 +32,81 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.01.2013 news GHOST: подробности второго альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25217.jpg" width=400 height=400>Оккультные щведские металлисты <STRONG>GHOST</STRONG>, воспевающие в своих текстах Ангела Света, работают над своим вторым альбомом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Cтали известны некоторые подробности.</FONT></P>
+<P>Диск, получивший название <STRONG>"Infestissumam"</STRONG>, выйдет весной&nbsp;этого года на лейбле<STRONG> Loma Vista Recordings</STRONG>.&nbsp; </P>
+<P>Продюсер альбома:&nbsp;<STRONG>Nick Raskulinecz</STRONG> (<STRONG>DEATH ANGEL</STRONG>, <STRONG>DEFTONES</STRONG>, <STRONG>FOO FIGHTERS</STRONG>, <STRONG>RUSH</STRONG>).</P>
+<P>Песню<STRONG> "Secular Haze"</STRONG> с нового альбома, можно послушать здесь: <A href="http://www.youtube.com/watch?v=TN2GCjPh0Hw">www.youtube.com/watch?v=TN2GCjPh0Hw</A></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Infestissumam</STRONG><BR>02.&nbsp;<STRONG>Per Aspera Ad Inferi<BR></STRONG>03.&nbsp;<STRONG>Secular Haze<BR></STRONG>04.&nbsp;<STRONG>Jigolo Har Megiddo<BR></STRONG>05. <STRONG>Ghuleh / Zombie Queen<BR></STRONG>06.&nbsp;<STRONG>Year Zero<BR></STRONG>07.&nbsp;<STRONG>Idolatrine<BR></STRONG>08.&nbsp;<STRONG>Body And Blood<BR></STRONG>09. <STRONG>Depth Of Satan’s Eyes<BR></STRONG>10.&nbsp;<STRONG>Monstrance Clock </STRONG></P>
+Автор: Headcrusher
+
+### 19.02.2013 news GHOST: видеоклип на песню &quot;Secular Haze&quot;
+
+<P>Мистический шведский оккультный ансамбль <STRONG>GHOST</STRONG> порадовал своих почитателей дебютным видеоклипом на песню <STRONG>"Secular Haze"</STRONG>. Рижиссёром клипа выступил <STRONG>Amir Chamdin</STRONG>. Трек <STRONG>"Secular Haze"</STRONG> войдёт на второй альбом <STRONG>GHOST</STRONG>, получивший название <STRONG>"Infestissumam"</STRONG>. Его дата выпуска назначена на 9 апреля.</P>
+<P>Ранее <STRONG>GHOST</STRONG> уже анонсировали выпуск видеоклипа на трек<STRONG> "Ritual"</STRONG> со своего дебютного полноформатника <STRONG>"Opus Eponymous"</STRONG> (2010), но этого почему-то так и не случилось.</P>
+<P>Так же, по неким&nbsp;"юридическим причинам", для того, чтобы провести своё американское турне,&nbsp;которое начнётся в апреле этого года,&nbsp;<STRONG>GHOST</STRONG> были вынуждены сменить своё имя на <STRONG>GHOST B. C.</STRONG> </P>
+<P>Именно так теперь должны назвать группу её "дети", проживающие на территории С.Ш.А.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/vyQZ13jobIY" frameBorder=0 width=420 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 27.03.2013 news GHOST: видеоклип на песню &quot;Year Zero&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Таинственный шведский&nbsp;оккультный ансамбль <STRONG>GHOST</STRONG> (или уже <STRONG>GHOST B.C.</STRONG>?) презентовал своё видео творение на песню<STRONG> "Year Zero"</STRONG>. Трек войдёт во второй альбом коллектива <STRONG>"Infestissumam"</STRONG>, выход которого намечен на девятое апреля 2013. Лицам не достигшим совершеннолетия, смотреть строго запрещается.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/zWP1ID1nt9A" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 26.04.2013 news GHOST: &#39;набор для ритуала&#39; под названием &quot;Phallos Mortuus&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведский ансамбль <STRONG>GHOST</STRONG> (он же <STRONG>GHOST B.C.</STRONG>) выпустил в продажу&nbsp;'набор для ритуала'&nbsp;под названием <STRONG>"Phallos Mortuus"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В него входят:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>- футболка<BR>- фаллоимитатор в виде фигурки Papa Emeritus<BR>- бланк договора с Сатаной<BR>- значок<BR>- затычка для задницы<BR>- ну и собственно сама коробка, в которую всё это добро красиво укладывается.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В общем всё то, что может понадобиться для качественного ритуала.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Купить всю эту красоту можно по адресу: <A href="http://www.backstreet-merch.com/stores/ghost/">www.backstreet-merch.com/stores/ghost/</A></FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2013.04/25654.jpg" width=650 height=602><BR>
+<P></P></FONT></CENTER>
+Автор: Headcrusher
+
+### 30.05.2013 news GHOST перепели DEPECHE MODE
+
+<P>Шведские оккультисты&nbsp;<STRONG>GHOST</STRONG> записали свою версию песни <STRONG>“Waiting For The Night”</STRONG>&nbsp;группы<STRONG>&nbsp;DEPECHE MODE</STRONG>. Этот трек войдёт в японское издание их второго альбома <STRONG>"Infestissumam"</STRONG>. Послушать&nbsp;кавер можно&nbsp;пройдя по ссылке: <A href="http://youtu.be/gzVZKhJoYa0">http://youtu.be/gzVZKhJoYa0</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.05/25766.gif" width=610 height=340> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 04.07.2013 news GHOST: видеоклип &quot;Monstrance Clock&quot;
+
+<P>Новое видеотворение мистического шведского ансамбля <STRONG>GHOST (BC) </STRONG>на композицию&nbsp;<STRONG>"Monstrance Clock"</STRONG> можно оценить ниже.</P>
+<P>Режиссёр видео: <STRONG>Rob Semmer</STRONG>. Съёмки клипа происходили в клубах <STRONG>"El Rey"</STRONG> (Лос-Анджелес) и <STRONG>"Webster Hall"</STRONG> (Нью-Йорк).</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/Dxr5sKyK8ys" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 11.10.2013 news GHOST: &quot;If You Have Ghosts&quot; EP в ноябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские оккультисты <STRONG>GHOST</STRONG> выпускают новый миньон. EP получил название <STRONG>"If You Have Ghosts"</STRONG> и увидет свет 19 ноября 2013. На диск войдёт 4 студийных кавер версии и один живой трек.</FONT></P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>If You Have Ghosts</STRONG> (<STRONG>Roky Erickson</STRONG> cover)<BR>2. <STRONG>I Am A Marionette</STRONG> (<STRONG>ABBA</STRONG> cover)<BR>3. <STRONG>Crucified</STRONG> (<STRONG>ARMY OF LOVERS </STRONG>cover)<BR>4. <STRONG>Waiting For The Night</STRONG> (<STRONG>DEPECHE MODE</STRONG> cover)<BR>5. <STRONG>Secular Haze</STRONG> (recorded live at Music Hall of Williamsburg, Brooklyn)</P>
+<P>Продюсером студийных треков выступил<STRONG> David Grohl</STRONG>, лидер <STRONG>FOO FIGHTERS</STRONG> и участник,&nbsp;канувшего в лету, ансамбля&nbsp;<STRONG>NIRVANA</STRONG>.</P>
+<P>Сделать предварительный заказ на&nbsp;миньон <STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"If You Have Ghosts"</FONT></STRONG>, можно по адреcу: <A href="http://clergy.ghost-official.com">http://clergy.ghost-official.com</A></P>
+<P>Песню <STRONG>If You Have Ghosts </STRONG>можно послушать по ссылке: <A href="http://youtu.be/4kNetd_lISI">http://youtu.be/4kNetd_lISI</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.10/26254.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.08.2017 news GHOST: видеоклип &quot;He Is&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мистические шведы <STRONG>GHOST</STRONG> представили видеоклип на композицию<STRONG> "He Is"</STRONG>. Режиссёр ролика <STRONG>Zev Deans</STRONG>. Сам трек можно найти на последнем полноформатнике группы двухгодичной давности - <STRONG>"Meliora"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/7hMaHDTw-pI" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

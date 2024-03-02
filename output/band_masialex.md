@@ -127,6 +127,22 @@ Produced by: ALEX MASI, ALEX WOLFMAN
 * C группой "Holdsworth, Allan" Alex Masi
 * C группой "MCM" Alex Masi
 
+## Публикации
+
+### 28.02.2001 news TRIBUTE TO JASON BECKER
+
+<p>Lion Music подтвердили в самое ближайшее время выход альбома трибьюта Джэйсону Бэйкеру "WARMTH IN THE WILDERNESS". На диске будут представлены его работы в составе Дэвид Ли Рот, Cacophony & solo. Участвуют: Marty Friedman, Anders Johansson, Stormwind, Carina Alfie, Phantom Blue, Torben Enevoldsen, Phi Ansari Yaan-Zek, Rolf Munkes, Alex Masi, Lars Eric Mattsson, Kelly Keeling, Mark Boals, Sultan Of Swing, Patrick Rondat, Stuart Smith, Jesse Bradman, James Byrd, Tommy Denander, Chris Sterberl, Terry Syerk, Dave Martone, Jeff Scheetz, Slav Simanic, Mike Campese, Symphony X, Neil Zaza, Stephen Ross, Goran Edman, Tony Franklin, Paul Shortino, Freak Kitchen и Lance King.</p>
+<p>Трек-лист: Black Stallion Jam, Primal Stormwind, A Little Ain't Enough, Baby's on Fire, Altitudes, Air, The Dogtown Shuffle, Tell the Truth, Hammerhead Shark, Dweller in the Cellar, Outro Jam, Desert Island, Opus Pocus, Temple of the Absurd, Higher, Sensible Shoes, Speed Metal Symphony, Images, Mandy's Throbbing Little Heart, End of the Beginning, It's Showtime, Rain, Urmila, Eleven Blue Egyptians, Drop in the Bucket, ESP, Hawking, Dang Sea of Sansara, Perpetual Burn, If You Have to Shoot.</p>
+
+Автор: Yermola
+
+### 28.02.2001 news A TRIBUTE TO JASON BECKER
+
+<p>Lion Music confirmed relise of Jason Becker tribute album "WARMTH IN THE WILDERNESS" featuring interpretations of his work in David Lee Roth, with Cacophony and solo performed by friends and musicians who have been touched and influenced by Jason's music. The album is so far set to feature Marty Friedman, Anders Johansson, Stormwind, Carina Alfie, Phantom Blue, Torben Enevoldsen, Phi Ansari Yaan-Zek, Rolf Munkes, Alex Masi, Lars Eric Mattsson, Kelly Keeling, Mark Boals, Sultan Of Swing, Patrick Rondat, Stuart Smith, Jesse Bradman, James Byrd, Tommy Denander, Chris Sterberl, Terry Syerk, Dave Martone, Jeff Scheetz, Slav Simanic, Mike Campese, Symphony X, Neil Zaza, Stephen Ross, Goran Edman, Tony Franklin, Paul Shortino, Freak Kitchen and Lance King with other players to be announced. Track list as follows: Black Stallion Jam, Primal Stormwind, A Little Ain't Enough, Baby's on Fire, Altitudes, Air, The Dogtown Shuffle, Tell the Truth, Hammerhead Shark, Dweller in the Cellar, Outro Jam, Desert Island, Opus Pocus, Temple of the Absurd, Higher, Sensible Shoes, Speed Metal Symphony, Images, Mandy's Throbbing Little Heart, End of the Beginning, It's Showtime, Rain, Urmila, Eleven Blue Egyptians, Drop in the Bucket, ESP, Hawking, Dang Sea of Sansara, Perpetual Burn, If You Have to Shoot.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

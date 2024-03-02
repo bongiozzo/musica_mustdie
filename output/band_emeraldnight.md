@@ -58,6 +58,35 @@ Session performer: KARRY (ex-Scald, ex-Tumulus) - Solo Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2011 news Новый альбом EMERALD NIGHT
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.07/20274.jpg" width=400 align=right border=0>18 июля 2011 года <STRONG>Grailight Productions</STRONG> вынес на суд слушателей альбом московской melodic folk black metal группы<STRONG> EMERALD NIGHT «Зеркало Троллей»</STRONG>. Старинная андеграундная группа, основанная еще в прошлом столетии, совершила вояж во времени и предстала перед слушателями в обновленном виде. Абсолютно неземная музыка, которая с первых аккордов отрывает слушателя от реальности и погружает в атмосферу древних лесов, сталактитовых пещер и ледяных замков. И, конечно, знакомит с их коварными обитателями. Качество звука гарантируется московской студией <STRONG>KIV-Records</STRONG>.&nbsp;В записи так же принимали участие уникальные и узнаваемые вокалисты: <STRONG>Ксения (Калевала, ex-Невидь, Butterfly Temple), Тиллен Аверс (Aella)</STRONG> и <STRONG>Абрей (Butterfly Temple, Омела).</STRONG> В основу оформления диска легли работы художника <STRONG>Александра Кошкина</STRONG>, мастера с мировым именем. Многогранный стиль группы позволяет музыкантам включать в свои композиции и дум, и фолк, но главное в альбоме – это великолепный мелодизм и атмосфера тайны, которая так и не раскрывается до конца.</P>
+<P>Треклист:<BR>1.<STRONG> Проклятое Зеркало</STRONG> <BR>2. <STRONG>Лесная Песнь</STRONG> <BR>3. <STRONG>На Север! <BR></STRONG>4. <STRONG>Кузнец <BR></STRONG>5. <STRONG>Ледяное Сердце</STRONG> <BR>6. <STRONG>Туман Троллей</STRONG> <BR>7. <STRONG>Лучина (В Дорогу!)</STRONG> <BR>8. <STRONG>Выше Неба (Septic Flesh cover)<BR></STRONG>9. <STRONG>Страна Фей (Butterfly Temple cover)<BR></STRONG>10. <STRONG>Веда Рода (Ashen Light cover</STRONG>)</P>
+<P><A href="http://vkontakte.ru/club1478408">http://vkontakte.ru/club1478408</A></P>
+Автор: Vit Belov
+
+### 02.07.2012 news Новый трек EMERALD NIGHT
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.07/24279.jpg" width=350 height=500>Мелодик-блэк-металлисты<STRONG> EMERALD NIGHT</STRONG> опубликовали новый трек "<STRONG>Оборотень</STRONG>", с грядущего нового альбома. Песня написана на стихи <STRONG>Марии Семеновой</STRONG>, автора нашумевшего "<STRONG>Волкодава</STRONG>". Они и ранее были неоднократно положены на музыку бардами и менестрелями. Музыка принадлежит старинной ярославской группе <STRONG>ДОМ МЕДИЧИ</STRONG>, которая обратилась к этой теме еще в середине 90-х, задолго до выхода известного фильма. </P>
+<P><EM>"Эта песня - наша архелогическая находка. Мы бережно раскопали пласт русского андеграунда и создали свою неповторимую версию известного произведения. Что из этого получилось - судить в конечном итоге вам!"</EM> - говорят музыканты.</P>
+<P>Послушать трек можно на официальной страничке <STRONG>EMERALD NIGHT ВКонтакте</STRONG>.</P>
+<P><A href="http://vk.com/club1478408">http://vk.com/club1478408</A></P>
+Автор: Vit Belov
+
+### 04.01.2013 news Новогодний релиз MUSICA Production!!!
+
+<P><SPAN class=tit1><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2013.01/25220.jpg" width=450 height=449>Новогодний релиз MUSICA Production!!!</SPAN></P>
+<P><SPAN class=tit3>MP66 EMERALD NIGHT «Король Эльфов»</SPAN></P>
+<P>-melodic black-metal; «Вишенка на торте» мелодичной тяжёлой музыки в ушедшем 2012 году. Один из лучших альбомов минувшего сезона от «группы-открытия 2011 года». Красивый и хитовый материал для всех поклонников melodic black, pagan-metal, death-doom metal и других экстремальных стилей музыки. Жёсткий скрим, женский вокал, симфонические аранжировки – настоящий подарок на Новый Год от лэйбла MUSICA Production! Трек-лист:</P>
+<P><STRONG>1. Король Ольхи (King of Alder)<BR>2. Дрема (Drema)<BR>3. Сердце Королевы (Heart of Queen)<BR>4. Руна Победы (Rune of Victory)<BR>5. Ночная Симфония (Night Symphony)<BR>6. Тристан изо льда (Tristan from the Ice)<BR>7. Оборотень (Werewolf)<BR>8. Берсерк (Berserker)<BR>9. Demonism 2010 (bonus)</STRONG><STRONG></STRONG></P>
+<P><A href="http://vk.com/emeraldnight">http://vk.com/emeraldnight</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<P>Лучшая цена в магазине <A href="http://escapemind.ru/">http://escapemind.ru</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

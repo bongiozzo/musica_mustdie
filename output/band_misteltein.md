@@ -50,6 +50,22 @@ Nirag - Drums
 
 * C группой "Feared Creation" Magnus Gillberg (bass)
 
+## Публикации
+
+### 05.04.2004 news Ещё одна новая группа
+
+<P>Новая группа, созданная известными музыкантами называется <B>FEARED CREATION</B>. Участвуют:</P>
+<P><B>Anders Sj&#246;holm</B> (<B>THE FORSAKEN</B>) - Vocals<BR><B>Calle F&#228;ldt</B> (<B>DERANGED</B>) - Lead Guitar<BR><B>John Huldt</B> - Lead Guitar<BR><B>Magnus Gillberg</B> (<B>MISTELTEIN</B>) - Bass<BR><B>Sebastian Westberg</B> - Drums </P>
+<P>Коллектив обсуждает контракты с известными лэйблами, а музыкальным направлением&nbsp; <B>FEARED CREATION</B> станет thrash.</P>
+Автор: Vit Belov
+
+### 01.03.2006 news MISTELTEIN на Regain
+
+<P>Шведы <STRONG>MISTELTEIN</STRONG> готовы к записи нового альбома для своего нового лэйбла <STRONG>Regain</STRONG>.</P>
+<P>Тем временем в группе произошли очередные изменения. Коллектив покинули гитарист<STRONG> Nagrinn</STRONG> и клавишник<STRONG> Hel</STRONG>. На их место пришли <STRONG>John Huldt (DYNAMIC)</STRONG> и некто <STRONG>Farnargh</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

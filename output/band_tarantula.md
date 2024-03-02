@@ -119,6 +119,15 @@ Under Control
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2012 news Новый альбом TARANTULA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом португальцев<STRONG> TARANTULA "Spiral Of Fear"</STRONG> будет переиздан в марте на лэйбле <STRONG>IceWarrior Records</STRONG> с бонус-треками. Ниже можно посмотреть клип на песню "<STRONG>Dark Age</STRONG>" с этой пластинки.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/4fwCuZHlNPI?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/4fwCuZHlNPI?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

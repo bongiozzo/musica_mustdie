@@ -18,6 +18,19 @@ Instrumental post metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.08.2016 news NAAT выпускают дебют
+
+<p>Инструментальная post metal группа из Италии<strong> NAAT</strong> выпустит одноимённый альбом 3 октября на <strong>Argonauta Records</strong>. Ниже можно услышать первый сингл с этого альбома. </p><p>Трек лист:</p><p>1.&nbsp;&nbsp; Vostok<br>2.&nbsp;&nbsp; Falesia<br>3.&nbsp;&nbsp; Temo<br>4.&nbsp;&nbsp; Baltoro<br>5.&nbsp;&nbsp; Bromo<br>6.&nbsp;&nbsp; Dancalia<br>7.&nbsp;&nbsp; T’mor Sha</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/iaSRfkGO9to" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 03.08.2016 news NAAT - artwork and tracklist revealed
+
+<p>Instrumental Post Metallers <strong>NAAT</strong> reveal cover artwork and tracklist of their anticipated self titled album.</p><p>Recorded, mixed and mastered at <strong>Greenfog Studio</strong> by <strong>Mattia Cominotto</strong> (ISAAK, INFECTION CODE, among many others), “<strong>Naat</strong>” will be released in CD/DD by <strong>Argonauta Records</strong> on the 3rd of October 2016.</p><p>Tracklist:</p><p>1.&nbsp;&nbsp; Vostok<br>2.&nbsp;&nbsp; Falesia<br>3.&nbsp;&nbsp; Temo<br>4.&nbsp;&nbsp; Baltoro<br>5.&nbsp;&nbsp; Bromo<br>6.&nbsp;&nbsp; Dancalia<br>7.&nbsp;&nbsp; T’mor Sha</p><p><center><img width="400" height="400" src="/images/news/2016.08/29727.jpg" border="0"></p><p>While waiting for preorders, available soon, you can have a taste of the band by giving a listen to their first single here:</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/iaSRfkGO9to" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -380,6 +380,145 @@ Frank "The Animal/The Baron/The Kraken" Gilchriest - Drums
 
 * C группой "Riot" Frank Gilchriest (drums)
 
+## Публикации
+
+### 22.05.1999 news 
+
+<p>Virgin Steele сейчас в студии и записывает новый альбом "The House Of Atreus". Это двухактная хэви опера. Первый акт выйдет в сентябре, а второй в следующем году.</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>Дэвид ДеФейс ищет нового басиста для своей группы Virgin Steele.</p>
+
+Автор: Vit Belov
+
+### 24.07.2000 news Новости от Virgin Steele.
+
+<p>Virgin Steele выпустили новый EP, являйщийся концептуальным связующим звеном между двумя частями металлической оперы "House Of Atreus". Его треклист: "Great Sword Of Flame", "Agamemnon's Last Hour", "Gate Of Kings", "Prometheus The Fallen One", "Flame Of Thy Power", "Wings Of Venegeance". Новый альбом "House Of Atreus Act 2" выйдет в свет в сентябре.</p>
+
+Автор: Phantom Lord
+
+### 26.09.2000 news Virgin Steele продлили контракт с Noise Records
+
+<p> Noise Records с большой радостью сообщают, что Дэвид ДиФейс, фронтмэн группы Virgin Steele, продлил с ними контракт на выпуск еще нескольких альбомов своей группы.</p>
+<p></p>
+
+Автор: Nybras
+
+### 26.09.2000 news Virgin Steele has extended the contract with Noise Rec.
+
+<p> Noise Records announces that Mr. David DeFeis, mastermind of Virgin Steele, has extended his contract. The label says: "Wow! I am glad that David stays with Noise. I really love his masterpieces. The last, "House Of Atreus - Act2, The Wings Of Vengeance", got 7 of 7 points from the German Hammer Magazine! Yeah!"</p>
+
+Автор: Nybras
+
+### 16.07.2001 news Ну прямо таки, горящая книга...
+
+<p>VIRGIN STEELE готовят к выходу аж два альбома. Первый из них "The Book of Burning" будет содержать перезаписанные версии треков с "Virgin Steele I", "Guardians of the Flame" и EP "A Cry in the Night", а также коллекцию ранее не реализованных вещей. Второй диск - Антология классического материала от "Noble Savage" до "House of Atreus" с отличными от исходных версиями, ремиксами и прочими редкостями.</p>
+
+Автор: Yermola
+
+### 16.07.2001 news VIRGIN STEELE will be issuing two new ....
+
+<p>VIRGIN STEELE will be issuing two new CDs this October. The first will be called The Book of Burning, and it will contain re-recorded versions of classic tracks from Virgin Steele I, Guardians of the Flame and the EP, A Cry in the Night, as well as a collection of other rare, previously unreleased tracks (both new & old) that the band has written over the past ten years. The second CD will be an anthology of classic VIRGIN STEELE material, spanning the years between Noble Savage through the House of Atreus, which will feature many different versions, remixes and outtakes of classics from those works. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.10.2001 news Jack Starr letter (Virgin Steele)
+
+<p>Dear Heavy Metal Supporters, this letter is for all the fans ,writers,magazines,record companies and anyone who is interested in heavy metal. My name is Jack Starr in 1982 I started a band called Virgin Steele, in the coming weeks in October of 200l the record company Noise/Sanctuary will be putting out a record called The Book of Burning or The Best of Virgin Steele this is an attempt to fool fans of the band into thinking that they are buying the original recordings of Virgin Steele that have never been on cd, this is deceptive, the record is a compilation of new recordings by whoever happens to be in Dave Defeis band this week ,and as Sanctuary records states in their answer to my lawyer it is a "covers record" this is important to note and fans who want to hear the original recordings will soon be able to do so. The cd that Noise/Sanctuary is putting out is a way of getting around the fact that they have no rights to use the original music of Virgin Steele that I wrote and they also have no right to use the Virgin Steele reunion songs that were recorded in 1997 so they have choosen to rerecord these also again depriving the fans of hearing Jack Starr, Dave Defeis, and Rob Demartino toghether which is as close to a Virgin Steele reunion as we will probably ever see. I have enclosed the letter from Sanctuary which states exactly what this cd release is, to all our fans across the world please be patient the original albums will be released soon. <br><br> WE JACK STARR <JOE OREILLEY<AND JOEY AYVAZIAN THE ORIGINAL MEMBERS OF VIRGIN STEELE IN NO WAY AUTHORIZE OR RECOGNIZE THE NOISE SANCTUARY CD WE ASK YOU NOT TO SUPPORT IT OR BUY IT <THE ORIGINAL REMASTERED CD WITH EXTENSIVE LINER NOTES AND ORIGINAL VIRGIN STEELE SONGS THAT WERE NEVER RELEASED AS WELL AS RARE PHOTOS AND ARTWORK NEVER SEEN BEFORE IS COMING AND THAT IS THE REAL STEELE NOT A DECEPTIVE COVERS ALBUM WHICH IS A DISGRACE AND AN INSULT TO THE TRUE FANS OF THE BAND FOR MORE INFO CHECK OUT THESE FINE PUBLICATIONS< ROCKREUNION</p>
+<HEAVYWEIGHT>AND SNAKEPIT MAGAZINE ON LINE LOOK FOR MORE INTERVIEWS WHICH WILL REVEAL THE WHOLE VIRGIN STEELE STORY AND DAVE DEFEIS ATTEMPT TO FOOL THE FANS! Keep the Flame Burning, Jack Starr, Joey Ayvazian and Joe O' reilly {the original members of Vigin Steele} <br><br> DON'T BUY A COVERS ALBUM WHEN YOU CAN BUY THE ORIGINAL RECORDINGS BY THE ORIGINAL MUSICIANS!!!<br><br> For interviews and further info contact Jack Starr @ Steeleaxe3@webtv.net and check out www.jackstarr.com for news regarding the original Virgin Steele releases and the new band The Guardians of the Flame.</>
+
+Автор: Yermola
+
+### 27.11.2001 news Jack Starr open letter
+
+<p>Dear Metalheads , <BR> By now you may have heard of a dispute with Dave Defeis and Jack Starr and I Jack Starr would like to answer some lies that i saw on the noise records website about myself and the metalmayem releases Here is the truth<BR> 1. Virgin Steele was started in 1981 by Jack Starr<BR> 2. The band was named by Jack Starr who got the name from a poem he wrote called Virgin Snow, he later changed the name to Virgin Steele when he wanted a heavier sounding name to go with the band he was starting. The name existed before Jack ever met Dave<BR> 3. Virgin Steele became known because Jack was chosen to appear on a record called U.S. Metal 2, (Schrapnel Records). At the time this was a record of unknown guitarists some of the other “unknowns” on the record were Marty Friedman of Megadeth, Dave Feinstein of The Rods, Derek Frigo of Enufznuff and Mike Batio of David lee Roth<BR> 4. Jack Starr wrote almost all of the songs on the first 2 albums and all the songs were published by Jacks company American Metal Publishing.<BR> 5. The album’s Virgin Steele I and II as well as all of the promotional efforts such as adverts in all of the major magazines, t-shirts, bumper stickers, ect were self financed with Jack outlaying the majority of the money. <BR> 6. Virgin Steele I was put out on CEP records, CEP is an acronym for Cambridge Educational Press which was also Jack Starr’s company. <BR> 7. The Noise website said that Jack Starr forced magazines to write about him. THIS IS RIDICULOUS. Jack is not on a big label that has the power to force people to write about him. He does not have the power of a big corporate record label like Sanctuary but despite that he is very happy that many people in the press are starting to write about him and interview him which proves that the Heavy Metal press is not beholden to any special interest or record labels.<BR> 8. Jack Starr is not interested in recording any Dave Defies songs and he has not authorized Dave Defeis or the band he calls Virgin Steele to record any song that is published by his company.<BR> 9. If Jack Starr were just motivated by money he would gladly give permission to Dave Defeis to record his songs so he could collect record royalty payments (obviously this is not the case). In his last phone call with Dave Defeis Dave posed the question “I can’t understand why you don’t want us to record your songs Jack, You will make money isn’t that what you want?” (Well obviously there are things that are more important to Jack Starr like integrity).<BR> 10. The Metal Mayhem releases are the original releases by the original musicians with the original artwork.<BR> 11. The sanctuary releases are re-recordings by different musicians than those that appeared on the original Virgin Steele albums.<BR> 12. Anthrax has not rerecorded a fistful of metal that my friend Neil Turbin sang on, Iron Maiden has not rerecorded the first couple of albums that Paul Dianno sang on and Metallica did not rerecord Kill Em All with a new bass player and better recording technology, IT IS WHAT IT IS, AND WHAT ONCE WAS SHOULD BE LEFT ALONE ANY ATTEMPT TO CHANGE OR REWRITE HISTORY IS CENSORSHIP IT IS SOMEBODYELSE DECIDING FOR YOU WHAT YOU SHOULD HEAR OR SEE.<BR> 13. The noise website has called me a "loudmouth" this is pretty funny when you consider that before all of this I had not spoke to the press or given an interview in almost ten years so I think that does not make me a loudmouth usually I like to let my music do the talking but now I will not be silent any longer when Dave Defeis attempts to rewrite history!!<BR> 14. I read on the website that I wanted to use vinyl as masters to save money this is totally untrue. I said that if the choice were to remix and change the performance then I would prefer the vinyl I am against changing any part of the first 2 albums there is actually a wrong note on the bass guitar which was brought to my attention by my bass player Joe O’ Reilly (The original bass player of Virgin Steele) on the song Still in Love With You and we could have fixed it but in order to do so the bass tracks would have to have been recorded again and a different sound would have been created. I chose to leave as it was. There is a tremendous amount of echo and delay on Dave’s voice on Virgin Steele 1 but that is what Dave wanted back then and that is the way it will stay (in all it’s totally over the top glory or insanity, pick one) <BR> 15. Metal Mayhem Records, www.metalmayhem.com has shown great conviction and pride in painstakingly bringing back these two great records which many consider to be important records alongside Metallica, Riot, and The Rods as hallmarks of the New Wave of American Heavy Metal. <BR> 16. A tremendous amount of money was spent to re-master the 2 albums and yes it was done from the analog master tape reels and some of them because of their age had to be baked in a convection oven. I have copies of the mixed masters and when they were not perfect we used test pressings which I had saved from the mastering sessions after all the tapes were restored and cataloged they were then taken to SONY Sound Labs in New York City where their head engineer spent two days re-mastering the tapes the final result is fantastic and much better than anyone has ever heard this music but more important it is the real thing or in this case the real STEELE !!!!!<BR> 17 So if you want David Defeis interpretations of classic Virgin Steele with his new band buy the Sanctuary release. If you want the classic albums by the original musicians buy the Metal Mayhem release and last but not least you may wish to listen to both releases and decide for yourself<BR> METAL REGARDS JACK STARR<BR><BR> PS Hopefully this chapter of the Virgin Steele saga can end and new history can be made.<BR><BR> For interviews and more info please contact www.metalmayhem.com or Jack Starr at www.jackstarr.com or e-mail steeleaxe3@webtv.net</p>
+
+Автор: Yermola
+
+### 29.04.2005 news VIRGIN STEELE готовят альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>David deFeis</STRONG> решил, какие 20 песен войдут на новый альбом <STRONG>VIRGIN STEELE</STRONG>. Остаются ещё 40, которые он выпустит в ближайшее время.</FONT></P>
+Автор: Vit Belov
+
+### 30.06.2006 news Новый альбом VIRGIN STEELE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=270 alt="" hspace=0 src="/images/news_rus/2006.06/10496.jpg" width=192 align=right border=5>Новый альбом <STRONG>VIRGIN STEELE "Visions Of Eden - The Lilith Project - A Barbaric Romantic Movie Of The Mind" </STRONG>выходит 8 сентября. Трэк-лист:</FONT></P>
+<P>01. <STRONG>Immortal I Stand (The Birth Of Adam)<BR></STRONG>02. <STRONG>Adorned With The Rising Cobra<BR></STRONG>03. <STRONG>The Inefable Name<BR></STRONG>04. <STRONG>Black Light On Black<BR></STRONG>05. <STRONG>Bonedust<BR></STRONG>06. <STRONG>Angel Of Death<BR></STRONG>07. <STRONG>God Above God<BR></STRONG>08. <STRONG>The Hidden God<BR></STRONG>09. <STRONG>Childslayer<BR></STRONG>10. <STRONG>When Dusk Fell<BR></STRONG>11. <STRONG>Visions Of Eden</STRONG></P>
+Автор: Vit Belov
+
+### 13.08.2006 news 2 песни с грядущего альбома VIRGIN STEELE
+
+<P>По нижеуказанным интернет-адресам можно послушать две песни с грядущего альбома <B>VIRGIN STEELE "Visions Of Eden"</B>:<BR></P>
+<P>'<B>Immortal I Stand (The Birth Of Adam)</B>':<BR>Windows Media Player:<BR><BR><A href="http://www.streamingkit.de/player/sanctuary_records/immortalistand1.asx"><U>http://www.streamingkit.de/player/sanctuary_records/immortalistand1.asx</U></A><BR><BR>Real Player:<BR><BR><A href="http://www.streamingkit.de/player/sanctuary_records/immortalistand2.ram"><U>http://www.streamingkit.de/player/sanctuary_records/immortalistand2.ram</U></A><BR><BR><B>'The Hidden God'</B>:<BR>Windows Media Player:<BR><BR><A href="http://www.streamingkit.de/player/sanctuary_records/thehiddengod1.asx"><U>http://www.streamingkit.de/player/sanctuary_records/thehiddengod1.asx</U></A><BR><BR>Real Player:<BR><BR><A href="http://www.streamingkit.de/player/sanctuary_records/thehiddengod2.ram"><U>http://www.streamingkit.de/player/sanctuary_records/thehiddengod2.ram</U></A><BR></P>
+Автор: Ixtiandr
+
+### 25.10.2006 reviews Варварская романтика
+
+<P>Перед нами одиннадцатый по счету альбом группы Virgin Steele, которая в этом году отмечает свой 25-илетный юбилей. Полное его название "Visions Of Eden - The Lilith Project -&nbsp; A Barbaric Romantic Movie Of The Mind" (Лилит - первая жена Адама по некоторым, так скажем, источникам), и основной фигурой коллектива (также и в композиторском плане) по-прежнему является Дэвид ДеФейс, бессменный руководитель Virgin Steele. Начну сразу с минусов. Во-первых, альбом (не двойной!) продолжительностью в 80 минут в данном жанре прослушать, мягко говоря, трудновато. Понятно, что у мистера ДеФейса за шесть лет с момента выхода предыдущего релиза накопилось немало идей, но надо все-таки пожалеть своего слушателя... Кстати, выдержан "Visions Of Eden" ближе всего как раз к "атреусам". Во-вторых, маэстро ДеФейс разослал по журналам и изданиям черновой вариант альбома, что для такой, в принципе, претенциозной музыки, как у Virign Steele, прямо скажем, не лучший способ набрать баллы до выхода полноценного релиза. Запись глуховата, вокал Дэвида какой-то слишком нежный, вкрадчивый (и куда делась былая мощь?), чуть ли ни как у кота с похмелья, да простят мне такое сравнение. Впрочем, надеюсь, что в окончательном виде пластинка получилась нормальной с технической точки зрения, но как бы то ни было, уж минимум балл пришлось скинуть... А в остальном... Ну, собственно, вы прекрасно знаете, что ждать от Virgin Steele. Мне больше всего понравились первые вещи (думаю, две или три), которые напомнили сразу о великолепном ЕР "Magick Fire Music". Такие вот мелодии, резко, казалось бы, контрастирующие с "мановароподобным тру-хэви-металом" ДеФейсу удаются лучше всего, хотя, возможно, кто-то больше любит как раз его эпические вещи. Но, как говорилось выше,&nbsp;с продолжительностью композиций тут явный перебор, поэтому они зачастую на "Visions Of Eden" слушаются как-то громоздко, как будто автор решил вложить в одну вещь слишком много своих идей, да и надорвался. Ну и хитов хотелось бы побольше. Разбирать альбом можно бесконечно долго, в том числе изучая его концепцию, в общем и целом же это типичные Virgin Steele, и пусть "Visions Of Eden" вряд ли будет зачислен в число лучших работ группы, сделан он все равно на высоком уровне. По мне, так это по-любому интереснее того, что делали в последнее время Manowar, идеи которых, похоже, окончательно закончились. Ну и надеюсь, что вам удастся послушать уже нормальную, не черновую, версию, там, возможно, пластинка звучит совершенно по-другому.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 28.11.2007 news VIRGIN STEELE переиздатут раннее
+
+<P><STRONG>Dockyard 1</STRONG> переиздадут ранние альбомы<STRONG> VIRGIN STEELE</STRONG> <STRONG>"Noble Savage"</STRONG> (1985)&nbsp;и <B>"Age Of Consent"</B> (1988). Пластинки будут ремастированы и дополнены бонус-трэками. Также готовится новое оформление с комментариями от <STRONG>David DeFeis</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.03.2008 news Новая группа Thomen Stauch
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После увольнения из <STRONG>SAVAGE CIRCUS</STRONG> бывший барабанщик <STRONG>BLIND GUARDIAN Thomen</STRONG> <STRONG>Stauch</STRONG> начал искать, куда ему применить свои таланты. Вчера было объявлено о новой, пока не названной группе, в которую, кроме <STRONG>Thomen</STRONG>, вошли <STRONG>Axel Ritt</STRONG>&nbsp;(гитара, <STRONG>DOMAIN</STRONG>) и <STRONG>David DeFeis</STRONG>&nbsp;(!!!) (вокал, <STRONG>VIRGIN STEELE</STRONG>).</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 28.04.2008 news VIRGIN STEELE на Dockyard 1
+
+<P><STRONG>VIRGIN STEELE</STRONG> заключили контракт на выпуск нового альбома с <STRONG>Dockyard 1</STRONG>. Пластинка ожидается в начале 2009 года.</P>
+Автор: Vit Belov
+
+### 27.05.2010 news VIRGIN STEELE на SPV
+
+<P><STRONG>VIRGIN STEELE</STRONG> заключили контракт с<STRONG> SPV</STRONG>. Сделка распространяется на новый альбом группы, который выйдет в октябре, а также на переиздания бэк-каталога, которые выйдут в 2011 году. </P>
+Автор: Vit Belov
+
+### 11.08.2010 news VIRGIN STEELE в конце октября
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>VIRGIN STEELE</STRONG> <STRONG>"The Black Light Bacchanalia" </STRONG>выйдет 25 октября на <STRONG>SPV</STRONG>. Вот названия песен этого релиза:</FONT></P>
+<P>* <B>By The Hammer Of Zeus</B><BR>* <B>Pagan Heart</B><BR>* <B>The Bread Of Wickedness</B><BR>* <B>The Orpheus Taboo</B><BR>* <B>In A Dream Of Fire</B><BR>* <B>Nepenthe</B><BR>* <B>Necropolis (He Answers Them With Death)</B><BR>* <B>To Crown Them With Halos Parts 1 & 2</B><BR>* <B>The Tortures Of The Damned</B><BR>* <B>The Black Light Bacchanalia (The Age That Is To Come)</B><BR>* <B>Eternal Regret</B></P>
+<P>Лидер коллектива <STRONG>David DeFeis </STRONG>обещает концептуальный альбом на 80 минут. </P>
+Автор: Vit Belov
+
+### 19.05.2011 news Новое видео VIRGIN STEELE
+
+<P>Видео-клип<STRONG> VIRGIN STEELE</STRONG> на песню <STRONG>"God Of Violence Kill" </STRONG>можно посмотреть ниже. Песня будет использована в качестве бонус-трека на переиздании третьего альбома американской группы <STRONG>"Noble Savage". </STRONG></P>
+<P><STRONG></STRONG>
+<CENTER><IFRAME src="http://www.youtube.com/embed/qQfzHapAmcg?rel=0" frameBorder=0 width=480 height=303 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.05.2011 news Ещё один ролик VIRGIN STEELE
+
+<P>Ещё один клип <STRONG>VIRGIN STEELE</STRONG> на песню <STRONG>"By The Hammer Of Zeus (And The Wrecking Ball Of Thor)" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома группы <STRONG>"The Black Light Bacchanalia"</STRONG>, который вышел в ноябре на <STRONG>SPV</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3QSSrAuLoxY?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/3QSSrAuLoxY?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.08.2011 news TOMMY VITALY собирает друзей
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=205 alt="" hspace=0 src="/images/news_rus/2011.08/20784.jpg" width=300 align=right border=0>Гитарист итальянской группы <STRONG>SEVEN GATES TOMMY VITALY</STRONG> продолжает объявлять музыкантов, принимающих участие в записи его сольного альбома "<STRONG>Hanging Rock</STRONG>". Очередным "приглашённым" стал вокалист <STRONG>VIRGIN STEELE David DeFeis</STRONG>. Обложку для альбома, который выйдет в начале следующего года на <STRONG>IceWarrior Records</STRONG>, нарисует <STRONG>Felipe Machado Franco (HAPSODY, AXEL RUDI PELL, BLIND GUARDIAN, AXENSTAR, ICED EARTH)</STRONG>. Список заявленных участников проекта:</FONT></P>
+<P><STRONG>Tommy Vitaly</STRONG> (SEVEN GATES) - Guitars<BR><STRONG>David DeFeis</STRONG> (VIRGIN STEELE) - Vocals<BR><STRONG>Zak Stevens</STRONG> (CIRCLE II CIRCLE, ex SAVATAGE) - Vocals<BR><STRONG>Michele Luppi</STRONG> (THAUROROD, ex VISION DIVINE) - Vocals<BR><STRONG>Carsten Lizard-Schulz</STRONG> (EVIDENCE ONE, ex DOMAIN) - Vocals<BR><STRONG>Andrea "Tower" Torricini</STRONG> (ex VISION DIVINE, ex SHADOWS OF STEEL) - Bass<BR><STRONG>Norifumi Shima</STRONG> (CONCERTO MOON) - Guitars<BR><STRONG>David Shankle</STRONG> (DSG, ex MANOWAR) - Guitars<BR><STRONG>Rhino</STRONG> (ex MANOWAR, ex HOLY HELL) - Drums</P>
+Автор: Vit Belov
+
+### 11.01.2012 news Новый клип VIRGIN STEELE
+
+<P>Новый ролик<STRONG> VIRGIN STEELE</STRONG> на песню "<STRONG>Perfect Mansions (Mountains Of The Sun)</STRONG>" можно посмотреть ниже. Трек взят с переиздания альбома "<STRONG>Age Of Consent</STRONG>", вышедшего в ноябре на <STRONG>SPV</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/YCx4pmCFvBM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Virgin Steele

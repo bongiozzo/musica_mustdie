@@ -160,6 +160,462 @@ DVD tracklist:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.11.1999 news 
+
+<p>Orphaned Land перешли на Century Media и выпустят следующий альбом "Mabool" будущей весной.</p>
+
+Автор: Vit Belov
+
+### 15.07.2000 news Обновление дебюта Orphaned Land.
+
+<p>Orphaned Land выпустили заново свой дебютный альбом "The Beloved's Cry". Обновленная версия альбома также включает в себя мультимедийный пакет с концертным видеоклипом "Seasons Unite" и фотографиями группы.</p>
+
+Автор: Phantom Lord
+
+### 12.03.2002 news Orphaned Land
+
+<p>After five years of silence and two fantastic shows in Turkey and Tel-Aviv, Israel hope in Doom/Death industry Orphaned Land are announcing of a new album. "Mabool" the next and fourth recording (3rd full length album) will be officially released worldwide in the upcoming winter of 2003. Official source "All guitar parts are done, and as lyrics are being worked as well as drum parts, we feel we'd be able to record the new album in the close months around summer time"</p>
+
+Автор: Mitaman
+
+### 18.07.2003 news ORPHANED LAND таки выпустят новый альбом
+
+<p>Израильские металлеры из ORPHANED LAND начинают запись своего третьего альбома под названием "Mabol", который планируется к изданию в конце 2003 года на Century Media Records.</p>
+
+Автор: Dimas
+
+### 29.10.2003 news Подробности о новом альбоме ORPHANED LAND
+
+<P><LABEL id=HbSession SessionId="2896646310">Завершена запись нового альбома израильских музыкантов <B>ORPHANED LAND</B> под наззванием „<B>Mabool</B>”. Сейчас альбом находится на стадии микширования. Это будет концептуальный альбом из 12 песен на более чем 70 минут. Выход его запланирован на начало 2004 года через <B>Century Media Records</B>. Окончательный трэк-лист выглядит следующим образом:</LABEL></P>
+<P><LABEL SessionId="2896646310">1. Birth Of The Three (The Unification) <BR>2. Ocean Land (The Revelation) <BR>3. The Kiss Of Babylon (The Sins) <BR>4. A'salk <BR>5. Halo Dies (The Wrath Of God) <BR>6. A Call To Awake (The Quest) <BR>7. Building The Ark <BR>8. Norra El Norra (Entering The Ark) <BR>9. The Calm Before The Flood <BR>10. Mabool (The Flood) <BR>11. The Storm Still Rages <BR>12. Rainbow (The Resurrection)</LABEL></P>
+Автор: Dimas
+
+### 26.04.2004 reviews Оригинальная пластинка с недостатком цепляющих мелодий
+
+<DIV><I>Одна из первых групп из Израиля (ещё <B>SALEM</B>, пожалуй), добившаяся успеха за пределами своей страны. Само происхождение заставляет обратить на <B>ORPHANED LAND</B> пристальное внимание.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Новейший альбом израилитян 'Mabool' вышел на монстре <B>CENTURY MEDIA</B>. <B>ORPHANED LAND</B> обращают на себя внимание, в первую очередь, своими вариациями на тему восточной музыки. Используются народные инструменты, стандартные восточные вокалы... Кроме этого, на этом альбоме коллектива можно заметить влияния классической музыки и даже progressive. Всё вышеперечисленное заставляет обратить наше внимание на этот альбом, но несмотря на это, '<B>Mabool'</B> явно не хватает интересных мелодий.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Оригинальная, навороченная работа, которая по мелодичности уступает предыдущим пластинкам группы. </DIV>
+<P><EM><STRONG>Диск предоставлен фирмой <a href="http://www.fono.ru">ФОНО</a></STRONG></EM></P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 18.12.2004 news Клип ORPHANED LAND on-line
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стало возможным посмотреть видео-клип <STRONG>ORPHANED LAND</STRONG> на песню <STRONG>'Ocean Land'</STRONG> с альбома <STRONG>'Mabool'</STRONG>, вышедешго на <STRONG>Century Media</STRONG>. Качайте здесь: <A href="http://mp4.centurymedia.com/olHIGH.ram">http://mp4.centurymedia.com/olHIGH.ram</A></FONT></P>
+Автор: Vit Belov
+
+### 08.02.2006 news Новости от INSIDE OUT MUSIC
+
+<P>2006 - год <B>EVERGREY</B>. В ближайших планах шведского квинтета - выпуск нового диска <B>"Monday Morning Apocalypse"</B> (релиз намечен на конец марта) и посещение церемонии вручения шведской Грэмми, откуда музыканты, в минувшем году порадовавшие шикарным DVD <B>"A Night To Remember"</B>, намерены унести свою первую серьезную награду. <BR><BR><B>Джим Матеос (FATES WARNING)</B>, <B>Кевин Мур</B> (ex-<B>DREAM THEATER, CHROMA KEY</B>) и <B>Майк Портной (DREAM THEATER)</B> готовят новый диск под вывеской <B>O.S.I. - the Office Of Strategic Influence</B>. Пластинка выйдет в конце марта и намерена реабилитировать провал альбома 3-хлетней давности. Следим за "осями"!<BR><BR>Выход очередной работы канадских прогстеров <B>SAGA</B> под рабочим названием <B>"Trust"</B> запланирован на начало апреля.&nbsp; <BR><BR><B>STREAM OF PASSION</B> выпустят сингл <B>"Out In The Real World"</B>. Кроме ремикшированной версии заглавного трека (оригинал ищите на дебютной пластинке группы - <B>"Embrace The Storm"</B>), 7-дюймовка будет содержать две новых версии старых песен <B>AYREON</B> и "цепеллиновский" кавер "<B>When The Levee Breaks"</B>. В магазинах - с 10 февраля.<BR><BR>Непоколебимый <B>Ройне&nbsp;Столт</B> почти закончил работу над новым комбо от <B>THE FLOWER KINGS</B>. Двойной альбом <B>"Paradox Hotel"</B> выйдет в самое ближайшее время.<BR>&nbsp;<BR>Знаменитый фестиваль <B>ProgPower</B> продолжает захватывать территории - вслед за площадками США и Страны Тюльпанов всю "силу прога" познают подданные Британской Короны. Представление назначено на 25 марта. Среди групп и музыкантов, подавших заявку на участие - <B>THERION, THRESHOLD, ORPHANED LAND и FREEDOM CALL</B>.<BR><BR><B>VANDEN PLAS</B> перенесли выход своего альбома <B>"Christ 0"</B> на конец апреля из-за проблем с микшированием. Напомним, что <B>"Christ 0"</B> - это концептуальная работа, основанная на классическом романе Александра Дюма "Граф Монте-Кристо".<BR><BR>В марте <B>Revisited Records</B> начинает издание бэк-каталога <B>PETE</B> <B>TOWNSHEND</B>. Первыми релизами станут <B>"Who Came First", "Rough Mix" </B>(совместно с <B>Ronnie Lane</B>), <B>"Empty Glass", "Scoop"</B>. Также в планах <B>Revisited</B>&nbsp; - издание более 20 сольных альбомов участника <B>Yello CARLOS PERON</B>, которые будут выпущены с интервалом в несколько месяцев. Серия начнется в марте с издания альбомов <B>"Impersonator I", "Nothing Is True, Everything Is Permitted", "Die Sch&#246;pfung der Welt", "Gold For Iron" и "Terminatrix".</B> Также вскоре ожидается еще 2 переиздания <B>FRANK MARINO & MAHOGANY RUSH</B> (<B>"Double Live"</B> и <B>"From The Hip"</B>) и еще 3 переиздания <B>GURU GURU</B> (<B>"Dance Of The Flames", "Hey Du", "30 Jahre live"</B>). <A href="http://www.petetownshend.co.uk/"><U>www.petetownshend.co.uk</U></A> <A href="http://www.carlosperon.de/"><U>www.carlosperon.de</U></A>&nbsp;<A href="http://www.mahoganyrush.com/"><U>www.mahoganyrush.com</U></A> <A href="http://www.guru-guru.com/"><U>www.guru-guru.com</U></A>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR><B>RPWL</B> готовят к выпуску свой концертный DVD. Его основной частью станут съемки концерта в Баварии для телепрограммы "Rockpalast". DVD планируется к выпуску в начале лета. Группа также планирует концерты в Германии, Франции, Люксембурге и Испании. <A href="http://www.rpwl.de/"><U>www.rpwl.de</U></A><BR><BR>-------------------------------------------------------------------- <BR>НОВЫЕ РЕЛИЗЫ / <B>InsideOut Music<BR></B>--------------------------------------------------------------------<BR><BR><B>JADIS: "Photoplay"</B>, February 24th<BR><B>PROTO-KAW: "The Wait Of Glory"</B>,&nbsp;January 20th <BR><B>SPIRITUAL BEGGARS: "Live Fire"</B> (DVD), January 27th<BR><B>STREAM OF PASSION: "Out In The Real World"</B> (CD-Single), February 10th<BR><B>THE TANGENT: "A Place In The Queue"</B>, February 3rd<BR><B>THE DEVIN TOWNSEND BAND: "Synchestra"</B>,&nbsp; January 27th<BR><BR>-----------------------------------------------------<BR>НА ПОДХОДЕ / <B>InsideOut Music</B><BR>-----------------------------------------------------<BR><BR><B>ASIA: "Architect of Time"</B>, Mai 5th<BR><B>EVERGREY: "Monday Morning Apocalypse"</B>, March 24th<BR><B>THE FLOWER KINGS: :Paradox Hotel"</B> (double CD), March 24th<BR><B>O.S.I.</B>: new studio album, March 31st<BR><B>SAGA: "Trust"</B> (working title),&nbsp; April 21st<BR><B>UMPHREY'S McGEE: "Safety In Numbers"</B>,&nbsp; March 31st<BR><B>VANDEN PLAS: "Christ 0"</B>, April 21st<BR><BR>---------------------------------------------------------------------------<BR>Новинки <B>Revisited Records</B> &#8730; подразделение <B>InsideOut Music</B><BR>---------------------------------------------------------------------------<BR><BR><B>KRAAN: "Flyday"</B>,&nbsp; December 9th<BR><B>KRAAN: "Dancing In The Shade"</B>,&nbsp; December 9th<BR><B>KRAAN: "Live 2001"</B>, December 9th<BR><B>KLAUS SCHULZE: "Das Wagner Desaster - Live"</B>, December 16th<BR><B>KLAUS SCHULZE: "Moondawn"</B>, December 16th<BR><B>KLAUS SCHULZE: "Angst"</B>, December 16th<BR><B>KLAUS SCHULZE: "Vanity Of Sounds"</B>, December 16th<BR><BR>-------------------------------------------------------------------------------------<BR>НА ПОДХОДЕ <B>/ Revisited Records</B> &#8730; подразделение <B>InsideOut Music</B><BR>-------------------------------------------------------------------------------------<BR><BR><B>FRANK MARINO & MAHOGANY RUSH: "Double Live"</B>, April 28th<BR><B>FRANK MARINO & MAHOGANY RUSH: "From The Hip"</B>, 28. April 28th<BR><B>GURU GURU: "Dance Of The Flames"</B>, April 28th<BR><B>GURU GURU: "Hey Du"</B>,&nbsp;April 28th<BR><B>GURU GURU: "30 Jahre live"</B>, April 28th<BR><B>CARLOS PERON: "Impersonator I"</B>, March 31st<BR><B>CARLOS PERON: "Nothing Is True, Everything Is Permitted"</B>,&nbsp;March 31st<BR><B>CARLOS PERON: "Die Sch&#246;pfung der Welt"</B>, March 31st<BR><B>CARLOS PERON: "Gold For Iron"</B>, March 31st<BR><B>CARLOS PERON: "Terminatrix"</B>, March 31st<BR><B>PETE TOWNSHEND: "Who Came First"</B>, March 24th<BR><B>PETE TOWNSHEND & RONNIE LANE: "Rough Mix"</B>, March 24th<BR><B>PETE TOWNSHEND: "Empty Glass"</B>, March 24th<BR><B>PETE TOWNSHEND: "Scoop"</B>, March 24th<BR><BR>--------------------------------------<BR><B>InsideOut</B> Дистрибьюция<BR>--------------------------------------<BR><BR><B>RITUAL: "Live"</B> (double CD), January 20th <BR><BR>------------------------------------------------------------<BR><B>InsideOut</B> Дистрибьюция / <B>ECLECTIC DISCS</B><BR>------------------------------------------------------------<BR><BR><B>BARCLAY JAMES HARVEST: "All Is Safely Gathered In"</B> (5 CD box),&nbsp;December 16th<BR><B>EDGAR BROUGHTON BAND: "Live Hits Harder"</B>,&nbsp;February 17th<BR><B>EDGAR BROUGHTON BAND: "Bandages"</B>, February 17th<BR><B>SAINT STEVEN: "Saint Steven"</B>,&nbsp;February 17th<BR><BR>-----------------<BR>новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+Автор: Ixtiandr
+
+### 12.04.2006 news Продюсер нового ORPHANED LAND
+
+<P>Продюсером нового альбома <STRONG>ORPHANED LAND</STRONG> будет знаменитый<STRONG> Steven Wilson</STRONG> (<STRONG>PORCUPINE TREE</STRONG>).</P>
+Автор: Vit Belov
+
+### 11.05.2006 news Новости от ORPHANED LAND
+
+<P>Израильская формация <STRONG>ORPHANED LAND</STRONG> приступила к работе над своим новым альбомом, который планируется к выходу на <STRONG>Century Media Records</STRONG> в начале 2007 года. Продюсером записи выступает <STRONG>Steven Wilson</STRONG> (<B>PORCUPINE TREE). </B></P>
+Автор: Dimas
+
+### 26.02.2008 articles Turisas&#x2F;Orphaned Land&#x2F;Dark Lunacy на праздновании 10-илетия DARKSIDE.RU, пресс-релиз
+
+<A href="http://www.darkside.ru/" target=_blank><U>DARKSIDE.ru</U></A> в этом году отмечает свой юбилей - вот уже на протяжении 10 лет мы стараемся, чтобы вы всегда были в курсе событий мира тяжелой музыки, а также могли найти исчерпывающую информацию о любимых группах и музыкантах! Приглашаем вас отметить это событие вместе с нами и тремя наиболее яркими представителями металл-сцены: 
+<P>
+<CENTER><IMG height=30 src="/images/articles_rus/2008.02/12303.gif" width=206 border=0></CENTER>
+<P>
+<CENTER>Battle Metal (Финляндия)</CENTER>
+<P>
+<CENTER><IMG height=38 src="/images/articles_rus/2008.02/12304.gif" width=201 border=0></CENTER>
+<P>
+<CENTER>Ethno Doom/ Progressive Metal (Израиль)</CENTER>
+<P>
+<CENTER><IMG height=49 src="/images/articles_rus/2008.02/12305.gif" width=206 border=0></CENTER>
+<P>
+<CENTER>Dramatic Death Metal (Италия)
+<P> 
+<CENTER><B>12 апреля </B>- Москва, клуб <A href="http://www.clubtochka.ru/" target=_blank><U>"Точка"</U></A> <BR><B>13 апреля </B>- Санкт-Петербург, <A href="http://www.roksclub.com/" target=_blank><U>клуб "Roks"</U></A> </CENTER>
+<P>Мы не случайно собрали три такие разные группы вместе - каждая из них обладает ярко выраженной индивидуальностью и исполняет оригинальную и красивую музыку! 
+<P><A href="http://www.darkside.ru/10/#Turisas"><U>TURISAS</U></A> смело смешивают в своей музыке фольклорные темы, симфонические аранжировки и эпику viking metal, ярко выделяясь среди коллег по цеху. 
+<P>ORPHANED LAND поразят вас фантастическим смешением тяжелых риффов и фольклорных мелодий, исполненных на традиционных ближневосточных инструментах. 
+<P>DARK LUNACY обладают собственным уникальным стилем dramatic death metal, сочетающим музыкальные гармонии, свойственные русской классической музыке XIX века, и риффы, характерные для melodic death. </P></CENTER>
+<P>
+<CENTER><IMG height=30 src="/images/articles_rus/2008.02/12303.gif" width=206 border=0></CENTER>
+<P>
+<DIV align="right">&nbsp;</DIV>
+<P><IMG height=375 src="/images/articles_rus/2008.02/12306.jpg" width=250 align="left" border=5>Драккар под гордым именем "TURISAS" был заложен в финском городе Хяменнлинна двумя гордыми потомками викингов Матиасом Нюгордом (вокал) и Юсси Викстрёмом (гитара) в далеком уже 1997 году. Но прежде чем отправиться в первое плавание, их кораблю пришлось пройти нелегкие испытания. Демо-период затянулся на весьма значительное время, и группе никак не удавалось подписать первый контракт. Зато уже первый полноценный альбом оправдал все ожидания. Вышедший в 2004 году на Century Media диск "Battle Metal " в полной мере оправдал надежды музыкантов и явил миру тот самый истинный "боевой металл", о котором говорил титул пластинки. 10 боевых гимнов с прологом и эпилогом, наполненных скальдической эпикой, нордической мощью и гимноподобной мелодикой показали недюжинный потенциал группы. Потенциал, который в полной мере был реализован на альбоме "Varangian Way " ("Путь из Варяг в Греки"). Пройдя вместе со своими героями путь от Скандинавии до Константинополя через земли Древней Руси, музыканты TURISAS словно бы создали музыкальную хронику этого путешествия. Слушая этот альбом, можно окунуться в мир наших предков, едва ли не воочию представить шумные ярмарки Великого Новгорода, богатство великокняжеского Киева, опасности днепровских порогов, разноязыкий блеск Царьграда: TURISAS смело смешивают в своей музыке фольклорные темы, симфонические аранжировки и эпику викинг-металла, создавая свое собственное, ярко выделяющееся среди своих коллег по сцене лицо. Их песни западают в память всерьез и надолго, и каждое шоу - это окно в эпоху, "когда деревья были большими". Ну а на землях той самой Гардарики, по которой путешествуют герои их последней саги, оно и подавно должно оказаться чем-то необыкновенным. </P>
+<P>Официальный сайт: <A href="http://www.turisas.com/" target=_blank><U>www.turisas.com</U></A><BR>MySpace страница: <A href="http://www.myspace.com/turisasofficial" target=_blank><U>www.myspace.com/turisasofficial</U></A> </P>
+<P>
+<CENTER><IMG height=38 src="/images/articles_rus/2008.02/12304.gif" width=201 border=0></CENTER>
+<DIV align="left">&nbsp;</DIV>
+<P><IMG height=300 src="/images/articles_rus/2008.02/12307.jpg" width=400 align="right" border=5>Когда в далеком 1991 году несколько молодых израильтян решили играть тяжелую музыку, едва ли они рассчитывали на то, что их проект с течением времени превратится в одну из самых уважаемых и ценимых любителями интеллигентного хэви-металл групп. И это при том, что за все время своего существования ORPHANED LAND выпустили всего три полнометражных альбома. Зато каких! Уже первая работа молодых музыкантов ("Sahara") обратила на себя внимание фэнов и специалистов нестандартным подходом к взятому группой за основу для своего творчества doom/death metal, заключавшемся в смелом использовании ближневосточных мелодий и гармоний, что сразу же выделило их среди прочих исполнителей этого жанра. И это при том, что сами израильтяне никогда не отрицали, что в то время на них сильнейшее влияние оказывали PARADISE LOST. Но все же, эффект, произведенный второй работой группы, названной "El Norra Alila ", был куда более сильным: здесь влияние арабской и еврейской традиционной музыки оказалось уже куда заметнее, но вместе с ним израильтяне использовали и элементы европейской классики, тесно вплетя их во все ту же doom/death metal основу. Альбом получил массу восторженных отзывов в прессе, завоевал множество фанатов, после чего: группа успешно канула в лету: Проблемы с армейской службой, разногласия в стане коллектива, активное увлечение главного идеолога ORPHANED LAND, вокалиста Коби Фархи, религиозной философией, - все это привело к тому, что израильтяне замолчали и надолго. Следующего альбома пришлось ждать целых восемь лет. Зато ожидания эти полностью оправдались. Третий альбом группы ("Mabool") стал не только лучшим в ее истории, но и одним из лучших за всю историю жанра. Фантастическое смешение тяжелых риффов, фольклорных мелодий, исполненных на традиционных ближневосточных инструментах, гармоний, свойственных, как восточной, так и западной музыке, оказалось настолько совершенным, что израильтяне были единодушно причислены всеми музыкальными специалистами к числу "живых классиков", что создало им все условия, чтобы почить на лаврах. Что те и не замедлили сделать - Коби Фархи, в частности, занялся написанием литературного труда: И, тем не менее, сейчас, спустя "всего" четыре года после "Mabool" группа подготовила новый альбом, названный "Between God and Satan", и готова вернуться к активной деятельности, имея в своей основе все тот же состав, что и в самом начале своего существования: Коби Фархи (вокал), Йосси Сасси (гитара), Матти Сватицки (гитара) и Ури Зельха (бас). Но ведь никто не даст гарантии, что через пару месяцев они вновь не исчезнут куда-нибудь. Так что, надо спешить, пока есть возможность увидеть концерт одной из самых уникальных команд, когда-либо существовавших на тяжелой сцене. 
+<P>Официальный сайт: <A href="http://www.orphaned-land.com/" target=_blank><U>www.orphaned-land.com</U></A><BR>MySpace страница: <A href="http://www.myspace.com/orphanedmyspace" target=_blank><U>www.myspace.com/orphanedmyspace</U></A> </P>
+<P>
+<CENTER><IMG height=49 src="/images/articles_rus/2008.02/12305.gif" width=206 border=0></CENTER>
+<DIV align="right">&nbsp;</DIV>
+<P><IMG height=320 src="/images/articles_rus/2008.02/12308.jpg" width=250 align="right" border=5> Пожалуй, одна из самых оригинальных и недооцененных групп на современной металл-сцене была основана в Парме в 1996 году вокалистом Майком и гитаристом Эномисом, которые и по сей день составляют основную креативную силу коллектива. Поскольку оба этих молодых человека увлекались одновременно классической музыкой и дэт-металлом, то и группа, созданная ими, сразу же взяла курс на совмещение этих двух музыкальных направлений. В результате получился уникальный стиль, окрещенный его создателями dramatic death metal и представляющий собой сочетание классических музыкальных гармоний, свойственных в первую очередь, русской классической музыке XIX века, и риффов, характерных для melodic death. При этом симфонической музыкой интерес итальянцев к России не ограничивается. Уже с первого альбома ("Devoid") темы, заимствованные из русской литературной классики и российской истории, становятся в их творчестве основными. Ну а последний альбом ("The Diarist") полностью посвящен героической обороне Ленинграда во время Великой Отечественной войны. В этой работе музыканты очень органично сумели вплести в свою музыку фрагменты из советской песенной классики, от чего она приобрела еще больший драматизм и эпический размах. "Мы посвятили "The Diarist" русским людям, потому что они способны любить свою Родину так, как не способны ни итальянцы, ни какие-либо другие нации", - говорит Эномис. На сегодняшний день за спиной у пармезанцев три полнометражных альбома и множество концертов в Европе и Латинской Америке, вместе с такими монстрами, как NIGHTWISH, DARK TRANQUILLITY, JUDAS PRIEST, RAGE, ANATHEMA. Тем удивительнее, что до сих пор группа ни разу не была в России - в стране, которая стала для них главным источником вдохновения. Настало время исправить это недоразумение. 
+<P>Официальный сайт: <A href="http://www.darklunacy.com/" target=_blank><U>www.darklunacy.com</U></A><BR>MySpace страница: <A href="http://www.myspace.com/darklunacy" target=_blank><U>www.myspace.com/darklunacy</U></A> </P>
+<P>Более подробная информация: <A href="http://www.darkside.ru/10/">http://www.darkside.ru/10/</A></P>
+<DIV></DIV>
+Автор: Ixtiandr
+
+### 07.04.2008 news 10 лет Darkside.ru
+
+<P>
+<CENTER><IMG height=400 src="/images/shows_rus/2008.02/12285.jpg" width=267 border=0> </CENTER>
+<P></P>
+Автор: Dimas
+
+### 30.07.2008 news ORPHANED LAND почти записали альбом
+
+<P><STRONG>ORPHANED LAND</STRONG> сообщили, что почти закончили работу над новой пластинкой <STRONG>'ORwarriOR'. </STRONG>Записано уже более 90 минут материала. Группа сообщает, что их новая работа не будет повторять предыдущую пластинку "<STRONG>Mabool</STRONG>", но так любимые многими женский вокал и восточные инструменты останутся.</P>
+Автор: Vit Belov
+
+### 13.03.2009 news ORPHANED LAND сделают лучшее
+
+<P><STRONG>ORPHANED LAND</STRONG> продолжают работать над долгожданным альбомом <STRONG>"ORwarriOr". </STRONG>Пластинка должна выйти осенью на <STRONG>Century Media</STRONG>. Вокалист <STRONG>Kobi Farhi</STRONG> заявил, что длительность этой работы будет более 70 минут, и группа вновь задействовала огромное количество фолк интсрументов и различных языков. Господин <STRONG>Farhi </STRONG>считает, что будущий альбом будет лучшим в дискографии группы.</P>
+Автор: Vit Belov
+
+### 25.09.2009 news Дата релиза ORPHANED LAND
+
+<P>Новый альбом <STRONG>ORPHANED LAND</STRONG> <STRONG>"The Never Ending Way of ORwarriOR" </STRONG>выйдет в январе на <STRONG>Century Media</STRONG>. Пластинку свёл лидер <STRONG>PORCUPINE TREE</STRONG> <STRONG>Steven Wilson.</STRONG></P>
+Автор: Vit Belov
+
+### 13.11.2009 news ORPHANED LAND назначили дату
+
+<P>Долгожданный альбом <STRONG>ORPHANED LAND</STRONG> <STRONG>"The Never Ending Way Of ORwarriOR" </STRONG>выйдет 25 января следующего года на <STRONG>Century Media</STRONG>. Свёл этот альбом, а так же сыграл партии клавишных, знаменитый <STRONG>Steven Wilson</STRONG> (<B>PORCUPINE TREE</B>, <B>OPETH</B>).</P>
+<P>"<EM>Как люди, родившиеся в трагедии нашего региона, мы всегда были вынуждены&nbsp;создавать гармонию из&nbsp;конфликтов. Музыкальный рай на земле, танго Бога и Сатаны</EM>", - рассказывает лидер коллектива вокалист <STRONG>Kobi Farhi. "</STRONG><EM>Даже на обложке нашего альбома мы сочетали&nbsp;иврит с арабским, как символ борьбы евреев и мусульман. Я нашёл парня из Иордании, специализирующегося на каллиграфических изображениях. Он взял буквы из иврита и арабского и создал на их основе символ мира</EM>", - заканчивает <STRONG>Kobi</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 19.11.2009 news Трэк-лист нового ORPHANED LAND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> ORPHANED LAND</STRONG> <STRONG>"The Never Ending Way Of ORwarriOR"</STRONG>&nbsp;выйдет 25 января на <STRONG>Century Media</STRONG>. Опубликован трэк-лист этой пластинки:</FONT></P>
+<P>Part I: Godfrey's Cordial – An ORphan's Life<BR><BR>01. <B>Sapari</B> <BR>02. <B>From Broken Vessels</B><BR>03. <B>Bereft In The Abyss</B><BR>04. <B>The Path Part 1 – Treading Through Darkness</B> <BR>05. <B>The Path Part 2 – The Pilgrimage To Or Shalem</B><BR>06. <B>Olat Ha'tamid</B> <BR><BR>Part II: Lips Acquire stains – The WarriOR Awakens<BR><BR>07. <B>The Warrior</B> <BR>08. <B>His Leaf Shall Not Wither</B><BR>09. <B>Disciples Of The Sacred Oath II</B><BR>10. <B>New Jerusalem</B><BR>11. <B>Vayehi Or</B> <BR>12. <B>M I ?</B><BR><BR>Part III: Barakah – Enlightening The Cimmerian<BR><BR>13. <B>Barakah</B><BR>14. <B>Codeword: uprising</B><BR>15. <B>In Thy Never Ending Way</B> (Epilogue) </P>
+Автор: Vit Belov
+
+### 04.12.2009 news Обложка ORPHANED LAND
+
+<P>Новый диск <STRONG>ORPHANED LAND</STRONG> <STRONG>"The Never Ending Way Of ORwarriOR" </STRONG>выходит 25 января на <STRONG>Century Media</STRONG>. Появилась обложка этого альбома.</P>
+<P><center><IMG height=395 src="/images/news_rus/2009.12/15648.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 22.12.2009 news Новая песня ORPHANED LAND
+
+<P>Новый трэк <STRONG>ORPHANED LAND</STRONG> <STRONG>"Vayehi Or" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/orphanedmyspace">http://www.myspace.com/orphanedmyspace</A></P>
+Автор: Vit Belov
+
+### 10.02.2010 news Видео ORPHANED LAND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>ORPHANED LAND</STRONG> на песню <STRONG>"Sapari" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT id=AOLVP_65653185001 height=346 width=400 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="10583"><PARAM NAME="_cy" VALUE="9155"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="Src" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="WMode" VALUE="Transparent"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="000000"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" bgcolor="#000000" width="400" height="346" name="AOLVP_65653185001" flashvars="codever=1&playerid=10032373001&publisherid=1612833736&videoid=65653185001"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.02.2010 reviews Израильская народная музыка
+
+<P>Группа из Израиля ORPHANED LAND не надоедает своему слушателю. Если в середине 90-х, по какому-то недоразумению, коллектив выпустил два альбома подряд, то дальше на вооружение был принят более энергосберегающий принцип. Предыдущий “Mabool” вышел через восемь лет после предшественника, а новой работ фэны ждали почти шесть лет.</P>
+<P>Именно “Mabool” привлёк к ORPHANED LAND внимание всего тяжёлометалического человечества. Первые работы израильтян воспринимались как хорошие только любителями gothic-death-doom metal. В них был некий восточный колорит, но он не затмевал собой тяжёлого метала. На “Mabool” ORPHANED LAND сконцентрировали внимание потенциального слушателя на своём происхождении. Все эти разговоры про «Мир во всём Мире» и оценки международной ситуации на Ближнем Востоке, безусловно, вызывали уважение и даже некоторое сочувствие, но к самой музыке они мало имели отношения. Балом правили теперь разнообразные «фолковые» элементы, и те любители музыки, которые получают от них удовольствие, были в восторге. Новая работа продолжает эту тенденцию, отхода от различных клише в тяжёлой музыке. Качественная реализация, к месту использованные народные мелодии и инструменты и депрессивное настроение на многих трэках. В принципе “The Never Ending Way...” можно смело разделить на две части: фолковую и лиричную. Первая ничем никого не удивит, но несомненно порадует. Со второй дело обстоит посложнее.&nbsp; Мне почему-то вспомнились баллады BLIND GUARDIAN, мне они нравятся, но слушать их часто можно только в определённом жизненном настроении. </P>
+<P>Группа, заслуживающая внимания на все 100 процентов. Бурный ажиотаж вокруг выхода их пластинок меня слегка настораживает, но послушать этот альбом необходимо. Аналогов у подобной музыки не существует, но это единственный полноценный плюс альбома. О всех остальных можно и нужно спорить.</P>
+Автор: Vit Belov
+
+### 30.06.2011 news ORPHANED LAND готовят DVD
+
+<P>9 и 10 декабря прошлого года в тель-авивском клубе Reading 3 на юбилейных концертах <STRONG>ORPHANED LAND</STRONG> отсняли материал для грядущего DVD. В выступлениях приняли участие <STRONG>Steven Wilson</STRONG> из <STRONG>PORCUPINE TREE</STRONG>, <STRONG>Greg Mackintosh </STRONG>из <STRONG>PARADISE LOST</STRONG> и знаменитая израильская певица <STRONG>Yehuda Poliker.</STRONG></P>
+<P>Трейлер DVD, названного <STRONG>"The Road To Or Shalem"</STRONG>, можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/a0KiB1wQ2ZY?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/a0KiB1wQ2ZY?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.08.2011 news ORPHANED LAND выпускают дебютный DVD
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20634.jpg" width=382 height=516>Группа <STRONG>ORPHANED LAND</STRONG>&nbsp;выпускает свой первый DVD<STRONG>&nbsp;"The Road To OR-Shalem"</STRONG>. Дата его&nbsp;выхода назначенна на 24 октября в Европе и на 1 ноября в Соеденённых Штатах October&nbsp;на лейбле&nbsp;<B itxtHarvested="0" itxtNodeId="107">Century Media</B>.<BR itxtNodeId="106"><BR itxtNodeId="105">Снятый в Тель Авиве в декабре 2010 года, <B itxtHarvested="0" itxtNodeId="103">"The Road To OR-Shalem"</B> будет включать в себя почти два часа концертного материала, а так же, второй бонус DVD, на&nbsp;который войдут дополнительные концертные съёмки,&nbsp;съёмки закулисья&nbsp;&nbsp;и видео клипы. </P>
+<P>Трек-лист<STRONG> "The Road To OR-Shalem"</STRONG>:<BR itxtNodeId="77"><BR itxtNodeId="76">DVD 1:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="73">Halo Dies</B><BR itxtNodeId="72">02. <B itxtHarvested="0" itxtNodeId="71">Birth Of The Three</B><BR itxtNodeId="70">03. <B itxtHarvested="0" itxtNodeId="69">Olat Hatamid</B><BR itxtNodeId="68">04. <B itxtHarvested="0" itxtNodeId="67">The Kiss Of Babylon</B><BR itxtNodeId="66">05. <B itxtHarvested="0" itxtNodeId="65">A Never Ending Way</B><BR itxtNodeId="64">06. <B itxtHarvested="0" itxtNodeId="63">Disciples Of The Sacred II</B><BR itxtNodeId="62">07. <B itxtHarvested="0" itxtNodeId="61">Bereft In The Abyss</B><BR itxtNodeId="60">08. <B itxtHarvested="0" itxtNodeId="59">The Storm Still Rages Inside</B><BR itxtNodeId="58">09. <B itxtHarvested="0" itxtNodeId="57">Sapari</B><BR itxtNodeId="56">10. <B itxtHarvested="0" itxtNodeId="55">From Broken Vessels</B><BR itxtNodeId="54">11. <B itxtHarvested="0" itxtNodeId="53">Ocean Land</B><BR itxtNodeId="52">12. <B itxtHarvested="0" itxtNodeId="51">M I?</B><BR itxtNodeId="50">13. <B itxtHarvested="0" itxtNodeId="49">New Jerusalem</B><BR itxtNodeId="48">14. <B itxtHarvested="0" itxtNodeId="47">Vayehi Or</B><BR itxtNodeId="46">15. <B itxtHarvested="0" itxtNodeId="45">The Warrior</B><BR itxtNodeId="44">16. <B itxtHarvested="0" itxtNodeId="43">Baraka</B><BR itxtNodeId="42">17. <B itxtHarvested="0" itxtNodeId="41">Codeword: uprising</B><BR itxtNodeId="40">18. <B itxtHarvested="0" itxtNodeId="39">El Meod Na'ala</B><BR itxtNodeId="38">19. <B itxtHarvested="0" itxtNodeId="37">In Thy Never Ending Way</B><BR itxtNodeId="36">20. <B itxtHarvested="0" itxtNodeId="35">The Beloveds Cry</B><BR itxtNodeId="34">21. <B itxtHarvested="0" itxtNodeId="33">Norra El Norra</B><BR itxtNodeId="32">22. <B itxtHarvested="0" itxtNodeId="31">Ornaments Of Gold</B><BR itxtNodeId="30"><BR itxtNodeId="29">DVD 2:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="26">Bakapaim</B> (with Yehuda Poliker)<BR itxtNodeId="25">02. <B itxtHarvested="0" itxtNodeId="24">Halom Layam Hatihon</B> (with Yehuda Poliker)<BR itxtNodeId="23">03. <B itxtHarvested="0" itxtNodeId="22">The Path Part 1 – Treading Through Darkness</B> (drums & percussion solo)<BR itxtNodeId="21">04. <B itxtHarvested="0" itxtNodeId="20">Seasons Unite</B> (from the album "Sahara")<BR itxtNodeId="19">05. <B itxtHarvested="0" itxtNodeId="18">Thee By The Father I Pray</B> (from the album "El Norra Alila")<BR itxtNodeId="17"><BR itxtNodeId="16">* Documentary - <B itxtHarvested="0" itxtNodeId="15">"Vayehi Or"</B><BR itxtNodeId="14">* Videos - <B itxtHarvested="0" itxtNodeId="13">"Sapari"</B>, <B itxtHarvested="0" itxtNodeId="12">"Norra El Norra"</B>, <B itxtHarvested="0" itxtNodeId="11">"Ocean Land"</B><BR itxtNodeId="10">* Slideshow/Band Photos</P>
+Автор: Headcrusher
+
+### 08.07.2016 news Совместный проект ORPHANED LAND и AMASEFFER
+
+<p>26 августа на<strong> Century Media</strong> выходит совместный альбом<strong> ORPHANED LAND</strong> и <strong>AMASEFFER "Kna'an"</strong>. Ниже можно услышать сэмпл "<strong>The Holy Land Of Kna'an</strong>".</p><p>Альбом является саундтреком к проекту театра немецкого города Мемминген. Новая пьеса, написанная Walter Wayers, повествует об Аврааме и земле Ханаанской.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/r3muysKTuwI" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.07.2016 news Joint album of ORPHANED LAND and AMASEFFER
+
+<p>Joint album of<strong> ORPHANED LAND</strong> and <strong>AMASEFFER "Kna'an" </strong>will be released on August, 26 through <strong>Century Media</strong>. Below you can hear a sample of "<strong>The Holy Land Of Kna'an</strong>."</p><p>The album is a soundtrack to the project of the theatre of the German city Memmingen. A new play written by<strong> Walter Wayers</strong>, tells the story of Abraham and the land of Kna'an.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/r3muysKTuwI" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Orphaned Land

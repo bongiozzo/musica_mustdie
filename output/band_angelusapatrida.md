@@ -67,6 +67,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.01.2015 news Видео-клип ANGELUS APATRIDA
+
+<P>Новый альбом испанских трешеров <STRONG>ANGELUS APATRIDA "Hidden Evolution"</STRONG> выходит 16 января на <STRONG>Century Media</STRONG>. Видео на песню с этого альбома "<STRONG>End Man</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/y0KX624HvJ8" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

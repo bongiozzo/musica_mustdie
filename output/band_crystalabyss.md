@@ -49,6 +49,364 @@ Perfumer - abyss heartbeat
 * C группой "Divizion S-187" Alex
 * C группой "Radigost" Valafar
 
+## Публикации
+
+### 22.07.2000 articles Crystal Abyss: мы никогда не были сторонниками занудства, примитивности и тривиальности
+
+<p> На вопросы ответил Sarquanaar, вокалист\гитарист московской black-metal группы Crystal Abyss</p>
+<p></p>
+<p> - Как образовалась группа и кто стоит у ее истоков?</p>
+<p> Группу основали мы с гитаристом Тимофеем в мае 1998 года. У Тимофея тогда были заготовки на пару вещей и сначала мы занимались тем, что развивали их. Дело в том, что у него до этого была другая команда, в репертуаре которой были "прадеды" наших First Born Snow и Winds of Golden Mountain Paths...</p>
+<p> - Насколько мне известно Ваш проект тогда носил название MORE SORROWFUL THAN NIGHT, а затем был перименован в WINGS OF THE CRYSTAL ABYSS, а потом в просто CRYSTAL ABYSS. С чем это было связано?</p>
+<p> Если быть совсем точным, то проект сначала не носил вообще никакого названия. Потом, когда в этом возникла необходимость мы действительно назвались MORE SORROWFUL THAN NIGHT. Сначала название вообще предполагалось как "...AND DAY BECOMES MORE SORROWFUL THAN NIGHT" (была у нас страсть к длинным названиям). "... AND DAY BECOMES MORE SORROWFUL THAN NIGHT" - строчка из стохотворения Бодлера, переведенная на английский язык. Поскольку это название было слишком длинным, то мы его сократили, а с сокращением потерялся и смысл, т.е. если полное название нам подходило, то сокращенное - уже нет... Название же WINGS OF THE CRYSTAL ABYSS я придумал намного позже и оно с одной стороны было более поэтическим, чем MORE SORROWFUL THAN NIGHT, с другой - несло в себе более законченный смысл, а с третьей, как мне казалось, больше нам подходило, хотя Тимофею, например, так не казалось... Смена названия на нынешнее было обусловлено тем, что WINGS OF THE CRYSTAL ABYSS также было отнюдь не коротким, а для тех кто не знает английский - вообще непроизносимой белебердой. В большинстве случаев когда меня спрашивали название моей команды за ответом следовал вопрос "Как, как ?" Что же касается последствий смены названия, то ни в смысловой нагрузке ни в поэтичности мы не потеряли, т.к. CRYSTAL ABYSS, являясь с одной стороны более простым образом, было куда более емким с другой.</p>
+<p> - Остальные члены группы присоединились к Вам позже ?</p>
+<p> Да, где-то в сентябре 1998 г., притом это были только басист и барабанщик. До этого момента мы играли вдвоем.</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1933.jpg" hspace=5 vspace=5 align=right></p>
+<p> - Расскажи, что из себя представляла Ваша музыка в то время? Какие изменения (в плане звучания) произошли с тех пор?</p>
+<p> Тогда музыка представляла из себя Блэк без клавишных. Наиболее наглядно ее можно себе представить, если убрать клавишные из First Born Snow. Что касается изменений то они - кардинальные: мы перешли к достаточно сложной сруктуре композиций (обычно по 8-12 риффов в вещи), стали активно гармонизировать гитары, использовать не то чтоб тривиальные клавишные...</p>
+<p> - Очевидно была серьезная причина для таких перемен?...</p>
+<p> В основном, причиной явилось то, что со временем мы выросли как музыканты и сумели найти исполнителей достойного уровня, потому как мы с самого начала не были сторонниками занудства, примитивности и тривиальности.</p>
+<p> - Вернемся из прошлого в настоящее. Как обстоят дела в группе? Чем Вы сейчас занимаетесь и какие планы на ближайшее будущее?</p>
+<p> Сейчас мы ликвидируем последствия смены состава, а также работаем над новой программой. Осенью планируем пойти в студию и записать там несколько старых и несколько новых вещей... далее планируем дозаписать оставшийся материал и выпустить два альбома - один из старых вещей (с рабочим названием Sageness Fallen) другой - из тех, которые сейчас в процессе создания.</p>
+<p> - Вы уже определились с лейблом, на котором хотели бы выпустить эти альбомы, или пока еще занимаетесь его поисками?</p>
+<p> Пока что мы собираемся выпустить оба альбома на отечественном лейбле H-blast, но это еще не окончательное решение.</p>
+<p> - Часто ли Вам приходится выступать живьем? Как вообще Вы относитесь к концертным выступлениям?</p>
+<p> Мы выступаем приблизительно раз в месяц, а пока у нас нет широко распространенных релизов, концерты для нас - единственный способ заявить о себе.</p>
+<p> - А как часто к Вам поступают предложения от организаторов концертов? Бывают случаи, когда вы отказываетесь выступать?</p>
+<p> За последний год нам предлагали участвовать во всех концертах так или иначе имеющих отношение к Блэку. Ответ на вопрос об отказе, я думаю, очевиден...</p>
+<p> - Можешь рассказать поподробнее о Вашем последнем выступлении?</p>
+<p> Наше последнее на данный момент выступление проходило 15-го апреля 2000-го года в клубе "Спутник" в Москве. На этом концерте мы были заявлены как хэдлайнеры и отыграли полную программу + ковер Sear Bliss "1100 years ago".</p>
+<p> - Корпспейнт - это неотъемлимая часть Вашего сценического имиджа?</p>
+<p> Мое твердое убеждение, что это - НЕОТЪЕМЛЕМАЯ часть Блэка. Правда у нас были выступления и без него, но это явилось поводом сильных конфликтов в группе... далее, я надеюсь, это будет неотъемлемой частью и нашего имиджа...</p>
+<p> - Но сейчас всё больше групп отказывается от использования грима... Не будем ходить далеко: взять хотябы тех же Limbonic Art.... Что скажешь на этот счет?</p>
+<p> А Limbonic Art это что - эталон ? То, что люди гробят свое собственное детище, не делает им чести.</p>
+<p> - Да, я согласен с тобой насчет того, что LA гробят сами себя. Но можно привести и много других примеров...</p>
+<p> Ты меня не понял, я не говорю о музыке LA конкретно или о чьей-либо еще. Black metal - это культура, в которой музыка является лишь одной из составляющих, и то, что люди гробят Блэк как культуру, не делает им чести. Многие оправдывают это расширением рамок жанра, но ведь нужно знать меру. А так получается примерно то же самое, что расширять рамки славянского язычества путем добавления туда как бога иисуса христа.</p>
+<p> - Хотелось бы узнать, как проходит творческий процесс, т.е. процесс сочинения музыки и текстов? Кто в нем участвует?</p>
+<p> Часто в группах получается так, что музыку пишет кто-то один (двое), а остальные являются просто исполнителями. У нас такое не принято, и в написании музыки принимает участие каждый член группы, несмотра на то, что "каркас" композиции обычно исходит от гитаристов. Тексты пишу я, хотя у нас есть один текст написанный Тимофеем - "Visions of the Past".</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1934.jpg" hspace=5 vspace=5 align=left></p>
+<p> - Как получилось, что группу покинул один из ее основателей (я имею ввиду уход Тимофея)? Кто впоследствии заменил его?</p>
+<p> Тимофей считал многие вещи которые в моем понимании неотъемлемы от Блэка всего лишь глупыми заморочками... После того как в группе не стало Тимофея его заменил Alex из группы Ashen Light (который, кстати говоря, из Ashen Light никуда не уходил), совмещая на данный момент работу в двух коллективах.</p>
+<p> - С чем связаны задержки с выпуском дебютного альбома? Насколько я понимаю - у Вас есть достаточно много материала, чтобы издать его на CD(MC)...</p>
+<p> Тут сказать сложно, что является основной причиной. С однои стороны мы сами никигда не старались сильно спешить - "семь раз отмерь", что называется... С другой - студийная работа обычно подчиняется закону "либо дешево либо хорошо", а халтуру мы делать не хотим, так как считаем, что если результат и должен кого устраивать, то в первую очередь нас. Всему свое время, но специально тянуть мы тоже естественно не будем. Осенью собираемся отправиться в студию.</p>
+<p> - Какие темы ты затрагиваешь в своих текстах? Что является твоими основными источниками вдохновения?</p>
+<p> Во-первых, надо отметить, что я не люблю тексты типа "Пришел. Увидел. Победил."... люблю поэтичность и атмосферу в текстах, поэтому при написании текстов редко пишу что-либо прямо - обычно пользуюсь отвлеченными образами и эпитетами. Темы - в первую очередь собственный внутренний мир, место его в жизни - обычно с этой точки зрения недопустимость христианства... Еще - природа, средневековье и т.д., но все опять же в выражении негативного отношения к христианству.</p>
+<p> - Что ты можешь сказать об отечественной блэковой сцене?</p>
+<p> Отечественной блэковой сцены сейчас почти не существует, так как пока еще не появилось то, что можно было бы так назвать. А если люди будут превращать Блэк непонятно во что, прикрываясь Limbonic Art'ами, Covenant'ами и иже с ними, то никогда и не появится.</p>
+<p> - А можешь выделить несколько, на твой взгляд, особенно таллантливых наших коллективов?</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1935.jpg" hspace=5 vspace=5 align=right></p>
+<p> На самом деле "идеалов" на нашей сцене я пока не знаю. А так... Очень мне нравится группа Charon из Наро-Фоминска (несмотря на их дикое сходство с Cradle of Filth), Azeroth, Ashen Light (хотя я бы и не назвал их творчество блэком - скорее pagan-metal с элементами блэка), особенно глядя на их успехи.</p>
+<p> - Как проводишь свободное время ты и остальные участники группы? Есть ли у тебя какие-либо увлечения кроме музыки?</p>
+<p> В свободное время почти ничем кроме муэыки и тем, что с ней связано не занимаюсь. Люблю ездить в европейские страны и посещать памятники средневековой архитектуры, еще люблю плавать на лодке, стрелять из лука, арбалета и стрелкового оружия, а также пить пиво и играть в биллиард и кегли. Насчет свободного времени остальных ничего не могу сказать, единственное, разве, что ни у меня ни у них его почти нет.</p>
+<p> - Личный вопрос: существуют ли принципы, которыми ты никогда не поступился бы?</p>
+<p> Если те или иные вещи являются для меня принципами, то я ими изо всех сил стараюсь не поступаться, независимо от того к какой области они относятся...</p>
+<p> - Ты чего-нибудь боишься в этой жизни?</p>
+<p> Все чего-то боятся.</p>
+<p> - Как относятся родители к твоему увлечению подобной музыкой?</p>
+<p> Мои родители очень этому рады и всячески поддерживают меня по мере возможности.</p>
+<p> - Не могу удержаться, чтобы не спросить про происхождение твоего оригинального имени :)</p>
+<p> Может быть ты слышал, что у некоторых древних народов считалось, что имя человека является созвучием выражающим его сущность. Так вот природа слова Sarquanaar является именно такой: для меня этот набор звуков выражает меня. Более того, подобное у нас встречается не только в моем имени - если внимательно послушать как звучит словосочетание Crystal Abyss (в слове "abyss" по правилам английского языка ударение на второй слог, а то многие путают), то оно как бы звенит из-за дважды всречающегося ударного "исс", что соответствует буквальному пониманию перевода.</p>
+<p> - Ну, и несколько слов напоследок, для наших читателей...</p>
+<p> Думайте головой, причем желательно своей собственной и не давайте окружающим вас догмам и скептицизму сбивать вас с толку.</p>
+<p> - Sarquanaar, спасибо тебе за интересную беседу. Будем с нетерпением ждать выхода Вашего дебютного альбома. Удачи!</p>
+<p></p>
+<p></p>
+<p> Nybras</p>
+
+Автор: Nybras
+
+### 29.07.2000 articles Crystal Abyss: We never appreciated monotony, primitivness and triviality.
+
+<p> The questions were answered by Sarquanaar - vocalist/guitarist of Moscow Black-metal band Crystal Abyss.</p>
+<p></p>
+<p> - How was the band formed and who was behind its foundation?</p>
+<p> We formed the band together with guitarist Timophey in May 1998. He had ideas for a couple of songs and first we developed them. The thing was that he had played in another band before which had "predecestors" of our FIRST BORN SNOW and VISIONS OF THE PAST in its repertoire...</p>
+<p> - As far as I know Your project was called MORE SORROWFUL THAN NIGHT that time and some time later was renamed to WINGS OF THE CRYSTAL ABYSS and then to just CRYSTAL ABYSS. What was the reason?</p>
+<p> To say sincerely the project wasn't named at all for some time. Later, as it became necessary we really named ourselves MORE SORROWFUL THAN NIGHT. At the very beginning we supposed the name to be "...AND DAY BECOMES MORE SORROWFUL THAN NIGHT" (we liked long names). "...AND DAY BECOMES MORE SORROWFUL THAN NIGHT" is a quotation from Baudlaire's poem translated into English. As this name was too long we shortened it and with shortening lost some meaning of it and as the full name fitted us the shortened one didn't... As far as WINGS OF THE CRYSTAL ABYSS is concerned it was contrived by me much later and being more poetic than MORE SORROWFUL THAN NIGHT from one side it had more so to say "complete" meaning from the other. Also as it seemed to me this one was fitting us much better than our old name, though Timophey didn't think so... The reason for changing the name to the present one appeared in the fact that WINGS OF THE CRYSTAL ABYSS was not so short and for those who didn't know English it seemed entirely unpronouncible. In most cases when I was asked the name of my band the answer was followed by "What ?". As for the consequences of this change, CRYSTAL ABYSS was neither less sensible nor less poetic being more simple and much more capacitive image simultaniously.</p>
+<p> - The rest band members joined You later...</p>
+<p> Yeah, in September 1998 and they were only bassist and drummer. Until that moment there were only two of us.</p>
+<p> <img src="/images/articles/2000.07/articles_1988.jpg" hspace=5 vspace=5 align=right></p>
+<p> - Describe the music You played that time. What changes (in sound) were made till now?</p>
+<p> In that period of time our music was guitar-based Black metal without any keys. To understand it more clearly imagine First Born Snow without all keyboards parts. As far as changes are concerned - they are cardianal: now the structure of our songs is quite complex (usually 8-12 riffs per song), we began to harmonize guitars actively and started to use key parts that can't be called trivial.</p>
+<p> - Obviously You had a serious reason for such changes...</p>
+<p> The basic reason was in the fact that with some time passing by we became better musicians than we were at the very beginning and also managed to find nusicians of corresponding level for we never appreciated monotony, primitivness and triviality.</p>
+<p> - Let's return from past to present. How is the band now? What are You doing at the present moment and what are Your plans for the nearby future?</p>
+<p> Now we are passing through the consequences of the line-up changes and also working on a new program. We are planning to go to studio for recording some new and some old songs this autumn... then we are planning to record the rest of the material and release two albums - one consisting of our old songs (with preliminary title SAGENESS FALLEN) and another consisting of the new ones.</p>
+<p> - Have you chosen any label for releasing these albums or it's still a question?</p>
+<p> At the moment we are planning to release both albums on the local label H-Blast, but as we are not signed yet we will consider all the offers.</p>
+<p> - How often do you play live ? What is your attitude to live performances?</p>
+<p> We play live approximately once a month and as we don't have any widespread releases yet, live performances are the only way to show ourselves for us.</p>
+<p> - And how often are you invited to play live? Do you have cases when you refuse to play? During the last year we were offered to take part in all local shows featuring Black metal bands. I think that the answer to the question about refusals is clear...</p>
+<p> - What was you last performance?</p>
+<p> The performance that was our last one took part on 15th of April 2000 in Moscow club "Sputnik". On this concert we played as headliners and performed our full program + cover of Sear Bliss's "1100 Years Ago"</p>
+<p> <img src="/images/articles/2000.07/articles_1989.jpg" hspace=5 vspace=5 align=left></p>
+<p> - Is corpsepaint inalienable part of Your stage image?</p>
+<p> I'm 100% sure that copsepaint is INALIENABLE part of Black metal at all. And though we had some shows without it, this fact was the reason of some serious disagreements in the band... I hope that these problems are left behind now and in the future corpsepaint will be inalienable part of our image.</p>
+<p> - But nowadays many band cease using such make-up... Taking LIMBONIC ART for example... What can you say about that?</p>
+<p> And should everyone be like LIMBONIC ART? They are making shit by destroying their own creation.</p>
+<p> - Yeah, I agree with you that LA are destroying themselves. But we can take many other examples...</p>
+<p> You haven't understood me. I didn't mean music of LA or someone else. Black metal is a culture containing music as one of the parts and people are making shit by destroying this culture. Many of them are excusing it by broadening the limits of the genre but it's necessary to know where to stop. For we can get something like broadening limits of paganism by adding jesus christ as one of the gods there.</p>
+<p> - Would you describe the composing process, I mean the process of composing music and lyrics. Who takes part in it?</p>
+<p> In a considerable number of bands music is composed by one person (maybe two) while other band members simply play the stuff "main songwriter" composes. We don't accept this having all the band involved into music composing, though "carcass" of the composition usually goes from the guitarists. As far as our lyrics are concerned I write them myself, though we have one text written by Timophey - "Visions of the Past".</p>
+<p> - How could it happen that one of the founders left the band (I mean Timophey)? Who replaced him after his departure?</p>
+<p> Timophey considered many things that from my opinion are inalienalble part of Black metal to be stupid pretending. After his departure he was replaced by Alex from the band ASHEN LIGHT playing at the moment in two bands.</p>
+<p> - What's the reason of your debut album release? As far as I know you have enough material to release it on CD(MC)...</p>
+<p> It's hard to say what's the main reason. From one side we never liked to hurry up the things, from the other - studio work usually goes under principle "you pay much money or get bad quality" and we think that we are the first to be satisfied by our work and all others are the next... But we surely won't beat about the bush - this autumn we are going to studio.</p>
+<p> - What do you describe in your lyrics? What is your source of inspiration?</p>
+<p> I don't like lyrics like "Born. Alive. Dead."... I like lyrics to be atmospheric and poetic so while writing them I rarely write anything directly - usually I use metaphors and abstract images. Themes - fistly my inner world, it's place in life, usually intolerance to christianity from this point of view. Then - nature, medieval times etc., but everything to show negative attitude to christianity.</p>
+<p> <img src="/images/articles/2000.07/articles_1990.jpg" hspace=5 vspace=5 align=right></p>
+<p> - What can you say about russian Black metal scene?</p>
+<p> Russian Black metal scene doesn't exist for now, because something that could be called so haven't appeared yet. And if people will keep "broadening the limits" of Black metal, covering themseleves with "LIMBONIC ART"s, "COVENANT"s etc., Black metal scene here won't appear at all.</p>
+<p> - Can you name some russian bands that are talented from you point of view?</p>
+<p> Yet I don't know "ideals" on our scene. But if to be less pretending... I like Charon form Naro-Fominsk very much (in spite of their terrific similarity to Cradle of Filth), Azeroth, Ashen Light, especailly looking on their successes (though I won't call their art Black metal - it's more of pagan-metal with elements of Black).</p>
+<p> - How are you and other band members spending free time? Do you have any hobbies besides music?</p>
+<p> I dedicate most of my free time to music. Also I like to visit european countries to see monuments of medieval architecture, boating, shooting, drinking beer and playing pool and bowling. As far as free time of the other band members is concerned I can't say anything clear. The only thing I can add that neither me nor they have plenty of it.</p>
+<p> - Personal question: do you have any principles that you never renounce?</p>
+<p> If one or another thing is a principle for me I do my best not to renounce it and it doesn't matter what aspect of life or something it is connceted to.</p>
+<p> - Are you afraid of anything in this life ?</p>
+<p> Everyone is afraid of something.</p>
+<p> - What is your parents' opinion cencerning your connection to such a music?</p>
+<p> They are very glad of this fact and are supporting me when they can.</p>
+<p> - Can't help asking about the meaning of your original name...</p>
+<p> I think you've heard that some ancient people believed that name of a man is a set of sounds expressing his essence. The nature of the word Sarquanaar is the same: for me this set of sounds expresses myself. To say more - someting like that you can see in the name of our band - if to listen carefully to its sounding you can notice that it's ringing because of striking "ys" repeated twice, which corresponds its verbal meaning.</p>
+<p> - And some words for our readers...</p>
+<p> Think with heads, and perferably with your one and don't let surrounding dogmas and scepticism confuse you.</p>
+<p> - Thanks for this interesting conversation, Sarquanaar. We'll be waiting for the release of Your debut album. Good luck!</p>
+<p></p>
+<p> Nybras</p>
+<p> (translated by Sarquanaar)</p>
+<p> this interview also available at http://www.crystalabyss.newmail.ru/</p>
+
+Автор: Nybras
+
+### 07.10.2000 bios Crystal Abyss
+
+<p> Группа CRYSTAL ABYSS была основана в мае 1998 года гитаристами Тимофеем и Sarquanaar'ом. C октября 1998-го по февраль 1999-го проект носил название MORE SORROWFUL THAN NIGHT, с февраля по октябрь 1999-го - WINGS OF THE CRYSTAL ABYSS, и только в октябре 1999-го получил название CRYSTAL ABYSS. В том же октябре 1999-го было записано первое demo группы, а 27 ноября 1999-го года состоялся первый концерт CRYSTAL ABYSS. Стилистика группы, в принципе, попадает под определение "Black metal с активным использованием клавишных".</p>
+<p> Изменения состава :</p>
+<p> - Апрель 1999-го - в группе появляется клавишница Lamia, что сильно отразилось на стиле группы ;</p>
+<p> - Июль 1999-го - в группу был взят басист Asterius. Тем самым было завершено формирование первого "засветившегося" состава группы ;</p>
+<p> - Май 1999-го - по ряду причин группу покидает гитарист Тимофей, чье место занял Alex ( также гитарист группы ASHEN LIGHT ).</p>
+<p> - Осень 2000-го в качестве гитариста в группу был взят Valafar из группы Radigost</p>
+
+Автор: Nybras
+
+### 10.10.2000 news Грядет Black-Metal Festival
+
+<p> 15-го октября, в московском клубе "Распутник" (к-т "Спутник") состоится блэк-метал фестиваль "HELLFIRE" в поддержку одноименного аудиосборника. В нём примут участие группы Crystal Abyss, Embrace of Night, Midgard, Нахема, Stigmatic Chorus (так теперь называется группа Charon) и специальные гости CorpseGrinder. CDM Records обещает устроить кучу разных конкурсов, в качестве призов - кассеты и диски. Интервью с группой Crystal Abyss вы можете прочитать в разделе Articles. Начало в 18-00. Цена билета по флаеру - 50 рублей. Остальные подробности - в нашей рассылке новостей.</p>
+
+Автор: Nybras
+
+### 22.12.2000 reviews Музыка древних воинов
+
+<p>Музыка древних воинов. Воинственно-агрессивная и злая как у Rossomahaar и торжественно-мелодичная как у Radigost. Но при этом оригинальная и ни на кого не похожая. Может этому способствовал особый настрой звука. Немного синтетический звук гитар создает особую плотную звуковую стену. Неплохой шипящий вокал, прекрасные мелодии, сбивающие ритм акустические вставочки, переливающиеся клавишные на заднем фоне. Музыка поднимает дух и призывает на великие дела. В ней больше славянского начала, чем северного этим она более близка Nocturnal Mortum (но не в музыкальном плане). Правда трудно судить по двум песням, но если остальные вещи не слабее, то полноценный альбом Crystal Abyss будет посильнее последних творений украинцев. Естественно все это я оцениваю с позиции простого слушателя. Музыканты здесь найдут некоторое количество недочетов, но техника у ребят явно неслабая. Есть даже эксперименты с чистым вокалом (очень даже к месту). Все это радует. Побольше бы таких групп на российском black-поприще. А пока с нетерпением буду ждать готовящегося к выходу мини-альбома группы.</p>
+
+Автор: Dimas
+
+### 04.02.2001 news Black metal fest
+
+<p> 4-го февраля 2001 года(воскресенье) к.т. "Спутник" и клуб "Распутникъ", а также Brutal DJ Productions представляют Black metal fest, посвященный празднику CANDLEMASS(сам праздник 1-го февраля) с участием: CRYSTAL ABYSS, НАХЕМА (г.Коломна), EMBRACE OF NIGHT, TORN (г. Рязань), MIDGARD, РЕМЕСЛО ТЕНЕЙ <br> Начало в 17:30. Вход без флаера 60р, по флаеру 50р, для дам 20р. Адрес ул. Солдатская д.15. Проезд: м."Авиамоторная" далее трамваями 43, 46 или 50 до остановки "к.т. Спутник"(3 остановки).Телефон для справок: 361-2979</p>
+<p>Поддержка концерта: J-Design и musica.mustdie.ru.</p>
+
+Автор: Nybras
+
+### 14.02.2001 news Новости КТР
+
+<p> Уточненный состав фестиваля "Железный Марш - 9" выглядит так: "Коррозия Металла", "Merlin", "Шмели", "Крюгер", "Нахема", "Crystal Abyss", "Безумные Усилия" и "Rossomahaar".</p>
+<p> Фестиваль состоится 24 февраля в 18.00 в клубе "Точка" (м. "Улица 1905 года", Звенигородское шоссе, 4). Стоимость билетов в предварительной продаже 70 р., в день концерта 100 р. Иногородние фэны, которые приедут в день мероприятия, по заявлению и предъявлению паспорта могут приобрести билет по 70 р. в магазине "Железный Марш" (м."Петровско-Разумовская", Дмитровское шоссе, д. 46, к. 1, тел.488-69-07) до 16.00. Официальные фэны группы "Коррозия Металла" и члены КТР получат билеты бесплатно в день мероприятия в магазине "Железный Марш" до 16.00 по предъявлению заявления, удостоверения и паспорта.</p>
+<p> На концерте будет продаваться продукция КТР.</p>
+<p> В БАРАХ: прекрасные недорогие напитки: пиво, водка, джин и тающие во рту закуски!</p>
+<p></p>
+
+Автор: Dimas
+
+### 15.04.2001 news АПОКАЛИПСИС - 6
+
+<p>9 мая 2001 года Brutal DJ Productions представляют Dark-metal fest АПОКАЛИПСИС - 6 с участием групп DEMENTOR (Словакия), SUFFOCATE (Словакия), EVTHANASIA (Беларусь), CORPSEGRINDER (Тульская область) и CRYSTALL ABYSS (Москва). Начало концерта в 17:30. Место действия - кинотеатр "Спутник" (клуб "Распутник"). Цена билета в предварительной продаже в рок-магазинах - 100 рублей. В день концерта по флаеру - 120 рублей, без него - 150 рублей. Адрес клуба: ул. Солдатская, 15. Проезд от станции метро "Авиамоторная" на трамваях 43, 46 и 50 до остановки "кинотеатр "Спутник".</p>
+
+Автор: Dimas
+
+### 23.05.2001 news Презентация альбома Crystal Abyss
+
+<p> 3 июня 2001 года (воскресенье) кинотеатр БАЛТИКА и клую Ю-ТУ представляют презентацию новейшего альбома группы CRYSTAL ABYSS под названием "Sageness Fallen". Кроме CRYSTAL ABYSS в шоу принимают участие группы RADIGOST, ASHEN LIGHT, MARTIAL ART и MIND ECLIPSE.</p>
+<p> Вход по флаеру - 60 рублей. Первым 100 вошедшим по билету людям будут вручены БЕСПЛАТНЫЕ кассеты с новым альбомом.</p>
+<p> Начало концерта в 19:00. Адрес клуба - метро Сходненская.</p>
+<p></p>
+
+Автор: Dimas
+
+### 26.10.2001 news Новости от CRYSTAL ABYSS
+
+<p>В московской группе Crystal Abyss произошли изменения состава: группу покинул басист Asterius, чье место занял Tribolosus. Сейчас группа ведет активную концертную деятельность по городам России, а также готовит две композиции для дополнительной записи на "Sageness Fallen", что позволит выпустить дебютный EP уже в качестве полноформатного альбома</p>
+
+Автор: Dimas
+
+### 02.11.2001 news Грандиозная metal-акция
+
+<p><span style="background:#4d0000">7-го ноября 2001 года</span> Black Oracle Productions и R-Club представляют грандиозную metal-акцию "...in Darkness" с участием <a href=http://crystalabyss.musica.mustdie.ru/>CRYSTAL&nbsp;ABYSS</a> (black metal), <a href=http://radigost.musica.mustdie.ru/>RADIGOST</a> (atmospheric pagan-black metal), ASHEN LIGHT (black metal), MISTERIA (black metal), а также специальных гостей SEDUCER'S EMBRACE (melodic death metal). Начало в 18:00. Вход по флаеру 60&nbsp;р, без - 70&nbsp;р. Адрес клуба: 4-й Рощинский проезд д. 19/21. Проезд до ст.м. "Тульская", далее пешком или до ст.м. "Шаболовская", далее на трамвае 26 до остановки "Духовской переулок".</p>
+<P> Приходите, ожидаются подарки и сюрпризы.<BR> Концерт проходит при поддержке MUSICA.MUSTDIE.RU и BLACK TEARS OF DEATH PRODUCTIONS (Италия).</>
+
+Автор: Dimas
+
+### 21.11.2001 news Концерт в Р-Клубе 25 ноября
+
+<p>25 ноября в Р-клубе (г. Москва) пройдёт концерт с участием групп: Wishmaster, Blut Formicarium, Crystal Abyss, Seducer's Embrace, Fleshbomb. Вход с флаером - 60 руб., без него - 70 руб. Не пропустите.</p>
+
+Автор: Morsus
+
+### 11.01.2002 news &quot;Chapel of Evil&quot; Fest
+
+<p>26-го января 2002 года (суббота) Black Oracle Productions и R-club представляют<BR> "Chapel of Evil" Fest с участием групп:<BR> <I><B>CRYSTAL ABYSS <BR> ASHEN LIGHT <BR> RADIGOST <BR> SEDUCER'S EMBRACE <BR> BUTTERFLY TEMPLE <BR> CAVANDISH(г.Тула)</B></I><BR> Каждый пришедший на концерт имеет шанс получить в подарок записи и атрибутику участвующих в концерте групп. Вход по флаеру 70р, без него - 80р.<BR> Адрес клуба: г.Москва, 4-й Рощинский проезд д.19. <BR> Проезд до ст.м."Тульская", далее пешком или до ст.м. "Шаболовская", далее на трамвае 26 до остановки "Духовской переулок".</p>
+<P>Концерт проводится при поддержке BLACK TEARS OF DEATH(Label/Mailorder, Италия) и MUSICA MUSTDIE PRODUCTIONS.</>
+
+Автор: Dimas
+
+### 04.02.2002 news BLACK TEARS OF DEATH vol.VII
+
+<p>Итальянский лейбл BLACK TEARS OF DEATH выпустил сборник "BLACK TEARS OF DEATH vol.VII" с участием российской группы CRYSTAL ABYSS, которая имеет контракт с этим лэйблом. На сборник вошла композиция группы под названием "First Born Snow". Сборник вышел в формате digipack на двух CD. Также в записи сборника приняли участие следующие группы: THY WINTER KINGDOM, SACRADIS, DISGUISE, MISOS, ENSOPH, ANDARK, CROMLECH, NYARLATHOTEP, THE SECOND COMING, , NEKROGOD, DOROTHA, SEKHMET, OSCURA VEEMENZA, SPITE EXTREME WING, FROSTMOON ECLIPSE, MOURN IN SILENCE, ANCESTRAL MAJESTY, THE TRUE ENDLESS, ANCESTRAL MYTH, BURIAL PLACE, GHOUL, HEGEMON, SKOLL, OCCASUS, KOROZY, BELENOS, BERGFOLK.</p>
+
+Автор: Dimas
+
+### 05.02.2002 news BLACK TEARS OF DEATH vol. VII
+
+<p>Italian label BLACK TEARS OF DEATH has issued the mixed " BLACK TEARS OF DEATH vol. VII " including of Russian group CRYSTAL ABYSS. The mixed has left in the format digipack on two CD. Also following groups have shared in a record of the mixed: THY WINTER KINGDOM, SACRADIS, DISGUISE, MISOS, ENSOPH, ANDARK, CROMLECH, NYARLATHOTEP, THE SECOND COMING, NEKROGOD, DOROTHA, SEKHMET, OSCURA VEEMENZA, SPITE EXTREME WING, FROSTMOON ECLIPSE, MOURN IN SILENCE, ANCESTRAL MAJESTY, THE TRUE ENDLESS, ANCESTRAL MYTH, BURIAL PLACE, GHOUL, HEGEMON, SKOLL, OCCASUS, KOROZY, BELENOS, BERGFOLK</p>
+
+Автор: Dimas
+
+### 12.03.2002 news Новый альбом группы Butterfly Temple
+
+<p> <B>IROND RECORDS </B>представляет: </p>
+<p> <IMG SRC="/images/news_rus/2002.03/2523.jpg" ALT="сны" width="200" height="200" hspace="15" vspace="10" border="0" align="left" /> 13-го апреля 2002 года в Р-клубе состоится презентация альбома "СНЫ СЕВЕРНОГО МОРЯ" группы <I><A HREF="http://musica.mustdie.ru/ru/band/butterfly_temple/">BUTTERFLY TEMPLE </A></I>с участием <I><A HREF="http://musica.mustdie.ru/ru/band/crystal_abyss/">CRYSTAL ABYSS</A>, <A HREF="http://musica.mustdie.ru/ru/band/ashen_light/">ASHEN LIGHT</A>, <A HREF="http://musica.mustdie.ru/ru/band/atra_mustum/">ATRA MUSTUM </A></I> и <I><B>ETERNAL SICK</B></I> (г. Троицк). </p>
+<p> Начало концерта &ndash; в 18:00. <BR> Стоимость билета по флаеру &ndash; 70р., без &ndash; 80р. </p>
+<p> Первые посетители концерта получат В ПОДАРОК CD с новым альбомом.<BR> </p>
+<p> Адрес клуба: 4-й Рощинский проезд д.19. <BR> Проезд: до ст.м. "Тульская" &ndash; пешком, до ст.м. Шаболовская &ndash; тр-й №26 до остановки "Духовской переулок". </p>
+<p> Информационная поддержка &ndash; <A HREF="http://musica.mustdie.ru">MUSICA.MUSTDIE.RU</A></p>
+
+Автор: Dimas
+
+### 26.04.2002 news Night Of Agony
+
+<p>В ночь с 27 на 28 апреля 2002 года в Р-клубе намечается грандиозный ночной black-death fest NIGHT OF AGONY. В фестивале принимают участие:</p>
+<P> <I>SEDUCERS EMBRACE </I>(melodic death)<BR> <I>CRYSTALL ABYSS </I>(sympho-black)<br> <I>MORTEM</I> (death-grind)<br> <I>ASHEN LIGHT </I>(black)<br> <I>FLESHBOMB</I> (death-gore)<br> <I>ATRA MUSTUM </I>(sympho-black-death)<br> <I>SINFUL</I> (sympho-black)<br> <I>CORPSEGRINDER</I> (brutal death)<br> <I>AD ASTRA </I>(sympho-black-death)</>
+<p> Начало действия в 23:00<br> В программе - профессиональный стриптиз, ведущие, конкурсы, призы, а также презентация нового пива!!!<br> Вход по флаеру - 80 рублей, без него - 100 рублей<br> Адрес: 4-й Рощинский пр-д, 19/21.</p>
+
+Автор: Dimas
+
+### 12.07.2002 news MassaBrutto Radioshow #89, 12 Jul 2002
+
+<p>Special guest: Belobrickiy Vitaliy PSILOCYBE LARVAE (Russia) leader (email: vital_pslr@mail.ru)<BR><BR> Playlist:<BR><BR> 1. MANGLER - Risen From Mud (DAC Prods)<BR> 2. EVTHANAZIA - Overdose (Funeral Pyre Prods)<BR> 3. PSILOCYBE LARVAE - Yearning Spirit (Black Side Prods)<BR> 4. PSILOCYBE LARVAE - Stigmata (Black Side Prods)<BR> 5. PSILOCYBE LARVAE - The Mystery (Black Side Prods)<BR> 6. PSILOCYBE LARVAE - Raped Angels (Black Side Prods)<BR> 7. PSILOCYBE LARVAE - Burning Sunset (Black Side Prods)<BR> 8. CRYSTAL ABYSS - First Born Snow (band) <BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.07.2002 news MassaBrutto Radioshow #89, 12 Jul 2002
+
+<p>Гость программы: Белобрицкий Виталий лидер коллектива PSILOCYBE LARVAE (Выборг, Россия) email: vital_pslr@mail.ru <BR><BR> Playlist:<BR><BR> 1. MANGLER - Risen From Mud (DAC Prods)<BR> 2. EVTHANAZIA - Overdose (Funeral Pyre Prods)<BR> 3. PSILOCYBE LARVAE - Yearning Spirit (Black Side Prods)<BR> 4. PSILOCYBE LARVAE - Stigmata (Black Side Prods)<BR> 5. PSILOCYBE LARVAE - The Mystery (Black Side Prods)<BR> 6. PSILOCYBE LARVAE - Raped Angels (Black Side Prods)<BR> 7. PSILOCYBE LARVAE - Burning Sunset (Black Side Prods)<BR> 8. CRYSTAL ABYSS - First Born Snow (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.08.2002 news Сборник Hellfire-5 окончательно укомплектован
+
+<p>В виду большой длительности (2,5 часа) сборник выйдет в двух частях. <BR> Приблизительное время реализации: сентябрь-октябрь 2002 г.</p>
+<P> Трэк-лист:</>
+<P> Часть первая: "Russian Black Metal"</>
+<P> 1. ROSSOMAHAAR "Praising The Departure Of Spiritual Strength" (г. Москва) <BR> 2. CRYSTAL ABYSS "First Born Snow" (г. Москва) <BR> 3. WEEDS IN VOGUE "Witchcunt" (г. Москва) <BR> 4. MIND ECLIPSE "Martyr Of The Sky"(г. Ярославль) <BR> 5. STIGMATIC CHORUS "Казнь Изгнанницы" (г.Москва) <BR> 6. PAGAN REIGN "Смерть - Дар богов" (г. Тверь) <BR> 7. ASHEN LIGHT "Бесноватая" (г. Москва) <BR> 8. GROM "Hatred" (г.Щелково) <BR> 9. THERM.EYE.FLAME "Waking The Creatures" (г.Сочи) <BR> 10. DEVIL-MAY-CORE "Call Me When I Die" (г. Мичуринск) <BR> 11. RADIGOST "Year3000" (г. Зеленоград) <BR> 12. FUNERAL POETRY "Очи Мора" (г. Москва) <BR> 13. ENSHADE "Out Of Life" (г. Новосибирск) <BR> 14. KATAR "Paradigma Digitized" (г. Москва)</>
+<P> Часть вторая: "Slavonic Power"</>
+<P> 1. ROSSOMAHAAR "Crescent Moon (The Final Celebration)" (г. Москва ) <BR> 2. ATOL NERAT "Doors Of Perception" (г. Пермь) <BR> 3. MIND ECLIPSE "We Are Not Messiahs" (г. Ярославль) <BR> 4. THERM.EYE.FLAME "Threshold" (г.Сочи) <BR> 5. DEVIL-MAY-CORE "Darkness" (г. Мичуринск) <BR> 6. ENSHADE "Crying Soul" (г. Новосибирск) <BR> 7. FUNERAL POETRY (г. Москва ) <BR> 8. CAPITOLIUM "The Will And The Order" (г. Львов) <BR> 9. BLUT FORMICARIUM "Black Metal" (г. Москва ) <BR> 10. GOLDPREAK "Ушанаванне залатому Ярылу" (г. Витебск) <BR> 11. MARTIAL ART "Perverted Goat Messiah" (г. Ярославль)</>
+<P> Bonus track: ROSSOMAHAAR "Sacred War"</>
+
+Автор: Kai Mathias Stalhammar
+
+### 20.10.2002 news Презентация песен мертвецов
+
+<p>26-го октября 2002 года MORE HATE PRODUCTIONS представляет презентацию нового альбома "Песни мертвых" группы <B>ASHEN LIGHT</B>.</p>
+<p> Помимо самих виновников торжества в концерте примут участие группы:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3299.JPG" ALT="pho" width=285 height=205 hspace="15" vspace="5" border="1" align="left"> - <B>ROSSOMAHAAR</B><BR> - <B>BUTTERFLY TEMPLE</B><BR> - <B>CRYSTAL ABYSS</B><BR> - <B>CAVANDISH </B>(г.Тула).</p>
+<p> Начало концерта в 18:00. <BR> Вход по флаеру 100 рублей, без - 110 рублей. <BR> Первые посетители концерта получат в подарок CD с альбомом.</p>
+<p> Концерт состоится в московском клубе "Р-клуб" (4-й Рощинский проезд, д. 19). <BR> Проезд до станции метро "Тульская", далее 5 минут пешком или до станции метро "Шаболовская", далее на трамвае №26 до остановки "Духовской переулок".</p>
+<p> Поддержка презентации осуществляется BLACK ORACLE PRODUCTIONS, MUSICA.MUSTDIE.RU, METALKINGS.RU и шоу радио "Эхо Москвы", посвященным тяжелой музыке, "Хранитель Снов" (каждую неделю с 1 до 6 утра в ночь со среды на четверг на чаcтоте УКВ 73,82МГц и 91,2FM).</p>
+
+Автор: Dimas
+
+### 18.11.2002 news HELLFIRE - 5
+
+<p><IMG SRC="/images/news_rus/2002.11/3402.jpg" ALT="pho" width=224 height=250 hspace="15" vspace="5" border="1" align="left">В пятницу 22 ноября в клубе ЭСТАКАДА состоится презентация black metal сборника HELLFIRE vol. 5. В акции примут участие группы <I><B>ROSSOMAHAAR, CRYSTAL ABYSS, RADIGOST, GROM, MIND ECLIPSE, STIGMATIC CHORUS, WEEDS IN VOGUE, BLUT FORMICARIUM</B></I>. <BR> Начало концерта в 18:00. <BR> Цена билета в предварительной продаже - 100 рублей.<BR> В день концерта - 150 рублей, по флаеру - 120 рублей.<BR> Билеты продаются в кассе клуба, рок-галерее "Зиг-Заг" и рок-магазине "У дяди Бори".<BR> Адрес клуба: Рязанский проспект, д. 39, ДК 40-летия Октября <BR> Проезд: м. Марксистская, далее авт. 51, тролл. 63 или м.такси 63, или м. Рязанский проспект, далее авт. 169, 143, 29, 160, 725, тролл. 63, или м. Текстильщики, далее авт. 29, 160, 725, тролл. 63 или м.такси 63 до остановки "Ул. Стахановская" <BR> Информационная поддержка - MUSICA.MUSTDIE.RU</p>
+
+Автор: Dimas
+
+### 05.03.2003 news Презентация SEDUCER&#39;S EMBRACE
+
+<p><IMG SRC="/images/news_rus/2003.03/3914.jpg" ALT="pho" width=177 height=250 hspace="15" vspace="5" border="1" align="left">16-го марта 2003 года (воскресенье) в Р-клубе состоится долгожданная презентация альбома "Sinnocence" мэтров отечественного melodic death metal группы SEDUCER'S EMBRACE, выпущенного компанией ФОНО.<BR> Акция пройдет при поддержке<BR> - ATRA MUSTUM <BR> - STALWART (г. Санкт-Петербург) <BR> - EVERLOST <BR> и специальных гостей CRYSTAL ABYSS.<BR> Первые посетители концерта получат В ПОДАРОК CD с альбомом.<BR> Стоимость билета по флаеру 100 рублей, без - 120 рублей.</p>
+<p> Информационная поддержка - <B>MUSICA.MUSTDIE.RU </B></p>
+
+Автор: Dimas
+
+### 11.08.2003 news Презентация журнала &quot;Рок Оракул&quot;
+
+<p><IMG SRC="/images/news_rus/2003.08/4704.jpg" ALT="Rock Oracle" width="205" height="241" vspace="5" align="left">29-30 августа в Р-клубе (г. Москва) при содействии Hide Show Project состоится презентация журнала "Рок Оракул".</p>
+<p>Участвуют группы:<br> 29 августа - Dark Secret Love, Beermen Game, Trisna, Чёрный Обелиск, Chronica, Пилигрим, Mr. Smoke;<br> 30 августа - Ordalion, FleshBomb, Демоны, Crystal Abyss, Stigmatic Chorus, Dance of 3rd R., Satarial.</p>
+<p>Стоимость билетов:<br> 1-й день - 150 руб. в день концерта, 120 руб. с флаером, 100 руб. в предварительной продаже;<br> 2-й день - 200 руб. в день концерта, 180 руб. с флаером, 150 руб. в предварительной продаже.</p>
+<p>Начало концертов в 17:00.</p>
+<p>Адрес Р-клуба: 4-й Рощинский проезд, д.19, м. Шаболовская или Тульская.</p>
+
+Автор: Morsus
+
+### 30.10.2003 news TOTAL FUCKING ARMAGEDDON
+
+<LABEL id=HbSession SessionId="2054852521"><IMG height=318 alt="" hspace=15 src="/images/shows_rus/2003.10/5257.jpg" width=250 align="left" border=0>29 ноября 2003 в субботу в клубе Релакс<BR>состоится фест, приуроченный к празднованию очередного Конца Света:<BR>"<B>TOTAL FUCKING ARMAGEDDON</B>!"<BR><BR>В программе Судного Дня:<BR><BR><B>INEXIST</B> (Ярославль)<BR><B>РОГАТЫЕ ТРУПОЕДЫ<BR>SEDUCER'S EMBRACE<BR>CRYSTAL ABYSS</B><BR><BR>и специальные гости концерта - группа<BR><B>MORRAH</B> (Санкт-Петербург)<BR><BR>Заключительную панихиду по планете отметит <B>TOTAL FUCKING JAM-SESSION</B>!<BR><BR>Начало в <B>18:00</B><BR><BR>Вход по флаеру - <B>120</B> р. / Без флаера - <B>150</B> р.<BR>----------------------------------------------------------------<BR>Адрес клуба: м. "Севастопольская" или "Каховская", <BR>Большая Юшуньская ул. 1а, <BR>гостиница "Севастополь", корпус 6<BR><BR></LABEL>
+Автор: Dimas
+
+### 27.01.2005 articles CRYSTAL ABYSS: &quot;Наш новый материал более осмысленный&quot;.
+
+<P><IMG height=300 alt="" hspace=0 src="/images/articles_rus/2005.01/7793.jpg" width=400 align=left border=5>CRYSTAL ABYSS были одной из первых российских команд, которые были проинтервьюированы нашим журналом. Теперь мы решили узнать, где они и что у лидера группы Sarquanaar’a.</P>
+<P>Вопрос: Расскажи о состоянии дел в CRYSTAL ABYSS. Что-то давно ничего о Вас не слышно.</P>
+<P>Ответ: Отчего же не слышно? Мы ведем постоянную концертную деятельность в Москве и за ее пределами. Стараемся просто не перебарщивать с частотой концертов, чтобы оставалось время та написание нового материала.</P>
+<P>Вопрос: Ну и как дела с новым материалом обстоят?</P>
+<P>Ответ: Он несколько отличается от старого. Он с одной стороны более осмысленный, с другой - более разнообразный. Тем не менее, это в любом случае Black metal - в каком-то смысле даже в большей степени Black metal чем раньше, несмотря на расширение спектра технических приемов.</P>
+<P>Вопрос: Не жалеете, что предыдущий альбом не выходил на наших крупных лэйблах и практически остался не заметным? Какие планы на новую работу? Когда и где она будет записана?</P>
+<P>Ответ: Еще не все потеряно. С материалом предыдущего альбома можно было ознакомиться только по промо 2001 года. Однако, сейчас мы готовим полноформатное перезаписанное, и местами переаранжированное издание этого альбома, который помимо композиций с промо включит в себя еще несколько новых, не издававшихся до этого.<BR>Но это ни в коем случае не означает, что вся наша работа ограничивается только этим изданием. Параллельно, как я уже говорил, мы работаем над совсем новым материалом, который пока никак и нигде не демонстрировался.<BR>После издания полноформатного альбома мы, возможно, запишем, сингл, хотя я в этом еще не уверен. Не исключено, что весь новый материал пойдет только на следующий альбом, но это несколько позже.</P>
+<P>Вопрос: Ты также являешься довольно успешным устроителем концертов в Москве. Как ты думаешь, что сейчас в первую очередь, для организации хорошопосещаемого гига? Какой клуб в Москве больше подходит для команд уровня CRYSTAL ABYSS?</P>
+<P>Ответ: Для организации успешного гига в первую очередь важен состав. Грамотная организация помогает лишь раскрыть его потенциал. При наличии большого количества концертов люди будут ходить только на то, что им интересно, поэтому для организации важно определиться с целевой аудиторией и делать промоушн гига в соответствии с ее спецификой.<BR>Какие-то отдельные клубы я выделять не буду - скажу только, что здесь все зависит не от уровня отдельных групп, а от масштаба мероприятия в целом, тем более, ни для кого не секрет, что сольных концертов ни одна из наших экстремальных групп пока не дает.</P>
+Автор: Vit Belov
+
+### 14.12.2006 news CRYSTAL ABYSS записали новый альбом
+
+<P>Московский Black metal коллектив <B>CRYSTAL ABYSS</B> завершил запись альбома, получившего название «<B>Word of the Darkest Ages</B>». Основная работа над записью проходила в польской студии <STRONG>Studio-X</STRONG> под руководством одного из известнейших польских продюсеров тяжелой музыки - <STRONG>Шимона Чеха (Szymon Czech)</STRONG>, работавшего с такими коллективами как <STRONG>Lux Occulta, Vesania, Dies Irae, Sceptic, Panzer X </STRONG>(проект лидера <STRONG>Vader</STRONG>), <STRONG>Yattering, Tvangeste</STRONG> и многими другими. В альбом вошли следующие композиции: </P>
+<P></P>
+<P><STRONG><IMG height=300 alt="" hspace=50 src="/images/news_rus/2006.12/11072.jpg" width=300 align=right border=0>1. Rebellion of Heresy (prologue)</STRONG></P>
+<P><STRONG>2. First Born Snow</STRONG></P>
+<P><STRONG>3. Visions of the Past</STRONG></P>
+<P><STRONG>4. Word of the Darkest Ages</STRONG></P>
+<P><STRONG>5. Winds of Golden Mountain Paths</STRONG></P>
+<P><STRONG>6. Sageness Fallen</STRONG></P>
+<P><STRONG>7. …of Glory and Pain</STRONG></P>
+<P><STRONG>8. As the Fear Grows</STRONG></P>
+<P><STRONG>9. Still Smouldering (epilogue)</STRONG></P></B>
+<P>Сейчас <STRONG>CRYSTAL ABYSS</STRONG> занимаются поисками подходящего контракта для издания материала</P>
+Автор: Dimas
+
+### 28.12.2006 news CRYSTAL ABYSS - участник METALMANIA&#39; 2007
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=95 alt="" hspace=10 src="/images/news_rus/2006.12/11127.gif" width=266 align=left border=0>Организаторы ежегодного польского музыкального фестиваля <STRONG>METALMANIA</STRONG>, который пройдет 24 марта 2007 года в городе Катовице, официально подтвердили участие в нем российского коллектива <STRONG>CRYSTAL ABYSS</STRONG>. Кроме них, официально подтверждено участие в нем групп <STRONG>TESTAMENT, PARADISE LOST, MY DYING BRIDE, ENTOMBED, KORPIKLAANI, ZYKLON</STRONG> и <STRONG>BLAZE</STRONG>. </FONT></P>
+Автор: Dimas
+
+### 06.02.2007 news CRYSTAL ABYSS записали сингл
+
+<FONT color=#004080 size=2>
+<P><IMG height=200 alt="" hspace=20 src="/images/news_rus/2007.02/11281.jpg" width=300 align=left border=0>Московская Black metal группа <STRONG>CRYSTAL ABYSS</STRONG> записала сингл "<STRONG>Darkness Awakes</STRONG>". Запись проходила в польской студии <STRONG>Studio X</STRONG>. Композиция "<STRONG>Darkness Awakes</STRONG>" доступна для скачивания на <A href="http://crystalabyss.com/samples/">сайте группы</A>.</FONT><FONT color=#004080 size=2></P></FONT>
+Автор: Dimas
+
+### 20.04.2007 news CRYSTAL ABYSS появился в продаже
+
+<P><IMG height=300 alt="" hspace=10 src="/images/news_rus/2007.04/11580.jpg" width=300 align="right" border=0>Появился в продаже долгожданный альбом группы <B>CRYSTAL ABYSS “Word of the Darkest Ages”</B>. Пластинка включает в себя&nbsp;девять треков симфонического Black metal мирового уровня с собственным, узнаваемым почерком. В альбом были включены как старые, уже известные композиции, такие как “<B>First Born Snow</B>” и “<B>Sageness Fallen</B>”, так и более поздние, с которыми слушатель сможет ознакомиться впервые. Основная работа над записью проходила в польской студии <B>Studio-X</B> под руководством одного из известнейших польских продюсеров тяжелой музыки - <B>Шимона Чеха (Szymon Czech)</B>, работавшего с такими коллективами как <B>BELFEGOR, VESANIA, DIES IRAE, SCEPTIC, PANZER X</B> (проект лидера <B>VADER</B>), <B>YATTERING, TVANGESTE</B> и многими другими. Как результат, эта работа выводит российский Black metal на новый качественный уровень.</P>
+<P>Поддерживая альбом, группа уже отыграла мини-тур в Польше, в рамках которого приняла участие в одном из крупнейших европейских фестивалей <B>Metalmania</B> на одной сцене с <B>TESTAMENT, SEPULTURA, MY DYING BRIDE, PARADISE LOST, ZYKLON</B> и другими.</P>
+<P>Кратко ознакомиться с материалом альбома можно на сайте группы <SPAN><A href="http://crystalabyss.com/"><U>http<SPAN lang=RU>://</SPAN>crystalabyss<SPAN lang=RU>.</SPAN>com</U></A> </SPAN>или на странице MySpace <A href="http://www.myspace.com/crystalabyssband"><U>http://www.myspace.com/crystalabyssband</U></A>.</P>
+Автор: Dimas
+
+### 16.06.2007 news CRYSTAL ABYSS ищут гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Москвичи <STRONG>CRYSTAL ABYSS</STRONG> ищут постоянного гитариста. Группа ждёт писем на официальном сайте группы: <A href="http://crystalabyss.com/">http://crystalabyss.com/</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Группа Crystal Abyss ищет басиста

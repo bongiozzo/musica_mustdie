@@ -96,6 +96,75 @@ Stefan Gemballa - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.05.2000 reviews 
+
+<p>А помните, была такая группа с длиннющим названием FLOWING TEARS AND WITHERED FLOWERS? Так вот, увядшие листья облетели, остались только текущие слезы. Но так мне даже больше нравится. Я и раньше удивлялся, зачем группе такое длинное название. Это третий альбом группы и на нем она продолжает развивать стиль прошлого альбома, который дал резкий крен в готику по сравнению с дебютом и ликвидирование мужского вокала. Меланхоличная, мелодичная музыка, полуакустическая с использованием только женского вокала. Однако, творчество этой группы не похоже на творчество других известных готик-думовых команд использующих только женский вокал. (THE GATHERING, THE THIRD AND THE MORTAL, AS DIVINE GRACE) Однако, если вам нравятся эти группы, то понравится и FLOWING TEARS. Довольно оригинальная и самобытная музыка, но если очень поднапрячься, то в качестве приблизительных ориентиров можно назвать DECORYAH и TIAMAT "Wildhoney". Звучание очень приличное и качественное. В студии потрудился Waldemar Sorychta. Этим все сказано. Если хотите расслабиться и помедитировать, то этот альбом подойдет как нельзя лучше.</p>
+
+Автор: Dimas
+
+### 24.12.2000 news Изменения в составе Flowing Tears.
+
+<p>Барабанщик Эрик и клавишник Майк ушли из Flowing Tears - не из-за личных или музыкальных разногласий, но из-за того, что оба вынуждены переехать в другие города всвязи с учёбой в университете. Группа уже нашла нового и действительно сильного драммера: это Стефан Гембалла из сайд-проекта Бенджамина Red Aim. Что касается клавишных, то звуковой техник группы Дэвид Бубалла выполнит партии клавиш на предстоящем альбоме, запись которого состоится в феврале-марте 2001 года. Материал уже написан и, как говорит Бенджамин, звук будет гораздо более тяжелее и живее, нежели на прошлом альбоме "Jade".</p>
+
+Автор: Morsus
+
+### 24.12.2000 news Flowing Tears had some line up changes.
+
+<p>Drummer Eric and keyboarder Mike parted from Flowing Tears - not due to personal or musical reasons, but because of the fast that both of them had to move to other cities due to their studies in university. The band have already found a new and really great drummer: his name is Stefan Gemballa - he also plays in Benjamin's 2nd band Red Aim. Concerning the keys soundtech David Buballa will take over the keys & samples on the upcoming CD that will still be recorded in February/March 2001. The material is already written. As Benjamin say, it will sound far more heavy and living than in the past album "Jade".</p>
+
+Автор: Morsus
+
+### 12.07.2001 news Flowing Tears собираются в студию.
+
+<p> Продюсером нового, пока ещё неназванного альбома Flowing Tears снова будет Вальдемар Сорихта. Запись состоится в конце августа - начале сентября в Woodhouse Studios в Хагене.</p>
+
+Автор: Morsus
+
+### 12.07.2001 news Flowing Tears plan to hit a studio.
+
+<p> The new, yet untitled album Flowing Tears will be produced by Waldemar Sorychta once again. The recordings will take place at Woodhouse Studios in Hagen in the end of August/beginning of September.</p>
+
+Автор: Morsus
+
+### 12.11.2001 news FLOWING TEARS have finished recording their follow-up album ...
+
+<p>Germany’s FLOWING TEARS have finished recording their follow-up album to the acclaimed Jade. Entitled Serpentine, the new album was produced by GRIP INC. guitarist Waldemar Sorychta at Woodhouse Studios in Hagen, Germany. The full track listing for the effort is as follows: <BR><BR> 01. Intro <BR> 02. Starfish Ride <BR> 03. Serpentine <BR> 04. Children Of The Sun <BR> 05. The Marching Sane <BR> 06. Breach <BR> 07. Portsall (Departure Song) <BR> 08. Justine <BR> 09. The Carnage People <BR> 10. Merlin <BR> 11. Cupid Of The Carrion Kind <BR> 12. For Tonight</p>
+
+Автор: Yermola
+
+### 12.11.2001 news Залитый слезами серпантин...
+
+<p>Гитарист и продюссер Вольдемар Сорихта (GRIP INC) завершил работу над новым творением немцев "FLOWING TEARS" - "Serpentine". Запись проходила в Хагенской Woodhouse Studios. На новом "слезливом" опусе можно будет услышать: <BR><BR> 01. Intro <BR> 02. Starfish Ride <BR> 03. Serpentine <BR> 04. Children Of The Sun <BR> 05. The Marching Sane <BR> 06. Breach <BR> 07. Portsall (Departure Song) <BR> 08. Justine <BR> 09. The Carnage People <BR> 10. Merlin <BR> 11. Cupid Of The Carrion Kind <BR> 12. For Tonight</p>
+
+Автор: Yermola
+
+### 03.02.2002 news FLOWING TEARS
+
+<p>Rock Hard magazine said it best when they wrote, "Flowing Tears are one of the hottest aspirants to the title 'best gothic band without any gothic clichйs'". Fronted by the enchanting voice of Stefanie Duchкne, Germany's Flowing Tear's plan on making their North American debut with Serpentine. Produced by Waldemar Sorychta (Lacuna Coil, Tiamat, Samael) at Woodhouse Studios, Serpentine is a stripped-down, more rocked-out approach to what the band has been known for: heavily layered recordings, ultra moody and self-reflecting music</p>
+
+Автор: Dimas
+
+### 31.05.2003 news Новая вокалистка FLOWING TEARS
+
+<p>В составе FLOWING TEARS пополнение. Новую вокалистку группы зовут Helen Vogt</p>
+
+Автор: Dimas
+
+### 24.07.2004 reviews Счастье от Flowing Tears
+
+<P><B>На мой взгляд, “Flowing Tears” одна из лучших поп-готик металлических команд. Люди четко контролируют музыкальный рынок и всегда выпускают актуальные продукты. Кто сейчас на вершинах хит-парадов? Evanescence. </B></P>
+<P><B>Вот и музыканты сделали fallen-ориентированный альбом. Замена вокалистки прошла совершенно безболезненно для слушателя. Helen Vogt– рыжеволосая красотка, обладательница низкого сексуального голоса, который чуть лучше и сильнее, чем у предыдущей фронт-вуменши Stefanie Duchкne. Но если б я не знал о замене, то и не заметил бы. Модный звук, который обеспечил группе продюсер Waldemar Sorychta (Lacuna Coil, Moonspell, Samael), плотные гитары, куча электронных прибамбасов и отличный материал. Первые четыре песни бьют наповал. Прямой аналог “Bring To My Life” – “Believe”, cмужским речитативом от Дирка Туриша (“Angel Dust”, “GB Arts”). Да и потом, песенки не становятся менее хитовыми, в каждой присутствует какая то своя приятная и запоминающаяся фишка. А “Ballad Of A Lonely God” словно пришла с альбомов конца девяностых. Медленная, тяжелая и мрачная. Есть, конечно, пара неудачных песен – “RadiumAngel” и “Meladine”. Но счет 10:2 явно в пользу “Flowing Tears”.</B></P>
+<P><EM><STRONG>Диск предоставлен фирмой <a href="http://www.fono.ru">ФОНО</a></STRONG></EM></P>
+Автор: Дофф
+
+### 29.07.2008 news Новый FLOWING TEARS
+
+<P>Новый альбом <STRONG>FLOWING TEARS</STRONG> будет называться "<STRONG>Thy Kingdom Gone</STRONG>" и выйдет на новом лэйбле <STRONG>Ascendance Records</STRONG>, основанном бывшим работником<STRONG> Candlelight</STRONG> <STRONG>Lee Barrett.</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.11.2011 news Дебютный альбом GRIFFAR
+
+<P><IMG height=425 alt="" hspace=0 src="/images/news_rus/2011.11/22175.png" width=425 align=right border=0>Французская black-metal команда <STRONG>GRIFFAR</STRONG> выпустила 7 октября на <STRONG>Non Serviam Records</STRONG> свой дебютный альбом "<STRONG>Manastery</STRONG>". Коллектив, основанный концертным гитаристом<STRONG> TAAKE Drakhian</STRONG> в 1997 году, играет жёсткий, но не лишённый мелодичности black-metal для всех поклонников стиля. Трек-лист:</P>
+<P>1. <STRONG>Blessed in Lava</STRONG>&nbsp; <BR>2. <STRONG>Monastery&nbsp; </STRONG><BR>3. <STRONG>Relentless Infamy</STRONG>&nbsp; <BR>4. <STRONG>The Demented God</STRONG>&nbsp; <BR>5. <STRONG>My Wolf Legacy&nbsp; <BR></STRONG>6. <STRONG>Tale of the Navigator</STRONG>&nbsp; <BR>7. <STRONG>Diabolical Kingdoms</STRONG>&nbsp; <BR>8. <STRONG>Rebirth&nbsp; <BR></STRONG>9. <STRONG>Last World</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/griffar">http://www.myspace.com/griffar</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

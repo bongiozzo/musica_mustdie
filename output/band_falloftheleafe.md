@@ -78,6 +78,39 @@ Mastering: Mika Jussila at Finnvox Studios
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.08.2000 reviews Снова финны и снова море мелодий
+
+<p>Снова финны и снова море мелодий. Хотя эти финны скорее похожи на шведов. А альбом выпустили и вовсе на аргентинском лэйбле. Быстрая легкая, очень мелодичная музыка с чуть придушенным вокалом и великолепной атмосферой. Материал альбома выдержан в духе нечто среднего между In Flames и Amorphis (времен Tales From The Thousand Lakes). Второй альбом группы посильнее прошлогоднего дебюта. Хотя музыка заметно облегчилась, но стала более оригинальной и разнообразной. Легкодоступная музыка с простыми риффами понравится очень многим, доставляя целый час удовольствия от приятной музыки.</p>
+
+Автор: Dimas
+
+### 16.08.2000 reviews Again pork measlies and again sea of tunes
+
+<p>Again pork measlies and again sea of tunes. Though these pork measlies are without delay similar to the swedes. And an album have manufactured and at all on the Argentina label. Fast mild, very melodious music with hardly strangled voice and magnificent atmosphere. The stuff of an album is sustained in spirit something mean between In Flames and Amorphis (times Tales From The Thousand Lakes). The second album of group is better of a last year's debut. Though music was notably facilitated, but became more original and miscellaneous. Easily accessible music with simple rhyths is pleasant very much much, delivering the whole hour of pleasure from pleasant music.</p>
+
+Автор: Dimas
+
+### 17.11.2002 reviews Unsuccessful attempt to head for a different direction...
+
+<p>And now prepare yourself for something unexpected. Although… why exactly “unexpected”? Those who gave a listen to FALL OF THE LEAFE’s former effort, “August Wernicke” (also on Icarus), should have guessed that this Finnish combo considered bounds of black metal too way intimate already back then. Well, here’s the logical outcome. FALL OF THE LEAFE are no more a black metal act, nor they’re death metal. It seems like the guys chose the path of KATATONIA to embark on, and thus we have been granted an opportunity to witness the birth of yet one more pseudo-sophisticated, slightly psychedelic gothic (although, it depends on a matter of what you consider ‘gothic’) metal. Obviously, featuring “clean” voice. Yes, Tuomas no more shrieks, no more growls, but sings in a pathetic, more or less unelaborated normal voice. Not a change for good. The music itself also doesn’t leave impression of what we use to name ‘well-thoughtout’ and ‘well-arranged’. It simply gets annoying at the half of an album. Unsuccessful attempt to head for a different direction and deliver a different music. Unfortunately, lyrical department is the only aspect I still consider enviable.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 23.06.2007 news ROCK PALACE OPEN-AIR-2007 в Пушкине
+
+<P>"Пушкинская Медиа Группа" и "DeeP Promotion" (ПЦ Д. Бурмана) представляют:</P>
+<P>"ROCK PALACE OPEN-AIR-2007"<BR>Единственный в России open-air тяжелой рок-культуры.</P>
+<P>Дата: 22 июля (воскресенье)<BR>Место: Пушкин, Запасной (Владимирский) дворец, ул. Садовая, дом 22<BR>Время: 13.00-23.00</P>
+<P>Участники:</P>
+<P>GRAVE (Швеция, Death metal) - впервые в России!<BR>DISMEMBER (Швеция, Death metal)<BR>SWALLOW THE SUN (Финляндия, death/doom metal) - впервые в России!<BR>FALL OF THE LEAFE (Финляндия, gothic metal)<BR>МАСТЕР (Москва, heavy metal)<BR>STARDOWN (nu metal)<BR>PERIMETER (deathcore)<BR>ТРОЛЛЬ ГНЕТ ЕЛЬ (пивной folk)<BR>XE-NONE (Киров, industrial dance metal)<BR>VERGELTUNG (cyber industrial metal)<BR>MORAY EEL (Москва, thrashcore)<BR>О.Х. (Пушкин, heavy/thrash)<BR>CATTLE EXTERMINATION (grindcore)<BR>FROSTED GLASS (thrash/progressive)<BR>DEVILISH DISTANCE (death metal, Самара)</P>
+<P>Билеты: <BR>560 р. - предварительная продажа.<BR>650 р. - на входе в день фестиваля.</P>
+<P>Билеты в магазинах (с 20 июня): Castle Rock, PreeDooRock, Дохлая Рыб-ба, Фенька, OJR, Фаршмаг, Титаники, Айсберги, Десятки, театральные кассы СПБ.</P>
+<P>Проезд на фестиваль из Санкт-Петербурга:<BR>Ровно 15 минут от железнодорожной станции «Купчино» или 30 минут от Витебского вокзала (м. «Пушкинская») на ЛЮБОЙ электричке (направление «от Санкт-Петербурга») до вокзала г. Пушкина. Далее, от вокзала 10 минут пешком вверх по Софийскому бульвару или на маршрутных такси № 370,376,381,382 (УТОЧНИТЬ У ВОДИТЕЛЯ НАПРАВЛЕНИЕ: К ЦЕНТРУ!) до Любезных ворот (стоимость проезда 10-13 рублей). <BR>Либо 20 минут от «м. Московская» на маршрутных такси №№ 545, 342, 347, 299 до Любезных ворот (посадочная остановка за памятником Ленину; стоимость проезда - 25 рублей). <BR>И самый долгий вариант (минут 40) – автобусом № 187 от «м. Московская» до Пушкинского вокзала.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

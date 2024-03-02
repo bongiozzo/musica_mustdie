@@ -34,6 +34,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.08.2016 reviews Декламации в жанре progressive doom metal
+
+<p>ARTHWORK – детище польского музыканта Artur Jankowski. Он поёт, на всём играет и выпускает по два альбома в год. К сожалению, у меня не было возможности ознакомиться со всеми пятью альбомами, вышедшими за последние три года. Нашему вниманию был представлен только один из альбомов 2015 года «indignation”. Сам музыкант называет его самым тяжёлым в дискографии, а нам того и надо.</p><p>ARTHWORK выступают в жанре progressive metal. Высокий вокал в духе Messiah Marcolin, в основном медленные композиции, на которых вокалист зачитывает стихотворную форму в духе Aaron из MY DYING BRIDE. Получается нечто мрачное и тягучее с неочевидными мелодиями, которые не позволяют отнести альбом к doom metal, но к progressive metal относят его легко. Польский артист представляет очень своеобразный материал. Чего-то подобное мне встречалось только во времена аудиокассет в середине 90-х, когда существовало много групп, экспериментирующих с собственным звучанием. Вероятно, и сейчас земля богата на подобные таланты, просто не каждый раз нам попадает в руки альбом, не выпущенный силами крупных лэйблов.</p><p>Я не думаю, что ARTHWORK ждёт большое будущее. Дело не только в довольно спорном вокале, странной реализации и стилевой неопределённости этого альбома. На «Indignation” попросту отсутствуют внятные мелодии. Этот альбом представляет собой некие декламации высоким голосом под довольно однообразную среднетемповую ритм-гитару. А это не та рекомендация, из-за которой массы сломя голову бросятся в магазины за этим альбомом.</p>
+Автор: Vit Belov
+
+### 20.08.2016 reviews The recitation in the genre of progressive doom metal
+
+<p>ARTHWORK is the brainchild of a Polish musician Artur Jankowski. He sings, plays everything and produces two albums a year. Unfortunately, I have not had the opportunity to see all five albums released over the past three years. Our attention was represented by only one of the albums of 2015 "Indignation". He calls it the most heavy in the discography, and we need it.</p><p>ARTHWORK are in the genre of progressive metal. The high vocals in the spirit of Messiah Marcolin, mostly slow songs, which the singer read out the verse in the spirit of Aaron from MY DYING BRIDE. Get something dark and viscous, with subtle melodies that can be attributed to the album is doom metal, but to progressive metal would take it easy. Polish artist presents a very peculiar material. Something like that I have met only in the days of audio cassettes in the mid-90s when there were a lot of bands experimenting with their own sound. Probably, and now the earth is rich in such talents, just not every time we fall into the hands the album, not released by forces of the major labels.</p><p>I don't think ARTHWORK have a great future. It is not only questionable vocals, a strange realization and stylistic uncertainty of this album. "Indignation" have not simply a coherent melody. This album represents some recitation in a high voice rather monotonous mid-tempo rhythm-guitar. But this is not a recommendation, where masses of headbangers rush to the shops for this album.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

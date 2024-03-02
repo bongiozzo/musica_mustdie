@@ -90,6 +90,37 @@ Cover Art By Tchelitchew , Pavel.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.01.2001 news Deceased скоро приступят к записи нового EP.
+
+<p>Deceased вскоре начнут запись мини-альбома "Behind The Mourner's Veil", который будет содержать четыре новых песни: "It's Alive!", "The Mausoleum", "Slow Infection" и "Victims Of The Masterplan". Также на альбоме будут присутствовать следующие каверы: "Zombie Attack" (Tankard), "Plunging To Megadeath" (Hallows Eve), "Reaganomics" (DRI) и "Deathrider" (Anthrax).</p>
+
+Автор: Morsus
+
+### 17.01.2001 news Deceased will begin the recording of new EP soon.
+
+<p>Deceased will begin the recording of the mini-album "Behind The Mourner's Veil" soon and it will include four new songs: "It's Alive!", "The Mausoleum", "Slow Infection", and "Victims Of The Masterplan". The album will also contain the following cover songs: "Zombie Attack" (Tankard), "Plunging To Megadeath" (Hallows Eve), "Reaganomics" (DRI), and "Deathrider" (Anthrax).</p>
+
+Автор: Morsus
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 25.01.2011 news DECEASED: новый альбом &quot;Surreal Overdose&quot; в апреле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18328.jpg" width=380 height=380>Сайт <A href="http://www.maximummetal.com/" target=_blank><U><FONT color=#0000ff>Maximum Metal</FONT></U></A> обнародовал обложку и трек-лист <B itxtvisited="1">"Surreal Overdose"</B>, долгожданного нового альбома группы <B itxtvisited="1">DECEASED</B>.&nbsp;Запись диска происходила в студии&nbsp;<B itxtvisited="1">Assembly Line</B>, со звукоинженером по имени&nbsp;<B itxtvisited="1">Kevin Gutierrez</B>. Барабанщик/вокалист <B itxtvisited="1">King Fowley</B> стал продюсером альбома, выход которого намечен на апрель 2011.&nbsp;Автор обложки -&nbsp;<B itxtvisited="1">Jowita Kaminska</B>.</P>
+<P>Трек-лист <STRONG>"Surreal Overdose"</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Skin Crawling Progress</B><BR itxtvisited="1">02. <B itxtvisited="1">Kindred Assembly</B><BR itxtvisited="1">03. <B itxtvisited="1">The Traumatic</B><BR itxtvisited="1">04. <B itxtvisited="1">Cloned (Day of the Robot)</B><BR itxtvisited="1">05. <B itxtvisited="1">Vulture Shock</B><BR itxtvisited="1">06. <B itxtvisited="1">In the Laboratory Of Joyous Gloom</B><BR itxtvisited="1">07. <B itxtvisited="1">A Doom-Laden Aura</B><BR itxtvisited="1">08. <B itxtvisited="1">Dying In Analog</B></P>
+<P>Последний диск<STRONG> DECEASED</STRONG>, <B itxtvisited="1">"As the Weird Travel On"</B>, вышел в апреле April 2005&nbsp;на <B itxtvisited="1">Thrash Corner Records</B>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

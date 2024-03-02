@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.05.2013 news INTEGRITY: стриминг альбома &quot;Suicide Black Snake&quot; на сайте журнала Revolver
+
+<P>11 июня легендарная hardcore банда <STRONG>INTEGRITY</STRONG> выпускает свой новый альбом, получивший название <STRONG>"Suicide Black Snake"</STRONG>.</P>
+<P><STRONG>"Suicide Black Snake" </STRONG>выйдет в формате винила на лейбле <STRONG>A389</STRONG>, тогда как&nbsp;CD выпустит <STRONG>Magic Bullet Records</STRONG>. </P>
+<P>Уже сейчас весь альбом целиком можно прослушать на сайте журнала <STRONG>Revolver</STRONG>: <A href="http://www.revolvermag.com/news/exclusive-integrity-premiere-new-album-suicide-black-snake.html">www.revolvermag.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.05/25753.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

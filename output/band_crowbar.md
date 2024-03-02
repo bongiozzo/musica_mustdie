@@ -237,6 +237,72 @@ Inside booklet layout: Praxis Studios.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.03.2001 news Новый альбом &quot;CROWBAR&quot;
+
+<p>Нью-Орлеанцы "CROWBAR" завершают работу над очередным студийным творением, кторое будет микшироваться гитаристом "UGLY KID JOE" North Shore в его собственной студии. Пока еще не названный альбом будет испытанием для новичка - барабанщика Tony Costanza (ex-CRISIS / MACHINE HEAD).</p>
+
+Автор: Yermola
+
+### 29.03.2001 news CROWBAR are completing work....
+
+<p>New Orleans’ CROWBAR are completing work on the material for their forthcoming studio album, which will reportedly be tracked and mixed at former UGLY KID JOE guitarist 's North Shore Recording Studio. The as-yet-untitled effort—the group’s first with new drummer Tony Costanza (ex-CRISIS / MACHINE HEAD)—is tentatively due to be released at the end of the year.</p>
+
+Автор: Yermola
+
+### 30.10.2001 news DOWN, featuring PANTERA vocalist Philip Anselmo...
+
+<p>The tentative title of the forthcoming sophomore effort from New Orleans’ DOWN, featuring PANTERA vocalist Philip Anselmo, PANTERA bassist Rex Brown, C.O.C. drummer Jimmy Bower, C.O.C. guitarist Pepper Keenan, and CROWBAR guitarist Kirk Windstein, is The Backwood Heavies. As previously reported, The Backwood Heavies will be recorded during November/December at former UGLY KID JOE guitarist Dave Fortman’s Balance Studios in New Orleans, where CROWBAR laid down their most recent effort, Sonic Excess In Its Purest Form. <BR> <BR> In related news, New Orleans’ SOUTHERN ISOLATION (formerly BODY & BLOOD), which features in its ranks Phil Anselmo on guitar, Phil’s girlfriend Stephanie Opal on vocals, “Big” Ross Karpelman (CHRIST INVERSION) on keyboards, Kevin Bond (i.e. CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) on bass, and Sid Montz on drums, will be issuing their self-titled MCD on October 30th via Baphomet/Housecore Records. The full track listing for the effort is as follows: <BR><BR> 01. Blue Bird (Make You Shine) <BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)<BR> <BR></p>
+
+Автор: Yermola
+
+### 30.10.2001 news Неугомонный Филипп Ансельмо...
+
+<p>Нью-Орлеанский проект "DOWN", имеющий в своем составе вокалиста "PANTERA" - Philip Anselmo, бассиста "PANTERA" - Rex Brown, барабанщика "C.O.C." - Jimmy Bower, гитариста "C.O.C." - Pepper Keenan и гитариста "CROWBAR" - Windstein - объявил название для своего нового альбома - "The Backwood Heavies". Писаться это творение будет в Ноябре/Декабре в студии участника "UGLY KID JOE" - Dave Fortman - Balance Studios (в ней записывались "CROWBAR" - альбом "Sonic Excess In Its Purest Form")... <BR><BR> Из родственных новостей, команда "SOUTHERN ISOLATION" состоящая из Фила Ансельмо (гитара!!!), его подружки Stephanie Opal (вокал), “Big” Ross Karpelman ("CHRIST INVERSION") - клавиши, Kevin Bond (CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) - басс и Sid Montz (барабаны), тридцатого октября выпустили альбом с аналогичным названием на Baphomet/Housecore Records. Трек-лист релиза: <BR> <BR> 01. Blue Bird (Make You Shine)<BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)</p>
+
+Автор: Yermola
+
+### 22.11.2004 reviews Welcome to the Music of Pain!
+
+<P>Вам не кажется, что уже само название группы звучит&nbsp;как-то зловеще... Crowbar...? Да, тут не до соплей. "Odd Fellows Rest" это пятый полноформатник одной из известнейших команд, играющих в стиле sludge. Низконастроенные гитары, медленные ударные, почти хардкоровый вокал, думовые "скорости" - при всем этом музыка Crowbar обвалакивает, как густой туман, в котором ты пытаешься передвигаться целый час, ориентируясь только на гудящие гитары и нервный, на грани срыва, голос вокалиста. Повторяющиеся музыкальные фразы еще больше запутывают твое перемещение в тумане, и ты идешь наощупь, как слепой, чувствуя, как твой организм становится всё более болезненным. Короче, одна из любимых групп Фила Ансельмо не даст тебе заскучать (обрати внимание и на состав). Так что, давай, погружайся в этот мир безумия и наслаждайся музыкой боли. Только об одном тебя попрошу: после прослушивания "Odd Fellows Rest" не поленись, сходи ко врачу, а то мало ли что...</P>
+<P>ЗЫ: ха, прикиньте, и в таком жанре встречаются настоящие баллады! (заглавная "Odd Fellows Rest')</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 24.01.2005 news Новый альбом CROWBAR
+
+<P>8 февраля на <STRONG>Candlelight Records</STRONG> выйдет совершенно&nbsp;новый альбом нью-орлеанских сладж-думстеров&nbsp;<STRONG>CROWBAR</STRONG> под названием <STRONG>"Lifesblood for the Downtrodden".</STRONG> Продюсерами альбома выступили <STRONG>Warren Riker</STRONG> (<B>DOWN</B>)&nbsp;и <B>Rex Brown</B> (<B>PANTERA</B>, <B>DOWN</B>). В группу вернулся их ударник <STRONG>Craig Nunenmacher</STRONG> (<B>BLACK LABEL SOCIETY</B>). Одну из новых композиций с этого альбома, <STRONG>"Dead Sun",</STRONG> можно найти по <A href="/samples/c/crowbar/2005_1345.mp3">этому</A> адресу.</P>
+Автор: Dimas
+
+### 29.12.2010 news CROWBAR: опубликован клип на песню &quot;The Cemetery Angels&quot;. 
+
+<P>Группа <STRONG>CROWBAR</STRONG> опубликовала клип на песню<STRONG> "The Cemetery Angels"</STRONG>. Видео было снято 5 декабря в Нью Йорке,&nbsp;режиссёром Дейлом Рестегини (<B itxtvisited="1">Dale "Rage" Resteghini</B>). Сама же песня войдёт в новый альбом группы <STRONG>"Sever The Wicked Hand"</STRONG>, который выйдет в Европе на лейбле <STRONG>Century Media </STRONG>14 февраля 2011,&nbsp;а&nbsp;в Америке на лейбле <STRONG>E1 Music</STRONG> 8 февраля 2011.</P>
+<CENTER>
+<OBJECT width=450 height=370>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=d331b13a81156e2f4d29" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 04.10.2013 news Kirk Windstein покинул DOWN
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.10/26246.jpg" width=309 height=318>Kirk Windstein</STRONG> опубликовал заявление, что покидает проект <STRONG>DOWN</STRONG> для того чтобы полностью посветить всё своё время своему детищу, пионерам sludge метала, группе <STRONG>CROWBAR</STRONG>. </P>
+<P>В то время, как басист <STRONG>Patrick Bruders</STRONG> последнего состава <STRONG>CROWBAR</STRONG>,&nbsp;также являющийся участником <STRONG>DOWN</STRONG>, остаётся на своём месте и о возвращении в <STRONG>CROWBAR</STRONG> не помышляет. Его место в <STRONG>CROWBAR</STRONG> займёт никому не известный<STRONG>&nbsp;Jeff Golden</STRONG>, тогда как самого Виндштейна в <STRONG>DOWN</STRONG> заменит <STRONG>Bobby Landgraf</STRONG>, ещё совсем недавно работавший там менеджером сцены.</P>
+<P>16 декабря&nbsp;<STRONG>CROWBAR</STRONG> отправляются в студию, чтобы записать свой новый альбом, который планируют выпустить в конце весны следующего года на лейбле <STRONG>E1</STRONG>. После чего группа отправится в тур, чтобы презентовать его и отметить свой 25 летний юбилей.</P>
+Автор: Headcrusher
+
+### 01.03.2014 news Новый CRWOBAR в мае
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый релиз<STRONG> CROWBAR "Symmetry In Black"</STRONG> выйдет 26 мая на <STRONG>Century Media</STRONG>. Подробности последуют.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26698.png" width=410 height=273></P>
+Автор: Vit Belov
+
+### 02.06.2014 news CROWBAR: видеоклип &quot;Walk With Knowledge Wisely&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип <STRONG>CROWBAR</STRONG> на песню <STRONG>"Walk With Knowledge Wisely"</STRONG> можно посмотреть ниже. Трек вошёл в альбом <STRONG>"Symmetry In Black"</STRONG>, вышедший 26 мая на <STRONG>Century Media</STRONG> в Европе, а 27 мая на <STRONG>E1 Music</STRONG> в Северной Америке.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/xdYlzGDEbFs" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### CROWBAR (США) в Москве (30 марта 2017)

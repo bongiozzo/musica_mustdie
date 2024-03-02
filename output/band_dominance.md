@@ -36,6 +36,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2016 news Новое lyric video DOMINANCE
+
+<p>Итальянская death metal команда <strong>DOMINANCE</strong> выложила в сеть лирик видео на песню "<strong>This Is War</strong>". Трек взят с третьего альбома группы "<strong>XX: The Rising Vengeance</strong>", который вышел в марте.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/FfB-iVDdFhE" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 08.08.2016 news DOMINANCE posted lyric video
+
+<p>Italian death metal band <strong>DOMINANCE </strong>posted a lyric video for the song "<strong>This Is War</strong>". The track is taken from the third album "<strong>XX: The Rising Vengeance</strong>", which was released in March.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/FfB-iVDdFhE" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 06.09.2016 news Новое видео DOMINANCE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый видео-клип итальянской death metal группы<strong> DOMINANCE</strong> на песню <strong>"Into The Fog"</strong> можно посмотреть ниже. Новый альбом коллектива "<strong>XX: The Rising Vengeance</strong>" вышел 31 марта на <strong>Sliptrick</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/fVTpkFESfcM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.09.2016 news New video of DOMINANCE
+
+<p>New video clip of Italian death metal band <strong>DOMINANCE</strong> for the song "<strong>Into The Fog</strong>" can be viewed below. New album "<strong>XX: The Rising Vengeance</strong>", was released on March 31 on <strong>Sliptrick</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/fVTpkFESfcM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

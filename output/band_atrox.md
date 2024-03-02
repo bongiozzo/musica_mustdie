@@ -66,6 +66,56 @@ Peter - bass & vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.2000 reviews 
+
+<p>Новый альбом норвежских гот-думеров. Записан он в той же манере, что и предыдущие, с огромным влиянием их земляков THE THIRD AND THE MORTAL. Все очень качественно, музыка захватывает слушателя и блещет красотой, вокал (чисто женский) тоже хорош, хотя.... Вокалистка очень часто решается на психоделические эксперименты, при которых становится, честно говоря, просто тошно и противно. Ее вокализации в эти моменты напоминают крики раненой волчицы, котору продолжают резать дальше. Этот момент существенно портит очень хороший альбом. Зачем они на это решились? Но музыка хороша, мелодично и меланхолично.</p>
+
+Автор: Dimas
+
+### 07.05.2002 reviews Экспериментальный шизофренический метал
+
+<p>Третья порция psychedelic gothic metal от норвежских музыкантов с обилием экспериментов, прогрессивных влияний, сложных техничных риффов, акустических изливаний и особенного вокала Моники, которая упивается своей сексуальной удовлетворенностью и оказывает стимулирующее воздействие. Очень оригинальный материал. Представьте AGHORA с шизоидным сногшибательным женским вокалом и непередаваемыми шизофреническими настроениями. Группа имеет очень своеобразный подход к написанию своего материала, причудливый, взрывающий все стандарты и установки. В техническом и инновационном плане этот альбом достоин высокой оценки. Однако, эта музыка не для всех. Немногие будут способны выдержать 67 минут подобного материала. К концу альбома, не исключены головные боли и галлюцинации. Нельзя не признать, что альбом полон красивых новаторских и диссонантных мелодий реализованных на базе техничного и прогрессивного gothic metal. Самое спорное в этой работе - вокал. Одни уверены, что эти бредовые песнопения и кретинские беснования только портят материал. Другие же будут уверять, что подобный больной вокал только на пользу группе, внося в музыку элементы сюрреализма и создавая новую музыкальную схему в современной металлической музыке. Хочется отметить некоторую неуравновешенность альбома. Наряду с потрясающими красивыми моментами есть очень монотонные куски с периодически повторяющимися беснованиями Моники. Это начинает немного раздражать. Так что над этим группе еще надо поработать и добиваться в будущем большей сбалансированности. Предлагаю вам самим оценить этот материал, прослушав его хотя бы один раз...</p>
+
+Автор: Dimas
+
+### 18.05.2002 reviews Expiremental shizo metal
+
+<p>The third portion of psychedelic gothic metal from the Norwegian musicians with an abundance of experiments, progressive influences, difficult technic riffes, acoustic passages and especial vocal of Monica, which revel in the sexual satisfaction also renders stimulating influence. A very original material. Present AGHORA with shizo staggering female vocal and inexpressible Shizo moods. The group has the very original approach to a spelling of the material, quailing , blowing up all standards and installations. In technical and progressive plan this album values high estimation. However, this music is not for all. Few will be capable to sustain 67 minutes of a similar material. By the end of an album, the headaches and hallucinations are not excluded. It is necessary to recognize, that the album is complete beautiful innovative and discord melodies realized on base of technic and progressive gothic metal. Most disputable in this work - vocal. One are sure, that these crazy singing and cretin rage is only spoil a material. Others will assure, that the similar patient vocal is only on advantage to group, bringing in music elements of surrealizm and creating the new musical circuit of modern metal music. It would be desirable to note some unbalance of an album. Alongside with the tremendous beautiful moments there are very monotonous pieces with periodically repeating raves of Monica. It begins slightly to irritate. So above it the group still should to work and achieve in the future of the greater equation. I offer you to estimate this material, having heard it even once...</p>
+
+Автор: Dimas
+
+### 08.05.2003 news Оргазм от ATROX
+
+<p>Норвежская группа ATROX заканчивает работу над своим новым альбомом под названием "Orgasm". Альбом должен выйти в сентябре на Code666.</p>
+
+Автор: Dimas
+
+### 31.08.2003 news ATROX готовят новый альбом
+
+<p>Норвежцы ATROX снимают видео-клип в поддержку своего нового релиза 'Orgasm', который увидит свет 27 октября на CODE666. Кавер-пэйнт к альбому нарисовала сама вокалистка группы Monika Edvarsen.</p>
+
+Автор: Vit Belov
+
+### 24.09.2003 reviews Новая порция психотропного вещества
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" width="100%" UNSELECTABLE="on"></TR>
+<TR UNSELECTABLE="on" hb_tag="1"></TR></TBODY></TABLE>
+<BLOCKQUOTE id=e3be262f>
+<P>Прошу любить и жаловать! Четвертое творение безумной норвежской команды. Что больше всего радует, так то, что на новом альбоме совершенно ничего не раздражает как ранее. Да и вокальных экспериментов здесь намного меньше, что тоже не утомляет. Завораживающее смешивание gothic doom с progressive metal и jazz-fusion на фоне оригинальнейшего шизоидного вокала Моники Эдвардсен. Она причудливо играет своими вокальными партиями, доводя слушателя до состояния исступления, превращая материал альбома в театр абсурда и экстравагантности. Это музыка не для всех, а только для тех, кто ищет в ней что-то уникальное, далекое от повседневных стандартов. Как-то, в одной из рецензий на предыдущие альбомы группы, я назвал эту музыку "музыкой для шизофреников и от шизофреников". Это конечно было сказано в шутливом тоне, но порой начинаешь в это верить. Особенно под конец альбома, вдоволь наслушавшись этих массивных и грузящих гитарных риффов, окутавшись в сверхъестественную гипнотическую атмосферику альбома, насладившись его отличнейшим качеством, удивившись таланту этих музыкантов и, наконец, почти обезумев от всего этого. Некоторым впечатлительным натурам, могу даже гарантировать после прослушивания оргазм, как и было обещано названием альбома. Как и всегда,&nbsp;в техническом и инновационном плане этот альбом достоин самой высокой оценки. Рекомендую поклонникам AGHORA и MADDER MORTEM.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P></BLOCKQUOTE>
+Автор: Dimas
+
+### 14.03.2008 news Новый альбом ATROX
+
+<P><STRONG>ATROX</STRONG> назвали свой пятый альбом "<STRONG>Binocular</STRONG>". Пластинка выйдет в апреле на <STRONG>Season Of Mist</STRONG>. Трэк-лист:</P>
+<P>01. <B>Retroglazed</B><BR>02. <B>No Coil for Tesla</B><BR>03. <B>Traces</B><BR>04. <B>Headrush Helmet</B><BR>05. <B>Filthmonger</B><BR>06. <B>Orgone</B><BR>07. <B>Tight Tie</B><BR>08. <B>Binocular</B><BR>09. <B>Castle for Clowns</B><BR>10. <B>Transportal</B> </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

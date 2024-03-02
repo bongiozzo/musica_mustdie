@@ -25,6 +25,9 @@ Mіody - drums (Dissenter)
 
 * C группой "Christ Agony" 
 
+## Публикации
+
+
 ## Обсуждения
 
 

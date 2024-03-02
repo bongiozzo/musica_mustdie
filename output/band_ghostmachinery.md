@@ -21,6 +21,16 @@
 
 * C группой "Burning Point" Pete Ahonen
 
+## Публикации
+
+### 22.10.2015 news Новый альбом GHOST MACHINERY
+
+<P>Третий альбом проекта финского гитариста<STRONG> Pete Ahonen (BURNING POINT)</STRONG> выходит 13 ноября на <STRONG>Pure Legend Records</STRONG>. Группа анонсирует 13 треков для любителей <STRONG>AXEL RUDI PELL</STRONG> и <STRONG>BLACK SABBATH</STRONG> времён<STRONG> Tony Martin</STRONG>. Трек-лист:</P>
+<P><STRONG>“Arms Of The Strangers”<BR>“Fatal”<BR>“Kingdom Of Decay”<BR>“Go To Hel (It’s Where You Belong)”<BR>“Evil Undertow”<BR>“Brave Face”<BR>“Tools of The Trade”<BR>“No Easy Way Out”<BR>“Dead Inside”<BR>“Lost To Love”<BR>“The Last Line Of Defence”</STRONG></P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/NklIc1B14L0" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

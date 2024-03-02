@@ -111,6 +111,348 @@ Niclas Andersson - Session Bass
 * C группой "In Flames" Jesper Stormblad
 * C группой "HammerFall" Jesper Stormblad
 
+## Публикации
+
+### 06.06.2001 news DIMENSION ZERO - новый мелодик дэс из Швеции...
+
+<p>Участники проектов "IN FLAMES" и "MARDUK" создали команду с целью поиграть мелодик дэс метал. В окончательный состав "DIMENSION ZERO" вошли Jocke G&ouml;thberg (ex-MARDUK) - вокал, Hasse Nilsson (LUCIFERION, DIABOLIQUE) - барабаны, Glenn Ljungstr&ouml;m (IN FLAMES) и Jesper Str&ouml;mblad (IN FLAMES) - гитары и басс. Команда уже подписала контракт с пока еще не названным лэйблом и сейчас планирует запись дебютного полноформатника. Сессия будет проходить во Fredman Studios в Gothenburg (Швеция), где был записан EP "Penetrations From the Lost World".</p>
+
+Автор: Yermola
+
+### 06.06.2001 news Sweden&#39;s DIMENSION ZERO....
+
+<p>Sweden's DIMENSION ZERO—featuring IN FLAMES guitarist Jesper Strцmblad and ex-IN FLAMES axeman Glenn Ljungstrцm—are reportedly "only days away" from signing on the dotted line with an as-yet-unspecified record label, and rehearsals will begin in the coming weeks for the recording of the band's debut full-length album, the group's first release in six years. The DIMENSION ZERO line-up for the forthcoming CD will be as follows: Jocke Gцthberg (ex-MARDUK) on vocals, Hasse Nilsson (LUCIFERION, DIABOLIQUE) behind the drums, Glenn Ljungstrцm on guitars and Jesper Strцmblad will play guitars and bass. Recording will take place in September when they again return to Fredman Studios in Gothenburg / Sweden were they recorded the 1996 Penetrations From the Lost World EP. The as-yet-untitled album is expected to emerge in early 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Лихорадка Тихой Ночи?
+
+<p>Звездные мелодик-дэтстеры "DIMENSION ZERO" с октября месяца будут записывать продолжение для пластинки "Penetrations From the Lost World" названное "Silent Night Fever". Выпустит релиз шведская Regain Records в начале 2002... А песТни на нем буду такие: 01. Slow Silence 02. Silent Night Fever 03. End 04. Not Even Dead 05. The Murder-Inn 06. Until You Die...</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Silent Night Fever...
+
+<p>Sweden's DIMENSION ZERO—featuring IN FLAMES guitarist Jesper Strцmblad, ex-IN FLAMES axeman Glenn Ljungstrцm, ex-MARDUK vocalist Jocke Gцthberg and LUCIFERION/DIABOLIQUE drummer Hasse Nilsson—will enter Studio Fredman in Gothenburg, Sweden on October 6th of October to record their upcoming full-length album, tentatively titled Silent Night Fever. Due to be issued in early 2002 through Sweden’s Regain Records, the follow-up to 1996’s Penetrations From the Lost World EP will contain eight tracks, including the following: <br> 01. Slow Silence <br> 02. Silent Night Fever <br> 03. End <br> 04. Not Even Dead <br> 05. The Murder-Inn <br> 06. Until You Die<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 19.12.2002 reviews Swedish melodic DEATH metal
+
+<p>Most probably, this is one of the most impressive SMDM-styled works I've heard lately. Yes, DIMENSION ZERO deliver more or less typically Swedish-sounding death / black metal, which, at the first sight (listen?) seems to be sort of monotonous. Like, all the songs appear to be pretty much similar to each other. Blame it on the first sight (listen?), though. Because they AREN'T monotonous. Actually, "Silent Night Fever" strikes as very well structured kind of CD, or even a bit of sophisticated… however, this sophistication may be heard only if you give it at least few attentive listens. A point up? Definitely! What's most surpsising, DIMENSION ZERO is mostly comprised of IN FLAMES ex- and present members – however "Silent Night Fever" doesn't have anything in common with "Clayman" or "Reroute To Remain". It's fast-paced, it's raw and it's BRUTAL. This is how all these Swedish acts should sound like if they want us consider their efforts to be 'Swedish melodic DEATH metal'.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 19.01.2003 news DIMENSION ZERO готовят еще одну бомбу
+
+<p>Шведская супергруппа DIMENSION ZERO, в состав которой входят гитарист Jesper Stromblad (IN FLAMES), басист Glenn Ljungstrom (ex-IN FLAMES), вокалист Jocke Gothberg (ex-MARDUK), ударник Hasse Nilsson (LUCIFERION/DIABOLIQUE), и гитарист Daniel Antonsson (PATHOS), готовит к выпуску в сентябре-октябре 2003 года свой новый альбом под названием "This IS Hell". Альбом будет записываться с февраля 2003 года во Phlat Planet studios под руководством продюссера Anders Friden (вокалист IN FLAMES).</p>
+
+Автор: Dimas
+
+### 21.02.2003 news DIMENSION ZERO news...
+
+<p>Sweden's DIMENSION ZERO — featuring IN FLAMES guitarist Jesper Strцmblad (on bass), ex-IN FLAMES axeman Glenn Ljungstrцm, ex-MARDUK vocalist Jocke Gцthberg, LUCIFERION/DIABOLIQUE drummer Hasse Nilsson and PATHOS guitarist Daniel Antonsson — have commenced the recording sessions for their sophomore full-length album, This is Hell, tentatively due for a summer release. "This time, to make it all even better, they have added new angles and approaches to their songwriting, which will make the last album look pale in comparison,” reads a message on the band's official web site. Rest assured: DIMENSION ZERO are creating a monster and they do not know if it will guide them or kill them. The upcoming CD, the band's first to feature Antonsson, is being recorded at Phlat Planet studios in Gothenburg, Sweden with producer/IN FLAMES frontman Anders Fridйn.</p>
+
+Автор: Yermola
+
+### 28.04.2003 news Новости от DIMENSION ZERO
+
+<p>Шведская группа DIMENSION ZERO собирается периздавать свой мини-альбом 1997 года "Penetrations From The Lost World". К оригинальному трэк-листу будут добавлены два нереализованных ранее трэка и пять концертных трэков записанных в ходе японского тура 2002 года.</p>
+<p> Кроме того, стал известен трэк-лист нового альбома группы "This is Hell", который должен выйти в сентябре на Regain Records:</p>
+<p> 1. Intro<BR> 2. Amygdala<BR> 3. Blood On The Streets<BR> 4. Dimension Zero<BR> 5. Di'i Minores<BR> 6. Immaculate<BR> 7. Killing My Sleep<BR> 8. Into & Out Of Subsistence<BR> 9. The Final Destination<BR> 10. This Light</p>
+
+Автор: Dimas
+
+### 28.11.2003 news Переиздания классиков шведского death black metal
+
+<P><LABEL id=HbSession SessionId="1740891749">Лэйбл Regain Records приготовил подарок всем любителям шведятины. Компания выпустила шесть классических альбомов шведских групп, выпускавших альбомы на WAR Music в девяностых годах.</LABEL></P>
+<P><LABEL SessionId="1740891749"><B>Naglfar - Diabolical<BR></B>Ремастированная версия второго альбома группы 1998 года. Классический black death metal.<BR><B>Darkane - Rusted Angel</B><BR>Ремастированная версия дебюта группы 1998 года с тремя бонус-трэками. Техничный и мелодичный death metal. </LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL><LABEL SessionId="1740891749"><B>Carnal Forge - Whos Gonna Burn</B><BR>Ремастированная версия дебютного альбома группы 1998 года. <BR><B>Defleshed - Fast Forward</B><BR>Третий альбом шведов в ремастированном виде с четырьмя бонус-трэками. <BR><B>Dimension Zero - Penetrations from the Lost World</B><BR>Переиздание мини-альбома 1997 года, с семью бонус-трэками, среди которых две студийные нереализованные вещи и пять концертных, записанных в ходе японского тура 2002 года. .<BR><B>Eucharist - Mirrorworlds</B><BR>Ремастированный второй альбом 1997 года пионеров Swedish melodic death metal.</LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL>&nbsp;</P>
+<P><LABEL SessionId="1740891749">В нашем разделе mp3 можно ознакомиться с некоторыми песнями с этих альбомов.<BR>Есть надежда, что все эти альбомы выйдут по лицензии на российский рынок.</P></LABEL>
+Автор: Dimas
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 27.01.2004 news Immemorial, Dimension Zero and Handful of Rain in Europe
+
+14.02.04 D-Engelsdorf, Hellraiser<BR>15.02.04 D-Essen, Zeche Carl<BR>16.02.04 D-Hamburg, Markthalle<BR>17.02.04 D-Frankfurt, Batschkapp<BR>18.02.04 D-M&uuml;nster/Breitefeld, Live Arena<BR>19.02.04 UK-London, The Underworld<BR>20.02.04 F-Nancy, Azimut 854<BR>21.02.04 NL-Arnheim, Goudvishal<BR>22.02.04 D-Aaalen, Rock It<BR>23.02.04 D-M&uuml;nchen, Garage<BR>24.02.04 CH-Pratteln, Konzertfabrik Z7<BR>25.02.04 I-Bergamo, Motion<BR>26.02.04 A-Innsbruck, Hafen<BR>
+Автор: Vit Belov
+
+### 18.05.2005 reviews Скорость отличная, еще бы хитовости чуть-чуть.
+
+<P>Обложка пластинки мне сразу приглянулась – связанный чувак в углу комнаты и надпись кровью на стене – This Is Hell навевала мысли, что альбомчик не из легких. Ожидания оправдались сторицей. Музыка Dimension Zero представляет собой довольно органичный сплав шведского быстрого трэша новой волны и блэка с легкими вкраплениями SMDM-а. Сыграно все на одном дыхании и довольно запредельных скоростях. Интересные гитарные рифы, мощный, хотя и не особо выдающийся вокал. У пластинки явно больше плюсов, чем минусов. К минусам я бы отнес практически полное отсутствие соляков – я думаю, что в этом материале они были бы достаточно уместны. Спрашивается – зачем тогда держать двух гитаристов? Ну и основной минус – достаточно стандартный материал, мало радующий разнообразием. Слушаешь альбом – вроде все нормально, все нравится, но после прослушивания в памяти не оседает ни одной мелодии.</P>
+Автор: Fucker
+
+### 02.05.2009 reviews Что могло быть с IN FLAMES
+
+<P>DIMENSION ZERO представляют собой то, что могло стать с IN FLAMES, если бы группа пошла по другому пути. Безусловно, в этом случае об IN FLAMES вряд ли слышало бы столько народу, сколько в наши дни, но гипотетически такая ситуация была возможна. В группе на момент её основания было три участника знаменитой шведской группы: два гитариста Jesper Stromblad и Glenn Ljungstrom, а также пробовавшийся в IN FLAMES перед Anders Friden бывший участник MARDUK вокалист Jocke. Представьте себе, что играли бы IN FLAMES с таким певцом?</P>
+<P>Видимо, не заладилось тогда в 1995 с тяжёлой притрэшованной вариацией melodic death-metal и пришлось организовывать DIMENSION ZERO. Чтобы закончить с IN FLAMES сообщу, что там из участников DZ остался только Stromblad, да и тот постоянно отдыхает по разнообразным «рехабам» и вряд ли играет такую же видную роль, как во времена основания. Melodic death-thrash от DIMENSION ZERO меня впечатлил. Мощные быстрые песни с интересными и известными каждому фанату стиля ходами. Несколько песен запросто могли попасть в классический ряд шведского стиля 90-х годов. Нельзя сказать, что третий альбом DZ это глоток свежего воздуха, но определённый шарм у этой пластинки есть.<BR>SMDM уже давно не является самым популярным стилем на мировой тяжёлой сцене, но его постоянным поклонникам рекомендуется послушать этот альбом, как один из вариантов развития. Старые добрые мелодии, старый добрый thrash-metal и современный уровень реализации.</P>
+<P>P.S.: На закуску кавер на BEE GEES “Stayin’ Alive”. Многие любители американских комедий 80-х и 90-х вспомнят эту вещь.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Что из себя представляет Dimension Zero?

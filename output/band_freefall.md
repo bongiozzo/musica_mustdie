@@ -21,6 +21,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.08.2013 news Blues rock на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26069.jpg" width=660 height=211></FONT> 
+<P></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Nuclear Blast</STRONG> продолжает&nbsp;собирать под&nbsp;своё&nbsp;крыло коллективы, звучание которых носит&nbsp;явную ностальгию по 70-м годам. Вот имена нескольких подобных групп&nbsp;уже&nbsp;нашедших пристанище на некогда одном из самых бескомпромиссных европейском лейбле: <STRONG>ORCHID</STRONG>, <STRONG>GRAVEYEARD</STRONG>, <STRONG>SCORPION CHILD</STRONG>, <STRONG>WITCHCRAFT</STRONG>,<STRONG> FREE FALL</STRONG> и <STRONG>KADAVAR</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На этот раз их новым питомцем стал молодой шведский коллектив <STRONG>BLUES PILLS</STRONG>. Группа, как не трудно догадаться, исполняет blues rock. И является самым легковесным коллективом из всех вышеперечисленных.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На счету <STRONG>BLUES PILLS</STRONG> всего один миньон<STRONG> "Bliss"</STRONG>, выпущенный&nbsp;в мае прошлого года&nbsp;на небольшом лейбле под названием <STRONG>Crusher</STRONG>.</FONT></P>
+<P>Концертное видео, снятое во время выступления в Гётеборге (Швеция, январь 2013): <A href="http://youtu.be/B6ZQtk2kU-Y">http://youtu.be/B6ZQtk2kU-Y</A></P>
+<P>Концертное видео, снятое во время выступление на фестивале в Португалии (2012 г.): <A href="http://youtu.be/xOomz-QZx7o">http://youtu.be/xOomz-QZx7o</A></P>
+<P>Официальный сайт: <A href="http://www.bluespills.com/">http://www.bluespills.com</A><BR>Facebook: <A href="http://www.facebook.com/bluespills">http://www.facebook.com/bluespills</A><BR>Youtube: <A href="http://www.youtube.com/user/BluesPills">http://www.youtube.com/user/BluesPills</A><BR>Twitter: <A href="http://twitter.com/BluesPills">http://twitter.com/BluesPills</A> </P></CENTER>
+Автор: Headcrusher
+
+### 05.12.2015 news Хиты продаж за ноябрь
+
+<P><IMG border=0 hspace=0 alt="" src="/images/news_rus/2015.12/28560.jpg" width=250 align=right height=250>Хиты продаж за ноябрь</P>
+<P>Список лидеров продаж на сайте <A href="http://escapemind.ru/">http://Escapemind.ru</A> и на Горбушке за ноябрь 2015 года:</P>
+<P><STRONG>1. MAGNUS KARLSSON’S FREE FALL - Kingdom Of Rock<BR>2. DEF LEPPARD "Def Leppard"<BR>3. LACRIMOSA 'Hoffnung'</STRONG><BR>4. DARK MOOR “Project X” 2015<BR>5. JOEL HOEKSTRA’S 13 'Dying To Live'<BR>6. EKTOMORF “Aggressor” 2015<BR>7. W.A.S.P. "Golgotha" - 2015 [digi]<BR>8. ELDRITCH “Underlying Issues” 2015<BR>9. GRAVE "Out Of Respect For The Dead" - 2015<BR>10. MALEVOLENT CREATION "Dead Man’s Path" - 2015</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

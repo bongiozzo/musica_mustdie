@@ -142,6 +142,583 @@ version with Ruth "Ophelia" Knepel on vocals).
 
 * C группой "Ra" Vlad Dracula
 
+## Публикации
+
+### 24.08.1999 news 
+
+<p>Agathodaimon записывают второй альбом "A Higher Art Of Rebellion" на родине Дракулы в Румынии.</p>
+
+Автор: Vit Belov
+
+### 28.07.2000 articles Higher art of Agathodaimon
+
+<p> - Sathonys, tell me some about your band. What's your plans for the future?</p>
+<p> Well, plans for the future... we hope to record our third album soon, of course. We played some great festivals this summer, like Wacken Open Air, Wave Gotik Treffen or Wido Rock in Belgium, and we had our first european headliner tour with Siebenbьrgen and Graveworm, also a lot of single gigs at the weekends... to achieve a good third album, we have to solve the problem with our romanian vocalist, to get him back to Germany somehow...</p>
+<p> - What do you know\think about Russia? Don't you know some Russian metal bands? What music do you prefer to listen?</p>
+<p> To be honest, I've never been to Russia and I only know what media shows... and I'm surprised there are so many russian porno sites, hehe. Russian bands.. hm, God's Tower, Nokturnal Mortum.. don't remember much... do Kruiz still exist? Hehehe..</p>
+<p> <img src="/images/articles/2000.07/articles_1974.jpg" hspace=5 vspace=5 align=right></p>
+<p> - What do you think about church & politicy ?</p>
+<p> We despise every form of religion. Religion always oppresses people. Man should be strong enough to walk his path alone. No rules, no master. Concerning politics, I don't care. I can't influence what's going on, and politics always sucks.</p>
+<p> - Why you have chosen such name for the band? What does it means?</p>
+<p> Oh fuck, always this question. Here we go... For instance, there's the so-called riddle of the Agathodaimon, a spell, which delivers a secret name or magic word. It is contained in an alchemistic scroll dedicated to "ruler Heraklius", which probably was written by a "Polyhistor" (don't know how to translate this, sorry) in 615 a.c., Alexandria, Greece, named Stephanos. In this scroll, there's a riddle embedded, deriving something about 300 a.c., which was translated in several ways. I can't translate them into english as accurate as it should be, but I'll do it as good as possible. So, here's the first example: "Letters I count nine. Four syllables I am. Now recognize me/Which one of three first, has each one two letters/And what remains is included in the rest; but five should be spoken without sound/And the sum of numbers contains eight hundred two times/Three times thirty plus seven should be added/And if you know who I am/Then you are not uninitiated into the wisdom of the gods." Another translation from the second line on goes something like this: "Behold: Of the first three syllables, each has two letters/But the fourth has three. Five letters are consonants/Create the sum of numbers - You will find eight hundred two times/Plus three times thirty and seven..." Agathodaimon (gr, simply translated "good spirit") is a mythic personality which is often mentioned in old alexandrynic scrolls, like Hermes Trismegistos, and is often identified with Seth, the son of Adam. The riddle of the Agathodaimon was held in the style of the late "sybillinic oracle", and it was often tried, but no one ever solved this riddle until now. That's because it isn't really sure how to translate if from the language that was spoken at this time. A word, that lives up to the stated definitions above und derives out of hellenistic magic couldn't be found, the solutions so far (Arsenikon, Ampelitis, Lithargyros, Theanthropos, Kinabaris, Phosphoros, Kassiteros) only fulfil some of the conditions. Kiesewetter wrote, that many scholars like Morhof, Leibniz, Borrichius, Cardanus, Gohory, G.W. Wedel and K. A. Kortьm, the author of the "Jobsiade", tried to do their best, but failed.</p>
+<p> - Tell me, please, about your lyrics. Which themes you touch in your texts?</p>
+<p> This is a question Vlad should answer, as he takes care of the lyrics. But they deal with dark subjects in different forms, we even have kind of "love songs", but in a special way; we always try to evoke big emotions, passion, desire, melancholy, aggression, hate.. I don't want to go into detail concerning the lyrical contents, you should try to read them and get your own impression.</p>
+<p> - Do you have a hobby, except occupations by the music? What are you doing when you have a free time?</p>
+<p> I'm working on my website, www.agathodaimon.de, and I work at Nuclear Blast, our record label, to earn some money to make a living. I also play bass (I used to play in Nocte Obducta), write reviews and interviews for the german magazine Metal Hammer, enjoy good movies, good books, good food... and sex, hehe.</p>
+<p> - I guess you much time spend in the internet!! You made a cool site!</p>
+<p> <img src="/images/articles/2000.07/articles_1972.jpg" hspace=5 vspace=5 align=left></p>
+<p> I like surfing on the net, that's for sure. It relaxes ;)</p>
+<p> - Tell some, please, about your work at Nuclear Blast. Much groups in our country dreamed to conclude a contract with this label :) How much demo-materials (CD, MC anf other) from different groups you get ?</p>
+<p> My work at Nuclear Blast, oh well, right now I still take care for our mailorder sortiment, I decide which CD's or merchandise to sell through our mailorder and which not. This doesn't has much to do with the label. But I'll soon take care for our internet presentation. I don't know how many CD's we get, but I think 2-3 each day at least.</p>
+<p> - But who emerges presently with you on your live shows, while your vocalist stands in Romania?</p>
+<p> Concerning live shows, we mostly do gigs with Akaias, who did the vocals on the first album Blacken The Angel. On our last tour, we had the possibility to get Vlad back to us for that period, so he was with us.Concerning television in Europe, might be that they don't show what's really going on, but I suppose it's the other way round as well. I could imagine that you're somehow still get told on TV or in the press that those germans still are Nazis or so, hehe.</p>
+<p> - I know that in European coutries very often on the television show not at all truth about our country. You simply scare that what beside us occur! :) Would you like to go to the Russia with live show?</p>
+<p> Of course we'd like to play in Russia, but I don't know if somebody would be interested to see us, hehe. And I don't think some promoter would pay our costs to travel there... recently RAGE toured in Russia, but of course they are much more popular.</p>
+<p> - You're wrong ! There are a lot fans of your music here... But what about promoters.. I think you're right here :(( ...... Well, What's better for you - working in the studio or plaing live (concertoes)?</p>
+<p> Of course playing live is much more fun. Studio work is so hard. But on the other hand, it lasts longer than a gig, it's great to have the final result in your hands then, if the CD turned out good of course ;)</p>
+<p> - What do you think about pirates (CD-pirates)? Here is your pirate CDs in Russia.</p>
+<p> I received this bootleg some weeks ago. Bad! As long as nobody thinks it's really a regular album of us ;) To get more serious, I don't know if peoplein Russia have enough money to buy CD's, I don't know how much they cost. If there really is a fan of us, that is into our music but can't afford to buy the album, I'm not angry if he buys a bootleg. But it's a shame that those people producing bootlegs make profit out of it... better copy our CD, don't buy a pirate-CD!</p>
+<p> <img src="/images/articles/2000.07/articles_1973.jpg" hspace=5 vspace=5 align=right></p>
+<p> - Plaing in the group - Is it only hobby for you? You should like to earn on the life only by music?</p>
+<p> Of course this would be fantastic. But this will never happen as we'd have to sell lots and lots of records...</p>
+<p> - Do you often have a rehearsals? Are you already write some new songs for next album?</p>
+<p> We're currently writing new songs. We only rehearse at the weekends as the members of the band don't live in the same city.</p>
+<p> - How many friends do you have? Do you spend your free time together with members of band (drinking a beer together or something like that :))?</p>
+<p> Well, I have many friends in the scene, but only few really good friends with which I spend my time. I rather prefer to have my girlfriends at my side..</p>
+<p> - Sathonys, tell me, please, some about German black-metal scene. (What about me, I know some cool your metal bands (except your band): Mystic Circle, Crematory, Darkseed, Die Apokalyptischen Reiter, Falkenbach, Haggard, Sodom..... Are they well-known in your country?</p>
+<p> Well, Mystic Circle are well known, yes. I guess them and Agathodaimon are the most popular bands from Germany. But our styles are very different. Some bands I can recommend are: Cryptic Wintermoon, Asaru, Atanatos, Gardens Of Gehenna, Desaster, Impending Doom, Adorned Brood, Insignium, Bethlehem, Empyrium, Nocte Obducta, Falkenbach, Nagelfar, Lunar Aurora and lots more... All those bands you mentioned are quite famous, most known bands of course are Sodom, Kreator, Destruction, Haggard have grown quite big as well (a big hello to their guitarrist Danny), not to forget gothic acts like Lacrimosa, Forthcoming Fire (they used the talents of a russian female singer some times) or Love Like Blood, or Weissglut, one of my favourite bands. It's useless to try to list them all, you surely would forget some important bands. The scene is very big here, and therefore you'll find everything from Die Hard-fans to close minded underground-fetishists, weird people or people you like to be in touch with... I think the scenes around the world don't differ that much, but I noticed that in the last years there's too much backstabbing around, people telling shit about you and your band without knowing them.</p>
+<p> - Some your metal bands make contracts (sell license) with our labels to release their license CDs here, in Russia. For example, Ancient Ceremony recently did so... What you think about it?</p>
+<p> I think it's a good idea. I don't know if Blast has a distribution for Russia, but if not, perhaps a company would be interested? Just mail me ;)</p>
+<p> - Is your native language Romanian? I think, when you has left in Germany, you must have to learn German language And you know English so good. How did you reach this?</p>
+<p> Well, I was born in Germany, as I said, only Vlad and Byron are native romanian. Byron doesn't know to speak german, but Vlad had partly grown up in Germany and Romania, so he speaks both languages perfectly well, although he has a romanian accent.</p>
+<p> - How is distinguished your scenic image from your real life?</p>
+<p> Hm, Sathonys is just a certain aspect of my person as a whole, it's the hidden rockstar in everyone of us, hehe. Well, the reason for this nickname simply is to have a certain athmosphere around it, all those older bands I liked years ago from Venom till Samael, they all used nicknames. Cronos soundsbetter than Conrad Lant ;)</p>
+<p> - Your friends usually call you "Sathonys" or by your name? :)</p>
+<p> My friends call me Count, but I don't know why. There aren't much (or any) similarities between Grishnackh (Burzum) and myself, although we're born nearly on the same day.</p>
+<p></p>
+<p> Nybras</p>
+
+Автор: Nybras
+
+### 30.07.2000 articles Higher art of Agathodaimon
+
+<p>На наши вопросы ответил Sathonys, гитарист группы Agathodaimon.</p>
+<p></p>
+<p> - Пожалуйста, расскажи немного о своей группе. Чем вы занимаетесь в данный момент, какие планы на будущее?</p>
+<p> О'кей, планы на будущее... мы надеемся записать новый альбом вскоре. Еще мы отыграли не нескольких больших летних фестивалях, таких как Wacken Open Air, Wave Gotik Treffen и Wido Rock в Бельгии, еще мы ездили в качестве хэллайнеров в небольшое европейское турне с группой Graveworm... Чтобы записать хороший третий альбом мы должны решить проблему с нашим румынским вокалистом - как-нибудь вернуть его обратно в Германию...</p>
+<p> - Что ты знаешь\думаешь о России? Какую музыку любишь слушать? Может быть, знаешь какие-нибудь наши металлические группы?</p>
+<p> Если честно, я никогда не был в России и знаю только то, что показывают по телевизору и говорят по радио... Я удивлен - есть столько русских порно-сайтов, хе-хе! Российские группы... хм, God's Tower, Nokturnal Mortum... не помню больше... Круиз еще существует? Хе-хе..</p>
+<p> - Что ты можешь сказать об аудио-пиратах? Тут, в России есть ваши пиратские диски...</p>
+<p> <img src="/images/articles_rus/200.07/articles_rus_1992.jpg" hspace=5 vspace=5 align=right></p>
+<p> Я получил бутлег несколько недель назад. Фигово! Хорошо, что пока никто думает, что это наш очередной альбом ;), а если более серьезно - я не знаю, имеют ли люди в России достаточно денег, чтобы покупать CD, я не знаю, сколько они стоят. Если там действительно есть наши фэны, но они не могут позволить себе купить альбом, я не против, если они покупают бутлеги. Но те люди, которое делают эти бутлеги и имеют прибыль с этого - это отвратительно... лучше переписывайте наши диски, а не покупайте пиратские!</p>
+<p> - Как ты относишься к политике и к религии?</p>
+<p> Мы презираем любую форму религии. Религия всегда угнетает людей. Человек должен быть достаточно сильным, чтобы идти по этому пути. Никаких правил, никаких начальников. Относительно политики, мне она безразлична. Я не могу никак повлиять на то, что происходит. Политика - это отстой.</p>
+<p> - Расскажи о вашей лирике. Какие темы вы затрагиваете в своих текстах?</p>
+<p> Этот вопрос следовало бы адресовать к Владу, поскольку он занимается текстами песен. Они связаны с темными силами во всех их проявлениях, у нас также есть "песни про любовь", но в нашем, особенно представлении; мы всегда стараемся вызывать большие эмоции, страсть, желание, меланхолию, агрессию, ненависть... Я не хочу углубляться в детали, вы сами должны прочитать наши тексты и получить свое собственное впечатление.</p>
+<p> - У тебя есть хобби, кроме занятий музыкой? Как ты проводишь свободное время?</p>
+<p> Я работаю над своим web-сайтом www.agathodaimon.de, и еще работаю в Nuclear Blast, нашем звукозаписывающем лейбле, чтобы зарабатывать деньги себе на жизнь. Я также играю на басу, делаю ревью и интервью для немецкого журнала Metal Hammer, люблю хорошие фильмы, хорошие книги, хорошую еду... и секс, хехе.</p>
+<p> - Я полагаю, ты проводишь много времени в интернете! У тебя классный сайт!</p>
+<p> Да, мне нравится интернет.. Это расслабляет ;)</p>
+<p> - Расскажи немного о своей работе в Nuclear Blast. Многие группы в нашей стране мечтают подписать контракт с этим лейблом :) Много ли вы получаете демо-материала от разных групп?</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1993.jpg" hspace=5 vspace=5 align=left></p>
+<p> В данный момент я работаю в отделе почтовых доставок. Я решаю, какие диски или товары продавать по почте, а какие - нет. Это не очень связано с работой самого лейбла. Я не знаю, как много дисков приходят к нам, но я думаю 2-3 диска каждый день, как минимум...</p>
+<p> - А кто выступает с вами на концертах в данный момент, пока ваш вокалист находится в Румынии?</p>
+<p> Мы выступаем вместе с Акаиасом, который исполнял вокальные партии для нашего первого альбома "Blacken The Angel". В нашем последнем турне, у нас была возможность, пригласть Влада к нам на этот период, так что он был с нами...</p>
+<p> - Я знаю, что в западноевропейских странах очень часто по телевидению говорят не праду, относительно России. Вас просто пугают :) Хотели бы вы приехать и выступить у нас?</p>
+<p> Конечно, мы хотели бы выступить в России, но не уверен, что кому-то было бы интересно увидеть нас, хехе. И я не уверен, что есть промоутеры, которые захотят заплатить нам, чтобы мы приехали в Россию... Недавно к вам приезжали Rage, но они на много популярнее нас.</p>
+<p> - Ты не прав! У нас есть много любителей вашего творчества... Но что касается промоутеров - тут ты прав :(.... О'кей, скажи, что тебе больше нравится - работать в студии или выступать на концертах?</p>
+<p> Конечно же, живые выступления приносят намного больше удовольствия. Работа в студии очень тяжелая, но с другой стороны, очень приятно получать конечный результат работы, естественно, если диск получился хороший :)</p>
+<p> - Игра в группе - это для тебя только хобби? Хотел бы ты зарабатывать на жизнь только музыкой?</p>
+<p> Конечно, это было бы прекрасно. Но так никогда не будет, потому что для этого мы должны продавать много-много своих дисков...</p>
+<p> - Вы часто репетируете? Вы уже написали немного материала для нового альбома?</p>
+<p> Мы как раз занимаемся сочинением нового материала. А репетируем мы только по выходным, поскольку члены группы не живут в разных городах.</p>
+<p> - У тебя много друзей? Ты проводишь свободное время вместе с другими членами группы?</p>
+<p> У меня есть много знакомых, но только несколько человек можно назвать моими настоящими друзьями. С ними я и провожу свое свободное время. И все же я больше люблю проводить время со своей подругой.</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1994.jpg" hspace=5 vspace=5 align=right></p>
+<p> - Сатонис, как обстоят дела не германской блэк-металлической сцене. Я знаю много классных ваших групп (Mystic Circle, Crematory, Darkseed, Die Apokalyptischen Reiter, Falkenbach, Haggard, Sodom....) Они тоже широко известны в вашей стране?</p>
+<p> Да, очень хорошо известны. Я думаю, что Mystic Circle и Agathodaimon наиболее популярные группы в Германии. Еще я могу порекомендовать группы Cryptic Wintermoon, Asaru, Atanatos, Gardens Of Gehenna, Desaster, Impending Doom, Adorned Brood, Insignium, Bethlehem, Empyrium, Nocte Obducta, Falkenbach, Nagelfar, Lunar Aurora и др. А так же очень известны готы Lacrimosa и Forthcoming Fire (они, кстати, используют вокал русских певиц иногда)...</p>
+<p> - Некоторые ваши группы продают нашим лейблам лицензию на выпуск дисков здесь, в России. Например, Ancient Ceremony недавно так поступили... Что скажешь на этот счет?</p>
+<p> Я думаю, это хорошая идея. Я не знаю, имеет ли Nuclear Blast дистрибьюцию в России, и если нет, то я думаю, он в этом заинтересован.</p>
+<p> - Твой родной язык - румынский? Я думаю, когда ты приехал в Германию, тебе пришлось выучить немецкий язык. И ты так же хорошо знаешь английский. Как ты достиг этого?</p>
+<p> Я родился в Германии, как я говорил, только Влад и Байрон из Румынии. Byron не говорит по немецки, но Влад прекрасно владеет двумя языками, хотя говрит с небольшим румынским акцентом.</p>
+<p> - Как отличается твой сценический имидж, от твоей реальной жизни?</p>
+<p> Сатонис - это просто определенный аспект моей персоны в целом, это скрытая рок-звезда в каждом из нас, хехе. Причиной того, что я взял себе псевдоним - это желание создать какую-то специфическую атмосферу. Все старые группы, которые мне очень нравятся, от Venom до Samael - они импользовали псевдонимы. Кронос звучит лучше, чем Конрад Лант :)</p>
+<p> - Друзья обычно называют тебя "Сатонис" или по имени? :)</p>
+<p> Мой друзья зовут меня "Каунт", но я не знаю почему. Тут нет ничего общего между Гришнаком (из Burzum) и мной, хотя мы родились почти в один день...</p>
+
+Автор: Nybras
+
+### 01.11.2000 news Agathodaimon работают над новым альбомом.
+
+<p>Agathodaimon работают над продолжением "Higher Art Of Rebellion", рабочеее название которого - "Architectura Apocalipsei". Запись, вероятно, состоится в марте 2001 года.</p>
+
+Автор: Morsus
+
+### 01.11.2000 news Agathodaimon are working on new album.
+
+<p>Agathodaimon are working on the successor of "Higher Art Of Rebellion", which so far bears the working title "Architectura Apocalipsei" and probably will be recorded in March 2001.</p>
+
+Автор: Morsus
+
+### 10.11.2000 news Agathodaimon currently are in the song-writing-process
+
+<p> Agathodaimon currently are in the song-writing-process for their third album "Architectura Apocalipsei", which is scheduled to be recorded in March. To achieve a better sound again, they will record in Germany again, their two Romanian singers Vlad and Byron will be there again, too.</p>
+
+Автор: Nybras
+
+### 10.05.2001 news Агатодемоны в студии....
+
+<p>С понедельника блэкстеры сидят в Kohlekeller Studio и занимаются... препродакшеном нового альбома под руководством Kristian Kohlmannslehner. По обещаниям материал будет чем-то средним между "Blacken The Angel" и "Higher Art Of Rebellion". Также AGATHODAIMON готовят совместный проект с электрониками NERVENBEISSER. Это будут кавер-версии разных известных команд.</p>
+
+Автор: Yermola
+
+### 10.05.2001 news AGATHODAIMON ...
+
+<p>The Blacksters currently are in the Kohlekeller Studio of CENTURY's Kristian Kohlmannslehner for the preproduction to their new album, which will be between "Blacken The Angel" and "Higher Art Of Rebellion". Furthermore they are working on an experimental collaboration with Electronics NERVENBEISSER. In that one there should be cover-versions of the respective other band.</p>
+
+Автор: Yermola
+
+### 03.08.2001 news Закончена работа над очередным альбомом Agathodaimon
+
+<p> Agathodaimon завершили запись третьей главы своего творчества. Сей опус, соответственно названный "Chapter Three", появится на полках магазинов 12-ого ноября и, как ожидается, будет превосходным black-шедевром. Трек-лист будущего альбома: "An Angel's Funeral", "Spirit Soldier", "Paradise Beyond", "The Ending Of Our Yesterday", "Past Shadows", "Yesterday's Reprise", "Departure", "Sacred Divinity", "Burden Of Time".</p>
+
+Автор: Morsus
+
+### 03.08.2001 news The work on the upcoming album of Agathodaimon is done
+
+<p> Agathodaimon have finished recording their third album. This opus titled as "Chapter Three" will be available the 12th of November, and it will be a great album. Here's the tracklist: "An Angel's Funeral", "Spirit Soldier", "Paradise Beyond", "The Ending Of Our Yesterday", "Past Shadows", "Yesterday's Reprise", "Departure", "Sacred Divinity", "Burden Of Time".</p>
+
+Автор: Morsus
+
+### 26.11.2001 reviews Третья глава вампиро-ангельских хроник
+
+<P>Третья глава вампиро-ангельских хроник. Музыка самого высшего уровня. Превосходный gothic-black-doom-death metal. Великолепное сочетание экстремальности с мелодичностью и атмосферностью. Разнообразие вокалов, как чистых, так и экстремальных. Хорошо продуманы и музыка, и вокальный ряд. Диапазон музыкальных интонаций альбома чрезвычайно широк. Иногда чудятся фрагменты напоминающие Dissection, а иногда Crematory. Agathodaimon настолько расширили собственные стилистические рамки и музыкальные границы, что их музыка способна понравиться широким массам слушателей тяжелой музыки. Здесь есть и эпические мелодии, и быстрые агрессивные гитарные атаки, и акустическо-клавишные переливы. Музыканты чрезмерно усовершенствовали себя во всех планах. Как в техническом, так и в художественном. Группа смело идет на эксперименты, но и не отходит далеко от своих блэковых корней. Новый альбом группы - произведение искусства. Рекомендую всем любителям отличных мелодий.</P>
+Автор: Dimas
+
+### 07.12.2001 news CENTURY MEDIA RECORDS Release Schedule...
+
+<p>January 22nd, 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> February 5th, 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> February 19th, 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence <BR><BR> March 5th, 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 07.12.2001 news График релизов Century Media Records ...
+
+<p>22-е января 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> 5-е февраля 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> 19-е февраля 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence<BR><BR> 5-е марта 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 16.01.2002 reviews The third chapter of the vampire-angelic chronicles
+
+<p>The third chapter of the vampire-angelic chronicles. Music of the highest level. Excellent gothic-black-doom-death metal. A magnificent combination of extremeness with melodic and atmosphere. A variety of vocals, both clean, and extreme. Both music and vocal line are well balanced. The range of musical intonations of an album is extremely wide. Sometimes the fragments are reminding Dissection, and sometimes - Crematory. Agathodaimon expanded own stylistic frameworks and musical borders, their music is capable to like broad masses of the listeners of heavy music. Here is epic melody, and fast aggressive guitar attacks, and acoustic-keyboard parts. The musicians excessively have improved themselves in all plans. Both in technical, and in art. The band safely goes on experiments, but also does not depart far from black-metal roots. A new album of band - work of art. I recommend to all fans of excellent melodies.</p>
+
+Автор: Dimas
+
+### 18.06.2002 reviews Melodic yet deliciously harsh black metal
+
+<p>I was forced to review this CD having had a chance to give it one and only listen. Therefore; please forgive me if you consider me mistaken. Despite somewhat… well, not even "somewhat" but "shocking" band pics – five of them portraying the band in front of a limousine and two German models, whilst individual photos picture Sathonys and co. INSIDE the "Lincoln". Sort of weird photo session if taking into account it was a black metal act, isn't it? So, despite… and blah-blah-blah… musically, AGATHODAIMON hadn't gone for worse, that's for sure. Melodic yet deliciously harsh black metal has always been and still is the path AGATHODAIMON have embarked and still are moving further on. "Chapter III" features bewitching "clean" male vocals courtesy of Radu Minulescu (obviously a singer of Romanian origin) and… no Vlad. A pity, indeed, since without his raw and simultaneously more or less grim shrieks this CD sounds less dismal. Those who mourn his departure (?) will rejoice once ballad-like "Sacred Divinity" shreds your stereo, though. As a result, really good work, although not as distinguishable as "Higher Art Of Rebellion" was.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 04.10.2002 news Romanian vocalist Vlad left Agathodaimon
+
+<p>Agathodaimon are recently working on their (yet untitled) fourth album which will be recorded in early 2003. Guitarist Sathonys told the following: "We'll surely deliver an album that again combines elements of all previous albums, but also will further show some new elements in our sound. There's also some sad news this month, as our romanian vocalist Vlad decided to finally leave the band, as he wants to emigrate to the US and form a band in the vein of Manson/Rob Zombie there. It wasn't an easy decision, but as he lost his passion for extreme music since quite some time, it's probably the best solution. It won't affect the upcoming album, as even the last album "Chapter III" was already written and recorded without him. But at least it now enables us to focus on the band without having to worry anymore whether he'll be able to participate somehow on some songs or not (as he was forced to live in Romania the past years). That's a slight relief, although it's very sad to see a friend and gifted songwriter go. But don't worry, we'll keep you up to date concerning his future activities. And who knows, perhaps we'll work together in the future in some way..."</p>
+
+Автор: Morsus
+
+### 04.10.2002 news Румынский вокалист Влад покинул Agathodaimon
+
+<p>Agathodaimon недавно начали работать над пока ещё неназванным четвертым альбомом, который предполагается записать в начале 2003 года. Между тем, из группы ушёл вокалист Влад. Гитарист Сатонис сделал заявление по этому поводу: "Наш румынский вокалист Влад решил всё-таки оставить группу. Он собирается эмигрировать в США и создать там проект в духе Marilin Manson/Rob Zombie. Непростое это было решение, но сей факт никак не отразится на новом альбоме. Ведь и прошлый "Chapter III" записывался уже без него. Но, по крайней мере, теперь мы сосредоточимся на музыке, не волнуясь больше за то, сможет он или не сможет принять участие в записи наших песен. Это - некоторое облегчение, хотя и грустно, что не сможем больше видеть друга и одарённого поэта."</p>
+
+Автор: Morsus
+
+### 29.03.2003 news Новости от AGATHODAIMON
+
+<p>15 октября 2003 года на Nuclear Blast Records выходит новый альбом германской black metal формации AGATHODAIMON "Darkened Days". Альбом будет записываться в Kohlekeller Studio с продюссером Kristian Kohlmannslehner'ом.</p>
+
+Автор: Dimas
+
+### 06.10.2003 news AGATHODAIMON начинают работу над новым альбомом
+
+<P>Германские симфо-блэкари <B>AGATHODAIMON</B> начали работу над своим новым альбомом <B>"Darkened Days"</B>, выход которого планируется в мае 2004 года через <B>Nuclear Blast Records</B>. Группа воссоединилась с басистом <B>Darin "Eddie" Smith.</B> Запись альбома пройдет&nbsp;в <B>Kohlekeller Studio</B> с продюсером <B>Kristian Kohlmannslehner</B> (<B>CREMATORY</B>). Вероятно, релиз будет содержать бонусный диск, на котором будут представлены записи с ранних демо-записей коллектива, а также нереализованные трэки.<BR></P>
+Автор: Dimas
+
+### 12.10.2003 news Изменения в составе GRAVEWORM
+
+В итальянской gothic black metal группе <B>GRAVEWORM</B> появились новый гитарист и бас-гитарист. Гитарист <B>Stefan Unterpertinger</B> покинул группу некоторое время назад, поэтому на его место пришел <B>Lukas</B>, который помогал группе, заменяя их басиста, еще в турне с <B>AGATHODAIMON</B>. А место бас-гитариста занял <B>Harry</B>, ушедший из группы давно. Он является одним из основателей <B>GRAVEWORM</B>.
+Автор: Darkfall
+
+### 23.10.2003 news AGATHODAIMON in SCHALKAU
+
+22.11.2003 SCHALKAU - tba ( D)
+Автор: Vit Belov
+
+### 28.02.2004 news AGATHODAIMON выпустят новый альбом
+
+<P><B>AGATHODAIMON</B> всё ещё не записали новый альбом. Его название сменилось на <B>SERPENT’S EMBRACE</B>, и выйдет он теперь 21 июня. Как и сообщалось, альбом выйдет с бонус-диском с ранними записями коллектива.</P>
+Автор: Vit Belov
+
+### 28.02.2004 news AGATHODAIMON still record new album
+
+<P><SPAN lang=EN-GB>The recordings for <B>SERPENT’S EMBRACE</B> (release date: 21st of June) still aren’t over, but everything will be recorded and mixed until the end of March. Afterwards the band will take care of the bonus CD, which will be included with the limited first edition of the album. It will most probably contain old demo tracks, rare or new versions of various songs etc. Maybe even a video clip, as the band is currently making plans to produce one. If all turns out well, they’ll also record an exclusive song which will be used for the upcoming soundtrack of “<B>Alone In The Dark</B>”, a movie which is based on the famous computer game (similar to “<B>Resident Evil</B>”). <B>Christian Slater</B> (Interview With The Vampire etc.) is already confirmed as the main actor <B>Edward Carnby</B>.</SPAN></P>
+<P><SPAN lang=EN-GB><BR>Besides, guitarist <B>Sathonys </B>will participate at the biggest underground party in Europe, the 666-Festival (10th of April) in Vienna (Mautners) as DJ, taking care of a nice black/death metal overdose. Since today, the band is also confirmed to play at the Wave Gotik Treffen in Leipzig, for Saturday the 29th of May.</SPAN></P>
+Автор: Vit Belov
+
+### 11.06.2004 news AGATHODAIMON выпускают новый альбом
+
+<P>Новый альбом <B>AGATHADAIMON 'Serpent's Embrace'</B> выйдет 21 июня на <B>Nuclear Blast</B>. Трэк-лист:</P><B><SPAN style="COLOR: #ffffff">
+<P><B><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.06/6586.jpg" width=200 align="right" border=2>01. </B><A href="http://www.nuclearblast.de/media/NB_1257.ram">Cellos For The Insatiable</A><BR><B>02. Serpent's Embrace<BR>03. Rebirth<BR>04. </B><A href="http://www.nuclearblast.de/media/light.ram">Light Reborn</A><B><BR>05. </B><A href="http://www.nuclearblast.de/media/faded.ram">Faded Years</A><B><BR>06. </B><A href="http://www.nuclearblast.de/media/solitude.ram">Solitude</A><B><BR>07. </B><A href="http://www.nuclearblast.de/media/limbs.ram">Limbs Of A Stare</A><B><BR>08. The Darkness Inside<BR>09. Bitter End<BR>10. </B><A href="http://www.nuclearblast.de/media/feelings.ram">Feelings</A><B><BR></B></P></SPAN></B>
+Автор: Vit Belov
+
+### 06.10.2004 reviews 100% качества и не только
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Нельзя сказать, что <STRONG>AGATHODAIMON</STRONG> разрушают привычные рамки стилей и являются чем-то новаторским, но то, что их работы незацикленны на каких-то определённых&nbsp;направлениях - это определённо.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>'Serpent's Embrace'</STRONG> продолжает традиции этой немецкой группы. Мелодия ставится во главу угла, поэтому любителям мелодичного металла можно сразу отправляться в магазин и оценивать эти&nbsp;"наборы нот"&nbsp;самостоятельно, ведь любые оценки творчества субъективны.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Я попытаюсь рассказать, что Вы сможете обнаружать на этом компакт-диске. <STRONG>AGATHODAIMON</STRONG> уже нельзя назвать black-metal группой. В жанре black-metal только один трэк на российском издании <STRONG>'Serpent's Embrace'</STRONG> - это бонус с ранних работ группы. Во всём остальном широкое стилистическое разнообразие. Готический мелодизм, электронное звучание гитар (здесь, следует понимать: сплетение гитар с клавишными, industrial тут нет), даже есть электронные баллады с женским вокалом. На фоне всего этого, редкие black-metal забои выглядет чужеродными.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Возможно, этот альбом слишком лёгкий. Мне он таким и показался, но предлагаю всем самим оценить уровень тяжести и хуковость мелодий (в этом у меня тоже возникли сомнения, хотя первая песня отличная). В чём я уверен на 100 процентов, так это в абсолютном качестве этой пластинки.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <a href="http://www.irond.ru">Irond</FONT></P>
+Автор: Vit Belov
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 03.08.2006 news AGATHODAIMON назвали имя нового басиста
+
+<P>Новым басистом немецкого black metal коллектива <STRONG>AGATHODAIMON</B></STRONG> стал <B>Till Ottinger</B> (ex-<B>MISANTHROPIC</B>). Музыканты заканчивают работу над своим новым альбомом, который станет продолжением предыдущего&nbsp;<STRONG>"Serpent's Embrace".</STRONG> Его выход запланирован на 24 ноября через <B>Nuclear Blast Records</B>. </P>
+Автор: Dimas
+
+### 08.01.2007 news AGATHODAIMON потеряли вокалиста
+
+<P>Вокалист/гитарист <STRONG>AGATHODAIMON Frank “Akaias” Nordmann</STRONG> покинул группу. Сообщается, что <STRONG>Франк</STRONG> получил выгодное предложение о работе, которая несовместима с творчеством в группе. <STRONG>AGATHODAIMON </STRONG>ищут нового музыканта (-ов).</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме этого, стало известно название нового альбома - "<STRONG>Phoenix</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 28.09.2008 news Новый певец в AGATHODAIMON
+
+<P><STRONG>AGATHODAIMON </STRONG>наконец-то определились с именем нового вокалиста. Им стал некто <STRONG>Chris 'Ashtrael' Bonner</STRONG>. С новым музыкантом группа продолжает работу над пластинкой "<STRONG>Phoenix</STRONG>".</P>
+Автор: Vit Belov
+
+### 13.01.2009 news Дата релиза AGATHODAIMON
+
+<P><STRONG>AGATHODAIMON</STRONG> выпустят новый альбом "<STRONG>Phoenix</STRONG>" 20 марта на <STRONG>Massacre</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.02.2009 news Обложка AGATHODAIMON
+
+<P>20 марта на <STRONG>Massacre</STRONG> выходит новый альбом <STRONG>AGATHODAIMON "Phoenix"</STRONG>. Обложку этого релиза можно посмотреть ниже.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.02/13584.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.02.2009 news Новая песня AGATHODAIMON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая песня <STRONG>AGATHODAIMON</STRONG> под названием "<STRONG>Heliopolis</STRONG>" доступна на<STRONG> MySpace</STRONG> страничке группы. Трэк попадёт на новый альбом немцев "<STRONG>Phoenix</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/agathodaimon">http://www.myspace.com/agathodaimon</A></FONT></P>
+Автор: Vit Belov
+
+### 28.02.2009 news Трэк-лист AGATHODAIMON
+
+<P>Новый альбом<STRONG> AGATHODAIMON "Phoenix"</STRONG> выходит 20 марта. Стал известен трэк-лист этой пластинки:</P>
+<P>01. <B itxtvisited="1">Heliopolis</B><BR itxtvisited="1">02. <B itxtvisited="1">Devil's Deal</B><BR itxtvisited="1">03. <B itxtvisited="1">Decline</B><BR itxtvisited="1">04. <B itxtvisited="1">Ground Zero</B><BR itxtvisited="1">05. <B itxtvisited="1">Ghost Of A Soul</B><BR itxtvisited="1">06. <B itxtvisited="1">Winterchild</B><BR itxtvisited="1">07. <B itxtvisited="1">Time Is The Fire</B><BR itxtvisited="1">08. <B itxtvisited="1">To Our Ashes</B><BR itxtvisited="1">09. <B itxtvisited="1">Amongst The Vultures</B><BR itxtvisited="1">10. <B itxtvisited="1">Oncoming Storm</B><BR itxtvisited="1">11. <B itxtvisited="1">Throughout The Fields Of Unshaded Grace</B><BR itxtvisited="1">12. <B itxtvisited="1">Grey Whisper</B></P>
+<P>А тем временем на<STRONG> MySpace</STRONG> страничке можно послушать ещё один сэмпл с будущей работы: <A href="http://www.myspace.com/agathodaimon">http://www.myspace.com/agathodaimon</A></P>
+Автор: Vit Belov
+
+### 12.03.2009 news AGATHODAIMON: Видео из студии
+
+<P><STRONG>AGATHODAIMON</STRONG> выложили в сеть кадры из студии, где они записывали новейший альбом "<STRONG>Phoenix</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qc_C32KuT70&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/qc_C32KuT70&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.04.2009 reviews Мелодичный металлический материал
+
+<P>Пять лет AGATHODAIMON готовили новый альбом. В группе проходили разнообразные пертурбации. Например, вокалиста с момента последней записи поменяли дважды. В итоге из оригинальных членов группы в составе остался только гитарист/чистый вокалист Sathonys.</P>
+<P>И всё-таки она вертится! Несмотря на все неприятные ожидания, “Phoenix” оказался очень неплохим альбомом. Конечно, ужасно старомодным, но хорошим. В конце 90-х годов, когда индустрия в тяжёлом металле была ещё не так сильна, было множество групп, которые нельзя было приписать к какому-то конкретному стилю. Музыканты творили что-то мелодичное на основе death, black и doom. У некоторых получилось выбиться в люди, некоторые остались в прошлом веке навсегда. Вот, например, назовите мне, пользуясь нынешней терминологией, что играли MOONSPELL на своих ранних альбомах? Сейчас подобное почти невозможно. Лэйблы и публика требуют конкретных названий для описания стилей. Кому охота сидеть и разбираться, что играет молодая группа, когда количество скаченного накануне превысило все мыслимые масштабы. В реальных магазинах ситуация немногим лучше. Всем подавай «конкретную» музыку. Если sympho-black, то что-то похожее на CRADLE OF FILTH или DIMMU BORGIR. Если melodic death-metal, то типа IN FLAMES или CHILDREN OF BODOM. Тяжело продать что-то похожее на все эти группы сразу, а раньше в этих стилях чётких рамок не было, и все мешали всё, не стесняясь. В итоге мы получали настоящие шедевры. Но это уже другая история, так как новый альбом AGATHODAIMON не имеет никакого отношения к шедевру. Зато всё сказанное выше к “Phoenix” имеет непосредственное отношение. Немецкий коллектив намешал все стили мелодичного брутального металла. Намешал щедро. В одной песне можно отыскать и чистый вокал, и напористый melodic-death-metal, и симфонические аранжировки. Слушается этот коктейль довольно приятно, так как группа не бросается из крайности в крайность и старается соответствовать стандартным пониманиям о мелодике и композиции.</P>
+<P>Коктейль для фэнов мелодий. Их здесь достаточно. Возможно, какие-то из них покажутся вам очень хорошими. Попробуйте.</P>
+Автор: Vit Belov
+
+### 17.08.2013 reviews Самый тяжёлый и атмосферный альбом AGATHODAIMON за последнее время
+
+<P><SPAN class=tit3>Objective</SPAN>: Немецкая команда <STRONG>AGATHODAIMON</STRONG> обладает заслуженным статусом среди покупателей альбомов. Пускай, группа выпускает новые пластинки не слишком часто, живьём она практически не выступает, и назвать её значимой для европейской сцены не представляется возможным. AGATHODAIMON также можно причислить к «профессиональным» музыкальным коллективам тяжёлого метала. Лидер группы гитарист <STRONG>Sathonys</STRONG> долгое время работал на<STRONG> Nuclear Blast</STRONG> и постиг все тонкости ремесла досконально. Все пластинки AGATHODAIMON чётко вписываются в рамки sympho-black-metal той или иной степени тяжести и не вызывают резкого отторжения у потенциального слушателя. Новая работа AGATHODAIMON “<STRONG>In Darkness</STRONG>” вышла после четырёхлетнего перерыва, но это не самый большой промежуток для этих немцев.</P>
+<P><SPAN class=tit3>Subjective</SPAN>: Новый альбом AGATHODAIMON слегка отличается от предшественника. В музыкальном плане коллектив практически полностью отказался от набившей оскомину вампирской тематики. Теперь в творчестве немцев прослеживается чёткая грань – AGATHODAIMON играют либо black-metal, либо atmospheric-metal, по какой-то причине, не смешивая эти два направления. В итоге новую работу группы можно одновременно назвать и самой тяжёлой, и самой мелодичной за последнее время. Мечта металхеда? Едва ли. Медленные заунывные треки с чистым вокалом (особенно убивает акустический бонус-трек) и забойные black-metal боевики вряд ли вызовут волну энтузиазма у ценителей классики коллектива.</P>
+<P><SPAN class=tit3>Goods</SPAN>: Релиз издан в Европе <STRONG>Massacre Records</STRONG> как в digi-pack, так и в стандартном jewel-case. Digi-pack как раз и снабжён акустической версией одного из треков. Лицензионный диск произвели <STRONG>Mazzar</STRONG>, он записан с этим самым бонус-треком, но на заднике он почему-то не указан.</P>
+<P><SPAN class=tit3>Conclusion</SPAN>: Слегка подзабытая группа с проходным альбомом. Безусловные рекомендации всем любителям позднего AGATHODAIMON, остальным можно не беспокоиться.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### I am interested in acquiring their music

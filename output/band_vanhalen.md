@@ -175,6 +175,107 @@ Engineered by Donn Landee
 
 * C группой "Chickenfoot" Sammy Hagar, Michael Anthony
 
+## Публикации
+
+### 27.02.2001 news Van Halen: возвращение David Lee Roth
+
+<p>По сообщению New York Daily News в Van Halen вернулся оригинальный вокалист David Lee Roth, заменивший на этом посту Гэрри Черроун. К настоящему моменту группа уже две недели находится в студии, где уже записаны пять новых вещей. Так же Van Halen планируют турне летом 2002.</p>
+
+Автор: Yermola
+
+### 27.02.2001 news Van Halen: David Lee Roth came back
+
+<p>Reports fly that David Lee Roth has been in the studio for the past two weeks recording with his former bandmates. The New York Daily News quoted as a source as stating, "They have five tracks recorded and are looking to tour in summer of 2002."</p>
+
+Автор: Yermola
+
+### 03.04.2001 news TRIBE OF JUDAH ...
+
+<p>Барабанщик Mike Mangini (EXTREME / ANNIHILATOR) и вокалист Gary Cherone (VAN HALEN / EXTREME) замутили новый проект "TRIBE OF JUDAH" и уже даже успели записать пару песен.</p>
+
+Автор: Yermola
+
+### 03.04.2001 news TRIBE OF JUDAH ....
+
+<p>Former EXTREME / ANNIHILATOR drummer Mike Mangini & Friends will be performing at the Berklee Performance Center in Boston, MA on Saturday, April 7th. Reliable sources indicate that former VAN HALEN / EXTREME vocalist Gary Cherone, who is in a new band called TRIBE OF JUDAH with Mangini, will “pop over” for a song or two.</p>
+
+Автор: Yermola
+
+### 16.01.2002 news David Lee Roth, Lars Ulrich и Kirk Hammett слились в творческом экстазе...
+
+<p>Фронтмен "VAN HALEN" David Lee Roth, барабанщик "METALLICA" Lars Ulrich и гитарист Kirk Hammett с продюссером Bob Rock в лос-анджелесской Henson Studios работают над саундтреком к пока-не-известному фильму. Дальше к процессу записи подключится еще гитарист "MARILYN MANSON" - John 5....</p>
+
+Автор: Yermola
+
+### 16.01.2002 news METALLICA&#39;s Ulrich, Hammett To (Allegedly) Collaborate With VAN HALEN&#39;s Roth ...
+
+<p>According to top Danish web site Jubii Rock and the official web site of VAN HALEN frontman David Lee Roth, METALLICA drummer Lars Ulrich, guitarist Kirk Hammett, producer Bob Rock and Roth are collaborating on one or more tracks for an upcoming movie soundtrack at Los Angeles' Henson Studios. MARILYN MANSON guitarist John 5 is also said to be involved in the recording process, although it's unclear in what capacity.</p>
+
+Автор: Yermola
+
+### 25.01.2002 news VAN HALEN ушли с лэйбла....
+
+<p>"VAN HALEN" разорвали отношения с Warner Bros после 14 лет сотрудничества (которое началось с выходом дебютника группы в 1978). Также уволен поверенный команды Don Engel (проработал в этой должности 15 лет!). Вместо него принят на работу Alan Mintz. И после всего этого группа ищет новый контракт на выпуск альбома и собирается в тур с Sammy Hagar или с Dave Lee Roth....</p>
+
+Автор: Yermola
+
+### 25.01.2002 news VAN HALEN Drop Label...
+
+<p>VAN HALEN have parted ways with Warner Bros. Records after a 14-year run that stretches back to the group's 1978 debut, acording to Hits Daily Double. The band have also changed attorneys, hiring Alan Mintz to take over for Don Engel, who was with them for 15 years. VAN HALEN, who are presently without a manager, are still said to be entertaining the possibility of a tour and a new record deal with either Sammy Hagar, Dave Lee Roth or both, but as of right now, no official announcement has yet been made.</p>
+
+Автор: Yermola
+
+### 22.02.2002 news Еще одна супер-группа...
+
+<p>Бывший фронтмэн "VAN HALEN" Sammy Hagar на своем официальном сайте объявил о создании супер-группы в составе самого Сэмми, бассиста "VAN HALEN" - Michael Anthony, гитариста "JOURNEY" - Neal Schon, барабанщика "JOURNEY" - Deen Castronovo и бывшего участника "GUNS N' ROSES" гитариста Slash. Команда уже записала в студии несколько вещей. По словам вокалиста, музыка звучит как смесь VAN HALEN, LED ZEPPELIN и TOOL.</p>
+
+Автор: Yermola
+
+### 10.09.2003 articles Заткнись и работай!
+
+<p><B>Всегда будут люди, пытающиеся заставить Вселенную вертеться в другую сторону. Как же иначе заставить загореться вновь потухшие звезды? Гэри Черроне – один из тех, кому, кажется, это удастся сделать.</B><BR> Отпев не один год в легендарной группе EXTREME, подарившей миру не один хит и, пусть ненадолго, возродившей традиции классического рока с его многочастными композициями, Гэри затем вдруг пропал из поля зрения поклонников. EXTREME распались, последующая работа в VAN HALEN оказалась не очень успешной. И вот мистер Черроне вновь объявился на сцене – с новой группой TRIBE OF JUDAH и великолепной пластинкой "Exit Elvis". Естественно, ревнивым фанатам пришлось объяснять и долгое отсутствие, и смысл новых песен в интервью британскому изданию Classic Rock.<BR> <B></B> - Откуда такое название для группы? <BR> - У меня оно уже давно вертелось в голове, еще тогда, когда я играл в EXTREME. Мне нравится имя "Иуда" – возможно, однажды я назову так своего сына. Естественно, я взял его из Ветхого завета – это название одного из 12 родов Израиля. "Племя" тоже красивое слово, удачно описывающее коллектив, работавший над этой пластинкой: разные люди, что приходили в разное время и внесли свой вклад в эти песни.<BR> <B>- Местами кажется, что такую пластинку мог записать только большой любитель джаза…</B><BR> - Так и есть. не знаю, достаточно ли у меня силенок сделать полностью джазовую пластинку, но я преклоняюсь перед поздними записями Синатры! Я вырос на QUEEN – Фредди Меркьюри умел писать потрясающие мелодии. Позже мои родители открыли для меня джаз – эта музыка вне времени, некоторые из величайших мелодий были написаны именно в джазе!<BR> <B>- На пластинке есть гитарные соло – сегодня это просто потрясает, ведь эти вещи вышли из моды уж лет десять назад… </B><BR> - Это все потому, что люди разучились играть соло. В 80-х соло были обязательным клише, их играли из принципа, ради техники, частенько забывая о самой песне. В конце концов, появилось поколение, которое в 90-х восстало против такого положения вещей, но перегнуло палку – от соло просто отказались, это стало ругательным словом. Теперь мы жертвы того поколения, но, думаю, настало время перемен.<BR> <B>- Еще можно услышать влияние PINK FLOYD… </B><BR> - Там есть влияние и LED ZEPPELIN, и PINK FLOYD. Я фанат "флойда" – часть текстов навеяна именно этой группой. Хотя в целом здесь тексты здесь гораздо жестче, чем все, что я писал раньше – я стал взрослее, циничнее. И потому здесь я поставил целью выяснить, насколько именно человек является мерой всех вещей.<BR> <B>- Независимо то того, какой прием у слушателей найдет TRIBE OF JUDAH, для многих твое имя связано прежде с EXTREME, группой, которая написала огромное количество хитов. Распад этой группы для многих был неприятным сюрпризом. Что случилось – почему EXTREME распались прямо на вершине успеха? </B><BR> - Все просто шло своим чередом. Тогда у Нуно Беттенкурта (гитарист EXTREME – Авт.) родился ребенок, он захотел сделать сольную пластинку, и на это понадобилось время. Я отправился в Бостон для участия в постановке "Иисус Христос – суперзвезда". Потом мне позвонили и предложили петь в VAN HALEN и я решил, что это хорошее предложение и в случае провала я хотя бы буду иметь историю для рассказа на вечеринках: "А однажды мне предложили спеть в той легендарной группе…". У EXTREME было семь лет мультиплатинового успеха – но это были годы непрерывной работы в режиме "запись пластинки – турне – запись – турне…". Поучается, мы взяли отпуск, и каждый занялся своими делами. Хотя с тех пор как мы распались, мы получали несколько предложений на гастроли. Но мы не хотим быть частью ностальгии по 80-м и ассоциироваться с группами той эпохи, потому что EXTREME сильно отличается всего этого.<BR> <B></B> - Ваша карьера в EXTREME наверняка приучила вас к суперпродажам. Если же вдруг "Exit Elvis" не будет продаваться такими же темпами, что тогда? <BR> - Да, в EXTREME было именно так: "Ребята, вы продали 500 тысяч дисков – о, не так уж и плохо"... Правда потом, когда я перешел в VAN HALEN, все стало сложнее – эта легенда всегда добивалась по меньшей мере миллиона проданных пластинок. Но тот диск, что я записал с ними, стал жертвой времени – 1996 год, эпоха NIRVANA и PEARL JAM, никакой платины для VAN HALEN! Конечно, это не извиняет нас за тот провал, но кое-то все же объясняет.<BR> <B></B> - Почему у "Exit Elvis" такая противоречивая обложка? <BR> - На пластинке немало философских песен. Я не оправдываю самоубийство - я просто хочу сказать, что человек сам творит свою судьбу, и хочу показать это с долей иронии. Мне казалось, что такая обложка может стать проблемой, но в мире, где есть Мэрилин Мэнсон, картинками такого рода уже никого не напугаешь. Так что я просто рассчитываю, что обложка поможет вам обратить внимание на смысл песен. <BR> <B>- Будем честными – подобная музыка сегодня не в моде…</B><BR> - Да, хип-хоп во всех чартах. Даже среди рок-групп популярны группы вроде CREED, у которых все просто. Но я ищу слушателей, открытых к восприятию нового, которые будут судить пластинку лишь после того, как послушают ее до конца. Во время турне нашу группу зачастую представляли так: "Эй, на сцене парень, который когда-то спел хит “More Than Words”! правда, сегодня он больше не играет рок-н-ролл…". В 9 из 10 случаев эти люди после шоу подходили и извинялись – потому что на сцене мы доказывали, что мы не просто рок-группа, мы потрясающая рок-группа! Это и есть мое главное правило – не спорь, заткнись и докажи свою правоту делом.</p>
+
+Автор: Tornado
+
+### 29.12.2011 news VAN HALEN назначили дату релиза
+
+<P>Новый альбом <STRONG>VAN HALEN</STRONG>, первый с оригинальным певцом<STRONG> David Lee Roth</STRONG> за 28 лет выйдет 7 февраля на<STRONG> Interscope</STRONG>. В начале следующего года группа объявит даты масштабного турне.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.12/22422.jpg" width=300 height=300> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.01.2012 news Стало известно название нового VAN HALEN
+
+<P>Новый альбом<STRONG> VAN HALEN</STRONG> получил название "<STRONG>A Different Kind Of Truth</STRONG>". Об этом стало известно вчера после сообщения швейцарского магазина <STRONG>CeDe</STRONG>. Ре-юнион альбом легенд тяжёлого рока должен выйти 7 февраля. Вокалистом на новой работе<STRONG> VAN HALEN</STRONG> будет <STRONG>David Lee Roth</STRONG>.</P>
+<P><center><IMG height=376 src="/images/news_rus/2012.01/22514.jpg" width=512 border=0></P>
+Автор: Vit Belov
+
+### 07.01.2012 news Новая музыка VAN HALEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=280 alt="" hspace=0 src="/images/news_rus/2012.01/22540.jpg" width=280 align=right border=0>Первым синглом и видео-клипом к новому альбому <STRONG>VAN HALEN "A Different Kind Of Truth"</STRONG> станет трек "<STRONG>Tattoo</STRONG>", который выйдет 10 января. 30-секундный клип можно послушать ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист полноценного альбома:</FONT></P>
+<P>01. <STRONG>Tattoo</STRONG><BR>02. <STRONG>She's The Woman<BR></STRONG>03. <STRONG>You and Your Blues</STRONG><BR>04. <STRONG>China Town</STRONG><BR>05. <STRONG>Blood and Fire</STRONG><BR>06. <STRONG>Bullethead</STRONG><BR>07. <STRONG>As Is<BR></STRONG>08. <STRONG>Honeybabysweetiedoll</STRONG><BR>09. <STRONG>The Trouble With Never<BR></STRONG>10. <STRONG>Outta Space</STRONG><BR>11. <STRONG>Stay Frosty</STRONG><BR>12. <STRONG>Big River</STRONG><BR>13. <STRONG>Beats Workin'</STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/fE6LI1xISto?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 10.01.2012 news Новый клип VAN HALEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный видео-клип с будущего ре-юнион альбома <STRONG>VAN HALEN "A Different Kind Of Truth"</STRONG> на хит-сингл "<STRONG>Tattoo</STRONG>" можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3WfQ-hV3WtA?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/3WfQ-hV3WtA?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.04.2012 news Новый клип VAN HALEN
+
+<P>Новый ролик<STRONG> VAN HALEN "She's The Woman"</STRONG> можно посмотреть ниже. Трек взят с альбома-воссоединения группы <STRONG>"A Different Kind Of Truth"</STRONG>, который вышел в этом году.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Tj3ul98CnRg?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Золотая кладовая мирового рока!

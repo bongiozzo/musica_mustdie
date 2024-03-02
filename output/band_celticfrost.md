@@ -185,6 +185,111 @@ Triptych:
 * C группой "Apollyon Sun" mainman Tom Gabriel Fischer
 * C группой "Triptykon" Tom Gabriel Fischer
 
+## Публикации
+
+### 12.10.1999 news 
+
+<p>Noise records сообщила о своём намерении переиздать старые альбомы Celtic Frost (все, за исключением "Cold Lake").</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 news 
+
+<p>Том Дж. Warrior, лидер Celtic Frost заявил, что группа засядет в студию в скоролм времени для записи новой пластинки, но она выйдет лишь в том случае, если будет очень хороша, так как группа не хочет портить свою репутацию. Тем временем вышел первый альбом индустриального проекта Тома Apollyon Sun под названием "Sub".</p>
+
+Автор: Vit Belov
+
+### 04.12.2001 news APOLLYON SUN, featuring former CELTIC FROST mainman Tom Gabriel Fischer, are currently composing ...
+
+<p>APOLLYON SUN, featuring former CELTIC FROST mainman Tom Gabriel Fischer, are currently composing and demoing new material for the group’s upcoming sophomore full-length album at the band’s own rehearsal studio facility (where the act have just upgraded the computer-based recording system) and at Oakland Recording, the group's long-time home when recording in Switzerland. These new works are being produced by AS guitarist/programmer Erol Unala and Fischer, and engineered and co-produced by long-time AS engineer Walter Schmid. Among much other AS work, Schmid has in the past been closely involved with APOLLYON SUN's "Dweller" remix (on the Sub album) and with the CELTIC FROST reissue CDs. A number of musical guests from both sides of the Atlantic have already participated in the above-mentioned sessions. <BR><BR> The material so far completed reportedly ranges from more rock-oriented and organic than 2000's Sub album to rather adventurous and daring ideas. Among the working song titles set to appear on the upcoming CD are the following: <BR><BR> 01. Solitary Lodge <BR> 02. Nova <BR> 03. Deep Inside <BR> 04. All Gone Dead <BR> 05. The Beautiful End <BR> 06. Mouthful of Lies <BR> 07. Apple on a Tree <BR> 08. Winter <BR> 09. Smallwood Red Cheek <BR> 10. Lagrange Point <BR> 11. Superbug<BR><BR> Some of the material written this year for the new AS album will still undergo significant development, while other songs have been recorded to final album standards. All material is being circulated on a variety of work-in-progress CDs within the AS camp and for AS industry associates, and some of this material may soon available via the group’s official web site at www.apollyonsun.com.<BR><BR> Erol Unala and Tom Gabriel Fischer are also currently involved with extensive preparation work for another, as-yet-undisclosed musical project, which, if it will bear fruit, will be of major significance. If given a go-ahead, the project’s details will be officially announced sometime during 2002.</p>
+
+Автор: Yermola
+
+### 04.12.2001 news Солнышко мое, вставай!!!
+
+<p>"APOLLYON SUN", известные, прежде всего, участием Tom Gabriel Fischer из CELTIC FROST, сейчас в студии готовят материал для второго полноформатника. Продюссируют работу гитарист Erol Unala и сам Fischer. Уже известны названия некоторых песен: <BR><BR> 01. Solitary Lodge <BR> 02. Nova <BR> 03. Deep Inside <BR> 04. All Gone Dead <BR> 05. The Beautiful End <BR> 06. Mouthful of Lies <BR> 07. Apple on a Tree <BR> 08. Winter <BR> 09. Smallwood Red Cheek <BR> 10. Lagrange Point <BR> 11. Superbug</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 23.01.2002 news CELTIC FROST Reunion Official...
+
+<p>Despite former CELTIC FROST mainman Tom Fischer's previous statements to the contrary, the much-rumored reunion of the Swiss avant-garde metal act is very much in the planning stages and the group's comeback album should surface before the end of the year or in early 2003. Fischer recently spoke to Metaluk.com about the upcoming reunion and he revealed that the band (featuring the classic Into The Pandemonium foursome of Thomas Gabriel Fischer (guitar/vocals), Reed St. Mark (drums), Martin Eric Ain (bass), and Ron Marks (guitar), with various guests being brought in to augment the sound) are currently working on a new album which will be "very unique, experimental, dark and heavy." Keep checking Metaluk.com for the full interview, which is scheduled to be posted online shortly.</p>
+
+Автор: Yermola
+
+### 09.11.2002 news Иногда они возвращаются...
+
+<p>CELTIC FROST снова с нами!!! На лето 2003 года запланирован выход нового альбома "Probe" от этих легендарных музыкантов. В состав группы на сегодняшний день входят ударник Reed St. Mark, басист-вокалист Martin Eric Ain, гитарист Erol Unala и клавишник-вокалист-гитарист Tom Gabriel Fischer. Группа работает в студии и ищет лэйбл для контракта. Предполагаемый трэк-лист альбома:</p>
+<p> 01. Silence <BR> 02. November <BR> 03. Lore<BR> 04. Seed of Tranquility <BR> 05. Beloved<BR> 06. Totgetanzt <BR> 07. Lost Cynic Rover <BR> 08. Patriarch <BR> 09. The Dark <BR> 10. Wanker God <BR> 11. Winter (Requiem Part III: End) <BR> 12. Leaves and Hunger <BR> 13. The Dying I <BR> 14. Resurgam <BR> 15. undisclosed cover version feat. Martin Ain on lead vocals</p>
+
+Автор: Dimas
+
+### 19.01.2006 news CELTIC FROST на Century Media
+
+<P>Легендарные <STRONG>CELTIC FROST</STRONG> заключили сделку с <STRONG>Century Media</STRONG>. Первый альбом для этого лейбла будет долгожданный "<STRONG>Monotheist</STRONG>", который будет возвращением коллектива из небытия. Пластинка была записана вместе с <STRONG>Peter Tagtgren</STRONG> в <STRONG>Abyss Studio</STRONG>. Трэк-лист:</P>
+<P>01. <B>Progeny</B><BR>02. <B>Ground</B><BR>03. <B>A Dying God Coming Into Human Flesh</B><BR>04. <B>Drown In Ashes</B><BR>05. <B>Os Abysmi Vel Daath</B><BR>06. <B>Obscured</B><BR>07. <B>Domain Of Decay</B><BR>08. <B>Ain Elohim</B><BR>Triptych:<BR>09. <B>Totengott</B><BR>10. <B>Synagoga Satanae</B><BR>11. <B>Winter (Requiem, Chapter Three: Finale</B></P>
+Автор: Vit Belov
+
+### 27.01.2006 news Артворк нового CELTIC FROST
+
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, новый альбом <STRONG>CELTIC FROST "Monotheist"</STRONG> выходит весной на <STRONG>Century Media</STRONG>. Группа опубликовала кавер, нарисованный <STRONG>Michel Casarramona</STRONG>&nbsp;и <STRONG>Martin Eric Ain.</STRONG></FONT></CENTER>
+<P></P>
+<P>
+<CENTER><IMG height=399 src="/images/news_rus/2006.01/9965.jpg" width=400 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 20.02.2006 news CELTIC FROST расстались с гитаристом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист&nbsp;<STRONG>Erol Unala</STRONG> уйдёт из <STRONG>CELTIC FROST</STRONG> сразу после релиза нового ре-юнион альбома "<STRONG>Monotheist</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 11.04.2008 news Tom Gabriel Fischer покинул CELTIC FROST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист и гитарист <STRONG>Tom Gabriel Fischer</STRONG> покинул <STRONG>CELTIC FROST</STRONG>. Внятных причин не объявлено.</FONT></P>
+Автор: Vit Belov
+
+### 21.05.2008 news Tom Gabriel Fischer основал новую группу
+
+<P>Бывший лидер <STRONG>CELTIC FROST</STRONG> <STRONG>Tom Gabriel Fischer</STRONG>&nbsp;объявил об образовании нового коллектива <STRONG>TRIPTYKON</STRONG>. Первую вещь группы уже можно послушать на <STRONG>MySpace</STRONG>, а сам музыкант характеризует новое творчество, как максимально близкое по звучанию к <STRONG>CELTIC FROST</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/triptykonofficial">http://www.myspace.com/triptykonofficial</A></P>
+Автор: Vit Belov
+
+### 17.06.2008 news CELTIC FROST всё ещё существуют?
+
+<P>Басист <STRONG>CELTIC FROST Martin Ain</STRONG> сообщил, что, несмотря на уход из группы её основателя<STRONG> Tom Gabriel Fischer</STRONG>, она продолжает существовать. Однако, он и барабанщик <STRONG>Franco Sesa</STRONG>&nbsp;не собираются продолжать&nbsp;выпускать альбомы и ездить с гастролями под этим именем. Они просто ждут, когда <STRONG>Tom</STRONG> вернётся обратно.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Забавно, что <STRONG>Tom Gabriel Fischer</STRONG> назвал основной причиной разрыва в <STRONG>CELTIC FROST</STRONG> барабанщика <STRONG>Franco Sesa</STRONG>, который пришёл в группу после её реформации в конце 2002 года.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 09.01.2011 news Tom Gabriel Fisсher назвал SODOM &quot;третьесортной копией SLAYER&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18119.jpg" width=249 height=350>Чтобы отметить выход <STRONG>"Shatter"</STRONG> EP от <STRONG>TRIPTYKON</STRONG>, журнал <STRONG>Decibel </STRONG>послал лидеру группы и бывшему участнику <STRONG>CELTIC FROST</STRONG>, гитаристу/вокалисту&nbsp;Тому Гэбриэлу Фишеру&nbsp;(<B itxtvisited="1">Tom Gabriel Fisсher</B>, на фото)&nbsp;семь mp3 файлов, содержащих только название песен и попросил его высказать своё мнение относительно каждой.&nbsp;Среди прочих, там оказался и трек <B itxtvisited="1">"Hellfire"</B>, - песня с нового альбома немецких ветеранов <B itxtvisited="1">SODOM</B>, по поводу которой <STRONG>Fisсher </STRONG>сказал: <EM>"Звучит как третьесортная копия <B itxtvisited="1">SLAYER</B> c сильным акцентом и&nbsp;непонятной лирикой."</EM></P>
+<P>В интервью 2006 года немецкому интернет-порталу <STRONG>Terrorverlag</STRONG> лидер <STRONG>SODOM</STRONG> Том Анджелриппер, на вопрос относительно его отношения к&nbsp;возродившимся <STRONG>CELTIC FROST</STRONG>, он ответил, что группа, которой руководит&nbsp;<STRONG>Fischer</STRONG>, не заслуживает того внимания, которое ей уделяют специализированные СМИ и фэны.</P>
+<P>Выдержка из того интервью:</P>
+<P><EM>"Я даже не знаю, что об этом думать"</EM> - говорит&nbsp;<STRONG>Tom Angelripper</STRONG>. <EM>"Несколько последних альбомов, которые они выпустили, как <B itxtvisited="1">CELTIC FROST</B>, были дерьмом. OK, я уверен, что они готовят классный [новый] альбом [Интервью было взято до выхода альбома <B itxtvisited="1">CELTIC FROST </B>"<B itxtvisited="1">Monotheist</B>" (2006)&nbsp;— прим&nbsp;ред.], но на самом деле я не могу им&nbsp;доверять...&nbsp;вернуться после стольких лет... Сейчас они получают огромную поддержку, выступают в качестве хэдлайнеров на фестивалях <B itxtvisited="1">Wacken Open Air</B> и <B itxtvisited="1">Rock Hard Open Air</B>. Мы в <B itxtvisited="1">SODOM</B> играли и не щадили свои задницы&nbsp;непереставая в течении 25 лет, но нас никогда не приглашали на&nbsp;фестиваль <B itxtvisited="1">Rock Hard</B>!&nbsp;&nbsp;Это полная хрень! Может быть нам надо взять перерыв на 15 лет, а затем вернуться в инвалидных креслах.&nbsp;Я уверен, тогда мы бы получили шанс выступить на некоторых&nbsp;из тех фестивалей!"</EM></P>
+Автор: Headcrusher
+
+### 26.01.2011 news Tom Gabriel Fischer продаёт &quot;деревянные члены&quot;
+
+<P>Бывший лидер <STRONG>CELTIC FROST</STRONG>, а ныне музыкант <STRONG>TRIPTYKON Tom Gabriel Fischer </STRONG>предложил публике эксклюзивные статуэтки собственного производства, которые сам художник назвал "деревянными фаллосами". <STRONG>Tom</STRONG> параллельно с музыкой всегда занимался "современным искусством", его работы можно посмотреть на сайте: <A href="http://selfdeceased.blogspot.com/">http://selfdeceased.blogspot.com/</A>&nbsp;В частности, музыкант производит собственные посмертные маски.</P>
+<P>А теперь эксклюзивный фаллос:</P>
+<P><center><IMG height=691 src="/images/news_rus/2011.01/18332.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Celtic Frost - трэш или дэт?

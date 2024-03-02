@@ -31,6 +31,21 @@ Izarothas - Keys, Midi Programming
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>В ближайшее время украинская компания ODIUM MUSIC выпускает Death/Black компиляцию "IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". Трек-лист: <BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+### 12.09.2002 news IN ODIUM VERITAS ...
+
+<p>Hails Brothers In Metal! <BR><BR> Soon we'll release our longawaited compilation IN ODIUM VERITAS Vol.1 "The Beginning... Of The End". So be ready for the catching breath Death/Black Metal Assault! Dense, Intense, Technical and Melodic... Here is a track-list:<BR><BR> 1. NEGLECTED FIELDS Solar (6:22)<BR> 2. CASTRUM Painful Sighs In Castrum (5:14) <BR> 3. WATERS STYX Free Journey (4:01)<BR> 4. AVATAR Inner Alchemy (7:26)<BR> 5. NIGHTSIDE Illusion (5:15)<BR> 6. ASGUARD The Black Wandering Of Death (3:38)<BR> 7. PHANTASMAGORY Dawn (8:04) <BR> 8. SERBERUS Dark Dream (4:41)<BR> 9. MALICE Misterious Portrait (6:06)<BR> 10. NOMED Metal Quest (4:49)<BR> 11. TESSARACT Through The Seas... Of Bitterness (4:21)<BR> 12. VINTAGE SOLEMNITY Web Of Intent (6:41) <BR> 13. ROSSOMAHAAR Beneath The Fading Eclipse (4:19) <BR> 14. GRENOUER Mind Ruins (7:49)<BR><BR> ODIUM MUSIC: prodistro/mailorder/newsletter/webzine<BR> Yury Vasyura, PO Box 14, 32300 Kamenets-Podolsky, Ukraine<BR> Web: <A HREF="http://welcome.to/odium ">http://welcome.to/odium </A><BR> E-mail: odium@kp.km.ua <BR> ICQ 129253386<BR> Tel: 380-(03849)-22555</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

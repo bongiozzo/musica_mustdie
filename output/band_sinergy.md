@@ -73,6 +73,187 @@ Make-up by Sanna Haapoja
 * C группой "Saint Deamon" Ronny Milianowicz (Drums)
 * C группой "Dionysus" Ronny Milianowicz (Drums)
 
+## Публикации
+
+### 21.06.1999 reviews 
+
+<p>SINERGY- all stars project компании Nuclear Blast. Движущей силой его является известная девушка азиатской наружностиь -Kimberly Goss. Её вокал звучал на альбомах таких групп, как THERION, DIMMU BORGIR и ANCIENT. В составе наблюдается куча известных людей. Гитарист IN FLAMES - Jesper Stromblad (он же принимал участие в становлении HAMMERFALL), гитарист CHILDREN OF BODOM - Alexi Laiho, басист MERCYFUL FATE - Sharlie D'Angelo, барабанщик Ronny Milianovich. Партии же вокала исполняет Кимберли. Она же играет на клавишных. Также партии гостевого вокала исполняет Joakim Kans из HAMMERFALL. Музыка же этого коллектива напоминает музыку в исполнении одного из вышеперечисленных коллективов. А именно HAMMERFALL. SINERGY решили создать что-то подобное последнему альбому NIGHTWISH. Это тоже speed-power с женским вокалом. Но материал у них получился отличный от "Oceanborn". Приятная мелодичная быстрая музыка с хорошим, но не более, женским вокалом. Жалко только маловато.</p>
+
+Автор: Dimas
+
+### 01.08.1999 news 
+
+<p>Новый альбом Primal Fear "Jaws Of Death" стартовал в чарте Германии с 49 места. Барабанщик Primal Fear Клаус Сперлинг во время летнего турне группы Sinner, имеющей прямое отношение к его родному коллективу, сыграет партии ударных, заменив Фрица Рандоу. Несмотря на это Фриц всё ещё является членом Sinner. На этих концертах состоится возвращение в группу Мэта Синнера гитариста Алекса Бейродта. Primal Fear также отправятся в тур по Европе вместе с Sinergy и Metalium.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Sinergy покинул барабанщик Ронни Милианович. Замена ему ещё не нашлась.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Sinergy набрали новый состав. Из прежнего коллектива остались только вокалистка Кимберли Госс и Алекси Лайхо. Новыми членами стали Роопе Латвала (гитара), Марко Хиеталла (бас), Томми Лиллман (барабаны) и Эрна Сиикавирта (клавиши).</p>
+
+Автор: Vit Belov
+
+### 21.10.1999 reviews 
+
+<p>Нет, явно не стоило собираться такой компании, да еще и привлекать струнный квартет чтобы записать такой альбом. Нет альбом хороший, но не более. А от таких личностей как: Kimberly Goss,Jesper Stromblad, Sharlie D'Angelo (интересно есть ли такая группа в которой он НЕ играет),Ronny Milianovich, Alexi Laiho, Joakim Kans и плюс Fredrick Nordstrom мы были вправе ожидать суперальбома. Тем более, что NUCLEAR BLAST рекламировал сие творение не иначе как ШЕДЕВР. Но шедевра не получилось. Да и вообще это просто очень клавишный Speed. Баллады и инструменталы на уровне, а вот быстрые вещи подкачали. Tarja из NIGHTWISH поет лучше, причем раз эдак в 200. 6.5 из 10.</p>
+
+Автор: Vit Belov
+
+### 29.10.1999 news 
+
+<p>Во время концерта Sinergy в Гамбурге рядом с их автобусом была найдена бомба. х автобус был задержан, и из-за этого группа чуть было не опаздали на новый концерт в Штуттгарт.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Eternal Tears Of Sorrow записали новый альбом "Chaotic Beauty". Кимберли из Sinergy приняла участие в его записи.</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Sinergy завершили комплектование состава для записи новой пластинки To Hell And Back". В группу вошли, кроме Госс и Лайхо, Роопе Латвала (Waltari), Марко Хейтала (Tarot), Томми Лиллман (To Die For).</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Kimberly Gosh и Alexi Laiho вместе с еще тремя членами Sinergy закончили сочинение материала для нового альбома. Альбом обозвали "To Hell And Back".</p>
+
+Автор: Vit Belov
+
+### 08.06.2000 reviews Сучка вернулась!
+
+<p>Сучка вернулась! Уж не знаю кого имеет в виду Кимберли Госс: себя или еще кого? Именно так называется открывающий альбом трэк. Действительно, SINERGY вернулась с новым альбомом. Он намного лучше дебюта. Сразу видно, что в отличие от дебюта, теперь этой девушке помогли сочинять песни. Если раньше она это делала одна, то теперь ей вовсю помогают, особенно Алекси Лайхо. А уж он то, как мы знаем, мастер по части сочинительства чего-нибудь быстрого и супермелодичного. Так и получилось. На нас сваливается целый каскад мелодий. в которых просто утопаешь. Вокал не самый лучший, но к данной музыке подходящий. Мелодичный и скоростной пауэр с женским вокалом. Иногда напоминает CHILDREN OF BODOM (сами знаете почему), только без бритвенных блэк-риффов и с чуть сброшенными скоростями. В целом, очень и очень неплохо. Без явных недостатков.</p>
+
+Автор: Dimas
+
+### 08.06.2000 reviews Bitch is back!
+
+<p>Bitch is back! I do not know whom it means Kimberly Goss: itself or still whom? So the opening album track is named. Really, SINERGY has returned with a new album. It is much better than a debut. At once it is visible, that as against a debut, now this girl have helped to compose songs. If earlier she made it one, now she were helped, especially Alexi Laiho. And h), how we know, foreman in connection composing something fast and supermelodious. And was received. On us the whole cascade of tunes is dumped. In which it is simple enjoy. Vocal is not best, but to the given music approaching. Melodious and high-speed power with female vocal. Sometimes reminds CHILDREN OF BODOM (know why), only without shaving black-riffes and with hardly by dropped velocities. As a whole, very much and very much not bad. Without obvious defects.</p>
+
+Автор: Dimas
+
+### 25.03.2001 news Новости от Sinergy
+
+<p> Третий альбом интернационала SINERGY будет иметь название "Suicide By My Side". Группа начнет запись альбома 1 августа в Studio Fredman в Гетеборге, Швеция. Оканчание сессии запланировано на 10 сентября (Шустрые ребята!!!). Релиз альбома предполагается 14 января будущего года.</p>
+<p></p>
+
+Автор: Helloween
+
+### 14.08.2001 news Из Sinergy ушел ударник
+
+<p>Tommi Lillman больше не барабанщик Sinergy. Он не смог выполнять свою работу сразу в двух группах (он еще также стучит в To/Die/For). Музыканты Sinergy посчитали, что так будет лучше для всех, если группа продолжит работу без него. Все музыканты остались между собой друзьями и желают друг другу удачи. В настоящее время группа занимается поисками нового ударника. При удачном исходе, группа планирует в начале 2002 года отправиться в тур в поддержку своего нового третьего альбома.</p>
+
+Автор: Dimas
+
+### 14.08.2001 news Tommi Lillman is no longer the drummer of Sinergy
+
+<p>Tommi Lillman is no longer the drummer of Sinergy. He could not handle the responsibilities of playing in 2 bands, so we decided that it would be best for all of us if we continue without him. We are all still friends and we wish him good luck with his other band. We are currently holding auditions for a new drummer and we plan to start touring in the beginning of 2002 in support of our 3rd album.</p>
+
+Автор: Dimas
+
+### 15.10.2001 news Самоубийство по собственной инициативе...
+
+<p>Немножко финская американка Kimberly Goss совместно со своим бой-френдом Alexi Laiho объявили, что уже нашли замену ушедшему Tommi Lillman. Им стал швед - Mats Karlsson. По словам команды: "Мэтс - это то, что принято называть "свежая кровь"... Он не играл еще ни в одной известной команде до SINERGY. Пока что он занимался в Musicians Institute в Лос-Анджелесе и в разных других учебных заведениях... Сейчас ему придется переехать в Хельсинки, чтобы присоединиться к команде в туре и на записи..." Из других новостей SINERGY опубликовали трек-лист третьего полноформатника "Suicide By My Side", диск выходит в январе через Nuclear Blast Records: <br> 01. I Spit On Your Grave <br> 02. The Sin Trade <br> 03. Violated <br> 04. Me, Myself, My Enemy <br> 05. Written In Stone <br> 06. Nowhere For No One <br> 07. Passage To The Fourth World <br> 08. Shadow Island <br> 09. Suicide By My Side <br> 10. Remembrance</p>
+
+Автор: Yermola
+
+### 07.12.2001 news CENTURY MEDIA RECORDS Release Schedule...
+
+<p>January 22nd, 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> February 5th, 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> February 19th, 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence <BR><BR> March 5th, 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 07.12.2001 news График релизов Century Media Records ...
+
+<p>22-е января 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> 5-е февраля 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> 19-е февраля 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence<BR><BR> 5-е марта 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 29.12.2001 news SINERGY - барабанщик снова ушел!
+
+<p>Финны "SINERGY" лишились еще одного барабанщика - шведа Mats Karlsson, спустя всего два месяца после его замены ушедшего Tonmi Lillman (который хотел сконцентрироваться на работе с TO/DIE/FOR). Если вы заинтересованы, пишите: sinergydrummer@hotmail.com или <BR><BR> Jakob Lindstrцm<BR> Peuramдentie 3 a 1<BR> FIN-02750 Espoo<BR> Finland</p>
+
+Автор: Yermola
+
+### 29.12.2001 news SINERGY: Drummer-less Once Again...
+
+<p>Finland's SINERGY have parted ways with drummer Swedish skinsman Mats Karlsson two months after enlisting him as the replacement for Tonmi Lillman (who left the group in order to concentrate on his work with TO/DIE/FOR). Here is an official statement on the matter from vocalist Kimberly Goss:<BR><BR> “Do we have bad luck with drummers or what? *lol* Well, our so-called 'new drummer' has left the band after having led us to believe he'd be with us on all upcoming tours & future recordings. He rehearsed for almost 3 months and just hit us with the news last night that, 'I don't think I can play all of your songs'. You can only imagine how pissed off we are at him! We have just been sitting by here in Finland while he practices our songs in Sweden for the past 3 months and constantly giving us updates on how well everything is going. Well, he wimped out at the last minute and we now find ourselves back to having no drummer. I especially feel like a total idiot because I just did about 400 interviews these past months and I have been talking a lot about our great 'new drummer', hahaha! So, we have decided that since there is no time to audition new drummers for our upcoming tours, we will bring with us a session drummer for the Suicide By My Side world tour throughout 2002. We have 2 guys in mind, and we'll reveal him as soon as we know ourselves.<BR><BR> “If you're interested in trying out for the band you can email sinergydrummer@hotmail.com or send material to:<BR><BR> Jakob Lindstrцm<BR> Peuramдentie 3 a 1<BR> FIN-02750 Espoo<BR> Finland<BR><BR> “If you're not from Helsinki, you MUST be willing and have the means to relocate here for the band. We'll be holding auditions in between tours.<BR><BR> Frustrated and pissed off, Kimberly & SINERGY.”</p>
+
+Автор: Yermola
+
+### 16.01.2002 news SINERGY сняли видео на &quot;Suicide By My Side&quot;.....
+
+<p>Финнско-американские "SINERGY" сняли видео на заглавный трек с альбома "Suicide By My Side". Режиссером был Tuukka Temonen до этого работавший с "CHILDREN OF BODOM". К 18-му января клип будет готов и поступит в точки продаж Nuclear Blast Records...</p>
+
+Автор: Yermola
+
+### 16.01.2002 news SINERGY Shoot Video For &quot;Suicide By My Side&quot; ...
+
+<p>Finland's SINERGY, featuring American vocalist Kimberly Goss, have shot a video for the title track to their recently-issued Suicide By My Side CD with director Tuukka Temonen, who had previously worked with CHILDREN OF BODOM, among many others. The clip is due to be edited this Friday, January 18th and will be delivered to the offices of Nuclear Blast Records at the beginning of next week. An early February air date is expected.</p>
+
+Автор: Yermola
+
+### 05.02.2002 reviews Пусть ваши души покоятся в мире
+
+<p>Пусть ваши души покоятся в мире. Третий альбом группы имени Кимберли Госс. Начинается он со смачного плевка Алекси Лайхо выражающего свое негодование по поводу того, что кому-то может не нравиться Кимберли и музыка SINERGY. "А я ее люблю" - говорит он, и тут же обрушиваются первые громоподобные мелодичные риффы его гитары. И, действительно, ну как такая музыка может не нравиться? Ведь большая часть песен - это стопроцентный CHILDREN OF BODOM, но с бескомпромиссным и агрессивным женским вокалом, свойственными power-metal хоралами в припевах и чуть большим влиянием heavy-metal восьмидесятых. Ультрамелодичные гитарные запилы и переливы, сумасшедшие скорости, отличная техника музыкантов, да и голос у Кимберли не самый плохой. Он немного мужеподобен, потому напоминает некоторые мужские power-вокалы, причем не самые плохие. Но, уверен, вживую, она вряд ли так споет. Звук альбома вылизан до последней ноты. Сначала в студии над альбомом потрудился ее владелец Fredrik Nordstrom, затем над записью покорпел Mika Jussila доведший ее до кристального блеска. Материал насыщен сложной восхитительной гитарной работой. Снова стали использоваться клавишные которые обогащают мощный звук вместе с жесткими риффами. Зрелый, превосходный материал от прекрасно сработавшегося дуэта. На "Shadow Island" слышен знакомый скриминг Алекси и дуэт Кимберли с басистом Марко, пытающихся петь оперными вокалами. Завершает альбом фортепианная пьеса посвященная всем невинным жертвам терроризма совершенного 11 сентября 2001 года...</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 28.08.2002 news DARK TRANQUILLITY, SINERGY Team Up For European Tour ...
+
+<p>DARK TRANQUILLITY, SINERGY and two as-yet-undisclosed opening acts will team up for a month-long European tour during November/December. Confirmed dates are as follows: <BR><BR> Nov. 12 – Hamburg, GER @ Markthalle<BR> Nov. 13 - Essen, GER @ Zeche Carl<BR> Nov. 14 - Halle, GER @ Easy Schorre<BR> Nov. 15 – Eindhoven, NETH @ Effenaar<BR> Nov. 16 – Vosselaar, BEL @ Biebob<BR> Nov. 18 – London, UK @ Garage<BR> Nov. 19 – Paris, FRA @ La Locomotive<BR> Nov. 20 – Montpellier, FRA @ Rockstore<BR> Nov. 22 – Madrid, SPA @ Caracol<BR> Nov. 23 - Iruin/Bilboa, SPA @ Tunk/Azkena<BR> Nov. 24 – Barcelona, SPA @ Mephisto<BR> Nov. 26 – Milan, ITA @ Transilvania Club<BR> Nov. 27 – Pratteln, SWI @ Z7<BR> Nov. 29 – Budapest, HUN @ Wigwam<BR> Nov. 30 – Vienna, AUT @ Planet Music<BR> Dec. 01 - Nьrnberg, GER @ Hirsch<BR> Dec. 02 - Frankfurt, GER @ Batschkapp<BR> Dec. 04 – Gothenburg, SWE @ Musikens Hus<BR> Dec. 05 – Stockholm, SWE @ Klubben<BR> Dec. 06 – Malmц, SWE @ KB<BR> Dec. 07 – Oslo, NOR @ Betong</p>
+
+Автор: Yermola
+
+### 25.08.2003 news SINERGY will enter the studio on February ...
+
+<p>Finland's SINERGY will enter the studio on February 1 for at least six weeks to begin recording their fourth full-length album, tentatively due in June 2004. <BR><BR> "Me and (guitarist) Alexi (Laiho, also in CHILDREN OF BODOM) spent the first two days I was back in Finland (after a recent two-month trip to the States) showing each other new riffs we had, and then we started rehearsing with the band a few days ago," SINERGY singer Kimberly Goss wrote in a recent online posting. "Let me tell you, I'm soooooooo pleased with what we have so far! I can't wait for everyone to hear it!<BR><BR> "The lyrics I've written so far on this next album are not as dark as they were on (last year's) Suicide By My Side, but there won't be any lyrics about flowers and rainbows either. [laughs] And definitely no lyrics about elves, kings, swords, battles, thunder or steel. [more laughs]<BR><BR> "We're gonna try some cool new things that we've never done before, like for instance putting a bass solo somewhere in at least one song (or maybe even two or three, who knows?). So it would be two guitar leads and a bass lead all back to back. It should sound killer since our new bassist can do with a bass what Alexi and Roope (Latvala, also in CHILDREN OF BODOM) can do with a guitar!<BR><BR> "So basically we'll be writing and rehearsing new material whenever (CHILDREN OF BODOM) is having breaks from the rest of their tours this year. Then in January we'll do some non-stop rehearsing just before entering the studio. Speaking of studio, we haven't decided where we'll record yet, but we've been exploring many options and we'll make a decision by the end of this month (August)."<BR><BR> In related news, Goss will publish her autobiography in Finland (initially available only in Finnish) in June 2004 to coincide with SINERGY's next album release. As yet untitled, the book will chronicle the life and times of Kimberly, revealing many exclusive stories and facts about her life that she has never even spoken of in any interview. It will dig deep into her early childhood and go onward to tell about the struggles she's faced as a woman in the heavy metal business. You will read stories of child abuse, life growing up in America, her early years in the metal scene, her radical decision to leave her home country in an attempt to turn her passion for heavy metal into a career, exclusive stories about what is was like playing in her first bands and touring with them, the ugly side of the music industry, her personal life, the formation of SINERGY, and much, much more. The book will also feature many never before seen pictures from her childhood and of her adventures traveling throughout the world with various bands. The biographer also plans to interview many other people in Kimberly's life — past and present, friends and foes — in order to present "more than just Kimberly's version of the events chronicled in the book."</p>
+
+Автор: Yermola
+
+### 10.02.2005 news SINERGY update
+
+<P><STRONG>SINERGY </STRONG>провели последние месяцы в студии, где готовили свой четвёртый альбом, который будет называться <STRONG>'Sin Of The Past'</STRONG>. Пластинка готовится к выходу в 2005 году на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.09.2006 news Новый альбом SINERGY
+
+<P>Стало известно, что долгожданный новый альбом группы&nbsp;<B>SINERGY</B> под названием&nbsp;"<STRONG>Sins of the Past</STRONG>"</B>, в составе которых известная певица <B>Kimberly Goss</B> и участники <B>CHILDREN OF BODOM</B> - гитаристы <B>Alexi Laiho</B> и <B>Roope Latvala</B>&nbsp; — выйдет в начале 2007 года на&nbsp;<STRONG>Nuclear Blast Records</STRONG>.</P>
+Автор: Dimas
+
+### 15.02.2012 news Умер Tonmi Lillman
+
+<P>Барабанщик <STRONG>LORDI</STRONG> (скрывающийся под кличкой <STRONG>Otus</STRONG>) и бывший барабанщик таких&nbsp;финских групп, как&nbsp;<STRONG>TO/DIE/FOR, SINERGY</STRONG> и<STRONG> AJATTARA Tonmi Lillman</STRONG> умер в возрасте 38 лет. Причина смерти не сообщается.</P>
+<P><STRONG>Tonmi </STRONG>являлся отпрыском музыкантов и начал&nbsp;выступать в 14 лет. Кроме барабанов, музыкант играл на басу, клавишах и гитаре.</P>
+<P>R.I.P.&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.02/23063.jpg" width=392 height=452> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Sinergy в Точке.

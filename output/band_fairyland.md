@@ -72,6 +72,352 @@ Bass Guitar: Thomas Cesario
 * C группой "Dreamaker" Elisa
 * C группой "Hamka" 
 
+## Публикации
+
+### 02.02.2003 news Дебют FAIRYLAND
+
+<p>Французская symphonic epic power metal группа FAIRYLAND готовит к выходу свой дебютный альбом под названием "Of Wars In Osyrhia". Партии вокала на альбоме записала Elisa C.Martin (DARK MOOR). Выход альбома на Arise Records намечен 24 апреля 2003 года.</p>
+
+Автор: Dimas
+
+### 06.04.2003 reviews Войны на волшебной земле
+
+<p>За горами, за морями, за лесами, за полями, в определенное время существовала земля Богов под названием Осирия. Было на этой земле семь континентов. Каждым континентом правил свой Король. И у каждого Короля был свой волшебный камень...</p>
+<p> Такова завязка дебютного альбома молодой французской команды. Еще не начав прослушивание, только увидев название группы и посмотрев на состав команды, где обнаружил в качестве гитариста Энтони Паркера из HEAVENLY, а в качестве вокалистки Элизу из DARK MOOR (откуда она уже недавно ушла и создала новую группу с еще двумя бывшими участниками DARK MOOR), мне не составило труда предположить, что ждет меня что-то фэнтезийное в power metal стилистике. И я не ошибся. FAIRYLAND играет symphonic fantasy metal в лучших традициях RHAPSODY и DARK MOOR. Блестящая комбинация классической музыки, фолка и power-speed metal. Могучие хоралы, мелкая ритмичная структура, неординарный женский вокал, огромное количество симфонических оркестровок, клавишных интерлюдий и яркая мелодика. Еще один кирпичик в набившем многим оскомину эпическом стиле. Только это, пожалуй, не кирпичик, а целая бетонная плита. Несмотря на неоригинальность, альбом воспринимается свежо и не утомляет. Этот альбом меня приятно удивил, и на мой взгляд, это одна из лучших работ в жанре fantasy metal, ничуть не уступающая тем же RHAPSODY и DARK MOOR.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 23.02.2009 news Новый альбом FAIRYLAND
+
+<P>В конце апреля на <STRONG>Napalm Records</STRONG> выходит новый альбом<STRONG> FAIRYLAND</STRONG> <STRONG>"Score To A New Beginning". </STRONG>Основным вокалистом на этом альбоме станет итальянский певец <STRONG>Marco Sandron, </STRONG>но ему помогут <STRONG>Elisa Martin</STRONG> (оригинальная вокалистка&nbsp;<B itxtvisited="1">FAIRYLAND)</B>, <B itxtvisited="1">Lars Larsen</B> (<B itxtvisited="1">MANTICORA</B>)&nbsp;и <B itxtvisited="1">Georg Neuhauser</B> (<B itxtvisited="1">SERENITY</B>). Полный список приглашённых музыкантов:</P>
+<P><STRONG>Marco Sandron</STRONG> (PATHOSRAY): Vocals<BR itxtvisited="1"><B itxtvisited="1">Elisa C. Martin</B> (DREAMAKER): Vocals<BR itxtvisited="1"><B itxtvisited="1">Lars F. Larsen</B> (MANTICORA): Vocals<BR itxtvisited="1"><B itxtvisited="1">Georg Neuhauser</B> (SERENITY): Vocals<BR itxtvisited="1"><B itxtvisited="1">Flora Spinelli</B> (KERION): Vocals<BR itxtvisited="1"><B itxtvisited="1">Fabio D'Amore</B> (PATHOSRAY): Bass<BR itxtvisited="1"><B itxtvisited="1">Dushan Petrossi</B> (MAGIC KINGDOM, IRON MASK): Guitar Solos<BR itxtvisited="1"><B itxtvisited="1">Alessio Velliscig</B> (PATHOSRAY): Guitar Solos<BR itxtvisited="1"><B itxtvisited="1">Alex Corona</B> (REVOLTONS): Guitar Solos<BR itxtvisited="1"><B itxtvisited="1">Chris Menta</B>: Rhythm Guitars, Guitar Solos<BR itxtvisited="1"><B itxtvisited="1">Hugues Lefebvre</B> (ANTHROPIA): Guitar Solos<BR itxtvisited="1"><B itxtvisited="1">Yann Mouhad</B> (ANTHROPIA): Guitar Solos<BR itxtvisited="1"><B itxtvisited="1">Willdric Lievin</B> (HAMKA): Drums, some Rhythm Guitars</P>
+<P>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Opening Credits</B><BR itxtvisited="1">02. <B itxtvisited="1">Across The Endless Sea Part II</B><BR itxtvisited="1">03. <B itxtvisited="1">Assault On The Shore</B><BR itxtvisited="1">04. <B itxtvisited="1">Leviathan</B><BR itxtvisited="1">05. <B itxtvisited="1">A Soldier's Letter</B><BR itxtvisited="1">06. <B itxtvisited="1">Godsent</B><BR itxtvisited="1">07. <B itxtvisited="1">At The Gates Of Morken</B><BR itxtvisited="1">08. <B itxtvisited="1">Rise Of The Giants</B><BR itxtvisited="1">09. <B itxtvisited="1">Score To A New Beginning</B><BR itxtvisited="1">10. <B itxtvisited="1">End Credits</B></P>
+Автор: Vit Belov
+
+### 06.07.2009 reviews Великолепное соответствие названию альбома
+
+<P>Ещё один амбициозный проект на европейской power-metal сцене. Французы FAIRYLAND решили переплюнуть всех в помпезности, симфоничности и концептуальности. Я насчитал 16 (!!!) приглашённых музыкантов.</P>
+<P>Забавно, что третий альбом группы 100-процентно оправдывает своё название. Эта пластинка действительно напоминает среднестатистический саундтрэк к современному фильму о гномиках и драконах. Великолепные в своём качестве оркестровые наигрыши, музыка, которая помогает прочувствовать настроение происходящего на экране, но не затмевающая сюжетную нить. Она одновременно и пуста, и красива. К сожалению, это так. За всей навороченностью звукового ряда мне вновь не показалось ни одной ублажающей слух мелодии. Музыка FAIRYLAND грешит их отсутствием, её легко можно отнести к progressive-metal в самом его немелодичном варианте, в тех местах, где вступает в свои права вокалист. Такие места здесь есть, но есть и симфонические ‘fantasy’ прогоны, которые понравятся любителям подобного. Сравню FAYRILAND с RHAPSODY, не оригинально, зато по делу. Luca Turilli тоже всё время хочет записать саундтрэк, и с вокальными мелодиями у итальянцев тоже не всегда всё в порядке. </P>
+<P>Качественный фон для чтения хит-новинки fantasy литературы. Как metal этот альбом не очень впечатляет, но зато во всём остальном он просто блещет.</P>
+Автор: Vit Belov
+
+### 06.07.2009 reviews Великолепное соответствие названию альбома
+
+<P>Ещё один амбициозный проект на европейской power-metal сцене. Французы FAIRYLAND решили переплюнуть всех в помпезности, симфоничности и концептуальности. Я насчитал 16 (!!!) приглашённых музыкантов.</P>
+<P>Забавно, что третий альбом группы 100-процентно оправдывает своё название. Эта пластинка действительно напоминает среднестатистический саундтрэк к современному фильму о гномиках и драконах. Великолепные в своём качестве оркестровые наигрыши, музыка, которая помогает прочувствовать настроение происходящего на экране, но не затмевающая сюжетную нить. Она одновременно и пуста, и красива. К сожалению, это так. За всей навороченностью звукового ряда мне вновь не показалось ни одной ублажающей слух мелодии. Музыка FAIRYLAND грешит их отсутствием, её легко можно отнести к progressive-metal в самом его немелодичном варианте, в тех местах, где вступает в свои права вокалист. Такие места здесь есть, но есть и симфонические ‘fantasy’ прогоны, которые понравятся любителям подобного. Сравню FAIRYLAND с RHAPSODY, не оригинально, зато по делу. Luca Turilli тоже всё время хочет записать саундтрэк, и с вокальными мелодиями у итальянцев тоже не всегда всё в порядке. </P>
+<P>Качественный фон для чтения хит-новинки fantasy литературы. Как metal этот альбом не очень впечатляет, но зато во всём остальном он просто блещет.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

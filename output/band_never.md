@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.02.2009 news Вокалистка ARCH ENEMY спела с NEVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поляки<STRONG> NEVER</STRONG> выложили новую песню <STRONG>"Questions Within" </STRONG>на своей <STRONG>MySpace</STRONG> страничке. Трэк, на котором отметилась <STRONG>Angela Gossow </STRONG>из <STRONG>ARCH ENEMY</STRONG>, войдёт на новую пластинку группы <STRONG>"Back To The Front".</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/neverofficial">http://www.myspace.com/neverofficial</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

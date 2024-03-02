@@ -30,6 +30,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.07.2011 news Второй альбом FORNOST ARNOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=565 alt="" hspace=0 src="/images/news_rus/2011.07/20008.jpg" width=400 align=right border=0>Второй альбом британской группы <STRONG>FORNOST ARNOR "The Death Of A Rose"</STRONG> выйдет 11 июля на <STRONG>WitchKing Records</STRONG>. Этот коллектив уже наделал некоторое количество шуму у себя на Родине, его музыку сравнивают с <STRONG>OPETH, OBSCURA, IHSAHN</STRONG> и <STRONG>PORCUPINE TREE</STRONG>. Состав:</FONT></P>
+<P><STRONG>Greg Chivers</STRONG> (Vocals, Guitar, EBow and Acoustic Guitar)<BR><STRONG>Will Hall</STRONG> (Lead Guitar)&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><STRONG>Sam Austen</STRONG> (Bass Guitar and Clean Vocals)<BR><STRONG>James Last</STRONG> (Drums)</P>
+<P>MySpace: <A href="http://www.myspace.com/fornostarnor">http://www.myspace.com/fornostarnor</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -97,6 +97,113 @@ eenchanced part: Apokathilosis (video clip) + Beyond The Laws Of Church (video c
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.12.2009 reviews Поклонникам старинных песнопений
+
+<P>Странные случаи или чудеса по-прежнему случаются. Подобным странным случаем следует считать появление на лэйбле Nuclear Blast греческой группы SUICIDAL ANGELS. Здесь всё, от названия и страны происхождения до стиля исполняемой музыки, говорит о том, что оказаться на немецком гиганте музыканты просто-таки не могли. </P>
+<P>SUICIDAL ANGELS играют европейский thrash-metal старой школы. Thrash-metal, который давным-давно играли немцы SODOM, DESTRUCTION и KREATOR. Именно на этих столпов сцены и ориентируются греки. Странно не само желание Nuclear Blast реализовать такую старомодную музыку, а странно то, что лэйбл выпустил группу, которая за восемь лет своего существования не достигла каких-либо успехов и совсем не известна за пределами родной страны. Страны, которая отнюдь не является кузницей и житницей европейского метала. Музыка, представленная на “Sanctify the Darkness” совершенно чётко вписывается в определение стиля. Думается, никто не отличит этот альбом от какой-нибудь ранней пластинки KREATOR. Ну, на первый взгляд, по крайней мере. К сожалению, и реализация этой музыки столь же старомодна, поэтому однозначно SUICIDAL ANGELS следует порекомендовать поклонникам музыки из 80-х, остальным только по назначению врача.</P>
+<P>Неплохой альбом, заставляющий вспомнить старые добрые времена. Если не подходить к оценке этого творчества с современных позиций, релиз может заслужить самой высочайшей оценки. На фоне же современных thrash-metal стандартов “Sanctify The Darkness” звучит жидковато.</P>
+Автор: Vit Belov
+
+### 21.06.2010 news SUICIDAL ANGELS записали альбом
+
+<P>Греческие трэшеры <STRONG>SUICIDAL ANGELS</STRONG>, альбом которых <STRONG>"Sanctify The Darkness" </STRONG>потряс любителей стиля в прошлом ноябре, уже подготовили новый материал. Продюсером альбома выступил <STRONG>R.D. Liapakis </STRONG>из<STRONG> MYSTIC PROPHECY</STRONG>.</P>
+<P>Ориентировочная дата релиза - ноябрь этого года. Перед этим греки проедутся с туром<STRONG> Thrashfest</STRONG> в солидной компании <STRONG>EXODUS, DEATH ANGEL</STRONG> и <STRONG>KREATOR</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.09.2010 news Третий альбом SUICIDAL ANGELS
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17161.jpg" width=400 height=402>Греческие трэшеры <B itxtvisited="1">SUICIDAL ANGELS</B> подготовили к выпуску свой третий альбом, названный&nbsp;<B itxtvisited="1">"Dead Again"</B>. Его выход намечен на 19 ноября на&nbsp;<B itxtvisited="1">NoiseArt Records</B>. Обложку для диска нарисовал <STRONG>Ed Repka</STRONG>.<BR itxtvisited="1"><BR itxtvisited="1">Трек лист альбома:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Damnation</B><BR itxtvisited="1">02. <B itxtvisited="1">Reborn In Violence</B><BR itxtvisited="1">03. <B itxtvisited="1">Bleeding Holocaust</B><BR itxtvisited="1">04. <B itxtvisited="1">The Trial</B><BR itxtvisited="1">05. <B itxtvisited="1">Suicide Solution</B><BR itxtvisited="1">06. <B itxtvisited="1">Beggar Of Scorn</B><BR itxtvisited="1">07. <B itxtvisited="1">Victimized</B><BR itxtvisited="1">08. <B itxtvisited="1">Violent Abuse</B><BR itxtvisited="1">09. <B itxtvisited="1">The Lies Of Resurrection</B><BR itxtvisited="1">10. <B itxtvisited="1">Search For Recreation</B> <BR itxtvisited="1">11. <B itxtvisited="1">Dead Again</B><BR itxtvisited="1">12. <B itxtvisited="1">Final Dawn</B></P>
+Автор: Headcrusher
+
+### 17.11.2010 news Новое видео SUICIDAL ANGELS
+
+<P>Клип на песню <STRONG>"Bleeding Holocaust" </STRONG>греческих трэшеров <STRONG>SUICIDAL ANGELS</STRONG> можно посмотреть ниже. Трэк попадёт на новый альбом коллектива <STRONG>"Dead Again"</STRONG>, выходящий 19 ноября. </P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowScriptAccess" VALUE="always"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=107049443,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=107049443,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent" allowScriptAccess="always"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.01.2011 news Клип SUICIDAL ANGELS
+
+<P><STRONG>"Beggar Of Scorn"</STRONG>, новый клип греческих трэшеров <STRONG>SUICIDAL ANGELS</STRONG> можно посмотреть ниже. Песня взята с третьего альбома музыкантов <STRONG>"Dead Again", </STRONG>который вышел 19 ноября на <STRONG>NoiseArt Records</STRONG>. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/z2ed9cT29-k?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/z2ed9cT29-k?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.05.2011 news Новый клип SUICIDAL ANGELS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео греков-трешеров <STRONG>SUICIDAL ANGELS</STRONG> на песню <STRONG>"Final Dawn" </STRONG>можно посмотреть ниже. Трек попал на последний альбом коллектива <STRONG>"Dead Again", </STRONG>который вышел 19 ноября прошлого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://www.youtube.com/embed/sDlzsrUGweo" frameBorder=0 width=480 height=303 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.07.2011 news SUICIDAL ANGELS вновь отправляются в студию
+
+<P>Греческие трешеры <STRONG>SUICIDAL ANGELS</STRONG> войдут в <STRONG>Prophecy & Music Factory Studios</STRONG> в октябре для записи нового альбома при помощи продюсера <STRONG>Roberto Dimitri Liapakis. </STRONG>Новый альбом группы выйдет в следующем году на <STRONG>NoiseArt Records</STRONG>.</P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=313 src="/images/news_rus/2011.07/20384.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 30.09.2011 news SUICIDAL ANGELS: обложка альбома &quot;Bloodbath&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греческие трэшеры <STRONG>SUICIDAL ANGELS</STRONG>&nbsp;опубликовали обложку своего грядущего альбома <STRONG>"Bloodbath"</STRONG>. Её автором снова стал, всем известный, <STRONG>Ed Repka</STRONG>. Выпуск альбома запланирован на <STRONG>NoiseArt Records</STRONG> 27 января 2012&nbsp;года.</FONT></P>
+<P>
+<CENTER><IMG height=456 src="/images/news_rus/2011.09/21331.jpg" width=450 border=0> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 16.03.2012 news Новый клип SUICIDAL ANGELS
+
+<P>Новое видео греков <STRONG>SUICIDAL ANGELS</STRONG> на песню "<STRONG>Bloodbath</STRONG>" можно посмотреть ниже. Трек взят с нового альбома коллектива, который вышел в январе на <STRONG>NoiseArt.</STRONG></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/zFNvi1mtJlc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 09.01.2014 news SUICIDAL ANGELS: видеоклип на песню &quot;In The Grave&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греческие трэшеры <STRONG>SUICIDAL ANGELS</STRONG> выпустили видеоклип на песню <STRONG>"In The Grave"</STRONG>. Данный трек вошёл на альбом <STRONG>"Divide And Conquer"</STRONG>, который выходит 10 января на <STRONG>NoiseArt Records</STRONG>.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/CaTQc9m7DQY" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.02.2016 news SUICIDAL ANGELS выпускают шестой студийник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греческие трэшеры <STRONG>SUICIDAL ANGELS</STRONG> сообщили о готовящемся выпуске своего шестого студийного альбома.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск под названием<STRONG> "Division Of Blood"</STRONG> выйдет 27 мая на лейбле <STRONG>NoiseArt</STRONG>. Обложку снова состряпал Эдик Репка.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28777.jpg" width=500 height=493> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 17.06.2016 news Новый клип SUICIDAL ANGELS
+
+<p>Новое видео греческих трешеров <strong>SUICIDAL ANGELS</strong> на песню "<strong>Division Of Blood</strong>" можно посмотреть ниже. Одноимённый альбом группы вышел 27 мая на лэйбле <strong>Noise Art</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/YGZ519dUppw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 17.06.2016 news New video SUICIDAL ANGELS
+
+<p>New video from Greek thrashers <strong>SUICIDAL ANGELS</strong> for the song "<strong>Division Of Blood</strong>" can be viewed below. The eponymous album was released on 27 May by the label<strong> Noise Art</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/YGZ519dUppw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 21.09.2016 news SUICIDAL ANGELS: анимационное видео на песню &quot;Image Of The Serpent&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греческие трэшеры <STRONG>SUICIDAL ANGELS</STRONG> опубликовали анимационное видео на песню <STRONG>"Image Of The Serpent"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не пропустите их дебютное выступление в Москве уже в это воскресенье!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подробнее: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></P></FONT>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/8KtHjnH-w-M" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 28.09.2016 articles SUICIDAL ANGELS в Москве: «Путешествие к истокам thrash metal в Москве XXI века»
+
+<p><center><img width="365" height="540" src="/images/articles_rus/2016.09/30018.jpg" border="0"><p></p><p><em>В воскресенье 25 сентября в Москве в клубе “Rock House” в рамках турне по Восточной Европе выступили греческие трешеры SUICIDAL ANGELS. Группа проехалась по странам бывшего СССР, при этом Россию музыканты посетили впервые. С самого начала вызывал уважение поступок организаторов, коллектив очень интересен продвинутым фэнам стиля, но назвать его мегапопулярным язык не повернётся.</em></p><p>Я попал в клуб где-то между семью и восемью вечера, на сцене выступала начинающая команда из Краснодара CRUCIFICTION (<a href="https://vk.com/crucifiction">https://vk.com/crucifiction</a>), группа находится в процессе записи дебютного мини-альбома, но уже достаточно часто выступает на Юге России. Обратил внимание на себя правильный заряд музыкантов. Ребята знают, что хотят играть, работают над имиджем и стараются разнообразить собственное выступление. Например, вокалист читает перед песнями некие стихи инфернального характера, настраивая публику на нужный лад. Сама музыка CRUCIFICTION хороший плотный трешак, не лишённый техничности. Звук был довольно отвратным, поэтому что-то понять конкретнее было сложно, но на коллектив можно и нужно обратить внимание, в нашей стране редко появляются thrash metal группы, придерживающиеся канонов, а не выдумывающие неизвестно что.</p><p>После выступления CRUCIFICTION нас как раз и ожидало неизвестно что, в качестве сюрприза. В афише не была указана немецкая (!!!) команда DYING GORGEOUS LIES, чей второй альбом «First World Breakdown” вышел в прошлом году на Massacre Records. Музыканты представили thrash metal с примесью groove metal и heavy metal с женским вокалом. Поначалу мне показалось, что ребята немного стушевались, особенно девушка вела себя как-то неестественно, но после тёплого рукопожатия с фэнами в первом ряду она взбодрилась. Мне показалось немного странным, что с SUICIDAL ANGELS едет подобная группа. Наиболее интересно в их исполнении звучали треки, приближённые к MOTORHEAD, девушка мешала чистоголосое пение и стандартный «женский скрим», а ребята-музыканты конечно старались, но драйва творчеству DYING GORGEOUS LIES явно не хватило. Звук продолжал оставаться отвратительным, и девчонка забавно орала слово из трёх букв звукоинженеру, который ничего не мог с этим поделать. В итоге немцы закончили своё выступление достаточно бодро, вдоволь порубившись с сотней фэнов, которые собрались их послушать.</p><p>SUICIDAL ANGELS выступали в Москве впервые. По лицензии в России было выпущено три альбома из шести этих thrash-metal маньяков. Греки продолжают традиции классических немецких коллективов 80-х годов. Их музыка навевает лучшие ассоциации поклонникам KREATOR и DESTRUCTION. К сожалению, это не подхлестнуло интерес публики, посещающей концерты обычно. В зале я заметил многих потребителей CD, знакомых мне по Горбушке, но в целом группу пришло посмотреть около 100 человек, что несомненно стало неприятной неожиданностью для организаторов. Жалко, что звук к выступлению SUICIDAL ANGELS не наладился, поэтому публика ориентировалась больше по наитию и объявлениям лидера группы Nick Melissourgos. В прошлый раз в Rock House я был на MARDUK, и была такая же картина. Инфернальный шум, выворачивающий уши наизнанку, рубилово в зале и кровь из глаз. Полюбиться это шоу могло только после пузыря русского национального напитка, вменяемо звучали среднетемповые композиции, а быстрые треки мешались в одну гомогенную массу. Такое впечатление, что мы побывали в гаражах на первых выступлениях TANKARD или DESTRUCTION в 80-е. Очень экстремально, но совершенно бесмысленно с точки зрения музыки. </p><p>Остаётся только догадываться, хотели ли SUICIDAL ANGELS такого бессмысленного и беспощадного драйва на концерте, но мы его получили. Публика, выдержавшая это шоу, получила нагрузку для своей нервной системы и ушей. Возможно, если тренироваться почаще, начнёшь получать удовольствие и от подобных концертов, но для людей, которые предпочитают слушать музыку, посещение подобных мероприятий пустая трата времени.</p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Греческая thrash metal банда Suicidal Angels впервые в Москве (25 сентября 2016)

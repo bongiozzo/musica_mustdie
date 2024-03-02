@@ -48,6 +48,21 @@ Make up by Anette Jenssen
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.02.2003 reviews Irond - любимый лэйбл готов
+
+<p>Если Вы гот, и вы этого не знаете, то Вы давно не покупали пластинок. Теперь в обойме Айронда ещё и итальянский лэйбл My Kingdom Music, на котором тоже есть, что послушать любителям подобной музыки. Первым совместным релизом стал альбом норвежского дуэта Crowhead. Знаете, а это хорошая пластинка... Главное очень разнообразная, пусть и не модерновая. Начинается всё стандартным gothic-rock хитом My Angel, затем мы имеем агрессивную (в меру) Mad Man, атмосферную Eternity и индустриальную Fire Eye. Продолжать не буду, но стоит сказать, что каждая песня отличается от предыдущей, что очень радует. В конце альбома наличиствует ремиксованная версия My Angel и наполненная электроникой The Soul Is In The Dark Side (это уже не в моей компетенции). Достойный коллектив.</p>
+
+Автор: Vit Belov
+
+### 06.05.2003 reviews Irond - favourite label of goths
+
+<p>If you're a goth and you don't know it, it means that you didn't buy CDs for a long time. Now Irond records signs Italian label My Kingdom Music for CIS. There is also good bands for lovers of this kind of music. First joint release is album of Norwegian duet CROWHEAD. You know, it's good CD... Main, it's very different, but and not very modern. Album starts from standart gothic-rock hit 'My Angel', then we have aggressive 'Mad Man', atmospheric 'Eternity' and industrial 'Fire Eye'. I will not continue, but i'd like to say, that every song is not like to another, that is really good. There are remix of 'My Angel' anfd full of electronic 'The Soul Is The Dark Side in the end of an album (that songs are not in my competention). Worthy band.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

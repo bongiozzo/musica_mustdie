@@ -279,6 +279,178 @@ It was recorded and finished right before the death of guitarist Mike Scaccia.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.02.1999 news Ministry - новый альбом...
+
+<P>Ministry вернулась в студию, для записи нового альбома "The Dark Side of the Spoon". По расчетам альбом появится 26 апреля.</P>
+Автор: Vit Belov
+
+### 26.04.2002 news MINISTRY next CD
+
+<p>MINISTRY's forthcoming studio CD, entitled Animositisomina, will be the group's fastest and heaviest offering since 1992's Psalm 69: The Way to Succeed and the Way to Suck Eggs, according to mainman Al Jourgensen. MINISTRY have thus far completed five songs for the forthcoming album, including the title cut, "Crucial Bitch" and "Impossible", while another seven are currently in the works. Animositisomina is tentatively due in the fall through Sanctuary Records.</p>
+
+Автор: Dimas
+
+### 26.04.2002 news Быстрее и тяжелее
+
+<p>Новая студийная работа группы MINISTRY будет называться "Animositisomina". Согласно заявлению лидера группы Al Jourgensen'а - это будет самое быстрое и самое тяжелое творение группы начиная с 1992 года и альбома "Psalm 69: The Way to Succeed and the Way to Suck Eggs". К настоящему моменту, группой записано пять песен для альбома, включая заглавную и "Crucial Bitch" с "Impossible". Остальные семь вещей пока находятся в работе. Предполагаемая дата выхода альбома на Sanctuary Records - осень 2002 года.</p>
+
+Автор: Dimas
+
+### 20.03.2003 reviews Боги шестеренок вернулись!
+
+<p>Знатный мизантроп Эл Юргенсен, сердце и мотор этой легендарной индустриальной группы, едва ли не первой на планете скрестившей танцевальную ритмику, злые гитарные запилы и грохот конвейера, вновь на сцене! Этот ненавистник полицейских и сторонник легализации проституции и марихуаны свое слово сдержал – перед вами самый агрессивный диск за всю историю группы. <BR> Новая пластинка – очевидный шаг вперед не только для самих MINISTRY, но и для индастриэла в целом (а ведь в жанре по меньшей мере лет пять не случалось подобных шедевров!). Ради такого рывка MINISTRY даже отказались от некоторых собственных штампов и фирменных ходов, уплотнив музыкальное пространство композиций до критической массы, – температура в эпицентре звука сразу напомнит вам об адских печах! Бал правят атональные гармонические решения и мелодии, вьющиеся вокруг пляшущих в эйфории машин, а человечество с его прежним пониманием музыки просят пройти на свалку! <BR> Пластинка ведет себя словно хищник – после лаконичного вступления "Animositisomina" вгрызается в сознание, словно компьютерный вирус, вырвавшийся из своего мира порезвиться в извилинах человеческого мозга. Второй трек, "Unsung" – новый гимн-ультиматум индастриэла на ближайшие годы. Затем MINISTRY слегка меняют темп и методы атаки: чуть больше мелодий, чуть меньше прямолинейной и грубой "металлической" атаки. Но не расслабляйтесь – группа овладела искусством пауз и умением подкрадываться. "The Lights pours out of me" – AC/DC на индустриальный манер, а финальная "Leper" подобна божественной смеси психоделии на грани минимализма и атакующих гитарных риффов. <BR> Чувствуется, что апологеты жанра учли новшества всех своих учеников и мастерски их переработали, продвинув жанр на новый уровень. Здесь отчетливо слышны отголоски работ NINE INCH NAILS, STRAPPIN YOUNG LAD и Девина Тауншенда, только вот сыграно все не столь хаотично и намного ярче и агрессивнее. Пластинка – шедевр от "а" до "я", и подобного не доводилось слышать по меньшей мере пару лет. Рекомендуется всем!</p>
+
+Автор: Tornado
+
+### 03.04.2003 articles Король - это я!
+
+<p><B>Шестеренки тоже умеют петь, а на любом заводе в лязге конвейера можно расслышать божественную музыку. MINISTRY, проповедники индустриального музицирования, вернулись на сцену с новой пластинкой, обещающей, по признанию ви-джеев MTV, стать одним из ярчайших музыкальных событий этого года.</B> <BR> В последние годы дела у MINISTRY шли не ахти. MTV полюбила группу после успеха платинового диска "Psalm 69", однако музыканты не захотели смягчать звучание в угоду популярности, а новые фэны с трудом принимали эксперименты. Наконец, в 2001 году Элу Юргенсену, главному двигателю группы, показалось, что пора завязывать. К тому же Стивен Спилберг предложил парню поучаствовать в создании саундтрека к фильму "Искусственный интеллект". Эл согласился и… Неожиданно его осенило – парень собрал манатки, уехал на три месяца в маленький городишко в пустыне Эль Пасо. Вернулся он с новым альбомом "Animositisomina", чье название с трудом выговаривают даже ведущие MTV – во всяком случае, выучить словцо во время недавнего интервью с Юргенсеном им не удалось.<BR> <B>- Вы и вправду можете выговорить название собственного альбома?</B><BR> - Могу. Обычный палиндром звучит так, словно вы говорите что-то по-итальянски – дилетантов впечатляет.<BR> <B>- Вы как-то обмолвились, что сейчас самое удачное время для возвращения MINISTRY на сцену… </B><BR> - Это друзья мне подсказали – похоже, MINISTRY гастролируют лишь когда идут войны в Персидском заливе… Так и есть. И хотя это лишь совпадение – мы не сидим с мыслями типа: "Такой-сякой Буш! Мы напишем песню про тебя!" Мы гораздо более гадкие вещи думаем!<BR> <B>- Судя по новым песням, вы и вправду очень гадкие вещи думаете…</B><BR> - Одна из причин, почему пластинка звучит так агрессивно, в том, что каждое утро я вставал не с той ноги – нужно было идти на запись, а это не самая веселая вещь. Это вынуждает тебя концентрироваться – почему ты зол на мир и как воплотить это в музыке вместо того, чтобы просто действовать деструктивно. <BR> <B>- Песня "Broken" звучит как гимн садомазохизму… </B><BR> - Это о стрип-баре в Техасе. Такие местечки зачастую выглядят как клубы альтернативной музыки, которые предпочитают всякие панки. Правда, со временем эти ребята стали правильными, начали протестовать против стриптиза как эксплуатации женщины, и клубы переключились на другую аудиторию и другую музыку. Моя песня "Do Ya Think I'm Sexy", записанная с REVOLTING COCKS, была даже своеобразным гимном 90-х в таких заведениях! На этот раз я не пытался сделать что-то подобное, но во мне есть что-то, из-за чего подобные песни пишутся сами собой. Ну и замечательно.<BR> <B>- Блюзмен Джонни Кэш сделал свою версию песни "Dirt" индустриальной группы NINE INCH NAILS. Если он возьмется за ваш репертуар, что бы вы ему предложили? </B><BR> - "Broken", но, боюсь, Джонни не станет петь о садомазохизме! Он же религиозный до мозга костей! Но знаете что? MINISTRY всегда были королями индустриальной музыки, но теперь я готов уступить первенство Кэшу – он делает блюзовые версии DEPECHE MODE и NINE INCH NAILS! Пусть поносит корону, мне не жалко.<BR> <B>- Карьера MINISTRY началась ровно 20 лет назад – тогда вы записали пластинку "With Sympathy". Как она вам теперь нравится?</B><BR> - Я ее не слышал с того самого момента, как покинул студию тогда, в 1983-м. У меня нет этой пластинки, и я не хочу покупать ее. Лучше уж послушать наш второй альбом "Everyday is Halloween", над которым я действительно проработал от начала до конца. А та пластинка для меня уже ничего не значит – я там был соучастником процесса, но не руководителем.<BR> <B>- А не возникает желания переделать сейчас ее на свой лад? </B><BR> - Ради Бога, только не это! Лучшие песни MINISTRY еще не написаны, так что давайте смотреть только вперед!</p>
+
+Автор: Tornado
+
+### 12.10.2003 news MINISTRY опять начинают запись
+
+<B>MINISTRY</B> начинают запись нового альбома первого ноября. Пластинка увидит свет весной.летом 2004 года на <B>Sanctuary</B>.<BR>
+Автор: Vit Belov
+
+### 07.04.2004 news Дата релиза нового альбома MINISTRY
+
+Новый альбом <B>MINISTRY</B> <B>"Houses of the Mole"</B>&nbsp;выйдет 22&nbsp;июня на&nbsp;<B>Sanctuary</B>.
+Автор: Vit Belov
+
+### 22.01.2006 news Кавер-арт MINISTRY
+
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MINISTRY</STRONG> опубликовали кавер-арт свой новой пластинки <STRONG>"Rio Grande Blood"</STRONG>.</CENTER></FONT>
+<P></P>
+<P>
+<CENTER><IMG height=180 src="/images/news_rus/2006.01/9957.jpg" width=200 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 24.01.2006 news Трэк-лист нового MINISTRY
+
+<P><STRONG>MINISTRY </STRONG>опубликовали трэк-лист новой пластинки "<STRONG>Rio Grande Blood</STRONG>":</P>
+<P>01. <B>Rio Grande Blood</B> <BR>02. <B>Se&#241;or Peligro</B><BR>03. <B>Gangreen</B> (featuring Sgt. Major) <BR>04. <B>Fear (Is Big Business)</B> <BR>05. <B>Lieslieslies</B> <BR>06. <B>The Great Satan Remix</B> <BR>07. <B>Yellow Cake</B> <BR>08. <B>Palestina</B> <BR>09. <B>Ass Clown</B> (featuring Jello Biafra)<BR>10. <B>Khyber Pass</B></P>
+Автор: Vit Belov
+
+### 21.11.2006 news MINISTRY выпустят последний альбом
+
+<P>Последний альбом <STRONG>MINISTRY "The Last Sucker</STRONG>", завершающий трилогию о президенте Буше, выйдет в середине сентября 2007 года. Лидер коллектива <STRONG>Al Jourgensen</STRONG> заявил, что группа возьмёт бессрочный отпуск сразу после выхода этой пластинки. "<EM>Мы уйдём с Бушем "рука об руку" на заход солнца</EM>", - шутит <STRONG>Jourgensen</STRONG>.</P>
+Автор: Vit Belov
+
+### 01.08.2007 news Последний альбом MINISTRY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фронтмэн <STRONG>MINISTRY</STRONG> <STRONG>Al Jourgensen</STRONG> рассказал журналу <STRONG>Metal Hammer</STRONG> о следующем альбоме группы "<STRONG>The Last Sucker</STRONG>", который станет последним для группы. На него войдут исключительно кавер-версии. Вот трэк-лист альбома:</FONT></P>
+<P><B>"Supernaut"</B> by BLACK SABBATH (from "Supernaut" EP)<BR><B>"Lay Lady Lay"</B> by BOB DYLAN (from "Filth Pig")<BR><B>"Roadhouse Blues"</B> by THE DOORS (from "The Last Sucker") <BR><B>"The Light Pours out of Me"</B> by MAGAZINE (from "Animosity")<BR><B>"I Want You"</B> by THE BEATLES<BR><B>"Under My Thumb"</B> by THE ROLLING STONES<BR><B>"Space Trucking"</B> by DEEP PURPLE<BR><B>"Black Betty"</B> by RAM JAM<BR><B>"Radar Love"</B> by GOLDEN EARRING </P>
+<P>Работа увидит свет в 2008 году.<BR></P>
+Автор: Vit Belov
+
+### 24.01.2008 news MINISTRY выпустят кавера
+
+<P>Лидер <STRONG>MINISTRY</STRONG> <STRONG>Al Jourgensen</STRONG> решил немного отвлечься от критики президента Буша. 1 апреля выходит новый альбом группы "<STRONG>Cover Up</STRONG>", где <STRONG>MINISTRY</STRONG> при помощи известных вокалистов перепевают классику от таких групп, как <STRONG>DEEP PURPLE</STRONG>, <B>T.REX</B>, <B>ZZ TOP</B>, <B>THE DOORS</B>, <B>MOUNTAIN</B>, <B>BOB DYLAN</B>, <B>THE ROLLING STONES</B>. А вот имена этих вокалистов: <B>Burton C. Bell (FEAR FACTORY)</B>,&nbsp;<B>Josh Bradford (REVOLTING COCKS'),</B>&nbsp;<B>Thomas Victor (PRONG)</B>&nbsp;и др.</P>
+Автор: Vit Belov
+
+### 21.10.2008 reviews Ministry: Завершение трилогии. Завершение истории. Завершение эпохи?
+
+<P>Вполне возможно, что с альбомом "The Last Sucker" безумных индастриальщиков Ministry для кого-то закончится целая эпоха, ибо мастермайнд группы Alien Jourgensen заявил, что эта пластинка будет последней в истории группы и Ministry заканчивают свою деятельность. Заканчивают они этим релизом и антибушевскую трилогию, начатую на альбомах "House Of The Mole" и&nbsp;"Rio Grande Blood". Впрочем, семейство Бушей тоже скоро покинет Белый Дом, в январе 2009 года, так что, как говорится, все останутся при своих. Как вы, наверное, уже поняли, в названии этой работы, "The Last Sucker", кроется игра слов: The Last Supper это Тайная Вечеря, а уж как вы переведете название пластинки Minsitry, зависит от вашей испорченности, пардон, образованности. Нельзя сказать, что напоследок группа нас порадовала каким-то шедевром; безусловно, в её карьере были работы и поинтереснее. Но фанаты и любители подобной музыки вообще не будут разочарованы. Жесткие индастриальные сэмплы, [электрические] безумства в духе самых настоящих панков, опять-таки жесткие и ревущие гитары, походящие порой звуком на пулемёты, дисторшированный вокал - всё тут имеет место быть, и вам&nbsp;будет где разгуляться. Одним из самых любопытных моментов на "The Last Sucker" стал кавер известнейшей песни The Doors 'Roadhouse Blues', хотя не знаю, как на неё отреагируют поклонники Джима Моррисона; возможно, сочтут просто издевательством и осквернением святыни.&nbsp;Ну, а с музыкальной точки зрения, по моему скромному мнению, больше всего удались заглавная вещь и совершенно сумасшедший трэк 'Death & Destruction', какой-то прям индастриальный трэшо-панк. Фанатам необходимо порекомендовать прикупить дигипачное uncensored издание альбома с изображением американского президента на обложке, который под определенным углом - как я понял - превращается в ящерицеподобное существо. С уверенностью можно сказать, что Minsitry с "The Last Sucker", пусть и не шедевральной, но весьма неплохой работой,&nbsp;достойно завершили свою карьеру. Но почему-то кажется, что мы&nbsp;о них - или по крайней мере об Эле Йоргенсене - еще услышим.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 23.03.2009 news Al Jourgensen продолжает выражаться
+
+<P><STRONG><IMG height=359 alt="" hspace=0 src="/images/news_rus/2009.03/13797.jpg" width=400 align=right border=5>MINISTRY</STRONG> распались, но лэйбл лидера этого коллектива <STRONG>Al Jourgensen 13th Planet Records </STRONG>не даёт забыть о группе. На этот раз нас ждёт концертный альбом коллектива с традиционным названием <STRONG>"Adios...Puta Madres". </STRONG>На компакт попадут концертные выступления в разных городах Европы, записанные в течение последнего тура <STRONG>"C U LaTouR 2008". </STRONG>Трэк-лист:</P>
+<P>01. <B>Let's Go</B><BR>02. <B>Watch Yourself</B><BR>03. <B>Life is Good</B><BR>04. <B>The Dick Song</B><BR>05. <B>The Last Sucker</B><BR>06. <B>No W</B><BR>07. <B>Waiting</B><BR>08. <B>Worthless</B><BR>09. <B>Wrong</B><BR>10. <B>Rio Grande Blood</B><BR>11. <B>Senor Peligrio</B><BR>12. <B>Lieslieslies</B><BR>13. <B>Khyber Pass</B></P>
+<P>Сэмплы: <A href="http://www.myspace.com/ministrymusic">http://www.myspace.com/ministrymusic</A></P>
+Автор: Vit Belov
+
+### 16.07.2011 news Relapse издаст сольник CHRIS CONNELLY
+
+<P>Новый соло-альбом клавишника <STRONG>CHRIS CONNELLY (MINISTRY, REVOLTING COCKS, THE HIGH CONFESSIONS)</STRONG> выходит на <STRONG>Relapse Records</STRONG>. "<STRONG>Artificial Madness</STRONG>" был записан в <STRONG>Engine studios</STRONG> в Чикаго продюсером <STRONG>Sanford Parker</STRONG>. Музыку на этой пластинке сам <STRONG>Chris</STRONG> сравнил с <STRONG>MINISTRY, KILLING JOKE</STRONG>&nbsp;и <STRONG>THE DAMAGE MANUAL</STRONG>. </P>
+<P>"<EM>Эта музыка - заявление против вялого кошмара EAGLES / FLEETWOOD MAC, с которым уже никто не борется и не задаёт вопросов. Пришло время для революции</EM>", - заявляет музыкант.</P>
+<P><A href="http://www.chrisconnelly.com/">http://www.chrisconnelly.com/</A></P>
+<P><center><IMG height=200 src="/images/news_rus/2011.07/20185.jpg" width=267 border=0></P>
+Автор: Vit Belov
+
+### 08.08.2011 news MINISTRY возвращаются
+
+<P>Стало известно, что <STRONG>Al Jourgensen </STRONG>решил возродить своё культовое детище <STRONG>MINISTRY</STRONG>. Группа объявила о своём участие в фестивале <STRONG>Wacken Open Air</STRONG> будущего года. </P>
+<P>Прощальный тур industrial-легенды <STRONG>"C-U-LaTour" </STRONG>состоялся в 2008 году.</P>
+<P><center><IMG height=585 src="/images/news_rus/2011.08/20500.jpg" width=401 border=0></P>
+Автор: Vit Belov
+
+### 20.12.2011 news Обложка нового MINISTRY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый с 2007 года студийный альбом возрождённых<STRONG> MINISTRY "Relapse"</STRONG> выйдет 30 марта. Обложку CD можно посмотреть ниже.</FONT></P>
+<P><center><IMG height=475 src="/images/news_rus/2011.12/22355.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 20.03.2012 news Новый клип MINISTRY
+
+<P>Новое видео легендарных<STRONG> MINISTRY "99 Percenters" </STRONG>можно посмотреть ниже. Трек попадёт на новый альбом "<STRONG>Relapse</STRONG>", который выйдет на этой неделе.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/DqTxsSsaho0?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 14.06.2012 news Новый ролик MINISTRY
+
+<P>Новый видео-клип<STRONG> MINISTRY</STRONG> <STRONG>"Ghouldiggers" </STRONG>можно посмотреть ниже. Трек взят с нового альбома легендарной группы <STRONG>"Relapse".</STRONG></P>
+<P><STRONG></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/TCQppWC6iLE?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 23.12.2012 news Скончался Mike Scaccia
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25180.jpg" width=350 height=526>Печальные вести пришли из стана&nbsp;групп&nbsp;<STRONG>MINISTRY </STRONG>и <STRONG>RIGOR MORTIS</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Прошедшей ночью от сердечного приступа скончался&nbsp;гитарист&nbsp;<STRONG>Mike Scaccia</STRONG>. Случилось это во время шоу посвящённого 50 летию Брюса Корбитта (<STRONG>Bruce Corbitt</STRONG>, вокалист <STRONG>RIGOR MORTIS</STRONG> и<STRONG> WARBEAST</STRONG>), на котором <STRONG>Mike</STRONG> выступал в составе <STRONG>RIGOR MORTIS</STRONG>. Майку было 47 лет.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В качестве гитариста, <STRONG>Mike</STRONG> поучаствовал на нескольких альбомах&nbsp;<STRONG>MINISTRY</STRONG>, а также&nbsp;побочных проектах их лидера Эла Юргенсона (<STRONG>Al Jourgensen</STRONG>) - в том числе, <STRONG>LARD</STRONG> и <STRONG>REVOLTING COCKS</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Так же <STRONG>Mike Scaccia</STRONG> был известен, как основатель техаской трэш-металлической формации <STRONG>RIGOR MORTIS</STRONG>, с которой он&nbsp;в конце 80-х/начале 90-х&nbsp;записал и выпустил&nbsp;два полноформатника и один миньон.&nbsp;Несколько лет назад группа воссоединилась&nbsp;и работала над своим новым альбомом...</FONT></P>
+Автор: Headcrusher
+
+### 09.06.2014 news Концертный релиз от MINISTRY
+
+<P>Лейбл <STRONG>UDR</STRONG> выпускает концертный релиз <STRONG>MINISTRY</STRONG>. Получивший название <STRONG>"Last Tangle in Paris - Live 2012"</STRONG>, он будет выпущен сразу в нескольких форматах. Помимо DVD и BluRay дисков с концертом, <STRONG>"Last Tangle in Paris - Live 2012" </STRONG>также выйдет на двойном виниле и обычном CD.</P>
+<P>Бонусом&nbsp;к DVD и BluRay изданиям станет двойной концертный диск <STRONG>"Retroperspective"</STRONG>, на который, кроме парижских записей, войдёт несколько живых треков датированных 2006 годом.</P>
+<P>Даты выхода: Европа - 4 июля, Англия - 7 июля, США - 8 июля.</P>
+<P>Рекламный ролик <STRONG>"Last Tangle in Paris - Live 2012" </STRONG>доступен по ссылке: <A href="http://youtu.be/P-bFm-DU5sc">http://youtu.be/P-bFm-DU5sc</A></P>
+<P>Трек-лист DVD и BluRay:</P>
+<P>1. <STRONG>Ghouldiggers</STRONG> | 2. <STRONG>No ‘W’</STRONG> | 3. <STRONG>Senor Peligro</STRONG> | 4. <STRONG>LiesLiesLies </STRONG>| 5. <STRONG>99%ers</STRONG> | 6. <STRONG>Life Is Good</STRONG> | 7. <STRONG>Relapse</STRONG> | 8. <STRONG>The Last Sucker</STRONG> | 9. <STRONG>Psalm 69</STRONG> | 10. <STRONG>New World Order</STRONG> | 11. <STRONG>Just One Fix</STRONG> | 12. <STRONG>Thieves</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.06/27053.jpg" width=500 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.03.2016 news SURGICAL METH MACHINE: новая музыка от Эла Йоргенсена
+
+<P>Лейбл <STRONG>Nuclear Blast</STRONG> опубликовал лирик-видео к композиции <STRONG>"Tragic Alert"</STRONG> нового детища Эла Йоргенсена (<STRONG>MINISTRY</STRONG>)&nbsp;под названием <STRONG>SURGICAL METH MACHINE</STRONG>.&nbsp;&nbsp;Одноимённый диск этого проекта выходит 15 апреля 2016 года. </P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/ljgs9Bbe_wU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.08.2016 news Фото с концерта MINISTRY
+
+<p>2 августа в клубе <strong>Yotaspace</strong> в Москве выступили <strong>MINISTRY</strong>. Вы можете увидеть <a href="/ru/galleries/1/1770/">фоторепортаж с этого концерта здесь</a>.</p><p>Последний на сегодня альбом <strong>MINISTRY "From Beer To Eternity"</strong> вышел в 2013 году на <strong>AFM</strong>.</p><p><center><img width="600" height="900" src="/images/news_rus/2016.08/29736.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 05.08.2016 news MINISTRY in Moscow (photo)
+
+<p><strong>MINISTRY</strong> have performed in the club<strong> Yotaspace</strong>, Moscow on August, 2. You can see <a href="/en/galleries/1/1770/">photos from this concert here.</a></p><p>The last <strong>MINISTRY</strong> album "<strong>From Beer To Eternity</strong>" has been released in 2013 on<strong> AFM</strong>.</p><p><center><img width="600" height="900" src="/images/news_rus/2016.08/29736.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый альбом Ministry

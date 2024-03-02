@@ -42,6 +42,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.03.2011 news DAMMERUNG на More Hate
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.03/18930.jpg" width=400 align=right border=0>Второй альбом украинской melodic black-metal группы <STRONG>DAMMERUNG "Dark Poetry"</STRONG> издан совместными усилиями <STRONG>More Hate</STRONG> и <STRONG>Metal Scrap</STRONG>. Пресс-релиз: "<EM>Melodic black / heavy metal команда из Украины. Концепция нового альбома "Dark Poetry" проста – это вечная битва за индивидуальность человека. На&nbsp; новом альбоме Dammerung пытаются выразить свои идеи с помощью образов древних богов, дающих человеку знание, как оружие против лживого христианского общества</EM>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. <STRONG>Geometry Of Shadows<BR></STRONG>2. <STRONG>Bloody&nbsp; River</STRONG><BR>3. <STRONG>The Legaсy<BR></STRONG>4. <STRONG>Black Arrows Of Hatred</STRONG><BR>5. <STRONG>Enstoned</STRONG><BR>6. <STRONG>The Other Side</STRONG><BR>7. <STRONG>Ancient Mother<BR></STRONG>8. <STRONG>Tomorrow Will Never Begin</STRONG><BR>9. <STRONG>From Earth To Heavens</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

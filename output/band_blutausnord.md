@@ -104,6 +104,26 @@ Recorded and Mixed by Vindsval.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.04.2006 news Новость от Candlelight
+
+<P>Французы&nbsp;<STRONG> BLUT AUS NORD</STRONG>&nbsp; продолжают работу над своим новым альбомом&nbsp; <STRONG>M.o.R.T. (Metamorphosis of Realistic Theories).</STRONG> Предполагается что диск выйдет в начале осени и будет продолжением альбома<STRONG> "The Work Which Transforms God".</STRONG><BR></P>
+Автор: Bizarre
+
+### 19.01.2009 news Новый альбом BLUT AUS NORD
+
+<P><IMG height=376 alt="" hspace=0 src="/images/news_rus/2009.01/13394.jpg" width=350 align=right border=5>23 февраля на <STRONG>Candlelight</STRONG> выйдет новый альбом <STRONG>BLUT AUS NORD</STRONG> <STRONG>"Memoria Vetusta II - Dialogue With The Stars". </STRONG>Альбом стал сиквелом пластинки французов 1996-го года. Группа не обещает никаких индустриальных звуков и дисгармоний. Трэк-лист:</P>
+<P>01. <B>Disciple's Libration (Lost In The Nine Worlds)</B><BR>02. <B>Antithesis Of The Flesh (...And Then Arises A New Essence)</B><BR>03. <B>The Alcove Of Angels (Vipassana)</B><BR>04. <B>...The Meditant (Dialogue With The Stars)</B><BR>05. <B>Acceptance (Aske)</B><BR>06. <B>Translucent Body Of Air (Sutta Anapanasati)</B><BR>07. <B>The Formless Sphere (Beyond The Reason)</B><BR>08. <B>The Cosmic Echoes Of Non-Matter (Immaterial Voices Of The Fathers)</B><BR>09. <B>Elevation (The Dawn Of The Gods)</B></P>
+Автор: Vit Belov
+
+### 07.09.2011 news Новый альбом BLUT AUS NORD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.09/20947.jpg" width=475 align=right border=0>Новый альбом <STRONG>BLUT AUS NORD</STRONG> <STRONG>"777 - The Desanctification" </STRONG>выйдет 11 ноября на <STRONG>Debemur Morti Productions</STRONG>. Пластинка была записана и сведена в <STRONG>Earthsound Studio. </STRONG>Обложку создал художник <STRONG>Valnoir. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Epitome VII</B><BR>02. <B>Epitome VIII</B><BR>03. <B>Epitome IX</B><BR>04. <B>Epitome X</B><BR>05. <B>Epitome XI</B><BR>06. <B>Epitome XII</B><BR>07. <B>Epitome XIII</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.02.2012 news Новый клип SHTURM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню "<STRONG>Solitude Beside</STRONG>" с нового альбома группы<STRONG> SHTURM "Karmaruna"</STRONG> можно посмотреть ниже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/KLG4_pgBYfw?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

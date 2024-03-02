@@ -245,6 +245,1146 @@ Arrangements by Dark Moor
 * C группой "Dreamaker" Albert Maroto (guitar)
 * C группой "Dreamaker" Jorge Saez (drums)
 
+## Публикации
+
+### 08.05.2000 reviews 
+
+<p>А вот и испансикй Stratovarius нас навестил. Спасайся, кто может. Скоро свой Stratovarius будет во всех точках мира. Мне уже противно за мой язык, но вновь говорю, очень хорошая пластинка без явных изъянов. Хорошие мелодии в духе фэнтази, отличная игра на гитарах и клавишах, нелохой вокал. Всё это я уже писал сто раз, но придётся ещё.. Хотя я думаю и так всё понятно без слов. Советую купить всем коллекционерам. Вот только у меня новый бзик, я хотел бы услышать от испанской группы что-нибудь испанское, благо фолклор у них богатый. Если на следующем альбоме это будет, смело поставлю 10.</p>
+
+Автор: Vit Belov
+
+### 20.12.2001 news Dark Moor have finished recording their third full-length album....
+
+<p>Spanish power metallers Dark Moor have finished recording their third full-length album, The Gates of Oblivion, at New Sin Studios. The album was completed with the help of Valcavasia Choir and Dan Keying of Cydonia. The Gates of Oblivion was then taken to Finnvox Studios for mastering. To fulfill Dark Moor's fantasy stylings, Andreas Marshall (Blind Guardian, In Flames) was enlisted to illustrate the album's cover art. <BR><BR> "In The Heart Of Stone," "A New World," "The Gates Of Oblivion," "Nevermore," "Starsmaker (Elbereth)," "Mist In The Twilight," "By The Strange Path Of Destiny," "The Night Of The Ages," "Your Symphony," "The Citadel Of The Light," "A Truth For Me" and "Dies Irae (Amadeus)." <BR><BR> In similar news, Arise has licensed The Gates of Oblivion to JVC for Asia, where the album will see simultaneous release in Japan and South Korea. A North American release is planned, but currently Arise's partner on this side of the Atlantic isn't known yet. <BR><BR> Dark Moor's The Gates of Oblivion will see a European release in March 2002 on Arise Records.</p>
+
+Автор: Yermola
+
+### 20.12.2001 news Врата Забвения...
+
+<p>Завершена работа над третьим диском испанских пауэрщиков "Dark Moor" названным "The Gates of Oblivion". Сессии проходили в New Sin Studios при участии Хора Valcavasia и Dan Keying из Cydonia. Мастеринг "Врат Забвения" делается в Finnvox Studios. Чтобы дополнить фэнтэзийный стиль группы, артворк был выполнен Андреасом Маршаллом (работавшим с Blind Guardian, In Flames. Трек-лист: <BR><BR> "In The Heart Of Stone" <BR> "A New World" <BR> "The Gates Of Oblivion" <BR> "Nevermore" <BR> "Starsmaker (Elbereth)" <BR> "Mist In The Twilight" <BR> "By The Strange Path Of Destiny" <BR> "The Night Of The Ages" <BR> "Your Symphony" <BR> "The Citadel Of The Light" <BR> "A Truth For Me" <BR> "Dies Irae (Amadeus)" <BR><BR> Компания Arise лицензировала The Gates of Oblivion для JVC в азиатском регионе, также в планах Северо-американский релиз. Дата выхода в Европе - март 2002...</p>
+
+Автор: Yermola
+
+### 30.01.2002 news Future releases of Spanish Arise Records
+
+<p>1st of March of 2002 Arise records will release some new CDs. They are: DARK MOOR "The Gates Of Oblivion" - Third album from epic power metal band, Mastered by Mika Jussila at Finnvox, Featuring special guests : Valcavasia choir and Dan Keying (Cydonia), MOURNING CARESS "Imbalance" - Debut album of the great Melodic Death Metal band from Mьnster (Germany), Cover artwork painted by Niklas Sundin of Dark Tranquillity, VHALDEMAR "Fight To The End" - 100% Heavy Metal, SERAPHIM "The Soul That Never Dies" - Original Heavy Metal from Taiwan.</p>
+
+Автор: Vit Belov
+
+### 01.03.2002 news Новости от ARISE Records
+
+<p>Коротко об основных новостях групп выпускающих свои альбомы на этом испанском лэйбле...</p>
+<P> Бразильская хэви-метал команда WIZARDS подписала контракт с ARISE Records, где выпустит свой последний альбом "The Kingdom" для распространения его в Европе. Альбом будет выпущен в мае 2002 года.</>
+<P> Второй альбом группы RED WINE "El Fin De Los Tiempos" будет выпущен в апреле. В составе команды замечена вокалистка DARK MOOR. Обложку к альбому нарисовал Jean Pascal Fournier (Edguy,Immortal). После выпуска альбома, группа отправляется в турне с новым ударником.</>
+<P> AXENSTAR начали работу над своим дебятным альбомом "Perpetual Twilight" в Studio. Эта группа, без сомнения, одно из недавних открытий шведской хэви-металлической сцены. Их музыка переполнена мелодиями и мощью. Альбом будет выпущен в октябре 2002 года.</>
+<P> Тайваньская команда SERAPHIM выпускает в марте свой дебютный альбом "The Soul That Never Dies" представляющий собой экзотический хэви-метал с женскими оперными подпевками.</>
+<P> Испанская команда ARWEN начинает запись своего дебютного альбома в мае. Группа состоит из восьми человек. Это довольно необычно для хэви-металлической команды. Музыканты представят на всеобщий суд эпические песни с тоннами вокальных размещений и особенной мелодикой. Также обещается высокое техническое качество. Выпуск альбома планируется в октябре 2002 года.</>
+<P> Ожидаемые в марте релизы ARISE Records:</>
+<P> DARK MOOR "The Gates Of Oblivion" <BR> VHALDEMAR "Fight To The End" <BR> MOURNING CARESS "Imbalance" <BR> SERAPHIM "The Soul That Never Dies " <BR></>
+
+Автор: Dimas
+
+### 15.05.2002 news Dark Moor продолжают свой испанский тур....
+
+<p>Dark Moor продолжают свой испанский тур, который закончится в июне, а в июле группа войдёт в студию для записи ещё 4 песен, которые войдут на некий special edition, который выйдет в декабре. Вокалистка Элиза примет участие во втором альбоме Infinity, дата релиза которого назначена на 2003 год.</p>
+
+Автор: Yermola
+
+### 16.05.2002 news DARK MOOR will enter again at the Studio .....
+
+<p>DARK MOOR will follow with their successful Spanish Tour as headliners which will end in June. The band will enter again at the Studio next July to record 4 new songs which will be included in a special edition to be released in December 2002. Elisa will take part in the Beto Vбzquez Infinity second album dated in 2003.</p>
+
+Автор: Yermola
+
+### 19.05.2002 reviews Темное болото у Врат Забвения
+
+<p>Третий полнометражный альбом испанского варианта итальянской RHAPSODY, если не считать прошлогодний альбом "The Fall Of Melnibone" на 35 минут, вышедший ограниченным тиражом и содержащий песни, которые больше нигде не записаны (в том числе и кавер HELLOWEEN "Halloween" с участием Кая Хансена). Те же великолепные аранжировки, чуть упрощенные оркестровые аккомпанементы, женский вокал (но какой!) от сопрано до сходного с Фабио Лионе, постоянные величественные хоралы, участие Valcavasia's Choir в нескольких песнях, подобные эпичность и размах, те же гитарные упражнения соло-гитариста и плотная клавишная стена. Плюс к этому приобщаются некоторые элементы STRATOVARIUS и NIGHTWISH. Да, материал вторичен, но, тем не менее, достоин большого внимания. В последней песне на 11 с лишним минут музыканты отдают дань Великому Моцарту (особенно, его "Реквиему"). В конце же альбома затаился трэк "The Shadow Of The Nile" на 6 минут, сведения о котором нигде не указаны. Не знай я, что слушаю, то 100% подумал бы, что это THERION. Вот такие вот дела... С каждым альбомом, надо признать, группа показывает все больше своего потенциала и выгодные стороны. Продукция альбома безупречна. С первых же минут испанцы стремительно развивают события зажигательными гитарными риффами и мелодиями, сменами ритмов и классическими пассажами. Замечательный epic sympho power metal-альбом, который не удивит ничем новым, но воодушевит всех любителей этого стилистического направления.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 25.05.2002 reviews Rhapsody from Spain
+
+<p>Third full-length album of the Spanish variant of Italian RHAPSODY, short of a last year's album "The Fall Of Melnibone" for 35 minutes left in limited edition and containing songs, which are not written down anywhere (including cover of HELLOWEEN "Halloween" with participation of Kai Hansen). Same magnificent arrangements, hardly simplified orchestral accompaniments, female вокал (but with what!) from soprano up to similar with Fabio Lione, constant majestic chorals, participation of Valcavasia's Choir in several songs similar epic and scope, same guitar exercises of solo-guitarist and dense keyboard wall. Plus some elements of STRATOVARIUS and NIGHTWISH join this. Yes, the material is secondary, but, nevertheless, appreciate the large attention. In last song on 11 minutes the musicians give back a tribute to A Great Mozart (especially, "Requiem"). In the end of an album has hidden unknown track for 6 minutes. If I Do not know, that I listen, 100 % would think, that is THERION. Such businesses... With each album, it is necessary to recognize, the group shows ever more and more than potential and favourable parties. Production of an album is faultless. Since the first minutes the Spaniards promptly develop events with fast guitar riffes and melodies, changes of rhythms and classical passages. Remarkable epic sympho power metal-album, which will not surprise with anything new, but will inspire all fans of this stylistic direction.</p>
+
+Автор: Vit Belov
+
+### 18.06.2002 reviews Коктейль из &quot;Walls Of Jericho&quot; и &quot;Vain Glory Opera&quot;
+
+<p>Тревожный симптом: мне начал нравиться т.н. "happy power". Хотя какой это к чертям "хэппи..."! Очевидно, что DARK MOOR не чураются коммерческих ходов, равно как и не стремятся к 100-процентной оригинальности, однако отсутствие оригинальности ещё не есть отсутствие просто хорошей музыки, так ведь? Не говоря уже о том, что в наше время ох как нелегко избежать различных штампов и некоторой клишированности материала – особенно, когда речь идёт о такой музыке, каковую нам предлагают DARK MOOR. В случае с испанцами имеем то, что имеем – далеко не оригинальный, но вместе с тем более-менее (скорее, всё-таки "менее") самобытный power metal. К игре музыкантов претензий нет и быть не может, что же касается вокала... Уже слышу гневные возгласы: "Да сколько ж можно слушать это блеянье! Неужели для того, чтобы занять место у микрофонной стойки в power металлической группе, надо быть кастратом?!" Согласен, бездарный писк в духе HAMMERFALL не может не раздражать. Однако в случае с DARK MOOR возражения не принимаются. Во-первых, потому что пресловутого писка на этом альбоме вы днём с огнём не сыщете, а во-вторых, потому что фронтменом этого коллектива... является женщина. Довольно редкое явление в пауэре, не правда ли? И поёт эта мадам хорошо. По крайней мере, откровенных недостатков в пении Элизы мною найдено не было. Короче говоря, представьте себе коктейль из HELLOWEEN'вского "Walls Of Jericho" и "Vain Glory Opera" авторства EDGUY. Представили? Облизнулись? Тогда бегом в магазин!</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.09.2002 news A TRIBUTE TO HELLOWEEN PART II
+
+<p>Окончательно стало известно, что вторая часть посвящения HELLOWEEN "The Keepers Of Jericho - A Tribute To Helloween Part II -" выйдет 9 декабря 2002 года на Arise Records. Трэк-лист альбома:</p>
+<p> IRON SAVIOR - PHANTOMS OF DEATH <BR> STEEL ATTACK - DR.STEIN<BR> POWERGOD - STARLIGHT<BR> BETO VAZQUEZ INFINITY - A TALE THAT WASN&acute;T RIGHT (Featuring Elisa - DARK MOOR -)<BR> ARWEN - MARCH OF TIME<BR> HIGHLORD - POWER <BR> FRETERNIA - MURDERER <BR> PARAGON - METAL INVADERS<BR> VHALDEMAR - GORGAR <BR> CELESTY - THE CHANCE <BR> DRAGONLAND - SOUL SURVIVOR <BR> AXENSTAR - TWILIGHT OF THE GODS <BR> RED WINE - RISE & FALL</p>
+<p> Все трэки на альбоме эксклюзивные и записывались специально для него. Обложку для альбома нарисовал Travis Smith.</p>
+
+Автор: Dimas
+
+### 12.11.2002 news Dark Moor 4 new tracks have been  recorded ...
+
+<p>Dark Moor 4 new tracks have been recorded for a special edition album to be released on 21.04.2003.This album will contain in total 8 tracks where fans can we find 4 tracks never released in the European market, too. These tracks were recorded during the recording sessions of " The Hall Of The Olden Dreams " & "The Gates Of Oblivion" albums. This is the track list of the album : " A Lament Of Misery" (New), "Memories" (New), "From Dusk To Dawn" (New) , "Echoes Of The Sea" (New), Dies Irae (Orchestral Version), "The Shadow Of The Nile", "Mistery Of Goddess" and "The Fall Of The Melnibonй". Dark Moor will also play in the Festival Nit De Reis (Palau Sant Jordi - Barcelona - ) with Blind Guardian, Iron Savior, Virgin Steele...</p>
+
+Автор: Yermola
+
+### 02.02.2003 news Дебют FAIRYLAND
+
+<p>Французская symphonic epic power metal группа FAIRYLAND готовит к выходу свой дебютный альбом под названием "Of Wars In Osyrhia". Партии вокала на альбоме записала Elisa C.Martin (DARK MOOR). Выход альбома на Arise Records намечен 24 апреля 2003 года.</p>
+
+Автор: Dimas
+
+### 02.02.2003 news Новости от Arise Records
+
+<p>Шведская группа AXENSTAR усиленно работает над сочинением своего нового альбома, выпуск которого запланирован на осень 2003 года.</p>
+<p> Испанская команда VHALDEMAR разъезжает по турам, давая концерты как у себя на родине и не только. Вместе с тем, идет работа над новым материалом. Выпуск нового альбома планируется в октябре 2003 года.</p>
+<p> 21 апреля 2003 года выйдет давно ожидаемый альбом группы DARK MOOR под названием "Between Light and Darkness". Это будет специальное издание для фэнов группы содержащее четыре акустических трэка записанных специально для этого релиза, оркестровую версию "Dies Irae" и три нереализованных трэка.</p>
+<p> Между тем DARK MOOR уже сочинили песни для своего следующего альбома, запись которого начнется в июне, а выход альбома намечается в октябре 2003 года.</p>
+
+Автор: Dimas
+
+### 28.02.2003 news DARK MOOR - потери в группе
+
+<p>По данным официального сайта испанской группы DARK MOOR, команду покидают вокалистка Elisa, гитарист Alberto и ударник Jorge, которые приняли решение создать новую группу. Оставшиеся двое участников гитарист Enrik и басист Anan останутся с прежним названием и будут искать новых музыкантов.</p>
+
+Автор: Dimas
+
+### 10.04.2003 reviews Между светом и тьмой
+
+<p>Новая работа лидеров испанского power metal. И по существу, это последняя запись группы с прежней вокалисткой Элизой С. Мартин. Задумывался этот альбом как миньон, но в результате вышел в виде специального издания на 52 минуты. В альбом вошли четыре новых вещи (A lament of misery, From dawn to dusk, Memories и Echoes of the seas), полностью акустических, записанных совместно со струнным квартетом и профессиональной пианисткой. Также в альбом вошли все три бонуса с предыдущих двух альбомов группы (Fall of melnibone (бонус к The Hall of the Olden Dreams), Shadow of the Nile (бонус к The Gates of Oblivion) и Mistery of goddes (бонус к The Gates of Oblivion). Ранее эти бонусы были доступны только на японских релизах. Ну и в конце альбома - слегка укороченная, оркестровая версия композиции Dies Irae со второго альбома. <BR> Первые три акустические вещи очень идеально подходят как в качестве фона для кропотливой работы, требующей усидчивости и внимания, так и в качестве музыки для отдыха. Кстати, если вы захотите потанцевать с девушкой медленный танец, то тоже можете смело ставить любую из первых трех вещей. Четвертая вещь, скорее не акустическая, а оркестровая, напоминающая произведения Вивальди. Бонусы к альбомам тоже не совсем характерны для основного творчества группы. Более симфоничные и эпичные. Ну а оркестровая "Dies Irae" звучит будто взята из Моцартовского "Реквиема".<BR> Очень крепкая работа, которая будет интересна не только для поклонников группы (как это было задумано сначала). Тем более, в связи с последними событиями в группе, этот диск можно считать прощальным... А жаль... Хорошая была группа. Не верится, что в новом составе ее ждет светлое будущее. Это альбом между светлым прошлым и темным будущим.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 01.05.2003 news Новый вокалист DARK MOOR
+
+<p>Alfred Romero, так зовут нового вокалиста испанской power metal группы DARK MOOR. В ближайшее время группа доукомплектует свой состав и начнет в августе запись нового альбома, выход которого запланирован на Arise Records в ноябре 2003 года.</p>
+
+Автор: Dimas
+
+### 02.06.2003 news Новости Arise Records
+
+<p>Бывшие участники DARK MOOR - вокалистка Elisa C.Martin, гитарист Albert Maroto и ударник Jorge Saez, образовали новую формацию DREAMAKER. Кроме них, в состав входят гитарист Matias Sosa, басист Carlos Pena и клавишник Roberto P.Camus (тоже некогда игравший в DARK MOOR). Группа запишет свой дебютный альбом в сентябре-октябре, в Финляндии. Ближе к концу года, он выйдет на Arise Records.</p>
+<p> Heavy metal проект из Швеции WIZ с участием гитариста NOSTRADAMEUS Jake Freden тоже подписал контракт с Arise Records. Новый альбом должен выйти там в конце года.</p>
+<p> Новым гитаристом DARK MOOR стал участник ARWEN Jose Garrido. Первый альбом в новом составе и с новым вокалистом увидит свет в октябре-ноябре этого года.</p>
+<p> FRETERNIA работает над своим третьим альбомом. В группе новый гитарист - Niclas Karlsson (ex-Zonata).</p>
+<p></p>
+
+Автор: Dimas
+
+### 27.07.2003 news DARK MOOR готовы к записи
+
+<p>Испанская power metal формация DARK MOOR в полном составе. К присоединившимся к группе ранее вокалисту Alfred Romero и второму гитаристу Jose Garrido, добавился ударник Andy C. В августе начнется запись в итальянской New Sin Studios четвертого альбома группы с одноименным названием "Dark Moor". В записи планируется участие Valcavasian choir, певца Beatriz Albert и пианиста Isabel Garcia. Релиз ожидается в начале 2004 года через Arise Records. В октябре 2003 года, увидит свет сингл к альбому, в котором будут две вещи, которые не войдут на него.</p>
+
+Автор: Dimas
+
+### 03.09.2003 news Dark Moor закончили запись нового альбома
+
+<p><IMG SRC="/images/news_rus/2003.09/4779.jpg" ALT="pho" width=283 height=213 hspace="15" vspace="5" border="1" align="right">DARK MOOR закончили нового одноимённого альбома в New Sin Studios. После этого альбом отправится на мастеринг к Mika Jussila в Finnvox. На альбоме приняли участие Valcavasia хор, хор девочек Castelfranco, Mamen (ARWEN). Трэк-лист:</p>
+<p> 1. A Life For Revenge 2. Eternally 3. The Bane of Daninsky, The Werewolf 4. Cyrano of Bergerac 5. The Sea (Ulysses) 6. From Hell 7. Overture (Attila) 8. Wind Like Stroke (Attila) 9. Return For Love (Attila) 10.The Ghost Sword (Attila) 11.The Dark Moor</p>
+
+Автор: Vit Belov
+
+### 06.09.2003 news Dark Moor have finished album
+
+<p>DARK MOOR have finished the recording of their fourth album іDark MoorІ at New Sin Studios. The album will be mastered by Mika Jussila at Finnvox. There are numerous guest musicians for the backing vocals such as the Valcavasia choir, the young female Castelfranco choir, Mamen (Arwen) and Beatriz Albert. This is the new line-up of the band: Enrik Garcнa (guitar), Anan Kaddouri (bass), Alfred Romero (vocals), Josй Garrido (guitar) and Andy C. (drums).<br> іDark MoorІ tracklisting:</p>
+<p> 1. A Life For Revenge 2. Eternally 3. The Bane of Daninsky, The Werewolf 4. Cyrano of Bergerac 5. The Sea (Ulysses) 6. From Hell 7. Overture (Attila) 8. Wind Like Stroke (Attila) 9. Return For Love (Attila) 10.The Ghost Sword (Attila) 11.The Dark Moor</p>
+
+Автор: Vit Belov
+
+### 01.01.2004 news Dark Moor on tour in Europe
+
+16.01.2004 BRUSSELS (B) Ten Weyngaert <BR>17.01 ELOYES (F) Espace Culturel <BR>18.01 MARSEILLE (F) Jas Rod <BR>19.01 BARCELONA (E) Mephisto <BR>20.01 GRANADA (E) Sala El Tren <BR>21.01 MADRID (E) Caracol * Without Dark Moor<BR>22.01 IRUN (E) Sala Tunk <BR>23.01 LIMOGES (F) CC John Lennon <BR>24.01 MACON (F) Cave &agrave; Musiques <BR>25.01 CLERMONT-FERRAND (F) Coop De Mai <BR>26.01 PARIS (F) La Loco <BR>27.01 DAY OFF <BR>28.01 TOULOUSE (F) Havana Caf&eacute; <BR>29.01 LILLE (F) MJC De St Andr&eacute; Lez Lille <BR>30.01 ROUEN (F) Kalif + HEADLINE <BR>31.01 ANNEMASSE (F) Le Brise-Glace
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 30.01.2004 reviews Второе рождение?
+
+<P>При всём моём равнодушном отношении к творчеству данного испанского коллектива, стоит признать, что он хоть как-то выделялся среди сотен павер-клонов. И вот теперь мы слушаем Dark Moor без Элизы. И что? Да, все в порядке с техникой, отличные аранжировки. Но что-то скучно, в основном… Вокалист поёт умело, пищит, иногда даже кажется, что тайно пробралась к микрофонной стойке одна из приглашенных вокалисток. Нежный такой голосок. Но сколько их – таких певунов? Особенно в Италии :)). Среди первых шести композиций выделяется лишь “The Bane Of Daninsky, The Wareworl” c оригинальным гитарным риффом. Все остальное - пустышка. Хотя и в красивой упаковке.</P>
+<P>А вот грандиозный блок Overture-Wind Like Stroke - это хорошо. Начало просто шикарное, правильно-паверная середина и бравурный кусочек с Беатрис Альберт. Помпезный, хотя и несколько банальный, “Return For Love” удачно продолжает эту удачную часть альбома. Ну а затем снова провал – “Amore Venio”, “The Ghost Sword”. Мелодичный продукт второй свежести. Паверщикам-то всё равно должно понравится. Ну и забавный “Dark Moor”, на котором Альфред Ромеро так старательно пытается изображать Элизу. Глупо. Зачем вымучивать то, что спокойно и красивее/вернее может спеть женщина? Может, просто поздно нашли Беатрис? Насколько она хороша, доказывает, на мой взгляд, лучшая песня альбома, доступная проклятым капиталистам только на минике “From Hell” “The Mysterious Maiden”. Плюс один балл от меня. Любители женского сопрано могут брать этот CD только ради этой одной вещи. </P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 06.10.2004 news DARK MOOR уже записали новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK MOOR</STRONG> закончили запись нового альбома <STRONG>'Beyond The Sea'</STRONG> в&nbsp;<STRONG>New Sin Studio</STRONG>. Пластинка выйдет в феврале 2005 года на <STRONG>Arise</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 06.10.2004 news DARK MOOR finished recording new album
+
+<P><STRONG>DARK MOOR</STRONG> their new album will be entitled "<STRONG>Beyond The Sea</STRONG>", the band has just finished the recording sessions at <STRONG>New Sin Studios</STRONG> in Italy. The album will be released in Febrary 2005.</P>
+Автор: Vit Belov
+
+### 15.12.2004 news Подробности о новом альбоме DARK MOOR
+
+<P>Новый альбом&nbsp;<STRONG>DARK MORR 'Beyond The Sea'</STRONG>&nbsp;выходит в марте&nbsp;2005 на <STRONG>Arise</STRONG>.&nbsp;Пластинка была записана в <STRONG>M20</STRONG>&nbsp;и <STRONG>New Sin Studio</STRONG>.&nbsp;На первое лимитированной издание альбома войдёт эксклюзивный бонус-трэк. Трэк-лист:</P>
+<P>1. <STRONG>Before the Duel</STRONG><BR>2. <STRONG>Miracles<BR></STRONG>3. <STRONG>Houdini's The Great Escapade</STRONG><BR>4. <STRONG>Through the Gates of the Silver Key (Interlude)<BR></STRONG>5. <STRONG>The Silver Key<BR></STRONG>6. <STRONG>Green Eyes<BR></STRONG>7. <STRONG>Going On<BR></STRONG>8. <STRONG>Beyond the Sea<BR></STRONG>9. <STRONG>Iulius Caesar (Interlude)</STRONG><BR>10. <STRONG>Alea Jacta<BR></STRONG>11. <STRONG>Vivaldi's Winter</STRONG> (Bonus Track)</P>
+Автор: Vit Belov
+
+### 10.01.2005 news DARK MOOR переиздадут ранний материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стала известна точная дата выхода нового альбома <STRONG>DARK MOOR "Beyond The Sea"</STRONG> - 4 марта. Также <STRONG>Arise Records</STRONG> собирается переиздать первую пластинку группы "<STRONG>Shadowland</STRONG>". На 2-х дисковое издание войдут также 2 демо группы "<STRONG>Flying</STRONG>" и "<STRONG>Dreams Of Madness</STRONG>", записанные в 1999 году.</FONT></P>
+Автор: Vit Belov
+
+### 08.02.2005 news Новая песня DARK MOOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, <STRONG>DARK MOOR</STRONG> записали новый альбом <STRONG>'Beyond The Sea'</STRONG>. Одну песню с этой пластинки уже можно послушать на нашем сайте: <A href="/samples/d/dark_moor/2005_1386.mp3">http://musica.mustdie.ru/samples/d/dark_moor/2005_1386.mp3</A></FONT></P>
+Автор: Vit Belov
+
+### 30.05.2005 news Новый видео-клип DARK MOOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видео-клип <STRONG>DARK MOOR "Before The Duel"</STRONG> с последнего альбома "<STRONG>Beyond The Sea</STRONG>" доступен для скачивания по адресу: <A href="http://www.dark-moor.com/videoonline.htm">http://www.dark-moor.com/videoonline.htm</A></FONT></P>
+Автор: Vit Belov
+
+### 09.12.2005 news DARK MOOR ищут лэйбл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DARK MOOR</STRONG> в настоящее время пишут материал для нового альбома, который выйдет во второй половине 2006 года. Также группа ищет лэйбл для издания материала, так как контракт с <STRONG>Arise </STRONG>у неё закончился.</FONT></P>
+Автор: Vit Belov
+
+### 08.08.2006 news Новости от DARK MOOR
+
+<P>Испанская формация <B>DARK MOOR</B> вошла в итальянскую <B>New Sin Studios</B> с продюсером <B>Luigi Stefanini</B> для записи своего нового, пока безымянного альбома. Его выход планируется в начале 2007 года на пока еще неопределенном лейбле. В начале августа планируется &nbsp;запись хоровых партий в Мадриде для предстоящего альбома. Заключено соглашение об участии в записи профессионального хора с двумя тенорами, двумя сопрано, двумя басами и двумя альтами. Кроме того, в записи альбома планируется гостевое участие певицы <B>Manda Ophuis</B> из голландской группы <B>NEMESEA</B>.<BR></P>
+Автор: Dimas
+
+### 08.11.2006 news DARK MOOR на Scarlet
+
+<P><STRONG>DARK MOOR</STRONG> подписали контракт с <STRONG>Scarlet</STRONG>. Новый альбом "<STRONG>Tarot</STRONG>" выйдет в феврале/марте. Трэк-лист:</P>
+<P>01. <B>The Magician</B><BR>02. <B>The Chariot</B><BR>03. <B>The Star</B><BR>04. <B>Wheel Of Fortune</B><BR>05. <B>The Emperor</B><BR>06. <B>Devil In The Tower</B><BR>07. <B>Death</B><BR>08. <B>Lovers</B><BR>09. <B>The Hanged Man</B><BR>10. <B>The Moon</B></P>
+Автор: Vit Belov
+
+### 27.11.2006 news DARK MOOR заменили ударника
+
+<P>Испанский коллектив&nbsp;<B>DARK MOOR</B> из-за конфликта с другими музыкантами покинул ударник <B>Andy C.</B> Его заменой стал <B>Roberto Cappa</B>, игравший ранее в <B>ANIMA SOLA</B>.</P>
+Автор: Dimas
+
+### 08.12.2006 news Артворк нового DARK MOOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2006.12/11061.jpg" width=400 align=left border=5>Как уже сообщалось новый альбом <STRONG>DARK MOOR "Tarot"</STRONG> выходит в феврале-марте на Scarlet. Появился кавер-артворк пластинки.</FONT></P>
+Автор: Vit Belov
+
+### 06.06.2007 reviews Современные лидеры sympho-power
+
+<P>Пожалуй, испанцы DARK MOOR могут смело называться лидерами современного sympho-power-metal. К сожалению, после дебюта RHAPSODY в 1997 году мир power-metal так и не получил не одной сенсации в этом стиле. Выпустив три альбома, RHAPSODY стали сильно сдавать, но достойной замены им не находилось. Безусловно, были группы, пытающиеся захватить их трон, но ни одна из них не достигла положенного статуса. То ли сам sympho-power не сильно необходим в количестве больше одного, то ли никто не смог убедить фэнов, что умеет скрещивать металл и классику не хуже RHAPSODY.</P>
+<P>Новый альбом DARK MOOR “Tarot” убеждает меня в том, что испанцы готовы сместить итальянцев. Великолепные аранжировки, богатое насыщенное звучание, разнообразный материал. Особенно, хочется отметить переработку Бетховена, замыкающую альбом, где группа поднимается в симфоничности до высот THERION. Хоры, классические инструменты, безупречная запись и работа музыкантов. Всё это можно найти на “Tarot”. Пожалуй, по качеству эта пластинка превосходит любые альбомы RHAPSODY. Дебютные работы итальянцев музыкально мне нравятся несколько больше, но по качеству итальянцы проигрывают. Не говоря уже о поздних работах RHAPSODY, которые звучат несколько занудно, если не сказать больше. Отдельно отмечу вокал. Честно говоря, мужская реинкарнация DARK MOOR выигрывает в профессионализме. Elisa, певшая ранее, выигрывала в эмоциональности… Кому что.</P>
+<P>DARK MOOR “Tarot” заслуживает высший балл. Я его не ставлю только из предубеждённости перед power-metal:)</P>
+Автор: Vit Belov
+
+### 01.12.2008 news Новый альбом DARK MOOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=383 alt="" hspace=0 src="/images/news_rus/2008.12/13086.jpg" width=383 align=right border=5>Новая пластинка <STRONG>DARK MOOR</STRONG> <STRONG>"Autumnal" </STRONG>выйдет в начале 2009 года. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Swan Lake</B><BR itxtvisited="1">02. <B itxtvisited="1">On The Hill Of Dreams</B><BR itxtvisited="1">03. <B itxtvisited="1">Phantom Queen</B><BR itxtvisited="1">04. <B itxtvisited="1">An End So Cold</B><BR itxtvisited="1">05. <B itxtvisited="1">Faustus</B><BR itxtvisited="1">06. <B itxtvisited="1">Don't Look Back</B><BR itxtvisited="1">07. <B itxtvisited="1">When The Sun Is Gone</B><BR itxtvisited="1">08. <B itxtvisited="1">For Her</B><BR itxtvisited="1">09. <B itxtvisited="1">The Enchanted Forest</B><BR itxtvisited="1">10. <B itxtvisited="1">The Sphinx</B><BR itxtvisited="1">11. <B itxtvisited="1">Fallen Leaves Waltz</B></P>
+Автор: Vit Belov
+
+### 20.12.2008 news Новая песня DARK MOOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали о новом альбоме <STRONG>DARK MOOR "Autumnal"</STRONG>, который должен выйти в начале следующего года. Группа выложила новую песню на своей <STRONG>MySpace</STRONG> страничке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/theofficialdarkmoor">http://www.myspace.com/theofficialdarkmoor</A></FONT></P>
+Автор: Vit Belov
+
+### 29.12.2008 news DARK MOOR покинул басист
+
+<P><IMG height=189 alt="" hspace=0 src="/images/news_rus/2008.12/13250.jpg" width=240 align=left border=5>Басист <STRONG>Daniel Fernandez</STRONG> покинул <STRONG>DARK MOOR</STRONG>. Он опубликовал заявление на сайте группы:</P>
+<P>"<EM>После долгих обдумываний настоящей ситуации в моей карьере я принял решение покинуть DARK MOOR. Последние несколько месяцев моя голова не была занята делами группы, и чтобы не накалять отношений с остальными участниками коллектива, а так же чтобы не тормозить развитие DARK MOOR, я ухожу</EM>".</P>
+<P><STRONG>Daniel </STRONG>записал с группой три альбома: ""<STRONG>Beyond The Sea</STRONG>", "<STRONG>Tarot</STRONG>" и новый "<STRONG>Autumnal</STRONG>"". Музыкант продолжит деятельность в своей собственной группе <STRONG>INNTRANCE</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.01.2009 news Новое видео DARK MOOR
+
+<P><STRONG>DARK MOOR</STRONG> выложили в сеть видеоклип на песню с нового альбома "<STRONG>Autumnal</STRONG>" "<STRONG>On The Hill Of Dreams</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9iGWA4LWVDc&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/9iGWA4LWVDc&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.02.2009 news Альбом DARK MOOR
+
+<P>Новый альбом <STRONG>DARK MOOR "Autumnal"</STRONG> можно послушать на <STRONG>MySpace</STRONG> страничке группы целиком. Эта возможность сохранится до 4 марта.</P>
+<P>Ссылка: <A href="http://www.myspace.com/theofficialdarkmoor">http://www.myspace.com/theofficialdarkmoor</A></P>
+Автор: Vit Belov
+
+### 18.10.2009 articles DARK MOOR в Москве: «Неудачное шоу для любителей музыки»
+
+<P>Вчера, 17 октября, в московском клубе ХО выступили испанцы DARK MOOR. Само появление этой группы в столице можно считать сюрпризом, а работу по их привозу можно назвать даже подвигом. Подобные группы в жанре power-metal к нам не приезжают. Кто-то скажет, что это просчёт промоутеров, но, думается, это не так. Они не приезжают, потому что никому здесь не нужны. Достаточно вспомнить концерты PRIMAL FEAR, которые всё же обладают более высоким статусом, чем DARK MOOR. </P>
+<P>Мне кажется, феномен этот объясняется просто. Кривые востребованности дисков и концертной востребованности стремительно расходятся. В первую очередь важно, чтобы концерт был модным в тусовке, люди же, скупающие диски, могут на шоу и не подтянуться. DARK MOOR никак нельзя назвать «модными в тусовке». Эта неоклассическая power-metal группа, которая, кстати, с каждым альбомом прогрессирует, является фаворитом на рынке CD, но популярность у посетителей концертов у неё оказалась низкая. В зале набралось всего около 200 человек, и это если учесть, что какая-нибудь точка на Горбушке продаст это количество дисков нового альбома DARK MOOR за несколько недель (альбом “Autumnal” несколько запоздал с изданием в России, поэтому сливки в этот раз сняли «пираты»). Но закончу начатую мысль. Стоит поблагодарить организаторов шоу из DMC, которые пошли на риск, ведь, как ясно, потакать коллекционерам CD им не стоило. Но у нас зато появился шанс оценить, чем живут крепкие power-metal коллективы из Европы. </P>
+<P>Начнём, как всегда, с разогрева. И в этот раз поставить высокую оценку ему я не смогу. Честно говоря, уже начинает напрягать эта ситуация. В стране развивается тяжёлая музыка, уже можно найти коллективы на любой вкус, а посетителей заграничных концертов продолжают пичкать начинающими группами, которые ничем ещё не заслужили столь высокой чести, греть «фирменного» исполнителя. В этот раз ещё и со стилем напортачили. Москвичи WITCHCRAFT могли претендовать на роль суппорта DARK MOOR с большой натяжкой. Их музыку очень сложно отнести к power-metal. Правда если быть честным, стоит отметить, что их музыку, вообще, сложно к чему-то отнести. Эдакий прогрессивный gothic-metal с женским и чистым мужским вокалами. Вокалистка Angel производила впечатление своим корсетом, а мужчина-вокалист принимал героические позы, явно рассказывая какую-то интересную историю. Уже на второй песне певица пала на колени и вот в такой позе что-то отвечала своему напарнику. Следует отметить, что с этой работой они справлялись, и всё могло бы быть достаточно интересно, если бы не качество материала. Здесь ничего утешительного сказать нельзя. Какие-то странные ходы и полное отсутствие внятной мелодии можно было бы объяснить ‘progressive’ составляющей их музыки, но я этого делать не стану. Поклонники этого стиля могут попросту на меня обидеться. WITCHCRAFT нужно прибавлять в мелодизме, не стоит распыляться, если их музыку качественно реализовать, она и так будет звучать довольно сложно, в группе 7 человек.</P>
+<P>Не заставив себя долго ждать, появились и герои вечера DARK MOOR. Следует отметить, что в составе коллектива сейчас четыре человека: гитарист, лидер коллектива Enrik Garcia, певец Alfred Romero, басист и барабанщик. Тот факт, что после развала группы в 2003 году, когда ушли почти все музыканты (последний, басист ушёл в 2004 году), Enrik не стал набирать полноценный состав, говорит о многом. Из line-up пропал клавишник, второй гитарист, и группа осталась в классическом heavy-metal варианте. И это при всей сложности и вычурности звучания DARK MOOR в записи. В этих качествах испанцы даже прибавили с приходом новой эры в своей истории. Позволю себе предположить, что подобные пертурбации не предполагали активной концертной деятельности в будущем и знаменовали переход DARK MOOR к студийной работе. И это сказалось на вчерашнем концерте. Сценического опыта ребятам явно не хватало, и в первую очередь это касалось их звучания, сопровождаемого обильной клавишной фонограммой. Уже первая вещь из Чайковского неприятно удивила. Вокалист что-то шептал в микрофон, разобрать было невозможно, гитарный звук тоже не впечатлял, а общая звуковая картина сливалась в одну сплошную кашу. И это притом, что WITCHCRAFT до этого звучали очень хорошо. Я сразу почувствовал себя в конце 90-х в клубе «Ю-Ту», где мы больше не слушали музыку, а старались разобраться, где и как звучит очередная группа. Особенно это печально было делать, когда слушали power-metal, где мелодии всё-таки играют не последнюю роль. Очень грустно было осознавать, что, несмотря на наличие отличного студийного материала, DARK MOOR совсем не «герои сцены». При этом было видно, что музыкантам всё это дело нравится, они вели себя на сцене очень не плохо, но к хорошему быстро привыкаешь, а мы уже привыкаем и к хорошему звуку на концертах.</P>
+<P>К сожалению, прошедшее шоу не поможет привлечению в залы любителей тяжёлой музыки. Именно любителей музыки, а не пьянок и тусовок. Те немногие, которых я наблюдал в зале, вряд ли оставят в себе воспоминание о концерте DARK MOOR на долгие времена. И вряд ли захотят вновь потратить свой вечер на созерцание подобных выступлений. Честно говоря, я даже не могу себе представить любителя этой группы, который предпочёл бы истратить деньги на этот концерт, но не купить, например, фирменное издание их последнего альбома “Autumnal”. Или быть может, не приобрести три качественных новинки power-metal в лицензионном исполнении. Испанцы не смогли убедить в том, что их концертное шоу заслуживает внимания.</P>
+Автор: Vit Belov
+
+### 05.06.2010 news DARK MOOR войдут в студию
+
+<P>Испанцы<STRONG> DARK MOOR</STRONG> войдут в <STRONG>New Sin Studios</STRONG> в августе вместе с продюсером <STRONG>Luigi Stefanini </STRONG>для записи своего восьмого альбома, который должен выйти уже в этом году. Группа обещает своим поклонникам некоторые сюрпризы, которые их должны порадовать.</P>
+<P>17 октября прошлого года испанцы посетили Москву, дав концерт в <STRONG>клубе X.O.</STRONG> Фотоотчёт о прошедшем событии можно посмотреть здесь: <A href="/ru/galleries/1/387/">http://musica.mustdie.ru/ru/galleries/1/387/</A></P>
+Автор: Vit Belov
+
+### 17.09.2010 news Новый альбом DARK MOOR
+
+<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.09/17190.jpg" width=400 align=right border=5>Испанцы <STRONG>DARK MOOR</STRONG> назвали свой новый альбом <STRONG>"Ancestral Romance". </STRONG>Пластинка выйдет в ноябре. Новая работа группы была записана в студии <STRONG>New Sin </STRONG>с продюсером <STRONG>Luigi Stefanini</STRONG>. Обложку для релиза нарисовал художник <STRONG>Samuel Araya</STRONG> (<B>CRADLE OF FILTH</B>, <B>ELVENKING</B>). Гостевое участие в записи альбома приняла сопрано <STRONG>Berenice Musa</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Gadir</B><BR>02. <B>Love From The Stone</B><BR>03. <B>Alaric De Marnac</B> <BR>04. <B>Mio Cid</B> <BR>05. <B>Just Rock</B> <BR>06. <B>Tilt At Windmills</B> <BR>07. <B>Cancion Del Pirata</B> <BR>08. <B>Ritual Fire Dance</B> <BR>09. <B>Ah! Wretched Me</B> <BR>10. <B>A Music In My Soul</B></P></FONT>
+Автор: Vit Belov
+
+### 14.11.2010 news Новое видео DARK MOOR
+
+<P>Новый клип<STRONG> DARK MOOR</STRONG> <STRONG>"Love From The Stone" </STRONG>можно посмотреть ниже. Продюсером ролика стал&nbsp;<B itxtvisited="1">El Ojo Macanico</B>. Песня попала на новый альбом испанцев <STRONG>"Ancestral Romance"</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/OnFhx3axYvY&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/OnFhx3axYvY&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.12.2013 articles Металическое безумие в Москве
+
+<P>30 ноября 2013, Москва, клуб "Volta"</P>
+<P>Фестиваль<STRONG> "Moscow Metal Madness"</STRONG></P>
+<P><STRONG>SCANNER</STRONG> | <STRONG>BATTLE BEAST</STRONG> | <STRONG>DARK MOOR</STRONG> | <STRONG>MORTON</STRONG> | <STRONG>ARIDA VORTEX</STRONG></P>
+<P>Фестивали – это вещь насколько редкая (сравнительно, конечно) в наших российских краях, настолько и привлекательная. У организаторов появляется возможность собрать под одной крышей любителей разных групп, компенсировав недостаточную коммерческую обоснованность привоза тех или иных музыкальных коллективов по отдельности, а у посетителей – по цене билета, ненамного выше обычной, получить, как говорится «в одном флаконе» даже не две, а значительное большее количество «звёзд» - правда, естественно, разной степени яркости. <STRONG>Moscow Metal Madness</STRONG>, организованный одной из самых опытных в фестивальном деле компанией <STRONG>Delta Mekong Concerts</STRONG>, обещал зрителям сразу многое – тут вам и известные всем местные герои <STRONG>ARIDA VORTEX</STRONG> в богатым багажом концертных выступлений за плечами, и молодые, но подающие надежды коллективы <STRONG>MORTON</STRONG> и <STRONG>BATTLE BEAST</STRONG>, хотя и не самые именитые, но всё же известные <STRONG>DARK MOOR</STRONG> и, конечно, хэдлайнер – очередное возвращение достаточно талантливых, но забытых немцев <STRONG>SCANNER</STRONG>.</P>
+<P>Правда, у фестивалей есть и свои очевидные минусы – при его внушительной продолжительности по достоинству оценить абсолютно все группы практически не представляется возможным, да и желание и у многих приходить к самому началу и лицезреть группы, изначально обречённые стать лишь «открывашками», разогревом перед основным музыкальным «блюдом», не возникает. По тем или иным причинам, и я лично попал в эту когорту людей и смог добраться до клуба <STRONG>Volta</STRONG> только к концу выступления <STRONG>MORTON</STRONG>, которые довольно неплохо звучали на дебютном альбоме, выпущенном на<STRONG> AFM</STRONG> – что тоже косвенно доказывает его коммерческий потенциал. Сразу при входе в зал мне не понравился звук, который не дал по достоинству оценить увиденные мной последние две песни украинцев и напомнил о негласном правиле российских (да и не только) концертов – что разогревающие группы зачастую не только вынуждены играть перед полупустым залом, но и «звучать» должны менее выигрышно по сравнению с хэдлайнерами...</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2014.12/26644.jpg" width=700 height=467> 
+<P></P>
+<P>Та же ситуация продолжалась и на выступлении следующей группы – гостей из Испании<STRONG> DARK MOOR</STRONG>. Хотя были более-менее слышны все инструменты, звук был не особо громким, но довольно неприятным и под конец сета даже вызвал лёгкие проблемы со слухом... Несмотря на то, что к творчеству группы лично я равнодушен, при этом сам перфоманс оставил сугубо положительные впечатления – перед публикой предстала профессиональная группа, хорошо сыгранная, с чёткой ритм-секцией и знающая как вести себя на сцене – особенно это касается фронтмена, который нехило зажёг уже почти наполовину забитый к тому моменту зал. Достаточно длинный сет, вызвавший у меня&nbsp; сдержанное одобрение и боль в ушах, заставил меня удалиться на перерыв в довольно просторное барное помещение, удобным образом отделённое от основного концертного зала, чтобы подготовиться к тому, что, как выяснится позже, стало так называемым «гвоздём программы».</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2014.12/26645.jpg" width=700 height=467> 
+<P></P>
+<P>После небольшой паузы в бар стал доноситься настоящий грохот – зал буквально трясло от басов и, казалось, что его посещение крайне нежелательно – с учётом «качества» звучания предыдущей группы, но, к счастью, я ошибся – несмотря на достаточно большую громкость, звук был просто великолепный, в прочем, как и само выступление <STRONG>BATTLE BEAST</STRONG>, которое, уверен, никого не оставило равнодушным. Да, действительно, группа отлично смотрится живьём – молодые, полные энтузиазма и даже слегка мультяшного вида музыканты (гитарист со странной причёской напомнил мне молодого Хэтфилда) во главе с харизматичной фронтвумен, как мне показалось, способны «раскачать» концертную площадку любой площади. Чего стоит одна Ноора Лоухимо, далеко неспортивного вида женщина, занимавшая «тру-героические позы» в паузах между абсолютно всепронзающими визгами, которым позавидовали бы многие знаменитости из эпохи хэви 80-х, в том числе и «сильного» пола.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2014.12/26647.jpg" width=700 height=467> 
+<P></P>
+<P>Правда, лично меня несколько смущал всего один момент – а именно музыка <STRONG>BATTLE BEAST</STRONG>. Да, конечно, дух 80-х – это прекрасно и любая попытка передать его достойна уважения и простой человеческой симпатии, особенно когда перед тобой музыканты, едва ли ходившие «пешком под стол» во времена рассвета жанра, но лично я не могу серьёзно воспринимать творческие потуги юных финнов. Ибо весь их сет мы с другом играли в «угадай мелодию» - это <STRONG>MANOWAR</STRONG>, это <STRONG>RAINBOW</STRONG>, это <STRONG>ACCEPT</STRONG>... Буквально каждый гитарный рифф вызывал мучительное ощущение дежа-вю, с растущим недоумением по поводу того, прикалываются ли они или же тотальный плагиат и является их пониманием стилизации под 80-е? Что ж, достойны ли <STRONG>BATTLE BEAST</STRONG> стать новыми тру-металлическими мессиями или же они заслуживают смерти как позорные позёры – каждый решит сам, но лицезреть финнов живьём было более чем интересно.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2014.12/26648.jpg" width=700 height=467> 
+<P></P>
+<P>А уж у публики в целом они вообще вызвали настоящий фурор – зал был буквально сражён «боевыми» ребятами и оказывал весьма достойную поддержку как во время выступления, так и после, ибо вскоре после его окончания музыканты появились в зале для того, чтобы раздать автографы и сфотографироваться с восторженными фэнами. Тут же вокруг них образовалась чуть ли не давка, и молодёжь в свежекупленных майках с логотипами группы стремились запечатлеть своё присутствие в компании вокалистки (а именно она, по понятным причинам, вызывала особый интерес) и её соратников по металлическому делу. Людской поток был просто нескончаемым, и фотосессии продолжались вплоть до выхода на сцену самих хедлайнеров – после чего, конечно, финны решили тактично удалиться за кулисы, хотя, по сути, и так уже заочно затмили (как говорят «у них» stole thunder) ожидаемых многими немцев. Можно было видеть, как после общения с новоиспечёнными кумирами некоторые даже покидали зал – в итоге к моменту выхода <STRONG>SCANNER</STRONG> их встретило едва ли больше сотни человек – как ни прискорбно, но факт...</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2014.12/26650.jpg" width=700 height=467> 
+<P></P>
+<P>Впрочем, это нисколько не смутило хедлайнеров, которые довольно резво вышли на сцену и разогрели зал крепким боевичком Not Alone, но, к сожалению, тут же в глаза (и в уши) бросились все неприятные минусы – звук не был сбалансирован и корректировался по ходу выступления, в итоге гитара лидера группы <STRONG>Акселя Юлиуса</STRONG> то «проваливалась», то, наоборот чрезмерно «вылезала» на общем фоне, «задавливая» вокал, но это, как говорится, ещё «цветочки». Сама группа совсем не выглядела слаженным коллективом, и если к барабанщику, установка которого была хорошо настроена и звучало мощно и современно, претензий нет, как и к самому шефу, который выглядел на сцене бодро и уверенно, то остальные участники коллектива вызывали некоторое недоумение, увы, порой граничащее с раздражением...</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2014.12/26649.jpg" width=700 height=467> 
+<P></P>
+<P>Слегка растерянный второй гитарист, слишком сконцентрированный на своём инструменте; юный басист, тоже статичный, постоянно поправляющий волосы и нервно прикусывающий нижнюю губу; ну, и неуклюжий фронтмен с придурковато-выпученными глазами и отсутствием опыта как вменяемого передвижения по сцене, так и общения с залом (при том, что он числится в группе уже 10 лет) – всё это довольно сильно расстраивало. Конечно, можно понять Юлиуса, долгие годы занятого отчаянными попытками сколотить жизнеспособный коллектив, но <STRONG>SCANNER</STRONG> в нынешнем виде, к сожалению, восторгов не вызывает – мягко говоря. Вокалист был явно подобран для исполнения старого материала и его голос хоть и силён, но довольно резок, и если материал 88-90 годов в его исполнении звучал вполне сносно (с дебютника <STRONG>Hypertrace</STRONG> было сыграно аж четыре трэка), а две песни с противоречивого (но по-своему интересного) <STRONG>Scantropolis</STRONG> довольно свежо и неожиданно, то «распевные» композиции 95-97 годов, которые меня больше всего интересовали, были и вовсе испорчены – особенно <STRONG>After The Storm</STRONG>...</P>
+<P>Но, несмотря на это, выступление <STRONG>SCANNER</STRONG>, да и вообще, весь фестиваль скорее порадовал, чем разочаровал. Разогревающие группы были как минимум на «ОК», а хедлайнеры, при всех вышеописанных косяках, донесли главное, ради чего я и шёл посмотреть на них – тот самый дух 80-х, который пытаются передать их предшественники по сету, но в отличие от них всё звучало и более талантливо, и более аутентично: сдвоенные гитарные соло всё так же хороши, барабаны звучали мощнее оригинальных версий и придавали некую энергетику уже давно знакомым песням, в общем, ради такой музыки, по восьмидесятнически наивной, но именно этим и ценной, я думаю, стоит собирать группу и колесить по миру – по крайней мере, за неё не стыдно даже в наше время, а там, глядишь, и новый альбом подоспеет (он был заявлен на 2014-й год) и, возможно, вызовет подъём интереса к <STRONG>SCANNER</STRONG>, а также повод для их нового появления в России – что ж, будущее покаже...</P>
+<P>Текст: <STRONG>Дмитрий Дасов</STRONG>.</P>
+<P>Фото: <STRONG>Екатерина Гучок</STRONG>.</P></CENTER></CENTER></CENTER></CENTER></CENTER></CENTER>
+Автор: Headcrusher
+
+### 23.09.2015 news DARK MOOR выпускают новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> DARK MOOR "Project X"</STRONG> выходит 6 ноября. Диск будет доступен как в стандартном одинарном издании, так и в лимитированном двойном с пятью бонусами. Трек-лист:</FONT></P>
+<P><STRONG>“November 3023”<BR>“Abduction”<BR>“Beyond The Stars”<BR>“Conspiracy Revealed”<BR>“I Want To Believe”<BR>“Bon Voyage!”<BR>“The Existence”<BR>“Imperial Earth”<BR>“Gabriel”<BR>“There’s Something In The Skies”</STRONG></P>
+<P>Bonus Tracks (Double Digipack Edition):</P>
+<P><STRONG>“In The Heart Of Stone”<BR>“Maid Of Orleans”<BR>“Nevermore”<BR>“A New World”<BR>“Somewhere In Dreams”</STRONG></P>
+<P><center><IMG border=0 src="/images/news_rus/2015.09/28358.jpg" width=640 height=640></P>
+Автор: Vit Belov
+
+### 12.11.2015 news Новое видео DARK MOOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом популярной испанской sympho-power metal команды <STRONG>DARK MOOR "Project X"</STRONG> вышел 6 ноября на Scarlet Records. Видео-клип на песню "<STRONG>Gabriel</STRONG>" можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фоно выпустили российскую версию альбома: <A href="http://escapemind.ru/goods/DARK-MOOR-Project-X">http://escapemind.ru/goods/DARK-MOOR-Project-X</A></FONT></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/6-bbQk6xje4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.12.2015 news Хиты продаж за ноябрь
+
+<P><IMG border=0 hspace=0 alt="" src="/images/news_rus/2015.12/28560.jpg" width=250 align=right height=250>Хиты продаж за ноябрь</P>
+<P>Список лидеров продаж на сайте <A href="http://escapemind.ru/">http://Escapemind.ru</A> и на Горбушке за ноябрь 2015 года:</P>
+<P><STRONG>1. MAGNUS KARLSSON’S FREE FALL - Kingdom Of Rock<BR>2. DEF LEPPARD "Def Leppard"<BR>3. LACRIMOSA 'Hoffnung'</STRONG><BR>4. DARK MOOR “Project X” 2015<BR>5. JOEL HOEKSTRA’S 13 'Dying To Live'<BR>6. EKTOMORF “Aggressor” 2015<BR>7. W.A.S.P. "Golgotha" - 2015 [digi]<BR>8. ELDRITCH “Underlying Issues” 2015<BR>9. GRAVE "Out Of Respect For The Dead" - 2015<BR>10. MALEVOLENT CREATION "Dead Man’s Path" - 2015</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Dark Moor

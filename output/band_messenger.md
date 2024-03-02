@@ -48,6 +48,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2011 news MESSENGER на Massacre
+
+<P>Немецкие тру-металисты<STRONG> MESSENGER</STRONG> заключили контракт с <STRONG>Massacre Records</STRONG> на издание нового альбома "<STRONG>See You In Hell</STRONG>". Рекламный трейлер этой пластинки можно посмотреть ниже.</P>
+<P>Последний альбом <STRONG>MESSENGER "Under The Sign"</STRONG> вышел в 2006 году на <STRONG>STF Records</STRONG>.</P>
+<P>Facebook: <A href="http://www.facebook.com/messengerband">http://www.facebook.com/messengerband</A></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Rg8lKJRYc2w?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Rg8lKJRYc2w?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

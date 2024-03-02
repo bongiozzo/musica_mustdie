@@ -63,6 +63,28 @@ J.D. Kimball  -  Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2003 news Годовщина OMEN
+
+<p>Группе OMEN исполняется 20 лет! В честь этой годовщины на Metal Blade выйдет "20th Anniversary Box Set". Релиз трех (!) CD состоится 8 сентября и будет содержать в себе следующее:</p>
+<P> Первый CD - двойной. <BR> На одном диске - обновленный альбом "Battle Cry".</p>
+<P> Tracklist:</p>
+<P> 01. DEATH RIDER <BR> 02. THE AXEMAN <BR> 03. LAST RITES <BR> 04. DRAGON'S BREATH <BR> 05. BE MY WENCH <BR> 06. TORTURE ME * <BR> 07. BATTLE CRY <BR> 08. DIE BY THE BLADE <BR> 09. PRINCE OF DARKNESS <BR> 10. BRING OUT THE BEAST <BR> 11. IN THE ARENA <BR> 12. BATTLE CRY (LIVE) *</p>
+<P> * Бонус Трэки</p>
+<P> Второй - это DVD. Видеозапись концерта OMEN первого сентября 1984 года в "Country Club" вместе с трэшерами SLAYER! Целых 47 минут живого выступления.</p>
+<P> Второй CD - обновленные альбомы "Warning Of Danger" и "Nightmares".</p>
+<P> Трэклист:</p>
+<P> "Warning Of Danger"</p>
+<P> 01. WARNING OF DANGER <BR> 02. MARCH ON <BR> 03. RUBY EYES (OF THE SERPENT) <BR> 04. DON'T FEAR THE KNIGHT <BR> 05. V.B.P. <BR> 06. PREMONITION <BR> 07. TERMINATION <BR> 08. MAKE ME YOUR KING <BR> 09. RED HORIZON <BR> 10. HELL'S GATE <BR> 11. TERMINATION (LIVE) *</p>
+<P> "Nightmares"</p>
+<P> 12. NIGHTMARES <BR> 13. SHOCK TREATMENT <BR> 14. DRAGON'S BREATH <BR> 15. TERMINATION <BR> 16. BOUNTY HUNTER <BR> 17. WHOLE LOTTA ROSIE (LIVE)</p>
+<P> * Бонус трэк</p>
+<P> Также диск содержит буклет со множеством старых фотографий и всеми текстами к альбому "Battle Cry". Бонус трэки вживую - это песни, исполненные на концерте в Сан Антонио (Техас), в 1986 году.</p>
+
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

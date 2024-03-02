@@ -34,6 +34,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.11.2011 news Новый альбом ANCIENT BARDS
+
+<P><IMG height=220 alt="" hspace=0 src="/images/news_rus/2011.11/21958.jpg" width=220 align=right border=0>Итальянская sympho-power metal группа с женским вокалом <STRONG>ANCIENT BARDS</STRONG> подготовила к выпуску второй альбом "<STRONG>Soulless Child</STRONG>" 17 ноября на <STRONG>Limb Music</STRONG>. Обложку пластинки нарисовал <STRONG>Felipe Machado Franco (RHAPSODY, BLIND GUARDIAN)</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Struggle For Life</STRONG>&nbsp; <BR>2. <STRONG>To The Master Of Darkness</STRONG>&nbsp; <BR>3. <STRONG>Gates Of Noland</STRONG>&nbsp; <BR>4. <STRONG>Broken Illusion&nbsp; <BR></STRONG>5.<STRONG> All That Is True</STRONG>&nbsp; <BR>6. <STRONG>Valiant Ride</STRONG>&nbsp; <BR>7. <STRONG>Dinanzi Al Flagello</STRONG>&nbsp; <BR>8. <STRONG>Soulless Child</STRONG>&nbsp; <BR>9. <STRONG>Through My Veins</STRONG>&nbsp; <BR>10. <STRONG>Hope Dies Last</STRONG></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/KeszIVnvo6o?version=3&feature=player_embedded"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/KeszIVnvo6o?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 05.04.2014 news Третий альбом ANCIENT BARDS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Третий альбом итальянской банды <STRONG>ANCIENT BARDS "A New Dawn Ending"</STRONG> выходит 25 апреля на<STRONG> Limb Music</STRONG>. Пластинка завершает трилогию, начатую на двух первых работах коллектива. Обложку альбома нарисовал <STRONG>Felipe Machado Franco</STRONG>. Трек-лист:</FONT></P>
+<P><STRONG>'Before The Storm' <BR>'A Greater Purpose' <BR>'Flaming Heart' <BR>'Across This Life' <BR>'In My Arms' <BR>'The Last Resort' <BR>'Showdown' <BR>'In the End' <BR>'Spiriti Liberi' <BR>'A New Dawn Ending'</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26844.png" width=410 height=410></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/CiQ6dvo8aWs?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

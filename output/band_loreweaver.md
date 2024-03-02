@@ -19,6 +19,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.07.2011 news Дебютный альбом LOREWEAVER
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2011.07/20007.jpg" width=450 height=450>Дебютная работа итальянской prog-metal группы с женским вокалом <STRONG>LOREWEAVER "Imperviae Auditiones"</STRONG> вышла сегодня на <STRONG>SG Records</STRONG>. По словам лэйбла, этому коллективу удаётся совмещать жёсткие риффы с атмосферной и лирической мелодикой. Трек-лист:</P>
+<P>1.<STRONG> Bogus</STRONG> &nbsp;7:49 <BR>2. <STRONG>Dead Man Walking</STRONG> &nbsp;6:26 <BR>3. <STRONG>De Rerum Natura</STRONG> &nbsp;7:42 <BR>4. <STRONG>Follow The Weaver</STRONG> &nbsp;7:41 <BR>5. <STRONG>Ride The Owl</STRONG> &nbsp;4:26 <BR>6. <STRONG>Avoid Feelings</STRONG> &nbsp;6:40 <BR>7. <STRONG>That Night</STRONG> &nbsp;7:04 <BR>8. <STRONG>Ultraworld</STRONG> &nbsp;9:46 </P>
+<P>Послушать сэмплы и одну целую вещь можно здесь: <A href="http://www.sgrecords.it/en/artists/L/31-loreweaver/35-imperviae-auditiones">http://www.sgrecords.it/en/artists/L/31-loreweaver/35-imperviae-auditiones</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

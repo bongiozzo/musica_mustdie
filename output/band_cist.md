@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2016 news CIST собирают деньги
+
+<p>Thrash metal группа из Смоленска <strong>CIST</strong> (ex-HELL's THRASH HORSEMEN) объявила сбор средств на запись нового мини-альбома "<strong>The Frozen Casket</strong>". Помочь можно здесь: <a href="https://www.indiegogo.com/projects/cist-the-frozen-casket-ep--2#/">https://www.indiegogo.com/projects/cist-the-frozen-casket-ep--2#/</a> </p><p><center><iframe width="420" height="315" src="https://www.youtube.com/embed/TlKgsE02fbU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 16.07.2016 news CIST raise money
+
+<p>A Thrash metal band from Smolensk <strong>CIST</strong> (ex-HELL's THRASH HORSEMEN) has announced the raise of funds for recording a new mini-album, "<strong>The Frozen Casket</strong>". You can help here: <a href="https://www.indiegogo.com/projects/cist-the-frozen-casket-ep--2#/">https://www.indiegogo.com/projects/cist-the-frozen-casket-ep--2#/</a></p><p><center><iframe width="420" height="315" src="https://www.youtube.com/embed/TlKgsE02fbU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

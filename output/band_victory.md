@@ -39,6 +39,352 @@ Fritz Randow - drums
 * C группой "Poison Sun" Herman Frank (guitar)
 * C группой "Powerworld" Achim Keller (drums)
 
+## Публикации
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 15.09.2004 news SAXON в Москве!!!
+
+<P><STRONG><IMG height=336 alt="" hspace=0 src="/images/shows_rus/2004.10/7007.jpg" width=300 align=left border=5>Легенды новой волны британского хеви-метал группа «SAXON» выступят в Москве, 15 октября 2004 во Дворце Спорта «ЛУЖНИКИ» в рамках мирового турне «LIONHEART»!</STRONG></P>
+<P><STRONG>Специальные гости — группа VICTORY.</STRONG></P>
+<P>Легенды New Wave Of British Heavy Metal продолжают свое триумфальное шествие по миру. Как почитатели их творчества, так и пресса единодушны в том, что <STRONG>SAXON</STRONG> — одна из самых лучших концертных команд на планете. Где бы ни появлялись <STRONG>SAXON</STRONG>, поклонники получают в подарок потрясающее шоу с огромным количеством классических песен и уникальной атмосферой, над которой не властны годы. Вот и в этот раз, впервые в Москве и в России, группа <STRONG>SAXON</STRONG> порадует старыми всемирно известными хитами, а также представит программу из нового альбома «<STRONG>LIONHEART</STRONG>». Концерт состоится на сцене Дворца Спорта «<STRONG>ЛУЖНИКИ</STRONG>» 15 октября. Начало концерта в 19.00. СПЕЦИАЛЬНЫЕ ГОСТИ — группа <STRONG>VICTORY</STRONG>!!!</P>
+<P>ВНИМАНИЕ! Официальный пресс-агент ТАБРИЗ ШАХИДИ: <A href="http://www.tabriz.ru/">www.TABRIZ.ru</A> - Аккредитация: по e-mail: <A href="mailto:pr@tabriz.ru">pr@tabriz.ru</A> телефон: (095) 774-2471</P>
+<P><STRONG>ВНИМАНИЕ КОНКУРС: В розыгрыше два билета на концерт SAXON!!!</STRONG></P>
+<P>Вопрос: По какой причине в 1999 году группу покинул барабанщик <STRONG>Nigel Glockler?</STRONG> И Кто стал новым барабанщиком?</P>
+<P>Ждём ответы на <A href="mailto:mmustdie@online.ru">mmustdie@online.ru</A></P>
+Автор: Vit Belov
+
+### 17.10.2004 articles Пресс-конференция SAXON и VICTORY, 15.10.2004
+
+<P>Пресс-конференция SAXON и VICTORY 15 октября сего года, которая проходила в магазине «ВсеСОЮЗный» на Ленинском, была одной из самых забавных за последнее время. Пускай было немного музыкантов, зато то, что наговорили присутствующие, вызвало бы неоднозначную реакцию в прессе. Если бы это было сказано где-нибудь в «развитых» странах.</P>
+<P>Присутствовали: Tommy Newton (VICTORY), Jioti Parcharidis (Victory) и Nibbs Carter (SAXON). Краткий конспект того, что происходило ниже:</P>
+<P>В: Представьте, пожалуйста, музыкантов группы VICTORY. Я так понимаю, это Tommy Newton сидит, а кто рядом?<BR>TN: Я - Tommy Newton, а рядом сидит Jioti Parcharidis – наш новый вокалист, он из группы HUMAN FORTRESS. Мы рады были найти певца, который живёт поблизости от Ганновера. Наш бывший фронтмэн был из США, поэтому нам не удавалось полноценно существовать, как группе.</P>
+<P>В: Какие группы Ваши любимые?<BR>NC: (озадаченно): AC/DC…, RUSH, LENINGRAD COWBOYS…, VICTORY<BR>TN: Вау!!!</P>
+<P>В: Какие русские группы Вы знаете?<BR>Хором: GORKY PARK – это всё, что знают на Западе. (подумав) Ещё ТаТу.</P>
+<P>В: С какими группами Вам больше всего понравилось работать в туре?<BR>TN: SCORPIONS, Gary Moore, AEROSMITH, пожалуй, то всё.<BR>NC: Больше всего я люблю группу RUSH, а уж как они работают вживую!</P>
+<P>В: Как себя ощущает в SAXON новый барабанщик Jorg Michael?<BR>NC: Он пьян! (смех в зале) Вообще, он большой фанат SAXON. Даже, несмотря на то, что все песни для нашего нового альбома ‘Lionheart’ были записаны до его прихода, он умудрился вложить в них нечто своё. Благодаря нему, SAXON приобретает звучание MOTLEY CRUE.</P>
+<P>В: Почему из SAXON ушёл Fritz Randow?<BR>Fritz заболел незадолго до записи новой пластинки, а так как оставалось всего 6 недель, мы были вынуждены подыскать ему замену.</P>
+<P>В: SAXON заметно потяжелели на последней пластинке. Отчего это?<BR>Это началось после записи нашей группой ‘Dogs Of War’, она очень понравилась фэнам, и мы решили не останавливаться на этом. Хотя, честно говоря, я не понимаю, как мы могли потяжелеть. Мы играем heavy-metal, куда же тяжелее? Что касается меня, то я начал играть на синтезаторе, незадолго до записи альбома, и все мои вдохновления были связаны с этим. Я принёс все свои идеи, но почему-то группа всё забраковала. Ну что ж, попробую в следующий раз (смеётся).<BR>TN: Nibbs великолепный басист. Он единственный, кто может сыграть буги на 13 тактов, выпив до этого бутылку водки (смех в зале).</P>
+<P>В: Собираются ли группы выпустить DVD?<BR>TN: Мы работаем над концертным DVD, но он выйдет только после того, как мы решим все вопросы со звукозаписывающей фирмой, которая нас откровенно не устраивает. Мы проведём голосование на нашем сайте и включим в пластинку только те песни, которые выберут фэны.<BR>NC: А мы сняли 3 видео-клипа на новый альбом и в скором времени свет увидит концертное DVD.</P>
+<P>В: На немецкой тяжёлой сцене сейчас представлены только thrash и power-metal коллективы. Почему никто не играет такой же чистый heavy-metal, как VICTORY.<BR>TN: По этой причине мы до сих пор и существуем. Немцы сейчас слишком ориентируются на США, а это неправильно. В конце 80-х я продюсировал альбом группы HELLOWEEN, и это была последняя стоящая запись. Что сейчас есть у нас? EDGUY? Извините, но это лишь копия HELLOWEEN.</P>
+<P>В: Ну, а что же тогда Вас впечатляет на мировой сцене?<BR>Дайте подумать (закатывает глаза и изображает мыслительный процесс). Меня впечатляют IN FLAMES. Много интересных вещей.<BR>NC: А меня KILLWITCH ENGAGE, и, конечно же, AC/DC (смеётся).</P>
+<P>В: А как относитесь к NIGHTWISH?<BR>JP: NIGHTWISH – хорошая группа, но сейчас в их творчестве слишком много шоу.<BR>TN: Из групп с женским вокалом, очень неплохи EVANESENCE.</P>
+<P>В: Почему в основу Вашего альбома положена история о Ричарде «Львиное Сердце»?<BR>NC: Biff интересуется историей, но главное, это название круто звучит – Lionheart. Кстати, вы знаете, что Ричард был голубым? Да-да. (смех в зале). Но это не важно. Главное, чтобы было, что вставлять, не важно – куда. (все хохочут).<BR>TN: Главное, чтобы подходило!!!!</P>
+<P>В: Ну, а теперь расскажите об английской сцене. Что Вы думаете о CRADLE OF FILTH и PARADISE LOST?<BR>NC: О, CRADLE OF FILTH – хорошая группа. Особенно, когда в кармане есть губная помада (смех). Эти парни выглядят, как группы в 60-е – 70-е, пусть туда и отправляются. А PARADISE LOST мне откровенно жаль. Теперь они похожи на английский RAMMSTEIN, а раньше – всё было гораздо интереснее.<BR></P>
+Автор: Vit Belov
+
+### 21.05.2006 reviews Двенадцать брёвнышек в костёр былой популярности
+
+<P>За два с лишним десятилетия у группы с победоносным названием Victory были взлёты и падения. В конце восьмидесятых эти германские хард-рокеры пользовались серьёзной популярностью в США, не в последнюю очередь благодаря своему известному на всю Америку вокалисту Чарли Хуну. Хун работал с Тедом Ньюджентом, а именно старину Теда сотни тысяч американцев считают эталоном дикости и неистовства в тяжёлой музыке. Так что вместе с Чарли Хуном немецкой группе Victory обломилась частичка харизмы мегазнаменитости Ньюджента.<BR><BR>Хун давно покинул ряды Victory, но музыка группы от этого не стала ни лучше, ни хуже. Стабильно качественный и предсказуемый хард-рок. Сегодня место Хуна в составе занял грек Джайоти Парчаридис, и я не уверен, что замена эта неадекватна, как утверждают некоторые музыкальные издания. Помимо бессменных Томми Ньютона (любители Helloween, вы ещё помните, кто продюссировал первого Кипера?) и Питера Кнорна, сегодня в составе группы нарезает экс-акцептовец Германн Франк и барабанит знаменитый Фриц Рандов из Eloy. Музыканты, мягко говоря, очень убедительные.<BR><BR>И вот пришло им в голову заработать пару копеек и подбросить дровишек в тлеющий костерок былой популярности, перезаписав старые хиты группы, благо их было немало, а заодно и &nbsp;обкатать &nbsp;нового вокалиста. Так появился новый альбом со старыми хитами Fuel To The Fire. Честно говоря, оригиналы лично мне кажутся более впечатляющими, но и современная подача группы тоже очень интересна. Те из нас, кто не слишком хорошо знаком с матчастью, а ранние альбомы Victory у нас почти не издавались, теперь имеют возможность припасть ушами к богатому творческому наследию одной из самых интересных германских хард-роковых групп.<BR><BR>Диск предоставлен Dark Division</P>
+Автор: Ruslan
+
+### 19.01.2007 news У Tommy Newton сердечный приступ
+
+<P>У лидера <STRONG>VICTORY</STRONG> и знаменитого продюсера <STRONG>Tommy Newton</STRONG> случился сердечный приступ. Группа вынуждена отменить все концерты до полного выздоровления музыканта.</P>
+Автор: Vit Belov
+
+### 05.06.2015 news Состав RUNNING WILD для Wacken&#39; 2015
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>RUNNING WILD</STRONG> обнародовала состав, в котором они выступят на фестивале <STRONG>Wacken</STRONG> в этом году (31 июля).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На фото (слева на право): <STRONG>Ole Hempelmann</STRONG> (бас, ex-<STRONG>THUNDERHEAD</STRONG>), <STRONG>Rock'n'Rolf</STRONG> (вокал, гитара), <STRONG>Michael Wolpers</STRONG> (барабаны, <STRONG>VICTORY</STRONG>), <STRONG>Peter Jordan </STRONG>(гитара).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа также обещает исполнить одну новую песню с грядущего студийного альбома.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28068.jpg" width=600 height=404>&nbsp;</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Концерт Saxon фпычатления

@@ -78,6 +78,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.02.2016 news DISCHARGE выпускают новый альбом 29 апреля 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легендарные британские панки <STRONG>DISCHARGE</STRONG> выпускают свой новый альбом 29 апреля на лейбле<STRONG> Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск, названный <STRONG>"End Of Days"</STRONG>, представит публике нового вокалиста коллектива, по имени <STRONG>Jeff Janiak</STRONG> и станет первым полноформатником коллектива начиная с 2009 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предварительный заказ доступен по ссылке: <A href="http://geni.us/DischargeEnd">http://geni.us/DischargeEnd</A></FONT></P>
+<P>Трек-лист альбома:</P>
+<P>01.<STRONG> New World Order</STRONG> | 02. <STRONG>Raped And Pillaged</STRONG> | 03.<STRONG> End Of Days</STRONG> | 04. <STRONG>The Broken Law</STRONG> | 05. <STRONG>False Flag Entertainment</STRONG> | 06. <STRONG>Meet Your Maker</STRONG> | 07. <STRONG>Hatebomb</STRONG> | 08. <STRONG>It Can’t Happen Here</STRONG> | 09. <STRONG>Infected</STRONG> | 10.<STRONG> Killing Yourself To Live</STRONG> | 11. <STRONG>Looking At Pictures Of Genocide |</STRONG> 12.<STRONG> Hung Drawn And Quartered</STRONG> | 13. <STRONG>Population Control</STRONG> | 14. <STRONG>The Terror Alert</STRONG> | 15. <STRONG>Accessories By Molotov (Part 2)</STRONG></P>
+<P>Текущий состав группы: </P>
+<P><STRONG>Jeff "JJ" Janiak</STRONG> - вокал |<STRONG> Tony "Bones" Roberts</STRONG> - гитара | <STRONG>Terry "Tezz" Roberts</STRONG> -&nbsp;гитара | <STRONG>Roy "Rainy" Wainright </STRONG>- бас | <STRONG>Dave Bridgewood</STRONG> - барабаны</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28889.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### DISCHARGE (UK) в Москве (29 сентября 2013 г.)

@@ -25,6 +25,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.06.2016 reviews Хорошие идеи при слабой студийной работе
+
+<p>Бразильская melodic death metal команда D.A.M образовалась в 2013 году. Музыканты поражают своей плодовитостью, у них за плечами уже два полноформатных альбома и три миньона. Последний из EP, 39-минутный «Premonitions”, вышел в марте текущего года.</p><p>D.A.M выпустили миньон в цифровом формате, и он скорее звучит как демо-запись. Честно говоря, я не думал, что в наши дни на что-то можно рассчитывать, записывая альбомы в формате демо. При прослушивании песен понятно, что предлагают бразильцы, но на подписание контракта и выпуск полноценного успешного альбома с таким качеством звучания рассчитывать не приходится. Хоть и заялено, D.A.M играют melodic death metal, гитара звучит так, как будто мы имеем дело с melodic heavy metal, да и то с не самым тяжёлым его вариантом. Скриминг, который используется на «Premonitions” гораздо чаще, чем чистый вокал, выглядит на фоне подобных гитар просто инородным телом. В общем, с реализацией на альбоме всё очень плохо, даже не верится, что группа уже имеет какой-то студийный опыт.</p><p>Что касается музыки, то на EP дела обстоят лучше. D.A.M сочиняют эпический melodic death, свойственный OMNIUM GATHERUM или BELAKOR с большим количеством проигрышей и лирических отступлений. Песни все длинные, встречаются классическое фортепиано и женский вокал (правда, весьма слабый). При приложении должного количества фантазии понимаешь, как эта музыка может прозвучать при хорошей студийной работе, но пока мы имеем лишь заготовку.</p><p>Не каждому дан бюджет или умения записываться хорошо и дешево. К сожалению, грамотный звук современному тяжёлому металу просто необходим. Мы ведь никогда не слышали альбомов в жанре melodic death&nbsp; с хлипкой гитарой?</p>
+Автор: Vit Belov
+
+### 21.06.2016 reviews Good ideas with a weak studio work
+
+<p>Brazilian melodic death metal band D.A.M was formed in 2013. Musicians impress with their fertility, they have already two full-length albums and three EPs. The last of the EP, the 39-minute "Premonitions", was released in March of this year.</p><p>D.A.M released the minion in digital format, and it rather sounds like a demo tape. Honestly, I never thought that in our days, something you can count, recording the albums in format of demo. When listening to songs it is clear that offer Brazilians, but to sign the contract and issue a fully successful album with the same sound quality can not count. Though described, D.A.M playing melodic death metal, the guitar sounds as if we are dealing with melodic heavy metal, and even then not the most severe heavy metal. Screaming that is used on "Premonitions" much more than clean vocals, looks at the background of these guitars is just a foreign body. In General, with realization on the album are all very bad, I can't believe the group already has some experience in the studio.</p><p>As for the music, the EP fared better. D.A.M compose epic melodic death for fans of OMNIUM GATHERUM or BELAKOR with lots of lyrical digressions. All long songs meet classical piano and female vocals (though very weak). When a proper amount of imagination to understand how this music can sound with a good studio work, but so far we have only a blank.</p><p>Not everyone is given the budget or the ability to record good and cheap. Unfortunately, good sound in modern heavy metal music is just needed. Did we ever heard albums in the genre of melodic death with flimsy guitar?</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -161,6 +161,853 @@ Transport by Eddie Farrell PLC.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.07.2000 reviews Кельтская музыка в тяжелой обработке
+
+<p>Кельтская музыка в тяжелой обработке. Вот что вы услышите поставив на вертушку этот диск. Хотя я, вспоминая прошлый альбом этой этой ирландской группы (альбом еще аж 1996 года), надеялся услышать довольно мрачный и тяжелый folk-black-death-metal с задушенным вокалом и сырыми гитарными риффами. Но все кардинально переменилось. Единственное, что осталось по-прежнему - это приверженность к folk-традициям. Сейчас группа играет музыку, которую можно охарактеризовать как folk-gothic-power с милым женским вокалом (иногда проскакивает и мужской, но тоже чистый), сочными гитарными партиями и, довершающими общую картину, пианинными клавишами. При записи также использовалось неимоверное количество всевозможных ирландских народных инструментов. В общем, ирландская народная музыка в современной обработке. Cruachan пошли по стопам Antichrisis, однако не по той же дорожке, наступая на пятки, а по дорожке рядом.</p>
+
+Автор: Dimas
+
+### 11.07.2000 reviews Celtic  music in high-gravity processing
+
+<p>Celtic music in high-gravity processing. That you will hear having put on a whirly this disc. Though I, recalling a past album of this this irish group (album still already 1996), hoped to hear rather sad and high-gravity folk-black-death-metal with strangled voice and crude guitar rhythms. But all was cardinally changed. Alone, that remained still is an adherence to folk-traditions. Now group plays music, which one can be described as folk-gothic-power with lovely female vocals (sometimes overshoots also man's, but too clean), juicy guitar crews and, completing a general(common) picture, piano by keys. At a record extreme quantity of every possible irish national tools also was used. In common, irish folk music in modern processing. Cruachan transmit in the steps Antichrisis, however not on the same track, coming on feets, and on an another track series.</p>
+
+Автор: Dimas
+
+### 26.09.2000 news Cruachan скоро отправятся в студию
+
+<p> В декабре ирландцы Cruachan отправятся в студию, чтобы начать запись нового, пока еще безымянного, альбома. На данный момент известны лишь названия нескольких песен: "Exiles Of The Sons Of Uisneach", "Ride On", "Erinsong" и "The Children Of Lir".</p>
+
+Автор: Nybras
+
+### 26.09.2000 news Cruachan will enter the studio
+
+<p> In December the Irish will enter the studio again to start the recordings for the follow-up to their grandiose "The Middle Kingdom"-album. There is no title yet, but a few songs: "Exiles Of The Sons Of Uisneach","Ride On", "Erinsong" and maybe "The Children Of Lir". Allegedly there also are two music-industry-greats helping out, but they just wouldn't give me the names.</p>
+
+Автор: Nybras
+
+### 26.10.2000 news Cruachan готовятся к записи
+
+<p>Декабрь и январь Cruachan проведут в студии, записывая свой новый альбом под названием "Folk-Lore". В марте 2001 года музыканты планируют выпустить новый сингл или mini-cd, а новый полноформатник выйдет несколькими месяцами позже.</p>
+
+Автор: Phantom Lord
+
+### 22.03.2001 news О новом альбоме Cruachan...
+
+<p> Cruachan кое-кого шокировали участием на своем новом альбоме в качестве продюсера Шейна МакГована из The Pogues. Кроме того, дядя Шейн даже спел на сингле "Ride-on". Полноформатник "Folk-lore", конечно же прогрессивный, ожидается в далеком августе. (De Niss/Legion Online)</p>
+
+Автор: Nybras
+
+### 11.03.2002 bios Биография Cruachan
+
+<p>Cruachan возникли в 1992 году на обломках ирландской группы Minas Tirith, существовавшей с 1989 года и исполнявшей thrash, основанный на мифологии Толкиена. Кейт Фей после распада Minas Tirith пригласил Джона Фея и Джона Клохесси, а также ещё нескольких музыкантов в новую команду - Cruachan.</p>
+<p>Идейным стержнем команды стала любовь к кельтской культуре - истории, традициям, мифологии, музыке. И всё это они стремились в полной мере передать в своём творчестве, в таких масштабах, которые не встречались прежде в тяжёлой музыке. Это не просто влияние ирландской народной музыки, это в какой-то мере и есть сама ирландская музыка. Сформировав полноценный состав из музыкантов, играющих и на народных, и на обычных инструментах, они записали демо из нескольких оригинальных песен. Демо вышло в конце 1993 года и получило высокие оценки во всём мире.</p>
+<p>Демо привлекло внимание нескольких лейблов, с одним из которых - Nazguls Eyrie Productions из Германии в начале 1994 года Cruachan подписали контракт. Основной мотив, определивший выбор группы, - свобода творчества без всяких ограничений, которую предоставил лейбл. Дебютный альбом "Tuatha na Gael" был записан в начале 95-го года и презентован слушателям на кельтском фестивале в Beltaine. Black metal, переплетенный с кельтскими мелодиями - отличное получилось сочетание, волшебная древняя музыка. Единственный минус альбома - слабое качество записи и сведения, что объясняется недостатком времени. Но не смотря на это, альбом принёс группе узнаваемость и даже определённую популярность во всем мире. Для лейбла альбом вообще стал хитом и рекордсменом продаж. Масштабы лейбла - небольшая сеть дистрибуции, слабый промоушн были явно не достаточны для уровня альбома. В результате многие меломаны могли лишь читать восторженные рецензии в музыкальных журналах, не имея возможности получить альбом на руки.</p>
+<p>В период с 95-го по 97-й год Cruachan часто выступали с концертами. Так же, как и музыка, их живые выступления уникальны, проходят в подлинном кельтском духе - в точности реконструированные старинные кельтские костюмы, военные знамёна и т.д. Cruachan в исполнии музыки делают упор на настоящие народные инструменты, а не ограничиваются клавишами и сэмплами, как это часто бывает в современных folk-rock коллективах. И это также добавляет колорит и экзотику в концертные выступления. Зрителям просто даже любопытно увидеть, как выглядит ирландская флейта, быдран (древний ручной барабан), волынка, арфа, базука и другие совершенно неизвестные неспециалистам инструменты.</p>
+<p>Снова в студию Cruachan отправились лишь а в начале 1997 года для того, чтобы сделать четырёхпесенную promo-запись с новой фолковой певицей Айслинг Ханраан. Новый материал был намного более тяжелый, даже ближе к death metal. Promo предназначалось специально для рассылки лейблам, поскольку с Nazguls Eyrie Productions решено было расстаться.</p>
+<p>Германское отделение Century Media Records проявили интерес к Cruachan и вели с ними долгие переговоры. Но в конечном итоге Cruachan отказались от сделки. Условия Century Media слишком ограничивали музыкантов в творчестве, предполагая полный контроль со стороны лейбла как над процессом написания материала, так и над последующей записью. И ни на какие уступки и компромиссы менеджеры лейбла не шли. Как вспоминает Кейт Фей в одном из интервью: "Они пытались впечатлить нас тем, насколько они хорошие и толковые, но они всего лишь мерзкие, противные люди. Над их контрактом смеялись все, кому мы его показывали. Там есть совершенно смешные пункты, например, вещи подобные "Если я напишу музыкальный фрагмент в своей спальне, то он не будет классифицироваться как моя музыка, а будет юридически принадлежать Century Media". Да это просто полный fuck, и такого дерьма там было навалом." Неудачные переговоры изрядно попортили нервы музыкантам, но тем не менее Cruachan продолжали писать музыку и выступать, причём не только перед почитателями тяжёлой музыки, но и на традиционных кельтских народных фестивалях. В середине 1997 года Cruachan однако, к огорчению поклонников, покинули музыкальную сцену по самым разным личным причинам. Все участники команды продолжали заниматься музыкой, но гораздо меньше, чем прежде.</p>
+<p>Но однажды, как птица Феникс, Cruachan восстали из небытия. В январе 1999 года Кейт и Джон Фей решили всё-таки реинкарнировать группу под мощным давлением со стороны фэнов, требовавших второго альбома. Да и голландский лейбл Hammerheart Records сильно желал заполучить группу в свои ряды. В октябре 99-го сделка состоялась и Cruachan приступили к записи второго альбома "The Middle Kingdom". Вышло это творение в июне 2000 года.</p>
+<p>Новейший, третий по счету альбом "Folk-Lore" увидел свет 21 января 2002 года.</p>
+
+Автор: Morsus
+
+### 19.03.2002 reviews Фольклор на металлический лад
+
+<p>Фольклор на металлический лад. Ирландские музыканты продолжают свои собственные фолковые идеи и пытаются развить их до совершенства. Даже не верится, что когда то группа играла сырой folk-black с шипящим скримингом и далеко не лучшим качеством записи. Новый третий альбом ирландцев несколько проще предшественника, при этом, он несколько тяжелее и еще более фольклорнее. Можно даже сказать, что это совершенно разные альбомы. Здесь чувствуется небольшой возврат группы к black metal корням (даже оформление альбома сделано в духе дебютного альбома), местами это заметно, особенно на "Ossian's Return", "Exiles" и бонус-трэке "To Invoke The Horned God" (ремикс песни с самого первого альбома "Tuatha Na Gael"), где можно услышать скриминг и режущие риффы. Все эти вещи являются лучшими песнями альбома. Вот если бы весь альбом состоял из подобных песен... Ну и, конечно, нельзя не отметить бардовскую вещь "Ride On" написанную еще 20 лет назад неким Jimmy mc Carthy, который играл эту песню в пабах на акустической гитаре. Песня стала легендарной и ее исполняют буквально все ирландские фолковые группы. CRUACHAN тоже решили не отставать и записали свой вариант с тяжелыми гитарами и прекрасными вокальными работами. На альбоме очень удачная комбинация кельтской folk и metal музыки в равных пропорциях. Металлические гитары вовсе не заглушаются плотным потоком фольклорного инструментария. Выделяются и все вокалы, от обычного женского до рычащего мужского, также можно на двух вещах услышать неповторимый мужской вокал записанный продюссером альбома Shane Mc Gowan (The Pogues). Очень хороший альбом, который приятно послушать сидя за столом в компании и выпивая очередную кружку Гиннесса.</p>
+
+Автор: Dimas
+
+### 19.03.2002 articles Кельтский фестиваль в Питере
+
+<p><img align="right" vspace="5" src="/images/articles_rus/2002.03/2536.jpg" width="260" height="187"> Начало задерживалось из-за отключения электричества. Прошло пол-часа, час, уже почти семь вечера... началась лёгкая паника, ехидные намёки, что мол нам, отправляющимся этим же вечером в Москву, Cruachan уже увидеть не суждено. Начнут они, скорее всего, теперь не раньше двенадцати, если не позже. Вспоминали московский концерт Royal Hunt. Но тем не менее всё обошлось - при такой нехилой задержке все заявленные группы как положено выступили, Cruachan нормально отыграли где-то чуть больше часа и к полуночи концерт благополучно завершился. Впрочем, по-порядку.</p>
+<p>Зал большой, пожалуй побольше Горбушки. Только ряды кресел в отличие от Горбушки не убраны и партер, проход между сценой и рядами, довольно мал для рок-концертов, и будь народу побольше, непонятно, как бы там все поместились. Но с другой стороны, можно было свободно присесть в любом удобном месте, и это очень пригодилось мастдайцам, набродившимся за день по городским достопримечательностям.</p>
+<p>Открыл фестиваль питерский фолк-коллектив Ad Libitum. Необычная музыкальная структура песен - долгие инструментальные фрагменты, речитативные повествования. Очень интересно и при этом вполне легко для восприятия.</p>
+<p>"Мой милый друг, летим со мной плясать и петь в Ирландию, плясать и петь", - бодренько начали своё отделение The Dartz. И дальше в таком же духе... разухабистый ирландский пивной фольклор на русском языке. Отлично. Простые добрые песни для хорового пения в шумной компании за длинным деревянным столом.</p>
+<p>Вы уже представили себе атмосферу действа? Разумеется, это не митал. Интересно в плане открытия для себя чего-то нового. Но не митал. И публика на концерт пришла в большинстве своём совершено немитальная. В основном просто любители всякой разной интересной музыки и приятного времяпровождения. Трушных миталистов совсем немного. Пара готов. Зато по залу и в фойе перемещалось немало колоритных личностей в стилизованных кельтских одеяниях. У кого-то просто маленькая деталь, выдающая "ирландца", вроде нарисованного трилистника или клетчатой рубашки, повязанной на поясе. Самые продвинутые, такие тоже были, полностью одеты в народные одежды. Девушки в клетчатых юбках и жакетах или в белых платьях с кельтскими узорами и ленточкой в волосах. Парни в щегольских расписных жилетках и даже в юбках. Ндаа... вот ведь есть ещё и такая субкультура.</p>
+<p>По ходу фестиваля многие танцевали в проходе между сценой и рядами кресел. Причём танцевали правильно, со знанием дела. Взялись за руки, развернулись, реверанс, наклон, ещё поворот. Парные танцы, одиночные, а потом и вовсе хороводы пошли. "Куда мы вообще попали?" - то и дело задавали друг другу сей вопрос мастдайцы.</p>
+<p>После The Dartz были ещё Nordfolks, Belfast, White Owl. Но все эти группы я посмотрел мельком и они меня не особенно впечатлили. Так себе. Nordfolks играли ту же ирландскую музыку, но с крепкими матерными текстами. Belfast - рокабилли и всё такое, тоже "ирландщина" в имидже и текстах. White Owl - что-то сложное и народное, запомнился вокалист в странном корпспейнте.</p>
+<p>И когда взяли первые аккорды Llanfair P.G., вздрогнул воздух в зале - это митааалл!!! Мощный гитарный драйв, сила, угар, музыка заметно тяжелее на фоне предыдущих групп. Вокалист Dr. Leopoldus в монашеском одеянии - коричневая сутана, подпоясанная пеньковой верёвкой... эдакий персонаж средневековых романов. Рядом гитарист - тоже в рясе, только в белой. Прикольный человек в традиционной клетчатой юбке, с косичками и ещё с кучей прибамбасов на себе по ходу выступления Llanfair P.G. веселил публику кукольными перформансами. Но по-моему как-то не к месту и не в тему. Он же выступал в роли конферансье, объявляя команды. Ещё интересный момент был, когда вместо теперешнего бас-гитариста вышел на сцену Дмитрий Петрас, ранее игравший в Llanfair P.G., а ныне выступающий в роли организатора фестиваля. Хорошее впечатление подпортил звук. То, что звук на фестивале неважный, именно на Llanfair P.G. проявилось со всей очевидностью. То и дело в зале раздавались возмущённые призывы к совести звукача.</p>
+<p><img align="right" vspace="5" src="/images/articles_rus/2002.03/2534.jpg" width="360" height="240"> Ну вот, все, кроме Cruachan отыграли. И теперь под завязку - собственно хэдлайнеры. Под крики зала они вышли. Поприветствовал собравшихся Кейт Фей, совершенно какой-то худой, с начавшим отрастать ёжиком на голове в белой майке и кельтской юбке. Куда более красочно смотрелся брат Кейта - играющий на куче народных инструментов Джон О'Фэйтэй - босиком в одежде пастуха овец. Видимо, как святой Патрик. Самодельная юбка из холстины, такая же домотканная рубашка и накинутый на плечи клетчатый овечий плед. На поясе какие-то сумочки, ремешки и прочие нужные скотоводу вещи. Всё дотошно выполнено, в деталях. Похоже на то, что делалось всё вручную, в точности так же, как в далёкие времена, когда в Ирландии ещё не было католиков, а жили гаэльские племена, пасли овец на склонах гор и варили вересковый мёд. Остальные музыканты какого-то специального имиджа не придерживались и не ставили целью произвести впечатление на публику одеждой и внешностью.</p>
+<p>Cruachan играли вещи с разных альбомов, давая общую картину творчества. Как это обычно бывает у групп, приезжающих к нам впервые. Песни с ранних альбомов, где Кейт Фей рычит, звучали жёстко, мощно и угарно. Новые же песни с альбома "Folk-Lore" сразу выделялись - более мягкие, меньше митала и совсем уж мало что осталось от блэка. Но в нежных лирических балладах особенно выигрышно звучит голос вокалистки Карен Гиллиган. Заслушаешься. <img align="right" vspace="5" src="/images/articles_rus/2002.03/2535.jpg" width="360" height="250"> И, кстати, посмотреть приятно. Весьма привлекательная блондинка. В быстрых тяжёлых вещах она не так сильна, громкий женский голос скорее раздражает. Но именно в таких песнях лидирует Кейт Фей. Рычит - просто отвал башки! Отлично выходят номера с дуэтом Кейта и Карен. Местами подпевают Джон О'Фэйтэй и басист. Вообще, пение на несколько голосов разнообразит выступление, добавляет угара и зрелищности. Джон О'Фэйтэй всю дорогу играл на флейте, причём это была какая-то особенная ирландская флейта, и иногда бил в большой, обтянутый кожей бубен - бодран. Не знаю, может музыки этот бубен не сильно прибавлял, но зато смотрелся потрясно. Ещё у Джона был большой меч, он поднимал его время от времени с пола и размахивал им перед публикой. Всё сценическое шоу в основном на нём, на Джоне, и держалось. Плюс ещё Кейт подбадривал зал, время от времени вопрошая, дескать, ну и как вам Cruachan? В ответ звучали дружные одобрительные возгласы и хоровое скандирование - "Cru-a-chan, Cru-a-chan!" Но шквального рёва не выходило, народу было немного. Достаточно, чтобы считать мероприятие состоявшимся, но всё же не соответственно уровню Cruachan. Хотелось бы больше. Ирландцы завершили своё выступление красивой народной балладой "Ride On". И под её звуки мы побежали быстренько на вокзал. Выхода на бис не было, и этим, собственно, всё окончилось.</p>
+<p>Замечательно, что столь интересная группа Cruachan доехала до нас. Всё ж таки это не монстры тяжёлого рока и не модная, набирающая популярность команда, и даже не финны. И потому особенная удача, что мы их увидели. За что спасибо организаторам фестиваля Conti Group.</p>
+
+Автор: Morsus
+
+### 23.07.2002 news MassaBrutto Radioshow #92, 22-23 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. CRUACHAN - The Children Of Lir (Hammerheart)<BR> 2. DARK LUNACY - Stalingrad (Fuel/Ablaze)<BR> 3. DEMIMONDE - Black Ring Theatre (Epidemie Recs)<BR> 4. SATARIEL - Coffin Gateways (Hammerheart)<BR> 5. SATARIEL - Holy Trinity (Hammerheart)<BR> --- --- ---<BR> новости<BR> --- --- ---<BR> 6. COMPOS MENTIS - Beyond Salvation (band)<BR> 7. SANATORIUM - Postmortal Goreaphobia (Forensick Music)<BR> 8. TYPHOID - Killed For Killing (Immortal Souls Prods)<BR> 9. PATHOLOGY STENCH - God-Faith-Prostitution (Shindy Prods/Obscene)<BR> 10. MITHOTYN - From The Frozen Plains (Invasion/Ablaze)<BR> 11. BRAVE - I Believe (Dark Symphonies)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 23.07.2002 news MassaBrutto Radioshow #92, 22-23 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. CRUACHAN - The Children Of Lir (Hammerheart)<BR> 2. DARK LUNACY - Stalingrad (Fuel/Ablaze)<BR> 3. DEMIMONDE - Black Ring Theatre (Epidemie Recs)<BR> 4. SATARIEL - Coffin Gateways (Hammerheart)<BR> 5. SATARIEL - Holy Trinity (Hammerheart)<BR> --- --- ---<BR> новости<BR> --- --- ---<BR> 6. COMPOS MENTIS - Beyond Salvation (band)<BR> 7. SANATORIUM - Postmortal Goreaphobia (Forensick Music)<BR> 8. TYPHOID - Killed For Killing (Immortal Souls Prods)<BR> 9. PATHOLOGY STENCH - God-Faith-Prostitution (Shindy Prods/Obscene)<BR> 10. MITHOTYN - From The Frozen Plains (Invasion/Ablaze)<BR> 11. BRAVE - I Believe (Dark Symphonies)<BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.11.2002 reviews Stunningly composed music should be stunningly performed, shouldn’t it?
+
+<p>"Folk-Lore" signifies both progress and regress this band’s music endured lately. On one hand, the songs became better (read – enriched arrangements, more diversity, and lastly, complexity – instead of somewhat chaotic disorder which used to accompany seemingly each of CRUACHAN’s tunes), on the other one – these guys (and girls) should have become better singers / musicians as well… Stunningly composed music should be stunningly performed, shouldn’t it? CRUACHAN think, it shouldn’t. At least, that’s what derives from a couple of listening to “Folk-Lore”. It still sounds more or less amateurish… Original. Exciting. Distinguishable. Nearly inimitable. But – amateurish. I’m sorry to say that, but it looks (sounds) like Karen is the only one who took care of improving her skills (read – voice). The only one. Don’t get me wrong, CRUACHAN isn’t ARCH ENEMY, and you never expect these Irish play as stupendous as those Swedes do… however; they have to become at least a bit better. Otherwise, I doubt if CRUACHAN’s next offering would be of any interest to me. And yes, make Keith finally stop singing, please!</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.03.2003 news Новый альбом CRUACHAN
+
+<p>Ирландская группа CRUACHAN плнирует в апреле запись в Sonic studios своего нового альбома под названием "Pagan". Альбом должен выйти осенью на Hammerheart Records.</p>
+
+Автор: Dimas
+
+### 26.11.2003 news Cruachan выложили MP3
+
+CRUACHAN выложили MP3 со своего грядущего альбома 'Pagan' на официальном сайте по адресу <A href="http://cruachan.cjb.net/">http://cruachan.cjb.net/</A>
+Автор: Vit Belov
+
+### 22.01.2004 news the 2nd edition of Antwerp&#39;s Haunted Ball
+
+<DIV align="center">The festival will take place on Saturday 21st of February 2004 @ Hof Ter Lo in Antwerpen (B).</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center"><U>The complete billing of Antwerp</U><SPAN><U>'</U></SPAN><U>s Haunted Ball is as following:</U></DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center"><B>CRUACHAN (IRE)</B></DIV>
+<DIV align="center"><B>CALLENISH CIRCLE (NL)</B></DIV>
+<DIV align="center"><B>OCEANS OF SADNESS (B)</B></DIV>
+<DIV align="center"><B>PANCHRYSIA (B)</B></DIV>
+<DIV align="center"><B>BUTCHER (B)</B></DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">- TICKETS:&nbsp;12&nbsp;euro (presale)&nbsp;& 15 euro (door).</DIV>
+<DIV align="center">&nbsp;</DIV>
+<DIV align="center">-&nbsp;ORGANISED BY&nbsp;ASB ENTERTAINMENT vzw : <A href="mailto:info@naski.be"><U>info@naski.be</U></A></DIV>
+Автор: Vit Belov
+
+### 02.03.2004 reviews Оставьте black-metal в покое!!!
+
+<DIV><I>Ирландская фолк-металл группа, начинавшая с black-metal, затем облегчила свой звук, в своих исканиях, вступив даже на грань с grunge. Единственное, что неизменно, так это фолклорные инструменты и мелодии, за что группу и любят.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Если сравнивать&nbsp;<B>CRUACHAN</B> с <B>SKYCLAD</B>, что сразу напрашивается на ум, то можно смело сказать, что в некоторых композициях на новом альбоме '<B>Pagan</B>', в частности на первой <B>'Michael Collins'</B> ирландцы максимально приблизились к ним по звучанию. Солистка поёт почти также протяжно и грубо, как вокалист <B>SKYCLAD Walkyier</B>,&nbsp;и звук тоже далеко несовременен. Иногда встречаются&nbsp;тяжёлые моменты. Например, вокалист начинает орать, но мне всё-таки эти вкрапления показались&nbsp;несколько чужеродными для подобной музыки. Не удаётся&nbsp;<B>CRUACHAN</B> совместить, всё ещё живущую любовь к black-metal, с легковесными ирландскими мелодиями. Уже не удаётся. Из-за этого <B>'Pagan' </B>оставляет не очень хорошее впечатление. Вроде это и не black, но и фолклорные дела всё равно не отвлекают от только что "выступавшего" певца.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Что может быть интересно нашим слушателям, так это русский церковный хор в песне '<B>Pagan</B>'. Какое отношение имеет '<B>Pagan</B>' к нашим православным традициям непонятно. Видимо группе понравилось звучание хора, либо они нас считают такими варварами, у которых даже христианство превращается в язычество?</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Честно говоря, предыдущие работы <B>CRUACHAN</B> мне нравились больше. Но любителям группы, конечно же, нельзя пропускать эту пластинку.</DIV>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 12.04.2004 news SIRENIA первая в марте и по итогам первого квартала
+
+<P>Так выглядит десять лучших позиций по итогам продаж в магазине <B>B2-100 'Metal & Progressive'</B> в "Горбушкином Дворе" в марте:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=481 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD></TR></TBODY></TABLE></P>
+<P>Феноменальные продажи нового альбома <B>Morten Veland (ex-Tristania)</B> и его группы <B>SIRENIA </B>позволили им занять первое место по итогам квартальных продаж. А вот как выглядит десятка по итогам первого квартала 2004 года:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=563 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 154pt" width=205>
+<COL style="WIDTH: 269pt" width=358>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=205 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=358><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ЭПИДЕМИЯ</B></TD>
+<TD><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ICED EARTH</B></TD>
+<TD><B>GLORIOUS BURDEN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>MY DYING BRIDE</B></TD>
+<TD><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 25.04.2005 articles CRUACHAN в Москве: пресс-релиз
+
+<P>Пресс-релиз к концерту группы CRUACHAN (Ирландия) </P>
+<P>Компания СММ PRODUCTIONS и фирма грамзаписи MOROZ RECORDS представляют <BR>очередную акцию концертной серии WORLD TOP MUSIC <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Фестиваль BELTAINE </P>
+<P>&nbsp;1 мая – Санкт-Петербург – клуб Арктика<BR>&nbsp; Участники:Cruachan, Wolfsangel<BR>&nbsp;2 мая – Москва – клуб Точка&nbsp; <BR>&nbsp;Участники: Cruachan, Tintal, Dark Secret Love</P>
+<P>Об исполнителе: <BR>Группа Cruachan (Круахан) была образована в 1992 музыкантом из Дублина по имени Keith Fay (Кейт Фей) после того, как его предыдущий состав "Minas Tirith" распался. <BR>Будучи человеком всерьез увлекающимся историей, корневой кельтской культурой и мифологией, Кейт стремился отразить в своей музыке переживания Средневековья. Первое демо нового коллектива,&nbsp; <BR>выпущенное самиздатом в 1993 году, <BR>было разослано по многим европейским фирмам грамзаписи. <BR>Предложение о выпуске релиза пришло от немецкого лейбла “Nazguls Eyrie Productions" и уже в 1995 году был выпущен дебютный альбом “Tuatha Na Gael”, презентация альбома состоялась 1 мая в священный для всех кельтов день - Beltaine (Белтайн). <BR>&nbsp; Альбом получил положительные отзывы во многих специализированных изданиях, что совсем неудивительно, так как стиль группы был совершенно уникальным – black metal с кельтскими акустическими мелодиями Средневековья. <BR>Для записи и во время живых выступлений группа использовала целый ряд традиционных народных инструментов, таких как ирландская флейта, арфа, греческая гитара. Поступившее вскоре после этого предложение об издании от ведущего европейского лейбла Century Media музыканты отвергли, решив сохранить независимый статус культового андеграундного коллектива. <BR>Термин “true” - это как раз о Cruachan...&nbsp;&nbsp; </P>
+<P>В 1997 был готов материал для нового альбома. Творчество группы стало еще более фолк-ориентированным. Дополнительный шарм придало появление партий женского вокала, Karen Gilligan стала сначала сессионным, а позднее постоянным участником коллектива. Вскоре был подписан контракт с голландским лейблом "Hammerheart records", на котором были изданы последующие альбомы&nbsp; “The Middle Kingdom ” и&nbsp; “Pagan”…&nbsp; <BR>Интерес российской аудитории к ирландской культуре обусловлен не только популярной в последнее время кельтской поэзией и живописью, но и оригинальной ирландской музыкой. Такие ирландские коллективы как U-2, Bruce Springsteen, Cranberries во многом сформировали современный европейский музыкальный ландшафт. </P>
+<P>Первый визит коллектива Cruachan в Россию состоялся 2002 году. Выступление проходило в ЛДМ в День Святого Патрика (17 марта) при абсолютном аншлаге. <BR>За последние три года у группы появился официальный издатель в России и еще более вырос интерес аудитории, что подтверждают объемы продаж аудио-носителей. Приезд группы в этом году проходит в рамках поддержки нового альбома 2004 года.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>Билеты в предварительной продаже можно приобрести в театральных кассах и музыкальных магазинах Москвы с 5 апреля.</P>
+<P>Цена билетов:<BR>Предварительная продажа<BR>Танцевальный партер – 450 руб<BR>2 мая в кассе клуба – 500 руб<BR>V.I.P. ложа – 800 руб</P>
+<P>Пресс-конференция группы и аккредитация на концерт представителей СМИ пройдет <BR>2 мая в пабе Sally O’Briens (ул. Большая Полянка, 1/3)&nbsp; </P>
+<P>Официальный сайт мероприятия: <A href="http://www.patrick.ru/">www.patrick.ru</A> </P>
+<P>Инф: <A href="http://www.cmm.ru/">www.cmm.ru</A> <BR><A href="http://www.cruachan.cjb.net/">www.cruachan.cjb.net</A> </P>
+Автор: Vit Belov
+
+### 08.06.2005 news Martin Walkyier споёт на альбоме CRUACHAN
+
+<P><STRONG>CRUACHAN</STRONG> сообщили на своём официальном сайте, что на одной из песен с их будущего альбома споёт "отец folk-metal" <STRONG>Martin Walkyier</STRONG> (ex-<STRONG>SKYCLAD</STRONG>).</P>
+Автор: Vit Belov
+
+### 15.06.2005 news CRUACHAN на Black Lotus
+
+<P><STRONG>CRUACHAN</STRONG> подписали контракт на выпуск альбома с греческой <STRONG>Black Lotus Records</STRONG>. Коллектив сообщает на своём официальном сайте, что бюджет записи будет самым высоким за всю историю <STRONG>CRUACHAN</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.09.2005 news CRUACHAN вновь приедут в Россию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CRUACHAN</STRONG> сообщили о новом туре по России. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>28.10 Санкт-Петербург, клуб "Арктика" Разогрев: <STRONG>WOLFSANGEL, TUMULUS</STRONG> <BR>29.10 Ярославль клуб "Партизан" <BR>30.10 Москва клуб Би-2. Разогрев:<STRONG> TINTAL, WOLFSANGEL<BR></STRONG>01.11 Волгоград Центральный дом искуств<BR>02.11 Воронеж Rke, "100 потоков" (???) </FONT></P>
+Автор: Vit Belov
+
+### 24.03.2006 news Новый альбом CRUACHAN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> CRUACHAN</STRONG> будет называться <STRONG>"The Morrigan's Call" </STRONG>и выйдет в этом году на <STRONG>Black Lotus</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Shelob</B><BR>02. <B>The Brown Bull of Cooley</B> <BR>03. <B>Coffin Ships</B> <BR>04. <B>The Great Hunger</B> <BR>05. <B>The Old Woman in the Woods</B> <BR>06. <B>Ungoliant</B> <BR>07. <B>The Morrigan's Call</B> <BR>08. <B>Teir abhail Ru</B> <BR>09. <B>Wolfe Tone</B> <BR>10. <B>The Very Wild Rover</B> <BR>11. <B>CuChulainn</B> <BR>12. <B>Diarmuid and Grainne</B></P>
+Автор: Vit Belov
+
+### 03.04.2006 news Трэк-лист нового альбома CRUACHAN
+
+<P>Новый альбом <STRONG>CRUACHAN</STRONG> будет называться&nbsp; "<STRONG>The Morrigan's Call</STRONG>." <BR>Трек-лист: </P>
+<P><STRONG>01. Shelob<BR>02. The Brown Bull Of Cooley<BR>03. Coffin Ships<BR>04. The Great Hunger<BR>05. The Old Woman In The Woods<BR>06. Ungoliant<BR>07. The Morrigan's Call<BR>08. Teir Abhail Ru<BR>09. Wolfe Tone<BR>10. The Very Wild Rover<BR>11. CuChulainn<BR>12. Diarmuid and Grainne</STRONG></P>
+Автор: Bizarre
+
+### 23.05.2006 news Black Lotus приказали долго жить
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греческий лэйбл <STRONG>Black Lotus</STRONG> закрыт! Об этом сообщили<STRONG> CRUACHAN</STRONG> на своём сайте. Группа осталась без лэйбла с полностью записанным альбомом.</FONT></P>
+Автор: Vit Belov
+
+### 27.06.2006 news CRUACHAN на AFM Records
+
+<P><IMG height=225 alt="" hspace=20 src="/images/news_rus/2006.06/10489.jpg" width=300 align=left border=0>После скоропостижной кончины греческого лейбла <STRONG>Black Lotus</STRONG>, ирландцы <STRONG>CRUACHAN</STRONG>, оставшиеся без контракта на выпуск своего нового альбома <STRONG>"The Morrigan's Call",</STRONG> подписали соглашение о его выпуске в начале осени&nbsp;с немецким лейблом <STRONG>AFM Records.</STRONG> Запись была проведена в дублинской <B>Sun Studios</B>. Перед выпуском полнометражника, выйдет сингл <B>"The Very Wild Rover"</B>, куда кроме титульного трека войдут композиции <B>"Bloody Sunday Unplugged"</B>, <B>"Timmy"</B>&nbsp;и <STRONG>"Brian Boru",</STRONG> которые не войдут в полный альбом<STRONG>.</STRONG>&nbsp;Также, уже можно ознакомиться с рабочим вариантом обложки.<BR></P>
+Автор: Dimas
+
+### 05.09.2006 news Новый альбом CRUACHAN
+
+<P>Новый альбом<STRONG> CRUACHAN "The Morrigan’s Call"&nbsp;</STRONG>выходит 17 ноября на <STRONG>AFM</STRONG>. Трэк-лист:</P>
+<P>1.<STRONG> Shelob</STRONG><BR>2. <STRONG>The Brown Bull Of Cooley</STRONG><BR>3. <STRONG>Coffin Ships</STRONG><BR>4. <STRONG>The Great Hunger<BR></STRONG>5. <STRONG>The Old Woman In The Woods</STRONG><BR>6. <STRONG>Ungoliant<BR></STRONG>7. <STRONG>The Morrigan’s Call</STRONG><BR>8. <STRONG>Teir Abhaile Riu<BR></STRONG>9. <STRONG>Wolfe Tone<BR></STRONG>10. <STRONG>The Very Wild Rover<BR></STRONG>11. <STRONG>Cuchulainn<BR></STRONG>12. <STRONG>Diarmuid And Grainne</STRONG></P>
+Автор: Vit Belov
+
+### 29.09.2006 news CRUACHAN в СПб
+
+<P>28го октября Большой фолк-рок фестиваль "Самайн" в клубе "Порт". <BR>&nbsp;<BR>Участвуют:<BR>Cruachan (Ирландия)<BR>Reelroadъ (СПб)<BR>Отава ё (СПб)<BR>а также танцевальные школы: Humpty-Dumpty Dance School и Мирквуд</P>
+<P>Начало в 18.00<BR>Билеты 300-350 рублей.</P>
+Автор: Vit Belov
+
+### 05.10.2006 news Российский тур CRUACHAN
+
+<DIV align=center><B>Компания CMM Productions представляет российский тур 2006 ирландской группы CRUACHAN в поддержку альбома “The Morrigan’s Call” (2006 CD-Maximum/AFM Records)</B> </DIV>
+<P>Расписание российского тура <STRONG>CRUACHAN </STRONG>2006: <BR>28 октября Санкт-Петербург - «Порт» (Специальные гости: Reelroad, Otavae)<BR>29 октября Архангельск - «Модерн»<BR>30 октября Архангельск - «Колесо» <BR>31 октября Москва «Икра»<BR>1 ноября Псков «Пароход»<BR>2 ноября Рига «Meln&#257; Piektdiena»<BR>3 ноября Калининград «Вагонка»<BR>4 ноября Москва «Апельсин-Боулинг» (Специальные гости: Тролль Гнет Ель)</P>
+Автор: Dimas
+
+### 16.10.2006 articles CRUACHAN - российский тур: пресс-релиз
+
+<P><B>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ПРЕСС-РЕЛИЗ</B></P>
+ 
+<P align="center"><B>Компания CMM Productions представляет российский тур 2006 ирландской группы Cruachan в поддержку альбома “The Morrigan’s Call” (2006 CD-Maximum/AFM Records)</B></P>
+<P><U></U></P><B>Расписание российского тура Cruachan 2006</B> 
+<P>28 октября Санкт-Петербург - «Порт» (Специальные гости: Reelroad, Otava e)</P>
+<P>29 октября Архангельск - «Модерн»</P>
+<P>30 октября Архангельск - «Колесо» </P>
+<P>31 октября Москва «Икра»</P>
+<P>1 ноября Псков «Пароход»</P>
+<P>2 ноября Рига «Meln&#257; Piektdiena» </P>
+<P>3 ноября Калининград «Вагонка»</P>
+<P>4 ноября Москва «Апельсин-Боулинг» (Специальные гости: Тролль Гнет Ель)</P>
+<P><BR><B>Об исполнителе:</B><BR>Группа Cruachan (Круахан) была образована в 1992 музыкантом из Дублина по имени Keith Fay (Кейт Фей) после того, как его предыдущий состав "Minas Tirith" распался. Будучи человеком, всерьез увлекающимся историей, корневой кельтской культурой и мифологией, Кейт стремился отразить в своей музыке настроения Средневековья. Первое демо нового коллектива, выпущенное самиздатом в 1993 году, было разослано по многим европейским фирмам грамзаписи. Предложение о выпуске релиза пришло от немецкого лейбла "Nazguls Eyrie Productions", и уже в 1995 году был выпущен дебютный альбом "Tuatha Na Gael", презентация альбома состоялась 1 мая в священный для всех кельтов день - Beltaine (Белтайн). Альбом получил положительные отзывы во многих специализированных изданиях, что совсем неудивительно, так как стиль группы был совершенно уникальным: кельтские акустические мелодии Средневековья в современной аранжировке. Для записи и во время живых выступлений группа использовала целый ряд традиционных народных инструментов, таких как ирландская флейта, арфа, греческая гитара. Однако, сделка с крупным европейским лейблом Century Media не сложилась. </P>
+<P><BR>В 1997 был готов материал для нового альбома. Творчество группы стало более рок-ориентированным. Дополнительный шарм придало появление партий женского вокала, Karen Gilligan стала сначала сессионным, а позднее постоянным участником коллектива. Вскоре был подписан контракт с голландским лейблом "Hammerheart records", на котором были издан следующий альбом "The Middle Kingdom" (2000). Третий альбом группы «Folklore» увидел свет в 2002 году.</P>
+<P><BR>Именно в тот период состоялся первый визит коллектива Cruachan в Россию. 17 марта 2002 года, в День Святого Патрика, в ЛДМ при полном аншлаге прошло выступление Cruachan. Интерес российской аудитории к ирландской культуре обусловлен не только популярной в последнее время кельтской поэзией и живописью, но и оригинальной ирландской музыкой. Такие ирландские коллективы как U-2, Bruce Springsteen, Cranberries во многом сформировали современный европейский музыкальный ландшафт.</P>
+<P><BR>В 2004 году группа выпустила альбом «Pagan». В качестве сессионного музыканта несколько партий вокала записал Martin Walkyier (Skyclad) - один из отцов-основателей фолк-металла и культовая персона во всем мире. </P>
+<P>В 2005 году CMM были организованы концерты группы 1 мая в Санкт-Петербурге и 2 мая в Москве прошедшие с большим успехом. Следующий визит группы проходил в рамках поддержки альбома «Pagan» осенью 2005 года. Помимо столиц в тур были включены выступления в Ярославле, Воронеже, Рязани.</P>
+ 
+<P>Российский тур-2006 посвящен выпуску нового альбома “The Morrigan’s Call”, который выходит на лейбле AFM Records (на территории России, СНГ и стран Балтии – CD-Maximum) этой осенью. </P>
+<P><BR><B>ИНФОРМАЦИЯ ДЛЯ ПРЕССЫ:</B></P>
+<P><B>АКРЕДИТАЦИЯ</B></P>
+<P>Заявка на аккредитацию должна быть подана не позднее 27 октября на электронный адрес <A href="mailto:cmm@bk.ru"><U>cmm@bk.ru</U></A> с пометкой в теме письма "Заявка на аккредитацию на концерт Cruachan".<BR>Укажите название, периодичность и тираж издания, а также имя журналиста, дату и объем опубликованного и планируемого материала о концерте.<BR><B>Информационным партнерам</B> гарантируется размещение баннеров и других pos-материалов на площадке во время концерта. Аккредитация осуществляется на основании предварительного анонса.</P><B>ПРЕСС-КОНФЕРЕНЦИЯ Cruachan</B> 
+<P>состоится 31 октября в 19.00 в ХардРокКафе (ул. Старый Арбат, 44).</P>
+Автор: Dimas
+
+### 17.01.2007 news CRUACHAN заменили барабанщика
+
+<P><IMG height=276 alt="" hspace=0 src="/images/news_rus/2007.01/11184.jpg" width=250 align=left border=5>Барабанщик <STRONG>Joe Farrell</STRONG> покинул <STRONG>CRUACHAN</STRONG> по личным причинам. Новым музыкантом группы стал <STRONG>Colin Purcell</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.12.2008 news Вокалистка покинула CRUACHAN
+
+<P>Певица <STRONG>Karen Gilligan </STRONG>покинула<STRONG> CRUACHAN</STRONG>. Группа планирует в ближайшее время взять сессионную вокалистку для "живой" работы.</P>
+Автор: Vit Belov
+
+### 17.12.2010 news CRUACHAN на Candlelight
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ирландцы <STRONG>CRUACHAN</STRONG> заключили контракт с <STRONG>Candlelight</STRONG>. Новый альбом группы <STRONG>"Blood On The Black Robe" </STRONG>выйдет в начале следующего года. Отрывок песни <STRONG>"I Am Warrior" </STRONG>с этого альбома можно послушать ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=81 width="100%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F8046388&show_comments=true&color=ff7700"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F8046388&show_comments=true&color=ff7700" type="application/x-shockwave-flash" width="70%"></embed></OBJECT><P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### new CRUACHAN

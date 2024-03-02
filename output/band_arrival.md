@@ -20,6 +20,23 @@ Sympho-black-death metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.08.2002 reviews Смертельная музыка с оркестром
+
+<p>Я был ошарашен после первого прослушивания дебютного альбома финских мелодистов. Это же просто melodic death опера какая-то. Смесь шведского death metal, CHILDREN OF BODOM и sympho-black metal. Альбом открывает оркестровая увертюра перерастающая в шквал мелодичных гитарных атак с богатой клавишной атмосферой, типичным скримингом и многочисленными оркестровыми аранжировками. Музыка кажется комплексной и полной, с отличными мелодиями и инструментальными ходами. Этот материал даже слишком мелодичен. Очень хороший альбом, но имеющий существенный минус - трудно отличить одну песню от другой. Благо, что альбом длится всего тридцать пять минут и пролетает как одна большая песня. Однако, как только все заканчивается, руки сами тянутся к кнопке повтора. Все песни альбома незабываемы и чувствуется выверенный баланс между гитарными и клавишными партиями. Итак, имеем мощнейший и красивейший материал, но немножко сыроватый и непродолжительный. Но, тем не менее, этот альбом смело можно причислить к сюрпризу, который не оставит вас равнодушным. Спешите услышать!</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 11.11.2002 reviews FLAUROS goes sympho
+
+<p>FLAUROS goes sympho. As far as I recall, ARRIVAL was started as a side-project and given birth by Sin K., the main force behind Finland’s FLAUROS. Well, in fact, I don’t know whether it’s still this ‘project’ thing or not, and, honestly speaking, it doesn’t really matter. I can’t quite remember what ARRIVAL have been delivering whilst being at demo level. I’m sure it was black metal, however… what kind of it? Who knows… Nevertheless, I’m well acquainted with what they deliver at the moment. And it’s sort of intriguing. Just fancy a weird mixture of sympho-black, a bit of so-called SMDM (read – Swedish melodic death metal), and a bit of vanguard. Use your imagination, goddammit. Ok, have you finally contrived to fancy a picture like this? Congratulations. This is ARRIVAL Anno 2002.</p>
+<P>Website: <A HREF="http://www.arrival.cjb.net">http://www.arrival.cjb.net</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

@@ -75,6 +75,20 @@ Collectors Box includes the following items:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.05.2009 news Новый альбом GHOST BRIGADE
+
+<P>Новый альбом <STRONG>GHOST BRIGADE "Isolation Songs"</STRONG> выйдет в августе на <STRONG>Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.07.2011 news Третий альбом GHOST BRIGADE
+
+<P><IMG height=477 alt="" hspace=0 src="/images/news_rus/2011.07/19966.jpg" width=475 align=right border=0>Третья работа финской группы<STRONG> GHOST BRIGADE</STRONG> <STRONG>"Until Fear No Longer Defines Us" </STRONG>готовится к выпуску в августе на<STRONG> Season Of Mist</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="51">In The Woods</B><BR itxtNodeId="50">02. <B itxtHarvested="0" itxtNodeId="49">Clawmaster</B><BR itxtNodeId="48">03. <B itxtHarvested="0" itxtNodeId="47">Chamber</B><BR itxtNodeId="46">04. <B itxtHarvested="0" itxtNodeId="45">Traces Of Liberty</B><BR itxtNodeId="44">05. <B itxtHarvested="0" itxtNodeId="43">Divine Act Of Lunacy</B><BR itxtNodeId="42">06. <B itxtHarvested="0" itxtNodeId="41">Grain</B><BR itxtNodeId="40">07. <B itxtHarvested="0" itxtNodeId="39">Breakwater</B><BR itxtNodeId="38">08. <B itxtHarvested="0" itxtNodeId="37">Cult Of Decay</B><BR itxtNodeId="36">09. <B itxtHarvested="0" itxtNodeId="35">Torn</B><BR itxtNodeId="34">10. <B itxtHarvested="0" itxtNodeId="33">Soulcarvers</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

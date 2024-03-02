@@ -38,6 +38,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.07.2011 news Andy James выпускает новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>ANDY JAMES</STRONG> выпускает сегодня свой третий сольный альбом, который получил оригинальное название "<STRONG>Andy James</STRONG>". По признанию самого музыканта, стиль, который он предлагает на этой работе, называется просто Instru-Metal. Гитарист известен по своей работе с <STRONG>SACRED MOTHER TONGUE</STRONG>, также музыкант числился в составе <STRONG>BUDGIE </STRONG>в 2007-2008 годах. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/andyjamesf1">http://www.myspace.com/andyjamesf1</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=448 src="/images/news_rus/2011.07/20207.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -67,6 +67,21 @@ Produced by Vadim Chernikov and Stanislav Ivanoff
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.12.2001 reviews Славянские черные песнопения
+
+<p>Славянские черные песнопения. Альбом ростовской команды двухлетней давности вышел теперь официально в России. Жаль, что только сейчас... Конечно, он и сейчас будет многим интересен, даже несмотря на "российское" качество записи, но...время ушло. Очень активная музыка, потрясающая своей мелодикой и ненавистью, музыка наполненная эмоциями и чувствами, агрессивная и красивая. Напоминает смесь самых первых альбомов Dark Tranquillity, Immortal и Pyogenesis (да-да, не удивляйтесь, вот такая уникальная и разнообразная музыка у группы) с многочисленными фолковыми наворотами, народными инструментами и хором на подпевках, странноватыми интро со звуками деревенской жизни. Альбом гораздо более продуманен и технически совершенен чем дебютник, который был скорее блэк-металлическим. Теперь же, материал группы является более дэт-металлическим и смешивает тяжелую языческую музыку с народной. Некоторые вещи исполняются на русском языке. Музыка интересная, мелодичная и необычная, довольно оригинальная. Еще один фаворит для тех, кто любит фолковую экстремальную музыку навроде Ashen Light или Nokturnal Mortum.</p>
+
+Автор: Dimas
+
+### 11.02.2002 reviews Slavic black ritual songs
+
+<p>Slavic black ritual songs. The album of the Rostov band of two-years prescription has left now officially in Russia. It is a pity, that just now... Certainly, it will be interesting much, even despite of the "Russian" quality of record, but... The time is cunning. Very active music tremendous melodic and the hatred, music filled by emotions and feelings, aggressive and beautiful. Reminds a mix of the very first albums Dark Tranquillity, Immortal and Pyogenesis (yes - yes, be not surprised, such unique and various music at group) with numerous folk stuff, national instruments and chorus, strange intro with sounds of rural life. The album is much more balanced and is technically perfect than debute, which was faster black-metal. Now, the material of group is more death-metal and mixes heavy pagan music with national. Some things are executed in Russian. Music interesting, melodious and unusual, rather original. One more favorite for those who loves folk extreme music like Ashen Light or Nokturnal Mortum.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -45,6 +45,43 @@ Mastered at SDC, supervised by Lars Nissen
 
 * C группой "Tiamat" Edlund
 
+## Публикации
+
+### 06.03.2001 news Йохан Эдлунд готовит сольныый альбом.
+
+<p> Вокалист Tiamat Йохан Эдлунд занимается своим сольным проектом LucyFire. Дебютный альбом получил название "This Dollar Saved My Life At Whitehorse". По словам Йохана, это будет прямолинейный рок-альбом без какого-либо специального смысла. Выпуск "This Dollar Saved My Life At Whitehorse" намечен на 23 апреля. Предварит его выходящий 26 марта сингл "The Pain Song".</p>
+
+Автор: Morsus
+
+### 06.03.2001 news Johan Edlund is preparing a solo album.
+
+<p> The singer of Tiamat, Johan Edlund, is preparing a solo project. The name of the project is LucyFire and the debut album will be titled "This Dollar Saved My Life At Whitehorse". According to Johan it will be a straight forward rock album without any special meaning or something. The release of "This Dollar Saved My Life At Whitehorse" has been pushed to 23rd of April. The first single "The Pain Song" will be released 26th of March.</p>
+
+Автор: Morsus
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 06.12.2006 news Новый LUCYFIRE
+
+<P>Лидер<STRONG> TIAMAT</STRONG> <STRONG>Johan Edlund </STRONG>работает над новым альбомом своего сайд-проекта<STRONG> LUCYFIRE</STRONG>, который выйдет в 2007 году.</P>
+Автор: Vit Belov
+
+### 07.01.2007 news Новая песня LUCYFIRE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>TIAMAT Johan Edlund</STRONG> закончил работу над новым демо своего сольного проекта<STRONG> LUCYFIRE</STRONG>. Оно будет распространено по лэйблам в поисках контракта на выпуск полноценного альбома. Песню "<STRONG>All The Children Sing</STRONG>" можно послушать здесь: <A href="http://www.myspace.com/crucifyher">http://www.myspace.com/crucifyher</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Lucyfire

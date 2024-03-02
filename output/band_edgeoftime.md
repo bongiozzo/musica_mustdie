@@ -9,6 +9,15 @@ hard rock/ neo-classic
 
 * C группой "Malmsteen, Yngwie" Michael Von Knorring
 
+## Публикации
+
+### 25.08.2002 news New Project of Michael Von Knorring
+
+<p>EDGE OF TIME is the hard-rock/neoclassic new CD project of the ex-Yngwie Malmsteen drummer from "Eclipse" Album, Michael Von Knorring and the "Voice Of Italian Rock" Chris Heaven. The collaboration of two musicians started some weeks ago for the recording of a cover-version of "Lady Luck" for the second Jason Becker Tribute Album. Actually Von Knorring and Heaven are workin` on songs for their debut cd that will include the following top artists - Paul Nelson (guitar), Tommy Denander (guitar), Rowan Robertson (Dio), Paul Shortino (Quiet Riot/Rough Cutt) Tracy G (Driven/Dio) guitar, Rev Jones (Michael Schenker Group) bass, Mistheria (keyboards), Max Arminchiardi (guitar), Terry Illous (XYZ), and many more.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

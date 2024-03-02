@@ -34,6 +34,15 @@ Bonus Tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.07.2002 reviews Black-death metal of distinctively Czech origin
+
+<p>Isn't it the same work which was originally supposed to come out through Breath Of Night few years ago? Most likely - no, since "Fall Of Devotion" has been recorded, mixed and (surprise, surprise!) mastered Autumn - Winter 2000 / 2001. Taking into account the fact this CD was made available quite lately - actually a year ago - I'm sort of wrong making suppositions like the one stated above. Quite a surprise that Deathgasm (really-really small label of US' origin) contrived to release this piece in a less than a year after the recording session's been complete. Usually it takes much more time… So, praise and honour and blah-blah-blah. Off to music. Czech's AVENGER improved their inimitable style a lot, at least if comparing "Fall Of Devotion" to "Shadows Of The Damned" (1998), the only work of theirs I had a chance of giving a listen (besides the current product, of course). Basically, they haven't changed a lot - it was and unsurprisingly _is_ black / death metal of distinctively Czech origin (yes, the lyrics are all in their native language, but it's definitely not the reason justifying the assertion I've just made), but holy hell, I can't believe they improved already HIGHLY exciting music that incredibly, in fact delivering all the same kind of stuff! I don't know who of the guys is responsible for overall composition, but he must be damn good in what he does. In short, if you'd like to listen to somewhat raw, yet original, uniquely crafted and well performed cross between death and black metal, give "Fall Of Devotion" a chance. NOW!</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

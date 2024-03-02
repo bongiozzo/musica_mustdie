@@ -58,6 +58,50 @@ Sacred Eyes
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 12.03.2004 news Jeff Scott Soto начинает работу над новым альбомом
+
+Уже известно приблизительное название нового сольного альбома <B>Jeff Scott Soto</B> - это <B>"Lost In The Translation"</B>. В работе над ним Джeффу поможет участник <B>Journey Neal Schon</B>.
+Автор: Vit Belov
+
+### 22.01.2005 reviews Не надо нам никаких переводов
+
+<P>Часто меняются музыканты, окружающие Джеффа Сото, постоянное броуновское движение… гитаристы-басисты-ударники приходят, уходят, вновь возвращаются. Часто меняются названия проектов, озвучиваемых Джеффом Сото. Вот только не меняется с годами его голос и не меняется стиль. Мелодичный хард, вариации которого от диска к диску может&nbsp;проследить лишь специалист. Не меняется и качество музыки. Она всегда на крепком среднем уровне. Мелодий полно, гитарных соло тоже. Обязательные баллады и два-три хита на альбом. </P>
+<P>Новая работа этого трудяги-вокалиста – "Lost In The Translation" не разочарует его поклонников. На нем все на месте. Все как обычно. Сото – их знак качества на продукте. Покупаем и наслаждаемся чудесным, настоящим хард-роковым вокалом, и позитивной музыкой.</P>
+<P>Диск&nbsp;предоставлен компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+### 16.11.2006 news Новый двд от Yngwie Malmsteen
+
+<P>Поклонники певцов <STRONG>Jeff Scott Soto</STRONG> и<STRONG> Joe Lynn Turner</STRONG>&nbsp;могут теперь добавить в свою коллекцию еще один двд от&nbsp;<STRONG>Yngwie Malmsteen "Far Beyond The Sun"</STRONG>, который вышел на&nbsp;<B>Universal Music</B>.&nbsp;Прошедший мастеринг двд включает в себя два концерта: японский&nbsp;1985 года&nbsp;(с участием&nbsp;<STRONG>JSS</STRONG>) и ленинградский 1989 года&nbsp;(с участием&nbsp;<STRONG>JLT</B></STRONG>), плюс видеоклипы и свежее интервью 2006 года с <STRONG>Yngwie Malmsteen</STRONG>.</P>
+Автор: Dimas
+
+### 20.12.2006 news JEFF SCOTT SOTO - новый вокалист JOURNEY
+
+<P><STRONG>Jeff Scott Soto</STRONG> (<B>TALISMAN</B>, <B>YNGWIE MALMSTEEN</B>, <B>SOUL SIRKUS</B>) официально объявлен новым вокалистом группы <B>JOURNEY</B>.&nbsp;Он стал заменой ушедшему летом&nbsp;<B>Steve Augeri</B>. </P>
+Автор: Dimas
+
+### 21.08.2008 news JEFF SCOTT SOTO выпускает альбом
+
+<P><IMG height=354 alt="" hspace=0 src="/images/news_rus/2008.08/12753.jpg" width=354 align=right border=5>Новый альбом <STRONG>Jeff Scott Soto</STRONG> <STRONG>"Beautiful Mess" </STRONG>выходит 16 сентября на<STRONG> iTunes</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">21st Century</B><BR itxtvisited="1">02. <B itxtvisited="1">Cry Me A River</B><BR itxtvisited="1">03. <B itxtvisited="1">Gin And Tonic Sky</B><BR itxtvisited="1">04. <B itxtvisited="1">Hey</B><BR itxtvisited="1">05. <B itxtvisited="1">Broken Man</B><BR itxtvisited="1">06. <B itxtvisited="1">Mountain</B><BR itxtvisited="1">07. <B itxtvisited="1">Our Song</B><BR itxtvisited="1">08. <B itxtvisited="1">Eye</B><BR itxtvisited="1">09. <B itxtvisited="1">Bring It Home</B><BR itxtvisited="1">10. <B itxtvisited="1">Testify</B><BR itxtvisited="1">11. <B itxtvisited="1">Wherever U Wanna Go</B><BR itxtvisited="1">12. <B itxtvisited="1">Kick It</B></P>
+<P>Новые трэки можно послушать на <STRONG>MySpace</STRONG> страничке музыканта.</P>
+<P>Ссылка: <A href="http://www.myspace.com/sewtoe">http://www.myspace.com/sewtoe</A></P>
+Автор: Vit Belov
+
+### 22.10.2009 news JEFF SCOTT SOTO выпустит DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Знаменитый вокалист <STRONG>Jeff Scott Soto</STRONG> выпускает DVD <STRONG>"One Night in Madrid" </STRONG>в декабре на<STRONG> Frontiers</STRONG>. Шоу было отснято 18 апреля в испанском Мадриде. Музыкант исполнит песни со всех своих сольников.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -82,6 +82,32 @@ Bonus tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2009 reviews Альбом в сложном, но популярном жанре
+
+<P>Молодая группа CORONATUS замахнулась на многое. На своём втором альбоме музыканты решили посягнуть на лавры HAGGARD и THERION. Неплохая заявка, а? Что ж, всегда приятно, когда кто-то пытается порадовать фанатов подобной музыки, которых не только в нашей стране с избытком.</P>
+<P>Авторы этой группы подошли к своей работе со знанием дела. В состав было рекрутировано сразу две молоденьких вокалистки, в тексты было заложено несколько различных языков, включая обязательную в таких случаях латынь, музыка была сочинена соответствующая, романтическая и неоклассическая. Ингредиенты, из которых должны состоять подобные альбомы, известны многим. В этом немцы не промахнулись. Не хватило CORONATUS одной очень важной вещи – опыта. К сожалению, везде коллектив немного не добирает. Вокалы звучат иногда слишком эмоционально, мелодии кажутся несколько заезженными, гитарная работа слабой, а ритм-секция слишком простой. Ведь и HAGGARD и THERION состоят из великолепных музыкантов, за их творчество и исполнение не будет стыдно даже перед профессионалами классической музыки. У CORONATUS с этим проблемы, не слушается их альбом, как надо. Везде замечаются какие-то недоработки и неприятные недостатки.</P>
+<P>Альбом в сложном, но популярном жанре. Любители оперного металла должны оценить эту работу сами, но рекомендовать CORONATUS слушателям далёким от тяжёлой музыки я не стал бы. Всё-таки эта работа «местечкового» значения.</P>
+Автор: Vit Belov
+
+### 01.07.2010 news В CORONATUS наш человек
+
+<P><IMG height=346 alt="" hspace=0 src="/images/news_rus/2010.07/16870.jpg" width=170 align=right border=5>Вокалистка <STRONG>ARCANE GRAIL Натали Кемпин</STRONG> присоединилась к <STRONG>CORONATUS</STRONG>. Она заменила оперную певицу, в группе их две, <STRONG>Кармен Лорх</STRONG>. </P>
+<P>Пластинки gothic-metal группы<STRONG> CORONATUS</STRONG> выходят на <STRONG>Massacre Records</STRONG>. Два альбома <STRONG>ARCANE GRAIL</STRONG> увидели свет на <STRONG>MUSICA Production</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.07.2016 news Официальный стрим последнего альбома CORONATUS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Последний альбом<strong> CORONATUS "Cantus Lucidus"</strong>, вышедший на <strong>Massacre Records</strong>, доступен к прослушиванию ниже.</font></p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JFMqaldfOZE" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 25.07.2016 news Stream of latest CORONARTUS album
+
+<p>Latest album of<strong> CORONATUS "Cantus Lucidus"</strong>, released on<strong> Massacre Records</strong>, available for listening below.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JFMqaldfOZE" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

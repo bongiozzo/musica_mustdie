@@ -443,6 +443,417 @@ Limited, deluxe and mailorder editions includes bonus DVD or Blu-Ray. It feature
 * C группой "Victory" Herman Frank (guitar)
 * C группой "Poison Sun" Herman Frank (guitar)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>В прошлом году SINNER участвовал в концертах DEEP PURPLE на разогреве. Ян Гиллан сказал, что у них не было такой классной поддержки последние десять лет. Также SINNER записал песню группы ACCEPT "Ball To The Wall". Она выйдет на сборнике NUCLEAR BLAST в этом году.</p>
+
+Автор: Vit Belov
+
+### 05.03.1999 news 
+
+<p>Witchery закончили запись своего мини-альбома "Witchburner". Новая работа выйдет в марте и будет содержать кавер-версии WASP, Black Sabbath, Judas Priest и Accept. Также на альбоме будет три новых песни. В данный момент группа работает над новым полнометражным альбомом "Dead, Hot and Ready".</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>Primal Fear записали новый альбом "Jaws Of Death". Это была первая запись с новым гитаристом Стефаном Лайбингом. Продюсерами пластинки, которая записывалась в знаминитой Morissound студии, были Ахим Коллер и Мэт Синнер. Primal Fear также записали песню "Breaker" для трибьюта Accept.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Новый альбом Sodom будет называться "Code Red" и выйдет 17 мая. На альбоме будет 12 песен плюс бонус-кавер на песню Accept "I'm a Rebel". В паре с этим альбомом выйдет трибьют к самой группе "Homage To The Gods". На работе засветятся Cradle Of Filth, Impaled Nazarene, Dark Funeral, Atanatos, Enthroned, Brutal Truth и другие.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Watchtower объединились для записи песни "Run If You Can", которая войдёт на кавер-сборник, посвящённый Accept. Группа запишется в таком составе: Джейсон МакМастер, Рон Ярзомбек, Дуг Кейсер и Рик Колалука.</p>
+
+Автор: Vit Belov
+
+### 14.09.2000 news Новый альбом Six Feet Under
+
+<p> Новый альбом Six Feet Under будет называться "Graveyard Classics", и это будет сборник кавер-версий песен таких групп, как: Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix и Venom.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news New album of Six Feet Under
+
+<p> The new album of Six Feet Under will be titled "Graveyard Classics" and it will be a covers album with the band paying tribute to the bands that influenced them. The album will feature songs from Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix and Venom.</p>
+
+Автор: Nybras
+
+### 25.03.2001 news Udo едет в Россию!!!
+
+<p>Udo Dirkschneider с собственным проектом U.D.O. отправляется в Российский Тур. Во время выступлений будет записан двойной live-CD названный "Live In Russia". Двойник будет содержать 25 песен. Даты концертов:</p>
+<p> April 21 – Ростов, Дворец Спорта Дон.</p>
+<p> April 23 – Волгоград, Дворец Спорта.</p>
+<p> April 25 – Саратов, Ледовый Дворец спорта.</p>
+<p> April 26 – Самара, Дворец Спорта ВВС.</p>
+<p> April 28 - Нижний Новгород, Дворец Спорта "Нагорный".</p>
+<p> April 30 – Москва, Лужники.</p>
+<p> May 01 – Москва, Клуб "Точка".</p>
+<p> May 02 - Санкт-Петербург, Дворец Спорта "Юбилейный".</p>
+<p></p>
+<p> Кроме того, Удо уже записал песню "Штиль" с "Арией", которая должна войти на их новый полноформатник.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 25.03.2001 news Udo Dirkschneider on a Russian tour....
+
+<p>U.D.O., featuring former ACCEPT frontman Udo Dirkschneider, will soon be embarking on a Russian tour, where they will be recording a double-live-CD entitled Live In Russia, tentatively scheduled to be issued on September 10th. The CD is expected to contain 25 songs, and its release will coincide with the release of a live video recorded on the same tour.</p>
+<p></p>
+<p> U.D.O.’s Russian dates are as follows:</p>
+<p></p>
+<p> April 21 – Rostov, RUS @ Don Sport Palace</p>
+<p></p>
+<p> April 23 – Volgograd, RUS @ Sport Palace</p>
+<p></p>
+<p> April 25 – Saratov, RUS @ Sport Palace Ledovi</p>
+<p></p>
+<p> April 26 – Samara, RUS @ Sport Palace Air Force</p>
+<p></p>
+<p> April 28 - Nizhni Novgorod, RUS @ Sport Palace Nagorny</p>
+<p></p>
+<p> April 30 – Moscow, RUS @ Sport Palace Luzhniki</p>
+<p></p>
+<p> May 01 – Moscow, RUS @ Tochka Club</p>
+<p></p>
+<p> May 02 - St. Petersburg, RUS @ Sport Palace Jubilee</p>
+<p></p>
+<p> In other Udo Dirkschneider news, Udo recently recorded a song with the Russian metal band ARIA, entitled "Shtill", to be included on the latter group's forthcoming CD.</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 30.03.2001 news All Star Project...
+
+<p>Гитарист "VANIZE" Rolf Munkes для своего второго сольника собрал супер-звездную команду: клавиши - Don Airey ("RAINBOW"), вокал - Lance King ("BALANCE OF POWER") и Mark Boals ("ex-YNGWIE MALMSTEEN"). Микшировать альбом в Cologne’s ROXX Studios будет барабанщик "ACCEPT" - Stefan Kaufmann.</p>
+
+Автор: Yermola
+
+### 30.03.2001 news solo effort from VANIZE guitarist Rolf Munkes...
+
+<p>The upcoming second solo effort from VANIZE guitarist Rolf Munkes will feature a guest appearance from former RAINBOW keyboardist Don Airey. The as-yet-untitled album will also include an appearance by BALANCE OF POWER singer Lance King and ex-YNGWIE MALMSTEEN vocalist Mark Boals. Former ACCEPT drummer Stefan Kaufmann will be mixing the CD at Cologne’s ROXX Studios during June.</p>
+
+Автор: Yermola
+
+### 12.12.2004 news Ре-Юнион ACCEPT
+
+<P><STRONG>ACCEPT</STRONG> соберутся в классическом составе <STRONG>Udo-Wolf</STRONG> и дадут несколько концертов в 2005 году. Первым из них станет шоу на <STRONG>Rock Hard Fest</STRONG> 13-15 мая, затем группа выступит на <STRONG>Wacken Open</STRONG>, также планируется выступление на <STRONG>Sweden Rock</STRONG>. Кроме этого, <STRONG>ACCEPT</STRONG> дадут ещё несколько концертов на других фестах. Тур не запланирован. После это <STRONG>Udo</STRONG> опять вернётся к работе с <STRONG>U.D.O.</STRONG></P>
+<P>Официальным лэйблом воссоединения стал <STRONG>Nuclear Blast</STRONG>, он будет распространять рекламную продукцию и мерчандайз.</P>
+Автор: Vit Belov
+
+### 18.03.2005 news Wolf Hoffmann опровергает слухи
+
+<P><STRONG>Wolf Hoffmann</STRONG> опубликовал официальное заявление, в котором сообщил, что <STRONG>ACCEPT</STRONG> реформируются только на ближайшие концерты, в течение лета. После этого группа перестанет существовать. Никаких дальнейших туров и записей не предвидется.</P>
+Автор: Vit Belov
+
+### 04.05.2005 news Wolf Hoffmann и его жена рассказывают о России
+
+<P>1 мая <STRONG>Gaby Hoffmann</STRONG>, жена <STRONG>Wolf Hoffmann</STRONG>, и по совместительству менеджер <STRONG>ACCEPT</STRONG> опубликовала свои впечатления от поездки в Россию:</P>
+<P>"<EM>Было очень очень&nbsp;насыщенное время в России. Множество интервью, ужинов и переездов, так что не было времени писать о своих впечатлениях. Тем более интернет и сотовая связь не очень хорошо работают в России. Но русские фэны просто великолепны, нас встречали, как королей. Вот это начало!</EM></P>
+<P><EM>Россия очень изменилась, в это трудно поверить. Москва сейчас похожа на другие крупные города. Так много машин, что из-за пробок невозможно добраться из одного пункта в другой. Теперь там торговые ряды и бутики, как в Париже или Берлине. Конечно, есть множество различий от Западного мира, но они, как гигант, который медленно просыпается и невозможно представить, что с ним будет через 10-20 лет.&nbsp;</EM></P>
+<P><EM>Есть одна интересная история. Во время нашего первого ужина в Санкт-Петербурге Udo подарил мне большой букет красных роз. Вы можете себе это представить? Я не могла поверить, что он мог сделать такое, но группа подтвердила, что он специально остановил лимузин, чтобы купить цветы для МЕНЯ. Оказалось, что у нас с Wolf годовщина свадьбы. После этого меня и Wolf с букетами показали по Российскому национальному ТВ. В Минске, куда мы приехали нас тоже встречали с камерой и цветами. Я не могла поверить, что нас так встречают в России.</EM></P>
+<P><EM>Теперь&nbsp;мы возвращаемся в Америку. Как хорошо снова оказаться дома</EM>".&nbsp;</P>
+Автор: Vit Belov
+
+### 02.12.2005 news Wolf Hoffmann рассказывает о своих планах
+
+<P>Гитарист <STRONG>ACCEPT Wolf Hoffmann</STRONG> дал интервью греческому веб-зину <A href="http://www.metalzone.gr/">www.metalzone.gr</A>, в котором рассказал о своих ближайших планах. Как выяснилось, <STRONG>Wolf</STRONG> не собирается долго отдыхать после ре-юнион тура <STRONG>ACCEPT</STRONG>. <STRONG>Hoffmann</STRONG> готовит грандиознейшее тур-шоу, основанное на его сольнике "<STRONG>Classical</STRONG>", вышедшем в 1997 году. На сцене будет задействован оркестр, и зрители увидят множество визуальных эффектов. </P>
+<P>Кроме этого, <STRONG>Hoffmann </STRONG>поучаствует в концертах <STRONG>Sebastian Bach</STRONG> (ex-<STRONG>SKID ROW</STRONG>) в Штатах и проедется с туром по Германии в компании <STRONG>Uli Roth</STRONG> и <STRONG>Michael Schenker</STRONG>.&nbsp;Позже возможны концерты по всему миру с этим all-star проектом.&nbsp;</P>
+Автор: Vit Belov
+
+### 25.03.2009 news Басист ACCEPT ударился в христианство
+
+<P><STRONG>Peter Baltes, </STRONG>известный по работе с <STRONG>ACCEPT</STRONG>, организовал новую христианскую hard-rock группу <STRONG>4 INCH NAILS</STRONG>. Первую песню <STRONG>"How Do You Write A Song?" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/4inchnails">http://www.myspace.com/4inchnails</A></P>
+Автор: Vit Belov
+
+### 17.05.2009 news ACCEPT запишут альбом!
+
+<P>Вновь вернулись в строй легендарные heavy-metal'исты<STRONG> ACCEPT</STRONG>, которые "забивают" концертные даты и собираются писать новый альбом. К сожалению, на этот раз отказался принять участие в возвращении вокалист<STRONG> Udo Dirkschneider</STRONG>. На его место взяли певца американской группы <STRONG>TT QUICK Mark Tornillo. </STRONG>Вот настоящий состав <STRONG>ACCEP</STRONG>T:</P>
+<P><STRONG>Wolf Hoffmann</STRONG>: Guitar<BR><B>Peter Baltes</B>: Bass<BR><B>Herman Frank</B>: Guitar<BR><B>Mark Tornillo</B>: Vocals<BR><B>Stefan Schwarzmann</B>: Drums</P>
+Автор: Vit Belov
+
+### 24.07.2009 news Andy Sneap станет продюсером нового ACCEPT?
+
+<P>Знаменитый английский продюсер <STRONG>Andy Sneap</STRONG> (<B>MEGADETH</B>, <B>EXODUS</B>, <B>ARCH ENEMY</B>, <B>NEVERMORE</B>) сообщил, что вылетает в США на переговоры с гитаристом <STRONG>Wolf Hoffmann</STRONG>, который хочет предложить ему работу над новым альбомом<STRONG> ACCEPT</STRONG>. Напомним, эта пластинка будет записана с новым вокалистом <STRONG>Mark Tornillo</STRONG> (ex-<B>TT QUICK</B>).</P>
+Автор: Vit Belov
+
+### 10.11.2009 news ACCEPT работают в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=375 alt="Wolf Hoffmann и Andy Sneap" hspace=0 src="/images/news_rus/2009.11/15496.jpg" width=250 align=left border=5>Воссоединившиеся с новым вокалистом <STRONG>ACCEPT</STRONG> продолжают запись "ре-юнион" альбома в Англии вместе со знаменитым продюсером<STRONG> Andy Sneap</STRONG>. Уже записаны барабаны, а релиз планируется на первую половину следующего года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В своём интервью<STRONG> Powerline A.D.</STRONG> движущая сила этого проекта гитарист <STRONG>Wolf Hoffmann</STRONG> ещё раз рассказал о том, как они нашли нового вокалиста <STRONG>Mark Tornillo, </STRONG>который был известен по работе с группой <STRONG>TT QUICK: </STRONG>"<EM>После того, как Udo отказался принять участие в этом проекте, мы "джэмовали" с басистом Peter Baltes рядом с его домом в Пенсильвании. Так как репетировать лучше с певцом, мы пригласили местного музыканта, и им оказался Mark Tornillo, который нам очень понравился</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Wolf</STRONG> также отметил, что понимает решение классического певца<STRONG> ACCEPT Udo Dirkschneider</STRONG> не принимать участие в нынешнем&nbsp;варианте группы: "<EM>Мы общались с его менеджментом, а затем сам Udo на своём официальном сайте сообщил, что не хочет покидать U.D.O. ради ACCEPT</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 19.03.2010 news ACCEPT едут к нам!!!
+
+<P>14 мая в Москве в клубе<STRONG> Б1 Максимум</STRONG> и 15 мая в Питере в&nbsp;<STRONG>ДК&nbsp;Ленсовета</STRONG>&nbsp;состоятся специальное шоу <STRONG>ACCEPT</STRONG>. Группа выступит со своим новым вокалистом <STRONG>Mark Tornillo</STRONG> в преддверии выхода нового альбома. </P>
+<P>Группа недавно закончила запись новой пластинки "<STRONG>Blood Of Nations</STRONG>" вместе с продюсером <STRONG>Andy Sneap</STRONG>. </P>
+Автор: Vit Belov
+
+### 07.04.2010 news ACCEPT на Nuclear Blast!!!
+
+<P><STRONG>ACCEPT </STRONG>подписали контракт с <STRONG>Nuclear Blast</STRONG> на выпуск 15-го альбома <STRONG>"Blood Of Nations". </STRONG>Эта пластинка станет дебютом для нового вокалиста группы <STRONG>Mark Tornillo</STRONG> (ex-<B>TT QUICK</B>). Дата релиза пока не сообщается.</P>
+Автор: Vit Belov
+
+### 24.04.2010 news Новая песня ACCEPT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трэк <STRONG>ACCEPT</STRONG> <STRONG>"The Abyss" </STRONG>можно послушать ниже. Песня войдёт на будущий альбом реформированной легенды <STRONG>"Blood Of Nations"</STRONG>, который выйдет в конце лета на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=25 width=320><PARAM NAME="movie" VALUE="http://www.youtube.com/v/k5yp19t4VYs&hl=en&fs=1&&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/k5yp19t4VYs&#038;hl=en&#038;fs=1&#038;&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="320" height="25"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.05.2010 news Видео ACCEPT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип<STRONG> ACCEPT</STRONG> на песню <STRONG>"Teutonic Terror" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><FONT face=Verdana color=#999999 size=1><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=104860537">ACCEPT - TEUTONIC TERROR</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=104860537,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=104860537,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT><BR><A href="http://profile.myspace.com/index.cfm?fuseaction=user.viewprofile&friendid=177727857">Accept</A> | <A href="http://music.myspace.com/index.cfm?fuseaction=videos">MySpace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.06.2010 news Дата релиза ACCEPT
+
+<P><STRONG>Nuclear Blast</STRONG> назначили точную дату релиза нового альбома <STRONG>ACCEPT "Blood Of The Nations"</STRONG>. Пластинка выйдет 20 августа.</P>
+<P>Этот альбом станет дебютом для нового вокалиста <STRONG>Mark Tornillo</STRONG> и первой студийной работой немцев за 14 лет.</P>
+Автор: Vit Belov
+
+### 23.09.2010 news ACCEPT проползли
+
+<P>Новый альбом<STRONG> ACCEPT</STRONG> <STRONG>"Blood Of The Nations" </STRONG>занял 187-ое место из 200 в чартах <STRONG>Billboard</STRONG> на этой неделе. Было продано 2900 альбомов.</P>
+<P>Возможно, такой слабый старт пластинки связан с традиционно поздним релизом от <STRONG>Nuclear Blast</STRONG> в США, ведь в Европе этот альбом продаётся уже несколько недель. В том числе и в России на <STRONG>Irond</STRONG>.</P>
+Автор: Vit Belov
+
+### 01.10.2010 reviews Новый великий альбом в heavy-metal
+
+<P>Немецкие классики heavy-metal ACCEPT объявили о своём возвращении в 2009 году. Большим сюрпризом стали две вещи. Во-первых, группа совершила ре-юнион без основного вокалиста Udo Dirkschneider, который отказался в пользу своей сольной группы UDO. Во-вторых, рекрутировав нового певца Mark Tornillo (ex-TT QUICK), ACCEPT заявили, что готовятся к записи нового студийного альбома.</P>
+<P>Попытка вернуться уже предпринималась немцами в 2005 году, когда был совершён масштабный тур вместе с Udo, но тогда что-то не заладилось. Теперь понятно, что второй «основной» в ACCEPT Wolf Hoffmann приходил к этому воссоединению не с пустыми руками. Начав заново репетировать в 2009 году, Wolf и его коллега басист Peter Baltes, познакомились с американцем Mark Tornillo, который показался им подходящей кандидатурой. Состав доукомплектовали двумя другими важными для истории ACCEPT музыкантами барабанщиком Stefan Schwarzmann и гитаристом Herman Frank. Предъявив нового певца в кратком «разогревочном» туре, ACCEPT подготовили и новый студийный альбом “Blood of the Nations”. </P>
+<P>Не будем говорить о том, что многие поклонники группы со стажем отнеслись к этому событию настороженно. ACCEPT уже выпускали альбомы без Udo, и они не пользовались особой популярностью. Уже с первого аккорда пластинки становится ясно, что здесь мы имеем дело совсем с другим случаем. Поработав в различных жанрах и направлениях, музыканты ACCEPT решили вернуться к корням и записать альбом в том стиле, который принёс им бешеную популярность и статус легенд. Кроме этого, у основных композиторов Wolf Hoffmann и Peter Baltes накопилось достаточное количество «хитового» материала. И здесь уже не важно, что голос Mark Tornillo не слишком похож на Udo, он достаточно «сырой» и этого достаточно. “Blood of the Nations” доверху наполнен хитами. Тяжеленные риффы, записью занимался Andy Sneap, великолепные фирменные соло, подпевки. Самое удивительное, что на пластинке нет ни одной проходной вещи. Обычно heavy-metal композиторы считают, что достаточно задать ритм и грамотно прописать гитару, чтобы наполнить вторую часть альбома. Здесь этого нет, мне даже показалась, что пресловутая вторая половина более интересна. Ну, и конечно баллада. С узнаваемой гитарой Wolf Hoffmann она чётко делит альбом пополам.</P>
+<P>Новый великий альбом в heavy-metal, ясно показывающий, что даже в таком застывшем стиле всё ещё возможно создавать шедевры. Достаточно просто сочинить хорошие, очень хорошие и прекрасные песни.</P>
+Автор: Vit Belov
+
+### 19.01.2011 news ACCEPT возвращаются к нам
+
+<P><STRONG><IMG height=241 alt="" hspace=0 src="/images/news_rus/2011.01/18255.jpg" width=300 align=right border=0>ACCEPT</STRONG> анонсировали тур по России и Беларуси. Авторы лучшего heavy-metal альбома прошлого года посетят Москву, Минск и три города на Дальнем Востоке нашей страны:</P>
+<P>07.03&nbsp;- Минск - Palace of Sports&nbsp;<BR>09.03 - Москва - Milk&nbsp;<BR>11.03 - Владивосток - Golden Fish&nbsp;<BR>12.03 - Уссурийск - Extrim&nbsp;<BR>13.03 -&nbsp;Находка - Diamond Concert Hall </P>
+Автор: Vit Belov
+
+### 02.06.2011 news Новый видео-клип ACCEPT
+
+<P>Видео на песню <STRONG>"Pandemic"</STRONG>&nbsp;с послежнего альбома <STRONG>ACCEPT</STRONG> <STRONG>"Blood Of The Nations" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowScriptAccess" VALUE="always"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=107919468,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=107919468,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent" allowScriptAccess="always"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.06.2011 news U.D.O.: &quot;Ценой ре-юниона ACCEPT было имя&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=464 alt="" hspace=0 src="/images/news_rus/2011.06/19720.jpg" width=400 align=right border=0>Вокалист <STRONG>Udo Dirkschneider (ex-ACCEPT)</STRONG> подготовил нашему вниманию тринадцатый альбом своей сольной группы<STRONG> U.D.O. "Rev-Raptor"</STRONG>. С этой пластинкой музыкант попытается выйти из тени возродившихся с новым певцом<STRONG> ACCEPT</STRONG>, выпустивших шикарный альбом "<STRONG>Blood Of The Nations</STRONG>" в прошлом году на <STRONG>Nuclear Blast</STRONG>. С новой работой<STRONG> Udo</STRONG> обещает нам отполированную версию <STRONG>ACCEPT</STRONG>, совмещающую в себе всё лучшее, что было в творчестве "альма матер" вокалиста. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Да, продюсером вновь выступил гитарист Stefan Kaufmann, и с новой пластинкой мы попытались остаться на наших классических позициях, но совместить это с более современным звучанием</EM>," - рассказывает <STRONG>Udo</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Не оставил без внимания <STRONG>Dirkschneider</STRONG> и новый альбом<STRONG> ACCEPT "Blood Of The Nation"</STRONG>: "<EM>Конечно я слышал этот альбом. Он хорош. Невозможно записать плохой альбом, если ты готовил материал для него 15 лет. Что вы ожидали (смеётся)? И новый певец хорош. Я видел, они проехались с туром по Европе. Не слышал ничего про Америку. У меня-то с этим проблем нет. Посмотрим, что они сделают дальше, посмотрим, как долго это продлится. Я не знаю, мы больше не общаемся, но я могу пожелать им удачи</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В другом интервью<STRONG> Udo</STRONG> сказал, что не отказывался от предложения по ре-юниону <STRONG>ACCEPT</STRONG>, как заявлял гитарист <STRONG>Wolf Hoffmann</STRONG>. "<EM>Я ему сказал, если я присоединюсь к ACCEPT, я вынужден буду закрыть U.D.O. Что если наше воссоединение не будет долгим? Могу я потом продолжить без тебя под вывеской ACCEPT?</EM>"</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Во время промоции нового альбома <STRONG>U.D.O. "Rev-Raptor"</STRONG>, вышедшего на<STRONG> AFM</STRONG>, певец часто поминает <STRONG>ACCEPT</STRONG> разными словами. Музыканты этой группы ответили буквально следующее: "<EM>Мы не будем отвечать на любые заявления&nbsp;Udo. Пора прекратить эти "бла-бла-бла</EM>"".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Между тем, читатели нашего сайта проголосовали за <STRONG>ACCEPT</STRONG> в только что завершившемя опросе. 52 процента ответивших высказались за <STRONG>ACCEPT</STRONG>, 37 процентов за<STRONG> U.D.O.</STRONG> и оставшиеся 11 процентов не поняли вопроса.</FONT></P>
+Автор: Vit Belov
+
+### 05.07.2011 news Фотографии с фестиваля &quot;Sauna Open Air &#39;2011&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/19855.jpg" width=300 height=400>С 9 по 11 июня в городе&nbsp;Тампере&nbsp;(Финляндия), прошёл очередной фестиваль <STRONG>"Sauna Open Air"</STRONG> (<A href="http://www.sauna-open-air.fi/">www.sauna-open-air.fi</A>), на котором выступили такие звёзды сталилитейного жанра, как<STRONG> OZZY OSBOURNE</STRONG>, <STRONG>JUDAS PRIEST</STRONG>, <STRONG>HELLOWEEN</STRONG>, <STRONG>DORO</STRONG>, <STRONG>SAXON</STRONG>, <STRONG>ACCEPT</STRONG>, а так же, несколько групп рангом пониже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Посмотреть фото-репортажи с&nbsp;выступлений&nbsp;этих замечательных ансамблей&nbsp;можно в разделе нашего сайта <STRONG>Photos</STRONG>, по адресу: </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="/ru/galleries">http://musica.mustdie.ru/ru/galleries</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор всех фотографий: <STRONG>Анна Ходакова</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 12.07.2011 news ACCEPT снимут DVD
+
+<P><STRONG>ACCEPT</STRONG> запишут своё выступление на фестивале <STRONG>Bang Your Head!!! </STRONG>для релиза на DVD. Событие состоится 15-16 июля. На этом выступлении в состав вернётся гитарист <STRONG>Herman Frank, </STRONG>который сломал ребро, проткнув себе лёгкое, во время выступления 6 мая в американском Сан Антонио.</P>
+<P><STRONG>ACCEPT </STRONG>выступили на фестивале<STRONG> Sauna Open Air</STRONG> в Финляндии в этом году. Фото можно посмотреть здесь: <A href="/ru/galleries/1/720/">http://musica.mustdie.ru/ru/galleries/1/720/</A></P>
+<P><center><IMG height=266 src="/images/news_rus/2011.07/20081.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 03.10.2011 news ACCEPT начали работу
+
+<P>Дав 180 концертов в поддержку последнего альбома "<STRONG>Blood Of The Nations</STRONG>", <STRONG>ACCEPT</STRONG> начали работу над новым альбомом. Новая пластинка будет издана весной следующего года и вновь будет записана с продюсером<STRONG> Andy Sneap (MEGADETH, EXODU, NEVERMORE)</STRONG>. </P>
+<P><center><IMG height=300 src="/images/news_rus/2011.10/21341.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 18.11.2011 news ACCEPT выпустят Сталинград
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ACCEPT </STRONG>получил название "<STRONG>Stalingrad</STRONG>". Работа над пластинкой пройдёт вместе с <STRONG>Andy Sneap</STRONG>, который был автором звука на предыдущем хите немцев "<STRONG>Blood Of The Nations</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дата релиза назначена на апрель 2011 года на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.11/22067.jpg" width=450 height=300> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.01.2012 news Дата релиза ACCEPT
+
+<P>Новый альбом <STRONG>ACCEPT "Stalingrad"</STRONG> выйдет 6 апреля на <STRONG>Nuclear Blast</STRONG>. Записью CD вновь занимался <STRONG>Andy Sneap (MEGADETH, EXODUS)</STRONG>. </P>
+<P><center><IMG height=317 src="/images/news_rus/2012.01/22722.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 16.02.2012 news Обложка нового ACCEPT
+
+<P><IMG height=428 alt="" hspace=0 src="/images/news_rus/2012.02/23065.jpg" width=475 align=right border=0>6 апреля на <STRONG>Nuclear Blast</STRONG> выйдет новый альбом <STRONG>ACCEPT "Stalingrad</STRONG>". Трек-лист:</P>
+<P>01. <STRONG>Hung, Drawn And Quartered</STRONG><BR>02. <STRONG>Stalingrad<BR></STRONG>03. <STRONG>Hellfire</STRONG><BR>04. <STRONG>Flash To Bang Time</STRONG><BR>05. <STRONG>Shadow Soldiers</STRONG><BR>06. <STRONG>Revolution<BR></STRONG>07. <STRONG>Against The World</STRONG><BR>08. <STRONG>Twist Of Fate</STRONG><BR>09. <STRONG>The Quick And The Dead</STRONG><BR>10. <STRONG>Never Forget</STRONG> (bonus track)<BR>11. <STRONG>The Galley</STRONG></P>
+<P>DVD contents:</P>
+<P>Official Bootleg</P>
+<P>Live at Bang Your Head!!! 2011</P>
+<P>01. <STRONG>Princess Of The Dawn<BR></STRONG>02. <STRONG>Pandemic</STRONG><BR>03. <STRONG>No Shelter</STRONG></P>
+<P>Live at Masters Of Rock 2010</P>
+<P>04. <STRONG>Teutonic Terror</STRONG><BR>05. <STRONG>The Abyss</STRONG></P>
+<P>Video clips</P>
+<P>06. <STRONG>Teutonic Terror</STRONG><BR>07. <STRONG>Pandemic</STRONG></P>
+Автор: Vit Belov
+
+### 29.02.2012 news Новая песня ACCEPT
+
+<P>6 апреля на <STRONG>Nuclear Blast</STRONG> выходит новый альбом<STRONG> ACCEPT "Stalingrad"</STRONG>. Заглавную песню с самой ожидаемой heavy-metal пластинки этого года можно послушать ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/i-QQYxryAqM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 20.03.2012 news Настоящая обложка &#39;Stalingrad&#39;
+
+<P>Долгожданный альбом <STRONG>ACCEPT "Stalingrad"</STRONG> выходит 6 апреля на<STRONG> Nuclear Blast</STRONG>. Настоящую обложку этого релиза можно посмотреть ниже.</P>
+<P><center><IMG height=475 src="/images/news_rus/2012.03/23296.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 19.04.2012 reviews Важный альбом в дискографии ACCEPT
+
+<P>Признаться, давненько я не ожидал с таким нетерпением какого-либо релиза. Альбом ACCEPT 2010-го года “Blood Of The Nations” настолько, что называется, выстрелил и стал безоговорочным лидером в номинации heavy-metal не только в 2010-ом году, но и даже в 2011-ом, что не ждать последователя было просто не возможно. Увеличивал ажиотаж по поводу выхода “Stalingrad” тот факт, что мы имели дело не с сенсационными дебютантами, а с проверенными временем динозаврами металической музыки. Подобные феномены, вообще, в современной тяжёлой музыке встречаются редко, всё-таки старые группы мы любим как экспонаты в музее, но Wolf Hofmann удалось привлечь внимание к ACCEPT исключительно свежим материалом.</P>
+<P>В этой рецензии мы уже не будем вспоминать о новом вокалисте коллектива Mark Tornillo. Прошлый альбом ACCEPT уже доказал, что дело вовсе не в вокалисте, а в качественнейшей музыке, при этом сам Mark ничего не портит, а на подобных альбомах от вокалиста только это и требуется. Мы не будем вспоминать о противостоянии с группой бывшего фронтмена U.D.O., это совершенно не актуально, так как материал, который представляет эта группа, по сравнению с новыми ACCEPT, как Жигули рядом с Мерседесом. Мы постараемся оценить, удалось ли Wolf Hoffmann, как композитору, сохранить заданный уровень и сочинить великолепный альбом не за 15 лет, а за 2 года. Конечно же, великолепным “Stalingrad” не назовёшь, но очень хорошим его величать можно смело. В этот раз ACCEPT немного смягчили свой саунд, что приблизило звучание нового материала к классическим работам коллектива. Если “Blood of The Nations” был эталоном современного металлического звучания, “Stalingrad” демонстрирует как звучала тяжёлая музыка 20-25 лет назад. При этом демонстрирует он это на самом высочайшем технологическом уровне доступном лишь в XXI веке. Хороших песен на альбоме хватает, есть и боевики-шлягеры, есть эпические многоярусные композиции, среди которых заглавная вещь с использованием в проигрыше нашего гимна. В этот раз альбом длится 50 минут вместо 70, и это оправдано качеством представленного материала.</P>
+<P>Хороший альбом ACCEPT, который действительно подтверждает высокий статус группы на современной сцене. Прошлую пластинку люди могли воспринимать как одноразовое явление, но в этот раз музыканты подтвердили, что вернулись полноценно, и им есть что сказать и показать своему слушателю.</P>
+Автор: Vit Belov
+
+### 11.10.2012 news David Reece присоединился к POWERWORLD
+
+<P>Новым постоянным участником power-prog команды <STRONG>POWERWORLD</STRONG> стал бывший&nbsp;вокалист<STRONG> ACCEPT David Reece</STRONG>. Он заменил ушедшего из жизни год назад <STRONG>Andrew "Mac" McDermott. </STRONG></P>
+<P><FONT color=#ffffff>Новый альбом коллектива выйдет в начале 2013 года. 
+<CENTER><IMG border=0 src="/images/news_rus/2012.10/24922.jpg" width=250 height=375></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.04.2014 news ACCEPT: &quot;Blind Rage&quot; в июле
+
+<P>Немецкая группа <STRONG>ACCEPT</STRONG> анонсировала выход нового альбома. Диск получил название <STRONG>"Blind Rage"</STRONG>.</P>
+<P><STRONG>"Blind Rage"</STRONG>, также, как и два его предшественника был спродюсирован, сведён и прошёл мастеринг под чутким руководством Энди Снипа (<STRONG>Andy Sneap</STRONG>). Диск выйдет 18 июля. Обложку для альбома создал <STRONG>Daniel Goldsworthy</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26831.jpg" width=400 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 07.04.2014 news Очки от ACCEPT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкий ансамбль <STRONG>ACCEPT</STRONG> выпустил серию солнцезащитных очков под своей маркой. По словам гитарист и лидера группы, Вольфа Хоффманна (<STRONG>Wolf Hoffmann</STRONG>), <EM>"один раз надев эти очки, вам больше не захочется пользоваться другими."</EM> </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Для покупки также доступна серия очков с выбором диоптрий.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказ можно сделать по ссылке: <A href="http://helbrecht.com/Accept_1">http://helbrecht.com/Accept_1</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26857.jpg" width=500 height=383> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 17.05.2014 news ACCEPT: дата выхода альбома &quot;Blind Rage&quot; изменена
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>ACCEPT</STRONG> перенесла дату выхода своего нового альбома <STRONG>"Blind Rage"</STRONG> c 18 июля на 15 августа 2014 года. О причинах не сообщается. 
+<CENTER><IMG border=0 src="/images/news_rus/2014.05/26994.jpg" width=660 height=413></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.01.2015 news ACCEPT покинули гитарист и барабанщик
+
+<P>Гитарист <STRONG>Herman Frank</STRONG> и барабанщик <STRONG>Stefan Schwarzmann</STRONG> объявили о своем выходе из состава <STRONG>ACCEPT</STRONG>, чтобы сосредоточиться на своем собственном проекте. В настоящее время музыканты&nbsp;участвуют в совместой банде <STRONG>PANZER</STRONG>,&nbsp;в состав которой также входит <STRONG>Schmier</STRONG> (вокалист и басист группы <STRONG>DESTRUCTION</STRONG>),&nbsp;выпустив&nbsp;28 ноября 2014 года свой дебютный альбомом <STRONG>"Send Them All To Hell" </STRONG>на <STRONG>Nuclear Blast</STRONG>. Как отмечается в официальном заявлении коллектива, <STRONG>Herman </STRONG>и <STRONG>Stefan </STRONG>расстались с <STRONG>ACCEPT</STRONG> друзьями.</P>
+<P>Замена, покинувшим группу участникам, пока не названа.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.01/27533.jpg" width=600 height=394> 
+<P></P></CENTER>
+Автор: Tess
+
+### 13.04.2015 news ACCEPT: обнародовали имена новых музыкантов
+
+<P>Немецкая группа&nbsp;<STRONG>ACCEPT</STRONG> объявила имена новых участников. Ими стали немецкий гитарист&nbsp;<STRONG>&nbsp;Uwe Lulis</STRONG>, известный по своей работе в группах <STRONG>GRAVE DIGGER</STRONG> и <STRONG>REBELLION</STRONG>&nbsp;и американский барабанщик&nbsp;<STRONG>Christopher Williams</STRONG>, засветившийся в группе Кид Рока (<STRONG>Kid Rock</STRONG>).</P>
+<P>Предыдущие участники - гитарист <STRONG>Herman Frank</STRONG> и барабанщик <STRONG>Stefan Schwarzmann</STRONG> объявили о своем выходе из состава <STRONG>ACCEPT</STRONG> в самом конце декабря прошлого года, чтобы сосредоточиться на своем собственном проекте под названием <STRONG>PANZER</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.04/27897.jpg" width=660 height=480>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 31.08.2015 news U.D.O. прощается с песнями ACCEPT
+
+<P>На фестивале<STRONG> Wacken</STRONG> певец <STRONG>Udo Dirkschneider (U.D.O., ex-ACCEPT)</STRONG> сообщил журналистом, что перестаёт исполнять классику<STRONG> ACCEPT</STRONG> на своих живых выступлениях. Чтобы окончательно проститься с хитами-нетленками музыкант отправится в тур под брендом<STRONG> DIRKSCHNEIDER</STRONG>, с которым будет петь только ACCEPT своего периода.</P>
+<P>Уже объявлены даты в феврале в Скандинавии, но я уверен тур продлится до летних фестивалей и обязательно захватит нашу страну. А уж потом... Потом будет только U.D.O.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.08/28257.jpg" width=450 height=301></P>
+Автор: Vit Belov
+
+### 22.10.2015 news Группа U.D.O. заканчивает исполнение &quot;золотых&quot; хитов ACCEPT?
+
+<P><STRONG>Udo Dirkschneider</STRONG>&nbsp;- вокалист "золотого" состава легендарной группы <STRONG>ACCEPT</STRONG> - сейчас находится в туре по России в поддержку нового альбома своей группы <STRONG>U.D.O.</STRONG> Отличает тур то обстоятельство, что недавно <STRONG>Удо</STRONG> заявил о своем намерении "закрыть главу ACCEPT". Это означает, что в рамках актуального тура группа <STRONG>U.D.O.</STRONG> может в последний раз исполнить нетленную классику <STRONG>ACCEPT</STRONG>, такую как<STRONG> "Balls To The Wall"</STRONG>, <STRONG>"Fast As A Shark"</STRONG> и др.</P>
+<P><EM>"Мне нравится петь эти песни на концертах,</EM> - заявил <STRONG>Удо Диркшнайдер</STRONG>. - <EM>Они по прежнему являются важной частью моего творчества и хорошо подходят моему голосу. Но в какой-то момент жизни приходит время закрыть главу. Вокруг ACCEPT было столько разговоров и спекуляций, что я хочу сделать своё последнее решительное музыкальное заявление...".</EM></P>
+<P>Московский концерт <STRONG>U.D.O.</STRONG> состоится в субботу 24 октября в клубе "YotaSpace".</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.10/28432.jpg" width=660 height=399> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 22.04.2016 news Wolf Hoffmann, гитарист ACCEPT, выпускает свой второй сольный альбом
+
+<P><STRONG>Wolf Hoffmann</STRONG>, гитарист <STRONG>ACCEPT</STRONG>, выпускает свой второй сольный альбом с переработкой классической музыки. Диск получил название <STRONG>"Headbangers Symphony"</STRONG> и выйдет 1 июля 2016 года на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Предыдущий сольный альбом гитариста под названием <STRONG>"Classical"</STRONG> вышел в сентябре 1997 года.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Scherzo</STRONG> (L. v. Beethoven) | 02. <STRONG>Night On Bald Mountain</STRONG> (M. Mussorgsky) | 03. <STRONG>Je Crois Entendre Encore</STRONG> (G. Bizet) | 04.<STRONG> Double Cello Concerto in G Minor</STRONG> (A. Vivaldi) | 05. <STRONG>Adagio</STRONG> (T. Albinoni) | 06. <STRONG>Symphony No. 40</STRONG> (W. A. Mozart) | 07. <STRONG>Swan Lake</STRONG> (P. Tchaikovsky) | 08. <STRONG>Madame Butterfly</STRONG> (G. Puccini) | 09. <STRONG>Pathetique</STRONG> (L. v. Beethoven) | 10. <STRONG>Meditation</STRONG> (J. Massenet) | 11. <STRONG>Air On The G String</STRONG> (J. S. Bach)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.04/29158.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 31.05.2016 news ACCEPT будут разогревать SABATON
+
+<p>Шведы <strong>SABATON</strong> назначили первые даты европейского тура в поддержку нового альбома "<strong>The Last Stand</strong>", который начнётся в январе. Интересно, что поддерживать группу будут <strong>ACCEPT</strong>, которые, хоть и заявлены в статусе 'special guest', всё-таки будут открывать шоу.</p><p>"The Last Stand" заявлен к выходу 19 августа на <strong>Nuclear Blast</strong>. Работа вновь была записана с продюсером<strong> Peter Tagtgren</strong> в студии Abyss, мастетринг сделал<strong> Jonas Kjellgren</strong> - эти же люди работали над двумя предыдущими альбомами шведов "<strong>Heroes</strong>" и "<strong>Carolus Rex</strong>".</p><p><center><img width="451" height="640" src="/images/news_rus/2016.05/29222.jpg" border="0"><p></p><p><center><img width="450" height="300" src="/images/news_rus/2016.05/29223.jpg" border="0"><p></p><p>&nbsp;</p><p>&nbsp;</p></center></center>
+Автор: Vit Belov
+
+### 31.05.2016 news ACCEPT will support SABATON
+
+<p>The Swedes <strong>SABATON</strong> was assigned the first date of the European tour, which will begin in January, in support of their new album "<strong>The Last Stand</strong>". I wonder what<strong> ACCEPT</strong> will support the group. The German Legend stated in the status of 'special guest', but after all, will open the show.</p><p>"The Last Stand" will be released on August 19 via<strong> Nuclear Blast</strong> records. The work was recorded with producer<strong> Peter Tagtgren</strong> at Abyss Studio, mastering - <strong>Jonas Kjellgren</strong>. Same people worked on the two previous albums of the Swedes -&nbsp;"<strong>Heroes</strong>" and "<strong>Carolus Rex</strong>".</p><p><center><img width="451" height="640" src="/images/news_rus/2016.05/29222.jpg" border="0"><p></p><p><center><img width="450" height="300" src="/images/news_rus/2016.05/29223.jpg" border="0"><p></p><p>&nbsp;</p><p>&nbsp;</p></center></center>
+Автор: Vit Belov
+
+### 08.06.2016 news WOLF HOFFMANN продолжает классику
+
+<p>Второй сольный альбом гитариста<strong>&nbsp;ACCEPT Wolf Hoffmann "Headbangers Symphony"</strong>&nbsp;выходит 1&nbsp;июля<strong> Nuclear Blast</strong>.На новом диске музыкант продолжает тему, вышедшего почти 20 лет назад альбома&nbsp;<strong>"Classical"</strong>, на котором он переигрывал классические произведение в рок-метал обработке.&nbsp;Первый трэк с этой пластинки&nbsp;"<strong>Scherzo</strong>" можно послушать ниже.</p><p>Трек-лист:</p><p>Scherzo (L. v. Beethoven)<br>Night On Bald Mountain (M. Mussorgsky)<br>Je Crois Entendre Encore (G. Bizet)<br>Double Cello Concerto in G Minor (A. Vivaldi)<br>Adagio (T. Albinoni)<br>Symphony No. 40 (W. A. Mozart )<br>Swan Lake (P. Tchaikovsky)<br>Madame Butterfly (G. Puccini)<br>Pathetique (L. v. Beethoven)<br>Meditation (J. Massenet)<br>Air On The G String (J. S. Bach)</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/PHlBRrooEH4" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.06.2016 news WOLF HOFFMANN continues with Classic
+
+<p>The second solo album by <strong>ACCEPT</strong> guitarist <strong>Wolf Hoffmann "Headbangers Symphony"</strong> will be released July 1 via <strong>Nuclear Blast</strong>. The musician continues the subject of published nearly 20 years ago of the album "<strong>Classical</strong>" on the new CD. He covered classic in rock-metal genre. The first track from this album "<strong>Scherzo</strong>" can be streamed below.</p><p>Track listing:</p><p>Scherzo (L. v. Beethoven)<br>Night On Bald Mountain (M. Mussorgsky)<br>Je Crois Entendre Encore (G. Bizet)<br>Double Cello Concerto in G Minor (A. Vivaldi)<br>Adagio (T. Albinoni)<br>Symphony No. 40 (W. A. Mozart )<br>Swan Lake (P. Tchaikovsky)<br>Madame Butterfly (G. Puccini)<br>Pathetique (L. v. Beethoven)<br>Meditation (J. Massenet)<br>Air On The G String (J. S. Bach)</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/PHlBRrooEH4" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 30.10.2016 news ACCEPT выпустят концертник в январе
+
+<p>13 января на<strong> Nuclear Blast</strong> выйдет DVD/Blu-ray + 2CD концертный альбом <strong>ACCEPT "Restless & Live"</strong>. На издание войдёт запись выступления немцев в 2015 году на фестивале <strong>Bang Your Head</strong>.</p><p>Ниже можно увидеть отрывок выступления.&nbsp;</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/LJRgCZIe4yE" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 30.10.2016 news ACCEPT - to unleash live Blu-ray&#x2F;DVD+2CD »Restless And Live« on January 13th, 2017
+
+<p>Ever-raging metal institution,<strong> ACCEPT</strong>, are returning with a bang! After three studio albums and several tours around the globe since their reunion in 2010, the time has come for the band to unleash a brand-new live document titled »<strong>Restless And Live</strong>«. This package will include the entire show ACCEPT played at Bang Your Head!!! Festival 2015 on Blu-ray/DVD plus two CDs and be available in stores from January 13th, 2017 (Nuclear Blast).</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/LJRgCZIe4yE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### А кто-нибудь слышал про вторую часть Tribute to Accept?

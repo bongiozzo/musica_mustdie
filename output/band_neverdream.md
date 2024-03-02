@@ -41,6 +41,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2011 news NEVERDREAM испугают нас в следующем году
+
+<P>Новый альбом итальянцев<STRONG> NEVERDREAM</STRONG> получил название "<STRONG>The Circle</STRONG>".&nbsp;Пластинка progressive-gothic metal команды должна выйти в следующем году на немецком лэйбле <STRONG>Twilight</STRONG>. По сообщению музыкантов, они сочинили историю-нуар в жанре триллер про маньяка-убийцу.</P>
+<P><center><IMG height=215 src="/images/news_rus/2011.07/20270.jpg" width=321 border=0></P>
+Автор: Vit Belov
+
+### 01.01.2012 news Новая музыка NEVERDREAM
+
+<P>Итальянский prog-metal коллектив <STRONG>NEVERDREAM</STRONG> выпускает новый альбом "<STRONG>Circles</STRONG>" в этом году. Новую музыку группы можно послушать на <STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/neverdreamprog">http://www.facebook.com/neverdreamprog</A></P>
+<P><center><IMG height=565 src="/images/news_rus/2012.01/22432.jpg" width=400 border=0><A href="http://www.facebook.com/neverdreamprog"><U><FONT color=#0000ff></FONT></U></A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

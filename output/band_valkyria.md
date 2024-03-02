@@ -8,6 +8,9 @@ soft(female vocals) "viking/epic metal" from Sweden
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

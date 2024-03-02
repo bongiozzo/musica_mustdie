@@ -19,6 +19,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.04.2005 news Переиздание альбома SAINTS EVERLASTING REST
+
+<P><STRONG>Wroth Emitter&nbsp;Productions</STRONG> сообщили о переиздании альбома 2001 года <STRONG>SAINTS EVERLASTING&nbsp;REST</STRONG> "<STRONG>The Dusk Of Millennium</STRONG>". Альбом никогда не выходил на компакт-дисках. Дата релиза: 9 апреля 2005 года. Трэк-лист:</P>
+<P><IMG height=241 alt="" hspace=0 src="/images/news_rus/2005.04/8231.jpg" width=240 align=right border=5>1. <STRONG>Intro<BR></STRONG>2. <STRONG>Grief Of Existence</STRONG> <BR>3. <STRONG>Flowery Sky<BR></STRONG>4. <STRONG>Sick Winter<BR></STRONG>5. <STRONG>Frozen Love Is Nonsense<BR></STRONG>6. <STRONG>Milk Is My Paradise<BR></STRONG>7. <STRONG>Caressing Whisper<BR></STRONG>8. <STRONG>Outro</STRONG></P>
+<P>Подробная информация: <A href="http://wroth-emitter.musica.mustdie.ru/ser_dusk_ru.htm">http://wroth-emitter.musica.mustdie.ru/ser_dusk_ru.htm</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Где группа Saints Everlasting Rest?

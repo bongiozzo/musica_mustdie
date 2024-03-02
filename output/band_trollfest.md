@@ -134,6 +134,71 @@ which refers to the crushing of the crusaders — which is something the Trolls 
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.12.2009 news TROLLFEST: Блог о России
+
+<P><STRONG>TROLLFEST</STRONG> выложили в сеть видеоблог о пребывании в Москве, где они выступили на <STRONG>OktoberFest</STRONG>. Если присмотреться, можно увидеть знакомые одухотворённые отечественные лица.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9GrR_62vp18&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/9GrR_62vp18&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.01.2011 news TROLLFEST: новый лейбл и новое концертное агенство
+
+<P>Норвежский ВИА&nbsp;<B itxtvisited="1">TROLLFEST</B> подписал договор о сотрудничестве с лейблом <B itxtvisited="1">NoiseArt Records</B>, а так же, концертным агенством <B itxtvisited="1">Rock The Nation</B>. Новый альбом группы, <B itxtvisited="1">"En Kvest For Den Hellige Gral"</B>, должен выйти 29 апреля.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.01/18201.jpg" width=450 height=300></CENTER>
+Автор: Headcrusher
+
+### 09.02.2011 news TROLLFEST: трек-лист и обложка альбома &quot;En Kvest For Den Hellige Gral&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18494.jpg" width=400 height=400>Новый альбом норвежцев <B itxtHarvested="1" itxtNodeId="404">TROLLFEST</B>,&nbsp;названный&nbsp;<B itxtHarvested="1" itxtNodeId="403">"En Kvest For Den Hellige Gral"</B>, выйдет 29 апреля на <B itxtHarvested="1" itxtNodeId="402">NoiseArt Records</B>. CD, так же, будет доступен в формате <STRONG>limited-edition digipak</STRONG>, на который войдёт один бонус трек. </P>
+<P>Трек-лист<STRONG> "En Kvest For Den Hellige Gral"</STRONG>:<BR itxtNodeId="397"><BR itxtNodeId="396">01. <B itxtHarvested="1" itxtNodeId="395">Die Verdammte Hungersnot</B><BR itxtNodeId="394">02. <B itxtHarvested="1" itxtNodeId="393">Karve</B><BR itxtNodeId="392">03. <B itxtHarvested="1" itxtNodeId="391">Die Ber&#252;chtiges Bande</B><BR itxtNodeId="390">04. <B itxtHarvested="1" itxtNodeId="389">Gjetord</B><BR itxtNodeId="388">05. <B itxtHarvested="1" itxtNodeId="387">Der S&#252;ndenbock Gegalte</B><BR itxtNodeId="386">06. <B itxtHarvested="1" itxtNodeId="385">Korstog</B><BR itxtNodeId="384">07. <B itxtHarvested="1" itxtNodeId="383">Underm&#229;lere</B><BR itxtNodeId="382">08. <B itxtHarvested="1" itxtNodeId="381">Jevnes med Jorden</B><BR itxtNodeId="380">09. <B itxtHarvested="1" itxtNodeId="379">En gammel Trollsti</B><BR itxtNodeId="378">10. <B itxtHarvested="1" itxtNodeId="377">Epilog</B> (digipak bonus track)</P>
+Автор: Headcrusher
+
+### 03.10.2011 news Видео-клип TROLLFEST
+
+<P>Новый ролик норвежцев<STRONG> TROLLFEST</STRONG> на песню "<STRONG>Karve</STRONG>" можно посмотреть ниже. Видео создано <STRONG>Manskow Productions</STRONG>. Трек вышел в апреле на <STRONG>NoiseArt Records</STRONG> на альбоме "<STRONG>En Kvest For Den Hellige Gral</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/5UgqrDnAmts" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 12.04.2012 news Новый альбом TROLLFEST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=471 alt="" hspace=0 src="/images/news_rus/2012.04/23468.jpg" width=475 align=right border=0>Новый альбом<STRONG> TROLLFEST</STRONG> <STRONG>"Brumlebassen" </STRONG>выйдет в августе на <STRONG>NoiseArt</STRONG>. Группа опубликовала обложку новой работы, которую создал мультипликатор <STRONG>Jonas Darnell. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="47">Brumlebassen</B> <BR itxtNodeId="46">02. <B itxtHarvested="0" itxtNodeId="45">Bose Tivoli</B> <BR itxtNodeId="44">03. <B itxtHarvested="0" itxtNodeId="43">Illsint</B> <BR itxtNodeId="42">04: <B itxtHarvested="0" itxtNodeId="41">Hevlette</B> <BR itxtNodeId="40">05. <B itxtHarvested="0" itxtNodeId="39">Finsken, Norsken and Presten</B> <BR itxtNodeId="38">06. <B itxtHarvested="0" itxtNodeId="37">Mystisk Maskert</B> <BR itxtNodeId="36">07. <B itxtHarvested="0" itxtNodeId="35">Apis Mellifera</B> <BR itxtNodeId="34">08. <B itxtHarvested="0" itxtNodeId="33">TrinkenTroll</B> <BR itxtNodeId="32">09. <B itxtHarvested="0" itxtNodeId="31">Verboten Kjarleik</B> <BR itxtNodeId="30">10. <B itxtHarvested="0" itxtNodeId="29">Brak</B> <BR itxtNodeId="28">11. <B itxtHarvested="0" itxtNodeId="27">Sellout</B> <BR itxtNodeId="26">12. <B itxtHarvested="0" itxtNodeId="25">Rundt Balet</B> <BR itxtNodeId="24">13. <B itxtHarvested="0" itxtNodeId="23">Konterbier</B> (bonus track)</P>
+Автор: Vit Belov
+
+### 16.10.2013 news Oktobierfest 2014
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже в эту субботу в московском клубе <STRONG>"Volta"</STRONG> (<A href="http://www.voltaclub.ru/">www.voltaclub.ru</A>), состоится ежегодный фестиваль <STRONG>"Oktobierfest"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом году в фестивале участвуют ирландские трэшеры <STRONG>GAMA BOMB</STRONG>, итальянские пародисты <STRONG>NANOWAR OF STEEL</STRONG> и норвежские folk/black весяльчаки&nbsp;<STRONG>TROLLFEST</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Более подробная информация о фестивале на сайте организатора: <A href="http://deltamekong.ru/?category=2&details=113">http://deltamekong.ru/?category=2&details=113</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также в разделе <STRONG>Shows</STRONG> нашего сайта: <A href="/ru/shows/#69768">http://musica.mustdie.ru/ru/shows/#69768</A></FONT></P>
+<P>А пока скоротать оставшееся до фестиваля время, можно посмотрев видео-приветствие (обязательно несколько раз)&nbsp;от ансамбля <STRONG>GAMA BOMB</STRONG>, которое находится &nbsp;ниже&nbsp;в плеере.</P>
+<CENTER><IFRAME height=480 src="//www.youtube.com/embed/OTWlivfqfho" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.01.2014 news TROLLFEST: подробности шестого студийника
+
+<P>Норвежцы <STRONG>TROLLFEST</STRONG> поделились подробностями о своем шестом альбоме, который выходит 28 марта на <STRONG>NoiseArt</STRONG>.&nbsp;</P>
+<P>Альбом,&nbsp;названный&nbsp;<STRONG>"Kaptein Kaos"</STRONG>, был записан в студиях <STRONG>dUb</STRONG>&nbsp;и <STRONG>Trollskogen Recording Facilities</STRONG>. Его сведение сделал <STRONG>Endre</STRONG> <STRONG>Kirkesola</STRONG>. Автором обложки стал швед <STRONG>Jonas Darnell</STRONG> (<A href="http://www.facebook.com/jonas.darnell">www.facebook.com/jonas.darnell</A><A href="http://www.hermanhedning.com/"></A>), который и прежде работал с группой. За дизайн буклета отвечал <STRONG>Terje Johnsen</STRONG>, также давний партнер <STRONG>TROLLFEST</STRONG>.</P>
+<P>Трек-лист альбома:</P>
+<P>01. <STRONG>Trolltramp</STRONG> | 02. <STRONG>Kaptein Kaos</STRONG> | 03. <STRONG>Vulkan</STRONG> | 04. <STRONG>Ave Maria</STRONG> | 05. <STRONG>Filzlaus Verkundiger</STRONG> | 06. <STRONG>Die Grosse Echsen</STRONG> | 07. <STRONG>Seduction Suit No. 21</STRONG> | 08. <STRONG>Solskinnsmedisin</STRONG> | 09. <STRONG>Troll Gegen Mann</STRONG> | 10. <STRONG>Sagn Om Stein</STRONG> | 11. <STRONG>Renkespill</STRONG> | 12. <STRONG>Kinesisk Alkymi</STRONG> | 13. <STRONG>Doden Banker Pa</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.01/26544.jpg" width=500 height=496> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.08.2017 news TROLLFEST: клип &quot;Hen Of Hades&quot;
+
+<P><STRONG>TROLLFEST</STRONG> опубликовали кровожадное анимационное видео на песню<STRONG> "Hen Of Hades"</STRONG>. В качестве мультипликатора выступил гитарист группы -&nbsp;<STRONG>Mr. Seidel</STRONG>.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/CR70I9d9Y98" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Oktobierfest 2013: GAMA BOMB (Ирландия), TROLLFEST (Норвегия), NANOWAR OF STEEL (Италия)

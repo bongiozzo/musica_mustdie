@@ -29,6 +29,26 @@ E.V.A.nghelya
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.09.2002 reviews Новый вирусный порядок
+
+<p>THEE MALDOROR KOLLECTIVE - интересная и уникальная группа из Италии. Музыка этой группы неординарна и очень экспериментальна. Безусловно, такая музыка для редкостного круга любителей электронной музыки и экстремальной одновременно. При прослушивании альбома этой группы вспоминается творчество таких команд, как ...AND OCEANS, THE KOVENANT, EPHEL DUATH, DIABOLICUM RAMMSTEIN и RAM-ZET. Но здесь все сделано на более современном кибернетическом уровне. Охарактеризовать стилистичеки это можно, как industrial-electro-black metal. Сами музыканты называют свой стиль, не иначе, как black ritual metal. Мрачная тяжелая музыка с обилием электроники, скриминг-вокалом, зловещими и техничными гитарными distortion-риффами и апокалиптической клавишной атмосферой. Один из тех альбомов, чья музыка призывает к разрушениям и насилию. В то же время, это несколько напрягающая музыка, которую не послушаешь просто так. Здесь много странного, гипнотизирующего и даже сверхъестественного. Сплошные нечетные звуки и музыка задерживающая дыхание. Ближе к концу альбома становится немного полегче, но сути это не меняет. Очень сложная и специфическая музыка. Если вы не любитель экспериментов и тяготеете к классическим вариациям тяжелых стилей, то этот альбом явно не для вас. Или вы будете превозносить это творение до небес за оригинальность и футуричность, или вы будете ненавидеть это произведение и считать его отдышкой для шизофреников. Попробуйте и решите для себя это сами.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 09.04.2004 news THEE MALDOROR KOLLECTIVE записали новый альбом
+
+<P>THEE MALDOROR KOLLECTIVE закончили запись нового опуса "A Clockwork Highway". В музыкальном плане альбом представляет собой сочетание Electro-Noise, Power Electronics, Dub, Drum 'n Bass, можно найти влияние The Young Gods, Isis, Halo, Converter, Godflesh, но всё же это 100 % THEE MALDOROR KOLLECTIVE!</P>
+Автор: Morsus
+
+### 09.04.2004 news THEE MALDOROR KOLLECTIVE has recorded a new album
+
+<P>THEE MALDOROR KOLLECTIVE has finished the recordings process of the next opus titled "A Clockwork Highway". An Electro-Noise Delirium with Power Electronics, Dub and Drum 'n Bass Beats... imagine a SoundTrack close to The Young Gods, Isis, Halo, Converter and Godflesh, but still 100% Maldoror Kollective!</P>
+Автор: Morsus
+
+
 ## Обсуждения
 
 

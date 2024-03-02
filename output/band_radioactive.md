@@ -123,6 +123,26 @@ CHRIS DEMMING - Backing vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.05.2003 reviews Компания ветеранов
+
+<p>Второй альбом суперпроекта одного из ветеранов мировой хардовой сцены, успевшего поиграть во множестве групп со множеством известных людей. Некоторых из них он и пригласил на запись этого альбома. Среди них вокалисты FERGIE FREDERIKSEN (ex-TOTO), STEVE OVERLAND (FM), GEIR RONNING (TOTO, PRISONER), KIMMO BLOM (URBAN TALE), MICHAEL ERLANDSSON и MATTI ALFONZETTI (ALFONZETTI, TALISMAN, SKINTRADE), басисты MARCEL JACOB (TALISMAN, YNGWIE MALMSTEEN) и TONY FRANKLIN (BLUE MURDER, WHITESNAKE, THE FIRM), партии ударных записал PAT THERN. Все остальные инструменты (гитары и клавишные) записал сам виновник торжества TOMMY DENANDER. Сами понимаете, подобная компания вряд ли должна записать что-то плохое и некачественное. Музыка на альбоме самого высшего уровня, вот только ужасно заезженная. Понимаю, у самих музыкантов она вызывает ностальгию и заставляет вспомнить дни былые. Но что делать простому слушателю, который за кипой прекрасных мелодий, нет-нет, да и услышит то, что уже давно было им услышано. Melodic rock вперемежку с AOR в духе TOTO и JOURNEY, профессионально сыгранный и записанный. Ничего нового вы не услышите, просто хорошая музыка заставляющая вспомнить восьмидесятые годы...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 28.01.2005 news Новый альбом RADIOACTIVE почти готов
+
+<P>Новый альбом <STRONG>RADIOACTIVE</STRONG> будет называться '<STRONG>Taken</STRONG>' и уже почти записан. На пластинке засветятся много приглашённых знаменитостей. Среди них участники <STRONG>TOTO</STRONG>, <STRONG>Yngwie Malmsteen</STRONG>, <STRONG>Kelly Keagy</STRONG> и другие.</P>
+Автор: Vit Belov
+
+### 28.01.2005 news RADIOACTIVE new album
+
+<P><STRONG>Tommy Denander</STRONG> has almost completed his new <STRONG>RADIOACTIVE</STRONG> album that will be called "<STRONG>Taken</STRONG>".&nbsp; It features some big name guests including several <STRONG>Toto</STRONG> guys, <STRONG>Yngwie Malmsteen</STRONG>, <STRONG>Tommy Funderburk</STRONG>, <STRONG>Kelly Keagy</STRONG>, <STRONG>Jim Jidhed</STRONG> and many more.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

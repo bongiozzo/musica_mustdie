@@ -21,6 +21,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2004 news Ravage began to record debut album
+
+<B>Ravage</B>, the melodic heavy metal band hailing from Boston Massachusetts USA has begun recording their debut album which will be entitled "<B>Spectral Rider</B>", and will include at least 10 newly recorded tracks as well as some possible bonus material from the band's critically acclaimed and highly successful "<B>Curse Of Heaven</B>" demo which was released last year. The album will most likely<BR>be released in the early summer of 2004. The band hopes "<B>Spectral Rider</B>" will provide a non-stop, full-metal, experience for fans. The songs on the album weave elements of 90's European Power Metal, late 80's American Thrash Metal, and early 80's NWOBHM to form a unique, powerful, and memorable sound without compromising to current trends. <BR><BR>Label and release date details will be forthcomming. <BR><BR>The probably track listing for "<B>Spectral Rider</B>" (in no particular order) is as follows...<BR><BR><B>1. Spectral Rider<BR>2. Turn The Screw<BR>3. Masque Of Black Death<BR>4. Captive Of Sin<BR>5. Wake The Dead<BR>6. The Wicked Way<BR>7. Wyvern<BR>8. The Wasteland<BR>9.&nbsp; Ravage Part 1: Damage<BR>10. Bring Down The Hellhammer<BR>11. The King Forgotten<BR>12. Curse Of Heaven (bonus track from the "Curse Of Heaven" demo)</B><BR>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

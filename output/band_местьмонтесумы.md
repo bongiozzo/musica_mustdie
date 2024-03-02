@@ -12,6 +12,50 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.12.2010 news МЕСТЬ МOНТЕСУМЫ: новое имя на московской сцене и дебютный видеоклип
+
+<P><STRONG>МЕСТЬ МOНТЕСУМЫ</STRONG> – московское сладж-стоунер/пост-метал трио. Формально группа существует уже более пяти лет, однако лишь недавно начала публиковать результаты своей творческой жизнедеятельности. Среди них вышедший первого декабря 2010 дебютный сингл коллектива – <STRONG>"Dead Frost" </STRONG>(клип на эту композицию можно посмотреть ниже). Текст и видео этого почти семиминутного полотна посвящены истории огненного истукана на глиняных ногах, чья героическая смерть станет будущим цивилизации.</P>
+<P><U>Состав</U>:<BR><STRONG>Илья Буц</STRONG> – вокал, гитара<BR><STRONG>Юра Калям</STRONG> – бас<BR><STRONG>Владимир Юрченко</STRONG> – ударные</P>
+<P>Ресурсы: <BR><A href="http://www.drugmetal.ru/blog/mntzm/">http://www.drugmetal.ru/blog/mntzm/</A> - официальный блог группы<BR><A href="http://www.myspace.com/mntzm">http://www.myspace.com/mntzm</A> - страница на MySpace</P>
+<CENTER>
+<OBJECT width=450 height=370>
+<embed src="http://www.drugmetal.ru/mediaplayers/video/player.swf" FlashVars="swfURL=VideoPlayer.swf&videoUrl=http://www.drugmetal.ru/uploads/video/mntzm/dead_frost.m4v&thumbUrl=http://www.drugmetal.ru/uploads/video/mntzm/dead_frost.jpg&fbURLToShare=http://bit.ly/fRv1z9&fbTitleOfContent=Montezuma's Revenge - Dead Frost&twURLToShare=http://bit.ly/fRv1z9&twMessageText=Montezuma's Revenge - Dead Frost&titleText=Montezuma's Revenge - Dead Frost" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 07.06.2013 news МЕСТЬ МОНТЕСУМЫ: дебютный альбом &quot;Key To The Abyss&quot;
+
+<P>Московское sludge/stoner&nbsp;трио <STRONG>МЕСТЬ МОНТЕСУМЫ</STRONG> завершило работу над своим дебютным альбомом <STRONG>"Key To The Abyss"</STRONG>.&nbsp;Группа уже&nbsp;успела "заявить о себе регулярными вылазками на сцены заплеванных столичных клубов, а также подрывными акциями на разогреве иностранных агентов (<STRONG>MASTODON</STRONG>, <STRONG>THE SHRINE</STRONG>)."</P>
+<P>Диск был записан на&nbsp;студии <STRONG>Mindcrusher Studio Labs</STRONG> (г. Электросталь)&nbsp;и сведён в Нью-Йорке на <STRONG>West West Side Music</STRONG> (<STRONG>CONVERGE</STRONG>, <STRONG>NEUROSIS</STRONG>, <STRONG>MASTODON</STRONG>).</P>
+<P>Трек-лист: </P>
+<P><STRONG>Chaos Reigns</STRONG> | <STRONG>Key To The Abyss</STRONG> | <STRONG>Fast Food Bushido</STRONG> | <STRONG>Sleeping Beauty</STRONG> | <STRONG>Anti-entity</STRONG>&nbsp;| <STRONG>Little Gods Of Disruption</STRONG> | <STRONG>Godfather, I'm In love</STRONG> | <STRONG>Dead Frost</STRONG></P>
+<P>Автор оформления: <STRONG>Андрей Давыдовский</STRONG> (<A href="http://www.davidovsky.com/">www.davidovsky.com</A>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.06/25800.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 29.06.2013 news МЕСТЬ МОНТЕСУМЫ: дебютный альбом &quot;Key To The Abyss&quot; доступен для прослушивания на Youtube
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Московская sludge/stoner банда <STRONG>МЕСТЬ МОНТЕСУМЫ</STRONG>, не так давно открывавшая московский концерт&nbsp;группы <STRONG>DOWN</STRONG>, выложила для прослушивания&nbsp;свой дебютный альбом <STRONG>"Key To The Abyss"</STRONG>&nbsp;на Youtube. Все желающие могут прослушать его в плеере ниже. У любителей же физических носителей, есть шанс приобрести <A href="http://escapemind.ru/goods/Montezuma-s-Revenge-Key-To-The-Abyss">компакт-диск</A>, недавно выпущенный российским&nbsp;лейблом <STRONG>Fono</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фотографии с того самого выступления ансамбля <STRONG>МЕСТЬ МОНТЕСУМЫ</STRONG> перед группой <STRONG>DOWN</STRONG>, можно посмотреть по ссылке: <A href="/ru/galleries/1/1269/">http://musica.mustdie.ru/ru/galleries/1/1269/</A></FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/USySN65zx38" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 03.03.2017 news MONTEZUMA&#39;S REVENGE: второй альбом в сети
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2017.03/30390.jpg" width=500 height=500>Московское трио&nbsp;<STRONG>MONTEZUMA'S REVENGE</STRONG>&nbsp;выпустило свой второй полноформатный альбом&nbsp;под названием&nbsp;"Them".</P>
+<P>iTunes – <A href="http://goo.gl/NtQPFe">http://goo.gl/NtQPFe</A><BR>Google Play –&#8239;&#8239;<A href="http://goo.gl/CHtbMb">http://goo.gl/CHtbMb</A><BR>Яндекс.Музыка –&#8239; <A href="http://goo.gl/QdKtdj">http://goo.gl/QdKtdj</A><BR>Bandcamp - <A href="http://mntzm.bandcamp.com/">http://mntzm.bandcamp.com</A></P>
+<P>Долгих четыре года интенсивных сеансов лечебной звукотерапии в небезызвестной клинике на московском Электрозаводе не прошли даром, и больничная карта выздоравливающего электрика Монтесумы, наконец, заполнена..</P>
+<P>Внимательно изучите её на предмет выявления похожих симптомов и диагнозов, дорогие пациенты, и не забудьте потом оставить свой отзыв в книге жалоб и предложений.</P>
+<P>Лечебную звукотерапию также посещали:</P>
+<P><STRONG>Андрей "Астро" Ганкин</STRONG> – вокал в "Quest For Illusion", гитарные шумы в “Them”<BR><STRONG>Александр Козловский</STRONG> – виолончель и аранжировка в “My Muspilli”<BR><STRONG>Андрей Контузов-Вантула</STRONG> – вокал в “Black Illuminator”<BR><STRONG>Igor GD Electric</STRONG> – DJ-ing в “Black Illuminator”</P>
+<P>Запись и сведение: <STRONG>Андрей «Астро» Ганкин</STRONG>, DTH Studios, Москва<BR>Сведение: <STRONG>Денис Иванов</STRONG>, Тольятти<BR>Мастеринг: <STRONG>Mick Kenney</STRONG> (The Barrack Studios), Санта-Ана, Калифорния (США)</P>
+<P>Оформление – Gregor G (Sch&#228;del und Knochen) <A href="http://flickr.com/#/photos/schaedelundknochen">http://flickr.com/#/photos/schaedelundknochen</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### МЕСТЬ МОНТЕСУМЫ: дебютное видео.

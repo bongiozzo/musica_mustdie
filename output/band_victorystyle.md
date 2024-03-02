@@ -31,6 +31,9 @@ Skull Crushing, Brutal & Agressive Hardcore. Compilation of Victory Records Band
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

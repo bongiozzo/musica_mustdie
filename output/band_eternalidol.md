@@ -8,6 +8,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.09.2016 news Fabio Lione покинул RHAPSODY OF FIRE
+
+<p>Вокалист <strong>Fabio Lione</strong> покинул <strong>RHAPSODY OF FIRE</strong>. Музыкант сообщил, что хочет открыть новую главу в собственной биографии. </p><p>Новым основным проектом для певца стала группа <strong>ETERNAL IDOL</strong>, где он работает с музыкантами <strong>HOLLOW HAZE</strong>. Материал коллектива находится на стыке symphonic rock, progressive и classic metal с двумя вокалами - мужским и женским. Свёл альбом <strong>Simone Mularoni</strong> (DGM, Sunstorm).</p><p>Трек лист:</p><p>“Evil Tears”<br>“Another Night Comes”<br>“Awake In Orion”<br>“Is The Answer Far From God?”<br>“Blinded”<br>“Sad Words Unvailed”<br>“Desidia”<br>“Hall Of Sins”<br>“Feels Like I'm Dying”<br>“A Song In The Wind”<br>“Stormy Days”<br>“Beyond”</p><p><center><img width="640" height="640" src="/images/news_rus/2016.09/30020.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 29.09.2016 news Fabio Lione left RHAPSODY OF FIRE
+
+<p>Vocalist <strong>Fabio Lione</strong> left <strong>RHAPSODY OF FIRE</strong>. The musician said he wanted to open a new chapter in your own biography. </p><p>New major project for the singer is the band<strong> ETERNAL IDOL</strong>, where he works with musicians of <strong>HOLLOW HAZE</strong>. The material is at the edge of symphonic rock, progressive and classic metal with two vocals - male and female. Mixed the album <strong>Simone Mularoni</strong> (DGM, Sunstorm).</p><p>Track list:</p><p>“Evil Tears”<br>“Another Night Comes”<br>“Awake In Orion”<br>“Is The Answer Far From God?”<br>“Blinded”<br>“Sad Words Unvailed”<br>“Desidia”<br>“Hall Of Sins”<br>“Feels Like I'm Dying”<br>“A Song In The Wind”<br>“Stormy Days”<br>“Beyond”</p><p><center><img width="640" height="640" src="/images/news_rus/2016.09/30020.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 13.10.2016 news Новая группа Fabio Lione ETERNAL IDOL выпустила клип
+
+<p>Новый ролик итальянского коллектива<strong> ETERNAL IDOL "Another Night Comes"</strong> можно посмотреть ниже. В группе поёт только что покинувший<strong> RHAPSODY OF FIRE Fabio Lione</strong>. Дебютный альбом коллектива "<strong>Unrevealed Secret</strong>" выйдет 2 декабря на<strong> Frontiers</strong>.</p><p>&nbsp;</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/xsFcjwi2jAc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.10.2016 news ETERNAL IDOL - new band of Fabio Lione released video
+
+<p>New video of the Italian&nbsp;band <strong>ETERNAL IDOL "Another Night Comes"</strong> can be viewed below. The band's vocalist<strong> Fabio Lione</strong> has just left<strong> RHAPSODY OF FIRE</strong>. Debut album "<strong>Unrevealed Secret</strong>" will be released on 2 December via<strong> Frontiers records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/xsFcjwi2jAc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

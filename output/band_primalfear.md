@@ -306,6 +306,1933 @@ Japanese edition includes one additional bonus track:
 * C группой "Cans" Mat Sinner
 * C группой "My Darkest Hate" Klaus Sperling (drums)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>По новым сведедениям следующий альбом PRIMAL FEAR будет называться "The Jaws of Death". Группа собирается записать его в марте в Тампе, США.</p>
+
+Автор: Vit Belov
+
+### 16.02.1999 news 
+
+<p>Барабанщик Helloween Ули Кюш, объявил состав музыкантов, которые примут участии на организованном им проекте "Tribute to Rainbow". На проекте засветятся Ральф Шипперс из Primal Fear, члены Helloween Маркус Гроскопф, Михаэль Вейкат, Анди Дерис, Роланд Грапов. А также клавишники Фредди Донберг(Rough Silk), Аксел Маттенрок(Punch), бассисты Йенс Бекер (Grave Digger), Уве Вессел (ex-Gamma Ray) и гитарист Хеньо Рихтер (Gamma Ray).</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>Primal Fear записали новый альбом "Jaws Of Death". Это была первая запись с новым гитаристом Стефаном Лайбингом. Продюсерами пластинки, которая записывалась в знаминитой Morissound студии, были Ахим Коллер и Мэт Синнер. Primal Fear также записали песню "Breaker" для трибьюта Accept.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Primal Fear взяли нового гитариста Стефана Либелинга. Новый альбом группы "Jaws Of Death" выйдет летом.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Новый альбом Primal Fear "Jaws Of Death" стартовал в чарте Германии с 49 места. Барабанщик Primal Fear Клаус Сперлинг во время летнего турне группы Sinner, имеющей прямое отношение к его родному коллективу, сыграет партии ударных, заменив Фрица Рандоу. Несмотря на это Фриц всё ещё является членом Sinner. На этих концертах состоится возвращение в группу Мэта Синнера гитариста Алекса Бейродта. Primal Fear также отправятся в тур по Европе вместе с Sinergy и Metalium.</p>
+
+Автор: Vit Belov
+
+### 21.08.1999 reviews 
+
+<p>Скажу сразу, я ждал новый, второй по счёту, альбом этой группы, так как уж очень понравился первый их релиз. К сожалению, я послушал и расстроился. Вроде бы совсем ничего не изменилось, ни вокал Шиперса, ни игра инструментов, ни саунд, ни тяжёлый классический немецкий пауэр, но что-то пропало. Пропали какие-то мелодии, которые звучали оригинально год назад. Могу заметить, что этот альбом является практически точной копией предыдущего, что тоже является недостатком. Я думаю, многие лидеры немецкого металла явно увлекаются работой и у них уже в голове всё перемешалось, вот они и шлёпают аккуратно раз в год альбомы похожие друг на друга. Я очень люблю пауэр, и может действительно я требую от музыкантов невозможного, но что делать. Когда мне нравится, мне нравится, а когда нет, то нет. "The Jaws Of Death" очень похож на "Primal Fear", поэтому его можно посоветовать тем, кто хочет продолжение того альбома. При чём не очень хорошее. Как будто взяли песни, которые не вошли на альбом и выпустили их бонусом. Хотя, может я зря кипячусь? 5,5 из 10</p>
+
+Автор: Dimas
+
+### 24.10.1999 news 
+
+<p>Том Науманн покинул Primal Fear, из-за некоторых проблем со здоровьем. Вторым гитаристом стал Алекс Бейродт из Sinner.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Primal Fear перезаключили контракт с Nuclear Blast и войдут в студию летом для записи третьего альбома.</p>
+
+Автор: Vit Belov
+
+### 11.07.2000 news New album of Primal Fear
+
+<p>The recordings of the new PRIMAL FEAR album, Nuclear Fire, will start on July 19th. 13 new songs are ready now: 'Angel In Black', 'Red Rain', 'Fire On The Horizon', 'Iron Hand In A Velvet Glove', 'Eye Of An Eagle', 'Kiss Of Death', 'Living For Metal', 'Dying Star', 'Now Or Never', 'Nuclear Fire', 'Hall Of Illusion', 'Fight The Fire' and 'Be My Servant'.</p>
+
+Автор: Vit Belov
+
+### 11.07.2000 news Новая запись Primal Fear
+
+<p>Primal Fear засядут за запись нового альбома "Nuclear Fire" 19 июля. Песни будут называться так: 'Angel In Black', 'Red Rain', 'Fire On The Horizon', 'Iron Hand In A Velvet Glove', 'Eye Of An Eagle', 'Kiss Of Death', 'Living For Metal', 'Dying Star', 'Now Or Never', 'Nuclear Fire', 'Hall Of Illusion', 'Fight The Fire' и 'Be My Servant'</p>
+
+Автор: Vit Belov
+
+### 14.09.2000 news Новый диск Primal Fear
+
+<p> Новый диск Primal Fear "Nuclear Fire" появится в продаже в январе следующего года. В настоящее время группа уже работает на альбомом вместе с продюсером Мэттом Синнером.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news The new album of Primal Fear
+
+<p> The new album of Primal Fear will be released in January 2001. The band is already working on the album which will be titled "Nuclear Fire" and will be produced by Matt Sinner.</p>
+
+Автор: Nybras
+
+### 21.11.2000 reviews Новейший альбом первобытного страха
+
+<p>Новейший альбом первобытного страха. Вообще-то, этот альбом немецких металлистов выйдет только 29 января 2001 года в Европе. А в Японии - чуть пораньше, 20 декабря 2000 года и с бонусом. Именно японскую версию и довелось мне послушать. Известные музыканты в третий раз радуют нас искрометным и зажигательным heavy-power'ом, жестким и мелодичным. Настоящая мужская музыка, истинно немецкая, без финно-итальянских соплей. Ralf отлично поработал при записи вокальных партий. Иногда его голос достигает невероятных высот и напоминает то Rob Halford'a, то Udo Dirkscnider'a. Кстати, и по музыке на альбоме постоянно ощущаются тени творчества Judas Priest и U.D.O. Крепкий добротный материал, но не выдающийся.</p>
+
+Автор: Dimas
+
+### 21.11.2000 reviews The newest album of Primal Fear
+
+<p>The newest album of Primal Fear. Generally, this album German metallers will release only on January 29, 2001 in Europe. And in Japan - hardly earlier, December 20, 2000 with bonus. It was possible to me to listen the Japanese version also. The known musicians in third times please us heavy-power, rigid and melodious. The present man's music, is true German, without Finnish-Italian cryings. Ralf perfectly has worked at record of vocal parties. Sometimes his vocal achieves improbable heights and reminds that Rob Halford, Udo Dirkscnider. By the way, and on music on an album the shadows of creativity Judas Priest and U.D.O are constantly felt. Strong good material, but not outstanding.</p>
+
+Автор: Dimas
+
+### 09.08.2001 news Primal Fear закончили сочинение песен для следующего альбома
+
+<p> После весьма успешного европейского тура в начале этого года и участия в нескольких крупных фестивалях ударная сила германского металла Primal Fear уже подготовила новые песни для своего очередного альбома. В ближайших планах группы - Wacken Open Air, Milwaukee Metal Fest и Summer Breeze Open Air, а также ряд концертов в Бразилии, Аргентине и Мексике. Затем в декабре планируется совершить поход в студию для записи четвёртого по счёту альбома, для которого есть уже и рабочее название - "Black Sun".</p>
+
+Автор: Morsus
+
+### 09.08.2001 news Primal Fear have finished writing songs for their next album
+
+<p> After the hugely successful European tour early this year, and some appearance at big festivals, the German metal commando unit have already finished writing songs for their next album. After Wacken, the USA Milwaukee Metal Festival and the Summer Breeze Open Air the band will also be playing concerts in Brazil, Argentina and Mexico before entering the studio in December to hammer out album number 4. The working title is "Black Sun".</p>
+
+Автор: Morsus
+
+### 26.11.2001 news PRIMAL FEAR have completed work on yet another ...
+
+<p>German power metallers PRIMAL FEAR have completed work on yet another track for their upcoming Black Sun CD, which is tentatively scheduled to be recorded in early 2002 at House Of Music Studio in Winterbach, Germany for a mid-year release through Nuclear Blast Records. So far, the following songs are set to appear on the album: <BR><BR> 01. Veiled Control <BR> 02. Magic Eye <BR> 03. We Go Down <BR> 04. Lightyears From Home <BR> 05. Merciless <BR> 06. Armageddon <BR> 07. Cold Day In Hell <BR> 08. Revolution <BR> 09. Black Sun <BR> 10. Mind Control</p>
+
+Автор: Yermola
+
+### 26.11.2001 news Порция первобытного ужаса...
+
+<p>Немецкие пауэрщики "PRIMAL FEAR" подготовили для записи очередную порцию "первобытного ужаса"... Уже в начале 2002 команда планирует сессию в Винтербахской House Of Music Studio. Нуклеар Бласт выпустит релиз в середине следующего года. И войдут на "Black Sun": <BR><BR> 01. Veiled Control <BR> 02. Magic Eye <BR> 03. We Go Down <BR> 04. Lightyears From Home <BR> 05. Merciless <BR> 06. Armageddon <BR> 07. Cold Day In Hell <BR> 08. Revolution <BR> 09. Black Sun <BR> 10. Mind Control</p>
+
+Автор: Yermola
+
+### 22.02.2002 news Черное солнце ... или птички летают махая крылом...
+
+<p>"PRIMAL FEAR" завершили работу над альбомом "Black Sun". Дата выхода в продажу - 29-е апреля для Европы (через Nuclear Blast Records) и 14-го мая для Америки. Окончательный трек-лист: <BR><BR> 01. Countdown To Insanity<BR> 02. Black Sun<BR> 03. Armageddon<BR> 04. Lightyears From Home<BR> 05. Revolution<BR> 06. Fear<BR> 07. Mind Control<BR> 08. Magic Eye<BR> 09. Mind Machine<BR> 10. Silence<BR> 11. We Go Down<BR> 12. Cold Day In Hell<BR> 13. Controlled<BR></p>
+
+Автор: Yermola
+
+### 18.03.2002 news Primal Fear
+
+<p>According to Nuclear Blast label, Primal Fear will hit Russia. The bands first ever gig in Russia will take place on Luzhniky stadium on 29th June, right after the release of their new album named "Black Sun".The european headliner-tour will start the 13th of September, together with Rage plus another band .</p>
+
+Автор: Mitaman
+
+### 10.05.2002 reviews Первобытный страх под черным солнцем
+
+<p>Концептуальный альбом о путеществии Железного Орла на Черное Солнце. Черное солнце - это мистическая планета, являющаяся центром вселенной, местом концентрации всей энергии и мощи вселенной. Уже четвертое творение немецких хэви-паверщиков, которые берут своей стабильностью и незыблемостью. Группа играет далеко не выдающийся материал. Не будь в группе таких известных музыкантов как Ralf Scheepers и Mat Sinner с их профессионализмом, усердием и талантами, этот материал у любой другой группы мог бы и не иметь подобного успеха. Но эти двое титанов металла радуют нас своими творениями из года в год. Все песни на альбоме - это 100% PRIMAL FEAR. Ничего нового вы не услышите. Все те же мощные риффы, тяжелый современный звук, двойные бас и барабаны, сочетание гиперскоростей со средними тмпами и классическими мелодиями, убийственный стальной вокал, интересные гитарные соло и гимноподобное построение песен. А вот выделить какую-либо лучшую вещь трудновато. Тринадцать heavy-power metal гранат дают группе шансы на очередной успех. Несмотря на все, трудно поставить этому творению среднюю оценку, но и на высокую он тоже не тянет. Уверенная четверка.</p>
+
+Автор: Dimas
+
+### 17.05.2002 reviews Iron eagle on a black sun
+
+<p>Conceptual album about travel of Iron Eagle on the Black Sun. The black sun is a mystical planet being the centre of Universe, place of concentration of all energy and power of Universe. Already fourth creation of German heavy-power metalers, which take by the stability and firmness. The group plays a farly from outstanding material. Not be in group of such known musicians as Ralf Scheepers and Mat Sinner with their professionalism, diligence and talents, this material from any other group could not have similar success. But these two Titans of metal please us with the creations from year to year. All songs on an album is a 100 % PRIMAL FEAR. Anything new you will not hear. All same powerful riffes, heavy modern sound, double bass and drums, combination of hyperspeed with average temps and classical melodies, terrible steel vocal, interesting guitar solo and hymn construction of songs. And to allocate any best thing is rather hard. Thirteen heavy-power metal grenades give to group chances of the next success. Despite of everything, it is difficult to put to this creation an average estimation, but also on high it does not pull too. Sure Good.</p>
+
+Автор: Dimas
+
+### 25.05.2002 news Super Project
+
+<p>Ex-HELLOWEEN members Michael Kiske (vocals) and Roland Grapow (guitar), HAMMERFALL bassist Magnus Rosйn, ANGRA guitarist Kiko Loureiro, PRIMAL FEAR/SINNER bassist Mat Sinner, PRIMAL FEAR vocalist Ralf Scheepers, and THOTEN drummer Marco Barzo are among the musicians scheduled to appear on the forthcoming solo project of THOTEN frontman Renato Tribuzy, dubbed EXECUTION. No further details are available at this time</p>
+
+Автор: Dimas
+
+### 25.05.2002 news Новый супер-проект EXECUTION
+
+<p>EXECUTION - новый супер-проект лидера группы THOTEN Renato Tribuzy. В записи приняли участие Michael Kiske (vocals) и Roland Grapow (guitar) (ex-HELLOWEEN), Magnus Rosun (bass) (HAMMERFALL), Kiko Loureiro (guitar) (ANGRA), Mat Sinner (bass) (PRIMAL FEAR/SINNER), Ralf Scheepers (vocal) (PRIMAL FEAR) и другие известные музыканты. В скором времени ждите альбом EXECUTION.</p>
+
+Автор: Dimas
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 06.06.2003 articles Metal Gods Tour 2003 &#x3D; Long Live Rock&#39;N&#39;Roll
+
+<p><i>Отмены туров, концертов… Как это всё знакомо нам! Наибольший резонанс вызывают отмены крупных концертов. Например, наш любимый Long live Rock’n’Roll в Москве. В прошлом месяце подобная ситуация возникла в США!</i></p>
+<p>Главным организатором Metal Gods Tour (такое же пафосное название) выступил менеджемент «голоса heavy-metal» Роба Хэлфорда. Намечалось нечто грандиозное, как говориться, наш ответ Ozzfest. Были приглашены, кроме HALFORD, TESTAMENT, IMMORTAL, PRIMAL FEAR, CARNAL FORGE и AMON AMARTH. Великолепный набор групп с двух континентов и практически из всех жанров классического METAL. Но после всего семи шоу, всё неожиданно закончилось 2 мая. Музыканты были срочно отправлены по домам, без всякой надежды вернуться. Интересно узнать, кто виноват в данном событии, которое, не побоюсь этого слова, потрясло североамериканскую металлическую тусовку.</p>
+<p> <b>(3 мая)</b> Джон Бакстер (менеджер Хэлфорда): «<b>Существует единственный виновник крушения нашего турне. Агентство Universal Attraction было просто не в курсе, чем занимались его работники в течение последней недели. Смысл этого, в конце концов, дошёл до меня во время начавшейся трассы. Мне приходилось работать очень напряжённо, чтобы решить все возникающие проблемы. Любой лэйбл или менеджер поймёт, что невозможно решить все проблемы уже во время события, но я старался… Я начал работать над этим туром ещё в прошлом сентябре, это был мой ребёнок…</b>» <br> Позже упоминались какие-то «контрактные сложности», которые не позволили продолжить выступления. Практически на следующий день после отмены шоу TESTAMENT и HALFORD выдвинули предложение наверстать упущенное в июне/июле.</p>
+<p> <b>(4 мая)</b> Дж. Бакстер: «<b>Я и менеджмент TESTAMENT договорились провести тур в июне/июле в усечённом составе. Мы постараемся охватить все города, но это не очень легко, так как надо обновлять договорённости по клубам для выступления</b>».<br> <IMG SRC="/images/articles_rus/2003.06/4394.jpg" ALT="pho" width=225 height=169 hspace="15" vspace="5" border="1" align="left">Фил Арнольд (менеджер TESTAMENT): «<b>Слухи, слухи, слухи… Самое главное, что никто сейчас не может сказать, отчего отменили тур. Даже я, как участник событий, не могу в точности объяснить происходящее. Никто не имея полной информации, не может сообщить ничего кроме слухов. Единственно, что точно ясно, что TESTAMENT отыграли несколько концертов, и они были великолепны. За ответами нам всем следует обратиться к UNIVERSAL ATTRACTION INC. и METAL GODS INC.</b>»<br> Кстати, действительно ходило много слухов. Доходило даже до предположения, что во всём виновата атипичная пневмония (SARS).</p>
+<p> <b>(8 мая)</b> Дж. Бакстер: «<b>Главный менеджер Universal Attraction Джефф Аллен сообщил мне, что его подчинённый агент Томас Паскуаль перезаключил некоторые контракты без нашего участия, чем подорвал наше финансовое положение. Простыми словами, мы были вынуждены предложить группам работать за меньший гонорар. Они отказались, так как для них оказалось важнее собственное финансовое благополучие, а не благополучие Metal Gods Tour. В итоге <i>Я</i> прекратил этот тур</b>»</p>
+<p>. <b>(9 мая)</b> Домой наконец доехала группа PRIMAL FEAR. <br> <IMG SRC="/images/articles_rus/2003.06/4395.jpg" ALT="pho" width=150 height=225 hspace="15" vspace="5" border="1" align="right">PRIMAL FEAR: «<b>Мы потратили очень много денег, но главное это не деньги, а то, что мы потеряли всякое желание иметь дело с бизнесменами в США. В первую очередь мы хотим отметить, что не хотим снимать ответственности ни с Universal Attraction, ни с Metal Gods Tour (менеджмент Хэлфорда). Расследование продолжится, но это не изменит положения вещей. Нам надоели извинения. Мы, например, слышали, что отмени Хэлфорд лишь один из трёх своих ночных автобусов, тур можно было бы сохранить. Ещё одно, мы анонсируем наши даты в Европе за четыре месяца, здесь же турне не было спланировано и в два раза меньшие сроки. Кстати, Delta Airlines требовала с каждого из нас по 2000 долларов за то, чтобы вылететь в Германию из Нью-Йорка, где всё закончилось, вместо Далласа, где всё должно было закончиться</b>». <br> Кстати, Primal Fear отменили свой концерт 17 апреля в Германии, чтобы попасть на этот тур… А в это время фэны в сети уже предлагают назвать тур Little Babies of Metal Tour 2003. Группа Роба Хэлфорда, состоящая из пяти человек, передвигалась по стране на трёх автобусах, в каждом из которых обычно спят по 18-20 человек. Также говорят, что у группы был ещё один, специально для их оборудования. Не удивительно, что тур прогорел…</p>
+<p> <b>(24 мая)</b> Ну и, в конце концов, тур перенесли на осень. При чём HALFORD, скорее всего в нём участия не примет.<br> Дж. Бакстер: «<b>Наше новое агентство сообщило нам, что вынуждено перенести тур на cентябрь/октябрь, но это слишком поздно для нас. Нам надо записывать новый альбом, кроме того, у нас намечались туры по Южной Америке, Азии и Австралии</b>».</p>
+<p> Вам это всё ничего не напоминает? Должно быть, известная нам личность переехала в США и стала там менеджером Роба Хэлфорда. Американцы так сильно возмущены происходящим, но если их окунуть в нашу действительность, где пять стоящих концертов в год, да и то половину отменяют… Ну, ничего… Билеты в Питер уже куплены, будем смотреть финнов.</p>
+
+Автор: Vit Belov
+
+### 22.06.2003 news Новости от PRIMAL FEAR
+
+<p>Немецкие металисты из PRIMAL FEAR готовят материал для следующего альбома. Он будет записываться в октябре-ноябре, а мировой релиз запланирован на 22 февраля 2004 года. Одну из новых песен "Sea Of Flames", музыканты готовы представить зрителю на грядущих летних концертах.</p>
+
+Автор: Dimas
+
+### 25.08.2003 news PRIMAL FEAR have parted ways with drummer ...
+
+<p>German power metallers PRIMAL FEAR have parted ways with drummer Klaus Sperling and have replaced him with ANNIHILATOR skinsman Randy Black. <BR><BR> "Due to musical differences, PRIMAL FEAR and Klaus Sperling decided to part ways," reads an official statement announcing the split. "PRIMAL FEAR and Klaus Sperling are very sorry about this step, especially with regard to their true fans that surely would have wanted to keep the band as the winning team as they were! But there are internal decisions sometimes that an outer person will find hard to understand where band members just can't cope with an active state. Especially in music, where it comes to a creative process like composing and forming an unique vision together, inner tensions may grow and become a disturbing part of the art and make it unable to continue. At this point it is the better way to follow separate visions. PRIMAL FEAR and Klaus are parting ways in friendship and mutual understanding. We wish Klaus the best of luck and success for his upcoming musical plans and future!”<BR><BR> "The new drummer of the Metal Commando is ANNIHILATOR drummer Randy Black. We will start the recordings for our new album in late September, tentatively titled Primal Fear – In Metal, at the House Of Music studios. The songwriting is completed and we promise to keep our faith in metal and we will work hard to deliver the best album of our career. The new album will be released worldwide on Feb 23rd 2004, (and) the world tour starts on March 3rd in Europe with special guests BRAINSTORM!"</p>
+
+Автор: Yermola
+
+### 25.08.2003 news Приобретение у PRIMAL FEAR ...
+
+<p>Немецкие пауэрщики PRIMAL FEAR пригласили барабанщика Рэнди Блэк из канадской формации ANNIHILATOR взамен ушедшего Klaus Sperling. Уже в сентябре группа в обновленном составе планирует засесть в House Of Music studios для записи нового альбома. Соответствующий материал полностью готов. Дата выхода - 23 февраля 2004. Сразу после выхода последует мировой тур в поддержку совместно с BRAINSTORM...</p>
+
+Автор: Yermola
+
+### 20.09.2003 news Primal Fear: New Drummer...
+
+<P align="center"><SPAN lang=EN-GB>Primal Fear recently parted ways with Klaus Sperling and announced Randy Black as their new drummer. &nbsp;Randy Black already joined the band during their US-tour and their gig at the Summer Breeze festival. The recordings for their fifth album will start the 30. September, and will be released the 23. February. The next European tour will start the 3. March 2004.<BR>&nbsp;March with special guests Brainstorm and Rob Rock! The 29. September will see the release of the DVD “The History Of Fear” which also includes a bonus live CD!</SPAN></P>
+Автор: Vit Belov
+
+### 29.09.2003 news PRIMAL FEAR меняют название грядущего альбома
+
+<P>Германские пауэр-металлисты <B>PRIMAL FEAR</B> поменяли название своего нового альбома с<B> "In Metal"</B> на более звучное <B>"Devil's Ground"</B>. Его выход ожидается 23 февраля 2004 года через <B>Nuclear Blast Records</B> (<B>JVC</B>/<B>Victor</B> в Японии). Трэк-лист альбома выглядит следующим образом:</P>
+<P>1. Metal Is Forever<BR>2. Suicide And Mania<BR>3. The Healer<BR>4. Visions Of Fate<BR>5. Colony 13<BR>6. Heart Of The Brave<BR>7. Sea Of Fleames<BR>8. In Metal<BR>9. Wings Of Desire<BR>10. Soulchaser<BR>11. Sacred Illusion<BR></P>
+Автор: Dimas
+
+### 15.10.2003 news Primal Fear new album
+
+<SPAN lang=EN-GB><B>Primal Fear</B> recently announced the album title for their forthcoming album, which will be „<B>DEVIL’S GROUND</B>“. Release date will be the 23. February 2004. The album will be produced by <B>Mat Sinner</B> at the <B>House Of Music studio</B>, and feature new drummer <B>Randy Black (ex-Annihilator)</B>. March 2004 will see the start of their world tour which will kick off in Europe, featuring special guests <B>Brainstorm and Rob Rock</B>.</SPAN>
+Автор: Vit Belov
+
+### 17.01.2004 news В сети появилсь сэмплы с нового альбома PRIMAL FEAR
+
+<B>Nuclear Blast Records</B>&nbsp;опубликовали сэмплы с нового альбома&nbsp;<B>PRIMAL FEAR</B>, <B>"Devil's Ground",</B> на офциальном сайте лэйбла. Вот список этих трэков:<BR><BR>01. <B>Metal Is Forever</B> (<A target=_blank href="http://www.nuclearblast.de/media/Primal.Fear.Track1.ram"><U>Real Audio</U></A>)<BR>02. <B>Visions Of Fate</B> (<A target=_blank href="http://www.nuclearblast.de/media/Primal.Fear.Track2.ram"><U>Real Audio</U></A>)<BR>03. <B>The Healer</B> (<A target=_blank href="http://www.nuclearblast.de/media/Primal.Fear.Track3.ram"><U>Real Audio</U></A>)<BR><BR><B>"Devil's Ground"</B> (<A target=_blank href="http://www.primalfear.de/devils_ground/Cover1.jpg"><U>обложка</U></A>) выходит 23 февраля на&nbsp;<B>Nuclear Blast Records</B>.
+Автор: Uneral
+
+### 17.01.2004 news PRIMAL FEAR: &#39;Devil&#39;s Ground&#39; Samples Available
+
+<B>Nuclear Blast Records</B> have posted three audio samples from <B>PRIMAL FEAR</B>'s forthcoming CD, <B>"Devil's Ground"</B>, at the label's official web site. The tracks available for preview are as follows:<BR><BR>01. <B>Metal Is Forever</B> (<A target=_blank href="http://www.nuclearblast.de/media/Primal.Fear.Track1.ram"><U>Real Audio</U></A>)<BR>02. <B>Visions Of Fate</B> (<A target=_blank href="http://www.nuclearblast.de/media/Primal.Fear.Track2.ram"><U>Real Audio</U></A>)<BR>03. <B>The Healer</B> (<A target=_blank href="http://www.nuclearblast.de/media/Primal.Fear.Track3.ram"><U>Real Audio</U></A>)<BR><BR>As previously reported, <B>PRIMAL FEAR</B>'s new album, <B>"Devil's Ground"</B> (view cover art <A target=_blank href="http://www.primalfear.de/devils_ground/Cover1.jpg"><U>here</U></A>), is due on February 23 through <B>Nuclear Blast Records</B>.
+Автор: Uneral
+
+### 21.02.2004 news Primal Fear &#x2F; Brainstorm &#x2F; Rob Rock&#39;s Rage of Creation
+
+<P><IMG height=418 alt="" hspace=0 src="/images/shows/2003.10/5033.jpg" width=300 align="right" border=0>March 3 - Germany (Hamburg) - Markthalle<BR><BR>March 4 - Holland - (Hardenberg) - Podium</P>
+<P><BR>March 5 - England - (London) - Scala<BR><BR>March 6 - England (Wolverhampton) - Wulfrun Hall<BR><BR>March 7 - OFF<BR><BR>March 8 - Germany (Bochum) - Zeche<BR><BR>March 9 - France (Paris) - La Locomotive<BR><BR>March 10 - OFF<BR><BR>March 11 - Spain (Madrid) - Aqualung<BR><BR>March 12 - Spain (Murcia) - Gamma<BR><BR>March 13 - Spain (Barcelona) - Razzmatazz II<BR><BR>March 14 - Spain (Bergara) - Sala Jam<BR><BR>March 15 - OFF<BR><BR>March 16 - Switzerland (Pratteln) - Z 7<BR><BR>March 17 - Italy (Milan) - Transilvania<BR><BR>March 18 - OFF<BR><BR>March 19 - Hungary (Budapest) - Pet&ouml;fi Hall<BR><BR>March 20 - Slovakia (Ljublijana) - Prinskov<BR><BR>March 21 - Germany (N&uuml;rnberg) - Hirsch<BR><BR>March 22 - OFF<BR><BR>March 23 - Germany (Frankfurt) - Batschkapp<BR><BR>March 24 - Germany (Stuttgart) - LKA<BR><BR>March 25 - France (Strasborg) - La Laiterie<BR><BR>March 26 - Belgium (Antwerpen) - Hof Ter Lo<BR><BR>March 27 - Germany (Kaufbeuren) - Zeppelinhalle<BR></P>
+Автор: Vit Belov
+
+### 25.02.2004 reviews Для тех, кто ещё не улетел на железном орле
+
+<DIV><I><B>PRIMAL FEAR</B> продолжают выпускать альбомы с периодичностью машинного аппарта. И если с самого начала карьеры продукция этой фабрики металлических агрегатов попадала 'в яблочко', то&nbsp;последний (ныне, предпоследний)&nbsp;альбом <B>'Black Sun'</B> вышел не таким&nbsp;образцовым</I>.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Пластинки <B>PRIMAL&nbsp;FEAR</B> всегда вызывали положительные эмоции. Несмотря на явную любовь к <B>JUDAS PRIEST</B>, немцам удавалось сохранять собственное лицо. <B>Ralf Sсheepers</B>,&nbsp;например, очень неплохой вокалист и ему совершенно необязательно быть похожим на <B>Halford</B>'a, а&nbsp;<B>Mat Sinner</B>, вообще, легенда тевтонского металла. На предыдущем полноформатнике <B>'Black Sun'</B> группа&nbsp;слишком увлеклась клонированием. К счастью, новый альбом получился гораздо лучше, а некоторые песни звучат очень свежо.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В настоящее время у&nbsp;<B>PRIMAL FEAR</B> совершенно не осталось конкурентов в своём стиле. Довольно молодой коллектив быстренько уничтожил всех конкурентов и с большим отрывом занимает первое место в номинации прямолинейный немецкий power-metal. Даже <B>SINNER</B> и тот, проигрывает своему пасынку (сыну). В данной ситуации нелегко удерживать себя на высоком уровне. <B>PF</B> соответствуют своему стандарту, но, к сожалению, их музыка привлекательный, но всё-таки "стандарт". И не очень большим фанатам стиля достаточно иметь их один, ну максимум, два альбома. Что ж,&nbsp;<B>'Devil's Ground'</B>&nbsp;вполне можно порекомендовать, как один из этих двух.</DIV>
+Автор: Vit Belov
+
+### 26.02.2004 reviews If you have not flied on iron eagle, This album will be for you
+
+<DIV><I><B>PRIMAL FEAR</B> are&nbsp;going on&nbsp;to release albums with frequency of machine apparatus.&nbsp;If in the beginig production of this metalic units factory&nbsp;reached their goal, last but one <B>'Black Sun'</B> came out not so ideal.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>PRIMAL FEAR's</B> CDs always call positive emotions. Despite of evident love to <B>JUDAS PRIEST</B>, Germans turned out well to save self faces. <B>Ralf Scheepers</B>, for example, is very good singer and he doesn't need to be like <B>Halford</B>. But <B>Mat Sinner</B> is a legend of German metal generally. The band were fond of cloning on their last CD <B>'Black Sun'</B>. It's happiness,&nbsp;new album came out&nbsp;better, and some songs sounds very cool.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Nowdays, <B>PRIMAL FEAR</B> don't have any competitors in their style. Young enough group destroyed their competitors very quickly and took first place with great gap in nomination of straight forward german&nbsp;power-metal.&nbsp;Even <B>SINNER&nbsp;</B>are loosing to their son-in-law (son). In this situation it's hard not to fall from&nbsp;high level. <B>PF</B> correspond&nbsp;to their standart.&nbsp;Unfortunatly their music is attractive, but it's&nbsp;standart. Not&nbsp;big fans of&nbsp;style must have only one, or maximum two, their albums. <B>'Devil's Ground'</B> could be recomended as one of this two albums.</DIV>
+Автор: Vit Belov
+
+### 12.03.2004 news Iced Earth, Thunderstone and Primal Fear in Europe
+
+<B>18.03. NL-Tilburg - 013<BR>19.03. B-Antwerpen - Hof Ter Loo<BR>20.03. NL-Hardenberg - Podium<BR>21.03. UK-London - Mean Fiddler<BR>22.03. F-Paris - Elysee Montmatre<BR>24.03. E-Madrid - Aqualung<BR>25.03. E-Valencia - Republicca<BR>26.03. E-Barcelona - Razzmatazz<BR>27.03. E-Bergara - Sala Jam<BR>29.03. I-Mailand - Rolling Stone<BR>30.03. CH-Pratteln - Z7<BR>01.04. D-K&ouml;ln - E-Werk<BR>02.04. D-N&uuml;rnberg - L&ouml;wensaal<BR>03.04. D-Filderstadt - Filharmonie<BR>04.04. A-Wien - Planet Music<BR>06.04. D-Hamburg - Grosse Freiheit<BR>07.04. S-Malm&ouml; - KB<BR>08.04. S-G&ouml;teborg - Karen<BR>09.04. S-Stockholm - Arenan<BR>11.04. FIN-Helsinki - Nosturi</B><BR>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 12.04.2004 news SIRENIA первая в марте и по итогам первого квартала
+
+<P>Так выглядит десять лучших позиций по итогам продаж в магазине <B>B2-100 'Metal & Progressive'</B> в "Горбушкином Дворе" в марте:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=481 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=193 height=17><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD></TR></TBODY></TABLE></P>
+<P>Феноменальные продажи нового альбома <B>Morten Veland (ex-Tristania)</B> и его группы <B>SIRENIA </B>позволили им занять первое место по итогам квартальных продаж. А вот как выглядит десятка по итогам первого квартала 2004 года:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=563 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 154pt" width=205>
+<COL style="WIDTH: 269pt" width=358>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=205 height=17><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=358><B>AN ELIXIR FOR EXISTENCE</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ЭПИДЕМИЯ</B></TD>
+<TD><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>ICED EARTH</B></TD>
+<TD><B>GLORIOUS BURDEN</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>MY DYING BRIDE</B></TD>
+<TD><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 13.04.2004 news Primal Fear in Europe
+
+Apr. 20 – Gothenburg, SWE - Musikens Hus <BR>Apr. 21 – Stockholm, SWE - Klubben <BR>Apr. 22 – Malm&#246;, SWE - KB <BR>Apr. 23 – Hamburg, GER - Markthalle <BR>Apr. 24 – Wesseling, GER - Lessinghalle <BR>Apr. 25 – Nordenham, GER - Jahnhalle <BR>Apr. 27 – Bergamo, ITA - Motion <BR>Apr. 28 – Innsbruck, AUT - Hafen <BR>Apr. 29 – Frankenthal, GER - Music Club <BR>May 01 – Osnabr&#252;ck, GER - D&#252;tehalle <BR>May 02 – Kassel, GER - Musiktheater<BR>May 03 – Bochum, GER – Zeche<BR>May 04 – Pratteln, SWI - Z 7<BR>May 06 – Valencia, SPA - Republicca<BR>May 07 – Madrid, SPA – Aqualung<BR>May 08 – Barcelona, SPA - Razzmatazz <BR>May 09 – Bergara, SPA - Sala Jam<BR>May 11 – Paris, FRA - La Locomotive (t.b.c.)<BR>May 12 – Ludwigsburg, GER - Rockfabrik
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 14.05.2004 news Новый tribute to Black Sabbath
+
+<P><B>Cleopatra Records</B> выпускает новый tribute to <B>BLACK SABBATH</B>. Трэк-лист:</P>
+<P><IMG height=217 alt="" hspace=0 src="/images/news_rus/2004.05/6513.jpg" width=216 align="right" border=5>01. <B>ICED EARTH</B> - "Black Sabbath"<BR>02. <B>PRIMAL FEAR</B> - "Die Young"<BR>03. <B>JAG PANZER</B> - "Children Of The Sea"<BR>04. <B>RACER X</B> - "Children Of The Grave"<BR>05. <B>LYNCH/NEIL</B> - "Paranoid"<BR>06. <B>ICARUS WITCH</B> - "Falling Off The Edge Of The World"<BR>07. <B>FOREVER SAY DIE!</B> - "Sabbath Bloody Sabbath"<BR>08. <B>ORDER OF NINE</B> - "Disturbing The Priest"<BR>09. <B>STEEL PROPHET</B> - "Neon Knights"<BR>10. <B>AGENT STEEL</B> - "Hole In The Sky"<BR>11. <B>DOFKA</B> - "N.I.B."<BR>12. <B>TWISTED TOWER DIRE</B> - "Glory Ride"<BR>13. <B>OCTOBER 31</B> - "Danger Zone"<BR></P>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 11.10.2004 news PRIMAL FEAR меняют имидж и звук...
+
+<P>"<EM>Мы поменяем имидж и звук на альбоме 2005 года</EM>!!!", - такое заявление сделали <STRONG>PRIMAL FEAR</STRONG> через свой официальный сайт. Неужели и true-heavy-metal парни способны на такое.</P>
+<P>Подробности пока не сообщаются.</P>
+Автор: Vit Belov
+
+### 25.11.2004 news PRIMAL FEAR объявили дату записи
+
+<P>Новый альбом <STRONG>PRIMAL FEAR</STRONG> будет записан в апреле-мае 2005 года. Продюсером вновь выступит <STRONG>Mat Sinner</STRONG>, а инженером будет <STRONG>Charlie Bauerfiend</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.03.2005 news PRIMAL FEAR собираются в Россию
+
+<P><STRONG>PRIMAL FEAR</STRONG> сообщили на своём официальном сайте, что продлили свой контракт с <STRONG>Nuclear Blast</STRONG>, но котором выйдут ближайшие 5 альбомов группы, плюс одно DVD и один концертник. У группы готовы 20 песен для нового альбома, из которых будут выбраны 12. Также <STRONG>PRIMAL FEAR</STRONG> ведут переговоры с концертными агентствами по всему миру. Среди стран названа и Россия.</P>
+Автор: Vit Belov
+
+### 26.05.2005 news PRIMAL FEAR записали альбом
+
+<P>Новый альбом <STRONG>PRIMAL FEAR</STRONG> уже записан и смикширован. Его рабочее название "<STRONG>Seven Seals</STRONG>".</P>
+Автор: Vit Belov
+
+### 15.06.2005 news Новый альбом PRIMAL FEAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>PRIMAL FEAR&nbsp;"Seven Seals"</STRONG>&nbsp;полностью готов и выйдет 24 октября на <STRONG>Nuclear Blast</STRONG>. На пластинку войдёт 10 песен.</FONT></P>
+Автор: Vit Belov
+
+### 08.11.2005 reviews Возможно, лучший альбом PRIMAL FEAR!!!
+
+<P><STRONG>PRIMAL FEAR</STRONG> выпустили чуть ли не свой лучший альбом. Коллективу удалось утяжелиться и одновременно прибавить в мелодичности и&nbsp;в навороченности музыки. Сравнить "<STRONG>Seven Seals</STRONG>" я могу только с моим любимым дебютником коллектива, а также можно найти что-то от творчества<STRONG> SINNER</STRONG> середины 90-х. Я думаю, при многократном прослушивании, новой работе по силам занять место фаворита.</P>
+<P>Так в чём же заключается прелесть "<STRONG>Seven Seals</STRONG>"? Запоминающиеся мелодии, напористость heavy-metal, иногда переходящего в thrash (мною был замечен рифф очень похожий на творчество ранних <STRONG>TESTAMENT</STRONG>)&nbsp;и даже melodic death, великолепная гитарная работа, отличный вокалист, разнообразные песни, не позволяющие скучать. Минусов у этой пластинки нет!!! Кроме прочего, отмечу аранжировки, каждый трэк начинается какой-нибудь псевдо-симфоническо-акустической заставкой. Хотите баллад? "<STRONG>Seven Seals</STRONG>" и "<STRONG>Diabolus</STRONG>" удовлетворят самого придирчего слушателя.</P>
+<P>Честно говоря, даже не верится, что <STRONG>PRIMAL FEAR</STRONG> удалось вернуться на Олимп. Обстоятельства не позволяли на это надеяться. Немцы начали записывать "<STRONG>Seven Seals</STRONG>" практически сразу после "<STRONG>Devils Ground</STRONG>", а это не очень хороший признак. Можно было подумать, что будут "печь пирожки". Ан, нет! Здорово, что коллективу удалось открыть в себе второе дыхание.</P>
+<P>Советую всем любителям power-heavy-metal. Лучший альбом осени в этом жанре.</P>
+<P>Диск предоставлен Irond</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 26.05.2006 news Возвращение SINNER произойдет с помощью лейбла MTM MUSIC
+
+<P><FONT style="BACKGROUND-COLOR: #000000"><STRONG>SINNER </STRONG>подписали контракт с лейблом <STRONG>MTM Music</STRONG>. В текущий состав группы входят: основатель, а также участник<STRONG> PRIMAL FEAR</STRONG>, басист <STRONG>Mat Sinner</STRONG>, его сослуживец по «Страху» гитарист <STRONG>Tom Naumann,</STRONG> клавишник <STRONG>Frank R&#246;ssler</STRONG>, гитарист <STRONG>Matte Lange</STRONG> (<STRONG>METALIUM</STRONG>) и прежний барабанщик <STRONG>PRIMAL FEAR Klaus Sperling</STRONG>. Коллектив и продюсер <STRONG>Achim K&#246;hler</STRONG> войдут в студию около Штутгарта в сентябре для записи нового альбома, который выйдет 19 января 2007 и будет называться "<STRONG>Mask Of Sanity</STRONG>".&nbsp;&nbsp;&nbsp; </FONT></P>
+Автор: mcallen
+
+### 26.07.2006 news Лучшие вещи от PRIMAL FEAR
+
+<P><IMG height=399 alt="" hspace=10 src="/images/news_rus/2006.07/10559.jpg" width=400 align=left border=0>Немецкие power металлисты <B>PRIMAL FEAR</B> готовят к выпуску сборник своих лучших композиций под названием <B>"Metal is Forever - The Very Best of Primal Fear".</B>&nbsp;Дата релиза - 29 сентября через <B>Nuclear Blast Records</B> (<B>JVC</B> в Японии). Артворк к изданию нарисовал <B>Stephan Lohrmann</B>, который также оформлял альбом <B>PRIMAL FEAR</B> <B>"Black Sun"</B>. В сборник войдут 16 композиций со всех альбомов коллектива. Кроме того, издание будет содержать специальный бонусный диск с классическими металл треками.<BR>В данный момент,<STRONG> PRIMAL FEAR</STRONG> подписали мультиальбомное соглашение на весь мир с <B>Frontiers Records</B>. Именно там, летом 2007 года должен выйти следующий студийный альбом группы. </P>
+Автор: Dimas
+
+### 15.01.2007 news PRIMAL FEAR начнут запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>PRIMAL FEAR</STRONG> закончили работу над написанием материала для нового альбома. В феврале коллектив войдёт в студию, где запишет этот альбом для<STRONG> Frontiers</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 06.03.2007 news Вокалистка EPICA споёт для PRIMAL FEAR
+
+<P><STRONG>Simone Simons</STRONG> - вокалистка <STRONG>EPICA</STRONG> - споёт на новом альбоме<STRONG> PRIMAL FEAR</STRONG>.&nbsp;Это будет первый дуэт в истории немецкой группы.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 16.04.2007 news PRIMAL FEAR назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>PRIMAL FEAR</STRONG> закончили запись нового альбома, которому дано название "<STRONG>New Religion</STRONG>". Также стали известны названия записанных трэков:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>New Religion</STRONG><BR>2.<STRONG> Drenched In Blood<BR></STRONG>3. <STRONG>The Curse Of Sharon</STRONG><BR>4. <STRONG>Face The Emptiness<BR></STRONG>5. <STRONG>Too Much Time</STRONG><BR>6. <STRONG>Everytime It Rains<BR></STRONG>7. <STRONG>Burning Bridges</STRONG><BR>8. <STRONG>Psycho<BR></STRONG>9. <STRONG>World On Fire<BR></STRONG>10. <STRONG>The Man (I Don't Know)<BR></STRONG>11. <STRONG>The Darkness<BR></STRONG>&nbsp;&nbsp; a.<STRONG> Fighting The Darkness<BR></STRONG>&nbsp;&nbsp; b. <STRONG>Darkness II <BR></STRONG>&nbsp;&nbsp; c. <STRONG>Reprise</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 17.10.2007 reviews Это не PRIMAL FEAR, а что-то другое
+
+<P>Огромное количество мелких и крупных сюрпризов, подкладываемых в последнее время немцами из PRIMAL FEAR, не может не вызывать удивления. Великолепный прошлый альбом “Seven Seals” был из разряда сюрпризов мелких, всё-таки эти ребята умеют играть тяжёлый металл, а вот переход коллектива на hard-rock лэйбл Frontiers был крупным сюрпризом.</P>
+<P>Примерно в это же время Nuclear Blast покинула и сольная группа лидера PRIMAL FEAR Mat Sinner SINNER, интересно, что Мэт работал на немецком гиганте, поэтому, вероятно, смена лэйблов связана с какими-то событиями в его жизни. До 2005 года главным новостным поводом в жизни PRIMAL FEAR было рождение коллектива и «ломовой» дебютник. Герр Синнер вернул на большую сцену первого вокалиста GAMMA RAY, и по этому поводу было исписано не мало страниц в специализированной прессе. Затем наступил период стагнации. PRIMAL FEAR и SINNER выпускали альбомы-близнецы, где после двух-трёх хитов следовал целый набор ничем не запоминающихся трэков. Забавно, что пластинки двух коллективов не отличались даже по звучанию. Melodic heavy-metal от SINNER утяжелился до JUDAS PRIEST- подобного PRIMAL FEAR. И вот в 2005 году - “Seven Seals”. Великолепный во всех смыслах альбом до верху наполненный хитами со свежим тяжеленным звучанием. Пластинка была смикширована в Канаде, в отличие от своих предшественников, и иногда скатывалась даже в thrash-metal, что не могло меня не радовать. Потом вышел новый альбом SINNER на MTM, и эта работа радовала, но в другом смысле. Мэт на своём сольнике вернулся лет на 10 назад и записал группе звучание тех времён. И вот новая пластинка PRIMAL FEAR на Frontiers. Многие ждали её с нетерпением…</P>
+<P>Я в том числе. К сожалению, оправдались самые стандартные ожидания. Вслед за сменой лэйбла изменилось и звучание, на более лёгкое, как все и думали. Всё-таки Frontiers к трэшу не приспособлен. Например, в один день с PF там вышел сольник басиста Марка Мендозы, жалкий, куцый и смешной по своему звуку. Открывается альбом немцев стандартным мощным боевиком, где, правда, были слегка «обезврежены» гитары, но ничего, и так сойдёт. Песня очень хороша. А дальше… На альбоме был замечен вездесущий Magnus Karlsson (ALLEN/LANDE, LAST TRIBE). Вот звук PRIMAL FEAR стал схож с работами этого шведа. Клавишная подложка, мощные, но не «перегруженные» гитары. Всё прекрасно, но от немцев мы ждём другого. Поражает обилие баллад и песня с участием вокалистки EPICA Simone Simmons. Это скорее вещь EPICA с участием Ralf Scheepers, а не песня PRIMAL FEAR. Оркестровки, неоклассические мотивы. Кошмар, одним словом.</P>
+<P>PRIMAL FEAR изменились, и мне кажется, что это плохо. Группа была любима многими и без этих реформаций. Отмечу при этом, что и в смежных стилях композиторы работают успешно, первая половина альбома слушается очень интересно. Всё бы хорошо, да только это не PRIMAL FEAR, а что-то другое.</P>
+Автор: Vit Belov
+
+### 01.11.2007 news Ralf Scheepers выпустит сольник
+
+<P><STRONG>Frontiers</STRONG> сообщили, что заключили контракт с вокалистом <STRONG>PRIMAL FEAR Ralf Scheepers</STRONG> на выпуск его первого соло-альбома. Альбом выйдет в 2008 году.</P>
+Автор: Vit Belov
+
+### 06.01.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке
+
+<P>Мы возвращаем "в эфир" нашу рубрику TOP продаж. Её спонсором является магазин "<STRONG>Metal&Progressive</STRONG>" (B2-074 в торговом центре "<STRONG>Горбушкин Двор</STRONG>" на метро Багратионовская). В рейтинг попадают альбомы,&nbsp;лидеры&nbsp;продаж за последние два месяца. Сегодня представляем ноябрь и декабрь прошедшего года. Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=686 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 193pt; mso-width-source: userset; mso-width-alt: 9398" width=257>
+<COL style="WIDTH: 226pt; mso-width-source: userset; mso-width-alt: 11008" width=301>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17 x:num><FONT face="Times New Roman" size=2>1</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257 x:str="HELLOWEEN "><FONT size=2><STRONG><FONT face="Times New Roman">HELLOWEEN<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2><STRONG>GAMBLING WITH THE DEVIL</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>2</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>GAMMA RAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LAND OF THE FREE 2</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>3</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭПИДЕМИЯ</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭЛЬФИЙСКАЯ РУКОПИСЬ 2</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>4</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>TARJA TURUNEN</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>MY WINTER STORM</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>5</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NIGHTWISH</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DARK PASSION PLAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>6</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DIARY OF DREAMS</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEKROLOG 43</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>7</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PRIMAL FEAR</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEW RELIGION</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>8</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>EXODUS</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>THE ATROCITY EXHIBITION</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>9</FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PAIN</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PSALMS OF EXTINCTION</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>10</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LOST IN SPACE pt.1</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>11</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AT VANCE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VII</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>12</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMPIRE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CHASING SHADOWS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>13</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.2</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>14</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>АРКОНА</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ОТ СЕРДЦА К НЕБУ</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>15</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>XANDRIA</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SALOME<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>THE SEVENTH VEIL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>16</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>17</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAKRA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>INFECTED</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>18</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ-1</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>19</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>20</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SAMSAS TRAUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLIGES HERZ - DAS SCHWERT DEINER SONNE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>21</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUBWAY TO SALLY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>BASTARD</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>22</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KRUIZ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>23</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>DARKTHRONE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>F.O.A.D.</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>24</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SVARTSOT</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HEAVENS SAGA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>25</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EPICA</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE DIVINE CONSPIRACY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>26</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>AXEL RUDI PELL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2>DIAMONDS UNLOCKED</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>27</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARADISE LOST</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN REQUIEM</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>28</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>OVERKILL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IMMORTALIS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>29</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RIDE THE SKY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW PROTECTION</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>30</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VESANIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISTRACTIVE KILLUSIONS</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>31</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SYBREED</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ANTARES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>32</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KORPIKLAANI</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TERVASKANTO</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>33</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAMAN</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="IMMORTAL  "><FONT size=2><FONT face="Times New Roman">IMMORTAL<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>34</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JADED HEART</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SINISTER MIND</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>35</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>36</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>37</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SOILWORK</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWORN TO A GREAT DIVIDE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>38</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MAYHEM</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ORDO AD CHAO</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>39</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MARDUK</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ROM 5:12</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>40</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARY HUGHES</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VERITAS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>41</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>HANOI ROCKS</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>STREET POETRY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>42</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>U.D.O.</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MASTERCUTOR</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>43</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>RAINTIME</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>FLIES & LIES</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>44</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ONSLAUGHT</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KILLING PEACE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>45</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLRAISER</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>WE'LL BURY YOU</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>46</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GAINA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СНОВА ТВОЙ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>47</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MACBETH</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUPERANGELIC HATE BRINGER</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>48</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIMMU BORGIR</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN SORTE DIABOLI</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>49</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СЕРГЕЙ МАВРИН</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MADE IN ПИТЕР [DVD]</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>50</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JORDAN RUDESS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ROAD HOME</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 04.03.2008 news Stefan Leibing покинул PRIMAL FEAR
+
+<P>Гитарист <STRONG>Stefan Leibing </STRONG>покинул <STRONG>PRIMAL FEAR</STRONG>. Музыкант решил отдохнуть от музыкального бизнеса и проводить больше времени с семьёй.</P>
+Автор: Vit Belov
+
+### 07.03.2008 news Magnus Karlsson в PRIMAL FEAR!
+
+<P>Гитарист <STRONG>Magnus Karlsson</STRONG> (<STRONG>ALLEN/LANDE</STRONG>, <STRONG>THE CODEX</STRONG>, <STRONG>STARBREAKER</STRONG>, <STRONG>LAST TRIBE</STRONG>) присоединился к <STRONG>PRIMAL FEAR</STRONG>, которых в начале недели покинул <STRONG>Stefan Leibing.</STRONG></P>
+Автор: Vit Belov
+
+### 08.04.2008 news PRIMAL FEAR выступят в России
+
+<P><STRONG>PRIMAL FEAR</STRONG> запланировали две даты в России. Немцы выступят 20 сентября в Санкт-Петербурге в клубе "<STRONG>Орландина</STRONG>" и 21 сентября в Москве в клубе "<STRONG>Точка</STRONG>".</P>
+Автор: Vit Belov
+
+### 23.08.2008 news Разогрев для PRIMAL FEAR
+
+<P>Объявлен саппорт на московском концерте <STRONG>PRIMAL FEAR</STRONG>, который состоится 21 сентября в московском клубе "ТОЧКА". Единственной российской группой, которая будет разогревать немецкую легенду power metal станет проект экс-музыканта и композитора московской группы <STRONG>Catharsis Олега Мишина</STRONG> под названием "<STRONG>О.М</STRONG>.". Группа исполнит на концерте в "ТОЧКЕ" получасовую программу, а в след за ними сразу выйдут и хэдлайнеры вечера <STRONG>PRIMAL FEAR</STRONG> со своим специальным сэтом,&nbsp; подготовленным к юбилейному туру "<STRONG>10 Years Of Metal</STRONG>".</P>
+Автор: Vit Belov
+
+### 01.09.2008 news PRIMAL FEAR в России
+
+<CENTER><IMG height=283 src="/images/shows_rus/2008.07/12612.jpg" width=400 border=0></CENTER>
+<CENTER><BR>Немецкие power metal PRIMAL FEAR в России!!!<BR>20.09.08 - Санкт-Петербург "Орландина"<BR>21.09.08 - Москва "Точка"<BR>информация на <A href="http://www.theflamingarts.org/">www.theflamingarts.org</A> </CENTER>
+Автор: Vit Belov
+
+### 23.09.2008 news PRIMAL FEAR вернулись от нас
+
+<P><STRONG>PRIMAL FEAR</STRONG> оставили сообщение на своём официальном сайте после возвращения из России. По словам группы, шоу в Москве войдёт в пятёрку лучших клубных концертов за всю историю коллектива. </P>
+<P>Очень странное утверждение, если учесть, что в зале едва ли было 500 человек.</P>
+Автор: Vit Belov
+
+### 24.09.2008 news PRIMAL FEAR в Москве (фото)
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Наши фотокорреспонденты выложили в сеть фотоотчёт о концерте немцев <STRONG>PRIMAL FEAR</STRONG> в Москве в <STRONG>клубе "Точка"</STRONG> 21 сентября.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Смотреть здесь: <A href="/ru/galleries/1/259/">http://musica.mustdie.ru/ru/galleries/1/259/</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И здесь: <A href="/ru/galleries/1/258/">http://musica.mustdie.ru/ru/galleries/1/258/</A></FONT></P>
+Автор: Vit Belov
+
+### 21.10.2008 news PRIMAL FEAR готовятся к записи
+
+<P>"<STRONG>16.6</STRONG>" - рабочее название новогоальбома <STRONG>PRIMAL FEAR</STRONG>, запись которого начнётся в ноябре. Новая пластинка немцев выйдет в следующем году на <STRONG>Frontiers</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.01.2009 news PRIMAL FEAR начинают сведение
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>PRIMAL FEAR</STRONG> начнут сведение своего нового альбома <STRONG>"16.6: (Before The Devil Knows You're Dead)"</STRONG> 5 января в студии <STRONG>House Of Music</STRONG> с <STRONG>Dennis Ward</STRONG>&nbsp;и <B>Achim K&#246;hler</B>. Пластинка должна выйти в мае на <STRONG>Frontiers</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 03.03.2009 news Студио репортаж PRIMAL FEAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый из серии репортажей из студии, где записывался новый альбом <STRONG>PRIMAL FE</STRONG>AR <STRONG>"16.6: (Before The Devil Knows You're Dead)", </STRONG>можно посмотреть ниже:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/GsPYaggSey4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/GsPYaggSey4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.03.2009 news Magnus Karlsson играет, а Ralf Scheepers поёт
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Репортаж из студии, где<STRONG> PRIMAL FEAR</STRONG> записывают новый альбом, можно посмотреть ниже. Короткое интервью, которое взял<STRONG> Scheepers</STRONG> у нового гитариста <STRONG>Magnus Karlsson</STRONG>, и кадры записи гитары и вокала.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/HZ3sqbmT2bw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/HZ3sqbmT2bw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.03.2009 news PRIMAL FEAR в конце мая
+
+<P>Новый альбом<STRONG> PRIMAL FEAR "16.6" </STRONG>выйдет на Frontiers 22 мая на <STRONG>Frontiers</STRONG>. Трэк-лист:</P>
+<P>01. <B>Before The Devil Knows You're Dead</B><BR>02. <B>Riding The Eagle</B><BR>03. <B>Six Times Dead (16.6)</B><BR>04. <B>Black Rain</B><BR>05. <B>Under The Radar</B><BR>06. <B>5.0 / Torn</B><BR>07. <B>Soar</B><BR>08. <B>Killbound</B><BR>09. <B>No Smoke Without Fire</B><BR>10. <B>Night After Night</B><BR>11. <B>Smith & Wesson</B><BR>12. <B>The Exorcist</B><BR>13. <B>Hands Of Time</B><BR><BR>Limited edition bonus tracks:<BR>14. <B>Cry Havoc</B><BR>15. <B>Scream</B><BR>16. <B>Six Times Dead (16.6)</B> (video)<BR><BR>Japanese bonus track:<BR>17. <B>No Smoke Without Fire</B> (remix)</P>
+Автор: Vit Belov
+
+### 28.03.2009 news PRIMAL FEAR опубликовали обложку
+
+<P>Новый альбом <STRONG>PRIMAL FEAR "16.6"</STRONG> выйдет 22 мая на <STRONG>Frontiers</STRONG>. Группа опубликовала обложку этой работы.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.03/13865.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 09.05.2009 news Новое видео PRIMAL FEAR
+
+<P>Видеоклип на песню <STRONG>"Six Times Dead (16.6)" </STRONG>с выходящего альбома <STRONG>PRIMAL FEAR</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=56976122">Primal Fear - Six Times Dead (16.6)</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=56976122,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=56976122,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.05.2009 news PRIMAL FEAR порадовали Швецию
+
+<P>Новый альбом <STRONG>PRIMAL FEAR</STRONG> <STRONG>"16.6: (Before The Devil Knows You're Dead)" </STRONG>попал в чарты в Швеции на 79-ое место.</P>
+Автор: Vit Belov
+
+### 09.06.2009 news PRIMAL FEAR понравились и японцам
+
+<P>Новый альбом <STRONG>PRIMAL FEAR "16.6 (Before The Devil Knows You're Dead)" </STRONG>попал в чарты и в Японии. Группа стартовала с 29-ой позиции.</P>
+Автор: Vit Belov
+
+### 19.07.2009 reviews Хороший альбом хорошей группы
+
+<P>Немецкая команда PRIMAL FEAR ходит в фаворитах у отечественного слушателя. Их напористый, несколько прямолинейный, но мелодичный heavy-power-metal, снабжённый известными именами музыкантов, вызывает неподдельную симпатию у упёртых фанатов стиля. Потребители компакт-дисков с жаром обсуждают достоинства и недостатки каждого следующего альбома группы, но молодой фэн на концерты немцев не ходит.</P>
+<P>Для тех, кто в танке сообщу, что обозреваемую группу создал Mat Sinner из одноимённой группы SINNER, призвав под свои знамёна бывшего вокалиста GAMMA RAY Ralf Scheepers. Как мы уже сообщали в предыдущих сериях, все альбомы, начиная со второго и заканчивая предпредпоследним “Seven Seals”, не представляли большого интереса. «Мясной» прямолинейный heavy с похожими друг на друга песнями демонстрировал явное нежелание музыкантов отвлекаться от наследия JUDAS PRIEST. На вышеупомянутом альбоме “Seven Seals” немцы решили немного «поэкспериментировать» и им это с блеском удалось. Тот альбом стал самым тяжёлым в дискографии. Со следующим “New Religion” группа перешла на hard-rock лэйбл Frontiers и добавила в музыку некие эпические моменты, пригласив для совместной работы вокалистку EPICA. Теперь на новейшем альбоме также видна мысль создателя. В группе появился новый гитарист Magnus Karlsson, известный по сессионной работе с многими современными вокалистами и являющийся мастером «мелодичного слова». Обрадую всех, PRIMAL FEAR не превратились в филиал Allen/Lande, но несколько бесспорных хитов Magnus подкинул. Отмечу, что PRIMAL FEAR страдают одной болезнью, все их альбомы слишком длинные. Где-то половину вещей-хитов они разбрасывают по пластинке, как правило в начало и конец, а в середине находится качественный и качовый порожняк, который слушать можно, но из-за которого практически ни один альбом группы не дотягивает до статуса шедевра. В этот раз то же. Первые две заводные вещи, неплохой полумедляк с арабскими мотивами, мелодичная вещь 5.0/Torn, а дальше практически до конца пустота.</P>
+<P>Хороший альбом хорошей группы, больше и не скажешь. Mat Sinner удаётся вливать некоторую свежую струю в каждую пластинку, но посмотрим, насколько у него хватит сил и энтузиазма.</P>
+Автор: Vit Belov
+
+### 04.08.2009 news PRIMAL FEAR планируют DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В ближайшем грандиозном туре по всему миру <STRONG>PRIMAL FEAR</STRONG> собираются снимать некоторые отрывки тремя камерами. Также будет отснято шоу в Сан-Паулу режиссёром <STRONG>Patrick Kolb</STRONG>. Все эти материалы должны попасть на DVD, которое выйдет в 2010 году. </FONT></P>
+Автор: Vit Belov
+
+### 05.08.2009 news Ещё один проект с Michael Kiske для Frontiers Records
+
+<P><STRONG>Frontiers Records</STRONG> сообщали о создании нового студийного проекта, в котором примут участие бывший вокалист <STRONG>HELLOWEEN Michael Kiske</STRONG> и&nbsp;певица <STRONG>Amanda Somerville. </STRONG>Музыку для их дуэта сочинят <STRONG>Mat Sinner</STRONG> (<B>PRIMAL FEAR</B>, <B>SINNER</B>)&nbsp;и <B>Magnus Karlsson</B> (<B>PLACE VENDOME</B>, <B>PRIMAL FEAR</B>). Несколько песен сочинит и лидер <STRONG>AFTER FOREVER</STRONG> <STRONG>Sander Gommans. </STRONG>Пластинка выйдет в начале 2010 года.</P>
+Автор: Vit Belov
+
+### 09.08.2009 news Mat Sinner продолжает экспансию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Совсем недавно мы сообщали о новом проекте <STRONG>Mat Sinner</STRONG> с участием <STRONG>Michael Kiske</STRONG>. В эти же дни активизировал свою работу над сольником вокалист <STRONG>PRIMAL FEAR</STRONG> <STRONG>Ralf Scheepers, </STRONG>который также сочиняет материал в компании с <STRONG>Mat</STRONG>. Альбом выйдет в следующем году.</FONT></P>
+Автор: Vit Belov
+
+### 11.11.2009 news PRIMAL FEAR разоблачают
+
+<P><STRONG>PRIMAL FEAR</STRONG> выступили с заявлением, в котором отрицают свою причастность к вышедшему на лэйбле <STRONG>IDS </STRONG>сборнику "<STRONG>Eye Of An Eagle</STRONG>". Пластинка была выпущена по лицензии <STRONG>Nuclear Blast</STRONG> и содержит лишь 7 трэков. Немецкие музыканты призывают отказаться от покупки этого CD, отказывая ему в звании альбома <STRONG>PRIMAL FEAR</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.01.2010 news PRIMAL FEAR подготовили концертник
+
+<P><STRONG>PRIMAL FEAR</STRONG> сообщают о том, что скоро подпишут контракт на выпуск нового концертного DVD <STRONG>'16.6 - All Over The World' </STRONG>и первого концертного альбома <STRONG>'Live In The USA'. </STRONG>Оба релиза появятся в продаже летом.</P>
+Автор: Vit Belov
+
+### 14.09.2010 news PRIMAL FEAR потеряли гитариста
+
+<P><IMG height=218 alt="" hspace=0 src="/images/news_rus/2010.09/17179.jpg" width=220 align=right border=5>Гитарист <STRONG>Henny Wolter </STRONG>сообщил в своём блоге о том, что покинул <STRONG>PRIMAL FEAR</STRONG>. Основной причиной этого музыкант назвал то, что "<EM>PRIMAL FEAR больше не являются группой</EM>".</P>
+<P>Сама группа подтвердила это сообщение, заявив, что<STRONG> Henny</STRONG> не в <STRONG>PRIMAL FEAR</STRONG> уже семь недель. В настоящее время немцы готовятся к туру по Европе и говорят, что в группе будет пять участников. Имя пятого пока широкой публике не известно.</P>
+Автор: Vit Belov
+
+### 11.05.2011 news Ralf Scheepers и Mike Vescera споют в новом мюзикле
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежский музыкант и композитор <STRONG>Andreas Nergard </STRONG>сочинил металический мюзикл под названием <STRONG>"Memorial For A Wish"</STRONG>. Материал записывается в <STRONG>Trondheim Studio </STRONG>с продюсером <STRONG>Conor Patrick </STRONG>и выйдет двумя альбомами в 2011-2012 годах. История повествует о реальном событии, случившемся в Дублине в 1890 году. Человек по имени <STRONG>Peter O'Donnell </STRONG>был несправедливо осуждён на 20 лет за ограбление,&nbsp;рассказ начинается, когда он выходит из тюрьмы, полностью отсидев&nbsp;свой срок. Норвежцу удалось собрать некоторое количество известных вокалистов:</FONT></P>
+<P>* <B>Ralf Scheepers</B> (PRIMAL FEAR, GAMMA RAY) <BR>* <B>Tony Mills</B> (TNT, SHY) <BR>* <B>Mike Vescera</B> (YNGWIE MALMSTEEN, LOUDNESS)<BR>* <B>&#197;ge Sten Nilsen</B> (WIG WAM)<BR>* <B>Goran Edman</B> (YNGWIE MALMSTEEN, JOHN NORUM)<BR>* <B>Helge Engelke</B> (FAIR WARNING)<BR>* <B>David Reece</B> (BANGALORE CHOIR, ACCEPT)&nbsp;</P>
+<P><center><IMG height=400 src="/images/news_rus/2011.05/19439.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 09.07.2011 news PRIMAL FEAR придумали название
+
+<P>Новый альбом <STRONG>PRIMAL FEAR</STRONG> получил оригинальное название <STRONG>"Unbreakable".</STRONG> Коллектив утверждает, что его выбрали сами фэны.<STRONG> </STRONG>Пластинка выйдет в начале следующего года на <STRONG>Frontiers</STRONG>. Группа войдёт в <STRONG>House Of Music </STRONG>завтра и начнёт запись этой работы. Продюсером вновь выступит басист <STRONG>Mat Sinner, </STRONG>а инженером <STRONG>Achim K&#246;hler</STRONG> (<B>EDGUY</B>, <B>MASTERPLAN</B>). Названия песен: <STRONG>"Give 'Em Hell"</STRONG>, <B>"And There Was Silence"</B>, <B>"Where Angels Die"</B>, <B>"Born Again"</B>&nbsp;и <B>"Strike"</B>.</P>
+<P><center><IMG height=254 src="/images/news_rus/2011.07/20028.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 18.11.2011 news Новый альбом PRIMAL FEAR
+
+<P><IMG height=336 alt="" hspace=0 src="/images/news_rus/2011.11/22068.jpg" width=336 align=right border=0>Новая пластинка немцев <STRONG>PRIMAL FEAR "Unbreakable"</STRONG> выходит в начале 2012 года на <STRONG>Frontiers</STRONG>. Альбом был записан в студии House Of Music совместными усилиями басиста <STRONG>Mat Sinner</STRONG> и продюсера <STRONG>Achim Kohler</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>Unbreakable (Part 1)<BR></STRONG>02. <STRONG>Strike<BR></STRONG>03. <STRONG>Give 'Em Hell</STRONG><BR>04. <STRONG>Bad Guys Wear Black</STRONG><BR>05. <STRONG>And There Was Silence</STRONG><BR>06. <STRONG>Metal Nation</STRONG><BR>07. <STRONG>Where Angels Die<BR></STRONG>08. <STRONG>Unbreakable (Part 2)<BR></STRONG>09. <STRONG>Marching Again<BR></STRONG>10. <STRONG>Born Again<BR></STRONG>11. <STRONG>Blaze Of Glory<BR></STRONG>12. <STRONG>Conviction<BR></STRONG>13. <STRONG>Night Of The Jumps</STRONG> (Bonus Track)*<BR>14. <STRONG>Bad Guys Wear Black</STRONG> (Video)*</P>
+Автор: Vit Belov
+
+### 07.12.2011 news Новое видео от PRIMAL FEAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>PRIMAL FEAR</STRONG> на песню <STRONG>"Bad Guys Wear Black" </STRONG>можно посмотреть ниже. Трек взят с нового альбома группы <STRONG>"Unbreakable"</STRONG>, которая выйдет 24 января на <STRONG>Frontiers</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/GptMvBrchkw?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/GptMvBrchkw?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.09.2012 news Mat Sinner &quot;мутит&quot; новый проект
+
+<P>Басист <STRONG>Mat Sinner (PRIMAL FEAR, SINNER)</STRONG> объявил о создании нового пока не названного совместного проекта с вокалисто <STRONG>SYMPHONY X Russel Allen</STRONG>. Новообразованная группа сейчас в студии, где записывает альбом, который выйдет в 2013 году на <STRONG>Frontiers</STRONG>. Сведением будет заниматься давний друг Мэта <STRONG>Achim Kohler.</STRONG></P>
+<P>В записи примут гостевое участие <STRONG>Roland Grapow</STRONG> (guitar; <B>MASTERPLAN</B>, <B>HELLOWEEN</B>), <B>Randy Black</B> (drums; <B>PRIMAL FEAR</B>), <B>Alessandro Del Vecchio</B> (keyboards, vocals)&nbsp;и <B>Alexander Beyrodt</B> (guitar; <B>PRIMAL FEAR</B>, <B>VOODOO CIRCLE</B>). </P>
+<P>Продвинутые любители музыки могут посмотреть клип, где записываются барабаны для этого альбома.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/OuWo4ISXNsY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.02.2014 news PRIMAL FEAR: клип &quot;King For A Day&quot;
+
+<P><STRONG>PRIMAL FEAR</STRONG> выпустили видео на песню <STRONG>"King For&nbsp;A Day"</STRONG>. Данный трек можно найти на последнем альбоме&nbsp;группы&nbsp;&nbsp;<STRONG>"Delivering The Black"</STRONG>, который вышел 24 января сего года на <STRONG>Frontiers Records</STRONG>.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/4hKantlTAgY" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 09.01.2016 news Новый альбом PRIMAL FEAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом немцев<STRONG> PRIMAL FEAR "Rulebreaker"</STRONG> выходит 22 января на <STRONG>Frontiers</STRONG> и<STRONG> Irond</STRONG> в России. Лимитированное фирменное digipak издание будет содержать два бонуса и DVD с двумя видео и 'making of'. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>“Angels Of Mercy”<BR>“The End Is Near”<BR>“Bullets & Tears”<BR>“Rulebreaker”<BR>“In Metal We Trust”<BR>“We Walk Without Fear”<BR>“At War With The World”<BR>“The Devil In Me; Constant Heart”<BR>“The Sky Is Burning”<BR>“Raving Mad; Final Call” (Bonus Track - deluxe edition only)<BR>“Don't Say You've Never Been Warned” (Bonus Track- deluxe edition only)</P>
+<P>DVD (Deluxe Edition Only):<BR>“The End Is Near” (Video Clip)<BR>“Angels Of Mercy” (Video Clip)<BR>Making Of Rulebreaker</P>
+<P>Bullets And Tears:</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/Li_5KB5QuW4" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></FONT>
+<P>The End Is Near video:</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/MLRjJQCqCeo" frameBorder=0 width=600 allowfullscreen></IFRAME></CENTER></CENTER>
+Автор: Vit Belov
+
+### 20.01.2016 news Новое видео PRIMAL FEAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>PRIMAL FEAR</STRONG> на песню "<STRONG>Angel Of Mercy</STRONG>" выложен в сеть. Трек взят с новейшего альбома немцев "<STRONG>Rulebreaker</STRONG>", который выйдет 26 января в России на <STRONG>Irond </STRONG>по лицензии <STRONG>Frontiers Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/Ghvg0wftEnc" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.01.2016 reviews Небольшая фишка нового альбома PRIMAL FEAR
+
+<P>Немецкий коллектив PRIMAL FEAR, зародившийся на наших глазах, как проект Mat Sinner для бывшего вокалиста GAMMA RAY Ralf Scheepers, выпустил в начале года уже одиннадцатый альбом. По крайней мере в нашей стране, все уже забыли о «продюсерском» происхождении коллектива, и PRIMAL FEAR давно уже занимают достойное место в ряду лучших немецких heavy power metal коллективов.</P>
+<P>Тевтонский heavy metal не является чем-то гениальным или прогрессивно сложным, но играть его хорошо умеют единицы. Забавно, что в PRIMAL FEAR, которые теперь имеют в составе трёх гитаристов, вернулся Tom Naumann, а Magnus Karlsson выгонять не стали, практически и состоит из таких единиц, которые хоть каждый год могут выпускать подобные альбомы. Кажется, что вся продукция этой дружной семьи должна быть похожа одна на другую, но каким-то чудом Mat Sinner и Ко умудряются находить собственную фишку в каждой вышедшей работе. В этот раз это, безусловно, соло-гитара, сорвавшаяся с цепи чёткого, как метроном, немецкого ритма, и выдающая неоклассические пассажи в каждой песне. Забавно, что при этом не потеряна прямолинейность и жёсткость звучания. В подобном сочетании “Rulebreaker” отправляет нас к творчеству ACCEPT, которые довольно часто использовали подобный коктейль в собственной музыке. </P>
+<P>Очередной раз PRIMAL FEAR порадовали. Наплевать, на любые заимствования или статус. Мне, как нравились эти немцы с самого первого альбома, так и продолжают нравится. А то, что коллектив немного «буксанул» в начале нулевых уже давно забылось.</P>
+<P>Приобретайте в магазине <A href="http://escapemind.ru/goods/PRIMAL-FEAR-Rulebreaker">Escapemind.ru</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Возрадуйтесь, паверщики: Primal Fear едет в Москву!

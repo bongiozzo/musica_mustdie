@@ -58,6 +58,27 @@ Bertrand F. (Drums)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.11.2001 reviews Умирать, так элегантно
+
+<p>Умирать, так элегантно. То есть, с музыкой. Красивой, мелодично-депрессивной. Лично мне эта музыка представляется смесью Septic Flesh и Sadness. Надрывно-печальный чистый вокал сменяется мощным гроулингом. Мрачный готический материал французской группы, где постоянно солирующая лидер-гитара создает необыкновенную красоту музыкального материала несмотря на его меланхолию. Все вместе: мелодичные риффы, новаторская ритм-секция и чарующие вокализации в депрессивных тонах настраивают слушателя на некоторую тоску и грусть, но в светлых настроениях. Лирика основывается на темных мыслях, смертельных муках и сексуальных изощрениях. Прогрессивный и мелодичный подход к записи не оставляет сомнения в профессионализме музыкантов. Страдание, одиночество, меланхолия и отчаяние исходят от этого альбома. Очень приятная и качественная музыка. Для любителей романтического dark metal.</p>
+
+Автор: Dimas
+
+### 01.02.2002 news Новости из Франции
+
+<p>Немного печальные новости из Франции. Из группы KEMET ушли гитарист Gilles и драммер Bertrand. Но на их место уже набраны новобранцы в лице гитариста Christophe и драммера Serge, которые уже успели поиграть в нескольких группах. Новые музыканты KEMET уже полностью готовы к работе и учат новые вещи которые будут включены в новую запись группы, которая уже тоже не за горами. Новый альбом уже полностью написан и сейчас идет работа над аранжировками. Сейчас группа срочно ищет лэйбл для поддержки своего второго релиза.</p>
+
+Автор: Dimas
+
+### 01.02.2002 news News from KEMET
+
+<p>We have the sad news to announce that Gilles (guitar) and Bertrand (drums) have made their decisions to give an end to their participation to the band. New members are already working hard to learn the new tracks, to be included on the next recording. Christophe (guitar) and Serge (drums) has been active into several acts. The first rehearsings with the new members are great so far, since the band manages at its best to rehearse thrice a week in its new room.<BR> Kemet is already looking for a deal with a label ready to support the 2nd release of the band. New album is fully composed (the band still working on the arrangements).</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

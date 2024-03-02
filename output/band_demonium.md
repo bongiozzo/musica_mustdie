@@ -26,6 +26,28 @@ Recorded, Mixed and Mastered at Blacklight Studio, Kiev, Ukraine in February 200
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2009 news Новинки MUSICA PRODUCTION
+
+<P><SPAN class=tit1><SPAN class=tit2></SPAN><SPAN class=tit2><IMG height=392 alt="" hspace=0 src="/images/news_rus/2009.11/15322.jpg" width=400 align=right border=5></SPAN>MUSICA PRODUCTION представляет</SPAN></P>
+<P><EM>Дата релиза: 20 октября</EM></P>
+<P>Две убийственные новинки в брутальных стилях: <STRONG>SERPENS - 'Nox Irae'</STRONG> и <STRONG>DEMONIUM "Nothing Is Truth Everything Is Allowed"</STRONG></P>
+<P><SPAN class=tit2>MP0036 SERPENS "Nox Irae"</P>
+<P></SPAN>-black-metal; Долгожданный дебют от группы из Санкт-Петербурга, основанной в 1996 году. Русскоязычный провокативный первородный black-metal, которые отражает весь ужас нашего существования в современном мире. Великолепная реализация и бескомпромиссный материал. Трэк-лист:</P>
+<P>1. <STRONG>В Вечность</STRONG><BR>2. <STRONG>Инициация Смерти</STRONG><BR>3. <STRONG>Наместник Вселенной</STRONG><BR>4. <STRONG>Nox Irae</STRONG><BR>5. <STRONG>Сумерки<BR></STRONG>6. <STRONG>На Костёр</STRONG><BR>7. <STRONG>Проклинающий<BR></STRONG>8. <STRONG>В Образе Змея</STRONG></P>
+<P>Produced By <STRONG>Serpens</STRONG>. Recorded and Mixed at <STRONG>Black Studio</STRONG>, SPb, Russia.<BR>Recording engineer: <STRONG>Denis Devichensky</STRONG><BR>All Music and Lyrics by <STRONG>SERPENS</STRONG><BR>Cover and Inside Artworks by<STRONG> Ksenia Storozhenko</STRONG><BR>Additional Backing vocal by <STRONG>Denis Devichensky</STRONG><BR>Keyboards by <STRONG>Denis Devichensky</STRONG></P>
+<P>MP3: <A href="/ru/band/serpens/15249/">http://musica.mustdie.ru/ru/band/serpens/15249/</A></P>
+<P><SPAN class=tit2><IMG height=395 alt="" hspace=0 src="/images/news_rus/2009.11/15323.jpg" width=400 align=left border=5>MP0037 DEMONIUM "Nothing Is Truth Everything Is Allowed"</SPAN></P>
+<P>-black-death-metal; Второй альбом группы из Херсона, Украина. Среднетемповый ритуальный black-death-metal для всех любителей BEHEMOTH. Музыка, вгоняющая в транс и уничтожающая внутри все человеческие чувства. Первородное чувство страха перед неизвестным. Трэк-лист:</P>
+<P>1. <STRONG>Amdusias Voice<BR></STRONG>2. <STRONG>Lycanthropy</STRONG><BR>3. <STRONG>Revenge</STRONG><BR>4. <STRONG>God-Guard of Puppets</STRONG><BR>5. <STRONG>The War of Heaven and Hell</STRONG><BR>6. <STRONG>Leprosy<BR></STRONG>7. <STRONG>Vicarius Filii Dei</STRONG><BR>8. <STRONG>Nine Angels Choirs</STRONG></P>
+<P>Bonus from EP "<STRONG>Mark Of Chaos</STRONG>" (2008)<BR>9. <STRONG>From Ashes To Fire From Wather To Ice<BR></STRONG>10. <STRONG>Power Of Spirit</STRONG><BR>11. <STRONG>Sinful Flesh</STRONG></P>
+<P>Recorded, Mixed and Mastered at <STRONG>Blacklight Studio</STRONG>, Kiev, Ukraine in February 2008 by <STRONG>Shaddar (SEMARGL)</STRONG></P>
+<P>MP3: <A href="/ru/band/demonium/15250/">http://musica.mustdie.ru/ru/band/demonium/15250/</A></P>
+<P>MySpace: <A href="http://www.myspace.com/demoniumhell">http://www.myspace.com/demoniumhell</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

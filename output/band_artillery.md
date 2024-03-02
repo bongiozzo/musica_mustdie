@@ -108,6 +108,115 @@ Digipak version has two bonus tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.03.2002 news ARTILLERY news
+
+<p>Danish Veteran ARTILLERY are looking for a new bassist and drummer to complete the group's line-up prior to the recording of the band's upcoming CD, which is tentatively scheduled to be released through Diehard Music in late 2002/early 2003. All interested parties should contact Diehard Music before March 22nd at telephone number +45 6617 7538 or via e-mail at diehard@diehardmusic.com, with “Artillery Feedback” in the subject box. According to Diehard, all “interesting” applicants will be invited to audition in person in Copenhagen, Denmark at a later date.</p>
+
+Автор: Dimas
+
+### 07.03.2002 news ARTILLERY в поисках
+
+<p>Ветераны датского speed-thrash metal - ARTILLERY - находятся в поисках новых барабанщика и басиста, чтобы укомплектовать состав группы к записи своего нового альбома, который предполагается к выходу в конце 2002 - начале 2003 года на Diehard Music.</p>
+
+Автор: Dimas
+
+### 18.09.2008 news ARTILLERY в студию
+
+<P>Датские трэшеры <STRONG>ARTILLERY</STRONG> войдут в студию в феврале следующего года для записи нового альбома.</P>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 20.04.2009 news Новый альбом ARTILLERY
+
+<P><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.04/13992.jpg" width=400 align=right vspace=5 border=0>Стали известны подробности о новом альбоме <STRONG>ARTILLERY</STRONG> <STRONG>"When Death Comes", </STRONG>который выйдет в июне на <STRONG>Metal Mind</STRONG>. Пластинка была записана в <STRONG>Medley Studios </STRONG>в Копенгагене с продюсером <STRONG>Soren Andersen</STRONG>. Трэк-лист:</P>
+<P>01. <B>When Death Comes</B><BR>02. <B>Upon My Cross I Crawl</B><BR>03. <B>10.000 Devils</B><BR>04. <B>Rise Above It All</B><BR>05. <B>Sandbox Philosophy</B><BR>06. <B>Delusions Of Grandeur</B><BR>07. <B>Not A Nightmare</B><BR>08. <B>Damned Religion</B><BR>09. <B>Uniform</B><BR>10. <B>The End</B><BR>11. <B>Refuse To Live - Part II*</B><BR>12. <B>Warhead*</B><BR>13. <B>Chaos Ride*</B></P>
+<P>(*) - бонус трэки для японской и диджи пак версий альбома.</P>
+Автор: Vit Belov
+
+### 19.05.2009 news Новое видео ARTILLERY
+
+<P>"<STRONG>10.000 Devils</STRONG>", новое видео от <STRONG>ARTILLERY</STRONG> можно посмотреть ниже. Трэк попадёт на выходящий пятый альбом группы "<STRONG>When Death Comes</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/TaNRi8puEjg&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/TaNRi8puEjg&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.11.2009 reviews Датчанам нужен подходящий певец
+
+<P>Ещё одной группой, которая восстала из пепла на волне лёгкого увлечения современной публики thrash-metal, стали датчане ARTILLERY. Выпустив концертный DVD, теперь дело у них дошло и до нового студийного альбома “When Death Comes”.</P>
+<P>Состав группы не претерпел изменений за одним большим исключением. В группе появился новый вокалист Soren Adamsen, известный нам по CRYSTAL EYES. К сожалению, ренессанс thrash-metal оказался несколько преувеличенным. Классика ARTILLERY выходила на Roadrunner, теперь делами группы занимаются на польском Metal Mind. 10 вещей, представленных на этом альбоме, выглядят правильно и хорошо. Неплохие соло, в меру энергичные риффы. Этот альбом мог бы получить хорошую оценку, даже несмотря на отсутствие ярких хитов. Единственной проблемой является господин Adamsen. Его голос совсем не подходит speed/thrash-metal. Он старается, но даже те песни, которые в OVERKILL, например, вытаскивает Bobby ‘Blitz’, остаются здесь без нужной поддержки. Soren пытается форсировать голос, чего-то там кричать, но всё равно понимаешь, что его место где-то в другом месте. Тоже касается и вокальных линий, которые здесь совсем не продуманы.</P>
+<P>Нельзя сказать, что этот альбом станет откровением. Поклонники стиля должны заценить, но на культурный восторг не рассчитывайте.</P>
+Автор: Vit Belov
+
+### 15.09.2010 news ARTILLERY назвали альбом
+
+<P><IMG height=234 alt="" hspace=0 src="/images/news_rus/2010.09/17186.jpg" width=350 align=right border=5>Новый альбом <STRONG>ARTILLERY</STRONG> будет называться "<STRONG>6</STRONG>".&nbsp;Работа должна выйти 21 марта на <STRONG>Metal Mind</STRONG>. Пластинка будет записываться в <STRONG>Medley Studios, </STRONG>начиная с 29 ноября. Вот названия нескольких песен: <STRONG>"Ain't Giving In"</STRONG>, <B>"Concealed In The Dark"</B>, <B>"If Only Death Was An Illusion"</B>, <B>"Monster"</B>&nbsp;и <B>"Warrior Blood"</B>. </P>
+<P>Альбом будет издан в нескольких форматах с использованием четырёх бонус-трэков: три перезаписанные вещи с первого альбома датчан <STRONG>"The Eternal War"</STRONG>, <STRONG>"Show Your Hate" </STRONG>и&nbsp;<STRONG>"The Almighty", </STRONG>а также кавер на песню<STRONG> BLACK SABBATH "Computer God".</STRONG></P>
+Автор: Vit Belov
+
+### 21.01.2011 news Обложка новой ARTILLERY
+
+<P><STRONG><IMG height=350 alt="" hspace=0 src="/images/news_rus/2011.01/18260.jpg" width=350 align=right border=0>ARTILLERY</STRONG> закончили работу над шестым альбомом <STRONG>"My Blood"</STRONG> в студии <STRONG>Medley </STRONG>в Копенгагене. Пластинка выйдет 21 марта на <STRONG>Metal Mind</STRONG>. Трэк-лист:</P>
+<P>CD:<BR>01. <B>Mi Sangre (The Blood Song)</B><BR>02. <B>Monster</B><BR>03. <B>Dark Days</B><BR>04. <B>Death Is An Illusion</B><BR>05. <B>Ain't Giving In</B><BR>06. <B>Prelude To Madness</B> <BR>07. <B>Thrasher</B> <BR>08. <B>Warrior Blood</B><BR>09. <B>Concealed In The Dark</B><BR>10. <B>End Of Eternity</B><BR>11. <B>The Great</B><BR><BR>CD digipak bonus tracks:<BR>12. <B>Show Your Hate 2011</B><BR>13. <B>Eternal War 2011</B><BR><BR>CD Japanese edition bonus track:<BR>11. <B>The Almighty 2011</B></P>
+Автор: Vit Belov
+
+### 26.02.2011 news Новый клип ARTILLERY
+
+<P>Новый ролик датчан <STRONG>ARTILLERY</STRONG> на песню <STRONG>"Warrior Blood" </STRONG>можно посмотреть ниже. Это первый сингл с нового альбома трэшеров <STRONG>"My Blood"</STRONG>, который выйдет уже в марте на <STRONG>Metal Mind</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/K8d0i3hvmuo?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/K8d0i3hvmuo?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.10.2012 news Изменения в составе датской группы ARTILLERY
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.10/24877.jpg" width=300 height=315>Вокалист <STRONG>Soren Adamsen</STRONG> принял решение покинуть ряды заслуженных трэшеров <STRONG>ARTILLERY</STRONG> по персональным причинам. Новым вокалистом группы стал 33&nbsp;летний&nbsp;<STRONG>Michael Bastholm Dahl</STRONG>&nbsp;<EM>(на фото)</EM>. <STRONG>Michael</STRONG> также является вокалистом датской хэви-метал группы <STRONG>RIPE</STRONG> (<A href="http://www.riperocks.dk/">www.riperocks.dk</A>).</P>
+<P>Вот, что говорит сам <STRONG>Michael</STRONG> по поводу своей новой работы:</P>
+<P><EM>"Единственная вещь, которую я знаю наверняка, это то, что я получил возможность присоединиться к самой легендарной трэш-металлической банде Дании. Что означает, что я готовлюсь быть и буду им -&nbsp;самым безумным и яростно орущим&nbsp;вокалистом! <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это сложная и в то же время захватывающая задача, учитывая всех тех вокалистов, что были в составе <STRONG>ARTILLERY</STRONG> до меня. </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И я чертовски сгораю от нетерпения, чтобы отправиться на концерты и выложиться там на </FONT>100% вместе с парнями из <FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ARTILLERY</STRONG></FONT>!"</EM></P>
+<P>Узнать, как звучит вокал Майкла в&nbsp;составе&nbsp;<STRONG>ARTILLERY</STRONG>,&nbsp;можно прослушав перезаписанный заново, классический трек группы <STRONG>"The Almighty"</STRONG>: <A href="http://youtu.be/QW0HLZeT3oY">http://youtu.be/QW0HLZeT3oY</A></P>
+<P><STRONG>ARTILLERY</STRONG> уже начали работу над песнями для нового альбома, запись которого пройдёт в феврале 2013 года.</P>
+<P>Из других новостей:</P>
+<P>Чуть ранее группу оставил безсменный барабанщих <STRONG>Carsten Nielsen</STRONG>. Его приемником стал <STRONG>Josua Madsen</STRONG>, который последние несколько лет жил в Америке, играя в различных группах.</P>
+Автор: Headcrusher
+
+### 20.11.2013 news ARTILLERY: новый альбом &quot;Legions&quot; 26 ноября
+
+<P>26 ноября лейбл <STRONG>Metal Blade</STRONG> выпускает новый альбом датских&nbsp;трэшеров&nbsp;<STRONG>ARTILLERY</STRONG>. Диск получил название<STRONG> "Legions"</STRONG>.</P>
+<P>В недавнем интервью сайту <STRONG>StageReport.ro</STRONG>, гитарист<STRONG>&nbsp;Michael Stutzer</STRONG> сказал следующее&nbsp;о новом альбоме: <EM>"Лично я думаю, что это наш самый лучший альбом по звучанию. Он очень сырой и тяжёлый."</EM></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Chill My Bones</STRONG> | 02. <STRONG>God Feather</STRONG> | 03. <STRONG>Legions </STRONG>| 04. <STRONG>Wardrum Heartbeat</STRONG> | 05.<STRONG> Global Flatline</STRONG> | 06. <STRONG>Dies Irae</STRONG> | 07. <STRONG>Anno Requiem</STRONG> | 08. <STRONG>Enslaved To The Nether</STRONG> | 09. <STRONG>Doctor Evil</STRONG> | 10. <STRONG>Ethos Of Wrath</STRONG></P>
+<P>Официальный видеоклип на песню<STRONG> "Legions"</STRONG>, можно посмотреть по ссылке:<STRONG> <A href="http://youtu.be/sG8A0zugWmY">http://youtu.be/sG8A0zugWmY</A></STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.11/26360.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 04.02.2016 news ARTILLERY: новый альбом в марте
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Датские трэшеры <STRONG>ARTILLERY</STRONG> закончили работу над новым альбомом под названием <STRONG>"Penalty By Perceprion"</STRONG>. Его выход запланирован на 25 марта на лейбле <STRONG>Metal Blade</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А пока, оставшееся до выхода <STRONG>"Penalty By Perceprion" </STRONG>время, можно скоротать за прослушиванием новой композиции под названием <STRONG>"In Defiance Of Conformity"</STRONG> и оставив предварительный заказ на один из форматов альбома: <A href="http://www.metalblade.com/artillery/">http://www.metalblade.com/artillery/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28747.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 19.06.2016 news MYSTIC PROPHECY to tour with ARTILLERY
+
+<p>German Metallers <strong>MYSTIC PROPHECY</strong> to embark on a co-headline tour featuring <strong>ARTILLERY</strong> as special guests in Sep/Oct 2016</p><p>It is officially announced that the longstanding German Metallers, MYSTIC PROPHECY, will be on the road once again this coming September / October for a co-headline tour, named "<strong>War Brigade</strong>", with the veterans of Thrash Metal from Denmark, ARTILLERY. The tour will be taking the bands through Switzerland, Belgium, The Netherlands and Germany.</p><p>"War Brigade" Tour Dates:<br>17.9 - CH - Wetzikon - Hall Of Fame*<br>23.9 - BE - Dendermonde - Jh Zenit**<br>24.9 - DE - Oberhausen - Helvete**<br>25.9 - NL - Gorinchem - Stichting Pogo**<br>2.10 - DE - Anweiler - Rock Am Trifels*<br>21.10 - DE - Hechingen - The Ranch Festival*<br>22.10 - DE - Wiesla Rock Club*</p><p>*MP Only<br>**MP + ART</p><p>Last March both bands unleashed new offerings to the Metal universe. MYSTIC PROPHECY fired away "War Brigade", which has been critically acclaimed, released via <strong>Massacre Records</strong>. ARTILLERY sent another message of pure articulacy with "<strong>Penalty By Perception</strong>", released by <strong>Metal Blade Records</strong>.&nbsp; </p><p><center><img width="681" height="960" src="/images/news/2016.06/29408.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ARTILLERY (Дания) в Москве (27 февраля 2014)

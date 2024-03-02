@@ -28,6 +28,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.06.2012 news KING OF ASGARD закончили запись
+
+<P>Шведские викинги <STRONG>KING OF ASGARD</STRONG> закончили запись второго альбома <STRONG>"…To North" </STRONG>в студии <STRONG>Sonic Train </STRONG>с продюсером <STRONG>Andy La Rocque. </STRONG>Альбом выйдет 30 июля на<STRONG> Metal Blade</STRONG>. Трек-лист:</P>
+<P>01. <B>Intro</B><BR>02. <B>The Nine Worlds Burn</B><BR>03. <B>The Dispossessed</B><BR>04. <B>Gap of Ginnungs</B><BR>05. <B>Bound to Reunite</B><BR>06. <B>Nordvegr</B><BR>07. <B>Up on the Mountain</B><BR>08. <B>Plague-ridden Rebirth</B><BR>09. <B>Harvest (The End)</B><BR>10. <B>…to North</B><BR>11. <B>Vinterskugge</B> (European digipack bonus track)</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Zl6iXQrWFB4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

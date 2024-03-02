@@ -44,6 +44,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.09.2011 news ONE WITHOUT на Wormholedeath
+
+<P><IMG height=435 alt="" hspace=0 src="/images/news_rus/2011.09/20880.jpg" width=436 align=right border=0>Шведская modern-metal группа <STRONG>ONE WITHOUT</STRONG> заключила контракт с<STRONG> Wormholedeath</STRONG>, подразделением итальянского значка<STRONG> Aural Music</STRONG>. Второй альбом коллектива "<STRONG>Sweet Relief</STRONG>" выйдет 19 октября. Трек-лист:</P>
+<P>1. <STRONG>Hunger&nbsp;</STRONG> 04:17 <BR>2. <STRONG>Forget Your Pride</STRONG>&nbsp; 03:23 <BR>3. <STRONG>Persistent</STRONG>&nbsp; 02:31&nbsp; <BR>4. <STRONG>Catatonic</STRONG>&nbsp; 04:24 <BR>5.<STRONG> Accusing Eyes</STRONG>&nbsp; 03:34&nbsp;&nbsp; <BR>6. <STRONG>Souls of Thousands</STRONG>&nbsp; 04:12 <BR>7. <STRONG>Sweet Relief</STRONG>&nbsp; 03:44 <BR>8. <STRONG>Spit it Out</STRONG>&nbsp; 03:27&nbsp; <BR>9. <STRONG>Nothing to You</STRONG>&nbsp; 03:46&nbsp; <BR>10. <STRONG>Burned Once Again</STRONG>&nbsp; 03:17 <BR>11. <STRONG>Pretender&nbsp;</STRONG> 03:44 <BR>12. <STRONG>A Bright New Insight</STRONG>&nbsp; 04:33<BR>13. <STRONG>Open Wound</STRONG>&nbsp; 03:09&nbsp; <BR>14. <STRONG>Burning with your Hopes and Dreams</STRONG>&nbsp; 03:25&nbsp; <BR>15. <STRONG>Leaving Traces</STRONG>&nbsp; 04:05&nbsp; <BR>16. <STRONG>Stained with your Words</STRONG>&nbsp; 04:22&nbsp; <BR>17. <STRONG>This is War</STRONG>&nbsp; 04:40 </P>
+<P><STRONG>Myspace</STRONG>: <A href="http://www.myspace.com/onewithoutsweden">www.myspace.com/onewithoutsweden</A> </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

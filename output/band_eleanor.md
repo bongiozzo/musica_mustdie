@@ -20,6 +20,19 @@ female fronted gothic metal from Japan
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.06.2016 news Новый альбом ELEANOR записан с Alex Krull
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Японская gothic metal команда с женским вокалом <strong>ELEANOR</strong> закончила запись третьего альбома <strong>"Celestial Nocturne"</strong> в студии<strong> Alex Krull</strong> (LEAVES' EYES, ATROCITY) <strong>Mastersound</strong>. CD выйдет на японском лэйбле<strong> Rubicon</strong>.</font></p><p><center><img width="400" height="200" src="/images/news_rus/2016.06/29433.jpg" border="0"></p><p><center><iframe width="812" height="456" src="https://www.youtube.com/embed/pHDuUgndelU" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 22.06.2016 news ELEANOR finished work with Alex Krull
+
+<p>Japanese gothic metal band with female vocals <strong>ELEANOR</strong> finished recording their third album, "<strong>Celestial Nocturne</strong>" in the studios of<strong> Alex Krull</strong> (LEAVES' EYES, ATROCITY) <strong>Mastersound</strong>. CD will be released on the Japanese label <strong>Rubicon</strong>.</p><p><center><img width="400" height="200" src="/images/news_rus/2016.06/29433.jpg" border="0"><p></p><p><center><iframe width="812" height="456" src="https://www.youtube.com/embed/pHDuUgndelU" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

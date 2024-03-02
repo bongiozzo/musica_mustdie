@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.09.2016 news NETHERLANDS опубликовали клип
+
+<p>Новый альбом <strong>NETHERLANDS "Audubon"</strong> вышел 26 августа на<strong> Prosthetic records</strong>. Видео-клип на композицию "<strong>In Cyan</strong>" можно посмотреть ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/MbTBZk-PvHw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 07.09.2016 news NETHERLANDS published video
+
+<p>New album of <strong>NETHERLANDS "Audubon"</strong> was released on 26 August on <strong>Prosthetic records</strong>. Video clip for the song "<strong>In Cyan</strong>" can be viewed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/MbTBZk-PvHw" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

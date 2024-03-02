@@ -93,6 +93,33 @@ Death from Poland
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.05.1999 reviews 
+
+<p>Ещё один альбом в стиле brutal-death. И снова польская банда. Начало этого альбома впечатляет. Мощный, упругий звук в сочетании с безумствующей ритм-секцией и нестандартными ходами. Что-то напоминающее CARCASS. Но, вторая половина альбома портит всё создавшееся о нём по первым вещам впечатление. В чём же дело, подумал я. И оказалось, что первые двадцать минут которые мне очень понравились - это материал недавно записанный группой. А то, что к нему дописано - это материал записанный больше года назад. Зачем нужно было их сливать, два таких совершенно разных по восприятию материала, совершенно непонятно. Лучше было бы их разделить на два мини-альбома. Другое дело, что это менее экономично. Но каково слушателю. Тосковать к концу альбома?</p>
+
+Автор: Dimas
+
+### 12.08.2002 news THRASH&#39;EM ALL FESTIVAL 2002 ...
+
+<p>MONSTROSITY, VOMITORY, TRAUMA, SCEPTIC, LOST SOUL, DISSENTER & CONTEMPT <BR><BR> 1.10. WARSZAWA - Proxima <BR> 2.10. LУDZ - Dekompresja <BR> 3.10. POZNAN - Eskulap <BR> 4.10. WROCLAW <BR> 5.10. KATOWICE - Mega Club <BR> 6.10. KRAKУW - Rotunda <BR> 7.10. RZESZУW <BR> 8.10. LUBLIN - Graffiti <BR> 9.10. GDANSK - Kwadratowa <BR> 10.10. OLSZTYN - Come In</p>
+
+Автор: Yermola
+
+### 10.04.2006 news TRAUMA новый альбом  и миньон!
+
+<P>20&nbsp; мая польские детстеры&nbsp; <STRONG>TRAUMA </STRONG>войдут в студию <STRONG>Herz </STRONG>для записи новго альбома под руководством братьев&nbsp; <STRONG>Wiesіawscy</STRONG>. Там они планируют записать песни для нового альбома и для нового MCD!&nbsp; МСD будет выпущен 25 августа и на него&nbsp; войдут&nbsp; кроме оригинального материала группы два кавера и видео на песню&nbsp; “<STRONG>Elegy of Doom</STRONG>”&nbsp; с альбома “<STRONG>Determination</STRONG>”.&nbsp; Полноформатный альбом выйдет в феврале следующего года.</P>
+Автор: Bizarre
+
+### 09.01.2012 news Новый альбом TRAUMA
+
+<P><IMG height=191 alt="" hspace=0 src="/images/news_rus/2012.01/22571.jpg" width=400 align=right border=0>Поляки <STRONG>TRAUMA</STRONG> назвали свой новый альбома "<STRONG>Karma Obscura</STRONG>". Пластинка была записана в знаменитой студии<STRONG> Herz</STRONG> прошлым летом. Обложку нарисовал <STRONG>Mentalporn (DEATHSTARS, BEHEMOTH)</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Prologue<BR></STRONG>2. <STRONG>Reneval Through Collapse</STRONG><BR>3. <STRONG>After Death<BR></STRONG>4. <STRONG>The Nightmare Of Your God<BR></STRONG>5. <STRONG>Veil Of Obliteration<BR></STRONG>6. <STRONG>Renegade<BR></STRONG>7. <STRONG>Spiral Of Extinction <BR></STRONG>8. <STRONG>The Edge Of Depravity<BR></STRONG>9.<STRONG> The Awakening</STRONG></P>
+<P>Альбом выйдет весной на <STRONG>Witching Hour</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

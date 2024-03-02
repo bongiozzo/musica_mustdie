@@ -12,6 +12,21 @@ War Black Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.07.2000 reviews True-black-metal среднего уровня
+
+<p>True-black-metal среднего уровня. Довольно неплохой. Грязноватый немного, но это издержки андерграунда. Да и звук не очень ровный, плавающий по уровням от одной вещи к другой. Такое впечатление, что альбом записывался в нескольких студиях с разной настройкой. Оригинальности, естественно никакой. Немного монотонная, слегка мелодичная гитарная жужжалка. Иногда интересно. Группе хорошо удаются как быстрые бласт-битовые партии, так и медленные проходы-вступления. А вообще, довольно много есть альбомов получше этого. Поэтому рекомендовать его можно только меломанам или особо страстным фанатам воинственного black-metal.</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews Sympho-black-metal average level
+
+<p>Sympho-black-metal average level. Rather quite good. Dirty it is a little, but it is costs of undergrowned. And note not so equal, floating on levels from one thing to other. Such impression, that the album entered the name in several studios with miscellaneous set-up. Originality naturally any. Little bit monotonic, slightly melodious guitar beeline. Sometimes interestingly. It manage well to group both fast blast-bit crews, and sluggish passes - introductions. And in general, is of albums is better it very much. Therefore to recommend it it is possible only for music fans or apart passion fans militant black-metal.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

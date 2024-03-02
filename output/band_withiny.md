@@ -8,6 +8,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2003 news Дебютник WITHIN Y
+
+<DIV id=0></DIV><BR><SPAN id=hbblock>
+<DIV id=0></DIV><SPAN id=hbblock>
+<DIV id=0></DIV><SPAN id=hbblock>
+<P><LABEL id=HbSession SessionId="3521479943">Шведские мелодик-дэтстеры <B>WITHIN Y</B>, в составе которых значится бывший ударник <B>GARDENIAN</B> <B>Thim Blom, </B>готовят к выходу 9 февраля 2004 года на <B>Karmageddon Media</B> (бывший <B>Hammerheart Records</B>) свой дебютный альбом <B>"Extended Mental Dimensions". </B>В альбом войдут следующие вещи:</LABEL></P>
+<P><LABEL SessionId="591078552">1. Lost in Solitude <BR>2. God in Silence <BR>3. Remains of a Shattered Illusion <BR>4. Things <BR>5. Injection <BR>6. Face Down <BR>7. Behold <BR>8. Silently Leaving <BR>9. Feeble and Weak <BR>10. Sacred Lies </LABEL></P></SPAN></SPAN></SPAN>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

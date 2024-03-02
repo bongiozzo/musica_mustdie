@@ -229,6 +229,57 @@ Steve DiGiorgio: bass
 * C группой "Куприй, Виталий" Artension keyboardist
 * C группой "Ring of Fire" Keyboardist
 
+## Публикации
+
+### 05.10.1999 news 
+
+<p>Royal Hunt нашли замену Ди Си Куперу. Это Джон Уэст, известный по работе с Artension. Новый альбом "Fear" выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 07.04.2000 reviews 
+
+<p>Великолепно, феерично. Лучшая и, к сожалению, последняя пластинка Artension. Отличный, завораживающий прогрессив-металл. Обалденные клавиши нашего земляка Виталия Куприя, на редкость подходящий вокал Джона Уэста (Royal Hunt), очень хорошая работа остальных музыкантов. Прогрессивно-сложные мелодии не дают оторваться от приёмника, перед которым ты замираешь и готов сидеть весь день. Отличная звуковая реализация не оставляет никаких вопросов ни к музыкантам, ни к инженерам. Эмоции меня переполняют, это моя любимая пластинка на ближайшее время. Советую послушать и купить всем любителям пауэр-прогрессив, да и остальным тоже не помешает ознакомится, так как такие работы редкость в наши дни, когда прилавки завалены дешёвым ширпотребом.</p>
+
+Автор: Vit Belov
+
+### 28.10.2001 news Священные тропы Виталия Куприя...
+
+<p>Frontiers Records и Now & Then Productions подписали мульти-альбомный контракт с "ARTENSION"!!! Первый блин этого сотрудничества выйдет в виде альбома "Sacred Pathways" уже 14-го января. Трек-лист: <BR><BR> 01. Voyage To Nasca (instrumental) <BR> 02. Your Victory <BR> 03. Running Out Of Time <BR> 04. Sacred Pathways <BR> 05. Silent Temple (instrumental) <BR> 06. The Emperor <BR> 07. Nightmare <BR> 08. The Killing <BR> 09. The Calm Before The Storm <BR> 10. March To Ruin (instrumental) <BR> 11. Flower Of The Orient <BR> 12. Nightmare (radio edit)<BR> <BR> На альбоме "ARTENSION" предстанут в классическом составе: Виталий Куприй (клавиши), John West (вокал), Roger Staffelbach (гитара), Mike Terrana (барабаны), и Kevin Chown (басс). Артворк ковера выполнит Eric Philippe (RHAPSODY, RIOT, RING OF FIRE).</p>
+
+Автор: Yermola
+
+### 28.10.2001 news Sacred Pathways is a very special album for ARTENSION ...
+
+<p>Frontiers Records and Now & Then Productions are glad to announce that a multi album licensing deal has been struck for Europe with ARTENSION. The first fruit of this new cooperation will be the European release on January 14th of the band's fifth studio album entitled Sacred Pathways. The final track listing shall be as follows: <BR><BR> 01. Voyage To Nasca (instrumental) <BR> 02. Your Victory <BR> 03. Running Out Of Time <BR> 04. Sacred Pathways <BR> 05. Silent Temple (instrumental) <BR> 06. The Emperor <BR> 07. Nightmare <BR> 08. The Killing <BR> 09. The Calm Before The Storm <BR> 10. March To Ruin (instrumental) <BR> 11. Flower Of The Orient <BR> 12. Nightmare (radio edit)<BR><BR> Sacred Pathways is a very special album for ARTENSION as it features the reunion of the classic line-up of Vitalij Kuprij (keyboards), John West (vocals), Roger Staffelbach (guitars), Mike Terrana (drums), and Kevin Chown (bass). The cover art shall be designed by Eric Philippe (RHAPSODY, RIOT, RING OF FIRE). Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 06.02.2002 reviews Возвращение группы по тайным тропам
+
+<p>Возвращение группы по тайным тропам. ARTENSION не вытерпели бездействия и снова собрались вместе в классическом составе включающем в себя талантливых и известных музыкантов: Vitalij Kuprij (клавишные - RING OF FIRE), Kevin Chown (бас - MAGNITUDE 9), Mike Terrana (ударные - RAGE), John West (вокал - ROYAL HUNT) и Roger Staffelbach (гитары). На пятом альбоме группы нашему вниманию представлен высокотехничный neoclassic-progressive metal изобилующий клавишными соло, интенсивной и разнообразной музыкой. Очень виртуозная и серьезная музыка, но слишком автоматична и механична. Без явных всплесков и эмоциональных выбросов. Стилистически продолжается линия последнего альбома "Machines". Немного мальмстиноидный метал с упором на инструментализм и показ исполнительских навыков музыкантов. Несмотря на отличный технический результат, иногда альбом кажется прилизанным и скучновато-вымученным. По сравнению с предыдущими альбомами явный проигрыш в мелодичности, но технически он более великолепен. Безусловно, хороший и крепкий альбом, который стоит иметь в коллекции, но не для частого прослушивания.</p>
+
+Автор: Dimas
+
+### 24.01.2003 reviews Переобретение известности
+
+<p>Свой шестой альбом группа записала в прежнем классическом составе: Vitalij Kuprij (клавишные - RING OF FIRE), Kevin Chown (бас - MAGNITUDE 9), Mike Terrana (ударные - RAGE), John West (вокал - ROYAL HUNT) и Roger Staffelbach (гитары). Нашему вниманию снова представлен высокотехничный neoclassic-progressive metal с бесконечными клавишными соло, сильно отдающих классикой на фоне интенсивной и разнообразной музыки. Очень виртуозная и серьезная музыка записанная сильными талантливыми музыкантами и сделанная в духе прежних альбомов группы, особо напоминая "Phoenix Rising" и "Machines". По идее. подобный альбом должен утомлять и наскучивать, так как не содержит ничего принципиально нового, являясь похожим на все предыдущие работы группы. Однако, ARTENSION каким-то образом удается быть исключением из этого правила. Да, здесь похожие риффы и мелодии, но звучат они на редкость свежо и интересно. Мелодичная и симфоничная работа без единой ошибки на самом высшем уровне. Больше нечего добавить... Если вам нравился ARTENSION раньше, то этот альбом постигнет та же участь. Тем же, кто не знаком с этой группой, советую послушать этот альбом, который полностью отражает все предыдущее вторчество группы.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 13.01.2005 news ARTENSION на Lion Music
+
+<P><STRONG>ARTENSION</STRONG> заключили контракт на выпуска альбома с <STRONG>Lion Music</STRONG>. Новый альбом <STRONG>'Future World'</STRONG> выйдет в конце февраля.</P>
+Автор: Vit Belov
+
+### 21.11.2005 news Новый сольник Виталия Куприя
+
+<P>16 декабря выходит японское издание нового сольного альбома клавишника-виртуоза <STRONG>Виталия Куприя</STRONG> под названием <STRONG>"Revenge". </STRONG>Альбом был записан им вместе с<STRONG> </STRONG>гитаристом<STRONG> Michael Harris</STRONG>, ударником <B>John Macaluso</B>&nbsp;и басистом&nbsp;<B>Randy Coven</B>. Вокальные партии для альбома записали такие известные певцы, как <STRONG>Joe Lynn Turner</STRONG>, <B>Doogie White</B>, <B>Goran Edman</B> и <B>Apollo Papathanasio</B>. Трек-лист альбома:</P>
+<P>1. <B>Burning My Soul</B> (вокал -&nbsp;Doogie White)<BR>2. <B>I Don't Believe In Love</B> (вокал - Doogie White)<BR>3. <B>In To The Void</B> (вокал -&nbsp;Apollo Papathanasio)<BR>4. <B>Revenge</B> (вокал -&nbsp;Apollo Papathanasio)<BR>5. <B>Just Another Day</B> (вокал -&nbsp;Goran Edman)<BR>6. <B>Excerpt from Haydn</B> - Piano Sonata in e minor 3d movement (Bonus Track)<BR>7. <B>Classic War Instrumental</B><BR>8. <B>Emperor's Will</B> (вокал -&nbsp;Shawn Leahy)<BR>9. <B>Follow Your Heart</B> (вокал -&nbsp;Joe Lynn Turner)<BR>10. <B>Stand Up & Fight</B> (вокал -&nbsp;Goran Edman)<BR>11. <B>Let The Future Unfold</B> (вокал -&nbsp;Chris Catena)<BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### BILLY SHEEHAN, JAMES MURPHY, JOHN WEST - сольники ?

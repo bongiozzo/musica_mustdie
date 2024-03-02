@@ -36,6 +36,21 @@ Christine Hortnagl - Female Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.09.2000 news Группа Korova трудится над новым альбомом
+
+<p> Когда австрийцы Korova разорвали контракт с Napalm Records, все говорили, что они распадутся. Однако недавно лейбл Red Stream заявил, что группа сейчас в студи работает над новым диском. "WaterHells" будет концептуальным альбомом, повествующим о "фантасмагорическом подводном путешествии в дворец из черепов". Релиз состоится не раньше начала следующего года.</p>
+
+Автор: Nybras
+
+### 29.09.2000 news Korova is back
+
+<p> When Korova left Napalm Records recently, the news divulged in the metal world said that the band would break up. But the recent press report from their label Red Stream says that they are back and working in the new studio album: " Austrian tonetravellers KOROVA (Austria) have left Napalm Records to mutate and perform their forthcoming kills at Red Stream (U.S.A.). The mightiest avalanche of the alps will ram the studio to memorialize their third album "WaterHells" during the sunstorms of November 2000. It will be a concept work about the phantasmagoric underwater-journey down to the skull palace… a dive into your deepest nightmares. There are a few more months to wait before entering the broken dams. There are another few kills before killing the devil within you."</p>
+
+Автор: Nybras
+
+
 ## Обсуждения
 
 

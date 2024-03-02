@@ -97,6 +97,18 @@ Limited edition two-CD digipak version bonustracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.01.2016 news Новое видео VARG
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> VARG "Das Ende Aller Lugen"</STRONG> выходит 15 января на <STRONG>Napalm Records</STRONG>. Трек-лист:</FONT></P>
+<P>“Der grosse Diktator”<BR>“Das Ende aller Lugen”<BR>“Revolution”<BR>“Streyfzug”<BR>“Achtung”<BR>“Dunkelheit”<BR>“Totentanz”<BR>“Einherjer”<BR>“Wintersturm”<BR>“Ascheregen”</P>
+<P>Группа выпустила два видео-клипа.</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/kXYfiXVtYrA" frameborder="0" allowfullscreen></iframe></P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/G6P8zgeIjTA" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

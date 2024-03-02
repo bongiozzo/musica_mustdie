@@ -16,6 +16,21 @@ Epilog
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.07.2000 reviews Несколько странный альбом
+
+<p>Несколько странный альбом. Явно помпезный, с псевдо-вычурными folk-элементами black-metal. Блестящая клавишная работа. Они и атмосферу создают и ярко воздейcтвуют на общую звуковую палитру, являясь ведущим инструментом на альбоме, наравне с гитарами. Да, все-таки странный немного альбом, но очень интересный при этом. А странен он тем, что является поразительно оригинальным. Такое больше никто не играет. Вот! У меня лично при прослушивании представляется картина древнего Мира: первые люди, первые ощущения. Довольно первобытная музыка. Альбом, конечно, исключительно на любителей такой помпезной, но спокойной музыки. Мелодичность достигается только атмосферой, клавишами и постоянными хоралами. Если вам нравятся группы типа Evol, то Juvenes вам тоже понравится.</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews A little bit strange album
+
+<p>A little bit strange album. Obviously pompeous, with pseudo-elaborate folk-members black-metal. Nitidous keyboard activity. They and atmosphere create and brightly made on a common sound graphic pallet, being by the leading tool on an album, level with guitars. Yes, all the same strange is a little an album, but very interesting thus. And he is strange by that is is striking original. Such more than nobody plays.! For me personally at listening the picture an ancient Pattern is represented: the maiden people, maiden sensations. Rather primitive music. The album, certainly, is exclusively) on the fans) such pompeous, but quiet music. Melodic is reached only by atmosphere, keys and constants chorals. If you like groups such as Evol, Juvenes it is pleasant too to you.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

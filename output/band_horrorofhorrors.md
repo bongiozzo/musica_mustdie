@@ -73,6 +73,15 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.08.2011 news HORROR OF HORRORS выпустили двойной сборник
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2011.08/20809.jpg" width=350 align=right border=0>Американские ветераны death-metal <STRONG>HORROR OF HORRORS</STRONG> выпустили в свет двойной сборник "<STRONG>Blood, Fangs and Foulness: The Complete Cursed Chronicles</STRONG>". На издание попали два первых альбома коллектива "<STRONG>Sound of Eerie</STRONG>" ('94)&nbsp;и "<STRONG>Fangs, Breaking the Skin</STRONG>" ('96/позже переизданный под названием&nbsp;"<STRONG>Blood of the Suspicious</STRONG>"). Также на диски попали два ранее не изданных бонус-трека. Трек-лист:</P>
+<P>Disc 1 <BR>1. <STRONG>Torn</STRONG>&nbsp; 02:54<BR>2. <STRONG>Over Fiend</STRONG>&nbsp; 03:02&nbsp; <BR>3. <STRONG>Under the Falling</STRONG>&nbsp; 05:30&nbsp; <BR>4. <STRONG>Bleed with Us</STRONG>&nbsp; 02:58&nbsp; <BR>5. <STRONG>Sounds of Eerie</STRONG>&nbsp; 04:38 <BR>6. <STRONG>Cursed</STRONG>&nbsp; 02:55&nbsp;&nbsp; <BR>7. <STRONG>Dark Horizons</STRONG>&nbsp; 04:11&nbsp; <BR>8. <STRONG>Old Burnt Church Road</STRONG>&nbsp; 04:29&nbsp; <BR>9. <STRONG>Fever Burning</STRONG>&nbsp; 04:07<BR>&nbsp;<BR>Disc 2 <BR>1. <STRONG>Gone&nbsp;</STRONG> 03:56 <BR>2. <STRONG>Blood of the Suspicious</STRONG>&nbsp; 02:14<BR>3. <STRONG>Bliss</STRONG>&nbsp; 02:40&nbsp;&nbsp;&nbsp; <BR>4. <STRONG>Shackles</STRONG>&nbsp; 04:55&nbsp;&nbsp; <BR>5. <STRONG>Tragic</STRONG>&nbsp; 03:03&nbsp;&nbsp; <BR>6. <STRONG>Fangs&nbsp;</STRONG> 02:30&nbsp;&nbsp;&nbsp; <BR>7. <STRONG>Throne of Horns</STRONG>&nbsp; 03:05&nbsp;&nbsp; <BR>8. <STRONG>Breaking the Skin</STRONG>&nbsp; 02:20&nbsp;&nbsp; <BR>9. <STRONG>Funerals to Clone</STRONG>&nbsp; 03:07&nbsp;&nbsp;&nbsp; <BR>10. <STRONG>Old Burnt Church Road</STRONG>&nbsp; 02:28&nbsp;&nbsp; <BR>11. <STRONG>Mound of the Dead</STRONG> (Bonus)&nbsp; 05:09&nbsp; <BR>12. <STRONG>The Devil Is Inside Me</STRONG> (Bonus)&nbsp; 04:33&nbsp; </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

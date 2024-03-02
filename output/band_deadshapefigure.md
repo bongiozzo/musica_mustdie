@@ -33,6 +33,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.07.2011 news DEAD SHAPE FIGURE готовятся войти в студию
+
+<P>Финские трешеры <STRONG>DEAD SHAPE FIGURE </STRONG>войдут в <STRONG>D-Studio</STRONG> для записи пары новых песен. Видео с сочинением группой нового материала можно посмотреть ниже.</P>
+<P>За плечами коллектива два полноформатных альбома, последний из которых "<STRONG>The Disease of St. Vitus</STRONG>" вышел в 2010 году на <STRONG>Dynamic Arts</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/xkbDGLLFvXA?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/xkbDGLLFvXA?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

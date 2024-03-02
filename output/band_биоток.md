@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.11.2009 news Видео от БИОТОК
+
+<P>Heavy/Power группа<STRONG> БИОТОК</STRONG> представляет экспериментальную версию клипа на песню "<STRONG>Небо</STRONG>" смонтированную творческими силами группы. Свою песню <STRONG>БИОТОК</STRONG> просвещает летчикам групп высшего пилотажа погибшим в этом году.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3w4LuWBb0Vg&hl=ru&fs=1&"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/3w4LuWBb0Vg&hl=ru&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

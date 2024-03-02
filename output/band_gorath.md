@@ -61,6 +61,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.07.2011 news Новый альбом GORATH
+
+<P>Новый альбом <STRONG>GORATH "Apokalypsis – Unveiling The Age That Is Not To Come"</STRONG> выходит 2 сентября на <STRONG>Twilight Vetrieb</STRONG>. Пятый альбом группы был записан в студиях <STRONG>Crestfallen Home Studio & Shumcot Studio </STRONG>с <STRONG>Reinier Schenk</STRONG> в качестве продюсера. Мастеринг в <STRONG>Necromorbus Studio</STRONG>&nbsp;проделал <STRONG>Tore Stjerna</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Before The Throne Of The Demiurge</STRONG><BR itxtNodeId="93">2.<STRONG> The Seven Seals</STRONG><BR itxtNodeId="92">3. <STRONG>Wrath Of God<BR itxtNodeId="91"></STRONG>4. <STRONG>Le Porteur de Lumiere<BR itxtNodeId="90"></STRONG>5. <STRONG>Beasts From The Earth And The Sea<BR itxtNodeId="89"></STRONG>6. <STRONG>Whore Of Babylon</STRONG><BR itxtNodeId="88">7. <STRONG>Millennium (Thousand Years Of Darkness)</STRONG></P>
+<P>Видео-клип на песню "<STRONG>The Seven Seals</STRONG>" можно посмотреть ниже:</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/EL8A1ScS-do?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/EL8A1ScS-do?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

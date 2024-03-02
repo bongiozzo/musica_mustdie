@@ -63,6 +63,93 @@ Indoctrination Procedure
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.01.2005 news CRIONICS готовят новый альбом
+
+<P>Поляки <STRONG>CRIONICS</STRONG> готовят второй альбом <STRONG>'Armageddon's Evolution'</STRONG> к выходу на<STRONG> Candlelight</STRONG>. Запись была осуществлена в <STRONG>Herz Studio</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.03.2005 reviews CRIONICS не позорят честь польского металлиста
+
+<P>Поляки CRIONICS не позорят честь своей, надо сказать, очень «металлической» страны. И пускай они не играют брутальный death, их black-death по брутальности не уступит и самим BEHEMOTH.</P>
+<P>На лицензионном рынке только появился дебютный альбом этой группы, датированный 2002 годом. Открывающая песня “Satanic Syndrome 666” сразу же рассказывает нам о многом. CRIONICS в текстах придерживаются сатанинской идеологии, а главное, они начинают с бескомпромиссного black-death-metal в духе BEHEMOTH среднего периода. Дальше поляки дают понять, что не зациклены на забое, появляются некоторые отголоски симфоничности в духе DIMMU BORGIR и даже черты melodic death-metal, но они лишь дополняют картину мизантропии и антихристианства, царящую на этой пластинке.</P>
+<P>У коллектива, несмотря на дебют, также не возникает и проблем с «инструментами» для воплощения своих идей. На альбоме стоит марка студии Herz. Немудрено, что свой второй альбом группа уже выпускает на более солидном Candlelight Records.</P>
+<P>Советую всем любителям забойной и мелодичной (ни IN FLAMES, ни CRADLE OF FILTH здесь не пахнет) музыки.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</P></A>
+Автор: Vit Belov
+
+### 14.03.2007 news Новый альбом CRIONICS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая работа поляков <STRONG>CRIONICS "NeuThrone" </STRONG>выходит этой весной на <STRONG>Candlelight</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <STRONG>New Pantheon</STRONG><BR>02. <STRONG>Arrival 2033<BR></STRONG>03. <STRONG>Neu.Throne.Aeon<BR></STRONG>04. <STRONG>Superiors<BR></STRONG>05. <STRONG>Hell Earth<BR></STRONG>06. <STRONG>Humanmeat Cargo</STRONG><BR>07. <STRONG>Outer Empire<BR></STRONG>08. <STRONG>Frozen Hope<BR></STRONG>09. <STRONG>When The Sun Goes Out...<BR></STRONG>10. <STRONG>Black Warriors</STRONG> (bonus track) *</P>
+<P>* re-recording of 1998 demo track </P>
+Автор: Vit Belov
+
+### 26.09.2007 news DECAPITATED собираются к нам
+
+<P><IMG height=303 alt="" hspace=0 src="/images/news_rus/2007.09/11895.jpg" width=400 align=left border=5>Польский <STRONG>DECAPITATED</STRONG> готовится к своему первому Восточно-Европейскому туру в октябре 2007. Впервые группа появится на площадках России, Беларуси, а также Прибалтики со своим высококачественным death metal, который покорил уже весь мир. За последний год группа успела побывать с многочисленными турами в США, Австралии и Южной Америке.<BR>Теперь <STRONG>DECAPITATED</STRONG> приедет и к нам. Саппортировать группе будут их земляки из <STRONG>CRIONICS</STRONG>, недавно выпустившие новый альбом на великобританском <STRONG>Candlelight</STRONG>.</P>
+<P>Extreme Hallucinosis Eastern Tour 2007<BR>DECAPITATED + CRIONICS<BR>18.10 - Калининград (Россия) "Tower"<BR>19.10 - Вильнюс (Литва) "Mulen Ruzas"<BR>20.10 - Рига (Латвия) "Melna Piektdiena"<BR>21.10 - Санкт-Петербург (Россия) "Орландина"<BR>23.10 - Ярославль (Россия) "Партизан"<BR>24.10 - Воронеж (Россия) "Сити"<BR>25.10 - Ростов-на-Дону (Россия) "Подземка"<BR>26.10 - Краснодар (Россия) "Орбита"<BR>27.10 - Москва (Россия) "Plan B"<BR>28.10 - Рязань (Россия) "Планетарий"<BR>30.10 - Гомель (Беларусь) "ГЦК"</P>
+<P>более подробная информация и тур постер на <A href="http://www.theflamingarts.org/">www.theflamingarts.org</A></P>
+Автор: Vit Belov
+
+### 30.09.2007 news Российский тур DECAPITATED и CRIONICS
+
+<BR>
+<CENTER><IMG height=341 src="/images/shows_rus/2007.10/11928.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 30.10.2007 news DECAPITATED и CRIONICS попали в аварию
+
+<P>На пути в Гомель, во время тура<STRONG> CRIONICS</STRONG> и <STRONG>DECAPITATED</STRONG> по СНГ, автобус с группами попал в аварию. По неподтверждённым данным, два участника <STRONG>DECAPITATED</STRONG> находятся в больнице в реанимационном отделении. </P>
+<P>Желаем музыкантам благополучного и скорейшего выздоровления.</P>
+Автор: Vit Belov
+
+### 21.05.2008 reviews CRIONICS стоят в очередь за BEHEMOTH
+
+<P>Польские black/death-metal маньяки CRIONICS постепенно выходят из тени. На своём третьем альбоме группа делает ещё один шажок вперёд, жадно впитывая тенденции, правящие бал на польской сцене.</P>
+<P>Безусловно, первое, что приходит на ум при прослушивании любого альбома CRIONICS, сравнение с BEHEMOTH. От этого никуда ни деться ни одной польской группе, работающей на стыке black и death-metal. CRIONICS лишь встали в один ряд с многими другими. Правда, не многие из этих групп имеют контракт с таким весомым европейским лэйблом, как Candlelight. Этот факт позволяет CRIONICS рассчитывать не только на локальный успех в Польше. Например, группа уже дважды проехалась с туром по нашей стране. В первый раз это случилось в печально памятный тур с DECAPITATED, унесший жизнь барабанщика этой группы. В общем, есть все основания обратить внимание на CRIONICS. Техничный, брутальный и забойный материал с качественнейшей реализацией. Вот необходимые для успеха компоненты. Сравнить “Neuthrone” можно с поздними альбомами BEHEMOTH, не считая последнего. Симфонизма и излишнего использования клавишных CRIONICS не допускают.</P>
+<P>Мощный и качественный альбом, не открывающий Америки, но способный понравится ценителям жанра.</P>
+Автор: Vit Belov
+
+### 01.02.2010 news Новая песня CRIONICS
+
+<P>Новый трэк поляков <STRONG>CRIONICS</STRONG> <STRONG>"Scapegoat (Welcome to Necropolis)" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/crionics">http://www.myspace.com/crionics</A></P>
+<P>Песня попала на новый EP группы <STRONG>"N.O.I.R."</STRONG>,&nbsp;который выйдет в этом году на пока не названном лэйбле. На этот диск также попадут два кавера <STRONG>IMMORTAL</STRONG> <B>"Blashyrk (Mighty Ravendark)"</B>&nbsp;и <B>RAMMSTEIN</B> <B>"Moskau".</B></P>
+Автор: Vit Belov
+
+### 19.12.2010 news Тройной залп от MSR Productions!!!
+
+<P>В преддверии тура <STRONG>MSR-7 </STRONG>музыкальное агентство<STRONG> MSR Productions</STRONG> выпустило в свет сразу три новейших релиза! Первые два - это новые CD от поляков <STRONG>HATE</STRONG> и <STRONG>CRIONICS</STRONG>, ну а третий - долгожданный альбом от ветеранов российской металл-сцены <STRONG>LITTLE DEAD BERTHA</STRONG>!</P>
+<P><STRONG><IMG height=269 alt="" hspace=0 src="/images/news_rus/2010.12/17880.jpg" width=300 align=right border=0>HATE "Erebos"</STRONG></P>
+<P>Этот CD стал первым релизом <STRONG>MSR Prod</STRONG>, выпущенный по лицензии одного из самых крупных европейских металл-лейблов <STRONG>Listenable Records</STRONG>. Ещё более мрачная, чем на предшественнике "<STRONG>Morphosis</STRONG>", зловещая и холодная музыка проведёт слушателя по самым тайным закоулкам тёмной стороны души современного человека, являющегося заложником своих слабостей, комплексов и пороков... Великолепно записанный и спродюссированный в студии <STRONG>Hertz</STRONG> музыкальный материал "<STRONG>Erebos</STRONG>" на сегодняшний день является самой сильной, смелой и оригинальной работой польского квартета<STRONG> HATE</STRONG>. Альбом выпущен в формате digipack. Трэк-лист:</P>
+<P>1. <STRONG>Genesis <BR></STRONG>2. <STRONG>Lux Aeterna</STRONG> <BR>3. <STRONG>Erebos <BR></STRONG>4. <STRONG>Quintessence of Higher Suffering <BR></STRONG>5. <STRONG>Trinity Moons</STRONG> <BR>6. <STRONG>Hero Cults</STRONG> <BR>7. <STRONG>Transsubstance </STRONG><BR>8. <STRONG>Hexagony </STRONG><BR>9. <STRONG>Wrists </STRONG><BR>10. <STRONG>Luminous Horizon</STRONG></P>
+<P>Композицию "<STRONG>Erebos</STRONG>" можно скачать отсюда: <A href="http://www.sendspace.com/file/vlctem">http://www.sendspace.com/file/vlctem</A></P>
+<P>Студийные репортажи с записи нового альбома "<STRONG>EREBOS</STRONG>":<BR><A href="http://www.youtube.com/watch?v=_1R-2pBrhzc">http://www.youtube.com/watch?v=_1R-2pBrhzc</A><BR><A href="http://www.youtube.com/watch?v=k6eBK4w314M">http://www.youtube.com/watch?v=k6eBK4w314M</A></P>
+<P>Видеотрэйлер альбома <STRONG>"EREBOS</STRONG>":<BR><A href="http://www.youtube.com/watch?v=DLYBpc5WqMw">http://www.youtube.com/watch?v=DLYBpc5WqMw</A></P>
+<P>Официальные ресурсы: <BR><A href="http://www.hate-metal.com/">http://www.hate-metal.com</A><BR><A href="http://www.myspace.com/hatepoland">http://www.myspace.com/hatepoland</A> <BR><A href="http://www.youtube.com/hatepoland">http://www.youtube.com/hatepoland</A></P>
+<P><STRONG><IMG height=273 alt="" hspace=0 src="/images/news_rus/2010.12/17879.jpg" width=300 align=right border=0>CRIONICS "N.O.I.R"</STRONG></P>
+<P>Этот split-EP стал первым западным релизом для<STRONG> MSR Productions</STRONG>. Новаторский, экспериментальный, оригинальный и атмосферный - вот только несколько слагаемых, которые можно смело отнести к работе под названием "<STRONG>N.O.I.R</STRONG>"! Музыкальный материал&nbsp; представляет собой сплав black, death и industrial metal, берущий своё развитие от идей,&nbsp; заложенных на предыдущем альбоме "<STRONG>Neuthrone</STRONG>". И на сей раз братья Виеславски из студии "<STRONG>Hertz</STRONG>" безупречно справились со своей задачей! На этом CD представлено 9 треков. Первые три - это абсолютно новые боевики! Далее идут два кавера на: <STRONG>Immortal "Blashyrk"</STRONG> и <STRONG>Rammstein "Moscow"</STRONG>, во втором из которых&nbsp; приняли участие легенды польской метал-сцены! <STRONG>Peter</STRONG> - лидер <STRONG>Vader&nbsp;</STRONG> исполнил главную вокальную партию, а гитарист <STRONG>Decapitated</STRONG> <STRONG>Vogg</STRONG> - партию аккордеона! Припев же этой композиции, как и в оригинале, исполнен всей группой на русском языке!! Последующие 4 трека вернут слушателя к истокам творческого пути Crionics. Первое и нигде нереализованное ремастирингованное EP "<STRONG>The First Noise</STRONG>" с поистине нордической атмосферой и запоминающейся мелодикой перенесут вас в царство льда и зимних пейзажей...Финальный трек - это подарок всем поклонников Emperor - кавер на шедевр "I am the black <STRONG>Wizard</STRONG>"! Но и это ещё не всё! Также вас ждёт бонусный видеоклип с кадрами процесса записи <STRONG>N.O.I.R</STRONG>! Диск выпущен в формате digipack, дизайн которого выполнил маэстро <STRONG>Xaay</STRONG>, известного по работе с <STRONG>Behemoth</STRONG> и <STRONG>Nile</STRONG>. Трэк-лист:</P>
+<P>EP <STRONG>«N.O.I.R»</STRONG><BR>1. <STRONG>NarcotiQue<BR></STRONG>2. <STRONG>Scapegoat<BR></STRONG>3. <STRONG>Perdition<BR></STRONG>4. <STRONG>Blashyrk (Mighty Ravendark)</STRONG> – Immortal Cover<BR>5. <STRONG>Moskau</STRONG> – Rammstein Cover</P>
+<P>EP «<STRONG>THE FIRST NOISE</STRONG>»<BR>6. <STRONG>Mystic Past<BR></STRONG>7. <STRONG>Pagan Strength<BR></STRONG>8. <STRONG>The Black Warriors</STRONG><BR>9. <STRONG>I Am The Black Wizards</STRONG> – Emperor Cover</P>
+<P>Bonus video: The Making of N.O.I.R.</P>
+<P>Композицию “<STRONG>NarcotiQue</STRONG>” можно скачать отсюда: <A href="http://ifolder.ru/19942643">http://ifolder.ru/19942643</A></P>
+<P>Официальные ресурсы:<BR><A href="http://www.crionics.rockmetal.pl/">www.crionics.rockmetal.pl</A><BR><A href="http://www.myspace.com/crionics">www.myspace.com/crionics</A><BR><A href="http://www.youtube.com/crionicsofficial">www.youtube.com/crionicsofficial</A></P>
+<P><STRONG><IMG height=289 alt="" hspace=0 src="/images/news_rus/2010.12/17881.jpg" width=300 align=right border=0>LITTLE DEAD BERTHA «Angel & Pain»</STRONG></P>
+<P>Воронежская melodic death/extreme gothic бригада <STRONG>LITTLE DEAD BERTHA</STRONG> выпускает свой пятый альбом! «Angel & Pain» - это 10 треков экстремального мелодичного металла в лучших традициях жанра. Скоростные ритмы, симфоничные аранжировки, жёсткий гроул, хоровые распевки, запоминающиеся мелодии и драйв – все это есть на новом альбоме одной из самых оригинальных групп российской метал-сцены!&nbsp;Альбом вышел в свет в формате digipack. Трэк-лист:</P>
+<P>01. <STRONG>Intro <BR></STRONG>02. <STRONG>Mistake </STRONG><BR>03. <STRONG>Angel & Pain <BR></STRONG>04. <STRONG>Reign Of Eternal Night <BR></STRONG>05. <STRONG>Wind Of Other Side <BR></STRONG>06. <STRONG>Blood On The Blade <BR></STRONG>07. <STRONG>Creeping In The Mist</STRONG> <BR>08. <STRONG>Truth Of This World</STRONG> <BR>09. <STRONG>If You Try <BR></STRONG>10. <STRONG>Let Me Roust Your Soul</STRONG> <BR>11. <STRONG>Slave Of Bloody Rain</STRONG> <BR>12. <STRONG>The Ocean</STRONG> (Forgive-Me-Not Cover)<BR>&nbsp;<BR>Скачать трек "<STRONG>If You Try</STRONG>" можно здесь:&nbsp; <A href="http://www.sendspace.com/file/xb6wet">http://www.sendspace.com/file/xb6wet</A></P>
+<P>Официальные ресурсы:<BR><A href="http://bertha-music.narod.ru/">http://bertha-music.narod.ru</A><BR><A href="http://www.myspace.com/ldbertha">http://www.myspace.com/ldbertha</A><BR><A href="http://vkontakte.ru/club1741068">http://vkontakte.ru/club1741068</A></P>
+<P>По всем интересующим вопросам пишите на <A href="mailto:msrprod@mail.ru">msrprod@mail.ru</A></P>
+Автор: Vit Belov
+
+### 04.04.2011 reviews Мини-альбом для российской публики
+
+<P>Поляки CRIONICS на протяжении всей своей истории пытались догнать своих более старших коллег по металическом цеху. На заре своей карьеры группа увлекалась мелодичным black-metal норвежского образца, затем к black-metal был добавлен death-metal, и CRIONICS стали двигаться в фарватере BEHEMOTH. Теперь музыканты шагнули ещё дальше, что показывает новейший миньон “N.O.I.R.”.</P>
+<P>Этот мини-альбом был специально создан для наших просторов и выпущен посредством лэйбла MSR Productions. Группа совершила несколько туров при помощи этой организации, и вот появился этот релиз. На “N.O.I.R.” попало три новых вещи, кавера на IMMORTAL “Blashyrkh” и RAMMSTEIN “Moskau”. Также, в качестве бонуса, поклонники CRIONICS могут услышать дебютное демо этой группы 1998 года выпуска. Демо оставим коллекционерам, но обратимся к новым вещам. Группа подтвердила желание играть помпезный и мощный sympho-black metal в духе DIMMU BORGIR. Качественные возможности выступать в таком высокобюджетном стиле не территории Польши имеются, а сочинить достаточно серые, но помпезно реализованные композиции для CRIONICS не представляет сложностей. К сожалению, кроме качества CRIONICS ничего не предлагают, а поклонники группы со стажем будут даже разочарованы обилием чистого вокала в этих песнях.</P>
+<P>Кавера на IMMORTAL и RAMMSTEIN создают длительность этого релиза, но особо отметить их невозможно, что даже странно, так как, по крайней мере, песня “Moskau” представляет собой яркий и красочный карнавал в оригинале. CRIONICS это настроение «зажевали». “N.O.I.R.” можно предложить исключительно преданным поклонникам этого польского коллектива.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

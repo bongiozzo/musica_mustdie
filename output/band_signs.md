@@ -8,6 +8,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.02.2015 news Escapemind Distro News
+
+<P><SPAN class=tit2>Новый лэйбл: Metal Renaissance</SPAN></P>
+<P>Представляем новый лэйбл в нашем каталоге Metal Renaissance! Ищите список релизов и цены в нашем прайс-листе.</P>
+<P>Новый релиз <SPAN class=tit2>Metal Renaissance: SIGNS – United In Tragedy [digi]</SPAN></P>
+<P>Второй альбом грузинской sympho-black metal формации. Отличный материал для любителей DIMMU BORGIR, изданный в шикарном digi-pack.</P>
+<P>Новый релиз Metalism: <SPAN class=tit2>АРКТИДА — Помни</SPAN></P>
+<P>Долгожданный альбом для всех любителей русскоязычного power-metal. Великолепно реализованный материал для поклонников АРИЯ. Лимитированное издание с 28-страничным буклетом.</P>
+<P>Качайте наш каталог: <A href="http://st.escapemind.ru/11/1563/483/Escapemind_Distro_Price-list.xls">http://st.escapemind.ru/11/1563/483/Escapemind_Distro_Price-list.xls</A></P>
+<P>Цены оптовые. Опт от 10 штук в ассортименте.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.02/27616.jpg" width=265 height=265><IMG border=0 src="/images/news_rus/2015.02/27615.jpg" width=265 height=265></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

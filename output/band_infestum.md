@@ -12,6 +12,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2002 reviews I would be rather surprised if this CD sells in more than 500 copies
+
+<p>"Wolfish Nocturne"? Hmm… haven't I heard it before? Oh sorry, I didn't recognize it's Belarus' INFESTUM. Not some Russia's VALHALLA, you know. Stealing song titles isn't what I could be proud of, though. Anyway; it strikes as INFESTUM represent Belarus' truest branch of most true black metal possible… Did I hear: "Stop mocking"? Ok, enough. Off to music. "Infestum" comes with five tracks which strangely differ in terms of (horrible) sound execution (?), and which are, generally, not bad. Musically it's extremely raw black metal (honestly speaking, it's raw mostly "thanks" to almost nonexistent production) in the vein of DARKTHRONE's "Transilvanian Hunger" and IMMORTAL's "Pure Holocaust", with a bit of Slavonic touch to it. I (more or less) like it, however I doubt if there're too many freaks getting high on this kind of (anti-)music. Most probably, it would give creeps to some… many… most part… or absolute majority? What I am trying to say is, I would be rather surprised if "Infestum" sells in more than 500 copies.</p>
+<P> Website: <A HREF="http://come.to/battlehymnrec">http://come.to/battlehymnrec</A></>
+<P>Email: <A HREF="mailto:battlehymnrecs@columbus.rr.com">battlehymnrecs@columbus.rr.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+### 07.05.2003 news Фестиваль экстремальной музыки &quot;MassaBrutto Fest-3&quot;
+
+<p>25 мая, Минск, клуб "Реактор", 17:00<BR><BR> Закрытие концертного massabrutto-сезона<BR><BR> "MassaBrutto Fest-3"<BR><BR> EVTHANAZIA (Речица)<BR> VELD (Витебск)<BR> GATEWARD (Брест)<BR> SUFFERER (Минск)<BR> WEEPING TWILIGHT (Минск)<BR> INFESTUM (Минск)<BR> VESTIBULUM (Солигорск)<BR><BR> !!! эксклюзивный трибьют-сет GODS TOWER от Lesley Knife и WEEPING TWILIGHT !!!<BR><BR> !!! гости из Киева - MENTAL DEMISE (death/grind) !!!<BR><BR> Билеты: предварительная продажа - 7500/танцпол, 8500/балкон, в день концерта - 8500/танцпол<BR><BR> Спрашивайте билеты в магазинах "New Sound/D-Shop" (ул. В.Хоружей, 16, помещение библиотеки им. Я.Купалы) и "GB-Shop" (ул. Ленина, 9)</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### INFESTUM (ep) &quot;Renaissance&quot;

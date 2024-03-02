@@ -31,6 +31,9 @@ Produced by Michael Romeo
 * C группой "Symphony X" Guitar player
 * C группой "Kotipelto" Guitar player
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -37,6 +37,21 @@ French melodic techno-death metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2001 reviews Мелодично-техничный death metal из Франции
+
+<p>Мелодично-техничный death metal из Франции. Это дебютный альбом группы. Весной мне довелось приобрести их мини-альбом, на котором мне сполна удалось прочувствовать мощный потенциал этой команды. И вот, новая возможность насладиться этой чумовой музыкой. Очень необычайный симбиоз техничного death metal, симфоничного black metal и свежих оригинальных прогрессивных мелодий. Превосходный материал для дебютного альбома. Тринадцать красивых и невменяемо сложных композиций, экстремальных и атмосферных, брутальных и агрессивных в комплексе создающих невероятный эффект. Шокирующий водоворот ярких мелодий, прогрессивных риффов, неожиданных смен темпа, великолепных оркестровок, сокрушительных ритмов и напористых тяжелых гитарных атак. Тяжелый и плотный звук, грамотно настроенная драм-машина, среднеискаженный вокал (и не гроулинг, и не скриминг), восхитительная гитарная работа. Очень сложно не поддаться натиску этого альбома и остаться равнодушным к этой музыке. Этот альбом приятно вас удивит.</p>
+
+Автор: Dimas
+
+### 02.12.2001 reviews Melodiс - technical death metal from France
+
+<p>Melodiс - technical death metal from France. It is a debut album of band. In the spring I could get their mini-album, on which I wholly managed to experience powerful potential of this band. And, new opportunity to enjoy by this super music. Very extraordinary symbiosis of technic death metal, sympho black metal and fresh original progressive melodies. An excellent material for a debut album. Thirteen beautiful and difficult compositions, extreme and atmospheric, brutal and aggressive in a complex is creating improbable effect. Shocking whirlpool of bright melodies, progressive riffes, unexpected changes of rate, magnificent arrangements, shattering rhythms and straightforward heavy guitar attacks. Heavy and dense sound, competently adjusted drum - machine, middlechanged vocal (both not growling, and not screaming), delightful guitar work. It is very difficult to not give in to attack of this album and to remain indifferent to this music. You will surprise pleasantly by this album.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

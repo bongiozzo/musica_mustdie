@@ -24,6 +24,34 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.06.2016 news SUMA выпускают новый альбом
+
+<P>После шестилетнего перерыва выходит четвёртый альбом шведской stoner doom metal команды <STRONG>SUMA "The Order Of Things"</STRONG>. Трэйлер этой работы можно посмотреть ниже. Дата релиза 11 октября на <STRONG>Argonauta Recordings</STRONG>. </P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.06/29352.jpg" width=600 height=400> 
+<P></P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/An7XT7UAd5k" frameBorder=0 width=600 allowfullscreen></IFRAME></CENTER></CENTER>
+Автор: Vit Belov
+
+### 14.06.2016 news SUMA: New album after six years break
+
+<p>After a six year break Swidesh stoner doom metal band<strong> SUMA</strong> will release the fourth album "<strong>The Order Of Things</strong>". Trailer of this work can be viewed below. Release date is 11 of October at<strong> Argonauta Recordings</strong>.</p><p>&nbsp;<center><img width="600" height="400" src="/images/news_rus/2016.06/29352.jpg" border="0"><p></p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/An7XT7UAd5k" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+### 06.07.2016 news SUMA: Стал известен трек лист и обложка нового альбома
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом шведских doom-metal'истов <strong>SUMA "The Order Of Things"</strong> выходит 11 октября на <strong>Argonauta</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Стал известен трек-лист:</font></p><p>The Sick Present<br>Bait for Maggots<br>R P A<br>Being and/or Nothingness<br>Education for Death<br>Disorder of Things<br>The Greater Dying</p><p><center><img width="600" height="598" src="/images/news_rus/2016.07/29538.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 06.07.2016 news Swedish Doom sludgers SUMA reveal cover artwork and tracklist of &quot;THE ORDER OF THINGS&quot;
+
+<p>Swedish Doom sludgers<strong> SUMA</strong> reveal cover artwork and tracklist of their highly anticipated new full length "<strong>THE ORDER OF THINGS</strong>".<br>&nbsp;Tracklist:<br>The Sick Present<br>Bait for Maggots<br>R P A<br>Being and/or Nothingness<br>Education for Death<br>Disorder of Things<br>The Greater Dying</p><p>THE ORDER OF THINGS will be released as CD in Europe by <strong>ARGONAUTA RECORDS</strong> and it will be available from October 11th, 2016.<br>&nbsp;<br>SUMA will take part to these festivals, and more dates will be announced soon:<br>&nbsp;<br>STONED FROM THE UNDERGROUND FESTIVAL (Erfurt-Stotternheim, GER) july 14/15/16<br>SMOKE THE FUZZ FEST (Athens/GR) sept 17<br>SKULLS FROM THE SKY VOL.I (Vercelli/IT) nov 6<br>&nbsp;<br>INFO:<br><a href="http://www.argonautarecords,com">www.argonautarecords,com</a><br><a href="http://www.facebook.com/sumanoise">www.facebook.com/sumanoise</a></p><p><center><img width="600" height="598" src="/images/news_rus/2016.07/29538.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

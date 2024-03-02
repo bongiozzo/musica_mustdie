@@ -16,6 +16,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.07.2001 news SOURCE OF TIDE ... Не просто чисто, а безупречно чисто?
+
+<p>Похоже, что данный стиральный порошок еще не исчерпал свои ресурсы... :-))) А именно, норвежские блэкеры с таким "мыльным" названием выпускают новый альбом "BluePrints". Трек-лист: 01. Static Development 2. Humanism 03. Tales of Fruition 04. Serenade of Silence 05. Enslaved by Principles 06. Bravery 1999 07. Declaration! 08. Bravery 2000 09. Ruins of Beauty 10. The Retaliation of a Misanthrope 11. Revolt Future! 12. Blueprint... 13. ...Remembrance</p>
+
+Автор: Yermola
+
+### 17.07.2001 news SOURCE OF TIDE have completed work ....
+
+<p>Norwegian black metallers SOURCE OF TIDE have completed work on their new album BluePrints. The full track listing for the effort is as follows: 01. Static Development 02. Humanism 03. Tales of Fruition 04. Serenade of Silence 05. Enslaved by Principles 06. Bravery 1999 07. Declaration! 08. Bravery 2000 09. Ruins of Beauty 10. The Retaliation of a Misanthrope 11. Revolt Future! 12. Blueprint... 13. ...Remembrance. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

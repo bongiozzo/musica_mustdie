@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.07.2002 news KULT OV AZAZEL Acquire Second Guitarist, Record BEHERIT Cover
+
+<p>South Florida black metallers KULT OV AZAZEL have added guitarist Nocturath to the group's line-up. The band, who are currently working on the material their next studio opus, entitled Occulus Infernum, for a late 2002/early 2003 release through Arctic Music, recently finished recording a cover of BEHERIT's "Black Arts" for an upcoming BEHERIT tribute CD on Aural Decimation Records. Other acts set to appear on the album are BLACK EARTH, DESTROYER 666, DISGORGE, OUROBOROS, RAVENTHRONE, THE OBLITERATE PLAGUE, THORNSPAWN, and WRATH RITUAL.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

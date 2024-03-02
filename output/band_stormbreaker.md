@@ -20,6 +20,24 @@ power-metal from Krasnodar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.12.2012 news Новинки MUSICA Production
+
+<P><SPAN class=tit1>Новинки MUSICA Production</SPAN></P>
+<P><SPAN class=tit3><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.12/25113.jpg" width=350 height=345>MP64 LYCANTHROPY “Epitaphium”</SPAN></P>
+<P>-atmospheric black-death-metal; Новый альбом одной из самых брутальных black-metal команд на постсоветском пространстве. Дуэт музыкантов из Орла и Житомира. На новом альбоме музыканты двинулись в сторону более атмосферного и в то же время жёсткого звучания. Размеренные антихристианские и брутальные марши исполняют эпитафию человечеству. Альбом включает 5 бонус-треков. Трек-лист:</P>
+<P>1. <STRONG>I<BR></STRONG>2.<STRONG> II</STRONG><BR>3.<STRONG> III<BR></STRONG>4. <STRONG>IV<BR></STRONG>5.<STRONG> V<BR></STRONG>6.<STRONG> VI<BR></STRONG>7. <STRONG>VII<BR></STRONG>8. <STRONG>VIII<BR></STRONG>9. <STRONG>IX</STRONG><BR>10.<STRONG> X</STRONG><BR>11. <STRONG>XI</STRONG><BR>12. <STRONG>Black Reality</STRONG><BR>13. <STRONG>Fuck Up Christ</STRONG><BR>14. <STRONG>Great Soul Nyarlathotep</STRONG><BR>15. <STRONG>Consciousness of Aimlessness</STRONG><BR>16. <STRONG>My Tortured Soul</STRONG></P>
+<P><A href="http://www.myspace.com/lycanthropy6black6metal6">http://www.myspace.com/lycanthropy6black6metal6</A></P>
+<P><SPAN class=tit3><IMG border=0 hspace=0 alt="" align=left src="/images/news_rus/2012.12/25114.jpg" width=350 height=350>MP65 STORMBREAKER “Эдемския Яд”</SPAN></P>
+<P>-power-metal; дебютный альбом новых героев power-metal из России. Мелодичный и интересный материал в духе классиков отечественной музыки. Группа не стесняется добавлять в своё творчество нестандартные ходы, в том числе иногда вокалист использует гроулинг. За плечами у коллектива концерты с <STRONG>CATHARSIS, ОЛЬВИ</STRONG> и группой <STRONG>Сергея Маврина (ex-АРИЯ)</STRONG>. Трек-лист:</P>
+<P>1.<STRONG> Ограненный мрамор<BR></STRONG>2. <STRONG>Отступник<BR></STRONG>3. <STRONG>Идеалист<BR></STRONG>4.<STRONG> Шаг в бесконечность</STRONG><BR>5. <STRONG>Etude #1 A-Moll For Piano</STRONG> (инструментал)<BR>6. <STRONG>Кристина<BR></STRONG>7. <STRONG>У огня<BR></STRONG>8. <STRONG>Осколки<BR></STRONG>9. <STRONG>Viam ad Utopia</STRONG> (инструментал)<BR><A href="http://www.myspace.com/stormbreakerband">http://www.myspace.com/stormbreakerband</A></P>
+<P>Дата релиза: 5 декабря 2012 года.</P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<P>Диски <STRONG>MUSICA Production</STRONG> всегда можно приобрести в интернет-магазине <A href="http://escapemind.ru/">http://escapemind.ru</A> за 160 рублей.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

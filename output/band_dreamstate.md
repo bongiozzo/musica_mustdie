@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.07.2016 news Единственный альбом DREAMSTATE переиздан
+
+<p>Американская progressive metal команда<strong> DREAMSTATE</strong> переиздаст свой единственный альбом<strong> "Beyond The Mirrors</strong>" на лэйбле <strong>Arkeyn Steel</strong>.&nbsp;Работа, ранее на CD не издававшаяся, выйдет 5 августа.</p><p>Трек лист:</p><p>1. When I Fall <br>2. Beyond The Mirrors <br>3. Lies <br>4. Shadow Dancer <br>5. Lifestreet<br>6. In 2000 <br>7. Faces <br>8. Heroes And Love <br>9. Mr. Secret <br>10. Instant Sanity</p><p>Bonus Tracks:<br>11. Mind Gallery <br>12. Zero and One <br>13. Secrets In The Universe <br>14. Strange Rooms&nbsp;</p><p><center><img width="250" height="250" src="/images/news_rus/2016.07/29655.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/w3PSOwash1M" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 23.07.2016 news DREAMSTATE&#39;s album will be re-released
+
+<p><strong>Arkeyn Steel Records</strong> brings back to daylight the music of<strong> Dreamstate</strong> from Forth Worth, Texas, USA. Their "<strong>Beyond The Mirrors</strong>" LP-tape was released back on 1994 and it is without doubt an excellent example of Progressive/Power Metal in the vein of Watchtower, Vicious Rumors, Savatage, Oracle (Jacksonville, US) and Queensryche. This masterpiece will be available first time on CD including 4 bonus tracks plus never before seen photos, lyrics and extended info. The bonus tracks include the complete -and unreleased- "Strange Rooms" demo sessions (three tracks from 1997-1998) plus the "Mind Gallery" song which was recorded as part of a compilation promo CD, back in 1996. 14 songs in total, more than 70’ minutes of music including everything that the band has ever recorded. As usual all the songs will be remastered from original tapes for the best possible sound experience. Another US Prog/Power jewel will be released the way it deserves! Don't miss it!</p><p>Tracklist:</p><p>1. When I Fall <br>2. Beyond The Mirrors <br>3. Lies <br>4. Shadow Dancer <br>5. Lifestreet<br>6. In 2000 <br>7. Faces <br>8. Heroes And Love <br>9. Mr. Secret <br>10. Instant Sanity</p><p>Bonus Tracks:<br>11. Mind Gallery <br>12. Zero and One <br>13. Secrets In The Universe <br>14. Strange Rooms&nbsp;</p><p><center><img width="250" height="250" src="/images/news_rus/2016.07/29655.jpg" border="0"><p></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/w3PSOwash1M" frameborder="0" allowfullscreen=""></iframe></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.10.2011 news Новый клип DEHYDRATED
+
+<P>Новый ролик отечественной death-metal команды<STRONG> DEHYDRATED</STRONG> на песню "<STRONG>Alive Underground</STRONG>" можно посмотреть ниже. Трек присутствует на дебютном альбоме коллектива "<STRONG>Duality Of Existence</STRONG>", который вышел в этом году на<STRONG> More Hate</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/MPifmXWH-Iw?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/MPifmXWH-Iw?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

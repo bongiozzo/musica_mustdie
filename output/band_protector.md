@@ -163,6 +163,33 @@ Recorded At T&T Studio, Gelsenkirchen
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2011 news PROTECTOR вернулись
+
+<P>Культовые&nbsp;трешеры <STRONG>PROTECTOR</STRONG> вновь объединились и работают над новым материалом. В новом составе вокалист <STRONG>Martin Missy, </STRONG>певший на двух первых альбомах коллектива, а так же шведские музыканты: <STRONG>Matte Johansson</STRONG> (<B>SUICIDAL WINDS</B>), <B>Micke Carlsson</B> (<B>MASTEMA</B>)&nbsp;и <B>Carl G. Karlsson</B> (<B>GRIEF OF EMERALD</B>, <B>MASTEMA</B>).</P>
+<P><center><IMG height=155 src="/images/news_rus/2011.11/22088.jpg" width=416 border=0></P>
+Автор: Vit Belov
+
+### 15.07.2013 news PROTECTOR: первый альбом за 20 лет
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Номинально немецкий, а сегодня, скорее, шведский коллектив трэш-металлического угара <STRONG>PROTECTOR</STRONG>, подготовил всем своим почитателям сюрприз.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>13 сентября на лейбле <STRONG>High Roller</STRONG>, группа выпускает свой первый полноформатник после 20 лет забвения. Ещё не так давно коллектив существовал под названием <STRONG>MARTIN MISSY&nbsp;AND THE PROTECTORS&nbsp;</STRONG>и исполнял на своих концертах проверенные временем&nbsp;песни&nbsp;<STRONG>PROTECTOR</STRONG>.&nbsp;Как можно догадаться из названия, в коллектив входил единственный оригинальный участник <STRONG>PROTECTOR</STRONG>&nbsp;- <STRONG>Martin Missy</STRONG>. Все же остальные музыканты были найдены и скурпулёзно отобраны&nbsp;Мартином в&nbsp;месте его нынешнего проживания&nbsp;- Швеции.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немного истории:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В 1995 году <STRONG>Martin</STRONG>, вокалист оригинального состава <STRONG>PROTECTOR</STRONG>, переехал жить из Германии в Швецию, а в 2006 году,&nbsp;повидимому измученный ностольгией,&nbsp;организовал проект <STRONG>MARTIN MISSY&nbsp;AND THE PROTECTORS</STRONG>, который к настоящему моменту отбросил все&nbsp;ненужные слова и буквы в названии и вернулся к своему исконному - <STRONG>PROTECTOR</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>PROTECTOR</STRONG>,&nbsp;получивший название <STRONG>"Reanimated Homunculus"</STRONG>,&nbsp;был записан в колыбели шведского death metal - студии <STRONG>Sunlight</STRONG>. Обложку нарисовал&nbsp;<STRONG>Kristian "Necrolord"&nbsp;Wahlin</STRONG>&nbsp;(<A href="http://www.kristianwahlin.se/">www.kristianwahlin.se</A>), известный по своим работам&nbsp;для <STRONG>AT THE GATES</STRONG>, <STRONG>CEMETARY</STRONG>, <STRONG>DESULTORY</STRONG>, <STRONG>DISSECTION</STRONG>, <STRONG>DISMEMBER</STRONG> и др.</FONT></P>
+<P><STRONG>Martin Missy</STRONG> о новом альбоме:<EM> </EM></P>
+<P><EM>"В него войдут новые песни&nbsp;(две из них написаны мною&nbsp;и это первые песни, которые я написал для группы), несколько песен, которые мы уже выпускали на демо и сплите между 2011 и 2012 гг, а также песня <STRONG>PROTECTOR</STRONG> 2000&nbsp;года (<STRONG>"The End"</STRONG> - прим. ред.), которую мы сделали по новой. Мы старались сочинять все наши песни в старом ключе и надеемся, что и наши новые и наши старые фэны полюбят их. Новая пластинка имеет свой собственный звук. Мы старались сделать её в духе старой школы, чтобы сохранить грубое звучание ниших&nbsp;песен. Возможно она будет звучать больше похожей на <STRONG>PROTECTOR</STRONG> из 80-х, чем на записи, сделанные группой в 90-х."</EM></P>
+<P>Трек-лист <STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Reanimated Homunculus"</FONT></STRONG>:</P>
+<P>01. <STRONG>Sons Of Kain</STRONG> | 02. <STRONG>Deranged Nymphomania</STRONG> | 03. <STRONG>Holiday In Hell</STRONG> | 04. <STRONG>Reanimated Homunculus</STRONG> | 05. <STRONG>Birth Of&nbsp;F Nation</STRONG> | 06. <STRONG>Lycopolis</STRONG> | 07. <STRONG>Road Rage</STRONG> | 08. <STRONG>Antiman</STRONG> | 09. <STRONG>The End</STRONG> | 10. <STRONG>Calle Brutal</STRONG></P>
+<P>Нынешний состав <STRONG>PROTECTOR </STRONG>выглядит следующим образом:</P>
+<P><STRONG>Martin Missy</STRONG> - вокал, <STRONG>Michael Carlsson</STRONG> - гитара, <STRONG>Mathias Johansson</STRONG> - бас и вокал, <STRONG>Carl-Gustav Karlsson</STRONG> - барабаны</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25901.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

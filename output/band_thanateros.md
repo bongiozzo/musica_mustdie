@@ -83,6 +83,27 @@ Thanateros band photos by Peter Dubro
 
 * C группой "Dreadful Shadows" Jenne Riediger
 
+## Публикации
+
+### 19.02.2003 reviews Какая связь между In Extremo и gothic-rock?
+
+<p>Никакой? Верно, никакой. Группа Thanateros попыталась скрестить эти две несочетающиеся вещи. Они не спарились... Потомства явно не дождаться. Наследство in Extremo было беспощадно вытоптано во время пляски вокруг ритуального костра и выкриков имён варварских божеств. А нам остался очень хороший gothic-rock в духе Dreadful Shadows, безнадёжный и задумчивый с редкими вкраплениями дудок и скрипок (практически всегда во вступлениях). Хорошо! Только зачем все эти разговоры про In Extremo?</p>
+
+Автор: Vit Belov
+
+### 06.05.2003 reviews Where does In Extremo connect with gothic-rock?
+
+<p>Nowhere? Yes, nowhere... Band THANATEROS tried to mix that two non mixing-up things. They are not coupled... Posterity will not be... Legacy of IN EXTREMO was trampled down ruthlessly during dances around ritual fire and barrackings of names of barbarian gods. We got very good gothic-rock in spirit of DREADFUL SHADOWS, hopeless and thoughtful with seldom addings of pipes and violins (practically always in introductions to songs). Good! But Why needs talkings about IN EXTREMO?</p>
+
+Автор: Vit Belov
+
+### 05.09.2005 reviews Пляски повелителей танца
+
+<P>Уже третья работа немецкого коллектива, проекта бывшего вокалиста <STRONG>EVEREVE</STRONG> Бена Рихтера, экспериментирующего буквально на каждом альбоме и стремящегося занять свое высокое место под солнцем. Прошлая&nbsp;работа музыкантов, где они пытались смешать&nbsp;кельтскую музыку&nbsp;с gothic rock получилась довольно сильной и интересной, хотя и не без определенной доли занудства и однообразности (в этом можно обвинить многие folk коллективы). На новом альбоме, музыканты подмешали в свою музыку изрядную долю влияний от heavy metal,&nbsp;country&nbsp;и folk. В результате, получилось нечто, напоминающее смесь <STRONG>METALLICA</STRONG> времен "<STRONG>Load/Reload</STRONG>" и музыки Майкла Флэтли к шоу "<STRONG>Lords Of The Dance</STRONG>". Кроме того, конечно же, тут прослеживаются явные параллели с творчеством <STRONG>SUBWAY TO SALLY</STRONG> и <STRONG>SKYCLAD</STRONG>. Довольно жесткий материал с разнообразным инструментарием, неплохими мелодиями, полный драматических настроений, но несколько&nbsp;скучноватый и&nbsp;утомляющий ближе к концу альбома. Много раз подобное слушать не захочется, но одноразовое прослушивание, наверняка, будет интересно всем поклонникам folk metal. Российское издание альбома, в качестве бонуса, содержит мини-альбом "Dirty Old Town", с тремя разными кавер-версиями одноименного хита <STRONG>POGUES</STRONG>.</P>
+<P>Диск предоставлен компанией <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

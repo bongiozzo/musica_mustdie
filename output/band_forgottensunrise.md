@@ -80,6 +80,14 @@ Electro/Synth Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.12.2003 news Forgotten Sunrise&#39;s new album
+
+On&nbsp;January&nbsp;will be out the&nbsp;debut of the Estonian <B>FORGOTTEN SUNRISE</B>. Press-statement from <B>MY KINGDOM MUSIC</B>: "<B>After more than 10 years of long career, the band is ready to show their mesmerizing epitaph to this decadent world titled: “Ru:mipu:dus”. Gothic Wave, Death Metal, EBM, Trip Hop... everything is conceived to create a dehumanized universe of cold emotions and majestic pain. Includes an enchanting CD-rom video and a killer GGFH remix</B>".
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

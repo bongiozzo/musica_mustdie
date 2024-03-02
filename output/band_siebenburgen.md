@@ -120,6 +120,97 @@ Lisa Bohwalli Simonsson - Vocals
 * C группой "Necrophobic" Fredrik Folkare (guitar)
 * C группой "Firespawn" Fredrik Folkare (guitar)
 
+## Публикации
+
+### 17.12.2001 reviews Альбом месяца на Napalm Records
+
+<p>Я слушал предыдущий альбом данной шведской команды, где она показалась мне довольно перспективной. А на этот раз подумывал о том, что смогу получить более сильное удовольствие. Да-с... Рафинированая, не оригинальная музыка без запоминающихся мелодий... Что руководило данным коллективом, мне непонятно. Намеренная примитивизация материала, не пошла на пользу. Где-то отдаёт Kovenant, также и девушка подпевает... Но совершенно не цепляет. Представьте себе, три аккорда, хрипящий вокал, подвывающая мадам на заднем плане, единственное светлое пятно, иногда проскальзывают соло, проплывают мимо.... Может я излишне строг? И это всё злобный навет? Очень всё скучно, хотя может кому и понравится.... Записано всё качественно, да только без души... И главное, обидно, что на таком уважаемом лэйбле эта группа названа группой месяца... Уж лучше бы Siegfried. "Покажи мне небеса...", - говорит девушка, "не в эти 50 минут", - отвечаем мы.</p>
+<p>Диск предоставлен департаментом по зарубежному репертуару концерна "Группа СОЮЗ".</p>
+
+Автор: Vit Belov
+
+### 23.12.2001 news Siebenburgen finished new album
+
+<p>Ok, here they are! With new line-up and brand new album. It smells very fresh, and metallic too! Ok... I like. If you're going to like it is depend on you. They've got a new female vocalist, since the girl from Delictum album is gone (with the wind... ?). Ok there's also a bonus track on album: Jawbreaker. And the album is called <B>Plagued Be Thy Angel</B></p>
+
+Автор: Immortal
+
+### 08.01.2002 reviews Album of a month on Napalm Records
+
+<p>I listened to the previous album of the given Swedish team, where it has seemed to me rather perspective. And this time I thought that I can receive stronger pleasure. Yes... Usual, not original music without remembered melodies... That supervised over the given collective, it is not clear. Special primitive of the material, has not gone on advantage. Somewhere gives back by Kovenant, as well the girl echos... But at all does not cling. Imagine, three chords, growling, singing madam on a background, unique light stain, sometimes you will listen to solos, float past.... Am I too much strict? And it is spiteful lie? It is boring very much, though can to whom it is pleasant.... Album Is written down qualitatively, yes only without soul... And main, is insulting, that on such dear label this group is named as group of month... Better Siegfried. " show me the heavens... ", - the girl speaks, " not in these 50 minutes ", - we answer.</p>
+
+Автор: Vit Belov
+
+### 24.04.2002 reviews Любителям красивых обложек и красивых избитостей
+
+<p> Странный, однако, альбом. Слушаешь его, слушаешь и вроде как нравится и даже очень. По большей части скоростной, этот готик блэк вряд ли может не понравиться: отличная работа драммера, отточенные риффы гитар, не приевшийся вокал... Даже такие мелочи (для некоторых, но не для меня) как оформление альбома не могут не порадовать: это просто круто!!! НО!!! Но очень такое мааленькое "НО": при прослушивании создается впечатление, что где-то ты уже это слышал, поскольку ничегошеньки нового там нет. Абсолютно ничегошеньки. Правда лично мне на это на... Музыка Siebenburgen - отличнейший коммерческий блэк, поэтому усиленно рекомендую. </p>
+
+Автор: Blackvdaergl
+
+### 23.06.2002 reviews Melodic semi-black metal
+
+<p>Please tell me why do most of (formerly) black metal bands more or less turn their backs on BM, entering the heavy metal legion instead?! Some are obviously good at it, such as IMPALED NAZARENE, for instance, however many others undoubtedly do not succeed. SIEBENBURGEN might be a good example. Where had the uniqueness of Swedish singing gone? Where had the inimitable trollish spirit gone? Where had BLACK METAL gone, damn you?! Don’t get me wrong, "Plagued Be Thy Angel" is rather enjoyable piece of melodic semi-black… or perhaps, just heavy metal seasoned with blackish shrieks (also… melodic). But the greatness of "Grimjaur" and "Loreia" seem to have departed forever. A pity indeed.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 09.01.2003 news Потери у SIEBENBURGEN
+
+<p>Шведская группа SIEBENBURGEN понесла потери. Ее ряды покинул басист Fredrik Brockert. Замена ему будет найдена в ближайшее время</p>
+
+Автор: Dimas
+
+### 27.12.2004 news SIEBENBURGEN покинул гитарист
+
+<P>Гитарист <STRONG>Fredrik Folkare</STRONG>&nbsp;покинул <STRONG>SIEBENBURGEN</STRONG>, партии гитары вновь будет исполнять вокалист коллектива <STRONG>Marcus Ehlin</STRONG>. Группа сейчас работает над нвым альбомом, и случившееся не вызовет никаких задержек.</P>
+Автор: Vit Belov
+
+### 01.03.2005 news Новый альбом SIEBENBURGEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SIEBENBURGEN "Darker Designs And Images"</STRONG>&nbsp;назначен к выпуску на весну на <STRONG>Napalm records</STRONG>. Тем временем в группу вернулся гитарист<STRONG> Linus Ekstrom</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 01.03.2005 news SIEBENBURGEN&#39;s new album
+
+<P>New album from <STRONG>SIEBENBURGEN "Darker Designs and Images"</STRONG> set to release on spring through <STRONG>Napalm Records</STRONG>. In other news, guitarist<STRONG> Linus Ekstrom</STRONG> returned to band.</P>
+Автор: Vit Belov
+
+### 27.12.2005 reviews Группа ремесленников
+
+<P>Шведы <STRONG>SIEBENBURGEN</STRONG> – группа ремесленников. <STRONG>Markus Ehlin</STRONG> умеет создавать шедевры… для рынков. Именно, для рынков. «Подходи не скупись, покупай живопись». Вся продукция от <STRONG>SIEBENBURGEN</STRONG> выдержана в одном стиле: в отсутствии качества их не упрекнёшь, всё завёрнуто в красивые обложки, посолено-поперчено как надо. Беда заключается в том, что Markus должно быть не очень хороший композитор, да и инноватор никакой. Все альбомы его групп, есть ещё <STRONG>DEVLIN</STRONG>, под завязку набиты порожняком. Ни мелодии, за которую можно зацепиться, ни сколько-нибудь неожиданных ходов.</P>
+<P>В итоге “<STRONG>Darker Designs & Images</STRONG>” мало отличается от своего предшественника, хоть и прошло уже 4 года. Расчёт, видимо на эти 4 года. Ни драйва, ни мелодизма. Так набор аккордов. Привлечь потенциального покупателя <STRONG>SIEBENBURGEN</STRONG> могут, но не более. Уже через несколько прослушиваний диск займёт своё почётное место на полке, навсегда. Разве что картинки посмотреть кому-то захочется.</P>
+<P>Никому не рекомендую сие творение. Разве, что тем, кто находится в другом от меня измерении, и им нравится группа <STRONG>SIEBENBURGEN</STRONG>.&nbsp; </P>
+Автор: Vit Belov
+
+### 07.02.2006 news SIEBENBURGEN распались!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Такое заявление появилось на официальном сайте шведов <STRONG>SIEBENBURGEN</STRONG>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>С прискорбием сообщаю, что <STRONG>SIEBENBURGEN</STRONG> развалились. 1 февраля у нас было собрание группы, но котором мы решили, что <STRONG>SIEBENBURGEN</STRONG> должен быть похоронен после 12 лет существования. Мы больше не имеем ни вдохновения, ни энергии для продолжения</EM>". </FONT></P>
+Автор: Vit Belov
+
+### 26.11.2007 news SIEBENBURGEN вернулись
+
+<P>Хотя мы и не очень скучали, шведы <STRONG>SIEBENBURGEN</STRONG> вернулись к жизни. Группа планирует записать альбом в 2008 году. В коллективе из старых членов остались вокалист <STRONG>Marcus Ehlin</STRONG>&nbsp;и гитарист <STRONG>Richard Bryngelsson.</STRONG></P>
+Автор: Vit Belov
+
+### 13.02.2008 news SIEBENBURGEN назвали новых членов
+
+<P>Новыми членами&nbsp;возродившихся <STRONG>SIEBENBURGEN</STRONG> стали гитарист <STRONG>Joakim Ohlsson</STRONG> и вокалистка <STRONG>Lisa Bohwalli Simonsson</STRONG>. Группа войдёт в студию 1 марта для записи нового альбома <STRONG>"Revelation VI"</STRONG>,&nbsp;который выйдет 23 мая на <STRONG>Massacre Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.04.2008 news Новый альбом SIEBENB&amp;#220;RGEN
+
+<P>30 мая на <STRONG>Massacre Records</STRONG> выходит новый альбом недавно воссоединившихся шведских<STRONG> </STRONG>melodic блэкстеров <STRONG>SIEBENB&#220;RGEN. </STRONG>Альбом под названием&nbsp;<B>"Revelation VI"</B>&nbsp;был записан в шведских студиях&nbsp;<B>Studio 301</B> и <B>Sonic Train</B>. Он стал дебютом для гитариста <B>Joakim Ohlsson</B> и вокалистки <STRONG>Lisa Bohwalli Simonsson,</STRONG> которая поделит вокальные партии с прежним вокалистом <STRONG>Marcus Ehlin.</STRONG> Трек-лист:<BR><BR><IMG height=200 alt="" hspace=10 src="/images/news_rus/2008.04/12466.gif" width=200 align=right border=0>1. <B>Awaken</B><BR>2. <B>Rebirth Of The Nameless</B><BR>3. <B>Infernaliia</B><BR>4. <B>Revelation VI</B><BR>5. <B>Grimheim</B><BR>6. <B>After The Wolf (Do Dead Men Follow)</B><BR>7. <B>S.I.N.</B><BR>8. <B>The Oaken Throne</B><BR>9. <B>The Soulless</B><BR>10. <B>Enter Omega</B> (digipack bonus track)<BR>11. <B>In Sanctum</B><BR>12. <B>Fire Leaps High</B><BR>13. <B>At The End Of Twilight</B><BR></P>
+Автор: Dimas
+
+### 09.10.2008 reviews Старомодные «обалденные мелодии с бабами и клавишами»
+
+<P style="MARGIN-BOTTOM: 0cm">Шведская группа SIEBENBURGEN под управлением Marcus Ehlin является одним из тех событий на мировой тяжёлой сцене, которое вгоняет меня в ступор. При почти полной беспользности своего материала этот коллектив умудряется год от года оставаться на плаву, продавая по миру хорошее количество собственных пластинок.</P>
+<P style="MARGIN-BOTTOM: 0cm">Про бесполезность, это я собственное мнение высказал. Сколько я не слушал альбомов SIEBENBURGEN, ни один не оставил в моей пустой голове сколько-нибудь заметного осадка. Всё качественно, мелодично, симфонично, но всё мимо. А людям нравится, раз они покупают эту музыку от альбома к альбому. Попытаемся разобраться. Ну, не разобраться, так проследить историю подобных коллективов. На рубеже веков был очень популярен стиль black-doom-metal, «блэкадум», как мы тут его называли. Медленный гипермелодичный black-metal с симфоническими элементами и женскими подпевками, так это выглядело. С того времени «на волне» осталось три группы: GRAVEWORM, SIEBENBURGEN и TRAIL OF TEARS. Более или менее вписаться в современную действительность удалось только GRAVEWORM. Слегка убыстрив и подправив свою музыку, итальянцы заняли своё законное место в элите sympho-black-metal. Правда, и их сейчас «колбасит» иногда, и они экспериментируют, но ничто уже не способно поколебать их значимости на европейской сцене. TRAIL OF TEARS и SIEBENBURGEN так и не отличились чем-то подобным. Попытавшись, встроится в современную картину мира, они потеряли собственное лицо, но не приобрели чужого. Музыка SIEBENBURGEN — это нечто sympho-black, нечто мелодичное и простое, но одинаково непредставляющее интереса, как в «поп»-металле, так и в black-metal'е. Новый альбом шведов «Revelation VI» пролетает в наушниках на одном дыхании. Ну, не то, что бы он такой захватывающий. Он просто одинаковый.</P>
+<P style="MARGIN-BOTTOM: 0cm">И всё же остаются люди, которые тратят свои кровные на эти работы. Почему? Видимо, на рынке не хватает тяжёлого мелодичного металла со скримингом и женскими подпевками. В мире metalcore и DIMMU BORGIR всё ещё нужны старомодные «обалденные мелодии с бабами и клавишами».</P>
+<P style="MARGIN-BOTTOM: 0cm"></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

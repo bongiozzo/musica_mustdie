@@ -12,6 +12,9 @@ sympho-black metal from russia (chita)
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

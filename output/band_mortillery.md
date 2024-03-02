@@ -33,6 +33,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.10.2016 news Новый клип MORTILLERY
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое видео thrash metal группы с женским вокалом <strong>MORTILLERY</strong> на песню "<strong>Shapeshifter</strong>" можно посмотреть ниже. Трек взят с одноимённого альбома, вышедшего в этом году на<strong> Napalm Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d8dnLA5r1Og" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 18.10.2016 news MORTILLERY released new video
+
+New video of thrash metal band with female vocals <strong>MORTILLERY</strong> on the song "<strong>Shapeshifter</strong>" can be viewed below. The track is taken from the eponymous album, released this year via <strong>Napalm Records</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d8dnLA5r1Og" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -10,6 +10,49 @@
 * C группой "Queensryche" Frontman
 * C группой "Tate, Geoff" Frontman
 
+## Публикации
+
+### 02.09.2015 news Geoff Tate выпускает новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>OPERATION: MINDCRIME</STRONG>, ведомые бывшим вокалистом <STRONG>QUEENSRYCHE Geoff Tate</STRONG>, выпустят дебютный альбом "<STRONG>The Key</STRONG>" 18 сентября на <STRONG>Frontiers</STRONG>. Новое лирик-видео на песню "<STRONG>The Stranger</STRONG>" можно посмотреть ниже. Также вы можете увидеть два клипа OPERATION: MINDCRIME "<STRONG>Burn</STRONG>" и "<STRONG>Re-Inventing The Future</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист альбома:</FONT></P>
+<P><STRONG>“Choices”<BR>“Burn”<BR>“Re-Inventing The Future”<BR>“Ready To Fly”<BR>“Discussions In A Smoke Filled Room”<BR>“Life or Death?”<BR>“The Stranger”<BR>“Hearing Voice”<BR>“On Queue”<BR>“An Ambush Of Sadness”<BR>“Kicking In The Door”<BR>“The Fall”</STRONG></P>
+<P><STRONG></STRONG><center><iframe width="600" height="400" src="https://www.youtube.com/embed/VbjEBGBaI9M" frameborder="0" allowfullscreen></iframe></P>
+<P><STRONG></STRONG><center><iframe width="600" height="400" src="https://www.youtube.com/embed/tlVE5CvFc9c" frameborder="0" allowfullscreen></iframe></P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/vX7lRZmt8Hw" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 14.07.2016 news Новый альбом OPERATION: MINDCRIME
+
+<p>Новый диск группы бывшего вокалиста <strong>QUEENSRYCHE Geoff Tate OPERATION: MINDCRIME "Resurrection"</strong> выходит 23 сентября. Это вторая часть трилогии, начатой на альбоме "<strong>The Key</strong>".</p><p>Трек лист:</p><p>“Resurrection”<br>“When All Falls Away”<br>“A Moment In Time”<br>“Through the Noize”<br>“Left For Dead”<br>“Miles Away”<br>“Healing My Wounds”<br>“The Fight”<br>“Taking On The World” (Feature Tim "Ripper" Owens and Blaze Bayley)<br>“Invincible”<br>“A Smear Campaign”<br>“Which Side You're On”<br>“Into The Hands Of The World”<br>“Live From My Machine”</p><p>Список музыкантов:</p><p>Geoff Tate - Vocals, Keyboards, Saxophone<br>Kelly Gray - Guitars, Bass, Vocals<br>Scott Moughton - Guitars, Keyboards<br>Randy Gane - Keyboards<br>Dave Ellefson - Bass<br>John Moyer - Bass<br>Simon Wright - Drums<br>Scott Mercado - Drums<br>Brian Tichy - Drums<br>Tim "Ripper" Owens - Vocals<br>Blaze Bayley - Vocals<br>Mark Daily - Vocals<br>Nick Greatrex - Guitars</p><p><center><img width="630" height="640" src="/images/news_rus/2016.07/29594.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 14.07.2016 news New album of OPERATION: MINDCRIME
+
+<p>A new CD of group of former<strong> QUEENSRYCHE</strong> singer<strong> Geoff Tate OPERATION: MINDCRIME "Resurrection"</strong> comes out on September 23. This is the second part of the trilogy started on the album "<strong>The Key</strong>".</p><p>Track list:</p><p>“Resurrection”<br>“When All Falls Away”<br>“A Moment In Time”<br>“Through the Noize”<br>“Left For Dead”<br>“Miles Away”<br>“Healing My Wounds”<br>“The Fight”<br>“Taking On The World” (Feature Tim "Ripper" Owens and Blaze Bayley)<br>“Invincible”<br>“A Smear Campaign”<br>“Which Side You're On”<br>“Into The Hands Of The World”<br>“Live From My Machine”</p><p>Line-up:</p><p>Geoff Tate - Vocals, Keyboards, Saxophone<br>Kelly Gray - Guitars, Bass, Vocals<br>Scott Moughton - Guitars, Keyboards<br>Randy Gane - Keyboards<br>Dave Ellefson - Bass<br>John Moyer - Bass<br>Simon Wright - Drums<br>Scott Mercado - Drums<br>Brian Tichy - Drums<br>Tim "Ripper" Owens - Vocals<br>Blaze Bayley - Vocals<br>Mark Daily - Vocals<br>Nick Greatrex - Guitars</p><p><center><img width="630" height="640" src="/images/news_rus/2016.07/29594.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 29.07.2016 news Новая песня OPERATION: MINDCRIME
+
+<p>Группа бывшего вокалиста <strong>QUEENSRYCHE Geoff Tate OPERATION: MINDCRIME</strong> выпускает новый альбом "<strong>Resurrection</strong>" 23 сентября на<strong> Frontiers</strong>. Ниже можно послушать песню "<strong>Left For Dead</strong>" с этой работы.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/nI1bdc0xxxQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.07.2016 news New song of OPERATION: MINDCRIME
+
+<p>Ex-<strong>QUEENSRYCHE</strong> vocalist <strong>Geoff Tate</strong>'s <strong>OPERATION: MINDCRIME</strong> release a new album "<strong>Resurrection</strong>" on September 23 via <strong>Frontiers records</strong>. Below you can listen to the song "<strong>Left For Dead</strong>" from this work.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/nI1bdc0xxxQ" frameborder="0" allowfullscreen></iframe></p></center>
+Автор: Vit Belov
+
+### 15.09.2016 news Видео-клип OPERATION: MINDCRIME
+
+<p>Новый ролик новой группы бывшего вокалиста<strong> QUEENSRYCHE Geoff Tate OPERATION: MINDCRIME "Taking On The World" </strong>можно посмотреть ниже. В видео также отметились вокалисты <strong>Tim 'Ripper' Owens</strong> и <strong>Blaze Bayley</strong>.</p><p>Песня взята с вышедшего на Frontiers нового альбома "<strong>Resurrection</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/az7n-NC2qUU" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 15.09.2016 news New video by OPERATION: MINDCRIME
+
+<p>New video of the new group of former<strong> QUEENSRYCHE</strong> vocalist <strong>Geoff Tate OPERATION: MINDCRIME "Taking On The World"</strong> can be viewed below. The video also featuring vocalists<strong> Tim 'Ripper' Owens </strong>and <strong>Blaze Bayley</strong>.</p><p>Song taken from the <strong>Frontiers records</strong> released the new album "<strong>Resurrection</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/az7n-NC2qUU" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.06.2016 news BERSERKER: Группа с женским вокалом из Литвы
+
+<p>30 июня на <strong>Sliptrick Records</strong> выходит дебютный альбом литовской folk melodic metal группы с женским вокалом<strong> BERSERKER "Dark Worlds Collide"</strong>. Альбом был записан с продюсером <strong>Rimtautas Piskarskas </strong>в студии “<strong>Muzikos Laboratorija</strong>”, Вильнюс. </p><p>Трек лист:</p><p>1. Intro <br>2. Dark Worlds Collide<br>3. Warhell&nbsp; <br>4. Madness Machine <br>5. The Day Human Died<br>6. Wolf <br>7. Prelude <br>8. Viking Ship&nbsp; <br>9. Musis uz Zeme</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.06/29387.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 17.06.2016 news BERSERKER: Female fronted band from Lithuania
+
+<p><strong>BERSERKER</strong> is a melodic metal band from Vilnius, founded on the 7th of March, 2009. The name of the band is binded with viking era; Berserk (berserker) – is known from historic tales as a fearless scandinavian warrior.&nbsp; Bands songs also reflect inner and outer battles. Inner fights are personal emotions,&nbsp; mixed feelings. Outer fights are social injustice, industrialization, destruction of the wild nature.</p><p>Berserker vision – music, which combines epic melodies, apocalyptic lyrics, strong and expressive vocals to bring every listener to his own unearthly, magical, fantastic reality</p><p>Berserker often plays various gigs in Lithuanian and foreign clubs, festivals, charitable events. Countries visited so far: Latvia, Estonia, Belarus and Poland.</p><p>In the 2014 the band participated in a project “<strong>Muzyczne Rodowody</strong>”, with a result of a CD with mix of local music, which included Berserkers „W jednoњci nasza siіa”.</p><p>Album <strong>“Dark Worlds Collide</strong>” was recorded, mastered and mixed in 2015 by <strong>Rimtautas Piskarskas</strong> from “<strong>Muzikos Laboratorija</strong>”, Vilnius based recording studio. Album features 7 songs and 2 interludes.</p><p>Track List:</p><p>1. Intro <br>2. Dark Worlds Collide<br>3. Warhell&nbsp; <br>4. Madness Machine <br>5. The Day Human Died<br>6. Wolf <br>7. Prelude <br>8. Viking Ship&nbsp; <br>9. Musis uz Zeme</p><p>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.06/29387.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

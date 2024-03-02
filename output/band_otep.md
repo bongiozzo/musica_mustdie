@@ -68,6 +68,19 @@ Nu metal with female vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2016 news Новый клип OTEP
+
+<p>Новое видео от<strong> OTEP</strong> на песню <strong>"Zero"</strong> можно посмотреть ниже. Музыка взята с последнего альбома группы <strong>"Generation Doom"</strong>, который вышел на <strong>Napalm Records</strong>, а в России на<strong> Союзе</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/GsWSsp38KnY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 18.08.2016 news New video by OTEP
+
+New video from<strong> OTEP</strong> for the song "<strong>Zero</strong>" can be viewed below. Music taken from the band's latest album "<strong>Doom Generation</strong>", which was released on <strong>Napalm Records</strong>, and in Russia on the <strong>Soyuz</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/GsWSsp38KnY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.03.2003 news Сайд-проект AMORPHIS
+
+<p>VERENPISARA - группа в состав которой входят трое участников финской группы AMORPHIS (басист Niclas Etelavuori, гитарист Tomi Koivusaari и клавишник Santeri Kallio) готовит к выходу 15 мая 2003 года на BMG Records свой второй альбом под названием "Happosadetta" ("Acid Rain"). Первый альбо группы вышел в 2002 году и назывался "Aamunodottaja". В новый альбом войдут следующие вещи:</p>
+<p> 01. Tunne Hiekka Jalkojen Alla<BR> 02. Yon Karnevaalit<BR> 03. Arvetkin Kauneuspilkuiksi<BR> 04. Rakkauden Esikoinen<BR> 05. Pakoon<BR> 06. Juomarahat<BR> 07. Galleria <BR> 08. Happosadetta <BR> 09. Kylla Me <BR> 10. Eilinen On Kuollut <BR> 11. Me Tapoimme Tunteen <BR> 12. Helminauha</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

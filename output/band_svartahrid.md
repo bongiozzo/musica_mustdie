@@ -51,6 +51,9 @@ Released: Sep 14, 2000.
 * C группой "Mactatus" Forn (keys in Mact&auml;tus, drums in Svartahrid)
 * C группой "Mactatus" Istar (bass in Mact&auml;tus 1998-1999, vocals and guitar in Svartahrid)
 
+## Публикации
+
+
 ## Обсуждения
 
 

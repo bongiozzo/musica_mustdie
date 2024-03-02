@@ -32,6 +32,21 @@ Twilight Odyssey
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.01.2001 reviews Второе супермелодичное творение в саду теней
+
+<p>Второе супермелодичное творение в саду теней. Превосходная музыка, именно таким я себе и представляю совершенный death-doom metal. Чрезвычайно мелодичный, тяжелый, с мощным и сочным утробным вокалом, красивыми клавишными пассажами, простыми риффами. Доступно, понятно, незамысловато, но, самое главное, очень интересно. Меня, как обожателя Septic Flesh, этот альбом чрезвычайно порадовал. Если вам нравится "Esoptron", то вы просто обязаны приобрести этот альбом. Подобной музыки не так уж и много, а жаль... Постоянно солирующая гитара, приятный гроулинг, быстрый темп с замедлениями. Притягивающая и приятная во всех отношениях музыка.</p>
+
+Автор: Dimas
+
+### 30.01.2001 reviews The second supermelodious creation in a garden of shadows
+
+<p>The second supermelodious creation in a garden of shadows. Excellent music, such I to myself also present perfect death-doom metal. Extremely melodious, heavy, with powerful and juicy brutal vocal, beautiful keyboards, simple riffes. Is accessible, clearly, is plain, but, most important, is very interesting. Me, as fan of Septic Flesh, this album extremely has pleased. If it is pleasant to you "Esoptron", you are simply obliged to get this album. It is a lot of similar music not so and, and it is a pity... A constantly were the soloist guitar, pleasant growling, fast rate with middle tempo. Music is Drawing and pleasant in every respect.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -146,6 +146,714 @@ Mixer: Andy Sneap
 * C группой "Megadeth" David Ellefson
 * C группой "F5" David Ellefson
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>SOULFLY после тура по Южной Америке сменили своего гитариста Логана Мэйдера на гитариста SNOT Микки Долинга.</p>
+
+Автор: Vit Belov
+
+### 26.03.1999 news 
+
+<p>Журнал Рок Сити сообщил о намечающихся гастролях в СНГ. Biohazard посетят Москву, Петербург и Вильнюс в конце апреля-начале мая. Soulfly посетят опять же Москву и Санкт-Петербург соответственно 26 и 28 мая.</p>
+
+Автор: Vit Belov
+
+### 05.10.1999 news 
+
+<p>Soulfly покинул барабанщик Рой Майорга. Возможно заменой ему станет Дэнни Ричардсон, бывший барабанщик Life Of Agony.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Ходят слухи, что Макс Кавалера работает сейчас вместе с Шоном Ленноном, сыном Джона Леннона, который будет задействован на новой пластинке Soulfly.</p>
+
+Автор: Vit Belov
+
+### 27.07.2000 news Новый альбом Soulfly
+
+<p> Новый альбом Soulfly выйдет на Roadrunner Records в последних числах сентября. Альбом будет издан как в виде обычного диска, так и ограниченным тиражом в виде дигипака, содержащего дополнительные 4 бонус трэка. Также группа планирует снять клип на одну из новых песен.</p>
+
+Автор: Nybras
+
+### 24.08.2000 news На сайте Soulfly стала доступна мр3-версия нового сингла
+
+<p> На официальном сайте группы Soulfly (http://www.soulflytribe.com) стал доступен для прослушивания трэк с нового сингла "Back to the Primitive". На эту песню вскоре будет снят клип режисером Томасом Мигнором (Tomas Mignore). Напомню, что полноценный альбом "Primitive" появится в продаже с 26 сентября. Трэк-лист альбома такой: "Back To The Primitive", "Pain", "Bring It", "Jumpdafuckup", "Mulambo", "Son Song", "Boom", "Terrorist", "The Prophet", "Soulfly II", "In Memory Of...", "Flyhigh", "Eye For An Eye" (live), "Tribe" (live) и "Soulfire". В качестве гостевых музыкантов при записи этого альбома "засветились" Corey Taylor из Slipknot, Chino Moreno из Deftones, Grady Avenell из Will Haven, Tom Araya из Slayer и Шон Леннон, сын Джона Леннона.</p>
+<p></p>
+
+Автор: Nybras
+
+### 24.08.2000 news A new mp3 of Soufly available
+
+<p> Soulfly official website, at http://www.soulflytribe.com, has a new mp3 of their new single, Back to the Primitive. This same track will be object of a video clip, with director Tomas Mignore. The full lenght "Primitive" reaches the stores in September 26th. Guests appearing on the album include Corey Taylor (Slipknot), Chino Moreno (Deftones), Grady Avenell (Will Haven), Sean Lennon and Tom Araya (Slayer). The tracklisting for the album is: 'Back To The Primitive', 'Pain', 'Bring It', 'Jumpdafuckup', 'Mulambo', 'Son Song', 'Boom', 'Terrorist', 'The Prophet', 'Soulfly II', 'In Memory Of...', 'Flyhigh', 'Eye For An Eye' (live), 'Tribe' (live) and 'Soulfire'. The limited edition digipak version will include the bounus track 'Soulfly' (Universal Spirit Mix). The album will also be available in a limited edition vinyl picture disc format.</p>
+
+Автор: Nybras
+
+### 08.11.2000 reviews Soulfly&#39;00 &quot;Primitive&quot;
+
+<p> Услышав название нового творения этой группы я, было, подумал, что Max Cavalera и Co. занялись обыгрыванием одного аккорда вместо обычных трех, но я ошибся. На самом деле количество аккордов осталось прежним, но вот зазвучали они качественно на более высоком уровне. Альбом не представляет из себя тупую кашеобразную массу, а наоборот таит в себе множество приятных сюрпризов. Во многом материал звучит интереснее и разнообразнее за счет большого кол-ва приглашенных звезд: Chino Moreno- Deftones, Carey- Slipknot, Shean Lennon ( сын знакомого всем с пеленок Джона.), для меня остается загадкой каким пряником Макс сумел его заманить, Tom Araya- Slayer, бригада чернокожих реперов- соседей Макса по лестничной клетке и наконец никому не известная soul- певица; плюс ко всему этому еще множество бразильских народных инструментов и папуасов, все это создает колорит звучания альбома. Единственное что портит впечатление это четыре бонуса представленных на диске.</p>
+<p> Две концертные композиции с первого альбома и техно - мудевые ремиксы 2х песен, так же с первого альбома. Кстати, оформлением альбома занимался легендарный чернокожий неандерталец с дредами по пояс, который в свое время оформлял пластиночки великому растаману Бобу Марли. Так что любители творчества Макса Кавалеры - слушайте на здоровье, а мы к вам присоединимся.</p>
+
+Автор: Hostile Breed
+
+### 17.01.2001 articles Бразильские страсти от Макса Кавалеры
+
+<p> Бразилия славится прежде всего своим кофе, футболом, сериалами и необычной ритмичной музыкой. Само собой, для эмоциональных бразильцев все это почти одно и то же – во всяком случае, в жизни обилие переживаний легко совместимо с кофе и страстной музыкой, ну а футболу место везде найдется.</p>
+<p> Хотите пример? Судьба бразильского музыканта Макса Кавалера – он покинул свою родную группу Sepultura, созданную им в 14 лет, на вершине успеха, из-за предательства остальных участников группы, среди которых был и родной брат. В музыке новой группы Макса, Soulfly, нашлось место национальным бразильским ритмам, а в лирике – футболу. Дебютный альбом группы 1998 года «Soulfly» оказался настолько хорош, что группа беспрерывно гастролирует по миру третий год и скоро может оказаться более доходной статьей национального экспорта Бразилии, чем кофе…</p>
+<p> Недавно Soulfly выпустили второй альбом. Для его записи Макс Кавалера специально ездил на Ямайку, где работал с местными перкуссионистами и барабанщиками над новыми песнями. Макс Кавалера вообще большой поклонник карибской музыки и регги, и это оказалось одним из основных влияний на новом альбоме Soulfly: барабаны и еще раз барабаны. А чего вы хотели от бразильца? Продюсер этой работы Тоби Райт – он работал со Slayer (Divine Intervention), Alice in Chains (Alice in Chains & Unplugged), Sevendust (Sevendust & Home), Korn (Follow The Leader).</p>
+<p> Макс Кавалера проповедует единство племени среди своих музыкантов, так что те, кто даже просто гастролируют с ними, заражаются этим чувством. Дело дошло даже до того, что 19 ноября 2000 года Макс Кавалера устроил выступление Soulfly и множества приглашенных барабанщиков у себя дома по поводу дня рождения своей дочери.</p>
+<p> Не так давно Soulfly переиздали свой дебютный альбом с бонус-диском, содержащим концертные записи и ремиксы. Кавалера этот шаг объяснил просто – слишком много людей заинтересованы в этом альбоме. Похоже, это действительно так: общий тираж дебютного альбома группы уже свыше 850 тысяч копий, концерты группы, в том что числе и в России, собирают тысячные толпы, и каждое интервью музыкантов вызывает большой интерес, тем более новое, которое Макс Кавалера дал накануне выхода “Primitive” нью-йоркскому журналу «New York Rock»…</p>
+<p> Вопрос: вы снимаете отели под чужими именами – и странными именами. Вы, например, выступаете как Мохамед Али…</p>
+<p> Макс: (смеется) Ну, представители музыкального бизнеса иногда начинают сильно надоедать – и ты прячешься. Никто не станет искать нежданной встречи с Мохамедом Али! Во время туров поклонники постоянно мелькают перед тобой и ломятся в двери… Я не против общения с ними, но иногда тебе нужно одиночество.</p>
+<p> Самое забавное в этой истории с чужими именами – это слышать, как дежурный по гостинице обращается к тебе – «Мистер Али, вам звонят!»</p>
+<p> Вопрос: В вашем турне первыми всегда выступают неизвестные группы. Почему?</p>
+<p> Макс: Этому есть несколько объяснений. Люди, которым мы не нравимся, будут говорить, что мы боимся сравнений, но я заверяю, что это не так. Мы пытаемся дать местным группам шанс – я думаю, они это заслужили, я знаю, как это тяжело, идти своим путем в этом бизнесе. Так почему бы не дать им такую возможность?</p>
+<p> Вопрос: Вы поступаете весьма странно – гастролируя уже третий год без нового альбома. Как правило, турне проводят в поддержку нового альбома, а вы….</p>
+<p> Макс: Новый альбом – вопрос времени. Сейчас же мы играем турне не с пустыми руками – у нас есть ремиксы.</p>
+<p> Вопрос: Вы играете новые песни в турне?</p>
+<p> Макс: Нет, и тому есть причина. Еще не пришло время. Если вы посмотрите на нашу аудиторию, то увидите, что они хотят слышать некоторые песни с первого альбома, которые мы редко играем, например "Fire" – и сейчас мы это исправляем. Очевидно, наш первый альбом имеет столько разных сторон, что он до сих пор не раскрылся полностью.</p>
+<p> Вопрос: Гитарист Логан Мэйдер оставил Soulfly...</p>
+<p> Макс: Стоп. Это не верно. Мы попросили его уйти. Его идеи слишком отличались от наших. Я не понимаю, что произошло с ним, но могу привести пример с предыдущей группой, где играл Логан - Machine Head. Он оставил их, чтобы заняться своим собственным проектом, и, видимо, глубоко внутри он всегда хотел только свой собственный проект, а не быть частью какой-то группы.</p>
+<p> Вопрос: Почему же он тогда присоединился к Soulfly?</p>
+<p> Макс: Это было временно. Мы были совершенно новой группой – люди говорили о Soulfly в целом и ее участниках в отдельности. Когда мы только начинали, он был очень заинтересован – но это быстро изменилось и он стал большой проблемой для остальных участников группы. Если ты часть Soulfly, то ты должен отдаваться на 100% или ничего. Я сказал ему это. У нас не было ссор – я просто поговорил с ним и в результате предложил ему просто попробовать следовать своим собственным идеям и планам, поскольку это лучшее для всех нас.</p>
+<p> Вопрос: Одна из причин, по который вы покинули Sepultura, была атмосфера в группе. Вы достигли своей цели теперь?</p>
+<p> Макс: Абсолютно. Когда у нас проблемы – мы сразу же обсуждаем это и пытаемся их разрешить так быстро, насколько это возможно. Это одна из причин, почему некоторые музыканты не хотят оставаться с нами – потому что очень быстро мы находим, кто работает для Soulfly и кто – нет.</p>
+<p> Вопрос: «Кто работает для Soulfly» - звучит страшновато…</p>
+<p> Макс: Я объясню. Мы вместе созидаем нечто. Сейчас мы сеем, а позже будем собирать урожай. Любой, кто хочет плодов, должен быть готов играть в грязных маленьких клубах, работать, как бы ни было трудно и сколь мало бы ни платили за это сейчас. Любой, кто хочет быстрой славы, не дойдет до нашей цели.</p>
+<p></p>
+<p> Сразу после выхода 26 сентября 2000 года альбома “Primitive” Макс дал еще одно интервью, в котором говорил непосредственно о записи альбома.</p>
+<p> - С какой целью вы создавали этот альбом?</p>
+<p> - Создать альбом мечты, который приумножит страсть и энергию предыдущего альбома. Я выложил все из своего сердца и души. Прошло много времени со дня выхода первого альбома и мы использовали его, чтобы создать нечто отличное от нашего первенца, вместо того, чтобы поскорее выпускать вторую часть. После первого альбома люди поверили в Soulfly и увидели, что я могу работать и без Sepultura, и теперь мне нужен более атакующий альбом, расширяющий аудиторию.</p>
+<p> - Вы работали под давлением?</p>
+<p> - Я чувствовал себя воинственно! В студии надо было создать прежде всего атмосферу группы – а у нас новый барабанщик! Я могу кричать на басиста Марселло, материться, а он в ответ, но новый парень в группе… Не хочется его сразу пугать такими вещами посреди записи. И потому все делалось очень осторожно: «Хорошо, не получается с этой песней, давай-ка выйдем…».</p>
+<p> - Звучит угрожающе…</p>
+<p> - Ха-ха-ха! Да нет, мы просто выходили на воздух и я объяснял ему, как работали за барабанами мой брат еще в Sepultura или первый барабанщик Soulfly Рой. Я говорил – «Не переживай, давай-ка лучше займемся другой песней, а к этой мы вернемся позже». Вот и все – честно!!!</p>
+<p> - Вам работается лучше, если есть давление извне?</p>
+<p> - Я не знаю. Часть работы была сделана с «пистолетом у виска», а часть совершенно свободно, безо всякого давления. По-разному. Было и так, что я с утра в студии работаю с классным риффом, все только-только приходят – и услышав мою работу, мой настрой, сразу же берутся за работу и в таком порыве мы за час делаем песню.</p>
+<p> - Особо впечатляющий момент на новом альбоме – народные ударные инструменты с Ямайки….</p>
+<p> - Да, это очень интересно. Мы смешали народные ритмы Бразилии и Ямайки. Бразильские ритмы очень громкие, напористые, а вот ямайские вы могли слышать у Боба Марли – эдакие маленькие убийственные барабаны. Мы смешали тяжесть первых и легкость последних – и получили Primitive</p>
+<p> - Как будет продаваться, на ваш взгляд, новый альбом в сравнении с Sepultura, вашей прежней группой?</p>
+<p> - Даже первый альбом Soulfly продавался лучше, чем самый популярный альбом Sepultura “Roots”. Дело в том, что у Soulfly иная аудитория – фэны Sepultura более ограничены, в то время, как среди фэнов Soulfly есть металлисты, любители тяжелого хип-хопа и даже просто мелодичного рока. И мы экспериментируем, идем им навстречу – одна из новых песен звучит вообще как Dead Can Dance с пианино и кларнетом! С Soulfly мы можем объединить больше гораздо людей!</p>
+<p> - На новом альбоме есть песня, исполненная с Шоном Ленноном, сыном великого «битла»! Как такое вообще могло произойти?</p>
+<p> - Это совпадение и судьба одновременно. Мы вместе выступали на фестивале в Австралии и оказались в одном автобусе на весь тур. Разговорились – конечно, о музыке. Нашли общих любимцев –японские хардкор-группы. Потом он увидел нас на сцене и ему понравилось. Я услышал его музыку и мне понравилась эта смесь мелодий в духе Джона Леннона и безумных воплей Йоко Оно. Ну я и подумал, что было бы здорово сделать вместе песню – словно «Битлз» встретились с металлом! Я пригласил его к себе в гости на пять дней, мы поработали вместе – нам обоим понравилось, и получилась хорошая песня!</p>
+<p> - А как дело дошло до написания песни с Томом Арайа из культовой металлической группы SLAYER?</p>
+<p> - Эту идею подкинул один наш фанат из Европы в своем письме. Мы встретились с Томом – и словно вернулись во времена расцвета классического трэш-метал. Естественно, что совместная песня оказалась соответствующей, название говорит за себя – «Террорист»! Кстати, Том никогда до этого не участвовал в записях других групп – он всегда работал только в Slayer!</p>
+<p> - Раньше ваши песни всегда были полны агрессии и гнева. Сейчас это чувствуется меньше….</p>
+<p> - Я просто превратил гнев в нечто позитивное – в моей жизни сейчас празднование, племя наших фэнов растет, мы выходим на новый уровень! И писать негативный альбом было бы неискренне…Мы четыре месяца готовили песни и месяц все это записывали. Мы работали только с друзьями и только у меня дома. И потому все это нашло выражение в альбоме – позитивное видение мира.</p>
+<p> Честно говоря, с трудом верится в последние слова Макса. Если это позитивное видение мира, то бразильско-американский хардкор и есть философия счастья и радости, а умиротворение достигается посредством безумия, плясок-судорог, эмоционального накала и почти самосожжения. Крайне простой и убедительный рецепт – миротворцы Джавахарлал Неру и Лев Толстой были не правы! Примитивизм спасет мир!</p>
+<p></p>
+
+Автор: Tornado
+
+### 19.03.2001 news MEDICATION...
+
+<p>Выходцы из MACHINE HEAD, SOULFLY и UGLY KID JOE замутили проект MEDICATION. Участники: гитарист Logan Mader (ex-MACHINE HEAD / SOULFLY), вокалист Whitfield Crane (ex-UGLY KID JOE / LIFE OF AGONY), второй гитарист Blunt (ex-ADAYINTHELIFE) и барабанщик Roy Mayorga (ex-SOULFY). Команда финансировала запись дебютного полноформатника, который и собирается выпустить позднее в этом году. Трек-лист: 01. Clouded 02. Something New 03. Number 8 04. Underwater 05. I Am The Same 06. Chosen 07. Xanax</p>
+
+Автор: Yermola
+
+### 19.03.2001 news MEDICATION...
+
+<p>Los Angeles' MEDICATION, featuring former MACHINE HEAD / SOULFLY guitarist Logan Mader, ex-UGLY KID JOE / LIFE OF AGONY vocalist Whitfield Crane, ex-ADAYINTHELIFE guitarist Blunt, and ex-SOULFY drummer Roy Mayorga, are reportedly self-financing the recording of a full-length CD, to be released through an as-yet-undetermined label later in the year. Song titles set to appear on the as-yet-untitled CD include: 01. Clouded 02. Something New 03. Number 8 04. Underwater 05. I Am The Same 06. Chosen 07. Xanax</p>
+
+Автор: Yermola
+
+### 04.10.2001 news Кадровые перестановки у SOULFLY ...
+
+<p>Еще один музыкант пал жертвой некоей зеленоволосой Глории... После продолжительных разборок с менеджером "SOULFLY" - Gloria Cavalera, барабанщик Joe Nunez покинул группу. Разногласия начались по поводу оплаты труда Джо, который, как оказывается хотел получать зарплату не только во время выступлений и студийных записей. Пока что оставшаяся часть команды пытается уговорить барабанщика вернуться и продолжить запись третьего полноформатника. Известно что запись происходит в Phoenix’s Chaton Studios с Максом Кавалерой в роли продюссера и Otto D’Agnolo в качестве саунд-инженера. Ранее Кавалера уже работал с Ди Аньоло над двумя релизами "NAILBOMB" (Point Blank and Proud To Commit Commercial Suicide) и кавером SOULFLY - BLACK SABBATH’овской "Under The Sun" для трибьюта Nativity In Black II.</p>
+
+Автор: Yermola
+
+### 04.10.2001 news Drummer Joe Nunez is strongly rumored to have left SOULFLY ...
+
+<p>Drummer Joe Nunez is strongly rumored to have left SOULFLY after a disagreement with band manager Gloria Cavalera over the financial terms of his most recent arrangement with the group. According to a source close to Nunez, the skinsman had signed a contract with SOULFLY that had barely enabled him to survive during the “down” periods between recording sessions and tours, effectively forcing Joe to continue to cohabit with his mother in his hometown of Chicago, a situation that had grown progressively more intolerable in the recent months. After confronting Cavalera about renegotiating the terms of his contract, Nunez was reportedly told that no further negotiations would take place, leaving the drummer no choice but to quit the band. Although presently unconfirmed, sources indicate that SOULFLY are still hoping to hold on to Nunez for the imminent recording sessions for the group’s third full-length effort, which will reportedly take place at Phoenix’s (Brill Street) Chaton Studios with SOULFLY mainman Max Cavalera in the role of the producer and Otto D’Agnolo engineering the entire project. A relative unknown in metal circles, D’Agnolo had previously collaborated with Cavalera on the two NAILBOMB releases (Point Blank and Proud To Commit Commercial Suicide) and SOULFLY’s cover of BLACK SABBATH’s "Under The Sun" for the Nativity In Black II tribute CD. We will have more information on this as it becomes available. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Новый барабанщик SOULFLY ...
+
+<p>Заменой ушедшему барабанщику "SOULFLY" Джо Нунезу, стал Рой Майорга. Новый участник группы присоединился к остальным Соулфлайцам в Chaton Studios, где проходит запись третьего полноформатника. Уже готово пять песен и в течении месяца все будет завершено. Известны уже два названия треков "Downstroy" и "Enterfaith"...</p>
+
+Автор: Yermola
+
+### 05.11.2001 news SOULFLY have enlisted former skinsman Roy Mayorga...
+
+<p>SOULFLY have enlisted former skinsman Roy Mayorga to replace the recently-departed Joe Nunez. The newly revamped group are currently at Phoenix, Arizona’s (Brill Street) Chaton Studios recording their third full-length effort, which is scheduled to be produced by mainman Max Cavalera and engineered by Otto D’Agnolo, who had previously collaborated with Cavalera on the two NAILBOMB releases (Point Blank and Proud To Commit Commercial Suicide) and SOULFLY’s cover of BLACK SABBATH’s “Under The Sun” for the Nativity In Black II tribute CD. According to a posting on the Roadrunner Records web site, SOULFLY have completed tracking about five songs so far, and they expect to be done recording in about five weeks. Although it has yet to be confirmed, sources indicate that SOULFLY are hoping to once again enlist producer Andy Wallace to mix the effort, which is tentatively scheduled to be released in the spring. Among the titles set to appear on the CD are "Downstroy" and "Enterfaith", both of which were recently demoed with former SACRED REICH drummer Greg Hall pounding the skins.</p>
+
+Автор: Yermola
+
+### 03.12.2001 news Цифры американских продаж от Soundscan ...
+
+<p>Вот цифры американских продаж некоторых групп по состоянию на конец Ноября (цифра в скобках показывает количество недель в чартах): <BR><BR> KID ROCK – Cocky: 223,062 (1) <BR> KID ROCK – Devil Without A Cause: 7,556,160 (171) <BR> ROB ZOMBIE – The Sinister Urge: 227,554 (2) <BR> ROB ZOMBIE – Hellbilly Deluxe: 2,536,385 (170) <BR> SEPULTURA – Nation: 50,324 (-) <BR> SEPULTURA – Against: 126,286 (-) <BR> SOULFLY – Soulfly: 326,619 (-) <BR> SOULFLY – Primitive: 214,054 (-) <BR> BIOHAZARD – Uncivilization: 12,545 (11) <BR> V.O.D. – From Bliss To Devastation: 17,571 (-)<BR> PITCHSHIFTER – Deviant: 32,604 (-) <BR> MEGADETH – The World Needs A Hero: 179,710 (-)<BR> SEVENDUST – Animosity: 99,150 (2) <BR> KITTIE – Oracle: 55,015 (2) <BR> DOPE – Life: 15,808 (3) <BR> METALLICA – Re-Load: 3,560,096 (210) <BR> METALLICA – Metallica: 12,916,419 (487) <BR> METALLICA – S&M: 2,451,999 (105) <BR> COLD – 13 Ways To Bleed On Stage: 384,461 (42) <BR> SLAYER – God Hates Us All: 133,110 (11) <BR> KISS – Box Set: 19,456 (1) <BR> PUDDLE OF MUDD – Come Clean: 655,127 (13) <BR> OZZY OSBOURNE – Down To Earth: 372,282 (6)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 25.01.2002 news Полет продолжается...
+
+<p>"SOULFLY" объявили даты пока еще не названного третьего альбома. Он выйдет 20-го мая в Европе и 21-го мая в штатах. Продюссировал релиз сам Макс Кавалера и записывал Otto D'Agnolo в Phoenix's Chaton Studios. В конце января команда отправляется в американский тур со STATIC-X и SOIL. Трек-лист: <BR><BR> 01. Downstroy<BR> 02. Enterfaith<BR> 03. Seek 'N' Strike<BR> 04. Last of The Mohicans<BR> 05. Brazil<BR> 06. Soulfly III<BR> 07. Sangue De Bairro (CHICO SCIENCE кавер)<BR><BR> Также "соулфлайцы" записали несколько B-sides, включая кавер PAILHEAD's "I Will Refuse" и SACRED REICH's "One Nation" (в записи участвовали барабанщик и гитарист SACRED REICH - Greg Hall и Wiley Arnett).</p>
+
+Автор: Yermola
+
+### 25.01.2002 news SOULFLY Set Tentative Release Date For Third Album ...
+
+<p>SOULFLY have set a tentative release date of May 20th (Europe) and May 21st (US) for their as-yet-untitled third full-length effort, which was recently produced by mainman Max Cavalera and engineered by Otto D'Agnolo at Phoenix's (Brill Street) Chaton Studios. At this time, no decision has yet been made with regards to the identity of the person that will mix the album, but it is expected that work on the CD will proceed concurrently with the group's upcoming US tour with STATIC-X and SOIL, which is scheduled to begin on January 30th in Portland, Oregon. Among the known song titles that are set to appear on the forthcoming album are the following: <BR><BR> 01. Downstroy<BR> 02. Enterfaith<BR> 03. Seek 'N' Strike<BR> 04. Last of The Mohicans<BR> 05. Brazil<BR> 06. Soulfly III<BR> 07. Sangue De Bairro (CHICO SCIENCE cover)<BR><BR> As previously reported, SOULFLY have recorded several B-sides during the sessions, including a cover of PAILHEAD's "I Will Refuse" and SACRED REICH's "One Nation" (featuring guest appearances by original SACRED REICH drummer Greg Hall and guitarist Wiley Arnett).</p>
+
+Автор: Yermola
+
+### 28.03.2002 news Новый альбом SOULFLY будет называться &quot;III&quot;
+
+<p> Соулфлайцы наняли маститого продюссера Terry Date (PANTERA, DEFTONES) для микширования своего нового альбома названного просто III. Релиз ожидается 25 июня через Roadrunner Records. Трек-лист: </p>
+<p> 01. Downstroy<BR> 02. Enterfaith<BR> 03. Seek And Strike<BR> 04. Last Of The Mohicans<BR> 05. Throwdown<BR> 06. Brasil<BR> 07. Call To Arms<BR> 08. Maracatu<BR> 09. Stomp<BR> 10. Soulfly III<BR> 11. Tree Of Pain (с приемным сыном Макса - Richie)<BR> 12. One Nation (SACRED REICH кавер)<BR> 13. Sangue De Bairro (CHICO SCIENCE кавер) </p>
+<p> Ранее записанная версия PAILHEAD "I Will Refuse" (с участием ex-SACRED REICH барабанщика Greg Hall) появится в виде бонуса на дигипак версии CD. </p>
+
+Автор: Yermola
+
+### 28.03.2002 news SOULFLY Enlist TERRY DATE To Mix New CD ...
+
+<p>SOULFLY have enlisted veteran producer Terry Date (i.e. PANTERA, DEFTONES) to remix their recently-recorded third full-length effort, entitled III, for a tentative June 25th release through Roadrunner Records. <BR><BR> The group's first album to be produced by mainman Max Cavalera, III will tentatively include the following track listing: <BR><BR> 01. Downstroy<BR> 02. Enterfaith<BR> 03. Seek And Strike<BR> 04. Last Of The Mohicans<BR> 05. Throwdown<BR> 06. Brasil<BR> 07. Call To Arms<BR> 08. Maracatu<BR> 09. Stomp<BR> 10. Soulfly III<BR> 11. Tree Of Pain (featuring Max's stepson Richie)<BR> 12. One Nation (SACRED REICH cover)<BR> 13. Sangue De Bairro (CHICO SCIENCE cover)<BR><BR> In addition, SOULFLY's previously recorded demo version of PAILHEAD's "I Will Refuse" (featuring ex-SACRED REICH drummer Greg Hall) will likely appear as a bonus cut on the digipak version of the CD.</p>
+
+Автор: Yermola
+
+### 20.06.2002 reviews Незабитый гол Кавалеры
+
+<p> SOULFLY, детище бразильца Макса Кавалеры, пройдя очередные перетряски в составе, выдало третий диск. Результат получился столь же спорным, как и игра бразильской сборной на текущем чемпионате мира по футболу.<BR> Хорошему драйву, которым диск просто переполнен, не хватает какой-то целостности, которая скрепила бы все песни в единый монолит, превратив диск в тяжеленную кувалду. Местами кажется, что неудавшиеся творения "One", "Tree of Pain" и "One Nation" (кавер-версия песни SACRED REICH) сводят первобытную энергетику SOULFLY едва ли не к нулю. Другим недостатком пластинки является модный звук. Хоть бразилец Кавалера, сердце SOULFLY, и живет более десяти лет в США, обзавелся местной женой (кстати, с русскими корнями – хоть и Глория, но Буйновски!), в парня с улиц мегаполиса он не превратился, а потому психологические триллеры у него не получаются. Макс так и остался невоспитанным дикарем из Бело Оризонти, и это к лучшему – когда начинают звучать "Brasil", "Call To Arms", "Four Elements", "Sangue De Bairro" становится ясно, что только так и надо! Вот здесь получите все, чем успели прославится SOULFLY, – тут вам и бразильская экзотика, замешанная на самбе с румбой, дикая первобытная энергетика, что на повышенных децибелах способна спровоцировать даже землетрясение. Наслаждайтесь! <BR> В итоге диск получился похожим на матч Бразилия – Бельгия: вот вам пара красивых и эффектных голов, а в нагрузку и несколько минут скуки. Общий результат положительный, но удовольствие как будто слегка урезали. Зная, что Кавалера может много лучше (на его счету великолепные альбомы "Beneath The Remains", "Chaos A.D.", "Roots", сделанные еще в составе SEPULTURA и шедевр-дебютник "Soulfly"), скидок делать не хочется. Так что Максу – провести ревизию творческих принципов, слушателям – пропускать провальные песни. Остатка хватит с избытком для крутой шаманской вечеринки.</p>
+
+Автор: Tornado
+
+### 18.07.2002 news Металл&#x2F;Хард Рок в Германских чартах Медиа Контрол...
+
+<p>Представляем вашему вниманию жанр Металл/Хард Рок в Германских Медиа Контрол чартах (топ 100) по состоянию на текущюю неделю: <BR><BR> 01. (новичок) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) B&Ouml;HSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> Число в скобках показывает позицию на прошлой неделе...</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart* for the week ending July 22nd (as reported by Rock Hard magazine): <BR><BR> 01. (new) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) BЦHSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Auswдrtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> * number in parenthesis indicates last week's chart position</p>
+
+Автор: Yermola
+
+### 02.08.2002 news Metal&#x2F;Hard Rock в германском Media Control Chart ...
+
+<p>Вот так на текущей неделе выглядит German Media Control (Top 100) чарт в жанре металл/хард рок: <BR><BR> 16. PAPA ROACH – Lovehatetragedy<BR> 22. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 23. NIGHTWISH - Century Child<BR> 30. SYSTEM OF A DOWN - Toxicity<BR> 31. KORN - Untouchables<BR> 39. MANOWAR - Warriors Of The World<BR> 40. B&Ouml;HSE ONKELZ - Dopamin<BR> 45. NICKELBACK - Silver Side Up<BR> 54. SOULFLY - 3<BR> 61. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 70. PUDDLE OF MUDD - Come Clean<BR> 75. DONOTS - Amplify The Good Times<BR> 83. DARK TRANQUILLITY - Damage Done</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock в Германских Чартах...
+
+<p>Вот так выглядит Топ-100 Германских Медиа Контрол Чартов по состоянию на текущую неделю... <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. B&Ouml;HSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending August 19th: <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. BЦHSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 24.09.2002 news SLAYER, SOULFLY, MOTORHEAD, DOWN Among Artists Confirmed For Japan&#39;s BEAST FEAST 2002 ...
+
+<p>SLAYER, SOULFLY, MOTORHEAD, DOWN, HATEBREED, and ARCH ENEMY are among the artists confirmed to appear at Beast Feast 2002, a two-day festival set to take place on December 14-15 at Makuhari Messe Event Hall in Tokyo, Japan. <BR><BR> The full lineup of acts currently scheduled to perform at the event is as follows:<BR><BR> SLAYER<BR> SOULFLY<BR> MOTORHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN</p>
+
+Автор: Yermola
+
+### 24.09.2002 news Фестиваль Зверя в Японии...
+
+<p>SLAYER, SOULFLY, MOTОRHEAD, DOWN, HATEBREED и ARCH ENEMY уже окончательно подтвердили свое участие в японском фестивале Beast Feast 2002. Двухдневное шоу будет проходить 14-15 декабря в зале Makuhari Messe Event Hall в Токио. <BR><BR> Состав участников на сегодняшний день:<BR><BR> SLAYER<BR> SOULFLY<BR> MOT&Ouml;RHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN<BR><BR> Более подробную информацию смотрите на сайте фестиваля: <A HREF="http://www.beastfeast.net/">http://www.beastfeast.net/</A></p>
+
+Автор: Yermola
+
+### 30.12.2002 news SOULFLY в Санкт-Петербурге
+
+<p><A HREF="http://www.psyshit.ru/soulfly/"><IMG SRC="/images/news_rus/2003.01/3583.jpg" ALT="pho" width=250 height=165 hspace="15" vspace="5" border="1" align="left"></A> В пятницу 31 января 2003 года в Санкт-Петербурге на главной арене ДС «Юбилейный» (м. Спортивная, пр. Добролюбова, 18) выступит группа <A HREF="http://musica.mustdie.ru/ru/band/soulfly/">SOULFLY</A>. Это будет выступление в рамках европейского тура группы в поддержку последнего альбома <A HREF="http://musica.mustdie.ru/ru/band/soulfly/6169/">«3»</A>. <BR> Начало концерта в 18 часов <BR> Специальные гости: ПСИХЕЯ (СПб) и FAQ (Москва) <BR> Цена на билеты в предварительной продаже - от 350 до 450 рублей <BR> Заказ и доставка билетов: <A HREF="http://www.kassir.ru/">www.kassir.ru </A></p>
+
+Автор: Dimas
+
+### 06.01.2003 articles SOULFLY в Санкт-Петербурге
+
+<p>«Думаю, что никто не может упрекнуть меня в том, что я играю мягкую музыку, и каждая моя запись подтверждает это. Но последний альбом гораздо тяжелее того, что я когда-либо делал с <A HREF="http://musica.mustdie.ru/ru/band/soulfly/">SOULFLY</A>. Я думаю, что это круто, ведь я предлагаю фэнам что-то новое, более того, я считаю это необходимым для естественного развития нашей группы», - говорит лидер <A HREF="http://musica.mustdie.ru/ru/band/soulfly/">SOULFLY</A> Макс Кавалера о своем новом альбоме <A HREF="http://musica.mustdie.ru/ru/band/soulfly/6169/">«3»</A>, который вышел 25 июня 2002 года.</p>
+<p> В отличие от предыдущего альбома, на этом диске кроме вокалиста Ill Nino приглашённых гостей нет, группа решила всё сделать своими усилиями. «Определённо вокруг числа 3 есть какая-то магическая аура» - говорит духовный лидер, гитарист и автор лирики - Макс. «Вероятно, это одна из причин, почему я сразу же остановился на названии <A HREF="http://musica.mustdie.ru/ru/band/soulfly/6169/">«3»</A>. Плюс ко всему я всегда был фанатом третьих альбомов, будь-то Metallica - Master of Puppets или Black Sabbath - Masters of Reality, эти работы были действительно мощными. Я надеюсь <A HREF="http://musica.mustdie.ru/ru/band/soulfly/">SOULFLY</A> сможет сделать тоже самое».</p>
+<p> «Для меня наиболее важной вещью является быть честным, быть настоящим. Независимо от того затрагиваю ли я хрупкий звук „ <A HREF="http://musica.mustdie.ru/ru/band/soulfly/6169/">«3»</A>“ или брутальное звучание „Call To Arms“, главное состоит в том, что я являюсь очень правдивым до конца каждой песни. Это то во что я верю. Я продолжаю жить, когда пишу искренне, пишу то, что я наиболее сильно чувствую. Нравится это или нет, согласитесь или нет, но это то как я чувствую и это то как должно быть. Каждый альбом должен различаться. Думаю это то, что делает <A HREF="http://musica.mustdie.ru/ru/band/soulfly/">SOULFLY</A> интересными, мы не пытаемся повторять те же вещи всё время». - говорит Макс Кавалера.</p>
+<p> Спешим обрадовать, что в пятницу 31 января 2003 года в Санкт-Петербурге на главной арене ДС «Юбилейный» (м. Спортивная, пр. Добролюбова, 18) выступит группа <A HREF="http://musica.mustdie.ru/ru/band/soulfly/">SOULFLY</A>. Это будет выступление в рамках европейского тура группы в поддержку последнего альбома <A HREF="http://musica.mustdie.ru/ru/band/soulfly/6169/">«3»</A>. <BR> Начало концерта в 18 часов <BR> Специальные гости: ПСИХЕЯ (СПб) и FAQ (Москва) <BR> Цена на билеты в предварительной продаже - от 350 до 450 рублей <BR> Заказ и доставка билетов: <A HREF="http://www.kassir.ru/">www.kassir.ru </A></p>
+<p> <A HREF="http://www.psyshit.ru/soulfly/"><IMG SRC="/images/news_rus/2003.01/3583.jpg" ALT="pho" width=250 height=165 hspace="15" vspace="5" border="1" align="left"></A></p>
+
+Автор: Dimas
+
+### 23.09.2003 news Раскол в SOULFLY
+
+<B>Max Cavalera</B> расстался со всеми своими музыкантами. Сообщается, что <B>Cavalera</B> и его жена (менеджер группы) попытались попросить с работы в группе басиста <B>Marcello D. Rapp</B>, но два остальных участника - барабанщик <B>Roy Mayorga</B> и гитарист <B>Mike Doling</B> тоже подали в отставку в знак протеста. Чтобы не отменять запланированные концерты, Max немедленно рекрутировал замену: гитарист <B>Marc Rizzo</B> (ex-<B>ILL NINO</B>), барабанщик <B>Joe Nunez (Primitive)</B> и басист <B>Bobby Burns</B> (ex-<B>гитарист PRIME 55</B>). <B>Cavalera</B> уже начал пре-продукцию нового альбома, который выйдет на <B>RoadRunner</B> в середине 2004 года.
+Автор: Vit Belov
+
+### 04.03.2004 news SOULFLY выложили в сеть видеоклип
+
+<B>SOULFLY</B>&nbsp;выложили в сеть видео-клип на титульную песню с нового альбома '<B>Prophecy</B>'. (Линк: <A href="http://www.soulfly.com/ecard">http://www.soulfly.com/ecard</A>&nbsp;) В клипе принял участие <B>David Ellefson (ex-MEGADETH).</B> Он записал партии баса для четырёх вещей на альбоме.
+Автор: Vit Belov
+
+### 22.06.2004 reviews Soulfly – пророчество.
+
+<P>Казалось бы, чем сейчас еще можно удивить поклонников такого angry-trash а ля <B>Sepultura, Soulfly</B>. Вроде бы все уже сыграно и переиграно… Но нет! Кавалера снова удивил меня своей творческой индивидуальностью! Альбом вышел, на удивление, сильный (в отличие от 3-его). Главный козырь – это «возвращение к корням», не Soulfly, а старой доброй Sepultura времен «золотого века» <B>(Chaos A.D.).</B></P>
+<P>На этой работе встречаются стандартные для Соулов этнические элементы, а также смачные и забористые thrash композиции такие как: <B>Prophecy, Living Sacrifice</B>… </P>
+<P>Очень экспрессивными мне показались переходы от Reggae к тяжелейшим рифам и наиагрессивнейшим крикам Кавалеры!(<B>Moses</B>)</P>
+<P>Видно, что полная смена состава дала полную свободу Максу, чем он так хорошо и воспользовался, создав, с моей точки зрения, самую сильную работу <B>Soulfly</B>.</P>
+<P>Естественно по традиции на альбоме присутствует успокаивающая этно композиция <B>Soulfly 4</B>. И я считаю, что вы нигде не найдете более профессионального и более плавного симбиоза этники и наизабойнейшего <B>angry</B>.</P>
+Автор: The Blues Brothers
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 28.11.2004 news SOULFLY выпускают DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В 2005 году на <STRONG>RoadRunner</STRONG> увидит свет DVD <STRONG>SOULFLY 'The Song Remains Insane'</STRONG>. На него войдут все видео группы, записи с концертов со всего мира и интервью с группой.</FONT></P>
+Автор: Vit Belov
+
+### 28.11.2004 news SOULFLY to release DVD
+
+<P>DVD by <STRONG>SOULFLY 'The Song remains insane'</STRONG> will release in early 2005 through <STRONG>Roadrunner</STRONG>. There will be live recordings from overe the world, interviews with the band and all their videos.</P>
+Автор: Vit Belov
+
+### 16.05.2005 news Концерты SOULFLY в Хабаровске и Владивостоке были отменены по вине депутата
+
+<P>29 апреля и&nbsp;4 мая не состоялись концерты <B>SOULFLY</B> в Хабаровске и Владивостоке. На днях российская англоязычная газета <B>Moscow News</B> сообщила, что причиной отказа <B>Max Cavalera</B> выступить на Дальнем Востоке стало поведение депутата из города Уссурийск <B>Валерия Кана</B>, который пытался приставать к приёмной дочери лидера <B>SOULFLY Roxanne</B>. С помощью двух охранников он пытался оказать физическое воздействие также и на жену-менеджера <B>Gloria Cavalera</B>. Милиция ничего не смогла поделать, из-за неприкосновенности депутата, который был пьян и возвращался из Италии вместе с юношеской сборной по тэквандо.</P>
+<P>Вот официальное заявление организаторов концерта <B>Feelee Management</B>:</P>
+<P>"<I>Компания FeeLee Management - сопромоутер российско-украинского тура Soulfly 2005 приносит свои извинения всем тем, кто, так или иначе, пострадал в связи с отменой концертов во Владивостоке и Хабаровске, а также всем средствам массовой информации, оказавшим поддержку этим мероприятиям. Причина отмены, на первый взгляд, может выглядеть парадоксально. Тем не менее, группа Soulfly посчитала инцидент, произошедший при посадке на самолет ИЛ-86, рейс 101 Москва-Владивосток, веским основанием для отмены концерта во Владивостоке. Группа прошла все уровни контроля, багаж находился на борту, музыканты сидели в салоне самолета. На "посадке" оставались только жена и дочь Макса Кавалеры, а также технический персонал Soulfly. Пассажиры бизнес-класса и депутатского зала проходят на борт самолета в последнюю очередь. На последнем уровне контроля появился молодой человек с двумя охранниками, который недвусмысленно и жестко попытался увести дочь Макса, Роксану Кавалера, в салон бизнес-класса. Увидев эту ситуацию, вмешался технический персонал группы, после чего последовали угрозы со стороны охраны молодого человека. В связи с этим инцидентом были вызваны милиция общественной безопасности и охрана аэропорта Домодедово. Рейс задержали. После объяснения причин, сотрудники милиции предложили снять с борта самолета молодого человека и охрану, сопровождавшую его. Но через три минуты ситуация изменилась сотрудники милиции предъявили тур-менеджеру группы дипломатическое удостоверение на имя Кана Валерия Владимировича, обладающего депутатской неприкосновенностью, и сообщили о том, что ничего сделать не могут. Поняв, что никто ни милиция, ни охрана аэропорта Домодедово, ни авиакомпания Домодедовские Авиалинии не могут гарантировать безопасность всем участникам группы, Soulfly приняли решение отказаться от полета этим рейсом, тем более что полет длится не менее восьми часов. Концерт во Владивостоке состояться уже не мог. Группа сразу же связалась с посольством США и сообщила о произошедшем инциденте. Решался принципиальный вопрос оставаться в России или нет. Случившееся стало шоком, как для музыкантов, так и для промоутеров, агентов и менеджеров. Тем не менее, группа принимает решение играть концерты в оставшихся городах тура. Весь день 29 апреля мы провели в поисках билетов в Хабаровск, как на прямые, так и на стыковочные рейсы. Все, что нам удалось найти 3 билета в бизнес-класс из резервов Госдумы РФ. Отмена концерта в Хабаровске следствие отмены концерта во Владивостоке и банального отсутствия авиабилетов. Утром этого же дня Soulfly составили письменное заявление о произошедшем инциденте в посольстве США в Москве. - Еще раз приносим свои искренние извинения всем поклонникам группы и людям, которые поддерживали эти концерты. Благодарим промоутеров в городах за терпение и понимание сложившейся ситуации. Группа Soulfly, в свою очередь, подтверждает, что при любом возможном случае даст концерты в этих городах</I>". </P>
+Автор: Vit Belov
+
+### 18.05.2005 news Новый альбом SOULFLY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SOULFLY "Dark Ages"</STRONG>&nbsp;выйдет 13 сентября на Roadrunner. Он посвящён погибшему <STRONG>Dimebag Darrell</STRONG> и приёмному внуку<STRONG> Max Cavalera</STRONG>, которые умерли в декабре во время записи пластинки. Трэк-лист:</FONT></P>
+<P>01. <B>The Dark Ages</B> <BR>02. <B>Babylon</B> <BR>03. <B>I And I</B> <BR>04. <B>Carved Inside</B> <BR>05. <B>Obliteration</B> <BR>06. <B>Frontlines</B> <BR>07. <B>Inner Spirit</B> <BR>08. <B>Corrosion Creeps</B> <BR>09. <B>Riot Starter</B> <BR>10. <B>Bleak</B> <BR>11. <B>Feel The Hate</B> <BR>12. <B>Stay Strong</B> <BR>13. <B>Soulfly V</B> <BR>14. (untitled) <BR></P>
+Автор: Vit Belov
+
+### 10.03.2006 reviews …Главное – манёвры?
+
+<P>Макс Кавалера решил устроить своим слушателям ретроспективу Сепультуры. То ли сам заностальгировал на десятом году разрыва с группой, то ли фанаты достали. Так или иначе, первая половина альбома густо пропитана сепультурщиной разных периодов. Открывашка – прямой отсыл к временам "Рутс, блади рутс". Лично мне такая ностальгия и даром не нужна, но дальше пошло намного веселее, вполне в духе Chaos A.D. А пятый трэк Кавалера вообще обозвал Arise Again, типа, намёк для тех, кто недопонял. </P>
+<P>И тут у меня случилась немая сцена с выпадением челюсти. Пока я мусолил в голове мысль о том, как хорошо всё-таки, что Кавалера завязал с растаманскими песнями и бразильскими плясками, заиграл шестой трэк под названием "Молотов". И я прозрел. "Хуйня война – главное манёвры", - на чистейшем русском языке рычал Кавалера, а Билли Милано, известное нью-йоркское хулиганьё, Максу подпевал. Аккомпанировали матершинникам четверо неизвестных мне русских музыкантов. Хорошо так аккомпанировали, забористо. Пока я подбирал с пола отпавшую челюсть, пришёл черед ещё раз удивиться. Следующая песня – Frontlines – вполне могла появиться на эпохальном Arise. </P>
+<P>Вы любили этот альбом так, как любили его мы, меломаны, открывшие для себя Сепультуру с польской перепечатки альбома Beneath The Remains? Я – любил. Именно такую Сепультуру я и любил… </P>
+<P>…А дальше Кавалера вдруг вспомнил, что он записывает не новый альбом Сепультуры, а очередной Соулфлай. Откуда-то появились растаманы с дрэдами на мошонках, и весь позитив вместе с ностальгией безвозвратно улетучились… И потянуло кондовой соулфлайщиной. </P>
+<P>Этот альбом Кавалера посвятил Богу. Не знаю, как Он, но будь я на Его месте – хорошенько треснул бы Макса по башке. Чтоб прошло, наконец, это наваждение йокоонистой Бабушки Глории, в старческих объятиях которой десятый год гибнет талантливый музыкант.</P>
+Автор: Ruslan
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 22.11.2006 news Max Cavalera выступит в Москве
+
+<P>Лидер <STRONG>SOULFLY Max Cavalera</STRONG> выступит в Москве 11&nbsp;января в рамках концерта группы <STRONG>FAQ</STRONG>. Лидер этого российского коллектива <STRONG>Павел "Паштет" Филипенко</STRONG> (ex-<STRONG>IFK</STRONG>) исполнил&nbsp;гостевые партии вокала на последнем CD <STRONG>SOULFLY "Dark Ages</STRONG>".&nbsp;</P>
+Автор: Vit Belov
+
+### 08.09.2007 news SOULFLY войдут в студию
+
+<P>В начале следующей недели<STRONG> SOULFLY</STRONG> войдут в студию для записи своего шестого студийного альбома. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 07.05.2008 news Новый альбом SOULFLY
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2008.05/12507.jpg" width=350 align=right border=5>Новый альбом <STRONG>SOULFLY</STRONG> <STRONG>"Conquer" </STRONG>выходит 29 июля на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P>01. <B>Blood Fire War Hate</B><BR>02. <B>Unleash</B><BR>03. <B>Paranoia</B><BR>04. <B>Warmageddon</B><BR>05. <B>War Ghost</B><BR>06. <B>Rough</B><BR>07. <B>Fall Of Sycophants</B><BR>08. <B>Doom</B><BR>09. <B>Rot</B><BR>10. <B>Touching The Void</B><BR>11. <B>Soulfly VI</B></P>
+Автор: Vit Belov
+
+### 29.08.2008 reviews Агрессия досталась CAVALERA CONSPIRACY
+
+<P>Max Cavalera — счастливый человек. Он любит свою работу, своих родственников, детей, Бога. У него есть две очень успешные группы, подписанные на лэйбле Roadrunner. Он любим практически во всех частях света. Он обрёл, наконец-то, отличного гитариста для своих проектов. Что ещё нужно?</P>
+<P>Новый альбом «Conquer» вышел менее, чем через полгода после выхода «ре-юнион» пластинки CAVALERA CONSPIRACY, о которой вы могли читать на нашем сайте. Мы не будем упрекать Max в скорострельности, та работа могла получиться легко и быстро под влиянием эмоций от воссоединения с братом и воспоминаний о SEPULTURA. Новая же пластинка SOULFLY наверняка была в графике задолго до счастливых событий. Мне показалось, что на CAVALERA CONSPIRACY Max полностью удовлетворил свою жажду к агрессии. «Conquer» вышел пусть и прямолинейным и энергичным, но не таким «зверским», как ранние работы SOULFLY. Музыканты используют даже акустическую гитару, а фолковые элементы подобраны так, чтобы в кадре присутствовали не только маршевые барабаны индейцев, но и их мелодика. При этом SOULFLY стали использовать и арабские мотивы, что может быть связано с двумя причинами. Первая — нашествие арабских террористов, а вторая — библейские мотивы в лирике, от которых Max Cavalera отделаться не сможет уже никогда, любовь к Богу с возрастом обычно всё сильней. Забавно звучат песни с использованием ненормативной лексики, яростно призывающие к служению Ему. Что ж, наверное и подобные посылы кому-то, да нужны.</P>
+<P>Не самый лучший альбом SOULFLY, от которых ждут, прежде всего, забоя и агрессии. Думается, либо поклонники вынуждены будут принять эту группу в том виде, в котором она сейчас существует, либо это подразделение господина Cavalera уступит своё место ностальгирующим «ре-юнион» альбомам с его братом.</P>
+Автор: Vit Belov
+
+### 03.10.2008 news SOULFLY в Москве (ФОТО)
+
+<P>1 октября в Москве в клубе <STRONG>B1 Maximum</STRONG> выступили <STRONG>SOULFLY</STRONG>. Наш сайт подготовил фоторепортаж с этого события.</P>
+<P>Ссылка: <A href="/ru/galleries/1/260/">http://musica.mustdie.ru/ru/galleries/1/260/</A></P>
+Автор: Vit Belov
+
+### 04.03.2009 news SOULFLY войдут в студию
+
+<P><STRONG>Max Cavalera</STRONG> заявил, что готов войти в студию вместе с <STRONG>SOULFLY </STRONG>позже в этом году.</P>
+Автор: Vit Belov
+
+### 08.11.2009 news SOULFLY начали записывать
+
+<P>6 ноября <STRONG>SOULFLY</STRONG> вошли в студию в Лос Анджелесе для записи нового альбома, который выйдет в 2010 году. Басист коллектива <STRONG>Bobby Burns</STRONG> глубокомысленно заметил: "В последнее время мы играли вместе лучше, чем когда-либо, и мы рады начать работу над новыми какашками".</P>
+<P>В недавнем интервью лидер группы<STRONG> Max Cavalera</STRONG> отметил, что новые песни стали немного короче, и сравнил новую музыку с <STRONG>MINOR THREAT</STRONG> и<STRONG> SLAYER "Reign In Blood".</STRONG></P>
+Автор: Vit Belov
+
+### 15.11.2009 news SOULFLY назвали альбом
+
+<P>Мы уже сообщали, что <STRONG>SOULFLY</STRONG> записывают новый альбом. Стали известны некоторые подробности. рабочее название пластинки "<STRONG>Omen</STRONG>", а вот названия некоторых песен:</P>
+<P>* <B>Bloodbath And Beyond</B><BR>* <B>Soulfly VII</B><BR>* <B>Off With Their Heads</B><BR>* <B>Omen</B><BR>* <B>Rise Of The Fallen</B><BR>* <B>Great Depression</B><BR>* <B>Apocalyptic Clash</B><BR>* <B>Vulture Culture</B><BR>* <B>Lethal Injection</B><BR>* <B>7 Daggerz</B></P>
+<P>Также группа записывает кавер на вещь <STRONG>LED ZEPPELIN</STRONG> <STRONG>"Four Sticks", </STRONG>который войдёт куда-нибудь как B-Side или бонус-трэк.</P>
+Автор: Vit Belov
+
+### 23.03.2010 news Новый альбом SOULFLY
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.03/16458.jpg" width=400 align=right border=5>Новая пластинка <STRONG>SOULFLY</STRONG> <STRONG>"Omen" </STRONG>выходит 25 мая на <STRONG>Roadrunner. </STRONG>Альбом был записан в Голливуде в студии <STRONG>Edge Of The Earth,</STRONG>&nbsp;его сопродюсером выступил <STRONG>Logan Mader</STRONG> (<B>MACHINE HEAD</B>, <B>DIVINE HERESY</B>, <B>CAVALERA CONSPIRACY</B>, <B>GOJIRA</B>, <B>DEVILDRIVER</B>). Гостевое участие на пластинке приняли <STRONG>Greg Puciato </STRONG>из <STRONG>THE DILLINGER ESCAPE PLAN</STRONG>&nbsp;и <STRONG>Tommy Victor </STRONG>из&nbsp;<STRONG>PRONG. </STRONG>Трэк-лист:</P>
+<P>01. <B>Bloodbath & Beyond</B><BR>02. <B>Rise of the Fallen</B><BR>03. <B>Counter Sabotage</B><BR>04. <B>Jeffrey Dahmer</B><BR>05. <B>Lethal Injection</B><BR>06. <B>Great Depression</B><BR>07. <B>Mega-Doom</B><BR>08. <B>Kingdom</B><BR>09. <B>Off With Their Heads</B><BR>10. <B>Vulture Culture</B><BR>11. <B>Soulfly 7</B><BR>Bonus / B-side tracks:<BR>* <B>Four Sticks</B> (LED ZEPPELIN cover)<BR>* <B>Refuse/Resist</B> (SEPULTURA cover; feat. Max's son Zyon on drums)<BR>* <B>Your Life, My Life</B> (EXCEL cover; feat. Max's son Igor on drums)</P>
+Автор: Vit Belov
+
+### 05.05.2010 news Клип от SOULFLY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>SOULFLY</STRONG> <STRONG>"Rise Of The Fallen"</STRONG> можно посмотреть ниже.</FONT></P>
+<CENTER><EMBED pluginspage=http://www.macromedia.com/go/getflashplayer src=http://www.rocktube.us/embedded/phcA0bhAUx0 width=450 height=366 type=application/x-shockwave-flash allowscriptaccess="always" allowfullscreen="true"></EMBED> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.06.2010 news Max Cavalera хочет ре-юниона с Andreas Kisser, но на своих условиях
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист/гитарист <STRONG>SEPULTURA Max Cavalera</STRONG> продолжает обсуждать возможный ре-юнион бразильской группы. Для того, чтобы событие произошло нужно воссоединение <STRONG>Paulo Jr.</STRONG> и <STRONG>Andreas Kisser</STRONG> с одной стороны и братьев <STRONG>Cavalera</STRONG> с другой. <STRONG>Max</STRONG> признал факт того, что в прошлом году они обсуждали возможность возрождения классического состава <STRONG>SEPULTURA</STRONG> с <STRONG>Andreas Kisser</STRONG> по телефону, но сделка не состоялась. Камнем преткновения стала роль жены<STRONG> Max Cavalera Gloria</STRONG> в ре-юнионе. Дело в том, что при развале <STRONG>SEPULTURA </STRONG>в 1996 году большую роль играли внутрисемейные отношения. Господин<STRONG> Cavalera</STRONG> утверждает, что предложил господину<STRONG> Kisser</STRONG> разделить менеджмент новой <STRONG>SEPULTURA</STRONG> 50/50. При этом 50 процентов братьев<STRONG> Cavalera</STRONG> должна была осуществлять<STRONG> Gloria Cavalera</STRONG>. <STRONG>Kisser</STRONG> не согласился.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я хочу сделать этот ре-юнион&nbsp;не ради денег. Мне хочется показать людям, как хороша была SEPULTURA. Просто отыграть хорошие шоу, чтобы показать всю важность нашей группы. Никакого нового материала для группы я сочинять не планирую. Старые песни всё равно лучше</EM>", - поясняет <STRONG>Max Cavalera</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыкант также рассказал, что его брат <STRONG>Igor </STRONG>не хочет даже разговаривать с <STRONG>Andreas Kisser</STRONG>. Но он готов принять участие в ре-юнион туре ради самого<STRONG> Max Cavalera</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме прочего, в этом интервью журналу<STRONG> FaceCulture</STRONG> вокалист приоткрыл завесу тайны над распадом<STRONG> SEPULTURA</STRONG> в 1996 году и поведал странные вещи. Оказывается, в 1996 году погиб пасынок <STRONG>Max</STRONG>'a <STRONG>Dana</STRONG>. Семья <STRONG>Cavalera</STRONG> немедленно вылетела из Донингтона, где тогда выступали<STRONG> SEPULTURA</STRONG>, но выяснилось, что жена<STRONG> Andreas Kisser</STRONG> по какой-то причине решила сама похоронить <STRONG>Dana</STRONG> до приезда его матери.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Несмотря на это "зло", <STRONG>Max Cavalera</STRONG> готов зарыть топор войны, чтобы объединить силы с бывшим товарищем в ре-юнион туре не ради денег.</FONT></P>
+Автор: Vit Belov
+
+### 24.06.2010 reviews В следующий раз больше ругайся матом, мальчик
+
+<P>Max Cavalera мечтает о воссоединении SEPULTURA не ради денег, а ради славы. Естественно он не может говорить не о каком новом альбоме со своей старой группой, так как на нём теперь и так висит два контракта: SOULFLY и CAVALERA CONSPIRACY. SOULFLY всегда были его группой, а сотрудничество с братом Igor в семейном проекте CAVALERA CONSPIRACY носит скорее декларативный характер. Над материалом для обеих групп трудится сплочённый коллектив с Max во главе. Вот и приходится как-то изворачиваться, чтобы материал для разных групп был не похож, ведь, при всём уважении к творчеству господина Cavalera, оно берёт скорее энергетикой, нежели разнообразием мелодических решений.</P>
+<P>Новый альбом SOULFLY пал жертвой этих обстоятельств. Видимо, качёвый «сепультуристый» материал Max Cavalera приберёг для проекта CAVALERA CONSPIRACY, второй альбом которого будет записан в ближайшее время. Что же ещё, кроме «сепультуристого» материала, сдобренного старым русским словом «фак», умеет сочинять сей композитор? До сего дня никакой информации по этому поводу у меня не было. Теперь же, после прослушивания “Omen” на ум просится слово «ничего». Потому что обозреваемый альбом представляет собой нечто. Нечто невообразимое. Max Cavalera решил подумать о вечном и добавил в свою музыку большие доли панка и hardcore, ради большей аутентичности даже изменив свой вокал во многих местах. Была утеряна энергичность, а вместе с ней была утеряна и любовь моя к группе SOULFLY. Когда певец орал благим матом: «Oh, my God, mother fucker!@#», мне всегда хотелось даже где-то его подбодрить: «Молодец, кричи веселей». Max Cavalera представлялся мне эдаким серьёзным панком, который ругается, но ругается с очень невесёлым и даже умным лицом. Мол, я не просто сквернослов, я ругаюсь от того, что вы не х… понять без этого не можете… Ну, как в том анекдоте, вы понимаете.</P>
+<P>Теперь наш дорогой друг позволил себе расслабиться, и оказалось, что музыкально, кроме ужимок и прыжков он ничего предложить не может. Новый альбом SOULFLY не хочется слушать. Мало того, что он достаточно пассивен, так ещё и качество реализации не соответствует современным стандартам, безусловно, по задумке автора. “Omen” выглядит несколько халтурным. Теперь у нас остаётся единственный положительный вывод из всего этого. Быть может, все супер-боевики Cavalera приберёг для CAVALERA CONSPIRACY? Тогда это будет действительно ураганная пластинка.</P>
+Автор: Vit Belov
+
+### 20.07.2010 news Басист Bobby Burns покинул SOULFLY
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16925.jpg" width=181 height=250>Басист&nbsp;<B itxtvisited="1">Bobby Burns </B>(на фото) покинул <B itxtvisited="1">SOULFLY</B> после семи лет в группе&nbsp;и четырёх студийных альбомов.&nbsp;На своей странице в Twitter он написал:&nbsp;<EM>"Всем фэнам... <B itxtvisited="1">SOULFLY</B> и я приняли решение расстаться. Следите за моими следующими&nbsp;проектами, которые уже в работе. Спасибо за вашу поддержку!!!"<BR itxtvisited="1"></EM>В данный момент<STRONG> Bobby</STRONG> является участником hip-hop/punk/metal группы <B itxtvisited="1">PRIMER 55</B>.</P>
+<P>Ознакомиться с музыкой <STRONG>PRIMER 55 </STRONG>можно по адресу: <BR itxtvisited="1"><A href="http://www.myspace.com/primer55rocks">http://www.myspace.com/primer55rocks</A></P>
+Автор: Headcrusher
+
+### 04.12.2010 news Max Cavalera: &quot;Paulo Jr. просто не умел играть&quot;.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=262 alt="Paulo Jr не умел играть на басу" hspace=0 src="/images/news_rus/2010.12/17732.jpg" width=200 align=right border=0>В недавнем интервью журналу<STRONG> Revolver Max Cavalera</STRONG> из <STRONG>SOULFLY</STRONG> рассказал о новом альбоме <STRONG>CAVALERA CONSPIRACY</STRONG> и вновь открыл некоторые тайны функционирования легендарной группы <STRONG>SEPULTURA</STRONG>, в которой он участвовал до записи альбома "<STRONG>Roots</STRONG>" включительно. На этот раз объектом исследования стал басист группы <STRONG>Paulo Jr</STRONG>. На вопрос о своём отношении&nbsp;к концерту 12 декабря, на котором <STRONG>SEPULTURA</STRONG> собираются отыграть "<STRONG>Arise</STRONG>", и о своём участии в сочинении материала для него, <STRONG>Max</STRONG> ответил следующее:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>В сочинении материала я даю другим музыкантам шанс проявить себя. Например, Igor (барабанщик SEPULTURA в то время Igor Cavalera)&nbsp;приносил&nbsp;некоторые идеи. Единственный, кто не участвовал в работе басист Paulo Jr. Я думаю, первый альбом, на котором мы его записали, был "Roots". На предыдущих альбомах я и Andreas Kisser записывали партии баса, так как Paulo не умел играть так хорошо. Но мы были друзьями, поэтому оставляли его в группе. Мы так и говорили: "Ты можешь остаться в группе, мы просто сделаем тебя потише</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 01.07.2011 news SOULFLY взяли басиста STATIC-X
+
+<P>Новым постоянным участником <STRONG>SOULFLY</STRONG> стал басист <STRONG>Tony Campos</STRONG> (<B>STATIC-X</B>, <B>PRONG</B>, <B>ASESINO</B>, <B>MINISTRY</B>, <B>POSSESSED</B>). Он заменил покинувшего коллектив <STRONG>Bobby Burns</STRONG>.</P>
+<P><center><IMG height=601 src="/images/news_rus/2011.07/19833.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 07.12.2011 news SOULFLY назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=547 alt="" hspace=0 src="/images/news_rus/2011.12/22273.jpg" width=400 align=right border=0>Восьмая работа <STRONG>SOULFLY </STRONG>получила название "<STRONG>Enslaved</STRONG>". Альбом выйдет 13 марта на<STRONG> Roadrunner Records</STRONG>. Пластинка была записана в <STRONG>Tallcat Studios </STRONG>в Фениксе с продюсером <STRONG>Chris "Zeuss" Harris. </STRONG>Названия песен:</FONT></P>
+<P>* <B>Resistance</B><BR>* <B>World Scum</B><BR>* <B>Intervention</B><BR>* <B>Gladiator</B><BR>* <B>Legions</B><BR>* <B>American Steel</B><BR>* <B>Redemption Of Man By God</B><BR>* <B>Treachery</B><BR>* <B>Plata O Plomo</B><BR>* <B>Revengeance</B><BR>* <B>Chains</B><BR>* <B>Slave</B><BR>* <B>Bastards</B><BR>* <B>Soulfly VIII</B></P>
+Автор: Vit Belov
+
+### 21.01.2012 news Новый альбом SOULFLY
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22717.jpg" width=400 align=right border=0>13 марта на <STRONG>Roadrunner </STRONG>выходит новый альбом <STRONG>SOULFLY "Enslaved"</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Resistance<BR></STRONG>2. <STRONG>World Scum<BR></STRONG>3. <STRONG>Intervention</STRONG><BR>4. <STRONG>Gladiator</STRONG><BR>5. <STRONG>Legions<BR></STRONG>6. <STRONG>American Steel</STRONG><BR>7. <STRONG>Redemption of Man By God</STRONG><BR>8. <STRONG>Treachery<BR></STRONG>9. <STRONG>Plata O Plomo</STRONG><BR>10. <STRONG>Chains<BR></STRONG>11. <STRONG>Revengeance</STRONG></P>
+<P>The digital-only edition includes the following three bonus tracks: <BR>12. <STRONG>Slave<BR></STRONG>13. <STRONG>Bastard</STRONG><BR>14. <STRONG>Soulfly VIII</STRONG></P>
+Автор: Vit Belov
+
+### 17.02.2012 news Новый клип SOULFLY
+
+<P>Видео-клип<STRONG> SOULFLY</STRONG> на песню "<STRONG>World Scum</STRONG>" можно посмотреть ниже. Трек взят с нового альбома <STRONG>Max Cavalera "Enslaved"</STRONG>, который выйдет 13 марта на <STRONG>Roadrunner</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/y3dG23D1-P8?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 19.03.2013 news David Vincent, Max Cavalera, Glenn Danzig в фильме о порно актрисе Ванессе дель Рио
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25550.jpg" width=350 height=469>David Vincent </STRONG><EM>(на фото)</EM>,&nbsp;басист и вокалист группы <STRONG>MORBID ANGEL</STRONG>, снимается в полнометражной картине с длинным названием&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, рассказывающей захватывающую историю жизни легендарной актрисы фильмов для взрослых Ванессы дель Рио (<STRONG>Vanessa del Rio</STRONG>). Участие в этом фильме станет кинодебютом для Винсента.</P>
+<P>Лидер <STRONG>SOULFLY</STRONG>, <STRONG>Max Cavalera</STRONG>, работает над музыкой к киноленте, тогда как <STRONG>Glenn Danzig</STRONG> согласился сняться в ней в роли жестокого бандита.</P>
+<P>Режиссёром и сценаристом фильма выступил <STRONG>Thomas Mignone</STRONG>, больше всего известный&nbsp;по своей предыдущей картине <STRONG>"On The Doll"</STRONG>,&nbsp;а также за создание&nbsp;музыкальных клипов, получивших различные награды.&nbsp;</P>
+<P>Главный актёр сереала <STRONG>"The Walking Dead"</STRONG>, Майкл Рукер (<STRONG>Michael Rooker</STRONG>),&nbsp;описал картину&nbsp;&nbsp;<STRONG>"Vanessa del Rio Feature Film"</STRONG>, как фильм <STRONG>"Ночи В Стиле Буги"</STRONG> ("Boogie Nights") встречается с<STRONG> </STRONG>фильмом <STRONG>"Таксист"</STRONG> ("Taxi Driver").</P>
+Автор: Headcrusher
+
+### 03.10.2014 news Новая музыка от братьев
+
+<P>Новый альбом содружества основателей<STRONG> SEPULTURA</STRONG> братьев<STRONG> Cavalera CAVALERA CONSPIRACY "Pandemonium"</STRONG> выйдет в начале ноября на <STRONG>Napalm Records</STRONG>. Нарезку новой музыки можно послушать в клипе ниже.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/eCOrgkSCcpg" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.09.2015 news Новый клип SOULFLY
+
+<P>Новый ролик <STRONG>SOULFLY</STRONG> на песню "<STRONG>Archangel</STRONG>" с одноимённого нового альбома можно посмотреть ниже.</P>
+<P>Тем временем объявлены места в чартах по всему миру. Альбом вышел две недели назад на<STRONG> Nuclear Blast</STRONG>.</P>
+<P>Austria - #31<BR>Australia - #41<BR>Belgium - #29<BR>Canada - #60<BR>Czech Republic - #17<BR>Germany - #19<BR>Finland - #22<BR>France - #40<BR>Netherlands - #33<BR>Spain - #19<BR>Switzerland - #11<BR>UK - #57<BR>USA - #130<BR>World Chart - #23</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/0WMMdgttj_0" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### SOULFLY. Макс Кавалера постарался на славу!

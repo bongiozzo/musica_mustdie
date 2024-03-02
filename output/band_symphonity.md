@@ -25,6 +25,39 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2016 news Новый альбом SYMPHONITY
+
+<p>Второй альбом symphonic power metal группы из Чехии<strong> SYMPHONITY "King Of Persia"</strong> выйдет 30 сентября на<strong> Limb Music</strong>. В группе участвуют известные музыканты, в частности вокалисты<strong> Olaf Hayer</strong> (ex-DIONYSUS) и <strong>Herbie Langhans</strong> (SINBREED)&nbsp;и&nbsp;басист <strong>Ronnie Konig</strong> (SIGNUM REGIS). Сведение альбома <strong>Sascha Paeth</strong>, мастеринг <strong>Miro</strong>. Обложку нарисовал <strong>Andreas Marschall</strong> (BLIND GUARDIAN, KREATOR, RUNNING WILD).</p><p>Трек лист:</p><p>01. King Of Persia 9:06<br>02. The Choice 4:15<br>03. In The Name Of God 4:11<br>04. Flying 4:38<br>05. A Farewell That Wasn't Meant To Be 6:33<br>06. Children Of The Light 7:08<br>07. Siren Call 2:54<br>08. Live To Tell The Tale 6:32<br>09. Unwelcome 5:14<br>10. Out Of This World 2:32</p><p><center><img width="302" height="302" src="/images/news_rus/2016.08/29762.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 08.08.2016 news New album by SYMPHONITY
+
+<p>The second album by symphonic power metal band <strong>SYMPHONITY</strong> from Czech Republic "<strong>King Of Persia</strong>" will be released September 30 on <strong>Limb Music</strong>. The group members are known musicians including vocalists <strong>Olaf Hayer</strong> (ex-DIONYSUS) and <strong>Herbie Langhans</strong> (SINBREED) and bass player <strong>Ronnie Konig</strong> (SIGNUM REGIS). The album mixed by<strong> Sascha Paeth</strong>, mastered by <strong>Miro</strong>. Cover artwork by <strong>Andreas Marschall</strong> (BLIND GUARDIAN, KREATOR, RUNNING WILD).</p><p>Track list:</p><p>01. King Of Persia 9:06<br>02. The Choice 4:15<br>03. In The Name Of God 4:11<br>04. Flying 4:38<br>05. A Farewell That Wasn't Meant To Be 6:33<br>06. Children Of The Light 7:08<br>07. Siren Call 2:54<br>08. Live To Tell The Tale 6:32<br>09. Unwelcome 5:14<br>10. Out Of This World 2:32</p><p><center><img width="302" height="302" src="/images/news_rus/2016.08/29762.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 02.09.2016 news Трейлер нового альбома SYMPHONITY
+
+<p>Мы уже сообщали, что новый альбом<strong> SYMPHONITY "King Of Persia" </strong>выходит 30 сентября на<strong> Limb Music</strong>. Ниже можно послушать трейлер с отрывками песен с этого альбома.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/5QfyfbfckqY" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.09.2016 news SYMPHONITY released trailer
+
+<p>We have already reported that the new<strong> SYMPHONITY</strong> album "<strong>King Of Persia</strong>" comes out September 30 on <strong>Limb Music</strong>. Below you can listen to a trailer with excerpts of the songs from this album.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/5QfyfbfckqY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 13.09.2016 news Lyric video от SYMPHONITY
+
+<p>Neoclassic power metal группа <strong>SYMPHONITY</strong> выложила lyric video на песню "<strong>The Choice</strong>". Новый альбом музыкантов "<strong>King Of Persia</strong>" выйдет 30 сентября.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/YriOvoiLhfQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.09.2016 news Lyric video of SYMPHONITY
+
+<p>Neoclassic power metal band<strong> SYMPHONITY</strong> posted a lyric video for the song "<strong>The Choice</strong>". The new album of the musicians "<strong>King Of Persia</strong>" will be released September 30.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/YriOvoiLhfQ" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

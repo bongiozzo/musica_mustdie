@@ -125,6 +125,50 @@
 
 * C группой "Denner / Shermann" Sean Peck (vocal)
 
+## Публикации
+
+### 10.07.2002 news Чернее черного или... 4 черненьких чернявеньких чертенка...
+
+<p>Калифорнийские пауэрщики CAGE начали работу над третьим альбомом "Darker Than Black" в Silver Cloud studios (где писались BRUCE DICKINSON, HALFORD, ROB ROCK) с продюссером Joe Floyd (WARRIOR). Список песен: <BR><BR> 01. Kill The Devil<BR> 02. Blood Of The Innocent<BR> 03. Philadelphia Experiment<BR> 04. Door To The Unknown<BR> 05. March Of The Cage<BR> 06. White Magic <BR> 07. Anti-Matter<BR> 08. 3rd Secret Of Fatima<BR> 09. Chupacabra<BR> 10. Darker Than Black<BR> 11. Wings Of Destruction<BR> 12. Forces Of Freedom<BR><BR> Это будет первый релиз группы в рамках европейской сделки с немецкой Massacre Records. Альбом выйдет еще до конца 2002 года...</p>
+
+Автор: Yermola
+
+### 10.07.2002 news CAGE To Begin Recording &quot;Darker Than Black&quot; ...
+
+<p>San Diego, California-based power metallers CAGE will begin recording their third full-length album, entitled Darker Than Black, on July 12th at Silver Cloud studios (i.e. BRUCE DICKINSON, HALFORD, ROB ROCK) in Burbank, California with producer Joe Floyd (WARRIOR guitarist). <BR><BR> The tentative track listing for Darker Than Black is as follows:<BR><BR> 01. Kill The Devil<BR> 02. Blood Of The Innocent<BR> 03. Philadelphia Experiment<BR> 04. Door To The Unknown<BR> 05. March Of The Cage<BR> 06. White Magic <BR> 07. Anti-Matter<BR> 08. 3rd Secret Of Fatima<BR> 09. Chupacabra<BR> 10. Darker Than Black<BR> 11. Wings Of Destruction<BR> 12. Forces Of Freedom<BR><BR> Darker Than Black will be the group's first release under their European deal with Germany's Massacre Records. The album is set to be issued towards the end of 2002. CAGE have yet to secure a deal for the North American release of the record.</p>
+
+Автор: Yermola
+
+### 18.11.2003 reviews Высококачественный опус в жанре heavy-metal
+
+Американская команда CAGE выпустила свой третий альбом в истории, и второй по лицензии в России. Неплохая работа, вполне достойная издающего лэйбла, Massacre. Очень качественная музыка в жанре heavy-metal с явными посылками в сторону JUDAS PRIEST. В записи альбома принял участие Roy Z, который в последнее время специализируется на работе со звездами данного стиля, среди которых Дикинсон и Хэлфорд. Ничего плохого сказать невозможно. Некоторые песни очень&nbsp;цепляют в своей&nbsp;"непосредственности".&nbsp;"Высокоинтеллектуальные"&nbsp;хиты 'Kill The Devil', 'White Magic', или даже,&nbsp;'Chupacabra' (сей&nbsp;опус дописан в качестве бонуса на испанском языке)&nbsp;&nbsp;с запоминающимися рефренами и очень хорошой гитарной работой найдут своего потребителя в среде любителей жанра. 'Darker Than Black' ни в коем случае не шедевр, но ценители старого доброго, где-то ортодоксального,&nbsp;heavy-metal просто обязаны&nbsp;это прикупить.
+Автор: Vit Belov
+
+### 17.12.2003 reviews High Quality opus in power-metal genre
+
+American band <B>CAGE</B> has already released third album in&nbsp;its history and second album, which was licensed in Russia.&nbsp;Good work,&nbsp;deserving&nbsp;its label <B>MASSACRE RECORDS</B>.&nbsp;High quality music in heavy-metal genre with obvious <B>JUDAS PRIEST</B> touches. <B>Roy Z</B> took part in recordings of the album. He spesializes in work with stars of this style, in particular with <B>Bruce Dickinson</B> and <B>Rob Halford</B>. I can not say iny bad things. Some songs catch in their "naturalness". "Very intellect" hits about <B>'Kill The Devil'</B>, <B>'White Magic'</B>, or&nbsp;even,&nbsp;'<B>Chupacabra</B>' (this song also added as bonus-track in Spanish) with remaining in memory refrains and very good guitar work will find their buyer in fan of this style environment. <B>'Darker Than Black'</B> is not masterpiece, but connoisseurs of old good, orthodox, heavy-metal just must buy this CD!
+Автор: Vit Belov
+
+### 09.01.2007 news Новый альбом CAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>CAGE "Hell Destroyer"</STRONG> выйдет в начале этого года. Это концептуальный альбом, основанный на Библии. Заглавную песню с новейшего альбома можно послушать здесь: <A href="http://www.myspace.com/cageheavymetal">http://www.myspace.com/cageheavymetal</A></FONT></P>
+Автор: Vit Belov
+
+### 17.02.2009 news CAGE в мае
+
+<P>Новый альбом<STRONG> CAGE</STRONG> <STRONG>"Science Of Annihilation" </STRONG>выйдет 22 мая на <STRONG>Music By Mail.</STRONG> </P>
+<P>
+<CENTER><IMG height=296 src="/images/news_rus/2009.02/13593.jpg" width=300 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.10.2011 news Новый альбом CAGE
+
+<P><IMG height=398 alt="" hspace=0 src="/images/news_rus/2011.10/21589.jpg" width=400 align=right border=0>25 ноября на<STRONG> Music Buy Mail</STRONG> выйдет новый альбом <STRONG>CAGE "Supremacy Of Steel"</STRONG>. Обложку нарисовал <STRONG>Marc Sasso (DIO, HALFORD)</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Bloodsteel&nbsp; </STRONG>(featuring guest artist BITTERFROST)<BR>2. <STRONG>The Beast Of Bray Road</STRONG><BR>3. <STRONG>King Of The Wasteland</STRONG><BR>4. <STRONG>Metal Empire</STRONG><BR>5. <STRONG>War Of The Undead</STRONG><BR>6. <STRONG>Flying Fortress</STRONG><BR>7. <STRONG>Doctor Doom</STRONG><BR>8. <STRONG>Annaliese Michel</STRONG><BR>9. <STRONG>Braindead Woman</STRONG><BR>10. <STRONG>The Monitor</STRONG><BR>11. <STRONG>Hell Destroyer vs. Metal Devil</STRONG><BR>Bonus track for Europe: 12. <STRONG>Skinned Alive</STRONG><BR>Bonus track USA and rest of the world: 12. <STRONG>Blood White And Blue</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

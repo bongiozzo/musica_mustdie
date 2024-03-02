@@ -8,6 +8,9 @@ gothic metal band from Australia (Canberra)
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

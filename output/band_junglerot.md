@@ -67,6 +67,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.04.2009 news Новый альбом JUNGLE ROT
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.04/14012.jpg" width=450 align=right border=5>4 мая на <STRONG>Napalm Records</STRONG> выходит новый альбом <STRONG>JUNGLE ROT</STRONG> <STRONG>"What Horrors Await". </STRONG>Трэк-лист:</P>
+<P>01. <B>Worst Case Scenario</B><BR>02. <B>The Unstoppable</B><BR>03. <B>Straightjacket Life</B><BR>04. <B>State Of War</B><BR>05. <B>Two Faced Disgrace</B><BR>06. <B>End Of An Age</B><BR>07. <B>Speak The Truth</B><BR>08. <B>What Horrors Await</B><BR>09. <B>Nerve Gas Catastrophe</B><BR>10. <B>Braindead</B><BR>11. <B>Atrocity</B><BR>12. <B>Exit Wounds</B><BR>13. <B>Invincible Force</B> (DESTRUCTION cover)<BR>14. <B>Black Candle Mass</B></P>
+<P>Сэмплы: <A href="http://www.myspace.com/junglerot">http://www.myspace.com/junglerot</A></P>
+Автор: Vit Belov
+
+### 17.04.2010 news Клип JUNGLE ROT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>JUNGLE ROT</STRONG> на песню <STRONG>"Worse Case Scenario" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/NdGWptVMA1c&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/NdGWptVMA1c&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.03.2012 news Новый клип JUNGLE ROT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик <STRONG>"Blood Ties" JUNGLE ROT </STRONG>можно посмотреть ниже. Трек взят с последнего альбома американцев <STRONG>"Kill On Command</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Agt5u2JRMYw?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

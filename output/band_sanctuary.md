@@ -34,6 +34,28 @@ pre-NEVERMORE
 * C группой "Nevermore" Jim Sheppard (bass)
 * C группой "Nevermore" Warrel Dane (vocal)
 
+## Публикации
+
+### 05.07.2011 news NEVERMORE будет жить
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В апреле этого года<STRONG> NEVERMORE</STRONG> покинули гитарсит <FONT color=#ddd9d0><STRONG>Jeff Loomis</STRONG> и барабанщик <STRONG>Van Williams. </STRONG>Тем временем, басист<STRONG> Jim Sheppard</STRONG> и вокалист <STRONG>Warrel Dane</STRONG> воссоединились в<STRONG> SANCTUARY</STRONG>, heavy-thrash-metal группе, выпустившей два альбома в конце 80-х годов. Возникли определённые сомнения в жизнеспособности <STRONG>NEVERMORE</STRONG>. <STRONG>Warrel Dane</STRONG> заявил, что <STRONG>NEVERMORE</STRONG> будет жить.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000">Тем временем<STRONG> SANCTUARY</STRONG> готовят новый материал. Видео их выступления можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000"></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/BfKf0SVwZjQ?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/BfKf0SVwZjQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.10.2014 news Видео возвращенцев SANCTUARY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вернувшиеся к жизни американцы<STRONG> SANCTUARY</STRONG> выпустят на<STRONG> Century Media</STRONG> новый альбом "<STRONG>The Year The Sun Died</STRONG>". Новый клип коллектива "<STRONG>Frozen</STRONG>" смотрите ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/r_IrbeZfJII" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

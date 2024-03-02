@@ -89,6 +89,19 @@ Mбrton Veress - Drums
 
 * C группой "The End (Sweden)" Daniel Erlandsson, Tobias Gustafsson
 
+## Публикации
+
+### 04.10.2016 news ARMAGEDDON переписали дебютный альбом
+
+<p>Группа<strong> Christopher Amott</strong> (ex-ARCH ENEMY)<strong> ARMAGEDDON</strong> перезаписала дебютный альбом "<strong>Crossing The Rubicon</strong>" и готовит его к выпуску 14 октября на <strong>Listenable Records</strong>. Ниже можно услышать трек "<strong>Astral Adventure (TheEscape)</strong>" с этого издания.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/lMPXA18nrZo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.10.2016 news ARMAGEDDON will re-release debut album
+
+<p>Group of <strong>Christopher Amott</strong> (ex-ARCH ENEMY)<strong> ARMAGEDDON</strong> re-recorded debut album "<strong>Crossing The Rubicon</strong>" and prepares it for release on October 14 via <strong>Listenable Records</strong>. Below you can hear the track "<strong>Astral Adventure (TheEscape)</strong>" from this edition.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/lMPXA18nrZo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

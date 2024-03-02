@@ -73,6 +73,97 @@ Steven Jacobs - Drums
 * C группой "Testament" Paul Bostaph (drums)
 * C группой "Exodus" Paul Bostaph (drums)
 
+## Публикации
+
+### 24.10.1999 news 
+
+<p>Стив Якоб (ex-Forbidden) стал новым барабанщиком Testament, сменив на этом посту Дэйва Ломбардо.</p>
+
+Автор: Vit Belov
+
+### 05.03.2002 news Пол Бостаф стал новым барабанщиком SYSTEMATIC....
+
+<p>Бывший участник "SLAYER", а также "FORBIDDEN" и "TESTAMENT" - Paul Bostaph официально присоединился к бэй-ариа трэшерам "SYSTEMATIC". Бостаф стал заменой ушедшему Shaun Bannon, который повредил руку на съемках видео "Deep Colors Bleed"....</p>
+
+Автор: Yermola
+
+### 05.03.2002 news Former SLAYER Drummer Officially Joins SYSTEMATIC....
+
+<p>Former SLAYER drummer Paul Bostaph has officially joined San Francisco Bay Area's SYSTEMATIC. As exclusively reported here on January 4th, Bostaph (who had also played with FORBIDDEN and TESTAMENT) has joined SYSTEMATIC as a replacement for Shaun Bannon, who was forced to leave the group last summer after sustaining an arm injury during the making of the "Deep Colors Bleed" video.<BR> <BR> Bostaph is no stranger to the SYSTEMATIC guys, having played with the latter band's guitarist Adam Ruppell in a previous project prior to re-joining SLAYER in 1996. Paul, who has reportedly chopped off most of his long hair, played his first gig as a member of SYSTEMATIC on New Year's Eve (December 31st) in Modesto, California at a show sponsored by local rock station KMRQ (Rock 96.7).<BR><BR> Here is an update on the band's activities, as posted by Ruppel: <BR><BR> “Hey Kids,<BR><BR> “Just writing to keep everyone up to date with what's going on. First and foremost, the band is writing our asses off. Our goal is to have thirty songs to choose from to make the next album. So far the material is great. If I can say anything about it, it's that it's SYSTEMATIC, but a lot more focused. I say that because the band is now more focused than ever, but I guess a year and a half on the road will do that to you. We are looking at getting into the studio sometime in March, and as a promise to our fans, we will make a great record for us, you and no one else. There is a lot to look forward to in the world of SYSTEMATIC.<BR><BR> We are also proud to say that SYSTEMATIC finally have a drummer. Old family member Paul Bostaph, who was with us in the beginning, is now back and putting an end to our search for a drummer. Paul is a great guy and an amazing drummer, so SYSTEMATIC fans have a lot to look forward to. We would also like to say thanks to Larry 'the kid' Horn for filling in and doing a great job. Larry is family now and we wish him the best, he deserves it. I also wanted to let everyone know that Larry got ripped off the picture in Metal Edge is Larry and not Shaun.<BR><BR> “In not so positive news, long time friend and bassist, Nick St. Dennis has departed ways with SYSTEMATIC. Nick will be moving on to pursue guitar playing. Nick, who was originally a guitarist, joined SYSTEMATIC playing the bass. As every guitar player out there knows, it's a hard thing to set your true desires aside. We do thank Nick for doing the job he did and for being a part of the family. We all know that family is family and we will always be bound together, offering helping hands to each other at any point. We would all like to wish Nick the very best in music and in life. Go get em' brother!! <BR><BR> “Let's all look forward to the future and as promised SYSTEMATIC will deliver. Stay up to date on our website and we will make sure we keep you all posted on things to come! <BR><BR> “Adam R.— SYSTEMATIC”</p>
+
+Автор: Yermola
+
+### 10.01.2009 news FORBIDDEN покинул гитарист
+
+<P>Гитарист <STRONG>Glen Alvelais </STRONG>покинул реактивированный<STRONG> FORBIDDEN</STRONG>. Его место занял <STRONG>Steve Smyth</STRONG> (<B>TESTAMENT</B>, <B>NEVERMORE</B>). Сам<STRONG> Glen</STRONG> решил сконцентрироваться на своей собственной группе <STRONG>TENET</STRONG> и её дебютном альбоме. Новый материал <STRONG>FORBIDDEN</STRONG>, по словам музыканта, недостаточно тяжёл для него. Сам же он достигнет нового уровня тяжести с нижеперечисленными музыкантами в <STRONG>TENET</STRONG>: <STRONG>Jed Simon</STRONG> [<B>STRAPPING YOUNG LAD</B>], <B>Zetro Souza</B> [<B>EXODUS</B>], <B>Gene Hoglan</B> [<B>STRAPPING YOUNG LAD</B>, <B>DARK ANGEL</B>, <B>TESTAMENT</B>], <B>Byron Stroud</B> [<B>STRAPPING YOUNG LAD</B>, <B>FEAR FACTORY</B>].</P>
+Автор: Vit Belov
+
+### 24.08.2009 news Новая песня Forbidden
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Калифорнийцы <STRONG>FORBIDDEN</STRONG> выложили песню "<STRONG>Adapt Or Die"</STRONG> на своей myspace-странице по адресу: <A href="http://www.myspace.com/forbidden__evil">http://www.myspace.com/forbidden__evil</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Эта песня войдёт на новый, пока ещё не получивший названия, альбом группы, который&nbsp;станет первой студийной работой со времени выпуска диска <STRONG>"Green"</STRONG> в 1997 году.</FONT></P>
+<P><IMG height=267 alt="" hspace=100 src="/images/news_rus/2009.08/14924.jpg" width=400 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 24.01.2010 news Участники MERCYFUL FATE, FORBIDDEN и DEFIANCE в новом проекте
+
+<P><STRONG><IMG height=399 alt="" hspace=5 src="/images/news_rus/2010.01/16057.jpg" width=300 align=right vspace=5 border=0>DEMONICA - </STRONG>это новый проект включающий в себя<STRONG> </STRONG>гитариста<STRONG> Hank Shermann</STRONG> (<STRONG>MERCYFUL FATE</STRONG>). Дебютный альбом, получивший название <STRONG>"Demonstrous"</STRONG>, выйдет в свет 26 февраля на <B itxtvisited="1">Massacre Records</B>. Запись диска происходила в&nbsp;студиях С.Ш.А. и Дании и была смикширована в студии&nbsp;<B itxtvisited="1">Flatline Audio</B>&nbsp; города Denver (Colorado) с <B itxtvisited="1">Dave Otero</B> (<B itxtvisited="1">CEPHALIC CARNAGE</B>, <B itxtvisited="1">MARTRIDEN</B>, <B itxtvisited="1">COBALT</B>).</P>
+<P>Первый трек с <STRONG>"Demonstrous"</STRONG>, под названием <STRONG>"Demon Class"</STRONG>,&nbsp;&nbsp;можно прослушать&nbsp;на Myspace&nbsp;странице&nbsp;группы:</P>
+<P><A href="http://www.myspace.com/demonicaofficial">http://www.myspace.com/demonicaofficial</A>.</P>
+<P><STRONG>DEMONICA</STRONG> это:<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">Hank Shermann</B> (<STRONG>MERCYFUL FATE)</STRONG> - гитара<BR itxtvisited="1"><B itxtvisited="1">Craig Locicero</B> (<STRONG>FORBIDDEN</STRONG>) - гитара<BR itxtvisited="1"><B itxtvisited="1">Klaus "Hyr" Hansen</B> (<STRONG>BATTALION</STRONG>, <STRONG>TRAUMA CENTER</STRONG>) - вокал<BR itxtvisited="1"><B itxtvisited="1">Mark Hernandez</B> (<STRONG>FORBIDDEN</STRONG>, <STRONG>HEATHEN</STRONG>, <STRONG>DEFIANCE</STRONG>, <STRONG>VIO-LENCE</STRONG>) – барабаны<BR itxtvisited="1"><B itxtvisited="1">Marc Grabowski</B> (<STRONG>CORRUPTION</STRONG>) - бас</P>
+Автор: Headcrusher
+
+### 06.03.2010 news FORBIDDEN на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реактивированные<STRONG> FORBIDDE</STRONG>N подписали контракт с <STRONG>Nuclear Blast</STRONG>. Группа вошла в студию 1 марта для записи нового альбома, который выйдет в этом году. Современный состав группы:</FONT></P>
+<P>* <B>Russ Anderson</B> - Vocals<BR>* <B>Craig Locicero</B> - Guitar<BR>* <B>Steve Smyth</B> (NEVERMORE, TESTAMENT) - Guitar<BR>* <B>Matt Camacho</B> - Bass<BR>* <B>Mark Hernandez</B> (HEATHEN, DEFIANCE, VIO-LENCE) - Drums</P>
+Автор: Vit Belov
+
+### 28.09.2010 news Новая песня FORBIDDEN
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.09/17272.jpg" width=400 align=right border=5>Новый трэк <STRONG>FORBIDDEN</STRONG> <STRONG>"Forsaken At The Gates" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/forbiddenofficial">http://www.myspace.com/forbiddenofficial</A></P>
+<P>Песня попадёт на новый альбом реактивированных трэшеров из Сан-Франциско <STRONG>"Omega Wave"</STRONG>, который выходит 22 октября на <STRONG>Nuclear Blast</STRONG>. Пластинка была записана в <STRONG>Sonic Room</STRONG>/<STRONG>Audio Voyage Studios </STRONG>и спродюсированна лидером коллектива <STRONG>Craig Locicero. </STRONG>Сведением занимался <STRONG>Sean Beavan</STRONG> (<B>SLAYER</B>, <B>MARILYN MANSON</B>, <B>NINE INCH NAILS</B>). Названия песен, которые выйдут на новом альбоме:</P>
+<P>* <B>Alpha Century</B><BR>* <B>Forsaken At The Gates</B><BR>* <B>Swine</B><BR>* <B>Immortal Wounds</B><BR>* <B>Hopenosis</B><BR>* <B>Adapt Or Die</B><BR>* <B>Inhuman Race</B><BR>* <B>Behind The Mask</B><BR>* <B>Dragging My Casket</B><BR>* <B>Overthrow</B><BR>* <B>Omega Wave</B></P>
+Автор: Vit Belov
+
+### 06.11.2010 news Продажи в США на этой неделе
+
+<P>Появились результаты в чартах<STRONG> Billboard</STRONG> на этой неделе в США. Наиболее успешной пластинкой в тяжёлом жанре стал новый альбом <STRONG>MONSTER MAGNET</STRONG> <STRONG>"Mastermind", </STRONG>попавший на 165-ое место с 3000 экземпляров. Другие представители металической музыки не могут похвастаться и подобным. Например, вышедший только сейчас в США новый альбом <STRONG>THERION</STRONG> <STRONG>"Sitra Ahra" </STRONG>реализовался только в 800 копиях. Возвращение <STRONG>FORBIDDEN</STRONG> <STRONG>"Omega Wave"&nbsp;</STRONG>в 950 копиях, а альбом <STRONG>HYDROGYN</STRONG> <STRONG>"Judgement" </STRONG>в 1500 экземплярах. </P>
+<P>Не смог совершить прорыв и новый гитарист <STRONG>OZZY OSBOURNE Gus G.</STRONG>, со своей группой <STRONG>FIREWIND</STRONG> и новым альбомом <STRONG>"Days Of Defiance" </STRONG>в первую неделю он смог продать в США лишь 700 пластинок.</P>
+Автор: Vit Belov
+
+### 10.11.2010 reviews Вернись в прошлое
+
+<P>Американская thrash-metal банда FORBIDDEN стала одной из тех групп, которые вернулись к жизни после более чем десяти лет отсутствия. Нельзя сказать, что этот коллектив возвратился на волне интереса к стилю, музыканты были достаточно известны, но не мегапопулярны в своё время. Скорее всего, просто настал тот час, когда 40-летним членам FORBIDDEN захотелось вспомнить молодость.</P>
+<P>Эту сентенцию подтверждает и музыка, представленная на «ре-юнион» альбоме “Omega Wave”. Сразу видно, что коллектив не очень-то хочет соответствовать современным стандартам стиля и звучания. Группа записала ‘old-school’ melodic thrash-metal альбом с обилием техничных переходов и чистого пения. Современный thrash-metal представляется мне более ритмичным и напористым. Музыка, которую предлагают сейчас OVERKILL или EXODUS вместе со своими более молодыми последователями, бьёт прямо в челюсть. Ни минуты спокойствия, ни минуты сомнений. Обозреваемый альбом не таков. Мощные забойные риффы очень часто сменяются какими-то распевами и неожиданными поворотами. Качество реализации также не на высшем уровне по нынешним стандартам. Подобный альбом вполне мог бы выйти в конце 80-х, а ещё скорее в начале 90-х. Поклонникам FORBIDDEN со стажем, не интересующимся современным положением вещей в стиле, этот альбом должен приглянуться, но «хардкорным» поклонникам тяжеляка “Omega Wave” покажется скучноватым.</P>
+<P>Безусловно, приятно, что палитра современной тяжёлой сцены разнообразится подобными коллективами, но событием года возвращение FORBIDDEN в студию считать явно нельзя.</P>
+Автор: Vit Belov
+
+### 10.08.2011 news Клип FORBIDDEN
+
+<P>Новый ролик вернувшихся трешеров <STRONG>FORBIDDEN </STRONG>на заглавную песню с последнего альбома <STRONG>"Omega Wave" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/55kcHXV5FhE" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.12.2011 news FORBIDDEN: Sasha Horn - новый барабанщик группы
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22359.jpg" width=266 height=400>FORBIDDEN</STRONG> объявили имя нового барабанщика, им стал <STRONG>Sasha Horn </STRONG><EM>(на фото)</EM>, бывший участник <STRONG>NOVEMBER'S DOOM</STRONG> и нынешний -&nbsp;<STRONG>AVA</STRONG> <STRONG>INFERI</STRONG>.</P>
+<P>В августе этого года, перед началом европейского тура,&nbsp;группу&nbsp;<STRONG>FORBIDDEN&nbsp;</STRONG>оставил прежний драммер <STRONG>Mark Hernandez</STRONG> (на тот момент, так же, участник <STRONG>DEMONICA)</STRONG>, что повлекло за собой отмену этого самого тура. Единственными счастливчиками из Европы, получившими возможность посмотреть группу живьём&nbsp;этим летом, стали бельгийцы. </P>
+<P>27 августа <STRONG>FORBIDDEN</STRONG> выступили на бельгийском фестивале <STRONG>Alcatraz</STRONG>, где помочь клифорнийцам за барабанной установкой&nbsp;вызвался их старый приятель&nbsp;<B itxtHarvested="0" itxtNodeId="33">Gene Hoglan</B>.</P>
+Автор: Headcrusher
+
+### 07.07.2012 news FORBIDDEN приостановили деятельность
+
+<P>Недавно возродившиеся американские трешеры <STRONG>FORBIDDEN</STRONG> объявили о риостановке обственной деятельности. Во-первых, коллектив покинул басист <STRONG>Matt Camacho</STRONG>, который решил закончить карьеру музыканта. Во-вторых, вокалист <STRONG>Russ Anderson </STRONG>решил приостановить своё участие в <STRONG>FORBIDDEN</STRONG> для "перезарядки батареек".</P>
+<P>Таким образом, оставшиеся участники группы вынуждены приостановить деятельность <STRONG>FORBIDDEN</STRONG> и отменить ближайшие выступления, в том числе на знаменитом фесте <STRONG>Wacken Open Air</STRONG>.&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.07/24332.jpg" width=550 height=367> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Участники Judas Priest, White Lion, Megadeth, Slayer с проектом HAIL! снова в Москве (11 декабря)

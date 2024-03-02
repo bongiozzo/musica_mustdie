@@ -91,6 +91,63 @@ Mike Poggione - Bass.
 
 * C группой "Cannibal Corpse" George Fisher replaces Chris Barnes at 1996
 
+## Публикации
+
+### 21.01.2002 news Планы Monstrosity
+
+<p><IMG SRC="/images/news_rus/2002.01/2337.JPG" ALT="Enslaving the Masses" width="200" height="190" hspace="15" vspace="5" border="0" align="left" /> В прошлом году Monstrosity выпустили новый двойной диск "Enslaving the Masses". Первый диск "Crave The Blood" содержит ремастированный первый опус "Imperial Doom", а также две демо-плёнки "Horror Infinity" и "Slaves And Masters". На первом диске Вы сможете услышать вокал Corpsegrinder'a, ныне вокалист Cannibal Corpse. Второй диск "Stages Of Decay" - концертный. В ближайших планах несколько концертов в Мексике и шоу в Бразилии.</p>
+
+Автор: Vit Belov
+
+### 21.01.2002 news Monstrosity plans
+
+<p><IMG SRC="/images/news_rus/2002.01/2337.JPG" ALT="pho" width="200" height="190" hspace="15" vspace="5" border="1" align="left" /> MONSTROSITY releases their double cd album, "Enslaving the Masses" in Europe. This album has been licensed to Hammerheart Records in Holland. Disc one "Crave the Blood" consists of songs from the "Imperial Doom" album which are remixed and remastered and even includes their infamous demo tape "Horror Infinity" on cd, as well as the "Slaves and Masters" demo. The vocals of Corpsegrinder, now the vocalist for Cannibal Corpse, are on Disc one. Disc two "Stages of Decay" is a killer "Live" album which was recorded in several US cities during the groups "In Dark Purity" tour.</p>
+<p>With Monstrosity's ravenous craving for shows south of the border ie: Mexico, Lima, Peru and Columbia, South America, MONSTROSITY will play a number of shows in Mexico next month (watch for dates on our website) and in March they will fly to Brazil to headline the Extreme Metal Festival in Sao Paulo, Brazil (March 9th), with a show in Recife/PE Brazil on the March 10th, along with another show being planned for Chile.</p>
+
+Автор: Vit Belov
+
+### 18.02.2002 news MONSTROSITY&#39;S shows ...
+
+<p>Last month MONSTROSITY was featured in a six page interview in Metal Maniacs Magazine. Coming in March 2002 is an interview (picture on the cover) in Pit Magazine. Leaving a chaotic path in the US they now head South of the Border. <BR><BR> With MONSTROSITY'S ravenous craving for shows to the south ie: Mexico, Lima, Peru and Columbia, South America in the past, MONSTROSITY will play six shows in Mexico beginning February 1, 2002 and in March they will fly to Brazil to headline the Extreme Metal Festival in Sao Paulo, Brazil (March 9th), with a show in Recife/PE Brazil on the March 10th. After returning, they then will enter Morrisound Studios to record their fifth album and they are scheduled to tour Europe in September with 40-50 date tour in support of this release...as yet titled.<BR><BR> Mexico<BR> February 1 Roxy Club, Guadalajara<BR> February 2 Cancha Ferrocarrilera, Irapuato<BR> February 3 Lopez Mateos Arena, Tlanepantla (Mexico City)<BR> February 8 Casino DTIC, San Luis Potosi<BR> February 9 Salon Mateo del Regil, Leon<BR> February 10 venue tba, Tlaxcala<BR> February 14, Auditorio Josue Neri, Cd. Juarez<BR> February 15, Drive Inn La Herradura, Chihuahua<BR> February 16, Auditorio Municipal, Torreon<BR><BR> Brazil<BR> March 9 Extreme Metal Festival - Sao Paulo Brazil<BR> March 10 Recife Brazil<BR><BR> STARTIING WITH FESTIVALS IN EUROPE<BR><BR> 04 SEPT D ESSEN ZECHE CARL<BR> 05 SEPT NL ROTTERDAM BAROEG<BR> 06 SEPT NL DRACHTEN UDINA<BR> 07 SEPT BL VOSSELAAR BIEBOB<BR> 08 SEPT FR PARIS LA COCOMOTIVE<BR><BR> VADER / MONSTROSITY / DECAPITATED / PREJUDICE <BR><BR> 13 SEPT FR AMNEVILLE AFTER CLUB<BR> 14 SEPT D TRIER EXIL<BR></p>
+
+Автор: Yermola
+
+### 12.08.2002 news THRASH&#39;EM ALL FESTIVAL 2002 ...
+
+<p>MONSTROSITY, VOMITORY, TRAUMA, SCEPTIC, LOST SOUL, DISSENTER & CONTEMPT <BR><BR> 1.10. WARSZAWA - Proxima <BR> 2.10. LУDZ - Dekompresja <BR> 3.10. POZNAN - Eskulap <BR> 4.10. WROCLAW <BR> 5.10. KATOWICE - Mega Club <BR> 6.10. KRAKУW - Rotunda <BR> 7.10. RZESZУW <BR> 8.10. LUBLIN - Graffiti <BR> 9.10. GDANSK - Kwadratowa <BR> 10.10. OLSZTYN - Come In</p>
+
+Автор: Yermola
+
+### 12.03.2003 news MONSTROSITY have added former vocalist ...
+
+<p>MONSTROSITY have added former vocalist Jason Avery back in the line up. Current vocalist, Sam Molina, will not leave the band but will instead take over the second guitarist duties. The line up is rounded out with Tony Norman guitars, Mike Poggione bass, and Lee Harrison drums. The first show with this line up will be in Puerto Rico at "The Zone" in Rio Piedras on May 3, 2003. Shortly after, the band also plan to enter the studio to record their new album tentatively titled "Rise to Power". Songs set to appear on the album are: "Visions of Violence", "The Exordium", "Wave of Annihilation". "From Wrath to Ruin", and "Chemical Reaction", among others. In other Monstrosity news, guitarist, Tony Norman, is filling in for the band "Lovers of Sin" on their current tour of Europe in support of Christian Death.</p>
+
+Автор: Yermola
+
+### 09.06.2003 reviews Любителям американского death metal&#39;а посвящается
+
+<p>ФОНО, я смотрю, поднаторели на выпуске двойных "блинов". Какой это по счёту? Не знаю. Да и не в этом дело. MONSTROCITY – одни из ветеранов флоридского дэта. Это раз. В этой группе когда-то "пел" Джордж Фишер, позже переметнувшийся в CANNIBAL CORPSE. Это два. Этот двойник не является новым альбомом, взамен представляя собой компиляцию из труднодоступных нынче демо-работ группы ("Imperial Doom" (1991), "The Horror Infinity" (1991), "Slaves and Masters" (1994)) и концертных записей. И демо, и концертные нарезки, как минимум, стоит послушать. А любители американского брутала, я полагаю, обойдутся и без моего совета, да и без этой рецензии :-)…</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 20.06.2004 reviews Отличный образчик современного американского дэта
+
+<P>Отличный образчик современного американского дэта. Зубодробительный, но в меру разнообразный и не дающий заскучать, не замороченный на технических наворотах, но при этом более чем хорошо сыгранный. Оригинальности, само собой, ноль. Ну и пусть. Не инноваций ради мы слушаем такую музыку. Затягивает? Интригует? Сокрушает черепушку? Вот и чудненько. А ведь помнится, когда-то я считал MONSTROCITY не более чем середнячками. Причём, отнюдь не «крепкими середнячками». Что ж, каюсь, был не прав.</P>Диск предоставлен компанией ФОНО
+Автор: Kai Mathias Stalhammar
+
+### 28.12.2006 news Новый альбом MONSTROSITY
+
+<P>Ветераны&nbsp;американского&nbsp;death metal <B>MONSTROSITY</B> назвали свой новый альбом <B>"Spiritual Apocalypse".</B> Его выход ожидается в начале 2007 года. Он будет содержать 10-11 композиций выполненных в духе классического альбома группы&nbsp;1996 года&nbsp;<B>"Millennium"</B>, только чуть более быстрым.</P>
+Автор: Dimas
+
+### 06.02.2012 news MONSTROSITY выпускают DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Conquest Music </STRONG>выпустят 13 марта DVD <STRONG>MONSTROSITY "Live Apocalypse"</STRONG>. Трейлер альбома можно посмотреть ниже. На диск попало выступление группы на фестивале<STRONG> Brutal Assault</STRONG> в Чехии, а так же интервью и материалы из студии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/IDkGTQr6fks?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -66,6 +66,47 @@ Recorded May-December 2003 at Reingold Recording Studio, additional recordings a
 * C группой "Flower Kings, The" Tomas Bodin
 * C группой "Flower Kings, The" Roine Stolt
 
+## Публикации
+
+### 03.05.2004 news Karmakanic выпускают второй альбом
+
+<P>Второй альбом шведской progressive-банды <B>KARMAKANIC</B> <B>"Wheel of Life"</B>, с участием членов <B>FLOWER KINGS</B> <B>Jonas Reingold</B>&nbsp;и <B>Zoltan Chorsz, </B>а также бывшим вокалистом&nbsp;<B>YNGWIE MALMSTEEN</B> <B>Goran Edman</B>, выйдет 7 июня на <B>REGAIN RECORDS.</B> Трэк-лист:</P>
+<P>01. <B>Masterplan Pt. 1</B><BR>02. <B>Alex In Paradise</B><BR>03. <B>At The Speed Of Light</B><BR>04. <B>Do U Tango?</B><BR>05. <B>Where Earth Meets The Sky</B><BR>06. <B>Hindby</B><BR>07. <B>Wheel Of Life</B><BR>08. <B>Masterplan Pt. 2</B><BR></P>
+Автор: Vit Belov
+
+### 19.01.2006 reviews Чем дальше от Цветочных Королей, тем лучше
+
+<P>Музыканты из шведской прог-команды The Flower Kings известны своей музыкальной плодовитостью. Karmakanic это проект басиста упомянутой группы Йонаса Рейнолда. С учетом того, что в записи данной пластинки (и второй по счету у Karmakanic) приняли участие и другие "Цветочные Короли", можно было ожидать их очередного клона. Но на поверку оказалось, что это - слава Богу - не так. Безусловно, это тоже прогрессив, но здесь музыканты дали себе волю выйти за более-менее привычные рамки и заглянуть в такие разные направления, как джаз (я бы даже сказал, джаз-рок), электро, АОР и психоделику. Свою изюминку добавляет и вокал Горана Эдмана (Brazen Abbot, Malmsteen, AOR, John Norum), и конечно же, такие инструменты, как хэммонд, флейта, различная перкуссия; да и женский вокал тут присутствует;&nbsp;ну и в мелодиях недостатка нет, хотя нет и каких-то сильно запоминающихся вещей. Посему материал получился довольно разнообразный, но общую картину портят порой излишне продолжительные инструментальные пассажи с повторением одних и тех фраз. В общем и целом, "Wheel Of Life" получился очень сильным, монолитным альбомом с достаточно ровным материалом. До шедевра он не дотягивает в виду упомянутых выше минусов, но оценку "очень хорошо", безусловно, заслуживает.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 15.01.2009 reviews Кто в доме хозяин, я или тараканы?
+
+<P>Ну да, кто в доме хозяин, я или тараканы? Вот так вопрошает наглый мафиози с обложки нового, третьего по счету, альбома шведских прогстеров Karmakanic "Who's The Boss In The Factory?". После прослушивания предыдущего альбома группы, "Wheel Of Life" (2004), я радовался, что звучание сего коллектива всё же заметно отличалось от The Flower Kings. где лидер Karmakanic, Jonas Reingold, пока еще щиплет струны бас-гитары, но уже первая композиция на новом альбоме заставила напрячься, ибо это "цветочные короли" как они есть. Более жесткая 'Let In Hollywood' вселила надежду, но сама по себе совершенно ничего не утверждала. Надежда была только на второй -и последний&nbsp;- эпик с титульным названием. И в ней Рейнголд пустился во все грехи тяжкие. Он вспомнил и готику, и Битлов, и Пинк Флойд, и своих коллег по жанру The Tangent, однако... Однако. Однако вытянуть альбом не смог. Пластинка очень быстро стала напоминать одеяло из лоскутов. Каждый из которых не так плох сам по себе, но вот на самом одеяле кажется лишним в составлении паззла. Ибо если вы самолету красиво раскрасите крылья и фюзеляж, но забудете приделать шасси, он вряд ли взлетит. Поэтому и красивые джазовые проходы кажутся лишь неподходящим антуражем, увы. Пластинка прогрессив-рока должна слушаться единым целым, а не какими-то кусками, одни из которых удачны,&nbsp;а другие нет. Хотя это уже претензии к высшей лиге жанра; иначе дебютант бы мог получить очень высокий балл. Но, скажу вам честно, я ожидал от Karmakanic намного более сильной работы, повыше последних скучных опусов The Flower Kings.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 14.07.2016 news KARMAKANIC выпустили лирик видео
+
+<p>Шведы<strong> KARMAKANIC</strong> выпускают пятый альбом<strong> "Dot"</strong> 22 июля на<strong> Inside Out</strong>. Лирик видео на песню ”<strong>God, The Universe, And Everything Else No One Cares About, Pt.1</strong>" (Edit) можно посмотреть ниже.</p><p>Трек лист:</p><p>”Dot<br>”God, The Universe, And Everything Else No One Cares About, Pt. 1”<br>”Higher Ground”<br>”Steer By The Stars”<br>”Travelling Minds”<br>”God, The Universe, And Everything Else No One Cares About, Pt. 2”</p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/86ZjFbAnmtM" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 14.07.2016 news Lyric video of KARMAKANIC
+
+<p>The Swedes <strong>KARMAKANIC</strong> release their fifth album "<strong>Dot</strong>" on July 22 on the <strong>Inside Out</strong>. Lyric video for the song ”<strong>God, The Universe, And Everything Else No One Cares About, Pt.1</strong>" (Edit) can be viewed below.</p><p>Track list:</p><p>”Dot<br>”God, The Universe, And Everything Else No One Cares About, Pt. 1”<br>”Higher Ground”<br>”Steer By The Stars”<br>”Travelling Minds”<br>”God, The Universe, And Everything Else No One Cares About, Pt. 2”</p><p>&nbsp;<center><iframe width="600" height="400" src="https://www.youtube.com/embed/86ZjFbAnmtM" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 29.07.2016 news Новое лирик видео KARMAKANIC
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом prog rock команды <strong>KARMAKANIC "DOT"</strong> выходит на <strong>Inside Out</strong>. Лирик видео на песню "<strong>Steer By The Stars</strong>" можно посмотреть ниже.</font>&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/6qZ5BCzTlVg" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 29.07.2016 news New lyric video by KARMAKANIC
+
+<p>New album of prog rock team <strong>KARMAKANIC "DOT"</strong> will be released on <strong>Inside Out</strong>. Lyric video for the song "<strong>Steer By The Stars</strong>" can be viewed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/6qZ5BCzTlVg" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.11.2011 news В Перу тоже верят в heavy-metal
+
+<P><IMG height=428 alt="" hspace=0 src="/images/news_rus/2011.11/22170.jpg" width=431 align=right border=0>Дебютный альбом перуанской heavy-metal команды <STRONG>COBRA "Lethal Strike"</STRONG> вышел на <STRONG>Austral Holocaust Productions</STRONG>. Коллектив представляет музыку для всех поклонников музыки 80-х годов. Трек-лист:</P>
+<P>1. <STRONG>Overwhelmed<BR></STRONG>2. <STRONG>Rockmetal&nbsp; <BR></STRONG>3. <STRONG>Men of War&nbsp; <BR></STRONG>4. <STRONG>Whitechapel&nbsp;</STRONG> <BR>5. <STRONG>The Roadrunner (Bite My Dust)</STRONG>&nbsp; <BR>6. <STRONG>Denim Attack</STRONG>&nbsp; <BR>7. <STRONG>Blessed by Beer</STRONG>&nbsp; <BR>8. <STRONG>Scene of Our End&nbsp; <BR></STRONG>9. <STRONG>Highland Warrior</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/cobraperu">http://www.myspace.com/cobraperu</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

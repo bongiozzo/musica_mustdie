@@ -72,6 +72,84 @@ gothic-metal from St. Petersburg
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2004 news LUST выпустят альбом на Фоно
+
+<IMG height=157 alt="" hspace=0 src="/images/news_rus/2004.02/5938.jpg" width=157 align="left" border=0>Питерская gothic-metal-группа <B>LUST</B> (бывший <B>LUST EMBRACE</B>) закончила сведение и мастеринг своего дебютного альбома <B>\"TANGLED\</B>" в <B>ASTIA-STUDIO</B> с <B>Ансси Киппо</B>.&nbsp;Всего в альбом попало 11 треков. Выпуском диска занимается птерский лейбл <B>ФОНО</B>, сроки выхода прежние - март 2004.<BR>
+Автор: Vit Belov
+
+### 28.02.2004 reviews Финоподобный gothic-rock из России с одним большим недостатком
+
+<DIV><I>Вот он финоподобный gothic-rock из России в достаточно высоком качестве. Подобного, действительно, ещё не было</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Питерская группа <B>THE LUST</B> исполняет именно такой, достаточно бесхитросный, но мелодичный материал, который вполне может понравиться, как любителям <B>CHARON</B>, так и любителям <B>SENTENCED</B>. Единственным, но очень большим недостатком этого альбома является женский вокал. И дело даже не в том, что подобное развитие событий отпугнёт от группы любителей готики по половому призраку (кучу готических девушек), главное, что девушка попросту не имеет голоса. В ноты она попадает, создаёт должное настроение, только все эти попытки выглядят, как пение после бутылки водки. Девочки у нас в школе иногда так пели, когда позволяли себе лишнего. С чувством, но без выучки. Быть может, я написал довольно резкие слова, но надоело уже, что неплохие (иногда, хорошие) группы портят вокалистки. Я не знаю, откуда взяли это певицу, но отбирали её явно не по профессиональным качествам.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>В остальном, всё прекрасно. Частями альбом записывался в Финляндии в <B>Astia Studio</B>, а это о чём-то говорит. Мелодии простенькие, но запоминающиеся. Можно порекомендовать всем любителям, вот только послушайте сначала вокал. Может он не будет Вас раздражать так, как меня.</DIV>
+Автор: Vit Belov
+
+### 20.06.2004 reviews Гермафродит, имя которому THE LUST
+
+<P>Посредственность следует за посредственностью. Точнее, разочарование за разочарованием. Сначала провальный “Anthems of Rebellion” от ARCH ENEMY, затем недоразумение под названием HEAVEN’N’HELL… То ли ещё будет… Будет! Кому-то явно не дают покоя лавры NIGHTWISH, а заодно и LULLACRY… и на свет появляется гермафродит, имя которому THE LUST. Думаю, вы уже догадались, в какой стилистике «творит» эта команда: эдакий хэви-павер (за вычетом «симфо») плюс немножко около-лав-металлических веяний. Правда, хитов здесь нет. Да и женский вокал крайне посредственен. Не говоря уже о том, что альбом звучит явно как-то удивительно пластмассово, по-пионерски, даром что был микширован в студии Astia. Не купите, не пожалеете.</P>Диск предоставлен компанией ФОНО
+Автор: Kai Mathias Stalhammar
+
+### 21.06.2004 news The LUST начали запись нового альбома
+
+Питерская группа <B>THE LUST</B> приступила к записи второго альбома. На студии <B>Phantom Pain</B> с <B>Игорем Анохиным</B> сейчас ведётся запись барабанов для 11 новых песен. Рабочее название альбома&nbsp; - "<B>Moonset</B>".
+Автор: Vit Belov
+
+### 21.06.2004 news THE LUST begin to record new album
+
+Gothic-rock band from St. Peterburg, Russia <B>THE LUST</B> begin to record their sophomore album. The band put on tape drums in <B>Phantom Pain </B>studio with <B>Igor Anokhin</B>. Work-title is '<B>Moonset</B>'.
+Автор: Vit Belov
+
+### 02.12.2004 news Россияне THE LUST на греческом Sleaszy Rider
+
+<P>Питерская gothic-metal группа <STRONG>THE LUST</STRONG> заключила контракт на выпуск своего второго альбома <STRONG>'My Dear Emptiness'</STRONG>&nbsp;с греческим лэйблом <STRONG>Sleaszy Rider</STRONG>. Пластинка увидит свет 15 января. Микс и мастеринг проделает <STRONG>R.D. Liapakis</STRONG> (<STRONG>MYSTIC PROPHECY</STRONG>) в <STRONG>Prophecys Studios</STRONG> в Германии.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 28.07.2005 reviews Приятно, что у нас...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом от питерцев THE LUST. Первый опус вышел на Фоно, теперь группа перебралась на стремительно развивающийся греческий&nbsp;Sleaszy Rider, откуда по лицензии попала на irond. Что ж, неплохой ход.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Что мы имеем на этот раз? Вокалистка осталась та же. Mirla теперь достигла 16 лет и может позволить себе просматривать эротические картинки в буклете. Видимо, поэтому теперь используются живые модели, а не диснеевское Anime. Впрочем, это шутка. Оформление здесь на высоком уровне, им занимался Pablo The Elephant (также GRENOUER). Реализация также на высоком уровне. На этот раз микшировал и мастерил R.D. Liapakis из MYSTIC PROPHECY.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Но вернёмся к альбому. Музыка, как и на прошлой пластинке,&nbsp;на хорошем твёрдом уровне. Появились некоторые заигрывания с электроникой, но они не слишком вычурные, более того, считай, что их&nbsp;здесь нет. Ну, и самый животрепещущий вопрос, женский вокал... Жму руку тому, кто записывал&nbsp;Мирлу. Он сделал всё, что мог.&nbsp;Создано некое подобие эхо, и теперь всех этих "юношеских" интонаций не слышно. Слышно, что девушка что-то там поёт. Конечно, теперь не разберёшь -&nbsp;не поймёшь ничего, но это не важно. Важно, что не раздражает.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Что ж, приятно... приятно, что кто-то пытается играть такую музыку у нас. А так... В общем-то, пустое.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>P.S.: Из собственного опыта. В Японии прошлый диск шёл на ура... Я подумал, может это их культ нимфеток?</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен Irond</FONT>&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><FONT size=2>&nbsp;</P></FONT></FONT>
+Автор: Vit Belov
+
+### 13.05.2007 news Гитарист The Lust возродил проект Dissector
+
+<P><IMG height=373 alt="" hspace=0 src="/images/news_rus/2007.05/11626.jpg" width=400 align=left border=5>Лидер группы <STRONG>THE LUST</STRONG>, гитарист <STRONG>Ян</STRONG> в процессе работы над новыми песнями <STRONG>THE LUST</STRONG> в студийном варианте возродил свой первый проект <STRONG>DISSECTOR</STRONG>, существовавший в городе Магадане с 1992 по 2002 годы. В конце апреля этого года вышел EP&nbsp;<STRONG>DISSECTOR “Cry For Me”,</STRONG> в который вошло 6 совершенно новых песен, записанных зимой 2006 года в домашней питерской студии <STRONG>Moscow Gates Studio</STRONG> с <STRONG>Алексеем Болотовым</STRONG> и в финской <STRONG>Astia Studio</STRONG> с <STRONG>Anssi Kippo</STRONG>. Сведение проходило под присмотром <STRONG>Anssi Kippo</STRONG> в марте 2007 года. В записи альбома приняли участие музыканты из группы <STRONG>THE LUST</STRONG>– басист <STRONG>Энди</STRONG> и клавишник <STRONG>Макс</STRONG>, а так же участники питерского коллектива&nbsp;<STRONG>GRENOUER</STRONG> – барабанщик <STRONG>Grave</STRONG> и гитарист <STRONG>Мотор</STRONG>. В ближайшее время планируется выпуск3-х трекового сингла “<STRONG>Nowhere</STRONG>”, который будет снабжён бонусной мультимедийной секцией производства дизайнерской конторы <STRONG>Arts-Kill</STRONG>. Она же сделала артворки для обоих изданий и промо-страницу&nbsp;<STRONG>DISSECTOR</STRONG> по адресу <A href="http://dissector.arts-kill.com/">http://dissector.arts-kill.com</A>. Поддержку в выпуске EP “<STRONG>Cry For Me</STRONG>” альбома оказал <STRONG>Павел Бахтин</STRONG> и “<STRONG>Rock’s Coctail Bar</STRONG>” (г.Владивосток).</P>
+<P>Работы над новым материалом&nbsp;<STRONG>DISSECTOR</STRONG> будут продолжены в <STRONG>Astia Studio</STRONG> в ближайшем декабре. Тогде же планируется его сведение и окончание работ над песнями для четвёртого альбома <STRONG>THE LUST</STRONG>; его выпуском в 2008 году займётся греческий лейбл <STRONG>Sleazsy Rider Records</STRONG>. На MySpace-странице <STRONG>THE LUST</STRONG> сейчас выложено две новых песни в демо-версиях: “<STRONG>Ever</STRONG>” и “<STRONG>Take A Ride</STRONG>”. </P>
+Автор: Vit Belov
+
+### 10.03.2008 news Новости группы THE LUST
+
+<P><IMG height=279 alt="" hspace=0 src="/images/news_rus/2008.03/12330.jpg" width=400 align=right border=5>Группа<STRONG> THE LUST</STRONG> выложила на своей MySpace странице новую версию песни "<STRONG>Enjoy The Pain</STRONG>" с последнего студийного альбома "<STRONG>Membrane</STRONG>". Новый вариант песни в феврале этого года сводил <STRONG>Кристиан Шмид</STRONG> из баварской студии <STRONG>Music-Factory</STRONG>, который ранее сводил и делал мастеринг альбома "<STRONG>My Dear Emptiness</STRONG>"(2005). Тот же <STRONG>Кристиан Шмид</STRONG> сейчас занимается сведением материала для нового, пока не названного&nbsp; альбома <STRONG>THE LUST</STRONG>. Его запись закончилась на финской студии <STRONG>Astia Studios</STRONG> в декабре 2007 года. </P>
+<P>Из других новостей. <BR>Рекорд-лейбл<STRONG> Sleaszy Rider Records</STRONG> на своём сайте <A href="http://www.sleaszyrider.com/">www.sleaszyrider.com</A> опубликовал сообщение о скором выходе переиздания дебютного альбома <STRONG>THE LUST "Tangled</STRONG>" (в формате digi-pack с 2 бонус-треками). Кроме того, гитарист группы Ян открыл на <STRONG>MySpace</STRONG> страницу своего проекта<STRONG>&nbsp;DISSECTOR</STRONG> - <A href="http://www.myspace.com/realdissector">www.myspace.com/realdissector</A>, на которой сейчас выложены полные версии некоторых треков с EP "<STRONG>Cry For Me</STRONG>".</P>
+<P>Ссылка: <A href="http://www.myspace.com/thelustband">http://www.myspace.com/thelustband</A></P>
+Автор: Vit Belov
+
+### 01.05.2010 news Новый релиз от THE LUST
+
+<P><IMG height=405 alt="" hspace=0 src="/images/news_rus/2010.05/16641.jpg" width=400 align=right border=5>В преддверии появления своего новейшего альбома "<STRONG>Decomposition Deluxe</STRONG>", питерская post/gothic metal группа <STRONG>THE LUST</STRONG> выпустила компиляцию неизданных ранее песен под названием "<STRONG>One Life Ago</STRONG>". Основу 50-минутного диска составили оригинальные треки и кавер-версии, записанные во время студийных сессий альбомов "<STRONG>Tangled</STRONG>"(2004) и "<STRONG>My Dear Emptiness</STRONG>"(2005), но по разным причинам не попавшие в финальные трек-листы. Сведение и мастеринг этих треков проходило в Финляндии в таких студиях как<STRONG> Astia</STRONG> (Ансси Киппо) и <STRONG>Sonichouse TM</STRONG> (Теему Муурилайнен), а также в Германии в студии <STRONG>Music-Factory</STRONG> (Кристиан Шмид). Помимо этого в альбом вошли треки из первого демо группы "<STRONG>Lust Embrace</STRONG>"(2003), две радио-версии и два эксклюзивных ремикса. Трэк-лист альбома "<STRONG>One Life Ago</STRONG>":</P>
+<P>1. <STRONG>One Life Ago<BR></STRONG>2. <STRONG>Homely<BR></STRONG>3.<STRONG> It’s a Freedom</STRONG><BR>4. <STRONG>Stronger</STRONG><BR>5. <STRONG>Smooth Operator</STRONG> (SADE cover)<BR>6. <STRONG>Give it to Me</STRONG> (Michael Jackson cover)<BR>7. <STRONG>Days in Black</STRONG> (radio cut)<BR>8. <STRONG>Dead End Love</STRONG> (version 2003)<BR>9. <STRONG>Don’t Promise</STRONG> (version 2003)<BR>10. <STRONG>Days in Black</STRONG> (Max DelMar mix)<BR>11. <STRONG>Don’t Promise</STRONG> (version 2003 radio cut)<BR>12. <STRONG>One Life Ago</STRONG> (DIY mix)</P>
+<P>Некоторые треки с альбома "<STRONG>One Life Ago</STRONG>", а так же новые демо и песни из будущего альбома можно послушать на официальной <STRONG>Myspace</STRONG> страничке группы: <A href="http://www.myspace.com/thelustband">www.myspace.com/thelustband</A></P>
+<P>Издающий лейбл: <STRONG>Worldlessness Records</STRONG><BR><A href="mailto:dissectorband@gmail.com">dissectorband@gmail.com</A></P>
+<P>Диск "<STRONG>One Life Ago</STRONG>" можно заказать написав сюда:<BR><A href="mailto:dissectorband@gmail.com">dissectorband@gmail.com</A></P>
+Автор: Vit Belov
+
+### 07.11.2011 reviews Gothic-metal для дельфинов
+
+<P>Так получилось, что я довольно давно ничего не слышал о питерской группе THE LUST, чей альбом “ Tangled” вышел в 2004 году на Фоно, а последователь&nbsp; “My Dear Emptiness” в России издавался на Irond по лицензии греческого лэйбла Sleaszy Rider. “Decomposition Deluxe” уже пятый альбом коллектива с вокалисткой Mirla у микрофона.</P>
+<P>В принципе за прошедшее с моего последнего свидания с творчеством THE LUST время в музыке группы изменилось не многое. Gothic-metal с хорошей долее электроники в звучании ритм-секции, высокий женский вокал и забавные танцевальные мелодии. Оформление digi-pack также выполнено в узнаваемом стиле, правда к оголённым женским грудям прибавились дождевые червяки и автомат (???). Проблема у THE LUST осталась прежняя. В 2004 году певице Mirla было очень мало лет, и её голос казался мне лишь возрастной проблемой, но прошло семь лет, и ничего не изменилось. Видимо, надо иметь другие уши, чтобы полюбить творчество этой девушки.</P>
+<P>Знаю, что THE LUST очень нравится японцам, сам отправлял туда диски с их дебютным альбомом в большом количестве. Кто-то мне рассказывал, что у жителей страны восходящего солнца как-то по-другому устроен слуховой аппарат. Видимо, они умеют вычленять и сверхзвуковой диапазон, в котором Mirla особенно хороша. Я пока не дельфин, по этой причине оценить THE LUST высоко у меня не получилось.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

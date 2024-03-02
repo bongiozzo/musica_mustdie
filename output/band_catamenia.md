@@ -204,6 +204,800 @@ Kari Vahakuopus - Clean Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2000 reviews Дело финских маньяков продолжается
+
+<p>Дело финских маньяков продолжается. Слушается третья часть мистических сатанинских повествований. По-прежнему главенствуют зимние настроения. Ночь, полнолуние, горы снега. Весь материал выдержан в соответствующем духе. Короткие песенки, невероятный мелодизм, некоторые моменты в духе black-metal (вокал, некоторые гитарные ходы), некоторые - doom-metal (мелодичные соло, dark-атмосфера, напряжение), интересная работа клавишника, беспросветные ударные. На первый взгляд - это атмосферный мелодичный black-metal. Но, язык не поворачивается назвать эту музыку black'ом. Она далеко выходит за рамки своего стиля. С каждым новым альбомом группа подтверждает свое право на существование и укрепляет свои позиции в первом дивизионе. Не грузящий, приятный альбом.</p>
+
+Автор: Dimas
+
+### 14.09.2000 reviews The business of the Finnish maniacs is prolonged
+
+<p>The business of the Finnish maniacs is prolonged. The third of mystical satanic narrations obeys. Still to dominate winter moods. Night, full moon, mountain of snow. All stuff is sustained in the conforming spirit. Short songs, improbable melodism, some moments in spirit black-metal (voice, some guitar courses), some - doom-metal (melodious solo, dark-atmosphere, voltage), interesting work of keyboardman, lightingless drums. On the first view is atmospheric melodious black-metal. But, tongue is not turned to call this music black'. She far leaves for frameworks of the style. With each new album the group confirms the right to existence and consolidates the stands in the first division. Not landing, pleasant album.</p>
+
+Автор: Dimas
+
+### 02.12.2000 news Line up changes in Catamenia
+
+<p> According Catamenia's official homepage the band changed from a 6-piece band into a 5-piece. They kicked rhythm guitarist Sampo Ukkola out of the band. He isn't replaced yet by another member. Second of all the drummer is changed. Toni Tervo has been replaced by "Impaled Nazarene's" Sir Luttinen (who also plays in the Finnish metal band "Legenda").</p>
+
+Автор: Nybras
+
+### 02.12.2000 news Изменения в составе Catamenia
+
+<p> По сообщению официального сайта группы, недавно Catamenia выгнали своего ритм-гитариста Sampo Ukkola. Его место пока пустует. Также группу покинул драммер Toni Tervo и его заменил небезызвестный Sir Luttinen (Impaled Nazarene, Legenda, The Black League)</p>
+
+Автор: Nybras
+
+### 28.01.2002 news Готов свежий альбом Catamenia
+
+<p>Готов наконец новый альбом Catamenia "Eskhata". На нём 11 брутальных, но вместе с тем мелодичных песен общей продолжительностью около 47 минут. Пока ещё не определена точная дата выпуска, но можно надеяться, что альбом появится в продаже уже этой весной. И возможно также состоится несколько выступлений Catamenia в Европе.</p>
+
+Автор: Morsus
+
+### 28.01.2002 news Catamenia&#39;s new album is read
+
+<p>So finally Catamenia's new album is ready... and it will carry a name "Eskhata". There are 11 brutal, but melodic songs and total playing time is around 47 minutes. There is no confirmed release date but hopefully it comes out in Spring 2002. And maybe Catamenia finally could come to Europe to do some gigs.</p>
+
+Автор: Morsus
+
+### 06.05.2002 news Новый альбом CATAMENIA
+
+<p>Новый альбом финской группы CATAMENIA "Eskhata" вышел 25 апреля 2002 года на Massacre Records. Альбом содержит типичный для группы материал. Среднетемповый black metal с чередованием скриминга и гроулинга, агрессивными гитарами и холодной мелодичностью.</p>
+
+Автор: Dimas
+
+### 18.06.2002 reviews Ледяной нордический metal
+
+<p>Четвертый альбом финских музыкантов с гинекологическим названием начинается с типичного для группы холодно-мелодичного медленного вступления, а затем разворачивается настоящий гитарно-клавишный шторм напоминающий смесь DISSECTION и OLD MAN'S CHILD. Команда заметно прибавила скоростей, но умело сочетает их с традиционным для себя среднетемповым атмосферным black-doom metal, иногда проскакивают melodic death риффы. Группе удалось записать действительно хороший и интересный материал, не слишком оригинальный, но в то же время, не особо затасканный и выделяющийся в более-менее однородной массе black metal команд. Альбом невероятно мелодичен при всей своей мрачной холодности, простоте мелодий, скоростях и злых настроениях. Его можно переслушивать много раз, не рискуя потерять к нему интерес. Изрядная доля акустики и неповторимая атмосфера альбома переносят нас в морозные скандинавские местности угощая нас всеми прелестями местных духов. Это лучшее, высшего калибра творение группы вводящее нас в волшебный мир мелодичного nordic black metal.</p>
+<p> Диск выпущен по лицензии компанией <B>ART MUSIC GROUP</B></p>
+
+Автор: Dimas
+
+### 21.07.2003 reviews Порождение хаоса
+
+<p>Не прошло и года, как снова перед моими глазами обложка с изображением волка. Матерый волчара с грозным взглядом исподлобья на обложке пятого альбома "ChaosBorn" финских блэкушников CATAMENIA возник отнюдь не случайно. Закономерности надо соблюдать (вспомним картинки на предыдущих четырех релизах). Альбом содержит типичный для группы материал. Скоростной black metal с чередованием скриминга и гроулинга, агрессивными гитарами и холодной мелодичностью. Почти все то, что я написал в рецензии на предыдущий альбом "Eskhata", можно смело отнести и к этому альбому. В том числе и то, что эта работа - лучшая в дискографии коллектива. Очень качественная, профессиональная и продуманная запись. Просто образец finnish melodic black metal. По-прежнему главенствуют зимние настроения. Ночь, холод, полнолуние, горы снега. Весь материал выдержан в соответствующем духе. Мелодичные гитары, зажигательная ритм-секция, атмосферные клавиши. В общем, совершенно ничего нового. Все на альбоме: и звук, и вокал, и идеи - типичные для всего творчества группы. Единственное, в чем группа прогрессирует от альбома к альбому - повышает качество своего материала, как в музыкальном плане, так и в техническом. Тем не менее, рекомендую этот альбом всем любителям мелодичного black metal. Никто не будет разочарован.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.artmusic-group.ru"><U><I>ART MUSIC GROUP</I></U></A></p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 29.08.2004 news CATAMENIA собираются в студию
+
+<P><STRONG>CATAMENIA</STRONG> зарезервировали студию с 1-го ноября по 10-го декабря. Ориентировочная дата выхода шестого альбома - февраль-март 2005 года.</P>
+Автор: Morsus
+
+### 04.07.2005 reviews Крепкий альбом от одного из лидеров финской экстремальной музыки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финский коллектив <STRONG>CATAMENIA</STRONG> продолжает радовать любителей мелодичного, "немного фольклорного" и мега-попсового black-metal. Все эти волки, каверы на <STRONG>SATYRICON</STRONG> и.т.п. призывают поверить нас, что перед нами мрачная black-metal группа. Это не так. <STRONG>CATAMENIA</STRONG> играют музыку для фанатов финского металла. Чуть более мрачную, чем у <STRONG>CHILDREN OF BODOM</STRONG> и <STRONG>FINNTROLL</STRONG>, но "едут они на одном поезде" в одни и те же коллекции.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыкальная составляющая этого альбома выполнена на очень высоком уровне. Все песни представляют собой крепкие хиты, но никаких новых горизонтов не открывают. Стоит отметить неплохую находку в припеве "<STRONG>Verikansa</STRONG>" с гимноподобным маршеобразным хором, а в остальном работа хорошего крепкого уровня. Думается, в предверии концертов в России, которые состоятся в октябре, многим стоит заценить эту группу, по праву входящую в лидирующую когорту Финляндии.</FONT></P>
+Автор: Vit Belov
+
+### 04.08.2006 news Новые двд от Metal Mind
+
+<P>Польский лейбл <STRONG>Metal Mind Productions</STRONG> анонсировал выпуск в ноябре четырех летних шоу состоявшихся в Кракове. Каждое из них выйдет отдельным изданием с дополнениями и прилагаемым аудиодиском. Список:</P>
+<P><STRONG>Obituary –&nbsp;пока не имеет названия&nbsp;</STRONG></P>
+<P><STRONG>Sinister - Prophecies Denied </STRONG></P>
+<P><STRONG>Grave – Enraptured </STRONG></P>
+<P><STRONG>Catamenia – Bringing The Cold To Poland</SPAN></STRONG> </P>
+<P></P>
+Автор: Dimas
+
+### 10.09.2006 news Российский тур CATAMENIA
+
+<center><IMG height=296 src="/images/shows_rus/2006.09/10684.jpg" width=450 border=0></center>
+Автор: Dimas
+
+### 26.09.2006 news CATAMENIA в Москве
+
+<CENTER><IMG height=263 src="/images/shows_rus/2006.09/10685.jpg" width=400 border=0></CENTER>
+Автор: Dimas
+
+### 27.11.2006 news DVD от CATAMENIA
+
+<P>27 ноября на <STRONG>Metal Mind</STRONG> выходит первый DVD от <STRONG>CATAMENIA "Bringing the Cold to Poland". </STRONG>На диск попало выступление группы в Варшаве в августе 2006 года. Также можно будет услышать два первых демо коллектива. Трэк-лист:</P>
+<P><IMG height=500 alt="" hspace=0 src="/images/news_rus/2006.11/10967.jpg" width=353 align=right border=5>DVD:<BR>01. <B>Morning Crimson</B><BR>02. <B>Lost in Bitterness</B><BR>03. <B>Tuhat Vuotta</B><BR>04. <B>My Blood Stained Path</B><BR>05. <B>Coldbound</B><BR>06. <B>Fuel for Hatred</B> (SATYRICON cover)<BR>07. <B>Verikansa</B><BR>08. <B>Closed Gates of Hope</B><BR>09. <B>The Day when the Sun Faded Away</B><BR>10. <B>Eskhata</B><BR>11. <B>I Wanna Be Somebody</B> (W.A.S.P. cover)<BR>12. <B>Location: Cold</B><BR><BR>Additional Audio Tracks:<BR>Demo '95:<BR>01. <B>Legacy</B><BR>02. <B>Child of Sunsets</B><BR>03. <B>Pime&#228; Y&#246;</B><BR><B>"Winds"</B> (Demo '96):<BR>01. <B>Land of the Autumn Winds</B><BR>02. <B>Awake in Darkness</B><BR>03. <B>Into Infernal</B><BR>04. <B>The River Winds</B><BR><BR>Bonus Video:<BR>* Cataventures part 1 ("Location: Cold" recording sessions 2006)<BR>* Cataventures part 2 ("Location: Cold" recording sessions 2006)<BR>* <B>"Tuhat Vuotta"</B> (videoclip)<BR>Also includes:<BR>* Interview<BR>* Photo gallery<BR>* Biography<BR>* Discography<BR>* Desktop images<BR>* Weblinks<BR>Bonus CD (available only on limited edition DVD+CD):<BR>01. <B>Morning Crimson</B><BR>02. <B>Lost in Bitterness</B><BR>03. <B>Tuhat Vuotta</B><BR>04. <B>My Blood Stained Path</B><BR>05. <B>Coldbound</B><BR>06. <B>Fuel for Hatred</B> (SATYRICON cover)<BR>07. <B>Verikansa</B><BR>08. <B>Closed Gates of Hope</B><BR>09. <B>The Day when the Sun Faded Away</B><BR>10. <B>Eskhata</B><BR>11. <B>I Wanna Be Somebody</B> (W.A.S.P. cover)<BR>12. <B>Location: Cold</B> </P>
+Автор: Vit Belov
+
+### 11.04.2007 reviews Резюме: хлам
+
+<P>Признаюсь сразу - я люблю DVD, которые выпускает этот польский лейбл, их работы всегда отличались отличным качеством. Поэтому,&nbsp; узнав о том, что они будут выпускать видео CATAMENIA, я очень обрадовался, ведь это одна из немногих финских команд, которые мне нравятся. Но праздник не получился.<BR>Первое на что бросается взгляд - оригинальное оформление релиза - DVD + CD&nbsp; необычно выезжают из картонного кейса, украшенного величественными красивыми волками на снежных просторах. И уже здесь появился первый "дурной знак" - пластик, из которого сделаны держатели для дисков, очень мягкий, и пока ко мне шла посылка, они отвалились...<BR>Анимированное меню, как всегда у Metal Mind, сделано очень красиво, здесь мы можем выбрать концерт, домашнее видео, интервью, фото галерею, биографию, и послушать два первых демо CATAMENIA. Не знаю почему, но я сначала посмотрел домашние видеозаписи - упитанные и не очень участники группы развлекаются с пивом во время, до и после записи альбома на студии, есть и смешные моменты, и не очень, и заканчивается эта секция клипом. <BR>А вот дальше нас ждет сплошное разочарование - концерт представленный на этом DVD полностью разрушил мое представление об этой группе! Такое впечатление, что я смотрел концерт какой-то начинающей провинциальной отечественной команды! Молоденький вокалист, спрятавшийся за микрофонной стойкой, отсутствие общения с залом, отвратительно отстроенный звук, "каша" на инструментах, выпадающий из ритма барабанщик, “лажающие” гитаристы, и плюс ко всему вылез на сцену второй вокалист, не совсем трезвого вида, не попадающий в ноты! Заметно, что и зрителям бывшем на этом концерте все это было не по душе. А как они исковеркали кавер "Fuel for Hatred" (SATYRICON)!&nbsp; <BR>Непонятно зачем, но на CD&nbsp; представлена аудио дорожка этого "замечательного" концерта. <BR>Несерьезно со стороны группы, играющей более 10 лет, допускать подобное разгильдяйство. Да и со стороны лейбла некрасиво выпускать такое за 30 евро. </P>
+<P>Резюме: хлам.</P>
+Автор: Bizarre
+
+### 15.01.2008 news CATAMENIA назвали альбом
+
+<P>Новый альбом <STRONG>CATAMENIA</STRONG> будет называться "<STRONG>VIII</STRONG>". Дата релиза и даже дата начала его записи не сообщаются.</P>
+Автор: Vit Belov
+
+### 28.05.2008 news CATAMENIA потеряли вокалиста
+
+<P>Певец <STRONG>Olli-Jukka Mustonen</STRONG> покинул <STRONG>CATAMENIA.</STRONG>&nbsp;Он просто не появился в Монреале, где стартовал тур финнов по Канаде. Партии вокала исполнил гитарист <STRONG>Ari Nissila. </STRONG>Группа планирует войти в студию 7 июля для записи новой работы "<STRONG>VII</STRONG>".</P>
+Автор: Vit Belov
+
+### 27.08.2008 news Дата релиза новой CATAMENIA
+
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> CATAMENIA</STRONG> <STRONG>"VIII - The Time Unchained" </STRONG>выйдет 24 октября на <STRONG>Massacre Records</STRONG>. Группа опубликовала обложку авторства <STRONG>Anthony Clarkson.</STRONG></FONT></CENTER>
+<CENTER><IMG height=337 alt="" hspace=0 src="/images/news_rus/2008.08/12766.jpg" width=337 border=5></CENTER>
+<P></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 02.10.2008 news Сэмплы новой CATAMENIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>CATAMENIA</STRONG> <STRONG>"VIII - The Time Unchained" </STRONG>выходит 24 октября на <STRONG>Massacre</STRONG>. Группа выложила некоторые сэмплы на своей <STRONG>MySpace</STRONG> страничке.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/catameniaband">http://www.myspace.com/catameniaband</A></FONT></P>
+Автор: Vit Belov
+
+### 29.01.2009 reviews Между блэком и чем-то другим
+
+<P>Странность финской группы CATAMENIA не отменяет её значимости для современной viking-black-metal сцены. Начав экспериментировать с мелодичным black-metal ещё в середине прошлого десятилетия, CATAMENIA продолжают радовать публику своими разнообразными и очень мелодичными опусами.</P>
+<P>В этот раз группа расстаралась по полной программе. Настроив фэнов на брутальный black-metal лад в первых песнях альбома, финны затем расслабились, и уже завершается пластинка чистоголосыми эпиками в духе gothic-metal. От того, чтобы заклеймить CATAMENIA позорным позором и навсегда исключить её из сонма black-metal банд, меня удерживает сознание того, что этот финский коллектив никогда и не являлся black-metal бандой. Их стиль, основанный прежде всего на неожиданных смешениях и различных экспериментах с viking-metal мелодикой, не подразумевает какого-то чёткого следования какому-то клише. На “VIII: The Time Unchained” можно встретить достаточное количество мелодий, которые придутся по вкусу испытанным поклонникам CATAMENIA.</P>
+<P>Поклонникам финской группы очень рекомендуется. Остальным, по показаниям.</P>
+Автор: Vit Belov
+
+### 30.07.2009 news CATAMENIA назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Осенью этого года финны <STRONG>CATAMENIA</STRONG> войдут в студию <STRONG>Mastervox </STRONG>для записи нового альбома, который получил название <STRONG>'Cavalcade'.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 14.01.2010 news Новый альбом CATAMENIA
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.01/15961.jpg" width=400 align=right border=5>Новая пластинка<STRONG> CATAMENIA</STRONG> <STRONG>"Cavalcade" </STRONG>выходит 26 февраля на<STRONG> Massacre Records</STRONG>. Пластинка была записана и сведена <STRONG>Kari Vahakuopus</STRONG>&nbsp;в <STRONG>Mastervox Studios. </STRONG>Гостевое участие в записи принял солист <STRONG>POISONBLACK Ville Laihiala</STRONG>. Трэк-лист:</P>
+<P>01. <B>Blood Trails</B> (featuring Ville Laihiala)<BR>02. <B>Cavalcade</B><BR>03. <B>The Path That Lies Behind Me</B><BR>04. <B>Silence</B><BR>05. <B>Quantity of Sadness</B><BR>06. <B>Post Mortem</B><BR>07. <B>The Vulture's Feast</B><BR>08. <B>A Callous Mind</B><BR>09. <B>Reincarnation</B><BR>10. <B>Angry Again</B> (MEGADETH cover)<BR>11. <B>Farewell</B> (SENTENCED cover) (digipack bonus track)</P>
+Автор: Vit Belov
+
+### 29.03.2010 reviews CATAMENIA в песках времени
+
+<P>Время летит. Финская группа CATAMENIA как-то незаметно выпустила уже девятый альбом. Также незаметно из авангарда мелодичного black-metal с примесью фолка коллектив перешёл в основной пелотон, где продолжает выпускать новые альбомы без особой надежды на серьёзный успех.</P>
+<P>На прошлой работе ”VII – The Time Unchained”&nbsp; CATAMENIA попробовали сыграть более тяжёлый вариант black-metal, что им удалось. Пластинка, на мой взгляд, звучала свежо и интересно. На второй план отошли однотипные фолковые мелодии, приносившие финнам успех на первых пластинках. На ново альбоме “Cavalcade” группа вернулась к своим поклонникам. Музыканты заиграли нечто мелодичное и однотипное, очередной раз забыв про свои «чернушные» корни. CATAMENIA записали одну большую песнь с монотонным ритмом. Отмечу также обилие чистого вокала, который явно не добавляет этому произведению тяжёлометалической брутальности. На закуску нам предложены две кавер-версии: MEGADETH “Angry Again” и SENTENCED “Farewell”. Особой изобретательностью эти переработки не отличаются, но по качеству музыки они опережают весь обозреваемый альбом.</P>
+<P>CATAMENIA все свои альбомы выпустили на Massacre Records. В буклете даже приведена биография этой группы. К сожалению, никуда сдвинуться с насиженного места финнам не удастся, любая смена места жительства будет группе только во вред. Выше подняться у CATAMENIA точно не получится, но и выкидывать коллектив, гарантированно продающий несколько тысяч пластинок, немецкие бизнесмены с Massacre Records точно не станут.</P>
+Автор: Vit Belov
+
+### 31.03.2010 news Клип CATAMENIA
+
+<P><STRONG>CATAMENIA</STRONG> выложили в сеть новое видео на заглавную песню с последнего альбома "<STRONG>Cavalcad</STRONG>e".</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wYWRYMRYseY&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wYWRYMRYseY&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.10.2010 news CATAMENIA сменили состав
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17345.jpg" width=206 height=250>Гитарист финнов <STRONG>CATAMENIA</STRONG> <STRONG>Riku Hopeakoski</STRONG> (на фото) сообщил, что группу покинули все музыканты кроме него. В качестве причин называются&nbsp;такие&nbsp;обычные вещи,&nbsp;как недостаток вдохновения, занятость в других проектах и т.п. <STRONG>Riku</STRONG> сообщил также имена новых музыкантов. В группу вернулся басист <STRONG>Mikko Hepo-oja, </STRONG>а также рекрутированы два новых музыканта. Имя вокалиста пока неизвестно. Состав <STRONG>CATAMENIA</STRONG> 2010:</P>
+<P><STRONG>Riku Hopeakoski</STRONG> - Guitar<BR><B>Mikko Hepo-oja</B> - Bass<BR><B>Tony Qvick</B> - Drums<BR><B>Sauli Jauhiainen</B> - Guitar<BR>[To Be Announced] - Vocals</P>
+Автор: Vit Belov
+
+### 14.12.2010 news CATAMENIA взяли нового вокалиста
+
+<P><IMG height=251 alt="" hspace=0 src="/images/news_rus/2010.12/17820.jpg" width=251 align=right border=0>Новым певцом <STRONG>CATAMENIA</STRONG> стал <STRONG>Juha-Matti Perttunen</STRONG> (<B>ALL AGAINST</B>). Группа рассказала, что на вакантную должность претендовал ещё и вокалист <STRONG>AGATHODAIMON Ash</STRONG>.</P>
+<P>Недавно лидера <STRONG>CATAMENIA</STRONG> гитариста <STRONG>Riku Hopeakoski </STRONG>покинули все музыканты. В настоящее время состав укомплектован и теперь выглядит так:</P>
+<P><STRONG>Riku Hopeakoski</STRONG> - Guitar<BR><B>Mikko Hepo-oja</B> - Bass<BR><B>Tony Qvick</B> - Drums<BR><B>Sauli Jauhiainen</B> - Guitar<BR><B>Juha-Matti Perttunen</B> - Vocals</P>
+Автор: Vit Belov
+
+### 25.07.2011 news CATAMENIA перепишут материал
+
+<P>Финны <STRONG>CATAMENIA</STRONG> войдут в <STRONG>Mastervox Studios </STRONG>в конце сентября, где перезапишут лучшие свои вещи из бэк-каталога для релиза сборника. В записи, в качестве приглашённых музыкантов, примут участие бывшие вокалисты финской группы <STRONG>Ari Nissila</STRONG>, <B>Olli Mustonen</B>&nbsp;и <B>Mika Tonning</B>. </P>
+<P><center><IMG height=345 src="/images/news_rus/2011.07/20316.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 24.03.2012 news CATAMENIA перезаписали старый материал
+
+<P><IMG height=363 alt="" hspace=0 src="/images/news_rus/2012.03/23315.jpg" width=367 align=right border=0>27 апреля на <STRONG>Massacre Records</STRONG> выйдет новый релиз <STRONG>CATAMENIA</STRONG> <STRONG>"The Rewritten Chapters". </STRONG>Для этой пластинки группа перезаписала 14 классических вещей со старых альбомов, а так же кавер-версию <STRONG>BON JOVI</STRONG> <B itxtHarvested="0" itxtNodeId="88">"Born To Be My Baby"</B>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="80">Hollow Out – ChaosBorn</B><BR itxtNodeId="79">02. <B itxtHarvested="0" itxtNodeId="78">Blackmension</B><BR itxtNodeId="77">03. <B itxtHarvested="0" itxtNodeId="76">Alive...Cold...Dead!</B><BR itxtNodeId="75">04. <B itxtHarvested="0" itxtNodeId="74">Cavalcade</B><BR itxtNodeId="73">05. <B itxtHarvested="0" itxtNodeId="72">Passing Moment of Twilight Time</B><BR itxtNodeId="71">06. <B itxtHarvested="0" itxtNodeId="70">The Day When The Sun Faded Away</B><BR itxtNodeId="69">07. <B itxtHarvested="0" itxtNodeId="68">My Blood Stained Path</B><BR itxtNodeId="67">08. <B itxtHarvested="0" itxtNodeId="66">Post Mortem</B><BR itxtNodeId="65">09. <B itxtHarvested="0" itxtNodeId="64">Morning Crimson</B><BR itxtNodeId="63">10. <B itxtHarvested="0" itxtNodeId="62">Eskhata</B><BR itxtNodeId="61">11. <B itxtHarvested="0" itxtNodeId="60">Coldbound</B><BR itxtNodeId="59">12. <B itxtHarvested="0" itxtNodeId="58">Lost in Bitterness</B><BR itxtNodeId="57">13. <B itxtHarvested="0" itxtNodeId="56">Pime&#228; Y&#246;</B><BR itxtNodeId="55">14. <B itxtHarvested="0" itxtNodeId="54">Kuolon Tanssi</B><BR itxtNodeId="53">15. <B itxtHarvested="0" itxtNodeId="52">Born To Be My Baby</B> (BON JOVI cover)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Catamenia

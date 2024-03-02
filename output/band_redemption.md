@@ -89,6 +89,58 @@ Sean Andrews - bass
 * C группой "Fates Warning" Bernie Versailles  (guitar)
 * C группой "Engine" Bernie Versailles  (guitar)
 
+## Публикации
+
+### 31.05.2007 reviews Классический стопроцентный прогметал
+
+<P>В группе Redemption, которая была основана в 2000-ом году американским гитаристом по имени Nicolas von Dyk первоначально как чисто студийный проект, успело за эти годы переиграть немало музыкантов. Всех их указывать смысла нет, поэтому скажу лишь, что на сегодняшний день кроме Николаса (который также заведует клаваишными)&nbsp;под знаменами Redemption выступают Ray Alder (voc, Fates Warning, Engine), Bernie Versailles (g, Engine, Agent Steel), Sean Andrews (b, Henning Pauly's Chain project) и Chris Quirante (dr, Prymary). Так что музыканты подобрались опытные и довольно известные в прогметалических кругах. "The Origins Of Ruin" это уже третья пластинка коллектива, и на ней нам предлагается, как вы уже наверняка догадались, ничто иное как классический прогметал. Группа не увлекается экспериментами, не залезает на территории других стилей, не пытается удивить фьюженом или авангардом. Здесь всё расписано чётко и ясно и выполнено как по учебнику. Так что если вы только начинаете знакомиться с этим жанром, то совершенно неважно, слышали ли вы уже до этого Dream Theater или тех же Fates Warning, после "The Origins Of Ruin" вы сможете смело утверждать, что представляете себе, что такое прогметал. Поэтому могу порекомендовать этот альбом Redemption всем адептам стиля к обязательному прослушиванию (как минимум), ну а тем, кто прогметал особо не жалует, можно просто посоветовать рискнуть потратить часик - может, вам и понравится эта работа, хотя ничего нового или своеобразного вы тут не услышите, это просто классический стопроцентный прогметал, не больше и не меньше. Добавлю, что японским фэнам повезло, как всегда, больше других, так как только на японском издании можно будет услышать кавер песни Tori Amos 'Precious Things'.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 02.09.2008 news REDEMPTION выпускают DVD
+
+<P>Prog-metal&nbsp;банда&nbsp;<STRONG>REDEMPTION </STRONG>отсняла материал для DVD на фестивале <STRONG>ProgPower</STRONG> в Атланте. Релиз состоится в следующем году. Трэк-лист концерта:</P>
+<P>* <B itxtvisited="1">Threads</B><BR itxtvisited="1">* <B itxtvisited="1">Bleed Me Dry</B><BR itxtvisited="1">* <B itxtvisited="1">Nocturnal</B><BR itxtvisited="1">* <B itxtvisited="1">Memory</B><BR itxtvisited="1">* <B itxtvisited="1">The Suffocating Silence</B><BR itxtvisited="1">* <B itxtvisited="1">Fall On You</B><BR itxtvisited="1">* <B itxtvisited="1">Release</B><BR itxtvisited="1">* <B itxtvisited="1">Sapphire</B><BR itxtvisited="1">* <B itxtvisited="1">The Death of Faith & Reason</B></P>
+Автор: Vit Belov
+
+### 04.02.2009 news Подробности о DVD REDEMPTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=417 alt="" hspace=0 src="/images/news_rus/2009.02/13555.jpg" width=295 align=right border=5>Концертный DVD <STRONG>REDEMPTION</STRONG> <STRONG>"Frozen in the Moment: Live in Atlanta" </STRONG>выходит 2-го марта. Трэк-лист:</FONT></P>
+<P>01. <B>Threads</B><BR>02. <B>Bleed Me Dry</B><BR>03. <B>Nocturnal</B><BR>04. <B>Memory</B><BR>05. <B>The Suffocating Silence</B><BR>06. <B>Release</B><BR>07. <B>Fall On You</B><BR>08. <B>Sapphire</B><BR>09. <B>The Death of Faith & Reason</B></P>
+Автор: Vit Belov
+
+### 08.04.2009 news LaBrie споёт дуэтом с Adler
+
+<P>Новый альбом <STRONG>REDEMPTION</STRONG> <STRONG>'Snowfall on Judgment Day' </STRONG>выходит летом на <STRONG>Inside Out</STRONG>. В настоящее время сведением этой работы занимается <STRONG>Tommy Newton. </STRONG>Одну песню на пластинке дуэтом исполнят вокалист <STRONG>REDEMPTION/FATES WARNING Ray Adler</STRONG> и певец <STRONG>DREAM THEATER James LaBrie</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Peel</B><BR itxtvisited="1">02. <B itxtvisited="1">Walls</B><BR itxtvisited="1">03. <B itxtvisited="1">Leviathan Rising</B><BR itxtvisited="1">04. <B itxtvisited="1">Black and White World</B><BR itxtvisited="1">05. <B itxtvisited="1">Unformed</B><BR itxtvisited="1">06. <B itxtvisited="1">Keep Breathing</B><BR itxtvisited="1">07. <B itxtvisited="1">Another Day Dies</B> *<BR itxtvisited="1">08. <B itxtvisited="1">What Will You Say</B><BR itxtvisited="1">09. <B itxtvisited="1">Fistful of Sand</B><BR itxtvisited="1">10. <B itxtvisited="1">Love Kills Us All</B> / <B itxtvisited="1">Life in One Day</B><BR itxtvisited="1"><BR itxtvisited="1">* Duet between <B itxtvisited="1">Ray Alder</B> and <B itxtvisited="1">James LaBrie</B> of <B itxtvisited="1">DREAM THEATER</B></P>
+Автор: Vit Belov
+
+### 22.08.2009 news Новая песня REDEMPTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.08/14909.jpg" width=400 align=right border=5>Новый альбом<STRONG> REDEMPTION</STRONG> <STRONG>"Snowfall on Judgment Day" </STRONG>выходит 28 сентября на <STRONG>InsideOut</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Peel</B><BR>02. <B>Walls</B><BR>03. <B>Leviathan Rising</B><BR>04. <B>Black and White World</B><BR>05. <B>Unformed</B><BR>06. <B>Keep Breathing</B><BR>07. <B>Another Day Dies</B> *<BR>08. <B>What Will You Say</B><BR>09. <B>Fistful of Sand</B><BR>10. <B>Love Kills Us All</B> / <B>Life in One Day</B><BR>* Duet between <B>Ray Alder</B> and <B>James LaBrie</B> of <B>DREAM THEATER</B></P>
+<P>Новую песню "<STRONG>Black and White World" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/thebandredemption">http://www.myspace.com/thebandredemption</A></P>
+Автор: Vit Belov
+
+### 18.09.2009 news У гитариста REDEMPTION рак
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>У основателя progressive-metal команды<STRONG> REDEMPTION</STRONG> гитариста <STRONG>Nicolas van Dyk </STRONG>обнаружен рак крови (multiple myeloma). С этим диагнозом после пяти лет выживают только 34 процента пациентов.</FONT></P>
+Автор: Vit Belov
+
+### 09.07.2011 news REDEMPTION закончили запись
+
+<P>Проггеры<STRONG> REDEMPTION</STRONG>, в составе которых вокалист легендарных <STRONG>FATES WARNING</STRONG> <STRONG>Ray Alder, </STRONG>закончили запись нового альбома <STRONG>"This Mortal Coil" </STRONG>вместе с продюсером&nbsp;<STRONG>Neil Kernon. </STRONG>Рабочие названия треков: <STRONG>"Noonday Devil"</STRONG>, <B>"No Tickets To The Funeral"</B>, <B>"Rain In My Soul"</B>, <B>"Focus"</B>, <B>"Dreams From The Pit"</B>, <B>"Path Of The Tornado"</B>, <B>"Blink Of An Eye"</B>, <B>"Perfect"</B>&nbsp;и <B>"Departure Of The Pale Horse"</B>.</P>
+<P>Последний альбом <STRONG>REDEMPTION</STRONG> <STRONG>"Snowfall On Judgment Day" </STRONG>вышел два года назад на<STRONG> Союзе</STRONG>.</P>
+<P><center><IMG height=538 src="/images/news_rus/2011.07/20017.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 28.07.2011 news Обложка нового REDEMPTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Prog-metal группа <STRONG>REDEMPTION </STRONG>выпустит свой новый альбом <STRONG>"This Mortal Coil" </STRONG>26 сентября на<STRONG> InsideOut</STRONG>. Обложку, которую нарисовал <STRONG>Travis Smith</STRONG> (<B itxtHarvested="0" itxtNodeId="47">OPETH</B>, <B itxtHarvested="0" itxtNodeId="45">NEVERMORE</B>), можно посмотреть ниже.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=360 src="/images/news_rus/2011.07/20338.jpg" width=360 border=0><BR itxtNodeId="44"></P></FONT>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

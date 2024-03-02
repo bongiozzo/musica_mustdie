@@ -110,6 +110,61 @@ Noctifer - Bass
 * C группой "Aeternus" S. Winter (drums)
 * C группой "Forlorn" S. Winter (drums)
 
+## Публикации
+
+### 26.03.2000 news 
+
+<p>Новый альбом Gehenna содержит только 8 новых песен, также на нём присутствует ремастированная версия их старой работы "Master Satan". Новой творение носит название "Murder".</p>
+
+Автор: Vit Belov
+
+### 20.07.2000 news Новый альбом Gehenna
+
+<p> Стало известно, что новый диск Gehenna "Murder" появится в продаже в самом начале сентября. А пока группа готовится к большому турне в поддержку альбома.</p>
+
+Автор: Nybras
+
+### 02.10.2000 news Радикальные изменения в составе Gehenna
+
+<p> Существенные изменения произошли в составе норвежского black-акта Gehenna. Последовав примеру экс-клавишника Damien группу покинули гитарист-вокалист Dolgar и бассист E.N.Death, бросив на произвол судьбы фронтмэна Sanrabb и ударника Blod, которые теперь подыскивают достойную замену уволившимся. Но, несмотря на это, новый альбом под названием "Murder" все же выйдет в свет 30 октября.</p>
+
+Автор: Phantom Lord
+
+### 12.05.2002 news Контуры нового альбома Gehenna
+
+<p>Gehenna закончили четыре песни для продолжения весьма успешного альбома "Murder". Однако, сразу после выхода "Murder" гитарист и вокалист Sanrabb остался единственным музыкантом группы. Даже Nekro, заменивший Dolgar'а в начале 2001 года, ушёл из-за проблем с графиком своей основной работы. На помощь согласились прийти Blasphemer (Mayhem, Mezzerschmitt) и Frost (Satyricon, 1349), запишущие, соответственно, гитары и барабаны. Новый материал Gehenna, как полагают, "несколько более мелодичен и клавишно-ориентирован", чем два два последних альбома группы.</p>
+
+Автор: Morsus
+
+### 12.05.2002 news Contours of new Gehenna&#39;s album
+
+<p>Gehenna have completed four songs for the follow-up to excellent "Murder" effort. However, since the release of "Murder", guitarist and vocalist Sanrabb is the only remaining member from the line-up. Even Dolgar's replacement, Nekro, who joined in early 2001, has left the band due to conflicting schedules with his work. To help member problems, Blasphemer (Mayhem, Mezzerschmitt) and Frost (Satyricon, 1349) will fill in on guitars and drums, respectively. Gehenna's new material is said to be "a bit more melodic and keyboard-based" than the band's two newest very death metal full-lengths.</p>
+
+Автор: Morsus
+
+### 03.08.2003 news Новости от Moonfog
+
+<p>Лейбл Moonfog заключил контракт с новой группой - DISIPLIN. Говорят, что это проект некого General K, участника группы MYRKSKOG, который покинул группу в 2000 году. "Наша музыка основана на блэк-металле старой школы, смешанным с thrash и death metal." У группы уже есть официальный сайт (www.disiplin.net), а полное интервью с участниками группы можно прочитать на официальном сайте Moonfog (www.moonfog.com).</p>
+<P> Также Moonfog сообщает, что группы DODHEIMSGARD и GEHENNA уже начали запись новых альбомов. KHOLD готовятся к записи, а новая группа DISIPLIN войдет в студию для записи своего дебютного альбома в августе.</p>
+
+Автор: Darkfall
+
+### 29.09.2003 news Новости из студии Moonfog Records
+
+Официальный сайт Moonfog Records сообщает, что новички DISIPLIN закончили запись их одноименного альбома, релиз которого состоится в ноябре этого года. В это же время DODHEIMSGARD, GEHENNA и KHOLD все еще записываются.
+Автор: Darkfall
+
+### 18.01.2005 news Возвращение GEHENNA
+
+<P>После нескольких лет затишья, на метал-сцену вернулись норвежцы&nbsp;<B>GEHENNA</B>, ведомые оригинальными участниками <B>Sanrabb</B> (вокалист-гитарист)&nbsp;и <B>Dolgar</B> (гитарист). Они готовы преподнести еще один кусок экстремального безумия.&nbsp;Совершенно новый альбом под странным названием&nbsp;<STRONG>"WW"</STRONG> обещает возврат группы к ее корням, к сырым и примитивным формам&nbsp;black metal. Выйдет он&nbsp;весной на <STRONG>Moonfog Records. </STRONG>В альбом войдут следующие вещи:<BR><BR>1. <B>Grenade Prayer</B><BR>2. <B>Death to Them All</B><BR>3. <B>New Blood</B><BR>4. <B>Flames of the Pit</B><BR>5. <B>Silence the Earth</B><BR>6. <B>Werewolf</B><BR>7. <B>Abattoir</B><BR>8. <B>Pallbearer</B><BR><BR></P>
+Автор: Dimas
+
+### 16.12.2007 news GEHENNA на Indie Recordings
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежский лэйбл<STRONG> Indie Recordings</STRONG> объявил о подписании контракта с норвежской black-metal легендой<STRONG> GEHENNA</STRONG>. Группа войдёт в <STRONG>Reel Noise Studios</STRONG> в июле 2008 года для записи нового альбома.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

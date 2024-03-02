@@ -21,6 +21,36 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.01.2015 news Вокалист RAMMSTEIN объединился с лидером PAIN
+
+<P>Вокалист<STRONG> RAMMSTEIN Til Lindemann</STRONG> объединился с лидером <STRONG>PAIN/HYPOCRISY Peter Tagtgren</STRONG> для&nbsp;работы над своим сольным проектом, который получил название<STRONG> LINDEMANN</STRONG>. Подробности последуют на странице Facebook: <A href="https://www.facebook.com/Lindemann">https://www.facebook.com/Lindemann</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.01/27520.png" width=645 height=363> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.03.2015 news Новые подробости проекта LINDEMANN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проект <STRONG>LINDEMANN</STRONG>, в который входят <STRONG>Peter Tagtgren</STRONG> (<STRONG>PAIN</STRONG>, <STRONG>HYPOCRISY</STRONG>)&nbsp;и <STRONG>Till Lindemann</STRONG> (<STRONG>RAMMSTEIN</STRONG>), опубликовал обложку и трек-лист грядущего дебютного альбома, который получил название <STRONG>"Skills In Pills"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложка и название некоторых композиций выглядят многообещающе - вот самые красноречивые из них:&nbsp;"Жир", "Золотой Душ", "Трансвестит".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выход диска запланирован на май этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. <STRONG>Skills In Pills</STRONG> | 2. <STRONG>Ladyboy</STRONG> | 3. <STRONG>Fat</STRONG> | 4. <STRONG>Fish On</STRONG> | 5. <STRONG>Children Of The Sun</STRONG> | 6. <STRONG>Home Sweet Home</STRONG> | 7. <STRONG>Cowboy</STRONG> | 8.<STRONG> Golden Shower</STRONG> | 9. <STRONG>Yukon</STRONG> | 10. <STRONG>Praise Abort</STRONG></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2015.03/27705.jpg" width=500 height=500></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 19.06.2015 news LINDEMANN: клип и автограф-сессия в Москве
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проект <STRONG>LINDEMANN</STRONG>, в который входят<STRONG> Peter Tagtgren</STRONG> (<STRONG>PAIN</STRONG>, <STRONG>HYPOCRISY</STRONG>) и <STRONG>Till Lindemann</STRONG> (<STRONG>RAMMSTEIN</STRONG>), выпустили видео на трек <STRONG>"Praise Abort"</STRONG>. Песня вошла на дебютный альбом дуэта под названием&nbsp;<STRONG>"Skills In Pills"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выход диска состоится 23 июня на лейбле <STRONG>Warner Music</STRONG>. В этот же день в Москве пройдёт автограф-сессия с музыкантами проекта. Подробности в нашем разделе <STRONG>"Shows"</STRONG>: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/QWE_M0CX9So" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

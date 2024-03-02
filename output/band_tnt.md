@@ -217,6 +217,328 @@ Diesel Dahl Drums
 * C группой "Riot" John Macaluso
 * C группой "Starbreaker" Tony Harnell
 
+## Публикации
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 19.01.2005 news STARBREAKER - новое приобретение Frontiers
+
+<P><STRONG>STARBREAKER</STRONG> - новая супер-группа, в которой объединили свои усилия вокалист <STRONG>TNT Tony Harnell</STRONG> и гитарист <STRONG>LAST TRIBE Magnus Karlsson</STRONG>. Дебютный альбом коллектива '<STRONG>Starbreaker</STRONG>' выйдет 21 марта на <STRONG>Frontiers</STRONG>. Обещается самая тяжёлая и агрессивная работа с участием этого певца.</P>
+Автор: Vit Belov
+
+### 18.07.2005 news Новый альбом TNT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> TNT "All The Way To The Sun" </STRONG>выходит осенью. Вот некоторые названия песен: "<STRONG>Me & I</STRONG>", "<STRONG>Black Butterfly</STRONG>", "<STRONG>Get What You Give</STRONG>", "<STRONG>Save Your Love</STRONG>", "<STRONG>Too Late</STRONG>," "<STRONG>A Fix (Of You</STRONG>)", "<STRONG>Mastic Pines</STRONG>", "<STRONG>Sometimes</STRONG>", "<STRONG>All The Way To The Sun</STRONG>", "<STRONG>Driving</STRONG>", "<STRONG>Wonderful World</STRONG>", "<STRONG>The Letter</STRONG>", "<STRONG>Ready To Fly</STRONG>". </FONT></P>
+Автор: Vit Belov
+
+### 12.04.2006 news Tony Harnell покинул TNT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По неподтверждённой пока информации, вокалист <STRONG>Tony Harnell</STRONG> покинул <STRONG>TNT</STRONG>. Пресс-релизы от группы и певца появятся в скором времени.</FONT></P>
+Автор: Vit Belov
+
+### 04.08.2006 news Испанский концерт TNT на двд
+
+<P><STRONG>MTM Music</STRONG> объявила 22 сентября датой выхода нового двд <B>TNT</B> <B>"Live in Madrid"</B>. В него войдут съемки с испанского концерта группы, состоявшегося 1 апреля 2006 года в Мадриде. Кроме того, диск будет содержать интерактивное меню, съемки со сцены, а также дополнительный концертный видеоматериал. Также выйдет и аудиоверсия концерта с буклетом, в который войдут пояснения от бывшего вокалиста группы <B>Tony Harnell</B>. Трек-лист издания:<BR><BR>1. <B>Invisible Noise</B><BR>2. <B>As Far As The Eye Can See</B><BR>3. <B>Downhill Racer</B><BR><IMG height=200 alt="" hspace=50 src="/images/news_rus/2006.08/10586.jpg" width=139 align=right border=0>4. <B>A Fix</B><BR>5. <B>She Needs Me</B><BR>6. <B>Give Me A Sign</B><BR>7. <B>Guitar Solo</B><BR>8. <B>Caught Between The Tigers</B><BR>9. <B>Listen To Your Heart</B><BR>10. <B>Black Butterfly</B><BR>11. <B>Seven Seas</B><BR>12. <B>Forever Shine On</B><BR>13. <B>Fantasia Espanola</B><BR>14. <B>My Religion</B><BR>15. <B>10,000 Lovers (In One)</B><BR>16. <B>Intuition</B><BR><BR><BR></P>
+Автор: Dimas
+
+### 01.12.2007 news Tony Harnell выложил демо
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший вокалист <STRONG>TNT Tony Harnell</STRONG> выложил три новые сольные песни на своей <STRONG>MySpace</STRONG> страничке. Вот названия трэков:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Cinematic</B><BR>02. <B>Out from Under the Black Cloud</B><BR>03. <B>The Show</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/tonyharnellonline">http://www.myspace.com/tonyharnellonline</A><BR></P></FONT>
+Автор: Vit Belov
+
+### 09.08.2008 news TNT назвали альбом
+
+<P>Новый альбом<STRONG> TNT</STRONG> будет называться "<STRONG>Atlantis</STRONG>". Объявлено, что 22 сентября пластинка выйдет в Японии и Скандинавии. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 29.01.2009 news Tony Harnell пошёл по стопам Kiske
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший певец <STRONG>TNT Tony Harnell</STRONG> готовит акустический альбом с рабочим названием <STRONG>"En Memoria Carinosa"</STRONG>, на который войдут версии классики <STRONG>TNT</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 15.12.2009 news Tony Harnell готовит акустику
+
+<P>Бывший вокалист <STRONG>TNT Tony Harnell</STRONG> готовит к выпуску акустический альбом. Пластинка выйдет весной на<STRONG> Frontiers</STRONG> и будет содержать как старые хиты <STRONG>TNT</STRONG> и <STRONG>WESTWORLD</STRONG>, так и новый материал. В настоящее время альбом сводится <STRONG>Bruno Ravel</STRONG> (<STRONG>DANGER DANGER</STRONG>).</P>
+Автор: Vit Belov
+
+### 03.05.2011 news Новое видео TNT
+
+<P>Новый клип норвежцев <STRONG>TNT</STRONG> на песню <STRONG>"Refugee" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/gfvOlD6jLZ4" frameBorder=0 width=480 height=303 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.05.2011 news Ralf Scheepers и Mike Vescera споют в новом мюзикле
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежский музыкант и композитор <STRONG>Andreas Nergard </STRONG>сочинил металический мюзикл под названием <STRONG>"Memorial For A Wish"</STRONG>. Материал записывается в <STRONG>Trondheim Studio </STRONG>с продюсером <STRONG>Conor Patrick </STRONG>и выйдет двумя альбомами в 2011-2012 годах. История повествует о реальном событии, случившемся в Дублине в 1890 году. Человек по имени <STRONG>Peter O'Donnell </STRONG>был несправедливо осуждён на 20 лет за ограбление,&nbsp;рассказ начинается, когда он выходит из тюрьмы, полностью отсидев&nbsp;свой срок. Норвежцу удалось собрать некоторое количество известных вокалистов:</FONT></P>
+<P>* <B>Ralf Scheepers</B> (PRIMAL FEAR, GAMMA RAY) <BR>* <B>Tony Mills</B> (TNT, SHY) <BR>* <B>Mike Vescera</B> (YNGWIE MALMSTEEN, LOUDNESS)<BR>* <B>&#197;ge Sten Nilsen</B> (WIG WAM)<BR>* <B>Goran Edman</B> (YNGWIE MALMSTEEN, JOHN NORUM)<BR>* <B>Helge Engelke</B> (FAIR WARNING)<BR>* <B>David Reece</B> (BANGALORE CHOIR, ACCEPT)&nbsp;</P>
+<P><center><IMG height=400 src="/images/news_rus/2011.05/19439.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

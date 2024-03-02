@@ -21,6 +21,30 @@ russian sympho-black metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.02.2001 reviews Напыщенный sympho-black metal
+
+<p>Напыщенный sympho-black metal. Немного помпезный, но очень красивый. Достаточно интересная работа в духе Dimmu Borgir и Falkenbach, но без чистых вокалов и с огромным количеством выведенных на передний план клавишных. Для некоторых, это может показаться главной ошибкой группы, тем более, что почти нет партий соло-гитары. Но ведь так все специально и задумано. Сплошной ритм, поддерживаемый обильными и разнообразными клавишными партиями, заменяющими лидер-гитару. Качество записи очень приемлемое. О технике музыкантов трудно судить в полной мере. Материал очень мелодичный, разнообразный, не очень быстрый, с меланхоличными отступлениями и чрезвычайно богатой атмосферой. Еще одна достойная группа появилась на российской метал-сцене. Для дебютного альбома - очень хороший материал.</p>
+
+Автор: Dimas
+
+### 09.02.2001 reviews Russian sympho-black metal
+
+<p>Russian sympho-black metal. It is a little pompeous, but very beautiful. Interesting enough activity in spirit Dimmu Borgir and Falkenbach, but without clean voices and with huge quantity deduced on the foreground keyboard. For some, it can show by a main error of group, as there are not enough of crews of a solo-guitar. But you see so all specially also is planned. A solid rhythm bolstered by copious and miscellaneous keyboard crews, changing a leader - guitar. Quality of a record very much reasonable. It is difficult to judge engineering of the musicians to the full. A stuff very melodious, miscellaneous, not so fast, with melancholic departures and extremely rich atmosphere. One more worthy group has appeared on the Russian metal-scene. For a debut album - very much good stuff.</p>
+
+Автор: Dimas
+
+### 30.04.2001 news MetalAgen Fest - 2001
+
+<p> 16 мая 2001 года в клубе Точка состоится суперпрезентация новых альбомов Metal Agen - METALAGEN FEST - 2001. Участвуют и представляют свои альбомы группы T.H.R.O.N., MORTEM, IZAKARON, GODS TOWER, FORGIVE-ME-NOT, X-FACTOR/MORTIFER. Специальные гости фестиваля - ENS COGITANS, NEOTRUTH, NORDREAM и группа из Белоруссии RASTA.</p>
+<p> На концерте также будет презентация журнала Metal Art.</p>
+<p> Билеты продаются в рок-магазинах, клубе Точка и на станциях Московского метрополитена. Цена билета - 100 рублей. В день концерта - 200 рублей.</p>
+<p></p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

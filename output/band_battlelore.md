@@ -216,6 +216,760 @@ Total running time: 03:47:00
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.05.2002 reviews Фэнтезийный металл из Финляндии
+
+<p>Посмотрев на обложку, сразу понятно - это что-то из области фэнтези. Предположительно, power или, может viking metal, на худой конец. Но прослушивая альбом, никак не можешь понять, что же это за стиль? Очень много всевозможных влияний, но в совокупности это является самобытным материалом, но не претендующим на особую оригинальность. Эти северные воины обожают произведения Толкиена и приглашают нас в путешествие по древнему миру Меча и Магии, где идет борьба добра со злом. Демоны, тролли, драконы, орки и гоблины противоборствуют с эльфами, карликами и людьми. Мир полный изумительными лесами и наполненный волшебством. Сами музыканты классифицируют свою музыку, как True Arctic Fantasy Metal. Возьмите в качестве музыкальной подложки GOREFEST с характерными death-саундом и приятным рычащим вокалом, дополните это акустическими gothic-darkwave элементами, атмосферными doom'овыми клавишами, мощностью, темпом и мелодичностью, свойственной power metal. Очень приятный и нежный женский вокал вкупе с несколькими разновидностями мужского, не менее приятного вокала, жесткие и тяжелые гитары, драматические настроения - своеобразная форма мрачного готического металла. А теперь хочу перечислить группы, которые мне чаще всего вспоминались при прослушивании этого эпика: GOREFEST, AMORPHIS, LACUNA COIL, CREMATORY, THERION. Число этих групп могло бы быть и больше. Музыка группы хороша, эмоциональна, атмосферна и активна. Вне любого сомнения, что этот слишком правильный и хороший альбом достоин высокой оценки по многим параметрам. Лакомый кусочек для любителей dark metal.</p>
+
+Автор: Dimas
+
+### 17.05.2002 reviews Fantasy metal from Finland
+
+<p>Having looked on a cover, at once clearly is something from fantasy area. Presumably, power or, can viking metal, at the worst. But listening an album, can not understand in any way, what is it for style? It is a lot of every possible influences, but in aggregate it is an original material, but not applying on the special originality. These northern warriors adore books of Tolkien and invite us in travel on the ancient world Might and Magic, where there is a struggle of goods with evil. Demons, trolls, dragons, orks and hoblins rage against elfs, dwarfs and people. The world by complete amazing woods and filled by magic. Musicians classify the music, as True Arctic Fantasy Metal. Take as a musical substrate GOREFEST with characteristic death-sound and pleasant growling, add to it acoustic gothic-darkwave elements, atmospheric doom keys, capacity, rate and melodic, peculiar to power metal. Very pleasant and gentle female vocal together with several versions of man's, not less pleasant vocal, rigid and heavy guitars, drama moods - original form of gloomy Gothic metal. And now I want to list groups, which to me were recollected at listening to this epic more often: GOREFEST, AMORPHIS, LACUNA COIL, CREMATORY, THERION. The number of these groups could be more. Music of group is good, is emotional, atmospheric and is active. Outside of any doubt, that this too correct and good album values high estimation on many parameters. A titbit for the fans of dark metal.</p>
+
+Автор: Dimas
+
+### 25.02.2003 news Новый альбом Battlelore
+
+<p>Battlelore заканчивают работу над новым альбомом. Двойная атака из Финляндии запланирована на 14 апреля, когда выйдет полноценный альбом 'Sword's Song' и DVD 'The Journey'.</p>
+
+Автор: Vit Belov
+
+### 25.02.2003 news Battlelore News
+
+<p>BATTLELORE are finishing up work on their follow up to ...Where Shadows Lie. This double attack from the Finnish, Tolkien-inspired band is scheduled to begin on 14 April with the release of a full-length CD and DVD entitled Sword's Song and The Journey respectively.</p>
+
+Автор: Vit Belov
+
+### 28.05.2003 reviews Очередной soundtrack к произведениям Толкиена
+
+<p>Сколько их уже было? И не вспомнить... Группа - один из лучших дебютантов прошлого года, откровенно провалила второй альбом. Музыка на 'Sword's Song' не представляет никакого интереса, ибо являет слабое подобие viking-metal без каких-либо ухищрений. Однотипная монотонная мелодия проходит через весь альбом. Примитивные тексты про Рохан, Саурона, Беорна и др. могут позабавить только человека, который недавно столкнулся с героями Средеземья. Невнятное продюсирование данного компакт-диска привело к тому, что гитары и всё остальное звучат слишком атмосферно, а мужской вокал задвинут на задний план (в пещеры Хазад-дум, наверное). Единственным светлым пятном является оформление буклета, где все члены коллектива представлены в нарядах различных наций из знаменитого fantasy-мира. Финнам не мешало бы купить себе оркестровки к фильму "Властелин Колец", чтобы понять, какая к данным историям полагается музыка.</p>
+
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 26.02.2004 news BATTLELORE выпускают DVD
+
+<P>Дата выхода первого DVD <B>BATTLELORE 'The Journey'</B> - 29 марта. На альбом войдут студийные записи, интервью, концертные записи и один видео-клип. </P>
+Автор: Vit Belov
+
+### 06.04.2004 news Battlelore запишут новый альбом
+
+<B>BATTLELORE</B> прекращают концертную деятельность, чтобы сконцентрироваться на сочинении нового материала. Группа планирует войти в студию в конце 2004-начале 2005 года.
+Автор: Vit Belov
+
+### 28.08.2004 news Перестановки в составе BATTLELORE
+
+<P><STRONG>BATTLELORE</STRONG> покинул вокалист <STRONG>Patrik Mennander</STRONG>, в туре вместе с <STRONG>ATROCITY</STRONG> его заменит певец из <STRONG>EVEMASTER Tommi Mykkanen</STRONG>, но он не станет окончательной заменой <STRONG>Patrik</STRONG>. Также от тура, из-за персональных причин, отказался басист коллектива <STRONG>Miika Kokkola</STRONG>, его заменит веб-мастер группы <STRONG>Timo Honkanen</STRONG>.</P>
+<P><STRONG>BATTLELORE </STRONG>успокаивают поклонников, они не собираются распадаться и засядут в студию в начале года.</P>
+Автор: Vit Belov
+
+### 04.03.2005 news BATTLELORE в студии
+
+<P><STRONG>BATTLELORE</STRONG> сейчас находятся в<STRONG> Soundsuite Studio</STRONG> с продюсером<STRONG> Terje Refsnes</STRONG> (<STRONG>TRISTANIA, THE SINS OF THY BELOVED</STRONG>). Новый альбом выйдет в июне на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.04.2005 news BATTLELORE назвали альбом
+
+<P>Третий альбом <STRONG>BATTLELORE</STRONG> получил рабочее название "<STRONG>Third Age Of The Sun</STRONG>".</P>
+Автор: Vit Belov
+
+### 27.04.2005 news Трэк-лист нового BATTLELORE
+
+<P>Как уже сообщалось, новый альбом <STRONG>BATTLELORE</STRONG> будет называться&nbsp; "<STRONG>Third Age Of The Sun</STRONG>". Стал известен его трэк-лист:</P>
+<P>1. <STRONG>Usvainen Rhun</STRONG> (intro)<BR>2. <STRONG>Storm of the Blades<BR></STRONG>3. <STRONG>Ghan of the Woods<BR></STRONG>4. <STRONG>Gwaith-i-Mirdain</STRONG><BR>5. <STRONG>Trollshaws<BR></STRONG>6. <STRONG>Elves of Luva<BR></STRONG>7. <STRONG>Valier - Queens of the Valar<BR></STRONG>8. <STRONG>Thousand Caves</STRONG><BR>9. <STRONG>Cloaked In Her Unlight<BR></STRONG>10. <STRONG>Of Orcs and Elves<BR></STRONG>11. <STRONG>Touch of Green and Gold</STRONG><BR>12. <STRONG>Pallando - Forgotten Wizards I<BR></STRONG>13. <STRONG>Alatar - Forgotten Wizards II<BR></STRONG>14. <STRONG>Elessar's Call<BR></STRONG>15. <STRONG>Gollum's Cry</STRONG> (outro)<BR>+ bonus track: <STRONG>Dwimmerlaik</STRONG> (Only available on limited edition digipack) </P>
+Автор: Vit Belov
+
+### 04.05.2005 news Дата релиза BATTLELORE
+
+Новый альбом <STRONG>BATTLELORE</STRONG> "<STRONG>Third Age Of The Sun</STRONG>" выходит 4 июля на <STRONG>Napalm Records</STRONG>.
+Автор: Vit Belov
+
+### 28.09.2005 reviews Третья попытка войти в историю
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Помнится, дебютный альбом этих финских музыкантов трехлетней давности очень мне понравился, вторая же их работа была явно послабее и вымученнее. И вот, попытка номер три, с новым гитаристом и новым вокалистом. Хотя, признаюсь честно, особой разницы в вокале я не заметил, да и гитарная работа какой была, такой и осталась. Сразу скажу, альбом получился лучше предыдущего, но хуже дебютника. Но это все тот же True Arctic Fantasy Metal инспирированный произведениями Толкиена, который мы слышали и ранее. Первые несколько вещей действительно очень красивые и претендуют на звание хитов. Однако, чем дальше слушаешь, тем больше приходишь в состояние уныния. Ничего нового, никакого разнообразия, все песни несколько похожи друг на друга. Хотя, продукция очень качественная, сказывается продюсирование Терье Рефснеса, великолепное сочетание нежного женского вокала и мужского гроула, неплохие мелодии и эпические аранжировки, радует, что российское издание содержит три бонус-трека, которые на западе доступны всем только на лимитированном издании, но, почему-то, эта работа под ее конец кажется скучной и немного тоскливой, слишко много на ней лирических отступлений. Этот материал совершенно не захватывает, да еще и несколько затянут. Но это, только мое субъективное мнение как человека стороннего. Все те, кому предыдущий альбом был по душе, будут ликовать после первого же прослушивания этого альбома. А я лучше переслушаю дебютную работу группы. До свидания...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен Irond</FONT></P>
+Автор: Dimas
+
+### 20.01.2006 news BATTLELORE заняты новым материалом
+
+<P>На своём официальном сайте финны <STRONG>BATTLELORE </STRONG>сообщили, что работают над новым материалом, который выйдет до конца года.</P>
+Автор: Vit Belov
+
+### 08.11.2006 news Новый альбом BATTLELORE
+
+<P><STRONG>BATTLELORE</STRONG> заканчивают работу над новым альбомом "<STRONG>Evernight</STRONG>", который должен выйте в феврале-марте будущего года. Никаких изменений в звучании и стиле не предвидится.&nbsp;</P>
+Автор: Vit Belov
+
+### 29.11.2006 news Новый альбом BATTLELORE
+
+<P>Новый альбом<STRONG> BATTLELORE "Evernight"</STRONG> выйдет в феврале 2007 года. Стал известен трэк-лист пластинки:</P>
+<P>01. <B>House of Heroes</B><BR>02. <B>Ocean's Elysium</B><BR>03. <B>Summon the Wolves</B><BR>04. <B>We Are the Legions</B><BR>05. <B>Into the New World</B><BR>06. <B>Longing Horizon</B><BR>07. <B>Mask of Flies</B><BR>08. <B>The Cloak and the Dagger</B><BR>09. <B>Beneath the Waves</B></P>
+Автор: Vit Belov
+
+### 08.12.2006 news Подробности о новом альбоме BATTLELORE
+
+<P><IMG height=150 alt="" hspace=10 src="/images/news_rus/2006.12/11062.jpg" width=150 align=left border=0>Финский коллектив <B>BATTLELORE</B> обнародовал новую песню и обложку к своему четвертому альбому под названием <B>"Evernight"</B>, который выйдет в феврале 2007 года на <B>Napalm Records</B>. Он был записан в <B>MusicBros Studio</B> с продюсером <B>Miitri Aaltonen</B>, который работал и над предыдущими альбомами коллектива <B>"...Where The Shadows Lie"</B> (2002) и <B>"Sword's Song"</B> (2003). Мастеринг альбома прошел в <B>Finnvox Studios</B>.</P>
+Автор: Dimas
+
+### 14.03.2007 news BATTLELORE выступят в России
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>31 марта <STRONG>BATTLELORE</STRONG> впервые выступят в России. Группа примет участие в фестивале <STRONG>Twilight Of The Gods</STRONG> в Санкт-Петербурге.</FONT></P>
+Автор: Vit Belov
+
+### 21.03.2007 news Новое видео от BATTLELORE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип<STRONG> BATTLELORE</STRONG> на песню с нового альбома "<STRONG>House Of Heroes</STRONG>" можно посмотреть на сайте <STRONG>Napalm Records</STRONG>:<A href="http://www.napalmrecords.com/indexp.html">http://www.napalmrecords.com/indexp.html</A></FONT></P>
+Автор: Vit Belov
+
+### 23.12.2007 news BATTLELORE Начнут запись
+
+<P>31 марта<STRONG> BATTLELORE</STRONG> войдут в студию <STRONG>Sound Supreme</STRONG> для записи новой пластинки. Её сведение осуществит <STRONG>Dan Swano</STRONG>. Группа обещает такое же эпическое произведение, как "<STRONG>Sword's Song</STRONG>".</P>
+Автор: Vit Belov
+
+### 03.07.2008 news Новый альбом BATTLELORE
+
+<P><STRONG><IMG height=250 alt="" hspace=0 src="/images/news_rus/2008.07/12603.jpg" width=250 align=right border=5>BATTLELORE</STRONG> выпускают свой новый альбом <STRONG>"The Last Alliance" </STRONG>этой осенью на <STRONG>Napalm Records</STRONG>. Вот названия некоторых песен: <STRONG>"The Last Alliance"</STRONG>, <B>"Exile The Daystar"</B>, <B>"Daughter Of The Sun"</B>, <B>"Third Immortal"</B>&nbsp;и <B>"Voice Of The Fallen"</B>. Продюсером альбома выступил <STRONG>Dan Swano</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.10.2008 news BATTLELORE выложили клип
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BATTLELORE</STRONG> выложили в сеть новый видеоклип на песню "<STRONG>Third Immortal</STRONG>".</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/WDBvPcdo11k&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/WDBvPcdo11k&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 09.12.2008 reviews Финны «задумались»
+
+<P>Финская группа BATTLELORE по-настоящему выстрелила со своим дебютным альбомом “Where Shadows Lie” в 2002 году. True Arctic Fantasy Metal, как цветисто обозвали свою музыку сами авторы, был гипермелодичен и вмещал в себя несколько популярных стилей тяжёлой музыки. Пускай, творчество BATTLELORE не баловало глубиной, оно было настолько понятно, что пройти мимо того альбома было невозможно.</P>
+<P>Уже на прошлой работе «Evernight» у финнов сменились ориентиры. От fantasy остались только тексты, сама же музыка перестала быть столь лёгкой для восприятия. BATTLELORE начали играть настоящий gothic-doom-metal в рамках популярного стиля «красавица и чудовище». При этом «красавице» доставалось гораздо больше игрового времени. Нынешняя работа “The Last Alliance” продолжает эту линию. Никакого излишнего симфонизма, в большинстве своём медленный материал с дуэтом вокалистов и грустные спокойные мелодии. Добавьте к этому качество и «ненадоедливость» мотивов, и вы получите хороший альбом в своём жанре.</P>
+<P>К сожалению, мне лично зацепиться на этой пластинке было не за что, но это совсем не значит, что и остальные поклонники тяжёлой музыки не найдут здесь мелодий класса «люкс».</P>
+Автор: Vit Belov
+
+### 16.11.2010 news Новый альбом BATTLELORE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=336 alt="" hspace=0 src="/images/news_rus/2010.11/17615.jpg" width=336 align=right border=5>Новый альбом<STRONG>&nbsp;BATTLELORE</STRONG> <STRONG>"Doombound" </STRONG>выйдет 28 января на <STRONG>Napalm Records</STRONG>. Эта пластинка станет первой концептуальной работой группы, повествующей о герое<STRONG> J.R.R. Tolkien Turin Turambar</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Bloodstained</B><BR itxtvisited="1">02. <B itxtvisited="1">Iron of Death</B><BR itxtvisited="1">03. <B itxtvisited="1">Bow and Helm</B><BR itxtvisited="1">04. <B itxtvisited="1">Enchanted</B><BR itxtvisited="1">05. <B itxtvisited="1">Karmessurma</B><BR itxtvisited="1">06. <B itxtvisited="1">Olden Gods</B><BR itxtvisited="1">07. <B itxtvisited="1">Fate of the Betrayed</B><BR itxtvisited="1">08. <B itxtvisited="1">Men as Wolves</B><BR itxtvisited="1">09. <B itxtvisited="1">Last of the Lords</B><BR itxtvisited="1">10. <B itxtvisited="1">Doombound</B><BR itxtvisited="1">11. <B itxtvisited="1">Kielo</B> (instrumental)</P>
+Автор: Vit Belov
+
+### 24.03.2011 reviews BATTLELORE очень хороши в нарядах gothic-doom
+
+<P>Финская группа BATTLELORE со своим шестым альбомом, кажется, окончательно отказалась от легковесности фолковых мелодий, заменив их тяжестью и утвердительностью мелодий думовых. В настоящее время коллектив осваивает новый уровень gothic-doom-metal «Красавица и Чудовище», придуманный ещё в прошлом веке THEATRE OF TRAGEDY.</P>
+<P>И получается это у ребят просто здорово. Мощный размеренный саунд, великолепные вокалы, красивые мелодии с небольшим налётом народной музыки. Такое впечатление, что группы, родившиеся на рубеже веков на волне интереса к folk-metal, постепенно теряют интерес к своей исконной музыке. Кто куда, а BATTLELORE демонстрируют недюжинную любовь к gothic-doom. Интересно, что при этом музыканты не отказываются от своего «эльфийского» имиджа, а их творчество по-прежнему лирически пронизано Толкиеном. Вот только с музыкальной точки зрения – это уже совсем другая музыка.</P>
+<P>Качественный и мелодичный материал в стиле, который уже лет пять как стагнирует. Видимо, именно варяги из прилегающих направлений смогут вдохнуть в него новую жизнь. У BATTLELORE это получается очень хорошо.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

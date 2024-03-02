@@ -23,6 +23,39 @@ This release contains Rare Sathanas and Bathym demos, rehearsals, live tracks. A
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.02.2001 news Sathanas info
+
+<p>SATHANAS will be releasing their new mcd Cruentus Diabolos on Pulverized records march 1. for info contact pulverised@pacific.net.sg</p>
+
+Автор: Vit Belov
+
+### 11.07.2002 bios SATHANAS bio...
+
+<p>SATHANAS entered the extreme Metal scene with their 1988 Satanic Death/ Thrash demo "Ripping Evil" containing the songs "Sathanas", "Blood Sacrifice", "Hail Lucifer" and the undergound classic "Jaws of Satan". <BR><BR> Problems with rehearsals caused SATHANAS to dissolve. Shortly afterwards, members went to ACHERON and BATHYM. Both bands did a few shows together before ACHERON with Vincent Crowley moved to Florida. BATHYM released the "Into Darkness" demo in 1990 which then was follwed by the "Demonic Force" 7"EP on the french label Thrash Records. <BR><BR> BATHYM also seemed to fade away, so Paul Tucker reformed SATHANAS, got some new tracks together and sent them out. Conquistador Records contacted them for a full CD release "Armies Of Charon" which Supernal Music released. Blackmetal.com then signed them for two releases: "Black Earth" and "Thy Dark Heavens". Drakkar Prod. just released their new MCD "Cruentus Diabolos" in March 2002, and From Beyond Prod. recently released the "Jaws of Satan" CD containing all the old demos of SATHANAS and BATHYM. All these releases are available on their respective labels.<BR><BR> Despite their obscurity, SATHANAS has been around over a decade. Thanx to their determination and stubborn refusal to quit, SATHANAS survived and emerged as an infernal fighting machine. Solid like osmium forged in the sulphurous dungeons of Hades. Their furious Death/ Thrash will elicit the aggression of ferocious Metalheads!!</p>
+
+Автор: Yermola
+
+### 11.07.2002 news Cruentus Diabolos....
+
+<p><IMG SRC="/images/news/2002.07/2965.jpg" ALT="pho" width=150 height=150 hspace="15" vspace="5" border="1" align="left"> Brand new mini CD of the band titled 'cruentus diabolos' has been just released through Drakkar Records [France]. The band is currently working on their another full-lenght output entitled 'hex nefarious' which will be released with guest appearance of Sabathan of Enthroned and Don of the Dead of NunSlaughter. Painkiller Records, Death To Mankind and a few other labels have showed their interests so far. It will be recording at the Audioloft engineered by Buzzy Beck. which also recorded the Thy Dark Heavens,and the Cruentus Diabolos mcd.</p>
+
+Автор: Yermola
+
+### 11.07.2002 news Аве сатанас!
+
+<p><IMG SRC="/images/news/2002.07/2965.jpg" ALT="pho" width=150 height=150 hspace="15" vspace="5" border="1" align="left"> Французский лэйбл Drakkar Records только что выпустил мини-диск SATHANAS "Cruentus Diabolos". Сейчас команда вовсю работает над полноформатным альбомом с рабочим названием "Hex Nefarious" гостевое участие на котором примут Sabathan из "Enthroned" и Don из "Dead of NunSlaughter". Интерес к полноформатнику уже проявили Painkiller Records и Death To Mankind. Запись проходит в студии Audioloft с Buzzy Beck в качестве саунд-инженера. Бэк уже работал с группой на Thy Dark Heavens и Cruentus Diabolos.....</p>
+
+Автор: Yermola
+
+### 30.11.2002 news Sathanas news
+
+<p>Morze:<BR> SATHANAS sign deal with Drakkar prod. for new cd Hex Nefarious. out 2003. possible tour with Murder Rape.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

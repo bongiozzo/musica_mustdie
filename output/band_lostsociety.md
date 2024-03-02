@@ -57,6 +57,74 @@ Bonus tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.01.2013 news Финский дебют на Nuclear Blast!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25521.jpg" width=450 height=450>Финский коллектив<STRONG> LOST SOCIETY</STRONG> выпустит дебютный альбом <STRONG>"Fast Loud Death" </STRONG>15 марта на<STRONG> Nuclear Blast</STRONG>. Трешеры записались в <STRONG>Sonic Pump Studios</STRONG> (<B itxtNodeId="214" itxtHarvested="0">FINNTROLL</B>, <B itxtNodeId="213" itxtHarvested="0">SONATA ARCTICA</B>, <B itxtNodeId="212" itxtHarvested="0">OMNIUM GATHERUM</B>), а обложку для них нарисовал знаменитый <STRONG>Ed Repka</STRONG> (<B itxtNodeId="206" itxtHarvested="0">MEGADETH</B>, <B itxtNodeId="205" itxtHarvested="0">DEATH</B>, <B itxtNodeId="204" itxtHarvested="0">SANCTUARY</B>, <B itxtNodeId="203" itxtHarvested="0">VENOM</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtNodeId="175" itxtHarvested="0">N.W.L. </B><BR itxtNodeId="174">02. <B itxtNodeId="173" itxtHarvested="0">Trash All Over You</B><BR itxtNodeId="172">03. <B itxtNodeId="171" itxtHarvested="0">E.A.G. </B><BR itxtNodeId="170">04. <B itxtNodeId="169" itxtHarvested="0">KILL (Those Who Oppose Me)</B><BR itxtNodeId="168">05. <B itxtNodeId="167" itxtHarvested="0">Bitch, Out' My Way</B><BR itxtNodeId="166">06. <B itxtNodeId="165" itxtHarvested="0">Fast Loud Death</B><BR itxtNodeId="164">07. <B itxtNodeId="163" itxtHarvested="0">Lead Through The Head</B><BR itxtNodeId="162">08. <B itxtNodeId="161" itxtHarvested="0">Diary Of A Thrashman</B><BR itxtNodeId="160">09. <B itxtNodeId="159" itxtHarvested="0">Toxic Avenger</B><BR itxtNodeId="158">10. <B itxtNodeId="157" itxtHarvested="0">This Is Me</B><BR itxtNodeId="156">11. <B itxtNodeId="155" itxtHarvested="0">Braindead Metalhead</B><BR itxtNodeId="154">12. <B itxtNodeId="153" itxtHarvested="0">Piss Out My Ass</B><BR itxtNodeId="152">13. <B itxtNodeId="151" itxtHarvested="0">Fatal Anoxia</B><BR itxtNodeId="149">Bonus tracks:<BR itxtNodeId="147">14. <B itxtNodeId="146" itxtHarvested="0">Escape From Delirium</B><BR itxtNodeId="145">15. <B itxtNodeId="144" itxtHarvested="0">I Stole Your Love</B> (KISS cover song) </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR itxtNodeId="202">
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F75817986&show_artwork=true" frameBorder=no width="60%" scrolling=no></IFRAME>
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 12.03.2013 news LOST SOCIETY: видеоклип &quot;Kill (Those Who Oppose Me)&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>LOST SOCIETY</STRONG> - юные финские трэш дарования, чей дебютный альбом выходит 15 марта на <STRONG>Nuclear Blast</STRONG>, порадовали своим дебютнным видеоклипом на песню <STRONG>"Kill (Those Who Oppose Me)"</STRONG>. Ценим его ниже.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/_VYaSmFcfVM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.03.2013 news LOST SOCIETY: видеоклип &quot;Trash All Over You&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финские трэшеры <STRONG>LOST SOCIETY</STRONG> публикуют уже второе видео на песню со своего альбома <STRONG>"Fast Loud Death"</STRONG>. Этой чести удостоился трек <STRONG>"Trash All Over You"</STRONG>, который стал пропуском группы на лейбл <STRONG>Nuclear Blast</STRONG>. Именно с ним группа выступила в финале финской части прошлогоднего конкурса <STRONG>"The Global Battle Of The Bands"</STRONG> (<A href="http://www.gbob.com/">www.gbob.com</A>)&nbsp;и была замечана сотрудниками немецкой компании.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/veG-Lhckzgk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 21.01.2014 news LOST SOCIETY: стали подробности о втором полноформатнике
+
+<P>Финские трэш-метал-вундеркинды <STRONG>LOST SOCIETY</STRONG>, выпускают свой второй альбом 4 апреля на <STRONG>Nuclear Blast</STRONG>!</P>
+<P>Диск, получивший название&nbsp;<STRONG>"Terror Hunrgy"</STRONG>, был записан с продюсером<STRONG>&nbsp;Nino Laurenne</STRONG> (<STRONG>AMORPHIS</STRONG>, <STRONG>ENSIFERUM</STRONG>, <STRONG>LORDI</STRONG>) на студии <STRONG>Sonic Pump</STRONG>.</P>
+<P>Комментирует&nbsp;<STRONG>Samy Elbanna</STRONG>, лидер коллектива:</P>
+<P><EM>"Lost Society вернулись и мы злее, чем обычно!&nbsp;Новый альбом&nbsp;'Terror Hungry' полон трэша&nbsp;и более темный и агрессивный!&nbsp;На нём есть все элементы присущие&nbsp;Lost Society, а также мы добавили в него&nbsp;больше элементов грува, больше гитарного шреда и на него войдут одни из самых быстрых песен за всю нашу историю. Берегитесь, альбом будет быстрее, громче и злее, чем то, что мы когда-либо делали!"</EM></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Spurgatory</STRONG> | 02. <STRONG>Game Over</STRONG> | 03. <STRONG>Attaxic</STRONG> | 04.<STRONG> Lethal Pleasure</STRONG> | 05. <STRONG>Terror Hungry</STRONG> | 06. <STRONG>Snowroad Blowout</STRONG> | 07. <STRONG>Tyrant Takeover</STRONG> | 08. <STRONG>Overdosed Brain</STRONG> | 09. <STRONG>Thrashed Reality</STRONG> | 10. <STRONG>F.F.E.</STRONG> | 11. <STRONG>Brewtal Awakening</STRONG> | 12. <STRONG>Mosh It Up</STRONG> | 13. <STRONG>Wasted After Midnight</STRONG> | 14. <STRONG>You Can’t Stop Rock ‘N’ Roll</STRONG> (Bonus)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.01/26539.jpg" width=650 height=433> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.04.2014 news LOST SOCIETY: клип &quot;Terror Hungry&quot;
+
+<P>Новый клип финских трэшеров <STRONG>LOST SOCIETY</STRONG> на титульную песню, с выходящего 7 апреля альбома <STRONG>"Terror Hungry"</STRONG>, можно посмотреть ниже.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/lnzZpDWrqRY?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 12.04.2014 reviews Где граница между плагиатом и подражательством?
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Финский юношеский <SPAN lang=en-US>thrash-metal LOST SOCIETY </SPAN>стартанул в прошлом году на <SPAN lang=en-US>Nuclear Blast </SPAN>с альбомом "<SPAN lang=en-US>Fast Loud Death". </SPAN>Не долго думая, добры-молодцы зарядили вторую работу "<SPAN lang=en-US>Terror Hungry", </SPAN>пока немецкий независимый "мейджор" не передумал их выпускать.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Удивительные дела с этими молодыми <SPAN lang=en-US>thrash-metal </SPAN>коллективами. Целая волна групп, которые вдохновляются разнообразными <SPAN lang=en-US>old-school thrash-metal </SPAN>направлениями. Но где провести границу между слепым подражательством и творчеством в рамках стиля? Как понять, где мы имеем дело с новым шедевром, а где с простым ремесленничеством? Какие из этих групп гении, а какие подражатели? <SPAN lang=en-US>SUICIDAL ANGELS, NEVROSA, MORTILLERY, DUST BOLT, FUELED BY FIRE... LOST SOCIETY. </SPAN>Безусловно, с каждым случаем надо разбираться особо. <SPAN lang=en-US>LOST SOCIETY, </SPAN>из всех вышеперечисленных команд кажутся мне наиболее пародийными. Финны не только подделываются под стилистику знаменитых прародителей стиля, но и порой снимают знаменитые хиты прошлого практически один в один. Каждый раз, слушая их альбом, вспоминаешь конкретные композиции <SPAN lang=en-US>METALLICA, EXODUS, TESTAMENT, KREATOR. </SPAN>И это слегка напрягает. Дело не в недовольстве возможным плагиатом, но в том, что слушать альбомы <SPAN lang=en-US>LOST SOCIETY </SPAN>просто не интересно. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Возможно, я слишком строг в 18-19-летним парням, которые заново открывают для себя классику трэша. Возможно, этот альбом доставит кое-кому большое удовольствие, но с точки зрения творчества "<SPAN lang=en-US>Terror Hungry" </SPAN>даже в нашем мире музыкального подражательства и стилистической зашоренности вызывает большие вопросы.</P>
+Автор: Vit Belov
+
+### 14.02.2016 news LOST SOCIETY: видеоклип на трек &quot;Hangover Activator&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Nuclear Blast</STRONG> опубликовал видеоклип на трек <STRONG>"<SPAN>Hangover Activator</SPAN>"</STRONG> финских трэшеров <STRONG>LOST SOCIETY</STRONG>. Данная песня вошла на третий альбом финов под названием <STRONG>"Brain Dead"</STRONG>, который вышел 12 февраля 2016 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом мае&nbsp;этого года&nbsp;<STRONG>LOST SOCIETY</STRONG> уже во второй раз посетят Россию. Следите за обновлениями в нашем разделе концертных анонсов: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/EvfSHFE651Y" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 29.05.2016 articles LOST SOCIETY, Москва, &quot;Brooklyn&quot;, 12.05.2016
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2016.08/29758.jpg" width=300 height=415>К моменту второго приезда в столицу «горячих финских парней» Lost Society я, конечно, был знаком с их творчеством, но только в студийном варианте. И, скажу честно, к нему лично у меня был ряд претензий: несмотря на пулемётную скорость и филигранную технику исполняемого ими thrash metal, который был ещё и прекрасно записан, финны несколько халтурно подошли к сочинению вокальных партий, часто состоящих из очень похожих речитативов в куплетах и повторении одной фразы в припевах. Музыкальная составляющая, увы, тоже не пестрила разнообразием и, за исключением отдельных пары трэков, не застревала в голове… Но всё-таки у меня возникало подозрение, что живьём эта картина выглядела бы гораздо привлекательнее, к тому же, при правильной подаче материала, хорошем звуке на сцене и энтузиазме музыкантов в плане перфоманса «оживить» можно порой весьма средненький материал. Что же вытворили финны 12-го мая в клубе Бруклин, превзошло все мыслимые ожидания и стало претензией не только на лучший thrash-концерт года, но и на одно из самых угарных выступлений в данном стиле вообще!</P>
+<P>Сказать, что в зале было жарко, это не сказать ничего. Когда я попал в клуб к концу разогрева в лице питерцев Thrashed, в помещении уже царил угар в прямом и переносном смысле – собравшаяся добрая сотня человек была настроена по-боевому, а кондиционеры не были в состоянии охладить их пыл, что привело помещение клуба к состоянию сауны уже в середине выступления Lost Society. Но это мало кого волновало – сёркл-пит вертелся с невероятной энергией, стэйдждайвинг почти не прекращался, и особенно поражало количество участвующих в нём представительниц прекрасного пола! Отдача публики была просто на высшем уровне, и хотя на концертах подобной стилистики скучно быть просто не может, в этот раз я лицезрел нечто особенное. Конечно же, энтузиазм свидетелей второго приезда финнов в Москву подогревал бодрящий шред в идеальном исполнении Lost Society, неплохой звук и, конечно же, безумная по энергетике сценическая «движуха» самих музыкантов, которые, как казалось, не жили в начале 90-х, когда thrash metal стал загибаться по целому ряду причин, а перенеслись в клуб Бруклин на машине времени прямо из 80-х!</P>
+<P>Абсолютно каждый из четвёрки волосатых неугомонных трэшеров выложился на все 100% как в плане игры на своём инструменте, так и в сценическом угаре, который трудно описать стандартными восторженными эпитетами. Прыть музыкантов, особенно вокалиста/гитариста заслуживает всех возможных похвал – он отлично играл, в том числе соло, беспрестанно носился по скромной сцене, сотрясая хаером в любой удобный момент и бесподобно работал с залом, призывая к тотальнейшему угару. В один момент он даже попросил всех присутствующих присесть (!), чтобы потом по команде подпрыгнуть и продолжить безумный слэм! И хотя участвовали в этом необычном флеш-мобе только те, кто «тусил» непосредственно у сцены (а в связи с габаритами клуба это было большинство присутствующих), со стороны, где находился автор этих строк, выглядело это весьма впечатляюще. Увидев воочию работу Lost Society живьём, теперь у меня не возникает никаких сомнений по какой причине они оказались под крылом такого солидного лейбла, как Nuclear Blast, ведь термин «молодые и подающие надежды» просто идеально подходит этой убойной команде thrash-маньяков.</P>
+<P>Что касается самой музыки, то, естественно, живьём она воспринималась намного выигрышнее, чем в студийном варианте. Прямолинейность играла музыкантам только на руку, вышеупомянутая техника представала во всей красе и отдельные «заводные» хиты (вроде Rage Me Up c последнего, более разнообразного альбома) просто не давали шанса устоять на месте, да и явно проходных (с точки зрения живого выступления) песен замечено не было. Единственное, что выделялся свежий сингл I Am The Antidote своим размеренным темпом, но и это лишь вносило разнообразие в ультра-энергичный сетлист финнов. Кроме этого, оба гитариста устроили очень впечатляющую гитарную дуэль, в которой по очереди исполнили три весьма зажигательных соло, но и это было не последним козырем Lost Society! Также соло исполнил и барабанщик – и по продолжительности, и по технике настолько впечатляющее, что тут можно вести сравнение с самыми крутыми драм-соло от самых именитых музыкантов!</P>
+<P>Полтора часа нескончаемой thrash-мясорубки оказали на меня неизгладимое впечатление. Все отмеченные в начале отчёта минусы финнов при встрече с ними воочию как будто исчезли, и удовольствие от концерта было неописуемым! До сих пор не могу забыть момент, когда я вышел из клуба – при том, что я посещаю самые брутальные концерты очень часто, мой мозг был буквально растерзан этим полуторачасовым звуковым терроризмом, по количеству нот претендующим на книгу рекордов Гиннесса, не иначе! Приятная клубная атмосфера с непосредственным контактом с музыкантами также в этот раз удивила особенным образом, и ещё раз повторюсь, что описать словами это трудно – нужно быть там и почувствовать это самому, ощутить этот праздник и порадоваться за жизнеспособность thrash-metal и появление таких неугомонных и безбашенных его представителей, которые не дадут ему загнуться ни в какие кризисные времена! Так или иначе, если вы являетесь поклонником этого стиля, следующий приезд Lost Society пропускать не советую – хотя бы раз в жизни это должен видеть каждый!</P>
+<P>Текст: Дмитрий Dimebag Дасов</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### LOST SOCIETY (Финляндия) в Москве (12 мая 2016)

@@ -59,6 +59,44 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.02.2011 news PENTAGRAM: выпускают новый альбом в апреле
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18602.jpg" width=400 height=400>PENTAGRAM</STRONG> -&nbsp;группа&nbsp;выпускающая классические альбомы в стиле&nbsp;hard rock/doom metal вот уже более&nbsp;четырёх десятелетий, опубликовала трек-лист и обложку своего нового диска "<STRONG>Last Rites</STRONG>". </P>
+<P>Запланированный к выходу в начале апреля&nbsp;на лейбле&nbsp;<STRONG>Metal Blade</STRONG>,&nbsp;новый альбом <STRONG>PENTAGRAM</STRONG>&nbsp;снова будет содержать композиторский тандем <STRONG>Liebling</STRONG>/<STRONG>Griffin</STRONG>, сочинивший&nbsp;краеугольный полноформатник <STRONG>"Be Forewarned" </STRONG>1994 года!</P>
+<P>Трек-лист<STRONG> "Last Rites"</STRONG>:</P>
+<P>01. <STRONG>Treat Me Right<BR></STRONG>02. <STRONG>Call The Man<BR></STRONG>03. <STRONG>Into The Ground<BR></STRONG>04. <STRONG>8<BR></STRONG>05. <STRONG>Everything's Turning To Night<BR></STRONG>06. <STRONG>Windmills And Chimes<BR></STRONG>07. <STRONG>American Dream<BR></STRONG>08. <STRONG>Walk In Blue Light<BR></STRONG>09. <STRONG>Horseman</STRONG><BR>10. <STRONG>Death In 1st Person<BR></STRONG>11. <STRONG>Nothing Left</STRONG></P>
+<P>Обложку для&nbsp;<STRONG>"Last Rites"</STRONG> нарисовал&nbsp;художник по имени&nbsp;<STRONG>Mo Moussa</STRONG> (<A href="http://www.momoussa.com/">www.MoMoussa.com</A>), хорошо известный по своим работам для комиксов&nbsp;<STRONG>Marvel</STRONG> и <STRONG>DC</STRONG>. Помимо уже упомянутых компаний, в клиентах у <STRONG>Мо</STRONG> значаться такие имена, как&nbsp;кинокомпания <STRONG>New Line Cinema</STRONG>, канал <STRONG>Nickelodeon</STRONG> и ещё несколько крупных телеканалов. Родившийся в Филадельфии&nbsp;и большой поклонник андеграундной музыки, <STRONG>Mo</STRONG>, так же, украсил своими рисунками обложки альбомов&nbsp;нескольких любимых команд, среди которых значатся и грайндкорщики <STRONG>Total Fucking Destruction</STRONG>.</P>
+<P>Из других новостей -&nbsp;<STRONG>PENTAGRAM</STRONG> запланировали юбилейный тур&nbsp;по Европе на апрель месяц. В качестве поддержки на всех датах тура выступит группа <STRONG>IN SOLITUDE</STRONG>!</P>
+Автор: Headcrusher
+
+### 30.05.2011 reviews Одна из первых true Doom-metal групп, вдохновлённых BLACK SABBATH
+
+<P>Представьте себе картину. Вокалист PENTAGRAM Bobby Liebling, которому в этом году исполнится 58 лет, такой весь седой лохматый дядечка с усами как у Iommi, подходит за автографом к Ozzy Osbourne и говорит: «Знаешь, а ведь мы одна из первых true Doom-metal банд, вдохновлённых BLACK SABBATH!»</P>
+<P>Кстати, вполне возможно, что подобная история случалась на самом деле. Что ответил Ozzy? Должно быть, показал свой профессионально оголённый зад. Мог бы, кстати, ещё и облить несчастного Bobby из ведра. Конечно, коллеги Ozzy по исконному составу BLACK SABBATH более серьёзно относятся к своей музыке, но и они вряд ли переслушивают пластинки группы PENTAGRAM по ночам во время своих «чёрносатанинских» капищ. BLACK SABBATH был такой один. Его было много, он был с Ozzy, был с Дио, был даже с Мартином и Гилланом. Возможно, было много и групп подобных PENTAGRAM, но никто из них не гремит по сей день, их вспоминают в своих молитвах упёртые поклонники stoner, но не более. “Last Rites” – новейший альбом американской группы, к которой навечно прилип ярлык, и этот ярлык они отклеивать не собираются. Музыка в духе 70-х годов с местами неплохими мелодиями и «грувовой» ритм-секцией. Безусловно, этот альбом можно послушать, но его звучание сейчас вызывает только улыбку.</P>
+<P>Есть stoner группы тяжёлые как ад, есть весёлые и разухабистые, есть мелодично-мистические, а есть вот такие, как PENTAGRAM. У меня вызывает глубочайшее уважение любовь Bobby Liebling к собственной музыке, я снимаю перед ним шляпу, но в восторг от “Last Rites” я не пришёл.</P>
+Автор: Vit Belov
+
+### 11.08.2011 news Первый DVD PENTAGRAM
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20558.jpg" width=400 height=555>Лейбл <STRONG>Metal Blade </STRONG>рад анонсировать выпуск первого DVD диска&nbsp;группы&nbsp;<STRONG>PENTAGRAM</STRONG>. На <STRONG>"When The Screams Come"</STRONG> войдёт полный концерт <STRONG>PENTAGRAM</STRONG>, снятый 30 мая 2010 на фестивале&nbsp;<STRONG>Maryland Deathfest VIII</STRONG>&nbsp;во время реюнион тура с участием классического тандема&nbsp;<STRONG>Liebling</STRONG> / <STRONG>Griffin</STRONG>! </P>
+<P>В качестве дополнения, на диске можно будет посмотреть эксклюзивное интервью&nbsp;с вокалистом Бобби Лейблингом (<STRONG>Bobby Liebling</STRONG>)!</P>
+<P><U>Трек-лист DVD</U>:<BR>01. <STRONG>Day Of Reckoning<BR></STRONG>02. <STRONG>Forever My Queen<BR></STRONG>03. <STRONG>Ask No More<BR></STRONG>04. <STRONG>Run My Course<BR></STRONG>05. <STRONG>You’re Lost, I’m Free<BR></STRONG>06. <STRONG>Review Your Choices<BR></STRONG>07. <STRONG>Relentless</STRONG><BR>08. <STRONG>All Your Sins<BR></STRONG>09. <STRONG>20 Buck Spin<BR></STRONG>10. <STRONG>Sign Of The Wolf<BR></STRONG>11. <STRONG>When The Screams Come</STRONG></P>
+<P><STRONG>"When The Screams Come"</STRONG>&nbsp;выйдет 30 августа на территории Северной Америки.&nbsp;Фрагменты&nbsp;DVD, так же, как и музыку с последнего альбома группы <STRONG>"Last Rites"</STRONG>, можно посмотреть и послушать по адреcу:&nbsp;<A href="http://www.metalblade.com/pentagram">www.metalblade.com/pentagram</A>. </P>
+Автор: Headcrusher
+
+### 13.07.2016 news Первый клип PENTAGRAM
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Первый клип за 45 лет классиков метала<strong> PENTAGRAM</strong> на песню "<strong>Curious Volume</strong>" можно посмотреть ниже. Трек взят с одноимённого альбома, вышедшего на <strong>Peaceville </strong>в 2015 году.</font></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/i6eTgxvwuJw" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 13.07.2016 news First video by PENTAGRAM
+
+<p>The first clip for 45 years by classics of metal <strong>PENTAGRAM</strong> for the song <strong>"Curious Volume</strong>" can be viewed below. The track is taken from the eponymous album, released on <strong>Peaceville</strong> in 2015.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/i6eTgxvwuJw" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

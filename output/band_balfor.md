@@ -20,6 +20,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.04.2017 news Украинская black metal группа BALFOR выпустила клип
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый видео-клип украинской black metal группы<strong> BALFOR "Dawn Of Savage"</strong> можно посмотреть ниже. Трек вышел на новом альбоме коллектива "<strong>Black Serpent Rising</strong>", реализованном французским лэйблом<strong> Drakkar Productions</strong> в этом году. </font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/KcmPeLjo640" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

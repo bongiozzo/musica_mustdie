@@ -21,6 +21,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.12.2011 news Дебютный альбом UNITY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=170 alt="" hspace=0 src="/images/news_rus/2011.12/22290.jpg" width=170 align=right border=0>Молодая американская heavy-metal команда <STRONG>UNITY</STRONG>, основанная при участии бывших участников <STRONG>DARK MIRROR</STRONG>, выпустила 9 декабря дебютный альбом "<STRONG>Reborn</STRONG>". Трек-лист:</FONT></P>
+<P>1. <STRONG>Prelude to Rebirth</STRONG>&nbsp; <BR>2. <STRONG>The Curse of the Nile</STRONG><BR>3. <STRONG>The Mirror Never Lies</STRONG><BR>4. <STRONG>Condemned<BR></STRONG>5. <STRONG>A New Horizon</STRONG><BR>6. <STRONG>Welcome to the Masquerade<BR></STRONG>7. <STRONG>Man of the Sea<BR></STRONG>8. <STRONG>Yesterday Is Gone<BR></STRONG>9. <STRONG>Afterlife<BR></STRONG>10. <STRONG>Arise</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/unityinmetal">http://www.myspace.com/unityinmetal</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2016 news Стрим дебютного альбома THROES
+
+<p>Дебютный диск dissident metal группы из Тасмании <strong>THROES</strong> <strong>"This Viper Womb</strong>" выходит завтра на <strong>Aesthetic Death Records</strong>. Группа выложила в сеть стрим этой пластинки. Стилистически альбом рекомендован фэнам SHINING, BETHLEHEM и KILLING JOKE.</p><p>Слушать здесь: <a href="http://www.invisibleoranges.com/throes-this-viper-womb-album-premiere/">http://www.invisibleoranges.com/throes-this-viper-womb-album-premiere/</a><p><center><img width="600" height="600" src="/images/news_rus/2016.06/29490.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 28.06.2016 news Full stream of new album by Tasmanian THROES
+
+<p>Debut CD by dissident metal band from Tasmania<strong> THROES "This Viper Womb"</strong> will be released tomorrow on <strong>Aesthetic Death Records</strong>. The group has posted a stream of this album. Stylistically, this album is recommended to fans of SHINING, BETHLEHEM and KILLING JOKE.</p><p>Listen here: <a href="http://www.invisibleoranges.com/throes-this-viper-womb-album-premiere/">http://www.invisibleoranges.com/throes-this-viper-womb-album-premiere/</a></p><p><center><img width="600" height="600" src="/images/news_rus/2016.06/29490.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -102,6 +102,105 @@ Mixed by Andy Sneap.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.01.2009 news Артисты Roadrunner опубликовали топы
+
+<P><STRONG>Roadrunner Records</STRONG> опубликовали на своём сайте&nbsp;Top-10 за 2008 год от своих артистов. </P>
+<P><STRONG>Shawn Drover</STRONG> (MEGADETH)<BR>01. <B>CYNIC</B> - Traced in Air<BR>02. <B>TESTAMENT</B> - The Formation of&nbsp;Damnation<BR>03. <B>MESHUGGAH</B> - Obzen<BR>04. <B>CHILDREN OF BODOM</B> - Blooddrunk<BR>05. <B>OPETH</B> - Watershed<BR>06. <B>EVERGREY</B> - Torn<BR>07. <B>BLOTTED SCIENCE</B> - The Machinations of Dementia<BR>08. <B>AIRBOURNE</B> - Runnin' Wild<BR>09. <B>INTO ETERNITY</B> - The Incurable Tragedy<BR>10. <B>BRAIN DRILL</B> - Apocalyptic Feasting<BR><BR><B>Frederic Leclercq</B> (DRAGONFORCE)<BR>01. <B>GUNS N' ROSES</B> - Chinese Democracy<BR>02. <B>DISTURBED</B> - Indestructible<BR>03. <B>SLIPKNOT</B> - All Hope Is Gone<BR>04. <B>CYNIC</B> - Traced in Air<BR>05. <B>CRADLE OF FILTH</B> - Godspeed on the Devil's Thunder<BR>06. <B>ULTRA VOMIT</B> - Objectif Thunes<BR>07. <B>SEBASTIEN TELLIER</B> - Sexuality<BR>08. <B>ALICE COOPER</B> - Along Came a Spider<BR>09. <B>MOTLEY CRUE</B> - Saints of Los Angeles<BR>10. <B>METALLICA</B> - Death Magnetic<BR><BR><B>Matt Heafy</B> (TRIVIUM)<BR>01. <B>COLDPLAY</B> - Viva La Vida<BR>02. <B>COLDPLAY</B> - Prospekt's March<BR>03. <B>MAXIMUM THE HORMONE</B> - Tsume Tsume Tsume<BR>04. <B>LONDON SYMPHONY ORCHESTRA</B> - Mozart's Requiem<BR>05. <B>GOJIRA</B> - The Way Of All Flesh<BR>06. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>METALLICA</B> - Death Magnetic<BR>10. <B>TRIVIUM</B> - Shogun<BR><BR><B>Robb Flynn</B> (MACHINE HEAD)<BR>01. <B>ALL SHALL PERISH</B> - Awaken The Dreamers<BR>02. <B>METALLICA</B> - Death Magnetic<BR>03. <B>TRIVIUM</B> - Shogun<BR>04. <B>WINDS OF PLAGUE</B> - Decimate The Weak<BR>05. <B>LIL WAYNE</B> - The Carter III<BR>06. <B>LA COKA NOSTRA</B> - A Brand You Can Trust<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>WHITECHAPEL</B> - This Is Exile<BR>09. <B>MESHUGGAH</B> - Bleed<BR>10. <B>BLEEDING THROUGH</B> - Sister Charlatan<BR><BR><B>Joel Stroetzel</B> (KILLSWITCH ENGAGE)<BR>01. <B>KINGS OF LEON</B> - Only by the Night<BR>02. <B>RYAN ADAMS AND THE CARDINALS</B> - Cardinology<BR>03. <B>RADIOHEAD</B> - In Rainbows<BR>04. <B>TOMMY EMMANUEL</B> - Center Stage<BR>05. <B>ALL THAT REMAINS</B> - Overcome<BR>06. <B>NICK CAVE AND THE BAD SEEDS</B> - Dig, Lazarus, Dig!!!<BR>07. <B>Augustana</B> - Can't Love (Can't Hurt<BR>08. <B>IN FLAMES</B> - A Sense of Purpose<BR>09. <B>NADA SURF</B> - Lucky<BR>10. <B>RAY LAMONTAGNE</B> - Gossip in the Grain<BR><BR><B>Max Cavalera</B> (SOULFLY; CAVALERA CONSPIRACY; SEPULTURA)<BR>01. <B>BAD BRAINS</B> - Build a Nation <BR>02. <B>DISFEAR</B> - Live the Storm<BR>03. <B>GOJIRA</B> - The Way of All Flesh<BR>04. <B>GOGOL BORDELLO</B> - Gypsy Punks<BR>05. <B>TURBO TRIO</B> - Turbo Trio<BR>06. <B>INCITE</B> - Divided We Fail<BR>07. <B>AGNOSTIC FRONT</B> - Warriors<BR>08. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>09. <B>AGORAPHOBIC NOSEBLEED</B> - Insect Warfare<BR>10. <B>HIRAX</B> - The New Age of Terror<BR><BR><B>Michael Spretizer</B> (DEVILDRIVER)<BR>01. <B>THE BIRTHDAY MASSACRE</B> - Walking With Strangers<BR>02. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>03. <B>MINDLESS SELF INDULGENCE</B> - If<BR>04. <B>ALL THAT REMAINS</B> - Overcome<BR>05. <B>GOJIRA</B> - The Way of All Flesh<BR>06. <B>IN FLAMES</B> - A Sense of Purpose<BR>07. <B>CHILDREN OF BODOM</B> - Blood Drunk<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>RAUNCHY</B> - Wasteland Discotheque<BR>10. <B>TESTAMENT</B> - The Formation of Damnation</P>
+Автор: Vit Belov
+
+### 09.01.2009 news DEVILDRIVER перезаключили контракт
+
+<P><STRONG>DEVILDRIVER </STRONG>подписали новое соглашение с <STRONG>Roadrunner</STRONG>. Группа работает над новым альбомом.</P>
+Автор: Vit Belov
+
+### 16.01.2009 news DEVILDRIVER начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEVILDRIVER </STRONG>вошли в студию <STRONG>Edge of the Earth</STRONG>, где начали запись своего нового пока не названного альбома.</FONT></P>
+Автор: Vit Belov
+
+### 13.02.2009 news DEVILDRIVER назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEVILDRIVER</STRONG> записывают четвёртый альбом. Стало известно его название - <STRONG>"Pray For Villains".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 25.04.2009 news Обложка DEVILDRIVER
+
+<P><STRONG>DEVILDRIVER </STRONG>опубликовали обложку нового альбома <STRONG>"Pray For Villains"</STRONG>, который выйдет в ближайшем будущем на <STRONG>Roadrunner</STRONG>.</P>
+<P><center><IMG height=410 src="/images/news_rus/2009.04/14009.jpg" width=410 border=0></P>
+Автор: Vit Belov
+
+### 21.05.2009 news DEVILDRIVER дают качнуть
+
+<P>Новую песню<STRONG> DEVILDRIVER</STRONG> <STRONG>"Pray For Villains" </STRONG>можно бесплатно качнуть на сайте<STRONG> Roadrunner</STRONG>: <A href="http://www.roadrunnerrecords.com/prayforvillains/">http://www.roadrunnerrecords.com/prayforvillains/</A></P>
+Автор: Vit Belov
+
+### 22.07.2009 news DEVILDRIVER вошли в чарты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DEVILDRIVER</STRONG> <STRONG>"Pray For Villains"</STRONG> продался тиражом 14600 копия и занял 35 позицию в чартах <STRONG>BillBoard.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 28.10.2009 news Новое видео DEVILDRIVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео&nbsp;<STRONG>DEVILDRIVER</STRONG> <STRONG>"Fate Stepped In"&nbsp;</STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG></STRONG></FONT>
+<CENTER>
+<OBJECT id=single height=320 width=390 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="10319"><PARAM NAME="_cy" VALUE="8467"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://www.roadrunnerrecords.com/blabbermouth.net/reviewpics/audio/mediaplayer.swf"><PARAM NAME="Src" VALUE="http://www.roadrunnerrecords.com/blabbermouth.net/reviewpics/audio/mediaplayer.swf"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE=""><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE=""><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://www.roadrunnerrecords.com/blabbermouth.net/reviewpics/audio/mediaplayer.swf" quality="high" type="application/x-shockwave-flash" width="390" height="320" allowfullscreen="false" flashvars="height=320&width=390&controlbar=10&frontcolor=0xffffff&backcolor=0xffffff&lightcolor=0xC5E709&file=http://www.roadrunnerrecords.com/shared/downloads/Devildriver/DevilDriver-Fate_Stepped_in.flv&autostart=false"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.01.2010 reviews Не думайте о радио и телевидении
+
+<P>Проект вокалиста некогда популярной группы COAL CHAMBER Dez Fafara со своим четвёртым альбомом. Группа продолжает выбранную линию, смешивая hardcore с металом.</P>
+<P>Начинается пластинка с ураганного ‘hardcore’ хита, что сразу настраивает на приятный лад. Бескомпромиссные риффы, агрессивный вокал. К сожалению, удержать планку на той же высоте DEVILDRIVER не удалось. Вслед за несколькими энергичными композициями появляются невыразительные среднетемповые, а порой и медленные песни. В отличие от тех же HATEBREED DEVILDRIVER не удаётся полностью выполнить план по тяжести. Такое впечатление, что в их мозгу при сочинении материала постоянно маячил призрак радио и телевидения, которому просто необходимы мелодичные композиции с чистым вокалом. Нам же подобные композиции не только не необходимы, но даже нежелательны. Мы не будем осуждать DEVILDRIVER за подобный коммерческий подход, пускай он и портит их имидж у рядового металиста, ведь этой группе удалось порадовать нас несколькими очень не плохими боевиками.</P>
+<P>Выставить высокую оценку DEVILDRIVER не удастся. У этой группы есть все шансы, но она лишний раз доказывает, что услышать свою любимую музыку на телевидении поклонникам тяжёляка не получится даже за океаном. Все эти медленные и мелодичные трэки всё-таки к нашей категории не относятся.</P>
+Автор: Vit Belov
+
+### 30.03.2011 news Басист Jonathan Miller покинул ряды DEVILDRIVER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18983.jpg" width=200 height=276>Басист&nbsp;<B itxtNodeId="419">Jonathan Miller</B>&nbsp;из калифорнийской банды&nbsp;<B itxtNodeId="418">DEVILDRIVER</B> сделал следующее заявление:<BR itxtNodeId="417"><BR itxtNodeId="416"><EM>"Я просто хочу поблагодарить всех фанатов <B itxtNodeId="415">DEVILDRIVER</B> по всему миру, за их нескончаемую любовь и поддержку&nbsp;в течении последних девяти лет. Вчера я принял решение покинуть <B itxtNodeId="412">DEVILDRIVER</B>. Это было самое трудное решение в моей жизни, но&nbsp;это то, что я должен был сделать.&nbsp;У меня были самые лучшие времена в жизни, когда я отвисал со всеми вами, но сейчас настало&nbsp;время двигаться вперёд. Любви всем."</EM></P>
+Автор: Headcrusher
+
+### 02.07.2012 news DEVILDRIVER: видеообращение Dez Fafara к своим российским фэнам
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В преддверии московского концерта, <STRONG>Dez Fafara</STRONG>, вокалист группы <STRONG>DEVILDRIVER</STRONG>, записал небольшой ролик - видеообращение к своим российским фэнам. Концерт состоится 4 июля&nbsp;на малой арене клуба <STRONG>"Milk"</STRONG>. Больше подробностей в разделе <STRONG>"Shows"</STRONG> нашего сайта: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/-cg_XX89fTU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 01.07.2013 news Подробности нового студийного альбома DEVILDRIVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом калифорнийцев&nbsp;<STRONG>DEVILDRIVER</STRONG>, получивший название <STRONG>"Winter Kills"</STRONG>, выходит 27 августа на <STRONG>Napalm Records</STRONG>. Запись всех инструментов, за исключением вокала, происходила во флоридской студии <STRONG>Audio Hammer</STRONG>. Вокал же был записан в домашней студии вокалиста. Весь процесс происходил под присмотром продюсера&nbsp;Марка Люиса&nbsp;(<STRONG>Mark Lewis</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа и прежде работала с Марком над альбомами <STRONG>"Beast"</STRONG> и <STRONG>"The Last Kind Words"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Для обложки альбома была использована фотография&nbsp;авторства Дина Карра&nbsp;(<STRONG>Dean Karr</STRONG>, <A href="http://deankarr.com/">http://deankarr.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Все внутренние иллюстрации создал <STRONG>Ryan Clark</STRONG> (<A href="http://www.invisiblecreature.com/">www.invisiblecreature.com</A>).</FONT></P>
+<P>Уже сейчас для прослушивания доступен&nbsp;<STRONG>"Ruthless"</STRONG>,&nbsp;первый трек с нового альбома.</P>
+<CENTER><IFRAME height=166 src="https://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F98208364" frameBorder=no width="100%" scrolling=no></IFRAME></CENTER>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25848.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 20.11.2015 news DEVILDRIVER: Не верь никому
+
+<P>Группа&nbsp;из&nbsp;Санта-Барабары,&nbsp;<STRONG>DEVILDRIVER</STRONG>, выпускает новый альбом под названием <STRONG>"Trust No One"</STRONG>. Дата выхода запланирована на 13 мая 2016 года на лейбле <STRONG>Napalm</STRONG>. В скором времени будет обнародован первый сингл с диска.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.11/28536.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 21.07.2016 news Новый клип DEVILDRIVER
+
+<p>Новый ролик <strong>DEVILDRIVER</strong> на песню "<strong>My Night Sky</strong>" можно посмотреть ниже. Трек взят с нового альбома группы "<strong>Trust No One</strong>", вышедшего на <strong>Napalm Records</strong>.</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/gRJQeyoGLg4" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 21.07.2016 news New clip by DEVILDRIVER
+
+<p>New<strong> DEVILDRIVER</strong> video for the song "<strong>My Night Sky</strong>" can be viewed below. The track is taken from new album "<strong>Trust No One</strong>", released on <strong>Napalm Records</strong>.</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/gRJQeyoGLg4" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ДрагМетал Фест: Devildriver, Ease Of Disgust и ##### (4 июля, 2012)

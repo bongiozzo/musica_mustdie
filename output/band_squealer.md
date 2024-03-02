@@ -92,6 +92,93 @@ This Album is Dedicated to Andreas "Henner" Allendorfer (R.I.P.)
 
 * C группой "Grip Inc." Gus Chambers (vocal)
 
+## Публикации
+
+### 05.09.2000 reviews Искрометная заводящая музыка
+
+<p>Искрометная заводящая музыка. Совершенно не ожидал. несмотря на то, что это уже пятый альбом группы существующей ещё с 1990 года, раньше я её не слышал. Но этот альбом просто восхищает. Блестящая speed-power смесь Grave Digger и Blind Guardian. Жесткие, похожие на пулеметную очередь гитарные риффы, плотный басовый звук, довольно мелодичная музыка, иногда проскакивают клавиши, мощный и сильный вокал подкрепляемый частыми хоровыми подпевками. В записи альбома приняли участие множество приглашенных музыкантов, среди которых Roland Grapow (Helloween) и Mike Terrana (Rage). Альбом захватывает слушателя с самых первых секунд звучания и не отпускает до последних секунд. Особняком выделяется композиция Depeche Mode "People Are People" - получился своеобразный heavy-metal гимн в исполнении 10 вокалистов.</p>
+
+Автор: Dimas
+
+### 02.04.2001 news SQUEALER в студии
+
+<p>Германцы SQUEALER находятся в студии где пишут пока еще не названный шестой альбом, который запланирован к выходу на Август. В ожидании выхода парни примут участие в нескольких европейских фестивалях (Например Bang Your Head festival 29 и 30 июня).</p>
+
+Автор: Yermola
+
+### 11.07.2001 news Новые релизы
+
+<p> At Vance выпустят новый альбом под названием Only Human 22 октября на AFM rec. Там же, но уже зимой должен увидеть свет новый альбом Squealer “Under The Cross”</p>
+
+Автор: Helloween
+
+### 13.04.2002 reviews Есть первый кандидат!
+
+<p> Ну, вот и дождались мы очередного (уже пятого) альбома замечательных Squealer. Скажу сразу – эти немцы произвели на меня впечатление еще своим дебютом, так что мы вправе требовать от них музыки высочайшего качества. И ребята не разочаровали! Поясню для тех, кто не знает: Squealer играют Power Metal, который абсолютно не похож на других представителей жанра, прежде всего, своим плотным, почти трэшевым звуком. Хриплый “с ножом в горле” вокал лишь подчеркивает индивидуальность коллектива, а жесткие гитары отлично сочетаются с мелодичными отступлениями. Альбом несильно отличается от предыдущих творений коллектива, но это, конечно, можно занести лишь в актив. Возможно, музыка стала более зрелой, где-то чуть более проникновенной что ли, но, повторюсь, если предыдущие работы Squealer пришлись вам по душе, то бегите в магазин без раздумий. Молодцы немцы! Найдя когда-то свой неповторимый стиль, они четко следуют ему, лишь немного совершенствуя и развивая от альбома к альбому. Песни прочно оседают в голове, а некоторые просто хочется ходить и напевать, несмотря на их не всегда простую структуру. Что толку распускать слюни по поводу качества материала, классного звука и так далее? Скажу проще: есть первый кандидат на звание “Лучший Power альбом 2002 года”! </p>
+
+Автор: Davor
+
+### 05.03.2004 news Новый альбом Squealer задерживается
+
+Новый альбом <SPAN lang=EN-GB><B>SQ</B></SPAN><SPAN lang=EN-GB><B>UEALER</B> задерживается на неопределённый срок, из-за затянувшейся болезни вокалиста. Пластинка увидит свет не раньше зимы<B>.</B></SPAN>
+Автор: Vit Belov
+
+### 05.03.2004 news Squealer have to postpone their studio date
+
+<SPAN><B>Squealer</B></SPAN><SPAN lang=EN-GB> have to postpone their studio d</SPAN><SPAN lang=EN-GB>at</SPAN><SPAN lang=EN-GB>e to summer 2004 because of the lengthy illness of their singer. The new CD is therefore not available before autumn/ winter this year</SPAN>
+Автор: Vit Belov
+
+### 18.01.2005 news Босс AFM&#x2F;вокалист SQUEALER погиб в автокатастрофе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Andy 'Henner' Allendorfer</STRONG> - вокалист немецкой группы <STRONG>SQUEALER</STRONG> и лэйбл-босс <STRONG>AFM Records</STRONG> погиб в автокатастрофе вечером&nbsp;в воскресенье. R.I.P.&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 20.01.2005 news SQUEALER собираются продолжать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, несколько дней назад погиб <STRONG>Andy Allendorfer</STRONG>, вокалист<STRONG> SQUEALER</STRONG> и босс лэйбла<STRONG> AFM Records</STRONG>. Он врезался в дерево на автомобиле, не справившись с управлением.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SQUEALER</STRONG> распространили заявление, которое касается смерти <STRONG>Andy</STRONG>. Группа собирается продолжить свою деятельность, но окончательное решение будет принято в ближайшее время.</FONT></P>
+Автор: Vit Belov
+
+### 20.01.2005 news SQUEALER are going to go on
+
+<DIV class=regular id=storyRepeater__ctl17_storyPanel>Germany's <B>SQUEALER</B> have issued the following statement with regards to the recent passing of the band's singer/founder and <B>AFM Records</B> label boss <B>Andreas "Henner" Allendцrfer</B>:"<BR><BR>"Last Monday we received the horrible news, that <B>SQUEALER</B> singer and band founder <B>Andreas 'Henner' Allendцrfer</B> died on January 16, 2005 in a tragic car accident. He only reached an age of 38 years. <BR><BR>"At about 9:25 pm, <B>Andy</B> lost the control over his car due to black ice and hit a tree. He even died at the place of the accident. <BR><BR>"Making music for years and spending lots of time and patience working together on the band <B>SQUEALER</B>, we became a little family through the years. That is why we are deeply shocked by this news and we still cannot really believe, that Andy can't be with us in the future anymore. Therefore, we have no concrete plans, concerning the continuity of <B>SQUEALER</B>, yet. <BR><BR>"Although we (and those who knew <B>Andy</B> better) know that <B>Andy</B> wouldn't have wanted us to close the chapter <B>SQUEALER</B>, we beg your understanding, that we need time for this consideration. When some time has passed, we will come together to discuss the future of the band and if the release of a new <B>SQUEALER</B> album, the material has almost been finished, makes sense. Of course, we will keep you up-to-date, concerning this issue. <BR><BR>"At the moment our sorrow is beyond words and our deep sympathy is with <B>Andy</B>'s family! <BR><BR>"No matter what the decision regarding <B>SQUEALER</B> will be: We will never forget the wonderful times with <B>Andy</B> and in our thoughts <B>'Henner'</B> will be with us on stage for eternity." </DIV>
+Автор: Vit Belov
+
+### 19.01.2006 news Новый вокалист SQUEALER
+
+<P>Группа, погибшего в автокатастрофе хозяина немецкого лейбла <STRONG>AFM Andy Allendorfer</STRONG>, <STRONG>SQUEALER</STRONG> сообщила о своём участии в бельгийском фестивале <STRONG>Beveren Beaft</STRONG>. Стало известно, что место у микрофона занял бывший певец <STRONG>GRIP INC. Gus Chambers</STRONG>.</P>
+Автор: Vit Belov
+
+### 31.05.2006 news Новый альбом SQUEALER
+
+<P>Новый альбом <STRONG>SQUEALER</STRONG> будет называться "<STRONG>Confrontation Street</STRONG>". Как уже сообщалось, новым вокалистом группы стал <STRONG>Gus Chambers</STRONG> (ex-<STRONG>GRIP INC.</STRONG>). </P>
+Автор: Vit Belov
+
+### 05.10.2006 news SQUEALER A.D. выпускают альбом
+
+<P>Новый альбом <STRONG>SQUEALER A.D.</STRONG> (группа ранее известная, как <STRONG>SQUEALER</STRONG>) "<STRONG>Confromtation Street</STRONG>" выходит 20 октября на <STRONG>AFM</STRONG>. Трэк-лист:</P>
+<P><IMG height=204 alt="" hspace=0 src="/images/news_rus/2006.10/10768.jpg" width=204 align=right border=5>1. <STRONG>Black Tongue</STRONG> <BR>2. <STRONG>Infanticide<BR></STRONG>3. <STRONG>Devil's Backbone</STRONG><BR>4. <STRONG>Kamikaze Nation</STRONG><BR>5. <STRONG>Punishment Of Luxury</STRONG><BR>6. <STRONG>Eat My Sin</STRONG><BR>7. <STRONG>Blood Red Halo</STRONG><BR>8. <STRONG>New Sun Rising</STRONG><BR>9. <STRONG>Left Bleeding (By Love)<BR></STRONG>10. <STRONG>Faith Or Fury</STRONG><BR>11. <STRONG>Silent Mandarin (Unit 731)</STRONG></P>
+Автор: Vit Belov
+
+### 14.06.2007 news SQUEALLER A.D. расстались с вокалистом
+
+<P><STRONG>Gus Chambers</STRONG> покинул <STRONG>SQUEALLER A.D.</STRONG> Группа не отменила ближайших концертов, так как вовсю репетирует с новым вокалистом. Имя его не сообщается.</P>
+Автор: Vit Belov
+
+### 20.11.2007 reviews Не лучшее посвящение погибшему коллеге
+
+<P>Всем поклонникам немецкой группы Squealer, несомненно, знаком тот факт, что в январе 2005-го года её&nbsp;вокалист&nbsp;и основатель&nbsp;и одновременно шеф лэйбла AFM Records Andreas "Henner" Allendoerfer погиб в автокатастрофе (R.I.P.). Не будем здесь обсуждать эту печальную тему. После трагической смерти Энди (между прочим, именно он дал путевку в жизнь одной из самых популярных сегодняшних немецких пауэр-групп Edguy, где до сих пор играет Tobias Exxel, бывший басист Squeler) казалось, что "Визгун" больше не будет записывать пластинки и выступать. Однако, это оказалось не так. Группа после нескольких месяцев молчания возродилась, теперь уже с немного измененным названием Squealer A.D. (в память о Аллендёрфере). На пост за микрофоном был призван Гас Чамберс (а познакомил группу&nbsp;и певца в свое проклятое время никто иной, как Майк Террана), который как раз искал работу после практически развалившихся (или, по крайней мере, приостановивших свою деятельность) американских трэшеров Grip Inc. То ли приход нового вокалиста оказал такое влияние на смену стиля,&nbsp;то ли была тому иная причина - но "Confrontation Street" (альбом посвящен памяти "Хеннера") уже никакой не пауэр-метал, а во многом трэш-метал, притом я не согласен, что он сделал в духе старой школы; он, скорее, как раз "попахивает" довольно модерновым вариантом трэша. И я вам выскажу свое личное мнение: кем бы вы ни были, поклонником ли "старого" Сквилера, любителем ли трэша - здесь вы вряд ли останетесь довольными. Получилось ни то ни сё, как говорят, ни мэ, ни бэ, ни кукареку. Остается просто надеяться, что группа выпустила этот альбом лишь как дань памяти своему основателю, а потом никаких больше выступлений или записей не последует. Да, к качеству пластинки претензий, по большому счету, нет (продюсированием занимался Мартин Бухвальтер, который кроме как в Squealer A.D. также барабанит в Perzonal War), но, често говоря, хороших номеров там тоже нет. Может быть, не очень хорошо так говорить, но я что-то сомневаюсь, что покойный Энди был шибко рад подобному посвящению... Поэтому оставляю "Confrontation Street" без оценки. В российском издании бонус-треком идет концертная вещь 'Wrong Time Wrong Place' (в оригинале исполненная на одноименном альбоме Squealer 1995-го года).</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 08.12.2009 reviews SQUEALER продолжают свой скорбный путь
+
+<P>Группа SQUEALER существует уже более 20 лет, но не может похвастаться какими-то глобальными успехами. Более того, в последнее время ребята попадают в новости только в связи с неприятными событиями, связанными с её вокалистами. Оригинальный певец Andreas Allendorfer погиб в автокатастрофе, а заменивший его Gus Chambers умер от передозировки. Правда, к тому времени он SQUEALER покинул, но дела это не меняет.</P>
+<P>Сейчас немцы рассчитывают на новую эру в своей истории и выпустили в 2008 году пластинку с говорящим названием “The Circle Shuts”. Записывали её музыканты в студии своего барабанщика Martin Buchwalter, который на настоящий момент в группе уже не играет. Это тоже нельзя назвать приятным моментом, так как человек из группы, выступающий в качестве инженера, как правило, играет кое-какую дополнительную роль. К сожалению, все эти пертурбации не отражаются на музыке группы лучшим образом. Думается, сейчас все уже забыли бы о SQUEALER, если бы покойный Andy не завёл свой собственный лэйбл AFM, который превратился в достаточно успешное предприятие. Вернёмся к этому альбому. Я уже рассказывал о моём неоднозначном отношении к стилю power-thrash-metal. Видимо, эта утяжелённая вариация heavy-metal появилась ещё в 80-х и приобрела тогда же некоторую популярность. Оставшиеся на плаву группы, осваивающие эту неплодородную ниву, уже заслуженные ветераны, не имеющие стойкой популярности, но имеющие кучку преданных фэнов. Мне же нравятся только ICED EARTH, остальных я просто не понимаю. Вот мне кажется, SQUEALER надо мной просто издеваются. Недостаточно тяжёлые для thrash, недостаточно мелодичные для heavy-metal, эти песни застревают где-то между стилями и гниют. На этом диске добавлен миньон группы 89-го года, записанный со знаменитым продюсером Kalle Trapp. Приятное пощёлкивание от винила, аналоговый звук, но, даже не смотря на всю ностальгию, понятно, что SQUEALER группа второго, а то и третьего эшелона.</P>
+<P>Не хочется говорить что-то резкое, но я даже не представляю, что должна записать эта немецкая группа, чтобы впечатлить меня в будущем.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Ещё одна смерть

@@ -36,6 +36,39 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.10.2009 news THE ABSENCE войдут в студию
+
+2 ноября <STRONG>THE ABSENCE</STRONG> войдут в <STRONG>Mana Recording Studios </STRONG>для записи нового альбома, который выйдет в начале следующего года на <STRONG>Metal Blade</STRONG>. 
+Автор: Vit Belov
+
+### 26.11.2009 news THE ABSENCE назвали альбом
+
+<P>Третий альбом <STRONG>THE ABSENCE</STRONG> будет называться <STRONG>"Enemy Unbound". </STRONG>Пластинка выйдет в начале следующего года на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 28.09.2010 news Новое видео THE ABSENCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео на песню <STRONG>"Enemy Unbound" </STRONG>флоридской melodic death/thrash команды<STRONG> THE ABSENCE</STRONG> можно посмотреть ниже. Данный трэк является заглавным на последнем альбоме коллектива, который вышел 14 сентября на<STRONG> Metal Blade</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/f6s2kndQFW4&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/f6s2kndQFW4&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.07.2016 news Новая музыка THE ABSENCE
+
+<p>Американская melodic death metal команда <strong>THE ABSENCE</strong> объявила о возвращении к активной деятельности после трёхлетнего перерыва. Ниже можно услышать новый трек "<strong>Septic Testament</strong>". Трек стал дебютом для двух новых гитаристов<strong> Joey Concepcion</strong> (Armageddon) и <strong>Taylor Nordberg</strong> (Ribspreader, Infernaeon).</p><p>&nbsp;<center><iframe style="border: 0; width: 60%; height: 120px;" src="https://bandcamp.com/EmbeddedPlayer/track=3346988876/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" seamless><a href="http://theabsenceofficial.bandcamp.com/track/septic-testament">Septic Testament by The Absence</a></iframe></p>
+Автор: Vit Belov
+
+### 26.07.2016 news New single of THE ABSENCE
+
+<p>American melodic death metal band <strong>THE ABSENCE</strong> has announced the return to activity after a three year break. Below you can hear new track "<strong>Septic Testament</strong>". The track was the debut for two new guitarists<strong> Joey Concepcion</strong> (Armageddon) and<strong> Taylor Nordberg</strong> (Ribspreader, Infernaeon).&nbsp;</p><center><center><iframe src="https://bandcamp.com/EmbeddedPlayer/track=3346988876/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" style="border: 0px currentColor; width: 60%; height: 120px;" seamless="">&amp;amp;lt;a href="http://theabsenceofficial.bandcamp.com/track/septic-testament"&amp;amp;gt;Septic Testament by The Absence&amp;amp;lt;/a&amp;amp;gt;</iframe><p></p></center><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

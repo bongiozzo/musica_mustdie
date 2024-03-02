@@ -88,6 +88,61 @@ Grimd (Thomas Arnesen) - Bass
 * C группой "Old Man's Child" Sarke
 * C группой "Tulus" Sarke
 
+## Публикации
+
+### 03.08.2003 news Новости от Moonfog
+
+<p>Лейбл Moonfog заключил контракт с новой группой - DISIPLIN. Говорят, что это проект некого General K, участника группы MYRKSKOG, который покинул группу в 2000 году. "Наша музыка основана на блэк-металле старой школы, смешанным с thrash и death metal." У группы уже есть официальный сайт (www.disiplin.net), а полное интервью с участниками группы можно прочитать на официальном сайте Moonfog (www.moonfog.com).</p>
+<P> Также Moonfog сообщает, что группы DODHEIMSGARD и GEHENNA уже начали запись новых альбомов. KHOLD готовятся к записи, а новая группа DISIPLIN войдет в студию для записи своего дебютного альбома в августе.</p>
+
+Автор: Darkfall
+
+### 29.09.2003 news Новости из студии Moonfog Records
+
+Официальный сайт Moonfog Records сообщает, что новички DISIPLIN закончили запись их одноименного альбома, релиз которого состоится в ноябре этого года. В это же время DODHEIMSGARD, GEHENNA и KHOLD все еще записываются.
+Автор: Darkfall
+
+### 02.02.2004 news Khold записали новый альбом
+
+<P>После прошлогоднего европейского тура в поддержку Satyricon, во время которого был завербован новый басист Grimd, музыканты норвежской блэк-команды Khold заперлись в студии и записали третий номерной диск "M&#248;rke Gravers Kammer". Тексты альбома повествуют о некоем мрачном месте, где души усопших совершают последнюю остановку на пути ко всем чертям. Мертвецы пробуждаются и танцуют под звуки скрипок в ожидании демонов, которые придут и заберут их души. И когда музыка замирает, наступает мертвенная тишина и время обращается в пыль. Мрачная холодная музыка, хаотичное&nbsp;нагромождение быстрых и среднетемповых вещей, собственный уникальный стиль Khold в рамках жанра black metal - вот каков новый альбом. Фотографии для буклета сделал известный норвежский фотограф Marcel Leli&#235;nhof, он же снял для группы видео на песню "D&#248;d". Альбом "M&#248;rke Gravers Kammer" выходит на Candlelight Records 5 апреля 2004 года.</P>
+Автор: Morsus
+
+### 02.02.2004 news Khold have recorded new album
+
+<P>After a Scandinavian and a European tour supporting Satyricon last year, during which they recruited new bassist, Grimd, Khold shut themselves off in the studio and recorded their third cold, groove-laden masterpiece, "M&#248;rke Gravers Kammer". The lyrical concept is about a dark, rocky and primitive kind of chamber, the last stop before souls are taken away. The dead wake up and dance to the sounds of violins while awaiting demons that will collect their souls. When the music stops it's dead quiet and all that`s left is mealy dust. Darkness within art, nature, poems and movies is still what Khold draw inspiration from, making black metal in their own, unique style. "The new album is very dark, cold and heavy," - explains drummer, Sarke of the band's new effort. "It's an eclectic collection of fast and mid-tempo tracks. The songs on this album are strong and the Khold trademark is there all the way. We have our own take on black metal. We offer something different within the genre and that can only be positive."</P>
+<P>Illustrious Norwegian photographer, Marcel Leli&#235;nhof, renowned for his popular culture shots, is the man behind the photographs featuring in "M&#248;rke Gravers Kammer"’s artwork and he has also directed the band’s first ever video for "D&#248;d".</P>
+<P>The album will be released 05 April 2004 through Candlelight Records.</P>
+Автор: Morsus
+
+### 18.01.2005 news Номинанты норвежской Alarm Awards
+
+<P>Определились номинанты в категории "<STRONG>Metal</STRONG>" норвежской премии <B>Alarm Awards</B>, вручение которой состоится в Осло 5 февраля. Это оказались группы <B>SUSPERIA,</B>&nbsp;<B>MAYHEM</B>, <B>ENSLAVED</B>, <B>RED HARVEST</B>&nbsp;и <B>KHOLD</B>. Сделать свой выбор можно по <A href="http://www.alarmweb.org/2005/nyheter/index-05metal.html">этому</A> адресу. Пока лидируют музыканты <STRONG>ENSLAVED</STRONG>.</P>
+Автор: Dimas
+
+### 05.03.2005 reviews В ожидании душ мертвецов
+
+<P>Третье творение злобных норвежских музыкантов. Все тот же примитивный и тягучий black metal, что и на первых двух работах группы. Ничего радикально нового вы не услышите. Сырой звук, минимум мелодий, беспросветность, лирика о смерти и упаднические настроения. Музыка подземелья. Ее хорошо слушать в полном мраке, для полноты ощущений. Очень мрачная и холодная музыка, отображающая собственный уникальный стиль&nbsp;группы в рамках жанра black metal - вот каков&nbsp;этот альбом. Здесь вы не встретите&nbsp;многих атрибутов присущих этому современному стилю. Тем не менее, это именно black metal. Чернее некуда. Альбом является отчасти концептуальным. Действия разворачиваются в&nbsp;мрачной палате, где&nbsp;скапливаются&nbsp;души мертвецов. Это их последнее пристанище&nbsp;на пути в мир иной. В какой-то момент, они пробуждаются и танцуют под звуки скрипок в ожидании демонов, которые придут и заберут их.&nbsp;Вскоре, музыка замирает, наступает&nbsp;убийственная тишина и время обращается в пыль. Сырая, грязноватая, но очень органичная работа, с отголосками первобытного black metal от <STRONG>DARK THRONE</STRONG> и <STRONG>CELTIC FROST</STRONG>, без вредных излишков, способная пронзить сердца&nbsp;многих любителей черной музыки, и впустить туда яд. </P>
+<P>Диск, предоставленный <A href="http://www.irond.ru/">Irond Records</A>, также содержит очень интересный видеоклип на вторую композицию с альбома.</P>
+<P>&nbsp;</P>
+Автор: Dimas
+
+### 26.07.2005 news Новый KHOLD
+
+<P>Новый альбом норвежцев <STRONG>KHOLD</STRONG> будет называться "<STRONG>Krek</STRONG>"&nbsp; и выйдет 10 октября на <STRONG>Tabu Records</STRONG>. </P>
+Автор: Bizarre
+
+### 28.04.2006 news KHOLD - большой отпуск :(
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Норвежские блек металисты <STRONG>KHOLD</STRONG> объявили на своем официальном сайте о временной приостановке деятельности.&nbsp; Как сообщается <STRONG>Sarke</STRONG> и <STRONG>Gard</STRONG> продолжат работу над четвертым альбомом <STRONG>TULUS</STRONG>, а <STRONG>Rinn</STRONG> собирается основать студию. <BR></FONT></P>
+Автор: Bizarre
+
+### 20.05.2008 news KHOLD возвращаются
+
+<P>Норвежцы <STRONG>KHOLD</STRONG> вернулись к жизни и планируют выпустить свой новый альбом <STRONG>"Hundre Er Gammal"</STRONG>&nbsp;9 июня на <STRONG>Tabu Recordings</STRONG>. Трэк-лист:</P>
+<P>01. <B>Der Kulden R&#229;r</B> [Where the Cold reigns]<BR>02. <B>Forrykt</B> [Mad, Cracked] <BR>03. <B>Hundre Er Gammal</B> [Hundred Years Old]<BR>04. <B>Mester Og Trell</B> [Master and Thrall]<BR>05. <B>Trolos</B> [Faithless]<BR>06. <B>Rekviem</B> [Requiem]<BR>07. <B>Sann Ditt Svik</B> [See Your Betrayal]<BR>08. <B>Villfaren</B> [Stray]<BR>09. <B>Bonn</B> [Prayer]<BR>10. <B>Kor</B> [Choir]<BR>11. <B>Straff</B> [Punishment]</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

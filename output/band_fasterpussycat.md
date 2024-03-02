@@ -44,6 +44,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.01.2013 news Вокалист FASTER PUSSYCAT открыл магазин &quot;Facedowne Leatherworks&quot;
+
+<P><STRONG>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25311.jpg" width=650 height=239></STRONG> 
+<P></P>
+<P><STRONG>Taime Downe</STRONG>, вокалист <STRONG>FASTER PUSSYCAT</STRONG>, открыл свою лавку по производству и продаже мотоциклетных аксессуаров из кожи. </P>
+<P>Перчатки, кошельки, мотосумки,&nbsp;а также кое-что из атрибутики <STRONG>FASTER PUSSYCAT</STRONG>, можно найти на сайте: <A href="http://www.facedowne.com/">www.facedowne.com</A></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

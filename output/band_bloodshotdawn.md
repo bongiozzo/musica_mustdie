@@ -8,6 +8,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.10.2014 news Melodic death metal из Англии
+
+<P>Новое видео британской команды <STRONG>BLOODSHOT DAWN</STRONG> на песню "<STRONG>Smoke And Mirrors</STRONG>" можно посмотреть ниже. Трек взят с второго альбома команды "<STRONG>Demons</STRONG>", на выпуск которого группа собрала деньги со своих фэнов. В качестве приглашённых музыкантов в записи альбома приняли участие <STRONG>Sven De Caluwe (ABORTED, SYSTEM DIVIDE), Per Nilsson (SCAR SYMMETRY), Teemu Mantysaari (WINTERSUN), Andy James (SACRED MOTHER TONGUE) </STRONG>и<STRONG> Chris Amott (ARMAGEDDON</STRONG>, ex-<STRONG>ARCH ENEMY).</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/oBapV_1JAeE" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

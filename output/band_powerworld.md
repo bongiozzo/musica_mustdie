@@ -53,6 +53,31 @@
 * C группой "Gamma Ray" Nils Neumann (keyboards)
 * C группой "Victory" Achim Keller (drums)
 
+## Публикации
+
+### 24.06.2011 news POWERWORLD поменяли вокалиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=381 alt="" hspace=0 src="/images/news_rus/2011.06/19712.jpg" width=300 align=right border=0>Новым певцом <STRONG>POWERWORLD</STRONG> стал <STRONG>Michael Bormann (ex-BLOODBOUND), </STRONG>он заменил <STRONG>Andrew "Mac"McDermott</STRONG> (<B>SARGANT FURY</B>, <B>THRESHOLD</B>), у которого обнаружились серьёзные проблемы со здоровьем. Теперь состав prog-metal коллектива выглядит так:</FONT></P>
+<P>* <B>Michael Bormann</B> - Vocals<BR>* <B>Barish Kepic</B> (JADED HEART) - Guitar<BR>* <B>Ilker Ersin</B> (FREEDOM CALL, MOON'DOC) - Bass<BR>* <B>Nils Neumann</B> (FREEDOM CALL) - Keyboards<BR>* <B>Achim Keller</B> (VICTORY) - Drums</P>
+Автор: Vit Belov
+
+### 07.08.2011 news Умер бывший вокалист THRESHOLD
+
+<P><STRONG>Andrew "Mac" McDermott</STRONG>, бывший вокалист <STRONG>THRESHOLD</STRONG> и <STRONG>POWERWORLD, </STRONG>скончался в Англии 3 августа. В последнее время музыкант имел серьёзные проблемы со здоровьем, из-за которых он и покинул <STRONG>POWERWORLD</STRONG>. </P>
+<P><STRONG>McDermott </STRONG>заменял<STRONG> в THRESHOLD Damian Wilson </STRONG>с 1998 по 2007 год.</P>
+<P>Оставить свои соболезнования можно здесь: <A href="http://rememberingandrewmacmcdermott.webs.com/">http://rememberingandrewmacmcdermott.webs.com/</A></P>
+<P><center><IMG height=356 src="/images/news_rus/2011.08/20462.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 11.10.2012 news David Reece присоединился к POWERWORLD
+
+<P>Новым постоянным участником power-prog команды <STRONG>POWERWORLD</STRONG> стал бывший&nbsp;вокалист<STRONG> ACCEPT David Reece</STRONG>. Он заменил ушедшего из жизни год назад <STRONG>Andrew "Mac" McDermott. </STRONG></P>
+<P><FONT color=#ffffff>Новый альбом коллектива выйдет в начале 2013 года. 
+<CENTER><IMG border=0 src="/images/news_rus/2012.10/24922.jpg" width=250 height=375></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

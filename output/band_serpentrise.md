@@ -19,6 +19,21 @@ During the eternity
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.08.2000 reviews Утопический death-doom-metal
+
+<p>Утопический death-doom-metal. И снова бразильцы... Просто мания у них там какая-то. Медленный, безумно грузящий и тяжелый. Довольно затянутый получился альбом. Для любителей апокалиптического death-doom-metal типа Winter или Esoteric. Хотя, может я и немного загнул. Serpent Rise играют чуть более живую музыку и более разнообразно. Но признаки отмороженности налицо. Накаченные тяжелые риффы просто зависают в воздухе. Однако встречаются и довольно резвые, но недолгие гитарные взрывы. Неплохая атмосфера. Но в целом, альбом производит среднее впечатление, хотя по качеству, оформлению и работе музыкантов превосходит средний уровень. Только для любителей депрессивной тяжелой и грузящей музыки.</p>
+
+Автор: Dimas
+
+### 15.08.2000 reviews Utopian death-doom-metal
+
+<p>Utopian death-doom-metal. And again Brazilians... Simply mania for them there any. Sluggish, madly landing and high-gravity. Pleased delayed the album has received. For the fans apocalyptical death-doom-metal such as Winter or Esoteric. Though, I can and has bent a little. Serpent Rise play hardly more alive music and is more miscellaneous. But tags freezing available. Hardly high-gravity rhythms simplly hang in air. However meet also rather wanton, but short guitar explosions. Quite good atmosphere. But as a whole, the album makes a mean impression, though on quality, design and activity of the musicians surpasses an average level. Only for the fans of depressive high-gravity and landing music.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

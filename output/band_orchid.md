@@ -53,6 +53,111 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2012 news ORCHID на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Nuclear Blast</STRONG>&nbsp;заключил контракт с командой <STRONG>ORCHID</STRONG>. Группа родом из Сан-Франциско и проповедует традиционный дум в духе ранних альбомов <STRONG>BLACK SABBATH</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На счету <STRONG>ORCHID</STRONG> уже есть&nbsp;два отличных релиза: миньон 2009 года<STRONG> "Through The Devil's Doorway"</STRONG> и полноформатник <STRONG>"Capricorn"</STRONG>, выпущенный тремя годами позже. Оба релиза увидели свет на немецком лебле <STRONG>The Church Within</STRONG>. Заказать их можно по ссылке: </FONT><A href="http://shop.doom-dealer.de/sites/ger/catalog.php?cat=search&startat=0&artnbr=1427&lang=en&searchstr=orchid&show_bestrec=0&rab_id=0#det1427">http://shop.doom-dealer.de</A></P>
+<P>Ознакомиться&nbsp;с музыкой группы можно здесь: <A href="http://orchid.bandcamp.com/">http://orchid.bandcamp.com</A> 
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.07/24433.jpg" width=560 height=412></CENTER>
+Автор: Headcrusher
+
+### 16.08.2012 news ORCHID: новый EP под названием &quot;Heretic&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Недавно заключившая контракт с&nbsp;лейблом&nbsp;<STRONG>Nuclear Blast</STRONG> группа <STRONG>ORCHID</STRONG>, выпускает EP, получивший название <STRONG>"Heretic"</STRONG>. На диск войдёт 3 новых песни и 1 перезаписанная с дебютного альбома <STRONG>"Capricorn"</STRONG>. Дата выпуска запланированна на 7 сентября. Титульный трек можно послушать в проигрывателе ниже.</FONT></P><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F56169396&show_artwork=true" frameBorder=no width="100%" scrolling=no></IFRAME>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Heretic</STRONG><BR>02. <STRONG>Falling Away<BR></STRONG>03. <STRONG>Saviours Of The Blind<BR></STRONG>04. <STRONG>He Who Walks Alone</STRONG></P>
+Автор: Headcrusher
+
+### 21.01.2013 news ORCHID: 10&quot; сингл &quot;Wizard Of War&quot; в феврале
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25342.jpg" width=500 height=500>Американские думстеры <STRONG>ORCHID</STRONG> выпустят новый 10" сингл 22 февраля на лейбле<STRONG> Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сингл, получивший название<STRONG> "</STRONG><FONT color=#ddd9d0><STRONG>Wizard Of War"</STRONG>, увидит свет на светло-зелёном, чёрном и&nbsp;пурпурном винилах.&nbsp;&nbsp;Винил каждого цвета будет отпечатан в количестве 250 штук.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><FONT color=#ddd9d0>Обложку нарисовал вокалист группы <STRONG>Theo Mindell</STRONG>.</FONT><BR></P></FONT>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Содержание</U>:</FONT></P>
+<P>Сторона&nbsp;A:<BR>01. <STRONG>Wizard Of War<BR></STRONG>02. <STRONG>Demon’s Eye</STRONG></P>
+<P>Сторона B:<BR>01. <STRONG>Albatross</STRONG></P>
+Автор: Headcrusher
+
+### 12.02.2013 news ORCHID: обложка второго полноформатника &quot;The Mouths Of Madness&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Санфранциские думстеры <STRONG>ORCHID</STRONG> опубликовали обложку своего второго полноформатника <STRONG>"The Mouths Of Madness"</STRONG>, который выходит 26 апреля на <STRONG>Nuclear Blast</STRONG>. Как&nbsp;и для сингла <STRONG>"Wizard Of War"</STRONG>, так и для целого альбома, рисунок для обложки (его можно увидеть ниже)&nbsp;выполнил <STRONG>Theo Mindell</STRONG>, вокалист коллектива.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Послушать&nbsp;трек&nbsp;<STRONG>"Wizard Of War"</STRONG>,&nbsp;можно пройдя по ссылке: <A href="http://youtu.be/K0nFQxXmmx4">http://youtu.be/K0nFQxXmmx4</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25425.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 24.04.2013 news ORCHID: стриминг альбома ORCHID &quot;The Mouths Of Madness&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.04/25641.jpg" width=300 height=300>На сайте английского <STRONG>Metal Hammer</STRONG> можно целиком прослушать второй полноформатник американской формации <STRONG>ORCHID</STRONG>. Группа искусно использует наследие <STRONG>BLACK SABBATH</STRONG> и некоторых других коллективов начала 70-х.</P>
+<P><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000">На физическом носителе альбом&nbsp;<STRONG>"The Mouths Of Madness"</STRONG> появится 26 апреля на лейбле&nbsp;<STRONG>Nuclear Blast</STRONG>.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Прямая ссылка&nbsp;для ознакомления с альбомом:&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.metalhammer.co.uk/news/orchid-exclusive-album-stream-the-mouths-of-madness/">www.metalhammer.co.uk</A></FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 14.05.2013 news ORCHID: клип &quot;Wizard Of War&quot;
+
+<P>Американцы <STRONG>ORCHID</STRONG>, представили свой клип на песню <STRONG>"Wizard Of War" </STRONG>с альбома <STRONG>"The Mouths Of Madness"</STRONG>. Этот диск вышел 26 апреля на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/VA_Q8ci7bag" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.08.2013 news Blues rock на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26069.jpg" width=660 height=211></FONT> 
+<P></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Nuclear Blast</STRONG> продолжает&nbsp;собирать под&nbsp;своё&nbsp;крыло коллективы, звучание которых носит&nbsp;явную ностальгию по 70-м годам. Вот имена нескольких подобных групп&nbsp;уже&nbsp;нашедших пристанище на некогда одном из самых бескомпромиссных европейском лейбле: <STRONG>ORCHID</STRONG>, <STRONG>GRAVEYEARD</STRONG>, <STRONG>SCORPION CHILD</STRONG>, <STRONG>WITCHCRAFT</STRONG>,<STRONG> FREE FALL</STRONG> и <STRONG>KADAVAR</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На этот раз их новым питомцем стал молодой шведский коллектив <STRONG>BLUES PILLS</STRONG>. Группа, как не трудно догадаться, исполняет blues rock. И является самым легковесным коллективом из всех вышеперечисленных.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На счету <STRONG>BLUES PILLS</STRONG> всего один миньон<STRONG> "Bliss"</STRONG>, выпущенный&nbsp;в мае прошлого года&nbsp;на небольшом лейбле под названием <STRONG>Crusher</STRONG>.</FONT></P>
+<P>Концертное видео, снятое во время выступления в Гётеборге (Швеция, январь 2013): <A href="http://youtu.be/B6ZQtk2kU-Y">http://youtu.be/B6ZQtk2kU-Y</A></P>
+<P>Концертное видео, снятое во время выступление на фестивале в Португалии (2012 г.): <A href="http://youtu.be/xOomz-QZx7o">http://youtu.be/xOomz-QZx7o</A></P>
+<P>Официальный сайт: <A href="http://www.bluespills.com/">http://www.bluespills.com</A><BR>Facebook: <A href="http://www.facebook.com/bluespills">http://www.facebook.com/bluespills</A><BR>Youtube: <A href="http://www.youtube.com/user/BluesPills">http://www.youtube.com/user/BluesPills</A><BR>Twitter: <A href="http://twitter.com/BluesPills">http://twitter.com/BluesPills</A> </P></CENTER>
+Автор: Headcrusher
+
+### 24.09.2013 news Nuclear Blast переиздаёт два первых релиза ORCHID
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Nuclear Blast</STRONG> переиздаёт два первых релиза группы <STRONG>ORCHID</STRONG> из Сан-Франциско. Это дебютный миньон 2009 года <STRONG>"</STRONG><FONT color=#ddd9d0><STRONG>Through The Devil’s Doorway"</STRONG> и следующий за ним полноформатник <STRONG>"Capricorn" </STRONG>(2011), которые первоначально вышли на значке <STRONG>The Church Within</STRONG>. Оба диска будут выпущены на двойном дигипаке, озаглавленном</FONT></FONT>&nbsp;<STRONG>"The Zodiac Sessions"</STRONG>.&nbsp;Дата выхода: 18&nbsp;ноября 2013 г.</P>
+<P>Оба релиза прошли ремастеринг, а обложку выполнил <STRONG>Theo Mindell</STRONG>,&nbsp;вокалист <STRONG>ORCHID</STRONG>.</P>
+<P>Также в планах <STRONG>Nuclear Blast</STRONG> переиздание этих релизов в формате винила, но уже по отдельности. Как обычно, ждём большую цветовую гамму.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.09/26196.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 16.10.2013 news ORCHID: клип &quot;Mouths Of Madness&quot;
+
+<P>Новое видео калифорнийского дум-квартета <STRONG>ORCHID</STRONG> на трек <STRONG>"Mouths Of Madness"</STRONG> можно посмотреть ниже.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/UvtAMFhbuRA?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 16.02.2015 news ORCHID выпускает новый EP в мае
+
+<P>Сан-францисская банда <STRONG>ORCHID</STRONG>, исполняющая традиционный doom metal, готовит к выпуску новый EP под названием <STRONG>"Sign Of The Witch"</STRONG>. Это миньон станет уже четвёртым на счету группы и выйдет 22 мая на <STRONG>Nuclear Blast</STRONG>. На него войдут четыре абсолютно новые композиции.</P>
+<P>Предзаказ доступен по ссылке: <A href="http://www.nuclearblast.de/en/label/music/band/shop/1123090.orchid.html">www.nuclearblast.de/en/label/music/band/shop/1123090.orchid.html</A></P>
+<P>Трек-лист: </P>
+<P>01.<STRONG> Sign Of The Witch</STRONG> |02. <STRONG>John The Tiger</STRONG>&nbsp;| 03. <STRONG>On Strange Winds</STRONG> | 04. <STRONG>Burning Eastern Skies</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.02/27649.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 25.05.2015 news ORCHID: новые дата выхода и обложка мини-альбома &quot;Sign Of The Witch&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>ORCHID</STRONG> отодвинула выпуск своего мини-альбома <STRONG>"Sign Of The Witch"</STRONG> с 22 мая на июль месяц и поменяла обложку.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На диск войдут 4 новых трека. Сделать предварительный заказ на альбом во всевозможных его вариациях, можно по ссылке: <A href="http://nblast.de/ORCHIDmadness">http://nblast.de/ORCHIDmadness</A></FONT></P>
+<P>Трек-лист: </P>
+<P>01.<STRONG> Sign Of The Witch</STRONG> |02. <STRONG>John The Tiger</STRONG>&nbsp;| 03. <STRONG>On Strange Winds</STRONG> | 04. <STRONG>Burning Eastern Skies</STRONG></P>
+<P>Новую обложку можно увидеть ниже <EM>(у кого-нибудь есть стерео-очки?).</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.05/28041.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

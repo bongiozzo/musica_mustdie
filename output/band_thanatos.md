@@ -97,6 +97,86 @@ Bonustracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.11.1999 news 
+
+<p>Thanatos выпустят новый альбом в апреле-мае будущего года, а до конца года будут переизданы два ранних альбома группы вместе с бонусами.</p>
+
+Автор: Vit Belov
+
+### 02.10.2000 news Thanatos возвращаются.
+
+<p> Thanatos закончили запись своего нового альбома "Angelic Encounters", он поставлен в план выпуска Hammerheart Records на 23 октября.</p>
+
+Автор: Morsus
+
+### 02.10.2000 news Thanatos come back.
+
+<p> Thanatos has finished the recordings of their new album "Angelic Encounters" which is set for release October 23rd on Hammerheart Records.</p>
+
+Автор: Morsus
+
+### 07.02.2001 reviews Очередное возвращение из небытия
+
+<p>Очередное возвращение из небытия. Отретушировав заново все свои записи с демо-лент 1986-1987 годов, когда материал этой голландской группы представлял собой зачатки сырого злобного death-metal, и выпустив их в виде альбома, группа решила: а почему бы не записать и новеньких вещей, раз уж предоставилась такая возможность. И тут же зарулила в студию, где в сжатые сроки записала этот альбом. Классический death-metal на стыке Pestilence и Sinister. Предельно ровный, весомо тяжелый и довольно техничный. Группа стоявшая у истоков смертельной разновидности металла уверенно вернулась в высшую лигу. Основные компоненты музыки Thanatos - скорость и тяжесть. Интересный альбом, подтверждающий, что death вовсе не dead. Под занавес лихая кавер-версия Massacre "Corpse Grinder".</p>
+
+Автор: Dimas
+
+### 07.02.2001 reviews The next returning from r.i.p.
+
+<p>The next returning from r.i.p. Having retouched anew all records from demo 1986-1987 years, when the stuff of this Dutch group represented germs crude bitter death-metal, and having issued them by the way of album, the group has decided: and why to not record new things, of time such capability was granted. And here has taxied in in studio, where in the shortest possible time has recorded this album. Classic death-metal on the joint Pestilence and Sinister. Extreme equal, powerfully high-gravity and it is pleased technical. The group facing for sources of fatal type of metal confidently has returned to maximum league. Principal components of music Thanatos - speed and gravity. An interesting album verifying, that death at all dead. Under end the valiant cover-version Massacre " Corpse Grinder ".</p>
+
+Автор: Dimas
+
+### 18.03.2003 reviews Дэт. Просто дэт.
+
+<p>Дэт. Просто дэт. Местами – интересный. Местами – не очень. Качественно сыгранный и качественно записанный. Кое-где изрядно приблэкованный. Кое-где попахивающий наследием MORBID ANGEL. Своя фишка у группы имеется. Вывод: достойный альбом достойной команды. <BR> P.S. Краткость – сестра таланта.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.03.2004 news THANATOS выпускают новый альбом
+
+<P>THANATOS назначили датой релиза для своего нового альбома <B>"Undead. Unholy. Divine" </B>12 июня на Black Lotus. Альбом был записан с <B>Hans Pieters</B>&nbsp;в студии <B>Excess</B> studios. Микшировал запись <B>Attie Bauw</B> (<B>JUDAS PRIEST</B>, <B>SCORPIONS</B>, <B>GOREFEST</B>). Некоторые названия песен: <B>"Lambs To The Slaughter"</B>, <B>"The Sign Of Sadako"</B>,&nbsp;и <B>"Born To Suffer"</B>. Гостевое участие в записи&nbsp;приняли <B>Ashmedi</B> (<B>MELECHESH</B>) and <B>Ed Warby</B> (<B>STAR ONE</B>, <B>AYREON</B>, ex-<B>GOREFEST</B>).</P>
+Автор: Vit Belov
+
+### 13.01.2005 reviews Ветераны голландского дэта наносят мощный удар
+
+<SPAN lang=RU><SPAN style="COLOR: #ffffff">
+<P><SPAN lang=RU>Оказалось, что незнакомая мне ранее группа </SPAN>Thanatos <SPAN lang=RU>является ветераном голландской дэт-сцены и за ее плечами уже 20 лет. Что же нам предлагает сей квартет? А ничего, кроме 40 минут бескомпромиссного дэта, не гнушаясь при этом олдтрэшевыми риффами и легкими заходами в дум-дэт. Песни большей частью среднетемповые, и никакого тупого молотилова тут нет. </SPAN>Thanatos<SPAN lang=RU> ведут свой паровоз неспеша, но точно к цели. Порекомендую сей релиз любителям старой школы&nbsp; дэт-метала, как голландского, так и американского. Ну а тем, кто тяготеет к бруталу, </SPAN>“Undead. Unholy. Divine”<SPAN lang=RU> может показаться слишком медленной, не очень зверской и излишне мелодичной пластинкой.</SPAN></P>
+<P><SPAN lang=RU>Альбом предоставлен компанией "СД-Максимум"</SPAN></P></SPAN></SPAN>
+Автор: Ixtiandr
+
+### 11.07.2005 news Планы THANATOS
+
+<P><STRONG>THANATOS</STRONG> готовят переиздание своего альбома 1992 года "<STRONG>And Jesus Wept</STRONG>". Группа уже записала два бонус-трэка к этому изданию.</P>
+<P>К сожалению, коллектив был вынужден перенести запись новой работы на 2006 год, из-за воспаления нервных окончаний у гитариста/вокалиста <STRONG>Stephan Gebedy</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.01.2007 news ASPHYX возвращаются
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Легендарные голландцы <STRONG>ASPHYX</STRONG> возвращаются в таком составе: <STRONG>Martin van Drunen</STRONG> (vocals), <STRONG>Bob Bagchus</STRONG>&nbsp;(drums),&nbsp;<STRONG>Wannes Gubbels</STRONG>&nbsp;(bass). В роли гитариста выступит участник <STRONG>THANATOS Paul Baayens</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме прочего, вокалист <STRONG>ASPHYX</STRONG> примет участие в новой супер-группе. В составе, кроме него, оба гитариста<STRONG> THANATOS</STRONG>, барабанщик <STRONG>GOREFEST Ed Warby</STRONG> и бывший басист <STRONG>HOUWITSER Theo van Eekelen</STRONG>. Группа пока не имеет названия.</FONT></P>
+Автор: Vit Belov
+
+### 07.02.2009 news Новый альбом THANATOS
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.02/13575.jpg" width=400 align=right border=5>Новый альбом<STRONG> THANATOS</STRONG> <STRONG>"Justified Genocide" </STRONG>выходит 15 марта на <STRONG>Deity Down Records. </STRONG>Трэк-лист:</P>
+<P>01. <B>They Feed On Fear</B><BR>02. <B>Destruction.Chaos.Creation</B><BR>03. <B>The Devil’s Triangle</B><BR>04. <B>March Of The Infidels</B><BR>05. <B>Justified Genocide</B><BR>06. <B>The Netherworld</B><BR>07. <B>Dawn Of Eternity</B> (MASSACRE cover)<BR>08. <B>Apostles Of Damnation</B><BR>09. <B>Upwards Spiritual Evolution</B><BR>10. <B>And Jesus Wept</B> (Bonus) *<BR>11. <B>The Burning Of Sodom</B> (Bonus; DARK ANGEL cover) *<BR>* Taken from the 2006 7" EP on <B>Konqueror Records</B></P>
+Автор: Vit Belov
+
+### 27.07.2013 news HAIL OF BULLETS закончили запись третьего альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Датская death metal бригада&nbsp;<STRONG>HAIL OF BULLETS</STRONG>, в которую входят участники <STRONG>ASPHYX</STRONG>, <STRONG>GOREFEST</STRONG>&nbsp;и&nbsp;<STRONG>THANATOS</STRONG>, закончила запись своего третьего, пока безымянного, альбома. Сведением и мастерингом занимался <STRONG>Dan</STRONG> <STRONG>Swan&#246;</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выход диска планируется на октябрь - ноябрь этого года на <STRONG>Metal Blade</STRONG>.</FONT></P>
+<P><A href="http://www.reverbnation.com/hailofbullets">www.reverbnation.com/hailofbullets</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.07/25944.jpg" width=650 height=364> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

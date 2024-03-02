@@ -27,6 +27,15 @@ Derek Ward - Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.04.2005 news Дебют THINE EYES BLEED отложен
+
+<P>Отложен выход дебютного альбома канадской melodic death metal группы <STRONG>THINE EYES BLEED</STRONG> под названием&nbsp;<STRONG>"In The Wake Of Separation". </STRONG>В рядах этого коллектива бывший гитарист <B>KITTIE</B> <B>Jeff Phillips</B> и басист <STRONG>John Araya,</STRONG> являющийся братом <STRONG>Tom Araya</STRONG>. Первоначально, выход альбома был назначен на 26 апреля на <STRONG>The End Records,</STRONG> но теперь, перенесен на 21 июня. Трек-лист альбома:</P>
+<P><STRONG><IMG height=190 alt="" hspace=50 src="/images/news_rus/2005.04/8326.jpg" width=190 align=right border=0>1. Cold Victim 03:58 (<A href="/samples/t/thine_eyes_bleed/2005_1529.mp3">mp3</A>)<BR>2. Without Warning 03:22 <BR>3. And Since Forgotten 03:46 <BR>4. Live To Die 04:38 <BR>5. Corpse You Up 04:16 <BR>6. Innocent Mind 03:05 <BR>7. Silver 03:39 <BR>8. Consqeuence Unknown 03:40 <BR>9. Regret Your Fear 05:55</STRONG> <BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

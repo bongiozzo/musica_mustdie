@@ -37,6 +37,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.09.2011 news Второй альбом AWAKE
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.09/20918.jpg" width=200 align=right border=0>Британская prog-metal группа <STRONG>AWAKE</STRONG> выпускает свой второй альбом "<STRONG>Forever More</STRONG>" 14 октября на <STRONG>Lion Music</STRONG>. Трейлер альбома можно посмотреть ниже. Трек-лист:</P>
+<P>01. <STRONG>Intro - Into The Storm</STRONG><BR>02. <STRONG>Out Of Control</STRONG><BR>03. <STRONG>Release Me<BR></STRONG>04. <STRONG>Drift Away</STRONG> <BR>05. <STRONG>Taken<BR></STRONG>06. <STRONG>Closing The Doors</STRONG><BR>07. <STRONG>Bleed From You</STRONG><BR>08. <STRONG>For The Moment</STRONG><BR>09. <STRONG>Hold On<BR></STRONG>10. <STRONG>One Wish<BR></STRONG>11. <STRONG>King<BR></STRONG>12. <STRONG>Forever More</STRONG></P>
+<P>Состав коллектива:</P>
+<P><STRONG>Simon Shedwell</STRONG> – Lead and Backing vocals<BR><STRONG>Andy Coles</STRONG> – Lead and rhythm guitars, backing vocals<BR><STRONG>Steven Coles</STRONG>- Lead and rhythm guitars<BR><STRONG>Chris Le Mottee</STRONG> – Bass guitar<BR><STRONG>Craig Burkitt</STRONG> – Keyboards and Piano<BR><STRONG>Alex Townsend</STRONG> – Drums and Percussion</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/awakeuk">www.myspace.com/awakeuk</A></P>
+<P>
+<CENTER><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/Yg3i385G_aQ?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/Yg3i385G_aQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

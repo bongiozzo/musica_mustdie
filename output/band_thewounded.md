@@ -62,6 +62,70 @@ Atlantic
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2002 reviews Раненные в душу
+
+<p>В настоящее время фирмой Irond по лицензии CBI Productions вышел старый альбом этого коллектива. У меня же появилась возможность послушать новейшее их творение, вышедшее в Европе несколько дней назад. В общем и целом практически ничего не изменилось. Качественный gothic-metal в духе общего направления, возникшего в последенее время. Грустные, безысходные мелодии... Всё исполнено профессионально... Радует, что это скорее похоже на Anathema ('98-'00), чем на To/Die/For. Хотелось бы отметить вокалиста, который поёт с таким надрывом, что начинаешь поневоле сопереживать и проникаешься его настроением. Но есть один большой минус, который относится ко многим коллективам данного направления. Когда выходил Anathema "Alternative 4" &ndash; это звучало свежо, сейчас же The Wounded скорее всего затеряются в общей массе. Только для больших фанатов стиля, хотя и очень качественная работа.</p>
+
+Автор: Vit Belov
+
+### 29.03.2002 reviews Wounded in soul.
+
+<p>Now Irond under the license of CBI Productions released an old album of this collective. At me the opportunity has appeared to listen to their newest creation which has left in Europe a some days back. In general and whole practically nothing has changed. Qualitative gothic-metal in spirit of the general direction which has arisen in last time. Sad, hopeless melodies... everything is perfomanced professionally... Pleases, that it is faster similar on Anathema ('98-' 00), than on To/Die/For. It would be desirable to note of vocalist, which sings with such anguish, that begin necessarily to empathize and are penetrated by his mood... There is one large minus, which concerns to many collectives of the given direction. When Anathema " Alternative 4 " had released its sound was fresh, now The Wounded most likely will get lost in general weight. Only for the large fans of style, is very qualitative....</p>
+
+Автор: Vit Belov
+
+### 10.06.2002 news The Wounded нашли нового барабанщика...
+
+<p>The Wounded нашли нового барабанщика. Им стал Элвин Шоинг. Группа сыграет на Eurorock фестивале в Бельгии....</p>
+
+Автор: Yermola
+
+### 10.06.2002 news The Wounded have found a new drummer .....
+
+<p>The Wounded have found a new drummer in the person of Alwin Schnoing. Like in 2001, the band will play on the 2002 edition of the Eurorock - festival in Belgium.</p>
+
+Автор: Yermola
+
+### 15.11.2002 news Cold Blood Industries News
+
+<p>CBI have announced 2 new signings. There are death-black-thrash mix KATAFALK and CRUSTACHEAN (Dutch thrashers). Their albums will be released in early 2003. Here is tourdates from this label: <BR> I.N.R.I. <BR> november 15 De Klos, Emmeloord NL <BR> november 17 013, Tilburg NL (+ Katafalk & Monastery) <BR> november 23 Babylon Woerden NL <BR> december 13 MetalFront, Coevorden NL (+ Katafalk & Monastery) <BR> december 19 Podium, Hardenberg ( + EXODUS & Dead Head)</p>
+<P> The Wounded <BR> november 8 Baroeg, Rotterdam NL (+ Agathodaimon (Dld) & Serenade of Darkness) <BR> november 16 The Event, Geel Belgium <BR> november 9 So What, Ede NL <BR> november 29 De Kelder, Amersfoort NL</>
+<P> Dead Head <BR> december 19 Podium, Hardenberg ( + EXODUS & INRI)</>
+<P> To Elysium <BR> december 7 Broerenkerk, Zwolle NL (+Novemberrain, After Forever, Autumn and Penumbra)</>
+<P> Katafalk <BR> 17 november 013, Tilburg NL (+ INRI & Monastery) <BR> november 23 Blanco, Emmen NL ( + Cantara & Dark Mythology) <BR> december 13 Metalfront, Coevorden NL (+ INRI & Monastery)</>
+
+Автор: Vit Belov
+
+### 06.04.2003 news To Elysium and The Wounded record new album for Cold Blood Industries
+
+<p>Atmospheric Metallers To Elysium are currently recording their new studioalbum at Franky's Recording Kitchen, Holland. The working title of the album is " Nightmare's Nest ". Watch out for an early Fall release…</p>
+<p>Gothic Rockband The Wounded will be recording their new album this Spring, also at Franky's recording Kitchen. Working title: Atlantic. Watch out for an early Fall release…</p>
+
+Автор: Vit Belov
+
+### 06.10.2003 news Новости от THE WOUNDED
+
+<P>Финские готик-металлеры <B>THE WOUNDED </B>завершили работу над своим новым творением, получившим название&nbsp;<B>"Atlantic". </B>Его выход ожидается в январе 2004 года через <B>Cold Blood Industries</B>.</P>
+Автор: Dimas
+
+### 07.11.2003 news The WOUNDED - local shows
+
+<P align="left">25 Oct Het Arsenaal, Vlissingen NL (Terra Gotha VI)</P>
+<P align="left"><SPAN class=EmailStijl52>22 Nov Shadow Of Eden Festival, De Hoogte NL</SPAN></P>
+<P align="left"><SPAN class=EmailStijl52>6 Dec De Harmonie, Leeuwarden NL (Gothtronic)</SPAN></P>
+Автор: Vit Belov
+
+### 30.08.2005 reviews Грамотная копия ANATHEMA
+
+<P>Третий альбом голландской gothic-rock команды, осваивающей творчество <STRONG>ANATHEMA </STRONG>на свой лад. Делают ребята это настолько незамысловато, что порой становится не по себе. Всегда не очень приятно, когда штампуют то, что когда-то было шедевром. Особенно если это шедевр "вывертывающей душу" музыки, какими были альбомы <STRONG>ANATHEMA</STRONG> "<STRONG>Alternative 4</STRONG>" и "<STRONG>Judgement</STRONG>". Сразу задаёшься вопросом, а искренен ли копирующий. Ведь, например, вокалист <STRONG>THE WOUNDED</STRONG> настолько старательно копирует истерически безнадёжные нотки Кавенага, что тут попахивает лицедейством.</P>
+<P>Но вернёмся к музыке... Если отбросить все аналогии и посторонние рассуждения, станет&nbsp;легче. "<STRONG>Atlantic</STRONG>" может зацепить неопытного меломана, ведь все лучшие качества безнадёжного и суицидального gothic-rock&nbsp;переданы умело. Есть даже несколько отличных вещей... "<STRONG>Day Of Joy</STRONG>" так похожа на <STRONG>ANATHEMA</STRONG>, что даже начинает нравиться... Или кавер на "<STRONG>Smell Like Teen Spirit</STRONG>", знаменитая песня <STRONG>NIRVANA</STRONG> полностью потеряла энергетику, но наполнилась грустным настроением, которого достаточно и в оригинале.</P>
+<P><STRONG>THE WOUNDED</STRONG> - неплохие музыканты, неплохие клонировщики, их наверное прикольно слушать где-нибудь в маленьком клубе в Голландии, но, как музыку с собственным лицом, рассматривать альбом нельзя.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

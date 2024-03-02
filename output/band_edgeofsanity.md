@@ -216,6 +216,359 @@ Produced By Rony Lahti and dge Of Sanity
 * C группой "Ribspreader" Rogga Johansson
 * C группой "Witherscape" 
 
+## Публикации
+
+### 12.04.1999 news 
+
+<p>Новости от Дэна Свано. Этот великолепный музыкант сыграет все партии барабанов на новом альбоме Katatonia. Также он работает над альбомом Edge Of Sanity, посвящённом десятилетию группы. На этом альбоме будут тонны неизданного материала, разнообразные ремиксы и демо-версии, а также одна песня, где вместе споют Дэн и новый вокалист группы Роберт. Дэн подумывает над своим новым сольником, это будет нечто наподобие альбома Edge Of Sanity "Crimson" - один гигантский трэк. Как уже сообщалось, ожил проект Дэна Nightingale. Для нового альбома "I" записано 10 композиций. На альбоме все инструменты будут живые, и он выйдет приблизительно осенью. Это только широкоизвестные проекты Дэна, если обо всех писать, я состарюсь. Также намечаются оживления таких групп Дэна или Свано-пародюсера, как Steel, Bloodbath, Odyssey, Infestdead и Unicorn.</p>
+
+Автор: Vit Belov
+
+### 14.01.2002 reviews 40 минут нирваны
+
+<p>Весьма оригинально. На альбоме одна песня. Зато на 40 минут. На целых 40 минут можно погрузиться в нирвану, забыв обо всём на свете, и просто наслаждаться настоящим melodic death metal'ом. Вопреки моим ожиданиям, песня не надоедает после первых 10 минут. Это произведение искусства - единое целое, и его ни в коем случае нельзя перематывать или останавливать! Прекрасный глубокий гроулинг сменяется страдальческим чистым вокалом, скоростные гитарные запилы - меланхоличными переборами, дет - думом.. так создаётся АТМОСФЕРА. Нет слов, одни эмоции! Безусловно, в этом альбоме выражен весь талант (или ещё не весь??) Дэна Свано. Даже не хочу описывать ЭТО - лучше купите и послушайте. Однозначный must have не только любителям шведского дета, но и просто всем ценителям классной музыки.</p>
+
+Автор: SuddenHead
+
+### 10.04.2003 news Воссоединение EDGE OF SANITY
+
+<p>Шведская группа EDGE OF SANITY объявила о воссоединении с талантливейшим музыкантом, продюссером и сочинителем Dan Swano. Новый альбом группы "Crimson II" должен выйти 26 августа 2003 года на Black Mark Records. Он будет выполнен в эпическом духе и будет состоять, как и первая часть, всего из одной вещи. Это будет умопомрачительная и мощная смесь влияний от EDGE OF SANITY, PAN THY MONIUM, GODSEND, KARABOUDJAN, DIABOLICAL MASQUERADE, ODYSSEY и возможно использование некоторых пассажей в духе раннего NIGHTINGALE. Никто не будет разочарован, ибо авторы на полном серьезе обещают самый грандиозный и самый лучший альбом группы. Остается только ждать августа...</p>
+
+Автор: Dimas
+
+### 14.04.2003 news Еще немного об EDGE OF SANITY
+
+<p>Dan Swano подтвердил, что 26 августа на Black Mark Records выйдет новый альбом EDGE OF SANITY под названием "Crimson II". Причем сделает это Dan без остальных участников группы. "Они выпустили альбом без меня, так почему мне бы не выпустить альбом без них?" - говорит Dan. Dan запишет для альбома партии ударных, чистого вокала, баса и ритм-гитары. Партии лидер-гитары будет записывать новое шведское дарование Mattias Eklundh (FREAK KITCHEN). А партии гроулинг-вокала запишет некий Roger из малоизвестной группы PAGANIZER.</p>
+
+Автор: Dimas
+
+### 08.08.2003 news &quot;Crimson II&quot; на подходе
+
+<p><IMG SRC="/images/news_rus/2003.08/4687.jpg" ALT="pho" width=170 height=170 hspace="15" vspace="5" border="1" align="left">Напомню, что 26 августа на Black Mark Records выходит новый альбом EDGE OF SANITY "Crimson II". Уже сейчас <A HREF="http://musica.mustdie.ru/samples/e/edge_of_sanity/2003_843.mp3">на нашем сайте </A>можно послушать кусочек единственной композиции с альбома.</p>
+
+Автор: Dimas
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 31.12.2003 news Dan Swano открывает свой личный сайт
+
+<B>Dan Swan&ouml;</B> (<B>EDGE OF SANITY</B>, <B>NIGHTINGALE</B>, <B>MOONTOWER</B>) открывает 1 января 2004 года свой новый личный сайт. По адресу <A href="http://www.swano.com/">www.swano.com</A> можно будет скачать MP3, видео, посмотреть фотографии и ещё много всего. Первым 100 посетителям после открытия сайта <B>Swan&ouml;</B> предоставит возможность выиграть коллекционный винил <B>Edge Of Sanity</B>.
+Автор: Uneral
+
+### 22.03.2004 reviews ГРАНДИОЗНЫЙ ШЕДЕВР XXI ВЕКА
+
+<P>1996 год - год выхода самого прогрессивнейшего шедева в истории дэт металла, имя eго CRIMSON. Никто тогда, да и до недавнешних пор, и представить себе не мог, что через 7 долгих лет появится продолжение ... Просто нельзя вообразить, что можно услышать такой же грандиозный&nbsp; материал, как на CRIMSON. Этот миф развеиваеется как пепел, когда вы сушаете CRIMSON II. Необыкновенно мощьная и красивая музыка, не поддающаяся словесному описанию. Многоголосье представленное тремя вокалистами, от угрюмейшего гроулинга, в лучших традициях EDGE OF SANITY, до кристально чистого вокса. Альбом наполнен неожиданностями, бесконечно часто меняющимися темами, безумно красивыми клавишными и соло, заставляющими стынуть кровь в жилах. На новом CRIMSON'e есть и отголоски "старых" так тогда давно понравившихся риффов и по-истине ВЕЧНЫХ мелодий, навевающих мысли о бесконечности, о нечто большем, чем человеческая жизнь. Данную программу можно слушать бесконечно, каждый раз открывая для себя что-либо новое.&nbsp; <BR>CRIMSON II - это, несомненно, кульминация 2003 года, а может быть и один из самых великих шедевров XXI века. </P>
+Автор: Peter Priest
+
+### 22.09.2005 news THE LEGEND IS BACK!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Недавно, <STRONG>Dan Swano</STRONG> поделился своими планами открыть заново легендарную <STRONG>Unisound Recordings Studio</STRONG>, где записывали свои первые альбомы такие коллективы, как <STRONG>OPETH, DISSECTION, EDGE OF SANITY, KATATONIA, MARDUK</STRONG> и многие другие. Однако, музыкант не ставит задачей заниматься в студии записью альбомов. Там будут проходить только процессы сведения и мастеринга. Если кому-то будет интересно поработать на этих стадиях с самим Dan Swano - пишите на <A href="mailto:dan@swano.com">dan@swano.com</A></P></FONT>
+Автор: Dimas
+
+### 27.07.2006 news EDGE OF SANITY готовят сборник лучших вещей с помощью своих поклонников
+
+<P><STRONG>Dan Swano (EDGE OF SANITY)</STRONG> -&nbsp;талантливый продюсер и мультиинструменталист,&nbsp;вывесил на своем <A href="http://www.ultimatemetal.com/forum/forumdisplay.php?f=69">форуме</A> несколько голосовалок для поклонников шведского коллектива <STRONG>EDGE OF SANITY</STRONG> с целью выявления лучших композиций группы со всех ее релизов. По результатам этих голосований, будет составлен двойной сборник&nbsp;под названием <B>"The Best of Edge of Sanity"</B>. Все песни пройдут ремастеринг.</P>
+Автор: Dimas
+
+### 01.08.2006 news Определены лучшие вещи EDGE OF SANITY
+
+<P><B>Dan Swano</B>&nbsp;опубликовал трек-лист предстоящего двойного сборника лучших вещей <STRONG>EDGE OF SANITY</STRONG>&nbsp;<B>"The Best of Edge of Sanity"</B>. В него войдут следующие вещи:<BR>Диск 1:<BR>1. <B>Tales…</B><BR>2. <B>Human Aberration</B><BR>3. <B>Enigma</B><BR>4. <B>In The Veins/Darker Than Black</B><BR>5. <B>Lost</B><BR>6. <B>The Masque</B><BR>7. <B>Until Eternity Ends</B><BR>8. <B>Eternal Eclipse</B><BR>9. <B>Twilight</B><BR>10. <B>Black Tears</B><BR>11. <B>15:36</B><BR>12. <B>Hell Is Where The Heart Is</B><BR>13. <B>Hellwritten</B><BR>14. <B>Bleed You Dry</B><BR>Диск 2:<BR><B>Crimson</B> (полный альбом)<BR><B>Crimson II</B> (полный альбом)</P>
+<P>Все песни пройдут ремастеринг и будут представлены на сборнике в лучшем виде.<BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Я заново родился %) (Related: Edge Of Sanity)

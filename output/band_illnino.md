@@ -104,6 +104,17 @@ Bonus:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.10.2014 news Новый клип ILL NINO
+
+<P>Новый альбом металкорщиков <STRONG>ILL NINO "Till Death La Familia"</STRONG> вышел летом на Victory Records. Видео-клип на песню с этой работы "<STRONG>I'm Not The Enemy</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/q5JsrxnLbh8" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

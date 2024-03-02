@@ -332,6 +332,351 @@ Recorded at Obituary's home studio in Tampa, Florida, USA in end of 2016.
 * C группой "Cancer" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
 * C группой "Disincarnate" James Murphy played in Death, Obituary, Testament, Cancer, Disincarnate.
 
+## Публикации
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 13.11.2000 news Obituary выпускают посмертный сборник лучших песен.
+
+<p>Флоридские пионеры death metal Obituary 22-ого января выпускают свой последний, посмертный "Best Of" под названием "Anthology". Альбом будет содержать два десятка вещей из разных альбомов - от ставшего классическим дебютника "Slowly We Rot" до последней попытки воссоздаться заново, опуса 1997 года "Back From The Dead".</p>
+
+Автор: Morsus
+
+### 13.11.2000 news Obituary release a posthumous &quot;Best Of&quot;.
+
+<p>Florida death metal pioneers Obituary release a posthumous "Best Of" entitled "Anthology" on January 22nd. The album will contain tracks from their classic "Slowly We Rot" debut through to 1997's return-to-form "Back From The Dead" opus.</p>
+
+Автор: Morsus
+
+### 10.01.2001 news OBITUARY &#39;Anthology&#39;
+
+<p>Подтвержден окончательный список песен вошедших в 'Anthology' OBITUARY. Это: 1. Find The Arise (demo) 2. 'Til Death 3. Internal Bleeding 4. Intoxicated 5. Slowly We Rot 6. Cause Of Death 7. Dying 8. Chopped In Half 9. Turned Inside Out 10. Back To One 11. The End Complete 12. I'm In Pain 13. Kill For Me 14. Final Thoughts 15. Don't Care 16. Threatening Skies 17. By The Light 18. Back From The Dead 19. Buried Alive* 20. Boiling Point (212 Degree Sporadic Mix)* * Previously unreleased. На официальном сайте Roadrunner Records (в разделе MP3) уже можно скачать Final Thoughts, а в разделе Видео - клип Don't Care.</p>
+
+Автор: Yermola
+
+### 27.03.2001 news Реформация DISINCARNATE...
+
+<p>Участник супер-проектов TESTAMENT / DEATH / OBITUARY - гитарист Джэймс Мэрфи совместно с вокалистом Tomas Lindberg (AT THE GATES / THE CROWN) возродили проект DISINCARNATE. Оригинальный вокалист Bryan Cegon исполнит только партии бэк-вокала при записи. Мэрфи пришлось переехать во Флориду из Калифорнии где он работал с демо SKINLAB и несколькими проектами Shrapnel Records.</p>
+
+Автор: Yermola
+
+### 27.03.2001 news DISINCARNATE reformed...
+
+<p>Further to the news item that was posted here about the whereabouts of former TESTAMENT / DEATH / OBITUARY guitarist James Murphy, it now appears that he is in fact still attempting to enlist former AT THE GATES and current THE CROWN vocalist Tomas Lindberg to sing on the upcoming CD from the reformed DISINCARNATE, while former DISINCARNATE vocalist Bryan Cegon will reportedly only be contributing backing vocals during the album’s recording. Murphy has recently relocated to Florida after a lengthy stint in the California, where he tried his hand at production work, having worked on an early SKINLAB demo and several Shrapnel Records projects.</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Это становится заразным...
+
+<p>Известный гитарист James Murphy (TESTAMENT/DEATH/OBITUARY) при медицинском обследовании получил диагноз "опухоль мозга" неопределенного типа и сейчас у себя дома во Флориде готовится к операции... До злополучного анализа Джэймс собирался активно заниматься работой со своим дэс металлическим проектом "DISINCARNATE"... <br><br> Да уж, климат у них что-ли такой?!?!</p>
+
+Автор: Yermola
+
+### 26.09.2001 news James Murphy has reportedly been diagnosed with...
+
+<p>Former TESTAMENT/DEATH/OBITUARY guitarist James Murphy has reportedly been diagnosed with an undisclosed type of brain tumor and is said to be at home in Florida recovering from a recent emergency operation that is believed to have successfully prevented the disease from progressing to a more advanced stage. At the time of Murphy’s diagnosis, the axeman was said to be working on the material for a long-awaited sophomore offering from his death metal project DISINCARNATE—also set to feature an appearance by former AT THE GATES and current THE CROWN frontman Tomas Lindberg—for a 2002 release through Nuclear Blast Records. It is presently unclear what impact this latest development will have on the guitarist’s future recording plans. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 15.10.2001 news TWO James Murphy benefits...
+
+<p>TWO benefits are set to go for James Murphy former guitarist of testament, death & obituary, who recently had a brain tumor removed. james has a good outlook on the situation but has been devastated financialy due to this tragedy. On nov. 16th @ The Hard Luck Saloon in sac. ca. Symphonice Metal Giants PSYPHERIA are hosting part one of this 2 day 2 city event, headlined by Psypheria, also on the bill are LD50 ( featuring former members of testament, forbidden evil & geezar ) kuru ( featuring ex eulogy member ) berkeley`s Mastema & misanthrop. And then on nov. 17th @ the Poundsf in san francisco ca. Dragonlord ( eric peterson`s side projest with members of psypheria, death, testament & sadus ) will headline with impaled supporting then technocracy ( phil demmel from vio-lence ) LD50, Imagica & berkeley`s Mastema opening that show also. To add insult to injury, concert promoter spoke with james and found out that before he left Oakland awhile back to go to florida where he know resides, someone stole and pilffered $30.000 worth of everything james owned, his guitars and additional recording equipment, many masters demos & collectibles he had saved. We`re just a bunch of crazy people out here in calif. that will do whatever it takes to help a brother when he is down, if someone would like to help, we have a bank account set up for james, you can contact scary gary ( thats me ) via my webiste and e-mail www.kidgloveentertainment.com - thank you.</p>
+
+Автор: Yermola
+
+### 21.11.2001 news Новый сайт Джэймса Мэрфи...
+
+<p>Ныне болеющий той же Флоридской болезнью рок-музыкантов James Murphy (TESTAMENT/DEATH/OBITUARY), что и Шульдинер и Чак Билли, так же как и они нуждается в помощи. Более подробно вы можете прочитать обо всем на новом сайте <A HREF="http://www.msanthrope.com/jamesmurphy/">гитариста...</A></p>
+
+Автор: Yermola
+
+### 21.11.2001 news James Murphy needs your help...
+
+<p>Former TESTAMENT/DEATH/OBITUARY guitarist James Murphy needs your help. After being diagnosed with a benign brain tumor back in August, James is presently undergoing treatment in Lakeland, Florida and is in desperate need of donations to help him out with medical expenses. More information can be obtained through Murphy’s newly-launched official web site at: <A HREF="http://www.msanthrope.com/jamesmurphy/">http://www.msanthrope.com/jamesmurphy/</A></p>
+
+Автор: Yermola
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 26.02.2004 news OBITUARY вернулись
+
+Культовая группа <B>OBITUARY</B> возвращается с новым альбомом. Группа работает над новой пластинкой, которая выйдет в этом году на <B>RoadRunner</B>. OBITUARY уже приступили к концертным выступлениям и выступят на <B>March Metal Meltdown VI Festival</B>&nbsp;в New Jersey в следующем месяце.&nbsp;
+Автор: Vit Belov
+
+### 26.02.2004 news OBITUARY are again together
+
+Influential Florida death metalheads <B>Obituary</B> are back together. The band are currently working on a new album, for release later this year by <B>Roadrunner</B>. They'll be appearing at the <B>March Metal Meltdown VI Festival</B> in New Jersey next month.<BR>
+Автор: Vit Belov
+
+### 29.01.2005 news OBITUARY готовятся к записи
+
+<P>Возрождённые <STRONG>OBITUARY</STRONG> готовятся к записи. В ближайшее время они войдут в студию <STRONG>Red Room</STRONG> в Тампе, где со своим старым продюсером <STRONG>Mark Prator</STRONG> начнут запись новой пластинки, которая предположительно выйдет в июне на <STRONG>RoadRunner</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.01.2005 news OBITUARY to enter to studio
+
+<P><STRONG>OBITUARY </STRONG>will be heading to record in February at <STRONG>Red Room</STRONG> in Tampa, Florida. This is a Pro Tools studio owned by <STRONG>Mark Prator</STRONG> - the very same <STRONG>Mark Prator</STRONG> that has been their engineer since the early 90's.</P>
+<P>Plans at the moment include the band self-producing with Mark engineering. The mixing of the album is still being decided.</P>
+<P>Tentatively, a release is being looked at for June.</P>
+Автор: Vit Belov
+
+### 22.04.2005 news Новый альбом OBITUARY
+
+<P>Новый одноименный альбом легендарных американских дэтстеров <STRONG>OBITUARY</STRONG> выйдет 12 июля на<STRONG> Roadrunner Records. </STRONG></P>
+Автор: Dimas
+
+### 26.05.2005 news OBITUARY опубликовали подробности
+
+<P><IMG height=229 alt="" hspace=0 src="/images/news_rus/2005.05/8537.jpg" width=229 align=right border=5>Новый альбом <STRONG>OBITUARY "Frozen In Time"</STRONG> выходит 12 июля на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P>01. <B>Redneck Stomp</B><BR>02. <B>On the Floor</B><BR>03. <B>Insane</B> <BR>04. <B>Blindsided</B><BR>05. <B>Back Inside</B><BR>06. <B>Mindset</B><BR>07. <B>Stand Alone</B><BR>08. <B>Slow Death</B><BR>09. <B>Denied</B><BR>10. <B>Lockjaw</B></P>
+Автор: Vit Belov
+
+### 03.06.2005 news Вышел новый номер журнала Rock Oracle!
+
+<SPAN class=bb><SPAN class=crem>
+<P><SPAN class=banddesc><SPAN class=bb><SPAN class=crem><B><SPAN class=nav><B><IMG height=326 alt="" hspace=10 src="/images/news_rus/2005.06/8730.jpg" width=227 align=right border=1>Второй номер журнала Rock Oracle уже в продаже!</B></P>
+<P></SPAN></B><SPAN class=crem><SPAN class=banddesc><SPAN class=crem><SPAN class=tit1><SPAN class=crem><SPAN class=banddesc><SPAN class=lyrica style="COLOR: #ff0000">Спрашивайте в магазинах единственное отечественное рок-издание с компакт-диском!</P><SPAN class=pna>
+<P>Вас ожидают:</P>
+<UL>
+<LI></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>&nbsp;Эксклюзивное интервью с&nbsp;Lacrimosa (подготовьтесь к приезду легенды готической сцены в Москву!); 
+<LI>&nbsp;Отчеты с московских концертов Crematory, Behemoth, Rage, Ensiferum, To/Die/For; 
+<LI>&nbsp;Свежая информация из жизни Obituary, Borknagar, Moonsorrow, Sentenced, Samsas Traum; 
+<LI>&nbsp;Познавательная статьи о развитии готической культуры; 
+<LI>&nbsp;Как всегда куча свежих новостей, рецензий на музыкальные диски, книги и видео</LI></UL><SPAN style="COLOR: #ff0000"><B><SPAN class=tit1><B><SPAN class=banddesc><B><SPAN class=tracks><B><SPAN class=h1><B><SPAN class=total><B><SPAN class=bb><B><SPAN class=band><B><SPAN class=tit1><B><SPAN class=lyrica><B><SPAN class=lyrica><B><SPAN class=banddesc>
+<P class=pna><B>+ компакт-диск - "нарезка" из хитов самых популярных новинок музыкального рынка</B></P></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B>
+<P class=pna></SPAN></B></SPAN></P></SPAN></SPAN>
+Автор: Soubbterranean
+
+### 31.08.2005 news Allen West ушёл из OBITUARY
+
+<P>Гитарист <STRONG>Allen West</STRONG> покинул <STRONG>OBITUARY</STRONG>, чтобы сосредоточиться на собственной группе <STRONG>LOWBROW</STRONG>. Вокалист <STRONG>John Tardy</STRONG> сообщил на форуме группы, что совместная работа с&nbsp;<STRONG>Allen</STRONG> стала невозможна, из-за его отношения к делу. Порой он бывал слишком пьян, чтобы качественно выступать на сцене.</P>
+Автор: Vit Belov
+
+### 01.09.2005 news Allen West вернулся на следующий день...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>Frank Watkins</STRONG> из <STRONG>OBITUARY</STRONG> уговорил <STRONG>Allen West</STRONG> вернуться в группу ради тура с <STRONG>NAPALM DEATH</STRONG> по Штатам, который начнётся сегодня.</FONT></P>
+Автор: Vit Belov
+
+### 28.09.2005 reviews Процесс замораживания завершен
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А вот и он, шестой альбом легендарных флоридских дэтстеров <STRONG>OBITUARY</STRONG>, вернувшихся из небытия спустя восемь лет, в почти что классическом составе. Некоторые, с упоением ждали их возвращения, совсем на это не надеясь, а некоторые уже давно похоронили коллектив и забыли о нем. Да... Много воды утекло с тех пор, как я услышав пятнадцать лет назад "<STRONG>Cause Of Death</STRONG>" стал&nbsp;поклонником death metal, благодаря им. Сейчас же, музыканты выпустили альбом с музыкой, которая просто поражает своими ностальгическими настроениями. Поневоле, возвращаешься в 1992 год, так как явственно понимаешь, что сей музон является откровенным продолжением классического альбома&nbsp;коллектива&nbsp;"<STRONG>The End Complete</STRONG>", и содержит тот же самый тягучий материал с пронизывающим уши надрывным вокалом, сухими риффами и&nbsp; звонкой барабанной дробью. И тем не менее, тем не менее... На мой взгляд, сей релиз будет действительно интересен только тем, кто уже знаком с творчеством группы, и кому оно нравится. Те же, кто слыхивать их не слыхивал и воспитывался на современном death metal, могут просто неправильно понять этот материал. Я же получил удовольствие от его прослушивания, но вряд ли буду переслушивать его много раз. Одно могу сказать точно, этот альбом&nbsp;- один из лучших в &nbsp;дискографии группы.</FONT></P>
+Автор: Dimas
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 23.05.2006 news OBITUARY в СПб
+
+<CENTER><IMG height=562 src="/images/shows_rus/2006.06/10366.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 14.06.2006 news OBITUARY в Москве
+
+<IMG height=375 alt="" hspace=0 src="/images/shows_rus/2006.06/10432.jpg" width=250 align=left border=5>Концертное агентство <B>JC-SOUND PROD.</B> представляет:<BR>Как много воды утекло с тех пор, когда в конце 80-х умы всех приверженцев самых экстремальных разновидностей металла захлестнул свежий ветер смерти из далекой Флориды, породив на свет целый ряд уникальных и доселе неслыханных по тяжести групп, ознаменовав торжество нового направления в тяжелой музыке – death metal! Morbid Angel, Cannibal Corpse, Obituary – эти имена были на слуху у хэдбенгеров всего мира, включая и нашу необъятную страну! С интенсивностью компрессора их альбомы сокрушали органы слуха и одновременно завладевали сердцами поклонников, порождая на свет целую лавину последователей и подражателей… Это был триумф death metal, наложивший огромный отпечаток на развитие металла в целом на многие годы… <BR><BR>И одним из самых ярких флагманов этого сумасшествия были флоридцы <B>OBITUARY</B>, выделяясь из общей массы дэтстеров засчет поистине уникального и неподражаемого вокала одного из основателей группы – Джона Тарди… Грязный <B>‘Slowly We Rot’</B>, эпохальный <B>‘Cause Of Death’</B>, новаторский <B>‘The End Complete’</B> и экспериментальный <B>‘World Demise’</B> с неподражаемым треком-убийцей <B>‘Don’t Care’</B> – эти альбомы стали настоящей классикой death metal, навсегда закрепив за <B>OBITUARY</B> славу лидеров жанра… Но времена менялись, многие группы не выдерживали такой гонки, уходя в небытие или переходя в другие музыкальные территории... Настал черед и <B>OBITUARY</B>, которые, после достаточно большого перерыва в деятельности в середине 90-х, выпустили восторженно принятую пластинку <B>‘Back From The Dead’</B>, но вскоре объявили о своем распаде из-за личных разногласий внутри группы… Это был настоящий удар для всех ценителей настоящего death, ведь легенда прекратила свое существование, как казалось, навсегда… <BR><BR>И, когда ни у кого уже не осталось даже самой маленькой надежды, что они вернутся, подобно грому среди ясного неба, группа объявляет о своем воссоединении после почти 7-летнего молчания! А вышедший вскоре новейший альбом <B>‘Frozen In Time’</B> мгновенно вернул <B>OBITUARY!!!</B> лавры лидеров направления! Ураганный, бронебойный death metal в лучших традициях флоридской школы, с все тем же неподражаемым Тарди за микрофонной стойкой мгновенно развеял все сомнения относительно дееспособности коллектива после такого перерыва! Это действительно вернулись ОНИ!!!<BR><BR>Но поистине потрясающей новостью для всех русскоговорящих любителей самого кровожадного направления на метал-сцене стало сообщение о том, что <B>OBITUARY</B> впервые за всю свою историю выступят на постсоветской территории! Итак, <B>20 июня в Киеве (клуб ‘Бинго’), 21 июня в Москве (клуб ‘Точка’) и 22 июня в Санкт-Петербурге (клуб ‘Порт’) выступит живая легенда мирового death metal в своем золотом составе</B> – <B>OBITUARY!!!</B> Пропустить такое не позволено ни одному уважающему себя любителю стиля! Остается все меньше и меньше времени до их прибытия – не упусти свой шанс воочию увидеть тех, кто стоял у истоков одного из самых безумных и экстремальных направлений металлической музыки!<BR><BR>Спрашивайте билеты:<BR><B>Касса клуба "Точка"</B><BR><B>рок-магазин "Зиг-Заг"</B><BR><B>Точка "Metal and Progressive" ТЦ Рубин</B><BR><B>рок-магазин на "Кузнецком мосту"</B><BR>Цена билета - <B>800р.</B><BR><B>театральные кассы города</B> по - <B>880р.</B><BR><BR>По всем вопросам обращаться по адресам: <B>jc-sound@mail.ru</B> и <B>jeff@irond.ru</B><BR><BR>
+Автор: Vit Belov
+
+### 24.06.2006 articles OBITUARY в Москве: death-metal как он есть
+
+<P><IMG height=401 alt="" hspace=0 src="/images/articles_rus/2006.06/10488.jpg" width=300 align=left border=5>Легенды флоридского death-metal (в кавычки можно не брать), как были представлены OBITUARY на афишах, выступили в клубе «Точка» 21 июня. В рамках концерта группа убедительно доказала, что death-metal является практически идеальной почвой для великолепного концерта. Надо очень постараться, чтобы, играя death-metal, заставить публику в зале заскучать.</P>
+<P>Американцы OBITUARY прославились в начале-середине 90-х своими классическими альбомами “The End Complete” и “Cause Of Death”. Выпустив в 1997 году альбом с оптимистичным названием “Back From the Dead”, группа благополучно распалась, а вернулась к жизни в прошлом году с программой “Frozen In Time”. Эту работу нельзя назвать ни революционной, ни лучшей за всю историю, но, выйдя на Roadrunner, альбом застолбил для OBITUARY место в первых рядах лучших death-metal групп мира. Отличительными чертами группы всегда был изумительный «рвотный» вокал John Tardy и грувовая ритм-секция, которая местами напоминала doom-metal, как по звучанию, так и по скорости. На концерте американцы предъявили все эти свои козыри и оставили присутствующую публику в полном восторге.</P>
+<P>Начался сэт основной в этот вечер группы где-то около 21-00, народ успел разогреться открывавшими вечер HOSTILE BREED и PERIMETER, но ещё не впал в прострацию от выпитого пива и утомительного рабочего дня. Надо отметить, что публика собралась на концерте соответствующая. Основу составляли дяденьки около 30, именно эта категория и слушала диски (кассеты) OBITUARY во времена их непосредственного выхода в свет. По этой причине никаких эксцессов в этот вечер замечено не было, концерт проходил в дружеско-угарной атмосфере. Сначала я даже решил, что нас ждёт беспрецедентное событие. На сцене полностью отсутствовала охрана, но уже в течение исполнения тягучего «думового» интро на сцене появились стэйдждайверы, которые по нашей традиции отказывались «нырять» обратно в толпу. Чтобы их пнуть ногой и побудить к осуществлению задуманного, на сцене появилась пара охранников. Надо отметить, что работы у них было немного, количество «попрыгунчиков» было невелико, возможно, по причине того, что народ внизу не особенно охотно их ловил. «Точка» не была заполнена до отказа, народ был, но по клубу можно было перемещаться достаточно легко. Также радует, что в клубе добавились мощности по части кондиционирования воздуха. Несмотря на удушающую жару на улице, все фэны чувствовали себя вполне комфортно.</P>
+<P>Само же выступление OBITUARY, к счастью, не таило никаких сюрпризов для присутствующих. Великолепное исполнение практически всех хитов коллектива не оставило в зале недовольных. Более того, мне думается, все должны быть в восторге. Хороший death-metal в концертном исполнении. Что может быть лучше в жаркий июньский день? Конечно же, придирчивый наблюдатель всё-таки назовёт несколько западных death-metal коллективов, которые отожгут посильнее, но не будем слишком строги. OBITUARY не VADER, как по музыке, так и по опыту концертных выступлений.</P>
+<P>Отличный концерт, отличное настроение, отличная организация… Не будем занудами, но посоветуем любителям gothic-metal посетить подобное мероприятие, чтобы понять, что такое настоящий рок-концерт. Хотя… Не надо сравнивать художественную гимнастику или теннис с футболом. </P>
+Автор: Vit Belov
+
+### 04.08.2006 news Новые двд от Metal Mind
+
+<P>Польский лейбл <STRONG>Metal Mind Productions</STRONG> анонсировал выпуск в ноябре четырех летних шоу состоявшихся в Кракове. Каждое из них выйдет отдельным изданием с дополнениями и прилагаемым аудиодиском. Список:</P>
+<P><STRONG>Obituary –&nbsp;пока не имеет названия&nbsp;</STRONG></P>
+<P><STRONG>Sinister - Prophecies Denied </STRONG></P>
+<P><STRONG>Grave – Enraptured </STRONG></P>
+<P><STRONG>Catamenia – Bringing The Cold To Poland</SPAN></STRONG> </P>
+<P></P>
+Автор: Dimas
+
+### 02.05.2007 news OBITUARY на Candlelight
+
+<P><STRONG>Candlelight</STRONG> объявили о подписании<STRONG> OBITUARY</STRONG>. Новый альбом монстров запланирован на 10 сентября.</P>
+Автор: Vit Belov
+
+### 28.05.2007 news Название нового OBITUARY
+
+<P>Новый альбом <STRONG>OBITUARY</STRONG>, выходящий на <STRONG>Candlelight</STRONG>, будет называться "<STRONG>Xecutioner's Return</STRONG>". В настоящее время художник <STRONG>Andreas Marshall</STRONG> рисует обложку. Этот человек уже рисовал обложки для альбомов <STRONG>OBITUARY "Frozen In Time"</STRONG> и "<STRONG>The End Complete</STRONG>".</P>
+Автор: Vit Belov
+
+### 15.09.2007 reviews Альбом OBITUARY с небольшими дополнениями
+
+<P>Легенда флоридского death-metal. Безусловно, OBITUARY – группа со своим лицом. Их замешанный со stoner death-metal с оригинальнейшим вокалом давно волнует всех любителей стиля по всему миру.</P>
+<P>Несколько лет назад группа объявила о своём воссоединении. Пластинка с говорящим названием “Frozen In Time” должна была порадовать всех фэнов группы со стажем. На ней музыканты не отрывались от своих корней и выдавали ожидаемый материал. «Грувовые» гитары, тошнотворный, или вернее «тошный», вокал, тягучие и тяжёлые боевики, сменяемые быстрыми отрезками. Всё это там было. Заехав в туре в поддержку этой работы к нам, OBITUARY ещё больше распалили своих российских поклонников. Новая работа будет принята ими на ура. Во время подготовки к записи группу покинул гитарист Alan West (также SIX FEET UNDER), славящийся своей неуравновешенной психикой и страстью покидать все группы, где он участвует. Ему на замену был взят известный death-metal виртуоз Ralph Santola, покинувший DEICIDE, уйдя от другого психа Glen Benton. Именно он расцвечивал новыми красками последний успешнейший релиз DEICIDE “The Stench Of Redemption”, и он попытался добавить что-то своё в музыку OBITUARY. Видно, что весь материал был сочинён до его прихода, но внести свои «пять копеек» он попытался с помощью соло. К сожалению, иногда эти соло выглядят достаточно нелепо в музыке группы, которая всегда уповала на атмосферу и ритм. Более того, некоторые решения Ральфа до боли напоминают его же решения в DEICIDE. В общем-то, это обновление явно не стало полезным группе. А вот увеличение темпа в большинстве композиций пошло OBITUARY на пользу. Таким образом, мы имеем альбом OBITUARY с двумя всё-таки незначительными дополнениями.</P>
+<P>Теперь будем ждать, что последует далее. Группы имеют особенность возрождаться, но это, рано или поздно, приведёт ко второй кончине. Будем надеяться, что у OBITUARY хватит мощи порадовать нас ещё не одним подобным хорошим альбомом.</P>
+Автор: Vit Belov
+
+### 08.12.2007 news OBITUARY выпускают сборник
+
+<P><STRONG>OBITUARY</STRONG> выпускают сборник <STRONG>"The Best of Obituary"</STRONG> в январе на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P><IMG height=139 alt="" hspace=0 src="/images/news_rus/2007.12/12022.jpg" width=140 align=right border=5>01. <B>Internal Bleeding</B><BR>02. <B>'Til Death</B><BR>03. <B>Slowly We Rot</B><BR>04. <B>Cause Of Death</B><BR>05. <B>Chopped In Half</B><BR>06. <B>Turned Inside Out</B><BR>07. <B>The End Complete</B><BR>08. <B>I'm In Pain</B><BR>09. <B>Don't Care</B><BR>10. <B>Final Thoughts</B><BR>11. <B>Kill For Me</B><BR>12. <B>Threatening Skies</B><BR>13. <B>On The Floor</B></P>
+Автор: Vit Belov
+
+### 21.01.2008 news Allen West выпущен из тюрьмы
+
+<P>Бывший гитарист <STRONG>OBITUARY Allen West</STRONG> был выпущен из тюрьмы, где отсидел 8 месяцев за управление автомобилем в нетрезвом состоянии. Напомним, что музыкант покинул <STRONG>OBITUARY</STRONG> около года назад.</P>
+Автор: Vit Belov
+
+### 03.05.2008 reviews Как выступают в высшей лиге
+
+<P>В высочайшем профессионализме флоридских ветеранов дэт-метала Obituary некоторые из вас смогли убедиться на концертах почти два года назад в Киеве, Москве и Санкт-Петербурге. К сожалению, публики оказалось в те дни не очень много, и теперь тем, кто умудрился пропустить живое выступление Джона Тарди и Со, предоставляется отличный шанс восполнить этот пробел с первым DVD группы под названием "Frozen Alive". Obituary были хэдлайнерами на небольшом фесте в варшавском глубе Stodola 24 августа 2006-го года, где перед ними выступали Grave, Sinister и Katamenia (как раз&nbsp;с помощью&nbsp;фотогалереи к данному DVD я, наконец, составил полный состав участников шоу того вечера). На концерте американцы представили 23 номера (считая три intro) со всех своих шести альбомов, при этом наибольшее внимание было уделено последнему на тот момент лонгплею "Frozen In Time", откуда было исполнено аж 7 вещей; еще 4 взято с "Cause Of Death", по 3 со&nbsp;"Slowly We Rot" и "Back From The Dead", "World Demise" представлен двумя песнями, а вот с самого коммерчески успешного "The End Complete" (который был продан в общей сложности тиражом более 250000 экземпляров) в данный сет вошла лишь одна. Удивительное дело: вряд ли кто сможет утверждать, что песни Obituary отличаются большим разнообразием, но почему-то весь концерт слушается и смотрится на одном дыхании и совершенно не надоедает. Да, умеют эти ребята завести публику и держать её в напряжении на протяжении всего своего выступления! Если вы сравните, как играли в тот же вечер Grave и Sinister, то у вас исчезнут любые сомнения - если&nbsp;таковые всё-таки были - по поводу того, кто на дэтовой сцене высшая лига, а кто будет всегда находиться на вторых ролях. Единственный, пожалуй, минус это работа световиков, которые уж слишком налегали на зеленый цвет (видимо, посчитав его наиболее подходящим для изображения тотального разложения и гниения нашей планеты). Раздел "bonus video" состоит из двух интервью с участниками группы (как я понял, взятых перед тем как раз концертом в Варшаве), двух видеоклипов, 'Insane' и&nbsp;'On The Floor', соло на ударных Доналда Тарди на концерте в Румынии, "The Making of Insane" и любительских туровых съемок в Польше (к сожалению, их не так много); также на DVD вы можете познакомиться с биографией Obituary, полной их дискографией, весьма обширной фотогалереей, скачать обои для рабочего стола и выбрать ваш звуковой формат (2.0 или 5.1). В общем и целом, можно с уверенностью утверждать, что первый DVD американских легенд дэт-метала, который вышел на польском лэйбле Metal Mind Productions, получился весьма убедительным. Рекомендуется к просмотру не только фанатам коллектива, но и всем любителям жанра.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 17.06.2008 news OBITUARY закончили запись EP
+
+<P><STRONG>OBITUARY</STRONG> закончили запись нового EP <STRONG>'Left to Die</STRONG>', на который попадут четыре трэка. Две новых песни, новая версия классики группы "<STRONG>Slowly We Rot</STRONG>", а так же кавер на песню <STRONG>CELTIC FROST</STRONG> <STRONG>'Dethroned Emperior'.</STRONG></P>
+Автор: Vit Belov
+
+### 20.09.2008 news TARDY BROTHERS - семейный подряд
+
+<P>Братья <STRONG>John</STRONG> и <STRONG>Donald Tardy</STRONG> из <STRONG>OBITUARY</STRONG> заканчивают работу над дебютом нового проекта <STRONG>TARDY BROTHERS</STRONG>. Вокалист и барабанщик назвали пластинку "<STRONG>Bloodline</STRONG>".</P>
+<P>Ссылка: <A href="http://www.tardybrothers.com/">http://www.tardybrothers.com/</A></P>
+Автор: Vit Belov
+
+### 07.02.2009 news OBITUARY начали запись
+
+<P><STRONG>OBITUARY</STRONG> вошли в студию для записи нового альбома, который должен выйти летом на <STRONG>Candlelight Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.02.2009 news TARDY BROTHERS в апреле
+
+<P>В апреле выходит дебютная работа проекта двух братьев из<STRONG> OBITUARY</STRONG> вокалиста <STRONG>John</STRONG>&nbsp;и барабанщика&nbsp;<STRONG>Donald Tardy - TARDY BROTHERS "Bloodline". </STRONG>Дата релиза: 7 апреля на <STRONG>Candlelight.</STRONG> Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Bring You Down</B> (3:52)<BR itxtvisited="1">02. <B itxtvisited="1">Bloodline</B> (4:50)<BR itxtvisited="1">03. <B itxtvisited="1">I'm Alive</B> (4:39)<BR itxtvisited="1">04. <B itxtvisited="1">Deep Down</B> (5:17)<BR itxtvisited="1">05. <B itxtvisited="1">Wired</B> (2:53)<BR itxtvisited="1">06. <B itxtvisited="1">Fates Call</B> (3:42)<BR itxtvisited="1">07. <B itxtvisited="1">Eternal Lies</B> (5:09)<BR itxtvisited="1">08. <B itxtvisited="1">Screan Descendent</B> (3:59)<BR itxtvisited="1">09. <B itxtvisited="1">Fade Away</B> (4:05)</P>
+Автор: Vit Belov
+
+### 02.03.2009 news OBITUARY закончили запись
+
+<P><STRONG>OBITUARY</STRONG> закончили запись нового альбома, выход которого запланирован на май/июнь на<STRONG> Candlelight</STRONG>. Появилась и обложка пластинки, нарисованная постоянным художником группы <STRONG>Andreas Marschall.</STRONG></P>
+<P><center><IMG height=261 src="/images/news_rus/2009.03/13696.jpg" width=260 border=0></P>
+Автор: Vit Belov
+
+### 14.03.2009 news Фестивальное видео от OBITUARY
+
+<P><STRONG>OBITUARY</STRONG> выпустят новое концертное DVD под названием <STRONG>"Live Xecution In Bad Berka 2008" </STRONG>в июне на <STRONG>Regain Records</STRONG>. На издание попадёт концерт прошлого года на фестивале <STRONG>Party.San Open Air. </STRONG>Напомним, что всего несколько лет назад выходило предыдущее DVD группы в польской серии от <STRONG>Metal Mind</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.04.2009 news OBITUARY огласили подробности
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.04/13983.jpg" width=300 align=right border=5>Новый альбом <STRONG>OBITUARY</STRONG> будет называться <STRONG>"Darkest Day" </STRONG>и выйдет 30 июня на <STRONG>Candlelight</STRONG>. Трэк-лист:</P>
+<P>01. <B>List of Dead</B><BR>02. <B>Blood to Give</B><BR>03. <B>Lost</B><BR>04. <B>Outside My Head</B><BR>05. <B>Payback</B><BR>06. <B>Your Darkest Day</B><BR>07. <B>This Life</B><BR>08. <B>See Me Now</B><BR>09. <B>Fields of Pain</B><BR>10. <B>Violent Dreams</B><BR>11. <B>Truth Be Told</B><BR>12. <B>Forces Realign</B><BR>13. <B>Left to Die</B></P>
+Автор: Vit Belov
+
+### 29.05.2009 news Гитарист OBITUARY выложил музыку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Ralph Santolla</STRONG> (<STRONG>OBITUARY</STRONG>, ex-<STRONG>DEICIDE</STRONG>) выложил на<STRONG> MySpace</STRONG> два демо-трэка своего будущего сольного инструментального альбома: <A href="http://www.myspace.com/ralphsantolla">http://www.myspace.com/ralphsantolla</A></FONT></P>
+Автор: Vit Belov
+
+### 04.06.2009 news Новая песня OBITUARY
+
+<P>Новый трэк от <STRONG>OBITUARY "List Of Dead"</STRONG> можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/obituary">http://www.myspace.com/obituary</A></P>
+Автор: Vit Belov
+
+### 10.07.2009 news OBITUARY продали мало
+
+<P>1200 экземпляров нового альбома<STRONG> OBITUARY "Darkest Day"</STRONG> продано в Штатах в первую неделю. Это не позволило группе попасть в чарты.</P>
+Автор: Vit Belov
+
+### 08.10.2009 news Новый DVD OBITUARY
+
+<P><IMG height=562 alt="" hspace=0 src="/images/news_rus/2009.10/15237.jpg" width=400 align=right border=5>19 ноября на <STRONG>Regain Records</STRONG> выйдет новый концертный DVD <STRONG>OBITUARY</STRONG> <STRONG>"Live Xecution - Party.San 2008". </STRONG>Концер был отснят на прошлогоднем фестивале <STRONG>Party.San Open Air</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Find The Arise</B><BR itxtvisited="1">02. <B itxtvisited="1">On The Floor</B> <BR itxtvisited="1">03. <B itxtvisited="1">Chopped In Half</B> <BR itxtvisited="1">04. <B itxtvisited="1">Turned Inside Out</B> <BR itxtvisited="1">05. <B itxtvisited="1">Forces Realign</B> <BR itxtvisited="1">06. <B itxtvisited="1">Insane</B> <BR itxtvisited="1">07. <B itxtvisited="1">Face Your God</B> <BR itxtvisited="1">08. <B itxtvisited="1">Dethroned Emperor</B> <BR itxtvisited="1">09. <B itxtvisited="1">Evil Ways</B> <BR itxtvisited="1">10. <B itxtvisited="1">Drop Dead</B> <BR itxtvisited="1">11. <B itxtvisited="1">Contrast The Dead</B> <BR itxtvisited="1">12. <B itxtvisited="1">Second Chance</B> <BR itxtvisited="1">13. <B itxtvisited="1">Stand Alone</B> <BR itxtvisited="1">14. <B itxtvisited="1">Slow Death</B> <BR itxtvisited="1">15. <B itxtvisited="1">Slowly We Rot</B> </P>
+Автор: Vit Belov
+
+### 12.11.2009 news Гитарист OBITUARY занялся кулинарией
+
+<P><IMG height=176 alt="" hspace=0 src="/images/news_rus/2009.11/15507.jpg" width=400 align=left border=5>Гитарист <STRONG>Trevor Peres</STRONG> из <STRONG>OBITUARY</STRONG> запустил собственную линию кетчупа <STRONG>T-Bone's Famous</STRONG>. Пока в этой линии только один соус <STRONG>Original 'Rib'Licious' Bar-B-Que Sauce</STRONG>. "<EM>В нём лук, чеснок и молотый чили</EM>", - раскрывает свои секреты <STRONG>Trevor</STRONG>.</P>
+<P><STRONG>T-Bone</STRONG> его прозвали ещё в 1992 году&nbsp;во время тура с <STRONG>AGNOSTIC FRONT</STRONG>. Это основная прибыль&nbsp;будущего магната. Фанаты hardcore&nbsp;очень организованы и могут закпиться этим <STRONG>T-Bone</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 15.09.2010 news Frank Watkins покинул OBITUARY
+
+<P><IMG height=360 alt="" hspace=0 src="/images/news_rus/2010.09/17184.jpg" width=224 align=right border=5>Басист <STRONG>Frank Watkins</STRONG> покинул <STRONG>OBITUARY</STRONG>. Музыкант, который играл в группе&nbsp;с 1988 года,&nbsp;уже какое-то время не ездил в туры вместе с остальными участниками, но о своём статусе сообщил только сейчас. В настоящее время<STRONG> Frank</STRONG> является членом <STRONG>GORGOROTH</STRONG>.</P>
+<P>Новым басистом <STRONG>OBITUARY</STRONG> может стать <STRONG>Terry Butler</STRONG> из <STRONG>SIX FEET UNDER</STRONG>, который заменял <STRONG>Watkins </STRONG>на последних концертах <STRONG>OBITUARY</STRONG>. Единственной проблемой, препятствующей присоединению <STRONG>Terry</STRONG> к группе, является конфликт интересов между <STRONG>SIX FEET UNDER</STRONG>, которых он не собирается покидать, и <STRONG>OBITUARY</STRONG>. В настоящее время группы пытаются совместить свои графики.</P>
+Автор: Vit Belov
+
+### 25.07.2011 news Kam Lee будет работать с Allen West
+
+<P>Бывший участник <STRONG>MANTAS/DEATH</STRONG> и<STRONG> MASSACRE Kam Lee</STRONG> объединил свои усилия с бывшим гитаристом <STRONG>OBITUARY Allen West</STRONG> в новой банде, получившей название <B>CORPSE ROT</B>. Название является комбинацией двух словосочетаний <STRONG>'Corpse Grinder'</STRONG>&nbsp;и<STRONG> 'Slowly We Rot'</STRONG>.&nbsp;</P>
+<P>Подробности последуют.</P>
+<P><center><IMG height=300 src="/images/news_rus/2011.07/20315.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 19.08.2014 news OBITUARY: новый альбом в октябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В начале мая легендарная флоридская death metal формация <STRONG>OBITUARY</STRONG> заключила договор на выпуск нового альбома с лейблом <STRONG>Relapse</STRONG>. Новый диск получил название <STRONG>"Inked In Blood"</STRONG>. Обложку для него создал <STRONG>Andreas Marschall</STRONG> (<A href="http://marschall-arts.com/">http://marschall-arts.com</A>), который и прежде сотрудничал с группой. Именно его кисти принадлежат обложки альбомов <STRONG>"The End Complete"</STRONG> (1992), <STRONG>"Frozen In Time"</STRONG> (2005), <STRONG>"Xecutioner's Return"</STRONG> (2007), <STRONG>"Darkest Day"</STRONG> (2009),&nbsp;а также миньона <STRONG>"Left To Die"</STRONG> (2008) и сборника <STRONG>"Anthology"</STRONG> (2001). Художник также известен по долгому и плодотворному сотрудничеству с такими группами, как <STRONG>BLIND GUARDIAN</STRONG>, <STRONG>RUNNING WILD</STRONG>,&nbsp;<STRONG>KREATOR</STRONG>, <STRONG>GRAVE DIGGER</STRONG>, <STRONG>IMMOLATION</STRONG>, <STRONG>RAGE</STRONG>, <STRONG>HAMMERFALL</STRONG> и другими.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Inked In Blood" </STRONG>планируется к выходу в октябре 2014.</FONT></P>
+<P>В&nbsp;записи альбома принял участие новый гитарист по имени <STRONG>Kenny Andrews</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27207.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 14.10.2014 news Трек &quot;Visions In My Head&quot; с нового альбома OBITUARY
+
+<P>Новый релиз<STRONG> OBITUARY "Inked In Blood"</STRONG> выходит в ближайшие пару недель на<STRONG> Relapse Records</STRONG>. Трек с этой работы доступен к бесплатному прослушиванию.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/WvxHqUrikhE" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER>
+<P></P>
+<P>
+<CENTER>
+<P></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+### 16.06.2015 news OBITUARY: анимационное видео на трек &quot;Violence&quot;
+
+<P>Флоридская death metal банда <STRONG>OBITUARY</STRONG> опубликовала анимационное видео на трек <STRONG>"Violence"</STRONG>. Смотрим его ниже!&nbsp;</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/3IRja90Ua0s" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 19.10.2015 news Умер Frank Wantkins (OBITUARY, GORGOROTH)
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.10/28411.jpg" width=354 height=512>Утром 18 октября 2015 умер <STRONG>Frank Watkins</STRONG>. Причиной тому стало&nbsp;осложнение онкологического заболевания. Ему было 47 лет.</P>
+<P><STRONG>Frank</STRONG> начал играть на басу в возрасте 12 лет. В 1989 году, когда ему было 21, присоединился к death metal группе <STRONG>OBITUARY</STRONG>,&nbsp;участником которой был до&nbsp;2010 года. В 2007 присоеденился к норвежской black metal группы <STRONG>GORGOROTH</STRONG> и выпустил с ней 2 альбома.</P>
+<P><EM>Студийные альбомы с Фрэнком:</EM></P>
+<P><U>В составе <STRONG>OBITUARY</STRONG></U>:</P>
+<P><STRONG>Cause Of Death</STRONG> (1990)<BR><STRONG>The End Complete</STRONG> (1992)<BR><STRONG>World Demise</STRONG> (1994)<BR><STRONG>Back From The Dead</STRONG> (1997)<BR><STRONG>Frozen In Time</STRONG> (2005)<BR><STRONG>Xecutioner's Return</STRONG> (2007)<BR><STRONG>Darkest Day</STRONG> (2009)</P>
+<P><U>В составе <STRONG>GORGOROTH</STRONG></U>:</P>
+<P><STRONG>Quantos Possunt ad Satanitatem Trahunt</STRONG> (2009)<BR><STRONG>Instinctus Bestialis</STRONG> (2015)</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 25.08.2016 news OBITUARY выпустят макси-сингл&#x2F;концертный альбом
+
+<p>Новый трек<strong> OBITUARY "Loathe"</strong> можно услышать в клипе ниже. Песня попадёт на новый релиз коллектива "<strong>10000 Ways To Die</strong>", который выйдет 21 октября на <strong>Relapse</strong>. На альбом попадут две новых вещи и концертные треки.</p><p>Трек-лист:</p><p>1.&nbsp;Loathe&nbsp;&nbsp; <br>2.&nbsp;Ten Thousand Ways to Die&nbsp;&nbsp; <br>3.&nbsp;Redneck Stomp&nbsp;&nbsp; <br>4.&nbsp;Centuries of Lies&nbsp;&nbsp; <br>5.&nbsp;Visions in My Head&nbsp;&nbsp; <br>6.&nbsp;Intoxicated&nbsp;&nbsp; <br>7.&nbsp;Bloodsoaked&nbsp;&nbsp; <br>8.&nbsp;Dying&nbsp;&nbsp; <br>9.&nbsp;Find the Arise&nbsp;&nbsp; <br>10.&nbsp;'Til Death&nbsp;&nbsp; <br>11.&nbsp;Don't Care&nbsp;&nbsp; <br>12.&nbsp;Chopped in Half / Turned Inside Out&nbsp;&nbsp; <br>13.&nbsp;Slowly We Rot</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VI8gz54O-i8" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 25.08.2016 news New release by OBITUARY in October
+
+<p>New<strong> OBITUARY</strong> track "<strong>Loathe</strong>" you can hear in the clip below. The song will be included on the new release of the band "<strong>10000 Ways To Die</strong>", which will be released 21 October on<strong> Relapse records</strong>. Album will include two new songs and live tracks.</p><p>Track-list:</p><p>1.&nbsp;Loathe&nbsp;&nbsp; <br>2.&nbsp;Ten Thousand Ways to Die&nbsp;&nbsp; <br>3.&nbsp;Redneck Stomp&nbsp;&nbsp; <br>4.&nbsp;Centuries of Lies&nbsp;&nbsp; <br>5.&nbsp;Visions in My Head&nbsp;&nbsp; <br>6.&nbsp;Intoxicated&nbsp;&nbsp; <br>7.&nbsp;Bloodsoaked&nbsp;&nbsp; <br>8.&nbsp;Dying&nbsp;&nbsp; <br>9.&nbsp;Find the Arise&nbsp;&nbsp; <br>10.&nbsp;'Til Death&nbsp;&nbsp; <br>11.&nbsp;Don't Care&nbsp;&nbsp; <br>12.&nbsp;Chopped in Half / Turned Inside Out&nbsp;&nbsp; <br>13.&nbsp;Slowly We Rot</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/VI8gz54O-i8" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### best ObituarY album

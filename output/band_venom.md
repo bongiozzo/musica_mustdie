@@ -480,6 +480,223 @@ Dante - Drums
 * C группой "PrimEvil" Antony "Antton" Lant (drums)
 * C группой "PrimEvil" Tony "Demolition Man" Dolan (bass, vocal)
 
+## Публикации
+
+### 20.06.2000 news Venom анонсирует свою книгу-биографию
+
+<p>Venom собирается выпустить книгу, которая будет сопровождаться видео-биографией. Книга будет написана в сотрудничестве с Damien из журнала Terrorizer. Mantas говорит: "Это будет книга с полной историей и с видео-приложением. Мы собираемся перенести людей в самое первое место, где мы играли, это было в церкви в 1979 году. Также в книге есть ещё болле сумасшедшие истории. Но она не будет рассказывать полную историю. Там будет много вещей, которые прошли, и о которых мы уже не будем никогда говорить. Там будет много постеров, старые видеофильмы о группе и многое другое. Это наш проект года".</p>
+
+Автор: Vit Belov
+
+### 20.06.2000 news Book about Venom
+
+<p>www.hardradio.com: As VENOM focuses on constructing the tour for their new Resurrection album, with the first showcase gig to be Germany's Wacken Festival, the band has already looked ahead to a book on the band as well as an accompanying video. The book will be a collaboration with Damien from Terrorizer magazine, who had the initiative to propose the idea to the band over an interview and a few drinks at a local pub. Guitarist Mantas explains. "It's going to be a book on the entire history of the band and there's going to be a video history that goes with it. We're actually going to take people to the very first place that Venom ever played, and where we used to rehearse. Our first ever Venom gig was in a church, in 1979. There's going to be all these crazy stories in the book as well. But it won't tell the whole story. There's a lot of things that went on in the band that we won't talk about. We've been keeping diaries the whole time. We plan to include everything, early drawings that we had for stage designs, the 'Witching Hour'/'Bloodlust' video. I've still got the original lighting design that I drew out on an A4 piece of paper, all the early posters we used to do for the band. We used to sneak out in Newcastle in the middle of the night and stick posters up all over the place, photographs that have never been seen before. I've still got films that haven't even been developed from the mid '80s. We have a lot of stuff in storage and we're going to dig it all out. I think it will be after the Wacken Festival, But I told Damien, 'if anybody ever writes the book on Venom, it will never tell the full story. And he had met Cronos in 1991, and Cronos had said exactly the same thing. But he said 'I would love the opportunity to do it.' So myself and Cronos talked about it and I gave him a ring and said 'yes, OK, let's go for it.' So we're busy putting together titles for the book, all the draft ideas. That's our project for this year."</p>
+
+Автор: Vit Belov
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 14.09.2000 news Новый альбом Six Feet Under
+
+<p> Новый альбом Six Feet Under будет называться "Graveyard Classics", и это будет сборник кавер-версий песен таких групп, как: Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix и Venom.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news New album of Six Feet Under
+
+<p> The new album of Six Feet Under will be titled "Graveyard Classics" and it will be a covers album with the band paying tribute to the bands that influenced them. The album will feature songs from Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix and Venom.</p>
+
+Автор: Nybras
+
+### 13.04.2001 news Хронометраж Кроноса...
+
+<p>Фронтмен "VENOM" - Cronos - записал три вещи для проекта "PROBOT", (также туда входит Дэйв Гролл из "FOO FIGHTERS"). Музыка для всех трех вещей была сочинена Гроллом, а слова - Кроносом.</p>
+
+Автор: Yermola
+
+### 13.04.2001 news Cronos has recorded three songs for PROBOT....
+
+<p>VENOM frontman Cronos has recorded no less than three songs for PROBOT, the upcoming metal project from the FOO FIGHTERS' Dave Grohl, but only one will apparently be used on the album, although the VENOM bassist/vocalist currently has no idea which one Grohl will choose. The music for all three songs was composed by Grohl, with the lyrics written by Cronos.</p>
+
+Автор: Yermola
+
+### 04.10.2001 news Золото Майкла Хикки...
+
+<p>Гитарист Mike Hickey, известный по работе с "VENOM", "CARCASS", "CATHEDRAL" и "CRONOS", вплотную занялся собственным проектом "GOLD", в котором он объединил силы с ex-CATHEDRAL барабанщиком Shawn Progen. Уже готовую песню "The Sabbath", спродюссированную Michael Alan Hickey и Mark Alan Miller можно взять <a href="http://artists3.iuma.com/site-bin/mp3gen/31416/IUMA/Bands/MIKE_HICKEY/audio/MIKE_HICKEY_-_The_Sabbath.mp3">отсюда...</a></p>
+
+Автор: Yermola
+
+### 04.10.2001 news Mike Hickey, known for his work with VENOM...
+
+<p>Guitarist Mike Hickey, known for his work with VENOM, CARCASS, CATHEDRAL and CRONOS, has stepped out on his own with GOLD, an all-instrumental heavy rock act with crunchy guitars and searing solos, in which he is joined by ex-CATHEDRAL drummer Shawn Progen. Produced by Michael Alan Hickey and Mark Alan Miller at The Slaughterhouse, GOLD has made available an MP3 of the track “The Sabbath” for download via <a href="http://artists3.iuma.com/site-bin/ mp3gen/31416/IUMA/Bands/MIKE_HICKEY/ audio/MIKE_HICKEY_-_The_Sabbath.mp3">this location. </a> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 14.10.2002 news Барабанщик VENOM присоединился к NU-FUTURE COWBOYS ...
+
+<p>Ударник "VENOM" Antton присоединился к английской команде NU-FUTURE COWBOYS. При этом он остается участником VENOM, которые находятся в отпуске пока фронтмен Cronos лечит свои болячки.</p>
+
+Автор: Yermola
+
+### 22.03.2004 news Venom объявили новый состав
+
+<P><B>VENOM</B> обнародовали состав на ближайший тур и запись нового альбома. <B>Conrad "Cronos" Lant</B>&nbsp; (бас/вокал), <B>Antton </B>(барабаны) и гитарист <B>Mykus. Cronos: </B>"<I>Я выбрал самых талантливых музыкантов из тех, кто когда-либо играл в группе</I>".</P>
+<P>В недавнем своём заявлении бывший гитарист <B>Mantas </B>сообщил, что отказывается от любого типа сотрудничества с <B>Cronos</B>'ом. Также Вы можете заметить, что в составе отсутствует барабанщик <B>Abaddon</B>.</P>
+Автор: Vit Belov
+
+### 27.06.2005 news Новый трибьют VENOM
+
+<P><STRONG>Madskull Records</STRONG> подготовили к выпуску&nbsp; трибьют <STRONG>VENOM</STRONG> - "<STRONG>Mayhem Without Mercy - A Hardcore Punkrock Tribute To Venom</STRONG>"</P>
+<P><STRONG>01. THE FELCHERS - Mayhem With Mercy<BR>02. THE SHINING - Black Metal<BR>03. THE HOUSE OF DESTRUCTO - Raise The Dead<BR>04. TASKER - Nothing Sacred<BR>05. BREZHNEV - Rip Ride<BR>06. BLOODY SODS - Schizo<BR>07. LIMECELL - Buried Alive<BR>08. LIMECELL - Live Like An Angel, Die Like A Devil<BR>09. RIOTGUN - To Hell And Back<BR>10. THE NERDS - 1000 Days In Sodom<BR>11. ULTRA GENIUS - Teachers Pet<BR>12. G.O.H. - In League With Satan<BR>13. HAMMERLOCK - Die Hard<BR>14. DANDARE - The Evil One<BR>15. SEVERED NUNS - Lady Lust<BR>16. STOOL SAMPLE - Skool Daze<BR>17. CHEMIKILLER - Dont Burn The Witch<BR>18. THROWBACKS - Countess Bathory<BR>19. BLOODSUCKING FREAKS - Chanting Of The Priests<BR>20. ARKHAM - Warhead<BR>21. MAIS MAN - Buried Alive<BR>22. MILKMAN - Die Hard<BR>23. BLOODY SODS - Burstin' Out<BR>24. THE FELCHERS - Bloodlust<BR>25. SATAN'S SLUTS - Witching Hour<BR>26. HUMAN ALERT - Live Like An Angel, Die Like A Devil</STRONG></P>
+Автор: Bizarre
+
+### 02.12.2005 news Новый альбом VENOM
+
+<P><STRONG>VENOM</STRONG> назвали свой альбом с оригинальностью, присущей многим коллективам в этом году, "<STRONG>Metal Black</STRONG>". Пластинка выйдет в марте на <STRONG>Sanctuary</STRONG>. </P>
+<P>В пресс-релизе коллектив сообщает, что вновь собирается взять козла за рога со своими 14 новыми трэками. Как ясно из названия, так же обещается возврат к звучанию <STRONG>VENOM</STRONG> 80-х.</P>
+<P>Гитарист <STRONG>Mykus</STRONG>: "<EM>Новая пластинка звучит тяжелее и сырее, чем все предыдущие. Мы - три демона, которые выдали самое злобное творение, какое способны. Всем лежать, бояться! Мы вернулись</EM>!"</P>
+Автор: Vit Belov
+
+### 02.02.2006 news Новый альбом VENOM
+
+<P><STRONG>Sanctuary</STRONG> объявили, что новый альбом<STRONG> VENOM "Metal Black"</STRONG> выйдет 27 марта. Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2006.02/9982.jpg" width=200 align=right border=5>01. <B>Antechrist</B><BR>02. <B>Burn In Hell</B><BR>03. <B>House of Pain</B><BR>04. <B>Death & Dying</B><BR>05. <B>Rege Satanas</B><BR>06. <B>Darkest Realm</B><BR>07. <B>A Good Day to Die</B><BR>08. <B>Assassin</B><BR>09. <B>Lucifer Rising</B><BR>10. <B>Blessed Dead</B><BR>11. <B>Hours of Darkness</B><BR>12. <B>Sleep When I'm Dead</B><BR>13. <B>Maleficarvm</B><BR>14. <B>Metal Black</B></P>
+Автор: Vit Belov
+
+### 21.02.2006 news Гитарист VENOM присоединился к SCOOTER
+
+<P>Основатель <STRONG>VENOM</STRONG> гитарист <STRONG>Mantas </STRONG>отправляется в тур с немецкой техно-группой <STRONG>SCOOTER.</STRONG></P>
+Автор: Vit Belov
+
+### 25.05.2006 reviews Отцам пора на покой
+
+<P>К 25-илетию с момента выхода своего первого альбома "Welcome To Hell" отцы блэк-метала Venom решили выпустить новый полноформатник, назвав его очень просто - "Metal Black" (как помним, легендарная пластинка этой группы, вышедшая в 1982 году, называлась "Black Metal"). Совершенно непонятно, зачем группе понадобилось почти шесть лет (после их камбэк-альбома "Resurrection"), чтобы выдать теперь такой вот материал. Думается, подобные песенки можно было сочинить за пару-тройку месяцев. Звук, видимо, сделан специально таким сырым и грязным, чтобы типа напомнить о старых веселых деньках из начала 80-х. Однако вот сам материал-то не получился. 14 новых вещей мало отличаются друг от друга, они выполены на весьма примитивном уровне, эдакая туповатая, простите, долбежка без намека на какие-то новые идеи. А на дворе уже, пардон, 2006 год! Ведь вершин своих первых альбомов Venom с "Metal Black" всё равно не достигнут, так зачем это всё было нужно? Похоже, что бессменный лидер легендарной группы Кронос (а на этот раз трио доукомлектовано его братом-барабанщиком и гитаристом, который вроде бы играл в Venom лет 20 назад и был участником сольного проекта Кроноса) просто играет на культовом статусе Venom - типа, пластинку-то всё равно будут хорошо раскупать. Ведь не стоила овчинка выделки-то. Уже к середине альбом начинает вводить в скуку как своим звуком, так и однообразием песен (из которых можно выделить разве что 'Burn In Hell' и 'Assasin'). Трудно сказать, как слушался бы "Metal Black" лет так 20-25 назад, но сегодня он производит впечатление эдакого музыкального архаизма. Вряд ли данную пластинку можно рекомендовать даже ностальгирующим по началу 80-х меломанам. Оформление буклета производит и то лучшее впечатление, чем музыкальный материал "новых" Venom.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 08.08.2006 reviews Метал, излучающий тьму
+
+<P>Представляю себе лицо поклонника тру-блэка, который, поведясь на обложку и название, приобрел данную пластинку и сел дома в надежде насладиться любимой музыкой. Разочарованию не будет границ. Но вот поклонникам старого доброго Венома, которые в начале 80-х заслушивались альбомом Black Metal и с нетерпением ждали появления новых пластинок группы, продающихся по баснословным ценам на "толпе", данный релиз станет просто бальзамом на душу. Диск Metal Black с первых же рифов напоминает старый Venom образца 82-84 годов своей неповторимостью, жестким и сыроватым саундом и великолепным вокалом Кроноса. Для тех, кто не знаком с творчеством группы могу попытаться охарактеризовать стиль: смесь тягучего, до крайности утяжеленного рок-н-ролла с трэшем, приправленная замогильным вокалом и мрачными текстами.</P>
+<P>Скажу честно, я даже не ждал от старичков такой угарной пластинки. Ураган живого драйва, сметающий все на своем пути, поднимет уровень адреналина в вашей крови по минимуму в два раза - ведь Venom одна из немногих групп, которым всегда удавалось сохранить на студийных записях весь напор концертной энергетики без потери в саунде.</P>
+<P>Удалось им это и на новом альбоме, причем сторицей.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 30.01.2007 news VENOM сменили гитариста
+
+<P>Новым гитаристом <STRONG>VENOM</STRONG> стал некто по прозвищу<STRONG> Rage</STRONG>. Он сменил <STRONG>Mykus</STRONG>, который не сможет соответствовать планам коллектива на все 100 процентов в 2007 году.</P>
+Автор: Vit Belov
+
+### 25.03.2007 reviews Эмбрион трэша
+
+<SPAN>
+<P>Одна из самых культовых пластинок начала 80-х. Если первым альбомом Venom смогли привлечь к себе внимание слушателей и критиков, то Black Metal просто вписал группу золотыми буквами в историю рок-музыки. Конечно, стиль исполняемый группой, имеет мало чего общего с тем блэком, который сейчас нарезают многие коллективы. Скорее, здесь можно говорить о самом музыкальном термине "black metal", изобретенным Конрадом Кроносом и компанией, да о идеологии тектстов. Творчество Venom это скорее трэш метал, еще только зарождающийся, дающий первые всходы. Недаром многие трэшевые коллективы, появившиеся впоследствии, утверждают, что музыка Venom оказала на них огромное влияние. Среди них, например, Kreator и Metallica. Кстати, забавный факт: в буклете данного диска есть фотография афиши того времени, где на весь лист изображен логотип Venom, а ниже, маленькими буквами в качестве специальных гостей указана Металлика. Можно долго спорить, умели ли играть музыканты группы или нет - как правило, эти споры возникали из-за сырого звука, с которым выступали и записывались Venom. На мой взгляд, именно в этом и была фишка команды, этакая визитная карточка, и именно рафинированный звук на альбоме Calm Before The Storm был большой ошибкой - группа потеряла свое лицо. Несмотря на свою рок-н-ролльную составляющую, музыка на альбоме Black Metal - это настоящий брутал для своего времени ( в 1982 году еще не были известны такие направления, как thrash и death).</P>
+<P>Приятным сюрпризом станут 9 бонус-трэков,которыми добит альбом. По сути, ничего особенно эксклюзивного в них нет - как правило это различные версии номеров группы, но и лишними их не назовешь.Я не слышал этот альбом на протяжении долгого времени, и сейчас, переслушав его несколько раз, смею заверить, что пластинка реально "цепляет", чего зачастую не скажешь о многих современных релизах.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+<P></SPAN>&nbsp;</P>
+Автор: Fucker
+
+### 10.05.2007 reviews Английские чернокнижники
+
+<P>Третья номерная работа Venom стала логическим продолжением пластинки Black Metal и укрепила позиции группы в музыкальном шоу - бизнесе. Открывает альбом двадцатиминутная монументальная композиция, по которой был назван релиз - At War With Satan. В стилистике группы изменений не произошло - это все тот же экстремальный и напористый метал, разве что чуть поуверенней и профессиональней сыгранный. Под стать заглавной композиции и остальные шесть боевиков, давно уже ставшие классикой жанра. Отдельное внимание можно уделить последнему трэку Aaaaaaarrghh, который по сути и песней-то можно назвать с трудом - сейчас такие произведения называются коротким и емким термином "нойз". Я не слышал, чтобы кто-то до Venom занимался подобным "творчеством" - еще один наглядный пример, как можно на ровном месте изобрести что-то новое, да еще и не прилагая к этому особых усилий.</P>
+<P>Как и остальные альбомы группы в данном переиздании, At War With Satan изобилует бонус -трэками. Одним словом, неплохой подарок для коллекционеров, а для тех, кто впервые окрывает для себя творчество коллектива я бы порекомендовал слушать этот альбом в паре с предыдущим ( тем паче, что завершающим трэком на Black Metal была превьюшка к следующему релизу).</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ" </P>
+Автор: Fucker
+
+### 04.06.2007 reviews Вершина карьеры
+
+<P>Пластинка Venom, получившая наибольшее хождение на территории СССР во второй половине 80-х благодаря тому, что была издана по лицензии братьями-поляками и на отечественном рынке стоила небольших денег. Possessed был последним альбомом группы, поднявшимся к вершинам хит-парадов. Несмотря на довольно- таки сильный материал и заметно улучшившуюсю технику игры музыкантов, появляются откровенно проходные трэки, а в некоторых "козырных" композициях уже начинают прослеживаться самоповторы. Пройдет еще совсем немного времени и в Venom сменится состав, наступит творческий кризис, приведший к развалу коллектива - но это в будущем, а пока еще английское трио на волне и, несмотря на наступающее на пятки молодое поколение, прочно стоит на ногах, собирая стадионы и выступая хэдлайнерами на крупных фестах. Честно говоря, для себя я выделяю три альбома золотого периода Venom - Black Metal, At War With Satan и Possessed, замыкающий эту трилогию по- настоящему шедевральных работ группы. Это пластинка, которая априори должна быть в коллекции любого поклонника экстремальных направлений 80-х годов прошлого века.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 15.02.2008 news Новый альбом VENOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>VENOM</STRONG> будет называться <STRONG>"Hell"</STRONG> и выйдет в мае на <STRONG>Universal</STRONG>. Вот некоторые названия песен: <STRONG>"Armageddon"</STRONG>, <B>"Straight To Hell"</B>, <B>"Hand Of God"</B>, <B>"USA For Satan"</B>, <B>"The Power & The Glory"</B>, <B>"Evil Perfection"</B>, <B>"Kill The Music" </B>и <B>"Hell"</B>.<BR></FONT></P>
+Автор: Vit Belov
+
+### 28.04.2008 news Ад от VENOM
+
+<P>25 мая на <STRONG>Sanctuary</STRONG> выходит новый альбом <STRONG>VENOM</STRONG> "<STRONG>Hell</STRONG>". Трэк-лист:</P>
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2008.04/12477.jpg" width=241 align=right border=5>01. <B>Straight To Hell</B> <BR>02. <B>The Power And The Glory</B> <BR>03. <B>Hand Of God</B> <BR>04. <B>Fall From Grace</B> <BR>05. <B>Hell</B> <BR>06. <B>Evil Perfection</B> <BR>07. <B>Stab U In The Back</B> <BR>08. <B>Armageddon</B> <BR>09. <B>Kill The Music</B> <BR>10. <B>Evilution Devilution</B> <BR>11. <B>Blood Sky</B> <BR>12. <B>USA For Satan</B> <BR>13. <B>Dirge / The Awakening</B></P>
+<P>Сэмплы восьми песен можно послушать здесь: <A href="http://www.venomslegions.com/multimedia/venom-comp1.htm">http://www.venomslegions.com/multimedia/venom-comp1.htm</A></P>
+Автор: Vit Belov
+
+### 14.07.2008 reviews VENOM – без пяти минут классики металла
+
+<P>“USA For Satan” – эта «шедевральная» вещь завершает новый альбом «отцов» VENOM с ёмким и очень подходящим группе названием “Hell”. Можно как угодно к этому китчу относиться, но, мне кажется, если группа выпустит ещё парочку таких альбомов, как этот или предшественник “Metal Black”, её можно будет смело относить к классикам металла.</P>
+<P>Смех смехом, а пластинки VENOM до сих пор выходят на Noise/Sanctuary, а их лицензированием у нас в стране занимается российское отделение Universal. Более того, кто-то там порешил, что VENOM запросто могут стать козырной картой в колоде этого крупнейшего лэйбла, и выпустил “Hell” в диги-паке. Я, вообще, никогда не видел металлических релизов от Universal в диги-паке (ну, может RAMMSTEIN), а тут VENOM. Отмечу, что Союз с прошлым альбомом тоже не скупился на оформление и «зарядил» картонный слип-кейс. В общем, с поддержкой лейблов у VENOM всё в порядке, несмотря на их «антиклерикальные» текста. Отмечу, ради хохмы, что Universal вставили, как обычно, на обложку свой логотип «не для продажи за пределами России», не было бы ничего смешного, если бы сей логотип не был размещён вверх ногами. Ну, Сатана, так вверх ногами. Что же мы услышим на этой аццкой пластинке? Да всё тоже. Энергичный, великолепно «безбашенно» реализованный материал с однообразными, но зажигательными эпиками о любви к «Тёмному Властелину» и выпуклым вокалом вечного Кроноса. Ни больше, ни меньше. Ещё пару альбомов и VENOM вспомнят, и они встанут в один ряд с MOTORHEAD, например, чью музыку их творчество уже и сейчас напоминает, а через пару лет Кронос и сам запутается во всех этих «Армагеддонах», «Адах» и «Блэк-металах». На закуску нам предлагают послушать “In League With Satan” и “Burn In Hell” в концертном исполнении. Хор из «поклонников Сатаны» на них звучит достаточно слаженно.</P>
+<P>Очень весёлая работа. Надо только понять этот юмор и не задремать. VENOM всегда не очень-то хватало «чувства меры» в своих сокровенных высказываниях. Не хватает его и сейчас, “Hell” слишком длинен. Советую всем старым фанатам этой группы, несколько сильных моментов на этой пластинке есть. Остальным же долго придётся объяснять, «над чем смеяться».</P>
+Автор: Vit Belov
+
+### 05.04.2009 news VENOM переиздадут &quot;Black Metal&quot;
+
+<P>В этом году выйдет переиздание классического альбома <STRONG>VENOM "Black Metal"</STRONG>. В качестве бонуса на издание попадёт DVD с записью концерта группы 1984-го года в <STRONG>Hammersmith Odeon "7th Date of Hell"</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.04.2009 news Cronos потерял брата
+
+<P>Барабанщик <STRONG>VENOM</STRONG> и брат лидера этого коллектива <STRONG>Cronos'а</STRONG> <STRONG>Antony "Antton" Lant </STRONG>решил покинуть группу и сконцентрироваться на собственном проекте <STRONG>DEF-CON-ONE.</STRONG></P>
+Автор: Vit Belov
+
+### 15.06.2010 news Нужно сходить?:  “VENOM в Москве”
+
+<FONT face=Verdana color=#ddd9d0 size=3><SPAN class=tit1>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 10pt"><FONT face=Verdana color=#ddd9d0 size=3><STRONG><IMG height=534 alt="" hspace=0 src="/images/news_rus/2010.06/16846.jpg" width=400 align=right border=5>Нужно сходить?:&nbsp; “VENOM в Москве”</STRONG></FONT></P>
+<P class=MsoNormal style="MARGIN: 0cm 0cm 10pt"></SPAN></FONT>24 июня в Москве выступят легендарные<STRONG> VENOM</STRONG>. Группа, которая стояла у истоков любого современного брутального стиля музыки. Этот визит в Россию станет первым за более чем 30-летнюю историю британцев. Мощное драйвовое концертное звучание не раз признавалась поклонниками тяжёлой музыки. Группа выпустила целых шесть официальных концертных альбомов, по одному на пять лет, а если учесть, что группа ещё и два раза распадалась, получится по одному «зальнику» на меньший период. Последний студийный альбом <STRONG>VENOM “Hell”</STRONG> вышел в 2008 году, но это не самое важное, ведь выступает группа с проверенной классикой. Cronos недавно высказался не очень тепло по поводу последних песен. Вот сэт-лист шоу VENOM в Чили в конце прошлого года, что-то подобное <STRONG>VENOM</STRONG> сыграют и в «Точке»:</P>
+<P>1. <STRONG>Black metal</STRONG><BR>2.<STRONG> Welcome To Hell</STRONG><BR>3. <STRONG>Bloodlust<BR></STRONG>4. <STRONG>Antechrist<BR></STRONG>5. <STRONG>Straight To Hell</STRONG><BR>6. <STRONG>Countess Bathory</STRONG><BR>7. <STRONG>7 Gates Of Hell</STRONG><BR>8. <STRONG>Hell<BR></STRONG>9. <STRONG>Medley Of Mayhem</STRONG><BR>10. <STRONG>At War With Satan</STRONG><BR>11. <STRONG>Buried Alive</STRONG><BR>12. <STRONG>The Evil 1</STRONG><BR>13. <STRONG>Resurrection</STRONG><BR>14. <STRONG>Burn In Hell</STRONG><BR>15. <STRONG>Warhead</STRONG><BR>16. <STRONG>Metal Black</STRONG><BR>17. <STRONG>In League With Satan</STRONG><BR>18. <STRONG>Witching Hour</STRONG></P>
+<P>В настоящее время в группе остался лишь один оригинальный участник - басист/вокалист <STRONG>Cronos</STRONG>. Думается, это не станет препятствием для угара. Бас и узнаваемый вокал – половина звучания <STRONG>VENOM</STRONG>. Последним прибавлением в семье <STRONG>VENOM</STRONG> стал барабанщик <STRONG>Danny Needham</STRONG>, который сейчас играет с бывшим вокалистом <STRONG>BLACK SABBATH Tony Martin</STRONG>. Интересно, что другой оригинальный член <STRONG>VENOM Mantas</STRONG> вместе с бывшим барабанщиком <STRONG>Antton </STRONG>организовал новую группу <STRONG>DRYLL</STRONG>, которая пишет свой дебют, но это уже другая история.</P>
+<P>Пропускать концерт <STRONG>VENOM</STRONG> попросту нельзя. Доедут ли до нас англичане ещё раз неизвестно, а если и доедут, то в каком составе? Ведь ни один оригинальный участник коллектива не провёл в ней всю её историю.&nbsp; </P>
+<P>Ниже можно посмотреть два ролика из Бразилии, где <STRONG>VENOM</STRONG> выступили 12 декабря 2009 года. Качество не очень, но драйв рвётся из колонок. </P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/vJrc5qauDk8&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/vJrc5qauDk8&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/199Y6GOeaQQ&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/199Y6GOeaQQ&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 27.08.2010 news Очередной проект бывших участников VENOM
+
+<P><IMG height=354 alt="" hspace=5 src="/images/news_rus/2010.08/17115.jpg" width=400 align=right vspace=5 border=0>Бывшие участники <STRONG>VENOM</STRONG> - <B itxtvisited="1">Jeff "Mantas" Dunn</B> (гитара), <B itxtvisited="1">Antony "Antton" Lant</B> (ударные; брат <STRONG>Кроноса</STRONG> - фронтмена <B itxtvisited="1">VENOM</B>) и <B itxtvisited="1">Tony "The Demolition Man" Dolan</B> (бас, вокал) объединили силы в создании новой группы, названной <B itxtvisited="1">PRIME EVIL</B>. В настоящий момент группа работает над материалом для своего дебютного альбома. На диске, также, примет гостевое участие ещё один бывший участник <B itxtvisited="1">VENOM</B>, гитарист <B itxtvisited="1">Mike Hickey</B>. Есть вероятность, что <STRONG>Mike</STRONG> войдёт в гастрольный состав коллектива.<BR itxtvisited="1"><STRONG></STRONG></P>
+<P><STRONG>"Prime Evil"</STRONG> - такое название носил&nbsp;шестой студийный альбом <B itxtvisited="1">VENOM</B>, вышедший в 1989. На этом диске, в качестве вокалиста британцев,&nbsp;впервые выступил&nbsp;<STRONG>Tony "The Demolition Man" Dolan</STRONG>.</P>
+Автор: Headcrusher
+
+### 16.11.2010 news Журнал Decibel выпустил специальный коллекционный номер, посвящённый стилю Black Metal
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17617.jpg" width=320 height=429>В специальный выпуск журнала <STRONG>Decibel</STRONG>, получивший название "<STRONG>Black Metal Hall Of Fame</STRONG>", вошло восемь историй из общирного склепа стиля&nbsp;<STRONG>Black Metal</STRONG>.&nbsp;Выпуски журнала&nbsp;серии <STRONG>"Hall Of Fame"</STRONG> рассказывают об истории создания наиболее важных альбомов экстремальной музыки, а так же, содержат интервью с музыкантами, принимавшими участие в записи каждого&nbsp;конкретного альбома.&nbsp;</P>
+<P>Перечень историй вошедших в журнал:</P>
+<P><STRONG>BURZUM</STRONG> - "Filosofem" (1996) *<BR itxtvisited="1"><B itxtvisited="1">DARKTHRONE</B> - "Transilvanian Hunger" (1994)<BR itxtvisited="1"><B itxtvisited="1">EMPEROR</B> - "In The Nightside Eclipse" (1995)<BR itxtvisited="1"><B itxtvisited="1">ENSLAVED</B> - "Frost" (1995)<BR itxtvisited="1"><B itxtvisited="1">IMMORTAL</B> - "At The Heart Of Winter" (1999)<BR itxtvisited="1"><B itxtvisited="1">ROTTING CHRIST</B> - "Thy Mighty Contract" (1993) *<BR itxtvisited="1"><B itxtvisited="1">SATYRICON</B> - "Nemesis Divina" (1996) *<BR itxtvisited="1"><B itxtvisited="1">VENOM</B> - "Welcome To Hell" (1981)<BR itxtvisited="1">*<EM>прежде никогда не публиковались.<BR itxtvisited="1"></P></EM>
+<P>Данный номер журнала не доступен для подписчиков. Его можно преобрести в некоторых розничных магазинах или&nbsp;заказать онлайн по адресу: <A href="http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue">http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue</A></P>
+Автор: Headcrusher
+
+### 04.07.2011 news Трек-лист нового VENOM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=271 alt="" hspace=0 src="/images/news_rus/2011.07/19868.jpg" width=400 align=right border=0>Новый альбом ветеранов сатанинского движения <STRONG>VENOM</STRONG> получил название <STRONG>"Fallen Angels". </STRONG>Пластинка должна выйте в августе/сентябре на <STRONG>Universal Music</STRONG>. Сведение сделал <STRONG>Tom Belton </STRONG>в своей лондонской студии. Названия песен нового CD:</FONT></P>
+<P>* <B>Hammerhead</B><BR>* <B>Nemesis</B><BR>* <B>Pedal To The Metal</B><BR>* <B>Lap Of The Gods</B><BR>* <B>Damnation Of Souls</B><BR>* <B>Beggarman</B><BR>* <B>Hail Satanas</B><BR>* <B>Sin</B><BR>* <B>Punk's Not Dead</B><BR>* <B>Death Be Thy Name</B><BR>* <B>Lest We Forget</B><BR>* <B>Valley Of The Kings</B><BR>* <B>Fallen Angels</B></P>
+<P>По словам лидера группы <STRONG>Cronos</STRONG>, новые песни нужно сравнивать с вещами с альбома "<STRONG>Metal Black</STRONG>", нежели с композициями с последнего на сегодня "<STRONG>Hell</STRONG>". Главной причиной этого <STRONG>Cronos</STRONG> назвал то, что его брат и бывший барабанщик <STRONG>VENOM</STRONG> <STRONG>Antony Lant </STRONG>музыкант, играющий Nu-Metal, что отразилось на звучании "<STRONG>Hell</STRONG>".</P>
+<P>В прошлом июне<STRONG> VENOM</STRONG> выступили в московском клубе "<STRONG>Точка</STRONG>". Фото: <A href="/ru/galleries/1/508/">http://musica.mustdie.ru/ru/galleries/1/508/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Лучший альбом VENOM

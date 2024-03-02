@@ -29,6 +29,28 @@ Christoph Grьnert (bass)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.11.2002 reviews Очередной гибрид
+
+<p>«Готик / прог» (с) Дофф. Да, это он самый и есть. Именно «готик», именно «прог». Это не первое моё знакомство с подобными этому опытами по скрещиванию, казалось бы, совершенно неподходящих для этого стилей. У BRAINDANCE это получилось ОЧЕНЬ хорошо. У DESPAIRATION – просто хорошо. Любопытно, что здесь можно встретить не только эти два эти стиля, мягко и не без доли таланта слитые воедино. Начинается вторая вещь, и перед глазами встаёт незабвенный образ… DEPECHE MODE. Надо полагать, в основном благодаря вокалу, который до жути похож на Гэхановский. Впрочем, чем больше слушаешь эту вещицу, тем сильнее ассоциации уже не с DEPECHE MODE, а с DREADFUL SHADOWS. А взять восьмой трэк! Те же DEPECHE MODE, те же DREADFUL SHADOWS, сдобренные прогом и электронной музыкой в меру мрачных интонаций. И что? Да ничего. Просто-напросто весьма любопытный альбом группы, которая ИЩЕТ, а не идёт проторенной дорожкой.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 05.04.2003 news DVS Records signs 3 new bands
+
+<p>Official postment: We are proud to announce 3 new sigings. First we signed German ambient gothic band DESPAIRATION, to release a new album in November of this year. The album will be entitled "Music For The Night" and is a philosophical-literary concept album which describes the spiritual journey through one intitial night. Secondly we have signed the young Italian progressive metal band DYNAMIC LIGHTS, who have released a well-received EP last year, entitled "Resurrection". We will release a full-length album in spring 2004. And last but not least we signed ASCENSION THEORY, a project of the USA by members of the progband Aztec Jade. They released an album on their own last year and we will release the second one someday in 2004.</p>
+
+Автор: Vit Belov
+
+### 14.06.2003 news Музыка на ночь
+
+<p>Немецкая ambient/gothic формация DESPAIRATION упорно работает над своим четвертым альбомом "Music For The Night". Выход его намечен на октябрь-ноябрь 2003 года на голландском лэйбле DVS Records. В альбом войдут следующие вещи:</p>
+<p> 1. Music For The Night <BR> 2. Drift <BR> 3. Phantastronaut <BR> 4. River Of Perdition <BR> 5. Underground Poetry<BR> 6. Madrigal <BR> 7. L'avion Ivre <BR> 8. Asteroid YB5 <BR> 9. Firebird <BR> 10. Moondrawn Awakening <BR> 11. Proteus <BR> 12. Zeitgeist <BR> 13. April Mourning <BR> 14. Song Of The Nightingale <BR> 15. Nuit En Enfer <BR> 16. Colourado Mindtrip <BR> 17. Space Sound Park <BR> 18. Penelope</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

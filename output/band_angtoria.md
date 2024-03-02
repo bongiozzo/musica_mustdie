@@ -17,6 +17,19 @@ Orchestral Metal from Sweden/England
 * C группой "Sarah Jezebel Deva" Sarah Jezebel Deva
 * C группой "Abyssos" Chris Rehn
 
+## Публикации
+
+### 26.02.2006 news ANGTORIA выпускают дебютный альбом
+
+<P><B>ANGTORIA</B>, результат сотрудничества <B>Sarah Jezebel Deva (CRADLE OF FILTH, THERION, MORTIIS</B> и др.) и братьев <B>Chris&nbsp;(ABYSSOS)</B> и <B>Tommy Rehn</B>, подписали в ноябре прошлого года контракт с <B>Listenable Records</B>. Дебютный альбом специалистов по orchestral metal называется <B>"God Has A Plan For Us All"</B> и выходит в свет 27 апреля, притом кроме обычного варианта, будет и формат дигипак, где фанаты насладятся бонус-трэком 'A Child That Walks The Path Of A Man'.</P>
+Автор: Ixtiandr
+
+### 03.02.2009 news Sarah Jezebel Deva работает над соло-альбомом
+
+<P>Бывшая вокалистка <STRONG>CRADLE OF FILTH</STRONG> и <STRONG>ANGTORIA Sarah Jezebel Deva</STRONG> работает над своим сольным альбомом <STRONG>"A Sign of Sublime" </STRONG>в Австралии. Барабаны уже записал <STRONG>Max Blunos</STRONG> из <STRONG>TRIGGER THE BLOODSHED</STRONG>. Релиз этой работы состоится позже в&nbsp;наступившем году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

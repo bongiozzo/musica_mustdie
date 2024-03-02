@@ -76,6 +76,203 @@ Chaos - keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.12.2001 reviews Вот он супер-диск!
+
+<p>Долго я ждал чего-то такого. Чтобы и не слышать никогда названия, чтобы не из Москвы и чтобы так понравилось. Наконец-то у нас появился black-doom европейского образца. Хочется обратить внимание, что диск вышел на More Hate Productions, а мы его и видеть не видели. Рассказываю по порядку. Группа из Выборга, что где-то у Санкт-Петербурга, играют супер-мелодичный black-doom metal. При чём мелодизм такой атмосферный, создающий настроение. Прописано всё великолепно, что удивляет. Также музыка очень разнообразная, в каждой песне можно насчитать по три-четыре перемены мелодии. Здесь Вы найдёте всё от местами забойного black-metal до инструментала, по настроению не уступающего Catharsis. Зацените этот диск, если любите такую музыку, я Вас не обманываю. У меня появился ещё один фаворит в России, а это не может не радовать. Великолепно грустно и достаточно тяжело.</p>
+
+Автор: Vit Belov
+
+### 21.06.2002 news MassaBrutto Radioshow #83, 21 Jun 2002.
+
+<p>Playlist: <BR><BR> 1. GREAT SORROW - Solar Diamond Valley-1 (MetalAgen Recs)<BR> 2. POMIDOROFF - Нядзеля (band)<BR> 3. SUFFERER - Палач (DeathBell Prods)<BR> 4. PSILOCYBE LARVAE - Sun Of The Sleepless (Black Side Prods)<BR> 5. LEAD WEIGHT - Last Dance (band)<BR> 6. ASGUARD - Black Fire Land (band/Fatal Ecstasy Prods)<BR> 7. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 8. RASTA - Feel Like Hate (band)<BR> 9. KATAR - New Sermon (More Hate Prods)<BR> 10. S.C.A.L.P. - Silentium (Rest In Peace Prods)<BR> _________________________________________________________<BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 21.06.2002 news MassaBrutto Radioshow #83, 21 Jun 2002.
+
+<p>Playlist: <BR><BR> 1. GREAT SORROW - Solar Diamond Valley-1 (MetalAgen Recs)<BR> 2. POMIDOROFF - Нядзеля (band)<BR> 3. SUFFERER - Палач (DeathBell Prods)<BR> 4. PSILOCYBE LARVAE - Sun Of The Sleepless (Black Side Prods)<BR> 5. LEAD WEIGHT - Last Dance (band)<BR> 6. ASGUARD - Black Fire Land (band/Fatal Ecstasy Prods)<BR> 7. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 8. RASTA - Feel Like Hate (band)<BR> 9. KATAR - New Sermon (More Hate Prods)<BR> 10. S.C.A.L.P. - Silentium (Rest In Peace Prods)<BR> _________________________________________________________<BR> RADIOSTATION: Style Radio WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 12.07.2002 news MassaBrutto Radioshow #89, 12 Jul 2002
+
+<p>Special guest: Belobrickiy Vitaliy PSILOCYBE LARVAE (Russia) leader (email: vital_pslr@mail.ru)<BR><BR> Playlist:<BR><BR> 1. MANGLER - Risen From Mud (DAC Prods)<BR> 2. EVTHANAZIA - Overdose (Funeral Pyre Prods)<BR> 3. PSILOCYBE LARVAE - Yearning Spirit (Black Side Prods)<BR> 4. PSILOCYBE LARVAE - Stigmata (Black Side Prods)<BR> 5. PSILOCYBE LARVAE - The Mystery (Black Side Prods)<BR> 6. PSILOCYBE LARVAE - Raped Angels (Black Side Prods)<BR> 7. PSILOCYBE LARVAE - Burning Sunset (Black Side Prods)<BR> 8. CRYSTAL ABYSS - First Born Snow (band) <BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.07.2002 news MassaBrutto Radioshow #89, 12 Jul 2002
+
+<p>Гость программы: Белобрицкий Виталий лидер коллектива PSILOCYBE LARVAE (Выборг, Россия) email: vital_pslr@mail.ru <BR><BR> Playlist:<BR><BR> 1. MANGLER - Risen From Mud (DAC Prods)<BR> 2. EVTHANAZIA - Overdose (Funeral Pyre Prods)<BR> 3. PSILOCYBE LARVAE - Yearning Spirit (Black Side Prods)<BR> 4. PSILOCYBE LARVAE - Stigmata (Black Side Prods)<BR> 5. PSILOCYBE LARVAE - The Mystery (Black Side Prods)<BR> 6. PSILOCYBE LARVAE - Raped Angels (Black Side Prods)<BR> 7. PSILOCYBE LARVAE - Burning Sunset (Black Side Prods)<BR> 8. CRYSTAL ABYSS - First Born Snow (band)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 17.05.2003 reviews Новая работа одной из лучших российских underground-групп
+
+<p>Не перестаю удивляться нашей российской metal-действительности. С одной стороны полнейший упадок, как и во всех отраслях, а с другой - появление отличных и разнообразных команд с периферии нашей необъятной... Уже второй альбом группы из Выборга Psylocybe Larvae в моём проигрывателе, и вновь положительнейшие эмоции. Странно, но предыдущий альбом так до широких масс и не дошёл. Слабая промоутерская работа на территории России (Москвы, в первую очередь) не позволила PL достичь некоторой известности и сильно пополнить количество своих фэнов. 'Agony' продолжает линию предыдущей работы. Небыстрая melodic black-metal музыка с мелодиями насколько печальными и безнадёжными, настолько и агрессивными. Есть такое очень субъективное понятие хитовость мелодического материала... Так вот сами мелодии мне понравились чуть меньше, чем на предшественнике. Советую всем, кто интересуется пообной музыкой, а также тем, кто хочет поддержать российский underground.</p>
+
+Автор: Vit Belov
+
+### 01.11.2003 news Генеральная репетиция презентации нового альбома группы Кома
+
+<P>Генеральная репетиция презентации нового альбома группы <B>Кома</B> пройдет в клубе <B>Старый Дом</B> при поддержке друзей : </P>
+<P><B>Psilocybe Larvae</B></P>
+<P><B>Stalwart </B></P>
+<P><B>Face-X</B><BR>Адрес клуба: Проспект Металлистов д.115.Проезд от ст.м. "Площадь Ленина", выход на Финдляндский вокзал, автобус или маршрутка н.117<BR><BR></P>
+Автор: Vit Belov
+
+### 14.11.2003 news INFREQUENT GUESTS I
+
+<P><SPAN style="COLOR: #ffffff"><U>06 декабря 2003 года, Москва, Клуб "Релакс"</U></SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B>MUSICA. Mustdie .ru представляет:</B></SPAN></P>
+<P><SPAN style="COLOR: #ffffff">первый фестиваль групп, редко выступающих в Москве, <I>'INFREQUENT GUESTS I'</I></SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B><IMG height=177 alt="" hspace=0 src="/images/news_rus/2003.11/5444.jpg" width=250 align=left border=0>MORTEM</B> (death-metal, Москва)</SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B>PSILOCYBE LARVAE</B> (black-death-metal, Выборг)</SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B>PAGAN REIGN*</B> (pagan-metal, Тверь)</SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B>MIND ECLIPSE</B> (black-death-metal, Ярославль)</SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B>НАХЕМА</B> (sympho-black-metal, Коломна)</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">+спец. гости <B>SEDUCER's EMBRACE</B></SPAN></P>
+<P><SPAN style="COLOR: #ffffff">* - в рамках фестиваля пройдёт московская презентация нового альбома PAGAN REIGN</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Подробнее о фестивале читайте <A href="/ru/articles/1/50497/">здесь.</A></P>
+<P><SPAN style="COLOR: #ffffff">Адрес клуба: м.Севастопольская (м.Каховская), 1й вагон из центра,от метро 5 минут пешком, ул.Большая Юшуньская, д.1а, гостиница "Севастополь", корпус 6.</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Цена билетов: 150 рублей (в предварительной продаже), 160 рублей (по флайеру) и 180 рублей (без флайера)</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Билеты уже можно приобрести в "Зиг-Заг Рок-галлерее" на Арбатской, "У дяди Бори" на Кузнецком мосту, "Рок-Арсенале" на Курской.</SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Флайера во всех рок-магазинах города.</SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B>Специальная цена 140 рублей в нашем <A href="/ru/shop/tickets/">интернет магазине.</A></B></SPAN></P>
+<P><SPAN style="COLOR: #ffffff">Качайте флайер <A href="/images/news_rus/2003.11/5565.jpg">здесь.</A></SPAN></P></SPAN>
+Автор: Vit Belov
+
+### 15.11.2003 articles PSILOCYBE LARVAE - очередная группа, больше популярная за рубежом
+
+<B><I>
+<P><IMG height=188 alt="" hspace=0 src="/images/articles_rus/2003.11/5466.jpg" width=250 align="left" border=0>PSILOCYBE LARVAE</B> - очень талантливый коллектив из Выборга. Их black-doom-death-metal не оставит равнодушными любителей таких коллективов, как <B>OPETH</B> или <B>GRAVEWORM</B>. Рекомендую.</P></I>
+<P>Население Выборга по последним данным приближается к 80 тысячам человек. Вряд ли стоит ожидать, что в городе происходят какие-то заметные события из мира музыки, но близкое расположение к Санкт-Петербургу позволяет группам хотя бы достаточно регулярно выступать. Нашим собеседником стал Виталий, основатель группы…</P>
+<P>“<B>Про выборгскую сцену сложно что-то говорить. Здесь только мы, плюс еще одна банда EMPIRE OF СRIMES, играют похожую музыку, так сказать, преемственность поколений. Иногда проводим концерты, питерских привозим, правда, сейчас все это поутихло. Но народ тяжеляк любит. Ну, а мы, в основном, в Питере играем, хотя там тоже клубов нормальных не осталось, только Орландина, но это чистый андерграунд, хотя звук там неплохой, еще, пожалуй, Red Club</B>”.<BR><B>PSILOCYBE LARVAE</B> были образованы в январе 1996 года Виталием Белобрицким. Издав летом 2000 года свой первый альбом ‘<B>Stigmata</B>’ в демо-варианте, группа стала обладателем титула “Демо месяца” в журнале LEGACY. Лишь после этого PL заключили контракт с питерской <B>BLACK SIDE PROD</B>. В декабре 2002 года на том же лэйбле вышел новый альбом этой нетривиальной группы ‘<B>Agony</B>’.</P>
+<P>Q: Я был в Питере, и мне тамошняя металл-тусовка показалась несколько вяловатой. Что ты думаешь по этому поводу?<BR>“<B>Когда как, бывали неплохие сейшены, всё зависит от того, кто играет и где. Полигон всегда марку держал, да и народ туда ходил. Но в принципе, ты прав. Народ, особенно в последнее время, стал вялый, то ли зажрались, то ли еще хрен знает что. Да и уровень команд всегда был низкий. А может погода свое действие оказывает, сыро, мрачно”.</B><BR>Q: Слышал, ваши альбомы будут переизданы на <B>CD-MAXIMUM</B>. Объясни причину подобного положения дел? На что могут рассчитывать любители Вашей музыки на этих переизданиях?<BR>“<B>У CD-Maximum хорошая дистрибуция, да и Black Side сами не против того, чтобы нас продать (грубо как-то прозвучало). О большем пока рано что-то говорить, пока все на стадии переговоров. Будем думать”.<BR></B>Q: Как продаётся ваш последний альбом? Что-нибудь можешь сказать по этому поводу?<BR>“<B>Альбом продается, много меняемся с буржуями, они, кстати, очень хорошо восприняли новый альбом. Но, опять же, дистрибуция слабая. До платинового альбома еще далеко</B>”.<BR>Q: Как думаешь, какое место занимает Ваша группа на просторах бывшей СССР? По факту и по потенциалу? Кто занимает первое место?<BR>“<B>Не мне это решать, и вообще, если музыкант начинает думать о каких-то местах, рейтингах, а не о музыке, настоящего творчества не получится... получится дерьмо</B>”.<BR>Q: Ваши ближайшие планы...<BR>“..<B>не сдохнуть :)”</P></B>
+<P>6 декабря 2003 года состоится концерт под эгидой MUSICA.mustdie, в котором примет участие группа <B>PSILOCYBE LARVAE</B>.<BR></P>
+Автор: Vit Belov
+
+### 01.01.2004 news Эксклюзивный концерт в Р-клубе
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" UNSELECTABLE="on" width="100%"></TR>
+<TR UNSELECTABLE="on" hb_tag="1"></TR></TBODY></TABLE>
+<P>JC-SOUND PROD. представляет 31 января в Р-клубе&nbsp; эксклюзивный концерт, в котором примут участие одни из самых лучших представителей нашей отечественной metal-сцены! Такой сильный состав участников в одном концерте за последнее время явление достаточно редкое и по-своему в некоторой степени сенсационное! Судите сами на одной площадке выступят:</P>
+<P><B><IMG height=214 alt="" hspace=10 src="/images/shows_rus/2004.01/5855.jpg" width=300 align="left" border=0>CATHARSIS<BR>РОГАТЫЕ ТРУПОЕДЫ</B></P>
+<P><B>PSILOCYBE LARVAE</B> (г. Выборг; black/death - одна из самых перспективных и уважаемых команд нашей сцены);<BR><B>GREAT SORROW</B>&nbsp;(г. Санкт-Петербург; второй концерт в Москве после воссоединения);<BR><B>Затмение</B> (хеви/пауэр).</P>
+<P>Первая группа появится на сцене в 17:30!<BR>Билеты в предварительной продаже в магазинах "Зиг-Заг" и "У дяди Бори" - 150р.<BR>В день концерта с флаером - 180; без - 200!<BR><BR>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21</P>
+Автор: Dimas
+
+### 08.02.2004 news Праздничный концерт
+
+<P><A href="http://jcsound.darkside.ru/">JC-SOUND PROD</A>. представляет:</P>
+<P><IMG height=200 alt="" hspace=10 src="/images/shows_rus/2004.03/6061.jpg" width=300 align="left" border=0><B>07 марта</B> в московском <B>Р-Клубе</B>, накануне одного из самых светлых и радостных дней в году, состоится праздничный концерт, посвящённый всем нашим красивым, дорогим и любимым девушкам! Со своими поздравлениями ко всей прекрасной половине человечества в стенах Р-клуба выступят:</P>
+<P><B>CATHARSIS</B>&nbsp;(специальная праздничная программа)</P>
+<P><B>SEDUCER'S EMBRACE</B>&nbsp;(feat. Некрозавр - <B>РОГАТЫЕ ТРУПОЕДЫ</B>)<BR><B>PSILOCYBE LARVAE</B>&nbsp;(г. Выборг - на этот раз обязательно доедут до Москвы)<BR><B>РЕТРИЕМ</B><BR><B>OKTAGON</B></P>
+<P>Начало праздника в <B>18:00!<BR></B>Цена билетов в предварительной продаже в кассе клуба и магазине «У дяди Бори» - <B>150р.</B></P>
+<P>В день концерта в кассе клуба для девушек - <B>150р.</B><BR>для молодых людей по флаеру - <B>180р</B>., без - <B>200р</B>.</P>
+<P>Адрес клуба: М. Тульская 4-й Рощинский проезд, 19/21</P>
+Автор: Dimas
+
+### 30.06.2005 news В России куют металл!!!
+
+<P>В ближайшее время, компания <B>CD-MAXIMUM</B> планирует порадовать многих любителей тяжелой музыки "<B>made in Russia</B>". <BR><BR>Первыми ласточками станут долгожданные альбомы&nbsp;групп <B>HIERONYMUS BOSCH "Artificial Emotions"</B> (дата релиза - <B>11 июля</B>) и <B>ТЕМНОЗОРЬ "Вольницей В Просинь Ночей"</B> (дата релиза - <B>18 июля</B>). <BR><BR>Также, в течение <B>июля-августа</B>, выйдут:<BR><BR>- ремастированные переиздания двух альбомов талантливых выборгских музыкантов <B>PSILOCYBE LARVAE "Stigmata"</B> и <B>"Agony"</B>, которые будут дополнены бонусом и мультимедиа-секцией. Превосходный black doom европейского образца. <BR><BR>- ремастированное переиздание второго альбома ярославских музыкантов <B>MIND ECLIPSE "Chaos Of Chronicles"</B> с бонусами и совершенно новым оформлением. И, конечно, новый альбом группы <B>"Utopia: Formula Of God"</B>. Высококачественный, сверхскоростной и мегабрутальный death black metal.<BR><BR>- новый альбом беларусов <B>ASGUARD "Dreamslave"</B>. Скоростной, агрессивный и очень мелодичный death black metal с оркестровой секцией струнных и духовых инструментов.<BR><BR>- дебютный альбом истринской группы <B>INSIDE YOU "Lost In The Faith"</B>. Атмосферный gothic doom death metal, напоминающий лучшие образцы классики стиля середины девяностых.<BR><BR>- новый концептуальный и эпохальный супер-альбом легендарных королей дизель-рока <B>KRUGER "Душа Изувера"</B>. <BR><BR>- мини-альбом группы <B>АРДА</B> (открытие 2004 года по опросу читателей DARK CITY) <B>"Экзорцист"</B>. Fantasy power metal. В релиз войдут пять новых песен, из которых только одна войдет в полнометражную работу группы, которая должна выйти в конце 2005 года.<BR><BR>- новый альбом московской группы <B>MORTEM "Corpsophagia"</B>. Зачинатели отечественного brutal death обещают очень жирное мясцо с крутым звуком.<BR><BR><B>5 сентября</B> - официальная дата релиза дебютного альбома группы <B>ФАКТОР СТРАХА "Театр военных действий. Акт первый"</B>. Это совместный проект <B>Кирилла НЕМоляева </B>и группы <B>ТРИЗНА</B>. Вас ждет modern metal с тяжёлыми запевами и очень мелодичными припевами, аналогов которому нет. Альбом записан при участии <B>Дмитрия Борисенкова (ЧЕРНЫЙ ОБЕЛИСК)</B> и <B>Максима Самосвата (ЭПИДЕМИЯ, MECHANICAL POET)</B>.<BR></P>
+Автор: Dimas
+
+### 11.08.2005 news Переиздания PSILOCYBE LARVAE
+
+<P><STRONG><A href="http://www.cd-maximum.ru/"><IMG height=250 alt="" hspace=15 src="/images/news_rus/2005.08/9086.jpg" width=250 align=left border=0>CD-MAXIMUM</A></STRONG> представляет&nbsp;ремастированные переиздания двух альбомов талантливых выборгских музыкантов <B>PSILOCYBE LARVAE "Stigmata"</B>&nbsp; и <B>"Agony"</B>,&nbsp;дополненные бонусами и мультимедиа-секцией. </P>
+<P><STRONG>"Stigmata"</STRONG> -&nbsp;дебютный альбом российской команды. Превосходный black doom metal европейского образца. Очень мелодичный, очень атмосферный и очень интересный. Эта работа ничуть не уступает мировым аналогам, ни по качеству записи, ни по технике музыкантов, ни по красоте мелодий, а иногда, даже и превосходит их.</P>
+<P>&nbsp;</P>
+<P>&nbsp;</P>
+<P><STRONG><IMG height=250 alt="" hspace=15 src="/images/news_rus/2005.08/9087.jpg" width=250 align=right border=0></STRONG></P>
+<P><STRONG></STRONG>&nbsp;</P>
+<P><STRONG>"Agony"</STRONG> - второй альбом российских музыкантов. Великолепный мелодичный материал, в котором нашлось место и black, и death, и doom metal. Более медленный материал по сравнению с дебютом, но в то же время более тяжелый и агрессивный, по-прежнему такой же атмосферный и меланхоличный. Материал не уступает мировым образцам в этом жанре.</P>
+<P>Диски можно приобрести в "Горбушкином Дворе" в магазине <STRONG>Metal & Progressive</STRONG> (м. Багратионовская) и в интернет-магазинах <A href="/ru/shop/">musica</A> и <A href="http://www.soundcheck.ru/">soundcheck</A>. Также, спрашивайте в магазинах своего города.</P>
+Автор: Dimas
+
+### 15.05.2006 news PSILOCYBE LARVAE возвращаются
+
+<P>После продолжительного затишья, связанного с поиском музыкантов и переездом в город Санкт-Петербург, маниакально-депрессивный коллектив<STRONG> PSILOCYBE LARVAE</STRONG> снова в строю. Новыми участниками группы стали: <STRONG>Liga</STRONG> - басс, <STRONG>Сhaos</STRONG> - клавиши.</P>
+Автор: Vit Belov
+
+### 05.02.2007 news PSILOCYBE LARVAE закончили запись
+
+<P>Маниакально-депрессивный коллектив <STRONG>PSILOCYBE LARVAE</STRONG> закончил запись и сведение третьего полноформатного альбома под названием "<STRONG>Non-Existence</STRONG>". Материал был записан в<STRONG> DDT Records</STRONG> под руководством <STRONG>Юрия Смирнова</STRONG> (<STRONG>Amatory, AnimalДжаз, Scung</STRONG>), сведение альбома происходило в польской <STRONG>Studio Hertz</STRONG> знаменитыми братьями<STRONG> Wieslawski</STRONG> (<STRONG>Vader, Decapitated</STRONG>). Мастеринг альбома планируется в феврале месяце в не менее знаменитой шведской <STRONG>Cutting Room</STRONG>. Трэк лист: </P>
+<P>1. <STRONG>Castaway</STRONG> <BR>2. <STRONG>Sleepwalkers <BR></STRONG>3. <STRONG>Let The Flame</STRONG> <BR>4. <STRONG>Cold Desert Of Eternity</STRONG><BR>5. <STRONG>Non-Existent World</STRONG><BR>6. <STRONG>Great Silence</STRONG><BR>7. <STRONG>Asylum</STRONG><BR>8. <STRONG>Threshold</STRONG><BR>9. <STRONG>Condemnation</STRONG> </P>
+<P>Параллельно ведутся переговоры о выпуске альбома с различными европейскими лэйблами. Информация о группе <A href="http://www.psilocybe-larvae.com/">http://www.psilocybe-larvae.com</A></P>
+Автор: Vit Belov
+
+### 30.01.2008 news PSILOCYBE LARVAE новый альбом &quot;Non-Existence&quot; уже в продаже
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2008.01/12197.jpg" width=400 align=right border=5>28 января 2008 года на независимом лейбле <STRONG>Mazzar / Mystic Empire</STRONG> увидел свет долгожданный новый альбом "<STRONG>Non-Existence</STRONG>" melodic doom black metal команды <STRONG>PSILOCYBE LARVAE</STRONG>. Основной материал "<STRONG>Non-Existence</STRONG>" был записан в Питере на <STRONG>DDT Records</STRONG> под руководством <STRONG>Юрия Смирнова</STRONG> (<STRONG>Amatory, AnimalДжаz</STRONG>). Запись вокала и сведение альбома происходили в польской <STRONG>Studio Hertz</STRONG> знаменитыми братьями <STRONG>Wieslawski</STRONG> (<STRONG>Vader, Decapitated, Exventer</STRONG>). Мастеринг выполнен в не менее знаменитой шведской студии <STRONG>Cutting Room</STRONG> (<STRONG>Opeth, Katatonia, Dimmu Borgir, Rammstein</STRONG>). Оформление пластинки на совести известного дизайнера <STRONG>A-Ra</STRONG> (<STRONG>Perimeter, Amatory, Слёзы</STRONG>).</P>
+<P>Ознакомиться c сэмплами можно на официальной <STRONG>myspace</STRONG> странице группы. Концерты-презентации состоятся 16 марта в питерском клубе «Рокс» и 22 марта в московском клубе «Релакс».</P>
+<P>Ссылка: <A href="http://www.myspace.com/psilocybelarvaeofficial">http://www.myspace.com/psilocybelarvaeofficial</A></P>
+Автор: Vit Belov
+
+### 04.02.2008 reviews Интересный альбом от интересной группы
+
+<P>PSILOCYBE LARVAE, группа из Выборга, является событием на нашей сцене. Думаю, никому не надо объяснять, что создать металлическую группу не в главных городах России чрезвычайно сложно. А уж играть самобытную и очень интересную музыку, вообще, подвиг. PL этот подвиг совершили. Их дебютный альбом “Stigmata” был великолепен, я даже настаиваю на том, что этот альбом входит в число лучших работ в тяжёлой музыке за последнее десятилетие во всём мире.</P>
+<P>Вторая пластинка “Agony” показалась мне менее интересной. Вернее не менее интересной, а менее запоминающейся. Скажу честно, слушая тот альбом, я не понял к чему всё идёт. И вот вышел третий альбом “Non-Existence”, и всем всё стало ясно. Из всех возможных вариантов продолжения карьеры группа выбрала самый сложный. Окончательно выйдя за рамки известных жанров, PSILOCYBE LARVAE пытаются играть нечто оригинальное. Немудрено, что слушатель найдёт на этой работе элементы и doom-metal, и black-metal, и death-metal… Я думаю, что обозвать это можно progressive, и мы недалеко уйдём от истины. Подобную музыку играют сейчас OPETH. Не заморачиваться на стилевых ограничениях, а просто творить, вот лозунг PL и OPETH. Сравнения со шведами тем более не кажутся надуманными, из-за качества реализации “Non-Existence”. В кредитах значатся Herz Studio, Cutting Room в этом мы не проигрываем.</P>
+<P>Теперь о субъективном. В отличие от “Stigmata” слушать новую работу выборгцев слишком часто я не буду. При этом не буду я это делать вовсе не потому, что пластинка слишком сложна. К музыкальной композиции у меня претензий не имеется, каждый рифф, каждая смена направления выглядят вполне логичными. Группе не требуется ломать чего-то, чтобы выпендриться. К сожалению, мелодика новой работы одной из любимейших моих российских команд не зацепила меня совершенно. Лишь последняя песня, где мне послышались некоторые сходства с ранними работами ANATHEMA, задела меня за живое. Остальной материал проходит мимо и не вызывает сильных чувств. Возможно, стоит слушать эту пластинку, чтобы понять полностью все задумки, заинтересованный слушатель оценит.</P>
+<P>Мелодичный black-doom ранних работ трансформировался у PSILOCYBE LARVAE в качественнейший progressive-death-doom-metal. Переход очень интересный и любителям нетривиальной музыки стоит обратить внимание. Я же шарма пока не уловил.</P>
+Автор: Vit Belov
+
+### 18.12.2008 news Live эфир PSILOCYBE LARVAE на Metal-Radio.RU
+
+<P><STRONG>Live</STRONG> эфир на <STRONG>Metal-Radio.RU</STRONG> из <STRONG>Rock Palace Open Studio</STRONG> донесёт до вас маниакально депрессивные аккорды группы <STRONG>PSILOCYBE LARVAE</STRONG>. Группа отыграет вживую лучшие свои хиты и расскажет о себе в небольшом интервью. Как обычно, в пятницу&nbsp;в 21:00 на <A href="http://www.metal-radio.ru/">www.metal-radio.ru</A><BR>Только не пропусти...</P>
+<P>Еженедельная передача из Rock Palace Opena Studio на Metal-Radio.Ru не состоялась по причине перегрузки сервера из-за большого числа подключившихся слушателей - более 5000. Эфир с группой Psilosybe Larvae пройдет в пятницу, 26 декабря. Администрация радиостанции заверила в разрешении технических ньюансов.</P>
+Автор: Vit Belov
+
+### 01.05.2009 news PSILOCYBE LARVAE - мировой релиз альбома &quot;Non-existence&quot; и первый европейский тур
+
+<P>Мы рады сообщить всем вам, что группа <STRONG>PSILOCYBE LARVAE</STRONG> подписала контракт с американским лейблом <STRONG>Dark Harvest Records</STRONG> на издание альбома «<STRONG>Non-existence</STRONG>» по всему миру. Напоминаем, что на территории России, Беларуси и Украины альбом можно приобрести через московский лейбл <STRONG>Mazzar Records</STRONG>.</P>
+<P>Также коллектив не забывает и о концертной деятельности. В мае запланирован наш первый европейский тур под названием <STRONG>WILD EAST METAL ASSAULT TOUR</STRONG>, организованный совместно с друзьями из группы <STRONG>DEATHBRINGER</STRONG>. После старта в Санкт-Петербурге парни отправятся в белорусский город Гродно, а затем продолжит свой путь по городам Польши, совместно с местной бандой<STRONG> REALITY IN PAIN</STRONG>. «<EM>Это будет наше первое путешествие в Польшу, и мы с нетерпением ждем момента, когда сможем отправиться в дорогу, чтобы донести маниакально-депрессивные звуки Psilocybe Larvae до польских металхэдов</EM>» - заявляют музыканты. </P>
+<P>Также все желающие смогут приобрести на концертах тура мерч и диски группы. Приходите и приглашайте своих друзей на вечера интеллектуального и мозговыносящего металла!</P>
+Автор: Vit Belov
+
+### 21.08.2011 news PSILOCYBE LARVAE временно лишились барабанщика
+
+<P><STRONG><IMG height=244 alt="" hspace=0 src="/images/news_rus/2011.08/20704.jpg" width=200 align=right border=0>PSILOCYBE LARVAE</STRONG> подготовили короткий апдейт о своей текущей деятельности:</P>
+<P>"<EM>По ряду причин наш драммер Алан покидает коллектив на некоторое время. Ничего супер серьезного, просто на данный момент ему нужна пауза. До того времени, как Алан будет готов приступить к своим барабанным обязанностям, место за установкой займет наш давний собрат Александр Яковлев из группы Misanthrope Count Merciful. Надеемся, что вы устроите теплый прием Саше на нашем ближайшем концерте в питерском клубе Арктика 3 сентября. Что касается нового альбома…мы доделываем сведение альбома. Как только будет готов окончательный микс и мастеринг, мы непременно выложим несколько сэмплов для всеобщего обозрения. Мы будем держать вас в курсе всех деталей. Следите за обновлениями на </EM><A href="http://psilocybe-larvae.com/"><EM>http://psilocybe-larvae.com</EM></A>"</P>
+Автор: Vit Belov
+
+### 20.12.2011 news PSILOCYBE LARVAE записали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.12/22356.jpg" width=400 align=right border=0>PSILOCYBE LARVAE</STRONG> подвели итоги уходящего года:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Всем привет! Вот и заканчивается этот год и настало время подвести его итоги. Год оказался для группы непростым, но в тоже время очень насыщенным, богатым на события. Это и запись нового альбома и работа с сессионным барабанщиком. И теперь в преддверии новогодних праздников мы рады вам сообщить, что коллектив в прежнем составе и новый альбом, получивший название “THE LABYRINTH OF PENUMBRA”, готов! Запись и сведение проходили в питерской студии «Контакт» под руководством нашего старого знакомого Юрия Смирнова, мастеринг выполнили шведские мастера из Cutting Room, оформление обложки от A-Ra Design</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трэк-лист альбома:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Soul Trekking</STRONG><BR>2. <STRONG>Haunting<BR></STRONG>3. <STRONG>Shining Shambhala</STRONG><BR>4. <STRONG>Trial By Fire<BR></STRONG>5. <STRONG>Into The Labyrinth</STRONG><BR>6. <STRONG>Contemplation<BR></STRONG>7. <STRONG>Fortress Of Time<BR></STRONG>8. <STRONG>River Of Remembrance</STRONG><BR>9. <STRONG>No Escape</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F31026559"><PARAM NAME="allowscriptaccess" VALUE="always">
+   <embed allowscriptaccess="always" height="81" src="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F31026559" type="application/x-shockwave-flash" width="100%"></embed> </OBJECT></CENTER>
+Автор: Vit Belov
+
+### 20.01.2013 news Penumbra Divisus Tour 2013: DEATHBRINGER (Беларусь) и PSILOCYBE LARVAE (Россия)
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25191.jpg" width=400 height=563>В феврале 2013 г. на земли Беларуси обрушится сокрушительный концертный ураган под названием <STRONG>Penumbra Divisus Tour 2013</STRONG>.</P>
+<P>Одни из самых интересных и мощных коллективов на постсоветском пространстве, <STRONG>DEATHBRINGER</STRONG> (Беларусь) и <STRONG>PSILOCYBE LARVAE </STRONG>(Россия), нанесут двойной удар по 6 городам страны. </P>
+<P>Прог-дэтстеры <STRONG>DEATHBRINGER</STRONG> отпразднуют 10-летие группы и выступят практически в своём первоначальном составе, собрав музыкантов из Беларуси, Польши и России; питерские <STRONG>PSILOCYBE LARVAE</STRONG> порадуют всех поклонников маниакально-депрессивного дарк-металла своим новым творением под названием <STRONG>"The Labyrinth Of Penumbra"</STRONG>.</P>
+<P><STRONG>Penumbra Divisus Tour 2013</STRONG>:</P>
+<P>19 февраля - <STRONG>Витебск</STRONG> - клуб "Зебра"<BR>20 февраля - <STRONG>Могилёв</STRONG> - клуб "Лига"<BR>21 февраля - <STRONG>Гомель</STRONG> - клуб "Немо"<BR>22 февраля - <STRONG>Минск</STRONG> - клуб "Rocker Bar"<BR>23 февраля - <STRONG>Брест</STRONG> - клуб "Сфера"<BR>24 февраля - <STRONG>Гродно</STRONG> - клуб "Парламент"</P>
+<P>Умри, но приди!</P>
+Автор: Headcrusher
+
+### 07.06.2013 news Новое видео PSILOCYBE LARVAE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип <STRONG>PSILOCYBE LARVAE</STRONG> на песню "<STRONG>Trial By Fire</STRONG>" с последнего альбома "<STRONG>The Labyrinth Of Penumbra</STRONG>" можно посмотретьб ниже. Режиссером этого сумасшедшего мультика является <STRONG>Дарья Корнеева</STRONG>! </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/oRg3KA3z_pU?feature=player_detailpage" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 13.10.2016 news PSILOCYBE LARVAE отправляются в тур по Волге
+
+<p>После успешного юбилейного концерта в Петербурге, посвященному 20-летию группы, питерские дарк-металлисты <strong>Psilocybe Larvae</strong> отправляются в мини-тур к берегам Волги.</p><p>27.10 - КАЗАНЬ @Amnesia Club <br>28.10 - ЧЕБОКСАРЫ @SK Bar Club <br>29.10 - НИЖНИЙ НОВГОРОД @Crazy Train Club</p><p><center><img width="500" height="707" src="/images/news_rus/2016.10/30073.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### PSILOCYBE LARVAE, new album

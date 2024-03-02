@@ -72,6 +72,19 @@ Lyrics by Svenn-Aksel Henriksen & Gшran Bomann
 * C группой "Green Carnation" Kjetil Nordhus
 * C группой "Carpathian Forest" G. Bomann
 
+## Публикации
+
+### 28.09.2004 news CHAIN COLLECTOR: новый проект норвежских музыкантов
+
+<P><STRONG><IMG height=164 alt="" hspace=0 src="/images/news_rus/2004.09/7179.jpg" width=320 align=left border=5>CHAIN COLLECTOR</STRONG> - новая группа, в которой объединили свои усилия известные норвежские музыканты:&nbsp;вокалист <STRONG>Kjetil Nordhus</STRONG> (<B>Green Carnation</B> & <B>Trail Of Tears</B>),&nbsp;барабанщик <STRONG>Anders Kobro</STRONG> (<B>Green Carnation</B>, <B>Carpathian Forest</B> & <B>In The Woods</B>), и&nbsp;гитарист <STRONG>Gоran Bomann</STRONG>&nbsp; (<B>Carpathian Forest</B>). Группа войдёт в <STRONG>Dub Studio (Green Carnation, Blood Red Throne)</STRONG> в сентябре для записи пока не названного альбома. На него войдут 10-11 песен, и он выйдет в начале 2005 года на <STRONG>Sound Riot</STRONG>.</P>
+Автор: Vit Belov
+
+### 28.09.2004 news CHAIN COLLECTOR - from members of GREEN CARNATION and CARPATHIAN FOREST
+
+<P><STRONG><IMG height=164 alt="" hspace=0 src="/images/news/2004.09/7178.jpg" width=320 align=left border=5>Sound Riot Records</STRONG> announce the signing of <STRONG>CHAIN COLLECTOR</STRONG>. The men behind <STRONG>CHAIN COLLECTOR</STRONG> are the singer <STRONG>Kjetil Nordhus (Green Carnation & Trail Of Tears),</STRONG> drummer <STRONG>Anders Kobro (Green Carnation, Carpathian Forest & In The Woods)</STRONG>, guitarist <STRONG>Gшran Bomann&nbsp; (Carpathian Forest)</STRONG>, guitarist <STRONG>Kjell Jacobsen</STRONG> and the additional musician <STRONG>Endre Kirkesola</STRONG> on bass/keyboards that have also played on <STRONG>Green Carnation</STRONG> previously. The band will enter at <STRONG>Dub Studio</STRONG> (<STRONG>Green Carnation, Blood Red Throne</STRONG>) in September to record the still untitled album; it will feature 10 or 11 songs. The debut is scheduled for a worldwide release in early 2005. This album has a lot to offer: a strong feeling for melodies combined with perfect musicality of high profile artists which the experience is quite wide, that is one thing the band take advantage of and put it into their music.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

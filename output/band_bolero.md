@@ -22,6 +22,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.09.2011 news BOLERO предлагают музыку
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.09/21019.jpg" width=400 align=right border=0>Канадские язычники <STRONG>BOLERO</STRONG> выложили в сеть песню "<STRONG>Pints Held High</STRONG>" со своего нового альбома "<STRONG>Voyage From Vinland</STRONG>". </P>
+<P>Ссылка: <A href="http://bolerometal.bandcamp.com/track/pints-held-high">http://bolerometal.bandcamp.com/track/pints-held-high</A></P>
+<P>Дебютная работа <STRONG>BOLERO "Voyage From Vinland"</STRONG> вышла в январе этого года. Трек-лист:</P>
+<P>1. <STRONG>Voyage From Vinland</STRONG><BR>2. <STRONG>Send Of The War Summons</STRONG> <BR>3. <STRONG>When The Legends Die</STRONG> <BR>4. <STRONG>Risen Victorious</STRONG> <BR>5. <STRONG>Our Land, Our Seas, Our Skies</STRONG> <BR>6. <STRONG>Pints Held High <BR></STRONG>7. <STRONG>O' Hail To The Northlander</STRONG> <BR>8. <STRONG>Throne Of Storms</STRONG> <BR>9. <STRONG>A Silence Prolonging</STRONG> <BR>10. <STRONG>Way To Forgotten Lands</STRONG> <BR>11. <STRONG>Sworn Under The Winter's Majesty</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

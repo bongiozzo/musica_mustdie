@@ -44,6 +44,89 @@ Kir - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.12.2002 news новости от FOREST STREAM
+
+<p>Дебютный альбом российских симфо-блэк-думстеров FOREST STREAM под названием "Tears Of Mortal Solitude" поступит в продажу 27 января 2003 года. Выйдет он на Elitlist Records (подразделение Earache Records).</p>
+
+Автор: Dimas
+
+### 25.12.2002 news True and Evil New Year 2003
+
+<p><IMG SRC="/images/news_rus/2002.12/3489.gif" ALT="True And Evil" width="250" height="150" vspace="5" align="right">В понедельник 30 декабря 2002 в 17:00 Coronach Records & клуб Relax представляют: <BR> True and Evil New Year 2003 <BR> Серия Pornae Inferni. Акт 2</p>
+<p> Самая брутальная и самая последняя BLACKMETAL акция в 2002 году посвящена основателям направления winter black - группе FOREST STREAM<BR> Специальные гости - ROSSOMAHAAR<BR> При мощном разогреве групп Balfor, Буффонада, Sinful, Nergal, Despair, Omnicide</p>
+<p> ВХОД: <BR> По карте CORONACH Club: бесплатно<BR> По приглашению или флаеру:<BR> - если ты парень: 100 рублей<BR> - если ты девушка: 70 рублей<BR> - если не знаешь, кто ты: 110 рублей<BR> без приглашения и без флаера: 120 рублей<BR> Приглашения можно найти в рок-магазинах.<BR> Флаер можно распечатать с <A HREF="http://coronach.com/action.php">этой странички</A><br> Также его можно заказать по почте: info@coronach.com <BR> Следите за новостями: http://coronach.com/</p>
+<p> Адрес клуба Relax: Москва, м.Каховская/м.Севастопольская, от метро: 5 минут пешком / 1 минута бегом, ул. Большая Юшуньская, д.1а, гостиница "Севастополь", корпус 6.</p>
+
+Автор: Dimas
+
+### 07.02.2003 news MassaBrutto Radioshow #149, 7 Feb 2003.
+
+<p>Playlist: <BR><BR> 1. MISCREANT - Loneliness (Blacksmith Prods)<BR> 2. DIVINA ENEMA - Holy Forever (Eldritch Music)<BR> 3. MIND ECLIPSE - The Unanimated (band)<BR> 4. AMBASSADOR 21 - Revolution Is A Business (Invasion Wreck Chords)<BR> 5. WARKRAFT - Last Dawn (band)<BR> 6. PARTYZONE - Трэба Рабiць! (BMAgroup/Prynamsi Recs)<BR> 7. AEON NOCTIS - Sword Of Time (band)<BR> 8. LEAD WEIGHT - 1000000 Ways (CD-Maximum Ltd)<BR> 9. FOREST STREAM - Legend (Elitist/Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 16.02.2003 reviews Горечь одиночества...
+
+<p>Российская группа подписывает контракт с относительно "мажорным" западным лейблом? Какие-то пять лет назад я бы счёл это за дурную шутку. Да, у нас есть (были и будут) команды, выпускающие свои творения посредством крохотных западных лейблов (сразу вспоминается MORTEM – достойная, но не шибко удачливая команда), однако навряд ли этот факт способен что-либо изменить в их карьере. Другое дело Earache. Можно по-разному относиться к этому лейблу, но вряд ли стоит спорить с тем, что они в силах обеспечить качественный промоушен. Да и с дистрибуцией никаких проблем. Чай, не mailorder завалящий. Поэтому остаётся только порадоваться за FOREST STREAM, – свой шанс они не упустили. Впрочем, не только в везении дело. "Tears of Mortal Solitude", как минимум, хорош. Изрядно приблэкованный дум, больше печальный, нежели мрачный… он рисует в воображении слушателя одинокого путника, волею судеб оказавшегося в чащобе зимнего леса – не пугающего, но убивающего своей безрадостностью. Ослепляющий свет небесного светила не дарит надежду, – он отнимает её. Отнимает окончательно. Лес, прикинувшийся спасительным убежищем, на деле оказывается существом абсолютно безразличным к проблемам мира живых. Он стоял здесь вечность и вечность же простоит. Что ему до путника, ищущего поддержки у холодных, колючих ветвей… Нет, "Tears of Mortal Solitude" не хорош. Он великолепен. Трагичная, атмосферная музыка, способная очаровать любого… не переборщу ли я, если скажу, что это и есть Искусство?..</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 08.04.2003 news FOREST STREAM news...
+
+<p>The Russian symphonic doom Gods are still receiving a massive amount of praise for their debut album "Tears Of Mortal Solitude", including 4/5 in Kerrang, 8/10 in Metal hammer and 8.5/10 in Terrorizer. Many reviews are archived at the Elitist forum if you still need convincing on this one!<BR><BR> The band also recently played their debut live shows in Russia, including a huge show in Moscow as main support to Cradle Of Filth. <BR><BR> They are currently writing the follow up to "Tears.", the second part of the trilogy based on the concept of "All The Sorrow, All The Majesty and All The Hate". Expect an unprecedented slab of epic bombast!</p>
+
+Автор: Yermola
+
+### 11.03.2004 news Трилогия от FOREST STREAM
+
+FOREST STREAM объявили название своего второго полноценного альбома, как "Crown Of Winter". Он будет следующей частью концептуальной трилогии&nbsp;"Sorrow-Majesty-Hate"&nbsp;начатой альбомом "Tears Of Mortal Solitude".
+Автор: Dimas
+
+### 03.10.2005 articles KATATONIA в Москве: они приехали осенью
+
+<P><EM>Katatonia, Москва, клуб "Точка", 17 сентября 2005 г. Организатор: JC Sound.</EM></P>
+<P><IMG height=310 src="/images/articles_rus/2005.10/9459.jpg" width=245 align=left border=0>Всё меньше и меньше остаётся групп, не побывавших с концертами в России. Вот и Кататония отметилась у нас, сыграв два концерта в Питере и в Москве. Концерт анонсировался ещё в начале лета, с середины июля можно было покупать билеты со скидкой. Готовились к приезду загодя, основательно.</P>
+<P>Многие мечтали увидить воочию любимую группу, но мало кто&nbsp;кажется всерьёз рассчитывал&nbsp;услышать именно ту старую Кататонию. Знаю лично нескольких ценителей ранних альбомов Кататонии,&nbsp;проигнорировавших концерт, даже несмотря на маркетинговый ход в виде обещания некоего сюрприза, кое-чего эксклюзивного из старого репертуара. Всё-таки время идёт вперёд и старой Кататонии давно уже нет. Но есть всё те же люди и они сочиняют отличную музыку. Факт. Самим музыкантам очень даже нравятся все их ранние альбомы, но на концертах они ничего из этого не играют. Музыка меняется, люди меняются, а новые альбомы Кататонии по-прежнему великолепны, хоть и в другом ключе. И поклонников у группы не становится меньше. Полный зал. Не так как на Лэйк оф Тирс конечно, но вполне прилично. Люди не случайные, отлично знают на&nbsp;какую группу&nbsp;пришли.&nbsp;С первой же песни Ghost Of The Sun&nbsp;плотные ряды&nbsp;самых фанатичных поклонников&nbsp;у сцены напирая на спины друг друга слаженно заорали вместе с вокалистом, что аж уши заложило, и дальше одну за другой все песни пелись на ура. Впечатляет. А чуть дальше, в середине зала&nbsp;- настоящий слэм, стоит музыке&nbsp;чуть чуть прибавить напора и экспрессии, и понеслась - прыгающие потные туши, отдавленные ноги, и вроде приличные на вид люди. Лишь&nbsp;отойдя от сцены метров на десять подальше, можно спокойно постоять послушать.&nbsp;</P>
+<P><IMG height=310 src="/images/articles_rus/2005.10/9460.jpg" width=245 align=left border=0>Что касается зала, то тут&nbsp;всё ясно,&nbsp;а вот обстановка на сцене оставила двоякое впечатление. Я не видел концертного ДВД Кататонии, поэтому совершенно не представлял заранее, каковы они на сцене.&nbsp;По общему впечатлению - Кататонию концертной группой назвать нельзя. Нет, всё вполне нормально, музыканты не стоят как истуканы, видно что&nbsp;играют с&nbsp;удовольствием,&nbsp;польщены тёплым приёмом, но не более того. Если на гитариста Блэкхейма на пару с басистом ещё любо посмотреть, какие финты они&nbsp;порой выделывали со своими инструментами и какие рожи корчили, то&nbsp;фронтмен Йонас Ренске подвижностью не отличался напрочь. Почти на одном и том же месте простоял весь концерт, а ведь его вид задаёт&nbsp;впечатление о группе в целом. В нужных местах тряс хайром,&nbsp;грустно улыбался, говорил спасибо.&nbsp;В майке The Sisters of Mercy, флегматичный, даже как бы усталый с виду. Микрофон намертво привязан к стойке и не вынимался на протяжении всего концерта, не то чтобы там протянуть в зал или побегать с ним с одного края сцены к другому. Но народу для счастья достаточно было узнавать свои любимые песни, слышать их живьём. Наверное, есть группы, для которых этого и правда достаточно для хорошего концерта, и Кататония из их числа.</P>
+<P>Сет-лист целиком состоял из песен с последних альбомов и лишь в конце сыграли Murder, вызвав всеобщий восторг. Попрощались и ушли. Отличная концовка, но на финал ещё не похоже. Должен же быть законный бис, как же без него. Орали, орали и дождались... эээ... опять Форест Стрим. Типа вот, группа Кататония попросила нас выйти и сыграть за них эту песню. Хе, забавная фишка. Странно даже. Вот он значит какой сюрприз. Не, Форест Стрим - замечательно, спору нет, и в качестве разогрева отличный выбор. Более того, их выступление многим показалось даже&nbsp;сильнее хедлайнеров. Но ведь ээ... мм... на бис то Кататонию ждали, настрой так сказать был такой, а тут ломается весь&nbsp;привычный ход концерта&nbsp;и приходится слушать&nbsp;Without God в исполнении снова Форест Стрим. И ведь отлично исполнено, сочно так, с приятным рыком, но всё же... Уже и песня к концу идёт, где ж сюрприз то?&nbsp;И&nbsp;вот в последнем куплете выходят участники Кататонии и сумбурно, но эффектно все вместе допевают песню. И теперь точно конец, все расходятся.</P>
+Автор: Morsus
+
+### 03.04.2009 news Большой майский концерт
+
+<P>
+<CENTER><IMG height=361 alt="" hspace=5 src="/images/shows_rus/2009.05/13954.jpg" width=500 align=right vspace=5 border=0></CENTER><SPAN style="COLOR: white"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: RU; mso-bidi-font-family: 'Times New Roman'; mso-fareast-font-family: 'Times New Roman'; mso-fareast-language: RU; mso-bidi-language: AR-SA">
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">MANIC DEPRESSION (</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Россия</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, Thrash Metal)<?xml:namespace prefix = o ns = "urn:schemas-microsoft-com:office:office" /><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><A href="http://www.manic-depression.ru/"><SPAN style="COLOR: white"><U>http://www.manic-depression.ru</U></SPAN></A><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><A href="http://www.myspace.com/manicdepressionband"><SPAN style="COLOR: white"><U>http://www.myspace.com/manicdepressionband</U></SPAN></A><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">HIERONYMUS BOSCH (</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Россия</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, Progressive Death Metal)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><A href="http://hieronymus-bosch.ru/"><SPAN style="COLOR: white"><U>http://hieronymus-bosch.ru</U></SPAN></A><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><A href="http://www.myspace.com/hieronymusboschrussia"><SPAN style="COLOR: white"><U>http://www.myspace.com/hieronymusboschrussia</U></SPAN></A><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">FOREST STREAM (</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Россия</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, Doom Metal)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><A href="http://www.forest-stream.com/"><SPAN lang=EN-US style="COLOR: white; mso-ansi-language: EN-US"><U>http://www.forest-stream.com/</U></SPAN></A></SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><A href="http://www.myspace.com/foreststreamband"><SPAN style="COLOR: white"><U>http://www.myspace.com/foreststreamband</U></SPAN></A><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">SEDUCERS EMBRACE (</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Россия</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">, Melodic Death Metal)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><A href="http://www.myspace.com/seducersembrace"><SPAN lang=EN-US style="COLOR: white; mso-ansi-language: EN-US"><U>http://www.myspace.com/seducersembrace</U></SPAN></A></SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><SPAN style="mso-spacerun: yes">&nbsp;</SPAN><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">специальные гости: THE FARTSTARTER<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Начало в 17.00<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Цена билета: 300 руб. в рок-магазинах города и кассе клуба.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><SPAN style="mso-spacerun: yes">&nbsp;</SPAN><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Дополнительная информация:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><A href="http://www.deltamekong.ru/"><SPAN style="COLOR: white"><U>http://www.deltamekong.ru</U></SPAN></A><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Адрес клуба "Plan B": м. Новослободская, ул. Советской Армии, д.7<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Телефон: 8-903-755-94-93 <o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><A href="http://www.planbclub.ru/"><SPAN style="COLOR: white"><U>www.planbclub.ru</U></SPAN></A></SPAN></SPAN></SPAN></SPAN></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### 30 декабря 2002, клуб Relax - True and Evil New Year

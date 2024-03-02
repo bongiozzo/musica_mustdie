@@ -88,6 +88,39 @@ Kristian Andren - Vocals
 * C группой "Therion" Snowy Shaw (drums)
 * C группой "Candlemass" Messiah Marcolin
 
+## Публикации
+
+### 16.11.1999 news 
+
+<p>Memento Mori не могут выпустить новый альбом, из-за проблем с лэйблом. Мессия Марколин тем временем занимается своим сольным проектом. Правда, он это уже делает в течение четырёх лет.</p>
+
+Автор: Vit Belov
+
+### 19.04.2001 news Фобос и Деимос....
+
+<p>Мощный толстяк Messiah Marcolin (CANDLEMASS / MEMENTO MORI) позволил себя уговорить ушлым парням из "SATARIEL" и теперь его луженная глотка будет слышна в треке "The Holy Trinity / Menage A Trois" на новом альбоме шведов "Phobos & Deimos". Диск был записан в Uppsala's Dug-Out Studios с продюссером "MESHUGGAH" и "STUCK MOJO" - Daniel Bergstrand. Также гостем был фронтмен "HYPNOSIA" Lenny.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news Phobos &amp; Deimos.....
+
+<p>Former CANDLEMASS / MEMENTO MORI vocalist Messiah Marcolin will reportedly be guesting on the track "The Holy Trinity / Menage A Trois" on the upcoming album from Sweden's SATARIEL, tentatively titled Phobos & Deimos. The CD, which is currently being recorded at Uppsala's Dug-Out Studios with producer Daniel Bergstrand (i.e. STUCK MOJO, MESHUGGAH, STRAPPING YOUNG LAD), will also include an appearance by HYPNOSIA frontman Lenny. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Новый проект Мессайи Марколина...
+
+<p>Участник "CANDLEMASS" и "MEMENTO MORI" - Messiah Marcolin создал новый проект. Объединившись с экс-гитаристом "LIONS SHARE" - Lars Chriss, а также барабанщиком "HIROSHIMA" - &Ouml;rjan Englin, Мессайя решил играть тяжелую и задумчивую музыку в стиле 70-х со значительным влиянием URIAH HEEP, BLACK SABBATH, ALICE COOPER, BUDGIE и т.д. Пока еще не имеющая названия группа ищет бассиста. если вы уверенно дергаете свои четыре струны - пишите: <a href="MAILTO:doktor.rock@1067.fm">doktor.rock@1067.fm</a></p>
+
+Автор: Yermola
+
+### 26.09.2001 news Messiah Marcolin and LIONS SHARE guitarist Lars Chriss have joined forces ...
+
+<p>Former CANDLEMASS / current MEMENTO MORI frontman Messiah Marcolin and LIONS SHARE guitarist Lars Chriss have joined forces in a brand new, as-yet-unnamed project that has been composing material for a possible album release through an as-yet-undetermined record label during the latter part of 2002. Featuring a musical direction that has been described as “heavy and doomy sounding with a lot of 70's influences (i.e. URIAH HEEP, BLACK SABBATH, ALICE COOPER, BUDGIE etc.)”, the group’s present formation also comprises former HIROSHIMA drummer Цrjan Englin (a DJ at Sweden's biggest classic rock radio station Rockklassiker 106.7) and is currently on the lookout for a bassist. Interested four-stringers can contact Цrjan at <a href="mailto:doktor.rock@1067.fm> doktor.rock@1067.fm</a> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Messiah Marcolin

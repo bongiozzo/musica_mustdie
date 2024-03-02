@@ -147,6 +147,281 @@ Sami Kuoppamaki - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.09.2000 news Новый альбом Apocalyptica
+
+<p> 2 октября выходит третий альбом финского струнного квартета Apocalyptica 'Cult', на котором, помимо прочего будут присутствовать 2 кавера Metallica - "Fight Fire With Fire" и "Until It Sleeps".</p>
+
+Автор: Nybras
+
+### 19.12.2000 articles EXCLUSIVE INTERVIEW WITH MAX LILJA (APOCALYPTICA) FOR MUSIC MUSTDIE.
+
+<p>(Special thanks to Asya Kalyasina and Universal Music Russia for help)</p>
+<p> Y. First of all I'm glad to hear from you. Honestly, Apocalyptica - is a very popular project here (I mean in Russia and CIS countries!). And after "CULT" relize - you started to be as a cult by yourself. So, I would like to ask you some questions. This interview will be published only in electronic way at MUSIC MUST DIE web-zine.</p>
+<p> A. Hey Andrew! Sorry that this took some time! So, let's start.</p>
+<p> Y. Well... guyzzz... What was the reason for you to start play this kind of music by cellos? (What was the idea?)</p>
+<p> A. The idea to play metal music by cellos came out in summer 93. We were going to same music camp and in music camps is always some evening partys where students perform something grazy. we were huge fans of metal music and specially Metallica was our favourite band so we decided to play couple of Metallica songs. For us it wasnґt so strange cause in Finland there is quite a long tradisson of cello ensambles. we all had played in the same cello sextet(six cellos) which played music from Bach to Jimi Hendrix, tangos and evergreens and all kinds of music. So we played some Metallica songs for our friends and they really loved it. We continued playing couple of times a year in our school partys but it was only for fun. Just to get rid of our aggressions! IT was never suppoused to be anything big. We didn't even have any plans to make any albums or anything. But then something happened. We were asked to play to one rock club in Helsinki and we were really scared how metal fans will react but they really loved our show. Some days later one guy from one indy record company call'd and wanted to make an album. We thought that the guy is totally crazy but it sounded like a nice experience so decided to do it. And suddenly the hole world was interested about us. We have all started to play cello in ages of 6-9 and have studied in Sibelius-Academy which is a music university in Helsinki.</p>
+<p> Y. As I know all of you have academic music education... Isn't it? Your teachers in Academy were happy after "Plays Metallica By Four..." (Ha-ha)</p>
+<p> A. About our teachers... I think it wasn't so big suprise for them cause we've allways been a bit grazy! Nowadays I think they feel a bit dissapointed cause we don't have anymore time to go to their lessons. And they don't understand why we play this kind of music cause they've never listened to this music.</p>
+<p> Y. Your biggest and greatest show (your own or in double with Metallica or any)?</p>
+<p> A. It's very hard to choose only one show. Of course all the shows with Metallica have been great! Our biggest audience in our own show was last week in Riga in Latvia (4400 people) Pretty amazing!</p>
+<p> Y. Your first album was about Metallica, why? (Actually, Metallica before 1991 is my favourite band.....)</p>
+<p> A. Metallica was our favourite band when we begun. And Metallicas music is very suitable for instrumental versions cause it's so melodical.</p>
+<p> Y. How did you made the record of "CULT" (I mean some stuffs - distortions, double-strings e.t.c.)? Any special secrets? What kind of microphones did you use? Amplifiers and so on...</p>
+<p> A. The "so called" secret in the sound of CULT is that there is infact quite many cellos playing. In some songs over SIXTY!!! And we have learned alot about working in studio with cellos during these years.</p>
+<p> Y. Which from your own albums is your favourite one?</p>
+<p> A. CULT! Sound is so much better in it and musicially it is much more interesting.</p>
+<p> Y. Is it hard to play metal music or classic one is harder?</p>
+<p> A. There is different difficulties in different music. Playing metal is physicially much more harder and you have to create new playing styles to get it sound really heavy. And it's more about the feeling. Playing classical is much more clean and quality of sound has to be brilliant hole the time.</p>
+<p> Y. What about Russia fans (some fun stories, reaction for your play e.t.c.)?</p>
+<p> A. We have played there only three shows but we really have to come back! Fans seem to be really into our stuff!</p>
+<p> Y. Who is the main composer in your band and who makes arrangements?</p>
+<p> A. Eicca is the composer and does most of the arrangements. I do the rest. But we all are aloud to have opinions about everything!</p>
+<p> Y. What about your plans for future? Will you prepare another star-cover or it will be your own compositions? (In my own opinion - you are good composers enough. I was amased by your "CULT" things! Right now your CD is in my computer on the work... Yeah... Great work!)</p>
+<p> A. It is a bit too early to talk about musical future but it seems to be that there is a huge interest towards our own music so ofcourse it gives courage to go on with that.</p>
+<p> Y. Your favourite metal bands (Except Metallica and Sepultura)....</p>
+<p> A. I try to be very openminded for all music styles cause for me music is more about feelings than which style it is. In metal side Metallica and Sepultura ofcourse Slayer and a lot of good songs from many bands.</p>
+<p> Y. Do you like russians classical composers (Tchaykovskiy, Musorgskiy, Glinka e.t.c.)? Did you play them?</p>
+<p> A. Shostakovits is my absolutely favourite. Sinfonies and string quartets and consertos. His music is really close to my heart.</p>
+<p> Y. Well... I'm finishing... You guyz are great! Stay the very same!!! Best of luck for you from all russians metal-heads!!! We'll wait for your albums and sessions!</p>
+<p> A. Merry Christmas! Hope to see you one day!</p>
+<p></p>
+
+Автор: Yermola
+
+### 19.12.2000 articles ЭКСКЛЮЗИВНОЕ ИНТЕРВЬЮ С МАКСОМ ЛИЛЬЯ (АПОКАЛИПТИКА) ДЛЯ МЬЮЗИК МАСТ ДАЙ.
+
+<p>(Отдельное спасибо Асе Калясиной и Юниверсал Мьюзик Россия)</p>
+<p> Y. Прежде всего, я очень рад получить весточку от тебя. Честно скажу - Apocalyptica - очень популярный проект здесь (я имею ввиду Россию и СНГ!), а после выхода альбома "КУЛЬТ" вы сами начали приобретать культовый статус. Итак, я хотел бы задать несколько вопросов. Это интервью будет опубликовано в электронном виде на веб-сайте журнала MUSIC MUST DIE.</p>
+<p> A. Хэй Андрей! Прошу прощения за то, что все это заняло много времени. Давай начнем.</p>
+<p> Y. Итак.... Какова была причина для вас начать исполнять подобную музыку на виолончелях? (Какова была идея?)</p>
+<p> A. Идея играть металлическую музыку на виолончелях пришла летом 1993 года. Мы отправились в летний музыкальный лагерь и там обычно устраивались вечера, где студенты обычно представляли что-нибудь необычное. Все мы были фанатами металла и особенно Металлики (это был вообще наш любимый ансамбль), поэтому мы решили сыграть несколько их песен. Для нас это не было чем-то уж очень необычным, поскольку в Финляндии существует по настоящему старая традиция ансамблей виолончелистов. Все мы играли в каких-либо секстетах (6 виолончелей), которые исполняли музыку от Баха до Джимми Хендрикса, танго, классики да и вообще, любые типы музыки. Так мы сыграли некоторые песни Металлики для друзей и им это по-настоящему понравилось. Мы продолжили играть по несколько раз в год на наших школьных вечеринках, но только для развлечения. Просто, чтобы дать выход нашей агрессии! Это никогда не выглядело чем то особенным. И конечно, у нас не было планов записывать альбомы или еще что-нибудь. Но потом, что-то случилось. Мы были приглашены в один рок-клуб в Хельсинки и очень боялись как отреагируют металхэды, но им понравилось наше шоу. А через несколько дней один парень с независимой компании позвонил и сказал, что хочет записать альбом. Мы решили, что парень сошел с ума, но это звучало как интересный эксперименти мы решили сделать это. И внезапно, целый мир начал интересоваться нами.</p>
+<p> Y. Насколько я знаю все вы имеете академическое музыкальное образование. Ваши преподаватели в Академии были счастливы после "Plays Metallica By Four..." (Ха-ха)???</p>
+<p> A. Каждый из нас начал заниматься на виолончели в возрасте от 6 до 9 лет и учился в Академии Сибелиуса (музыкальный университет в Хельсинки). Об учителях.... Я думаю это не было слишком уж большим сюрпризом для них, потому что мы всегда были немного сумасшедшими. Сейчас я думаю, что они были разочарованы тем что у нас больше нет времени ходить на занятия. И они не могут понять почему мы играем такую музыку потому что они ее просто никогда не слышали.</p>
+<p> Y. Ваше самое большое и запоминающееся шоу (собственное или вместе с Металлика или еще с кем-нибудь)?</p>
+<p> A. Тяжело выбрать какое-то одно шоу. Конечно все шоу с металлика были великолепны. Наша самая большая аудитория была на шоу в Риге (Латвия) - 4400 человек. Просто потрясающе!</p>
+<p> Y. Ваш первый альбом был посвящен Металлике. Почему? (Хотя, честно говоря, до 1991 года металлика и моя любимая группа.......)</p>
+<p> A. Металлика была нашим любимым ансамблем, когда мы начинали. И их музыка очень подходит для инструментальных версий, в силу своего мелодизма.</p>
+<p> Y. Как вы записывали "КУЛЬТ" (я имею ввиду какие-то особые примочки - дисторшены, двойные струны и т.п.)? Какие-то специальные секреты?</p>
+<p> A. Один из "такназываемых" секретов "КУЛЬТА" - это то, что мы использовали очень много виолончелей. В некоторых песнях их играет до шестидесяти!!! И мы многому научились для работы в студии с виолончелями за прошедшие годы.</p>
+<p> Y. Какой из собственных альбомов у тебя любимый?</p>
+<p> A. "КУЛЬТ"! Звук намного лучше и музыкально это тоже намного более интересно.</p>
+<p> Y. Что труднее играть, классику или металл?</p>
+<p> A. Определенные трудности есть при исполнении в разных музыкальных стилях. Играть металл физически гораздо более трудно и вы должны создать новый стиль игры для создания по-настоящему тяжелого саунда. И больше чувства. Играть классику нужн оболее чисто и качество звука должно быть постоянно кристально чистым.</p>
+<p> Y. Фанаты в России (смешные истории, реакция на вашу игру и т.д.)?</p>
+<p> A. Мы играли здесь только три шоу, но мы обещаем еще вернуться! Похоже что фанаты по-настоящему врубаются в наши вещи!</p>
+<p> Y. Кто основной композитор в группе и кто аранжировщик?</p>
+<p> A. Eicca - композитор и делает большинство аранжировок. Я делаю остальное. Но все мы стараемся отвечать за все.</p>
+<p> Y. Ваши планы? Будете ли вы делать еще один альбом коверов или это будут ваши композиции? (По моему, вы достаточно хороши в композиции. Я был удивлен вещами "КУЛЬТА". Прямо сейчас ваш СД крутится у меня в вертушке....Да-а... Отличная работа!)</p>
+<p> A. Сейчас несколько рано говорить о планах, но гораздо интереснее делать собственные вещи, поскольку мы видим интерес к ним и это дает смелость продолжать.</p>
+<p> Y. Ваши любимые команды (Кроме металлика и Сепультура)....</p>
+<p> A. Лично я стараюсь быть очень открытым для всех музыкальных стилей, потому что, музыка - это чувство которое свободно от стилей. В металле.... Slayer и много разных хороших песен от других команд.</p>
+<p> Y. Тебе нравятся классические русские композиторы (Чайковский, Мусоргский, Глинка и т.п.)? Вы их играете?</p>
+<p> A. Мой абсолютный фаворит - Шостакович. Синфонии, струнные квартеты и концерты. Его музыка, по-настоящему в моем сердце.</p>
+<p> Y. Ну... Я заканчиваю.... Ребята вы великолепны! Оставайтесь такими же! Удачи вам от всех российских металлхэдов!!! Мы ждем ваших новых альбомов и концертов.</p>
+<p> A. С Рождеством вас! Когда-нибудь увидимся!</p>
+
+Автор: Yermola
+
+### 16.02.2001 news Apocalyptica news
+
+<p>The Finish cello quartet Apocalyptica for the first time ever recorded a song which contains lyrics. The lyrics/vocals are sung by female Guano Apes-leader Sandra Nasic. By the way, don't forget to visit the Official Apocalyptica website at www.apocalyptica.com</p>
+
+Автор: Yermola
+
+### 16.02.2001 news Новость от Апокалиптика
+
+<p>Видимо, заработанная Металликой сумма Вашингтончиков не давала спокойно спать "горячим финнским парням" из Апокалиптика. И ...Вот... Наша четверка виолончелистов записала песню с текстом и вокалом. "Счастливой" первопроходчицей стала Sandra Nasic из ... Guano Apes. Сходите, кстати, на новый сайт Апокалиптика на www.apocalyptica.com</p>
+
+Автор: Yermola
+
+### 10.04.2001 news Продолжающийся Апокалипсис от Апокалиптика...
+
+<p>APOCALYPTICA выпустила лимитированное дигипак издание "Культа" с дополнительными треками среди которых записи гостевых вокалистов Sandra Nasic ("GUANO APES") и Matthias Sayer ("THE FARMER BOYS"). Трек-лист: CD 1 01. Path 02. Struggle 03. Romance 04. Pray! 05. In Memoriam 06. Hyperventilation 07. Beyond Time 08. Hope 09. Kaamos 10. Coma 11. Hall of the Mountain King 12. Until It Sleeps 13. Fight Fire With Fire ... CD2 1. Path Vol. 2 (feat. Sandra Nasic) 2. Hope Vol. 2 (feat. Matthias Sayer) 3. Nothing Else Matters (live from Munich, October 2000) 4. Harmageddon (live from Munich, Oct. 2000) 5. Inquisition Symphony (live from Munich, Oct. 2000) ... Кроме того команда собирается отыграть на нескольких Европейских фестивалях.</p>
+
+Автор: Yermola
+
+### 10.01.2002 news APOCALYPTICA Part Ways With Max Lilja ...
+
+<p>Finnish string quartet APOCALYPTICA have parted ways with one of the group's four cellists, Max Lilja. Here is the band's official statement on the matter: “After the artistically satisfying, but very exhausting two-and-half-year project with the Cult album, we have finally started to raise our sights towards the future. Instead of focusing only on music, the project has forced each of us to clarify our individual ambitions — as human beings as well as musicians. Unfortunately, during this process we couldn't clear up some of the difficulties and disagreements we had inside the band. The sad outcome of that is that Max will not continue in the band. We are also sorry about the fact that the Finnish press was faster than us to release this information, and we would really like to apologize for that. Sorry. Fortunately, right now we are in no hurry to find anybody to replace Max, since we are not going to have any tours this spring, but we trust that the matter will be solved when the time is right. APOCALYPTICA is now beginning to work with new material with full force and power and will be back more consistent and powerful than ever!!!!”</p>
+
+Автор: Yermola
+
+### 10.01.2002 news Макс Лилья ушел из APOCALYPTICA ...
+
+<p>Финнский струнный квартет "APOCALYPTICA" лишился Max Lilja. Вот часть официального заявления команды: "После очень радующих двух с половиной лет проекта, вплоть до альбома Cult, мы стали задумываться о нашем будущем. Вместо того чтобы сконцентрироваться на музыке, мы занимались выяснением собственных амбиций... К сожалению, во время этого процесса мы не смогли прояснить некоторые ситуации и непонимание существовавшее в команде. Результатом этого стало то, что Макс ушел. Мы очень сожалеем о том, что финнская пресса поторопилась написать об этом быстрее чем мы сами. Сейчас мы не торопимся с поиском замены, поскольку на весну у нас не намечено никаких туров, но мы надеемся, что позднее мы сможем решить эту проблему. APOCALYPTICA сейчас начинает работу над новым материалом и в полную силу, и мы вернемся более мощными чем когда либо!!!"</p>
+
+Автор: Yermola
+
+### 28.08.2002 news APOCALYPTICA&#39;s EICCA TOPPINEN: New CD Will Be More Melodic Than Before ....
+
+<p>Finnish string combo APOCALYPTICA have commenced the recording sessions for their as-yet-untitled fourth CD, tentatively due for release in late January. <BR><BR> "I think the next album is not going to be so dark," main composer Eicca Toppinen told Germany's Walls Of Fire. "The songs are more melodic, with better melody lines... well, maybe not better, but it's still strong, very emotional. The compositions have some more positive colors in the music than before."<BR><BR> With regards to the possibility of including cover songs on the forthcoming CD, Toppinen stated that "so far it looks like there will be no covers at all. There are songs written by me, and also Perttu, the youngest member of the band, will probably write some. It will be only our own stuff. Of course, it might happen that during the session we suddenly feel that we want to do a cover, but not at the moment."<BR><BR> Although a small chance exists that the upcoming CD will include a collaboration or two in the vein of APOCALYPTICA's alliance with THE GUANO APES' Sandra Nasic on the stunning vocal version of "Path", nothing has yet been confirmed. "We are still looking for some co-operation," Eicca stated. "I mean, for some musicians who could help us on the new album, but nothing is sure yet. It might be that it becomes an only four cellos album, but let's see... You know, everything is still in a very sensitive position, we don't know yet which things will work out and which won't. A lot of conversation with different people is going on right now..."</p>
+
+Автор: Yermola
+
+### 04.10.2002 news DAVE LOMBARDO: I Will Play On The Next SLAYER Album ...
+
+<p>Drummer Dave Lombardo has confirmed that he will appear on the next SLAYER studio album, and if he has it his way, the record will see the light of day sooner rather than later.<BR><BR> "There is going to be a [SLAYER] record," Lombardo told Canada's Brave Words & Bloody Knuckles. "There will be a record ... if [the rest of the band] come up with music. I'm hoping they can come up with some music as soon as possible."<BR><BR> "I'm hoping that [it doesn't take them too long to come up with new material] this time," Lombardo added. "You never know, if they take a year or two years, will I still be interested? You never know. I don't know what is going to happen in that time frame. I'm hoping that they grasp the moment and run with it. You know, let's do it. Get on the ball. What are they doing now? I know I've a couple of records to put out within the next six months [the new FANTOMAS CD plus an all-out drum solo record on Mike Patton's label]. If there's like three guys sitting, writing, I hope they can come up with something."<BR><BR> As far as Lombardo is concerned, there are "no deadlines," he said. "I just told [guitarist] Jeff [Hannemann], 'Get home, wait a week and clean up your garage. Get your studio set up.' I kinda got him motivated a little. He was definitely motivated when I left him at the airport. I really didn't talk to [guitarist] Kerry [King] much about it. I had to question a couple of times that he wanted me to do the record. [Bassist/vocalist] Tom [Araya] was in on it. So, two-thirds is a plus and with Kerry, I feel he is a plus too."<BR><BR> In addition to the aforementioned projects, Lombardo has just finished recording the drums on five tracks for the forthcoming APOCALYPTICA record, tentatively due for release in late January.</p>
+
+Автор: Yermola
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 09.01.2003 news Новая APOCALYPTICA
+
+<p>10 февраля 2003 года - дата выхода новейшего творения финского струнного ансамбля APOCALYPTICA под названием "Reflections". Трэк-лист альбома включает в себя следующие вещи:</p>
+<p> 01. Prologue (Apprehension) <BR> 02. No Education <BR> 03. Faraway <BR> 04. Somewhere Around Nothing <BR> 05. Drive <BR> 06. Cohkka <BR> 07. Conclusion <BR> 08. Resurrection <BR> 09. Heat <BR> 10. Cortege <BR> 11. Pandemonium <BR> 12. Toreador II <BR> 13. Epilogue (Relief)</p>
+<p> В записи пяти трэков этого инструментального альбома принял участие Dave Lombardo (SLAYER), записав партии ударных и перкуссию. Один из этих трэков ("No Education") можно скачать для прослушивания <A HREF="http://www.musicline.de/de/newsarea/Downloads/0///35337/start">здесь</A>.</p>
+
+Автор: Dimas
+
+### 24.10.2003 news Новинка от Apocalyptica...
+
+<IMG height=200 alt="" hspace=0 src="/images/news_rus/2003.10/5222.jpg" width=200 align="left" border=0>В начале октября финские симфо-метал-инструментальсты Apocalyptica выпустили макси-сингл Seemann вместе с Ниной Хаген (Nina Hagen). Поклонников группы приятно удивит данный материал. Тем более что музыканты обешают выпустить следуюший альбом в этом довольно необычном ключе...
+Автор: AngelFire
+
+### 15.11.2003 news Apocalyptica выпускают лимитированное издание последнего альбома
+
+<B><IMG height=100 alt="" hspace=0 src="/images/news_rus/2003.11/5461.jpg" width=100 align="left" border=0>APOCALYPTICA</B> выпускают лимитированное "пересмотренное" издание последнего альбома "<B>Reflection Revised</B>". В него войдёт DVD со всеми видео-клипами с последней пластинки, включая <B>Seemann</B> и концертные выступления, а также несколько "новых" песен, ранее издававшихся только в качестве бонусов на различных лимитированных изданиях. Спрашивайте в магазинах с 17 ноября.
+Автор: Vit Belov
+
+### 15.11.2003 news APOCALYPTICA will release REFLECTION RIVESED
+
+<IMG height=100 alt="" hspace=0 src="/images/news/2003.11/5462.jpg" width=100 align="right" border=0>The revised version of the latest <B>Apocalyptica</B>-Album offers a bonus DVD, containing all videos from the Album (incl. <B>Seemann</B>), EPKs and three different up-to-date live-performances. Additionally there are also a couple of songs on the revised-cd, such as rare vinyl-tracks, b-sides, vocal verisons of <B>Faraway</B> and the mega-single <B>Seemann</B>! The revised-version of "<B>Reflections</B>" will hit stores monday 17-11-03!
+Автор: Vit Belov
+
+### 07.10.2004 news APOCALYPTICA объявляет певцов на новом альбоме
+
+<P>Новый альбом <STRONG>APOCALYPTICA</STRONG> выходит в феврале 2005 года. Стали известны два певца, которые исполнят там песню "<STRONG>Bittersweet</STRONG>". Это <STRONG>Ville Valo (HIM)</STRONG> и <STRONG>Lauri Ylonen (THE RASMUS)</STRONG>. Эта песня в формате сингла выйдет 29 ноября.</P>
+<P>Также на эту&nbsp;колмпозицию будет снят клип.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 07.10.2004 news APOCALYPTICA to release single
+
+<P>Finish cello-rockers <STRONG>APOCALYPTICA</STRONG> have returned to the studio to record the first single of their forthcoming album (due early February 2005). The song, entitled "<STRONG>Bittersweet</STRONG>", is a dark ballad, that features fellow-countrymen <STRONG>Lauri Ylцnen</STRONG> from <STRONG>THE RASMUS</STRONG> and <STRONG>Ville Valo</STRONG> from <STRONG>H.I.M.</STRONG> on vocals. The single, written by <STRONG>APOCALYPTICA</STRONG>,<STRONG> Lauri</STRONG> and <STRONG>Ville</STRONG> together, will be released internationally on 29 November. </P>
+<P><STRONG>Eicca Toppinen</STRONG>, <STRONG>Paavo Lцtjцnen</STRONG>, and <STRONG>Perttu Kivilaakso</STRONG> will appear alongside <STRONG>Lauri</STRONG> and <STRONG>Ville</STRONG> in the video for "<STRONG>Bittersweet</STRONG>", shot in the bandнs hometown Helsinki and directed by renowned finish director <STRONG>Antti Jokinen</STRONG>. </P>
+Автор: Vit Belov
+
+### 22.12.2004 news APOCALYPTICA объявили дату
+
+Новый альбом <STRONG>APOСALYPTICA 'Apocalyptica'</STRONG> выйдет 24 января 2005 года.
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 04.01.2005 news Сэмплы с нового альбома APOCALYPTICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, новый альбом <STRONG>APOCALYPTICA 'Apocalyptica'</STRONG> выходит в январе. Трэк-лист:</FONT></P>
+<P>1.<STRONG> Life Burns <BR></STRONG>2. <STRONG>Quutamo <BR></STRONG>3. <STRONG>Distraction <BR></STRONG>4. <STRONG>Bittersweet <BR></STRONG>5. <STRONG>Misconstruction <BR></STRONG>6. <STRONG>Fisheye <BR></STRONG>7. <STRONG>Farewell </STRONG><BR>8. <STRONG>Fatal Error <BR></STRONG>9. <STRONG>Betrayal/Forgiveness <BR></STRONG>10. <STRONG>Ruska <BR></STRONG>11. <STRONG>Deathzone</STRONG></P>
+<P>Уже сейчас Вы можете послушать сэмплы всех песен в Real Media формате. <A href="http://www.universal-rock.de/_ram/apocalyptica/a/pre/02.ram">http://www.universal-rock.de/_ram/apocalyptica/a/pre/02.ram</A>&nbsp; Вам нужно менять цифры в конце ссылки, на соответствующие номеру песни, которую Вы хотите послушать.</P>
+Автор: Vit Belov
+
+### 20.06.2005 news Тур APOCALYPTICA по России
+
+<P>На ноябрь запланирован тур <STRONG>APOCALYPTICA</STRONG> по России. Даты:</P>
+<P>05.11.05 Санкт-Петербург (Ледовый дворец)<BR>07.11.05 Самара (Дворец спорта)<BR>08.11.05 Казань (Пирамида) <BR>10.11.05 Новосибирск (Дворец спорта)<BR>11.11.05 Екатеринбург (Дворец спорта) <BR>13.11.05 Москва (Олимпийский) </P>
+Автор: Vit Belov
+
+### 24.03.2006 news APOCALYPTICA на Sony
+
+<P><STRONG>APOCALYPTICA</STRONG> подписали контракт с подразделением <STRONG>Sony Music 20-20 Entertaiment</STRONG>. Группа отправится в студию уже в этом году для записи своего шестого альбома.</P>
+Автор: Vit Belov
+
+### 03.05.2006 news APOCALYPTICA выпускают сборник
+
+<P><STRONG>APOCALYPTICA</STRONG> опубликовали трэк-лист своего сборника "<STRONG>Amplified - A Decade of Reinventing The Cello</STRONG>", который выйдет в формате (2CD + 2DVD) 26 мая:</P>
+<P>CD 1:<BR><BR>01. <B>Enter Sandman</B><BR>02. <B>Harmageddon</B><BR>03. <B>Nothing Else Matters</B><BR>04. <B>Refuse/Resist</B><BR>05. <B>Somewhere Around Nothing</B><BR>06. <B>Betrayal</B><BR>07. <B>Farewell</B><BR>08. <B>Master Of Puppets</B><BR>09. <B>Hall Of The Mountain King</B><BR>10. <B>One</B><BR>11. <B>Heat</B><BR>12. <B>Cohkka</B><BR>13. <B>Kaamos</B><BR>14. <B>Deathzone</B><BR>15. <B>Angel Of Death</B><BR><BR>CD 2:<BR><BR>01. <B>Repressed</B><BR>02. <B>Path Vol. 2</B><BR>03. <B>Bittersweet</B><BR>04. <B>Hope Vol. 2</B><BR>05. <B>En Vie</B><BR>06. <B>Faraway Vol. 2</B><BR>07. <B>Life Burns</B><BR>08. <B>Seemann</B><BR><BR><B>"The Life Burns Tour"</B>:<BR><BR>DVD 1: <BR><BR>01. <B>Intro – Apocalyptica</B><BR>02. <B>Path</B><BR>03. <B>Master Of Puppets</B><BR>04. <B>Somewhere Around Nothing</B><BR>05. <B>Fight Fire With Fire</B><BR>06. <B>Quutamo</B><BR>07. <B>Heat</B><BR>08. <B>Betrayal</B><BR>09. <B>Nothing Else Matters</B><BR>10. <B>Hope</B><BR>11. <B>Life Burns</B><BR>12. <B>Fisheye</B><BR>13. <B>Bittersweet</B><BR>14. <B>Seek & Destroy</B><BR>15. <B>Prologue</B><BR>16. <B>Creeping Death</B><BR>17. <B>Inquisition Symphony</B><BR>18. <B>Enter Sandman</B><BR>19. <B>Refuse/Resist</B><BR>20. <B>Hall Of The Mountain King</B><BR><BR>DVD 2: <BR><BR>01. <B>US Tour Film</B> (bonus material)<BR>02. <B>EPK - 'Repressed</B> (bonus material)<BR>03. <B>Bittersweet</B> (video)<BR>04. <B>Life Burns</B> (video)<BR>05. <B>How Far</B> (video)<BR>06. <B>Wie Weit</B> (video)<BR>07. <B>Faraway Vol. 2</B><BR>08. <B>Somewhere Around Nothing</B><BR>09. <B>Seemann</B> (video)<BR>10. <B>Repressed</B> (video) </P>
+Автор: Vit Belov
+
+### 18.08.2008 news ПИЛИГРИМ и APOCALYPTICA снимут клип
+
+<P>21 августа в Москве <STRONG>ПИЛИГРИМ</STRONG> и финны<STRONG> APOCALYPTICA</STRONG> снимут видеоклип на песню "<STRONG>Иуда</STRONG>", которая войдёт в будущий альбом <STRONG>ПИЛИГРИМ</STRONG> "<STRONG>Выхода нет</STRONG>".</P>
+Автор: Vit Belov
+
+### 26.05.2009 news APOCALYPTICA жалуются на чехов
+
+<P>Финская группа <STRONG>APOCALYPTICA</STRONG> выступила с заявлением, посвящённым нелегальному использованию трэка "<STRONG>Path</STRONG>" в рекламе в Чехии. Чешская республикансякая партия "Народная Страна" использовала музыку в своём ролике. <STRONG>APOCALYPTICA</STRONG> заявили, что не разделяют взглядов этой организации и выступают за объединённую Европу и права человека. Лэйбл <STRONG>Universal </STRONG>готовит иск к этой партии в Чехии. Ролик ниже.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/zq-iDgZtfQw&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/zq-iDgZtfQw&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.08.2009 news APOCALYPTICA войдут в студию зимой
+
+<P>Знаменитые финны <STRONG>APOCALYPTICA </STRONG>войдут в студию зимой для записи нового альбома. Пластинка выйдет весной следующего года.</P>
+Автор: Vit Belov
+
+### 31.01.2010 news APOCALYPTICA вошли в студию
+
+<P><STRONG>APOCALYPTICA </STRONG>начали запись своего нового альбома в студии Sonic Pump. Пластинка увидит свет весной или летом этого года.</P>
+Автор: Vit Belov
+
+### 04.03.2010 news APOCALYPTICA назвали альбом
+
+<P>Новый альбом<STRONG> APOCALYPTICA</STRONG>, который выйдет летом, будет называться <STRONG>"7th Symphony". </STRONG></P>
+Автор: Vit Belov
+
+### 05.06.2010 news Обложка новой APOCALYPTICA
+
+<P><STRONG>APOCALYPTICA </STRONG>выпускают свой седьмой студийный альбом <STRONG>"7th Symphony" </STRONG>23 августа. Продюсером основной части альбома выступил <STRONG>Joe Barresi</STRONG> (<B itxtvisited="1">TOOL</B>, <B itxtvisited="1">BAD RELIGION</B>). В записи альбома приняли участие <STRONG>Gavin Rossdale (BUSH)</STRONG>, <STRONG>Dave Lombardo (SLAYER)</STRONG>, <STRONG>Joseph Duplantier (GOJIRA)</STRONG> и<STRONG>&nbsp;Lacey Sturm (FLYLEAF)</STRONG>.&nbsp;&nbsp;</P>
+<P><center><IMG height=400 src="/images/news_rus/2010.06/16787.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 04.07.2010 news Новый клип APOCALYPTICA
+
+<P><STRONG>APOCALYPTICA</STRONG> в июне побывали в Лос-Анджелесе, где работали над видео к первому синглу <STRONG>"End Of Me" </STRONG>с будущего альбома <STRONG>"7th Symphony"</STRONG>. На этой песне спел <STRONG>Gavin Rossdale</STRONG>&nbsp;из<STRONG> BUSH. </STRONG>Он также снялся и в клипе. Ролик можно посмотреть ниже. </P>
+<P>Новая работа <STRONG>APOCALYPTICA </STRONG>должна выйти в конце августа этого года.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2JzFgvdo4Pk&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2JzFgvdo4Pk&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.08.2010 news Новое видео APOCALYPTICA
+
+<P>Новый ролик <STRONG>APOCALYPTICA</STRONG> на песню "<STRONG>Sacra</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wJumvqm0qqo&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wJumvqm0qqo&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.01.2011 news APOCALYPTICA Vs. RAMMSTEIN
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18091.jpg" width=258 height=300>Согласно сайту&nbsp;<A href="http://www.anwalt24.de/beitraege-news/fachartikel/eur-45-000-schadensersatz-fuer-unerlaubte-werbung-mit-zusatz-a-featuring-rammstein" target=_blank><U><FONT color=#0000ff>Anwalt24.de</FONT></U></A>, финскому квартету <B itxtvisited="1">APOCALYPTICA</B> было предписано выплатить 45.000 евро (примерно $ 59.000) для возмещения ущерба группе <B itxtvisited="1">RAMMSTEIN</B>, связанного с рекламной компанией альбома <STRONG>APOCALYPTICA</STRONG> <B itxtvisited="1">"Worlds Collide" </B>(2007)&nbsp;&nbsp;на территории&nbsp;Германии. Фронтмен <B itxtvisited="1">RAMMSTEIN</B> Тилль Линдеманн (<STRONG>Till Lindemann</STRONG>, на фото) был одним из нескольких вокалистов, которые приняли гостевое участие на этом диске. Однако в Германии <STRONG>"Worlds Collide" </STRONG>продавался с наклейкой "<STRONG>featuring</STRONG> <B itxtvisited="1">RAMMSTEIN</B>" ("включая <STRONG>RAMMSTEIN</STRONG>").&nbsp;В ходе слушанья по делу, которое&nbsp;происходило в Областном суде Берлина в прошлом месяце,&nbsp;&nbsp;<STRONG>RAMMSTEIN</STRONG> была присуждена выплата компенсации за незаконное использование товарного знака.</P>
+Автор: Headcrusher
+
+### 31.07.2016 news APOCALYPTICA встретились с журналистами
+
+<p>Сегодня в ТАСС состоялась пресс-конференция с участием финской группы<strong> APOCALYPTICA</strong>, посвящённая предстоящему выступлению группы на фестивале <strong>"Вдохновение 2016</strong>" 1 августа на ВДНХ.</p><p>Фото-отчёт с этого события можно<a href="/ru/galleries/1/1766/"> посмотреть здесь.</a></p><p>Кроме<strong> APOCALYPTICA</strong> в завтрашнем шоу в <strong>Зелёном Театре</strong> на ВДНХ примет участие легендарный<strong> Steve Vai</strong>.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.07/29703.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 31.07.2016 news APOCALYPTICA in Moscow: press-conference (photo)
+
+<p>Today, Press-conference with participation of the Finnish group<strong> APOCALYPTICA</strong> held in TASS, It dedicated to the upcoming performance at the festival <strong>"Inspiration 2016</strong>" on August,1 at Moscow.</p><p>A photo report from this event can be <a href="/en/galleries/1/1766/">viewed here.</a></p><p>Legendary<strong> Steve Vai</strong> will take part in tomorrow's show at the Green Theatre at VDNKH in addition to APOCALYPTICA.</p><p><center><img width="600" height="400" src="/images/news_rus/2016.07/29703.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Apocalyptica - иногда лучше жевать, чем говорить...

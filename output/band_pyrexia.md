@@ -72,6 +72,24 @@ Chris Lytle - bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.12.2006 news Новости от PYREXIA
+
+<P>Американские брутальщики из &nbsp;<B>PYREXIA</B> подготовили к изданию свой новый альбом под навзанием <STRONG>"Age of the Wicked".</STRONG> Он выйдет 23 января 2007 года на<STRONG>&nbsp;Unique Leader Records</STRONG>.&nbsp;Это будет продолжение их легендарного альбома 1993 года&nbsp;"<B>Sermon of Mockery</B>!".</P>
+Автор: Dimas
+
+### 15.06.2016 news Бывший вокалист PYREXIA убил трёх человек
+
+<p><strong>Erick Shute</strong>, бывший вокалист death-metal'истов <strong>PYREXIA</strong>, арестован в штате Западная Вирджиния по подозрению в убийстве трёх человек. На своей страничке в Facebook музыкант опубликовал сообщение, в котором признал, что случившееся самооборона, а эти люди должны были ему 20000 долларов. Позже пост был удалён.</p><p>Вокалист пел на двух студийных альбомах PYREXIA<strong> Age of the Wicked</strong> (2007) и<strong> Feast of Iniquity</strong> (2013).</p><p>&nbsp;<center><img width="478" height="430" src="/images/news_rus/2016.06/29365.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 15.06.2016 news Ex-singer of PYREXIA was arrested
+
+<p><strong>Erick Shute</strong>, former lead singer of death-metal band <strong>PYREXIA</strong>, arrested in West Virginia on suspicion of the murder of three people. On his page on Facebook musician, issued a statement in which he admitted that the incident was self-defense, and these people owed him $ 20,000. Later the post was deleted.</p><p>The vocalist sang on two studio albums by PYREXIA <strong>Age of the Wicked</strong> (2007) and <strong>Feast of Iniquity</strong> (2013).</p><p><center><img width="478" height="430" src="/images/news_rus/2016.06/29365.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### об Америкаснком Death Метале

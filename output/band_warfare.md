@@ -59,6 +59,9 @@ Slaughter - Bass
 * C группой "Venom" Jeff "Mantas" Dunn (guitar)
 * C группой "PrimEvil" Jeff "Mantas" Dunn (guitar)
 
+## Публикации
+
+
 ## Обсуждения
 
 

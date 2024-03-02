@@ -251,6 +251,433 @@ Japanese Edition has the following bonuses:
 * C группой "Kingdom Come" Mark Cross (Drums)
 * C группой "Nightfall" Mark Cross (Drums)
 
+## Публикации
+
+### 13.06.2000 reviews Второй альбом этого очень талантливого коллектива.
+
+<p>Второй альбом этого очень талантливого коллектива. Превосходный мелодичный heavy-power, среднетемповый с очень интересными ходами и использованием вокальных возможностей всех членов команды (особо заметно в припевах). По-прежнему, в любимцах AT VANCE находится группа ABBA. Как и на предыдущем альбоме, здесь снова звучит известный боевик шведского квартета в совершенно умопомрачительной тяжелой обработке. Я бы посоветовал AT VANCE как-нибудь позднее записать альбом, целиком состоящий из таких обработок, посвятив его любимой группе. Снова во многих композициях присутствуют вставки переработанных классических вещей. Техника музыкантов также впечатляет. Группе одинаково удаются как медленные так и быстрые speed-power композиции. Особенно впечатляет композиция "Princess Of The Night" - это, пожалуй, самая лучшая баллада за последнее время из всех, что я слышал. У ребят огромное будущее. Будем ждать продолжения.</p>
+
+Автор: Dimas
+
+### 13.06.2000 reviews The second album of this very talented collective.
+
+<p>The second album of this very talented collective. Excellent melodious heavy-power, middle-tempo with very interesting courses and use of vocal possibilities of all members of a command (especially noticeably in refrains). Still, in favourite of AT VANCE there is a group ABBA. As well as on the previous album, here known hit of the Swedish quartet in perfect to heavy processing again sounds. I would advise AT VANCE somehow later to note an album bodily consisting of such processings, having devoted it to favourite group. Again at many compositions there are insertions of the advanced classical things. The engineering of the musicians also impresses. It manage uniformly to group both slow and fast speed-power of a composition. A composition " Princess Of The Night " especially impresses is, perhaps, the best ballad lately from everything, that I heard. At the guys the huge future. Let's wait for a prolongation.</p>
+
+Автор: Dimas
+
+### 11.07.2001 news Новые релизы
+
+<p> At Vance выпустят новый альбом под названием Only Human 22 октября на AFM rec. Там же, но уже зимой должен увидеть свет новый альбом Squealer “Under The Cross”</p>
+
+Автор: Helloween
+
+### 16.09.2001 reviews Преследователь Дракона
+
+<p> Новый альбом At Vance начинается очень энергично. Первые две песни идут просто на ура, и уже начинаешь радоваться тому, что ты приобрел хороший пауэр-метал альбом. Но начиная с третьей песни ждет разочарование - среднетемповая музыка начинает постепенно вгонять в уныние, хотя откровенно проходные вещи чередуются с пятой симфонией Бетховена, которая в свою очередь тоже сделана скучновато, и кавер-версией The Winner Takes It All группы ABBA. Песня ABBA спасает положение, и альбом более менее не надоедает. В целом музыка довольно качественная, звучит четко, уверенно. Если бы пятая симфония Бетховена была сыграна энергичнее, быстрее - этот диск слушался бы гораздо приятнее! При всех своих минусах, Dragonchaser далеко не самый плохой пауэр-метал релиз года, и он обязательно найдет своих слушателей!</p>
+
+Автор: Vic Thor
+
+### 24.12.2002 reviews Only Human
+
+<p>Последние пару лет вышло очень много паверных альбомов. Многие из них очень неплохи и слушаются с удовольствием. Хотя всё равно, при их прослушивании возникает музыкальное дежа-вю, постоянно приходят ассоциации с чем-то уже услышанным. А вот при прослушивании данного альбома приходят на ум совершенно иные мысли! Вроде тот же гитарно-клавишный павер, но уже с первых аккордов становится понятно, что этот альбом выделяется на фоне всего остального. Очень гармонично вписывается оригинальный вокал Оливера Хартманна. Сам же альбом представляет собой сочетание боевиков и среднетемповых вещей, гитарно-клавишного инструментала "Solfeggieto", кавер на самого Вивальди "Времена года - весна". Ну а завершает альбом отлично исполненная вещь Rainbow "I surrender". Пожалуй, лучший пауэр-альбом уходящего года.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Del Silencio
+
+### 10.03.2003 news Новый альбом AT VANCE
+
+<p>19 мая 2003 года на AFM Records выйдет новый альбом германской neoclassical melodic power metal группы AT VANCE под названием "The Evil In You". После этого, группа отправляется в европейский тур вместе с KAMELOT.</p>
+
+Автор: Dimas
+
+### 06.07.2003 reviews At Vance в борьбе со злом и скукой.
+
+<p>Вот это мне нравится… очень правильный павер. Никаких псевдопрогрессивных экспериментов со звуком, никаких оркестровых нагромождений, металлических композиторов, мнящих себя вторыми бетховенами и скоморошьих дудок, любителей замшелого фолька. Все очень простенько и со вкусом. Хороший голос (не вижу проблемы в замене Хардманна на Матса Левена (ex-Malmsteen), был один хороший вокалист, теперь другой), высокий, но с приятной хрипотцой, клавишные пассажи все к месту, фоном тихо и ненавязчиво, гитарист не соревнуется со шрапнелью в полете. Знает, что всё равно не догонит. Быстрые, в основном, боевички, напоминающие стилистически смесь Стратовариуса и Rainbow. И самое правильное, есть то, что на мой взгляд самое главное с этом поп-метал жанре – хиты… Сразу запоминающиеся добрые и энергичные песни, которые хочется слушать вновь и вновь. И что еще более правильно – хитов много. Лично мой фаворит – The Guardian Will Fall. Не знаю, как вам, но мне гораздо приятнее было услышать этот легкий для восприятия альбом, а не вымученный последний Хэлловин или заумный, высокопрофессиональный, несколько нудноватый Шаманский ритуал. Ура светлому металу!!</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 04.02.2005 news Новый альбом AT VANCE
+
+<P><STRONG>AT VANCE</STRONG> заканчивают работу над новым альбомом, который будет называться '<STRONG>Chained</STRONG>'. Предположительно пластинка увидит свет 11 апреля на <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.02.2005 news AT VANCE назвали нового барабанщика
+
+<P>Новым барабанщиком <STRONG>AT VANCE</STRONG> стал бывший музыкант <STRONG>HELLOWEEN Mark Cross</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.02.2005 news Сольный дебют бывшего вокалиста AT VANCE
+
+<P>Бывший вокалист&nbsp;<B>AT VANCE</B> <B>Oliver Hartmann</B> (также записавший партии вокала для проектов <B>AVANTASIA</B>, <B>AINA</B>, <B>GENIUS</B>) подготовил к выпуску свой дебютный сольный альбом под названием <B>"Out in the Cold"</B>,&nbsp;релиз которого запланирован на 25 апреля через&nbsp;<B>Frontiers Records</B>. Продюсером альбома выступил <B>Sascha Paeth</B> (<B>RHAPSODY</B>, <B>KAMELOT</B>, <B>ANGRA</B>, <B>EDGUY</B>).&nbsp;Материал альбома выдержан в духe музыки для взрослых. Великолепный AOR в лучших традициях <B>STRANGEWAYS</B>&nbsp;и раннего&nbsp;<B>DARE</B>, с примесью классического хард-рока&nbsp;в духе <B>WHITESNAKE</B>, <B>RAINBOW</B>&nbsp;и <B>GIANT</B>. В записи альбома приняли участие ударник&nbsp;<B>Bodo Schopf</B> (<B>MSG</B>)&nbsp;и басист&nbsp;<B>Armin Donderer</B> (<B>PARADOX</B>). Трек-лист альбома:</P>
+<P>1. <B>Alive Again</B> <BR>2. <B>Out In The Cold</B> <BR>3. <B>Brazen</B> <BR>4. <B>The Same Again</B><BR>5. <B>I Will Carry On</B><BR>6. <B>What If I</B><BR>7. <B>How Long</B><BR>8. <B>The Journey</B><BR>9. <B>Who Do You Think That You Are</B><BR>10. <B>Listen To Your Heart</B><BR>11. <B>Can You Tell Me Where Love Has Gone</B><BR>12. <B>Into The Light</B> </P>
+Автор: Dimas
+
+### 19.10.2005 reviews Для непритязательного слушателя
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>AT VANCE</STRONG> мало отличается от предыдущих работ группы. Возможно, на втором альбоме с участием бывшего вокалиста Мальмстина <STRONG>Mats Leven</STRONG>&nbsp;группа дала небольшой крен в сторону неоклассического heavy-metal, правда, и раньше&nbsp;элементов этого стиля было полно. На "<STRONG>Chained</STRONG>" грамотно чередуются подобные боевики с&nbsp;среднетемповыми hard-rock хитами и балладами, навеянными творчеством классиков 70-х.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В общем, всё вполне на уровне, качественно... Придирки могут быть только чисто субъективные. Музыка <STRONG>AT VANCE</STRONG> не несёт совсем ничего требовательному слушателю. Все ходы и даже мелодии настолько запрограммированы, что даже скучно становиться. Посоветовать можно только большим любителям power-metal, а также тем, кто всю жизнь слушал <STRONG>RAINBOW</STRONG>, а теперь почему-то захотел чего-то помоднее.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На закуску, как всегда, кавер на Вивальди и уж совсем затасканный номер "<STRONG>Полёт Шмеля</STRONG>" в исполнении вдохновителя коллектива гитариста<STRONG> Olaf Lenk</STRONG>, который на виртуоза всё-таки не тянет, и все его попытки прослыть таковым вызывают лишь улыбку.</FONT></P>
+<P>Диск предоставлен CD-Maximum.</P>
+Автор: Vit Belov
+
+### 10.05.2007 news AT VANCE выпустят новый альбом в июне
+
+<P>Немецкая группа&nbsp;<B>AT VANCE</B>&nbsp;подготовила к изданию свой новый альбом под названием&nbsp;<B>"VII"</B>, выход в свет которого ожидается 29 июня через <B>AFM Records</B>. Седьмой альбом коллектива будет дебютом для нового вокалиста <B>Rick Altzi</B>. В альбом вошли следующие вещи:<BR><BR><IMG height=204 alt="" hspace=50 src="/images/news_rus/2007.05/11615.jpg" width=204 align=right border=0>1. <B>Breaking The Night</B><BR>2. <B>Shiver</B><BR>3. <B>Cold As Ice</B><BR>4. <B>Victory</B><BR>5. <B>Friendly Fire</B><BR>6. <B>Golden Leaves</B><BR>7. <B>Answer Me</B><BR>8. <B>Shine</B><BR>9. <B>Truth</B><BR>10. <B>Lost In Your Love</B></P>
+Автор: Dimas
+
+### 15.09.2008 reviews Качественная работа &quot;без дураков&quot;
+
+<P>Седьмой альбом немецкой группы At Vance назван бесхитростно "VII",&nbsp;да и музыку сложной тут назвать нельзя. По большому счету, это довольно "приятно-мелодичный" пауэр-метал made in Germany. Бессменный участник коллектива Олаф Ленк в очередной раз поменял состав, оставшись ныне с новым вокалистом, которого зовут Rick Altzi. Вот вдвоем они и записали "семёрку", хотя в Интернете ходят слухи, что к записи приложили руку и другие люди, но будем довольствоваться тем, что напечатано в буклете (над которым работал Томас Эверхард). Собственно, простой рецепт написания песен сработал хорошо. Это альбом без шедевральных вещей, но и откровенного проходняка тут тоже нет. Кое-какие песни понравятся и поклонникам коллективов типа Whitesnake ('Friendly Fire', например), так что тут Ленк пытается убить несколько зайцев сразу. 'Golden Leaves' и 'Answer Me' наверняка запомнятся вам своими припевами, а что еще надо-то, если группа не претендует на слишком высокие места на тесном от немалого количества собратьев по жанру пъедестале пауэр-метала? Ну и баллада имеет место быть, а как же ('Lost In Your Love' - название "на уровне" Скорпов, не находите?) Думаю, что At Vance имеют свой определенный круг постоянных слушателей, и "VII" вряд ли уменьшит их количество, даже скорее приведет новых. Ибо работа выполнена действительно качественно, что называется, "без дураков", без халтуры. И пусть тут нет никаких откровений, никакой оригинальности, но альбом действительно слушается очень приятно и на одном дыхании. Но совершенно открыто снимаю полбалла за дурацкие компьютерные барабаны, неужели нельзя было найти нормального ударника под этот альбом? На российском лицензионном издании вы можете услышать бонусом концертный трек 'Broken Vow'.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 08.04.2009 news AT VANCE пишут
+
+<P><STRONG>AT VANCE</STRONG> заняты работой над новой пластинкой, которая выйдет на <STRONG>AFM</STRONG> в конце года. Группа объявила имя нового басиста, им стал <STRONG>Wolfman Black</STRONG>&nbsp;(<STRONG>JUSTICE</STRONG>).</P>
+Автор: Vit Belov
+
+### 31.08.2009 news Новый альбом AT VANCE
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.08/14953.jpg" width=400 align=right border=5>Новый альбом <STRONG>AT VANCE "Ride The Sky"</STRONG> выходит 18 сентября на<STRONG> AFM</STRONG>. Пластинка была спродюсирована лидером коллектива гитаристом <STRONG>Olaf Lenk </STRONG>и содержит кавер на песню <STRONG>FREE</STRONG>. Трэк-лист:</P>
+<P>01. <B>Ride The Sky</B><BR>02. <B>Torn - Burning Like Fire</B><BR>03. <B>Last In Line</B><BR>04. <B>Wishing Well</B><BR>05. <B>Salvation Day</B><BR>06. <B>Vivaldi, Summer 2nd Set</B><BR>07. <B>Power</B><BR>08. <B>You And I</B><BR>09. <B>End Of Days</B><BR>10. <B>Falling</B><BR>11. <B>Farewell</B></P>
+Автор: Vit Belov
+
+### 03.12.2009 reviews Восьмой альбом проекта AT VANCE
+
+<P>К восьмому своему альбому AT VANCE практически превратились в сольный проект гитариста Olaf Lenk. В общем-то, ничего удивительного здесь нет, он и раньше был движущей силой этой группы, но всё-таки это лишний раз показывает статус AT VANCE на мировой сцене.</P>
+<P>Но у нас эту группу любят. Думается, и “Ride The Sky” не рассеет эти чары. Неоклассический heavy-metal с хорошим вокалом и техничными соло, что ещё надо? Новый вокалист Rick Altzi мало уступает своим знаменитым предшественникам Mats Leven и Oliver Hartmann. Сейчас этот мужчина поёт сразу в нескольких известных группах – THUNDERSTONE, SANDALINAS и FREQUENCY. Его голос близок к идеалам мелодичного hard-rock и прекрасно сочетается с музыкой. Безусловно, “Ride The Sky” не самая удачная пластинка AT VANCE. Здесь не хватает хитов, но выполнены местные мелодии в хорошем качественном ключе. Есть неплохая баллада и обычный для группы Вивальди.</P>
+<P>Достойная работа достойной группы, не претендующая на что-то глобальное. Господин Lenk играет в своём ключе, но уже никогда не достигнет былой популярности.</P>
+Автор: Vit Belov
+
+### 09.04.2012 news Новая песня AT VANCE
+
+<P>Новый трек неоклассиков <STRONG>AT VANCE "Savior"</STRONG> можно послушать ниже. Трек войдёт на новый альбом немецкой группы "<STRONG>Facing Your Enemy</STRONG>", который выйдет 27 апреля на <STRONG>AFM</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="46">Heaven Is Calling</B><BR itxtNodeId="45">02. <B itxtHarvested="0" itxtNodeId="44">Facing Your Enemy</B><BR itxtNodeId="43">03. <B itxtHarvested="0" itxtNodeId="42">Eyes Of A Stranger</B><BR itxtNodeId="41">04. <B itxtHarvested="0" itxtNodeId="40">Fear No Evil</B><BR itxtNodeId="39">05. <B itxtHarvested="0" itxtNodeId="38">Live And Learn</B><BR itxtNodeId="37">06. <B itxtHarvested="0" itxtNodeId="36">Don't Dream</B><BR itxtNodeId="35">07. <B itxtHarvested="0" itxtNodeId="34">Seeing Me Crying</B><BR itxtNodeId="33">08. <B itxtHarvested="0" itxtNodeId="32">Saviour</B><BR itxtNodeId="31">09. <B itxtHarvested="0" itxtNodeId="30">Tokyo</B><BR itxtNodeId="29">10. <B itxtHarvested="0" itxtNodeId="28">March Of The Dwarf</B><BR itxtNodeId="27">11. <B itxtHarvested="0" itxtNodeId="26">Fame And Fortune</B><BR itxtNodeId="25">12. <B itxtHarvested="0" itxtNodeId="24">Things I Never Needed</B></P>
+<P><center><iframe width="60%" height="166" scrolling="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F42252388&show_artwork=true" frameborder="0" ></iframe></P>
+Автор: Vit Belov
+
+### 28.04.2012 news Видео-клип AT VANCE
+
+<P>Новый ролик <STRONG>AT VANCE</STRONG> на песню "<STRONG>Facing Your Enemy</STRONG>" можно посмотреть ниже. Трек взят с новейшего одноимённого альбома коллектива, который выйдет в нашей стране на<STRONG> Фоно</STRONG> в начале следующей недели.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/vSz181VydqM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.05.2012 reviews Села батарейка
+
+<P>Проект немецкого гитариста Olaf Lenk AT VANCE представил нашему вниманию уже девятый полноформатный альбом. Коллектив выпустил дебютную работу только в 1999 году, подобная скорострельность вызывает уважение. Первые пять альбомов музыканты выпускали каждый год, затем промежутки составляли два года, между обозреваемой пластинкой и предыдущей работой “Ride The Sky” прошло уже три года.</P>
+<P>Безусловно, энтузиазм у Olaf уже, как говорится, не тот. Раньше он и его друзья просто-таки горели творческой энергией, и каждая их работа, если и не была шедевром, но впечатляла свежестью и напористостью звучания. Но все мы стареем, AT VANCE давно уже превратился в home-project гитариста, был случай, когда он записал альбом в одиночку, при помощи одного только вокалиста. Теперь AT VANCE обладают полноценным составом, но былого, кажется, не вернуть. Непосредственно с мелодиями у современного AT VANCE проблем нет. Группа всё также представляет набор неоклассических произведений, не отличающихся особой оригинальностью. Но не оригинальностью брали своё AT VANCE в прошлом. Их музыка привлекала к себе внимание незамутнённым задором, которого ныне и след простыл. Немцы представляют теперь эдакий неоклассический AOR, о power-metal здесь речь уже не идёт, несмотря на несколько тяжёлых композиций.</P>
+<P>У Olaf Lenk села батарейка? Или он просто стал старше, и его потянуло на более светлую и менее экзальтированную музыку? Не нам судить. AT VANCE по-прежнему слушать приятно, но не более того.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### At Vance - что скажете?

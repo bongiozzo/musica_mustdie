@@ -44,6 +44,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2016 news Новая музыка и новый альбом THY CATAFALQUE
+
+<p>Венгерский авангардный проект <strong>THY CATAFALQUE</strong> выпускает новый альбом "<strong>Meta</strong>" 16 сентября на<strong> Season Of Mist</strong>. Премьера песни "<strong>Mezolit</strong>" состоялась вчера. Трек можно послушать в клипе ниже.</p><p>Трек лист:</p><p>1. Urania&nbsp;&nbsp; <br>2. Siraly&nbsp;&nbsp; <br>3. 10^(-20) Angstrom&nbsp;&nbsp; <br>4. Ixion Duun&nbsp;&nbsp; <br>5. Osszel otthon&nbsp;&nbsp; <br>6. Malmok jarnak&nbsp;&nbsp; <br>7. Vonatut az ejszakaban&nbsp;&nbsp; <br>8. Mezolit&nbsp;&nbsp; <br>9. Fehervasarnap</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/cUMgFoFCFIs" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 22.07.2016 news THY CATAFALQUE: New music and new album
+
+<p>Hungarian avant-garde project <strong>THY CATAFALQUE</strong> will release a new album <strong>"Meta"</strong> on September 16 via<strong> Season Of Mist</strong>. Premiere of the song "<strong>Mezolit"</strong> took place yesterday. The track can be streamed in the clip below.</p><p>Track list:</p><p>1. Urania&nbsp;&nbsp; <br>2. Siraly&nbsp;&nbsp; <br>3. 10^(-20) Angstrom&nbsp;&nbsp; <br>4. Ixion Duun&nbsp;&nbsp; <br>5. Osszel otthon&nbsp;&nbsp; <br>6. Malmok jarnak&nbsp;&nbsp; <br>7. Vonatut az ejszakaban&nbsp;&nbsp; <br>8. Mezolit&nbsp;&nbsp; <br>9. Fehervasarnap</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/cUMgFoFCFIs" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 12.08.2016 news Ещё одна новая песня THY CATAFALQUE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом венгерской авангардной команды <strong>THY CATAFALQUE "Meta"</strong> выйдет 16 сентября на <strong>Season Of Mist</strong>. Ниже можно услышать второй сингл с этого альбома "<strong>Siraly</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/IM0l0Aa8FPk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 12.08.2016 news THY CATAFALQUE unleash second song of new album
+
+<p>Hungarian avant-garde metal outfit<strong> THY CATAFALQUE</strong> are unveiling the second mind-bending song taken from their forthcoming seventh album '<strong>Meta</strong>', which will be out in stores on September 16th. </p><p>The beautiful track <strong>"Sirбly</strong>" is now streaming below.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/IM0l0Aa8FPk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

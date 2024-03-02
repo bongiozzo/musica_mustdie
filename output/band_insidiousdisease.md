@@ -38,6 +38,22 @@ Frank "Killjoy" Pucci of Necrophagia co-wrote and performed guest vocals on "Rit
 * C группой "Angelcorpse" Tony Laureano 
 * C группой "Old Man's Child" Jon Шyvind Andersen (a.k.a. Jardar) 
 
+## Публикации
+
+### 30.01.2009 news INSIDIOUS DISEASE - новый суперпроект
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=308 alt="" hspace=0 src="/images/news_rus/2009.01/13472.jpg" width=400 align=left border=5>Новую песню суперпроекта <STRONG>INSIDIOUS DISEASE </STRONG>можно послушать на официальной <STRONG>MySpace </STRONG>страничке коллектива. <STRONG>"Boundless" </STRONG>войдёт на дебютный альбом группы, который выйдет в этом году. Записано 12 песен с продюсером&nbsp;<B itxtvisited="1">Terje Andersen</B> (a.k.a. <B itxtvisited="1">Cyrus</B>)&nbsp;из <B itxtvisited="1">SUSPERIA</B>. В составе:</FONT></P>
+<P><STRONG>Marc "Groo" Grewe</STRONG> (ex-MORGOTH) - Vocals<BR itxtvisited="1"><B itxtvisited="1">Sven Atle Kopperud</B> (a.k.a. Silenoz) (DIMMU BORGIR) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Shane Embury</B> (NAPALM DEATH) - Bass<BR itxtvisited="1"><B itxtvisited="1">Tony Laureano</B> (DIMMU BORGIR, ex-NILE, ANGELCORPSE) - Drums<BR itxtvisited="1"><B itxtvisited="1">Jon Oyvind Andersen</B> (a.k.a. Jardar) (OLD MAN'S CHILD) – Guitar</P>
+<P>Ссылка: <A href="http://www.myspace.com/insidious666">http://www.myspace.com/insidious666</A></P>
+Автор: Vit Belov
+
+### 02.09.2010 news Дебютный клип INSIDIOUS DISEASE
+
+<P>Интернациональный проект&nbsp;<STRONG>INSIDIOUS DISEASE</STRONG> выпустил видео клип на песню <STRONG>"Boundless"</STRONG>. Этот трек вошёл на&nbsp;дебютник&nbsp;<STRONG>INSIDIOUS DISEASE</STRONG> <B itxtvisited="1">"Shadowcast"</B>, который был выпущен 12 июля в Европе и 27 июля в С.Ш.А. на <B itxtvisited="1">Century Media Records</B>.</P>
+<P>Клип доступен для просмотра по ссылке: <A href="http://www.youtube.com/watch?v=FvJlVbtjmR4&feature=player_embedded">http://www.youtube.com/watch?v=FvJlVbtjmR4</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

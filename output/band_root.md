@@ -180,6 +180,72 @@ Black Gothic Death Doom
 
 * C группой "Cales" Peter "Blackie" Hosek
 
+## Публикации
+
+### 30.10.2001 news Root закончили запись нового альбома
+
+<p>Чешские black-ветераны Root завершили запись в студии Shaark своего шестого альбома, названного "Black Seal". На грядущем альбоме ожидается интересный сюрприз. В песне "Salamandra" дуэтом с Big Boss поёт никто иной, как Fernando Ribeiro из Moonspell. Альбом "Black Seal" выйдет в течение ноября 2001 года на Redblack Productions.</p>
+
+Автор: Morsus
+
+### 30.10.2001 news Root finished recording of new album
+
+<p>The band finished recording of their sixth album called "Black Seal" at Shaark studios. You can find a real surprise on the new album. Nobody else than Fernando Ribeiro of Moonspell has a duet with BigBoss in "Salamandra" song. The album "Black Seal" is scheduled for November 2001 on Redblack Productions.</p>
+
+Автор: Morsus
+
+### 24.06.2003 news Root пишут очередной альбом
+
+<p>Ветераны чешской тяжёлой сцены Root записывают в студии Shaark седьмой по счёту альбом "Madness of the Graves". Результат можно будет заслушать уже этой осенью.</p>
+
+Автор: Morsus
+
+### 24.06.2003 news ROOT are just recording their brand new album
+
+<p>ROOT are just recording their seventh album called "Madness Of The Graves" in Shaark studios. The album is going to be released during Autumn 2003.</p>
+
+Автор: Morsus
+
+### 18.10.2004 news ROOT - Live-DVD выйдет в ноябре
+
+<P>В ноябре можно будет приобрести свежий DVD "Helltour 2004" и посмотреть совместное выступление групп <STRONG>T&#214;RR</STRONG> и <STRONG>ROOT</STRONG> в пражском рок-клубе "Futurum" (в том числе и джем-сейшн), кучу фотографий и по одному клипу от каждой команды.</P>
+Автор: Morsus
+
+### 18.10.2004 news ROOT: Live-DVD out in November!
+
+<P>DVD HELLTOUR 2004 contains gigs of <STRONG>TORR</STRONG> and <STRONG>ROOT</STRONG> in Prague rock club Futurum, joint jam of both groups, photogallery and one clip of each group. OUT IN NOVEMBER!</P>
+Автор: Morsus
+
+### 16.08.2005 articles ROOT на фестивале в чешской глубинке
+
+<P>ROCK FEST POLNA, 6 августа 2005 г., Polna u Jihlavy, Чехия</P>
+<P><IMG height=338 hspace=5 src="/images/articles_rus/2005.08/9107.jpg" width=260 align=right border=0>Этим летом мы с супругой и Олегом 13-м ездили в Чехию... Ну и в качестве культурной программы посетили концерт ROOT. Дико прусь от творчества этой группы, ну а тут такая оказия, как раз в этих числах они выступают, пусть и в заднице под названием Polna u Jihlavy, но ведь так даже интереснее, не правда ли. Забронировали гостиницу в Йихлаве, город крупный, но делать там абсолютно нефиг, разве что переночевать после концерта ROOT. Ну а Polna – это в 16-ти километрах, доедем на автобусе, такси там есть наверняка, как пить дать, за 16 километров дорого не возьмут, на худой конец пешком дойдём, фигли нам.</P>
+<P>Нет, не дойдём – стало ясно после получасовой поездки на рейсовом автобусе. Далековато всё же. Подъезжаем к этой самой Польне, заиграло очко – придётся тут ночевать. Городок маленький, симпатичный, старые домики, площадь со сквериком и то ли памятником, то ли чумным столбом. Но абсолютно пустой! Семь вечера, а народу ни души. Ты где-нибудь здесь такси видишь? Неа. Смотрим рассписание ближайших автобусов. Их нет. Вообще ни в какую сторону. В рабочие дни что-то ходит, в выходные полный голяк. Ночевать на лавке или идти пешком – на горизонте замаячила жопа.</P>
+<P>Концерт должен был проходить в замке, и как раз по дороге мы видели какие-то развалины, и направление знали. Туда и пошли. Вскоре начали доноситься жужжащие звуки митала, оно и есть. Через ограждение видна сцена и перед ней два с половиной калеки – фестиваль в самом разгаре. Напротив сцены амфитеатром заросшие травой зрительные ряды, там народу побольше – человек двадцать. Билеты можно не брать, всё и так видно и слышно, небольшая толпа местной детворы пялится, опёршись о забор. Девушка у входа с билетами явно не ждала нашего появления. Спрашиваем на русско-английском и жестами, можно ли как-нибудь отсюда уехать, есть ли в городе такси? С помощью ещё одного подошедшего парня нам рассказали, что такси надо вызывать по телефону, дали номер, и в общем говорят не проблема, эдак крон за 300 до Йихлавы вполне можно уехать. Обрадовали. 300 крон – это 350 рублей. Вполне приемлемо. 1 доллар – 24,5 чешских кроны. Билеты на фестиваль - 250 крон, не торчать же теперь снаружи.</P>
+<P>Внутри намного лучше. Разливной Гамбринус, Бехеровка, батарея всяких ликёров, хавчик – всё по 20, только нужно жетончики предварительно покупать в кассе, потом менять их у барменов на бухло и жрачку. Классно организовано, одни пиво наливают, за другим столом крепкое, за третьим колбаску жарят. Музыка с полудня до глубокой ночи. И звук отличный, чёткий. Свежий воздух к тому же, лепота. Но народу – как в Р-Клубе в будний день, и для кого только это всё? Для нас наверно. Начали со спиртных напитков. Объясняться трудно, чешский язык абсолютно непонятен, но знания двух слов - «пиво» и «бехеровка» - для того чтоб согреться и взбодриться пока вполне достаточно.</P>
+<P>Мы попали на местное пионерско-блэковое трио MORRIOR, игравшее с серьёзными лицами невразумительный жидкий митал. Пара человек пытались угарать перед сценой, поодаль прошёл перекувыркнулся высокий волосатый чел, остальные кучкуясь пили пиво, грелись в лучах вечернего солнца. Вот, думаем, сидим мы тут на травке в самой, можно сказать, жопе Чехии, в анусе, откуда даже транспорт не ходит, пьём пиво, митал слушаем. Клёва! Андерграунд!</P>
+<P>После паузы народу прибавилось, играли судя по оживлению известные и уважаемые люди во главе с разряженной блестящей рок-тёткой. Голос сильный, но отвратный. Ещё какие-то чувихи в масках вытащили на сцену плющевый труп чёрной пантеры, весело лыбясь вприпрыжку выбежал ребёнок с игрушечной гитарой – ваще трындец! Подошли к сцене поглядеть. Цирк с конями! Но народу нравится. Посмотрели, пошли к столикам. Сосиски, бехеровка, пиво. Немножко сблеванул под заборчик. Стало весело.</P>
+<P>Ну и наконец дошла очередь до серьёзных людей. ROOT!!! Жыр!!! Лысый мужик с бородой в чёрном трико и плаще – Биг Босс, монстр чешского митала, такой как на картинке, с разрисованным черепом! Важно ходит по сцене и шевелит руками как Джо Кукер.</P>
+<P>Напился. Потерял чехол от фотоаппарата. Но вот ROOT отыграли, и мы поторопились на автобусную стоянку, так легче вызвать такси, подумали. Скажем в трубку – «автовокзал, плиз», и будем ждать. Шучу. Даша на самом деле немного знает английский, и что-то там даже толково объяснила. Так или иначе, такси появилось. А на лавке рядом сидели местные люди, тоже с концерта наверно, а может и нет, и пока ждали машину, мы объяснили им свою проблему, и они потом с водителем договорились за нас в лучшем виде, спасибо им. Выгрузились прямо перед дверьми отеля и ещё на рецепшне все шесть бутылок пива скупили на утро.</P>
+Автор: Morsus
+
+### 01.07.2011 news Nergal поучаствовал на новом альбоме ROOT
+
+<P>Новый альбом чешских ветеранов <STRONG>ROOT "Heritage Of Satan"</STRONG> выйдет этой осенью на <STRONG>Agonia Records</STRONG>. Группа объявила имена трёх приглашённых музыкантов, принявших участие в записи их девятого альбома: <STRONG>Erik Danielsson (WATAIN), Rune Blasphemer Eriksen</STRONG> (ex-<STRONG>MAYHEM, AVA INFERI, AURA NOIR)</STRONG>&nbsp;и <STRONG>Adam Nergal Darski (BEHEMOTH)</STRONG>.</P>
+<P><center><IMG height=213 src="/images/news_rus/2011.07/19834.jpg" width=320 border=0></P>
+Автор: Vit Belov
+
+### 11.10.2016 news Новый альбом ROOT
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Легендарная чешская epic black metal группа<strong> ROOT</strong> готовит к выпуску новый альбом "<strong>Kargeras - Return From Oblivion</strong>". Дата релиза - 25 ноября на <strong>Agonia Records</strong>. Это десятая работа чехов, концептуально продолжающая альбом 1996 года "<strong>Kargeras</strong>". Открывающий трек можно послушать в клипе ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Обложку нарисовал <strong>Thomas Bruno</strong>. Запись, сведение и мастеринг прошли в <strong>Shaark Studio</strong>. Продюсером выступил лидер ROOT <strong>Big Boss</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1. Life Of Demons<br>2. Osculum Infame<br>3. Moment Of Fright<br>4. The Book Of Death<br>5. Black Iris<br>6. Moment Of Hope<br>7. The Key To The Empty Room<br>8. New Empire<br>9. Up To The Down<br>10. Do You Think Is It The End?</p><p><center><img width="600" height="600" src="/images/news_rus/2016.10/30055.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/2lLvkGyaDuY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 11.10.2016 news New album by ROOT
+
+<p>Legendary Czech dark metallers<strong> ROOT</strong> premiere new song "<strong>Life Of Demon</strong>" in anticipation of their upcoming album "<strong>Kargeras - Return From Oblivion</strong>", set to be released on November 25th via<strong> Agonia</strong>.</p><p>ROOT is one of the original pre-second-wave black metal bands formed in 1987 by iconic vocalist Jiri 'Big Boss' Valter. In contrast to Bathory and Venom, ROOT took the black metal genre in a more refined direction, featuring Big Boss' chartacteristic clean vocals, dark sound and an epic approach altogether. Nowadays, ROOT is often recognized as an epic heavy/black metal act, or as the band simply puts it - a dark metal band.</p><p>The new album, "Kдrgerдs - Return From Oblivion", will be different from their 2011's offering, "Heritage Of Satan", says the band:&nbsp; </p><p>"As always in our history as a band, we aim to deliver a unique album, something that will stand out and shine its own light in our discography. Expect dark metal at its best, along with some surprising elements. We've recorded one fully acoustic song and one entirely instrumental. Overall, the album will include ten new tracks that will differ from our previous records".<br>&nbsp;<br>"Kдrgerдs - Return From Oblivion" will be ROOT's tenth full-length album. Lyrically, it will be a concept album, and looked at from that perspective, it'll continue the story begun by their 1996 release under a similar yet shorter title, "Kдrgerдs", that presents a tale of a pround nation.</p><p>The album artwork (available above) was hand-painted by Thomas Bruno. The painting started off as a portrait at first, but after the band's decision to use it as cover, the mystical tree, ravens and other elemnts where added. Recroding, mixing and mastering took place at Shaark Studio in South Moravia. Big Boss produced the album.</p><p>Tracklist:<br>1. Life Of Demons<br>2. Osculum Infame<br>3. Moment Of Fright<br>4. The Book Of Death<br>5. Black Iris<br>6. Moment Of Hope<br>7. The Key To The Empty Room<br>8. New Empire<br>9. Up To The Down<br>10. Do You Think Is It The End?</p><p><center><img width="600" height="600" src="/images/news_rus/2016.10/30055.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/2lLvkGyaDuY" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

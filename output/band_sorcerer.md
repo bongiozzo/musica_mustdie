@@ -15,6 +15,25 @@
 * C группой "Sundown" Johnny Hagel
 * C группой "Lithium" Johnny Hagel
 
+## Публикации
+
+### 11.09.2015 news SORCERER опубликовали видео
+
+<P>Шведские epic-doom-metal'исты <STRONG>SORCERER</STRONG> опубликовали видео на песню “<STRONG>Prayers For A King</STRONG>”. Трек взят с дебютного альбом великолепной группы "<STRONG>In The Shadow Of The Inverted Cross</STRONG>", который вышел в марте на<STRONG> Metal Blade</STRONG> и Фоно.</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/L8SssCBG2mM" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.06.2016 news Новое видео SORCERER
+
+<p>Новый клип шведской doom metal/heavy metal сенсации <strong>SORCERER </strong>на песню <strong>"Black"</strong> можно посмотреть ниже. Трек взят с одноимённого мини-альбома группы, который доступен к покупке в сети.</p><p>Трек-лист:</p><p>“Black”<br>“Legion Of The Serpent”<br>“Into Oblivion”<br>“Prayers For A King” (acoustic version)</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/HhvZVE2JgIA" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.06.2016 news SORCERER: New EP and video
+
+<p>New video of the Swedish doom metal/heavy metal sensation <strong>SORCERER</strong> for the song "<strong>Black</strong>" can be viewed below. The track is taken from the eponymous mini album, which is available to buy online.</p><p>Track listing:</p><p>“Black”<br>“Legion Of The Serpent”<br>“Into Oblivion”<br>“Prayers For A King” (acoustic version)</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/HhvZVE2JgIA" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

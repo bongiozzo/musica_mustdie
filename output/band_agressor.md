@@ -91,6 +91,15 @@ Steiphen Swegwam  - Drums
 
 * C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Agressor on tour 1999)
 
+## Публикации
+
+### 30.06.2000 news Новый трибьют King Diamond
+
+<p>Necropolis Records планирует к выпуску трибьют King Diamond. Вот некоторые песни и исполнители: DARK FUNERAL - 'The Trial', DAMNATION - 'Mansion In Darkness', IN AETERNUM - 'Abigail', USURPER - 'Charon', EXHUMED - 'No Presents For Christmas', AURORA - 'Eastman's Cure', DESTINY'S END - 'Dressed In White', ANCIENT - 'Halloween', FALLEN EMPIRE - 'The Exorcist', ENTHRAL - 'The Portrait' and AGGRESSOR - 'Welcome Home'.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

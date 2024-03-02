@@ -278,6 +278,92 @@ The artwork was created by Eliran Kantor (Testament, Sigh, Gwar, Anacrusis)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.03.2006 news Uli Kusch вернулся в MEKONG DELTA
+
+<P><STRONG>Uli Kusch</STRONG> вновь присоединился к <STRONG>MEKONG DELTA</STRONG>, чтобы принять участие в записи новой пластинки.</P>
+Автор: Vit Belov
+
+### 19.01.2007 news MEKONG DELTA наняли вокалиста
+
+<P>В роли вокалиста на новом альбоме <STRONG>MEKONG DELTA</STRONG> выступит <STRONG>Leo Szpigiel</STRONG> (<B>ANGEL DUST</B>, <B>CROWS</B>, <B>SCANNER</B>, <B>DUKE</B>). Группа уже записала гитары. На будущий альбом войдёт фрагмент десятой симфонии <STRONG>Дмитрия Шостаковича</STRONG>.</P>
+Автор: Vit Belov
+
+### 30.01.2007 news Название нового MEKONG DELTA
+
+<P>Новый альбом <STRONG>MEKONG DELTA</STRONG> будет называться <STRONG>"Lurking Fear"</STRONG>. Вот названия некоторых песен: <STRONG>"Rules of Corruption"</STRONG>, <B>"Society of Fear"</B>, <B>"Ratters"</B>, <B>"Shadow of Truth"</B>&nbsp;и <B>"Immortal Hate"</B>.</P>
+Автор: Vit Belov
+
+### 26.06.2007 news MEKONG DELTA на AFM
+
+<P><STRONG><IMG height=197 alt="" hspace=0 src="/images/news_rus/2007.06/11687.jpg" width=204 align=right border=5>MEKONG DELTA</STRONG> подписали контракт с <STRONG>AFM</STRONG> на выпуск своего камбэк альбома "<STRONG>Lurking Fear</STRONG>". Пластинка выйдет 24 августа.</P>
+Автор: Vit Belov
+
+### 28.09.2008 news MEKONG DELTA сменили состав
+
+<P>Немцы <STRONG>MEKONG DELTA</STRONG> назвали имена новых вокалиста и барабанщика, с которыми они приедут в Москву. Новым певцом легендарной группы стал <STRONG>Martin LeMar</STRONG> (<B itxtvisited="1">TOMORROW'S EVE</B>), а барабанщиком <STRONG>Alex Landenburg</STRONG> (<B itxtvisited="1">AT VANCE</B>, <B itxtvisited="1">ANNIHILATOR</B>).</P>
+Автор: Vit Belov
+
+### 23.10.2008 news MEKONG DELTA + DIE APOKALYPTISCHEN REITER
+
+<BR>
+<CENTER><IMG height=361 src="/images/shows_rus/2008.11/12655.jpg" width=500 border=0></CENTER>
+<P><BR>&nbsp;</P>
+<P>«Буря! Скоро грянет буря!» - знал, или догадывался наш соотечественник, предугадывая события, которые захлестнут нашу страну этой осенью. Как, вы не понимаете, о чем тут идет речь? А может быть, и в январе 2007 года первая волна стихии прошла незамеченной и вы не попали на концерты немецких отвязных парней <B>Die Apokalyptischen Reiter</B> в Москве и Санкт-Петербурге? Хм, а что вы вообще видели?..</P>
+<P>Дикая, но симпатичная музыкальная формация <B>Die Apokalyptischen Reiter</B> увидела свет в городке Weimar провинциальной Восточной Германии, находящимся на грани двух противостоящих миров и ведущего унылый образ жизни в тени пресловутого железного занавеса. Воспитанные на классиках немецкой литературы, лучших представителях тяжелой и не очень музыки со всего мира и доносящихся отголосках бравурных маршей с советской военной базы неподалеку, эти вполне интеллигентные, но безгранично безумные в музыкальном плане парни решили раскачать вальяжный уклад бюргеров и немного повеселиться. Результат был настолько ошеломляющим, что родившийся музыкальный продукт оставил неизгладимый след в сердцах не только немецких слушателей, но и восприимчивых ко всему хорошему и не ординарному людей по всему миру.<BR>Прикинув, кому из участников коллектива что нравится, и что может выйти, если объединить пристрастия каждого в одну кучу, парни поняли: добра не жди. Такой коктейль современная история припоминает лишь единожды и зовется он на русский мотив – коктейль Молотова. И парни придумали свое название - <B>Die Apokalyptischen Reiter</B>, Всадники Апокалипсиса.<BR>Что это за группа такая - <B>Die Apokalyptischen Reiter</B>, спросите Вы? Ответить парой слов будет и сложно, и просто. Ответить коротко сложно потому что, пройдя через этапы black, death, thrash и бог весть еще какого существования, немцы пришли к своему собственному неповторимому стилю. Стилю, где чудесным образом сочетаются искрометная самоирония и безудержная депрессия, невиданная энергетика и неожиданная лиричность, стилю, в котором допускаются парусиновые шаровары и диковинные жилетки, прыжки в стиле гопака и кожаные маски на лице, диковинные духовые инструменты и традиционные гитарные запилы. Ответить коротко просто, потому что для этого достаточно всего нескольких слов: <B>Die Apokalyptischen Reiter</B> - энергия стихии и разума.<BR>Некоторым жителям Москвы и Санкт-Петербурга уже повезло: в январе прошлого года им довелось увидеть немцев живьем и понять, что такое Всадники Апокалипсиса в действии. В этот раз коллектив приготовил россиянам новые сюрпризы, ведь помимо ожидаемого best of будут звучать и песни с нового альбома, судить о котором можно по вышедшему синглу <B>«LICHT»</B>. Так что скучно, поверьте, не будет. Кроме того, появился и новый Всадник, а вернее – Всадница. Трепещите, парни! На сцене ожидается появление блондинки! <BR><BR>Рассказ о грядущих событиях был бы не полным, если не сообщить еще одну новость от организаторов мероприятия – концертного агентства <B>Delta Mekong Concerts</B>. Фанатичные поклонники качественной тяжелой музыки, несколько лет назад решившие заняться в российских реалиях натуральной благотворительностью, привозя из-за кордона любимые и уважаемые коллективы, эти парни имеют вполне определенные пристрастия. И об одном из них можно судить по названию предприятия. И вот, леди и джентльмены, концертное агентство <B>Delta Mekong Concerts</B> имеет честь сообщить, что специальными гостями на концертах <B>Die Apokalyptischen Reiter</B> выступит легендарная группа <B>MEKONG DELTA</B> – икона хороших металлических манер и экстремального этикета. Коллектив, ставший настоящей кузницей кадров европейского heavy metal и оставивший незарастающий рубец на изнеженном теле шоу-бизнеса, в строю, и не только огрызается, но и готов переломать кости каждому в этом сомневающемуся. Готовьтесь, отдыхайте и копите силы, ибо перед Всадниками Апокалипсиса <B>MEKONG DELTA</B> не упустит возможности продемонстрировать вам Танцы Смерти… и другие бродящие тени…<BR><BR>Текст Олег “ShadowBarrel” Бочаров</P>
+Автор: Dimas
+
+### 25.11.2008 news MEKONG DELTA + DIE APOKALYPTISCHEN REITER в Москве (ФОТО)
+
+<P>22 ноября в клубе "<STRONG>Точка</STRONG>" выступили немецкие группы <STRONG>MEKONG DELTA</STRONG> и <STRONG>DIE APOKALYPTISCHEN REITER</STRONG>. Фоторепортаж с этого концерта можно посмотреть по ссылке: <A href="/ru/galleries/1/274/">http://musica.mustdie.ru/ru/galleries/1/274/</A></P>
+Автор: Vit Belov
+
+### 22.09.2009 news MEKONG DELTA готовят альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MEKONG DELTA</STRONG> записывают новый альбом <STRONG>"Wanderer On The Edge Of Time". </STRONG>Группа обещает 50-минутный концептуальный материал, сочинённый по принципу "рондо".</FONT></P>
+Автор: Vit Belov
+
+### 12.03.2010 news MEKONG DELTA записали новый альбом
+
+<P>Новый альбом <STRONG>MEKONG DELTA</STRONG> <STRONG>"Wanderer On The Edge Of Time" </STRONG>записан и&nbsp;выйдет в конце весны или начале лета этого года. Группа считает, что с этим альбомом она превзошла свою классику <STRONG>"Dance Of Death"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Intro</B> - Concert Guitar<BR>02. <B>Ouverture</B><BR>03. <B>"A Certain Fool" ( Le Fou )</B> / Movement 1<BR>04. <B>Interlude 1</B> - Group<BR>05. <B>"The 5th Element" (Le Bateleur)</B> / Movement 2<BR>06. <B>Interlude 2</B> - Group<BR>07. <B>"The Apocalypt</B> - World In Shards" ( La Maison Dieu ) / Movement 3<BR>08. <B>Interlude 3</B> - Concert Guitar<BR>09. <B>"King With Broken Crown" (Le Diable)</B> / Movement 4<BR>10. <B>Intermezzo</B> (Instrumental) / Movement 5<BR>11. <B>Interlude 4</B> - Group<BR>12. <B>"Affection" (L' Amoureux)</B> / Movement 6<BR>13. <B>Interlude 5</B> - Group<BR>14. <B>"Mistaken Truth" (Le Heretique)</B> / Movement 7<BR>15. <B>Finale</B></P>
+Автор: Vit Belov
+
+### 24.04.2010 news MEKONG DELTA выложили обложку
+
+<P><STRONG>MEKONG DELTA</STRONG> назначили 10 июня датой релиза своего нового альбома <STRONG>"Wanderer On The Edge Of Time" </STRONG>на <STRONG>AAARRG Records.</STRONG></P>
+<P>
+<CENTER><STRONG><IMG height=361 src="/images/news_rus/2010.04/16608.jpg" width=400 border=0></STRONG> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.11.2010 news Новое видео MEKONG DELTA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>MEKONG DELTA</STRONG> на песню <STRONG>"King With Broken Crown" (Le Diable) </STRONG>можно посмотреть ниже. Песня попала на последний альбом группы<STRONG>"Wanderer On The Edge Of Time"</STRONG>, который вышел в июне на <STRONG>AAARRG Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR itxtvisited="1">
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/7bNJ3_MU1RI&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/7bNJ3_MU1RI&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 25.02.2012 news MEKONG DELTA сделают альбом перепевок
+
+<P><IMG height=472 alt="" hspace=0 src="/images/news_rus/2012.02/23139.jpg" width=472 align=right border=0>23 апреля на<STRONG> SPV</STRONG> выйдет новая работа <STRONG>MEKONG DELTA "Intersections"</STRONG>. Пластинка является сборником старых вещей коллетива, перезаписанных в новом составе:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="52">Prophecy</B><BR itxtNodeId="51">02. <B itxtHarvested="0" itxtNodeId="50">The Cure</B><BR itxtNodeId="49">03. <B itxtHarvested="0" itxtNodeId="48">Memories Of Tomorrow</B><BR itxtNodeId="47">04. <B itxtHarvested="0" itxtNodeId="46">Heroes Grief</B><BR itxtNodeId="45">05. <B itxtHarvested="0" itxtNodeId="44">Shades Of Doom</B><BR itxtNodeId="43">06. <B itxtHarvested="0" itxtNodeId="42">The Healer</B><BR itxtNodeId="41">07. <B itxtHarvested="0" itxtNodeId="40">Transgressor</B><BR itxtNodeId="39">08. <B itxtHarvested="0" itxtNodeId="38">Sphere Eclipse</B><BR itxtNodeId="37">09. <B itxtHarvested="0" itxtNodeId="36">Heartbeat</B><BR itxtNodeId="35">10. <B itxtHarvested="0" itxtNodeId="34">Innocent</B></P>
+Автор: Vit Belov
+
+### 01.03.2014 news Новый альбом MEKONG DELTA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В конце апреля на <STRONG>SPV</STRONG> выходит новый альбом <STRONG>MEKONG DELTA "In A Mirror Darkly"</STRONG>, который станет продолжением работы коллектива 2010&nbsp;года выпуска&nbsp;"<STRONG>Wanderer On The Edge Of Time</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Introduction </STRONG>| 02.<STRONG> Ouverture</STRONG> | 03.<STRONG> The Armageddon Machine</STRONG> | 04.<STRONG> The Sliver in Gods Eye</STRONG> | 05<STRONG>. Janus</STRONG> | 06.<STRONG> Inside the Outside of the Inside</STRONG> | 07.<STRONG> Hindsight Bias</STRONG> | 08.<STRONG> Mutant Messiah</STRONG></FONT></P>
+<P>
+<CENTER>&nbsp;<IMG border=0 src="/images/news_rus/2014.03/26711.jpg" width=500 height=500></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Mekong Delta. Помогите!!!!!

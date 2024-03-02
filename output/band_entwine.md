@@ -104,6 +104,458 @@ Riitta Heikkonen - keyboards
 
 * C группой "ShamRain" Mika Tauriainen
 
+## Публикации
+
+### 03.02.2002 news ENTWINE
+
+<p>The members of this act are at Astia Studio in their native Finland with producer Anssi Kippo (Children Of Bodom, Sinergy) right now recording the follow-up to last year's critically acclaimed Gone. Drums, bass, guitars and keyboards have been recorded. Now the group are finishing up vocals, and then they will finish the recording by adding strings. The brilliant mixture of goth, metal and melody on Gone has many fans greatly anticipating what the group can do next, but we'll all have to wait until summer to find out-because that's when this work of art is slated to hit the stores.</p>
+
+Автор: Dimas
+
+### 04.02.2002 news ENTWINE в студии
+
+<p>Финская группа ENTWINE в данный момент находится в студии и занята записью своего нового альбома. Уже записаны партии ударных, клавишных, гитары и баса. Сейчас группа записывает партии вокала и дополнительные партии струнных инструментов. Вместе с группой в Astia Studio работает продюссер Anssi Kippo (Children Of Bodom, Sinergy). Но, пока неизвестно, насколько изменится звучание группы. Продолжит ли она играть мелодичный gothic metal или же предложит слушателям нечто новенькое. Музыканты это держат в секрете. Остается ждать теплых времен. Выпуск альбома намечен на лето 2002 года.</p>
+
+Автор: Dimas
+
+### 25.02.2002 news Время Отчаяния...
+
+<p>Завершилась 44-х дневная эпопея финнских готов "ENTWINE". Альбом "Time Of Despair" делавшийся с продюссером Anssi Kippo (i.e. CHILDREN OF BODOM, SINERGY) полностью готов. Трек-лист: <BR><BR> 01. Stream Of Life<BR> 02. The Pit<BR> 03. Nothing Left To Say<BR> 04. Safe In A Dream<BR> 05. Burden<BR> 06. Falling Apart<BR> 07. Until The End<BR> 08. Learn To Let Go<BR> 09. Time Of Despair<BR><BR> Также записан хит "KISS" - "Tears Are Falling", который появится в виде трека на японском и американском релизах в июне.</p>
+
+Автор: Yermola
+
+### 25.02.2002 news ENTWINE To Issue &quot;Time Of Despair&quot; In June ....
+
+<p>Finnish goth-metallers ENTWINE have just finished forty-four days of hard work recording, mixing and mastering their new release, Time Of Despair, with producer Anssi Kippo (i.e. CHILDREN OF BODOM, SINERGY) at Astia Studio. The full track listing for the effort is as follows: <BR><BR> 01. Stream Of Life<BR> 02. The Pit<BR> 03. Nothing Left To Say<BR> 04. Safe In A Dream<BR> 05. Burden<BR> 06. Falling Apart<BR> 07. Until The End<BR> 08. Learn To Let Go<BR> 09. Time Of Despair<BR><BR> Also recorded were "Tonight" and the KISS hit "Tears Are Falling", which could appear as bonus tracks on the North American and Japanese release. The group is slated to open for THEATRE OF TRAGEDY on their European tour this May. Look for Time Of Despair to be issued in the US in early June.</p>
+
+Автор: Yermola
+
+### 24.10.2002 reviews Самоубийственный альбом
+
+<p>Эти финны не только сами себе вырыли могилу, но и с печальной улыбкой туда сами же и сиганули. По собственному желанию, в нетрезвом уме и нетвердой памяти. Вспоминается “The Treasures Within Hearts” – тяжёлый, мрачноватый и болезненно красивый gothic / doom. И возникает мысль, что ENTWINE стартовали более чем достойно. Вспоминается “Gone” – тяжёлый, но при этом относительно попсовенький love metal, не лишённый грусти и какого-то неуловимого изящества. И появляется убеждение, что попса тоже иногда бывает музыкой. Притом, музыкой не только качественной, но и душевной. Искренней, если хотите. Вспоминается только что прослушанный “Time Of Despair” – чуть более тяжёлый чем “Gone”, практически лишённый характерных для love metal интонаций… gothic? Gothic / doom? Не знаю. Знаю лишь, что видимо так и никак иначе должна звучать некоммерческая версия HIM. Разнообразно и также как и год назад душевно. Красиво, наконец. Однако это уже далеко не “The Treasures Within Hearts”. Отсутствие хитов было бы простительно для альбома, выполненного в духе ENTWINE’овского дебюта. Для такого же рода музыки (а “Time Of Despair” – всё-таки ни что иное, как продолжение “Gone”, пусть и до крайности странное продолжение) отсутствие хитов губительно. Да что там хиты… Тут и запоминающихся-то мелодий кот наплакал. “Time Of Despair” ни в коем случае не плохой альбом. Здесь есть несомненный талант авторов, здесь есть замечательные песни, здесь есть и многое другое, отличающее хорошую музыку от музыки плохой. Однако на “Time Of Despair” нет ничего, что на этом альбоме должно быть по определению.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.08.2003 news ENTWINE готовы к записи
+
+<p>Финские готик-металлеры ENTWINE в сентябре начнут в Astia Studios запись своего нового альбома с продюсером Anssi Kippo (CHILDREN OF BODOM, SINERGY, NORTHER). Релиз ожидается в начале 2004 года через Century Media Records.</p>
+
+Автор: Dimas
+
+### 05.02.2004 news Entwine выпускают сингл и альбом
+
+<P>Entwine выпускают сингл "BitterSweet" с нового альбома 9 февраля 2004 года, а сам полноценный четвёртый альбом "diEversity" выйдет 15 марта.</P>
+Автор: Morsus
+
+### 06.02.2004 news Entwine will release single and album
+
+<P>"BitterSweet" CD single from the upcoming Entwine album will be released on 9.2.2004. European release for the long awaited fourth album, entitled as "diEversity", will occur on March 15th 2004.</P>
+Автор: Morsus
+
+### 28.02.2004 news Готик-метал фестиваль. 6 марта. Клуб Эстакада.
+
+<DIV><IMG height=400 alt="" hspace=0 src="/images/shows_rus/2004.03/6098.jpg" width=300 align="left" border=0>Концертное агентство ROXX Music и Радио-1&nbsp; представляют Первый Международный Фестиваль “MOSCOW AFTER MIDNIGHT”, на котором выступят звезды готической&nbsp;и лав-метал сцены ENTWINE (Финляндия), DARZAMAT (Польша), DEADBABES (Финляндия), DOPPELGANGER (Россия).</DIV>
+<P>В программе:&nbsp;</P>
+<P>- сеты от&nbsp;известных московских&nbsp;DJ-ев&nbsp;Riper и Asmodeus- представителей готического Интернет-портала The Crypt,</P>
+<P>- Gothic Fashion Show,</P>
+<P>- бесплатный готический макияж всем желающим,</P>
+<P>- конкурс на лучший готический&nbsp; костюм,</P>
+<P>- выборы Мисс «After Midnight». </P>
+<P>Победители конкурсов получат призы от организаторов и спонсоров фестиваля – ювелирной компании «Alchemy Gothic» (Великобритания) и культовой обувной фирмы «New Rock» (Испания), чью обувь с удовольствием носят музыканты групп Rammstein, The 69 Eyesи др. </P>
+<DIV>&nbsp;</DIV>
+<DIV>&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; 7 марта. Клуб Эстакада. 16.00</DIV>
+<DIV>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Адрес клуба: Рязанский проспект, д.39, ДК 40-летия Октября.&nbsp; Проезд: м.Рязанский проспект, 1-й вагон из центра, авт. 169, 143, 29, 725, 160,тролл.63 до ост. "Ул.Стахановская". </DIV>
+Автор: Дофф
+
+### 28.02.2004 articles Информация о группах, выступающих на Moscow After Midnight.
+
+<P><B>ENTWINE</B></P>
+<P><B></B></P>
+<P>История ENTWINE восходит к 1995 году, когда A.Hanttu (ударные), T-I Mikkola(гитара и время от времени вокал) и T.Taipale (бас) только начинали свои музыкальные опыты под всевозможными названиями. Death-metal, который они пытались играть в то время, сильно отличался от того готического сияния, что отличает ENTWINE сегодня. Возможно, по мере развития навыков владения инструментами, а может ещё по какой причине, дюйм за дюймом отходили они от U.S. death-metal стандарта, музыка становилась легче, мелодии богаче и к 1997 году ENTWINE обрели нынешнюю музыкальную форму. Чтобы соответствовать найденному музыкальному стилю, группа нуждалась в новом вокалисте, наличие второго гитариста и клавишника тоже сочли необходимым и поиск новых участников был объявлен . Основная проблема была решена, когда в конце 1997 года к группе присоединился P.William. </P>
+<P>В декабре'97 группа сделала первую запись под именем ENTWINE, которая содержала 4 трека gothik atmospheric metal и называлась "Divine Infinity". Отзывы получились самые высокие и имя ENTWINE довольно быстро стало известно в кругах metal underground. В феврале '98 R. Heikkonen пришёл в группу, чтобы занять место клавишника, и ENTWINE, наконец, получили возможность играть живые концерты. В 1999 году ENTWINE заимели контракт со Spikefarm Records и в сентябре того же года увидел свет их дебютный альбом "The Treasures within Hearts", вновь получивший хорошие отзывы. P. William оставил группу в апреле 2000 и тогда же ENTWINE принимают решение заменить басиста. Новый вокалист Mika Tauriainen и басист Joni Miettinen приходят в мае 2000. </P>
+<P>После трёх месяцев репетиций ENTWINE вошли в студию и записали свой второй альбом -"Gone". Cингл "New Dawn" с этого gothic-metall'ического шедевра ворвался в финские чарты сразу же после выхода. Такая же судьба постигла и вышедший в январе 2001 сам альбом. Jaani Kahkonen присоединился к группе, как сессионный гитарист, но уже через пол-месяца стал её полноправным участником. </P>
+<P>А через год, в январе 2002 , ENTWINE вновь в Astia-Studio. Результат этого -третий по счёту альбом "Time of Despair". И вновь они демонстрируют все блестящие грани своего таланта, привлекшие некогда Spikefarm. Их марка готического металла очаровательна по своей красоте, трогательно эмоциональна и, главное, тяжела. </P>
+<P>И, наконец, в марте 2004 года на прилавках музыкальных магазинов должен появиться новый альбом группы "diEversity", который несомненно докажет репутацию ENTWINE, как одной из самых ярких звёзд на небесах gothic metal. </P>
+<P>Дискография</P>
+<P><B>'Divine Infinity'</B> 1997 (demo)</P>
+<P><B>'The Treasures within Hearts' </B>CD 1999</P>
+<P><B>“Gone”</B> CD 2001</P>
+<P><B>“Time Of Despair”</B> CD 2002</P>
+<P><B>“diEversity”</B>CD 2004 </P>
+<P>Официальный сайт: <SPAN><A href="http://www.entwine.org/"><U>www<SPAN lang=RU>.</SPAN>entwine<SPAN lang=RU>.</SPAN>org</U></A></SPAN></P>
+<P><B></B></P><SPAN lang=EN-US>DEADBABES</SPAN> 
+<P>Deadbabes – одно из новых слов в финской тяжелой музыке. Финляндия неутомимо поставляет молодые и талантливые коллективы. Вот и пятеро юношей из Хельсинки нашли, что сказать миру.</P>
+<P>&nbsp;Началом своей истории группа Deadbabes считает ноябрь 2001, когда Лассе и его друг Иллу сыграли вместе несколько песен. Иллу тогда считался лучшим гитаристом в своей среде, и у него давно зрели планы о группе. Оба юноши сочли дуэт удачным и решили продолжать в том же духе. Они хотели, чтобы их группа приобрела мрачный, пугающий ареол, музыканты видели себя только в черных одеждах, а свою музыку представляли красивой, мелодичной и, естественно, депрессивной. </P>
+<P>Ласcе, Иллу и бас-гитарист Юха усиленно репетировали несколько месяцев и даже провели несколько концертов, прежде чем решили немного обновить состав. Основателям группы казалось, что прежние драммер и клавишник слишком застряли в музыке 80-х годов. Deadbabes очень повезло, что им удалось переманить на свою сторону драммера Яани, который уже был занят в нескольких, весьма успешных проектах. Его друг Карл счел за честь приглашение стать клавишником Deadbabes. С тех пор состав группы не меняется:</P>
+<P>&nbsp;вокалист Лассе Эрьямо \ LasseErjamo (день рождения – 5 августа 1976 г.) </P>
+<P>басист Юсси Оскари Аалтонен \ JussiOskariAaltonen (день рождения – 1 октября 1978 г.)</P>
+<P>гитарист Анти Хармайнен akaIllu \ AnttiHarmainen (день рождения – 22 января 1981 г.)</P>
+<P>драммер Яани Пеуху \ JaaniPeuhu (день рождения – 17 августа 1978 г.)</P>
+<P>клавишник Карл Хуттунен \ KarlHuttunen (день рождения – 5 июня 1976 г.)</P>
+<P>На сегодняшний день в активе группы только одна пластинка – EPc мрачным названием TheDrug. В данный момент группа записывает свой первый полноценный альбом, релиз которого запланирован на апрель 2004 года.</P>
+<P>Несомненный плюс Deadbabes в том, что сейчас в Финляндии никто такую музыку не играет. «Мертвые детки», выросшие на мрачной электронике конца прошлого века, представляют собой модернизированное, адаптированное к современной любовно-метально-готической молодежи перевоплощение TheCure. Никаких истошных гитарных соло и вокальных завываний, но лишь четкий ритм, мрачный грустный голос, красивые клавишные и много эхо. Вот он – музыкальный декаданс начала нынешнего столетия. Финские журналисты называют музыку Deadbabes – darkpop.</P>
+<P>Сами музыканты говорят, что наибольшее влияние на их творчество оказали AC/DC, Guns’N’Roses, AliceCooper, Queen и MotleyCrue. Однако с самого начала Deadbabes хотели делать свою музыку, не похожую, на их вдохновителей. Вокалист Лассе говорит, что по началу он перенимал манеру пения у таких вокалистов, как DavidGahan, Bono, IanAstbury (theCult) и, конечно же, у великого Элвиса.</P>
+<P>Официальный сайт: <SPAN><A href="http://www.deadbabes.net/"><U>www<SPAN lang=RU>.</SPAN>deadbabes<SPAN lang=RU>.</SPAN>net</U></A></SPAN></P><SPAN lang=EN-US>DARZAMAT</SPAN> 
+<P><SPAN>Польская группа <B>Darzamat</B> образовалась в 1995 году. В 1996-ом они записали первый альбом под названием <I>"In The Flames Of Black Art"</I>, который получил много хороших отзывов со стороны критиков. В</SPAN> 1998-ом Darzamat выпустилиальбом<SPAN> <I><SPAN lang=EN-US>"In The Opium Of Black Veil"</SPAN></I><SPAN lang=EN-US>. </SPAN></SPAN>В 2002 оба альбома были переизданы. Запись последнего диска "Oniriad" состоялась только через два года, так как группа была занята обустройством собственной студии. Нынешний стиль группы можно охарактеризовать как gothic-doommetal. Музыканты еще ни разу не были в нашей стране и вот сейчас, благодаря компании ROXX Music российским поклонникам предоставляется возможность увидеть группу в расцвете сил и в новом составе. Музыканты исполнят вещи как со старых альбомов, так и свежий материал, который ляжен в основу нового, четвертого альбома группы.</P>
+<P>Дискография: </P>
+<P><B>Oniriad CD(2003)</B><SPAN><BR><B>In the Opium of Black Veil CD (1999)</B></SPAN></P>
+<P><B>In the Flames of Black Art (1997)</B></P>
+<P><B></B></P>
+<P><B><SPAN>Официальный сайт: <A href="http://www.darzamat.art.pl/"><U>http://www.darzamat.art.pl</U></A></SPAN></B></P>
+<P><B></B></P>
+<P><B></B></P>
+<P><B>DOPELGANGER</B></P>
+<P><B></B></P>
+<P>"" DoppelgangeR "" - в переводе с немецкого, означает "двойник". Наверное именно это название и повлияло на дальнейшую творческую направленность группы и судьбу коллектива в целом - очень неодназнучную.</P>
+<P>Doppelganger был образован в 1994 Андреем Малиновским и Александром Климовым. В 1995 году был выпущен первый альбом под одноименным названием – “Doppelganger” на лейбле “Angel”. В альбоме отсутствовала единая концепция - использовались такие разные стили, как doom metall/hard-core/gothic metall. Несмотря на свою многогранность, альбом получил неплохие отзывы в адерграундной металлической тусовке Москвы. Следующий альбом под названием "Serpent's Land" вышел в следующем 1996-ом году. Этот альбом выходит на том же лейбле в июне. Несотря на то, что группа придерживалась все тех же разносторонних музыкальных направлений, что и на первом альбоме, команда начинает выступать в клубах Москвы, гастролировать по России, имея неплохой успех среди любителей, как и тяжелой музыки (hard-core, doom metal), так и любителей более лирических стилей (gothic-metal, gothic-doom). В том же 1996-ом году группа принимает участие в поистине феерическом международном фестивале “Deathrider4” в Беларуссии, с такими признанными коллективами, как Mental Home, Brain Storm и др. После этого мероприятия группа получает предложение от компании "Metal Agen/Союз" о выпуске альбома, но, по разным причинам, из группы уходит лидер Александр Климов, его место занимает Дмитрий “Flo” Тишин, но группа на некоторое время перестает давать концерты и вынуждена отказатся от услуг "Metal Agen/Союз".... </P>
+<P>Но в 2000-ом году Андрей Малиновский и Дмитрий "Flo" Тишин решили воссоздать группу. Было принято решение играть более концептуальную музыку, в духе Katatonia, Anaphema и др. Новым гитаристрм группы стал Юрий "Nikniki". Были сделаны несколько каверов на тех же Anaphema и Katatonia. После неудачных поисков клавишника, в группу приходит второй гитарист Антонио. В таком составе группа просуществовала год и дала всего три концерта в нескольких клубах Москвы. В 2001 году из группы ушел Антонио, а на следующий же день группа нашла вокалиста в лице Юрия "Gatan". Через три месяца была сделана первая demo-запись, при участии гитариста Максима Федосеева. Промо получило название "Love Is like Sucide". К сожалению, музыканты не смогли добится нужного звучания, так как она производилась в домашней студии. Поэтому, мнения о материале разделилсь - кто-то называл его хоть и "самобытным продуктом", но при этом подчеркивали явную металлическую основу в звучании, кто-то просто обвинял группу в подражании финской love-metall группе H.I.M, но не этого ждали музыканты. С каждой репетицеей они облегчали звучание, вносили изменения в музыку песен, начало чувствоватся влияние "Sisters of Mercy", "Fields of Nephilim", "The69eyes" и др. готик-рок команд. </P>
+<P>В конце 2002, после долгого периода бездействия, группу покидает один из ее основателей - барабанщик Андрей Малиновский. Несмотря на всю трагичность случившегося, уже на следующий день (!) вакантное место Андрея занял Илья Алексеенко и вскоре состав был полностью укомплектован клавишницей Еленой Кузнецовой. Юрий "Gatan" - вокал, Дмитрий "Flo" Тишин - бас, Юрий "Nikniki" - гитара, Илья "Drummer" Алексеенко - ударные и Елена Кузнецова - клавишные. В таком составе коллектив начал упорно репетировать, песни как-будто писались заново, появились концерты, команда даже приняла участие в нескольких музыкальных телепрограммах и уже через месяц группа "заперлась" в студии для записи полноформатного альбома "Desire Lost forever?..."</P>
+<P>Альбом получил неоднозначные отзывы в прессе. Но, тем не менее,именно этот альбом повлиял на дальнейшую судьбу группы. В течение считаных месяцев группа превратилась в любимцев московской готической публики – на их концертах всегда можно увидеть как толпыдевушек , страстно взирающих на своих кумиров, так и мужскую часть аудитории поклонников готик-рока. Группа выступила на разогреве у признанных лидеров финской лав-метал сцены Charon во время их московских гастролей, активно гастролирует по России и является на данный момент одной из самых интересных на сцене отечественного готик-рока.</P>
+<P>Дискография:</P>
+<P>"Desire lost Forever?" СD 2003</P>
+<P>“Serpent's Land” СD 1996</P>
+<P>“Doppelganger” CD 1995</P>
+<P>Официальный сайт: http://www.doppelganger.hotmail.ru</P>
+Автор: Дофф
+
+### 19.03.2004 articles Фестиваль с трудной судьбой.
+
+<P>Так уж получилось, что c самого начала фестиваль “MoscowAfterMidnight”, проводимый фирмой Roxx, сопровождался большим количеством мелких и не очень скандалов и скандальчиков. Возмущался народ выбором «роксами» места проведения фестиваля – клуба на окраине Москвы, бывшего ДК «40-летия Октября», куда добираться надо на оленьих упряжках. А ведь на самом деле зал-сцена-звук-свет в «Эстакаде» на высоте, а доехать до него гораздо удобнее и быстрее на маршрутке от метро «Марксистская», чем тащится от указанного на афишах и билетах «Рязанского проспекта». Потом тру-готы оборались из-за возмутительного использования священного слова «готика» вкупе с ненавистными им металическими командами. А особо умных оскорбила ассоциация названия шоу с группой «LondonAfterMidnight». Но это всё мелочи, как говорится, собака лает, караван держит свой путь в Багдад. </P>
+<P>Реальные проблемы начались, когда рухнула крыша аквапарка в Ясенево. Перепуганные&nbsp;поляки из “Artrosis” отказались от участия в фестивали. Трусы, не мужики. Потом к составу выступающих команд был добавлен “Cатариал», что для готов как красная тряпка. Но вроде проблема с забастовавшими диджеями была решена без драк. Почти в последний момент сорвался приезд самой интересной из заявленных групп – &nbsp;"Macbeth". Проблемы с билетами на самолет. Видно с ночи очередь в кассу не заняли. </P>
+<P>В итоге вместо двух дней программу сократили до одного. Что, возможно, и к лучшему.</P>
+<P>Ибо толпы у ДК не было. Вряд ли у интересующихся подобной музыкой хватило бы денег на билеты на оба концерта. </P>
+<P>Но вот уже суббота, и, как последние лохи, поверив напечатанному на билете -&nbsp;начало в 16.00 - &nbsp;мы, изрядно промокнув, на подплавленных не ласковыми лучами солнца, нечищенных, заснеженных дорожках (снегоуборочная техника в такую глухомань не добирается), мы прибыли к входу во Дворец Культуры. Там собралась толпа человек&nbsp;в сто, мирно попивающих горячительные напитки. Без них, как оказалось, выдержать полтора часа на пронзительном, явно не весеннем ветру, было тяжеловато. Бедные девушки в виниле и латексе… Похоже, задержка концертов становится фирменным знаком компании “Roxx”. </P>
+<P>Внутри клуба была обнаружена точка, продающая цацки, наверное, от заявленных «Alchemy Gothic», куча пиратской продукции. Смело. Обуви “NewRock” замечено не было. Скупили на корню первые из прорвавшихся, что ль? </P>
+<P>Бар был неплох, все дорого и пафосно. Что не соответствует антуражу. </P>
+<P>Первыми выступали, естественно, отечественные производители, и куча молоденьких готочек их с удовольствием поддержала. “Доппельгангеры» представили общественности новую программу. Пять новых песен. “10 years”, “Leaves”, “Killing Machine”, “Pain of Feeling”, “City Of Sex”. Хорошие. Умеренно-хитовые. Трудно что-то понять сразу после первого, да ещё концертного прослушивания. Одно ясно: группа не пошла по очевидному пути и не заиграла сладенький лав-метал. Под радостные девичьи вопли после традиционной мадонновской “Frozen”, «самая готичная группа фестиваля» с триумфом покинула сцену.</P>
+<P>Начинающие финские парни из “Deadbabes” мне совершенно не понравились. Чмошный внешний вид, нехаризматичная внешность вокалиста, не обладающего, к тому ж, хотя бы приличным голосом. Ну и серенькие песенки. Послушал три вещи и свалил, пиво допивать, что в баре осталось… </P>
+<P>Поляки “Darzamat” оказались настоящим открытием вечера. Успешно разогнав всю готичную тусовку тяжелыми гитарами и зверским рыком они выдали отлично сыгранный, драйвовый дет-блэк. И звук у них был самым лучшим. Не зря они столько времени потратили на саундчек. Почему такую неформатную группу пригласили на фестиваль так и осталось для меня загадкой. Но, по-любому, спасибо организаторам. Вряд ли еще когда мы увидим сей достойный коллектив на московской сцене. От души порубившись среди ещё человек 30, понимающих, что на самом деле является хорошей музыкой, я побрел в бар поглощать уже крепкие напитки, ибо пивной запас клуба оказался невелик. </P>
+<P>Вследствие этого появление хэдлайнеров (судя по наполнившемуся сразу залу), бенда “Entwine”, я встретил с энтузиазмом. Который, правда, потихоньку начал утихать. Ибо эти звезды лав-метала, оказались группой одного хита. Весь остальной репертуар, нормально слушающийся дома, оказался неинтересным в живом виде. Публика моего мнения не разделяла и отрывалась по полной. Ну и ладно. Мне они больше, чем Charon в Б2 понравились, по-любому.</P>
+<P>Итог. Вполне… хорошо провёл выходной. Когда MAM2?</P>
+<P>ЗЫ. Ну и рожа у этвайновского вокалиста. Вылитый кот из «Возвращения блудного попугая»…</P>
+<P>ЗЫ2. Роксы обещали привести Дарзаматов ещё. Ура!!</P>
+Автор: Дофф
+
+### 05.04.2004 reviews Безэмоциональный love-metal
+
+<DIV><I>Финская love-metal сцена уже наполучала пинков от всех, кому не лень. Я тоже раздавал эти пинки, новый альбом <B>ENTWINE</B> заслуживает их настолько же, насколько и&nbsp;заслуживает похвалы.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Стандартная музыка для стандартной тусовки девочек в чёрных париках и с серьгами в носу. В меру грустная, в меру качественная, в меру занудная команда, которая будет находиться на плаву только до тех пор, пока не пройдёт тренд на данный тип gothic-metal. Единственный признак, который хоть как-то привлекает рассеянное внимание, достаточно оригинальные аранжировки&nbsp;в начале альбома&nbsp;и его излишне затянутый конец.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Только для любителей и коллекционеров финской love-metal музыки и для тех, кому понравился недавний концерт <B>ENTWINE</B> в Москве.</DIV>
+<P><EM><STRONG>Диск предоставлен фирмой <a href="http://www.fono.ru">ФОНО</a></STRONG></EM></P>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 20.10.2005 reviews Мини-альбом от ENTWINE
+
+<P><STRONG>ENTWINE </STRONG>выпустили мини-альбом. Событие, как событие, поэтому особенно заморачиваться не стоит. На пластинку попали три, стандартных для финнов, хита и две концертных вещи. Стоит отметить, что на этих концертных вещах <STRONG>ENTWINE</STRONG> выглядят более живо и рок'н'ролльно. Студийные же вещи понравятся поклонникам love-metal. </P>
+<P>Никаких откровений и прорывов. Средне.</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Vit Belov
+
+### 11.04.2006 news ENTWINE готовят новый альбом
+
+<P>Финские готик-рокеры&nbsp;<B>ENTWINE</B> готовятся войти в студию для записи своего пятого, пока безымянного альбома, выход которого ожидается 23 августа 2006 года. Планируется записать двенадцать новых песен и новую версию старого хита <B>'Break Me'</B>.&nbsp;Альбом будет записан в студиях&nbsp;<B>Petrax</B>&nbsp;и <STRONG>Groveland</STRONG>, принадлежащих самим музыкантам.&nbsp;Продюсером выступит&nbsp;<B>Janne Joutsenniemi,&nbsp;</B>&nbsp;известный по работе со&nbsp;<B>STONE</B> и <B>SUBURBAN TRIBE</B>. Микширование в студии <B>Finnvox </B>выполнит <B>Mikko Karmila,</B>&nbsp;а мастеринг записи пройдет в шведской&nbsp;<B>Cutting Room</B>.<BR></P>
+Автор: Dimas
+
+### 10.01.2008 news ENTWINE пишут песни
+
+<P><STRONG>ENTWINE</STRONG> сочиняют песни для нового альбома, запись которого начнётся весной. Подробности последуют.&nbsp;</P>
+Автор: Vit Belov
+
+### 11.11.2008 news ENTWINE закончили запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ENTWINE</STRONG> закончили запись своего шестого альбома вместе с продюсером <STRONG>Hiili Hiilesmaa</STRONG> (<B>HIM</B>, <B>APOCALYPTICA</B>, <B>SENTENCED</B>). Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 04.01.2009 news Новый альбом ENTWINE
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.01/13286.jpg" width=200 align=right border=5>14 января на <STRONG>Spinefarm </STRONG>выходит новый шестой альбом<STRONG> ENTWINE</STRONG> <STRONG>"Painstained".</STRONG> Пластинка была записана с продюсером <STRONG>Hiili Hiilesmaa</STRONG> (<B>HIM</B>, <B>APOCALYPTICA</B>, <B>SENTENCED</B>). Трэк-лист:</P>
+<P>01. <B>Soul Sacrifice</B><BR>02. <B>Strife</B><BR>03. <B>Dying Moan</B><BR>04. <B>Beautifully Confined</B><BR>05. <B>Lost In My Denial</B><BR>06. <B>Greed of Mankind</B><BR>07. <B>Dead By Silence</B><BR>08. <B>Hollow</B><BR>09. <B>Caught By Desire</B><BR>10. <B>Say Goodbye</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 08.01.2009 news ENTWINE сдвинули дату
+
+<P>Дата релиза нового альбома <STRONG>ENTWINE "Painstained"</STRONG> сдвинута на две недели. Теперь пластинка выйдет 28 января на<STRONG> Spinefarm</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.01.2009 news Альбом ENTWINE можно послушать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В течение трёх дней новый альбом <STRONG>ENTWINE "Painstained"</STRONG> можно послушать по этой ссылке: <A href="http://metalmarketing.org/entwine/">http://metalmarketing.org/entwine/</A></FONT></P>
+Автор: Vit Belov
+
+### 25.03.2009 news &quot;Раздор&quot; от ENTWINE
+
+<P><STRONG>ENTWINE</STRONG> выложили новый клип на песню "<STRONG>Strife</STRONG>" с последнего альбома.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=54598697">Entwine - Strife</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=54598697,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=54598697,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Фотографии &quot;Moscow After Midnight&quot; (Doppelganger, Deadbabes, Darzamat, Entwine и прочее)

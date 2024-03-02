@@ -57,6 +57,95 @@ JAPANESE {13 AND 14} AUSTRALIA {14}
 
 * C группой "Guns N' Roses" Lead Guitar, Slash
 
+## Публикации
+
+### 05.01.2000 news 
+
+<p>Новый сольный альбом Слэша (ex-Guns'N'Roses) выйдет 22 февраля и будет называться "Aint Life Grand".</p>
+
+Автор: Vit Belov
+
+### 15.03.2001 news Slash is back...
+
+<p>Освежив и переменив состав "Slash’s Snakepit" Slash возвращается на музыкальный Олимп. Теперь в аккомпанирующий состав входят Rod Jackson - вокал, Keri Kelli - гитара, Johnny Blackout - басс, Matt Laug - барабаны и Teddy Zigzag Andreas - клавиши. Команда собирается активно выступать в Северной Америке закрепляя успех "Ain't Life Grand".</p>
+
+Автор: Yermola
+
+### 27.03.2001 news Проблемы у Слэша...
+
+<p>SLASH'S SNAKEPIT сняты с совместного тура "Stiff Upper Lip" с AC/DC из-за проблем со здоровьем у самого Слэша. Врачи поставили ему диагноз - пневмония и порекомендовали лечение и полный покой. "Я извиняюсь перед фэнами и AC/DC, но я не хочу делать для вас полу-ж...ое шоу. Ненавижу подводить людей, но будет правильным дать им только самое лучшее шоу."</p>
+
+Автор: Yermola
+
+### 27.03.2001 news Slash has been diagnosed with pneumonia....
+
+<p>SLASH'S SNAKEPIT have been forced to cancel performances on the second leg of AC/DC's Stiff Upper Lip tour due to illness of the band's legendary namesake. Slash has been diagnosed with pneumonia and has been ordered by his doctor to rest. The band was originally scheduled to perform on the tour through April 29th. Slash is expected to make a full recovery and plans to resume touring with his band in the near future. Slash deeply regrets having to cancel these highly anticipated tour dates and sincerely appreciates the ongoing support received from his fans: "I apologize to the fans and to AC/DC, but I don't want to get up there and do a half-assed show," Slash said in a statement, "I hate to let people down, but it wouldn't be right to give them a performance that's anything less than our best."</p>
+
+Автор: Yermola
+
+### 19.06.2001 reviews Оказывается, в эпоху LIMP BIZKIT и MTV можно творить настоящий рок-н-ролл!
+
+<p>Оказывается, в эпоху LIMP BIZKIT и MTV можно творить настоящий рок-н-ролл! Этот диск – просто подарок всем, кто знает и любит GUNS & ROSES – фаворитов MTV начала 90-х. Группа распалась пять лет назад – и теперь один из осколков, гитарист Слэш выпустил уже второй альбом свой новой группы SNAKEPIT ("Змеиная яма"). И результат просто ошеломляет! Маленькое пространство лазерного диска переполнено великолепной музыкой: старые блюзовые мелодии сочетаются с хардовой энергетикой, заигрывания со свингом и буги звучат очень свежо и современно. Отточенные и фривольные соло, бархатный и одновременно агрессивный голос темнокожего вокалиста, совсем нелаконичные песни, далекие от радиоформата – казалось, что все это давным-давно кануло в лету рок-истории. Ан нет – прыгайте в змеиную яму и танцуйте порезвее! Заодно убедитесь, что такая музыка актуальна всегда!</p>
+<p> Если вы уже нашли эту пластиночку – заводите диск погромче, берите холодного пива, зовите подругу и внимайте настоящему американскому хард-року крепкой закваски. Никаких поправок на дух времени – то есть ни одного отголоска NIRVANA, Мэрилина Мэнсона и еще бог весть кого. Вы забудете какой год на дворе! И просто замечательно. Кстати, никакого нафталина и помпезности также не наблюдается. Задействован старый рецепт: для хорошей музыки нужна гитара, крепкий голос и любовь – к девушкам, шляпам, выпивке… Ну, в общем, к жизни в целом и в частности. И если твои песни окажутся по-настоящему хороши, то сами собой появятся и девчонки в коротких шортиках, и шляпы, и выпивка... Все, что нужно для того, чтобы жизнь удалась! За такую музыку надо ставить памятники, но Слэш предпочтет, если ему поставят пару бутылок пива. И правильно – это музыка прокуренных пабов, старых добрых рокерских вечеринок. И теперь-то стало ясно, кто был в GUNS&ROSES розочкой, а кто настоящим заряженным пистолетом!</p>
+<p> P.S. Исключительно личное мнение – под эти звуки так приятно пить пиво, что аж за здоровье становится страшно… Ну и черт с ним – люди за такую музыку душу продавали, а тут какая-то печень. Сущая мелочь.</p>
+
+Автор: Tornado
+
+### 01.08.2001 news Слэш будет играть с Майклом Джексоном...
+
+<p>Бывший участник "GUNS N’ ROSES" - гитарист Slash примет участие в представлениях Майкла Джексона и JACKSON 5 (празднование 30-летней годовщины) которые пройдут 7-го и 10-го сентября в Нью-Йоркском Мэдисон Сквэйр Гарден. Как прокомментировал сам Слэш: "Это будет просто супер опять оказаться на сцене с Майклом. Я уверен, что это будут две великолепных ночи музыки... Майкл - один из величайших талантов. Он современен, классичен и эластичен..." Мдя-я-я.. Ну что тут добавить? Забыл сказать: в концерте так же примут участие такие звезды рока как DESTINY'S CHILD, Ricky Martin, Missy Elliott и Mary J. Blige.</p>
+
+Автор: Yermola
+
+### 01.08.2001 news Slash will be joining Michael Jackson ...
+
+<p>Former GUNS N’ ROSES guitarist Slash will be joining Michael Jackson for the JACKSON 5 performance and for Jackson's solo hits, "Beat It" and "Black & White" at the Michael Jackson: 30th Anniversary Celebration, the Solo Years event, which is scheduled to take place on September 7th and September 10th at Madison Square Garden in New York City. "I am so excited about working with my dear friend Slash again," Jackson said in a statement released Monday. "He is a brilliant guitarist whom I really admire, and I look forward to having Slash perform with me again on these two special nights." Slash commented: "It's going to be a blast being onstage again with Michael. I am really looking forward to two great nights of music, and I'm honored to be a part of any event honoring him. He truly is one of the greatest talents known. Michael is timeless, classic and resilient. Here's to another 30 years." In addition to Slash, the concert will feature appearances by hundreds of other artists, including DESTINY'S CHILD, Ricky Martin, Missy Elliott, and Mary J. Blige. Source: blabbermouth.net</p>
+
+Автор: Yermola
+
+### 22.02.2002 news Еще одна супер-группа...
+
+<p>Бывший фронтмэн "VAN HALEN" Sammy Hagar на своем официальном сайте объявил о создании супер-группы в составе самого Сэмми, бассиста "VAN HALEN" - Michael Anthony, гитариста "JOURNEY" - Neal Schon, барабанщика "JOURNEY" - Deen Castronovo и бывшего участника "GUNS N' ROSES" гитариста Slash. Команда уже записала в студии несколько вещей. По словам вокалиста, музыка звучит как смесь VAN HALEN, LED ZEPPELIN и TOOL.</p>
+
+Автор: Yermola
+
+### 26.08.2009 news ALICE COOPER на сольном альбоме SLASH
+
+<P><IMG height=250 alt="" hspace=5 src="/images/news_rus/2009.08/14935.jpg" width=200 align=right vspace=5 border=0>В интервью австралийскому сайту <STRONG>"Undercover News"</STRONG>&nbsp;&nbsp;<STRONG>ALICE COOPER</STRONG> подтвердил своё гостевое&nbsp;участие на грядущем сольном альбоме <STRONG>Slash</STRONG> (<STRONG>VELVET REVOLVER</STRONG>/ex-<STRONG>GUNS N' ROSES</STRONG>).</P>
+<P><EM>"Я только что закончил писать пару песен&nbsp;для нового альбома <STRONG>Slash</STRONG>, который готовится к выпуску",</EM> сказал&nbsp;<STRONG>Alice</STRONG>&nbsp;корреспонденту &nbsp;<STRONG>"Undercover News"</STRONG>.<EM> "Он работает с кучей вокалистов. Это прекрасная идея - <STRONG>Slash</STRONG> и <STRONG>Alice</STRONG>, <STRONG>Slash</STRONG> и <STRONG>Iggy</STRONG>, <STRONG>Slash</STRONG> и <STRONG>Meat Loaf</STRONG>&nbsp;или кто там ещё будет петь. Великолепная идея".</EM></P>
+<P>Как уже стало извеcтно, что среди прочих,&nbsp;в записи альбома примут участие <STRONG>Ozzy Osbourne</STRONG>, <STRONG>Iggy Pop</STRONG>, <STRONG>M. Shadows</STRONG> (<STRONG>AVENGED SEVENFOLD</STRONG>), барабанщик&nbsp;<STRONG>Steven Adler</STRONG> (ex-<STRONG>GUNS N' ROSES</STRONG>), бас-гитарист <STRONG>Flea</STRONG> (<STRONG>RED HOT CHILI PEPPERS</STRONG>), и <STRONG>Chris Cornell</STRONG> (<STRONG>SOUNDGARDEN</STRONG>, <STRONG>AUDIOSLAVE</STRONG>).</P>
+Автор: Headcrusher
+
+### 03.08.2010 articles SLASH в Санкт-Петербурге: &quot;SLASH и рекорд жары в Питере - не просто совпадение!&quot;
+
+<P><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><STRONG>15 июля, Санкт-Петербург, "ГлавClub"</STRONG></SPAN></P>
+<P><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"></SPAN>Мы все привыкли видеть стандартную картину в музыкальных группах, когда лидер группы, он же лицо коллектива и он же солист. Но группа "Guns n' Roses" изначально выделялась. И одной из выделяющих ее черт был Сол Хадсон (SLASH) - соло гитарист. С тех пор прошло много лет, вместе с которыми ушли из жизни SLASH "Guns n' Roses", несколько организованных им же групп, но осталось мощное имя, богатый опыт, влиятельные связи и божественный дар игры на гитаре.</P>
+<P>Именно такого SLASH питерцы наблюдали 16-го июля в Главклабе. Было очень жарко на улице, а на концертной площадке вообще невообразимое пекло. Еще до начала концерта все были мокрые, а во время вообще выжимали свои футболки прямо на пол!</P>
+<P>Однако жарко настоящим фанатам SLASH'а стало еще до начала концерта. Самые преданные из них пришли намного раньше указанного на билетах времени и не смотря на издевающееся неугомонное солнце ждали...и дождались таки! К Главклабу подъехал белый автобус в конце которого с царственным видом сидел SLASH. Раздались дикие визги и томившиеся в ожидании фаны бросились потрогать хотя бы автобус, в котором восседает кумир.</P>
+<P>Когда все круги ада для поклонников были пройдены и начался концерт (это был именно Ад, так как 16-го был самый жаркий день этого лета и в Питере был побит рекорд по градусам), в сознании людей видимо вертелась картинка из “Estranged”, когда SLASH, исполняя свое гитарное соло, появляетс из воды на фоне бордового заката. Уверена, что 100% присутствующих хотели в этот момент перенести концерт на побережье океана, но за неимением лучшего отрывались в Главклабе.</P>
+<P>Кстати говоря, и самому SLASH видимо хотелось перенестись куда-нибудь в более прохладное место, так как пот тек с него ручьями и даже установленные возле сцены вентиляторы не давали почти ни какого эффекта. Однако герой вечера продержался долго и добрую половину концерта ни чего с себя не снимал.</P>
+<P>Складывается впечатление, что SLASH с годами не стареет. На сцену он вышел именно такой, каким мы все его и ожидали увидеть: с цилиндром на голове, из под которого вились длинные черные кудрявые волосы, очки, сигарета в зубах, узкие кожаные штаны и черная футболка. Лишь одно выдает возраст этого гуру гитарных соло- уже совсем не юношеский пресс. Когда SLASH во время концерта снял футболку его слегка дрябловатый живот было видно даже с высоты ВИП мест, которые, кстати, расположены в самом конце зала.</P>
+<P>Однако не за пресс мы его любим. Его владение гитарой заставляет забыть обо всем и просто наслаждаться чистыми звуками музыки.</P>
+<P>Очень порадовал солист - стройный, красивый, крайне артистичный, с развивающимися волосами и великолепным голосом. А как легко и непринужденно он общался с залом! Я не думала, что кто-то в этот вечер сможет затмить SLASHа, но вокалисту это кажется удалось. Многие поклонники смотрели в сторону гитариста только во время сольных гитарных партий, а основное их внимание было приковано к отличной фигуре солиста, который, кстати, уже после первой песни продемонстрировал всем свой идеальный торс, стянув футболку. А весь остаток концерта он демонстрировал свою пластичность, зажигая с микрофонной стойкой. Довольно опрометчиво для уже не совсем молодого и не такого фигуристого SLASH'а взять в группу солистом такого Аполлона!</P>
+<P>Эти двое настолько зарядили народ, что толпа как на батарейках отрывалась. Каждый считал своим долгом прыгать и веселиться, пока не упадет. Кому-то повезло больше, кому-то меньше. Каждые минут 10-15 охранники выносили очередного угаревшего фаната, а на ”Paradise City” вообще было ощущение, что мир сошел с ума и в зале не стоит на месте ни кто- всеобщий отрыв! И только охранники с невозмутимыми лицами и в костюмах (!!!) бдят. Именно благодаря им концерт прошел практически без потерь.</P>
+<P>Даже не знаю, как развивались события возле Главклаба после концерта. Кто ждал SLASH? Кто дождался? Лично мне, выйдя из помещения дико захотелось дойти до набережной Невы, опустить в нее ноги и, наслаждаясь остатками ночи в компании друзей обсудить только что чудом пережитый концерт.</P>
+<P>Текст: Анна Ходакова<BR></P>
+Автор: Headcrusher
+
+### 20.02.2013 news SLASH: фото-отчёты с концертов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В прошлые выходные в Москве и Санкт-Петербурге состоялись аншлаговые концерты группы бывшего гитариста <STRONG>GUNS N' ROSES</STRONG> и <STRONG>VELVET REVOLVER</STRONG> Слэша (<STRONG>Slash</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время, помимо самого Слэша на гитаре, в группу входят:</FONT></P>
+<P><STRONG>Myles Kennedy</STRONG> - вокал (<STRONG>ALTER BRIDGE</STRONG>)<BR><STRONG>Todd Kerns - </STRONG>бас (<STRONG>SIN CITY SINNERS</STRONG>)<BR><STRONG>Brent Fitz </STRONG>- ударные (<STRONG>UNION</STRONG>)<BR><STRONG>Frank Sidoris</STRONG>&nbsp;- гитара</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фото-отчёты с обоих концертов можно посмотреть по ссылкам ниже:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Москва</STRONG> <EM>(16 февраля, клуб "Arena Moscow")</EM>: <A href="/ru/galleries/1/1187/">http://musica.mustdie.ru/ru/galleries/1/1187/</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Санкт-Петербург</STRONG> <EM>(17 февраля, клуб "A2")</EM>: <A href="/ru/galleries/1/1188/">http://musica.mustdie.ru/ru/galleries/1/1188/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25451.jpg" width=600 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Slash's Snakepit Ain't Life Grand 2001

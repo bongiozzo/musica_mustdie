@@ -40,6 +40,41 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.05.2012 news ENTRAILS на Metal Blade
+
+<P>Шведская death-metal банда <STRONG>ENTRAILS</STRONG> подписала контракт с <STRONG>Metal Blade</STRONG>. Третий альбом коллектива будет записан этим летом. Подробности последуют.</P>
+<P><center><IMG height=276 src="/images/news_rus/2012.05/24004.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 06.03.2013 news ENTRAILS: детали третьего полноформатника
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25506.jpg" width=400 height=400>Шведские любители 'смертельного металла' старой школы, группа <STRONG>ENTRAILS</STRONG>, опубликовала подробности своего третьего студийного альбома <STRONG>"Raging Death"</STRONG>, который выйдет в мае на <STRONG>Metal Blade</STRONG>.</P>
+<P><STRONG>"Raging Death"</STRONG>&nbsp;будет выпущен на виниле,&nbsp;лимитированном дигипаке, включающем в себя&nbsp;bonus CD&nbsp;и&nbsp;на самом обычном компакт-диске.&nbsp;&nbsp;Две первые версии издания альбома будут включать в себя дополнительный трек - кавер версию песни <STRONG>"Dark Endless"</STRONG> авторства группы <STRONG>MARDUK</STRONG>! Детали того, что войдёт на бонус CD к дигипак изданию, станут известны чуть позже. </P>
+<P><STRONG>"Raging Death"</STRONG> был записан в разных студиях -&nbsp;барабаны были записаны в&nbsp;студии <STRONG>Racetrack</STRONG>, тогда как основная запись происходила в собственной студии гитариста группы, <STRONG>Джимми Ландквиста</STRONG> (Jimmy Lundqvist), под названием <STRONG>The Crypt Recording</STRONG>.&nbsp;Уважаемый <STRONG>Dan Swan&#246;</STRONG> сделал сведение и мастеринг альбома в студии <STRONG>Unisound</STRONG>.</P>
+<P>Трек-лист:<BR>01.<STRONG> In Pieces<BR></STRONG>02. <STRONG>Carved To The Bone<BR></STRONG>03. <STRONG>Blood Hammer<BR></STRONG>04. <STRONG>Headless Dawn<BR></STRONG>05. <STRONG>Cadaverous Stench<BR></STRONG>06. <STRONG>Descend To The Beyond<BR></STRONG>07. <STRONG>Death League<BR></STRONG>08. <STRONG>Chained And Dragged<BR></STRONG>09. <STRONG>Defleshed</STRONG><BR>10. <STRONG>Cemetery Horrors<BR></STRONG>11. <STRONG>Dark Endless</STRONG> (<STRONG>MARDUK</STRONG>-Cover) / bonustrack*</P>
+Автор: Headcrusher
+
+### 02.08.2013 reviews Отличное дополнение к списку классических шведских death-metal коллективов
+
+<P><SPAN class=tit3>Objective</SPAN>: Шведский коллектив <STRONG>ENTRAILS</STRONG> был образован в 1990 году, но за первые восемь лет существования музыканты не смогли оставить ни одного записанного свидетельства. По словам лидера коллектива гитариста <STRONG>Jimmy Lundqvist</STRONG>, это было связано с низким качеством реализации материала. В 2009 году повзрослевший Jimmy отыскал в своих запасниках плёнки со старыми вещами и в порыве ностальгии возобновил проект, чтобы выпустить те песни. Было записано два демо в новом составе и в 2010 году на <STRONG>F.D.A. Rekotz</STRONG>, ровно через 20 лет после основания группы, вышел её дебют “<STRONG>Tales From The Morgue</STRONG>”. ENTRAILS вошли во вкус и уже в 2011 году выпустили на том же лэйбле продолжение “<STRONG>The Tomb Awaits</STRONG>”. Последовали выступления на европейских фестивалях, и на шведов обратили внимание на <STRONG>Metal Blade</STRONG>, где и вышел третий альбом ENTRAILS “<STRONG>Raging Death</STRONG>”. В настоящее время в составе коллектива кроме гитариста Jimmy, участники <STRONG>SKOGEN, GENERAL SURGERY</STRONG> и <STRONG>BIRDFLESH</STRONG>.</P>
+<P><SPAN class=tit3>Subjective</SPAN>: Музыкально обозреваемый альбом представляет собой всем нам хорошо знакомый олдскульный шведский death-metal. Безусловно, все мы уже слышали подобное творчество много раз, но каждый из этих разов мы весело вскрикиваем и принимаемся рубиться всеми возможными для нас средствами. <STRONG>GRAVE, DISMEMBER, ENTOMBED</STRONG>… ENTRAILS можно смело ставить в один ряд с этими классиками стиля. Не случайно на треке “<STRONG>Death League</STRONG>” мы можем услышать вокал <STRONG>Kam Lee (ex-Massacre), Rogga Johansson (PAGANIZER), Jorgen Sandstrom (ex-GRAVE)</STRONG> и <STRONG>Dan Swano (ex-EDGE OF SANITY)</STRONG>. Последний, кстати, свёл и отмастерил “Raging Death”, что для многих станет дополнительным свидетельством высшего качества этой работы. </P>
+<P><SPAN class=tit3>Goods</SPAN>: Как уже упоминалось, в Европе и США альбом вышел на Metal Blade Records. Поклонникам фирменных дисков доступно как обычное jewel-case издание, так и лимитированный вариант с кавер-версией <STRONG>MARDUK “Dark Endless”</STRONG> и вторым диском, cd-версией концерта ENTRAILS на прошлогоднем фестивале <STRONG>Party.San.</STRONG> В России изданием пластинки занимается <STRONG>Фоно</STRONG>, первое издание в формате digi-pack вышло в конце июля. Диск содержит регулярную версию альбома без бонусов.</P>
+<P><SPAN class=tit3>Conclusion</SPAN>: Альбом ENTRAILS рекомендуется всем поклонникам европейского death-metal без исключений. Заводные и запоминающиеся боевики не дадут заскучать даже самым придирчивым. Если же вам нравится melodic death-metal, попробуйте оценить ENTRAILS, может вы созрели для чуть более суровой музыки?</P>
+Автор: Vit Belov
+
+### 05.02.2014 news ENTRAILS: 7&quot; сингл &quot;Berzerk&quot; в конце февраля
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские хранители старорежимного death metal, группа <STRONG>ENTRAILS</STRONG>, выпускают 7" сингл на <STRONG>Metal Blade</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На релиз, получивший название <STRONG>"Berzerk"</STRONG>, войдут две композиции. Сторона <STRONG>"A"</STRONG> будет содержать новый титульный трек, а на сторону <STRONG>"B"</STRONG>, войдёт песня <STRONG>"Dreaming"</STRONG>, авторства давно развалившегося шведского хэви-метал коллектива <STRONG>HEAVY LOAD</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сингл будет выпущен в трёх цветовых вариантах - чёрный (300 экз.), зелёный (100 экз.) и белый (100 экз.). Дата выхода: 28 февраля.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.02/26596.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

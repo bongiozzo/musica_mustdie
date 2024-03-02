@@ -362,6 +362,361 @@ Give It Up
 
 * C группой "Geordie" Brian Johnson
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>AC/DC закончили сочинение новых песен и скоро войдут в студию для их записи.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>AC/DC работают в студии над новым альбом вместе с продюсером Джорджем Янгом. Старшим братом Ангуса и Малкольма. Альбом выйдет в начале следующего года.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>AC/DC почти закончили запись нового альбома, на который войдут 12 песен. Альбом ещё безымянный, но выйдет уже в январе.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Новый альбом AC/DC "Stiff Uper Lip" задерживается. Первый сингл с него должен был появиться в середине февраля.</p>
+
+Автор: Vit Belov
+
+### 27.03.2000 reviews 
+
+<p>После большого перерыва новый альбом легенды хард'n'хэви. Можно, вообще, ничего не писать про этот "шедевр". Ничего нового вы не услышите. Альбом можно называть как великолепным, так и отстойным. Я не буду ничего этого делать, а скажу лишь, что кому надо, тот пусть покупает, а остальным не стоит. Ни одного хита достойного прошлых лет я не увидел. Так послушать и поставить на полку... 7 из 10.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>В Мадриде одна из улиц была названа в честь небезысвестной группы AC/DC. Мальколм и Ангус Янг присутствовали на церемонии её открытия.</p>
+
+Автор: Vit Belov
+
+### 06.09.2000 news Новость от AC&#x2F;DC
+
+<p>Во время последних концертов в штатах (Цинцинатти 29:08 и Милуоки 30:08) пионеры тяжелого рок-н-ролла представили на суд зрителей нового персонажа шоу. Им оказалась огромная статуя (40 фут.!) Ангуса дублирующая изображение на обложке STIFF UPPER LIP. Монстровский гитареро снабжен электрическими глазами и некоторыми другими забавными приспособлениями.</p>
+
+Автор: Yermola
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 19.02.2001 news AC&#x2F;DC - мегаселлеры....
+
+<p>По сообщению Daily News, к началу Февраля 2001 года AD/DC в США продали 60 000 000 дисков. Каждый полноформатник становился платиновым (более 1 000 000 копий проданных в штатах). "Razor's Edge" и "For Those About To Rock" - оба по 4 миллиона копий, "Back In Black" - 19 миллионов, "Dirty Deeds" и "Highway To Hell" - 6 миллионов, "Who Made Who" - 5 миллионов, "Ballbreaker" - 2 и по одному миллиону за "Flick Of The Switch", "Fly On The Wall", "Bonfire" и "Stiff Upper Lip". В настоящий момент команда входит в пятерку наиболее успешно-продаваемых актов в США.</p>
+
+Автор: Yermola
+
+### 19.02.2001 news AC&#x2F;DC - megasellers
+
+<p>According to "Daily News", as of the week ending on January 27th, every one of AC/DC's full length CD releases has gone at least platinum, with one million copies sold in the U.S. Their Jailbreak EP has also been certified platinum. Among the recent certifications were Razor's Edge and For Those About To Rock, both coming in at 4 million, Back In Black at 19 million, Dirty Deeds and Highway To Hell at 6 million, Who Made Who at 5 million, Ballbreaker at 2 million and 1 million each for Flick Of The Switch, Fly On The Wall, Bonfire and Stiff Upper Lip. The band have 18 platinum albums and have sold over 60 million albums in the U.S. alone making the band the fifth-best-selling act in US history. <BR><BR>AC/DC will once again take out SLASH'S SNAKEPIT as the support act on its next North American tour. The tour begins in Ft. Lauderdale, FL on March 18th and runs through May 5th in Philadelphia, PA.</P></p>
+
+Автор: Yermola
+
+### 27.03.2001 news Проблемы у Слэша...
+
+<p>SLASH'S SNAKEPIT сняты с совместного тура "Stiff Upper Lip" с AC/DC из-за проблем со здоровьем у самого Слэша. Врачи поставили ему диагноз - пневмония и порекомендовали лечение и полный покой. "Я извиняюсь перед фэнами и AC/DC, но я не хочу делать для вас полу-ж...ое шоу. Ненавижу подводить людей, но будет правильным дать им только самое лучшее шоу."</p>
+
+Автор: Yermola
+
+### 27.03.2001 news Slash has been diagnosed with pneumonia....
+
+<p>SLASH'S SNAKEPIT have been forced to cancel performances on the second leg of AC/DC's Stiff Upper Lip tour due to illness of the band's legendary namesake. Slash has been diagnosed with pneumonia and has been ordered by his doctor to rest. The band was originally scheduled to perform on the tour through April 29th. Slash is expected to make a full recovery and plans to resume touring with his band in the near future. Slash deeply regrets having to cancel these highly anticipated tour dates and sincerely appreciates the ongoing support received from his fans: "I apologize to the fans and to AC/DC, but I don't want to get up there and do a half-assed show," Slash said in a statement, "I hate to let people down, but it wouldn't be right to give them a performance that's anything less than our best."</p>
+
+Автор: Yermola
+
+### 04.05.2001 news Источнику постоянного &#x2F; переменного тока требуется подзарядка...
+
+<p>Даже луженая / тренированная глотка Брайана Джонсона не выдержала концертных перегрузок - позавчера на шоу в Детройте он сорвал голос. DC придется уже во второй раз отменять концерт (первый раз в Мэдисоне, Висконсин). Оба мероприятия будут перенесены на более поздние даты.</p>
+
+Автор: Yermola
+
+### 04.05.2001 news Brian Johnson&#39;s sore throat .....
+
+<p>AC/DC singer Brian Johnson's sore throat forced the band to cancel their Wednesday, May 2nd date at the Joe Louis Arena in Detroit. It's the second cancellation of a sold-out AC/DC show in two days. Fans had already begun gathering outside the Kohl Center in Madison, Wisconsin, early Tuesday evening when word arrived that the show was off. Both shows will be rescheduled, though no new dates have been set. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 18.09.2001 news С оттопыреной губой...
+
+<p>Австралийские хэдбенгеры "AC/DC" по результатам европейских продаж получили платину за "Stiff Upper Lip", продав более миллиона копий...</p>
+
+Автор: Yermola
+
+### 18.09.2001 news AC&#x2F;DC have received a platinum ...
+
+<p>AC/DC have received a platinum award for European sales of Stiff Upper Lip in excess of one million copies. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Брайан Джонсон скооперировался с Джорди...
+
+<p>Вокалист "AC/DC" Brian Johnson записал две песни совместно с "GEORDIE" и провел с ними серию концертов на северо-западе Англии. “Byker Hill” и “Wor Geordie’s Lost His Liggie” войдут на 20-дисковый бокс-сет Northumbria Anthology который должен выйти еще до конца этого месяца...</p>
+
+Автор: Yermola
+
+### 14.11.2001 news Статуя Ангуса Янга не будет разрушать небоскребы...
+
+<p>"AC/DC" пришлось срочно изменять видео ряд нового DVD, в основном снятого на Мюнхенских концертах группы прошлым летом. В уже готовом видео-клипе гигантская статуя Ангуса разрушала небоскребы и города, что мождет быть неправильно воспринято в мире после недавних событий в Америке. Выход DVD запланирован в штатах на 4-е декабря...</p>
+
+Автор: Yermola
+
+### 14.11.2001 news AC&#x2F;DC’s upcoming live DVD, which was recorded in Munich last summer...
+
+<p>According to the Rising Power unofficial AC/DC web site, AC/DC’s upcoming live DVD, which was recorded in Munich last summer, will not include the originally intended introduction—featuring an Angus Young statue destroying buildings and cities around the world—but a new one, presumably as a result of the recent tragic events that took place in New York and Washington D.C. The DVD is presently set for release in the US on December 4th.</p>
+
+Автор: Yermola
+
+### 15.03.2002 news BILLY JOEL объединился с AC&#x2F;DC?!?!
+
+<p>На концерте во Флориде, поп-рокер BILLY JOEL совместно с Брайаном Джонсоном и Клиффом Уильямсом из AC/DC исполнили классическую вещь австраллийцев "Highway To Hell". <BR> <BR> Интересно, что до поп-музыки, BILLY JOEL занимался психоделическим хард-роком и был участником группы "ATTILA" которая имела одноименный альбом на Epic Records в 1970 году.</p>
+
+Автор: Yermola
+
+### 15.03.2002 news AC&#x2F;DC Duo Jam Out With BILLY JOEL At Florida Concert ...
+
+<p>In what has to be one of the most bizarre pairings in recent memory, “piano man” BILLY JOEL was joined by AC/DC frontman Brian Johnson and bassist Cliff Williams during JOEL's recent Tampa, Florida gig (where he performed with ELTON JOHN) for a rendition of the AC/DC classic "Highway To Hell". <BR> <BR> Despite BILLY JOEL's predominantly pop background, the singer was once part of a “psychedelic hard rock” duo called ATTILA, which released a self-titled debut LP through Epic Records in 1970 before getting dropped by the label due to poor record sales.</p>
+
+Автор: Yermola
+
+### 17.04.2002 news Брайан Джонсон написал вещь для JACKYL ...
+
+<p>Вокалист AC/DC - Brian Johnson написал и записал песню для JACKYL которая появится на новом альбоме группы. Уже известны названия некоторых треков которые будут на диске: 'Give The Devil His Due', 'Kill The Sunshine' (написана с Brian Johnson AC/DC), 'Vegas Smile', 'If You Want It Heavy (I Weigh A Ton)', 'Billy Badass (I Am A Motherf.cker)' и 'Sparks From Candy'.</p>
+
+Автор: Yermola
+
+### 17.04.2002 news AC&#x2F;DC&#39;s BRIAN JOHNSON Co-Writes Tune For New JACKYL ...
+
+<p>AC/DC frontman Brian Johnson has co-written a track with JACKYL that is due to appear on the latter's new studio album, the group's first since splitting with the Geffen label. According to JACKYL's official web site, “We're down to mixing the last four songs which should be done by weeks end. It is a very honest, unpretentious rock 'n roll JACKYL record. Some of the titles are… 'Give The Devil His Due', 'Kill The Sunshine' (co-written with Brian Johnson from AC/DC), 'Vegas Smile', 'If You Want It Heavy (I Weigh A Ton)', 'Billy Badass (I Am A Motherf.cker)' and 'Sparks From Candy'. We have all intentions of getting this album released as soon as possible. We've fulfilled our contract with Geffen with the release of our Choice Cuts greatest hits album. This leaves us free and clear to find a new label home. We currently have a good idea of how things will be working out, but at this time it is in our attorney's hands. Our primary concern at this time is that we find a label fully committed to going the distance with this new album.”</p>
+
+Автор: Yermola
+
+### 15.05.2002 news Басист AC&#x2F;DC исполнил партии баса для Frozen Camel....
+
+<p>Клифф Уильямс исполнил партии баса на альбоме "Sans" боснийско-американской группы Frozen Camel. Пока диск можно заказать только по почте: emir_frozencamels@hotmail.com</p>
+
+Автор: Yermola
+
+### 15.05.2002 news AC&#x2F;DC Bassist Makes Guest Appearance ....
+
+<p>AC/DC bassist Cliff Williams reportedly makes a guest appearance on an album by Bosnian-American musicians Emir and Frozen Camel. The CD in question, entitled Sans, allegedly features Williams playing bass on all tracks and is presently only available via mail order. For further info, send an e-mail to: emir_frozencamels@hotmail.com.</p>
+
+Автор: Yermola
+
+### 16.07.2002 news AC&#x2F;DC Frontman&#39;s &quot;HELEN OF TROY&quot; Musical ...
+
+<p>Helen of Troy, an action-filled love story/musical based on Greek mythology that features brand new material composed by AC/DC frontman Brian Johnson, is scheduled to premier at the Van Wezel Performing Arts Hall in Sarasota, Florida during the week of March 20-25, 2003. <BR><BR> As previously reported, Johnson is working with British composer Brendan Healy and Sarasota Ballet Artistic Director Robert de Warren on the $1.2 million production, for which Brian has reportedly written 14 songs. After a nine-show run, Helen of Troy will tour Florida, with tentative plans for a national tour a short time later.</p>
+
+Автор: Yermola
+
+### 16.07.2002 news Елена Троянская...
+
+<p>"Елена Троянская" - так будет называться мюзикл построенный на сюжетах из греческой мифологии автором которого является некий Брайан Джонсон. Премьера назначена на 20 марта 2003 в Van Wezel Performing Arts Hall (Флорида). Сейчас Брайан работает с британским композитором Brendan Healy и Директором "Sarasota Ballet" - Robert de Warren. Стоимость постановки 1,2 млн. долларов. Уже готово 14 песен. После 9 постановок на месте, шоу отправится в тур по Флориде и затем по штатам.</p>
+
+Автор: Yermola
+
+### 07.02.2003 news AC&#x2F;DC Road Movie: Casting Has Begun ...
+
+<p>The Herald Sun reports that casting has begun for the AC/DC road movie "Thunderstruck". The most prominent actor to be cast is Stephen Curry ("The Castle"). Newcomer Jason Gann, star of the short film "Wilfred", has also won a part. The film is about five friends who make a pact during AC/DC's Australian Tour in 1991 that the first of them to die will be buried in the grave next to their idol, late AC/DC frontman Bon Scott.</p>
+
+Автор: Yermola
+
+### 07.02.2003 news AC&#x2F;DC готовятся снимать фильм....
+
+<p>По сообщению "Herald Sun" AC/DC начали отбор актеров для съемок в фильме "Thunderstruck". Уже определились несколько кандидатов, это Stephen Curry (игравший в "The Castle") и Jason Gann (игравший в "Wilfred"). Фильм будет рассказывать о 5 друзьях встретившихся во время Австраллийского тура AC/DC 1991 года и решившие, что первый из них кто умрет будет похоронен рядом с бывшим фронтменом Бон Скоттом... .</p>
+
+Автор: Yermola
+
+### 20.02.2003 news AC&#x2F;DC Jamming With THE ROLLING STONES...
+
+<p>A video of AC/DC guitarist duo, Angus and Malcolm Young, jamming with the ROLLING STONES on stage at the Enmore Theatre in Sydney, Australia last night (Feb. 18) on a rendition of the B.B. KING blues classic "Rock Me Baby" has been posted online at <A HREF="http://www.acdc-videos.com/">www.acdc-videos.com</A>.</p>
+
+Автор: Yermola
+
+### 20.02.2003 news Джем AC&#x2F;DC и ROLLING STONES...
+
+<p>Видео джема гитаристов AC/DC Angus'a и Malcolm'a Young и ROLLING STONES совместно исполнивших классический блюз Би Би Кинга "Rock Me Baby" сделанное во время Сиднейского концерта 18 февраля выложено <A HREF="http://www.acdc-videos.com/">здесь....</A></p>
+
+Автор: Yermola
+
+### 20.03.2003 articles Рецепт вечной славы
+
+<p>Получить свой кусок славы никогда не поздно. С другой стороны, когда это сопровождается установкой памятника и слегка напоминает похороны, не очень-то и хочется… <BR> На днях легендарные AC/DC были введены в Зал славы рок-н-ролла. Группе - за 30, музыкантам - под 50, а без хамства не обошлось: "Мы в этот зал уже давно попали благодаря нашим поклонникам! Так что официальное извещение организаторы могли бы выслать и почтой!" Интервью каналу VH-1, состоявшееся сразу после выступления группы на церемонии, проходило в том же духе. <BR> <B>- Каково быть первой хард-рок-группой, оказавшейся в зале славы рок-н-ролла? </B> <BR> Малькольм Янг: Жаль, пришлось ехать на церемонию – в принципе, нас устраивало и извещение по почте (смеется). Но все же пришлось приехать и сыграть пару песен там – нашему вокалисту Брайену очень понравилось, как же, он спел вместе со Стивеном Тайлером из AEROSMITH! - В вашей длинной карьере настоящий взлет начался лишь после того, как пластинка "Highway to Hell" получила успех в Штатах… <BR> Малькольм Янг: Да, после "успеха" диска "Powerage" наша фирма хотела нас вообще выставить за дверь… но потом решили просто поменять нам продюсера. Тут уже мы взбрыкнули – мы же не оркестр, чтобы приставить к нам дирижера! Нашли компромисс – мы сами выбрали парня, Мэтта Ланжа, отправили ему запись новых песен и… ну дальше вы знаете.<BR> <B>- А почему именно Мэтт Ланж – ведь он тогда не был известен? </B><BR> Энгус Янг: Но уже тогда он понимал толк в юморе! Когда мы позвонили ему и сказали, что берем его на должность продюсера, он ответил: "Отлично! Видеть вас не хочу! У вас уже есть свой звук и собственный стиль, так что будем общаться только заочно – я уже договорился о паре концертов…". Толковый парень!<BR> <B>- Похоже, что для вас именно чувство юмора – главный рецепт успешной карьеры?</B> <BR> Энгус Янг: В рок-н-ролле только так! Иначе все это похоже на церковь, а кому оно надо?<BR> <B>- Когда вы записывали "Back in Black", предполагали, что пластинка окажется одной из лучших в истории рока? </B> <BR> Малькольм Янг: Да нет, всего лишь делали свою работу. Нам нравился новый вокалист, новые песни, все отнеслись к работе очень серьезно и работали на пределе. Обычно когда пишешь пластинку, потом и слышать ее не хочешь недели две, настолько все надоедает, но это не тот случай – прямо волшебство какое-то…<BR> <B>- Тяжело было писать следующий диск после успеха "Back in Black"? Слава не давила?</B> <BR> Энгус Янг: Ну, перед началом записи "For Those About to Rock We Salute You" было немного грустно (смеется). Естественно, все чувствовали давление, хотя и разной степени. Но мы никогда не думаем о завтрашнем дне, так было и на этот раз – просто сад<B></B><B></B>ись и пиши свои песни и плевать, станет это классикой рока или нет.<BR> <B>- На этом альбоме вы использовали запись пушечного салюта. Откуда взяли этот грохот? </B><BR> Энгус Янг: Мы как раз были во Франции, когда состоялась свадьба принцессы Дианы и принца Большие Уши (принц Чарлз. –Авт.). По телевидению была большая трансляция и мы ее записали – салют как раз оттуда. <BR> Брайен Джонсон: Кстати, песня далась мне нелегко. Сижу выпиваю, никого не трогаю, тут вваливается вся группа и с порога орет: "Нам нужна песня, обыгрывающая девиз гладиаторов "Идущие на смерть приветствуют тебя!" <BR> Энгус Янг: Да мы докопались до гладиаторской темы задолго до Рассела Кроу (смеется)!<BR> <B></B> - Вас не смущает, что ваши альбомы порой до одурения похожи? <BR> Энгус Янг: А мне все говорят: мол, эта мелодия похожа на ту, этот риф на тот, вы повторяетесь! Тем не менее наши альбомы продаются снова и снова. Когда мы записали свою первую пластинку "High Voltage", ее купили всего три человека. Три! А когда мы в прошлом году вернулись с очередного турне, то обнаружили "High Voltage" на вершине чартов. После этого мне наплевать, на похожесть наших пластинок.</p>
+
+Автор: Tornado
+
+### 19.06.2004 articles Хроника: Счастливые мгновения из жизни Rob Halford – Chris Poland не присоединялся к MEGADETH – Улица имени AC&#x2F;DC – Charlie Benante хочет в предвыборный штаб – Некролог Quorthon – Скупой Glenn Benton и жадная Metalysee
+
+<P><I>Счастливые мгновения из жизни </I><B><I>Rob </I><I>Halford </I></B><I>– </I><B><I>Chris </I><I>Poland </I></B><I>не присоединялся к </I><B><I>MEGADETH </I></B><I>– Улица имени </I><B><I>AC/</I><I>DC </I></B><I>– </I><B><I>Charlie Benante </I></B><I>хочет в предвыборный штаб – Некролог </I><B><I>Quorthon</I></B><I> – Скупой </I><B><I>Glenn Benton </I></B><I>и жадная </I><B><I>Metalysee</I></B><I></I></P>
+<P>Одним из самых значимых событий за последнее время в metal-музыке стало воссоединение <B>JUDAS PRIEST</B>с <B>Rob Halford</B>. В интервью журналу <B>Revolver Rob </B>поделился своими мыслями по поводу этого события. «<I>В 1997 году, когда вышел ‘</I><B><I>Jugulator</I></B><I>’ я подумал, что шансов на воссоединение у нас не осталось. Они выпустили альбом с </I><B><I>Tim </I><I>Owens</I></B><I>, поехали в тур… Я никогда не рассказывал об этом, но ещё во время записи первого альбома </I><B><I>FIGHT</I></B><I> я подумывал о возвращении в </I><B><I>JUDAS </I><I>PRIEST</I></B><I>, я связался с одним человеком, близким к группе, но получил отказ. Мне тогда показалось, что моими бывшими коллегами владело чувство обиды</I>», - рассказывает <B>Rob</B>. Также <B>Halford </B>описал сам момент возрождения группы в классическом составе: «<B><I>Sony</I></B><I> собралась выпустить коллекцию </I><B><I>JUDAS </I><I>PRIEST</I></B><I> на четырёх дисках ‘</I><B><I>Metalogy</I></B><I>’, и мы все вместе собрались, чтобы отобрать песни для этих дисков. Мы сидели на моей кухне, и когда основное дело было кончено, мы посмотрели друг другу в глаза и сказали: «Ну, что Вы думаете о </I><I>re-</I><I>union?». Мы решили, что если это не случится сейчас, это не случится никогда. Все разъехались в разных направлениях, а я сидел дома и повторял: «Я снова в группе! Я снова в группе!»</I>». За всей этой мелодраматической историей заметна тень <B>Sony Music</B>, которым очень выгодно воссоединения «бедного» <B>Halford </B>со своим друзьями-врагами. Альбом будет записан осенью, а в настоящее время группа даёт свои первые концерты в обновлённом составе. Вот сэт-лист одного из них в Ганновере:</P>
+<P><IMG height=225 alt="" hspace=0 src="/images/articles_rus/2004.06/6633.jpg" width=300 align="right" border=0>01. <B>Hellion</B><SPAN><BR>02. <B>Electric Eye</B> <BR>03. <B>Metal Gods</B> <BR>04. <B>Heading Out to the Highway</B> <BR>05. <B>The Ripper</B> <BR>06. <B>Touch of Evil</B> <BR>07. <B>The Sentinel</B> <BR>08. <B>Turbo Lover</B> <BR>09. <B>Victim of Changes</B> <BR>10. <B>Diamonds and Rust</B> <BR>11. <B>Breaking the Law</B> <BR>12. <B>Beyond the Realms of Death</B> <BR>13. <B>The Green Manalishi (With the Two Pronged Crown)</B><BR>14. <B>Painkiller</B> <BR>Encore:<BR>15. <B>Hell Bent For Leather</B> <BR>16. <B>Living After Midnight</B> <BR>17. <B>United</B> <BR>18. <B>You Got Another Thing Coming</B> </SPAN></P>
+<P><B>MEGADETH </B>записали новую пластинку. В записи <B>Dave Mustain </B>помогал его бывший коллега по группе <B>Chris Poland</B>, который дал на прошлой неделе интервью<B> <SPAN><A href="http://dallasmusicguide.com/" target=_blank><SPAN style="COLOR: #ffffff">Dallas Music Guide</SPAN></A></SPAN></B>, в котором рассказал немного об этой свой работе. «<B><I>Dave</I></B><I> позвонил мне и попросил записать соло для своей новой работы, которая должна была стать либо новым альбомом </I><B><I>MEGADETH</I></B><I>, либо сольной пластинкой </I><B><I>Dave </I><I></I><I>Mustain</I></B><I><SPAN>. Одной из основных причин моего согласия стала наличие за барабанной стойкой <B>Vinnie Colaiuta, </B>фэном которого я являюсь долгое время</SPAN></I>». Также <B>Chris </B>сообщил, что не собирается присоединяться к <B>MEGADETH </B>на постоянной основе, так как в настоящее время он предпочитает играть другой сорт музыки. Вот как <B>Poland </B>описывает будущий альбом <B>MEGADETH</B><SPAN>: «<I>Новая пластинка – это смесь </I></SPAN><B><I>Rust </I><I></I><I>In </I><I></I><I>Peace</I></B><I> и </I><B><I>Peace </I><I></I><I>Sells</I></B><I>… Также есть некоторые черты первого альбома. Многие песни необходимо слушать несколько раз, так как врубиться в них с первого раза тяжеловато. Гитарные партии очень сложные, я не могу вспомнить, что я играл на этом альбоме, для каждой песни собственное сложное соло. Вы можете ожидать нечто подобное, но каждый составит своё мнение после прослушивания этого альбома</I>».</P>
+<P>Почётная, и одновременно забавная, новость пришла из Австралии. По сообщению <B>CNN</B>, власти города Мельбурн собираются переименовать одну из улиц города <B>Corporation Lane </B><SPAN>в (угадайте!!!) <B>AC/DC Lane. </B>«<I>Они, возможно, самая успешная австралийская группа</I>», - говорят в мэрии города. «<I>Рок’н’ролл сообщество города ищет возможность воздать должное группе. Тем более, один из клипов </I></SPAN><I>AC/</I><I>DC<B>"</B></I><B><I>It'</I><I>s </I><I>A </I><I>Long </I><I>Way </I><I>to </I><I>the </I><I>Top"</I></B><I> снимался на улицах Мельбурна</I>», - заканчивают своё выступление государственные деятели. <B>CNN </B>напоминает, что улица имени <B>AC/DC </B>уже есть в Мадриде.</P>
+<P>Бывшие thrash-metal’исты <B>ANTHRAX </B>продолжают привлекать к себе внимание общественности разнообразными высказываниями в прессе. В интервью своему немецкому фэн-клубу все другие заявления, включая мнение музыкантов о новом-старом басисте <B>ANTHRAX Joey Vera</B>, затмили очередные «предвыборные заявления». <B>Charlie Benante</B>: «<I>Я с самого первого дня ненавидел самою мысль, что </I><B><I>Bush</I></B><I> будет нашим президентом. Подобные чувства вселили действия, которые он и его группа идиотов производили. Я американец и горжусь этим, но одна мысль не даёт мне покоя: «Что думают о нас люди со всего мира, если мы выбрали себе такого президента?» Мы не такие, как он!!! Я за мир во всём мире и буду бороться за это</I>». Не иначе, как дела в группе идут не очень хорошо, и <B>Charlie </B>захотел подработать на стороне в предвыборном штабе <B>John Kerry</B>. </P>
+<P>7 июня скончался <B>Thomas "Quorthon" Forsberg </B>лидер и один из основателей <B>BATHORY</B>. У него просто остановилось сердце на сороковом году жизни после многолетней борьбы с сердечным недугом. Таковы скудные подробности случившегося. Многие известные музыканты выступили с заявлением по поводу кончины <B>Thomas</B><SPAN>. Одним из них стал <B>Jonas </B></SPAN><B>Akerlund, </B>который основал <B>BATHORY </B>вместе с <B>Quorthon </B>в начале 80-х, а затем успешно занимался клипмейкерством. Среди исполнителей, работавших с ним, <B>METALLICA, Madonna </B>и <B>U2</B><SPAN>. «<I>Это так грустно. Он мог столько ещё всего написать</I>», - говорит </SPAN><B>Jonas</B>. “<B><I>BATHORY</I></B><I> появились на сцене очень рано, и многие коллективы вдохновлялись песнями </I><B><I>Quorthon</I></B><I>. Парни из </I><B><I>METALLICA</I></B><I> и многие другие группы рассказывали мне, что слушали </I><B><I>BATHORY</I></B><I>. </I><B><I>Quorthon</I></B><I> имел культовый статус. Его не интересовало, что слушают люди, он просто сочинял музыку</I>». Ещё один «некролог» пришёл из Норвегии. <B>Satyr (SATYRICON):</B><SPAN> «<I>Услышать о смерти было очень грустно, ему было всего 39 лет… </I></SPAN><B><I>BATHORY</I></B><I> оказали огромное влияние на меня и </I><B><I>Frost</I></B><I>, когда мы основывали </I><B><I>SATYRICON</I></B><I><SPAN>. Первый кавер, который записала наша группа, был <B>'Born For Burning'. </B>Не многие люди встречались с </SPAN></I><B><I>Quorthon</I></B><I><SPAN>, он был замкнут и не являлся частью норвежской металл-сцены. Мы разговаривали с ним по телефону несколько раз в середине 90-х, и я рад даже такому общению с этой культовой фигурой. В первый раз мы говорили три часа, и я нашёл его очень дружелюбным и приветливым человеком. Наш режиссер клипов <B>Jonas </B></SPAN></I><B><I>A</I><I>kerlund </I></B><I>рассказывал много интересного о своей работе с </I><B><I>Quorthon</I></B><I> над первым альбомом </I><B><I>BATHORY</I><I>. </I></B><I>Спасибо за всё, что ты сделал для музыки, </I><B><I>Quorthon</I></B><I>! Все, зажгите 13 свечей и включите альбом </I><B><I>BATHORY</I></B><I>, чтобы помянуть короля</I>». R.I.P.</P>
+<P>После такой грустной темы надо немного разрядиться, и на этот случай у меня припасена история «<B>DEICIDE и Metalysee Booking Agency</B>». Напомню, что, именно, <B>Metalysee </B>были одним из организаторов приезда в Россию группы <B>MARDUK</B>, отсутствие которой на сцене ДК им. Горбунова повлекло за собой беспорядки среди фэнов и фактическое разорение Эджен Price и его лэйбла <B>Metalagen</B>. Совсем недавно <B>DEICIDE </B>отменили своё турне по Европе. Такое случается, но <B>Metalysee </B><SPAN>не дали спустить это дело на тормозах и выступили с обличительным заявлением. «<I>Вчера, 8 июня, </I></SPAN><B><I>DEICIDE </I><I></I></B><I>скоропостижно отменили свой европейский тур. В этот день они должны были играть в Лондоне, но вместо этого группа ожидала рейса в США в аэропорту Хитроу. Все проблемы начались за неделю до этого, когда </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> потребовал значительного увеличения гонорара за каждое шоу, в противном случае </I><B><I>DEICIDE</I></B><I> отказывались выступать. Мы были вынуждены принять их условия, так как не могли отменить этот тур. Однако 8 июня группа потребовала ещё больших денег. Дошло до того, что они просили двойного увеличения первоначальной суммы. Мы не стали выполнять эти просьбы. Наряду с финансовыми разногласиями </I><B><I>DEICIDE</I></B><I> не понравились условия транспортировки, в автобусе был сломан кондиционер. В конце концов, группа развернулась и улетела домой, оставив три группы, участвующих с ними в трассе, агентов, промоутеров и, конечно же, обманутых зрителей</I>». Ответ <B>Glenn Benton </B><SPAN>не заставил себя ждать: «<I>Во-первых, мы прервали своё сотрудничество с </I></SPAN><B><I>Metalysee</I></B><I> много лет назад, из-за ущемления прав групп, практикуемых на этой фирме. Сейчас мы вновь связались с этой конторой, считая, что многое должно измениться, например, трансферы. Замечу, что мы требовали всего 400 долларов за шоу. Но когда поняли, что за эти деньги нам придётся провести 4 недели в автобусе вместе с ещё 20 людьми, немного расстроились. Теперь автобус… Мы провели ночь на стоянке, дожидаясь его. </I><B><I>Johan</I></B><I> (босс </I><B><I>Metalysee</I></B><I>) врал нам, что он сломался, что неудивительно, когда пытаешься сэкономить на всём, чтобы заработать побольше, не считаясь с удобствами музыкантов. Автобус показался, опоздав на 7 с половиной часов… И у него не было кондиционера. Он не был сломан, его просто не было. Дохлые жучки повсюду, неубранные за прошлой группой помои. В контракте был указан «хороший автобус», этот не был таковым. Это же опасно для здоровья. Я вернулся домой с лёгочной инфекцией. После нескольких часов езды мы все были больны, запах моноксида углерода доконал нас. Я уже говорил </I><B><I>Johan</I></B><I>, что мы не можем путешествовать на подобных автобусах. Поверьте, нам не доставляет удовольствия отменять тур. Дал бы нам другой автобус или хотя бы почистил этот! А так, нам пришлось истратить 5000 долларов своих личных денег, чтобы вернуться домой, и ночевать на полу в аэропорту</I>». <B>Metalysee </B><SPAN>немедленно ответили на эти заявления: «<I>То, что сказал этот парень, может сказать только идиот. Мы работаем с лучшими </I></SPAN><I>black</I><I>-</I><I>death</I><I><SPAN> коллективами и никогда не кидаем своих партнёров. Касаемо транспорта, мы работаем только с лучшим перевозчиком в Европе <B>Starline-De Wit-Gaanon. </B>Мы все просто счастливы, что отделались от </SPAN></I><B><I>DEICIDE</I></B><I>. Многие локальные промоутеры больше не будут работать с этой группой. Посмотрим, какое ещё агентство обеспечит все требования </I><B><I>DEICIDE</I></B><I>: перелёт, трансфер, бэклайн и многое другое. </I><B><I>Glenn </I><I></I><I>Benton</I></B><I> самый отвратительный тип, с которым я работал. Желаю ему, всего наилучшего</I>». Начитавшись подобных заявлений, к схватке присоединился бывший гитарист <B>HADES Dan Lorenzo</B><SPAN>: “<I>Никогда бы не подумал, что поддержу </I></SPAN><B><I>Glenn </I><I></I><I>Benton</I></B><I>. Но, прочитав его заявление, я вспомнил то, о чём редко рассказывал. Одной из главных причин распада </I><B><I>HADES</I></B><I> сразу после европейского тура 1989 года была работа </I><B><I>Metalysee</I></B><I>. У нас было огромное количество народу в автобусе, который был рассчитан всего на 8 человек. Мы не могли никому высказать претензии, так как </I><B><I>Johan</I><I></I></B><I>просто исчез. После 10 дней мучений мы уже решили не продолжать </I><B><I>HADES</I></B><I>, но всё-таки доиграли тур, чтобы не кидать наших фэнов</I>». Многие группы были переломаны под колёсами этого автобуса, который носится по Европе битком набитый отбросами и black-death коллективами. Кстати, теперь понятно, почему <B>MARDUK </B><SPAN>не приехали. Видимо, они были настолько измотаны подобными переездами, что просто не смогли справиться ещё и с нашими неурядицами. Для полноты картины приведу здесь высказывания <B>Евгения Аксёнова (</B></SPAN><B>Metalagen)</B> о несостоявшихся концертах <B>MARDUK</B>: «<I>Я, как дурак, второй раз наступил на грабли, связавшись с бельгийским агентством <B>Metalysee</B>. Первый раз я попал на хорошие деньги, когда не без их дурацкого отношения к своим прямым обязанностям, не приехали <B>Pro-Pain & Co</B>. Теперь же просто откровенно, очередной раз, совершенно по-жлобски, они кинули меня и, без объяснения всяческих причин с их стороны, отменён концерт <B>Marduk & Co</B>. Я сделал всё от меня зависящее - и визы (это дурь, но они были в посольствах трёх стран - Бельгии, Белоруссии и Литвы), и рекламу, и снял лучший в Москве зал - ДК им Горбунова, прекрасный аппарат и свет (Ю.Фишкин), в производстве были специальные фестивальные майки. Для меня это просто катастрофа, так как я вложил очень большие средства, можно сказать, вложил всё последнее, хотя о каком последнем может идти речь? Я, имея большие долги, которые насобирал за эти годы, занимаясь металлом, лишь многократно приумножил их, взяв большие кредиты на проведение этого фестиваля. Может быть это скоропалительное решение, во всяком случае, сейчас я просто ничего не соображаю, но <B>Metalagen</B> больше не существует. Я полный банкрот и идиот, так как в моём возрасте уже давно следовало понять, что нужно делать и как поступать в той или иной ситуации. Больше у меня нет никакой возможности продолжать свою деятельность, остаётся только распродавать личное имущество и раздавать долги. Я привык платить по счетам. Что будет потом, я не знаю, но так больше нельзя. Буду размышлять обо всём. Всем всего хорошего</I>». </P>
+Автор: Vit Belov
+
+### 09.01.2008 news AC&#x2F;DC в апреле?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Испанский сайт <STRONG>Rafa Basa.Com</STRONG> сообщил, что <STRONG>AC/DC</STRONG> работают над новым альбомом <STRONG>"Strap It On"</STRONG> с продюсером <STRONG>Robert John "Mutt" Lange. </STRONG>Вероятной датой релиза называется апрель.</FONT></P>
+Автор: Vit Belov
+
+### 11.01.2008 news AC&#x2F;DC не в студии
+
+<P><STRONG>AC/DC</STRONG> опровергли слухи о том, что группа записывает новый альбом, которые появились ранее в этом месяце. Ни название будущей пластинки, ни продюсер записи по прежнему неизвестны.</P>
+Автор: Vit Belov
+
+### 31.07.2008 news Новый альбом AC&#x2F;DC
+
+<P>Первая за восемь лет студийная работа <STRONG>AC/DC</STRONG> "<STRONG>Black Ice</STRONG>" выйдет 21 октября. Сингл с этой работы "<STRONG>Rock 'n Roll Train</STRONG>" можно будет услышать на радиостанциях уже 28 августа. Неприятной новостью для отечественных поклонников австралийцев станет то, что альбом будет реализовываться эксклюзивно в супермаркетах сети <STRONG>Wal-Mart</STRONG>, которых, насколько я знаю, в нашей стране не существует.</P>
+Автор: Vit Belov
+
+### 28.08.2008 news Новая песня AC&#x2F;DC
+
+<P>Новая работа <STRONG>AC/DC "Black Ice"</STRONG> выходит 20 октября. Хит-сингл "<STRONG>Rock'N'Roll Train</STRONG>"&nbsp;с этой пластинки можно послушать на официальной <STRONG>MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/acdc">http://www.myspace.com/acdc</A></P>
+Автор: Vit Belov
+
+### 19.09.2008 news Новое видео AC&#x2F;DC
+
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В сети появилось видео на новую песню <STRONG>AC/DC</STRONG> "<STRONG>Rock 'N Roll Train</STRONG>".</FONT></CENTER>
+<P></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3ZjQCiDNZvE&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/3ZjQCiDNZvE&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 29.10.2008 news AC&#x2F;DC шагают по миру
+
+<P>Новый альбом<STRONG> AC/DC "Black Ice"</STRONG>, вышедший 20 октября, занял первое место в чартах 29 стран. За первую неделю было продано по всему миру около пяти миллионов копий. Только в США реализовано 780000 дисков. Если прибавить к этому проданные пять миллионов экземпляров из бэк-каталога <STRONG>AC/DC</STRONG> за этот год, то выйдет, что австралийцы продали десять миллионов пластинок только за десять месяцев 2008-го.</P>
+Автор: Vit Belov
+
+### 02.01.2009 news Рейтинг от &quot;искателей автографов&quot;
+
+<P><IMG height=263 alt="" hspace=0 src="/images/news_rus/2009.01/13274.jpg" width=250 align=left border=5>Канадский сайт <STRONG>HoundsTV.Com</STRONG> опубликовал свой рейтинг рок-знаменитостей по доступности для любителей сбора автографов. Рейтинг составлялся по материалам "искателей автографов" в Канаде в прошедшем году. Сайт определил лучших и худших в этом смысле. Самыми доступными стали: <STRONG>AC/DC</STRONG>, <B itxtvisited="1">COLDPLAY</B> and <STRONG>THE GUESS WHO</STRONG>. Самыми недосягаемыми:&nbsp;<STRONG>LED ZEPPILIN</STRONG>, <STRONG>BON JOVI</STRONG> и <STRONG>EAGLES</STRONG>.&nbsp;<STRONG>Robert Plant</STRONG> и <STRONG>Jimmy Page</STRONG> попали в этот список по отдельности, но с одинаковым негативным результатом. Оба, приезжая в Канаду порознь, отказались ставить свои росписи.</P>
+Автор: Vit Belov
+
+### 04.01.2009 news METALLICA и AC&#x2F;DC в десятке самых продаваемых
+
+<P>По сообщению<STRONG> Billboard.com</STRONG> новые альбомы <STRONG>AC/DC "Black Ice"</STRONG> и <STRONG>METALLICA "Death Magnetic"</STRONG> попали в десятку самых продаваемых альбомов за 2008 год. <STRONG>AC/DC</STRONG> продали 1.92 миллиона копий и заняли 5-ое место, а <STRONG>METALLICA</STRONG> 1.57 миллиона и заняли 7-ое. В эти цифры включены и суммы продаж в электронном виде.</P>
+<P>Всего в 2008 году было продано 428.4 миллиона альбомов. По сравнению с 2007 годом, когда было продано 500.5 миллионов альбомов, продажи упали на 14 процентов. Цифровые продажи составили 65.79 миллионов копий, 15.4 процента рынка. В 2007 году таких альбомов было продано 50 миллионов, 10 процентов от&nbsp;рынка.&nbsp;</P>
+Автор: Vit Belov
+
+### 14.01.2009 news Рейтинг Los Angeles Times
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=378 alt="" hspace=0 src="/images/news_rus/2009.01/13361.jpg" width=400 align=right border=5>AC/DC</STRONG> единственная тяжёлая группа, попавшая в "<STRONG>Ultimate Top 10</STRONG>" <STRONG>Los Angeles Times</STRONG>. При составлении рейтинга газета учитывала все поступления, которые удалось собрать исполнителям в 2008 году. Продажи пластинок, цифровые продажи, продажи билетов на концерты. <STRONG>METALLICA</STRONG> финишировала на 14-м месте. Вот, что пишет газета об успехе AC/DC: "<EM>37.5 миллионов долларов - это касса концертного тура группы, а 44.5 миллиона долларов - доход от продаж дисков. Наряду с KID ROCK AC/DC не продавали цифровой вариант своего альбома</EM>". По всей видимости, газета учитывала цифры только в США. Вот список 20-ки:</FONT></P>
+<P>01. <B>MADONNA</B> ($120.1 million)<BR>02. <B>CELINE DION</B> ($106.8 million)<BR>03. <B>KENNY CHESNEY</B> ($95.7 million)<BR>04. <B>EAGLES</B> ($90.7 million)<BR>05. <B>AC/DC</B> ($82 million)<BR>06. <B>COLDPLAY</B> ($81.6 million)<BR>07. <B>BON JOVI</B> ($81.4 million)<BR>08. <B>BRUCE SPRINGSTEEN & THE E STREET BAND</B> ($79 million)<BR>09. <B>JONAS BROTHERS</B> ($77.9 million)<BR>10. <B>RASCAL FLATTS</B> ($77.1 million)<BR>11. <B>NEIL DIAMOND</B> ($70.5 million)<BR>12. <B>TAYLOR SWIFT</B> ($62.2 million)<BR>13. <B>MICHAEL BUBL&#201;</B> ($59.5 million)<BR>14. <B>METALLICA</B> ($56.4 million)<BR>15. <B>CARRIE UNDERWOOD</B> ($54.9 million)<BR>16. <B>DAVE MATTHEWS BAND</B> ($51.6 million)<BR>17. <B>THE POLICE</B> ($51 million)<BR>18. <B>LIL WAYNE</B> ($50.8 million)<BR>19. <B>TOM PETTY</B> ($50.5 million)<BR>20. <B>KID ROCK</B> ($50. 2 million)</P>
+Автор: Vit Belov
+
+### 17.02.2009 news IFPI посчитали продажи
+
+<P>Лондонская <STRONG>International Federation of the Phonographic Industry</STRONG> (<B itxtvisited="1">IFPI</B>) посчитала продажи по всему миру за 2008 год. не называя конкретных цифр, федерация подготовила свой Top-20. В него попали <STRONG>METALLICA</STRONG>, <STRONG>AC/DC</STRONG> и <STRONG>GUNS N'ROSES</STRONG>.</P>
+<P>01.<STRONG> COLDPLAY</STRONG> - "Viva La Vida Or Death And All His Friends"<BR>02. <STRONG>AC/DC</STRONG> - "Black Ice"<BR>03. Various Artists - "Mamma Mia! The Movie Soundtrack Featuring The Songs Of ABBA"<BR>04. <STRONG>DUFFY </STRONG>- "Rockferry"<BR>05. <STRONG>METALLICA </STRONG>- "Death Magnetic"<BR>06. <STRONG>LEONA LEWIS</STRONG> - "Spirit "<BR>07. <STRONG>AMY WINEHOUSE</STRONG> - "Back To Black"<BR>08. Various Artists - "High School Musical 3: Senior Year"<BR>09. <STRONG>LIL WAYNE</STRONG> - "Tha Carter III"<BR>10. <STRONG>RIHANNA </STRONG>- "Good Girl Gone Bad"<BR>11. <STRONG>MADONNA</STRONG> - "Hard Candy"<BR>12. <STRONG>BEYONCE</STRONG> - "I Am... Sasha Fierce"<BR>13. <STRONG>PINK</STRONG> - "Funhouse"<BR>14. <STRONG>GUNS N' ROSES</STRONG> - "Chinese Democracy"<BR>15. <STRONG>BRITNEY SPEARS</STRONG> - "Circus"<BR>16. <STRONG>JACK JOHNSON</STRONG> - "Sleep Through The Static"<BR>17. <STRONG>IL DIVO</STRONG> - "The Promise"<BR>18. <STRONG>TAYLOR SWIFT</STRONG> - "Fearless"<BR>19. <STRONG>JONAS BROTHERS</STRONG> - "A Little Bit Longer"<BR>20. Various Artists - "Camp Rock" </P>
+Автор: Vit Belov
+
+### 20.03.2009 news Официальное видео AC&#x2F;DC
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню "<STRONG>Anything Goes</STRONG>", которое <STRONG>AC/DC</STRONG> сняли в прошлом месяце в Париже, можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9sNL8ADTyTc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/9sNL8ADTyTc&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.02.2010 news JUDAS PRIEST и AC&#x2F;DC выиграли &quot;Грэмми&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>JUDAS PRIEST</STRONG> выиграли премию "Грэмми" в номинации "Best Metal Performance" за песню <STRONG>"Dissident Aggressor" </STRONG>с концертного альбома <STRONG>"A Touch of Evil: Live"</STRONG>. Ветераны обошли <STRONG>LAMB OF GOD, MEGADETH, MINISTRY </STRONG>и <STRONG>SLAYER</STRONG>, которые также номинировались. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В номинации "Best Hard Rock Performance" победу ождержали <STRONG>AC/DC</STRONG> за песню <STRONG>"War Machine" </STRONG>с последнего альбома "<STRONG>Black Ice</STRONG>". Ещё одни ветераны обошли <STRONG>ALICE IN CHAINS, LINKIN PARK, METALLICA</STRONG> и <STRONG>NICKELBACK</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 27.02.2010 news Billboard опубликовал рейтинг
+
+<P><STRONG>Billboard</STRONG> опубликовал свой ежегодный рейтинг "Самых прибыльных музыкантов".&nbsp;Первая десятка этого&nbsp;списка выглядит так:</P>
+<P>01. <B>U2</B> - $108,601,283<BR>02. <B>BRUCE SPRINGSTEEN</B> - $57,619,037<BR>03. <B>MADONNA</B> - $47,237,774<BR>04. <B>AC/DC</B> - $43,650,466<BR>05. <B>BRITNEY SPEARS</B> - $38,885,267<BR>06. <B>PINK</B> - $36,347,658<BR>07. <B>JONAS BROTHERS</B> - $33,596,576<BR>08. <B>COLDPLAY</B> - $27,326,562<BR>09. <B>KENNY CHESNEY</B> - $26,581,141<BR>10. <B>METALLICA</B> - $25,564,234</P>
+<P>В рейтинг, кроме <STRONG>METALLICA </STRONG>и <STRONG>AC/DC</STRONG>, попали также<STRONG> KISS</STRONG>&nbsp;на 34-ом месте с 11,833,930 долларов.&nbsp;Журналисты подготовили комментарий к каждому из участников листа. </P>
+<P><STRONG>AC/DC</STRONG>: "<EM>Большинство прибылей группы пришло от концертных выступлений. AC/DC заработали 41.4 миллиона долларов на своих живых шоу. Кроме этого, австралийцы получили неплохие деньги от продаж своего последнего альбома "Black Ice" и переизданного бэк-каталога. Новинка была продана тиражом 227000 экземпляров, из классики ближе всего оказался "Back In Black" с 215000 копий. Всего было продано 1.1 миллиона альбомов</EM>".</P>
+<P><STRONG>METALLICA</STRONG>: "<EM>У METALLICA было два повода для празднования в 2009 году. Принятие коллектива в Зал Славы Рок'н'Ролла и выход игры "Guitar Hero: Metallica". 22.8 миллиона долларов было заработано на концертах, также было продано 694000 альбомов. 297000 из них - последняя пластинка "Death Magnetic". Также хорошие деньги принесла продажа он-лайн, так знаменитый хит "Enter Sandman" скачали 450000 раз</EM>".</P>
+<P><STRONG>KISS</STRONG>: "<EM>KISS провели год в туре в поддержку последнего альбома "Sonic Boom", который был продан тиражом 238000 копий. Группа заработала 10.6 миллиона в туре и 879 тысяч&nbsp;от продаж альбомов</EM>".</P>
+Автор: Vit Belov
+
+### 20.04.2010 news AC&#x2F;DC и Железный Человек
+
+<P><STRONG>AC/DC</STRONG> выпустили специальный альбом <STRONG>"AC/DC: Iron Man 2". </STRONG>Эта пластинка содержит хиты группы и является плодом сотрудничества создателей блокбастера "<STRONG>Железный Человек 2</STRONG>" и знаменитой группы из Австралии. Сам фильм выйдет у нас в прокат только 29 апреля, но видео с кадрами из картины под музыку <STRONG>AC/DC</STRONG> можно посмотреть ниже. Трэк-лист альбома:</P>
+<P>01. <B>Shoot to Thrill</B><BR>02. <B>Rock ‘N' Roll Damnation</B><BR>03. <B>Guns for Hire</B><BR>04. <B>Cold Hearted Man</B><BR>05. <B>Back in Black</B><BR>06. <B>Thunderstruck</B><BR>07. <B>If You Want Blood (You've Got It)</B><BR>08. <B>Evil Walks</B><BR>09. <B>T.N.T.</B><BR>10. <B>Hell Ain't a Bad Place to Be</B><BR>11. <B>Have a Drink on Me</B><BR>12. <B>The Razor's Edge</B><BR>13. <B>Let There Be Rock</B><BR>14. <B>War Machine</B><BR>15. <B>Highway to Hell</B></P>
+<P>
+<CENTER>
+<OBJECT width=640 height=385><PARAM NAME="movie" VALUE="http://www.youtube.com/v/5q2G6W_2nd0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/5q2G6W_2nd0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.04.2010 news AC&#x2F;DC бомбят чарты
+
+<P>Даже сборники<STRONG> AC/DC</STRONG> мгновенно попадают в чарты. Саундтрэк к фильму "<STRONG>Железный Человек 2</STRONG>" занял четвёртое место в чартах <STRONG>Billboard 200</STRONG> в США. Продано 76000 копий в первую неделю. Места в чартах в других странах:</P>
+<P>New Zealand: #1 <BR>UK: #1 <BR>Ireland: #1 <BR>Canada: #2<BR>Norway: #4 <BR>France: #5 <BR>Netherlands: #5 <BR>Finland: #14 <BR>Belgium: #22 <BR>Poland: #34</P>
+Автор: Vit Belov
+
+### 01.12.2010 news Барабанщик AC&#x2F;DC осуждён
+
+<P><IMG height=241 alt="" hspace=0 src="/images/news_rus/2010.12/17710.jpg" width=200 align=right border=1>Суд города Тауранага в Новой Зеландии признал виновным барабанщика <STRONG>AC/DC</STRONG> <STRONG>Phil Rudd </STRONG>в хранении марихуаны. 25 грамм наркотического вещества были обнаружены 7 октября на лодке господина<STRONG> Rudd</STRONG> в порту Тауранаги, где музыкант проживает уже много лет. </P>
+<P>Адвокат барабанщика пытался отговорить суд от такого решения, напирая на то, что приговор даже за столь мелкое правонарушение может помешать <STRONG>Phil Rudd</STRONG> передвигаться по миру в турах <STRONG>AC/DC</STRONG>. Музыкант является уважаемым жителем приморского городка, но это не остановило судью, который приговорил его к штрафу в 250 долларов.</P>
+Автор: Vit Belov
+
+### 12.12.2010 news Billboard посчитали 2010 год
+
+<P>Журнал<STRONG> Billboard</STRONG> опубликовал список самых продаваемых в 2010 году hard-rock/heavy-metal альбомов в США. Отмечу, что не все из этих альбомов вышли в 2010 году, просто подсчитывались продажи за этот год. Лидером списка стали <STRONG>NICKELBACK</STRONG>, второе место заняли<STRONG> LINKIN' PARK</STRONG> и замкнули призовую тройку<STRONG> AC/DC</STRONG> со своим очередным сборником. </P>
+<P><IMG height=90 alt="" hspace=0 src="/images/news_rus/2010.12/17802.jpg" width=400 align=right border=0>TOP 50:</P>
+<P>01. <B>Dark Horse</B> - NICKELBACK<BR>02. <B>A Thousand Suns</B> - LINKIN PARK<BR>03. <B>Iron Man 2 (Soundtrack)</B> - AC/DC<BR>04. <B>The Oracle</B> - GODSMACK<BR>05. <B>Nightmare</B> - AVENGED SEVENFOLD<BR>06. <B>Asylum</B> - DISTURBED<BR>07. <B>Dear Agony</B> - BREAKING BENJAMIN<BR>08. <B>The Sound Of Madness</B> - SHINEDOWN<BR>09. <B>Them Crooked Vultures</B> - THEM CROOKED VULTURES<BR>10. <B>Valleys Of Neptune</B> - JIMI HENDRIX<BR>11. <B>Night Castle</B> - TRANS-SIBERIAN ORCHESTRA<BR>12. <B>War Is The Answer</B> - FIVE FINGER DEATH PUNCH<BR>13. <B>Life Starts Now</B> - THREE DAYS GRACE<BR>14. <B>Greatest Hits</B> - FOO FIGHTERS<BR>15. <B>Scream</B> - OZZY OSBOURNE<BR>16. <B>Memento Mori</B> - FLYLEAF<BR>17. <B>Fever</B> - BULLET FOR MY VALENTINE<BR>18. <B>Black Gives Way To Blue</B> - ALICE IN CHAINS<BR>19. <B>Backspacer</B> - PEARL JAM<BR>20. <B>Cage The Elephant</B> - CAGE THE ELEPHANT<BR>21. <B>Full Circle</B> - CREED<BR>22. <B>Greatest Hits</B> - M&#214;TLEY CR&#220;E<BR>23. <B>Slash</B> - SLASH<BR>24. <B>Diamond Eyes</B> - DEFTONES <BR>25. <B>Hellbilly Deluxe 2</B> - ROB ZOMBIE<BR>26. <B>Korn III: Remember Who You Are</B> - KORN<BR>27. <B>Scars & Souvenirs</B> - THEORY OF A DEADMAN<BR>28. <B>The Final Frontier</B> - IRON MAIDEN<BR>29. <B>Stone Temple Pilots</B> - STONE TEMPLE PILOTS<BR>30. <B>Mudvayne</B> - MUDVAYNE<BR>31. <B>Tri-Polar</B> - SICK PUPPIES<BR>32. <B>Audio Secrecy</B> - STONE SOUR<BR>33. <B>Greatest Hits</B> - THE WHO<BR>34. <B>Greatest Hits</B> - BON JOVI<BR>35. <B>Powerless Rise</B> - AS I LAY DYING<BR>36. <B>All Hope Is Gone</B> - SLIPKNOT<BR>37. <B>Year Of The Black Rainbow</B> - COHEED AND CAMBRIA<BR>38. <B>Stampede</B> - HELLYEAH<BR>39. <B>Chickenfoot</B> - CHICKENFOOT<BR>40. <B>Swan Songs</B> - HOLLYWOOD UNDEAD<BR>41. <B>Order Of The Black</B> - BLACK LABEL SOCIETY<BR>42. <B>Volume 4: Songs In The Key Of Love And Hate</B> - PUDDLE OF MUDD<BR>43. <B>All Night Long</B> - BUCKCHERRY<BR>44. <B>For We Are Many</B> - ALL THAT REMAINS<BR>45. <B>Desperate Measures</B> - HOLLYWOOD UNDEAD<BR>46. <B>Miss America</B> - SAVING ABEL<BR>47. <B>Custom Built</B> - BRET MICHAELS<BR>48. <B>Cold Day Memory</B> - SEVENDUST<BR>49. <B>World Painted Blood</B> - SLAYER<BR>50. <B>Sonic Boom</B> - KISS</P>
+Автор: Vit Belov
+
+### 07.03.2011 news AC&#x2F;DC выпустят очередное DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=297 alt="" hspace=0 src="/images/news_rus/2011.03/18832.jpg" width=486 align=right border=0>AC/DC</STRONG> приготовили очередной концертный DVD, который получил название <STRONG>"Live At River Plate". </STRONG>Группа задокументировала на нём свой успешный мировой тур, посвящённый последнему альбому "<STRONG>Black Ice</STRONG>". Основным блюдом релиза станет шоу в Аргентине, куда группа вернулась после 13 лет отсутствия. Трек-лист:</FONT></P>
+<P>01. <B>Rock N Roll Train</B><BR>02. <B>Hell Ain't A Bad Place To Be</B><BR>03. <B>Back In Black</B><BR>04. <B>Big Jack</B><BR>05. <B>Dirty Deeds Done Dirt Cheap</B><BR>06. <B>Shot Down In Flames</B><BR>07. <B>Thunderstruck</B><BR>08. <B>Black Ice</B><BR>09. <B>The Jack</B><BR>10. <B>Hells Bells</B><BR>11. <B>Shoot To Thrill</B><BR>12. <B>War Machine</B><BR>13. <B>Dog Eat Dog</B><BR>14. <B>You Shook Me All Night Long</B><BR>15. <B>T.N.T.</B><BR>16. <B>Whole Lotta Rosie</B><BR>17. <B>Let There Be Rock</B><BR>18. <B>Highway To Hell</B><BR>19. <B>For Those About To Rock (We Salute You)</B><BR>Bonus features:<BR>* <B>The Fan, The Roadie, The Guitar Tech & The Meat</B><BR>* <B>AC/DC Tour Animation</B></P>
+Автор: Vit Belov
+
+### 26.03.2011 news AC&#x2F;DC: Новое концертное видео &quot;Live At River Plate&quot;
+
+<P>Новое концертное видео <STRONG>AC/DC</STRONG>, получившее название<STRONG>&nbsp;"Live At River Plate"</STRONG>, будет доступно для заказов начиная с 10 мая. Снятое в декабре 2009 года, <STRONG>"Live At River Plate"</STRONG> показывает триумфальное возвращение группы в Буэнос Айрос (Аргентина),&nbsp;на котором&nbsp;присутствовало около 200.000 фэнов. Более 3-х полностью распроданных выступлений, после тринадцатилетнего отсутствия группы в Аргентине. Видео было снято на 32 камеры. В роли режиссёра выступил <STRONG>David Mallet</STRONG>, продюсером фильма стал <STRONG>Rocky Oldham</STRONG>. Диск включает в себя 19 песен (110 мин.), а так же, закулисные съёмки.</P>
+<P><STRONG>AC/DC "Live At River Plate"</STRONG> будет доступно&nbsp;в форматах&nbsp;DVD, Blu-ray и на выпущенном ограниченным тиражом, коллекционном издании с эксклюзивной футболкой. Ко всему прочему, в DVD войдёт дополнительный фильм&nbsp;<STRONG>"The Fan, The Roadie, The Guitar Tech & The Meat"</STRONG>, содержащий интервью с <STRONG>AC/DC</STRONG>, их тех-персоналом и поклонниками во время шоу в&nbsp;&nbsp;Буенос Айресе. </P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18967.jpg" width=300 height=417><U>Трек-лист</U>: </P>
+<P>01.<STRONG> Rock'n' Roll Train<BR itxtNodeId="437"></STRONG>02. <B itxtNodeId="436" itxtHarvested="1">Hell Ain't A Bad Place To Be</B><BR itxtNodeId="435">03. <B itxtNodeId="434" itxtHarvested="1">Back In Black</B><BR itxtNodeId="433">04. <B itxtNodeId="432" itxtHarvested="1">Big Jack</B><BR itxtNodeId="431">05. <B itxtNodeId="430" itxtHarvested="1">Dirty Deeds Done Dirt Cheap</B><BR itxtNodeId="429">06. <B itxtNodeId="428" itxtHarvested="1">Shot Down In Flames</B><BR itxtNodeId="427">07. <B itxtNodeId="426" itxtHarvested="1">Thunderstruck</B><BR itxtNodeId="425">08. <B itxtNodeId="424" itxtHarvested="1">Black Ice</B><BR itxtNodeId="423">09. <B itxtNodeId="422" itxtHarvested="1">The Jack</B><BR itxtNodeId="421">10. <B itxtNodeId="420" itxtHarvested="1">Hells Bells</B><BR itxtNodeId="419">11. <B itxtNodeId="418" itxtHarvested="1">Shoot To Thrill</B><BR itxtNodeId="417">12. <B itxtNodeId="416" itxtHarvested="1">War Machine</B><BR itxtNodeId="415">13. <B itxtNodeId="414" itxtHarvested="1">Dog Eat Dog</B><BR itxtNodeId="413">14. <B itxtNodeId="412" itxtHarvested="1">You Shook Me All Night Long</B><BR itxtNodeId="411">15. <B itxtNodeId="410" itxtHarvested="1">T.N.T.</B><BR itxtNodeId="409">16. <B itxtNodeId="408" itxtHarvested="1">Whole Lotta Rosie</B><BR itxtNodeId="407">17. <B itxtNodeId="406" itxtHarvested="1">Let There Be Rock</B><BR itxtNodeId="405">18. <B itxtNodeId="404" itxtHarvested="1">Highway To Hell</B><BR itxtNodeId="403">19. <B itxtNodeId="402" itxtHarvested="1">For Those About To Rock (We Salute You)</B></P>
+<P><U>Бонуса</U>:</P>
+<P>* <B itxtNodeId="397" itxtHarvested="1">The Fan, The Roadie, The Guitar Tech & The Meat</B><BR itxtNodeId="396">* <B itxtNodeId="395" itxtHarvested="1">AC/DC Tour Animation</B></P>
+Автор: Headcrusher
+
+### 14.08.2011 news Коллекция вин от AC&#x2F;DC
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20573.jpg" width=400 height=439>Warburn Estate</STRONG>, одна из ведущих винодельческих компаний Австралии, сообщила о выпуске коллекции вин под брэндом <B>AC/DC</B>, которая будет доступна через магазины <B>Woolworth's</B>, <B>Dan Murphy</B> и <B>BWS</B>.</P>
+<P>В коллекции будут представлены<STRONG> </STRONG>следующие сорта вин:<STRONG> </STRONG></P>
+<P>* <B>"AC/DC Back In Black Shiraz"</B> (2010 750mL Dry Red)<BR>* <B>"AC/DC You Shook Me All Night Long Moscato"</B> (2011 750mL Sweet White)<BR>* <B>"AC/DC Highway To Hell Cabernet Sauvignon"</B> (2008 750mML Dry Red)<BR>* <B>"AC/DC Hells Bells Sauvignon Blanc"</B> (2010 750mL Dry White)<BR><BR>На сегоднящний день вирус виноделия уже поразил такие группы, как&nbsp;<B>KISS</B>, <B>MOT&#214;RHEAD</B>, <B>WHITESNAKE</B>, <B>QUEENSR&#376;CHE</B>, <B>WARRANT</B> и <B>SATYRICON</B>.</P>
+Автор: Headcrusher
+
+### 13.12.2013 news Компания Stern Pinball выпустила пинбол AC&#x2F;DC 
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.12/26422.jpg" width=400 height=514>Компания <STRONG>Stern Pinball</STRONG> выпустила пинбол <STRONG>AC/DC</STRONG>&nbsp;подназванием&nbsp;<STRONG>"Luci" (Premium model)</STRONG>.</P>
+<P>Во время игры можно услышать мелодии 12 хитов <STRONG>AC/DC</STRONG>, включая такие нетленки, как <STRONG>"Back In Black"</STRONG>, <STRONG>"Highway To Hell"</STRONG>&nbsp;и <STRONG>"You Shook Me All Night Long"</STRONG>. </P>
+<P>Группа <STRONG>AC/DC</STRONG>&nbsp;является лидером продаж концерна&nbsp;<STRONG>Sony BMG Music Entertainment</STRONG> и реализовала уже около 71 миллиона своих альбомов&nbsp;на территории&nbsp;Соединённых Штатов. А их альбом&nbsp;<STRONG>"Back In Black"</STRONG> занимает пятую строчку в хит-параде самых продоваемых пластинок С.Ш.А.&nbsp;</P>
+<P>Стоимость, размеры&nbsp;и другие подробности о машине,&nbsp;можно узнать на сайте компании по ссылке: <A href="http://www.sternpinball.com/Games/acdc-luci.aspx">www.sternpinball.com/Games/acdc-luci.aspx</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### AC/DC - живее всех живых

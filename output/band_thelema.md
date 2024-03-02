@@ -8,6 +8,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.03.2008 news Новости от THELEMA
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2008.03/12343.jpg" width=300 align=right border=5>В начале марта Progressive death metal команда<STRONG> THELEMA</STRONG> (Гомель, Беларусь) начинает запись первого полноценного полноформатного альбома. Для этого ответственного шага была выбрана известная польская <STRONG>Studio-</STRONG>X (<STRONG>SCEPTIC, DIES IRAE, YATTERING, DEATHBRINGER</STRONG>). В работе над альбомом примет участие небезизвестный саунд-продюссер <STRONG>Marcin Kielbaszewski</STRONG>. Альбом обещает быть свежим, интересным и ..немного экспериментальным. Впереди работа над артворком, оформлением будет заниматься <STRONG>Set</STRONG> (<STRONG>SCRAMBLED DEFUNCTS, THERM.EYE.FLAME, MORTIFER, MANIC DEPRESSION</STRONG>). Официальный выход нового релиза для стран СНГ планируется в начале осени. 30 марта, по возвращении из студии, <STRONG>THELEMA</STRONG> cразу же отыграет новую программу в Минске на "<STRONG>MassaBrutto-Fest'9</STRONG>". Также планируется ряд концертов по Беларуси и Украине.</P>
+<P>Ссылка: <A href="http://www.thelema-band.org/">http://www.thelema-band.org</A></P>
+Автор: Vit Belov
+
+### 13.10.2008 news Новый альбом THELEMA
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2008.10/12940.jpg" width=250 align=right border=5>В начеле октября вышел долгожданный дебютный альбом беларусов<STRONG> THELEMA - “Fearful Symmetry”</STRONG> как совместный релиз сразу на трех российских лэйблах:<STRONG> SOULFLESH COLLECTOR REC., BACKFIRE PROD., FANTAZONE SOUND INC.</STRONG> Для территории Беларуси альбом увидит свет усилиями <STRONG>GO-RECORDS</STRONG>. Материал записан и сведен в польской “<STRONG>Studio X</STRONG>” под руководством известного саунд-продюссера <STRONG>Szymon’a Czech’a</STRONG>, работавшего с такими грандами как <STRONG>SCEPTIC, LUX OCCULTA, YATTERING, VESANIA, DEVILISH IMPRESSIONS</STRONG>. Стилистически новый материал представляет собой агрессивный и весьма оригинальный Groovy Technical Death Metal, без явного влияния каких либо традиционных «школ» или артистов этого направления, со сложной структурой композиций, свежими идеями и фрагментами в стиле jazz и funk. Лирика альбома представлена положенными на музыку сюрреалистическими произведениями английского поэта Уильяма Блэйка. Разработал дизайн и виртуозно оформил альбом небезызвестный художник-дизайнер <STRONG>Set</STRONG>, ранее известный по работе со <STRONG>SCRAMBLED DEFUNCTS, THERM. EYE. FLAME, MANIC DEPRESSION, MORTIFER</STRONG> и др. <BR>На странице<STRONG> THELEMA</STRONG> myspace доступны для ознакомления трэки с грядущего альбома - "<STRONG>Madness Inspired</STRONG>" и "<STRONG>In A Mirtle Shade</STRONG>" <BR><A href="http://www.myspace.com/telemaband">http://www.myspace.com/telemaband</A> </P>
+<P><STRONG>THELEMA – “Fearful Symmetry”</STRONG> 2008 <BR>Total time альбома: 40-00min. <BR>Tрек-лист: <BR>1. <STRONG>Madness Inspired <BR></STRONG>2.<STRONG> In A Mirtle Shade <BR></STRONG>3. <STRONG>The Tyger <BR></STRONG>4. <STRONG>The Human Abstract</STRONG> <BR>5. <STRONG>Divine Image <BR></STRONG>6. <STRONG>Crystal Cabinet <BR></STRONG>7. <STRONG>The Fly</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

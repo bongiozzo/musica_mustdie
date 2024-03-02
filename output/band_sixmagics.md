@@ -37,6 +37,30 @@ Backline by jaime marchan
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.12.2002 reviews И справедливость восторжествует...
+
+<p>Дебютной альбом молодой чилийской команды SIX MAGICS. У себя на родине группа уже заслужила культовый статус, она постоянно выступает на разогреве заезжих звезд (RHAPSODY, BLIND GUARDIAN, NIGHTWISH и др.). А играет она традиционный европейский epic melodic power metal с морем клавишных и гитарных соло. Музыка группы стилистически лежит между итальянским и немецким power metal. Если проводить сравнения, то музыка на альбоме мне показалась смесью SKYLARK и NIGHTWISH. При этом здесь часто используются классические инструменты. Впечатляет разнообразие вокалов. Наряду с основным чистым, здесь можно услышать женский вокал, много хоров, а в одной вещи можно услышать даже скриминг. Качество записи не впечатляет, также здесь мне не понравился звук клавиш. Альбом рассказывает историю молодого и благородного рыцаря Ильгарда борющегося со злом и восстанавливающего справедливость. Неплохой альбом, особенно хороша заключительная двенадцатиминутная героическая композиция полная разнообразных мелодических решений и поворотов, хоровых песнопений и сделанная явно под влиянием RHAPSODY. Рекомендую этот альбом только упертым любителям power metal, хотя и другим будет небезынтересно хоть разок послушать эту работу.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 06.02.2004 reviews Чилийская Rhapsody
+
+<P>Молодая power-metal группа из Чили со своим вторым альбомом. Нет слов. Очень качественный, очень мелодичный, очень эпичный, очень... очень... очень... Одна из групп, которой удалось вплотную приблизиться по качеству материала к <B>RHAPSODY</B>, а где-то даже переплюнуть их. </P>
+<P>Уже второй концептуальный альбом группы. На этот раз нам рассказывается история из Чилийской мифологии об острове Chiloe. Толстенный буклет с иллюстрациями в духе компьютерных игр, и вдобавок книжка с историей коллектива и дополнительными подробностями. Музыка ни в чём не уступает оформлению. Помпезные и навороченные мелодии, в исполнении которых участвуют, кроме группы, хор и небольшой симфонический оркестр. Многообразие вокалов, постоянные соло, а также небольшая примесь progressive в песенных структурах. </P>
+<P>Эта пластинка просто необходима к приобретению всеми любителями sympho-power-metal в духе <B>RHAPSODY</B>. Металл-сцена в Чили теперь будет ассоциироваться у меня с <B>SIX MAGICS</B>. </P>
+Автор: Vit Belov
+
+### 03.03.2004 reviews Chilean RHAPSODY
+
+<DIV>Young power-metal band from Chile with their second album. I have not any words. Very qualitive, very melodious, very epic, very... very... very... One of the bands, approaching to <B>RHAPSODY</B> in their music. They even outstrip <B>RHAPSODY</B> somewhere. It is already second conceptual album of the band. In this time the band tells the story from Chilean mythology. This story is about Chiloe island. Thickest booklet with illustrations in the vein of computer games and in addition book with history of the band and additional details. Music doesn't loss to design. Pompous and difficult melodies are played by chorus and small symphonic orchestra, besides tha band. Varied vocals, constant solo, and small addition&nbsp;of progressive in song structures.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>This CD is just nessecary to buy&nbsp;by all fans of sympho-power-metal in a vein of <B>RHAPSODY</B>.&nbsp;I will associate metal-scene in Chile with <B>SIX MAGICS</B> since this moment.</DIV>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

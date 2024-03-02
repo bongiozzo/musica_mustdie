@@ -92,6 +92,15 @@ Jimmy Chamberlin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.02.1999 news 
+
+<p>Toni Iommi - гитарист из Black Sabbath, пригласил на запись своего сольного альбома, который по его словам должен выйти в Августе/Сентябре, Skin(Skunk Anansie), Billy Corgan (Smashing Pumpkins), Phil Anlsemo (Pantera), Chino Moreno (Deftones) and Fred Durst (Limp Bizkit).</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

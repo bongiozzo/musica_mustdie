@@ -16,6 +16,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.10.2015 news Thrash-metal из Австралии
+
+<P>Второй альбом австралийской команды<STRONG> HARLOTT</STRONG> был переиздан на<STRONG> Metal Blade</STRONG> 18 сентября. В России CD вышел на<STRONG> Фоно</STRONG> на прошлой неделе. Трек-лист:</P>
+<P><STRONG>1. Proliferation&nbsp; 05:00&nbsp;&nbsp;&nbsp; <BR>2. Denature&nbsp; 03:58&nbsp;&nbsp;&nbsp; <BR>3. Systematic Reduction&nbsp; 01:35&nbsp;&nbsp;&nbsp; <BR>4. Restless&nbsp; 02:22&nbsp;&nbsp;&nbsp; <BR>5. The Fading Light&nbsp; 04:31&nbsp;&nbsp;&nbsp; <BR>6. Lord of War&nbsp; 04:06&nbsp;&nbsp;&nbsp; <BR>7. Civil Unrest&nbsp; 04:45&nbsp;&nbsp;&nbsp; <BR>8. Hellbent&nbsp; 04:40&nbsp;&nbsp;&nbsp; <BR>9. Bloodlust&nbsp; 02:01&nbsp;&nbsp;&nbsp; <BR>10. Cross Contamination&nbsp; 03:07&nbsp;&nbsp;&nbsp; <BR>11. Legion&nbsp; 03:39&nbsp;&nbsp;&nbsp; <BR>12. Means to an End&nbsp; 04:52</STRONG> </P>
+<P>Диск обязательно понравится любителям <STRONG>EXODUS</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="https://www.youtube.com/embed/db47yvnvJwc" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

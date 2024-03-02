@@ -38,6 +38,16 @@ Japanese thrash-metal maniacs
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.03.2008 news Новый альбом FASTKILL
+
+<P><IMG height=394 alt="" hspace=0 src="/images/news_rus/2008.03/12367.jpg" width=400 align=right border=5>Популярный японский лэйбл<STRONG> World Chaos Production</STRONG> (<STRONG>ILLNATH, TVANGESTE, TYRANT</STRONG>) выпустил свой 24-ый релиз. Им стал второй альбом японских thrash-metal'истов<STRONG> FASTKILL "Nuclear Thrashing Attack"</STRONG>. 30 минут тотального "трэшевого" безумия в духе первых альбомов<STRONG> KREATOR</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Nuclear Devastation</STRONG> <BR>2. <STRONG>Bloodbath <BR></STRONG>3. <STRONG>Die In Pain <BR></STRONG>4. <STRONG>Kill And Possess <BR></STRONG>5. <STRONG>Annihilation Betrayer <BR></STRONG>6. <STRONG>Hate, Destruction, Kill</STRONG> <BR>7.<STRONG> Human Flesh <BR></STRONG>8. <STRONG>Sickness <BR></STRONG>9. <STRONG>Hunted Victim <BR></STRONG>10. <STRONG>S.D.T.D.</STRONG></P>
+<P>Вы можете приобрести оригинальное японское издание этого альбома в нашем интернет-магазине по специальной цене: <A href="/ru/shop/">http://musica.mustdie.ru/ru/shop/</A>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

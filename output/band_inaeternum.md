@@ -19,6 +19,52 @@ When the vultures left   5.42
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.04.1999 reviews 
+
+<p>И снова шведский death-metal. Это уже второй альбом этих металлеров. Надо признать, что первый альбом произвёл на меня более радостное впечатление. Был более свеж для того времени. Это была быстрая зубодробительная музыка с изобилием меланхоличных почти doom'овых вставок, которые, к сожалению, пропали начисто нна этом альбоме. В итоге исчезла одна из их изюминок. И теперь их музыка больше напоминает DARK TRANQUILLITY. Здоорово, наверное, слушать этот альбом на какой-нибудь лесозаготовке. Хотя вряд ли. Всё время будешь не понимать, то ли это музыка звучит, то ли бензопила работает. Уж очень жужжащий звук на альбоме. Всему виной слегка ненастроенные гитары. Не буду повторяться, что всё сделано оа высоком профессиональном уровне, на другом в Швеции уже ничего не выпускают. Альбом для тех, кто ещё не устал от подобной музыки.</p>
+
+Автор: Dimas
+
+### 16.11.1999 news 
+
+<p>In Aeternum запишут новый альбом "Pestilent Plague" ещё до конца года.</p>
+
+Автор: Vit Belov
+
+### 30.06.2000 news Новый трибьют King Diamond
+
+<p>Necropolis Records планирует к выпуску трибьют King Diamond. Вот некоторые песни и исполнители: DARK FUNERAL - 'The Trial', DAMNATION - 'Mansion In Darkness', IN AETERNUM - 'Abigail', USURPER - 'Charon', EXHUMED - 'No Presents For Christmas', AURORA - 'Eastman's Cure', DESTINY'S END - 'Dressed In White', ANCIENT - 'Halloween', FALLEN EMPIRE - 'The Exorcist', ENTHRAL - 'The Portrait' and AGGRESSOR - 'Welcome Home'.</p>
+
+Автор: Vit Belov
+
+### 07.05.2001 news Настоящие и прошедшие грехи IN AETERNUM .....
+
+<p>IN AETERNUM в июне выпускают СД "Past And Present Sins" через Necropolis Records и Metal Supremacy Records. Диск будет содержать ранее нереализованный материал с дебютника и так и не вышедшего МСД "And darkness came...", а также каверы KING DIAMOND, VENOM и живые песни. Гостевым вокалистом на треке "Cursed Legions" отметился Schmier из "DESTRUCTION". Кроме того, сейчас команда работает над очередным студийным альбомом в Abyss Studios с продюссером Tommy T&auml;gtgren (Брат что ли?). На пока еще не названный диск войдут "Beast Of The Pentagram" и "Nuclear Armageddon".</p>
+
+Автор: Yermola
+
+### 07.05.2001 news Past And Present Sins of IN AETERNUM ....
+
+<p>Swedish thrashers IN AETERNUM will be releasing a compilation CD entitled Past And Present Sins through Necropolis Records and Metal Supremacy Records on June 18th. Containing unreleased material that dates back to the early days of the band, the CD will include material culled from IN AETURNUM's debut studio recordings and the out-of -print MCD And darkness came..., plus two cover songs by KING DIAMOND and VENOM, as well as four live songs recorded in Essen, Germany on the band's last European tour. Also included is a guest appearance by DESTRUCTION's Schmier on backing vocals on the track "Cursed Legions". IN AETURNUM are currently composing material for their next studio album, which will be recorded during September at Abyss Studios with producer Tommy Tдgtgren. The as-yet-untitled effort will include the following tracks, among others: "Beast Of The Pentagram" and "Nuclear Armageddon". Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+### 08.05.2003 news Новый альбом IN AETERNUM
+
+<p>Спустя три года безмолвия, группа IN AETERNUM возвращается на сцену со своим новым альбомом "The Pestilent Plague". Альбом был записан в Abyss Studio с Tommy Tagtgren'ом за пультом.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

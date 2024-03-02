@@ -26,6 +26,26 @@ Nico - bass and songs
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.02.2003 news Carnal Lust first album...
+
+<p><IMG SRC="/images/news/2003.02/3761.jpg" ALT="pho" width=150 height=150 hspace="15" vspace="5" border="1" align="left">Carnal Lust's first album "Whore Of Violence" will be available for the 1st of March. Included ten tracks of pure brutal death metal. Band will be in concert the 19/02/2003 in GRENOBLE with VADER, RECEUIL MORBID and THAT OLD BLACK MAGIC and the 20/02/2003 in AVIGNON with VADER, LOATHING and RECEUIL MORBID .</p>
+
+Автор: Vit Belov
+
+### 04.02.2004 news Carnal Lust has found new singer
+
+French death-metal band <B>CARNAL LUST</B> has found new singer. <B>L.Chuck D</B> is a new part of the band. Also group want to find new bass-player, write to them.
+Автор: Vit Belov
+
+### 22.05.2006 reviews Абсолютная посредственность
+
+<P>Да, именно так и не иначе. То, что там представляют три французских музыканта из прежде мне неизвестной группы Carnal Lust на своем дебютном альбоме "Whore Of Violence", является скучным дэт-металом среднего пошиба. Здесь все "симптомы" такого продукта: неплохой, но совершенно невыразительный вокал (точнее, два, но это дело не спасает), однообразная долбежка на протяжении всего альбома (притом лидирующей гитары практически нет), плоховато записанный бас (который то появляется, то опять исчезает), наличие отсутствия собственных идей, все песни похожи одна на другую. Тяготеют эти французские ребятки скорее к шведской школе дэта. Буклет тоже невыразителен, а из-за нелучшего его дизайна часть текстов прочитать практически невозможно (если это вообще кому-нибудь нужно). Запись и продюсирование тоже так себе. А большего про данный релиз и не скажешь. Я даже удивлен, зачем СД-Максимум решили выпускать эту абсолютно посредственную&nbsp;пластинку по лицензии.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

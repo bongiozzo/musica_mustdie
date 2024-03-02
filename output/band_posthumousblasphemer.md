@@ -12,6 +12,41 @@ techno brutal death from Minsk
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.09.2004 reviews Минские посмертные богохульники выходят на большую дорогу
+
+<P>После исследования буклета данного альбома я, честно сказать, скептически усмехнулся. Трио из Минска, запись там же, по рекламе - брутал-дэт. Наверняка нчиего интересного. И вот тут я сильно ошибся. Ибо ребята из PB нарезают действительно брутал-дэт, но какой! Отточенная техника (на коцертах играют без живого ударника, судя по клипу, ибо гитарист и барабанщик одно и то же лицо), зверский рык вокалиста, тяжеленные риффы и очень приличная запись, гитарные проходы порой воскрешают в памяти великого Чака (R.I.P.) и местами напоминают некоторые идеи Dying Fetus, и хотя - естественно - эти минчане ничего нового в жанре не изобрели, их отличная техно-брутал-дэт пластинка явно станет одним из сильнейших релизов этого года на постсоветском пространстве, легко "убирая" релизы их многих западных коллег. Для оформления альбома ребята взяли кое-что из творчества Иеронима Босха.</P>
+<P>Альбом предоставлен Starless Records</P>
+Автор: Ixtiandr
+
+### 04.10.2004 news Новостная лента от More Hate Productions
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новыи релизами волгоградской <STRONG>More Hate Production</STRONG> стали:</FONT></P>
+<P>CD <STRONG>DIVINA ENEMA "To Wight Shalt Never Shine"</STRONG> - переиздание дебютного демо-альбома самого яркого и неординарного явления в Беларуском metal андеграунде<BR>CD <STRONG>RIGORISM "Human Fear"</STRONG> - дебютный пласт симфоничного и монументального death metal из Костромы</P>
+<P>В начале октября на <STRONG>More Hate Productions</STRONG> выходит CD группы <STRONG>ВРАТА ТЬМЫ "Войны Северных Земель",</STRONG> исполняющей атмосферный языческий dark black metal.</P>
+<P>Произошли изменения в составе Московской группы <STRONG>ASHEN LIGHT</STRONG>. Смена коснулась вокалиста, который покинул команду в связи с невозможностью дальнейшего его участия в деятельности коллектива. Тем не менее, почти закончена запись и сведение нового альбома группы, который выйдет в конце года на<STRONG> MORE HATE</STRONG>. Имя нового участника группы будет объявлено в скором времени.</P>
+<P>Подписаны контракты со следующими группами - Краснодарским <STRONG>L.I.G.O.</STRONG> на выпуск альбома "<STRONG>No One Safe</STRONG>". Группа исполняет прогрессивный death metal. Альбом выходит в ноябре 2004 года. С Украинской группой <STRONG>CAPITOLIUM</STRONG> на выпуск второго альбома<BR>"<STRONG>Seraphim's Lair</STRONG>". Группа исполняет симфоничный клавишно-ориентированный black metal, и известна по дебютному альбому "<STRONG>Symphony of Possession</STRONG>", изданному на <STRONG>OUPIRIC Productions</STRONG>. Также в течение года на <STRONG>MORE HATE</STRONG> будет издан компакт диск Беларусской группы <STRONG>ASGUARD "Wicca</STRONG>", готовится к изданию сборник brutal death/ grind core групп в составе <STRONG>BARBARITY</STRONG> (Кострома), <STRONG>KATALEPSY</STRONG> (Москва), <STRONG>SMERSH</STRONG> (Волгоград), <STRONG>POSTHUMOUS BLASPHEMER</STRONG> (Беларусь).</P>
+Автор: Vit Belov
+
+### 20.01.2005 news POSTHUMOUS BLASPHEMER
+
+<P><IMG height=366 alt="" hspace=0 src="/images/news_rus/2005.01/7730.jpg" width=364 align=left border=5>Корпорация Монстров представляет альбом<BR>POSTHUMOUS BLASPHEMER<BR>«Putrespermfaction Versus Fertiholyzation»</P>
+<P>Минский коллектив, сформирован в 2001. Музыканты регулярно бомбят «мясные гиги» в Беларуси, летом 2004 выступили в Питере (PetroGrind Fest I) и вот теперь впервые в Москве (22 января клуб Релакс, <A href="http://www.monsters-corp.ru/2005.01.22.html">http://www.monsters-corp.ru/2005.01.22.html</A> ), презентуя свой второй лонгплей. Впрочем, продвинутые любители «мяса» и аудионекрофилы уже знакомы с творчеством группы по работе 2003 года «Avantground Undergrind» и свежему «Putrespermfaction Versus Fertiholyzation» (2004, Monsters Corp./Relics Records). Музыка и саунд на которой выдержаны в духе отцов техничного brutal death metal. Наверняка релиз будет интересен фэнам таких грандов как SUFFOCATION, DEATH, CANNIBAL CORPSE, MORBID ANGEL, NECROPHAGIST, SCRAMBLED DEFUNCTS. Спрашивайте CD в магазинах или заказывайте по почте.</P>
+<P>Доп. информация (mp3, свежие концертные фото): <A href="http://monsters-corp.ru/pb.htm">http://monsters-corp.ru/pb.htm</A></P>
+Автор: Vit Belov
+
+### 20.01.2005 news POSTHUMOUS BLASPHEMER
+
+<P><IMG height=366 alt="" hspace=0 src="/images/news/2005.01/7731.jpg" width=364 align=left border=5>MONSTERS CORP. presents<BR>POSTHUMOUS&nbsp; BLASPHEMER<BR>«Putrespermfaction vs. Fertiholyzation»<BR>(Monsters Corp./Relics Records)<BR>Music and sound are something of the sort of technical brutal death metal. Surely, the release will be interesting to fans of such grandees as SUFFOCATION, DEATH, CANNIBAL CORPSE, MORBID ANGEL, NECROPHAGIST, SCRAMBLED DEFUNCTS. 35 minutes of brutality & inhuman aggression, enforced violent deathly flow, it is typical brutal technical death metal.<BR>Booking management at Moscow: Monsters Corp. <A href="http://monsters-corp.ru/"><U><FONT color=#0000ff>http://monsters-corp.ru</FONT></U></A><BR>Additional Information (free mp3, band news, live shows, photo e.t.c.): <A href="http://monsters-corp.ru/pb.htm"><U><FONT color=#0000ff>http://monsters-corp.ru/pb.htm</FONT></U></A><BR>Distributed by Monsters Corp. & Discultured prods.: p/o box 36, Moscow, 117452, Russia. The full catalog can be sent free of charge by snail-mail, please insert an empty envelope, or by e-mail: <A href="mailto:discultured@apopheoz.ru"><U><FONT color=#0000ff>discultured@apopheoz.ru</FONT></U></A></P>
+Автор: Vit Belov
+
+### 30.05.2005 news POSTHUMOUS BLASPHEMER - новый альбом
+
+<P>Минчане<STRONG> POSTHUMOUS BLASPHEMER</STRONG> завершили работу над третьим полноформатником, который будет называться "<STRONG>Crucified Humiliation</STRONG>". Помимо материала собственного сочинения (8 треков), в альбом войдет кавер <STRONG>SUFFOCATION</STRONG> ("<STRONG>Catatonia</STRONG>"). Выпуск альбома намечен на середину лета 2005-го на московском лейбле <STRONG>Relics Records</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### 27 ноября 2004, субб, 17:00, КОРПОРАЦИЯ МОНСТРОВ -АРМАГЕДДЕЦ –death и black в одном флаконе. RELAX

@@ -305,6 +305,218 @@ Jorgen Sandstrom - Bass
 * C группой "Firespawn" Victor Brandt (guitar)
 * C группой "Aeon" Victor Brandt (guitar)
 
+## Публикации
+
+### 19.02.1999 news 
+
+<p>Новый альбом Skinlab "Disembody" выйдет 22 февраля. Группа отправилась в тур вместе с Entombed 12 февраля. Также Skinlab сняли клип на песню "Know Your Enemies".</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Новости о сайд-проектах участников Napalm Death. Шейн вместе с известными музыкантами Билли Гулдом и Дино Касаресом закончили новый альбом Brujeria, который выйдет позже в этом году. Митч закончил запись нового альбома Meathook Seed, который выйдет также в этом году. Также Джесси и Шейн объединились с Л.Г. Петровым (Entombed) и Николасом Бэйкером (ex-Cradle Of Filth), Dimmu Borgir) для запуска нового проекта Lock-On. Также в этом году Барни и Дэнни планируют записать новые песни для нового альбома Nothing But Contempt.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>По сообщению Earache Records новый релиз Entombed, содержащий переизданные и перезаписанные вещи выйдет 26 июля. Также на этой фирме выйдет новое видео Cathedral, в которое войдёт концерт в Японии и несколько клипов.</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>Entombed начали работу над своим шестым полнометражным альбомом. Альбом появится в начале 2000 года.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 reviews 
+
+<p>Как "все мы вышли из Гоголевской "Шинели", так и весь скандинавский death/black/brutal вышел из ENTOMBED. Скажите мне, что бы вы ответили человеку, который сказал вам, что на новом альбоме ENTOMBED будет изображена собака на фоне яркой желто-оранжевой палитры, а альбом их выйдет на Music For Nations ??? Правильно, я бы также ответил. После 4 лет молчания (со времен "Wolverine Blues") ENTOMBED выпустили супер альбом со смачным названием "To Ride? Shout Stright & Speak The Truth" и EP "Family Favourites". А теперь в 1999 группа представляет нам странные эксперименты в области...в странной области. L-G Petrov похоронил свой grunting vocals. Музыка похожа...э...нет вы уж слушайте сами. Странный альбом. Странный и по моему мнению очень поганый. 4 из 10.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Новый альбом Entombed "Uprising" выйдет в Марте.</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 reviews 
+
+<p>Классики дэт-металла, отошедшие от своего стиля. Такие экспиременты уже имели место в истории тяжёлой музыки. Всё течёт, всё изменяется... За примерами далеко ходить не надо. Carcass, Dismember (кстати, вернувшийся к корням), даже Death уже играют нечто другое, чем раньше. Старые герои уходят, появляются новые, и в этом не ничего страшного. Что же сейчас такое Entombed? Это объяснить довольно легко. Брутальный трэш-металл. Музыка напоминает Pantera, Dismember'95, Carcass'95, поздний Pro-Pain. Настроение депрессивно-агрессивное. Качество исполнения на очень высоком уровне, такая музыка обязательно понравится сторонникам мощных риффов, трэшового агрессивного вокала... Высококачественное творчество с одним но... Это не Entombed. Эту проблему я уже не раз затрагивал. 8,5 из 10.</p>
+
+Автор: Dimas
+
+### 22.02.2001 news ENTOMBED - планы на запись
+
+<p>ENTOMBED зарезервировали Стокгольмскую Polar Studios на начало Марта для записи следующего творения. Как и на предыдущем альбоме кнопочки будет нажимать Nico Elgstrand. Команда планирует записать 12 - 13 песен (названия треков пока неизвестны). Сессия продлится две недели.</p>
+
+Автор: Yermola
+
+### 22.02.2001 news ENTOMBED - Recording Plans
+
+<p>ENTOMBED have booked Polar Studios in Stockholm to record their next album in early March. Once again, Nico Elgstrand will do the recording. The band will record 12 or 13 songs, but there are no song titles yet. Recording will take one to two weeks.</p>
+
+Автор: Yermola
+
+### 21.03.2001 news Нереальный балет ENTOMBED...
+
+<p>Что может быть общего между балетом, детьми и Death Metal!?!? Ответ - ENTOMBED! Шведские дэтстеры согласились принять участие в Стокгольмском представлении "Unreal Estate" в Royal Opera Hall. Команда готовит специально сочиненный 45-минутный материал для исполнения с 30 балетными танцорами и 10-летними детьми. Сейчас с ними работают два хореографа Bogdan Szyber и Carina Reich, для того чтобы балетные танцоры привыкли слитно работать с группой. Шоу будет показано в начале февраля 2002.</p>
+
+Автор: Yermola
+
+### 21.03.2001 news Death metal ballet...???
+
+<p>In what has to be one of the more bizarre pairings we have heard about in quite some time, Sweden’s ENTOMBED have apparently agreed to put on a string of performances at the Royal Opera Hall in Stockholm as part of a show called Unreal Estate, with the band doing a 45-minute set of brand new, specially-composed original material while surrounded by 30 ballet dancers and a 10-year-old kid. ENTOMBED’s set will reportedly be the third and final set of the overall show, and it will call for two choreographers, Bogdan Szyber and Carina Reich, to get the ballet dancers performing around the band. If everything goes according to plan, seven or eight of these shows will take place in February 2002.</p>
+
+Автор: Yermola
+
+### 25.03.2001 news ENTOMBED + DISMEMBER &#x3D; MURDER SQUAD....
+
+<p>Что будет если смешать немного ENTOMBED с DISMEMBER? Правильно, новая супер-группа: MURDER SQUAD. Андерграундная общественность уже трепещет в ожидании грядущего "UNSANE, INSANE AND MENTALLY DERANGED". Почитать о новой группе можно здесь http://pavementmusic.com , а послушать здесь: http://pavementmusic.com/Music/msquad1.html</p>
+
+Автор: Yermola
+
+### 25.03.2001 news ENTOMBED + DISMEMBER &#x3D; MURDER SQUAD....
+
+<p>ENTOMBED and DISMEMBER are two of the most well respected bands in the underground today. Each individual band has achieved success through sales of their vast catalog of titles. Now it's time to bring the two together in the form of MURDER SQUAD. Pre-promotion has already started with this highly anticipated new release with an MP3 giveaway. The underground is already churning in anticipation to help bring "UNSANE, INSANE AND MENTALLY DERANGED" instant success.<BR><BR>Visit http://pavementmusic.com to learn more. Check out some music samples at http://pavementmusic.com/Music/msquad1.html</p>
+
+Автор: Yermola
+
+### 28.03.2001 news Новости Ненавистного Проекта...
+
+<p>Сидящие в студии шведы THE PROJECT HATE MCMXCIX (имеющие в своем составе басиста ENTOMBED Jorgen Sandstrom) весьма довольны получившимся вторым альбомом "When We Are Done...Your Flesh Will Be Ours". Выходящий в июне релиз будет содержать буклет работы Leif Ericsson. Запись проходила в Soundlab Studios в &Ouml;rebro (Швеция) под руководством мэтра Talarzcyk (NASUM). На диск вошли следующие песни: 01. Can’t Wait 02. Believing is bleeding 03. Blessed Are We To Be Lied Upon 04. Disciples Of The Apocalypse 05. Hellucination 06. Dividead 07. I Smell Like Jesus...Dead 08. Hate Incarnate 09. Forsaken By The Naked Light Of Day 10. In Sickness And In Hell</p>
+
+Автор: Yermola
+
+### 28.03.2001 news When We Are Done...Your Flesh Will Be Ours....
+
+<p>Freshly out of the studio, Sweden’s THE PROJECT HATE MCMXCIX (featuring ENTOMBED bassist Jorgen Sandstrom) are “incredibly satisfied” with their just-completed second album, When We Are Done...Your Flesh Will Be Ours, which “[lived up to] all of our expectations and more so”. Tentatively due for release in May/June, the album will reportedly feature a booklet designed by graphic artist Leif Ericsson that is so gruesome and beautiful, “it [perfectly] completes this new masterpiece”. Ten tracks and nearly 60 minutes of music will appear on the CD, featuring a style that the group describe as “the same [one] we previously dominated the world with” on last year’s debut Cybersonic Superchrist. Recorded at the Soundlab Studios in Цrebro, Sweden with producer Mr. Talarzcyk (i.e. NASUM), the CD is said to feature a sound that is “as fat as it can get”. The full track listing for When We Are Done...Your Flesh Will Be Ours is as follows: 01. Can’t Wait 02. Believing is bleeding 03. Blessed Are We To Be Lied Upon 04. Disciples Of The Apocalypse 05. Hellucination 06. Dividead 07. I Smell Like Jesus...Dead 08. Hate Incarnate 09. Forsaken By The Naked Light Of Day 10. In Sickness And In Hell</p>
+
+Автор: Yermola
+
+### 26.04.2001 news В Швеции только ленивый не играет Death Metal.....
+
+<p>Бодрые шведские девчушки "MISDEMEANOR" под руководством гитариста "ENTOMBED" - Alex Hellid завершили мастеринг дебютного альбома. На него вошли: 01. Let Me Know 02. Not The One 03. Annoying 04. Mastery 05. Beerhunter 06. Knowing 07. Parashoot 08. It's So Big 09. Trust 10. 6R12. Ню-ню... Нью вэйв оф шведиш дэс метал...</p>
+
+Автор: Yermola
+
+### 26.04.2001 news MISDEMEANOR ....
+
+<p>Swedish all-girl outfit MISDEMEANOR have finally mastered their long-awaited debut album, which was produced by ENTOMBED guitarist Alex Hellid and will be released through Hellid's Muse Entities label. The as-yet-untitled effort will feature the following tracks: 01. Let Me Know 02. Not The One 03. Annoying 04. Mastery 05. Beerhunter 06. Knowing 07. Parashoot 08. It's So Big 09. Trust 10. 6R12. Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 18.07.2001 news Утренняя Звезда...
+
+<p>Нагло украв название у известного грайндовика-дегенерата И.Николаева, шведы "ENTOMBED" даже успели запихнуть его в маленькие круглые пластиночки, которые и выйдут через Music For Nations Records в августе месяце. Финальный трек-лист: 01. Chief Rebel Angel 02. I For An Eye 03. Bringer Of Light 04. Ensemble Of The Restless 05. Out Of Heaven 06. Young Man Nihilist 07. Year One Now 08. Fractures 09. When It Hits Home 10. City Of Ghosts 11. About To Die 12. Mental Twin.</p>
+
+Автор: Yermola
+
+### 18.07.2001 news ENTOMBED have finalized the track listing ...
+
+<p>ENTOMBED have finalized the track listing for their upcoming Morning Star CD, which is due at the end of August through Music For Nations Records in Europe. The complete and final track listing for the album is as follows: 01. Chief Rebel Angel 02. I For An Eye 03. Bringer Of Light 04. Ensemble Of The Restless 05. Out Of Heaven 06. Young Man Nihilist 07. Year One Now 08. Fractures 09. When It Hits Home 10. City Of Ghosts 11. About To Die 12. Mental Twin. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 15.01.2002 news OPETH готовят два студийных альбома...
+
+<p>"OPETH" официально подтвердили, что сейчас работают над двумя полноформатниками которые должны выйти в конце 2002 / начале 2003. По заявлению команды: "мы планируем выпустить эти диски одновременно. Один - тяжелый, один - легкий. Тяжелый будет типичным для OPETH со всеми элементами, в т.ч. и аккустическими, а второй будет очень спокойным...". <BR><BR> Из других новостей, группа номинирована в категории "Best Hard Rock" для шведской “Grammy” Awards, которая будет проходить в Стокгольме 14-го февраля. Другие номинанты в категории ENTOMBED, SAHARA HOTNIGHTS и BACKYARD BABIES.</p>
+
+Автор: Yermola
+
+### 05.03.2002 news ENTOMBED Line Up Finnish Mini-Tour ...
+
+<p>ENTOMBED have lined up the following Finnish dates at the end of March: <BR><BR> Mar. 27 - Helsinki, FIN @ Nosturi <BR> Mar. 28 - Turku, FIN @ Sддtдmц<BR> Mar. 29 - Tampere, FIN @ Klubi <BR> Mar. 30 - Jyvдskylд, FIN @ Lutakko<BR></p>
+
+Автор: Yermola
+
+### 26.08.2002 news Кавер-версии от ENTOMBED
+
+<p>Шведская группа ENTOMBED закончила сведение своего нового двойного альбома "Sons Of Satan Praise The Lord". Альбом состоит из подборки кавер-версий различных исполнителей в разных стилях ранее записанных группой. Альбом выйдет в сентябре-октябре 2002 года на Music For Nations Records в Европе и на Koch International в Америке. В альбом войдут следующие вещи:</p>
+<p> CD 1 <BR> 01. Black Breath (REPULSION) <BR> 02. Albino Flogged In Black (STILLBORN) <BR> 03. March Of The S.O.D. (S.O.D) <BR> 04. Sergeant D And The S.O.D. (S.O.D)<BR> 05. Some Velvet Morning (LEE HAZLEWOOD) <BR> 06. One Track Mind (MOTORHEAD) <BR> 07. Hollywood Babylon (MISFITS) <BR> 08. Night Of The Vampire (ROKY ERIKSSON) <BR> 09. God Of Thunder (KISS) <BR> 10. Something I Learnt Today (HUSKER DU) <BR> 11. 21st Century Schizoid Man (KING CRIMSON) <BR> 12. Black Juju (ALICE COOPER)<BR> 13. Amazing Grace (Punk Version)</p>
+<p> CD 2 <BR> 01. Satan (THE DWARVES) <BR> 02. Hellraiser (CHRISTOHER YOUNG) <BR> 03. Kick Out The Jams (MC5)<BR> 04. Yout' Juice (BAD BRAINS) <BR> 05. Bursting Out (VENOM)<BR> 06. State Of Emergency (STIFF LITTLE FINGERS) <BR> 07. Under The Sun (BLACK SABBATH) <BR> 08. Vandal X (UNSANE) <BR> 09. Tear It Loose (TWISTED SISTER) <BR> 10. Scottish Hell (DEAD HORSE)<BR> 11. The Ballad Of Hollis Brown (BOB DYLAN) <BR> 12. Mesmerization EclipSE (CAPTAIN BEYOND)<BR> 13. Lost (JERRY'S KIDS) <BR> 14. Amazing Grace (Mellow Drunk version)</p>
+
+Автор: Dimas
+
+### 13.04.2003 news Новости от ENTOMBED
+
+<p>Новый альбом шведской группы ENTOMBED полностью завершен. Альбом под названием "Inferno" увидит свет 12 мая 2003 года на лэйбле Music For Nations.</p>
+
+Автор: Dimas
+
+### 26.05.2003 news Выход нового ENTOMBED отложен
+
+<p>Выход нового альбома группы ENTOMBED "Inferno", первоначально запланированный на 12 мая, отложен до 4 августа. Выйдет он на Music For Nations/Threeman Records. В него войдут следующие композиции:</p>
+<p> 1. Retaliation <BR> 2. The Fix Is In <BR> 3. Descent Into Inferno <BR> 4. Incinerator <BR> 5. Night For Day <BR> 6. Nobodaddy <BR> 7. Young & Dead <BR> 8. Children Of The Underworld <BR> 9. Public Burning <BR> 10. Skeleton Of Steel <BR> 11. Flexing Muscles <BR> 12. That's When I Became A Satanist</p>
+
+Автор: Dimas
+
+### 21.11.2003 news ENTOMBED, RAISED FIST, DISFEAR in Scandinavia&#39;s CLOSE-UP MADE US TO IT Tour
+
+Dec. 03 – Sundsvall, SWE @ Pipeline<BR>Dec. 04 - Uppsala, SWE @ Grand<BR>Dec. 06 - Orebro, SWE @ Downtown<BR>Dec. 08 - Goteborg, SWE @ Karen<BR>Dec. 09 – Arhus, DEN @ Voxhall<BR>Dec. 10 – Copenhagen, DEN @ Pumpehuset<BR>Dec. 11 - Malmo, SWE @ KB<BR>Dec. 12 - Halmstad, SWE @ Diezel / Metal Massacre 2003<BR>Dec. 13 - Mariestad, SWE @ Klubb Kaliber<BR>Dec. 16 - Varnersborg, SWE @ Cafe Mic<BR>Dec. 17 - Uddevalla, SWE @ Club Adrian<BR>Dec. 18 - Karlstad, SWE @ Nojesfabriken/Garaget<BR>Dec. 19 - Linkoping, SWE @ Skylten<BR>Dec. 20 - Stockholm, SWE @ Arenan (w/ TURBONEGRO headlining)
+Автор: Vit Belov
+
+### 27.08.2004 news Новый альбом ENTOMBED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ENTOMBED</STRONG> <STRONG>"Unreal Estate" </STRONG>выходит в Европе 8 ноября на <STRONG>Plastic Head Distribution</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>DCLXVI / Intermission</B><BR>02. <B>Chief Rebel Angel</B><BR>03. <B>Say It in Slugs</B><BR>04. <B>It Is Later Than You Think</B><BR>05. <B>Returning to Madness</B><BR>06. <B>Mental Twin</B><BR>07. <B>Night of the Vampire</B><BR>08. <B>Unreal Estate</B><BR>09. <B>In the Flesh</B><BR>10. <B>Something Out of Nothing</B><BR>11. <B>Left Hand Path</B> (outro) </P>
+Автор: Vit Belov
+
+### 14.04.2006 news Новый EP от ENTOMBED
+
+<P>Шведы <STRONG>ENTOMBED </STRONG>подготовили к выпуску свой новый&nbsp; <STRONG>EP - "When in Sodom</STRONG>".&nbsp;Он выйдет 6 июня на&nbsp; <STRONG>Threeman Recordings</STRONG>. Полноформатный альбом&nbsp; <STRONG>"Serpent Saints"</STRONG> будет выпущен 18 сентября. </P>
+<P><STRONG>"When in Sodom":</STRONG></P>
+<P><STRONG>01. When in Sodom<BR>02. Carnage<BR>03. Thou Shalt Kill<BR>04. Heresy<BR>05. Amen</STRONG></P>
+Автор: Bizarre
+
+### 21.03.2007 news ENTOMBED на Candlelight
+
+<P>"<STRONG>Serpent Saints – The Ten Amendments</STRONG>" - новый альбом <STRONG>ENTOMBED</STRONG>, который выйдет на <STRONG>Candlelight</STRONG>, ознаменуя возвращение шведских дэтстеров на крупные металл-лэйблы.</P>
+Автор: Vit Belov
+
+### 24.03.2009 news Видео AMON AMARTH с певцом ENTOMBED
+
+<P>Видео на песню <STRONG>AMON AMARTH</STRONG> <STRONG>"Guardians of Asgaard" </STRONG>с участием певца <STRONG>ENTOMBED L.G. Petrov</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=54366482">Guardians Of Asgaard ft. LG Petrov</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=54366482,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=54366482,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.09.2010 news Изменения в составе ENTOMBED
+
+<P><IMG border=0 hspace=5 alt="" align=right src="/images/news_rus/2010.09/17146.jpg" width=200 height=260>Шведы&nbsp;<B itxtvisited="1">ENTOMBED</B> анонсировали, что новым басистом коллектива стал <B itxtvisited="1">Victor Brandt</B> (<B itxtvisited="1">TOTALT J&#196;VLA M&#214;RKER</B>, <B itxtvisited="1">AEON</B>, <STRONG>SATYRICON</STRONG>, на фото). Тем временем, бывший басист группы <B itxtvisited="1">Nico Elgstrand</B> занял пустующее место второго гитариста.</P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 06.01.2013 news ENTOMBED vs. CANDLEMASS в Sweden Rock Magazine
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Две самые легендарные шведские метал-команды <STRONG>CANDLEMASS</STRONG> и <STRONG>ENTOMBED</STRONG> были объединены в акции, посвящённой сотому выпуску журнала <STRONG>Sweden Rock Magazine. </STRONG>На сингл, который вложен в этот номер журнала, попали две кавер-версии - <STRONG>CANDLEMASS</STRONG> сыграли вещь<STRONG> ENTOMBED</STRONG> <STRONG>"To Ride, Shoot Straight And Speak The Truth", </STRONG>а<STRONG> ENTOMBED</STRONG> спели "<STRONG>Black Dwarf</STRONG>" с одноимённого альбома <STRONG>CANDLEMASS</STRONG> 2005 года выпуска. Следует отметить, что <STRONG>CANDLEMASS</STRONG> оставили первое записанное свидетельство своей работы с вокалистом <STRONG>Mats Leven</STRONG>.</FONT></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/3xVqXriKtR4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Ty1Zu30rTW0?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.09.2013 news Новый альбом ENTOMBED выходит этой осенью на лейбле Century Media
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Century Media</STRONG> объявил о начале сотрудничества со шведскими death metal грандами <STRONG>ENTOMBED</STRONG>. Их новый альбом, получивший название <STRONG>"Back To The Front"</STRONG>, выйдет на этом заслуженном значке 28 (Европа) и 29 октября (Северная Америка).</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.09/26125.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.09.2014 news ENTOMBED A.D. опубликовали видео
+
+<P>Вернувшиеся к корням шведы<STRONG> ENTOMBED A.D.</STRONG> (бывший ENTOMBED) опубликовали видео на песню "<STRONG>Kill To Live</STRONG>". Трек вошёл в альбом-возвращение "<STRONG>Back To The Front</STRONG>", который вышел на<STRONG> Century Media</STRONG> в начале августа. Выход в России анонсирован на <STRONG>Mazzar</STRONG>, но пока ничего не происходит.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/atJ0CSKM9G4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Entombed

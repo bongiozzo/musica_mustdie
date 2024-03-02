@@ -147,6 +147,688 @@ Gerd Lьcking – Drums
 * C группой "Annihilator" Randy Black (drums)
 * C группой "Primal Fear" Randy Black (drums)
 
+## Публикации
+
+### 08.12.2001 news Новый проект Уве Лулиса и Томми Гёттлиха
+
+<p>Бывшие участники Grave Digger, гитарист Уве Лулис и басист Томми Гёттлих назвали свою новую группу Rebellion. В команде также участвуют в качестве второго гитариста экс - вокалист / гитарист Warhead Бьйорн Эйлен, барабанщик Annihilator Рэнди Блэк и вокалист Михаэль Сейферт. Будущий альбом замышляется концептуальным, в основу его положена трагедия Шекспира "Макбет". Выход альбома должен состояться 25 марта 2002 года на Drakkar Entertainment.</p>
+
+Автор: Morsus
+
+### 08.12.2001 news New project of Uwe Lulis and Tommi Goettlich
+
+<p>Former Grave Digger members Uwe Lulis (guitars) and Tommi Goettlich (bass) have chosen the name Rebellion for their new band. The line-up also features ex-Warhead singer/guitarist Bjorn Eilen on second guitar, Annihilator drummer Randy Black and vocalist Michael Seifert. The album will be a concept album based on Shakespeare's tale Macbeth, due to be released on March 25th, 2002 through Drakkar Entertainment.</p>
+
+Автор: Morsus
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 28.08.2003 news REBELLION расстались с барабанщиком
+
+<p>Немецкая группа REBELLION, в которой играют Uwe Lulis и Tommi Goettlich (ex-GRAVE DIGGER), рассталась со своим барабанщиком Randy Black (ANNIHILATOR). Black был уволен, из-за своего решения присоединиться к PRIMAL FEAR. REBELLION, которые утверждают, что узнали о решении своего музыканта только из гостевой книги на официальном сайте группы, ищут драмера. Заинтересованные пишите на uwe@rebellion.st</p>
+
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 13.12.2003 reviews Лучше, чем GRAVEDIGGER...
+
+Uwe Lulis решил сконцентрироваться на heavy-metal, как он есть. На втором альбоме после ухода из GRAVEDIGGER он отринул все эти Болтендалевские штучки с концепциями, и группа записала настоящий true-metal альбом. По поводу правильности этого решения возможны мнения... Два мнения. Я предерживаюсь того, которое говорит, что это правильный шаг. Чтобы записывать концептуальные альбомы, или даже metal-оперы, необходим соответствующий тематике помпезный и разнообразный материал. GRAVEDIGGER записали уже второй малоинтересный альбом, больше задумываясь о его лирической направленности, чем о музыке. На 'Born A Rebel' никаких текстовых откровенний: "Adrenalin", "One for All' и.т.д. Всем, кому ещё не надоело, да и не может надоеть подобное true-metal творчество, просто необходимо приобрести этот альбом. Конечно же, обозреваемый компакт по разнообразнее последних работ GRAVEDIGGER, но на шедевр явно не тянет. В "историческом" плане&nbsp;просто проходной альбом.
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 13.02.2004 reviews It&#39;s better than GRAVEDIGGER...
+
+<B>Uwe Lulis</B> decided to concentrate on heavy-metal as it is. He denied all conceptual <B>Boltendahl</B> things on&nbsp;his second album after leaving of <B>GRAVEDIGGER</B>&nbsp;and band recorded true heavy-metal album.&nbsp;You can have two opinions about this deciding... I think that that was right decision. To recording concept metal-albums or even metal-operas, suiting,&nbsp;varied&nbsp;and pompous material is required. <B>GRAVEDIGGER</B> has already recorded second unintresting&nbsp;album, thinkung about lyrics more than about music. There are not lyric revelations on <B>'Born a Rebel'</B>. '<B>Adrenalin</B>', <B>'One For All'</B> etc. Everybody, who can not live without such tru-metal creations, has to buy this album. This album is more diverse, than latest albums by <B>GRAVEDIGGER</B>, but it's not masterpiece.&nbsp;It's usual album in "historical" plan.
+Автор: Vit Belov
+
+### 19.04.2005 news Новости от REBELLION
+
+<P>Немецкие тру-металлеры<STRONG> REBELLION</STRONG>, в рядах которых бывшие музыканты <B>GRAVE DIGGER</B> <B>Uwe Lulis</B> и <B>Tomi Gottlich</B>,&nbsp;готовят к выпуску 30 мая свой новый альбом&nbsp;<STRONG>"Sagas of Iceland" </STRONG>на&nbsp;<B>Massacre Records</B>.&nbsp;Это будет первая часть трилогии об известных&nbsp;викингах. Вторая и третья части запланированы соответственно на 2006 и 2007 года.</P>
+Автор: Dimas
+
+### 22.07.2005 reviews Сага о викингах, оперетта в трёх действиях
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>REBELLION</STRONG> со своим третьим альбомом, на котором они решили вернуться к тому, чем они занимались на первой пластинке. Да и&nbsp;в составе <STRONG>GRAVE DIGGER Uwe Lullis</STRONG> делал то же. Рассказывал концептуальные истории. В своё время концепции от <STRONG>GRAVE DIGGER</STRONG> гремели в мире heavy-metal, принося группе заслуженную славу. Затем концепция благополучно вытеснила музыку, заменив её невзрачным аккордным чёсом, который оставался неизменным, рассказывала группа про Валхаллу или про крестовые походы. Прошлый альбом <STRONG>REBELLION</STRONG>, где на обложке был изображён простой байкер, "уделал" все концептуальные занудства от <STRONG>GRAVE DIGGER</STRONG>. Затем уже&nbsp;<STRONG>Boltendahl </STRONG>решил вспомнить, что он играет heavy-metal, а не работает на немецкую оперетту. "<STRONG>Last Supper</STRONG>" этого года был чудо, как хорош... И что теперь?</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Теперь <STRONG>REBELLION</STRONG> начали ТРИЛОГИЮ о викингах...!!! Сага об Исландии оказалась тем, чем должна была стать. Редкостным порожняком. Не знаю, возможно, смысловая нагрузка этого альбома заменит кому-то музыку, но не мне... И ещё, все эти хрипящие голоса: "Мой папа умер, когда мне было 10 лет (кхе-кхе)". Вряд ли эта сага будет достойна упоминания в художественных энциклопедиях будущего как по музыкальному материалу, так и по либретто.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Теперь, если не случится чего-то сверхъестественного, <STRONG>REBELLION</STRONG> будут скармливать нам эту сказку ещё&nbsp;два альбома. О группе можно временно забыть. Только любителям занудного heavy-metal, который играли <STRONG>GRAVE DIGGER</STRONG> на рубеже веков.</FONT></P>
+Автор: Vit Belov
+
+### 24.11.2005 news REBELLION взяли гитариста-девушку
+
+<P>Гитарист <STRONG>Bjorn Eilen</STRONG> покинул <STRONG>REBELLION</STRONG>, из-за проблем со здоровьем. Его место заняла <STRONG>Simone Wenzel</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.01.2007 news Новый альбом REBELLION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>REBELLION "Miklagard, The History Of The Vikings, Part II"</STRONG> выходит 23 февраля на <STRONG>Massacre</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 11.04.2009 news Третья часть от REBELLION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа бывшего гитариста <STRONG>GRAVE DIGGER Uwe Lulis</STRONG> <STRONG>REBELLION</STRONG> подготовила третью часть своей исландской саги на новом альбоме <STRONG>"Arise: From Ragnar&#246;k to Ginnungagap - The History of the Vikings Volume III", </STRONG>который выйдет 24 июля на <STRONG>Massacre Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.09.2009 reviews Третья часть, и всё про тоже
+
+<P>REBELLION, появившиеся на свет, как клон GRAVE DIGGER, выпускают уже свой пятый альбом. Ещё совсем недавно мы все смеялись над смешной тяжбой между гитаристом Uwe Lulis и вокалистом GRAVE DIGGER Chris Boltendahl за вышеупомянутое название, и вот уже пятый альбом REBELLION. </P>
+<P>У этой группы был всего один альбом, на котором Uwe немного отступил от своего, как он считает, «конька» - концептуальности. Именно на том альбоме “Born a Rebel” этот гитарист показал, что может со своей группой играть хорошую музыку. Затем одного из авторов духоподъёмного альбома GRAVE DIGGER про крестоносцев “Knight Of The Cross” проклинило на историях про викингов. И вот мы уже встречаем третью часть концептуального рассказа об этих бесстрашных северных людях и их богах. На этот раз REBELLION решили поведать об Одине, Торе, Локи и других не менее известных товарищах. Об их нелёгкой борьбе с ледяными великанами и чего-то там такое. Мы сейчас не будем обсуждать саму историю, но она заслуживает упоминания. Как сказания Древних Греков, которые я перечитывал в детстве. Единственное, что в некоторых местах меня смутило некоторое несоответствия текста и его подачи. Например, в песне про Тора вокалист группы Seifert почему-то пришепотывает каким-то странным голосом, а в песне про Одина, товарищ вкладывает в уста этому верховному богу слово ‘Sacrifice’, которое подходит скорее другому богу, о котором викинги ничего никогда не слыхали хорошего. По музыке же у REBELLION всё тоже. Тяжеленный power-metal на грани с thrash-metal, который одновременно можно сравнить и с GRAVE DIGGER, и с ICED EARTH. К сожалению, он достаточно скучен для просто музыкального альбома, но вполне сойдёт для музыкальной сказки о далёком прошлом.</P>
+<P>Средний альбом для поклонников разнообразных концепций. К сожалению, после последнего альбома JUDAS PRIEST у нас уже более жёсткие требования к подобным пластинкам.</P>
+Автор: Vit Belov
+
+### 31.12.2010 news Немцы REBELLION потеряли трёх участников
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2010.12/17997.jpg" width=420 height=224></CENTER>
+<P></P>
+<P>Гитарист <B itxtvisited="1">Uwe Lulis</B>, ударник <B itxtvisited="1">Gerd L&#252;cking</B> и гитаристка <B itxtvisited="1">Simone Wenzel</B> покинули состав&nbsp;немецкой&nbsp;группы <B itxtvisited="1">REBELLION</B>.</P>
+<P>Комментирует <B itxtvisited="1">Uwe</B>: "<EM><B itxtvisited="1">REBELLION</B> была, так же, и моей группой и я буду рад, если <B itxtvisited="1">Tomi</B> [<B itxtvisited="1">G&#246;ttlich</B>, бас] и <B itxtvisited="1">Micha</B> [вокалист <B itxtvisited="1">Michael Seifert</B>] с успехом продолжат начатое." </EM></P>
+<P>В настоящее время, <STRONG>G&#246;ttlich</STRONG> и <STRONG>Seifert</STRONG> думают над тем, стоит ли продолжать играть под прежним названием.</P>
+<P>Говорит <B itxtvisited="1">Tomi G&#246;ttlich</B>:<EM> "Мы спрашиваем сами себя, будет ли <B itxtvisited="1">REBELLION</B> без <B itxtvisited="1">Uwe</B> всё тем же <B itxtvisited="1">REBELLION</B>. С другой стороны, всё зависит от наших фэнов, так что, мы были бы рады, если бы&nbsp;они высказали своё мнение по этому поводу."</EM></P>
+<P>Добавляет <B itxtvisited="1">Michael Seifert</B>: <EM>"<B itxtvisited="1">Tomi</B> и я, желаем Уве, Герду и Симон, всего самого лучшего с их новыми проектами."</EM></P>
+<P><STRONG>Gerd</STRONG> и <B itxtvisited="1">Uwe</B> планируют создать новый коллектив, тогда как <B itxtvisited="1">Simone</B> присоеденилась к группе <B itxtvisited="1">VERNISSAGE</B>. </P>
+Автор: Headcrusher
+
+### 10.01.2011 news REBELLION решили продолжать
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18128.jpg" width=215 height=250>Вокалист <STRONG>Michael Seifert</STRONG> и басист <STRONG>Tomi G&#246;ttlich</STRONG> (на фото)&nbsp;приняли решение продолжать деятельность под вывеской <B itxtvisited="1">REBELLION</B>. Напомним, что не так давно, группу покинули сразу&nbsp;три участника: <B itxtvisited="1">Uwe Lulis</B> (гитара), <B itxtvisited="1">Gerd L&#252;cking</B> (ударные) и <B itxtvisited="1">Simone Wenzel</B> (гитара).</P>
+<P>Комменитрует <B itxtvisited="1">Seifert</B>: <EM>"Мы получили много позитивных писем от фэнов. И теперь <STRONG>REBELLION</STRONG>&nbsp;ищет ударника и гитариста. Присылайте свои&nbsp;заявки на следующий e-mail: rebellionfromhell@yahoo.com."</EM></P>
+<P>Добавляет&nbsp;<STRONG>G&#246;ttlich</STRONG>: <EM>"Мы хотим начать группу с нуля. <STRONG>Micha</STRONG> и я хотели бы регулярно репетировать. Будущие репетиции будут проходить недалеко от города Гиссен. Новые музыканты не должны жить слишком далеко от него."</EM></P>
+Автор: Headcrusher
+
+### 03.02.2011 news REBELLION: Oliver Geibig - новый гитарист группы
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18397.jpg" width=283 height=400>Немцы&nbsp;<B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">REBELLION</B>, недавно расставшиеся с тремя участниками коллектива, опубликовали следующую новость:<BR itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:false,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:false,hasBreaknodes:true,isBreaknode:true,nodeElem:true,nodeAttr:false,nodeText:false}"><BR itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:false,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:false,hasBreaknodes:true,isBreaknode:true,nodeElem:true,nodeAttr:false,nodeText:false}"><EM>"После того, как трое участников нашей группы покинули её в декабре прошлого года, мы наконец нашли замену гитаристу Уве Люлису (<B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Uwe Lulis</B>)!</EM> <EM>Новичок <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Oliver Geibig</B> [на фото], уже&nbsp;работал с группой в качестве продюсера альбома <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">'Born A Rebel'</B>&nbsp;, а так же, долгое время играл вместе с басистом Томи Гётлихом (<B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">Tomi G&#246;ttlich</B>)&nbsp;в hard rock группе <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">THE MAGIC OF RADIO</B> и <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">SCHLAMMBEIN</B>. <BR><BR itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:false,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:false,hasBreaknodes:true,isBreaknode:true,nodeElem:true,nodeAttr:false,nodeText:false}">"В настоящий момент, <B itxtAssessment="{hasWeightsets:true,isWeightset:false,hasHooknodes:true,isHooknode:true,hasContentnodes:true,isContentnode:false,hasExcludenodes:true,isExcludenode:false,hasUnbreaknodes:true,isUnbreaknode:true,hasBreaknodes:true,isBreaknode:false,nodeElem:true,nodeAttr:false,nodeText:false}" itxtHarvested="1">REBELLION</B> ведут поиски ещё одного гитариста и барабанщика, чтобы вновь пополнить свой состав."</EM></P>
+Автор: Headcrusher
+
+### 18.07.2011 news REBELLION укомплектовались
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=418 alt="" hspace=0 src="/images/news_rus/2011.07/20198.jpg" width=450 align=right border=0>Немцы <STRONG>REBELLION</STRONG>, расставшись с основателем группы бывшим гитаристом<STRONG> GRAVE DIGGER Uwe Lulis</STRONG>, наконец-то укомплектовали свой состав новыми музыкантами. Состав немецкой группы теперь выглядит так: </FONT></P>
+<P><STRONG>Michael Seifert</STRONG> - Vocals<BR><B>Tomi Gottlich</B> - Bass<BR><B>Oliver Geibig</B> - Guitar <BR><B>Stephan Karut</B> - Guitar<BR><B>David Faifer</B> - Drums</P>
+<P>Последний на сегодня альбом <STRONG>REBELLION</STRONG> <STRONG>"Arise: From Ragnarok to Ginnungagap - The History of the Vikings Volume III" </STRONG>вышел летом 2009 года на <STRONG>Massacre Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.03.2013 reviews В этот раз безоговорочная победа REBELLION
+
+<P>Немецкая группа REBELLION получила большую известность ещё до выхода первого альбома, когда её основатель гитарист Uwe Lulis попытался отнять имя GRAVE DIGGER у Chris Boltendahl. Уже не важна аргументация, которую использовал опальный гитарист, но внимание к своему новому проекту он привлёк значительное. Чуть позже, музыкант начал доказывать всем, что он умеет не хуже бывшего старшего товарища сочинять концептуальные альбомы, обратив пристальное внимание на эпос о викингах, что вызвало у слушающей публики ещё больший экстаз, ведь тема актуальная. Какой метал может быть сейчас без викингов? В этот раз REBELLION обратили свой взор на деятельность германского героя Арминиуса, которому и посвятили новый альбом.</P>
+<P>За всеми этими россказнями об Арминиусе и викингах я забыл упомянуть, что перед записью обозреваемой работы группу покинул… Uwe Lulis. Вот так тихо и мирно REBELLION вроде бы остались без главной боевой единицы, но это оказалось совсем не важно, так как “Arminius” лучший альбом REBELLION за последнее время, а может и лучший в истории. Немцы перестали быть самой тяжёлой power-metal командой мира, но стали очень похожи на… GRAVE DIGGER. Больше, чем когда-либо. Теперь музыка REBELLION представляет собой достаточно простой, но очень мелодичный heavy-power в духе творчества господина Boltendahl середины 90-х годов. Все треки этого достаточно длинного альбома запоминаются, а если ещё подкрепить его прослушивание погружением в концепцию, впечатления останутся самыми приятными.</P>
+<P>На фоне очень слабой работы GRAVE DIGGER, датированной прошлым годом, REBELLION выглядят просто гениальной командой в своём нынешнем состоянии. Можно только посоветовать «Арминиуса» к немедленному ознакомлению всем поклонникам тевтонского (германского) power-metal.</P>
+Автор: Vit Belov
+
+### 13.04.2015 news ACCEPT: обнародовали имена новых музыкантов
+
+<P>Немецкая группа&nbsp;<STRONG>ACCEPT</STRONG> объявила имена новых участников. Ими стали немецкий гитарист&nbsp;<STRONG>&nbsp;Uwe Lulis</STRONG>, известный по своей работе в группах <STRONG>GRAVE DIGGER</STRONG> и <STRONG>REBELLION</STRONG>&nbsp;и американский барабанщик&nbsp;<STRONG>Christopher Williams</STRONG>, засветившийся в группе Кид Рока (<STRONG>Kid Rock</STRONG>).</P>
+<P>Предыдущие участники - гитарист <STRONG>Herman Frank</STRONG> и барабанщик <STRONG>Stefan Schwarzmann</STRONG> объявили о своем выходе из состава <STRONG>ACCEPT</STRONG> в самом конце декабря прошлого года, чтобы сосредоточиться на своем собственном проекте под названием <STRONG>PANZER</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.04/27897.jpg" width=660 height=480>&nbsp;</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Rebellion

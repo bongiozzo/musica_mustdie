@@ -32,6 +32,22 @@ Chris Katena - guest vocals on "Reincarnation"
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.07.2008 reviews Очередное возвращение в ряды «живых»
+
+<P>Шведская группа OVERDRIVE была очень популярна в Швеции в 80-х годах. Меня там не было, не знаю, за что купил, за то и продаю. Известно доподлинно, что “Let The Metal Do The Talking” – первый альбом группы за 24 года, в работе над пластинкой группе помогал гитарист Lars Eric Mattsson, а гитарист Janne Stark играет вместе с басистом TALISMAN в группе LOCOMOTIVE BREATH.</P>
+<P>В принципе OVERDRIVE представляют качественную, но обычную продукцию на стыке hard-rock и heavy-metal. Иногда музыка коллектива напоминает JUDAS PRIEST, но музыканты не брезгуют и использованием стандартных ходов, свойственных более «популярным», читай попсовым, группам. После первых трёх забойнейших хитов OVERDRIVE начинают заигрывать с более широкой массой слушателей, любящих мелодичный hard-rock, например. В общем, картина обычная. Почему же я решил упомянуть об OVERDRIVE? Вчера я коснулся в своих заметках нового альбома METALLIUM, который, по одному только названию, должен убирать всех конкурентов на этой разработанной ниве. Но почему-то не получается. «Старички» из OVERDRIVE Показали METALLIUM и многим другим «начинающим» коллективам, как надо играть классический металл.</P>
+<P>Обозреваемая пластинка ничего нового современной музыке не даёт, но любители стиля могут смело тратить свои деньги на этот CD. OVERDRIVE умеют исполнять, умеют сочинять и, думается, умеют представлять свой нехитрый материал на сцене.</P>
+Автор: Vit Belov
+
+### 14.12.2010 news Новый альбом OVERDRIVE
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.12/17822.jpg" width=400 align=right border=0>Новый альбом шведов<STRONG> OVERDRIVE</STRONG> <STRONG>"Angelmaker" </STRONG>выйдет 21 января на <STRONG>Lion Music</STRONG>. Записью пластинки занимался <STRONG>Johan Blomkvist</STRONG> (<B>BLINDED COLONY</B>, <B>KAPTAIN SUN</B>), а сведением <STRONG>Pelle Saether</STRONG> (<B>GRAND DESIGN</B>, <B>DIABOLICAL</B>, <B>WOLF</B>) в <STRONG>Studio Underground</STRONG>. Впервые в истории группы на альбом попала кавер-версия, это <STRONG>"I Know There's Something Going On" Russ Ballard. </STRONG>Обложку нарисовал художник <STRONG>Monowasp</STRONG> (<B>TNT</B>, <B>HOUSE OF LORDS</B>, <B>PLACE VENDOME</B>). Трэк-лист:</P>
+<P>01. <B>Signs All Over</B> (Stark/Karlsson)<BR>02. <B>In Gut We Trust</B> (Stark)<BR>03. <B>Angelmaker</B> (Stark)<BR>04. <B>I Know There's Something Going On</B> (Russ Ballard, arr: Stark)<BR>05. <B>Under The Influence</B> (Ericsson/Karlsson)<BR>06. <B>On With The Action</B> (Jacobsson)<BR>07. <B>See The Light</B> (Stark)<BR>08. <B>To Grow</B> (Karlsson)<BR>09. <B>Mother Earth</B> (Jacobsson)<BR>10. <B>It’s A Thriller</B> (Stark/Karlsson)<BR>11. <B>Cold Blood Chaser</B> (Stark)<BR>12. <B>The Wavebreaker</B> (Karlsson)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -163,6 +163,784 @@ Limited edition digipak contains 4 bonus tracks:
 
 * C группой "Mithotyn" 
 
+## Публикации
+
+### 19.06.2001 reviews Благородная музыка соколиного охотника
+
+<p>Благородная музыка соколиного охотника. В конце 1999 года лидер шведской viking формации Mithotyn принял решение о роспуске команды в связи с тем, что его перестала интересовать музыка группы. И он создал новую группу, материал которой ему действительно интересно сочинять и играть. Группу назвали Falconer, а ее музыку можно охарактеризовать как folk-melodic-heavy metal с элементами power и viking metal. Очень приятная мелодично-волшебно-сказочная музыка с чистым театральным вокалом, одним из лучших в сегодняшнем heavy metal (кстати, вокалистом группы является профессиональный театральный актер Mathias Blad). Лирика в духе мифов и легенд о благородных героях и злодеях. Меня просто переполняют восторженные чувства после прослушивания этого альбома, поэтому в памяти всплывают лишь отдельные слова: великолепно! классно! завораживающе! круто! и все в таком духе... Теперь это один из лучших альбомов в моей огромной коллекции. Достаточно оригинальный материал соединяющий в себе необычный чистый вокал и сплав традиционных гитарных риффов взятых из power metal и сыгранных в духе viking пассажей присущих некогда Mithotyn. Плотная, тяжелая, мощная и насквозь мелодичная музыка. На альбоме чувствуется средневековый дух, южное солнце и холодная северная атмосфера. Чарующее переплетение. В конце альбома можно услышать потрясающий вариант шведской народной песни. Лучший металлический альбом первого полугодия 2001 года. Неужели вы пропустите такое?</p>
+
+Автор: Dimas
+
+### 20.09.2001 news Falconer скоро начнут записывать новый альбом
+
+<p> В ноябре Falconer отправятся в студию Los Angered записывать свой второй, пока ещё не названный, альбом. В качестве продюсера снова будет работать Энди ЛаРок. Выпустить альбом предполагается весной будущего года.</p>
+
+Автор: Morsus
+
+### 20.09.2001 news Falconer will start the recordings of their new album soon
+
+<p> Falconer will enter the Los Angered Studio in November to record their second album, which is still untitled. They will again produce with Andy LaRocque. The release of the album will happen sometime during the spring of 2002.</p>
+
+Автор: Morsus
+
+### 16.11.2001 news Wacken Festival...
+
+<p>Знаменитый "Wacken Festival" в следующем году будет проходить со 2-го по 3-е августа в Вакен (Германия). Уже заявлены следующие участники: <BR><BR> BLIND GUARDIAN <BR> RAVEN <BR> PUNGENT STENCH <BR> DIMPLE MINDS <BR> KREATOR <BR> DESTRUCTION <BR> J.B.O <BR> IN EXTREMO <BR> FALCONER <BR> AMON AMARTH</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Chapters from a Vale Forlorn...
+
+<p>Swedish power metallers Falconer, featuring members of viking metal project Mithotyn, have reportedly completed their time at Andy La Rocque's Los Angered Studios, where the band was ensconced in the recording of their second full-length album. Titled, Chapters from a Vale Forlorn, will reportedly feature more than seven songs. Here's the scoop from Falconer guitarist/bassist Stefan Weinerhall: "We have now come a long way on the road towards the new album. Seven new songs are being rehearsed, with titles as: <BR><BR> "Lament of a Minstrel" <BR> "Decadence of Dignity" <BR> "For Life and Liberty" <BR><BR> Chapters from a Vale Forlorn will be illustrated by prominent German artist Jan Meininghaus (Bolt Thrower, Brainstorm). The cover will be inspired by the first Falconer album art also handled by Meininghaus. Fans can expect to see Falconer's Chapters from a Vale Forlorn out sometime in mid-2002 on Metal Blade Records.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Прощание может быть несчастным...
+
+<p>Шведские фолк/хэви/пауэр металлисты "Falconer" имеющие в своем составе участников викинг-проекта "Mithotyn" закончили работу в Andy La Rocque's Los Angered Studios, где они репетировали и записывали песни ко второму полноформатнику. Названный "Chapters from a Vale Forlorn" альбом будет содержать семь вещей, среди которых будут: <BR><BR> "Lament of a Minstrel" <BR> "Decadence of Dignity" <BR> "For Life and Liberty" <BR><BR> "Chapters from a Vale Forlorn" будут проиллюстрированы известным немецким художником Jan Meininghaus (работавшим с Bolt Thrower и Brainstorm). Кавер будет продолжением и развитием темы заложенной на первом альбоме (иллюстрации к которому также делал Meininghaus). Ожидаемая дата выхода (через Metal Blade Records) - середина 2002 года...</p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 22.01.2003 news Замена вокалиста в FALCONER
+
+<p>Шведская группа FALCONER рассталась со своим вокалистом Mathias Blad'ом. Новым вокалистом группы стал Kristoffer Gobel (DESTINY). Новый вокалист группы придерживается иной манеры пения. Это, по словам участников группы, еще больше подчеркнет эволюционное развитие группы. Расставание со старым вокалистом вызвано его нежеланием принимать участие в турах. Тем не менее, это не будет полным расставанием с ним. Он по-прежнему будет работать с группой при записи новых альбомов в качестве бэк-вокалиста.</p>
+
+Автор: Dimas
+
+### 15.05.2003 news A studio report from FALCONER...
+
+<p>"Arriving at the studio the calendar said spring but the weather said fall. The Monday was quite laid back with coffee, chatting and finally getting down to setting up the drums. We got ahead of schedule on the very first day with the drums of the first song to be put on tape. Tuesday and Wednesday were spent on the remaining songs, leaving Thursday and Friday to the fine adjustments of the drums... Tough. Our idea of a bonus track changed direction so off to write more material. Finally it was time for Karsten and Studiofuhrer Andy to take care of the details, leaving me with my good ol' friend Mitsubishi "20 and coffee. <BR> We actually managed to squeeze in a rehearsal in the middle of the week too, since we’re soon to play the first festival in the year for us. To sum it up, it’s not always you’re ahead of the schedule but on the other hand: In the end you can never have too much studio time. Greetings from the playground."– Stefan <BR> FALCONER have set up a temporary website at: <A HREF="http://members.fortunecity.se/falconer/">http://members.fortunecity.se/falconer/</A></p>
+
+Автор: Yermola
+
+### 05.08.2003 news FALCONER закончили третий альбом
+
+<p>Шведская группа FALCONER завершила запись своего третьего концептуального альбома "The Sceptre Of Deception", который выйдет 6 октября на Metal Blade Records. В альбом войдут следующие вещи:</p>
+<p> 1. The Coronation<BR> 2. Trail Of Flames<BR> 3. Under The Sword<BR> 4. Night Of Infamy<BR> 5. Hooves Over Northland<BR> 6. Pledge For Freedom<BR> 7. Ravenhair<BR> 8. The Sceptre Of Deception<BR> 9. Hear Me Pray<BR> 10. Child Of Innocence</p>
+
+Автор: Dimas
+
+### 30.10.2003 news Falconer, DoomSword &amp; Axenstar on tour
+
+06.01.2004 &nbsp;&nbsp;&nbsp;I-Bergamo, Motion<BR>07.01.2004 &nbsp;&nbsp;&nbsp;A-Vienna, t.b.a.<BR>09.01.2004 &nbsp;&nbsp;&nbsp;SLOV-Ljubljana, Orto Bar<BR>08.01.2004 &nbsp;&nbsp;&nbsp;HU-Budapest, E-Klub<BR>10.01.2004 &nbsp;&nbsp;&nbsp;A-Innsbruck, Hafen<BR>11.01.2004 &nbsp;&nbsp;&nbsp;D-M&uuml;nchen, Garage<BR>12.01.2004 &nbsp;&nbsp;&nbsp;D-Essen, Zeche Carl<BR>13.01.2004 &nbsp;&nbsp;&nbsp;D-Bielefeld, Live Arena<BR>14.01.2004 &nbsp;&nbsp;&nbsp;D-Hamburg, Markthalle<BR>15.01.2004 &nbsp;&nbsp;&nbsp;D-Heidelberg, Schwimmbad Musikclub<BR>16.01.2004 &nbsp;&nbsp;&nbsp;D-Berlin, Halford<BR>17.01.2004 &nbsp;&nbsp;&nbsp;D-Aalen, Rock It<BR>18.01.2004 &nbsp;&nbsp;&nbsp;CH-Pratteln, Konzertfabrik Z7<BR>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 05.12.2003 reviews Интересная задумка с невнятным исполнением
+
+FALCONER наделали шуму со своей первой пластинкой, вторую их работу встретили чуть менее восторженно... Я благополучно пропустил эти пластинки мимо своих ушей и начал знакомится с творчеством группы только с новейшего и уже третьего альбома. FALCONER довольно споро выпускают новые альбомы, что всегда вызывает некое скептическое отношение. Не знаю, сказывается ли это на качестве материала. 'The Sceptre...' производит неоднозначное впечатление. Какие-то внестилевые металлические&nbsp;фолклорные песнопения. Иногда - это power, иногда - нечто Candlemass - подобное... Как power-metal этот альбом не котируется, также он не котируется, и как doom-metal, например. Он может котироваться только, как FALCONER. Хотя отсутствие "стильности" не единственный недостаток пластинки. Однотипные мелодии без какого-либо энергитического заряда. Даже когда быстро и довольно тяжело, всё равно тихо и вяло. А это уже серьёзный недостаток. Довольно интересная задумка с невнятным исполнением.
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 09.01.2004 reviews Да здравствует Falconer без Mathias’a Blad’a
+
+Могу поспорить, многие ждали этот альбом с нетерпением. Кто-то был уверен в том, что, несмотря на смену вокалиста, “The Sceptre of Deception” окажется очередным «шедевром». Другие устраивали акции протеста, гордо неся знамя со словами: «Falconer без Mathias’a Blad’a – не Falconer!». А кому-то, как мне, было глубоко наплевать. Что в итоге? Я получил альбом. Послушал. Разок. Потом ещё разок. И пришёл к выводу, что диск-то, в принципе, неплохой. Более того, неплохой именно потому, что в группе сменился запевала. Во-первых, г-н Blad успел порядком поднадоесть. Во-вторых, его манеру пения никогда не отличала искренность, и какое бы то ни было подобие драйва – такое впечатление, что ему просто давали текст, который он тупо проговаривал. В-третьих, вокалистом он был, прямо скажем, хреновым. И до Mathias’a Lindblom’a, на которого он, ИМХО, отчаянно пытался равняться, г-ну Blad’у как… гм… ну, как Крису Барнсу до Роя Хана. Новичок же, Kristoffer Gobel, поёт ровно и, о счастье, не лажает подобно его предшественнику. Далее. Имеем ли мы ещё какие-либо отличия? Безусловно. В первую очередь, это тексты – альбом концептуальный и построен на событиях, почерпнутых из учебника по скандинавской истории. События эти, если честно, явно не заслуживают того, чтобы им был посвящён целый альбом… Ну да ладно, герру Weinerhall’у виднее. А что в плане музыки? Да всё то же самое. Где-то, как в первой вещи с альбома, павера практически нет, зато здорово попахивает старым «добрым» MITHOTYN’ом. Где-то – чистой воды павер. Не самый отвратный, но и не самый лучший (а применимо ли вообще последнее слово к этому стилю?). В общем и целом, весьма недурно. Слушать можно. А кому-то и нужно. Это, однозначно, не провальный альбом. Но и далеко не шедевр.  
+
+Диск предоставлен компанией ФОНО
+Автор: Kai Mathias Stalhammar
+
+### 18.01.2004 reviews Interesting intention with indistinct incarnation
+
+FALCONER caused a sensation with their first CD. Their second album was met lesser enthusiasm... I missed their first CDs and began to acquaintance with FALCONER's music only from their new third album 'The Sceptre Of Deception'. The band realese new albums very quickly and usually I relate very sceptic to such situations. I can't say, quality of material depends on it. 'The Sceptre...' makes different impressions. It's something non-style, metal and&nbsp;folk... Sometimes - it's power-metal, sometimes - it's like CANDLEMASS, for example. I can't&nbsp;give good&nbsp;valutions to this CD as for power-metal album, as for doom-metal. It can get good valuations only like FALCONER. Absence of slyle orientation is not only lack of this album. One-type melodies without any energetic charge. Even when music sounds fast and heavy, All the same it's silently and flabby. But this is serious defect. This album is interesting intention with indistinct incarnation enough.
+Автор: Vit Belov
+
+### 25.05.2004 news FALCONER покинули гитарист и басист
+
+Из <B>FALCONER</B> ушли второй гитарист <B>Anders Johansson</B> и басист <B>Peder Johansson. </B>Ссора разгорелась после одного из выступлений группы, когда обсуждение будущего <B>FALCONER</B> чуть не переросло в рукопашную схватку.
+Автор: Vit Belov
+
+### 26.08.2004 news FALCONER назвали нового басиста
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.08/7030.jpg" width=255 align=left border=5>Новым басистом <STRONG>FALCONER</STRONG> стал <STRONG>Magnus Linhardt. </STRONG>Группа по прежнему ищет гитарист&nbsp;в замену также ушедшему <STRONG>Anders Johansson.</STRONG></P>
+<P><FONT color=#ffffff>Кроме этого, <STRONG>FALCONER</STRONG> заняты написанием новых песен, которые выйдут весной следующего года. Некоторые названия: <STRONG>"No Tears For Strangers"</STRONG>, <B>"Purgatory Time"</B>, <B>"Humanity Overdose"</B>&nbsp;и <B>"Power"</B>. </FONT></P>
+Автор: Vit Belov
+
+### 16.03.2005 news Новый альбом FALCONER
+
+<P>Новый альбом <STRONG>FALCONER "Grime Vs. Grandeur"</STRONG>&nbsp;выходит 3 мая на <STRONG>Metal Blade</STRONG>. Группа обещает возврат к хорошим песням после "несфокусированного" предыдущего альбома. Гостевые партии для пластинки записали: барабанщик <STRONG>Snowy Shaw</STRONG> и <STRONG>Andy LaRocque</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.07.2005 news FALCONER уже сочиняют новые песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>FALCONER</STRONG> уже сочинили 6 новых песен для будущего альбома. Группа сообщает, что остануться довольны те, кто хочет больше фолка. По крайней мере одна песня будет на шведском языке.</FONT></P>
+Автор: Vit Belov
+
+### 25.07.2005 news FALCONER in a writing mode
+
+<P>"<EM>Well, I’ve got 6 new songs done. The ones who thought "Grime vs. Grandeur” lacked folk music will very much enjoy the next album. It also seems like there’s gonna be at least one song in Swedish</EM>,” reports guitar wizard <STRONG>Stefan Weinerhall</STRONG> from <STRONG>FALCONER</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.11.2005 news FALCONER вернули вокалиста
+
+<P>Радостная новость для поклонников старого <STRONG>FALCONER</STRONG>. В группу вернулся старый вокалист <STRONG>Mathias Blad</STRONG>. Коллектив объясняет своё решение возвратом к корням в музыке. Новая пластинка обещает стать более фолковой.</P>
+Автор: Vit Belov
+
+### 25.07.2006 news Новый FALCONER со старым вокалистом
+
+<P>Шведы <B>FALCONER</B> закончили запись своего пятого альбома под названием <STRONG>"Northwind".</STRONG> Он был записан с вернувшимся в команду вокалистом<STRONG> Mathias Blad</STRONG>. Музыканты обещают возвращение к истокам. Лимитированное издание альбома будет содержать бонус-диск, куда войдут обработки четырех шведских народных песен и видеодокументы с отчетами о записи альбома. Дата релиза - 25 сентября на <B>Metal Blade Records</B>.Трек-лист издания:<BR><BR>1. <B>Northwind</B><BR>2. <B>Waltz with the Dead</B><BR>3. <B>Spirit of the Hawk</B><BR>4. <B>Legend and the Lore</B><BR>5. <B>Catch the Shadows</B><BR>6. <B>Tower of the Queen</B><BR>7. <B>Long Gone By</B><BR>8. <B>Perjury and Sanctity</B><BR>9. <B>Fairyland Fanfare</B><BR>10. <B>Himmel Sa Trind</B><BR>11. <B>Blinded</B><BR>12. <B>Delusion</B><BR>13. <B>Home of the Knave</B><BR>14. <B>Black Tarn</B> (instr)<BR>15. <B>Child of the Wild 2006</B> (Japan bonus)<BR>Bonus CD:<BR>01. <B>Kristallen Den Fina</B><BR>02. <B>Ridom Ridom</B><BR>03. <B>Liten Vatte</B><BR>04. <B>Varvindar Friska</B><BR>+ video documentary of the recording</P>
+Автор: Dimas
+
+### 12.12.2007 news FALCONER начали запись нового альбома
+
+<P><STRONG>FALCONER</STRONG> вошли в <STRONG>Sonic Train Studios</STRONG>&nbsp;в Гётеборге, где с продюсером <STRONG>Andy La Rocque </STRONG>запишут шестой альбом для осеннего релиза на<STRONG> Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.05.2008 news FALCONER заканчивают альбом
+
+<P><STRONG>FALCONER </STRONG>заканчивают работу над новым альбомом <STRONG>"Among Beggars And Thieves"</STRONG>.&nbsp;Группа запишет 13 новых вещей.</P>
+Автор: Vit Belov
+
+### 07.10.2008 reviews FALCONER перестали удивлять, но продолжают радовать
+
+<P>Об оригинальности шведской группы FALCONER говорилось уже не раз. Великолепный эпический power-metal с распевными фолковыми вокалами, неожиданными переходами, и, в целом, очень необычным настроением. FALCONER, пожалуй, лучше всего передают средневековую атмосферу, не применяя обилия фолковых инструментов и не зацикливаясь на примитивных народных мелодиях.</P>
+<P>Примитивности в музыки FALCONER нет, вообще... Я думаю, группу можно смело относить&nbsp; к progressive, ну, или какому-то его подразделению. Несмотря на то, что FALCONER выпускают альбомы довольно часто, их музыка не приедается. Возможно, просто из-за отсутствия конкуренции со стороны коллег, возможно, по какой-то другой причине, слушаются альбомы шведов на одном дыхании. Великолепный вокал, навороченные переходы, и в то же время «летящая» мелодия и агрессивность, предельного по тяжести, power-metal. Новый альбом группы «Among Beggars And Thieves» можно смело рекомендовать всем. Здесь есть, что слушать, и чему радоваться. Из недостатков отмечу женский вокал, который, прежде всего по настроению, очень сильно проигрывает основному мужскому. Он просто сюда не вписывается. В остальном FALCONER заслужили твёрдую «пятёрку», которую мы им и поставим. С маленьким минусом.</P>
+<P>Новый альбом пионеров и единственных продолжателей важного дела folk-power-metal. Отлично.</P>
+Автор: Vit Belov
+
+### 25.11.2010 news FALCONER начали запись
+
+<P><STRONG>FALCONER </STRONG>начали запись нового альбома <STRONG>'Armod' </STRONG>в студии <STRONG>Andy La Rocque</STRONG> (<B>KING DIAMOND</B>) <STRONG>Sonic Train. </STRONG>Все песни новой работы будут исполнены на шведском изыке, и, по словам музыкантов, сам альбом будет более фолковый.</P>
+Автор: Vit Belov
+
+### 03.04.2011 news Новый альбом FALCONER
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.04/19016.jpg" width=300 align=right border=0>Новый альбом<STRONG> FALCONER</STRONG> <STRONG>"Armod" </STRONG>выходит 3 июня на<STRONG> Metal Blade</STRONG>. Альбом вновь записан гитаристом <STRONG>KING DIAMOND</STRONG> <STRONG>Andy La Rocque </STRONG>в студии <STRONG>Sonic Train Studios. </STRONG>Группа обещает на новом альбоме вновь обратиться к фолковой музыке. Трек-лист:</P>
+<P>01. <B>Svarta Ankan</B> <BR>02. <B>Dimmornas Drottning</B><BR>03. <B>Griftefrid</B><BR>04. <B>O, Tysta Ensamhet</B><BR>05. <B>Vid Rosornas Grav</B><BR>06. <B>Grimborg</B><BR>07. <B>Herr Peder Och Hans Syster</B><BR>08. <B>Eklundapolskan</B><BR>09. <B>Grimasch Om Morgonen</B><BR>10. <B>Fru Silfver</B><BR>11. <B>Gammal Fabodpsalm</B></P>
+Автор: Vit Belov
+
+### 24.06.2011 news Новое видео FALCONER
+
+<P>Новый клип<STRONG> FALCONER</STRONG> на песню "<STRONG>Vid Rosornas Grav</STRONG>" можно посмотреть ниже. Трек взят с новейшего альбома группы "Armod", который вышел 3 июня на <STRONG>Metal Blade</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT id=flashObj codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0 height=412 width=486 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="12859"><PARAM NAME="_cy" VALUE="10901"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="Src" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE="http://admin.brightcove.com"><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="FFFFFF"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="0"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashVars="videoId=1010087495001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.07.2011 news Английский клип FALCONER
+
+<P>Ниже можно посмотреть новый видео-клип<STRONG> FALCONER&nbsp;'By The Roses Grave'</STRONG>, которая является английской версией трека <STRONG>'Vid Rosornas Grav'</STRONG> с новой пластинки <STRONG>"Armod"</STRONG>.</P>
+<P>Альбом вышел две недели назад на <STRONG>Фоно </STRONG>и его можно купить в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A>.</P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=086faafd8c122981cc82" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.09.2011 reviews FALCONER – это FALCONER
+
+<P>Шведская группа FALCONER уже больше десяти лет гордо несет знамя folk-metal в толпы поклонников вечного стиля power-metal. Коллективу удаётся совмещать в своей музыке народные мелодии и некоторые элементы классической тяжёлой музыки. В последнее время элементов разнообразной стилевой тяжёлой музыки становится всё меньше и меньше, а фолка всё больше и больше. Это вовсе не значит что на новом альбоме FALCONER “Armod” отсутствует метал, его здесь больше, чем когда-либо в творчестве группы, но в своей музыкальной составляющей шведы окончательно перестали заигрывать с чужим слушателям. FALCONER не похожи ни на кого, FALCONER – это FALCONER, и если вы ещё не полюбили их музыку, вы не полюбите её никогда.</P>
+<P>Классический фолковый вокалист и мелодии, проверенные веками, под аккомпанемент тяжёлой гитары у неподготовленного слушателя могут вызвать потрясение, но в итоге все останутся довольны. Те, кто сразу выключил этот альбом, не переварив услышанное, и те, кто дослушал до конца и включил снова. Я отношусь ко второй категории, каждый раз музыка шведской группы кажется необычной, но каждый раз она завораживает, притягивает и не отпускает. В этот раз FALCONER исполнили весь альбом на шведском языке, и это им идёт, в принципе, даже когда Mathias Blad поёт на английском, кажется, что он поёт на шведском.</P>
+<P>Альбом очень хорош, как и все пластинки после возвращения в строй оригинального вокалиста. Музыка на “Armod” приятна сама по себе, а женский вокал, скрипки и флейты только дополняют картину. Рекомендации.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### А ты купил Falconer?

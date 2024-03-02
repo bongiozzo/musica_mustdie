@@ -31,6 +31,9 @@ Duke Satanael - War Cries, All Guitars, Bass, Synth
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

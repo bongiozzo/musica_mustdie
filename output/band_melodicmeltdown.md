@@ -28,6 +28,9 @@ The album was recorded i Kling-Klang Studio June-Oct 2001.
 
 * C группой "Michael Sobygge" Sobygge, Michael - guitar player
 
+## Публикации
+
+
 ## Обсуждения
 
 

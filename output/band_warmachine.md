@@ -12,6 +12,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.04.2010 news Новый басист для ANNIHILATOR
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.04/16621.jpg" width=133 height=200>Alberto Campuzano</STRONG> (на фото) из канадцкой группы&nbsp; <B itxtvisited="1">WARMACHINE</B>, влился в состав <B itxtvisited="1">ANNIHILATOR</B> в качестве концертного бас-гитариста. Комментирует вокалист/гитарист <STRONG>WARMACHINE</STRONG> <B itxtvisited="1">Joe Di Taranto: </B>"<B itxtvisited="1">Alberto</B> всё ещё участник <B itxtvisited="1">WARMACHINE</B>, но он, так же, сможет поколесить по миру с <B itxtvisited="1">ANNIHILATOR</B>&nbsp;в 2010-2011 . . . В настоящее время, мы будем искать ему временную замену, пока он занят в <B itxtvisited="1">ANNIHILATOR</B>." </P>
+Автор: Headcrusher
+
+### 22.07.2011 news Новый альбом WARMACHINE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=431 alt="" hspace=0 src="/images/news_rus/2011.07/20301.jpg" width=450 align=right border=0>Долгожданный второй альбом канадцев <STRONG>WARMACHINE</STRONG> <STRONG>"Left For Dead" </STRONG>выходит 23 июля на <STRONG>JMD Records</STRONG>. Пластинка вновь была спродюсирована <STRONG>Murray Daigle</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Moving On</B><BR>02. <B>We're The Chemical</B><BR>03. <B>Chalk Lines and Bones</B><BR>04. <B>Alive</B><BR>05. <B>Fallacy</B><BR>06. <B>Too Late</B><BR>07. <B>Inevitable Crash</B><BR>08. <B>Loved and Lost</B><BR>09. <B>Forgive and Forget You</B><BR>10. <B>Left for Dead</B><BR>11. <B>A New Beginning</B></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/warmachine">http://www.myspace.com/warmachine</A></P>
+<P>На трёх песнях партии баса записал <STRONG>David Ellefson </STRONG>из <STRONG>MEGADETH.</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

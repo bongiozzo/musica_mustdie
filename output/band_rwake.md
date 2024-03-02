@@ -51,6 +51,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.07.2011 news Обложка нового RWAKE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Экспериментальные металисты <STRONG>RWAKE</STRONG> опубликовали обложку своего нового альбома <STRONG>"Rest". </STRONG>Пластинка была записана в <STRONG>Engine Studios</STRONG> в Чикаго с инженером <STRONG>Sanford Parker</STRONG>. Пластинка выйдет в США в сентябре только в виде винила, также будет доступно цифровое скачивание.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущая работа <STRONG>RWAKE</STRONG> <STRONG>"Voices Of Omens</STRONG>" вышла в 2007 году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://myspace.com/rwake">http://myspace.com/rwake</A></FONT></P>
+<P><center><IMG height=362 src="/images/news_rus/2011.07/20120.jpg" width=362 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

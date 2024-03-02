@@ -52,6 +52,75 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.05.2008 reviews Неоклассический metalcore
+
+<P>Ох, уж эти американцы. Безусловно, в настоящее время происходит возрождение на американской металл-сцене. Динозавры стилей вновь выходят на передний план, а сзади их уже поджимает молодая поросль талантов. Европейские монстры звукозаписывающей индустрии не стесняются давать дорогу этой молодёжи. Century Media и Nuclear Blast выпускают разнообразные modern-death-metal команды с завидной регулярностью. Особенно в этом усердствуют CENTURY MEDIA, бывший оплот европейского экстремального металла столь же рьяно поддерживают теперь продукцию американских пионеров.</P>
+<P>WINDS OF PLAGUE своим дебютным альбомом снова демонстрируют нестандартный взгляд на тяжёлую музыку. Их творчество впитало в себя элементы очень многих стилей: здесь не только, уже привычные для нас, melodic-death-metal и thrash-metal, но так же и sympho-элементы, и медленные doom-metal проигрыши, и совсем странный для этой музыки эпический ориентальный материал, местами напоминающий NILE. Как и многие дебютные альбомы, “Decimate The Weak” страдает от стилистической неопределённости. Слушать его интересно, выделю особу отличную реализацию, но некоторые ходы вызывают смех. Представьте себе в одной песне и классический hardcore, и симфонические «подложки» от клавишника, и «мальмстиноидные» проигрыши гитариста, и дикое разнообразное рычание в духе Глена Бэнтона. Представили? Какие у вас возникли чувства? Поначалу мне было очень весело, а потом я проникся уважением к молодым американцам, которые, видимо, считают, что открывают в своём отечественном стиле металла под названием metalcore новые элементы. Получился, неоклассический metalcore. Каково, а?</P>
+<P>Честно говоря, наши заокеанские друзья радуют своей непосредственностью. Вокалист и лидер группы Johnny Plague рекомендует свою работу всем, таким же, как и он, любителям hardcore. Что ж. Я же вновь посоветую пластинку тем, кто утверждает, что тяжёлая музыка находится в застое. Мы будем следить за творческой судьбой WINDS OF PLAGUE, вполне возможно, что на второй работе ребята определятся со своим стилем. Фрагментарно хорошую музыку они сочинять умеют.</P>
+Автор: Vit Belov
+
+### 20.02.2009 news Видео от WINDS OF PLAGUE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип<STRONG> WINDS OF PLAGUE</STRONG> на песню <STRONG>"Anthems of Apocalypse" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/XlzjkEGEDHw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/XlzjkEGEDHw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.04.2009 news WINDS OF PLAGUE начали работу
+
+<P><STRONG>WINDS OF PLAGUE</STRONG> вошли в <STRONG>Sound Temple Studios </STRONG>с продюсером <STRONG>Daniel Castleman</STRONG> (<B>IMPENDING DOOM</B>, <B>AS I LAY DYING</B>) для записи нового альбома <STRONG>"The Great Stone War", </STRONG>который выйдет осенью на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.08.2009 news WINDS OF PLAGUE попали в чарты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>WINDS OF PLAGUE</STRONG> попали в чарты Billboard 200 со своим новым альбомом <STRONG>"The Great Stone War"</STRONG>, занявшим 73 место. Пластинка была продана тиражом 6300 копий.</FONT></P>
+Автор: Vit Belov
+
+### 29.12.2009 reviews Неудачливые химики
+
+<P>WINDS OF PLAGUE обладают собственным лицом. Этот факт оспаривать никто не станет, на крупных лэйблах сейчас не выходит ни одной группы, которая играет sympho-metalcore.</P>
+<P>Мы уже слышали предыдущий альбом этой группы “Decimate The Weak”, он выходил на Mazzar Records. Там в традиционную современную metalcore музыку были добавлены помпезные клавиши от DIMMU BORGIR. В принципе ничего не изменилось и на новой работе. Коллектив пытается срастить эти несочетаемые направления, и какие-то успехи присутствуют, но слушать эту музыку по-прежнему… странно. WINDS OF PLAGUE сочинили даже какую-то сказочную концепцию, чтобы как-то примазаться к фанатам sympho-black-metal и оправдать свои неплохие, надо сказать, клавиши. Но совсем не уместные здесь.</P>
+<P>Слушать этот альбом очень сложно. В нескольких местах кажется, что WoP удаётся создать симбиоз двух стилей, но это впечатление быстро рассеивается. Эти жидкости не смешиваются.</P>
+Автор: Vit Belov
+
+### 23.05.2011 news Новый клип WINDS OF PLAGUE
+
+<P>Новый видео-клип американцев <STRONG>WINDS OF PLAGUE</STRONG>&nbsp;на песню&nbsp;<STRONG>"Drop The Match" </STRONG>можно посмотреть ниже. Трек взят с третьего альбома коллектива <STRONG>"Against The World", </STRONG>который вышел 19 апреля на <STRONG>Century Media</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/s4r33jeKq70?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/s4r33jeKq70?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.06.2011 news Новое видео WINDS OF PLAGUE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>WINDS OF PLAGUE</STRONG> на песню <STRONG>"California" </STRONG>можно посмотреть ниже. Песня взята с третьего альбома калифорнийского коллектива <STRONG>"Against The World"</STRONG>, который вышел 19 апреля на <STRONG>Century Media.</STRONG> </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/01-sVpBDIsw?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/01-sVpBDIsw?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.06.2011 news Новое видео WINDS OF PLAGUE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>WINDS OF PLAGUE</STRONG> на песню <STRONG>"California" </STRONG>можно посмотреть ниже. Песня взята с третьего альбома калифорнийского коллектива <STRONG>"Against The World"</STRONG>, который вышел 19 апреля на <STRONG>Century Media.</STRONG> </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/01-sVpBDIsw?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/01-sVpBDIsw?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></object></P>
+Автор: Vit Belov
+
+### 22.10.2011 news WINDS OF PLAGUE: клип на песню &quot;Refined In The Fire&quot;
+
+<P><STRONG>"Refined In The Fire"</STRONG> - новое видео&nbsp;группы&nbsp;<B itxtHarvested="0" itxtNodeId="39">WINDS OF PLAGUE</B>, можно посмотреть ниже. Клип снял <B itxtHarvested="0" itxtNodeId="38">Jeremy Schott</B> (<B itxtHarvested="0" itxtNodeId="37">Mental Suplex Productions</B>), прежде известный по своей работе с&nbsp;&nbsp;группами <B itxtHarvested="0" itxtNodeId="36">ARMORED SAINT</B> и <B itxtHarvested="0" itxtNodeId="35">SUICIDE SILENCE</B>.<BR itxtNodeId="34"><BR itxtNodeId="33">Песня <STRONG>"Refined In The Fire"</STRONG> вошла на последний альбом <B itxtHarvested="0" itxtNodeId="31">WINDS OF PLAGUE </B><B itxtHarvested="0" itxtNodeId="30">"Against The World"</B>.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/MpECtrS3UbU?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

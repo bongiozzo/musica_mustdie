@@ -23,6 +23,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2011 news DESCENDING назвали альбом
+
+<P>Греческие трешеры <STRONG>DESCENDING</STRONG> дали имя своему второму альбому, который выйдет 23 сентября на <STRONG>Massacre Records</STRONG>. "<STRONG>New Death Celebrity</STRONG>" записывается с знаменитым продюсером <STRONG>Fredrik Nordstrom</STRONG>. Бесплатный цифровой сингл доступен на <STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/massacrerecordseurope?sk=app_7146470109">http://www.facebook.com/massacrerecordseurope?sk=app_7146470109</A></P>
+<P>Дебют <STRONG>DESCENDING "Enter Annihilation"</STRONG> вышел в 2008 на той же <STRONG>Massacre Records.</STRONG></P>
+<P><center><IMG height=320 src="/images/news_rus/2011.07/19852.jpg" width=205 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

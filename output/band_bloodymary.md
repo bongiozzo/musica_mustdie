@@ -18,6 +18,32 @@ Recorded, post-producted and mastered by Danilo di Lorenzo @ Moonhouse Recording
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.09.2003 news Bloody Mary in Italy
+
+10/10/2003<BR>Sitting Bull<BR>Certosa di Pavia (PV)<BR>with: <BR>"My Sixth Shadow"<BR>starting from 22,00 <BR>&nbsp;<BR>&nbsp;<BR>11/10/2003<BR>Comunita Giovanile<BR>Busto Arsizio (VA)<BR>with: <BR>"My Sixth Shadow"<BR>starting from 22,00<BR>&nbsp;<BR>&nbsp;<BR>12/10/2003<BR>Alpheus<BR>Gothic Festival '03<BR>Rome <BR>with:<BR>"Theatres des Vampires"<BR>"My Sixth Shadow"<BR>"Darkshine"<BR>starting from 21,30<BR>&nbsp;<BR>&nbsp;<BR>15/10/2003<BR>Black Hole<BR>Milan<BR>with: <BR>"XP8"<BR>starting from 22,00
+Автор: Vit Belov
+
+### 08.10.2003 news News from Bloody Mary...
+
+Bloody Mary (Gothic Rock band from Milan) have started  shooting the new video-clip  "It's Too Late", taken from the new EP "Rosemadder" produced by "Vor Daran Productions" and officially presented on 27/06/2003 at Wizard Rock Pub in Milan). At the two first sessions of shots, which took place in secret places,  took part a director and his vice, three cameramen, one light engineer, two photographers, a make-up artist, a costume maker and several extras (all cast's names will be published when the video is finished). The shots will go on, in different places to cover different scenes, during the whole month of September, also including editing, mix and post-production.
+Starting from October 2003 the new video "It's Too Late" will be available in free Streaming on the Official Band's Web Site at the address: www.bloody.it. On the official site of Bloody Mary, in the section pics, you can find the first pictures of the back-stage of the new video-clip. <br><br>
+
+Next live Italian dates:<br><br>
+  
+10/10/2003 Sitting Bull Certosa di Pavia (PV) with: "My Sixth Shadow" starting from 22,00  <br><br>
+ 
+11/10/2003 Comunit&agrave; Giovanile Busto Arsizio (VA) with: "My Sixth Shadow" starting from 22,00<br><br>
+ 
+12/10/2003 Alpheus Gothic Festival '03 Rome with: "Theatres des Vampires" "My Sixth Shadow" "Darkshine" starting from 21,30 <br><br>
+ 
+15/10/2003 Black Hole Milan with: "XP8" starting from 22,00 <br><br>
+ 
+24/10/2003 La Sfinge 1st Hardsounds Metal Fest San Polo (Brescia) with: "Soultakers" "Tragodia" starting from 21,00
+Автор: Yermola
+
+
 ## Обсуждения
 
 

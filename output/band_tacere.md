@@ -47,6 +47,14 @@ Pekka Jokinen - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.12.2008 news TACERE взяли новую вокалистку
+
+<P><IMG height=467 alt="" hspace=0 src="/images/news_rus/2008.12/13101.jpg" width=300 align=left border=5>Финская группа <STRONG>TACERE </STRONG>назвала имя новой вокалистки. Ею стала девушка из Тампере <STRONG>Taiya R</STRONG>. Также к группе присоединлся новый клавишник, известный по работе с <STRONG>POISNBLACK</STRONG> и <STRONG>ETERNAL TEARS OF SORROW Veli-Matti Kananen</STRONG>.</B itxtvisited="1"></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -42,6 +42,66 @@ D.I.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.07.2003 news Tartharia в Питере
+
+<p>19 июля в клубе "Орландина" состоится концерт русско-финской группы Tartharia. В концерте также примут участие Inhuman Race, Morrah, Lamento. Tartharia недавно записали свой дебютный альбом в студии Astia. Работа названа 'A Secret Device' и содержит black-death metal с клавишами.</p>
+
+Автор: Vit Belov
+
+### 17.07.2003 news Tartharia debut
+
+<p>D-e-b-u-t TARTHARIA material recorded and mixed at ASTIA Studio with Anssi Kippo as Sound Producer (Children Of Bodom, Impaled Nazarene, To/Die/For) and mastered at Finnvox Studio with Mika Jussilla [April, 2003]. The debut is entitled "A Secret Device" and musically strikes the black/death line with tender keyboards.</p>
+
+Автор: Vit Belov
+
+### 11.08.2003 news Новости от TARTHARIA
+
+<p>Российско-финская формация TARTHARIA подписала договор на выпуск своего дебютного альбома с конторой Crash Music. "A Secret Device" был записан в Astia Studios с продюсером Anssi Kippo и микшировался в Finnvox studios под руководством Mikka Jussila.</p>
+
+Автор: Dimas
+
+### 13.08.2004 news Второй альбом TARTHARIA
+
+<P>Второй альбом <STRONG>TARTHARIA "Abstract Nation"</STRONG> выходит на американском лейбле <STRONG>Crash Music (FLOTSAM AND JETSAM, MORTICIAN, PYREXIA)</STRONG>.<IMG height=200 src="/images/news_rus/2004.08/6918.jpg" width=200 align=right border=10></P>
+<P><STRONG>TARTHARIA</STRONG> была основана в Санкт-Петербурге в ноябре 2002 года музыкантами, укрывшимися за псевдонимами <STRONG>Antti Ihalainen</STRONG> и <STRONG>Tahvo Audry Kennonen</STRONG>. Дебютный альбом "<STRONG>A Secret Device</STRONG>" выпущенный <STRONG>Crash Music</STRONG> осенью 2003 года, получил высокие оценки ведущих метал изданий (в их числе <STRONG>Rock Hard</STRONG>, также взявший у группы интервью). Первый альбом, выдержанный в death/black стилистике имел отличную реализацию. Стилистически второй альбом, <STRONG>Abstract Nation</STRONG>, отходит в сторону thrash традиций. Сведение выполнено мэтром <STRONG>Ансси Киппо ASTIA Studio</STRONG>. </P>
+<P>Дата релиза 5.10.2004 </P>
+<DIV><A title=http://www.crashmusicinc.com href="http://www.crashmusicinc.com/"><U><FONT color=#0000ff>http://www.crashmusicinc.com</FONT></U></A></DIV>
+Автор: Дофф
+
+### 15.11.2004 news GRENOUER и TARTHARIA друг за другом закончили сведение новых
+
+<P>Группы <STRONG>GRENOUER</STRONG> и <STRONG>TARTHARIA</STRONG> друг за другом закончили сведение новых промок в студии <STRONG>ASTIA</STRONG>, Finland с <STRONG>Anssi Kippo</STRONG> в качестве саундпродюсера (<STRONG>Children Of Bodom</STRONG>, <STRONG>Entwine</STRONG>, <STRONG>Twilighting</STRONG>, etc).<BR></P>
+Автор: Vit Belov
+
+### 16.05.2005 reviews Как финн с русским в Тартар попали, и что из этого вышло
+
+<P>Забавный диск. Неоднозначный. Если судить по оформлению, то кажется, что парни играют злобный мизантропический блэк – гнусного вида черепушка на обложке и разукрашенный злодей с микрофоном в буклете. Но, как оказалось, все не так просто.</P>
+<P>… Обыкновенное и ничем не выделяющееся интро (с соответствующим названием «Стана тысячи надежд») – замогильные «эпические» синтезаторы а ля ранний MORTIIS, SUMMONING или BAL-SAGOTH… а вот потом – потом началось. Со второго и до предпоследнего трэков (последний – клавишное outro) не оставляет впечатление, что преисполненные стёба и цинизма блэкеры решили привнести свежую струю в подзабытый ныне heavy-metal. И, надо сказать, у них это неплохо получилось – тяжеленький такой притрэшованный хэви, всего лишь разбавленный мелодичным блэком а ля японский TYRANT или австрийский SIEBENBURGEN. Только, само собой, звук на «Абстрактной Нации» колючий и сухой. Наверное, ближайшим аналогом ТАРТАРИИ будет BRIMSTONE, но у последнего мелодий и драйва все-таки побольше. Вокалов – два типа. Первый похож на сильно охрипшего Удо Диркшнайдера, второй – этакий обиженный порыкивающий кадавр. Да, на “At Every Step” присутствует и женский вокал – если я не ошибаюсь, это Мирла из отечественного doom-metal коллектива The LUST.</P>
+<P>Еще интересные факты – главным креативным началом в группе являются два финна, но, сдается мне, здесь явно замешаны русские музыканты! Каково же было мое удивление, когда в одном из трэков я услышал русскоязычную лирику! Сводный ансамбль песни и пляски какой-то… Главным минусом альбома является некоторая однообразность и монотонность, но сравнительно небольшая продолжительность альбома делает этот недостаток практически незаметным. А ведь неплохой heavy-thrash-black получился…</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+### 30.05.2006 news Вторая часть сборника клипов российских команд
+
+<P>В ближайшее время, на <STRONG>CD-Maximum</STRONG> выйдет вторая часть сборника клипов ведущих групп российского тяжметмузпрома от <STRONG>Music Infection</STRONG> под навзанием "<STRONG>Totum Dissemination, Vol.2</STRONG>". В него войдут следующие работы:</P>
+<P><STRONG>1. INSIDE YOU - In A Winter Wood<BR>2. MELANCHOLY - Die, Forgive<BR>3. КОМА - Какая разница?!<BR>4. RASTA - New God<BR><IMG height=362 alt="" hspace=50 src="/images/news_rus/2006.05/10418.jpg" width=250 align=right border=0>5. ANAL NOSOROG - Vagina Says<BR>6. ШМЕЛИ - Стриптиз интеллекта<BR>7. КУВАЛДА - Das Fleisch<BR>8. SHADOW HOST - Before The Storm<BR>9. HOSTILE BREED - V.I.P.<BR>10. KOMMANDA ГУ - Эпизод<BR>11. МАСТЕР - 33 жизни<BR>12. АРТЕРИЯ - Один на один<BR>13. SATARIAL - Шлюха-смерть<BR>14. BESTIAL DEFORM - Jesus Is Dead<BR>15. K.G.B. - The Barren Sycamine<BR>16. BUTTERFLY TEMPLE - Время Мары<BR>17. MURK EXORBITANCE - Desecrated Reality<BR>18. ХАРИЗМА - Охотник<BR>19. TARTHARIA - Crowned By Name<BR>20. S.C.A.R.T. - The Last<BR>21. ЧЕРНЫЙ КОФЕ - Церквушки<BR>22. KRUGER - Нация РОК!<BR>23. Э.С.Т. - Катюша - live in Тушино'91 (bonus)<BR>24. ROSSOMAHAAR - Praise Departure Of Spiritual Streinch - live (bonus)<BR>25. АРКОНА - Восстание Рода - live (bonus)</STRONG></P>
+Автор: Dimas
+
+### 14.08.2007 news Сборник MSR Compilation vol.1
+
+<P><STRONG><IMG height=399 alt="" hspace=0 src="/images/news_rus/2007.08/11810.jpg" width=400 align=right border=5>MSR Productions</STRONG> с гордостью спешит сообщить всем поклонникам металлической музыки о выходе аудио-компиляции "<STRONG>MSR Compilation vol.1</STRONG>". Помимо 12-ти трэков от лучших групп движения MSR: <STRONG>SINFUL </STRONG>(Москва, Пермь), <STRONG>ACT OF GOD </STRONG>(Пермь, Москва), <STRONG>LITTLE DEAD BERTHA </STRONG>(Воронеж), <STRONG>APOKEFALE </STRONG>(Томск, Северск), <STRONG>TARTHARIA </STRONG>(Санкт-Петербург), <STRONG>ENDLESS GLOOM </STRONG>(Орёл) - диск&nbsp; дополнен мультимедийной секцией с подробной информацией о каждом участнике аудио-сборника и историей движения "Воскрешения металлического духа".<BR>По вопросам заказа "<STRONG>MSR Compilation vol.1</STRONG>" просьба писать на:<BR><A href="mailto:sinfultaus@mail.ru">sinfultaus@mail.ru</A><BR><A href="mailto:msrprod@mail.ru">msrprod@mail.ru</A> "</P>
+Автор: Vit Belov
+
+### 07.11.2011 reviews Хорошая группа из Санкт-Петербурга TARTHARIA
+
+<P>Изданный в формате digi-pack мини-альбом питерской группы TARTHARIA “Crowned By Name” не значится ни в каких доступных мне дискографиях, поэтому я буду импровизировать. В оригинале этот EP вышел в 2006 году сразу после издания дебюта коллектива “Abstract Nation”. К этому четырёхпесенном минику некто прибавил концертный трек “Horror With Out Name”, а так же видео-клип версию этой же песни.</P>
+<P>Честно говоря, само существование этого digi-pack уже вызывает вопросы. К сожалению, ни слишком хорошо известная у себя на родине TARTHARIA уже успела издать русскоязычный альбом на канадском лэйбле Crash Music, который вряд ли сильно связан с представленным материалом. Более того, мини-альбомы сами по себе не слишком востребованный ныне продукт. Но вернёмся к музыке, которая, следует признать, довольно интересна. Некое подобие death-black с использованием клавишных и электроники привлекает внимание своей оригинальностью и, безусловно, послушать целый альбом подобной музыки было бы приятно. Неожиданно мне понравился ремикс на песню “Unfear”, сделанный не слишком оригинально, но зато энергично. </P>
+<P>Тяжело отдельно рассматривать музыкальные составляющие от, так называемых, маркетинговых. Этот диск никому не нужен, и это факт. Его, наверное, можно раздавать бесплатно на концертах TARTHARIA. Если он был для этого издан и прислан нам как демо, я голосую за этот материал довольно бодро. Коммерческого потенциала у этого релиза не наблюдается.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

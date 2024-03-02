@@ -36,6 +36,22 @@ Dmitry Martynoff - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.06.2002 reviews Первая и последняя молитва
+
+<p>Еще одна финская команда выпустила свое новое творение. Ну, угадайте что за стиль? Почти угадали, но не совсем. Наконец-то, хоть что-то отличное от всех остальных творений финнов. Хотя, конечно же, без некоторых влияний не обошлось. Очень мелодичная энергичная музыка в духе PARADISE LOST (времен "Draconian Times") и последних работ SENTENCED. Слащавостью и приторностью здесь не пахнет. Реальная тяжелая и мощная музыка, некоторые риффы даже напоминают классический power metal, но в основном, это готическо-металлические риффы и гитарные соло-переливы с чистым вокалом. Обращает на себя внимание имя басиста группы - Дмитрий Мартынов... Ритмичность, энергичность, мрачная холодная атмосфера, романтическая мелодичность, но главное - это обаяние исходящее от этой музыки. Серьезная профессиональная работа молодых финских музыкантов, цель которой для группы - обратить на себя внимание более крупные лэйблы.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 04.02.2003 news DOWNFALL replaces a drummer...
+
+<p>As you may have noticed this summer was quite low-profile for DOWNFALL. At early June we decided not to go on with our drummer Kalle Tulonen. The chemistry in the band was not the best possible so we started looking for another guy to replace Kalle. <BR><BR> After various auditions we decided to start practising with ex-Diablo drummer Timo Kemppainen. Later in August, after a gig in SeinДjoki we decided to make him a full member of the band.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

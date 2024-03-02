@@ -249,6 +249,167 @@ Bonustracks (Digipack/LP Edition)
 * C группой "Krokus" Mandy Meyer (guitar)
 * C группой "Asia" Mandy Meyer (guitar)
 
+## Публикации
+
+### 08.03.2004 news Gotthard покинул гитарист
+
+Гитарист <B>Mandy Meyer</B> покинул <B>GOTTHARD</B>. В&nbsp;это же время группа ищет новый менеджмент и новый лэйбл.
+Автор: Vit Belov
+
+### 21.12.2004 news GOTTHARD на Nuclear Blast!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Hard-rock'еры <STRONG>GOTTHARD</STRONG> открыли новую страницу в своей истории, подписав контракт с <STRONG>Nuclear Blast</STRONG>. Первый синг группы для этого лэйбла выйдет 11 апреля, а альбом увидит свет 6 июня.</FONT></P>
+Автор: Vit Belov
+
+### 08.02.2005 news GOTTHARD объявили свои планы
+
+<P>Первый сингл&nbsp;<STRONG>'Lift U Up'</STRONG>&nbsp;к новому альбому <STRONG>GOTTHARD</STRONG> будет издан 11 апреля на<STRONG> Nuclear Blast</STRONG>. Новый альбом можно будет найти в магазинах 7 июня. </P>
+Автор: Vit Belov
+
+### 08.02.2005 news New single GOTTHARD
+
+<P>The first single of <STRONG>GOTTHARD</STRONG>&nbsp;in 2005 will be released on April 11th 2005 and will contain the song <STRONG>LIFT U UP</STRONG>. A large picture gallery and the video to <STRONG>LIFT U UP</STRONG> will be on the CD as well. On June 7th 2005 the new album will be in the stores.</P>
+Автор: Vit Belov
+
+### 15.03.2005 news GOTTHARD назвали альбом
+
+<P>Новый альбом <STRONG>GOTTHARD</STRONG> будет называться "<STRONG>Lipservice</STRONG>" и выйдет 6 июня на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.04.2005 news Видео от GOTTHARD
+
+<P><STRONG>GOTTHARD</STRONG> сняли клип на песню с нового альбома "<STRONG>Lipservice</STRONG>" - "<STRONG>Lift U Up</STRONG>". Посмотреть "фильм" можно по адресу: <A href="http://musik.bluewin.ch/cd/g/Gotthard/">http://musik.bluewin.ch/cd/g/Gotthard/</A></P>
+Автор: Vit Belov
+
+### 23.09.2005 reviews Высшая лига современного хард-рока
+
+<P>Рецензия на “Lipservice” писалась трудно и муторно, хотя диск был прослушан неоднократно и не без удовольствия. Ну, классная музыка. Ну, харда. Ну, мелодии хорошие, запоминающиеся. Ну, гитарки там всякие с соляками. Чего еще-то?..<BR>Придется задействовать немного истории. Коллектив был создан в 1991 году (мама дорогая, это ж сколько лет прошло?!..) гитаристом Лео Леони (Leo Leoni) и вокалистом Стивом Ли (Steve Lee). С того времени произошло-совершилось много всего интересного – десять альбомов (среди них, правда, есть пара сборников, а альбом “Lipservice” – одиннадцатый по счету), сингл “One Life, One Soul”, записанный совместно с Монтсеррат Кабалье, разогрев отцов DEEP PURPLE, превращение песни “One Team, One Spirit” в национальный гимн швейцарской сборной, уверенная оккупация верхних позиций в хит-парадах… Согласитесь, все это внушает уважение. Все это – достижения.<BR>Биография коллектива более-менее обозначена, теперь – «шо це таке» (с) с позиции музыки. Играет GOTTHARD добрый и безоблачный какой-то хард-рок, мелодичный, напрочь позитивный и пропитанный оптимизмом. Никакого бунта, показухи, никаких «против», ничего подобного – все это просто самовыражение. Как мне показалось – искренне и настоящее. Может, странное приходит на ум сравнение, но это - своеобразная элегия беззаботной жизни, длинноногим неверным красоткам, большим американским машинам, стаканчику джина и&nbsp; безоблачному июньскому утру…<BR>Ежели в сравнении с другими командами, то – что-то схожее с последними работами немцев BONFIRE или своих же соотечественников SHAKRA (что, кстати, несколько удивительно, так как Швейцария больше известна как родина более брутальных формаций типа SAMAEL, CORONER или CELTIC FROST). Такие композиции, как “All We Are”, “I Wonder”, гимноподобная “Anytime Anywhere” и красивая лирическая “Everything I Want” – настоящие украшения альбома. Именно они мне, собственно, больше всего и понравились. Заканчивая и без того растянутую, словно резина, писанину (потому как все это можно было уместить в одном, самом первом абзаце, но…), скажу, что “Lipservice” – это настоящий hard-rock. Понимайте, как хотите. Больше мне добавить нечего. </P>
+<P>Диск предоставлен Irond</P>
+Автор: Dr. Grandma
+
+### 13.03.2006 news GOTTHARD выпускают концертник
+
+<P>"Живой альбом" <STRONG>GOTTHARD "Made In Switzerland"</STRONG> выйдет в апреле. На пластинку войдут 17 песен, записанных во время шоу в Цюрихе в декабре прошлого года. На специальное издание войдёт бонус-DVD, включающее всё шоу и съёмки за сценой.</P>
+Автор: Vit Belov
+
+### 22.03.2006 news Стал известен трэк-лист DVD&#x2F;CD GOTTHARD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>GOTTHARD</STRONG> опубликовали трэк-листы DVD и CD концертника "<STRONG>Made In Switzerland</STRONG>", который выйдет 28 апреля:</FONT></P>
+<P>CD: <BR><BR>01. <B>All We Are</B><BR>02. <B>Dream On</B><BR>03. <B>Hush</B><BR>04. <B>Mountain Mama</B><BR>05. <B>Let It Be</B><BR>06. <B>Top Of The World</B><BR>07. <B>I Wonder</B><BR>08. <B>Said And Done</B><BR>09. <B>One Life One Soul</B><BR>10. <B>Nothing Left At All</B><BR>11. <B>Sister Moon</B><BR>12. <B>Mighty Quinn</B><BR>13. <B>In The Name</B><BR>14. <B>Heaven</B><BR>15. <B>Lift U Up</B><BR>16. <B>Anytime, Anywhere</B><BR>17. <B>Immigrant Song</B><BR><BR>DVD: <BR><BR>01. <B>All We Are</B><BR>02. <B>Dream On</B><BR>03. <B>Hush</B><BR>04. <B>Mountain Mama</B><BR>05. <B>Let It Be</B><BR>06. <B>Top Of The World</B><BR>07. <B>I Wonder</B><BR>08. <B>Said And Done</B><BR>09. <B>One Life One Soul</B><BR>10. <B>Nothing Left At All</B><BR>11. <B>Sister Moon</B><BR>12. <B>The Other Side Of Me</B><BR>13. <B>Firedance</B><BR>14. <B>Battle Of Titans</B><BR>15. <B>Homerun</B><BR>16. <B>Mighty Quinn</B><BR>17. <B>In The Name</B><BR>18. <B>Heaven</B><BR>19. <B>Lift U Up</B><BR>20. <B>Anytime, Anywhere</B><BR>21. <B>Immigrant Song</B><BR><BR>Bonus DVD Features:<BR>* Making Of Hallenstadion Show<BR>* Making Of Video <B>"Anytime, Anywhere"</B> with <B>Jenny</B><BR>* Photogallery<BR>* Videos: <BR>- <B>Anytime, Anywhere</B><BR>- <B>Lift U Up</B><BR>- <B>Dream On</B></P>
+Автор: Vit Belov
+
+### 16.09.2007 news GOTTHARD в Москве
+
+<CENTER><IMG height=283 src="/images/shows_rus/2007.08/11828.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 07.05.2008 news Песня GOTTHARD стала гимном
+
+<P>Песня <STRONG>"Lift U Up" </STRONG>от <STRONG>GOTTHARD</STRONG> стала официальной песней сборной Швейцарии по футболу на <STRONG>ЕВРО 2008</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.03.2009 news GOTTHARD в сентябре
+
+<P>Новый пока не названный альбом <STRONG>GOTTHARD</STRONG> выйдет в сентябре на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.04.2009 news GOTTHARD споют о боксёре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>GOTTHARD</STRONG> запишут песню для саундтрэка к фильму о легендарном немецком боксёре <STRONG>Max Schmeling</STRONG>. Режиссёром выступит<STRONG> Uwe Boll</STRONG>, известный по фильмам по мотивам компьютерных игр.</FONT></P>
+Автор: Vit Belov
+
+### 08.05.2009 news Название нового GOTTHARD
+
+<P><STRONG>GOTTHARD</STRONG> назвали свой новый альбом "<STRONG>Need To Believe</STRONG>". Пластинка выйдет 4 сентября на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.06.2009 news Новый альбом GOTTHARD
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.06/14235.jpg" width=400 align=right border=5>Новый альбом <STRONG>GOTTHARD</STRONG> <STRONG>"Need To Believe" </STRONG>выходит 4 сентября на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>Shangri-La</B><BR>02. <B>Unspoken Words</B><BR>03. <B>Need To Believe </B><BR>04. <B>Unconditional Faith</B><BR>05. <B>I Don't Mind</B><BR>06. <B>Break Away</B><BR>07. <B>Don't Let Me Know</B><BR>08. <B>Right From Wrong</B><BR>09. <B>I Know, You Know</B><BR>10. <B>Rebel Soul</B><BR>11. <B>Tears To Cry</B></P>
+Автор: Vit Belov
+
+### 22.07.2009 news Две песни от GOTTHARD
+
+<P><STRONG>GOTTHARD</STRONG> выложили на своём MySpace две новые песни - "<STRONG>Shangri-La</STRONG>" и edit-версию заглавного трэка "<STRONG>Need To Believe</STRONG>". Оба трэка попадут на новый альбом швейцарцев, выходящий 4 сентября на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/gotthard">http://www.myspace.com/gotthard</A></P>
+Автор: Vit Belov
+
+### 17.09.2009 reviews Классика современного melodic hard-rock
+
+<P>Швейцарцы GOTTHARD являются одной из самых популярных hard-rock команд в Европе. Их новые альбомы не нуждаются в особых рекомендациях. “Need To Believe” вышел совсем недавно, и пластинка уже демонстрирует неплохие продажи.</P>
+<P>Если быть честным, мне совершенно нечего сказать об этой пластинке. Альбом набит качественными melodic hard-rock номерами, которые не стареют никогда. Именно за эти номера миллионы поклонников любят этот стиль. Невозможно назвать “Need To Believe” лучшим альбомом швейцарцев за всю историю, но ниже определённой планки они не опустятся никогда. Отмечу только, что группа продолжает дрейфовать в сторону американского «попсового» hard-rock в духе BON JOVI, оставляя за бортом европейское наследие этого стиля. Теперь уже не только баллады подошли бы американскому Джону, но и некоторые энергичные боевики.</P>
+<P>Мне больше нравились дебютные работы этой группы, а большинству наверное нравятся поздние. Видимо, по этой причине BON JOVI и является миллионером, а KROKUS играют на чемпионате Мира по хоккею, который и за соревнование за океаном не считают. </P>
+Автор: Vit Belov
+
+### 11.11.2009 news Специальные сэты от GOTTHARD
+
+<P>В текущем туре<STRONG> GOTTHARD</STRONG> музыканты дают специальные шоу. В концерте&nbsp;присутствует&nbsp;акустический сэт, во время которого вокалист и гитарист исполняют песни по заявкам публики. Эти концерты проходят в эти дни в Германии.</P>
+<P>"<EM>Пожалуйста, запишите ваши заявки на записочки и передавайте их к сцене, а то плохо понятно, что вы просите</EM>", - обратился к фэнам через официальный сайт певец швейцарцев<STRONG> Steve Lee</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.10.2010 news Погиб вокалист группы GOTTHARD Steve Lee
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17346.jpg" width=281 height=350>Согласно швейцарской ежедневной газете <STRONG>"Blick"</STRONG>, вокалист&nbsp;группы <STRONG>GOTTHARD</STRONG>&nbsp;Стив Ли (<STRONG>Steve Lee</STRONG>)&nbsp;попал на своем мотоцикле в&nbsp;автокатастрофу. От полученных травм Стив скончался.&nbsp;Ему было 48 лет. </P>
+<P>Как сообщил представитель дорожного патруля штата Невада Джо Фэкрелл (<STRONG>Joe Fackrell</STRONG>) телеканалу "<STRONG>KVVU-TV</STRONG>" - <EM>"<STRONG>Ли</STRONG> умер вчера (во вторник, 5 октября) будучи сбитым полуприцепом, после 16:00".</EM></P>
+<P>По причине столкновения ведётся расследование.</P>
+<P>Последний альбом<STRONG> GOTTHRAD "Need To Believe"</STRONG> был выпущен 4 сентября 2009 года на лейбле <B itxtvisited="1">Nuclear Blast</B>. <BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 29.10.2010 news GOTTHARD выпустят сборник
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.10/17488.jpg" width=400 align=right border=5>GOTTHARD</STRONG>, чей вокалист <STRONG>Steve Lee </STRONG>погиб в ДТП 5 октября этого года, подготовили к выпуску на <STRONG>Nuclear Blast</STRONG> новый сборник <STRONG>"Heaven - Best Of Ballads Part 2". </STRONG>Релиз появаится в продаже 26 ноября 2010 года. По словам музыкантов, сборник баллад отлично подойдёт к нынешнему настроению поклонников группы. На диск попадёт одна новая вещь и две эксклюзивных акустических версии песен <STRONG>"Have A Little Faith"</STRONG>&nbsp;и <STRONG>"Falling".</STRONG> Трэк-лист:</P>
+<P>01. <STRONG>Heaven</STRONG> <BR itxtvisited="1">02. <STRONG>What Am I</STRONG> *<BR itxtvisited="1">03. <STRONG>Where Is Love When It's Gone<BR itxtvisited="1"></STRONG>04. <STRONG>Need To Believe<BR itxtvisited="1"></STRONG>05. <STRONG>One Life One Soul</STRONG> <BR itxtvisited="1">06. <STRONG>The Call<BR itxtvisited="1"></STRONG>07. <STRONG>Don't Let Me Down<BR itxtvisited="1"></STRONG>08. <STRONG>Nothing Left At All<BR itxtvisited="1"></STRONG>09. <STRONG>Unconditional Faith<BR itxtvisited="1"></STRONG>10. <STRONG>Have A Little Faith</STRONG> **<BR itxtvisited="1">11. <STRONG>Tears To Cry<BR itxtvisited="1"></STRONG>12. <STRONG>Everything I Want<BR itxtvisited="1"></STRONG>13. <STRONG>I've Seen An Angel Cry<BR itxtvisited="1"></STRONG>14. <STRONG>Tomorrow's Just Begun<BR itxtvisited="1"></STRONG>15. <STRONG>Falling</STRONG> ***<BR itxtvisited="1">16. <STRONG>And Then Goodbye</STRONG> <BR itxtvisited="1">17. <STRONG>Merry Christmas</STRONG> <BR itxtvisited="1"><BR itxtvisited="1">* previously unreleased<BR itxtvisited="1">** special piano version / previously unreleased<BR itxtvisited="1">*** special acoustic version / previously unreleased</P>
+Автор: Vit Belov
+
+### 04.02.2011 news GOTTHARD решили продолжать
+
+<P><IMG height=273 alt="" hspace=0 src="/images/news_rus/2011.02/18405.jpg" width=300 align=right border=0>Вокалист швейцарской группы <STRONG>GOTTHARD Steve Lee</STRONG> погиб в дорожно-транспортном происшествии 5 октября прошлого года. Оставшиеся музыканты приняли решение продолжить работу под вывеской <STRONG>GOTTHARD</STRONG> с новым вокалистом. </P>
+<P>"<EM>GOTTHARD - это не наша работа, это наша жизнь</EM>", - заявил гитарист группы <STRONG>Leo Leoni.</STRONG></P>
+<P>Имя нового певца будет названо позже.</P>
+Автор: Vit Belov
+
+### 07.08.2011 news GOTTHARD оканчивают эру
+
+<P>Швейцарцы<STRONG> GOTTHARD</STRONG> выпускают новый концертный альбом <STRONG>"Homegrown - Alive In Lugano" </STRONG>30 сентября на <STRONG>Nuclear Blast</STRONG>. В рамках промоции этого альбома 2 сентября станет доступна последняя песня в исполнении погибшего в прошлом октябре вокалиста коллектива <STRONG>Steve Lee</STRONG> <STRONG>"The Train".</STRONG> Этим релизом <STRONG>GOTTHARD</STRONG> подводят черту под эрой <STRONG>Steve Lee </STRONG>в группе и продолжают поиск нового певца.</P>
+<P><STRONG>Steve Lee</STRONG> погиб 5 октября прошлого года в результате ДТП в Неваде, США. </P>
+<P><center><IMG height=476 src="/images/news_rus/2011.08/20460.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 21.11.2011 news GOTTHARD нашли вокалиста
+
+<P>Новым вокалистом <STRONG>GOTTHARD</STRONG> стал <STRONG>Nic Maeder</STRONG>. Музыкант, которому в этом году исполнилось 40 лет, родился в Швейцарии, но жил до недавнего времени в Австралии. Ниже можно увидет клип, где новый вокалист исполняет песню <STRONG>"Remember It's Me".</STRONG></P>
+<P><STRONG></STRONG><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/YeN6R8shPjE?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/YeN6R8shPjE?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 11.03.2012 news GOTTHARD заканчивают альбом
+
+<P>Швейцарцы <STRONG>GOTTHARD</STRONG> заканчивают работу над новым альбомом "<STRONG>Firebirth</STRONG>", который выйдет 1 июня на <STRONG>Nuclear Blast</STRONG>. Продюсером пластинки вновь выступил гитарист коллектива <STRONG>Leo Leoni</STRONG>. Альбом станет первым релизом группы с новым вокалистом <STRONG>Nic Maeder</STRONG>, который заменил погибшего в автокатастрофе<STRONG> Steve Lee</STRONG>.</P>
+<P><center><IMG height=317 src="/images/news_rus/2012.03/23249.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 04.04.2012 news Обложка нового GOTTHARD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=268 alt="" hspace=0 src="/images/news_rus/2012.04/23408.jpg" width=385 align=right border=0>Новый альбом<STRONG> GOTTHARD "Firebirth"</STRONG> выходит 1 июня на <STRONG>Nuclear Blast</STRONG>. CD был записан в собственной студии музыкантов <STRONG>Yellow House</STRONG> в Лугано. Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="75">Starlight</B><BR itxtNodeId="74">02. <B itxtHarvested="0" itxtNodeId="73">Give Me Real</B><BR itxtNodeId="72">03. <B itxtHarvested="0" itxtNodeId="71">Remember It's Me</B><BR itxtNodeId="70">04. <B itxtHarvested="0" itxtNodeId="69">Fight</B><BR itxtNodeId="68">05. <B itxtHarvested="0" itxtNodeId="67">Yippie Aye Yay</B><BR itxtNodeId="66">06. <B itxtHarvested="0" itxtNodeId="65">Tell Me</B><BR itxtNodeId="64">07. <B itxtHarvested="0" itxtNodeId="63">Shine</B><BR itxtNodeId="62">08. <B itxtHarvested="0" itxtNodeId="61">The Story Is Over</B><BR itxtNodeId="60">09. <B itxtHarvested="0" itxtNodeId="59">Right On</B><BR itxtNodeId="58">10. <B itxtHarvested="0" itxtNodeId="57">S.O.S.</B><BR itxtNodeId="56">11. <B itxtHarvested="0" itxtNodeId="55">Take It All Back</B><BR itxtNodeId="54">12. <B itxtHarvested="0" itxtNodeId="53">I Can</B><BR itxtNodeId="52">13. <B itxtHarvested="0" itxtNodeId="51">Where Are You?</B> (dedicated to Steve Lee)</P>
+<P>Альбом станет дебютом для нового певца<STRONG> GOTTHARD</STRONG> <STRONG>Nic Maeder</STRONG>, который заменил погибшего в автокатастрофе<STRONG> Steve Lee</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.05.2012 news Новый клип GOTTHARD
+
+<P>Новый ролик <STRONG>GOTTHARD</STRONG> на песню "<STRONG>Starlight</STRONG>" можно увидеть ниже. Песня откроет новейший альбом швейцарцев "<STRONG>Firebirth</STRONG>". работа выйдет в начале лета на<STRONG> Nuclear Blast</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/brwD1xlI92g?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/brwD1xlI92g?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 22.03.2014 news Новый альбом GOTTHARD
+
+<P>Новая работа <STRONG>GOTTHARD "Bang!"</STRONG> выходит 6 апреля на<STRONG> PIAS</STRONG>. Трек-лист:</P>
+<P><STRONG>'Let Me In Katie' <BR>'Bang!' <BR>'Get Up 'N' Move On' <BR>'Feel What I Feel' <BR>'C'est La Vie' <BR>'Jump The Gun' <BR>'Spread Your Wings' <BR>'I Won't Look Down' <BR>'My Belief' <BR>'Maybe' <BR>'Red On A Sleeve' <BR>'What You Get' <BR>'Mr. Ticket Man' <BR>'Thank You' <BR></STRONG>Bonus tracks (digipack/vinyl editions): <BR><STRONG>'I Want It All' <BR>'You Can't Stop Me' </STRONG></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26764.png" width=320 height=320></P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/kIWZ6Kzwm7Y?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

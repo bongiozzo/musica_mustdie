@@ -75,6 +75,93 @@ Joey Scott (drums)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.03.2001 news Стрельба по Lizzy Borden....
+
+<p>Вчера после концерта в Charlotte North Carolina, гитарный техник "Lizzy Borden" Ulrik Zander был трижды ранен из огнестрельного оружия при попытке ограбления. Сейчас пострадавший находится в госпитале. Сама команда была вынуждена продолжить тур, чтобы не разочаровывать фэнов. Ulrik Zander остался в постели с любимыми дисками Моторхэд, двумя полу-обнаженными девушками и морфином. Вы можете высказать слова поддержки на сайте www.Lizzyborden.com</p>
+
+Автор: Yermola
+
+### 27.03.2001 news Lizzy Borden Shooting
+
+<p>On Saturday morning at approximately 2:45 am after playing to a packed house in Charlotte North Carolina, Ulrik Zander, guitar technician for the rock group Lizzy Borden was shot three times in an attempted robbery. Eyewitness (Lizzy) Borden saw one black assailant gun down Ulrik Zander outside of the tour bus before running off into the night. Police have many leads and hope to apprehend the suspect soon. Zander is recovering in a North Carolina hospital from three gunshot wounds. "With the blessings from our friend and brother Ulrik Zander, we are committed more then ever to finish what we started, the Deal With The Devil tour will continue on as planed. We've endured many obstacles on our return to the road. Including missing opening night in Dallas due to incompatibility with the tour's headliner, to the current shooting of our friend and crew technician right in front of my eyes. But I cannot in all good conscience let down the legions of Lizzy Borden fans that drive hundreds of miles all over the states to see the long awaited return of the Lizzy Borden show. We are dedicating the remainder of the Deal With The Devil tour to our friend Zander who is lying in the hospital with three bullet wounds, he is truly the man of steel and I know he will be back on the road with us very soon." Lizzy Borden. The band left for Virginia Beach Sunday morning to continue the tour, but not without leaving Zander with his favorite Motorhead CD's delivered to his hospital bed by two half naked girls. Between the Morphine and the girls, he was feeling no pain. Please post your get-well wishes to www.Lizzyborden.com</p>
+
+Автор: Yermola
+
+### 25.06.2001 news Metal Blade news....
+
+<p>Here's a list of dates of METAL BLADE bands on tour. Check local listings:</p>
+<p> CATASTROPHIC <br> 7/05 Albany, NY Valentines <br> 7/06 Poughkeepsie, NY The Chance <br> 7/07 Sayre, PA Hurricane Billboards <br> 7/08 Syracuse, NY Action Sports Center <br> 7/09 Meriden, CT Hanover House <br> 7/12 Hudson, NH Club Euphoria <br> 7/13 Worcester, MA The Palladium <br> 7/14 Toronto, ONT Kathedral <br> 7/15 Montreal, Oue, Can. L'x <br> 7/16 Randolph, NJ Obsessions Nite Club <br> 7/17 New York, NY Wetlands Preserve <br> 7/18 Morgan, NJ Club Krome <br> 7/19 Baltimore, MD Ottobar <br> 7/20 Norfolk, VA Taj Mahal <br> 7/21 Columbia, SC Uncle Doctors <br> 7/22 Ft. Lauderdale, FL Culture Room <br> 7/23 Orlando, FL Sapphire Supper Club <br> 7/25 Houston, TX Fitzgerald's <br> 7/26 Dallas, TX Galaxy Club <br> 7/27 Corpus Christi, TX Zero's <br> 7/28 Austin, TX The Backroom <br> 7/29 Oklahoma City, OK Diamond Ballroom <br> 7/31 Tempe, AZ Boston's Night Club <br> 8/01 San Diego, CA Brick by Brick <br> 8/02 San Jose, CA The Cactus Club <br> 8/03 San Francisco, CA The Pound at Pier 96 <br> 8/04 Anaheim, CA The Shack <br> 8/05 Hollywood, CA Whiskey a Go Go <br> 8/07 Fort Collins, CO Starlight <br> 8/08 Lawrence, KS The Bottleneck <br> 8/09 Aurora, IL Riley's <br> 8/10 Milwaukee, WI Milwaukee Auditorium <br> 8/11 Clinton, IA Pig Pen <br> 8/12 St. Paul, MN The Lab <br> 8/13 St Louis, MO Creepy Crawl <br> 8/14 Detroit, MI I-Rock <br> 8/15 Lorain, OH Flying Machine <br> 8/16 W. Springfield, VA Jaxx <br> 8/17 Spartanburg, SC Ground Zero <br> 8/18 Tampa, FL Brass Mug <br> 8/19 Atlanta, GA The Masquerade <br> CATASTROPHIC-EUROPEAN DATES <br> 9/01 Trier, Germany Exil <br> 9/02 Vooselaar, Belgium Biebob <br> 9/03 Paris, France Locomotive <br> 9/04 Essen, Germany Zeche Carl <br> 9/05 Offenbach, German Hafenbahn <br> 9/06 Hengelo, Holland Metropool <br> 9/07 Zaandam, Holland Kade <br> 9/08 Helmond, Holland Plato <br> 9/09 Rotterdamn, Holland Baroeg <br> 9/10 Hamburg, Germany Markthale <br> 9/11 Berlin, Germany Razzle Dazzle <br> 9/12 Warsow, Poland Proxima <br> 9/13 Praha, Czech Republic Futurum <br> 9/14 Zwickau, Germany Alarm <br> 9/15 Vienna, Austria Arena <br> 9/16 Bresso, Italy Idian's Saloon <br> VADER <br> 6/28 Oklahoma City, OK Diamond Ballroom <br> 6/29 Fayetteville, AR Clunk Music Hall <br> 6/30 St. Louis, MO Creepy Crawl <br> 7/01 Aurora, IL Rileys <br> 7/03 Bowling Green, OH Howards Club H <br> 7/04 Columbus, OH Whiskey Pete's <br> 7/05 Detroit, MI The Shelter <br> 7/07 Toronto, ONT Kathedral Room <br> 7/08 Montreal, QUE Salle L'X <br> 7/10 Rochester, NY Water Street Music Hall <br> 7/11 Albany, NY Valentines <br> 7/12 Randolph, NJ Obsessions <br> 7/13 Worcester, MA Palladium <br> 7/14 Brooklyn, NY Lamour <br> 7/15 Springfield, VA Jaxx <br> 7/18 Winston-Salem, NC Ziggy's <br> 7/19 Birmingham, AL Boiler Room <br> 7/20 Tallahassee, FL Cow Haus <br> 7/21 Tampa, FL Brass Mug (Tent Show) <br> 7/24 Houston, TX The Engine Room <br> 7/25 Arlington, TX Dreamworld <br> 7/28 Anaheim, CA Chain Reaction <br> 7/29 San Francisco, CA The Pound <br> IMMOLATION and Krisiun (* Immolation only) <br> 8/03 Poughkeepsie, NY The Chance * <br> 8/04 Jackson Heights, NY Castle Heights * <br> 8/05 Syracuse, NY Planet 505 * <br> 8/06 Boston, MA Bill's Bar and Lounge * <br> 8/07 Randolph, NJ Obsessions * <br> 8/09 Cleveland, OH Agora Theatre * <br> 8/10 Detroit, MI I-Rock * <br> 8/11 Milwaukee, WI Milwaukee Auditorium <br> 8/12 St Paul, MN The Lab <br> 8/13 Lawrence, KS The Bottleneck <br> 8/14 Colorado Springs, CO Colorado Music Hall <br> 8/16 West Hollywood, CA The Whiskey A Go-Go <br> 8/17 Tempe, AZ Boston's Night Club <br> 8/19 Austin, TX The Backroom <br> 8/21 Tampa, FL The Brass Mug <br> 8/22 Ft Lauderdale, FL Culture Room <br> 8/23 Spartanburg, SC Ground Zero <br> 8/24 Richmond, VA Twisters <br> 8/25 Norfolk, VA Taj Mahal <br> 8/26 West Springfield, VA Jaxx <br> 8/27 New York, NY Wetlands <br> FLOTSAM & JETSAM <br> 7/28 West Hollywood, CA Troubadour <br> 9/28 Dallas, TX Canyon Club <br> 9/29 Austin, TX The Metro <br> 10/02 Tampa, FL Brass Mug <br> 10/06 Richmond, VA Canal Club <br> 10/13 Lorain, OH Flying Machine <br> 10/14 Aurora, IL Riley's <br> 10/20 Tucson, AZ The Rock <br> 11/02 Reseda, CA Paladino's <br> SPOCK'S BEARD <br> 7/15 Detroit, MI The Magic Bag <br> 7/16 Toronto, ONT tba <br> 7/17 Montreal, QUE tba <br> 7/18 Quebec City, QUE Le Dagobert <br> 7/20 Boston, MA House Of Blues <br> 7/21 W. Springfield, VA Jaxx <br> 7/22 Philadelphia, PA North Star Bar <br> 7/23 New York, NY The Bottom Line <br> 7/25 Lansing, IL JJ Kelly's <br> 7/26 Milwaukee, WI Shank Hall <br> 7/29 Las Vegas, NV Legends <br> 7/30 Los Angeles, CA tba <br> 7/31 San Francisco, CA Great American Music Hall <br> 8/01 San Diego, CA Cane's <br> DAVE BROCKIE EXPERIENCE <br> 8/30 Charlotte, NC Fat City <br> 9/01 Atlanta, GA Star Bar <br> 9/05 New Orleans, LA Dixie Taverne <br> 9/06 Houston, TX Fitzgerald's <br> 9/11 Tempe, AZ Big Fish Pub <br> 9/30 Cincinnati, OH Top Cat's <br> 10/01 Muncie, IN Fraction's <br> 10/02 Cleveland, OH Blind Lemon <br> 10/05 Worcester, MA Lucky Dog <br> LIZZY BORDEN <br> 7/06 Hollywood, CA House of Blues <br> 7/12 Anaheim, CA House of Blues <br> 7/13 San Francisco, CA Maritime Hall Ballroom <br> 7/14 Santa Cruz, CA Palookaville, Santa Cruz <br> JACOBS DREAM <br> 7/28 Columbus OH Park Metal Festival</p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 12.09.2003 news Новый альбом LIZZY BORDEN
+
+<p>Басист LIZZY BORDEN Marten Andersson опубликовал эти слова на своём сайте. "<b>Мы в студии работаем над новым альбомом LIZZY BORDEN. Также планируется выпуск DVD. Дата релиза: первая половина 2004 года.</b>"</p>
+
+Автор: Vit Belov
+
+### 16.09.2003 news LIZZY BORDEN record new CD
+
+LIZZY BORDEN's Bass Player Marten Andersson publishhed this words on his official site. "<B>We have been in the studio working on the new Lizzy Borden CD (and DVD) for the last six months. The CD will be released in the first part of 2004.</B>" <A href="http://rd.bcentral.com/?ID=1089625&s=23198388">More info</A>
+Автор: Vit Belov
+
+### 16.01.2008 reviews Глэм 80-х не вернуть?
+
+<P>Глэм-иконы 80-х не устают возвращаться. С той или иной степенью успеха почти все главные группы того периода существуют и поныне. Кто-то выпускает альбомы, а кто-то просто ездит в туры, зарабатывая деньги на прошлых успехах. LIZZY BORDEN возвращаются уже во второй раз. Первая попытка с альбомом “Deal With The Devil” не привела к чему-то ошеломляющему. Пускай то была первая студийная работа американцев за 11 лет, взрыва на рынке она не породила. Новая пластинка коллектива “Appointment With Death” появилась в продаже спустя долгих семь лет после первого ре-юниона. Её также называют возвращением и.т.п.</P>
+<P>Стильное оформление буклета с молоденькими моделями, загробный имидж музыкантов, пронзительный узнаваемый вокал Lizzy, наличие приглашённых гитаристов, среди которых Dave Meniketti, George Lynch и даже Erik Rutan, вот несомненные плюсы этого CD. Кстати, со звучанием гитар здесь действительно всё в порядке. На первых вещах музыка LIZZY BORDEN полна юношеского задора и heavy-metal тяжести. Правда, с каждой следующей песней саунд коллектива приближается к «современным» стандартам гитарной попсы, но и среди этих трэков выделяется танцевальная “Under Your Skin”, которая имеет все шансы стать хитом. Забавно, но бывший гитарист MORBID ANGEL Erik Rutan играет соло на одной из песен второй части альбома.</P>
+<P>Я не уверен, что LIZZY BORDEN ждёт большой успех с “Appointment With Death”. Несколько действительно сильных трэков на этом альбоме присутствуют, да и только. Былого задора и настроения никому из возрождающихся «глэмовиков» воссоздать не удаётся.</P>
+Автор: Vit Belov
+
+### 07.01.2009 news LIZZY BORDEN поделились планами
+
+<P><STRONG>Lizzy Borden</STRONG> рассказал о прошедшем годе для группы и заглянул в следующий. В прошлом году группа дала очень много концертов, совершив тур по Европе и США, а в будущем году группа даст ещё много концертов. <STRONG>Lizzy Borden</STRONG> сочиняет новые песни, но об этом было сказано вскользь, поэтому никакие даты и подробности неизвестны.</P>
+Автор: Vit Belov
+
+### 11.01.2009 news Ira Black объявил голодовку
+
+<P>Гитарист<STRONG> LIZZY BORDEN</STRONG> и бывший гитарист <STRONG>METAL CHURCH</STRONG>, <STRONG>VICIOUS RUMORS</STRONG> и <STRONG>HEATHEN ira Black</STRONG> объявил голодовку в тюрьме Лос-Анджелеса, в которую попал 3 января. Причиной этого поступка стало отсутствие в "заведении" условий для вегетарианцев, коим он является уже 15 лет.&nbsp;</P>
+Автор: Vit Belov
+
+### 27.01.2009 news Погиб бывший гитарист LIZZY BORDEN
+
+<P><IMG height=284 alt="Corey слева снизу" hspace=0 src="/images/news_rus/2009.01/13452.jpg" width=200 align=right border=5>В автокатострофе погиб бывший гитарист <STRONG>LIZZY BORDEN</STRONG> <STRONG>Corey Daum</STRONG> (a.k.a. <B>Corey James</B>). Ему было 39 лет. 24 января он ехал по Нэшвиллу в компании выпившего водителя, который разбил музыканта о бетонную стену на шоссе.</P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+### 12.02.2009 news LIZZY BORDEN покинул гитарист
+
+<P>Гитарист <STRONG>Ira Black</STRONG> покинул <STRONG>LIZZY BORDEN</STRONG>, чтобы сконцентрироваться на новой группе <STRONG>PROPHESY</STRONG>, которую он создал вместе с певцом <STRONG>Brian O'Connor</STRONG> (ex-<B itxtvisited="1">VICIOUS RUMORS</B>)&nbsp;и гитаристом&nbsp;<B itxtvisited="1">Fabian Schwarz</B> (<B itxtvisited="1">PARADOX</B>, <B itxtvisited="1">RUNAMOK</B>, <B itxtvisited="1">THE NEW BLACK</B>).</P>
+Автор: Vit Belov
+
+### 28.03.2009 news LIZZY BORDEN снимают девочек
+
+<P>Новое видео<STRONG> LIZZY BORDEN</STRONG> на песню <STRONG>"Under Your Skin" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:361900 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D361900%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A361900%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A361900" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/lizzy_borden/artist.jhtml" target=_blank>Lizzy Borden</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.05.2009 news Новый гитарист в LIZZY BORDEN
+
+<P>Новым гитаристом<STRONG> LIZZY BORDEN</STRONG> стал 19-летний музыкант<STRONG> Dario Lorina</STRONG>. Уже в 16 лет этот молодой человек ездил в тур с вокалистом <STRONG>WARRANT Jani Lane</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### LIZZY BORDEN! Впервые в России! 23 ноября!

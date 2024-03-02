@@ -111,6 +111,274 @@
 
 * C группой "Tiaga" Juska Salminen (keyboard)
 
+## Публикации
+
+### 20.03.2001 reviews Любовь Его Адского Величества
+
+<P>H.I.M. - это His Infernal Majesty. Он живет в Финляндии (а где же еще, собственно?..). Он неимоверно популярен сейчас даже и у публики, имеющей опосредованное отношение к металлу во всех его ипостасях - даже на MTV. А все благодаря фронтмэну Valo, которому никто не сказал, что он не Моррисон. Этот парень имеет имидж и эффект настоящего heartbreaker-а. Но дело не только в готическом имидже и томном взгляде. Вало еще и пишет песни для Его Адского Величества. По музыке это - быстрый, тяжелый, крайне драйвовый готик-рок или готик-металл, если угодно. Музыка сделана настолько чувственно, что его даже обзывают попсой. Она отлично подходит к текстам Вало. Тексты же посвящены двум темам - любви и смерти, причем в обязательном порядке обеим сразу. Такой коктейль потрясает эмоциональной мелодичностью, простой, как перевернутый крест, и способен вышибить слезу у влюбленной девушки. Главный Готический Гимн уже создан - 'Would you join me - in death? Would you die tonight - for love?..'</P>
+Автор: Alexey Hurin
+
+### 12.04.2001 news H.I.M. European live dates...
+
+<p> Finnish rock gods H.I.M. have lined up the following European live dates:</p>
+<p></p>
+<p> June 02 – Nьrburg, GER @ Rock am Ring</p>
+<p></p>
+<p> June 03 – Nьrnberg, GER @ Rock im Park</p>
+<p></p>
+<p> June 04 – Wels, AUS @ Spark 7 Festival</p>
+<p></p>
+<p> June 05 – Pieberstein, AUS @ Spark 7 Festival</p>
+<p></p>
+<p> June 06 – Innsbruck, AUS @ Spark 7 Festival</p>
+<p></p>
+<p> June 22 – Bex, SWI @ Open Air</p>
+<p></p>
+<p> Sept. 17 – Hamburg, GER @ Grosse Freiheit 36</p>
+<p></p>
+<p> Sept. 18 – Rostock, GER @ Stadthalle</p>
+<p></p>
+<p> Sept. 19 – Berlin, GER @ Columbiahalle</p>
+<p></p>
+<p> Sept. 21 – Chemnitz, GER @ Kraftwerk</p>
+<p></p>
+<p> Sept. 22 – Magdeburg, GER @ AMO</p>
+<p></p>
+<p> Sept. 23 – Hannover, GER @ Capitol</p>
+<p></p>
+<p> Sept. 25 – Oberhausen, GER @ Turbinenhalle</p>
+<p></p>
+<p> Sept. 27 – Mьnster, GER @ Jovel</p>
+<p></p>
+<p> Sept. 29 – Stuttgart, GER @ Schleyerhalle</p>
+<p></p>
+<p> Oct. 03 – Wien, AUS @ LIBRO-Halle</p>
+<p></p>
+<p> Oct. 04 – Zьrich, SWI @ X-tra Limmathaus</p>
+<p></p>
+<p> As reported yesterday, H.I.M. are tentatively scheduled to release their third full-length album in late August. Meanwhile, the group’s recent one-song collaboration with producer Kevin Shirley (i.e. IRON MAIDEN, DREAM THEATER) will reportedly be titled “Keep On Pretending” and is due to be released as a single in May.</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 12.04.2001 news Его Адское Величество...
+
+<p>Герои МТВ - финны H.I.M. запланировали выход третьего полноформатника на Август. Пока что группа занята с продюссером Kevin Shirley (IRON MAIDEN, DREAM THEATER) работой над песней "Keep On Pretending". Одноименный сингл выходит в Мае.</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Сольник Timo Kotipelto.....
+
+<p>Вокалист "STRATOVARIUS" - Timo Kotipelto работает над дебютным сольным альбомом, запланированным к выходу на начало 2002. Ему уже удалось собрать мощную команду для записи: Mike Romeo (гитара; SYMPHONY X), Roland Grapow (гитара; HELLOWEEN), Arjen Lucassen (гитара; AYREON), Sami Virtanen (гитара; JOE DOAKES), Jari Kainulainen (басс; STRATOVARIUS), Mirka Rantanen (барабаны; TUNNEL VISION), Gas (барабаны; H.I.M.), Janne Warman (клавиши; CHILDREN OF BODOM) и Mikko Harkin (клавиши; SONATA ARCTICA).</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Timo Kotipelto debut solo album ....
+
+<p>STRATOVARIUS vocalist Timo Kotipelto is hard at work on his debut solo album, which is tentatively due to be released in early 2002. As-yet-untitled, the album will feature a host of guest appearances from some of metal's top musicians, including the following: Mike Romeo (guitars; SYMPHONY X), Roland Grapow (guitars; HELLOWEEN), Arjen Lucassen (guitars; AYREON), Sami Virtanen (guitars; JOE DOAKES), Jari Kainulainen (bass; STRATOVARIUS), Mirka Rantanen (drums; TUNNEL VISION), Gas (drums; H.I.M.), Janne Warman (keyboards; CHILDREN OF BODOM), Mikko Harkin (keyboards; SONATA ARCTICA). In related news, STRATOVARIUS have announced that they will be taking part in four European festivals this summer. The dates are as follows: June 28 - Roskilde Festival, DEN, June 30 - Bang Your Head Festival, GER, July 07 - Ruisrock Festival, FIN, July 13 - Tuska Metal Festival, FIN. Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 06.07.2001 news Глубокие тени и не только....
+
+<p>Новенький опус "H.I.M." - "Deep Shadows & Brilliant Highlights" выйдет на G.U.N./Supersonic Records 27-го Августа и будет содержать следующие песни: 01. Pretending 02. Please Don’t Let It Go 03. Heartache 04. In Joy And Sorrow....</p>
+
+Автор: Yermola
+
+### 06.07.2001 news H.I.M.&#39;s upcoming Deep Shadows .....
+
+<p>H.I.M.’s upcoming Deep Shadows & Brilliant Highlights CD, which is due to be issued through G.U.N./Supersonic Records on August 27th, will contain the following tracks, among others: 01. Pretending 02. Please Don’t Let It Go 03. Heartache 04. In Joy And Sorrow. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Приз Зрительских Симпатий...
+
+<p>H.I.M. получили Приз Зрительских Симпатий на прошедшей в Финляндии Viva Comet Awards. Другими номинантами в этой категории были PAPA ROACH, LIMP BIZKIT, EMINEM and LINKIN PARK (Вау! "Замечательный" список!). Вручил приз некий Игги Поп (который является настоящим кумиром для участников банды). Из других новостей, выход сингла "In Joy And Sorrow" из нового альбома "Deep Shadows And Brilliant Highlights" отложен до 1-го октября.</p>
+
+Автор: Yermola
+
+### 22.08.2001 news Viewers&#39; Choice Award ...
+
+<p>Finland's H.I.M. won the Viewers' Choice Award at the Viva Comet Awards Friday night. Other nominations in that category were PAPA ROACH, LIMP BIZKIT, EMINEM and LINKIN PARK. The award was presented by Iggy Pop — one of the biggest heroes of the members of the H.I.M. band. In other news, the release of the next H.I.M. single, "In Joy And Sorrow"—taken from the group’s upcoming Deep Shadows And Brilliant Highlights CD—has been set for October 1st. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.09.2001 reviews Глубокие тени и бриллиантовые подсветки
+
+<p>Глубокие тени и бриллиантовые подсветки. Третий новейший альбом нового кумира девчонок и некоторых мальчишек вышел как нельзя вовремя. Снова из колонок слышится романтический готик-рок, слегка грубоватый и меланхоличный, воодушевляющий нас на любовные победы и страстные свидания. Новый альбом - следующая глава в истории успеха финнов. По большому принципу, он не несет собой ничего нового, являясь смесью двух предыдущих альбомов. Многие вещи с этого альбома содержат просто цельные риффовые фрагменты с предыдущих творений. Однако встречаются и куски совершенно не присущие группе раньше. Металлические элементы сократились до нельзя, остались сплошные рок-риффы с влиянием семидесятых и сладкий голос. Отполированный звук позволяет услышать все новомодные звуки и уловить скрытую атмосферу альбома. Новый альбом группы захватывает своими мелодиями и эксцентрикой унося слушателя в мир элегантности, очарования и страсти. Музыка стала еще более доступной, и я не удивлюсь если после этого альбома армия поклонников группы увеличится в несколько раз, особенно за счет любителей поп-музыки. Однако, не волнуйтесь, все не так уж плохо. Те кому группа нравилась, вряд ли будут разочарованы.</p>
+
+Автор: Dimas
+
+### 08.01.2002 news Немецкие Media Control Чарты превращаются в попсу...
+
+<p>Одного взгляда на Германский Media Control (Top 100) chart за неделю по 7-е января достаточно, чтобы понять - миром правит попса... или по крайней мере рэп-кор: <BR><BR> 17. LIMP BIZKIT - New Old Songs <BR> 22. LINKIN PARK - Hybrid Theory<BR> 26. CREED - Weathered <BR> 31. KID ROCK - Cocky <BR> 41. NICKELBACK - Silver Side Up <BR> 42. LENNY KRAVITZ - Lenny <BR> 57. H.I.M. - Deep Shadows And Brilliant... <BR> 58. SUM 41 - All Killer No Filler <BR> 59. FARIN URLAUB - Endlich Urlaub <BR> 60. RAMMSTEIN - Mutter<BR> 84. STAIND - Break The Cycle <BR> 99. AEROSMITH - Young Lust <BR></p>
+
+Автор: Yermola
+
+### 08.01.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending January 7th (as reported by Rock Hard magazine): <BR><BR> 17. LIMP BIZKIT - New Old Songs <BR> 22. LINKIN PARK - Hybrid Theory<BR> 26. CREED - Weathered <BR> 31. KID ROCK - Cocky <BR> 41. NICKELBACK - Silver Side Up <BR> 42. LENNY KRAVITZ - Lenny <BR> 57. H.I.M. - Deep Shadows And Brilliant... <BR> 58. SUM 41 - All Killer No Filler <BR> 59. FARIN URLAUB - Endlich Urlaub <BR> 60. RAMMSTEIN - Mutter<BR> 84. STAIND - Break The Cycle <BR> 99. AEROSMITH - Young Lust <BR></p>
+
+Автор: Yermola
+
+### 04.10.2002 news Love Metal от H.I.M.
+
+<p>Финские лидеры love metal H.I.M. вошли в Finnvox studios для записи своего четвертого альбома, который так и будет называется "Love Metal". До конца октября группа запишет 11 новых песен вместе с продюссером Hiili Hiilesmaa (который продюссировал первый альбом группы "Greatest Love Songs Vol. 666"). В ноябре-декабре ожидается микширование альбома. А выход нового диска ожидается в марте-апреле 2003 года.</p>
+
+Автор: Dimas
+
+### 15.01.2003 news Новости от H.I.M.
+
+<p>Финская команда H.I.M. определилась с окончательным трэк-листом своего нового альбома под названием "Love Metal" который должен выйти в апреле 2003 года на BMG Records. В альбом войдут следующие вещи:</p>
+<p> 01. Rescue<BR> 02. Circle Of Fear <BR> 03. Endless Dark<BR> 04. Funeral Of Hearts <BR> 05. This Fortress Of Tears <BR> 06. The Heart Of Darkness<BR> 07. The Sacrament<BR> 08. Soul On Fire <BR> 09. Sweet Pandemonium <BR> 10. Beyond Redemption <BR> 11. Through The Darkness</p>
+
+Автор: Dimas
+
+### 05.04.2003 reviews Любовь и Метал
+
+<p>Его Инфернальное Величество в четвертый раз по-крупному радует уши любвеобильных девушек и смазливых мальчиков. Да и не только их. Попса - крикнете вы... Попса - соглашусь с вами. Но очень качественная, приятная и радующая сознание. Теперь уже точно ясно, что группа после сильной раскрутки вышла на тот определенный уровень, когда от нее уже не приходится ждать неинтересной продукции, даже несмотря на то, что и неожиданностей никаких ждать не приходится. Что за музыка будет на альбоме, известно заранее. Вот и на новом альбоме, прямо так и названном "Love Metal" вы услышите все тот же love metal который группа играла с самого первого альбома 1998 года. Немного мрачная, при этом романтичная, ритмичная и навязчиво мелодичная музыка, с депрессивными текстами и тоскливым вокалом. Путем соединения всего лучшего с предыдущих трех альбомов (тяжесть первого, рок-н-ролл задор со второго и мелодику с третьего) Вилле Вало удалось несколько освежить материал группы. Но суть осталась та же: единство противоположностей на фоне красивых меланхоличных мелодий и тяжелого звучания (да-да, все еще тяжелого). Продюсером альбома был Hiili Hiilesmaa, с которым был записан самый первый альбом группы "The Greatest Love Songs Vol. 666". Из десяти вещей на альбоме трудно выделить лучшую, каждую из них можно считать хитом и в любой момент прогонять на радио или крутить по МТВ. Альбом, без сомнения, понравится всем поклонникам группы, при этом, наверняка, привлечет и еще массу новых.</p>
+
+Автор: Dimas
+
+### 06.08.2003 news Ближайшие планы H.I.M.
+
+<p>У самого успешного финского рок-проекта последних лет H.I.M. истек срок контракта с BMG Records. В настоящее время, музыканты заняты поисками нового лэйбла. Им уже поступило несколько предложений от мажорных компаний. Окончательное решение будет принято осенью.<BR> В ноябре, группа планирует к выпуску свой первый концертный альбом "Live Metal", который был записан и снят весной во время выступлений группы в Хельсинки. Концертник выйдет в специальной упаковке, включающей в себя аудио-диск и DVD. <BR> В дополнение к этому, в начале 2004 года BMG Records выпустит "Greatest Hits".<BR> Новый альбом группы выйдет не раньше 2005 года.</p>
+
+Автор: Dimas
+
+### 01.01.2004 news H.I.M. in UK
+
+Jan. 25 – Birmingham, UK @ Academy <BR>Jan. 26 - Glasgow, UK @ Barrowlands<BR>Jan. 28 - Bristol, UK @ Academy<BR>Jan. 29 - Portsmouth, UK @ Pyramid Centre<BR>Jan. 30 - Manchester, UK @ Academy<BR>Jan. 31 - Nottingham, UK @ Rock City
+Автор: Vit Belov
+
+### 08.03.2004 news Zeraphine and HIM in Europe
+
+19.03.04 A-Wien :: Gasometer <BR>20.03.04 A-Linz :: Posthof <BR>21.03.04 CH-Z&uuml;rich :: Maag Music Hall (oder X-Tra Limmat Haus) <BR>22.03.04 CH-Biel :: Kongesshaus <BR>25.03.04 Hamburg :: Grosse Freiheit (sold out) <BR>26.03.04 Hamburg :: Grosse Freiheit <BR>27.03.04 Bremen :: Pier 2 <BR>28.03.04 M&uuml;nster :: Jovel <BR>30.03.04 Magdeburg :: AMO <BR>31.03.04 Berlin :: Columbiahalle <BR>01.04.04 Leipzig :: Easy Auensee <BR>02.04.04 Dresden :: Alter Schlachthof <BR>03.04.04 K&ouml;ln :: Palladium <BR>05.04.04 Dortmund :: Soundgarden <BR>06.04.04 Offenbach :: Capitol <BR>07.04.04 M&uuml;nchen :: Muffathalle <BR>
+Автор: Vit Belov
+
+### 10.09.2004 news HIM на Sire Records
+
+<P><STRONG>HIM </STRONG>заключили сделку с <STRONG>Sire Records</STRONG>, подразделением <STRONG>Warner Music Group</STRONG>. <STRONG>Ville Vallo</STRONG> надеется начать запись новой пластинки в январе-феврале.</P>
+Автор: Vit Belov
+
+### 30.05.2005 news Новый альбом H.I.M.
+
+<P>Новый альбом <STRONG>H.I.M. "Dark Light"</STRONG> анонсирован к выходу 26 сентября. В настоящее время альбом микшируется, а <STRONG>Ville Valo</STRONG>&nbsp;в недавнем интервью сообщил, что группа вдохновлялась работами&nbsp;"киношного" композитора <STRONG>Angelo Badalamenti</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 02.06.2005 news Трэк-лист нового альбома HIM
+
+<P>Стал известен трэк-лист нового альбома <STRONG>H.I.M.</STRONG> "<STRONG>Dark Light</STRONG>":</P>
+<P>01. <B>Dark Light</B> <BR>02. <B>Behind the Crimson Door</B> <BR>03. <B>Face of God</B> <BR>04. <B>Bound to be Wrong</B> <BR>05. <B>Killing Loneliness</B> <BR>06. <B>Under the Rose</B> <BR>07. <B>Forever Haunted</B> <BR>08. <B>Wings of a Butterfly</B> <BR>09. <B>Night in Despair</B> <BR>10. <B>Drunk on Shadows</B> <BR></P>
+Автор: Vit Belov
+
+### 02.12.2005 news Фронтмен HIM был ограблен
+
+<P>По сообщению <STRONG>ContactMusic.Com</STRONG>, фронтмен <STRONG>HIM Ville Vallo</STRONG> был ограблен в Минниаполисе, США, где он находился&nbsp;во время американского турне группы. Неизвестные, с которыми <STRONG>Ville</STRONG> захотел выпить по кружке пива, подсыпали ему в стакан неопознанный наркотик. </P>
+<P>Очнулся певец в комнате отеля, которую он не видел никогда в жизни.</P>
+<P>"<EM>Они украли у меня пиджак, препарат для лечения астмы, сигареты, кредитные карты и сотовый телефон</EM>", - жалуется мистер <STRONG>Vallo</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.02.2006 news Вокалист H.I.M. арестован
+
+<P>В понедельник 6 февраля вокалист <STRONG>H.I.M. Ville Valo</STRONG> был арестован за попытку нанесения тяжких телесных повреждений своему соседу. По невыясненным причинам, <STRONG>Ville</STRONG> швырнул в дверь соседа цветочный горшок. Сосед немного на него поругался, а его жена вызвала полицию, которая и забрала <STRONG>Valo</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.07.2007 news Новый альбом H.I.M.
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.07/11732.jpg" width=400 align=right border=5>Новый альбом <STRONG>H.I.M. "Venus Doom" </STRONG>выходит осенью. Пластинка была смикширована в Голливуде в <STRONG>Paramount Studio</STRONG>. Трэк-лист:</P>
+<P>01. <B>Venus Doom</B><BR>02. <B>Love in Cold Blood</B><BR>03. <B>Passion's Killing Floor</B><BR>04. <B>Kiss of Dawn</B><BR>05. <B>Sleepwalking Past Hope</B><BR>06. <B>Dead Lover's Lane</B><BR>07. <B>Song or Suicide</B><BR>08. <B>Bleedwell</B><BR>09. <B>Cyanide Sun</B></P>
+<P>Песня "<STRONG>Passions Kiling Floor</STRONG>" попала на саундтрэк к фильму "<STRONG>Трансформеры</STRONG>", идущему сейчас в нашем прокате.</P>
+Автор: Vit Belov
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 03.12.2007 news Новое видео от H.I.M.
+
+<P><STRONG>H.I.M.</STRONG> отсняли новое видео на песню <STRONG>"Bleed Well".</STRONG> В работе над ним были использованы кадры с концертных выступлений финнов <STRONG>Orpheum Theatre</STRONG> в Лос-Анжелесе. Съёмки с этого шоу войдут на будущее концертное DVD группы.</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/xqGk6VZIoRE&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/xqGk6VZIoRE&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 01.02.2008 news Новое DVD от H.I.M.
+
+<P>11 марта на <STRONG>Warner </STRONG>выходит новый CD/DVD<STRONG> H.I.M.</STRONG> <STRONG>"Digital Versatile Doom: Live at the Orpheum Theatre". </STRONG>Концерт был отснят 14 и 15 ноября в Лос-Анжелесе.</P>
+Автор: Vit Belov
+
+### 09.03.2008 news Новое DVD от H.I.M.
+
+<P>Стали известны подробности нового CD/DVD <STRONG>H.I.M.</STRONG> <STRONG>"Digital Versatile Doom: Live at the Orpheum Theatre"</STRONG>, выходящего 1 апреля на <STRONG>Warner</STRONG>. Трэк-лист:</P>
+<P>01. <B>Passion's Killing Floor</B><BR>02. <B>(Rip Out) the Wings of a Butterfly</B><BR>03. <B>Buried Alive By Love</B><BR>04. <B>Wicked Game</B><BR>05. <B>The Kiss of Dawn</B><BR>06. <B>Vampire Heart</B><BR>07. <B>Poison Girl</B><BR>08. <B>Dead Lovers' Lane</B><BR>09. <B>Join Me in Death</B><BR>10. <B>It's All Tears</B><BR>11. <B>Sleepwalking Past Hope</B><BR>12. <B>Killing Loneliness</B><BR>13. <B>Soul On Fire</B><BR>14. <B>Your Sweet Six Six Six</B><BR>15. <B>Bleed Well</B><BR>16. <B>The Funeral of Hearts</B></P>
+Автор: Vit Belov
+
+### 12.06.2009 news H.I.M. назвали альбом
+
+<P><STRONG>H.I.M.</STRONG> войдут в студию в августе для записи нового альбома <STRONG>"Screamworks: Love In Theory And Practice"</STRONG>, который должен выйти в феврале будущего года на <STRONG>Warner</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.11.2009 news Новый альбом HIM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=336 alt="" hspace=0 src="/images/news_rus/2009.11/15595.jpg" width=338 align=right border=5>Новый альбом<STRONG> HIM</STRONG> <STRONG>"Screamworks: Love In Theory And Practice" </STRONG>выйдет в следующем году. Пластинка была записана с продюсером <STRONG>Matt Squire</STRONG> (<B>TAKING BACK SUNDAY</B>, <B>THE USED</B>, <B>PANIC AT THE DISCO</B>, <B>BOYS LIKE GIRLS</B>, <B>THRICE</B>). Трэк-лист:</FONT></P>
+<P>01. <B>In Venere Veritas</B><BR>02. <B>Scared To Death</B><BR>03. <B>Heartkiller</B><BR>04. <B>Dying Song</B><BR>05. <B>Disarm Me (With Your Loneliness)</B><BR>06. <B>Love, The Hardest Way</B><BR>07. <B>Katherine Wheel</B><BR>08. <B>In The Arms Of Rain</B><BR>09. <B>Ode To Solitude</B><BR>10. <B>Shatter Me With Hope</B><BR>11. <B>Acoustic Funeral (For Love In Limbo)</B><BR>12. <B>Like St. Valentine</B><BR>13. <B>The Foreboding Sense Of Impending Happiness</B></P>
+Автор: Vit Belov
+
+### 04.12.2009 news Новый сингл HIM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Heartkiller"</STRONG> - новый сингл <STRONG>HIM</STRONG> - можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/heartagram">http://www.myspace.com/heartagram</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня попадёт на новый альбом группы <STRONG>"Screamworks: Love In Theory And Practice".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 09.01.2010 news Новое видео H.I.M.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>H.I.M.</STRONG> на песню <STRONG>"Heartkiller" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=102011385,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=102011385,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.01.2010 news Новое видео HIM
+
+<P>Клип <STRONG>HIM </STRONG>на песню <STRONG>"Like St. Valentine" </STRONG>можно посмотреть ниже. Песня попадёт на новый альбом финнов <STRONG>"Screamworks: Love In Theory And Practice"</STRONG>,&nbsp;который выйдет 9 февраля.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qHXdZXxCG1E&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/qHXdZXxCG1E&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.02.2010 news H.I.M. - 25-ые
+
+<P>Новый альбом <STRONG>H.I.M.</STRONG> <STRONG>"Screamworks: Love In Theory And Practice" </STRONG>попал в чарты<STRONG> Billboard</STRONG> на почётное 25-ое место. Было продано 26000 экземпляров альбома. Прошлый альбом финнов <STRONG>"Venus Doom"</STRONG> стартовал в США с 12 места.</P>
+Автор: Vit Belov
+
+### 23.03.2010 news Новое видео H.I.M.
+
+<P>Новое видео <STRONG>H.I.M.</STRONG> на песню <STRONG>"Scared To Death" </STRONG>можно посмотреть ниже. </P>
+<P>
+<CENTER><FONT face=Verdana color=#999999 size=1><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=103672406">HIM "Scared To Death"</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=103672406,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=103672406,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT><BR><A href="http://profile.myspace.com/index.cfm?fuseaction=user.viewprofile&friendid=4739583">HIM</A> | <A href="http://music.myspace.com/index.cfm?fuseaction=videos">MySpace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.08.2010 news Дочка Iommi помолвилась с гитаристом HIM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дочка гитариста <STRONG>BLACK SABBATH Tony Iommi</STRONG> <STRONG>Toni-Marie Iommi </STRONG>объявила о помолвке с гитаристом HIM <STRONG>Mikko "Linde" Lindstrom. </STRONG>Девушке 27 лет, и она поёт в группе<STRONG> HALO</STRONG>&nbsp;(<A href="http://www.myspace.com/halobandmusic">www.myspace.com/halobandmusic</A>).</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2010.08/17039.jpg" width=400 height=273></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### В мире покупается ВСЕЕЕ! HIM на корпоративной вечеринке вчера

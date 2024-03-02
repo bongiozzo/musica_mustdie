@@ -68,6 +68,39 @@ Remember
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.1999 news 
+
+<p>После года написания песен Love Like Blood готовы к записи нового альбома. Произведение будет записано в августе-сентябре в Англии вместе с продюсером Симоном Эфеми (Paradise Lost, Pantera, Helmet, Amorphis).</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 reviews Новый альбом ветеранов немецкой готической сцены
+
+<p>Новый альбом ветеранов немецкой готической сцены, которые резко прогрессируют в последнее время. Предыдущий альбом группы, вышедший после некоторого затишья произвел много шума в готическом мире. новым альбомом братья решили сделать решающий рывок на пьедестал почета. Думаю, им это вполне удалось. Во всяком случае он мне понравился не меньше, чем признанный лидер прошлого года "The Cycle" от DREADFUL SHADOWS. LOVE LIKE BLOOD строго соблюдают все готик-роковые каноны. никакой электроники, более мощное и более резкое звучание чем у тех же DREADFUL SHADOWS. Много баса и акустики, немного клавишных на заднем плане и, главное, много мелодичной гитары во главе угла. Дуэт братьев-вокалистов грозен и мрачен. Сама же музыка менее мрачная. чем могло бы быть. Альбом в лучших традициях жанра у истоков которого стояли SISTERS OF MERCY.</p>
+
+Автор: Dimas
+
+### 13.06.2000 reviews New album of the veterans of the german Gothic scene
+
+<p>New album of the veterans of the german Gothic scene, which sharply progress recently. The previous album of the groups which have left after some break has made a lot of noise in the Gothic world. By a new album the brothers have decided to make decisive jerk on a pedestal of honour. I think, it quite was possible to them. Anyway it has liked me not less, than recognized leader of the last year " The Cycle " from DREADFUL SHADOWS. LOVE LIKE BLOOD strictly observe all gothic-rock canons. Any electronics engineering, more powerful and sharper sounding than at same DREADFUL SHADOWS. It is a lot of a bass and acoustics, it is a little keyboard on a background and, main, it is a lot of a melodious guitar in the chapter of an angle. The duet of the brothers - singers is gloomy. Music less gloomy. Than could be. An album in the best traditions of a genre at which sources stood SISTERS OF MERCY.</p>
+
+Автор: Dimas
+
+### 04.07.2000 news Love Like Blood готовят новый релиз.
+
+<p>Love Like Blood готовят новый релиз. Конечно же, речь не идёт о новом альбоме. Это будет специальная компиляция, которая выйдет в конце года. В студии группа проведёт всё лето.</p>
+
+Автор: Vit Belov
+
+### 04.07.2000 news Love Like Blood prepares to new release.
+
+<p>The band announced that they already pretty busy with their next recordings. They're not talking about a pretty normal follow-up album, right now they prepare a special compilation album, which hopefully will be out end of this year. Love Like Blood will stay and work at studio during the summer time. So get back here later to get more details about this promising project.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

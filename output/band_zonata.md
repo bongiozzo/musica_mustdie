@@ -39,6 +39,106 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.03.2000 reviews 
+
+<p>Шведов в пауэре становится всё больше и больше. Немцы берегитесь! Довольно интересный мелодизм и исполнительское мастерство заставляют обратить небольшое внимание на этот альбом, помесь Gamma Ray и Hammerfall. По музыке ничего нового группа не сказала, только лишь повторила рецепт, опробованный временем, но, вроде бы, всё совсем нелохо. Радует частое использование пианино, и не только на медленных песнях, а на девятом трэке, так, вообще, какой-то кусочек классикоподобия. Всё это я рассказываю для любимтелей пауэр, если у них в коллекции есть десятки подобных пластинок, то пусть они купят и эту. Она явно будет не худшей. Недостатком компакта является вокалист, который временами похож на Хансена, временами на Киске, а временами на Канса, но в целом он никакой, к сожалению. Его ребятам стоило бы поменять или отправить в музыкальную школу. 7,5 из 10.</p>
+
+Автор: Vit Belov
+
+### 29.09.2000 news Гитарист группы Zonata увольняется
+
+<p>Гитарист Henrik Carlsson принял решение уйти из Zonata, поскольку больше не заинтересован в таком виде деятельности. Несмотря на это, оставшиеся члены группы войдут 13 ноября в шведскую студию Underground для записи нового альбома, который предположительно выйдет в свет в начале 2001 года.</p>
+
+Автор: Phantom Lord
+
+### 01.03.2001 news Реальность от Zonata....
+
+<p>Официальный сайт "Zonata" опубликовал дату выхода альбома "Reality" в Европе - 19 марта. Трек-лист: 1. Reality 2. Divided We Stand 3. Illusion Of Madness 4. Hollow Rain 5. Symphony Of The Night 6. Forever 7. Wheel Of Life 8. Dimension To Freedom 9. Evil Mind 10. Life? 11. Intro + Gate Of Fear (newrecorded 2000). На японском релизе будут еще два дополнительных бонуса.</p>
+
+Автор: Yermola
+
+### 01.03.2001 news Reality from Zonata...
+
+<p>We have a new date for release in Europe: 19th of March. We have no date in Japan yet but itґs coming! The tracklisting is as follows: 1. Reality 2. Divided We Stand 3. Illusion Of Madness 4. Hollow Rain 5. Symphony Of The Night 6. Forever 7. Wheel Of Life 8. Dimension To Freedom 9. Evil Mind 10. Life? 11. Intro + Gate Of Fear (newrecorded 2000). 2 instrumental bonustracks will be added for the Japan release</p>
+
+Автор: Yermola
+
+### 30.04.2001 reviews Cенсация в мире power metal
+
+<p>Cенсация в мире power metal. Когда я начал слушать этот альбом, то мне показалось, что это новый альбом Gamma Ray! Хотя потом я выяснил, что это еще также напоминает Kamelot, Helloween и Rhapsody. Очень сильный симфоническо-оркестральный мелодичный power-speed metal. Звучит чрезвычайно свежо, хоть и изобилует стандартными ходами. Шведам удалось скомпилировать все самое лучшее. Высокую энергетику, бешеный мелодизм, неоклассические влияния, прогрессивные элементы, отличный высокий вокал, блестящие клавишные проигрыши. Неистовый скоростной и супермелодичный материал. Мощный и приятный альбом. Превосходная гитарная работа. Этот альбом намного сильнее дебютника. Намного более зрелый альбом. Очень рекомендую!</p>
+
+Автор: Dimas
+
+### 19.09.2001 news Прибавление в семействе Zonata...
+
+<p>Шведские пауэрщики "ZONATA" приняли на работу гитариста Niclas Karlsson, раннее игравшего в "CONVICTION" и "CRYSTAL EYES". Как сообщается на официальном сайте команды: "Никлас принесет своеобразные навыки написания песен, безумную гитарную игру и добавит команде больше металла и больше длинных волос...". Сам "именинник" заявляет: "Мне всего 30 лет и я играю на гитаре уже около 15 лет. Люблю мелодичный хэви-метал и классику и я очень серьезно занимаюсь всем этим, это, можно сказать, моя религия... Мои любимые группы: JUDAS PRIEST, BLACK SABBATH, RAINBOW, CRIMSON GLORY, QUEENSRYCHE, MANOWAR, ACCEPT , HELLOWEEN и IRON MAIDEN, так же мне нравятся RAGE, BLIND GUARDIAN, SYMPHONY X, etc. Любимые гитаристы: Yngwie Malmsteen, John Petrucci, Michael Romeo и Michael Shenker."</p>
+
+Автор: Yermola
+
+### 19.09.2001 news ZONATA have acquired former CONVICTION guitarist...
+
+<p>Sweden’s ZONATA have acquired former CONVICTION guitarist Niclas Karlsson. According to the group’s official web site, they are "convinced that Niclas will bring new stunning songwriting, crazy guitar playing, more metal and longer hair into the band." Karlsson himself goes on to say that "I am just about 30 years old. I have been playing guitar for about 10-15 years. I love melodic heavy metal and classical music and I'm very dedicated to it, it's almost like my religion. It started when my uncle showed me the beginning of ‘Beyond The Realms Of Death’ with JUDAS PRIEST and then I started to learn more and discovered how fun it was. My favorite bands are; JUDAS PRIEST, BLACK SABBATH, RAINBOW, CRIMSON GLORY, QUEENSRYCHE, MANOWAR, ACCEPT , HELLOWEEN and IRON MAIDEN but I also like newer bands as RAGE, BLIND GUARDIAN, SYMPHONY X, etc. My favourite guitar players are; Yngwie Malmsteen, John Petrucci, Michael Romeo and Michael Shenker. Before I joined ZONATA I played in a band called CONVICTION and before that I started the band CRYSTAL EYES together with Mikael Dahl. Apart from guitarplaying and songwriting I also enjoy fishing, motorbikes, computers, cars and working out." In other news, ZONATA is planning some gigs around Sweden this winter and are writing new material for a third album, which will likely be recorded at Studio Underground in early 2002 for a mid-year release. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Гость программы: Андрей Кузнецов - промо-менеджер компании ФОНО [www.fono.ru]<BR><BR> Playlist:<BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 07.01.2003 news Потери в ZONATA
+
+<p>Шведская power metal группа ZONATA понесла потери в лице гитариста-вокалиста Johannes Nyberg и гитариста John Nyberg. Теперь срочно ищется им замена. Если кто-то заинтересован, пишите по адресу niclas.ka@telia.com</p>
+
+Автор: Dimas
+
+### 21.01.2003 news Singer and keybord player leave ZONATA...
+
+<p>Johannes and John Nyberg have suddenly decided to quit Zonata after the release of their third full album “Buried Alive”. Therefore the band (based in Borеs, Sweden) is now seeking for a new singer and a new keyboard player. If you think you might be the one, please contact the band at: niclas.ka@telia.com</p>
+
+Автор: Vit Belov
+
+### 22.01.2003 reviews Опять шведский power?!
+
+<p>Опять power metal. Опять из Швеции. Слава богам, ни имеющий ничего общего с HAMMERFALL. Насколько я понимаю, это не первый альбом "Сонаты" с родины "Абсолюта", что, впрочем, дела не меняет. Команда это молодая, в рядах которой замечены профессионалы барабанных палочек, шести и четырёх струн, чёрных и белых кнопочек, а также вменяемый вокалист (не пищит аки Фаринелли-кастрат, и на том спасибо)… которые, к сожалению, предпочитают штамповку творчеству. Штамповка сия, простите за словоблудие, довольная искренняя (sic!), но дальше признания очевидного (а именно: достойного качества записи и исполнения) у меня дело не пошло. Неплохой альбом от продолжателей дела HELLOWEEN и GAMMA RAY, в музыке которых также встречаются отголоски лучших работ Ингви Мальмстина и AT VANCE, но не более того.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.04.2003 news ZONATA больше нет
+
+<p>Грустная новость для поклонников power metal - шведская группа ZONATA больше не существует. Однако, участники группы не отрицают, что может быть в отдаленном будущем наступит день, когда они снова соберутся и запишут новый альбом. Но на сегодняшний день музыканты устали и их идеи исчерпаны...</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Secret Sphere и Zonata

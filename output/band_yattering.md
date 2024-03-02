@@ -109,6 +109,45 @@ Cover artwork & layout by Krzysztof Iwin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2001 news Геноцид завершен...
+
+<p>Польские дэтстеры Yattering завершили работу над очередным студийником "Genocide". Продюссировал альбом Piotr Lukaszewski (Vader) и запись проходила в Гданьской Red Studio. Ранее названный "III" опус повествует о серийных убийцах и их ощущениях. Большинство песен вдохновлено польскими "Чикатиллами" и одна - немецким. "До этого никто не интересовался этой темой и Yattering собирается занятся ей..." - говорит группа. Артворк к "Геноциду" выполнил Krzysztof Iwin, до этого оформлявший все диски группы и часть работ "Vader". Трек-лист: <BR><BR> <IMG SRC="/images/news_rus/2001.12/2177.jpg" ALT="pho" width="225" height="153" hspace="15" vspace="5" border="1" align="right" /> "Rapist's Victim" <BR> "Non-typical Homo" <BR> "666 (non-adapted socially)" <BR> "III," "Inflow (thought from outside)" <BR> "Temptation of a Crime" <BR> "Sentence (to die)" <BR> "Murder (you are)" <BR> "Panic in Sea of Blood" <BR> "Living Bomb" <BR><BR> Дата выхода - 25 марта 2002 на Season Of Mist в Европе и лето 2002 на Relapse Records....</p>
+
+Автор: Yermola
+
+### 19.12.2001 news Poland&#39;s Yattering have completed work on their forthcoming studio album...
+
+<p>Poland's Yattering have completed work on their forthcoming studio album, Genocide, with producer Piotr Lukaszewski (Vader). The album was recorded at Red Studio in Gdansk. Genocide, previously titled III, will be about serial killers and their mindsets. Most of the material for the album is inspired by Polish murderers and one song will reportedly be growled in German. "No one really interferes in the direction Yattering is going to take," said Yattering about Genocide. "We are pretty sure we will destroy everyone with our new album. For the time being, Zombek has made up most of the music (at least drum-wise). It is still very technical and even more brutal and intensive." The cover art for Genocide will be handled by Krzysztof Iwin, whose previous work included all of Yattering's cover art and select Vader pieces. Yattering says the cover will be "controversial." Genocide's song titles are as follows: <BR><BR> <IMG SRC="/images/news_rus/2001.12/2177.jpg" ALT="pho" width="225" height="153" hspace="15" vspace="5" border="1" align="right" /> "Rapist's Victim" <BR> "Non-typical Homo" <BR> "666 (non-adapted socially)" <BR> "III" <BR> "Inflow (thought from outside)" <BR> "Temptation of a Crime" <BR> "Sentence (to die)" <BR> "Murder (you are)" <BR> "Panic in Sea of Blood" <BR> "Living Bomb" <BR><BR> Yattering's Genocide will be out March 25, 2002 on Season Of Mist in Europe and sometime in summer 2002 on Relapse Records.</p>
+
+Автор: Yermola
+
+### 13.09.2002 news YATTERING SIGN TO CANDLELIGHT...
+
+<p>Polish death Metal legends have signed to candlelight and will release their new album “Genocide” in March 2003. This is an exceptional album. More info visit the bands site at www.yattering.pl</p>
+
+Автор: Yermola
+
+### 22.09.2002 news Новости от YATTERING
+
+<p>Польские death-металлеры YATTERING разорвали контракт с французской конторой Season Of Mist и подписали новый контракт с Candlelight Records. Там, группа и выпустит свой третий альбом "Genocide" в марте 2003 года.</p>
+
+Автор: Dimas
+
+### 01.06.2003 news MESS AGE and YATTERING European Tour 2003
+
+<p>MESS AGE as support for YATTERING European tour 2003;</p>
+<P> 20/06 GLASGOW (UK) - Strawberry fields, 56 Oswald St.<BR> 21/06 BRADFORD (UK) - RIOS<BR> 22/06 TBA - are you interestintg to do it?<BR> 23/06 LONDON (UK) - The VERGE + as support DAM, BRAINCHOKE<BR> 24/06 TBA - are you interestintg to do it?<BR> 25/06 TBA - are you interestintg to do it?<BR> 26/06 Gent - Frontline (Belgique)<BR> 27/06 Metz - Ochs (France)<BR> 28/06 Columbey - Yukon (Suisse)<BR> 29/06 T.B.A<BR> 30/06 Paris - Pйniche Blues cafй with Slavery (to be comfirmed)<BR> 01/07 Rouen - Calif with Erektion - Birth decline<BR> 02/07 Cherbourg with Carnal Lust - Chainsaw holocaust -Dawn of sorrow<BR> 03/07 Bordeaux - Koslow with Iost - Obscurantis order<BR> 04/07 Toulouse with Internal Suffering - Sanatorium<BR> 05/07 Saint Paul Trois Chвteaux - Nuclear Fest with Gojira- Furia - Aquilon - Grimlord</p>
+
+Автор: Vit Belov
+
+### 04.01.2005 news YATTERING выпускают новый-старый альбом
+
+<P><STRONG>YATTERING</STRONG> выпускают новый альбом '<STRONG>III</STRONG>' в январе 2005 года. Пластинка была записана в 2001-2002 году и представляет собой industrial с элементами death-metal.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

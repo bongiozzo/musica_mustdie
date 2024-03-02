@@ -20,6 +20,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.02.2004 news MEMORIZED DREAMS will out through Sound Riot
+
+<B><IMG height=279 alt="" hspace=0 src="/images/news/2004.02/6075.jpg" width=283 align="left" border=0>Sound Riot Records</B> will release album by Norwegian melodic power-metal band <B>MEMORIZED DREAMS</B> 0n 16th of April. <B>Olaf Hayer (Luca Turilli, Dionysus)</B> will sing on one song. Also members of symphonic orchestra of Trondheim taken part in recordings. Album was recorded in <B>Skansen Studios&nbsp;</B><SPAN style="COLOR: #ffffff"><B>(THE 3RD AND THE MORTAL, ATROX, GRIFFIN).</B>&nbsp; Mastered by <B>Tommy Newton</B> at <B>Area 51 Studios </B>from Germany&nbsp;<B>(ELEGY, VICTORY, KAMELOT).</B> Artwork by <B>JP Fournier (EDGUY, AVANTASIA).</B></SPAN>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

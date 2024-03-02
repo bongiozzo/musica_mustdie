@@ -37,6 +37,40 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.06.2005 news Новый альбом JOURNEY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>JOURNEY "Generations"</STRONG> выходит 29 августа на <STRONG>Frontiers</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2005.06/8625.jpg" width=250 align=right border=5>1. <STRONG>Faith In The Heartland</STRONG> <BR>(Jonathan Cain, Neal Schon & Steve Augeri)<BR>2. <STRONG>The Place In Your Heart <BR></STRONG>(Jonathan Cain & Neal Schon)<BR>3. <STRONG>A Better Life</STRONG> (lead vocals <STRONG>Deen Castronovo</STRONG>) <BR>(Jonathan Cain & Neal Schon)<BR>4. <STRONG>Every Generation</STRONG> (lead vocals <STRONG>Jonathan Cain</STRONG>) <BR>(Jonathan Cain)<BR>5. <STRONG>Butterfly (She Flies Alone)</STRONG><BR>(Steve Augeri)<BR>6. <STRONG>Believe <BR></STRONG>(Steve Augeri)<BR>7. <STRONG>Knowing That You Love Me <BR></STRONG>(Jonathan Cain)<BR>8. <STRONG>Out Of Harms Way <BR></STRONG>(Jonathan Cain & Neal Schon)<BR>9. <STRONG>Self-Defense</STRONG> (lead vocals <STRONG>Neal Schon</STRONG>)<BR>(Jonathan Cain & Neal Schon)<BR>10. <STRONG>Better Together</STRONG> <BR>(Jonathan Cain, Neal Schon & Steve Augeri)<BR>11. <STRONG>Gone Crazy</STRONG> (lead vocals <STRONG>Ross Valory</STRONG>) <BR>(Jonathan Cain, Kim Tribble & Neal Schon)<BR>12. <STRONG>Beyond the Clouds</STRONG> <BR>(Neal Schon & Steve Augeri).<BR>13. <STRONG>It's Never Too Late</STRONG> (lead vocals <STRONG>Deen Castronovo</STRONG>) <BR>(Jonathan Cain, Neal Schon & Jack Blades) – bonus track </P>
+Автор: Vit Belov
+
+### 10.07.2006 news Jeff Scott Soto в JOURNEY
+
+<P><STRONG>Jeff Scott Soto</STRONG> заменит в <STRONG>JOURNEY</STRONG> вокалиста <STRONG>Steve Augeri</STRONG>, у которого обнаружена хроническая горловая инфекция. <STRONG>Steve </STRONG>пройдёт обследование и возможно заменит <STRONG>Jeff</STRONG> уже во время будущего тура.</P>
+Автор: Vit Belov
+
+### 20.12.2006 news JEFF SCOTT SOTO - новый вокалист JOURNEY
+
+<P><STRONG>Jeff Scott Soto</STRONG> (<B>TALISMAN</B>, <B>YNGWIE MALMSTEEN</B>, <B>SOUL SIRKUS</B>) официально объявлен новым вокалистом группы <B>JOURNEY</B>.&nbsp;Он стал заменой ушедшему летом&nbsp;<B>Steve Augeri</B>. </P>
+Автор: Dimas
+
+### 08.12.2007 news JOURNEY взяли вокалиста с Филиппин
+
+<P>Новым вокалистом <STRONG>JOURNEY</STRONG>, на смену ушедшему <STRONG>Jeff Scott Soto</STRONG>, стал некто <STRONG>Arnel Pineda</STRONG>. Интересно, что этот певец проживает на Филиппинах.</P>
+Автор: Vit Belov
+
+### 22.07.2011 news Новый клип JOURNEY
+
+<P>Клип на песню <STRONG>JOURNEY "City Of Hope" </STRONG>можно посмотреть ниже. Это первый сингл с нового альбома коллектива <STRONG>"Eclipse".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT id=AOLVP_us_1068051261001 height=357 width=456 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="12065"><PARAM NAME="_cy" VALUE="9446"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="Src" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="WMode" VALUE="Transparent"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="000000"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" bgcolor="#000000" width="456" height="357" name="AOLVP_us_1068051261001" flashvars="stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Fus%2Fmusic%2Fmusicvideos%2Fwalmart%2Fjourney%2Fjourney%5Fcityofhope%5Fvideo%5Fstill%5F480%2Ejpg&playerid=61371447001&codever=1&videoid=1068051261001&publisherid=1612833736"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

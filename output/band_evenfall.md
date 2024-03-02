@@ -26,6 +26,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2001 news Новый альбом Evenfall...
+
+<p>Австрийские думстеры Evenfall заканчивают запись нового (второго по счету) альбома "Cumbersome". Продюссер Boban Milunovic сообщает, что команда полностью отказалась от своих Black Metal корней и сосредоточилась на Готике. Среди треков ожидается кавер-версия Heroes Del Silencio - "Entre Dos Tierras" с экс-фронтменом Psychotic Waltz - Devon Graves в качестве гостевого вокалиста. Альбом выходит в продажу в конце Мая.</p>
+
+Автор: Yermola
+
+### 15.03.2001 news Evenfall Recording Second Album
+
+<p>The Austrian Gothic-Dark Metal outfit Evenfall are just finishing recordings for their second album, "Cumbersome". Producer Boban Milunovic reports that, due to some line-up changes the band has left their Black Metal roots and developed a more catchy and bombastic style. Besides that the album will feature a cover version of the Heroes Del Silencio hit "Entre Dos Tierras" with ex-Psychotic Waltz frontman Devon Graves (thatґs his new alias) performing as guest vocalist. The album will be released in late May.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Evenfall "Cumbersome"

@@ -212,6 +212,334 @@ Disc 2
 * C группой "Unisonic" Dennis Ward (bass)
 * C группой "Unisonic" Kosta Zafiriou (drums)
 
+## Публикации
+
+### 29.03.2000 reviews 
+
+<p>Бывшая группа Анди Дериса (Helloween). Вот кто порадовал, так порадовал. На фоне однообразных пауэр-излияний эта пластинка, как луч света.. Это не набивший оскомину "мощный" металл в немецком стиле, а что-то другое. Музыка прописана более басово, интересные мелодии, хоры, но они звучат как-то по новому. Вокалист не дотягивает даже до Дериса, но он и не главная состовляющая на этом альбоме. Приятный аккордный пауэр, не слишком тяжёлый, но и не слишком легкий. Мало гитарных соло, что при нынешнем мастерстве гитаристов даже можно отнести в плюс. Очень интересный альбом в коллекцию любителей данного стиля. 8,5 из 10.</p>
+
+Автор: Vit Belov
+
+### 02.06.2001 news Angra выбрали продюсера для своего нового альбома
+
+<p> Angra выбрали продюсера для своего нового альбома. Им оказался некто Дэннис Уард, известный по работе с группой Pink Cream 69. Выход нового альбома запланирован на октябрь.</p>
+
+Автор: Nybras
+
+### 18.09.2001 news Подвергнутый опасности ....
+
+<p>"PINK CREAM 69" опубликовали трек-лист нового альбома "Endangered", который должен появиться в продаже в октябре: 01. Intro 02. Shout 03. Promised Land 04. Trust The Wiseman 05. Don’t Need Your Touch 06. He Took The World 07. Enslaved 08. In My Dreams 09. High As A Mountain 10. Shadow Of Time 11. Pinball Wizard 12. One Time Is Not Enough (bonus)...</p>
+
+Автор: Yermola
+
+### 18.09.2001 news PINK CREAM 69&#39;s upcoming Endangered effort...
+
+<p>Here is the track listing for PINK CREAM 69’s upcoming Endangered effort, which is due at the end of October: 01. Intro 02. Shout 03. Promised Land 04. Trust The Wiseman 05. Don’t Need Your Touch 06. He Took The World 07. Enslaved 08. In My Dreams 09. High As A Mountain 10. Shadow Of Time 11. Pinball Wizard 12. One Time Is Not Enough (bonus) Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.07.2003 news PINK CREAM 69 signs at SPV &#x2F; Steamhammer ...
+
+<p>Directly after their successful show of this year Bang Your Head festival in Balingen, Pink Cream 69 signed a new contract with the SPV from Hannover. The new, still unknown title for the new record after the "ENDANGERED" record gets meanwhile specific forms and will be published in January 2004. Stylistically the songs connect the strongest elements of the albums "Electrified" and "Sonic dynamite ." <BR> <BR> However, there is also less happy news: guitarist Alfred Koffler has a disease by the name of focal dystonia in the left hand. It is about a not curable disease to date, causes cramps in the hand and makes the motions complicated, partly even impossible. Although no specific improvement is by sight, Alfred does not give up the hope and has appropriated a new game technology conformed to his situation. Due to the fact that they work with producer/bassist Dennis Ward, Pink Cream 69 can work without pressure of time; they can guarantee that they can finish the record without quality losses.<BR><BR> To guarantee the fans a 100% live quality, Koffel and the band decided to increase a new guest guitarist on the stage. The decision fell on Uwe Reitenauer from their hometown Karlsruhe. Up to now Uwe, a full time guitar teacher, has played in no famous hardrock/metal band, however, he's the perfect match by his musical roots and guitar style to the multinational troop from Baden. His live debut in front of a big audience has given Uwe with this year "Bang Your Head festival" where PINK CREAM 69 have presented the new impressively lineup on Saturday, June 28th, 2003.<BR><BR> After the release of the new album in January 2004, Pink Cream 69 will go extensively on tour to present the new album, that all fans, on behalf of the constraint break in the years 2001 and 2002 will get to their long fully awaited shows and get to theirfully expenses..</p>
+
+Автор: Yermola
+
+### 12.10.2003 news PINK CREAM 69 объявили дату выхода альбома
+
+<B>PINK CREAM 69</B> закончили работу над новой пластинкой, которая выйдет 26 января на <B>SPV</B>. <BR>
+Автор: Vit Belov
+
+### 09.01.2004 reviews И вновь немецкое хэви-качество
+
+<P>Юным любителям тяжелой музыки данная группа знакома скорее всего благодаря нынешнему вокалисту Helloween Энди Дерису, однако запевать в Pink Cream 69 он начинал в их первом составе аж в 1987 году (и лишь спустя 7 лет ушел к "тыквоголовым"). Thunderdome, тем временем, является, если не ошибаюсь, уже девятым номерным альбомом (а место вокалиста последние годы занимает Дэвид Ридман). Хуковые вещи, запоминающиеся мелодии, качественная запись и отличная работа всех участников команды - что еще нужно почитателю хэви-пауэра, сытого по глотку невразумительными релизами последних лет? И маленький сюрприз для меломанов со стажем: кавер песни "My Sharona"&nbsp; некогда известной команды The Knack.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 04.03.2004 news AXXIS and PINK CREAM 69 in Europe
+
+<B>05.03. D-Obermarchtal (bei Ulm) - Festhalle</B> <BR><B>06.03. D-Kaufbeuren - Zeppelinhalle</B> <BR><B>07.03. D-Karlsruhe - Festhalle</B> <BR><B>08.03. D-Bremen - Aladin</B> <BR><B>09.03. D-Berlin - Halford &nbsp; &nbsp; &nbsp; &nbsp; </B><BR><B>11.03. D-Aschaffenburg - Colosaal</B> <BR><B>12.03. D-Ingolstadt - Ohrakel</B> <BR><B>13.03. D-Tuttlingen - Alte Festhalle</B> <BR><B>14.03. D-Bochum - Matrix </B><BR><B>16.03. D-Hamburg - Markthalle</B> <BR><B>17.03. D-N&uuml;rnberg - Hirsch</B> <BR><B>18.03. D-Ludwigsburg - Rockfabrik</B> <BR><B>19.03. D-Pirmasens - Quasimodo</B> <BR><B>21.03. CH-Z&uuml;rich - Alpenrock</B> <BR><B>22.03. D-Rosenheim - Kuko</B> <BR><B>23.03. A-Salzburg - Rockhouse</B> <BR><B>25.03. A-Wien - Planet Music</B> <BR><B>26.03. HU-Budapest - Wigwam</B> <BR><B>01.04. E-Madrid - Caracol</B> <BR><B>02.04. E-Vitoria - Azkena Club</B> <BR><B>03.04. E-Barcelona - Mephisto</B> <BR>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 21.11.2006 news PINK CREAM 69 на Frontiers
+
+<P><STRONG>Frontiers</STRONG> заключили контракт с <STRONG>PINK CREAM 69</STRONG>. Новый альбом группы <STRONG>"In10sity" </STRONG>выйдет в марте.</P>
+Автор: Vit Belov
+
+### 03.09.2009 news PINK CREAM 69 выпускают DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>PINK CREAM 69</STRONG> гортовят к выпуску DVD <STRONG>"Past & Present". </STRONG>На него попадут:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>- 88-минутный концерт в Карлсруэ, снятый 24 января 2009 года;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>- 55-минутное концертное видео из Японии 1992 года с <STRONG>Andi Deris</STRONG> на вокале;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>-все видеоклипы, интервью и ещё несколько концертных бонусов;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также будет доступен CD вариант с концертом в Германии и акустическими бонусами.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

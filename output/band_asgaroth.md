@@ -36,6 +36,21 @@ Outroduction
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.01.2001 reviews Очень интересная и навороченная музыка
+
+<p>Очень интересная и навороченная музыка. Прошлое их творение вышло еще в 1996 году. Но оно мне не очень запомнилось. Но теперь, у меня появилась новая надежда. Изумительный по красоте progressive-black-doom с огромным количеством пианинных клавиш. Приятные разнообразные вокалы, что женский, что мужские. Настроения самые разные: от романтических до батальных. Материал неординарен, довольно оригинален. Музыка очень мелодична и приятна, но немного слащава. Впечатляющее возвращение, но посмотрим что будет дальше с этой группой...</p>
+
+Автор: Dimas
+
+### 11.07.2003 news ASGAROTH...
+
+<p>Barcelona based Asgaroth are heading for this years MILWAUKEE METALFEST (catch then on Friday 25th July), to continue their good work fresh from supporting CRADLE in Spain. The album Red Shift has received some great reviews and created a stir wherever it has gone. Keen to capitalise on the success of their debut Peaceville album, Asgaroth will enter the studio later this year to record the follow-up.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

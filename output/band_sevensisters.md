@@ -19,6 +19,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2016 news Дебютный альбом SEVEN SISTERS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Дебютный альбом английской heavy metal банды<strong> SEVEN SISTERS "Seven Sisters"</strong> выходит 14 октября на <strong>High Roller</strong>. Музыка для всех поклонников классического материала середины 80-х годов.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>-Destiny's Calling<br>-Highways of the Night<br>-The Silk Road<br>-Seven Sisters<br>-Pure as Sin<br>-Commanded by Fear<br>-Gods and Men Alike<br>-Cast to the Stars</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29768.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 08.08.2016 news Debut of SEVEN SISTERS
+
+<p>The debut album by English heavy metal band <strong>SEVEN SISTERS "Seven Sisters"</strong> will be released on October 14 at the <strong>High Roller</strong>. Music for all fans of classical stuff of the mid 80-ies.</p><p>Track list:</p><p>-Destiny's Calling<br>-Highways of the Night<br>-The Silk Road<br>-Seven Sisters<br>-Pure as Sin<br>-Commanded by Fear<br>-Gods and Men Alike<br>-Cast to the Stars</p><p><center><img width="400" height="400" src="/images/news_rus/2016.08/29768.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

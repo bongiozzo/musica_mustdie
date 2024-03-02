@@ -25,6 +25,31 @@ heavy-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.04.2005 news MACHINE MEN на Century Media
+
+<P>Финская группа <STRONG>MACHINE MEN</STRONG> заключила контракт с <STRONG>Century Media</STRONG> на выпуск нескольких альбомов. Новый альбом "<STRONG>Elegies</STRONG>" был записан в студии участника <STRONG>THUNDERSTONE Nino Laurenne</STRONG> и будет отмастерен в <STRONG>Finnvox</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Falling</STRONG> (3:05) <BR>2. <STRONG>Dream & Religion</STRONG> (3:49) <BR>3.<STRONG> Apathy</STRONG> (5:10) <BR>4. <STRONG>Back From The Days</STRONG> (3:28) <BR>5. <STRONG>The Traitor</STRONG> (3:55) <BR>6. <STRONG>October</STRONG> (6:35) <BR>7. <STRONG>Daytime Theatre</STRONG> (4:58) <BR>8. <STRONG>Doors Of Resurrection</STRONG> (4:10) <BR>9. <STRONG>From Sunrise To Sunset</STRONG> (6:04) <BR>10. <STRONG>Freak</STRONG> (4:15) </P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 07.12.2006 news Новый альбом MACHINE MEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Финский <STRONG>IRON MAIDEN</STRONG>" - так называют коллектив <STRONG>MACHINE MAN</STRONG>, который готовит к выпуску 19 февраля 2007 года на <STRONG>Century Media</STRONG> свой&nbsp;третий альбом&nbsp;<STRONG>"Circus of Fools".</STRONG> Он был записан в <STRONG>Fantom Studios</STRONG> (<STRONG>ROTTEN SOUND</STRONG>, <STRONG>NEGATIVE</STRONG>)&nbsp; с продюсером&nbsp;<STRONG>Samu Oittinen</STRONG>.&nbsp;10 января 2007 года выйдет сингл&nbsp;под названием&nbsp;<STRONG>"No Talk Without The Giant"</STRONG>.<BR></FONT></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -401,6 +401,80 @@ Mastered at Eroc’s Mastering Ranch.
 * C группой "Angel" Jan Yrlund (guitar)
 * C группой "Danse Macabre" Jan Yrlund (guitar)
 
+## Публикации
+
+### 08.10.1999 news 
+
+<p>Ancient Rites планируют выпустить сборник, посвящённый своему десятилетию в октябре.</p>
+
+Автор: Vit Belov
+
+### 11.10.2000 news Ancient Rites ушли из-под крыла Mascot Records.
+
+<p> Политика лейбла в отношении группы изменилась в худшую сторону, и Ancient Rites, почувствовав, что для них нет больше возможностей к развитию, решили выпустить свой четвертый полный альбом в другой звукозаписывающей компании. Отныне группа будет сотрудничать с энергично развивающимся лейблом Hammerheart Records. Запись предстоящего нового альбома запланирована на декабрь-январь, а выход готового продукта поставлен в план на весну.</p>
+
+Автор: Morsus
+
+### 11.10.2000 news Ancient Rites has left Mascot Records.
+
+<p> Ancient Rites has left Mascot Records. Due to the changed label politics of the label, Ancient Rites felt there are no more chances left for the band to grow on this label and decided to bring out their fourth full length album through another record company. Everything has happened in a friendly co-operation between the former and the new label Hammerheart Records. The studio for the upcoming new album is planned for December/January and the release is set for Spring.</p>
+
+Автор: Morsus
+
+### 10.03.2001 news Ancient Rites записали новый альбом.
+
+<p> Ancient Rites недавно закончили запись долгожданного продолжения к своему замечательному творению "Fatherland". Новый альбом был записан и смикширован в Spacelab Studios в Германии. Он получил название "Dim Carcosa" и будет состоять из 11 композиций. Выпуск альбома намечен на 21 мая. С этим блестящим альбомом Ancient Rites предполагают наконец достичь статуса абсолютной элиты на экстремальной метал-сцене.</p>
+
+Автор: Morsus
+
+### 10.03.2001 news Ancient Rites have recorded a new album.
+
+<p> Ancient Rites recently finished the recordings for their long-awaited follow-up to their outstanding "Fatherland"-album. The new album was recorded and mixed in Spacelab Studios in Germany. The new album is titled "Dim Carcosa" and features 11 tracks. Release of the album is scheduled for May 21st. With this brilliant album Ancient Rites will finally reach the ranks of the absolute elite in the extreme metal music-scene.</p>
+
+Автор: Morsus
+
+### 07.05.2001 news Эти странный танцы....
+
+<p>Голландцы "DANSE MACABRE" имеющие в составе вокалиста/бассиста Gunther Theys ("ANCIENT RITES") и гитариста Jan "&Ouml;rkki" Yrlund ("ex-LACRIMOSA/TWO WITCHES") подписали контракт с подразделением Hammerheart Records - Well of Urd и сейчас собираются в Spacelab Studios. Альбом должен выйти позднее в текущем году.</p>
+
+Автор: Yermola
+
+### 07.05.2001 news DANSE MACABRE......
+
+<p>Holland's DANSE MACABRE, featuring ANCIENT RITES vocalist/bassit Gunther Theys and ex-LACRIMOSA/TWO WITCHES guitarist Jan "Цrkki" Yrlund, have signed a record deal with Well of Urd, a division of Hammerheart Records, and will enter Spacelab Studios later this month to record a new album, which is due for release in the fall. In related news, Jan's side-project SINMASTERS, which features ex-members of TWO WITCHES and LOVE LIKE BLOOD, has just released a single, and will be following it up shortly with a full-length album. More info can be obtained by visiting: www.actcom.fi. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.10.2001 reviews Великолепие древних обрядов
+
+<p>Великолепие древних обрядов. Совершенно неожиданный поступок группы. В принципе, эта группа после выпуска трех альбомов прочно обозначилась как группа из разряда прочных середняков. И тут, на тебе, совершенно ломовой альбом рушащий все рамки стиля и совершенно обособляющий группу от множества других. Неожиданно мелодичный и разнообразный death-black материал. Намного улучшилось музыкальное мастерство и техника музыкантов группы, улучшилась структура композиций и подход к текстам. Музыка стала значительно мелодичнее и отточеннее. Кристально чистый звук, очень хорошая студийная работа и отличное микширование. Очень неплохой вокал, немного грубоватый и шипящий, будто вокалист выпускает яд из уст своих. Мощная энергичная музыка, слегка шведского оттенка, но с более грубым немецким звуком, глубоко атмосферная клавишная работа с симфоническим фоном и множеством соло-гитар. Единственный недостаток альбома - машинное звучание ударных. Иногда ребята даже переходят на чистой воды doom-death. Здесь очень много фрагментарных переплетений разных стилей. Ребята не боятся экспериментов и остаются при этом в рамках экстремальной музыки. Свежая работа в безликом потоке новинок современной музыки. Рекомендую.</p>
+
+Автор: Dimas
+
+### 13.06.2003 news Перестановки в ANCIENT RITES
+
+<p>Из-за личных причин, бельгийский black metal акт ANCIENT RITES покинул гитарист Jan "Yrkki" Orlund. В качестве его замены, в группе нарисовался Bart Vandereycken, уже игравший в ANCIENT RITES на заре существования группы.</p>
+
+Автор: Dimas
+
+### 21.01.2006 news ANCIENT RITES заканчивают альбом
+
+<P>Новый альбом <STRONG>ANCIENT RITES</STRONG>, который выйдет на <STRONG>Season Of Mist</STRONG>, будет называться "<STRONG>Rubicon</STRONG>". Пластинка сейчас микшируется в студии <STRONG>Spacelab</STRONG> и выйдет в первой половине текуцщего года.</P>
+Автор: Vit Belov
+
+### 22.02.2006 news Новый альбом ANCIENT RITES
+
+<P>15 мая на<STRONG> Season Of Mist</STRONG> выходит новый альбом <STRONG>ANCIENT RITES "Rubicon</STRONG>". Трэк-лист:</P>
+<P>01. <B>Crusade</B><BR>02. <B>Templar</B><BR>03. <B>Mithras</B><BR>04. <B>Thermopylae</B><BR>05. <B>Rubicon</B><BR>06. <B>Invictus</B><BR>07. <B>Ypres</B><BR>08. <B>Galilean</B><BR>09. <B>Cheruscan</B><BR>10. <B>Brabantia</B></P>
+Автор: Vit Belov
+
+### 08.01.2015 news ANCIENT RITES возвращаются
+
+<P>Бельгийско-голландская команда <STRONG>ANCIENT RITES</STRONG> возвращается с новым альбомом, первым за девять лет. "<STRONG>Laguz</STRONG>" выйдет в конце февраля на <STRONG>Massacre Records</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.01/27521.png" width=410 height=410></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

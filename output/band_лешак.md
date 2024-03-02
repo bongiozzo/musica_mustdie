@@ -38,6 +38,22 @@
 
 * C группой "Сварга" 
 
+## Публикации
+
+### 24.03.2008 news ЛЕШАК записали сингл
+
+<P>Московская folk-thrash-metal группа <STRONG>ЛЕШАК</STRONG> записала сингл "<STRONG>Еловая Кора</STRONG>" в <STRONG>Buddha Cat Studio</STRONG> с <STRONG>Михаилом 'Maiden' Смирновым</STRONG>. MP3 можно послушать на нашем сайте.</P>
+Автор: Vit Belov
+
+### 30.01.2012 news Новый альбом ЛЕШАК
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22855.jpg" width=400 align=right border=0>11 февраля увидит свет новый альбом московской folk metal бригады<STRONG> ЛЕШАК "Пустосвят"</STRONG>. Оформлением обложки и буклета, занимался <STRONG>Мстибог</STRONG>. В данный момент, заканчивается запись альбома, остались последние штрихи.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Отче наш<BR></STRONG>2. <STRONG>Пустосвят<BR></STRONG>3. <STRONG>РостовЪ<BR></STRONG>4. <STRONG>Фёдор да Марья</STRONG><BR>5. <STRONG>Ойся, ты Ойся<BR></STRONG>6. <STRONG>Мельница</STRONG> (Instrumental)<BR>7. <STRONG>Распутье<BR></STRONG>8. <STRONG>Чёртов Рог<BR></STRONG>9. <STRONG>Яблочко<BR></STRONG>10. <STRONG>Darjane-Marjane</STRONG> (Trad. Karelian) [Bonus Track]<BR>11. <STRONG>Ace Of Spades</STRONG> (MOTORHEAD Cover) [Bonus Track]</P>
+<P>Диски и футболки уже доступны для предзаказа на сайте издающего&nbsp; лейбла <STRONG>SoundAge</STRONG> <A href="http://soundage.org/">http://soundage.org/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

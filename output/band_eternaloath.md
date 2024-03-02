@@ -63,6 +63,28 @@ Female Vocals by Helene
 
 * C группой "Mork Gryning" Kimera (vocal/guitar)
 
+## Публикации
+
+### 27.08.2000 reviews Шведы финской ориентации...
+
+<p>Шведы финской ориентации...Очень интересный тяжелый насыщенный интересными гитарными ходами альбом. Эта работа очень напоминает первые два альбома Amorphis. Да и продюссер тот же (Tomas Skogsberg) и студия (Sunlight). Ну а так как группа шведская, то естесственно в их звучании много всего, что заставляет её всё-таки причислить к мелодичному шведскому death-metal. Очень смачный гроулинг заставляет вспомнить Tomi Koivusaari, что опять создает похожесть на Amorphis. Но в целом, музыка самобытна и привлекательна. Горы мелодий, приятный вокал, легкие воздушные клавиши. Обязательно должно понравиться любителям непритязательной, но мелодичной и красивой музыки.</p>
+
+Автор: Dimas
+
+### 27.08.2000 reviews The swedes of the Finnish orientation...
+
+<p>The swedes of the Finnish orientation... By very interesting high-gravity saturated interesting guitar courses an album. This activity very much resembles the maiden two albums Amorphis. And producer same (Tomas Skogsberg) and studio (Sunlight). Well and as group Swedish, in their sounding it is a lot of everything, that causes her to rank to melodious Swedish death-metal. Very much strong grawling causes to recollect Tomi Koivusaari, that again creates resembling on Amorphis. But as a whole, music is original and is attractive. Mountains of tunes, pleasant vocal, mild air keys. Necessarily should like the fans unpretentious, but melodious and beautiful music.</p>
+
+Автор: Dimas
+
+### 19.02.2006 reviews Динозавры из прошлого века
+
+<P>Шведы ETERNAL OATH существуют уже миллион лет. Помнится, ещё на tribute to METALLICA, выходившем в прошлом веке, был трэк от этого коллектива. Были там также трэки от IN FLAMES, DARK TRANQUILLITY… Много воды с тех пор утекло. IN FLAMES и DARK TRANQUILLITY не узнать… ETERNAL OATH не добились подобных успехов, поэтому, наверное, до сих пор пишутся в студии Fredman и играют музыку в стиле мелодичного death-doom, популярного в середине 90-х. К счастью для ETERNAL OATH, времена меняются и на подобную музыку вновь появляется спрос.</P>
+<P>“Wither” очень качественен, и это, пожалуй, его единственное достоинство. Грувовый материал в духе DARKSEED или PARADISE LOST прошлого века. Любители подобной музыки могут заценить… Я, правда, не нашёл на альбоме обещанных мелодий, и это сильно снижает оценку ETERNAL OATH. Это, как отсутствие артистизма в фигурном катании. Всё технически грамотно, но смотреть, сиречь слушать, по второму разу не захочется.</P>
+<P>Только для коллекционеров.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

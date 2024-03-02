@@ -68,6 +68,15 @@ And Unique Studios, NYC
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.03.2011 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18870.jpg" width=250 height=250>Организаторы чешского фестиваля <STRONG>Brutal Assault</STRONG> анонсировали новых участников. Ими стали бразильцы <STRONG>SEPULTURA</STRONG>, американская hardcore группа <STRONG>FIRST BLOOD</STRONG>, норвежские авангардисты <STRONG>RAM-ZET</STRONG>, фины <STRONG>TURISAS</STRONG>, немецкие thrash/death металлисты <STRONG>DEW-SCENTED</STRONG>, почитатели марихуаны <STRONG>CANNABIS CORPSE</STRONG>, легенды NYHC <STRONG>CRO-MAGS</STRONG>, думстеры <STRONG>AHAB</STRONG>, а так же, возрождённые <STRONG>EXIVIOUS</STRONG>, в состав которых входят музыканты <STRONG>CYNIC</STRONG> и <STRONG>TEXTURES</STRONG>.</FONT></P>
+<P>Начиная с сегодняшнего дня и до 30 апреля, каждый желающий может купить электронный билет на фестиваль по сниженной цене в<STRONG> </STRONG>1257 чешских крон (примерно&nbsp;52.40 EUR) через систему <STRONG>PayPal</STRONG>! А уже начиная с мая месяца&nbsp;и до конца июля, такой же билет можно будет купить по цене 1357 шеских крон (примерно 56.60 EUR). Для получения дополнительной информации пройдите по ссылке: <A href="http://brutalassault.cz/en/tickets/">http://brutalassault.cz/en/tickets/</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

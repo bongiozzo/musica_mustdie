@@ -9,6 +9,9 @@ Atmospheric Dark Folk Metal
 
 * C группой "Butterfly Temple" Сергей "Абрей" Абрамов, Сергей "Авен" Аванесов
 
+## Публикации
+
+
 ## Обсуждения
 
 ### 25/07/09 Финал &quot;На Взлёт!&quot;: ILLIDIANCE, ОМЕЛА, DIVINIOR, HUNTERS, TUMULUS, NOVA ART

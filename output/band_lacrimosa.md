@@ -388,6 +388,871 @@ Bonus Material:
 * C группой "Danse Macabre" Jan Yrlund (guitar)
 * C группой "Ancient Rites" Jan Yrlund (guitar)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новый альбом группы выйдет в июне этого года. Он будет записан в содружестве с Лондонским филармоническим оркестром в знаменитой Abbey-Road Studios в Лондоне. Первый сингл увидит свет уже шестого апреля.</p>
+
+Автор: Vit Belov
+
+### 23.02.1999 news 
+
+<p>Lacrimosa выпускает новый сингл Alleine zu zweit 4 апреля. На альбоме будут присутствовать две версии одноимённой песни, также песня Heine Welt и песня Copycat c альбома Inferno в ремиксе Samael.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 reviews 
+
+<p>Вот и новые творения вселенского Плача. Хотя, на самом деле, официально на сегодняшний день вышел только мини-альбом "ALLEINE ZU ZWEIT". А вот большой альбом обещается только в июне. Но, у нас с вами есть эксклюзивная возможность ознакомиться с ним уже сегодня. Да, это великое ПРОИЗВЕДЕНИЕ (именно так, большими буквами). Сразу скажу, что непосредственное участие в записи альбома принял Лондонский симфонический оркестр. Это придало альбому камерность. Иногда, при прослушивании альбома возникает впечатление, что ты находишься в зале консерватории на концерте классической музыки. Очень симфонично, THERION и RHAPSODY просто отдыхают. Этот альбом, на мой взгляд, способен понравиться даже ценителям исключительно классической музыки. По сути, это и есть классическая музыка, но с использованием некоторых современных инструментов, типа электрогитар. Весь этот спектакль состоит из трёх актов. Первый акт наиболее приближённый ко всему вышесказанному о материале. Второй акт больше напоминает старую добрую LACRIMOS'у, но с углублённым симфонизмом и тяжестью. А вот третий акт - пожалуй, самое сильное место альбома. Я бы назвал его продолжением величайшего Моцартовского "Реквиема". Он такой же по духу, по набору инструментов, по печальному настроению, но с использованием современных музыкальных наработок (время, всё-таки, не стоит на месте). Великолепные мужской и женский хоралы создают необычную возвышенную атмосферу. Такую музыку нужно слушать в храме божьем. Бесспорно, это лучший альбом группы. В моей коллекции теперь - это альбом №1.</p>
+
+Автор: Dimas
+
+### 21.05.1999 articles Добро пожаловать в страну Элодия.
+
+<p>Этой весной появился новый мини-альбом немецкой группы Lacrimosa "Alleine Zu Zweit". Не за горами официальный релиз нового полнометражного альбома "Elodia". Но благодаря не совсем разумной политике лэйбла Hall Of Sermon (кстати, заправляет на нём сам Тило Вольф - лидер Lacrimosa), этот альбом уже можно запросто приобрести на Горбушке в Москве в явно нелицензионном качестве. Рецензия на этот альбом есть в специальном разделе нашего Web-zine, поэтому углубляться в тонкости я не буду, тем более тогда, мало чего, останется на основную беседу этой статьи - беседу с Анной Нурми, вокалисткой и автором некоторых текстов на новом альбоме.</p>
+<P> Главной новостью была новость о том, что на новом альбоме играет Лондонский симфонический оркестр, что делает музыку группы гораздо более симфоничной, чем когда-либо. Как же получилось так, что этот достаточно известный коллектив начал записываться с немецкой металлической группой? И почему выбор пал именно на этот оркестр?</>
+<P> Анне: "Мы посчитали, что это единственный оркестр, который может с успехом играть нашу музыку, поэтому мы пошли на контакт именно с ними. Каждый музыкант в этом коллективе имеет за плечами годы занятий музыкой, что вселяло в нас некоторую уверенность в том, что мы сможем записать материал довольно быстро, это тоже довольно важно, из-за ограниченности нашего бюджета. Эти музыканты просто изумительные артисты, и в их игре Вы можете услышать все те чувства, которые они испытывают от нашей музыки. Некоторые исполнители в оркестре даже знали Lacrimosa, и им не надо было объяснять, что от них требуется. Мы полностью удовлетворены работой с этим коллективом, а также нам очень понравилось записываться в студии Abbey Road, это было похоже на мечту."</>
+<P> В продолжение темы, как группе записывалось с симфоническим оркестром? Это было что-то новое или всё было по старому?</>
+<P> Анне: "Конечно же, большую роль играл размер оркестра. Мы уже делали эксперименты с участием маленьких оркестров. С более маленьким коллективом у вас есть очень большое преимущество, ведь не обязательно, чтобы все сразу присутствовали на записи, достаточно записать все партии по отдельности. Была единственная возможность справиться, и мы ею воспользовались. Мы записывались в первой студии в Abbey Road. Она достаточно велика для размещения всех музыкантов и у неё великолепная акустика."</>
+<P> Всегда возникает вопрос, как реагируют приглашённые музыканты-професионалы на металлическую музыку?</>
+<P> Анне: "Им нравилась наша музыка, они её чувствовали, что гарантировало хороший конечный вариант."</>
+<P> Приятно слышать это, но, в общем-то, это и неудивительно, так как Lacrimosa наряду ещё с некоторыми группами имеет очень хорошую композиторскую подложку в своей музыке. Мне кажется, что только за это Тило Вольфу можно ставить памятник, поэтому на некоторые недостатки можно смело закрывать глаза, даже если они появятся. Интересно, а не думала группа переиначить старые песни в сотрудничестве с оркестром?</>
+<P> Анне: "Всё возможно, но пока мы не собираемся этого делать, также, как и отправляться в тур вместе с большим оркестром."</>
+<P> Действительно, я, вообще, считаю, что не стоит трогать старый материал, пускай он остаётся в прошлом, а группе надо двигаться вперёд. Известно, что очень тесно сотрудничает с Пражским оркестром другая известная металлическая команда Rage. В интервью после своего последнего альбома "XIII" Пиви Вагнер говорил, что руководители чешского коллектива помогали в сочинении музыки, в частности, придумали интро на этом альбоме. А как с такими отношениями с классическими музыкантами у группы Lacrimosa?</>
+<P> Анне: "Тило Вольф сочинил почти все песни. Есть всего несколько исключений, песни, которые я исполняю, мы сочиняли вместе. Оркестровые аранжировки также сделаны им, только в некоторых маленьких вещах ему помог Готтфрид Кох в Гамбургской Impulse студии."</>
+<P> Существует какая-нибудь разница между сочинением песен для игры с оркестром или без оного?</>
+<P> Анне: "Практически нет. Оркестровые аранжировки рождались спонтанно, поэтому мы не планировали никаких конкретных песен. Мы сочиняем без каких-либо рамок в тот момент, когда вдохновение приходит, и, следовательно, мы не можем заранее планировать что-то связанное с большим оркестром. Мы сочиняем одну песню за другой и сильно удивлены, что нам требуется так много инструментов, единственное, что двигает нас в сочинении песен, это наши чувства."</>
+<P> Я думаю с этим всё ясно, время обратить внимание на лирику. Большинство песен написано на немецком языке, который понять многим, в том числе и мне, ещё сложнее, чем английский. О чём же песни?</>
+<P> Анне: ""Alleine Zu Zweit" ("вместе одни") (сингл группы, который вышел перед альбомом, прим. авт.) об отношениях между двумя партнёрами, когда они не меняются в течение долгих лет. Они не уделяют уже друг другу никакого внимания, и, в конце концов, уже не знают, как рассказать друг другу о своих чувствах. Они слишком слепы, чтобы заметить изменения, возникшие в них, и то, что они уже развиваются по двум разным направлениям, и нет уже возврата к старому."</>
+<P> Весьма интересный текст, но возникает вопрос, что могло подвигнуть музыкантов написать подобные стихи?</>
+<P> Анне: "Любые события или впечатления, которые произошли с нами: просмотренные фильмы, прослушанная музыка, дружба и многое другое. Мы оба проживаем даже самые маленькие события с открытыми глазами и наслаждаемся этой жизнью. Жизнь наше самое величайшее вдохновение. Мы пишем лирику в различных ситуациях, потому что вдохновение не заботится о выборе места или времени. Сочинительство это, как терапия самих себя, это часто помогает нам понять самих себя. Ты выпускаешь свои мысли наружу вместе со своей музыкой, и эти мысли предстают совершенно в другом виде."</>
+<P> На миньоне, предшествующем альбому присутствует ремикс старой песни Lacrimosa "Copycat", который сделала группа Samael. Путём добавления электронных элементов песня была несколько облегчена, и были усилены элементы какой-то безысходности из старой версии. Что думает Анне об этой версии?</>
+<P> Анне: "Ребята из Samael переделали всю песню на свой лад. Переставили инструменты, добавили некоторые интересные элементы, и получилась совершенно другая композиция."</>
+<P> Заканчивая тему о новом материале, хотелось бы узнать, что, конкретно, изменилось на новом альбоме по сравнению с предыдущим, по мнению Анне?</>
+<P> Анне: "У Lacrimosa нет ни одного альбома, которые были бы похожи один на другой. Всегда, конечно, есть что-то похожее, но наша музыка развивается постоянно, как и всё в нашей жизни. Новый альбом тоже отличается от своих предшественников. В первую очередь он самый сбалансированный и более претенциозный и сложный чем все предшественники. Но с другой стороны он более эмоциональный, мы действительно не берегли себя во время записи. Сложно дать устное описание нашему альбому, так как он охватывает очень большое музыкальное поле, начиная от рока с тяжёлыми гитарами и пением хора. Также мы использовали много новых инструментов для нас. Единственное, что я могу сказать так это то, что каждому рекомендуется послушать его."</>
+<P> Следующей темой будут планы группы на время сразу после выхода альбома. Будет ли тур?</>
+<P> Анне: "Мы начнём наши гастроли в сентябре и надеемся объехать очень большую территорию, собираемся посетить те страны, где ещё не были, в общем, тур будет длинным. Даты тура ещё не утверждены, но, когда это случится, они появятся во всех изданиях."</>
+<P> Будут ли концерты вместе с Лондонским симфоническим оркестром?</>
+<P> Анне: "Нет, это невозможно. Для этого нам пришлось бы выступать только в больших концертных залах, на стадионах или в местах с огромной сценой. Нам пришлось бы использовать около ста музыкантов, что просто привело бы нас к финансовому краху. Мы просто сделаем новые аранжировки наших песен, как мы обычно делаем перед любым туром. Это будет большой сюрприз для публики, услышать, как звучат наши песни в концертной обработке. Например, мы заменим скрипки гитарами и.т.д. и.т.п. Мы открыты для новых идей."</>
+<P> Первый раз сталкиваюсь с такой концепцией замены симфонических оркестров. Многие говорят про разнообразные ДАТ-машины и другие вещи, но чтобы переделывать все песни? Я думаю, что этот гигантский труд не пропадёт даром, и группа могла бы выпустить очередной концертник уже этой зимой. Но это только моё предположение. Завершение этой статьи можно узнать, что больше нравится женщине-вокалистке металлической команды Lacrimosa Анне Нурми, записываться в студии или выступать на сцене перед многотысячной аудиторией?</>
+<P> Анне: "Мы больше любим выступать, так как очень интересно видеть реакцию зрителей на твоё творчество впрямую. Ожидание реакции публики на новый альбом всегда превращается просто в ужас, и я думаю, что если бы мы не получали столько писем от фэнов, мы были бы самими несчастными людьми. Мы делаем музыку для себя, в первую очередь, но нам нужны отклики наших слушателей, чтобы мы могли продолжать выпускать наше творчество широкой публике. Лучшее, что может быть, так это давать концерт, когда аудитория сама помогает создавать настроение данного вечера. Если мы чувствуем отклик в душе зрителей, это шоу становится просто незабываемым для нас и для публики. В студии вам надо гораздо больше концентрироваться на технических вещах и думать, как сыграют свои партии разнообразные приглашённые музыканты, это вызывает гораздо больше изнеможение, чем удовольствие. Конечно, в студии нам тоже неплохо, но в свете вашего вопроса мой ответ, гораздо больше кайфа мы получаем от концертов."</>
+<P> Я думаю, на этом можно поставить точку и расценить это обращение, как приглашение к посещению шоу Lacrimosa. Нам остаётся надеяться, что такая возможность у нас появится.</>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 27.07.1999 reviews 
+
+<p>Это величайшее произведение LACRIMOSA состоит из 3 актов: первый - это логическое продолжение mini CD "Alleine Zu Zweit". Далее идет второй акт, который возвращает нас во времена "Inferno"= и венчает альбом третий акт - в духе "Stille". Про этот альбом можно сказать много чего не просто хорошего, а просто-таки очень хорошего, но лучше услышать и раствориться в мире готических симфо-образов ELODIA. Еще одно подтверждение для неверующих, что LACRIMOSA это готика номер 1 в мире !!! 10 из 10.</p>
+
+Автор: Vit Belov
+
+### 07.05.2001 news Эти странный танцы....
+
+<p>Голландцы "DANSE MACABRE" имеющие в составе вокалиста/бассиста Gunther Theys ("ANCIENT RITES") и гитариста Jan "&Ouml;rkki" Yrlund ("ex-LACRIMOSA/TWO WITCHES") подписали контракт с подразделением Hammerheart Records - Well of Urd и сейчас собираются в Spacelab Studios. Альбом должен выйти позднее в текущем году.</p>
+
+Автор: Yermola
+
+### 07.05.2001 news DANSE MACABRE......
+
+<p>Holland's DANSE MACABRE, featuring ANCIENT RITES vocalist/bassit Gunther Theys and ex-LACRIMOSA/TWO WITCHES guitarist Jan "Цrkki" Yrlund, have signed a record deal with Well of Urd, a division of Hammerheart Records, and will enter Spacelab Studios later this month to record a new album, which is due for release in the fall. In related news, Jan's side-project SINMASTERS, which features ex-members of TWO WITCHES and LOVE LIKE BLOOD, has just released a single, and will be following it up shortly with a full-length album. More info can be obtained by visiting: www.actcom.fi. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.10.2001 reviews Исследование человеческой души
+
+<p>Исследование человеческой души - главная тема нового альбома культовейшей готической команды. Интенсивный анализ человеческой психики и религиозных аспектов в бесконечном спектре собственных ощущений и чувств. На подготовку и запись альбома музыканты потратили полтора года. В результате получилась совершенная адская симфония. Для этого при записи произведения были задействованы музыканты играющие в самых различных музыкальных стилях от классики до металла. Каждый из приглашенных музыкантов вложил в запись душу и эмоции оживив музыку и придав ей особую колоритность. Оркестровые партии на альбоме атмосферны и объемны, записаны филармоническим оркестром Немецкой кинематографии. Хотя, на мой взгляд, именно симфоничности у Lacrimosa стало меньше, добавилось монументальности, органичности, а также эмоциональной и музыкальной разнообразности. А в общем, Lacrimosa осталась Lacrimosa'ой. В музыкальном плане никаких изменений, группа осталась надежно верна однажды найденной и разработанной линии музыкального трагедийного спектакля. Гармоничное слияние тяжелой готической музыки с оркестром и распевными вокальными линиями. Зрелая детализированная и очень качественная работа профессиональных музыкантов. Очевиден хоть и совсем небольшой, но прогресс группы и ее непрерывная модернизация. Хотя, лично я ожидал несколько большего от швейцарцев, а в результате получил хороший крепкий альбом, который безусловно понравится всем, кому нравились и предыдущие работы группы, но наверняка, у многих останется после прослушивания небольшое чувство разочарования.</p>
+
+Автор: Dimas
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 23.12.2002 news Lacrimosa will release new album.
+
+<p><IMG SRC="/images/news/2002.12/3547.jpg" ALT="pho" width=117 height=117 hspace="15" vspace="5" border="1" align="left">On January, the 27th 2003 LACRIMOSA's new album "Echos" is going to be released! Before, on January, the 3rd 2003 Tilo Wolff and Anne Nurmi want to invite you on www.lacrimosa.de to join the worldwide presentation of the new coverpainting.</p>
+
+Автор: Vit Belov
+
+### 23.12.2002 news On-Line презентация от Lacrimosa
+
+<p>Новый альбом Lacrimosa 'Echoes' выйдет 27 января. А 3 января Тило Волф и Анне Нурме устраивают on-line презентацию на своём сайте www.lacrimosa.de</p>
+
+Автор: Vit Belov
+
+### 05.01.2003 news Release-party нового альбома LACRIMOSA
+
+<p><IMG SRC="/images/news_rus/2002.12/3495.gif" ALT="" width="200" height="200" vspace="5" align="right"> 26 января (воскресенье) Russian Gothic Project и Irond Records представляют Gothic_dot_ru release-party нового альбома культовой готической группы Lacrimosa "Echos".</p>
+<p>В программе:<br> - dj сэты с музыкой Lacrimosa и gothic-metal / gothic-rock от dj Chthon & dj MadMax2;<br> - живые выступления групп Bleeding Nature (darkwave/synth-gothic) и Oktagon (gothic-metal) с кавер-версиями Lacrimosa;<br> - продажа нового альбома Lacrimosa "Echos" (за день до официального выхода), а также других CD, выпущенных лейблом Irond, включая digi-pack переиздания ранних альбомов Lacrimosa по специальной цене;<br> - экслюзивный мерчендайзинг от Lacrimosa, включая лимитированные футболки "Echos".</p>
+<p>Начало party в 19:00. Стоимость билетов - 150 руб.</p>
+<p>Адрес клуба: г. Москва, м. "Улица 1905 года", Звенигородское шоссе 4, Клуб "Точка".</p>
+
+Автор: Morsus
+
+### 01.02.2003 reviews Грустно-то как!
+
+<p>Lacrimosa потеряна... После прослушивания данной пластинки приходят на ум именно эти слова. Великолепные Inferno, Elodia и Stille остались в прошлом и, видимо, ничего хотя бы похожего от этой группы мы уже не получим. Целый час скучной и сонной музыки. Начинается альбом с 12-минутной увертюры, в которой всё отлично, играют скрипки, виолончели, поют женщины, мужчины, вот только мелодия настолько прозрачна и возвышена, что понять её не представляется возможным. Граждане готы, если Вы хотите послушать что-то лучше этого, сходите на "Кармен" или "Севильский цирюльник". На остальных песнях металл не заметен в принципе, да и фиг с ним, но с мелодиями-то всё тоже самое, только солируют Тило и Анне. Анне поёт хорошо, а Тило поёт, как обычно. Если честно, его гнусявый вокал никогда не вызывал энтузиазма, но сейчас он заполонил им всё. Инструментальная часть является лишь бледным дополнением к этому удивительному оратору. Плохо, но качественно.</p>
+
+Автор: Vit Belov
+
+### 10.03.2003 reviews This is really sad...
+
+<p>LACRIMOSA is lost... My brain was visited by this sad words after listening to this CD. Magnificent INFERNO, ELODIA and STILLE remained in the past and We can't wait for something similar from this band. Whole hour of boring and sleepy music. Album begins from 12-minutes overture, in which everithing is excellent, violins, female vocals, male vocals, but melody is so transparent and raised, you just can not understand it. Gothic Ladies and Gentlemen, if you'd like to listen to better music, please go to the Opera (Karmen is better). There is no metal on the other songs... God with it... But with melodies We have same situation, only Tilo and Anne sing... Anne sings very good, but Tilo sings as usual. To be honest His boring vocal never was the best, but now he sings everywhere... Instrumental part is pale addition to this astonishing orator. Badly, but quality...:))</p>
+
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 19.04.2004 reviews О том, как Lacrimosa продолжает свой творческий путь
+
+Уже не первый десяток лет германо-финский септет <B>LACRIMOSA</B> во главе с Тило Вольфом снабжает витрины аудио-продукции своими творениями. На протяжении всех этих лет музыка не претерпевала особых изменений, за исключением разве что влияния классической музыки на творчество группы. Альбом <B>"Echos"</B> мало чем отличается от <B>"Fassade"</B>, равно как и от <B>"Elodia"</B>, но все же на нем прослушивается большее доминирование симфонического оркестра. Он же (оркестр) был удостоен исполнить вступление к альбому, занимающее аж двенадцать с половиной минут. А так, в принципе, все осталось по-прежнему: все те же меланхоличные песни, готическая атмосфера, слезливый голос и использование множества инструментов, как струнных, так и обесточенных. Даже вещь <B>"Senses"</B> с предыдущего альбома, вокальные партии которой исполняла исключительно вокалистка Энн, имеет свое логическое продолжение в лице <B>"Apart"</B>. Только в отличие от <B>"Senses"</B>, <B>"Apart"</B> - не единственная композиция с альбома, текст к которой написан на английском языке. Возможно <B>LACRIMOSA</B> не являются лидерами жанра, но именно благодаря таким, как они, "тяжелая" музыка все ближе и ближе приближается к классической, и первой эту черту пересекут наверняка угрюмые готы из туманных германских закоулков.
+Автор: Darkfall
+
+### 19.05.2005 reviews Опять 25, или LACRIMOSA по-прежнему в коме!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Честное слово, я не хотел рецензировать этот альбом. Уже на прошлом "Echoes" я поставил на немцах крест и собирался отдать этот опус Дофф'у или ещё кому-нибудь (я так и сделаю, потом). К прослушиванию "Lichtgestalt" меня сподвигнул господин Кузовлев из журнала Dark City, который в своей рецензии высказывал мысли схожие с моими, что касалось предыдущей работы, а новый называл чуть ли не вторым "Inferno".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Я теперь знаю, кто отвечает за несколько часов даром потерянного времени. Я не могу сказать, что новая пластинка оказалась ещё хуже, чем "Echoes" - это было бы слишком пародоксально, но то, что она вряд ли лучше - очевидно. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыка группы стала более тяжёлой. На первой вещи группа заиграла "металл", а звучание гитар лучшее за всю историю, но не за это мы любили LACRIMOSA. Мною была определена, как хорошая, всего одная мелодия - ближе к концу пластинки. Анне Нурме, как раз и начинает петь к концу пластинки. Всё остальное время поёт Волф, не замолкая ни на секунду, заглушая собой все оркестры, которые участвовали в записи.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Я понимаю, что LACRIMOSA уже давно стали культом, и мне не сдобровать после написанного, но поверьте мне, отсутствие внятных мелодий нельзя объяснить никаким статусом. Что ж, жду шишек...</FONT></P>
+Автор: Vit Belov
+
+### 01.06.2005 articles Тигран Маркосян (Irond): &quot;Tilo Wolf любит шампанское и красное вино, или до концерта LACRIMOSA осталось 9 дней&quot;.
+
+<P>10 июня состоится очередное эпохальное событие в истории нашего underground. Москву посетит знаменитая gothic-формация LACRIMOSA, которая даст единственный концерт в ДК им. Горбунова. Мы встретились с одним из боссов Irond Records, которые устраивают этот концерт, Тиграном Маркосяном, чтобы выяснить, как идёт подготовка к действу.</P>
+<P>Вопрос: Как идут продажи билетов?</P>
+<P>«Билеты продаются хорошо, даже очень хорошо. Ажиотаж есть, потому что группа овеяна ореолом таинственности, достаточно закрыта для фэнов, а также не разу не была в России. И учитывая, что на последнем альбоме они вернулись к тому, с чего они начинали, концерт станет новым шагом как для поклонников, так и для нас – продавцов. Это подстёгивает интерес к приезду LACRIMOSA».</P>
+<P>Вопрос: Поговаривают, что Tilo Wolf получал множество угроз из нашей страны.</P>
+<P>«Да, к Tilo Wolf поступало довольно много угроз из России, ему писали, что если он появится на нашей территории, это будет для него чревато последствиями. Эта ситуация и была основной причиной отказов к нам приезжать, когда ему предлагали концерт другие компании. В связи с этим будут приняты дополнительные меры безопасности. Согласно его желанию, он будет окружён крепкими мощными ребятами, которые будут присматривать, чтобы не было никаких инцидентов».</P>
+<P>Вопрос: Были ли ещё дополнительные требования от группы, если это не секрет?</P>
+<P>«Особого секрета нет. Все условия группы изложены в райдере, который, честно говоря, не очень типичен. LACRIMOSA потребовала дополнительного светового сопровождения во время концерта, также множество технических «примочек». Например, они хотели сделать, чтобы перед первой песней открывался занавес чёрного цвета. Так как это связано с некоторыми техническими трудностями, был придуман вариант с отгораживанием только середины сцены этим занавесом. Всё было готово к этому, но потом мы послали группе снимки сцены ДК им. Горбунова со стандартным занавесом, и их это устроило, поэтому от дополнительного решено было отказаться, и будет использоваться стандартный, бордового цвета. Из других предпочтений музыкантов отмечу, что Tilo любит красное вино, шампанское, но кое-кто из них пьёт и водочку тоже (смеётся)».</P>
+<P>Вопрос: Каков будет сэт-лист? Будут ли какие-нибудь specials для нас?</P>
+<P>«Сэт-лист этого выступления будет стандартный. Сейчас мы сделали запрос к группе, чтобы зарегистрировать его в РАО (Российское Авторское Общество), и после их ответа станет понятно, сколько песен они будут исполнять. 90 минут будет концерт, начало, как известно, в 19-00. Естественно возможны некоторые задержки, которые зависят не от нас, а от службы безопасности ДКГ и количества народа, который успеет зайти в помещение к этому времени». </P>
+<P>Вопрос: Почему Irond занялся организацией концертов?</P>
+<P>«Организация концертов не является нашей основной задачей. У нас несколько другие планы. Но LACRIMOSA – ведущая группа нашего лэйбла, поэтому мы решили провести некоторый эксперимент. Вышел новый альбом, появилась возможность привезти группу сюда, и мы решили сделать сюрприз почитателям этой музыки. Мне, кажется, это логично. Возможно, мы будем придерживаться этой тактики в дальнейшем. После выпуска альбома какой-нибудь ведущей команды мы будем привозить эту группу сюда. В принципе мы уже поддерживали приезд сюда CREMATORY и THERION, но главным нашим бизнесом остаётся производство компакт-дисков. Концерты хотят организовывать очень много людей, пусть они этим и занимаются».</P>
+<P>Вопрос: Вы общались с музыкантами, которые приезжали к нам с Вашей помощью. Были ли какие-то запоминающиеся моменты?</P>
+<P>&nbsp;«Мы общались с CREMATORY очень плотно. Они довольны той работой, которую мы делали. Возможно, сейчас они уйдут с Nuclear Blast, но наши отношения продолжаться напрямую. Территорию России и СНГ они оставят за собой и отдадут нам альбом, с каким бы лэйблом не заключили контракт в будущем. Они очень общительные ребята. В полный рост любят отрываться. Большие любители виски и предпочитают идти по нарастающей в этом вопросе. Начинают с разбавленного Кока-Колой и постепенно доходят до чистого напитка. В конце концов, мы переходим на большие дозы, по этой причине я никак не могу назвать музыкантов CREMATORY замкнутыми в себе людьми. Обычные приятные ребята».</P>
+<P>Вопрос: А THERION?</P>
+<P>«В THERION всё сконцентрировано вокруг Cristopher Johnson, единственная причуда которого то, что он является вегетарианцем. Так как я доктор, могу сказать, что у него есть определённые проблемы с желудком, поэтому подобное питание он предпочитает не от хорошей жизни. Он немного закрытый, чуть-чуть замкнутый человек, очень любит Булгакова, в частности, его роман «Мастер и Маргарита». Мы подарили ему красивое коллекционное издание, он был счастлив и минут 15 листал страницы и восхищался. Ему было очень приятно».</P>
+<P>Вопрос: Насколько проблемным будет приезд LACRIMOSA? Можно ли сравнить его с концертами CREMATORY и THERION в этом плане?</P>
+<P>«Каждая группа несёт определённые проблемы. Так как для нас этот род занятий внове, каждая сложность становится проблемой, но нет проблем, которые нельзя решить. Если сравнивать концерты, то LACRIMOSA по запросам ближе к THERION. Вот CREMATORY были вообще «беспроблемными». Как правило, в России всегда перевыполняют райдер, если всё проходит хорошо, и группа остаётся довольна. Например, указано – «бутылка воды», а у нас, кроме этого, может быть и бутылка водки и всё что угодно».</P>
+<P>Вопрос: Какие ближайшие планы у Irond, как лэйбла?</P>
+<P>«Мне бы не хотелось раскрывать нашу внутреннюю работу, но если всё будет удачно, я думаю, что мы сможем удивить поклонников тяжёлой музыки новыми major приобретениями».</P>
+<P>Вопрос: На какое место Вы могли бы поставить свой лэйбл среди всех металл-контор России?</P>
+<P>«Конечно, крылья у нас не растут. Мы реально оцениваем обстановку, но то, что мы входим в тройку сильнейших металл-лэйблов страны – это несомненно. Естественно, хочется себя похвалить, за такой короткий период времени мы расширили наш каталог до 1000 позиций. Мы экспериментируем. Нас многие упрекают, что мы углубляемся в готическую музыку, но если всё сравнить в процентом отношении, я думаю, что мы оправдываем своё название, как металлического лэйбла. Мы работаем чётко, пытаемся копать побольше, отыскивать новые команды, конкуренция в нашем бизнесе очень жёсткая, поэтому приходится держать «нос по ветру»».</P>
+<P>Вопрос: Кто, кроме Вас, входит в тройку?</P>
+<P>«Я думаю в тройке: Союз, Фоно и Irond. CD-Maximum тоже стараются, но им тяжеловато, так как они начали это делать, стараться, чуть позже. Мы следим за работой других лэйблов и стараемся избежать их ошибок. Основное в нашей работе это имена, и мы работаем над тем, чтобы в нашем каталоге было больше хороших имён».&nbsp; </P>
+Автор: Vit Belov
+
+### 03.06.2005 news Вышел новый номер журнала Rock Oracle!
+
+<SPAN class=bb><SPAN class=crem>
+<P><SPAN class=banddesc><SPAN class=bb><SPAN class=crem><B><SPAN class=nav><B><IMG height=326 alt="" hspace=10 src="/images/news_rus/2005.06/8730.jpg" width=227 align=right border=1>Второй номер журнала Rock Oracle уже в продаже!</B></P>
+<P></SPAN></B><SPAN class=crem><SPAN class=banddesc><SPAN class=crem><SPAN class=tit1><SPAN class=crem><SPAN class=banddesc><SPAN class=lyrica style="COLOR: #ff0000">Спрашивайте в магазинах единственное отечественное рок-издание с компакт-диском!</P><SPAN class=pna>
+<P>Вас ожидают:</P>
+<UL>
+<LI></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>&nbsp;Эксклюзивное интервью с&nbsp;Lacrimosa (подготовьтесь к приезду легенды готической сцены в Москву!); 
+<LI>&nbsp;Отчеты с московских концертов Crematory, Behemoth, Rage, Ensiferum, To/Die/For; 
+<LI>&nbsp;Свежая информация из жизни Obituary, Borknagar, Moonsorrow, Sentenced, Samsas Traum; 
+<LI>&nbsp;Познавательная статьи о развитии готической культуры; 
+<LI>&nbsp;Как всегда куча свежих новостей, рецензий на музыкальные диски, книги и видео</LI></UL><SPAN style="COLOR: #ff0000"><B><SPAN class=tit1><B><SPAN class=banddesc><B><SPAN class=tracks><B><SPAN class=h1><B><SPAN class=total><B><SPAN class=bb><B><SPAN class=band><B><SPAN class=tit1><B><SPAN class=lyrica><B><SPAN class=lyrica><B><SPAN class=banddesc>
+<P class=pna><B>+ компакт-диск - "нарезка" из хитов самых популярных новинок музыкального рынка</B></P></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B></SPAN></B>
+<P class=pna></SPAN></B></SPAN></P></SPAN></SPAN>
+Автор: Soubbterranean
+
+### 10.06.2005 news LACRIMOSA в Москве
+
+<CENTER><IMG height=558 alt="" hspace=0 src="/images/shows_rus/2005.06/8383.jpg" width=400 align=top border=5></CENTER>
+<CENTER>Концерт группы LACRIMOSA!!!<BR>10 июня ДК Горбунова<BR>Организатор – Irond Ltd.<BR>Билеты можно приобрести в кассах ДК и в торговом центре Горбушкин Двор на точке №100. Цены: партер - 1000 рублей; балкон - 1500 рублей; VIP - 2000 рублей.</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Подробнее: <A href="/ru/articles/1/54501/">http://musica.mustdie.ru/ru/articles/1/54501/</A></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 11.06.2005 articles LACRIMOSA в Москве: концерт прошёл при полном аншлаге!
+
+<P><IMG height=299 alt="В этот раз очередь рассосалась быстро" hspace=0 src="/images/articles_rus/2005.06/8794.jpg" width=400 align=left border=5>Визит немецкой gothic-легенды LACRIMOSA в Москву прошёл с большим успехом. Все билеты на концерт в ДКГ были проданы, а спекулянты предлагали приобретать «лишний билетик» за 8000 рублей, что в 8 раз дороже номинала. Некоторые любители группы так и остались за бортом Горбушки. Видимо, они хотели приобрести билет перед концертом. Что ж, не судьба! Перед охраной на входе, во время шоу, стояло несколько девушек, которые истерично требовали впустить их внутрь. Ваш покорный слуга даже слышал, как одна из них обещала повеситься. Очень готично: жалкий трупик в тени деревьев у памятника Ленину.</P>
+<P>В этот раз концерт прошёл, как по маслу. Никаких задержек, никакой давки на входе, никакого иного бардака… Публику довольно споро запустили внутрь, и концерт начался лишь с небольшой задержкой от обещанных 19-00. Большинство зрителей представляли молодые девушки в нарядах разной степени «трушности» и «готичности». Интересно, что большинству из них, по моим скромным подсчётам, не было и 10 лет, когда LACRIMOSA записывали свои легендарные альбомы “Inferno” или “Stille”. Можно только порадоваться за них. Они увидели выступление немцев в том возрасте, когда никакие скептически-ворчливые настроения не мешают насладиться зрелищем. Меньшинство же, к которому я отношу себя, не смогло в полной мере получить удовольствие, из-за глупых надоедливых мыслей пресыщенного металл-угаром мозга.</P>
+<P>Прошу, сразу же, принять во внимание то, что с точки зрения готов оценивать это шоу я не могу. Вероятно от Tilo Wolf, Anne Nurme и музыкантов исходила какая-то, «невидимая» глазу, уху и носу, аура, и это не позволило фэнам покинуть зал после 3-4 песен. Возможно, эта аура заключалась частично и в стоимости билета (от 1000 до 2000&nbsp;рублей). Если&nbsp;же взглянуть на происходящее вчера со стороны, то станет несколько не по себе. Странный человек с чувством на немецком языке исполняет песни, должно быть про любовь, под аккомпанемент группы, которая не слишком утруждает себя виртуозными ходами. В перерывах между куплетами и припевами Tilo исполнял «танец марионетки», видимо, пародируя грустного клоуна, который является символом группы. Самое интересное начиналось тогда, когда петь начинала Anne. Tilo становился за клавишные, на которых играла она до этого (кстати, его было не очень слышно, когда он играл), а Nurme пела и плясала. Наверное, она его пародировала, поэтому пела с таким же чувством, в обычных, не столь культовых, случаях, это называлось бы «дурным голосом». А в танце она пыталась соблазнительно вилять бёдрами, я стоял в дальних рядах, поэтому не поддался на её чары. Что творилось в первых рядах, мне не ведомо.</P>
+<P>Мне кажется, достаточное количество фэнов, шедших на этот концерт, не надеялись на угар. В концертном исполнении хиты LACRIMOSA звучат не столь убедительно. В особенности это заметно, на песнях с Elodia, симфонизма не хватает. Но те, кто посетили концерт, могут хотя бы утешаться тем, что видели по истине историческое событие, которое, скорее всего, больше не повторится. А те, кто не посетили, могут не очень жалеть об этом. </P>
+Автор: Vit Belov
+
+### 15.06.2005 reviews Свет в конце тоннеля
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом культовой немецкой готической формации LACRIMOSA... С первых же минут, понимаешь, это все та же LACRIMOSA: томный голос Тило, клавишная атмосферика, звуки духовых интсрументов, загадочная аура... Не хватает только оркестра. И уже на четвертой минуте поражаешься невероятно тяжелым для саунда группы гитарам и тому, что Тило поет чуть ли не скримингом. Такое неожиданное начало. Но, после прослушивания всего альбома понимаешь, что все-таки, это все та же LACRIMOSA, с присущим ей симфонизмом (может, чуть в меньшей степени), особыми магическими настроениями и неоклассическим мелодизмом. Нельзя не признать, что это самый тяжелый альбом за всю историю группы. Особо, надо отметить, что концертное и студийное звучание группы разительно отличаются,&nbsp; причем намного в пользу последнего. Больше всего стоит отметить вокал Аннеке. Уж не знаю, насколько сильно ее вокал обрабатывается в студии... Но, слушая то, что на альбоме и то, что было на концерте, понимаешь, что это две большие разницы. Действительно, после московского концерта можно смело утверждать, что лучше всего эту группу слушать в домашних условиях. На протяжении всего альбома, у меня было чувство, что чего-то здесь&nbsp;не хватает. Потом, я понял. LACRIMOSA - чуть ли не единственная группа, играющая симфонический металл, и мало использующая хор ( в полной мере он используется только в заключительной вещи). Этого здесь очень не хватает. Да, это самый тяжелый альбом группы, но не самый лучший, далеко не the best. Хотя, здесь и присутствует все лучшее, что группа сумела выработать за многие годы. Да и хитов хватает: Kelch der Liebe, Lichtgestalt и Letzte Ausfahrt, кроме того, очень хорошая заключительная эпическая вещь Hohelied Der Liebe. Можно точно сказать, что для самых преданных поклонников группы, этот альбом - шедевр, не меньше. Остальные, лишь не пожалеют, что послушали этот альбом, но не более.</FONT></P>
+Автор: Dimas
+
+### 10.04.2006 news Билеты на LACRIMOSA
+
+<P>Билеты на оба шоу <STRONG>LACRIMOSA</STRONG> расходятся как горячие пирожки! Все VIP билеты на концерт в клуб "Точка" уже распроданы, причем они были в свободной продаже только 24 часа. Настоятельно рекомендуем Вам поспешить с приобретением билета на концерт. Пока ещё Вы можете это сделать в:<BR>Касса ДКГ<BR>ул. Новозаводская, 27<BR>проезд м. Багратионовская<BR>телефон 145 80 98 </P>
+<P>Касса клуба Точка<BR>Ленинский пр-т, 6/7<BR>проезд м. Октябрьская<BR>телефон 737 76 66</P>
+<P>Павильон №100<BR>Горбушка в помещении завода "Pубин"<BR>м. Багратионовская</P>
+<P>Цены (9 июня в ДК Горбунова) – партер 1000 руб., балкон 1500 руб., бельэтаж (VIP) 2000 руб.<BR>Цены (10 июня в клуб Точка) – партер 1000 руб.</P>
+Автор: Vit Belov
+
+### 11.05.2006 news LACRIMOSA вновь в Москве
+
+<P>Irond Ltd. представляет концерты легендарной готической группы LACRIMOSA.</P>
+<P>Внимание! Будет организовано два выступления группы. Первый масштабный концерт состоится 9 июня в ДК Горбунова в 20 часов (открытие дверей - 18:00). <BR>Второй - на следующий день, 10 июня в клубе Точка также в 20 часов. В ходе обоих концертов зрители смогут приобрести диски и атрибутику Lacrimosa. Посетителей концерта в клубе Точка ждёт эксклюзивная автограф-сессия, а владельцев билетов VIP - подарок. </P>
+<P>Билеты в продаже с 29 марта и имеются в наличии:</P>
+<P>Касса ДКГ<BR>ул. Новозаводская, 27<BR>проезд м. Багратионовская<BR>телефон 145 80 98 </P>
+<P>Касса клуба Точка<BR>Ленинский пр-т, 6/7<BR>проезд м. Октябрьская<BR>телефон 737 76 66</P>
+<P>Цены (9 июня в ДК Горбунова) – партер 1000 руб., балкон 1500 руб., бельэтаж (VIP) 2000 руб.<BR>Цены (10 июня в клуб Точка) – партер 1000 руб., VIP 2000 руб. </P>
+Автор: Vit Belov
+
+### 28.04.2008 news Дополнительные концерты LACRIMOSA в России
+
+<P>Шокирующая новость для российских поклонников мировой готик-металлической иконы<STRONG> LACRIMOSA</STRONG>!</P>
+<P>Компания<STRONG> Irond</STRONG> объявляет о достижении всех необходимых договорённостей о проведении этим летом впервые в истории группы <STRONG>LACRIMOSA</STRONG> (помимо двух ранее анонсированных концертов в Москве) первого российского мини-тура! Расписание тура окончательное и выглядит следующим образом:</P>
+<P>20 июня – Москва (ДК Горбунова)<BR>21 июня – Москва (клуб Точка)<BR>23 июня – Краснодар (ДИ Премьера) – впервые!<BR>25 июня – Санкт-Петербург (клуб Порт) – впервые!</P>
+<P>“<EM>Изначально сразу после московских концертов у группы была договорённость о большом туре по Китаю</EM>", – сообщает промо-отдел компании <STRONG>Irond</STRONG>. "<EM>Буквально на прошлой неделе стало известно, что по ряду причин этот тур не состоится, поэтому стала возможной организация дополнительных концертов в России</EM>!"</P>
+Автор: Vit Belov
+
+### 22.05.2008 news Новые концерты LACRIMOSA в России
+
+<P>Компания Irond называет даты новых концертов группы <STRONG>LACRIMOSA</STRONG> в России,</P>
+<P>20 июня - Москва (ДК Горбунова)<BR>21 июня - Москва (клуб "Точка")</P>
+<P>Дополнительная информация и детали - по мере появления на сайте организатора концертов: <A href="http://www.irond.ru/">www.irond.ru</A></P>
+Автор: Vit Belov
+
+### 23.02.2009 news LACRIMOSA в мае
+
+<P>Новый альбом <STRONG>LACRIMOSA "Sehnsucht"</STRONG> выйдет 8 мая.</P>
+Автор: Vit Belov
+
+### 12.03.2009 news LACRIMOSA споют о сильном желании
+
+<P>Мы уже сообщали, что 8 мая выходит долгожданный альбом<STRONG> LACRIMOSA</STRONG> <STRONG>"Sehnsucht". </STRONG>Опубликован трэк-лист этого альбома:</P>
+<P>01. <B itxtvisited="1">Die Sehnsucht In Mir</B><BR itxtvisited="1">02. <B itxtvisited="1">Mandira Nabula</B><BR itxtvisited="1">03. <B itxtvisited="1">A.U.S.</B><BR itxtvisited="1">04. <B itxtvisited="1">Feuer</B><BR itxtvisited="1">05. <B itxtvisited="1">A Prayer For Your Heart</B><BR itxtvisited="1">06. <B itxtvisited="1">I Lost My Star In Krasnodar</B><BR itxtvisited="1">07. <B itxtvisited="1">Die Taube</B><BR itxtvisited="1">08. <B itxtvisited="1">Call Me With The Voice Of Love</B><BR itxtvisited="1">09. <B itxtvisited="1">Der Tote Winkel</B><BR itxtvisited="1">10. <B itxtvisited="1">Koma</B></P>
+Автор: Vit Belov
+
+### 16.03.2009 news Новую LACRIMOSA можно послушать
+
+<P>8 мая на<STRONG> Hall Of Sermon/Irond</STRONG> выходит новый альбом <STRONG>LACRIMOSA</STRONG> <STRONG>"Sehnsucht". </STRONG>Одну минуту новых песен можно послушать на <STRONG>MySpace</STRONG> страничке группы. 10 песен за 60 секунд, феноменальное слушание, приводящее к слуховым галлюцинациям, здесь: <A href="http://www.myspace.com/lacrimosaofficial">http://www.myspace.com/lacrimosaofficial</A></P>
+Автор: Vit Belov
+
+### 20.03.2009 news LACRIMOSA всё-таки выложили песню
+
+<P>Новую песню <STRONG>LACRIMOSA</STRONG> <STRONG>"Die Sehnsucht In Mir" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/lacrimosaofficial">http://www.myspace.com/lacrimosaofficial</A></P>
+Автор: Vit Belov
+
+### 05.05.2009 reviews LACRIMOSA любят нас!
+
+<P>Немецкие классики LACRIMOSA уже не в первый раз выпускают мини-альбом специально для России. Если с прошлым альбомом вышел какой-то анонимный EP, попавший в digi-pack издание “Lichtgesalt”, то в этот раз свет увидел полноценный Russian Special Edition “I Lost My Star”. Понятно, что все эти телодвижения вызваны производственной необходимостью отечественного представителя LACRIMOSA Irond, чтобы скомпоновать свои традиционно двойные лимитированные издания. С другой стороны, подобные жесты от группы что-то да значат. Видимо, в России у Tilo Wolf совершенно особая аудитория. Например, как у Yngwie Malmsteen в Японии. Отечественным фэнам группы есть чем гордиться. Это их заслуга, если группа обращает столь пристальное внимание на наш рынок.</P>
+<P>Что же попало на “I Lost My Star”? Две версии заглавной песни “I Lost My Star in Krasnodar”, эксклюзив “The Last Millenium”, концертная версия “Siehst Du mich im Licht” и видеоклип, представляющий собой набор кадров из видео LACRIMOSA под их музыку. Естественно, мы используем любую возможность, чтобы заглянуть вперёд и оценить будущий альбом популярной группы. “I Lost My Star In Krasnodar” – типичный для LACRIMOSA «боевик», если так можно выразиться. Достаточно быстрая песня с запоминающимся лирическим припевом. Подобный трэк всегда бывает на «послеготических» (можете называть их металлическими) альбомах группы. Его наличие, к сожалению, ни о чём нам не говорит. Чем наполнит свой альбом мистер Wolf? Будут это несомненные лирические и разнообразные gothic-metal хиты, как на “Inferno” или “Stille” или, быть может, симфоническое великолепие “Elodia”? Не хочется верить, что мы получим что-то из позднего, но естественно вероятность такого стечения обстоятельств достаточно велика. </P>
+<P>С какими-то окончательными выводами повременим, но посоветуем этот альбом тру-фанатам LACRIMOSA. А ещё его можно мощно продавать на Запад, хотя предупреждаю, это нелегально. </P>
+<P>Не думайте, что я забыл вам рассказать, чем отличаются две версии “I Lost My Star”, представленные на этой пластинке. Я просто самое вкусное оставил напоследок. В специальной русской версии этой песни Tilo Wolf поёт две последние строчки на русском языке. Отмечу, что яркий перевод этих строк сделал популярнейший журналист, главный редактор Dark City Андрей Корюхин. Поздравим его с этим творческим дебютом и процитируем этот нетленный образец великолепного перевода в нашей заметке:</P>
+<P>«Сияй – сияй – моя звезда<BR>Сияй везде – сияй всегда»</P>
+<P>Браво!</P>
+Автор: Vit Belov
+
+### 12.05.2009 reviews Фанатики уже в магазине
+
+<P>Рецензировать новые альбомы LACRIMOSA попросту глупо. Группа находится уже в столь далёких слоях атмосферы, где разглядеть её могут только очень преданные фанаты. Я не отношусь к категории этих людей, но уважаю Tilo Wolf за проделанную работу, а, главное, за несколько шедевральных альбомов, вышедших в прошлом веке.</P>
+<P>В новом веке LACRIMOSA закрепляет свою популярность серией качественных, но более слабых альбомов, которые очень хорошо отвечают ожиданиям фанатов. Экзальтированный вокал Tilo, симфонические аранжировки, негромкая гитара, печальная музыка. Всё это есть и на “Sehnsucht”. Новый альбом показался мне более разнообразным, чем предшественник, и, хотя он и не будит былых восторгов, он, по крайней мере, не раздражает и не усыпляет. </P>
+<P>Агитировать за покупку этого альбома я не стану, да и что вам до моей агитации. Я просто уведомляю, что новая пластинка LACRIMOSA уже в магазинах. Всем фанатикам бежать туда. Любителям же тяжёлой музыки “Sehnsucht” можно рекомендовать только для коллекции.</P>
+Автор: Vit Belov
+
+### 25.08.2009 news Новое видео LACRIMOSA
+
+<P>Видео на песню <STRONG>LACRIMOSA "Feuer"</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=210 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=6167280&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=6167280&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="210"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.03.2010 news LACRIMOSA отпразднуют юбилей
+
+<P><STRONG>LACRIMOSA </STRONG>выпускают двойной альбом, приуроченный к 20-летию группы. На издание попадут 17 раннее нереализованных трэков, начиная с первого демо 1990 года и заканчивая несколькими новыми песнями, которые группа записывает сейчас в студии. Празднуя свой юбилей, <STRONG>LACRIMOSA</STRONG> приедут с очередным туром в Россию. Швейцарцы выступят в Санкт-Петербурге, Краснодаре, Москве, Самаре Ростове-На-Дону и Екатеринбурге в конце мая - начале июня.</P>
+Автор: Vit Belov
+
+### 31.07.2012 news LACRIMOSA: обложка альбома &quot;Revolution&quot;
+
+<P>Швейцарские готы <STRONG>LACRIMOSA</STRONG> опубликовали обложку своего нового альбома <STRONG>"Revolution"</STRONG>. Ее можно посмотреть ниже. </P>
+<P>В качестве гостей, в записи альбома приняли участие Милле Петроцца (<STRONG>Mille Petrozza</STRONG>, <STRONG>KREATOR</STRONG>) &nbsp;и Штефан Шфарцманн (<STRONG>Stefan Schwarzmann</STRONG>, <STRONG>ACCEPT</STRONG>).</P>
+<P>Диск выйдет 7 сентября 2012 года.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.07/24467.jpg" width=400 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 07.11.2015 news Новый альбом LACRIMOSA
+
+<P>Новый альбом<STRONG> LACRIMOSA "Hoffnung"</STRONG> вышел 6 ноября на <STRONG>Irond</STRONG>. В честь этого события интернет-магазин <A href="http://escapemind.ru/">http://escapemind.ru</A> объявляет скидку на весь ассортимент LACRIMOSA. Счастливые цифры 7,77 процента скидки: <A href="http://escapemind.ru/search?q=Lacrimosa">http://escapemind.ru/search?q=Lacrimosa</A></P>
+<P>Трек-лист:</P>
+<P><STRONG>01. Mondfeuer 15:15<BR>02. Kaleidoskop 06.16<BR>03. Unterwelt 03.50<BR>04. Die unbekannte Farbe 05:35<BR>05. Der Kelch der Hoffnung 03:24<BR>06. Thunder and Lightning 03:55<BR>07. Tranen der Liebe 06:39<BR>08. Der freie Fall – Apeiron, Part 1 06:17<BR>09. Keine Schatten mehr 02:28<BR>10. Apeiron – Der freie Fall, Part 2 09:07</STRONG></P>
+<P>Акция естественно включает и новый альбом коллектива, который в эти четыре дня можно приобрести по низкой цене - 325 рублей!!!</P>
+<P>Успейте! Распродажа закончится 11 ноября!</P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/kpGHXrMCHFc" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.12.2015 news Хиты продаж за ноябрь
+
+<P><IMG border=0 hspace=0 alt="" src="/images/news_rus/2015.12/28560.jpg" width=250 align=right height=250>Хиты продаж за ноябрь</P>
+<P>Список лидеров продаж на сайте <A href="http://escapemind.ru/">http://Escapemind.ru</A> и на Горбушке за ноябрь 2015 года:</P>
+<P><STRONG>1. MAGNUS KARLSSON’S FREE FALL - Kingdom Of Rock<BR>2. DEF LEPPARD "Def Leppard"<BR>3. LACRIMOSA 'Hoffnung'</STRONG><BR>4. DARK MOOR “Project X” 2015<BR>5. JOEL HOEKSTRA’S 13 'Dying To Live'<BR>6. EKTOMORF “Aggressor” 2015<BR>7. W.A.S.P. "Golgotha" - 2015 [digi]<BR>8. ELDRITCH “Underlying Issues” 2015<BR>9. GRAVE "Out Of Respect For The Dead" - 2015<BR>10. MALEVOLENT CREATION "Dead Man’s Path" - 2015</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Lacrimosa

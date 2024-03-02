@@ -25,6 +25,25 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2012 news Видео-клип ODDLAND
+
+<P>Новый ролик финов <STRONG>ODDLAND</STRONG> на песню <STRONG>"In The Eyes Of The Mourning" </STRONG>можно посмотреть ниже. Трек взят с дебюта коллектива <STRONG>"The Treachery Of Senses"</STRONG>, который вышел на <STRONG>Century Media</STRONG> и доступен в нашем магазине.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/7G8wPbsJnWc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.07.2016 news Новая музыка ODDLAND
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новая музыка финнов<strong> ODDLAND</strong> доступна в клипе ниже. Трек "<strong>Hidden</strong>" с альбома "<strong>Origin</strong>", который выходит в сентябре на<strong> Sensory</strong>.</font></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TGtfle_-EWU" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 08.07.2016 news New music by ODDLAND
+
+New music by Finnish <strong>ODDLAND</strong> available in the clip below. The track "<strong>Hidden</strong>" from the album "<strong>Origin</strong>", which will come out in September on the<strong> Sensory</strong>.<p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/TGtfle_-EWU" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

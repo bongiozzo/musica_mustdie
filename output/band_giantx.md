@@ -10,6 +10,18 @@
 * C группой "Toxic Taste" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
 * C группой "Running Wild" Rolf "Rock'n'Rolf" Kasparek (T. T. Poison)
 
+## Публикации
+
+### 01.12.2012 news GIANT X - новый проект Rolf Kasparek
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>GIANT X</STRONG> - так называется новый проект участников RUNNING WILD <STRONG>Rolf Kasparek</STRONG>&nbsp;и <STRONG>Peter J. Jordan. </STRONG>Дебютная работа группы "<STRONG>I</STRONG>" выйдет в январе на <STRONG>SPV</STRONG>. Внизу можно послушать песню <STRONG>"On A Blind Flight".</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыканты сравнивают свою музыку с <STRONG>KISS</STRONG>, <B>QUEEN</B>, <B>THIN LIZZY</B>, <B>VAN HALEN</B>&nbsp;и <B>BILLY TALENT</B>.</FONT></P>
+<P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F68518915&show_artwork=true" frameBorder=no width="60%" scrolling=no></IFRAME>
+<P><center><IMG border=0 src="/images/news_rus/2012.12/25101.jpg" width=475 height=475></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

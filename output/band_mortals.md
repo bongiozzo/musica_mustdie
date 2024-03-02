@@ -8,6 +8,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.07.2014 news MORTALS: видеоклип &quot;View From A Tower&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Женское трио <STRONG>MORTALS</STRONG>, родом&nbsp;из далёкого американского города Бруклин, выпустила душевный видеоклип на трек <STRONG>"View From A Tower"</STRONG>. Смотрим его ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сама песня вошла на новый полноформатник коллектива, названный <STRONG>"Cursed To See The Future"</STRONG> и вышедший 8 июля на лейбле <STRONG>Relapse</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылки для более подробного ознакомления с коллективом:<BR><A href="http://mortals.bandcamp.com/">http://mortals.bandcamp.com</A><BR><A href="http://www.facebook.com/mortalstheband">www.facebook.com/mortalstheband</A></FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/mHPh_aUfGD8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 24.09.2014 news Новинки видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27304.jpg" width=200 height=140>В этом постинге предлагаем вам&nbsp;ознакомится с&nbsp;десятью&nbsp;модными видеоклипами в металлической и не только музыке, которые появились за последний месяц на просторах интеренета и заслуживают вашего самого пристального внимания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>1349 "Slaves"</STRONG> : <A href="http://youtu.be/ajvLJPzgL_o">http://youtu.be/ajvLJPzgL_o</A><BR>02. <STRONG>ACHERON "Satan Holds Dominion"</STRONG> : <A href="http://youtu.be/dIoQHF4YIC8">http://youtu.be/dIoQHF4YIC8</A><BR>03. <STRONG>AMON AMARTH "Deceiver of the Gods" </STRONG>: <A href="http://youtu.be/CpAcxbtXUgQ">http://youtu.be/CpAcxbtXUgQ</A><BR>04. <STRONG>CORROSION OF CONFORMITY "On Your Way"</STRONG> : <A href="http://youtu.be/H5RdqR6I8Uw">http://youtu.be/H5RdqR6I8Uw</A><BR>05. <STRONG>CRUCIFIED BARBARA "I Sell My Kids For Rock'N'Roll"</STRONG> : <A href="http://youtu.be/oVU_8D1aJoU">http://youtu.be/oVU_8D1aJoU</A><BR>06. <STRONG>MORTALS "View From A Tower"</STRONG> : <A href="http://youtu.be/mHPh_aUfGD8">http://youtu.be/mHPh_aUfGD8</A><BR>07. <STRONG>NOCTEM "The Adamantine Doors"</STRONG> : <A href="http://youtu.be/rsNQonZdRNM">http://youtu.be/rsNQonZdRNM</A><BR>08. <STRONG>ORANGE GOBLIN "Sabbath Hex"</STRONG> : <A href="http://youtu.be/2l4Ts2p7jPE">http://youtu.be/2l4Ts2p7jPE</A><BR>09. <STRONG>SPIDERS "Shake Electric"</STRONG> : <A href="http://youtu.be/4IlpVlGTjbA">http://youtu.be/4IlpVlGTjbA</A><BR>10. <STRONG>THE HAUNTED "Eye Of The Storm"</STRONG> : <A href="http://youtu.be/uNAwrj1EUo8">http://youtu.be/uNAwrj1EUo8</A></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -212,6 +212,639 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 26.09.2005 articles MELOTRON, DIORAMA, LP - 9 октября в Москве (пресс-релиз)
+
+<P><SPAN style="FONT-SIZE: 12pt"><IMG height=268 hspace=5 src="/images/shows_rus/2005.10/9284.jpg" width=400 align=right border=0>Russian Synth Community</SPAN><BR>представляет</P>
+<P><SPAN style="FONT-SIZE: 10pt">9 октября 2005</SPAN><BR>18.00</P>
+<P><SPAN style="FONT-SIZE: 10pt">клуб Б2</SPAN><BR>(Большая Садовая, 8)</P>
+<P><SPAN style="FONT-SIZE: 16pt"><SPAN style="COLOR: #cc0000">MELOTRON</SPAN> (Германия)</SPAN></P>
+<P><SPAN style="FONT-SIZE: 16pt"><SPAN style="COLOR: #cc0000">DIORAMA</SPAN> (Германия)</SPAN></P>
+<P><SPAN style="FONT-SIZE: 16pt"><SPAN style="COLOR: #cc0000">LP</SPAN> (Калининград, Россия)</SPAN></P>
+<P><BR>9 октября в московском клубе Б2 состоится выступление трех музыкальных коллективов, которые представят разные грани весьма обширного стиля synth-pop.</P>
+<P>Калининградский коллектив LP – недавний участник крупнейшего готического фестиваля Wave Gotik Treffen (Leipzig), - играет романтический synth-pop. Их песни оптимистичны, но не лишены налета мечтательной грусти. Музыка LP приятно сочетает в себе электронные аранжировки и живые гитары, а прекрасные вокальные данные двух вокалистов группы как нельзя лучше способствуют проникновению песен в сердца слушателей. На концерте группа исполнит материал дебютного альбома «От Моря до Солнца» (Снегири рекордз), а также старые и новые композиции, не вошедшие в этот релиз.</P>
+<P>Вторыми на сцену клуба Б2 поднимутся немцы DIORAMA. Эта группа продемонстрирует готический взгляд на синти-поп. Последователи и друзья Diary of Dreams преподнесут слушателям тонкое сочетание меланхолии и эмоциональности в текстах и музыке. Выступление приурочено к поддержке недавно вышедшего альбома Amaroid.</P>
+<P><B>За день до московского концерта – 8 октября - Diorama даст концерт в Санкт-Петербурге (Red club).</B></P>
+<P>Хэдлайнером московского концерта станет группа MELOTRON. Это выступление будет их третьим пришествием в столицу нашей Родины. Последний раз московская публика могла лицезреть MELOTRON 2 года назад, на Первом Фестивале Synthetic Snow в декабре 2003. Однако в течение этих двух лет группа осчастливила своими выступлениями Санкт-Петербург и Калининград. MELOTRON являются одними из ярчайших представителей классического энергичного немецкого synth-pop. Их выступления импульсивны и зажигательны, а обаяние фронт-мена делает их шоу еще более живыми и запоминающимися. На концерте в Б2 MELOTRON исполнят новый материал с альбома Clich&#233; и, конечно, лучшие хиты прошлых лет.</P>
+<P><B>ВНИМАНИЕ! 8 октября в 19.00 состоится автограф-сессия группы MELOTRON в Мега-Гипер-Маркете СОЮЗ на Пятницкой (ул. Пятницкая, дом 29). А сразу после, в музыкальном ресторане Цирлих-Манирлих (ул. Мясницкая, 24 стр. 1), пройдет pre-party MELOTRON, где фронтмен группы Andy Krueger отыграет специальный DJ-сет. Посетители ресторана Цирлих-Манирлих 8 октября смогут отведать специально приготовленный Melotron-коктейль и выиграть призы от Melotron. Начало pre-party в 20.00, вход свободный.</B></P>
+<P>Программа концерта 9 октября, клуб Б2:</P>
+<P>18.00 – doors open, DJ set<BR>19.00 – группа LP (Калининград)<BR>20.00 – группа DIORAMA (Германия)<BR>21.30 – группа MELOTRON (Германия)<BR>00.00 – 06.00 – afterparty</P>
+<P>Стоимость билета: 650 рублей (предпродажа), 700 рублей (в день концерта). Стоимость билета на afterparty (для тех, кто пропустит концерт) – 250 рублей.</P>
+<P>По вопросам аккредитации и информационной поддержки обращаться к Насте Стейнберг <A href="mailto:nastya@synth.ru">nastya@synth.ru</A></P>
+<P><B>MELOTRON</B></P>
+<P>Вот уже на протяжении 10 лет, MELOTRON являются заметной фигурой на сцене немецкого синтипопа. У них есть поклонники во многих уголках земного шара: это подтверждает и тот факт, что они проехали со своим концертным туром от России до США, от Южной Америки до края света.</P>
+<P>Нет надобности говорить о MELOTRON много. Название MELOTRON является синонимом понятия «первоклассный немецкоязычный синтипоп» - кристально чистые аранжировки и проникающие глубоко под кожу тексты. Новый альбом Clich&#233; в очередной раз доказывает, что даже после 10 лет существования трио все еще получает огромное удовольствие от написания песен. Мелодичные треки (Halt mich fest, Frei wie das Meer), сочетаются с танцевальными (Stirb fuer mich, Wenn wir wollten), с добавлением простых, понятных текстов, которые дают как пищу для размышлений, так и возможность идентифицировать себя с той или иной отображенной в тексте ситуацией. То, что в развитии MELOTRON не наблюдается ни намека на застой, доказывает и экспериментальный трек “Glaeserne Zeiten”. Помимо всего прочего на альбоме представлены еще две инструментальные композиции, одна из которых – “Sandstroem” является элегантным финалом альбома.</P>
+<P>Вдохновение к написанию нового альбома MELOTRON, по мимо всего прочего, почерпнули из уединенности датского острова и перуанских Анд, что придало звучанию альбома некоторую меланхолию.</P>
+<P>Дискография:<BR>"Morderwerk" - CD - 1999<BR>"Fortschritt" - CD - 2000<BR>"Weltfrieden" - CD - 2002<BR>"Sternenstaub" - CD – 2003<BR>“Clich&#233;” – CD - 2005</P>
+<P><B>DIORAMA</B></P>
+<P>Музыкальный проект DIORAMA был основан Торбеном Вендтом в 1996/1997 годах. Его создание обусловлено непрекращающимся поиском эмоциональной отдушины вне обыденных границ реальности. DIORAMA сочетает комбинацию мелодии, меланхолии, экспериментальных музыкальных аранжировок с прозаичной мечтательной лирикой и искусственным способом общения.</P>
+<P>Работа над первым альбомом ‘pale’ заняла почти два года, прежде чем он вышел в сентябре 1999 года на лейбле Accession records. Продюсировать альбом помогал Adrian Hates, лидер Diary of Dreams. Тогда же было положено начало крепкой дружбе. Успех ‘pale’ был на удивление неожиданным, альбом хорошо приняла международная аудитория, даже в такие страны, как Южная Африка.</P>
+<P>Летом 2000 года DIORAMA разогревала Diary of Dreams в немецком туре в поддержку альбома "one of 18 angels", а также дала несколько концертов в некоторых других странах Европы. Коллектив исполнял акустические версии своих песен только в сопровождении фортепиано.</P>
+<P>На втором альбоме "her liquid arms" в качестве со-продюсера, клавишника и бэк-вокалиста к группе присоединился Феликс Марк. Вместе они основали "hawaii studios", мастерскую всех будущих релизов diorama. "her liquid arms", будучи более ритмичным, более электронным и тяжелым, чем его предшественник, вышел в апреле 2001 года. Большой клубный успех таких песен "advance", вместе в положительными отзывами прессы привели к росту уровня популярности и 4 позиции на немецком альтернативном чарте DAC.</P>
+<P>В январе 2002 года начался период музыкальной перестройки. Бесконечное множество идей и вдохновений ждало своего времени, чтобы быть реализованным в музыке, в то же время Бернард Ле Сиг влился коллектив в качестве басиста и певца. В течение следующих 8 месяцев они сочиняли свой третий альбом "the art of creating confusing spirits", который вышел в октябре 2002 года. Он получил признание как наиболее экспериментальный в музыкальном плане, лирике и стилистическом разнообразии и достиг 5 позиции в DAC.</P>
+<P>В ноябре/декабре 2002 года DIORAMA успешно выступает на разогреве Diary of Dreams в их туре по Германии и Европе.</P>
+<P>В 2003 году DIORAMA гастролировала в Мексике и Канаде. В то же время придумывались новые треки, которые должны быть выпущены на новом альбоме. Гитарист Саш Фиддер становится еще одним членом команды.</P>
+<P>В апреле 2005 года после долгого периода музыкального затишья увидел свет четвертый альбом DIORAMA "amaroid". В поддержку "amaroid" DIORAMA присоединилась к ‘Formation’ туру VNV Nation, чтобы выступить с концертами в Германии, Польше, Голландии, Бельгии, Австрии, Швейцарии, Венгрии и Франции. Кроме того, на очереди альбом ремиксов, содержащий новые версии классических песен diorama и бонус материал. Релиз запланирован на одни из пасмурных дней октября 2005 года.</P>
+<P>Дискография:<BR>Pale – 1999<BR>Her Liquid Arms – 2001<BR>The Art of Creating Confusing Spirits – 2002<BR>Amaroid – 2005</P>
+<P><B>LP</B></P>
+<P>LP - это любимая в России эстетика new wave, синтипопа 80-х, материализованная в звучании 21 века. Неоромантика LP - та свежая струя, которая как воздух нужна российской сцене. Они играют электро-поп, с запоминающимися темами, емкими текстами, гитарными партиями, отголосками Alphaville, Duran Duran и Camouflage.</P>
+<P>LP – из Калининграда. В прошлом это город Кенингсберг, расположенный на берегу Балтийского моря. Здесь все говорят по-русски, но создается впечатление, что ты находишься за границей. Калининград – территория на Балтийском море, откуда до Берлина – вдвое ближе, чем до Москвы, а Польша – вот она, рукой подать, 20 минут на машине.</P>
+<P>В Калининграде сложилась совершенно особая музыкальная жизнь, она развивается не зависимо от всей остальной страны. Здесь в моде манчестерская волна, готика, синти-поп и 80-е.</P>
+<P>В 13 лет пятеро мальчишек собрались вместе, взяли в руки гитары и решили создать группу. Скоро они записали первый альбом, (тогда еще группа называлась No Man's Land) очень серьезный и очень готический. А в 1997 году появился альбом «Слезы», заглавную песню с которого, «Слезы Жанетт», спустя несколько месяцев центральная площадь Калининграда пела хором. Ребята стали принцами этого города: молодые, красивые, романтичные.</P>
+<P>LP всегда увлекались 80-ми. Их эксперименты крутятся вокруг этой эпохи. Для них это все – не прошлое, а материал, из которого создается настоящее. И подобный микс, сочетание острого, актуального звучания 21-ого века и ностальгического прошлого 80-х, делают музыку LP сейчас не только модной, но и востребованной. Это не попытка повторить или стилизовать, это новая, яркая музыкальная реальность.</P>
+<P>В Калининграде-Европе LP постоянно общаются с Мэттью Беллами (Muse), Марком Алмондом или Camouflage. В Калининграде-России - познакомились и поддерживают отношения с "Би-2", "Смысловыми Галлюцинациями", "Мультфильмами" и Найком Борзовым. Диапазон их музыкальных пристрастий представителен: Depeche Mode, The Cure, A-Ha, Muse, Бьорк, Massive Attack, Air, Rammstein - всех этих артистов участники LP регулярно видят на концертах в близлежащих Варшаве, Праге или Берлине.</P>
+<P>LP, безусловно, одна из наиболее европеоизированных групп в стране. В их арсенале - эрудиция, поэтичность, свободомыслие и чувство вкуса.</P>
+<P>В 2004 году на лейбле Снегири вышел альбом «От Моря до Солнца», песни с которого попадают в ротацию нескольких ведущих российских радиостанций, а клип на песню «Она Улыбается» на канал MTV.</P>
+<P>Дискография:<BR>"Garden of Love" - 1995<BR>"Слезы" - 1997<BR>"Романтика forever" - 2000<BR>"С.Е.Р.Д.Ц.Е" – 2001<BR>«От моря до солнца» - 2004</P>
+Автор: Morsus
+
+### 09.10.2005 news MELOTRON, DIORAMA, LP в Клубе Б2
+
+<P><SPAN style="FONT-SIZE: 12pt"><IMG height=268 hspace=5 src="/images/shows_rus/2005.10/9284.jpg" width=400 align=right border=0>Russian Synth Community</SPAN><BR>представляет</P>
+<P><SPAN style="FONT-SIZE: 10pt">9 октября 2005</SPAN><BR>18.00</P>
+<P><SPAN style="FONT-SIZE: 10pt">клуб Б2</SPAN><BR>(Большая Садовая, 8)</P>
+<P><SPAN style="FONT-SIZE: 16pt; COLOR: #cc0000">MELOTRON</SPAN> <SPAN style="FONT-SIZE: 12pt">(Германия)</SPAN></P>
+<P><SPAN style="FONT-SIZE: 16pt; COLOR: #cc0000">DIORAMA</SPAN> <SPAN style="FONT-SIZE: 12pt">(Германия)</SPAN></P>
+<P><SPAN style="FONT-SIZE: 16pt; COLOR: #cc0000">LP</SPAN> <SPAN style="FONT-SIZE: 12pt">(Калининград, Россия)</SPAN></P>
+<P>Программа концерта 9 октября, клуб Б2:<BR>18.00 – doors open, DJ set<BR>19.00 – группа LP (Калининград)<BR>20.00 – группа DIORAMA (Германия)<BR>21.30 – группа MELOTRON (Германия)<BR>00.00 – 06.00 – afterparty</P>
+<P>Стоимость билета: 650 рублей (предпродажа)<BR>700 рублей (в день концерта)<BR>Стоимость билета на afterparty (для тех, кто пропустит концерт) – 250 рублей</P>
+<P><BR>ВНИМАНИЕ! 8 октября в 19.00 состоится автограф-сессия группы MELOTRON в Мега-Гипер-Маркете СОЮЗ на Пятницкой (ул. Пятницкая, дом 29). А сразу после, в музыкальном ресторане Цирлих-Манирлих (ул. Мясницкая, 24 стр. 1), пройдет pre-party MELOTRON, где фронтмен группы Andy Krueger отыграет специальный DJ-сет. Посетители ресторана Цирлих-Манирлих 8 октября смогут отведать специально приготовленный Melotron-коктейль и выиграть призы от Melotron. Начало pre-party в 20.00, вход свободный.</P>
+Автор: Morsus
+
+### 15.10.2005 articles MELOTRON, DIORAMA, LP - концерт в Москве в клубе Б2
+
+<P><EM>MELOTRON, DIORAMA, LP - 9 октября&nbsp; 2005 г., Москва,&nbsp;клубе Б2, организаторы: Russian Synth Community.</EM></P>
+<P>Клуб Б-2 считается достаточно мажорным местом. Самое дешёвое пиво - от 90 рублей, которое по дурной традиции заканчивается после первой же кружки и дальше дешёвым становится уже пиво по 150. Аднако! Но не пить же сюда в самом деле пришли. Сегодня здесь Мелотрон, Диорама и открывающая вечер калининградская группа LP.</P>
+<P>Кое-что о LP уже было известно из пресс-релиза и слухов. Раньше они назывались No Man's Land и во времена десятилетней давности были&nbsp;заметным явлением&nbsp;на калининградской музыкальной сцене. То ли синти-поп,&nbsp;то ли просто рок, но не русский, а западного типа, музыка&nbsp;с преобладающими гитарами, приятным вокалом, отличными&nbsp;текстами, лёгкими, добрыми. "Мы так красивы, мы так прекрасны", "Она где-то рядом, она где-то здесь" - из тех, что моментально запомнились. Песня "Сердце", её представили как совсем новую... "но сердце стучииится, сеердце..." и сзади на экране видеоряд с кадрами сердечно-сосудистой хирургии. Песенка про счастье - "Она купила новое платье, чтобы сегодня кому-то отдаться, ну где же оно, то самое счастье..." Хорошая группа, позитивная, внешне&nbsp;такая немного легкомысленная, но профессиональная и качественная,&nbsp;подача на сцене радовала.</P>
+<P><IMG height=260 src="/images/articles_rus/2005.10/9537.jpg" width=260 align=right border=0>Затем после технической паузы - Diorama. Зал уже полон, битком. Вроде бы не ахти какая музыка, клёва конечно, но я лично ничего для себя не открыл, нормально так, драйвово, да, но не особо. И даже после концерта врядли буду слушать дома или в метро по пути на работу. Но на сцене это было нечто! Артисты! Такая пластика, лёгкость, полная отдача. Горящие глаза. Слушать приятно, смотреть, даже просто быть в зале, в массе. Стоять на месте невозможно, только бешено прыгать вместе со всеми. Собственно, после Диарамы вполне можно было расходиться, впечатлений, эмоций уже хватило, публика была не столько разогрета, сколько выжата и доведена до полной усталости. А ведь впереди ещё Мелотрон.</P>
+<P>Каково же было Энди Крюгеру с товарищами по сцене продолжать вечер. Куда уж дальше зажигать. Да ещё и со звуком у Мелотрон не фонтан вышел. Клавиши выведены вперёд, стоять у сцены было&nbsp;тяжеловато для ушей. И вокалисту приходилось напрягаться. Было видно, как Энди Крюгер пару раз пытался жестами показать звукачу, чтоб поправил что-то там, поднял вокал, чтобы не приходилось орать, перекрикивая инструменты. В таком уютном зале, полном, по-хорошему тесном, где создавалаось ощщущение узкого круга своих,&nbsp;тут бы показать побольше нюансов в голосе, душевности побольше и камерности, а вместо этого все песни просто громко орались как на стадионе. Были спеты Wohin?, Gib mir alles, Folge mir ins licht, Bruder с белого альбома, Wunsch mich nicht zuruck, Erwatungen, Manchmal - c альбома Sternenstaub, с совсем нового мне нравятся всего пара-тройка песен, их он и спел - Menschenfresser, Wenn wir wollten. Точный сет-лист не запомнил, но суть в том, что с каждого альбома понемногу, всё самое лучшее, и без неожиданностей. Постоянные ужимки, дразнилки и паясничание, такой он Энди Крюгер похоже по жизни, и на сцене в большей степени. И таки выступление получилось по эмоциональному накалу не слабее Диорамы. Благодаря отличным песням конечно же, да и фронтменству Энди Крюгера в неменьшей степени. "Ю ар но - большое гавно", типа вы клёвые, говорит. О да!</P>
+Автор: Morsus
+
+### 02.05.2007 reviews Пропаганда примитива
+
+<P>На своей очередной пластинке под названием "Propaganda" немцы (выросшие в бывшей ГДР) Melotron не преподносят слушателям ничего нового. Всё тот же электро-синти-поп, довольно скучный и малоинтересный. Несмотря на то, что группа достаточно популярна в разных уголках нашей планеты (и, в частности, в России), всё же немаловажной составляющей ее творчества являются тексты, а они почти все на немецком языке, так что многие любители подобной музыки лишены возможности понять песни коллектива целиком и полностью. Впрочем, есть немалая доля таких меломанов, которым вообще вся эта лирика до фонаря, а главное - подрыгаться под незамысловатый электро-бит Melotron. А кого-то даже гипнотизирует пение на немецком, неважно, понимает ли человек хоть одну фразу или нет. Мелодии песен довольно простые, но они совершенно не запоминаются, несмотря на свою примитивность. Не знаю, как вам, а по мне так лучше переслушать в сотый раз Depeche Mode или тех же Camouflage. Так что альбом "Propaganda" можно рекомендовать разве что фанатам группы и упертым любителям подобного синти-попа. Остальные могут совершенно спокойно проходить мимо, они ничего не потеряют. Добавлю, что на диске бонусом идет видео 'Das Herz', которое может понравиться лишь тем, кого радует любой кусочек обнаженного женского тела в клипах. Совершенно посредственная, на мой скромный взгляд, работа.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 ### Фотографии Melotron и Apoptygma Berzerk, спасибо Слону

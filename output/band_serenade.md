@@ -45,6 +45,27 @@ Julie Ballantyne - Cello, Grand Piano, Hammond Organ, Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> новости<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 30.07.2002 news MassaBrutto Radioshow #94, 29-30 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SERENADE - Evenslaughter (Golden Lake Prods)<BR> 2. LIFEND - This Cold Life (band/MAE Prods)<BR> 3. COBOLT 60 - Chainsaw Michelangelo (Head Not Found/VME)<BR> 4. COBOLT 60 - Meat Hook Ballet (Head Not Found/VME)<BR> 5. TRANSPORT LEAGUE - Crazy Sioux [by GLORIOUS BANKROBBERS] (Phantom Music/DDE/Pavement Music)<BR> 6. INHUMATE - Underground (Grind Your Soul Prods)<BR> --- --- --- ---<BR> news<BR> --- --- --- ---<BR> 7. ORIGIN - Insurrection (Relapse)<BR> 8. FLESHCRAWL - As Blood Rains From The Sky (Morbid/SPV/Legacy)<BR> 9. EXTREME NOISE TERROR - Through Mayhem (Blackend/Ablaze)<BR> 10. WAYD - Flashbacks Of Freedom (Metal Age Prods)<BR> 11. FORGOTTEN SILENCE - The White Oceans (M.A.B. Recs/Redblack Prods)</p>
+
+Автор: Yermola
+
+### 20.11.2002 reviews Brutal... yet melodic and memorable
+
+<p>- Hey, what’s that noise? <BR> - Just SERENADE’s playing. <BR> - Which one? <BR> - Scotland’s. <BR> - Wait-wait-wait, haven’t they been playing that soothing vanguard-like doom metal for ages? <BR> - Yep. <BR> - But what I hear now is pretty different. Moreover, it doesn’t have anything to do with doom metal, don’t you think so? <BR> - Well, the intro has. And even if the guys aren’t that doomy anymore, they’re actually really good. <BR> - Well… now let me listen to it for a little while. Erh, there’s no denying the truth, man. Really good. Just as you said. <BR> - Sounds a bit similar to ORPHANAGE, huh? <BR> - Let me think… Only a bit. No, in fact, not even a bit. Both combos play melodic death metal, that’s the only parallel. Apart from that; no real similarity. <BR> - That guy growls pretty fine, what do you think? <BR> - I think he’s more or less excellent, especially if compared to the old singer. <BR> - There were two or even three of them, previously. <BR> - Oh, doesn’t matter. He’s better than the one who I heard before anyway. Hey, the music’s groovy. I like that. What is the song now playing? <BR> - “Armageddon Comes”. <BR> - Great. Brutal yet melodic and memorable. <BR> - Exactly. My fave off this CD. And this combination of melodiousness and brutality… <BR> - It’s nothing new anymore, to be honest. <BR> - … yes, but there aren’t too many bands notable for delivering such a fascinating combination of this kind. <BR> - True. Perhaps I should consider buying this one. What company are they signed to? <BR> - Golden Lake Productions.<BR> - Bloody hell, what is that?? <BR> - A record company of their own, I suppose. <BR> - Like, still underground? <BR> - Yes. <BR> - Why? <BR> - I don’t know. I only know they seem to be quite pleased with how everything turns out. So it’s up to them. <BR> - Ok, I guess the actual CD would be pretty hard to find at any local metalstore… <BR> - Probably you should try mailorder. First contact ‘em at <A HREF="mailto:serenade4@yahoo.co.uk">serenade4@yahoo.co.uk</A>. <BR> - Man, aren’t you trying to tell me they don’t even have a site? <BR> - I guess they have. Go and surf <A HREF="http://musicfans.to/goldenlake">http://musicfans.to/goldenlake</A> <BR> - Ok. Thanks for getting me acquainted with this new CD of theirs.<BR> - Their _best_ CD. <BR> - Are you sure? <BR> - Absolutely. If I was you, I wouldn’t even doubt it. For it’s a fact.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 ### Griffin 'Wasteland Serenade'

@@ -22,6 +22,9 @@
 * C группой "Hatebreed" Chris Beattie - bass
 * C группой "Terror" Nick Jett - drums
 
+## Публикации
+
+
 ## Обсуждения
 
 

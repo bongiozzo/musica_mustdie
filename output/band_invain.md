@@ -32,6 +32,45 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.01.2009 news IN VAIN заканчивают альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=240 alt="" hspace=0 src="/images/news_rus/2009.01/13289.jpg" width=300 align=right border=5>IN VAIN</STRONG> опубликовали трэк-лист и название своего второго альбома. Новая работа будет называться "<STRONG>Mantra</STRONG>". Трэк-лист:</FONT></P>
+<P>01. <B>Captivating Solitude</B><BR>02. <B>Mannefall</B><BR>03. <B>Ain't No Lovin'</B><BR>04. <B>On The Banks Of The Mississippi</B><BR>05. <B>Circle Of Agony</B><BR>06. <B>Wayakin (The Guardian Spirit Of The Nez Perce)</B><BR>07. <B>Dark Prophets, Black Hearts</B><BR>08. <B>Sombre Fall, Burdened Winter</B></P>
+<P>"<EM>Мы хорошо поработали в Рождество, и альбом готов на 98 процентов</EM>", - сообщила группа.&nbsp;</P>
+Автор: Vit Belov
+
+### 06.03.2009 news IN VAIN перенесли на май
+
+<P>Второй альбом норвежцев<STRONG> IN VAIN</STRONG> перенесён на май. Трэк-лист пластинки:</P>
+<P>01. <B itxtvisited="1">Captivating Solitude</B><BR itxtvisited="1">02. <B itxtvisited="1">Mannefall</B><BR itxtvisited="1">03. <B itxtvisited="1">Ain't No Lovin'</B><BR itxtvisited="1">04. <B itxtvisited="1">On The Banks Of The Mississippi</B><BR itxtvisited="1">05. <B itxtvisited="1">Circle Of Agony</B><BR itxtvisited="1">06. <B itxtvisited="1">Wayakin (The Guardian Spirit Of The Nez Perce)</B><BR itxtvisited="1">07. <B itxtvisited="1">Dark Prophets, Black Hearts</B><BR itxtvisited="1">08. <B itxtvisited="1">Sombre Fall, Burdened Winter</B></P>
+Автор: Vit Belov
+
+### 20.01.2010 news Видео IN VAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню<STRONG> IN VAIN</STRONG> <STRONG>"Captivating Solitude" </STRONG>можно посмотреть ниже. Песня попала на новый альбом группы <STRONG>"Mantra"</STRONG>, вышедший 18 января на <STRONG>Indie Recordings</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><FONT face=Verdana color=#999999 size=1><BR><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=102310889">IN VAIN [ Song: Captivating Solitude | Album: Mantra ]</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=102310889,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=102310889,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT><BR><A href="http://profile.myspace.com/index.cfm?fuseaction=user.viewprofile&friendid=40646118">In Vain</A> | <A href="http://music.myspace.com/index.cfm?fuseaction=videos">MySpace Music Videos</A></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.06.2010 reviews Сборник посвящений в собственном стиле
+
+<P>Норвежцы IN VAIN порадовали всех своим нестандартным подходом к black-metal на своей дебютной работе 2007 года “The Latter Rain”. Здесь было всё, чем славится прогрессивный black из Норвегии. Неожиданные повороты мелодии, чистоголосые запевы, даже саксофон… Слушать тот альбом было очень интересно, но главное, мелодии на нём были самого высокого качества. По вышеуказанным причинам новую работу IN VAIN “Mantra” в узких кругах ждали с нетерпением.</P>
+<P>Что ж, саксофона на этой пластинке нет, и это можно считать символом изменений в музыке IN VAIN. Материал, представленный нашему вниманию по-прежнему предельно разноплановый и «по-взрослому» мелодичный, но концепция на этот раз норвежцами выбрана иная. Музыканты «прошлись» по различным стилям музыки, переработав стандартные для избранных жанров ходы в собственное звучание. Если отнестись к прослушиванию “Mantra” внимательно, можно отыскать множество цитат из различных стилей музыки, я же обращу внимание на две, лежащие на поверхности. Во-первых, это кантри-вестерн на “On The Banks Of Mississippi”, и, во-вторых, нечто эпическое, что мне напомнило BATHORY, на “Wayakin”. Безусловно, эти прочтения слушать довольно интересно и где-то даже захватывающе, но вместе целостной картины данные трэки не представляют. Каждый раз ловишь себя на вопросе, что хотели записать IN VAIN? Что-то пародийное или таким образом норвежцы салютовали своим любимым музыкантам, отдавая им должное. Я склоняюсь ко второму варианту ответа. Но есть у “Mantra” и ещё одна проблема, это сравнение с предшественником. Сборник «чужих» вещей никак не может соперничать с самостоятельным и очень оригинальным произведением.</P>
+<P>Нельзя сказать, что IN VAIN заявили уже о себе в полный голос. Скромный лэйбл Indie Recordings как может продвигает их музыку в мире, но этого недостаточно. К счастью, у отечественных любителей музыки есть возможность приобрести оба альбома норвежцев на лицензионных носителях. Правда, широкой дискуссии их творчество пока не вызывает. Возможно, в скором будущем на IN VAIN обратит внимание более крупный лэйбл, и тогда мы сможем вполне насладиться высокоумными разговорами об авангардном black-metal. Если конечно кому-то сейчас нужны подобные разговоры и авангардный black-metal.</P>
+Автор: Vit Belov
+
+### 14.06.2012 news Видео IN VAIN
+
+<P>Новый клип норвежской авангардной группы <STRONG>IN VAIN</STRONG> на песню <STRONG>"Dark Prophets, Black Hearts" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома коллектива <STRONG>"Mantra"</STRONG>,&nbsp;который вышел в 2010 году.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/tUA5_LxtM6c?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

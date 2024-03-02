@@ -505,6 +505,2226 @@ Disc 3
 * C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
 * C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p> Очередная бомба на металлическом рынке (что-то в последнее время стало много выходить альбомов заслуживающих восхищения). Этот альбом ждали многие. Тем более, что сами финские музыканты обещали нам альбом способный затмить их предыдущий шедевр "Visions". Надо признать, что "Destiny" получился действительно выдающимся альбомом, но предшественника он не затмил. В чём-то он бесспорно лучше, но кое в чём он уступает. Во-первых, надо отметить, что на новом альбоме стало больше медленных вещей, он намного симфоничнее всех предыдущих альбомов, все вещи с этого альбома( без исключения) - потенциальные хиты. Новые влияния прежде всего чувствуются в двух эпических вещах(каждая более 10 минут), остальные же вещи выдержаны в духе предыдущего альбома. Конечно же этому альбому для звания лучшего недостаёт коронной фишки группы - инструментальной пьесы. Меня, признаться, очень огорчил факт отсутствия инструментала на новом альбоме. Но это, частично, компенсировано тем , что именно на этом альбоме представлена лучшая композиция группы за весь период её существования. На мой взгляд, это заглавная эпическая вещь, где группа демонстрирует все нововведения и каждый из музыкантов демонстрирует свою технику и профессионализм, а Timo Tolkki показывает нам такое виртуозное владение гитарой, что поневоле возникает чувство восхищения и глубокого уважения к этому струнному мастеру. Очень кстати здесь и женский вокал на подпевках. Одна эта композиция стоит целого альбома. Один из лучших альбомов года!</p>
+
+Автор: Dimas
+
+### 12.02.1999 news 
+
+<p>Альбом STRATOVARIUS "Destiny" стал золотым в Финляндии. Также финский журнал SUOMI METAL PERKELE по опросу своих читателей признал STRATOVARIUS группой года, а их клип "SOS" лучшим в этом году.</p>
+
+Автор: Vit Belov
+
+### 12.03.1999 news 
+
+<p>Helloween вошли в студию для записи альбома кавер-версий. А гитарист группы Роланд Грапов обнародовал состав своей команды для записи сольника. Майк Весцера - вокал, Роланд Грапов - гитара, Барри спаркс - бас, Ферди Дойрнберг - клавиши, Майк Террана - барабаны. Также на новом сольном альбоме Грапова "Kaleidoscope" засветятся небезысвестные Йенс Йоханссон - клавиши (STRATOVARIUS) и Ули Кирш - барабаны (HELLOWEEN).</p>
+
+Автор: Vit Belov
+
+### 01.04.1999 news 
+
+<p>Stratovarius сейчас активно гастролирует по всему миру. После успешных гастролей в Европе команда отправилась в Бразилию, где дала акустический концерт. Сейчас группа вернулась на родину и готовится отпраздновать свой "золотой диск".</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Stratovarius заключили контракт с Nucear Blast, которая будет выпускать записи группы везде кроме Японии. Новый альбом планируется выпустить в марте 2000 года.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Noise Records объявила о новых альбомах, которые выйдут на лэйбле в ближайшее время. Стоит обратить внимание на альбом Stratovarius "The Chosen Ones" - сборник лучших песен, выбранных фэнами (последняя попытка срубить денег на группе, уходящей на Nuclear Blast), а также новые, пока не названные, альбомы Kamelot и Elegy в 2000 году.</p>
+
+Автор: Vit Belov
+
+### 08.10.1999 news 
+
+<p>Stratovarius начали репетировать новый материал 6 сентября, немотря на то, что Йорг Михаэль травмировал ногу в футбольной игре.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Новый альбом Stratovarius "Infinite" выйдет в феврале.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 reviews 
+
+<p>Признаюсь, что ещё после предыдущей пластинки причислил Stratovarius к группе ортодоксов таких, как Running Wild и Grave Digger и решил для себя, что никогда уже не услышу от них ничего нового или хотя бы интересного. Но Тимо Толки и компания разочаровали, а скорее обрадовали, меня в моих ожиданиях. Новый альбом не навевает ощущения дежавю. Да, он по прежнему выполнен в том же духе, тот же вокал, те клавишные пассажи Йоханссона, но... Где же набившие оскомину гитарные соло Толки? Их почти нет. И это вселяет (вдувает) свежесть в весь альбом. В основном отрывается клавишник, хотя есть и обычные для Stratovarius ритмы и гитарный звук. Также обращает на себя внимание баллада Mother Gaia, в которой присутствует оркестр, а мелодия просто поражает своим интересным построением. Нельзя говорить, что Толки преодолел свой творческий кризис, заметный на двух предыдущих альбомах, но позитивные сдвиги есть, и будем надеяться, что они дадут обильные всходы на следыющих пластинках, и нам предстоит стать свидетелями второго рождения группы. Несмотря на все мои излияния, этот альбом всё равно адресован только к любителям Stratovarius и мелодичного power-metal.</p>
+
+Автор: Vit Belov
+
+### 10.09.2000 news Stratovarius выпускают новый сингл.
+
+<p> 20 ноября 2000 года Stratovarius выпускают новый сингл, содержащий 4 композиции: "Million Lightyears Away", "Celestial Dream", "Phoenix" (Live) и "Infinity" (Live). Концертные вещи были записаны во французском Лионе. Stratovarius собираются также к 20 ноября выпустить видео.</p>
+
+Автор: Morsus
+
+### 10.09.2000 news Stratovarius releases new single.
+
+<p>Stratovarius releases new single the 20th of November 2000 and the single will contain 4 songs which are: "Million Lightyears Away", "Celestial Dream", "Phoenix" (Live) and "Infinity" (Live). The live songs were recorded at Lyon, France. Stratovarius is trying to release their homevideo the 20th of November also.</p>
+
+Автор: Morsus
+
+### 21.11.2000 news Выходит новое официальное видео Stratovarius
+
+<p> 20-го февраля выходит новое официальное видео Stratovarius "Infinite Visions". На этой двухчасовой кассете кроме новых песен и клипов будут записаны: первые промо видео-материалы с дебютного альбома группы "Fright Night" (1989 г.), фрагменты первого выступления Тимо Котипелто (в 1995 году) и съемки процесса записи в студии альбомов Episode и Infinite.</p>
+
+Автор: Nybras
+
+### 02.12.2000 news Stratovarius have sold over 20.000 copies of Infinite in Finland
+
+<p> Stratovarius have sold over 20.000 copies of Infinite in Finland. The band will be rewarded a Gold Disc for this achievement, the first one in the history of Nuclear Blast.</p>
+
+Автор: Nybras
+
+### 22.02.2001 news Тимо Толкки анонсировал сольный альбом.
+
+<p> Тимо Толкки, гитарист и автор песен Stratovarius, получил контракт с Nuclear Blast на реализацию своего сольного проекта. Первый альбом выйдет уже в этом году, и для его записи будут приглашены известные музыканты.</p>
+
+Автор: Morsus
+
+### 22.02.2001 news Timo Tolkki has announced solo album.
+
+<p> Timo Tolkki, guitarist and songwriter of Stratovarius, signed to Nuclear Blast with his solo project. A first album will be released this year, and lots of well known guest musicians will be featured on it.</p>
+
+Автор: Morsus
+
+### 20.03.2001 news Небесные новости...
+
+<p>У HEAVENLY - изменения состава. Гитарист Chris Savourey ушел. Его замена - Фредерик Леклерк до этого игравший на клавишах в STRATOVARIUS. Из хороших новостей - команда записывает новый альбом. Партии барабанов уже записаны в датской Jailhouse Studio с Томми Хансеном, а басс записан в Париже в собственной студии, где и будет доделываться все остальное. Всего будет 10 песен: 'Sign Of The Winner', 'Condamned To Die', 'Destiny', 'Still Believe', 'The Sandman', 'The World Will Be Better', 'The Angel' и 'Words Of Change'. Диск выйдет в Сентябре через Noise.</p>
+
+Автор: Yermola
+
+### 20.03.2001 news HEAVENLY Line-Up Change!
+
+<p>HEAVENLY guitarist Chris Savourey has quit the band. His replacement is FrИdИric Leclercq, who played keyboards on the tour with STRATOVARIUS. The band have begun recording their new album. The drum parts were recorded in Denmark, at the Jailhouse Studio, with Tommy Hansen and the bass parts were recorded in Paris, in the band's studio, where the rest of the album will be recorded. The mix will be done by Tommy Hansen in Denmark. The album will feature 10 songs. Titles include: 'Sign Of The Winner', 'Condamned To Die', 'Destiny', 'Still Believe', 'The Sandman', 'The World Will Be Better', 'The Angel' and 'Words Of Change'. The album will be released through Noise in the beginning of September.</p>
+
+Автор: Yermola
+
+### 29.03.2001 news Гимн Жизни...
+
+<p>Идейный вдохновитель "STRATOVARIUS" гитарист Тимо Толкки 16 Апреля начинает запись своего второго сольника. Сессия будет проходить в финнской "H&auml;stholmen estate", там же где и был записан "Infinite". "Hymn To Life" будет содержать 17 песен написанных Тимо: 01. Hymn To Life 02. Soul Searching 03. Now I Understand 04. Dear God 05. Little Boy I Miss You 06. Father 07. Divine 08. Fresh Blue Waters 09. Love Conquers All 10. It’s XMas Morning 11. Key to the Universe. Состав музыкантов будет включать: Timo Tolkki (вокал, гитары, басс), Anssi Nyk&auml;nen (барабаны) и Mika Ervaskari (оригинальный клавишник STRATOVARIUS). Дата выхода Январь 2002.</p>
+
+Автор: Yermola
+
+### 29.03.2001 news Hymn To Life...
+
+<p>STRATOVARIUS guitarist/mainman Timo Tolkki will begin recording his second solo album on April 16th at the Hдstholmen estate in Finland (just outside Helsinki)—the same place where STRATOVARIUS rehearsed and recorded pre-production demos for the Infinite album. Due to be produced, recorded and mixed by the man himself, the upcoming release will be titled Hymn To Life, and it will contain a dozen of the 17 songs Timo has written for the album. Song titles include: 01. Hymn To Life 02. Soul Searching 03. Now I Understand 04. Dear God 05. Little Boy I Miss You 06. Father 07. Divine 08. Fresh Blue Waters 09. Love Conquers All 10. It’s XMas Morning 11. Key to the Universe. "Hymn To Life" will reportedly be a very personal album for Timo, and it will include some of the most introspective lyrics the guitarist has ever written. The line-up of musicians performing on the album will be: Timo Tolkki (vocals, all guitars, bass), Anssi Nykдnen (drums; a famous Finnish session musician) and Mika Ervaskari (the original STRATOVARIUS keyboardist). The release date for "Hymn To Life" is tentatively set for January 2002.</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Сольник Timo Kotipelto.....
+
+<p>Вокалист "STRATOVARIUS" - Timo Kotipelto работает над дебютным сольным альбомом, запланированным к выходу на начало 2002. Ему уже удалось собрать мощную команду для записи: Mike Romeo (гитара; SYMPHONY X), Roland Grapow (гитара; HELLOWEEN), Arjen Lucassen (гитара; AYREON), Sami Virtanen (гитара; JOE DOAKES), Jari Kainulainen (басс; STRATOVARIUS), Mirka Rantanen (барабаны; TUNNEL VISION), Gas (барабаны; H.I.M.), Janne Warman (клавиши; CHILDREN OF BODOM) и Mikko Harkin (клавиши; SONATA ARCTICA).</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Timo Kotipelto debut solo album ....
+
+<p>STRATOVARIUS vocalist Timo Kotipelto is hard at work on his debut solo album, which is tentatively due to be released in early 2002. As-yet-untitled, the album will feature a host of guest appearances from some of metal's top musicians, including the following: Mike Romeo (guitars; SYMPHONY X), Roland Grapow (guitars; HELLOWEEN), Arjen Lucassen (guitars; AYREON), Sami Virtanen (guitars; JOE DOAKES), Jari Kainulainen (bass; STRATOVARIUS), Mirka Rantanen (drums; TUNNEL VISION), Gas (drums; H.I.M.), Janne Warman (keyboards; CHILDREN OF BODOM), Mikko Harkin (keyboards; SONATA ARCTICA). In related news, STRATOVARIUS have announced that they will be taking part in four European festivals this summer. The dates are as follows: June 28 - Roskilde Festival, DEN, June 30 - Bang Your Head Festival, GER, July 07 - Ruisrock Festival, FIN, July 13 - Tuska Metal Festival, FIN. Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 12.06.2001 news STRATOVARIUS в чартах...
+
+<p>"STRATOVARIUS" достигли 7 места (перейдя за неделю с 9-го) в Финнском Чарте Поп Альбомов со сборником "Intermission", немного потеснив BON JOVI, RAMMSTEIN, и LIMP BIZKIT. По словам команды "...это была приятная неожиданность для нас".</p>
+
+Автор: Yermola
+
+### 12.06.2001 news STRATOVARIUS entered the Finnish Pop Album ....
+
+<p>Finland's STRATOVARIUS entered the Finnish Pop Album charts at #9 and moved up to #7 the following week with Intermission, a compilation album featuring four new songs. The band reportedly charted ahead of such artists as BON JOVI, RAMMSTEIN, CRAZY TOWN and LIMP BIZKIT. According to the band, "this was a pleasant surprise since we really didn't expect [the album] to hit the charts. As much as we hoped for this, we were realistic about the fact that Intermission is part compilation album with four new songs and it is ideal for die-hard fans and not for masses. Oh, just how wrong we were!" Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.01.2002 news Сольник Timo Kotipelto (продолжение)...
+
+<p>Пока еще не имеющий названия сольник Тимо Котипелто (STRATOVARIUS) выйдет в продажу в марте на собственном лэйбле певца High And Loud. Песни на нем будут такие: <BR> <BR> 01. Battle Of The Gods<BR> 02. Vizier<BR> 03. Secret Name<BR> 04. Beginning<BR> 05. Travel Through Time<BR> 06. Arise<BR> 07. Beautiful Has Come<BR><BR> Тексты альбома базируются на египетской мифологии. Артворк делал Derek Riggs (работавший с IRON MAIDEN) уже рисовавший обложки Infinite и Intermission для STRATOVARIUS. Как ранее сообщалось Котипелто удалось собрать "звездную" команду на запись: <BR><BR> Mike Romeo (гитара—SYMPHONY X)<BR> Roland Grapow (гитара—HELLOWEEN)<BR> Arjen Lucassen (гитара—AYREON)<BR> Sami Virtanen (гитара—JOE DOAKES)<BR> Jari Kainulainen (басс—STRATOVARIUS)<BR> Mirka Rantanen (барабаны—TUNNEL VISION)<BR> Gas (барабаны—H.I.M.)<BR> Janne Warman (клавишные—CHILDREN OF BODOM)<BR> Mikko Harkin (клавишные—SONATA ARCTICA)</p>
+
+Автор: Yermola
+
+### 03.01.2002 news STRATOVARIUS Vocalist To Issue Solo Debut In March&#x2F;April ...
+
+<p>STRATOVARIUS vocalist Timo Kotipelto's recently-completed debut solo album will be released in Finland via Timo's own High And Loud label in March/April. No US or continental European release information has yet been made available. Among the tracks that are set to appear on the as-yet-untitled CD are the following: <BR><BR> 01. Battle Of The Gods<BR> 02. Vizier<BR> 03. Secret Name<BR> 04. Beginning<BR> 05. Travel Through Time<BR> 06. Arise<BR> 07. Beautiful Has Come<BR><BR> A single, featuring an as-yet-undisclosed album cut, will be released in the next few weeks.<BR><BR> Kotipelto's solo debut is a concept CD based on the Egyptian mythology, and it will feature cover artwork by famed artist Derek Riggs (i.e. IRON MAIDEN), who also did the covers for STRATOVARIUS' Infinite and Intermission albums. As previously reported, the album will include a host of guest appearances from some of metal's top musicians, among them the following:<BR><BR> Mike Romeo (guitars—SYMPHONY X)<BR> Roland Grapow (guitars—HELLOWEEN)<BR> Arjen Lucassen (guitars—AYREON)<BR> Sami Virtanen (guitars—JOE DOAKES)<BR> Jari Kainulainen (bass—STRATOVARIUS)<BR> Mirka Rantanen (drums—TUNNEL VISION)<BR> Gas (drums—H.I.M.)<BR> Janne Warman (keyboards—CHILDREN OF BODOM)<BR> Mikko Harkin (keyboards—SONATA ARCTICA) <BR></p>
+
+Автор: Yermola
+
+### 07.02.2002 news Stratovarius прерывают паузу
+
+<p>Stratovarius в настоящее время снова заняты репетициями и сочинением песен для следующего альбома. Скорее всего, альбом появится на свет в январе 2003 года.</p>
+
+Автор: Morsus
+
+### 07.02.2002 news Stratovarius break is already over
+
+<p>Stratovarius is currently again busy with rehearsals and songwriting for the next album. It will be probably released in January 2003.</p>
+
+Автор: Morsus
+
+### 07.03.2002 news Сольник Timo Kotipelto (продолжение 2)...
+
+<p> Фронтмэн "STRATOVARIUS" Timo Kotipelto подписал контракт с Century Media Records на выпуск своего дебютного сольника "Waiting For The Dawn". В мае диск выйдет в Финляндии на собственном лэйбле певца High And Loud и будет предваряться синглом который выйдет 15-го марта и будет содержать "Beginning" (специальная версия), "Waiting for the Dawn" и "Kadesh" (не вошла на альбом!). Уточнённый трек-лист: </p>
+<p> 01. Travel Through Time<BR> 02. Beginning<BR> 03. Lord Of Eternity<BR> 04. Testimony<BR> 05. Battle Of The Gods<BR> 06. Beauty Has Come<BR> 07. Vizier<BR> 08. Waiting For The Dawn<BR> 09. Arise<BR> 10. Here Again<BR> </p>
+
+Автор: Yermola
+
+### 07.03.2002 news STRATOVARIUS Frontman Inks Deal With Century Media.....
+
+<p>STRATOVARIUS frontman Timo Kotipelto has officially signed with Century Media Records for the release of his debut solo offering, entitled Waiting For The Dawn, as exclusively reported here on February 22nd. Due out in May, the album will be issued in Finland via Timo's own High And Loud label, and will be preceded by a single, containing the tracks "Beginning" (single edit), "Waiting for the Dawn" and "Kadesh" (non-LP), on March 15th. <BR><BR> Among the tracks that are set to appear on Waiting For The Dawn are the following:<BR><BR> 01. Travel Through Time<BR> 02. Beginning<BR> 03. Lord Of Eternity<BR> 04. Testimony<BR> 05. Battle Of The Gods<BR> 06. Beauty Has Come<BR> 07. Vizier<BR> 08. Waiting For The Dawn<BR> 09. Arise<BR> 10. Here Again<BR></p>
+
+Автор: Yermola
+
+### 29.03.2002 news Элементы. Часть первая.
+
+<p>STRATOVARIUS с 15-го мая будут в студии Finnvox в Хельсинки записывать свой девятый студийный альбом "Elements Part 1" для последующего релиза в январе 2003 на Nuclear Blast Records. Песни на диске будут следующие: <BR><BR> 01. Eagleheart<BR> 02. Elements<BR> 03. Soul of a Vagabond<BR> 04. Find Your Own Voice<BR> 05. Alpha & Omega<BR> 06. Papillon<BR> 07. Drop in the Ocean<BR> 08. Stratofortress<BR><BR> Новый материал по заверениям группы будет "быстрее, тяжелее и более симфоническим чем когда-либо". В записи будет участвовать большой симфонический оркестр под управлением Riku Niemi. Артворк ковера выполнит Derek Riggs (обычно работающий с IRON MAIDEN).</p>
+
+Автор: Yermola
+
+### 29.03.2002 news STRATOVARIUS Enter Studio To Begin Work On &quot;Elements Part 1&quot; ...
+
+<p>Finland's STRATOVARIUS will be entering Helsinki's Finnvox studios on May 15th to begin recording their ninth full-length studio album, tentatively entitled Elements Part 1, for a January 2003 release through Nuclear Blast Records. Among the song titles that are tentatively set to appear on the forthcoming CD are the following: <BR><BR> 01. Eagleheart<BR> 02. Elements<BR> 03. Soul of a Vagabond<BR> 04. Find Your Own Voice<BR> 05. Alpha & Omega<BR> 06. Papillon<BR> 07. Drop in the Ocean<BR> 08. Stratofortress<BR><BR> The new song material is reportedly “faster, heavier and more symphonic than ever before”, and will feature a full-size symphony orchestra and choir conducted by Riku Niemi. The cover artwork for the CD will, once again, be done by Derek Riggs (i.e. IRON MAIDEN).</p>
+
+Автор: Yermola
+
+### 23.04.2002 articles Тимо Толкки: Новый альбом Stratovarius увидит свет в январе 2003 года
+
+<p>В то время, как группа Stratovarius находится на заслуженном отдыхе её музыканты участвуют во всевозможных сайд-проектах. Первым же, кто порадовал нас своим сольным альбомом стал лидер коллектива гитарист Тимо Толки. С ним и встретился корреспондент греческого web-zine Tombstone. <BR> <IMG SRC="/images/articles_rus/2002.04/2623.jpg" ALT="pho" width=200 height=300 hspace="15" vspace="5" border="1" align="left"> - Тимо, в прошлой раз мы разговаривали с тобой около года назад в поддержку последнего альбома Stratovarius. Помню, ты сказал, что нового альбома Stratovarius не будет, как минимум два года, правда ты и не упоминал про сольный альбом. Почему ты решил его записать? <BR> <B>- По правде говоря, были разные причины, одной из причин было то, что у меня появилось много свободного времени, из-за перерыва в творчестве основной команды. Во-вторых, мне хотелось написать материал о моей личной жизни. Это очень персональная запись, и я думаю, что она сильно отличается от того, что я когда-либо делал со Stratovarius.</B><BR> - Расскажи мне, какие вещи ты хотел передать слушателю, из тех что ты не можешь передать со Stratovarius. <BR> <B>- Я считаю, ты прав, говоря, что этот материал не мог быть записан под маркой Stratovarius. Это невозможно, как по музыке, так и по текстам. Особенно это касается музыки, потому что я считаю, что музыкально Stratovarius – это такой вид динозавра. Конечно, динозавр в хорошем смысле слова. Альбом Stratovarius должен звучать в одном ключе с предшественниками, это никак не перекликается с моим сольником.</B><BR> - Почему ты назвал альбом “Hymns Of Life” (Гимны жизни)?<BR> <B>- Я думаю, это название хорошо передаёт общее настроение альбома. Я имею в виду, что если ты вслушаешься во все песни, ты увидишь, что все они чем-то напоминают гимны жизни. Как только мне пришло на ум это название, я сразу понял, как оно подходит.</B><BR> - Несмотря на то, что вся музыка навевает меланхолические чувства, тексты иногда очень позитивные. Как ты это совместил? <BR> <B>- Ну, это, как сама жизнь. Бывают очень депрессивные моменты, бывают и очень позитивные. Я думаю, первое вдохновило меня на музыку, а второе на тексты, и это хороший способ описать обе стороны жизни. Но мне кажется, что всё-таки этот альбом достаточно мрачен. Я думаю, что в этом альбоме лирика даже более важна, чем музыка. Очень важно прочитать слова, чтобы полностью понять альбом. Тексты это та вещь, которая придаёт значение данному альбому.</B><BR> - О чём она рассказывает? <BR> <B>- В общем, я писал о своём прошлом, о детстве, о Боге, вселенной, обществе, личных отношениях, злости, ненависти, любви и о чём-то подобном.</B><BR> - Можем мы сказать, что это декларация Тимо Толки, или может быть биография? <BR> <B>- Это точно не декларация. Но это достаточно биографичная пластинка. Декларация звучит слишком тяжело, я ничего не хочу проповедовать. Это мои персональные взгляды, и я не хочу, чтобы люди смотрели на это слишком серьёзно. Это только моё мнение! Я думаю жизнь – это комедия, чёрная комедия.</B><BR> - Почему так? <BR> <B>- Потому что жизнь пародоксальна.</B><BR> - Если, как ты сказал это автобиографический альбом, песни расположены хронологически или связаны как-то иначе? <BR> <B>- Если это и так, то я не делал этого сознательно. Но я не думаю, что это так.</B><BR> - Если быть честным, есть вещь, которая мне не нравится в твоём альбоме. Это не тексты или музыка – это кавер-арт. <BR> <B>- Да? Во-первых, это не конечный вариант. Две фигуры, которые сейчас там присутствуют, исчезнут в конечном варианте. В оригинальной концепции два человека не замечают эту долину, в которой представлены безумие современного общества и всё зло в Мире. Я думаю, что Дерек Риггс сделал потрясающую работу, и кавер точно передаёт настроение альбома.</B><BR> - Когда ты писал альбом, что у тебя было на уме? <IMG SRC="/images/articles_rus/2002.04/2624.jpg" ALT="pho" width=220 height=147 hspace="15" vspace="5" border="1" align="right"> <BR> <B>- Ничего, абсолютно ничего. Я не думал о чём-то специально. У меня очень интересный способ писать песни. Я беру кусок бумаги и записываю названия песен, которые постоянно находятся у меня перед глазами. Затем я думаю, что заинтересовывает меня в этих названиях, а уж потом я пишу музыку. Вы никогда не думаете о чём-то таком, когда делаете вещи, которые вам знакомы, например, ведёте машину.</B><BR> - Все песни новые или у тебя были какие-то наработки в течение времени? <BR> <B>- Нет. Все они новые, написаны в феврале прошлого года.</B><BR> - Ты поёшь на альбоме? <BR> <B>- Да. Но я не буду больше петь в Stratovarius, потому что всё настолько классно у нас в группе в данный момент, что менять что-то было бы неправильно. Я наблюдаю эволюционный процесс и считаю, что всё великолепно. Я знаю, многие люди упрекают нас, что мы никогда не меняем нашей музыки. Но я думаю, что если вы сравните наши альбомы, вы увидите какие они разные. Кстати, я не очень люблю петь.</B><BR> - Говоря о Stratovarius, в каком направлении развивалась группа в прошлые годы?<BR> <B>- В разных направлениях. Вы можете заметить эволюцию в различных аспектах. Лирика, музыка, музыка развивалась в направлении расширения кругозора и включения новых элементов, особенно на “Infinite”.</B><BR> - Я так понимаю, ты уже начал писать новый альбом для Stratovarius? <BR> <B>- Да, мы начали. Мы планируем войти в студию в мае этого года для записи новых песен. Если всё пойдёт, как планировалось, альбом выйдет в январе 2003 года.</B><BR> Быстро время-то пролетело. Уже скоро, лэйблы получат новые деньги, Stratovarius получит порцию любви зрителей, а фэны купят новый альбом сей выдающейся команды. Будем ждать, чем ещё новеньким порадуют нас музыканты, и порадуют ли вообще.</p>
+
+Автор: Vit Belov
+
+### 07.09.2002 news Ситуация с клавишником в SONATA ARCTICA
+
+<p>Клавишник SONATA ARCTICA Mikko Harkin по определенным обстоятельствам покинул группу в тот момент, когда она приступила к записи своего нового альбома. Вместо него в записи нового альбома SONATA ARCTICA примет участие клавишник STRATOVARIUS Jens Johansson (ex-DIO).</p>
+
+Автор: Dimas
+
+### 24.11.2002 news Malevolent Creation выступят на Wacken Open Air 2003
+
+<p>Malevolent Creation анонсировали своё участие в легендарном фестивале Wacken Open Air в 2003 году. Уже известно, что наряду с ними будут участвовать Iced Earth, Stratovarius, Nile, Gamma Ray и Dark Angel. После выхода восьмого студийного альбома группа планирует отправится в массивный тур, в том числе по Штатам вместе с Cannibal Corpse.</p>
+
+Автор: Vit Belov
+
+### 23.12.2002 news STRATOVARIUS выходит в свет
+
+<p>27 января 2003 года выходит в свет новейший альбом STRATOVARIUS под названием "Elements Pt 1". Трэк-лист альбома выглядит следующим образом:</p>
+<p> <IMG SRC="/images/news_rus/2002.12/3543.jpg" ALT="pho" width=250 height=251 hspace="15" vspace="5" border="1" align="left"> 1. Eagleheart <BR> 2. Soul Of A Vagabond <BR> 3. Find Your Own Voice <BR> 4. Fantasia <BR> 5. Learning To Fly <BR> 6. Papillon <BR> 7. Stratofortress <BR> 8. Elements <BR> 9. A Drop In The Ocean <BR> + Into Deep Blue (Japanese bonus track) <BR> + Papillon (French version) (French bonus track)</p>
+<p> Пока не вышел альбом, группа делает всем своим поклонникам рождественский подарок. На сайте группы уже можно скачать и послушать две композиции с нового альбома <A HREF="http://www.stratovarius.com/soul_of_a_vagabond.mp3 ">Soul Of A Vagabond</A> и <A HREF="http://www.stratovarius.com/find_your_own_voice.mp3 ">Find Your Own Voice</A>, а также скачать и посмотреть видеоклип <A HREF="http://www.stratovarius.com/eagleheart_clip.mov">Eagleheart</A>.</p>
+
+Автор: Dimas
+
+### 06.01.2003 news STRATOVARIUS подтверждают о выступлении в Москве
+
+<p>Финская звезда power metal - STRATOVARIUS - подтвердили дату предстоящего московского концерта в ходе предстоящего мирового тура - 2 мая 2003 года.</p>
+
+Автор: Dimas
+
+### 07.01.2003 reviews Элементы музыки Stratovarius
+
+<p>Альбом выходит только в конце января, но уже сейчас нам выпала возможность послушать четыре песни с новой пластинки. Stratovarius пошло на пользу отсутствие на мировой арене последние два года. Музыка группы приближается к эталону мелодичного power-metal. Сейчас она включает в себя не только мелодичность и напор, но уже и сложность (конечно, не progressive) и симфоничность. В некоторые песни, особенно в медленные, добавлены партии оркестра и хор. И если у итальянцев, в частности Rhapsody, это сделано с южным напором, то у финнов это выдержанность и строгость северян. Великолепный чистый звук обещает успех не только у любителей heavy metal. Конечно же, музыка потеряла в тяжести, но это не очень расстраивает. Мне кажется, лучше потерять в тяжести, но приобрести в разнообразии. Тимо Толкки теперь не только "пилит", но и выдаёт мелодические пассажи, а к другим исполнителелям и раньше не было больших претензий. Классика жанра.</p>
+
+Автор: Vit Belov
+
+### 07.01.2003 reviews Elements of Stratovarius&#39; music
+
+<p>Album will be released only on 27th of January, but We have possibility to listen to four songs from new album. Absence on World arena during 2 years was useful to STRATOVARIUS. Music of the band becomes nearer to the standart of melodic power-metal. It consists not only of melody and pressure, but complexity (not progressive of course) and symphonic. Parties of orchestra and chorus were added in some songs, especially in slow tracks. And If Italians, especially RHAPSODY, have south pressure, Finns have restraint and severity. Magnificent clean sound promises success not only at fans of heavy metal. Music loses in weight, but i'm not sorry about it. I think much better losing weight and acquire variety. Timo Tolkki is not 'sawing' only, but he's playing melodic passages too. And we didn't have claims to other musicians. Classic of genre!!!</p>
+
+Автор: Vit Belov
+
+### 09.01.2003 news STRATOVARIUS не дремлет
+
+<p>27 января 2003 года официально выходит новый альбом финской группы STRATOVARIUS под названием "Elements Part 1" ... А между тем, группа уже начинает запись следующего альбома под названием "Elements Part 2". Уже в январе начнется запись вокальных партий для нового альбома, выпуск которого предварительно запланирован на январь 2004 года.</p>
+
+Автор: Dimas
+
+### 23.03.2003 news Stratovarius отменили концерт в Москве
+
+<p>Stratovarius были вынуждены отменить концерт в России, который должен был состояться 2 мая. "Русский промоутер, GHOST MUSIC, не выполнил условия, которые мы согласовали дважды, и не послал нам деньги на авиа-билеты до Москвы. После второго крайнего срока, который истёк в четверг, мы не получили никаких вестей и были вынуждены отменить шоу. Мы действительно не в курсе, что произошло, но мы слышали от других групп, что эта компания уже отменяла шоу ранее. Если в России есть фэны, которые купили билеты на наш концерт и теперь не получат своих денег назад, мы хотели бы узнать об этом, чтобы прекратить всякие виды отношений с GHOST MUSIC со стороны других команд. Также нас очень удивляет, что общаясь с некоторыми российскими журналистами, нам стало известно, что никакой рекламы предстаящего шоу в Москве не проводится. В настоящее время наш менеджмент пытается найти другого промоутера в Москве, чтобы шоу всё-таки состоялось", - сообщается на официальном сайте STRATOVARIUS.</p>
+
+Автор: Vit Belov
+
+### 09.04.2003 news И все-таки, концерт состоится
+
+<p>Финская группа STRATOVARIUS заново сообщила о концертах в Москве. За дело взялся, совершенно другой промоутер, и теперь известно, что концерт в Москве, в ДК Горбунова все-таки состоится 9 июля 2003 года.</p>
+
+Автор: Dimas
+
+### 07.06.2003 articles STRATOVARIUS в Москве (пресс-релиз)
+
+<p><IMG SRC="/images/articles_rus/2003.06/4396.jpg" ALT="pho" width=485 height=228 hspace="15" vspace="5" border="1" align="center"></p>
+<p> Компания BIG BROTHER ENTERTAINMENT представляет единственный концерт одной из величайших групп европейской heavy metal сцены STRATOVARIUS! Долгие ожидания фанатов наконец-то закончились – они едут к нам! Группа STRATOVARIUS не нуждается в особых представлениях, это одна из визитных карточек страны, являющейся нашим северным соседом, Финляндии. Неслучайно, что их песни крутились в паузах недавно закончившегося чемпионата мира по хоккею с шайбой. Переоценить вклад в современную рок музыку, который сделала эта группа невозможно. Они сделали то, что не удавалось до этого никому – заставили считаться с финской сценой в Европе. Именно они проложили дорогу тому огромному количеству финских групп, что так популярны сегодня.</p>
+<p> Группа начала свой творческий путь в середине 80-х, записала несколько синглов, которые заинтересовали рекорд - компании, и их первый альбом вышел в 1989 году под названием “Fright Night”. Группа постоянно прогрессировала и в 95 году с приходом Тимо Котипелто окончательно обрела свое лицо, так хорошо знакомое множеству поклонников во всем мире. Такие альбомы, как “Episode”, “Visions” золотыми буквами вписаны в историю мировой музыки. Начиная с альбома 1996 года “Episode” состав группы не менялся, собрав воедино замечательный коллектив профессионалов удачно дополняющих друг друга. Такой тесный и плодотворный союз не мог ни сказаться на результатах – каждый новый диск группы оказывается популярнее предыдущего! Альбом “Destiny” в первую неделю попал на первое место, а 99 год был полностью за STRATOVARIUS – несколько золотых дисков, признание многочисленными журналами, номинация видео “S.O.S.” на звание лучшего метал клипа Финляндии… В 2000 году группа сделала небольшой перерыв, в результате которого два лидера выпустили по сольной работе, а остальные музыканты были приглашены в различные проекты. После этого перерыва был записан грандиозный альбом Elements Pt. I, который еще выше поднял уровень группы.</p>
+<p> На предстоящем концерте вы сможете услышать как новые композиции, так и старые проверенные хиты группы, которые STRATOVARIUS отыграют в 2-х часовом фантастическом шоу! Концерт состоится 9 ИЮЛЯ 2003 года в помещении Дк. Горбунова, а разогревать именитых гостей будет известная московская пауэр группа Shadow Host. Не пропустите концерт знаменитейших финских музыкальных кудесников STRATOVARIUS, проводимый в рамках грандиозного ELEMENTS WORLD TOUR 2003!</p>
+
+Автор: Dimas
+
+### 08.06.2003 news STRATOVARIUS в Москве
+
+<p><IMG SRC="/images/news_rus/2003.06/4398.jpg" ALT="pho" width=300 height=150 hspace="15" vspace="5" border="1" align="left"> В среду 9 июля, в 19:00, в ДК Горбунова (Москва), состоится единственный российский концерт финских музыкальных кудесников STRATOVARIUS, проводимый в рамках грандиозного Elements World Tour 2003!<BR> На разогреве - известная московская power metal группа SHADOW HOST.<BR> Цена билетов: танцпол - 700 рублей, балкон - 900 рублей, VIP зона - 1200 рублей. <BR> Организатор концерта: <B>Big Brother Entertainment </B></p>
+
+Автор: Dimas
+
+### 15.07.2003 articles Пластмассовый power-metal и «совковая» психология
+
+<p><I>9 июля 2003 года случилось событие, которое ждали все любители melodic power-metal. Кто-то, чтобы получить море удовольствия, а кто-то, чтобы поглумиться над «одной большой финской песней». К нам приехал STRATOVARIUS…</I></p>
+<P><IMG SRC="/images/articles_rus/2003.07/4588.jpg" ALT="pho" width=250 height=200 hspace="15" vspace="5" border="1" align="left">Попытки привезти звёздную группу предпринимались уже давно. Сначала «в кулуарах» назывался какой-то сумасшедший гонорар, который якобы требуют финны. Потом STRATOVARIUS чуть не приехали, но, как всегда, с не лучшей стороны показал себя G’OST MUSIC (R.I.P.). И вот едва народившаяся компания BIG BROTHER доставила всё-таки STRATOVARIUS в ДК им. Горбунова.</p>
+<p> Для того чтобы чётко оценить выступление этой группы, нужно, в первую очередь, объяснить себе, что ты ждал от их шоу. В этом смысле вся аудитория (~2000 человек) делилась на три неравные группы. В первую самую многочисленную входили фанаты STRATOVARIUS, которым не важно - как, где и почему. Главное – кто, STRATOVARIUS!!! Аудитория сходу стала исполнять все песни, подпевая Котипелто, который в свою очередь уже на первых песнях выставлял микрофон в зал и «ленился» петь. Со стороны этой прослойки посетителей концерта STRATOVARIUS просто не могли вызвать никаких нареканий. Set-List, включавший в себя практически все хиты коллектива, практически точное соответствие партий их альбомному варианту, периодические заигрывания с залом фронтмэна. Всё это обеспечивает STRATOVARIUS высший бал в блокнотах своих самых ярых поклонников – ultras.</p>
+<P>Вторым вариантом слушателей на этом концерте (самым малочисленным) были люди, которых неведомо какие причины занесли в тот вечер в ДК. Человеки, которые на дух не переносят power-metal и в особенности такой новомодный power-metal, как STRATOVARIUS. Их тоже никак нельзя назвать беспристрастными слушателями. Естественно им были заметны все недочёты, даже те, которых не было. Упрёки в использовании разнообразных фонограмм, сэмплов и.т.п. уже становятся привычными.</p>
+<P><IMG SRC="/images/articles_rus/2003.07/4589.jpg" ALT="pho" width=250 height=200 hspace="15" vspace="5" border="1" align="right">А что же третья часть, к которой я отношу и себя? Любители стиля и STRATOVARIUS, в частности, способные получать удовольствие не только оттого, что видят крутого дядьку на сцене, а ещё и от музыки, как таковой. Которые могут запросто сказать даже про любимые группы, что они ошиблись в том или ином случае. Каждый в отдельности расскажет вам свою историю. Моя история, ниже… Будучи аккредитованным на сие мероприятие, я уже не мог себе позволить просто стоять и слушать. Нужно было чем-то отработать «почётное звание» «журналиста». В первую очередь мы очень хотели пополнить наш шикарный фото-раздел и для этого испросили отдельное разрешение от организаторов. Продравшись к сцене (thanks VADER), и в этой невообразимой сутолоке начали фотографировать Котипелто, что почему-то не понравилось охраннику, который, бодро размахивая руками, попытался нас остановить. Ретировавшись в первый раз, мы решили обдумать наше печальное положение за кружечкой пива, но, как оказалось, пиво к середине концерта закончилось. Буфетчики дружно предлагали разогретым пивом фанатам отведать Gin&Tonic, видимо, у них была договорённость с местным вытрезвителем… Во время второй попытки, вернее, во время подготовки ко второй попытке, нас сцапал ОМОНовец, который отказывался реагировать на наши пригласительные билеты (в общем-то, правильно, но других никому из журналистов не давали) и тащил нашего фотографа куда-то «на выход». Из этого бардака нам помог выпутаться Алекс Арзамасов (Shadow Host), приняв удар на себя. К чему я это всё рассказываю? А к тому, что, превратив в посмешище нас, BIG BROTHER превратили в посмешище вас, тех, которых интересуют фотографии, например, или тех немногих, которым может быть интересен данный отчёт. Если присовокупить к этому отсутствие пресс-конференции и автограф-сессии, то получается занятнейшая картина полного игнорирования слушателей (клиентов), и представляющих их людей. Также хочется отметить отсутствие рекламы концерта, а на серые афиши было просто смешно смотреть. Народ собрался, но это STRATOVARIUS… А дальше что? Можно также добавить, что фирма BIG BROTHER растёт из фирмы Фоно, которая помнится прикольно прокатила всех с 50-минутным первым промо-выступлением NIGHTWISH с ценой билетов 400 рублей. Получается так, срубили бабки и здорово!? Сейчас какие-то неприятные моменты замечают лишь 10% посетителей концерта, но рано или поздно с такими манерами BIG BROTHER отправятся следом за GOST MUSIC. А этого не хотелось бы, так как концерты у нас редки. Но призываю всех раскрыть глаза и избавиться от психологии «совка». Какое никакое, а хоть такое!!! За 700 рублей вы имеете право пить пиво весь концерт, видеть хотя бы минимальное движение на сцене и слышать не самый плохой звук за всю историю Горбы.</p>
+
+Автор: Vit Belov
+
+### 01.08.2003 news Элементы - часть вторая
+
+<p>Стало окончательно известно, что финская группа STRATOVARIUS выпускает 27 октября 2003 года свой новый альбом "Elements Part 2" на Nuclear Blast Records. Также стал известен и трэк-лист альбома:</p>
+<p> <IMG SRC="/images/news_rus/2003.08/4670.jpg" ALT="pho" width=250 height=254 hspace="15" vspace="5" border="1" align="left">1. Alpha & Omega <BR> 2. I Walk To My Own Song <BR> 3. I'm Still Alive <BR> 4. Season Of Faith's Perfection <BR> 5. Awaken The Giant <BR> 6. Know The Difference <BR> 7. Luminous <BR> 8. Dreamweaver <BR> 9. Liberty</p>
+<p> В японское издание альбома войдет бонус-трэк "Ride Like The Wind".</p>
+
+Автор: Dimas
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 30.10.2003 news Rage - первый в октябре!
+
+<P>RAGE&nbsp;со своим новейшим альбомом 'SoundChaser', в лицензионной версии SOYUZ, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С небольшим отрывом отстали&nbsp;STRATOVARIUS 'Elements, Part II' (Irond) и&nbsp;лидер прошлого месяца&nbsp;DIMMU BORGIR&nbsp;'Death Cult Armageddon' (Irond). В первую десятку вошли:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=545 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="28%" height=17><B>RAGE </B></TD>
+<TD align=middle width="43%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="29%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="43%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="43%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="43%" height=26><B>II</B></TD>
+<TD align=middle width="29%" height=26><B>CD-MAXIMUM</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="43%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="43%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>CHARON</B></TD>
+<TD align=middle width="43%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="29%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="43%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="29%" height=17><B>CD-MAXIMUM</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="43%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="29%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="43%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="29%" height=17><B>AMG</B></TD></TR></TBODY></TABLE></P>
+<P>TOP 50 альбомов по продажам во втором месяце осени Вы можете посмотреть <A href="/ru/articles/1/50443/">здесь.</A> Любой из этих дисков вы легко можете заказать в нашем <A href="/ru/shop">магазине.</A></P>
+Автор: Vit Belov
+
+### 01.11.2003 reviews Intermission, Part II
+
+<P>На самом деле&nbsp;этот - второй в 2003 году - альбом STRATOVARIUS следовало назвать 'Intermission, Part II', а не 'Elements, Part II'. Связи с предыдущей работой, вышедшей в феврале практически никакой, ни в концептуальном, ни в музыкальном плане. Единственным мостом между альбомами является время их записи. И наоборот, очень много общего с пластинкой-сборником, выходившим в 2001 году. На самом деле этот CD даже и не альбом, а просто сборник неизданного материала. Три быстрых вещи, а остальное медленные баллады. Похоже STRATOVARIUS возомнили себя SCORPIONS. Но это, к сожалению, не так. Баллады финнов гораздо проще и менее разнообразны, а на последней вещи основная мелодия, вообще, что-то очень сильно напоминает... Говорят, STRATOVARIUS покидают NUCLEAR BLAST... Действительно, денег они заработали, но подобное поведение не идёт на пользу репутации команды. Альбом только для очень больших любителей группы..., и для школьных дискотек.</P>
+<P>Диск предоставлен точкой B2-100</P>
+<CENTER><IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 03.11.2003 news STRATOVARIUS считают деньги и попадают в финские чарты
+
+STRATOVARIUS стартовали всего лишь с четвёртого места в финнских чартах. Основной же новостью является, подписание нового договора с Noise/Sanctuary на три альбома и на сумму ... более трёх миллионов евро.
+Автор: Vit Belov
+
+### 16.11.2003 reviews Intermission, Part II
+
+As the matter of fact&nbsp;this second in 2003 album by STRATOVARIUS must call 'Intermission, Part II', but not 'Elements, Part II'. There is not contact with previous work,&nbsp;that was released in February. Neither concept part nor musical part. The only&nbsp;point of contiguity&nbsp;is time of recording of this albums. On the contrary new album has many connections with CD-compilation, that was released in 2001. To be honest this CD is not album, it's just compilation of unreleased material. Three speed songs and slow ballads. I think STRATOVARIUS has opinion, that they are SCORPIONS. Unfortunatly this is not true. The ballades by Finns are much simple and not so merit. But melody of last song has even remind something...&nbsp;&nbsp;We have rumours (it's fact) that STRATOVARIUS will leave NUCLEAR BLAST... Really They earned big money, but such behaviour doesn't raise reputation of the band. This album is for big fans of STARTOVARIUS and.. is for school discotheques.
+Автор: Vit Belov
+
+### 28.11.2003 news Кризис в STRATOVARIUS
+
+<P>Похоже <B>Timo Tolkki</B> решил разогнать <B>STRATOVARIUS</B>. После некоторых разногласий <B>Timo</B> заявил на официальном сайте, что ему необходимо провести переговоры со всеми членами группы. Поговорив с <B>Kotipelto</B> и <B>Kainulainen</B> в Финляндии, он отправился в США и Германию для переговоров с другими музыкантами. Уже сейчас, по его словам, ясно на 95%, что три человека покинут группу. Бравируя тем, что он в группе уже 20 лет, <B>Timo</B> послал всех неприличными словами, в том числе и тех поклонников группы, кто недоволен его поведением.</P>
+Автор: Vit Belov
+
+### 28.11.2003 news Crisis in STRATOVARIUS
+
+<B>Timo Tolkki</B> posted this on official site of <B>STRATOVARIUS</B>: "<B>I am in the process of talking seriously with each band member about the future of Stratovarius. There are lots of rumours circling around and this statement is issued to clear some of those. The band is in a severe crisis at the moment. &lt;...&gt; I have my own way to lead Stratovarius and since being in this band since 84 (almost 20 years) I have had a very clear vision about the musical direction of Strato. To put it short and simple, this is my band. &lt;...&gt;I am talking with Kotipelto and Kainulainen here in Finland at the moment and next week I fly to New York to talk to Johansson. Then I fly to Germany to talk to Michael. And then I have to think.&lt;...&gt; At this point it seems 95% sure that 3 bandmembers have to leave. I really hope I can work things out with them, but if not, then they will have to go</B>."<BR><BR>
+Автор: Vit Belov
+
+### 03.12.2003 news King Diamond - первый в ноябре...
+
+<P><B>KING DIAMOND</B>&nbsp;со своим новейшим альбомом <B>'Puppet Master'</B>, в лицензионной версии <B>ART-MUSIC GROUP</B>, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С небольшим отрывом отстали&nbsp;<B>STRATOVARIUS 'Elements, Part II' (Irond)</B> и&nbsp;ещё одна новинка от <B>ART-MUSIC GROUP - CORNERSTONE 'Once Upon Our Yersterdays</B>'. В первую десятку вошли:</P>
+<TABLE cellSpacing=0 cellPadding=2 width=649 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="39%" height=17><B>KING DIAMOND</B></TD>
+<TD align=middle width="51%" height=17><B>THE PUPPET MASTER</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="51%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="11%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>CORNERSTONE</B></TD>
+<TD align=middle width="51%" height=17><B>ONCE UPON OUR YESTERDAYS</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>REBELLION</B></TD>
+<TD align=middle width="51%" height=17><B>BORN A REBEL</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>BONEY NEM</B></TD>
+<TD align=middle width="51%" height=17><B>ROMANTIC COLLECTION</B></TD>
+<TD align=middle width="11%" height=17><B>Эм и Нем</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>STILLIFE</B></TD>
+<TD align=middle width="51%" height=17><B>REMEMBRANCE</B></TD>
+<TD align=middle width="11%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>BONFIRE</B></TD>
+<TD align=middle width="51%" height=17><B>FREE</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>RAGE</B></TD>
+<TD align=middle width="51%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="11%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>MELOTRON</B></TD>
+<TD align=middle width="51%" height=17><B>STERNENSTAUB</B></TD>
+<TD align=middle width="11%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>FALCONER</B></TD>
+<TD align=middle width="51%" height=17><B>SCEPTRE OF DECEPTION</B></TD>
+<TD align=middle width="11%" height=17><B>Fono</B></TD></TR></TBODY></TABLE>
+<P>Любой из этих дисков вы легко можете заказать в нашем <A href="/ru/shop">магазине.</A></P>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 09.12.2003 news Timo Kotipelto и Jorg Michael всё-таки покинули STRATOVARIUS
+
+<B>Timo Kotipelto</B> и <B>Jorg Michael</B> всё-таки покинули <B>STRATOVARIUS</B>. <B>Kotipelto</B>: "<B>После разговоров с Timo Tolkki мы решили, что дальнейшее мой пребывание в группе невозможно. В настоящее время я сконцентрируюсь на сольном творчестве</B>." <B>Tolkki </B>ищет замену и ведёт переговоры с финским барабанщиком и немецким вокалистом.
+Автор: Vit Belov
+
+### 09.12.2003 news KOTIPELTO AND MICHAEL OUT OF STRATOVARIUS
+
+<P><B>Timo Kotipelto</B> and <B>J&ouml;rg Michael</B> are out of <B>Stratovarius</B>.<BR><BR>After several emergency meetings, this move finds acceptance within the band. “<B>Due to irrevocable and massive difficulties between the band leader Timo Tolkki and me, it has been agreed that this is the best thing to do to preserve at least some of the integrity the band used to have</B>", says singer <B>Kotipelto</B>. "<B>I will now fully concentrate on my solo album and I am convinced that this is the best way for me.</B>"<BR></P>
+<P>According to <B>Tolkki</B>, he is currently talking to a German singer and a Finnish drummer about replacing <B>Kotipelto</B> and <B>Michael</B>, but he stresses that absolutely nothing is confirmed at this point. He adds that he is actively looking for replacements. <BR></P>
+Автор: Vit Belov
+
+### 10.12.2003 reviews Тотальная скука во всём
+
+<P>“Опять!?” - подумал я при первом взгляде на диск, но всё-таки вставил его в проигрыватель. “Страты” решили попробовать новую тактику и вместо обычного бодренького и задорного начала (“Hunting…”, “Eagleheart” e.t.c.) попробовали усыпить народ монументальной композицией “Alpha & Omega”. Еще скучнее показались мне песня “Luminous”. Некоторые приятные воспоминания о старых альбомах вызывают “I Walk To My Own Song” и “Dreamweaver”. Остальное не производит вообще никаких впечатлений кроме дикой тоски. От предыдущей части элементов альбом отличает в лучшую сторону отсутствие песен “за десять”. </P>
+<P>Прослушав этот диск можно сказать, что вся это затея с “элементами” была ошибочная и провальная для группы, выслушавшей немало обвинений в самоплагиате. Также провальной считаю затею с псевдо “опрегрессированием” репертуара (основным образом - баллад), начавшейся еще на “Intermission”. Остальное все по старому.</P>
+<P>Тотальная скука во всём: музыке, оформлении, записи и сведении. </P>
+Автор: Uneral
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 15.01.2004 news Новая вокалистка STRATOVARIUS
+
+<P><IMG height=375 alt="" hspace=10 src="/images/news_rus/2004.01/5862.jpg" width=250 align="left" border=0>Согласно данным на официальном сайте группы, новой вокалисткой <B>STRATOVARIUS</B> стала некая <B>Miss K. </B>Ее вокальный диапазон (более, чем три октавы) очень разнообразный и варьируется от&nbsp;отвязного рокового голоса до классического оперного.&nbsp;Она способна сделать материал группы уникальным. В общем,&nbsp;все должны услышать то, что никогда не слышали. Новой вокалистке 30 лет, она в прошлом гимнастка и была дважды чемпионкой Финляндии. Она уже пела до того в некоторых местных командах и дала в общей сложности около 200 концертов. </P>
+<P>Кроме того, стало известно, что партии ударных на следующем альбоме запишет брат клавишника группы - <B>Anders Johansson (HAMMERFALL).</B> </P>
+<P><B>STRATOVARIUS</B> полностью готовы к новому шагу в своей карьере. Они принимаются за запись нового альбома с рабочим названием <B>"PopKiller",</B> выход которого ожидается в феврале 2005 года на <B>Sanctuary Records</B>. После выхода альбома, планируется&nbsp;грандиозное мировое турне.</P>
+Автор: Dimas
+
+### 04.02.2004 news STRATOVARIUS продолжают поиск
+
+Барабанщик <B>Anders Johansson (Hammerfall)</B> решил не присоединяться к <B>STRATOVARIUS</B>. <B>Timo Tolkki</B> вынужден продолжить поиск.
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 27.02.2004 news Timo Tolkki продолжает сходить с ума
+
+<P>Проникнувшись идеями Каббалы, <B>Timo Tolkki</B> будет продолжать загружать нас своими мыслями через официальный сайт группы. Вот, что сообщает веб-мастер этого сайта: "<I>Сегодня мне позвонил <B>Timo Tolkki</B>, он был в смятённом состоянии духа. Он рассказывал про красную каббалу, и том, что во время чтения жизнеописания Мадонны, он почуствовал тёплые лучи, которые пронизали всё его тело, и таким образом в него вселился Иисус. Всё это звучало, как конкретная ахинея. Мне очень не хотелось публиковать это на сайте, но я получил чек и вынужден делать это. В конце концов, это моя работа</I>." </P>
+<P>Напомним, что приступы помутнения рассудка начались у лидера <B>STRATOVARIUS </B>на прошлой неделе. Сообщение о его поклонение Каббале&nbsp;и голосах появились на официальном сайте, а потом исчезли, что не помешало им расползтись по всему Интернету.</P>
+<P>В это же время появилось официальное заявление от <B>Jorg Michael</B>, изгнанного из группы незадолго до кризиса, с рассказом о подробностях выяснения отношений в <B>STRATOVARIUS.</B></P>
+<P><I>"Мы встретились с двумя Тимо. Опять плохую роль сыграл алкоголь. Я не очень хорошо всё помню, но помню, что мы с Котипелто были предельно пьяны, а Толкки старался от нас не отставать. Разгорелся спор и случилась драка, прямо посреди улицы. В первый раз произошёл физический контакт. Выпивка стала просто детонатором, проблемы в группе были давно. Например, Котипелто давно не разговаривал со мной. Когда я прочитал в сети, что Толкки хочет всех нас навестить и обговорить состояние дел, я понял, что в группе не останусь. Мне надоело быть среди этого 'kindergarten'. Много лет назад я решил, что если группа не будет продолжать в одном составе, я уйду. Также я не смог согласиться с "новым видением" будущего STRATOVARIUS. Tolkki выслушал меня, выплатил мне денег от нового контракта, и я не имею ни к нему, ни к остальной группе, никаких претензий."</I></P>
+Автор: Vit Belov
+
+### 27.02.2004 news Timo Tolkki is gonna be crazy
+
+<P><B>Stratovarius</B> guitarist <B>Timo Tolki</B> seems to be seriously loosing it. Here's a message from his webmaster: “<I>Today I received a phone call from Timo Tolkki. He sounded like being in a very confused state of mind and was talking about red Kabbalah ribbons and how when he was reading Madonna's biography he felt warm waves all over his body and that the spirit of Jesus entered him and that now he really has found something he has been searching for all his life. I am very worried about him, he sounded like completely crazy. From this day onwards I will not take the responsibility of whatever is being released on this Website. As long as my paycheck arrives, I will continue putting on the site whatever Tolkki asks me to put there. But there is nothing I can do about it. I just work here.”</I> </P>
+<P>Then Timo posted the following: "I<I> really need to share this with all of you. Two days ago I had a panic attack, I lied down and tried to relax. Then a voice in my head told me repeatedly: Kabbalah, Kabbalah, Kabbalah. I believe it was the voice of Jesus Christ. I felt warm waves through my body and I felt secure and happy. The voice told me to take a bloody picture of myself in honor of His memory. Then the voice told me to go to my library and one of the books fell into the floor before me. I didn't even remember I have that book. It was about the teachings of Kabbalah. I believe I have now found the complete and only Universal truth. I understand that none of the things in my life matters really. It is all an illusion anyway. I will use this webpage and also the future Stratovarius recordings to celebrate the beauty of this ancient teaching.</I>"</P>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 12.04.2004 news Timo Tolkki в больнице
+
+<B>Timo Tolkki</B> был госпитализирован в субботу 10 апреля с диагнозом хроническая депрессия и суицидные настроения. Он находится в частной больнице в Хельсинки.
+Автор: Vit Belov
+
+### 04.05.2004 news Timo Tolkki вышел из больницы и принял новое решение на свежую голову
+
+<B>Timo Tolkki</B> закончил лечение в психиатрической клинике, и выйдя "на свободу", выступил с новым заявлением&nbsp;через официальный сайт <B>STRATOVARIUS</B>. Новое решение состоит в том, что <B>STRATOVARIUS</B> может существовать только в старом составе: <B>Kotipelto, Tolkki, Johansson, Kainulainen</B> и <B>Michael</B>. Если 3 июля, когда намечено последнее выступление группы в старом составе,<B> Tolkki</B> и <B>Kotipelto</B> не договорятся сохранить прежние отношения, <B>STRATOVARIUS</B> перестанет существовать.
+Автор: Vit Belov
+
+### 04.07.2004 news Сборная Чехии по футболу слушала STRATOVARIUS в своей раздевалке
+
+<P>Перед полуфинальным матчем с Грецией (Чехи проиграли) чешская газета сообщила, что песни <B>STRATOVARIUS</B> звучат в раздевалке перед матчами команды и вдохновляют их на победы. <B>"Glory Of The World"</B>&nbsp;и <B>"Why Are We Here"</B> две песни, которые они регулярно слушали. Правда, греки, видимо, слушали что-нибудь более забойное:))</P>
+Автор: Vit Belov
+
+### 25.09.2004 news Jens Johansson присоединился к KOTIPELTO
+
+<P>На клавишных, во время тура по Южной Америке и Финляндии сольной группы<STRONG> Timo Kotipelto (ex-STRATOVARIUS</STRONG>), будет играть его бывший коллега <STRONG>Jens Johansson</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Хотя всё ещё не ясно, бывший ли он.</FONT></P>
+Автор: Vit Belov
+
+### 18.12.2004 news STRATOVARIUS подали признаки жизни?
+
+<P>По сообщению официального сайта<STRONG> STRATOVARIUS</STRONG>, члены группы <STRONG>Kotipelto, Tolkki, Michael, Kainulainen</STRONG> и <STRONG>Johansson</STRONG> встретились в прошлый week-end в Хельсинки, где выпили, попарились в сауне и обсудили будущее группы. Никаких подробностей не сообщается, но из непроверенных источников стало известно, что группа уже сделала некоторые записи в Нью-Йорке.</P>
+Автор: Vit Belov
+
+### 14.01.2005 news STRATOVARIUS снова в бою
+
+<P><STRONG>STRATOVARIUS</STRONG> снова объединились в прежнем составе: <STRONG>Timo Tolkki</STRONG>, <STRONG>Timo Kotipelto</STRONG>, <STRONG>J&#246;rg Michael</STRONG>, <STRONG>Jari Kainulainen</STRONG>&nbsp;и <STRONG>Jens Johansson</STRONG>. Группа готова к записи нового материала. Из заявления: "<EM>После распада в апреле мы терпеливо ждали, когда здоровье Timo Tolkki востановится, и вот это случилось</EM>!"</P>
+Автор: Vit Belov
+
+### 11.02.2005 articles STRATOVARIUS хотят &#39;Hitler&#39; на новом альбоме
+
+<P><IMG height=472 alt="" hspace=0 src="/images/articles_rus/2005.02/7905.jpg" width=400 align=left border=5>Финская периодическая газета Iltalehti сообщила в одном из свежих номеров о том, что Sanctuary запретила своим подопечным STRATOVARIUS размещать песню ‘Hitler’ на новом альбоме. Кроме прочего, на этом трэке использовался сэмпл речи Адольфа Гитлера.</P>
+<P>«Я не «сдам» эту песню», - говорит Timo Tolkki, - «Это дело принципа. Немецкое МВД создало механизм предотвращения проникновения наци идеологии в молодёжные массы. Наш менеджмент отослал текст этой вещи и интро к ней, где звучит речь Гитлера, в МВД для ознакомления. Они должны решить подходит песня или нет. Если им не понравится, я, конечно же, не буду публиковать эту версию, но подготовлю ту, которая их удовлетворит. Если же проблем не будет, лэйбл не имеет права ограничивать мою свободу самовыражения».</P>
+<P>Tolkki уверен, что министерство не будет против: «Это песня против Гитлера». Чтобы доказать это, Timo зачитал текст репортёру газеты. В песне Гитлер называется монстром, который распространил страх по всей земле.</P>
+<P>Tolkki рассказал, что изучал литературу о Гитлере долгое время: «Я был заинтересован Гитлером ещё тогда, когда был подростком. Мне кажется, что каждый ребёнок рождается невинным, и меня интересовало, как невинное дитя могло превратиться в такого человека, как Гитлер".</P>
+<P>Timo сообщил, что не знает, как долго будет длится разбирательство и надеется, что это не повлияет на создание новой пластинки. <BR></P>
+Автор: Vit Belov
+
+### 15.03.2005 news STRATOVARIUS практически записали новый альбом
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news_rus/2005.03/8106.jpg" width=400 align=right border=5>Новый альбом <STRONG>STRATOVARIUS</STRONG> практически записан. Остались только вокальные партии <STRONG>Timo Kotipelto</STRONG>, которые он "сделает" после возвращения из сольного тура. Далее альбом будет сведён в личной студии <STRONG>Timo Tolkki</STRONG> в течение нескольких месяцев.</P>
+<P>Из других новостей, группа провела новую фото-сессию. Один из её итогов можно увидеть в этой заметке.</P>
+Автор: Vit Belov
+
+### 19.04.2005 news Подробности о новом альбоме STRATOVARIUS
+
+<P>Финская power-metal формация&nbsp;<B>STRATOVARIUS</B> готовит к выпуску на <STRONG>Sanctuary Records, </STRONG>в конце августа - начале сентября, свой совершенно новый полнометражный альбом под названием "<STRONG>Stratovarius</STRONG>". В альбом войдут следующие вещи: <BR><BR>1. <B>Maniac Dance</B> <BR>2. <B>Fight</B> <BR>3. <B>Just Carry On</B> <BR>4. <B>Back To Madness</B> <BR>5. <B>Gypsy In Me</B> <BR>6. <B>Gotterdammerung (Zenith of Power)</B> <BR>7. <B>The Land of Ice and Snow</B> <BR>8. <B>Leave The Tribe</B> <BR>9. <B>United</B> <BR></P>
+Автор: Dimas
+
+### 06.05.2005 news Дата релиза STRATOVARIUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>STRATOVARIUS "Stratovarius"</STRONG> выйдет 5 сентября на <STRONG>Sanctuary</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 20.05.2005 news STRATOVARIUS опять выступят в России
+
+<P><STRONG>STRATOVARIUS</STRONG> опубликовали даты своего мирового турне. 22 октября состоится концерт в Санкт-Петербурге, а 23 октября в Москве в ДК им. Горбунова.</P>
+Автор: Vit Belov
+
+### 04.07.2005 news Новый басист STRATOVARIUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>по сообщениям некоторых источников, новым басистом <STRONG>STRATOVARIUS</STRONG> стал <STRONG>Lauri Porra</STRONG> (<B>SINERGY</B>, <B>KOTIPELTO</B>, <B>BEN GRANFELT</B>, <B>TUNNELVISION</B>, <B>WARMEN</B>). Он заменил <STRONG>Jari Kainulainen, </STRONG>ушедшего несколько недель назад.</FONT></P>
+Автор: Vit Belov
+
+### 12.09.2005 reviews Противоречивый новый STRATOVARIUS
+
+<P>Ситуация вокруг нового альбома настораживала и веселила. Вот в таком духе я и собирался начать рецензию. Все эти "белые горячки" <STRONG>Timo Tolkki</STRONG>, "кетчуп на лице", молитвы к Господу, развал и скорый re-union... Всё&nbsp;указывало на достаточно "топорную" PR-акцию перед выпуском нового альбома на новом лэйбле. Соответственно и относиться к нему надо было именно так.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поначалу прослушивание "<STRONG>Stratovarius</STRONG>" не доставляло никакого удовольствия. Уже "открывашка"</FONT>&nbsp;"<STRONG>Maniac Dance</STRONG>"&nbsp;показалась немного "стёбной" и примитивной, далее шли стандартный для Стратов "хит"&nbsp;"<STRONG>Fight</STRONG>!!!" и бледная&nbsp;"<STRONG>Just Carry On</STRONG>". По-другому&nbsp;взглянуть на пластинку меня заставила "<STRONG>Back To Madness</STRONG>". Уже само название песни - "Назад&nbsp;к безумию" - говорило о её тематической направленности... И здесь <STRONG>Timo Tolkki</STRONG> меня удивил и растрогал. Великолепное медленное "симфоничное" вступление, стандартная Стратовская баллада, но... Отличная находка - тенор в середине вещи, надрывно исполняющий нечто. Как полубезумный Герман в "Пиковой Даме" или предчувствующий смерть Ленский. Затем музыка перетекает в нечто <STRONG>THERION</STRONG>-подобное и снова идёт баллада. Заканчивается же песня монологом, который можно считать исповедью <STRONG>Tolkki</STRONG>. "Чувствовали ли Вы когда-нибудь себя одиноким? Чувствовали ли Вы себя испуганным?" Лишь после этого я взглянул на альбом по-другому.</P>
+<P>"<STRONG>Stratovarius</STRONG>" представляет собой диалог между <STRONG>Kotipelto</STRONG> и <STRONG>Tolkki</STRONG>, озвученный <STRONG>Kotipelto</STRONG>. Они сочинили тексты для первых песен. <STRONG>Tolkki</STRONG> рассказывает о своём последнем годе и безумии, а <STRONG>Kotipelto</STRONG> о своих чувствах во время развала группы. Соответственным образом и звучит пластинка. Большинство медленных песен, полное отсутствие жизнерадостных неоклассических боевиков... Как говорится, самая весёлая песня, здесь не весёлая. <STRONG>STRATOVARIUS</STRONG> здесь больше heavy-metal или hard-rock, чем power...</P>
+<P>А вот это может не понравиться людям, которые не хотят вникать в проблемы музыкантов. С музыкальной точки альбом несколько зануден. <STRONG>Tolkki </STRONG>попытался сочинить что-то особенное, но среднетемповые песни не его "конёк". Грубо говоря, его таланта не хватает, чтобы описать болезненность и безнадёжность. За этим надо отправляться к другим авторам, но у<STRONG> STRATOVARIUS</STRONG> других авторов нет.</P>
+<P>Итого. Пластинка в музыкальном плане далеко не лучшая у группы, но если настроить себя на нужный лад, подготовиться тематически, то можно и получить удовольствие. Послушайте, это интересно.</P>
+Автор: Vit Belov
+
+### 21.09.2005 reviews Альбом для лейбла или НЭП в музыке?
+
+<P>Куда уехал цирк, он был еще вчера? Куда подевались высокоскоростные бочечные шквалы, быстрые темпы, ураганоподобные гитарные поливы? Не знаете? Вот и я не знаю.</P>
+<P>Новый альбом Stratovarius начинается с двух среднетемповых композиций Maniac Dance и Fight!!!, которые вяленько, но хоть как-то претендуют на звание хитов. Причем, хитов американских, эмтивишных если хотите, ибо напоминают местами творчество позднего Bon Jovi. Это что, попытка глобального завоевания заокеанской аудитории и, как следствие, получения семизначных гонораров? Возможно, но смею вас заверить, попытка эта явно обречена на провал, поскольку с третьей песни на альбоме начинается тоска зеленая. Размеренные, прямые барабаны в одну бочку, незамысловатые гармонии, вялые гитарки. Хотите услышать что-нибудь заводное, в духе Millenium? Забудьте, таких песен здесь нет. Не спасает ситуацию ни эпическая The Land Of Ice And Snow, ни ориентированная на совместное распевание с публикой на концертах United.</P>
+<P>Создается впечатление, что альбом просто высосан из пальца и материал был написан только для того, чтобы выполнить обязательство по договору перед лейблом. Возможно, у группы сейчас сложный период, не хочется думать, что Stratovarius исписались. Но пластиночка получилась так себе, прямо скажем: не шедевр.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 22.09.2005 articles STRATOVARIUS в Москве: пресс-релиз
+
+<P>Группа STRATOVARIUS была основана в 1984 году тремя финскими музыкантами из Хельсинки: барабанщиком и вокалистом Туомо Лассила (Tuomo Lassila), басистом Джоном Виерве (John Viherva) и гитаристом Стаффаном Стрелманом (Staffan Strehlman). В то время группа носила название BLACK WATER, и ее музыка сильно отличалась от музыки нынешнего STRATOVARIUS - сильное влияние на музыкантов оказывала популярная в то время группа BLACK SABBATH во главе с Оззи Осборном. Немного позже Стаффан внес в музыку раннего STRATOVARIUS некоторые элементы классики. <BR>В мае 1989 года увидел свет дебютный альбом STRATOVARIUS, который назазывался "Fright Night". Второй альбом, который назывался "Stratovarius II", вышел в Финляндии в начале 1992 года. Однако к тому моменту стало понятно, что наибольшей популярностью группа пользуется за пределами своей родной страны. Демонстрационные записи были разосланы в звукозаписывающие студии по всему миру, и группой заинтересовались в Shark Records после прослушивания композиции "Hands of Time". В итоге альбом "Stratovarius II" с новой обложкой и новым названием "Twilight Time" был выпущен по всей Европе. Вскоре альбом попал и на японский рынок музыкальной продукции и в течение целых пяти месяцев оставался в десятке лучших импортных дисков в Стране Восходящего Солнца. В 1993 году "Twilight Time" стал лучшим в Японии альбомом по числу продаж, и примерно в это же время группа заключила контракт с JVC Victor Entertaiment, которая выпустила "Twilight Time" в Японии в июле 1993 года.&nbsp; <BR>В феврале-марте 1994 года третий альбом, "Dreamspace", был выпущен по всему миру. Он был очень высоко оценен критиками и ощутимо повысил популярность STRATOVARIUS. На диск вошли такие композиции, как "Dreamspace", "4th Reich" и "Chasing Shadows", которые на сегодняшний день уже стали классикой STRATOVARIUS. В июне музыканты отправились в турне по Японии, отыграв концерты в Токио, Осаке и Нагойе и впервые встретившись со своими японскими поклонниками.<BR>В один прекрасный момент Тимо Толкки решил, что музыка STRATOVARIUS должна развиваться и совершенствоваться, и всвязи с этим было решено найти для группы другого вокалиста. Начались поиски, в местных музыкальных изданиях была помещена реклама. И тут кто-то вспомнил про одного парня из города Лаппаярви (Lappajarvi), который пересекался с STRATOVARIUS около полутора лет назад. Тимо Толккиi позвонил своему тезке, Тимо Котипелто (Timo Kotipelto), и они договорились о прослушивании. Когда Котипелто спел на репетиции несколько композиций, музыканты поняли, что перед ними новый вокалист STRATOVARIUS. Голос Тимо Котипелто звучит во всех композициях альбома "Fourth Dimension". Название этого альбома говорит само за себя - его звучание кардинальным образом отличалось от всех предыдущих работ группы. Выражаясь художественным языком, в музыке STRATOVARIUS появилось новое измерение. "Fourth Dimension" был выпущен в марте 1995 года и в два раза обогнал "Dreamspace" по числу продаж.<BR>Запись и сведение следующего альбома, "Episode", происходила в Хельсинки на студии Finnvox Studios. Этот альбом явился для группы колоссальным шагом вперед. Йенс и Йорг отлично справились со своей задачей, сумев влить в музыку STRATOVARIUS свежую кровь. В результате "Episode" получился очень мелодичным, симфоническим, но в то же время и металлическим альбомом.<BR>Следующий альбом STRATOVARIUS, "Visions", увидел свет в апреле 1997 года и сразу же занял пятое место в финских хит-парадах. В течение двадцати четырех недель этот альбом сумел продержаться в финском чарте Top 40. Выход "Visions" ознаменовал начало очередного грандиозного турне, во время которого группа играла не только в Финляндии, но и в Японии, Европе и Южной Америке.<BR>В конце 2000 года, когда группа вернулась из своего самого долгого и наиболее удачного за всю предыдущую историю турне, музыканты решили сделать перерыв на неопределенный срок, которым воспользовались для записи своих сольных проектов. В 2001 году группа выпустила диск "Intermission", на который вошли редкие бонус-треки, несколько каверов на композиции других групп и четыре новые вещи. <BR>После целого года молчания летом 2002 года группа снова обосновалась в студии для работы над альбомом "Elements Pt. I". По мнению самих музыкантов, этот альбом станет самым эпическим и симфоническим альбомом группы. Релиз планируется на двадцать седьмое января 2003 года, и, конечно же, за релизом последует очередное турне группы, которое начнется девятнадцатого марта в Финляндии. <BR>Спустя целый год, крайне тяжёлый и турбулентный год для группы, STRATOVARIUS теперь счастливы заявить, что вновь собираются в классическом составе! Timo Tolkki, Timo Kotipelto, J&#246;rg Michael, Jari Kainulainen и Jens Johansson.<BR>Со времени практически полного распада STRATOVARIUS в 2004 году, музыканты группы снова собирается вместе, и терпеливо ожидают, когда состояние здоровья лидера группы Тимо Толкки улучшится. Теперь большинство недавних проблем нашли свое решение и в группе вновь царят взаимопонимание и хорошие взаимоотношения. <BR>Как только это произошло, STRATOVARIUS сразу возвращаются к действию. Лейбл Sanctuary Records объявляет датой релиза альбома, озаглавленного просто «Stratovarius», 5 сентября 2005 года. Группа начинает туры по Латинской Америке, Азии, Европе, открывая европейские даты двумя выступлениями в России!<BR>&nbsp;Всемирно известное шоу богов Power Metal можно будет увидеть 23 октября 2005 в ДК Горбунова в Москве.</P>
+Автор: Vit Belov
+
+### 12.10.2005 news STRATOVARIUS в Москве
+
+<P>
+<CENTER>23 октября 2005<BR>«STRATOVARIUS» 
+<P></P>
+<P>
+<CENTER><IMG height=283 src="/images/shows_rus/2005.09/9401.jpg" width=400 border=0><BR>«МАИ тур-сервис»<BR>представляют<BR>23 октября 2005г.<BR>«STRATOVARIUS» <BR>в ДК им. Горбунова 
+<P></P>
+<P>
+<CENTER>Начало концерта в 20:00 
+<P></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+### 25.10.2005 articles STRATOVARIUS в Москве: Ещё один отличный концерт при малом количестве публики
+
+<P><IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.10/9637.jpg" width=250 align=left border=5>23 октября Москву во второй раз посетили финские power-metal монстры STRATOVARIUS. В первый свой приезд они собрали ДК им. Горбунова, поэтому и в этот раз концерт был назначен на этой площадке. Правда, к сожалению, Горбушка была в этот раз полупустая.</P>
+<P>Понятно, что первый концерт в Москве многим не понравился. В то время в коллективе назревал кризис и музыканты не испытывали никакого удовольствия от пребывания на сцене. Не секрет, что музыканты практически не общались в то время, а сразу за этим гитарист Timo Tolkki разогнал весь состав и окунулся в пучину временного помешательства. В этот раз всё было наоборот. STRATOVARIUS начали в<IMG height=267 alt="" hspace=0 src="/images/articles_rus/2005.10/9638.jpg" width=200 align=right border=5>ыступать поновой только в середине этого лета и ещё не успели надоесть друг другу. С особым воодушевлением ребята исполняли свои старые хиты и новые вещи, в том числе “Fight!”, “Maniac dance”, “The Land Of Ice And Snow” и “United”.</P>
+<P>На сцене были установлены два больших экрана, на которые проецировались различные тематические картинки. В качестве интро там использовались кадры «за сценой», снятые во время текущего тура. Когда началась «открывашка» “Maniac Dance”, на экранах транслировали клип на эту песню. В остальное время там появлялись сопутствующие кадры. Например, перед песней “United” отображалось послание к публике, содержащее призыв к всеобщей любви и объединению на этой почве. Кстати, несмотря на некоторую примитивность текста, это послание должно было тронуть тех, кто смог перевести его с английского.</P>
+<P>Обратимся к музыкантам. Timo Kotipelto использовал все доступные фронтмэну способы расшевелить публику. Кидался в зал минералкой, заставлял фэнов подпевать и скандировать. Кроме прочего, он отлично справлялся и со своими непосредственными обязанностями, чем подтвердил свою высокую репутацию, одного из лучших певцов в power-metal. Барабанщик Jorg Michael также пребывал в отличном настроении. Понравился его трюк, когда во время игры он кидал палочку Timo Tolkki, тот выкидывал её либо в зал, либо за кулисы, и в тоже время из за кулис кто-то выкидывал новую палочку Jorg’у. Добавлял жару и новый басист группы Lauri Porra, который выделялся даже среди своих коллег. Носился по сцене, а в середине сэта выдал басовое соло, которое, правда, показалось <IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.10/9639.jpg" width=250 align=left border=5>мне несколько затянутым и малоинтересным. Из всего этого «праздника» выделялся Timo Tolkki. Играл он великолепно, но смотреть на него не очень приятно. Со своим избыточным весом он больше тянет на домохозяйку, а не на рок-звезду.</P>
+<P>В общем и целом, концерт пролетел на одном дыхании. Всем посетившим его можно позавидовать – настоящий рок! Складывается занятная тенденция: на посредственные концерты приходит много фэнов, а те концерты, которые по-настоящему заслуживают внимания проходят при малом стечении публики. Это проблема, как промоутеров, которые не могут, видимо, объяснить всю незабываемость предстоящего шоу, так и самих зрителей, которые ориентируются, прежде всего, на свои впечатления последнего времени.</P>
+<P>P.S.: Открывали концерт SHADOW HOST. Я увидел только две последние песни, и поэтому не смог составить полного впечатления. Могу только сказать, что проблемы у москвичей остались те же. Общая нехитовость материала и вокалист. Новый певец мало чем отличается от Сергеева. </P>
+Автор: Vit Belov
+
+### 28.10.2005 reviews И все-таки возвращение состоялось…
+
+<P>Вот такой вот камбэк получился… В прошлом осталась психиатрическая клиника, где отдыхал от мирской суеты слетевший с катушек бедняга Тимо Толкки. В прошлом осталась перепачканная краской прелестная гимнастка вместо Котипелто (по крайней мере, такой она представала на редких фотосессиях). В прошлом – бездонные океаны взаимных гадостей и обвинений, которые выливали друг на друга бывшие друзья соратники… В прошлом ссоры, ругань, неопределенности и кризис.<BR>В результате – “Stratovarius”. Если музыканты называют свои альбомы именем группы – значит, они намеренно придают им знаковый статус. На сей раз это – альбом-проба. Альбом-возвращение. Альбом-надежда. Судя по всему, Тимо приложил все усилия для того, чтобы вновь собрать ставшую легендой, но чуть не ставшую историей группу.<BR>Начинается альбом весьма бодро и жизнеутверждающе – по крайней мере, первые три композиции (это “Maniac Dance”, “Fight!!!” и “Just Carry On”) понравились мне безоговорочно: песенки на удивление динамичные и изобретательные. Дальше же – темпы сбавляются, скорости падают, материал становится более предсказуемым и стандартным… не лучше, но и уж точно не хуже большинства работ этой замечательной формации. “Gotterdammerung (Zenith Of Power)”, “The Land Of Ice And Snow” (полу-марш, полу-баллада), “Leave The Tribe” – слишком традиционно, слишком обычно… все это мы уже слышали. Стандарт. Но все-таки – стандарт качества. Котипелто все так же хорош, все особые мелодические фишки – на месте, эмоций – вагон и маленькая тележка, проникновенность, немного грусти, интеллигентные соло - все на месте, все здесь. Нет нужды подробно расписывать каждую песню в отдельности – как бы там ни было, а альбом получился очень неплохим, уж всяко лучше двух мутантов-близнецов – «Элементов»… Не стану утверждать наверняка, но вот, на мой взгляд, клавиш стало чуть поменьше, и убраны они глубже, а вот саунд – несколько погрубел и потяжелел. Но, конечно же, это все тот же старый добрый power metal…<BR>Оформление диска – на удивление, строгое и скромное: на почти черном фоне стилизованная фирменная лилия «Стратов». Я, признаться, рассчитывал на что-то более фееричное, вычурное и сногсшибательное, но выбор музыкантов мне понравился.</P>
+Автор: Dr. Grandma
+
+### 17.02.2006 news STRATOVARIUS начнут запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Согласно сообщению на официальном сайте <STRONG>STRATOVARIUS</STRONG>, группа запишет новый альбом уже в этом году.</FONT></P>
+Автор: Vit Belov
+
+### 08.08.2006 news Новости от Timo Kotipelto
+
+<P>Вокалист<STRONG> STRATOVARIUS</STRONG> <B>Timo Kotipelto</B> начал в финской <B>Sonic Pump Studios</B> запись своего третьего сольного альбома, выход которого планируется в начале 2007 года на его собственном лейбле <B>High and Loud Records</B>. </P>
+Автор: Dimas
+
+### 01.11.2006 news Timo Tolkki написал альбом
+
+<P>Главный композитор <STRONG>STRATOVARIUS Timo Tolkki</STRONG> сообщил, что написал 11 песен для нового альбома. Новая пластинка будет носить странное название <STRONG>'R...... R.......' </STRONG>(быть может, это закодированные слова) и выйдет в октябре 2007 года.</P>
+Автор: Vit Belov
+
+### 25.12.2006 news Подробности о новом сольном альбоме вокалиста STRATOVARIUS
+
+<P>Вокалист<STRONG> STRATOVARIUS</STRONG>&nbsp; <B>Timo Kotipelto</B> назвал свой третий сольный альбом <B>"Serenity"</B>. Его выход ожидается в начале 2007 года на собственном лейбле музыканта&nbsp;<B>High and Loud Records</B>. Альбом был записан в <B>Sonic Pump Studios.&nbsp;</B>Микшированием занимался&nbsp;<B>Mikko Karmila</B>.&nbsp;Сингл к альбому&nbsp;<B>"Sleep Well"</B> поступит в продажу 10 января 2007 года.<BR></P>
+Автор: Dimas
+
+### 08.08.2007 news EVERGREY нашли басиста
+
+<P><STRONG>EVERGREY</STRONG> объявили, что новым басистом группы стал бывший музыкант <STRONG>STRATOVARIUS</STRONG> <STRONG>Jari Kainulainen.</STRONG></P>
+Автор: Vit Belov
+
+### 28.03.2008 news Timo Tolkki опять пьёт?
+
+<P>В последнем номере финского журнала<STRONG> Soundi</STRONG> опубликовано интервью с лидером <STRONG>STRATOVARIUS</STRONG> гитаристом <STRONG>Timo Tolkki</STRONG>. В нём он сообщает, что организовал новую группу <STRONG>REVOLUTION RENAISSANCE, </STRONG>c которой записывает новый альбом, содержащий новые песни, изначально записанные для <STRONG>STRATOVARIUS</STRONG>. Сообщается, что пластинка выйдет на<STRONG> Frontiers</STRONG>, а во время тура новой группы <STRONG>Timo</STRONG> собирается исполнять и старый материал <STRONG>STRATOVARIUS</STRONG>. В записи пластинки примут участие: <STRONG>Michael Kiske</STRONG> (vocals; <B>HELLOWEEN</B>), <B>Pasi Rantanen</B> (vocals; <B>THUNDERSTONE</B>), <B>Mirka Rantanen</B> (drums; <B>THUNDERSTONE</B>), <B>Pasi Heikkila</B> (bass; <B>45 DEGREE WOMAN</B>) и <B>Tobias Sammet</B> (vocals; <B>EDGUY</B>).</P>
+<P>Какой вывод из этого всего можно сделать. Пожалуй, только один, <STRONG>Timo </STRONG>вновь взялся за бутылку. Главное, чтобы ему кровь вновь не стала везде мерещиться.</P>
+Автор: Vit Belov
+
+### 03.04.2008 news STRATOVARIUS прекратили существование
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Timo Tolkki</STRONG> сообщил, что <STRONG>STRATOVARIUS</STRONG> больше не существует. Гитарист заявил, что музыкантам группы это было известно уже в октябре. Также <STRONG>Timo</STRONG> опубликовал неформальное заявление, в котором раскрыл причины произошедшего. Как мы могли предположить, всё связано с неразрешимыми противоречиями между <STRONG>Tolkki </STRONG>и <STRONG>Kotipelto</STRONG> с <STRONG>Jorg Michael</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А альбом нового проекта гитариста <STRONG>STRATOVARIUS Timo Tolkki</STRONG> <STRONG>REVOLUTION RENAISSANCE</STRONG> под названием <STRONG>"New Era" </STRONG>выйдет уже 6 июня на <STRONG>Frontiers</STRONG>. Мы уже сообщали, что на пластинку вошли песни, которые <STRONG>Timo</STRONG> сочинял для нового альбома<STRONG> STRATOVARIUS</STRONG>. Музыкант обещает материал в духе "<STRONG>Visions</STRONG>". Песни на пластинке исполнят <STRONG>Michael Kiske</STRONG> и<STRONG> Tobias Sammett</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 08.05.2008 news В STRATOVARIUS вновь свара
+
+<P>Оставшиеся члены <STRONG>STRATOVARIUS</STRONG>: <STRONG>Timo Kotipelto</STRONG>, <B>Jens Johansson,</B> <B>Lauri Porra</B>&nbsp;и <STRONG>Jorg Michael,&nbsp;</STRONG>наконец-то высказали своё мнение по поводу прекращения деятельности группы гитаристом <STRONG>Timo Tolkk</STRONG>i. Оказалось, что развода по взаимному согласию не получилось. Музыканты обвиняют<STRONG> Timo</STRONG> в том, что он закрыл<STRONG> STRATOVARIUS</STRONG> по финансовым причинам. Более того, он "кинул" своих бывших коллег с долгом к бывшему лэйблу <STRONG>STRATOVARIUS Sanctuary</STRONG>, который, видимо, выдавал деньги под новый альбом знаменитой группы. В итоге<STRONG> Timo</STRONG>,<STRONG> Jens</STRONG>,<STRONG> Lauri</STRONG>&nbsp;и <STRONG>Jorg</STRONG>&nbsp;потеряли 346000 долларов США.</P>
+<P>В отличие от своих бывших друзей<STRONG> Timo Tolkki</STRONG> сидит в Интернет и сразу ответил на эти обвинения. Во-первых, он сразу же нашёл виноватого и сказал, что заявление целиком написано одним клавишником <STRONG>Jens Johansson</STRONG>. Дальше "по пунктам", <STRONG>Timo</STRONG> признал, что "предоставил музыкантов самим себе", то есть "кинул" их, но сделал он это не из-за жадности, а просто так. К тому же, как утверждает гитарист, ребята смогут себя прокормить и без его участия. <STRONG>Jorg</STRONG> имеет концертное агентство, <STRONG>Kotipelto </STRONG>имеет свою группу и лэйбл, у <STRONG>Jens </STRONG>есть лэйбл на паях с братом, а <STRONG>Lauri </STRONG>имеет много работы, как сессионный басист. Кроме прочего, <STRONG>Tolkki </STRONG>утверждает, что подружился с<STRONG> Lauri</STRONG>, и он сыграет на альбоме <STRONG>REVOLUTION RENAISSANCE</STRONG> (кто не помнит, наследник<STRONG> STRATOVARIUS</STRONG>). </P>
+<P>В общем, посмеёмся...</P>
+Автор: Vit Belov
+
+### 10.05.2008 news Timo Tolkki не отдаёт...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> продолжает бомбардировать наш мозг заявлениями. На этот раз<STRONG> Timo</STRONG> подтвердил своё нежелание разрешать остальным участникам использовать имя <STRONG>STRATOVARIUS</STRONG>. "<EM>Почему я должен был разрешать им использовать это имя</EM>?", - задаётся вопросом господин<STRONG> Tolkki</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 20.06.2008 news Timo Tolkki колбасит...
+
+<P>Бывший лидер <STRONG>STRATOVARIUS Timo Tolkk</STRONG>i сообщил, что собирается выпустить ещё один альбом <STRONG>STRATOVARIUS</STRONG>, который запишет вместе со старыми друзьями барабанщиком <STRONG>Tuomo Lassila </STRONG>и клавишником <STRONG>Antti Ikonen. </STRONG>Сам <STRONG>Tolkki</STRONG> исполнит партии вокала и гитары. </P>
+<P>Тем временем гитарист пишет новые песни для второго альбома<STRONG> REVOLUTION RENAISSANCE</STRONG>. Правда, пока свет не увидел и&nbsp;первый альбом этого грандиозного проекта.</P>
+<P>Что касается его бывших коллег по группе, то они нашли молодого финского гитариста, с которым также запишут новый материал. Они ещё не решили, выпустят ли новую работу под именем <STRONG>STRATOVARIUS</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.08.2008 news &quot;Остатки&quot; STRATOVARIUS взяли нового гитариста
+
+<P>Оставшиеся музыканты <STRONG>STRATOVARIUS </STRONG>после ухода из собственной группы гитариста <STRONG>Timo Tolkki</STRONG> нашли нового гитариста. Им стал некто <STRONG>Matias Kupiainen. </STRONG></P>
+Автор: Vit Belov
+
+### 14.10.2008 news Timo Tolkki и Ко. надоели нашим читателям
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сегодня на нашем сайте закончился опрос, посвящённый очередным пертурбациям в<STRONG> STRATOVARIUS</STRONG>. Нашим читателям надоела вся эта свара, 53 процента проголосовавших полностью отказывают финским музыкантам в своей поддержке (вариант ответа "все козлы!"). Остальные голоса разделились примерно поровну - 18 процентов выступают на стороне оставшихся музыкантов группы, и одинаковое количество респондентов, по 14.5 процента, поддерживают <STRONG>Timo Tolkki</STRONG> и любят буквально всех.</FONT></P>
+Автор: Vit Belov
+
+### 22.02.2009 news Дата релиза STRATOVARIUS
+
+<P>Новый альбом <STRONG>STRATOVARIUS "Polaris"</STRONG> выйдет 21 мая. Пластинка выйдет на <STRONG>Edel/JVC</STRONG>. </P>
+Автор: Vit Belov
+
+### 26.02.2009 news Jens Johansson полюбил REVOLUTION RENAISSANCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший коллега<STRONG> Timo Tolkki</STRONG> и клавишник <STRONG>STRATOVARIUS Jens Johansson</STRONG> прокомментировал новую песни со второго альбома <STRONG>REVOLUTION RENAISSANCE "Age Of Aquarius"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я, слава Богу, не профессиональный критик, но хочу сказать о трэке&nbsp;"Age Of Aquarius". Он не "попсовый" или коммерческий. Он гораздо более сложный, чем обычно&nbsp;сочиняет Timo. Хороший текст, отличное гитарное соло. Будет здорово послушать альбом целиком. Очень хорошо, что песня не похожа на STRATOVARIUS, ведь Tolkki сам говорил, что не хочет быть частью STRATOVARIUS</EM>".</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 26.02.2009 news Новый проект Timo Tolkki
+
+<P>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> объявил о создании ещё одного проекта. Вместе с такими же бывшими, как и он, барабанщиком <STRONG>Tuomo Lassila </STRONG>и клавишником <STRONG>Anti Ikonen</STRONG>, <STRONG>Timo </STRONG>запишет альбом <STRONG>"Return To Dremspace". </STRONG>Названия у&nbsp;коллектива пока нет, оно будет опубликовано после общения с фэнами.&nbsp;</P>
+Автор: Vit Belov
+
+### 14.03.2009 news STRATOVARIUS что-то нарисовали
+
+<P>Финны <STRONG>STRATOVARIUS </STRONG>выложили в сеть обложку норвого альбома "<STRONG>Polaris</STRONG>", выходящего 21 мая.</P>
+<P>
+<CENTER><IMG height=420 src="/images/news_rus/2009.03/13751.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.03.2009 news STRATOVARIUS подготовили сюиту эмансипации
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>STRATOVARIUS</STRONG> опубликовали трэк-лист своего нового альбома "<STRONG>Polaris</STRONG>", который выйдет в мае:</FONT></P>
+<P>01. <B>Deep Unknown</B><BR>02. <B>Falling Star</B><BR>03. <B>King of Nothing</B><BR>04. <B>Blind</B><BR>05. <B>Winter Skies</B><BR>06. <B>Forever Is Today</B><BR>07. <B>Higher We Go</B><BR>08. <B>Somehow Precious</B><BR>09. <B>Emancipation suite: I Dusk</B><BR>10. <B>Emancipation suite: II Dawn</B><BR>11. <B>When Mountains Fall</B></P>
+<P>Обращает на себя внимание сюита эмансипации в двух частях. Эмансипация от <STRONG>Timo Tolkki</STRONG> или эмансипация<STRONG> Timo Tolkki</STRONG>? Между тем, по сообщениям из&nbsp;некоторых источников, <STRONG>Timo Tolkki</STRONG> и бывшие коллеги зарыли топор войны, встретились в баре и хорошенько посидели.&nbsp;О результатах посиделки пока ничего не сообщается, но клавишник <STRONG>Jens Johansson</STRONG> уже похвалил новую группу гитариста <STRONG>Tolkki</STRONG>&nbsp;<STRONG>REVOLUTION RENAISSANCE</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.04.2009 news Kotipelto объединился с экс-членами SONATA ARCTICA
+
+<P>По сообщению японского журнала <STRONG>Burrn!!</STRONG> певец <STRONG>STRATOVARIUS Timo Kotipelto</STRONG> организовал новую группу вместе с бывшим гитаристом<STRONG> SONATA ARCTICA</STRONG> <STRONG>Jani Liimatainen. </STRONG>Дебют группы <STRONG>CAIN'S OFFERING</STRONG> состоится в июле. Состав:</P>
+<P><STRONG>Timo Kotipelto</STRONG> (STRATOVARIUS, KOTIPELTO) - Vocals<BR itxtvisited="1"><B itxtvisited="1">Jani Liimatainen</B> (ex-SONATA ARCTICA) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Mikko Harkin</B> (ex-SONATA ARCTICA) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Jukka Koskinen</B> (ex-NORTHER, WINTERSUN) - Bass<BR itxtvisited="1"><B itxtvisited="1">Jani Hurula</B> - Drums</P>
+Автор: Vit Belov
+
+### 19.04.2009 news &#39;Dreamspace&#39; состав STRATOVARIUS возродился полностью
+
+<P>Басист <STRONG>EVERGREY</STRONG> <STRONG>Jari Kainulainen </STRONG>воссоединился с бывшими коллегами по<STRONG> STRATOVARIUS</STRONG> <STRONG>Timo Tolkki,</STRONG> <B>Tuomo Lassila</B>&nbsp;и <STRONG>Anti Ikonen </STRONG>для записи альбома, который будет называться "<STRONG>Return To Dreamspace</STRONG>" и выйдет осенью.</P>
+Автор: Vit Belov
+
+### 20.04.2009 news Timo Tolkki выступит с Fabio Lione
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> сообщил, что в ближайшую пятницу 24 апреля отыграет шоу в Риме вместе с вокалистом <STRONG>RHAPSODY OF FIRE Fabio Lione</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 22.04.2009 news Новое видео STRATOVARIUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>"Deep Unknown" </STRONG>на песню с нового альбома<STRONG> STRATOVARIUS "Polaris"</STRONG> можно посмотреть ниже:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><EMBED pluginspage=http://www.macromedia.com/go/getflashplayer src=http://www.rocktube.us/embedded/5k1JcJqduR1 width=450 height=366 type=application/x-shockwave-flash allowfullscreen="true" allowscriptaccess="always"></EMBED> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.05.2009 news PROJECT STRATO - очередной STRATOVARIUS
+
+<P>Мы уже сообщали, что гитарист <STRONG>Timo Tolkki</STRONG> возродил состав <STRONG>STRATOVARIUS</STRONG>, с которым был записан альбома "<STRONG>Dreamspace</STRONG>". Теперь эта группа получила название <STRONG>PROJECT STRATO,</STRONG> и альбом "<STRONG>Return To Dreamspace</STRONG>" в работе. Напомним, что на том альбоме сам <STRONG>Timo Tolkki</STRONG> исполнял партии вокала.</P>
+Автор: Vit Belov
+
+### 21.05.2009 reviews Старого доброго Timo Tolkki мы здесь больше не услышим
+
+<P>Сколько раз мы уже писали о конфликтах и примирениях в STRATOVARIUS, что уже даже и повторяться не хочется. В настоящий момент ситуация такова. Последний из оригинального состава этой группы гитарист Timo Tolkki сошёл с дистанции с очередным скандалом и создал группу REVOLUTION RENAISSANCE. Также он создал ещё один STRATOVARIUS со старыми друзьями, с которыми записывал альбом “Dreamspace”, а теперь запишет ещё один альбом “Return To Dreamspace”. Оставшиеся музыканты современного состава во главе с певцом Timo Kotipelto и клавишником Jens Johansson взяли нового молодого гитариста Matias Kupiainen и записали новый альбом в дискографии группы, который получил название “Polaris”.</P>
+<P>Вот, краткое содержание предыдущих серий. За всем этим «мылом» главное не упустить музыки. REVOLUTION RENAISSANCE вышел вполне конкурентоспособным. Особенно он понравится фанатам STRATOVARIUS, так как наполнен под завязку типичными мелодиями от Tolkki, который всегда сочинял огромное количество музыки для всех альбомов финнов. Теперь бывшим партнёрам пришлось обходиться без него. Почти каждый что-то сочинил для нового альбома группы, не исключая и нового парня Kupiainen’а. Что ж, STRATOVARIUS теперь больше группа, чем когда-либо, но выяснилось, что кроме Timo Tolkki никто больше не хочет или не может писать STRATOVARIUS-oriented материал. Музыканты дружно забили на попытки записать какой-нибудь такой мегахит на все времена, типа “Speed Of Light” или “Will The Sunrise”. Похоже, у них просто не было такой цели. Музыка STRATOVARIUS стала более медленной в среднем, более сложной музыкально и потеряла весь свой былой «пластмассовый» лоск. Вы хотели от STRATOVARIUS чего-то нового? Вот получите. Вообще-то, мы хотели этого нового лет десять назад, а теперь нам бы и старое подошло бы, но, как говорится, проехали. Помниться, прошлый альбом тоже не очень всем понравился. Многие считали его излишне мрачным, каким-то «прогрессивным» и непохожим на основное творчество финнов. Всё верно. Оставим за скобками то, что мне “Stratovarius” понравился, но и отметим, что действительно тот альбом выбивался из дискографии группы. Но если он и был «прогрессивным», то только местами, да и прогрессивным он был несложным ‘progressive’ от EVERGREY. Мегамелодичным, но не быстрым и всё ещё содержал в себе неоклассику. Теперь STRATOVARIUS вернулись к неоклассике, но за основу взяли не «поливальные» быстрые хиты “Episode” или “Visions”, а неопрогрессивную ветвь от ROYAL HUNT или ARTENSION. Теперь мы имеем множество медленных композиций. Не баллад, а медленных композиций. Мы имеем несколько иной подход к сочинению материала. Попросту группа выбрала техничное и сложное, а не простое и «хитовое». Не могу себе представить, что какую-либо вещь с “Polaris” люди будут исполнять хором в текущем туре. Вообще, думаю, что много песен отсюда STRATOVARIUS позже играть не станут. Это не значит, что альбом плохой, просто он никому не нужен под именем STRATOVARIUS. Завершает альбом «Сюита Эмансипации»: длинная, медленная и достаточно пустая, она символизирует новый альбом знаменитой группы.</P>
+<P>Часто существует такой приём в фильмах, в книгах, в жизни. Герой возвращается через некоторое время в родные места и видит, что всё уже совсем не так. На смену пасторальным картинам детства пришли картины разрушения, безнадёжности, унижения. Вот и со STRATOVARIUS так. Вы можете, восхищаться современными композициями группы, но старого доброго Timo Tolkki вы уже здесь не услышите, и выяснится, что, несмотря на всё своё однообразие, он был вам очень дорог.</P>
+Автор: Vit Belov
+
+### 29.05.2009 news STRATOVARIUS дебютировали в Финляндии и Германии
+
+<P>Новый альбом <STRONG>STRATOVARIUS "Polaris"</STRONG> дебютировал в Финляндии на втором месте. Попал он также в чарты и в Германии, здесь он выступил гораздо скромнее - 55-ое место.</P>
+Автор: Vit Belov
+
+### 04.06.2009 news STRATOVARIUS провалились в США
+
+<P>Новый альбом<STRONG> STRATOVARIUS "Polaris"</STRONG> продался в первую неделю в США тиражом около 800 экземпляров.</P>
+Автор: Vit Belov
+
+### 27.08.2009 news &#39;Return to Dreamspace&#39; выйдет осенью
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё один проект бывшего гитариста <STRONG>STRATOVARIUS Timo Tolkki 'Return To Dreamspace'</STRONG> подготовил новый альбом, который выйдет осенью на <STRONG>Scarlet Records</STRONG>. В новой группе собраны музыканты, записавшие альбом бывшей группы музыканта 1994 года, сам <STRONG>Timo</STRONG> исполнит партии вокала.</FONT></P>
+Автор: Vit Belov
+
+### 09.10.2009 news Timo Tolkki отменил название
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Неукротимый <STRONG>Timo Tolkki</STRONG> продолжает делиться своими планами. Мы уже знаем об альбоме "<STRONG>Return To Dreamspace</STRONG>", который должен выйти на <STRONG>Scarlet Records</STRONG>. Гитарист перенёс его релиз на следующий год, а планирующееся ранее название <STRONG>PROJECT STRATO</STRONG> было отменено, из-за правовых разногласий.</FONT></P>
+Автор: Vit Belov
+
+### 18.03.2010 news DEVIL&#39;s TRAIN - новый &#39;all-star project&#39;
+
+<P>Лидер и продюсер&nbsp;<STRONG>MYSTIC PROPHECY R.D. Liapakis</STRONG>&nbsp;организовал новый проект <STRONG>DEVIL'S TRAIN</STRONG>. В нём музыкант вместе с гитаристом&nbsp;<STRONG> Lakis Ragazas</STRONG> будет играть 'old school hard-rock/heavy-metal'. Во время совместного тура со <STRONG>STRATOVARIUS&nbsp;Liapakis</STRONG> поделился этой идеей с барабанщиком финнов немцем<STRONG> Jorg Michael</STRONG>, который попросил включить его в этот проект. Пока не названный альбом должен выйти осенью.</P>
+Автор: Vit Belov
+
+### 22.10.2010 news Тринадцатый альбом STRATOVARIUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17446.jpg" width=400 height=400>Группа&nbsp;<STRONG>STRATOVARIUS</STRONG>&nbsp;наносит последние штрихи к своему новому, тринадцатому по счёту, студийному альбому.&nbsp;Диск был записан в финской студии&nbsp;<STRONG>5-by-5</STRONG>&nbsp;и получил название&nbsp;<STRONG>"Elysium"</STRONG>. 12&nbsp;января 2011&nbsp;года, альбом будет выпущен на&nbsp;<B itxtvisited="1">JVC</B> (для стран Азии),&nbsp;и&nbsp;14&nbsp;января&nbsp;(для всего остального мира) на лейбле&nbsp;<B itxtvisited="1">earMUSIC</B>/<B itxtvisited="1">Edel</B>.&nbsp;Обложку для <STRONG>"Elysium"</STRONG> создал&nbsp;<STRONG>Gyula Havancsak</STRONG> .</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Примерный трек-лист альбома:</FONT></P>
+<P>01. <B itxtvisited="1">Heavenly Divine</B><BR itxtvisited="1">02. <B itxtvisited="1">Infernal Maze</B> <BR itxtvisited="1">03. <B itxtvisited="1">Elysium, Part I, II and III</B> <BR itxtvisited="1">04. <B itxtvisited="1">Civilization</B> <BR itxtvisited="1">05. <B itxtvisited="1">Darkest Hours</B> <BR itxtvisited="1">06. <B itxtvisited="1">Under Flaming Skies</B><BR itxtvisited="1">07. <B itxtvisited="1">No Return</B> <BR itxtvisited="1">08. <B itxtvisited="1">New Horizon</B> <BR itxtvisited="1">09. <B itxtvisited="1">Move The Mountain</B> <BR itxtvisited="1">10. <B itxtvisited="1">Castaway</B> (Japanese bonus track)</P>
+Автор: Headcrusher
+
+### 09.11.2010 news Timo Tolkki будет работать с Andre Matos
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=363 alt="" hspace=0 src="/images/news_rus/2010.11/17575.jpg" width=250 align=right border=5>Бывший гитарист <STRONG>STRATOVARIUS</STRONG> и <STRONG>REVOLUTION RENAISSANCE Timo Tolkki</STRONG> объявил о создании нового проекта <STRONG>SYMFONIA. </STRONG>Группа войдёт в студию <STRONG>Studiomega </STRONG>в Швеции для записи дебютного альбома, который должен выйти весной будущего года. Помогать одиозному гитаристу будут бывший вокалист <STRONG>ANGRA Andre Matos</STRONG>, бывший коллега <STRONG>Timo</STRONG> по <STRONG>STRATOVARIUS</STRONG> басист <STRONG>Jari Kainulainen, </STRONG>бывший клавишник <STRONG>SONATA ARCTICA</STRONG> <STRONG>Mikko Harkin </STRONG>и бывший барабанщик <STRONG>HELLOWEEN Uli Kusch</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Интересно, что творческая судьба <STRONG>Andre Matos</STRONG> и <STRONG>Timo Tolkki</STRONG> схожа. Они оба постоянно создают собственные группы, а потом, не находя отклика у публики, их сами и разрушают. Например, <STRONG>Andre Matos</STRONG> умудрился уйти из собственной группы <STRONG>SHAMAN</STRONG>, а <STRONG>Timo Tolkki</STRONG> таже загадочно покинул собственную группу <STRONG>STRATOVARIUS</STRONG>. Любопытно, что получится с<STRONG> SYMFONIA</STRONG>? Уйдут оба, не дописав альбом?</FONT></P>
+Автор: Vit Belov
+
+### 20.11.2010 news У Jorg Michael рак
+
+<P><IMG border=5 hspace=0 alt="" align=right src="/images/news_rus/2010.11/17636.jpg" width=200 height=355>Клавишник <STRONG>STRATOVARIUS Jens Johansson</STRONG> сообщил страшную новость. У барабанщика коллектива <STRONG>Jorg Michael</STRONG> обнаружен рак щитовидной железы. Музыканту предписана операция и курс радиологических процедур.</P>
+<P>По требованию самого барабанщика, <STRONG>STRATOVARIUS</STRONG> не стали отменять свой совместный с <STRONG>HELLOWEEN</STRONG> тур и отправляются в него с временной заменой <STRONG>Alex Landenburg</STRONG> (<B>AT VANCE</B>, <B>ANNIHILATOR</B>, <B>MEKONG DELTA)</B>.&nbsp;</P>
+Автор: Vit Belov
+
+### 27.12.2010 news Jorg Michael поправляется
+
+<P><IMG height=338 alt="" hspace=0 src="/images/news_rus/2010.12/17952.jpg" width=200 align=right border=0>Барабанщик <STRONG>STRATOVARIUS Jorg Michael</STRONG>, у которого некоторое время назад был диагностирован рак щитовидной железы, сообщил о том, что его лечение проходит по плану. Операция по удалению опухоли прошла шесть недель назад. Музыкант уже прошёл первый курс терапии и с оптимизмом смотрит в будущее. Лечение будет продолжаться ещё четыре месяца. К счастью, рак был обнаружен на ранней стадии.</P>
+<P>Тем временем <STRONG>STRATOVARIUS</STRONG> закончили первую часть тура с <STRONG>HELLOWEEN</STRONG>. Место барабанщика финнов веременно занял <STRONG>Alex</STRONG> <B>Landenburg</B> (<B>AT VANCE</B>, <B>ANNIHILATOR</B>, <B>MEKONG DELTA)</B>.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 22.01.2011 news STRATOVARIUS возглавили чарты
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.01/18262.jpg" width=200 align=right border=0>STRATOVARIUS</STRONG> возглавили чарты в Финляндии со своим новым альбомом <STRONG>"Elysium"</STRONG>, который вышел 14 января на<STRONG> Edel</STRONG>. </P>
+<P>Новая пластинка финнов вышла на этой неделе и в России на <STRONG>Союзе</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.01.2011 reviews STRATOVARIUS остаются в профессии
+
+<P>Финны STRATOVARIUS выпустили свой второй альбом после разрыва с гитаристом Timo Tolkki. “Elysium” доказывает, что группа оправилась от этой потери и продолжает своё существование как полноценный коллектив. Просто одного гитариста-композитора заменили другим.</P>
+<P>Главной неожиданностью “Elysium” стало большое количество песен, сочинённых новым гитаристом Matias Kupiainen. Замена Timo Tolkki сочинил пять трэков из девяти, а старожилы STRATOVARIUS предложили лишь четыре композиции на четверых. При этом Kupiainen представил основополагающий материал для этого альбома – это и хит-сингл “Darkest Hours”, и лучшая, на мой взгляд, “Infernal Maze”, а, главное, 18-минутный эпик “Elysium”, завершающий альбом. Естественно новую пластинку STRATOVARIUS все будут сравнивать с предшественницей “Polaris”, ведь сравниться с классикой финнов не могли даже последние альбомы с Timo Tolkki. Сравним и мы. Пожалуй, “Elysium” производит более приятное впечатление. Как и прошлая работа, этот альбом состоит из двух частей. В первой собраны несколько зажигательных хитов, вторая же часть представляет собой набор среднетемповых псевдопрогрессивных композиций. Как раз в первой части “Elysium” смотрится предпочтительней “Polaris”. Уже упомянутая “Infernal Maze” и “The Game Never Ends” близки по своему качеству к лучшим вещам STRATOVARIUS. Вторая эпичная часть альбома по-прежнему вызывает нарекания. Невозможно себе представить комплексные и длительные композиции со звучанием STRATOVARIUS. Вероятно Matias Kupiainen увлекается творчеством DREAM THEATER. Более того, возможно, он может сочинять эпики, но STRATOVARIUS это не нужно.</P>
+<P>Timo Tolkki продолжает мучиться. После третьего альбома прекратил своё существование его проект REVOLUTION RENAISSANCE, теперь гитарист работает с Andre Matos над дебютом SYMFONIA. А STRATOVARIUS продолжают выдерживать периодичность выпуска альбомов, ездят в туры. Творчество бывших коллег Timo точно выглядит более профессиональным.</P>
+Автор: Vit Belov
+
+### 26.04.2011 news Timo Tolkki вспомнил старых друзей
+
+<P>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> напомнил публике о своём новом проекте, группе, в составе которой музыканты, записавшие альбом <STRONG>STRATOVARIUS "Dreamspace"</STRONG> в 1994 году. Оригинальный состав знаменитой финской группы: <STRONG>Timo Tolkki</STRONG>, барабанщик <STRONG>Tuomo Lassila</STRONG>, клавишник&nbsp;<B>Anti Ikonen</B>&nbsp;и басист&nbsp;<STRONG>Jari Kainulainen, </STRONG>выпустят альбом в январе 2012 года, в 30-летний юбилей <STRONG>STRATOVARIUS</STRONG>.</P>
+<P>Вот название некоторых песен: <STRONG>"Return To Dreamspace"</STRONG>, <B>"Digital Jesus"</B>, <B>"Santiago"</B>, <B>"Chevaliers De Sangreal"</B>, <B>"Full Circle"</B>&nbsp;и <B>"Farewell No. 2"</B>.</P>
+<P><center><IMG height=225 src="/images/news_rus/2011.04/19309.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 15.09.2011 news Jorg Michael покидает STRATOVARUS
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/21119.jpg" width=300 height=389>Барабанщик <STRONG>J&#246;rg Michael</STRONG> <EM>(на фото)</EM> объявил о своём решении покинуть <STRONG>STRATOVARUS</STRONG> по причинам личного характера. <STRONG>J&#246;rg</STRONG>, пробывший участником <STRONG>STRATOVARUS</STRONG> на протяжении 16 лет, отыграет сгруппой&nbsp;все оставшиеся концерты текущего тура, который продлится до конца января, а так же, примет участие в специальном&nbsp;туре по Финляндии, получившим название&nbsp;<STRONG>“Farewell J&#246;rg”</STRONG>, который пройдёт с 18 по 26 ноября.</P>
+<P><STRONG>J&#246;rg</STRONG> присоеденился к <STRONG>STRATOVARIUS</STRONG> в 1995 году&nbsp;и дебютировал на альбоме <STRONG>“Episode”</STRONG> (1996). Он записал в составе <STRONG>STRATOVARUS</STRONG> 9 студийных&nbsp;альомов и отыграл около 1000&nbsp;концертов&nbsp;вместе с группой.</P>
+<P>Ситуацию комментирует вокалист <STRONG>STRATOVARIUS</STRONG> Тимо Котипелто (<STRONG>Timo Kotipelto</STRONG>):<EM> “Оставшиеся участники группы приняли решение Йорга с большим огорчением и пожелали ему всего наилучшего в будущем. Но мы можем гарантировать, что группа продолжит своё существование".</EM></P>
+<P>Однако, пути <STRONG>STRATOVARIUS</STRONG> и Йорга не расходятся окончательно, т.к. группа будет продолжать работать с концертным агенством Йорга<STRONG> "Twisted Talent Concerts"</STRONG>.</P>
+Автор: Headcrusher
+
+### 21.11.2011 news STRATOVARIUS сняли DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>STRATOVARIUS</STRONG> сняли для будущего DVD концерт в Тампере, прошедший 19 ноября. Шоу стало частью тура-прощания с барабанщиком <STRONG>Jorg Michael</STRONG>, который покидает коллектив после 16 лет участия. Сэт-лист выступления:</FONT></P>
+<P>01. <B>Under Flaming Skies</B><BR>02. <B>I Walk To My Own Song</B><BR>03. <B>Speed Of Light</B><BR>04. <B>The Kiss Of Judas</B><BR>05. <B>Deep Unknown</B><BR>06. <B>Eagleheart</B><BR>07. <B>Paradise</B><BR>08. <B>Visions (Southern Cross)</B><BR>09. <B>Coming Home</B><BR>10. <B>Legions</B><BR>11. <B>Darkest Hours</B><BR>Encore:<BR>12. <B>Burn</B> (DEEP PURPLE cover)<BR>13. <B>Behind Blue Eyes</B> (THE WHO cover)<BR>14. <B>I Don't Believe In Love</B> (QUEENSR&#376;CHE cover)<BR>15. <B>Winter Skies</B><BR>16. <B>Black Diamond</B><BR>Encore 2:<BR>17. <B>Father Time</B><BR>18. <B>Hunting High And Low</B></P>
+<P><center><IMG height=300 src="/images/news_rus/2011.11/22087.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 03.12.2011 news Исповедь старого металиста
+
+<P><IMG height=468 alt="" hspace=0 src="/images/news_rus/2011.12/22247.jpg" width=350 align=right border=0>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> рассказал о своей нелёгкой судьбе в своём дневнике на страничке <STRONG>Facebook</STRONG>. Последней на сегодня записью музыканта стал альбом группы <STRONG>SYMFONIA</STRONG> с вокалистом <STRONG>Andre Matos</STRONG> у микрофона. Видимо, <STRONG>Timo Tolkki</STRONG> и положение на современной сцене вещи несовместимые.</P>
+<P>"<EM>Я не знаю, какому количеству людей интересно то, что я здесь пишу, но меня, если честно, это не очень волнует. Мне просто хочется записать некоторые мысли о SYMFONIA и других вещах, происходящих в моей жизни. Всё началось с двух фэнов, которые подошли ко мне пожать руку после последнего концерта тура по Южной Америке. После трёх ночей в мотеле с грязно-серыми бетонными стенами, похожем на тюрьму, в Сантьяго и после 28-часового перелёта для выступления перед 100-350 фэнами я подумал, что то, что они сказали может быть правдой. А сказали они: "Хей, Тимо, разве ты не видишь, что всё кончено?</EM>"</P>
+<P>Вот, что<STRONG> Timo</STRONG> рассказал про деятельность группы<STRONG> SYMFONIA</STRONG>:</P>
+<P>"<EM>Andre Matos достаточно ясно мне сказал, что мы не будем выступать с концертами, если это не будет приносить денег. В общем-то, я согласился, но в то же время я знал людей, которые рассматривали нас как новую группу, а не как суперпроект. Барабанщик Uli Kusch покинул группу в середине записи вокала. Он прислал мне сообщение, в котором написал, что больше не будет давать концертов в своей жизни, так как устал от зассанных гримёрок и утомительных путешествий. Я попытался объяснить ему, что это не то, о чём мы договаривались, но он ответил, что SYMFONIA могут использовать его имя на втором альбоме за 10000 Евро, вернее, за 13000 Евро, включая налог. Я даже не стал отвечать на это, потому что не смог поверить свои глазам, когда прочёл сообщение</EM>".</P>
+<P>"<EM>Andre Matos&nbsp;нашёл инвестора в Южной Америке, и мы отправились в тур", -</EM> продолжает <STRONG>Timo</STRONG><EM>. "Не хочу больше слышать слова&nbsp;"инвестор". Мы летели 30 часов по маршруту Хельсинки-Франкфурт-Рим-Сан-Паоло лишь для того, чтобы услышать, что тур отменён. Я уже собирался лететь домой, но нас оставили, организовав&nbsp;на скорую руку шесть концертов. Это был самый тяжёлый и самый ужасный тур в моей карьере. Клавишник Mikko Harkin&nbsp;заработал пневмонию. Когда я лежал два дня в темноте в отеле Формула-1, самый дешёвый отель в тех краях, я начал задумываться о своём будущем как музыканта</EM>".</P>
+<P>"<EM>Когда я увидел цифры продаж, присланные мне Edel&nbsp;и получил сообщение от нашего концертного агента, касаемо выступлений на фестивалях в 2012 году, я понял что пора завязывать. Глупо пытаться завоевать метал-сцену, когда нет достаточной отдачи. Не поймите меня превратно, можно работать и без должной отдачи, но я оборачиваюсь на свою карьеру - 3000 концертов, 20 лет, 20 альбомов - я сделал достаточно</EM>".</P>
+<P>"<EM>Думаю, многие из вас знают, что я страдаю биполярным расстройством. Это одно из самых скверных психических заболеваний, которое невозможно вылечить. Рецепт лишь один, жизнь без стресса, а туры нельзя отнести&nbsp;к подобному образу жизни. Что сказать о будущем? Возможно, я больше не вернусь в студию</EM>", - заканчивает музыкант.&nbsp;</P>
+<P>Видимо, "<STRONG>Return To Dreamspace</STRONG>" мы так и не услышим?</P>
+Автор: Vit Belov
+
+### 22.05.2012 news Timo Tolkki решил собрать денег
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=572 alt="" hspace=0 src="/images/news_rus/2012.05/24001.jpg" width=337 align=right border=0>Финский гитарист <STRONG>Timo Tolkki</STRONG> решил обратиться к фанатам через сайт <STRONG>PledgeMusic.Com</STRONG> для сбора средств на запись нового сольного альбома <STRONG>"Classical Variations 2: Credo"</STRONG>. Альбом должен выйти 29 октября, и в его&nbsp;записи примут участие <STRONG>Michael Kiske</STRONG> (ex-<UNISONIC< b><B>HELLOWEEN</B>), <B>Jens Johansson</B> (<B>STRATOVARIUS</B>), <B>Derek Sherinian</B> (<B>BLACK COUNTRY COMMUNION</B>, <B>DREAM THEATER</B>), <B>Tuomo Lassila</B> (основатель <B>STRATOVARIUS</B>), <B>Michael Vescera</B> (<B>OBSESSSION</B>, <B>LOUDNESS</B>, <B>YNGWIE MALMSTEEN</B>), <B>Michele Luppi</B> (<B>THAUROROD</B>, ex-<B>VISION DIVINE</B>). Также состоится долгожанный релиз альбома <STRONG>"Dreaming In Twilight" </STRONG>с перезаписанными 12 треками с первых трх альбомов <STRONG>STRATOVARIUS</STRONG>:</FONT></P>
+<P>* <B>Future Shock</B><BR>* <B>Witch Hunt</B><BR>* <B>Night Screamer</B><BR>* <B>The Hands Of Time</B><BR>* <B>The Hills Have Eyes</B><BR>* <B>Out Of The Shadows</B><BR>* <B>4th Reich</B><BR>* <B>Abyss</B><BR>* <B>Dreamspace</B><BR>* <B>Eyes Of The World</B><BR>* <B>Wings Of Tomorrow</B><BR>* <B>Hold On To Your Dream</B></P>
+Автор: Vit Belov
+
+### 07.06.2012 news STRATOVARIUS выпустят DVD
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.06/24133.jpg" width=475 height=475>29 июня на <STRONG>earMusic</STRONG> выйдет новый DVD/Blu-Ray<STRONG> STRATOVARIUS</STRONG> <STRONG>"Under Flaming Winter Skies - Live In Tampere". </STRONG>На диск попал концерт в Тампере 19 ноября, на котором коллектив прощался со своим барабанщиком <STRONG>Jorg Michael</STRONG>, для которого это выступление стало последним в составе <STRONG>STRATOVARIUS</STRONG>. Трек-лист:</P>
+<P>DVD / Blu-ray track listing: <BR itxtNodeId="64">01. <B itxtHarvested="0" itxtNodeId="62">Intro</B> <BR itxtNodeId="61">02. <B itxtHarvested="0" itxtNodeId="60">Under Flaming Skies</B> <BR itxtNodeId="59">03. <B itxtHarvested="0" itxtNodeId="58">I Walk To My Own Song</B> <BR itxtNodeId="57">04. <B itxtHarvested="0" itxtNodeId="56">Speed Of Light</B> <BR itxtNodeId="55">05. <B itxtHarvested="0" itxtNodeId="54">Kiss Of Judas</B> <BR itxtNodeId="53">06. <B itxtHarvested="0" itxtNodeId="52">Deep Unknown</B> <BR itxtNodeId="51">07. <B itxtHarvested="0" itxtNodeId="50">Guitar Solo</B> <BR itxtNodeId="49">08. <B itxtHarvested="0" itxtNodeId="48">Eagleheart</B> <BR itxtNodeId="47">09. <B itxtHarvested="0" itxtNodeId="46">Paradise</B> <BR itxtNodeId="45">10. <B itxtHarvested="0" itxtNodeId="44">Visions</B> <BR itxtNodeId="43">11. <B itxtHarvested="0" itxtNodeId="42">Bass Solo</B> <BR itxtNodeId="41">12. <B itxtHarvested="0" itxtNodeId="40">Coming Home</B> <BR itxtNodeId="39">13. <B itxtHarvested="0" itxtNodeId="38">Legions Of The Twillight</B> <BR itxtNodeId="37">14. <B itxtHarvested="0" itxtNodeId="36">Darkest Hours</B> <BR itxtNodeId="35">15. <B itxtHarvested="0" itxtNodeId="34">Jorg Speech</B> <BR itxtNodeId="33">16. <B itxtHarvested="0" itxtNodeId="32">Burn</B> <BR itxtNodeId="31">17. <B itxtHarvested="0" itxtNodeId="30">Behind Blue Eyes</B> <BR itxtNodeId="29">18. <B itxtHarvested="0" itxtNodeId="28">Winter Skies</B> <BR itxtNodeId="27">19. <B itxtHarvested="0" itxtNodeId="26">Keyboard Solo</B> <BR itxtNodeId="25">20. <B itxtHarvested="0" itxtNodeId="24">Black Diamond</B> <BR itxtNodeId="23">21. <B itxtHarvested="0" itxtNodeId="22">Father Time</B> <BR itxtNodeId="21">22. <B itxtHarvested="0" itxtNodeId="20">Hunting High And Low</B> <BR itxtNodeId="19"><BR itxtNodeId="18">Bonus: <BR itxtNodeId="17">* Documentary: Rewinding from the past to 2012 <BR itxtNodeId="15">* 5.1 mix of <B itxtHarvested="0" itxtNodeId="14">"Elysium"</B> (taken from the album "Elysium") — only on Blu-ray</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/7Boy9YhXB_8?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 24.11.2012 news Новый альбом STRATOVARIUS
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.11/25070.jpg" width=475 height=419>22 февраля назначено датой релиза для нового альбома <STRONG>STRATOVARIUS</STRONG> <STRONG>"Nemesis". </STRONG>Продюсированием альбома занимался гитарист коллектива <STRONG>Matias Kupiainen. </STRONG>Мастеринг сделал <STRONG>Mika Jussila. </STRONG></P>
+<P><FONT color=#ffffff>Предварять альбом будет миньон <STRONG>"Unbreakable". </STRONG>Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="33">Unbreakable</B> (taken from the brand new studio album "Nemesis")<BR itxtNodeId="32">02. <B itxtHarvested="0" itxtNodeId="31">Falling Star</B> (taken from "Polaris")<BR itxtNodeId="30">03. <B itxtHarvested="0" itxtNodeId="29">The Game Never Ends</B> (taken from "Elysium")<BR itxtNodeId="28">04. <B itxtHarvested="0" itxtNodeId="27">Freedom</B> (taken from "Infinite")<BR itxtNodeId="26">05. <B itxtHarvested="0" itxtNodeId="25">Why Are We Here</B> (taken from "Intermission")</P>
+Автор: Vit Belov
+
+### 15.03.2013 reviews Третий камень в огород Timo Tolkki
+
+<P>Финские легенды неоклассического power-metal STRATOVARIUS продолжили свою профессиональную карьеру четырнадцатым полноформатным альбомом “Nemesis”. Эта пластинка стала уже третьей без основного гитариста и композитора группы Timo Tolkki, и оставшиеся музыканты доказывают, что могут и без него.</P>
+<P>Нынешнему составу STRATOVARIUS, в котором только два относительно старых участника – вокалист Timo Kotipelto и клавишник Jens Johanssen, удаётся воспроизводить фирменный саунд группы, который давно уже стал её визитной карточкой. Подчёркнуто неживые инструменты, чёткий ритм и мощный вокал с приятными мелодиями, STRATOVARIUS продолжают радовать своих верных поклонников. Более того, коллективу удалось избавиться от главного недостатка классического STRATOVARIUS, однотипности композиций, которая была вызвана непререкаемым главенством в группе Timo Tolkki, когда даже песни авторства его коллег выходили очень похожими на его собственные. Теперь мы имеем разнообразный по своей направленности материал, что повлияло на общую скорость альбома, но добавило ему качества. Быстрые вещи практически постоянно сменяются медленными композициями, а несколько треков вполне достойны того, чтобы называться хитами. </P>
+<P>STRATOVARIUS взрослеют. Безусловно, “Nemesis” не содержит того тупого неоклассического забоя, который привлекал к коллективу основное внимание в середине 90-х. Прошло уже почти 20 лет, задор у дяденек уже не тот, но альбом можно смело именовать хорошим, ведь на нём есть некоторое количество запоминающихся мелодий, а Timo Kotipelto, по-прежнему, в прекрасной вокальной форме. Этого достаточно.</P>
+Автор: Vit Belov
+
+### 23.10.2015 news STRATOVARIUS и THE WINERY DOGS вышли на лицензии
+
+<P>Новый альбом<STRONG> STRATOVARIUS "Eternal"</STRONG> увидел свет на этой неделе на лэйбле<STRONG> Союз</STRONG>. Диск доступен по цене 322 рубля здесь: <A href="http://escapemind.ru/goods/STRATOVARIUS-quot-Eternal-quot">http://escapemind.ru/goods/STRATOVARIUS-quot-Eternal-quot</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/9qoGx8x4ltw" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>All-Star Project <STRONG>THE WINERY DOGS</STRONG> также вышел на Союзе на этой неделе. В группе участвуют <STRONG>Richie Kotzen (ex-MR. BIG), Mike Portnoy (ex-DREAM THEATER)</STRONG> и <STRONG>Bill Sheehan (MR. BIG)</STRONG>: <A href="http://escapemind.ru/goods/THE-WINERY-DOGS-quot-Hot-Steak-quot">http://escapemind.ru/goods/THE-WINERY-DOGS-quot-Hot-Steak-quot</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/66aK_9h8Nhw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER></CENTER>
+Автор: Vit Belov
+
+### 03.11.2016 articles STRATOVARIUS в Москве: &quot;Котипелто просто не распелся?&quot;
+
+<p><em></em><center><img width="600" height="400" src="/images/articles_rus/2016.11/30136.jpg" border="0">&nbsp;</p><p><em>Финны STRATOVARIUS продолжают оставаться одной из любимых power metal групп 90-х в нашей стране. 29 октября на входе в московский клуб “Volta” нас встречала очередь, а это явный признак успеха концерта. Пускай, в составе группы теперь всего два участника, которых можно считать имеющими отношение к успеху коллектива, это не помешало публике собраться на это шоу.</em></p><p>Открывали концерт АРКТИДА. Уже второй раз я не успеваю посетить их выступление, первый раз был на разогреве POWERWOLF в прошлом году. В прошедшую субботу я захватил только последний трек, по которому можно отметить, что и играют и держатся на сцене музыканты довольно прилично. В их активе несколько студийных альбомов для Metalism Records, продаётся АРКТИДА хорошо, а выступления с зарубежными звёздами поднимают статус группы. Интересно, что некоторые посетители концерта сообщили мне, что москвичи недобрым словом поминали геев. Что ж, с этой историей мы разберёмся в следующий раз, когда всё-таки попадём на их полноценное выступление.</p><p>В общем-то, не ради АРКТИДЫ в этот промозглый вечер стояли люди в очереди. Шоу STRATOVARIUS носило завлекательное название «Best Of”, а распространённый в сети сэт-лист из Санкт-Петербурга грел душу. Множество песен, записанных ещё в прошлом веке, Kotipelto уже на концерте сообщил, что финны празднуют 20-летний юбилей эпохального «Episode”, и поэтому играют множество хитов с этого альбома. Он не соврал, были исполнены все нетленки. Оставим в стороне вопрос об аутентичности исполнения треков, в записи которых принимали участие лишь сам Timo Kotipelto и клавишник Jens Johansson. Были в этот вечер проблемы посерьёзнее и рассуждать о покинувшем коллектив почти 10 лет назад гитаристе Timo Tolkki уже даже и не интересно. Певцу Kotipelto ещё нет и пятидесяти лет, но, судя по выступлению в Москве, он уже выдохся. Его вокал, один из любимейших мною в power metal, всегда отличался безукоризненной техникой и безошибочностью попадания в материал. В этот раз он не только не вытягивал высокие ноты на проверенных боевиках, но и зачастую просто пел не ту песню, которая звучала. Например, некоторые треки обрели новые мелодические черты, что нельзя отнести к плюсам выступления и исполнения. Молодые участники STRATOVARIUS отработали хорошо, а вот Jens Johansson , который выставил клавишные на старый манер с наклоном, чтобы все видели, что он играет партии самостоятельно, не очень. Все и увидели, что старый материал он совсем не помнит и пользуется программами. Справедливости ради отмечу, что новый материал он играет хорошо. Апофеозом для меня стало исполнение любимой песни моего детства «Will The Sun Rise”, на которой мне просто стало нехорошо.</p><p>А ведь есть группы, которые умудряются существовать до преклонных лет и не ударять в грязь лицом. Timo Kotipelto быстро потерял голос, что не может вызывать ничего кроме печали и жалости. На выходе из зала один преданный фэн убеждал меня, что он просто не распелся. Будем надеяться, что вокалист просто не уважает своих московских поклонников, это хотя бы не будет потерей для power metal сцены.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Какие есть группы наподобие Stratovarius???

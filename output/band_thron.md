@@ -41,6 +41,121 @@ Coffin - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Ну наконец-то и у нас появилась (кроме Nokturnal Mortum, которые вообще-то украинцы) команда исполняющая black-metal на высоком уровне и способная наделать много шума даже на европейском рынке( при соответствующей поддержке) . Хотя я этого не ожидал. Познакомившись с записями группы ещё в 1996 году (демо "Throne Will Be Ours" и "Here Lies Paganism"), я пришёл к выводу, что эта группа хороша, но вряд ли чего добьётся, особенно если учитывать качество с которым эти демо-записи были сделаны. Группа играла black-metal с неплохими мелодиями и подвальным звуком в духе Dark Throne. Но, прослушав рецензируемый альбом, я круто изменил своё мнение об этой группе. Арендовав хорошую студию (Zelenograd Studio), подольше посидев за записью, музыканты наконец-то добились отличного качества материала прикотором различимы партии всех, без исключения, инструментов. Музыка группы приобрела неожиданные мелодические оттенки свойственные творчеству групп Emperor и Enslaved. Очень интересные музыкальные находки, использование женского вокала, скрипичных инструментов выгодно отличает этот альбом среди многих других записей не только нашего происхождения. Во всяком случае, лично мне этот альбом понравился больше чем последний релиз тех же Emperor.</p>
+
+Автор: Dimas
+
+### 16.11.1999 news 
+
+<p>В Москве нам предстоит два супер шоу. На первом 18 ноября в ДК им. Горбунова на МеталAgen Фесте выступят Marduk, Enthroned, Angel Corpse, а также одна литовская команда и россияне Thron и Neotruth. А 4 и 5 декабря нас ждёт встреча "королями металла" Manowar всё в той же Горбушке.</p>
+
+Автор: Vit Belov
+
+### 07.01.2001 news Группе T.H.R.O.N  весной будет 5 лет их деятельности в Москве!
+
+<p>Группе T.H.R.O.N весной будет 5 лет их деятельности в Москве! - вышёл в свет очередной их альбом "SUBJECT TO DAMAGE" с killer- коверами DEPECHE MODE и NAPALM DEATH! По убойности и качеству не уступает западным группам, вышел альбом на MUSICKNESS/RUSSIA. Он представляет собой убойнейший гиперскоростной замес grind-death'n'roll. Что-то подобного в Совке ещде не было. Также планируется переиздание с бонусами (от 2000года) на европейском лэйбле. Альбом записан на их собственной студии NAVAHOHUT STUDIO...</p>
+
+Автор: Dimas
+
+### 08.01.2001 news Cледующий сумаcшедший death&#39;n&#39;roll&#39;ный альбом от Thron
+
+<p>Готов к записи новейший, следующий сумасшедший death'n'roll'ный альбом от Thron! Где-то на час музыки. Замес death & roll, death-mosh-thrash c фанк- прибамбасами. Реально это можно увидеть пока только на живых концертах. В группе - новый басист - с отличной фанк-слэп техникой игры - всё это на будущей записи ( уже записаны 5-6 песен в виде мини-альбома "MAYBE" и доступны для демонстрации и издания желающими...). Альбом сейчас взят на издание пока только украинским лэйблом.</p>
+
+Автор: Dimas
+
+### 08.01.2001 news Новости от BLACKSMITH PRODUCTIONS
+
+<p>НА BLACKSMITH PRODUCTIONS ( www.blacksmith.boom.ru) вышли - проект вокалиста Thron - horror/comic/gore-grind-death band MANGLER (MORTICIAN(USA) ОТДЫХАЕТ!!!) И сплит-кассета T.H.R.O.N.-2000"SOPHISM"/GRENOUER2000"IN-SECT" - пара бомбовозов! Смертельно! Только для сумасшедших...</p>
+<p> На Украине выходит параллельно украинское издание MANGLER со своей обложкой....</p>
+
+Автор: Dimas
+
+### 18.01.2001 reviews Резкая смена стиля
+
+<p>Резкая смена стиля. Невероятно и неожиданно. После злейшего техничного black-metal эти зеленоградские ребята заиграли убойнейший, а местами, просто гиперскоростной grind-death'n'roll. Иногда смахивает на смесь Napalm Death и Unleashed. На альбоме присутствуют отлично сделанные кавер-версии Depeche Mode (World In My Eyes) и Napalm Death (Twist The Knife). В России подобное, пожалуй, сейчас никто не играет. Альбом состоит из двух частей. Первая -гиперскоростная, сметающая слушателя наповал. Во второй части страсти укладываются, и это уже больше похоже на прииндустриализированный death-metal. Я, правда, так и не понял, что это: полнометражка или мини-альбом...Неплохо, особенно понравится любителям безбашенного реального death-metal.</p>
+
+Автор: Dimas
+
+### 30.04.2001 news MetalAgen Fest - 2001
+
+<p> 16 мая 2001 года в клубе Точка состоится суперпрезентация новых альбомов Metal Agen - METALAGEN FEST - 2001. Участвуют и представляют свои альбомы группы T.H.R.O.N., MORTEM, IZAKARON, GODS TOWER, FORGIVE-ME-NOT, X-FACTOR/MORTIFER. Специальные гости фестиваля - ENS COGITANS, NEOTRUTH, NORDREAM и группа из Белоруссии RASTA.</p>
+<p> На концерте также будет презентация журнала Metal Art.</p>
+<p> Билеты продаются в рок-магазинах, клубе Точка и на станциях Московского метрополитена. Цена билета - 100 рублей. В день концерта - 200 рублей.</p>
+<p></p>
+
+Автор: Dimas
+
+### 06.06.2001 news Концерт Vader в Москве
+
+<p>17 июня в Москве в Р-клубе состоится концерт легендарной польской death-metal группы Vader в рамках тура Reign Forever World Tour. В концерте также участвуют Dementor (Словакия), Mortem и T.H.R.O.N (оба Россия). Также обещаются некие специальные гости. Концерт организован Musickness Russia при подержке ФОНО prod. и при информационной поддержке MUSICA.mustdie.ru Цена билетов 200 рублей в предварительной продаже и 300 рублей в день концерта. Билеты продаются только в рок-магазинах и их количество ограничено.</p>
+
+Автор: Vit Belov
+
+### 08.06.2001 news ATTACK ON THE EAST CAPITALS
+
+<p> <img src=/images/news_rus/2001.06/1465.jpg border=1 align=left width=130 height=300 ></p>
+<p> Chaotica Music Agency представляет "ATTACK ON THE EAST CAPITALS" - это эксклюзивные концерты польской метал-легенды VADER. Вы увидите долгожданное качественное шоу от лидеров европейского death metal при массированной поддержке словацких монстров бласфемического death metal DEMENTOR.</p>
+<p> Первый концерт тура состоится в Минске 16 июня 2001 года в 17:00. Локальная поддержка: GODS TOWER (на концерте также состоится официальная презентация новейшего мини-альбома группы "ABANDON ALL HOPE"), ASGUARD, V.E.L.D. и RASTA. Адрес: клуб РЕАКТОР, Минск, В.Хоружей, 29. Цена билета: 7.000 - в предварительной продаже, 10.000 - в день концерта. Предварительная продажа и заказ билетов с 4 июня: Минск: D-SHOP (Притыцкого, 40), общественные рапространители в подземных переходах; Могилёв: тел. 463-011 (22:00 - 0:00); Речица: PARADISE (Урицкого); Гомель: AUDIOBOX (Первомайская, 23); Брест: тел. 226-594 (22:00 - 0:00); Витебск: МУЗЫКАЛЬНЫЙ КИОСК (Московский пр-т, напротив ВГУ). Приобретайте билеты только у официальных распространителей. Администрация не несёт ответственность за подделки! инфо, заказ билетов: 8 029 6022062, fatalecstasy@tut.by, chaotica@tut.by</p>
+<p> Второй концерт тура состоится в Москве 17 июня 2001 года в 18:00. Локальная поддержка: T.H.R.O.N. и MORTEM. В случае, если состоится дополнительный концерт 18 июня, а такая вероятность существует, то вместе с VADER и DEMENTOR, будут выступать MERLIN и GODS TOWER. Адрес: R-клуб, Москва. Цена билета: 200 - предварительная продажа, 300 - в день концерта. Билеты продаются только в рок-магазинах, количество ограничено с целью не создавать давки и прочих проблем. Инфо, заказ билетов: metalagen@soyuz.ru</p>
+<p> - ВНИМАНИЮ УКРАИНСКИХ РЕЗИДЕНТОВ: концерт в Киеве 15 июня отменён по независящим от нас причинам! Официальные объяснения от местных промотеров (CORE & Озолин) мы надеемся получить в ближайшие дни</p>
+<p> - перед началом каждого концерта пройдут встречи музыкантов VADER, DEMENTOR с публикой</p>
+<p> - на концертах предполагается продажа мерчендайзинга (кассеты, диски, журналы, футболки)</p>
+<p> - если вы ещё сомневаетесь в качестве представляемых групп, то лучшие трэки с новейших альбомов VADER "Reign Forever World" (Metal Blade Recs), DEMENTOR "Enslave The Weak" (Osmose Prods) можно будет услышать: - в ночь с понедельника на вторник, 12 июня, в дебютном выпуске нового радиошоу Александра Литвинского MASSA BRUTTO (1:00, Минская радиостанция CТИЛЬ), - во вторник, 12 июня, в эфире радиошоу ЗАТЕРЯННЫЙ МИР (22:30, Минская радиостанция МИР)</p>
+<p> - свежие интервью с лидерами VADER & DEMENTOR опубликованы на сайтах:</p>
+<p> LEGION ONLINE: http://www.nestor.minsk.by/legion/</p>
+<p> <a href="http://musica.mustdie.ru">MUSICA.MUSTDIE.RU</a>: <a href="http://musica.mustdie.ru">http://musica.mustdie.ru</a></p>
+<p> <a href="http://musica.mustdie.ru/ru/exclusive/1/44834/">Интервью с DEMENTOR</a></p>
+<p> <a href="http://musica.mustdie.ru/ru/exclusive/1/44833/">Интервью с VADER</a></p>
+<p> HELLRAISER: http://www.hellr.kiev.ua/</p>
+<p> - спрашивайте в рок-магазинах лицензионные издания для территории СНГ: VADER "Reign Forever World" CD, издан FONO Recs по лицензии Metal Blade Recs, DEMENTOR "The Art Of Blasphemy" MC, издан FATAL ECSTASY Prods по лицензии Qabalah Prods.</p>
+<p> организатор тура: CHAOTICA M.A. chaotica@tut.by</p>
+<p> российский промотер: METAL AGEN/ MUSICKNESS RUSSIA metalagen@soyuz.ru</p>
+<p> ищи новости о туре на сайтах:</p>
+<p> LEGION ONLINE: http://www.nestor.minsk.by/legion/</p>
+<p> <a href="http://musica.mustdie.ru">MUSICA.MUSTDIE.RU</a>: <a href="http://musica.mustdie.ru">http://musica.mustdie.ru</a></p>
+<p> DEMENTOR: http://www.dementor.nfo.sk/</p>
+<p> HELLRAISER: http://www.hellr.kiev.ua/</p>
+<p> VADER: http://www.vader.pl/</p>
+<p> FONO: http://www.fono.ru/</p>
+<p></p>
+
+Автор: Dimas
+
+### 18.07.2002 news MassaBrutto Radioshow #91, 19 Jul 2002
+
+<p>Playlist (анонс): <BR><BR> 1. CRUELTY - Dead Alive (DeathBell Prods)<BR> 2. EVTHANAZIA - Evthanazia (Funeral Pyre Prods)<BR> 3. SCREAMING FROM THE OBLIVION - Dreamer (band)<BR> 4. POMIDOROFF - Сьвята Пакрадзенае (band)<BR> 5. POMIDOROFF - Пiтная Хата (band)<BR> 6. СЕРДЦЕ - На Неве (band)<BR> 7. УТОПИЯ - Сырое Царство Мертвых (band)<BR> 8. REST IN PAIN - Inverted Heaven (band)<BR> 9. THRON' - In Dominions Of Lewd Spell (MetalAgen Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 18.07.2002 news MassaBrutto Radioshow #91, 19 Jul 2002...
+
+<p>Playlist:<BR><BR> 1. CRUELTY - Dead Alive (DeathBell Prods)<BR> 2. EVTHANAZIA - Evthanazia (Funeral Pyre Prods)<BR> 3. SCREAMING FROM THE OBLIVION - Dreamer (band)<BR> 4. POMIDOROFF - Сьвята Пакрадзенае (band)<BR> 5. POMIDOROFF - Пiтная Хата (band)<BR> 6. СЕРДЦЕ - На Неве (band)<BR> 7. УТОПИЯ - Сырое Царство Мертвых (band)<BR> 8. REST IN PAIN - Inverted Heaven (band)<BR> 9. THRON' - In Dominions Of Lewd Spell (MetalAgen Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.08.2002 news MassaBrutto Radioshow #101, 23 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. ROSSOMAHAAR - Imperium Tenebrarum (More Hate Prods)<BR> 2. GRENOUER - Confident (More Hate Prods)<BR> 3. OBTEST - Svarbiausias Musis (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> +++ Quiz action from OBTEST band and Fatal Ecstasy Prods. Sponsored by Fatal Ecstasy Prods [fatalecstasy@tut.by]<BR> 4. IMPRUDENCE - Sadness (band)<BR> 5. DAMNED ICON - Nospheratou (band)<BR> 6. HERETIC - Strakh (band)<BR> 7. PERIALNYJE KONDILOMY - Zalet Cherez Rot (band)<BR> 8. PERIALNYJE KONDILOMY - Samoiznasilovanie (band)<BR> 9. COD - Hungry For Flight (band)<BR> 10. T.H.R.O.N. - Twist The Knife (Slowly) [by NAPALM DEATH] (Musickness/MetalAgen)</p>
+
+Автор: Yermola
+
+### 26.08.2002 news MassaBrutto Radioshow #101, 23 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. ROSSOMAHAAR - Imperium Tenebrarum (More Hate Prods)<BR> 2. GRENOUER - Confident (More Hate Prods)<BR> 3. OBTEST - Svarbiausias Musis (Ledo Takas Recs/Fatal Ecstasy Prods)<BR> +++ Quiz action from OBTEST band and Fatal Ecstasy Prods. Sponsored by Fatal Ecstasy Prods <BR> 4. IMPRUDENCE - Sadness (band)<BR> 5. DAMNED ICON - Nospheratou (band)<BR> 6. HERETIC - Strakh (band)<BR> 7. PERIALNYJE KONDILOMY - Zalet Cherez Rot (band)<BR> 8. PERIALNYJE KONDILOMY - Samoiznasilovanie (band)<BR> 9. COD - Hungry For Flight (band)<BR> 10. T.H.R.O.N. - Twist The Knife (Slowly) [by NAPALM DEATH] (Musickness/MetalAgen)<BR></p>
+
+Автор: Yermola
+
+### 23.11.2002 news MC-компиляция с юга.
+
+<p>На Southern Storm Productions во второй половине декабря 2002-го выйдет MC компиляция "INVISIBLE FRONT 1",на которой будут собраны такие банды как:<BR> 1.Grenouer (г.Пермь)<BR> 2.Dr.Faust (г.Сочи)<BR> 3.Butchers (г.Сочи)<BR> 4.Inside (г.Санкт-Петербург)<BR> 5.Social Deformity (г.Пермь)<BR> 6.T.H.R.O.N (г.Москва) <BR> 7.Scavenger (г.Таллин)<BR> 8.Tales Of DarkNord (г.Волгоград) <BR> Так же сейчас лейбл ищет Black Metal B.И.А для второй части INVISIBLE FRONT.В данный момент уже точно в этой сборке вы сможете услышать следуюшие группы: Therm.Eye.Flame,Rossomahaar,Enshade,Der Gerwelt и возможно ещё будут представлены Mind Eclipse из Ярославля и москвичи Ashen Light. <BR> Свои материалы на СD-CDR для участия в "INVISIBLE FRONT 2" высылайте на адрес: <BR> 354000,РОССИЯ,г.СОЧИ,ЗИНЧЕНКО А.С "ДО ВОСТРЕБОВАНИЯ". <BR> По всем вопросам пишите e-mail: art_flash@mail.ru</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

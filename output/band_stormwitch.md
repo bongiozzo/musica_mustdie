@@ -53,6 +53,52 @@ german heavy metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 17.07.2004 news STORMWITCH - очередное приобретение Nuclear Blast
+
+<B>STORMWITCH</B> заключили соглашение с <B>Nuclear Blast</B> и выпустят свой новый альбом '<B>Witchcraft</B>' 8 ноября.
+Автор: Vit Belov
+
+### 13.01.2005 news Будущее STORMWITCH под вопросом
+
+<P>Будущее <STRONG>STORMWITCH </STRONG>под вопросом, так как единственным членом коллектива остался вокалист <STRONG>Andy Muck</STRONG>. <STRONG>Fabian Schwarz</STRONG> (guitar), <STRONG>Martin Winkler</STRONG> (guitar), <STRONG>Dominik Schwarz</STRONG> (bass), <STRONG>Alexander Schmidt</STRONG> (keyboards)&nbsp;и <STRONG>Marc Oppold</STRONG> (drums) дружно покинули коллектив, из-за несогласия с политикой фронтмэна и менеджмента, которые не допускали музыкантов к принятию каких-либо решений. </P>
+Автор: Vit Belov
+
+### 13.01.2005 news Andy Muck опровергает слухи
+
+<P>Буквально после сообщений о возможном развале группы оставшийся один <STRONG>Andy Muck</STRONG> сообщил, что уже подготовил новый альбом <STRONG>STORMWITCH</STRONG>, который будет называться <STRONG>'Tears Of Rage'</STRONG>. В ближайшее время<STRONG> Andy</STRONG> наберёт новую группу и приступит к записи.</P>
+Автор: Vit Belov
+
+### 14.02.2005 reviews Они колдовали в пятницу...
+
+<P>Сдается мне, что поторопились ШТОРМВЕДЬМЫ, сильно поторопились с выпуском нового релиза. После нескольких прослушиваний – стойкое ощущение, что это не полноценный альбом, а очень сырое и сильно недоработанное демо. На редкость убогое оформление буклета, странный неестественный саунд – и это главное зло альбома, отвратительно прописанные барабаны… И, простите, куда же подевалась хваленая мощь тевтонского металла? От прежней энергетики и великолепной помпезной мелодики остался лишь легко узнаваемый вокал Энди Мюка, но этого явно недостаточно. Музыка ШТОРМОВОЙ ВЕДЬМЫ замедлилась в разы, напоминая теперь творчество Axel Rudi Pell’а (особенно баллады, гы-гы), только пожиже звуком и победнее мелодиями.</P>
+<P>Да, альбом – совсем не шедевр, да – халтура, но не все так безнадежно – например, есть очень интересная вещь под названием “The Kiss Of Death” – классный раздолбайский рок-н-ролл, еще хороши резвый боевичок “At The Break Of This Day”, титульная “Witchcraft” и баллада “Moonfleet”. Жаль, мало их… Допустим, - с очень большой натяжкой, но все-таки допустим, - что это новый виток в развитии группы, поиск себя, – но если и на следующем своем альбоме STORMWITCH последует тем же путем, то группе придется спешно резервировать место на «кладбище домашних металлов». А мы будем цветочки носить…]</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">IROND</A></P>
+Автор: Dr. Grandma
+
+### 24.04.2013 news STORMWITCH: ушёл из жизни гитарист Harald &quot;Lee Tarot&quot; Spengler
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.04/25640.jpg" width=254 height=347>Harald "Lee Tarot" Spengler</STRONG>, оригинальный гитарист легендарной немецкой группы <STRONG>STORMWITCH</STRONG>, умер 11 апреля в возрасте 50 лет после случившегося с ним инсульта.</P>
+<P><STRONG>Spengler</STRONG> был членом <STRONG>STORMWITCH</STRONG> с 1979 по 1989 гг. и участвовал в записи пяти первых релизов: <STRONG>"Walpurgis Night"</STRONG> (1984), <STRONG>"Tales Of Terror"</STRONG> (1985), <STRONG>"Stronger Than Heaven"</STRONG> (1986), <STRONG>"The Beauty And The Beast"</STRONG> (1988) и <STRONG>"Eye Of The Storm"</STRONG> (1989).</P>
+<P>Официальный сайт <STRONG>STORMWITCH</STRONG>: <A href="http://www.stormwitch.de">www.stormwitch.de</A></P>
+Автор: Headcrusher
+
+### 01.10.2014 news STORMWITCH возвратятся в 2015 году
+
+<P>Новый альбом немцев <STRONG>STORMWITCH</STRONG> выйдет в начале 2015 года на <STRONG>Massacre Records</STRONG>. Предыдущая работа легендарных немецких музыкантов "<STRONG>Witchcraft</STRONG>" вышла в 2004 году на <STRONG>Nuclear Blast</STRONG>. В нынешнем составе три оригинальных участника:&nbsp;вокалист <STRONG>Andy Muck</STRONG>,&nbsp;гитарист <STRONG>Volker Schmietow</STRONG> и басист<STRONG> Jurgen Wannenwetsch</STRONG>.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.10/27341.png" width=410 height=429> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

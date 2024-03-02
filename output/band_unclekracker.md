@@ -20,6 +20,9 @@ aka Matt Shafer; rap-metal, pop-rock, hard rock, country rock
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

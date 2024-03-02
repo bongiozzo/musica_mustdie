@@ -39,6 +39,48 @@ Recorded At Robert Lang's Studio, Seattle.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.04.2001 news Хронометраж Кроноса...
+
+<p>Фронтмен "VENOM" - Cronos - записал три вещи для проекта "PROBOT", (также туда входит Дэйв Гролл из "FOO FIGHTERS"). Музыка для всех трех вещей была сочинена Гроллом, а слова - Кроносом.</p>
+
+Автор: Yermola
+
+### 13.04.2001 news Cronos has recorded three songs for PROBOT....
+
+<p>VENOM frontman Cronos has recorded no less than three songs for PROBOT, the upcoming metal project from the FOO FIGHTERS' Dave Grohl, but only one will apparently be used on the album, although the VENOM bassist/vocalist currently has no idea which one Grohl will choose. The music for all three songs was composed by Grohl, with the lyrics written by Cronos.</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 01.12.2014 news Свитера от FOO FIGHTERS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Панки <STRONG>FOO FIGHTERS</STRONG>, ведомые барабанщиком группы <STRONG>NIRVANA</STRONG>, Дейвом Гролом, выпустили рождественский свитер (доступно две цветовые вариации). Вдохновением к созданию подобного дизайна послужила норвежская группа <STRONG>EMPEROR</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Заказать себе такую красоту можно по адресу: <A href="http://shop.foofighters.com/collections/featured/products/ginger-metal-sweatshirt-cardinal">http://shop.foofighters.com/collections/featured/products/ginger-metal-sweatshirt-cardinal</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.12/27488.jpg" width=620 height=313> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -24,6 +24,62 @@ Swedish black death metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2003 news Имя ему THE LEGION
+
+<p>Шведские death black металлеры THE LEGION завершили работу над своим дебютным альбомом "Unseen To Creation". Релиз ожидается в октябре на французском Listenable Records. Альбом был записан в Abyss Studios с продюсером Tommy Tagtgren.</p>
+
+Автор: Dimas
+
+### 06.03.2005 reviews Стандартный качественный black-metal
+
+<P>Замечено, что любителей Black-metal последнее время больше всего радует CD-Maximum. Только этот лэйбл отчаивается на издание достаточного количества пластинок в этом жанре. THE LEGION являются подопечными Listenable, а это значит, что, по крайней мере, средний европейский уровень группе обеспечен.</P>
+<P>“Unseen Creation” – дебютная пластинка группы, примечательной присутствием барабанщика MARDUK Emil Dragutinovich. Нельзя сказать, что его игра выдвигает THE LEGION из полного небытия, но, как дополнительная ремарка, при оценке альбома рассматриваться может. Вы не ошиблись, шведы играют энергичный и быстрый black-metal в духе основной группы этого музыканта. На эту основу прекрасно ложатся немногочисленные симфонические проигрыши, мелодичные соло и некоторая доля техничности, которая едва заметна невооружённому уху.</P>
+<P>Качественная работа, которую, однако, нельзя назвать уж очень оригинальной или цепляющей. </P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 12.03.2005 news THE LEGION расстались с вокалистом
+
+<P><STRONG>THE LEGION</STRONG> расстались с вокалистом <STRONG>Anders Foldt</STRONG>. У микрофонной стойки теперь будет находиться басист коллектива <STRONG>Lars Martinsson</STRONG>. </P>
+Автор: Vit Belov
+
+### 21.12.2005 news Новости от THE LEGION
+
+<P>Шведская black death&nbsp;формация <B>THE LEGION</B>, в составе которой ударник <B>MARDUK</B>&nbsp;<B>Emil Dragutinovic</B>,&nbsp;готовит к выходу свой новый альбом, в записи которого принял участие новый вокалист группы <B>Kjetil Hektoen</B> (<B>CREST OF DARKNESS,</B> <B>ENTHRAL)</B>. После его записи, группу покинул басист <STRONG>Lars Martinsson,</STRONG> который готов продолжить в будущем работу с группой только в студии.&nbsp;Сессионным басистом стал&nbsp;<STRONG>Kristoffer Andersson</STRONG> (<B>SARGATANAS REIGN)</B>. Альбом под названием <STRONG>"Revocation"</STRONG> должен выйти в конце января 2006 года на <B>Listenable Records</B>. Трек-лист альбома:<BR><BR><IMG height=250 alt="" hspace=15 src="/images/news_rus/2005.12/9873.jpg" width=250 align=left border=0>1. <B>Grotesque Savior</B><BR>2. <B>Virtue of Sin</B><BR>3. <B>Annihilation Chaos</B><BR>4. <B>Horror Vacui</B><BR>5. <B>Impious Gathering</B><BR>6. <B>Bloodgate</B><BR>7. <B>Deadlight Afterglow</B><BR>8. <B>Carnal Harvest</B><BR>9. <B>Nocturnal Apparition</B><BR></P>
+Автор: Dimas
+
+### 11.02.2008 reviews На фронте THE LEGION без перемен
+
+<P>Мы уже рецензировали дебют этой шведской команды. Группа, известная, как проект барабанщика MARDUK Emil Dragutinovitch, порадовала нас зарядом убойного black-death-metal. Вышедший в начале года и в России второй альбом THE LEGION “Revocation” также не оставит равнодушными всех любителей стиля.</P>
+<P>В то время, как MARDUK немножко сбавили обороты и снизили скорость своей музыки, THE LEGION ничего подобного делать не собираются. Антихристианский убийственный техничный материал, хоть по-прежнему и не имеет хитовой составляющей, поражает своей бескомпромиссностью. Все 45 минут, что длится эта пластинка, хочется размахивать руками и трясти башкой. Лишь иногда THE LEGION приостанавливаются, чтобы проиграть нам отрывок из церковных песнопений или кусок органной музыки, которые отлично вписываются в настроение этого альбома.</P>
+<P>У THE LEGION ничего не меняется, но всем тем, кому просто необходим кусочек протухшего, но кровоточащего black/death metal, просто необходимо обратить внимания на этот альбом.</P>
+Автор: Vit Belov
+
+### 23.02.2009 news Новый альбом THE LEGION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая пластинка шведов<STRONG> THE LEGION</STRONG> под названием <STRONG>'A Bliss to Suffer' </STRONG>выйдет 27 апреля на<STRONG> Listenable Records</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 26.02.2009 news Картинка THE LEGION
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.02/13683.jpg" width=400 align=right border=5>THE LEGION</STRONG> опубликовали трэк-лист и обложку нового альбома <STRONG>"A Bliss to Suffer":</STRONG></P>
+<P>01. <B itxtvisited="1">Shining Redemption</B><BR itxtvisited="1">02. <B itxtvisited="1">Call Of The Nameless Black</B><BR itxtvisited="1">03. <B itxtvisited="1">A Toil Beneath The Skin</B><BR itxtvisited="1">04. <B itxtvisited="1">Blood, Be Gone!</B><BR itxtvisited="1">05. <B itxtvisited="1">A Curse For The Dead</B><BR itxtvisited="1">06. <B itxtvisited="1">The Luring Depths</B><BR itxtvisited="1">07. <B itxtvisited="1">The Inimical</B><BR itxtvisited="1">08. <B itxtvisited="1">Man-Beast</B><BR itxtvisited="1">09. <B itxtvisited="1">The Reaping Of Flesh And Blood</B></P>
+Автор: Vit Belov
+
+### 28.02.2009 news Новая песня THE LEGION
+
+<P>Мы уже сообщали о выходе нового альбома <STRONG>THE LEGION</STRONG> <STRONG>"A Bliss to Suffer". </STRONG>Песню с этой пластинки можно послушать на <STRONG>MySpace </STRONG>страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/legionsweden">http://www.myspace.com/legionsweden</A></P>
+Автор: Vit Belov
+
+### 24.03.2009 news Ещё музыка от THE LEGION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё одна песня с нового альбома <STRONG>THE LEGION</STRONG> <STRONG>"A Bliss to Suffer" </STRONG>появилась на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/legionsweden">http://www.myspace.com/legionsweden</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

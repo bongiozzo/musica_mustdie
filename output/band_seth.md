@@ -68,6 +68,57 @@ French Black Metal band
 
 * C группой "Ad Inferna" 
 
+## Публикации
+
+### 26.12.2000 news Информация о новом альбоме Seth.
+
+<p>Новый альбом Seth будет записываться в студии Sound Suite во Франции в течение лета 2001 года. Некоторое время спустя, примерно в октябре-ноябре, альбом должен появиться в продаже.</p>
+
+Автор: Morsus
+
+### 26.12.2000 news Info about new Seth album.
+
+<p>The new Seth album will be recorded at the Sound Suite studio, in France, during the 2001 summer. The album should then be released some time around October / November 2001.</p>
+
+Автор: Morsus
+
+### 26.06.2001 news Divine X от SETH....
+
+<p>Французские блэк-металлеры "SETH" готовят новый альбом "Divine X". Диск выйдет на Osmose Productions 12 Ноября и будет содержать следующие песни: 01. Serviam 02. Satanik Generation 03. The Sounds Of Seth. Также команда участвует на Оззмозовском альбоме "World Domination" с кавер-версией "METAL CHURCH".</p>
+
+Автор: Yermola
+
+### 07.01.2002 news Божественный SETH ...
+
+<p>Готов новый альбом кощунственных французов "SETH" названный "Divine-X". Запись проходила в Роттердамовской (Голландия) "Excess Studio" и микшировалась с помощью Hans Pieters. Релиз выходит 14-го марта на Osmose Records. Трек-лист: <BR><BR> 01. Evil-X<BR> 02. The Sons of Seth<BR> 03. Walk on Fire with Me<BR> 04. Addicted to Psychotropic Angeldust<BR> 05. Cosmic Cursed's Shelter<BR> 06. Into the Spheres of Spirituality<BR> 07. Satanik Generation<BR> 08. Divine-X<BR></p>
+
+Автор: Yermola
+
+### 07.01.2002 news SETH Get &quot;Divine&quot; In March ....
+
+<p>French black metal band SETH have finished recording their new album, entitled Divine-X, at Excess Studio in Rotterdam, Holland and are currently mixing the effort with Hans Pieters. Due to be released on March 14th via Osmose Records, Divine-X will include the following track listing:<BR><BR> 01. Evil-X<BR> 02. The Sons of Seth<BR> 03. Walk on Fire with Me<BR> 04. Addicted to Psychotropic Angeldust<BR> 05. Cosmic Cursed's Shelter<BR> 06. Into the Spheres of Spirituality<BR> 07. Satanik Generation<BR> 08. Divine-X<BR><BR> According to the group's official web site, three of the album's eight cuts are sung in French, while the rest are sung in English. Musically, the songs vary in style from the “quite complex” to the “more straight-in-your-face”, which makes for a very diverse release.</p>
+
+Автор: Yermola
+
+### 23.01.2003 reviews Новое лицо SETH. На сей раз - своё.
+
+<p>Во Франции никогда не было металлической "сцены" в полном смысле этого слова. Однако там как было, так и есть некоторое количество команд, отличающихся своей неповторимостью или хотя бы нестандартным подходом к музыке, – и неважно, к какому стилю эта музыка может быть отнесена. К сожалению или к счастью, не каждое правило всегда найдётся своё исключение. SETH и неповторимость, SETH и нестандартность? Шутить изволите? Это понятия несовместимые. По крайней мере, так было с "By Fire, Power Shall Be…", "Les Blessures De L'Ame" и "L'Excellence". Что собой представляли эти альбомы, сказать можно без труда – качественный, до омерзения вылизанный и тошнотворно банальный симфо-блэк. Тем не менее, к "Divine X" вышесказанное, как ни странно, не относится. Разве что за исключением "качественности". Новейший альбом французов бесспорно хорош, и хоть и не является откровением, не пугает своей шаблонностью. Блэк ли это? Конечно. А может, симфо-блэк? Вряд ли. Дабы лучше представить себе "Divine X", представьте себе модернистский блэк, местами немного напоминающий лучшие работы лидеров ге… в смысле, хоррор металла (не теряйтесь в догадках – речь о CoF), кое-где сдобренный на удивление уместными электронными вставочками в духе ABORYM (ха, даже одна из песен называется "Walk On Fire With Me"! Помните, ABORYM'овский альбом "Fire Walk With Us"?). Похоже, SETH нашли таки своё лицо и вступили таки на свою собственную тропу в причудливом мире блэк металла. Что делает "Divine X" достойным внимания альбомом.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.11.2003 news SETH войдут в студию в декабре
+
+Black-metal маньяки <B>SETH</B> войдут в студию 4 декабря этого года для записи четвёртого альбома, который выйдет на <B>Avangarde</B> в феврале/марте.
+Автор: Vit Belov
+
+### 06.04.2004 news Seth перенесли дату выхода альбома
+
+<P>Новый альбом французов <B>SETH "Era-Decay'</B> выйдет 6 сентября на <B>AVANTGARDE</B>. Трэк-лист:</P>
+<P>01. <B>Marchemergence</B><BR>02. <B>March Of The Consistory</B><BR>03. <B>Umbilical Cutting</B><BR>04. <B>A Pallbearer's Gloom</B><BR>05. <B>Ascention</B><BR>06. <B>H-Eradicate</B><BR>07. <B>Xtasian Ostix</B><BR>08. <B>Co-Existent Species</B><BR>09. <B>The Blade Upon Mankind</B> </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

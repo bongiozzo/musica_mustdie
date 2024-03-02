@@ -269,6 +269,842 @@ A collection of songs originally performed by Helloween written, or co-written, 
 * C группой "Beautiful Sin" Uli Kusch
 * C группой "Symfonia" Uli Kusch
 
+## Публикации
+
+### 18.04.2002 news Новости от MASTERPLAN
+
+<p>MASTERPLAN, группа бывших участников HELLOWEEN - гитариста Roland Grapow'а и ударника Uli Kusch'а укомплектовала свой состав, в который также входят вокалист Jorn Lande (YNGWIE MALMSTEEN, ARK), басист Jan-S. Eckert (IRON SAVIOR) и клавишник Janne Warmen (CHILDREN OF BODOM, WARMEN). Выходящий вскоре дебютный альбом группы будет содержать следующие композиции: ‘Spirit Never Dies’, ‘Enlighten Me’, ‘Kind Hearted Light’, ‘Crystal Night’, ‘Soulburn’, ‘Heroes’ (с участием Michael Kiske в качестве гостевого вокалиста), ‘Sail On’, ‘Into The Light’, ‘Thick And Thin’, ‘Crawling From Hell’, ‘Bleeding Eyes’, ‘When Love Comes Close’, The Kid Rocks On’ и ‘Black Dog’ (LED ZEPPELIN). Продюссер альбома - Andy Sneap.</p>
+
+Автор: Dimas
+
+### 18.04.2002 news MASTERPLAN news
+
+<p>MASTERPLAN, featuring former HELLOWEEN members, guitarist Roland Grapow and drummer Uli Kusch have solidified their lineup with vocalist Jorn Lande (YNGWIE MALMSTEEN, ARK), bassist Jan-S. Eckert (IRON SAVIOR) and keyboardist Janne Warmen. Guest vocals include former Helloween screamer Michael Kiske. Produced by Andy Sneap at Crazy Cat Studio (mixed at Backstage Productions), the tracklisting includes the following: ‘Spirit Never Dies’, ‘Enlighten Me’, ‘Kind Hearted Light’, ‘Crystal Night’, ‘Soulburn’, ‘Heroes’ (Jorn/Michael duet), ‘Sail On’, ‘Into The Light’, ‘Thick And Thin’, ‘Crawling From Hell’, ‘Bleeding Eyes’, ‘When Love Comes Close’, The Kid Rocks On’ and ‘Black Dog’ (LED ZEPPELIN cover).</p>
+
+Автор: Dimas
+
+### 05.10.2002 news Masterplan меняют состав.
+
+<p>Группа Ули Куша и Роланда Грапова Masterplan, не выпустив и одного альбома, поменяли состав. В коллектив не вписался Янне Вирман (Warmen, Children Of Bodom), а на его место рекрутирован Аксель Макенротт.</p>
+
+Автор: Vit Belov
+
+### 08.10.2002 news Masterplan have changed musician...
+
+<p>Roland Grapow and Uli Kush's Masterplan have changed their line up before even releasing their debut album. They parted ways with keyboardist Janne Wirman and Axel Mackenrott took his place.</p>
+
+Автор: Vit Belov
+
+### 18.10.2002 news Former YNGWIE MALMSTEEN Singer Parts With Solo Band ....
+
+<p>Former YNGWIE MALMSTEEN and current MASTERPLAN frontman Jorn Lande has parted ways with his solo backing band, which included current MAYHEM/KOVENANT drummer Hellhammer. Personal differences are being blamed for the split, which coincides with Lande's announced departure from WILD WILLY'S GANG, the "just-for-fun" project of ex-ROAD drummer Willy Bendiksen and his friends.</p>
+
+Автор: Yermola
+
+### 18.10.2002 news Йорн Ланде покинул свой соло проект...
+
+<p>Бывший вокалист Ингви Мальмстина и нынешний участник "MASTERPLAN" - Йорн Ланде покинул свой соло проект организованный совместно с барабанщиком MAYHEM/KOVENANT - Hellhammer'ом. Также им оставлен проект "WILD WILLY'S GANG" с членами "ROAD"...</p>
+
+Автор: Yermola
+
+### 17.12.2002 reviews Отверженные просвятители
+
+<p>"Enkighten me" - пробное творение, макси-сингл для затравки от новой супергруппы MASTERPLAN. Напомню, что в ее состав входят два бывших участника HELLOWEEN - гитарист Roland Grapow и ударник Uli Kusch, также здесь задействован бывший басист IRON SAVIOR Jan-S. Eckert и известный по многим проектам вокалист Jorn Lande. К тому же, некоторые партии клавишных записал Janne Wirmen (CHILDREN OF BODOM, WARMEN), а в качестве гостевого вокалиста отметился Michael Kiske, правда их работу можно будет оценить только на выходящем в начале следующего года полноценном альбоме, здесь они не засветились. Состав подобрался что надо. Да и материал они выдали очень хороший. Отлично продуманный, умело исполненный и профессионально записанный. А представляет он собой традиционный классический heavy metal. Здесь есть две вещи с предстоящего альбома, урезанная заглавная вешь и два трэка, которые не войдут на дебютный альбом, один из которых - блестящая кавер-версия "Black Dog" от LED ZEPPELIN. Материал группы отличается стилистической четкостью и упорядоченной структурой. Музыкантам удается смешать современные ритмы со сложными гитарными партиями и отличной вокальной работой, при этом оставаясь в рамках классических традиций стиля. сложно судить по этому релизу о группе полноценно. Но уже сейчас ясно, что их новая работа будет отличаться высокой техникой и профессионализмом. Ну а если и материал будет в духе представленных здесь вещей, то группу несомненно ждет немалый успех. Будем ждать альбома...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 31.12.2002 news MASTERPLAN confirmed to play 2003&#39;s BANG YOUR HEAD!!!
+
+<p>Another band joined the band-lineup of 2003`s BANG YOUR HEAD!!!-festival: MASTERPLAN, the new "supergroup" of ex-HELLOWEEN-members Uli Kusch and Roland Grapow, who joined forces with vocalist Jorn Lande (a.o. A.R.K., JORN, MUNDANUS IMPERIUM, BEYOND TWILIGHT), Jan S. Eckert of IRON SAVIOR at bass and keyboarder Axel Mackenrott.</p>
+<P> The bands confirmed to play at the BANG YOUR HEAD!!!-festival 2003 at Balingen, Germany, from the 27th to the 28th of June so far:</>
+<P> TWISTED SISTER <BR> SODOM <BR> U.D.O <BR> OVERKILL <BR> ANNIHILATOR <BR> DOKKEN <BR> PINK CREAM 69 <BR> AXXIS <BR> BRAINSTORM<BR> MASTERPLAN <BR> HYPOCRISY<BR> BITCH<BR> ROB ROCK <BR> AMON AMARTH <BR> ANGEL WITCH (presenting their first album!)</>
+
+Автор: Vit Belov
+
+### 28.02.2003 reviews Все не так плохо как могло быть
+
+<p>С опаской ждал я нового альбома этой супергруппы. В эту компанию входят два бывших участника HELLOWEEN - гитарист Roland Grapow и ударник Uli Kusch, также здесь задействован бывший басист IRON SAVIOR Jan-S. Eckert и известный по многим проектам норвежский вокалист Jorn Lande. К тому же, некоторые партии клавишных записал Janne Wirmen (CHILDREN OF BODOM, WARMEN), а в качестве гостевого вокалиста в песне "Heroes" отметился Michael Kiske. В глубине подсознания было чувство, что это какая-то профанация, что в недавний сингл "Enlighten Me" вошли лучшие вещи с альбома. Весь остальной материал на порядок хуже. На поверку, все оказалось совсем не так. Повторю, что материал группы отличается стилистической четкостью и упорядоченной структурой. Музыкантам удается смешать современные ритмы со сложными гитарными партиями и отличной вокальной работой, при этом оставаясь в рамках классических традиций стиля. Дебютная работа отличается высокой техникой и профессионализмом. Уже с самых первых минут группа заражает своей энергетикой и мелодизмом. Отличный heavy-power. Альбом состоит из сплошных хитов и слушается с большим удовольствием. Под конец альбома музыка становится более тяжелой и монументальной. Следует отметить, что часть тиража выпущенного по лицензии компанией CD-MAXIMUM вышла в формате диджипака и состоит из двух дисков: на одном непосредственно музыка, а второй диск состоит из мультимедийных приложений и содержит видеоклип на "Enlighten Me", хранитель экрана, интервью с группой и дополнительные сведения об альбоме.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 05.10.2003 news Фестиваль ROVERFEST-2003
+
+<A href="http://www.rokfest.ru/"></A>
+<P align="center"><A href="http://www.rokfest.ru/">&nbsp;</P>
+<P align="right"><IMG height=385 alt=pho hspace=15 src="/images/news_rus/2003.08/4756.jpg" width=300 align="left" vspace=5 border=0></A></P>
+<P>17 октября в московском ДС "Лужники" пройдет фестиваль тяжелой музыки ROVERFEST-2003.</P>
+<P>Расписание и состав участников:</P>
+<P>17:30 Начало фестиваля<BR>18:00 - 18:30 ZODIAK MINDWARP (Англия)<BR>18:30 – 18:50 Технический перерыв<BR>18:50 - 19:35 MASTERPLAN (Германия)<BR>19:35 – 19:55 Технический перерыв<BR>19:55 - 20:40 PARADISE LOST (Англия)<BR>20:40 – 21:00 Технический перерыв<BR>21:00 - 21:40 ARIA (Россия)<BR>21:40 – 22:00 Технический перерыв<BR>22:00 - 23:00 HELLOWEEN (Германия)</P>
+<P>Билеты</P>
+<P>600 рублей - задние трибуны </P>
+<P>900 рублей - партер</P>
+<P>800-1200 рублей - боковые трибуны</P>
+<P>Продажа&nbsp;в кассах ДС "Лужники" и театральных кассах Москвы.</P>
+<P>Проезд: метро Спортивная, ул. Лужники, 24</P>
+<P>
+<P>
+<P>
+<P>
+<P align="center"><A href="http://www.kontramarka.ru/intershoproot/eCS/Store/ru/riatekimg/countdown.html"><IMG height=60 alt="" hspace=0 src="/images/news_rus/2003.10/5049.gif" width=468 align="right" border=0></A></P>
+Автор: Dimas
+
+### 19.10.2003 articles 17 ноября 2003 года, RoverFest, Москва
+
+<I>
+<P>17 октября 2003 года в Москве во дворце спорта ‘Лужники’ прошло беспрецедентное по российским меркам событие. При поддержке RoverComputers концертное агентство TCI собрало в столице нашей Родины три крупных иностранных группы и самую популярную металл-группу России.</P></I>
+<P>В прошлом году под этой вывеской уже прошёл довольно крупный концерт. На одной сцене выступили легенды heavy-metal - DORO и UDO. Но если в минувшем году всё произошло как-то спонтанно, сорвался концерт DORO, организуемый “известной” конторой, и TCI заманили её на свой фестиваль. Новый концерт уже анонсировался, как крупнейший фестиваль. Действительно были заявлены HELLOWEEN, PARADISE LOST, MASTERPLAN, АРИЯ и откуда-то выловленная малоизвестная сейчас hard-rock группа ZODIAC MINDWARP. Хорошо, что у тяжёлой музыки появился хоть один спонсор. Видимо, в RoverComputers кто-то любит heavy-metal и готов потратить на него деньги. Надеюсь, у этого кого-то разносторонние вкусы и в будущем мы увидим достаточное количество разнообразных зарубежных звёзд. В этот раз состав был достаточно странным. HELLOWEEN и PARADISE LOST уже выступали в России, MASTERPLAN всё-таки ещё недостаточно заслуженная группа, а про ZODIAC упомяну отдельно в абзаце, посвящённом их выступлению, а то и сказать будет нечего. Была ещё АРИЯ с англоязычной программой, что, конечно, интересно, но не настолько сильно, как выступление ещё одной западной группы. Билеты на шоу стоили довольно дорого (900 рублей в партер), что не остановило бы фэнов, если бы не вышеуказанные причины. А так – всего 2000 – 2500 зрителей на выдающемся событии. Не стоит забывать и о раннем начале концерта в рабочий день (17-30). Даже рекламная акция с бесплатной раздачей билетов и подарками цифровых фотокамер не спасла ситуации. В остальном, организация была на высшем уровне. Пять экранов над сценой с качественным изображением, почти весь концерт пиво, вежливое отношение милиции и security. TCI достигли очень высокого уровня в работе со зрителем, вероятно потому, что организовывают сейчас концерты не только для металлистов.</P>
+<P>Открывали концерт музыканты из отечественной группы ХИМЕРА, мною они остались незамеченными, так как не были заявлены в программе. На первую же “официальную” команду ZODIAC MINDWARP посмотреть удалось. Что ж. Если не быть слишком грубым скажу, на фига они, вообще, здесь были нужны? Тратить деньги на концерт второсортной glam-hard-rock группы? Под недружный гул малочисленных зрителей вокалист этой команды, у которой был контракт с POLYGRAM в 1988 (!!!) году, так весело снимал с себя пиджачок и томно смотрел в зал, что сразу становилось понятно, что когда-то он пользовался популярностью у девушек. Никчемная группа, уровня средненького клуба, попавшая непонятным образом в этот вечер в Москву. Отмечу, что выступление шло строго по расписанию, и Зодиаков бесцеремонно отключили, что и к лучшему.</P>
+<P>MASTERPLAN появились на сцене, опять же, строго по расписанию. Группа бывших участников HELLOWEEN и вокалиста Jorn Lande. На самом деле сказать больше о них и нечего, поэтому все так часто повторяют эту заученную информацию. Grapow и Kusch оказались не очень хорошими сочинителями музыкального материала. И если в составе HELLOWEEN их хватало на пару песен раз в два года, то весь альбом сочинить они, видимо, не в состоянии. Тяжёлые однообразные риффы, напрочь лишённые, присущей тем же HELLOWEEN, мелодики. Вытаскивает группу вокалист Lande, но согласитесь этого недостаточно. Lande много где пел, поэтому MASTERPLAN объективно заслуживает места только в общей толпе. Апофеозом сочинительской мысли стала песня, где Grapow нарочито играл модный рифф ничего не зажимая на грифе, а Jorn в это время старался выдавать что-то мелодичное.</P>
+<P>Англичане PARADISE LOST как будто бы попали не туда. В этой компании их танцевально-занудный электронный материал не попадал в струю. Более того, музыканты, в частности Holmes, выглядели замученно-отрешёнными, не выказывая ни особого желания, ни особого энтузиазма от пребывания в Москве. Стоя, как столбы, на сцене, они даже не отыграли свои положенные по графику 45 минут. Но основные претензии надо высказывать вокалисту. Мало того, что он не вытягивает даже собственные партии, записанные 8-10 лет назад, так он и не пытается это как-то замять. ‘As I Die’ – думал ли я когда-нибудь, что мне захочется выйти из зала, во время исполнения этой песни. С тихим шепотком, напевающим себе под нос ‘As I Die’ и приплясыванием в духе два притопа – три прихлопа, всё с той же кислой миной… Вот так звучит теперь этот супер-хит 1992 года. Дело не в материале, а в исполнении.</P>
+<P>Сейчас я выскажу крамольную мысль. Мне понравилось выступление АРИИ. Со сменой состава, в группу влили свежую кровь. Да, Холстинин выглядит всё таким же усталым, но новый вокалист Беркут отдувается за всех. Мне он ещё запомнился по выступлению в каком-то клубе в составе МАСТЕР лет 5 назад. На маленькой сценке Беркут умудрился тогда выглядеть так, как будто играет перед стадионом. Англоязычная программа и утяжелённое, можно сказать мясное, звучание делают группу вполне конкурентоспособной даже на западном рынке. Вполне можно было бы заработать хороших денег, подписавшись на какой-нибудь западный лэйбл. Конечно же, упёртые фанаты-пионеры вряд ли оценят подобный шаг, но деньги надо зарабатывать не здесь.</P>
+<P>Зрители уже порядком устали. Кстати, просто-таки необходимо создать возможность отдохнуть тем, кто занимает места в стоячем партере. Неудобные лавочки для одевания верхней одежды в гардеробе не в счёт. HELLOWEEN-то как раз и не выглядели уставшими. В прошлый свой приезд немцы расстроили некоторым отсутствием истинного желания. Тогда концерт получился вымученным и каким-то, одним из многих что ли. Про RoverFest подобного сказать нельзя. Отдохнувшие, полные желания HELLOWEEN наподдали всем под зад. Здесь стоит упомянуть о феномене их сэт-листа. Ни одной (!!!) песни с новой пластинки, всего через несколько месяцев после её выхода. Говорят, Weikath and Co отказывались играть на одной сцене с MASTERPLAN. Может быть по этой причине, они и отыграли все свои старые хиты, которые выглядят явно предпочтительней их современного творчества, а уж MASTERPLAN выглядели на их фоне просто угнетающе. В этот раз Deris даже поиграл с залом, на предмет того, какая его сторона громче поёт. Этот трюк мы уже видели в исполнении Dave Mustain из MEGADETH. Мне кажется, Deris немного перебрал с выражением своей антипатии к левой части зала. Постоянное изображение гениталий вряд ли может быть приятно как мужской, так и (тем более) женской части аудитории. В этот вечер у Andi это был больной вопрос. Ну, это мелкая критика, главное, что выступление основоположников немецкого power-metal было лучшим в тот день, и одним из лучших в Москве, вообще.</P>
+<P>Такие фестивали непременно должны быть. Как нам обещают, событие станет ежегодным, и это внушает оптимизм. Основным пожелание - сделайте более интересный подбор групп. Я мог бы написать целый абзац с названиями коллективов, но будем надеяться, что человеку, отвечающему за репертуар, кто-нибудь даст послушать эти великолепные пластики.</P><I></I>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 05.03.2004 news MASTERPLAN начинают работу над новым альбомом
+
+<B>Roy Z</B> станет продюсером новой пластинки <B>MASTERPLAN</B>. Её выход намечен на осень 2004 года на <B>AFM</B>.
+Автор: Vit Belov
+
+### 05.03.2004 news MASTERPLAN begin to work
+
+<P><B><SPAN lang=EN-GB>MASTERPLAN</SPAN></B><SPAN lang=EN-GB> were honoured on January 25th in </SPAN><SPAN lang=EN-GB>Cannes</SPAN><SPAN lang=EN-GB> (</SPAN><SPAN lang=EN-GB>France</SPAN><SPAN lang=EN-GB>) with the new created <B>“EUROPEAN BORDER BREAKERS AWARD“ </B>(during the MIDEM). The reason for that was that the newcomer band has the best sales of a debut album outside their own country in 2003. Currently the band is working with </SPAN><B><SPAN lang=EN-GB>Roy</SPAN><SPAN lang=EN-GB>Z.</SPAN><SPAN lang=EN-GB> (a. o. Halford, </SPAN><SPAN lang=EN-GB>Bruce</SPAN><SPAN lang=EN-GB>Dickinson</SPAN></B><SPAN lang=EN-GB><B>)</B> on new song material for the new album which will be available in autumn 2004 while an advance single will already come out in the summer. In late autumn it is planed that Masterplan will go on their first headliner tour.</SPAN></P>
+Автор: Vit Belov
+
+### 23.09.2004 news Lande и Allen объединились в проекте
+
+<P>Два знаменитых певца <STRONG>Jorn Lande (MASTERPLAN)</STRONG> и <STRONG>Russel Allen (SYMPHONY X)</STRONG> объеденились для записи пластинки под вывеской <STRONG>LANDE/ALLEN</STRONG>. Известно также, что на гитаре в их проекте будет играть <STRONG>Magnus Karlsson</STRONG> (<B>LAST TRIBE</B>).&nbsp;Другая информация пока не сообщается.</P>
+Автор: Vit Belov
+
+### 06.11.2004 news Подробности о новом альбоме MASTERPLAN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MASTERPLAN</STRONG> прошёл микс и мастеринг в <STRONG>Finnvox Studios</STRONG>. Пластинка&nbsp;увидит свет 24 января на <STRONG>AFM</STRONG>&nbsp;и будет называться “<STRONG>Aeronautics</STRONG>”. Перед альбомом выйдет сингл “<STRONG>Back For My Life</STRONG>” 29 ноября. Сейчас группа готовится к туру в поддержку нового альбома.</FONT></P>
+Автор: Vit Belov
+
+### 06.11.2004 news New album by MASTERPLAN
+
+<P>The material for new <STRONG>MASTERPLAN</STRONG> album&nbsp;has just been mixed by<STRONG> Mikko Karmila</STRONG> and mastered by <STRONG>Mika Jussila</STRONG> in the <STRONG>Finnvox Studios</STRONG>. So studio work is over and on the 24th of January <STRONG>MASTERPLAN</STRONG> invites you to fly with them on “<STRONG>Aeronautics</STRONG>”. </P>
+<P>In advance on 29/11/2004 the <STRONG>MASTERPLAN</STRONG> EP “<STRONG>Back For My Life</STRONG>” will be released through <STRONG>AFM</STRONG>, containing the song “<STRONG>Back For My Life</STRONG>” as a single and album version, the song “<STRONG>Crimson Rider</STRONG>” taken from the upcoming album and the non album tracks “<STRONG>Killing In Time</STRONG>” (2 different versions) and “<STRONG>Love Is A Rock</STRONG>”. Additionally, there will be a multimedia section.</P>
+<P>The upcoming tour, which is being planned at the moment, and which is anticipated to start in March 2003, will show if <STRONG>MASTERPLAN</STRONG> is likely to get airsick or if they are still fascinated by flying, as it is presumed. <STRONG>MASTERPLAN</STRONG> will do a short promo tour in December to answer all the journalists’ questions about “<STRONG>Aeronautics</STRONG>”. More news to follow…</P>
+Автор: Vit Belov
+
+### 02.03.2005 news MASTERPLAN на CD-Maximum
+
+<P>Компания<STRONG> <A href="http://www.cd-maximum.ru/">CD- Maximum</A></STRONG><A href="http://www.cd-maximum.ru/index.php?hid=37901&lang=ru"> </A>представляет российское издание полной дискографии группы <STRONG>MASTERPLAN. </STRONG>Это два полнометражных альбома коллектива<STRONG> "Masterplan" (2003)</STRONG> и<STRONG> "Aeronautics" (2005),</STRONG> а также мини-альбомы<STRONG> "Enlighten Me" (2002) и "Back For My Life" (<IMG height=250 alt="" hspace=20 src="/images/news_rus/2005.03/8048.jpg" width=250 align=left border=0>2004),</STRONG> содержащие композиции, не вошедшие в полнометражные альбомы.</P>
+<P><STRONG>MASTERPLAN</STRONG> - суперкоманда, образованная в 2001 году опытными и известными на международной сцене музыкантами. В первую очередь это - гитарист <STRONG>Roland Grapow</STRONG> и барабанщик <STRONG>Uli Kusch</STRONG>, в августе 2001 года вынужденные были&nbsp; уйти из немецкой группы <STRONG>HELLOWEEN</STRONG>. К ним присоединились бывший басист <STRONG>IRON SAVIOR Jan S. Eckert</STRONG>, а также клавишник <STRONG>Axel Mackenrott</STRONG>, известный как сессионный клавишник <STRONG>GAMMA RAY</STRONG>. На место вокалиста был ангажирован <STRONG>Jorn Lande</STRONG>, прославившийся своими сольными альбомами, а также участием в таких проектах, как <STRONG>ARK</STRONG> и <STRONG>BEYOND TWILIGHT</STRONG>. Первый альбом <STRONG>MASTERPLAN</STRONG> произвел на «металлическом небосклоне» эффект разорвавшейся бомбы, и через два года пришло время второй студийной работы.</P>
+<P><IMG height=250 alt="" hspace=20 src="/images/news_rus/2005.03/8049.jpg" width=250 align=right border=0>Второе долгожданное творение звездного немецкого коллектива, стало альбомом месяца в таких изданиях, как <STRONG>Rock Hard, Metal Heart, Rock It, Aardshok, Sweden Rock Magazine</STRONG> и многих других, получив наивысшие оценки по всему миру. Альбом прошел микширование и мастеринг в студии <STRONG>Finnvox</STRONG> под руководством <STRONG>Mikko Karmila</STRONG> и <STRONG>Mika Jussila</STRONG>. Новый альбом отличается от предыдущего достаточно сильно, несмотря на сохранение общего стиля. Музыканты не копируют сами себя; полет их фантазии действительно впечатляет. Альбом можно смело записывать в классику мирового металла. Приобрести альбомы можно на всех точках, торгующих продукцией <A href="http://www.cd-maximum.ru/">CD-Maximum</A>, а также через интернет в магазине <A href="http://www.soundcheck.ru/">Soundcheck</A></P>
+Автор: Dimas
+
+### 16.05.2005 reviews Полёты во сне и наяву
+
+<P>…А ведь какой был риск, и как высоки были ставки!.. После удачного и весьма убедительного дебютника так страшно сделать ошибку – ведь поклонники зачастую неблагодарны, и неверный поворот творческого пути мог поставить крест на карьере коллектива. Путь на вершину долго и труден – но сорваться можно в один миг. Тем более, power-сцена сейчас переполнена, и чтобы завоевать или поддержать интерес фэнов, надо сотворить нечто, выходящее за рамки обыденности и стандартный штампов.</P>
+<P>Опасения оказались напрасными. Удивительно теплый альбом получился, с шикарной мелодикой и на редкость уместными клавишами. И ровно половину всех тех почестей и респектов, что по праву достаются «Аэронавтам», стоит отдать Йорну Ланде (Jorn Lande) – человеку, чей голос является одним из сильнейших на современной мировой метал-сцене. Ланде не просто отбывает время за микрофоном – он переживает, сочувствует, рассказывает, жалуется, стонет, злится, - словом, он живет. Его голос, убедительный, с бархатной хрипотцой, сразу располагающий к себе, – это живая квинтэссенция эмоций.</P>
+<P>Да и от остальных музыкантов, вообще-то, ничего иного, кроме как высочайшего уровня, ждать не приходилось – как в сочинении, так и в исполнении. Да и как иначе? Ули Кюш (Uli Kusch, барабаны) и Роланд Грапов (Roland Grapow, гитара) долгое время были участниками HELLOWEEN, и опыта им не занимать, а фронтмен Ланде вообще «вокалист-многостаночник» - в его послужном списке такие команды, как MUNDANUS IMPERIUM, ARK, VAGABOND, The SNAKES, BEYOND TWILIGHT и т.д. Продюсировал альбом известнейший спец своего дела Энди Снип (Andy Sneap), в свое время игравший в трэшевом акте SABBAT. Саунд – просто великолепен: густой, насыщенный, придающий дополнительную плотность звучания каждому инструменту. По сравнению с предыдущей работой - “Aeronautics” легче воспринимается, он какой-то воздушный и естественный.</P>
+<P>Я не думаю, что остались те, кто не знает, что за музыку играет MASTERPLAN, но на всякий случай скажу – это мощнейший хэви-пауэр с влиянием прогрессива. Материал интересен и разнообразен: здесь есть и классические power-боевики (“Crimson Rider”, “Wounds”, “Falling Sparrow”), и среднетемповые эпики (“Back For My Life”, “Headbanger’s Ballroom”), и более лиричные композиции (“I’m Not Afraid”, “After This War”). Как говорится, на любой вкус. Кстати, одна из песен, - это “After This War” - выходила три года назад на альбоме германской speed-power-формации IRON SAVIOR, но в совершенно другой аранжировке и с другой лирикой. </P>
+<P>Альбом – глоток свежего воздуха. Рекомендуется всем.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+### 10.05.2006 news Jorn Lande покинул MASTERPLAN
+
+<P>Из-за музыкальных разногласий, вокалист <STRONG>Jorn Lande</STRONG>&nbsp;покинул группу <STRONG>MASTERPLAN.</STRONG>&nbsp;Это событие произошло при работе над третьим альбомом коллектива.<STRONG> Jorn</STRONG>&nbsp;пожелал более мелодичного развития&nbsp;<STRONG>MASTERPLAN, </STRONG>но остальные участники решили сделать новую работу более жёсткой и металлической. Оставшиеся музыканты остались недовольны решением своего вокалиста, но тот принял твёрдое решение и им осталось только сказать ему спасибо за то, что он сделал для группы и пожелать ему дальнейших творческих успехов. Сейчас, <STRONG>MASTERPLAN</STRONG> усиленно ищут нового вокалиста. </P>
+Автор: Dimas
+
+### 28.08.2006 news Новости от MASTERPLAN
+
+<P>Участники группы<STRONG> MASTERPLAN</STRONG>&nbsp;- ударник&nbsp;<B>Uli Kusch</B> и гитарист <B>Roland Grapow</B> (оба ex-<B>HELLOWEEN</B>) объявили о начале записи своего&nbsp;третьего альбома. Новый вокалист пока так и не найден, но музыканты уверяют, что это ненадолго. </P>
+<P>Также стало известно, что <STRONG>MASTERPLAN </STRONG>отыграют концерт 4 мая 2007 года вместе с <STRONG>SAXON</STRONG> в Санкт-Петербурге (ДК "Юбилейный").</P>
+Автор: Dimas
+
+### 12.10.2006 news MASTERPLAN: Минус Kusch, плюс Terrana и DiMeo
+
+<P><STRONG>MASTERPLAN</STRONG> объявили имена новыйх участников. Ими стали вокалист <STRONG>Mike DiMeo</STRONG> (<B>RIOT</B>, <B>THE LIZARDS</B>) и барабанщик <STRONG>Mike Terrana</STRONG> (<B>YNGWIE MALMSTEEN</B>, <B>AXEL RUDI PELL</B>, <B>METALIUM</B>, <B>RAGE</B>). Таким образом, вслед за вокалистом <STRONG>Jorn Lande</STRONG>&nbsp;группу покинул один из основателей барабанщик <STRONG>Uli Kusch</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.12.2006 news Новая песня MASTERPLAN
+
+<P>На сайте <STRONG>AFM Records</STRONG>&nbsp;выложен <A href="http://www.afm-records.de/de/bands/bands-Masterplan.html">кусочек</A> новой композиции группы&nbsp;<B>MASTERPLAN</B> <B>"Lost and Gone"</B>, которая войдет на её новый альбом. Также, этот трек станет заглавным для предстоящего мини-альбома коллектива, выход которого назначен на 26 января 2007 года через <B>AFM Records</B>. Это будет&nbsp;первый релиз коллектива в обновленном сотаве: вокалист <B>Mike DiMeo</B> (<B>RIOT</B>), гитарист <B>Roland Grapow</B> (ex-<B>HELLOWEEN</B>), ударник <B>Mike Terrana</B> (ex-<B>RAGE</B>), басист&nbsp;<B>Jan S. Eckert</B> и клавишник <B>Axel Mackenrott</B> (<STRONG>BEAUTIFUL SIN</STRONG>). <BR></P>
+Автор: Dimas
+
+### 06.01.2007 news Вокалист MASTERPLAN покинул RIOT
+
+<P>Новый вокалист <STRONG>MASTERPLAN Mike DiMeo</STRONG> покинул свою прежнюю группу <STRONG>RIOT</STRONG>, из-за занятости по новому месту работы.</P>
+Автор: Vit Belov
+
+### 12.01.2009 news MASTERPLAN потеряли певца
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Mike DiMeo</STRONG> подтвердил, что покинул <STRONG>MASTERPLAN</STRONG>. Несмотря на это, лидер коллектива бывший гитарист <STRONG>HELLOWEEN Roland Grapow</STRONG> объявил о начале записи нового альбома, который выйдет в мае/июне на <STRONG>AFM</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 13.01.2009 news Roland Grapow: &quot;MASTERPLAN не ищет новых участников&quot;.
+
+<P><STRONG><IMG height=350 alt="" hspace=0 src="/images/news_rus/2009.01/13355.jpg" width=234 align=left border=5>Roland Grapow</STRONG> из <STRONG>MASTERPLAN </STRONG>прокомментировал уход из группы вокалиста<STRONG> Mike DiMeo</STRONG>:</P>
+<P>"<EM>Mike остался наши другом, и мы испытываем к нему большое уважение за его талант. Но мы продолжаем работу над новой пластинкой и скоро сообщим имя нашего нового вокалиста. Пока не время говорить что-то, но вас ждёт куча новостей об этом. MASTERPLAN в данный момент не ищет новых участников</EM>".</P>
+Автор: Vit Belov
+
+### 22.04.2009 news Jorn вернулся в MASTERPLAN!!!
+
+<P>Согласно сообщению голландского журнала <STRONG>Aardschok</STRONG>, вокалист <STRONG>Jorn Lande</STRONG> вернулся в<STRONG> MASTERPLAN</STRONG>, из которого ушёл в 2006 году. Без него коллектив выпустил один альбом с певцом <STRONG>Mike DiMeo</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.06.2009 news Басист MASTERPLAN выступит с RUNNING WILD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>MASTERPLAN</STRONG> <STRONG>Jan S. Eckert </STRONG>выступит с <STRONG>RUNNING WILD</STRONG> на их прощальном шоу на<STRONG> Wacken</STRONG> этого года.</FONT></P>
+Автор: Vit Belov
+
+### 11.02.2010 news MASTERPLAN назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MASTERPLAN </STRONG>назвали свой новый альбом <STRONG>"Time To Be King", </STRONG>пластинка выйдет 16 апреля. Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 23.03.2010 news Новый альбом MASTERPLAN
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2010.03/16459.jpg" width=300 align=right border=5>Новая работа <STRONG>MASTERPLAN</STRONG> <STRONG>"Time To Be King" </STRONG>выходит 21 мая на <STRONG>AFM</STRONG>. В записи новой&nbsp;пластинки принял участие новый старый вокалист <STRONG>Jorn Lande</STRONG>. Трэк-лист:</P>
+<P>01. <B>Time To Be King</B><BR>02. <B>Fiddle Of Time</B><BR>03. <B>Lonely Winds of War</B><BR>04. <B>Blue Europa</B><BR>05. <B>Far From The End Of The World</B><BR>06. <B>The Dark Road</B><BR>07. <B>Under The Moon</B><BR>08. <B>Blow Your Winds</B><BR>09. <B>The Black One</B><BR>10. <B>The Sun Is In Your Hands</B><BR>11. <B>Kisses From You</B> (bonus track)<BR>12. <B>Never Walk Alone</B> (Japanese bonus track)</P>
+Автор: Vit Belov
+
+### 04.06.2010 news MASTERPLAN попали в чарты
+
+<P>Интернациональный проект <STRONG>MASTERPLAN</STRONG> попал в чарты со своим новым альбомом <STRONG>"Time To Be King</STRONG>". Вот позиции в зачётных странах:</P>
+<P>Germany: #31<BR>Sweden: #15<BR>Switzerland: #45</P>
+<P>Альбом вышел 21 мая на <STRONG>AFM</STRONG> и уже доступен на <STRONG>Союзе</STRONG>. Лицензионную версию пластинки можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P>Релиз&nbsp;интересен тем, что на ней в состав вернулся оригинальный вокалист проекта&nbsp;<STRONG>Jorn Lande</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.06.2010 reviews Время оправдывать авансы
+
+<P>Ты помнишь, как всё начиналось?... Как были выгнаны из HELLOWEEN барабанщик Uli Kusch и гитарист Roland Grapow, как организовали они новую группу MASTERPLAN с набирающим популярность певцом Jorn Lande в главной роли, как начал раскручивать дебютный одноимённый альбом группы динамично развивающийся лэйбл AFM, и поддержал его в этом начинании отечественный CD-Maximum? Прошло всего семь лет, и что мы видим? Где сейчас Uli Kusch и CD-Maximum? В кого из «молодого и набирающего» превратился Jorn Lande? Пожалуй, только AFM ещё в обойме.</P>
+<P>Нет нужды в подробностях останавливаться на счастливой истории MASTERPLAN. После первых двух многообещающих альбомов группу покинул Jorn, затем его примеру последовал Uli Kusch. Roland Grapow обозвал новую формацию под вывеской MASTERPLAN MK2 (Gillan, Lord, Blackmore, Glover, Paice?) и двинулся дальше. Принцип капитана Врунгеля не сработал, MK2 затонула ещё на выходе из гавани. Что оставалось делать теперь единоличному капитану этого судна? Правильно, вернуть кого-нибудь из старых товарищей. Удалось договориться с Jorn Lande, который примкнул к MASTERPLAN. Хорошо, что новый альбом не был назван MK3. Он назван по-другому “Time To Be King”. Тоже неплохо, я думаю. </P>
+<P>Мне кажется, все дрязги в MASTERPLAN на данный момент позади. Музыканты сначала не справились с нахлынувшей популярностью, но сейчас их спустило с небес на землю. Понятно, что MASTERPLAN слава HELLOWEEN не грозит, но стать крепким середняком на долгие годы им по силам. Сочинением материала для нового альбома Roland Grapow и Jorn Lande занимались вместе, это хороший знак. Jorn прекрасно знает, какая музыка подходит его голосу, он не станет петь happy-power-metal, поэтому “Time To Be King” звучит очень… правильно. С первого взгляда я не смогу найти десять отличий между этой пластинкой и последними сольниками Jorn, но парочку всё-таки отыскать можно. Например, утверждение о том, что две головы лучше, чем одна? Чем не дополнительный повод послушать MASTERPLAN? Безусловно, я не могу утверждать, какие мелодии принадлежат Grapow, а какие Lande, но они тут, в отличие от некоторых сольников господина Lande, присутствуют в приличном количестве. </P>
+<P>Пускай, личный состав MASTERPLAN не делает громких заявлений о будущих успехах (название альбома не в счёт), и нынешний вариант наводит на мысли о некоем проекте, а не о полноценной группе. У новообразованного дуэта Grapow/Lande с примкнувшим к ним клавишником Mackenrott получился хороший альбом. Очень хороший альбом, на котором легко можно обнаружить несколько хитов, а мастерство, как говорится, не пропьёшь.</P>
+Автор: Vit Belov
+
+### 27.07.2011 news MASTERPLAN Работают над новым материалом
+
+<P>Гитарист <STRONG>Roland Grapow</STRONG> и клавишник <STRONG>Axel Mackenrott </STRONG>работают над новым материалом для следующей пластинки <STRONG>MASTERPLAN</STRONG>. Альбом должен выйти в начале 2012 года на<STRONG> AFM</STRONG>. </P>
+<P>Предыдущая работа группы <STRONG>"Time To Be King" </STRONG>вышла в прошлом году и стала альбомом-возвращением для певца<STRONG> Jorn Lande</STRONG>.</P>
+<P><center><IMG height=316 src="/images/news_rus/2011.07/20336.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 10.11.2012 news MASTERPLAN вновь перетряхнули состав
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист <STRONG>Jorn Lande</STRONG> вновь покинул<STRONG> MASTERPLAN</STRONG>. Новым членом коллектива стал <STRONG>Rick Altzi</STRONG> (<B itxtHarvested="0" itxtNodeId="90">AT VANCE</B>, <B itxtHarvested="0" itxtNodeId="89">SANDALINAS</B>, <B itxtHarvested="0" itxtNodeId="88">THUNDERSTONE</B>). Также группа объявила имя нового барабанщика <STRONG>Martin "Marthus" Skaroupka</STRONG> (<B itxtHarvested="0" itxtNodeId="92">CRADLE OF FILTH</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Коллектив под управлением бывшего гитариста <STRONG>HELLOWEEN Roland Grapow</STRONG> готовит новый альбом, который выйдет в 2013 году на <STRONG>AFM</STRONG>.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.11/25030.jpg" width=490 height=279></P>
+Автор: Vit Belov
+
+### 02.03.2013 news MASTERPLAN: обложка альбома  &quot;Novum Initium&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>MASTERPLAN</STRONG> опубликовала обложку своего нового альбома, который получил название <STRONG>"Novum Initium"</STRONG> и выйдет 26 апреля на лейбле <STRONG>AFM</STRONG>.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.03/25495.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Masterplan

@@ -28,6 +28,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.08.2016 news Новая музыка ULCERATE
+
+<p>Новый альбом techno death metal группы из Новой Зеландии <strong>ULCERATE "Shrines Of Paralysis"</strong> выходит 28 октября на <strong>Relapse</strong>. Ниже можно услышать сингл "<strong>Extinguished Light</strong>" с этого альбома.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/ev4PS7Fk6j8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 24.08.2016 news New music by ULCERATE
+
+<p>New album by techno death metal band from New Zealand<strong> ULCERATE "Shrines Of Paralysis"</strong> comes out on October 28 on<strong> Relapse</strong>. Below you can hear the single "<strong>Extinguished Light</strong>" from this album.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/ev4PS7Fk6j8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.10.2016 news ULCERATE выпустили заглавный сингл с нового альбома &quot;Shrines Of Paralysis&quot;
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом techno death metal банды из Новой Зеландии <strong>ULCERATE "Shrines Of Paralysis"</strong> выходит 28 октября на <strong>Relapse Records</strong>. Заглавный трек с этого альбома можно послушать ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/DVgVXGjDkVM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.10.2016 news ULCERATE released title track from upcoming album
+
+<p>New album by techno death metal band from New Zealand <strong>ULCERATE "Shrines Of Paralysis"</strong> comes out on October 28 on<strong> Relapse Records</strong>. The title track from the album can be streamed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/DVgVXGjDkVM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

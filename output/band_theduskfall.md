@@ -108,6 +108,124 @@ Magnus Klavborn - Vocals
 
 * C группой "Gates Of Ishtar" 
 
+## Публикации
+
+### 24.09.2001 reviews Возвращение Gates Of Ishtar
+
+<p> После нескольких лет небытия возвращаются на сцену участники группы Gates Of Ishtar под новым именем и с новым материалом. Имя группе пришлось сменить из-за проблем с лэйблом, но дух группы остался тот же - теперь они называются Duskfall! Вообще, новая группа появилась почти сразу после распада Gates Of Ishtar. Сначала она называлась Soulash, но в итоге окончательно переименовалась в Duskfall. Долгое время, почти 2 года группу преследовали частые перемены в составе, что мешало их деятельности, но лидером всегда был и остается вокалист\гитарист Mikael Sandorf. Сейчас состав Duskfall это - Mikael Sandorf - Vocals / Guitars, Glenn Svensson - Lead Guitars, Oskar Karlsson - Drums - почти что Gates Of Ishtar времен At Dusk And Forever. За прошедшие 2 года было записано несколько промо, и вот последнее - Deliverance - наиболее зрелое и интересное! Когда слушаешь эти 5 песен, сразу же узнается Gates Of Ishtar, хотя есть и небольшие изменения. Если раньше в их музыке было отчетливое влияние black metal, то теперь - небольшое влияние thrash metal, которому подвержено сейчас много шведских групп. Но основа музыки Duskfall - все тот же melodic death metal, которым славились Gates Of Ishtar. В двух вещах использован женский вокал. Новый соло-гитарист Гленн пошел на пользу группе - появились красивые, хорошо сыгранные соло, которых зачастую нехватало в Gates Of Ishtar. Сейчас melodic death metal постепенно забывается, его играют все меньше групп, но такие группы как Duskfall не дадут ему умереть!</p>
+<p> Послушать новый материал Duskfall можно по адресу - http://www.mp3.com/duskfall/, или на их официальном сайте - http://www.theduskfall.com/</p>
+<p></p>
+
+Автор: Vic Thor
+
+### 08.07.2002 news Приятная новость для любителей &quot;шведятины&quot;
+
+<p>Шведы DUSKFALL - реинкарнация хорошей, но к сожалению почившей в бозе melodic death'овой команды GATES OF ISHTAR - на днях подписали контракт с греками из Black Lotus Records. Студийная сессия намечена на эту осень, а выход дебютного альбома, соответственно, на январь 2003-го года.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.09.2002 news DUSKFALL в студии
+
+<p>Шведские мелодичные дэтстеры DUSKFALL (ex-GATES OF ISHTAR) наконец-то вошли в Dug-Out studio для записи своего новейшего творения под названием "Frailty". Выход альбома намечен на начало 2003 года на греческом лэйбле Black Lotus Records.</p>
+
+Автор: Dimas
+
+### 20.11.2002 news Новый альбом DUSKFALL
+
+<p>Шведская группа DUSKFALL (ex-GATES OF ISHTAR) выпускает 30 ноября на греческом лэйбле Black Lotus Records свой новый альбом "Frailty". В альбом войдут следующие вещи:</p>
+<P> 01. The Light<BR> 02. Age Of Errors<BR> 03. Agoraphobic <BR> 04. Poison The Waters <BR> 05. None <BR> 06. Farewell Song<BR> 07. Frailty <BR> 08. Tune Of Slaughtered Hearts<BR> 09. Just Follow <BR> 10. Deliverance</>
+<p> В настоящее время по <A HREF="http://hem.bredband.net/stelej/duskfall/duskfall_downloads.html">этому адресу </A>можно прослушать три сэмпла с нового альбома группы.</p>
+
+Автор: Dimas
+
+### 26.02.2003 reviews Непрочный, но уверенный
+
+<p>Дебютный альбом шведской команды THE DUSKFALL. Вот только такой ли уж он дебютный... Всем известно, что в свое время из-за проблем с Invasion Records, в 1999 году группе GATES OF ISHTAR пришлось менять название и начинать с нуля. К сожалению, из старого состава группы остались только ее идейный вдохновитель и основной автор лирического и музыкального материала Mikael Sandorf и ударник Oskar Karlsson. В течение двух лет группа меняя состав и записывая демки пыталась привлечь к себе внимание. Наконец весной 2002 года на них обратил внимание греческий лэйбл Black Lotus и с музыкантами был подписан контракт. Альбом записывался в известной шведской студии DUG-OUT, где записывали свои последние альбомы IN FLAMES, MESHUGGAH и STRAPPING YOUNG LAD. Руководил процессом записи Daniel Bergstrand, на счету которого альбомы вышеперечисленных коллективов. В результате на свет появились десять песен мелодичного и громыхающего, интенсивного и техничного death'n'roll'a, напоминающих последнее творение GATES OF ISHTAR "At Dusk And Forever", только более технично сыгранных и более интересно написанных. Некоторые партии вокала исполнил Lawrence Mackrory из DARKANE, а все сумасшедшие и мелодичные соло которыми просто заслушиваешься на альбоме записал один из лучших шведских студийных гитаристов Magnus Olsson. Интересное оформление к альбому выполнено Set'ом (SEPTIC FLESH). Отличная работа многообещающей шведской команды. Главное, не останавливаться. Но похоже, ребята об этом и не думают. Уже на осень 2003 года намечен выпуск второго альбома. Подождем... А пока, мои настоятельные рекомендации всем любителям melodic death metal обязательно заиметь этот альбом в свою коллекцию.</p>
+
+Автор: Dimas
+
+### 01.06.2003 news THE DUSKFALL начинают работу над новым альбомом
+
+<p>Шведские мелодик-дэтстеры THE DUSKFALL начали работу над своим новым альбомом. Запись альбома запланирована на август-сентябрь, а его выход - в конце года на Black Lotus Records. Новым гитаристом группы стал Joachim Lindback. Новый материал обещает быть еще более мелодичным, агрессивным, быстрым и техничным.</p>
+
+Автор: Dimas
+
+### 29.09.2003 news THE DUSKFALL завершили работу над новым альбомом
+
+<P>Шведские мелодик-дэтстеры <B>THE DUSKFALL</B>&nbsp;завершили работу над своим новым альбомом под названием&nbsp;<B>"Source"</B>,&nbsp;выход которого ожидается в ноябре на греческом&nbsp;<B>Black Lotus Records</B>. В него войдут девять трэков записанных в <B>Dug-Out</B> studios. В группе новый гитарист <B>Joachim Lindback</B>. На нашем сайте уже можно ознакомиться с композицией с этого альбома <B><A href="/samples/d/duskfall/2003_966.mp3">"Source".</A></B></P>
+Автор: Dimas
+
+### 01.04.2004 news The Duskfall покинул гитарист
+
+Шведские melodic-death металлисты <B>THE DUSKFALL</B> расстались с гитаристом <B>Joachim Lindb&#228;ck</B>. Официальная причина - отсутствие достаточного времени для работы в группе, из-за желание проводить больше времени с семьёй. Группа будет искать нового музыканта, а временной заменой станет <B>Lars L&#246;fven (DEFLESHED).</B>
+Автор: Vit Belov
+
+### 23.09.2004 news THE DUSKFALL на Nuclear Blast!!!
+
+<P><STRONG>THE DUSKFALL</STRONG> подписали контракт с <STRONG>Nuclear Blast</STRONG>. Группа будет записывать новый третий альбом в <STRONG>Dug-Out</STRONG> studio с продюсером <STRONG>Daniel Bergstrand</STRONG> (<B>IN FLAMES</B>, <B>MESHUGGAH</B>, <B>STUCK MOJO</B>) в апреле 2005 года.&nbsp;</P>
+Автор: Vit Belov
+
+### 13.01.2005 news THE DUSKFALL потеряли басиста
+
+<P>Басист <STRONG>Kaj Molin</STRONG> покинул <STRONG>THE DUSKFALL</STRONG>. Имя нового музыканта пока не названо, но группа не сомневается, что в апреле войдёт в <STRONG>Dug-Out Studios</STRONG> с продюсером <STRONG>Daniel Bergstrand</STRONG> (<STRONG>IN FLAMES</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>STUCK MOJO</STRONG>) для записи своего нового альбома для <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.01.2005 reviews Не очень оригинальный, но качественный продукт
+
+<P>The Duskfall - в принципе, та же самая группа, что некогда называлась Gates Of Ishtar и была одной из групп, ответственных за окончательное становление стандартов шведского мелодичного дэта. Выпустив три альбома (в 1996, 1998 и 1999-м годах), Gates Of Ishtar развалились. Спустя несколько лет они возродились под другим именем (The Duskfall) и выпускают уже второй альбом под этим названием. "Source" музыкально мало чем отличается от своего пgредшественника "Frailty", вышедшего в 2002 году (единственное существенное отличие - на этот раз отсутсвует гостевой "чистый" вокал Лоуренса Макрори известного по Darkane). По сути, эта пластинка - музыкальные наработки Gates Of Ishtar, только с современным саундом, более грамотными аранжировками и выполненные на более высоком техническом уровне; музыка менее скоростная и "злая", нежели у Gates Of Ishtar. Материал представляет из себя большей частью среднетемповый и весьма мелодичный дэт, по современным меркам почти ничем не примечательный, т.к. уже десятки команд всё это переиграли. В случае с The Duskfall, конечно, можно сделать скидку на то, что, в принципе, это те люди, что сами и сформировали эти стандарты во второй половине 90-х, оказав влияние на большую часть мелодик-дэтовых коллективов, но вот только сами оказались за бортом и своим "ветеранством" воспользоваться вовремя не смогли. Остаётся надеяться, что третий релиз шведов нас хоть чем-нибудь удивит, а пока поклонники стиля (но, фактически только они!) могут наслаждаться этим не очень оригинальным, но качественным продуктом. Кстати, некоторое время назад The Duskfall попали под крылышко Nuclear Blast. Как это отразится на их творчетве? Поживём - увидим...</P>
+<P>Диск предоставлен <a href="http://www.cd-maximum.ru">CD-MAXIMUM</a></P>
+Автор: Seducer
+
+### 01.03.2005 news Новости от THE DUSKFALL
+
+<P>Стало известно название нового альбома шведской команды&nbsp;<B>THE DUSKFALL.&nbsp;</B>&nbsp;Их третий альбом будет называться&nbsp;<B>"Lifetime Supply of Guilt"</B> и выйдет 19 сентября на <B>Nuclear Blast Records</B>. Запись планируется в шведской студии <STRONG>Dug-Out, </STRONG>в апреле, с продюсером&nbsp;<B>Daniel Bergstrand</B> (<B>IN FLAMES</B>, <B>MESHUGGAH</B>, <B>STUCK MOJO</B>).</P>
+Автор: Dimas
+
+### 03.06.2005 news Новый альбом THE DUSKFALL
+
+<P>Шведские модерн-трэшеры&nbsp;<B>THE DUSKFALL</B>&nbsp;заканчивают работу над своим новым альбомом&nbsp;<B>"Lifetime Supply of Guilt"</B>,&nbsp;выход которого ожидается 19 сентября на&nbsp;<B>Nuclear Blast R</B><B>ecords</B>. Продюсер альбома - <STRONG>Daniel Bergstrand.</STRONG> Трек-лист:<BR>1. <B>Trust Is Overrated</B><BR>2. <B>The Shallow End</B><BR>3. <B>Break The Pact</B> <BR>4. <B>A Stubborn Soul</B><BR>5. <B>Shoot It In</B><BR>6. <B>Going Down Screaming</B><BR>7. <B>Hours Are Wasted</B><BR>8. <B>Sympathy Has Decreased</B><BR>9. <B>Downright Dreadful</B><BR>10. <B>Relive Your Fall</B><BR><BR></P>
+Автор: Dimas
+
+### 20.10.2005 reviews От GATES OF ISHTAR ничего не осталось
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>THE DUSKFALL</STRONG> попали на <STRONG>Nuclear Blast</STRONG> и... Так начать рецензию я решил ещё до прослушивания этого альбома. Ну, что ж... И... И... Группа поняла, что от неё ждут и выпустила такой альбом, чтобы не слишком выделяться из кучи подобных банд, которые на <STRONG>Nuclear Blast</STRONG> любят. Вот, например, вспоминается <STRONG>DEW-SCENTED</STRONG>, которые по непонятным мне причинам до сих пор находятся в фаворе у немецких монстров. "<STRONG>Lifetime</STRONG>..." - стандартнейший melodic-death-thrash альбом, на котором зацепиться просто не за что. Почти сорок минут однообразной долбёжки с редкими мелодическими вставками, которые не только не спасают, но, скорее, топят, пластинку. Ведь и thrash-metal' ом здесь пахнет, из-за этого, не так сильно. Какой-то непонятный суррогат - однообразие трэша, какая-то мягкость от мелодик дэт металла и упёртость новомодных металлических команд.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Об этом мы уже рассказывали не раз. Вероятно, в Европе эти вещи пользуются успехом, но не у нас. Можно, конечно, до бесконечности повторять о том, что <STRONG>THE DUSKFALL</STRONG> - это бывший <STRONG>GATES OF ISHTAR</STRONG>, но уши ещё у слушателя есть (какой же он слушатель без ушей:)). И эти уши не дадут вас обмануть - от <STRONG>GATES OF ISHTAR</STRONG>, нежно любимых всеми поклонниками melodic-death прошлого века, ничего не осталось.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ну, практически ничего... Только песня "<STRONG>Shoot It In</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен Irond<BR></P></FONT>
+Автор: Vit Belov
+
+### 06.03.2006 news DEICIDE выступят на фесте Nummirock
+
+<P>Сатанисты <B>DEICIDE</B> объявили об участии в 20-ом по счету фестивале <B>Nummirock</B>, который пройдет 23 и 24 июня в городке Нуммиярви, Финляндия. Также перед публикой выступят такие исполнители, как <B>HYPOCRISY</B>, <B>MARDUK</B>, <B>THE DUSKFALL</B>, <B>DIABLO</B>, <B>AMORPHIS</B>, и менее известные коллективы, окончательный список которых еще уточняется.</P>
+<P>Подробности ищите на сайте <A href="http://www.nummirock.fi/2006/">http://www.nummirock.fi/2006/</A></P>
+Автор: Ixtiandr
+
+### 02.04.2007 news THE DUSKFALL пишут новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>THE DUSKFALL</STRONG> находятся сейчас в <STRONG>Dug-Out Studio</STRONG>, где записывают барабаны к новому альбому "<STRONG>The Dying Wonders Of The World</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 04.07.2007 news Новый альбом THE DUSKFALL
+
+<P>Четвёртый альбом <STRONG>THE DUSKFALL</STRONG> <STRONG>"The Dying Wonders of the World"</STRONG> выходит в этом году на<STRONG> Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>Paradises into Deserts</B><BR>02. <B>The Wheel and the Blacklight</B><BR>03. <B>Deep in Your World</B><BR>04. <B>Some More Sin on My Burden</B><BR>05. <B>Shadows and Cancer</B><BR>06. <B>Bring Us Your Infected</B><BR>07. <B>The Option and The Poison</B><BR>08. <B>Sealed with a Fist</B><BR>09. <B>I've Only Got Knives for You</B></P>
+Автор: Vit Belov
+
+### 24.08.2008 news THE DUSKFALL распались
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>THE DUSKFALL</STRONG> прекратили своё существовани после того, как группу покинул главный композитор <STRONG>Mikael Sandorf.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 01.10.2014 news Возвращение THE DUSKFALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом-реюнион шведов <STRONG>THE DUSKFALL "Where The Tree Stands Dead"</STRONG> выйдет в конце ноября на<STRONG> Apostasy Records</STRONG>. Мастеринг альбома сделал <STRONG>Ahti Kortilainen (SENTENCED, SONATA ARCTICA)</STRONG>. Напомни, группа распалась в 2008 году, она известна тем, что является правопреемницей знаменитого шведского коллектива<STRONG> GATES OF ISHTAR</STRONG>. Трек-лист:</FONT></P>
+<P><STRONG>"To The Pigs"<BR>"Farewell"<BR>"I Can Kill You"<BR>"Where The Tree Stands Dead"<BR>"We The Freaks"<BR>"Endgame"<BR>"Hate For Your God"<BR>"The Charade"<BR>"Burn Your Ghosts"<BR>"Travesty"<BR>"We Bleed"</STRONG> &nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.10/27336.png" width=410 height=410> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

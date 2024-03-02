@@ -280,6 +280,464 @@ The double album's first cd is called Alpha Noir, the second one is Omega White.
 
 * C группой "Daemonarch" 
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Moonspell выпустят новый альбом в сентябре. Сейчас музыканты заняты пре-продукцией альбома.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Moonspell записывают новый альбом под названием "The Butterfly Effect". Он выйдет в конце сентября - начале октября.</p>
+
+Автор: Vit Belov
+
+### 02.10.1999 reviews 
+
+<p>60 минут полного отстоя. После того как вышел "Sin/Pecado" я поставил на группе крест. Правда потом они почти отбелились в 1998, в проекте DAEMONARCH "Hermeticum" Но "The Butterfly Effect" это уже слишком... Думаю, что MOONSPELL ждет участь PYOGENESIS и PARADISE LOST - их исключат из всех metal-справочников. Остается надеяться, что хоть DAEMONARCH выживет. И наконец моя уже дежурная фраза: "Очередной классный DOOM коллектив распадается на слюни и сопли" 0 из 10.</p>
+
+Автор: Dimas
+
+### 21.03.2000 news 
+
+<p>Moonspell сейчас гастролирует по Европе вместе с Kreator и Witchery. К нам же приедет только Kreator и выступит в Горбушке пятого марта.</p>
+
+Автор: Vit Belov
+
+### 25.02.2001 news Moonspell заканчивают работу над новым альбомом.
+
+<p> Moonspell в настоящее время заканчивают сочинение материала для своего пятого альбома. Этот альбом, получивший название "Darkness And Hope", планируется записать в апреле-мае в Finnvox Studios в Хельсинки. Продюсером будет Хиили Хиилисмаа, создавший себе репутацию работой с такими группами, как HIM, Apocalyptica, Sentenced. В результате должна получится изящная смесь мрачнейших настроений, прекрасных мелодий и самой тяжелой атмосферности, какую Moonspell когда-либо записывали.</p>
+
+Автор: Morsus
+
+### 25.02.2001 news Moonspell are finishing up a  work for new album.
+
+<p> Moonspell are currently finishing up a composition work for their fifth album. Entitled "Darkness And Hope", this album is scheduled to be recorded between April and May at Finnvox Studios, Helsinki. The production will be at the care of Hiili Hiilesmaa, whose producing reputation includes names such as HIM, Apocalyptica, Sentenced. All this is being wrapped in an exquisite mixture of the darkest ambients, the greatest melodies and the heaviest atmospheres that MoonSpell has ever wrote.</p>
+
+Автор: Morsus
+
+### 28.02.2001 news MOONSPELL - Darkness And Hope
+
+<p>MOONSPELL заканчивают сочинение новых песен для пятого полноформатника "Darkness And Hope", запись которого планируется на Апрель 2001. Уже стали известны некоторые песни: 'Firewalking', 'Nocturna', 'Devilred', 'Made Of Storm', 'Than The Serpents In My Arms' и 'Ghostsong.'</p>
+
+Автор: Yermola
+
+### 28.02.2001 news MOONSPELL news
+
+<p>MOONSPELL are currently finishing up the writing of their fifth and forthcoming album, Darkness And Hope, set to be recorded at Finland's Finnvox Studio in April and May. Songs set to appear on the album include: 'Firewalking', 'Nocturna', 'Devilred', 'Made Of Storm', 'Than The Serpents In My Arms' and 'Ghostsong.'</p>
+
+Автор: Yermola
+
+### 28.03.2001 news Мрак и Надежда....
+
+<p>Португальцы MOONSPELL объявили об участии специальных гостей в записи "Darkness And Hope". Это Adolfo Lux&uacute;ria Canibal из культовой команды M&Atilde;O MORTA и португальский мастер сюрреалистической поэзии M&aacute;rio Cesariny. Данные товарищи будут сотрудничать при изготовлении “Than The Serpents In My Arms”. Также на диске будет кавер-версия “Os Senhores da Guerra” ("MADREDEUS"). Полный трек-лист: 01. Firewalking 02. Nocturna 03. Devilred 04. Made Of Storm 05. Than The Serpents In My Arms 06. Ghostsong 07. How We Became Fire 08. Psikik Vampire 09. Darkness And Hope 10. Heartshaped Abyss 11. Os Senhores da Guerra</p>
+
+Автор: Yermola
+
+### 28.03.2001 news Darkness And Hope release....
+
+<p>Portugal’s MOONSPELL have announced that their forthcoming Darkness And Hope release will feature a special appearance by Adolfo Luxъria Canibal, the illustrous singer/storyteller from Portuguese cult band MГO MORTA. Adolfo will apparently be narrating a quote from “Portuguese master of surrealistic poetry” Mбrio Cesariny that MOONSPELL will be incorporating, in their native language, into a new song entitled “Than The Serpents In My Arms”. Darkness And Hope is also set to include MOONSPELL’s version of the track “Os Senhores da Guerra” (“the war lords”), which was originally written and recorded by MADREDEUS, “the most significant band of ethnic/world music hailing from Portugal and the most international Portuguese ensemble ever in the Portuguese musical history”. The tentative track listing for Darkness And Hope is now shaping up as follows: 01. Firewalking 02. Nocturna 03. Devilred 04. Made Of Storm 05. Than The Serpents In My Arms 06. Ghostsong 07. How We Became Fire 08. Psikik Vampire 09. Darkness And Hope 10. Heartshaped Abyss 11. Os Senhores da Guerra</p>
+
+Автор: Yermola
+
+### 14.09.2001 reviews Мрак, подающий надежду
+
+<p>Мрак подающий надежду. Пятый альбом португальцев заставляет вспомнить о былых заслугах группы и позволяет ей более-менее восстановить свое славное имя. Вокал Fernando Ribeiro стал более зрелым и равномерным, смешанным с тональными контрастами и изобретательным звукообразованием гитариста Ricardo Amorimа и клавишника Pedro Paixao. Музыка выдержана в мрачных готических тонах в духе "Irreligious" с некоторым влиянием финского готик-металла и очаровывающей вампирической окраской. Что особенно радует, так это почти полное отсутствие электронных фишек. Это конечно же не возвращение к корням и этому альбому не суждено стать таким же удачным как первые два альбома группы, но по сравнению с альбомами группы среднего периода, он выигрывает по всем статьям. Жесткая музыка, тяжелые как смерть гитарные риффы, атмосферные как глубокий сон клавишные, интересные мощные и яростные ходы и вокальные линии. Мощный меланхоличный и эпический альбом. На закуску метал-версия народной португальской песни "Os Senhores Da Guerra", а обладатели американского издания диска также смогут прослушать кавер-версию песенки Ozzy Osbourne "Mr.Crowley". В придачу ко всему этому мультимедийное приложение из двух клипов "Magdalene" и "Butterfly FX". Наслаждайтесь...</p>
+
+Автор: Dimas
+
+### 30.10.2001 news Italy&#39;s LACUNA COIL and Portugal&#39;s MOONSPELL will join forces for a North American tour...
+
+<p>Italy’s LACUNA COIL and Portugal’s MOONSPELL will join forces for a North American tour that will take place during December. The confirmed dates are as follows: <BR> <BR> Dec. 05 – Philadelphia, PA @ The Trocadero <BR> Dec. 06 – Springfield, MA @ Jaxx <BR> Dec. 07 - Brooklyn, NY @ L'Amour (w/GRAVES) <BR> Dec. 08 – Worcester, MA @ Paladium <BR> Dec. 09 – Montreal, QC @ Foufounes <BR> Dec. 10 – Toronto, ONT @ Foufounes <BR> Dec. 11 – Detroit, MI @ I-Rock <BR> Dec. 12 – Cleveland, OH @ Agora Ballroom <BR> Dec. 13 – Aurora, IL @ Riley's Rock House <BR> Dec. 14 – Milwaukee, WI @ Rave Bar <BR> Dec. 15 – Minneapolis, MN @ Askot <BR> Dec. 17 – Denver, CO @ Bluebird Theatre <BR> Dec. 19 - San Francisco, CA @ The Pound <BR> Dec. 20 - Los Angeles, CA @ Whiskey</p>
+
+Автор: Yermola
+
+### 05.12.2001 news MOONSPELL едут в Россию!!!
+
+<p>Любимцы публики португальцы "MOONSPELL" дадут два коцерта в России! Даты шоу таковы: <BR><BR> 25 января 2002 - Москва "Дружба"<BR><BR> 26 января 2002 - Санкт-Петербург</p>
+
+Автор: Yermola
+
+### 05.12.2001 news MOONSPELL have lined up two gigs in Russia ...
+
+<p>Portugal’s MOONSPELL have lined up two gigs in Russia during January. The dates are as follows: <BR><BR> Jan. 25 - Moskau, RUS @ USH "Druzhba" <BR><BR> Jan. 26 - St. Petersburg, RUS @ LDM</p>
+
+Автор: Yermola
+
+### 08.01.2002 articles К российскому концерту готовы! - Репортаж с концерта MOONSPELL и LACUNA COIL
+
+<p>Ну что? Продолжу серию своих репортажей с концертов, которые я посещаю,находясь в стране, которую многие из вас на дух не переносят, а может просто завидуют?:) Так вот пока достопочтенные мастдайцы угорали в Р-Клубе на концерте «ЭПИДЕМИИ», я проводил время не менее полезно, слушая очень знакомые вам команды- итальяшек LACUNA COIL и португальцев MOONSPELL. Но обо всем по порядку. Проходил концерт в клубе “The LAB” что находится в городе St. Paul штат Миннесота. Я был в этом клубе впервые, и каково же было мое удивление, что он по размерам оказался гораздо меньше, чем московский «Р-Клуб».То есть входишь-перед тобой бар, пара бильярдных столов, несколько столиков для посетителей, далее в зал –тоже бар и несколько столиков. Сцена по размерам тоже как в Р-Клубе – достаточно тесная-ну и перед ней пространство-для хэдбенгеров. Народу пришло человек 150. Интересно сколько было на Эпидемии? Но это даже к лучшему-я мог свободно перемещаться по залу-хотя там особо и некуда:). Когда мы с другом вошли в зал- на сцене играла первая разогревающая команда, название которой осталось для меня тайной. Играли псевдо дум-с женским вокалом. Вокалистка клево косила под Лив Кристин-было очень даже похоже-но сам материал скучный.Далее вышли блэкари из Theatre of Macabre. И как это обычно бывает с блэк-бандами , подвел их звук, хотя материал заслуживал внимания, очень неплохо слушались клавиши, да и на сцене ребята держались очень интересно. Следущая и последняя разогревающая команда играла что то типа Guano Apes – толстая вокалистка прокуренным голосом пыталась извлекать звуки в тему- но получалось это у нее слабо и мы пошли в бар пить очередное пиво. <BR><BR> Рядом с барной стойкой стоял стол на котором был разложен всякий мерчандайзинг.И какого же было мое удивление, когда я рядом увидел одиноко стоящего с бутылкой позорного американского пива Budweiser Фернандо Рибейра(вокалист MOONSPELL- кто не знает:) . Меня это просто убило-америкоты не знали на какой концерт пришли что ли?- он сам с этого офигевал:) Ну я спокойно подошел обратился к нему по имени, представился, представил кореша и сказали что мы русские фэны Moonspell- чувак сразу оживился и подняв бутылку с пивом произнес по-русски, «ЗА ЗДОРОВЬЕ»:)))))).Это единственное что он знал по-русски.Но после этого концерта словарный запас русских слов музыкантов LACUNA COIL и MOONSPELL заметно обогатился, так как я внес маленький вклад в это дело, но обо всем по-порядку. Во первых я спросил Фернандо о предстоящем концерте в Москве с To/Die/For и он сказал-«да, это не 3,14здежь, действительно будем играть в феврале, спросил сколько народу придет на их концерт в России?»-ну я ответил что тысячи две фэнов они вполне способны собрать, а может и больше?:).Далее спросил какие песни они будут играть сегодня, и будут ли играть хит всех времен и народов «Альма Матер», а то я ее в исполнении «Батерфляй Темпл» слышал на концертах и на кассете, а надо бы в оригинале?:). Ответ был удручающим-они будут играть новые песни плюс совсем немного старых хитов, и хит «Опиум» которые они считают своей самой удачной песней, а «Альма Матер» и другое старье они оставили для концерта в Москве(ну и повезло же кому-то), так как в Америке они уже третий раз.Кстати мой друг был на их прошлом выступлении вместе с In Flames. На это подошедший MOONSPELLовский барабаннер ответил-« С In Flames мы в не очень хороших отношениях, а вот с Аморфисом!Клевые ребята:)» Так же я порекомендовал Фернандо поменьше петь чистым вокалом и побольше гроулингом, на что он ответил, что ему нравится и так и так, ну хозяин-барин что тут сказать:).Далее я спросил его как он оценивает шансы португальской сборной на ЧМ 2002 и попал в точку! Ребята оказались родственными душами! А когда я им назвал парочку португальских футболистов ,похвалив их игру-Луиша Фигу(кого же еще:) и Нуно Гомеша, так чуть не расцеловали меня от гордости за свой футбол . Так же они хорошо знают наших игроков-как выступавших в португальских клубах(Овчинников, Юран,Кульков, Аленичев) так и Мостового с Карпиным и игроков сборной СССР(Дасаев, Михайличенко, Алейников,Демьяненко). И сказали что желают, чтобы Португалия в финале ЧМ встретилась с Россией и победила, на что я сказал-«А вот Х#й вам а не кубок Мира:)» <BR><BR> Далее барабанщик пригласил нас за стол где сидели остальные музыканты Moonspell и Lacuna Coil(кроме вокалистки). Стали пить пиво и общаться. Я особо скорешевался с гитаристом Лакуны, который черный и волосатый(на мастдайской фотке он слева). Они ребята из Милана,и болельщики АС Милан, очень уважают наших -«ШЕВА»-как он сказал с жутким акцентом и Каху Каладзе:) Еще я задал лакуновцам вопрос-«Что они думают о волне италльянского павера(Rhapsody e.t.c), захлестнувшей мир в последнее время?». Ответ был дан прямо по-ангарски – ГОГНО(SUCKS то-есть)-что поделаешь, конкуренты:)? Они конечно уважают Луку Турилли как музыканта, но то что он делает –ГОГНО – и я с ними как ни странно согласился, и что они очень любят такие итальянские команды как Bulldozer и Death SS. Еще я спросил MOONSPELовцев- какие русские группы вы ребята знаете, на что они в один голос ответили- SHAH(Шах то-есть) и Фернандо пропел мне одну строчку, кажется с Beware- больше не знают ничего- даже весьма раскрученный на западе Mental Home – вот вам ребята и российская метал-сцена:( На последок я получил автографы Мунспеловцев и Лакуновцев и пошел с пивом слушать их в зал-разогрев уже отыграл. Весь народ в клубе тоже потянулся в зал.Было темно и потом свет резко вспыхнул- и на сцене 4 колбасящиеся в угаре фигуры-LACUNA COIL. Рубились ребята очень душевно-да и все зрители с ними. Позволю сделать себе небольшое отступление. Раньше, слушая LACUNA COIL на дисках, они меня особо не впечатляли – ну что за сопли, думал я, да еще с бабским вокалом. После концерта мнение об итальяшках у меня полностью перевернулось- просто это надо один раз услышать в живую-на отличном звуке-который настроил звукач.Как можно играть тяжело и красиво! Вокалистка поет просто обалденно-такой клевый женский вокал я слышал в первый раз-очень разнообразно-диапазон огромный и сама девочка очень симпотная итальяночка такая-правда с обручальным кольцом на руке:) – Тарья отдыхает:) Одета она была в красную, пеструю юбочку и такой же пиджачок. А все мужики-музыканты, включая свободного вокалиста-в плащах до пола- очень красиво смотрелись-да еще рубящиеся по полной!Мужской вокал очень агрессивный, красиво сочетался с вокальными выкрутасами вокалистки- и вообще это было нечто! Теперь о репертуаре в двух словах. Играли в основном песни с нового альбома, и все достаточно жесткие. Начали с Heir of a Dying Day. Потом со старого альбома- и так чередовали. Репертуар подобрали очень хорошо-зал завелся с пол-оборота и угорал до конца! Выступление длилось минут сорок-но мне показалось мало!Хотелось еще. А тем временем на сцену вышли и настраивались хэдлайнеры- MOONSPELL. Настройка была недолгой – опять погас свет и вот они – MOONSPELL – с песней Than the Serpents in my Arms с нового альбома! Зал сразу подхватил ритм и начал рубиться, сразу вслед за ней без паузы зарубили Heartshaped Abyss с того же альбома-которая Never resist…. Когда закончили Фернандо снял с себя шляпу и плащ и тут я услышал звуки «Волчьей тени» с какого как вы думаете альбома? Правильно-угадали! Рубилово пошло не на жизнь а на смерть-да и музыканты от зрителей не отставали-полностью выкладывались на сцене.Клавишник, он же второй гитарист, попеременно играл то на клавишах то на гитаре, а рядом с барабанщиком была какая то штука с монитором-которая издавала звуки с эффектами. Затем пошла заглавная песня c «Эффекта Бабочки», за ней опять новье. А потом заиграла песня «Опиум» с «Иррелиджиуса». Что творилось в зале- не передать - все 150 человек дружно подпевали-рубясь в угаре!Затем опять пошли «Бабочка» и новье! И еще единственная песня с «Син/Пекадо» - про Бога сделанного ручками:).После нее опять новая вещь-Devil Red после которой казалось все-окончен концерт?Вы тоже так подумали?-А хрен вам. Фернандо объявил кавер Оззика «Мистер Краули»который так же есть на последнем альбоме- очень здорово прокатила-и соляу чувак сыграл 1 в 1! Ну и в заключении «Полнолунное Безумие» с «Иррелиджиуса»-достойный финал отличного концерта! <BR><BR> И теперь я напоследок скажу, какие же слова по-русски выучил вокалист Мунспелла , сеньор Фернандо Рибейра- «ТЫ КРАСИВАЯ ДЕВУШКА», «Я ТЕБЯ ХОЧУ» и «СПАСИБО» - так что девушки-мастдайки-москвички- не упустите свой шанс!!! Он у вас очень неплохой:))))))</p>
+
+Автор: rjh
+
+### 22.08.2002 news Moonspell continue rocking ...
+
+<p>Moonspell continue rocking though the busy European festival season that will take them through the month of August. The festivals are happening all across the continent, including Spain, Belgium, Portugal, Germany and Holland.</p>
+
+Автор: Yermola
+
+### 07.10.2002 news THE BURDEN OF DISEASED ANGELS ...
+
+<p>Carlos Cariano (vocals/guitarist) of Portuguese metal blasters Malevolence is actually contributing with his terrorising skills to overcome with extreme lyrical content and vocals on the Portuguese industrial metal project Angel. Tracks such as Colonize and We Work The Bloody Work are just 2 of the songs set to appear on the next studio recording of this awesome project. Joaquim Aires (ex-Sacred Sin - ex-Disaffected), is the mentor of this project that has already release a studio work back on year 2000 including the participation of Fernando Ribeiro of Moonspell. Expect a few more developments on this project.</p>
+
+Автор: Yermola
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 16.01.2003 news Концерты GOST Music Int. в феврале
+
+<p>8 февраля на сцене Московского Дворца Молодежи (МДМ; Комсомольский пр., д. 28, м. "Фрунзенская") выступят легенды немецкого heavy metal GRAVE DIGGER. <BR> Начало концерта в 19:00. <BR> В концерте принимает участие московская power metal группа SHADOW HOST. <BR> Цены на билеты: танцевальный партер - 600 рублей; балкон - 800 рублей; VIP - 1000 рублей.</p>
+<p> 22 февраля Москву второй раз посетят одни из лидеров современной рок-сцены MOONSPELL. Концерт состоится также в МДМ. <BR> В концерте примут участие BUTTERFLY TEMPLE (Москва). <BR> Цены билетов: 600 руб, 800 руб, 1000 руб. <BR> Начало концерта в 19.00.</p>
+
+Автор: Dimas
+
+### 11.02.2003 news Новый альбом Moonspell уже готовится
+
+<p>Moonspell в настоящее время занимаются черновой записью своего нового альбома в собственной студии Inferno в Португалии вместе с Вальдемаром Сорихтой, продюсировавшем "Wolfheart", "Irreligious" и "Sin". Название альбома пока держится в тайне, также как и время окончательной записи. Можно лишь сказать, что Moonspell хотели бы записаться, как и в прошлый раз, в студии Finnvox с Хиили Хиилисмаа. Подробнее о том, что это будет за альбом, известно только то, что песни на этот раз будут в большей степени личными, чем написанные когда-либо прежде, с особенно сильной лирической составляющей, посвящённой главным образом теме ужаса, а точнее противопоставлению красоты и ужаса и всему, что умещается между этими двумя категориями. Названия некоторых композиций уже известны: "The Southern Deathstyle", "Lunar Still", "From lowering skies", "In and above Men", "Everything invaded".</p>
+
+Автор: Morsus
+
+### 11.02.2003 news Moonspell are working on new album
+
+<p>Moonspell are currently pre-producing their new album in Portugal at their very own Inferno studios together with Waldemar Sorychta ("Wolfheart", "Irreligious" and "Sin" producer). The title of the album is to be kept a secret for now as well as further details in recordings and timings. So far band can advance it is their wish to produce with Hiilii H. at Finnvox again as they stated previously. The artwork will be in charge of W.Blasiak, creator of the "Darkness and Hope" imaginarium, and the photos will be under the spell of long time Moonspell's collaborator Paulo Moreira. As for the direction, it is, so far, the greatest, strongest and most personal songs Moonspell ever wrote. The ambient is both very classical and spiritual served by an intense lyrical support mainly focused in horror fiction, a clash between horror and beauty and what is in between those two dimensions. Some of the songs which will be featured are: "The Southern Deathstyle", "Lunar Still", "From lowering skies", "In and above Men", "Everything invaded", among several others.</p>
+
+Автор: Morsus
+
+### 17.02.2003 news MOONSPELL снова в Москве
+
+<p>22 февраля 2003 года Москву во второй раз посетят одни из лидеров мировой gothic/doom сцены - португальцы <I><B>MOONSPELL</B></I>. Группа выступит на сцене Московского Дворца Молодежи (МДМ; Комсомольский пр., д. 28, м. "Фрунзенская"). В концерте примут участие <I><B>BUTTERFLY TEMPLE </B></I>(Москва). <BR> Билеты продаются в кассах МДМ, МТЗК, метро,в рок-магазинах: Зиг-Заг, Рок-Арсенал, у Дяди Бори и на точках на Горбушке.<BR> Цена на билеты: партер - 600 рублей, VIP-ложа - 1000 рублей. <BR> Начало концерта в 19:00. <BR> Организатор концерта - <A HREF="http://www.gostmusic.ru/">GOST Music</A>.</p>
+
+Автор: Dimas
+
+### 18.02.2003 news MOONSPELL в Москве - 2
+
+<p>22 февраля, в 14:00 в помещении "Горбушкиного двора" (Ля-ля парка) (2-й этаж) пройдет сессия автографов музыкантов MOONSPELL.<BR> Вечером 22 февраля в клубе "Релакс" (ул. Бол. Юшуньская, 1а, корп. 6; проезд: м. "Севастопольская", "Каховская") состоится "after-party" с участием MOONSPELL и российских групп BUTTERFLY TEMPLE и ETERNAL SICK.</p>
+
+Автор: Dimas
+
+### 03.05.2003 news &quot;The Antidote&quot; от MOONSPELL
+
+<p>Португальцы MOONSPELL объявили о выходе в конце лета 2003 года на Century Media Records своего нового альбома под названием "The Antidote". Он был записан в Finnvox Studios с продюссером Hiili Hiilesmaa (H.I.M., SENTENCED, AMORPHIS). В альбом войдут следующие вещи:</p>
+<p> 01. Everything Invaded <BR> 02. The Southern Deathstyles <BR> 03. Antidote <BR> 04. In And Above Man <BR> 05. From Lowering Skies <BR> 06. Capricorn At Her Feet <BR> 07. Lunar Still <BR> 08. A Walk On The Darkside <BR> 09. Crystal Gazing <BR> 10. (The) Darkening<BR> 11. As We Eternally Sleep On It</p>
+
+Автор: Dimas
+
+### 04.05.2003 news A word from the MOONSPELL men from Portugal...
+
+<p>"Moonspell has just finished the recordings for their forthcoming new album in Finlandґs premier studio Finnvox. Hiili Hilesmaa (HIM, Apocalyptica, Amorphis) was in charge of producing and mixing the most powerful and visual album of the band so far. This album, The Antidote, will be groundbreaking for the band and, so to speak, for the style MOONSPELL is involved in. There is not a doubt about it." <BR><BR> The final tracklisting for the album is as follows: "Everything Invaded," "The Southern Deathstyles," "Antidote," "In And Above Man," "From Lowering Skies," "Capricorn At Her Feet," "Lunar Still," "A Walk On The Darkside," "Crystal Gazing," "(The) Darkening," and "As We Eternally Sleep On It."<BR><BR> MOONSPELL will be performing live at the following European shows & festivals:<BR><BR> May 5th - Queima das Fitas - Oporto, Portugal<BR> May 11th - Queima das Fitas de Faro, Portugal<BR> July 6th - With Full Force Festival - Leipzig, Germany<BR> June 26th - 28th - Derrame Rock - Langreo, Spain<BR> July 12th - Avrika Festival - Sweden<BR> July 18th - Faceco - Odemira, Portugal</p>
+
+Автор: Yermola
+
+### 31.05.2003 news Новости от MOONSPELL
+
+<p>29 сентября объявлено на Century Media Records датой выхода нового альбома португальцев MOONSPELL "The Antidote".</p>
+
+Автор: Dimas
+
+### 15.10.2003 reviews Антидот, который поможет Вам заснуть
+
+<P>Антидот от MOONSPELL. Что это такое? От чего может помочь этот препарат, кому он может пригодится? Антидоты используемые в вооружённых силах обладают мгновенным действием. Антидот от этих заслуженных gothic-португальцев мгновенно введёт в Вас в состояние прострации, граничещее с неунимаемой скукой. Уже который альбом MOONSPELL расписываются в собственном бессилии записать&nbsp;пластинку хотя бы похожую на творчество группы середины 90-х. Уже и звук утяжеляли, и звучание копировали, и гроулинг использовали... Не выходит! Мелодии не сочиняются. Зачитывание, пусть и глубокоумных, стихов Fernando Ribeiro под посредственный аккордный gothic-metal не могут подтвердить звёздный статус коллектива. На 'The Antidote' группа решила немного поиграть со звуком, используя различное звучание гитар, это, "как мёртвому припарка". Аккорды, которые используются при игре на акустике, до боли напоминают творчество подростков в подворотне, -&nbsp;"блатные" они потому что. А песня 'Antidote' очень напоминает вещь с дебютного альбома группы Duncan Pattersson (ex-Anathema) ANTIMATTER,&nbsp;которая&nbsp;была записана на пару лет раньше. Конечно же, подобное гениальное сочетание четырёх риффов могло прийти в голову и к MOONSPELL, но&nbsp;мог кто-нибудь, скажем, в 1995 году предположить, что португальцев можно будет&nbsp;упрекнуть в неком плагиате? Очень слабо...</P>
+<P><EM><STRONG>Диск предоставлен фирмой <a href="http://www.fono.ru">ФОНО</a></STRONG></EM></P>
+Автор: Vit Belov
+
+### 16.10.2003 news MOONSPELL в чартах
+
+<P><B>MOONSPELL</B> со своим новым альбомом&nbsp;<B>'The Antidote'</B> стартовали с четвёртого&nbsp;места в Португалии и с 75 в Германии.</P>
+Автор: Vit Belov
+
+### 16.10.2003 news MOONSPELL in charts
+
+<B>MOONSPELL "The Antidote"</B> made a direct entry to the <B>4th place</B> on the Portuguese Sales Chart. <B>Moonspell</B> also breaks into German charts at #75
+Автор: Vit Belov
+
+### 19.11.2003 news Type&#39;O&#39;Negative, Cradle Of Filth and Moonspell in North America
+
+11/13 Albany, NY (no Type O Negative)<BR>11/14 Worcester, MA <BR>11/15 Asbury Park, NJ <BR>11/17 Columbus, OH <BR>11/18 Grand Rapids, MI <BR>11/20 Milwaukee, WI <BR>11/21 Cleveland, OH <BR>11/22 Chicago, IL <BR>11/24 Minneapolis, MN <BR>11/25 St. Louis, MO <BR>11/26 Oklahoma City, OK <BR>11/28 Ft. Worth, TX <BR>11/29 San Antonio, TX <BR>12/01 Phoenix, AZ <BR>12/02 Los Angeles, CA <BR>12/03 Las Vegas, NV <BR>12/05 San Francisco, CA <BR>12/06 Portland, OR <BR>12/07 Seattle, WA <BR>12/09 Colorado Springs, CO <BR>12/11 Des Moines, IA <BR>12/12 Detroit, MI <BR>12/13 Pittsburgh, PA <BR>12/15 Washington DC <BR>12/16 Philadelphia, PA <BR>12/17 Hartford, CT (no Type O Negative)<BR>12/18 Montreal, QUE (no Type O Negative)
+Автор: Vit Belov
+
+### 30.11.2003 news Moonspell сняли новый видео-клип
+
+<P>Премьера нового клипа <B>MOONSPELL "Everything Invaded"</B> прошла 25 ноября в локальном шоу <B>Fuse's Uranium</B>.</P>
+Автор: Vit Belov
+
+### 21.09.2004 news MOONSPELL выпускают DVD
+
+<P><STRONG>MOONSPELL</STRONG> назвали&nbsp;выходящий в начале 2005 года&nbsp;DVD <STRONG>"Lunar Still</STRONG>". На него войдут:</P>
+<P>- <B>MOONSPELL</B> live in Katowice, Poland (2004, <B>"Antidote"</B> tour)<BR>- <B>MOONSPELL</B> live in various locations (select cuts recorded betweeen 1993 and 2004)<BR>- All video clips, including the <B>"I Will See You In My Dreams"</B> unreleased zombie video<BR>- <B>MOONSPELL</B> documentary (a band biography, including interviews with the current and past members)&nbsp;</P>
+Автор: Vit Belov
+
+### 12.10.2005 news MOONSPELL вновь в России
+
+<P><STRONG>MOONSPELL</STRONG> назначили даты концертов в России. 10 марта они выступят в клубе "Порт" в Санкт-Петербурге и 11 марта в клубе "Точка" в Москве.</P>
+Автор: Vit Belov
+
+### 10.11.2005 news MOONSPELL на SPV!
+
+<P><STRONG>MOONSPELL </STRONG>заключили трёхальбомную сделку с<STRONG> SPV</STRONG>. В настоящее время португальцы работают над новым альбомом "<STRONG>Memoria</STRONG>l" в <STRONG>Woodhouse</STRONG> с <STRONG>Waldemar Sorychta</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.02.2006 articles MOONSPELL в Москве, пресс-релиз
+
+<P>Moonspell</P>
+<P>Санкт-Петербург: 10 марта, Клуб “Порт”<BR>Москва: 11 марта, Клуб “Точка”</P>
+<P>В апреле 2006 года самая известная и самая противоречивая металлическая команда из Португалии выпускает новый альбом “Memorial”. Одними из первых новый материал услышат российские поклонники – 10 марта Moonspell выступят в Санкт-Петербурге, 11 марта – в Москве. </P>
+<P>К работе над пластинкой был привлечен талантливый продюсер Вальдемар Сорихта (Waldemar Sorychta), который участвовал в записи трех первых альбомов группы (“Wolfheart”, “Irreligious” и “Sin/Pecado”). “Memorial” будет состоять из 8-10 новых песен, в числе которых “Once it was ours!”, “Blood tells”, “Sanguine”, “Finisterra”, “Upon the blood of men” и “At the image of pain”. По словам музыкантов, это лучшая музыка, которую они когда-либо писали вместе, и этот альбом в каком-то смысле является данью уважения к сцене 90-х и командам, которые стали ее олицетворением.</P>
+<P>Moonspell непредсказуемы, они рискованно играют со звуком, неизменно разбивая границы того, что называется стилем. В то время как их легендарное демо “Anno Satanae” (1993) было исполнено в классических традициях норвежского black metal, дебютный миниальбом “Under The Moonspell” (1994) противостоял скандинавской грубости обаянием темного готического эротизма и этнических мотивов. Тем не менее, Moonspell вновь окунулись в эксперименты и, с выходом великолепного “Wolfheart” (1995), оказались на самой вершине развивающейся gothic metal сцены. Moonspell отыграли фантастически успешные шоу в Германии, Италии, Австрии, Франции, Испании. “Alma mater” и “Vampiria” взорвали европейские чарты. К концу года пластинка разошлась тиражом 50.000 экземпляров. </P>
+<P>“Wolfheart” сочетал в себе ночные кошмары, соблазнительные ритмы, глубокие эмоции, необыкновенную мелодичность и все оттенки агрессии, которые в совершенстве воплотились в гениальном альбоме “Irreligious” (1996). В “Irreligious” Moonspell присоединили к музыке новые литературные тенденции. Песня “Herr Spiegelmann” была написана под влиянием знаменитого романа Патрика Зюскинда (Patrik S&#252;sskind) “Парфюмер”, в то время как композиция “Opium” была основана на лирике португальского поэта Фернандо Пессоа (Fernando Pessoa). “Opium” стал первым видео Moonspell и довольно долго находился в горячей ротации на MTV. “Wolfheart” занимал лидирующие позиции в итальянских, австрийских, финских и голландских чартах. Весь 1996 год группа провела на гастролях, включая грандиозное турне с Type O Negative. Зрители немецкого телеканала VIVA признали Moonspell открытием года, причем в числе номинантов были такие звезды, как Marilyn Manson и Korn. </P>
+<P>В середине 1998 года состоялся релиз “Sin/Pecado”. Альбом шокировал часть поклонников исчезновением гроулинга, заметнымым облегчением саунда и появлением электронных пассажей. Но, несмотря на это, “Sin/Pecado” стал рекордсменом по количеству продаж. И в следующий тур Moonspell поехали уже в качестве хэдлайнеров, с Therion, Darkside и Anathema на разогреве.</P>
+<P>С выходом седьмого по счету альбома “Antidote” (2003) португальские металлисты в очередной раз кардинально изменили свой стиль. “Antidote” представляет следующий шаг в артистическом развитии группы. Вокал фронтмена и автора песен Moonspell Фернандо Рибейро (Fernando Ribeiro) безупречно передает все оттенки эмоций, от тихого опасения и тяжелой меланхолии до зверской воинственности, удачно сочетая чистый вокал с мощным гроулингом. Гитары с потрясающей прозрачностью создают необходимый фон между акустической нежностью и смертельной яростью. А барабанщик Майк Гаспар (Mike Gaspar) изобретает средиземноморские танцевальные ритмы в чарующей “From Lowering Skies”.</P>
+<P>Moonspell ведут активную концертную деятельность, выступая на металлических фестивалях в Европе и Америке, и известны своими незабываемыми живыми выступлениям и световыми шоу. Именно поэтому поклонники коллектива с нетерпением ожидают выхода первого DVD Moonspell “Lunar Still/13 Years of Doom”, релиз которого состоится 2006 году на лейбле Century Media. Предполагается, что DVD будет состоять из четырех разделов: запись концерта в польском Катовице (2004), концертные записи 1993-2004 годов, все видеоклипы и документальный фильм, в который войдет биография группы и интервью с музыкантами.</P>
+<P>Состав группы:</P>
+<P>•&nbsp;Ricardo Amorim - гитара <BR>•&nbsp;Pedro Paixao - клавишные <BR>•&nbsp;Mike Gaspar - ударные <BR>•&nbsp;Fernando Ribeiro - вокал </P>
+<P>Дискография:</P>
+<P>•&nbsp;Under The Moonspell - 1994<BR>•&nbsp;Wolfheart - 1995 <BR>•&nbsp;Irreligious - 1996 <BR>•&nbsp;SIN/Pecado - 1998 <BR>•&nbsp;The Butterfly Effect - 1999 <BR>•&nbsp;Darkness And Hope - 2001 <BR>•&nbsp;Antidote – 2003</P>
+<P>Официальный сайт:<BR><A href="http://www.moonspell.com/">www.moonspell.com</A></P>
+Автор: Vit Belov
+
+### 08.02.2006 news Дата релиза MOONSPELL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стало известно, что новый альбом <STRONG>MOONSPELL "Memorial"</STRONG> выйдет 21 апреля на <STRONG>SPV</STRONG>. Также позже в этом году на <STRONG>Century Media</STRONG> увидит свет DVD <STRONG>"Lunar Still/13 Years of Doom".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 14.02.2006 news Новый альбом MOONSPELL
+
+<P><IMG height=399 alt="" hspace=0 src="/images/news_rus/2006.02/10044.jpg" width=400 align=right border=5>Как уже сообщалось, новый альбом <STRONG>MOONSPELL "Memorial"</STRONG> выходит 24 апреля на<STRONG> SPV</STRONG>. Трэк-лист:</P>
+<P>01. <B>In Memoriam</B><BR>02. <B>Finisterra</B><BR>03. <B>Memento Mori</B><BR>04. <B>Sons Of Earth</B><BR>05. <B>Blood Tells</B><BR>06. <B>Upon The Blood Of Men</B><BR>07. <B>At The Image Of Pain</B><BR>08. <B>Sanguine</B><BR>09. <B>Proliferation</B><BR>10. <B>Once It Was Ours!</B><BR>11. <B>Mare Nostrum</B><BR>12. <B>Luna</B><BR>13. <B>Best Forgotten</B></P>
+Автор: Vit Belov
+
+### 11.03.2006 news MOONSPELL в Москве
+
+<CENTER><IMG height=302 src="/images/shows_rus/2006.03/9997.jpg" width=400 border=0></CENTER>
+<CENTER>В концерте примут участие Nu-Gothic-Metal'исты <STRONG>MELANCHOLY</STRONG>.</CENTER>
+Автор: Vit Belov
+
+### 17.03.2006 articles Лунное заклятие подействовало не на всех.
+
+<P>На меня, к примеру, не подействовало. Как не действовали на меня в своё время пассы Кашпировского, демагогия Явлинского и пузырчатость «Клинского». </P>
+<P>Пришёл я на концерт Moonspell в «Точку». Надо отметить, что в «Точке» я бывал и раньше, и всё мне там нравилось. Но в тот вечер что-то не заладилось с самого начала.</P>
+<P>«Куда вы прёте, ё… вашу мать! Стоять! Идиоты!» Это так приветствовала нас охрана клуба. Немалый детинка порционно запускал в клуб народ, чтоб не создавать давку. Но отлучился, видать, по делам, большим или малым. И толпа, конечно же, хлынула внутрь. Нет, особой давки не было, но процесс ускорился. И тут вышел другой детинка, с навыками разгона демонстраций в Киргизии. Мат-перемат – это ещё фигня, когда я уже заходил в двери клуба, он стал отталкивать ручищами субтильных девиц, которые, в общем-то, никуда и не прорывались. Смирно стояли и хихикали. Заело, видать. </P>
+<P>Такая весёленькая меланхолия</P>
+<P>Ну да и хрен с ним, с секьюрити. Я же музыку пришёл слушать, настроение хорошее, проходка халявная впервые в жизни… Захожу в зал. Там уже настраиваются музыканты, но не Мунспелл. А кто? Я, каюсь, афишу не изучал и к разогреву был не готов. Иначе пришёл бы попозже. Ладно, протискиваюсь в бар, покупаю пиво. Музыканты тем временем заиграли. Бодро так заиграли, прыгательно. Эдакий рамммштайннн с подскоком. Спрашиваю у молодых людей возле стойки – кто играет? Не знаем, говорят. Рядом – звукари, четверо, пьют что-то безалкогольное. Один из них, явно эстет, скручивает самокрутку. Ребята, спрашиваю, а кто это играет? Да не знаем мы, отвечают. Тут ко мне подходит девица. Ничего себе, ногастая. Я, конечно, сразу весь внимание, готов ответить на любой вопрос. И тут девица меня спрашивает: а кто это на сцене играет?..</P>
+<P>…Минуте на пятнадцатой выступления выясняю, что на сцене Melancholy из Электростали. «Привьет, Москва!» - здоровается с публикой их могучий наголо бритый фронтмэн между песнями. «И тебе привьет, Электросталь!» – отвечают ему из толпы, пародируя откуда ни возьмись взявшийся у русского хлопца акцент. Группа, между тем, зажигает. Вокалистка, промежду прочим, очень симпатичная, прыгает, скачет и не падает, но попадает в ноты при этом не всегда. А людям нравится, два десятка рук делают приветственную козу, их обладатели радостно прыгают в такт. Рамммштайннн, да и только. Вот на каком языке поют непонятно, вряд ли на немецком… И тут мои ещё трезвые уши средь бубуханья слышат что-то знакомое. Ну да, это же песня Шаде – No Ordinary Love. Помните клип, там ещё русалка бегает в свадебном платье? </P>
+<P>В общем, взял я ещё пива, чтобы лучше въехать. Девушка-то симпатичная! И парень лысый поёт громко, старается. Ритм-секция тарахтит отменно. Гитар не слышно, ну да и хрен с ними, я лучше ещё пива возьму…</P>
+<P>…Отгрохотали Melancholy. Я бы на их месте сменил название. А что – «Elektrostal», плохо разве? И группе бы в точности подошло. И «электро» там есть, и сталь у меня в ушах до сих пор звенит. Ага, ушли со сцены, на которую тут же запрыгнули мунспельные звукари. И все стали ждать.</P>
+<P>«Фернанд стал на бедного папу кричать,<BR>А папа Фернанде не мог отвечать…» (с)<BR>В.Высоцкий, «Песня попугая-пирата».</P>
+<P>Ждали сорок минут. В половине девятого на сцену вышел Фернандо и его команда. У Фернанды со звуком стало поинтересней малость, ритм-секция уже не бухала, а звучала, и звучала прекрасно. А вот гитар в партере я так и не услышал, вернее, что-то там тренькало, но треньканье растворялось в звуке ритм-секции, как тоник в водке… Снова пришлось протискиваться за пивом через весь партер, чтобы расширить восприятие. Протиснуться, кстати, было сложно: народа – как селёдок в бочке. Тем временем заиграл Opium, и я возрадовался. Люблю эту песню. Я даже попрыгал несильно в такт, но отдавил кому-то ноги и меня вежливо попросили больше не хулиганить.</P>
+<P>Купил пива и отошёл к лестнице. Звук там был похуже, зато видно было хорошо. Фернандо был большой, страшный, а под глазами у него были размазаны тени. Плакал, наверное. Или тушь купил на вокзале у цыганки, вот она и поплыла. Но пел он превосходно. Загипнотизированные девки подтягивались ближе к сцене, как бандерлоги к Каа. </P>
+<P>А музыка тем временем застыла. Вот так застыла и всё. Появилось ощущение, что звучит такая бесконечная, как степь, песня акына. И ведь и выпил я немного, бутылочек семь-восемь чего-то там с зелёной этикеткой… А какой эффект! Это всё Мунспелл, да…Лунная магия. Заклятие и всё такое. Звучит, как осовременненый Butterfly Effect. Странно, что с этого альбома не сыграли ни одной песни, звучала группа именно так, как звучит этот альбом. </P>
+<P>В общем, ушёл я с концерта немного раньше, чем он закончился. Не дожидаясь бисов. Чтоб без давки в гардероб просочиться. Ах да, я же ещё не рассказал вам про давку в гардеробе перед концертом… Ну да и шут с ней, с давкой – Мунспелл же! И вот, значит, оделся я, вышел в ночную тьму из клуба и так мне хорошо стало, что приехал я домой почти трезвым. </P>
+<P>От счастья. Потому, что концерт был ХОРОШИЙ.</P>
+Автор: Ruslan
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 18.05.2006 reviews Алхимики-недоучки безуспешно разыскивающие философский камень
+
+<P>Основным информационным поводом при описании новой пластинки португальских мастеров стало сообщение о том, что Fernando вновь рычит. Вкупе с утяжелённым саундом это подавалось, как возврат к корням. Сколько уже мы этих возвратов к корням слышали, уж не перечесть. Из всех более или менее удачно к корням вернулись MY DYING BRIDE, да и покидали они свою нишу всего на один альбом, поэтому им ренессанс дался достаточно легко. MOONSPELL же являют собой образец группы, славной своими легендарными альбомами, и пытающейся вернуть ауру тех пластинок. Пытаются, надо сказать, безуспешно. “Irreligious” и “Wolfheart” по прошествии 10 лет выглядят чем-то космическим, особенно при прослушивании современного материала португальцев. Главным достоинством вышеперечисленных пластинок была незабываемая вампирско-эротическо-средневековая атмосфера, которая испарилась практически сразу. То был волшебный напиток, рецепт которого безвозвратно утерян, нам остаётся только наслаждаться им снова и снова.</P>
+<P>Современный MOONSPELL ничего общего с волшебством не имеет. Fernando and Co. -ремесленники, пытающиеся создать волшебство. Алхимики-недоучки безуспешно разыскивающие философский камень. Новый альбом ничем не отличается уже от трёх-четырёх предыдущих, только звук стал грязнее, и чистый вокал пропал. Представьте себе “Darkness And Hope” со скримингом. Единственной вещью, которая может привлечь искушённого слушателя стала “Luna”, где попела Birgit Zacher, ещё один компонент волшебного зелья середины 90-х.</P>
+<P>Честно говоря, мне странно, почему MOONSPELL продолжают занимать высокое положение в иерархии современного металла. Или у нас действительно такая нехватка самобытных коллективов? Я думаю, металл не оскудел талантами, просто лэйблам гораздо легче продавать испытанный брэнд, а не раскручивать новых монстров. Золотые времена середины 90-х прошли уже давно. Мне думается, нынче и MOONSPELL с “Irreligious” могли бы и не пробиться.</P>
+Автор: Vit Belov
+
+### 22.05.2006 reviews А истинный меломан всё ждет и ждёт...
+
+<P>Странные все-таки люди, эти меломаны... Ждут и ждут альбомы давно знакомых им групп и всё надеются на чудо: а вдруг?! Вдруг принесет очередной год какой-то шедевральный релиз от старичков, и тогда можно будет опять, потрясая блестящим кругляшом, разглагольствовать о том, что старый, мол, конь, и т.д. И хоть каждый раз разочарование (а именно чаще всего так и происходит) должно быть всё сильнее и сильнее, ничто не может сломить упорство и терпение настоящего любителя музыки. Вздохнув в очередной раз, он отправляет заветную пластинку пылиться на полку и вновь устраивается поудобнее в кресле, чтобы ждать снова...</P>
+<P>К чему столь странное вступление? Да к тому, что и в случае с новым альбомом так любимой нашим народом португальской команды Moonspell мы вновь вынуждены разочарованно качать головой. Нас мало интересуют все эти "back to the roots", нас мало интересуют восторженные отклики в западной прессе, нас интересует красивая музыка с запоминающимися мелодиями, мрачная, но кристально прозрачная атмосфера при одновременной тяжести, нас интересуют новые идеи,&nbsp;сверкающие как звезды на безоблачном ночном небе... Может, мы слишком многого хотим? Может, музыкантам лучше знать, что нам нужно? Может быть, не знаю. Но поверьте, ничего того, что нас интересует (см. выше), на новом релизе Moonspell под подозрительным названием "Memorial" нету. Да, вроде бы тяжело и мрачно, но всё не то. Не цепляет. Нет хитов. Нет волшебства. "Memorial" слушается как-то очень неповоротливо, тяжеловесно, как будто музыка вязнет в каком-то болоте, и ничем ее оттуда вытащить невозможно. Плюс неприятные блэковые элементы. Плюс какой-то давящий "симфонизм". И даже Фернандо Рибейра не спасает. И ведь нельзя сказать, что альбом такой уж плохой, нет, ни в коем случае. Даже наверняка найдутся люди, которые будут считать его чуть ли не шедевральным. Но истинный меломан (как я уже писал выше) с грустью и тоской впихнет "Memorial" среди "коллег" на полку и опустится в кресло. Чтобы снова ждать...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 08.11.2006 news MOONSPELL выиграли награду MTV
+
+<P><STRONG>MOONSPELL</STRONG> стали лучшей португальской группой по версии регионального отделения MTV.</P>
+Автор: Vit Belov
+
+### 23.06.2007 news MOONSPELL тоже перезапишут
+
+<P>В июле <STRONG>MOONSPELL</STRONG> войдут в студию <STRONG>Antfarm</STRONG>, где с <STRONG>Tue Madsen</STRONG> запишут новый необыкновенный альбом. Группа перезапишет свои ранние вещи с миньона "<STRONG>Under The Moonspell</STRONG>", с демки "<STRONG>Anno Satane</STRONG>", а так же единственную песню, написанную ещё под названием<STRONG> MORBID GOD "Serpent Angel</STRONG>". Композиции обретут новые аранжировки. Новая работа выйдет осенью на <STRONG>SPV</STRONG>. Трэк-лист:</P>
+<P>01. <B>Halla alle halla al rabka halla (Praeludium/Incantatum Solistitium)</B><BR>02. <B>Tenebrarum Oratorium (Andamento I/Erudit Compendyum)</B><BR>03. <B>Interludium/Incantatum Oequinoctum</B><BR>04. <B>Tenebrarum Oratorium (Andamento II/Erotic Compendyum)</B><BR>05. <B>Opus Diabolicum (Andamento III/Instrumental Compendyum)</B> <BR>06. <B>Chorai Lusit&#226;nia! (Epilogus/Incantatam Maresia)</B> <BR>07. <B>Intro</B> <BR>08. <B>Goat on Fire</B> <BR>09. <B>Ancient Winter Goddess</B> <BR>10. <B>Wolves From The Fog</B> <BR>11. <B>Outro</B> <BR>12. <B>Serpent Angel</B><BR>Также <STRONG>MOONSPELL</STRONG> заняты сочинением новых песен, которые будут записаны с <STRONG>Waldemar Sorychta</STRONG> ближе к концу года.</P>
+Автор: Vit Belov
+
+### 11.08.2007 news Новая версия от MOONSPELL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, <STRONG>MOONSPELL</STRONG> переписали свои старые вещи с дебютного EP "<STRONG>Under The Moonspell</STRONG>" для нового альбома "<STRONG>Under Satana</STRONG>". Трэк <STRONG>"Tenebrarum Oratorium (Andamento I/Erudit Compendyum)"</STRONG>&nbsp; можно послушать на страничке <STRONG>MySpace</STRONG> группы: <A href="http://www.myspace.com/moonspell">http://www.myspace.com/moonspell</A></FONT></P>
+Автор: Vit Belov
+
+### 10.11.2007 reviews И вновь выезжаем на старом материале
+
+<P>Потругальцы Moonspell к своему пятнадцатилетию пополнили список групп, которые оказались в году 2007-ом не в состоянии порадовать своих поклонников новым материалом. Ибо альбом под названием "Under Satanae" есть ничто иное, как перезаписанный материал, сочиненный коллективом&nbsp;до выхода альбома "Wolfheart" (1995): ЕР "Under The Moonspell" (1994), демо "Anna Satanae" (1993)&nbsp;и вещь 'Serpent Angel', которая в виде демо-промо выходила в 1992-ом году под маркой Morbid God. Замечу, что обложка "нового" альбома является, по большому счету, альтернативной к упомянутой "Under The Moonspell", а также, что номер с этого миника 'Halla alle halla al rabka halla' в оригинале носил немного иное название - "Allah Akbar! La Allah Ella Allah!" (просто то же самое, но прочитанное наоборот) - уж не в политкорректности ли тут дело или группе просто запретили указывать то старое, настоящее, название? Впрочем, пусть над этим вопросом ломают голову фанаты. Что же касается самой пластинки, то тут как бы палка о двух концах. С одной стороны, продюсер Tue Madsen (известный своей работой, среди прочих, с The Haunted и Dark Tranquility) приложил все свои силы, и звук, безусловно, вышел очень чистый и мощный. С другой стороны, тру-фэны наверняка предпочитают всё же оригинальный саунд, пусть он и намного хуже качеством. Возможно, "Under Satanae" и станет подарком поклонникам Moonspell, но вот эта наметившаяся в последнее время тенденция перезаписывать старый материал не может не настораживать. Ну и задумайтесь: предыдущий студийник "Memorial" вышел в 2006-ом (по моему мнению, очень неудачная работа, однако, на родине музыкантов её расценили по-другому, и Moonspell стали после продажи 10000 копий пластинки первой потругальской тяжелой группой, добившейся "золотого" статуса; затем MTV назвали их лучшими исполнителями из Португалии прошлого года; а в Германии они вошли в топ-100, заняв престижное, в общем-то, 68-е место), затем летом 2007-го вышел "бестник" группы под названием "The Great Silver Eye", и вот уже осенью на прилавках появился "Under Satanae"... Вас эти факты не наводят на определенные мысли? Хотя фанаты - люди привычные, и они всегда готовы опустошить свой кошелек ради любимых артистов... Учитывая всё вышеизложенное, оставляю данный релиз без оценки.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 19.11.2007 reviews Римейк нового тысячелетия
+
+<P>И вновь римейк. На этот раз дело касается не thrash-metal, как в случае с TESTAMENT, DESTRUCTION и SODOM. Перетряхнуть свои архивы решила группа более экстремального направления MOONSPELL. Их первый миньон “Under The Moonspell”, выходивший на Adipocere Records, вряд ли удастся достать сейчас в оригинале, поэтому португальцы перезаписали его, добавив три песни с демки и одну совсем старую песню тех времён, когда группа носила ещё название MORBID GOD.</P>
+<P>Всё это богатство получило название “Under Satane” и увидело свет на SPV. Что ж, качество не подкачало. В отличие от альбома SODOM мы имеем дело с современной конфеткой, а не с заплесневелой шоколадкой. Но сейчас я поведу речь о вещах, которые, вероятно, многим покажутся странными. В 1994 году я приобрёл “Under The Moonspell” на кассете. Этот мини-альбом был приписан к какому-то более ценному на тот момент для меня релизу, который я, соответственно, и покупал. Восторг передать словами было нельзя. Я почему-то решил, что MOONSPELL турки. Все эти «Аллах Акбар», женские напевы… Имена тогда музыканты скрывали за прозвищами, а информация была скудной, поэтому найти что-то новое о группе долго не удавалось. Эта атмосфера!!! Акустические переливы, агрессивные black-metal проигрыши, уже упоминавшийся женский вокал труженицы тех лет Birgit Zacher (до сих пор фамилию помню). </P>
+<P>Значит так. MOONSPELL переиграли свои ранние композиции, и все главные плюсы той работы улетучились. Мало того, что уже и с исторической точки зрения нас мало чем можно удивить, но и те эмпирические достоинства пропали. Возможно, со мной можно поспорить, ведь атмосферность музыки «руками не пощупать». Такого-то слова, атмосферность, не существует. Мы его сами выдумали. Есть нотная грамота, которая утверждает, что “Under Satane” и есть “Under The Moonspell”. Вот так.</P>
+<P>Можно сделать ещё один вывод. Всем понятно, что за старое творчество берутся, когда своих идей не хватает. В этой вариации от MOONSPELL я как раз и уловил все признаки их нынешнего упадка, ведь и новые альбомы коллектива, несмотря на свою «тяжесть», не вызывают у меня тёплых чувств.</P>
+Автор: Vit Belov
+
+### 28.11.2007 articles Fernando Ribiero (MOONSPELL): &quot;Новый альбом будет мрачным и прогрессивным&quot;.
+
+<P><IMG height=565 alt="" hspace=0 src="/images/articles_rus/2007.11/12008.jpg" width=400 align=left border=5>MOONSPELL и продюсер Waldemar Sorychta закончили пре-продукцию нового альбома в Лиссабоне. metalisrael.com опубликовали интервью с лидером команды Fernando Ribiero, в котором он рассказывает об этой новой пластинке. Вот выдержки из беседы певца с корреспондентом Алексеем Раймаром.</P>
+<P>В: Что мы можем ждать от вашей новой работы, а чего ждать не должны?</P>
+<P>«Мы проработали с Вальдемаром 10 дней. Наш новый материал звучит мощно и душевно, и он будет хорошим последователем для “Memorial”. Обе характерные черты MOONSPELL присутствуют в нём: мелодичность и прогрессивность, брутальность и мрачность».</P>
+<P>В: Многие ваши тексты касаются Сатанизма. Это ваши искренние верования? Если нет, во что вы верите?</P>
+<P>«Сатана – великий символ для Человека. Но я никогда не забываю, что и он был создан самим Человеком. Только так. Это вопрос выбора. Сатана включает в себя те черты, которые могут и должны быть у Человека, мы действительно такие. Вообще же, я больше пишу о Люциферанизме и о мифах о Фаусте/Прометее, чем о Сатане. Для меня это разные вещи. Я верю в Человека, как вместилище красоты и ужаса».</P>
+<P>В: Почему вы не использовали чистый вокал на “Memorial”? MOONSPELL вернулись к своим брутальным корням. Почему?</P>
+<P>«Я использовал чистый вокал в песнях 'Best Forgotten', 'Sanguine', 'Memento Mori'. Но, в общем-то, вы правы. Причин было множество, но основная – это звук, который стал более жёстким, и скриминг подходил к нему идеально. Я не слишком великий певец, должен сказать. Говорить, что “Memorial” возврат к корням, это значит не видеть полной картины. Для меня “Memorial” обычный альбом, он, как дерево, имеет и корни, и плоды, и ствол».</P>
+<P>В: Что вы хотели сказать этими “Halla alle halla al raba halla” на первом трэке “Under The Moonspell/ Under Satane”? Почему вы использовали эти ближневосточные влияния?</P>
+<P>«Португалия и Испания были частью мусульманского мира в 700-1200 годах. Влияния того периода сохранились в нашей культуре и до сих пор очень сильны. Мы использовали эти влияния, отразив, таким образом, португальское культурное наследие. Хочу сказать, что никакой политической подоплёки в этом решении не было. С другой стороны сейчас мы не очень довольны тем, как развивается Мусульманство, религия и политика тесно смешаны, и это может привести к нежелательным результатам».</P>
+<P>В: Почему вы решили переписать старый материал?</P>
+<P>«Мы почувствовали, что можем улучшить эти песни, подкорректировав некоторые огрехи в записи и техническом уровне. Всё это без потери оригинальной атмосферы и духа мистицизма, присущего той работе».</P>
+Автор: Vit Belov
+
+### 14.01.2008 news Название нового MOONSPELL
+
+<P><STRONG>MOONSPELL</STRONG> сейчас находятся в<STRONG> Antfarm Studios</STRONG>, где с продюсером <STRONG>Tue Madsen</STRONG> (<B>THE HAUNTED</B>, <B>DARK TRANQUILLITY</B>, <STRONG>HALFORD</STRONG>) записывают новый альбом, получивший название <STRONG>'Night Eternal'</STRONG>. Вот названия некоторых новых песен: <STRONG>'Shadow Sun'</STRONG>, <B>'Night Eternal'</B>, <B>'At Tragic Heights'</B>, <B>'Scorpion Flower'</B>, <B>'Spring of Rage'</B>, <B>'Hers is the Twilight'.</B></P>
+Автор: Vit Belov
+
+### 14.03.2008 news Новые песни MOONSPELL
+
+<P><STRONG>MOONSPELL</STRONG> выложили две новые песни со своего будущего альбома "<STRONG>Night Eternal</STRONG>" на своей <STRONG>MySpace</STRONG> страничке. Пластинка выйдет на <STRONG>SPV </STRONG>в конце весны/начале лета.</P>
+<P>Ссылка: <A href="http://www.myspace.com/moonspell">http://www.myspace.com/moonspell</A></P>
+Автор: Vit Belov
+
+### 24.04.2008 news Подробности о новом альбоме MOONSPELL
+
+<P>Новый альбом португальской группы <STRONG>MOONSPELL</STRONG> под названием <STRONG>"Night Eternal"</STRONG> выйдет в свет <STRONG>19 мая</STRONG> на лейбле <STRONG>SPV/Steamhammer.</STRONG> Он был записан в датской студии<STRONG> Antfarm</STRONG> под руководством продюсера <STRONG>Tue Madsen (THE HAUNTED, DARK TRANQUILLITY, HALFORD).&nbsp;</STRONG>Вокалистка <STRONG>Anneke van Giersbergen (ex-GATHERING, AGUA DE ANNIQUE)</STRONG> спела песню<STRONG> "Scorpion Flower"</STRONG> в дуэте с фронтменом <STRONG>MOONSPELL</STRONG> <STRONG>Fernando Ribeiro</STRONG>. В записи альбома принял участие хор <STRONG>Crystal Mountain Singers</STRONG>. <STRONG>Niclas Etel&#228;vuori</STRONG> из <STRONG>AMORPHIS</STRONG> записал партии баса к альбому,&nbsp;а обложку нарисовал&nbsp;<STRONG>Seth </STRONG>(<STRONG>SEPTIC FLESH</STRONG>). В лимитированное издание альбома войдет бонус-трек <STRONG>"Age of Mothers",</STRONG> а также бонусный двд, куда войдут все клипы коллектива и некоторые концертные выступления. Трек-лист альбома:</P>
+<P><STRONG><IMG height=250 alt="" hspace=10 src="/images/news_rus/2008.04/12473.jpg" width=250 align=left border=0>1. At Tragic Heights&nbsp;&nbsp; <BR>2. Night Eternal&nbsp;&nbsp; <BR>3. Shadow Sun&nbsp; <BR>4. Scorpion Flower&nbsp;&nbsp; <BR>5. Moon in Mercury&nbsp;&nbsp; <BR>6. Hers is the Twilight&nbsp;&nbsp; <BR>7. Dreamer (Lucifer and Lilith)&nbsp;&nbsp; <BR>8. Spring of Rage&nbsp;&nbsp; <BR>9. First Light </STRONG></P>
+Автор: Dimas
+
+### 13.05.2008 reviews Второе рождение лунных чар
+
+<P>Скажу честно, от нового альбома потругальцев Moonspell я мало чего ждал. Уж очень безликим получился предыдущий релиз, "Memorial" (2006) (ну "Under Satanae" не в счет). И тем приятней в таких случаях осознать, что ты ошибался. "Night Eternal" получился мощным, свежим, брутальным и чувственным одновременно, соединяющим акустические пассажи и тяжеленные риффы, присущие этим португальцам мелодику и мрачность. Красивый сплав блэк-, дэт-, дум-, дарк-&nbsp;и готик-метала подкрепляется великолепным вокалом Рибейро, который то зловеще шепчет, то потрясает чистым вокалом, то выдает свой знаменитый гроулинг. Пластинка получилась практически без проходных вещей, но некоторые хочется выделить особо: 'Shadow Sun' и 'Scorpion Flower' с потрясающим вокальным дуэтом - чистый голос Фернандо и женский вокал Anneke van Giersbergen (Aqua de Annique, ex-The Gathering). Порой Moonspell сплетают такие близкие к симфо-блэку структуры, что и Dimmu Borgir стоило бы задуматься о появлении достойных конкурентов. Звук получился и мощным, и кристально чистым; думается, что Waldemar Sorychta, давний друг коллектива, который занимался пре-продакшеном в Португалии, и Tue Madsen, который доводил "до ума" работу в Antfarm Studio в Дании, полностью реализовали задумки группы. Наверное, не стоит сравнивать "Night Eternal" с лучшими, как считается,&nbsp;работами Moonspell 90-х годов, всё же это несколько иная музыка,&nbsp;ну и музыканты&nbsp;вряд ли&nbsp;собираются повторять то, чего, по большому счету, повторить уже нельзя, да и не зачем; они находятся в вечном поиске, в развитии, и очень радостно, что после "Memorial" (который, кстати, имел большой коммерческий успех) они нашли в себе силы записать действительно достойный альбом. Ну а фанатам, как всегда, придется потуже затянуть пояса и раскошелиться на limited first-edition альбома, где их ожидают, во-первых, два бонус-трэка 'Age Of Mothers' и&nbsp;'Scorpion Flower' acoustic version, и, во-вторых, bonus DVD с Live from Wacken Open Air 2007 ('Finisterra', 'Memento Mori', 'Blood Tells') и видеоклипами 'Finisterra' (+ making of) и 'Luna'. Не знаю, что нас будет ждать на следующих работах португальцев, но в данном случае мы можем смело говорить о втором рождении Moonspell.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 08.10.2008 news DVD от MOONSPELL
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2008.10/12924.jpg" width=261 align=right border=5>21 ноября на <STRONG>Century Media</STRONG> выходит долгожданный DVD от <STRONG>MOONSPELL </STRONG>"<STRONG>Lusitanian Metal</STRONG>". Обширнейший трэк-лист:</P>
+<P>DVD 1 - <STRONG>Live At The City Of Ravens</STRONG> (Metalmania, Poland 2004); <BR><STRONG>Touch Me In The Eyes</STRONG> (video compilation from 'Opium' to 'I Will See You In My Dreams', including the never-seen "making of" from Everything Invaded); <BR><STRONG>Century Media Years</STRONG> (Discography); <BR><STRONG>Knowledge </STRONG>(Graveyard impressions, exclusive and extensive interview with the band members shot in a Lisbon graveyard). </P>
+<P>DVD 2 - Small Hours – The Early Days (1992-1994) Live Rehearsal:<BR>1. <STRONG>Serpent Angel</STRONG><BR>2. <STRONG>Wolves From The Fog</STRONG><BR>3.<STRONG> Ancient Winter Goddess</STRONG></P>
+<P>Moonspell's First Show:&nbsp; <BR>1. <STRONG>Intro<BR></STRONG>2. <STRONG>Goat On Fire<BR></STRONG>3. <STRONG>Wolves From The Fog<BR></STRONG>4. <STRONG>Hymn To Lucifer</STRONG></P>
+<P>Supporting CRADLE OF FILTH: <BR>1. <STRONG>Intro <BR></STRONG>2. <STRONG>Tenebrarum Oratorium Part 1<BR></STRONG>3. <STRONG>Goat On Fire<BR></STRONG>4. <STRONG>Vampiria</STRONG></P>
+<P>Strange Are the Ways Of The Wolfhearted Tour (1995-1996) - Supporting NAPALM DEATH: <BR>1. <STRONG>Erotic Alchemy<BR></STRONG>2. <STRONG>Ataegina<BR></STRONG>3. <STRONG>Trebaruna </STRONG></P>
+<P>Perverse Almost Religious (1996-1997) - Krakow 1996: <BR>1. <STRONG>A Poisoned Gift<BR></STRONG>2. <STRONG>..Of Dream and Drama (Midnight Ride)<BR></STRONG>3. <STRONG>An Erotic Alchemy<BR></STRONG>4. <STRONG>Love Crimes</STRONG></P>
+<P>Dortmund 1996 (previously unseen):<BR>1. <STRONG>Intro<BR></STRONG>2. <STRONG>Wolfshade (A Werewolf Masquerade)<BR></STRONG>3. <STRONG>Love Crimes<BR></STRONG>4. <STRONG>Vampiria<BR></STRONG>5. <STRONG>...Of Dream And Drama (Midnight Ride)<BR></STRONG>6. <STRONG>An Erotic Alchemy<BR></STRONG>7. <STRONG>For A Taste Of Eternity<BR></STRONG>8. <STRONG>Alma Matter</STRONG></P>
+<P>It's a Sin Tour (1997-1999) - Ermal 1999: <BR>1. <STRONG>Let The Children Cum To Me...<BR></STRONG>2. <STRONG>Dekadance<BR></STRONG>3. <STRONG>EuroticA</STRONG></P>
+<P>The Butterfly Effect Tour (2000-2001) - Coliseu 2000: <BR>1. <STRONG>I Am the Eternal Spectator<BR></STRONG>2. <STRONG>Can't Be<BR></STRONG>3. <STRONG>Lustmord</STRONG></P>
+<P>Darkness and Hope Tour (2001-2003) - Release Party for Darkness And Hope: <BR>1. <STRONG>How We Became Fire<BR></STRONG>2. <STRONG>Ghostsong </STRONG></P>
+<P>Ermal 2002:<BR>1. <STRONG>Angelizer<BR></STRONG>2. <STRONG>Mephisto<BR></STRONG>3. <STRONG>Firewalking</STRONG></P>
+<P>Spreading The Eclipse Tour (2003-2005) - With Full Force – 10th Anniversary:<BR>1. <STRONG>In And Above Men<BR></STRONG>2. <STRONG>From Lowering Skies<BR></STRONG>3. <STRONG>Opium<BR></STRONG>4. <STRONG>A Walk On The Darkside<BR></STRONG>5. <STRONG>Nocturna<BR></STRONG>6.<STRONG> Southern Deathstyle </STRONG></P>
+<P>Istanbul 2004: <BR>1. <STRONG>Alma Mater / Vampiria </STRONG></P>
+<P>Athens 2004: <BR>1. <STRONG>The Antidote </STRONG></P>
+<P>Hard Club 2004:<BR>1. <STRONG>I Will See You in My Dreams<BR></STRONG>2. <STRONG>Tenebrarum Oratorium Part 1 </STRONG></P>
+<P>Tejo 2005: <BR>1. <STRONG>Awake!<BR></STRONG>2. <STRONG>For A Taste Of Eternity</STRONG></P>
+Автор: Vit Belov
+
+### 28.06.2011 news Загадочный Fernando Ribeiro
+
+<P><IMG height=296 alt="" hspace=0 src="/images/news_rus/2011.06/19762.jpg" width=300 align=right border=0>Лидер<STRONG> MOONSPELL Fernando Ribeiro</STRONG> сделал несколько намёков касаемо нового студийного альбома португальской группы. Например, музыкант сообщил, что инициалами новой пластинки станут <STRONG>'A.N.', </STRONG>и выйдет этот <STRONG>'A.N.' </STRONG>в первом "триместре" 2012 года. <STRONG>MOONSPELL </STRONG>на данный момент не имеют контракта с лэйблом и финансируют запись из собственного кармана. </P>
+<P>Продюcированием альбома португальцы занимаются сами с помощью нескольких друзей. Один из них продюсер <STRONG>Benny Richter</STRONG>, который работал с <STRONG>CALIBAN</STRONG>, и который должен привнести в музыку <STRONG>MOONSPELL</STRONG> что-то новое, по словам <STRONG>Fernando Ribeiro</STRONG>. Вторым продюсером станет <STRONG>Tue Madsen. </STRONG>Барабаны для альбома уже записаны в его студии <STRONG>Antfarm</STRONG>. </P>
+<P>"<EM>Мы будем продолжать информировать вас о новой работе, стараясь не терять нашей оригинальной секретности, мистицизма и силы</EM>", - заканчивает <STRONG>Fernando</STRONG>.</P>
+<P>Последний студийник <STRONG>MOONSPELL "Night Eternal" </STRONG>вышел в 2007 году на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.12.2011 news MOONSPELL на Napalm Records
+
+<P><STRONG>MOONSPELL</STRONG> заключили соглашение с <STRONG>Napalm Records</STRONG>. Новый альбом известных португальцев выйдет весной наступающего года. Пластинка недавно получила название <STRONG>"A.N."</STRONG>.</P>
+<P><center><IMG height=327 src="/images/news_rus/2011.12/22370.jpg" width=490 border=0></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 23.01.2012 news MOONSPELL нормально назвали альбом
+
+<P>Новый альбом<STRONG> MOONSPELL</STRONG> получил название <STRONG>"Alpha Noir</STRONG>". Пластинка выйдет в конце апреля на <STRONG>Napalm Records</STRONG>. </P>
+<P><center><IMG height=316 src="/images/news_rus/2012.01/22723.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 08.02.2012 news Обложка нового MOONSPELL
+
+<P>27 апреля на <STRONG>Napalm Records</STRONG> выйдет новый альбом <STRONG>MOONSPELL "Alpha Noir"</STRONG>. Обложку, которую нарисовал <STRONG>Seth Siro Anton,</STRONG> можно посмотреть ниже. </P>
+<P>
+<CENTER><IMG height=483 src="/images/news_rus/2012.02/22998.jpg" width=475 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.03.2012 news Бонус-диск от MOONSPELL
+
+<P><STRONG><IMG height=278 alt="" hspace=0 src="/images/news_rus/2012.03/23262.jpg" width=475 align=right border=0>MOONSPELL</STRONG> опубликовали данные о содержании лимитированного издания нового альбома "<STRONG>Alpha Noir</STRONG>", который выйдет в конце апреля на<STRONG> Napalm Records</STRONG>. На второй диск попадёт антиверсия альбома под названием "<STRONG>Omega White</STRONG>". Трек-лист:</P>
+<P>CD 1<BR itxtNodeId="121"><BR itxtNodeId="120">01. <B itxtHarvested="0" itxtNodeId="119">Axis Mundi</B><BR itxtNodeId="118">02. <B itxtHarvested="0" itxtNodeId="117">Lickanthrope</B> <BR itxtNodeId="116">03. <B itxtHarvested="0" itxtNodeId="115">Versus</B> <BR itxtNodeId="114">04. <B itxtHarvested="0" itxtNodeId="113">Alpha Noir</B> <BR itxtNodeId="112">05. <B itxtHarvested="0" itxtNodeId="111">En Nome Do Medo</B> <BR itxtNodeId="110">06. <B itxtHarvested="0" itxtNodeId="109">Opera Carne</B> <BR itxtNodeId="108">07. <B itxtHarvested="0" itxtNodeId="107">Love is Blasphemy</B> <BR itxtNodeId="106">08. <B itxtHarvested="0" itxtNodeId="105">Grand Stand</B> <BR itxtNodeId="104">09. <B itxtHarvested="0" itxtNodeId="103">Sine Missione</B> <BR itxtNodeId="102"><BR itxtNodeId="101">CD 2<BR itxtNodeId="100"><BR itxtNodeId="99">01. <B itxtHarvested="0" itxtNodeId="98">White Omega</B><BR itxtNodeId="97">02. <B itxtHarvested="0" itxtNodeId="96">White Skies</B><BR itxtNodeId="95">03. <B itxtHarvested="0" itxtNodeId="94">Fireseason</B><BR itxtNodeId="93">04. <B itxtHarvested="0" itxtNodeId="92">New Tears Eve</B><BR itxtNodeId="91">05. <B itxtHarvested="0" itxtNodeId="90">Herodisiac</B><BR itxtNodeId="89">06. <B itxtHarvested="0" itxtNodeId="88">Incantatrix</B><BR itxtNodeId="87">07. <B itxtHarvested="0" itxtNodeId="86">Sacrificial</B><BR itxtNodeId="85">08. <B itxtHarvested="0" itxtNodeId="84">A Greater Darkness</B></P>
+Автор: Vit Belov
+
+### 14.04.2012 news Новое видео MOONSPELL
+
+<P>Новый клип <STRONG>MOONSPELL </STRONG>на песню "<STRONG>Lickanthrope</STRONG>" можно посмотреть ниже. Трек взят с нового альбома португальцев "<STRONG>Alpha Noir</STRONG>", который выйдет в конце месяца на <STRONG>Napalm Records</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/I4Far7J-cb8?version=3&feature=player_profilepage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/I4Far7J-cb8?version=3&feature=player_profilepage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 21.05.2012 news Новый клип MOONSPELL
+
+<P>Новый ролик <STRONG>MOONSPELL "White Skies" </STRONG>можно посмотреть ниже. Трек взят с новейшего альбома группы <STRONG>"Alpha Noir". </STRONG></P>
+<P><STRONG></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/gzLtoBKgmB4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 28.05.2012 reviews MOONSPELL гениально убивают перепонки
+
+<P>Тот, кто был в восторге от дебютного альбома португальцев MOONSPELL “Wolfheart” в середине 90-х годов, согласится с моим утверждением, что лидер этого коллектива Fernando Ribeiro – гений. Такого идеального по атмосфере, мелодике и лирике альбома европейская тёмная метал-сцена на тот момент не слышала. Более того, кто-то скажет, что этот альбом до сих пор не превзойдён. Гениям прощается многое, на то они и гении.</P>
+<P>Мы прощали MOONSPELL и непонятные метания в электронику, и заунывные, ориентированные на стихи, альбомы среднего периода, мы простим им всё, в том числе и нынешнюю попытку удивить всех брутальностью звучания. В отличие от других групп, я уверен, MOONSPELL всё делают искренне, они просто так видят современный момент в своём творчестве, но что делать нам, обычным слушателям? Ведь грамотно сыграть тяжело и красиво у MOONSPELL не получается. Португальцы шумят, перегружают гитары, но уже не в первый раз делают это бестолково и примитивно. За этим шумом скрывается и пропадает, в общем-то, неплохая музыка. “Alpha Noir” – жёсткий альбом, но поклонникам брутальной музыки его, конечно, не посоветуешь. В качестве бонуса на фирменное издание добавлен второй диск с отдельным альбомом. Наши лицензионщики добавили три бонуса на digi-pack. Что ж, здесь MOONSPELL не так тяжелы, но также малоинтересны.</P>
+<P>Есть люди, которые находятся на одной волне с Fernando Ribeiro, они в любом случае этот альбом оценят. Мы же скромно постоим в углу, глядя на эти взрывы обожания.</P>
+Автор: Vit Belov
+
+### 06.01.2015 news Новая музыка MOONSPELL
+
+<P>Португальцы<STRONG> MOONSPELL</STRONG> возвращаются с новым альбомом "<STRONG>Extinct</STRONG>" в марте нового года. Пластинка выйдет на австрийском лэйбле <STRONG>Napalm Records</STRONG>. Дебютный сингл с этого альбома "<STRONG>The Last Of Us</STRONG>" можно услышать в клипе ниже. Заметно, что группа вернулась к мелодичному gothic-metal звучанию.</P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/7QlabIp__44" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.03.2015 reviews Сколько лет, сколько зим. Мне понравился новый MOONSPELL!
+
+<P>Португальские корифеи тёмного метала MOONSPELL в последние годы занимаются нескончаемым поиском себя. Лидер группы Fernando Ribeiro, видимо, по-другому не может. Его нестандартные ходы кто-то мог бы назвать попытками заработать немного денег, но мне думается, наш Fernando не таков, он искренне пытается создать шедевр.</P>
+<P>И мы ведь каждый раз надеемся! Ведь шедевр у MOONSPELL уже выходил. Пускай это и случилось уже два десятилетия назад. Я имею в виду «Wolfheart”, если кто не понял. Потом был очень хороший «Irreligious”, тогда показавшийся отстойным, а ныне всеми признанный «Sin/Pecado”. А потом понеслось. Fernando сочинял поэмы, возвращался к корням, переписывал дебютный миньон, и всё мимо. «Блогосфера бурлила», а музыка не цепляла. Апофеозом безумия стал последний до этого момента альбом MOONSPELL “Alpha Noir”, который был настолько ужасен, что фэнам больше нравился бонус-диск «Omega White”. Смешно, что российские поклонники в этом ключе распинали лэйбл Mazzar, который урезал бонус-диск до четырёх бонус-треков, и тем самым, по мнению фэнов, обрезал альбом. Альбом, дорогие мои, это был «Alpha Noir”, слушайте этот шум и наслаждайтесь им. Не знаю, по какой причине, может Fernando читает facebook, может так и было задумано с самого начала, но новейший альбом MOONSPELL “Extinct” есть продолжение бонусного диска «Omega White”. Красивый и плотный gothic-metal с классическими готическими мелодиями и интересными аранжировками. На альбоме впервые за много лет есть более чем один хит, а грамотное использование оркестровок добавляет шарма. Кроме прочего, в некоторых мелодиях MOONSPELL возвратились к восточным темам, а это одна из главных фишек раннего творчества коллектива. Единственным минусом, на мой вкус, является продолжающееся сотрудничество с художником Seth, совершенно не понятно, зачем такой музыке такие зверские обложки.</P>
+<P>Это, конечно, не «Wolfheart”, но это уже и не «Alpha Noir”. Далеко не «Alpha Noir”, а это очень приятно. Первый альбом MOONSPELL за много-много лет, который мне понравился.</P>
+Автор: Vit Belov
+
+### 18.09.2015 news Новое видео MOONSPELL
+
+<P>Видео-клип <STRONG>MOONSPELL</STRONG> на песню "<STRONG>Domina</STRONG>" можно посмотреть ниже.</P>
+<P><center><iframe width="600" height="400" src="https://www.youtube.com/embed/tsTMDzZOEPk" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### New MOONSPELL

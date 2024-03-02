@@ -201,6 +201,594 @@ Parviainen (Amberian Dawn).
 * C группой "For My Pain" Olli-Pekka Torro
 * C группой "For My Pain" Petri Sankala
 
+## Публикации
+
+### 22.03.1999 reviews 
+
+<p>Очередная финская группа - детище продюсера Ахти Кортелайнена, заседающего в Тико-Тико студии. Как только я начал прослушивание этой группы появилось сиюминутное желание причислить эту команду к дум-дэт коллективам в духе Sentenced. Действительно, на альбоме, в общем и целом, представлен материал в стиле Sentenced, вот только Sentenced бывает разный. Первые две песни очень похожи на стилистику "Down" и "Frozen", только вокал похож на вокал Танели Ярва - первого вокалиста вышеупомянутой группы. Дальше же начинаются метаморфозы. Третья песня представляет собой блэк-дэт металл, дальше идёт полумедленная мелодичная песня с аккустическими вставками, ещё дальше песня с вкраплениями женского вокала и.т.д. в том же духе. Есть песни в духе "North from Here" Sentenced, есть в духе "Amok" (правда не настолько хорошие). Эту работу можно порекомендовать тем, кому нужен бэст Sentenced с другими песнями (во как завернул). Но в общем-то, ничего, довольно слушабельно, а выводы делайте сами.</p>
+
+Автор: Dimas
+
+### 05.01.2000 news 
+
+<p>Eternal Tears Of Sorrow записали новый альбом "Chaotic Beauty". Кимберли из Sinergy приняла участие в его записи.</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 reviews 
+
+<p>Вот тот диск, который я советую послушать всем любителям экстремальной музыки. На прошлом альбоме группа исполняла какой-то best на творчество Sentenced, стараясь охватить все стили, включая блэк, дэт, дум. Но почему-то это была не смесь, а отдельные песни. Сейчас группа перемешала всё это на конкретных песнях. Музыку ETOS можно сравнить с музыкой их соотечественников из Children Of Bodom. Отличные мелодии, зубодробительный ритм, блэковоый вокал, и всё это на фоне красивых клавиш. Есть здесь и медляки с женским вокалом (Кимберли Госс (Synergy)). Великолепный альбом без недостатков. Наконец-то у нас появился ещё один Children Of Bodom, что не может не радовать, так как не было замечено достойных последователей у ТАКОЙ группы. Финляндия обогатила металлический мир ещё одной классной командой, которая только с этим альбомом вошла в касту сильнейших. Полбала снижаю за малый хронометраж альбома. Можно заметить, что в последнее время весь быстрый классный материал умещается на 30-35 минут. Ну ничего, лучше меньше, да лучше.</p>
+
+Автор: Vit Belov
+
+### 22.06.2000 articles Eternal Tears Of Sorrow - band, which impressed us with their magnifiscent album &quot;Chaotic Beauty&quot;.
+
+<p> Eternal Tears Of Sorrow - band, which impressed us with their magnifiscent album "Chaotic Beauty". This masterpiece is one of the best album in 2000. Wonderful melodic Black-Death metal with gothic-doom influences with female vocal by Kimberly Goss (Sinergy).</p>
+<p></p>
+<p> Q: It's our first interview. Please, tell me about history of your band.</p>
+<p> This band started sometimes in 92, but we changed our name to EToS in 94. So far we've had 3 albums out, of which "Chaotic Beauty" is the latest.</p>
+<p> Q: I've listened to your 1999's album. I think, there is songs in different styles. Why is it so? Do you have some determined style or it is not important?</p>
+<p> We all listen to many kinds of music. And we don't want our albums to be boring. We want to surprise people. It'd be extremely boring if all the songs on the album sounded the same. There has to be different elements, themes and athmospheres.</p>
+<p> Q: You had split Cd with Nightwisn. What doy you think about this band? They are very especial. Don't you think about Tarija as your back vocalist on some new songs.</p>
+<p> I like them a lot! I think Tarja wants to consentrate on Nightwish only.. And they're very busy, they're doing something all the time...</p>
+<p> Q: Do you still record in Tico-Tico with Ahti? Ahti worked with</p>
+<p> Sentenced. Don't you think? that your music is similar enough? Sentenced begin on first place with new album? What do you think about it? Are finnish people metallers at all?</p>
+<p> Yeah, we still use Tico-Tico, it's such a nice place and not so far away from our home town. We all like Sentenced but I think we have never sounded like them. They have their own style and we have ours. "Crimson" is not so bad, some songs on it are killers!</p>
+<p> Q: I've listened to your new album. It's incredible.(album of the month on our web-site). Now you do some steps to the melodic black with many keyboards. Your music is very close to CHILDREN OF BODOM. Is here some reasons?</p>
+<p> I don't know, we just wrote stuff that was natural for us to write. I think the fastest parts have something to do with the Bodom boys, I mean mixing melodies with black metal stuff. But what's new with the slow parts is the fact that there's some influences from Dream Theater and Dan Swanц. We all listen to many kinds of music, so the music comes out quite diverse.</p>
+<p> Q: On the album Kimberly Goss sings. Did she participate in writing music or lyrics? What do you think about Synergy? I think, you have close contacts with two most melodic bands in metal. (Synergy and Nightwish) Is it influence on your music?</p>
+<p> Well, as far as I remember she basically improved some melodies and wrote a short melody. I think Sinergy is quite good for a heavy metal band, I listen to them in my car every now and then. Yeah, I think we have some Nightwish influences, too, even though we don't have a female opera singer. They have really great vocal, guitar and keyboard melodies.. And it has always been really importand for us to have great melodies.</p>
+<p> Q: What will you do after release of album? Will tour be?</p>
+<p> First of all, we have to wait for the album to come out outside Finland. What happens after that, we shall see. No tours have been confirmed yet, let's hope something interesting happens!</p>
+<p> Q: Finland is source of talents in metal. Why is it so? What do you think about it?</p>
+<p> Maybe it's the weather, the mentality or something else about the people. Or maybe it's the metal tradition that has been for twenty years. I think it's great that Finnish metal is quite popular around the world. For many years it was the only kind of Finnish music that was known outside Finland.</p>
+<p> Q: What do you think about Russia and Russians? How do you think, Why are not Russian bands so popular as Finnish? Do you know some Russian bands?</p>
+<p> The Soviet Union was always a great monster for us, so it's nice to see that Russia is taking the steps of democracy. Russian music..? Hmm, all I can remember is Gorky Park, not so heavy band from late 80's.. I think there's going to be some internationally known Russian bands in a few years, I know you have a lot of bands there....</p>
+<p> Q: There is cover on EDGE OF SANITY's song on your album. Do you like EoS? What do you think about this band without Dan Swano?</p>
+<p> Yeah, we love his music. My personal fave albums are Infernal and Purgatory Afterglow. Dan is such a talented and professional guy, he can successfully create many kinds of music. I'm not so interested in Edge of Sanity anymore, I don't like Cryptic so much.</p>
+<p> Q: How many copies did you sell in over the world on this moment?</p>
+<p> I'm not so sure, I should ask the record company.. Thousands, I guess.</p>
+<p> Q: Have you plans about development of band on the next album?</p>
+<p> Well, we actually have some new songs, they sound even better than the songs on Chaotic Beauty. I think it's much too early to talk about the next album, we have to write about 15-20 songs and choose the best 9-11 of them. I think the next album is going to be a different, once again, and I think it's going to be out next year, maybe spring 2001.</p>
+<p> Q: Now Here in Russia, is progress with licencing of album of metal bands. Spinefarm sells license on new album of Children Of Bodom and Nightwish. What do you think about this? Don't you think? that lables have to sell cheap license to Russia, to Russian fans can buy real (not pirate) CD's? What do you think about pirates?</p>
+<p> I think it's better to sell licenses than just wait and see the pirate market grow. I don't like piratism, but I guess it's the only way for many people to buy good music. What is even more dangerous than the cd piratism is the MP3 piratism.. That's what happens all around the world.</p>
+
+Автор: Vit Belov
+
+### 28.06.2000 articles Eternal Tears Of Sorrow - группа, представившая нам свой великолепный альбом &quot;Chaotic Beauty&quot;.
+
+<p> Eternal Tears Of Sorrow - группа, представившая нам свой великолепный альбом "Chaotic Beauty". Этот шедевр - один из лучших альбомов 2000-го года. Прекрасный мелодичный блэк-дэт металл с готическими элементами и с вокалисткой Кимберли Госс (Kimberly Goss (Sinergy).</p>
+<p> В: Это наше первое интервью. Пожалуйста, расскажите историю Вашей группы.</p>
+<p> Наш коллектив образовался когда-то в 1992-м году, но мы сменили наше название на EToS только в 1994-м. За это время мы записали 3 альбома. "Chaotic Beauty" последний из них.</p>
+<p> В: Я слышал Ваш альбом 1999-го года. Я думаю, что там песни в разных стилях. Почему так получилось? Вы придерживаетесь какого-то определенного стиля или это не важно?</p>
+<p> Мы все слушаем много разной музыки. И мы не хотим, чтобы наши альбомы были скучными. Мы хотим удивить людей. Было бы чрезвычайно скучно, если бы все песни на альбоме звучали одинаково. Должно быть разнообразие.</p>
+<p> В: Вы выпустили split-CD вместе с группой Nightwish. Что бы можете сказать об этом коллективе? Они очень своеобразные. Вы не думали пригласить Тарью (Tarija) в качестве бэк-вокалистки при записи новых песен?</p>
+<p> Они очень мне нравятся!! Я думаю, что Тарья хочет сосредоточиться только на своей группе... И к тому же они очень заняты, они все время чем-то занимаются...</p>
+<p> В: В будущем Вы опять будите записываться в студии Tico-Tico вместе с Ahti? Ahti работал с Sentenced. Вы не думаете, что Ваша музыка достаточно похожая?</p>
+<p> Да, мы продолжим работать в Tico-Tico. Это очень хорошее место и к тому же оно находится не далеко от нашего города. Нам всем нравится Sentenced, но я думаю, мы никогда не звучали как они. У них свой собственный стиль, а у нас - свой.</p>
+<p> В: Я слышал Ваш новый альбом. Он превосходный! (альбом месяца на нашем web-сайте). Сейчас вы делаете шаги в сторону мелодичного блэк-металла с обилием клавишных. Ваша музыка очень близка к группе Children of Bodom. Тут есть какие-нибудь причины?</p>
+<p> Я не знаю, мы просто написали такие вещи, написать которые было вполне естественным для нас. Я думаю, что самые быстрые моменты похожи на CoB. Я смешиваю мелодии с блэк-металлическими фишками. А что касается медленных частей, то здесь ощущается влияние Dream Theater и Dan Swano.</p>
+<p> В: На альбоме поет Кимберли Госс (Kimberly Goss). Она участвовала в процессе написания музыки или текстов? Что Вы думаете о группе Sinergy? Я думаю, что Вы тесно контактируете с группами Sinergy и Nightwish. Они оказывают влияние на Ваше творчество?</p>
+<p> Насколько я помню, она улучшила несколько мелодий. Я думаю, что группа Sinergy достаточно хороша для хэви-металлического коллектива. Я иногда слушаю их в моем автомобиле. Да, я думаю, на нас оказывает влияние группа Nightwish, даже если у нас нет оперной певицы. У них действительно прекрасные вокальные, гитарные и клавишные партии... И мелодичность всегда была действительно важной для нас.</p>
+<p> В: Чем Вы займетесь после релиза альбома? Отправитесь в турне?</p>
+<p> Прежде всего, мы немного подождем, пока альбом распространится за пределы Финляндии. Что произойдет потом - будет видно. Пока что мы не планировали никаких концертных турне, будем надеяться, что произойдет что-то интересное</p>
+<p> В: Финляндия является родиной многих талантливых групп. Что бы думаешь об этом? Почему так получается?</p>
+<p> Может быть это погода, менталитет или еще что-нибудь в людях. Или может быть эта музыкальная традиция, продолжающаяся уже в течение двадцати лет. Я думаю, что это классно, что финский металл популярный в мире. В течение многих лет - это единственный тип финской музыки, известный за пределами Финляндии.</p>
+<p> В: Что Вы думаете о России и русских людях? Как Вы думаете, почему российские группы не так популярны как финские? Вы знаете какие-нибудь российские группы?</p>
+<p> Советский Союз всегда был огромным монстром для нас, и это здорово, что Россия делает сейчас первые шаги к демократии. Русская музыка...? Хмм, всё, что я могу вспомнить - это группа Gorky Park... Я думаю, что в ближайшее время в России появятся всемирно известные коллективы, я знаю, что у Вас есть очень много групп...</p>
+<p> В: На Вашем альбоме есть кавер на одну из песен группы Edge of Sanity. Вам нравится эта группа? Что вы скажете об этой группе без Дэна Свано (Dan Swano)?</p>
+<p> О, нам нравится их музыка. Мои любимые альбомы - это "Infernal" и "Purgatory Afterglow". Дэн очень талантливый парень. Он может создавать различную музыку. Но сейчас я не особо интересуюсь творчеством Edge of Sanity.</p>
+<p> В: Как много копий альбома Вы продали к этому моменту?</p>
+<p> Я точно не знаю, надо будет уточнить у нашей звукозаписывающей компании... Тысячи, я полагаю.</p>
+<p> В: У Вас есть планы развития группы на следующем альбоме?</p>
+<p> Да, у нас уже есть несколько новых песен, они звучат лучше, чем песни с альбома "Chaotic Beauty". Я думаю, что сейчас очень рано говорить о следующем альбоме. Мы должны будем написать 15-20 песен, чтобы выбрать 9-11 лучших из них. Я думаю, что новый альбом опять будет контрастным и, я полагаю, он появится в следующем году, может быть весной.</p>
+<p> В: Spinefarm продает лицензию на новые альбомы Children Of Bodom и Nightwish. Вы знаете об этом? Что Вы думаете по этому поводу? Такие лейблы должны продавать дешевые лицензии в России, чтобы наши фэны смогли позволить себе покупать родные диски? Что Вы думаете о пиратах?</p>
+<p> Я думаю, что лучше продать лицензию, чем просто наблюдать, как растет пиратский рынок. Я не люблю пиратство, но я думаю, что это единственный путь для многих людей покупать хорошую музыку. На мой взгляд, на много страшнее CD-пиратства - mp3-пиратство... Это происходит во всем мире.</p>
+<p></p>
+<p> Vit Belov</p>
+<p> перевод Nybras</p>
+<p></p>
+
+Автор: Nybras
+
+### 27.10.2000 news Hовый проект
+
+<p>Kalmah - так называется новый дэт-блэковый сайд проект музыкантов из Eternal Tears of Sorrow. Их дебютный альбом "Stamplord" выйдет в середине ноября этого года, а пока ребята записывают его в Tico-Tico Studios</p>
+
+Автор: Dimas
+
+### 27.10.2000 news A new side project
+
+<p>KALMAH is the side project of ETERNAL TEARS OF SORROW guys and they play fast & technical death/black. The debut album "SWAMPLORD" will be out in mid-November 2000, recorded at TICO-TICO STUDIOS</p>
+
+Автор: Dimas
+
+### 22.11.2000 news Antti Talala ушел из Eternal Tears of Sorrow.
+
+<p>Соло-гитарист Antti Talala покинул Eternal Tears of Sorrow. В следующем году ему придется проходить военную службу и он не сможет принять участие в работе над новым альбомом. Ушедшего товарища заменил Antti Kokko, также играющий на соло-гитаре в проекте Kalmah. В середине декабря Eternal Tears of Sorrow отправятся в студию записывать две новые песни: "The Last One for Life" и кавер Paradise Lost. После этого группа посвятит все свое время написанию большего количества материала для предстоящего альбома. Сессия записи начнется в середине мая и будет длиться в течение месяца.</p>
+
+Автор: Morsus
+
+### 22.11.2000 news Antti Talala has left Eternal Tears of Sorrow.
+
+<p>Solo guitarist Antti Talala has left Eternal Tears of Sorrow. He next year is going to be extremely busy because of his military service, so he wouldn't be able to concentrate on the next album at all.He's replaced with Antti Kokko, who also does the solo guitar in Kalmah. In the middle of December Eternal Tears of Sorrow enters studio and tapes two new tracks: "The Last One for Life" and one Paradise Lost cover. After that it's time to start writing more material for the forthcoming album. The recording session will start in mid-May and will last for a month.</p>
+
+Автор: Morsus
+
+### 20.04.2001 news Новый сингл Eternal Tears of Sorrow.
+
+<p> Eternal Tears of Sorrow завершили работу в студии. Две песни, титульная "The Last One For Life" и кавер Paradise Lost, будут выпущены в Финляндии 21-ого мая в виде сингла. Запись остальной части материала начнется с середины мая и продлится месяц. Полноценный альбом должен выйти в начале августа.</p>
+
+Автор: Morsus
+
+### 20.04.2001 news New single of Eternal Tears of Sorrow.
+
+<p> The recording sessions are now over. Two songs "The Last One For Life" and a cover song from Paradise Lost will be released in Finland in 21th May as a single. The recording session for the rest of the songs will begin in mid-May and will last for a month, so the album should be out in the beginning of August.</p>
+
+Автор: Morsus
+
+### 07.06.2001 news Девственница и шлюха...
+
+<p>Финны "ETERNAL TEARS OF SORROW" завершили запись нового альбома "A Virgin And A Whore". Микширование будет проходить в Августе а сам релиз выйдет еще до конца года. Полный трек-лист: 01. Aurora Borealis 02. Heart of Wilderness 03. Prophetian 04. Fall of Man 05. The River Flows Frozen 06. The Last One For Life 07. Sick, Dirty and Mean 08. Blood of Hatred 09. Aeon. По заверениям команды длина альбома будет 42-43 минуты и музыка будет более клавишно-ориентированная чем раньше, но с более тяжелыми гитарными риффами.</p>
+
+Автор: Yermola
+
+### 07.06.2001 news Finland&#39;s ETERNAL TEARS OF SORROW have completed the recording sessions ....
+
+<p>Finland's ETERNAL TEARS OF SORROW have completed the recording sessions for their new album, entitled A Virgin And A Whore, and they plan on mixing the effort in early August for late 2001 release. The full track listing for the album is as follows: 01. Aurora Borealis 02. Heart of Wilderness 03. Prophetian 04. Fall of Man 05. The River Flows Frozen 06. The Last One For Life 07. Sick, Dirty and Mean 08. Blood of Hatred 09. Aeon. According to an official statement from the band, the length of the album will be around 42-43 minutes, and the music itself is more keyboard-orientated than in the past, although there will be "more and heavier guitar riffs as well". The first single from the album, "The Last One For Life", is scheduled for release shortly, and it will be backed by the group's cover of PARADISE LOST's "As I Die". Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.11.2001 reviews Очередной шедевр Вечных Слёз Страдания
+
+<p>8 октября выдан на гора очередной шедевр Вечных Слёз Страдания по утерянной девственности. Текстов не читал, но предполагаю что поётся там о женщинах. Ох уж эти женщины, сложные они для понимания натуры :) . OK, кто незнает, музыка этих чухонцев напоминает их соотечественников CHILDREN OF BODOM, такой же озлобленный угро-финский троль рвёт мембрану в микрофоне, такие же клавишные пассажи, такие же heavy metal запилы. Диск фактически брат двойник "Follow the Ripper", но по музыке чувствуется, что ребята на пару-тройку лет постарше. "A Virgin And A Whore" также ничем не уступает своему предшественнику "Chaotic Beauty". Слёзы слезами, но практически каждая песня имеет в себе какой то ностальгический отпечаток. Музыка довольно ритмичная и агрессивная с хорошей порцией мелодии. На двух песнях "the River Flows Frozen" и "the Last One For Life" использован чистый вокал, что придаёт их музыке особенный шарм. После прослушивания диска у меня появился оптимистический настрой, такое ощущение, что ледяной поток смыл грязь с очерствевшей души. Мне больше всего понравились трэки "Fall of Man" и "Blood of Hatred", после них так хочется жить :) . Да кстати, нынешним летом также вышел их EP "The Last One For Life", где кроме титульного трэка был прекрасно сыграный ковер старых попстеров Paradise Lost - "As I Die". Без всякого зазрения совести награждаю защитников линии Маннергейма десятком красных звёзд, они их честно заслужили. Данный диск настоятельно рекомендуется всем поклонникам карело-финского народного творчества.</p>
+
+Автор: ZYKLON
+
+### 24.12.2001 reviews Хамелеоны бывают разные
+
+<p>Хамелеоны бывают разные. Например, музыкальные. И финская группа Eternal Tears Of Sorrow - яркий тому пример. Это уже четвертый альбом группы, где она вновь резко меняет свою стилистику, но при этом оставаясь в рамках супермелодичного металла. Первый альбом группы представлял собой мелодично-атмосферный и тяжелый doom-death metal. Второй альбом был вариацией на тему творчества их земляков Sentenced, причем творчества разных периодов. Третий же альбом был выдержан в супермелодичном ключе напоминая работы Children Of Bodom и Edge Of Sanity. Ну и наконец, вот передо мной их четвертый альбом, и снова масса изменений. Совсем никакой злобы и одержимости. Обозначилась легковесная тяжесть. Появились партии чистого вокала (правда, неплохого). Клавишные забивают гитары и начинают становиться лидирующим инструментом. Все композиции выдержаны в мелодичном среднетемповом ритме (самой быстрой композицией на альбоме является кавер-версия Accept "Sick, dirty And Mean"). Теперь творчество группы скорее напоминает новую волну финского gothic-metal перемешанную с melodic-death риффами. Спокойная приятная музыка с печально-меланхоличными оттенками и немного мрачноватыми интонациями. Из-за таких стилевых смен невозможно проследить прогресс/регресс группы. Одно можно отметить точно - с каждым новым альбомом группа все более облегчает свой звук. И вот это не к добру. Ведь если так пойдет и дальше, то что же будет на следующем альбоме... <BR> Ну а данный альбом, если не обращать внимание на все эти страсти, очень даже неплох и слушается без напрягов. А потому заслуживает высокой, но не высшей оценки.</p>
+
+Автор: Dimas
+
+### 15.03.2002 news Eternal Tears of Sorrow уходят в бессрочный отпуск
+
+<p>"Eternal Tears of Sorrow собираются сделать паузу в своей деятельности. Времена изменились и мы все нуждаемся в этом перерыве, чтобы заняться другими вещами в жизни. Мы не можем сказать, как долго продлится этот перерыв. Тысячи часов отдали мы для этой группы и достигли того, о чём не могли вообразить, когда всё начинали. Мы благодарим всех, кто поддерживал нас в эти годы и в особенности наших фэнов во всём мире. Вы рулите!" - говорится в официальном заявлении группы.</p>
+
+Автор: Morsus
+
+### 15.03.2002 news Eternal Tears of Sorrow have a long break
+
+<p>As the founding members of band say, "Eternal Tears of Sorrow is going to have a break. We all need this break to concentrate on the other things in our lives. Times change. We cannot say how long the break is going to be. We have done thousands of hours of work for this band. It has been a journey we could never imagined when we started. We want to thank everybody, who has supported us during the years and especially our fans all over the world! You rule!"</p>
+
+Автор: Morsus
+
+### 22.03.2002 news New Finnish gothic metal act
+
+<p>FOR MY PAIN is the name of a brand new Finnish gothic metal act who feature several well-known musicians from the local metal scene. The group's current line-up stands as follows:</p>
+<P> Tuomas Holopainen (NIGHTWISH) - keyboards <BR> Altti Vetelainen (ETERNAL TEARS OF SORROW) - bass <BR> Lauri Tuohimaa (EMBRAZE) - guitar <BR> Olli-Pekka Torro (ex-ETERNAL TEARS OF SORROW) - guitar <BR> Juha Kylmanen (REFLECTION) - vocals <BR> Petri Sankala (ETERNAL TEARS OF SORROW) - drums</>
+<P> FOR MY PAIN are currently writing material for the group's first full-length album, the recordings for which are tentatively scheduled to begin in May, with a late 2002 or early 2003 release date through Spinefarm Records being planned. A possible single release may precede the album in the fall.</>
+
+Автор: Dimas
+
+### 22.03.2002 news Новый финский gothic metal акт
+
+<p>FOR MY PAIN - так называется новый финский gothic metal акт в котором принимают участие несколько достаточно известных на местной металлической сцене музыкантов. В состав группы входят:</p>
+<P> Tuomas Holopainen (NIGHTWISH) - клавишные <BR> Altti Vetelainen (ETERNAL TEARS OF SORROW) - бас<BR> Lauri Tuohimaa (EMBRAZE) - гитары <BR> Olli-Pekka Torro (ex-ETERNAL TEARS OF SORROW) - гитары <BR> Juha Kylmanen (REFLECTION) - вокал <BR> Petri Sankala (ETERNAL TEARS OF SORROW) - ударные</>
+<P> Сейчас, группа сочиняет материал для своего дебютного альбома, запись которого начнется предположительно в мае 2002 года. Выпуск альбома планируется на Spinefarm Records в конце 2002 -начале 2003 года. Перед выходом полнометражного альбома планируется выход сингла.</>
+
+Автор: Dimas
+
+### 16.08.2002 news Новый проект финов.
+
+<p>Spinefarm Records углубились в запись новой группы For My Pain..., в составе которой оказались такие небезизвестные финские парни как: Tuomas Holopainen "Nightwish" и Altti Vetelainen "Eternal Tears Of Sorrow".<BR> Стиль в ктором будут играть For My Pain... это мелодичный готик-рок.<BR> В данный момент группа работает в студии. И услышать сие твоерние мы сможем только в начале 2003 года. Пока фины еще не придумали название своего дебютника, но зато первую песню "My Wound Is Deeper Than Yours" мы возможно услышим в этом году!<BR> На данный момент For My Pain... это:<BR><BR> Altti Vetelainen (Eternal Tears of Sorrow): басс<BR> Tuomas Holopainen (Nightwish): клавиши<BR> Lauri Tuohimaa (Embraze): гитара<BR> Olli-Pekka Torro (ex-Eternal Tears of Sorrow kahden ensimmaisen levyn ajalta): гитара<BR> Juha Kylmanen (RefleXion): вокал<BR> Petri Sankala (Eternal Tears of Sorrow): ударные<BR></p>
+
+Автор: Korvin
+
+### 23.09.2002 news Туомас Холопайнен играет в новом проекте
+
+<p>Туомас Холопайнен помимо основной работы в Nightwish подключился к новому проекту For My Pain..., где также играют парни из Eternal Tears Of Sorrow. Полный состав For My Pain... выглядит следующим образом: Altti Vetelainen (Eternal Tears Of Sorrow) - бас, Tuomas Holopainen (Nightwish) - клавиши, Lauri Tuohimaa (Embraze) - гитара, Olli-Pekka Torro (ex- Eternal Tears Of Sorrow) - гитара, Juha Kylmanen (RefleXion) - вокал, Petri Sankala (Eternal Tears Of Sorrow) - ударные. Пока ещё не получивний названия дебютный альбом выйдет в начале 2003 года на Spinefarm Records, а первый сингл "My Wound Is Deeper Than Yours" появится, вероятно, уже в конце этого года.</p>
+
+Автор: Morsus
+
+### 23.09.2002 news Side-project of Tuomas Holopainen
+
+<p>Tuomas Holopainen plays keyboards in a new project For My Pain... along with members of Eternal Tears Of Sorrow. For My Pain... is: Altti Vetelainen (Eternal Tears of Sorrow) - bass, Tuomas Holopainen (Nightwish) - keyboards, Lauri Tuohimaa (Embraze) - guitars, Olli-Pekka Torro (ex-Eternal Tears of Sorrow) - guitars, Juha Kylmanen (RefleXion) - vocals, Petri Sankala (Eternal Tears of Sorrow) - drums. Still unnamed album will be released in the beginning of 2003 through Spinefarm Records. Their first single "My Wound Is Deeper Than Yours" will probably be released in the end of 2002.</p>
+
+Автор: Morsus
+
+### 08.01.2003 news Eternal Tears Of Sorrow развалились
+
+<p>Финны Eternal tears Of Sorrow оффициально распались, что указано на их сайте.<BR> 'ETOS взяли перерыв в марте 2002 года, во время которого мы пришли к мысли, что пора заканчивать. Группа начала постоянную деятельность 10 лет назад, чем большого успеха мы добивались, тем большего времени требовала группа. С каждым следующим днём мы понимали, что группа становится нашей постоянной работой. Настало время заняться чем-то новым. Эта группа достигла много большего, чем мы ожидали. Однако, мы не заканчиваем нашу музыкальную деятельность. Заглядывайте на www.etos.tk для информации о участниках команды.'</p>
+<P>Уже известно, Altti Vetelainen и Petri Sankala участвуют в goth-группе For My Pain вместе с Tuomas Holopainen (NIGHTWISH), Lauri Tuohimaa (Embraze). Дебютная пластинка этой группы выйдет 31 марта на Spinefarm.</>
+
+Автор: Vit Belov
+
+### 08.01.2003 news ETERNAL TEARS OF SORROW Split Up
+
+<p>Finland's ETERNAL TEARS OF SORROW have officially disbanded, according to a statement posted on the group's official web site.</p>
+<P>The statement reads as follows: <BR> "With mixed feelings we have to announce that ETERNAL TEARS OF SORROW have decided to split up. ETERNAL TEARS OF SORROW have been on a break since March 2002. During the break, it has become obvious that it is time to quit. <BR> "This band started as a free-time activity about ten years ago. As we got more success, we also needed to give more and more of our time to the band. Day by day, we realized the band had become a full-time job for us. Now it's time to move on and do something different. This band achieved much more than we could imagine when we formed up this band. <BR> "However, we don't stop making and playing music. Check out the official ETERNAL TEARS OF SORROW web site regularly for information about the members and their other projects and bands. The site has been online for almost seven years now and will remain as it is. Only the address has changed: www.etos.tk. <BR> "We thank all our fans for support! A huge number of nice things happened to us between 1994 and today, thanks to you! <BR> "On behalf of ETERNAL TEARS OF SORROW in early January 2003, Jarmo Puolakanaho & Altti Vetelдinen (the founding members)."</>
+<P> Vetelдinen and drummer Petri Sankala have spent much of the last year writing and recording with FOR MY PAIN, a new Finnish "goth metal" supergroup also featuring Tuomas Holopainen (NIGHTWISH) on keyboards, Lauri Tuohimaa (EMBRAZE) on guitar, Olli-Pekka Tцrrц (ex-ETERNAL TEARS OF SORROW) on guitar, and Juha Kylmдnen (REFLECTION) on vocals. The group's as-yet-untitled debut album is currently being mixed at Finnvox studios by Mikko Karmila for a Mar. 31 release through Spinefarm Records.</>
+
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 08.10.2003 reviews «Что ещё за “Vilda Mannu”?»
+
+<P>«Что ещё за “Vilda Mannu”?» - спросит недоумевающий любитель мелодик-дэта по-фински. Отвечаем: второй альбом ETERNAL TEARS OF SORROW, вполне достойной группы, исполняющей как раз таки «мелодик-дэт по-фински». Третий – “Chaotic Beauty” был очень неплох, четвёртый и, увы, последний (“A Virgin and a Whore”) – откровенно хорош. А что же этот? Не раздражает. Не утомляет. Не надоедает. И моментально забывается что после первого, что после десятого прослушивания. Это не совсем мелодик-дэт. Скорее помесь раннего AMORPHIS’a, раннего DEMIGOD’a и раннего же DARK TRANQUILLITY. Заметьте – это не сравнения. Это ориентиры. Если вам нравится творчество вышеупомянутых команд соответствующего периода, покупайте “Vilda Mannu”, не пожалеете. </P>
+<P><I>Диск предоставлен компанией <B><A href="http://www.fono.ru/">ФОНО</A></B></I></P>
+Автор: Kai Mathias Stalhammar
+
+### 27.01.2005 news Возвращение ETERNAL TEARS OF SORROW
+
+<P>Реформировалась финская группа <STRONG>ETERNAL TEARS OF SORROW.</STRONG> На данный момент, музыканты подготовили материал для своего пятого альбома. Кроме того, они подписали соглашение на выпуск этого альбома через<STRONG> Spinefarm Records</STRONG>. В нынешнем составе команды, два новичка - это гитарист <B>Risto Ruuth</B> и клавишник <B>Janne Tolsa</B> (ex-<STRONG>TAROT). </STRONG>Выпуск нового альбома запланирован на конец этого года.</P>
+Автор: Dimas
+
+### 27.01.2006 news Подробности о ETERNAL TEARS OF SORROW
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятый ре-юнион альбом <STRONG>ETERNAL TEARS OF SORROW "Before The Bleeding Sun"</STRONG> выйдет в Финляндии 26 апреля на <STRONG>Spinefarm</STRONG>. Альбом был записан в <STRONG>Tico-Tico Studio</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Sweet Lilith of My Dreams</B><BR>02. <B>Another Me</B><BR>03. <B>Red Dawn Rising</B><BR>04. <B>Upon the Moors</B><BR>05. <B>Sakura No Rei</B><BR>06. <B>Sinister Rain</B><BR>07. <B>Lost Rune of Thunder</B><BR>08. <B>Tar Still Flows</B><BR>09. <B>Angelheart, Ravenheart (Act I: Before the Bleeding Sun)</B><BR>На альбоме мы услышим голоса приглашённых вокалистов. В том числе <STRONG>Tony Kakko (SONATA ARCTICA)</STRONG> и <STRONG>Marco Hietala (NIGHTWISH, TAROT</STRONG>).</P>
+Автор: Vit Belov
+
+### 03.04.2006 news Новые песни ETERNAL TEARS OF SORROW
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Medley из новых песен <STRONG>ETERNAL TEARS OF SORROW</STRONG> можно услышать по адресу: <A href="http://www.myspace.com/etos1">http://www.myspace.com/etos1</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом группы "<STRONG>Before The Bleeding Sun</STRONG>" выходит в конце апреля на<STRONG> Spinefarm</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.05.2008 news ETERNAL TEARS OF SORROW на Massacre
+
+<P>Финны <STRONG>ETERNAL TEARS OF SORROW</STRONG> отдали права на Европу на свой пока не названный новый альбом немецкому лэйблу <STRONG>Massacre Records</STRONG>. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 05.02.2009 news Новый сингл ETERNAL TEARS OF SORROW
+
+<P>Финны<STRONG> ETERNAL TEARS OF SORROW</STRONG> выпустили сингл <STRONG>"Tears of Autumn Rain". </STRONG>Послушать отрывок можно на страничке<STRONG> MySpace</STRONG> группы. Кроме заглавного трэка, <STRONG>ETOS</STRONG> переписали песню&nbsp;"<STRONG>Vilda Mannu</STRONG>" с одноимённого второго альбома.</P>
+<P>Ссылка: http://www.myspace.com/etos1</P>
+Автор: Vit Belov
+
+### 27.03.2009 news Дитя тёмных вод
+
+<P><STRONG><IMG height=395 alt="" hspace=0 src="/images/news_rus/2009.03/13856.jpg" width=400 align=right border=5>ETERNAL TEARS OF SORROW</STRONG> назвали свой новый альбом <STRONG>"Children of the Dark Waters", </STRONG>он выйдет в мае на <STRONG>Massacre Records</STRONG>. Пластинка, как всегда, была записана в студии <STRONG>Tico-Tico</STRONG>. Трэк-лист:</P>
+<P>01. <B>Children of the Dark Waters (Act II)</B><BR>02. <B>Baptized by the Blood of Angels</B><BR>03. <B>Tears of Autumn Rain</B><BR>04. <B>Summon the Wild</B><BR>05. <B>Sea of Whispers</B><BR>06. <B>Midnight Bird</B><BR>07. <B>Diary of Demonic Dreams</B><BR>08. <B>When the Darkest Night Falls</B><BR>09. <B>Nocturne Thule</B></P>
+Автор: Vit Belov
+
+### 03.04.2009 news ETERNAL TEARS OF SORROW потеряли гитариста
+
+<P>Соло-гитарист <STRONG>ETERNAL TEARS OF SORROW</STRONG> <STRONG>Risto Ruuth</STRONG>&nbsp;покинул группу по неизвестным причинам. Коллектив ищет нового музыканта.</P>
+Автор: Vit Belov
+
+### 17.08.2009 reviews Качественно, мелодично и … очень мелодично
+
+<P>Я всегда с интересом следил за карьерой этих финнов. Первые их альбомы были сходны с творчеством тогдашних SENTENCED, но позже группа отошла от минималистичности звучания, отправившись на поиски чего-то симфоничного и пафосного. Особенно эта тяга проявилась после перерыва в творчестве, случившегося с 2001 по 2005 год. Полностью сменив состав, лидер группы Altti Vertelainen обратился к популярной мелодичной музыке с небольшими примесями металла.</P>
+<P>Подобные группы встречаются не часто, но они мечта любого торговца тяжёлой музыкой. Без особого ущерба имиджу «правильной» торговой точки можно продавать хорошие количества буквально всем, кто даже случайно забрёл в твой магазин. Доступные мелодии, минимальные запилы на гитарах, женские вокалы, симфонические помпезные аранжировки. Нельзя сказать, что ETERNAL TEARS OF SORROW удивляют или поражают. Компьютерные технологии записи дошли уже до такого уровня, что подобные поразительные результаты уже не являются только уделом высокобюджетных major коллективов. Сделать красиво может любой опытный продюсер в заштатной европейской студии. Что уж говорить о финских мастерах этого дела. Но вернёмся к музыке. Назвать “Children Of The Dark Waters” шедевром я бы не рискнул, но все любители ненапряжной мелодичной тяжёлой музыки будут довольны. Мне же этот альбом показался настолько «сладким», что слушать его на досуге я вряд ли стану.</P>
+<P>Очень мелодично. Настолько мелодично, что уже даже и не смешно. Думается, настанут времена, если уже не настали, когда поклонники исконного металла будут считать подобную музыку чем-то противным своему художественному вкусу. </P>
+Автор: Vit Belov
+
+### 04.06.2010 news Новое видео ETERNAL TEARS OF SORROW
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип <STRONG>ETERNAL TEARS OF SORROW</STRONG> на песню <STRONG>"Summon The Wild" </STRONG>можно посмотреть ниже. Клип создан <STRONG>Anssi Lautjarvi</STRONG>&nbsp;по материалам выступления финнов в Турку 16 октября. Трэк попал на последний альбом группы <STRONG>"Children Of The Dark Waters"</STRONG>, вышедший год назад на <STRONG>Massacre Records</STRONG> и<STRONG> Irond</STRONG> в России. Интересно, что отечественный тираж CD уже распродан.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/hO2qC1Q1QIU&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/hO2qC1Q1QIU&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.01.2013 news ETERNAL TEARS OF SORROW: видео на песню &quot;Swan Saivo&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фины <STRONG>ETERNAL TEARS OF SORROW</STRONG> презентовали видео на песню<STRONG> "Swan Saivo"</STRONG>, которая войдёт на новый альбом <STRONG>"Saivon Lapsi"</STRONG>, запланированный к выходу 22 февраля на <STRONG>Massacre Records</STRONG> (Европа, С.Ш.А.),<STRONG> KHY Suomen Musiikki Oy</STRONG> (Финляндия) и <STRONG>Marquee/Avalon</STRONG> (Япония/Азия).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Режиссёр клипа: <STRONG>Jukka Vidgren</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/leXpn9_pi8A" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Eternal Tears Of Sorrow - до свиданья!

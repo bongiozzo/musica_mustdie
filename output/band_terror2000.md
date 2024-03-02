@@ -71,6 +71,26 @@ Nick Sword: Rhythm/Lead Guitar
 * C группой "Construcdead" Erik Thyselius (drummer)
 * C группой "Soilwork" Bjorn Speed Strid
 
+## Публикации
+
+### 21.02.2003 reviews Стихийное бедствие
+
+<p>Ух! Ну и дали жару эти шведы! Сорок минут бескомпромиссного скоростного мощного и тяжелого thrash-death metal представляющего собой смесь SLAYER и AT THE GATES. Музыка подобная проносящемуся урагану сметающему все на своем пути. Трэш-армагеддон во всей своей красе. Эта шведская группа сначала называлась KILLING MACHINE (подходящее для такой музыки название). В составе группы значатся участники таких известных шведских банд, как SOILWORK, DARKANE, CONSTRUCTDEAD и THE DEFACED. Уже на первом альбоме 2000 года "Slaughterhouse Supremacy" группа зарекомендовала себя, как высокотехничный и агрессивный коллектив. И на новом альбоме с чистейшим вылизанным звуком, вновь мы слышим быструю, агрессивно яростную музыку разрушающую подсознание. Профессиональная и техничная работа, но сделанная настолько на одном дыхании, что явно чувствуется ее бездушность и механистичность. В каком-то смысле, ее даже можно назвать монотонной. Постоянная скорость, быстрая смена одинаковых риффов, никаких вокальных изысков. Однако, эта сумасшедшая музыка в любом случае поразит ваше сознание, даже при отсутствии мелодий и симфоники. Этот альбом - показатель того, что thrash metal старой школы на пороге возрождения.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 09.01.2005 news TERROR 2000 готовят новый альбом
+
+<P><STRONG>TERROR 2000</STRONG> сочиняют песни для нового альбома, который планируется к выходу в июне на <STRONG>Scarlet</STRONG>. Напомним, что в группе играют: <STRONG>Bjorn Speed Strid</STRONG> (<STRONG>SOILWORK</STRONG>), <STRONG>Klas Ideberg</STRONG> (<STRONG>DARKANE</STRONG>), <STRONG>Nick Sword</STRONG> (<STRONG>EL MAGO</STRONG>), <STRONG>Erik Thyselius</STRONG> (<STRONG>CONSTRUCDEAD</STRONG>)&nbsp;и <STRONG>Dan Svensson</STRONG> (<STRONG>HATELIGHT</STRONG>).</P>
+Автор: Vit Belov
+
+### 03.06.2005 news Новости от TERROR 2000
+
+<P><STRONG>TERROR 2000</STRONG> - шведская thrash metal формация, в составе которой &nbsp;<B>Bjorn "Speed" Strid</B> (<B>SOILWORK</B>), <B>Klas Ideberg</B> (<B>DARKANE</B>), <B>Nick Sword</B> (<B>EL MAGO</B>), <B>Erik Thyselius</B> (<B>CONSTRUCDEAD</B>)&nbsp;и <B>Dan Svensson</B> (<B>HATELIGHT</B>),&nbsp;заканчивают запись своего нового альбома под названием <B>"Terror for Sale"</B>, выход которого запланирован в начале сентября на <B>Scarlet Records</B>. <BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

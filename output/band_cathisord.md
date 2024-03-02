@@ -20,6 +20,9 @@ JR - Guitar, Bass, Vocals, Drums, Strings Programming
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

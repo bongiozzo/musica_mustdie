@@ -24,6 +24,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.04.2005 news STYX на Frontiers!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<STRONG>Big Bang Theory</STRONG>" - так будет называться новый альбом <STRONG>STYX</STRONG>, который выйдет на <STRONG>Frontiers Records</STRONG>. На альбом войдёт 14 песен, среди которых будет перезаписанная "<STRONG>Blue Collar Man</STRONG>". Остальные вещи - кавера на песни <STRONG>WHO</STRONG>, <STRONG>PROCOL HARUM</STRONG>, <STRONG>FREE</STRONG>, <STRONG>JETHRO TULL</STRONG> и других.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

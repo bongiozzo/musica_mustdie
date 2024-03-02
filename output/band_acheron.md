@@ -212,6 +212,105 @@ The Entity
 * C группой "Morbid Angel" Drummer Mike Browning (member of CoS) played in every band
 * C группой "Wolfen Society" Vincent Crowley
 
+## Публикации
+
+### 07.12.2001 news Волчье Сообщество...
+
+<p>Нашумевший в свое время проект участников DARK FUNERAL, ACHERON, INCANTATION и THE ELECTRIC HELLFIRE CLUB - "WOLFEN SOCIETY" переиздает свой дебютный MCD "Conquer Divine". В Европе альбом выйдет в январе на "No Fashion Records", а в штатах тогда же через House Of Death Records. Из других новостей, команду по непонятным причинам оставили Thomas Thorn (клавиши) и Ricktor Ravenbruck (гитара). Новым клавишником стал Aaron Werner из ACHERON, гитарист пока не найден...</p>
+
+Автор: Yermola
+
+### 07.12.2001 news WOLFEN SOCIETY, the much-talked-about project...
+
+<p>WOLFEN SOCIETY, the much-talked-about project that in its early incarnation featured DARK FUNERAL’s Lord Ahriman, ACHERON’s Vincent Crowley, INCANTANTION’s Kyle Severn and THE ELECTRIC HELLFIRE CLUB’s Thomas Thorn & Ricktor Ravensbruck, will finally issue its debut MCD, entitled Conquer Divine, through No Fashion Records in Europe in January and House Of Death Records in the USA. In other news, Thomas Thorn (keyboards) and Ricktor Ravenbruck (guitars) have officially left the band for unspecified reasons, with Thorn having been replaced by ACHERON’s Aaron Werner and the group currently on the lookout for a new lead guitarist. <BR> <BR> In related news, after two long years of silence, ACHERON has returned with a brand new 7-inch release, entitled Xomaly, which is available through Italy’s Warlord Records (www.warlordrecords.com). The band also has a South American show scheduled for December 8th, 2001 in Caracas, Venezuela at Teatro Sala Cadafe with special guests STRATUZ and LEAVES.</p>
+
+Автор: Yermola
+
+### 03.05.2003 reviews Посвящение Дьяволу
+
+<p>Heavy Metal - это звуковая дорожка, которую суждено услышать всем при попадании в Ад. Это первое и единственное, что суждено услышать в Аду. Прослушивание подобной зловещей агрессивной и мощной музыки очень помогает выживать в кромешных муках Ада. Сам Дьявол является поклонником этой музыки. И менно для него предназначен этот альбом, являющийся сборником классических каверов от культовой группы Винсента Кроули. Среди них Black Sabbath (BLACK SABBATH), Evil Dead (DEATH), Dawn Of Megiddo (CELTIC FROST), Wrathchild (IRON MAIDEN), Flag Of Hate (KREATOR), Don't Need - Religion (MOTORHEAD), Room Of Golden Air (MERCYFUL FATE), War Machine (KISS), Raise The Dead (BATHORY), Devil's Child (JUDAS PRIEST), Countee Bathory (VENOM), Ave Satanas (ACHERON). Вот такая вот пестрая компания хитов на любой вкус в различных стилях. Но в исполнении ACHERON каждая из этих песен представляет собой громоподобный death metal трэк, где нет места чистому вокалу и легким риффам. Очень интересно послушать death metal версии известных хитов, стилистически отличающихся от оригиналов, более тяжелых и дьяволоподобных. Как ни странно, при этом любая из вещей сразу же узнается с первых риффов. Есть некоторые огрехи в студийной работе, все трэки записывались хоть и в одной студии, но в разное время (с 1992 по 2002 год), потому наблюдается некоторая аляпистость и неудачное микширование. Но это делает все вещи еще более true. Думаю, альбом будет интересен не только поклонникам этих сатанистов, но и всем поклонникам настоящего Heavy metal.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 06.08.2003 news Возрождение ACHERON
+
+<p>Американская black death metal формация ACHERON завершает работу над своим новым альбомом "Rebirth: Metamorphosing Into Godhood". В составе группы - басист-вокалист Vincent Crowley, гитарист Michael Estes и ударник Kyle Severn. Релиз назначен на октябрь через Black Lotus Records. В альбом войдут следующие вещи:</p>
+<p> 1. Chaos Invocation<BR> 2. Church of One<BR> 3. Xomaly<BR> 4. Bow Before Me<BR> 5. The Kindred<BR> 6. A Long Time Ago<BR> 7. Golgotha's Truth<BR> 8. Betrayed (A Broken Pact) <BR> 9. The 9th Gate</p>
+
+Автор: Dimas
+
+### 04.03.2004 news Acheron покинул гитарист
+
+<B>Michael Estes</B> покинул <B>ACHERON</B>. Причиной названа огромный разрыв между ним и остальной группой. В настоящее время коллектив ищет двух гитаристов.
+Автор: Vit Belov
+
+### 10.04.2004 news Новый гитарист в ACHERON
+
+<B>ACHERON</B> объявили имя нового гитариста. Им стал <B>Stacey Connolly</B> (<B>LIFE IS LOST</B>).
+Автор: Vit Belov
+
+### 17.09.2004 reviews Несвятая троица - не подходите близко!
+
+<P>Нет, эти ребята шутить не любят. Дикое сатанинское трио (лидер величает себя Vincent Crowley, а ударник известен&nbsp;по работе с монстрами американского дэта Incantation) выпустило переполненный злобы альбом, являющийся с момента создания группы (1988 год) первым "нормальным" полноформатником после "Those Who Have Risen" 1998 года. Троица теперь отказалась от клавишных и нарезает суровейший дэт-метал с небольшими, но не портящими общую картину, вкраплениями блэка (кстати, это последний релиз со старожилом группы, гитаристом Майклом Эстесом, который, живя во Флориде, в 1000 милях от остальнгых участников (штат Огайо), решил отказаться от столь долгих - и, видимо, относительно дорогостоящих - поездок, а заменил его в апреле сего года Стэйси Коннолли из Life Is Lost). Мрачную картину тяжеленного среднетемпового (а иногда и весьма медленного, к примеру, в 'The Kindred') дэта дополняет веселенькая обложка с некоей нагой рожающей теткой, из которой (не будем уточнять, из какого места) вылезает кровавого цвета чертенок, а окружают сие действо три фигуры в монашеских одеждах с капюшонами на головах (лиц, понятно, не видать), пентаграммами и перевернутыми крестами в руках. Чертенок с теткой (а тема сии, как утверждается, инспирирована фильмом "Ребенок Розмари") еще не раз встретятся нам в буклете, так что будьте готовы! Я читал некоторые нелестные отзывы об альбоме, мол, "это совсем не тот сатанинский андергарунд, что был раньше", но поверьте, мне есть тоже с чем сравнить, ибо Acheron был мной замечен на европейском издании "нуклеарбластовского" сборника "Death... Is Just The Beginning III" 1994 года, и 10 лет назад они так круто не звучали. Если б существовал жанр "зверский дэт-метал", то данный релиз Acheron был бы типичным представителем такого стиля. Завершает диск "лайтнойзовый" трэк '9th Gate' - похоже, группа готова к смелым музыкальным экспериментам. Слушая "Metamorphosing...", я чуть ли не со смехом вспоминал последний релиз типа "Главного Сатаниста Дэт-Метала" Глена Бентона сотоварищи. Не знаю, что уж там по текстам, но относительно музыки Deicide отдыхает, если не сказать более грубо (но и более точно).</P>
+<P>Да,&nbsp;а греки Black Lotus, кстати, планируют выпустить (если уже не выпустили) двойной сборник вещей группы, начиная с первого релиза "Rites Of The Black Mass" и завершая предпоследним теперь уже полноформатником 1998 года "Those Who Have Risen", тиражом всего 3000 экземпляров.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 14.01.2005 reviews Дьявольская десятилетка на двух дисках
+
+<SPAN lang=RU><SPAN style="COLOR: #ffffff">
+<P><SPAN lang=RU>Как сразу видно по названию, сей двойник представляет собой сборник вещей американской зверино-сатанинско-дарк-дэт-металической группы </SPAN>Acheron, начиная с самого начала ее существования и заканчивая альбомом 1998 года “Those Who Have Risen”.<SPAN lang=RU> Компиляции обычно оцениваются немного по-другому, чем «номерные» релизы, ибо тут есть свои нюансы. Вот о них и поговорим. Главный и, пожалуй, единственный минус этой пластинки – отсутствие раритетов и неопубликованных вещей, так что если у вас есть все диски группы, то </SPAN>“Decade Infernus...”<SPAN lang=RU> вам в общем-то, и не нужна. Зато плюсов намного больше. Во-первых, вы сможете ознакомиться с материалом с шести различных релизов группы и получить (для тех, кто не знает творчества </SPAN>Acheron) прекрасное представление о ее музыке (замечу, что песни не расположены в хронологическом порядке, как обычно делают на подобного рода “the best of”). Во-вторых, в буклете помещена весьма подробная биография Acheron. В-третьих, вашему взору представлена дискография группы, включая участие на различных сборниках и трибьютах, а также указаны все составы на соответствующих альбомах. Ну и в-четвертых – и это самое главное – для прослушивания вам предлагают 32 трека общей продолжительностью более двух часов – 135 минут истинного злобного дэт-метала. Так что у вас достаточно причин для приобретения сей компиляции в свою коллекцию. Добавлю, что на Black Lotus альбом “Decade Infernus...” вышел в количестве 3000 копий – много это или мало, решать вам, но не говорите потом, что вас не предупреждали. Да, не обращайте внимание на не очень высокую оценку – балл или полтора я снял из-за вышеупомянутого минуса.</P>
+<P>Альбом предоставлне компанией "Сд-Максимум"</P></SPAN></SPAN>
+Автор: Ixtiandr
+
+### 22.07.2008 news ACHERON на Displeased
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американцы <STRONG>ACHERON</STRONG> подписали контракт с голландским лэйблом<STRONG> Displeased</STRONG>. Новый альбом группы с программным названием <STRONG>"The Final Conflict: Last Days of God" </STRONG>выйдет в 2009 году.</FONT></P>
+Автор: Vit Belov
+
+### 15.01.2009 news ACHERON начинают мастеринг
+
+<P>Завтра <STRONG>ACHERON</STRONG> начнут мастеринг своего нового альбома <STRONG>"The Final Conflict: Last Days of God" </STRONG>в студии <STRONG>West West Side Music. </STRONG>Пластинка снова была записана в <STRONG>Mars Recording Compound</STRONG>&nbsp;с продюсером&nbsp;<B>Bill Korecky</B>. Это концептуальная работа, рассказывающая о падении трёх основных религий: Христианства, Ислама и Иудаизма. Альбом выйдет весной 2009 года на <STRONG>Displeased</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.03.2009 news ACHERON нарисовали волков
+
+<P><STRONG>ACHERON</STRONG> опубликовали обложку своего нового альбома <STRONG>"The Final Conflict: Last Days of God"</STRONG>, выходящего 30 апреля на <STRONG>Displeased</STRONG>. Сэмплы можно послушать здесь: <A href="http://www.myspace.com/acheron">http://www.myspace.com/acheron</A></P>
+<P><center><IMG height=400 src="/images/news_rus/2009.03/13790.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 21.11.2009 news Новое видео ACHERON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео<STRONG> ACHERON</STRONG> на песню "<STRONG>I Am Heathen</STRONG>" можно посмотреть ниже. Песня попала на последний альбом группы "<STRONG>The Final Conflict: Last Days Of God</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/RAe_cPZaV8E&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/RAe_cPZaV8E&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.04.2010 news ACHERON распались
+
+<P><STRONG>ACHERON</STRONG> приказали долго жить после 22 лет существование. За это время эти маргиналы выпустили пять полноформатных альбомов. Деятельность коллектива закончится к 1 января 2011 года.</P>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 24.09.2014 news Новинки видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27304.jpg" width=200 height=140>В этом постинге предлагаем вам&nbsp;ознакомится с&nbsp;десятью&nbsp;модными видеоклипами в металлической и не только музыке, которые появились за последний месяц на просторах интеренета и заслуживают вашего самого пристального внимания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>1349 "Slaves"</STRONG> : <A href="http://youtu.be/ajvLJPzgL_o">http://youtu.be/ajvLJPzgL_o</A><BR>02. <STRONG>ACHERON "Satan Holds Dominion"</STRONG> : <A href="http://youtu.be/dIoQHF4YIC8">http://youtu.be/dIoQHF4YIC8</A><BR>03. <STRONG>AMON AMARTH "Deceiver of the Gods" </STRONG>: <A href="http://youtu.be/CpAcxbtXUgQ">http://youtu.be/CpAcxbtXUgQ</A><BR>04. <STRONG>CORROSION OF CONFORMITY "On Your Way"</STRONG> : <A href="http://youtu.be/H5RdqR6I8Uw">http://youtu.be/H5RdqR6I8Uw</A><BR>05. <STRONG>CRUCIFIED BARBARA "I Sell My Kids For Rock'N'Roll"</STRONG> : <A href="http://youtu.be/oVU_8D1aJoU">http://youtu.be/oVU_8D1aJoU</A><BR>06. <STRONG>MORTALS "View From A Tower"</STRONG> : <A href="http://youtu.be/mHPh_aUfGD8">http://youtu.be/mHPh_aUfGD8</A><BR>07. <STRONG>NOCTEM "The Adamantine Doors"</STRONG> : <A href="http://youtu.be/rsNQonZdRNM">http://youtu.be/rsNQonZdRNM</A><BR>08. <STRONG>ORANGE GOBLIN "Sabbath Hex"</STRONG> : <A href="http://youtu.be/2l4Ts2p7jPE">http://youtu.be/2l4Ts2p7jPE</A><BR>09. <STRONG>SPIDERS "Shake Electric"</STRONG> : <A href="http://youtu.be/4IlpVlGTjbA">http://youtu.be/4IlpVlGTjbA</A><BR>10. <STRONG>THE HAUNTED "Eye Of The Storm"</STRONG> : <A href="http://youtu.be/uNAwrj1EUo8">http://youtu.be/uNAwrj1EUo8</A></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### acheron

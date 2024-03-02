@@ -192,6 +192,160 @@ Koen Herfst – Drums
 
 * C группой "Obscenity" Alexander Pahl (bass)
 
+## Публикации
+
+### 19.10.2001 news Дословно ... с немецкого...
+
+<p><img src=/images/news_rus/2001.10/1837.jpg border=1 align=right width=170 height=170 hspace=5>Германские трэш-дэтстеры "DEW-SCENTED" завершили работу над своим очередным альбомом "Inwards". Продюссировал все это дело - Энди Классен в Stage One Studio. Диск выходит в Европе на Нуклеар Бласт - 14-го января. Трэк-лист: <br> 01. Bitter Conflict <br> 02. Unconditional <br> 03. Life Ending Path <br> 04. Inwards <br> 05. Blueprints Of Hate <br> 06. Locked In Motion <br> 07. Degeneration <br> 08. Terminal Mindstrip <br> 09. Feeling Not <br> 10. Reprisal. <br> DEW-SCENTED также записали "простоубийственный" кавер SLAYER'овской "War Ensemble" который будет использован для бонус-треков...<br><br> Кстати скачать весь альбом "ILL-NATURED" можно скачать в МР3 на <a href="http://www.geocities.com/SunsetStrip/Pit/3566/home.htm">сайте группы...</a></p>
+
+Автор: Yermola
+
+### 19.10.2001 news DEW-SCENTED have completed work on their brand new album...
+
+<p><img src=/images/news/2001.10/1838.jpg border=1 align=right width=170 height=170 >German thrashers DEW-SCENTED have completed work on their brand new album, entitled Inwards, with producer Andy Classen at Stage One Studio and will be issuing the CD in Europe on January 14th. The full track listing for the effort is as follows: <br> 01. Bitter Conflict <br> 02. Unconditional <br> 03. Life Ending Path <br> 04. Inwards <br> 05. Blueprints Of Hate <br> 06. Locked In Motion <br> 07. Degeneration <br> 08. Terminal Mindstrip <br> 09. Feeling Not <br> 10. Reprisal<br><br> DEW-SCENTED have also recorded a deadly cover version of SLAYER's "War Ensemble" for possible use as bonus track. <br><br> You can download full "Ill-natured" album at <a href="http://www.geocities.com/SunsetStrip/Pit/3566/home.htm">bands site...</a></p>
+
+Автор: Yermola
+
+### 07.12.2001 news Dew-Scented are gearing up for their North American debut release...
+
+<p>German modern day thrashers, Dew-Scented, are gearing up for their North American debut release, Inwards. It will be with great pleasure that we present this slab of brutality to you, so get your neck-brace ready and hit your favorite store on February 19th to pick this one up. If you want to hear a sample now, be sure to check out the Nuclear Blast jukebox on our website (www.nuclearblastusa.com). <BR><BR> Also, for their upcoming live performances, the band will add a second, yet-to-be-named guitar player. Vocalist Leif Jensen commented, "We've been looking for about two years, but this new guy is really cool. He joined us on stage [recently] for the last two songs and played great." As of now, the band has no permanent plans to expand to a five-piece other than for live performances. Jensen left the possibility open, though, by adding, "We will see if we can continue with him. It's just more power with a double axe attack!"<BR><BR> In other news, Dew-Scented have been confirmed to play the With Full Force festival 2002! If you plan on making a summer trip to Europe, the festival will, once again, take place in Roitschjora, Germany (near Leipzig) at the Flugplatz (Airport) July 5th through 7th, 2002. If you want more details on the festival visit their website at www.withfullforce.de</p>
+
+Автор: Yermola
+
+### 07.12.2001 news CENTURY MEDIA RECORDS Release Schedule...
+
+<p>January 22nd, 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> February 5th, 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> February 19th, 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence <BR><BR> March 5th, 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 07.12.2001 news График релизов Century Media Records ...
+
+<p>22-е января 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> 5-е февраля 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> 19-е февраля 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence<BR><BR> 5-е марта 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 11.06.2003 news Dew Scented news
+
+<p>News from the band:</p>
+<P> “Dew-Scented are (as you might have heard) currently busy in the studio (yes, again at Stage One with Mr. Andy Classen) recording a new album. Everything is going well so far and the material is sounding totally killer! I can already tell you that we have nailed down a total of 15 songs onto tape for this new (still untitled album). 12-13 songs of those ones will be on the regular album and the rest will be used as bonus tracks. Among those 15 tracks we have two cover versions (one metal classic and a "punk" song) as well as a re-recorded version of the track "Skybound" which originally appeared on our '99 album "Ill-Natured". We are also still working on some intros etc. The album will be released in September.”</p>
+
+Автор: Vit Belov
+
+### 18.07.2003 news Новый альбом Dew-Scented
+
+<p>Немецкие трэшеры Dew-Scented выпускают новейший альбом "Impact" сначала в Германии, Австрии и Швейцарии 25 августа, а затем и в остальной Европе 1 сентября. Стандартная версия альбома включает одиннадцать композиций:<br> 1. Acts Of Rage<br> 2. New Found Pain<br> 3. Destination Hell<br> 4. Soul Poison<br> 5. Cities Of The Dead<br> 6. Down My Neck<br> 7. One By One<br> 8. Agony Designed<br> 9. Slaughtervain<br> 10. Flesh Reborn<br> 11. 18 Hours<br> Лимитированный дигипак будет дополнен бонусами - новой вещью "Force-Fed [The Bleeding Scheme]" и кавером на песню Turbonegro "Hobbit Motherfuckers". Кроме этого, Dew-Scented записали кавер Metallica "Metal Militia" и заново переписали собственную песню "Skybound" с альбома "Ill-Natured" 1999 года. Обе вещи войдут бонус-треками в более поздние релизы.</p>
+
+Автор: Morsus
+
+### 18.07.2003 news Dew-Scented new album
+
+<p>German thrashers Dew-Scented have set "Impact" as the title for their new album, release is scheduled in Germany, Austria, Switzerland on August 25 and the rest of Europe on September 1. The regular version of the album will feature the following track listing:<br> 1. Acts Of Rage<br> 2. New Found Pain<br> 3. Destination Hell<br> 4. Soul Poison<br> 5. Cities Of The Dead<br> 6. Down My Neck<br> 7. One By One<br> 8. Agony Designed<br> 9. Slaughtervain<br> 10. Flesh Reborn<br> 11. 18 Hours<br> A strictly limited digipak release of the album will feature as bonus tracks the brand new cut "Force-Fed [The Bleeding Scheme]" and a cover version of the Turbonegro song "Hobbit Motherfuckers". Additionally, the group have recorded a cover version of Metallica's "Metal Militia" and have re-recorded their own song "Skybound", which originally appeared on the 1999 album "Ill-Natured". Both of these songs will be used as bonus tracks at a later point.</p>
+
+Автор: Morsus
+
+### 25.08.2003 news DEW-SCENTED are about to release their new album...
+
+<p>DEW-SCENTED are about to release their new album, Impact, on October 21st. This is what the band had to say about the release on their website; “We can gladly announce that we managed to nail down all 15 tracks we wanted to do together with Andy Classen at Stage One studio during the last weeks (May - June) and can I promise you that the album sounds mind-blowing! Andy has managed to take the level of intensity even one (a big one...) step further in comparison to Inwards and we can't thank him enough for the KILLER job he has done! Cheers, brother!” <BR><BR> “The riffs are poisonous on this record and Uwe has certainly delivered his best drum performance ever on D-S albums! By the way: We have noticed that it has been quite an advantage having Hendrik as solid member of the band ever since the release of Inwards, because it adds yet another edge to our music to have 2 lead guitar players for the songs and he also took care of the bass-lines for the new album. Why? Well, Patrick is still helping us out for live-shows around the time being but unfortunately hasn't had much time to focus on the band lately... “<BR><BR> The final tracklist for Impact is as follows:<BR><BR> 01. Acts Of Rage <BR> 02. New Found Pain <BR> 03. Destination Hell <BR> 04. Soul Poison <BR> 05. Cities Of The Dead <BR> 06. Down My Neck <BR> 07. One By One <BR> 08. Agony Designed <BR> 09. Slaughtervain <BR> 10. Flesh Reborn<BR> 11. 18 Hours</p>
+
+Автор: Yermola
+
+### 15.11.2003 news Новое видео DESTRUCTION
+
+<P>Легендарное немецкое thrash metal трио <B>DESTRUCTION</B> закончило работу над новым видеоклипом <B>"Desecrators Of The New Age"</B>, который представляет из себя фрагменты с выступлений на открытом воздухе. Вскоре вместе со своими "товарищами по лейблу" <B>GRAVEWORM</B>, <B>DEW-SCENTED</B> и <B>MISERY INDEX</B> группа будет выступать в серии фестивалей X-Mas Festivals 2003, а в 2004 году примет участие в Wacken Anniversary Festival 2004.</P>
+Автор: Darkfall
+
+### 18.11.2003 reviews Безвкусная провизия в красивой обложке
+
+<P>Немецкая банда DEW-SCENTED с завидным постоянством шлёпает альбомы. То ли члены коллектива - гении, то ли написать десяток песен не представляется сложным, но после небольшого перерыва на рубеже веков, коллектив вышел на завидный график, альбом в год. Не только этим DEW-SCENTED напомнили мне своих коллег по цеху голландцев CALLENISH CIRCLE. С неизменно средним успехом группы выпускают пластинки на стыке death-metal и melodic death-metal, но при этом объезжают с турами всю Европу, подписаны на крупных лэйблах и чувствуют себя прекрасно. Публика предпочитает слушать среднее, но качественное (с качеством от Andy Classen мы уже знакомы), а не хорошее (порою даже отличное) с плохой реализацией. Плюс георафическое расположение Германии или Голландии делают существование этих коллективов вдвойне выгодным. Настолько обыденная работа, что даже страшно становится.</P>
+<P>Диск предоставлен точкой B2-100</P>
+Автор: Vit Belov
+
+### 22.11.2003 news Dew Scented in Europe
+
+29.11.2003 VILLEURBANNE - CCO ( FR) <BR>30.11.2003 NANTES - Barakson ( F) <BR>02.12.2003 SWANSEA - Escape Club ( UK) <BR>03.12.2003 DUBLIN - Eamon Dorans ( IRL) <BR>04.12.2003 GLASGOW - Cathouse ( SCH) <BR>05.12.2003 SHEFFIELD - Corporation ( UK) <BR>06.12.2003 COLCHESTER - Soundhouse ( UK) <BR>07.12.2003 LONDON - Mean Fiddler ( UK) <BR>08.12.2003 PARIS - La Locomotive ( F) <BR>09.12.2003 ESSEN - Zeche Carl ( D) <BR>10.12.2003 OSNABR&uuml;CK - Hyde Park ( D) <BR>11.12.2003 BERLIN - Columbia Halle Fritz ( D) <BR>12.12.2003 ENGELSDORF - Hellraiser ( D) <BR>13.12.2003 WELS - Schlachthof ( A) <BR>14.12.2003 VIENNA - Arena ( A) <BR>15.12.2003 MILANO - Alcatraz ( I) <BR>16.12.2003 PRATTELN - Z7 ( CH) <BR>17.12.2003 LUDWIGSBURG - Rockfabrik ( D) <BR>18.12.2003 PRAHA - Roxy ( CZ) <BR>19.12.2003 STRASBOURG - La Laiterie ( F) <BR>20.12.2003 ANTWERPEN - Hof Ter Loo ( B) <BR>21.12.2003 TILBURG - 013 ( NL)
+Автор: Vit Belov
+
+### 16.02.2004 news DEW-SCENTED - новый басист и отмена тура
+
+<P><B><IMG height=148 alt="" hspace=0 src="/images/news_rus/2004.02/6039.jpg" width=200 align="right" border=0>DEW-SCENTED</B> и <B>DESTRUCTION</B> были вынуждены отменить свой тур, который должен был состояться в феврале-марте. Новым басистом группы стал <B>Alexander Pahl (OBSCENITY),</B> он заменил ушедшего в 2003 оригинального музыканта <B>Patrick</B>.</P>
+Автор: Vit Belov
+
+### 17.06.2004 news DEW-SCENTED сочиняют песни
+
+<P>Немецкие трэшеры DEW-SCENTED сочиняют песни для очередного альбома. По словам музыкантов, новый материал разнообразен, весьма агрессивен и непременно понравится всем, кому пришёлся по вкусу их последний альбом "Impact". В декабре DEW-SCENTED отправятся в студию Stage One с продюсером Энди Классеном, а готовый альбом должен выйти весной 2005 года.</P>
+Автор: Morsus
+
+### 17.06.2004 news DEW-SCENTED - write new songs
+
+<P>German Thrash metallers DEW-SCENTED are currently writing songs for their new album - according to the band, the new material is highly varied and very aggressive and should please everyone who already loved last years "Impact". In December 2004, DEW-SCENTED will enter the Stage One Studios with producer Andy Classen to start the recording process, the finished album shall be released in Spring 2005.</P>
+Автор: Morsus
+
+### 19.06.2004 news Tuska Open Air in Finland
+
+The seventh annual Tuska Open Air Metal Festival has now confirmed its first artists for the 2004 festival. <BR><BR>The headliner for Saturday, the 17th of July, will be Nightwish, who will release their much-anticipated new album, "Once" in June. Nightwish will be mainly touring Europe and the United States next summer and their Tuska-performance is going to be one of their three finnish shows.<BR><BR>Another headliner at Tuska during 16.-18.7.2004 will be the legendary King Diamond. This pioneer of black metal has been touring the world for almost three decades, sold millions of records and inspired four generations of metalheads. Also appearing at Kaisaniemi Park are swedish melodic-deathmetal groups Soilwork and Dark Tranquility and german thrashers Dew-Scented.<BR><BR>Besides Nightwish, Tuska-festival will once again present the hottest finnish metal acts. During the weekend, performances by Impaled Nazarene, Sonata Arctica, Sinergy, Suburban Tribe, Mokoma, Kotiteollisuus and Timo Rautiainen & Trio Niskalaukaus will be taking place. The new generation of finnish metal will be represented by the highly acclaimed Swallow the Sun, Diablo, Machine Men, Kilpi and Twilightning.<BR><BR>Over the course of three days more than 30 bands will be appearing on three different stages. <BR><BR>In addition to the festival itself, the evening-clubs will entertain the festival crowd from Thursday through Sunday on four different locations. More than 30 up-and-coming acts will be performing in the evening-clubs, styles ranging from deathmetal to goth, industrial and cover-material.<BR><BR>Tickets for Tuska 2004 will go on sale in May through Tiketti (<A href="http://www.tiketti.fi/"><U>www.tiketti.fi</U></A>), Lippupalvelu (<A href="http://www.lippupalvelu.fi/"><U>www.lippupalvelu.fi</U></A>) and the new addition of Menolippu (<A href="http://www.menolippu.fi/"><U>www.menolippu.fi</U></A>). Tickets will also be available at selected record stores. Tuska 2004 is an all-ages festival.
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 01.04.2005 news Новый альбом DEW-SCENTED
+
+<P>Новый альбом <STRONG>DEW-SCENTED</STRONG> "<STRONG>Issue VI</STRONG>" выходит в Европе 20 июня. Альбом был записан в <STRONG>Stage One Studios</STRONG> с <STRONG>Andy Classen</STRONG>. Трэк-лист:</P>
+<P>01. <STRONG>Processing Life <BR></STRONG>02. <STRONG>Rituals of Time</STRONG> <BR>03. <STRONG>Turn to Ash <BR></STRONG>04. <STRONG>Ruins of Hope <BR></STRONG>05. <STRONG>Out of The Self <BR></STRONG>06. <STRONG>The Prison of Reason <BR></STRONG>07. <STRONG>Bled Dry</STRONG> <BR>08. <STRONG>In Defeat <BR></STRONG>09. <STRONG>Never to Return</STRONG> <BR>10. <STRONG>Vortex <BR></STRONG>11. <STRONG>Conceptual End <BR></STRONG>12. <STRONG>Evil Dead</STRONG> (<STRONG>ZEKE</STRONG> cover) </P>
+Автор: Vit Belov
+
+### 04.05.2005 news Кавер нового альбома DEW-SCENTED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=198 alt="" hspace=0 src="/images/news_rus/2005.05/8400.jpg" width=200 align=left border=5>Как мы уже сообщали, 20 июня выходит новый альбом <STRONG>DEW-SCENTED</STRONG> "<STRONG>Issue VI</STRONG>". На днях был опубликован кавер-арт. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кроме этого, группа едет в Японию, где даст три концерта в июне.</FONT></P>
+Автор: Vit Belov
+
+### 01.09.2005 reviews Трэш или дэт – вот в чем вопрос…
+
+<P>… Проходят годы, и все течет, все меняется. Казавшиеся несокрушимыми столпами мировой Metal-сцены группы вдруг «берутся за ум» и начинают играть странную музыку. Некогда дружные и сплоченные коллективы (не будем показывать пальцем) рассориваются вдрызг, после чего распадаются на части, а то и вовсе заканчивают свое существование. Кажется, что нет ничего, что бы оставалось постоянным. Однако…<BR>DEW-SCENTED – германская формация, существующая уже более десяти лет (если точнее – с 1992 года) и успевшая за это время выпустить шесть полноформатных релизов. Немецкие музыканты со своим новым альбомом доказали-таки мировой общественности, что кое-что остается неизменным, а именно – их взгляд на музыку. “Issue VI” – это все тот же скоростной и агрессивный трэш, накрепко спаянный с old school death metal (и микс сей, надо заметить, снова получился весьма и весьма удачным). Здоровый консерватизм налицо - традиции, традиции и еще раз традиции, на сей раз – начала 90-х годов прошлого века. <BR>Короткие, словно рубленные риффы, орущий, слегка сиплый вокал, редкие и скупые гитарные соло, зубодробильные барабанные сбивки – это все он, разудалый красавец “Issue VI”… Записывался альбом под чутким руководством Энди Классена (думаю, нет нужды перечислять здесь его многочисленные боевые заслуги – как в качестве музыканта, так и продюсера). Материал альбома, хоть и грешит некоторым однообразием, весьма напорист и энергичен – и тем силен. Средний и уж, тем паче, медленные темпы музыканты не приемлют в принципе, предпочитая неистовый драйв и забой. Из слабых сторон – недостаточная хитовость, из-за чего все двенадцать композиций слушаются легко и непринужденно, но совершенно не оседают в памяти. Крепкая и хорошая работа, но боюсь, что она может быстро надоесть.<BR>И вот что еще напоследок. Я давно заметил один интересный пунктик в творчестве DEW-SCENTED – все их альбомы (исключая разве что первое демо) носят названия на букву “I”. Концепция, однако, получается…</P>
+Автор: Dr. Grandma
+
+### 17.01.2007 news Новый альбом DEW-SCENTED
+
+<P><STRONG><IMG height=397 alt="" hspace=0 src="/images/news_rus/2007.01/11185.jpg" width=400 align=right border=5>DEW-SCENTED</STRONG> закончили запись нового альбома "<STRONG>Incinerate</STRONG>". Пластинка выйдет 30 марта на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Exordium</STRONG> [Intro]<BR>2. <STRONG>Vanish Away</STRONG> <BR>3. <STRONG>Final Warning</STRONG> <BR>4. <STRONG>That’s Why I Despise You</STRONG> <BR>5. <STRONG>The Fraud</STRONG> <BR>6.<STRONG> Into The Arms Of Misery <BR></STRONG>7. <STRONG>Perdition For All <BR></STRONG>8.<STRONG> Now Or Never <BR></STRONG>9. <STRONG>Aftermath<BR></STRONG>10. <STRONG>Everything Undone</STRONG> <BR>11. <STRONG>Contraddictions <BR></STRONG>12. <STRONG>Retain The Scars</STRONG> <BR>13. <STRONG>Exitus</STRONG> [Outro] </P>
+<P>Одновременно с окончанием работы над пластинкой группу покинул барабанщик <STRONG>Uwe</STRONG>. <STRONG>DEW-SCENTED</STRONG> включаются в поиски нового музыканта.</P>
+Автор: Vit Belov
+
+### 27.01.2010 news DEW-SCENTED на Metal Blade
+
+<P><STRONG>DEW-SCENTED</STRONG> подписали контракт с <STRONG>Metal Blade Records</STRONG>. Группа войдёт в <STRONG>Soundlodge Studios</STRONG> в Германии с продюсером <STRONG>Jorg Uken</STRONG> (<B>GOD DETHRONED</B>, <B>SINISTER</B>) для записи альбома, который выйдет в мае. </P>
+Автор: Vit Belov
+
+### 11.01.2011 news DEW-SCENTED опубликовали видео на песню &quot;Arise From Decay&quot;
+
+<P>Немецкие трэшеры<STRONG> DEW-SCENTED </STRONG>опубликовали видео на песню <STRONG>"Arise From Decay"</STRONG>. Этот трек вошёл на последний альбом группы, <B itxtvisited="1">"Invocation"</B>, вышедший 24 мая 2010&nbsp;в Европе на <B itxtvisited="1">Metal Blade Records</B> и 25 мая 2010 в Северной Америке на <B itxtvisited="1">Prosthetic Records</B>.</P>
+<CENTER>
+<OBJECT width=450 height=370>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=c4b631594aa135d16ad7" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+### 15.03.2011 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18870.jpg" width=250 height=250>Организаторы чешского фестиваля <STRONG>Brutal Assault</STRONG> анонсировали новых участников. Ими стали бразильцы <STRONG>SEPULTURA</STRONG>, американская hardcore группа <STRONG>FIRST BLOOD</STRONG>, норвежские авангардисты <STRONG>RAM-ZET</STRONG>, фины <STRONG>TURISAS</STRONG>, немецкие thrash/death металлисты <STRONG>DEW-SCENTED</STRONG>, почитатели марихуаны <STRONG>CANNABIS CORPSE</STRONG>, легенды NYHC <STRONG>CRO-MAGS</STRONG>, думстеры <STRONG>AHAB</STRONG>, а так же, возрождённые <STRONG>EXIVIOUS</STRONG>, в состав которых входят музыканты <STRONG>CYNIC</STRONG> и <STRONG>TEXTURES</STRONG>.</FONT></P>
+<P>Начиная с сегодняшнего дня и до 30 апреля, каждый желающий может купить электронный билет на фестиваль по сниженной цене в<STRONG> </STRONG>1257 чешских крон (примерно&nbsp;52.40 EUR) через систему <STRONG>PayPal</STRONG>! А уже начиная с мая месяца&nbsp;и до конца июля, такой же билет можно будет купить по цене 1357 шеских крон (примерно 56.60 EUR). Для получения дополнительной информации пройдите по ссылке: <A href="http://brutalassault.cz/en/tickets/">http://brutalassault.cz/en/tickets/</A></P>
+Автор: Headcrusher
+
+### 03.05.2012 news Новый альбом DEW-SCENTED
+
+<P>Новый альбом немецкой death-thrash-metal команды <STRONG>DEW SCENTED</STRONG> получил название <STRONG>"Icarus"</STRONG>. пластинка была записана в студии <STRONG>Soundlodge</STRONG> продюсером <STRONG>Jorg Uken</STRONG>. Обложку для альбома создал<STRONG> Bjorn Goosses</STRONG>. Тизер альбома можно послушать ниже.</P>
+<P><center><IMG height=475 src="/images/news_rus/2012.05/23757.jpg" width=475 border=0></P>
+<p><center><iframe width="640" height="360" src="http://www.youtube.com/embed/giFrrGP6Ojw?feature=player_embedded" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

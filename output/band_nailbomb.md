@@ -39,6 +39,21 @@ Engineered By Otto D'Agnolo.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.10.2001 news Кадровые перестановки у SOULFLY ...
+
+<p>Еще один музыкант пал жертвой некоей зеленоволосой Глории... После продолжительных разборок с менеджером "SOULFLY" - Gloria Cavalera, барабанщик Joe Nunez покинул группу. Разногласия начались по поводу оплаты труда Джо, который, как оказывается хотел получать зарплату не только во время выступлений и студийных записей. Пока что оставшаяся часть команды пытается уговорить барабанщика вернуться и продолжить запись третьего полноформатника. Известно что запись происходит в Phoenix’s Chaton Studios с Максом Кавалерой в роли продюссера и Otto D’Agnolo в качестве саунд-инженера. Ранее Кавалера уже работал с Ди Аньоло над двумя релизами "NAILBOMB" (Point Blank and Proud To Commit Commercial Suicide) и кавером SOULFLY - BLACK SABBATH’овской "Under The Sun" для трибьюта Nativity In Black II.</p>
+
+Автор: Yermola
+
+### 04.10.2001 news Drummer Joe Nunez is strongly rumored to have left SOULFLY ...
+
+<p>Drummer Joe Nunez is strongly rumored to have left SOULFLY after a disagreement with band manager Gloria Cavalera over the financial terms of his most recent arrangement with the group. According to a source close to Nunez, the skinsman had signed a contract with SOULFLY that had barely enabled him to survive during the “down” periods between recording sessions and tours, effectively forcing Joe to continue to cohabit with his mother in his hometown of Chicago, a situation that had grown progressively more intolerable in the recent months. After confronting Cavalera about renegotiating the terms of his contract, Nunez was reportedly told that no further negotiations would take place, leaving the drummer no choice but to quit the band. Although presently unconfirmed, sources indicate that SOULFLY are still hoping to hold on to Nunez for the imminent recording sessions for the group’s third full-length effort, which will reportedly take place at Phoenix’s (Brill Street) Chaton Studios with SOULFLY mainman Max Cavalera in the role of the producer and Otto D’Agnolo engineering the entire project. A relative unknown in metal circles, D’Agnolo had previously collaborated with Cavalera on the two NAILBOMB releases (Point Blank and Proud To Commit Commercial Suicide) and SOULFLY’s cover of BLACK SABBATH’s "Under The Sun" for the Nativity In Black II tribute CD. We will have more information on this as it becomes available. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Десять величайших обложек в истории лейбла Roadrunner.

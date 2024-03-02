@@ -190,6 +190,417 @@ Aksel Herloe - Guitars
 
 * C группой "Blood Red Throne" bassist-turned-guitarist Tchort
 
+## Публикации
+
+### 21.03.2000 news 
+
+<p>Новый альбом Einherjer называется "Norwegian Native Art". Он спродюсирован Энди ЛяРоком и выйдет в скором времени.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 reviews 
+
+<p>Третий альбом норвежских викингов. Честно говоря, после просмотра обложки этого альбома, я приготовился к чему-то злостному и кровавому. Но, прослушав первые аккорды, я понял, что ошибся. Группа продолжает развивать стиль, который был основой их предыдущего альбома, внеся некоторые коррективы в своё звучание. очевидно заметным стало доминирование клавишных. гитарные же риффы стали чисто хэви-металлическими, местами проскакивают пауэр-риффы. довольно легкий альбом, как может показаться на первый взгляд. Очень удачные простые мелодии и хоровые распевки, напоминающие застольное пение. В принципе. просто потрясающий альбом для тех, кто не знаком с предыдущими творениями группы. Остальным же грозит либо разочарование, либо удовлетворение. Лично мне, несмотря ни на что, альбом очень понравился.</p>
+
+Автор: Dimas
+
+### 26.06.2000 news Einherjer&#39;s mini-album
+
+<p>EINHERJER is currently planning a new EP. The EP will contain one new song, yet untitled, When the world lights dim, originally recorded during the Norwegian Native Art recording sessions and two coversongs of bands that has inspired EINHERJER a lot since 1993. One coversong is ROOT - Casilds Song and the other is yet to be confirmed. The mini-album is scheduled for release in November/December.</p>
+
+Автор: Vit Belov
+
+### 30.06.2000 news Einherjer планируют новый EP.
+
+<p>Einherjer планируют выпустить новый мини-альбом. На нём будет одна, пока не названная, новая песня, два кавера, один из которых песня группы Root, а также песня, написанная в течение сессии к последнему альбому группы. Релиз намечен на ноябрь-декабрь.</p>
+
+Автор: Vit Belov
+
+### 21.09.2000 news Мини-альбома Einherjer не будет.
+
+<p> Ранее объявленный мини-альбом не увидит свет. Вместо этого Einherjer сосредотачиваются на новом полном альбоме. Альбом пока ещё не получил названия, но его запись начнется в начале следующего года. Материал уже готов, и альбом будет даже более сильным, чем "Norwegian Native Art".</p>
+
+Автор: Morsus
+
+### 21.09.2000 news The mini-album Einherjer will not be released.
+
+<p> The previously announced mini-album will not see the light of day as planned. Instead Einherjer are focusing on their new album. The album is yet untitled but the recordingsessions will start early next year. Loads of material are ready and the album will be even stronger than the milestone "Norwegian Native Art".</p>
+
+Автор: Morsus
+
+### 17.02.2001 news К нам едет King Diamond!
+
+<p> Короли horror-metal'a King Diamond начнут своё европейское турне с выступления в Санкт-Петербурге 13-го марта. Вместе с ними в северную столицу обещают заехать и норвежские викинги Einherjer.</p>
+
+Автор: Nybras
+
+### 03.04.2001 news Кровавый Трон....
+
+<p>Новый норвежский проект с веселеньким названием "BLOOD RED THRONE" имеющий в своем составе бассиста/гитариста EMPEROR / SATYRICON / EINHERJER "Черта" со второго Апреля сидит в Dub Studios (Kristiansand, Norway) и пишет дебютный "Monument Of Death" для Hammerheart / The Plague Records. Микширование и мастеринг будут выполнены Henrik Larsson в Berno Studio (Швеция)(THE HAUNTED, VOMITORY). Будут записаны: 01. Ravenous War Machine 02. The Children Shall Endure 03. Monument Of Death 04. Portrait of a Killer (Testimony of the Dying) 05. Malignant Nothingness 06. Mary Whispers of Death 07. Souls Of Damnation 08. Dream Controlled Murder 09. Path Of Flesh</p>
+
+Автор: Yermola
+
+### 03.04.2001 news Monument Of Death....
+
+<p> Norway’s BLOOD RED THRONE, featuring former EMPEROR / SATYRICON / EINHERJER bassist-turned-guitarist Tchort, are due to enter Dub Studios in Kristiansand, Norway today, April 2nd, to begin recording their debut album, Monument Of Death, for Hammerheart / The Plague Records. Mixing and mastering will be done by Henrik Larsson at Berno Studio in Sweden (THE HAUNTED, VOMITORY). Songs being recorded are:</p>
+<p></p>
+<p> 01. Ravenous War Machine</p>
+<p></p>
+<p> 02. The Children Shall Endure</p>
+<p></p>
+<p> 03. Monument Of Death</p>
+<p></p>
+<p> 04. Portrait of a Killer (Testimony of the Dying)</p>
+<p></p>
+<p> 05. Malignant Nothingness</p>
+<p></p>
+<p> 06. Mary Whispers of Death</p>
+<p></p>
+<p> 07. Souls Of Damnation</p>
+<p></p>
+<p> 08. Dream Controlled Murder</p>
+<p></p>
+<p> 09. Path Of Flesh</p>
+<p></p>
+
+Автор: Yermola
+
+### 09.02.2002 news Вокалист Einherjer покинул группу
+
+<p>Норвежские викинги Einherjer официально объявили об уходе фронтмэна Рагнара Виксе. Освободившуюся вакансию занял гитарист группы Фроде Глеснес, став новым фронтмэном. Глеснесу уже доводилось петь на "Native Norwegian Art", правда в качестве второго вокалиста.</p>
+
+Автор: Morsus
+
+### 09.02.2002 news Einherjer have parted way with their frontman
+
+<p>Norwegian Viking metallers Einherjer officially announced the departure of frontman Ragnar Vikse. Einherjer won’t enlist a new singer, but will rather put Frode Glesnes in the spotlight as frontman. Glesnes did, in fact, sing on "Native Norwegian Art", but only as the "grim vocal" counterpart to Vikse.</p>
+
+Автор: Morsus
+
+### 22.06.2003 news Новости от EINHERJER
+
+<p>Норвежские викинги EINHERJER подписали договор с местным лэйблом Tabu Recordings на выпуск своего нового альбома. Сейчас, музыканты работают в студии. Предполагаемая дата выхода релиза - сентябрь 2003 года.</p>
+
+Автор: Dimas
+
+### 25.09.2003 news Einherjer in Europe
+
+Oct. 08 - John Dee - Oslo, NOR<BR>Oct. 09 - Garage - Bergen, NOR<BR>Oct. 10 - Flytten - Haugesund, NOR<BR>Oct. 11 - Tribute - Sandnes, NOR<BR>Oct. 12 - 1000Fryd – Aalborg, DEN<BR>Oct. 13 - Henriksberg – Gothenburg, SWE<BR>Oct. 14 - Kaffe 44 – Stockholm, SWE<BR>Oct. 15 - Bl&aelig;st - Trondheim, NOR<BR>Oct. 16 - Tapperiet - Molde, NOR<BR>Oct. 17 - Rust - &Oslash;rsta, NOR<BR>Oct. 18 - Hydranten – Hamar, NOR<BR>Oct. 24 – The Underworld - Camden, UK
+Автор: Vit Belov
+
+### 16.01.2004 reviews Лучший альбом в своём жанре в 2003 году
+
+<P>Viking-pagan-metal молодой жанр современного металла. Да и выделять его в отдельное направление, наверное, стоит только любителям и знатокам разнообразных фольклорных тонкостей. Правильнее было бы называть стили и дополнительно указывать народное направление музыки. В связи с этим большинство групп, отнесённых к этому жанру, проигрывают своим собратьям по стилю, которые в своём творчестве не замыкаются на фольклоре. Ведь народная музыка, сама по себе, достаточно однообразна. </P>
+<P>Альбом норвежцев <B>EINHERJER</B> является приятным исключением из обрисованных мною правил. Да, их музыка стилизована под фолк, но, им не является. Очень мелодичная, тяжёлая музыка с очень разнообразными аранжировками, где кроме традиционных норвежских мелодий, лидер группы <B>Gerhard</B> насочинял столько всего, что интерес не ослабевает в течение всего альбома. '<B>Blot</B>' невозможно загнать в стилистические рамки, здесь всё - от power до black. Кроме всего прочего, альбом настраивает на позитивный лад своим настроением. Это не комические плясовые пьяных троллей от <B>FINNTROLL</B> (хотя они тоже интересны), а глубокая жизнерадостность какого-нибудь викинга плывущего навстречу приключениям на своём судёнышке (надо ж на такое отважиться). </P>
+<P>На самом деле все эти метафоры здесь ни к чему. Просто советую всем любителям гитарной музыки, даже не очень тяжёлой. Отличный альбом.</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 19.02.2004 news EINHERJER распались
+
+<P>Музыканты EINHERJER обнародовали официальное заявление: "После 11-ти лет, 4-х альбомов и 2-х мини-альбомов мы решили распустить EINHERJER. Как нам кажется, всё что мы хотели сказать, мы выразили на альбоме "Blot". Одиннадцатилетнему пути пришёл конец. Благодарим всех, кто поддерживал нас все эти годы. Мы не исчезаем из поля зрения как музыканты, так что вы о нас ещё услышите. Всего наилучшего, Frode, Aksel и Gerhard."</P>
+Автор: Morsus
+
+### 19.02.2004 news Einherjer have split up
+
+<P>Einherjer have called it a day. Here's the official announcement: "After 11 years, 4 albums and 2 mini-albums we've decided to split up Einherjer. We feel that we've made the album we wanted with Blot and therefore a journey of 11 years has come to an end. We would like to thank everybody who has supported us through the years. For us, it is time to move on. We are definitively not retiring as musicians, so you haven't heard the last from us yet. Regards Frode, Aksel & Gerhard."</P>
+Автор: Morsus
+
+### 24.03.2004 reviews “Aurora Borealis”, часть вторая
+
+<P><I>Эх, не везёт ребятам с лейблами. Если помните, первый альбом (а вернее, переиздание демо-ленты) </I><I>EINHERJER</I><I>’ов увидел свет на американском </I><I>Necropolis </I><I></I><I>Records</I><I>. Что до первого по-настоящему полноформатного альбома, то его выпустили австрийские дельцы из </I><I>Napalm </I><I></I><I>Records</I><I>. Не прошло и полугода, как другие дельцы, – на сей раз немецкие, – учуяв недюжинный потенциал молодой норвежской группы, предложили куда более выгодный контракт. Дельцы </I><I></I><I>звались</I><I> Century Media Records. </I><I>Лейбл, который, выпустив два диска (“</I><I>Far </I><I></I><I>Far </I><I></I><I>North</I><I>” и “</I><I>Odin </I><I></I><I>Owns </I><I></I><I>Ye </I><I></I><I>All</I><I>”) группы, благополучно от неё избавился. Хреново, мол, продавались. Ребята из </I><I>EINHERJER</I><I> не отчаялись, взяли да и сбацали свою собственную компанию. Где умудрились выпустить не только следующий диск (“</I><I>Norwegian </I><I></I><I>Native </I><I></I><I>Art</I><I>”), но и ещё парочку релизов других команд. Увы, компания эта – </I><I>Native </I><I></I><I>North </I><I></I><I>Rec</I><I>’</I><I>s</I><I> – видать, накрылась медным тазом, ибо </I><I>EINHERJER</I><I> оказались уже пятый в своей жизни контракт. На сей раз с </I><I>Tabu </I><I></I><I>Recordings</I><I>. И спустя три года после выпуска “</I><I>Norwegian </I><I></I><I>Native </I><I></I><I>Art</I><I>” явили свету его преемника. Преемник, к счастью, вышел достойным. И не просто достойным, а, вполне возможно, что и во много раз лучше. Почему?.. Надо полагать, всё дело в изменениях, коснувшихся музыки </I><I>EINHERJER</I><I>. Каких?.. Во-первых, команда рассталась с вокалистом, «благодаря» которому многие плевались при прослушивании “</I><I>Odin </I><I></I><I>Owns </I><I></I><I>Ye </I><I></I><I>All</I><I>” и “</I><I>Norwegian </I><I></I><I>Native </I><I></I><I>Art</I><I>”. На мой взгляд, он был совсем неплох, но… Поменяли, так поменяли. Теперь, как и в давние (откровенно говоря, совсем уж в давние) времена за вокал ответственен один из основателей </I><I>EINHERJER</I><I> – </I><I>Frode </I><I></I><I>Glesnes</I><I>. За барабанами – другой отец-основатель, </I><I>Gerhard </I><I></I><I>Storesund</I><I>. Он же – автор клавишных партий. Ну прямо-таки “</I><I>Aurora </I><I></I><I>Borealis</I><I>”, часть вторая! И в этом есть доля правды. “</I><I>Blot</I><I>” представляет собой печально-заДУМчивый </I><I>pagan</I><I> / </I><I>viking </I><I></I><I>black</I><I>, от души заправленный соусом под названием </I><I>heavy </I><I></I><I>metal</I><I>. Правда, местами хорошенько попахивает не только своим же собственным переосмысленным наследием, но и «Драконами севера» (послушайте хотя бы “</I><I>Venomtongue</I><I>”). Вокал – отнюдь не чистый, как на том же “</I><I>Odin </I><I></I><I>Owns </I><I></I><I>Ye </I><I></I><I>All</I><I>”. Он – ласково каркающий, как, впрочем, и на “</I><I>Aurora </I><I></I><I>Borealis</I><I>”. Аранжировки, пожалуй, что достойны четвёрки с плюсом (по пятибалльной шкале, естественно), это же касается игры музыкантов, качества записи и… запоминаемости. Единственное: “</I><I>Blot</I><I>” – из тех альбомов, которые начинают по-настоящему нравиться только при внимательном прослушивании… эдак раз на третий. </I></P>
+<P><I></I></P><I>Диск предоставлен компанией <B>ФОНО</B></I>
+Автор: Kai Mathias Stalhammar
+
+### 27.01.2005 news EINHERJER переиздадут классику
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Tabu Recordings</STRONG> объявили о переиздании классического альбома <STRONG>EINHERJER 'Norwegian Native Art'</STRONG>. Пластинка была ремастирована <STRONG>Peter In De Betou</STRONG> (<STRONG>Dimmu Borgir, Enslaved, Susperia</STRONG>), был нарисован новый кавер в лучших традициях группы. На компакт-диск войдёт нереализованный бонус-трэк времён '<STRONG>Blot</STRONG>' и известный видео-клип '<STRONG>Ironbound</STRONG>'.</FONT></P>
+Автор: Vit Belov
+
+### 27.01.2005 news EINHERJER&#39;s re-issue
+
+<P><STRONG>EINHERJER</STRONG> will re-release their all-time classic <STRONG>'Norwegian Native Art'</STRONG> on <STRONG>Tabu Recordings</STRONG>. The album has been unavailable for several years and is well sought after. Re-mastered at <STRONG>Tailor Maid Studios</STRONG>/Stockholm by <STRONG>Peter In De Betou</STRONG> (<STRONG>Dimmu Borgir, Enslaved, Susperia</STRONG>). The stunning new artwork is done in true <STRONG>EINHERJER</STRONG> tradition. This release will include an unreleased track from the <STRONG>BLOT</STRONG>-sessions plus the already classic<STRONG> IRONBOUND</STRONG> video clip as bonus material. </P>
+Автор: Vit Belov
+
+### 14.07.2011 news Обложка нового EINHERJER
+
+<P>Новый альбом <STRONG>EINHERJER "Norron"</STRONG> выйдет 9 сентября на<STRONG> Indie Recordings</STRONG>. Будущая пластинка станет "кам-бэком" группы после восьмилетнего отсутствия. Альбом был записан в <STRONG>Studio Borealis</STRONG>, а сведение выполнил <STRONG>Matt Hyde (SLAYER, MONSTER MAGNET)</STRONG>. Обложку нарисовал <STRONG>Renathe H. Bryn</STRONG>.</P>
+<P><center><IMG height=375 src="/images/news_rus/2011.07/20127.jpg" width=375 border=0></P>
+Автор: Vit Belov
+
+### 31.07.2011 news Трек-лист нового EINHERJER
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.07/20383.jpg" width=475 align=right border=0>Новый альбом <STRONG>EINHERJER "Norron"</STRONG> выйдет 9 сентября на<STRONG> Indie Recordings</STRONG>. Пластинка была записана в <STRONG>Studio Borealis </STRONG>и спродюсирована музыкантом группы <STRONG>Frode Glesnes</STRONG>. Сведением занимался <STRONG>Frode Glesnes, </STRONG>Обложку нарисовал <STRONG>Renathe H. Bryn</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист первого альбома EINHERJER за восемь лет:</FONT></P>
+<P>01. <B>Norron Kraft</B><BR>02. <B>Naglfar</B><BR>03. <B>Alu Alu Laukar</B><BR>04. <B>Varden Brenne</B><BR>05. <B>Malmting</B><BR>06. <B>Balladen Om Bifrost</B></P>
+Автор: Vit Belov
+
+### 19.08.2014 news EINHERJER: клип и 7&quot; винил
+
+<P>Пионеры&nbsp;viking metal,&nbsp;норвежская группа&nbsp;<STRONG>EINHERJER</STRONG>, выпустила новый видеоклип на песню <STRONG>"Nidstong" </STRONG>(автор видео: <STRONG>Costin Chioreanu</STRONG>). Под этим же названием 25 августа выйдет 7" винил на лейбле <STRONG>Indie Recordings</STRONG>. Всего будет выпущено 500 экземпляров паластинки. Сделать заказ можно по ссылке: <A href="http://einherjer.indierecordings.no/">http://einherjer.indierecordings.no</A></P>
+<P>Новый студийный альбом группа обещает выпустить в конце этой осени.</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/ILKU8ibGYvc" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### EINHERJER

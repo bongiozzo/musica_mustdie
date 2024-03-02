@@ -48,6 +48,17 @@ Recorded At Chicago Trax Studios.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.12.2012 news Скончался Mike Scaccia
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25180.jpg" width=350 height=526>Печальные вести пришли из стана&nbsp;групп&nbsp;<STRONG>MINISTRY </STRONG>и <STRONG>RIGOR MORTIS</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Прошедшей ночью от сердечного приступа скончался&nbsp;гитарист&nbsp;<STRONG>Mike Scaccia</STRONG>. Случилось это во время шоу посвящённого 50 летию Брюса Корбитта (<STRONG>Bruce Corbitt</STRONG>, вокалист <STRONG>RIGOR MORTIS</STRONG> и<STRONG> WARBEAST</STRONG>), на котором <STRONG>Mike</STRONG> выступал в составе <STRONG>RIGOR MORTIS</STRONG>. Майку было 47 лет.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В качестве гитариста, <STRONG>Mike</STRONG> поучаствовал на нескольких альбомах&nbsp;<STRONG>MINISTRY</STRONG>, а также&nbsp;побочных проектах их лидера Эла Юргенсона (<STRONG>Al Jourgensen</STRONG>) - в том числе, <STRONG>LARD</STRONG> и <STRONG>REVOLTING COCKS</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Так же <STRONG>Mike Scaccia</STRONG> был известен, как основатель техаской трэш-металлической формации <STRONG>RIGOR MORTIS</STRONG>, с которой он&nbsp;в конце 80-х/начале 90-х&nbsp;записал и выпустил&nbsp;два полноформатника и один миньон.&nbsp;Несколько лет назад группа воссоединилась&nbsp;и работала над своим новым альбомом...</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

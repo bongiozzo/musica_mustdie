@@ -518,6 +518,2215 @@ Cover artwork by Joachim Luetke.
 * C группой "Arcturus" ICS Vortex (bass, vocals)
 * C группой "Artisan" Mustis (keyboards)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Новый альбом DIMMU BORGIR "Spiritual Black Dimensions" выйдет в Европе в марте. Кстати, его уже сейчас можно купить на Горбушке.</p>
+
+Автор: Vit Belov
+
+### 16.02.1999 reviews 
+
+<p>Первые же аккорды альбома выплёскивают на слушателя такую волну ярости и агрессии, что поневоле становится страшно. Но это чувство длится недолго. Постепенно музыканты смягчают музыку. Это достигается в первую очередь за счёт обильного использования симфонических партий клавишных инструментов и частых подпевок простым вокалом. На альбоме есть немало неожиданных музыкальных элементов. Радует постоянная смена ритма - от ультрабыстрых блэковых партий до медленных псевдоготических. Причём, даже в ультрабыстрых партиях, прорывается шквал мелодий. Иногда, альбом звучит как опера. Кстати, совсем недавно прекратила своё существование ещё одна известная норвежская команда ARCTURUS. Я тогда очень огорчился. Видно DIMMU BORGIR тоже не смог смириться с этим. И всеми нововведениями на этом альбоме, на мой взгляд, DIMMU BORGIR обязаны ARCTURUS'у. При тщательном прослушивании, заметно, что многие клавишные партии, а особо гитарные соло-партии, напоминают манеру исполнения ARCTURUS'а. Что интересно, при первом прослушивании ARCTURUS'a, я обратил внимание, что эти партии соло-гитары мне что-то подозрительно напоминают. Покопавшись в своей фонотеке, я с удивлением обнаружил, что они, как капля воды, похожи на некоторые партии соло-гитары с альбома группы ЧЁРНЫЙ ОБЕЛИСК-"Стена" вышедшего в 1991 году. Ну конечно партии не слизаны. Просто они сыграны при одинаковой настройке гитары, придающей звучанию большую оригинальность. Вот такие вот дела. Ну что же, перейдём к главному. Да, в принципе, что писать. Это надо слушать. Уж на что я считал "Enthrone Darkness Triumphant" шедевром. Но новый пятый альбом этих грозных норвегов безусловно лучше. А что может быть лучше шедевра? Ответ прост - новый альбом DIMMU BORGIR. Наслаждайтесь лучшим образцом симфонического black-metal.</p>
+
+Автор: Dimas
+
+### 23.02.1999 news 
+
+<p>Dimmu Borgir, Covenant и Mundanus Imperium были номинированы на лучшую тяжёлую группу в Норвегии. Лучшей стала группа Covenant.</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>На предстоящем Европейском туре место за барабанной стойкой Dimmu Borgir займёт Николас Баркер, недавно ушедший из Cradle Of Filth.</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>Covenant записали новый альбом "Prophecies Of Fire". Сообщается о некоторых изменениях в звуке группы. Два изменения коснулись имён участников группы. Бывший член Dimmu Borgir Нагаш взял имя Lex Icon, а Black Heart стал Psy Coma.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Borknagar не начнут запись нового альбома до конца года, так как их вокалист Симен будет гастролировать вместе с Dimmu Borgir. Смешная новость о группе: американский порно-журнал Hustler собирается написать статью о Borknagar, и даже пошлёт специального репортёра в Норвегию в мае.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Новости о сайд-проектах участников Napalm Death. Шейн вместе с известными музыкантами Билли Гулдом и Дино Касаресом закончили новый альбом Brujeria, который выйдет позже в этом году. Митч закончил запись нового альбома Meathook Seed, который выйдет также в этом году. Также Джесси и Шейн объединились с Л.Г. Петровым (Entombed) и Николасом Бэйкером (ex-Cradle Of Filth), Dimmu Borgir) для запуска нового проекта Lock-On. Также в этом году Барни и Дэнни планируют записать новые песни для нового альбома Nothing But Contempt.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Dimmu Borgir отменили свой тур по США, из-за пресональных проблем.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Covenant приостановили запись альбома, из-за болехни вокалиста Lex Icon. Запись возобновится в конце июня. Группу покинул Astennu, чтобы уделять больше внимания Dimmu Borgir.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>В сентябре Dimmu Borgir проедутся с концертами вместе с Samael. Таким образом Dimmu Borgir отменили концерты с Emperor и предпочли им Samael. Миньон Samael "Exodus" будет переиздан, как digi-pak. Новый альбом "Eternal" уже вышел в Европе.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Барабанщик Ник Бэйкер, известный по Dimmu Borgir и Сradle Of Filth, поможет Borknagar во время их тура, а также при записи следующего альбома.</p>
+
+Автор: Vit Belov
+
+### 17.10.1999 news 
+
+<p>Dimmu Borgir начали сочинение песен для нового альбома, который по словам Силеноза будет более дэтовый, на нём будет больше клавиш и чистого вокала.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Dimmu Borgir войдут в студию для записи нового альбома в марте-апреле.</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>Два поляка замочили одну польскую девушку в Польше. Вроде бы ничего особенного. Но оказалось, что они очень любят Dimmu Borgir. В польском парламенте появилась небывалая шумиха по этому поводу. В скором времени Dimmu Borgir будут запрещены в Польше.</p>
+
+Автор: Vit Belov
+
+### 15.06.2000 news Plans of Dimmu Borgir
+
+<p>According Heavymetal.guide: The band has begun concentrating on their next work of excellence. According to Silenoz, the yet untitled new Dimmu Borgir album will be recorded in August/September 2000, with a tentative release date of February 2001. The new album will most likely be recorded in Oslo Norway. A specific studio and producer have not yet been named.</p>
+
+Автор: Vit Belov
+
+### 15.06.2000 news Планы Dimmu Borgir
+
+<p>Dimmu Borgir собираются сконцентрироваться на своей новой работе. По сообщению Силеноза, альбом будет записан в августе-сентябре 2000 года и выйдет приблизительно в феврале 2001 года. Продюсер и его название пока не названы, но записываться он будет в Осло.</p>
+
+Автор: Vit Belov
+
+### 04.08.2000 news Astennu уволен из Dimmu Borgir.
+
+<p>Dimmu Borgir уволили своего гитариста Astennu из группы, объяснив это тем, что он лишился энтузиазма и не хочет нормально работать в группе. Найдена замена, это некий Archon. Запись нового альбома намечена на сентябрь.</p>
+
+Автор: Vit Belov
+
+### 04.08.2000 news Astennu was fired from Dimmu Borgir.
+
+<p>According www.tombstone.gr: In a statement the band announced that Astennu is fired and released from all his duties. "With this statement we want to announce that Astennu has been fired and will no longer be a part of Dimmu Borgir. Basically we decided to release Astennu from all duties because it became apparent over the past 7-8 months that he was in the band for all the wrong reasons and had lost all of his passion and dedication, enthusiasm and 100% commitment to Dimmu Borgir and what we stand for. For all of us in the band, Dimmu is our life, it's a way of life and not some fucking boring day job!!! So we came to a unanimous decision about the whole affair and we are proud to announce Astennu's replacement, Archon on guitar who will appear on the forthcoming as yet untitled new album due to be recorded in September 2000. We kept the whole affair with Astennu confidential for a while until we found a suitable replacement. Dedication and 100% commitment was what we were looking for in a musician and these are qualities we noticed immediately in Archon as well as being a killer guitarist and an individual. The first two weeks with Archon proved to be very productive and successful and he's already contributed to three of the new songs. There's a very positive atmosphere within the band and we're looking forward to recording the new material and next year's world tour in support of the album!".</p>
+
+Автор: Vit Belov
+
+### 16.08.2000 news Galder заменит Astennu в Dimmu Borgir.
+
+<p> Никто иной, как Galder (Old Man's Child), заменит Astennu на гитаре в Dimmu Borgir. Однако, это не означает, что он оставит O.M.C. Как говорит Galder, "Я решил продолжить работать с группой по нескольким причинам, и прежде всего, потому что я вложил слишком много времени, энергии и души в команду, и я чувствую, что у меня все еще есть огромное количество идей для нее."</p>
+
+Автор: Morsus
+
+### 16.08.2000 news Galder will replace Astennu in Dimmu Borgir.
+
+<p> No other than Galder (Old Man's Child) will replace Astennu on guitar in Dimmu Borgir. However, this does not mean that he will quit O.M.C. "I decided to continue with the band for several reasons, first of all because I have put so much time, energy and spirit in the band and I feel that I still have lots of ideas to put into the band." says Galder.</p>
+
+Автор: Morsus
+
+### 26.08.2000 news Новое заявление гитариста Dimmu Borgir
+
+<p> Вот что сказал Silenoz о новом альбоме Dimmu Borgir: " Мы уже написали весь материал для нового альбома и готовы отправиться в студию с 16 октября! В записи примет участие маленький оркестр из 12-ти человек. Это будет настоящий fucking killer!". Название альбома пока не известно.</p>
+
+Автор: Nybras
+
+### 26.08.2000 news Silenoz says that Dimmu Borgir will use orchestration in the next album
+
+<p> A new declaration of Silenoz about the next DIMMU BORGIR album: "We have all the songs finished for the album now, ready to be recorded the 16th of October! We're going to use an 12-man orchestra as well, conducted by the Norwegian celebrity Gaute Storas. It's gonna be so fucking killer". The title hasn't been revealed yet.</p>
+
+Автор: Nybras
+
+### 31.08.2000 news Новая группа бывшего барабанщика Dimmu Borgir
+
+<p> Новая группа бывшего драммера Dimmu Borgir Tjodalv'а Susperia на днях обзавелась собственным вэб-сайтом по адресу www.susperia.net. В планах молодого коллектива отправиться в студию в октябре этого года, а затем выпустить дебютный альбом примерно весной 2001-го.</p>
+
+Автор: Nybras
+
+### 31.08.2000 news ... И еще новости из лагеря Dimmu Borgir
+
+<p> Как мы уже сообщали ранее, новый альбом Dimmu Borgir будет записан вместе с небольшим оркестром, а место ушедшего гитариста Astennu займет фронтмэн группы Old Man's Child Galder. Теперь стали известны названия трэков, которые войдут в новый альбом: 'Blessings Upon The Throne Of Tyranny', 'Maelstrom Mephisto', 'Architect Of A Genocidal Nature', 'Sympozium' и 'Kings Of The Carnival Creation'. Японская версия альбома ещё включит в себя перезаписанную 'Devil's Path'. Галдер также заявил, что Old Man's Child займутся работой над новым альбомо только тогда, когда у него появится свободное время, и на данный момент Dimmu Borgir для него является основным коллективом.</p>
+
+Автор: Nybras
+
+### 22.09.2000 news Официальное заявление от экс-драммера Dimmu Borgir
+
+<p> Tjodalv сделал официальное заявление касающееся деятельности его новой группы Susperia: "Привет, народ!! Произошли важные события, посмотрите новый сайт Susperia!! Это новая группа бывшего барабанщика Dimmu Borgir. Я, Tjodalv, и Cyrus (бывший сессионный музыкант Satyricon и Old Man's Child) организовали эту группу в октябре 1998-го года. И полностью укомлектовали ее состав к августу следующего года, когда к группе присоединились Athera, Memnock и Elvorn. Susperia выпустила одно демо "Illusions of Evil", которое было записано в конце 1999-го года. Мы подписали контракт с Nuclear Blast на выпуск четырех альбомов. Пока еще не названный альбом мы планируем записать в октябре 2000-го, а выйдет он ориентировочно в январе\феврале следующего года. Посетите наш официальный сайт по адресу www.susperia.net."</p>
+<p></p>
+
+Автор: Nybras
+
+### 08.11.2000 news Получил название новый альбом Dimmu Borgir.
+
+<p>Новый альбом Dimmu Borgir будет называться "Puritanical Euphoric Misanthropia", дата официального выхода в свет установлена на 12 марта 2001 года!</p>
+
+Автор: Morsus
+
+### 08.11.2000 news The new album of Dimmu Borgir has received a title.
+
+<p>The new album of Dimmu Borgir will be entitled "Puritanical Euphoric Misanthropia", release date is set for the 12th of March 2001!</p>
+
+Автор: Morsus
+
+### 02.02.2001 news Трэк-лист нового творения Dimmu Borgir
+
+<p> Напомню, что новый альбом норвегов Dimmu Borgir "Puritanical Euphoric Misanthropia" официально появится в продаже 12-го марта. А вот трэк-лист альбома (в произвольном порядке): Intro (второе возможное название "Fear and Wonder"), Blessings upon The Throne of Tyranny, IndoctriNation, Sympozium, The Maelstrom Mephisto, Hybrid Stigmata, The Apostasy, Puritania, Perfection or Vanity, Kings of The Carnival Creation, Absolute Sole Right, Architecture of A Genocidal Nature, Burn in Hell и еще кавер одной из песен группы Twisted Sister получат в качестве бонус-трэка все владельцы digi-pack'овой версии диска.</p>
+
+Автор: Nybras
+
+### 03.03.2001 news Про Cannibal Corpse...
+
+<p> CANNIBAL CORPSE объявили о своих планах насчет весеннего Neck Break Tour 2001, в компании с норвежскими "блэк метал гуру" DIMMU BORGIR, "шведскими трэш-королями" THE HAUNTED и новым гриндовым актом LAMB OF GOD. Начнется это дело 13 апреля в Ворчестере, а закончится в Монреале 6-го мая. В данный момент CC занимаются написанием песен к своему восьмому полноформатнику. Как только закончится вышеозначенный тур, музыканты засядут в Village Studios в Эль-Пасо с продюсером Колином Ричардсоном (MACHINE HEAD, FEAR FACTORY). Октябрь сего года называется наиболее вероятной датой выхода альбома. (Legion Online)</p>
+
+Автор: Nybras
+
+### 09.03.2001 reviews Не поддающийся описанию безумный спектакль
+
+<p>Не поддающийся описанию безумный спектакль. Захватывающая музыка с непередаваемой красотой и атмосферой мрака и ужаса. Эта музыка отлично подошла бы в качестве саундтрека какому-нибудь человеконенавистническому ужасному блокбастеру. В первую очередь такой атмосфере группа должна быть обязана Gothenburg Opera Orchestra, ну и конечно своему клавишнику Mustis'у проявившему недюжинный талант при написании своих партий, явно выделяющимися на фоне основных музыкальных линий. На сегодняшний день Dimmu Borgir - это скопище талантливейших музыкантов (Silenoz, Shagrath, Galder, Vortex, Nicholas Barker, Mustis) - профессионалов своего дела, отлично проявивших себя до того в других группах. На мой взгляд, этот альбом даже превосходит лучший альбом прошлого года "Midian" от Cradle Of Filth. Вся группа проявила невероятные композиторские способности, сумев создать сильнейший и разнообразнейший материал на самом современном музыкальном уровне. Большинство песен на альбоме быстрые, зловещие и мрачные. Есть несколько экспериментов над новым звуком с элементами индустриального звучания, причем очень удачных. Но не думайте, что это смена звука, все по-прежнему чрезвычайно тяжело и красиво, настоящий black-metal. Сметающие все бласт-биты, пило-бритвенные риффы. От некоторых гитарных риффов на фоне мрачнейших и резких симфонических партий откровенно веет апокалипсисом и разрушениями, очень сильна атмосфера хаоса и душевного неравновесия. Очень экстремальный материал (хотя опять найдутся люди, которые будут кричать про коммерцию). Голос Shagrath'a силен и превосходен как никогда, немногочисленные партии чистого вокала остались за Vortex'ом. Потрясающая мощная музыка переполняющая воображение. Под конец - интереснейшая black-версия песни Twisted Sister "Burn In Hell". Адски красивый альбом!</p>
+
+Автор: Dimas
+
+### 12.03.2001 reviews Mad performance, not yielding to the description
+
+<p>Mad performance, not yielding to the description. Fascinating music with inexpressible beauty both atmosphere of a gloom and horror. This music perfectly would approach in quality soundtrack any man-hating awful blockbuster. First of all group should be obliged such atmosphere Gothenburg Opera Orchestra, well and certainly Mustis'у exhibiting remarkable talent at writing the crews obviously discharging on a background of the main musical lines. For today Dimmu Borgir is mixture of the most talented musicians (Silenoz, Shagrath, Galder, Vortex, Nicholas Barker, Mustis) - professionals of the business perfectly exhibiting up to that in other groups. On my view, this album even surpasses the best album of past year "Midian" from Cradle Of Filth. All group has exhibited improbable compositors of capacity, having managed to create a strongest and diverse stuff at the advanced musical level. The majority of songs on an album fast, evilness and sad. There are some experiments above a new note with members of industrial sounding, and very successful. But do not think, what is it gang of a note, all is still extremely high-gravity and it is beautiful, present black-metal. Sweeping away all blast-bits, drink - shaving riffs. From some guitar риффов on a background darkest and sharp symphonic crews is frank by an apocalyptic style and destructions, the atmosphere of chaos and spiritual non-equilibrium is very strong. A very extreme stuff (though again there will be people, which one will shout about commerce). The voice Shagrath is strong and is excellent as never, the sparse crews clean voice have remained for Vortex. Startling potent music overflowing imagination. Under the end - most interesting black-version songs Twisted Sister " Burn In Hell ". Beautiful album as Hell!</p>
+
+Автор: Dimas
+
+### 16.03.2001 reviews Новый удар норвежцев
+
+<p> Итак, вот он - новый альбом Dimmu Borgir. Сразу же скажу, что Puritanical Euphoric Misanthropia стопроцетно оправдывает все возложенные на него ожидания, здесь есть все - агрессия, атмосфера и монументальность, мрачный мелодизм. В целом альбом заметно жестче и тяжелее, нежели предыдущие творения группы, и имеет заметный уклон в дес-метал. Клавиши серьезно отодвинуты на задний план, гитарные соло практически отсутствуют, зато очень удачно, грамотно и в меру используется оркестр из 12 человек. Что еще очень сильно обращает на себя внимание - так это невероятно мощное и четкое звучание. По сравнению с кашеобразным звуком предыдущем шедевра "Spiritual Black Dimentions" этот альбом прописан просто убийственно! Настоящим украшением служат барабаны в исполнении Никласа (ex Cradle Of Filth) - такого мощного барабанного звука я не слышал, кажется, нигде. Оформление альбома - 24 страничный буклет - также очень впечатляет. Чего стоит хотя бы изображение вокалиста Шаграта, держащего в руке собственную отрубленную голову! В-общем, смело отправляйтесь в магазин - это тот альбом, о котором много будет слышно в ближайшие месяцы.</p>
+<p></p>
+
+Автор: Martin
+
+### 28.03.2001 news Пуританско &#x2F; эйфорическая Мизантропия...
+
+<p>Ответ на вопрос "Попса ли DIMMU BORGIR ?" - нужно наверное искать в разных хит-парадах. Например в Германии "Puritanical Euphoric Misanthropia" стоит на 16 месте в чартах (и это самое высокое место для Black Metal во все времена!), в Австрии - на 23, в Дании - 84 и в Финляндии №11. В Японии альбом только что вышел (25 апреля) и еще не успел занять какого-либо места. :))))</p>
+
+Автор: Yermola
+
+### 28.03.2001 news DIMMU BORGIR - Puritanical... Raids The Euro-Charts!
+
+<p>DIMMU BORGIR's new album, Puritanical Euphoric Misanthropia, entered the German Album chart at #16, making it the highest-charting Black Metal album of all time. The album entered the Austrian chart at #23, the Dutch chart at #84, and the Finnish chart at number #11. The album is out in Japan on April 25th. This edition includes the bonus track 'Burn In Hell' and a 28 page color booklet. The first pressing will also include a sticker and a second enhanced CD.</p>
+
+Автор: Yermola
+
+### 26.04.2001 reviews Об обнаженной натуре и натуральной коммерции
+
+<P>Как бы это лучше начать... Альбом не то что бы совсем плохой - в предыдущих рецензиях как написано, так оно и есть, но разных "НО", низводящих все просто до нуля и не отраженных в тех обзорах, накопилось очень много.</P>
+<P>Начнем с мелочей: во-первых обещанного оркестра считай толком и не слыхать - только небольшие интры перед песнями, причем такие, которые вполне можно неплохо сыграть и на синтезаторе и по что для этого надо было нанимать еще 12 нахлебников, вместо того, чтобы заставить нормально работать одного - совершенно непонятно. И зачем при таком раскладе вообще нужен клавишник - тоже не ясно.</P>
+<P>Далее, что удручает больше всего - те клавиши, что есть, смикшированы так, что задвинуты незнамо куда на очень далекий задний план и как следствие все фирменное Боргирово СИМФО-звучание куда-то исчезло и осталось одно однообразное рубилово, которое сделает честь разве только дебютнику какой-нибудь начинающей команды. На все это наложен очень выпирающий и заглушающий музыку (вытянутый при микшировании) очень противный вокал, хоть и блэково искаженный, но какой-то совсем даже и не блэковый, а высокий и булькающий, и что самое главное, до мерзости отвратный (прямо не верится, что это Шаграт, раньше он рычал нормально, действительно блэково!), а в сочетании с примитивной партией музыки и какими-то слащавыми клавишами на заднем плане (и куда только делась былая агрессия предыдущих трех альбомов?) все выглядит ну просто очень, мягко говоря, отвратительно.</P>
+<P>Из положительных моментов же можно отметить только изумительное качество записи (Дык оно и немудрено - какую студию и за какие бабки зафрахтовали! Ет вам не на четырехдорожечном мафоне в грязном гараже у шумной автострады записываться!!!) и некоторое разнообразие в треках, характеризующееся отсутствием их мешанины (хотя толку-то с того...). Надо сказать, что для эпохального альбома плюсов негусто. Минусов, увы, намного больше. Чего стоит одна только обложка с обнаженной феминой, сверкающей своим волосатым влагалищем и мясистым выменем, тиснутая сюда, видимо, для увеличения спроса. Ну, не вяжется такая пошлятина с песнями про оккультизм и инфернальные кошмары. Ей место на сборнике баллад любимца американских колхозниц Джона Бон Джови, а не на серьезной андеграундной работе.</P>
+<P>Итого имеем просто еще один коммерческий альбомишко, изданный из-за нехватки денег на пиво, который не то что с "Ентроне Даркнесс Триумфант", но и с любым другим их релизом соперничать ну никак не может и по большому счету с Боргиром ничего общего не имеет ибо состав там уже более чем наполовину НЕ Боргиров (И по что Галдеру опять приспичило с ними связаться - его Олд Манз Чайлд хоть и стал совсем коммерческим, но тем не менее в сто раз профессиональнее и талантливее!), да и погано-попсовое влияние Крэдлов в ново-Боргировской музыке стало очень сильнО.</P>
+<P>В общем, сплошная коммерция и позерство. Например, последний Олд Манз Чайлд - "Ревелэйшион 666", конечно, тоже до мозга костей коммерческий и претензий к нему можно предъявить массу, но он замечательно и с удовольствием весь слушается "от" и "до" на одном дыхании! Бюргера же нового тысячелетия приходится буквально впихивать в себя через силу - еле-еле прослушал (точнее, попытался прослушать) его несколько раз в разное время дня в разном настроении: но после очередной попытки весь изматерился вконец и вынес ему справедливый приговор. Железный Маст Дай! (Кстати, положительные же отзывы о нем я лично в глаза слышал только от сопливых малолеток, гейского вида, которые искренне считают Кренделей В Грязи - БЛЭКОМ, а Детей с Бодуна - ДЕТОМ).</P>
+<P>Раньше Боргир тоже был далеко не ТРУ-БЛЭКом, (рядом с классиками блэка ставить его просто смешно!), и занимался просто катанием крайней плоти по клавишам, но тем не менее он делал это КРАСИВО и даже, по сути, СМОГ СОЗДАТЬ НОВОЕ НАПРАВЛЕНИЕ в музыке - СИМФО-БЛЭК, пусть даже коммерческий и продажный, но захватывающий и неординарный, а сейчас, альбомом нового тысячелетия он просто напрочь убил все, чего сам же и создал. Очень грустно. Лучше бы Шаграт и в самом деле отрубил себе голову своим же ножом и надел бы ее на гриф гитары. Все-таки уходить надо красиво и вовремя. А альбом еле тянет на троечку - и то только из-за того, что уж больно девочка на обложке сексуальная!</P>
+Автор: Alexey Pitirimov
+
+### 02.05.2001 news DIMMU BORGIR в Риге!
+
+<p> 21 мая 2001 года в Риге (Латвия) состоится концерт норвежских блэкстеров DIMMU BORGIR. Поддержка ожидается от возвратившихся в прошлом году к металлической жизни немцев из DESTRUCTION и лучшей латвийской команды NEGLECTED FIELDS. Концерт состоится в рижской киностудии, где год назад отыграли THERION со своей великолепной программой. Начало концерта в 19:00.</p>
+<p></p>
+
+Автор: Dimas
+
+### 08.05.2001 news DIMMU BORGIR - продается...
+
+<p>Dimmu Borgir достигли 16 места в Германских чартах продаж - это самое высокое место достигнутое блэк металлической командой. В других странах их дела также идут неплохо: Австрия - №23, Норвегия - №16, Нидерланды - №84 и Финляндия - №11.</p>
+
+Автор: Yermola
+
+### 08.05.2001 news DIMMU BORGIR - Black Metal Chart Toppers....
+
+<p>Dimmu Borgir entered the German sales charts at #16, the highest position ever reached by a black metal band. The band reached #23 in Austria, #16 in Norway, #84 in the Netherlands, and #11 in Finland. The band is currently on the road throughout America and Canada on the Spring Neck Break Tour supporting Cannibal Corpse with The Haunted and Lamb of God opening. The tour wraps up next week at the Limelight in New York City. Dimmu Borgir will then return to Europe for a tour with labelmates Destruction and Susperia before taking a much-needed break in June. Tentative plans are under way for yet another American tour this September.</p>
+
+Автор: Yermola
+
+### 03.10.2001 news Концертный альбом Dimmu Borgir
+
+<p>Dimmu Borgir собираются выпустить ограниченным тиражом концертный альбом. Фирменный CD будет содержать пять вещей, записанных в Штуттгарте во время тура "Puritanical Euphoric Misanthropia". Микшировал альбом Питер Тагтгрен в студии Abyss. Тем не менее звук не подвергался какой-либо обработке, так что всё будет звучать живо и неприглаженно. Концертник, выход которого ожидается в декабре 2001-го - январе 2002-го года, можно будет заказать только непосредственно на Nuclear Blast.</p>
+
+Автор: Morsus
+
+### 03.10.2001 news The live album of Dimmu Borgir
+
+<p>Dimmu Borgir are planning to release a live limited shaped CD. The CD will have 5 live songs recorded in Stuttgart on the Puritanical tour. The recording was mixed by Peter Tagtgren in Abyss studio, there is not done anything with the sound so it will sound unpolished and like a kick in the face. The CD will only be available at mailorder from Nuclear Blast and the CD expected to be released in December 2001 / January 2002.</p>
+
+Автор: Morsus
+
+### 15.11.2001 news Дмитрий Боргиров готовит DVD...
+
+<p>Норвежские блэк-металлеры "DIMMU BORGIR" сейчас работают над DVD "World Misanthropy" для релиза который последует в апреле. По словам Silenoz он будет содержать материал с живых концертов, интервью, четыре промо видео-клипа и треки со "Spiritual Black Dimensions" и "Puritanical Euphoric Misanthropia"....</p>
+
+Автор: Yermola
+
+### 15.11.2001 news DIMMU BORGIR will be issuing a limited-edition live EP...
+
+<p>Norwegian black metallers DIMMU BORGIR will be issuing a limited-edition live EP, entitled Alive in Torment, in February to coincide with the band’s second US tour in support of Puritanical Euphoric Misanthropia. Recorded in Stuttgart, Germany on the Puritanical Euphoric Misanthropia tour, Alive In Torment features five live tracks that guitarist Silenoz describes as “extremely raw and brutal, straight in the face, no power ballads.” The shaped CD was mixed by Peter Tдgtgren at Abyss Studios. In other DIMMU news, the band is working on a DVD called World Misanthropy for an April release. According to Silenoz, “[It] contains lots of live stuff from around the globe, interviews, backst(abbing)age clips, all crazy shit.” The DVD will also feature at least four promo video clips and possibly contain a second disc featuring tracks from Spiritual Black Dimensions and Puritanical Euphoric Misanthropia, previously only released in Japan.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news World Misanthropy...
+
+<p>Dimmu Borgir are at home in Norway writing, working on their upcoming DVD, World Misanthropy, and rehearsing for their North America tour this coming spring. In regard to the upcoming DVD, Silenoz had this to say, "We've gone through 15 of our own tapes so far and to be honest there is some really sick shit on there, and when I say that, we already have censored a lot... Well, I guess you get the picture!" Dimmu will also have a shaped EP, entitled Alive in Torment, available on February 5th. This limited edition disc contains live versions of "Tormentor of Christian Souls," "The Blazing Monoliths of Defiance," "The Insight and the Catharsis," "Puritania" and "The Maelstrom Mephisto" recorded in Stuttgart, Germany on the Purtanical tour. <BR><BR> www.dimmu-borgir.com has been nominated for best band website in Norway. The ceremony will be held on Dec the 7th. Keep an eye on the website for more news.<BR><BR> The official Dimmu Borgir website, in cooperation with Revolver magazine, is proud to announce a special contest. One lucky grand-prize winner will snag a free one-year subscription to Revolver magazine and a Revolver t-shirt. Runners-up will receive a free issue (featuring Dimmu Borgir), a sticker and a grab bag of Nuclear Blast goodies. Please check out the band's website for details as well as the contest questions.</p>
+
+Автор: Yermola
+
+### 07.12.2001 news CENTURY MEDIA RECORDS Release Schedule...
+
+<p>January 22nd, 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> February 5th, 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> February 19th, 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence <BR><BR> March 5th, 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 07.12.2001 news Мир человеконенавистничества...
+
+<p>Dimmu Borgir сейчас у себя на родине в Норвегии работают над материалом к DVD "World Misanthropy" и репетируют перед североамериканским туром. По поводу DVD Silenoz сказал: "Мы прослушали порядка пятнадцати лент и если честно они полны настоящего больного дерьма... Нам многое пришлось отцензурировать....". Так же Боргиры 5-го февраля выпускают фигурный EP "Alive in Torment", содержащий живые версии "Tormentor of Christian Souls," "The Blazing Monoliths of Defiance," "The Insight and the Catharsis," "Puritania" и "The Maelstrom Mephisto", записанные в Штутгарде (Германия) во время Purtanical Tour. <BR><BR> Официальный сайт www.dimmu-borgir.com был номинирован как лучший норвежский сайт группы. Церемония награждения пройдет 7-го Декабря. Также www.dimmu-borgir.com совместно с журналом Revolver проводят специальную акцию. Один из счастливчиков посетителей получит бесплатную годовую подписку на журнал и майку, а также кучу подарков от Nuclear Blast...</p>
+
+Автор: Yermola
+
+### 07.12.2001 news График релизов Century Media Records ...
+
+<p>22-е января 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> 5-е февраля 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> 19-е февраля 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence<BR><BR> 5-е марта 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 14.01.2002 news DIMMU BORGIR HEADLINES INTERNATIONAL EXTREME METAL TOUR...
+
+<p>Norway’s kings of the carnival creation return for the second leg of their North American Puritanical Euphoric Misanthropia tour. Dimmu Borgir will headline a truly international bill of brutal extreme metal rounded out by Canada’s Cryptopsy, Brazil’s Krisiun and America’s Diabolic. After the success of the Spring Neck Break tour last April with Cannibal Corpse, The Haunted and Lamb of God, Dimmu Borgir now prepares to embark on their first rampage through the U.S. and Canada as a full-fledged headliner. The band’s latest CD, Puritanical Euphoric Misanthropia, brought together some of black metal’s finest musicians – including Nick Barker (drums, ex-Cradle of Filth), Vortex (bass/vocals, ex-Borknagar) and Galder (guitar, Old Man’s Child) – resulting in the band’s most successful release to date. Puritanical Euphoric Misanthropia pulled back the shroud on the black metal underground, allowing the mainstream to gaze upon the bastard offspring and its veiled mysteries. This latest tour will only serve to further expose more of the mainstream music scene to Dimmu Borgir’s infectious and catchy brand of black metal, poising the band to emerge as a true musical force beyond the confines of the underground. <BR><BR> DIMMU BORGIR with Cryptopsy, Krisiun, Diabolic<BR> 2/19 Culture Room – Ft. Lauderdale, FL<BR> 2/20 Masquerade – Atlanta, GA<BR> 2/22 Hard Rock Cafй – New York, NY<BR> 2/23 The Trocadero – Philadelphia, PA<BR> 2/24 Jaxx - Springfield, VA<BR> 2/26 The Palladium – Worcester, MA<BR> 2/27 Medley – Montreal, QU<BR> 2/28 Opera House – Toronto, ON<BR> 3/1 Agora Ballroom – Cleveland, OH<BR> 3/2 Harpo’s – Detroit, MI<BR> 3/3 House Of Blues – Chicago, IL<BR> 3/4 Ranch Bowl – Omaha, NE<BR> 3/5 First Avenue – Minneapolis, MN<BR> 3/6 Pop’s – Sauget, IL<BR> 3/8 Engine Room – Houston, TX<BR> 3/9 Backroom – Austin, TX<BR> 3/12 The Palace – Los Angeles, CA<BR> 3/13 Great American – San Francisco, CA</p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 11.03.2002 articles Американский тур DIMMU BORGIR
+
+<P><IMG height=400 alt="Dimmu Borgir tour" hspace=10 src="/images/articles_rus/2002.03/2513.jpg" width=254 align=left vspace=5 border=0> В рамках своего тура по США, 5 марта к нам, в город Миннеаполис, заглянули такие монстры современной металлической музыки как DIMMU BORGIR, в сопровождении канадских и бразильских бруталистов CRYPTOPSY и KRISIUN и флоридской группы DIABOLIC. Стоит сказать, что до этого концерта у нас было полуторамесячное затишье, если не считать концерты ню-металлических групп, поэтому этого сейшна все ожидали с интересом и нетерпением. Вообще DIMMU BORGIR должны были выступать у нас еще осенью прошлого года, в рамках Metallenium Tour вместе с NAPALM DEATH, SIX FEET UNDER и WITCHERY, но тогда, после событий 11 сентября, их планам не суждено было сбыться – зато теперь они приехали в качестве хэдлайнеров. </P>
+<P>Хочу отметить, что погода в этот день сильно испортилась – шёл мокрый снег и на дорогах было много аварий и пробок, из-за которых мы и опоздали к началу концерта; когда вошли в зал, уже во всю зажигал DIABOLIC. Эту группу я видел живьём второй раз – на этот раз можно было бы отметить более четкий звук. Но в остальном всё та же стена звука – очень быстрые барабаны с истеричными дэт/блэковыми воплями гитариста. Играли они недолго – минут 25 всего – да и больше не стоило, так как народ к концу выступления стал заметно скучать.Но для начала в самый раз. </P>
+<P>Затем после короткой паузы на сцену взошло бразильское трио KRISIUN (правильно – произносится "Кришн"). Это сразу оживило толпу. Хочу сказать, что, не смотря на рабочий день, в зале было достаточно много народу – то есть зал был полный, но не переполненный, как, например, на выступлениях SLAYER и MEGADETH. Бразильцы начали сразу с места в карьер, без всякой раскачки обрушив на голову слушателей поток бескомпромисного брутал-дэта. По звуку они были наверно самыми лучшими в тот день. Прекрасно читались партии гитары, баса и ударных, несмотря на забойное молотилово – но это и не удивительно, так как отстроить правильно одну гитару всё же легче, чем вывести баланс между двумя. С публикой кришнаиты практически не разговаривали, предпочитая делать на сцене своё дело – нарезать сочную брутальщину. Вокал – средне-низкий гроул – иногда доходил до совсем утробного, иногда срывался на крик. А вот во время соляков остро чувствовалась необходимость второй гитары. Выглядели дядьки достаточно стандартно для дэс-команды – волосатые кучерявые бразильцы в майках в поддержку этого тура. Кстати, тут же можно было купить СД со всеми 4-мя альбомами кришнаитов плюс майки и балахоны (в основном необъятных размеров, расчитаные на среднестатического американца:). После выступления бразильцев, которое длилось минут 35, я пошёл в бар за пивом – восстановить силы, пока на сцене делали перестановки, готовясь к выступлению Cryptopsy. Бар на этот раз приятно удивил – вместо маленьких бутылок Хайнекена, но по три, продавали двойной размер, но по пять :) Очень удобно, скажу я вам, так как вместо того, чтоб бежать за очередной порцией после двух глотков, можно неспеша наслаждаться вкусом пива. Народ в баре активно обсуждал Димму Боргир, сравинвая их как всегда – ну, вы сами знаете, с кем (CoF) :) – так что это во всем мире так :) и предстоящие три суперконцерта в апреле/мае. </P>
+<P>И вот погас свет и на сцене появились на этот раз канадские бруталлерос из CRYPTOPSY(правильно будет крИптопси). Со сцены попер брутальный, но более навороченный, нежели KRISIUN музон. Ребята начали активно рубиться на сцене. Удивил вокалист – в чёрной майке (не футболке) и чёрном трико с белыми лампасами :) Вокалист он свободный, поэтому просторов для маневров у него было немерянно. Немного удивил подбор гитар у гитаристов – голубой Washburn Dimebag Darrel и черно/белый Fender Stratocaster с хамбаккером. Басист играл на белом басе Krammer – как у Паука из Коррозии. </P>
+<P>А вот кто не порадовал, так это звукач, который все выступление CRYPTOPSY постоянно крутил ручки на пульте, поэтому звук представлял из себя «плавающую кашу» – у кого бы им поучиться, так это у звукача DEICIDE – звук как на СД прям:). Ну это я отвлекся. Теперь о программе – начали CRYPTOPSY с песен с нового альбома «And Then You'll Beg» – очень брутальных и разнообразных.Вокалист живьем слушается отменно – очень сочный гроулинг. А вот технику гитаристов из за кашеобразного звука было сложновато оценить. </P>
+<P>На сцене ребята активно прорубались – со стороны смотрится неплохо, но на то они и дэс-команда. Так же были сыграны два боевика из двух первых альбомов. И, на закуску, лучшая их песня на мой взгляд, которую я больше всего ждал – про «Холодную ненависть и горячую кровь» с альбома Whisper Supremacy. И не я один оказывается – исполнение этой вещи стало апогеем выступления канадцев. В целом оценить их выступление можно на три с половиной из пяти – и виноват прежде всего звукач, смазавший впечатление от неплохой, в общем-то, музыки. Кстати, по мерчандайзингу у фанатов CRYPTOPSY был наибольший выбор среди атрибутики плакатов и СД. </P>
+<P>Ну и затем наступила последняя пауза – начали готовить сцену под хэдлайнеров – на закрывавшем сцену экране крутили кадры из фильма «Догма», а я пил пиво, рассматривая атрибутику игравших команд. Я хотел купить себе сплит DIMMU BORGIR/OLD MAN’s CHILD, но этого диска у них как раз и не было, так что пришлось обломаться. Кстати, цены на диски не такие уж и высокие – 12 зеленых – билет стоил 15, майка 15-25, балахон 40, плакат DIMMU BORGIR размером 2 на 1,5 – десятку. </P>
+<P>И вот погас свет и заиграло интро из «Пуританикал Эйфорик Мизантропии», народ начал активно заводиться и – вот оно, начало – песня «Grotesquery Conceiled” c альбома 99 года «Спиритуал Блэк Дименшн», с которой они выступали на церемонии вручения норвежской премии Грэмии. </P>
+<P>Что удивило: во-первых, расстановка музыкантов – я такое увидел в первый раз в жизни. Все мы привыкли, что, обычно, барабаны располагаются по центру сзади, клавиши чуть впереди или в стороне – ещё более впереди гитаристы и вокалер. Тут всё не так. Представьте себе обычную прямоугольную сцену – так вот, в левом дальнем углу барабаны, за которыми восседал Николас Баркер. На одном уровне с ударными, но уже в дальнем правом углу - клавиши. А на переднем плане – четверо на одной линии, слева-направо – рыжий огромный басист, лысый Гальдер с намазаным только белой пудрой лицом, Шаграт в черном плаще с лицом, намазанным так же, как у Гальдера и Сайленоз, без какого либо грима. Гальдер играл на двух моделях Джексонов – RR и King V, Сайленоз – Jackson RR. Очень колоритно смотрелся Баркер – лысый малыш с огромным пузом в шортиках, даже странно, как он при такой комплекции умудряется вообще играть на барабанах :). После песни-открывателя была исполнена первая вещь с «Пуританикал Эйфорик Мизантропии» – звук был неплохой – хорошо прослушивались клавиши, даже можно сказать, что они были лидирующим инструментом на протяжении всего выступления DIMMU BORGIR. Затем почти сразу пошла третья вещь с последнего 2001 альбома, в которой слышно влияние таких групп, как OLD MAN’s CHILD и PINK FLOYD. Так вот, Пинкфлойдообразная вставка была исполнена живьём не лучшим образом - всё-таки это не в студии по нескольку голосов накладывать :) – сразу видно, что у ребят проблемы с пением по нотам. Дальше пошла песня про Мефисто с 2001 года, а затем пара вещей с «Спиритуал Блэк Дименшн», включая первую, после чего опять заиграло интро с «Пуританикал...». Кстати, концерт прерывался таким образом (интром с «Пуританикал...») 3 раза – в это время музыканты имели двухминутный отдых. После перерыва Шаграт снял плащ и остался в чёрной майке с белой Диммуборгировской пентограммой и какой то кожаной юбке :). Пошли 2 песенки с альбомов «Фор Олл Тид» и «Стормбласт». Затем ещё одна вещь – с 2001-го. Народ рубился хорошо, особенно после подбадриваний Шаграта, который в каждой 3 песне кричал в микрофон «Хэй! Хэй! Хэй» и зал отвечал тем же. После ещё одного того же самого интро началась заключительная часть шоу. Вообще, на мой взгляд, программа была построена не совсем верно. После бодрого начала шли сильно клавишированные среднетемповые песни с 99-го. Они и преобладали в 3-й части. Но я все ждал, когда же наконец услышу свою любимую вещь Диммов? Я, естественно, её дождался, но она оказалась финальной. И называлась эта вещь – правильно - «Mourning palace». В целом, DIMMU BORGIR оставил приятное впечатление. В первую очередь хочу отметить Баркера и клавиши – они, на мой взгляд, и задают весь настрой музыки. Гитаристы играют неплохо, но в сильно клавишированных композициях им практически негде показать свою индивидуальность, но то что играть умеют, слышно невооружённым ухом. Далее, Шаграт – так ТРУ он или ПОЗЁР? Я не знаю, но всё-таки завладеть полностью вниманием публики у него не очень хорошо получилось – Баркер привлекает гораздо сильнее, да и в сравнении с Дэни он явно проигрывает :) В целом отыграли DIMMU BORGIR на твердую четвёрку, мои ожидания, в основном, оправдали, но хочу им, перефразируя великого классика, посоветовать «Учиться! Учиться! Учиться! У .... SLAYER :))) </P>
+Автор: rjh
+
+### 22.09.2002 news Новости от OLD MAN&#39;S CHILD
+
+<p>Норвежские музыканты OLD MAN'S CHILD, в составе которой два участника DIMMU BORGIR - Galder (гитарист) и Nick Barker (ударные, также в LOCK UP), изменили название своего нового альбома с оригинального "Infidel" на "In Defiance Of Existence". В записи альбома также принял участие гитарист DREAM EVIL Gus G. "In Defiance Of Existence" выйдет в начале 2003 года на Century Media Records.</p>
+
+Автор: Dimas
+
+### 13.10.2002 news Новый альбом OLD MAN&#39;S CHILD
+
+<p>В январе 2003 года на Century Media Records выходит новый альбом группы OLD MAN'S CHILD (в составе которой два участника DIMMU BORGIR - гитарист Galder и ударник Nick Barker (также в LOCKUP)) под названием "In Defiance Of Existence". В альбом войдут следующие вещи:</p>
+<p> 01. Felonies Of The Christian Art<BR> 02. Agony Of Fallen Grace <BR> 03. Black Seeds On Virgin Soil <BR> 04. In Defiance Of Existence <BR> 05. Sacrifice Of Vengeance<BR> 06. The Soul Receiver <BR> 07. In Quest Of Enigmatic Dreams<BR> 08. The Underworld Domains<BR> 09. Life Deprived</p>
+<p> Сами музыканты чрезвычайно довольны полученным результатом.</p>
+
+Автор: Dimas
+
+### 26.11.2002 news Новости из лагеря Dimmu Borgir
+
+<p>Dimmu Borgir отправятся в студию в начале марта 2003 года и пробудут там ориентировочно два месяца. Уже готовы девять песен и ещё две-три будут написаны к началу записи. В январе начнётся репетиция всего этого материала. Альбом ожидается жарким, как адское пламя, с оркестром и прочими неожиданностями, и, разумеется, с привычным для Dimmu Borgir супер-качеством.</p>
+
+Автор: Morsus
+
+### 27.11.2002 news News from the Dimmu Borgir camp
+
+<p>Dimmu Borgir will hit studio in early March 2003 and they expect they will use about 2 months in the studio recording the new album. They have already 9 songs ready and they will write additional 2-3 songs before they start recording. They start rehearsing the new songs in january 2003. Album will be hotter than hell with a big orchestra, surprises and the usual quality that can be expect from Dimmu Borgir.</p>
+
+Автор: Morsus
+
+### 25.02.2003 news Dimmu Borgir начинают запись нового альбома
+
+<p>Dimmu Borgir войдут в студию Fredman 3 марта для записи барабанных партий для нового альбома. Silenoz: "Весь новый материал готов и мы занимаемся мастерингом нашей пре-продукции. Мы репеитируем, как сумасшедшие каждый день. Ещё нет названия альбома, но мы думаем об этом. В студии с нами будет большой оркестр, и мы ведём переговоры с двуми огромными Восточноевропейскими коллективами."</p>
+<P>Среди трэков на новом альбоме будут и такие:</>
+<P> 01. Allegiance <BR> 02. Cataclysm Children <BR> 03. Progenies of The Great Apocalypse <BR> 04. His Inexorable Excellency</>
+
+Автор: Vit Belov
+
+### 25.02.2003 news Dimmu Borgir begins to record new album...
+
+<p>DIMMU BORGIR are scheduled to enter Studio Fredman in Gothenburg, Sweden on March 3 to begin tracking the drum parts for their forthcoming CD, due later in the year. According to guitarist Silenoz, "All the new material is ready and we have also mastered our own pre-production and it sounds awesome in our ears. We rehearse like we are possessed every day and will continue to do so until we go into studio.</p>
+<P> "There haven't been decided any album title, but we are working on it. As you may have heard before we are having a huge orchestra in studio with us and at the moment we are negotiating with two big east European orchestras, nothing is decided yet."</>
+<P> Among the tracks set to appear on the album are the following:</>
+<P> 01. Allegiance <BR> 02. Cataclysm Children <BR> 03. Progenies of The Great Apocalypse <BR> 04. His Inexorable Excellency</>
+
+Автор: Vit Belov
+
+### 15.05.2003 news Армагеддон
+
+<p>8 сентября на Nuclear Blast Records выходит новый альбом норвежской супергруппы DIMMU BORGIR "Death Cult Armageddon". Запись готова, осталось только смикшировать альбом в Studio Fredman. В альбом войдут следующие вещи:</p>
+<p> 1. Allegiance<BR> 2. Blood Hunger Doctrine <BR> 3. For The World To Dictate Our Death <BR> 4. Vredesbyrd <BR> 5. Cataclysm Children <BR> 6. Progenies Of The Great Apocalypse <BR> 7. Unorthodox Manifesto <BR> 8. Eradication Instincts Defined <BR> 9. Allehelgens Dod I Helveds Rike <BR> 10. Heavenly Perverse <BR> 11. Lepers Among</p>
+<p> Возможно, что в качестве бонус-трэка, на альбом войдет кавер-версия BATHORY "Satan My Master".</p>
+<P> Также, хочется напомнить, что в планах группы выступление в Москве 1 ноября 2003 года в ДК Горбунова.</>
+
+Автор: Dimas
+
+### 11.06.2003 news Dimmu Borgir new album
+
+<p>The new DIMMU BORGIR album will be entitled "Death Cult Armageddon".</p>
+<P> The CD, which currently was mixed at Studio Fredman in Gothenburg, Sweden, will contain the following tracks:</p>
+<P> 1 Allegiance (5,49)<BR> 2 Progenies Of The Great Apocalypse (5,17)<BR> 3 Lepers Among Us (4,43)<BR> 4 Vredesbyrd (4,44)<BR> 5 For The World To Dictate Our Death (4,46)<BR> 6 Blood Hunger Doctrine (4,39)<BR> 7 Allehelgens Dшd I Helveds Rike (5,33)<BR> 8 Cataclysm Children (5,13)<BR> 9 Eradication Instincts Defined (7,12)<BR> 10 Unorthodox Manifesto (8,50)<BR> 11 Heavenly Perverse (6,32)</p>
+<P> The band has also recorded a cover version of BATHORY's "Satan My Master" which will be used for the ltd. digipack edition. In other news, DIMMU BORGIR are in talks with CHILDREN OF BODOM, NEVERMORE and HYPOCRISY about teaming up for a North American tour between November 8 and December 16</p>
+
+Автор: Vit Belov
+
+### 17.09.2003 news DIMMU BORGIR в чартах
+
+Новейший альбом DIMMU BORGIR "Death Cult Armageddon" вошёл в норвежские чарты под номером 2, обогнав IRON MAIDEN "Dance Of Death", который начал с третьего места. Приобрести этот альбом Вы можете в <A href="/ru/shop">нашем магазине</A>. 
+<P>В ноябре DIMMU BORGIR проедутся с туром по Северной Америке в компании с NEVERMORE, CHILDREN OF BODOM и HYPOCRISY.</P>
+Автор: Vit Belov
+
+### 20.09.2003 news DIMMU BORGIR in charts
+
+<SPAN lang=EN-GB><SPAN style="BACKGROUND: #000000">
+<P align="left"><SPAN lang=EN-GB>DIMMU BORGIR's new album 'DEATH CULT ARMAGEDDON' hit the charts yesterday at the following positions:<BR>09 <SPAN lang=EN-GB>Finland</SPAN></SPAN></P>
+<P align="left"><SPAN lang=EN-GB><SPAN lang=EN-GB>02 </SPAN><SPAN lang=EN-GB>Norway</SPAN></P>
+<P align="left"><SPAN lang=EN-GB>42 </SPAN><SPAN lang=EN-GB>Netherlands</SPAN></P>
+<P align="left"><SPAN lang=EN-GB>14 </SPAN><SPAN lang=EN-GB>Austria</SPAN></P>
+<P align="left"><SPAN lang=EN-GB>12 </SPAN><SPAN lang=EN-GB>Germany</SPAN></P>
+<P align="left"><SPAN lang=EN-GB>35 </SPAN><SPAN lang=EN-GB>France</SPAN></P>
+<P align="left"><SPAN lang=EN-GB>54 </SPAN><SPAN lang=EN-GB>Switzerland</SPAN><SPAN lang=EN-GB><BR></SPAN></P>
+<P align="left"></SPAN></SPAN></SPAN><SPAN lang=EN-GB></P></SPAN>
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 30.09.2003 news DIMMU BORGIR - лидер в сентябре
+
+<P>DIMMU BORGIR со своим новейшим альбомом 'Death Cult Armageddon', в лицензионной версии IROND, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С большим отрывом отстали DARKSEED 'Astral Adventures' (AMG) и новейший альбом RAGE 'Soundchaser' (SOYUZ). В первую десятку вошли:</P>
+<P>DIMMU BORGIR DEATH CULT ARMAGEDDON +1 bonus track</P>
+<P>DARKSEED ASTRAL ADVENTURES </P>
+<P>RAGE SOUNDCHASER </P>
+<P>ROB ROCK EYES OF ETERNITY</P>
+<P>DGM HIDDEN PLACE </P>
+<P>SHAMAN SHAMANIAC </P>
+<P>ARCTURUS ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL </P>
+<P>QNTAL III TRISTAN UND ISOLDE </P>
+<P>SKID ROW THICKSKIN </P>
+<P>POISONBLACK EXCAPEXTASY </P>
+<P>TOP 50 альбомов по продажам в первом месяце осени Вы можете посмотреть <A href="/ru/articles/1/50126/">здесь.</A> Любой из этих дисков вы легко можете заказать в нашем <A href="/ru/shop">магазине.</A></P>
+Автор: Vit Belov
+
+### 13.10.2003 news DIMMU BORGIR в Москве
+
+<P>Компания Big Brother Entertainment, завершая концертный сезон в этом году, дарит всем поклонникам настоящей экстремальной музыки грандиозный подарок! 1 ноября 2003 года, в стенах знаменитого ДК Горбунова пройдет первый и единственный концерт самой значимой на современной блэковой сцене норвежской группы <B>DIMMU BORGIR</B>! </P>
+<P><B>DIMMU BORGIR</B> даст концерт в Москве, в поддержку последнего, самого успешного и внушительного альбома. Не будут забыты и старые, проверенные хиты группы. Не пропустите уникальное зрелище, о звуке, свете и мастерстве музыкантов которого будут вспоминать не раз те счастливчики, кому удастся попасть на это уникальное шоу.</P>
+<P><IMG height=211 alt="" hspace=10 src="/images/shows_rus/2003.10/5045.jpg" width=300 align="left" border=0>Начало концерта в <B>19:00</B></P>
+<P>Билеты спрашивайте в кассах ДК Горбунова и специализированных магазинах.</P>
+<P>Цена билетов на единственный концерт норвежской легенды <B>DIMMU BORGIR</B>:</P>
+<P>Партер – <B>800</B> рублей </P>
+<P>Балкон – <B>800</B> рублей</P>
+<P>VIP – <B>1500</B> рублей</P>
+Автор: Dimas
+
+### 13.10.2003 articles DIMMU BORGIR в Москве (пресс-релиз)
+
+<P>Компания Big Brother Entertainment, завершая концертный сезон в этом году, дарит всем поклонникам настоящей экстремальной музыки грандиозный подарок! 1 ноября, в стенах знаменитого ДК Горбунова пройдет первый и единственный концерт самой значимой на современной блэковой сцене норвежской группы DIMMU BORGIR! Этого события многочисленные фанаты ожидали давно, и вот достойный подарок на Хэлловин 2003 года – это грандиозный, ни с чем не сравнимый концерт, да что там концерт – это грандиозное шоу, на котором норвежские кудесники предстанут перед российской публикой во всем своем разрушительном великолепии.</P>
+<P>История этой норвежской формации берет свое начало в 1993 году, когда Shagrath, Silenoz & Tjodalv решили собрать группу. Их первый опус, вышедший в 1994 и получивший название “For All Tid” сразу же сделал команду знаменитой, этому альбому рукоплескала пресса, множество людей, впервые услышавшие его никогда не смогли его забыть и стали преданными фанатами коллектива. Прошло всего два года, и группа выпускает свой второй полноформатный альбом “Stormblast”, ставший одним из самых значимых в истории блэка. На этом альбоме были заложены основы стиля DIMMU BORGIR того времени, часть из которых трансформировалась в настоящее время: атмосферные клавишные пассажи и первозданная чернота, экстремальные гитары и превосходная мелодичность – вот что характеризует это творение, вдохновившее не один десяток музыкальных коллективов на творчество. После огромной популярности этого альбома в мире, группа принимает решение изменить лирику своих произведений с родного, норвежского языка, на английский, чтобы еще более упрочить свое мировое господство. Это и было сделано, первым релизом с английской лирикой стал миниальбом “The Devil’s Path”, на котором засветился известный по еще одной легендарной норвежской группе участник The Kovenant – Nagash.</P>
+<P>1997 год стал настоящим триумфом для норвежцев. В этом году увидел свет их третий полноформатный релиз “Enthrone Darkness Triumphant”, вышедший на мировом гиганте тяжелой индустрии лейбле NuclearBlast. Это было значительнее, чем все ранее сделанное группой, да и вообще ранее сделанное в данном стиле. Потрясающе красивые и одновременно несущие мрачный настрой композиции, превосходно аранжированные и записанные принесли группе оглушающий успех как в металлической прессе, так и в сердцах фанатов. Этот релиз был продан тиражом более 150 000 копий, что поистине уникальное достижение, вряд ли повторимое какой-либо другой группой. </P>
+<P>После такого успеха в группе происходит ряд различных замен, однако костяк группы остается тем же. Уходит лишь Tjodalv по семейным проблемам (у него родился ребенок и он не смог поехать с группой в полноценное турне), но это мало отражается на записи второго в дискографии группы мини-альбома “Godless Savage Garden”, ставшего номинантом на норвежский вариант Грэмми, но проигравшее в достойной и упорной борьбе этот приз альбому The Kovenant “Nexus Polaris”. </P>
+<P>Огромные продажи альбома 1997 года позволили DIMMU BORGIR вложить большие деньги в запись своего нового альбома, результатом чего стала запись в знаменитой Abyss Studio их следующего альбома “Spiritual Black Dimension”, релиз которого пришелся на 1999 год. В записи альбома вновь принял участие Tjodalv, а вот Nagash был вынужден покинуть состав группы после записи альбома, дабы полностью сосредоточиться на своем коллективе The Kovenant. Его тут же меняет Simen Hestnaes (I.C.S. Vortex, Borknagar), который после официального ухода Nagash становится полноценным участником коллектива. Кстати, Вортекс давно мечтал попасть в состав своей любимой группы, и это ему удалось – вот так сбываются мечты! И он не зря попал в состав данной команды, его чистый вокал значительно украсил и без того великолепные и монументальные композиции группы. По результатам тура Tjodalv принимает окончательное решение о завершении карьеры и невозможности поездки в тур с группой, замену ему находят в лице ударника Cradle Of Filth – Nick Barker’a. </P>
+<P>В 2000 году начинается запись нового альбома, которая проходит немного нервно из-за того, что Баркер живет в Англии и слишком дорого становится ездить в Норвегию. Кроме этого, один из участников группы, а именно, Astennu принимает решение покинуть команду, и на его место приходит Galder (Old Man’s Child). Таким образом, в 2000 году группа обретает тот состав музыкантов, который и продолжает концертную деятельность до сих пор. Группа записывает свой пятый альбом, получивший название “Puritanical Euphoric Misanthropia”. В записи этого альбома использовалось самое совершенное на текущий момент студийной оборудование, а в качестве дополнительного украшения композиций был использован симфонический оркестр. Этот альбом окончательно утвердил DIMMU BORGIR на вершине мирового Олимпа, подтверждением чего стала уже третья номинаций на Грэмми и, наконец, победа в этом престижном конкурсе.</P>
+<P>Огромный успех и высокая планка предыдущего релиза не давала возможности группе сделать низкокачественный материал. Результатом этого стала трудная, но еще более качественная запись последнего альбома команды, получившего название “Death Cult Armageddon”. Музыканты достойно справились с давлением общественности и упрочили свое лидерство. Монументальность и мощь альбома просто поражают, Пражский симфонический оркестр настолько гармонично вплетен в музыкальное полотно, что его отсутствие нанесет не малый урон восприятию. Материал стал равнее, любая вещь с легкостью превращается в хит. Уже снято первое видео на этот альбом, которое также потрясает своим качеством и помпезностью. Результат работы был по достоинству оценен многочисленной прессой и поклонниками. Не случайно и то, что DIMMU BORGIR поставил абсолютный рекорд по продажам в Северной Америке среди групп Century Media/Nuclear Blast, продав более 6 000 дисков за неделю.</P>
+<P>Именно в поддержку последнего, самого успешного и внушительного альбома, DIMMU BORGIR даст первый и единственный концерт 1 ноября в Москве. Не будут забыты и старые, проверенные хиты группы. Не пропустите уникальное зрелище, о звуке, свете и мастерстве музыкантов которого будут вспоминать не раз те счастливчики, кому удастся попасть на это уникальное шоу.</P>
+<P>Билеты спрашивайте в кассах ДК Горбунова и специализированных магазинах.</P>
+<P>Цена билетов на единственный концерт норвежской легенды DIMMU BORGIR:</P>
+<P>Партер – 800 рублей </P>
+<P>Балкон – 800 рублей</P>
+<P>VIP – 1500 рублей</P>
+Автор: Dimas
+
+### 15.10.2003 reviews Последний культ смерти
+
+<P>Долгожданное продолжение альбома двухлетней давности. Именно продолжение. В музыкальном плане - никаких изменений. Изменилось ли хоть что-то? Да. Причем, как в лучшую сторону, так и наоборот. Участие в записи альбома симфонического оркестра из&nbsp;пятидесяти персон Prague Philharmonic Orchestra гораздо более заметнее, чем на предыдущем альбоме. Он стал неотъемлемой частью музыки группы. Особенно удачны волшебные оркестровки и&nbsp;гнетущая мрачная атмосфера. В результате, клавишная работа (которая&nbsp;на прошлом альбоме&nbsp;имела большую долю успеха)&nbsp;совершенно незаметна, за исключением отдельных моментов. Гитарный звук стал резче и мощней, что в итоге делает работу более блэковой, чем death металлической. Но из-за выдвинутых гитар, немного теряются партии ударных, так сокрушительно звучащих на предыдущем альбоме. Задвинутые назад незаметные бласт-биты и триггеры уже не производят такого впечатления, немного теряясь в общем звуке. Радует, что закончились эксперименты с индустриальным звучанием. Тем не менее, это просто феноменальная работа музыкантов. Всё здесь доведено до&nbsp;определенного совершенства, буквально все! Отличное качество записи, блистательная техника музыкантов, грамотно соблюденный баланс между оркестровками и основными партиями. Сама собой, напрашивается аналогия с последним альбомом CRADLE OF FILTH (хотя эти группы даже не стоит сравнивать). В обоих случаях,&nbsp;нужно сказать, что последние работы этих групп - самые грандиозные и масштабные работы в их музыкальных карьерах, вот только лучшими&nbsp;их назвать, язык не поворачивается. И если бы не старательно раздуваемая шумиха по поводу выхода "Death Cult Armageddon", то и не занимать бы ему сейчас высокие места в хит-парадах разных стран. Несмотря на все плюсы и минусы, должен сказать одно - это отличный альбом, который замечательно и с удовольствием слушается "от" и "до", на одном дыхании! И конечно украшением релиза стал толстенный буклет, который просто не влезает в коробочку без определенных усилий.</P>
+Автор: Dimas
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 30.10.2003 news Rage - первый в октябре!
+
+<P>RAGE&nbsp;со своим новейшим альбомом 'SoundChaser', в лицензионной версии SOYUZ, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С небольшим отрывом отстали&nbsp;STRATOVARIUS 'Elements, Part II' (Irond) и&nbsp;лидер прошлого месяца&nbsp;DIMMU BORGIR&nbsp;'Death Cult Armageddon' (Irond). В первую десятку вошли:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=545 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="28%" height=17><B>RAGE </B></TD>
+<TD align=middle width="43%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="29%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="43%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="43%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="43%" height=26><B>II</B></TD>
+<TD align=middle width="29%" height=26><B>CD-MAXIMUM</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="43%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="43%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="29%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>CHARON</B></TD>
+<TD align=middle width="43%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="29%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="43%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="29%" height=17><B>CD-MAXIMUM</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="43%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="29%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="28%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="43%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="29%" height=17><B>AMG</B></TD></TR></TBODY></TABLE></P>
+<P>TOP 50 альбомов по продажам во втором месяце осени Вы можете посмотреть <A href="/ru/articles/1/50443/">здесь.</A> Любой из этих дисков вы легко можете заказать в нашем <A href="/ru/shop">магазине.</A></P>
+Автор: Vit Belov
+
+### 15.11.2003 news Dimmu Borgir World Tour
+
+<P align="center"><SPAN>10.10.2003 BERGARA - Sala Jam ( ES) <BR>11.10.2003 VALENCIA - Republicca ( ES) <BR>12.10.2003 BARCELONA - Razzmatazz II ( ES) <BR>14.10.2003 MILAN - Alcatraz ( I) <BR>15.10.2003 PRATTELN - z7 ( CH) <BR>17.10.2003 BUDAPEST - Pet&ouml;fi Hall ( H) <BR>18.10.2003 WIEN - Planet Music ( A) <BR>19.10.2003 STUTTGART - LKA Longhorn ( D) <BR>20.10.2003 N&uuml;RNBERG - L&ouml;wensaal ( D) <BR>21.10.2003 K&ouml;LN - Live Music Hall ( D) <BR>24.10.2003 TAMPERE - Pukkahuone ( FIN) <BR>25.10.2003 HELSINKI - Nosturi ( FIN) <BR>27.10.2003 STOCKHOLM - Arenan ( SWE) <BR>28.10.2003 MALM&ouml; - KB ( SWE) <BR>29.10.2003 OSLO - Rockefeller ( NOR) <BR>01.11.2003 MOSCOW - Gorbunova Culture Club ( RUS) <BR>07.11.2003 BUFFALO, NY - Showplace Theater ( USA) <BR>08.11.2003 DETROIT, MI - Harpo&acute;s ( USA) <BR>09.11.2003 CHICAGO, IL - House Of Blues ( USA) <BR>11.11.2003 TORONTO, ONT - Government ( USA) <BR>12.11.2003 MONTREAL, QUE - The Medley ( USA) <BR>13.11.2003 NEW HAVEN, CT - Toad&acute;s Place ( USA) <BR>14.11.2003 ASBURY PARK, NJ - Convention Hall ( USA) <BR>15.11.2003 PHILADELPHIA, PA - Trocadero ( USA) <BR>16.11.2003 PITTSBURGH, PA - Club Laga ( USA) <BR>18.11.2003 ATLANTA, GA - Masquerade ( USA) <BR>19.11.2003 TAMPA, FL - Masquerade ( USA) <BR>21.11.2003 HOUSTON, TX - Engine Room ( USA) <BR>22.11.2003 DALLAS, TX - Deep Ellum Live ( USA) <BR>23.11.2003 AUSTIN, TX - Backroom ( USA) <BR>25.11.2003 TEMPE, AZ - Bash On Ash ( USA) <BR>26.11.2003 LOS ANGELES, CA - House Of Blues ( USA) <BR>28.11.2003 SAN FRANSCISCO, CA - Great American Music Hall ( USA) <BR>29.11.2003 PORTLAND, OR - Roseland Theater ( USA) <BR>30.11.2003 SEATTLE, WA - Showbox ( 1) <BR>01.12.2003 VANCOUVER, B.C. - Commodore Ballroom ( CAN) <BR>03.12.2003 SALT LAKE CITY, UT - Bricks ( USA) <BR>04.12.2003 DENVER, CO - Odgen Theatre ( USA) <BR>05.12.2003 LAWRENCE, KS - Bottleneck ( USA) <BR>06.12.2003 ST. LOUIS, MO - Pop&acute;s ( USA) <BR>07.12.2003 MINNEAPOLIS, MN - The Quest ( USA) <BR>09.12.2003 MILWAUKEE, WI - The Rave ( USA) <BR>10.12.2003 CLEVELAND, OH - Agora Theater ( USA) <BR>11.12.2003 WASHINGTON, DC - 9:30 Club ( USA) <BR>12.12.2003 BROOKLYN - L`Amour ( USA) <BR>13.12.2003 WORCESTER, MA - The Palladium ( USA) <BR>14.12.2003 ALBANY, NY - Saratoga Winners ( USA) </SPAN></P>
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 04.02.2004 news N. Barker покинул DIMMU BORGIR
+
+<B>Nick Barker</B> покинул <B>DIMMU BORGIR</B>. Официальное заявление группы : "<I><B>Nick Barker</B> исключён из группы. Его место в скором времени займёт сессионный барабанщик. Не засоряйте мозг всякими почему. Мы просто двигаемся вперёд. Увидимся в туре</I>."
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 01.03.2004 news DIMMU BORGIR выиграли Грэмми
+
+<B><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.03/6112.jpg" width=300 align="right" border=0>DIMMU BORGIR</B> выиграли норвежское Грэмми в номинации 'Metal' за свой альбом <B>'Death Cult Armageddon'</B>. Другими номинантами на эту награду были <B>ENSLAVED</B> и <B>OLD MAN's CHILD</B>. 28 января им вручили премию, что транслировалось по национальному телевидению.
+Автор: Vit Belov
+
+### 03.03.2004 news Nick Barker записывает с Brujeria новый альбом
+
+<P>Уволенный из <B>DIMMU BORGIR</B> барабанщик <B>Nick Barker</B> записывает в данный момент новый альбом вместе с <B>BRUJERIA</B>. Также Nick был близок к участию в <B>TESTAMENT</B>, но группа предпочла <B>Paul Bostaph</B>. </P>
+Автор: Vit Belov
+
+### 12.03.2004 news Dinamo Open Air  - первые участники
+
+<B>SLAYER</B>, <B>LIFE OF AGONY</B>, <B>DIMMU BORGIR</B>, <B>CHILDREN OF BODOM</B>, <B>NIGHTWISH</B>, - первые группы, которые подтвердили свое участие в фестивале Dynamo Open Air, который пройдет в субботу 5 июня в Goffertpark (Nijmegen, Голландия). Последний раз знаменитый фест гремел четыре года назад на том же месте. Всего на 2-х сценах выступят 14 групп, а цена билета составит 50 евро.
+Автор: Omon Ra
+
+### 19.03.2004 news DIMMU BORGIR назвали сессионного барабанщика
+
+Временным барабанщиком на ближайшие концерты <B>DIMMU BORGIR</B> назвали <B>Asgeir Mickelson</B> (<B>BORKNAGAR</B>, <B>SPIRAL ARCHITECT</B>). В частности, группа выступит на <B>OzzFest</B>.
+Автор: Vit Belov
+
+### 19.03.2004 news Менеджмент Dimmu Borgir опровергает информацию о новом музыканте
+
+Менеджмент <B>DIMMU BORGIR</B> опровергает информацию о том, что сессионым музыкантом<B> DIMMU BORGIR</B> стал <B>Asgeir Mickelson</B> (<B>BORKNAGAR</B>, <B>SPIRAL ARCHITECT</B>). Сообщается, что идёт прослушивание, но никакое решение пока не принято.
+Автор: Vit Belov
+
+### 31.03.2004 news Новый сессионный барабанщик DIMMU BORGIR
+
+<P>Несмотря на сообщения многих CМИ, новым барабанщиком <B>DIMMU BORGIR</B> стал не <B>Asgeir Mickelson</B> (<B>BORKNAGAR</B>, <B>SPIRAL ARCHITECT</B>). Имя нового музыканта <B>Reno Killerich</B> (<B>PANZERCHRIST</B>, <B>VILE</B>, <B>HUMAN ERUPT</B>).</P>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 13.07.2004 news DIMMU BORGIR опять поменяли барабанщика...
+
+<P>Правда, это произошло только на период OzzFest. Сессионым музыкантом стал <B>Tony Laureno (NILE)</B>. Дело в том, что <B>Reno Kiilerich</B> не смог получить рабочую визу в США.</P>
+Автор: Vit Belov
+
+### 15.09.2004 articles Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста
+
+<P><EM>Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста</EM></P>
+<P>DIMMU BORGIR только что закончили тур по Америке в рамках Ozzfest. Это большой прорыв для норвежской black-metal команды. Вот отрывки из интервью, которое дал Shagrath журналу Metal-Exiles.com:<BR>Q: Почему группу покинул Nick Barker? <BR>Огромное количество времени у нас были проблемы на личном уровне. Нам было необходимо разойтись, чтобы не произошло чего-нибудь более плохого. Он очень отличался от остальных членов группы, но это нисколько не умаляет его профессионализма. Я очень уважаю его и желаю ему всего наилучшего, но он больше не DIMMU.<BR>Q: Он сам ушёл или его уволили?<BR>Он был уволен.<BR>Q: Что дальше после Ozzfest?<BR>Мы собираемся отправиться домой, где отдохнём несколько месяцев. Побудем с семьями, и быть может, начнём сочинять новый материал. Некоторое время ничего происходить не будет, мы не будем давать концертов в течение двух лет. Мы просто выжжены сейчас, нам нужен перерыв.<BR>Q: Вы были в туре около года?<BR>Да, и это время для нового альбома и более расслабленного времяпрепровождения.</P>
+<P>Classic Rock Revisited недавно взяли интервью у фронтмэна UFO Phil Mogg, который рассказал о будущем группы и своих размолвках с бывшим товарищем Michael Schenker:<BR>Q: Michael Schenker недавно рассказал нашему журналу о разладе в UFO. “Phil всегда был драчуном. Он всё время устраивал стычки, и я сказал ему, что если он меня хоть пальцем тронет, я уйду из группы. Он ударил, и я ушёл”. Что Вы можете на это ответить?<BR>Я слышал нечто такое, и это уже не новость для меня. Он покидал группу пол дюжины раз, он уходил из SCORPIONS дважды, и даже умудрился покинуть свою собственную группу. Поэтому причины этого неважны, всегда кто-то был виноват. В основном все наши проблемы возникали, из-за финансовых вопросов. Мы вкладывали все деньги в группу, а он был этим недоволен.<BR>Q: Писал ли он письмо в Kerrang! В начале 80-х, где протестовал против возрождения группы?<BR>Честно говоря, я не знаю ничего про это, но столько сумасшедших историй связано с ним, что нам не хватит и дня, чтобы всё обсудить. Это продолжалось всегда. Мне очень нравится, как Michael играет, и я принимаю 80% его натуры.<BR>Q: Вы делали хорошую музыку вместе. Вы сожалели когда-нибудь, что не смогли сохранить деловые отношения?<BR>Самым большим разочарованием стало наше воссоединение в 1995 году. У меня были такие ожидания! У нас был менеджмент, а я хотел только петь, играть и сочинять музыку. Мы поехали в тур, и он умудрился покинуть группу три раза. Первый раз в Modesto, Калифорния, второй раз в Токио, где он ушёл в середине шоу, а аудитория просто осталась стоять в тишине, а третий раз -&nbsp; в Манчестере. Мы собирались творить вместе, а он просто нас кинул. </P>
+<P>Американский сайт InsidePulse.com определил список&nbsp; десяти лучших вокалисток в современном металле:<BR>01. Cristina Scabbia (LACUNA COIL)<BR>02. Angela Gossow (ARCH ENEMY)<BR>03. Anneke van Giersbergen (THE GATHERING )<BR>04. Tanja Lainio (LULLACRY)<BR>05. Anita Auglend (SINS OF THY BELOVED)<BR>06. Candace Kucsulain (WALLS OF JERICHO)<BR>07. Otep Shamaya (OTEP)<BR>08. Morgan Lander (KITTIE)<BR>09. Jonna Enckell (THE PROJECT HATE)<BR>10. Amy Lee (EVANESCENCE)<BR>Любопытно, что Amy Lee только на десятом месте, а возглавляет список Европейская девушка. Кроме этого, в списке нет, сами знаете кого.</P>
+<P>Малазийские исламские фундаменталисты выступили в правительстве страны против концерта SCORPIONS, которые, по их мнению, развращают молодёжь. «Подобные концерты – катализаторы гедонизма и зла в обществе», - заявил Salahuddin Haji Ayub, молодёжный лидер Пан-Малазийской исламской партии. «Исследования показали, что падает собственное достоинство и самооценка от подобных вызывающих программ», - говорится в заявлении. Сообщается также, что эти активисты протестовали по поводу концертов Michael Jackson, Mariah Carey и LINKIN PARK, но не один концерт так и не был запрещён.</P>
+<P>Doro Pesch дала интервью греческому журналу Metal-Temple.com, в котором рассказала о первом альбоме для AFM ‘Classic Diamonds’, на котором она перепевает классику из творчества DORO, а также исполняет некоторые новые песни. В записи альбома Doro помогали Blaze Bayley (BLAZE, ex-IRON MAIDEN), Kai Hansen (GAMMA RAY, ex-HELLOWEEN) и Udo Dirkschneider (U.D.O., ex-ACCEPT).<BR>«Мне предложили поработать с Metal Classic Night Orchestra, на предмет переработки нескольких моих старых хитов. У меня уже был подобный опыт с Dusseldorf Symphony Orchestra, и это было очень интересно. Мы дали концерт, на котором исполнили многие вещи из классики heavy-metal. Например, с Blaze Bayley мы исполняли ‘Fear Of The dark’, и это получилось так хорошо, что мы решили это записать. В январе мы уже записали много песен: 'All We Are', 'Fur Immer' and 'Breaking the Law' JUDAS PRIEST. На вопрос, с кем бы Doro хотела ещё поработать, она ответила: «Да. Я хотела бы поработать с Tarja из NIGHTWISH. В ближайшее время мы начинаем работу над новой пластинкой, и было бы здорово спеть дуэтом с другой певицей. Я уже джэмовала с Sabina Classen (HOLY MOSES) на Wacken, где мы исполнили 'Too Drunk To Fuck', что всех впечатлило.</P>
+<P>Буквально на днях стало известно, что из EXODUS уволен вокалист Steve "Zetro" Souza. Вот, что сказал Gary Holt на официальном форуме группы: «Он (Souza) отказался лететь в Мексику всего лишь за 24 часа до концерта. Сказал, что не полетит с нами в Мексику, а присоединится к группе уже в туре по Южной Америке. Он наврал нашему менеджеру, что сказал мне об этом раньше – это откровенная ложь. После этого Steve пропал и не отвечал на телефонные звонки, а промоутер в Мексике уже заплатил 8 тысяч долларов!!! Организатор разорился бы, но его это не волновало, этот кусок дерьма думает только о себе и о своих деньгах. Слышали бы Вы, что он говорил последние два года. «Почему басист Jack Gibson получает столько же, сколько я? Кто он такой? Давайте наймём телохранителей в Южной Америке. Если фэны хотят услышать больше 12 песен, они должны заплатить больше. Почему Gary находится спереди на наших промо-фотографиях, там должен быть я. Видели бы Вы, как этот motherfucker сидел за кулисами на одном фесте в Финляндии и орал, как котёнок. Теперь он может оставить свою толстую задницу дома!!! EXODUS продолжают существовать, это моя группа!!!»&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 05.01.2005 news Новости от DIMMU BORGIR
+
+<P>Как уже сообщалось, <STRONG>DIMMU BORGIR</STRONG> отдыхают после возвращения с <STRONG>OzzFest</STRONG>. Группа поделилась планами на будущий год. Норвежцы собираются писать песни для нового альбома, дадут несколько выступлений на избранных фестивалях, а также<STRONG> Silenoz</STRONG> и <STRONG>Shagrath</STRONG> перезапишут второй альбом группы '<STRONG>Stormblast</STRONG>'.</P>
+Автор: Vit Belov
+
+### 15.01.2005 news Новый вокалист ARCTURUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Официальное сообщение: новым вокалистом норвежской группы <STRONG>ARCTURUS</STRONG> стал <STRONG>Simen Hestnaes</STRONG>, известный как&nbsp;<STRONG>ICS Vortex</STRONG>, бывший вокалист <STRONG>BORKNAGAR</STRONG> и нынешний басист-вокалист <STRONG>DIMMU BORGIR</STRONG>. Уже 27 января в Лондоне состоится первое выступление группы с новым вокалистом. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Simen Hestnaes</STRONG> уже записывал вокалы и принимал участие в написании лирики&nbsp;для трех песен <STRONG>ARCTURUS</STRONG> на альбоме <STRONG>"La Masquerade Infernale"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ранее анонсированный новый вокалист группы O<STRONG>yvind Haegeland</STRONG> (<B>SPIRAL ARCHITECT</B>) покинул группу по неразглашаемым причинам.<BR></P></FONT>
+Автор: Dimas
+
+### 31.03.2005 news Опять слухи...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Согласно сообщению на сайте <STRONG>Pearl Drums</STRONG>, записывать партии барабанов для нового альбома <STRONG>DIMMU BORGIR</STRONG> будет <STRONG>Hellhammer</STRONG> (<STRONG>MAYHEM</STRONG>, <STRONG>THE KOVENANT</STRONG>, <STRONG>WINDS</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 15.06.2005 news Новости от DIMMU BORGIR
+
+<P><STRONG>DIMMU BORGIR</STRONG> выступили с объёмным заявлением, в котором "расставили все точки" в своём ближайшем будущем. В этом году группа выступит всего пять раз -&nbsp;на фестивалях в Европе. Барабанщиком во время этих шоу будет <STRONG>Tony Laureano (</STRONG>ex<STRONG>-NILE</STRONG>). В студии с группой будет работать <STRONG>Hellhammer</STRONG>, но оба эти музыканта остаются сессионными. Летом <STRONG>DIMMU BORGIR</STRONG> перепишут свой ранний альбом "<STRONG>Stormblast</STRONG>" в <STRONG>Abyss Studio</STRONG> вместе с <STRONG>Peter Tagtgren</STRONG>. </P>
+<P>Ну и главное, песни для нового альбома группы начнут сочиняться в конце лета, а сама пластинка выйдет не раньше второй половины 2006 года!!! </P>
+Автор: Vit Belov
+
+### 11.08.2005 news Новый &quot;Stormblast&quot;
+
+<P>Как сообщается на сайте <STRONG>Nuclear Blast,</STRONG> <STRONG>DIMMU BORGIR</STRONG> продлили контракт с ними&nbsp;на выпуск своих альбомов.&nbsp;Первым релизом в рамках&nbsp;этого&nbsp;соглашения &nbsp;станет перезаписанный альбом 1996 года "<STRONG>Stormblast</STRONG>".&nbsp;Диск появится в продаже после&nbsp;7 ноября. <BR></P>
+Автор: Bizarre
+
+### 29.08.2005 news Подробности о перезаписаннном &quot;Stormblast&quot;
+
+<P>Как сообщается на сайте<STRONG> Nuclear Blast</STRONG>, в комплект с аудио-диском&nbsp;переиздания "<STRONG>Stormblast</STRONG>"&nbsp;будет так же входить DVD&nbsp; с концертным материалом, отснятым на <STRONG>Ozzfest 2004</STRONG>. При этом комплект будет продаваться по цене обычного компакт-диска. Трек-лист DVD:<BR>1. <STRONG>Spellbound by the Devil</STRONG><BR>2. <STRONG>Vredesbyrd<BR></STRONG>3. <STRONG>The Kings Of The Carnival Creation</STRONG><BR>4. <STRONG>Progenies Of The Great Apocalypse</STRONG><BR>5. <STRONG>Mourning Palace</STRONG></P>
+Автор: Bizarre
+
+### 02.11.2005 news Новый Stormblast выходит 14 ноября
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Перезаписанный альбом <STRONG>DIMMU BORGIR "Stormblast"</STRONG> выйдет 14 ноября на <STRONG>Nuclear Blast</STRONG>. Напомним, что материал был перезаписан с <STRONG>Peter Tagtgren</STRONG> в <STRONG>Abyss</STRONG>, а партии бапрабанов исполнил знаменитый <STRONG>Hellhammer</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 26.02.2006 news DECAPITATED выступят на Metal Camp Festival
+
+<P>Польские мастера дэт-метала <B>DECAPITATED</B>&nbsp;выступят 22 июля на фестивале <B>Metal Camp Festival</B>, который пройдет в Словении, в городе Толмин, с 21 по 23 июля. Об участии в этом музыкальном празднике также заявили такие монстры, как <B>DIMMU BORGIR, SAXON, TESTAMENT, AMON AMARTH, MY DYING BRIDE, HYPOCRISY, EDGUY, GOREFEST</B>.</P>
+<P>Подробности смотрите на: <A href="http://www.metalcamp.com/"><U>http://www.metalcamp.com/</U></A></P>
+Автор: Ixtiandr
+
+### 11.10.2006 news DIMMU BORGIR начали запись
+
+<P>Вчера <STRONG>Hellhammer </STRONG>начал запись барабанов для нового альбома <STRONG>DIMMU BORGIR</STRONG> в <STRONG>Fredman Studio</STRONG>. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 20.11.2006 news Название нового альбома DIMMU BORGIR
+
+Новый альбом <STRONG>DIMMU BORGIR</STRONG>, который выйдет в начале следующего года, будет называться <STRONG>'In Sorte Diaboli'. </STRONG>
+Автор: Vit Belov
+
+### 12.12.2006 news Дата релиза DIMMU BORGIR
+
+<P>Новый альбом <STRONG>DIMMU BORGIR</STRONG> <STRONG>"In Sorte Diaboli" </STRONG>выйдет 7 мая на<STRONG> Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.02.2007 news Новый альбом DIMMU BORGIR
+
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2007.02/11338.jpg" width=225 align=right border=5>Как уже сообщалось, новый <STRONG>DIMMU BORGIR "In Sorte Diaboli"</STRONG> выходит в мае на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>The Serpentine Offering</STRONG><BR>2. <STRONG>The Chosen Legacy</STRONG><BR>3. <STRONG>The Conspiracy Unfolds</STRONG><BR>4. <STRONG>The Ancestral Fever</STRONG> (Digi bonustrack)<BR>5. <STRONG>The Sacrilegious Scorn</STRONG><BR>6. <STRONG>The Fallen Arises</STRONG><BR>7.<STRONG> The Sinister Awakening</STRONG><BR>8. <STRONG>The Fundamental Alienation</STRONG><BR>9.<STRONG> The Invaluable Darkness</STRONG><BR>10. <STRONG>The Foreshadowing Furnace</STRONG></P>
+Автор: Vit Belov
+
+### 23.06.2007 news Hellhammer сломал руку
+
+<P>Барабанщик<STRONG> Хэлхаммер (Hellhammer)</STRONG> сломал руку во время тура с <STRONG>DIMMU BORGIR</STRONG> в США, в связи с этим группа <STRONG>MAYHEM</STRONG> отменила запланированные выступления на фестивале <STRONG>HELLFEST</STRONG> (Франция)&nbsp; и тур в США.&nbsp;Сообщается, что музыканту требуется операция и длительное восстановление.</P>
+Автор: Bizarre
+
+### 12.07.2008 news DIMMU BORGIR выпускают DVD
+
+<P>В октябре на<STRONG> Nuclear Blast</STRONG> выйдет новый DVD от <STRONG>DIMMU BORGIR</STRONG> <STRONG>"The Invaluable Darkness". </STRONG>Трэк-лист:</P>
+<P>DVD One:<BR itxtvisited="1">I. The Invaluable Darkness Tour - Europe 2007<BR itxtvisited="1">Sentrum Scene in Oslo, Norway – November 6, 2007:<BR itxtvisited="1">01. <B itxtvisited="1">Introduction</B><BR itxtvisited="1">02. <B itxtvisited="1">Progenies Of The Great Apocalypse</B><BR itxtvisited="1">03. <B itxtvisited="1">The Serpentine Offering</B><BR itxtvisited="1">04. <B itxtvisited="1">The Chosen Legacy</B><BR itxtvisited="1">05. <B itxtvisited="1">Spellbound (By The Devil)</B><BR itxtvisited="1">06. <B itxtvisited="1">Sorgens Kammer Del II</B><BR itxtvisited="1">07. <B itxtvisited="1">The Insight And The Catharsis</B><BR itxtvisited="1">08. <B itxtvisited="1">Raabj&#248;rn Speiler Draugheimens Skodde</B><BR itxtvisited="1">09. <B itxtvisited="1">The Sacrilegious Scorn</B><BR itxtvisited="1">10. <B itxtvisited="1">Mourning Palace</B><BR itxtvisited="1">11. <B itxtvisited="1">The Fallen Arises</B><BR itxtvisited="1">Columbiahalle in Berlin, Germany - October 21, 2007:<BR itxtvisited="1">12. <B itxtvisited="1">The Sinister Awakening</B><BR itxtvisited="1">13. <B itxtvisited="1">A Succubus In Rapture</B><BR itxtvisited="1">14. <B itxtvisited="1">Fear & Wonder</B><BR itxtvisited="1">15. <B itxtvisited="1">Blessings Upon the Throne of Tyranny</B><BR itxtvisited="1">The Forum in London, UK – September 28, 2007:<BR itxtvisited="1">16. <B itxtvisited="1">Vredesbyrd</B><BR itxtvisited="1">17. <B itxtvisited="1">Puritania</B><BR itxtvisited="1">II. Behind-The-Scenes Footage<BR itxtvisited="1">III. Special Feature<BR itxtvisited="1">DVD Two<BR itxtvisited="1">I. Wacken Open Air, Germany – Black Metal Stage – August 2, 2007<BR itxtvisited="1">01. <B itxtvisited="1">Introduction</B><BR itxtvisited="1">02. <B itxtvisited="1">Progenies Of The Great Apocalypse</B> <BR itxtvisited="1">03. <B itxtvisited="1">Vredesbyrd</B><BR itxtvisited="1">04. <B itxtvisited="1">Cataclysm Children</B> <BR itxtvisited="1">05. <B itxtvisited="1">Kings Of The Carnival Creation</B> <BR itxtvisited="1">06. <B itxtvisited="1">Sorgens Kammer Del II</B><BR itxtvisited="1">07. <B itxtvisited="1">Indoctrination</B> <BR itxtvisited="1">08. <B itxtvisited="1">A Succubus In Rapture</B><BR itxtvisited="1">09. <B itxtvisited="1">The Serpentine Offering</B><BR itxtvisited="1">10. <B itxtvisited="1">The Chosen Legacy</B> <BR itxtvisited="1">11. <B itxtvisited="1">The Insight And The Catharsis</B> <BR itxtvisited="1">12. <B itxtvisited="1">Spellbound (By The Devil)</B> <BR itxtvisited="1">13. <B itxtvisited="1">Mourning Palace</B><BR itxtvisited="1">14. <B itxtvisited="1">The Fallen Arises</B><BR itxtvisited="1">II. P3 Session – NRK Studio 19 IN Oslo, Norway – September 18, 2007<BR itxtvisited="1">01. <B itxtvisited="1">The Serpentine Offering</B><BR itxtvisited="1">02. <B itxtvisited="1">Spellbound (By The Devil)</B><BR itxtvisited="1">03. <B itxtvisited="1">Mourning Palace</B><BR itxtvisited="1">III. Video Gallery<BR itxtvisited="1">01. <B itxtvisited="1">Progenies Of The Great Apocalypse</B><BR itxtvisited="1">02. <B itxtvisited="1">Vredesbyrd</B> <BR itxtvisited="1">03. <B itxtvisited="1">Sorgens Kammer Del II</B> <BR itxtvisited="1">04. <B itxtvisited="1">The Serpentine Offering</B> <BR itxtvisited="1">05. <B itxtvisited="1">The Sacrilegious Scorn</B> <BR itxtvisited="1">06. <B itxtvisited="1">The Chosen Legacy</B> <BR itxtvisited="1">IV. Gold Awards Oslo<BR itxtvisited="1">V. Image Gallery<BR itxtvisited="1">Bonus Audio CD<BR itxtvisited="1">P3 Session @ NRK Studio 19 in Oslo, Norway - September 18, 2007<BR itxtvisited="1">01. <B itxtvisited="1">Introduction</B><BR itxtvisited="1">02. <B itxtvisited="1">Progenies Of The Great Apocalypse</B><BR itxtvisited="1">03. <B itxtvisited="1">Vredesbyrd</B> <BR itxtvisited="1">04. <B itxtvisited="1">Sorgens Kammer Del II</B> <BR itxtvisited="1">05. <B itxtvisited="1">Indoctrination</B> <BR itxtvisited="1">06. <B itxtvisited="1">A Succubus In Rapture</B><BR itxtvisited="1">07. <B itxtvisited="1">The Serpentine Offering</B> <BR itxtvisited="1">08. <B itxtvisited="1">The Chosen Legacy</B> <BR itxtvisited="1">09. <B itxtvisited="1">The Insight And The Catharsis</B><BR itxtvisited="1">10. <B itxtvisited="1">Spellbound (By The Devil)</B><BR itxtvisited="1">11. <B itxtvisited="1">Mourning Palace</B><BR itxtvisited="1">12. <B itxtvisited="1">The Fallen Arises</B></P>
+Автор: Vit Belov
+
+### 21.07.2008 news Shagrath женился
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2008.07/12626.jpg" width=300 align=left border=5>Вокалист <STRONG>DIMMU BORGIR Shagrath</STRONG> женился. Избранницей 31-летнего музыканта стала 41-летняя актриса <STRONG>Christina Fulton, </STRONG>известная, как бывшая сожительница актёра <STRONG>Николаса Кейджа</STRONG>. От него у девушки есть 17-летний сын <STRONG>Weston Coppola-Cage, </STRONG>который играет в black-metal банде <STRONG>EYES OF NOCTUM.</STRONG></P>
+Автор: Vit Belov
+
+### 02.10.2008 news Новое видео DIMMU BORGIR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип<STRONG> DIMMU BORGIR</STRONG> на песню <STRONG>"The Chosen Legacy" </STRONG>выложен в сеть. Режиссёром ролика стал <STRONG>Tod Junker</STRONG>.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=43576755">Dimmu Borgir - The Chosen Legacy</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=43576755,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=43576755,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 06.05.2009 news Nuclear Blast выпустят комиксы
+
+<P><IMG height=263 alt="" hspace=0 src="/images/news_rus/2009.05/14060.jpg" width=400 align=left border=5>Все мы слышали о финансовом крахе и кризисе физических носителей. Немецкий гигант <STRONG>Nuclear Blast</STRONG> борется с последствиями всех кризисов и крахов. Совместно с <STRONG>Terminal Press Nuclear Blast</STRONG> объявили о создании серии комиксов, стилистически и лирически связанных с разнообразными группами из каталога лэйбла. Дебютантом на этом поприще станут <STRONG>DIMMU BORGIR</STRONG>. "<STRONG>Dimmu Borgir: Dark Fortress</STRONG>" так будут называться комиксы о трёх человеках, которые будут раскрывать секреты Dark Fortress (не путать с группой DARK FORTRESS). Остаётся с нетерпением ожидать комиксов от <STRONG>HAMMERFALL, KNORKATOR, CANDLEMASS</STRONG> и, упаси боже, <STRONG>LIQUIDO</STRONG>.</P>
+Автор: Vit Belov
+
+### 31.08.2009 news Перестановки в DIMMU BORGIR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клавишник<STRONG> Musitis</STRONG> сообщил, что его уволили из <STRONG>DIMMU BORGIR</STRONG>. Группа официально пока не подтвердила этот факт, но сам музыкант рассказал, что получил от остальных музыкантов текстовое сообщение, где ему сказали "до свидания". Кроме этого, <STRONG>Mustis</STRONG> сообщил, что вместе с ним ряды знаменитых норвежцев покидает чистоголосый вокалист <STRONG>ICS Vortex</STRONG>, который также был уволен самими "Боргирами". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В своём обширном заявлении, больше похожим на жалобу, <STRONG>Mustis</STRONG> открыл некоторые детали разрыва. Например, он опасается за свои авторские отчисления, так как считает, что его авторство на многих трэках последних альбомов <STRONG>DIMMU BORGIR</STRONG> не было обозначено в должной мере. Теперь он собирается привлечь к решению этого вопроса юристов.</FONT></P>
+Автор: Vit Belov
+
+### 09.09.2009 news DIMMU BORGIR обещают оркестр и хор
+
+<P>Получив порцию критики после увольнения <STRONG>Mustis</STRONG> и <STRONG>Vortex</STRONG>, <STRONG>DIMMU BORGIR</STRONG> стали активнее общаться с публикой. Норвежцы сообщили, что сочинение материала для нового альбома закончено наполовину. Обещается, что музыка будет незабываемая. Уже сейчас известно, что в записи примут участие оркестр и хор.</P>
+Автор: Vit Belov
+
+### 22.10.2009 news King Ov Hell организовал группу
+
+<P><IMG height=281 alt="" hspace=0 src="/images/news_rus/2009.10/15339.jpg" width=300 align=left border=5>После того как эпатажный вокалист <STRONG>Gaahl</STRONG> объявил о завершении карьеры в тяжёлой музыке его напарник по<STRONG> GOD SEED</STRONG> (ex-<STRONG>GORGOROTH</STRONG>) басист <STRONG>King</STRONG> объявил о создании новой группы, в которой будут использованы песни, сочинённые для его версии <STRONG>GORGOROTH</STRONG>. <STRONG>OV HELL</STRONG> - так будет называться эта группа. И поможет ему в претворении этих планов в жизнь вокалист <STRONG>DIMMU BORGIR Shagrath</STRONG>!!! Кроме этого в составе известнейший барабанщик <STRONG>Frost</STRONG> (<STRONG>1349, SATYRICON</STRONG>), гитаристы <STRONG>Ice Dale</STRONG> (<STRONG>ENSLAVED, I, AUDREY HORNE, TRINACRIA, DEMONAZ</STRONG>) и <STRONG>Teloch</STRONG> (<STRONG>NIDINGR, GOD SEED, 1349, UMORAL</STRONG>). Дебютный альбом выйдет в следующем году на <STRONG>Indie Recordings</STRONG>, но две новые вещи можно послушать уже сейчас на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/ovhell">http://www.myspace.com/ovhell</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 30.11.2009 news OV HELL назвали альбом
+
+<P>Новый проект бывшего басиста <STRONG>GORGOROTH King Ov Hell</STRONG> и вокалиста<STRONG> DIMMU BORGIR Shagrath OV HELL</STRONG> опубликовал трэк-лист дебютного альбома <STRONG>"The Underworld Regime"</STRONG>, который выйдет в феврале на <STRONG>Indie Recordings</STRONG>:</P>
+<P>01. <B>Devil's Harlot</B><BR>02. <B>Post Modern Sadist</B><BR>03. <B>Invoker</B><BR>04. <B>Perpetual Night</B><BR>05. <B>Ghosting</B><BR>06. <B>Acts of Sin</B><BR>07. <B>Krigsatte Faner</B><BR>08. <B>Hill Norge</B></P>
+Автор: Vit Belov
+
+### 02.06.2010 news DIMMU BORGIR набирают оркестр
+
+<P>Норвежцы<STRONG> DIMMU BORGIR</STRONG> работают над своим девятым альбомом, который должен выйти 11 октября на <STRONG>Nuclear Blast</STRONG>. Коллектив объявил о начале сотрудничества с композитором и дирижёром <STRONG>Gaute Storaas. </STRONG>Господин <STRONG>Storaas</STRONG> привёл с собой целых два оркестра: оркестр норвежского радио (51 человек) и <STRONG>Schola Cantorum Choir</STRONG> (38 человек). Итого в записи новой работы <STRONG>DIMMU BORGIR</STRONG> примет участие 101 симфонический музыкант.</P>
+<P><STRONG>Gaute Storaas</STRONG>: "<EM>Уже были попытки обрядить рок-музыку в костюмы. Эти попытки были разной степени успешности. Работа с DIMMU BORGIR немного отличается. Их музыка эпична, концептуальна и симфонична изначально, они имеют понятие об оркестровках. Моя задача иногда просто&nbsp;перевести их музыку на язык оркестра, иногда я перерабатываю музыку для того, чтобы оркестру было удобно её играть</EM>".&nbsp;</P>
+<P>Напомним, что почти год назад <STRONG>DIMMU BORGIR</STRONG> покинул клавишник <STRONG>Mustis</STRONG>, который до этого исполнял один функции симфонического оркестра.</P>
+<P><center><IMG height=107 src="/images/news_rus/2010.06/16772.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 08.07.2010 news DIMMU BORGIR публикуют обложку
+
+<P>Новый альбом <STRONG>DIMMU BORGIR</STRONG> выходит 27 сентября на <STRONG>Nuclear Blast</STRONG>. Группа затеяла эпопею с публикацией обложки. В сеть выложена первая часть из четырёх, которую можно увидеть ниже. Картину вновь нарисовал популярный металический художник <STRONG>Joachim Luetke</STRONG> (<B>ARCH ENEMY</B>, <B>KREATOR</B>, <B>SOPOR AETERNUS</B>).</P>
+<P><center><IMG height=400 src="/images/news_rus/2010.07/16883.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 12.07.2010 news DIMMU BORGIR выпустят Абракадабру
+
+<P>Новый альбом<STRONG> DIMMU BORGIR</STRONG> получил назание <STRONG>"Abrahadabra". </STRONG>Пластинка выйдет 27 сентября на<STRONG> Nuclear Blast</STRONG>. Ниже можно увидеть обложку этого альбома целиком. </P>
+<P><center><IMG height=401 src="/images/news_rus/2010.07/16898.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.07.2010 news Snowy Shaw активно сватают в DIMMU BORGIR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На прошлой неделе мы сообщили, что<STRONG> Snowy Shaw</STRONG> покинул<STRONG> THERION</STRONG>. В своём заявлении он сообщил, что руководствовался в своём решении личными причинами. Практически сразу после этого появились слухи, что известный музыкант займёт вакантную сейчас позицию басиста в <STRONG>DIMMU BORGIR</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сам&nbsp;артист опроверг эти слухи, но подлили масла в огонь его бывшие коллеги из <STRONG>THERION</STRONG>, объявившие в своём заявлении, касающемся ухода музыканта, что он ушёл от них ради места в другой "большой" группе.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Место басиста не самое "козырное" в <STRONG>DIMMU BORGIR</STRONG>, но, думается, <STRONG>Snowy</STRONG> отлично впишется в норвежский состав. Страшные рожи корчить он научился едва ли не раньше всех. Музыкант в разное время принимал участие в таких составах, как <STRONG>DREAM EVIL</STRONG>, <B>KING DIAMOND</B>, <B>MERCYFUL FATE</B>, <B>MEMENTO MORI</B>, <B>NOTRE DAME.</B></FONT></P>
+Автор: Vit Belov
+
+### 27.07.2010 news Трэк-лист нового DIMMU BORGIR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В сети появился список песен нового альбома <STRONG>DIMMU BORGIR</STRONG> <STRONG>"Abrahadabra":</STRONG></FONT></P>
+<P>01. <B itxtvisited="1">Xibir</B> (2:50)<BR itxtvisited="1">02. <B itxtvisited="1">Born Treacherous</B> (5:02)<BR itxtvisited="1">03. <B itxtvisited="1">Gateways</B> (5:10)<BR itxtvisited="1">04. <B itxtvisited="1">Chess With The Abyss</B> (4:08)<BR itxtvisited="1">05. <B itxtvisited="1">Dimmu Borgir</B> (5:35)<BR itxtvisited="1">06. <B itxtvisited="1">Ritualist</B> (5:13)<BR itxtvisited="1">07. <B itxtvisited="1">The Demiurge Molecule</B> (5:29)<BR itxtvisited="1">08. <B itxtvisited="1">A Jewel Traced Through Coal</B> (5:16)<BR itxtvisited="1">09. <B itxtvisited="1">Renewal</B> (4:11)<BR itxtvisited="1">10. <B itxtvisited="1">Endings And Continuations</B> (5:58)</P>
+<P>Альбом ожидается 27 сентября на <STRONG>Nuclear Blast/Irond.</STRONG></P>
+Автор: Vit Belov
+
+### 26.08.2010 news Snowy Shaw мечется между группами
+
+<P>Вчера было объявлено о том, что бывший участник <STRONG>THERION Snowy Shaw</STRONG> стал новым басистом/чистым вокалистом в <STRONG>DIMMU BORGIR</STRONG>, заменив на этом посту <STRONG>ICS Vortex</STRONG>. Но уже сегодня появилась новая информация, музыкант покинул<STRONG> DIMMU BORGIR</STRONG> и вернулся в<STRONG> THERION</STRONG>.</P>
+<P>Таким образом <STRONG>Snowy Shaw</STRONG> (<STRONG>THERION</STRONG>, <B>DREAM EVIL</B>, <B>KING DIAMOND</B>, <B>MERCYFUL FATE</B>, <B>MEMENTO MORI</B>, <B>NOTRE DAME</B>) пробыл в <STRONG>DIMMU BORGIR</STRONG> одни сутки. Пожалуй, это рекорд.</P>
+Автор: Vit Belov
+
+### 15.09.2010 news Новый клип DIMMU BORGIR
+
+<P>Новое видео<STRONG> DIMMU BORGIR</STRONG> на песню <STRONG>"Gateways" </STRONG>можно посмотреть ниже. Ролик создала студия <STRONG>Katapult Films</STRONG> (<B>RAMMSTEIN</B>) и режиссёр <STRONG>Sandra Marschner</STRONG> (<B>MARILYN MANSON</B>, <B>CHILDREN OF BODOM</B>, <B>MANDO DIAO</B>). В клипе снялась также приглашённая вокалистка <STRONG>Agnete Kjolsrud</STRONG> (<B>DJERV</B>, ex-<B>ANIMAL ALPHA</B>). </P>
+<P>Новый альбом <STRONG>DIMMU BORGIR</STRONG> <STRONG>"Abrahadabra" </STRONG>выйдет на <STRONG>Nuclear Blast</STRONG> 27 сентября.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/_jw7yk8hm_0&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/_jw7yk8hm_0&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.09.2010 news Ещё одна песня DIMMU BORGIR
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.09/17195.jpg" width=400 align=right border=5>Песню <STRONG>"Born Treacherous" </STRONG>с нового альбома <STRONG>DIMMU BORGIR</STRONG> <STRONG>"Abrahadabra" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/dimmuborgir">http://www.myspace.com/dimmuborgir</A></P>
+<P>Новый альбом выйдет 27 сентября на <STRONG>Nuclear Blast Records</STRONG> и<STRONG> Irond</STRONG> в России. Трэк-лист:</P>
+<P>01. <B>Xibir</B> (2:50)<BR>02. <B>Born Treacherous</B> (5:02)<BR>03. <B>Gateways</B> (5:10)<BR>04. <B>Chess With The Abyss</B> (4:08)<BR>05. <B>Dimmu Borgir</B> (5:35)<BR>06. <B>Ritualist</B> (5:13)<BR>07. <B>The Demiurge Molecule</B> (5:29)<BR>08. <B>A Jewel Traced Through Coal</B> (5:16)<BR>09. <B>Renewal</B> (4:11)<BR>10. <B>Endings And Continuations</B> (5:58)</P>
+Автор: Vit Belov
+
+### 09.10.2010 news Чарты от DIMMU BORGIR
+
+<P><IMG height=254 alt="" hspace=0 src="/images/news_rus/2010.10/17358.jpg" width=200 align=right border=5>Стали известны результаты нового альбома <STRONG>DIMMU BORGIR</STRONG> <STRONG>"Abrahadabra" </STRONG>в Европе. Вот страны, в которых альбом попал в национальные чарты:</P>
+<P>Norway: #2 <BR>Germany: #15 <BR>Sweden: #17 <BR>Ireland: #19 <BR>Austria: #20 <BR>Switzerland: #24 <BR>France: #43 <BR>Finland: #48 <BR>Belgium: #52 <BR>Poland: #89</P>
+<P>Отметим, что в своей родной стране Норвегии группа заняла второй место, но с предыдущей пластинкой <STRONG>"In Sorte Diaboli" DIMMU BORGIR </STRONG>возглавляли список.</P>
+Автор: Vit Belov
+
+### 15.10.2010 reviews Эталон sympho-black-metal
+
+<P>Восьмой альбом DIMMU BORGIR “Abrahadabra” ожидался их поклонниками с не меньшим нетерпением, чем обычно. Дело не только в том, что эти самые поклонники всегда всё делают с нетерпением. Главным фактором стало совместное увольнение из состава норвежцев басиста ICS Vortex и клавишника Mustis, наделавшее немало шуму в прошлом году. Особенно значимой казалась потеря кудесника клавиатуры Mustis’a, который один был ответственен за симфоничность звучания DIMMU BORGIR. Ожидалось, что подобный шаг должен привести к изменению звучания группы. Он и привёл, но не в самом ожидаемом виде.</P>
+<P>Казалось, что выгнав симфонического мастера, DIMMU BORGIR могут пойти на утяжеление собственного саунда, что сейчас достаточно модно. Но группа всегда сама руководила модой, будучи флагманом собственного стиля, поэтому был выбран другой путь. Не сказать, что этот путь особенно оригинален, но он явно не встраивается в современную политику посткризисной экономии в бизнесе. Норвежцы привлекли к записи «Абракадабры» целый хор и целый оркестр. Перечисление музыкантов, участвовавших в реализации проекта, занимает несколько страниц буклета. И главное, все эти музыканты отчётливо слышимы на альбоме. Все десять трэков насквозь пронизаны оркестром, хор вступает в самых нужных местах, и в итоге мы имеем самый эпичный и помпезный альбом DIMMU BORGIR за всю историю. </P>
+<P>Последние пару альбомов норвежцев не вызывали во мне былого трепета. Кроме нескольких запоминающихся хитов эти релизы наполнялись великолепно записанным шлаком. Безусловно, в истории black-metal и эти пластинки займут своё важное место, но от таких высокобюджетных проектов нам всегда хочется чего-то величественного и крайне талантливого. В этот раз DIMMU BORGIR ориентировались на мелодику и, думается, они не прогадали. После приглашения оркестра и хора другого пути у них не было, классическим музыкантам ведь надо что-то играть! Слишком расточительно использовать такое количество народу как простого рок-клавишника, которые просто проигрывает атмосферные подкладки на заднем плане. Оказалось, что DIMMU BORGIR могут сочинять мелодии, которые в исполнения оркестра достигают почти неоклассических высот.</P>
+<P>Я выставил высший балл этому альбому норвежцев. Кому-то эта пластинка может показаться чересчур симфоничной. Действительно, по-настоящему этот альбом полюбят только фанаты оркестра в тяжёлой музыке. Например, поклонники THERION просто не должны пропускать этот несомненный образец подобного творчества. Кто-то предъявит претензии и к самому музыкальному материалу. Я же хочу отметить тот факт, что “Abrahadabra” является эталоном sympho-black-metal. Эталоном, которого ещё никому достичь не удавалось, просто по скудости бюджетов. Нравится вам или нет, но именно так должен звучать этот стиль в современном понимании приставки ‘sympho’ и корня ‘black’.</P>
+Автор: Vit Belov
+
+### 21.10.2010 news DIMMU BORGIR не продали 10 тысяч
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>DIMMU BORGIR "Abrahadabra"</STRONG> в первую неделю продаж в США продался тиражом 9400 экземпляров. Это позволило норвежцам занять 42 место в чартах <STRONG>Billboard 200</STRONG>. С прошлым альбомом "<STRONG>In Sorte Diaboli</STRONG>" <STRONG>DIMMU BORGIR</STRONG> дебютировали на 43 месте с 14000 экземпляров. Вот результаты "<STRONG>Abrahadabra</STRONG>" во многих странах:</FONT></P>
+<P>Norway: #2 <BR itxtvisited="1">Germany: #15 <BR itxtvisited="1">Sweden: #17 <BR itxtvisited="1">Ireland: #19 <BR itxtvisited="1">Austria: #20 <BR itxtvisited="1">Switzerland: #24 <BR itxtvisited="1">Canada: #30<BR itxtvisited="1">USA: #42<BR itxtvisited="1">France: #43 <BR itxtvisited="1">Finland: #48 <BR itxtvisited="1">Belgium: #52 </P>
+Автор: Vit Belov
+
+### 07.11.2010 news Маркетинговый ход от Nuсlear Blast и DIMMU BORGIR
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17561.jpg" width=400 height=400>DIMMU BORGIR</STRONG>&nbsp;обнародовали новую обложку к своему последнему альбому <STRONG>"Abrahadabra"</STRONG>. Тираж диска с новой обложкой поступит в продажу в одно время с началом североамериканского тура.</P>
+<P>Вот что гласит пресс-релиз <STRONG>Nuclear Blast</STRONG> по этому поводу:</P>
+<P><EM>"В оформление внесены небольшие изменения, что никоим образом не повлияло на музыкальное содержимое альбома. В дальнейшем, это новое оформление украсит все различные врианты издания альбома при его допечатке, так что первое издание диска теперь&nbsp;- вы угадали - коллекционная редкость! Ещй раз повторяем, это АБСОЛЮТНО тот же альбом, с тем же музыкальным содержимым. Изменилась ТОЛЬКО обложка."</EM></P>
+Автор: Headcrusher
+
+### 24.12.2010 news Клип &quot;Dimmu Borgir&quot;
+
+<P>Новое видео норвежцев <STRONG>DIMMU BORGIR</STRONG> на песню "<STRONG>Dimmu Borgir</STRONG>" можно посмотреть ниже. Песня взята с последнего альбома группы <STRONG>"Abrahadabra".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/c0mTkZyNwuY?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/c0mTkZyNwuY?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.12.2010 news I.C.S. Vortex выпускает сольник
+
+<P><IMG height=301 alt="" hspace=0 src="/images/news_rus/2010.12/17926.jpg" width=200 align=right border=0>Бывший басист/чистый вокалист <STRONG>DIMMU BORGIR I.C.S. Vortex</STRONG> закончил запись сольного альбома <STRONG>"Storm Seeker". </STRONG>На него войдут 11 вещей, на которых музыкант замешал black-metal с stoner-rock, что в последнее время очень любят норвежские злобари. В записи Вортексу помогали барабанщик <STRONG>Asgeir Mickelson</STRONG> (<B>SARKE</B>, <B>SPIRAL ARCHITECT</B>) и гитарист <STRONG>Terje 'Cyrus' Andersen</STRONG> (<B>SUSPERIA</B>, <B>DIMMU BORGIR</B>).</P>
+<P>В концертный состав сольной группы <STRONG>I.C.S. Vortex</STRONG> также войдут <STRONG>Jens F. Ryland</STRONG> (<B>BORKNAGAR</B>) и <B>Steinar Gundersen</B> (<B>SPIRAL ARCHITECT</B>, <B>SARKE</B>).</P>
+Автор: Vit Belov
+
+### 29.05.2011 news DIMMU BORGIR выступили с оркестром
+
+<P>Вчера <STRONG>DIMMU BORGIR</STRONG> дали беспрецендентный и эксклюзивный концерт в столице Норвегии Осло. Black-metal банда выступила вместе с Норвежским оркестром радио и с хором <STRONG>Schola Cantorum </STRONG>из 30 участников. Именно эти люди "гостили" на последнем альбоме коллектива "<STRONG>Abrahadabra</STRONG>". Прошедший концерт станет единственным для норвежцев этим летним сезоном. Кроме трёх постоянных участников в концертный состав<STRONG> DIMMU BORGIR</STRONG> входят клавишник&nbsp; <B>Geir Bratland</B> (<B>APOPTYGMA BERZERK</B>, <B>THE KOVENANT</B>) и басист <STRONG>Terje Andersen</STRONG> (a.k.a. <B>Cyrus</B>; <B>SUSPERIA</B>).</P>
+<P><center><IMG height=338 src="/images/news_rus/2011.05/19537.jpg" width=450 border=0></B></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 26.01.2012 news DIMMU BORGIR продолжают работу над DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>28 мая прошлого года <STRONG>DIMMU BORGIR</STRONG> дали эксклюзивное шоу в компании<STRONG> Оркестра Норвежского Радио</STRONG> и хора<STRONG> Schola Cantorum</STRONG>. Концерт был показан на норвежском государственном канале <STRONG>NRK</STRONG>. С тех пор коллектив работает над DVD релизом этого шоу. </FONT></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Xibir<BR></STRONG>02. <STRONG>Born Treacherous</STRONG><BR>03. <STRONG>Gateways</STRONG><BR>04. <STRONG>Dimmu Borgir</STRONG> (orchestral)<BR>05.<STRONG> Dimmu Borgir<BR></STRONG>06. <STRONG>Ritualist <BR></STRONG>07. <STRONG>A Jewel Traced Through Coal<BR></STRONG>08. <STRONG>Eradication Instincts Defined</STRONG> (orchestral)<BR>09. <STRONG>Vredesbyrd<BR></STRONG>10. <STRONG>Progenies Of The Great Apocalypse</STRONG><BR>11. <STRONG>The Serpentine Offering<BR></STRONG>12. <STRONG>Fear And Wonder</STRONG> (orchestral)<BR>13. <STRONG>Puritania<BR></STRONG>14. <STRONG>Kings Of The Carnival Creation<BR></STRONG>15. <STRONG>Mourning Palace<BR></STRONG>16. <STRONG>Perfection Or Vanity</STRONG></P>
+<P>Музыканты обращаются к слушателем с просьбой не приобретать пиратские версии этого концерта.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/PdEVT0NqLWk?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.04.2016 news Лейбл Nuclear Blast и группа DIMMU BORGIR подписали новый договор
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл<STRONG> Nuclear Blast</STRONG> сообщил сегодня, что заключил новый договор на сотрудничество с норвежским блэк-металлическим ансамблем <STRONG>DIMMU BORGIR</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>И обещает в ближайшем будущем выпустить их концертный релиз <STRONG>"Forces Of The Northern Night"</STRONG> в форматах DVD и Blu-ray, а затем уже и новый студийный альбом.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2016.04/29116.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### NP: Dimmu Borgir 2001 "Puritanical Euphoric Misanthropia"

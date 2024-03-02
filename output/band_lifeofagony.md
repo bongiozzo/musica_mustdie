@@ -75,6 +75,62 @@ Joey Z. - Lead & Rhythm Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.06.1999 news 
+
+<p>Life Of Agony распались. Причины этого события неизвестны, но известно, что три участника группы объединились с неким вокалистом из Атланты для создания новой группы.</p>
+
+Автор: Vit Belov
+
+### 05.10.1999 news 
+
+<p>Soulfly покинул барабанщик Рой Майорга. Возможно заменой ему станет Дэнни Ричардсон, бывший барабанщик Life Of Agony.</p>
+
+Автор: Vit Belov
+
+### 12.07.2003 news Roadrunner Records восстанавливает корни
+
+<p>Roadrunner Records планирует беспрецедентную акцию под названием "The Roots Of Roadrunner". Это будет выпуск серии дисков "The Best Of" от различных известных команд с лэйбла с аннотацией от известных музыкантов, являющихся поклонниками этих коллективов. Выход первых семи дисков из серии запланирован на 22 сентября 2003 года. Среди них:</p>
+<p> "Best Of DEICIDE" <BR> Аннотации от Joey Jordison (SLIPKNOT)</p>
+<p> 1. Dead By Dawn <BR> 2. Carnage In The Temple Of The Damned <BR> 3. Lunatic Of God's Creation<BR> 4. Sacrificial Suicide <BR> 5. Crucifixation <BR> 6. Satan Spawn, The Caco-Daemon <BR> 7. Trifixion <BR> 8. In Hell I Burn <BR> 9. Dead But Dreaming <BR> 10. Once Upon The Cross <BR> 11. They Are The Children Of The Underworld <BR> 12. When Satan Rules His World <BR> 13. Trick Or Betrayed <BR> 14. Behind The Light Thou Shall Rise <BR> 15. Serpents Of The Light <BR> 16. Bastard Of Christ <BR> 17. Blame It On God <BR> 18. This Is Hell We're In <BR> 19. Bible Basher <BR> 20. Standing In The Flames</p>
+<p> "Best Of BRUJERIA" <BR> Аннотация от Hank Williams III (SUPERJOINT RITUAL)</p>
+<p> 1. Pura De Venta <BR> 2. Leyes Narcos <BR> 3. Matando Gueros <BR> 4. Castigo Del Brujo <BR> 5. Sacrificio <BR> 6. Padre Nuestro <BR> 7. Raza Odida (Pito Wilson) <BR> 8. La Ley De Plomo <BR> 9. Colas De Rata <BR> 10. Hechando Chingasos (Grenudo Locos II) <BR> 11. La Migra (Cruza La Frontera II) <BR> 12. Consejos Narcos <BR> 13. Brujerizmo <BR> 14. Vayan Sin Miedo <BR> 15. Pititis, Te Invoco <BR> 16. Laboratorio Cristalitos <BR> 17. Division Del Norte <BR> 18. Anti-Castro <BR> 19. El Desmadre <BR> 20. Ritmos Satanicos</p>
+<p> "Best Of LIFE OF AGONY" <BR> Аннотация от TBC</p>
+<p> 1. This Time<BR> 2. River Runs Red <BR> 3. Through And Through <BR> 4. Bad Seed <BR> 5. Underground<BR> 6. Here I Am, Here I Stay <BR> 7. Damned If I Do <BR> 8. Lost At 22 <BR> 9. Other Side Of The River <BR> 10. Let's Pretend <BR> 11. How It Would Be <BR> 12. Tangerine <BR> 13. My Mind Is Dangerous <BR> 14. Weeds <BR> 15. Angry Tree <BR> 16. Honeycomb</p>
+<p> "Best Of KING DIAMOND" <BR> Аннотация от Dave Ellefson (ex-MEGADETH)</p>
+<p> 1. The Candle <BR> 2. Charon <BR> 3. Halloween <BR> 4. No Presents For Christmas <BR> 5. Arrival <BR> 6. A Mansion In Darkness <BR> 7. The Family Ghost <BR> 8. Abigail <BR> 9. Welcome Home <BR> 10. The Invisible Guests <BR> 11. Tea <BR> 12. At The Graves <BR> 13. Sleepless Nights <BR> 14. Eye Of The Witch <BR> 15. Burn</p>
+<p> "Best Of MERCYFUL FATE" <BR> Аннотация от Mark Hunter (CHIMAIRA)</p>
+<p> 1. Doomed By The Living Dead <BR> 2. A Corpse Without Soul <BR> 3. Nuns Have No Fun <BR> 4. Evil <BR> 5. Curse Of The Pharaohs <BR> 6. Into The Coven <BR> 7. Black Funeral <BR> 8. Satan's Fall<BR> 9. A Dangerous Meeting <BR> 10. Desecration Of Souls <BR> 11. Gypsy<BR> 12. Come To The Sabbath <BR> 13. Burning The Cross <BR> 14. Return Of The Vampire</p>
+<p> "Best Of MALEVOLENT CREATION" <BR> Аннотация от Deron Miller (CKY)</p>
+<p> 1. Eve Of The Apocalypse <BR> 2. Sacrificial Annihilation <BR> 3. Monster<BR> 4. Dominated Resurgency <BR> 5. Multiple Stab Wounds <BR> 6. Genetic Affliction (demo version) <BR> 7. Geared For Gain <BR> 8. Slaughter Of Innocence <BR> 9. Premature Burial <BR> 10. Decadence Within <BR> 11. The Way Of All Flesh <BR> 12. Iced <BR> 13. Carnivorous Misgivings <BR> 14. Remnants Of Withered Decay <BR> 15. The Coldest Survive <BR> 16. Thou Shall Kill! <BR> 17. Mindlock <BR> 18. Piece By Piece</p>
+<p> "Best Of MADBALL" <BR> Аннотация от Jamey Jasta (HATEBREED) и Roger Miret (AGNOSTIC FRONT)</p>
+<p> 1. Set It Off <BR> 2. New York City <BR> 3. It's Time <BR> 4. Across Your Face <BR> 5. Down By Law <BR> 6. Smell The Bacon (What's With You?) <BR> 7. Friend or Foe<BR> 8. Demonstrating My Style <BR> 9. Unity <BR> 10. Live Or Die <BR> 11. Pride (Times Are Changing) <BR> 12. Hardcore Still Lives! <BR> 13. Nuestra Familia <BR> 14. Ball of Destruction <BR> 15. Look My Way <BR> 16. Moment of Truth <BR> 17. Waste of Time <BR> 18. Been There, Done That <BR> 19. Talkin' To Myself <BR> 20. Fools Die</p>
+
+Автор: Dimas
+
+### 10.10.2003 news Life Of Agony in Europe
+
+<P align="left">18.10. B-Antwerpen - Hof Ter Lo<BR>19.10. Offenbach - Capitol<BR>21.10. Dortmund - Soundgarden<BR>22.10. Hamburg - Docks<BR>23.10. Berlin - Columbia Halle<BR>24.10. Chemnitz - S&uuml;dbahnhof<BR>25.10. A-Wien - Planet Music<BR>27.10. K&ouml;ln - Live Music Hall<BR>28.10. Stuttgart - Longhorn<BR>29.10. A-Salzburg - Rockhouse<BR>30.10. M&uuml;nchen - Elserhalle<BR>02.11. CH-Z&uuml;rich - Abart<BR>03.11. LUX-Luxemburg - Kulturfabrik<BR>04.11. NL-Utrecht - Tivoli<BR>05.11. NL-Tilburg - O13<BR>07.11. UK-Nottingham - Rock City<BR>08.11. SCO-Glasgow - Garage<BR>09.11. UK-London - Astoria</P>
+Автор: Vit Belov
+
+### 29.12.2003 reviews Полная агония
+
+<P>Пресс-релиз преподносит эту группу чуть ли не как королями кроссовера. Не знаю, может, в свое проклятое время они его и играли (а по другим данным группа исполняла хардкор). Однако на данном концертном двойнике, ознаменовавшем реюнион нью-йоркского квартета и названном явно в честь дебютника 1993 года 'River Runs Red', вы услышите всё, что угодно, но только не кроссовер или хардкор. Скажу честно, прослушать двойной концерт LOA, записанный в Нью-Йорке в январе уходящего года и подкрепленный тремя бонус-треками сольных проектов участников команды, дается, мягко говоря, тяжело. Видимо, только для американцев такая музыка близка и понятна, у нашего же или европейского слушателя она вряд ли найдет положительный отклик. ее можно назвать смесью альтернативного рочка с современным американским металлом, а можно вообще никак не называть, ибо второсортное американское барахло таковым всё равно останется. Добавлю лишь, что - следуя влияниям моды - сей концерт выпустили в виде двойного аудиодиска, в виде ДВД и в виде лимитированного издания, включающего оба вышеназванных формата. Не удивлюсь, если данный релиз разлетится в США "на ура", ну а мы лучше потратим свои кровные на что-нибудь более пристойное.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ". </P>
+Автор: Ixtiandr
+
+### 16.07.2011 news Keith Caputo хочет быть женщиной?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/20168.jpg" width=350 height=350>Вокалист ньюйоркцев <STRONG>LIFE OF AGONY</STRONG>, наделавших шума в начале 90-х со своим дебютником<STRONG> "River Runs Red"</STRONG>, Кейт Капуто (<STRONG>Keith Caputo</STRONG>) в последнее время очень странно себя ведёт. Его страницы в соцсетях <STRONG>Facebook</STRONG> и <STRONG>Twitter</STRONG> пестрят фотографиями Кейта&nbsp;в женском макияже и одеянии, а на&nbsp;своём официальном сайте (<A href="http://www.keithcaputo.com/">www.keithcaputo.com</A>) его менеджер по имени Мая (<STRONG>Maya R. Odinezenko</STRONG>) называет Кейта в женском роде и не иначе как <STRONG>Keith Mina</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А совсем недавно <STRONG>Keith</STRONG> признался в своей транссексуальности в <STRONG>Twitter</STRONG>: </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"ДА,&nbsp;я транссексуал и ГОРЖУСЬ этим. Определённо, я не стыжусь этого. Я глубоко благодарю всеx, кто оказал мне большую поддержку в последние дни, ОСОБЕННО в сети <STRONG>Twitter</STRONG>."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на одну из самых известных песен <STRONG>LIFE OF AGONY "Through And Through"&nbsp;&nbsp;</STRONG>&nbsp;с дебютного альбома<STRONG> "River Runs Red"</STRONG> (1993)&nbsp;можно посмотреть по ссылке: </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.youtube.com/watch?v=UaCijH0USo8">http://www.youtube.com/watch?v=UaCijH0USo8</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Life of Agony - Broken Valley 2005

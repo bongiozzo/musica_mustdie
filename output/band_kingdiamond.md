@@ -389,6 +389,1791 @@ Additional Vocals by Livia Zita.
 * C группой "Mercyful Fate" Michael Denner (guitar)
 * C группой "Denner / Shermann" Michael Denner (guitar)
 
+## Публикации
+
+### 15.02.1999 articles King Diamond: Voodoo&#39;s Lullubye
+
+<p>Вот оно! Свершилось! Старина Кинг со своей группой наконец-таки разродился новым творением под кодовым названием 'VOODOO'. Официальная дата выпуска намечена на 24 февраля, но уже появилось изображение обложки и полный трэк-лист.</p>
+<P> Помимо выпуска своего нетленного творения, Кинг объявил о смене своего драммера, теперь на этом месте восседает некий Джон Люк Херберт (John Luke Herbert), родом из Нового Орлеана. Впервые он в группе появился еще в марте - апреле прошлого года во время Европейского тура и видимо так понравился своим новым коллегам, что они решили оставить его за ударной установкой в качестве постоянного участника. Остальные члены команды остались на своих местах. На новом альбоме все гитарные партии разделены поровну между Энди Ла Роком и Хербом Симонсеном, чего давно уже не было, так как в основном гитарной работой в последнее время заправлял Энди. Сей факт может означать, пожалуй, только одно - Херб прочно обосновался в качестве гитариста и не собирается в ближайшее время сваливать от г-на Петерссона. Неожиданным сюрпризом для всех оказалось участие в записи в качестве специально приглашенного музыканта гитариста такой маленькой группы Pantera по имени Даймбэг Даррэл. Впрочем, гитарист сей настолько неизвестен, что мы даже и не будет подробно останавливаться на его персоне.</>
+<P> Мастер загробной лирики остался верен себя, что, впрочем, можно заметить уже по названию альбома. Однако после прочтения всей истории возникает странное ощущение, что это мы уже где-то слышали. Впрочем, обо все по порядку.</>
+<P> Действие сего, естественно, концептуального альбома происходит в 1932 году в штате Луизиана. В новый особняк приезжает Дэвид Лафайет со своей беременной женой Сарой, у которой помимо всего прочего имеется слепой отец. Не правда ли, где-то это мы уже слышали? Ах, да! 1987 год, альбом 'Abigail'! Там тоже в свой новый особняк приезжает семья, готовящаяся стать родителями. Правда, на этом все сходство и заканчивается. Особняк-то оказался построен в премилом местечке, в котором уже давно царит культ Вуду. Вот тут то и начинается эта веселая история, насыщенная присутствием многих персонажей, в числе которых значится миляга-дворецкий Салем, который и посвящает г-на Лафайета в таинства Вуду...</>
+<P> Вот такую веселую историю приготовил нам на сей раз мастер мистического жанра Ким Бендикс Петерссен, пардон, King Diamond. А с другой стороны, что еще можно было от него ожидать? Во всяком случае, ну никак не песен о лютиках-цветочках или праздниках-флажочках жизни и сердца. Другое дело, что не спускается ли он в мрачные пучины самоплагиата? При таком раскладе это было бы печальным событием, потому что его уже предпоследние работы (при всей моей любви к сему герою металлических подмостков) ну никак, даже при очень большом желании, нельзя назвать гениальными, что очень печально, особенно если вспомнить все его работы 80-хх годов. Тем не менее, тот музыкальный материал, который мне удалось раскопать, я прослушал с большим удовольствием. Что, впрочем, и неудивительно, ведь имея в составе группы такого великолепного гитариста как Энди Ла Рок, трудно выпускать низкопробную продукцию. Впрочем, что это я грешу? Сам Великий и Ужасный является не менее ломовым композитором и музыкантом, что я готов засвидетельствовать в любое время в любом месте.</>
+<P> Кстати, раз уж зашла речь об Энди, то нельзя не упомянуть о его сольном проекте. Да, да, да! Энди Ла Рок пустился во все тяжкие, в смысле, в сольный проект под названием Illwill. В состав группы, кроме самого Энди, который, естественно, завладел в ней гитарой, играют (внимание! Всем приготовится!) Шарль Д'Анжело на басу, Сноуи Шоу на ударных и новый, фактически неизвестный на металлической сцене, вокалист по имени Джонас Дальстром (Jonas Dahlstrom). Альбом, название которого пока скрывается самым тщательным образом, будет выпущен такоже в феврале под собственным лейблом "Diamond Records".</>
+<P> Ладно, вернемся к основному предмету нашего обзора. В поддержку нового альбома группа King Diamond проведет турне, которое в Штатах пройдет в марте-апреле, в Европе в мае-июне, после чего группа надеется еще провести концерты в Японии и Южной Америке. Энди надеется, что группа проведет на гастролях не менее месяцев... Гм, ну не верю я, чтобы за эти ПЯТЬ месяцев не нашлось ни одного денька для того, чтобы посетить хотя бы Москву, я уже не говорю о России, в которой фэнов Даймонда живет гораздо больше, чем во всем остальном мире. (По крайней мере, я так полагаю и я думаю, что я не сильно ошибаюсь). В общем, опять нас обделили... Обидно, однака... Хорошо, что хоть можно добыть его альбомы, хоть на этом спасибо...</>
+<P> Кстати, об альбомах. Небезызвестная фирма Roadrunner Records собирается переиздать первые пять студийных альбомов группы, плюс ко всему концертник 'Abigail Live 1987'. Компактные диски выйдут с переоформленными обложками, пометками и прочими раритетами, да и к тому же они будут выполнены в "золотом" исполнении.</>
+<P> Итак, новый релиз проекта King Diamond фактически уже вышел в свет (опустим тот факт, что официальная дата выхода альбома, как я уже говорил, намечена на 24 февраля, ведь по сути дела к моменту выхода этого номера этот альбом наверняка уже можно будет найти в продаже) и этот альбом порадует своим появлением многочисленную армию поклонников творчества сей далеко не последней группы. По слухам, на подходе и новый альбом проекта Mercyful Fate, так что скоро у нас появится возможность сравнить пути развития двух детищ одного человека, тем более, что в последнее время эти две группы практически идут нога в ногу друг с другом, что и не удивительно, поскольку центральным связующим звеном, несомненно, является уникальный голос вокалиста.</>
+<P> Многих молодых почитателей металлического рока этот альбом может и разочарует, но для истинных ценителей тяжелого звука этот альбом может стать новым эталоном, на который надо ориентироваться. Но Король Алмаз славится своей редкостной огранкой и на этот раз он не подведет своих поклонников. Почти наверняка...</>
+<P> Да, чуть не забыл. Для особо нетерпеливых привожу полный трэк-лист альбома 1998 года группы King Diamond 'Voodoo'.</>
+<P> 1. Louisiana Darkness<br>2. The Loa House<br>3. Life after death<br>4. Voodoo<br>5. A secret<br>6. Salem<br>7. One down two to go<br>8. Sending of death<br>9. Sarahs night<br>10. The exorcist<br>11. Unclean spirits<br>12. Cross of Baron Samedi<br>13. If they only knew<br>14. Aftermath</>
+
+Автор: TiamaT
+
+### 11.04.1999 news 
+
+<p>Destiny's End сыграют несколько концертов в клубах вместе с Sacred Steel и Wardog. Также группа записала два кавера на песни DIO "The Last In Line" и King Diamond "Dressed In White".</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Группа Evergrey заканчивает свой новый альбом "Solitude*Dominance*Tragedy вместе с продюсером Энди Ла Роком (King Diamond). Сообщается об использовании группой арфы, впервые в истории тяжёлой музыки.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>После выхода нового альбома Mercyful Fate "9" в студии появится группа King Diamond. King Diamond сказал, что это будет лучший альбом в его истории, довольно смелое заявление.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Dark Funeral записали в знаменитой студии Abyss четыре кавера на песни Sodom, Slayer, King Diamond и Mayhem. Команда работала с продюсером Томми Тагтгреном, братом знаменитого Питера. Эти кавера увидят (-или) свет в этом году на сборниках, посвящённых вышеперечисленным великим группам.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>King Diamond войдёт в студию в октябре для записи нового альбома.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>King Diamond снял студию для записи новой пластинки с 8 января до 20 февраля.</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 news 
+
+<p>Новый альбом Кинга Даймонда будет называться "House Of God". Это будет первая работа нового басиста Дэвида Харбура.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>В настоящее время практически полностью закончена запись нового альбома King Diamond. Продюсированием пластинки занимаются Andy La Roque и Kol Marshal. Релиз состоится 20-го июля.</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 reviews В последнее время, как я заметил, основной прогресс в развитие музыки вносят только молодые команды
+
+<p>В последнее время, как я заметил, основной прогресс в развитие музыки вносят только молодые команды, пусть даже если их творчество на кого-то похоже, но они его пытаются совершенствовать и подгоняют к современным стандартам. Старые же группы предпочитают почивать на давно заслуженных лаврах играя то же самое, что и всегда. В результате, их новые альбомы мало отличаются от их раннего творчества, нет в них свежести. Ярким примером этой ситуации служат только что вышедшие альбомы некогда королей хэви-метал сцены IRON MAIDEN и KING DIAMOND. Ихые творения слушаются как давно заезженная пластинка. Не чувствуется, что это что-то новенькое. Впечатление, что этот альбом KING DIAMOND ты уже слышал когда-то и где-то. Очень жалко. Есть команды, которые от альбома к альбому играют одно и то же, но пытаются развиваться, привнося хоть маленькие, но нововведения, не изменяюшие стиль в общем, но немного освежающие музыкальный материал. У грандов метал-сцены я этого не заметил. Да им это, похоже, не очень-то и нужно. Их альбомы в любом случае раскупятся, покупателю достаточно громкое имя. Что-то я отвлекся. надо бы и про альбом написать. Хотя что писать? Те, кто внимательно прочитал все написанное выше, поймут, что представляет из себя материал этого альбома. Особенно он понравится всем фэнам KING DIAMOND.</p>
+
+Автор: Dimas
+
+### 13.06.2000 reviews Recently, as I have noticed, the main progress in development of music
+
+<p>Recently, as I have noticed, the main progress in development of music is introduced only by young commands, let even if their creativity on someone is similar, but they it try to improve and customize to the modern standards. The old groups prefer sleep on the for a long time deserved laurels playing same, as always. In an outcome, their new albums differ from a little their early creativity, there is no in them a freshness. A vivid example of this situation are just left albums there is no time of the kings of the scene IRON MAIDEN and KING DIAMOND. Creation of them obey as for a long time worn out plate. It is not felt, that something new. An impression, that this album KING DIAMOND you already heard at one time and somewhere. It is very a pity. There are commands, which from an album to an album play same, but try to develop, introducing though small, but innovation, not changed style in general, but little bit renewing a musical material. At grands of the metal-scene I it have not noticed. Yes it, similar, not so also is necessary for them. Their albums in any case will be bought up, buyer a loud enough name. Something I have distracted. It would be necessary and about an album to write. Though what to write? Those who closely has read all written above, will understand, that is a material of this album. Especially it is pleasant to all fans of KING DIAMOND.</p>
+
+Автор: Dimas
+
+### 30.06.2000 news Новый трибьют King Diamond
+
+<p>Necropolis Records планирует к выпуску трибьют King Diamond. Вот некоторые песни и исполнители: DARK FUNERAL - 'The Trial', DAMNATION - 'Mansion In Darkness', IN AETERNUM - 'Abigail', USURPER - 'Charon', EXHUMED - 'No Presents For Christmas', AURORA - 'Eastman's Cure', DESTINY'S END - 'Dressed In White', ANCIENT - 'Halloween', FALLEN EMPIRE - 'The Exorcist', ENTHRAL - 'The Portrait' and AGGRESSOR - 'Welcome Home'.</p>
+
+Автор: Vit Belov
+
+### 10.10.2000 news Басист Hal Patino вернулся в группу King Diamond
+
+<p> Как сообщили Metal Blade, в группу King Diamond вернулся басист Hal Patino, который отправится с группой в весенне турне по Европе. А затем в Далласе, в мае, начнется запись следующего альбома группы.</p>
+
+Автор: Nybras
+
+### 18.11.2000 news Хорошие новости от Кинга Даймонда
+
+<p> Старина Кинг собирается издать весной следующего года диск под названием "20 Years Ago (A Night of Reheasal)"... Еще за три года до того, как появились Mercyful Fate, Кинг, под влиянием творчества таких групп, как Deep Purple и Kansas, начинал свою карьеру в качестве вокалиста группы под названием Black Rose. И вот, спустя два десятка лет, он решил издать запись одной из репетиций Black Rose, сделаной 30-го сентября 1980-го года. На диск войдут 11 оригинальных трэков + кавер-версия песни группы Golden Earring.</p>
+
+Автор: Nybras
+
+### 17.02.2001 news К нам едет King Diamond!
+
+<p> Короли horror-metal'a King Diamond начнут своё европейское турне с выступления в Санкт-Петербурге 13-го марта. Вместе с ними в северную столицу обещают заехать и норвежские викинги Einherjer.</p>
+
+Автор: Nybras
+
+### 19.03.2001 articles Даймонд в Питере!
+
+<p></p>
+<p> Итак, как многим, вероятно, известно, 13 марта сего года случилось весьма знаменательное событие - Санкт-Петербург посетил с единственным концертом знаменитый метал-маразматик Бенедикс Петерсон, более известный широкой металлической общественности под погонялом Кинг Даймонд. Став очевидцем такого мероприятия, я счел своим долгом написать об этом несколько строк.</p>
+<p> Не буду описывать выступление "Северных Врат", фигугировавших на разогреве, потому как не о них, собственно, речь. После значительного перерыва сцена засветилась призрачным зеленоватым светом, заиграло интро к альбому "Them", на сцене появилась бабушка в инвалидном кресле, и началось - на сцену выбежали музыканты, и зал взорвался вместе с первыми аккордами "Welcome Home", а несколько секунд спустя появился и сам Король, в своем обычном гриме, в цилиндре, в плаще и с микрофонной стойкой, представлявшей собой крест, сооруженный из двух порядочного размера костей.</p>
+<p> Звук, откровенно говоря, был неважный, впрочем другого в сарае, именуемом Малой Ареной ДС "Юбилейный", кажется, и не может быть. Гитары сливались в порядочную кашу, и усилия гитаристов, выпиливавших виртуозные пассажи на своих инструментах, пропали впустую - соло не было слышно вообще. Ла Рокки, порядком постаревший и обстриженный выше чем по плечи, выглядел как-то очень мажорно, и видом и повадками очень напомнил мне Виктора Зинчука. Зато басист Нэл Пэтино, застветившийся на классических пластинках "Them" и, если я не ошибаюсь, "Conspiracy", рубился не по-детски и зажигал на все 100%. Что же касается самого Короля, то - поразительно - его голос звучал в точности как на пластинках, он все вытягивал и непринужденно переходил с одного свего голоса на другой! Честно говоря, такого я все-таки не ожидал!</p>
+<p> Выступление началось с интро и двух песен с альбома "Them", были сыграны - одна с "Voodoo", одна с "Conspiracy", 2 или 3 с "Abigail", 1 или 2 c "The Eye". Как ни странно, с большим воодушевлением публика принимала песни с последнего, и, на мой взгляд, крайне посредственного альбома "House Of God". Их было 4 - "Follow The Wolf", "House Of God", "Black Devil" и "Help". Под конец Даймонд вылез в костюме Деда Мороза, чем изрядно развеселил публику.</p>
+<p> В общем, все получили массу удовольствия, а гражданин Петерсон в очередной раз подтвердил, что есть еще порох в пороховницах, так что рано еще списывать в утиль этого апологета хеви-метал.</p>
+<p></p>
+<p></p>
+
+Автор: Martin
+
+### 11.04.2001 news &quot;Кошмары в девяностых&quot;
+
+<p> Лейбл Massacre Records выпустил CD - The Best Of King Diamond, под названием "Nightmares In The Nineties". Релиз диска состоялся 26 марта. А вот его трек-лист: From The Other Side, Waiting, The Exorcist, Eastmann's Cure, Just A Shadow, Cross of Baron Samedi, Trick Or Treat, One Down Two To Go, Catacomb, Six Feet Under, Lucy Forever, The Trees Have Eyes, LOA House, Peace Of Mind</p>
+
+Автор: Nybras
+
+### 18.05.2001 news Бессонные ночи Короля в Далласе....
+
+<p>Это случилось. Его металлическое Величество King Diamond соизволило снизойти в Далласкую Nomad Recording Studios для записи продолжения альбома 1987 года "Abigail" - названного "Abigail Part II: The Revenge". К нему присоединились давний приятель Andy LaRocque, вернувшийся бассист Hal Pitino, гитарист "Mercyful Fate" - Mike Wead и новый барабанщик Matt Thompson. Продюссировать релиз будут Энди, Кинг и Кол Маршалл. Артворком вновь займется Thomas Holm. Ждать выхода можно будет на Halloween 2001 (с последующим туром в поддержку). Кроме того Кинг Даймонд записал песню "Sweet Dreams" для проекта Дэйва Гролла.</p>
+
+Автор: Yermola
+
+### 18.05.2001 news King Diamond - Sleepless Nights in Dallas!
+
+<p>It's official. Metal royalty King Diamond will enter Nomad Recording Studios Dallas this month to begin recording Abigail Part II: The Revenge, a twisted continuation of his seminal 1987 album Abigail. Joining him will be longtime collaborator/guitarist/producer Andy LaRocque, the returning Hal Pitino on bass and Mercyful Fate guitarist Mike Wead. Rounding out the line up is newcomer Matt Thompson on drums. Production duties will be handled by Andy, King and Kol Marshall. Album art will once again be created by Thomas Holm. Expect a Halloween 2001 release and a North American tour to follow. In related news, King has recorded a song for the forthcoming Dave Grohl metal project entitled "Sweet Dreams". No release date has been set.</p>
+
+Автор: Yermola
+
+### 26.07.2001 news Тебе отмщение и аз воздам...
+
+<p>"KING DIAMOND" завершает запись "Abigail II: The Revenge". Альбом выйдет через Metal Blade Records. Артворк кавера был сделан Трэвисом Смитом, который уже делал онные для NEVERMORE, ICED EARTH, SKINLAB, DRAGONLORD и других. Трек-лист: 01. The Storm 02. Mansion In Sorrow 03. Spirits 04. Slippery Stairs 05. Revenge Is Sweet 06. Dinner For Two</p>
+
+Автор: Yermola
+
+### 26.07.2001 news Abigail II: The Revenge....
+
+<p>KING DIAMOND are due to complete the recording process for their forthcoming studio album, Abigail II: The Revenge, by the beginning of August for a late 2001 release through Metal Blade Records. The album’s cover artwork is presently being finalized by artist Travis Smith, whose previous work includes covers for such acts as NEVERMORE, ICED EARTH, SKINLAB and DRAGONLORD, among many others. Tentative song titles for the album include the following: 01. The Storm 02. Mansion In Sorrow 03. Spirits 04. Slippery Stairs 05. Revenge Is Sweet 06. Dinner For Two. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Abigail 2: The Revenge ...
+
+<p>"KING DIAMOND" опубликовал окончательный трек-лист грядущего "Abigail 2: The Revenge": 01. Spare This Life (intro) 02. The Storm 03. A Mansion In Sorrow 04. Miriam 05. Little One 06. Slippery Stairs 07. The Crypt 08. Broken Glass 09. More Than Pain 10. The Wheelchair 11. Spirits 12. Mommy 13. Sorry Dear (Outro). Дата релиза - январь 2002...</p>
+
+Автор: Yermola
+
+### 26.09.2001 news KING DIAMOND have set the track listing ...
+
+<p>KING DIAMOND have set the track listing for their upcoming Abigail 2: The Revenge CD, which is tentatively due to be issued through Metal Blade Records in January 2002. The song titles are as follows: <br> 01. Spare This Life (intro) <br> 02. The Storm <br> 03. A Mansion In Sorrow <br> 04. Miriam <br> 05. Little One <br> 06. Slippery Stairs <br> 07. The Crypt <br> 08. Broken Glass <br> 09. More Than Pain <br> 10. The Wheelchair <br> 11. Spirits <br> 12. Mommy <br> 13. Sorry Dear (Outro)<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.11.2001 news Шторм...
+
+<p>MP3 песни “The Storm” с еще не вышедшего альбома "KING DIAMOND" - "Abigail Part II: The Revenge" можно послушать <A HREF="http://www.metalblade.com/bands/king_diamond/the_storm.mp3">здесь....</A></p>
+
+Автор: Yermola
+
+### 29.11.2001 news The Storm...
+
+<p>An MP3 file of the track “The Storm”, taken from KING DIAMOND’s upcoming Abigail Part II: The Revenge CD, can be downloaded from <A HREF="http://www.metalblade.com/bands/king_diamond/the_storm.mp3">this location. </A></p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 19.02.2002 reviews Страшилка по-датски.
+
+<p>Рецензировать старого размалеванного дядьку King-а сложно. С одной стороны в его музыке ничего особо не меняется, с другой стороны каждый его новый альбом слушается с интересом. И, прежде всего из-за его незаурядного таланта в написании страшненьких историй. Я вообще считаю, что слушать King Diamond, и не вникать в тексты - это все равно, что держать в руках книгу на китайском, и делать вид, что читаешь. Так и с новым альбомом. Великолепное продолжение истории об Эбигэйл, начатой King-ом в далеком 1987 году. Собственно в музыкальном плане никаких открытий, но в сочетании с текстами и неповторимой вокальной манерой Diamond-а создается атмосфера просмотра очень хорошего мистического триллера. В паре мест я даже вздрогнул (очень удачно вплетены клавиши!!!). Этот альбом из категории "must have" однозначно. Но даже не пробуйте слушать его, не читая тексты, или предварительно не переведя их (у кого с английским нелады). В противном случае вы не получите и половины кайфа от этой действительно замечательной пластинки. Учите языки, товарищи!</p>
+
+Автор: Gonetz
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 23.05.2002 news RUNEMAGICK записывают новый материал...
+
+<p>Продолжатели дела At The Gates - "RUNEMAGICK" завершили запись барабанов в Magick Sound Studio для 40-минут нового материала и в ближайшее время будут накладывать партии гитар. Релиз выйдет в конце лета в виде CD с ограниченным тиражом. Трек-лист: <BR><BR> 01. Revolution Of The Dead<BR> 02. Grand Sabbath Pact<BR> 03. Dark Deeds Of Temptation<BR> 04. Upon The Red Thrones<BR> 05. The Necro Ambassador<BR><BR> Также "RUNEMAGICK" арендовали время в Гетенбергской Los Angered Recording (принадлежащей гитаристу KING DIAMOND - Andy LaRocque) в ноябре для записи полноформатного альбома. Планируемая дата выхода которого - март 2003.</p>
+
+Автор: Yermola
+
+### 23.05.2002 news RUNEMAGICK Record New Material.....
+
+<p>Sweden's RUNEMAGICK have finished tracking the drums for 40 minutes' worth of new material at Magick Sound Studio and will shortly commence laying down guitars for what may or may not be issued as a special limited-edition CD after the summer. Among the tracks currently being recorded are the following: <BR><BR> 01. Revolution Of The Dead<BR> 02. Grand Sabbath Pact<BR> 03. Dark Deeds Of Temptation<BR> 04. Upon The Red Thrones<BR> 05. The Necro Ambassador<BR><BR> In other news, RUNEMAGICK have booked time at Gothenburg, Sweden's Los Angered Recording (owned by KING DIAMOND guitarist Andy LaRocque) during November for the recording of their next "real" album. A March 2003 release is expected.</p>
+
+Автор: Yermola
+
+### 04.10.2002 news Новый альбом KING&#39;a
+
+<p>KING DIAMOND закончил сюжетную линию своего нового творения и готов к его записи. Альбом под названием "The Puppet Master". должен выйти в октябре 2003 года на Metal Blade Records. Если вы хотите ужаса - то ждите новой работы маэстро horror metal.</p>
+
+Автор: Dimas
+
+### 20.06.2003 news Новости от KING DIAMOND
+
+<p>Как известно, осенью на Metal Blade Records ожидается выход нового творения маэстро KING DIAMOND. Между тем, определился трэк-лист альбома. В него войдут:</p>
+<p> 1. Midnight <BR> 2. The Puppet Master <BR> 3. Magic <BR> 4. Emerencia <BR> 5. Blue Eyes <BR> 6. The Ritual <BR> 7. No More Me <BR> 8. Blood To Walk <BR> 9. Darkness <BR> 10. So Sad <BR> 11. Christmas<BR> 12. Living Dead</p>
+
+Автор: Dimas
+
+### 12.07.2003 news Roadrunner Records восстанавливает корни
+
+<p>Roadrunner Records планирует беспрецедентную акцию под названием "The Roots Of Roadrunner". Это будет выпуск серии дисков "The Best Of" от различных известных команд с лэйбла с аннотацией от известных музыкантов, являющихся поклонниками этих коллективов. Выход первых семи дисков из серии запланирован на 22 сентября 2003 года. Среди них:</p>
+<p> "Best Of DEICIDE" <BR> Аннотации от Joey Jordison (SLIPKNOT)</p>
+<p> 1. Dead By Dawn <BR> 2. Carnage In The Temple Of The Damned <BR> 3. Lunatic Of God's Creation<BR> 4. Sacrificial Suicide <BR> 5. Crucifixation <BR> 6. Satan Spawn, The Caco-Daemon <BR> 7. Trifixion <BR> 8. In Hell I Burn <BR> 9. Dead But Dreaming <BR> 10. Once Upon The Cross <BR> 11. They Are The Children Of The Underworld <BR> 12. When Satan Rules His World <BR> 13. Trick Or Betrayed <BR> 14. Behind The Light Thou Shall Rise <BR> 15. Serpents Of The Light <BR> 16. Bastard Of Christ <BR> 17. Blame It On God <BR> 18. This Is Hell We're In <BR> 19. Bible Basher <BR> 20. Standing In The Flames</p>
+<p> "Best Of BRUJERIA" <BR> Аннотация от Hank Williams III (SUPERJOINT RITUAL)</p>
+<p> 1. Pura De Venta <BR> 2. Leyes Narcos <BR> 3. Matando Gueros <BR> 4. Castigo Del Brujo <BR> 5. Sacrificio <BR> 6. Padre Nuestro <BR> 7. Raza Odida (Pito Wilson) <BR> 8. La Ley De Plomo <BR> 9. Colas De Rata <BR> 10. Hechando Chingasos (Grenudo Locos II) <BR> 11. La Migra (Cruza La Frontera II) <BR> 12. Consejos Narcos <BR> 13. Brujerizmo <BR> 14. Vayan Sin Miedo <BR> 15. Pititis, Te Invoco <BR> 16. Laboratorio Cristalitos <BR> 17. Division Del Norte <BR> 18. Anti-Castro <BR> 19. El Desmadre <BR> 20. Ritmos Satanicos</p>
+<p> "Best Of LIFE OF AGONY" <BR> Аннотация от TBC</p>
+<p> 1. This Time<BR> 2. River Runs Red <BR> 3. Through And Through <BR> 4. Bad Seed <BR> 5. Underground<BR> 6. Here I Am, Here I Stay <BR> 7. Damned If I Do <BR> 8. Lost At 22 <BR> 9. Other Side Of The River <BR> 10. Let's Pretend <BR> 11. How It Would Be <BR> 12. Tangerine <BR> 13. My Mind Is Dangerous <BR> 14. Weeds <BR> 15. Angry Tree <BR> 16. Honeycomb</p>
+<p> "Best Of KING DIAMOND" <BR> Аннотация от Dave Ellefson (ex-MEGADETH)</p>
+<p> 1. The Candle <BR> 2. Charon <BR> 3. Halloween <BR> 4. No Presents For Christmas <BR> 5. Arrival <BR> 6. A Mansion In Darkness <BR> 7. The Family Ghost <BR> 8. Abigail <BR> 9. Welcome Home <BR> 10. The Invisible Guests <BR> 11. Tea <BR> 12. At The Graves <BR> 13. Sleepless Nights <BR> 14. Eye Of The Witch <BR> 15. Burn</p>
+<p> "Best Of MERCYFUL FATE" <BR> Аннотация от Mark Hunter (CHIMAIRA)</p>
+<p> 1. Doomed By The Living Dead <BR> 2. A Corpse Without Soul <BR> 3. Nuns Have No Fun <BR> 4. Evil <BR> 5. Curse Of The Pharaohs <BR> 6. Into The Coven <BR> 7. Black Funeral <BR> 8. Satan's Fall<BR> 9. A Dangerous Meeting <BR> 10. Desecration Of Souls <BR> 11. Gypsy<BR> 12. Come To The Sabbath <BR> 13. Burning The Cross <BR> 14. Return Of The Vampire</p>
+<p> "Best Of MALEVOLENT CREATION" <BR> Аннотация от Deron Miller (CKY)</p>
+<p> 1. Eve Of The Apocalypse <BR> 2. Sacrificial Annihilation <BR> 3. Monster<BR> 4. Dominated Resurgency <BR> 5. Multiple Stab Wounds <BR> 6. Genetic Affliction (demo version) <BR> 7. Geared For Gain <BR> 8. Slaughter Of Innocence <BR> 9. Premature Burial <BR> 10. Decadence Within <BR> 11. The Way Of All Flesh <BR> 12. Iced <BR> 13. Carnivorous Misgivings <BR> 14. Remnants Of Withered Decay <BR> 15. The Coldest Survive <BR> 16. Thou Shall Kill! <BR> 17. Mindlock <BR> 18. Piece By Piece</p>
+<p> "Best Of MADBALL" <BR> Аннотация от Jamey Jasta (HATEBREED) и Roger Miret (AGNOSTIC FRONT)</p>
+<p> 1. Set It Off <BR> 2. New York City <BR> 3. It's Time <BR> 4. Across Your Face <BR> 5. Down By Law <BR> 6. Smell The Bacon (What's With You?) <BR> 7. Friend or Foe<BR> 8. Demonstrating My Style <BR> 9. Unity <BR> 10. Live Or Die <BR> 11. Pride (Times Are Changing) <BR> 12. Hardcore Still Lives! <BR> 13. Nuestra Familia <BR> 14. Ball of Destruction <BR> 15. Look My Way <BR> 16. Moment of Truth <BR> 17. Waste of Time <BR> 18. Been There, Done That <BR> 19. Talkin' To Myself <BR> 20. Fools Die</p>
+
+Автор: Dimas
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 18.09.2003 news Кровавая прогулка Кинга
+
+<P>Напоминаем всем, что 21 октября на <B>Metal Blade Records </B>выходит новый альбом короля horror metal <B>KING DIAMOND </B>под названием <B>"The Puppet Master". </B>Релиз будет содержать бонус-диск на котором будет изложена история создания альбома. В альбом войдут следующие вещи:<IMG height=250 alt="" hspace=20 src="/images/news_rus/2003.09/4864.jpg" width=250 align="left" vspace=20 border=0></P>
+<P>1. <B>Midnight</B><BR>2. <B>The Puppet Master</B><BR>3. <B>Magic</B><BR>4. <B>Emerencia</B><BR>5. <B>Blue Eyes</B><BR>6. <B>The Ritual</B><BR>7. <B>No More Me</B><BR>8. <B>Blood To Walk</B><BR>9. <B>Darkness</B><BR>10. <B>So Sad</B><BR>11. <B>Christmas</B></P>
+<P>12. <B>Living Dead</B></P>
+<P>Уже сейчас на нашем сайте можно послушать одну из песен с нового альбома.</P>
+<P><BR></P>
+Автор: Dimas
+
+### 03.12.2003 news King Diamond - первый в ноябре...
+
+<P><B>KING DIAMOND</B>&nbsp;со своим новейшим альбомом <B>'Puppet Master'</B>, в лицензионной версии <B>ART-MUSIC GROUP</B>, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С небольшим отрывом отстали&nbsp;<B>STRATOVARIUS 'Elements, Part II' (Irond)</B> и&nbsp;ещё одна новинка от <B>ART-MUSIC GROUP - CORNERSTONE 'Once Upon Our Yersterdays</B>'. В первую десятку вошли:</P>
+<TABLE cellSpacing=0 cellPadding=2 width=649 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="39%" height=17><B>KING DIAMOND</B></TD>
+<TD align=middle width="51%" height=17><B>THE PUPPET MASTER</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="51%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="11%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>CORNERSTONE</B></TD>
+<TD align=middle width="51%" height=17><B>ONCE UPON OUR YESTERDAYS</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>REBELLION</B></TD>
+<TD align=middle width="51%" height=17><B>BORN A REBEL</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>BONEY NEM</B></TD>
+<TD align=middle width="51%" height=17><B>ROMANTIC COLLECTION</B></TD>
+<TD align=middle width="11%" height=17><B>Эм и Нем</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>STILLIFE</B></TD>
+<TD align=middle width="51%" height=17><B>REMEMBRANCE</B></TD>
+<TD align=middle width="11%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>BONFIRE</B></TD>
+<TD align=middle width="51%" height=17><B>FREE</B></TD>
+<TD align=middle width="11%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>RAGE</B></TD>
+<TD align=middle width="51%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="11%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>MELOTRON</B></TD>
+<TD align=middle width="51%" height=17><B>STERNENSTAUB</B></TD>
+<TD align=middle width="11%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="39%" height=17><B>FALCONER</B></TD>
+<TD align=middle width="51%" height=17><B>SCEPTRE OF DECEPTION</B></TD>
+<TD align=middle width="11%" height=17><B>Fono</B></TD></TR></TBODY></TABLE>
+<P>Любой из этих дисков вы легко можете заказать в нашем <A href="/ru/shop">магазине.</A></P>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.04.2004 news KING DIAMOND выпустят концертный альбом
+
+<P><B>King Diamond</B> и <B>Andy LaRocque</B> будут микшировать новый концертный альбом <B>KING DIAMOND</B> в студии <B>Los Angered</B>&nbsp;в Гетеборге. Пластинка выйдет в сентябре-октябре на <B>Massacre</B>.</P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 10.06.2004 news Концертник KING DIAMOND
+
+<P>Как уже сообщалось, в этом году выходит концертный альбом <B>KING DIAMOND</B> <B>"Deadly Lullabies Live". </B>Трэк-лист:</P>
+<P>01. <B>Funeral</B> <BR>02. <B>A Mansion In Darkness</B> <BR>03. <B>The Family Ghost</B> <BR>04. <B>Black Horsemen</B> <BR>05. <B>Spare This Life</B> <BR>06. <B>Mansion In Sorrow</B> <BR>07. <B>Spirits</B> <BR>08. <B>Sorry Dear</B> <BR>09. <B>Eye Of The Witch</B> <BR>10. <B>Sleepless Nights</B> <BR>11. <B>The Puppet Master</B> <BR>12. <B>Blood To Walk</B> <BR>13. <B>So Sad</B> <BR>14. <B>Living Dead</B> "Outro" <BR>15. <B>Welcome Home</B> <BR>16. <B>The Invisible Guests</B> <BR>17. <B>Burn</B> <BR>18. "Introductions" <BR>19. <B>Halloween</B> <BR>20. <B>No Presents For Christmas</B> </P>
+Автор: Vit Belov
+
+### 19.06.2004 news Tuska Open Air in Finland
+
+The seventh annual Tuska Open Air Metal Festival has now confirmed its first artists for the 2004 festival. <BR><BR>The headliner for Saturday, the 17th of July, will be Nightwish, who will release their much-anticipated new album, "Once" in June. Nightwish will be mainly touring Europe and the United States next summer and their Tuska-performance is going to be one of their three finnish shows.<BR><BR>Another headliner at Tuska during 16.-18.7.2004 will be the legendary King Diamond. This pioneer of black metal has been touring the world for almost three decades, sold millions of records and inspired four generations of metalheads. Also appearing at Kaisaniemi Park are swedish melodic-deathmetal groups Soilwork and Dark Tranquility and german thrashers Dew-Scented.<BR><BR>Besides Nightwish, Tuska-festival will once again present the hottest finnish metal acts. During the weekend, performances by Impaled Nazarene, Sonata Arctica, Sinergy, Suburban Tribe, Mokoma, Kotiteollisuus and Timo Rautiainen & Trio Niskalaukaus will be taking place. The new generation of finnish metal will be represented by the highly acclaimed Swallow the Sun, Diablo, Machine Men, Kilpi and Twilightning.<BR><BR>Over the course of three days more than 30 bands will be appearing on three different stages. <BR><BR>In addition to the festival itself, the evening-clubs will entertain the festival crowd from Thursday through Sunday on four different locations. More than 30 up-and-coming acts will be performing in the evening-clubs, styles ranging from deathmetal to goth, industrial and cover-material.<BR><BR>Tickets for Tuska 2004 will go on sale in May through Tiketti (<A href="http://www.tiketti.fi/"><U>www.tiketti.fi</U></A>), Lippupalvelu (<A href="http://www.lippupalvelu.fi/"><U>www.lippupalvelu.fi</U></A>) and the new addition of Menolippu (<A href="http://www.menolippu.fi/"><U>www.menolippu.fi</U></A>). Tickets will also be available at selected record stores. Tuska 2004 is an all-ages festival.
+Автор: Vit Belov
+
+### 03.12.2004 reviews Смертельные колыбельные
+
+<DIV>Первый официальный живой альбом маэстро ужасов бубного Короля. Записан он был в ходе североамериканского турне в октябре-ноябре 2003 года. Сразу радует, что ветераны мировой сцены не уподобляются разным молодым коллективам и не делают свою живую работу студийным вариантом концерта. Да и ни к чему им это. Здесь собрались&nbsp;достаточно опытные музыканты. В студии надо не переписывать партии, а заниматься микшированием и сведением. Кстати, здесь к студийной работе никаких нареканий. Все звучит очень цельно, без разрывов, создавая впечатление того, что все записано на одном концерте, а не на нескольких. И вообще все звучит очень реалистично. Подбор песенок, на мой взгляд, конечно, не самый лучший. Но. вероятно того требовала концепция концертного выступления. Ведь любой альбом Даймонда - это не просто набор песенок, а идеологическое выстраивание концепции в цепочку. Тем не менее, это не концерт, а сплошное удовольствие. Да и самому Даймонду очень понравилось то, как его встречает публика. Почти весь второй диск, между песнями слышатся его биг сенксы зрителям и его признания в том, что он присутствует на незабываемом, невероятном, замечательном шоу, что такого он никогда не видел и он очень рад, и снова на зрителей сыпятся обильные спасибы. Вне всякого сомнения, данный альбом - превосходный подарок всем фэнам великого и ужасного во всех его ипостасях. Удовольствие от прослушивания сего релиза им гарантировано.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>P.S. Вот только рассматривая фотки в буклете, понимаешь, как же не хватает этому альбому видеоряда! Такие вещи нужно на двд выпускать, а данный аудиодвойник бонусом впридачу.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">Art-Music</A></P></DIV>
+Автор: Dimas
+
+### 27.01.2006 news King Diamond выступит в России!
+
+<P>Легендарный "черный сказочник" <STRONG>Кинг Даймонд (King Diamond)</STRONG> впервые посетит Москву. В ходе своего европейского тура 49-летний музыкант и его группа запланировали единственное московское шоу: 5 мая 2006 года в ДК им. Горбунова.</P>
+Автор: Vit Belov
+
+### 15.02.2006 news KING DIAMOND анонсировали запись
+
+<P>В ближайшее время <STRONG>KING DIAMOND</STRONG> войдут в <STRONG>Los Angered Recording</STRONG> для записи нового альбома, которая продолжится и в августе. Дата релиза пока не сообщается.</P>
+Автор: Vit Belov
+
+### 01.03.2006 articles KING DIAMOND в Москве, пресс-релиз
+
+<P>5 мая 2006 г.<BR>«King Diamond»</P>
+<P>King Diamond выступит в России!</P>
+<P>Легендарный "черный сказочник" Кинг Даймонд (King Diamond) впервые посетит Москву. В ходе своего европейского тура 49-летний музыкант и его группа запланировали единственное московское шоу: 5 мая 2006 года в ДК им. Горбунова. <BR>&nbsp;<BR>KING DIAMOND прославленный мистическими сюжетами своих альбомов, частой сменой артистических масок и, конечно, своим уникальным музыкальным театрализованным шоу, всякий раз построенном на захватывающих, будоражащих воображение, сценариях, вновь посетит Россию! <BR>KING DIAMOND поистине один из самых выдающихся личностей на современной Heavy Metal сцене. Именами его проектов, MERCYFUL FATE и KING DIAMOND, озаглавлены одни из самых важных страниц истории Heavy Metal последних десятилетий. С 1986 года KING регулярно выпускает свои классические Horror Metal альбомы, которые, из-за их впечатляющих сюжетных линий и исключительного музыкального разнообразия, всякий раз становились большими событиями в музыкальной жизни во всём мире. <BR>Итак, все, кто любят KING DIAMOND и MERCYFUL FATE, получат очень редкую возможность увидеть яркое действо, способное надолго остаться в памяти, и услышать лучшие произведения КИНГА на сцене ДК Горбунова 5 мая 2006 года. <BR>КИНГ не гастролировал по Европе с 2001 года и уже выпустил 3 альбома с тех пор. Новый альбом Deadly Lullabys "Live", первый официальный концертный альбом KING DIAMOND, и большой Европейский тур 2006 - особенно знаменательные и долгожданные события в творческой биографии КИНГА! ТАКОГО ВЫ ЕЩЕ НЕ ВИДЕЛИ!!! Да здравствует КОРОЛЬ! <BR>&nbsp;<BR>KING DIAMOND<BR>KING DIAMOND: Lead and backing vocals<BR>Andy LaRocque: Guitars<BR>Mike Wead: Guitars<BR>Hal Patino: Bass<BR>Matt Thompson: Drums</P>
+<P>Начало концерта в 19:00, по вопросам аккредитации, а также эксклюзивных интервью и фотосессий обращаться к Дроздовой Дине по телефону 158-44-70 или <A href="mailto:pr@cdk.ru">pr@cdk.ru</A></P>
+Автор: Vit Belov
+
+### 01.05.2006 news KING DIAMOND в Москве
+
+<CENTER><IMG height=284 src="/images/shows_rus/2006.03/10106.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 14.03.2007 news Новый альбом KING DIAMOND
+
+<P>26 июня на<STRONG> Massacre</STRONG> выходит новый альбом <STRONG>KING DIAMOND "Gimme Your Soul... Please</STRONG>". Трэк-лист:</P>
+<P>1. <STRONG>The Dead <BR></STRONG>2. <STRONG>Never Ending Hill<BR></STRONG>3. <STRONG>Is Anybody Here?<BR></STRONG>4. <STRONG>Black Of Night<BR></STRONG>5. <STRONG>Mirror, Mirror<BR></STRONG>6. <STRONG>The Cellar <BR></STRONG>7. <STRONG>Pictures In Red<BR></STRONG>8. <STRONG>Gimme Your Soul</STRONG><BR>9. <STRONG>The Floating Head<BR></STRONG>10. <STRONG>Cold As Ice<BR></STRONG>11. <STRONG>Shapes Of Black<BR></STRONG>12. <STRONG>The Girl In The Bloody Dress<BR></STRONG>13. <STRONG>Moving On</STRONG></P>
+Автор: Vit Belov
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 05.01.2009 news KING DIAMOND рассказал о молодой жене
+
+<P><IMG height=275 alt="" hspace=0 src="/images/news_rus/2009.01/13290.jpg" width=300 align=left border=5>В интервью датскому сайту <STRONG>BT.dk KING DIAMOND</STRONG> рассказал о своём союзе с 24-летней женой из Венгрии <STRONG>Livia Zita. </STRONG>Музыкант, которому уже 52, познакомился с будущей супругой, когда давал интервью венгерскому изданию <STRONG>Metal Hammer</STRONG>. <STRONG>Kim Petersen</STRONG> сделал своей супруге сомнительный комплимент:</P>
+<P>"<EM>Мы оба прошли через трудные времена. Мы сошлись на этом, я попросил прислать её свою фотографию. Когда она сообщила мне, что ей 24 года, я просто не мог поверить. </EM></P>
+<P><EM>Наша музыка становится всё тяжелее, но любовь сделала меня мягче внутри. Каждый день с женой для меня как постоянное Рождество</EM>".</P>
+<P>Корреспондент не забыл спросить и госпожу<STRONG> Zita</STRONG>. Как она называет своего мужа? <STRONG>Kim</STRONG>? <STRONG>King</STRONG>? <STRONG>Prince Of Darkness</STRONG>?</P>
+<P>"<EM>Я называю его&nbsp;"baby" (малыш). Он для меня не рок-звезда, он просто мой "baby</EM>".</P>
+<P><STRONG>King</STRONG> и <STRONG>Livia </STRONG>не просто муж и жена, они ещё и деловые партнёры. Она записывает бэк-вокалы для альбомов<STRONG> KING DIAMOND</STRONG> и ездит с группой в тур. Также супруги вместе работают над новым материалом (???) и компонуют новое DVD со старыми материалами <STRONG>KING DIAMOND</STRONG> и <STRONG>MERCYFUL FATE</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 07.01.2009 news King Diamond опровергает
+
+<P><STRONG><IMG height=310 alt="" hspace=0 src="/images/news_rus/2009.01/13311.jpg" width=281 align=left border=5>King Diamond</STRONG> выступил с опровержением некоторых утверждений, приписанных ему в интервью датскому сайту<STRONG> BT.dk</STRONG>. Выдержки из этой статьи опубликовали многие издания в сети, включая наш сайт.</P>
+<P>"<EM>Во-первых, мы с Livia не собираемся заводить детей в ближайшее время. Это выдумка журналиста. Также мы не ожидаем с нетерпением Рождества каждый год, журналист подобрал не те слова. Та ёлка, что видна на фото, единственный рождественский атрибут в доме</EM>".</P>
+<P>К сожалению, <STRONG>King</STRONG> опроверг и слухи о скором релизе альбома <STRONG>MERCYFUL FATE</STRONG>. Настоящий статус группы не изменился. Музыканты даже не начали сочинять материал для нового альбома. Для того, чтобы это случилось <STRONG>MERCYFUL FATE</STRONG> должны подписать контракт на запись.</P>
+<P>Что касается будущих планов<STRONG> KING DIAMOND</STRONG>. Знаменитый вокалист занят подготовкой двух двойных DVD, с закулисными съёмками старых <STRONG>KING DIAMOND</STRONG> и <STRONG>MERCYFUL FATE</STRONG>. Также гитарист группы и продюсер <STRONG>Andy LaRoque</STRONG> закончил ремастеринг <STRONG>'The Graveyard'</STRONG>, <B>'Spider's Lullabye'</B>, <B>'Voodoo' </B>и <B>'House of God'.</B></P>
+Автор: Vit Belov
+
+### 12.03.2009 news Подробности о DVD MERCYFUL FATE и KING DIAMOND
+
+<P>Мы уже сообщали, что <STRONG>King Diamond</STRONG> занят подготовкой двух DVD <STRONG>MERCYFUL FATE</STRONG> и<STRONG> KING DIAMOND</STRONG> с архивными концертными записями. Стали известны концерты, которые попадут на эти издания:</P>
+<P>"<B itxtvisited="1">MERCYFUL FATE</B> DVD:<BR itxtvisited="1">* Copenhagen 1982 with <B itxtvisited="1">Benny Petersen</B><BR itxtvisited="1">* Amsterdam Paradiso 1984<BR itxtvisited="1">* Copenhagen 1984<BR itxtvisited="1">* Reunion <B itxtvisited="1">MF</B> 1993<BR itxtvisited="1">* <B itxtvisited="1">Roskilde Festival</B> 1994<BR itxtvisited="1">* Copenhagen 1995<BR itxtvisited="1"><BR itxtvisited="1">"<B itxtvisited="1">KING DIAMOND</B> DVD:<BR itxtvisited="1">* Washington 1986<BR itxtvisited="1">* 1987 supporting <B itxtvisited="1">MOTORHEAD</B><BR itxtvisited="1">* Show footage 1989 USA + backstage footage<BR itxtvisited="1">* Full 1990 concert Spain Euro <B itxtvisited="1">Conspiracy</B> tour<BR itxtvisited="1">* Behind the scenes 1990 <B itxtvisited="1">Conspiracy</B><BR itxtvisited="1">* Copenhagen concert in the park 1990 with 5 cameras</P>
+Автор: Vit Belov
+
+### 20.07.2010 news Кроссовки от KING DIAMOND и MERCYFUL FATE
+
+<P>Фирма "<STRONG>C1rca Shoes</STRONG>" выпустили кроссовки с дизайном&nbsp;обложек альбомов&nbsp;<STRONG>KING DIAMOND</STRONG> и <B itxtvisited="1">MERCYFUL FATE</B>&nbsp;&nbsp;(два от каждой группы). Заказать их можно по следующему адресу: </P>
+<P><A href="http://www.surfskatesupply.com/footwear-circa-combat-c-395_461.html">http://www.surfskatesupply.com/footwear-circa-combat-c-395_461.html</A></P>
+<P><IMG border=0 hspace=0 alt="" align=middle src="/images/news_rus/2010.07/16924.jpg" width=450 height=347></P>
+Автор: Headcrusher
+
+### 12.12.2010 news King Diamond перенёс операцию на сердце
+
+<P><STRONG><IMG height=294 alt="" hspace=0 src="/images/news_rus/2010.12/17804.jpg" width=325 align=right border=0>Kim Bendix Petersen, </STRONG>известный металической общественности как <STRONG>King Diamond</STRONG>, перенёс операцию на сердце. 29 ноября музыкант был госпитализирован с болями в груди. Диагностика показала, что у <STRONG>King</STRONG> ишемическая болезнь сердца. </P>
+<P>Была сделана операция тройного шунтирования. Пациент уже восстанавливается после хирургического вмешательства и чувствует себя хорошо. В настоящее время<STRONG> King Diamond</STRONG> приостановил любую музыкальную деятельность до полного выздоровления. DVD <STRONG>KING DIAMOND</STRONG> и <STRONG>MERCYFUL FATE</STRONG> фэнам придётся ещё подождать.</P>
+Автор: Vit Belov
+
+### 27.05.2011 news Гитарист KING DIAMOND работает с Tony Martin
+
+<P>Гитарист<STRONG> KING DIAMOND</STRONG> <STRONG>Andy La Rocque </STRONG>сочиняет материал для нового проекта <STRONG>BLACK</STRONG>, в котором он будет работать с бывшим певцом <STRONG>BLACK SABBATH Tony Martin</STRONG> и бывшим басистом <STRONG>HAMMERFALL</STRONG> <STRONG>Magnus Rosen. </STRONG>Закончить запись новой музыки<STRONG> Andy</STRONG> планирует к концу лета/началу осени.</P>
+<P><center><IMG height=253 src="/images/news_rus/2011.05/19525.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 15.05.2012 news Участники KING DIAMOND на дебюте MARYANN COTTON
+
+<P>Четыре участника<STRONG> KING DIAMOND</STRONG>, записывавшие альбом 1990 года "<STRONG>The Eye</STRONG>", гитаристы <STRONG>Andy La Rocque</STRONG>&nbsp;и <B itxtHarvested="0" itxtNodeId="78">Pete Blakk</B>,&nbsp;басист <B itxtHarvested="0" itxtNodeId="77">Hal Patino</B> и барабанщик <STRONG>Snowy Shaw </STRONG>поучаствовали в записи дебютного альбома <STRONG>MARYANN COTTON</STRONG> <STRONG>"Free Falling Angels". </STRONG>Под этим псевдонимом скрывается сын <STRONG>Hal Patino</STRONG> <STRONG>Jackie Patino. </STRONG>Альбом выйдет 15 июня на <STRONG>Pure Steel Records</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="64">Heaven Send For Me</B><BR itxtNodeId="63">02. <B itxtHarvested="0" itxtNodeId="62">Never "Waste" Land</B><BR itxtNodeId="61">03. <B itxtHarvested="0" itxtNodeId="60">Crazy</B><BR itxtNodeId="59">04. <B itxtHarvested="0" itxtNodeId="58">Get It On</B><BR itxtNodeId="57">05. <B itxtHarvested="0" itxtNodeId="56">Free Falling Angels</B><BR itxtNodeId="55">06. <B itxtHarvested="0" itxtNodeId="54">Nighttrain To Paris</B><BR itxtNodeId="53">07. <B itxtHarvested="0" itxtNodeId="52">Die In Britain</B><BR itxtNodeId="51">08. <B itxtHarvested="0" itxtNodeId="50">Miss Misery</B><BR itxtNodeId="49">09. <B itxtHarvested="0" itxtNodeId="48">Shock Me</B><BR itxtNodeId="47">10. <B itxtHarvested="0" itxtNodeId="46">The One</B><BR itxtNodeId="45">11. <B itxtHarvested="0" itxtNodeId="44">"Maryann"</B></P>
+<P><STRONG></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/W90wU3ktNA8?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 06.08.2015 news KING DIAMOND сыграют &quot;Abigail&quot; полностью
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>KING DIAMOND</STRONG> анонсировала северо-американский тур, в котором будет исполнять свой альбом <STRONG>"Abigail"</STRONG> (1987) целиком.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В качестве команды, открывающей их выступления, выступят трэшеры <STRONG>EXODUS</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый концерт этого тура состоится 29 октября в городе Денвер.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.08/28210.jpg" width=400 height=533>&nbsp;</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Фотографии с концерта King Diamond-a в Питере

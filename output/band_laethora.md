@@ -8,6 +8,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.09.2005 news LAETHORA - сайд-проект Niklas Sundin
+
+<P><STRONG>LAETHORA</STRONG> - новый проект участников <STRONG>DARK TRANQUILLITY</STRONG> и <STRONG>THE PROVENANCE</STRONG>. Уже готов дебютный альбом "<STRONG>March Of The Parasite</STRONG>". На сайте группы <A href="http://www.laethora.com/">http://www.laethora.com/</A>&nbsp;можно скачать некоторые сэмплы. Состав группы: <STRONG>Jonatan Nordenstam</STRONG> (вокал/бас), <STRONG>Joakim Rosen</STRONG> (гитара), <STRONG>Niklas Sundin</STRONG> (гитара) и <STRONG>Joel Lindell</STRONG> (барабаны).</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

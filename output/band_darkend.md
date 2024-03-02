@@ -37,6 +37,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2012 news Третий альбом DARK END
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=399 alt="" hspace=0 src="/images/news_rus/2012.02/22930.jpg" width=400 align=right border=0>Новый альбом итальянцев <STRONG>DARK END "Grand Guignol, Book 1"</STRONG> выйдет до конца этого месяца. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Descent/Ascent (II Movement)<BR></STRONG>2. <STRONG>Aeinsoph: Flashforward To Obscurity</STRONG><BR>3. <STRONG>Doom: And Then Death Scythed</STRONG><BR>4. <STRONG>Spiritism: The Funereal Passage</STRONG><BR>5. <STRONG>Bereavement - A Multitude In Martyrized Flesh</STRONG><BR>6. <STRONG>Grief: Along Our Divine Pathway<BR></STRONG>7. <STRONG>Bleakness: Of Secrecy, Haste And Shattered Crystals<BR></STRONG>8. <STRONG>Pest: Fierce Massive Slaying Grandeur</STRONG><BR>9. <STRONG>Decrepitude: One Last Laugh Beside Your Agonies<BR></STRONG>10. <STRONG>Dawn: Black Sun Rises</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.darkend.it/">www.darkend.it</A><BR><A href="http://www.facebook.com/darkendofficial">www.facebook.com/darkendofficial</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

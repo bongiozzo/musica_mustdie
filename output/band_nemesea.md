@@ -72,6 +72,34 @@ Lasse Dellbrugge – Keyboards/ Electronics
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.09.2005 reviews Уже следующий альбом принесёт нам новую звезду
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Начну эту рецензию не с описания хорошего дебютного альбома "<STRONG>Mana</STRONG>" от голландской группы <STRONG>NEMESEA</STRONG>, а с небольшой ремарки в адрес выпускающего лэйбла - <STRONG>Ebony Tears</STRONG>. Этот <STRONG>Ebony</STRONG> образовался из почившего <STRONG>Cold&nbsp;Blood Industries</STRONG>, который пытался заниматься всякими death, thrash-metal - ничего не получилось. <STRONG>Ebony Tears</STRONG>, как заметно из его названия, пытается навариться на разнообразной готике. Нет, я не против ремесленничества, надо же фэнам чего-то покупать, а нам чего-то рецензировать, но до этой пластинки мне казалось, что у <STRONG>Tears</STRONG> всё "пальцем в небо".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот кажется, c <STRONG>NEMESEA</STRONG> мы имеем потенциальный хит. Группа уже ищет новый лэйбл для второй работы, поэтому<STRONG> Ebony tears</STRONG> начнут искать других:) Женский вокал, очень неплохой, местами натужный, но достойно выпутывающийся из всех сложностей, симфо-аранжировки, хоровые зарисовки a-la <STRONG>THERION</STRONG>. Уже "<STRONG>Mana</STRONG>" претендовала бы на многое, если бы не два "но"... Первое - чисто субъективная нехватка запоминающихся мелодий. Вокалистка всё размазывает и размазывает, как на последнем<STRONG> AFTER FOREVER</STRONG>.&nbsp;Это ладно. А вот второе - это явная скудость бюджета. От этого страдает упаковка, которая необходима поклонникам подобного gothic-metal.&nbsp;Ничего, уже на следующем альбоме ребята получат деньги&nbsp;и убьют рынок наповал.&nbsp;"<STRONG>Mana</STRONG>" уже много лучше гремящей повсюду <STRONG>XANDRIA</STRONG>, например.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Советую обратить внимание. Уже следующий альбом принесёт нам новую звезду.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен CD-Maximum</FONT></P>
+Автор: Vit Belov
+
+### 15.09.2011 news Новый альбом NEMESEA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.09/21090.jpg" width=475 align=right border=0>Третий альбом голландской группы с женским вокалом <STRONG>NEMESEA</STRONG> <STRONG>"The Quiet Resistance" </STRONG>выйдет 21 ноября на<STRONG> Napalm Records</STRONG>. Спродюсировал и свёл новую работу <STRONG>Joost van den Broek (AFTER FOREVER</STRONG>, <STRONG>AYREON</STRONG>, <STRONG>SUN CAGED</STRONG>, <STRONG>VANDENBERG)</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>The Quiet Resistance</B><BR>02. <B>Caught In The Middle</B><BR>03. <B>Afterlife</B><BR>04. <B>Whenever</B><BR>05. <B>If You Could</B><BR>06. <B>High Enough</B><BR>07. <B>Say</B><BR>08. <B>It's Over</B><BR>09. <B>I Live</B><BR>10. <B>Stay With Me</B><BR>11. <B>Rush</B><BR>12. <B>Release Me</B><BR>13. <B>2012</B><BR>14. <B>Allein</B> (bonus track)</P>
+<P>Больше информации на: <A href="http://www.nemesea.com/">http://www.nemesea.com/</A></P>
+Автор: Vit Belov
+
+### 12.11.2011 news Видео NEMESEA
+
+<P>Новый клип свежего приобретения <STRONG>Napalm Records NEMESEA</STRONG> можно посмотреть ниже. Трек "<STRONG>Afterlife</STRONG>" взят с выходящего альбома голландцев <STRONG>"The Quiet Resistance</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/icdJDFFCc1Q?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/icdJDFFCc1Q?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

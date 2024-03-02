@@ -555,6 +555,2729 @@ Disc 2
 * C группой "At Vance" Mark Cross (Drums)
 * C группой "Nightfall" Mark Cross (Drums)
 
+## Публикации
+
+### 16.02.1999 news 
+
+<p>Барабанщик Helloween Ули Кюш, объявил состав музыкантов, которые примут участии на организованном им проекте "Tribute to Rainbow". На проекте засветятся Ральф Шипперс из Primal Fear, члены Helloween Маркус Гроскопф, Михаэль Вейкат, Анди Дерис, Роланд Грапов. А также клавишники Фредди Донберг(Rough Silk), Аксел Маттенрок(Punch), бассисты Йенс Бекер (Grave Digger), Уве Вессел (ex-Gamma Ray) и гитарист Хеньо Рихтер (Gamma Ray).</p>
+
+Автор: Vit Belov
+
+### 12.03.1999 news 
+
+<p>Helloween вошли в студию для записи альбома кавер-версий. А гитарист группы Роланд Грапов обнародовал состав своей команды для записи сольника. Майк Весцера - вокал, Роланд Грапов - гитара, Барри спаркс - бас, Ферди Дойрнберг - клавиши, Майк Террана - барабаны. Также на новом сольном альбоме Грапова "Kaleidoscope" засветятся небезысвестные Йенс Йоханссон - клавиши (STRATOVARIUS) и Ули Кирш - барабаны (HELLOWEEN).</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Hammerfall готовит к выпуску мини-альбом каверов "I Want Out". Несложно догадаться, что на нём будет одноимённая песня Helloween, также песня той же группы "At The End Of The Rainbow" и ещё несколько вещей. Также группа намерена в августе выпустить мультимедийное видео "Glory To The Brave" и ещё один видеофильм о самих себе.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Обещанный кавер-альбом Heloween будет называться "Metal Jukebox". Новый альбом начнёт записываться во время выхода каверов в свет, а точнее в октябре-сентябре.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Helloween объявили приблизительный трэклист своего альбома каверов "Metal Jukebox". Присутствуют: ABBA, The Beatles, а также Дэвид Боуи, Deep Purple, Jethro Tull, Faith No More, Scorpions и другие. В Штатах будут переизданы альбомы Helloween "Master Of The Ring" и "Time Of The Oath". Также в Японии будет переиздан альбом "Pink Bubbles Go Ape" с бонус-трэком "Shit And Lobster". Вейки начал написание нового материала как для сольника, так и для нового альбома Helloween, позже к нему присоединятся другие участники коллектива. А тем временем бывший вокалист этой группы Михаэль Киске, а теперь сольный музыкант, потерял свой контракт в Японии.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Helloween войдут в студию для репетиции и записи нового альбома в январе.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Helloween выпустят новый студийный альбом в сентябре 2000 года. А новый сольник Анди Дериса увидит свет в январе.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 reviews 
+
+<p>Вот и добрался до меня кавер-альбом Helloween. Какие группы переиграны грандами немецкой пауэр-металл сцены, я распинакться не буду, поищите это в новостях на этой страничке, коснусь только степени тяжести композиций. Сразу скажу это не похоже на "Better Than Raw", скорее это работа со звучанием Helloween начала-середины 90-х. Так как поколению, к которому принадлежу я, половина песен вряд ли покажется знакомой, я могу оценить всё это только с чисто музыкальной позиции. Более старшему поколению наверное будет интересно потешить себя старыми хитами в исполнении группы, поэтому советую всем неравнодушным к Helloween и всем неравнодушным к группам представленным на этой пластинке. Хотя после прослушивания таких композиций, как Hocus Pocus, создаётся впечатление, что это стёб какой-то, а стёб малоинтересен с музыкальной точки зрения. Правда, каюсь, не слышал эту "песню" в оригинале. А так весьма всё неплохо, не напрягает. 8 баллов to Helloween + 1 to other artists = 9 из 10.</p>
+
+Автор: Vit Belov
+
+### 18.12.1999 news 
+
+<p>На новом альбоме Sinner барабанные партии исполнить Ули Кюш (Helloween).</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Helloween записывают свой новый альбом в испанской студии.</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 news Helloween записывают новый альбом.
+
+<p>Helloween сейчас в студии в Тенерифе, Испания, где вместе с Roy Z записывают первый альбом для Nuclear Blast. Сингл выйдет 4 сентября, а альбом 30 октября.</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 news Helloween&#39;s new album
+
+<p>Helloween are recoding at the moment their first album for Nuclear Blast in Teneriffe/Spain with Producer Rob Z. and engineer Charly Bauernfeind. The first single will be released on Sept 4th followed by the full album on Oct 30th.</p>
+
+Автор: Vit Belov
+
+### 11.07.2000 news Трибьют Helloween
+
+<p>Выходит новый трибьют Helloween. На нём засветятся: RHAPSODY - 'Guardians', METALIUM - 'Ride The Sky', LABYRINTH - 'Future World', HEAVENS GATE - 'A Little Time', LUCA TURILLI - 'I'm Alive', SONATA ARCTICA - 'I Want Out', VISION DIVINE - 'Eagle Fly Free', BRAINSTORM - 'Savage', SECRET SPHERE - 'How Many Tears', SQUEALER - 'Victim Of Fate', MORIFADE - 'Judas', CYDONIA - 'Save Us' and DARK MOOR - 'Helloween'</p>
+
+Автор: Vit Belov
+
+### 11.07.2000 news New Tribute to Helloween
+
+<p>New tribute to Helloween will out in December in Europe and in September in Japan. There will be: RHAPSODY - 'Guardians', METALIUM - 'Ride The Sky', LABYRINTH - 'Future World', HEAVENS GATE - 'A Little Time', LUCA TURILLI - 'I'm Alive', SONATA ARCTICA - 'I Want Out', VISION DIVINE - 'Eagle Fly Free', BRAINSTORM - 'Savage', SECRET SPHERE - 'How Many Tears', SQUEALER - 'Victim Of Fate', MORIFADE - 'Judas', CYDONIA - 'Save Us' and DARK MOOR - 'Helloween'</p>
+
+Автор: Vit Belov
+
+### 23.07.2000 news Новый альбом Helloween
+
+<p> По сообщению официального сайта группы Helloween, новый альбом группы будет называться "The Dark Ride". Уже полностью записаны 16 трэков, 12 или 13 из которых войдут на диск. Энди Дэрис недавно закончил запись всех вокальных партий и теперь от двух до четырех недель уйдет на микширование материала. Выходу альбома будет предшествовать релиз (14-го сентября) сингла под названием "If I Could Fly".</p>
+
+Автор: Nybras
+
+### 23.07.2000 news Helloween will release a single before new album
+
+<p> The working title for the next Helloween album is called The Dark Ride and the new single will be called If I Could Fly and release date will be September 14. HOWEVER this may all change as this is all indefinite for right now... The band has finished recording all 16 tracks for the album (about 12 or 13 make it on the album while the others willl be b-sides or bonus tracks). Andi is right now finishing up the vocals for the album and it will take anywhere from 2 to 4 weeks to mix it.</p>
+<p></p>
+
+Автор: Nybras
+
+### 17.08.2000 news Приедет ли Helloween в Москву?
+
+<p>Приближенные к Helloween люди сообщают, что вполне возможен приезд группы Helloween в Москву этой осенью. Все попытки связаться с этим коллективом ни к чему не привели.Поэтому остается только верить этому слуху, да и тихонько просить небеса, что бы они послали нам "Хранителей ключей".</p>
+
+Автор: Rinsvind
+
+### 04.09.2000 news Подробности о проекте Тобиаса Саммета, лидера группы Edguy
+
+<p> Лидер группы Edguy Тобиас Саммет (Tobias Sammet) заявил, что релиз его нового проекта "Avantasia - Heavy Metal Opera" состоится в январе 2001 года. Полный трэк-лист альбома будет такой: 1) Prelude; 2) Reach Out for the Light; 3) Serpents in Paradise; 4) Malleus Maleficarum; 5) Breaking Away; 6) Farewell; 7) The Glory of Rome; 8) Nomine Patris; 9) Avantasia; 10) A New Dimension; 11) Inside; 12) Sign of the Cross; 13) The Tower.<br>"Главные роли" в этой опере исполнят Tobias Sammet (Gabriel), Michael Kiske (Lugaid Vandroiy), David DeFeis (Jakob), Ralf Zdiarstek (Falk von Kronberg), Sharon Den Adel (Anna Held), Rob Rock (Johann Adam von Bicken), Oliver Hartmann (Pope Clemens IIX), Andre Matos (Elderane) и Kai Hansen (Regrin). Инструментальные парти исполяют: Henjo Richter (гитара), Markus Grosskopf (бас), Alex Holzwarth (барабаны), Frank Tischer (клавиши), Tobias Sammet (перкуссия и все аранжировки), Jens Ludwig (гитара) and Norman Meiritz (гитара). Другие возможные участники проекта - ребята из Helloween Uli Kusch и Michael Weikath.</p>
+
+Автор: Nybras
+
+### 04.09.2000 news Details about Edguy&#39;s Tobias Sammet heavy metal opera project
+
+<p> Edguy's leader Tobias Sammet will release "Avantasia - Heavy Metal Opera", in January 2001. The complete tracklisting of the album is: 1) Prelude; 2) Reach Out for the Light; 3) Serpents in Paradise; 4) Malleus Maleficarum; 5) Breaking Away; 6) Farewell; 7) The Glory of Rome; 8) Nomine Patris; 9) Avantasia; 10) A New Dimension; 11) Inside; 12) Sign of the Cross; 13) The Tower. The characters will be played by Tobias Sammet (Gabriel), Michael Kiske (Lugaid Vandroiy), David DeFeis (Jakob), Ralf Zdiarstek (Falk von Kronberg), Sharon Den Adel (Anna Held), Rob Rock (Johann Adam von Bicken), Oliver Hartmann (Pope Clemens IIX), Andre Matos (Elderane) and Kai Hansen (Regrin). The musicians are Henjo Richter (guitars), Markus Grosskopf (bass), Alex Holzwarth (drums), Frank Tischer (piano), Tobias Sammet (percussion and arrangements), Jens Ludwig (guitars) and Norman Meiritz (laidback guitars). Other possible participations are from Uli Kusch and Michael Weikath.</p>
+
+Автор: Nybras
+
+### 16.09.2000 news Новый альбом Helloween
+
+<p> Релиз нового альбома Helloween "The Dark Ride" состоится 30-го октября. В Европе также выйдет ограниченным тиражом бокс, содержащий, собственно, новый диск, пять цветных фотографий, стикер, коврик для мышки (!) и еще кучу разных мелочей...</p>
+
+Автор: Nybras
+
+### 25.10.2000 reviews Новый альбом Helloween под священный праздник Halloween
+
+<p>Новый альбом Helloween под священный праздник Halloween. Очень правильный выбор даты вылуска такого альбома. Правда, у нас он появился, как всегда, раньше всех, но в совершенно неграмотной и ужасной подаче. Хоть бы не срамились...Почти часовой альбом продается в урезанной сорокаминутной версии. А ведь многие, не зная про это, тратят деньги на этот бесполезняк. Ну да ладно... В принципе, альбом этого стоит. Вот оно настоящее и истинное триумфальное возвращение к истокам своего творчества. Мощный heavy-power-speed-metal обрушивается на слушателя уже со второй минуты после небольшого вступления. Тяжелые риффы, необычайный мелодизм, настойчивые и легко запоминающиеся рефрены. Эта музыка уже после первого прослушивания настойчиво врезается в память. Вы только послушайте такие хиты, как "Mr. Torture", "All Over The Nations", "If I Could Fly" или "Immortal (Stars)". Звучание альбома наиболее приближено к 1985-1987 годам. А заключительная продолжительная вещь - просто супер! Мощь так и прет из колонок. Сказывается продюсирование Roy Z (последние работы Bruce Dickinson и Rob Halford). Вокал Deris'a тоже немного огрубел и теперь более низкий и скрипучий местами. Бесподобны и к месту хоровые припевы. Бесспорно, очень достойный альбом, без всяких соплей. Что примечательно, на альбоме нет ни одной баллады! Настоящая тяжелая музыка. Те, кто разочарован последними работами Stratovarius или Hammerfall, не пропустите этот грандиозный альбом.</p>
+
+Автор: Dimas
+
+### 12.11.2000 news Официальный сайт Helloween проводит опрос...
+
+<p> Официальный сайт Helloween, www.helloween.org, проводит опрос среди посетителей на лучшую песню с нового альбома группы "The Dark Ride".</p>
+
+Автор: Nybras
+
+### 12.11.2000 news Helloween&#39;s official site has a new poll asking fans...
+
+<p> Helloween's official site has a new poll asking fans to choose their favorite songs off 'The Dark Ride' Helloween's official site, http://www.helloween.org, has a new poll asking fans to choose their favorite songs off THE DARK RIDE.</p>
+
+Автор: Nybras
+
+### 06.02.2001 news Helloween пришлось прервать своё турне
+
+<p> Helloween пришлось прервать своё турне с групой Blaze из-за проблем со здоровьем барабанщика Ули Куша. Врач посоветовал ему сделать перерыв на 3-4 недели, чтобы полностью восстановить здоровье</p>
+
+Автор: Nybras
+
+### 26.04.2001 news Сольник Timo Kotipelto.....
+
+<p>Вокалист "STRATOVARIUS" - Timo Kotipelto работает над дебютным сольным альбомом, запланированным к выходу на начало 2002. Ему уже удалось собрать мощную команду для записи: Mike Romeo (гитара; SYMPHONY X), Roland Grapow (гитара; HELLOWEEN), Arjen Lucassen (гитара; AYREON), Sami Virtanen (гитара; JOE DOAKES), Jari Kainulainen (басс; STRATOVARIUS), Mirka Rantanen (барабаны; TUNNEL VISION), Gas (барабаны; H.I.M.), Janne Warman (клавиши; CHILDREN OF BODOM) и Mikko Harkin (клавиши; SONATA ARCTICA).</p>
+
+Автор: Yermola
+
+### 26.04.2001 news Timo Kotipelto debut solo album ....
+
+<p>STRATOVARIUS vocalist Timo Kotipelto is hard at work on his debut solo album, which is tentatively due to be released in early 2002. As-yet-untitled, the album will feature a host of guest appearances from some of metal's top musicians, including the following: Mike Romeo (guitars; SYMPHONY X), Roland Grapow (guitars; HELLOWEEN), Arjen Lucassen (guitars; AYREON), Sami Virtanen (guitars; JOE DOAKES), Jari Kainulainen (bass; STRATOVARIUS), Mirka Rantanen (drums; TUNNEL VISION), Gas (drums; H.I.M.), Janne Warman (keyboards; CHILDREN OF BODOM), Mikko Harkin (keyboards; SONATA ARCTICA). In related news, STRATOVARIUS have announced that they will be taking part in four European festivals this summer. The dates are as follows: June 28 - Roskilde Festival, DEN, June 30 - Bang Your Head Festival, GER, July 07 - Ruisrock Festival, FIN, July 13 - Tuska Metal Festival, FIN. Source - BLABBERMOUTH.NET.</p>
+
+Автор: Yermola
+
+### 01.06.2001 news Сольный диск Michael Kiske ....
+
+<p>Вокалист "HELLOWEEN" - Michael Kiske завершил запись и сейчас занимается микшированием своего нового сольного альбома. Диск выйдет через Noise Records в Сентябре. По словам Михаэля материал можно описать как: "понастоящему тяжелый...". Продюссером релиза был Charlie Bauerfeind. Всего будет 14 песен (10 из которых написаны Киске самостоятельно), среди них: 01. Freak-Away 02. Let's Be Sun-Like 03. Ride On 04. Hey, Plastic 05. He Pretends 06. Can I Know Now 07. Boiling Points Of No Return. Из других новостей Киске был приглашен на роль лид-вокалиста в "ANGRA" (но пока не согласился!) и также он решил принять участие на сольнике Timo Tolkki ("STRATOVARIUS") - Hymn To Life.</p>
+
+Автор: Yermola
+
+### 01.06.2001 news Michael Kiske has finished recording...
+
+<p>Former HELLOWEEN vocalist Michael Kiske has finished recording and is about to start mixing his brand new solo album, which is tentatively scheduled to be released in September through Noise Records. Although the songs' musical direction reportedly has nothing to do with traditional heavy metal, the material is being described as "really heavy", and the CD is said to be "a real rock album" with "excellent" guitar work. The mixing will be done by producer Charlie Bauerfeind, and the album will contain 14 songs, 10 of which were written by Kiske himself and the remaining four by other members of his band. Tentative song titles include the following: 01. Freak-Away 02. Let's Be Sun-Like 03. Ride On 04. Hey, Plastic 05. He Pretends 06. Can I Know Now 07. Boiling Points Of No Return. In other Kiske news, the vocalist was recently asked by former HELLOWEEN bandmate Kai Hansen to sing the bridge of a new GAMMA RAY song entitled "Solid" (which is set to appear on GAMMA RAY's upcoming No World Order CD), but due to scheduling problems, the singer was unable to contribute. Kiske also reportedly confirmed that he was offered the lead singer position in ANGRA, and he indicated that he will be appearing on the forthcoming solo album from STRATOVARIUS guitarist Timo Tolkki, which is tentatively titled Hymn To Life and is set for release in January 2002 through Nuclear Blast Records. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.06.2001 news Тыквенные планы
+
+<p> Группа Helloween планирует засесть в студию для записи нового студийного альбома не ранее мая 2002 года. Альбом планируется выпустить ближе к окончанию 2002 года. (Эхе-хех! Как же долго ждать то!!! :-( ) Пока же группа планирует прокатиться по Европе и Латинской Америке в целях поддержки своего последнего альбома The Dark Ride.</p>
+
+Автор: Helloween
+
+### 18.06.2001 news Новый проект участников HELLOWEEN и SYMPHONY X...
+
+<p>Вокалист "SYMPHONY X" - Russell Allen, гитарист "HELLOWEEN" Roland Grapow и барабанщик Uli Kusch создали совместный проект. По словам Allen: "Я встретился с Роландом на нашем берлинском концерте и я согласился участвовать в сайд-проекте...Надеюсь мы сможем завершить все еще до конца года..."</p>
+
+Автор: Yermola
+
+### 18.06.2001 news SYMPHONY X vocalist Russell Allen has commented ....
+
+<p>SYMPHONY X vocalist Russell Allen has commented on his rumored collaboration with HELLOWEEN guitarist Roland Grapow and drummer Uli Kusch in an as-yet-unnamed project that was initially announced via HELLOWEEN's official web site. According to Allen, "I met with Roland at [SYMPHONY X's] Berlin gig, and I agreed to do a side project with him and Uli. I'm stoked about the project, and I hope that HELLOWEEN, SYMPHONY X, and metal fans everywhere are as excited as we are about this project. Hopefully we can complete it in time for the end of the year. Although it'll be difficult, due to our schedules with SX and HELLOWEEN, I'm sure we can get it done." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.08.2001 reviews ...Даже не ожидал услышать такое
+
+<p>…Даже не ожидал услышать такое – добротный и искренний спид-пауэр-метал (это когда гитары жужжат, барабаны имитируют кавалерийскую атаку, а голос, такой чистый и красивый, мелодично вещает о печалях и бедах мира сего). И это в 2001 году!!! Зная о пятнадцатилетнем стаже группы, которая некогда была одной из тех, кто придал стилю законченные формы, а затем и собственноручно его похоронила, предполагал, что новый альбом будет полон претензий, заморочек, заумности и лишен свежести напрочь. Однако все звучит совершенно иначе. Оказалось, что группа, пройдя испытания, перетряски состава, не растеряла хулиганского задора, который позволяет делать музыку искренне, так, как бог на душу положил. Музыкантам удалось органично соединить традиционный для них мелодизм и модный сейчас сверхтяжелый звук. На диске нашлось место и для песен в ключе старого HELLOWEEN, богатых на мелодии и пафос, и для свежих веяний, где слышны влияния современных мэтров литья железа. Несмотря на плотный низкий звук, что предполагает агрессивную подачу, диск звучит очень приятно. Мелодии хороши и не надоедливы, гитарные ходы порой очень остроумны – с техникой у музыкантов все в порядке, и воображение работает очень даже хорошо. Все звучит очень непосредственно – хотя на самом деле эти идеи были найдены и сыграны намного раньше. Но группа сумела заново вдохнуть в них жизнь, и потому диск можно считать очень удачным приобретением. Честно говоря, сам факт творчества в этом ключе несколько удивляет – в спид-пауэр-метал, казалось, все давно сказано, и творить здесь вроде бы незачем, но вот HELLOWEEN нашли причину – с десяток просто хороших и приятных песен. Именно песен, а не приемов, технических наворотов и необходимости накосить еще немного денег на старых фэнах. Возможно, новый диск оттого и получился таким простым и честным. За что большое спасибо: в сегодняшнем шоу-бизнесе последнее – настоящий дефицит.</p>
+
+Автор: Tornado
+
+### 22.08.2001 news Roland Grapow и Uli Kusch ушли из HELLOWEEN?!?!?
+
+<p>Соло гитарист Roland Grapow и барабанщик Uli Kusch после прошедшего в Испании Meoroc Festival оставили группу. Пока причины для столь неожиданного ухода неизвестны, но ясно, что и Кюш и Грапов продолжат совместную работу над проектом с вокалистом SYMPHONY X - Russell Allen и сейчас оба они находятся в Лос Анджелесе, работая над песнями с Roy Z (BRUCE DICKINSON, HALFORD и т.д.). Записывать и микшировать альбом будет продюссер Энди Снип (NEVERMORE и MACHINE HEAD) в его собственной Backstage studio с 24 сентября по 11 ноября. Дополнительное микширование пройдет в домашней студии Roland Grapow в Гамбурге.</p>
+
+Автор: Yermola
+
+### 22.08.2001 news HELLOWEEN have parted ways ...
+
+<p>German metal masters HELLOWEEN have parted ways with long time lead guitarist Roland Grapow and drummer Uli Kusch following the band's August 12 appearance at the Meoroc Festival in Spain. No reason for the shocking split has been forthcoming from either camp yet, but Grapow and Kusch will continue on together and pursue their band project with SYMPHONY X vocalist Russell Allen on a full-time basis; the band is also set to feature an as-yet unnamed bassist and keyboard player. Grapow and Allen are currently spending time in Los Angeles working on songs with Roy Z (BRUCE DICKINSON, HALFORD, etc.) whom Grapow had met during last year's sessions for HELLOWEEN's The Dark Ride. The album will be recorded and mixed at producer Andy Sneap's (NEVERMORE, MACHINE HEAD, etc.) Backstage studio from September 24th through November 11th, with additional mixing scheduled to take place to Roland Grapow's home studio in Hamburg. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Кюш и Граппов действительно ушли...
+
+<p>Разнообразные официальные источники подтвердили уход Кюша и Граппова из HELLOWEEN. Как явствует из сообщения на официальном сайте группы: 1) HELLOWEEN - не распадается, и в ближайшее время объявит о замене. 2) Скоро будет опубликован пресс-релиз от Sanctuary Records. 3) Возможность реюниона с Хансеном и Киске полностью исключена. Команда рассматривает и прослушивает абсолютно других кандидатов.</p>
+
+Автор: Yermola
+
+### 23.08.2001 news HELLOWEEN have now officially confirmed the departures ...
+
+<p>HELLOWEEN have now officially confirmed the departures of lead guitarist Roland Grapow and drummer Uli Kusch from the group’s ranks. In a posting on the message board of HELLOWEEN’s official web site last night, webmaster Tony offered the following statement on the matter: “Well…not much to tell you other than I just got off of the phone with Weiki [HELLOWEEN guitarist Michael Weikath] and we had about a 2 hour conversation. Roland and Uli are not in the band anymore. HELLOWEEN is not breaking up. The band will announce replacements sometime down the road. I will have an official statement from Sanctuary Management sometime in the next couple days. So for right now I am not revealing any more details other than the fact Uli and Roland are not in the band. I am also not updating the News section officially until I receive the official statement. A few things are certain: "1. HELLOWEEN is not breaking up. "2. I will stay in touch with Roland Grapow (he still is a good friend of mine) and I will try to keep up with Uli from time to time but I don't know him as well. Uli is the one guy in the band I never really got to know as well as the others. "More to follow shortly......and more info will surely come when I interview some band members on the HELLOWEEN Marathon, or a former member (Roland), whom I have not heard from in 3 weeks, if he decided he still wants to be on. "Kai Hansen is by NO MEANS replacing Roland Grapow and there is not going to be a reunion. Any of you who think this will happen are dreaming and living in a different reality. Its just not going to happen. The band has several replacements in mind......Kai is NOT one of them. And NO, Michael Kiske is NOT joining the band either. There is not going to be any sort of reunion, so anyone who thinks its going to happen can dream on. "That's all I have to say for now. More to follow......-Tony" Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 06.09.2001 news Новый барабанщик HELLOWEEN ...
+
+<p>Судя по циркулирующим в сети слухам, новым барабанщиком "HELLOWEEN" станет Mark Cross (METALIUM/ex-KINGDOM COME). Правда в настоящее время он занят записью третьего диска METALIUM - "Chapter III". Официальных заявлений по этому поводу пока не было...</p>
+
+Автор: Yermola
+
+### 06.09.2001 news Mark Cross is strongly rumored to have joined HELLOWEEN ....
+
+<p>METALIUM/ex-KINGDOM COME drummer Mark Cross is strongly rumored to have joined HELLOWEEN as a replacement for the recently departed Uli Kusch, who is presently playing in a new band with ex-HELLOWEEN guitarist Roland Grapow. At the time of his alleged departure from METALIUM, Cross had been working with the band on their upcoming third full-length CD, tentatively titled Chapter III, which is scheduled for an early 2002 release through Locomotive Music. No official statement has yet been issued by either camp. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.09.2001 news Mark Cross - новый барабанщик Хэлловин...
+
+<p>"HELLOWEEN" официально подтвердили на своем сайте прием барабанщика "METALIUM" - Mark Cross в качестве постоянного участника группы. Как заявил Марк: "Я должен был принять это решение и оставить METALIUM. HELLOWEEN - великая команда с высоким потенциалом, хорошими музыкантами и прекрасными людьми..." Из других новостей - украдена большая часть оборудования использованного командой в последнем туре. Из склада где хранились вещи пропали Epiphone V, Les Paul, оранжевый ESP Mirage, черная акустическая гитара Ovation и два Ямаховских Страта Михаэля Вэйката и басс-гитары Fender Jazz, Precision, Warwick и Music Man у Маркуса... Если вы чем-то можете помочь команде, пишите: drstein@helloween.org</p>
+
+Автор: Yermola
+
+### 11.09.2001 news Mark Cross as the replacement for the recently departed Uli Kusch...
+
+<p>HELLOWEEN have officially acquired former METALIUM drummer Mark Cross as the replacement for the recently departed Uli Kusch, a previously rumored move that was first reported here last week. According to HELLOWEEN’s official web site, Cross’ addition to the group’s ranks had not been made public until now “due to the fact that Mark was still officially in METALIUM and [he] had not told Lars Ratz and the rest of the band that he was leaving yet.” Meanwhile, Cross has issued a statement of his own, saying simply that “leaving METALIUM was a decision I had to take. HELLOWEEN is a great band with high potential, good musicians and nice down-to-earth people! I’m looking forward to working with them. We’re still good friends with METALIUM and they understand my decision. Of course it was bad timing, because we were just about to start working on the new album. But I wish them all the best and am sure that their next albums will be as good as the first ones.” HELLOWEEN have yet to announce a replacement for guitarist Roland Grapow, who is presently busy composing material for an as-yet-unnamed new project with Kusch, which is due to record its debut album at producer Andy Sneap's (NEVERMORE, MACHINE HEAD, etc.) Backstage studio from September 24th through November 11th, with additional mixing scheduled to take place at Roland Grapow's home studio in Hamburg. In other news, HELLOWEEN had a good portion of their equipment used on the last tour stolen last week when someone broke into the warehouse where the band stores their gear and walked off with many of guitarist Michael Weikath's axes and Markus' basses. Michael Weikath is missing a white Epiphone V and Les Paul, an orange ESP Mirage with green MPTOK on it, a black Ovation acoustic guitar, two almost brandnew Yamaha Pacifica Strats in whitish/fleshy color with tribal boomerang inlays in the fretboard. Markus is missing a variety of Fender Jazz and Precision basses as well as a few Warwick and Music Man ones, as seen live and in pictures. If ANYONE has an information about these missing items or has seen them, send an e-mail to: drstein@helloween.org. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.11.2001 news Новая группа Роланда Граппова и Ули Кюш...
+
+<p><IMG SRC="/images/news_rus/2001.11/1975.gif" ALT="pho" width="163" height="76" hspace="15" vspace="5" border="1" align="right"> Похоже, что выходцы из "HELLOWEEN" - гитарист Граппов и барабанщик Кюш определились с названием для своей новой группы - "MR. TORTURE". Вы можете поделиться своими впечатлениями о названии и лого на сайте Граппова <A HREF="http://www.truemetal.org/kaleidoscope/discography/projects2.php">здесь....</A></p>
+
+Автор: Yermola
+
+### 13.11.2001 news The brand new band of former HELLOWEEN guitarist Roland Grapow...
+
+<p><IMG SRC="/images/news_rus/2001.11/1975.gif" ALT="pho" width="163" height="76" hspace="15" vspace="5" border="1" align="right"> The brand new band of former HELLOWEEN guitarist Roland Grapow and drummer Uli Kusch is currently going by the moniker MR. TORTURE. However, the new name is not yet set in stone, as the duo are asking for the fans’ opinions and new suggestions, which can be submitted via Grapow’s official web site <A HREF="http://www.truemetal.org/kaleidoscope/discography/projects2.php">at this location... </A></p>
+
+Автор: Yermola
+
+### 18.01.2002 news План Мастера или Мастер Плана?!?!
+
+<p>Бывшие участники "HELLOWEEN" Roland Grapow и Uli Kusch выбрали название "MASTERPLAN" в качестве имени своего нового проекта и пригласили ex-YNGWIE MALMSTEEN/ARK вокалиста Jorn Lande присоединиться к группе. По словам Роланда, Йорн был выбран из многих как наиболее прибилженный к классическим Дио/Ковердэйлу. Ланде уже успел записать с новой командой кавер Лэд Зеппелин “Black Dog”, который выйдет на трибьютном диске Испанского лэйбла Locomotive Music весной. Сейчас "MASTERPLAN" планируют запись дебютника в Грапповской Crazy Cat Studio в Гамбурге с продюссером Andy Sneap и после этого будут искать контракт с выпускающими фирмами. Также известно, что бывший вокалист "HELLOWEEN" - Michael Kiske запишет партии лид-вокала в одной песне и дуэт с Йорном на второй. Если все пойдет по плану, фэны увидят (и услышат!) диск уже летом....</p>
+
+Автор: Yermola
+
+### 18.01.2002 news Former HELLOWEEN Duo Announce Name, Singer For New Project ....
+
+<p>Former HELLOWEEN guitarist Roland Grapow and drummer Uli Kusch have set MASTERPLAN as the name of their new band and have selected ex-YNGWIE MALMSTEEN/current ARK vocalist Jorn Lande to front the much-talked-about group. According to Roland, Jorn was selected in part because his approach is much more in the classic Dio/Coverdale vein than the operatic wailings that HELLOWEEN had become known for, thereby ensuring that MASTERPLAN would forge its own path and would not draw immediate comparisons to the members' previous output. Lande has thus far sung on MASTERPLAN's cover of LED ZEPPELIN's “Black Dog”, which is set to be included on an upcoming LED ZEPPELIN tribute CD, due for release via Spain's Locomotive Music in the spring. Despite the fact that the group have yet to secure a record contract, MASTERPLAN are planning on completing their debut album at Grapow's Crazy Cat Studio in Hamburg, Germany with producer Andy Sneap by the end of March before shopping around for a deal. As previously reported, former HELLOWEEN vocalist Michael Kiske will contribute lead vocals to one song, a duet with Jorn, in February, and if all goes according to plan, the CD will see the light of day sometime this summer.<BR><BR> In related news, HELLOWEEN have yet to announce the replacement for Roland Grapow, but reports indicate that the band will issue a CD of remixes and b-sides, tentatively entitled Treasure Chest, later in the year. Due to include material from the group's post-Walls Of Jericho era, the album will not contain the previously-announced new version of "Windmill" (which appeared on 1993's Chameleon), featuring Andi Deris on vocals, since the original multi-track master tapes for the song cannot be located.</p>
+
+Автор: Yermola
+
+### 31.01.2002 news Сокровишша HELLOWEEN ....
+
+<p>"HELLOWEEN" подтвердили выпуск двойного диска "Treasure Chest" содержащего лучшие песни группы за всю карьеру. Трек-лист: <BR><BR> CD 1<BR> 01. Mr. Torture<BR> 02. I Can<BR> 03. Power<BR> 04. Where The Rain Grows<BR> 05. Eagle Fly Free<BR> 06. Future World<BR> 07. Metal Invaders<BR> 08. Murderer<BR> 09. Starlight<BR> 10. How Many Tears<BR> 11. Ride The Sky<BR> 12. A Little Time<BR> 13. A Tale That Wasn't Right<BR> 14. I Want Out<BR><BR> CD 2<BR> 01. Keeper of The Seven Keys<BR> 02. Dr. Stein<BR> 03. The Chance<BR> 04. Windmill<BR> 05. Sole Survivor<BR> 06. Perfect Gentleman<BR> 07. In The Middle of a Heartbeat<BR> 08. Kings Will Be Kings<BR> 09. Time Of The Oath<BR> 10. Forever & One<BR> 11. Midnight Sun<BR> 12. Mr. Ego<BR> 13. Immortal<BR> 14. Mirror Mirror <BR></p>
+
+Автор: Yermola
+
+### 31.01.2002 news HELLOWEEN Announce Compilation Details ....
+
+<p>HELLOWEEN have confirmed that their upcoming “Best Of” double-CD set will be called Treasure Chest and it will have a lot of special packaging, making it a nice collector's item for any HELLOWEEN fan new or old. All of the songs have been remixed and remastered to modern standards. The full track listing for Treasure Chest is as follows: <BR><BR> CD 1<BR> 01. Mr. Torture<BR> 02. I Can<BR> 03. Power<BR> 04. Where The Rain Grows<BR> 05. Eagle Fly Free<BR> 06. Future World<BR> 07. Metal Invaders<BR> 08. Murderer<BR> 09. Starlight<BR> 10. How Many Tears<BR> 11. Ride The Sky<BR> 12. A Little Time<BR> 13. A Tale That Wasn't Right<BR> 14. I Want Out<BR><BR> CD 2<BR> 01. Keeper of The Seven Keys<BR> 02. Dr. Stein<BR> 03. The Chance<BR> 04. Windmill<BR> 05. Sole Survivor<BR> 06. Perfect Gentleman<BR> 07. In The Middle of a Heartbeat<BR> 08. Kings Will Be Kings<BR> 09. Time Of The Oath<BR> 10. Forever & One<BR> 11. Midnight Sun<BR> 12. Mr. Ego<BR> 13. Immortal<BR> 14. Mirror Mirror<BR><BR> HELLOWEEN have yet to announce a replacement for guitarist Roland Grapow, who has joined ex-HELLOWEEN skinsman Uli Kusch in the new supergroup MASTERPLAN (also featuring ex-YNGWIE MALMSTEEN vocalist Jorn Lande). <BR><BR> In related news, Grapow will do an interview with Tony Webster, from the official HELLOWEEN website and WBWC 88.3 FM radio, on Sunday, February 3rd. Also on the Grapow front, Roland has recorded a guest appearance on the upcoming new album of LOCOMOTIVE BREATH, entitled Heavy Machinery. Roland reportedly plays a solo on the track "The Adventures Of Zaphod Bebblebrox" along with Pontus Norgren (TALISMAN, HUMANIMAL), Mattias Eklundh and Micke Andersson. According to LOCOMOTIVE BREATH guitarist Janne Stark, Roland recorded six different solos, and the band selected their favorite. The album is already mixed and it's being described as the heaviest album the band has ever done. The album will probably be released on the end of March through Record Heaven Music.</p>
+
+Автор: Yermola
+
+### 01.03.2002 news The Keepers Of Jericho - 2
+
+<p>After the big successful of ``The Keepers Of Jerichoґґ (A Tribute To Helloween), Arise Records is just working in the second part which will be released in Dec. 2002. We can confirm covers of ``Starlightґ, ``Dr.Steinґ, ``Rise and Fallґґ, ``March Of Timeґ, ``Soul Survivorґґ& ``Twilight Of The Godsґґ.</p>
+
+Автор: Dimas
+
+### 01.03.2002 news The Keepers Of Jericho - 2
+
+<p>После большого успеха (хм...) сборника "The Keepers Of Jericho" (A Tribute To Helloween), ARISE records решила выпустить вторую часть трибьюта HELLOWEEN. Выпуск его планируется в декабре 2002 года. Уже записаны каверы на песни "Starlight", "Dr.Stein", "Rise and Fal", "March Of Time", "Soul Survivor" и "Twilight Of The Gods".</p>
+
+Автор: Dimas
+
+### 06.03.2002 news Майкл Киске готовит третий сольник....
+
+<p><IMG SRC="/images/news_rus/2002.03/2498.jpg" ALT="pho" width="180" height="273" hspace="15" vspace="5" border="1" align="right" /> Бывший фронтмэн "HELLOWEEN" Michael Kiske приготовил свой третий сольный альбом для выпуска на Sanctuary Records в апреле. Микширование было выполнено продюссером Charlie Bauerfeind (BLIND GUARDIAN, RAGE). Трек-лист: <BR><BR> 01. Freak-Away<BR> 02. Let's Be Sun-Like<BR> 03. Ride On<BR> 04. Hey, Plastic<BR> 05. He Pretends<BR> 06. Can I Know Now<BR> 07. Boiling Points Of No Return<BR><BR> "Новый альбом - просто мой любимый!" - говорит Киске. "Песни получились лучше... Если вам нравились предыдущие два диска, то надеюсь и этот вам понравиться."</p>
+
+Автор: Yermola
+
+### 06.03.2002 news Former HELLOWEEN Frontman Readies Third Solo Release....
+
+<p>Former HELLOWEEN frontman Michael Kiske is tentatively due to issue his third solo album through Sanctuary Records in April, according to his official web site. Although the songs' musical direction reportedly has nothing to do with traditional heavy metal, the material on the album is being described as “really heavy”, and the CD is said to be "a real rock album" with “excellent” guitar work. The mixing was reportedly done by producer Charlie Bauerfeind (i.e. BLIND GUARDIAN, RAGE), and the CD is said to contain 14 songs, 10 of which were written by Kiske himself and the remaining four by other members of his band. Tentative song titles include the following: <BR><BR> 01. Freak-Away<BR> 02. Let's Be Sun-Like<BR> 03. Ride On<BR> 04. Hey, Plastic<BR> 05. He Pretends<BR> 06. Can I Know Now<BR> 07. Boiling Points Of No Return<BR><BR> Kiske recently took the time to describe his inspiration for the musical direction on the album and address criticisms from HELLOWEEN fans who want to hear a similar sound from the group's former vocalist.<BR><BR> “The only thing I can do is what I do,” Kiske wrote. “It's that simple. It's not that I don't need money! I simply can't write anything for abstract or money reasons. I wouldn't know how to do that. I never did it that way. This has only never changed. When I have an idea for a song, I sit down and see where it leads me. Maybe it becomes a song. Most of the time it'll be garbage and die. If I try to fake something, it'll certainly be crap. In the end, what ever you do, HOW you do it, is up to who you really are. If you're real, you do things real, and that'll be only natural. I am also a freedom-loving guy. Nothing will tell me where to fly apart from GOD. And HE'S the one that sets me free. So I am happy! The only true freedom that exists. <BR><BR> “My new record is my favorite!” Kiske continued. “Better songs, more clear where to go and more meant. If you could follow my first two, you'll be very fine with this new one, I guess. (I hope so!)”</p>
+
+Автор: Yermola
+
+### 27.04.2002 news Henjo Rihter отказал Helloween
+
+<p>После продолжительных переговоров с лидером Helloween Michael Weikath гитарист Gamma Ray Henjo Rihter отказался перейти в его группу на замену Roland Grapow. Своё будущее он связывает с командой Kai Hansen. Также Gamma Ray объявили даты своих концертов в Европе этим летом. Стоит отметить три итальянских концерта вместе с Motorhead.</p>
+
+Автор: Vit Belov
+
+### 27.04.2002 news GAMMA RAY&#39;s HENJO RICHTER rejects HELLOWEEN
+
+<p>GAMMA RAY guitarist Henjo Richter will not be accepting HELLOWEEN's offer to join the latter band as a replacement for the departed Roland Grapow, according to GAMMA RAY's record label Sanctuary/Metal-Is Records.<BR> As you may recall, Richter had been holding discussions with HELLOWEEN mainman Michael Weikath about joining the latter act, but has now apparently decided to stay with Kai Hansen and co., much to the relief of GAMMA RAY fans everywhere. <BR> In other news, GAMMA RAY have lined up the following dates during the coming months:<BR> Jun. 07 - Sцlvesborg, SWE @ Sweden Rock Festival<BR> Jun. 18 - Rome, ITA @ Valle Giulia (w/MOTЦRHEAD)<BR> Jun. 19 - Turin, ITA @ Palastampa (w/MOTЦRHEAD)<BR> Jun. 20 - Venice, ITA @ Marcon Sport Area (w/MOTЦRHEAD)<BR> Jun. 28 - Balingen, GER @ Bang Your Head<BR> Jul 13 - Lorca, Spain Spain Lorca Lorca Rock<BR> Jul. 31 - Budapest, HUN @ Sziget Festival<BR> Aug. 01 - Zvolen, SK @ Sport's Hall<BR> Aug. 03 - Pratteln, SWI @ Z7 Metal Days<BR> Aug. 31 – Derby, UK @ Assembly Rooms (Bloodstock)<BR> Nov. 16 - Atlanta, GA @ ProgPower Festival</p>
+
+Автор: Vit Belov
+
+### 25.05.2002 news Super Project
+
+<p>Ex-HELLOWEEN members Michael Kiske (vocals) and Roland Grapow (guitar), HAMMERFALL bassist Magnus Rosйn, ANGRA guitarist Kiko Loureiro, PRIMAL FEAR/SINNER bassist Mat Sinner, PRIMAL FEAR vocalist Ralf Scheepers, and THOTEN drummer Marco Barzo are among the musicians scheduled to appear on the forthcoming solo project of THOTEN frontman Renato Tribuzy, dubbed EXECUTION. No further details are available at this time</p>
+
+Автор: Dimas
+
+### 25.05.2002 news Новый супер-проект EXECUTION
+
+<p>EXECUTION - новый супер-проект лидера группы THOTEN Renato Tribuzy. В записи приняли участие Michael Kiske (vocals) и Roland Grapow (guitar) (ex-HELLOWEEN), Magnus Rosun (bass) (HAMMERFALL), Kiko Loureiro (guitar) (ANGRA), Mat Sinner (bass) (PRIMAL FEAR/SINNER), Ralf Scheepers (vocal) (PRIMAL FEAR) и другие известные музыканты. В скором времени ждите альбом EXECUTION.</p>
+
+Автор: Dimas
+
+### 12.06.2002 news Веб-камера HAMMERFALL ...
+
+<p>Понаблюдать за процессом записи четвертого альбома шведов "HAMMERFALL" вы сможете, нажав на следующую <A HREF="http://www.hammerfall.net/webcam.html/">ссылку.... </A>Веб-камера установлена в студии вокалиста "HELLOWEEN" -Andy Deris'а - Mi Sueno в Испании. Сейчас команда записывает гитарные треки...</p>
+
+Автор: Yermola
+
+### 11.08.2002 news HELLOWEEN готовы войти в студию
+
+<p>Группа HELLOWEEN закончила сочинительство материала для своего нового альбома. В конце августа группа планирует начать его запись в личной студии Andi Deris'а - Mi Sueono Studios на Тенерифе. Диск пока не имеет названия, продюссировать запись будет Charlie Bauerfeind. Он также занимался продюссированием последнего альбома BLIND GUARDIAN и вскоре выходящего нового альбома группы HAMMERFALL "Crimson Thunder". Выход нового альбома HELLOWEEN планируется в начале 2003 года.</p>
+
+Автор: Dimas
+
+### 25.08.2002 news Новый гитарист HELLOWEEN
+
+<p>По официальным данным, бывший гитарист FREEDOM CALL Sascha Gerstner стал новым гитаристом немецкой группы HELLOWEEN. Он заменил ушедшего в прошлом году Roland Grapow.</p>
+
+Автор: Dimas
+
+### 24.09.2002 news A TRIBUTE TO HELLOWEEN PART II
+
+<p>Окончательно стало известно, что вторая часть посвящения HELLOWEEN "The Keepers Of Jericho - A Tribute To Helloween Part II -" выйдет 9 декабря 2002 года на Arise Records. Трэк-лист альбома:</p>
+<p> IRON SAVIOR - PHANTOMS OF DEATH <BR> STEEL ATTACK - DR.STEIN<BR> POWERGOD - STARLIGHT<BR> BETO VAZQUEZ INFINITY - A TALE THAT WASN&acute;T RIGHT (Featuring Elisa - DARK MOOR -)<BR> ARWEN - MARCH OF TIME<BR> HIGHLORD - POWER <BR> FRETERNIA - MURDERER <BR> PARAGON - METAL INVADERS<BR> VHALDEMAR - GORGAR <BR> CELESTY - THE CHANCE <BR> DRAGONLAND - SOUL SURVIVOR <BR> AXENSTAR - TWILIGHT OF THE GODS <BR> RED WINE - RISE & FALL</p>
+<p> Все трэки на альбоме эксклюзивные и записывались специально для него. Обложку для альбома нарисовал Travis Smith.</p>
+
+Автор: Dimas
+
+### 15.01.2003 news Новый альбом HELLOWEEN
+
+<p>Германская супергруппа HELLOWEEN объявила 5 мая 2003 года официальной датой европейского релиза своего нового альбома не имеющего пока название. Он выйдет на Nuclear Blast Records. На данный момент закончена запись и проходит микширование альбома под руководством продюссера Charlie Bauernfeind. Альбом, в котором гостевое участие принял ударник MOTORHEAD Mikkey Dee, по данным официального пресс-релиза обещает стать "самым настоящим возвращением к корням группы".</p>
+
+Автор: Dimas
+
+### 16.02.2003 news Кролики - это не только ценный мех...
+
+<p>Стало известно название нового альбома немецкой группы HELLOWEEN. Альбом, который выйдет 5 мая на Nuclear Blast Records будет называться "Rabbits Don't Come Easy".</p>
+<p> Также, официально подтвердилась информация, что бывший ударник ACCEPT и RUNNING WILD Stefan Schwarzmann официально подтвердил, что он стал новым ударником HELLOWEEN вместо Mark Cross'а.</p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 05.10.2003 news Фестиваль ROVERFEST-2003
+
+<A href="http://www.rokfest.ru/"></A>
+<P align="center"><A href="http://www.rokfest.ru/">&nbsp;</P>
+<P align="right"><IMG height=385 alt=pho hspace=15 src="/images/news_rus/2003.08/4756.jpg" width=300 align="left" vspace=5 border=0></A></P>
+<P>17 октября в московском ДС "Лужники" пройдет фестиваль тяжелой музыки ROVERFEST-2003.</P>
+<P>Расписание и состав участников:</P>
+<P>17:30 Начало фестиваля<BR>18:00 - 18:30 ZODIAK MINDWARP (Англия)<BR>18:30 – 18:50 Технический перерыв<BR>18:50 - 19:35 MASTERPLAN (Германия)<BR>19:35 – 19:55 Технический перерыв<BR>19:55 - 20:40 PARADISE LOST (Англия)<BR>20:40 – 21:00 Технический перерыв<BR>21:00 - 21:40 ARIA (Россия)<BR>21:40 – 22:00 Технический перерыв<BR>22:00 - 23:00 HELLOWEEN (Германия)</P>
+<P>Билеты</P>
+<P>600 рублей - задние трибуны </P>
+<P>900 рублей - партер</P>
+<P>800-1200 рублей - боковые трибуны</P>
+<P>Продажа&nbsp;в кассах ДС "Лужники" и театральных кассах Москвы.</P>
+<P>Проезд: метро Спортивная, ул. Лужники, 24</P>
+<P>
+<P>
+<P>
+<P>
+<P align="center"><A href="http://www.kontramarka.ru/intershoproot/eCS/Store/ru/riatekimg/countdown.html"><IMG height=60 alt="" hspace=0 src="/images/news_rus/2003.10/5049.gif" width=468 align="right" border=0></A></P>
+Автор: Dimas
+
+### 19.10.2003 articles 17 ноября 2003 года, RoverFest, Москва
+
+<I>
+<P>17 октября 2003 года в Москве во дворце спорта ‘Лужники’ прошло беспрецедентное по российским меркам событие. При поддержке RoverComputers концертное агентство TCI собрало в столице нашей Родины три крупных иностранных группы и самую популярную металл-группу России.</P></I>
+<P>В прошлом году под этой вывеской уже прошёл довольно крупный концерт. На одной сцене выступили легенды heavy-metal - DORO и UDO. Но если в минувшем году всё произошло как-то спонтанно, сорвался концерт DORO, организуемый “известной” конторой, и TCI заманили её на свой фестиваль. Новый концерт уже анонсировался, как крупнейший фестиваль. Действительно были заявлены HELLOWEEN, PARADISE LOST, MASTERPLAN, АРИЯ и откуда-то выловленная малоизвестная сейчас hard-rock группа ZODIAC MINDWARP. Хорошо, что у тяжёлой музыки появился хоть один спонсор. Видимо, в RoverComputers кто-то любит heavy-metal и готов потратить на него деньги. Надеюсь, у этого кого-то разносторонние вкусы и в будущем мы увидим достаточное количество разнообразных зарубежных звёзд. В этот раз состав был достаточно странным. HELLOWEEN и PARADISE LOST уже выступали в России, MASTERPLAN всё-таки ещё недостаточно заслуженная группа, а про ZODIAC упомяну отдельно в абзаце, посвящённом их выступлению, а то и сказать будет нечего. Была ещё АРИЯ с англоязычной программой, что, конечно, интересно, но не настолько сильно, как выступление ещё одной западной группы. Билеты на шоу стоили довольно дорого (900 рублей в партер), что не остановило бы фэнов, если бы не вышеуказанные причины. А так – всего 2000 – 2500 зрителей на выдающемся событии. Не стоит забывать и о раннем начале концерта в рабочий день (17-30). Даже рекламная акция с бесплатной раздачей билетов и подарками цифровых фотокамер не спасла ситуации. В остальном, организация была на высшем уровне. Пять экранов над сценой с качественным изображением, почти весь концерт пиво, вежливое отношение милиции и security. TCI достигли очень высокого уровня в работе со зрителем, вероятно потому, что организовывают сейчас концерты не только для металлистов.</P>
+<P>Открывали концерт музыканты из отечественной группы ХИМЕРА, мною они остались незамеченными, так как не были заявлены в программе. На первую же “официальную” команду ZODIAC MINDWARP посмотреть удалось. Что ж. Если не быть слишком грубым скажу, на фига они, вообще, здесь были нужны? Тратить деньги на концерт второсортной glam-hard-rock группы? Под недружный гул малочисленных зрителей вокалист этой команды, у которой был контракт с POLYGRAM в 1988 (!!!) году, так весело снимал с себя пиджачок и томно смотрел в зал, что сразу становилось понятно, что когда-то он пользовался популярностью у девушек. Никчемная группа, уровня средненького клуба, попавшая непонятным образом в этот вечер в Москву. Отмечу, что выступление шло строго по расписанию, и Зодиаков бесцеремонно отключили, что и к лучшему.</P>
+<P>MASTERPLAN появились на сцене, опять же, строго по расписанию. Группа бывших участников HELLOWEEN и вокалиста Jorn Lande. На самом деле сказать больше о них и нечего, поэтому все так часто повторяют эту заученную информацию. Grapow и Kusch оказались не очень хорошими сочинителями музыкального материала. И если в составе HELLOWEEN их хватало на пару песен раз в два года, то весь альбом сочинить они, видимо, не в состоянии. Тяжёлые однообразные риффы, напрочь лишённые, присущей тем же HELLOWEEN, мелодики. Вытаскивает группу вокалист Lande, но согласитесь этого недостаточно. Lande много где пел, поэтому MASTERPLAN объективно заслуживает места только в общей толпе. Апофеозом сочинительской мысли стала песня, где Grapow нарочито играл модный рифф ничего не зажимая на грифе, а Jorn в это время старался выдавать что-то мелодичное.</P>
+<P>Англичане PARADISE LOST как будто бы попали не туда. В этой компании их танцевально-занудный электронный материал не попадал в струю. Более того, музыканты, в частности Holmes, выглядели замученно-отрешёнными, не выказывая ни особого желания, ни особого энтузиазма от пребывания в Москве. Стоя, как столбы, на сцене, они даже не отыграли свои положенные по графику 45 минут. Но основные претензии надо высказывать вокалисту. Мало того, что он не вытягивает даже собственные партии, записанные 8-10 лет назад, так он и не пытается это как-то замять. ‘As I Die’ – думал ли я когда-нибудь, что мне захочется выйти из зала, во время исполнения этой песни. С тихим шепотком, напевающим себе под нос ‘As I Die’ и приплясыванием в духе два притопа – три прихлопа, всё с той же кислой миной… Вот так звучит теперь этот супер-хит 1992 года. Дело не в материале, а в исполнении.</P>
+<P>Сейчас я выскажу крамольную мысль. Мне понравилось выступление АРИИ. Со сменой состава, в группу влили свежую кровь. Да, Холстинин выглядит всё таким же усталым, но новый вокалист Беркут отдувается за всех. Мне он ещё запомнился по выступлению в каком-то клубе в составе МАСТЕР лет 5 назад. На маленькой сценке Беркут умудрился тогда выглядеть так, как будто играет перед стадионом. Англоязычная программа и утяжелённое, можно сказать мясное, звучание делают группу вполне конкурентоспособной даже на западном рынке. Вполне можно было бы заработать хороших денег, подписавшись на какой-нибудь западный лэйбл. Конечно же, упёртые фанаты-пионеры вряд ли оценят подобный шаг, но деньги надо зарабатывать не здесь.</P>
+<P>Зрители уже порядком устали. Кстати, просто-таки необходимо создать возможность отдохнуть тем, кто занимает места в стоячем партере. Неудобные лавочки для одевания верхней одежды в гардеробе не в счёт. HELLOWEEN-то как раз и не выглядели уставшими. В прошлый свой приезд немцы расстроили некоторым отсутствием истинного желания. Тогда концерт получился вымученным и каким-то, одним из многих что ли. Про RoverFest подобного сказать нельзя. Отдохнувшие, полные желания HELLOWEEN наподдали всем под зад. Здесь стоит упомянуть о феномене их сэт-листа. Ни одной (!!!) песни с новой пластинки, всего через несколько месяцев после её выхода. Говорят, Weikath and Co отказывались играть на одной сцене с MASTERPLAN. Может быть по этой причине, они и отыграли все свои старые хиты, которые выглядят явно предпочтительней их современного творчества, а уж MASTERPLAN выглядели на их фоне просто угнетающе. В этот раз Deris даже поиграл с залом, на предмет того, какая его сторона громче поёт. Этот трюк мы уже видели в исполнении Dave Mustain из MEGADETH. Мне кажется, Deris немного перебрал с выражением своей антипатии к левой части зала. Постоянное изображение гениталий вряд ли может быть приятно как мужской, так и (тем более) женской части аудитории. В этот вечер у Andi это был больной вопрос. Ну, это мелкая критика, главное, что выступление основоположников немецкого power-metal было лучшим в тот день, и одним из лучших в Москве, вообще.</P>
+<P>Такие фестивали непременно должны быть. Как нам обещают, событие станет ежегодным, и это внушает оптимизм. Основным пожелание - сделайте более интересный подбор групп. Я мог бы написать целый абзац с названиями коллективов, но будем надеяться, что человеку, отвечающему за репертуар, кто-нибудь даст послушать эти великолепные пластики.</P><I></I>
+Автор: Vit Belov
+
+### 29.10.2003 news Helloween and Rage in Europe
+
+20.10. UK-London - Mean Fiddler<BR>21.10. NL-Hardenburg - Podium<BR>22.10. Stuttgart - Longhorn<BR>24.10. Berlin -Halford<BR>25.10. PL-Katowice - Spodek<BR>27.10. N-Oslo - Rockefella<BR>28.10. DK-Copenhagen - Amager Bio<BR>29.10. S-Stockholm - Arena<BR>31.10. S-Gothenburg - Lisebergshallen<BR>01.11. S-Malmo - KB<BR>02.11. Osnabr&uuml;ck - Hyde Park<BR>03.11. M&uuml;nchen - New Backstage<BR>05.11. CZ-Prag - T Mobile Arena<BR>06.11. HUN-Budapest - Petofi Hall<BR>07.11. SK-Zvolen - Sports Hall<BR>08.11. A-Wien - Planet Music<BR>10.11. CH-Z&uuml;rich - Rohstofflager<BR>11.11. I-Mailand - Alcatraz<BR>13.11. E-Valencia - Republica<BR>14.11. E-Barcelona - Razzmatazz<BR>15.11. E-San Sebastian - Anoeta<BR>17.11. P-Lissabon - Garage<BR>18.11. E-Granada - Ind Copera<BR>19.11. E-Madrid - Divino Aqualung<BR>21.11. F-Strassbourg - Laiterie<BR>23.11. B-Antwerpen - Hof Ter Lo<BR>25.11. NL-Tilburg - O13<BR>26.11. Lichtenfels - Stadthalle<BR>27.11. K&ouml;ln - Live Music Hall<BR>28.11. Hamburg - Docks
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 28.12.2003 news Helloween in USA
+
+15.01.2004 SAYREVILLE, NJ - Starland Ballroom ( USA) <BR>16.01.2004 FARMINGDALE, NJ - Downtown ( USA)<BR>17.01.2004 WORCESTER, MA - The Palladium ( USA) <BR>18.01.2004 SPRINGFIELD, VA - Jaxx ( USA) <BR>20.01.2004 ATLANTA, GA - The Masquerade ( USA) <BR>22.01.2004 HOUSTON, TX - Engine Room ( USA)<BR>23.01.2004 SAN ANTONIO, TX - White Rabbit ( USA) <BR>24.01.2004 DALLAS, TX - The Door ( USA) <BR>26.01.2004 WEST HOLLYWOOD, CA - Key Club ( USA) <BR>27.01.2004 SAN FRANSCISCO, CA - Slim&acute;s ( USA) <BR>
+Автор: Vit Belov
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 05.03.2004 news SHAMAN (Bra) подписали контракт с AFM
+
+<P>Бразильцы <B>SHAMAN (ex-ANGRA)</B> подписали долгосрочное соглашение с <B>AFM</B>. Первым релизом в рамках этого соглашения станет переиздание первого альбома группы '<B>Ritual</B>'. Вместе с диском будет доступен бонусный DVD '<B>Ritualive</B>'. В качестве приглашённых звёзд в записи концерта участвовали <B>Tobias Sammet</B> (<B>EDGUY</B>), <B>Michael Weikath</B>, <B>Andi Deris</B> (<B>HELLOWEEN</B>).</P>
+Автор: Vit Belov
+
+### 10.08.2004 news HELLOWEEN на SPV
+
+<P>По информации <B>Darkside.RU HELLOWEEN</B> заключили сделку с <B>SPV</B>&nbsp;и, соответственно, покинули <B>Nuclear Blast</B>.&nbsp;</P>
+<P>Из других новостей,&nbsp;в минувший уикэнд, один из создателей&nbsp;немецкой группы <B>HELLOWEEN</B> и ее бывший гитарист&nbsp;<B>Kai Hansen</B> (<B>GAMMA RAY</B>) устроил сюрприз всем поклонникам коллектива, выйдя на сцену во время выступления <B>HELLOWEEN</B> на <B>Wacken Open Air</B> и отыграв с ними две песни <B>"How Many Tears"</B>&nbsp;и <B>"Future World"</B>. </P>
+Автор: Vit Belov
+
+### 20.01.2005 news HELLOWEEN продолжают работу над новым альбомом
+
+<P><STRONG>HELLOWEEN</STRONG> продолжают работу над новым альбомом, который выйдет в этом году на <STRONG>SPV</STRONG>. Название для него группа пока не придумала, также, как и неизвестны названия песен.</P>
+Автор: Vit Belov
+
+### 20.01.2005 news HELLOWEEN continue to work on new album
+
+<P><STRONG>HELLOWEEN</STRONG> are going on to work on the new album, which will be released via<STRONG> SPV</STRONG> this year. The name of the CD and track-list are still unavailable.</P>
+Автор: Vit Belov
+
+### 12.02.2005 news HELLOWEEN заменили барабанщика
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Stefan Schwarzmann</STRONG> покинул <STRONG>HELLOWEEN</STRONG>. Бывший барабанщик <STRONG>UDO </STRONG>и <STRONG>RUNNING WILD</STRONG> больше не в группе, из-за музыкальных разногласий. <STRONG>Stefan</STRONG> согласился остаться в коллективе пока не будет найдена замена. И вот она найдена - это <STRONG>Dani Loble</STRONG> из <STRONG>RAWHEAD REXX</STRONG>. Он уже закончил запись партий для нового альбома.</FONT></P>
+Автор: Vit Belov
+
+### 12.02.2005 news Stefan Schwarzmann splited up with HELLOWENN
+
+<P><STRONG>HELLOWEEN</STRONG> and drummer <STRONG>Stefan Schwarzmann</STRONG> have parted ways amicably. The former <STRONG>RUNNING WILD</STRONG> & <STRONG>UDO </STRONG>drummer, who played the drums during the pumpkin heads' <STRONG>RABBIT DON`T COME EASY</STRONG> world tour, will not be playing for the Hamburg based band any longer. During the tour it became apparent to <STRONG>Stefan</STRONG> and to the rest of the members of <STRONG>Helloween</STRONG> that, although things were going extremely well on the human side of things, <STRONG>Stefan</STRONG> and the band did not entirely share the same views musically. Stefan decided to stay to help out the band during their pre-production until a replacement was found.</P>
+<P><STRONG>Dani Lцble</STRONG>, highly acclaimed ex-drummer of <STRONG>RAWHEAD REXX</STRONG> turned out to be the perfect man for <STRONG>HELLOWEEN</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.03.2005 news Первый сингл с нового альбома HELLOWEEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый сингл с нового, пока не названного альбома, <STRONG>HELLOWEEN</STRONG> выйдет 4 июля на <STRONG>SPV</STRONG> и будет называться "<STRONG>Come Alive</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 01.04.2005 news HELLOWEEN поменяли сингл
+
+<P>Первым синглом с будущего альбома <STRONG>HELLOWEEN</STRONG> станет "<STRONG>Mrs. God</STRONG>", а не "<STRONG>Come Alive</STRONG>", как сообщалось ранее. Дата релиза: 4 ию<FONT size=2>л</FONT>я. Сингл будет содержать также один неальбомный трэк, один альбомный, а также видео на заглавную песню, которое будет снято в начале мая. Сам же, пока не названный альбом, выйдет 31 октября на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.06.2005 news Новый альбом HELLOWEEN - слухи подтвердились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> HELLOWEEN</STRONG> будет называться <STRONG>"Keeper of the Seven Keys - The Legacy". </STRONG>Напомним, что он выйдет 31 октября на<STRONG> SPV</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 05.07.2005 news Вышел сингл HELLOWEEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2005.07/8937.jpg" width=300 align=right border=5>Вчера в продаже появился новый сингл <STRONG>HELLOWEEN "Mrs. God"</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Mrs. God</STRONG> (Deris/Deris)<BR>2. <STRONG>My Life For One More Day</STRONG> - Single Edit Version (Grosskopf,Deris/Grosskopf,Deris)<BR>3. <STRONG>Run (The Name Of Your Enemy)</STRONG> - Exclusive Single Bonus Track (Gerstner/Deris,Gerstner)<BR>4. <STRONG>Mrs. God</STRONG> Video</P>
+Автор: Vit Belov
+
+### 05.07.2005 news New single from HELLOWEEN
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news/2005.07/8938.jpg" width=300 align=right border=5>Yesterday new single of <STRONG>HELLOWEEN "Mrs. God"</STRONG> was out. Track-list:</P>
+<P>1. <STRONG>Mrs. God</STRONG> (Deris/Deris)<BR>2. <STRONG>My Life For One More Day</STRONG> - Single Edit Version (Grosskopf,Deris/Grosskopf,Deris)<BR>3. <STRONG>Run (The Name Of Your Enemy)</STRONG> - Exclusive Single Bonus Track (Gerstner/Deris,Gerstner)<BR>4. <STRONG>Mrs. God</STRONG> Video</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 04.07.2006 news Российский тур HELLOWEEN
+
+<P>Немецкие музыканты <STRONG>HELLOWEEN</STRONG> объявили даты российско-украинского тура:</P>
+<P>5 октября -&nbsp;Екатеринбург - концертный зал Космос<BR>6 октября&nbsp;- Уфа -&nbsp;клуб Огни Уфы&nbsp;<BR>7 октября&nbsp;-&nbsp;Киев -&nbsp;ДК НАУ&nbsp;<BR>8 октября&nbsp;-&nbsp;Москва - ДК Горбунова<BR>10 октября&nbsp;-&nbsp;Санкт-Петербург - клуб Порт</P>
+<P>&nbsp;</P>
+Автор: Dimas
+
+### 25.07.2006 reviews Легендарная power-тыква наносит ответный удар
+
+<P>… Сначала – небольшое лирическое отступление. Думаю, все знают, какой успех получила сравнительно недавно вышедшая книга Дэна Брауна «Код Да Винчи». В каких тиражах она вышла, какие средства собрала… В не мерянных. И вот, рюхнув, так сказать, фишку, издатели всего, чего только можно, принялись рвать на части новый брэнд и рубить бабки почем зря. Например, в нашей редакции почти на всех обложках, посылаемых на утверждение руководству, стабильно появляется резолюция – «А нельзя ли в название вставить слово «Код»? И – приходится, и совершенно не важно, о чем эта книга и как она именовалась до этого. Например, изначально запланированное автором название «Укус змеи» чудесным образом трансформировалось в «Код Бога»… Примеров таких – преизрядно. Слово «Код» стало мощной и очень успешной торговой маркой. Которую активно используют…</P>
+<P>… Это я к чему? А к тому, что тыквоголовые тоже явно не дураки и тоже преуспели в рыночных делах. Ход был использован практически беспроигрышный – сделать ставку на знаменитый брэнд «Хранителя семи ключей» и тем самым упрочить свои позиции на мировой метал-сцене. Это ж сколько металхэдов купилось на «продолжение “Keeper Of The Seven Keys”»!.. И мало кто, думаю, обратил внимание на приставку “The Legacy” в названии (хотя музыканты в многочисленных интервью честно предупреждали, что это никак НЕ третья часть «Хранителя»).</P>
+<P>Альбом получился, безусловно, хороший – тут мне нечего сказать, отцы постарались на славу. Power metal высочайшего качества, в котором есть все фирменные фишки HELLOWEEN – запоминающаяся мелодика, эпичность (например, “The King For 1000 Years”), юмористический настрой “happy, happy helloween” – великолепная композиция “Mrs. God” (не зря ее еще и синглом сделали), энергетика – “Invisible Man”, ну, и, разумеется – красивая баллада “Light The Universe” (которую Дерис спел вместе с Кендис Найт из сами знаете откуда). Крепкая и интересная работа – на мой, разумеется, взгляд. Потом, не могу не отметить весьма грамотный, на мой взгляд, ход – разделение альбома на два диска (а ля классические 2 LP), хотя - по времени он запросто влез бы и на один. Именно поэтому “The Legacy” не утомляет и не приедается, как многие альбомы такой длины. Хороший релиз…</P>
+<P>… Но – не стоило Вейкату сотоварищи так бессовестно юзать наследие, не стоило… Какой «Кипер» может быть без - простите уж великодушно, - Кая Хансена и Михаэля Киске? Никакого. И вот этот вот маркетинговый ход с «Кипером» – он таки оставляет неприятный осадок…</P>
+Автор: Dr. Grandma
+
+### 28.08.2006 news HELLOWEEN выпустят сингл
+
+<P><STRONG><IMG height=266 alt="" hspace=0 src="/images/news_rus/2006.08/10639.jpg" width=400 align=left border=5>HELLOWEEN</STRONG> вернулись из замка <STRONG>Veldenstein</STRONG>, где снимали клип на песню <STRONG>"Light The Universe</STRONG>". Эта композиция стала первой в истории группы, где фэны смогут услышать дуэт. Вместе с <STRONG>Andy Deris</STRONG> споёт <STRONG>Candice Night</STRONG> (<STRONG>BLACKMORE'S NIGHT</STRONG>). Новый сингл "<STRONG>Light The Universe</STRONG>", на который войдёт этот клип, как бонус, выйдет в начале ноября. Кроме этого, <STRONG>HELLOWEEN</STRONG> обещают концертную <STRONG>"If I Could Fly"</STRONG> и ещё один бонус.</P>
+Автор: Vit Belov
+
+### 18.10.2006 news Michael Kiske перепоёт наследие HELLOWEEN
+
+<P><STRONG>Michael Kiske</STRONG> обнародовал свои планы на новый релиз, который выйдет на <STRONG>Frontiers</STRONG>. Певец собирается переиграть акустически все хиты<STRONG> HELLOWEEN</STRONG>, к которым он имел отношение. Всё пока на уровне переговоров, но <STRONG>Michael</STRONG> считает, что этот проект будет интересен.</P>
+Автор: Vit Belov
+
+### 12.12.2006 news HELLOWEEN выпускают концертник
+
+<P><STRONG>SPV</STRONG> сообщили подробности о нового релизе <STRONG>HELLOWEEN</STRONG> концертном CD/DVD <STRONG>"Keeper Of The Seven Keys - The Legacy World Tour 2005/2006 - Live On 3 Continents". </STRONG>Трэк-лист:</P>
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2006.12/11068.jpg" width=332 align=right border=5>DVD 1:<BR><BR>01. <B>Intro</B> (Sao Paulo)<BR>02. <B>The King For A 1000 Years</B> (Sao Paulo)<BR>03. <B>Eagle Fly Free</B> (Sao Paulo)<BR>04. <B>Hell Was Made In Heaven</B> (Sao Paulo)<BR>05. <B>Keeper Of The Seven Keys</B> (Sao Paulo - alternate view Sofia)<BR>06. <B>A Tale That Wasn't Right</B> (Sao Paulo - alternate view Sofia)<BR>07. <B>Drum Solo</B> (Edit from Sao Paulo, Sofia and Tokyo)<BR>08. <B>Mr. Torture</B> (Sao Paulo - alternate view Tokyo)<BR>09. <B>If I Could Fly</B> (Sao Paulo)<BR>10. <B>Guitar Solo</B> (Edit from Sao Paulo, Sofia and Tokyo)<BR>11. <B>Power</B> (Sao Paulo)<BR>12. <B>Future World</B> (Sao Paulo)<BR>13. <B>The Invisible Man</B> (Sao Paulo)<BR>14. <B>Mrs. God</B> (Sao Paulo)<BR>15. <B>I Want Out</B> (Sao Paulo - alternate view Sofia)<BR>16. <B>Dr. Stein</B> (Sao Paulo - alternate view Tokyo)<BR>17. <B>Outro</B> (Sao Paulo)<BR><BR>DVD 2:<BR><BR>01. <B>Mrs. God</B> (Sao Paulo)<BR>02. <B>Halloween</B> (Masters Of Rock, Vicovice CZ)<BR>03. Roadmovie, Interviews, <B>"Mrs. God"</B> (Video Clip), <B>"Light The Universe"</B> (Video Clip). <BR><BR><B>"Keeper Of The Seven Keys - The Legacy World Tour 2005/2006 - Live In Sao Paulo"</B> CD <BR><BR>Track listing: <BR><BR>CD 1:<BR><BR>01. <B>Intro</B><BR>02. <B>The King For A 1000 Years</B><BR>03. <B>Eagle Fly Free</B><BR>04. <B>Hell Was Made In Heaven</B><BR>05. <B>Keeper Of The Seven Keys</B><BR>06. <B>A Tale That Wasn't Right</B><BR>07. <B>Mr. Torture</B><BR>08. <B>If I Could Fly</B><BR>09. <B>Power</B><BR><BR>CD 2:<BR><BR>01. <B>Future World</B><BR>02. <B>The Invisible Man</B><BR>03. <B>Mrs. God</B><BR>04. <B>I Want Out</B><BR>05. <B>Dr. Stein</B><BR>06. <B>Occasion Avenue</B><BR>07. <B>Halloween</B> </P>
+Автор: Vit Belov
+
+### 19.12.2006 news Вышел новый номер ALIVE #4 (26), 2006!
+
+<IMG height=339 alt="" hspace=50 src="/images/news_rus/2006.12/11107.jpg" width=250 align=right border=0>Вышел новый номер ALIVE #4 (26), 2006!<BR><BR>В этом номере ALIVE вы сможете прочитать о <B>RAMMSTEIN, RHAPSODY, AUDIOSLAVE, HELLOWEEN, LAKE OF TEARS, HADES, THE ARROW, UNLEASHED, WALTARI, "ФАКТОР СТРАХА", DIAMOND NIGHTS, END OF YOU, YENZ LEONHARDT</B> и <B>ENS COGITANS</B>.<BR><BR>Помимо изменений в дизайне и верстке, с этого номера журнал стал более разнообразным: наряду с интервью и рецензиями в журнале появились аналитические материалы, авторские колонки, эссе, а также возрождены парочка "старых" рубрик - Fire & Ice и Kulture Klub.<BR><BR>Традиционные разделы новостей и рецензий на CD и DVD дополнены обзором наиболее интересных кинолент последних месяцев (Kulture Klub).<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR>
+Автор: Ixtiandr
+
+### 02.02.2007 news Kiske, Hansen, Grapow - новый HELLOWEEN?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В интервью <STRONG>Laestadia.com</STRONG> гитарист <STRONG>MASTERPLAN Roland Grapow</STRONG> сделал сенсационное заявление. Он рассказал, что готовится новый проект, в котором примут участие три бывших музыканта <STRONG>HELLOWEEN</STRONG> разных времён: он, <STRONG>Michael Kiske</STRONG> и <STRONG>Kai Hansen</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>К сожалению, <STRONG>Michael Kiske</STRONG> не хочет исполнять тяжёлый и мрачный материал, поэтому музыка новой группы будет соответствующей. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Нетяжёлой и немрачной, наверное.</FONT></P>
+Автор: Vit Belov
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 02.05.2007 reviews Есть хорошая примета - тыквы катятся по свету
+
+<P>За более чем 20 лет существования самая известная пауэр-метал-группа планеты Helloween записывает всего лишь третий концертный альбом. Почему "всего"? Просто сегодня стало уже совершенно нормальным явлением, когда рок-банда выпускает один-два альбома и уже рвется сделать концертник или хотя бы сборник. Но я отвлекся. Прежде всего, хочется сказать, что Helloween давно уже всё и всем сказали и доказали. Что бы эти немецкие ребята не записали, как бы не выступили на концертах - их пластинки будут покупать тысячи и тысячи фанатов, а шоу будут привлекать такое количество публики, о котором многие коллективы могут только мечтать. После выпуска весьма неоднозначно воспринятого альбома "Keeper Of The Seven Keys - The Legacy" "тыквоголовые" отправились в обширный тур, в ходе которого дали более ста концертов в сорока странах по всему миру. Основой для данного CD явилось выступление группы в Сан-Паулу 25 марта 2006 года, на котором, между прочим, присутствовало более шести тысяч фанатов (цифра слабопредставимая для меломана из России, где количество публики на "тяжелом" концерте в 1500-2000 человек уже кажется потолком). Как ни странно, сет-лист на диске содержит не так уж и много песен с нового альбома (всего четыре). Немало внимания было уделено первым двум "киперам", также были выбраны две песни с "Dark Ride" и по одной с "Rabbit Don't Come Easy" и&nbsp;"The Time Of The Oath". Забегая вперед, скажу, что весьма удивительным моментом было включение на альбом аж четырех очень длинных вещей (из них 'Occasion Avenue' была записана в Токио, а 'Halloween' во время выступление группы на фестивале Masters Of Rock в чешском Визовице). Возвращаясь к бразильскому шоу, хочется прежде всего отметить великолепный прием публики. Фэнов слышно постоянно, а не только в перерывах между песнями, создается такое впечатление, что они пропели все-все вещи вместе с "тыквоголовыми"! Представляю, что творилось в реале в Сан-Паулу, если даже на диске великолепно передана потрясающая атмосфера, которая царила во время шоу группы! После первого прослушивания "Live In Sao Paulo" звук мне показался довольно кашеобразным, но потом я понял, что такое впечатление создалось скорее всего из-за того, что Дэрис не всегда, мягко говоря, на высоте. На песнях, которые были написаны "под него", он звучит весьма неплохо, а вот на более ранних вещах голос Энди начинает дрожать и, проще говоря, не вытягивает. В остальном же группа в прекрасной форме, в прекрасном настроении и до сих пор в состоянии обеспечить своим фанатам настоящий праздник. Как вы понимаете, на каждого меломана не угодишь, и всегда найдутся недовольные сет-листом, но, думаю, что любых скептиков устроят такие номера, как 'Future World', 'I Want Out', 'Dr. Stein' или 'If I Could Fly'. Так что для всех любителей Helloween данный концертник просто обязателен к приобретению, ну а если вы явлетесь таковым любителем и умудрились до сих пор не побывать ни на одном концерте группы, то я посоветовал бы вам приобрести двойной DVD, а еще лучше - формат 2CD+2DVD (который выпускался только в Европе).</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 13.05.2007 news HELLOWEEN начали запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>HELLOWEEN</STRONG> вчера начали запись нового альбома в личной студии <STRONG>Andi Deris</STRONG>. Дата релиза назначена на праздник Хэловин 31 октября в этом году. Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 12.06.2007 news Название нового HELLOWEEN
+
+<P><STRONG>HELLOWEEN </STRONG>назвали новый альбом "<STRONG>Gambling With The Devil</STRONG>". напомним, пластинка должна выйти на Хэлловин в конце октября.</P>
+Автор: Vit Belov
+
+### 24.08.2007 news Новый альбом HELLOWEEN
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.08/11832.jpg" width=400 align=left border=5>HELLOWEEN</STRONG> объявили об окончании записи своего нового альбома <STRONG>"Gambling With The Devil"</STRONG>. Пластинка выйдет 29 октября этого года. Альбом вновь будет концептуальбным и будет содержать три части: <STRONG>"The Bells Of The Seven Hells"</STRONG>, <B>"Falling To Pieces"</B>&nbsp;и <STRONG>"I.M.E.". </STRONG>В&nbsp;записи принял участие фронтмэн <STRONG>SAXON</STRONG> <STRONG>Biff Byford.</STRONG></P>
+Автор: Vit Belov
+
+### 03.11.2007 reviews Один из лучших альбомов HELLOWEEN в XXI веке
+
+<P>Хвалить HELLOWEEN в последнее время не принято. Все «по инерции» покупают новые диски группы, но никто уже ничего выдающегося от немцев не ждёт. После смен состава и выпуска нескольких средненьких альбомов «классики» лишились лидирующих позиций и рисковали повторить судьбу многих «классиков» в других жанрах.</P>
+<P>Предыдущая работа “Keeper Of The Seven Keys Part III” также вызвала только улыбку. Жалкая попытка погреться лучами славы 20-летней давности, к которой непосредственное&nbsp; отношение имели отнюдь не все нынешние участники группы. Любые возможные способы получить удовольствие от той работы разбивались о её длительность. Два диска power-metal – неудачный эксперимент. Лично мне второй ставить в проигрыватель очень не хотелось.</P>
+<P>И вот новый альбом, вышедший в России и в Европе в канун праздника Хелловин, как положено. “Gambling With The Devil” может посоперничать за звание лучшего альбома группы в 21 веке. Не очень лестный титул, если учесть, что более менее удачным за этот период можно назвать только “Dark Ride”. Именно на том альбоме выделялся последний «радио-хит» группы “If I Could Fly”, и «кролик», и «третий кипер» в этом смысле прошли мимо. На новой работе можно отыскать несколько очень не плохих вещей. В особенности это относится в «открывашке» “Kill It”. Забойная и мелодичная вещь с запоминающейся лирикой, где Дерис даёт Хансена. Что ж, по крайней мере, одного бывшего вокалиста Энди копировать научился. Альбом наполнен классическими для HELLOWEEN вещами, при этом не забывается ни один из периодов существования коллектива, что добавляет пластинке разнообразия.</P>
+<P>Всё равно этот альбом все послушают, и все составят своё собственное мнение. Я же выражу сдержанный оптимизм. Группа записала хорошую приятную пластинку, которая вряд ли станет бомбой и тем более не дотянет до классики power-metal, но слушать её можно и даже нужно.</P>
+Автор: Vit Belov
+
+### 06.11.2007 reviews Второе возвращение тыквоголовых, или Бегемот проснулся
+
+<P>После прослушивания нового опуса самой известной пауэр-команды планеты можно сделать только один вывод: он удался. Выкинуты за борт дурацкие кролики и спекулятивные эксперименты на старом багаже. За основу был взят лучший альбом "новых" Helloween, "Dark Ride", и от него, как от печки, стали плясать. Смешав в один котёл темные настроения и светлые сполохи времен более старых. Мрачность и мелодизм, вот что сегодня является определяющим фактором для Helloween. Приятно, что группа смогла отряхнуться от обузы совершенно неудачных предыдущих двух работ и сделать что-то, что можно назвать опять фирменной маркой Helloween. Во всяком случае, добрая половина песен с "Gambling With The Devil" вполне подойдет для концертного исполнения; там слышен и&nbsp;"старый добрый стиль", и наиболее удачные эксперименты с мрачного "Dark Ride". Глупо ждать от группы хитов аля 'I Want Out' или&nbsp;'Dr Stein', это всё осталось в прошлом, а группа должна эволюционировать, что она с успехом и делает. Helloween образца 2007-го года мне напоминает бегемота, который, пролежав энное количество часов в большой грязевой луже, потом приподнялся и элегантно - или не очень, учитывая его габариты - стряхнул с себя всю эту прилипшую гадость недавних лет и пошел старой проторенной дорожкой, к водопою ли, или еще куда. Вряд ли можно будет зачислить ""Gambling With The Deivl" к лучшим творениям группы за всю их историю, но уж после "Dark Ride" это лучшее, что сделали - и могли сделать - Вайки и Со. Ну а фанатам, как всегда с Helloween, надо приготовить кошелек. Ибо разных вариантов - как и сингла - к альбому хоть отбавляй, а наиболее продвинутые коллекционеры непременно должны озаботиться приобретением японского лимитированного дигипака первого прессинга, где в нагрузку дадут аж "промо-полотенце для рук"!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 19.11.2007 news HELLOWEEN и GAMMA RAY стартовали в Будапеште
+
+<P>В пятницу 16 ноября в Будапеште стартовал широко разрекламированный совместный тур <STRONG>HELLOWEEN</STRONG> и <STRONG>GAMMA RAY</STRONG> <STRONG>"Hellish Rock '07-08". </STRONG>Изданию<STRONG> Blabbermouth</STRONG> стали известны сэт-листы выступлений групп: </P>
+<P><STRONG><IMG height=285 alt="Hansen, Weikath, Deris на одной сцене" hspace=0 src="/images/news_rus/2007.11/11980.jpg" width=383 align=right border=5>GAMMA RAY</STRONG>:<BR>01. <B>Intro: Welcome</B><BR>02. <B>Heaven Can Wait</B> <BR>03. <B>New World Order</B> <BR>04. <B>Land Of The Free</B> <BR>05. <B>Fight</B> <BR>06. <B>Into The Storm</B> <BR>07. <B>Real World</B> <BR>08. <B>Rebellion In Dreamland</B> <BR>09. <B>Heavy Metal Universe</B> <BR>10. <B>The Silence</B> <BR>11. <B>Ride The Sky</B> <BR>12. <B>Valley Of The Kings</B> <BR>Encore: <BR>13. <B>Send Me A Sign</B><BR><BR><B>HELLOWEEN</B>: <BR>01. <B>Halloween</B><BR>02. <B>Sole Survivor</B><BR>03. <B>March Of Time</B><BR>04. <B>As Long As I Fall</B><BR>05. <B>Eagle Fly Free</B><BR>06. <B>Paint A New World</B><BR>07. <B>A Tale That Wasn't Right</B><BR>08. <B>Drum Solo</B><BR>09. <B>The Bells Of The Seven Hells</B><BR>10. <B>We Burn</B><BR>11. <B>King For A 1000 Years</B><BR>12. <B>Dr. Stein</B><BR>13. Medley: <B>I Can</B> / <B>Where The Rain Grows</B> / <B>Perfect Gentleman</B> / <B>Power</B> / <B>If I Could Fly</B> / <B>Steel Tormentor</B> / <B>Keeper Of The Seven Keys</B><BR>14. <B>Future World</B> (with GAMMA RAY)<BR>15. <B>I Want Out</B> (with GAMMA RAY)</P>
+Автор: Vit Belov
+
+### 19.11.2007 news Басист HELLOWEEN выпускает сольник
+
+<P><STRONG>Frontiers</STRONG> выпускают сольный альбом басиста <STRONG>HELLOWEEN Markus Grosskopf</STRONG>'s <STRONG>BASSINVADERS</STRONG> под названием <STRONG>"Hellbassbeaters"</STRONG> 25 января 2008 года. Интересно, что пластинка была записана, как heavy-hard альбом без участия гитаристов. За драйв в звучании отвечают исключетельно бас-гитаристы. <STRONG>Markus</STRONG> пригласил помочь себе знаменитых поющих басистов, в частности <STRONG>Peavy</STRONG> из <STRONG>RAGE</STRONG> и <STRONG>Schmier</STRONG> из <STRONG>DESTRUCTION</STRONG>. Трэк-лист:</P>
+<P>01. <B>Awakening the Bass Machine</B><BR>02. <B>We Live</B><BR>03. <B>Armageddon</B><BR>04. <B>Romance In Black</B><BR>05. <B>Godless Gods</B><BR>06. <B>Empty Memories (Breaking Free)</B><BR>07. <B>Boiling Blood</B><BR>08. <B>Far Too Late</B><BR>09. <B>The Asshole Song</B><BR>10. <B>Dead From the Eyes Down</B><BR>11. <B>Razorblade Romance</B><BR>12. <B>Voices</B><BR>13. <B>Eagles Fly Free</B> (HELLOWEEN cover)<BR>14. <B>To Hell And Back</B> (bonus track for Europe)</P>
+<P>Приглашённые музыканты:</P>
+<P>Bass:<BR><B>Billy Sheehan</B> (STEVE VAI, MR. BIG, DAVID LEE ROTH)<BR><B>Rudy Sarzo</B> (DIO, OZZY OSBOURNE, WHITESNAKE, QUIET RIOT)<BR><B>Lee Rocker</B> (STRAY CATS)<BR><B>Marco Mendoza</B> (THIN LIZZY, WHITESNAKE, TED NUGENT)<BR><B>DD Verni</B> (OVERKILL)<BR><B>Wyzard</B> (MOTHER'S FINEST)<BR><B>Dirk Schl&#228;chter</B> (GAMMA RAY)<BR><B>Joey Vera</B> (ARMORED SAINT, FATES WARNING, ANTHRAX)<BR><B>Stig Pedersen</B> (D.A.D)<BR><B>Nibbs</B> (SAXON)<BR><B>Tobias Exxel</B> (EDGUY)<BR><B>Jens Becker</B> (GRAVE DIGGER, RUNNING WILD)<BR><B>Dennis Ward</B> (PINK CREAM 69)<BR><B>Peter Baltes</B> (ACCEPT)<BR><B>Jan S. Eckert</B> (MASTERPLAN)<BR><B>Michael Muller</B> (JADED HEART)<BR>Vocals:<BR><B>Apollo Papathanasio</B> (FIREWIND, TIME REQUIEM, EVIL MASQUERADE, MAJESTIC) <BR><B>Jesper Binzer</B> (D-A-D) <BR>Drums:<BR><B>Andre Hilgers</B> (RAGE, AXXIS, SILENT FORCE)<BR><B>Stefan Arnold</B> (GRAVE DIGGER)</P>
+<P>MP3 сэмплы: <A href="/ru/band/markus_grosskopf_s_bassinvaders/13391/">http://musica.mustdie.ru/ru/band/markus_grosskopf_s_bassinvaders/13391/</A></P>
+Автор: Vit Belov
+
+### 26.11.2007 articles Новый HELLOWEEN: Michael Weikath не успел сочинить много песен!
+
+<P><IMG height=297 alt="" hspace=0 src="/images/articles_rus/2007.11/12006.jpg" width=400 align=left border=5>31 октября в свет вышел новый альбом HELLOWEEN “Gambling With The Devil”. Понятно, что лучше даты для выхода новой пластинки немецкие классики power-metal придумать не могли. После если не провального, то достаточно спорного двухдискового альбома “Keeper Of The Seven Keys, The Legacy”, HELLOWEEN надо было постараться, чтобы вернуть себе пошатнувшееся доверие поклонников. Уже сейчас ясно, группе это удалось. Отказавшись от излишней замороченности и поисков нового звучания, коллектив выдал небольшую кучку хитов, приправленных добротными песнями «в своём духе». Ближайшим родственником “Gambling With The Devil” можно назвать вышедший в 2001 году “Dark Ride”. Что ни говори, а это был последний диск, песня с которого “If I Could Fly” стала несомненным хитом, который HELLOWEEN могут включать в любой сборник. На хитовость новый альбом проверит время, но мне почему-то кажется, что они, эти самые хиты, там найдутся.</P>
+<P>Пластинка стартовала в чартах во многих странах мира. Самые лучшие продажи в Японии, где группу всегда готовы были носить на руках, третье место в чартах исполнителей не резидентов, Чехии (10-е место), Греции (16-е), Великобритании (18-е в чарте рок-исполнителей). В списки группа попала и в других странах: в Финляндии, в&nbsp;Франции, в Германии,&nbsp;в Италии, в Норвегии, в Швеции, в Швейцарии и даже в США. У нас подобных рейтингов составлять ещё не принято, но среди металл-рок альбомов, появившихся в продаже в конце октябряна&nbsp;на лицензии, HELLOWEEN тоже равных не было. В развитых странах также доступно лимитированное двухдисковое издание альбома, вышедшее тиражом 50000 экземпляров. На второй диск попали две дополнительных песни, видео на песню “As Long As I Fall”, а так же “maiking of” материалы. Интересно, что, соответствуя концепции альбома, связанной с азартными играми, в это первое издание попал специальный билет с паззлом, разгадав который фэны имеют шанс получить первый приз. Поездку на шоу группы в США,&nbsp;включающую&nbsp;встречу с группой, пропуск за сцену и оплаченный авиаперелёт.</P>
+<P>Многим могло показаться, что “Gambling With The Devil” был записан очень быстро. Ведь после столь масштабной работы, как третья часть «киперов», группе должен был понадобиться отдых. Видимо, дела шли не очень хорошо, поэтому лэйбл настоял на записи альбома в кратчайшие сроки. Рассказывает гитарист Sascha Gerstner: «SPV сказали нам, что было бы лучше всего, чтобы альбом появился в продаже как можно быстрее. Мы были достаточно умны, чтобы воспользоваться современными технологиями. Интернет-сервер стал нашей репетиционной базой. Каждый сидел дома и загружал свои идеи и песни. Мы также репетировали и даже писали тексты с помощью Skype. Это сберегло нам кучу времени и денег. На запись “The Legacy” мы потратили три месяца, но с этой пластинкой у нас не было столько времени. Предвкушая вопросы о тяжести и сырости звучания, скажу, что альбом звучит так, как хочет группа, и спешка не отразилась на качестве». Забавно, что лучшие альбомы HELLOWEEN в последнее время связаны, как раз, с сырым и тяжёлым звучанием, ну, в рамках стиля, конечно же. Кроме “Dark Ride”, можно вспомнить и “Better Than Raw”, который звучал очень интересно. </P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/cHWK0gzIgM0&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/cHWK0gzIgM0&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<CENTER class=sign><FONT color=#ffffff>видеоклип "As Long As I Fall"</FONT></CENTER>
+<CENTER>&nbsp;</CENTER>
+<P>Здесь позволю себе очередное лирическое отступление. По работе часто общаюсь с потребителями тяжёлой музыки, и, честно говоря, не могу припомнить очень хороших отзывов о предыдущем альбоме HELLOWEEN. Даже самые ортодоксальные любители группы скромно молчат в сторонке, стараясь не обижать своих кумиров. Но вот Саша Герстнер в продолжение своего рассказа говорит: «Было тяжело работать над “Gambling With The Devil”, потому что предыдущий альбом получил высочайшую оценку фэнов и критики, мы старались удержаться на этом уровне. Работа была очень интересна. Marcus Groskopf записывался в Гамбурге, Michael Weikath и я записывались в моей студии, барабаны и вокал в студии Andi Deris на Тенерифе. Продюсер Charlie Bauerfeind был вынужден&nbsp;переезжать с места на место, чтобы записывать всё это. Он был нашим связующим звеном». </P>
+<P>Но были и не лучшие альбомы в биографии Саши и HELLOWEEN особенно альбом, выходивший ещё на Nuclear Blast. «Я пришёл в группу перед записью “Rabbit Don’t Come Easy”. Тот альбом был записан в спешке, я не понимал, что происходит в группе, не был до конца её частью. У нас были проблемы с барабанщиком в тот период. Затем мы отправились в тур, где мне пришлось выслушать многое от фэнов, из-за моего внешнего вида. До этого я работал в поп-музыке, и придя в легендарную металл-группу был немного не в своей тарелке. А вот уже “Legacy” мы записывали более спокойно и планомерно. Группа прислушалась к моим идеям, которые и были использованы в некоторых песнях. Правда, перед записью альбома менеджмент пришёл ко мне и попросил поработать над причёской. Я нашёл какой-то компромисс, но становиться настоящим длинноволосым металлистом я не собираюсь».</P>
+<P>Ну, хватит слушать этого любителя «попсы», обратимся к одному из корифеев и лидеру HELLOWEEN Михаэлю Вейкату. В одном из интервью он рассказал о собственном впечатлении от нового альбома: «Я очень&nbsp;доволен этой пластинкой. Когда все песни были готовы, я послушал их и был действительно впечатлён результатом. Мы сочинили ещё две песни, которые войдут&nbsp; на бонус-диск. Они не влезли на “Gambling With The Devil”. Знаете, я не очень люблю альбомы, которые длятся слишком долго, повышенная длительность не помогает сохранять интерес к пластинке…» Здесь троеточие… Ещё одно. «Мы хотели сделать более компактную пластинку, как первый «кипер», который длился всего 37 минут». Всё-таки мастерство не пропьёшь и.т.п. Правда ведь, товарищи? Вейки сразу понял, в чём «корень зла» на его последнем творении “Keeper Of …. The Legacy”.</P>
+<P>В общем-то, Вейкат немного устал. В частности, в отличие от Саши он недоволен тем, что пришлось сочинять материал слишком быстро. По признанию гитариста, он привык более тщательно подходить к сочинению риффов, поэтому часто ему не хватает времени сочинять достаточное количество песен.</P>
+<P>Есть&nbsp;вопросы, которые интересны всегда. Что думает Михаэль о сравнениях Michael Kiske и Andi Deris? Пускай прошло уже более десяти лет. До сих пор появляются горячие головы готовые об этом спорить. «Я рад, что Киске ушёл», - сразу огорошивает Вейки. «Он всегда пел одинаково. Это всё равно, как слушать QUEENSRYCHE, Tate обладает фантастическим вокалом, но поёт всё время одинаково. Я предпочитаю иметь в группе певца, который умеет петь по-разному. Энди всегда старался разнообразить свой вокал, включать другую технику, чтобы не быть похожим на Киске, но он в любой момент может спеть как он. Я знаю несколько человек, которые думают, что Киске спел несколько моментов на “Gambling With The Devil”, это же сделал Энди. Также Михаэль никогда не соглашался кричать, что Энди делает с лёгкостью, и это добавляет разнообразия моей музыке». Очень спорное утверждение.</P>
+<P><IMG height=297 alt="" hspace=0 src="/images/articles_rus/2007.11/12005.jpg" width=400 align=left border=5>Ещё одной новостью стал совместный тур HELLOWEEN с GAMMA RAY, группой ещё одного корифея Kai Hansen. Было время, когда такое было невозможно представить. Теперь же все объединились под флагом борьбы с надвигающейся бедностью, вызванной, как всегда, незаконным скачиванием из сети Интернет. «Да, наш менеджмент решил, что подобный вариант будет интересен. Честно говоря, я не был большим сторонником этой идеи, но сейчас всё сложилось удачно. И у них, и у нас выходят новые альбомы. Кай Хансен давно носится с этой идеей, но он предлагал другие концепции. Например, он предлагал менять хэдлайнера каждый день тура, под предлогом того, что мы продаём одинаковое количество пластинок. Теперь фэны смогут увидеть обе группы, но GAMMA RAY поедут в статусе «специальных гостей». После нашего сэта GAMMA RAY поднимутся на сцену и отыграют с нами несколько песен».</P>
+<P>Что ж, радует, что HELLOWEEN начали потихонечку оттаивать. По крайней мере, такой ситуации, как с «кроликом» больше не предвидится. Группа, приехав к нам во время тура в поддержку “Rabbit Don’t Come Easy”, не смогла найти ни одного хита на этом альбоме, чтобы втиснуть его в сэт. “Gambling With The Devil” действительно звучит свежо. Из двух гитаристов, рассказывавших нам истории, прав первый и молодой Саша. Быть может, из-за того, что Вейкат не успел сочинить много песен, мы и получили такой неплохой альбом? В январе выходит сольник басиста Гроскопфа, уже сейчас ясно, что он будет очень хорошим. Вот и послушаем, как мог бы звучать HELLOWEEN, если бы вся власть там не принадлежала Михаэлю Вейкату, который ответственен в группе за всё, и за успехи, и за неудачи, которых в последние годы было много больше.</P>
+Автор: Vit Belov
+
+### 06.01.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке
+
+<P>Мы возвращаем "в эфир" нашу рубрику TOP продаж. Её спонсором является магазин "<STRONG>Metal&Progressive</STRONG>" (B2-074 в торговом центре "<STRONG>Горбушкин Двор</STRONG>" на метро Багратионовская). В рейтинг попадают альбомы,&nbsp;лидеры&nbsp;продаж за последние два месяца. Сегодня представляем ноябрь и декабрь прошедшего года. Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=686 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 193pt; mso-width-source: userset; mso-width-alt: 9398" width=257>
+<COL style="WIDTH: 226pt; mso-width-source: userset; mso-width-alt: 11008" width=301>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17 x:num><FONT face="Times New Roman" size=2>1</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257 x:str="HELLOWEEN "><FONT size=2><STRONG><FONT face="Times New Roman">HELLOWEEN<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2><STRONG>GAMBLING WITH THE DEVIL</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>2</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>GAMMA RAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LAND OF THE FREE 2</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>3</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭПИДЕМИЯ</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭЛЬФИЙСКАЯ РУКОПИСЬ 2</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>4</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>TARJA TURUNEN</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>MY WINTER STORM</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>5</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NIGHTWISH</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DARK PASSION PLAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>6</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DIARY OF DREAMS</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEKROLOG 43</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>7</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PRIMAL FEAR</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEW RELIGION</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>8</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>EXODUS</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>THE ATROCITY EXHIBITION</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>9</FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PAIN</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PSALMS OF EXTINCTION</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>10</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LOST IN SPACE pt.1</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>11</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AT VANCE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VII</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>12</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMPIRE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CHASING SHADOWS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>13</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.2</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>14</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>АРКОНА</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ОТ СЕРДЦА К НЕБУ</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>15</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>XANDRIA</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SALOME<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>THE SEVENTH VEIL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>16</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>17</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAKRA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>INFECTED</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>18</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ-1</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>19</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>20</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SAMSAS TRAUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLIGES HERZ - DAS SCHWERT DEINER SONNE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>21</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUBWAY TO SALLY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>BASTARD</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>22</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KRUIZ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>23</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>DARKTHRONE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>F.O.A.D.</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>24</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SVARTSOT</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HEAVENS SAGA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>25</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EPICA</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE DIVINE CONSPIRACY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>26</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>AXEL RUDI PELL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2>DIAMONDS UNLOCKED</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>27</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARADISE LOST</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN REQUIEM</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>28</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>OVERKILL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IMMORTALIS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>29</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RIDE THE SKY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW PROTECTION</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>30</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VESANIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISTRACTIVE KILLUSIONS</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>31</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SYBREED</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ANTARES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>32</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KORPIKLAANI</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TERVASKANTO</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>33</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAMAN</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="IMMORTAL  "><FONT size=2><FONT face="Times New Roman">IMMORTAL<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>34</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JADED HEART</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SINISTER MIND</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>35</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>36</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>37</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SOILWORK</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWORN TO A GREAT DIVIDE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>38</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MAYHEM</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ORDO AD CHAO</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>39</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MARDUK</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ROM 5:12</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>40</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARY HUGHES</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VERITAS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>41</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>HANOI ROCKS</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>STREET POETRY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>42</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>U.D.O.</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MASTERCUTOR</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>43</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>RAINTIME</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>FLIES & LIES</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>44</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ONSLAUGHT</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KILLING PEACE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>45</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLRAISER</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>WE'LL BURY YOU</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>46</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GAINA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СНОВА ТВОЙ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>47</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MACBETH</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUPERANGELIC HATE BRINGER</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>48</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIMMU BORGIR</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN SORTE DIABOLI</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>49</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СЕРГЕЙ МАВРИН</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MADE IN ПИТЕР [DVD]</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>50</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JORDAN RUDESS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ROAD HOME</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 04.02.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В эфире "голосование деньгами" за декабрь-январь. <FONT color=#ddd9d0>Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</FONT></FONT></P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=686 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 193pt; mso-width-source: userset; mso-width-alt: 9398" width=257>
+<COL style="WIDTH: 226pt; mso-width-source: userset; mso-width-alt: 11008" width=301>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17><FONT face="Times New Roman" size=2><STRONG>1 (4)</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>TARJA TURUNEN</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2><STRONG>MY WINTER STORM</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>2 (NEW)</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>THE SCARECROW</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>3 (2)</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>GAMMA RAY</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LAND OF THE FREE 2</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>4 (5)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NIGHTWISH</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DARK PASSION PLAY</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>5 (18)</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>КРУИЗ</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>КРУИЗ-1</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>6 (17)</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>SHAKRA</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>INFECTED</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>7 (NEW)</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ANDRE MATOS</STRONG></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>TIME YO BE FREE</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>8 (1)</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257 x:str="HELLOWEEN "><FONT size=2><STRONG><FONT face="Times New Roman">HELLOWEEN<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>GAMBLING WITH THE DEVIL</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>9 (3)</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭПИДЕМИЯ</STRONG></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭЛЬФИЙСКАЯ РУКОПИСЬ 2</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2><STRONG>10 (34)</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>JADED HEART</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>SINISTER MIND</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>11 (23)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>DARKTHRONE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>F.O.A.D.</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>12 (33)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAMAN</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="IMMORTAL  "><FONT size=2><FONT face="Times New Roman">IMMORTAL<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>13 (22)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KRUIZ</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>14 (7)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PRIMAL FEAR</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW RELIGION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>15 (12)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMPIRE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CHASING SHADOWS</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>16 (10)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.1</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>17 (30)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VESANIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISTRACTIVE KILLUSIONS</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>18 (37)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SOILWORK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWORN TO A GREAT DIVIDE +1 bonus track</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>19 (13)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.2</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>20 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CODEX, THE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CODEX, THE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>21 (19)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>22 (35)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>23 (40)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARY HUGHES (solo TEN)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VERITAS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>24 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISARMONIA MUNDI</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MIND TRICKS</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>25 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>POODLES, THE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWEET TRADE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>26 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ROB ROCK</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARDEN OF CHAOS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>27 (NEW)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>SIEGES EVEN</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARAMOUNT</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>28 (47)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MACBETH</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUPERANGELIC HATE BRINGER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>29 (25)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EPICA</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE DIVINE CONSPIRACY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>30 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LONDON AFTER MIDNIGHT</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VIOLENT ACTS OF BEAUTY</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>31 (48)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIMMU BORGIR</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN SORTE DIABOLI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>32 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DEBAUCHERY</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>BACK IN BLOOD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>33 (8)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EXODUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ATROCITY EXHIBITION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>34 (28)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>OVERKILL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IMMORTALIS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>35 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="VENDETTA "><FONT size=2><FONT face="Times New Roman">VENDETTA<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TYRANY OF MINORITY</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>36 (29)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RIDE THE SKY (feat. Gamma Ray, Helloween, Masterpaln ex-members)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW PROTECTION +1 bonus track</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>37 (6)</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIARY OF DREAMS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEKROLOG 43</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>38 (46)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GAINA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СНОВА ТВОЙ</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>39 (27)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARADISE LOST</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN REQUIEM</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>40 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>АРКОНА</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ОТ СЕРДЦА К НЕБУ</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>41 (NEW)</FONT></TD>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NORTHER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NO WAY BACK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>42 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ASP</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DER SCHWARZE SCHMETTERLING</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>43 (16)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>44 (NEW)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SEAR BLISS</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ARCANE ODYSSEY</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>45 (9)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PAIN</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PSALMS OF EXTINCTION</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>46 (Re)</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>UNIA</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>47 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>AXEL RUDI PELL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIAMONDS UNLOCKED</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>48 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>WINDS (feat. Mayhem, Khold members)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PROMINENCE AND DEMISE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>49 (32)</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KORPIKLAANI</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TERVASKANTO</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face="Times New Roman" size=2>50 (NEW)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MIND'S EYE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>A GENTLEMAN'S HURRICANE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 31.05.2008 news HELLOWEEN и GAMMA RAY выступят в России вместе
+
+<P><STRONG>HELLOWEEN</STRONG> и <STRONG>GAMMA RAY</STRONG> анонсировали три&nbsp;даты в России:</P>
+<P>Sep. 06 - Санкт-Петербург -&nbsp;ДК Ленсовета&nbsp;<BR>Sep. 07 - Москва - Б1<BR>Sep. 09 - Краснодар - Олимпийский</P>
+Автор: Vit Belov
+
+### 09.08.2008 news Helloween &amp; Gamma Ray. Б1 MAXIMUM.
+
+<P><IMG height=200 alt="" hspace=0 src="/images/shows_rus/2008.09/12659.jpg" width=400 align=left border=5>Концертные агентства</P>
+<P>PROMO END & SPIKA</P>
+<P>представляют:</P>
+<P>8 сентября<BR>- Helloween & Gamma Ray. Б1 MAXIMUM. </P>
+<P><BR>HELLOWEEN и GAMMA RAY – две легенды немецкого металла, рожденные в восьмидесятые годы прошлого века c легкой руки Кая Хансена. HELLOWEEN, так быстро ставшие звездами первой величины и законодателями мод, достаточно быстро стали некомфортны своему создателю: уже через несколько лет Хансен ушел из группы, чтобы начать все с нуля в новом коллективе под названием GAMMA RAY. Эти две банды вот уже много лет то явно, то скрыто соперничают между собой, удивляя поклонников порой гениальными, а иногда и не очень удачными альбомами. За свою историю бывали периоды и дружбы, и «холодной» войны: то GAMMA RAY милостиво делилась на время Хеньо Рихтером, то HELLOWEEN трудоустраивало отчисленного Куша, то Хансен во всеуслышание объявлял, что ему нет никакого дела до современного HELLOWEEN и он даже ни разу и не слышал, что они играют с тех пор, как он покинул группу... </P>
+<P>К счастью, со временем многие проблемы сглаживаются. Сейчас HELLOWEEN и GAMMA RAY – это коллективы с общей историей и схожей музыкой. Одиночные несмелые сообщения на интернет-форумах от поклонников, делящихся мечтами о том, чтобы увидеть обе группы на одной сцене вместе, переросли в оживленную дискуссию. В результате оба коллектива объединились, для того, чтобы отправиться в совместный большой тур - HELLISH ROCK TOUR 2007 – 2008, в ходе которого зрители разных стран смогли не только за один вечер увидеть на одной сцене оба коллектива, но и оценить совместное выступление музыкантов. </P>
+<P>И вот наконец HELLISH ROCK TOUR докатился и до Москвы! 8 сентября в клубе Б1 MAXIMUM HELLOWEEN и GAMMA RAY устроят настоящее европейское шоу для всех поклонников хэви-металл!</P>
+<P>Официальный сайт HELLOWEEN: <A href="http://www.helloween.org/">http://www.helloween.org/</A></P>
+<P>Сайт клуба: <A href="http://www.b1club.ru/">http://www.b1club.ru/</A>&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 12.10.2008 news Видео от HELLOWEEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип на песню "<STRONG>Paint&nbsp;a New World</STRONG>"&nbsp;с последнего альбома <STRONG>HELLOWEEN "Gambling With the Devil"</STRONG> можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/kDXfR-0MwJM&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/kDXfR-0MwJM&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 24.10.2009 news HELLOWEEN выпускают сборник
+
+<P>29 января на <STRONG>Sony/SPV</STRONG> выйдет сборник <STRONG>HELLOWEEN</STRONG> <STRONG>"Unarmed - Best Of 25th Anniversary"</STRONG>, посвящённый 25-летию группы. Немцы переписали песни, вошедшие на диск, в новой аранжировке вместе с продюсером <STRONG>Charlie Bauerfeind. </STRONG>Также в записи принял участие пражский симфонический оркестр, с которым группа исполнила <STRONG>'The Keeper's Trilogy'</STRONG>, 17-минутный эпик, состоящий из оригинальных песен <STRONG>'Halloween'</STRONG>, <B>'Keeper Of The Seven Keys'</B> и <STRONG>'The King for A 1000 Years'. </STRONG>Трэк-лист:</P>
+<P>01. <B>Dr. Stein</B><BR>02. <B>Future World</B><BR>03. <B>If I Could Fly</B><BR>04. <B>Where The Rain Grows</B><BR>05. <B>The Keeper's Trilogy</B><BR>06. <B>Eagle Fly Free</B><BR>07. <B>Perfect Gentleman</B><BR>08. <B>Forever & One</B><BR>09. <B>I Want Out</B><BR>10. <B>Falling To Pieces</B><BR>11. <B>A Tale That Wasn't Right</B><BR></B></P>
+Автор: Vit Belov
+
+### 10.11.2009 news Michael Kiske основал новый проект
+
+<P>Бывший вокалист <STRONG>HELLOWEEN Michael Kiske</STRONG> продолжит своё сотрудничество с двумя музыкантами из <STRONG>PINK CREAM 69</STRONG>:&nbsp;басистом&nbsp;<STRONG>Dennis Ward </STRONG>и барабанщиком&nbsp;<STRONG>Kosta Zafiriou. </STRONG>Новая группа, которую основали эти товарищи, будет называться <STRONG>UNISONIC</STRONG>. Четвёртым её участником станет гитарист <STRONG>Mandy Meyer, </STRONG>работавший с <STRONG>ASIA, GOTTHARD</STRONG> и <STRONG>KROKUS</STRONG>. Сообщается, что это будет первая настоящая группа, в которой будет участвовать <STRONG>Kiske </STRONG>с момента ухода из <STRONG>HELLOWEEN</STRONG>.</P>
+<P>Первая работа с двумя музыкантами у <STRONG>Michael</STRONG> случилась в проекте <STRONG>PLACE VENDOME</STRONG>. Сообщается, что в лице барабанщика и басиста господин <STRONG>Kiske</STRONG> нашёл родственные себе души. "Родственные души" (надо было так группу назвать) уже начали работать над материалом для дебютной пластинки, которая выйдет поздней весной.</P>
+<P>А летом<STRONG> UNISONIC</STRONG> планируют поразить всех своим выступлением на фестивалях.</P>
+Автор: Vit Belov
+
+### 05.01.2010 news Новое видео HELLOWEEN
+
+<P><STRONG>HELLOWEEN</STRONG> сняли клип на новую версию своей классики "<STRONG>Dr. Stein</STRONG>". Песня попалёт на новый сборник группы <STRONG>"Unarmed - Best Of 25th Anniversary", </STRONG>который выйдет 29 января.</P>
+<P>
+<CENTER>
+<OBJECT height=300 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=8543983&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=8543983&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="300"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.03.2010 reviews Юбилейное видение истории HELLOWEEN
+
+<P>Вот и исполнилось HELLOWEEN 25 лет. Именно столько времени прошло с момента релиза их дебютного одноимённого EP. Сборник “Unarmed” был призван отметить это событие. В творческой биографии знаменитой немецкой группы были неоднозначные моменты, таким же неоднозначным вышел и этот релиз.</P>
+<P>Как отмечают юбилеи нормальные люди? Не оригинальничая, приглашают побольше гостей, с которыми вместе вспоминают прошедшее, готовясь с этим багажом шагнуть в будущее. Как отпраздновали свой юбилей HELLOWEEN? Они взяли свою классику, которая уже давно приобрела статус священной коровы power-metal, и нещадно исполосовали её скальпелем, удалив всё самое вкусное и оставив на прилавке лишь субпродукты. Знаменитейшие трэки, среди которых “I Want Out”, “Future World”, “Eagle Fly Free”, “Dr. Stein” были превращены в симфоническо-акустические джазовые композиции, в записи которых приняли участие все, кто угодно, но только не сами члены группы. Музыкантам HELLOWEEN здесь нечего играть, так как аранжировки больше заточены под джаз-квартет, а не под металлическую группу. Кого здесь много, так это Andi Deris’a, который, безусловно являясь частью истории HELLOWEEN, не может до сих пор похвастаться всеобщей любовью слушателя. Не даром поклонники коллектива постоянно вспоминают бывших участников группы Kai Hansen и Michael Kiske. В сборник лучших вещей HELLOWEEN попало четыре песни авторства Andi Deris, что кажется многовато по тем же причинам. В записи пластинки принял участие даже пражский симфонический оркестр, но всё это мы слышали у тех же RAGE ещё 15 лет назад, да и получилось у HELLOWEEN намного хуже. </P>
+<P>В прошлом году Michael Kiske выпустил альбом акустических версий классики HELLOWEEN. Мы все дружно посмеялись над этой его затеей, заподозрив певца в меркантильности. Вдруг и сама группа сподобилась на подобный шаг. Безусловно, здесь денег было вложено намного больше, но результат от этого не стал другим. Реакция на этот альбом конкретного слушателя будет зависеть от возраста субъекта. Кто-то просто посмеётся, а кто-то может и сильно разозлиться. Мне же хочется задать вопрос, неужели HELLOWEEN до сих пор нравится power-metal, если они выпускают подобные юбилейные альбомы?</P>
+Автор: Vit Belov
+
+### 17.05.2010 news HELLOWEEN работают над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>HELLOWEEN </STRONG>вошли в студию своего вокалиста <STRONG>Andi Deris Mi Sueno Studios </STRONG>на Канарских островах для работы над новым альбомом. Сочинено 20 песен, и музыкантам предстоит отобрать лучшие вместе со своим продюсером <STRONG>Charlie Bauerfeind</STRONG>. Басист <STRONG>Markus Grosskopf</STRONG> порадовал поклонников группы своим заверением, что линия недавнего сборника "<STRONG>Unarmed</STRONG>" не будет продолжена. Новый альбом будет очень тяжёлым, на нём будут как мощные и "гимновые" песни, так и быстрые и ритмичные. Пластинка выйдет 31 октября этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сборник <STRONG>"Unarmed - Best Of 25th Anniversary" </STRONG>вышел 29 января на <STRONG>Sony</STRONG>. На нём группа переработала свои хиты и исполнила их в джазовом стиле&nbsp;с симфоническими аранжировками, что вызвало неоднозначную реакцию у публики. Пластинка доступна в России на отечественном подразделении<STRONG> Sony Music</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.07.2010 news HELLOWEEN назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG>&nbsp;HELLOWEEN</STRONG>&nbsp;получил название&nbsp;<STRONG>"7 Sinners". </STRONG>Как уже сообщалось, группа ведёт работу над ним в студии вокалиста <STRONG>Andi Deris</STRONG> на Канарских Островах. Пластинка должна выйти в конце октября этого года.</FONT></P>
+Автор: Vit Belov
+
+### 23.08.2010 news Альбом-посвящение группам HELLOWEEN и GAMMA RAY
+
+<P>Лейбл <STRONG>Epicus</STRONG> планирует до конца 2010 года выпустить альбом-посвящение группам<STRONG> HELLOWEEN</STRONG> и<STRONG> GAMMA RAY</STRONG>. Диск получил название <STRONG>"HelloRay - A Tribute To Helloween & Gamma Ray"</STRONG>. Согласно пресс-релизу альбома, это проект созданный группами, которые являются поклонниками и были вдохновлены музыкой этих двух пионеров мелодичного power metal.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17074.jpg" width=300 height=300>Трек лист:</P>
+<P>01. <B itxtvisited="1">Tribute To The Past</B> (GAMMA RAY) - <STRONG>GUARDIANS OF MANKIND</STRONG><BR itxtvisited="1">02. <B itxtvisited="1">Warrior</B> (HELLOWEEN) - <STRONG>GAIA EPICUS<BR itxtvisited="1"></STRONG>03. <B itxtvisited="1">The Spirit</B> (GAMMA RAY) - <STRONG>PARALLAX</STRONG><BR itxtvisited="1">04. <B itxtvisited="1">Mr. Torture</B> (HELLOWEEN) - <STRONG>AILLION</STRONG><BR itxtvisited="1">05. <B itxtvisited="1">Anywhere In The Galaxy</B> (GAMMA RAY) - <STRONG>OPERA MAGNA</STRONG><BR itxtvisited="1">06. <B itxtvisited="1">Ain't Got Nothin' Better</B> (HELLOWEEN) - <STRONG>KICK HUNTER</STRONG><BR itxtvisited="1">07. <B itxtvisited="1">Last Before The Storm</B> (GAMMA RAY) - <STRONG>SONEM</STRONG><BR itxtvisited="1">08. <B itxtvisited="1">Where The Rain Grows</B> (HELLOWEEN) - <STRONG>ARMORY</STRONG><BR itxtvisited="1">09. <B itxtvisited="1">A Tale That Wasn't Right</B> (HELLOWEEN) - <STRONG>DRACHEN</STRONG><BR itxtvisited="1">10. <B itxtvisited="1">Lust For Life</B> (GAMMA RAY) - <STRONG>MIDAS FATE</STRONG><BR itxtvisited="1">11. <B itxtvisited="1">Just A Little Sign</B> (HELLOWEEN) - <STRONG>RAMPART</STRONG><BR itxtvisited="1">12. <B itxtvisited="1">Leaving Hell</B> (GAMMA RAY) - <STRONG>ROTTEN</STRONG><BR itxtvisited="1">13. <B itxtvisited="1">Judas</B> (HELLOWEEN) - <STRONG>5TH ELEMENT<BR itxtvisited="1"></STRONG>14. <B itxtvisited="1">Heaven Or Hell</B> (GAMMA RAY) - <STRONG>BURN UNIVERSE<BR itxtvisited="1"></STRONG>15. <B itxtvisited="1">Before The War</B> (HELLOWEEN) - <STRONG>ILUNGARA</STRONG><BR itxtvisited="1">16. <B itxtvisited="1">Land Of The Free</B> (GAMMA RAY) - <STRONG>DEIMOS</STRONG></P>
+<P>Больше информации на сайте лейбла: <A href="http://www.epicusrecords.com/">www.epicusrecords.com</A> </P>
+Автор: Headcrusher
+
+### 04.09.2010 news Подробности нового альбома HELLOWEEN
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17153.jpg" width=400 height=400>Немецкие power-металлисты&nbsp; <B itxtvisited="1">HELLOWEEN</B> выпустят свой новый альбом <B itxtvisited="1">"7 Sinners"</B> в конце октября. Диск был записан на студии вокалиста <B itxtvisited="1">Andi Deris</B>'а "<B itxtvisited="1">Mi Sueno"</B>&nbsp;(Тенериф, Испания). Группа написала более 20 песен и&nbsp;вместе со своим продюсером <B itxtvisited="1">Charlie Bauerfeind</B>, выбрала самые лучшие.<BR itxtvisited="1"><BR itxtvisited="1">Вот что <STRONG>Markus Grosskopf</STRONG>, бас гитарист <STRONG>HELLOWEEN</STRONG>, не так давно сказал про новый альбом: <EM>"Для всех тех,&nbsp;кому наш предыдущий релиз&nbsp;<STRONG>"Unarmed"</STRONG> показался слишким тихим и спокойным, у меня есть прекрасные новости: Новый альбом ударит вас прямо в лицо! Он будет очень тяжёлым и будет содержать всё то, за что вы так любите <STRONG>HELLOWEEN</STRONG>! Некоторые песни будут очень мощными и гимноподобными, а другие будут содержать самые быстрые партии бас-барабана, которые когда-либо играл <STRONG>Dani</STRONG> [<B itxtvisited="1">L&#246;ble</B>], и это многое значит!"</EM></P>
+Автор: Headcrusher
+
+### 13.10.2010 news Are You Metal?
+
+<P>Новый клип<STRONG> HELLOWEEN</STRONG> <STRONG>"Are You Metal?" </STRONG>можно посмотреть ниже. Песня попадёт на новый альбмо немцев <STRONG>"7 Sinners"</STRONG>,&nbsp;который выйдет в конце октября.</P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/4vo7iHYyjP8&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/4vo7iHYyjP8&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.10.2010 news Новый HELLOWEEN на MySpace
+
+<P>Новый альбом <STRONG>HELLOWEEN</STRONG> <STRONG>"7 Sinners" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/helloween">http://www.myspace.com/helloween</A></P>
+<P>Пластинка выйдет в конце октября.</P>
+Автор: Vit Belov
+
+### 18.11.2010 news CRADLE OF FILTH попали в чарты Billboard
+
+<P>Новый альбом <STRONG>CRADLE OF FILTH</STRONG> <STRONG>"Darkly, Darkly, Venus Aversa"</STRONG>, вышедший в Штатах на прошлой неделе, попал в чарты <STRONG>Billboard 200</STRONG> на 99-ое место. В первую неделю было продано 5800 копий, что почти в два раза меньше, чем у предшественника <STRONG>"Godspeed On The Devil's Thunder"</STRONG>, проданного тиражом 11000 копий.</P>
+<P>Новый альбом <STRONG>GWAR</STRONG> <STRONG>"Bloody Pit Of Horror" </STRONG>был продан тиражом 2800 копий. Также первая неделя продаж случилась у нового альбома <STRONG>ATHEIST "Jupiter"</STRONG>, который продался удручающим тиражом 500 копий. Более приемлемый результат продемонстрировали<STRONG> HELLOWEEN</STRONG> с новым хитом "<STRONG>7 Sinners</STRONG>" - продано 1900 копий. </P>
+<P>Хороших продаж добились со своим вторым альбомом <STRONG>"Contagion"</STRONG>&nbsp;<STRONG>OCEANO</STRONG> - 3000 копий. </P>
+Автор: Vit Belov
+
+### 19.11.2010 reviews Группа имени Andi Deris
+
+<P>Этот год был очень богатым на релизы знаменитейших power-metal групп. RAGE, BLIND GUARDIAN, GAMMA RAY, GRAVE DIGGER, вот теперь HELLOWEEN, которые, строго говоря, выпустили даже две новых пластинки, включая январский сборник обработок. Думается, подобная активность музыкантов тесно связана с мировым финансовым кризисом, который, как говорят, уже кончился, но альбомы за две минуты не запишешь, поэтому «затачивались» исполнители ещё в тяжёлые времена. Эти времена для музыкального бизнеса вряд ли минуют вместе с глобальным кризисом, поэтому есть надежда на новую музыку от любимых групп и в будущем.</P>
+<P>HELLOWEEN в этом году можно сказать повезло. В последние годы некогда знаменитые немцы выпускались на «заштатных» независимых лэйблах, ведь любой независимый лэйбл «заштатный». Последним пристанищем коллектива был SPV, который начал тонуть с первыми аккордами кризиса. Буксировочный трос ему бросили с Sony Music. Первым заметным актом этой сделки и стал переход HELLOWEEN на этот «мейджор». К сожалению, новая музыка группы от этого лучше не стала. Их творчество невозможно с закрытыми глазами относить к хитам. HELLOWEEN что-то ищут, попутно вспоминая времена 15-летней давности, когда отгремели их последние фанфары. Иногда музыкантам удаётся как-то встряхнуться, и у них получается достаточно свежий альбом со старыми мелодиями, но новым саундом. Например, неплохо получилось с предыдущей работой “Gambling With The Devil”. Тяжёлые риффы и развесёлые happy-припевы сыграли свою роль. “7 Sinners” более мрачный альбом, это становится ясно с первых аккордов. К сожалению, в обозреваемом случае HELLOWEEN перешли грань. Некоторые их попытки нагнать страху на собственных поклонников выглядят абсолютно смехотворно. Половину песен сочинил вокалист Andi Deris, альбом записан в его студии на Канарских Островах. Потихоньку именно этот некогда ненавидимый персонаж выходит в группе на первые роли. Венчает смену власти панегирик “Who’s Mr. Madman?”, посвящённый Deris, с использованием мелодической фразы с первого альбома с его участием “Master of The Rings”.</P>
+<P>Забавно, но я заметил, что последние альбомы HELLOWEEN не нравятся мне подряд. У «Синнеров» получается с самого начала не было шансов. Главной же причиной хорошего или плохого отношения к последним пластинкам группы являются вовсе не мелодии, а реализация. Возможно, на этом альбоме всё то же, что и на предшественнике, но его саунд не пробудил во мне тёплых чувств. В любом случае новейшему творчеству HELLOWEEN далеко до шедевральности, и любые споры о статусе их последних альбомов похожи на войну в песочнице. Поклонникам power-metal нужна новая музыка, но пока никто кроме динозавров им её предоставить не может.</P>
+Автор: Vit Belov
+
+### 05.07.2011 news Фотографии с фестиваля &quot;Sauna Open Air &#39;2011&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/19855.jpg" width=300 height=400>С 9 по 11 июня в городе&nbsp;Тампере&nbsp;(Финляндия), прошёл очередной фестиваль <STRONG>"Sauna Open Air"</STRONG> (<A href="http://www.sauna-open-air.fi/">www.sauna-open-air.fi</A>), на котором выступили такие звёзды сталилитейного жанра, как<STRONG> OZZY OSBOURNE</STRONG>, <STRONG>JUDAS PRIEST</STRONG>, <STRONG>HELLOWEEN</STRONG>, <STRONG>DORO</STRONG>, <STRONG>SAXON</STRONG>, <STRONG>ACCEPT</STRONG>, а так же, несколько групп рангом пониже. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Посмотреть фото-репортажи с&nbsp;выступлений&nbsp;этих замечательных ансамблей&nbsp;можно в разделе нашего сайта <STRONG>Photos</STRONG>, по адресу: </FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="/ru/galleries">http://musica.mustdie.ru/ru/galleries</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор всех фотографий: <STRONG>Анна Ходакова</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 05.10.2012 news HELLOWEEN: альбом &quot;Straight Out Of Hell&quot; 18 января 2013
+
+<P>Немцы <STRONG>HELLOWEEN</STRONG> приготовили новый альбом. 
+<P>Диск, который станет приемником альбома<STRONG> "7 Sinners"</STRONG>, получил название&nbsp;<STRONG>"Straight Out Of Hell"&nbsp;</STRONG>и&nbsp;был записан с продюсером <STRONG>Charlie Bauerfeind</STRONG> в студии <STRONG>MiSueno</STRONG>. Дата выпуска запланирована на 18 января 2013. Лимитированная версия альбома будет выпущена в специальной упаковке и содержать дополнительные треки. 
+<CENTER><IMG border=0 src="/images/news_rus/2012.10/24882.jpg" width=460 height=307>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 18.11.2012 news HELLOWEEN: обложка альбома &quot;Straight Out Of Hell&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>HELLOWEEN</STRONG> порадовала своих поклонников обложкой нового альбома. Дата его выпуска запланирована на 18 января 2013.</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2012.11/25060.jpg" width=600 height=600></FONT></CENTER>
+Автор: Headcrusher
+
+### 16.12.2012 news Новый клип HELLOWEEN
+
+<P>Новое видео немецких мастеров power-metal <STRONG>HELLOWEEN </STRONG>на песню <STRONG>"Nabataea" </STRONG>можно посмотреть ниже. Новый альбом группы <STRONG>"Straight Out Of Hell" </STRONG>выйдет 18 января.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/mBpXBbO6o9k?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 25.01.2013 reviews Желаем здоровья группе HELLOWEEN
+
+<P>Легенда power-metal HELLOWEEN продолжает свою деятельность, и этот факт является самым примечательным в начале 2013 года, когда вышел новый альбом коллектива “Straight Out Of Hell”. HELLOWEEN – это уже такой бренд, который никак невозможно ни очернить, ни как-то даже затуманить. Что бы мы все тут ни говорили, ни рассуждали, всё будет бесполезно. Вышел новый альбом HELLOWEEN. (можно поставить «!», а можно и «!!!», каждый решит сам).</P>
+<P>Предыдущую работу HELLOWEEN “7 Sinners” я не смог расслышать. Не расслушать, а именно расслышать, так как альбом на доступной мне аппаратуре не звучал. Может где-то в других местах он звучал лучше, но я в этих местах не был. С новой работой группы дело в этом смысле обстоит получше. Качественный, приятный, «хелловинистый» материал в старом добром духе. Никаких экспериментов и мелодических откровений в этот раз группа не совершила, и это, наверное, хорошо. Несколько треков, вообще, очень приятно ложатся в копилку классических хитов HELLOWEEN. Например, “Burning Sun” со стандартным, но от этого не менее приятным уху припевом и жёстким риффом в куплете. </P>
+<P>60 минут хорошей приятной музыки, ставящей очередную зазубрину на древе истории легендарной группы. Альбом вышел, и это хорошо. Удачи и здоровья группе HELLOWEEN.</P>
+Автор: Vit Belov
+
+### 26.03.2014 news HELLOWEEN вернулись на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие классики <STRONG>HELLOWEEN</STRONG> вновь подписали контракт с <STRONG>Nuclear Blast</STRONG>, на котором группа уже выпускала два альбома в начале XXI века "<STRONG>The Dark Ride</STRONG>" и "<STRONG>Rabbit Don't Come Easy</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время коллектив работает над материалом к новому альбому, который будет записан в студии&nbsp;<STRONG>MiSueno Studio</STRONG> на Тенерифе с продюсером&nbsp; <STRONG>Charlie Bauerfeind (GOTTHARD, HAMMERFALL)</STRONG>&nbsp;после летних выступлений <STRONG>HELLOWEEN</STRONG>, а выпущен в начале 2015 года на новом лэйбле.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26779.jpg" width=490 height=327></P>
+Автор: Vit Belov
+
+### 20.06.2015 reviews Идеальный альбом для качественной ностальгии
+
+<P>Есть на прогнившем западном телевидении такие феноменальные проекты, которые идут в эфире не одно десятилетие. Поколения сменяются, и вся целевая аудитория знает о существовании этого шоу. Проходит время, человек вырастает, переключается на другие интересы, а шоу смотрят его младшие братья и сёстры, затем дети, внуки и так далее. Многим кажется, что программа уже прекратила своё существование, но вдруг... Оказывается постаревшие герои продолжают разрывать мозг молодому поколению. Подобные примеры можно найти и в музыкальной индустрии. Немецкая группа HELLOWEEN уже давно «забронзовела», признаётся всеми легендой и иконой стиля, но продолжает выпускать альбомы. Какие-то получше, какие-то похуже. В этот раз, кажется, опять получилось.</P>
+<P>Возвращаясь к первому примеру отмечу, что очень важно, чтобы старый фэн включил телевизор тогда, когда у заслуженного шоу идёт удачный сезон. Быть может, сменили сценариста, или у продюсеров открылось второе дыхание, но подобные сенсационные прорывы случаются. На альбоме HELLOWEEN, который без бонус-треков длится чуть более часа, почти 40 минут отличной музыки, а уж первые 6 треков, вообще, вызовут восторг у стародавних поклонников коллектива.&nbsp; У тех же, кто довольно давно обращался к творчеству немцев, может даже навернуться на глаза слеза. Например, при прослушивании заводной и мелодичной «Stay Crazy” или старомодной «Battle's Won”, где Deris поёт как Hansen, а музыка напоминает самые первые работы HELLOWEEN с классическим вокалистом. Кроме первых 6 треков существует ещё пять вещей, которые не посрамят легендарную группу. К сожалению, к концу альбома песни становятся всё длинней, на мой вкус эпики коллектив сочинять всё-таки не очень умеет.</P>
+<P>Удивительно удачный альбом HELLOWEEN, на котором и с продюсированием оказалось всё в порядке. Слушается работа достаточно свежо, что просто-таки поражает, учитывая возраст основных действующих лиц. Этот альбом необходимо слушать фанатам группы из 80-х или 90-х, которые давно уже ничего от HELLOWEEN не ждут, ностальгировать лучше под качественный материал.</P>
+Автор: Vit Belov
+
+### 26.08.2015 news HELLOWEEN и AMORPHIS рассказали, что ждать на фестивале &quot;Moscow Metal Meeting&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.08/28246.jpg" width=300 height=305>Группы-участники московского фестиваля <STRONG>"Moscow Metal Meeting"</STRONG>, который состоится уже в ближайшую субботу, 29 августа, продолжают записывать видео-обращения по случаю своего скорого визита. Со всем присущим им юмором и позитивом свои видео опубликовали <STRONG>HELLOWEEN</STRONG> и <STRONG>AMORPHIS</STRONG>.</P>
+<P><STRONG>HELLOWEEN</STRONG>: <A href="http://youtu.be/Mzg3_EfhVTQ">http://youtu.be/Mzg3_EfhVTQ</A><BR><STRONG>AMORPHIS</STRONG>: <A href="http://youtu.be/LYt_lGKQfVw">http://youtu.be/LYt_lGKQfVw</A></P>
+<P>Напоминаем, что самый большой в России фестиваль тяжёлой музыки на открытом воздухе -&nbsp; <STRONG>"Moscow Metal Meeting"</STRONG> - пройдет в Москве 29 августа в <STRONG>"Зеленом театре"</STRONG> Парка Горького. На фестивале выступят группы <STRONG>HELLOWEEN</STRONG>, <STRONG>DARK TRANQUILLITY</STRONG>, <STRONG>AMORPHIS</STRONG>, <STRONG>PRIMAL FEAR</STRONG>, <STRONG>АРКОНА</STRONG>, <STRONG>ЧЁРНЫЙ ОБЕЛИСК</STRONG>.</P>
+<P>Подробности: <A href="http://afisha.yandex.ru/events/55af1fa2cc1c72085729be70">http://afisha.yandex.ru</A></P>
+Автор: Headcrusher
+
+### 15.11.2016 news Michael Kiske и Kai Hansen вернулись в HELLOWEEN
+
+<p><strong>HELLOWEEN</strong> анонсировали "<strong>Pumpkins United World Tour 2017/2018</strong>", в котором к коллективу присоединятся классические участники гитарист/вокалист <strong>Kai Hansen</strong> и вокалист<strong> Michael Kiske</strong>. В то же время в группе остаются и певец<strong> Andi Deris</strong> и гитарист <strong>Sascha Gerstner</strong>. </p><p>Легко догадаться, что группа в новом составе ударит классикой power metal. Стартует супертур 28 октября следующего года в бразильском Сан-Паулу.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Zg9ZOyDfYIA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Helloween 2000

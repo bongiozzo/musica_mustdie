@@ -131,6 +131,157 @@ pound." so says drummer Gene Hoglan.
 * C группой "Zimmer`s Hole" Jed Simon, Byron Stroud
 * C группой "Fear Factory" Byron Stroud (bass)
 
+## Публикации
+
+### 23.02.1999 news 
+
+<p>Strapping Young Lad только что вернулись из тура по Австралии и Японии. Девин Тунсенд решил взять небольшой перерыв в творчестве, так как он довольно много работал в прошедшем году (выпустил три альбома со своими группами).</p>
+
+Автор: Vit Belov
+
+### 20.12.2001 articles Девин Таунсенд: музыка без смирительных рубашек
+
+<p>Об этом типе ходит множество легенд. Якобы он страдает редким нервным расстройством и потому спит лишь пару часов в сутки. Его эмоциональное состояние – либо дикая эйфория, либо глубокая депрессия. И сдвиг по фазе зашел столь далеко, что свои демо-записи он рассылал упакованными в собственное нижнее белье не пер-вой свежести. А еще… <BR> Интерес ко всем этим деталям обусловлен лишь одним – музыкой этого самого Девина Таунсенда. Примерно за десяток лет своей музыкальной карьеры этот парень успел спеть на альбоме гитарного героя Стива Вэя, создать кратковременный проект с бас-гитаристом METALLICA Джейсоном Ньюстедом. Среди собственных заслуг – создание индустриально-металлической команды STRAPPING YOUG LAD. После выхода двух дисков этого проекта продавцы музыкальных магазинов стали описывать эту музыку, покру-чивая указательным пальцем у виска. Еще бы - Девину удалось ритмику и гармонии трэш-дэс-метал со звуковой палитрой индастриэла и придать этому коктейлю отблеск эйфории и безумного веселья, что, казалось бы, невозможно в принципе. Затем были сольные альбомы и сторонние проекты, на которых Девин ударился в психоделию. И вот теперь новый сольник "Terria", который великолепен настолько, что попросту лишает дара речи.<BR> Как ни странно, этот наверняка безумный человек дает множество интервью, почитав которые, легко начинаешь верить во все слухи...<BR> - Как ваше самочувствие? Не так давно вам ставили диагноз “маниакально-депрессивный психоз”. Сейчас все в порядке? Это как-нибудь повлияло на ваши мысли, музыку?<BR> - Знаете – я просто не помню.<BR> - Хм… Ваша собственная оценка "Terria"?<BR> - Это моя первая по-настоящему взрослая запись. Мне нравится то, что я делал раньше – все эти ужасные и шумные альбомы. Они великолепны и несут на себе печать юности. Но сейчас мне 29, и я чувствую себя несколько иначе – нет того же давления, той необходимости самовыражения. Теперь все происходит более свободно и естественно. К то-му же нет смысла повторять то, что я сделал ранее, хотя бы потому, что на RoadRunner (фирма, где вышли альбомы STRAPPING YOUNG LAD) есть SLIPKNOT и масса групп, звучащих в духе STRAPPING YOUNG LAD. А вот этой работой я по-настоящему горжусь.<BR> - Точно гордитесь? Кое-что из альбома звучит очень по-коммерчески – например, "Stagnant"… <BR> - Это единственная песня, что мне не нравится на "Terria". Ее рождение – результат нездорового увлечения DEF LEPPARD. У меня в крови есть что-то, что заставляет писать подобные вещи, и это проявляется каждый раз, как я сажусь писать пластинки. Надеюсь, это не будет звучать по радио, иначе я заработаю репутацию человека, который играет то, что на самом деле не хочет.<BR> - Вы недавно завершили европейские турне – какие впечатления?<BR> - Все было великолепно и просто ужасно. Мне пришлось разделить весь свой репертуар на две части. С одним составом я играл прогрессивную музыку из альбомов "Ocean Machine", "Terria", а с другим – более злые вещи из репертуара STRAPPING YOUNG LAD. К сожалению, сделать что-то вместе не вышло – не имею ничего против музыкантов, с которыми пришлось работать и которые не могли сыграть и то и другое, но… Те ребята, с которыми я играл песни с "Terria", больше подходили к ситуации. <BR> Теперь я намерен разделить эти проекты и завершить свое турне под название "Devin Townsend band", а затем отыграть тур под вывеской "Девин Таунсенд и STRAPPING YOUNG LAD" или что-нибудь в этом роде. <BR> - А будут ли новые альбомы под вывеской STRAPPING YOUNG LAD? <BR> - Не могу сказать ничего определенного насчет того, что я буду делать завтра. Лучше воздержусь от скоропалительных высказываний и последующих проблем. <BR> - Когда слышишь мешанину стилей на ваших альбомах, пытаешься понять – что же этот человек слушал, на чем он вырос?<BR> - Вырос я на музыке. Немного Эндрю Ллойда Уэббера, когда я был совсем маленьким, чуть позже - SLADE, JUDAS PRIEST, еще позже - REAL LIFE, EURYTHMICS, Kenny Loggins. Народная музыка, классическая музыка, JANE'S ADDICTION, индастриэл, трэш-метал, дэс-метал, прогрессивные вещи вроде PINK FLOYD. Именно сегодня мне нравятся WEEN, последний альбом FANTOMAS и пластинка "Passage" группы SAMAEL. <BR> - А раньше вы говорили, что являетесь старым фанатом IRON MAIDEN… <BR> - Сейчас я увлекаюсь ими и подобными старыми группами скорее ради прикола.<BR> - Обилие соло-проектов, сотрудничество с другими группами и исполнителями… У вас остается свободное время?<BR> - Да – чтобы отыграть на фестивалях и концертах. Я просто обожаю устраивать этакие больные шоу! Ничто не придает столько силы голосу, как выход на сцену и уничтожение публики с помощью великолепного звука. Когда у группы есть своя энергетика и она цепляет людей в зале… Нет ничего лучше этого. Да и к тому же вы забыли – говорят, я сплю всего пару часов! При таком раскладе похоже на правду!</p>
+
+Автор: Tornado
+
+### 29.08.2002 news Former METALLICA Bassist To Release Much-Circulated Demos ...
+
+<p>Former METALLICA bassist Jason Newsted will be releasing a six-song split CD from two of his long-running projects — IR8 and SEXOTURICA — through his own Chophouse imprint, according to the label's web site. IR8's three-tracker, which was recorded in 1994, features Newsted, Tom Hunting of the Bay Area thrash band EXODUS and Canadian STRAPPING YOUNG LAD mastermind Devin Townsend, while SEXOTURICA's portion of the CD was laid down in early 1995 and includes Hunting and SEPULTURA guitarist Andreas Kisser. <BR><BR> "[These recordings] been traded in the underground a little bit here and there, but now it's time to unleash it to everybody properly," stated Newsted about the upcoming release.<BR><BR> For more information on how to order a copy, send an e-mail to sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 30.08.2002 news Jason Newsted выпускает два демо...
+
+<p>Бывший участник "METALLICA" бассист Jason Newsted на своем лэйбле Chophouse выпускает сплит-CD двух проектов IR8 и SEXOTURICA. <BR><BR> Три песни от "IR8" были записаны в 1994 году в составе самого Ньюстеда, Tom Hunting (EXODUS) и участника "STRAPPING YOUNG LAD" - Devin Townsend. А "SEXOTURICA" демо было записано в 1995 в составе Ньюстеда, Hunting'а и гитариста "SEPULTURA" - Andreas Kisser. Заказать CD можно по e-mail: sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 17.09.2002 news Extremists Strapping Young Lad....
+
+<p><IMG SRC="/images/news/2002.09/3186.jpg" ALT="pho" width=166 height=250 hspace="15" vspace="5" border="1" align="left"> Extremists Strapping Young Lad, featuring ex-members of Dark Angel, are currently holed up at Armoury Studios (Fear Factory, KISS) in Vancouver, Canada recording their third as-yet-untitled full-length. "I often have heard about people wanting a new dominating metal record, and after the work we have put into the new Strapping Young Lad, says frontman and mastermind, guitarist/vocalist Devin Townsend, "we can proudly say that this may be what you've waited for. An extreme assault of the most musical nature." <BR><BR> The full-length is to be produced by Townsend and sports a few titles like: "Consequence," "Last Minute," "Bring On The Young," and "Devour." Strapping Young Lad's line-up remains Townsend (guitars/vocals), Gene Hoglan (drums), Byron Stroud (bass), Jed Simon (guitar) and recent addition Willy Champagne (keyboards). <BR><BR> The album is currently slated for a February 2003 release through Century Media. Strapping Young Lad plans to our extensively throughout 2003 in support of the release. We'll have more information as it becomes available.</p>
+
+Автор: Yermola
+
+### 17.09.2002 news Новый альбом Strapping Young Lad...
+
+<p><IMG SRC="/images/news/2002.09/3186.jpg" ALT="pho" width=166 height=250 hspace="15" vspace="5" border="1" align="left"> Strapping Young Lad сейчас в Канадской Armoury Studios (где уже работали Fear Factory и KISS) работают над третьим полноформатником. Говорит гитарист/вокалист Devin Townsend: "... мы можем гордо заявить, что этот релиз будет тем, что вы ждали. Бескомпромиссное уничтожение музыкальной натуры...". Известны названия нескольких песен: "Consequence," "Last Minute," "Bring On The Young," и "Devour". В записи участвуют Townsend (гитара/вокал), Gene Hoglan (барабаны), Byron Stroud (басс), Jed Simon (гитара) и Willy Champagne (клавишные). Выйдет альбом в феврале 2003 года на Century Media. После чего последует мощный тур в поддержку.</p>
+
+Автор: Yermola
+
+### 20.12.2002 news Новости от STRAPPING YOUNG LAD
+
+<p>11 февраля 2003 года на Century Media Records выходит новый альбом STRAPPING YOUNG LAD под названием "SYL". В альбом войдут следующие вещи:</p>
+<p> 01. Dire <BR> 02. Consequence <BR> 03. Relentless <BR> 04. Rape <BR> 05. Aftermath <BR> 06. Devour<BR> 07. Last Minute<BR> 08. Force Fed <BR> 09. Dirt Pride<BR> 10. Bring on the Young<BR> 11. Detox (Australian live bonus song) <BR> 12. Underneath The Waves (Japanese live bonus song)</p>
+
+Автор: Dimas
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+### 07.03.2003 news STRAPPING YOUNG LAD news...
+
+<p>"Rewriting the definition of chaos, Vancouver's Devin Townsend transforms disorder and confusion into glorious musical extremity. This unholy resonance can only be compared to the most massive of volcanic eruptions. Beyond average is a tremendous understatement. SYL is a slightly demented, definitely mind-blowing album easily capable of knocking you off your feet."<BR> - Brave Words & Bloody Knuckles<BR><BR> "SYL is the sound of Armageddon - a timeless metal theme in itself - in all its explosive, planet-levelling glory. Devin Townsend's quest to twist the chaos theory into new musical dimensions continues unabated. SYL is metal at its purest." <BR> - Kerrang!<BR><BR> Debuting at #97 on Billboard's Heatseekers Chart one week after release, STRAPPING YOUNG LAD's recent album, simply entitled Strapping Young Lad, has also enjoyed being the #1 Most-Added Album on college & commercial/specialty metal shows in North America last week. With an interview due to air on the Much Music USA cable show in March and following a very successful tour with Nile, Napalm Death, Dark Tranquillity, and The Berzerker, there's not doubt that the reformation of Devin Townsend's famed incarnation has pleased quite a fair share of people. <BR><BR> What goes into making an album that's been so well received? In a recent interview with KNAC.com, Devin Townsend reveals a bit of the recipe:<BR><BR> KNAC.COM: I got the new album just in time to get acquainted with it before talking to you. It’s a great album, man. <BR> TOWNSEND: Thanks, dude. It’s got some good people on it. It was bound to be good. Gene [Hoglan, drums], me [guitar & vocals], Jed [Simon, guitarist], and Byron [Stroud, bassist] putting our efforts into it… <BR> KNAC.COM: I heard it was a lot more democratic…<BR> TOWNSEND: Oh, totally. Absolutely. We put it together as a band. We wrote it as a band. It was a new idea. <BR> KNAC.COM: I’m sure that was a lot of pressure taken off your shoulders. <BR> TOWNSEND: Yeah, actually. It gave me more of a chance to focus on being a singer, making noises, and different stuff. It was fun. I liked that.<BR> KNAC.COM: There are parts on the album that have more of a Death/Black Metal kind of feel…<BR> TOWNSEND: Right on. Death Metal, Black Metal, Thrash Metal, all of it, man. It’s just Metal. I still listen to it, all that stuff. You know between my last one, Terria, and these two, Strapping Young Lad and the Devin Townsend Band which is coming out in April, I just liked that power behind it. It’s cool. <BR> KNAC.COM: What are some of the bands that you listened to in that period? <BR> TOWNSEND: I listened to lots of stuff. I listened to a band called Myrkskog, Immortal, Emperor, but I also like Disassociate, the real grind like Napalm Death, Carcass, some of the older Vader stuff, Dark Angel, and Slayer. I try to mix that with Judas Priest and WASP. It took a bit of the chaotic thing that was going on with the last one out because that’s not really who we are anymore. That was just me at the time with a new sampler. Now it’s like when you listen to music, it’s like just play metal. Let’s have guitars, bass, and keyboards but not as much the mechanical shit. It may happen in the future that we use that more, but not for this record. <BR><BR> To view the entire article, visit: <A HREF="http://www.knac.com/article.asp?ArticleID=1805">http://www.knac.com/article.asp?ArticleID=1805</A><BR><BR> Take a few minutes to visit the CM website for a message from Devin Townsend in the SYL flash intro!<BR><BR> The band will soon begin shooting their video for "Relentless," which fans can look forward to seeing on MTV-2 and Much Music USA. In the meantime, look for cover features in Metal Maniacs, Brave Words & Bloody Knuckles, & Terrorizer and additional coverage in Guitar World, Revolver, Kerrang!, and Unrestrained!</p>
+
+Автор: Yermola
+
+### 01.04.2003 news STRAPPING YOUNG LAD are busy headlining the European tour...
+
+<p>While Vancouver's STRAPPING YOUNG LAD are busy headlining the European "Keep It In The Family" tour featuring The Devin Townsend Band and Zimmer's Hole (a band that includes SYL guitarist Jed Simon & SYL bassist Byron Stroud), preparations are underway for their upcoming North American April/May tour with headliners Meshuggah. See the tour dates section for epicenters of future public disturbances.<BR><BR> To satiate those who appreciate STRAPPING YOUNG LAD's live shows, the band has shot a video for "Relentless." Look for it (and Devin's 'Iron Chef' shirt) on Much Music USA and MTV2 in May.<BR><BR> For those who keep asking, yes, the limited edition 5,000-copy SYL Tour EP (sold at the beginning of the year during the Nile, Napalm Death, Dark Tranquillity, and The Berzerker tour) has completely sold out. Glorifying praise for the band's first studio album in over six years, Strapping Young Lad, keeps surfacing. Keep an eye out for an upcoming feature article in Thrasher Magazine.<BR><BR> In case you missed it, the 2002 Terrorizer Readers Poll saw a lot of action for The Dev, who came in at #5 in the Best Musicians category, #10 as Best Vocalist and #6 in Personality Of The Year. If people such as Rob Halford, Mike Patton, and Ozzy Osbourne didn't exist, then Devin would've swept the #1 position across the board!</p>
+
+Автор: Yermola
+
+### 21.04.2003 reviews Новая работа Девина Таунсенда
+
+<p>"SYL"… Какое милое название. А главное – оригинальное. Но шутки в сторону. К стыду своему, приходится сознаться в том, что этот альбом STRAPPING YOUNG LAD – первый в моей коллекции. Как-то не обращал я раньше внимания на этот коллектив, вы уж простите. Кстати, зря не обращал. Ибо коллектив, как минимум, достойный. Что играют? Не знаю. Честно. Хоть я и прослушал сей диск, как минимум, раз десять, так и не смог понять, что же это, чёрт возьми, такое. Какой-то-непонятно-какой-"кор" с дэm-металлическим звучанием и элементами… дума? Не знаю. Могу лишь сказать, что а) мощи, и б) оригинальности этой работе не занимать. Кушайте на здоровье.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 04.05.2003 reviews Чем бы Девин не тешился...
+
+<p><B>Хотелось бы знать, насколько серьезно относится сам Девин Тауншенд, мозговой центр STRAPPING YOUNG LAD, к своим творениям? Порой кажется, что парень просто кривляется, издеваясь над всеми шаблонами тяжелой музыки, но в то же время местами дух перехватывает от пафоса. Поди пойми этих гениев…</B> <BR> Первый номер, "Consequence", словно пересказ идей и рифов CANNIBAL CORPSE на индустриальный манер, а последующая "Relentless" великолепна в своей прямолинейной атаке. Кажется, что весь альбом пройдет в таком динамичном ключе, но следующая же "Rape Song" все ломает – здесь рваные гитарные рифы лишь удобная ритмическая обертка для диссонансных аккордов, звучащих фоном. Лаконичные рифы "Aftermath" и "Devour" лишь повод для смещения акцентов, а пафосная "Last Minute" – легкая ирония над блэк-метал-стандартами. Особый момент – звучание: творя музыку буквально из шума и какофонии, Тауншенд в финальном сведении вынужден сильно вычищать звук, порой превращая его в "пластмассу". Впрочем, на предыдущем диске STRAPPING YOUNG LAD "City" этого удалось избежать, что вкупе с яркими мелодиями сделало ту работу лучшей в карьере SYL.<BR> На фоне серой массы сегодняшних металлических коллективов, обязанных следовать жестким шаблонам вместо новаторства, STRAPPING YOUNG LAD кажутся безумными гениями, способными смешать все, что угодно. Однако при этом группа порой излишне тиражирует собственные рецепты – практически в каждой песне есть эффектный заход на симфоническое звучание, несколько диссонансных аккордов, шумовые бласт-битовые атаки. STRAPPING YOUNG LAD, найдя способ отличиться от тысяч конкурентов, делают это с легкостью, однако, похоже, и большей задачи не ставят – экстрим ради экстрима, не более, и потому к финалу диск быстро наскучивает. Это и есть единственный и главный упрек в адрес STRAPPING YOUNG LAD, ставших заложниками парадокса – группа имеет возможности, но не имеет желания. А все потому, что действительно масштабную и захватывающую музыку Девин Тауншенд оставляет для других своих проектов, вроде недавнего шедевра "TERRIA". Так что STRAPPING YOUNG LAD для него – скорее баловство для души, нежели серьезная работа. Но баловство, безусловно, талантливое.</p>
+
+Автор: Tornado
+
+### 07.10.2003 news IN FLAMES в студии
+
+<B>Daniel Bergstrand (MESHUGGAH, STRAPPING YOUNG LAD)</B> и <B>Orjan Ornkloo (ex-MISERY LOVES CO.)</B> спродюсируют новый альбом <B>IN FLAMES</B>, который уже записывается участниками в Дании и выйдет в начале 2004 года на <B>Nuclear Blast Records</B>.
+Автор: Darkfall
+
+### 19.11.2003 news Готов новый альбом IN FLAMES
+
+<P>Последователем релиза 2002 года <B>"Reroute To Remain"</B> станет новый полноформатник шведов <B>"Soundtrack To Your Escape"</B>. Он был записан в студии в Дании вместе с продюсерами <B>Daniel Bergstrand</B> (<B>DARKANE</B>, <B>MESHUGGAH</B>, <B>STRAPPING YOUNG LAD</B>) и <B>Orjan Ornkloo</B> (ex-<B>MISERY LOVERS CO.</B>) и смиксован в <B>Galaxy Studios</B> в Бельгии (<B>IRON MAIDEN</B>, <B>MANOWAR</B>, <B>RAMMSTEIN</B>). Мастеринг альбома будет проходить в <B>Cutting Room</B> в столице Швеции, Стокгольме.<BR><BR>Трэк-лист:<BR><BR>01. <B>F(r)iend</B><BR>02. <B>The Quiet Place</B><BR>03. <B>Borders And Shading</B><BR>04. <B>Discover Me Like Emptiness</B><BR>05. <B>Touch Of Red</B><BR>06. <B>Bottled</B><BR>07. <B>Dead Alone</B><BR>08. <B>Superhero Of The Computer Rage</B><BR>09. <B>Like You Better Dead</B><BR>10. <B>Dial 595-Escape</B><BR>11. <B>Evil In A Closet</B><BR>12. <B>In Search For I</B><BR>13. <B>My Sweet Shadow</B><BR><BR>Европейский релиз альбома состоится 29 марта 2004 года на <B>Nuclear Blast Records</B>.</P>
+Автор: Darkfall
+
+### 31.03.2004 news Новости от STRAPPING YOUNG LAD
+
+<B>STRAPPING YOUNG LAD</B> заключили новое соглашение с <B>CENTURY MEDIA</B> и готовятся к записи нового альбома. Предположительные названия песен <B>"Love"</B>, <B>"Imperial"</B>, <B>"Jux"</B>, <B>"Black Infinite"</B> и <B>"Zen Of Metal"</B>.&nbsp;Также группа закончила работу над DVD, которое выйдет в середине лета. На него войдёт шоу в Ванкувере, съёмки за сценой и несколько видео-клипов.
+Автор: Vit Belov
+
+### 21.08.2004 news STRAPPING YOUNG LAD начали запись нового альбома
+
+<P>19 августа <STRONG>Devin Townsend & Co</STRONG> вошли в <STRONG>The Armoury Studios</STRONG>&nbsp;в Ванкувере для записи нового альбома<STRONG> STRAPPING YOUNG LAD.</STRONG> Трэк-лист: (не по порядку):</P>
+<P>01. <B>Zen</B><BR>02. <B>Imperial</B><BR>03. <B>Skeksis</B><BR>04. <B>Love? </B><BR>05. <B>Shine</B><BR>06. <B>Possesions</B><BR>07. <B>Landscape</B><BR>08. <B>Shitstorm</B><BR>09. <B>What's New Pussycat?</B> (<B>TOM JONES</B> cover)<BR>Пластинка выйдет в январе на <STRONG>Century Media</STRONG>, а 2 ноября группа выпускает DVD <STRONG>"For Those Aboot To Rock".</STRONG></P>
+Автор: Vit Belov
+
+### 29.10.2004 news STRAPPING YOUNG LAD назвали альбом
+
+<P>Новый альбом <STRONG>STRAPPING YOUNG LAD</STRONG> будет называться '<STRONG>Alien</STRONG>'. напомним, что выйдет он в начале 2005 года на <STRONG>Century Media</STRONG>. В записи пластинки принял участие барабанщик <STRONG>Gene Hoglan</STRONG> (<STRONG>DEATH ANGEL</STRONG>, ex-<STRONG>DEATH</STRONG>).</P>
+Автор: Vit Belov
+
+### 29.10.2004 news STRAPPING YOUNG LAD named album
+
+<P>Maniacal Canadian extremists <STRONG>STRAPPING YOUNG LAD</STRONG> have set '<STRONG>Alien</STRONG>' as the title of their upcoming album, set for an early 2005 release through <STRONG>Century Media</STRONG>. It took drummer <STRONG>Gene Hoglan</STRONG> (<STRONG>DARK ANGEL</STRONG>, ex-<STRONG>DEATH</STRONG>) only three days in late August to pound through 11 tracks at the Armoury in Vancouver before the band moved on to <STRONG>Greenhouse Studios</STRONG> (also in Vancouver) to record the guitars and vocals. The remaining work is being done in <STRONG>SYL </STRONG>mainman <STRONG>Devin Townsend's</STRONG> studio in <STRONG>Maple Ridge</STRONG> (suburb of Vancouver). </P>
+<P>Songtitles set to appear on the CD include:<BR>01. <STRONG>Imperial<BR></STRONG>02. <STRONG>Skeksis<BR></STRONG>03. <STRONG>Shitstorm<BR></STRONG>04. <STRONG>Love?<BR></STRONG>05. <STRONG>Shine<BR></STRONG>06. <STRONG>Possessions<BR></STRONG>07. <STRONG>Landscape<BR></STRONG>08. <STRONG>Zen</STRONG></P>
+Автор: Vit Belov
+
+### 18.12.2004 news Трэк-лист нового альбома STRAPPING YOUNG LAD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, новый альбом <STRONG>STRAPPING YOUNG LAD 'Alien'</STRONG> выходит в скором будущем на <STRONG>Century Media</STRONG>. Стал известен трэк-лист пластинки:</FONT></P>
+<P>1.<STRONG> Imperial<BR></STRONG>2. <STRONG>Skeksis<BR></STRONG>3. <STRONG>Shitstorm<BR></STRONG>4. <STRONG>Love? <BR></STRONG>5. <STRONG>Shine<BR></STRONG>6. <STRONG>We Ride<BR></STRONG>7. <STRONG>Possessions<BR></STRONG>8. <STRONG>Two Weeks<BR></STRONG>9. <STRONG>Thalamus<BR></STRONG>10. <STRONG>Zen<BR></STRONG>11. <STRONG>Info Dump</STRONG> (Instrumental)</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 12.01.2006 news STRAPPING YOUNG LAD готовят новый альбом
+
+<P>Песни длля нового альбома <STRONG>STRAPPING YOUNG LAD</STRONG> почти написаны. Работа увидит свет предположительно летом.</P>
+Автор: Vit Belov
+
+### 27.03.2006 news STRAPPING YOUNG LAD назвали новый альбом
+
+<P>Новый альбом <STRONG>STRAPPING YOUNG LAD</STRONG> будет называться "<STRONG>The New Black</STRONG>" и выйдет предположительно в июле на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.04.2006 news Новости от STRAPPING YOUNG LAD
+
+<P>Канадские&nbsp;музыкальные экстремалы&nbsp;<B>STRAPPING YOUNG LAD</B> начали микширование своего нового альбома под названием <B>"The New Black"</B>,&nbsp;выход которого ожидается в июле на&nbsp;<B>Century Media Records</B>. Кроме того, <B>Century Media Records</B>&nbsp;запланировала на 12 июня ремастированное переиздание дебютного альбома&nbsp;<B>STRAPPING YOUNG LAD</B> 1995 года под названием&nbsp;<STRONG>"Heavy As A Really Heavy Thing"</STRONG> с четырьмя бонус-треками, видеоклипом и новым оформлением.</P>
+Автор: Dimas
+
+### 25.05.2006 news STRAPPING YOUNG LAD снимут клип на песню &quot;Wrong Side&quot;
+
+<P><STRONG>STRAPPING YOUNG LAD</STRONG> будут снимать видеоклип на песню "<STRONG>Wrong Side</STRONG>", которая будет первым синглом с грядущего альбома группы "<STRONG>The New Black</STRONG>". Съемки пройдут 28 мая под руководством режиссера <STRONG>Дейва Бродски</STRONG> <STRONG>(THE RED CHORD, GOD FORBID</STRONG>). </P>
+Автор: mcallen
+
+
 ## Обсуждения
 
 ### Дайте MP3 Strapping Young Lad

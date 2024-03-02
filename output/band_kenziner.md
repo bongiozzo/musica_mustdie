@@ -42,6 +42,9 @@ The prophecies
 * C группой "Solution .45" Mikko Harkin (keyboards)
 * C группой "Symfonia" Mikko Harkin (keyboards)
 
+## Публикации
+
+
 ## Обсуждения
 
 

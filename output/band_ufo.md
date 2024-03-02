@@ -24,6 +24,684 @@ Jason Bonham - drums (son of Led Zeppelin drumer John Bonham)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.10.1999 news 
+
+<p>U.F.O - жива. Фил Могг сообщил, что группа заменила Михаэля Шенкера Джефом Коллманом и записывает новый альбом, который выйдет на Рождество.</p>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Джон Норум присоединился к UFO
+
+<p>UFO официально объявили, что новым гитаристом группы стал Джон Норум (DOKKEN/EUROPE). Джон заменит Майкла Шенкера, который в очередной раз покинул группу. Напомним, что Норум уже планировал присоединится к UFO в 1996.</p>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Former EUROPE&#x2F;DOKKEN Guitarist Joins UFO
+
+<p>UFO have officially recruited former EUROPE/DOKKEN guitarist John Norum as a replacement for Michael Schenker. Norum was last rumored to be possibly joining the band back in 1996 when the "Walk On Water" tour went belly-up, but now after a recent stint with DOKKEN, he finally joins the band officially.</p>
+
+Автор: Vit Belov
+
+### 29.11.2003 news UFO вновь изменили состав и готовят новый альбом
+
+<P>Новый альбом <B>UFO 'Prodigal Son'</B> выйдет 23 февраля 2004 года на <B>SPV</B>. Новый состав группы:</P><B><SPAN style="COLOR: #ffffff">
+<P><B>Phil Mogg - vocals<BR>Pete Way - bass<BR>Paul Raymond - keyboards<BR>Vinnie Moore - guitars<BR>Jason Bonham - drums</B></P>
+<P>И никакого Джона Норума...<BR></P></SPAN></B>
+Автор: Vit Belov
+
+### 29.11.2003 news UFO will release new album. New Line-Up
+
+<DIV><SPAN style="COLOR: #ffffff">The new <B>UFO </B>album <B>"Prodigal Son"</B> will be released on Feb 23rd 2004 through <B>SPV.</B> The new line-up:<BR><BR><B>Phil Mogg - vocals<BR>Pete Way - bass<BR>Paul Raymond - keyboards<BR>Vinnie Moore - guitars<BR>Jason Bonham - drums</B></SPAN><BR></DIV>
+Автор: Vit Belov
+
+### 01.12.2003 news The new UFO album &quot;prodigal Son&quot;
+
+The new UFO album "prodigal Son" will be released on Feb 23rd 2004
+<br><br>
+The new line-up:<br><br>
+
+Phil Mogg - vocals<br>
+Pete Way - bass<br>
+Paul Raymond - keyboards<br>
+Vinnie Moore - guitars<br>
+Jason Bonham - drums<br><br>
+
+Club-Shows:<br>
+tue March 09 Switzerland  Pratteln,     Z7<br>
+wed March 10 Italy        Milan,        Alcatraz<br>
+thu March 11 Germany      Munich,       Gr. Elserhalle<br>
+fri March 12 Germany      Hannover,     Capitol<br>
+sat March 13 --<br>
+sun March 14 Germany      Stuttgart,    LKA<br>
+mon March 15 --<br>
+tue March 16 Germany      Hamburg,      Fabrik<br>
+wed March 17 Germany      Neu-Isenburg, Hugennottenhalle<br>
+thu March 18 --<br>
+fri March 19 Germany      Tuttlingen,   Stadthalle<br>
+sat March 20 Germany      Cologne,      E-Werk<br>
+sun March 21 Germany      Nuremberg,    Loewen<br>
+mon March 22 --<br>
+tue March 23 Germany      Mannheim,     Capitol<br>
+wed March 24 Germany      Berlin,       Columbia<br>
+thu March 25 Germany      Ingolstadt,   Ohrakel<br><br>
+
+Festivals:<br>
+June  05 Italy        Bologna,      Gods Of Metal<br>
+June  11 Sweden       Solvesborg,   Sweden Rock<br>
+June  12 Netherlands  tba           Arrow Classic<br>
+June  26 Germany      Balingen,     Bang Your Head
+Автор: Yermola
+
+### 24.12.2003 news Новый альбом UFO
+
+16 февраля 2004 года на <B>SPV Records</B> выходит новый альбом группы <B>UFO "You Are Here".</B> Продюсером альбома выступил <B>Tommy Newton </B>(работавший ранее с<B> HELLOWEEN, TEN, CONCEPTION, ARK, ELEGY</B>). В сегодняшний состав группы входят вокалист <B>Phil Mogg</B>, басист <B>Pete Way</B>, гитарист-клавишник <B>Paul Raymond</B>, ударник <B>Jason Bonham</B> и вернувшийся в группу гитарист <B>Vinnie Moore</B>. Трэк-лист альбома выглядит следующим образом:</P>
+<P><IMG height=250 alt="" hspace=10 src="/images/news_rus/2003.12/5765.jpg" width=250 align="left" border=0></P>
+<P>1. <B>Daylight Goes To Town</B><BR>2. <B>Black Cold Coffee</B><BR>3. <B>The Wild One</B><BR>4. <B>Give It Up</B><BR>5. <B>Call Me</B><BR>6. <B>Slipping Away</B><BR>7. <B>The Spark That Is Us</B><BR>8. <B>Sympathy</B><BR>9. <B>Mr. Freeze</B><BR>10. <B>Jelloman</B><BR>11. <B>Baby Blue</B><BR>12. <B>Swallow</B>
+Автор: Dimas
+
+### 26.02.2004 news UFO club-tour
+
+<P><SPAN style="COLOR: #ffffff"><B>special guest: ULI JON ROTH</B> </SPAN></P>
+<P><SPAN style="COLOR: #ffffff"><B>tue March 09 Switzerland&nbsp; Pratteln,&nbsp;&nbsp;&nbsp;&nbsp; Z7<BR>wed March 10 Italy&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Milan,&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Alcatraz<BR>thu March 11 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Munich,&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Gr. Elserhalle<BR>fri March 12 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Hannover,&nbsp;&nbsp;&nbsp;&nbsp; Capitol<BR>sat March 13 --<BR>sun March 14 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Stuttgart,&nbsp;&nbsp;&nbsp; LKA<BR>mon March 15 --<BR>tue March 16 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Hamburg,&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Fabrik<BR>wed March 17 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Neu-Isenburg, Hugennottenhalle<BR>thu March 18 --<BR>fri March 19 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Tuttlingen,&nbsp;&nbsp; Stadthalle<BR>sat March 20 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Cologne,&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; E-Werk<BR>sun March 21 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Nuremberg,&nbsp;&nbsp;&nbsp; Loewen<BR>mon March 22 --<BR>tue March 23 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Mannheim,&nbsp;&nbsp;&nbsp;&nbsp; Capitol<BR>wed March 24 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Berlin,&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Columbia<BR>thu March 25 Germany&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Ingolstadt,&nbsp;&nbsp; Ohrakel<BR></B></P></SPAN>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 18.03.2004 reviews Есть еще порох в пороховницах!
+
+<P>В стане одной из старейших английских хард-роковых групп UFO произошли очередные изменения. Ярчайшая фигура рок-сцены, немецкий гитарист Michael Schenker покинул команду, дабы продолжать свое творчество в составе своей банды MSG, и его заменил Vinnie Moore, известный по работе с Элисом Купером на "Hey Stoopid" и своему сольному дебютнику "Mind's Eye", проданному, между прочим, в количестве более 100 000 копий. А место за ударной установкой занял Jason Bonham, сын барабанщика легендарных Led Zeppelin. Остальные же участники уже давно (а двое из них и с первых дней) в составе UFO: вокалист Phil Mogg, клавишник Paul Rymond и басист Pete Way. И ветераны показали, что есть еще порох в пороховницах! На альбоме дюжина не шедевральных, конечно, но крепко сбитых вещей, вокал Могга проактически не изменился, ну а то, что эти ребята умеют играть, тут уж можно не сомневаться. Не обошлось и без весьма неплохой баллады - "Baby Blue". Разумеется, до лучших работ "НЛО" "You Are Here" не дотягивает, но тем не менее, если вы любите классический хард-рок,&nbsp; то этот диск займет достойное место в вашей коллекции.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 15.09.2004 articles Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста
+
+<P><EM>Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста</EM></P>
+<P>DIMMU BORGIR только что закончили тур по Америке в рамках Ozzfest. Это большой прорыв для норвежской black-metal команды. Вот отрывки из интервью, которое дал Shagrath журналу Metal-Exiles.com:<BR>Q: Почему группу покинул Nick Barker? <BR>Огромное количество времени у нас были проблемы на личном уровне. Нам было необходимо разойтись, чтобы не произошло чего-нибудь более плохого. Он очень отличался от остальных членов группы, но это нисколько не умаляет его профессионализма. Я очень уважаю его и желаю ему всего наилучшего, но он больше не DIMMU.<BR>Q: Он сам ушёл или его уволили?<BR>Он был уволен.<BR>Q: Что дальше после Ozzfest?<BR>Мы собираемся отправиться домой, где отдохнём несколько месяцев. Побудем с семьями, и быть может, начнём сочинять новый материал. Некоторое время ничего происходить не будет, мы не будем давать концертов в течение двух лет. Мы просто выжжены сейчас, нам нужен перерыв.<BR>Q: Вы были в туре около года?<BR>Да, и это время для нового альбома и более расслабленного времяпрепровождения.</P>
+<P>Classic Rock Revisited недавно взяли интервью у фронтмэна UFO Phil Mogg, который рассказал о будущем группы и своих размолвках с бывшим товарищем Michael Schenker:<BR>Q: Michael Schenker недавно рассказал нашему журналу о разладе в UFO. “Phil всегда был драчуном. Он всё время устраивал стычки, и я сказал ему, что если он меня хоть пальцем тронет, я уйду из группы. Он ударил, и я ушёл”. Что Вы можете на это ответить?<BR>Я слышал нечто такое, и это уже не новость для меня. Он покидал группу пол дюжины раз, он уходил из SCORPIONS дважды, и даже умудрился покинуть свою собственную группу. Поэтому причины этого неважны, всегда кто-то был виноват. В основном все наши проблемы возникали, из-за финансовых вопросов. Мы вкладывали все деньги в группу, а он был этим недоволен.<BR>Q: Писал ли он письмо в Kerrang! В начале 80-х, где протестовал против возрождения группы?<BR>Честно говоря, я не знаю ничего про это, но столько сумасшедших историй связано с ним, что нам не хватит и дня, чтобы всё обсудить. Это продолжалось всегда. Мне очень нравится, как Michael играет, и я принимаю 80% его натуры.<BR>Q: Вы делали хорошую музыку вместе. Вы сожалели когда-нибудь, что не смогли сохранить деловые отношения?<BR>Самым большим разочарованием стало наше воссоединение в 1995 году. У меня были такие ожидания! У нас был менеджмент, а я хотел только петь, играть и сочинять музыку. Мы поехали в тур, и он умудрился покинуть группу три раза. Первый раз в Modesto, Калифорния, второй раз в Токио, где он ушёл в середине шоу, а аудитория просто осталась стоять в тишине, а третий раз -&nbsp; в Манчестере. Мы собирались творить вместе, а он просто нас кинул. </P>
+<P>Американский сайт InsidePulse.com определил список&nbsp; десяти лучших вокалисток в современном металле:<BR>01. Cristina Scabbia (LACUNA COIL)<BR>02. Angela Gossow (ARCH ENEMY)<BR>03. Anneke van Giersbergen (THE GATHERING )<BR>04. Tanja Lainio (LULLACRY)<BR>05. Anita Auglend (SINS OF THY BELOVED)<BR>06. Candace Kucsulain (WALLS OF JERICHO)<BR>07. Otep Shamaya (OTEP)<BR>08. Morgan Lander (KITTIE)<BR>09. Jonna Enckell (THE PROJECT HATE)<BR>10. Amy Lee (EVANESCENCE)<BR>Любопытно, что Amy Lee только на десятом месте, а возглавляет список Европейская девушка. Кроме этого, в списке нет, сами знаете кого.</P>
+<P>Малазийские исламские фундаменталисты выступили в правительстве страны против концерта SCORPIONS, которые, по их мнению, развращают молодёжь. «Подобные концерты – катализаторы гедонизма и зла в обществе», - заявил Salahuddin Haji Ayub, молодёжный лидер Пан-Малазийской исламской партии. «Исследования показали, что падает собственное достоинство и самооценка от подобных вызывающих программ», - говорится в заявлении. Сообщается также, что эти активисты протестовали по поводу концертов Michael Jackson, Mariah Carey и LINKIN PARK, но не один концерт так и не был запрещён.</P>
+<P>Doro Pesch дала интервью греческому журналу Metal-Temple.com, в котором рассказала о первом альбоме для AFM ‘Classic Diamonds’, на котором она перепевает классику из творчества DORO, а также исполняет некоторые новые песни. В записи альбома Doro помогали Blaze Bayley (BLAZE, ex-IRON MAIDEN), Kai Hansen (GAMMA RAY, ex-HELLOWEEN) и Udo Dirkschneider (U.D.O., ex-ACCEPT).<BR>«Мне предложили поработать с Metal Classic Night Orchestra, на предмет переработки нескольких моих старых хитов. У меня уже был подобный опыт с Dusseldorf Symphony Orchestra, и это было очень интересно. Мы дали концерт, на котором исполнили многие вещи из классики heavy-metal. Например, с Blaze Bayley мы исполняли ‘Fear Of The dark’, и это получилось так хорошо, что мы решили это записать. В январе мы уже записали много песен: 'All We Are', 'Fur Immer' and 'Breaking the Law' JUDAS PRIEST. На вопрос, с кем бы Doro хотела ещё поработать, она ответила: «Да. Я хотела бы поработать с Tarja из NIGHTWISH. В ближайшее время мы начинаем работу над новой пластинкой, и было бы здорово спеть дуэтом с другой певицей. Я уже джэмовала с Sabina Classen (HOLY MOSES) на Wacken, где мы исполнили 'Too Drunk To Fuck', что всех впечатлило.</P>
+<P>Буквально на днях стало известно, что из EXODUS уволен вокалист Steve "Zetro" Souza. Вот, что сказал Gary Holt на официальном форуме группы: «Он (Souza) отказался лететь в Мексику всего лишь за 24 часа до концерта. Сказал, что не полетит с нами в Мексику, а присоединится к группе уже в туре по Южной Америке. Он наврал нашему менеджеру, что сказал мне об этом раньше – это откровенная ложь. После этого Steve пропал и не отвечал на телефонные звонки, а промоутер в Мексике уже заплатил 8 тысяч долларов!!! Организатор разорился бы, но его это не волновало, этот кусок дерьма думает только о себе и о своих деньгах. Слышали бы Вы, что он говорил последние два года. «Почему басист Jack Gibson получает столько же, сколько я? Кто он такой? Давайте наймём телохранителей в Южной Америке. Если фэны хотят услышать больше 12 песен, они должны заплатить больше. Почему Gary находится спереди на наших промо-фотографиях, там должен быть я. Видели бы Вы, как этот motherfucker сидел за кулисами на одном фесте в Финляндии и орал, как котёнок. Теперь он может оставить свою толстую задницу дома!!! EXODUS продолжают существовать, это моя группа!!!»&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 05.07.2006 news Новый альбом легендарных хард-рокеров
+
+<P>Группа&nbsp;<B>UFO</B> объявила <B>"The Monkey Puzzle"</B> названием своего нового студийного альбома, выход которого намечен на 25 сентября через <B>SPV Records</B>. Альбом был записан в <B>Area 51 Studios</B> с продюсером <B>Tommy Newton</B>, который работал с коллективом при записи их последнего студийного альбома и концертника <B>"Showtime"</B>.</P>
+Автор: Dimas
+
+### 08.11.2006 reviews Неровная работа ветеранов
+
+<P>Число студийных альбомов британских хард-рокеров UFO неумолимо приближается к двадцати, а возраст их лидера и вокалиста Фила Могга к шестидесяти годам. Но старички успокаиваться не собираются и регулярно выпускают в новом веке по альбому через каждые два года. Новая работа группы "The Monkey Puzzle" примечательна прежде всего тем, что в состав UFO вернулся оригинальный барабанщик Энди Паркер (а Джейсон Бонэм тем временем ушел в не так давно возрожденный Foreigner). Музыкально же творчество ветеранов, как нетрудно догадаться, никаких изменений не претерпело. Это всё тот же блюзоориентированный британский хард-рок, который UFO играют уже более 35 лет (хотя, конечно, нельзя говорить, что, скажем, "No Place To Run" это то же самое, что и "The Monkey Puzzle"). Прошлая работа группы "You Are Here" 2004-го года получилась весьма неплохой, так что поклонники "НЛО" могли ждать нечто подобного и на новой пластинке. Оправдались ли их ожидания? И да, и нет. Дело в том, что "The Monkey Puzzle" получился довольно неровным, хорошие вещи тут соседствуют с явно проходными песнями. После энергичной открывашки 'Hard Being Me' идут две "никакие" 'Heavenly Body' и 'Some Other Guy', потом следует яркая 'Who's Fooling Who', которую сменяет 'Black And Blue' с совершенно невразумительным припевом, далее идет отличная фирменная юфовская полубаллада 'Drink Too Much', и так далее. В общем и целом, UFO сделали вполне достойный альбом, который, правда, вновь доказывает, что до своих шедевров 70-х и 80-х годов британцы уже вряд ли когда допрыгнут.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 22.11.2007 news UFO: Впечатления от России
+
+<P><STRONG>UFO</STRONG> только что вернулись из тура по России, и их барабанщик <STRONG>Andy Parker </STRONG>вкратце изложил свои впечатления на официальном сайте:</P>
+<P>"<EM>Особенно в этом туре впечатлили российские расстояния", -</EM> рассказывает <STRONG>Энди</STRONG><EM>. "И это вам говорит человек, проживающий в Техасе. У нас были переезды по 20 с лишним часов на поезде. При этом в поезде больше нечего делать, кроме как пить. После этого я с благодарностью вспоминаю английские железные дороги. Ну, русские мастера пить. По сравнению с ними, даже известный мастер этого дела Pete Way только новичок</EM>".</P>
+Автор: Vit Belov
+
+### 03.02.2009 news Pete Way болен
+
+<P><STRONG>UFO</STRONG> сообщили, что воздержатся от концертной активности в ближайшее время, из-за болезни басиста<STRONG> Pete Way</STRONG>. Музыкант лечит свою печень и не может активно работать в группе в настоящее время.</P>
+Автор: Vit Belov
+
+### 19.02.2009 news Дата релиза UFO
+
+<P>Новый альбом <STRONG>UFO "The Visitor"</STRONG> выйдет в конце мая/начале июня на<STRONG> SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.03.2009 news Обложка &quot;Посетителя&quot; от UFO
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>UFO "The Visitor"</STRONG> выйдет в начале лета на<STRONG> SPV</STRONG>. Обложку этой пластинки можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.03/13758.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.04.2009 news Трэк-лист нового UFO
+
+<P>Новый альбом <STRONG>UFO "The Visitor"</STRONG> выйдет 2 июня на <STRONG>SPV</STRONG>. Стал известен трэк-лист будущей пластинки:</P>
+<P>01. <B>Saving Me</B><BR>02. <B>On The Waterfront</B><BR>03. <B>Hell Driver</B><BR>04. <B>Stop Breaking Down</B><BR>05. <B>Rock Ready</B><BR>06. <B>Living Proof</B><BR>07. <B>Can't Buy A Thrill</B><BR>08. <B>Forsaken</B><BR>09. <B>Villains & Thieves</B><BR>10. <B>Stranger In Town</B><BR>11. <B>Dancing With St. Peter</B> (2009 edition) (digipack bonus track)</P>
+Автор: Vit Belov
+
+### 15.12.2010 news Michael Schenker снова работает с Herman Rarebell и Pete Way
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Michael Schenker (MICHAEL SCHENKER GROUP, UFO, SCORPIONS), </STRONG>барабанщик <STRONG>Herman Rarebell (SCORPIONS), </STRONG>басист <STRONG>Pete Way (UFO) </STRONG>и вокалист <STRONG>Michael Voss (CASANOVA,SILVER, MAD MAX) </STRONG>организовали новую группу <STRONG>STRANGERS IN THE NIGHT. </STRONG>Музыканты в настоящее время работают над дебютным альбомом в Брайтоне, Англия. Ниже можно посмотреть клип на песню коллектива <STRONG>"Saturday Night".</STRONG></FONT></P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/4C4kWDLzHLE&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/4C4kWDLzHLE&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

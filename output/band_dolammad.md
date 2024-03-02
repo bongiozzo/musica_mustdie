@@ -36,6 +36,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.01.2012 news DOL AMMAD работают над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер греков <STRONG>DOL AMMAD</STRONG> клавишник<STRONG> Thanasis Lightbridge</STRONG> выпустил первый видео-трейлер с сэмплами третьей работы группы "<STRONG>Hyperspeed</STRONG>". Трек-лист будущего альбома:</FONT></P>
+<P>1. <STRONG>Magus Invicta<BR></STRONG>2. <STRONG>Noctis Labyrinthus</STRONG><BR>3. <STRONG>Golden Phantasma</STRONG><BR>4. <STRONG>Titan Warriors<BR></STRONG>5. <STRONG>Xenocide<BR></STRONG>6. <STRONG>Stargate Pyramid<BR></STRONG>7. <STRONG>Omniversal God<BR></STRONG>8. <STRONG>Hyperspeed<BR></STRONG>9. <STRONG>Supernova <BR></STRONG>10. <STRONG>Caravan Of Mars</STRONG><BR>11. <STRONG>Seeds Of Life</STRONG></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/epmWY6jhgus?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/epmWY6jhgus?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 15.03.2012 news Новое видео DOL AMMAD
+
+<P>28 марта выходит новый альбом проекта<STRONG> DOL AMMAD "Cosmic Gods: Episode I - Hyperspeed".</STRONG> Видео-клип на песню "<STRONG>Hyperspeed</STRONG>" можно посмотреть ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/cAKSWBWK4sE?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

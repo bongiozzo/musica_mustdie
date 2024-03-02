@@ -30,6 +30,9 @@ Recorded & Mixed At Indigo Ranch Studios.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

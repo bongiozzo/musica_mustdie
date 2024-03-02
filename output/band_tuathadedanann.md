@@ -59,6 +59,46 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.03.2000 reviews 
+
+<p>Этот альбом прислал мне Wilton из HEAVY METAL ROCK - http://hmrock.cjb.net - за что ему большое человеческое спасибо и больших успехов в далекой стране Бразилии. Совершенно чумовой альбом, стиль которого я описать затрудняюсь. Что-то вроде тяжелого speed'а с красивейшими клавишами, двойным вокалом - чистым и гроулингом и ведущей ФЛЕЙТОЙ. Иногда это чистой воды speed, иногда мелодичный doom, иногда тяжелый hard. Все сыграно, записано и подано в очень красивой и профессиональной форме. Молодые бразильцы играют легко и по-новаторски свежо. Все 42 минуты пролетают мгновенно. Оформление и лирика тоже на уровне. Все 8 композиций (Us, Bards Of Infinity, Queen of the Witches, Oisin, Inrahma, Faeryage, Beltane, Tuathe De Danann)являются 100% хитами всех времен и народов и поэтому выделить какую-либо вещь невозможно. После прослушивания я стал фанатом TUATHA DE DANANN, а их альбом занял свое достойное место в 10 лучших альбомов 1999 года. Советую всем, кто сможет найти - приобрести этот альбом - он того стоит. 10 из 10</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews Brazilian folk-power-metal
+
+<p>Brazilian folk-power-metal. Such was necessary earlier слыхать to you? Personally, I for the first time such have heard. Solid tambourines-flutes and acoustic guitars on a background speed-power-metal'a. Madly it was pleasant to me, personally. Though, such is necessary to recognize, for the first time to listen is unusual a little. Can not understand in any way, what is this style, like and not power, but like and not gothic-folk, and from time to time brushes away on doom, but it is only illusive. From time to time on an album reigns fun, from time to time sad music. A very miscellaneous album. Specially should like the fans folk insinuations, but fans classic power-metal he will be not clearer and it is pleasant to little.</p>
+
+Автор: Dimas
+
+### 31.07.2002 bios Tuatha de Danann bio...
+
+<p>The Tuatha de Danann initiated its activities in 1995 under the name of Pendragon, and always with intention to make a sound without labels, mixing the Metal with old Celtic music. <BR> In 1996 it leaves the demon covers " The Last Pendragon " that already presented a different band of the ones of the scene and that it relieved excellent you criticize of the specialized Media. In 1998 it comes the demon covers " Faeryage ", total dived in the magic and beauty of music celtic, watered the flutes, violins and much weight. This demon made an impression to all, all the specialized media as much Brazil how much exterior it praised the demon very covers what it provided to the Tuatha to sign with the Heavy stamp Metal Rock. Already in 1999, single with 4 new songs is launch one and musics of bond the Faeryage demon. This material was launch in Compact disc and with the name Tuatha de Danann. Always with the same musical string, the magician old music celtic and mixing to the metal, flutes and much delirium. <BR> This Compact disc divulged the band very, also touched in some cities of Brazil and in the exterior in countries as Portugal, England, France among others.<BR> Then, in October 2001, it is launch the Compact disc Tingaralatingadum, this album is an invitation the magic and magic trip, where people play with fairies and everything this in perfect harmony with the nature. They are 10 unknown bands, and an excellent writing where it shows the total growth of the band, watered Tingaralatingadum this of flutes, mandolins, violins and letters that in take them to a wonderful stroll for this unknown world.</p>
+
+Автор: Yermola
+
+### 26.09.2002 reviews Кельт, он и в Бразилии - кельт
+
+<p>"Свежий" материал от уже известных нам кельтов из Бразилии, записанный в 2001 году. Очень жизнеутверждающая и весёлая музыка, как и любое творчество основанное на кельтском фолклоре. Естественно не стоит требовать от группы и большой оригинальности, ничего нового в мелодическом плане здесь не придумывалось уже лет 100. На записи присутствуют все основные инструменты: флейты, мандолины, ну и, конечно же, стандартный набор металлиста...:)) Чистый вокал и гроулинг (изредка). Описывать нечего, единственное, что Tuatha de Danann я отнёс бы к кельтскому power, не очень плотному, а скорее клавишно-ориентированному. Здесь же Вы сможете найти и магическо-сказочные баллады. К минусам стоит отнести не очень чёткую реализацию. Для всех любителей фолклорных дел с дудками и прибаутками.</p>
+
+Автор: Vit Belov
+
+### 26.09.2002 reviews Celt is Celt, even in Brazil...
+
+<p>"Fresh" material from already known to us celts from Brasil which has been written down in 2001. Very lifeconfirming and cheerful music, as well as any creativity based on celtic folklore. Naturally it is not necessary to require from band great originality, anything new in melodic plan here was not thought out of 100 years. On record there are all basic instruments: flutes, mandolins, well and, certainly, standard collection of metaller...:)) Clean vocal and growling (occasionally). There is nothing to describe, only, that Tuatha de Danann I would relate to celtic power, not so dense, and rather кey-focused. Here you can find also magic-fairy ballads. To minuses it is necessary to relate not so precise realization. For all fans of folk stuff with pipes and jokes.</p>
+
+Автор: Vit Belov
+
+### 29.08.2003 reviews Кельтские бразильцы.
+
+<p>Третий альбом бразильской фолк-металической команды, участники которой явно грезят не о таинственных городах спрятанных в глубине непроходимых джунглей или о таинственных племенах, прячущих свои тайны под покровом влажной сельвы, а о вересковых полях и дремучих суровых лесах, где на тайных полянах устраивают игрища сказочные существа. <br> Снова стильная «говорящая» обложка. Вспомним, что было нарисовано на «Tingaralatingadun» – дикая совместная попойка лесных, явно деградирующих от постоянного употребления эля, эльфов и развратных фей. Соответственно настроению обложки была и музыка - разухабистая, разгульная, для пивной попойки в самый раз. Теперь несколько другая картинка. Гуляют уже сами музыканты, но не отрываясь от своих прямых обязанностей. Поэтому и на альбоме меньше бездумного веселья, а больше МУЗЫКИ. Из собутыльников эльфов осталось два проверенных товарища, но от обнаженных фей не отказались. Это было бы глупо. <br> Участники данного коллектива очень правильно, на мой взгляд, прогрессируют. Они не пошли по легкому, но коммерчески выгодному, пути, не стали тиражировать доступные массам однотипные танцевально-угарные хиты (In Extremo, Cruachan), а занялись серьезной музыкой (ранний и средний Skyklad). В принципе, так мог бы звучать Jethro Tull, родись Андерсон чуть позже. Много акустики, много флейты, богатые аранжировки (сказалось появление второго клавишника Рафаэля Кастро), прекрасные мелодии. И вокал Бруно Майя. Надеюсь, он больше никогда не даст хрипеть своему басисту, а сам будет петь так, как он звучит на The Last Words. Это ж молодой Брюс Дикинсон!! Про power-folk-metal можно забыть. Пришло время прог-фолка! Но любителям повеселиться расстраиваться не стоит, грустной и скучной музыка у Tuatha de Danann не стала. <br> Итог. Отличный диск. Лучше предыдущего. А «Tingaralatingadun» - очень сильный альбом.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+
 ## Обсуждения
 
 

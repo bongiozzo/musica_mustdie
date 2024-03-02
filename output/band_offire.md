@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.10.2016 news OF FIRE выпустили видео-клип
+
+<p>Шведская death metal группа <strong>OF FIRE</strong> опубликовала видео-клип на песню "<strong>Scavengers</strong>". Трек войдёт во второй альбом коллектива "<strong>Death Do Us All</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zllOlWcSeJc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.10.2016 news Swedish death metal band OF FIRE released new video
+
+<p>Swedish death metal band <strong>OF FIRE</strong> has posted a video clip for the song "<strong>Scavengers</strong>". The track will be included in the second album, "<strong>Death Do Us All</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/zllOlWcSeJc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

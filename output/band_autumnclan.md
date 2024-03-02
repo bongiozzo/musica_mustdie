@@ -12,6 +12,32 @@ gothic
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 16.12.2002 reviews Девочкам понравится!
+
+<p>Честно говоря, всегда не очень хорошо относился ко всяким мальчиковым группам. В случае с этими немцами мы имеем, как раз такой вариант. Примитивные тексты о любви "завораживают" своей сентиментальностью и простодушностью. Усыхаю, умираю, помоги, хочу любить и.т.д. Если вслушиваться, большинство наших русских мужиков стошнит. Не знаю, хорошо ли, плохо ли... Но поговорим о музыке... Музыка тоже не отличается особой оригинальностью, HIM'опобоный gothic-rock без изысков. Радует, отличная реализация. Советовать никому не буду, а то вдруг, кого обижу... Хорошая (качественная) музыка с сильным уклоном в дешёвую мелодраму.</p>
+
+Автор: Vit Belov
+
+### 21.12.2002 reviews It is pleasant to the girls!
+
+<p>To tell the truth, I've always concerned to everyones 'boybands' not so well. In a case with these Germans we have such variant. The primitive lyrics about love "bewitch" by the sentimentality and simple-hearted. I'm fading, I'm dying, help!, I want to love etc If listen attentionaly, majority of ours metal men will be sick. I do not know, whether it is good, whether it is bad... But we shall talk about music... Music does not differ by the special originality too, HIMliked gothic-rock without any refine. The excellent realization pleases. I shall advise nobody, 'cause I shall offend suddenly... Good (qualitative) music with strong slope in a cheap melodrama.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

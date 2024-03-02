@@ -64,6 +64,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2016 news SABER TIGER подписались на Into The LimeLight Records
+
+<p>Легендарная heavy metal группа из Японии <strong>SABER TIGER</strong>, в активе которой четырнадцать студийных альбомов, подписала европейское соглашение <strong>Into The Limelight Records</strong>. Группа существует с начала 80-х годов, но в Европе в первый раз выступила в 2016 году. Теперь коллектив отправится в тур по Европе в 2017 году.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/2VWn4Y6ODAA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.09.2016 news The allmighty Saber Tiger (Japan) signs European record deal with Into The LimeLight Records
+
+<p>The legendary heavy metal band from Japan, <strong>SABER TIGER</strong>, have in their discography fourteen Studio albums, signed a European agreement with <strong>Into The Limelight Records</strong>. The group exists since the early 80-ies, but in Europe for the first time performed in 2016. Now the band will embark on a tour of Europe in 2017.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/2VWn4Y6ODAA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

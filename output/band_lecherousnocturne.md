@@ -30,6 +30,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.07.2011 news LECHEROUS NOCTURNE расстались с вокалистом
+
+<P>Вокалист <STRONG>Jason Hohenstein </STRONG>был уволен из американской группы <STRONG>LECHEROUS NOCTURNE. </STRONG>Сам музыкант заявил, что синял материал для нового альбома коллектива, но его попросили удалиться.</P>
+<P>Второй альбом американских death-metal'истов <STRONG>"The Age of Miracles Has Passed" </STRONG>вышел в 2008 году на<STRONG> Unique Leader</STRONG>.</P>
+<P><center><IMG height=348 src="/images/news_rus/2011.07/20333.jpg" width=411 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

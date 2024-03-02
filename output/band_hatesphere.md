@@ -149,6 +149,173 @@ LP version released by Supreme Chaos Records on 180g red vinyl with lyric insert
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.02.2003 reviews Ад здесь
+
+<p>Второй получасовой альбомчик датской команды HATESPHERE переполнен агрессивно-мелодичным death-thrash metal. Одноименный дебютный альбом группы произвел фурор среди всех любителей как thrash, так и death metal. Грамотное смешение melodic death metal и thrash metal в духе SLAYER и KREATOR обеспечили группе прорыв на мировой рынок. И вот незамедлительное подкрепление дебютника выполненное в том же духе. Убийственные риффы и отточенная мелодика, качественный, чуть грубоватый саунд, немного фоновых клавишных и максимальная интенсивность. Брутально, беспощадно и органично. Все песни хорошо продуманы и безукоризненны в техническом плане. Ну что еще сказать... Маловато только, а так... Все на месте. Рекомендую всем, но особенно любителям THE CROWN, THE HAUNTED и AT THE GATES.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 28.05.2003 news Потери в HATESPHERE
+
+<p>Ударник Morten Toft Hansen покинул состав датских дэт-трэшеров HATESPHERE, чтобы полностью сфокусироваться на другой своей группе RAUNCHY, чей новый альбом должен выйти в конце года на Nuclear Blast Records.</p>
+
+Автор: Dimas
+
+### 18.06.2003 news Danish thrash quintet will quickly get your blood burning ...
+
+<p>The blistering new offering from the Danish thrash quintet will quickly get your blood burning and this album is not for the weak. After a very successful European tour in April with The Haunted and Mastodon they were so inspired that they immediately started the writing process for their next record. Bloodred Hatred, their second full-length album, is licensed from Scarlet Records and this is the first time the group will be officially exposed to U.S. audiences. The record is now available and this is the new wave of unrelenting thrash metal and hopefully you are prepared for the punishment coming your way.</p>
+
+Автор: Yermola
+
+### 12.10.2003 news HATESPHERE закончили работу над mini-альбомом
+
+<IMG height=174 alt="" hspace=0 src="/images/news_rus/2003.10/5044.gif" width=200 align="left" border=0>В декабре на Scarlet выйдет новый мини-альбом <B>HATESPHERE "Something Old, Something New, Something Borrowed and Something Black"</B>. Трэк-лист:<BR><B>01. Release The Pain<BR>02. Bark At The Moon (OZZY OSBOURNE cover)<BR>03. Caught In A Mosh (ANTHRAX cover)<BR>04. Low Life Vendetta (Live)<BR>05. Bloodsoil (Live)<BR>06. Plague (Live)<BR>07. Hate (Live)</B>
+Автор: Vit Belov
+
+### 15.10.2003 news HateSphere to release mini-CD
+
+<SPAN style="BACKGROUND: #000000">
+<DIV align="left"><IMG height=174 alt="" hspace=0 src="/images/news/2003.10/5083.gif" width=200 align="right" border=0>"<B>Something Old, Something New, Something Borrowed and Something Black</B>" is the title for the HateSphere mini CD, and it will be released by</DIV>
+<DIV align="left"><A href="http://www.scarletrecords.it/"><U>Scarlet Records</U></A> in <B>December</B> (a release date will&nbsp;be official&nbsp;soon)</DIV>
+<DIV align="left">&nbsp;</DIV>
+<DIV align="left"><B>The tracklist:</B></DIV>
+<DIV align="left">1. <B><A href="http://www.hatesphere.com/Sounds/ReleaseThePain.mp3"><U>Release The Pain</U></A></B> (some wicked new HateShit)</DIV>
+<DIV align="left">2. <A href="http://www.hatesphere.com/Sounds/BarkAtTheMoon.mp3"><B><U>Bark At The Moon</U></B></A> (A fast and furious cover version of Ozzy&acute;s immortal classic)</DIV>
+<DIV align="left">3. <B><A href="http://www.hatesphere.com/Sounds/CaughtInAMosh.mp3"><U>Caught In A Mosh</U></A></B> (Anthrax - old school thrash metal as we love it)</DIV>
+<DIV align="left">4. <A href="http://www.hatesphere.com/Sounds/LowLife.mp3"><B><U>Low Life Vendetta</U></B></A> (Live)</DIV>
+<DIV align="left">5. <A href="http://www.hatesphere.com/Sounds/Bloodsoil.mp3"><B><U>Bloodsoil</U></B></A> (Live)</DIV>
+<DIV align="left">6. <A href="http://www.hatesphere.com/Sounds/Plague.mp3"><B><U>Plague</U></B></A> (Live)</DIV>
+<DIV align="left">7. <B><A href="http://www.hatesphere.com/Sounds/Hate.mp3"><U>Hate</U></A></B> (Live)</DIV></SPAN>
+Автор: Vit Belov
+
+### 09.03.2004 news HATESPHERE записали новый альбом
+
+<P><B><IMG height=291 alt="" hspace=0 src="/images/news_rus/2004.03/6161.jpg" width=300 align="left" border=0>HATESPHERE</B> закончили запись нового альбома <B>Ballet of the Brute, </B>который выйдет в июне на <B>SCARLET</B>. В этот раз группа работала с продюсером <B>Tommy Hansen</B> (<B>HELLOWEEN</B>, <B>PRETTY MAIDS</B>). Трэк-лист:</P>
+<P>01. <B>The Beginning And The End</B><BR>02. <B>Deathtrip</B> <BR>03. <B>Vermin</B> <BR>04. <B>Downward To Nothing</B> <BR>05. <B>Only The Strongest…</B><BR>06. <B>What I See I Despise</B> <BR>07. <B>Last Cut, Last Head</B> <BR>08. <B>Warhead</B> (feat. INVOCATOR</B>'s Jacob Hansen</B>) <BR>09. <B>Blankeyed</B> <BR>10. <B>500 Dead People</B> <BR></P>
+Автор: Vit Belov
+
+### 21.11.2004 news Hatesphere на SPV
+
+<P><STRONG>HATESPHERE </STRONG>заключили контракт с <STRONG>SPV</STRONG>. Первым релизом группы на новой фирме станет EP <STRONG>'The Killing'</STRONG>, а после этого коллектив отправится в тур вместе с <STRONG>KREATOR</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.11.2004 news HATESPHERE sign with SPV
+
+<P><STRONG>HATESPHERE</STRONG> sign with <STRONG>SPV</STRONG>.</P>
+<P><STRONG>SPV / Steamhammer</STRONG> will be releasing "<STRONG>The Killing EP</STRONG>", as the band goes out on tour with label mates <STRONG>KREATOR</STRONG> in early 2005. </P>
+Автор: Vit Belov
+
+### 12.05.2005 reviews Мощь и сила!
+
+<P>Мощнейшие хуковые рифы прелюдии к альбому моментально отправили меня в нокаут. А уж со второй композиции я был вообще размазан по стене. Дело в том, что датчане HateSphere одни из самых экстремальных представителей так называемой новой волны трэша, взявшей начало несколько лет назад в Швеции и заметно прокатившейся по Европе, но почему-то не добравшейся в нужной степени до России. Так, рябь какая-то прошла. Но вернемся к альбому.</P>
+<P>Шквал барабанных бочек и брейков, высокоскоростные, но очень четкие и читабельные гитарные чесы, мощнейший басовый грув – это музыка Хэйтсфер. Музыка сметающая все на своем пути, не оставляющая камня на камне. Брутальнейший мясной трэш с легким налетом мелодичного дэта. Единственный маленький минус – некоторая безликость вокалиста. Нет, не подумайте ничего плохого- голос Якоба Бредаля очень хорош, но явно ориентирован на шведский дэт типа Соилворк или Ин Флеймс. Этим кстати, на мой взгляд, страдают все новоиспеченные трэшевые коллективы - будь то Дью – Сцентед или Хаунтед. Хотя, по большому счету, это и минусом назвать сложно. Главное, чтоб вокал вписывался в музыкальную структуру песен, а уж с этим у HateSphere все в порядке.</P>
+Автор: Fucker
+
+### 08.06.2005 news HATESPHERE начали запись нового альбома
+
+<P>6 июня <STRONG>HATESPHERE</STRONG> вошли в <STRONG>Jailhouse Studios</STRONG>, где с продюсером <STRONG>Tommy Hansen</STRONG> запишут новый полноформатник. Гитары и бас будут записаны при помощи<STRONG> Jacob Hansen</STRONG>. Альбом выйдет в сентябре-октябре на<STRONG> SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.07.2005 reviews Старые сказки на новый лад
+
+<P>Техничный и злой thrash/death metal новой волны из Дании. “Ballet To The Brute” – уже третий альбом группы (первый так и назывался – “Hatesphere” и вышел в 2001-м, второй - “Bloodred Hatred”, 2002 года).<BR>Казалось бы, музыка из холодной суровой Скандинавии – но такая горячая! Здесь, словно в кузнечном тигле, намертво сплавились в одно целое брутальные PANTERA и SLAYER, «смертельные» DEATH и поздний IN FLAMES, инфернальный angry-кач от The HAUNTED и SOILWORK. Микстурка не для слабонервных.… Иногда – видимо, в качестве пилюльки для недовольных романтиков – проскальзывают крайне мелодичные пассажи, а ля SOILWORK, которые, впрочем, весьма органично смотрятся в неистовой агрессии остального материала. Отдельный, но очень большой респект вокалисту – Якоб Бредаль орет, «не жалея горла своего», так, что поневоле за него делается страшно: а вдруг - вот последний вопль, потом сдавленный хрип – и все, не стало больше у датчан такого замечательного песнопевца.… Но нет, это всего лишь только страхи. О чем поют – да все больше о жизни… по-другому и не скажешь. О жизни, как она есть. В особо умопомрачительный транс можно погрузиться при помощи финального трэка – “500 Dead People”. “My Gun Works Fine…”.<BR>С разнообразием у них все в полном порядке – скорости здесь варьируются от маршевых «шагающих» ритмов до скорострельных, как контрольный в голову, «ответов отцу и сыну Черепановым».&nbsp; И вообще, сам альбом – подобен выстрелу: короткий, но эффективный. Продуманный сплав прогресса и разумной консервативности – бережно сохраняя все наработанные годами наследие, HATESPHERE лишь преумножают его, обрамляя современным звуком и привнося новые, соответствующие эпохе гармонии. Ну вот, хотел попроще – а получилось пафосное.… Но тем не менее.<BR>Классный альбом.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+### 30.11.2005 reviews Датчане дают жару!
+
+<P>Первый полноформатник датчан HateSphere на SPV и четвертый за всю историю коллектива. Стоит ли говорить, что группе не только удалось заполучить контракт с одним из самых крупных лейблов в Европе, но и начать это сотрудничество с выпуска ЕР, предшествовавшего “The Sickness Within” и представляющего несколько вещей с последовавшего полноразмерного релиза.</P>
+<P>Что ждет вас на этом альбоме? Чумовейшая нарезка из мясных гиперскоростных риффов, ураганный шквал ударных, агрессивный вокал, изредка уходящий из надрывного ора в гроулинг. Одним словом, все то, чем так славится новая экспансия трэша, идущая, по большей части, из скандинавских стран. Отсюда и объяснения элементам шведского мелодик дэта в трэшевых структурах композиций. Но именно этот сплав стилей так любим многими поклонниками, особенно молодым поколением. Причем, в этом релизе трэшевого составляющего гораздо больше, чем в прошлогоднем “Ballet Of The Brute”, изданном еще на старом лейбле Scarlet Records.</P>
+<P>Отдельно хочется отметить великолепное продюсирование альбома. Звук настолько злой, напористый и динамичный, что просто сносит все на своем пути словно торнадо. При этом все инструменты в отличном балансе и создают именно то, что принято называть модным саундом. </P>
+<P>Закоренелым поклонникам олдскульного трэша альбом может не понравиться своей модерновостью, ну а для любителей творчества команд The Haunted, Dew-Scented, Terror 2000 данный релиз просто подарок.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ».</P>
+Автор: Fucker
+
+### 03.01.2006 reviews 
+
+<P>Собственно, данное промо от SPV представляет собой две песни с нового альбома датчан Hatepshere "The Sickness Within", посему этот полноформатный релиз квинтета я оценивать по&nbsp;этим вещам не могу. Две же композиции, 'Sickness Within' и 'Reaper Of Life', являются неплохим образчиком современного трэша с небольшой примесью дэта, но никаким обращением к корням типа Slayer'a - как отмечают некоторые критики - я назвать такую музыку никак не могу. Слишком в ней много модернового, особенного вокал,&nbsp;а я никогда особым любителем современного трэша не был. Да, безусловно: весьма мощно, агрессивно, плотно, но "чего-то здесь не хватает". Не сомневаюсь, что и весь альбом выдержан в таком же духе и что он займет почетное - и, признаться, заслуженное - место у фанатов сего жанра, но у таких адептов "старого и доброго", как я, он вряд ли вызовет какие-то сильные эмоции. Данный "сингл" по вышеуказанным причинам оценивать не буду, да простят мне этот маленький новогодний каприз.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 28.12.2006 news HATESPHERE готовятся к записи
+
+<P>Датские трэшеры <B>HATESPHERE</B> начинают 5 января запись своего нового альбома. Ударные будут записаны под руководством <B>Tommy Hansen</B> (<B>HELLOWEEN</B>, <B>PRETTY MAIDS)</B> в его собственной <B>Jailhouse Studios</B>. Все остальное будет записано в студии вокалиста группы (<B>Jacob </B><B>Bredahl</B>) <B>Smart 'n' Hard Studios</B> при участии <B>Tue Madsen</B> (<B>THE HAUNTED</B>, <B>HALFORD),</B> который также проведет процесс микширования альбома в своей <B>Antfarm Studio</B>. Дата релиза нового альбома - 30 апреля на <B>SPV Records</B>. </P>
+Автор: Dimas
+
+### 03.05.2007 news Новости киевского Extreme Power Fest
+
+<P>Датчане <STRONG>HATESPHERE</STRONG> и <STRONG>ILLDISPOSED</STRONG>, a также <STRONG>PRO-PAIN</STRONG> из США стали первыми участниками подтвердившими свое участие на<STRONG> EXTREME POWER Open</STRONG> Air, который состоится 15-го сентября этого года в Киеве и станет логическим продолжением недавно прогремевшего в стенах Киевского "Дворца Спорта" первой части фестиваля. В этот раз орагнизаторы пригласят еще больше именитых команд со всего мира и при этом сделают фестиваль доступным для всех металхэдов СНГ! Место встречи Киев, 15 сентября!!!&nbsp;&nbsp; <BR><A href="http://www.extremepowerfestival.com/">http://www.extremepowerfestival.com</A>&nbsp; </P>
+Автор: Vit Belov
+
+### 28.11.2007 news HATESPHERE выложили видео
+
+<P>Дасткие трэшеры <STRONG>HATESPHERE</STRONG> выложили в сеть видео на песню <STRONG>"Floating"</STRONG>.&nbsp;Ролик снял режиссёр <STRONG>Casper Balslev.</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/X3eCD2pimPU&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/X3eCD2pimPU&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 22.11.2008 news HATESPHERE на Napalm
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Датчане<STRONG> HATESPHEE</STRONG> подписали контракт с <STRONG>Napalm Records</STRONG>. Их новый альбом ыходит весной.</FONT></P>
+Автор: Vit Belov
+
+### 25.01.2009 news Новый альбом HATESPHERE
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.01/13445.jpg" width=400 align=right border=5>HATESPHERE</STRONG> назвали свой альбом <STRONG>"To The Nines". </STRONG>Пластинка была записана в течение девяти дней в <STRONG>Antfarm Studio </STRONG>с продюсером <STRONG>Tue Madsen</STRONG> (<B>THE HAUNTED</B>, <B>MOONSPELL</B>, <B>DARK TRANQUILLITY</B>, <B>GOREFEST</B>). Альбом выйдет на <STRONG>Napalm Records</STRONG> 30 марта. Трэк-лист:</P>
+<P>01. <B>To The Nines</B><BR>02. <B>Backstabber</B><BR>03. <B>Cloaked In Shit</B><BR>04. <B>Clarity</B><BR>05. <B>Even If It Kills Me</B><BR>06. <B>Commencing A Campaign</B><BR>07. <B>The Writing's On The Wall</B><BR>08. <B>In The Trenches</B><BR>09. <B>Aurora</B><BR>10. <B>Oceans Of Blood</B></P>
+Автор: Vit Belov
+
+### 31.01.2009 news Новая песня HATESPHERE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню<STRONG> HATESPHERE</STRONG> <STRONG>"Backstabber" </STRONG>можно послушать на <STRONG>MySpace </STRONG>группы. Композиция войдёт в новый альбом группы "<STRONG>To The Nines</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/hatesphere">http://www.myspace.com/hatesphere</A></FONT></P>
+Автор: Vit Belov
+
+### 17.02.2009 news Новое видео HATESPHERE
+
+<P><STRONG>HATESPHERE</STRONG> выложили в сеть "кастрированную" версию своего нового клипа "<STRONG>To The Nines</STRONG>". полноценный ролик можно будет посмотреть позже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/nRwL3ONMWtE&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/nRwL3ONMWtE&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.08.2011 news Новый альбом HATESPHERE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.08/20387.jpg" width=475 align=right border=0>Новый альбом датчан<STRONG> HATESPHERE</STRONG> <STRONG>"The Great Bludgeoning" </STRONG>выходит 26 сентября на <STRONG>Napalm Records</STRONG>. CD был спродюссирован <STRONG>Tue Madsen</STRONG> (<B>THE HAUNTED</B>, <B>SICK OF IT ALL</B>, <B>MOONSPELL</B>, <B>DARK TRANQUILLITY</B>) в <STRONG>Antfarm Studios. </STRONG>Обложку нарисовал гитарист <STRONG>MNEMIC</STRONG> <STRONG>Mircea Gabriel Eftemie</STRONG>, который также работал с&nbsp;<STRONG>SOILWORK </STRONG>и <STRONG>STRAPPING YOUNG LAD. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>The Killer</B><BR>02. <B>Venom</B><BR>03. <B>Smell Of Death</B> <BR>04. <B>Decayer</B><BR>05. <B>The Wail Of My Threnode</B><BR>06. <B>Resurrect With A Vengeance</B><BR>07. <B>The Great Bludgeoning</B> <BR>08. <B>Need To Kill</B><BR>09. <B>Devil In Your Own Hell</B></P>
+Автор: Vit Belov
+
+### 17.11.2012 news HATESPHERE: Новое видео &quot;Resurrect With A Vengeance&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на песню <STRONG>"Resurrect With A Vengeance" </STRONG>от<STRONG> HATESPHERE</STRONG> можно посмотреть ниже. Ролик создан <STRONG>Soren Dybdal Jensen</STRONG>&nbsp;и <STRONG>Claus Reinhold. </STRONG>Трек взят с последней работы датской группы <STRONG>"The Great Bludgeoning".</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/gKtuwhlOqeY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.01.2013 news HATESPHERE: клип на песню &quot;Smell Of Death&quot;
+
+<P>Датская банда <STRONG>HATESPHERE</STRONG> представила второе видео со своего альбома <STRONG>"The Great Bludgeoning"</STRONG>, вышедшего в сентябре 2011 года на лейбле <STRONG>Napalm Records</STRONG>. </P>
+<P>Клип был снят и смонтирован&nbsp;в октябре 2012 человеком по имени&nbsp;<STRONG>Mircea Gabriel Eftemie</STRONG> (<A href="http://www.eftemie.com/">www.eftemie.com</A>),&nbsp;также известный в мире тяжёлой музыки, как лидер и гитарист группы <STRONG>MNEMIC</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/sWlROsFPRzg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.08.2013 news HATESPHERE: подробности нового альбома &quot;Murderlust&quot;
+
+<P>Датская death/thrash команда <STRONG>HATESPHERE</STRONG> выпускает свой новый альбом <STRONG>"Murderlust"</STRONG> 27 сентября на <STRONG>Massacre Records</STRONG>.</P>
+<P>Обложку для диска снова нарисовал <STRONG>Mircea Gabriel Eftemie</STRONG> (гитарист <STRONG>MNEMIC</STRONG>). <STRONG>Mircea</STRONG> уже работал с группой над оформлением альбомов <STRONG>"The Great Bludgeoning"</STRONG> и <STRONG>"Ballet Of The Brute"</STRONG>.</P>
+<P><STRONG>"Murderlust"</STRONG> будет выпущен в виде обычного CD, а также в формате digipack, куда будет включено два допольнительных трека.</P>
+<P>Трек-лист: 01. <STRONG>Murderlust</STRONG> | 02. <STRONG>Pandora's Hell</STRONG> | 03. <STRONG>Fear Me</STRONG> | 04. <STRONG>The Violent Act</STRONG> | 05. <STRONG>Punishable By Death</STRONG> | 06.<STRONG> In Process</STRONG> | 07. <STRONG>Iconoclast</STRONG> | 08. <STRONG>Darkest Of Forces</STRONG> | 09. <STRONG>Refill The Chest</STRONG> | 10. <STRONG>Assassin</STRONG> (<STRONG>MUSE</STRONG> Cover) | 11. <STRONG>Murderlust</STRONG> (Pre-production, bonus) | 12. <STRONG>500 Dead People</STRONG> (Live, bonus)</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.08/26070.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### MERCENARY (Дания) + HATESPHERE (Дания) в Москве, 24 марта

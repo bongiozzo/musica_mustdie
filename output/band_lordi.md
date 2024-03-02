@@ -182,6 +182,504 @@ Mastered at Chartmakers.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.04.2003 reviews Даёшь heavy-metal!
+
+<p>Финская группа, неизвестная мне прежде, дебютировала в моём сознании великолепной и разнообразной пластинкой, полной посылок к другим исполнителям. Диск оформлен нарочито устрашающе. Разнополые зомби с искорёженными лицами наступают на Вас, вооружившись секирами и топорами. Lordi продолжают линию Die Apocalyptischen Reiter и Бони Нем. Это шутка, при чём отличие её от юмора вышеуказанных групп заключается в том, что подтрунивают финны над всем стилем heavy-metal 80-х. То есть это не сборник, это 100-процентный альбом, который мог бы выйти где-нибудь в XX веке. Две стороны, как на винилах того времени, глэмовые припевы, затасканные, но немного изменённые, словосочетания... (Would You Love a Monsterman?). И главное, выполнено это настолько качественно, что если Вы любите подобные дела, Вам понравится сама музыка...</p>
+
+Автор: Vit Belov
+
+### 17.09.2003 reviews Let heavy-metal be
+
+Finnish band, which was&nbsp;unknown to me early, debuted in my brain with splendid and different CD, packed with sendings to other artists. CD is designed affected and intimidated. Diff-Sex zombies with twisted faces go forward on you armed with axes and hatchets. LORDI continues line of DIE APOCALYPTISCHEN REITER and BONEY Nem. It's a joke, but this joke differs from jokes of above mentioned bands. Finns chaff all style of heavy-metal of 80s. This is not compilation, it is album, which could be released somewhen in XX century. Two sides, as on vinyls of that time were. Glam refrains, shabby, but changed slightly, combinations of words... (Would You Love a Monsterman?). And main thing is quality of this album. If you like this style of music, you would love music itself.
+Автор: Vit Belov
+
+### 06.11.2003 news Официальный российский релиз LORDI
+
+<P><IMG height=250 alt="" hspace=10 src="/images/news_rus/2003.11/5420.jpg" width=250 align="left" border=0>Если Вы достаточно сильны духом, чтобы встретиться лицом к лицу с последним кошмаром, то этот альбом специально для Вас. Компания CD-Maximum рада сообщить о&nbsp;начале распространения специальной версии (с 16-ти страничным буклетом) для России и СНГ дебютного и последнего на данный момент альбома группы LORDI "Get Heavy". </P>
+<P>Новая команда из Финляндии, играющая в стиле старого доброго heavy metal, уже произвела впечатление у себя на родине. Ее дебютный альбом “Get Heavy”, вышедший 1 ноября&nbsp;(в знаменитую ночь праздника Хэлловин) в Финляндии в прошлом году, через короткий срок попал в Top 5 национального чарта и уже заработал платиновый статус по количеству продаж во всем мире. Им удалось превратить тяжелую музыку в развлекательный жанр.</P>
+Автор: Dimas
+
+### 03.12.2003 articles TOP-50 продаж лицензионных компакт-дисков за ноябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=717 border=0>
+<TBODY>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center"></B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">KING DIAMOND</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">THE PUPPET MASTER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">2 (2)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">STRATOVARIUS</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ELEMENTS PART 2</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">CORNERSTONE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ONCE UPON OUR YESTERDAYS</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">REBELLION</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">BORN A REBEL</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONEY NEM</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">ROMANTIC COLLECTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Эм и Нем</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">STILLIFE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">REMEMBRANCE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">BONFIRE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">FREE</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">AMG</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17><B>
+<P align="center">8 (1)</B></P></TD>
+<TD width="35%" height=17><B>
+<P align="center">RAGE</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SOUNDCHASER</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">MELOTRON</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">STERNENSTAUB</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Soyuz</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD width="35%" height=17><B>
+<P align="center">FALCONER</B></P></TD>
+<TD width="46%" height=17><B>
+<P align="center">SCEPTRE OF DECEPTION</B></P></TD>
+<TD width="10%" height=17><B>
+<P align="center">Fono</B></P></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>T.O.Y.</TD>
+<TD align=middle width="46%" height=17>WHITE LIGHTS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SIX FEET UNDER</TD>
+<TD align=middle width="46%" height=17>BRINGER OF BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (12)</TD>
+<TD align=middle width="35%" height=17>ASP</TD>
+<TD align=middle width="46%" height=17>WELTUNTER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MONSTERS OF METAL DVD</TD>
+<TD align=middle width="46%" height=17>THE ULTIMATEL METAL COMPILATION DOUBLE DVD</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ZERAPHINE</TD>
+<TD align=middle width="46%" height=17>TRAUMA WORLD</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 WEISSER</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SON OF ANGELS</TD>
+<TD align=middle width="46%" height=17>SLUMBER WITH THE LION</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (6)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="46%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PHIL NARO</TD>
+<TD align=middle width="46%" height=17>GLASS MOUNTAIN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CLAN OF XYMOX</TD>
+<TD align=middle width="46%" height=17>FAREWELL</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CORVUS CORAX</TD>
+<TD align=middle width="46%" height=17>SEIKILOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (27)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND II</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (7)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="46%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VADER</TD>
+<TD align=middle width="46%" height=17>BLOOD</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ILLUMINATE</TD>
+<TD align=middle width="46%" height=17>10X10 SCHWARZ</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LORDI</TD>
+<TD align=middle width="46%" height=17>GET HEAVY</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>VICTORY</TD>
+<TD align=middle width="46%" height=17>INSTINCT</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DREADFUL SHADOWS</TD>
+<TD align=middle width="46%" height=17>BURIED AGAIN +4 bonus tracks</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>UNION</TD>
+<TD align=middle width="46%" height=17>THE BLUE ROOM</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>30 (23)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="46%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CHAMBER</TD>
+<TD align=middle width="46%" height=17>GHOST STORIES AND FAIRY-TALES</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTHRAX</TD>
+<TD align=middle width="46%" height=17>TAKING THE MUSIC BACK +2 video </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (Re)</TD>
+<TD align=middle width="35%" height=17>L'AME IMMORTELLE</TD>
+<TD align=middle width="46%" height=17>ALS DIE LIEBE STARB +1 bonus track</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="35%" height=17>MASTERPLAN</TD>
+<TD align=middle width="46%" height=17>MASTERPLAN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HUMANIMAL</TD>
+<TD align=middle width="46%" height=17>HUMANIMAL</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36 (Re)</TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="46%" height=17>ECHOS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=middle width="46%" height=17>A MURDER OF CROWS</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>HAMMERFALL</TD>
+<TD align=middle width="46%" height=17>ONE CRIMSON NIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="46%" height=17>UTOPIA</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (Re)</TD>
+<TD align=middle width="35%" height=17>SATELLITE</TD>
+<TD align=middle width="46%" height=17>A STREET BETWEEN SUNRISE AND</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>41 (32)</TD>
+<TD align=middle width="35%" height=17>BATHORY</TD>
+<TD align=middle width="46%" height=17>NORDLAND I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>SONATA ARCTICA</TD>
+<TD align=middle width="46%" height=17>WINTERHEART's GUILT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>43 (9)</TD>
+<TD align=middle width="35%" height=17>MORBID ANGEL</TD>
+<TD align=middle width="46%" height=17>HERETIC</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHAMAN (Finnland)</TD>
+<TD align=middle width="46%" height=17>IDJA</TD>
+<TD align=middle width="10%" height=17>Irond -DD</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (25)</TD>
+<TD align=middle width="35%" height=17>TAROT</TD>
+<TD align=middle width="46%" height=17>SUFFER OUR PLEASURES</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>CARBONIZED</TD>
+<TD align=middle width="46%" height=17>FOR THE SECURITY-1991</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EDGE OF SANITY</TD>
+<TD align=middle width="46%" height=17>NOTHING BUT DEATH REMAINS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>BURNING RAIN</TD>
+<TD align=middle width="46%" height=17>PLEASURE TO BURN</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>ANTIMATTER</TD>
+<TD align=middle width="46%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-Max</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>50 (34)</TD>
+<TD align=middle width="35%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="46%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR></TBODY></TABLE>
+<P>С этого месяца я начну комментировать результаты голосования покупателей "рублём".</P>
+<P>С первого взгляда на таблицу обращает на себя феноменальный успех ART-MUSIC GROUP. Выпустив минимальное количество новинок, компании удалось разместить их всех в 15 лучших по итогам месяца. Великолепная работа "репертуар-менеджера". Ещё одной отличительной стороной ноябрьского рейтинга стало отсутствие в первых 16 каких-либо релизов CD-MAXIMUM. По сравнению с прошлым месяцем, чуть лучше выступила ФОНО, а Союз и Irond немного потеряли.</P>
+<P>Обратимся к первой десятке. Впервые в десять лучших попали две отечественные группы. Какие же они разные. Пробивающиеся наверх со своей dark-wave музыкой STILLIFE и&nbsp;Бони Нем, которых скорее можно отнести&nbsp;к артистам разговорного жанра. Ну, любит у нас народ юмористов, что поделаешь...&nbsp; Лидером стал KING DIAMOND в упорной борьбе, победивший STRATOVARIUS. STRATOVARIUS второй месяц подряд на втором месте, и первое ему уже не покорится, что, по-моему, справедливо. А вот KING DIAMOND выдал один из лучших своих альбомов за последнее время, по отзывам прослушавших его.&nbsp;Группа бывшего гитариста GRAVE DIGGER Uwe Lullis REBELLION проявила себя ударно, и их четвёртое место вполне можно считать неожиданностью.&nbsp;FALCONER - неоднозначная группа, которая этим и привлекает внимание. Gothic-pop музыка представлена немцами MELOTRON, от которых можно ждать дальнейших рывков, из-за грядущего концерта в Москве. RAGE, занимавший первое место, свалился на седьмое...&nbsp;Три месяца в первой десятке - отличный результат. DIMMU BORGIR не смогли добиться этого, и после первого и второго места, вылетели из&nbsp;TOP-50. Этот феномен объясняется просто. Перед концертом группы 1 ноября многие приобрели свежий диск и в ноябре интерес к нему поугас. Я думаю, уже в декабре норвежцы вернуться. CORNERSTONE и BONFIRE - не надо говорить, что hard-rock умер. Любители подобной музыки могут вытянуть наверх, кого угодно, тем более таких монстров. Под "кого угодно" я подразумеваю, вот что... Взгляните на членство CD-MAXIMUM в TOP-50: SON OF ANGELS, PHIL NARO, LORDI (хорошая группа, но было очень много пиратских дисков),&nbsp;UNION (группа Bruce Kulick (ex-KISS)), HUMANIMAL (Jeff Scott Soto), SEVEN WISHES, BURNING RAIN...&nbsp;Плюс вечный MASTERPLAN,&nbsp;прогрессив (его, вообще, никто не производит)&nbsp;от SATELITE и раскрученный&nbsp;Irond ANTIMATTER.&nbsp;Вот здесь явно не&nbsp;хватает рекламы, и если hard-rock'a фанатам стиля не хватает, и его худо-бедно покупают, где другие релизы лейбла, выпускающего&nbsp;продукции больше всех? Грустно... Лучше побольше вложить денег в рекламу, чем в производство. Пример ART-MUSIC и Фоно доказывает это. (Особенно ART-MUSIC).</P>
+<P>Во второй десятке доминирует IROND.&nbsp;Действительно практически никаких бомб лэйбл не выпустил, но хороший старт готов ILLUMINATE, и главное бокса-DVD 'Monsters Of Metal' результат грамотной&nbsp;рекламной политики. Вообще, в этом рейтинге два DVD-релиза&nbsp;от IROND, что указывает на перспективность данного рынка.&nbsp;GRAVEWORM - настоящее открытие года. Из группы известной лишь любителям стиля они превращаются в настоящих "монстров", и который месяц находятся в верху рейтинга. Хочется обратить Ваше внимание на ещё один дебют от ART-MUSIC ZERAPHINE - группа SVEN FREDERICH (DREADFUL SHADOWS) - очень качественный и интересный gothic-rock.</P>
+<P>Три последних десятки демонстрируют массовый возврат позиций в 50 лучших.&nbsp;SONATA ARCTICA, L'ame IMMORTALLE (концерт повлиял),&nbsp;MASTERPLAN, LACRIMOSA... Отчего это происходит? Видимо ощущается нехватка качественных релизов в этих жанрах.</P>
+Автор: Vit Belov
+
+### 09.03.2004 news LORDI ваыпустят альбом в марте
+
+<P><B>LORDI</B> подготовили свой второй альбом. Пластинка была записана вместе с продюсером <B>Hiili Hiilesmaa</B> (<B>H.I.M.</B>, <B>SENTENCED</B>, <B>AMORPHIS</B>) и выйдет 14 апреля. Трэк-лист:</P>
+<P>01. <B>Blood Red Sandman</B><BR>02. <B>Pet The Destroyer</B><BR>03. <B>...My Heaven Is Your Hell</B><BR>04. <B>Wake The Snake</B><BR>05. <B>The Children Of The Night</B><BR>06. <B>Fire In The Hole</B><BR>07. <B>Haunted Town</B><BR>08. <B>Forsaken Fashion Dolls</B><BR>09. <B>Shotgun Divorce</B><BR>10. <B>Kalmageddon</B><BR>11. <B>Bring It On</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 29.03.2004 news Новый альбом LORDI
+
+<P>Финские монстры метала LORDI готовят к выпуску свой второй альбом "<B>The Monsterican Dream</B>". Он выйдет в свет 14 апреля на BMG Finland. Продюсером записи выступил <B>Hiili Hiilesmaa</B> (<B>H.I.M.</B>, <B>SENTENCED</B>, <B>AMORPHIS</B>). В альбом войдут следующие вещи:</P>
+<P>1. <B>Theatrical Trailer</B><BR>2. <B>Bring It On (The Raging Hounds Return)</B><BR>3. <B>Blood Red Sandman</B><BR>4. <B>My Heaven Is Your Hell</B><BR>5. <B>Pet the Destroyer</B><BR>6. <B>Children of the Night</B><BR>7. <B>Wake the Snake</B><BR>8. <B>Shotgun Divorce</B><BR>9. <B>Forsaken Fashion Dolls</B><BR>10. <B>Haunted Town</B><BR>11. <B>Fire In The Hole</B><BR>12. <B>Magistra Nocte</B><BR>13. <B>Kalmageddon</B></P>
+<P><BR>Кроме того, на втором диске будет записан видеоролик <B>"Lordi's The Kin" </B>в формате&nbsp;DVD. В лимитированную версию альбома войдет также видеоклип на песню <B>"Blood Red Sandman".</B></P>
+Автор: Dimas
+
+### 12.12.2004 news Новый альбом LORDI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом финнов <STRONG>LORDI</STRONG> выходит на <STRONG>Noise Records</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.12/7491.jpg" width=200 align=right border=5>01. <STRONG>Threatical Trailer</STRONG><BR>02. <STRONG>Bring it On<BR></STRONG>03. <STRONG>Blood Red Sandman<BR></STRONG>04. <STRONG>My Heaven is your Hell<BR></STRONG>05. <STRONG>Would you Love a Monsterman<BR></STRONG>06. <STRONG>Devil is a Loser<BR></STRONG>07. <STRONG>Icon of Dominance<BR></STRONG>08. <STRONG>The Children of the Night<BR></STRONG>09. <STRONG>Shotgun Divorce<BR></STRONG>10. <STRONG>Forsaken Fashion Dolls<BR></STRONG>11. <STRONG>Wake the Snake<BR></STRONG>12. <STRONG>Rock the Hell outa You<BR></STRONG></P>
+<P>Bonus DVD<BR>01. <STRONG>Blood Red Sandman<BR></STRONG>02. <STRONG>Devil is a Loser<BR></STRONG>03<STRONG>.</STRONG> <STRONG>Would you love a Monsterman </STRONG></P>
+Автор: Vit Belov
+
+### 20.01.2005 news Клип HAMMERFALL on-line
+
+<P>Видео-клип <STRONG>HAMMERFALL</STRONG> на новую песню <STRONG>'Blood Bound'</STRONG> можно посмотреть здесь: <A href="http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51">http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51</A></P>
+<P>Также стала известна одна из групп, которая поедет с <STRONG>HAMMERFALL</STRONG> в ближайший тур - это <STRONG>LORDI</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.01.2005 news HAMMERFALL video on-line
+
+<P><STRONG>HAMMERFALL</STRONG>'s new video <STRONG>'Blood Bound'</STRONG>&nbsp;is available on-line here: <A href="http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51">http://www.aftonbladet.se/atv/player.html?catID=29&clipID=51</A></P>
+<P>Also It's known, that one of supporting act in <STRONG>HAMMERFALL</STRONG> Europian tour will be <STRONG>LORDI</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.03.2005 reviews И монстры денежку любят
+
+<P>Нет, это не новая студийная работа финских шок-рокеров Lordi. Данный релиз представляет собой нечто вроде компиляции "the best of" с предыдущих альбомов группы, коих было... всего два. Подобное решение - тем более учитывая тот факт, что никаких новых песен на "The Monster Show" нет - можно объяснить только тем, что ребята решили просто-напросто подзаработать денег. Расчет был прост. Фанаты, скупающие всё и вся от своих любимцев, так и так приобретут этот альбом (тем более с бонус-DVD с тремя вещами), а те, кто пока не обзавелся двумя работами Lordi, могут сразу ознакомиться с лучшим из творчества этих финнов, купив наполненный хитами сборник. Сомневаюсь, что сей квитет смог бы достичь больших успехов без своего сценического имиджа - костюмов (весьма неплохо, признаюсь, сделанных) всеразличных монстров, которые, впрочем, смогут испугать разве что ребенка. Ибо по музыке Lordi ближе всего к "прежнему" Alice Cooper и, пожалуй, в меньшей степени глэму 80-х. Безусловно, любителей подобной музыки немало, но я всё же лучше послушаю классику, хотя несколько номеров пластинки с запоминающимися припевами весьма неплохи. И будь "The Monster Show" составлен из новых песен такого же уровня, альбом получил бы оценку куда выше.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 24.06.2005 news LORDI начали работу
+
+<P><STRONG>LORDI </STRONG>начали сочинять песни для нового альбома, который выйдет в январе-феврале следующего года.</P>
+Автор: Vit Belov
+
+### 14.10.2005 articles LORDI в Москве: пресс-релиз
+
+<P>СПИКА МЕРЧЕНДАЙЗИНГ ПРЕДСТАВЛЯЕТ</P>
+<P>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Впервые в России финская группа&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; LORDI<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; со своим монстр шоу.</P>
+<P>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 05/11- клуб ТОЧКА (Москва)<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 06/11- клуб ПОРТ (Питер)</P>
+<P>&nbsp;</P>
+<P>У каждого есть мечты, даже у тех, кто совсем устал от жизни. У некоторых эти мечты чисто меркантильные, у других – возвышенные и благочестивые. Третьи же мечтают о чём-то совершенно нереальном. Их объединяет то, что мы относимся к ним с уважением, ведь они – движущая сила истории. И это одинаково верно и для мечты, которая затаилась глубоко в душе, и для мечты, о которой хочется поведать всему миру. Такой, как “Monsterican Dream”, что можно приблизительно перевести как “монстериканская мечта”.</P>
+<P>Десять лет он, подобно доктору Франкенштейну, собирал своего собственного монстра. Герои из его детства, такие как Халк, граф Дракула и персонажи Маппет Шоу оставались с ним на всём пути от мальчишки, экспериментировавшего с маминой косметикой и снимавшего с друзьями фильмы ужасов на старую видеокамеру, до настоящего повелителя кошмаров. Его настоящее имя совершенно неважно. Как и то, что он родился и вырос в Рованиеми, небольшом финском городке за полярным кругом, в котором ночь длиться все долгие зимние месяцы. Однако мир, который он придумал, гораздо темнее. И теперь он Лорди, воплощение всех кошмаров, нынешних и минувших. Мальчишка, который превратился в монстра по собственному желанию, а не из-за несчастливого детства.</P>
+<P>Но никто не хочет быть одиноким, даже тот, кто зовёт себя «Фредди Крюгером от рок-н-ролла». Лорди занялся усиленным поиском родственных душ. А когда наконец отыскал, то совсем не удивился, что каждый из них оказался ветераном многочисленной армии поклонников группы “Kiss”. Но что еще более важно, все они были готовы отказаться от своего прежнего “я” и воплотить в себе собирательные образы ужасных монстров. Встречайте Амена, великую мумию, Энари, властную валькирью, Калму, зомби-байкера из Ада, и Киту, инопланетного человеко-зверя, объединяющего в себе всех известных человеку зверей. Возглавляемое Лорди, это темное воинство вооружилось гитарами и убойными песнями. И грянул гром!</P>
+<P>Бросая вызов всему и вся, эта буйная стая величественно проносится по затянутому маревом пожаров Городу с привидениями. Дети ночи и Забытые манекены живут здесь в страхе Разбудить змея или попасть под горячую руку Пета Разрушителя и Кроваво-красного песочного человека. И даже не смотря на то, что Лорди заявляет: Мой рай – твой Ад, это страшное место тоже отражает состояние души, такое,&nbsp; которое позволяет вам вскинуть руки и подпевать, и оттягиваться всю ночь так, как вам заблагорассудится! И проникнув глубоко в монстриканские мечты, вы поймете одну важную вещь. Монстром быть очень весело.&nbsp; (Да и девушки не всегда предпочитают белых и пушистых, а?)</P>
+<P>Музыка с альбома ”The Monsterican Dream” была создана совместными усилиями всей группы и известного продюсера Хиили Хиилесмаа (работал с группами “HIM”, “Amorphis”, “Sentenced”). Хиилесмаа отлично подошел для этой работы, так как он уже давно был известен как “Mad Scientist”, сумасшедший ученый, к тому же неплохо разбирающийся во всем тяжело-металлическом. Вместе монстры и сумасшедший ученый создали подборку из двенадцати взрывных гимнов во славу потустороннему миру: массивные, громкие, шипастые песни,&nbsp; которые в нужный момент умеют прикинуться кристально бездумными. Песни, которые и мертвого из могилы подымут.</P>
+<P>Тексты песен – или все-таки истории ужасов? – были написаны лично самим Лорди. Специальное издание альбома также содержит и тринадцатую “страшилку”, в которой музыканты откладывают в сторону свои инструменты и на тридцать кроваво-красных минут становятся актерами. “Lordi’s The Kin” (“Кровное родство”) – это сюрреалистичный фильм ужасов, снятый режиссером Лаури Хауккамаа. И хотя вашим детям не рекомендуется его смотреть, ребенок в вашей душе будет вопить от восторга.</P>
+<P>Лучший способ понять “монстериканскую мечту” – это посмотреть на шоу Лорди вживую. Не сковывая себя излишними условностями, оно содержит в себе все лучшее от Элиса Купера. Другими словами, отличное развлечение для каждого и никакой пустой изысканности!</P>
+<P>”Создали группу, которая вам понравилась. Написали песни, которым вы любите подпевать. Вот в принципе всё, что мы сделали.”</P>
+<P>Монстериканская мечта становится реальностью. Или оживают самые ужасные кошмары.</P>
+<P>*****</P>
+<P>”The Monsterican Dream” – второй альбом Лорди. Дебютный ”Get Heavy” был выпушен в 2002 году и очень быстро стал платиновым в Финляндии. Главный сингл с этого альбома, ”Would You Love a Monsterman” (“А ты полюбила бы монстра”) продержался в чартах целых четыре месяца, несколько раз занимая высшую строчку. Дистрибьютерская компания Drakkar Records (<A href="http://www.drakkar.de/">www.drakkar.de</A>) уже выпустила ”Get Heavy” в Германии и первого июня планирует выпустить ”The Monsterican Dream”.</P>
+<P>Состав:</P>
+<P>Lordi – вокал, обработка<BR>Amen – гитара, бэк-вокал<BR>Kalma – бас-гитара, бэк-вокал<BR>Kita – ударные, бэк-вокал<BR>Enary – клавишные, бэк-вокал</P>
+<P>Дискография:</P>
+<P>“The Monsterican Dream” 2004<BR>“Get Heavy” 2002</P>
+<P><A href="http://www.lordi.org/">www.lordi.org</A> </P>
+Автор: Vit Belov
+
+### 28.10.2005 news LORDI записали альбом
+
+<P>Новая пластинка<STRONG> LORDI</STRONG> с рабочим названием "<STRONG>The Arockalypse</STRONG>" уже записана. Микс начнётся в понедельник. На альбоме будут два известных гостя, имена которых пока не сообщаются.</P>
+<P>Группа выступит в России и находится в предвкушении того, как "подействует русская водка на финских монстров".</P>
+Автор: Vit Belov
+
+### 11.11.2005 news LORDI объявили имена гостевых музыкантов
+
+<P>Как уже сообщалось, <STRONG>LORDI</STRONG> закончили запись нового альбома "<STRONG>The Arockalypse</STRONG>". Финны объявили имена двух гостевых звёзд - <STRONG>Bruce Kulick</STRONG> (ex-<STRONG>KISS</STRONG>) и <STRONG>Udo Dirkschnider</STRONG> (<STRONG>UDO</STRONG>). </P>
+<P>Кроме прочего, коллектив участвует в отборе на Евровидение от Финляндии.</P>
+Автор: Vit Belov
+
+### 13.03.2006 news LORDI поедут на Евровидение
+
+<P><STRONG>LORDI </STRONG>отобрались от Финляндии на конкурс Евровидение.&nbsp;Финские монстры&nbsp;поборятся с нашим <STRONG>Димой Биланом</STRONG>:)</P>
+Автор: Vit Belov
+
+### 03.05.2006 news LORDI продолжают рекламную кампанию перед Евровидением
+
+<P>По сообщению <STRONG>Reuters</STRONG>, финны <STRONG>LORDI</STRONG>, отобранные для участие в Евровидении от своей страны, вынуждены доказывать то, что не являются поклонниками Сатаны. Некое греческое общественное объединение предложило "забаннить" группу.</P>
+<P>Лидер <STRONG>LORDI</STRONG> объясняет: "<EM>Да, мы поём о дьяволе, но это же просто рок'н'ролл. На Евровидении мы будем есть мясо в вегетарианском кафе</EM>".</P>
+<P>Так же сообщается, что группа победила в национальном голосовании, собрав 42 процента голосов.</P>
+Автор: Vit Belov
+
+### 21.05.2006 news LORDI выиграли Евровидение
+
+<P>Вчера прошёл конкурс Евровидение в Греции. Впервые победила hard'n'heavy группа <STRONG>LORDI</STRONG> из Финляндии.</P>
+Автор: Vit Belov
+
+### 23.05.2006 news Жёлтая пресса раскрыла секрет LORDI
+
+<P><IMG height=180 alt="" hspace=0 src="/images/news_rus/2006.05/10395.jpg" width=350 align=left border=5>Жёлтая пресса некоторых европейский стран, в том числе газета <STRONG>SUN</STRONG> из Англии, раскрыла секрет <STRONG>LORDI</STRONG>, опубликовав старое фото<STRONG> CHILDREN OF BODOM</STRONG>. Группа <STRONG>Alexi Laiho</STRONG> была вынуждена опровергать этот вымысел. "<EM>Никто из представленных на фото людей не выступал на минувшем Евровидении</EM>", - говорится на сайте <STRONG>CHILDREN OF BODOM</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.08.2006 news Видео-клипы LORDI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Drakkar</STRONG> выложили в сеть новейшие видео-клипы <STRONG>LORDI</STRONG>: "<STRONG>Who's Your Daddy</STRONG>", "<STRONG>Hard Rock Hallelujah</STRONG>", "<STRONG>Blood Red Sandman</STRONG>" и "<STRONG>Devil Is a Loser</STRONG>". Посмотреть их можно по этому адресу: <A href="http://www.drakkar.de/cgi-bin/dr_alben.pl?command=view&bandid=37">http://www.drakkar.de/cgi-bin/dr_alben.pl?command=view&bandid=37</A></FONT></P>
+Автор: Vit Belov
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 05.05.2010 news LORDI закончили работу
+
+<P><STRONG>LORDI</STRONG> закончили работу над новым альбомом вместе с продюсером<STRONG> Michael Wagener</STRONG> (<STRONG>METALLICA, ACCEPT, ALICE COOPER</STRONG>). Релиз анонсирован на конец текущего года.</P>
+Автор: Vit Belov
+
+### 27.05.2010 news LORDI назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>LORDI</STRONG> получил название <STRONG>"Babez For Breakfast". </STRONG>Пластинка выйдет 14 сентября. Продюсером нового альбома финнов выступил знаменитый <STRONG>Michael Wagener. </STRONG>Этот человек сводил величайший альбом "<STRONG>Master Of Puppets</STRONG>" от <STRONG>METALLICA</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 21.08.2010 news Новое видео LORDI
+
+<P>Видео-клип на песню <STRONG>LORDI "This Is Heavy Metal"</STRONG> можно посмотреть ниже. Песня вошла на пятый альбом финнов "<STRONG>Babez For Breakfast</STRONG>", который можно скачать всего за 69 евро-центов у цифровых провайдеров. </P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/D1rCvXa8p3A&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/D1rCvXa8p3A&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.02.2012 news Умер Tonmi Lillman
+
+<P>Барабанщик <STRONG>LORDI</STRONG> (скрывающийся под кличкой <STRONG>Otus</STRONG>) и бывший барабанщик таких&nbsp;финских групп, как&nbsp;<STRONG>TO/DIE/FOR, SINERGY</STRONG> и<STRONG> AJATTARA Tonmi Lillman</STRONG> умер в возрасте 38 лет. Причина смерти не сообщается.</P>
+<P><STRONG>Tonmi </STRONG>являлся отпрыском музыкантов и начал&nbsp;выступать в 14 лет. Кроме барабанов, музыкант играл на басу, клавишах и гитаре.</P>
+<P>R.I.P.&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.02/23063.jpg" width=392 height=452> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.12.2012 news LORDI на AFM
+
+<P><STRONG>AFM</STRONG> подписали контракт с<STRONG> LORDI</STRONG>. Новый альбом коллектива <STRONG>"To Beast Or Not To Beast" </STRONG>выйдет 8 марта. Альбом был записан в <STRONG>WireWorld Studio</STRONG> с продюсером <STRONG>Michael Wagener</STRONG> (<B>METALLICA</B>, <B>OZZY OSBOURNE</B>, <B>SKID ROW</B>, <B>DOKKEN</B>, <B>RAVEN</B>, <B>MEGADETH</B>).</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.12/25171.jpg" width=475 height=348></P>
+Автор: Vit Belov
+
+### 16.01.2013 news Новый альбом LORDI
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2013.01/25324.jpg" width=475 height=475>Новая работа <STRONG>LORDI</STRONG> <STRONG>"To Beast Or Not To Beast" </STRONG>выходит 8 марта на <STRONG>AFM</STRONG>. Трек-лист:</P>
+<P>01. <B>We're Not Bad For The Kids (We're Worse)</B><BR>02. <B>I Luv Ugly</B> <BR>03. <B>The Riff</B> <BR>04. <B>Something Wicked This Way Comes</B> <BR>05. <B>I'm The Best</B> <BR>06. <B>Horrifiction</B> <BR>07. <B>Happy New Fear</B> <BR>08. <B>Schizo Doll</B> <BR>09. <B>Candy For The Cannibal</B> <BR>10. <B>Sincerely With Love</B> <BR>11. <B>SCG6: Otus' Butcher Clinic</B></P>
+Автор: Vit Belov
+
+### 02.03.2013 news LORDI: клип на песню &quot;The Riff&quot;
+
+<P>Финские "монстры" <STRONG>LORDI</STRONG> представили клип на песню<STRONG> "The Riff</STRONG>".<BR>1 марта у них вышел новый студийный&nbsp;альбом под названием<STRONG> "To Beast Or Not To Beast"</STRONG>, куда и вошёл этот трек.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/RrW95NOP2l8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.07.2016 news Обложка нового LORDI
+
+<p><strong>LORDI</strong> выпускают новый альбом "<strong>Monsterephonic (Theaterror Vs. Demonarchy)</strong>" 16 сентября на<strong> AFM</strong>. Продюсер CD<strong> Nino Laurenne</strong> (Apocalyptica, Stratovarius, Children Of Bodom, Amorphis).</p><p>Трек лист:</p><p>“SCG8: One Message Waiting”<br>“Let’s Go Slaughter He-Man (I Wanna Be The Beast-Man In The Masters Of The Universe)”<br>“Hug You Hardcore”<br>“Down With The Devil”<br>“Mary Is Dead”<br>“Sick Flick”<br>“None For One”<br>“SCG VIII: Opening Scene”<br>“Demonarchy”<br>“The Unholy Gathering”<br>“Heaven Sent Hell On Earth”<br>“And The Zombie Says”<br>“Break Of Dawn”<br>“The Night The Monsters Died”</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29593.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 14.07.2016 news LORDI - New album cover
+
+<p><strong>LORDI</strong> to release new album "<strong>Monsterephonic (Theaterror Vs. Demonarchy)</strong>" on September 16 via<strong> AFM</strong>. CD producer <strong>Nino Laurenne</strong> (Apocalyptica, Stratovarius, Children Of Bodom, Amorphis).</p><p>Track list:</p><p>“SCG8: One Message Waiting”<br>“Let’s Go Slaughter He-Man (I Wanna Be The Beast-Man In The Masters Of The Universe)”<br>“Hug You Hardcore”<br>“Down With The Devil”<br>“Mary Is Dead”<br>“Sick Flick”<br>“None For One”<br>“SCG VIII: Opening Scene”<br>“Demonarchy”<br>“The Unholy Gathering”<br>“Heaven Sent Hell On Earth”<br>“And The Zombie Says”<br>“Break Of Dawn”<br>“The Night The Monsters Died”</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29593.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 26.08.2016 news Новое видео LORDI
+
+<p>Финские шок-рокеры<strong>&nbsp;LORDI</strong> представляют новый клип "<strong>Hug You Hardcore</strong>" с нового альбома «<strong>MONSTEREOPHONIC (Theaterror Vs. Demonarchy)</strong>», который выйдет 16 сентября на <strong>AFM Records</strong>. Продюсером альбома стал <strong>Nino Laurenne</strong>.</p><p>Видео имеет категорию 18+. Для просмотра необходимо быть зарегистрированным в Youtube и подтвердить, что вы готовы это увидеть.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/J746vAe2Tdg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 news LORDI released new video
+
+<p>Finnish shock rockers<strong>&nbsp;LORDI</strong> present the new video for "<strong>Hug You Hardcore</strong>" from the new album "<strong>MONSTEREOPHONIC (Theaterror Vs. Demonarchy)</strong>", which will be released on 16 September via <strong>AFM Records</strong>. The album's producer was <strong>Nino Laurenne</strong>.</p><p>Video is classified as 18+. To view you must be registered on Youtube and confirm you are ready to see it.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/J746vAe2Tdg" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 13.10.2016 reviews Уже 10 лет бесцельного существования
+
+<p>Финны LORDI для всего мира навсегда запомнились как победители Евровидения-2006. Первый финский исполнитель, первая рок-группа, в конце концов, обидчики Дима Билана. Забавно, но этот конкурс в творческом плане стал последним успехом музыкантов. «Monstereophonic” - уже восьмой альбом финнов, но сделать что-то похожее на первые работы у них уже не получится.</p><p>Естественно с каждым новым альбомом LORDI стараются придумать что-то новое, в первую очередь это касается визуализации собственного творчества. Разные маски, дурацкие названия альбомов и песен, обложки. В этот раз финны сняли видео-клип (18+), в котором женщины со странными улыбками используют на незадачливых мужичках искусственные пиписьки. Этот жуткий видео-ряд должен был привлечь внимание к новому альбому, но к музыке это не имеет никакого отношения. Новый альбом LORDI выдержан в стандартном ключе для позднего творчества — лёгкий heavy metal с ненавязчивыми мелодиями, влетающими в одно ухо и вылетающими в другое.</p><p>У LORDI были все шансы стать великими. Они ухватили основную суть современной популярной метал-музыки чуть ли не раньше остальных коллег. Танцевальные отвязные мелодии с использованием стандартных для метала мелодических решений, большая доля юмора, оригинальная реализация с летучей ритм-секцией. Группа шла по этому пути до 2006 года, до Евровидения. Затем на финнов обратили внимание на Sony, и что-то сломалось. Теперь стадионы собирают POWERWOLF и SABATON, а LORDI пугают всех самотыками и заплесневелыми масками.</p><p>Новый альбом, как и несколько предшественников, не несёт в себе никакого творческого смысла. Безусловно, если у LORDI ещё остались верные поклонники, они порадуются, но этот альбом явно не тянет на возвращение к корням, поэтому поклонники раннего творчества музыкантов пока отдыхают.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### LORDI едут на евровидение!!!!! ХАХА! ДА!!!

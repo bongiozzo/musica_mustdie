@@ -16,6 +16,67 @@ Coolest power-progressive
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.07.2000 reviews Крутейший power-progressive материал
+
+<p>Крутейший power-progressive материал. Очень качественная смесь Queensryche и Iron Maiden. Потрясающий пронзительный вокал великолепно вписывается в это музыкальное полотно. Не ожидал такого от американской группы. Очень много музыкальных находок, свежесть звучания и оригинальность отличают этот альбом от множества других. Тяжелый и техничный материал. Мастерство и профессионализм музыкантов даже не ставятся под сомнение. А ведь, до сих пор, группа была неизвестна, хотя собрались музыканты еще в 1994 году. Мощный мелодичный саунд, использование скрипичных инструментов, отсутствие клавиш. Красиво, черт побери!</p>
+
+Автор: Dimas
+
+### 11.07.2000 reviews Coolest power-progressive a stuff
+
+<p>Coolest power-progressive a stuff. A very qualitative mixture Queensryche and Iron Maiden. Startling shrill vocal is superb entered in this musical cloth. Did not expect such from the American group. It is a lot of musical finds, freshness of sounding and originality distinguish this album from set other. High-gravity and technical a stuff. Skill and professionalism of the musicians are not put at all under doubt. And you see, till now, the group was obscure, though the musicians in 1994 have collected. Potent melodious sound, usage violins of tools, absence of keys. Beautifully, damn!</p>
+
+Автор: Dimas
+
+### 25.10.2000 news Новый альбом Jacobs Dream
+
+<p>Работа над материалом для нового альбома американского power-progressive metal коллектива Jacobs Dream полностью завершена. Альбом будет называтся "Third Way" и включит в себя следующие треки: "Theater Of War", "Critical Mass", "Sanctuary", "Traces Of Grace", "Magic Garden", "Runda Pigs". Запись нового материала музыканты планируют начать сразу после окончания их турне с Armored Saint.</p>
+
+Автор: Phantom Lord
+
+### 25.03.2001 news Релиз от Jacob&#39;s Dream
+
+<p> Итак, стала известна окончательная дата европейского релиза нового альбома группы Jacob's Dream под названием "Theater of War" - 28 мая. Американский релиз запланирован на июнь, однако может быть перенесен на июль. В альбом войдут следующие 9 песен: "Sanctuary", "Theater Of War", "Traces Of Grace", "Wisdom", "The Warning", "Sarah Williams", "De Machina Est Deo", "Black Souls", "Critical Mass".</p>
+<p> Кроме того, у группы появился оффициальный фан-клуб "The Madhouse of Cain". Связь через сайт at www.jacobsdream.de.</p>
+
+Автор: Helloween
+
+### 25.06.2001 news Metal Blade news....
+
+<p>Here's a list of dates of METAL BLADE bands on tour. Check local listings:</p>
+<p> CATASTROPHIC <br> 7/05 Albany, NY Valentines <br> 7/06 Poughkeepsie, NY The Chance <br> 7/07 Sayre, PA Hurricane Billboards <br> 7/08 Syracuse, NY Action Sports Center <br> 7/09 Meriden, CT Hanover House <br> 7/12 Hudson, NH Club Euphoria <br> 7/13 Worcester, MA The Palladium <br> 7/14 Toronto, ONT Kathedral <br> 7/15 Montreal, Oue, Can. L'x <br> 7/16 Randolph, NJ Obsessions Nite Club <br> 7/17 New York, NY Wetlands Preserve <br> 7/18 Morgan, NJ Club Krome <br> 7/19 Baltimore, MD Ottobar <br> 7/20 Norfolk, VA Taj Mahal <br> 7/21 Columbia, SC Uncle Doctors <br> 7/22 Ft. Lauderdale, FL Culture Room <br> 7/23 Orlando, FL Sapphire Supper Club <br> 7/25 Houston, TX Fitzgerald's <br> 7/26 Dallas, TX Galaxy Club <br> 7/27 Corpus Christi, TX Zero's <br> 7/28 Austin, TX The Backroom <br> 7/29 Oklahoma City, OK Diamond Ballroom <br> 7/31 Tempe, AZ Boston's Night Club <br> 8/01 San Diego, CA Brick by Brick <br> 8/02 San Jose, CA The Cactus Club <br> 8/03 San Francisco, CA The Pound at Pier 96 <br> 8/04 Anaheim, CA The Shack <br> 8/05 Hollywood, CA Whiskey a Go Go <br> 8/07 Fort Collins, CO Starlight <br> 8/08 Lawrence, KS The Bottleneck <br> 8/09 Aurora, IL Riley's <br> 8/10 Milwaukee, WI Milwaukee Auditorium <br> 8/11 Clinton, IA Pig Pen <br> 8/12 St. Paul, MN The Lab <br> 8/13 St Louis, MO Creepy Crawl <br> 8/14 Detroit, MI I-Rock <br> 8/15 Lorain, OH Flying Machine <br> 8/16 W. Springfield, VA Jaxx <br> 8/17 Spartanburg, SC Ground Zero <br> 8/18 Tampa, FL Brass Mug <br> 8/19 Atlanta, GA The Masquerade <br> CATASTROPHIC-EUROPEAN DATES <br> 9/01 Trier, Germany Exil <br> 9/02 Vooselaar, Belgium Biebob <br> 9/03 Paris, France Locomotive <br> 9/04 Essen, Germany Zeche Carl <br> 9/05 Offenbach, German Hafenbahn <br> 9/06 Hengelo, Holland Metropool <br> 9/07 Zaandam, Holland Kade <br> 9/08 Helmond, Holland Plato <br> 9/09 Rotterdamn, Holland Baroeg <br> 9/10 Hamburg, Germany Markthale <br> 9/11 Berlin, Germany Razzle Dazzle <br> 9/12 Warsow, Poland Proxima <br> 9/13 Praha, Czech Republic Futurum <br> 9/14 Zwickau, Germany Alarm <br> 9/15 Vienna, Austria Arena <br> 9/16 Bresso, Italy Idian's Saloon <br> VADER <br> 6/28 Oklahoma City, OK Diamond Ballroom <br> 6/29 Fayetteville, AR Clunk Music Hall <br> 6/30 St. Louis, MO Creepy Crawl <br> 7/01 Aurora, IL Rileys <br> 7/03 Bowling Green, OH Howards Club H <br> 7/04 Columbus, OH Whiskey Pete's <br> 7/05 Detroit, MI The Shelter <br> 7/07 Toronto, ONT Kathedral Room <br> 7/08 Montreal, QUE Salle L'X <br> 7/10 Rochester, NY Water Street Music Hall <br> 7/11 Albany, NY Valentines <br> 7/12 Randolph, NJ Obsessions <br> 7/13 Worcester, MA Palladium <br> 7/14 Brooklyn, NY Lamour <br> 7/15 Springfield, VA Jaxx <br> 7/18 Winston-Salem, NC Ziggy's <br> 7/19 Birmingham, AL Boiler Room <br> 7/20 Tallahassee, FL Cow Haus <br> 7/21 Tampa, FL Brass Mug (Tent Show) <br> 7/24 Houston, TX The Engine Room <br> 7/25 Arlington, TX Dreamworld <br> 7/28 Anaheim, CA Chain Reaction <br> 7/29 San Francisco, CA The Pound <br> IMMOLATION and Krisiun (* Immolation only) <br> 8/03 Poughkeepsie, NY The Chance * <br> 8/04 Jackson Heights, NY Castle Heights * <br> 8/05 Syracuse, NY Planet 505 * <br> 8/06 Boston, MA Bill's Bar and Lounge * <br> 8/07 Randolph, NJ Obsessions * <br> 8/09 Cleveland, OH Agora Theatre * <br> 8/10 Detroit, MI I-Rock * <br> 8/11 Milwaukee, WI Milwaukee Auditorium <br> 8/12 St Paul, MN The Lab <br> 8/13 Lawrence, KS The Bottleneck <br> 8/14 Colorado Springs, CO Colorado Music Hall <br> 8/16 West Hollywood, CA The Whiskey A Go-Go <br> 8/17 Tempe, AZ Boston's Night Club <br> 8/19 Austin, TX The Backroom <br> 8/21 Tampa, FL The Brass Mug <br> 8/22 Ft Lauderdale, FL Culture Room <br> 8/23 Spartanburg, SC Ground Zero <br> 8/24 Richmond, VA Twisters <br> 8/25 Norfolk, VA Taj Mahal <br> 8/26 West Springfield, VA Jaxx <br> 8/27 New York, NY Wetlands <br> FLOTSAM & JETSAM <br> 7/28 West Hollywood, CA Troubadour <br> 9/28 Dallas, TX Canyon Club <br> 9/29 Austin, TX The Metro <br> 10/02 Tampa, FL Brass Mug <br> 10/06 Richmond, VA Canal Club <br> 10/13 Lorain, OH Flying Machine <br> 10/14 Aurora, IL Riley's <br> 10/20 Tucson, AZ The Rock <br> 11/02 Reseda, CA Paladino's <br> SPOCK'S BEARD <br> 7/15 Detroit, MI The Magic Bag <br> 7/16 Toronto, ONT tba <br> 7/17 Montreal, QUE tba <br> 7/18 Quebec City, QUE Le Dagobert <br> 7/20 Boston, MA House Of Blues <br> 7/21 W. Springfield, VA Jaxx <br> 7/22 Philadelphia, PA North Star Bar <br> 7/23 New York, NY The Bottom Line <br> 7/25 Lansing, IL JJ Kelly's <br> 7/26 Milwaukee, WI Shank Hall <br> 7/29 Las Vegas, NV Legends <br> 7/30 Los Angeles, CA tba <br> 7/31 San Francisco, CA Great American Music Hall <br> 8/01 San Diego, CA Cane's <br> DAVE BROCKIE EXPERIENCE <br> 8/30 Charlotte, NC Fat City <br> 9/01 Atlanta, GA Star Bar <br> 9/05 New Orleans, LA Dixie Taverne <br> 9/06 Houston, TX Fitzgerald's <br> 9/11 Tempe, AZ Big Fish Pub <br> 9/30 Cincinnati, OH Top Cat's <br> 10/01 Muncie, IN Fraction's <br> 10/02 Cleveland, OH Blind Lemon <br> 10/05 Worcester, MA Lucky Dog <br> LIZZY BORDEN <br> 7/06 Hollywood, CA House of Blues <br> 7/12 Anaheim, CA House of Blues <br> 7/13 San Francisco, CA Maritime Hall Ballroom <br> 7/14 Santa Cruz, CA Palookaville, Santa Cruz <br> JACOBS DREAM <br> 7/28 Columbus OH Park Metal Festival</p>
+
+Автор: Yermola
+
+### 11.07.2001 news Сначала было слово
+
+<p> Американцы Jacobs Dream решили пообчатиться с народом. 21 июля сего года на сайте www.jacobsdream.de вся группа будет находиться в онлайне. Спешите видеть!</p>
+
+Автор: Helloween
+
+### 12.01.2004 news В JACOBS DREAM новый вокалист
+
+<B>JACOBS DREAM</B>&nbsp;объявили имя своего нового вокалиста -&nbsp;<B>Chaz Bond</B>. <B>Chaz</B>&nbsp;раньше играл в&nbsp;hardcore/melodic metal&nbsp;группе <B>BIOGENESIS</B>.<BR><B>JACOBS DREAM</B>&nbsp;сейчас работают над продолжением альбома&nbsp;2001-го года&nbsp;<B>"Theater of War"</B>,&nbsp;который называется&nbsp;<B>"Drama of the Ages"</B>.&nbsp;Новую песню можно скачать <A target=_blank href="http://truemetal.org/jacobsdream/music/dramasnip.mp3"><U>здесь</U></A>.&nbsp;Летом альбом должен выйти на&nbsp;<B>Metal Blade Records</B>.
+Автор: Uneral
+
+### 21.02.2005 news JACOBS DREAM выпускают новый альбом
+
+<P>Новый альбом <STRONG>JACOBS DREAM "Drama Of The Ages"</STRONG> выходит 3 мая на <STRONG>Metal Blade</STRONG>. Напомним, что эта пластинка станет дебютом для нового вокалиста <STRONG>Chaz Bond</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.04.2009 news JACOBS DREAM записывают
+
+<P><STRONG>JACOBS DREAM</STRONG> записывают пятый альбом под названием <STRONG>'Beneath The Shadows'. </STRONG>Группа расскажет историю человека, который страдает наркотической зависимостью.</P>
+Автор: Vit Belov
+
+### 07.05.2009 news JACOBS DREAM на Retroactive
+
+<P><STRONG>JACOBS DREAM</STRONG> подписали контракт с <STRONG>Retroactive Records</STRONG>. Группа работает над пятым альбомом <STRONG>"Beneath The Shadows"</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Jacobs Dream "Theater of war"

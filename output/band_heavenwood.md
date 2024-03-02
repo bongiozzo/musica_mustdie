@@ -129,6 +129,86 @@ www.myspace.com/lachispadelamuerte
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.11.2002 news Heavenwood готовят новый альбом
+
+<p>Португальцы Heavenwood готовят новый альбом. Он пока ещё никак не назван, но поставлен в план выпуска на начало 2003 года лейблом Massacre Records.</p>
+
+Автор: Morsus
+
+### 21.01.2003 news Heavenwood вернулись...
+
+<p>Португальцы heavenwood сообщают, что после вынужденного простоя после выхода 'Swallow' они возвращаются к активной деятельности. С тем же самым составом, за исключением нового басиста D&Aacute;RIO ALEXANDRE. У группы по прежнему контракт с Massacre, на которой выйдет новый альбом осенью.</p>
+
+Автор: Vit Belov
+
+### 21.01.2003 news Heavenwood Returns...
+
+<p>Heavenwood, Portuguese Dark Rock Metal Band, would like to confirm you that after a " stand-by " after the release of SWALLOW and is Pormotion are back in town. With the same Line-up, only joined DБRIO ALEXANDRE has Bass Player. The band still have contract with German MASSACRE Records for 2 Albuns to be released in the fall of 2003.</p>
+
+Автор: Vit Belov
+
+### 05.04.2004 news HEAVENWOOD работают над новым альбомом
+
+Португальцы&nbsp;<B>HEAVENWOOD </B>занимаются сейчас пре-продукцией к своему новому альбому&nbsp;"<B>Exposed</B>".&nbsp;Вот несколько названий песен: <B>REMIND ME, ANGEL'S SONG, HAUNTED GIRL, THE SHADOWS</B>&nbsp;и <B>BLOOD</B>. &nbsp;
+Автор: Vit Belov
+
+### 05.04.2004 news Heavenwood works on new album
+
+Portugese band <B>HEAVENWOOD</B> are working&nbsp;with their new album '<B>Exposed</B>'. Some track-names are <B>REMIND ME, ANGEL'S SONG, HAUNTED GIRL, THE SHADOWS</B> and <B>BLOOD</B>.
+Автор: Vit Belov
+
+### 22.04.2008 news HEAVENWOOD сводят новый альбом
+
+<P>Португальцы <B>HEAVENWOOD</B> занимаются сведением своего третьего альбома под названием <STRONG>"Redemption". </STRONG>Процесс проходит в шведской <B>Fascination Street Studios</B> под управлением <B>Jens Bogren</B> (<B>OPETH</B>, <B>SOILWORK</B>, <B>AMON AMARTH</B>). Альбом был записан в <B>Ultrasound Studios. </B><B>"Redemption"</B> планируется к выходу в сентябре на <B>Recital Records</B>. Гостевое участие в записи приняли гитарист <B>FIREWIND</B> <B>Gus G.</B> и вокалист <B>Tijs Vanneste</B> из бельгийской группы <B>OCEANS OF SADNESS</B>. Трек-лист альбома:<BR>1. <B>Me & You</B><BR>2. <B>Obsolete</B> (with Tijs Vanneste)<BR>3. <B>Slumber</B><BR>4. <B>Her Scent In The Spiral</B><BR>5. <B>Fragile</B><BR>6. <B>One Step To Devotion</B> (with Gus G.)<BR>7. <B>Take My Hand</B><BR>8. <B>Bridge To Neverland</B><BR>9. <B>Foreclosure</B><BR>10. <B>13th Moon</B><BR></P>
+Автор: Dimas
+
+### 21.12.2008 reviews Нежданное возвращение
+
+<P>Португальцы HEAVENWOOD из тех групп, которые для любителей тяжёлой музыки казалось бы навеки остались в прошлом веке. Два великолепных альбома “Diva” и “Swallow” прочно вписывали их имя на доску почёта стиля death-doom-metal. Вернее один великолепный “Diva” и просто хороший “Swallow”. В течение всех лет существования нашего сайта от HEAVENWOOD приходили различные сообщения о возможном выпуске новой работы. И вот это случилось. “Redemption”, третий альбом коллектива, увидел свет более чем через 10 лет после предшественника.</P>
+<P>Требуется пояснить, почему фэны стиля death-doom с 10-летним и более стажем охают и ахают, когда видят этот альбом на прилавке. Все мы, не побоюсь этого слова, уважали группу из Португалии, но нынешние вздохи о ней связаны скорее с ностальгией по тем временам, нежели с реальными заслугами. “Diva” не был лишён собственного лица, ведь вышел дебют HEAVENWOOD в те времена, когда слабая группа просто не смогла бы подписать контракт с Massacre Records. Но, всё-таки… Мне думается, HEAVENWOOD творили в нужном месте и в нужное время. Чуть раньше этот достаточно «задорный» материал просто не вписался бы в эстетику doom-metal, но PARADISE LOST уже выпустили свой “Icon” и убыстрять темп уже не считалось чем-то зазорным. Но в то же время HIM не выпустили ещё свой дебют, который навечно связал эту музыку с термином gothic-metal и довёл её мелодичность до абсурда. Помню, поначалу и мы HIM называли death-doom-metal, но очень быстро одумались. Ценность же новой работы HEAVENWOOD заключается в её старомодности. Португальцы не поменяли ничего. Все тот же убыстренный doom-metal в духе работ PARADISE LOST, редкие женские подпевки, сочетание гроула и чистого вокала. Забавно. Признаться, я с опаской вставлял эту пластинку в проигрыватель, но опасения оказались излишними. “Redemption” достойно дополнит коллекции поклонников группы.</P>
+<P>С другой стороны, я не заметил на этом альбоме каких-то сногсшибательных хитов, и это серьёзно разочаровало. Материал HEAVENWOOD записали правильный, но неужели за 10 лет они не накопили более сильного багажа? Советую попробовать всем. Эта пластинка может понравиться.</P>
+Автор: Vit Belov
+
+### 24.09.2009 news Видео HEAVENWOOD
+
+<P>Видео&nbsp;<STRONG>HEAVENWOOD </STRONG>на песню <STRONG>"13th Moon" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/mrtWPK4MIwA&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/mrtWPK4MIwA&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.12.2010 news HEAVENWOOD на Listenable
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2010.12/17764.jpg" width=200 align=right border=0>Популярные некогда португальские death-doom-metal'исты<STRONG> HEAVENWOOD</STRONG> заключили контракт на выпуск своего четвёртого альбома <STRONG>"Abyss Masterpiece" </STRONG>с лэйблом<STRONG> Listenable</STRONG>. В настоящее время пластинка проходит сведение в студии<STRONG> Kohlekeller</STRONG> у продюсера <STRONG>Kristian "Kohle" Kohlmannslehner</STRONG> (<B>CREMATORY</B>, <B>AGATHODAIMON</B>, <B>BENIGHTED</B>). Альбом должен выйти в начале следующего года. Вот названия некоторых песен:</P>
+<P>* <B>The Arcadia Order</B><BR>* <B>Fading Sun</B><BR>* <B>Like Yesterday</B><BR>* <B>Winter Slave</B><BR>* <B>September Blood</B><BR>* <B>Sudden Scars</B><BR>* <B>A Poem For Mathilde</B><BR>* <B>Leonor</B><BR>* <B>Burden</B><BR>* <B>Goddess Presiding Over Solitude</B><BR>* <B>Morning Glory (In Manus Tuas Domine)</B><BR>* <B>Her Lament</B></P>
+<P>Третий альбом португальцев <STRONG>"Redemption" </STRONG>был реализован собственными силами музыкантов в августе 2008 года и был переиздан в России на <STRONG>Irond Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.08.2016 news Новый альбом HEAVENWOOD можно послушать целиком
+
+<p><strong>Massacre Records</strong> выложили на своём Youtube канале новый альбом португальцев <strong>HEAVENWOOD "The Tarot Of The Bohemians - Part I"</strong>. Слушайте этот альбом ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/vF6mhN-Ls70" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 15.08.2016 news Massacre Records stream HEAVENWOOD album on Youtube
+
+<p><strong>Massacre Records</strong> has posted on its Youtube channel the new album of Portuguese<strong> HEAVENWOOD "The Tarot Of The Bohemians - Part I"</strong>. Listen to this album below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/vF6mhN-Ls70" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 03.09.2016 news Новый видео-клип HEAVENWOOD
+
+<p>Новый ролик португальцев <strong>HEAVENWOOD "The Empress"</strong> можно посмотреть ниже. Песня взята с последнего альбома коллектива "<strong>The Tarot Of The Bohemians - Part I</strong>", который вышел на <strong>Massacre Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Zlc4mgqnx1g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 03.09.2016 news New clip of HEAVENWOOD
+
+<p>New video of the Portuguese<strong> HEAVENWOOD "The Empress"</strong> can be viewed below. Song taken from latest album "<strong>The Tarot Of The Bohemians - Part I</strong>", which was released on <strong>Massacre Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Zlc4mgqnx1g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

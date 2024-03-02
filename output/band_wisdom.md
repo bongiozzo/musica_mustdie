@@ -19,6 +19,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.09.2011 news WISDOM - дебют через 20 лет
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=348 alt="" hspace=0 src="/images/news_rus/2011.09/20862.jpg" width=350 align=right border=0>Испанские металисты <STRONG>WISDOM</STRONG> выпустили в этом году свой дебютный полноформатный альбом "<STRONG>Podre</STRONG>". Коллектив, основанный в 1991 году, успел поиграть heavy-metal, power-thrash-metal, а теперь дебютирует с death-grind альбомом. Трек-лист:</FONT></P>
+<P>1. <STRONG>Bautizado co Oleo dos Defuntos</STRONG><BR>2. <STRONG>A Prostituta de Babilonia</STRONG><BR>3. <STRONG>A Rolos (o Dia do Patron)</STRONG> <BR>4. <STRONG>Minoca</STRONG> <BR>5. <STRONG>Empanada de Escarapotes</STRONG> <BR>6. <STRONG>O Escuadron de Patexos Pola Ria</STRONG> <BR>7. <STRONG>Podre<BR></STRONG>8. <STRONG>Sofren os Nenos</STRONG> (Napalm Death)</P>
+<P>MySpace: <A href="http://www.myspace.com/wisdominferno">www.myspace.com/wisdominferno</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

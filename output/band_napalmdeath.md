@@ -460,6 +460,510 @@ Bonus tracks:
 * C группой "Venomous Concept" Danny Herrera, Shane Embury
 * C группой "Insidious Disease" Shane Embury
 
+## Публикации
+
+### 01.04.1999 news 
+
+<p>Napalm Death после удачного тура по Америке собираются записать новый EP, состоящий из каверов. Барни Гринуэй говорит, что они не собираются переигрывать песни известных коллективов. Скорее всего они сыграют что-нибудь из репертуара групп конца 80-х, повлиявших на развитие грайнд-стиля. Наряду со старыми песнями Death, это могут быть композиции Siege, Repulsion, Nausea, Cryptic Slaughter и других менее известных.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Новости о сайд-проектах участников Napalm Death. Шейн вместе с известными музыкантами Билли Гулдом и Дино Касаресом закончили новый альбом Brujeria, который выйдет позже в этом году. Митч закончил запись нового альбома Meathook Seed, который выйдет также в этом году. Также Джесси и Шейн объединились с Л.Г. Петровым (Entombed) и Николасом Бэйкером (ex-Cradle Of Filth), Dimmu Borgir) для запуска нового проекта Lock-On. Также в этом году Барни и Дэнни планируют записать новые песни для нового альбома Nothing But Contempt.</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>Napalm Death выпустили новый альбом "Leaders Not Followers". На него вошли кавера таких групп, как Raw Power, Incenterator, Pentagram, Repulsion, Death и Dead Kennedys. Группа находится сейчас в 6-недельном туре вместе с Konkhra.</p>
+
+Автор: Vit Belov
+
+### 30.06.2000 news Napalm Death анонсируют новый альбом.
+
+<p>Napalm Death собираются атаковать наш мозг новым, пока не названным альбомом. Барни Гринуэй заявил, что всё, что накопилось у группы за последние годы найдёт отражение на этой пластинке. Главным образом в текстах. Альбом будет выпущен в сентябре, продюсером станет Simon Efemey.</p>
+
+Автор: Vit Belov
+
+### 24.08.2000 news Новый альбом Napalm Death
+
+<p> Новый альбом Napalm Death выходит 24-го сентября на Dream Catcher. Альбом "Enemy Of The Music Business" будет содержать следующие трэки: "Poison", "Next On The List", "Constitutional Hell", "Vermin", "Volume Of Neglect", "Can't Play, Won't Pay", "Blunt Against The Cutting Edge", "Cure For The Common Complaint", "A Necessary Evil", "C.S. (Conservative Shithead) Pt. 2", "Mechanics Of Deceit", "(The Public Gets) What The Public Doesn't Want" и "Fracture In The Equation". В этот же день состоится выступление группы в Лондоне, которое даст начало большому европейскому турне Napalm Death и их коллег, группы Brutal Deluxe.</p>
+<p></p>
+
+Автор: Nybras
+
+### 24.08.2000 news Napalm Death&#39;s new album
+
+<p> Dream Catcher will release Napalm Death's new full length album, "Enemy Of The Music Business", on September 25th. The tracklisting for the album: 'Poison', 'Next On The List', 'Constitutional Hell', 'Vermin', 'Volume Of Neglect', 'Can't Play, Won't Pay', 'Blunt Against The Cutting Edge', 'Cure For The Common Complaint', 'A Necessary Evil', 'C.S. (Conservative Shithead) Pt. 2', 'Mechanics Of Deceit', '(The Public Gets) What The Public Doesn't Want' and 'Fracture In The Equation'. On the same day the band will play a show in London and will then head out on a tour of Europe in mid October with Brutal Deluxe.</p>
+
+Автор: Nybras
+
+### 08.11.2000 reviews Все на борьбу с врагами музыкального бизнеса
+
+<p>Все на борьбу с врагами музыкального бизнеса. Вот к чему, собственно говоря, нас призывает новый ураганный альбом Napalm Death. Безумно приятно, что музыканты всё-таки не стали продолжать серию однообразных альбомов. Разнообразили же они свой материал путем введения в современный материал группы коронных грайндовых фишек свойственных группе в период "Harmony Corruption" и "Utopia Banished". Очень интересный результат, сносящий крышу при прослушивании. Прекрасная техническая работа и продюссирование. Политизированная лирика. В общем, прекрасный альбом, который доставит массу удовольствия как старым поклонникам группы, так и нынешним. Действительно крутой альбом под музыку которого можно отвязно поугорать, потрясти башкой и выплеснуть излишки адреналина.</p>
+
+Автор: Dimas
+
+### 25.01.2001 reviews За оригинальность, бескомпромиссность и уверенность в непростом деле уничтожения музыки
+
+<p>Мда. Альбом озаглавленный «Враг музыкального бизнеса», можно было бы назвать и проще – «Враг музыки». Содержание этого диска – тяжелейший прокатный стан. Монотонно, максимально громко и агрессивно, крайне тяжело – пожалуй, экстремальней этой группы просто быть не может. Тот, кто найдет здесь хотя бы намек на простейшую мелодию – может требовать от группы миллион долларов. Хотя затея бесполезная – мелодий нет. Если на альбомах 95, 97 и 99 года группа очень интересно и эффектно экспериментировала с необычной ритмикой и тональностями, то теперь – возвращение к стилистике начала 90-х. Большинство фэнов тяжмета, выросших на «Napalm Death» именно этого периода, альбом полюбят. Ваш покорный слуга умывает руки – «Напалмовая смерть» периодов 1985-1989 и 1995-1999 мне боле по душе.</p>
+
+Автор: Tornado
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>После проведения однодневных Dynamo Open в последние годы, в этом году принято решение все-таки вернуться к трехдневной форме. Шестнадцатый фестиваль будет проходить на "De Schans" в Lichtenvoorde с 24 по 26 мая 2001. Уже подтвердили свое участие: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER и WICKED MYSTIC. Не пропустите!</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>After last years one day-Dynamo we strike back with a full three day -event, with campsite at "De Schans" in Lichtenvoorde. Our 16th edition will simply crush all other summerfestivals this year and takes place on the 24th, 25th and 26th of MAY … Bands Scheduled To Appear: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER feat. Arjen Lucassen, WICKED MYSTIC</p>
+
+Автор: Yermola
+
+### 26.03.2001 news NAPALM DEATH have announced their upcoming touring
+
+<p> NAPALM DEATH have announced their upcoming touring plans via their official web site. Here is how the schedule is shaping up so far:</p>
+<p> March 26 – Osaka, JAP @ Club Quatro</p>
+<p></p>
+<p> March 27 – Nagoya, JAP @ Club Quatro</p>
+<p></p>
+<p> March 28 – Tokyo, JAP @ Club Quatro</p>
+<p></p>
+<p> April 01 - Kuala Lumpar, MALASYA</p>
+<p></p>
+<p> April 07 – Asbury Park, NJ, USA @ Metal Fest</p>
+<p></p>
+<p> April 17 – Newport, UK @ TJ's</p>
+<p></p>
+<p> April 18 – Sheffield, UK @ The Casbah</p>
+<p></p>
+<p> April 19 - Edinburgh, UK @ The Liquid Room</p>
+<p></p>
+<p> April 20 - Glasgow, UK @ King Tut's</p>
+<p></p>
+<p> April 21 - Manchester, UK @ Hop & Grape</p>
+<p></p>
+<p> April 23 - Leicester, UK @ Charlotte</p>
+<p></p>
+<p> April 24 - Bristol, UK @ Fleece & FIrkin</p>
+<p></p>
+<p> April 25 - Exeter, UK @ The Cavern</p>
+<p></p>
+<p> April 26 - Portsmouth, UK @ Wedgewood Rooms</p>
+<p></p>
+<p> April 27 - Colchester, UK @ The Attic</p>
+<p></p>
+<p> April 28 - Oxford, UK @ Zodiac</p>
+<p></p>
+<p> May 25–27 – Lichtenvoorde, NETH @ Dynamo Open Air</p>
+<p></p>
+<p> Plans also exist for NAPALM DEATH to return to America for a 3-4 week headlining tour beginning on the 29th of May. More details as they arrive.</p>
+<p></p>
+
+Автор: Yermola
+
+### 06.04.2001 news NAPALM DEATH in action...
+
+<p> American fans of the band will not have to wait much longer to see NAPALM DEATH in action, as the band have announced details for their long-awaited North American return. The band will launch a 19-date tour, with support coming from SOILENT GREEN and ISIS. Here are the dates:</p>
+<p></p>
+<p> May 29 - Toronto, ONT @ The Reverb Room</p>
+<p></p>
+<p> May 30 - Montreal, QC @ Foufounces Electriques</p>
+<p></p>
+<p> May 31 - South Amboy, NJ @ Krome</p>
+<p></p>
+<p> June 01 - Worcester, MA @ The Palladium</p>
+<p></p>
+<p> June 02 - Burlington, VT @ Memorial Auditorium</p>
+<p></p>
+<p> June 03 - New York, NY @ CBGB’s</p>
+<p></p>
+<p> June 04 - Baltimore, MD @ Fletchers</p>
+<p></p>
+<p> June 05 - W. Springfield, VA @ Jaxx</p>
+<p></p>
+<p> June 06 - Philadelphia, PA @ The Rounds</p>
+<p></p>
+<p> June 07 - Cleveland, OH @ Agora Theatre</p>
+<p></p>
+<p> June 08 - Detroit, MI @ Harpo’s</p>
+<p></p>
+<p> June 09 - Chicago, IL @ Fireside Bowl</p>
+<p></p>
+<p> June 11 - Houston, TX @ Fitzgeralds</p>
+<p></p>
+<p> June 12 - Austin, TX @ Backroom</p>
+<p></p>
+<p> June 14 - Albuquerque, NM @ Launch Pad</p>
+<p></p>
+<p> June 15 - Tempe, AZ @ Bostons</p>
+<p></p>
+<p> June 16 - Santa Ana, CA @ Galaxy Concert Theatre</p>
+<p></p>
+<p> June 17 - Los Angeles, CA @ Whiskey A Go Go</p>
+<p></p>
+<p> June 18 - San Francisco, CA @ The Pound @ Pier 69</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 06.06.2001 reviews Все честно!
+
+<p> Хоть NAPALM DEATH этим альбомом и озадачили массу народа, но поступили они более чем честно: что обещали перед релизом альбома, то и выдали. Как и было обещано на диске представлен нереализованный группой материал по части текстов, но, к превеликому сожалению, скорее всего именно по этой причине, о музыке, здесь забыли просто напрочь. Ее вообще нет. Не в обиду напалмовцам будет сказано, но даже я, упертый "мясник" со стажем и один из давних поклонников "Напалмовой Смерти" 90-98 годов разлива, с трудом впихнул сей опус в себя (к чести сказать, даже несколько раз в разное время дня в разном настроении). Интересно, что сделали NAPALM DEATH "враги музыкального бизнеса", чем так их взбесили и вывели из себя? Более остервенелого и раздолбайского угара я отродясь не слыхивал. Надо сказать, группа развивается, но развивается она в каком-то странном и пока непонятном направлении. Впечатление от альбома: неординарно, здорово, экспериментально и ни с чем не сравнимо, но если это всерьез устаканится как новый стиль группы, она определенно выйдет из рядов моих фаворитов. Итого нужно сказать, что более экстремальной команды, чем NAPALM DEATH-2000, пожалуй, не найти, а альбом про "Врагов...", как таковой, очень даже неплох, но он просто рассчитан на определенную группу слушателей - во всех прочих он просто не полезет (аналогичный пример WALHALLA - эдакий жестоко-мясной сайд-проект музыкантов из THY SERPENT, SOULGRIND и GLOOMY GRIM). И в одном я уверен точно: вряд ли лично у меня когда-либо возникнет желание прослушать "Врагов..." еще раз.</p>
+
+Автор: Alexey Pitirimov
+
+### 06.02.2002 news Бассист NAPALM DEATH попал в больницу...
+
+<p>Shane Embury попал в больницу во время германского тура группы с симптомами сильной лихорадки. Команда вынуждена продолжить гастроли в четвером...</p>
+
+Автор: Yermola
+
+### 06.02.2002 news NAPALM DEATH Bassist Hospitalized....
+
+<p>NAPALM DEATH bassist Shane Embury reportedly collapsed in Germany during the band's European tour was forced to seek medical attention yesterday for flu-related symptoms. The band will reportedly continue their German trek as a four-piece.</p>
+
+Автор: Yermola
+
+### 02.05.2002 news NAPALM DEATH&#39;s forthcoming studio album
+
+<p>NAPALM DEATH are currently working on material for their forthcoming studio album, which they hope to release in late 2002 or early 2003 through Dream Catcher Records. Described by frontman Mark “Barney” Greenway as “even more nuts than the last album: fast, faster and faster still,” the forthcoming CD will include such cuts as "There's Only One War" and "Narcoleptic". A possibility also exists that the group will release a split single with Italian punk veterans RAW POWER, although this remains unconfirmed at this time.</p>
+
+Автор: Dimas
+
+### 02.05.2002 news О новом альбоме NAPALM DEATH
+
+<p>NAPALM DEATH начали работу над материалом своего нового альбома, выход которого намечается на конец 2002 - начало 2003 года на Dream Catcher Records. Вокалист группы Mark “Barney” Greenway отмечает, что новый альбом будет быстрым, быстрее, чем предыдущие, самым быстрым и способным "расколоть любой крепкий орех". Уже точно известно, что в альбом войдут "There's Only One War" и "Narcoleptic". Также, возможно группа запишет совместный сингл с ветеранами итальянской панк-сцены RAW POWER.</p>
+
+Автор: Dimas
+
+### 28.05.2002 news Новый альбом NAPALM DEATH ....
+
+<p>Патологоанатомы со стажем "NAPALM DEATH" завершили запись барабанных треков для нового пока никак не названного альбома в английской Parkgate Studios (где писался диск Enemy Of The Music Business) и сейчас взяли небольшой перерыв перед тем чтобы полностью доделать его в Июле. Дата выхода - Сентябрь/Октябрь через Dream Catcher Records. По словам бассиста Shane Embury: "это самые быстрые песни NAPALM DEATH за все время...". Трек-лист: <BR><BR> 01. Narcoleptic<BR> 02. Farce and Fiction<BR> 03. Lowest Common Denominator<BR> 04. Per Capita<BR> 05. Continuing War On Stupidity<BR> 06. The Icing On the Hate<BR> 07. There's Only One War<BR><BR> Кроме того в самое ближайшее время Напалмовцы выпустят новый живой DVD "Punishment in Capitals" в который вошли съемки шоу в лондонском ULU и концерт в Чили. Трек-лист: <BR><BR> 01. Lucid Fairytale<BR> 02. Take the Poison<BR> 03. Next on the List<BR> 04. Constitutional Hell<BR> 05. Suffer the Children<BR> 06. Cleanse Impure<BR> 07. Politicians<BR> 08. Breed to Breathe<BR> 09. Unchallenged Hate<BR> 10. Vermin<BR> 11. The World Keeps Turning<BR> 12. Can't Play Wont Pay<BR> 13. Narcoleptic<BR> 14. Volume of Neglect<BR> 15. Hung<BR> 16. From Enslavement to Obliteration<BR> 17. Scum<BR> 18. Life?<BR> 19. The Kill<BR> 20. Deceiver<BR> 21. You Suffer<BR> 22. Cure for a Common Complaint<BR> 23. Mass Appeal Madness<BR> 24. Greed Killing<BR> 25. Instinct of Survival<BR> 26. Nazi Punks Fuck Off<BR> 27. Back from the Dead<BR> 28. Siege of Power<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news NAPALM DEATH Begin Work On New CD, Prepare Live DVD ....
+
+<p>NAPALM DEATH have completed the drum tracks for their forthcoming, as-yet-untitled album at Parkgate Studios in Hastings, England (where the group's Enemy Of The Music Business CD was recorded) and are currently taking a break before returning to the facility in early July to finish up the rest of the LP for a tentative September/October release through Dream Catcher Records. Described by bassist Shane Embury as containing "some of the fastest NAPALM DEATH songs ever," the upcoming CD will include the following cuts, among others:<BR> <BR> 01. Narcoleptic<BR> 02. Farce and Fiction<BR> 03. Lowest Common Denominator<BR> 04. Per Capita<BR> 05. Continuing War On Stupidity<BR> 06. The Icing On the Hate<BR> 07. There's Only One War<BR><BR> In other news, NAPALM DEATH will shortly be issuing a new live DVD, entitled Punishment in Capitals, which will feature footage recorded during the band's recent headlining show at London's ULU, along with material shot at the group's show in Chile in front of a crowd of 5,000, and other, as-yet-undetermined extra footage. The tentative track listing for the London performance portion of the DVD is as follows:<BR><BR> 01. Lucid Fairytale<BR> 02. Take the Poison<BR> 03. Next on the List<BR> 04. Constitutional Hell<BR> 05. Suffer the Children<BR> 06. Cleanse Impure<BR> 07. Politicians<BR> 08. Breed to Breathe<BR> 09. Unchallenged Hate<BR> 10. Vermin<BR> 11. The World Keeps Turning<BR> 12. Can't Play Wont Pay<BR> 13. Narcoleptic<BR> 14. Volume of Neglect<BR> 15. Hung<BR> 16. From Enslavement to Obliteration<BR> 17. Scum<BR> 18. Life?<BR> 19. The Kill<BR> 20. Deceiver<BR> 21. You Suffer<BR> 22. Cure for a Common Complaint<BR> 23. Mass Appeal Madness<BR> 24. Greed Killing<BR> 25. Instinct of Survival<BR> 26. Nazi Punks Fuck Off<BR> 27. Back from the Dead<BR> 28. Siege of Power<BR></p>
+
+Автор: Yermola
+
+### 13.12.2002 reviews Быстрее, выше, сильнее!
+
+<p>Быстрее, выше, сильнее! Это как раз о новом альбоме классиков death-grindcore. Здесь нет ничего принципиально нового, лишь слегка изменено соотношение компонентов творчества NAPALM DEATH: скорость выше, звук плотнее, напор мощнее, тяжести больше. Меньше мелодики и среднетемпового кача. Во всем прочем – то же месиво. Логичное продолжение "Enemies of the Music Business" – только чуть быстрее, выше, сильнее… Мои фавориты: "Per capita" и синкопированная "Forced to Fear". Вот оно, торжество экстремальной музыки, есть еще напалм в цистернах!</p>
+<p> Собственно, и сказать больше нечего. Кроме одного – всем фтыкать! 8-) Группа в ударе, никаких послаблений, минимум новаций и максимум первоклассного молотилова. Теперь идите и покупайте.</p>
+
+Автор: Tornado
+
+### 10.04.2003 news Лучшее от NAPALM DEATH
+
+<p>После нескольких лет распрей между группой NAPALM DEATH и Earache Records, стороны пришли к некоторому согласию. Результатом этого станет выпускаемый в конце лета 2003 года двойной альбом NAPALM DEATH под названием "Noise For Music's Sake". На первый диск войдут лучшие вещи группы с десяти альбомов выпущенных на Earache Records. На втором же будут записаны раритетные и неизданные вещи группы, включая давно забытые вещи с участием Lee Dorrian (CATHEDRAL) и Bill Steer (CARCASS, FIREBIRD).</p>
+
+Автор: Dimas
+
+### 24.07.2003 news Второй сборник каверов от NAPALM DEATH
+
+<p>Британские пионеры grindcore NAPALM DEATH выпустят в конце 2003 года на собственном лэйбле Feto Records вторую часть сборника собственных кавер-версий боевиков различных известных групп "Leaders Not Followers 2". В него войдут следующие композиции:</p>
+<p> 1. "Lowlife" (CRYPTIC SLAUGHTER) <BR> 2. "Face Down In The Dirt" (OFFENDERS)<BR> 3. "Devastation" (DEVASTATION)<BR> 4. "Dope Fiend" (ATTITUDE ADJUSTMENT)<BR> 5. "Blind Justice" (AGNOSTIC FRONT)<BR> 6. "Night Of Pain" (WEHRMACHT)<BR> 7. "Game Of The Assholes"/"Victims Of A Bomb Raid" (ANTI CIMEX)<BR> 8. "Troops Of Doom" (SEPULTURA)<BR> 9. "Fire Death Fate" (INSANITY)<BR> 10. "Hate Fear + Power" (HIRAX)<BR> 11. "Bedtime Story" (DAYGLO ABORTIONS)<BR> 12. "Messiah" (HELLHAMMER)<BR> 13. "Riot Of Violence" (KREATOR)<BR> 14. "War's Not Fairytale" (DISCHARGE)<BR> 15. "Conform" (SIEGE)<BR> 16- "Clangor Of War" (MASSACRE)<BR> 17. "Master" (MASTER)<BR> 18. "I'm Tired" (DIE KREUZEN)</p>
+
+Автор: Dimas
+
+### 12.09.2003 news NAPALM DEATH передвинули дату выхода новой пластинки
+
+<p>NAPALM DEATH передвинули дату выхода своей коллекции каверов под названием "Leaders Not Followers 2" на начало 2004 года. ТРЭК-ЛИСТ:</p>
+<p> 01. CRYPTIC SLAUGHTER – "Lowlife"<br> 02. OFFENDERS – "Face Down In The Dirt"<br> 03. DEVASTATION – "Devastation"<br> 04. ATTITUDE ADJUSTMENT - "Dope Fiend"<br> 05. AGNOSTIC FRONT - "Blind Justice"<br> 06. WEHRMACHT - "Night Of Pain"<br> 07. ANTI CIMEX - "Game Of The Assholes"/"Victims Of A Bomb Raid"<br> 08. SEPULTURA - "Troops Of Doom"<br> 09. INSANITY - "Fire Death Fate"<br> 10. HIRAX - "Hate Fear + Power"<br> 11. DAYGLO ABORTIONS - "Bedtime Story"<br> 12. HELLHAMMER - "Messiah"<br> 13. KREATOR - "Riot Of Violence"<br> 14. DISCHARGE - "War's Not Fairytale"<br> 15. SIEGE - "Conform"<br> 16. MASSACRE - "Clangor Of War"<br> 17. MASTER - "Master"<br> 18. DIE KREUZEN - "I'm Tired"</p>
+
+Автор: Vit Belov
+
+### 03.11.2003 reviews Лучшее и редкое от королей грайнда
+
+<DIV id=0></DIV><SPAN id=hbblock><LABEL id=HbSession SessionId="1378319709"></LABEL>
+<P>Родоначальники (а одновременно и короли) грайнда NAPALM DEATH выпустили двойной сборник, представляющий собой подборку из 56 вещей с выпущенных за эти годы на Earache альбомов группы. Особую ценность для фэнов несет&nbsp;в себе второй серебряный кругляш, на котором имеются 5 ранее нигде не публиковавшихся треков, а также записи с участием таких товарищей, как Дорриан и Стир. Не буду утверждать, что эта компиляция дает широкое представление о творчестве группы за довольно долгие годы ее существования, но если кто-то впервые слышит NAPALM DEATH (а что, есть такие?), то Noise... будет вполне пригоден для того, чтобы ответить на вопрос: нравится тебе подобная музыка или нет. Если "да", то покупай все альбомы, начиная прямо со 'Scum', если "нет" - то павера и блэка&nbsp;у нас сейчас выпускают предостаточно. Добавлю, что сборник сей вышел по лицензии на "Союзе", буклеты которого радуют меня последнее время всё больше и больше: скрепки четко по центру, книжечка не разваливается, качество печати нормальное, бумага не вызывает желания использовть ее сразу же по несколько иному назначению. Кроме различных фотографий группы, в буклете вы найдете интервью с Шейном Эмбьюри и&nbsp;Барни Гринуэем, а также комментарии того же Эмбьюри ко второму диску сборника. Рекомендуется к приборетению как давно слушающим подобную музыку, так и тем, кто только собирается ознакомится с грайндом. Ведь всегда лучше сначала послушать классиков, не так ли?</P>
+<P>Диск предоставлен концерном "Группа СОЮЗ".</P></SPAN>
+Автор: Ixtiandr
+
+### 22.03.2004 reviews На пальме дед нарезает дэт
+
+<P>Кто&nbsp;что, а "Дед на пальме" продолжает нарезать грайнд-дэт, и эти бирмингемцы сдавать своих лидирующих позиций не собираются. И в гробу они видали современные тренды. "Order Of The Leech" - это 12 убийственных треков, накрывающих как напалм и несущих только смерть. Будто и не было за плечами группы уже более 15 лет - Митч Харрис сотоварищи продолжают играть свою брутальную, драйвовую и ничуть не примитивную, как могут подумать некоторые, музыку: молодежи есть на кого равняться! Если вы видели когда-нибудь разогнавшийся до предела электропоезд, то вы сможете "визуально почувствовать" этот альбом.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 25.05.2004 news NAPALM DEATH на Century Media!!!
+
+<B>NAPALM DEATH</B> заключили контракт с <B>Century Media</B>. Первым релизом в рамках этого соглашения станет продолжение <B>'Leaders Not Followers 2</B>', о котором мы уже сообщали.
+Автор: Vit Belov
+
+### 30.09.2004 news NAPALM DEATH записывают новый альбом
+
+<P><STRONG>NAPALM DEATH</STRONG> находятся в <STRONG>Foel Studios </STRONG>вместе с продюсером <STRONG>Dave Anderson</STRONG>&nbsp;(оригинальный басист <STRONG>HAWKWIND</STRONG>). Новый альбом <STRONG>'The Code Is Red...Long Live The Code' </STRONG>выйдет в 2005 году. Вот некоторые названия песен: <STRONG>'Instruments Of Persuasion'</STRONG>, <B>'Morale'</B>, <B>'Striding Purposefully Backwards'</B>, <B>'Climate Controllers'</B>, <B>'Sold Short'</B>.</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 07.01.2005 reviews Вы любите hardcore - thrash 80-х так, как его любят NAPALM DEATH?
+
+<P>Вы любите hardcore - thrash 80-х так, как его любят <STRONG>NAPALM DEATH</STRONG>? Этот вопрос терзал и меня, когда я слушал этот «новый» альбом легендарной группы, которая пытается любыми способами отдать дань и привлечь внимание широкой общественности к коллективам, которые вдохновляли <STRONG>NAPALM DEATH</STRONG> на заре существования.</P>
+<P>Что ж, если не вдаваться в подробности, ‘<STRONG>Leaders Not Followers</STRONG>…’ должен понравиться любителям <STRONG>NAPALM DEATH</STRONG> со стажем. По большому счёту, эти фэны и составляли аудиторию групп, переозвученных на этом альбоме. Наряду с известными поныне <STRONG>KREATOR</STRONG>, <STRONG>SEPULTURA</STRONG>, <STRONG>AGNOSTIC FRONT</STRONG> здесь куча забытых коллективов: <STRONG>WEHRMACHT</STRONG>, <STRONG>HIRAX</STRONG>, <STRONG>ANTICIMEX</STRONG> (всего 19 трэков). Все композиции в оригинале выходили с 1980 по 1990 годы и, вероятно в те времена были популярны.</P>
+<P>А если вдаваться в подробности, то хочется заметить, что подобная просветительская деятельность вряд ли будет очень популярна в нашей стране, пребывавшей в то время за «железным занавесом». А вот <STRONG>NAPALM DEATH</STRONG> грозятся выпустить третью часть, было бы странно, конечно же, если бы&nbsp;они ориентировались на нашу аудиторию.</P>
+<P>А если уж совсем беспристрастно, поугорать под этот альбом можно, вспомнить 80-е тоже можно, но всё-таки по-настоящему новый альбом <STRONG>NAPALM DEATH</STRONG> был бы более востребован.</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A>.</P>
+Автор: Vit Belov
+
+### 11.01.2005 news NAPALM DEATH в Москве!!!
+
+<P><IMG height=285 alt="" hspace=20 src="/images/shows_rus/2005.02/7560.jpg" width=400 align=right border=0>«<STRONG>МАИ тур-сервис</STRONG>» с гордостью представляет:<BR>отцы грайндкора <STRONG>NAPALM DEATH</STRONG> снова в МОСКВЕ!!!</P>
+<P>22 февраля 2005 года, накануне ДНЯ ЗАЩИТНИКА ОТЕЧЕСТВА отцы грайндкора <STRONG>NAPALM DEATH</STRONG> во второй раз посетят столицу нашей Родины, город-герой Москву. В год своего 23-х летия легендарные англичане&nbsp; выйдут на сцену <STRONG>СDК МАИ</STRONG> и представят программу «<STRONG>Order Of the Leech</STRONG>», составленную из песен с недавно вышедшего одноименного альбома, а также лучших песен за всю историю группы.</P>
+<P>Вход открыт с 19:00. Начало концерта в 20:00.</P>
+<P>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></P>
+<P>Купи билет на нашем сайте здесь: <A href="/ru/shop/tickets/">http://musica.mustdie.ru/ru/shop/tickets/</A></P>
+<P>&nbsp;</P>
+<P><IMG height=2 src="/pix/carot.gif" width="100%"></P>
+<P><IMG height=600 alt="" hspace=0 src="/images/news_rus/2005.01/7945.jpg" width=400 align=right border=5>MUSICA.MUSTDIE, Концертное агентство "ПОЛИГОН", "FEELEE PROMOTION" и "КАПКАН РЕКОРДЗ"<BR>представляют серию эксклюзивных концертов настоящих монстров мирового рока:<BR>19.02.2005, 18.00<BR>"THE EXPLOITED" - Юбилейный тур в честь 25-летия группы "Twenty Five Years of Anarchy & Chaos"<BR>23.02.2005 , 18.00<BR>"NAPALM DEATH" с новым альбомом "«Order Of the Leech» + лучшие хиты за всю историю группы<BR></P>
+<P>Санкт-Петербург, Клуб ПОРТ<BR>пер. Антоненко, д.2 Метро: Садовая, Сенная площадь<BR>СПРАВКИ И ЗАКАЗ VIP-билетов: +7(812)314-2609<BR>ON-LINE бронирование: <A href="http://www.polygonclub.spb.ru/"><U><FONT color=#0000ff>www.polygonclub.spb.ru</FONT></U></A><BR><BR>Предварительная продажа билетов по 500 рублей в театральных кассах, кассах Софит, салонах Айсберг, Титаник, Десятка, КастлРок, Фаршмаг, Players, Матрица, Культура, Дохлая Рыбба, Киномир, Кудыкина Гора.<BR><BR>Посещение концерта является риском, который принимает на себя владелец билета.<BR></P>
+Автор: Vit Belov
+
+### 12.01.2005 news Новый NAPALM DEATH - подробности...
+
+<P>Новый альбом <STRONG>NAPALM DEATH 'The Code Is Red... Long Live The Code' </STRONG>выходит 25 апреля на Century Media. Стали известны имена некоторых людей, которые "посетили" <STRONG>NAPALM DEATH</STRONG> в студии. Это: <STRONG>Jello Biafra</STRONG>, <STRONG>Jamey Jasta</STRONG> (<STRONG>HATEBREED</STRONG>) and <STRONG>Jeff Walker</STRONG> (<STRONG>CARCASS</STRONG>). </P>
+Автор: Vit Belov
+
+### 26.01.2005 news Подробности о новом альбоме NAPALM DEATH
+
+<P>Стали известны еще некоторые подробности о новом альбоме<STRONG> NAPALM DEATH</STRONG>&nbsp;<B>"The Code is Red...Long Live the Code"</B>, который выйдет 25 мая на <B>Century Media Records</B>. Альбом был записан в <B>Foel Studios</B> с продюсером <STRONG>Russ Russell, </STRONG>в качестве гостевых музыкантов на нем отметились<STRONG> Jello Biafra</STRONG> (ex-<B>DEAD KENNEDYS</B>), <B>Jamey Jasta</B> (<B>HATEBREED</B>)&nbsp;и <B>Jeff Walker</B> (ex-<B>CARCASS</B>). Трек-лист альбома выглядит следующим образом:<BR>1. <B>Silence is Deafening</B> (3:48) <BR>2. <B>Right You Are</B> (0:52) <BR>3. <B>Diplomatic Immunity</B> (1:45) <BR>4. <B>Code is Red...Long Live The Code</B> (3:30) <BR>5. <B>Climate Controllers</B> (3:06) <BR>6. <B>Instruments of Persuasion</B> [feat. <B>Jamey Jasta</B>] (2:59) <BR>7. <B>The Great and the Good</B> [feat. <B>Jello Biafra</B>] (4:10) <BR>8. <B>Sold Short</B> (2:47) <BR>9. <B>All Hail the Grey Dawn</B> (4:13) <BR>10. <B>Vegetative State</B> (3:08) <BR>11. <B>Pay for the Priviledge of Breathing</B> (1:46) <BR>12. <B>Pledge Yourself to You</B> [feat. <B>Jeff Walker</B>] (3:14) <BR>13. <B>Striding Purposefully Backwards</B> (2:53) <BR>14. <B>Morale</B> (4:44) <BR>15. <B>Our Pain is their Power</B> (2:09) </P>
+Автор: Dimas
+
+### 23.02.2005 articles NAPALM DEATH в Москве, 22.02.2005, СДК МАИ
+
+<P>NAPALM DEATH в Москве. Именно так, без восклицательных знаков, звучало это выражение для меня до вчерашнего дня. Не являясь поклонником музыки группы, я не думал, что смогу получить такое удовольствие от концерта. Итак, 22 февраля, Москва, СДК МАИ.</P>
+<P>На концерт пришло около 1000 человек, что явилось для меня некоторым сюрпризом. Диски NAPALM DEATH уже не пользуются былой популярностью в массах, а уж их новые альбомы проходят совсем незаметно. В кругу людей, которые следят за веяниями моды, их приезд не вызвал какого-либо ажиотажа. Рассчитывать на тех, кто слушал группу в конце 80-х, тоже не приходилось. Основной публикой вчера стали тинейджеры, возможно, не имеющие ни одной пластинки группы, но слышавшие это громкое название NAPALM DEATH. Эти молодцы пришли за угаром, и они его получили. </P>
+<P>Выскакивания на сцену начались ещё до начала выступления группы. В зале звучал бодренький рок, под который разгорячённая публика выбрасывала на сцену своих самых раскалённых представителей, которые, пользуясь отсутствием охраны, выделывали «па» и всячески развлекали толпу. Один из таких «танцоров» излишне задержался на сцене и был схвачен «проснувшейся» охраной, тут же попытавшейся отомстить ему за своё унижение пинками в живот. Тур-менеджер NAPALM DEATH спас несчастного и, поглаживая его по голове, попытался объяснить что-то. Не знал товарищ, что его ожидает весёленький вечер.</P>
+<P>Настоящее безумие началось, когда появились музыканты. Они не успели начать играть, когда на сцену полезли первые почитатели таланта. При этом просто «нырнуть» назад в толпу наши стэйдждайверы не хотели, им надо было обнять кого-нибудь из выступавших, порубиться в тёплой компании. Охрана не успевала за ними уследить, двое – это мало для такого концерта и такой публики. Замечу, что таково было пожелание группы. Представьте себе эту атмосферу: множество «прыгунов» (до пяти в одно время), сумасшедшая музыка без мелодии, но с ураганным ритмом, беснующаяся толпа, выведенные из себя охранники, растерянный тур-менеджер NAPALM DEATH, бегающий по сцене и постоянно поправляющий мониторы, задетые «бесноватыми» стэйдждайверами. Передать словами, боюсь, мне это не удастся, но, как выяснилось, всем любителям металла и угара просто необходимо было попасть на это шоу.</P>
+<P>Обратимся к поведению музыкантов. Вокалист Барни бегал по сцене, как заведённый, или, что скорее, как больной каким-то нервным расстройством, не позволяющим держать члены в покое. Голова, руки, ноги заходились в каком-то невероятном танце, было видно, что даже этого ему не хватает, чтобы передать энергетику музыки группы. После небольшого блока в 4-5 вещей ребята останавливались, чтобы попить водички. С этой Aqua Minerale связаны забавные вещи. Например, один из безумных пробежал через всю сцену и схватил бутылку. Унести её с собой ему не удалось, он был схвачен и сброшен «силами в чёрном» по лестнице вниз, на выход. Ближе к концу концерта Барни стал раздавать воду особо страждущим, давая понять, что понимает, какой угар там у сцены.</P>
+<P>Прошедший концерт открыл целую серию шоу, которые будут иметь место в Москве весной. Такие имена, как LAKE OF TEARS или CREMATORY, не должны разочаровать… NAPALM DEATH, казалось, являются, пусть и легендарной, но лишь открывашкой этого «сезона концертов». А теперь хочется спросить: «Смогут ли все последующие группы переплюнуть классиков grindcore?» Будет интересно!!!</P>
+<P>Сэт-лист концерта (Thanks Ward):<BR>Instinct Of Survival <BR>Unchallenged Hate <BR>Continuing War Of Stupidity <BR>Narcoleptic <BR>Taste The Poison <BR>Next On The List <BR>Suffer The Children <BR>The Code Is Red...Long Live The Code <BR>Lowlife(cover of Cryptic Slaughter) <BR>The World Keeps Turning <BR>Vision Conquest <BR>To Lower Yourself (Blind Servitude) <BR>Mass Appeal Madness <BR>Silence Is Deafening <BR>Blind Justice <BR>From Enslavement To Obliteration <BR>Scum <BR>Life? <BR>The Kill <BR>Deciever <BR>You Suffer <BR>encore: <BR>If The Truth Be Known <BR>Nazi Punks Fuck Off! <BR>Siege Of Power&nbsp;&nbsp; </P>
+<P>Фото: <A href="/ru/galleries/1/144/">http://musica.mustdie.ru/ru/galleries/1/144/</A></P>
+Автор: Vit Belov
+
+### 03.07.2005 reviews Только для фанатов
+
+<P>Писать рецензию на новый альбом&nbsp;<STRONG>Napalm Death</STRONG>&nbsp;дело неблагодарное. Ибо те кому творчество&nbsp;ND не нравится пройдут мимо этой работы, а фанаты купят <EM>"The Code Is Red</EM>...<EM>"</EM>&nbsp; и без рекомендаций. Но написать что-то надо поэтому остановлюсь на своих субъективных впечатлениях.</P>
+<P>Скажу сразу, меня новое творение англичан не порадовало. Нет, напалмы не ударились в эксперименты, как это бывало прежде, и записали вполне себе грайндовый альбом. Типично напалмдэтовский. Но после великолепного <EM>"Enemy Of The Music Buisness"&nbsp; </EM>и по-настоящему грайндового <EM>"Order Of The Leech" </EM>я ждал от них ещё более угарной работы. Увы,<EM>"The Code Is Red</EM>...<EM>" </EM>является всего лишь логическим продолжением предыдущих двух&nbsp;альбомов и не несёт в себе ничего нового. Альбом получился вымученным. Такое впечатление, что напалмы сочиняли материал прямо в студии и из всего альбома я могу выделить только один трек с участием Джелло Биафры (Dead Kennedys). Всё остальное больше похоже на самоплагиат, что для ND нехарактерно. Как я писал выше? Фанаты купят без рекомендаций? Вот для них-то и выпущен этот альбом.</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Graver
+
+### 23.08.2005 news Видео-клип NAPALM DEATH
+
+<P><STRONG>Century Media</STRONG> выложили видео-клип <STRONG>NAPALM DEATH</STRONG> на песню "<STRONG>Silence Is Deafining</STRONG>" с последнего альбома группы "<STRONG>The Code Is Red</STRONG>...". Смотреть тут: <A href="http://www.centurymedia.de/century/index.aspx?page=5">http://www.centurymedia.de/century/index.aspx?page=5</A></P>
+Автор: Vit Belov
+
+### 23.08.2005 news NAPALM DEATH video
+
+<P><STRONG>Century Media</STRONG> put <STRONG>NAPALM DEATH</STRONG> video "<STRONG>Silence Is Deafining</STRONG>" from latest CD of the band "<STRONG>The Code Is Red</STRONG>..."&nbsp;on-line. You can download it here: <A href="http://www.centurymedia.de/century/index.aspx?page=5">http://www.centurymedia.de/century/index.aspx?page=5</A></P>
+Автор: Vit Belov
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 19.05.2006 news NAPALM DEATH готовят новый альбом
+
+<P><STRONG>NAPALM DEATH</STRONG>&nbsp;приступают к записи нового альбома. Он будет называться "<STRONG>Smear Campaign</STRONG>" и выйдет в конце года на <STRONG>Century Media</STRONG>.</P>
+Автор: mcallen
+
+### 05.06.2006 news Anneke из THE GATHERING на новом альбоме NAPALM DEATH!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, <STRONG>NAPALM DEATH</STRONG> записывают новый альбом <FONT color=#ddd9d0>"<STRONG>Smear Campaign</STRONG>". Стали известны названия некоторых песен: <STRONG>'Rabid Wolves (For Christ)', 'In Deference', 'Atheist Runt', 'When All Is Said and Done', 'Sink Fast, Let Go'.</STRONG></FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000">Шокирующей новостью для фэнов группы станет информация об участии в записи альбома вокалистки<STRONG> THE GATHERING Anneke</STRONG>. Музыканты успокаивают своих&nbsp;поклонников и обещают не "опускаться" до opera metal.</FONT></P>
+Автор: Vit Belov
+
+### 29.08.2006 news Смерть Jesse Pintado
+
+<P>В минувший уикенд, в одном из голландских госпиталей скоропостижно скончался гитарист <STRONG>Jesse Pintado</STRONG> (<B>TERRORIZER</B>, ex-<B>NAPALM DEATH</B>).&nbsp;Последний релиз записанный с участием этого музыканта - долгожданный реюнион альбом группы&nbsp;<B>TERRORIZER</B> под названием <B>"Darker Days Ahead"</B>,&nbsp;который только&nbsp;что вышел на&nbsp;<B>Century Media Records</B>. </P>
+Автор: Dimas
+
+### 26.11.2006 articles Tony Martin вернулся из России, где пел под фонограмму - NAPALM DEATH поют с вокалисткой THE GATHERING, как CELTIC FROST - «Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег» - MICHAEL SCHENKER опять метнул гитару
+
+<P><STRONG>Tony Martin вернулся из России, где пел под фонограмму</STRONG></P>
+<P><IMG height=210 alt="" hspace=0 src="/images/articles_rus/2006.11/10963.jpg" width=167 align=left border=5>С гастролями в этом месяце Россию посетил бывший вокалист BLACK SABBATH, а ныне успешный сольный артист, Tony Martin. Приехав домой, Tony опубликовал свои впечатления на своём официальном сайте. «Россия! Парни, вы молодцы. Отлично вернуться домой. У нас была ОЧЕНЬ интересная поездка», - восклицает Tony. По словам певца, первое шоу в клубе «Апельсин» было фантастическим. Он благодарит всех, кто посетил это мероприятие. «Следующие несколько дней были … интересными! Мы проехались по знаменитой Российской железной дороге!!! Если вы помните, у меня уже был подобный опыт, когда я ездил в Россию с M3! В этот раз было лучше. Во-первых потому, что я знал, чего ожидать от русских поездов, а во-вторых, в этот раз мы ехали в вагоне первого класса, в отличие от прошлого раза». Видимо, Tony даже первый класс показался не очень комфортным, если он упоминает о поразившем его транспорте в каждом отчёте о посещении нашей страны. Были гораздо более интересные вещи. Например, господин Martin участвовал в концерте, посвящённом группе ЗЕМЛЯНЕ, где столкнулся с некоторыми другими особенностями русской эстрады. Tony назвал себя мимом, потому что его попросили петь под фонограмму, что является «настойчивой просьбой русских». Можно сказать, опозорились. Особенно приятно, что кроме бывшего солиста BLACK SABBATH в этом фарсе участвовали SUPERMAX, NAZARETH, KINGDOM COME, Rick Wakeman и Tony Iommi. Присутствие последнего особенно поразило господина Мартина: «Там был Tony Iommi… Это не проблема. Но прикольно было, что диктор неправильно назвал его имя, а в «бегущей строке его фамилия отображалась с буквой Y. После выступления, Tony, которого я не видел много лет, куда-то исчез с парнями из KINGDOM COME, а шоу продолжилось. Это были часы дезорганизации. Фонограммы путались, ставились другие песни, куча непредвиденных изменений. Мы попытались сделать наше шоу вживую, но организаторы просто забрали все кабели с собой. Единственным плюсом был неплохой прием у публики». Несмотря на подобный провал, Тони в своём обращении похвалил музыкантов группы «Земляне» за то, что они пригласили их на своё 30-летие. Видимо, это было очень хлебосольное 30-летие, раз западные рок-музыканты готовы терпеть такое, и позорится пением под фонограмму. Позже этим вечером я видел Тони Мартина в компании с Гленном Хьюзом в эфире первого канала вместе с гламурным ведущим Малаховым, который выступил в таком духе, мол, Bonnie Tyler я знаю, она сидела рядом, а это что за джентльмены такие. Надеюсь, «динозавры рока» не зря подвергали себя подобным унижениям.</P>
+<P><STRONG>NAPALM DEATH поют с вокалисткой THE GATHERING, как CELTIC FROST</STRONG></P>
+<P><IMG height=136 alt="" hspace=0 src="/images/articles_rus/2006.11/10964.jpg" width=200 align=right border=5>В ближайшее время в России выйдет новый альбом NAPALM DEATH “Smear Campaign”. Лидер коллектива Mark “Barney” Greenway сейчас раздаёт много интервью. Я попытался нарыть в них что-нибудь интересное. «Мы не были слишком расслаблены, когда сочиняли материал для этой пластинки», - рассказывает Барни. «У нас не было достаточного количества времени, это был не самый лучший момент для написания нового альбома. Мы не хотим превращаться в группы, которые штампуют пластинки только потому, что этого требует бизнес. Странно, но мне понравилась эта ситуация. Однажды, я обнаружил себя пишущим новые тексты за компьютером. Оказывается, подобный цейтнот благотворно влияет на творчество NAPALM DEATH. Мы выполнили нашу работу на отлично». Видимо, решив всё-таки немного разнообразить своё творчество, NAPALM DEATH пригласили гостевую вокалистку. Ею стала Anneke Van Giersbergen из THE GATHERING. Моё предположение Барни опровергает: «Некоторые группы приглашают гостевых певцов только для того, чтобы кто-то спел на их альбоме. Мы же что-то делаем только со смыслом. Аннеке спела на двух песнях «Weltschmerz” и “In Deference”. Многих удивит наш выбор, вам надо послушать эти песни, чтобы понять, как группа NAPALM DEATH могла пригласить солистку THE GATHERING петь на своём альбоме. Мне кажется, оба трэка звучат, как ранний CELTIC FROST, периода «Morbid Tales”». Лирика на “Smear Campaign” связана с отношением Барни к религии. Вдохновившим певца событием стало введение в одной из школ в Англии предмета, который объяснял научные теории вмешательством Господа. «В настоящее время я вхожу в инициативную группу, которая будет бороться я подобными начинаниями», - заявляет музыкант. Мир сошёл с ума. Так будем же слушать живой death-grind на новом альбоме NAPALM DEATH, чтобы не сойти с ума вместе с подобными деятелями, которых достаточно и в нашей стране.</P>
+<P><STRONG>«Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег»</STRONG></P>
+<P><IMG height=285 alt="" hspace=0 src="/images/articles_rus/2006.11/10965.jpg" width=351 align=left border=5>Новым альбомом порадует нас в ближайшее время и Jon Oliva, чья вторая пластинка выйдет на AFM. В интервью Rock Hard Джон коснулся не только своей сольной карьеры, но и высказал несколько интересных мнений о своей группе SAVATAGE. Первый сольник Оливы вышел на SPV, теперь у певца контракт c AFM. “Люди на SPV – очень милые люди. Но они просто выпустили альбом и больше ничего не делали. Многие фэны просто не могли найти альбом. Я решил перейти на более мелкий лэйбл, чтобы получить больше внимания. Парни на AFM мне очень понравились, при первом же знакомстве, когда я писал песни для проекта Zach Stevens CIRCLE II CIRCLE. Мы общались с ними около года до заключения контракта. Они платят вовремя, мне нравится их отношение (смеётся). На SPV я был как маленькая рыбка в большом океане. Они не заботились обо мне, потому что Jon Oliva – это не SAVATAGE. Но я говорил им, что это и есть новый SAVATAGE. Просто играют другие люди, но материал и есть новый SAVATAGE. Они этого не поняли». Высказался Джон и о будущем SAVATAGE: «Всё очень просто. У вас есть Trans-Siberian Orchestra, собирающие 30-тысячную аудиторию и выпускающие мульти-платиновые альбомы. Это SAVATAGE, но с другими певцами. И у вас есть SAVATAGE с гораздо меньшей аудиторией. У меня есть пять платиновых альбомов, но не один из них не получен с SAVATAGE. У SAVATAGE был шанс, но он его не использовал. Сейчас группа интересует лишь несколько сотен фэнов по всему миру. Для меня SAVATAGE закончился после смерти Criss Oliva. Все альбомы, выходившие после этого: “Edge Of Thorns”, “Dead Winter Dead”, Handful Of Rain”, “The Wake Of Magellan” – это альбомы TRANS SIBERIAN ORCHESTRA для меня. Я не буду делать SAVATAGE, потому что SAVATAGE не приносит денег, а у меня семья. Группа просуществовала 15-20 лет, но так и не окупилась. Где вы хотите выступать в клубе в Греции перед 2000 фэнов или в Мэдисон Сквер Гарден перед 25000 фэнов?». Джон – честный парень, вам не кажется? </P>
+<P><STRONG><IMG height=432 alt="" hspace=0 src="/images/articles_rus/2006.11/10966.jpg" width=288 align=right border=5>MICHAEL SCHENKER опять метнул гитару</STRONG></P>
+<P>А Michael Schenker опять начудил. Опять в Японии. Опять заболел. В прошлый раз он заболел в Японии и несколько дней никто не мог сказать, где он и чем болен. В этот раз он заболел прямо на сцене в Токио. И бросил играть после третьей песни. Забавно, что господин Шенкер так и не объяснил, что с ним случилось. Рассказывает один из авторов сайта “Michael Schenker News and Tour Information”: «Что-то было не так с самого начала. Майкл не мог играть даже простые фразы песни “Assault Attack”, которая открывала шоу. Во время второго трэка “Ready To Rock” Майкл вышел на авансцену и пытался общаться с публикой и рубиться. Однако он не сыграл соло и ушёл за кулисы. После некоторого перерыва он вернулся к публике и попросил их поднять руки. “Let It Roll” – была следующей. После первого соло Майкл метнул свою гитару и ушёл со сцены опять. Остальные музыканты доиграли песню до конца и также покинули сцену. Публика продолжала хлопать и звать Майкла назад (во, японцы молодцы, прим.авт.). Прошло 10 минут. Он так и не вернулся. Было сообщено, что Шенкер не может продолжать концерт, из-за своего «плохого состояния». Подобное поведение известного своим вздорным характером гитариста не понравилось и басисту его группы Rev Jones: «Я хочу извиниться перед фэнами группы в Японии и Таиланде. Не могу представить, как плохо играл Шенкер. Мы выдавали 110 процентов, а Майкл не играл и на 1 процент своих возможностей. Ещё раз хочу извиниться за нас всех, потому что Шенкер никогда не извиниться сам. У нас осталось ещё два концерта и ВСЁ КОНЧИТСЯ». Напомним, что Шенкер отменил недавно и тур по США, из-за разногласий с вокалистом Jari Tiura. Правда потом господин Шенкер помирился с Яри, который продолжает сопровождать «супер-гитариста» по миру. </P>
+Автор: Vit Belov
+
+### 26.07.2008 news NAPALM DEATH собрались в студию
+
+<P><STRONG>NAPALM DEATH</STRONG> готовятся войти в студию для запимси нового альбома. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 21.08.2008 news NAPALM DEATH назвали альбом
+
+<P>Новый альбом <STRONG>NAPALM DEATH</STRONG>, который должен выйти до нового года, будет называться <STRONG>'Time Waits For No Slave'. </STRONG></P>
+Автор: Vit Belov
+
+### 10.11.2008 news Новый альбом NAPALM DEATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ноая работа <STRONG>NAPALM DEATH</STRONG> <STRONG>"Time Waits For No Slave" </STRONG>выходит в феврале 2009 года на <STRONG>Century Media</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Strong Arm</B><BR itxtvisited="1">02. <B itxtvisited="1">Diktat</B><BR itxtvisited="1">03. <B itxtvisited="1">Work To Rule</B><BR itxtvisited="1">04. <B itxtvisited="1">On The Brink Of Extinction</B><BR itxtvisited="1">05. <B itxtvisited="1">Time Waits For No Slave</B><BR itxtvisited="1">06. <B itxtvisited="1">Life And Limb</B><BR itxtvisited="1">07. <B itxtvisited="1">Downbeat Clique</B><BR itxtvisited="1">08. <B itxtvisited="1">Fallacy Dominion</B><BR itxtvisited="1">09. <B itxtvisited="1">Passive Tense</B><BR itxtvisited="1">10. <B itxtvisited="1">Larency Of The Heart</B><BR itxtvisited="1">11. <B itxtvisited="1">Procrastination On The Empty Vessel</B><BR itxtvisited="1">12. <B itxtvisited="1">Feeling Redundant</B><BR itxtvisited="1">13. <B itxtvisited="1">A No-Sided Argument</B><BR itxtvisited="1">14. <B itxtvisited="1">De-evolution Ad Nauseum</B></P>
+Автор: Vit Belov
+
+### 04.12.2008 news Новая песня NAPALM DEATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=302 alt="" hspace=0 src="/images/news_rus/2008.12/13118.jpg" width=302 align=right border=5>Мы уже сообщали, что новый альбом <STRONG>NAPALM DEATH</STRONG> <STRONG>"Time Waits For No Slave" </STRONG>выходит 26 января на <STRONG>Century Media</STRONG>. Группа выложила на своей <STRONG>MySpace</STRONG> страничке новую вещь "<STRONG>Diktat</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/napalmdeath">http://www.myspace.com/napalmdeath</A></FONT></P>
+Автор: Vit Belov
+
+### 04.01.2009 news Barney Greenway: &quot;Лучшее, на что мы способны&quot;.
+
+<P>В интервью веб-зину <STRONG>CriticalMass.se </STRONG><STRONG>Mark "Barney" Greenway</STRONG>&nbsp;рассказал о новом альбоме <STRONG>NAPALM DEATH</STRONG> <STRONG>"Time Waits For No Slave", </STRONG>который выйдет на <STRONG>Century Media</STRONG> 26 января.</P>
+<P>"<EM>Мы просто вошли в студию с песнями, которые мы считали лучшими на данный конкретный момент времени. Мы также не забыли добавить немного спонтанности, чтобы достичь нужной сырости в звучании нового материала. Нам всё это удалось, поэтому и получился такой хороший результат</EM>".</P>
+Автор: Vit Belov
+
+### 16.01.2009 news Целый альбом NAPALM DEATH
+
+<P><STRONG>NAPALM DEATH</STRONG> выложили на своей<STRONG> MySpace</STRONG> страничке свой новый альбом <STRONG>"Time Waits For No Slave"</STRONG>,&nbsp;выходящий 26 января.</P>
+<P>Ссылка: <A href="http://www.myspace.com/napalmdeath">http://www.myspace.com/napalmdeath</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 28.01.2009 news Интервью NAPALM DEATH с русскими субтитрами
+
+<P>По нижеследующим ссылкам доступно видео-интервью <STRONG>Mark Greenway (NAPALM DEATH)</STRONG> с русскими субтитрами, где он комментирует 5 песен с нового альбома "<STRONG>Time Waits For No Slave</STRONG>".</P>
+<P>Видео-интервью на титульной странице:<BR><A href="http://hellcome.ru/">http://hellcome.ru/</A></P>
+<P>Ссылка на отдельную страницу с видео-интервью:<BR><A href="http://hellcome.ru/news/2009/01/27/videointervyu-s-mark-barney-greenway-napalm-death.html">http://hellcome.ru/news/2009/01/27/videointervyu-s-mark-barney-greenway-napalm-death.html</A></P>
+Автор: Vit Belov
+
+### 03.02.2009 news NAPALM DEATH вошли в чарты
+
+<P>Новый альбом <STRONG>NAPALM DEATH</STRONG> <STRONG>"Time Waits For No Slave" </STRONG>попал в немецкие чарты под номером 95.</P>
+Автор: Vit Belov
+
+### 19.02.2009 news Продажи NAPALM DEATH в США
+
+<P>В первую неделю торгов в США новый альбом <STRONG>NAPALM DEATH</STRONG> <STRONG>"Time Waits For No Slave" </STRONG>продался тиражом 1800 экземпляров. Grindcore пионерам так и не удалось ни разу попасть в чарт<STRONG> Billboard 100</STRONG>.</P>
+Автор: Vit Belov
+
+### 31.03.2009 reviews Без концепций и девушки-вокалистки
+
+<P>Классики grindcore NAPALM DEATH на новом альбоме решили немного оглянуться назад, на более чем 20 лет своей карьеры. Многие ностальгируют по старым временам, это понятно. У NAPALM DEATH почти получилось отправить слушателя в те годы, когда техника не считалась главной заслугой death-grind команды.</P>
+<P>Бешеный ритм, бескомпромиссность “Time Waits For No Slave” удивят многих. Под большинство песен с этого альбома хочется прыгать и толкаться. Слушатель легко представит их на концерте NAPALM DEATH, где на сцену не лезет только ленивый. Немного удивила длительность трэков, но группе неожиданно удаётся поддерживать настроение на протяжении всей довольно длинной пластинки. Очень интересно, как воспримут эту работу фэны-«мясники», которые уже не представляют grindcore без кишок и «расчленёнки», а здесь весёлая и позитивная, почти «панковская» музыка. </P>
+<P>NAPALM DEATH не стали приглашать на этот альбом девушку-вокалистку и перестали поражать концепциями и сложностью своих композиций. Они занялись тем, что у них получается лучше всего.</P>
+Автор: Vit Belov
+
+### 18.06.2009 news Новое видео NAPALM DEATH
+
+<P><STRONG>NAPALM DEATH</STRONG>&nbsp;опубликовали видеоклип на песню <STRONG>"Time Waits For No Slave".</STRONG></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=59025628">NAPALM DEATH - Time Waits For No Slave</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=59025628,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=59025628,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.08.2009 news Новая компиляция от EARACHE RECORDS
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.08/14781.jpg" width=400 align=right vspace=5 border=0>Earache Records</STRONG> - родной дом для многих групп-создателей жанра <STRONG>grindcore</STRONG>, подготовил к выпуску специальное издание из трёх дисков. Компиляция названная <STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)" </STRONG>включает в себя одни из самых первых записей в стиле <STRONG>grindcore</STRONG>.</P>
+<P>Все треки были взяты из первых передач <STRONG>John Peel</STRONG> на радио <STRONG>BBC</STRONG> и записаны на студии <STRONG>Maida Vale</STRONG> в Лондоне, между 1987 и 1990 годами.</P>
+<P>С самых первых дней <STRONG>Earache Records</STRONG>, <STRONG>John Peel</STRONG> оказывал огромную поддержку лейблу и его группам, дал возможность<STRONG>&nbsp;NAPALM</STRONG> <STRONG>DEATH</STRONG> и <STRONG>HERESY</STRONG> проиграть свои песни&nbsp;в эфире английского&nbsp;радио-шоу. В последующие годы, такие группы как <STRONG>NAPALM DEATH</STRONG> и <STRONG>CARCASS</STRONG> приписывали <STRONG>John Peel</STRONG> роль "ускорителя" их карьеры.</P>
+<P>И теперь, <STRONG>Earache Records</STRONG> впервые получил права от <STRONG>BBC</STRONG> на выпуск этих инновационных радио-сессий в полном объёме.</P>
+<P>Три диска включают в себя 118 треков классических записей от <STRONG>NAPALM DEATH</STRONG>, <STRONG>CARCASS</STRONG>, <STRONG>BOLT</STRONG> <STRONG>THROWER</STRONG>, <STRONG>EXTREME NOISE</STRONG> <STRONG>TERROR</STRONG>, <STRONG>GODFLESH</STRONG>, <STRONG>HERESY</STRONG>, <STRONG>UNSEEN</STRONG> <STRONG>TERROR</STRONG> и <STRONG>INTENSE</STRONG> <STRONG>DEGREE</STRONG>, общим временем звучания более трёх с половиной часов.</P>
+<P>Издание будет упаковано в слипкейс, а так же, содержать обширное интервью с бывшим барабанщиком <STRONG>NAPALM DEATH</STRONG> и изобретателем термина<STRONG> "grindcore"</STRONG> -<STRONG> Mick Harris</STRONG>.</P>
+<P><STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)"</STRONG> ожидается к выходу 12 октября.</P>
+<P>Для получения более полной информациии, поситите: <A href="http://www.myspace.com/grindmadness">www.myspace.com/grindmadness</A>.</P>
+Автор: Headcrusher
+
+### 10.06.2010 news Новое видео NAPALM DEATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>NAPALM DEATH</STRONG> на песню <STRONG>"On The Brink Of Extinction" </STRONG>можно посмотреть ниже. Клип был подготовлен <STRONG>Daniel Brand </STRONG>с использованием анимации <STRONG>Danny Bacchus</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист группы <STRONG>Mark "Barney" Greenway </STRONG>рассказал о смысле этой песни. Она рассказывает о естественном отборе, но призывает человечество не доверять ему&nbsp;отбор сильнейших видов в современной ситуации и вмешиваться в естественный ход эволюции.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/npa8qUNEIFY&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/npa8qUNEIFY&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 09.11.2011 news NAPALM DEATH: новый альбом &quot;Utilitarian&quot; на подходе
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.11/21938.jpg" width=336 height=336>Группа&nbsp;<B>NAPALM DEATH</B> наносит последние штрихи к своему новому студийному альбому, получившему название <STRONG>"Utilitarian"</STRONG>. </P>
+<P>Этот новый сгусток брутальности должен увидеть свет 27 февраля на просторах Европы и на следующий день в Северной Америке, на лейбле <B>Century Media</B>. </P>
+<P>Обложку альбома создал датский художник <B>Frode Sylthe</B>, который так же ответственнен за оформление&nbsp;альбома <STRONG>"rEVOLVEr"</STRONG> группы <B>THE HAUNTED</B>. <BR><BR></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+### 06.01.2012 news NAPALM DEATH: новый трек &quot;Leper Colony&quot; в сети
+
+<P><STRONG>NAPALM DEATH</STRONG> опубликовали первый трек с нового альбома <STRONG>"Utilitarian"</STRONG> (дата выхода: 27 февраля). </P>
+<P><STRONG>"Leper Colony"</STRONG>, так называется песня, которую&nbsp;уже&nbsp;можно послушать на сайте журнала <STRONG>Metal Hammer</STRONG>:</P>
+<P><A href="http://www.metal-hammer.de/video-audio/premieren/article129732/napalm-death-neuer-song-leper-colony-feiert-bei-uns-premiere.html">http://www.metal-hammer.de/video-audio/premieren/article129732/napalm-death-neuer-song-leper-colony-feiert-bei-uns-premiere.html</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.01/22537.jpg" width=500 height=363></CENTER>
+Автор: Headcrusher
+
+### 01.03.2012 news NAPALM DEATH: клип &quot;Analysis Paralysis&quot;
+
+<P>Клип на трек <STRONG>"Analysis Paralysis"</STRONG> с новейшего альбома <STRONG>"Utilitarian"</STRONG> британцев <STRONG>NAPALM DEATH</STRONG>, доступен для просмотра ниже:</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/YWTz7730D7Y?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 06.06.2012 news Совместный сплит CONVERGE и NAPALM DEATH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24123.jpg" width=300 height=300>Группы <STRONG>NAPALM DEATH</STRONG> и <STRONG>CONVERGE</STRONG> готовят совместный сплит на 7" виниле. На него войдёт 4 трека - по 2 от каждой группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За выпуск винила ответственен лейбл <STRONG>Deathwish Inc</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Трек-лист</U>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сторона <STRONG>NAPALM DEATH</STRONG>:</FONT></P>
+<P>01. <STRONG>Will By Mouth<BR></STRONG>02. <STRONG>No Impediment To Triumph</STRONG> (Bhopal)</P>
+<P>Сторона <STRONG>CONVERGE</STRONG>:</P>
+<P>01. <STRONG>No Light Escapes<BR></STRONG>02. <STRONG>Wolverine Blues</STRONG> (<STRONG>ENTOMBED cover</STRONG>)</P>
+<P>В записи кавера на песню&nbsp;<STRONG>ENTOMBED</STRONG>, гостевое участие примут <STRONG>Tomas Lindberg</STRONG> (<STRONG>DISFEAR</STRONG>, <STRONG>AT THE GATES</STRONG>, <STRONG>LOCK UP</STRONG>), <STRONG>Aaron Turner</STRONG> (<STRONG>ISIS</STRONG>, <STRONG>OLD MAN GLOOM</STRONG>, <STRONG>SPLIT CRANIUM</STRONG>), <STRONG>Kevin Baker</STRONG> (<STRONG>ALL PIGS MUST DIE</STRONG>, <STRONG>THE HOPE CONSPIRACY</STRONG>), <STRONG>Brian Izzi</STRONG> (<STRONG>TRAP THEM</STRONG>) и другие. Этот трек станет своеобразным ответом поп-гимну 80-х <STRONG>"We Are The World"</STRONG>.</P>
+Автор: Headcrusher
+
+### 07.07.2012 news Видео-клип NAPALM DEATH
+
+<P>Новый ролик <STRONG>NAPALM DEATH</STRONG> на песню <STRONG>"The Wolf I Feed" </STRONG>можно посмотреть ниже. Режиссёром клипа выступил <STRONG>Tim Fox</STRONG> (<B>TESSERACT</B>, <B>SKINDRED</B>). Видео отлично иллюстрирует смысл лирики, написанной<STRONG> Mitch Harris</STRONG>. Песня рассказывает об идеологии Армагеддона, которую часто используют, чтобы запугать народонаселение в целях пропаганды каких-либо убеждений.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/el5ewJxBASo?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 01.12.2014 news Подробности нового альбома британцев NAPALM DEATH
+
+<P>Группа <STRONG>NAPALM DEATH</STRONG>&nbsp;в январе грядущего года выпускает свой новый студийный альбом, получивший название <STRONG>"Apex Predator - Easy Meat"</STRONG>.</P>
+<P>Новую песню под названием&nbsp;<STRONG>"Cesspits"</STRONG> можно послушать здесь: <A href="http://soundcloud.com/centurymedia/napalm-death-cesspits/">http://soundcloud.com/centurymedia/napalm-death-cesspits/</A></P>
+<P>Трек-лист альбома:<BR>01. <STRONG>Apex Predator - Easy Meat </STRONG>| 02. <STRONG>Smash A Single Digit</STRONG> | 03. <STRONG>Metaphorically Screw You </STRONG>| 04. <STRONG>How The Years Condemn </STRONG>| 05. <STRONG>Stubborn Stains </STRONG>| 06. <STRONG>Timeless Flogging </STRONG>| 07. <STRONG>Dear Slum Landlord… </STRONG>| 08. <STRONG>Cesspits </STRONG>| 09. <STRONG>Bloodless Coup </STRONG>| 10. <STRONG>Beyond The Pale </STRONG>| 11. <STRONG>Stunt Your Growth </STRONG>| 12. <STRONG>Hierarchies </STRONG>| 13. <STRONG>One-Eyed </STRONG>| 14. <STRONG>Adversarial / Copulating Snakes</STRONG></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.12/27487.jpg" width=600 height=600></P>
+Автор: Headcrusher
+
+### 23.01.2015 news NAPALM DEATH: видео на песню &quot;Smash A Single Digit&quot; 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>NAPALM DEATH</STRONG> опубликовала видео на песню&nbsp;<STRONG>"Smash A Single Digit"</STRONG>&nbsp;со своего грядущего полноформатника <STRONG>"Apex Predator - Easy Meat"</STRONG>, который выходит&nbsp;в следующий&nbsp;вторник,&nbsp;27 января.</FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/33OZfCUsomk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### NAPALM DEATH. Грайндовики нарезают почти 20 лет!

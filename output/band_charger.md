@@ -29,6 +29,35 @@ Paul (drums)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.10.2002 news Peaceville анонсировали своё новое приобритение
+
+<p>Peaceville анонсировали своё новое приобритение Charger. Группа запишет дебютный альбом с продюсером Билли Андерсоном в студии Mighty Atom. Альбом выйдет весной 2003 года.</p>
+
+Автор: Vit Belov
+
+### 08.10.2002 news New band on Peaceville
+
+<p>Peaceville announce that they have signed new band: CHARGER. The band has begun recording their debut full-length album with legendary producer Billy Anderson. The quintet are holed up at Mighty Atom Studios in Swansea, Wales, for two weeks with the man who has worked with such greats as Clutch, Brutal Truth, Orange Goblin, Neurosis & Sleep! Currently untitled, the album will be released in early Spring 2003.</p>
+
+Автор: Vit Belov
+
+### 11.07.2003 news CHARGER...
+
+<p>The Stoke quintet are back home after a prolonged & highly successful European tour supporting Today Is The Day. Their debut album Confessions Of A Man (Mad Enough To Live Amongst Beasts) is proving to be one of our fastest selling debuts. Not a band to sit on their arses for too long, they will be back on the road in the UK any day now: <BR><BR> CHARGER SUMMER CARNAGE<BR><BR> July 25 Cardiff Barlfy w/ Khang<BR> July 26 Glasgow Cathouse w/ Khang<BR> July 27 Manchester Star And Garter w/ Khang, Taint, Art Of Burning Water<BR> August 1 Tunbridge Wells Forum w/ Taint<BR> August 2 Hartlepool Studio w/ Taint<BR> August 3 Harlow Square w/ Taint<BR> August 10 London Monarch w/ Khang<BR><BR> For those that missed out due to the tour you can still book your chance to interview the band before they hit the road again.</p>
+
+Автор: Yermola
+
+### 13.11.2003 reviews Mad enough to listen to this music...
+
+<DIV id=0></DIV><BR><BR><SPAN id=hbblock><LABEL id=HbSession SessionId="289668190"></LABEL>
+<P>Я долго думал, перед тем как окрестить сей музыкальный стиль. Сладж-хардкор? Плюс элементы нойза? Или что вообще? Как можно обозначить <B>ЭТО</B>? Подобный альбом должен был появиться скорее на Relapse или Earache, чем на более "мирном" Peaceville. Да не суть. Страффордширский... нет, не терьер и не бультерьер - а квинтет нарезает такой музон, что в пору задуматься: а нормальные ли они люди? Что заставляет петь вокалиста группы с такой злобой и ненавистью ко всему окружающему? Что заставляет этих ребят вгрызаться в тебя до глубины твоей падоничьей душонки без всяких зубов, пил, дрелей и коловоротов, лишь обладая "стандартным" набором музыкальных инструментов? Вообще, музыка сия с трудом поддается как описанию, так и какой-либо логике. Этот альбом можно или любить, или ненавидеть, третьего не дано. Кстати, о нойзовых проделках нас предупреждает рисунок с ручками осцилографа. С другой стороны, чему удивляться, если продюсером выступил никто иной, как Билли Андерсон, работавший с такими неординарными исполнителями, как, например,&nbsp;EYEHATEGOD и NEUROSIS? Оформление буклета не такое уж "шизофреничное", но мне сразу показалось, что здесь что-то не так... Приятно удивлен, что "Союз" выпустил сей опус по лицензии, ибо у нас вряд ли найдется много поклонников подобной музыки. Но если уж найдутся - то, думаю, разочарованы они не будут... Одна из вещей (кстати, там есть и инструменталы) называется "God made us in the image of his ass" - подумайте об этом, друзья!!!</P>
+<P>ЗЫ: почему не все 10 баллов? - спросите вы. А я вам отвечу: чтобы не спугнуть...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P></SPAN>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

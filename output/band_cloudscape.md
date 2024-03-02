@@ -67,6 +67,30 @@ Female Choirs by Anette Blyckert
 
 * C группой "Fullforce" Mike Andersson (vocal)
 
+## Публикации
+
+### 21.05.2008 news Новый альбом CLOUDSCAPE
+
+<P>Третий альбом <STRONG>CLOUDSCAPE "Global Drama"</STRONG> выходит 19 августа на <STRONG>Golden Core</STRONG>. Сэмплы этой работы можно послушать на официальной <STRONG>MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/cloudscapemetal">http://www.myspace.com/cloudscapemetal</A></P>
+Автор: Vit Belov
+
+### 04.02.2009 news Вокалист CLOUDSCAPE работает с &#39;бывшими&#39; из HAMMERFALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Певец <STRONG>CLOUDSCAPE</STRONG> <STRONG>Mike Andersson</STRONG> организовал новый проект вместе с бывшими участниками <STRONG>HAMMERFALL</STRONG> <STRONG>Magnus Rosen</STRONG> и <STRONG>Stefan Elmgren</STRONG>. Название новой группы не сообщается.</FONT></P>
+Автор: Vit Belov
+
+### 13.02.2009 news CLOUDSCAPE потеряли барабанщика
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Roger Landin </STRONG>покинул <STRONG>CLOUDSCAPE</STRONG>. Замена пока не найдена.</FONT></P>
+Автор: Vit Belov
+
+### 04.03.2009 news CLOUDSCAPE назвали барабанщика
+
+<P>Новым барабанщиком<STRONG> CLOUDSCAPE</STRONG> стал некто&nbsp;<STRONG>Fredrik Joakimsson.</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

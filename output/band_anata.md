@@ -53,6 +53,89 @@ Season of Mist (European release) / Relapse (USA) / CD-Maximum (Russia)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.06.2002 reviews Качественный кусок мяса по-шведски
+
+<p>Шведская DEICIDE'овщина. Честное слово, бывают и лучшие копии. Взять хотя бы тот же LUCIFERION – к слову, тоже шведский. "Dreams Of Death And Dismay" – уже второй альбом группы и, к сожалению, приходится констатировать потерю всего того задора, который здорово украшал, а возможно и попросту спасал "The Infernal Depths Of Hatred". От _той_ "Анаты" остался только крепкий профессионализм, да солидная порция железобетонного брутала. Брутала отнюдь не тупого, как могли подумать некоторые. Нет, брутал сей вполне осмысленный. Присутствует и некоторое количество интересных аранжировок, и пара-тройка действительно хороших песен, не выпадающих из памяти спустя несколько часов после ознакомления с ними, и неподражаемый колорит особенностей записи и мастеринга Studio Mega. Так что, хороший такой, качественный кусок мяса, прямёхонько с конвейера "богохульства по-флоридски". Но не более.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 11.08.2003 news Новый альбом ANATA
+
+<p>Шведские дэтстеры ANATA готовят к выпуску 6 октября через Earache/Wicked World Records своего третьего альбома "Under A Stone With No Inscription".</p>
+
+Автор: Dimas
+
+### 06.09.2003 news ANATA закончили работу над новой пластинкой
+
+<p><IMG SRC="/images/news_rus/2003.09/4798.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left">Шведы ANATA закончили работу над новой пластинкой "Under A Stone With No Inscription", которая выйдет на Earache Records в начале 2004 года. Трэк-лист:</p>
+<p> 01. Shackled To Guilt<br> 02. A Problem Yet To Be Solved<br> 03. Entropy Within<br> 04. Dance To The Song Of Apathy<br> 05. Sewerages Of The Mind<br> 06. Built On Sand<br> 07. Under The Debris<br> 08. The Drowning<br> 09. Leaving The Spirit Behind<br> 10. Any Kind Of Magic Or Miracle</p>
+
+Автор: Vit Belov
+
+### 26.01.2004 reviews Добротно, но скучно
+
+<P>Шведы Anata далеко не новички на брутальной сцене. Данный альбом является их уже третьим полноценным релизом. Но вот впечатление он оставляет весьма неоднозначное. Мощная открывашка "Shackled To Guilt" - быстрая, брутальная, техничная вещь с несколько притрэшованными риффами, казалось бы, должна задать настроение на весь альбом. Но, несмотря на кажущееся разнообразие песен, смены темпа, высокую технику игры и прочие присущие добротной дэтовой команде признаки, сей опус скандинавского квартета все же не дотягивает до высшей лиги жанра. Вторую половину диска вообще слушать скучновато, но сделаем скиду на то, что в сием стиле создать что-то оригинальное уже практически невозможно. Посему отнесем этот релиз просто к хорошим качественным работам, а завлекающую надпись лейбла "Utilising crushing Death Metal basics with a dizzy dissonance that most noisecore bands would kill for" назовем доброй шуткой. Но всем любителям жанра хотя бы ознакомиться не помешало бы.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 11.01.2005 news ANATA готовят новый альбом
+
+<P><STRONG>ANATA</STRONG> готовят новый альбом. Материал уже написан, в студию группа войдёт в июне, а новая пластинка увидит свет на <STRONG>Earache</STRONG> в октябре.</P>
+Автор: Vit Belov
+
+### 04.07.2005 news ANATA записывают новый альбом
+
+<P><STRONG>ANATA</STRONG> уже три дня в шведской <STRONG>Studioomega</STRONG>, где работают над пластинкой, рабочее название которой "<STRONG>The Conductor's Departure</STRONG>". Вот некоторые названия песен: "<STRONG>Complete Demise</STRONG>", "<STRONG>Downward Spiral Into Madness</STRONG>", "<STRONG>The Great Juggler</STRONG>", "<STRONG>I Would Dream Of Blood</STRONG>" и "<STRONG>Disobedience Pays</STRONG>".</P>
+Автор: Vit Belov
+
+### 04.07.2005 news ANATA are recording new album
+
+<P><STRONG>ANATA</STRONG> are working on new album with title "<STRONG>The conductor's Departure</STRONG>". Here is some names of new songs: "<STRONG>Complete Demise</STRONG>", "<STRONG>Downward Spiral Into Madness</STRONG>", "<STRONG>The Great Juggler</STRONG>", "<STRONG>I Would Dream Of Blood</STRONG>" и "<STRONG>Disobedience Pays</STRONG>".</P>
+Автор: Vit Belov
+
+### 07.11.2005 news Новый альбом ANATA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ANATA "The Conductor's Departure"</STRONG> выйдет в начале 2006 года на <STRONG>Earache</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Downward spiral into madness</STRONG><BR>2. <STRONG>Complete Demise</STRONG><BR>3. <STRONG>Better grieved than fooled</STRONG><BR>4. <STRONG>The great juggler<BR></STRONG>5. <STRONG>Cold heart forged in hell<BR></STRONG>6. <STRONG>I would dream of blood<BR></STRONG>7. <STRONG>Disobedience pays<BR></STRONG>8. <STRONG>Children's laughter<BR></STRONG>9. <STRONG>Renunciation<BR></STRONG>10. <STRONG>The Conductor's Departure</STRONG></P>
+Автор: Vit Belov
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+### 14.03.2006 news Определились участники фестиваля Neurotic Deathfest
+
+<P>Определились участники фестиваля <B>Neurotic Deathfest</B>, который пройдет 13 мая в голландском городе Эйндховен. Ранее фестиваль был известен под названием <B>Rotterdam Deathfest</B>, но в этом году его было решено провести в другом городе. На двух сценах выступят 15 дэт-металических команд, а посетители смогут также облегчить свои кошельки на большом "металическом рынке". Вот кто будет развлекать зрителей: шведы <B>ANATA</B>, британцы <B>GOREROTTED</B> и <B>SARPANITUM</B>, австрийцы <B>PSYCROPTIC</B>, испанцы <B>AVULSED</B>, голландцы <B>DISAVOWED</B>, <B>ARSEBREED</B> и&nbsp;<B>PROSTITUTE DISFIGUREMENT</B>, американцы <B>INSIDIOUS DECREPANCY</B>, японцы <B>INFECTED MALIGNITY</B>, словаки <B>SANATORIUM</B>, чехи <B>GODLESS TRUTH</B>, итальянцы <B>VOMIT THE SOUL</B>,&nbsp;бразильцы <B>MENTAL HORROR</B> и бельгийцы <B>EMETH</B>.</P>
+Автор: Ixtiandr
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 12.04.2006 news Новый альбом ANATA
+
+<P>Новый альбом <STRONG>ANATA "The Conductors Departure"</STRONG> выходит 12 июня на <STRONG>Earache</STRONG>. Трэк-лист:</P>
+<P>01. <STRONG>Downward Spiral into Madness</STRONG><BR>02. <STRONG>Complete Demise</STRONG><BR>03. <STRONG>Better Grieved Than Fooled</STRONG><BR>04. <STRONG>The Great Juggler</STRONG><BR>05. <STRONG>Cold Heart Forged in Hell</STRONG><BR>06. <STRONG>I Would Dream of Blood</STRONG><BR>07. <STRONG>Disobedience Pays</STRONG><BR>08. <STRONG>Children’s Laughter</STRONG><BR>09. <STRONG>Renunciation<BR></STRONG>10. <STRONG>The Conductor’s Departure</STRONG></P>
+Автор: Vit Belov
+
+### 09.12.2006 reviews И вновь скучно
+
+<P>После предыдущей работы шведского квартета Anata "Under A Stone With No Inscription" 2004-го года я уже ничего особенного не ждал от их нового, четвертого по счету, релиза. Так и получилось. Пятьдесят минут хорошо сыгранного, хорошо записанного, но весьма среднего с музыкальной точки зрения материала. Все десять песен весьма&nbsp;похожи друг на друга, так что ребята могли бы ограничиться получасовой пластинкой, никому бы от этого хуже не было. В музыке Anata чувствуется некий автоматизм, здесь ничего, чтобы могло цеплять, брать за душу. Безусловно, на обложку альбома можно было шлепнуть печать "ГОСТ" (ну местный, естественно), ибо с технической стороны тут придраться особо не к чему, разве что порой ребята увлекаются соляками, но вот органично завершить многие свои структуры не могут. Видимо, мыслей-то много, а вот придать им интересную и завершенную (про совершенную я вообще молчу) форму силенок пока не хватает. В результате мы имеем совершенно стандартный, неинтересный и скучный&nbsp;дэт-метал, пусть и технично исполненный. Повторю самого себя из рецензии на прошлую работу шведов: до высшей лиги Anata еще весьма далеко. На фоне, например,&nbsp;вышедшего недавно отличного нового альбома их земляков Unleashed они смотрятся более чем тускло. И большего сказать про этот релиз, к сожалению, нечего.</P>
+<P>Альбом предоставлен концером "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 16.01.2007 reviews Кондуктор не спешит, кондуктор понимает
+
+<P>Новая работа шведов Anata представляет собой техно-дет высокой пробы по большей части среднетемповый, но с наличием скоростных запилов. Попробую в двух словах передать составляющую содержания данного альбома: вы слышали Картинки с выставки Модеста Мусоргского в исполнении Mekong Delta? Представьте себе нечто подобное только чередующееся скоростным рубиловом, бочечной долбой и гроулингом. Хотя и не с выставки, но картинка получается впечатляющая. Если вы хотите, чтобы ваш мозг был разрушен до основания меняющимися ритмами, навороченными риффовыми пассажами, шквалом беспросветного минора – то эта пластинка однозначно для вас.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+
 ## Обсуждения
 
 ### Earache Extreme Metal Racing

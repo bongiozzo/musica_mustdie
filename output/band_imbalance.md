@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.05.2012 news Новое видео IMBALANCE
+
+<P>Новый клип <STRONG>IMBALANCE</STRONG> <STRONG>"Ease Your Pain" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома норвежских трешеров <STRONG>"Period Three Implies Chaos"</STRONG>, который вышел в 2010 году.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/5Zb9nP952zY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

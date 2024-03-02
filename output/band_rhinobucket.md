@@ -48,6 +48,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.12.2010 news RHINO BUCKET записали новый альбом &quot;Who&#39;s Got Mine?&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17839.jpg" width=300 height=300>Окрылённые успехом своего первого, за 20 лет, европейского тура, группа <STRONG>RHINO BUCKET</STRONG> немедленно направилась в студию с продюсером <STRONG>Doug Boehm</STRONG> (<B itxtvisited="1">DIRTY SWEET</B>, <B itxtvisited="1">THE VINES</B>). В результате чего, был записан шестой студийный&nbsp;альбом <STRONG>RHINO BUCKET</STRONG>, получивший название <B itxtvisited="1">"Who's Got Mine?"</B>. Диск запланирован к выходу на 8 февраля 2011 года на <B itxtvisited="1">Acetate Records</B>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На данный момент в состав <STRONG>RHINO BUCKET</STRONG> входят два оригинальных участника - <STRONG>Georg Dolivo</STRONG> (гитара/вокал) и <B itxtvisited="1">Reeve Downes </B>(бас), а так же,&nbsp;гитарист <B itxtvisited="1">Brian "Damage" Forsythe</B> (<B itxtvisited="1">KIX</B>) и сессионный барабанщик&nbsp; <B itxtvisited="1">Anthony "Tiny" Biuso</B> (<B itxtvisited="1">TSOL</B>, <B itxtvisited="1">THE DICKIES</B>).<BR itxtvisited="1"></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

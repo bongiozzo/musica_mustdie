@@ -27,6 +27,27 @@ produced by Erik Rutan
 * C группой "Hate Eternal" guitarist Erik Rutan
 * C группой "Therion" singer Martina Hornbacher
 
+## Публикации
+
+### 29.05.2001 news Новый проект гитариста Morbid Angel
+
+<p> Дебютный альбом "Absolute Purity" сайд-проекта гитариста Morbid Angel, под названием ALAS, появится в продаже уже в середине июня.</p>
+
+Автор: Nybras
+
+### 02.11.2001 reviews Абсолютно болезненная музыка
+
+<p>Абсолютно болезненная музыка. Это проект гитариста Morbid Angel и Hate Eternal - Erik Rutan'a. Вокализирует на данном альбоме известная сопрано-фемина Martina Hornbacher Astner (ex-Therion). Очень качественно записанная музыка, довольно интересная, но излишне хаотичная по структуре. Музыка очень неплоха, вокал тоже хорош, но в целом музыка слушается довольно трудно и напряженно. Альбом кажется немного вымученным и скучноватым, а иногда и утомительным. Атмосферный мелодичный gothic-doom metal с великолепной техникой, сложными, почти джазовыми структурами и запутанной гитарной работой и ангельскими песнопениями. От таких людей я ожидал явно намного большего. Невероятный альбом, почти не подлежащий оценке и выходящий далеко за рамки своего стиля, производящий неорлинарное впечатление. Долго не можешь понять, нравится тебе альбом или нет? Вроде все на месте, но слушать трудно. И никак не можешь понять: почему? <BR> Однозначно, этот альбом либо понравится, либо нет. Попытайтесь решить это сами. В данном случае рекомендации неуместны.</p>
+
+Автор: Dimas
+
+### 11.01.2002 reviews Absolutely painful music
+
+<p>Absolutely painful music. It is the project of guitarist of Morbid Angel and Hate Eternal - Erik Rutan. Vocals on the given album is by known soprano Martina Hornbacher Astner (ex-Therion). The very qualitatively written down music rather interesting, but too much chaotic on structure. Music is not bad, vocal is good too, but in the whole music is listened to rather difficultly and intense. The album seems slightly bore, and sometimes it's tiresome. Atmospheric melodious gothic-doom metal with magnificent tichnic, difficult, almost jazz structures both confusing guitar work and angelic vocals. From such people I expected obviously much greater. An improbable album almost not subject to an estimation and leaving far for frameworks of the style, making not ordinary impression. You can not understand, Is the album pleasant to you? Everything is like on a place, but to listen difficultly. Also can not understand in any way: why? Unequivocally, this album either is pleasant, or is not present. Try to decide it. In this case recommendations are inappropriate.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### ALASTIS: можно ли заменить CREMATORY???

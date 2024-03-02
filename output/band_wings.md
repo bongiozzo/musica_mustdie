@@ -38,6 +38,9 @@ Kai Hahto - Drums
 * C группой "Enochian Crescent" Kai Hahto (drums in Enochian Crescent [1995-1999] & in Wings)
 * C группой "Enochian Crescent" Harry Kessunmaa (bass in Enochian Crescent [1995-2000] & in Wings)
 
+## Публикации
+
+
 ## Обсуждения
 
 

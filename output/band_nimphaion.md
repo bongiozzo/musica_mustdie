@@ -19,6 +19,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.04.2011 news Новинки от MUSICA Production
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit1><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>MUSICA Production представляет</FONT></SPAN></FONT></P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit2><IMG height=199 alt="" hspace=0 src="/images/news_rus/2011.04/19050.jpg" width=200 align=right border=0>три убийственные новинки отечественного тяжёлого метала</FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3>MP045 LYCANTHROPY "Instinct For Vengeance"</FONT></P>
+<P></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>-black-death-metal; Загляните в мрачный отечественный underground с четвёртым альбомом российско-украинской группы <STRONG>LYCANTHROPY</STRONG>. Ужасающий black-death-metal в духе лучших коллективов скандинавской сцены. Плевок ядовитой слюны в уши слушателей;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/lycanthropy6black6metal6">http://www.myspace.com/lycanthropy6black6metal6</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN class=tit3><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.04/19049.jpg" width=200 align=left border=0>MP046 NIMPHAION "In Darkness"</FONT></P>
+<P>-melodic death/black-metal; Дебютный альбом sympho-melodic black-metal группы из города Шуя. Эпичный и помпезный материал в духе <STRONG>CRADLE OF FILTH, ETERNAL TEARS OF SORROW</STRONG>. “<STRONG>In Darkness</STRONG>” открывает <STRONG>NIMPHAION</STRONG> дорогу к вершинам отечественной сцены;</P>
+<P>MySpace: <A href="http://www.myspace.com/nimphaion">http://www.myspace.com/nimphaion</A></P>
+<P><SPAN class=tit3><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.04/19051.jpg" width=200 align=right border=0>MP047 ПУТЬ СОЛНЦА "Ветер"</P>
+<P>-thrash-death-metal; Второй альбом группы бывшего вокалиста <STRONG>BUTTERFLY TEMPLE MiRron</STRONG>’a. Брутальный thrash-death в духе <STRONG>SEPULTURA</STRONG> и <STRONG>PANTERA </STRONG>с русскоязычными текстами. За свою карьеру <STRONG>MiRron</STRONG> также отметился в <STRONG>ETERNAL SICK, FATAL BAND</STRONG> и <STRONG>EDUCATED SCUM</STRONG>. В записи альбома также принимали участие басист <STRONG>Belf </STRONG>(<STRONG>ASHEN LIGHT, STIGMATIC CHORUS, ИЗМОРОЗЬ, НЕВИДЬ</STRONG>) и барабанщик <STRONG>Андрей Ищенко</STRONG> (<STRONG>CATHARSIS, SCARTOWN, HIERONYMUS BOSCH</STRONG>);</P>
+<P>MySpace: <A href="http://www.myspace.com/psolnca">http://www.myspace.com/psolnca</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru">http://mp.musica.mustdie.ru</A></P>
+<P>Эти диски и многое другое уже сейчас можно приобрести в нашем магазине: <A href="/ru/shop/">http://musica.mustdie.ru/ru/shop/</A></P></SPAN></SPAN>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

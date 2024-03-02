@@ -79,6 +79,29 @@ Line-Up:
 * C группой "Vital Remains" Tim Yeung (drums)
 * C группой "Council of the Fallen" Tim Yeung (drums)
 
+## Публикации
+
+### 24.08.1999 news 
+
+<p>Aurora Borealis записали три кавер версии: Black Sabbath "After Forever", DIO "We Rock", Morbid Angel "Ancient Ones".</p>
+
+Автор: Vit Belov
+
+### 11.11.2002 reviews Less versatility. More harshness
+
+<p>“Never retreat, never surrender”… That's what I think of first when I find out there's a new AURORA BOREALIS CD available… Four albums released on Ron Vento's own… well, the man undoubtedly deserves some respect. Not only for always striving forward, but for highly exciting music as well. Basically, “Time, Unveiled” is what AURORA BOREALIS always stood for: fast-paced death / black metal, although this time less versatile and (you guessed it!) much more harsh. Following a good 'ol tradition, this CD features a new drummer – now it's Tim Yeung, formerly of HATE ETERNAL. If anyone heard that band (and I believe, there're many who did), there's no special need to describe the drumming… for it's excellent. Tim isn't worse than his predecessors – no way! Precise and technical blast-beating massacre… that's what it's all about. Besides seven brand new tracks, “Time Unveiled” also features two old ones, taken from “Oh Come All Ye Faithful… Tonight We Feast” (1994), demo tape by LESTREGUS NOSFERATUS, a death metal band Ron once played in and later left in order to form AURORA BOREALIS. The songs, by the way, were re-recorded with a new lineup and released on “Mansions Of Eternity”, the Mcd AURORA BOREALIS made their debut with.</p>
+<P> Website: <A HREF="http://www.auroraborealis.org">http://www.auroraborealis.org</A></>
+<P> Email: <A HREF="mailto:Aurora4DTH@aol.com">Aurora4DTH@aol.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+### 08.07.2011 news AURORA BOREALIS дарят дискографию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AURORA BOREALIS</STRONG> решили сделать доступной для бесплатного скачивания всю свою дискографию. К подобному шагу музыкантов сподвиг успех "свободного скачивания" последней работы коллектива "<STRONG>Timeline: The Beginning And End Of Everything</STRONG>". Теперь все труды за 15-летнюю историю <STRONG>AURORA BOREALIS</STRONG> доступны здесь: <A href="http://www.auroraborealis.org/html/downloads.html">http://www.auroraborealis.org/html/downloads.html</A></FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 src="/images/news_rus/2011.07/20011.jpg" width=510 border=0><A class=" daria-goto-anchor" href="http://www.auroraborealis.org/html/downloads.html" target=_blank><U><FONT face=Arial color=#0000ff size=2></FONT></U></A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

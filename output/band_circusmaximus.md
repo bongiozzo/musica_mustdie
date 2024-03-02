@@ -73,6 +73,34 @@ Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.07.2005 reviews CIRCUS MAXIMUS - приятное открытие
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот, это да! Прикольно, так крикнуть. Нет, лучше так. Вот это, да!!! Норвежский коллектив CIRCUS MAXIMUS запросто попадает в высшую лигу progressive-metal. Нет, здесь, в высшей лиге он не будет бороться за чемпионство... Выражаясь понятно, он будет бороться за выживание, но это, само по себе, уже очень хорошо для дебюта&nbsp;в столь закостенелом жанре, где есть только DREAM THEATER и InsideOut.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Музыка CIRCUS MAXIMUS звучит уже очень зрело. Навороченные мелодии, чувство "прогрессивного ритма". Хороший вокалист, великолепная реализация (Tommy Hansen). Единственным минусом норвежцев является их явная стилистическая направленность. С первых аккордов вы поймёте, что перед вами progressive-metal, и ничего иное. Мне особенно приглянулись те вещи, которые больше смахивают на EVERGREY, а не на DREAM THEATER. Мелодичные многоярусные... "Glory Of Empire" - сказочная баллада. "Сказочная", по мелодике. Или "The 1st Chapter" - с таким проигрышем "из Звёздных Воинов".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вообще же, любители стиля просто обязаны приобрести эту пластинку, которая могла запросто оказаться под значком InsideOut, а уж там-то вы покупаете "не глядя". CIRCUS MAXIMUS - приятное открытие.</FONT></P>
+Автор: Vit Belov
+
+### 28.12.2006 news CIRCUS MAXIMUS начинают запись нового альбома
+
+<P>Норвежский&nbsp;progressive metal&nbsp;акт <B>CIRCUS MAXIMUS</B> в начале января засядет в студию, где пройдет запись их нового альбома, выход которого планируется в июне 2007 года.</P>
+Автор: Dimas
+
+### 15.01.2007 news CIRCUS MAXIMUS пишут новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CIRCUS MAXIMUS</STRONG> сидят в студии, где записывают второй альбом, который выйдет летом на<STRONG> Frontiers</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 18.04.2012 news Новый альбом CIRCUS MAXIMUS
+
+<P><IMG height=470 alt="" hspace=0 src="/images/news_rus/2012.04/23543.jpg" width=475 align=right border=0>Норвежские прогеры<STRONG> CIRCUS MAXIMUS</STRONG> выпускают свой третий альбом <STRONG>"Nine</STRONG>" 4 июня на <STRONG>Frontiers Records</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="62">Forging</B><BR itxtNodeId="61">02. <B itxtHarvested="0" itxtNodeId="60">Architect Of Fortune</B><BR itxtNodeId="59">03. <B itxtHarvested="0" itxtNodeId="58">Namaste</B><BR itxtNodeId="57">04. <B itxtHarvested="0" itxtNodeId="56">Game Of Life</B><BR itxtNodeId="55">05. <B itxtHarvested="0" itxtNodeId="54">Reach Within</B><BR itxtNodeId="53">06. <B itxtHarvested="0" itxtNodeId="52">I Am</B><BR itxtNodeId="51">07. <B itxtHarvested="0" itxtNodeId="50">Used</B><BR itxtNodeId="49">09. <B itxtHarvested="0" itxtNodeId="48">The One</B><BR itxtNodeId="47">10. <B itxtHarvested="0" itxtNodeId="46">Burn After Reading</B><BR itxtNodeId="45">11. <B itxtHarvested="0" itxtNodeId="44">Last Goodbye</B></P>
+<P>Трек "<STRONG>Reach Within</STRONG>":</P>
+<P><center><object type="application/x-shockwave-flash" data="http://www.roadrunnerrecords.com/blabbermouth.net/reviewpics/audio/player.swf" id="audioplayer1" height="24" width="290"> <param name="movie" value="http://www.roadrunnerrecords.com/blabbermouth.net/reviewpics/audio/player.swf"> <param name="FlashVars" value="playerID=1&soundFile=http://www.frontiers.it/m/uploads/audios/circusmaximus-reachwithinsample.mp3"> <param name="quality" value="high"> <param name="menu" value="false"> <param name="wmode" value="transparent"> </object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

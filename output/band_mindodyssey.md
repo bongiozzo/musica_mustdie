@@ -73,6 +73,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2008 news Смольский закончил MIND ODYSSEY
+
+<P>Гитарист <STRONG>RAGE Виктор Смольский</STRONG> закончил работу над новым альбомом собственной группы <STRONG>MIND ODYSSEY</STRONG>. Пластинка выйдет осенью на<STRONG> Napalm Records</STRONG>. Лэйбл также переиздаст все старые пластинки группы с новыми обложками.</P>
+Автор: Vit Belov
+
+### 14.12.2008 news Дата релиза MIND ODYSSEY 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа гитариста <STRONG>RAGE Виктора Смольского</STRONG> объявила датой релиза своего нового альбома <STRONG>"Time To Change It" </STRONG>на <STRONG>Napalm Records</STRONG> 27 февраля. </FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

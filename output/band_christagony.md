@@ -145,6 +145,21 @@ Inferno - Drums
 * C группой "Vader" Maurycy "Mauser" Stefanowicz
 * C группой "Dies Irae (Polish)" Maurycy "Mauser" Stefanowicz
 
+## Публикации
+
+### 07.07.2011 news Новый альбом CHRIST AGONY
+
+<P>Ветераны антихристианского движения из Польши<STRONG> CHRIIST AGONY</STRONG> возвращаются к нам со своим восьмым полноформатным альбомом <STRONG>"NocturN" </STRONG>осенью этого года. Пластинка была записана в <STRONG>Studio X </STRONG>и будет выпущена <STRONG>Mystic Production</STRONG>. </P>
+<P>Партии барабанов исполнил сессионный музыкант <STRONG>Zbigniew Robert "Inferno" Prominski</STRONG> (<B itxtHarvested="0" itxtNodeId="24">BEHEMOTH</B>, <B itxtHarvested="0" itxtNodeId="23">AZARATH</B>).</P>
+<P>Рекламный трейлер будущего альбома можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/I8xIWzrdXWg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/I8xIWzrdXWg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

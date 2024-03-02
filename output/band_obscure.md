@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.07.2016 news OBSCURE издадут все демо на CD
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Одна из старейший death metal команд Испании<strong> OBSCURE</strong> переиздаст три демки под общим названием "<strong>Back To Skull</strong>" 1 августа на <strong>Xtreem</strong>. На CD попадут релизы "<strong>Non Existendi Cultus</strong>" ('92), "<strong>Curse the Course</strong>" ('90)&nbsp;и "<strong>Disgusting Reality</strong>" ('89). Музыка прошла ремастеринг.&nbsp;Ниже можно послушать один трек.</font></p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/U9I6AGDoHTs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.07.2016 news OBSCURE releases all demos on CD!!
+
+<p>One of the very first Death Metal bands emerged in the spanish scene in late 80's was<strong> OBSCURE</strong>, whose second demo "<strong>Curse the Course</strong>" created some waves in the underground. Now the band sees their only three demos re-issued on a CD entitled "<strong>Back to Skull</strong>".</p><p>The three demos included on "Back to Skull" are: "Non Existendi Cultus" ('92), "Curse the Course" ('90) and "Disgusting Reality" ('89) coming with the best possible sound (unmastered, but enhanced) as well as all demo covers, lyrics and tons of photos & flyers. OBSCURE, who are actually back again with three original members, started as a Thrash/ Death outfit and developed into a dark and heavy Death Metal act in the vein of bands like BOLT THROWER, GRAVE, ENTOMBED...</p><p>Release date for "Back to Skull" will be August 1st through Xtreem Music on CD format with limited T-shirts available at the same time. You can visit OBSCURE's official Facebook here: <a href="http://www.facebook.com/obscuredeathmetal">www.facebook.com/obscuredeathmetal</a></p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/U9I6AGDoHTs" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

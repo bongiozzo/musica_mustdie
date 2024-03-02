@@ -34,6 +34,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.03.2009 news MOURNFUL CONGREGATION отправились в тур
+
+<P>Австралийская фьюнерал-дум-металл-группа<STRONG> MOURNFUL CONGREGATION</STRONG> впервые за всю свою 16-летнюю историю дала концерт в своем родном городе Adelaide в поддержку своего новейшего альбома "<STRONG>The June Frost</STRONG>", который увидел свет 20 января этого года. Весной коллектив даст несколько совместных концертов с <STRONG>MOURNING BELOVETH</STRONG> и <STRONG>LONGING FOR DAWN</STRONG> во время европейского тура <STRONG>Milestones Of Misery</STRONG>. Все три группы, а также англичане<STRONG> THE PROPHECY</STRONG> и москвичи <STRONG>COMATOSE VIGIL</STRONG> выступят 18 апреля на <STRONG>Moscow Doom Festival chapter IV</STRONG> в клубе<STRONG> Plan B</STRONG>. </P>
+Автор: Vit Belov
+
+### 21.07.2011 news MOURNFUL CONGREGATION выпускают раритеты
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2011.07/20288.jpg" width=300 align=right border=0>Австралийская funeral-doom-metal команда <STRONG>MOURNFUL CONGREGATION</STRONG> выпускает специальный альбом "<STRONG>The Unspoken Hymns</STRONG>", на который попадут четыре трека, выходившие до этого только на винил-сплите с <STRONG>STABAT MATER</STRONG>&nbsp;и<STRONG> STONE WINGS</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Left Unspoken</STRONG> (new version) <BR itxtNodeId="89">2. <STRONG>The Epitome Of Gods And Men Alike<BR itxtNodeId="88"></STRONG>3. <STRONG>A Slow March To The Burial<BR itxtNodeId="87"></STRONG>4. <STRONG>Descent Of The Flames</STRONG><BR itxtNodeId="86">5. <STRONG>Elemental</STRONG></P>
+<P>Новый полноценный альбом <STRONG>MOURNFUL CONGREGATION "The Book Of Kings"</STRONG> выйдет 20 ноября.</P>
+Автор: Vit Belov
+
+### 05.04.2014 news Новый альбом MOURNFUL CONGREGATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая работа австралийской funeral-doom команды <STRONG>MOURNFUL CONGREGATION "Concrescence Of The Sophia"</STRONG> выйдет в июне на <STRONG>Osmose</STRONG>.&nbsp;Альбом как всегда будет включать в себя небольшое количество песен:</FONT></P>
+<P><STRONG>‘Concrescence Of The Sophia’ <BR>‘Silence Of The Passed’</STRONG>&nbsp;</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26850.png" width=410 height=410></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

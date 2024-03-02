@@ -57,6 +57,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.08.2011 news HORNED ALMIGHTY работают над новым материалом
+
+<P>Датские сатанисты <STRONG>HORNED ALMIGHTY</STRONG> начали работу над материалом для своего пятого альбома, который выйдет в конце этого - начале следующего года. </P>
+<P>Предыдущая пластинка злобарей <STRONG>"Necro Spirituals" </STRONG>вышла в прошлом году на <STRONG>Candlelight Records.</STRONG></P>
+<P><center><IMG height=311 src="/images/news_rus/2011.08/20585.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

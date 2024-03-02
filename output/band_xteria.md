@@ -19,6 +19,21 @@ Points of view
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.07.2000 reviews Величественный progressive-metal
+
+<p>Величественный progressive-metal. Не только power- и black-metal'ом живет Италия. Появляются там и довольно интересные группы в других жанрах. Материал Xteria представляет из себя очень качественную прогрессивную музыку с великолепными гитарными партиями, выразительным и высоким вокалом (один из лучших, что я слышал за последнее время), интересными клавишными инсинуациями на заднем плане. Музыканты, явно профессионалы в своем деле и постарались на славу при записи альбома. Все безошибочно и красиво. Материал, конечно, в лучших традициях Dream Theater, но довольно своеобразный, явно не смахивающий ни на одну из работ Dream Theater. После Ivory Tower и Artension, это третий прогрессивно-металлический альбом 2000 года бесспорно понравившийся мне по всем статьям.</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews Majestic progressive-metal
+
+<p>Majestic progressive-metal. Not only power- and black-metal Italy lives. Come up there and rather interesting groups in other genres. The stuff Xteria is very qualitative progressive music with magnificent guitar crews, expressive and high vocal (one of best, that I heard lately), interesting keyboard insinuations on a background. The musicians, it is obvious the professionals in the business and have tried on glory at a record of an album. All is error-free and it is beautiful. A stuff, certainly, in the best traditions Dream Theater, but rather peculiar, obviously not brushing away on one of activities Dream Theater. After Ivory Tower and Artension, it is the third progressive - metallical album of 2000 undoubtedly liked to me under all articles.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

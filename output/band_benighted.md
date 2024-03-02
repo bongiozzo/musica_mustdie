@@ -95,6 +95,15 @@ Brutal Death Black Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.02.2012 news Новое видео BENIGHTED
+
+<P>Новый клип<STRONG> BENIGHTED</STRONG> на песню "<STRONG>Let The Blood Spill Between My Broken Teeth</STRONG>" можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Thibault Chaumont</STRONG>&nbsp;из <STRONG>Deviantlab (KLONE, TREPALIUM)</STRONG>. Песня взята с последнего альбома французов "<STRONG>Asylum Cave</STRONG>", который можно приобрести в нашем магазине.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/vqgYPY6HqCI?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

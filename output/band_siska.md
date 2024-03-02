@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.09.2016 news SISKA выпускают дебютный альбом
+
+<p>Гитарист <strong>Mattia Sisca</strong> основал новую группу<strong> SISKA</strong>. Дебютный альбом коллектива "<strong>Dreams and Resurrections</strong>" выходит в декабре. Гитарист известен по выступлениям на разогреве у Blaze Bayley, Yngwie Malmsteen и других известных групп. Дебютное видео SISKA на песню "<strong>Sally</strong>" можно посмотреть ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/U67Y17MSs-s" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 19.09.2016 news Debut album by SISKA
+
+<p>Guitarist<strong> Mattia Sisca</strong> started a new band <strong>SISKA</strong>. The group's debut album <strong>"Dreams and Resurrections" </strong>comes out in December. Guitarist known for her performances as the opening act for Blaze Bayley, Yngwie Malmsteen and other known groups. Debut video of SISKA song "<strong>Sally</strong>" can be seen below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/U67Y17MSs-s" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

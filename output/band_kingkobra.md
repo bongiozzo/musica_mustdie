@@ -32,6 +32,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.05.2013 news KING KOBRA: новый альбом в начале июля
+
+<P>Старинный коллектив<STRONG> KING KOBRA</STRONG> возродился и скоро выпускает уже&nbsp;свой второй (после возрождения) альбом&nbsp;под нехитрым названием <STRONG>"II"</STRONG>. Случится это в&nbsp;начале июля 2013 г. на <STRONG>Frontiers Records</STRONG>.</P>
+<P>5 июля диск выйдет по всему миру, кроме США. Американские слушатели смогут прикоснуться к прекрасному на 4 дня позже.</P>
+<P>Трек-лист альбома:<STRONG> Hell On Wheels</STRONG> / <STRONG>Knock ‘Em Dead</STRONG> / <STRONG>Have A Good Time</STRONG> / <STRONG>The Ballad Of Johnny Rod</STRONG> / <STRONG>Take Me Back</STRONG> / <STRONG>When The Hammer Comes Down</STRONG> / <STRONG>Running Wild</STRONG> / <STRONG>The Crunch</STRONG> / <STRONG>Got It Comin’</STRONG> / <STRONG>Deep River</STRONG> / <STRONG>Don’t Keep Me Waiting</STRONG> / <STRONG>We Go Round</STRONG>.</P>
+<P>В состав коллектива на сегодняшний день входят: </P>
+<P><STRONG>Paul Shortino</STRONG> - вокал, <STRONG>David Michael-Philips</STRONG> - гитара, <STRONG>Mick Sweda</STRONG> - гитара, <STRONG>Johnny Rod</STRONG> - бас&nbsp;и <STRONG>Carmine Appice</STRONG> - барабаны.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.05/25683.jpg" width=620 height=305> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -51,6 +51,39 @@
 
 * C группой "Morgana Lefay" 
 
+## Публикации
+
+### 07.02.2001 news Распад Lefay
+
+<p>Ну вот....Еще одна неплохая команда пала жертвой непонятных разборок... Lefay - официально объявили о своем распаде. По словам вокалиста Charles "Chulle" Rytkonen: "Шестым членом команды уже давненько являлся Мистер Алкоголь".</p>
+
+Автор: Yermola
+
+### 07.02.2001 news LEFAY quits
+
+<p>It is sad, but true, but one of the best live-bands of all times has called it quits. Due to, like singer Charles "Chulle" Rytkцnen, "the sixth band-member Mr.Alcohol" at least for the moment a continuation is not possible. Just like himself the united Brotherhood hopes that the band will be able to kick this member out of the band as soon as possible and get back together…</p>
+
+Автор: Yermola
+
+### 24.06.2002 news Seven Witches ищут нового певца...
+
+<p>Сразу после европейского тура с Annihilator, SEVEN WITCHES решили разбежаться со своим вокалистом - Wade Black. Вэйд решил сфокусироваться на собственной сольной карьере. Еще до этих событий Jack Frost, Joey Vera и Brian Craig начали запись четвертого альбома "Ведьм" - "BETRAYER", который должен выйти в продажу в феврале 2003. Пока что самая реальная кандидатура на пост певца - Charles Rytk&ouml;nen, который известен по работе Morgana Lefay и Lefay.....</p>
+
+Автор: Yermola
+
+### 14.09.2004 news LEFAY стали опять MORGANA LEFAY
+
+<P>Шведы <STRONG>LEFAY</STRONG> переименовались обратно в <STRONG>MORGANA LEFAY</STRONG> и подписали новый контракт с<STRONG> Black Mark</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Все наши фэны всегда знали, что <STRONG>LEFAY</STRONG> - это <STRONG>MORGANA LEFAY</STRONG>. Мы не имели права использовать это название, из-за деловых разногласий, но теперь мы снова на <STRONG>Black Mark</STRONG>, и наше название снова у нас. Мы начнём запись нового альбома <STRONG>'Grand Materia' </STRONG>в ближайшем будущем</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 26.01.2005 news Новости от MORGANA LEFAY
+
+<P><IMG height=133 alt="" hspace=20 src="/images/news_rus/2005.01/7784.jpg" width=200 align=left border=0>Шведская&nbsp;progressive heavy doom формация <B>MORGANA LEFAY</B> готовит к выпуску свой новый альбом под названием <B>"Grand Materia"</B>, релиз которого ожидается 28 марта на <B>Black Mark Records</B>. Это будет концептуальная история о <B>Nicholas Flamel</B>, алхимике 14 столетия, пытавшегося выявить секреты вечной жизни.</P>
+<P>Кроме того, по <A href="http://www.morganalefay.se/">этому</A> адресу запущен новый официальный сайт&nbsp;<B>MORGANA LEFAY.</B></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Lefay больше НЕТ!!!

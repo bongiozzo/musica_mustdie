@@ -17,6 +17,39 @@ melodic thrash from VINTERSORG
 * C группой "Havayoth" A. Hedlund
 * C группой "Vintersorg" Benny Hagglund (drums)
 
+## Публикации
+
+### 26.11.2003 news Vintersorg запустил новый проект
+
+<B>Vintersorg</B> запустил новый проект, на этот раз в жанре melodic thrash-metal. В этом начинании ему поможет концертный барабанщик одноимённой группы <B>Benny Hagglund</B>.&nbsp;Альбом выйдет в начале года на <B>Napalm records</B>.
+Автор: Vit Belov
+
+### 26.11.2003 news VINTERSORG launched new project
+
+<B>Vintersorg (Borknagar, Vintersorg)</B> has started this new melodic thrash project with <B>Vintersorg</B> live drummer <B>Benny Hagglund</B> - the debut is expected to see an early 2004 release through <B>Napalm Records.</B><BR>
+Автор: Vit Belov
+
+### 06.07.2004 news Альбом FISSION выйдет в августе
+
+28 августа на <B>Napalm Records</B> увидит свет дебютный альбом нового проекта <B>Vintersorg</B>'a <B>FISSION</B>. Песню с этой пластинки Вы уже можете услышать на нашем сайте.
+Автор: Vit Belov
+
+### 09.12.2004 reviews И здесь VINTERSORG
+
+<P>Ещё одна группа маэстро <STRONG>VINTERSORG</STRONG>. В общем, это не его группа, как и некоторые, где он участвует, но так более солидно, что ли. <STRONG>FISSION</STRONG> основал барабанщик <STRONG>Benny Hagglund</STRONG>, который работал в одноимённом сольном проекте <STRONG>Andreas</STRONG>’a . </P>
+<P>Сообщается, что <STRONG>FISSION </STRONG>пытались сочетать мелодичность с забойностью thrash-metal. Сложная задача, если делать это европейскими методами. Вон, у американцев это неплохо получается, и никто не считает, что открывает Америку. В Швеции, видимо, это в диковинку…</P>
+<P>У <STRONG>FISSION </STRONG>получилась смесь чистых вокальных партий в стиле <STRONG>VINTERSORG</STRONG> и <STRONG>HAVAYOTH</STRONG> и современного death-thrash в духе <STRONG>THE CROWN</STRONG>. При этом и подобные смеси уже в ходу на нашем континенте, взять последние альбомы <STRONG>IN FLAMES</STRONG> или <STRONG>SOILWORK</STRONG>. Но<STRONG> FISSION</STRONG> и на них не похожи. Это просто двухфракционная субстанция, никак не перемешивающаяся. Идёт забой, а потом вокализации, забой, а потом вокализации, затем вокализации, вокализации, вокализации…</P>
+<P>Стоит также отметить, что пластинка записывалась в собственных студиях музыкантов. Это проблема. Звучание thrash-частей неубедительно.</P>
+<P>Такой оригинал, как <STRONG>Vintersorg</STRONG> не был необходим этому проекту, но пришёл в него и помог заключить <STRONG>FISSION </STRONG>контракт с <STRONG>Napalm</STRONG>. В остальном, это сольник <STRONG>Hagglund</STRONG>, который не очень талантлив.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A><BR></P>
+Автор: Vit Belov
+
+### 05.01.2008 news FISSION назвали альбом
+
+<P>Группа <STRONG>Vintersorg</STRONG>'а и барабанщика <STRONG>Benny "Hagge" Hagglund FISSION</STRONG> назвала свой новый альбом <STRONG>"Pain Parade". </STRONG>Пластинка выйдет в этом году на<STRONG> Aphotic Records</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

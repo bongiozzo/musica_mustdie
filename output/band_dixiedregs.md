@@ -90,6 +90,21 @@
 * C группой "Morse, Steve" Dixie Dregs
 * C группой "The Jelly Jam" drummer Rod Morgenstein
 
+## Публикации
+
+### 04.12.2001 news THE JELLY JAM...
+
+<p>Побочный проект участников "DREAM THEATER", "KING’S X" и "THE DIXIE DREGS" - "THE JELLY JAM" подготовил одноименный альбом. Проект собрал таких звезд как бассист John Myung, гитарист Ty Tabor и барабанщик Rod Morgenstein. Трек-лист: <BR> <IMG SRC="/images/news_rus/2001.12/2134.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> 01. I Can't Help You <BR> 02. No Remedy <BR> 03. Nature <BR> 04. Nature's Girl <BR> 05. Feeling <BR> 06. Reliving <BR> 07. The Jelly Jam <BR> 08. I Am The King <BR> 09. The King's Dance <BR> 10. Wind On The Way <BR> 12. Under The Tree<BR><BR> Выйдет диск на Inside Out America Records 18-го марта 2002...</p>
+
+Автор: Yermola
+
+### 04.12.2001 news THE JELLY JAM...
+
+<p>The full track listing for bassist John Myung's side project THE JELLY JAM, featuring KING’S X guitarist Ty Tabor and THE DIXIE DREGS drummer Rod Morgenstein, has been released. It is as follows: <br> <IMG SRC="/images/news_rus/2001.12/2134.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> 01. I Can't Help You <br> 02. No Remedy <br> 03. Nature <br> 04. Nature's Girl <br> 05. Feeling <br> 06. Reliving <br> 07. The Jelly Jam <br> 08. I Am The King <br> 09. The King's Dance <br> 10. Wind On The Way <br> 12. Under The Tree<br><br> THE JELLY JAM’s self-titled debut is due to be released through Inside Out America Records on March 18th.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

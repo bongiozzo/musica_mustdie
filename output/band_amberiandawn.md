@@ -65,6 +65,58 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2011 news AMBERIAN DAWN начали запись
+
+<P>Финны<STRONG> AMBERIAN DAWN</STRONG> приступили к записи четвёртого альбома. Пластинка должна выйти на <STRONG>Spinefarm </STRONG>в начале 2012 года. Первый репортаж о записи с барабанной работой <STRONG>Heikki Saari</STRONG> можно посмотреть ниже.</P>
+<P>Предыдущая работа группы с женским вокалом "<STRONG>End Of Eden</STRONG>" вышла в 2010 году.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/KMhVQpeAL88?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/KMhVQpeAL88?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.11.2012 news AMBERIAN DAWN расстались с вокалисткой
+
+<P>Финская sympho-metal банда <STRONG>AMBERIAN DAWN</STRONG> рассталась с вокалисткой <STRONG>Heidi Parviainen</STRONG>. Девушка участвовала в коллективе с самого начала существования и являлась лицом группы. Вместе с этим группа поменяла барабанщика и гитариста, что ознаменовало начало нового этапа существования группы.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/pYQrEVHUIPo?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 29.03.2013 news U.D.O.: обложка, трек-лист альбома &quot;Steelhammer&quot; и другие новости
+
+<P>Группа&nbsp;<STRONG>U.D.O.</STRONG> представила обложку своего нового полноформатника, названного <STRONG>"Steelhammer"</STRONG>, который выйдет 24 мая в Европе и 21 мая в С.Ш.А. на лейбле <STRONG>AFM</STRONG>.</P>
+<P><STRONG>Udo Dirkschneider</STRONG> о пластинке:</P>
+<P><EM>"Наш новый альбом&nbsp;<STRONG>"Steelhammer"</STRONG> -&nbsp;настоящий&nbsp;стенобитный таран. Вот почему мы выбрали для него такую обложку. Она наилучшим образом отражает, что<STRONG> U.D.O.</STRONG>, это настоящий Heavy Metal! <STRONG>U.D.O.</STRONG> вернулся!"</EM></P>
+<P>Помимо издания на компакт дисках, <STRONG><EM>"</EM>Steelhammer"</STRONG> также будет выпущен на чёрном и прозрачном винилах. Издание на прозрачном виниле выйдет в количестве 250 штук и будет продаваться только через интерент магазин лейбла <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Кроме всего прочего, в конце января 2013, в группе <STRONG>U.D.O.</STRONG> произошли очередные изменения в составе - её покинул гитарист <STRONG>Igor Gionola</STRONG>, являвшийся бессменным участником коллектива на протяжении почти 15 лет. Ему на смену пришёл&nbsp;финский гитарист <STRONG>Kasperi Heikkinen</STRONG> (родился 4 августа&nbsp;1980),&nbsp;действующая единица&nbsp;финских групп <STRONG>MERGING FLARE</STRONG>, <STRONG>CONQUEST</STRONG>. Помимо этого, <STRONG>Kasperi</STRONG> гастролировал и&nbsp;записал 4 альбома с&nbsp;symphonic metal коллективом <STRONG>AMBERIAN DAWN</STRONG>&nbsp;и 2 диска с&nbsp;&nbsp;progressive death metal&nbsp;бандой&nbsp;<STRONG>ELENIUM</STRONG>. Также гитарист известен по своей работе в финских&nbsp;tribute-коллективах: <STRONG>VICARS OF HELL</STRONG> (Judas Priest), <STRONG>MACDETH</STRONG> (Megadeth) и&nbsp;<STRONG>GUARDIANS OF MANKIND</STRONG> (Gamma Ray). Благодаря участию в последнем, <STRONG>Kasperi</STRONG> даже посчастливилось попасть в качестве временной замены Хеньё Рихтера (<STRONG>Henjo Richter</STRONG>) в <STRONG>GAMMA RAY</STRONG>. Именно с <STRONG>Kasperi</STRONG> в составе, группа под управлением Кая Хансена (<STRONG>Kai Hansen</STRONG>)&nbsp;дала свои первые выступление в России, которые прошли 27 января и 28 января 2006 года в Москве и&nbsp;Санкт-Петербурге, соответственно. </P>
+<P>Трек-лист: 01. <STRONG>Steelhammer</STRONG> | 02. <STRONG>A Cry Of A Nation</STRONG> | 03. <STRONG>Metal Machine</STRONG> | 04. <STRONG>Basta Ya</STRONG> | 05. <STRONG>Heavy Rain</STRONG> | 06. <STRONG>Devil's Bite</STRONG> | 07. <STRONG>Death Ride</STRONG> | 08. <STRONG>King Of Mean</STRONG> | 09. <STRONG>Time Keeper</STRONG> | 10. <STRONG>Never Cross My Way</STRONG> | 11. <STRONG>Take My Medicine</STRONG> | 12. <STRONG>Shadows Come Alive</STRONG> <EM>(digi pack bonus track)</EM> | 13. <STRONG>Stay True</STRONG> | 14. <STRONG>When Love Becomes A Lie</STRONG> | 15. <STRONG>Book Of Faith</STRONG></P>
+<P>Состав группы<STRONG> U.D.O. </STRONG>сейчас выглядит следующим образом: <STRONG>Udo Dirkschneider</STRONG> (вокал), <STRONG>Andrey Smirnov</STRONG> (гитара), <STRONG>Kasperi Heikkinen</STRONG> (гитара), <STRONG>Fitty Wienhold</STRONG> (бас),<STRONG> Francesco Jovino</STRONG> (барабаны).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.03/25578.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 11.04.2014 news Новый альбом AMBERIAN DAWN
+
+<P>Новый альбом финской группы с женским вокалом<STRONG> AMBERIAN DAWN "Magic Forest"</STRONG> выйдет 27 июня на <STRONG>Napalm Records</STRONG>. Трек-лист:</P>
+<P><STRONG>'Cherish My Memory' <BR>'Dance Of Life' <BR>'Magic Forest' <BR>'Agonizing Night' <BR>'Warning' <BR>'Son Of Rainbow' <BR>'I'm Still Here' <BR>'Memorial' <BR>'Endless Silence' <BR>'Green-Eyed'</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26869.png" width=410 height=253></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26868.png" width=410 height=410></P>
+Автор: Vit Belov
+
+### 18.10.2016 news AMBERIAN DAWN начали запись нового альбома
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Лидер финнов <strong>AMBERIAN DAWN Tuomas Seppala</strong> сочинил 13 песен, лучшие из которых попадут на новый альбом, релиз которого запланирован на 2017 год на <strong>Napalm Records</strong>. Начата запись пластинки в студии <strong>Benny Andersson</strong> из<strong> ABBA</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности последуют.</font></p><p><center><img width="225" height="300" src="/images/news_rus/2016.10/30092.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 18.10.2016 news AMBERIAN DAWN began to record new album
+
+<p>Mastermind of<strong> AMBERIAN DAWN Tuomas Seppдlд</strong> has written 13 new songs and the very best of them are included on the upcoming album. A worldwide release is already planned for 2017 via<strong> Napalm Records</strong>.</p><p>Recordings started in the Studio of <strong>Benny Andersson</strong> from<strong> ABBA</strong>.</p><p>The details will follow.</p><p><center><img width="225" height="300" src="/images/news_rus/2016.10/30092.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

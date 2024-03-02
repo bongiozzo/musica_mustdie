@@ -12,6 +12,31 @@ melodic death-thrash from Portugal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.09.2004 reviews Стандартный для Европы мелодичный death-thrash
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Группа из Португалии со своим дебютным самофинансированным EP. 5 песен мелодичного и слегка techno death-metal запросто могут понравиться неискушённому слушателю.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MORBIUS</STRONG> не открывают Америки. К популярному сейчас в Европе мелодичному death-thrash в духе <STRONG>THE CROWN</STRONG> и <STRONG>DEW SCENTED</STRONG> добавлены медленные вставки, которые легко можно сравнить с творчеством <STRONG>DEATH</STRONG> позднего периода. Ничего сверхсложного или заумного Вы здесь не обнаружите, группа предпочитает забойность и драйв, каким-то излишним звукам. Здесь много больше thrash-metal, чем положено.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обычный для Европы продукт: качественный и в тоже время позволяющий помотать головой. Все&nbsp;пять вещей полны цитат, но не наталкивают на слишком очевидные выводы. Фанатам стиля можно обратить внимание.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[+] -&nbsp;европейское качество, незатейливость, мелодичность</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[-] - обыденность материала, нехватка собственных идей</FONT></P>
+Автор: Vit Belov
+
+### 22.10.2004 reviews Usual Europian Melodic death-thrash
+
+<DIV><FONT face=Arial size=2>The band from Portugal with their debut self-financed EP. 5 songs of melodic and slightly techno death-metal can be liked by not tempted listeners.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>MORBIUS don't open America. They added slow insertions in a vein of later DEATH to popular in Europe melodic death-thrash in a vein of THE CROWN or DEW-SCENTED. You will not find here no difficult or progressive songs. MORBIUS prefer drive and dense riffes. Here is much more thrah-metal, than it has to be.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>It's usual product for Europe. Qualitive and headbanging. All 5 tracks are filled with citations, but they don't push to evident conclusions. Fans of style can pay attention.</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>[+] - europian quality, melody and absense of difficulty</FONT></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><FONT face=Arial size=2>[-] - usual material, lack of own ideas</FONT></DIV>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

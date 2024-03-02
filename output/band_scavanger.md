@@ -37,6 +37,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.09.2011 news Дебютный альбом SCAVANGER
+
+<P><IMG height=340 alt="" hspace=0 src="/images/news_rus/2011.09/20902.jpg" width=340 align=right border=0>Дебютный альбом немецкой teutonic heavy-metal <STRONG>SCAVANGER "Between The Devil And The Sea"</STRONG> выходит 7 октября на <STRONG>Rock It Up Records</STRONG>. Музыка коллектива рекомендуется поклонникам <STRONG>GRAVE DIGGER, STORMWITCH, TYRAN' PACE</STRONG> и <STRONG>IRON MAIDEN</STRONG>. Состав группы:</P>
+<P><STRONG>Axel Ritt</STRONG> – (GRAVE DIGGER, DOMAIN) – Guitar<BR><STRONG>Carsten Lizard Schulz</STRONG> (EVIDENCE ONE, ex DOMAIN) – Vocals<BR><STRONG>Juliano Scharf</STRONG> (BEFORE EDEN) - Keyboards<BR><STRONG>Tommy Vitaly</STRONG> (SEVEN GATES) - Guitar<BR><STRONG>Ferdy Doernberg</STRONG> (AXEL RUDI PELL, ROUGH SILK) – Slide Guitar</P>
+Автор: Vit Belov
+
+### 11.02.2012 news Новое видео SCAVANGER
+
+<P>Дебютный клип<STRONG> SCAVANGER</STRONG> на песню ‘<STRONG>The Assassins Of Ankh Morpork’</STRONG> можно посмотреть ниже. Трек взят с первого альбома немецкого коллектива <STRONG>"The Devil And The Sea</STRONG>", который можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/tCUFYVG4LUA?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

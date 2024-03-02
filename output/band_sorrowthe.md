@@ -81,6 +81,36 @@ Bonus CD [ltd. Edition]:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.2009 news Видео THE SORROW
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип на песню <STRONG>"Where Is The Sun?" </STRONG>австрийской группы<STRONG> THE SORROW</STRONG> можно посмотреть ниже. Композиция войдёт во второй альбом группы <STRONG>"Origin Of The Storm"</STRONG>, выходящий 27 февраля на Drakkar.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=51692111">the sorrow - where is the sun?</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=51692111,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=51692111,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.03.2009 news THE SORROW попали в чарты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Австрийцы <STRONG>THE SORROW</STRONG> попали в <STRONG>Media Control Chart</STRONG> в Германии на 56-ое место со своим вторым альбомом <STRONG>"Origin Of The Storm"</STRONG>, который вышел 27 февраля на<STRONG> Drakkar</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 14.01.2013 news Новый клип THE SORROW
+
+<P>Новый ролик австрийских музыкантов <STRONG>THE SORROW</STRONG> <STRONG>"Perspectives" </STRONG>можно посмотреть ниже. Трек взят с нового альбома коллектива <STRONG>"Misery Escape"</STRONG>, который вышел в ноябре на <STRONG>Napalm Records</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/uGdvtKXrIbA?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.04.2013 news Новый клип THE SORROW
+
+<P>Новое видео<STRONG> THE SORROW</STRONG> <STRONG>"Retracing Memories" </STRONG>можно посмотреть ниже. Трек взят с нового альбома metalcore-коллектива <STRONG>"Misery Escape"</STRONG>, который вышел в прошлом году на <STRONG>Napalm Records</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/1aUb6mn8IoM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

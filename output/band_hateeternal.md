@@ -108,6 +108,214 @@ Behind the Scenes at Mana Studios (30 mins)
 * C группой "Morbid Angel" guitarist Erik Rutan
 * C группой "Alas" guitarist Erik Rutan
 
+## Публикации
+
+### 26.03.2002 news HATE ETERNAL IN THE STUDIO
+
+<p>Florida's death metal Hate Eternal are in the studio, putting the finishing touches on their new album, "King Of All Kings", the follow-up to 1999's critically-worshipped "Conquering the Throne". Recording at guitarist/vocalist/mastermind Erik Rutan's own Dimensional Sound Studio in Tampa, the band has declared "King Of All Kings" to be "beyond anything done up to now".</p>
+
+Автор: Dimas
+
+### 26.03.2002 news HATE ETERNAL в студии
+
+<p>Флоридские дэт-металлисты HATE ETERNAL заперлись в студии для записи своего нового альбома "King Of All Kings". Запись проходит в собственной студии гитариста-вокалиста и лидера группы Erik Rutan (MORBID ANGEL, ALAS) Dimensional Sound Studio в Тампе. Обещается нечто грандиозное...</p>
+
+Автор: Dimas
+
+### 18.08.2002 reviews Лучший death metal альбом 2002 года?
+
+<p>На сцене – HATE ETERNAL. За сценой – представители наиболее известных brutal death'овых коллективов. Первые – играют вещи с новейшего "King Of All Kings", совершенно не задумываясь о мировом господстве. Вторые – недовольно косясь на сцену, нервно курят. Первые – доигрывают свою программу. Вторые – со злостью швыряют сигареты на землю и принимают решение о немедленном роспуске своих команд. Потому как понимают, что никто из них никогда не создаст альбом, достойный этого кровоточащего куска брутальнейшего дэта. Дэта злющего, гипер-скоростного, но при этом не имеющего ничего общего с монотонным, усыпляющим рубиловом а-ля PESSIMIST. Дэта, словно вобравшего в себя всю ту злобу и ненависть, что когда-либо существовали в этом мире. Дэта, сочетающего в себе всё лучшее, что есть в этом стиле (а речь, напомню, о brutal death'е, а не СМДМ'е). Дэта, пусть не тянущего на откровение, но пугающе близкого к тому, чтобы стать таковым. Лейбл-менеджеры Earache определённо не дураки, если ухватились за эту группу.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 23.08.2002 news Эрик Рутан ушел из Morbid Angel ....
+
+<p>Легендарные дэтстеры "Morbid Angel" официально объявили об уходе гитариста Эрика Рутана. <BR><BR> "Последние девять лет в Morbid Angel были лучшим временем в моей жизни..." - говорит Рутан. "Играть в моей любимой дэт группе на все времена это огромная честь. Я хотел бы поблагодарить Трэя и Пита за все что они сделали для меня и всех фанов которые поддерживали меня раньше и я надеюсь будут поддерживать в дальнейшем. Сейчас пришло время встать на свои собственные ноги с группой Hate Eternal..."<BR><BR> Гитарист пришел в "Morbid Angel" в 1993 году и участвовал в записи трех наиболее успешных альбомов. В 1996 он создал "Hate Eternal" для выражения собственного взгляда на музыку. Второй их альбом "King Of All Kings" выходит на Earache 17-го сентября.</p>
+
+Автор: Yermola
+
+### 23.08.2002 news Morbid Angel announced departure of Erik Rutan....
+
+<p>Legendary death metallers Morbid Angel have officially announced the permanent departure of guitarist Erik Rutan. <BR><BR> "Being in Morbid Angel for the past nine years has been the greatest time of my life," said Rutan on the official Morbid Angel website. "To play in my favorite death metal band of all time has been a tremendous honor. I want to thank Trey and Pete for all the great years and all they have done for me, and all the fans who have supported me and will hopefully continue to support me in the future. It is now time for me to stand on my own two feet with Hate Eternal." <BR><BR> The guitarist joined Morbid Angel in 1993 and has performed on three of the group's most successful efforts. He formed Hate Eternal in 1996 to express his own interpretation of death metal. Hate Eternal will release their second album, King Of All Kings, on September 17th in North America on Earache. <BR><BR> We'll have more news on Morbid Angel and possible replacements for Rutan as it happens. Stay tuned.</p>
+
+Автор: Yermola
+
+### 17.09.2002 news MassaBrutto Radioshow #108, 16-17 Sep 2002.
+
+<p>Playlist:<BR><BR> 1. CORPORATION 187 - Untitled (Earache)<BR> 2. MOURNING BELOVETH - In Mourning My Days (Sentinel Recs)<BR> 3. SCARIOT - Inside The Frame (band)<BR> 4. CARCASS - Buried Dreams (Earache)<BR> 5. CARCASS - Carnal Forge (Earache)<BR> 6. CARCASS - Death Certificate (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Радиопремьера HATE ETERNAL "King Of All Kings"<BR><BR> 7. HATE ETERNAL - King Of All Kings (Earache/Soyuz)<BR> 8. HATE ETERNAL - Born By Fire (Earache/Soyuz)<BR> 9. HATE ETERNAL - Rising Legions Of Black (Earache/Soyuz)<BR> 10. HATE ETERNAL - Chants In Declaration (Earache/Soyuz)<BR> 11. HATE ETERNAL - The Obscure Terror (Earache/Soyuz)<BR> 12. HATE ETERNAL - Powers That Be (Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 17.09.2002 news MassaBrutto Radioshow #108, 16-17 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. CORPORATION 187 - Untitled (Earache)<BR> 2. MOURNING BELOVETH - In Mourning My Days (Sentinel Recs)<BR> 3. SCARIOT - Inside The Frame (band)<BR> 4. CARCASS - Buried Dreams (Earache)<BR> 5. CARCASS - Carnal Forge (Earache)<BR> 6. CARCASS - Death Certificate (Earache)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> Presentation of HATE ETERNAL "King Of All Kings"<BR><BR> 7. HATE ETERNAL - King Of All Kings (Earache/Soyuz)<BR> 8. HATE ETERNAL - Born By Fire (Earache/Soyuz)<BR> 9. HATE ETERNAL - Rising Legions Of Black (Earache/Soyuz)<BR> 10. HATE ETERNAL - Chants In Declaration (Earache/Soyuz)<BR> 11. HATE ETERNAL - The Obscure Terror (Earache/Soyuz)<BR> 12. HATE ETERNAL - Powers That Be (Earache/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 04.08.2003 news HATE ETERNAL покинул басист
+
+<p>Басист Jared Anderson покинул американскую формацию HATE ETERNAL из-за личностных проблем, связанных с чрезмерным употреблением наркотических веществ.</p>
+
+Автор: Dimas
+
+### 25.11.2003 news Внимание организаторам концертов
+
+ВНИМАНИЕ огранизаторы!<BR>В январе 2004 года состоиться еропейский тур монстров мирового death/grind групп <B>DYING FETUS, DEEDS OF FLESH и HATE ETERNAL</B>! Америкиканские команды проедут по основным городам Европейских стран. Страны совка могут стать не исключением, и также при желании смогут увидеть легиндарные команды. Екс-лидер <B>Morbid Angel</B> и <B>Deeds Of Flesh</B>, а сейчас лидер <B>HATE ETERNAL</B> Ерик Рутан не против проехаться по странам ex-USSR.<BR>Желающие увидеть команды для подробной информации пишите на <A href="mailto:hunger_dispatch@ukrpost.net"><U>hunger_dispatch@ukrpost.net</U></A><BR>
+Автор: Vit Belov
+
+### 04.01.2005 news HATE ETERNAL подготовили новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>HATE ETERNAL</STRONG> близки к завершению записи новой пластинки <STRONG>'I, Monarch'</STRONG>, которая выйдет в апреле на <STRONG>Earache</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 20.04.2005 news Новый альбом HATE ETERNAL
+
+<P>Флоридские экстремалы из <B>HATE ETERNAL</B> завершили работу над своим третьим&nbsp;альбомом под названием <B>"I, Monarch"</B>,&nbsp;выход которого ожидается 28 июня на &nbsp;<B>Earache Records</B>.&nbsp;Он был записан и смикширован в собственной <STRONG>Mana Studios</STRONG>&nbsp;лидера группы <B>Erik Rutan</B> (<B>SOILENT GREEN</B>, <B>INTO THE MOAT</B>). Трек-лист альбома:<BR><BR>1. <B>Two Demons</B><BR>2. <B>Behold Judas</B><BR>3. <B>The Victorious Reign</B><BR>4. <B>To Know Our Enemies</B><BR>5. <B>I, Monarch</B><BR>6. <B>Path to the Eternal Gods</B><BR>7. <B>The Plague of Humanity</B><BR>8. <B>It Is Our Will</B><BR>9. <B>Sons of Darkness</B><BR>10. <B>Faceless One</B><BR></P>
+Автор: Dimas
+
+### 15.06.2005 news Новое видео HATE ETERNAL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>HATE ETERNAL "I, Monarch"</STRONG> с одноимённого нового альбома доступно для скачивания по адресу: <A href="http://www.earache.com/bands/hate_eternal/im/player.html">http://www.earache.com/bands/hate_eternal/im/player.html</A></FONT></P>
+Автор: Vit Belov
+
+### 16.12.2005 reviews И абсолют бывает скучноватым
+
+<P>Знаете что, друзья мои? Надоело это уже всё. Классический американский дэт уже не вызывает никаких эмоций и реакций, кроме зевоты. Вроде бы всё хорошо, да скучно уж очень. Наверное, практически на любой пластинке, сделанной в данном стиле, найдется пара-тройка интересных мест, риффов, соляков и т.д., но в общем и целом интереса эти альбомы - во всяком случае для меня - уже больше не представляют. Время неумолимо, развитие неизбежно, и топтание на одном месте вряд ли принесет плоды. Можем ли мы назвать диск со "скромным" названием "I, Monarch" самой брутальной, самой быстрой и самой тяжелой у Hate Eternal? Безусловно, можем. Даст ли это нам что-нибудь? Безусловно, не даст. И, наверное, отличить одну песню от другой смогут либо упертые фанаты стиля, либо музыканты, этот самый американский дэт играющие. Здесь не к чему придраться и нечем восхищаться. Всё это мы уже слышали, и пусть Эрик Рутан, Рэнди Пиро и - особенно - Дерек Родди (также Aurora Borealis, Council Of The Fallen, Divine Empire, Malevolent Creation, Nile) прекрасно справляются со своей работой, но нового они нам ничего - как, впрочем, и следовало ожидать - не преподносят. Это добротная, отлично сыгранная и записанная пластинка первоклассных мастеров дэт-метала, но больше о ней, к сожалению, сказать нечего. Бывают моменты, когда группы достигают какой-то некой абсолютной вершины в своем музыкальном сегменте, но никуда развиваться более не хотят (или же не могут). Безусловно, данное трио звучит на порядок лучше многих более многочисленных по составу коллег по жанру, но всё же хочется чего-то свежего и необычного даже&nbsp;в том же дэт-метале (как это, возможно, пародоксально и звучит). Или, может, я просто устал уже от такой музыки?</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.02.2006 reviews Флоридская мясорубка
+
+<P>Если вам в руки попадает пластинка флоридской группы, то будьте уверены - в девяносто случаях из ста коллектив исполняет дэт-метал, и зачастую брутальный.&nbsp; Так чего же было ждать от релиза команды, возглавляемой Эриком Рутаном, бывшим участником Morbid Angel. Как говорится, яблочко от вишенки+ В данном случае Эрик не только сыграл гитары и спел на альбоме, но и записал его в собственной студии Mana Studios, и собственноручно спродюсировал. Музыка на альбоме - техничный брутал-дэт самой высокой пробы. Шквал зубодробительных риффов, приправленный правильным вокалом и молотящими барабанами - настоящий подарок поклонникам экстремально тяжелой музыки. На десерт слушателю предлагается довольно интересный инструментал. Отдельное слово хочется сказать об оформлении альбома, сделанное рукой Пола Романо - оно на все сто подчёркивает название диска и выполнено в богатейших золотых тонах.</P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 16.03.2006 news Новости от Earache Records - готесса-вундеркинд посадила Глена Бентона за руль
+
+<P>Завоевав стальные сердца меломанов своим более чем 15-летним служением на ниве экстремальной музыки, <B>Earache Records</B> осваивают новые территории - уже в следующем сезоне на прилавки магазинов попадет гоночная видеоигра <B>"Earache Extreme Metal Racing"</B>. Партнерами рекорд-компании, ответственными за создание и распространение игры, стали крупный игрок гейм-индустрии, издательство <B>Metro 3D</B> и команда разработчиков из <B>Data Design Interactive</B>. Ожидается, что игра выйдет как в варианте для персонального компьютера, так и на платформах PlayStation2 и PSP.<BR><BR>Участниками <B>"Earache Extreme Metal Racing"</B> стали наиболее востребованные на сегодняшний день воспитанники лейбла: <B>MORTIIS, DEICIDE, MORBID ANGEL, AKERCOCKE, DECAPITATED, BIOMECHANICAL, MUNICIPAL WASTE, THE BERZERKER, LINEA 77</B> и <B>SOCIETY 1</B>. Их борьба друг с другом и с крутыми поворотами захватит семь кругов виртуальной преисподней и продолжится на следующих, не менее зловещих уровнях. Само собой, высокоскоростная схватка пройдет под убойнейший саундтрек - помимо треков от непосредственных оппонентов, геймеры услышат давно ставшие классическими композиции <B>NAPALM DEATH, AT THE GATES, CATHEDRAL</B>, а также мощные хиты в исполнении <B>THE HAUNTED, HATE ETERNAL, CULT OF LUNA, BEECHER, URKRAFT, ANATA, MISTRESS, SEVERE TORTURE</B> и многих других.<BR><BR>Интересно, что автором идеи и дизайнером игрушки выступила 17-летняя поклонница готик-метала Скай Нэш, дочка президента <B>Frazer Nash Communications</B> Фрейзера Нэша. Отец одаренной девушки так говорит об увлечениях своего чада: <I>"Когда я предложил Скай разработать собственную компьютерную игру, ей было 15 лет. Я не ожидал, что спустя неделю обнаружу у себя на&nbsp; столе подробный сценарий с зарисовками уровней и подобранным саундтреком. Волшебники из DDI больше года воплощали ее идеи в жизнь, и вот он результат - прекрасная и динамичная гоночная игра для настоящих рок-маньков!"<BR></I><BR>Стюарт Грин, директор по маркетингу компании <B>Metro 3D</B>, также делает акцент на беспрецендентности данной разработки: <I>"Индустрия компьютерных мир - сугубо мужская область. И когда мне сказали, что к дизайну новых гонок причастна маленькая девочка, я сразу представил себе розовые облачка, летающих пони - ну, вы понимаете. Надо сказать, я был приятно удивлен, когда увидел все эти машины, увешанные шипами и бензопилами, лужи крови, монстров за рулем. В результате игра получилась с одной стороны жестокой и безумной, а с другой - выразительной и страшно смешной. Кстати, мы таки добавили в нее немного розового - в тот момент, где из трупа вытекает расплавленный мозжечок..."<BR></I><BR>Ожидаемая дата релиза - 7 июля 2006 года.<BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+<P><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 30.03.2006 news В HATE ETERNAL сменился ударник
+
+<P>После шести лет пребывания в <B>HATE ETERNAL</B> группу по личным причинам&nbsp;покинул барабанщик <B>Derek Roddy</B> (также <B>COUNCIL OF THE FALLEN, AURORA BOREALIS, NILE</B>). На его место лидер команды <B>Eric Rutan</B> взял ударника по имени <B>Kevin Talley</B> (ex-<B>CHIMAIRA</B>, ex-<B>DYING</B> <B>FETUS</B>). Именно с ним группа собирается играть в предстоящем совместном туре с <B>CHIMAIRA</B> и <B>ARCH</B> <B>ENEMY</B>.</P>
+Автор: Ixtiandr
+
+### 09.06.2006 news HATE ETERNAL завершили съемки для концертного DVD
+
+<P>Американские монстры дэт-метала <B>HATE ETERNAL</B> записали во время выступления 4-го июня в лондонском <B>The Garage</B> специальный сет для своего концертного DVD, который должен выйти в октябре этого года (название диска пока еще не определено). На этот DVD войдет следующий материал:</P>
+<P>полное выступление в Лондоне 4-го июня</P>
+<P>интервью с группой, снятое непосредственно после этого концерта</P>
+<P>"making of" альбома <B>"I, Monarch"</B></P>
+<P>туровая фотогалерея</P>
+<P>все промо-видео группы, включая<B> 'Powers That Be'</B> и&nbsp;<B>'I, Monarch'</B></P>
+Автор: Ixtiandr
+
+### 25.08.2006 news HATE ETERNAL готовят свой первый DVD
+
+<P><BR>Флоридские дэтстеры <B>HATE ETERNAL</B> готовят к выходу свой первый DVD <B>"The Perilous Fight"</B>.<BR><BR>Обложку для <B>"The Perilous Fight"</B> (смотреть - <A href="http://www.earache.com/lists/lt.php?id=MktUBAEHAw1LBQFRGgAMDlI%3D"><U>http://www.earache.com/lists/lt.php?id=MktUBAEHAw1LBQFRGgAMDlI%3D</U></A>)<BR>рисовал <B>Пол Романо</B>, ранее работавший с <B>MASTODON</B> и <B>TRIVIUM</B>. DVD будет включать живое выступление группы, заснятое 4 июня в лондонском клубе <B>The Garage</B>, а также 20-минутное интервью с участниками: <B>Эриком Рутаном</B>, <B>Рэнди Пиро</B> и <B>Рено Келлерихом</B>. В качестве бонусов на сборку вошло три редких промо-видео (включая ранее не издававшийся клип на песню <B>'The Victorious Reign'</B>, снятый <B>Шейном Дрейком </B>(<B>PANIC! AT THE DISCO, TRIVIUM, HAWTHORNE HEIGHTS</B>) и короткая экскурсия по <B>Mana Studios</B>.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>Дата выхода - 16 октября 2006.<BR><BR>Содержание DVD <B>"The Perilous Fight"</B>:<BR><BR>Main Feature:<BR><BR>01. <B>Two Demons</B><BR>02. <B>Servants Of The Gods<BR></B>03. <B>The Victorious Reign</B><BR>04. <B>Dogma Condemned</B><BR>05.<B> I, Monarch</B><BR>06. <B>Behold Judas</B><BR>07. <B>The Obscure Terror</B><BR>08. <B>To Know Our Enemies</B><BR>09. <B>Powers That Be</B><BR>10. <B>By His Own Decree</B><BR>11. <B>Sons Of Darkness</B><BR>12. <B>King Of All Kings</B><BR><BR>Promo Videos:<BR><BR>01. <B>The Powers That Be<BR></B>02. <B>I, Monarch</B><BR>03. <B>The Victorious Reign</B><BR><BR>Bonus Features:<BR><BR><B>HATE ETERNAL</B> interview <BR>Behind the Scenes at <B>Mana Studios</B><BR><BR>новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков) </P>
+<P><BR><BR>&nbsp;</P>
+Автор: Ixtiandr
+
+### 18.10.2006 news Умер Jared Anderson
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В возрасте 30 лет скончался <STRONG>Jared Andersen</STRONG>, бывший фронтмэн <STRONG>MORBID ANGEL, HATE ETERNAL</STRONG> и <STRONG>INTERNICINE</STRONG>. Причины смерти не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 17.10.2007 reviews Концерт у телевизора
+
+<P>Посетив в середине прошлого месяца широко разрекламированный Moscow Metall Fest с участием INCANTATION, KRISIUN, ROTTING CHRIST и VADER, я понял, что получать стопроцентное удовольствие в московских клубах у меня уже не получается. Толкучка, жара, сигаретный дым, разнообразные технические и организационные неполадки. К тому же и с точки зрения отчёта о шоу остаются проблемы: отсутствие пресс-конференций, зависимость качества «перфоманса» от настроения коллективов, «траблы» со звуком и обзором. Мне подумалось, куда лучше купить пивка и закуски, вставить в проигрыватель DVD и получить удовольствие, комфортно пристроившись на диване, не выходя из дома.</P>
+<P>Вперёд в магазин! Ну, не в магазин, конечно, а туда, где дадут посмотреть чего-нибудь. Не утолив голод по бруталу, я взял последнюю киноновинку от Союза, DVD от американских мясников HATE ETERNAL “The Perilous Fight”, известных как группа бывшего гитариста MORBID ANGEL Eric Rutan. Эрик стал известен в последнее время и как успешный продюсер, но об этом позже. Выступление трио было отснято 4 июня 2006 года в Лондоне в клубе «Гараж» во время европейского тура в поддержку последней на сегодня пластинки коллектива “I, Monarch”.</P>
+<P>Что ж, Гараж он и есть гараж. Да и вообще, откупорив первую бутылку пива я понял, что оказался в бывшем Р-Клубе на Тульской. Длинный узкий зал, сцена без возвышения, отсутствие внятного освещения, более того, в этом самом гараже не нашлось даже балкончика, чтобы поставить оператора на возвышение для съёмки общих планов. В итоге, когда вы видите этот план, вам кажется, что вы стоите где-то сзади в Р-клубе, руки, ладошки и голова Эрика Рутана с торчащей гитарой. Изображение тоже не блещет своим качеством, даже крупные планы музыкантов, снятые в упор, не отличаются особой чёткостью. Оформление сцены содержит у HATE ETERNAL два стяга с изображением человеческих фигур с обложки альбома “I, Monarch” и всё. Картинка глаз не радовала, но погружение в атмосферу было идеальным. К тому же вместе со мной в этот день концерт HATE ETERNAL смотрели всего человек 50 англичан, их крики были очень жидкими, что добавляло сходства с каким-нибудь «аншлаговым» шоу в покойном Р-клубе.</P>
+<P>Что же такое HATE ETERNAL в концертном варианте? Группа работает в формате трио, что добавляет работы гитаристу. Композиции группы, особенно с последнего альбома, наполнены техничными соло, с которыми Эрик справлялся великолепно. Нам есть с чем сравнивать. KRISIUN и INCANTATION, приезжавшие в сентябре, работают в таком же составе. Вот у них с техникой исполнения дела обстоят гораздо хуже. Особенно у INCANTATION. Гитара этого коллектива периодически пропадала, когда её обладатель начинал петь. С музыкой HATE ETERNAL, благодаря этому DVD, я познакомился ещё ближе. Вторая работа “King Of All Kings” была выдержана в более традиционном риффоориентированом ключе. Зато “I, Monarch” просто поражает своей гитарной работой в формате соло. Заметно это на концерте, когда невозможно прописать гитару несколько раз. Например, вся заглавная песня состоит из одного сплошного “lead guitar”. Очень оригинально. Не знаю, насколько слушабельно, но оригинально. Эрик Рутан заставляет себе аплодировать, великолепный гитарист. Немного разочаровывали вставки в стили «буддистского гудения», звучавшие каждые две песни, ритм терялся, но, видимо, музыкантам надо было отдохнуть. Особенно барабанщику Reno Kiilerich, который пришёл в группу за несколько дней до тура, но успел разучить все песни, музыканты заявляли, что в работе «драмера» были некоторые недостатки, но я этого не заметил. Рено известен, кстати, по работе с DIMMU BORGIR (он там был перед Хэллхаммером), OLD MAN’S CHILD, PANZERCHRIST и многими другими.</P>
+<P>Кроме самого концерта, на DVD можно увидеть три видеоклипа, на которых можно сравнить качество картинки и звука. Если к звуку претензий быть не может, то картинка с шоу проигрывает очень сильно, но это и так было заметно. Также можно посмотреть интервью с группой, и репортаж из студий Эрика Рутана. Вот это действительно интересно. Вооружившись любительской камерой, Эрик и басист коллектива Randy Piro бродят по двум студиям популярного ныне продюсера, подробно рассказывая об оборудовании и процессе записи. Совершенно недавно Эрик накопил на новую студию Mana, куда и переехал из развалюхи-дома, который нам тоже продемонстрировали во всех подробностях. Гитарист HATE ETERNAL в настоящее время завален работой. У него пишутся практически все артисты американского лэйбла Metal Blade, в частности он записывал последний альбом CANNIBAL CORPSE “Kill”, также среди его клиентов KRISIUN, THE ABSENCE, IMPIOUS, AS I LAY DYING и многие другие. Во время этих неформальных съёмок Эрик предстаёт скромным общительным парнем, очень увлечённым своей работой. Как он гладит все свои Маршалы и нахваливает гитары BC Rich! Особенно он боготворит какой-то агрегат (я, к сожалению, не специалист), купленный им у Jim Morris из Morissound в Тампе, на котором записывались классические альбомы MORBID ANGEL, SUFFOCATION, CANNIBAL CORPSE.</P>
+<P>Знаете, несмотря на поганое качество картинки, всего четыре камеры, плохонький клуб, и пассивность публики, я получил удовольствие от просмотра этого диска. Выпив, несколько бутылок пива, я комфортно задремал на диванчике, а не ехал пьяный, вонючий через весь город, матеря охрану и промоутеров. Вероятно, таковы развлечения взрослых дяденек, к которым, к сожалению, надо уже отнести и меня.</P>
+<P>P.S.: Почти всю информацию о группе я почерпнул во время просмотра DVD. После нескольких часов, проведённых у экрана, Эрик Рутан и HATE ETERNAL стали практически моими лучшими друзьями, и я с нетерпением буду ожидать выхода их нового альбома. </P>
+<P>P.P.S.: Оценка снижена, из-за низкого качества картинки, не делающего чести Earache Records.</P>
+Автор: Vit Belov
+
+### 05.12.2007 news Новый альбом HATE ETERNAL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>HATE ETERNAL "Fury and Flames</STRONG>", по признанию самой группы, будет самым разнообразным и эмоциональным. Пластинка будет посвящена смерти хорошего друга&nbsp;<STRONG>HATE ETERNAL</STRONG> басиста <STRONG>Jared Anderson</STRONG>. Новая работа также ознаменовалась включением в группу второго гитариста <STRONG>Shaune Kelley</STRONG> и барабанщика <STRONG>Jade Simonetto</STRONG>.&nbsp;Группа впервые будет выступать, как квартет. Басс для этой пластинки прописал участник <STRONG>CANNIBAL CORPSE</STRONG> <STRONG>Alex Webster,</STRONG> но он не является постоянным членом группы, из-за занятости в основном коллективе. Трэк-лист:</FONT></P>
+<P>01. <B>Hell Envenom</B><BR>02. <B>Whom Gods May Destroy</B><BR>03. <B>Para Bellum</B><BR>04. <B>Bringer of Storms</B><BR>05. <B>The Funerary March</B><BR>06. <B>Thus Salvation</B><BR>07. <B>Proclamation of the Damned</B><BR>08. <B>Fury Within</B><BR>09. <B>Tombeau (Le Tombeau De La Fureur et Des Flames)</B><BR>10. <B>Coronach</B></P>
+<P>Пластинка выйдет 19 февраля.</P>
+Автор: Vit Belov
+
+### 03.01.2008 articles Erik Rutan: &quot;Новый альбом - это злобный, бешенный, хаотичный, горестный реквием&quot;.
+
+<P><IMG height=265 alt="Jared и Erik" hspace=0 src="/images/articles_rus/2008.01/12089.jpg" width=400 align=left border=5>Как мы уже сообщали, 19 февраля выходит новый альбом группы HATE ETERNAL “Fury And Flames” бывшего гитариста MORBID ANGEL Erik Rutan. Erik попал на обложку нового январского номера Metal Maniacs. Вот выдержки из опубликованного интервью.</P>
+<P>Вопрос: Как повлияла смерть басиста Jared Anderson на настроение вашего нового альбома?</P>
+<P>«Когда умер Jared, я был полностью опустошён. Я потерял не только коллегу по группе, но и, самое главное, друга. И хотя Jared умер уже несколько лет назад, он всё ещё остаётся членом HATE ETERNAL для меня. Я считал Jared лицом HATE ETERNAL. Когда он ушёл, какое-то время передо мной стоял вопрос, продолжать ли с HATE ETERNAL. Единственное, что меня убедило это сделать, было то, что Jared всё время говорил, если он по какой-то причине покинет группу, я должен продолжить работу, чтобы достичь своей цели. Я написал 70 процентов материала к этому альбому после смерти Jared, и он полон теми эмоциями, которые меня охватывали в то время. Я не ограничивал себя в этих чувствах, и поэтому новый альбом самая глубокая и эмоциональная пластинка HATE ETERNAL на сегодняшний день. Здесь есть много чего. Это злобный, бешенный, хаотичный, горестный реквием».</P>
+<P>Вопрос: Есть ли какой-то смысл у названия альбома «Ярость и Пламя»?</P>
+<P>«Я хотел название, которое точно передаст содержание альбома. Что-то, что символизирует смерть и сопряжённую с ней боль. Я также хотел, чтобы названия характеризовало и Jared. Он использовал ник “Fury And Flames” в Интернет. Например, он так подписывал E-mail’ы. Этот альбом назван в честь него».</P>
+<P>Вопрос: Скольких усилий вам стоило довести до конца работу над такими альбомами, как “I, Monarch” или “King Of All Kings”? В том смысле, что вы выступаете не только, как гитарист HATE ETERNAL, но и как продюсер и звукоинженер. Чувствуете ли вы повышенную ответственность в связи с этим?</P>
+<P>«Точно. Ответственность велика, но я стараюсь не думать о подобных вещах. Это тяжело… Особенно это касается нового альбома, который станет нашим дебютом на Metal Blade. Это новое рождение HATE ETERNAL. Начиная с этого альбома, я решил писать только ту музыку, которая исходит от сердца. Конечно, раньше приходилось думать о лэйбле, о предыдущих работах, об ожиданиях фэнов. Я ощущал большое напряжение, но в основном оно связано с моим перфекционистско-трудоголическим восприятием собственной работы. Постоянное желание сохранить «магию» музыки при записи и сочинении нового материала. Потребовалось много лет, чтобы я понял, невозможно угодить всем. Я не могу сидеть и только и думать об этом. Я сойду с ума. Мы вкладывали душу в нашу работу, и каждый член группы сделал всё возможное для конечного результата».<BR></P>
+Автор: Vit Belov
+
+### 09.01.2008 news Картинка нового HATE ETERNAL
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2008.01/12124.jpg" width=200 align=left border=5>HATE ETERNAL</STRONG> опубликовали кавер-арт своего нового альбома "<STRONG>Fury And Flames</STRONG>", который выходит 19 февраля.</P>
+Автор: Vit Belov
+
+### 13.02.2008 news Новое видео от HATE ETERNAL
+
+<P><STRONG>HATE ETERNAL</STRONG> выложили в сеть видео на песню с нового альбома <STRONG>"Fury and Flames"</STRONG>, которая называется <STRONG>"Bringer of Storms".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=373 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/bNcwrLVA4pY&rel=1&border=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/bNcwrLVA4pY&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 25.02.2008 news Ещё одна песня HATE ETERNAL
+
+<P>Ещё одна новая песня <STRONG>HATE ETERNAL</STRONG> "<STRONG>Fury Within</STRONG>" выложена на официальной <STRONG>MySpace </STRONG>страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/haeteternal">http://www.myspace.com/haeteternal</A></P>
+Автор: Vit Belov
+
+### 13.06.2008 reviews Простым любителям тяжёлой музыки здесь делать нечего
+
+<P>Erik Rutan – знаменитый продюсер, бывший музыкант MORBID ANGEL и нынешний лидер HATE ETERNAL, является уважаемым членом американской death-metal тусовки. В конце прошлого года мы обозревали концертное DVD его группы, которое произвело на меня неизгладимо приятное впечатление. Несколько хаотичная, но зато техничная музыка привлекала своей сложностью, помноженной на тяжесть.</P>
+<P>По этой причине “Fury And Flames” был едва ли не самым ожидаемым мной релизом в death-metal в начале 2008 года. Пластинка вышла в конце февраля на Фоно, но рецензию я сподобился написать только сейчас. В чём причина? HATE ETERNAL оглоушили меня своей работой. После каждого из первых прослушиваний у меня открывался рот и не хотел закрываться по несколько часов. Как мне казалось, я так и ходил эти несколько часов с открытым ртом. При этом мне не хотелось бежать к компьютеру, чтобы писать эту заметку, так как эмоции были очень противоречивыми. Безусловно, музыка HATE ETERNAL сохранила свойственную себе сложность и непредсказуемость гитарных линий, с другой стороны мне постоянно приходилось бороться с приступами головной боли при прослушивании “Fury And Flames”. Быть может, мой мозг не готов переваривать подобную музыку, и мне стоит умолкнуть и не оценивать пластинки, подобные новому альбому HATE ETERNAL. С другой стороны эта работа вызывала во мне ярость, и этой яростью мне хотелось разбудить отличного гитариста Erik Rutan, предложив ему немного подумать не только о своей гитаре, чьи соло не замолкают здесь ни на минуту, но и о композиции, которая здесь настолько сложна, что любой любитель death-metal может в недоумении качать головой в течение нескольких недель. При этом настолько же нетривиальная музыка в исполнении таких коллективов, как CEPHALIC CARNAGE, например, не вызывает у меня таких припадков бешенства.</P>
+<P>HATE ETERNAL можно порекомендовать большим любителям жанра «я люблю свою гитару», а также почитателям стиля «то, что слушаю я, никто больше слушать не станет». Признаю, что мог что-то не доглядеть и не дослушать, но обычным любителям тяжёлой музыки здесь делать точно нечего.</P>
+Автор: Vit Belov
+
+### 16.03.2011 news Новый альбом HATE ETERNAL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=420 alt="" hspace=0 src="/images/news_rus/2011.03/18876.jpg" width=420 align=right border=0>Новый альбом <STRONG>HATE ETERNAL</STRONG> <STRONG>"Phoenix Amongst The Ashes" </STRONG>выходит 10 мая на <STRONG>Metal Blade</STRONG>. Пластинка вновь была записана лидером коллектива Erik Rutan в его собственной студии <STRONG>Mana Recording </STRONG>в Санкт-Петербурге, Флорида. Трек-лист:</FONT></P>
+<P>01. <B>Rebirth</B><BR>02. <B>The Eternal Ruler</B><BR>03. <B>Thorns of Acacia</B><BR>04. <B>Haunting Abound</B><BR>05. <B>The Art of Redemption</B><BR>06. <B>Phoenix Amongst the Ashes</B><BR>07. <B>Deathveil</B><BR>08. <B>Hatesworn</B><BR>09. <B>Lake Ablaze</B><BR>10. <B>The Fire of Resurrection</B></P>
+Автор: Vit Belov
+
+### 15.07.2011 news Новый клип HATE ETERNAL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео группы <STRONG>Erik Rutan HATE ETERNAL</STRONG>&nbsp;на песню&nbsp;<STRONG>"Lake Ablaze" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил<STRONG> David Brodsky</STRONG> (<STRONG>AS I LAY DYING</STRONG>, <B>SUICIDE SILENCE</B>, <B>KATAKLYSM</B>, <B>ARSIS</B>, <B>THE BLACK DAHLIA MURDER</B>, <STRONG>STRAPPING YOUNG LAD). </STRONG>Песня попала на новый альбом <STRONG>HATE ETERNAL</STRONG> <STRONG>"Phoenix Amongst The Ashes".</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/hhBVJRvRBuo?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/hhBVJRvRBuo?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.10.2011 reviews Насилие для разума, но не для ушей
+
+<P>Группа знаменитого продюсера death-metal музыки и бывшего участника MORBID ANGEL гитариста Erik Rutan выпустила свой новый альбом “Phoenix Among The Ashes”. Являясь отличным музыкантом и великолепным звукоинженером, Erik сумел вывести свой коллектив в высшую лигу стиля, не выдумывая чего-то нового, а просто переоценивая те наработки, которые придумали его предшественники-коллеги по стилю.</P>
+<P>Нет, безусловно, у HATE ETERNAL имелась ещё одна «фишка», группа пыталась создать такую музыку, которую ни при каких условиях не смогли бы послушать поклонники более мелодичных стилей. Добивался господин Rutan этого не только с помощью навороченной и очень комплексной музыкальной линии собственных произведений, но и созданием невыносимого шума и звуковой стены, выламывающей конечности и оглушающей неподготовленного потребителя. Что уж там неподготовленный потребитель, даже бывалые поклонники death-metal не всегда могли полностью оценить HATE ETERNAL, из-за изуверства звуковой палитры этой группы. В этот раз Erik Rutan решил не насиловать собственного слушателя и ограничился только техничностью исполнения и неожиданными композиторским поворотами. Впрочем, этого будет достаточно, чтобы впечатлить любителей завёрнутого death-metal и отпугнуть всех остальных. HATE ETERNAL можно смело сравнивать с классиками подобной музыки IMMOLATION, а это самая высшая похвала, какую можно себе представить.</P>
+<P>Очень хороший альбом, адресованный непосредственно поклонникам HATE ETERNAL. Никаких сюрпризов, только качество, качество, качество. Положительный пример для группы, упомянутой в первой строчке этой заметки.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Эрик Рутан

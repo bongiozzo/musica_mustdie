@@ -126,6 +126,84 @@ Ltd. edition - Disc 2
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.10.2005 news DELAIN - новый проект
+
+<P>Новый проект бывшего клавишника <STRONG>WITHIN TEMPTATION Martijn Westerhold</STRONG> называется <STRONG>DELAIN</STRONG>. Несколько дней назад эта группа записала 2 песни в <STRONG>Mastersound Studio</STRONG> с <STRONG>Alex Krull</STRONG>. Вокалистами выступили <STRONG>Liv Kristine</STRONG> и <STRONG>Marco Hietala</STRONG> (<STRONG>NIGHTWISH</STRONG>).</P>
+Автор: Vit Belov
+
+### 19.02.2009 news Новая песня DELAIN
+
+<P>Заглавную песню нового альбома группы бывшего клавишника<STRONG> WITHIN TEMPTATION</STRONG> <STRONG>Martijn Westerholt</STRONG> <STRONG>DELAIN</STRONG> "<STRONG>April Rain</STRONG>" можно послушать на сайте лэйбла. Альбом выйдет 30 марта на <STRONG>Roadrunner</STRONG>.</P>
+<P>Ссылка: <A href="http://www.roadrunnerrecords.nl/page/News?&news_page=&news_id=73096">http://www.roadrunnerrecords.nl/page/News?&news_page=&news_id=73096</A></P>
+Автор: Vit Belov
+
+### 20.10.2009 news Видео DELAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>DELAIN </STRONG>на песню "<STRONG>Stay Forever</STRONG>" можно посмотреть ниже:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Jyjul_QBRIg&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Jyjul_QBRIg&color1=0xb1b1b1&color2=0xcfcfcf&hl=en&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.04.2012 news Новый ролик DELAIN
+
+<P>Новое видео голландцев <STRONG>DELAIN</STRONG> на песню "<STRONG>Get The Devil Out Of Me</STRONG>" можно посмотреть ниже. Трек взят с нового альбома коллектива <STRONG>"We Are The Others</STRONG>", который выйдет в начале лета на <STRONG>Roadrunner</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/jaATQzLr_20?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 18.09.2012 news Новый ролик DELAIN
+
+<P>Новое видео голландцев <STRONG>DELAIN</STRONG> на песню <STRONG>"We Are The Others" </STRONG>можно посмотреть ниже. Трек взят с новейшей одноимённой работы коллектива с женским вокалом.</P>
+<P>Оптом можно посмотреть и второй клип с этого альбома <STRONG>"Get The Devil Out Of Me".</STRONG></P>
+<P>Трек-лист CD:</P>
+<P>01. <B>Mother Machine</B><BR>02. <B>Electricity</B><BR>03. <B>We Are The Others</B><BR>04. <B>Milk And Honey</B><BR>05. <B>Hit Me With Your Best Shot</B><BR>06. <B>I Want You</B><BR>07. <B>Where Is The Blood</B> (feat. Burton C. Bell)<BR>08. <B>Generation Me</B><BR>09. <B>Babylon</B><BR>10. <B>Are You Done With Me</B><BR>11. <B>Get The Devil Out Of Me</B><BR>12. <B>Not Enough</B></P>
+<P>В ноябре группа приедет с концертами в Россию и выступит 23-го числа в Санкт-Петербурге и 24-го числа в Москве.</P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/a-to0zcfNMw?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/jaATQzLr_20?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+<CENTER><IMG border=0 src="/images/shows_rus/2012.11/24474.jpg" width=400 height=553></CENTER></CENTER>
+Автор: Vit Belov
+
+### 05.04.2014 news Новое видео DELAIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>DELAIN</STRONG> на песню с выходящего альбома "<STRONG>The Human Contradiction</STRONG>" можно посмотреть ниже. Альбом вышел в конце этой недели на<STRONG> Napalm Records</STRONG>. Трек-лист:</FONT></P>
+<P><STRONG>'Here Come The Vultures' <BR>'Your Body Is A Battleground' <BR>'Stardust' <BR>'My Masquerade' <BR>'Tell Me, Mechanist' <BR>'Sing To Me' <BR>'Army Of Dolls' <BR>'Lullaby' <BR>'The Tragedy Of The Commons'</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26845.png" width=410 height=410></P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/Ubi1m5pR3hM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 23.06.2016 news Новый альбом DELAIN
+
+<p>Голландская gothic metal формация <strong>DELAIN</strong> выпускает новый альбом <strong>"Moonbathers"</strong> 26 августа на <strong>Napalm Records</strong>. Мастеринг альбома сделал лауреат премии Grammy <strong>Ted Jensen</strong>. На CD войдёт кавер-версия на песню QUEEN, а вокал для открывающего трека&nbsp;“<strong>Hands Of Gold</strong>" записала <strong>Alissa White-Gluz</strong> из ARCH ENEMY.</p><p>Трек лист:</p><p>“Hands Of Gold” (Featuring Alissa White-Gluz)<br>“The Glory And The Scum”<br> “Suckerpunch”<br> “The Hurricane”<br> “Chrysalis - The Last Breath”<br> “Fire With Fire”<br> “Pendulum”<br> “Danse Macabre”<br> “Scandal”<br> “Turn The Lights Out”<br> “The Monarch”<br>&nbsp;<br>Bonus CD<br>“Suckerpunch” - Live In The Netherlands<br>“Turn The Lights Out” - Live In The Netherlands<br>“The Glory And The Scum” - Live In The Netherlands<br>“Don't Let Go” - Live In The Netherlands<br>“The Glory And The Scum” - Orchestra<br>“Hands Of Gold” - Orchestra</p><p><center><img width="640" height="640" src="/images/news_rus/2016.06/29447.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 23.06.2016 news DELAIN: New album in August
+
+<p>Dutch gothic metal formation DELAIN will release their new album "Moonbathers August 26 via Napalm Records. The mastering was done by the Grammy award winner Ted Jensen. The CD will include a cover version of a QUEEN song, and the vocals for the opening track “Hands Of Gold" recorded Alissa White-Gluz of ARCH ENEMY.</p><p>Track list:</p><p>“Hands Of Gold” (Featuring Alissa White-Gluz)<br>“The Glory And The Scum”<br> “Suckerpunch”<br> “The Hurricane”<br> “Chrysalis - The Last Breath”<br> “Fire With Fire”<br> “Pendulum”<br> “Danse Macabre”<br> “Scandal”<br> “Turn The Lights Out”<br> “The Monarch”<br>&nbsp;<br>Bonus CD<br>“Suckerpunch” - Live In The Netherlands<br>“Turn The Lights Out” - Live In The Netherlands<br>“The Glory And The Scum” - Live In The Netherlands<br>“Don't Let Go” - Live In The Netherlands<br>“The Glory And The Scum” - Orchestra<br>“Hands Of Gold” - Orchestra</p><p><center><img width="640" height="640" src="/images/news_rus/2016.06/29447.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 05.08.2016 news Lyric video от DELAIN
+
+<p>Официальное lyric video <strong>DELAIN</strong> на песню "<strong>The Glory And The Scum</strong>" можно посмотреть ниже. Новый альбом голландцев "<strong>Moonbathers</strong>" выйдет 26 августа на <strong>Napalm Records</strong> и <strong>Союзе</strong> в России.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/vtaVKW5N_VE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 05.08.2016 news Lyric video from DELAIN
+
+<p><strong>DELAIN</strong> official lyric video for the song "<strong>The Glory And The Scum</strong>" can be viewed below. The new album of the Dutch "<strong>Moonbathers</strong>" will be released on August 26 via <strong>Napalm Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/vtaVKW5N_VE" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 26.08.2016 reviews DELAIN играют &quot;женский вокал&quot;
+
+<p>Голландцы DELAIN, некогда предлагаемые любителям женского вокала как проект бывшего клавишника WITHIN TEMPTATION Martijn Westerholt, постепенно сформировались в отдельную величину на мировой сцене. Удивительный факт, сколько групп с женским вокалом родом из Нидерландов верховодят в современном gothic metal. На этом фоне DELAIN не являются лидерами, но в любой другой стране это был бы прорыв и национальная гордость.</p><p>Певица DELAIN Charlotte Wessels обладает великолепными вокальными данными для gothic metal. Она не имеет амбиций называть себя оперным сопрано, а с традиционным женским вокалом&nbsp; справляется отлично. Её голос в меру эмоционален и привлекает к себе внимание слушателя. Группам подобного толка просто необходима такая певица, ведь встречают и провожают в gothic metal с женским вокалом исключительно по вокалистке. Безусловно, необходима ещё и качественная музыка, с написанием которой Martijn Westerholt справляется. Стиль DELAIN находится где-то между EPICA и EVANESCENCE. Есть несколько тяжёлых помпезных композиций, в одной из которых даже рычит вездесущая Alissa из ARCH ENEMY, остальные треки представляют собой типичный pop metal с простыми, но трогательными мелодиями.</p><p>Типичный альбом для всех поклонников EPICA, AFTER FOREVER, WITHIN TEMPTATION и многих других групп. DELAIN не приемлют никаких экспериментов, поэтому писать много о «Moonbathers” не требуется, и в дополнительном представлении группа не нуждается. Она играет «женский вокал», и это всё, что нужно о ней знать. <br></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.02.2009 news Выходит второй одноименный альбом группы ОТКРОВЕНИЯ ДОЖДЯ
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.02/13652.jpg" width=300 align=right border=5>Solitude productions</STRONG> представляет второй альбом российской группы <STRONG>ОТКРОВЕНИЯ ДОЖДЯ</STRONG>! Одноимённый альбом был профессионально записан расширенным до квинтета составом в <STRONG>Primordial Studio</STRONG> (известной по работе с Abstract Spirit и Twilight Is Mine) и представляет собой новый шаг в развитии группы. Новая работа <STRONG>ОТКРОВЕНИЯ ДОЖДЯ</STRONG> ознаменована уходом в более мелодичную и в то же время мрачную сторону doom death metal, становясь абсолютно необходимым приобретением для поклонников<STRONG> Officium Triste</STRONG> и <STRONG>Mourning Beloveth</STRONG>!</P>
+<P>Ссылка: <A href="http://od-doom.com/">http://od-doom.com/</A><BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

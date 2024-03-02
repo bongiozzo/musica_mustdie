@@ -24,6 +24,28 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.03.2002 news Распались OBLIVEON ...
+
+<P>Распалась старая канадская команда "OBLIVEON". Как сказанор в официальном заявлении группы: "...после 15 лет, четырех альбомов и множества концертов, каждый участник группы решил заниматься своими делами. Мы хотели бы поблагодарить всех фэнов и медиа, поддерживавших нас все эти годы. Гитаристы Martin Gagne и Pierre Remillard основали новый проект и уже сочиняют новые песни для него... " </P></>
+<P> </P></>
+<P>Прощальный концерт "OBLIVEON" состоится 31 мая в Монреале как часть Extreme Weekend Festival. Также будут участвовать: QUO VADIS, GHOULUNATICS, MARTYR, NEURAXIS. HOWLING SYN, SOULFORGE, and LIVA. </P></>
+<P> </P></>
+<P>GWN Records America/Grind It! Records собираются выпустить “greatest hits” альбом к тому времени... </P></>
+<P> </P></>
+
+Автор: Yermola
+
+### 20.03.2002 news OBLIVEON Call It Quits After 15 Years ...
+
+<P>Veteran Canadian metallers OBLIVEON have decided to call it a day. According to the band's official statement announcing the split, “after 15 years, four albums and lots of shows, the guys in the band decided to pursue other interests. We'd like to sincerely thank all the fans and media who supported us throughout the years. [Guitarists] Martin [Gagne] and Pierre [Remillard] are starting a project and are still composing new songs, so expect something to come out of these guys in the future.” </P></>
+<P> </P></>
+<P>OBLIVEON will be performing a farewell show on May 31st at the Medley in Montreal as part of the Extreme Weekend Festival, which will take place on May 31st-June 2nd and will also feature such acts as QUO VADIS, GHOULUNATICS, MARTYR, NEURAXIS. HOWLING SYN, SOULFORGE, and LIVA. In addition, GWN Records America/Grind It! Records will release an OBLIVEON “greatest hits” album entitled OBLIVEON Greatest Pits, which will be available for sale at the above-mentioned gig. </P></>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -26,6 +26,22 @@ The CD was recorded at Ultrasound Studios in Braga, Portugal with producer Danie
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.01.2012 news Новый клип ANNEKE VAN GIERSBERGEN
+
+<P>Новый ролик бывшей участницы <STRONG>THE GATHERING Anneke Van Giersbergen</STRONG> на трек "<STRONG>Take Me Home</STRONG>" можно посмотреть ниже. Песня вошла на новейший альбом вокалистки "<STRONG>Everything Is Changing</STRONG>", который вышел вчера.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Pu0ZWRKgi_E?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.07.2013 news Anneke Van Giersbergen: подробности нового альбома
+
+<P>Бывшая вокалистка голландской группы <STRONG>THE GATHERING</STRONG> Аннеке ван Гирсберген, опубликовала на своём сайте название,&nbsp;трек-лист и обложку своего нового альбома. Диск,&nbsp;выход которого запланирован на 27 сентября этого года, получил название<STRONG> "Drive"</STRONG>.</P>
+<P><IMG border=0 hspace=5 alt="" align=right src="/images/news_rus/2013.07/25859.jpg" width=350 height=346>Трек-лист:</P>
+<P>01. <STRONG>We Live On<BR></STRONG>02. <STRONG>Treat Me Like A Lady<BR></STRONG>03. <STRONG>She</STRONG><BR>04. <STRONG>Drive</STRONG><BR>05. <STRONG>My Mother Said<BR></STRONG>06. <STRONG>Forgive Me<BR></STRONG>07. <STRONG>You Will Never Change<BR></STRONG>08. <STRONG>Mental Jungle<BR></STRONG>09. <STRONG>Shooting For The Stars<BR></STRONG>10. <STRONG>The Best Is Yet To Come</STRONG></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

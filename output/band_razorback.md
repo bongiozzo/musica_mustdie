@@ -27,6 +27,48 @@
 * C группой "Axxis" Andre Hilgers (drums)
 * C группой "Silent Force" Andre Hilgers (drums)
 
+## Публикации
+
+### 05.04.2004 news Razorback - ещё одна новая группа
+
+<P><B>RAZORBACK</B> выпускают дебютный альбом <B>"Animal Anger"</B> 26 апреля на<B> Massacre.</B> Группа создана известными музыкантами: <B>Rolf Munkes</B> (guitar, <B>MAJESTY</B>, ex-<B>VANIZE</B>), <B>Stefan Berggren</B> (vocals, ex-<B>COMPANY OF SNAKES</B>), <B>Marcus Bielenberg</B> (bass, ex-<B>VANIZE</B>), <B>Pierre Fienhold</B> (drums, ex-<B>VANIZE</B>)&nbsp;и <B>Chris Heun</B> (guitar, ex-<B>SHYLOCK</B>). Трэк-лист:</P>
+<P>01. <B>The Hymn</B><BR>02. <B>One By One</B><BR>03. <B>A New King In Town</B><BR>04. <B>Kiss Of Death</B><BR>05. <B>Fire And Rain</B>&nbsp;<BR>06. <B>Release Me</B><BR>07. <B>Lone Wolf</B><BR>08. <B>The Eye Of The Storm</B><BR>09. <B>Bastard</B><BR>10. <B>Dead Man's Song</B> </P>
+Автор: Vit Belov
+
+### 05.12.2004 reviews Клон Coverdale и metal-музыканты – чьё влияние сильнее?
+
+<P><STRONG>RAZORBACK</STRONG> – группа, о которой уже до выхода первого альбома было сказано достаточно много. Вокалист – <STRONG>Stefan Berggren</STRONG>, который работал в <STRONG>COMPANY OF SNAKES</STRONG> клоном <STRONG>David Coverdale</STRONG>, гитарист и ритм-секция из <STRONG>VANIZE</STRONG>. Также два члена коллектива играли в немецком клоне <STRONG>MANOWAR MAJESTY</STRONG>. Ну что ж, поклонников <STRONG>MAJESTY</STRONG> и даже <STRONG>VANIZE</STRONG> попрошу удалиться, а вот фэны <STRONG>Stefan</STRONG> могут остаться.</P>
+<P><STRONG>‘Animal Anger’</STRONG> – melodic hard-rock, который может пригодиться всем любителям стиля. А если учесть, что здесь поёт «почти» <STRONG>Coverdale</STRONG>, возможно не просто пригодиться, но и понравиться. Большинство песен среднетемповые, мелодичные полубаллады. Боевики напоминают работы, сами знаете кого:)))</P>
+<P>Я не являюсь большим поклонником и знатоком подобной музыки. Могу только сказать, что мастерство и мелодика на хорошем уровне, а вот реализация немного мягка для hard-rock, при чём это не так задумано, а так получилось. Заслушайте.</P>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">Art-Music</A></P>
+Автор: Vit Belov
+
+### 03.02.2005 news RAZORBACK готовы к записи второго альбома
+
+<P><STRONG>RAZORBACK</STRONG> начинают запись второго альбома. Работа идёт в собственной студии одного из лидеров коллектива гитариста <STRONG>Rolf Munkes</STRONG>.</P>
+Автор: Vit Belov
+
+### 01.06.2005 news RAZORBACK поменяли барабанщика
+
+<P>Барабанщик<STRONG> Pierre Fienhold</STRONG> покинул <STRONG>RAZORBACK</STRONG> по личным мотивам. Новым музыкантом группы стал <STRONG>Andre Hilgers</STRONG> (<STRONG>AXXIS, SILENT FORCE</STRONG>). Новая пластинка коллектива увидит свет в октябре или ноябре на <STRONG>Massacre</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.07.2005 news Новый альбом RAZORBACK
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>RAZORBACK</STRONG> будет называться "<STRONG>Criminal Justice</STRONG>" и выйдет 24 октября на <STRONG>Massacre</STRONG>.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 19.07.2005 news RAZORBACK&#39;s new album
+
+<P>The new album of <STRONG>RAZORBACK</STRONG>&nbsp;will be titled "<STRONG>Criminal Justice</STRONG>" and released on October 24 by <STRONG>Massacre Records</STRONG>. </P>
+Автор: Vit Belov
+
+### 22.01.2007 news RAZORBACK пишут новый альбом
+
+<P><STRONG>RAZORBACK</STRONG> пишут новый альбом, который выйдет в апреле на <STRONG>Metal Heaven</STRONG>. Все барабанные партии на пластинке уже записал знаменитый<STRONG> Mike Terrana</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

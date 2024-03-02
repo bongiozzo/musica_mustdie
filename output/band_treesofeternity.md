@@ -28,6 +28,9 @@ Produced, recorded, mixed and mastered at Fascination Street Studios 1 in Цrebr
 * C группой "October Tide" 
 * C группой "Wintersun" 
 
+## Публикации
+
+
 ## Обсуждения
 
 

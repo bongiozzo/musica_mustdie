@@ -112,6 +112,103 @@ Bonus track:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.12.2000 news Первый альбом Skyfire готов к выпуску.
+
+<p>Дебютный альбом Skyfire получил название "Timeless Departure", официальная дата его выхода установлена на 12 марта 2001 года. Альбом будет состоять из интро и 8 песен приблизительно на 42 минуты. Материал довольно мелодичный и прогрессивный. Это примерно то, как если бы Dark Tranquillity скрестить с Rhapsody и c Children Of Bodom... весьма металлический, мелодичный и с классическими влияниями (разумеется, с гитарными соло). Skyfire записали свой первый полноформатный альбом в Abyss Studios. Контракт на его реализацию был подписан с голландским лейблом Hammerheart Records.</p>
+
+Автор: Morsus
+
+### 24.12.2000 news Skyfire album is finished.
+
+<p>The debut album of Skyfire is called "Timeless Departure" and his releasedate has been set to 12th of March 2001. The album will consist of intro plus 8 tracks of about 42 minutes. The material is very melodic and progressive. It is like Dark Tranquillity meets Rhapsody meets Children Of Bodom... So very metal, melodic and with classical influences (and guitar-solos of course). Skyfire has recorded their first full length album in Abyss Studios. A contract has been signed with dutch Hammerheart Records.</p>
+
+Автор: Morsus
+
+### 19.03.2001 reviews Очень мелодичный metal с классическими вставками и обилием гитарных соло
+
+<p>Очень мелодичный metal с классическими вставками и обилием гитарных соло. Музыка Skyfire находится под влиянием большого количества различных жанров. В первую очередь , это конечно death, black и power metal. Одна из немногих шведских групп, которая играет музыку по финскому образцу. Энергичная мелодичная музыка со сбивками ритма, обилием клавишных и гитарных изысканий, техничных выкрутасов. Просто потрясающий безбашенный альбом, особенно если учитывать, что это дебют группы. Стилистически этот альбом лежит в плоскости между Children Of Bodom и Thyrfing. Грамотная постановка звука, интереснейший материал с напрочь запоминающимися ходами и стопроцентными хитами. Ни одной проходной вещи. Несмотря на запись в Abyss Studio под руководством Tommy Tagtgren'а запись звучит довольно свежо и не содержит особо заезженных шведских штампов. На редкость красивое сочетание мелодики и агрессии. Советую как любителям шведского, так и финского melodic metal.</p>
+
+Автор: Dimas
+
+### 12.03.2002 news Skyfire летом идут в студию
+
+<p>Skyfire отправятся этим летом в Abyss Studio записывать второй лонгплэй вместе с Томми Тагтгреном.</p>
+
+Автор: Morsus
+
+### 12.03.2002 news Skyfire in studio this summer
+
+<p>Skyfire will enter the Abyss Studio in the summer to record their second longplayer with Tommy Tagtgren.</p>
+
+Автор: Morsus
+
+### 25.10.2002 news Skyfire записали новый альбом
+
+<p>Skyfire вернулись из легендарной студии Abyss, где вместе с продюсером Томми Тагтгреном записали продолжение своего весьма успешного дебюта "Timeless Departure". Название нового альбома - "Mind Revolution" и выход его намечен на апрель 2003 года. Альбом ожидается более разнообразный, лучше структурированный и с более качественным звуком.</p>
+
+Автор: Morsus
+
+### 25.10.2002 news Skyfire have recorded the new album
+
+<p>Skyfire returned from the studio where they recorded the follow-up to their very successful debut-album "Timeless Departure". The new album is again recorded at the legendary Abyss Recording Studio in Sweden, together with producer Tommy Tagtren. The title of the new album is "Mind Revolution". We can expect a more diverse, better structured and even better sounding album. The album is scheduled for an April 2003 release.</p>
+
+Автор: Morsus
+
+### 15.04.2003 reviews Пресная, безликая и напрочь неинтересная работа
+
+<p>В своё время, когда вышел этот альбом (а было это в 2001 году), его на удивление дружно хвалили. Все, кто только мог. Хвалят и поныне, правда, менее активно. Возникает очевидный вопрос: так уж ли он на самом деле хорош? Мой ответ: нет, не так хорош. И вообще не хорош. Ибо "Timeless Departure" представляет собой несколько нестандартную "шведятину" – и нестандартность не спасает, поскольку альмомец сей неимоверно, чудовищно скучен. Пресная и напрочь неинтересная работа. К тому же ещё и безликая. Впрочем, вряд ли мой голос будет услышан в адском гвалте, имя которому – безумное восхищение. Ну и восхищайтесь на здоровье.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 13.01.2004 news Skyfire подписались на Arise
+
+<P><IMG height=110 alt="" hspace=0 src="/images/news_rus/2004.01/5849.jpg" width=200 align="left" border=0>Шведы <B>SKYFIRE</B> подписали контракт с <B>ARISE</B>. Новый альбом, который будет записан в феврале-марте в <B>Los Angered Studios & Underground Studios</B>, выйдет в мае. Напомним, что группа выпустила до этого два альбома на <B>Hammerheart</B>. Неужели теперь они станут играть power-metal?</P>
+Автор: Vit Belov
+
+### 13.01.2004 news Skyfire signed deal with ARISE
+
+<IMG height=110 alt="" hspace=0 src="/images/news/2004.01/5850.jpg" width=200 align="left" border=0>The Swedish Death Metal band <B>SKYFIRE </B>signs with <B>Arise Records</B>, after 2 albums released through <B>Hammerheart Records</B> ("<B>Timeless Departure</B>" (2001) and "<B>Mind Revolutions</B>" (2003)), the band will record their third album in February/March 2004 at <B>Los Angered Studios & Underground Studios</B> to be released in May 2004
+Автор: Vit Belov
+
+### 28.04.2004 news SKYFIRE выпускают новый альбом
+
+<P><B><IMG height=205 alt="" hspace=0 src="/images/news_rus/2004.04/6451.jpg" width=300 align="right" border=5>SKYFIRE</B> выпускают новый альбом '<B>Spectral</B>' в конце мая на <B>ARISE</B>. Трэк-лист: <B>1. Conjuring the Thoughts&nbsp;2. Effusion of Strength 3. Shivering Shade 4. Cursed by Belief 5. Awake 6. Void of Hope 7. A Dead Mans Race 8. Shadow Creator &nbsp;9. Tranquillitys Maze</B><BR></P>
+Автор: Vit Belov
+
+### 28.04.2004 news SKYFIRE to release new album
+
+<B><IMG height=205 alt="" hspace=0 src="/images/news/2004.04/6452.jpg" width=300 align="right" border=5>SKYFIRE</B> will release their third album entitled '<B>Spectral</B>' late May. Featuring 9 new studio tracks recorded at <B>Los Angered</B> and <B>Underground Studios</B> in Sweden. Tracklist:<BR><B>1. Conjuring the Thoughts 2. Effusion of Strength 3. Shivering Shade 4. Cursed by Belief 5. Awake 6. Void of Hope 7. A Dead Mans Race 8. Shadow Creator &nbsp;9. Tranquillitys Maze</B><BR>
+Автор: Vit Belov
+
+### 28.09.2004 reviews Нетривиальный клон CHILDREN OF BODOM
+
+<P><EM><STRONG>SKYFIRE</STRONG> - шведская группа, играющая мелодичный экстремальный металл на стыке death и black-metal. Это первая группа подобного толка на power-metal лэйбле <STRONG>ARISE records</STRONG>.</EM></P>
+<P>'<STRONG>Spectral</STRONG>' можно смело назвать удачным альбомом, и испанская контора не прогадала с приобретением <STRONG>SKYFIRE</STRONG>. До максимальной оценки шведам далеко, но у их melodic-death-black metal, несомненно, есть как минусы, так и плюсы. </P>
+<P>Начнём с минусов... За ориентир на этом альбоме группа выбрала <STRONG>CHILDREN OF BODOM</STRONG>, что, согласитесь, уже несколько лет, как не очень оригинально. Само построение композиций не очень динамично. Очень часто забой и мелодия не совпадают по времени. Куплет и припев проходят в однообразном ритме, и только в проигрыше всплывает мелодия и соло. Как известно, у финских прототипов <STRONG>SKYFIRE </STRONG>всё это отлично совмещается. Из-за подобного стечения обстоятельств музыка&nbsp;группы не воспринимается, как единое целое. А ведь именно мелодика привлекает слушателя в альбомах подобных этому.</P>
+<P>Но есть и плюсы... Главный из них состоит в том, что группа не финская. Да-да... Я не сошёл с ума! Просто финские последователи <STRONG>CHILDREN OF BODOM</STRONG> напоминают группу не только стилистически, но и мелодически. Здесь подобного нет, и&nbsp;сам "набор нот" звучит достаточно свежо, мелодии совсем незаезженные.</P>
+<P>В итоге мы получаем качественный альбом&nbsp;в популярном на сегодня жанре, который рекомендуется к приобретению всеми любителями <STRONG>CHILDREN OF BODOM и Co</STRONG>.</P>
+<P>[+] - незаезженность мелодий, качество от&nbsp;<STRONG>Andy&nbsp;LaRocque</STRONG></P>
+<P>[-] -&nbsp;рваная композиция песен&nbsp;</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 18.04.2008 news Новый альбом SKYFIRE
+
+<P>Шведский коллектив&nbsp;<B>SKYFIRE</B> записывает свой четвертый альбом под названием <STRONG>"Esoteric".</STRONG> Его выход запланирован осенью на <STRONG>Pivotal Rockordings</STRONG>. Оформлением обложки занимается <B>P&#228;r Olofsson</B>, ранее работавший с <B>BRAIN DRILL</B>, <B>PSYCROPTIC</B>, <B>SPAWN OF POSSESSION</B> и <B>PERSUADER</B>. Процесс записи проходит в гетеборгской <B>Powernest Studios</B>. Сведение и мастеринг альбома выполнит <B>Jonas Kjellgren</B> (<B>SCAR SYMMETRY</B>) в <B>Black Lounge Studios</B> (<B>SONIC SYNDICATE</B>, <B>SCAR SYMMETRY</B>, <B>THE ABSENCE</B>, <B>ZONARIA</B>). По словам музыкантов, новый альбом будет иметь традиционное звучание, но при этом в нем будут содержаться некоторые новые элементы, с которыми до сих пор группа не экспериментировала.</P>
+Автор: Dimas
+
+### 05.03.2009 news Новый альбом SKYFIRE осенью
+
+<P>Четвёртая пластинка<STRONG> SKYFIRE</STRONG> <STRONG>"Esoteric" </STRONG>выходит осенью на<STRONG> Pivotal Recordings</STRONG>. Обложку для альбома нарисовал<STRONG> Par Olofsson</STRONG>. Пластинка была записана в <STRONG>Powernest Studios</STRONG>.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.03/13707.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

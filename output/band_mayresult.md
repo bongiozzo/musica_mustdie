@@ -16,6 +16,28 @@ Yugoslavian gothic-sympho-black
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.09.2000 reviews Великолепные симфонии зла
+
+<p>Великолепные симфонии зла. Gothic-sympho-black-metal из Югославии. Превосходный, совершенно неожиданный альбом. Оригинальный альбом, только очень придирчивый слушатель может уловить нотки в духе Cradle Of Filth. Но все поверхностно и относительно. Такое больше пока никто не играет. Такая же мелодичная и быстрая музыка с похожими рефренами, клавишной атмосферой и симфоническими аранжировками. Много нюансов. Звук ритм-гитары не отшлифован и сильно напоминает андерграундный звук, что делает общий звук не свойственным black-metal. Клавиши органного типа. Иногда слышится голос потрясной фемины с ангельским сопрано. Много соло-гитары, иногда слышится флейта. Все очень мелодично и ослепительно красиво. Сама музыка бодрящая и завораживающая одновременно. Настоящие величественные симфонии ветра. Можно упрекнуть в некотором однообразии, почти неуловимом. Зато создается впечатление, что слушаешь одну цельную восхитительную песню. Рекомендую.</p>
+
+Автор: Dimas
+
+### 24.12.2001 reviews Тоскливый симфо-блэк
+
+<p>Второй альбом группы, представляющей симфо-блэк Югославии. Первое, что бросилось в глаза, это невероятная каша звука, которая вываливается из динамиков Вам в уши. После первого прослушивания обращаешь внимание только на акустические инструменталы с солирующей скрипкой, которые навевают такую невероятную тоску, что хочется стреляться. Это знаете, как играл Шерлок Холмс, когда думал... Тоскливо и протяжно, мелодии связной нет, зато грустно. Со второго прослушивания начинаешь прислушиваться к мелодиям в основных симфо-блэк песнях. Всё достаточно прикольно, но совсем не оригинально. Крепкая работа с плохой реализацией, что мешает полностью прочувствовать все задумки авторов. Советую любителям симфо-блэка, обратить на это внимание можно: 3 с плюсом.</p>
+<p>Диск предоставлен департаментом по зарубежному репертуару концерна "Группа СОЮЗ".</p>
+
+Автор: Vit Belov
+
+### 09.01.2002 reviews Melancholy sympho-black
+
+<p>The second album of band representing sympho-black from Yugoslavia. First, that has rushed in eyes, it is improbable porridge of a sound, which is thrown out from dinamics in ears. After the first listening pay attention only on acoustic instrumentals with a were the soloist violin, which cast such improbable melancholy, that it would be desirable to be shot. It know, how played Sherloke Holmes, when thought... Melancholy and lingeringly, melody coherent is not present, but is sad. From the second listening begin to listen to melodies in basically sympho-black songs. There is enough cool, but it is completely not original. The strong work with bad realization, that prevents completely to experience all ideas of the authors. I advise to the fans of sympho-black, it is possible to pay on this attention: 3 with plus.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

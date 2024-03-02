@@ -22,6 +22,9 @@ Atilla From Mayhem & Hardcore Members
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

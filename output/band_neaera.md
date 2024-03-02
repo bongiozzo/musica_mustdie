@@ -90,6 +90,55 @@ Dietz. The artwork was created by Terje Johnsen.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.01.2008 reviews В моду входит death-metal?
+
+<P>Ещё один metalcore/melodic-death-metal подарок от Metal Blade. Маятник вновь качнулся, и в моду входят группы с более тяжёлым саундом. Долой чистый вокал, долой мелодичные риффы в духе IN FLAMES! Побаловались и хватит. Такие группы, как THE BLACK DAHLIA MURDER, AS I LAY DYING, которые принято называть metalcore, приносят присягу на верность death-metal, лишь немного разбавляя его стандартными для американского рынка core-фишками.</P>
+<P>Немцы NEAERA относятся к этому ряду. Два их первых альбома, издававшихся на Metal Blade в 2005 – 2006 годах, не вызвали у фирмы «Фоно» энтузиазма и были благополучно пропущены российским лэйблом. И вот новый альбом “Armamentarium”. Мощные риффы, игра со звуком, мелодичные куски, сменяемые ужасным death-metal «рубиловом». Напористости музыки NEAERA можно позавидовать. К сожалению, с музыкальными идеями у этих немцев не так хорошо, как у ведущих коллективов жанра, но этот недостаток компенсируется «мясным» звучанием, созданным при участии знаменитого ныне Jacob Hansen (RAUNCHY, AMATORY).</P>
+<P>Ещё один «кирпичик» в нарождающиеся коллекции фэнов стиля death/metalcore. Мощная и удручающе не модная музыка. Лучше классических стилей death, thrash и hardcore всё равно уже ничего не придумать.</P>
+Автор: Vit Belov
+
+### 05.12.2008 news NEAERA войдут в студию
+
+<P><STRONG>NEAERA </STRONG>готовятся войти в студию 12 января. Новая работа группы выйдет в мае 2009 года на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.01.2009 news NEAERA вошли в студию
+
+<P><STRONG>NEAERA </STRONG>сочинили песни для своего нового пока не названного альбома и вошли в студию <STRONG>Rape Of Harmonies</STRONG> с продюсером <STRONG>Alexander Dietz</STRONG> (<STRONG>HEAVEN SHALL BURN</STRONG>). Пластинка выйдет 25 мая на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.02.2009 news NEAERA закончили запись
+
+<P><STRONG>NEAERA</STRONG> закончили запись своего нового альбома для релиза 25 мая на <STRONG>Metal Blade</STRONG>. Группа назвала свою пластинку <STRONG>'Omnicide – Creation Unleashed'</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.03.2009 news Картинка NEAERA
+
+<P>Новый альбом <STRONG>NEAERA "Omnicide – Creation Unleashed"</STRONG>&nbsp;выходит 25 мая на <STRONG>Metal Bla</STRONG>de. Обложку альбома можно посмотреть ниже.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.03/13801.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.05.2009 news Весь альбом NEAERA
+
+<P>Все песни с нового альбома <STRONG>NEAERA</STRONG> <STRONG>"Omnicide - Creation Unleashed" </STRONG>можно послушать на<STRONG> MySpace</STRONG> страничке: <A href="http://www.myspace.com/neaera">http://www.myspace.com/neaera</A></P>
+<P>Альбом выйдет 25 мая на <STRONG>Metal Blade.</STRONG></P>
+Автор: Vit Belov
+
+### 26.06.2009 news Видео NEAERA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео немцев <STRONG>NEAERA</STRONG> <STRONG>"Prey to Anguish" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=59495319">NEAERA - Prey To Anguish</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=59495319,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=59495319,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

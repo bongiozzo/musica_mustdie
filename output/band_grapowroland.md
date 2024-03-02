@@ -62,6 +62,21 @@ Ferdy Doernberg - Keyboards
 * C группой "Masterplan" Roland Grapow
 * C группой "Michael Vescera Project" Roland Grapow
 
+## Публикации
+
+### 13.11.2001 news Новая группа Роланда Граппова и Ули Кюш...
+
+<p><IMG SRC="/images/news_rus/2001.11/1975.gif" ALT="pho" width="163" height="76" hspace="15" vspace="5" border="1" align="right"> Похоже, что выходцы из "HELLOWEEN" - гитарист Граппов и барабанщик Кюш определились с названием для своей новой группы - "MR. TORTURE". Вы можете поделиться своими впечатлениями о названии и лого на сайте Граппова <A HREF="http://www.truemetal.org/kaleidoscope/discography/projects2.php">здесь....</A></p>
+
+Автор: Yermola
+
+### 13.11.2001 news The brand new band of former HELLOWEEN guitarist Roland Grapow...
+
+<p><IMG SRC="/images/news_rus/2001.11/1975.gif" ALT="pho" width="163" height="76" hspace="15" vspace="5" border="1" align="right"> The brand new band of former HELLOWEEN guitarist Roland Grapow and drummer Uli Kusch is currently going by the moniker MR. TORTURE. However, the new name is not yet set in stone, as the duo are asking for the fans’ opinions and new suggestions, which can be submitted via Grapow’s official web site <A HREF="http://www.truemetal.org/kaleidoscope/discography/projects2.php">at this location... </A></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

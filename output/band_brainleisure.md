@@ -31,6 +31,9 @@ Equipment: Akai S2800, Roland W30, Roland Upiter 4,Korg MS-20, Waldorf Microwave
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

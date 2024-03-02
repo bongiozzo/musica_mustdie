@@ -49,6 +49,81 @@ One for the Ditch
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.05.2005 reviews Тру-металлическая машина времени
+
+<P>… Наплевать, что за окном 21 век. Наплевать, что в почете нынче готика, блэк и пластиковый пауэр. Наплевать, что отсутствие клавиш стало дурным тоном. Ведь&nbsp; остались еще те, для кого важны традиции, кто, не поддавшись сомнительным веяниям моды, продолжает нести флаг с надписью «HMR»…<BR>&nbsp;<BR>От слов – к делу. Американцы 3 INCHES OF BLOOD играют бескомпромиссный «ура-героический» True-Heavy-Metal. Лирика соответствующая – кровожадные пираты, орки, Властелины Штормов, мечи, топоры, призраки и прочие около-фэнтэзийные прибамбасы. Рисунок на обложку, кстати, нарисовал небезызвестный Эд Репка (MEGADETH, NUCLEAR ASSAULT, EVILDEAD, DEATH etc.) – мускулистые варвары с секирами в духе Бориса Валеджо (или Вальехо?..). Однако, консерваторы.</P>
+<P>Материал из серии, что называется, «ни шагу назад!» - никаких медляков или баллад, мощное звучание, драйв на повышенных скоростях, красивые гитарные соло и обилие хороших мелодий. Отменно получилась задумка с вокалами, коих здесь две штуки – один, высокий и пронзительный, похож на композит из голосов двух немецких господинов - Удо Диркшнайдера и Томаса Реттке, второй – контрастирующий с ним и добавляющий брутальности злющий истеричный скриминг. Композиция “Lord Of The Storm” звучит как дань уважения великим германским корсарам RUNNING WILD, “Crazy Nights” – привет почившим в бозе HEAVEN’S GATE, а “Axes Of Evil” прекрасно смотрелась бы в каком-нибудь из альбомов U.D.O.… Здесь нет ничего нового, ничего современного и ничего оригинального. Всего лишь три дюйма старой железной крови. Но лично я “Advance And Vanguish” прослушал с большим удовольствием, и не один раз.</P>
+Автор: Dr. Grandma
+
+### 13.05.2009 news 3 INCHES OF BLOOD на Century Media
+
+<P><STRONG>3 INCHES OF BLOOD</STRONG> подписали контракт на выпуск нового альбома с <STRONG>Century Media</STRONG>. Пластинка ожидается осенью этого года. Работа над альбомом началась в середине апреля, но была прервана, из-за тура группы с <STRONG>SLIPKNOT</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.07.2009 news Новости от 3 INCHES OF BLOOD
+
+<P>Канадцы <STRONG>3 INCHES OF BLOOD</STRONG> выложили новую песню под названием <STRONG>"Call of the Hammer" </STRONG>на своей Myspace-странице: <A href="http://www.myspace.com/3iob">http://www.myspace.com/3iob</A>. <STRONG>"Call of the Hammer"</STRONG> войдёт в четвёртый альбом группы под названием <STRONG>"Here Waits Thy Doom"</STRONG>.<STRONG> </STRONG>Доступны сет-лист и обложка нового альбома.</P>
+<P><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.07/14509.jpg" width=400 align=right vspace=5 border=0>Трек-лист:</P>
+<P>01. <STRONG>Battles And Brotherhood</STRONG><BR>02. <STRONG>Rock In Hell</STRONG><BR>03. <STRONG>Silent Killer</STRONG><BR>04. <STRONG>Fierce Defender</STRONG><BR>05. <STRONG>Preachers Daughter<BR></STRONG>06. <STRONG>Call Of The Hammer<BR></STRONG>07. <STRONG>Snake Fighter</STRONG><BR>08. <STRONG>At The Foot Of The Great Glacier</STRONG><BR>09. <STRONG>All Of Them Witches</STRONG><BR>10. <STRONG>12:34</STRONG><BR>11. <STRONG>Execution Tank</STRONG></P>
+<P>Так же, группа записала несколько кавер-версий, которые будут использоваться в качестве бонус треков к различным изданиям альбома:</P>
+<P>01. <STRONG>Not Fragile</STRONG> (<STRONG>BACHMAN-TURNER OVERDRIVE</STRONG>)<BR>02. <STRONG>Cities on Flame</STRONG> (<STRONG>BLUE &#214;YSTER CULT</STRONG>)<BR>03. <STRONG>Daytona</STRONG> (<STRONG>ZEKE</STRONG>)</P>
+Автор: Headcrusher
+
+### 09.04.2010 reviews Rock in Hell
+
+<P>Группа из столицы последней зимней олимпиады Ванкувера 3 INCHES OF BLOOD до сих пор не очень известна в нашей стране, а между тем “Here Waits Thy Doom” уже четвёртый альбом, и в её карьере были такие лэйблы, как Roadrunner и Century Media.</P>
+<P>Коллектив на своём новейшем альбоме представляет оригинальный вариант heavy-metal. Черпая вдохновение в работах классиков, AC/DC и IRON MAIDEN, канадцы передают свою музыку в эфир на феноменальных скоростях и со сногсшибательным качеством звучания. Тяжесть и мелодичность вкупе с хитовостью и некоторой развязностью являются основными чертами этого альбома. 3 INCHES OF BLOOD – типичная «фанатская» группа. Музыканты, собравшие её, наверняка большие поклонники тяжёляка, и их музыка демонстрирует, каким они хотели бы видеть свой любимый стиль в наши дни. Все трэки этого альбома заставляют «хэдбэнгеров» вспоминать своё славное прошлое, а несколько несомненных хитов позволяют утверждать, что 3 INCHES OF BLOOD не просто группа подражателей.</P>
+<P>Отличный свежий альбом в heavy-metal. Безусловно, ему не светит популярность новых работ AC/DC или IRON MAIDEN, но мне кажется, он вполне её достоин. Эти ребята по-прежнему любят то, что делают, а это многого стоит.</P>
+Автор: Vit Belov
+
+### 03.05.2010 news 3 INCHES OF BLOOD снимут DVD
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.05/16657.jpg" width=200 height=250>Канадцы&nbsp;<B itxtvisited="1">3 INCHES OF BLOOD</B> готовятся к съёмкам своего первого концертного DVD. Произойдёт это 21 и 22 мая в родном городе музыкантов - Ванкувере.</P>
+<P>Комментирует вокалист&nbsp;<STRONG>Cam Pipes</STRONG>:<EM> "21 и 22 мая бессомненно станут наиболее монументальными днями в истории <STRONG>3 INCHES OF BLOOD</STRONG>.&nbsp;Не только потому-что мы сыграем&nbsp;два концерта подряд&nbsp;в нашем родном городе на одной из новых и&nbsp;самых многообещающих&nbsp; площадок, которые когда-либо были в Ванкувере на протяжении долгого времени, но так же потому, что мы снимем оба этих&nbsp;шоу для дальнейшего выпуска на DVD.</EM></P>
+<P><EM>"Что-бы сделать эти концерты ещё более особенными, мы сыграем разный набор песен для каждого дня".</EM></P>
+<P><EM>"Мы надеемся, что все&nbsp;запомнят эти концерты&nbsp;на долгие&nbsp;года. И, конечно же, приложим все усилия, что бы сделать их весёлыми и незабываемыми."</EM></P>
+Автор: Headcrusher
+
+### 16.04.2011 news Видео-клип от 3 INCHES OF BLOOD
+
+<P>Новое видео <STRONG>3 INCHES OF BLOOD</STRONG> на песню <STRONG>"12:34" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Tom MacLeod</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Fj5uj-Lo3Ck?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Fj5uj-Lo3Ck?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.01.2012 news Новая работа 3 INCHES OF BLOOD
+
+<P>Новый альбом<STRONG> 3 INCHES OF BLOOD "Long Live Heavy Metal"</STRONG> выходит 26 марта на <STRONG>Century Media</STRONG>. Продюсером работы выступил <STRONG>Terry "Sho" Murray (CITY OF FIRE)</STRONG>.</P>
+<P><center><IMG height=502 src="/images/news_rus/2012.01/22601.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 09.05.2012 news Новый клип 3 INCHES OF BLOOD
+
+<p><strong>"Metal Woman"</strong>, новейший ролик<strong> 3 INCHES OF BLOOD</strong>, можно посмотреть ниже. Песня вошла в новый альбом канадского коллектива <strong>"Long Live Heavy Metal"</strong>, который вышел 27 марта на <strong>Century Media</strong>. </p><p><center><iframe width="640" height="360" src="http://www.youtube.com/embed/_Y8xwttdjCc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.09.2012 news Новое видео 3 INCHES OF BLOOD
+
+<P>Новое видео канадских heavy-metal'истов<STRONG> 3 INCHES OF BLOOD</STRONG> на композицию <STRONG>"Leather Lord". </STRONG>Трек взят с нового альбома коллектива <STRONG>"Long Live Heavy Metal"</STRONG>, который вышел 27 марта на <STRONG>Century Media</STRONG>. </P>
+<P>На этом альбоме группа вновь работала с продюсером <STRONG>Terry "Sho" Murray</STRONG> (<B>CITY OF FIRE</B>, <B>EXHIBITIONISTS</B>). Группу считают продолжателями дела <STRONG>JUDAS PRIEST</STRONG>. В России альбом выпущен по лицензии на<STRONG> Mazzar</STRONG> и его можно приобрести в магазине: <A href="http://escapemind.ru/">http://escapemind.ru</A></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/JtQDA8dsblQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 03.06.2015 news 3 INCHES OF BLOOD распались
+
+<P>Канадская группа <STRONG>3&nbsp;INCHES OF BLOOD</STRONG>&nbsp;объявила о прекращении своего существования по причинам личного порядка.&nbsp;Последний концерт канадцы дадут 7 ноября 2015 года&nbsp;в своём родном городе Ванкувер. В заявлении группы также говорится, что все участники группы продолжат свою музыкальную карьеру, но уже в других проектах.</P>
+<P>Группа <STRONG>3 INCHES OF BLOOD</STRONG> была образована в 1999 году и выпустила 5 студийных альбомов.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.06/28065.jpg" width=660 height=438> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

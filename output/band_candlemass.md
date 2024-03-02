@@ -310,6 +310,474 @@ Lars Johansson - Guitars (lead)
 * C группой "Krux" 
 * C группой "Solitude Aeturnus" Rober Lowe (vocal)
 
+## Публикации
+
+### 15.02.1999 articles Candlemass: Epicus, Doomicus: Glomeratius
+
+<p>Похоже, что в последнее время на металлической сцене происходит возвращение титанов, которые в свое время для многих участников современных групп были чуть ли не богами. Но, как это ни печально, время не стоит на месте и одних нет уж боле, но тем не менее другие находят в себе силы, чтобы доказать, что они все еще способны сочинять и исполнять музыку, которая нужна истинным ценителям тяжелого рока.</p>
+<P> К таким титанам относится и группа Candlemass, которая впервые заявила о себе альбомом 'Epicus Doomicus Metallicus'. Наверняка ветераны помнят эту великолепную группу, ее блестящий восход и печальный закат. Тем же, кто впервые слышит об этой группе, попытаюсь объяснить, что же это было такое. А был это чистый, первозданный doom, не замутненный психоделией, ни поглощенный death-ом, не испорченный всяческими экспериментальными изысками. Это была чистая, прозрачная музыка с сильным и выразительным вокалом. Кто-то может мне возразить, что и сейчас у многих певцов сильный вокал, но я-то имею в виду совершенно иное. Я говорю о голосе, которому могли, да и до сих пор могут позавидовать многие оперные певцы, к тому же тогда песни <I>действительно</I> пели, а не рычали, и не бормотали речитативом. Наверняка те, кто знает эту группу, уже поняли, что я имею в виду человека, более известного как Мессия Марколин (Messiah Marcolin). Группа сия выпустила семь альбомов, включая один концертный альбом, после чего ее покинул Марколин. Лишившись оригинального вокалиста (не в смысле первого, а в смысле - самобытного и неповторимого), группа выпустила свой восьмой альбом под названием 'Chapter VI', который и критика и фэны приняли в штыки, так сказать, в багинеты. После выпуска сборника под названием 'The Best of Candlemass As It Is, As It Was' группа фактически прекратила свое существование.</p>
+<P> И вот, в этом, 1998 году группа восстала из пепла, а точнее, была поднята, отцом-основателем Лейфом Эдлингом (Leif Edling) и был выпущен новый альбом под названием 'Dactylis Glomerata'. А поскольку данное событие ну никак нельзя обойти стороной, то и мы решили, что этот проект заслуживает самого пристального внимания и посему об истории восстания группы из пепла нам и расскажет пресловутый Лейф Эдлинг.</p>
+<P> Для начала выясним вопрос, не опасается ли г-н Эдлинг за судьбу своего возрожденного детища, потому как альбом 'Chapter VI' оказался совершенно провальным и с коммерческой точки зрения, и в музыкальном плане. Так не повторит ли новый альбом судьбу своего предшественника или же Лейф считает, что наступила действительно новая глава в истории группы?</p>
+<P> "Да, верно. Люди должны знать, что я сейчас нахожусь в очень сложной ситуации, но я уже созрел как личность и мы не звучим как старый Candlemass, поэтому, естественно, мы находимся в очень рискованном положении. Если быть честным, то я действительно немного боюсь" - улыбается Лейф. - "Я совершенно не представляю, как люди примут наш новый альбом. Это действительно так и я совершенно не представляю себя с этим проектом на сцене".</p>
+<P> Не дергают ли тебя по поводу Мессии Марколина, ведь именно с ним группа стала тем Candlemass, который до сих пор помнят и любят многие фэны?</p>
+<P> "О, да. Можно повторить этот вопрос. В настоящий момент я фактически одинок, я часто разъезжаю, но, выражаясь фигурально, я не могу выехать из Стокгольма без того, чтобы ко мне не пришли пять - шесть человек и не заводили разговор про Марколина, про реньюнион, в общем, разводили всякие "ля-ля-ля". Это было бы здорово, правда, но я думаю, что на данном этапе это нереально, потому что нельзя что-то сделать лежа на диване. Было бы лучше, чтобы об этом все забыли".</p>
+<P> Значит, про ставший уже классическим вариант Candlemass можно забыть. Хорошо, тогда вернемся к варианту нынешнему. Что же нам расскажет Лейф по поводу нового альбома, который, похоже, никто от группы Candlemass никто и не ожидал?</p>
+<P> "Это была очень длинная история", - со смешком начинает Лейф, превращаясь из монумента, посвященного меланхолии, в человека с большим чувством юмора. - "У меня была группа под названием Abstract Algebra, и с этой группой я сделал одну запись. Но когда этот альбом был почти готов, после прослушивания того, что получилось, я понял, что все это напоминает кучу дерьма. Это звучало хуже чем демо - запись и нужно было начинать всю работу заново. Но к тому времени в группу Ингви Мальмстина от меня ушел вокалист, а гитарист свалил то ли в Memento Mori, то ли еще куда, и так эта запись так и не была закончена: Тогда я пришел на Music For Nations и сказал, что альбом получился не таким тихим, как это было запланировано ранее (снова издает смешок), тогда они предложили мне записать альбом под именем Candlemass. Мне эта идея понравилась, и я стал названивать старым ребятам, но у всех у них оказались другие обязательства с другими группами, тогда я спросил у них, могу ли я продолжать работать под старым названием и они сказали: "Да, конечно, продолжай". Я сделал весь написанный материал немного тяжелее и теперь это настоящий альбом Candlemass".</p>
+<P> Итак, теперь становится понятной история возрождения Candlemass, но только дело все в том, что теперь это не тот, как принято говорить, "старый добрый" Candlemass, а несколько иная группа, и не только потому, что на новом альбоме все вещи принадлежат практически перу одного Лейфа Эдлинга.</p>
+<P> "Если бы вы только послушали то дерьмо, которое я делал с Abstract Algebra, вы бы удивились, что за дрянь я вдруг стал играть", - радостно замечает Лейф. - "Это была ну ОЧЕНЬ авангардная музыка. Может быть, в один прекрасный день все эти демо - записи и будут реализованы, то вы услышите, что я играл совершенно иную музыку, очень громкую, очень дисгармоничную, и вот в новой записи мы соединили вот эту вот музыку и старый Candlemass. В результате мы сделали очень тяжелый и мрачный альбом, и он звучит современно. Послушайте хотя бы песню "Abstract Sun" и представьте ее еще более неблагозвучной, и тогда вы получите то, что я играл: А эта песня определяет то, что мы играем теперь. Abstract Algebra не относилась ни к одному из существующих стилей, а мы теперь звучим как Avant-Garde Doom!"</p>
+<P> Новый альбом можно охарактеризовать как диверсионный, можно даже сказать, что он пытается заполнить все свободные музыкальные ниши.</p>
+<P> "Гм, можно сказать и так. Я думаю, что в своих записях нужно отражать те чувства, которые ты ощущаешь в настоящий момент времени. Ты рассказываешь людям о том, что ты чувствовал в момент записи альбома. А в момент записи этого альбома я ударился в ретро: Я люблю Uriah Heep, я слушаю их все свободное время, меня можно ненавидеть за это, но тут уж ничем помочь не могу".</p>
+<P> Однако мир не кончается на Uriah Heep. Наверняка есть и другие команды, которые приходятся по душе Лейфу.</p>
+<P> "Да, и мне нравится Unsane, мне нравится Slapshot, и Fu Manchu, в общем, мне нравится все тяжелое, все оригинальное, все, что не является мейнстримом - я просто ненавижу мейнстрим! Я люблю эмоциональную музыку, которая сделана с чувством, а не то, что написано механически из головы. Музыка должна что-то выражать, не важно, что именно, а как долго это что-то выражается. О, придурок", - заходится от смеха Лейф. - "Я сам даже не понял, что сказал".</p>
+<P> Раз уж мы заговорили о чувствах, то что Лейф чувствует, играя вместе с выходцами из таких разных команд как Carcass и Europe?</p>
+<P> "Как я уже говорил, музыка - это отражение чувств, но не только душевных переживаний, но это отражение твоих интересов, твоих дружеских чувств. Почему я должен играть с людьми, которые мне не нравятся? Я не хочу терять время на всякое дерьмо. Я хочу получать удовольствие от того, с кем я играю на одной сцене. Майк (Mike Amott) - просто великолепный гитарист, он играет в Arch Enemy - просто чумовой команде, лучшая дэтовая команда здесь, он также играет в Spiritual Beggars, еще одной клевой команде, но прежде всего он - мой друг. И Ян Хэнглунд (Ian Hanglund) тоже чумовеший ударник, но люди в это не верят, потому что он играл в этой дерьмовой Europe, но от этого он не перестает быть клевым паренем".</p>
+<P> Тем не менее, на новом альбоме, если внимательно приглядеться, то, к примеру, в песне "I still see the black" поется отнюдь не о дружбе, и не о вере, надежде, любви. Так в чем же дело? Или дружба приводит Лейфа в состояние депрессии?</p>
+<P> "Гм, ну не могу же я писать о счастливой жизни. Жизнь - то ведь совсем не такая, не так ли? Жизнь - это дерьмо, правда, и чем раньше ты это понимаешь, тем лучше. Существование это не постель из белых роз, и если тебе удалось совершить какую-то сделка, это лучшее, что ты смог сделать. На этой чертовой планете живут люди, которые ненавидят друг друга, такое понятие как "гуманизм" больше не существует, люди забыли обо всем, кроме денег".</p>
+<P> Мда: На сегодняшний день по моим наблюдениям подавляющая часть музыкантов настроена апокалиптически относительно человеческих взаимоотношений, и если относиться к ним очень серьезно, то получается, что до Судного дня нам осталось жить не долго. Но Судный день судным днем, а вот по-настоящему сильных и серьезных групп до сих пор крайне мало. Тем более приятно, что как раз Candlemass можно отнести к тем группам, чье имя можно золотыми буквами вписать в книгу истории тяжелого рока и тем более отрадно, что эта группа продолжает творить свою неповторимую музыку.</p>
+
+Автор: TiamaT
+
+### 19.04.2001 news Фобос и Деимос....
+
+<p>Мощный толстяк Messiah Marcolin (CANDLEMASS / MEMENTO MORI) позволил себя уговорить ушлым парням из "SATARIEL" и теперь его луженная глотка будет слышна в треке "The Holy Trinity / Menage A Trois" на новом альбоме шведов "Phobos & Deimos". Диск был записан в Uppsala's Dug-Out Studios с продюссером "MESHUGGAH" и "STUCK MOJO" - Daniel Bergstrand. Также гостем был фронтмен "HYPNOSIA" Lenny.</p>
+
+Автор: Yermola
+
+### 19.04.2001 news Phobos &amp; Deimos.....
+
+<p>Former CANDLEMASS / MEMENTO MORI vocalist Messiah Marcolin will reportedly be guesting on the track "The Holy Trinity / Menage A Trois" on the upcoming album from Sweden's SATARIEL, tentatively titled Phobos & Deimos. The CD, which is currently being recorded at Uppsala's Dug-Out Studios with producer Daniel Bergstrand (i.e. STUCK MOJO, MESHUGGAH, STRAPPING YOUNG LAD), will also include an appearance by HYPNOSIA frontman Lenny. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 26.09.2001 news Новый проект Мессайи Марколина...
+
+<p>Участник "CANDLEMASS" и "MEMENTO MORI" - Messiah Marcolin создал новый проект. Объединившись с экс-гитаристом "LIONS SHARE" - Lars Chriss, а также барабанщиком "HIROSHIMA" - &Ouml;rjan Englin, Мессайя решил играть тяжелую и задумчивую музыку в стиле 70-х со значительным влиянием URIAH HEEP, BLACK SABBATH, ALICE COOPER, BUDGIE и т.д. Пока еще не имеющая названия группа ищет бассиста. если вы уверенно дергаете свои четыре струны - пишите: <a href="MAILTO:doktor.rock@1067.fm">doktor.rock@1067.fm</a></p>
+
+Автор: Yermola
+
+### 26.09.2001 news Messiah Marcolin and LIONS SHARE guitarist Lars Chriss have joined forces ...
+
+<p>Former CANDLEMASS / current MEMENTO MORI frontman Messiah Marcolin and LIONS SHARE guitarist Lars Chriss have joined forces in a brand new, as-yet-unnamed project that has been composing material for a possible album release through an as-yet-undetermined record label during the latter part of 2002. Featuring a musical direction that has been described as “heavy and doomy sounding with a lot of 70's influences (i.e. URIAH HEEP, BLACK SABBATH, ALICE COOPER, BUDGIE etc.)”, the group’s present formation also comprises former HIROSHIMA drummer Цrjan Englin (a DJ at Sweden's biggest classic rock radio station Rockklassiker 106.7) and is currently on the lookout for a bassist. Interested four-stringers can contact Цrjan at <a href="mailto:doktor.rock@1067.fm> doktor.rock@1067.fm</a> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.10.2001 news CANDLEMASS соберутся в оригинальном составе...
+
+<p>Шведские думстеры "CANDLEMASS" официально подтвердили, что соберутся в оригинальном составе (включая бассиста Эдлинга и культового вокалиста Мессайю Марколина) для участия в Sweden Rock Festival 7-8 июня 2002. Пока еще не ясно будет ли это постоянное возрождение или только разовый проект...</p>
+
+Автор: Yermola
+
+### 17.10.2001 news CANDLEMASS bassist&#x2F;mainman Leif Edling has confirmed ...
+
+<p>CANDLEMASS bassist/mainman Leif Edling has confirmed to BLABBERMOUTH.NET that the Swedish doomsters’ most celebrated line-up—including Edling and vocalist Messiah Marcolin—have been officially approached by the organizers of the Sweden Rock Festival (Michael Ivarsson) to appear at next year’s installment of the event, which is scheduled to take place on June 7-8, 2002 in Sцlvesborg, Sweden. According to Edling, "Yes, we have been officially approached by the people behind Sweden Rock and we are considering it. If the offer is right and if we can have a spot on the big stage before the headliners go on, I can't see why not. I still think most reunions do stink, but the [other] guys in the band are really keen on doing it and if we can rehearse a lot and make it sound like in the old days, it might work. I don't know about any other European festivals. If we do Sweden Rock, maybe we should do one or two other festivals as well to give the fans one last chance to see us before we finally say goodbye.” As for the possibility of the reformed line-up sticking around long enough to record a new studio album, Leif was not overly optimistic, although he didn’t entirely rule out the possibility. “I don't think we'll do a record, but a couple of shows would be nice. But we'll see. We are not there yet", Edling stated. In related news, Messiah will be making a live appearance with a Gothenburg-based CANDLEMASS cover band at the Motala Metal Fest in Motala, Sweden on Saturday, November 17th, singing the same five songs he sang with the group at their club appearance last month. As he did last time, Marcolin will reportedly appear dressed in full monk regalia that had been become the singer’s trademark during CANDLEMASS’ heyday in the late ‘80s and early ‘90s. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 28.08.2002 news Возрожденные CANDLEMASS...
+
+<p>Возрожденные в классическом составе "CANDLEMASS" — вокалист Messiah Marcolin, басист Leif Edling, гитарист Mats Bj&ouml;rkman, соло-гитарист Lars Johansson и барабанщик Jan Lindh — примут участие в концерте в Стокгольмском Klubben 31 августа...</p>
+
+Автор: Yermola
+
+### 28.08.2002 news CANDLEMASS: Stockholm Signing Session Announced ...
+
+<p>The reunited classic line-up of CANDLEMASS—vocalist Messiah Marcolin, bassist/founder Leif Edling, guitarist Mats Bjцrkman, lead guitarist Lars Johansson and drummer Jan Lindh—will take part in a signing session at Stockholm's Record and CD Exchange, located at Gamla Brogatan, at 4:00 PM on Saturday, August 31st. The band are scheduled to perform live at Stockholm's Klubben later that same night.</p>
+
+Автор: Yermola
+
+### 16.04.2003 reviews Тьма. Смерть. Судьба. Разрушение. Восхищение.
+
+<p>Пять слов выведенных в заголовок полностью характеризуют это творение. "Doomed For Live - Reunion 2002" - концертный альбом записанный великой группой в ходе прошлогоднего тура знаменующего возрождение CANDLEMASS... Хороший концертный альбом, но не самый лучший из тех, что доводилось мне слышать. Материал подобран очень удачно, целых девяносто семь минут и семнадцать классических хитов разных периодов. Вот только не особо понравился Мессия Марколин, иногда его вокал звучит скомканно, будто он спешит куда-то, да и не все высокие октавы он вытягивает. И тем, не менее - это великий вокалист. Зато вот мощная гитарная работа на высоте...Да и вообще, в данном концертном исполнении все вещи звучат тяжелее и мощнее, чем на старых альбомах. Это действительно концертный альбом, а не студийная запись с запущенными в бэкграунд стадионными криками. В общем, про это мало рассказывать – это надо слушать! Отмечу только, что все фанаты группы останутся довольны…</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 09.09.2003 news CANDLEMASS записали новое демо
+
+<p>CANDLEMASS закончили работу над новыми двумя песнями, которые войдут на демо. Песни "Witch" и "Born In A Tank" были записаны в начале августа специально для выставки Popkomm в Кёльне и помогут CANDLEMASS подписать контракт на выпуск полного альбома. "<b>Это демо не будет продаваться нигде, но я уверен, что песни войдут на новый альбом C-MASS</b>", - сказал Leif Edling.</p>
+
+Автор: Vit Belov
+
+### 05.04.2004 news Side-project Candlemass
+
+<P>Гитарист и барабанщик <B>CANDLEMASS</B> <B>Lars Johansson</B> и <B>Jan Lindh</B>&nbsp;организовали новую группу <B>CREOZOTH. </B>Коллектив уже пишет новый альбом. Кроме вышеозначенных участвуют: вокалист <B>Michael Storck</B> (<B>X-PLODE</B>) и басист <B>Tobbe Moen</B> (ex-<B>REDFUN</B>, <B>OZ</B>).</P>
+Автор: Vit Belov
+
+### 20.05.2004 news CANDLEMASS распались!
+
+<P><B>CANDLEMASS</B> официально больше не существуют. Никаких посмертных изданий и концертов не предвидется. Группа записала демо после своего re-union, но на новый альбом у них не хватило пороху.</P>
+<P>В ближайшее время выйдет <B>Tribute to CANDLEMASS</B> на <B>GMR</B>, в котором приняли участие <B>OPETH</B>, <B>THE HELLACOPTERS</B>, <B>THE HAUNTED</B>, <B>CATHEDRAL</B>, <B>GRAND MAGUS</B>, <B>KRUX</B>, <B>SATYRICON</B>&nbsp;и <B>TIMO RAUTIANINEN & TRIO NISKALAUKAUS</B>.</P>
+Автор: Vit Belov
+
+### 18.06.2004 news CANDLEMASS всё-таки выпустят последнее демо
+
+Последние две песни <B>CANDLEMASS</B> <B>"Witch"</B>&nbsp;и <B>"Born In A Tank" </B>всё-таки увидят свет осенью. Они выйдут на очередной коллекции переизданий старых работ группы.
+Автор: Vit Belov
+
+### 11.11.2004 news А CANDLEMASS опять воссоеденились!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Чудеса творятся в стане <STRONG>CANDLEMASS</STRONG>. Несколько месяцев назад как раз сообщалось, что этого "стана" больше не существует. А теперь группа опять решила возродиться. Сообщается, что запись альбома в прежнем составе (с Марколином) начнётся 20 ноября.</FONT></P>
+Автор: Vit Belov
+
+### 20.01.2005 news Новый альбом CANDLEMASS
+
+<P>Реформировавшиеся недавно, в очередной раз, шведские думстеры <STRONG>CANDLEMASS</STRONG> выпустят 2 мая свой новый альбом на <B>Nuclear Blast Records</B>. Сейчас, группа заканчивает работу&nbsp;над ним в стокгольмской студии <B>Polar</B>. По словам музыкантов, их новое творение будет выдержано в духе таких классических альбомов, как <B>"Tales of Creation"</B> и <B>"Nightfall".</B> </P>
+<DIV></DIV>
+Автор: Dimas
+
+### 20.01.2005 news CANDLEMASS sign with Nuclear Blast
+
+<P>Legendary Doom Kings&nbsp;<STRONG>CANDLEMASS</STRONG> sign new deal with <STRONG>NUCLEAR BLAST</STRONG>! Although several rumours were spread about a split up,&nbsp;<STRONG>CANDLEMASS</STRONG> were in fact working on a new piece of doom! The new album will be released on May 2nd and "<EM>marks a return towards the sound of such classic as “Nightfall” and “Tales of Creation”! It's name will just be: '<STRONG>CANDLEMASS</STRONG>'</EM>", - write <STRONG>Nuclear Blast</STRONG> on their web-site.&nbsp;</P>
+Автор: Vit Belov
+
+### 23.02.2005 news CANDLEMASS в Горбушке?
+
+<P>По сообщению официального сайта <STRONG>CANDLEMASS</STRONG>, группа выступит 26 августа в ДК им. Горбунова, Москва.</P>
+Автор: Vit Belov
+
+### 11.05.2005 news Новое видео от CANDLEMASS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>CANDLEMASS "Candlemass"</STRONG> появился в продаже в России&nbsp;на этой неделе. Клип на песню с этой пластинки "<STRONG>Black Dwarf</STRONG>" Вы можете посмотреть здесь: <A href="http://www.nuclearblast.de/media/video/NB_1448.ram">http://www.nuclearblast.de/media/video/NB_1448.ram</A></FONT></P>
+Автор: Vit Belov
+
+### 01.07.2005 articles CANDLEMASS в Москве, пресс-релиз
+
+<P>&nbsp;26 августа 2005<BR>«CANDLEMASS»</P>
+<P><BR>&nbsp;«МАИ тур-сервис»<BR>представляют<BR>26 августа 2005г.<BR>«CANDLEMASS» </P>
+<P><BR>&nbsp;CANDLEMASS... Легендарные Короли Doom Metal теперь живее всех живых!<BR>Шведский doom-отряд совершает героическое возвращение и подписывает контракт с Nuclear Blast! </P>
+<P>Так что люди должны понимать всю серьёзность такой заявки…: Короли Doom в своём классическом составе, включая Leif Edling и Messia Marcolin, снова на сцене с новым мега-альбомом, возвращая нас к звучанию таких классических альбомов как “Nightfall” и “Tales of Creation”.</P>
+<P>«Возможно, самая тяжелая группа в мире», - писал после выхода «Ancient Dreams» в 1988 году «Metal Hammer».</P>
+<P>Новый альбом вышел в свет на Nuclear Blast 2 мая 2005. Его имя просто – Сandlemass!!</P>
+<P>Группа, у которой есть своя собственная глава в The National Encyclopedia of Doom. Сandlemass в 1986 произвели на свет каноническое произведение “страдания и отчаяния” “Epicus Doomicus Metallicus” и с того самого момента мы измеряем “тяжесть” в звучании музыки по-новому… Вселенская тьма стала недостаточно тёмной с этим альбом, весом с чёрную гигантскую космическую дыру!<BR>С появлением в 1987 последующей студийной работы ”Nightfall”, Сandlemass становятся любимцами прессы. Первый диск является эталонным для большинства продолжателей дела Сandlemass. От саббатовцев было взято все самое тяжелое и самое медленное, никогда не использовались клавишные: звучание и так было до предела насыщенным. Однако если бы группа застряла на месте, она бы не была Супергруппой. Дальше началось развитие. <BR>Потрясающей находкой для группы оказался новый вокалист "Мессия" Марколин, ранее певший в малоизвестной группе Mercy. На концерте выступает в рясе с четками в руках, он дважды ставился лучшим вокалистом года по рейтингу журнала "Metal Hammer" и... дважды - секс-символом! Голос у него просто уникальный: проникновенный, как у настоящего проповедника. С его приходом и начался рост группы от диска к диску. <BR>Тексты перекликались с раннесаббатовской тематикой, в них тоже очень много предупреждений о дьявольских соблазнах, нас окружающих и, в то же время, находящихся внутри нас самих (вещь "Mirror" - "Зеркало" и другие). Причем Candlemass аллегории и гротеск порой использовали даже чаще. Вообще философией пронизаны все программы с Марколином, великолепны оформления альбомов - репродукции прекрасных картин из лучших музеев мира.</P>
+<P>Мощные продажи в Европе и Штатах продвинули Сandlemass в чарты Англии, Германии, а также в американский Billboard. <BR>Гитарист и основатель группы Leif Edling как-то сказал в интервью: “Мы тогда не знали, что мы делаем на самом деле. Мы просто играли самую “тяжёлую” музыку из всех возможных. А люди сначала даже ненавидели нас. Но как-то неожиданно мы вдруг стали знаменитыми,&nbsp; и у нас появился миллион друзей!” </P>
+<P>Не легко быть пророком, но Сandlemass предрекли себя на исключительное место в истории Heavy Metal. От Австралии до Японии, от Южной Африки до Аляски, фэны знают наизусть текст “Mirror mirror”, вступительный риф ”Well of souls”, просто готовы умереть за ”Solitude” и поют под караоке ”At the gallows end”. У них в Гётенбурге даже есть своя ковер-группа: Ancient Dreams !<BR>После свыше полумиллиона проданных пластинок по обеим сторонам Атлантики, в 1993 году, Сandlemass исчезают со сцены, к большому сожалению поклонников группы, по всему свету. Они захотели уйти, будучи на вершине своего успеха, немного утомлённые гастролями и растратившие вдохновение, но живые и по-прежнему готовые к новым свершениям. </P>
+<P>Messiah пошёл в группу&nbsp; Memento Mori, Lars и Jan записали вместе альбом the Zoic, Mappe продюсировал работы легендарного шведского комедианта Kalle S&#228;ndare, а Leif выдал что-то под названием Abstrakt Algebra в 1995. Ещё два альбома под именем Сandlemass появились на свет, перед тем как осенью 2001 стали распространяться слухи о “втором пришествии”…А произошло следующее: Сandlemass -овские ремастерённые альбомы должны были быть изданы вскоре и группа обсуждала планы воссоединения и впервые за прошедшие десять лет члены группы&nbsp; встретились все вместе. И эта встреча увенчалась полным успехом. Вновь, после всемирной эпохи Doom-мании, летом 2002 ребята решили отметить этот фантастический&nbsp; реюньон и вновь дать Европе показательный урок, что такое настоящий Doom! </P>
+<P>После столь героического возвращения на подмостки всемирной Metal-сцены и феноменального, судя по восторженным отзывам публики и критики, появления на крупнейших Европейских тяжёлых фестивалях лета 2003 года, вдруг опять поползли слухи и даже были сделаны некоторые заявления, но уже о распаде группы.… <BR>Но, на самом деле, Сandlemass работали над новым шедевром чистого Doom-а! </P>
+<P>Сегодня ветераны Doom Metal, Сandlemass, живее всех живых и знаменуют своё триумфальное возвращение концертами на самых важных для музыки Heavy Metal концертных площадках мира, и 26 августа 2005 г. совершат эксклюзивное выступление в России. <BR>Ожидайте стену звука, море света (и тьмы!) и безумного монаха на сцене!!</P>
+<P>&nbsp;</P>
+<P>Состав:<BR>&nbsp; Messiah Marcolin - Vocals<BR>&nbsp; Mats Bj&#246;rkman - Guitar<BR>&nbsp; Leif Edling - Bass<BR>&nbsp; Lars Johansson - Guitar<BR>&nbsp; Jan Lind - Drums<BR>Дискография:<BR>EPICUS DOOMICUS METALLICUS (1986) Black Dragon Records<BR>NIGHTFALL (1987) Axis Records<BR>ANCIENT DREAMS (1988) Active Records<BR>TALES OF CREATION (1989) Music For Nations<BR>LIVE (1990) Music For Nations<BR>CHAPTER VI (1992) Music For Nations<BR>DACTYLIS GLOMERATA (1998) Music For Nations<BR>FROM THE 13:TH SUN (1999) Music For Nations<BR>SINGLES/MAXI:<BR>SAMARITHAN 7” (1988) Axis Records<BR>SAMARITHAN 12” (1988) Axis Records <BR>AT THE GALLOWS END (1988) Metal Blade Records</P>
+<P>&nbsp;Начало концерта в 20:00.</P>
+<P>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></P>
+Автор: Vit Belov
+
+### 06.07.2005 news Задай вопрос CANDLEMASS
+
+<P>На официальном сайте <STRONG>CANDLEMASS</STRONG> появилась возможность задать вопрос непосредственно группе на форуме. <A href="http://www.candlemass.se/forum/viewtopic.php?pid=1060#p1060">http://www.candlemass.se/forum/viewtopic.php?pid=1060#p1060</A></P>
+Автор: Vit Belov
+
+### 06.07.2005 news Ask questions to CANDLEMASS
+
+The official&nbsp;<STRONG>CANDLEMASS</STRONG> forum is open for questions directly to the band. Link: <A href="http://www.candlemass.se/forum/viewtopic.php?pid=1060#p1060">http://www.candlemass.se/forum/viewtopic.php?pid=1060#p1060</A>
+Автор: Vit Belov
+
+### 21.08.2005 news CANDLEMASS в Москве
+
+<CENTER>«МАИ тур-сервис»<BR>представляют<BR>26 августа 2005г.<BR>«CANDLEMASS» Начало концерта в 20:00 </CENTER>
+<CENTER><IMG height=284 src="/images/shows_rus/2005.08/8928.jpg" width=400 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Адрес: ул. Дубосековская, 8 (м. «Сокол»).<BR>Справки по тел.: (095) 158-44-70.<BR>Адрес клуба в Интернете: <A href="http://www.cdk.ru/">www.cdk.ru</A></CENTER>
+Автор: Vit Belov
+
+### 27.08.2005 articles CANDLEMASS в Москве: &quot;Великолепный концерт группы, на которую никто не пришёл...&quot;
+
+<P><IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.08/9219.jpg" width=250 align=left border=5>В Москве начался первый ударный уик-энд этого сезона, который обещает быть сверхнасыщенным даже по сравнению с прошлым. В СДК МАИ выступили “легенды шведского doom-metal” CANDLEMASS, и этот концерт можно назвать провальным с точки зрения посещаемости.</P>
+<P>Видимо на «легенду» уже тяжело заманить молодое поколение, оно предпочитает ходить на нынешних звёзд. А так вышло, что шведам пришлось конкурировать с сегодняшним концертом SENTENCED (вот, как раз «нынешние звёзды»), да и с вчерашней презентацией КРЮГЕРА, на который, думается, тоже пришёл какой-то народ. Вполне возможно, что не будь этих обстоятельств, CANDLEMASS смогли бы собрать и более внушительную аудиторию, а так всего 400-600 человек, многие из которых подтягивались уже в течение выступления группы, а в заявленные 20-00 в клубе находилось столько народу, что, казалось, Москва полностью не принимает Мессию и Ко.</P>
+<P><IMG height=268 alt="" hspace=0 src="/images/articles_rus/2005.08/9218.jpg" width=200 align=right border=5>Концерт начался всего с получасовой задержкой и продлился около 1,5 часов. Мне жаль тех, кто не пришёл…Концертный драйв и шоу, которое выдала группа, достойны восхищения. Мне кажется, не важно, являетесь ли вы фэном CANDLEMASS, просто за столько лет шведы научились многому, что и продемонстрировали вчера на сцене СДК МАИ. Великолепная работа музыкантов, но, главное, это неугомонный Messiah, который не переставая гримасничал, изображая все виды эмоций от боли до веселья, скакал в своей обычной рясе, подтрунивал над другими музыкантами, общался с публикой… В своём лицедействе он мне чем-то напомнил Бенни Хилла. За всё время, что он был на авансцене он ни разу не замер, не зная, что делать. Отдельного упоминания требует оформление сцены. Кресты, которые иногда начинали светиться, задник с черепом, своеобразным логотипом группы.</P>
+<P>CANDLEMASS исполнили как песни с нового альбома, так и свои нетленки с “Nightfall” или “Epicus Doomicus Metalicus”. Интересно, что несмотря на довольно медленный материал, толпа рубилась, как могла…&nbsp; Именно в том своеобразном «Кэндлмассовском» ритме. Стоит отдать должное публике. Те немногочисленные фэны, посетившие концерт, оставили на «танцполе» всё. Подпевали, рубились, просто танцевали, хлопали, кричали. Шведы могут быть довольны приёмом, а мы можем быть довольны шведами, гитарист которых, например, раздавал автографы прямо между песнями. Раздаст штуки 3-4, а потом показывает жестом, мол, извините надо вот сейчас песенку сыграть.</P>
+<P><IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.08/9220.jpg" width=250 align=left border=5>Группа дважды выходила «на бис». При этом второй раз был, скорее всего, незапланированным организаторами концерта. CANDLEMASS выкинули в зал все свои пожитки, зажёгся свет, пошла фоновая музыка, но никто не хотел расходиться, и музыканты исполнили ещё. Первый же «бис» сопровождался просто-таки эксклюзивным событием. Почти все артисты, включая Мессию обрядились в майки с символикой России и СССР. Здоровенный Марколин в рясе и майке футбольной сборной СССР выглядел очень забавно. Не допев и одной песни, он стянул её, поэтому те фотки, которые мы успели сделать, могут стать легендарными:))</P>
+<P>Великолепный концерт, который понравился всем присутствующим и гарантировано понравился бы и всем отсутствующим. Единственное, что звук был опять не на уровне, но про это мы уже говорили в отношении СДК МАИ в прошлых репортажах.</P>
+<P>Фото: <A href="/ru/galleries/1/154/">http://musica.mustdie.ru/ru/galleries/1/154/</A><BR></P>
+Автор: Vit Belov
+
+### 01.09.2005 news CANDLEMASS опубликовали отчёт о Москве
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>CANDLEMASS</STRONG> опубликовали отчёт о своём пребывании в Москве на официальном сайте коллектива. Полную версию вы можете прочесть по адресу: <A href="http://www.candlemass.se/news.php">http://www.candlemass.se/news.php</A>&nbsp;Вот то, что я смог подчерпнуть интересного из статьи. Группа прибыла в среду 24 августа и поселилась в гостинице Космос, посетила Арбат, где были куплены майки, в которых они&nbsp;выходили "на бис",&nbsp;Красную площадь, Hard rock Cafe. Площадка CDK МАИ им понравилась, но самое гланое, <STRONG>CANDLEMASS</STRONG> впервые за лето отыграли 90-минутный сэт, специально для Москвы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей, группа готовит второй DVD с записью концерта, который состоялся в ноябре 2003 года в Стокгольме. Вот песни, которые исполняли <STRONG>CANDLEMASS </STRONG>в тот вечер: </FONT></P>
+<P>1. <STRONG>Demons Gate</STRONG> <BR>2. <STRONG>Dark Reflections</STRONG><BR>3. <STRONG>Well of Souls</STRONG><BR>4. <STRONG>Into the Unfathomed Tower<BR></STRONG>5. <STRONG>Ancient Dreams</STRONG> <BR>6. <STRONG>The Bells of Acheron <BR></STRONG>7. <STRONG>Witches</STRONG> <BR>8. <STRONG>Mirror Mirror <BR></STRONG>9. <STRONG>A Cry From the Crypt <BR></STRONG>10. <STRONG>Mourners Lament <BR></STRONG>11. <STRONG>Black Stone Weilder</STRONG> <BR>12. <STRONG>Solitude<BR></STRONG>13. <STRONG>Gallows End</STRONG></P>
+Автор: Vit Belov
+
+### 01.09.2005 news New DVD of CANDLEMASS
+
+<P>The second DVD of <STRONG>CANDLEMASS</STRONG> will be released in near future. There will be show from November 2003 in Stockholm. Here are songs:</P>
+<P>1. <STRONG>Demons Gate</STRONG> <BR>2. <STRONG>Dark Reflections</STRONG><BR>3. <STRONG>Well of Souls</STRONG><BR>4. <STRONG>Into the Unfathomed Tower<BR></STRONG>5. <STRONG>Ancient Dreams</STRONG> <BR>6. <STRONG>The Bells of Acheron <BR></STRONG>7. <STRONG>Witches</STRONG> <BR>8. <STRONG>Mirror Mirror <BR></STRONG>9. <STRONG>A Cry From the Crypt <BR></STRONG>10. <STRONG>Mourners Lament <BR></STRONG>11. <STRONG>Black Stone Weilder</STRONG> <BR>12. <STRONG>Solitude<BR></STRONG>13. <STRONG>Gallows End</STRONG></P>
+Автор: Vit Belov
+
+### 02.12.2005 news Звёзды metal называют любимые альбомы в 2005 году
+
+<P>Шведский журнал <STRONG>Close-Up</STRONG> попросил известных музыкантов назвать любимые альбомы в 2005 году. Единодушия среди артистов не возникло. Только несколько пластинок было названо в тройки несколькими голосовавшими. Например, альбом <STRONG>OPETH "Ghost Reveries"</STRONG> назвали <STRONG>Leif Edling</STRONG> (<STRONG>CANDLEMASS</STRONG>) и <STRONG>Anders Nystrom</STRONG> (<STRONG>KATATONIA</STRONG>), а альбом <STRONG>SYSTEM OF A DAWN</STRONG> "<STRONG>Mesmerize</STRONG>" - <STRONG>Nergal </STRONG>(<STRONG>BEHEMOTH</STRONG>) и <STRONG>Robert Flynn</STRONG> (<STRONG>MACHINE HEAD</STRONG>). Также по нескольку раз упоминались альбомы <STRONG>SOILWORK</STRONG>&nbsp;и&nbsp;<STRONG>SPIRITUAL BEGGARS</STRONG>.</P>
+<P>В остальном выбор звёзд был хаотичен и слишком разнообразен по стилевым направлениям.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.12.2005 news Лучшие металл-альбомы 2005 года
+
+<P>Стали известны номинанты шведской премии <B>Grammy</B> в категории "best metal album". Ими стали следующие альбомы: <STRONG>OPETH</STRONG> <B>"Ghost Reveries", </B><B>CANDLEMASS</B> <B>"Candlemass"</B>, <B>HAMMERFALL</B> <B>"Chapter V: Unbent, Unbowed, Unbroken"</B>, <B>HARDCORE SUPERSTAR</B> <STRONG>"Hardcore Superstar"</STRONG>&nbsp;и&nbsp;<B>MESHUGGAH</B> <B>"Catch Thirty Three".</B>&nbsp;</P>
+Автор: Dimas
+
+### 08.02.2006 news CANDLEMASS выиграли приз
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CANDLEMASS</STRONG> выиграли шведскую Grammy, как лучшая hard-rock команда. В своей номинации легендарные думстеры опередили <STRONG>HAMMERFALL</STRONG>, <B>HARDCORE SUPERSTAR</B>, <B>MESHUGGAH</B>&nbsp;и <STRONG>OPETH.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В номинации "Лучшее музыкальное DVD" были номинированы <STRONG>EVERGREY</STRONG>, но они проиграли<STRONG> ABBA</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 06.03.2006 news CANDLEMASS записывают новые песни
+
+<P><STRONG>CANDLEMASS</STRONG> только что закончили запись четырёх новых песен для будущего альбома в новой студии <STRONG>Polar</STRONG> в Стокгольме. Сообщается, что новые трэки находятся в русле предыдущего ре-юнион альбома, возможно, немного более мрачные. В мае группа запишет ещё несколько композиций, а альбом выйдет в октябре на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.05.2006 news CANDLEMASS отмечают день солидарности трудящихся
+
+<P>28 апреля вокалист <STRONG>CANDLEMASS Messiah Marcolin</STRONG> связался с американским ресурсом <STRONG>BLABBERMOUTH.NET</STRONG> и сообщил, что навсегда покидает группу, из-за разногласий, связанных с записью нового альбома.</P>
+<P>Уже первого мая группа официально опровергла эту информацию. Более того, были сообщены некоторые подробности. Песен на новой работе будет 9, но они пока не названы. Выступления же <STRONG>Messiah</STRONG> были объяснены его нервным переутомлением. </P>
+Автор: Vit Belov
+
+### 23.05.2006 news CANDLEMASS продолжают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CANDLEMASS</STRONG> продолжают трудиться в студии, записывая новый альбом. Сообщается, что пластинка будет концептуальной. Вместе с тем, в официальном заявлении на сайте коллектива написано, что "<EM>группа надеется, что вокал запишет <STRONG>Messiah</STRONG></EM>".</FONT></P>
+Автор: Vit Belov
+
+### 27.06.2006 news Новости от CANDLEMASS
+
+<P><STRONG>GMR Music</STRONG>&nbsp;анонсировали переиздание альбомов группы&nbsp;<B>CANDLEMASS</B>&nbsp;<B>"Chapter VI"</B> (1992 года)&nbsp;и <B>"Dactylis Glomerata"</B> (1998 года)&nbsp;в виде двойных ремастированных дисков. <B>"Chapter VI"</B> в качестве бонусов будет содержать мини-альбом <B>"Sjunger Sigge Furst"</B> на основном диске и бонусный dvd диск с концертными выступлениями коллектива.&nbsp;<B>"Dactylis Glomerata"</B> будет содержать бонусный диск&nbsp;с никогда ранее нереализованным альбомом группы. Всё это ожидается в начале осени 2006 года.</P>
+<P>В настоящий момент, музыканты готовят своё новое творение. Уже записаны четыре песни при помощи продюсера <B>Andy Sneap</B> (<B>NEVERMORE</B>, <B>ARCH ENEMY</B>, <B>MACHINE HEAD</B>) в&nbsp;<B>Polar</B> studios. </P>
+Автор: Dimas
+
+### 15.08.2006 news CANDLEMASS продолжают запись
+
+<P><STRONG>CANDLEMASS </STRONG>заканчивают работу над новым альбомом. Интересно, что группа так и не знает, будет ли петь вокалист <STRONG>Messiah</STRONG> на нём. Все вопросы музыканты предлагают адресовать <STRONG>Nuclear Blast</STRONG>, который решает эту проблему.</P>
+Автор: Vit Belov
+
+### 08.09.2006 news Messiah Marcolin споет на новом CANDLEMASS
+
+<P>По заверениям лейбла <B>Nuclear Blast</B>, <B>Messiah Marcolin</B> всё-таки согласился записать партии вокала для следующего альбома шведов <B>CANDLEMASS</B>. Ждем релиза в начале следующего года.</P>
+Автор: Dimas
+
+### 25.10.2006 news Messiah всё-таки ушёл
+
+<P>Несмотря на уверения издающего лэйбла <STRONG>Nuclear Blast</STRONG>, слухи об уходе вокалиста<STRONG> Messiah Marcolin</STRONG> из <STRONG>CANDLEMASS</STRONG> подтвердились. Об этом группа сообщила на своём официальном сайте. </P>
+<P>"<EM>Мы все были очень разочарованы поведением Messiah в течение нашего ре-юниона в последние годы. Он не хотел обсуждать никакие вопросы и считал своё мнение основным. Он указывал нам всем, что делать. Так дальше продолжаться не может. Мы надеемся, что Вы сможете понять, как мы разочарованы. И злы! Нам было достаточно нескольких концертов, чтобы понять, что мы больше не друзья, но отказаться от того, что желают столько фэнов, мы не смогли</EM>". </P>
+<P>Группа сообщает, что найдёт нового вокалиста и продолжит своё существование.</P>
+Автор: Vit Belov
+
+### 22.01.2007 news Rober Lowe - новый вокалист CANDLEMASS
+
+<P>Вокалист <STRONG>SOLITUDE AETERNUS Rober Lowe</STRONG> присоединился к <STRONG>CANDLEMASS</STRONG>! <STRONG>Rober</STRONG> уже пишет партии вокала для нового альбома группы. Остальные музыканты <STRONG>CANDLEMASS</STRONG> в восторге от получающегося результата.</P>
+<P><STRONG>Lowe</STRONG> остаётся в составе <STRONG>SOLITUDE AETERNUS</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.02.2007 news CANDLEMASS отпразднуют 20-летие
+
+<P>31 марта <STRONG>CANDLEMASS</STRONG> дадут юбилейный концерт в Стокгольме. На сцене с группой будут четыре вокалиста. Впервые на сцене оригинальный певец коллектива <STRONG>Johan Langquist</STRONG>, певший на "<STRONG>Epicus Doomicus</STRONG>...", также вместе с <STRONG>CANDLEMASS Tomas Vikstrom</STRONG> с "<STRONG>Chapter VI</STRONG>", новый вокалист <STRONG>Robert Lowe</STRONG> и... <STRONG>Lee Dorrian</STRONG> (<STRONG>CATHEDRAL</STRONG>).</P>
+<P><STRONG>Messiah Marcolin</STRONG> не появится даже на юбилейном шоу.</P>
+Автор: Vit Belov
+
+### 02.05.2007 news Messiah Marcolin выступил?
+
+<P>Бывший вокалист<STRONG> CANDLEMASS Messiah Marcolin</STRONG> выступил с обращением на официальном сайте группы. В подлинности этого заявления можно усомниться, но в нём <STRONG>Messiah</STRONG> рассказывает, что причиной разлада между ним и остальными в <STRONG>CANDLEMASS</STRONG> стали как финансовые вопросы, так и музыкальное напрвление, в котором двигалась группа. В частности, певец сообщает, что на новом альбоме мы будем иметь дело с "<STRONG>KRUX</STRONG>" саундом.</P>
+<P>Тем временем, <STRONG>CANDLEMASS</STRONG> выпускают новую работу "<STRONG>King Of The Grey Islands</STRONG>" 22 июня.</P>
+Автор: Vit Belov
+
+### 24.08.2007 news Юбилейный концерт CANDLEMASS выйдет на видео
+
+<P>31 марта 2007 года в Стокгольме прошёл юбилейный концерт<STRONG> CANDLEMASS</STRONG>, посвящённый 25-летию группы. Этот концерт увидит свет в октябре/ноябре 2007 года на DVD, выходящем на <STRONG>Snapper/Peaceville</STRONG>. В том шоу приняли участие семь вокалистов, вот их полный список:</P>
+<P><STRONG>Johan Langquist</STRONG> (ex-CANDLEMASS)<BR><B>Tomas Vikstrom</B> (ex-CANDLEMASS)<BR><B>Mikael &#197;kerfeldt</B> (OPETH)<BR><B>Mats Leven</B> (KRUX, THERION, ex-YNGWIE MALMSTEEN)<BR><B>Robert Lowe</B> (CANDLEMASS, SOLITUDE AETURNUS)<BR><B>Tony Martin</B> (ex-BLACK SABBATH)<BR><B>Janne Christoffersson</B> (GRAND MAGUS, SPIRITUAL BEGGARS)</P>
+<P>Сэт-лист:</P>
+<P>01. <B>The Dying Illusion</B> (Tomas Vikstrom)<BR>02. <B>Bewitched</B> (Tomas Vikstrom)<BR>03. <B>Dark are the Veils of Death</B> (Tomas Vikstrom)<BR>04. <B>Where the Runes Still Speak</B> (Tomas Vikstrom)<BR>05. <B>Ebony Throne</B> (Tomas Vikstrom)<BR>06. <B>Well of Souls</B> (Janne Christoffersson)<BR>07. <B>Black Dwarf</B> (Mats Leven)<BR>08. <B>At the Gallows End</B> (Mikael &#197;kerfeldt)<BR>09. [New Song] (Robert Lowe)<BR>10. <B>Samarithan</B> (Robert Lowe)<BR>11. <B>Mirror Mirror</B> (Robert Lowe)<BR>12. <B>Crystal Ball</B> (Johan Langquist)<BR>12. <B>Demon's Gate</B> (Johan Langquist)<BR>13. <B>Under the Oak</B> (Johan Langquist)<BR>14. <B>A Sorcerer's Pledge</B> (Johan Langquist)<BR>Encore:<BR>15. <B>Witches</B> (Tony Martin)<BR>16. <B>Bullfest</B> (Tomas Vikstrom)<BR>17. <B>Solitude</B> (Langquist/Vikstrom/Lowe)</P>
+Автор: Vit Belov
+
+### 13.11.2007 news THERION собирает вокалистов CANDLEMASS
+
+<P><STRONG>Messiah Marcolin</STRONG> (ex-<STRONG>CANDLEMASS</STRONG>) присоединится к<STRONG> THERION</STRONG> во время ближайшего тура по Европе. В частности увидеть группу с этим звёздным вокалистом можно будет в Будапеште, Лондоне и Париже.</P>
+Автор: Vit Belov
+
+### 21.03.2008 news Гитарист CANDLEMASS в тюрьме
+
+<P>Гитарист <STRONG>CANDLEMASS</STRONG> <STRONG>Mats "Mappe" Bjorkman</STRONG> приговорён к двум годам лишения свободы. Согласно обвинению, <STRONG>Mats</STRONG> своровал CD на складе, где работал, на сумму около полумиллиона долларов. Следует отметить, что музыкант не признаёт своей вины.</P>
+Автор: Vit Belov
+
+### 25.03.2008 news CANDLEMASS заявили, что ничего не изменится
+
+<P><STRONG>CANDLEMASS</STRONG> заявили, что в планах группы ничего не изменилось, несмотря на сообщения, что их гитарист <STRONG>Mats "Mappe" Bjorkman </STRONG>посажен в тюрьму за кражу. Шведы планируют записать EP в апреле и приступить к работе над новым полноформатником в мае/июне.</P>
+Автор: Vit Belov
+
+### 05.11.2008 reviews Где Мессия?
+
+<P>Знаете, в начале 90-х CANDLEMASS без Марколина протянули только один альбом. Сейчас уже полтора, и, есть надежда, группа продолжит своё «безрадостное» doom-metal существование. В чём причина того, что группа продолжается, несмотря на пропажу своего главного фронтмэна всех времён? Может сейчас музыкальный бизнес менее жесток? Может Лэйф Эдлинг находится в лучшей форме, чем тогда? Не знаю… Знаю одно, без “Messiah” Марколин группа CANDLEMASS совсем не та, что с ним.</P>
+<P>На новейшее EP “Lucifer Rising” попали две новые вещи и перезаписанная “Demons Gate”. Все три студийных трэка великолепны. Одноимённая «открывашка» представляет собой классический «быстрый» CANDLEMASS, а две другие представляют собой классический медленный CANDLEMASS. Тягучие мелодии, «грувовое» звучание высшего класса, настоящий stoner-doom-metal… Вот только не хватает пронзительного вокала. В случае с новым певцом Робом Лоу группа пошла по другому пути. Шведы предпочли взять раскрученного певца, работающего в таком же стиле музыки. При этом решено было не гнаться за похожестью тембров голоса. Роб, конечно, хороший певец, но он не катит. Сама манера композитора CANDLEMASS Лэйфа Эдлинга подразумевает наличие «нужного» пения. Каждый раз я сижу и жду, что сейчас услышу эмоциональный стервозный голос, а получаю ровный и лишённый всяких чувств вокал. Добит этот EP девятью концертными трэками с классикой группы, исполненной Робом. Чувства точно такие же… Караоке про CANDLEMASS.</P>
+<P>Музыкантам нужно срочно мириться, и тогда новый материал CANDLEMASS будет продолжать получать «десятки». Композитор находится с нами, и он в хорошей форме. Где Мессия?</P>
+Автор: Vit Belov
+
+### 02.12.2008 news CANDLEMASS закончили новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CANDLEMASS</STRONG> записали новый альбом и готовят его к релизу в новом году.</FONT></P>
+Автор: Vit Belov
+
+### 20.12.2008 news Сэмплы CANDLEMASS
+
+<P><STRONG>Nuclear Blast</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке сэмплы четырёх новых вещей <STRONG>CANDLEMASS</STRONG>, которые войдут на будущий альбом группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/nuclearblasteurope">http://www.myspace.com/nuclearblasteurope</A></P>
+Автор: Vit Belov
+
+### 10.01.2009 news Трэк-лист нового CANDLEMASS
+
+<P><STRONG><IMG height=199 alt="" hspace=0 src="/images/news_rus/2009.01/13334.jpg" width=200 align=right border=5>"Death Magic Doom", </STRONG>так будет называться новый альбом<STRONG> CANDLEMASS</STRONG>, выходящий 27 марта на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B>If I Ever Die</B><BR>02. <B>Hammer Of Doom</B><BR>03. <B>The Bleeding Baroness</B><BR>04. <B>Demon Of The Deep</B><BR>05. <B>House Of 1000 Voices</B><BR>06. <B>Dead Angel</B><BR>07. <B>Clouds Of Dementia</B><BR>08. <B>My Funeral Dreams</B></P>
+Автор: Vit Belov
+
+### 16.01.2009 news Leif Edling: &quot;Это лучший альбом CANDLEMASS со времён &#39;Nightfall&#39;&quot;
+
+<P>Басист и лидер <STRONG>CANDLEMASS Leif Edling</STRONG> рассказал о новом альбоме группы "<STRONG>Death Magic Doom</STRONG>", который выйдет 27 марта на <STRONG>Nuclear Blast</STRONG>:</P>
+<P>"<EM>Я счастлив сообщить, что новый альбом окончательно готов. Песни о бессмертии, депрессиях, демонах, вампирах, похоронах и всемогущем дьяволе. Вы понимаете, о чём я. Мне нравится, по какому пути мы идём сейчас. Пение Rob Lowe и соло гитариста Lars Johansson великолепны. Могу сказать, что "Death Magic Doom" лучшая моя работа со времён "Nightfall</EM>".</P>
+Автор: Vit Belov
+
+### 28.01.2009 news Обложка CANDLEMASS
+
+<P><STRONG>CANDLEMASS</STRONG> опубликовали обложку новой пластинки "<STRONG>Death Magic Doom</STRONG>", выходящей 3 апреля на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.01/13461.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.02.2009 news Leif Edling выпускает сольник
+
+<P><IMG height=336 alt="" hspace=0 src="/images/news_rus/2009.02/13588.jpg" width=375 align=right border=5>10 марта на <STRONG>Candlelight</STRONG> выходит первый сольный альбом лидера <STRONG>CANDLEMASS Leif Edling</STRONG> <STRONG>"Songs of Torment - Songs of Joy"</STRONG>. Музыкант описывает свою работу, как смесь "минималистичного органного дума" и "black and epic". Кроме игры на бас-гитаре <STRONG>Leif</STRONG> здесь ещё и поёт. Барабанщиком выступил музыкант <STRONG>TIAMAT</STRONG> <STRONG>Lars Skold. </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">The Scar</B> (05:55) <BR itxtvisited="1">02. <B itxtvisited="1">It Is Not There</B> (04:26) <BR itxtvisited="1">03. <B itxtvisited="1">Angelic 'Til I Die</B> (04:54) <BR itxtvisited="1">04. <B itxtvisited="1">On the Edge of Time</B> (06:17) <BR itxtvisited="1">05. <B itxtvisited="1">Butterfly</B> (00:57) <BR itxtvisited="1">06. <B itxtvisited="1">My Black Birthday</B> (05:39) <BR itxtvisited="1">07. <B itxtvisited="1">Space Killer</B> (05:40) <BR itxtvisited="1">08. <B itxtvisited="1">Nautilus</B> (09:33)</P>
+<P>MySpace: <A href="http://www.myspace.com/leifedling">http://www.myspace.com/leifedling</A></P>
+Автор: Vit Belov
+
+### 25.03.2009 news Слушайте новинку от CANDLEMASS
+
+<P>Новый альбом <STRONG>CANDLEMASS</STRONG> <STRONG>"Death Magic Doom"</STRONG>&nbsp;можно послушать на <STRONG>MySpace</STRONG> страничке группы: <A href="http://www.myspace.com/candlemass">http://www.myspace.com/candlemass</A>&nbsp;. Пластинка выйдет 3 апреля на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.03.2009 news CANDLEMASS выступят с оригинальным вокалистом
+
+<P><STRONG>CANDLEMASS </STRONG>объявлены хэдлайнерами фестиваля <STRONG>Keep It True 2010</STRONG>. Группа даст специальный двухчасовой концерт, приуроченный к 25-летию группы. Вместе с оригинальным певцом <STRONG>Johan Langquist </STRONG>шведы исполнят свой дебют <STRONG>"Epicus Doomicus Metallicus" </STRONG>целиком. После этого с настоящим певцом <STRONG>Robert Lowe CANDLEMASS </STRONG>отыграют обычный свой концерт.</P>
+Автор: Vit Belov
+
+### 15.04.2009 news CANDLEMASS в чартах в Германии
+
+<P>Новый альбом <STRONG>CANDLEMASS</STRONG> <STRONG>"Death Magic Doom"</STRONG>, вышедший на <STRONG>Nuclear Blast</STRONG>, попал на 52-ое место в чартах Германии.</P>
+Автор: Vit Belov
+
+### 06.05.2009 reviews Шведы в отличной форме
+
+<P>Классики «doom-metal с чистым вокалом» шведы CANDLEMASS выпустили свой очередной альбом. Басист Leif Edling и партнёры доказывают, что группа находится в великолепной форме, будто бы и не прошло более 20 лет существования.</P>
+<P>Осмелюсь предположить, что по некоторым параметрам современное творчество группы превосходит даже её собственную классику. Сильно улучшилось качество реализации, а мелодический талант господина Edling никуда не делся. Вообще, CANDLEMASS остаются одной из немногих групп, у которых запоминаются все песни почти с первого прослушивания. Некоторые сразу становится слушательскими хитами, некоторые отличаются каким-то оригинальным ходом или запоминающимся рефреном. Новый материал в этом плане ничем не уступает старому. “If I Ever Die”, “Hammer Of Doom”, “The Bleeding Baroness” (эту особенно) можно переслушивать по несколько раз подряд. Прибавьте к этому стилевое постоянство CANDLEMASS, и вы поймёте, почему группа обладает стойкой фэн-базой и продолжает её увеличивать. Рекомендую к приобретению и “Death Magic Doom”.</P>
+<P>Вообще-то, ещё до прослушивания этого альбома я собирался в рецензии вспоминать Messiah Marcolin. Я его неоднократно вспоминал при прослушивании альбома, но по окончании этого процесса решил ограничиться этой строчкой. Безусловно, голос господина Marcolin отлично подходит музыке господина Edling, который, меняя вокалистов, не меняет своих приёмов сочинения песен, но… Меня настолько впечатлил новый материал CANDLEMASS, что я вдруг понял, что очень даже можно слушать эту группу и с менее харизматичным вокалом от Rob Lowe.</P>
+Автор: Vit Belov
+
+### 14.05.2009 news CANDLEMASS выступили в Америке скромно 
+
+<P>Новый альбом<STRONG> CANDLEMASS "Death Magic Doom"</STRONG> был продан в США в количестве 800 экземпляров в первую неделю. Это не позволило группе отметиться в чартах <STRONG>Billboard</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.12.2009 news CANDLEMASS выпустят DVD
+
+<P>В фенврале/марте будущего года на <STRONG>Nuclear Blast</STRONG> выйдет новое DVD <STRONG>CANDLEMASS</STRONG> <STRONG>"Ashes To Ashes Live". </STRONG>На издание попадут два концерта: на фесте <STRONG>Sweden Rock 2009</STRONG> и концерт в Афинах.</P>
+Автор: Vit Belov
+
+### 18.03.2010 news Новый DVD CANDLEMASS
+
+<P><IMG height=451 alt="" hspace=0 src="/images/news_rus/2010.03/16437.jpg" width=315 align=right border=5>Новый концертный DVD <STRONG>CANDLEMASS</STRONG> <STRONG>"Ashes To Ashes - Live" </STRONG>выходит 23 апреля на <STRONG>Nuclear Blast</STRONG>. На диск попало выступление группы перед 30000 фанатов на прошлогоднем фестивале<STRONG> Sweden Rock</STRONG>, а также шоу в октябре в Афинах. Будет доступна CD/DVD версия релиза, а для фанатов четырёхвинильное издание. Трэк-лист:</P>
+<P><STRONG>Sweden Rock Festival</STRONG> setlist:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Dark Are The Veils Of Death</B><BR itxtvisited="1">02. <B itxtvisited="1">Samarithan</B><BR itxtvisited="1">03. <B itxtvisited="1">If I Ever Die</B><BR itxtvisited="1">04. <B itxtvisited="1">Hammer Of Doom</B><BR itxtvisited="1">05. <B itxtvisited="1">At the Gallows End</B><BR itxtvisited="1">06. <B itxtvisited="1">Emperor Of The Void</B><BR itxtvisited="1">07. <B itxtvisited="1">Bleeding Baroness</B><BR itxtvisited="1">08. <B itxtvisited="1">A Sorcerer's Pledge</B><BR itxtvisited="1">09. <B itxtvisited="1">Solitude</B><BR itxtvisited="1">10. <B itxtvisited="1">Kill The King</B> (RAINBOW cover)<BR itxtvisited="1"><BR itxtvisited="1">Athens setlist:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Mirror Mirror</B><BR itxtvisited="1">02. <B itxtvisited="1">Samarithan</B><BR itxtvisited="1">03. <B itxtvisited="1">At The Gallows End</B><BR itxtvisited="1">04. <B itxtvisited="1">If I Ever Die</B><BR itxtvisited="1">05. <B itxtvisited="1">Hammer of Doom</B><BR itxtvisited="1">06. <B itxtvisited="1">Dark Are The Veils Of Death</B><BR itxtvisited="1">07. <B itxtvisited="1">Demon's Gate</B><BR itxtvisited="1">08. <B itxtvisited="1">Emperor Of The Void</B><BR itxtvisited="1">09. <B itxtvisited="1">Man Of Shadows</B><BR itxtvisited="1">10. <B itxtvisited="1">Bleeding Baroness</B><BR itxtvisited="1">11. <B itxtvisited="1">Tears</B><BR itxtvisited="1">12. <B itxtvisited="1">A Sorcerer's Pledge</B><BR itxtvisited="1">13. <B itxtvisited="1">Demon Of The Deep</B><BR itxtvisited="1">14. <B itxtvisited="1">Solitude</B></P>
+Автор: Vit Belov
+
+### 10.10.2010 news Шведский трибьют Dio
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>7-8 октября состоялся <STRONG>Sweden Rock Cruise. </STRONG>Набирает популярность практика подобных круизов на паромах или других плавсредствах, сопровождаемая металическим концертом. В этот раз группа "волосатиков" плыла из Стокгольма в Або. Основным блюдом концертного шоу стал массивный "трибьют" ушедшему от нас в этом году <STRONG>Ronnie James Dio</STRONG> с участием героев шведской сцены. Вместе с музыкантами <STRONG>LION'S SHARE</STRONG> выступали:</FONT></P>
+<P>* <B>Bjorn Gelotte</B>&nbsp;и <B>Peter Iwers</B> (IN FLAMES)<BR>* <B>Joacim Cans</B> (HAMMERFALL)<BR>* <B>Ian Haugland</B> (EUROPE)<BR>* <B>Mikael Akerfeldt</B> (OPETH)<BR>* <B>Jens Johansson</B> (STRATOVARIUS, ex-DIO)<BR>* <B>Messiah Marcolin</B> (ex-CANDLEMASS)<BR>* <B>Johan Edlund</B> (TIAMAT)<BR>* <B>Joakim Berg</B>&nbsp;и <B>Magnus "Adde" Andreasson</B> (HARDCORE SUPERSTAR)<BR>* <B>Johan Hegg</B> (AMON AMARTH)<BR>* <B>Mike Wead</B> (BIBLEBLACK, KING DIAMOND, MERCYFUL FATE)</P>
+<P>Видео выступления бывшего вокалиста <STRONG>CANDLEMASS Messiah Marcolin</STRONG>, исполняющего песню <STRONG>BLACK SABBATH "Sign of the Southern Cross"</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/MZ1wMKsq43s&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/MZ1wMKsq43s&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.11.2010 reviews Документ о Rob Lowe в CANDLEMASS
+
+<P>Легендарные шведы CANDLEMASS выпускают уже четвёртый концертный DVD за неполные восемь лет. Самое интересное, что каждый из этих релизов отличался от другого. В далёком уже 2003 году вышел “Documents Of Doom” с записью классического концерта 1990 года, в 2005 “The Curse Of Candlemass” с ре-юнион шоу вместе с Messiah Marcolin, в 2007 концертник, посвящённый 20-летнему юбилею группы, и вот сейчас концертный альбом “Ashes To Ashes” с новым вокалистом Rob Lowe.</P>
+<P>Всё это так, но на каждом из тех DVD песни представлены почти одни и те же. Классика на то и классика, её нужно исполнять на каждом концерте, разбавляя новыми хитами. На обозреваемый DVD попали два концерта, состоявшиеся в 2009 году после выхода последней пластинки CANDLEMASS “Death Magic Doom”. Оба шоу уместились на одном DVD, так что переплачивать любителям шведов не придётся, но, в принципе, сэт-листы у этих концертов схожи. Классические хиты шведов и трэки с новой работы. К сожалению, обе записи не блещут качеством. Видимо, съёмка DVD превратилась уже в рутину для CANDLEMASS. Главным концертом релиза обозначено выступление группы на Sweden Rock Festival. Довольно дико слушать такую замогильную музыку при свете дня. Оригинальные кадры мистически настроенного Rob Lowe с крашеными чёрным ногтями на фоне яркого солнца и летней зелени. Помнится, такой же шок я испытал, когда увидел DIMMU BORGIR на одном из ранних Вакенов. Они тоже пугали прохожих своим корпспэйнтом в два часа дня. Вызывает нарекание и режиссура этого концерта. Скачущая камера, странные ракурсы. Довольно обычное нынче положение вещей, когда многие группы снимают DVD на фестивалях. Вторым концертом представлено клубное шоу в Афинах. Здесь с атмосферой дела обстоят получше, да и длина выступления побольше, но качество съёмки ещё худшее. Подобных роликов довольно много на Youtube.</P>
+<P>Проходной релиз для CANDLEMASS, призванный задокументировать пребывание в группе Rob Lowe. Безусловно, поклонники коллектива должны приобрести этот релиз с этими же целями. Оставим в покое тех, кто не считает Rob Lowe подходящим певцом для CANDLEMASS, им этот DVD совсем не нужен.</P>
+Автор: Vit Belov
+
+### 05.12.2010 news CANDLEMASS празднуют 25-летие
+
+<P><IMG height=284 alt="" hspace=0 src="/images/news_rus/2010.12/17739.jpg" width=200 align=right border=0>Шведы <STRONG>CANDLEMASS</STRONG> отметят свой 25-летний юбилей 2,5-часовым концертом в Стокгольме 18 декабря. На нём группа исполнит целиком свой дебютный альбом <STRONG>"Epicus Doomicus Metalicus" </STRONG>с оригинальным певцом <STRONG>Johan Langqvist</STRONG>. К юбилею также приурочен выпуск лимитированного "бокса" <STRONG>"Doomology". </STRONG>В его состав войдут 5 компакт-дисков. На первый из дисков попадёт дебютный концерт группы 1987 года. Также фэны смогут услышать демо-записи к альбому <STRONG>"Candlemass</STRONG>", демо к альбому <STRONG>"King Of The Grey Islands" </STRONG>с вокалом <STRONG>Mats Leven</STRONG> и многое другое.</P>
+Автор: Vit Belov
+
+### 29.06.2011 news Messiah Marcolin выступил с WOLF
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео совместного выступления бывшего вокалиста <STRONG>CANDLEMASS Messiah Marcolin</STRONG> и heavy-metal'истов <STRONG>WOLF</STRONG> на фестивале <STRONG>Muskelrock </STRONG>можно посмотреть ниже. Музыканты исполнили кавер-версию на песню <STRONG>DEEP PURPLE</STRONG> <STRONG>"Black Night"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом <STRONG>WOLF</STRONG> <STRONG>"Legions Of Bastards" </STRONG>вышел в России на <STRONG>Mazzar Records</STRONG> в июне. Его можно приобрести в нашем интернет-магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></FONT></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/l9G8oSAoMmg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/l9G8oSAoMmg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.10.2011 news CANDLEMASS: Napalm Records, новый альбом и прощальный тур
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21627.jpg" width=250 height=256>Napalm Records</STRONG> анонсировал подписание договора с легендарной шведской&nbsp;группой <STRONG>CANDLEMASS</STRONG>. Лейбл планирует выпустить новый альбом группы весной 2012 года, после чего шведы отправятся в свой прощальный тур.</P>
+<P>-------------------------------</P>
+<P>Официальный сайт <STRONG>CANDLEMASS</STRONG>: <A href="http://www.candlemass.se">www.candlemass.se</A></P>
+<P>Официальный сайт <STRONG>Napalm Records</STRONG>: <A href="http://www.napalmrecords.com">www.napalmrecords.com</A></P>
+Автор: Headcrusher
+
+### 20.10.2011 news CANDLEMASS запишут прощальный альбом
+
+<P>Легендарные шведские думстеры<STRONG> CANDLEMASS</STRONG> работают над своим прощальным альбомом, который выйдет весной будущего года на <STRONG>Napalm Records</STRONG>. В прошлом году знаменитые музыканты отметили свой четвертьвековой юбилей.</P>
+<P>
+<CENTER><IMG height=317 src="/images/news_rus/2011.10/21633.jpg" width=475 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.03.2012 news CANDLEMASS назвали альбом
+
+<P>Одиннадцатый и последний альбом <STRONG>CANDLEMASS</STRONG> получил название "<STRONG>Psalms For The Dead</STRONG>". Пластинка появится в продаже в июне на <STRONG>Napalm Records</STRONG>. </P>
+<P><center><IMG height=201 src="/images/news_rus/2012.03/23288.jpg" width=200 border=0></P>
+Автор: Vit Belov
+
+### 03.06.2012 news Rob Lowe покинул CANDLEMASS
+
+<P><STRONG>Robert Lowe</STRONG> не суждено стать последним певцом в истории<STRONG> CANDLEMASS</STRONG>, которые выпускают в текущем июне последний в своей истории альбом <STRONG>"Psalms For The Dead". </STRONG>Певец отставлен из шведского коллектива, и это связано с качеством концертных выступлений. </P>
+<P>Сейчас группа репетирует с временной заменой в лице старого друга <STRONG>Mats Leven</STRONG> [<B>YNGWIE MALMSTEEN</B>, <B>THERION</B>, <B>TREAT</B>, <B>ADAGIO</B>, <B>AT VANCE</B>, <B>KRUX</B>].</P>
+<P><center><IMG height=463 src="/images/news_rus/2012.06/24060.jpg" width=362 border=0></P>
+Автор: Vit Belov
+
+### 06.01.2013 news ENTOMBED vs. CANDLEMASS в Sweden Rock Magazine
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Две самые легендарные шведские метал-команды <STRONG>CANDLEMASS</STRONG> и <STRONG>ENTOMBED</STRONG> были объединены в акции, посвящённой сотому выпуску журнала <STRONG>Sweden Rock Magazine. </STRONG>На сингл, который вложен в этот номер журнала, попали две кавер-версии - <STRONG>CANDLEMASS</STRONG> сыграли вещь<STRONG> ENTOMBED</STRONG> <STRONG>"To Ride, Shoot Straight And Speak The Truth", </STRONG>а<STRONG> ENTOMBED</STRONG> спели "<STRONG>Black Dwarf</STRONG>" с одноимённого альбома <STRONG>CANDLEMASS</STRONG> 2005 года выпуска. Следует отметить, что <STRONG>CANDLEMASS</STRONG> оставили первое записанное свидетельство своей работы с вокалистом <STRONG>Mats Leven</STRONG>.</FONT></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/3xVqXriKtR4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Ty1Zu30rTW0?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 29.02.2016 news Leif Edling запустил новый проект
+
+<P><SPAN><SPAN><STRONG>Leif Edling</STRONG>, мегамозг и бас-гитарист, стоящий за такими проектами, как <STRONG>CANDLEMASS</STRONG>, <STRONG>AVATARIUM</STRONG>, <STRONG>KRUX</STRONG> и&nbsp;<STRONG>ABSTRAKT ALGEBRA</STRONG>, запустил в начале февраля новый проект под названием <STRONG>THE DOOMSDAY KINGDOM</STRONG>.</SPAN></SPAN></P>
+<P><SPAN><SPAN>Гитаристом и продюсером нового детища был&nbsp;назначен <STRONG>Marcus Judell</STRONG>, соратник <STRONG>Лейфа</STRONG> по группе <STRONG>AVATARIUM</STRONG>.</SPAN></SPAN></P>
+<P><SPAN><SPAN>Следить за развитием&nbsp;проекта&nbsp;<STRONG>THE DOOMSDAY KINGDOM</STRONG> можно на фейсбуке и официальном сайте: </SPAN></SPAN></P>
+<P><SPAN><SPAN><A href="http://www.facebook.com/The-Doomsday-Kingdom-1158432850841410/">http://www.facebook.com/The-Doomsday-Kingdom-1158432850841410/</A><BR><A href="http://www.doomsdaykingdom.se/">http://www.doomsdaykingdom.se</A></SPAN></SPAN></P>
+<P><SPAN><SPAN>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28909.jpg" width=600 height=287></SPAN></SPAN> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Candlemass

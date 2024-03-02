@@ -31,6 +31,21 @@ Robert Lundin - drums
 
 * C группой "Dark Funeral" 
 
+## Публикации
+
+### 05.02.2001 reviews Неплохой и необычный материал
+
+<p>Неплохой и необычный материал. Много всего понамешано из самых разных тяжелых стилей. Мощные и чистые heavy-metal риффы на фоне скриминга и клавишной атмосферы. Этакий атмосферно-мелодичный heavy-doom-black. Среднетемповый, с приятными мелодиями, протяжными риффами, интересными ходами. Иногда, по-хорошему напоминает Metallica, но с шипящим вокалом, клавишной атмосферой и более тяжелой мелодикой. Кстати, это проект лидера Dark Funeral (Emperor Magus Caligula) и другого участника группы Dominion'а. Альбом не слишком разнообразный, но и не занудный, с отдельными партиями чистого вокала и превосходными запоминающимися соло-гитарными партиями. Фанатам Dark Funeral резко противопоказан, остальным же рекомендуется для обязательного прослушивания.</p>
+
+Автор: Dimas
+
+### 05.02.2001 reviews Quite good and exotic stuff
+
+<p>Quite good and exotic stuff. It is a lot of all mixture from the most miscellaneous high-gravity styles. Potent and clean heavy-metal riffs on a background screaming and keyboard atmosphere. It is атмосферно-melodious heavy-doom-black. Mean pace, with pleasant tunes, lingering riffs, interesting courses. Sometimes, on - good resembles Metallica, but with sibiliant vocal, keyboard atmosphere and rougher melodica. By the way, it is the project of the leader Dark Funeral (Emperor Magus Caligula) and other participant of group Dominion'а. An album not too miscellaneous, but also not boring, with in separate lots clean voice and topping stored solo-guitar crews. To the fans Dark Funeral sharply counterindicative, remaining it is recommended for mandatory listening.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

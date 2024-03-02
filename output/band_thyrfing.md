@@ -105,6 +105,325 @@ Peter Lof - Synthesizers
 
 * C группой "Rutthna" 
 
+## Публикации
+
+### 09.10.1999 reviews 
+
+<p>Ещё один великолепный альбом. На сей раз, это языческий viking-metal. В этом году уже вышел ранее ещё один потрясающий альбом выполненный в такой же стилистике. Это был MYTHOTIN. Если вам понравился MYTHOTIN, то смело покупайте и этот альбом. Он ничуть не хуже. Такая же мягкость навязчивых гитарных риффов, несокрушимая мощь ритм-секции, неописуемо красивая мелодика, разборчивый блэковый вокал, те же лирические интонации, умопомрачительные клавишные пассажи. Просто класс! Только не подумайте, что этот альбом - копия MYTHOTIN. Несмотря на то, что у них столько много общего, у них разное звучание (а это самое главное).(9)</p>
+
+Автор: Dimas
+
+### 07.07.2000 news Новый альбом Thyrfing уже записан.
+
+<p> Новый альбом Thyrfing "Urkraft" записан в Abyss Studio и поставлен в план выпуска лейбла Hammerheart Records на 21 августа. На этом альбоме Thyrfing предстанут во всей мощи... так что готовьтесь к самому эпическому и мелодичному викинг-металлическому альбому, какой вы когда-либо слышали!</p>
+
+Автор: Morsus
+
+### 07.07.2000 news New album of Thyrfing already is recorded.
+
+<p> Thyrfing’s new album "Urkraft" is recorded in Abyss Studio and is set for release on a label Hammerheart Records on 21 August. This album will see Thyrfing in once improved strength... so be prepared for the most epical/melodical Viking Metal album ever!</p>
+
+Автор: Morsus
+
+### 24.07.2000 articles Интервью с басистом группы Thyrfing
+
+<p> - Каково было работать в студии такого высокого класса, как The Abyss Studios? Какие у Вас сложились отношения с Питером Тагтгреном? Вы удовлетворены проделанной работой?</p>
+<p> The Abyss Studios - это просто супер класс! Я думаю, что это лучшая студия группы нашего типа. И братья Томми и Питер Тагтгрены просто гениальные продюссеры. Мы работали вместе с Томми над альбомами "Valdr Galga" и "Urkraft". Он классный мужик! Мы и в дальнейшем, при записи наших следующих альбомов, будем пользоваться услугами Томми и студии "В", в этом нет сомнений! Питер тоже классный парень! Он тоже немного помогал нам с альбомом "Valdr Galga". Он работает в студии "А" и был очень занят работой с другими группами, когда мы работали с Томми...</p>
+<p> - На сайте вашего лейбла Hammerheart сообщалось, что точно не известно, когда состоится релиз вашего альбома. Были какие-то проблемы?</p>
+<p> Я действительно не знаю в чем проблема! Но последнее, что я слышал - это то, что выход альбома планируется на август. Будем надеяться, что так и будет!</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1947.jpg" hspace=5 vspace=5 align=right></p>
+<p> - В какой стране вы пользуетесь наибольшей популярностью? Где вам больше всего понравилось выступать?</p>
+<p> Лучший концерт? Наверно в Роттердаме, в Голландии в этом году!! Была огромная толпа, они, похоже, сошли с ума когда мы играли "Storms of Asgеrd" и "Going Berzerk", и они орали еще громче, когда мы закончили выступление. Мы могли сыграть дополнительно еще одну песню, но не стали... Взамен этого ShadowBreed взяли наши инструменты и сыграли "Hell Awaits" группы Slayer, и члены Thyrfing и Primordial присоединились к ним. Я никогда это не забуду!!</p>
+<p> - Вы думаете, что Thyrfing претерпел большие изменения, в плане изменения звучания и общего имиджа, если сравнивать "Urkraft" и "Hednaland"?</p>
+<p> Да, мы многому научились за эти годы, поэтому то, что мы исполняем сейчас звучит намного лучше и профессиональнее, особенно, если сравнивать наши первые работы с последними! Что касается лирики, то мы по-прежнему затрагиваем темы мифологии и древних времен, поэтому, можно сказать, что наш имидж не изменился.</p>
+<p> - Вы никогда не думали о том, чтобы добавить чистый вокал в свою музыку? Я имею ввиду, как Dimmu Borgir или Borknagar, к примеру... Я знаю много фэнов, которым действительно очень нравятся подобные веши. Вы когда-либо думали, о том, чтобы использовать живые скрипки, флейты, и, может быть, арфы, чтобы действительно получить старинную специфическую атмосферу звучания?</p>
+<p> На "Urkraft" у нас есть чистые вокальные партии в паре песен. Мы опять пригласили Тони для их записи (он также помогал нам при записи Valdr..) и все очень довольны проделанной им работой... На следующем альбоме, который мы запишем, будет больше "живых" инструментов. Звучание тогда получается действительно очень хорошим.</p>
+<p> - Давай вернемся в прошлое... расскажи, пожалуйста, немного об истории группы.</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1948.jpg" hspace=5 vspace=5 align=left></p>
+<p> Кем и когда была сформирована группа Thyrfing? Что является вашими источниками вдохновения при написании стихов и сочинении музыки? Почему вы выбрали имя Thyrfing? Это оригинальное имя группы, или оно изменялось с течением времени?</p>
+<p> Группа Thyrfing была создана весной 1995-го года Джоком, Питером, Патриком и мной. В этом же году, зимой, нами было записано демо "Solen Svartnar". Основной идеей было создавать хорошие песни; играли мы тогда очень примитивно, по сравнению с настоящим временем. Большое влияние на нас оказали Isengard, Storm, Satyricon, Bathory, Hades и пр. Нашими источниками вдохновения, когда мы сочиняем свои песни, часто служит старинная скандинавская мифология, а еще фильмы на подобные темы, такие как "Conan", "Korpen flyger", "Korpens skugga", "Braveheart", "Den vite viking", а также научная фантастика и фильну ужасов... Книги могут также очень вдохновлять музыку...</p>
+<p> Бывает часто, что мы сочиняем песню все вместе. Начинается это с того, что кто-то придумывает рифф, затем, постепенно, появляется новая песня. На написание одной песни уходят недели, а иногда и месяцы; затем мы придумывает тексты, и накладываем их на музыку.</p>
+<p> Имя "Thyrfing" нашел Джок. Так назывался мифический меч; его особенностью было то, будучи извлеченным из ножен, он не мог быть помещен обратно, не испачкавшись чей-нибудь кровью... Есть много интересных историй об этом. Первоначально он назывался "tirfing" (или "tyrfing"), но Джок добавил к этому столову букву "Н", чтобы придать ему больше оригинальности... В самом начале мы назвали группу "Midvinter", но когда мы узнали, что уже есть группа с таким названием, то Джок придумал для нас новое имя, и наше первое демо мы выпустили уже под именем "Thyrfing".</p>
+<p> - Какой свой альбом вы бы назвали самым лучшим? Есть ли у вас песни которые тебе лично не нравятся и которые ты никогда не хотел бы больше исполнять?</p>
+<p> Я бы сказал, что "Urkraft" несомненно является таким альбомом, мне он действительно очень нравится. Лично у меня нет таких песен, которые я хотел бы забыть раз и навсегда, мне очень нравится каждая наша песня.</p>
+<p> - Какое у тебя мнение относительно такой точки зрения многих слушателей, что очень много групп стали исполнять так называемый "коммерческий" тип металла, потому, что они развиваются и широко используют синтезаторы и разные другие модные и современные фишки?</p>
+<p> Я не согласен с этим утверждением, потому что лично мне нравится, когда группа развивается, а не стоит на одном месте. Я люблю слушать разную музыку, и в том числе, не имеющую ничего общего с металлом, и я не понимаю людей, которые так думают. Я могу сказать только одно: никогда не покупайте диск, не послушав его заранее в музыкальном магазине!</p>
+<p> <img src="/images/articles_rus/2000.07/articles_rus_1949.jpg" hspace=5 vspace=5 align=right></p>
+<p> - Вы верите в те вещи, о которых поете; "Thor", "Loke" и т.п., или это всего лишь ваш имидж?</p>
+<p> В Thyrfing мы вовсе не религиозные, просто мы все увлечены мифологией, историе древних времен. Очень плохо, что в школах здесь, в Швеции, детей не обучают старинным скандинавским убеждениям, школы все больше уделяют внимание вопросам христианства. Дерьмо! Я думаю, что это не должно быть отдельным предметом, но обязательно должно присутствовать в школьном курсе истории\религии. Это глупость - пренебрегать нашим старинным наследием. Только археологи и ученные имеют к этому интерес! (теперь я отвечу на вторую часть вопроса) Да, это наш имидж, конечно. Наша лирика повествует о викингах.</p>
+<p> - Игра в группе это просто хобби, которое, как я думаю, и является частично работой. Чем занимаются музыканты Thyrfing вне группы? Кстати, за время существования в группе происходили какие-либо перемены состава или нет?</p>
+<p> Ну, Томми целыми днями сидит за компьютером в какой-то фирме, но я не уверен, что он там работает. Питер работает строителем, Джок развозит хлеб по ночам, а Хенк учится. Патрик и я ничем не занимаемся в настоящее время. Патрик недавно ушел со своей работы, чтобы отдохнуть летом, а я по воскресеньям подрабатываю на деревообрабатывающей фабрике... это всё! Я люблю болеть вместо того, чтобы работать, ха-ха! Еще мы все любим сильно напиваться!</p>
+<p> Лично я готов посвятить все свое время делам группы, но, к сожалению, не все в группе могут и хотят так поступать. Хотя посмотрим, что будет в будущем..</p>
+<p> Изменения в составе были такие: Томас присоединился к нам в 1996-м году, после выхода нашего дебютного альбома. А перед тем, как приступить к записи "Valdr Galga" мы выгнали ритм-гитариста Винтраса, поскольку он не имел особого интереса к нашей музыке. После этого его место занял Хенк, который до сих пор остается с нами.</p>
+<p> - Еще я хочу спросить у тебя одну вешь, которой я, честно говоря, сильно удивился. Вы в некоторых песнях использовали звуки военных сражений. Я слышал их, а позже, когда я посмотрел фильм "Braveheart" я услышал в фильме и узнал эти звуки. Эти сэмплы действительно были взяты из фильма "Braveheart" или они просто похожие?</p>
+<p> Да, ты совершенно прав. Эти звуки мы взяли из фильма.</p>
+<p> - О'кей, в конце интервью я бы хотел дать тебе слово. Можешь ли ты что-нибудь добавить?</p>
+<p> Спасибо вам за интересное интервью и за поддержку!</p>
+<p> Ждите наш "Urkraft" в августе! Если все купят наш альбом, мы сможем позволить себе больше пива и сигарет, ха-ха!</p>
+<p></p>
+<p> Surrealistic 'Zine</p>
+<p> перевод Nybras</p>
+
+Автор: Nybras
+
+### 31.07.2000 articles Primordial force of Thyrfing
+
+<p> The questions were answered by Patrik, guitarist of Thyrfing.</p>
+<p></p>
+<p> - Please, tell me a little about your previous band PANTHEON .</p>
+<p> Well, this band was our first experience of playing together in a band, and it was from a start just like an experiment for us, changing band-name, style of music and members now and then. I think it was around '94-'95 we finally took the name Pantheon and find out somewhat the kind of music we wanted to play. During 1996, Thyrfing became more and more serious, and after Pantheon's second demo-recording in the spring '97, the band was put on ice. It was not like a mutual decision or anything... it just happened. Jocke did all the music, and most of the lyrics in Pantheon, so when he didn't came up with anything new, it just faded out... Anyway, I've heard rumours that he has started to make some new songs once again, so I don't think we should consider the band dead yet...</p>
+<p> - What doing now all members of the band, when work with the album already finished and stays only to wait its release? Do you have a hobby, except occupations by the music? What are you doing when you have a free time?</p>
+<p> <img src="/images/articles/2000.07/articles_1996.jpg" hspace=5 vspace=5 align=left></p>
+<p> Thomas works with layout at a media company, Peter is a constructor, Jocke are starting an education for sound-engineering this autumn, and now he works with deliveries at nights. Henke is also studying. Kimmy and I are unemployed at the moment. Besides music I've been very interesting in webdesign and constructing homepages. Hopefully I'll find some way to make some cash upon it too... at the moment I just see it as an hobby and learning all the time. In our free-time, we do the usual things I guess. Just hanging out, having some beers now and then etc.</p>
+<p> - What do you think about pirates? All CD's are expensive here and peoples sometime have to buy bootlegs.</p>
+<p> Hah, first I thought you were asking about actual pirates, which made me dream away about computer game Monkey Island and the music of Running Wild...eh. But about your actual question... of course these bastards stinks! I know that our albums are available as MP3's on a lot of servers on the Internet and I can also imagine that there are a lot of pirate-CD's and tapes out there. Concerning the economical/exchange-situation in Russia, I'm not that pissed off if a fanatical metal-fan does it there, as if a rich american pig sits and gain a lot of money on it...</p>
+<p> - Please say me what mean album names "Valdr Galga" and "Urkraft" ?</p>
+<p> "Valdr Galga" is another name for Odin (master-god in northern mythology) and means something like "Master of The Gallow". "Urkraft" means "primordial force" but could also figuratively speaking mean "immense power".</p>
+<p> - What will you do after release of album? Will tour be in autumn\winter?</p>
+<p> I don't know yet. Probably answering interviews and compose new material for the next album. We never rests! No tour is planned at the moment.</p>
+<p> - What is your playing in the band, just hobby or something else? You should like to earn on the life only by music?</p>
+<p> Of course that would be a dream, but it very hard to achieve when you play the kind of music that we do. It's more than a hobby, but I don't see it as my job though. It's deeper than that...</p>
+<p> - How long do you play on guitar? What has forced you in first time to take it in hands?</p>
+<p> I have played guitar for more or less 5 years. The reason for me started to play was my urge to able to make music for Thyrfing. I've never been that interested just to play, educate, music-theory, technics etc. I play guitar because I want to make songs. It's as simple as that.</p>
+<p> - Did you play on live shows now last time? What songs do you play on it? Are they songs from old albums or some news songs fron Urkraft also?</p>
+<p> <img src="/images/articles/2000.07/articles_1997.jpg" hspace=5 vspace=5 align=right></p>
+<p> We make some live-shows now and then. This far we've played one 3-week tour and two 4-day tours, one festival (Dynamo Open Air 1999), and some minor gigs in Sweden. When we're on stage we play songs from all our albums.</p>
+<p> - What do you know about Russia? Don't you know some Russian metal bands?</p>
+<p> So you are saying that there is more in Russia than fur-hats and vodka? Ha...seriously. I know some things about Russia, but I don't think it's more than what common man does. As a general view it seems that some people are very rich and the rest very poor. I don't have that much knowledge about russian culture, traditions or history, it's more what you hear or see on TV about it. I know some russian bands...Korosia Metalla (don't know how it's spelled), S.C.A.L.P. and Satarial, eventhough I'm not listening to them that much.</p>
+<p> - What music do you prefer to listen?</p>
+<p> When it comes to music I like a lot of stuff; metal, folk, classical, rock, soundtracks etc. etc. My record collection is dominated by Metal-albums though.</p>
+<p> - Do you often bye CD's for your audio collection? What disk did you bye last?</p>
+<p> I haven't bought that much CD's the last time. I would say it's a combination of lousier economy and lack of interesting releases. The last album I purchased was Skyclad's debut-album on CD. (In Scotland actually, of all places!)</p>
+<p> - Ha-ha! Why for all foreigners Russia is involve with vodka and fur-hats!! Oh, you has forgotten about great bears else! ha-ha! Here, in Moscow, presently temperature is about +30(degr. C), it's very hot!.. Else I know that in European coutries very often on the television show not at all truth about our country. You simply scare</p>
+<p> that what beside us occur! :) Would you like to go to the Russia with live show?</p>
+<p> Yeah, would of course be very cool to do so... but the current situation doesn't show much signs of any raid over there... I've heard about problems with some tours going there, and eventhough I guess a lot of people will show up, it doesn't seems that the tour-promoters do many shows in Russia at all. Of course the view you get of Russia in television is a bit exaggerated (at least american shows I guess). Still I can't get the "vodka'n'fur-hats" - picture out of my head when I hear the word "Russia". That's simply the truth ha-ha.</p>
+<p> - What do you think about church & politicy ?</p>
+<p> I like some churches as buildings for their architecture and historical value. But when it comes to the christendom...what can I say. It's simply a plague, infesting most of western Europe for a long time now. But it's power has decreased and hopefully it will die by itself. I don't care much for politics, it can be pretty interesting in a historical perspective, but nowadays I think most parties are licking each others arses...they seem to be pretty much the same all of them...no wonder why all extreme parties are showing up nowadays....may it be left- or right-wing.</p>
+<p> <img src="/images/articles/2000.07/articles_1998.jpg" hspace=5 vspace=5 align=left></p>
+<p> - "Urkraft" will go out on dutch label Hammerheart Records; you were contacted by it in 1997. Have you ever wanted\tryed to make contract with any other labels (such as Nuclear Blast, Century Media, etc.) since 1997?</p>
+<p> Of course there would be advantages to be on some of these major labels, eventhough I'm sure there are disadvantages aswell. We've never been that eager to switch label, that we've taken contact with anybody else.</p>
+<p> - Front covers for all your albums made by Kris Verwimp... How usually process of making covers (and all other design) for album?</p>
+<p> The cover for the first album was actually made before the album, so that was some kind of unused gem that Kris had in his back-catalogue. For "Valdr Galga" and "Urkraft" we gave him descriptions over the phone how the covers should be. I think it turned out good aswell, but in my opinion the first cover is the best one!</p>
+<p> - Have you ever user corpspainting (i mean live-shows)? (and WHY if not)</p>
+<p> WHY would we need to wear make up? It has no meaning to us, or the music we play at all.</p>
+<p> - How many friends do you have? Have you friends which are members of other best-known bands?</p>
+<p> I have no friends! ha-ha..... no, but the term "friend" is a bit hard to define. I have some close friends, that I've known for a long time, and I have other friends which I have a more briefly friendship with. And yes, we are friends with some other bands a.o. Raise Hell, Vintersorg, Sins of Omission...</p>
+<p> - Do you like a vodka? :) With how much years (under the law) in your country is allowed to buy alcoholic drinks? I heard that in Norway not rarefied even to drink a beer on the streets. Do you have the same "problem" in your country?</p>
+<p> Yes, I like vodka. Can you buy me some? In sweden you have to be 18 years old to be served alcohol at resturants/pubs, but to buy it in stores you have to be 20. As I've passed that age, it's not such a "problem" for me. We don't have those laws against drinking on the streets though, that other countries seems to have.</p>
+<p> - Yes! I can send you some bottles of RUSSIAN VODKA! It's the best drink all over the world, no doubts ! :)))</p>
+<p> It's hard to beat the swedish Absolut...but ok, you'll get a chance to try...</p>
+<p> - Well, thank you very much for this interview! Do you want to tell more for our reades?</p>
+<p> No, haha! It's just fine like this. Visit our website at www.thyrfing.com and check out "Urkraft" when it's released. Cheers for the interview and to all readers of it aswell. Skal ta mej fan!</p>
+<p></p>
+<p> Nybras</p>
+<p></p>
+
+Автор: Nybras
+
+### 28.08.2000 articles &quot;Первозданная сила&quot; Thyrfing
+
+<p>На вопросы ответил Patrik, гитарист группы Thyrfing.</p>
+<p></p>
+<p> - Пожалуйста, расскажи немного о своей предыдущей группе PANTHEON.</p>
+<p> Хорошо, эта группа была нашим первым опытом работы вместе, и с самого начала это было просто экспериментом. Мы постоянно меняли свое название и, также, состав группы, по-моему, где-то в 94-95 году мы окончательно утвердили название Pantheon и определились со стилем музыки, которую хотим играть. Постепенно группа становилась все более и более серьезной для нас, но после записи второго демо (весной 1997 г.) проект пришлось заморозить. Это не было нашим взаимным желанием... просто так получилось. Джок (Jocke) писал всю музыку и большую часть текстов для Pantheon, поэтому, когда он перестал придумывать новые песни, мы перестали играть.</p>
+<p> - Чем занимаются члены группы сейчас, когда работа над альбомом уже закончена? У тебя есть еще какие-нибудь увлечения, кроме занятия музыкой? Чем ты занимаешься в свободное время?</p>
+<p> Томас работает в какой-то фирме, Питер - строитель, Джок начнет учиться на звукоинженера этой осенью, Хэнке тоже учится сейчас. Кимми и я безработные в данный момент. Кроме музыки я еще очень интересуюсь вэб-дизайном, созданием страничек. Надеюсь что, мне удастся заработать на этом денег как-нибудь, но пока это просто хобби. А в свободное время мы занимаемся разными вещами... Просто тусуемся, пьем пиво и всё такое.</p>
+<p> - Как ты относишься к пиратству? У нас диски довольно таки дорогие, и не каждый человек может себе позволить их покупать...</p>
+<p> Хех, я сразу подумал, что ты говоришь о настоящих пиратах, которые сразу вызывают у меня ассоциации с компьютерной игрой "Monkey Island" и музыкой группы Running Wild :) Но что касается вопроса, то конечно ...они ублюдки! Я знаю, что все наши альбомы доступны в мр3-файлах на очень многих серверах в интернете, и я только могу представить, как есть много наших пиратских кассет и дисков. Учитывая экономическу ситуацию в России, я не имею ничего против того, что метал-фэны покупают левые диски, но вот богатые американские свиньи зарабатывают много денег на этом...</p>
+<p> <img src="/images/articles/2000.07/articles_1996.jpg" hspace=5 vspace=5 align=left></p>
+<p> - Объясни, пожалуйста, что означают названия "Valdr Galga" и "Urkraft"?</p>
+<p> "Valdr Galga" - это еще одно имя Одина (это бог в северной мифологии) и означает оно что-то типа "Master of The Gallow"; "Urkraft" означает "первозданная сила" но также можно перевести, как "огромная мощность"</p>
+<p> - Чем Вы займетесь теперь, после выхода альбома? Отправитесь в турне осенью?</p>
+<p> Я еще не знаю точно. Наверно будем давать интервью и сочинять новый материал для следующего альбома. Мы без дела не останемся! А никаких концертов не запланировано еще.</p>
+<p> - Твоя игра в группе - это лишь хобби? Хотел бы ты своей музыкой зарабатывать себе на жизнь?</p>
+<p> Конечно, это моя мечта! Но очень тяжело этого достигнуть, играя такую музыку, как мы. Поэтому я не рассматриваю музыку, как мою основную профессию.</p>
+<p> - Ты давно играешь на гитаре? Что заставило тебя впервые взять ее в руки?</p>
+<p> Я играю на гитаре где-то 5 лет. А причина, по которой я начал играть - это желание сочинять музыку для Thyrfing. Меня никогда не интересовала просто игра, изучение музыкальной теории, муз. образование и т.д. Я играю на гитаре, потому что хочу сочинять песни. Вот и всё.</p>
+<p> - Вы выступаете с концертами сейчас? Какие песни вы на них исполняете? Со старых альбомов, или с нового тоже?</p>
+<p> Да, мы выступаем время от времени. Недавно вернулись из трехнедельного турне. На концертах мы исполняем песни со всех альбомов.</p>
+<p> - Что тебе известно про Россию? Может быть знаешь какие-нибудь наши металлические группы?</p>
+<p> Так ты говоришь, что в России есть что-то кроме меховых шапок и водки? Ха... серьезно. Я знаю кое-чего о России, но не более того, что говорят люди. Основное - это то, что есть очень богатые люди, а остальные очень бедные. О русской культуре, традициях и истории я знаю довольно мало. А что касается русских групп... Коррозия Металла, S.C.A.L.P. и Satarial, хотя я не слышал их.</p>
+<p> - А какую музыку ты сам предпочитаешь слушать?</p>
+<p> У меня разнообразные вкусы. Мне многое нравится: металл, рок, классика, народная музыка, саундтрэки и т.д. Но, конечно, в моей коллекции болишинство метал-альбомов.</p>
+<p> - Ты часто покупаешь диски для своей аудио-коллекции? Какой диск ты купил последним?</p>
+<p> <img src="/images/articles/2000.07/articles_1997.jpg" hspace=5 vspace=5 align=right></p>
+<p> Я не покупаю много дисков в последнее время, из-за отсутствия чего-либо интересного. Последний диск, который я купил, это был дебютный альбом Skyclad.</p>
+<p> - Ха-ха, почему у всех иностранцев Россия ассоциирутся с шапками и водкой?! Ты забыл еще про медведей! :) Я знаю, что в европейских странах по телевизору часто показывают не совсем правдивые вещи про нашу страну. Вас просто пугают! Хотел бы ты приехать и выступить у нас?</p>
+<p> Да, это было бы классно... но я думаю, что врядли кто-то согласится привезти нас в Россию. Да, я думаю, что наши средства массовой информации немного искажают информацию о происходящем в вашей стране. Но все же "водка и шапки" - это то, что первым делом приходит мне на ум, когда я слышу слово "Россия". Это действительно так, ха-ха!</p>
+<p> - "Urkraft" выходит на Hammerheart Records, вы связались с ними еще в 1997-м году. А вы хотели\пытались подписать контракт с каким-то более крупным лейблом (Nuclear Blast, Century Media, например) с того времени?</p>
+<p> Да, конечно, мы пытались сделать это. Но все же наш лейбл вполне устраивает нас.</p>
+<p> - Ваши три альбома оформил один человек, Крис Вервимп (Kris Verwimp)... Как обычно проходит процесс создания обложки диска?</p>
+<p> Картина для первого альбома была сделана еще до его выхода. А для "Valdr Galga" и "Urkraft" мы просто по телефону объяснили, как представляем себе обложку диска. Мне нравятся все картины, но первая, по-моему, самая классная!</p>
+<p> - Вы когда-либо пользовались гримом на концертах? И если нет, то почему?</p>
+<p> А почему мы ложны им пользоваться? Мне кажется, он не подходит к той музыке, которую мы играем.</p>
+<p> - У тебя много друзей? И есть ли друзья из других известных групп?</p>
+<p> <img src="/images/articles/2000.07/articles_1998.jpg" hspace=5 vspace=5 align=left></p>
+<p> У меня нет друзей! ха-ха... нет, просто слово "друг" не имеет конкретного значения. У меня есть несколько хороших знакомых, которых я знаю долгое время, и есть другие знакомые, которых я знаю не так давно. Да, мы хорошо знакомы с другими группами, такими как Raise Hell, Vintersorg, Sins of Omission...</p>
+<p> - Ты любишь водку? :) А вообще, с какого возраста (по закону), у вас в стране разрешается покупать спиртные напитки? Я слышал, что в Норвегии нельзя пить даже пиво на улице. У вас в стране нет такой "проблемы"?</p>
+<p> Да, мне нравится водка! Можешь прислать мне её немного? В Швеции надо быть старше 18-ти лет, чтобы пить в барах и ресторанах, и с двадцати лет алкогольные напитки можно купить в магазине. Поскольку я уже вышел из этого возраста, то это не "проблема" для меня. И на улицах у нас тоже не запрещают пить.</p>
+<p> - Ну да, я могу послать тебе пару пузырей настоящей РУССКОЙ ВОДКИ! Это, несомненно, самый лучший напиток в мире! :))</p>
+<p> Трудно соперничать со шведским "Абсолютом"... но хорошо, у тебя есть шанс попробовать... :)</p>
+<p> - Хорошо, спасибо большое тебе за интервью. Хочешь, может быть, еще что-то сказать нашим читателям?</p>
+<p> Нет, ха-ха! Посещайте наш сайт www.thyrfing.com, покупайте и слушайте наш новый альбом "Urkraft". Спасибо вам за интервью и привет всем его читателям. <br> Skal ta mej fan!</p>
+<p></p>
+<p> Nybras</p>
+
+Автор: Nybras
+
+### 07.09.2000 reviews Огромная мощность первозданной силы
+
+<p>Огромная мощность первозданной силы. Да пребудет она с нами вечно. Прелюбопытнейший viking-metal. Я осмелюсь сказать больше - альбом года! Великолепный гениальный шедевр! Отличное сочетание перебираемых мелодичнейших риффов на фоне невыделяющихся, но своевременных клавиш, интересные акустические (почти бардовские) вставки. Основной вокал - задушенный, но часто в дело вступает и чистый вокал ведающий о героях баталий викингов. Риффы постоянно сменяют друг друга. Очень потрясная мелодика. Довольно много инструментальных партий. А вообще весь музыкальный материал звучит очень торжественно, гимноподобно и, пожалуй даже пафосно, но как ни странно - это положительная черта альбома. Материал легко воспринимается и слушается с огромным удовольствием в любое время. Группа достигла высокого положения вырва пьдестал viking-metal у распавшихся ныне Mithotyn. Теперь они короли!</p>
+
+Автор: Dimas
+
+### 26.09.2000 bios Творческий путь Thyrfing.
+
+<p> 1995 год.</p>
+<p> С 1994 года Джоке Кристенссон, Патрик Линдгрен и Томас Ваананен играли в металлической команде, которая в то время подвергалась постоянным переменам … менялось название группы, менялись участники и музыкальный стиль. Наконец сформировалась некая устойчивая конструкция, включавшая Томаса (ударные), Патрика (бас) и Джоке, отвечавшего за всю гитарную и вокальную часть. Назвали группу Pantheon. Затем возникла идея запустить другой проект … Джоке имел обыкновение после репетиций играть на барабанах, а Патрик на гитаре, появилась мысль попробовать сделать группу в таком раскладе. Включение в состав Кимми Сьолунда (бас) и Питера Лофа (клавишные) завершило формирование новой команды. После перебора различных названий для проекта, выбор пал на Thyrfing.</p>
+<p> Несколькими месяцами позже были готовы четыре песни, и в весьма примитивных условиях состоялась первая запись. Портативный четырехдорожечный магнитофон, установленный в репетиционной студии, с допотопными микрофонами, усилителем и т.д. Джоке исполнил все вокалы на этой записи. Демо называлось "Solen svartnar" ("Солнце станет черным"), а лирика была посвящена теме Рагнарок, концу света, богов и людей в норвежской мифологии. Эта запись была сделана без какой-либо серьезной цели. Она была выпущена тиражом всего в 100 копий, часть из них бала разослана в шведские фанзайны, часть продана через независимых дистрибьюторов.</p>
+<p></p>
+<p> 1996 год.</p>
+<p> В то время как Pantheon по-прежнему продолжал свое существование, Thyrfing становился все более "реальным проектом". В это время состоялась следующая запись, и на сей раз в приличной студии. Материал, записанный на второй демо-ленте, под названием "Hednaland" ("Языческая Земля") состоял из четырех "нормальных" песен и трех инструментальных. В этот раз демо получило более широкое распространение среди лейблов, журналов и дистрибьюторов во всем мире.</p>
+<p></p>
+<p> 1997 год.</p>
+<p> В начале года с Thyrfing связались люди из голландского лейбла Hammerheart Records. Они заинтересовались демо-кассетой "Hednaland" и предложили выпустить ее в виде MCD. Приняв предложение, музыканты высказали пожелание помимо этого материала записать также и полноформатный CD. Обеим сторонам пришлась по душе эта мысль, и команда приступила к работе над диском. Переиздание демо отложили на некоторое время …</p>
+<p> Первая половина лета была занята репетициями и подготовкой материала, а также состоялась пара небольших концертов в Стокгольме. В июле Thyrfing направились в Sunlight Studio записывать свой дебютный альбом. Звукорежиссерами были Томас Скогсберг и Фред Естби из Dismember. После записи был приглашен второй гитарист, главным образом для концертных выступлений. Им стал Винтрас, прежде игравший в Funeral Mist.</p>
+<p></p>
+<p> 1998 год.</p>
+<p> В марте дебют с одноименным названием появился в продаже. Критика была в основном положительной, и подавляющая часть музыкальных изданий признавала тот факт, что Thyrfing - группа с большим потенциалом в будущем. Между тем уже начал готовиться и репетироваться материал для второй работы. Тогда же начались проблемы с Винтрасом. Он проявлял недостаточно интереса и мало уделял внимания команде, так что в конце концов вынужден был покинуть ее …</p>
+<p> Второй альбом "Valdr Galga" был записан в весьма известной Abyss Studio (Studio B, если быть точным) с Томми Тагтгреном за звукорежиссерским пультом. Сессия записи проходила в располагающей, спокойной атмосфере сельской местности Людвика, в отличие от записи в Sunlight Studio, где работа была более напряженной и нервной. Когда Thyrfing были готовы к концертным подвигам, к ним присоединился гитарист Хенрик Свегсьо (маэстро из Ancient Winds, в настоящее время просто Winds).</p>
+<p></p>
+<p> 1999 год.</p>
+<p> В марте, спустя ровно год после дебюта, "Valdr Galga" появился в продаже. На сей раз Hammerheart приложили намного больше усилий в продвижении, и альбом стал своего рода маленьким "крупным достижением" для группы. В течение всей весны Thyrfing освещались в заглавных публикациях таких изданий, как Rock Hard, Metal Hammer, Ablaze, Aardschok и Heavy Oder Was?. Немногим ранее Thyrfing сконтактировались с молодым шведским лейблом Grim Rune Prod., который проявил интерес переизданию первой демо-ленты. Так в мае был отпечатан "Solen svartnar" в виде экслизивного лимитированного 7 " EP тиражом 300 номерных копий.</p>
+<p> Теперь подошло самое время для первых зарубежных гастролей, и они начались. Thyrfing сыграли на Dynamo Open Air в разделе "Black Stage" 23-его мая и затем состоялся их первый большой тур. В туре, названом Summer Clash II, принимали участие также Six Feet Under, Vader, Enslaved, Cryptopsy и Nile. Сразу после тура был выпущен CD с обеими демо-записями на дочернем подразделении Hammerheart - Unveiling The Wicked. CD был назван "Hednaland", как и второе демо, и был выпущен ограниченным тиражом 2 000 копий. После гастролей группа взяла на некоторое время заслуженный перерыв, собирая энергию для следующего альбома.</p>
+<p></p>
+<p> 2000 год.</p>
+<p> Ничто не помешало Thyrfing запечатлеть на ленте итог их третьего творческого усилия. "Urkraft" был записан в Abyss Studio B, как и прошлый раз. Ожидая выхода весьма сильного альбома, группа отыграла семь концертов в Германии, Голландии и Бельгии вместе с другими питомцами лейбла Primordial и Shadowbreed. 21-ого августа вышел ожидаемый релиз "Urkraft" и сразу получил множество лестных отзывов.</p>
+
+Автор: Morsus
+
+### 18.01.2001 news Новости про следующий альбом Thyrfing.
+
+<p>В настоящее время уже есть семь песен в более или менее законченном виде. В мае Thyrfing планируют отправиться в студию, где одновременно запишут полноформатник и мини-альбом. Предполагается, что MCD выйдет в конце лета, а альбом - поздней осенью.</p>
+
+Автор: Morsus
+
+### 18.01.2001 news News on the next Thyrfing album.
+
+<p>Currently there are seven tracks more or less finished. The plan is to enter the studio in May to record a fullength album and a MCD at the same time. Possible release dates are late summer for the MCD and late autumn for the album.</p>
+
+Автор: Morsus
+
+### 02.05.2001 news THYRFING  #4......
+
+<p>Шведы "THYRFING" засели в Dug-Out Studios (Uppsala) с продюссером Daniel Bergstrand (работавшим с MESHUGGAH, STRAPPING YOUNG LAD, DARKANE, STUCK MOJO) для записи продолжения прошлогоднего СД "Urkraft". Новое творение незатейливо названо: "The Fourth Outrage".</p>
+
+Автор: Yermola
+
+### 02.05.2001 news THYRFING will be entering Dug-Out Studios ....
+
+<p>Sweden's THYRFING will be entering Dug-Out Studios in Uppsala in the fall with producer Daniel Bergstrand (i.e. MESHUGGAH, STRAPPING YOUNG LAD, DARKANE, STUCK MOJO) to record the follow-up to last year's Urkraft CD, tentatively entitled entitled The Fourth Outrage. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 21.11.2001 news Новый альбом Thyrfing будет сведён заново
+
+<p>Thyrfing не удовлетворились качеством сведения своего предстоящего альбома и решили в течение декабря смикшировать всё заново. Выход альбома намечен на апрель 2002 года.</p>
+
+Автор: Morsus
+
+### 21.11.2001 news New Thyrfing&#39;s album will be re-mixed
+
+<p>Thyrfing have solved to re-mixed their upcoming album in December. They did not felt that the mix did any justice to the supreme recording and material. Album release is scheduled around April.</p>
+
+Автор: Morsus
+
+### 28.01.2002 news Swedish Viking metal proponents Thyrfing have announced Vansinnesvisor ....
+
+<p>Swedish Viking metal proponents Thyrfing have announced Vansinnesvisor (Tunes of Lunacy in English) as the title of their fourth full-length album not The Fourth Outrage as previously reported. The album was produced by Daniel Bergstrand (Meshuggah, Andromeda) at Dug-Out Studios, but the band's unhappiness with the final mix has forced Hammerheart to delay the record. Apparently, the second mix will be the end result. <BR><BR> So far only a handful of songs are known for Vansinnesvisor: <BR> "Kaos еterkomst" <BR> "Draugs harg" <BR> "Vansinnesvisan" <BR> "The Giant's Laughter" <BR> "Digerdцden" <BR> "Blodorn - The Fourth Outrage" <BR><BR> Thyrfing's Vansinnesvisor is now scheduled for a March 25, 2002 release on Hammerheart Records.</p>
+
+Автор: Yermola
+
+### 28.01.2002 news Викинги плывут!!!
+
+<p>Шведские викинги "Thyrfing" объявили, что новый альбом будет называться "Vansinnesvisor" (Tunes of Lunacy на английском), а не "The Fourth Outrage" как сообщалось ранее. Продюссировал диск обычно работающий с Meshuggah и Andromeda - Daniel Bergstrand. Трек-лист: <BR> <BR> "Kaos еterkomst" <BR> "Draugs harg" <BR> "Vansinnesvisan" <BR> "The Giant's Laughter" <BR> "Digerdоden" <BR> "Blodоrn - The Fourth Outrage" <BR><BR> Выходит "Vansinnesvisor" 25-го марта через Hammerheart Records.</p>
+
+Автор: Yermola
+
+### 07.02.2002 news MP3 THYRFING ...
+
+<p>"THYRFING" опубликовали три песни в МР3 с еще не вышедшего альбома "Vansinnesvisor". Послушать их можно здесь: <BR><BR> <A HREF="http://w1.874.telia.com/~u87419352/draug.mp3">01. Draugs Harg</A><BR> <A HREF="http://w1.874.telia.com/~u87419353/varldsspegeln.mp3">02. Vаrldsspegeln</A><BR> <A HREF="http://w1.874.telia.com/~u87419353/angestens.mp3">03. Еngestens Hоgborg <BR></A></p>
+
+Автор: Yermola
+
+### 07.02.2002 news THYRFING New Song Samples Online....
+
+<p>Sweden's THYRFING have posted three sound clips from their follow-up to 2000's Urkraft CD, entitled Vansinnesvisor, which is due to be issued in April. The tracks in question are as follows:<BR> <BR> <A HREF="http://w1.874.telia.com/~u87419352/draug.mp3">01. Draugs Harg</A><BR> <A HREF="http://w1.874.telia.com/~u87419353/varldsspegeln.mp3">02. Vаrldsspegeln</A><BR> <A HREF="http://w1.874.telia.com/~u87419353/angestens.mp3">03. Еngestens Hоgborg <BR></A></p>
+
+Автор: Yermola
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 25.11.2002 reviews Sort of a step back
+
+<p>This is sort of a step back, although I would lie if I said “Vansinnesvisor” turned out as a disappointment. No, it didn't. At least, referring to my personal opinion. If I had to compare this work with any other one by THYRFING, I'd most probably pick up the CD these Swedes made their debut with. However, it has it's differences. First of all, “Vansinnesvisor” was executed – stupendously executed! – at Dug-Out Productions by Daniel Bergstrand himself, so you won't find that good 'ol Sunlight sound in here. Secondly and lastly, keyboards now play the minor part, and “Vansinnesvisor” isn't as all-synth-soaked effort as “Thyrfing” was. Guitars – tuned lower than usual – have been put forward in the mix, and that's good. That's definitely something new for THYRFING which have been previously utilizing keyboards at seemingly maximum extent… Of course they never were a sympho-black metal act or whatever… but… Well, you got the point. And just like I already said, that's good. You won't discover any cover versions as well, by the way. “Clean” vocals are also few in number; mostly choirs. Generally speaking, it's not a masterpiece… but a CD worth THYRFING's former endeavors. Check it out.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 10.03.2005 news THYRFING на Regain
+
+<P><STRONG>THYRFING</STRONG> заключи сделку с <STRONG>Regain Records</STRONG>. Новый альбом планируется к выходу в сентябре.</P>
+Автор: Vit Belov
+
+### 14.10.2005 news Новый альбом THYRFING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>THYRFING "Farsotstider"</STRONG> (Время Чумы)&nbsp;выходит 21 ноября на <STRONG>Regain</STRONG>. Сэмплы можно послушать на сайте группы: <A href="http://www.thyrfing.com/">http://www.thyrfing.com/</A></FONT></P>
+Автор: Vit Belov
+
+### 08.04.2008 news THYRFING начинают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>THYRFING</STRONG> готовы к записи шестого альбома. Пластинка выйдет в октябре на <STRONG>Regain Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 12.06.2008 news Новый релиз THYRFING
+
+<P><STRONG>Regain Records</STRONG> объявили 22 октября датой релиза нового альбома <STRONG>THYRFING</STRONG>. Пластинка пока не имеет названия.</P>
+Автор: Vit Belov
+
+### 21.08.2008 news Трэк-лист нового THYRFING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый пока не названный альбом <STRONG>THYRFING</STRONG> выходит 22 сентября на <STRONG>Regain Records</STRONG>. Стал известен трэк-лист пластинки:</FONT></P>
+<P>01. <B itxtvisited="1">En Sista Litania</B> <BR itxtvisited="1">02. <B itxtvisited="1">Fr&#229;n Stormens &#214;ga</B><BR itxtvisited="1">03. <B itxtvisited="1">Isolation</B><BR itxtvisited="1">04. <B itxtvisited="1">Hels Vite</B><BR itxtvisited="1">05. <B itxtvisited="1">Griftefrid</B><BR itxtvisited="1">06. <B itxtvisited="1">Becoming The Eye</B><BR itxtvisited="1">07. <B itxtvisited="1">Tre Vintrar – Tve Solar</B></P>
+Автор: Vit Belov
+
+### 21.03.2009 news THYRFING вновь взяли шестого
+
+<P><STRONG>THYRFING </STRONG>объявили имя нового гитариста. Им стал <STRONG>Fredrik Jansson</STRONG> (ex-<B>DYSPLASIA</B>). Теперь группа вновь состоит из шести участников.</P>
+Автор: Vit Belov
+
+### 28.06.2012 news THYRFING на NoiseArt
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=317 alt="" hspace=0 src="/images/news_rus/2012.06/24267.jpg" width=475 align=right border=0>Шведские викинги<STRONG> THYRFING</STRONG> подписали контракт с<STRONG> NoiseArt</STRONG>. Новый альбом коллектива будет записан этим летом и выйдет весной будущего года. Состав группы:</FONT></P>
+<P><STRONG>Jens Ryden</STRONG> - Vocals<BR itxtNodeId="33"><B itxtHarvested="0" itxtNodeId="32">Patrik Lindgren</B> - Guitar<BR itxtNodeId="31"><B itxtHarvested="0" itxtNodeId="30">Fredrik Hernborg</B> - Guitar<BR itxtNodeId="29"><B itxtHarvested="0" itxtNodeId="28">Joakim Kristensson</B> - Bass<BR itxtNodeId="27"><B itxtHarvested="0" itxtNodeId="26">Peter Lof</B> - Synthesizers<BR itxtNodeId="25"><B itxtHarvested="0" itxtNodeId="24">Dennis Ekdahl</B> - Drums</P>
+Автор: Vit Belov
+
+### 05.01.2013 news Обложка нового THYRFING
+
+<P><STRONG>THYRFING </STRONG>закончили работу над новым альбомом <STRONG>"De Odeslosa" </STRONG>в студии <STRONG>Fascination Street </STRONG>с продюсером <STRONG>Jens Bogren</STRONG> (<B>OPETH</B>, <B>PARADISE LOST</B>, <B>WITCHCRAFT</B>). </P>
+<P>Группа опубликовала обложку к альбому, которую нарисовал <STRONG>Costin Chioreanu</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25238.jpg" width=475 height=475></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Чья песня?

@@ -8,6 +8,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.08.2003 news Новый альбом RED AIM
+
+<p>Немецкие рокеры RED AIM закончили запись своего нового долгожданного альбома "Niagara" в известной всему миру Woodhouse Studios. Релиз "Niagara" назначен на 20 октября на Metal Blade Records.</p>
+<P> Уже известен трэклист альбома:</p>
+<P> 01. Almost Night Train <BR> 02. Ghost Of Beluga <BR> 03. Salamander <BR> 04. The Stupidity Of Going East <BR> 05. Matula <BR> 06. Sisal Sister <BR> 07. Hard 16 <BR> 08. Eldorado Convertible <BR> 09. Matador <BR> 10. Rivolta <BR> 11. The Volga Boatmen <BR> 12. Crying Is Blackmail <BR> 13. The Invisible Ray <BR> 14. Burnout In Israel</p>
+
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

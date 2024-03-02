@@ -176,6 +176,78 @@ Paul Raven - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.10.2001 news Бен Грин уходит из GODFLESH ...
+
+<p>Индустриальщики "GODFLESH" расстались с одним из основателей - бассистом Ben Green, который оставил команду для "университета и другой карьеры...". Запланированный ранее европейский тур с FEAR FACTORY, все же состоится с Paul Raven (ex-KILLING JOKE, PRONG) на басу...</p>
+
+Автор: Yermola
+
+### 28.10.2001 news GODFLESH have parted ways with Ben Green...
+
+<p>GODFLESH have parted ways with Ben Green, bass player and co-founder of the band, who reportedly left the group in order to “go to university and pursue another career". The group’s upcoming European tour with FEAR FACTORY will still take place, with Paul Raven (ex-KILLING JOKE, PRONG) filling in on bass. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 11.07.2003 news Новый альбом PRONG
+
+<p>В августе на Locomotive Music выходит новый альбом группы PRONG под названием "Scorpio Rising". Это будет первая студийная работа группы, после альбома 1996 года "Rude Awakening". В "Scorpio Rising" войдут следующие вещи:</p>
+<p><IMG SRC="/images/news_rus/2003.07/4579.jpg" ALT="pho" width=240 height=240 hspace="15" vspace="5" border="1" align="left"> 1. Detached <BR> 2. All Knowing Force <BR> 3. Embrace The Depth <BR> 4. Reactive Mind <BR> 5. Regal <BR> 6. Inner Truth <BR> 7. Avoid Promises <BR> 8. Siriusly Emerging <BR> 9. Assurances <BR> 10. Out Of This Realm <BR> 11. Letter To A 'Friend <BR> 12. Entrance Of The Eclipse <BR> 13. Red Martial Workings <BR> 14. Hidden Agendas</p>
+
+Автор: Dimas
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 23.06.2012 news &quot;Revenge... Best Served Cold&quot; - новое видео группы PRONG
+
+<P><STRONG>"Revenge... Best Served Cold" -</STRONG>&nbsp;новое видео группы <STRONG>PRONG</STRONG>, с вышедшего 24 апреля альбома <B itxtHarvested="0" itxtNodeId="87">"Carved Into Stone"</B>, можно посмотреть ниже. Альбом был записан с продюсером <B itxtHarvested="0" itxtNodeId="84">Steve Evetts</B>, который прежде работал с группами <B itxtHarvested="0" itxtNodeId="83">THE DILLINGER ESCAPE PLAN</B>, <B itxtHarvested="0" itxtNodeId="82">SYMPHONY X</B>, <B itxtHarvested="0" itxtNodeId="81">SEPULTURA</B>, <B itxtHarvested="0" itxtNodeId="80">HATEBREED</B> и другими.&nbsp;</P>
+<CENTER>
+<OBJECT id=AOLVP_us_1567820646001 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000 width=476 height=357><PARAM NAME="_cx" VALUE="12594"><PARAM NAME="_cy" VALUE="9445"><PARAM NAME="FlashVars" VALUE="videoid=1567820646001&codever=1&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Faolmaster%2F1612833736%2F1612833736%5F1567716808001%5Fari%2Dorigin54%2Darc%2D126%2D1334711977798%2Ejpg%3FpubId%3D1612833736&playerid=61371447001&publisherid=1612833736"><PARAM NAME="Movie" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="Src" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="WMode" VALUE="Transparent"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="000000"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true"><PARAM NAME="AllowFullScreenInteractive" VALUE="">
+<embed src="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" bgcolor="#000000" width="476" height="357" name="AOLVP_us_1567820646001" flashvars="videoid=1567820646001&codever=1&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Faolmaster%2F1612833736%2F1612833736%5F1567716808001%5Fari%2Dorigin54%2Darc%2D126%2D1334711977798%2Ejpg%3FpubId%3D1612833736&playerid=61371447001&publisherid=1612833736"></embed></OBJECT></CENTER>
+<CENTER>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 04.09.2014 news PRONG: видеоклип на песню &quot;Remove, Separate Self&quot;
+
+<P><STRONG>PRONG</STRONG>&nbsp;выпустили клип на песню <STRONG>"Remove, Separate Self"</STRONG> со своего новейшего&nbsp;альбома <STRONG>"Ruining Lives"</STRONG>. 24 октября группа&nbsp;выпускает, одного названия с песней, 7" винил.</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/_tjAnALwPq8?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 30.09.2014 news PRONG в соц. сети ВКонтакте
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27299.jpg" width=200 height=202>В социальной сети ВКонтакте по адресу: <A href="http://vk.com/prongny">http://vk.com/prongny</A>, открылось неофициальное сообщество американской группы <STRONG>PRONG</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последние новости группы, фотографии с концертов, афиши, архивные снимки и&nbsp;не только,&nbsp;можно будет найти на страницах этого сообщества.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Добро пожаловать!</FONT></P>
+<P><A href="http://vk.com/prongny"><U><FONT style="BACKGROUND-COLOR: #000000" color=#0000ff>http://vk.com/prongny</FONT></U></A></P>
+Автор: Headcrusher
+
+### 16.03.2015 news PRONG выпускают альбом кавер версий
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американское трио <STRONG>PRONG</STRONG> выпускает альбом кавер версий. Диск получил навзвание<STRONG> "Songs From The Black Hole"</STRONG> и выйдет на лейбле <STRONG>SPV</STRONG>/ <STRONG>Steamhammer</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Doomsday </STRONG>(<STRONG>DISCHARGE</STRONG> cover) | 02. <STRONG>Vision Thing</STRONG> (<STRONG>SISTERS OF MERCY</STRONG> cover) | 03. <STRONG>Goofy's Concern</STRONG> (<STRONG>BUTTHOLE SURFERS</STRONG> cover) | 04. <STRONG>Kids Of The Black Hole</STRONG> (<STRONG>ADOLESCENTS</STRONG> cover) | 05. <STRONG>Bars</STRONG> (<STRONG>BLACK FLAG</STRONG> cover) | 06. <STRONG>Seeing Red</STRONG> (<STRONG>KILLING JOKE</STRONG> cover) | 07. <STRONG>Don't Want To Know If You Are Lonely</STRONG> (<STRONG>HUSKER DU</STRONG> cover) | 08. <STRONG>Give Me The Cure</STRONG> (<STRONG>FUGAZI</STRONG> cover) | 09. <STRONG>Banned in D.C.</STRONG> (<STRONG>BAD BRAINS </STRONG>cover) | 10. <STRONG>Cortez The Killer</STRONG> (<STRONG>NEIL YOUNG</STRONG> cover)</P>
+<P>Даты выхода: </P>
+<P>25&nbsp;марта - Скандинваские страны, 27 марта - Германия, 30 марта - Европа и&nbsp;31 марта - США.</P>
+<P>VK-сообщество посвящённое группе <STRONG>PRONG</STRONG>: <A href="http://vk.com/prongny">http://vk.com/prongny</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.03/27689.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

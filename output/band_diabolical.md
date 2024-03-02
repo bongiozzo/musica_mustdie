@@ -48,6 +48,43 @@ L.Soderberg - bass & drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.02.2002 news CENTINEX w&#x2F; DIABOLICAL...
+
+<p>01.03.02 Sweden - Gцteborg - Belsepub <BR> 16.03.02 Sweden - Finspеng - Rockbageriet<BR> 22.03.02 Sweden - Stockholm - Kafe 44<BR> 23.03.02 Sweden - Vдsterеs - Bankiren<BR> 11.04.02 Sweden - Falun - Shopen<BR></p>
+
+Автор: Yermola
+
+### 23.02.2003 reviews Тысяча смертей
+
+<p>Второй полнометражный альбом шведского мизантропического оркестра. По какому-то стечению обстоятельств, это третий подряд прослушиваемый мною релиз представляющий собой помесь melodic death metal и thrash metal. Причем, он так же хорош, как и TERROR 2000 и HATESPHERE. Ну разве что у DIABOLICAL материал будет еще потяжелее и агрессивнее. Интенсивная экстремальная и мощная музыка с вспышками мелодизма, нигилизма и мизантропии, с плотной и техничной гитарной работой. Не шедевр, но очень хороший альбом с качетвенным звуком и интересным музыкальным материалом. Хочу обратить внимание, что на альбоме можно услышать русскую речь. В первой и последней композициях во время батальных звуков хорошо различимы крики "Давай-давай" и "Еще немного, еще чуть-чуть". Подобный материал не стыдно рекомендовать, что я с удовольствием и делаю.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 03.11.2010 news Новый альбом DIABOLICAL
+
+<P>Шведы <STRONG>DIABOLICAL</STRONG> подготовили новый альбом <STRONG>"Ars Vitae". </STRONG>Четвёртая работа коллектива выйдет 21 января на <STRONG>ViciSolum Productions</STRONG>. 17 новых трэков было записано в этом году в <STRONG>Necromorbus Studio</STRONG> (<B>WATAIN</B>, <B>UNANIMATED</B>, <B>DESTROYER 666</B>). </P>
+<P><center><IMG height=400 src="/images/news_rus/2010.11/17530.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.03.2011 news DIABOLICAL: видеоприветствие для российских фанатов
+
+<P>Шведы DIABOLICAL записали видеоприветствие для фанатов в преддверии их российского тура:</P>
+<P>&nbsp;</P>
+<center><iframe title="YouTube video player" width="640" height="390" src="http://www.youtube.com/embed/dVEEWDyJe3U" frameborder="0" allowfullscreen></iframe>
+Автор: Headcrusher
+
+### 11.04.2014 news Новый клип DIABOLICAL
+
+<P>Новое видео на песню <STRONG>‘Oracle’</STRONG> шведской death-metal банды <STRONG>DIABOLICAL</STRONG> можно посмотреть ниже. Трек взят с последнего на сегодня альбома банды "<STRONG>Neogenesis</STRONG>".</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/iP2Kuk-0Ur0?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

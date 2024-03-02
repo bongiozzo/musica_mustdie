@@ -71,6 +71,15 @@ Heavy metal, USA
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.03.2008 news WARRIOR объединились
+
+<P>Американские heavy-metal легенды <STRONG>WARRIOR</STRONG> воссоединились с оригинальными гитаристом и вокалистом. Вот окончательный состав группы, которая работает над своим пятым альбомом:</P>
+<P><STRONG>Parramore McCarty</STRONG> (Vocals)<BR><B>Joe Floyd</B> (Guitars)<BR><B>AC Alexander</B> (Guitars)<BR><B>Rob Farr</B> (Bass)<BR><B>Dave DuCey</B> (Drums)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

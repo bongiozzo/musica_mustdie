@@ -103,6 +103,23 @@ Mastered By Tom Coyne At Sterling Sound.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.01.2003 news Возрождение ACCUSER
+
+<p>Реформировались одни из лидеров немецкого thrash metal восьмидесятых - группа ACCUSER.</p>
+
+Автор: Dimas
+
+### 06.07.2011 news Новый альбом ACCUSER
+
+<P><IMG height=285 alt="" hspace=0 src="/images/news_rus/2011.07/19932.jpg" width=285 align=right border=0>15 июля выходит новый альбом <STRONG>ACCUSER "Dependent Domination"</STRONG> на<STRONG> Red Shift Records/Twilight Distribution</STRONG>. Пластинка была записана в<STRONG> Gernhart Studio</STRONG> продюсером <STRONG>Martin Buchwalter (PERZONAL WAR, DESTRUCTION, SUIDAKRA</STRONG>). Трек-лист:</P>
+<P>1.<STRONG> Presentiment</STRONG><BR>2. <STRONG>Beneath Your Dignity<BR></STRONG>3. <STRONG>Torn To Pieces</STRONG> <BR>4. <STRONG>Desolate Shape</STRONG><BR>5. <STRONG>Escape From The Oath <BR></STRONG>6. <STRONG>Dependent Domination <BR></STRONG>7. <STRONG>Mastering Punishment</STRONG> <BR>8.<STRONG> Death To The Traitor</STRONG><BR>9. <STRONG>As You Bleed</STRONG><BR>10. <STRONG>The Cause Of All Evil</STRONG><BR>11. <STRONG>Behold&Beware</STRONG></P>
+<P>Кое-что послушать можно на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/accuser2008">http://www.myspace.com/accuser2008</A></P>
+<P>Последний на сегодня седьмой студийник<STRONG> ACCUSER "Agitation"</STRONG> вышел в 2010 году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

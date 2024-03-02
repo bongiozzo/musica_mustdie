@@ -36,6 +36,45 @@ ex-Dismember, Afflicted
 * C группой "Afflicted" Joacim Carlsson
 * C группой "Dismember" Matti K&#228;rki
 
+## Публикации
+
+### 23.01.2008 news COYOTE BRUTAL FEST # 2
+
+<P><IMG height=300 alt="" hspace=0 src="/images/shows_rus/2008.02/12224.jpg" width=400 align=right border=5>COYOTE BRUTAL FEST # 2<BR>Адрес: ул. Мельникова, 7 (М. Дубровка / Пролетарская) Тел: (495)675-91-46 . <A href="http://www.relaxclub.ru">http://www.relaxclub.ru</A><BR>Начало в 17:00<BR>Стоимость билетов:<BR>500 рублей - в предварительной продаже.<BR>650 рублей - в день концерта.<BR>Все вопросы по : тел-8-903-538-34-38 , <BR>email: <A href="mailto:coiot@mail.ru">coiot@mail.ru</A> , <A href="http://www.coyoterecords.ru/">www.coyoterecords.ru</A></P>
+<P>MALIGNANT TUMOUR (Чехия) Grind Crust CoreMENTAL DEMISE (Украина) Brutal Death<BR>TREMOR (Белгород) Shanson Gore Grind<BR>MEMBRO GENITALI BEFURCATOR (Москва) Brutal Death<BR>SEPTICOPYEMIA (Иваново) Gore Grind<BR>MURK EXORBITANCE (Иваново) Brutal Death Core<BR>FESTERGUTS (Калуга) Brutal Death<BR>ACETONIZER (Саратов) Alco Grind Core<BR>SURGEONT (Нижний Новгород) Brutal Death<BR>FUCK YOUR DEPRESSION (Пенза) Brutal Death Grind<BR>ГАДЫ (Набережные Челны) Porno Grind Core<BR>DUODILDO VIBRATOR (Тверь) Techno Gore Grind</P>
+<P><BR>GENERAL SURGERY (Швеция) Brutal Gore Grind<BR><A href="http://www.generalsurgery.nu/">www.generalsurgery.nu</A></P>
+<P>Группу GENERAL SURGERY сформировали в декабре 1988 года барабанщик Matti K&#228;rki (ныне звезда металла) и басист Grant McWilliams . Раннее творчество походило на прежнюю noisecore группу Matti BERBE. Первым вокалистом GENERAL SURGERY был Richard Cabeza (тоже теперь небезызвестный чел). Уже весной 1989-го состав распался, группа девять месяцев не существовала, пока в декабре Matti не набрал новых людей (кроме вокалиста), причём сам переключился на бас и бэк-вокал. После сочинения трёх песен в начале 1990 года была сделана пробная демо-запись "Erosive Offals" на голимом любительском уровне. Она выдержала тираж менее 10 штук. Через несколько дней GENERAL SURGERY вышли на сцену в пригороде Стокгольма на разогреве UNLEASHED. Они были все в майках CARCASS и за пять минут разогнали публику, кричащую "Полное дерьмо!" и "Невиданный отстой!". Непонятые гении после прослушивания своей кассеты решили не откладывать запись в настоящей студии и усилить композиции текстами, для чего был призван бывший басист Grant McWilliams. Официальное демо "Pestisferous Anthropophagia" (с теми же тремя песнями) датируется апрелем 1990 года. Сделанные на двухкассетнике копии достигли нужных людей. Группа стала обладать собственным звучанием. В середине года из GENERAL SURGERY ушёл вокалист Richard Cabeza, и эту должность занял вернувшийся поэт-песенник Grant McWilliams. Группой заинтересовался Bill Yurkiewicz, вскоре ставший одним из основателей Relapse Records. Поэтому в сентябре 1990-го GENERAL SURGERY сделали пробное демо "Internecine Prurifence", а через пару месяцев записали культовый EP "Necrology". Relapse издал его в 1991-м на виниле и в 1993-м как мини-CD с двумя бонусами. Matti K&#228;rki ушёл из группы и стал бессменным вокалистом DISMEMBER. Туда же в 1992-м перебрался Richard Cabeza. Он был басистом DISMEMBER с перерывами до 2004 года. После ухода Matti трио GENERAL SURGERY решило распуститься, не познав славы (это случилось до издания "Necrology"). Гитарист Joacim Carlsson перешёл в AFFLICTED и потом стал одним из основателей FACE DOWN, вокалист Grant McWilliams занялся учёбой, а барабанщик Mats Nordrup вообще завязал с музыкой.</P>
+<P>Катализатором возрождения GENERAL SURGERY мог стать только CARCASS. Grant и Joacim задумались о возрождении в 1999 году, а в ноябре 2000-го записали с сессионным барабанщиком кавер CARCASS "Empathological Necroticism" для трибьюта (Necropolis Records, 2001). Два года шли поиски постоянных барабанщика и басиста. Летом 2002-го был завербован басист SAYYADINA Andreas Eriksson, а уже им был найден барабанщик Adde Mitroulis из BIRDFLESH. В феврале 2003-го GENERAL SURGERY записала семь новых песен, которые вошли на CD-сплит с THE COUNTY MEDICAL EXAMINERS (Razorback Records, 2003), переизданный на LP Yellow Dog Records год спустя. По отзывам критиков, музыка GENERAL SURGERY усложнилась, но осталась узнаваемым неистовым горграйндом. Группа осталась верна андеграундным традициям и прежде всего уделила внимание сплитам. Очередная порция песен бала записана в конце 2003 года для виниловых сплитов с австралийскими грайндкорщиками FILTH (Bones Brigade Records, 2004) и испанцами MACHETAZO (Escorbuto Recordings и Goryfied Productions, 2004). В январе 2004 года Andreas Eriksson ушёл из группы по причине занятости, вместо него в состав GENERAL SURGERY вошёл басист REGURGITATE Glenn Sykes, плюс вторым гитаристом стал Johan Wallin. С февраля начались концерты возрождённой GENERAL SURGERY, в мае они съездили в тур по Германии и Голландии, а потом приняли участие в крупных фестивалях Fuck The Commerce 2004 и Obscene Extreme 2004 (шесть их песен можно увидеть на DVD). Итальянский лэйбл Buio Omega Records выполнил долг перед потомками и издал три демо GENERAL SURGERY 1990-го года на двух семидюймовках. Наконец в июле 2004-го Listenable Records заключил контракт с GENERAL SURGERY на три альбома. Запись полноформатного дебюта готовилась очень долго и состоялась только в декабре 2005-го. Группа сократила концертную деятельность, - в 2005-м состоялось всего четыре выступления, зато среди них появление на Maryland Deathfest 2005.</P>
+Автор: Vit Belov
+
+### 30.08.2008 news Фоторепортаж с фестиваля Brutal Assault Vol. 13
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Наши корреспонденты вернулись с фестиваля <STRONG>Brutal Assault Vol. 13</STRONG> в Чехии. Наша сплочённая команда фоторепортёров подготовила отчёт об этом событии, который можно увидеть в соотвтетствующем разделе нашего сайта. Уже&nbsp;"висят" эксклюзивные фото <STRONG>EXODUS</STRONG>, <STRONG>SEPTICFLESH</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>SADIST</STRONG>, <STRONG>GENERAL SURGERY</STRONG>, <STRONG>HOLLENTHON</STRONG>. Обновления последуют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></FONT></P>
+Автор: Vit Belov
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 03.08.2012 news GENERAL SURGERY: 7&quot; миньон &quot;Like An Ever Flying Limb&quot; 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские мясники <STRONG>GENERAL SURGERY</STRONG> выпускают 7" миньон состоящий из пяти песен. Диск получил название <STRONG>"Like An Ever Flying Limb"</STRONG> и выйдет на <STRONG>Relapse Records</STRONG> осенью 2012 года.
+<CENTER><IMG border=0 src="/images/news_rus/2012.08/24498.jpg" width=500 height=500></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Carcass

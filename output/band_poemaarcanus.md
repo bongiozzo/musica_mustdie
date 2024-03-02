@@ -58,6 +58,31 @@ Guest musician on "Elixir": David jara - Violin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.01.2003 reviews Чилийцы? Единственное достоинство
+
+<p>Gothic-doom metal из Чили. Не очень известная южноамериканская страна не может похвастаться обилием известных металлических команд. Poema Arcanus не порадуют Вас оригинальностью. Музыка группы лежит в плоскости gothic-doom металл, разве что мелодии не соответствуют вокальной линии практически на всех песнях. Понять, зачем и почему это, не представляется возможным, должно быть это какой-то закос под progressive. Записано всё на хорошем европейском уровне, вот только... Всё мне не дают покоя эти вокальные партии... Зачем? 65 минут этой 'прогрессивности' выдержать невозможно.</p>
+
+Автор: Vit Belov
+
+### 08.01.2003 reviews Are they Chileans? It&#39;s their only achievement...
+
+<p>Gothic-doom metal from Chilie. This rather unknown South American country can not boast of abundance of famouse metal bands. Poema Arcanus will not make glad you by their originality. Music of band lies in surface of gothic doom metal. But melodies don't correspond to vocal lines almost in all songs. I can not understand. It may be like 'progressive'. Production is on good Europion level, but... Why? 65 minutes of that 'progressive' are impossible to listeners.</p>
+
+Автор: Vit Belov
+
+### 29.06.2005 news POEMA ARCANUS выпускают новый альбом
+
+<P>Новый альбом чилийских думстеров <STRONG>POEMA ARCANUS "Teluric Manifesto"</STRONG> уже готов. В ближайшее время пластинка увидит свет на<STRONG> Aftermath</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.06.2005 news POEMA ARCANUS to release new album
+
+<P>Chilean doomsters <STRONG>POEMA ARCANUS</STRONG> are finishing new album "<STRONG>Teluric Manifesto</STRONG>". Album will be released via <STRONG>Aftermath </STRONG>in the near future.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

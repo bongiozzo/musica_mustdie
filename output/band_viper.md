@@ -45,6 +45,22 @@ Pit Passarell - bass
 * C группой "Angra" Andre Matos
 * C группой "Virgo" Andre Matos
 
+## Публикации
+
+### 17.06.2001 news Мы говорим Матос, подразумеваем VIPER???
+
+<p> 24 июня Andre Matos (ex-Angra/Shaman) собирается принять участие в специальном шоу Viper!!! По задумке Андрэ собирается исполнить ряд композиций с альбомов "Soldiers Of Sunrise" (1987) and "Theatre Of Fate" (1989), записанных, как известно, при его непосредственном участии.</p>
+
+Автор: Helloween
+
+### 21.04.2012 news Andre Matos вернулся в VIPER
+
+<P><IMG height=316 alt="" hspace=0 src="/images/news_rus/2012.04/23626.jpg" width=475 align=right border=0>Оригинальный вокалист <STRONG>Andre Matos</STRONG> вернулся в бразильскую группу<STRONG> VIPER</STRONG> после 22 лет. Группа отправится в юбилейный тур этим летом, посвящённый четвертьвековому юбилею альбома "<STRONG>Soldiers Of Sunrise</STRONG>". Во время концертов группа отыграет целиком оба своих классических альбома: <STRONG>"Soldiers Of Sunrise"</STRONG>&nbsp;и <B itxtHarvested="0" itxtNodeId="28">"Theater Of Fate". </B></P>
+<P>В составе группы: <STRONG>Pit Passarell</STRONG> (bass, vocals), <B itxtHarvested="0" itxtNodeId="22">Felipe Machado</B> (guitar)&nbsp;и <B itxtHarvested="0" itxtNodeId="21">Guilherme Martin</B> (drums). Также к <STRONG>VIPER</STRONG> присоединился <STRONG>Hugo Mariutti</STRONG>, который заменил <B itxtHarvested="0" itxtNodeId="19">Yves Passarell.</B></P>
+<P>Следует отметить, что в последние годы раздельные карьеры<STRONG> VIPER</STRONG> и <STRONG>Andre Matos</STRONG> складывались не слишком здорово. Последняя работа <STRONG>VIPER "All My Life"</STRONG> вышла в 2007 году и не достигла каких-либо успехов, а <STRONG>Andre Matos</STRONG> выпустил не очень удачный второй сольный альбом "<STRONG>Mentalize</STRONG>" в 2009 году и помогал <STRONG>Timo Tolkki</STRONG> в проекте <STRONG>SYMFONIA</STRONG>, который благополучно прекратил своё существование после первого альбома.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

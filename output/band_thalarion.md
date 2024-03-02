@@ -122,6 +122,21 @@ Concluding vocals on "A Staircase To My Soul" by Roman Slavik.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2000 reviews Славянский вариант Tristania
+
+<p>Славянский вариант Tristania. Второй альбом словацкой команды явно превосходит предыдущий. музыка стала более мягкой и мелодичной. Используется популярное нынче разнообразие вокалов. Мужские гроулинг и задушенный, женский же здорово напоминает Anneke из The Gathering. Также при записи использовались помимо традиционых инструментов дудки, свирели, бубны и ...китайские духовые инструменты. Лирика вся с загадочно-мистическим подтекстом. Превосходны партии клавишных. Музыка, в основном, спокойная, немного меланхоличная, с потрясающими гитарными соло. Хотя, для многих, эта музыка может показаться уж слишком вторичной. Ничего нового и интересного. Все время впечатление, что где-то уже это было. И тем не менее, нельзя не признать, что альбом очень и очень неплох. Ну а если вы до сих пор поклонник красивого и мелодичного doom-death-metal, то этот альбом вам обязательно понравится.</p>
+
+Автор: Dimas
+
+### 19.07.2000 reviews Slavonic version Tristania
+
+<p>Slavonic version Tristania. The second album of a Slovak command obviously surpasses previous. Music became more mild and melodious. A popular now diversification вокалов will be used. Man's growling and strangled, female is able-bodied resembles Anneke from The Gathering. Also at a record the pipes, tambourines and were used apart from traditional of tools fuites... Chinese wind. Lyrics all with a mysterious - mystical underlying idea. The crews keyboard. Music, basically, quiet, little bit melancholic, with startling guitar solo are excellent. Though, for many, this music can show too secondary. Anything new and interesting. All time an impression, that where already it was. And nevertheless, it is necessary to recognize, that an album very much and very much.. Well and if you till now admirer beautiful and melodious doom-death-metal, this album necessarily is pleasant to you.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

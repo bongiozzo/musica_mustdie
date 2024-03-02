@@ -84,6 +84,15 @@ Vitalij Kuprij  -  Piano, Producer
 * C группой "George Bellas" Extreme Measures (1998)
 * C группой "Boals, Mark" Keyboardist
 
+## Публикации
+
+### 26.02.2002 bios Vitalij Kuprij bio...
+
+<p>Born in 1974 in Volodarka, Kiev, Ukraine, keyboardist Vitalij Kuprij has received numerous awards for his playing talents, and has covered a wide variety of musical styles throughout his career, including classical and prog rock, among others. During his early years, Kuprij won the first prize in the All-Union Chopin Competition held in the Republic of Kazan, Soviet Union, as well as the top honor at the Geneva Duo Competition for Violin and Piano (in addition, he appeared on Ukranian radio and TV performing concertos by both Beethoven and Chopin). By the age of 16, Kuprij had left the Ukraine and in 1993, formed his first prog metal band, Atlantis Rising, with guitarist Roger Staffelbach. After Kuprij relocated to the U.S. in 1995, the band later mutated into Artension, signing to Mike Varney's Shrapnel label and issuing such albums as 1996's Into the Eye of the Storm, 1997's Phoenix Rising, 1999's Forces of Nature, and 2000's Machine. Alongside his work with Artension, Kuprij began to issue his own solo albums on Shrapnel as well — 1997's High Definition, 1998's Extreme Measures, 1999's VK3, and 2001's Plays the Works of Liszt and Chopin: Piano. In addition, Kuprij has performed with the New York Youth Symphony at Carnegie Hall, and, in 2001, was penning material for a new outfit, Ring of Fire, a collaboration with former Yngwie Malmsteen vocalist Mark Boals. — Greg Prato</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

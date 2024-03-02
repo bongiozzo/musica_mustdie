@@ -229,6 +229,401 @@ Cover artwork by Travis Smith (Nevermore, Opeth, Katatonia, Death).
 * C группой "Kingdom Come" Mark Cross (Drums)
 * C группой "At Vance" Mark Cross (Drums)
 
+## Публикации
+
+### 21.04.1999 news 
+
+<p>Новый альбом Nightfall "Diva Futura" выйдет официально 10 мая.</p>
+
+Автор: Vit Belov
+
+### 24.05.1999 reviews 
+
+<p>Очередной альбом греческих металлеров снова, как и все предыдущие альбомы группы привнёс свежую струю в творчество группы, однако в целом стиль группы не изменился. Стоит отметить то, что Efthimis Karadimas изменил свои партии вокала. Теперь он не рычит. а поёт. Правда, иногда его голос звучит в засэмплированном виде.. Музыка группы изменилась мало, но надо отметить, что звучание постепенно становится всё более и более хэви-металлическим. То есть, звучание сдвигается в сторону того, что преподнёс нам на последнем альбоме AMORPHIS. Но не пугайтесь, тяжести своей NIGHTFALL не потерял. Может быть на это влияет и тот факт, что группа не использует клавишные, используя более плотный гитарный звук. Материал, как всегда, слушается с интересом и является довольно разнообразным. Скучать не придётся.</p>
+
+Автор: Dimas
+
+### 24.10.1999 news 
+
+<p>Nightfall запишут песни для фильма "Кровавый поцелуй", который выйдет в Штатах. Также группа добавила в свой концертный состав професиональную танцовщицу.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Барабанщик Nightfall будет записываться в Гамбурге вместе с Iron Savior для их нового альбома.</p>
+
+Автор: Vit Belov
+
+### 08.09.2000 news Nightfall и Holy Records прекращают сотрудничество.
+
+<p> Разошлись пути Nightfall и Holy Records после 8 лет совместной работы и 5 выпущенных альбомов. Последним плодом этих отношений станет двойной альбом лучших хитов "The Holy Years - Metal Days and Gothic Nights", выходящий в октябре.</p>
+
+Автор: Morsus
+
+### 08.09.2000 news Nightfall and Holy Records stop relationship.
+
+<p> Nightfall and Holy Records parted ways after 8 years and 5 albums. The last fruit of this relationship will be a double greatest hits album titled "The Holy Years - Metal Days and Gothic Nights" which will be released in October.</p>
+
+Автор: Morsus
+
+### 05.06.2003 news NIGHTFALL проснулся!
+
+<p>После трехлетнего молчания, на большую сцену возвращается известный греческий коллектив NIGHTFALL. 30 июня выходит их новое творение “I am Jesus” записанное в Tico-Tico studio. Альбом, который выйдет через Black Lotus Records, будет выдержан в духе “Lesbian Show” и “Athenian Echoes” с современным разрушительным саундом и динамичными оркестровками. В альбом войдут следующие вещи:</p>
+<p> 1. Death Of Neira<BR> 2. Senior Lover Of Diamanda<BR> 3. I Am Jesus<BR> 4. Pale Crescendo Of Diamand Suns<BR> 5. Luciferin<BR> 6. Muscat<BR> 7. The Poor Us<BR> 8. I've Never Dream The Life We Share<BR> 9. Treasures In Aramatic Tears<BR> 10. Semana Tragica<BR> 11. Nightfall</p>
+
+Автор: Dimas
+
+### 06.06.2003 reviews Возвращение греков
+
+<p>Целых три года ничего не было слышно про этих славных греков, которых я уважаю больше всего, после SEPTIC FLESH. И вот, они вернулись. И надо сказать, совершенно не зря. Музыканты продолжают играть эпический war metal по мотивам death, doom и black metal. Их музыка, по-прежнему, мелодична, атмосферна и мрачна. Творчество NIGHTFALL имеет собственные контуры и свою интерпретацию. Это одна из самых оригинальных команд на мировой сцене. После несколько неудачного "Diva Futura", команда ушла с Holy Records. Новый альбом на новом лэйбле Black Lotus Records открывает новую главу в истории группы, символизируя в некоторой степени отход к корням группы. Если вы были разочарованы последними работами коллектива, то "I Am Jesus" должен вас порадовать, представляя собой смесь "Athenian Echoes" и "Lesbian Show" с узнаваемым рычащим вокалом Efthimis Karadimas'a, современным саундом и динамичной структурой. Материал был записан в Tico-Tico studio, в результате получилось потрясающее качество и плотный звук. Выделить какую-то песню трудно. Превосходная работа, полная чудесных мелодий и меланхоличных настроений. Единственный недостаток в том, что первая часть альбома заметно сильнее второй, поэтому к концу альбома может создаться не совсем правильное впечатление о его целостности. У меня пока больше нет слов - одни эмоции...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 31.03.2005 news NIGHTFALL также остались без барабанщика
+
+<P>Барабанщик <STRONG>George Kollias</STRONG> покинул <STRONG>NIGHTFALL</STRONG>. Из-за этого группа была вынуждена отменить свое тур по Греции. <STRONG>NIGHTFALL</STRONG> активно прослушивают кандидатов, ведь следующее шоу намечено на 14 мая в Румынии.</P>
+Автор: Vit Belov
+
+### 28.02.2006 news Гитарист NIGHTFALL в ROTTING CHRIST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>NIGHTFALL George Bokos</STRONG> стал членом <STRONG>ROTTING CHRIST</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.02.2010 news NIGHTFALL вернулись!
+
+<P>Греки<STRONG> NIGHTFALL</STRONG> возродились из пепла и работают над новым альбомом "<STRONG>Astron Black and the Thirty Tyrants"</STRONG>, который должен выйти в этом году на пока не названном лэйбле. К лидеру группы <STRONG>Efthimis Karadimas</STRONG>&nbsp;в новом составе добавились гитарист <STRONG>Evan Hensley, </STRONG>клавишник <STRONG>Stathis Kassios </STRONG>и барабанщик <STRONG>Jorg Uken.</STRONG></P>
+Автор: Vit Belov
+
+### 14.04.2010 news NIGHTFALL на Metal Blade
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Возродившиеся греки<STRONG> NIGHTFALL</STRONG> подписали контракт с <STRONG>Metal Blade</STRONG> на выпуск своего нового альбома <STRONG>"Astron Black And The Thirty Tyrants". </STRONG>Пластинка выйдет в этом году.</FONT></P>
+Автор: Vit Belov
+
+### 13.09.2011 news &quot;Astron Black&quot;: новый видео-клип NIGHTFALL
+
+<P><STRONG>"Astron Black" -</STRONG>&nbsp;новый видео-клип греческих металлистов <B itxtNodeId="38" itxtHarvested="0">NIGHTFALL</B>, можно посмотреть ниже. Песня вошла в последний&nbsp;альбом группы&nbsp;<B itxtNodeId="37" itxtHarvested="0">"Astron Black And The Thirty Tyrants"</B>, который вышел 31 августа 2010&nbsp;на <B itxtNodeId="36" itxtHarvested="0">Metal Blade Records</B>.</P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=390 src="http://www.youtube.com/embed/_7HKU5hUQpA" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 24.11.2012 news Новый альбом NIGHTFALL
+
+<P>18 января на <STRONG>Metal Blade</STRONG> выйдет новый альбом <STRONG>NIGHTFALL</STRONG> <STRONG>"Cassiopeia". </STRONG>Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="51">Phaethon</B><BR itxtNodeId="50">02. <B itxtHarvested="0" itxtNodeId="49">Oberon & Titania</B><BR itxtNodeId="48">03. <B itxtHarvested="0" itxtNodeId="47">Colonize Cultures</B><BR itxtNodeId="46">04. <B itxtHarvested="0" itxtNodeId="45">The Nightwatch</B><BR itxtNodeId="44">05. <B itxtHarvested="0" itxtNodeId="43">Stellar Parallax</B><BR itxtNodeId="42">06. <B itxtHarvested="0" itxtNodeId="41">Hubris</B><BR itxtNodeId="40">07. <B itxtHarvested="0" itxtNodeId="39">The Reptile Gods</B><BR itxtNodeId="38">08. <B itxtHarvested="0" itxtNodeId="37">Hyperion</B><BR itxtNodeId="36">09. <B itxtHarvested="0" itxtNodeId="35">Akhenaton, The 9th Pharaoh Of The 18th Dynasty</B><BR itxtNodeId="34">10. <B itxtHarvested="0" itxtNodeId="33">The Sand Reckoner</B><BR itxtNodeId="32">11. <B itxtHarvested="0" itxtNodeId="31">Astropolis</B></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.11/25069.jpg" width=475 height=421></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/ImoCqKeNWWM?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Blind Guardian: Nightfall In Middle Earth

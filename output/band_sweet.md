@@ -213,6 +213,21 @@ Mike Chapman  -  Composer
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.09.2002 news The SWEET tribute album &quot;Sweet FA&quot; ...
+
+<p><IMG SRC="/images/news/2002.09/3210.jpg" ALT="pho" width=200 height=198 hspace="15" vspace="5" border="1" align="right"> The SWEET tribute album "Sweet FA" is now released on Malibu Records (Scana Records) <A HREF="http://www.thesweet.com/sweetfa.htm">http://www.thesweet.com/sweetfa.htm</A><BR><BR> The "band" performing on the title track (track 2) is called JK's All Star Experience and features -<BR><BR> Bruce Kulick (KISS) - lead guitar<BR> John Levйn (Europe) - bass<BR> Lars Chriss (Lion's Share) - rhythm guitars<BR> Tommy Denander - keyboards<BR> Jonas Nilsson (Rednex) - lead vocals<BR> Thomas Vikstrцm (Talk Of The Town) - backing vocals<BR> Johan "JK" Kihlberg - drums<BR><BR> Another 14 American and Swedish artists/bands are featured on the cd as well.</p>
+
+Автор: Yermola
+
+### 23.09.2002 news Трибьют SWEET ...
+
+<p><IMG SRC="/images/news/2002.09/3210.jpg" ALT="pho" width=200 height=198 hspace="15" vspace="5" border="1" align="right"> Лэйбл Malibu Records только что выпустил альбом трибьют SWEET - "Sweet FA". <A HREF="http://www.thesweet.com/sweetfa.htm">http://www.thesweet.com/sweetfa.htm</A><BR> <BR> Состав основных участников:<BR><BR> Bruce Kulick (KISS) - соло<BR> John Lev&eacute;n (Europe) - басс<BR> Lars Chriss (Lion's Share) - ритм гитара<BR> Tommy Denander - клавишные<BR> Jonas Nilsson (Rednex) - вокал<BR> Thomas Vikstr&ouml;m (Talk Of The Town) - подпевки<BR> Johan "JK" Kihlberg - барабаны <BR><BR> Также на диске отметились 14 американских и шведских музыкантов.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

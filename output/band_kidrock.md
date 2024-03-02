@@ -32,6 +32,9 @@ aka Robert James Ritchie; hard rock, rap-metal, alternative
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

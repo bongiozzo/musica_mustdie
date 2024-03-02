@@ -224,6 +224,102 @@ T.T - drums, guitars
 * C группой "Dargaard" Tharen
 * C группой "Dominion III" Tharen
 
+## Публикации
+
+### 12.03.1999 news 
+
+<p>Группу Abigor покинул Силениус. Своё решение он объяснил двумя причинами. Во-первых, он считает, что будущий альбом слишком прогрессивен и техничен, а во-вторых, он вообще black-metal не слушает уже 2 года. Можно только заметить, что у него просто ангельское терпение (извините за каламбур). Сейчас Силениус занялся записью песни Crionics для трибьюта к SLAYER.</p>
+
+Автор: Vit Belov
+
+### 26.03.1999 news 
+
+<p>Новый альбом Abigor будет носить название "Channelling the quintessence of Satan" и выйдет 17 мая. Обещается, что это будет очень экстремальный блэк-металл.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Abigor с октября этого года собираются взять обет молчания. Никаких вестей, никаких интервью. Но это не означает распад группы. В это время будет происходить работа над новым альбомом, который выйдет в 2000 году. Лимитированный выпуск миньона группы выйдет также в 2000 году. На него войдут редкие вещи Abigor и кавер на песню Slayer.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>В октябре Abigor отправятся в студию для записи новой пластинки. Называться она будет "Satanized", а релиз этого творения намечен на 2001 год. Чуть позже будет переиздан их EP "In Memory".</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Abigor вернуться в студию
+
+<p>Abigor вернутся в студию в октябре, чтобы записать новый альбом. Дата его выхода пока не определена. Известно, что "Satanized" выйдет в начале 2001. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 13.06.2000 news Abigor will return to studio
+
+<p>Abigor will return to studio in October to record a new album. The date of its release yet is not determined. It is known, that "Satanized" will release in the beginning 2001. (tombstone)</p>
+
+Автор: Vit Belov
+
+### 27.02.2001 news Новый альбом Abigor
+
+<p>Новый альбом Abigor "Satanized" выйдет 19 марта на Napalm Records. Произошла некоторая задержка, из-за того, что группе пришлось микшировать его дважды.</p>
+
+Автор: Vit Belov
+
+### 27.02.2001 news New album of Abigor
+
+<p>New album of Abigor "Satanized" will release on Napalm Records at the 19th of March. The release date will delay because of NAPALM's promotion activities and because the band will mix the album twice.</p>
+
+Автор: Vit Belov
+
+### 02.05.2001 reviews Путешествие сквозь космическую бесконечность
+
+<p>Путешествие сквозь космическую бесконечность. Дьявольская сложная музыка! Альбом показывает развитие австрийской группы в новом направлении техничного сложного металла традиционным путем через black metal. Альбом изобилует странными элементами, хаотичными структурами и непонятными инфлюенциями. Штормовая музыка предвещающая проклятия и Апокалипсис. Давненько мне так башку не срывало подобной зубодробительно скоростной и тяжелой музыкой. Группа имеет свой очень оригинальный звук, при помощи которого многие традиционные ходы кажутся новыми и неопробованными. Он укомплектован захватывающими черными мелодиями сквозь которые чудятся кровавый террор и прогулки в царство Тьмы. Однако, чтобы во все это врубиться требуется время и неоднократное прослушивание данного опуса. Попробуйте!</p>
+
+Автор: Dimas
+
+### 02.05.2001 reviews Travel through space perpetuity
+
+<p>Travel through space perpetuity. Evil composite music! The album demonstrates development of the Austrian group in a recent trend техничного of composite metal by a conventional way through black metal. The album abounds strange members, chaotic frames and not clear influences. Storm music indicating damnations and Apocalyptic style. For A long time to me so did not head break similar by fast-track and high-gravity music. The group has the very original note, through which one many conventional courses seem new and not tested. He is made up with fascinating black tunes through which one to seem a bloody terror and walk in a domain of darkness. However, that in all this to understand the time and repeated listening given opus is required. Try!</p>
+
+Автор: Dimas
+
+### 27.04.2002 news ABIGOR To Make Live Debut In July
+
+<p>Austrian black metal outfit ABIGOR will perform live for the first time ever at Innsbruck's Skeleton Bash on July 27th. Also set to appear at the event are the legendary PUNGENT STENCH.<BR> ABIGOR's appearance at Skeleton Bash will mark the band's first appearance with new vocalist Stefan F. (GRAVEWORM), who replaced Thurisaz earlier in the year.</p>
+
+Автор: Vit Belov
+
+### 27.04.2002 news Дебютный концерт Abigor
+
+<p>Abigor назначили свой первый концерт на июль. Действо произойдёт в Инсбруке, Австрия. Также будут участвовать Pungent Stench. Также этот концерт будет первым появлением Abigor с новым вокалистом Stefan F. (Graveworm).</p>
+
+Автор: Vit Belov
+
+### 02.06.2003 news ABIGOR развалился
+
+<p>Официально прекратили свое существование австрийские блэкстеры ABIGOR.</p>
+
+Автор: Dimas
+
+### 19.10.2003 news The very last &quot;official&quot; release of ABIGOR
+
+The very last "official" release of <B>ABIGOR</B>, the <SPAN style="COLOR: #ffffff"><SPAN style="BACKGROUND: #000000"><B><A onclick="MM_openBrWindow('02_news_shockwave.htm','abigor','width=500,height=500')" href="javascript:;">7" Shockwave 666</A>&nbsp;</B></SPAN></SPAN>will be released at the fall of 2003 through the US label <B>DARK HORIZON RECORDS</B>. Featuring the last new recorded, and overworked song of <B>ABIGOR - Dawn Of Human Dust</B> - from January 2003, and Repulsor (Pulsar 2003 FX) the most strange and unreal song that the band ever did.
+Автор: Vit Belov
+
+### 24.03.2006 news ABIGOR вернулись
+
+<P>Согласно blackmetal.at,<STRONG> Peter Kubik aka Virus 6</STRONG>66 приостановил деятельность своих проектов <STRONG>HELLBOUND</STRONG> и <STRONG>ST. LUCIFER</STRONG>, чтобы возродить <STRONG>ABIGOR</STRONG>. В настоящее время в группе сам <STRONG>Virus 666</STRONG> и барабанщик <STRONG>Lukas Lindenberger. </STRONG>Остальные участники коллектива <STRONG>T.T., Thurisaz</STRONG>&nbsp;и <B>Silenius</B>&nbsp;пока не ответили согласием<STRONG>.</STRONG></P>
+Автор: Vit Belov
+
+### 18.12.2009 news ABIGOR выйдет в январе
+
+<P>Новый альбом <STRONG>ABIGOR</STRONG> <STRONG>"Time Is The Sulphur In The Veins Of The Saint - An Excursion On Satan's Fragmenting Principle" </STRONG>выйдет 18 января на лэйбле <STRONG>End All Life. </STRONG>Пластинка будет дистрибутироваться через <STRONG>Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

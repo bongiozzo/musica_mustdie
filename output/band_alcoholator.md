@@ -34,6 +34,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2011 news Обложка дебюта ALCOHOLATOR
+
+<P>Дебютный альбом канадских трешеров <STRONG>ALCOHOLATOR "Coma"</STRONG> выйдет до конца текущего лета. Обложку пластинки, которую нарисовал<STRONG> Sean Fitzgerald (EXTREME NOISE TERROR, PHOBIA, COLDWAR, RAW NOISE)</STRONG>, можно посмотреть ниже. В записи альбома приняли участие:</P>
+<P><STRONG>Matt Butcher</STRONG>: lead guitar/lead vocals <BR itxtNodeId="85"><STRONG>Oli M-16</STRONG>: lead guitar/backing vocals <BR itxtNodeId="84"><STRONG>Colonel Mamano</STRONG>: bass <BR itxtNodeId="83"><STRONG>Phil Macht</STRONG>: drums </P>
+<P><center><IMG height=300 src="/images/news_rus/2011.07/20050.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -25,6 +25,21 @@ ex- Night In Gales
 
 * C группой "Night In Gales" 
 
+## Публикации
+
+### 08.12.2000 reviews Мелодичный death-metal по шведски
+
+<p>Мелодичный death-metal по шведски. Скоростной, завораживающий, с булькающими риффами, сдвоенными гитарными соло и сумасшедшими ударными, а также характерным задушенным вокалом. В лучших традициях Gates Of Ishtar и Unanimated, к сожалению уже распавшихся. Добавить, пожалуй, больше нечего. И так все понятно... Все сделано очень хорошо, слушается интересно, на одном дыхании. Имеется кавер-версия известного хита R.E.M. "Losing My Religion", прекрасно обработанная в брутальном порядке. Альбом выделяется на общем фоне себе подобных, но до грандов пока не дотягивает. Пока...</p>
+
+Автор: Dimas
+
+### 08.12.2000 reviews Melodious death-metal by sweden
+
+<p>Melodious death-metal by sweden. Fast-track, fascinating, with cool riffs, twin guitar solo and mad impact, and also reference strangled vocal. In the best traditions Gates Of Ishtar and Unanimated, unfortunately already dissolved. To add, perhaps, there is nothing more. And so all is understandable... All is made very well, obeys interestingly, on one breathing. There is a cover-version of a known hit R.E.M. " Losing My Religion ", is fine treated in brutal the order. The album is excreted on a generalbackground to itself similar, but up to grand yet does not hold out. While...</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

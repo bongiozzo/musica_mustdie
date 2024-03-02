@@ -77,6 +77,36 @@ Dusty Watson - Drums, Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.03.2002 news Скончался RANDY CASTILLO
+
+<P>Скончался барабанщик Рэнди Кастилло, участник проектов OZZY OSBOURNE/MOTLEY CRUE. Причина смерти &ndash; та же, что и у Чака Шульдинера &ndash; рак. До самой смерти Castillo работал над новым проектом с ex-ALICE IN CHAINS бассистом Mike Inez. </P></>
+<P>Карьера Кастилло начиналась в 1984 году с Литой Форд (альбом Dancin' On The Edge), после которого он был барабанщиком OZZY OSBOURNE на пяти альбомах: 1986 &ndash; Ultimate Sin, 1989 &ndash; No Rest For The Wicked, 1990 &ndash; Just Say Ozzy, 1991 &ndash; No More Tears и 1993 &ndash; Live & Loud. </P></>
+
+Автор: Yermola
+
+### 28.03.2002 news Randy Castillo reportedly passed away....
+
+<P>Former OZZY OSBOURNE/MOTLEY CRUE drummer Randy Castillo reportedly passed away yesterday due to complications stemming from his long-running battle with cancer. Castillo was 51 years old. </P></>
+<P> </P></>
+<P>MOTLEY CRUE bassist Nikki Sixx posted the following message at www.motley.com following Randy's death: “You used to joke around with me all the time, saying that we had 'dented halo's'. I'll miss you my friend, and I love you.” </P></>
+<P> </P></>
+<P>Prior to his passing, Castillo was reportedly working with ex-ALICE IN CHAINS bassist Mike Inez and an undisclosed guitarist in a new project, which was in the process of writing music and checking out prospective singers. </P></>
+<P> </P></>
+<P>It was only this past November that Castillo proclaimed himself to be “100% back, strong & kicking” in an interview posted at CRUE's official web site. The drummer seemed to be particularly excited about the new band and called the experience of working with Inez “very refreshing and satisfying”. </P></>
+<P> </P></>
+<P>Castillo's recording career began with the 1984 LITA FORD album Dancin' On The Edge, after which the drummer joined OZZY OSBOURNE for a total of five albums—1986's Ultimate Sin, 1989's No Rest For The Wicked, 1990's Just Say Ozzy, 1991's No More Tears, and 1993's Live & Loud. </P></>
+<P> </P></>
+<P>Castillo underwent emergency surgery after suffering a ruptured stomach ulcer in the weeks following the completion of the most recent MOTLEY CRUE album, 2000's New Tattoo. He was subsequently replaced in CRUE's touring line-up by HOLE drummer Samantha Maloney. </P></>
+<P> </P></>
+<P>Randy learned that he had cancer shortly after the above-mentioned operation, and immediately began an intensive radiation-and-chemotherapy program. Subsequent messages from Castillo indicated that his condition was improving, with one such posting, back in April of 2001, stating in no uncertain terms that the drummer had "won the battle against the big C!" </P></>
+<P> </P></>
+<P>Rest in peace, Randy. You will be missed. </P></>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

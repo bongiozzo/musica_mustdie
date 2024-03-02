@@ -23,6 +23,18 @@ SIEGES EVEN members
 * C группой "Sieges Even" Arno Menses (vocal)
 * C группой "Sieges Even" Markus Steffen (guitar)
 
+## Публикации
+
+### 04.07.2011 news Бывшие участники SIEGES EVEN выпускают второй альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=214 alt="" hspace=0 src="/images/news_rus/2011.07/19866.jpg" width=475 align=right border=0>Второй альбом группы SUBSIGNAL <STRONG>"Touchstones" </STRONG>выйдет 30 сентября на <STRONG>ZYX Music</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B>Feeding Utopia</B><BR>02. <B>My Sanctuary</B><BR>03. <B>Echoes In Eternity</B><BR>04. <B>The Size Of Light On Earth</B><BR>05. <B>As Dreams Are Made On </B><BR>06. <B>Wingless</B><BR>07. <B>Finisterre</B><BR>08. <B>The Essence Called Mind</B><BR>09. <B>The Lifespan Of A Glimpse</B><BR>10. <B>Embers - Part 1: Your Secret Is Safe With Me</B><BR>11. <B>Touchstones</B><BR>12. <B>Con Todas Las Palabras </B></P>
+<P>Альбом был записан в разных студиях. Гитары и бас записал <STRONG>Kalle Wallner, </STRONG>известный по работе с RPWL и BLIND EGO, барабаны - <STRONG>Kristian Kohlmannslehner. </STRONG>Он же проделал сведение и мастеринг в своей <STRONG>Kohlekeller Studios</STRONG>.</P>
+<P>SUBSIGNAL была образована певцом&nbsp;<STRONG>Arno Menses</STRONG>&nbsp;и гитаристом&nbsp;<B>Markus Steffen</B> после распада SIEGES EVEN в 2008 году. На счету коллектива уже есть один альбом <STRONG>"Beautiful & Monstrous"</STRONG>, который вышел в 2009 на&nbsp; <B>GoldenCore Records</B>/<B>ZYX Music</B>.</P>
+<P>Сайт: <A href="http://www.subsignalband.com/">http://www.subsignalband.com/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

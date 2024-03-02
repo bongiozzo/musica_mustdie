@@ -36,6 +36,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.11.2011 news Новый EP CHIMP SPANNER
+
+<P>Новый мини-альбом <STRONG>CHIMP SPANNER "All Roads Lead Here"</STRONG> выходит 6 февраля на <STRONG>Basick Records</STRONG>. Инструментальный материал в исполнении виртуоза-мультиинструменталиста<STRONG> Paul Antonio Ortiz</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Dark Age Of Technology<BR></STRONG>2. <STRONG>Engrams<BR></STRONG>3. <STRONG>Mobius Pt I</STRONG><BR>4. <STRONG>Mobius Pt II<BR></STRONG>5. <STRONG>Mobius Pt III</STRONG><BR>6. <STRONG>Cloud City<BR></STRONG>7. <STRONG>Supererogation</STRONG> (Chuter Remix) - VINYL version only<BR>8. <STRONG>Supererogation </STRONG>(TimfyJames Remix) - VINYL version only<BR>9. <STRONG>Supererogation</STRONG> (The Algorithm Remix) - VINYL version only<BR>10. <STRONG>Supererogation </STRONG>(Tanuki Remix) - VINYL version only</P>
+<P>
+<CENTER>
+<OBJECT height=81 width="60%"><PARAM NAME="movie" VALUE="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F11035406"><PARAM NAME="allowscriptaccess" VALUE="always">
+   <embed allowscriptaccess="always" height="81" src="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F11035406" type="application/x-shockwave-flash" width="100%"></embed> </OBJECT></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### UNEVEN STRUCTURE (Франция) / CHIMP SPANNER (Англия) в Москве (21 января)

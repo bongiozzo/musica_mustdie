@@ -9,6 +9,56 @@
 
 * C группой "Aeon" Tommy Dahlstrom (vocal), Zeb Nilsson (guitar)
 
+## Публикации
+
+### 25.08.2000 news Новый альбом Diabolicum
+
+<p> Diabolicum заявили, что скоро, в декабре, отправятся в The Abyss Studio для записи нового альбома, который, предположительно будет носить название "The Dark Blood Rising". Диск, кроме обычных аудио-треков, будет содержать кое-какую мультимедийную информацию (фотографии, тексты, видео). Группа обещает, что это будет самый лучший альбом, который вы когда либо слышали.</p>
+
+Автор: Nybras
+
+### 27.10.2000 news Новый альбом Diabolicum
+
+<p>Шведы Diabolicum в декабре отправятся в студию Питера Тагтгрена Abyss Studios чтобы записать новый альбом "The Dark Blood Rising". Этот диск выйдет на Code666 Records 31-го марта следующего года.</p>
+
+Автор: Dimas
+
+### 27.10.2000 news Diabolicum will enter Abyss Studio to record new album
+
+<p>Sweden's Diabolicum will go into Peter Tagtgren's Abyss Studios in December to record their first album for Code666 Records. The album, "The Dark Blood Rising", will be released on March 31st, 2001.</p>
+
+Автор: Dimas
+
+### 29.01.2001 news DIABOLICUM news
+
+<p>DIABOLICUM (Sweden) are still in Studio, adding the final touch to their second album, titled "The Dark Blood Rising (The Hatecrowned Retaliation)", out in Late March on code666 in a special Digipack-Cd with a CD-ROM track including a brand new Banned Exxtreme Video of the song "Bloodspawn" directed by a new rising-star of the Snuff-Gore-Porno Swedish-Scene: B.H. Orso... that video was banned almost everywhere, so it will be available only in that CD-ROM track!, plus new photos, artwork and special, uncensored, extreme Stuff... a lot of Special Guests helped the band in Studio: Jon Nodveit from the mighty Dissection wrote some lyrics, as well as Dirge Rep from Enslaved, while Martin From Pungent Stench/Hollenthorn and Wrath from Setherial/Nagflar/Bewitched performed the leading vocals on two different tracks ! Music-Wise there will be a Huge progression from the first album (The Grandeur Of Hell, out on Napalm records in 1999) with more Brutal, Sick, Powerful, Nuke-Metal vibes... Fucking True Infernal Metal! Official Track-List: 1. The March of the Misanthrophe 2. Heavens Die 3. Transmissions to the planet of death 4. Bloodspawn 5. The War Tide(all out genocide) 6. The Hatecrowned retaliation 7. The Dark Blood Rising 8. The Pitch Black(000000) 9. The Song of Suffering 10. Into the Dementia 11. The Nemesis speaks.... - (www.diabolicum.cjb.net )</p>
+
+Автор: Yermola
+
+### 29.01.2001 news The Dark Blood Rising.....
+
+<p>Шведы DIABOLICUM завершают запись своего второго альбома "The Dark Blood Rising (The Hatecrowned Retaliation)". Выход релиза запланирован на конец Марта 2001. На альбоме отметились такие специальные гости как, Jon Nodveit (Dissection), Dirge Rep (Enslaved), Martin (Pungent Stench) и Wrath (Setherial/Nagflar/Bewitched). Трек лист: 1. The March of the Misanthrophe 2. Heavens Die 3. Transmissions to the planet of death 4. Bloodspawn 5. The War Tide(all out genocide) 6. The Hatecrowned retaliation 7. The Dark Blood Rising 8. The Pitch Black(000000) 9. The Song of Suffering 10. Into the Dementia 11. The Nemesis speaks.... Подробные новости на официальном сайте (www.diabolicum.cjb.net).</p>
+
+Автор: Yermola
+
+### 29.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 30.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // NEWS //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 11.03.2004 news DIABOLICUM вошли в студию
+
+<P><B>DIABOLICUM</B> вошли в студию для записи сразу двух новых альбомов с рабочими названиями "<B>Infant Sacrifices</B>"&nbsp;и "<B>Vengeance</B>".&nbsp;Они выйдут осенью/зимой на <B>Code666</B>.&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

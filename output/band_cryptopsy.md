@@ -110,6 +110,163 @@ Century Media Records (2000)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.03.2000 news 
+
+<p>Cryptosy заняты записью новой пластинки, которая станет самым экстиремальным из того, что когда-либо делала группа.</p>
+
+Автор: Vit Belov
+
+### 14.09.2000 news Новый альбом Cryptopsy
+
+<p> Канадские экстремалы Cryptopsy в настоящий момент записывают свой новый альбом. Называется он "And Then You'll Beg". Официальный релиз состоится 31-го октября. По сообщениям самой группы это будет самый тяжелый и сумасшедший материал, который они когда-либо сочиняли.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news Cryptopsy are currently recording their new album
+
+<p> Canadian technical speed death metal gods Cryptopsy are currently recording their new album. The title of the album is "And Then You'll Beg". The album will be released in October 31st and according to the band it is the most heavy and insane material they have ever written.</p>
+
+Автор: Nybras
+
+### 18.06.2001 news Майк Ди Сальво уходит из CRYPTOPSY ....
+
+<p>Зверские канадцы "CRYPTOPSY" объявили об уходе вокалиста Mike DiSalvo. По официальному сообщению на сайте: "Майк решил оставить команду по персональным причинам. Его последнее шоу в составе будет 4 августа на немецком фестивале Wacken Open Air...". Сейчас команда срочно ищет замену. Если вы в совершенстве владеете гроулингом - пишите: mrburgerflipper@netscape.net (Менеджер - Maurice Richard).</p>
+
+Автор: Yermola
+
+### 18.06.2001 news Canada&#39;s CRYPTOPSY have announced the departure ...
+
+<p>Canada's CRYPTOPSY have announced the departure of vocalist Mike DiSalvo. According to a posting on the group's official web site, "Mike has decided to leave the band for personnal reasons. His last live performance with CRYPTOPSY will be August 4th 2001 at the Wacken Open Air Festival in Germany. We wish him success in all of his future projects. The band is presently seeking a candidate able to join its ranks. Auditions will be held in Montreal in the days ahead. The selected vocalist will make his first appearance at the end of August for the beginning of the European tour. Professionals, seriously interested, can contact Maurice Richard (mrburgerflipper@netscape.net, subject: CRYPTOPSY), CRYPTOPSY's manager, to let know of their intentions." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.01.2002 news CENTURY MEDIA TOUR UPDATE....
+
+<p>CARNAL FORGE <BR> (European Tour with Mortician, Yattering and Tidfall) <BR> 1/5 BRADFORD - RIO UK <BR> 1/6 GLASGOW - CATHOUSE SCH <BR> 1/7 NEWCASTLE - TRILLIANS UK <BR> 1/8 LONDON - UNDERWORLD UK <BR> 1/9 PARIS - GIBUS FR <BR> 1/10 ROTTERDAM - BAROEG NL <BR> 1/11 HARDENBERG - PODIUM NL <BR> 1/12 DEINZE - BRIELJANT BL <BR> 1/13 EINDHOFEN - EFFENAAR NL <BR> 1/14 ESSEN - ZECHE CARL D <BR> 1/15 BERLIN - KNAACK D <BR> 1/16 HAMBURG - MARX D <BR> 1/17 PRAHA - BLACK PESS CZ <BR> 1/18 ZWICKAU - ALARM D <BR> 1/19 VIENNA - ARENA A <BR> 1/20 MILANO - INDIAN'S SALOON ITA <BR> 1/21 ZAGREB - MOCVARA T.B.A. CRO <BR> 1/23 PERPIGNAN - CROCK-MORE FR <BR> 1/24 BARCELONA - MEPHISTO SP <BR> 1/25 MURCIA - GAMMA SP <BR> 1/26 MADRID - EL-GRITO SP <BR> 1/27 IRUN - TUNK SP <BR> 1/29 LYON - REAL THEATRE FR <BR> 1/30 WIL - REMISE CH <BR> 1/31 OSNABRUCK - WORKS D <BR> 2/1 OFFENBACH - HAFENBAHN D <BR> 2/2 VOSSELAAR - BIEBOB BL <BR> 2/3 GRONINGEN - VERA NL <BR><BR> CRYPTOPSY <BR> (With Dimmu Borgir, Krisiun and Diabolic) <BR> Dates and venues to be announced shortly <BR><BR> GOD FORBID <BR> (With Hatebreed, Poison The Well and Sworn Enemy) <BR> 1/8 Detroit, MI - St. Andrews Hall <BR> 1/9 Columbus, OH - Al Rosa Villa <BR> 1/10 Huntington, WV - YWCA <BR> 1/11 Pittsburgh, PA – Club Laga <BR> 1/12 Cincinnati, OH - Bogart's <BR> 1/13 Nashville, TN – Exit In <BR> 1/14 Sauget, IL - Pop's <BR> (With Gwar and Soilent Green) <BR> 1/16 Norva Theatre – Norfolk, VA <BR> 1/17 Ziggy’s – Winston-Salem, NC <BR> 1/18 House Of Blues – N. Myrtle Beach, SC <BR> 1/19 Masquerade – Atlanta, GA <BR> 1/20 Floyd’s Music Store – Tallahassee, FL <BR> 1/21 Marquee – Jacksonville, FL <BR> 1/23 Orbit – Boyston Beach, FL <BR> 1/24 Neptunes – Ft. Myers, FL <BR> 1/25 Masquerade – Tampa, FL <BR> 1/26 House Of Blues – Lake Buena Vista, FL <BR> 1/28 House Of Blues – New Orleans <BR><BR> SCAR CULTURE <BR> 1/25 North Six in Brooklyn, NY (With Dillinger Escape Plan, Darkest Hour and All Else Failed)<BR></p>
+
+Автор: Yermola
+
+### 21.01.2002 news CRYPTOPSY dates...
+
+<p>(w/Dimmu Borgir, Krisiun and Diabolic) <BR> <BR> 2/19 Culture Room – Ft. Lauderdale, FL <BR> 2/20 Masquerade – Atlanta, GA <BR> 2/22 Hard Rock Cafй – New York, NY <BR> 2/23 The Trocadero – Philadelphia, PA <BR> 2/24 Jaxx - Springfield, VA <BR> 2/26 The Palladium – Worcester, MA <BR> 2/27 Medley – Montreal, QU <BR> 2/28 Opera House – Toronto, ON <BR> 3/1 Agora Ballroom – Cleveland, OH <BR> 3/2 Harpo’s – Detroit, MI <BR> 3/3 House Of Blues – Chicago, IL <BR> 3/4 Ranch Bowl – Omaha, NE <BR> 3/5 First Avenue – Minneapolis, MN <BR> 3/6 Sauget, IL - Pop’s <BR> 3/8 Engine Room – Houston, TX <BR> 3/9 Backroom – Austin, TX <BR> 3/12 The Palace – Los Angeles, CA <BR> 3/13 Great American – San Francisco, CA <BR> 3/14 Roseland – Portland, OR <BR> 3/16 Graceland – Seattle, WA <BR> 3/18 X-Scape – Salt Lake City, UT <BR> 3/19 Ogden Theater – Denver, CO <BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CRYPTOPSY Tour dates ...
+
+<p>2/16 Latham, NY – Saratoga Winners - BRUTALITY FEST 2 (Burnt By The Sun, Disciples Of Berkowitz, Irate) (Tour w/Dimmu Borgir, Krisiun and Diabolic) <BR> 2/19 Culture Room – Ft. Lauderdale, FL<BR> 2/20 Masquerade – Atlanta, GA<BR> 2/22 Hard Rock Cafй – New York, NY<BR> 2/23 The Trocadero – Philadelphia, PA<BR> 2/24 Jaxx - Springfield, VA<BR> 2/26 The Palladium – Worcester, MA<BR> 2/27 The Club @ Water St. – Rochester, NY * Cryptopsy only w/ Withered Earth, Kalibas<BR> 2/28 Opera House – Toronto, ON<BR> 3/1 Agora Ballroom – Cleveland, OH<BR> 3/2 Harpo’s – Detroit, MI<BR> 3/3 House Of Blues – Chicago, IL<BR> 3/4 Ranch Bowl – Omaha, NE<BR> 3/5 First Avenue – Minneapolis, MN<BR> 3/6 Sauget, IL - Pop’s<BR> 3/8 Engine Room – Houston, TX<BR> 3/9 Backroom – Austin, TX<BR> 3/12 The Palace – Los Angeles, CA<BR> 3/13 Great American – San Francisco, CA<BR> 3/14 Roseland – Portland, OR<BR> 3/16 Graceland – Seattle, WA<BR> 3/18 X-Scape – Salt Lake City, UT<BR> 3/19 Ogden Theater – Denver, CO<BR> 6/1 Medley - Montrйal (WEEKEND EXTRКME w/ Martyr and Neuraxis)<BR></p>
+
+Автор: Yermola
+
+### 11.03.2002 articles Американский тур DIMMU BORGIR
+
+<P><IMG height=400 alt="Dimmu Borgir tour" hspace=10 src="/images/articles_rus/2002.03/2513.jpg" width=254 align=left vspace=5 border=0> В рамках своего тура по США, 5 марта к нам, в город Миннеаполис, заглянули такие монстры современной металлической музыки как DIMMU BORGIR, в сопровождении канадских и бразильских бруталистов CRYPTOPSY и KRISIUN и флоридской группы DIABOLIC. Стоит сказать, что до этого концерта у нас было полуторамесячное затишье, если не считать концерты ню-металлических групп, поэтому этого сейшна все ожидали с интересом и нетерпением. Вообще DIMMU BORGIR должны были выступать у нас еще осенью прошлого года, в рамках Metallenium Tour вместе с NAPALM DEATH, SIX FEET UNDER и WITCHERY, но тогда, после событий 11 сентября, их планам не суждено было сбыться – зато теперь они приехали в качестве хэдлайнеров. </P>
+<P>Хочу отметить, что погода в этот день сильно испортилась – шёл мокрый снег и на дорогах было много аварий и пробок, из-за которых мы и опоздали к началу концерта; когда вошли в зал, уже во всю зажигал DIABOLIC. Эту группу я видел живьём второй раз – на этот раз можно было бы отметить более четкий звук. Но в остальном всё та же стена звука – очень быстрые барабаны с истеричными дэт/блэковыми воплями гитариста. Играли они недолго – минут 25 всего – да и больше не стоило, так как народ к концу выступления стал заметно скучать.Но для начала в самый раз. </P>
+<P>Затем после короткой паузы на сцену взошло бразильское трио KRISIUN (правильно – произносится "Кришн"). Это сразу оживило толпу. Хочу сказать, что, не смотря на рабочий день, в зале было достаточно много народу – то есть зал был полный, но не переполненный, как, например, на выступлениях SLAYER и MEGADETH. Бразильцы начали сразу с места в карьер, без всякой раскачки обрушив на голову слушателей поток бескомпромисного брутал-дэта. По звуку они были наверно самыми лучшими в тот день. Прекрасно читались партии гитары, баса и ударных, несмотря на забойное молотилово – но это и не удивительно, так как отстроить правильно одну гитару всё же легче, чем вывести баланс между двумя. С публикой кришнаиты практически не разговаривали, предпочитая делать на сцене своё дело – нарезать сочную брутальщину. Вокал – средне-низкий гроул – иногда доходил до совсем утробного, иногда срывался на крик. А вот во время соляков остро чувствовалась необходимость второй гитары. Выглядели дядьки достаточно стандартно для дэс-команды – волосатые кучерявые бразильцы в майках в поддержку этого тура. Кстати, тут же можно было купить СД со всеми 4-мя альбомами кришнаитов плюс майки и балахоны (в основном необъятных размеров, расчитаные на среднестатического американца:). После выступления бразильцев, которое длилось минут 35, я пошёл в бар за пивом – восстановить силы, пока на сцене делали перестановки, готовясь к выступлению Cryptopsy. Бар на этот раз приятно удивил – вместо маленьких бутылок Хайнекена, но по три, продавали двойной размер, но по пять :) Очень удобно, скажу я вам, так как вместо того, чтоб бежать за очередной порцией после двух глотков, можно неспеша наслаждаться вкусом пива. Народ в баре активно обсуждал Димму Боргир, сравинвая их как всегда – ну, вы сами знаете, с кем (CoF) :) – так что это во всем мире так :) и предстоящие три суперконцерта в апреле/мае. </P>
+<P>И вот погас свет и на сцене появились на этот раз канадские бруталлерос из CRYPTOPSY(правильно будет крИптопси). Со сцены попер брутальный, но более навороченный, нежели KRISIUN музон. Ребята начали активно рубиться на сцене. Удивил вокалист – в чёрной майке (не футболке) и чёрном трико с белыми лампасами :) Вокалист он свободный, поэтому просторов для маневров у него было немерянно. Немного удивил подбор гитар у гитаристов – голубой Washburn Dimebag Darrel и черно/белый Fender Stratocaster с хамбаккером. Басист играл на белом басе Krammer – как у Паука из Коррозии. </P>
+<P>А вот кто не порадовал, так это звукач, который все выступление CRYPTOPSY постоянно крутил ручки на пульте, поэтому звук представлял из себя «плавающую кашу» – у кого бы им поучиться, так это у звукача DEICIDE – звук как на СД прям:). Ну это я отвлекся. Теперь о программе – начали CRYPTOPSY с песен с нового альбома «And Then You'll Beg» – очень брутальных и разнообразных.Вокалист живьем слушается отменно – очень сочный гроулинг. А вот технику гитаристов из за кашеобразного звука было сложновато оценить. </P>
+<P>На сцене ребята активно прорубались – со стороны смотрится неплохо, но на то они и дэс-команда. Так же были сыграны два боевика из двух первых альбомов. И, на закуску, лучшая их песня на мой взгляд, которую я больше всего ждал – про «Холодную ненависть и горячую кровь» с альбома Whisper Supremacy. И не я один оказывается – исполнение этой вещи стало апогеем выступления канадцев. В целом оценить их выступление можно на три с половиной из пяти – и виноват прежде всего звукач, смазавший впечатление от неплохой, в общем-то, музыки. Кстати, по мерчандайзингу у фанатов CRYPTOPSY был наибольший выбор среди атрибутики плакатов и СД. </P>
+<P>Ну и затем наступила последняя пауза – начали готовить сцену под хэдлайнеров – на закрывавшем сцену экране крутили кадры из фильма «Догма», а я пил пиво, рассматривая атрибутику игравших команд. Я хотел купить себе сплит DIMMU BORGIR/OLD MAN’s CHILD, но этого диска у них как раз и не было, так что пришлось обломаться. Кстати, цены на диски не такие уж и высокие – 12 зеленых – билет стоил 15, майка 15-25, балахон 40, плакат DIMMU BORGIR размером 2 на 1,5 – десятку. </P>
+<P>И вот погас свет и заиграло интро из «Пуританикал Эйфорик Мизантропии», народ начал активно заводиться и – вот оно, начало – песня «Grotesquery Conceiled” c альбома 99 года «Спиритуал Блэк Дименшн», с которой они выступали на церемонии вручения норвежской премии Грэмии. </P>
+<P>Что удивило: во-первых, расстановка музыкантов – я такое увидел в первый раз в жизни. Все мы привыкли, что, обычно, барабаны располагаются по центру сзади, клавиши чуть впереди или в стороне – ещё более впереди гитаристы и вокалер. Тут всё не так. Представьте себе обычную прямоугольную сцену – так вот, в левом дальнем углу барабаны, за которыми восседал Николас Баркер. На одном уровне с ударными, но уже в дальнем правом углу - клавиши. А на переднем плане – четверо на одной линии, слева-направо – рыжий огромный басист, лысый Гальдер с намазаным только белой пудрой лицом, Шаграт в черном плаще с лицом, намазанным так же, как у Гальдера и Сайленоз, без какого либо грима. Гальдер играл на двух моделях Джексонов – RR и King V, Сайленоз – Jackson RR. Очень колоритно смотрелся Баркер – лысый малыш с огромным пузом в шортиках, даже странно, как он при такой комплекции умудряется вообще играть на барабанах :). После песни-открывателя была исполнена первая вещь с «Пуританикал Эйфорик Мизантропии» – звук был неплохой – хорошо прослушивались клавиши, даже можно сказать, что они были лидирующим инструментом на протяжении всего выступления DIMMU BORGIR. Затем почти сразу пошла третья вещь с последнего 2001 альбома, в которой слышно влияние таких групп, как OLD MAN’s CHILD и PINK FLOYD. Так вот, Пинкфлойдообразная вставка была исполнена живьём не лучшим образом - всё-таки это не в студии по нескольку голосов накладывать :) – сразу видно, что у ребят проблемы с пением по нотам. Дальше пошла песня про Мефисто с 2001 года, а затем пара вещей с «Спиритуал Блэк Дименшн», включая первую, после чего опять заиграло интро с «Пуританикал...». Кстати, концерт прерывался таким образом (интром с «Пуританикал...») 3 раза – в это время музыканты имели двухминутный отдых. После перерыва Шаграт снял плащ и остался в чёрной майке с белой Диммуборгировской пентограммой и какой то кожаной юбке :). Пошли 2 песенки с альбомов «Фор Олл Тид» и «Стормбласт». Затем ещё одна вещь – с 2001-го. Народ рубился хорошо, особенно после подбадриваний Шаграта, который в каждой 3 песне кричал в микрофон «Хэй! Хэй! Хэй» и зал отвечал тем же. После ещё одного того же самого интро началась заключительная часть шоу. Вообще, на мой взгляд, программа была построена не совсем верно. После бодрого начала шли сильно клавишированные среднетемповые песни с 99-го. Они и преобладали в 3-й части. Но я все ждал, когда же наконец услышу свою любимую вещь Диммов? Я, естественно, её дождался, но она оказалась финальной. И называлась эта вещь – правильно - «Mourning palace». В целом, DIMMU BORGIR оставил приятное впечатление. В первую очередь хочу отметить Баркера и клавиши – они, на мой взгляд, и задают весь настрой музыки. Гитаристы играют неплохо, но в сильно клавишированных композициях им практически негде показать свою индивидуальность, но то что играть умеют, слышно невооружённым ухом. Далее, Шаграт – так ТРУ он или ПОЗЁР? Я не знаю, но всё-таки завладеть полностью вниманием публики у него не очень хорошо получилось – Баркер привлекает гораздо сильнее, да и в сравнении с Дэни он явно проигрывает :) В целом отыграли DIMMU BORGIR на твердую четвёрку, мои ожидания, в основном, оправдали, но хочу им, перефразируя великого классика, посоветовать «Учиться! Учиться! Учиться! У .... SLAYER :))) </P>
+Автор: rjh
+
+### 11.11.2002 news CRYPTOPSY are presently working on a few different projects....
+
+<p>CRYPTOPSY are presently working on a few different projects, one of which is the release of a live album recorded at the Medley in Montreal last June. The album will have a mix of new and old material that is sure to please any CRYPTOPSY fan. This new release tentatively titled None So Live is the first recording to feature new vocalist Martin Lecroix, who made his debut with them on the DIMMU BORGIR tour earlier this year. The band are also preparing for a series of weekend shows in November that will take them through Quebec and Ontario (dates listed below). They have also just dropped off of the James Murphy benefit show that is to take place on 11/16 and IMMOLATION just stepped up to fill their open spot. There's been good progress on new material for their fifth studio release that will be recorded sometime next year. The new material promises to be Cryptopsy at its best.</p>
+
+Автор: Yermola
+
+### 05.02.2003 news Концертник CRYPTOPSY
+
+<p>Канадская death metal группа CRYPTOPSY собирается порадовать нас весной 2003 года своим первым концертным альбомом под названием "None So Live", который планируется к выходу на Century Media Records. На нем будет представлен материал с концертов в Канаде в июне прошлого года. В альбом войдут следующие композиции:</p>
+<p> 01. Intro <BR> 02. Crown of Horns <BR> 03. White Worms <BR> 04. We Bleed <BR> 05. Open Face Surgery <BR> 06. Cold Hate, Warm Blood <BR> 07. Phobophile<BR> 08. Shroud <BR> 09. Graves of the Fathers <BR> 10. Drum Solo<BR> 11. Defenestration <BR> 12. Slit Your Guts</p>
+<p> В настоящее время, музыканты заняты сочинением песен для своего пятого альбома, выпуск которого планируется на конец 2003 года.</p>
+
+Автор: Dimas
+
+### 21.02.2003 news CRYPTOPSY news...
+
+<p>The Canadian quintet have already begun the writing process for their next studio album, tentatively due in late 2003. To tide fans over, they will release a live record, appropriately titled None So Live. Recorded at the Medley in Montreal last June, None So Live is the band’s first official release to feature new vocalist Martin Lecroix; it contains an even mix of old and new material sure to please any Cryptopsy fan. Here is the track listing for None So Live, set for an April 8th release. <BR><BR> 01. Intro<BR> 02. Crown of Horns<BR> 03. White Worms<BR> 04. We Bleed<BR> 05. Open Face Surgery<BR> 06. Cold Hate, Warm Blood<BR> 07. Phobophile<BR> 08. Shroud<BR> 09. Graves of the Fathers<BR> 10. Drum Solo<BR> 11. Defenestration<BR> 12. Slit Your Guts</p>
+
+Автор: Yermola
+
+### 03.07.2003 reviews Чрезмерно затянутый концертник
+
+<p>Увы, мне вновь приходится рецензировать концертник. К счастью, такое горе выпадает нечасто :-). И слава всем существующим и несуществующим богам, что концертник сей не какой-нибудь доморощенной тру-перетру-ивил-недоивил-блэковой команды, а славных канадцев из CRYPTOPSY. По крайней мере, можно хоть надеяться на достойный звук и не менее достойную игру музыкантов. Так оно и вышло. Звук хороший. Музыканты… впрочем, вы и так знаете, хороши ли они или не очень ;-). В тему – барабанное соло, не в тему – чрезмерная затянутость (52 минуты) альбома. В результате, под конец начинаешь грустно думать, когда же всё это закончится. Вывод: на концерт CRYPTOPSY я бы сходил с удовольствием, но только в том случае, если они играют не более получаса.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 14.11.2003 news Cryptopsy расстались с вокалистом
+
+<P>Группу <B>CRYPTOPSY</B> покинул в очередной раз покинул вокалист. Ансамбль ищет замену <B>Martin Lacroix</B>.</P>
+Автор: Vit Belov
+
+### 14.11.2003 news CRYPTOPSY splited with vocalist
+
+<B>CRYPTOPSY&nbsp;</B>has parted ways with vocalist <B>Martin Lacroix</B>.<BR>
+Автор: Vit Belov
+
+### 10.12.2003 news В CRYPTOPSY вернулся оригинальный певец
+
+<P><B>Lord Worm</B> вернулся в <B>CRYPTOPSY</B>. Группа занята сочинением песен для своего пятого альбома, который музыканты будут записывать в марте-апреле с продюсером <B>Pierre Remillard</B>.</P>
+Автор: Vit Belov
+
+### 10.12.2003 news Lord Worm returned to CRYPTOPSY
+
+<P>The versatile Canadian quintet <B>CRYPTOPSY</B> are proud to announce the return of their original vocalist, <B>Lord Worm</B>, to the lineup. These innovators of dynamic, technical extreme metal immediately raised the bar for all other bands in the genre with their first two albums, <B>Blasphemy Made Flesh</B> (1994) and <B>None So Vile</B> (1996), which established them as one of the most relentless and brutal forces on the planet. With the return of Lord Worm, the group’s stellar decade-long career has come full circle, and the future looks very promising. 
+<P>The mighty Lord Worm checks in with the following comments regarding his much anticipated return; "<B>Un mal pour un bien, I've heard it said, and those seven long years ago, unhappy though I was at leaving (for a private question of honor, not beer), it was none the less for the best. Now, we've come full circle and again a private question of honor finds me back in the fold. It is so and it cannot be otherwise. See you soon</B>." 
+<P><B>CRYPTOPSY</B> are currently writing material for their fifth studio album, which they’re planning to start recording in March at <B>Wild Studio</B> with producer <B>Pierre Remillard</B>. Expect nothing but their most uncompromising and unrelenting offering to date. </P>
+Автор: Vit Belov
+
+### 26.05.2005 news CRYPTOPSY пишут новый альбом
+
+<P><STRONG>СRYPTOPSY</STRONG> в настоящее время находятся в <STRONG>Studio Vortex</STRONG>, где записывают новый альбом. В настоящее время готовы более половины барабанных партий.</P>
+Автор: Vit Belov
+
+### 19.03.2008 news Новая песня CRYPTOPSY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадцы <STRONG>CRYPTOPSY</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке новую песню <B>"Worship Your Demons"</B>&nbsp;с нового альбома <STRONG>"The Unspoken King"</STRONG>, который выйдет в ближайшее время.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/cryptopsy">http://www.myspace.com/cryptopsy</A></FONT></P>
+Автор: Vit Belov
+
+### 06.08.2008 reviews Новые CRYPTOPSY
+
+<P>Нужно быть большим фэном канадской techno-death формации CRYPTOPSY, чтобы понять весь тот шум, который образовался вокруг их нового альбома “The Unspoken King”. Дело не в том, что этот шум был беспочвенным. Конечно же, когда группа меняет вокалиста на какого-то «хардкорщика» и добавляет в штат клавишницу, эти изменения не могут остаться незамеченными. Просто мне кажется, что сама группа CRYPTOPSY такого внимания не заслуживает.</P>
+<P>Я понимаю фэнов этих канадцев. Я можно сказать им даже сочувствую. Современное звучание, орущий вокал, музыка, напоминающая брутальный современный metalcore, по типу THE BLACK DAHLIA MURDER. Я не говорю уже о двух минутах с участием клавишных и двух местах с чистым вокалом, это уж, вообще, ни в какие ворота… Звучание, опять же, не назовёшь «олд-скульным». Но, самое смешное, “The Unspoken King” является неплохим альбомом, это уже не CRYPTOPSY, но слушать пластинку интересно, да и звучит она мощно и свежо.</P>
+<P>Канадцы решили поработать на чужом поле. В США сейчас царит такой metalcore, и действительно музыкантам могло показаться, что они теряют денюжку. Свою денюжку! Мощная современная пластинка, достаточно брутальная, чтобы ответить на все обвинения в попсовости, и достаточно заманчивая для фэнов современной американской metalcore сцены. И всё-таки шумиха вокруг CRYPTOPSY была чересчур сильна, бывали у разных групп и более резкие скачки, как в звучании, так и в стилевой направленности. </P>
+Автор: Vit Belov
+
+### 02.02.2009 news CRYPTOPSY покинул гитарист
+
+<P>Гитарист <STRONG>Alex Auburn </STRONG>покинул<STRONG> CRYPTOPSY</STRONG> после десяти лет работы. Причиной названа усталость музыканта.</P>
+Автор: Vit Belov
+
+### 30.06.2011 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" align=right src="/images/news_rus/2011.06/19820.jpg" width=250 height=250>Чешский фестиваль <STRONG>Brutal Assault</STRONG> опубликовал ещё несколько имён участников, которые выступят на его сцене в этом году, это - брутальные канадцы&nbsp;<STRONG>CRYPTOPSY</STRONG>,&nbsp;death/thrash металлисты из Соеденённых Арабских Эмиратов - <STRONG>NERVECELL</STRONG>, ещё одни канадцы - <STRONG>KATAKLYSM</STRONG>, викинги&nbsp;<STRONG>TYR</STRONG>, французская эмбиент/эксперементальная группа <STRONG>UNEVEN STRUCTURE</STRONG>, а так же,&nbsp;вперые на фестивале&nbsp;выступят немецкие трэшеры <STRONG>KREATOR</STRONG>.&nbsp;</P>
+<P>К сожалению, по причине того, что группу <STRONG>NEVERMORE</STRONG>&nbsp;покинили двое её участников -&nbsp;&nbsp;<STRONG>Jeff Loomis</STRONG> и <STRONG>Van Williams</STRONG>, ей пришлось отменить все ранее запланированные выступления, в том числе и на фестивале<STRONG> Brutal Assault</STRONG>' 2011.&nbsp;&nbsp;И ещё одной отменой стали фины <STRONG>NORTHER</STRONG>, которые не смогут принять участие в фестивале по причине непрофессиональной работы своего&nbsp;агента.</P>
+Автор: Headcrusher
+
+### 10.06.2012 news Новый альбом CRYPTOPSY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.06/24166.jpg" width=475 align=right border=0>В этом году выходит новый одноимённый альбом <STRONG>CRYPTOPSY</STRONG>. Обложку для работы создал <STRONG>Mircea Gabriel Eftemie</STRONG> (<B>MNEMIC</B>). Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Two-Pound Torch</B><BR>02. <B>Shag Harbour's Visitors</B><BR>03. <B>Red-Skinned Scapegoat</B><BR>04. <B>Damned Draft Dodgers</B><BR>05. <B>Amputated Enigma</B><BR>06. <B>The Golden Square Mile</B><BR>07. <B>Ominous</B><BR>08. <B>Cleansing The Hosts</B><BR></FONT></P>
+Автор: Vit Belov
+
+### 05.10.2012 news CRYPTOPSY выпускают двух дисковый сборник &quot;The Best Of Us Bleed&quot;
+
+<P>Канадцы <STRONG>CRYPTOPSY</STRONG> выпускают сборник на 2 CD, куда помимо лучших песен, демо и концертных записей, также войдут&nbsp;три новых трека. Названный<STRONG> "The Best Of Us Bleed"</STRONG>, диск выйдет 20 ноября на лейбле <STRONG>Century Media</STRONG>. Помимо прочего,&nbsp;сборник будет комплектоваться большим буклетом&nbsp;с комментариями <STRONG>Adrien Begrand</STRONG> (журнал <STRONG>Decibel</STRONG>).</P>
+<P>Обложку нарисовал <STRONG>Toshihiro Egawa</STRONG> (<STRONG>SUICIDE SILENCE</STRONG>, <STRONG>ABIGAIL WILLIAMS</STRONG>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.10/24887.jpg" width=400 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Cryptopsy

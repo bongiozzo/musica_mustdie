@@ -151,6 +151,299 @@ Untitled (Multimedia Track)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>Marilyn Manson получил номинацию на Грэмми в категории "лучшее шоу". Также их продюсер Майкл Бейнхорн выдвинут на соискание награды, как "продюсер года".</p>
+
+Автор: Vit Belov
+
+### 18.02.1999 news 
+
+<p>Американская группа Marilyn Manson начнет съемки нового видеоклипа на песню "Coma White" с последнего альбома "Mechanical Animals" 20-21 февраля. Режиссером клипа станет Сэм Байер, автор ролика "Smells Like Teen Spirit" группы Nirvana, который произвел переворот на телевидении и сделал популярным стиль гранж. Кроме того, Байер стал режиссером видеоклипа "Doll Parts" Кортни Лав и Hole. По словам Мэрилина Мэнсона, новый клип его коллектива должен стать "самым замечательным и волнующим проектом, который он когда-либо делал". Мэнсон также сообщил, что премьера пройдет на странице Marilyn Manson в Интернете по адресу www.marilynmanson.net. Между тем совместное турне Marilyn Manson и Hole начнется 28 февраля.</p>
+
+Автор: Vit Belov
+
+### 12.03.1999 news 
+
+<p>Небольшой скандальчик случился между двумя закадычными друзьями Мэрилином Менсоном и Робом Зомби. Тур Зомби/Korn был назван Rock is dead. Мало того, что у Мэнсона есть песня с таким названием, так ещё и тур Marilyn Manson/Hole был назван также. Теперь американским фэнам этих групп придётся посмотреть два шоу с таким оригинальным названием.</p>
+
+Автор: Vit Belov
+
+### 12.04.1999 news 
+
+<p>Пикантную новость сообщил господин Holy Deer: "Один амеpиканский жуpнал опубликовал снимки ММ с Коpтни Лав, занимающихся кое-чем в гостинице во вpемя туpне. Говоpят, что их сфоткал некто "близкий Мэнсону" и каким-то обpазом этот негатив пpосочился в пpессу. Довольно непpиятно для ММ, особенно после того, как он постоянно матеpил Коpтни на концеpтах. Hо это не самое плохое. Жуpналисты связались с Rose McGowan, чтобы поинтеpесоваться, что она думает обо всем этом. Hу и Роуз сказала, что мол Мэнсон-свинья, и что она больше ничего не хочет о нем слышать, и вообще жалеет, что потpатила на него почти целый год." Расшифровываю: MM-Marylin Manson, Кортни Лав - вокалистка Hole. От себя лишь могу заметить, что Кортни тянет на разнообразных, как бы сказать, чтобы не обидеть, интересных личностей. Правда Курт Кобэйн, по-моему, немного симпатичней.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Последние дни явились пожалуй самыми тяжелыми в карьере Marilyn Manson. Началось все, как всем известно с трагедии в Литтлтоне. Пресса теперь обвиняет ММ в этом бессмысленном массовом убийстве. Все это повлекло за собой перенос на более поздний срок 5 концертов ММ, тем самым огорчив поклонников группы. Все это сильно усугубилось 22 апреля в связи с тем, что случилось на концерте в Cedar Rapids, штат Iowa. И без этого мрачное настроение Мэрилина подпортили неизвестные люди.</p>
+<p>Как сообщают присутствовавшие на концерте, ММ как раз исполнял песню Antichrist Superstar. Знакомые с выступлениями ММ знают, что он исполняет эту песню с трибуны спикера на котороый нарисован большой логотип Antichrist Superstar - шок-символ. Мэнсон спел первый куплет песни и вдруг заметил, что этот самый логотип на трибуне завешен круглой желтой улыбающейся рожицей. Он немедленно начал орать в микрофон на находившихся позади него и попытался сорвать этот знак. Но у него не вышло. Тогда он спрыгнул с трибуны и попытался опрокинуть ее на бок, что у него опять-таки не вышло. После этого он подбежал к Ginger Fish, скнинул его барабаны на пол и покинул сцену. Вскоре был включен свет и всех 4765 человек попросили покинуть зал.</p>
+<p>Некоторые из присутствовавших были обозлены этим и окружили автобус MM. Полиция арестовала 23 человек по обвинениям в нападении на полицейских офицеров, неповиновение офицерам и др. Также внутри зала было арестовано 10 человек за употребление и хранение наркотиков. Полиция сообщила, что произошло несколько драк среди толпы.</p>
+<p>В связи с тем, что происходило с группой в последнее время, можно понять поступок Мэнсона. Хотя многие люди рассказали, что сначала даже не подумали, что это была чья-то злая шутка, а было частью шоу. Управляющий директор концертного зала сказал, что никто из зрителей или работников зала не могли повесить этот знак на трибуну Мэнсона, и что скорее всего его повесили кто-то из команды самого Мэнсона.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Новости про Marilyn Manson от нашего корреспондета про ММ ZZZombie со странички, посвящённой Мэнсону, по адресу www.chat.ru/~rusomega</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>Очередные новости от страницы, посвящённой Marilyn Manson <a href="http://www.chat.ru/~rusomega">http://www.chat.ru/~rusomega</a></p>
+<p>Песня Marilyn Manson "Highway To Hell" - кавер AC/DC - будет первым синглом и видеоклипом из саундтрека к фильму "Detroit Rock City". Видеоклип на песню будет снят в следующем месяце во время небольшого перерыва между Европейским турне, заканчивающимся 10 июля и Японским турне, которое начинается 2 августа. Пока еще неизвестно кто будет режиссером клипа.</p>
+
+Автор: Vit Belov
+
+### 18.08.1999 news 
+
+<p>Что касается клипа Coma White, то пока не ясно, когда наконец состоится его премьера. Очень возможно, что нескоро. Напомню, что клип, который был снят в феврале, поставлен по мотивам убийства Президента Кеннеди, роль которого исполняет Manson. Если такой клип будет выпущен скоро, непременно начнется новая волна гонений на ММ, на фоне недавних перестрелок в американских школах. Скорее всего именно это является причиной по которой произошла задержка с выходом клипа.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Очередные новости от страницы, посвящённой Marilyn Manson <a href="http://www.chat.ru/~rusomega">http://www.chat.ru/~rusomega</a></p>
+<p>Для тех, кто пропустил конференцию, официальный сайт Marilyn Manson поместил у себя ее видеозапись. Marilyn дал интересные ответы на многие вопросы и рассказал о готовящихся проектах. На вопрос о следующем альбоме, Мэнсон ответил, что он будет продолжением темы, начатой с Antichrist Superstar. Песни из альбома будут звучать в новом фильме Holywood. Также он сообщил, что они записали песню Astonishing Panorama of The End Times и она возможно будет включена в саундтрек к MTV Celebrity Deathmatch, если только продюсеры не посчитают песню слишком экстремальной, и рассказал, что только что закончил работу над песней Fun Control. Marilyn подтвердил, что в конце года они выпускают концертный альбом 'The Last Tour On Earth', а также видеоальбом на двух видеокассетах 'God Is In The TV': сборник всех клипов Marilyn Manson, в том числе на песню 'Cryptorchid', снятый режиссером Aleis Marehi, так и не увидевший премьеры; и концертные выступления с тура Mechanical Animals. В настоящее время, сообщил ММ, они работают над новым альбомом и у них уже готовы 13 или 14 песен.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Видеоклип Marilyn Manson "The Dope Show" представлен в номинации "Лучшая кинематография" на очередной церемонии награждения призов MTV. Церемония состоится 9-го сентября 1999 года в Metropolitan Opera House в Нью-Йорке. Среди других номинантов в этой же категории: Hole "Malibu", Korn "Freak on a Leash", Madonna "Beautiful Stranger" и Will Smith "Miami". Однако уже стало известно, что Marilyn Manson не сможет посетить церемонию, и он даже не будет в стране в это время.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Очередные новости от страницы, посвящённой Marilyn Manson <a href="http://www.chat.ru/~rusomega">http://www.chat.ru/~rusomega</a></p>
+<p>Marilyn Manson выступят на церемонии награждения призов Европейского MTV которая состоится 11 ноября в Дублине, Ирладния. Также песня Marilyn Manson "The Dope Show" представлена в номинации Best Hard Rock вместе с такими исполнителями как The Cardigans, The Offspring, Lenny Kravitz, и Red Hot Chili Peppers.</p>
+<p>В настоящее время группа работает над новым альбомом. Сообщается, что они отошли от своего стиля, представленного в Mechanical Animals и теперь будут играть более жесткую и злобную музыку. Возможность услышать новое звучание Marilyn Manson появится с выходом песни Astonishing Panorama of the End Times в саундтреке к MTV Celebrity Deathmatch. Клип на песню выйдет 11 октября и он выполнен в пластилине, как и известное шоу на MTV. Появление песни ММ в этом саундтреке было весьма осложнено. Один раз было объявлено, что песня не появится на нем, но все же это не случилось. Все эти трудности объяснялись тем, что продюсеры на MTV посчитали песню слишком жестокой по содержанию и потому неприемлемой.</p>
+
+Автор: Vit Belov
+
+### 02.08.2000 news Новости о Marilyn Manson с русской странички www.chat.ru&#x2F;~rusomega
+
+<p> Звукозаписывающая компания Interscope Records, в которую входит лейбл Трента Резнора Nothing Records, сообщила, что новый альбом Marilyn Manson "Holy Wood (In The Shadow of the Valley of Death)" поступит в продажу в США 17 октября.</p>
+<p> В Интернете открылся официальный сайт лейбла Мэрилина Мэнсона Posthuman Records. Как известно, первой группой на новом лейбле ММ стала команда Godhead. Теперь на сайте Posthuman Records можно узнать самые последние новости лейбла Мэнсона, новости о записи нового альбома Godhead, информацию о ближайших концертах, а также можно узнать информацию о том, как связаться с лейблом (только для групп в районе Лос Анджелеса).</p>
+<p> Запись нового альбома группы Godhead "2000 Years of Human Error" сейчас находится в стадии завершения. Продюсером альбома выступает Danny Saber, известный своими работами с Garbage, Michael Hutchence, David Bowie, Black Grape и Ozzy Osbourne. Также Danny Saber сотрудничал с Marilyn Manson, для которого сделал такие ремиксы как The Horrible People и I Don't Like The Drugs (Danny Saber Remix).</p>
+<p></p>
+
+Автор: Vit Belov
+
+### 24.08.2000 news Новости от Мерилина Мэнсона
+
+<p> Недавно записанная Мэрилином Мэнсоном песня "Disposable Teens" (для трибьюта Гари Глиттера) войдет в трэк лист его нового альбома "In The Shadow Of The Valley Of Death".</p>
+
+Автор: Nybras
+
+### 24.08.2000 news Marilyn Manson records a tribute song to Gary Glitter
+
+<p> "Disposable Teens", one of the new tracks on Marilyn Manson's forthcoming album "In The Shadow Of The Valley Of Death", has been recorded as a tribute to Gary Glitter, says Manson. Earlier on Marilyn Manson used his website as a platform for launching a song called "Sick City" written by Charles Manson, the psychopate who was convicted for being responsible for the death of Roman Polanski's pregnant wife Sharon Tate in 1971.</p>
+
+Автор: Nybras
+
+### 31.08.2000 news Новый альбом Marilyn Manson
+
+<p> Релиз нового творения "великого и ужасного" Мерилина Мэнсона "Holy Wood (In The Shadow Of The Valley Of Death)" официально состоится 23-го октября на Nothing/Interscope.</p>
+
+Автор: Nybras
+
+### 04.09.2000 news Новости от Marilyn Manson
+
+<p> Marilyn Manson записали кавер-версию "Working Class Man" Джона Леннона и издадут ее вместе с новым синглом "Disposable Teens" к альбому "Holy Wood (In The Shadow of the Valley of Death)". Этот сингл выйдет 9-го сентября, ровно на полтора месяца раньше чем сам альбом.</p>
+
+Автор: Nybras
+
+### 04.09.2000 news Marilyn Manson will cover John Lennon song for a new single
+
+<p> Marilyn Manson will include the song Working Class Man, which is a John Lennon cover tune, as b-side of his new single "Disposable Teens", from his new upcoming studio album "Holy Wood (In The Shadow of the Valley of Death)". While the album reaches the stores October 24, the single will arrive in September 9.</p>
+
+Автор: Nybras
+
+### 27.09.2000 articles Cнят новый клип Marilyn Manson &quot;Disposable Teens&quot;. Полный отчет.
+
+<p> В своем официальном видеобращении Marilyn Manson обещал подарок лос-анжелесским поклонникам и сдержал свое обещание. В субботу, 23 сентября, прошли съемки нового клипа на песню "Disposable Teens" из нового альбома, в которых участвовали от 200 до 250 фанатов, приглашенных местной радиостанцией KROQ. Режиссером клипа выступил Samuel Bayer, который также снял клип "Coma White". Сайт SeemsLikeSalvation получил несколько сообщений от тех, кому посчастливилось участвовать в съемках, и у нас теперь есть полный отчет о том, что происходило в эту субботу. Один из победителей конкурса KROQ на участие в съемках клипа, Isaac, подробно описал весь свой день.</p>
+<p> "Около 12:30 я прибыл в San Fernando, для того чтобы отметиться, там же стоял автобус. Меня отметили, обыскали и посадили в автобус. Затем нас всех повезли на тайное место, которым оказалась построенная сцена на 210 шоссе. Мы приехали на место около 13:10, где уже собралась приличная толпа. После того, как всех привезли, нас накормили и впустили на съемочную площадку, уже было около 5 вечера.Когда мы туда зашли, группа была уже на сцене. Все они выглядели великолепно. Лицо Пого было раскрашено в оранжево-желтых цветах. На Твигги было бежевое платье, а его ноги были в пятнах крови, лицо было накрашено как-то необычно. А лицо Мэнсона было стилизовано так, как будто у него из глаз пылает огонь. Как выглядел Джинджер мне не очень удалось разглядеть.</p>
+<p> Ну вот зашли мы и каждый стал подыскивать себе место, группа же просто слонялась по сцене. Пока шла подготовка, кто-то спросил Мэнсона будет ли он раздавать автографы, на что тот ответил, что возможно. А когда другой парень спросил, не даст ли ему Мэнсон копию нового альбома, Мэнсон пошутил, предложив его просто пойти на сайт Napster, вызвав тем самым смех поклонников.</p>
+<p> Я стоял в самом первом ряду. Передо мной была сцена, полицейские (актеры) и мы. Я решил поговорить с группой. Джон 5 был недалеко от меня и я крикнул его имя. Он оглянулся, и я ему сказал "Дай мне медиатор". Джон не отказал и протянул ему тот, что использовал сам. За это я его отблагодарил. Потом я пытался позвать Твигги. Твигги сказал, что у него уже нет медиаторов и попросил Джона дать мне медиатор, но Джон ответил, что уже отдал последний. На самом деле они не играли ни на каких инструментах, поэтому они им были не нужны. Режиссер попросил нас трясти в воздухе кулаками и изображать агрессию на протяжении всего клипа. Мы это проделали трижды и они нас отвели на заднюю площадку. Там мы прождали до 8 вечера, а затем они отобрали 50 человек, чтобы закончить съемки столкновений с полицейскими. Меня не выбрали. Нам сказали, что мы можем подождать до конца или уже уезжать. Я предпочел уехать. В целом все было круто."</p>
+<p></p>
+<p> Другим таким счастливчиком был Mike. Ему удалось не только выиграть приглашение на съемки, участвовать в них, но и поговорить с Мэнсоном.</p>
+<p> "Я его спросил о фильме Holy Wood, на что Мэнсон ответил, что те кто должны были снимать фильм, оказались тупыми и заинтересованными лишь в доходах. Поэтому он сказал, что не захотел его снимать. Затем Мэнсон особо отметил, что возможно они из-за этого снимут мультипликационный фильм. Насчет своей книги Мэнсон сказал, что состоится подписание книги, куда будут приглашены все желающие.</p>
+<p> Во время той части клипа, в которой участвовал я, полицейские стояли полукругом перед сценой. На них были надеты фуражки и черные, похожие на пальто, униформы. В руках они держали щиты и дубинки в форме крестов. На некоторых были надеты какие-то маски или противогазы. Нам сказали шуметь и поднимать кулаки под музыку, это было отснято несколько раз. В следующих сценах, всех кроме 50 человек попросили покинуть съемочную площадку, где начались съемки сцены столкновения с полицейскими. Мы бежали на сцену и толкали полицейских, а они отталкивали нас обратно. Это мы делали несколько раз, так как режиссер сказал, что мы чересчур веселимся и не выглядим достаточно злобными. Но что делать, было весело. Съемочная бригада сказала, что клип выйдет через пару недель."</p>
+<p> Вот так вот повезло лос-анжелесским поклонниками. Будем ждать клипа !</p>
+<p></p>
+<p> ZZZombiE</p>
+<p></p>
+<p> Этот материал был предоставлен Russian Marilyn Manson Page:<br>http://www.chat.ru/~rusomega</p>
+
+Автор: Nybras
+
+### 27.09.2000 news Cнят новый клип Marilyn Manson &quot;Disposable Teens&quot;
+
+<p> В своем официальном видеобращении Marilyn Manson обещал подарок лос-анжелесским поклонникам и сдержал свое обещание. В субботу, 23 сентября, прошли съемки нового клипа на песню "Disposable Teens" из нового альбома, в которых участвовали от 200 до 250 фанатов, приглашенных местной радиостанцией KROQ. Режиссером клипа выступил Samuel Bayer, который также снял клип "Coma White". Сайт SeemsLikeSalvation получил несколько сообщений от тех, кому посчастливилось участвовать в съемках, и у нас теперь есть полный отчет о том, что происходило в эту субботу. Подробности смотрите в разделе "Articles".</p>
+
+Автор: Nybras
+
+### 10.10.2000 news Marilyn Manson работает над саудтрэком к фильму &quot;Ведьма из Блэр - 2&quot;
+
+<p> По сообщению MTV Online News, Marilyn Manson записали кавер-версию песни "Suicide Is Painless" Джонни Мандела, которая станет главной темой саундтрэка ко второй части фильма "Ведьма из Блэр" - "Book Of Shadows: Blair Witch 2". Мэнсон планирует в скором времени выпустить этот диск, "Blair Witch 2", на своём собственном лейбле Posthuman Records.</p>
+<p></p>
+
+Автор: Nybras
+
+### 19.11.2000 reviews Новые песни Marilyn Manson
+
+<p> Итак официальный релиз "Holywood" состоялся. Основными составляющими стиля Marilyn Manson теперь является огнестрельное оружие и алхимический символизм. Оружие сейчас просто необходимо - чтобы убивать людей и себя, в этом заключается его освободительная функция. Нонконформизм Marilyn Manson простирающийся вплоть до офисов MTV, снова не подкачал, и это вполне заметно, но опять таки, если не удовлетворяться одним лишь MTV. С годами приходится признать, что есть вещи, которые сильнее, и по законам демократического социального дарвинизма игнорировать это невозможно. Религии, конечно ещё поубавилось, эта тема осталась лишь как своеобразный фетиш, так что при случае всегда можно поглумиться над x-ians. К тому же, самое обидное - вовсе не "God Eat God" или забытое паганское шоу "Christians versus Lions", а богомерзкое (само)сравнивание Уорнера с Христом. Впрочем, ему с его Голливудских гор виднее, да и Заратустра, надо думать, тоже с удовольствием поболтал бы с Иисусом за кружечкой аперитива. Так что, друзья, скоро жёлтые газеты вновь запестрят слухами об ужасах "Марлин Мансон", а вы увидите и услышите всё самое важное, хотите ли вы этого или нет...</p>
+<p> В музыкальном плане третья часть трансформации явила собой самый банальный симбиоз звучаний двух предыдущих альбомов. Кроме того, к сожалению, это получился самый тяжёлый альбом в дискографии Marilyn Manson, ну а для стиля gothic-rock это бывает чревато: а) выпадением в мэйнистримовый gothic-metal, а там сейчас можно только "to suck", на большее рассчитывать не придётся, б) заметным упрощением музыки в рамках стиля, ради сомнительной "агрессивности". В данном случае, имеет место вариант "б", но, в целом, негативные последствия минимальны - неинтересных песен на альбоме всего штуки две. И к счастью, к величайшей радости, здесь нет ни одной песни, с использованием модного нынче вокодера, который я просто ненавижу.</p>
+<p> Диск, как всегда забит под завязку, что вполне традиционно, и свидетельствует о "серьезности намерений". Альбом открывает замечательная композиция "GodEatGod", крайне депрессивная, пробуждающая реминисценцию Antichrist Svperstar гнетущим вокалом, злобной акустикой и дешёвым фузовым овердрайвом.</p>
+<p> "Disposable Teens" - я называю это буквально: "Dead Rock meets Beautiful People", то есть: нате, подавитесь МТВшники и МТВшницы.</p>
+<p> Следующая трек уже едва ли предназначен на потребу толпе - "Narcissus Narcosis" очень красивая песня, своеобразный крик к Богу.</p>
+<p> "A place in the Dirt" - печальная глэмовая баллада, вполне в духе Mechanical Animals, но к сожалению перемежающаяся совершенно дурацкими тяжёлыми припевами.</p>
+<p> "Coma Black" - conjoint близнец "Coma White", самой загадочной песни с предыдущего альбома. Некто ZZZombiE весьма удачно сравнил "Комы" с двумя частями металликовского Unforgiven-a. Но не стану умолять достоинств "Coma Black" - песня всё равно очень красивая, хотя и неоригинальная.</p>
+<p> "King Kill" - злобный "индустриальный" опус, с перегруженными вокалами и сумасшедшими секвенсорными звучками.</p>
+<p> И последняя "готическая" песня "Count to Six and Die" определённо, самая необычная на всём альбоме. Светлое (bright) пианино, надрывный шепот Мэнсона, минималистичный синтезаторный бэкграунд, и над всем этим - Смерть.</p>
+<p> 6..5..4..3..2...</p>
+<p></p>
+
+Автор: George Dysangelist
+
+### 11.09.2001 news MARILYN MANSON из пластмассы...
+
+<p>Вслед за другими командами шок-рокер озаботился производством из пластмассы себя любимого... Уже в Сентябре на прилавках магазинов появятся игрушки разработанные японскими художниками Yasushi Nirasawa и Yoshihiro Saito. Более подробно смотрите на <a href="http://www.mansontoy.com/">http://www.mansontoy.com/</a>...</p>
+
+Автор: Yermola
+
+### 11.09.2001 news MARILYN MANSON action figures ...
+
+<p>MARILYN MANSON action figures are due to make their debut by the end of September. For more information, visit <a href="http://www.mansontoy.com">http://www.mansontoy.com.</a> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.11.2001 news Ах, какая женщина! Мне б такую...
+
+<p>Новая подружка известного шок-рокера "MARILYN MANSON" - Dita Von Teese (заменившая получившую полную отставку актриссу Rose McGowan) приглашает вас на свой сайт в Интернете. Посмотреть на новейшие достижения в области силиконовых имплантантов можно кликнув мышкой <A HREF="http://www.dita.net/">здесь...</A></p>
+
+Автор: Yermola
+
+### 16.11.2001 news MARILYN MANSON&#39;s new girlfriend ...
+
+<p>MARILYN MANSON’s new girlfriend Dita Von Teese—who has been together with the shock rocker since January, shortly after the break-up of the singer’s relationship with actress Rose McGowan—recently appeared on the Howard Stern Show to promote her involvement at the Exotic Erotic Ball, where she reportedly does a burlesque show and “swishes around in a giant martini glass”, or something along those lines. Dita also plugged her official web site, which can be viewed at <A HREF="http://www.dita.net/">this location.... </A></p>
+
+Автор: Yermola
+
+### 16.01.2002 news David Lee Roth, Lars Ulrich и Kirk Hammett слились в творческом экстазе...
+
+<p>Фронтмен "VAN HALEN" David Lee Roth, барабанщик "METALLICA" Lars Ulrich и гитарист Kirk Hammett с продюссером Bob Rock в лос-анджелесской Henson Studios работают над саундтреком к пока-не-известному фильму. Дальше к процессу записи подключится еще гитарист "MARILYN MANSON" - John 5....</p>
+
+Автор: Yermola
+
+### 16.01.2002 news METALLICA&#39;s Ulrich, Hammett To (Allegedly) Collaborate With VAN HALEN&#39;s Roth ...
+
+<p>According to top Danish web site Jubii Rock and the official web site of VAN HALEN frontman David Lee Roth, METALLICA drummer Lars Ulrich, guitarist Kirk Hammett, producer Bob Rock and Roth are collaborating on one or more tracks for an upcoming movie soundtrack at Los Angeles' Henson Studios. MARILYN MANSON guitarist John 5 is also said to be involved in the recording process, although it's unclear in what capacity.</p>
+
+Автор: Yermola
+
+### 05.02.2002 news MARILYN MANSON запустил он-лайн журнал....
+
+<p>Теперь фэны MARILYN MANSON получили возможность читать он-лайн журнал автором которого является сам(а/о) Мэрилин. Там вы найдете новости о его кошке, книге Holy Wood и записи альбома. Читать <A HREF="http://www.marilynmanson.com/">здесь....</A></p>
+
+Автор: Yermola
+
+### 05.02.2002 news MARILYN MANSON Starts Online &quot;Journal&quot; ...
+
+<p>MARILYN MANSON fans can now read journal entries from the singer himself via the group's official web site at www.marilynmanson.com, MANSON announced in two new posts, which can be viewed below: <BR><BR> #1: "I have been here, despite my lack of posts. I created the journal section to avoid any misrepresentations of my statements to you. I will still read your posts and comment when possible. <BR> “I am currently putting down vocals and redesigning the site. In the weeks to come we will be seeing a glimpse of what the new album will sound and look like. <BR> “If I have appeared to be absent it is only because I am working and I have also taken the time to raise a small white kitten. And no, I will not be eating it or indulging in beastiality.” <BR> #2: "My book, Holy Wood, is caught in a war between publishers and I am waiting just as you are for it to be released. <BR> “My cat is a Devon Rex and her name is Lily White. I call her white girl or bitch, depending on my ghetto dracula mood."</p>
+
+Автор: Yermola
+
+### 15.03.2002 news Картинки и видео от MARILYN MANSON....
+
+<p>MARILYN MANSON вносит последние штрихи в уже практически готовый альбом, который сам он описал как: "тяжелый и полный насилия микс панка индустриального направления и берлинского декадентского кабаре 30-х годов...". Продюссируют альбом Мэнсон и Tim Skold (KMFDM, ex-SHOTGUN MESSIAH) в Лос-Анджелесской студии для летнего релиза через Nothing/Interscope Records. Пока известно название только одной вещи: "Use Your Fist And Not Your Mouth". Пока что вы можете посмотреть фото и короткие клипы показывающие процесс записи: <BR><BR> <A HREF="http://www.marilynmanson.com/journal/images/5andskoldguitar.jpg">Гитарист John 5 и продюссер Tim Skold </A><BR> <A HREF="http://www.marilynmanson.com/journal/video/john5short.MPG">Гитара</A><BR> <A HREF="http://www.marilynmanson.com/journal/video/mmscreamshort.MPG">Вокал Мэнсона</A><BR> <A HREF="http://www.marilynmanson.com/journal/video/mmshort.MPG">Мэнсон</A><BR> <A HREF="http://www.marilynmanson.com/journal/video/skoldrecords5.MPG">Микширование</A><BR> <A HREF="http://www.marilynmanson.com/journal/video/5scene.MPG">Гитара</A><BR></p>
+
+Автор: Yermola
+
+### 15.03.2002 news MARILYN MANSON: Use Your Fist And Not Your Mouth ...
+
+<p>MARILYN MANSON is presently putting the finishing touches to the group's upcoming album—described by the singer as “a hard and violent mix of industrial-strength punk vaudeville with 30s Berlin cabaret decadence”—which is currently being co-produced by MANSON and Tim Skold (KMFDM, ex-SHOTGUN MESSIAH) at a Los Angeles studio for a tentative late spring/early summer release through Nothing/Interscope Records. So far, only one song title has been leaked: "Use Your Fist And Not Your Mouth". <BR><BR> Meanwhile, MANSON has posted several video clips and photos taken during the recording sessions, which can be viewed at the following locations:<BR><BR> <A HREF="http://www.marilynmanson.com/journal/images/5andskoldguitar.jpg">Guitarist John 5 and Producer Tim Skold </A><BR> <A HREF="http://www.marilynmanson.com/journal/video/john5short.MPG">Guitar Take 1</A><BR> <A HREF="http://www.marilynmanson.com/journal/video/mmscreamshort.MPG">Manson Vocal Take </A><BR> <A HREF="http://www.marilynmanson.com/journal/video/mmshort.MPG">Manson In The Booth </A><BR> <A HREF="http://www.marilynmanson.com/journal/video/skoldrecords5.MPG">Tim At The Mix Board </A><BR> <A HREF="http://www.marilynmanson.com/journal/video/5scene.MPG">Guitar Take 2 </A><BR></p>
+
+Автор: Yermola
+
+### 06.05.2002 news MARILYN MANSON Slapped With Civil Lawsuit Over Michigan Incident ....
+
+<p>MARILYN MANSON has been hit with a civil lawsuit by the security guard at the center of the singer's criminal court case. 26-year-old Joshua Keasler, a former Clarkston, Michigan security guard filed the suit Tuesday in U.S. District Court in Detroit, alleging assault and battery, intentional infliction of emotional distress, gross negligence and wanton misconduct stemming from on incident that occurred last July 30th when MANSON allegedly rubbed his sweaty, G-string-clad crotch on Keasler's head during a concert at the DTE Energy Music Theatre. <BR><BR> The suit, which seeks more than $75,000, claims Keasler was grabbed from behind by MANSON, who then "proceeded to improperly and/or sexually touch, restrain and/or assault [Keasler]." When the guard unsuccessfully tried to free himself, the suit says, MANSON continued to "gyrate his hips, thighs and/or pubic area against [Keasler's] head, neck and/or face."</p>
+
+Автор: Yermola
+
+### 22.01.2007 news MARILYN MANSON назвал альбом
+
+MARILYN MANSON заканчивает запись нового альбома <STRONG>"Eat Me, Drink Me"</STRONG>, который выйдет в апреле.
+Автор: Vit Belov
+
+### 03.02.2009 news Название нового MARILYN MANSON
+
+<P><STRONG>MARILYN MANSON</STRONG> подготовил новую работу, которую назвал <STRONG>'The High End of Low'.</STRONG></P>
+Автор: Vit Belov
+
+### 17.05.2009 news Новое видео Marilyn Manson
+
+<P>Видеоклип<STRONG> Marilyn Manson</STRONG> на песню <STRONG>"Arma-Goddamn-Motherfuckin'-Geddon" </STRONG>можно посмотреть ниже. Ролик снят режиссёром <STRONG>Delaney Bishop, </STRONG>который работал с <STRONG>Энгельбертом Хампердинком</STRONG>.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=57392210">Marilyn Manson - Arma-Goddamn-motherfuckin'-geddon</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=57392210,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=57392210,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.06.2009 news MARILYN MANSON четвёртый в США
+
+<P>Новый альбом<STRONG> MARILYN MANSON "The High End Of Low"</STRONG> попал на четвёртую строчку хит-парада<STRONG> Billboard</STRONG>. Пластинка продалась за первую неделю тиражом 49000 экземпляров.</P>
+Автор: Vit Belov
+
+### 24.09.2009 news Marilyn Manson заразился от свиньи
+
+<P><STRONG>MARILYN MANSON</STRONG> сообщил в своём блоге, что у него диагностировали свиной грипп. Сам музыкант считает, что заразился, переспав со свиньёй (он имеет в виду свою бывшую подружку), но доктора отрицают такую возможность.</P>
+Автор: Vit Belov
+
+### 09.04.2012 news MARILYN MANSON: клип на песню &quot;No Reflection&quot;
+
+<P>Новый клип короля эпатажа <STRONG>Мэрилина Мэнсона</STRONG> (MARILYN MANSON)&nbsp;на трек <STRONG>"No Reflection"</STRONG>&nbsp;можно посмотреть ниже. Данная песня вошла на новый альбом артиста<STRONG>&nbsp;"Born Villain"</STRONG>,&nbsp;который увидит свет 1 мая в Северной Америке и днём раньше во всём остальном Мире&nbsp;на лейбле <STRONG>Cooking Vinyl</STRONG>.</P>
+<P>Так же, спешим сообщить вам, что в&nbsp;мае месяце <STRONG>MARILYN MANSON</STRONG> выступит с двумя в России:</P>
+<P>26 мая - Москва - клуб <STRONG>"Arena Moscow"</STRONG></P>
+<P>28 мая - Санкт-Петербург - ДС <STRONG>"Юбилейный"</STRONG></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/DOj3wDlr_BM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 29.08.2012 news MARILYN MANSON: видеоклип на песню &quot;Slo-Mo-Tion&quot;
+
+<P><STRONG>MARILYN MANSON</STRONG> порадовал всех своим новым видеоклипом на песню <STRONG>"Slo-Mo-Tion"</STRONG>. Клип предназначен для просмотра только тем, кому уже исполнилось 18 лет. </P>
+<P>Трек <STRONG>"Slo-Mo-Tion" </STRONG>вошёл в его последний альбом <STRONG>"Born Villain"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/8h3QLH_91G4" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 11.10.2012 news MARILYN MANSON: видеоклип на песню &quot;Hey, Cruel World...&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ниже для просмотра доступен новый видеоклип "великого и ужасного" <STRONG>Мерилина Мэнсона</STRONG> на песню <STRONG>"Hey, Cruel World..."</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Режиссёр ролика - <STRONG>Tim Mattia</STRONG> (компания <STRONG>ARTV</STRONG>).</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/FXm5oFFHfLY" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.12.2014 news Marilyn Manson: видеоклип &quot;Deep Six&quot;
+
+<P><STRONG>Marilyn Manson</STRONG> подготовил к выпуску свой новый альбом, получивший название <STRONG>"The Pale Emperor"</STRONG>. Дата его выхода назначена на 19 января 2015 года. А пока всем предлагается ознакомиться с видеоклипом на трек <STRONG>"Deep Six"</STRONG>, который войдёт в этот самый новый альбом.</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/w5LZ8YErl2M" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.05.2015 news MARILYN MANSON: клип &quot;The Mephistopheles Of Los Angeles&quot;
+
+<P>Новый клип от <STRONG>Мэрлина Мэнсона</STRONG> на трек <STRONG>"The Mephistopheles Of Los Angeles"</STRONG> с его последнего альбома <STRONG>"The Pale Emperor"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/V-sD5Xy2N-E" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

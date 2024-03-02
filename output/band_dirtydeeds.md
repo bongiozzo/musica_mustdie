@@ -37,6 +37,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2001 news Грязные делишки....
+
+<p>Бассист "Железных Девушек" - Стив Харрис продюссирует пока еще не названный альбом "DIRTY DEEDS". Работа уже наполовину закончена, релиз в штатах ожидается в Ноябре, где по словам Tony Newton команда подписала новую сделку... Похоже саунд получится еще более NWBHM и "IRON MAIDEN" ориентированным чем при работе с Дугом Холлом. =)</p>
+
+Автор: Yermola
+
+### 20.07.2001 news Dirty Deeds Done Dirt Cheap...
+
+<p>IRON MAIDEN bassist Steve Harris is in the middle of producing a new DIRTY DEEDS studio album—the veteran four-stringer’s first-ever production job outside of IRON MAIDEN. According to DIRTY DEEDS’ bassist Tony Newton, the as-yet-untitled effort is half completed and is tentatively scheduled for a November release in the US, where the group just landed a new record deal and management. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

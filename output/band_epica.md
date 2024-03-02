@@ -273,6 +273,281 @@ Disc 3 (Earbook Only):
 * C группой "Sons Of Seasons" Simone Simons (vocal)
 * C группой "Kamelot" Simone Simons (vocal)
 
+## Публикации
+
+### 01.10.2003 reviews Вариации на тему NIGHTWISH и THERION
+
+<P>Как можно понравится широким слоям населения с вероятностью до 100% включительно. Группа EPICA не находилась долго в поиске. Вернее долго там не находился основатель коллектива Mark Jansen. Подготовив неоклассический материал, пригласив по конкурсу вокалистку с неплохим сопрано (девушка поёт хорошо, но она гораздо уверенее чувствует себя в хоре), наняв студию вместе с продюсером Sacha Paeth, хором и классическим оркестром, и в конце концов подобрав каких-нибудь музыкантов-металлистов, он выпустил очень неплохой дебютный альбом. EPICA нельзя назвать клоном NIGHTWISH, например. Группа предпочитает выступать с композициями балладного типа до предела навороченными в плане участвующих музыкантов. Pop-neoclassic мелодии понравятся бОльшему числу поклонников подобной музыки, а некоторые, как например 'Cry For the Moon',&nbsp;претендуют на звание хитов. Хороший и очень дорогой проект (группой не берусь это назвать), который должен немедленно стать хитом, иначе он не окупится.</P>
+<P>Диск предоставлен точкой B2-100</P>
+<CENTER>&gt;<IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 18.10.2003 news EPICA to release new single
+
+<P><B><IMG height=200 alt="" hspace=0 src="/images/news/2003.10/5115.jpg" width=200 align="left" border=0>EPICA </B>will release new single <B>'The Phantom Agony'</B> on 29th of October through <B>Transmission</B>. Track-list:</P>
+<P><B>1.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Phantom Agony&nbsp; 4.35 - Single Version<BR>2.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Veniality&nbsp; 4.36 - Previously unreleased Track<BR>3.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Fa&ccedil;ade of Reality&nbsp; 8.12&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>4.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Veniality&nbsp; 4.37 - Previously unreleased Orchestral Version</B></P>
+<P>To promote this single&nbsp;<B>EPICA</B> have recorded a video clip for the title track which will be released at the same time. This video was shot at several locations during a four day period. At this time it seems that it will be aired only on the Dutch television channel The Box, but if requested enough maybe it will also be added to the play lists of MTV and TMF.<BR></P>
+Автор: Vit Belov
+
+### 18.10.2003 news EPICA выпускает новый сингл
+
+<P><B><IMG height=200 alt="" hspace=0 src="/images/news_rus/2003.10/5116.jpg" width=200 align="left" border=0>EPICA</B>, группа бывшего гитариста <B>AFTER FOREVER</B> <B>Mark Janssen</B>, выпускает новый сингл <B>'The Phantom Agony'</B> 29 октября на <B>Transmission</B>. Трэк-лист:</P>
+<P><B>1.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The Phantom Agony&nbsp; 4.35 - Single Version<BR>2.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Veniality&nbsp; 4.36 - Previously unreleased Track<BR>3.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Fa&ccedil;ade of Reality&nbsp; 8.12&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>4.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Veniality&nbsp; 4.37 - Previously unreleased Orchestral Version</B></P>
+<P>Группа также сняла видео-клип для промоции данного сингла, который будет крутится только на голландском телевидении.</P>
+Автор: Vit Belov
+
+### 20.11.2003 news To Elysium and Epica in Gouda, NL
+
+19 Dec So What!, Gouda NL
+Автор: Vit Belov
+
+### 24.01.2005 news EPICA назвали новый альбом
+
+<P><STRONG>EPICA </STRONG>обнародовали название своего следующего альбома. Он будет называться <STRONG>'Consign To Oblivion'</STRONG> и выйдет уже в марте-апреле нынешнего года. </P>
+Автор: Vit Belov
+
+### 28.02.2005 news Новый альбом EPICA
+
+<P>Голландская группа<STRONG> EPICA</STRONG>, образованная бывшим гитаристом <B>AFTER FOREVER</B> <B>Mark Jansen</B>, бывшим гитаристом <B>CASSIOPEIA</B> <B>Ad Sluijter</B> и клавишником <B>Coen Janssen</B>, готовит к выпуску 21 апреля 2005 года на <STRONG>Transmission Records</STRONG> свой новый альбом под названием <B>"Consign to Oblivion"</B>. Трек-лист альбома уже известен:</P>
+<P><BR><IMG height=300 alt="" hspace=10 src="/images/news_rus/2005.02/8002.jpg" width=300 align=left border=0>1. <B>Hunab K’u - </B>"A New Age Dawns" ~ Prologue <BR>2. <B>Dance of Fate</B> <BR>3. <B>The Last Crusade - </B>"A New Age Dawns"&nbsp;Part 1 <BR>4. <B>Solitary Ground</B> <BR>5. <B>Blank Infinity</B> <BR>6. <B>Force of the Shore</B> <BR>7. <B>Quietus</B> <BR>8. <B>Mother of Light - </B>"A New Age Dawns" Part 2 <BR>9. <B>Trois Vierges</B> <BR>10. <B>Another Me "In Lack’ech"</B><BR>11. <B>Consign to Oblivion - </B>"A New Age Dawns" Part 3<BR></P>
+Автор: Dimas
+
+### 01.03.2005 news EPICA&#39;s new album
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news/2005.03/8003.jpg" width=300 align=right border=5>EPICA</STRONG>'s new album "<STRONG>Consign To Oblivion</STRONG>" will be released on 21st of April. Track-list:</P>
+<P>1. <B>Hunab K’u - </B>"A New Age Dawns" ~ Prologue <BR>2. <B>Dance of Fate</B> <BR>3. <B>The Last Crusade - </B>"A New Age Dawns"&nbsp;Part 1 <BR>4. <B>Solitary Ground</B> <BR>5. <B>Blank Infinity</B> <BR>6. <B>Force of the Shore</B> <BR>7. <B>Quietus</B> <BR>8. <B>Mother of Light - </B>"A New Age Dawns" Part 2 <BR>9. <B>Trois Vierges</B> <BR>10. <B>Another Me "In Lack’ech"</B><BR>11. <B>Consign to Oblivion - </B>"A New Age Dawns" Part 3<BR></P>
+Автор: Vit Belov
+
+### 14.03.2005 news EPICA выложили сэмпл
+
+<P>Сэмпл новой песни <STRONG>EPICA "The Last Crusade"</STRONG> выложен в сеть: <A href="/samples/e/epica/2005_1466.mp3">http://musica.mustdie.ru/samples/e/epica/2005_1466.mp3</A> </P>
+Автор: Vit Belov
+
+### 20.11.2006 news Simone вместо Tarja?
+
+<P>В финской прессе появились очередные слухи о возможной замене <STRONG>Tarja</STRONG> из<STRONG> NIGHTWISH</STRONG>. На вакантное место прочат вокалистку <STRONG>EPICA Simone Simons</STRONG>. Менеджмент<STRONG> EPICA</STRONG> не коментирует эти слухи, но сообщает, что группа находится в отпуске.</P>
+<P>В настоящее время появилось сообщение от самой группы<STRONG> EPICA</STRONG>&nbsp;с опровержением этой информации.</P>
+Автор: Vit Belov
+
+### 06.03.2007 news Вокалистка EPICA споёт для PRIMAL FEAR
+
+<P><STRONG>Simone Simons</STRONG> - вокалистка <STRONG>EPICA</STRONG> - споёт на новом альбоме<STRONG> PRIMAL FEAR</STRONG>.&nbsp;Это будет первый дуэт в истории немецкой группы.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 02.05.2007 news EPICA на Nuclear Blast!
+
+<P><STRONG>Nuclear Blast</STRONG> подписали контракт с группой бывшего гитариста <STRONG>AFTER FOREVER Mark Jansen</STRONG> - <STRONG>EPICA</STRONG>. Новый, пока не названный, альбом группы выйдет в августе-сентябре.</P>
+Автор: Vit Belov
+
+### 16.05.2007 news Название новой EPICA
+
+<P>Новый альбом <STRONG>EPICA</STRONG> будет называться "<STRONG>The Divine Conspiracy</STRONG>" и готовится к релизу в августе-сентябре на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.01.2008 news Mark Jansen помирился с AFTER FOREVER
+
+<P>26 декабря на сцене<STRONG> Podium</STRONG> в голландском городе Харденберг бывший гитарист <STRONG>AFTER FOREVER</STRONG>, а ныне лидер <STRONG>EPICA</STRONG>, <STRONG>Mark Jansen</STRONG> присоединился к своим экс-коллегам для исполнения песни "<STRONG>Beyond Me</STRONG>". Также на сцену вышла вокалистка <STRONG>EPICA</STRONG> <STRONG>Simone Simons</STRONG>. Видео можно посмотреть ниже.</P>
+<P><center><object width="425" height="373"><param name="movie" value="http://www.youtube.com/v/ryQge5S8JgQ&rel=1&border=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/ryQge5S8JgQ&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></object></center></P>
+Автор: Vit Belov
+
+### 24.03.2008 news EPICA заменили вокалистку
+
+<P>Вокалистка <STRONG>EPICA</STRONG> <STRONG>Simone Simons </STRONG>продолжает страдать от инфекции, поэтому пока не может исполнять обязанности лица металлической группы. Чтобы не отменять американский тур, голландцы пригласили временную замену. Ею стала, известная по последней <STRONG>AVANTASIA</STRONG>, учительница&nbsp;<B>Amanda Somerville.</B></P>
+Автор: Vit Belov
+
+### 19.01.2009 news Новый гитарист в EPICA
+
+<P>Новым гитаристом <STRONG>EPICA</STRONG> стал бывший музыкант <STRONG>GOD DETHRONED</STRONG> <STRONG>Isaac Delahaye. </STRONG>Он заменил ушедшего в прошлом месяце <STRONG>Ad Sluijter.</STRONG></P>
+Автор: Vit Belov
+
+### 11.02.2009 news Mark Jansen: &quot;Это был и мой ребёнок&quot;.
+
+<P>Гитарист <STRONG>EPICA Mark Jansen</STRONG> прокомментировал распад <STRONG>AFTER FOREVER</STRONG>, группы одним из основателей которой он был:</P>
+<P>"<EM>Мне стало грустно, когда я услышал эту новость. AFTER FOREVER был и моим ребёнком. Я всегда радовался успехам этой группы, потому что она занимала некоторую часть моего сердца</EM>".</P>
+<P><STRONG>EPICA </STRONG>тем временем занимается пре-продукцией новой пластинки, которая выйдет до конца года на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT id=embed codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=8,0,0,0 height=425 width=380 align=middle classid=clsid:d27cdb6e-ae6d-11cf-96b8-444553540000><PARAM NAME="_cx" VALUE="10054"><PARAM NAME="_cy" VALUE="11245"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://www.royalartistclub.com/addons/embed.swf?id=6161"><PARAM NAME="Src" VALUE="http://www.royalartistclub.com/addons/embed.swf?id=6161"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE=""><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE=""><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="false">
+<embed src="http://www.royalartistclub.com/addons/embed.swf?id=6161" width="380" height="425" name="embed" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer" /><p style="font-family: Arial, sans-serif; font-size: 12px;"><a href="http://www.royalartistclub.com/">Epica</a></p></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.03.2009 news EPICA начали запись
+
+<P>2 марта<STRONG> EPICA</STRONG> вошли в <STRONG>Gate Studio</STRONG> к продюсеру <STRONG>Sascha Paeth</STRONG>, с которым запишут новый альбом для выхода в конце года на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.03.2009 news EPICA, оркестр и Спайдермэн
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.03/13736.jpg" width=300 align=right border=5>8 мая на<STRONG> Nuclear Blast</STRONG> выйдет новый двойной концертный альбом <STRONG>EPICA</STRONG> <STRONG>"The Classical Conspiracy". </STRONG>В основу пластинки лёг концерт группы с симфоническим оркестром и хором на оперном фестивале, который состоялся 14 июня прошлого года. На первый диск попадут обработки популярных классических мелодий и саундтрэков, а на второй - подборка хитов самой группы. Трэк-лист:</P>
+<P>CD 1 - Classical Set:<BR>01. <B>Palladium</B><BR>02. <B>Dies Irae</B><BR>03. <B>Ombra Mai Fu</B><BR>04. <B>Adagio</B><BR>05. <B>Spiderman Medley</B><BR>06. <B>Presto</B><BR>07. <B>Montagues & Capulets</B><BR>08. <B>The Imperial March</B><BR>09. <B>Stabat Mater Dolorosa</B><BR>10. <B>Unholy Trinity</B><BR>11. <B>In The Hall Of The Mountain King</B><BR>12. <B>Pirates Of The Caribbean</B><BR>13. <B>Indigo</B><BR>14. <B>The Last Crusade</B><BR>15. <B>Sensorium</B><BR>16. <B>Quietus</B><BR>17. <B>Chasing The Dragon</B><BR>18. <B>Feint</B><BR><BR>CD 2 - Epica Set:<BR>01. <B>Never Enough</B><BR>02. <B>Beyond Belief</B><BR>03. <B>Cry For The Moon</B><BR>04. <B>Safeguard To Paradise</B><BR>05. <B>Blank Infinity</B><BR>06. <B>Living A Lie</B><BR>07. <B>The Phantom Agony</B><BR>08. <B>Sancta Terra</B><BR>09. <B>Illusive Consensus</B><BR>10. <B>Consign To Oblivion</B></P>
+<P>Съёмки с концерта:</P>
+<P><BR>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/sXN15BJhxZU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/sXN15BJhxZU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.04.2009 news Аудиосэмплы EPICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Две вещи с нового альбома<STRONG> EPICA</STRONG> <STRONG>"The Classical Conspiracy" </STRONG>можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/epica">http://www.myspace.com/epica</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Совместная с оркестром работа выйдет 8 мая на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 17.05.2009 news EPICA вошли в чарты в Бенилюксе
+
+<P><STRONG>EPICA </STRONG>попали в чарты Бельгии и Голландии со своим новым концертным классическим альбомом <STRONG>"The Classical Conspiracy". </STRONG>В Голландии их место 23, а в Бельгии музыканты замкнули сотню.</P>
+Автор: Vit Belov
+
+### 28.05.2009 news EPICA выступили средне
+
+<P>Новый двойной концертник <STRONG>EPICA "The Classical Conspiracy"</STRONG> был реализован в США в первую неделю в количестве 700 штук.</P>
+Автор: Vit Belov
+
+### 24.06.2009 reviews Значимая веха в истории EPICA
+
+<P>EPICA – одна из самых значимых gothic-metal команд с женским вокалом в наши дни. Раньше их воспринимали, как что-то общее с AFTER FOREVER, но теперь вторых не существует, и первые могут развернуться по полной программе. Одним из значимых событий в жизни группы стал фестиваль в венгерском Мискольце. Этот симфонический форум в прошлом году приветствовал две металлические команды, по крайней мере, этим летом мы можем оценить живые альбомы именно этих групп, записанные во время фестиваля, EPICA и THERION.</P>
+<P>Сегодня речь об EPICA. Группа выпустила мощный двойной CD альбом, длительностью около двух с половиной часов, на котором представила избранную классику и собственные вещи в сопровождении оркестра и хора. Всего лишь 15 лет назад мы восторгались, если какая-либо металлическая команда выходила на сцену или садилась в студию вместе с оркестром. Сейчас уже всё не так. Первые опыты RAGE, THERION или RHAPSODY до сих пор занимают в нашем сердце достойное место, но с развитием музыкального бизнеса и компьютерных технологий симфоническое звучание уже не является чем-то недосягаемым. С другой стороны, нужно отдать должное EPICA и их партнёрам, репетиция и подготовка такого концерта точно отняли огромное количество сил. Обратимся к содержимому этих компактов. Первая треть материала представляет классические и популярные мелодии. С вокалом здесь всего две вещи, и это в принципе правильно, при всём моём уважении к прогрессу, которого достигла певица Simone Simons за последние несколько лет, её умение не выглядит столь непробиваемым, чтобы легко выдерживать конкуренцию с оркестром и тем более хором. В металл-боевиках значение оркестра и хора не столь велико, поэтому Simone со своими “Come on’ выглядит более представительно. Коснусь классического репертуара от EPICA лишь вскользь. Голландцы отыграли смесь из классических хитов и популярных саундтрэков к кинофильмам. «Пираты Карибского моря» и «Человек-паук» показались мне не очень убедительными, но тема из «Звёздных Войн» всегда к месту. Из классики ребята исполнили Прокофьева, Вивальди, Дворжака… Достаточно стандартный набор из мелодий той или иной степени заезженности. Но ради чего и стоит покупать этот диск, так это ради собственно концерта EPICA. В этом виде группа приобрела некую завершённость. Помпезный оркестр, многоголосый хор и неоклассические мелодии с некоторой долей тяжёлого металла. То, что надо.</P>
+<P>Ждём теперь THERION, от которых нам обещано даже DVD. Надеюсь, тот балаган, который до недавнего времени носил славное имя, никак не повлиял на качество перформанса. Классические формы очень подходят тому THERION, который мы любили. Кстати, нам обещают много Вагнера.</P>
+Автор: Vit Belov
+
+### 01.08.2009 news Трэк-лист новой EPICA
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.08/14753.jpg" width=400 align=right border=5>EPICA </STRONG>опубликовали трэк-лист своего нового альбома <STRONG>"Design Your Universe":</STRONG></P>
+<P>01. <B>Samadhi</B> (prelude)<BR>02. <B>Resign to Surrender (A New Age Dawns - Part IV)</B><BR>03. <B>Unleashed</B><BR>04. <B>Martyr of the Free Word</B><BR>05. <B>Our Destiny</B><BR>06. <B>Kingdom of Heaven (A New Age Dawns - Part V)</B><BR>07. <B>The Price of Freedom (interlude)</B><BR>08. <B>Burn to a Cinder</B><BR>09. <B>Tides of Time</B><BR>10. <B>Deconstruct</B><BR>11. <B>Semblance of Liberty</B><BR>12. <B>White Waters</B><BR>13. <B>Design Your Universe (A New Age Dawns - Part VI)</B></P>
+<P>Пластинка выйдет в октябре.</P>
+Автор: Vit Belov
+
+### 06.08.2009 news Бывшие музыканты EPICA и AFTER FOREVER создали новый проект
+
+<P><STRONG>Mark Jansen</STRONG> (<B>EPICA</B>, ex-<B>AFTER FOREVER</B>), <B>Sander Gommans</B> (<B>HDK</B>, ex-<B>AFTER FOREVER</B>)&nbsp;и <B>Jack Driessen</B> (ex-<B>AFTER FOREVER</B>) объединили свои силы в новом проекте, над дебютным альбомом которого они сейчас работают. По словам <STRONG>Sander Gommans</STRONG>, музыканты с удовольствием вспомнят времена, когда они писали вместе для <STRONG>AFTER FOREVER</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.09.2009 news Новая песня EPICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню<STRONG> EPICA</STRONG> <STRONG>"Resign to Surrender (A New Age Dawns - Part IV)" </STRONG>с выходящего альбома <STRONG>"Design Your Universe" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/nuclearblasteurope">http://www.myspace.com/nuclearblasteurope</A></FONT></P>
+Автор: Vit Belov
+
+### 27.09.2009 news Видеоклип EPICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>EPICA </STRONG>на песню <STRONG>"Unleashed" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=63512893">Official "UNLEASHED" videoclip</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=63512893,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=63512893,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.11.2009 reviews EPICA нашли новые ингредиенты
+
+<P>Мы уже сообщали о том, что голландская группа EPICA является одной из ведущих на современной sympho gothic-metal сцене по подразделению коллективов с женским вокалом. Отделившаяся от AFTER FOREVER она не только пережила её, но и в чём-то даже обошла. Например, вышедший в этом году концерт с симфоническим оркестром это то, о чём могут только мечтать большинство «готических» групп.</P>
+<P>Предыдущая работа EPICA “The Divine Conspiracy”, первая в сотрудничестве с гигантом индустрии Nuclear Blast, подтверждала стиль группы. Мощные «месопотамские» ритмы, гроулинг и обилие женского вокала набравшей силы Simone Simons. Всё это было несомненно привлекательно для покупателя, но несколько утомительно для более искушённого слушателя. После нескольких качественнейших трэков приходила скука, от которой отделаться никак не получалось. Новый опус EPICA “Design Your Universe” показался мне более продуманным и творческим. К среднетемповым хитам, составлявшим костяк прошлой работы, добавилось несколько оригинальных номеров. Например, меня очень впечатлила “Unleashed”, где я обнаружил очень хорошую, даже захватывающую мелодию. Прибавьте к этому ещё большую симфоничность саунда, и вы уже получите очень достойный альбом. Альбом продуманный и тонкий.</P>
+<P>Разнообразие и запоминаемость мелодий, вот два ингредиента, которые были добавлены EPICA к своей музыке. И блюдо получилось явно более вкусное.</P>
+Автор: Vit Belov
+
+### 11.11.2009 news EPICA продали 2100
+
+<P>Голландцы<STRONG> EPICA</STRONG> продали 2100 экземпляров своего нового альбома "<STRONG>Design Your Universe</STRONG>" в США в первую неделю продаж. Это не позволило группе попасть в чарты <STRONG>Billboard 200</STRONG>.</P>
+Автор: Vit Belov
+
+### 28.06.2010 news EPICA за дикую природу
+
+<P>Клип <STRONG>EPICA</STRONG> на песню <STRONG>"This Is The Time" </STRONG>можно посмотреть ниже. Вокалистка голландцев <STRONG>Simone Simons </STRONG>cнялась в нём в поддержку фонда мировой дикой природы, который занимается защитой будущего дикой природы, как следует из его названия. Эту организацию поддерживают около 5 миллионов человек по всему миру.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ZeOYHwN6YBo&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ZeOYHwN6YBo&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 21.07.2011 news EPICA назначили дату
+
+<P><STRONG>Nuclear Blast</STRONG> анонсировали выпуск нового альбома <STRONG>EPICA</STRONG> на 9 марта. Группа начала пре-продукцию (фото ниже)&nbsp;к этому альбому в студии <STRONG>Gate</STRONG> с продюсером <STRONG>Sascha Paeth. </STRONG></P>
+<P><center><IMG height=356 src="/images/news_rus/2011.07/20278.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 02.12.2011 news EPICA назвали альбом
+
+<P>Новый альбом <STRONG>EPICA</STRONG> получил название <STRONG>"Requiem For The Indifferent". </STRONG>Пластинка выйдет 9 марта на <STRONG>Nuclear Blast</STRONG>. Будущий релиз голландцев был записан в <STRONG>Gate Studio </STRONG>вместе с продюсером <STRONG>Sascha Paeth.</STRONG> </P>
+<P><center><IMG height=343 src="/images/news_rus/2011.12/22241.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 19.12.2011 news Новый альбом EPICA
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.12/22348.jpg" width=475 align=right border=0>Пятый полноформатный альбом<STRONG> EPICA</STRONG> <STRONG>"Requiem For The Indifferent" </STRONG>выйдет 9 марта на<STRONG> Nuclear Blast</STRONG>. Трек-лист:</P>
+<P>01. <B>Karma</B><BR>02. <B>Monopoly On Truth</B><BR>03. <B>Storm The Sorrow</B><BR>04. <B>Delirium</B><BR>05. <B>Internal Warfare</B><BR>06. <B>Requiem For The Indifferent</B><BR>07. <B>Anima</B><BR>08. <B>Guilty Demeanor</B><BR>09. <B>Deep Water Horizon</B><BR>10. <B>Stay The Course</B><BR>11. <B>Deter The Tyrant</B><BR>12. <B>Avalanche</B><BR>13. <B>Serenade Of Self-Destruction</B></P>
+<P>Обложку для CD создал <STRONG>Stephan Heilemann</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.01.2012 news Новые фото EPICA
+
+<P>Голландцы<STRONG> EPICA</STRONG> опубликовали&nbsp;три&nbsp;фото с сессии к своему новому альбому "<STRONG>Requiem For Indifferent</STRONG>", который выйдет 9 марта на <STRONG>Nuclear Blast</STRONG>. </P>
+<P><center><IMG height=201 src="/images/news_rus/2012.01/22574.jpg" width=319 border=0></P>
+<P><center><IMG height=273 src="/images/news_rus/2012.01/22575.jpg" width=319 border=0></P>
+<P><center><IMG height=212 src="/images/news_rus/2012.01/22576.jpg" width=319 border=0></P>
+Автор: Vit Belov
+
+### 17.02.2012 news Лирик-видео EPICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую музыку <STRONG>EPICA</STRONG> можно послушать в "лирик-видео" ниже. Трек "<STRONG>Storm Of Sorrow</STRONG>" вышел в качестве сингла и попадёт на новый альбом голландского коллектива "<STRONG>Requiem For The Indifferent</STRONG>", который выйдет в начале марта на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/cpZP3b_NPKw?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 29.04.2012 news Новый клип EPICA
+
+<P>Новый ролик голландцев<STRONG> EPICA</STRONG> на песню "<STRONG>Storm The Sorrow</STRONG>" можно посмотреть ниже. Лимитированный вариант нового альбома группы "<STRONG>Requiem For Indifferent</STRONG>" с бонус-треком доступен к заказу в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P>
+<CENTER><IFRAME src="http://www.youtube.com/embed/dNoTvg0t52c?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.06.2016 news EPICA выпускают новый альбом
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>EPICA</strong> закончили работу над новым альбомом "<strong>The Holographic Principle</strong>". CD запланирован к выходу 30 сентября на <strong>Nuclear Blast</strong>. Продюсером выступил <strong>Joost van der Broek</strong> в студии <strong>Sandlane Recording Facilities</strong>. Сведение: <strong>Jacob Hansen</strong> (Volbeat, Destruction). Обложка: <strong>Stefan Heilemann</strong>.</font></p><p><center><img width="560" height="560" src="/images/news_rus/2016.06/29245.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 04.06.2016 news EPICA: New album in September
+
+<p><strong>EPICA</strong> have completed work on a new album "<strong>The Holographic Principle</strong>". The CD is scheduled for release September 30 via <strong>Nuclear Blast</strong>. Produced by <strong>Joost van der Broek</strong> at the <strong>Sandlane Recording Facilities</strong>. Mixing: <strong>Jacob Hansen</strong> (Volbeat, Destruction). Cover Artwork: <strong>Stefan Heilemann</strong>.</p><p>Band statement: "<em>Our highly anticipated seventh studio album is a fact. The Holographic Principle feels to us like a true treasure, created by us all with blood, sweat and tears of joy. In the past year we have worked very hard to write and record this special album. We are all very eager to share it with you! Join us on our new musical journey</em>."</p><p><center><img width="560" height="560" src="/images/news_rus/2016.06/29245.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 18.06.2016 news EPICA: Трек-лист нового альбома
+
+<p>Как уже сообщалось, новый альбом <strong>EPICA "The Holographic Principle"</strong> выйдет 30 сентября на<strong> Nuclear Blast</strong>. Стал известен трек-лист этой работы:</p><p>“Eidola”<br> “Edge Of The Blade”<br> “A Phantasmic Parade”<br> “Universal Death Squad”<br> “Divide And Conquer”<br> “Beyond The Matrix”<br> “Once Upon A Nightmare”<br> “The Cosmic Algorithm”<br> “Ascension - Dream State Armageddon”<br> “Dancing In A Hurricane”<br> “Tear Down Your Walls”<br> “The Holographic Principle - A Profound Understanding Of Reality”</p><p>&nbsp;<center><img width="490" height="735" src="/images/news_rus/2016.06/29389.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 18.06.2016 news EPICA: Track listing of new album
+
+As previously reported, the new album of <strong>EPICA "The Holographic Principle"</strong> will be released September 30 via<strong> Nuclear Blast</strong>. The track listing of this work became known:<p>“Eidola”<br> “Edge Of The Blade”<br> “A Phantasmic Parade”<br> “Universal Death Squad”<br> “Divide And Conquer”<br> “Beyond The Matrix”<br> “Once Upon A Nightmare”<br> “The Cosmic Algorithm”<br> “Ascension - Dream State Armageddon”<br> “Dancing In A Hurricane”<br> “Tear Down Your Walls”<br> “The Holographic Principle - A Profound Understanding Of Reality”<p>&nbsp;<center><img width="490" height="735" src="/images/news_rus/2016.06/29389.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 29.07.2016 news EPICA: дебютное lyric video с нового альбома
+
+<p>Новую песню<strong> EPICA "Universal Deathsquad"</strong> можно услышать в клипе внизу. Трек взят с выходящего альбома голландцев "<strong>The Holographic Principle</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/P_Ys_W7ySkM" frameborder="0" allowfullscreen></iframe></center>
+Автор: Vit Belov
+
+### 29.07.2016 news New song by EPICA
+
+<p>New song of<strong> EPICA "Universal Deathsquad"</strong> you can hear in the clip below. The track is taken from the forthcoming Studio album of the Dutch "<strong>The Holographic Principle</strong>".</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/P_Ys_W7ySkM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 09.09.2016 news Новый клип EPICA
+
+<p>Новое видео<strong> EPICA</strong> на песню "<strong>Edge Of The Blade</strong>" можно посмотреть ниже. Трек взят с выходящего альбома gothic metal группы "<strong>The Holographic Principle</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/D_QLQHkj1XU" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 09.09.2016 news EPICA released new video
+
+<p><strong>EPICA</strong>'s new masterpiece »<strong>The Holographic Principle</strong>« will be available in stores in about three weeks' time. In anticipation of this album, a new music video for <strong>'Edge Of The Blade'</strong> has been launched today!</p><p>Commented<strong> Coen Janssen</strong> (synths, piano):</p><p>"<em>Finally another video! We are very happy with the way it turned out! It gives a glimpse on what to expect from our upcoming live shows, so watch it a few times because I'm expecting to see you sing along with it soon!"</em></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/D_QLQHkj1XU" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 16.10.2016 reviews Жертвы собственного стиля
+
+<p>Голландцы EPICA выпустили уже восьмой студийный альбом. Музыканты достигли уже того уровня, когда альбомы смешиваются в один большой ком, и неподготовленный слушатель едва ли вспомнит, где какую песню слышал. При этом группа уже стала практически иконой стиля, а вокалистка Simone Simons является одной из ведущих и узнаваемых исполнительниц в gothic metal, да и в metal вообще.</p><p>EPICA попали в ловушку собственного стиля. Композиторские трюки в их творчестве не приветствуются, для этого есть проект MAYAN, а до бесконечности улучшать звучание, находясь в рамках ожидаемого поклонниками, невозможно. В итоге нам достаются однообразные симфоничные эпики с великолепными оркестровками, узнаваемым вокалом, но без какой-либо изюминки. Даже при таком раскладе, благодаря профессионализму исполнителей, мы получаем очень качественный альбом, который приятно послушать, особенно если по каким-то причинам альбомы в стиле orchestral gothic metal с женским вокалом давно не попадали в проигрыватель. В моём случае это совсем не так. Например, недавно вышел альбом других голландцев DELAIN “Moonbathers”, найти на котором «пять отличий» от творчества EPICA будет затруднительно. Пожалуй, EPICA больше заморочились на симфоническом звучании, а DELAIN предлагают более разнообразный и душевный материал. Забавно, что «The Holographic Principle” звучит 72 минуты. Для подобного альбома это ужасно много. Минут на 50 может материала EPICA и хватило бы, но больше часа выдержать этот альбом смогут только самые преданные фанаты женского вокала.</p><p>Группа, на которую возлагались огромные надежды, но она прекратила творческий поиск, предлагая на потребу толпы всё новые и новые красочные музыкальные шоу. Как опыт, посмотреть клипы, посмотреть платья и оценить стоимость звучания, новые альбомы голландцев подходят. Творческого же смысла они большого не несут.</p><p>Покупайте двойной (!!!) лимитированный digipak от Союза на Escapemind.ru: <a href="http://escapemind.ru/goods/EPICA-The-Holographic-Principle-2CD-digi">http://escapemind.ru/goods/EPICA-The-Holographic-Principle-2CD-digi</a></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

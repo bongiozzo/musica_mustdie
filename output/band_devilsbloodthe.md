@@ -20,6 +20,35 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.09.2011 news THE DEVIL&#39;S BLOOD: новый полноформатник &quot;The Thousandfold Epicentre&quot; в ноябре
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/20892.jpg" width=400 height=400>Оккультные рокеры<STRONG> THE DEVIL'S BLOOD</STRONG> выпускают свой новый полноформатник <STRONG>"The Thousandfold Epicentre" </STRONG>на<STRONG> Van Records</STRONG> 11 ноября. </P>
+<P>Альбом выйдет сразу в нескольких форматах. Сделать предварительный заказ и подробней узнать о&nbsp;вариантах издания&nbsp;<STRONG>"The Thousandfold Epicentre"</STRONG> можно по адресу: </P>
+<P><A href="http://www.van-records.de/en/PRESALE-The-Devils-Blood">www.van-records.de/en/PRESALE-The-Devils-Blood</A></P>
+<P><STRONG></STRONG><BR>&nbsp;</P>
+Автор: Headcrusher
+
+### 27.01.2013 news Голландский коллектив окультного рока THE DEVIL&#39;S BLOOD распался
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25373.jpg" width=381 height=506>Голландская группа <STRONG>THE DEVIL'S BLOOD</STRONG> распалась, так и не успев доехать до России с концертами. Дебютное выступление коллектива на многострадальной российской земле должно было состояться 13 апреля 2013 года в Москве в рамках <A href="/ru/shows/#69278"><STRONG>Depressivefest, II</A></STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Достоверная причина распада <STRONG>THE DEVIL'S BLOOD</STRONG> не известна. Группа лишь оставила следующее заявление на своём официальном сайте:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"По состоянию на 22 января 2013 <STRONG>THE DEVIL'S BLOOD</STRONG> вернулись в небытие.<BR>Все запланированные Ритуалы будут отменены.<BR>Никаких интервью.<BR>Свершилось.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>-<STRONG>SL</STRONG> & <STRONG>F</STRONG></EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM><STRONG>THE DEVIL'S BLOOD</STRONG> - 2007/2013"</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обсудить это печальное событие можно на нашем форуме, в теме посвящённой этому концерту: <A href="/ru/topic/130218/">musica.mustdie.ru/ru/topic/130218/</A></FONT></P>
+Автор: Headcrusher
+
+### 06.03.2014 news Умер Selim Lemouchi
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.03/26719.jpg" width=200 height=223>Вчера, согласно сообщению на сайте <A href="http://3voor12.vpro.nl/nieuws/2014/maart/Selim-Lemouchi--Devil-s-Blood--overleden.html">3VOOR12</A>, умер&nbsp;<STRONG>Selim Lemouchi</STRONG> (на фото), лидер голландского коллектива <STRONG>THE DEVIL'S BLOOD</STRONG>, исполнявшего оккультный рок&nbsp; и распавшегося в начале 2013 г. Ему было 34 года.&nbsp;Эту новость также подтвердили&nbsp;<STRONG>Bidi van Drongelen</STRONG>, который долгое время работал с группой в качестве менеджера, и <STRONG>Walter Hoeijmakers</STRONG>, основатель фестиваля <STRONG>Roadburn</STRONG>. Причина смерти и другие подробности на данный момент неизвестны.</P>
+<P>Последним релизом <STRONG>THE DEVIL'S BLOOD</STRONG> стал, вышедший в июне 2013,&nbsp;альбом <STRONG>"III: Tabula Rasa Or Death And The Seven Pillars"</STRONG>, на который вошли незаконченные демо записи группы, сделанные в домашней студии <STRONG>Lemouchi</STRONG>.</P>
+<P>Также&nbsp;6 декабря прошлого года на лейбле <STRONG>Van</STRONG> вышел альбом <STRONG>"Earth Air Spirit Water Fire"</STRONG> нового проекта Селима под названием <STRONG>SELIM LEMOUCHI & HIS ENEMIES</STRONG>.</P>
+<P>Ознакомиться с ним можно пройдя по ссылке: <A href="http://soundcloud.com/earsplit/sets/selim-lemouchi-his-enemies">http://soundcloud.com/earsplit/sets/selim-lemouchi-his-enemies</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### FEN (UK), AHAB (Ger.), OCTOBER TIDE (Swe.) в Москве, 13 апреля 2013 г.

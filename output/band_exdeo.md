@@ -35,6 +35,84 @@ KATAKLYSM singer
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2008 news EX DEO на Nuclear Blast
+
+<P>Проект вокалиста <STRONG>KATAKLYSM Maurizio Iacono EX DEO</STRONG> подписал контракт с <STRONG>Nuclear Blast</STRONG>. Музыкант рекомендует группу любителям основной своей группы, а так же поклонникам viking/pagan metal. </P>
+Автор: Vit Belov
+
+### 12.01.2009 news Песня EX DEO
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая группа певца <STRONG>KATAKLYSM</STRONG> <STRONG>Maurizio Iacono&nbsp;EX DEO&nbsp;</STRONG>выложила в сеть демо-песню "<STRONG>Cry Havoc</STRONG>" на своей <STRONG>MySpace</STRONG> страничке. Дебютный альбом группы <STRONG>"Romulus" </STRONG>выйдет в сентябре на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/exdeo">http://www.myspace.com/exdeo</A></FONT></P>
+Автор: Vit Belov
+
+### 18.03.2009 news Вокалист KATAKLYSM споёт о Древнем Риме
+
+<P>Прект вокалиста <STRONG>KATAKLYSM</STRONG> <STRONG>Maurizio Iacono EX DEO </STRONG>опубликовал трэк-лист дебютного альбом "<STRONG>Romulus</STRONG>", выходящего 22 мая на <STRONG>Nuclear Blast</STRONG>:</P>
+<P>01. <B>Romulus</B><BR>02. <B>Storm the Gates of Alesia</B><BR>03. <B>Cry Havoc</B><BR>04. <B>Surrender the Sun</B><BR>05. <B>Invictus</B><BR>06. <B>The Final War (Battle of Actium) </B><BR>07. <B>Legio XIII</B><BR>08. <B>Blood, Courage and The God's That Walk The Earth</B><BR>09. <B>Cruor Nostri Abbas</B><BR>10. <B>In Her Dark Embrace</B><BR>11. <B>The Pantheon (Jupiter's Reign)</B></P>
+Автор: Vit Belov
+
+### 13.05.2009 news Дебютный видеоклип EX DEO
+
+<P>Видео на заглавную песню с дебютного альбома проекта вокалиста <STRONG>KATAKLYSM Maurizio Iacono EX DEO "Romulus"</STRONG> можно посмотреть ниже. Ролик был снят в Сербии режиссёром <STRONG>Stanimir "Staca" Lukic</STRONG> (<STRONG>MOONSPELL, KAMELOT, DEATHSTARS, TYPE O NEGATIVE</STRONG>). Альбом выйдет 19 июня на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=56978231,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=56978231,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.07.2009 reviews Исторический экскурс с великолепными музыкальными иллюстрациями
+
+<P>О сольнике вокалиста KATAKLYSM Maurizio Iacono заговорили в прошлом году. Факт того, что альбом о Древнем Риме сразу подписали на Nuclear Blast, говорил о многом. Вы можете возразить, что KATAKLYSM уже много лет выпускается на этом немецком лэйбле, но NB не подписывают всех, кого попало, даже если находятся с этими всеми в отличных отношениях.</P>
+<P>Начну с лирического отступления. В каком ещё стиле может появиться серьёзный и вдумчивый альбом на исторические темы, где его создатели даже в буклете будут сообщать о том, что записали, ни много ни мало, пластинку-рассказ об истории Древнего Рима? Кто ещё, кроме металлистов будет это слушать, и кто ещё кроме тяжёлого лэйбла будет это финансировать? Во всём мире подобными культурными делами занимаются соответствующие министерства, то есть государство. И только металлисты готовы финансировать подобные вещи из собственного кармана, просвещая в доступных формах население. Скромный канадский мужичок итальянского происхождения сочинил целый поучительный музыкальный трактат, который и реализовал в своём проекте EX DEO. Всё это вызывает уважение, но вместе со звуковой составляющей просто повергает слушателя в шок. Маршевые, симфонические death-metal номера с интересными мелодиями заставляют сопереживать всему происходящему. Все эти крики «Вива, Цезарь» и рассказы об ужасающих кровавых битвах заставляют вспомнить о более близких по времени событиях. От Третьего Рейха до современных деяний США. В записи этой пластинки участвовали все «братья» Maurizio по KATAKLYSM, а так же клавишник BLACKGUARD Jonathan Leduc, по этой причине и за качество исполнения опасаться не стоит. Также на пластинке отметились Nergal (BEHEMOTH), Karl Sanders (NILE) и Obsidian C. (KEEP OF KALESSIN). На редкость удачные гости, с творчеством этим групп запросто можно сравнивать и “Romulus”.</P>
+<P>Великолепный альбом. Это тот случай, когда концепция и музыка не просто соседствуют, а органично дополняют друг друга. Мимолётный взгляд в кроваво-красный буклет, и музыка из просто очень хорошей превращается в великолепную. Советую всем.</P>
+Автор: Vit Belov
+
+### 16.03.2010 news EX DEO продолжают свой &quot;пеплум&quot;
+
+<P>Новое видео<STRONG> EX DEO</STRONG> на песню <STRONG>"The Final War (Battle Of Actium)"&nbsp;</STRONG>можно посмотреть ниже. Клип снял режиссёр <STRONG>Ivan Colic</STRONG>&nbsp;в Белграде.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qcfaltp8CL0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/qcfaltp8CL0&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.12.2010 news EX DEO на Napalm Records
+
+<P><IMG height=215 alt="" hspace=0 src="/images/news_rus/2010.12/17833.jpg" width=300 align=right border=0>Проект вокалиста <STRONG>KATAKLYSM</STRONG> <STRONG>Maurizio Iacono EX DEO</STRONG> заключил контракт с <STRONG>Napalm Records</STRONG>. Работа над второй пластинкой <STRONG>"Caligula" </STRONG>начнётся после тура 2011 года. </P>
+<P>Отметим, что первая работа <STRONG>EX DEO</STRONG> <STRONG>'Romulus' </STRONG>вышла на <STRONG>Nuclear Blast</STRONG>, где выходили и все альбомы <STRONG>KATAKLYSM</STRONG>. </P>
+Автор: Vit Belov
+
+### 02.07.2011 news EX DEO: Подробности о новом альбоме
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=323 alt="" hspace=0 src="/images/news_rus/2011.07/19842.jpg" width=450 align=right border=0>Проект вокалиста <STRONG>KATAKLYSM</STRONG> <STRONG>Maurizio Iacono EX DEO </STRONG>начнёт запись нвторого альбома <STRONG>"Caligula</STRONG>" с гитаристом <STRONG>KATAKLYSM</STRONG> <STRONG>Jean-Fran&#231;ois Dagenais</STRONG> (<B>KATAKLYSM</B>, <B>MALEVOLENT CREATION</B>, <B>MISERY INDEX</B>, <B>DESPISED ICON</B>) в качестве продюсера сразу в двух студиях в Далласе и Монреале. Пластинка готовится к выходу в начале следующего года на австрийском <STRONG>Napalm Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот названия некоторых песен альбома: <STRONG>"I, Caligula"</STRONG>, <B>"Burned to Serve the Nocturnal Light"</B>, <B>"In War & Conquest/Roma Caput Mundi"</B>&nbsp;и <B>"Teutoburg (The Ambush of Varus) - Part 1"</B>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Великолепный дебют проекта <STRONG>"Romulus" </STRONG>вышел на <STRONG>Nuclear Blast</STRONG> в 2009 году. Российское издание, вышедшее на <STRONG>Irond</STRONG>, уже распродано.<BR></P></FONT>
+Автор: Vit Belov
+
+### 27.02.2012 news Вокалистка TRISTANIA споёт для EX DEO
+
+<P>Певица <STRONG>TRISTANIA Mariangela "Mary" Demurtas</STRONG> приняла участие в записи нового альбома проекта вокалиста <STRONG>KATAKLYSM Maurizio Iacono EX DEO</STRONG>. Музыкант обещал, что каждый исполнитель, задействованный в записи вокальных партий для второй пластинки "<STRONG>Caligvla</STRONG>", будет иметь римский или греческий акцент.</P>
+<P><center><IMG height=287 src="/images/news_rus/2012.02/23154.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 16.04.2012 news Обложка нового EX DEO
+
+<P>Второй альбом исторического проекта вокалиста<STRONG> KATAKLYSM Maurizio Iacono EX DEO "Caligvla"</STRONG> выйдет 31 августа на <STRONG>Napalm Records</STRONG>. Обложку, которую создал <STRONG>Seth Siro Anton</STRONG> из <STRONG>SEPTICFLESH</STRONG> можно увидеть ниже.</P>
+<P><center><IMG height=483 src="/images/news_rus/2012.04/23525.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 31.07.2012 news EX DEO: клип &quot;I, Caligvla&quot;
+
+<P>Ещё один клип от питомцев <STRONG>Napalm Records</STRONG>, на этот раз от ансамбля <STRONG>EX DEO</STRONG>, руководимого вокалистом канадцев <STRONG>KATAKLYSM</STRONG>, <STRONG>Mauriozio Iacono</STRONG>. Трек <STRONG>"I, Caligvla"</STRONG> вошёл в свежий альбом коллектива, <STRONG>"Caligvla"</STRONG>, который группа посвятила богатейшей истории Древнего Рима и его злобному и кровожадному правителю, императору Калигуле. </P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/NSW01sWSPQY" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

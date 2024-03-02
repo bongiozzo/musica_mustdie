@@ -120,6 +120,21 @@ Recorded at Tronicarts Studio Radevormwald by CUSTARD and T. Polejowski
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.11.2000 reviews Новые герои true-power-metal
+
+<p>Новые герои true-power-metal. Вот они, встречайте! Сорок семь минут настоящего и незабвенного мелодичного power в духе Helloween и Blind Guardian. Как ни странно. музыканты сумели сочинить такой материал, который несмотря на свою неоригинальность, просто сражает и убивает наповал. Очень мелодично, много новых несодранных риффов, обилие хоровых распевок, хороший вокал, грамотная игра. Альбом почти без минусов. Многие песни сразу запоминаются своими хитовыми припевами и хуками. Оказывается можно еще что-то очень хорошее придумать и записать не используя при этом клавишных и симфонические инструменты. Вот только не понимаю, почему КРЕМ?</p>
+
+Автор: Dimas
+
+### 21.11.2000 reviews The new heroes of  true-power-metal
+
+<p>The new heroes of true-power-metal. Meet'em! Forty seven minutes of present and unforgettable melodious power in spirit Helloween and Blind Guardian. Strangely enough. The musicians have managed to compose such material, which despite of not original, is simple kills. Many chorals, good vocal, competent quality of musicians. An album almost without minuses. Many songs at once are remembered by the hit refrains. It appears it is possible still something very good to think up and to write down not using thus keyboards and symphonic instruments. Only I do not understand, why a CUSTARD (CREAM)?</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

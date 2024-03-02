@@ -40,6 +40,14 @@ Steven Henson - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.04.2009 news FALL OF EMPYREAN на Grau
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американская doom команда <STRONG>FALL OF EMPYREAN</STRONG> заключила контракт с <STRONG>Grau</STRONG>. Первым релизом этого соглашения станет третий полноформатник группы <STRONG>"A Life Spent Dying".</STRONG></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

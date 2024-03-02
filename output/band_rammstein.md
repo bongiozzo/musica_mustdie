@@ -172,6 +172,645 @@ Contact: Pilgrim, Postfach 540 101, 10042 Berlin, Germany
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.10.2000 news Немцы Rammstein заканчивают работу над новым альбомом
+
+<p>В данный момент Rammstein занимаются микшированим своего нового альбома "Mutter" в одной из шведских студий. Релиз диска намечен на апрель следующего года.</p>
+
+Автор: Nybras
+
+### 30.10.2000 news Rammstein is currently mixing new album in Sweden
+
+<p>Rammstein is currently mixing a "Mutter" of a new album in Sweden. Worldwide release for "Mutter" (German or "Mother") is tentatively set for early April. The spokesperson confirmed that the group is also trying to ready a single for a pre-Christmas release, but added that those plans are also tentative</p>
+
+Автор: Nybras
+
+### 02.04.2001 news RAMMSTEIN&#39;s new album Mutter and tour dates
+
+<p> RAMMSTEIN’s long-awaited new album, Mutter, is being released this week on CD, MC, as a limited edition and on vinyl. The limited edition is a digipack with an extra poster included. The vinyl will be available only in select German record stores.</p>
+<p> RAMMSTEIN will be embarking on a European tour in mid-May. Here are the dates that have been confirmed so far:</p>
+<p></p>
+<p> May 13 - Nьrnberg, GER @ Arena</p>
+<p></p>
+<p> May 14 - Bielefeld, GER @ Seidenstickerhalle</p>
+<p></p>
+<p> May 15 - Hamburg, GER @ Sporthalle</p>
+<p></p>
+<p> May 16 - Hamburg, GER @ Sporthalle</p>
+<p></p>
+<p> May 18 - Berlin, GER @ Velodrom</p>
+<p></p>
+<p> May 19 - Berlin, GER @ Velodrom</p>
+<p></p>
+<p> May 20 - Mьnchen, GER @ Olympiahalle</p>
+<p></p>
+<p> May 22 - Wien, AUS @ Stadthalle</p>
+<p></p>
+<p> May 24 - Zьrich, SWIT @ Hallenstadion</p>
+<p></p>
+<p> May 26 - Riesa, GER @ Sachsenarena</p>
+<p></p>
+<p> May 27 - Erfurt, GER @ Messehalle</p>
+<p></p>
+<p> May 28 - Stuttgart, GER @ Schleyerhalle</p>
+<p></p>
+<p> May 29 - Frankfurt, GER @ Festhalle</p>
+<p></p>
+<p> May 31 - Dortmund, GER @ Westfalenhalle</p>
+<p></p>
+<p> May 01 - Hannover, GER @ Preussag Arena</p>
+<p></p>
+<p> May 06 - Prague, GER @ Strahov Stadium (w/AC/DC)</p>
+<p></p>
+<p> May 10 - London, UK @ Astoria</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 08.01.2002 news Немецкие Media Control Чарты превращаются в попсу...
+
+<p>Одного взгляда на Германский Media Control (Top 100) chart за неделю по 7-е января достаточно, чтобы понять - миром правит попса... или по крайней мере рэп-кор: <BR><BR> 17. LIMP BIZKIT - New Old Songs <BR> 22. LINKIN PARK - Hybrid Theory<BR> 26. CREED - Weathered <BR> 31. KID ROCK - Cocky <BR> 41. NICKELBACK - Silver Side Up <BR> 42. LENNY KRAVITZ - Lenny <BR> 57. H.I.M. - Deep Shadows And Brilliant... <BR> 58. SUM 41 - All Killer No Filler <BR> 59. FARIN URLAUB - Endlich Urlaub <BR> 60. RAMMSTEIN - Mutter<BR> 84. STAIND - Break The Cycle <BR> 99. AEROSMITH - Young Lust <BR></p>
+
+Автор: Yermola
+
+### 08.01.2002 articles Чарты интересов посетителей MUSICA.mustdie.ru
+
+<p>Чарты интересов посетителей MUSICA.mustdie.ru в процентах.</p>
+<p><a href="/ru/band/nightwish/">NIGHTWISH</a> - 9,73</p>
+<p><a href="/ru/band/slipknot/">SLIPKNOT</a> - 7,45</p>
+<p><a href="/ru/band/tristania/">TRISTANIA</a> - 7,16</p>
+<p><a href="/ru/band/therion/">THERION</a> - 6,52</p>
+<p><a href="/ru/band/rammstein/">RAMMSTEIN</a> - 4,92</p>
+<p><a href="/ru/band/rhapsody/">RHAPSODY</a> - 4,64</p>
+<p><a href="/ru/band/apocalyptica/">APOCALYPTICA</a> - 3,56</p>
+<p><a href="/ru/band/osbourne_ozzy/">OZZY OSBOURNE</a> - 3,38</p>
+<p><a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - 2,99</p>
+<p><a href="/ru/band/tiamat/">TIAMAT</a> - 2,87</p>
+<p><a href="/ru/band/slayer/">SLAYER</a> - 2,42</p>
+<p><a href="/ru/band/sepultura/">SEPULTURA</a> - 2,42</p>
+<p><a href="/ru/band/mayhem/">MAYHEM</a> - 2,33</p>
+<p><a href="/ru/band/clawfinger/">CLAWFINGER</a> - 2,22</p>
+<p><a href="/ru/band/soulfly/">SOULFLY</a> - 2,06</p>
+<p>SYSTEM OF A DOWN - 2,03</p>
+<p>THEATRE OF TRAGEDY - 1,92</p>
+<p>RAGE AGAINST THE MACHINE - 1,82</p>
+<p>CRADLE OF FILTH - 1,76</p>
+<p>MEGADETH - 1,74</p>
+<p>UDO - 1,53</p>
+<p>ANATHEMA - 1,5</p>
+<p>KOVENANT - 1,42</p>
+<p>HELLOWEEN - 1,17</p>
+<p>EINSIFERUM - 1,14</p>
+<p>VENOM - 1,11</p>
+<p>LACRIMOSA - 1,04</p>
+<p>BRAINSTORM - 1,04</p>
+<p>АРИЯ - 1,01</p>
+<p>OFFSPRING - 1,0</p>
+
+Автор: Vit Belov
+
+### 08.01.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending January 7th (as reported by Rock Hard magazine): <BR><BR> 17. LIMP BIZKIT - New Old Songs <BR> 22. LINKIN PARK - Hybrid Theory<BR> 26. CREED - Weathered <BR> 31. KID ROCK - Cocky <BR> 41. NICKELBACK - Silver Side Up <BR> 42. LENNY KRAVITZ - Lenny <BR> 57. H.I.M. - Deep Shadows And Brilliant... <BR> 58. SUM 41 - All Killer No Filler <BR> 59. FARIN URLAUB - Endlich Urlaub <BR> 60. RAMMSTEIN - Mutter<BR> 84. STAIND - Break The Cycle <BR> 99. AEROSMITH - Young Lust <BR></p>
+
+Автор: Yermola
+
+### 08.01.2002 articles Charts of interests of the visitors MUSICA.mustdie.ru
+
+<p>Charts of interests of the visitors MUSICA.mustdie.ru in percentage</p>
+<p>NIGHTWISH 9,73</p>
+<p>SLIPKNOT 7,45</p>
+<p>TRISTANIA 7,16</p>
+<p>THERION 6,52</p>
+<p>RAMMSTEIN 4,92</p>
+<p>RHAPSODY 4,64</p>
+<p>APOCALYPTICA 3,56</p>
+<p>OZZY OSBORNE 3,38</p>
+<p>CANNIBAL CORPSE 2,99</p>
+<p>TIAMAT 2,87</p>
+<p>SLAYER 2,42</p>
+<p>SEPULTURA 2,42</p>
+<p>MAYHEM 2,33</p>
+<p>CLAWFINGER 2,22</p>
+<p>SOULFLY 2,06</p>
+<p>SYSTEM OF DOWN 2,03</p>
+<p>THEATRE OF TRAGEDY 1,92</p>
+<p>RAGE AGAINST THE MACHINE 1,82</p>
+<p>CRADLE OF FILTH 1,76</p>
+<p>MEGADETH 1,74</p>
+<p>UDO 1,53</p>
+<p>ANATHEMA 1,5</p>
+<p>KOVENANT 1,42</p>
+<p>HELLOWEEN 1,17</p>
+<p>EINSIFERUM 1,14</p>
+<p>VENOM 1,11</p>
+<p>LACRIMOSA 1,04</p>
+<p>BRAINSTORM 1,04</p>
+<p>АРИЯ 1,01</p>
+<p>OFFSPRING 1</p>
+
+Автор: Vit Belov
+
+### 15.04.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending April 15th (as reported by Rock Hard magazine):<BR> <BR> 10. NICKELBACK - Silver Side Up<BR> 15. DIE HAPPY - Beautiful Morning<BR> 17. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. PUDDLE OF MUDD - Come Clean <BR> 22. P.O.D. - Satellite <BR> 27. LINKIN PARK - Hybrid Theory<BR> 30. IRON MAIDEN - Rock In Rio <BR> 34. SYSTEM OF A DOWN - Toxicity <BR> 42. STAIND - Break The Cycle<BR> 63. BLIND GUARDIAN - A Night At The Opera <BR> 79. RHAPSODY - Power Of The Dragonflame <BR> 80. RAMMSTEIN - Mutter<BR> 84. MILLENCOLIN - Home From Home <BR> 94. FARIN URLAUB - Endlich Urlaub <BR> 100. MEGAHERZ - Herzwerk II<BR></p>
+
+Автор: Yermola
+
+### 07.05.2002 reviews Все еще впереди
+
+<P>Перед вами – лучший поп-индастриэл, который только может быть. Во всяком случае, доказать обратное будет достаточно сложно. Низкочастотный рокот гитар на втором плане, приказные интонации в пении (или это попросту чтение указаний из Рейхстага?), обилие электроники. Помножьте все это на врожденный талант немцев писать великолепные марши – и получите RAMMSTEIN. <BR>Эти ребята безусловно талантливы – на их счету наиболее идеальная форма соединения «металла» и поп-музыки, духа протеста и доступности обычному слушателю. При всей внешней ужасности музыки вдруг выясняется, что слушать это легко и просто: достаточно встать по стойке “смирно”, вспомнить (или спросить у родителей) пионерскую жестикуляцию при звуках горна и… Наслаждайтесь! <BR>Уловив потребность масс в мрачной электронно-гитарной музыке, облагороженной маршевыми интонациями и ритмикой, RAMMSTEIN состряпали превосходную конфету на продажу. Хотя и обертка заслуживает отдельного разговора – масштабные концертные шоу, вызывающий имидж музыкантов, словно сошедших с экранов садо-мазохистского порно и периодичные провокационные заявления (“Хотим взять в аренду труп Ленина для наших шоу”). Суммарный эффект известен – включите MTV, откройте подростковые журналы и узрите новых кумиров.<BR>Молодцы. Заслуженный успех и хитроумно заработанные деньги у ребят есть – теперь будем ждать, когда начнется настоящая музыка. Потому что на “Mutter”, при всей эффектности диска, ее маловато – песни, построенные на одной мелодии и по схеме “куплет-припев, повторять по необходимости”, возможно, годятся в хиты, но завтра их никто и не вспомнит. Так что хочется верить, что лучший альбом RAMMSTEIN все еще впереди – где-то между молодым Лениным и юным Октябрем.</P>
+Автор: Tornado
+
+### 28.05.2002 news German Media Control Chart ...
+
+<p>Вот так представлены хард-рок/метал в German Media Control (Top 100) chart по состоянию за прошедшую неделю: <BR><BR> 04. BОHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending May 27th (as reported by Rock Hard magazine): <BR><BR> 04. BЦHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 03.06.2002 articles Выступят ли в Москве Оззи и Rammstein?
+
+<p>Ситуация вокруг концертов Rammstein и Оззи Осборна в Тушино, о которых «ГАЗЕТА» писала на прошлой неделе, продолжает оставаться неясной. Правительство Москвы по-прежнему тянет с выдачей разрешений на проведение двух шоу. Зрители, уже купившие билеты на концерты, теряются в догадках – сдавать их в кассы или успокоиться. Корреспондент «ГАЗЕТЫ» встретился с организатором концерта Оззи Осборна, директором компании JSA Александром Стрижаком, чтобы прояснить ситуацию.<BR><BR> - Правда ли, что начался массовый возврат билетов в кассы? <BR><BR> - Не совсем так. Мы рассчитывали продать на шоу Осборна тридцать тысяч билетов. На сегодня разошлось уже процентов двадцать. Правда, после того как «ГАЗЕТА» на прошлой неделе написала о проблемах, продажа немного притормозилась. К тому же мы пошли навстречу ГУВД и решили немного сократить число зрителей – до 20-25 тысяч. <BR><BR> - Возможен ли перенос выступления Оззи Осборна? <BR><BR> - Нет. Перенести концерт невозможно в принципе, гастрольный график артистов такого уровня верстается за год до начала тура. В случае отмены или переноса нам грозит огромная неустойка. <BR><BR> - Дорого привезти Оззи? <BR><BR> - Достаточно. Но по договору с агентом артиста я не имею права разглашать никаких цифр. Единственное, что могу сказать: общие расходы на организацию шоу составляют несколько сот тысяч долларов, в которые входит и гонорар, и расходы на сцену, охрану и прочее. <BR><BR> - За счет чего вы отбиваете эти деньги? <BR><BR> - За счет билетов – этот концерт не спонсируется СПС. Немцов упомянул о концерте Оззи в письме, которое он направил Юрию Лужкову, видимо, потому, что демократические принципы равны для всех, а концерты Rammstein и Оззи проходят на одном поле с разницей в три дня. <BR><BR> - Но при чем тут демократические принципы? Проблема ведь в юных спортсменах, для охраны которых от скинхедов правительство Москвы стягивает в город милицейскую армию, разве нет? <BR><BR> - Нельзя все валить на скинхедов. В той же Англии их предостаточно, но проведению летних фестивалей они не мешают. А теракты 11 сентября в результате ведь не помешали проведению Олимпиады в США. Мы же налогоплательщики – мы платим за нашу безопасность. И если проходят одни культурные события, то почему не должны проходить другие? Тем более что это статусные концерты, которые влияют на имидж Москвы и России. <BR><BR> - Насколько мне известно, после письма Бориса Немцова Лужкову, в котором аргументированно была изложена проблема вокруг обоих концертов, Юрий Михайлович дал отмашку срочно выдать разрешения на оба концерта. <BR><BR> - Я тоже об этом слышал. Но разрешения до сих пор нет. Мне кажется, что проблема тут бюрократическая – существует определенная чиновничья иерархия, притом что никто не хочет брать на себя ответственность. Видимо, существует и лоббирование интересов других компаний, организующих крупные концерты (основные игроки на этом рынке – JSA (Оззи Осборн), TCI (Rammstein), SAV Entertainment, Росинтерфест и РАЙС. – «ГАЗЕТА»). Но это лишь предположение. <BR><BR> 31.05.2002<BR> Антон Помещиков<BR> <A HREF="http://www.gzt.ru/rubricator.gzt?rubric=reviu&id=12550000000004020">http://www.gzt.ru/</A></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 24.10.2003 news RAMMSTEIN выпускают DVD и садятся в студию
+
+<P>6 ноября RAMMSTEIN войдут в студию для записи нового альбома, который выйдет в конце весны - начале лета на <B>Republic</B>/<B>Universal Records. </B>Продюсером вновь станет <B>Jacob Hellner. </B>Также в ноябре группа выпустит DVD "<B>Lichtspielhaus". </B>Вот его неофициальный трэк-лист:</P>
+<P>Promo videos:<BR><BR>01. <B>Du Riechst So Gut</B> <BR>02. <B>Seemann</B> <BR>03. <B>Rammstein</B> <BR>04. <B>Engel</B> <BR>05. <B>Du Hast</B> <BR>06. <B>Du Riechst So Gut 98</B> <BR>07. <B>Sonne</B> <BR>08. <B>Links 2, 3, 4</B> <BR>09. <B>Ich Will</B> <BR>10. <B>Mutter</B> <BR>11. <B>Feuer Frei</B> <BR>(featuring additional audio comments of the band)<BR><BR>Making of...:<BR><BR>01. <B>Sonne</B> <BR>02. <B>Ich Will</B> <BR>03. <B>Links 2, 3, 4</B> <BR>04. <B>Du Hast</B> <BR>05. <B>Feuer Frei</B> <BR>06. <B>Du Riechst So Gut</B> <BR>+Interviews<BR><BR>Additional footage:<BR><BR>MTV US <BR>MTV Masters (updated) <BR>Kerrang Awards <BR><BR>Live Shows (clips):<BR><BR>Berlin Arena 1996 <BR>Rock am Ring 1998 <BR>Berlin Wuhlheide 1998 <BR>Mexico (KISS Tour) 1999 <BR>Big Day Out (Australia) </P>
+Автор: Vit Belov
+
+### 24.10.2003 news RAMMSTEIN release DVD and enter to studio
+
+<DIV class=theText id=storyRepeater__ctl1_storyPanel>German industrial metallers <B>RAMMSTEIN</B> will enter the studio around November 6 to begin recording their new album, tentatively due late spring/early summer through <B>Republic</B>/<B>Universal Records</B>. Production duties will once again be handled by <B>Jacob Hellner</B>, who worked with the group on 2001's <B>"Mutter"</B>. No further information is available at this time.<BR><BR><B>RAMMSTEIN</B> will issue a DVD, entitled <B>"Lichtspielhaus"</B> (German for "Cinema" or "Movie House") in PAL and NTSC formats on November 17.<BR><BR>The following is the unofficial track listing for the DVD:<BR><BR>Promo videos:<BR><BR>01. <B>Du Riechst So Gut</B> <BR>02. <B>Seemann</B> <BR>03. <B>Rammstein</B> <BR>04. <B>Engel</B> <BR>05. <B>Du Hast</B> <BR>06. <B>Du Riechst So Gut 98</B> <BR>07. <B>Sonne</B> <BR>08. <B>Links 2, 3, 4</B> <BR>09. <B>Ich Will</B> <BR>10. <B>Mutter</B> <BR>11. <B>Feuer Frei</B> <BR>(featuring additional audio comments of the band)<BR><BR>Making of...:<BR><BR>01. <B>Sonne</B> <BR>02. <B>Ich Will</B> <BR>03. <B>Links 2, 3, 4</B> <BR>04. <B>Du Hast</B> <BR>05. <B>Feuer Frei</B> <BR>06. <B>Du Riechst So Gut</B> <BR>+Interviews<BR><BR>Additional footage:<BR><BR>MTV US <BR>MTV Masters (updated) <BR>Kerrang Awards <BR><BR>Live Shows (clips):<BR><BR>Berlin Arena 1996 <BR>Rock am Ring 1998 <BR>Berlin Wuhlheide 1998 <BR>Mexico (KISS Tour) 1999 <BR>Big Day Out (Australia) </DIV>
+Автор: Vit Belov
+
+### 19.11.2003 news Готов новый альбом IN FLAMES
+
+<P>Последователем релиза 2002 года <B>"Reroute To Remain"</B> станет новый полноформатник шведов <B>"Soundtrack To Your Escape"</B>. Он был записан в студии в Дании вместе с продюсерами <B>Daniel Bergstrand</B> (<B>DARKANE</B>, <B>MESHUGGAH</B>, <B>STRAPPING YOUNG LAD</B>) и <B>Orjan Ornkloo</B> (ex-<B>MISERY LOVERS CO.</B>) и смиксован в <B>Galaxy Studios</B> в Бельгии (<B>IRON MAIDEN</B>, <B>MANOWAR</B>, <B>RAMMSTEIN</B>). Мастеринг альбома будет проходить в <B>Cutting Room</B> в столице Швеции, Стокгольме.<BR><BR>Трэк-лист:<BR><BR>01. <B>F(r)iend</B><BR>02. <B>The Quiet Place</B><BR>03. <B>Borders And Shading</B><BR>04. <B>Discover Me Like Emptiness</B><BR>05. <B>Touch Of Red</B><BR>06. <B>Bottled</B><BR>07. <B>Dead Alone</B><BR>08. <B>Superhero Of The Computer Rage</B><BR>09. <B>Like You Better Dead</B><BR>10. <B>Dial 595-Escape</B><BR>11. <B>Evil In A Closet</B><BR>12. <B>In Search For I</B><BR>13. <B>My Sweet Shadow</B><BR><BR>Европейский релиз альбома состоится 29 марта 2004 года на <B>Nuclear Blast Records</B>.</P>
+Автор: Darkfall
+
+### 06.05.2004 news Новый кусок Rammstein-a
+
+Выход нового альбома <B>Rammstein </B>ожидается в конце лета. Традиционно альбом предварит выход сингла "<B>Mein Teil</B>" Эта песня не входит в трек-лист нового, четвёртого альбома, над которым извращенцы-пироманы сейчас продолжают работу. Релиз сингла намечен на 14 июня.
+Автор: Omon Ra
+
+### 18.06.2004 news Rammstein назвали новый альбом
+
+<P>Новый альбом <B>RAMMSTEIN</B> будет называться <B>"Reise Reise" </B>и выйдет в конце сентября. Приблизительный трэк-лист:</P>
+<P>01. <B>Reise Reise</B><BR>02. <B>Amerika</B><BR>03. <B>Los</B><BR>04. <B>Wo Bist Du</B><BR>05. <B>Mein Teil</B><BR>06. <B>Dalai Lama</B><BR>07. <B>Keine Lust</B><BR>08. <B>Morgenstern</B><BR>09. <B>Amore</B><BR>Первый сингл с альбома <B>"Mein Teil" </B>выйдет 28 июня. На него также войдёт ремикс от <B>PET SHOP BOYS</B>.</P>
+Автор: Vit Belov
+
+### 29.07.2004 news RAMMSTEIN приезжают в Россию!!!
+
+<P><B>RAMMSTEIN</B> опубликовали даты своего мирового тура в этом году. В список вошли концерты в Санкт-Петербурге и Москве.</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0>
+<TBODY>
+<TR>
+<TD>26.11.2004</TD>
+<TD width=10>&nbsp;</TD>
+<TD><B><B>Санкт-Петербург </B></B>-&nbsp;Концертно-спортивный комплекс</TD></TR>
+<TR>
+<TD>28.11.2004</TD>
+<TD width=10>&nbsp;</TD>
+<TD><B>Москва&nbsp;</B>- Спорт комплекс "Олимпийский"</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 26.08.2004 news Ещё один сингл RAMMSTEIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ещё один сингл <STRONG>RAMMSTEIN</STRONG> будет называться '<STRONG>Amerika</STRONG>' и выйдет 6 сентября. Трэк-лист:</FONT></P>
+<P>01. <B>Amerika</B><BR>02. <B>Amerika</B> (English Version)<BR>03. <B>Amerika</B> (Digital Hardcore Mix)<BR>04. <B>Amerika</B> (Western Remix)<BR>05. <B>Amerika</B> (Andy Panthen & Mat Diaz's Clubmix)<BR>06. <B>Amerika</B> (Electro Ghetto Remix)<BR>07. <B>Amerika</B> (Jam & Spoon So kann's gehen Mix)<BR>08. <B>Mein Herz brennt Orchesterlied V</B> (Album Version)<BR>Группа сняла клип на эту песню, который можно&nbsp;скачать здесь: <A href="http://www.viva.tv/player/player.php?id=11004&fid=23005947&format=media_isdn&focus=off">http://www.viva.tv/player/player.php?id=11004&fid=23005947&format=media_isdn&focus=off</A></P>
+<P>Напомним, что новый альбом RAMMSTEIN <STRONG>"Reise Reise" </STRONG>выходит 2 ноября на <STRONG>Universal</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.09.2004 news Все подробности о новом альбоме RAMMSTEIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>RAMMSTEIN 'Reise Reise'</STRONG> выходит 2 ноября на <STRONG>Universal</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.09/7063.jpg" width=200 align=right border=5>01. <B>Reise, Reise</B> (4:12) <BR>02. <B>Mein Teil</B> (4:33) <BR>03. <B>Dalai Lama</B> (5:39) <BR>04. <B>Keine Lust</B> (3:43) <BR>05. <B>Los</B> (4:24) <BR>06. <B>Amerika</B> (3:47) <BR>07. <B>Moskau</B> (4:17) <BR>08. <B>Morgenstern</B> (4:00) <BR>09. <B>Stein um Stein</B> (3:53) <BR>10. <B>Ohne dich</B> (4:32) <BR>11. <B>Amour</B> (4:51) <BR></P>
+Автор: Vit Belov
+
+### 29.09.2004 reviews За что Вы любите RAMMSTEIN?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>За что Вы любите <STRONG>RAMMSTEIN</STRONG>? Этот вопрос хочется задать всем фэнам группы. Нет, ни в коем случае я не хочу обвинять группу в "попсовости" или, не дай Бог, в примитиве. Просто от ответа на этот вопрос зависит, понравится Вам <STRONG>'Reise, Reise'</STRONG> или нет.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видимо, последовав "зову натуры", группа решила записать сколько-нибудь мелодичный альбом. ВСЕ ПЕСНИ НА <STRONG>'Reise Reise'</STRONG> МЕДЛЕННЫЕ!!! Как Вам такой слоган? Безусловно, <STRONG>RAMMSTEIN</STRONG> узнаваемы и в этом виде, но здесь и наступает "страховой случай". Вы за такой <STRONG>RAMMSTEIN</STRONG> или против? Если Вам нравится только "маршевая" составляющая в их музыке, это будет последний альбом группы, который Вы купите. А мы обратимся к людям, которые готовы увидеть в немцах что-то другое.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Назвать новый альбом <STRONG>RAMMSTEIN</STRONG> industrial можно с большой натяжкой. Заглавную вещь, вообще, легко можно отнести к gothic-metal. Таких же "gothic-metal" композиций на альбоме достаточно. Чистые подпевки, клавишные, аккордеон, симфонические аранжировки... Всё это есть на новом альбоме группы. Даже есть одна вещь unplugged:))</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отдельно следует отметить трэк '<STRONG>Moskau</STRONG>', который станет хитом в русскоязычных странах. "<EM>Пионеры там и тут песню Ленину поют</EM>...", - спела в этой композиции девушка, голос которой подозрительно напоминает вокал <STRONG>ТАТУ</STRONG>. Это всё весело, но больно напоминает<STRONG> БОНИ НЕМ</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот такая метаморфоза. Породив миллионы подражателей, <STRONG>RAMMSTEIN</STRONG> кинулись в другую стихию. Но... В этом-то они отнюдь не первопроходцы. Например, последняя работа <STRONG>OOMPH!!!</STRONG> понравилась мне гораздо больше. Тот альбом более разнообразный и мелодичный, а <STRONG>'Reise Reise'</STRONG> надоедает под конец довольно сильно.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Решайте для себя сами, нужна эта пластинка Вам? <STRONG>'Du Hast'</STRONG> здесь нет. А есть "песня из репертуара группы ТАТУ".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[+] - отличная реализация, новые аранжировки, дополнительный мелодизм, разнообразие, смешная песня '<STRONG>Moskau</STRONG>'</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>[-] - потеря собственного лица, недостаточная мелодика, под конец -&nbsp;"<STRONG>Reise Reise'</STRONG> просто надоедает слушать</FONT></P>
+Автор: Vit Belov
+
+### 08.11.2004 articles TOP-50 лицензионных дисков по продажам за октябрь 2004 года*
+
+<TABLE cellSpacing=0 cellPadding=0 width=700 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 213pt; mso-width-source: userset; mso-width-alt: 10386" width=284>
+<COL style="WIDTH: 216pt; mso-width-source: userset; mso-width-alt: 10532" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 213pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=284><STRONG><FONT face=Arial size=2>RAMMSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 216pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=288><STRONG><FONT face=Arial size=2>REISE REISE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>BMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>RHAPSODY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SYMPHONY OF ENCHANTED LANDS, PART II</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DARKTHRONE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SARDONIC WRATH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>STORMWARRIOR</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NORTHERN RAGE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>FEINSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THIRD WISH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PUNGENT STENCH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMPEAUTY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHAPE OF DESPAIR</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ILLUSION'S PLAY</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>9 (19)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THROES OF DAWN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DOWN BELOW</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SILENT WINGS:ETERNITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>11 (6)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHITE SKULL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE XIII SKULL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWALLOW THE SUN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE MOURNING NEVER CAME</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VICTOR SMOLSKI</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAJESTY AND PASSION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BENEATH THE SHINING WATER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (3)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAKE OF TEARS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>18 (27)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>19 (15)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>20 (17)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>OCEAN MACHINE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>22 (30)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B (2 CD +<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>slipcase)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHAMBER</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MILES AWAY - A PREMONITION OF SOLITUDE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PAIN OF SALVATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="BE "><FONT size=2><FONT face=Arial>BE<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SPASTIC INK</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INK COMPATIBLE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNLEASHED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWORN ALLEGIANCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HEART</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>JUPITER's DARLING</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>29 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA:GLUT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>31 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LACUNA COIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>COMALIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (7)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALTARIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIVINITY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (2)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SAXON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LIONHEART</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>34 (16)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>35 (11)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNHEILIG</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS 2 GEBOT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MONSTERS OF METAL</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE ULTIMATEL METAL COMPILATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (8)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>39 (43)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE + WISH I HAD AN ANGEL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANOREXIA NEVROSA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRUDENHAUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALAN PARSONS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>A VALID PATH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEAD SOUL TRIBE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE JANNUARY TREE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PHYSICIST</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>GRAVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIENDISH REGRESSION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AYREON</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRACONIAN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHERE LOVERS MOURN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOKEN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PUNCH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ESTAMPIE</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIGNUM</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (32)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>*по результатам продаж в магазине 'Metal&Progressive' в Рубине</P>
+Автор: Vit Belov
+
+### 27.06.2005 news RAMMSTEIN выпускают новый альбом
+
+<P>Новый полноформатный альбом <STRONG>RAMMSTEIN </STRONG>будет называться "<STRONG>Reise, reise (vol.2)</STRONG>". На него войдут песни, записанные во время сессию к предыдущей пластинке "<STRONG>Reise, Reise</STRONG>".&nbsp;Компакт-диск выйдет в сентябре.</P>
+Автор: Vit Belov
+
+### 27.06.2005 news New album by RAMMSTEIN
+
+<P>New full-length album of <STRONG>RAMMSTEIN</STRONG> will be named "<STRONG>Reise, Reise (vol.2</STRONG>)". There will be songs from "<STRONG>Reise, Reise</STRONG>" record-sessions, not including in last album. CD will be released in September.</P>
+Автор: Vit Belov
+
+### 22.08.2005 news RAMMSTEIN готовят следующий альбом
+
+<P>Немецкие индустриальщики <STRONG>RAMMSTEIN</STRONG> анонсировали название своего следующего альбома. <STRONG>"Rosenrot"</STRONG> должен выйти уже этой осенью. Чуть раньше, выйдет сингл под названием <STRONG>"Benzin"</STRONG>, куда также войдет и клип на одноименную песню.&nbsp;Половина песен для этой работы была записана еще в сессиях к предыдущему альбому, но не вошла в его финальный трек-лист. Вторую половину альбома составят несколько совершенно новых песен, записанных музыкантами этим летом.</P>
+Автор: Dimas
+
+### 25.10.2005 news Новый альбом RAMMSTEIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>RAMMSTEIN "Rosenrot"</STRONG> выходит в России 31 октября. Трэк-лист:</FONT></P>
+<P><IMG height=193 alt="" hspace=0 src="/images/news_rus/2005.10/9626.jpg" width=217 align=right border=5>01.<STRONG> Benzin</STRONG><BR>02. <STRONG>Mann Gegen Mann</STRONG><BR>03. <STRONG>Rosenrot<BR></STRONG>04. <STRONG>Spring<BR></STRONG>05. <STRONG>Wo Bist Du<BR></STRONG>06. <STRONG>Stirb Nicht Vor Mir</STRONG><BR>07. <STRONG>Zerstoren<BR></STRONG>08. <STRONG>Hilf Mir</STRONG><BR>09. <STRONG>Te Quiero Puta</STRONG><BR>10. <STRONG>Feuer & Wasser</STRONG><BR>11. <STRONG>Ein Lied</STRONG></P>
+<P>Также будет доступно лимитированное издание с бонус-DVD. Трэк-лист:</P>
+<P>01. <STRONG>Reise, Reise</STRONG> (Live From Arenes De Nimes, Nimes/France July 2005)<BR>02. <STRONG>Mein Teil</STRONG> (Live From Club Citta, Kangawa/Japan June 2005)<BR>03. <STRONG>Sonne</STRONG> (Live From Brixton Academy, London/UK February 2005)</P>
+Автор: Vit Belov
+
+### 04.09.2006 news RAMMSTEIN выпускают DVD
+
+<P><STRONG>RAMMSTEIN</STRONG> выпускают новый CD/DVD "<STRONG>Volkerball</STRONG>" в октябре. DVD включит в себя 3 часа концертного материала, снятого во Франции, Англии, Японии и России. На лимитированное издание войдёт ещё один DVD с двумя документальными фильмами, общей продолжительностью 90 минут.&nbsp;</P>
+Автор: Vit Belov
+
+### 18.10.2006 news Кавер нового DVD RAMMSTEIN
+
+<P><STRONG><IMG height=271 alt="" hspace=0 src="/images/news_rus/2006.10/10809.png" width=200 align=left border=5>RAMMSTEIN</STRONG> используют символику олимпийских игр в Москве в оформлении своего нового DVD "<STRONG>Volkerball</STRONG>".&nbsp;</P>
+Автор: Vit Belov
+
+### 19.12.2006 news Вышел новый номер ALIVE #4 (26), 2006!
+
+<IMG height=339 alt="" hspace=50 src="/images/news_rus/2006.12/11107.jpg" width=250 align=right border=0>Вышел новый номер ALIVE #4 (26), 2006!<BR><BR>В этом номере ALIVE вы сможете прочитать о <B>RAMMSTEIN, RHAPSODY, AUDIOSLAVE, HELLOWEEN, LAKE OF TEARS, HADES, THE ARROW, UNLEASHED, WALTARI, "ФАКТОР СТРАХА", DIAMOND NIGHTS, END OF YOU, YENZ LEONHARDT</B> и <B>ENS COGITANS</B>.<BR><BR>Помимо изменений в дизайне и верстке, с этого номера журнал стал более разнообразным: наряду с интервью и рецензиями в журнале появились аналитические материалы, авторские колонки, эссе, а также возрождены парочка "старых" рубрик - Fire & Ice и Kulture Klub.<BR><BR>Традиционные разделы новостей и рецензий на CD и DVD дополнены обзором наиболее интересных кинолент последних месяцев (Kulture Klub).<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR>
+Автор: Ixtiandr
+
+### 08.11.2008 news RAMMSTEIN начинают запись
+
+<P><STRONG>RAMMSTEIN </STRONG>завтра начинают запись своего шестого альбома. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 19.02.2009 news RAMMSTEIN планируют оркестр
+
+<P>Новый альбом <STRONG>RAMMSTEIN </STRONG>уже записан и ожидает сведения, которое начнётся в середине марта. Пока группа планирует добавить небольшие штрихи к материалу: оркестровки и хор.</P>
+Автор: Vit Belov
+
+### 22.08.2009 news Трэк-лист нового RAMMSTEIN
+
+<P><STRONG>RAMMSTEIN</STRONG> выпустят свой пока не названный альбом в конце осени. Стал известен трэк-лист альбома:</P>
+<P>01. <B>Rammlied</B><BR>02. <B>Ich Tu Dir Weh</B><BR>03. <B>Waidmann's Heil</B><BR>04. <B>Haifisch</B><BR>05. <B>B******</B><BR>06. <B>Fruehling In Paris</B><BR>07. <B>Weiner Blut</B><BR>08. <B>Pussy</B><BR>09. <B>Liebe Ist Fur Alle Da</B><BR>10. <B>Mehr</B><BR>11. <B>Roter Sand</B></P>
+Автор: Vit Belov
+
+### 09.09.2009 news RAMMSTEIN назвали альбом
+
+<P>Новый альбом <STRONG>RAMMSTEIN</STRONG> выйдет 16 октября. Пластинка получила название <STRONG>"Liebe Ist Fur Alle Da". </STRONG>Трэк-лист:</P>
+<P>01. <B>Rammlied</B><BR>02. <B>Ich Tu Dir Weh</B><BR>03. <B>Waidmann's Heil</B><BR>04. <B>Haifisch</B><BR>05. <B>B******</B><BR>06. <B>Fruehling In Paris</B><BR>07. <B>Weiner Blut</B><BR>08. <B>Pussy</B><BR>09. <B>Liebe Ist Fur Alle Da</B><BR>10. <B>Mehr</B><BR>11. <B>Roter Sand</B></P>
+Автор: Vit Belov
+
+### 14.10.2009 news RAMMSTEIN продадут секс-игрушки
+
+<P>20 октября выходит новый альбом <STRONG>RAMMSTEIN</STRONG> <STRONG>"Liebe Ist Fur Alle Da". Л</STRONG>имитированное издание этого альбома будет содержать набор из шести секс-игрушек и любрикант.</P>
+<P>
+<CENTER><IMG height=328 src="/images/news_rus/2009.10/15275.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.10.2009 news RAMMSTEIN попали в TOP-15
+
+<P>Новый альбом&nbsp;<STRONG>RAMMSTEIN</STRONG> <STRONG>"Liebe Ist Fur Alle Da"</STRONG>&nbsp;продался тиражом&nbsp;22000&nbsp;экземпляров в первую неделю в США и попал в чарты<STRONG>&nbsp;Billboard</STRONG>&nbsp;на 13-ое место.</P>
+Автор: Vit Belov
+
+### 10.11.2009 news Обложку RAMMSTEIN запретили
+
+<P>Обложку нового альбома<STRONG> RAMMSTEIN</STRONG> <STRONG>"Liebe ist Fur Alle Da" </STRONG>запретили к демонстрации в магазинах Германии. Группу обвиняют в пропаганде садизма/мазахизма, что может ранить психику детей и молодёжи.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.11/15495.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 13.11.2009 news RAMMSTEIN не боятся плохой репутации
+
+<P>В интервью <STRONG>About.Com</STRONG> гитарист&nbsp;<STRONG>RAMMSTEIN Paul Landers</STRONG> рассказал о причинах провокативных шагов группы по раскрутке нового альбома "<STRONG>Liebe Ist Fur Alle Da</STRONG>":</P>
+<P>"<EM>Почему мы сняли порно в видеоклипе на сингл "Pussy"? Просто режиссёр пришёл и предложил идею снять порно-фильм на эту песню. Не долго думая, мы сказали; "Давай!" Всё равно мы не рассчитывали, что клип будут крутить по MTV и другим каналам. Правда, теперь его ещё и запретили на YouTube, этого мы не планировали. Но мы нашли способы показывать его тайно и скрытно</EM>".</P>
+<P>Да, раскрутка нового альбома проходит явно за гранью понимания не только обывателями, но и даже некоторыми поклонниками тяжёлой музыки. Все эти ужасные беременные мужики... Мороз по коже. Не боится ли группа прославиться, как производительница порно-клипов, но не музыки?</P>
+<P><STRONG>Paul</STRONG>: "<EM>Когда мы начинаем сочинять песню, в последнюю очередь мы думаем о том, что подумает широкая публика. У нас такая плохая репутация в Германии, что сделать её хуже уже вряд ли возможно</EM>".</P>
+Автор: Vit Belov
+
+### 23.11.2009 reviews Мусор в великолепном фантике
+
+<P>Немецкая группа RAMMSTEIN уже давно достигла в нашей стране статуса иконы. Сотни тысяч поклонников знают, что этот коллектив существует, знают несколько его песен, и их совершенно не волнует качество их нового материала. К этим людям моя заметка не имеет никакого отношения. Если они когда-нибудь захотят приобрести компакт-диск с новым альбомом группы “Liebe Ist Fur Alle Da”, они сделают это без всяких рекомендаций.</P>
+<P>Начну с самого примечательного. Лицензионное издание пластинки выполнено просто великолепно. Многопанельный digi-pack с великолепными иллюстрациями, да ещё и с буклетом. Вообще, оформление у этой работы RAMMSTEIN выше всяких похвал. Картины на тему садо-мазо расчленений, выполненные в духе голландских живописцев. Это что-то. Не знаю, чего там запрещали в Германии, но эти иллюстрации настоящее искусство, пусть и несколько маргинальное. К сожалению, с искусством на этом и покончено. Такого слабого альбома у RAMMSTEIN ещё не было. Если на предыдущих работах куда-то запропастился industrial-drive этого коллектива, сейчас не осталось и мелодий. Заунывное, странноватое творчество с обилием немецких песнопений. Нам много рассказывали, что тексты у RAMMSTEIN до жути провокационные, на них музыканты и сконцентрировались. Зачитывает их певец, не спорю, с выражением, но нам-то что? А музыки, повторюсь, здесь нет. Есть какие-то пародии, например, на euro-pop 80-х или немецкий шансон, если таковой существует. Есть пародии и на самих себя 10-летней давности, но это всё.</P>
+<P>Самое простое объяснение происходящему сейчас агрессивному PR с обнажёнными беременными мужиками и порно-клипами в том, что RAMMSTEIN исписались и хотят привлечь к себе дополнительное внимание не столько музыкой, сколько рекламными шагами. С другой стороны, музыки у них никогда особо много не было. Был драйв, был юмор… Сейчас, к сожалению, и этого нет. Но самой главной провокацией немцев, по-моему, является то, что даже, несмотря на откровенный мусор, представленный на этом альбоме, он всё равно будет раскуплен огромным тиражом.</P>
+Автор: Vit Belov
+
+### 08.01.2011 news APOCALYPTICA Vs. RAMMSTEIN
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18091.jpg" width=258 height=300>Согласно сайту&nbsp;<A href="http://www.anwalt24.de/beitraege-news/fachartikel/eur-45-000-schadensersatz-fuer-unerlaubte-werbung-mit-zusatz-a-featuring-rammstein" target=_blank><U><FONT color=#0000ff>Anwalt24.de</FONT></U></A>, финскому квартету <B itxtvisited="1">APOCALYPTICA</B> было предписано выплатить 45.000 евро (примерно $ 59.000) для возмещения ущерба группе <B itxtvisited="1">RAMMSTEIN</B>, связанного с рекламной компанией альбома <STRONG>APOCALYPTICA</STRONG> <B itxtvisited="1">"Worlds Collide" </B>(2007)&nbsp;&nbsp;на территории&nbsp;Германии. Фронтмен <B itxtvisited="1">RAMMSTEIN</B> Тилль Линдеманн (<STRONG>Till Lindemann</STRONG>, на фото) был одним из нескольких вокалистов, которые приняли гостевое участие на этом диске. Однако в Германии <STRONG>"Worlds Collide" </STRONG>продавался с наклейкой "<STRONG>featuring</STRONG> <B itxtvisited="1">RAMMSTEIN</B>" ("включая <STRONG>RAMMSTEIN</STRONG>").&nbsp;В ходе слушанья по делу, которое&nbsp;происходило в Областном суде Берлина в прошлом месяце,&nbsp;&nbsp;<STRONG>RAMMSTEIN</STRONG> была присуждена выплата компенсации за незаконное использование товарного знака.</P>
+Автор: Headcrusher
+
+### 17.11.2011 news Новый ролик RAMMSTEIN
+
+<P>Новый видео-клип <STRONG>RAMMSTEIN</STRONG> на песню "<STRONG>Mein Land</STRONG>" можно посмотреть ниже. Трек стал основой нового сингла, который вышел 14 ноября.</P>
+<P><center><iframe src="http://player.vimeo.com/video/31836365?title=0&byline=0&portrait=0" width="400" height="225" frameborder="0" webkitAllowFullScreen allowFullScreen></iframe></P>
+Автор: Vit Belov
+
+### 08.01.2015 news Вокалист RAMMSTEIN объединился с лидером PAIN
+
+<P>Вокалист<STRONG> RAMMSTEIN Til Lindemann</STRONG> объединился с лидером <STRONG>PAIN/HYPOCRISY Peter Tagtgren</STRONG> для&nbsp;работы над своим сольным проектом, который получил название<STRONG> LINDEMANN</STRONG>. Подробности последуют на странице Facebook: <A href="https://www.facebook.com/Lindemann">https://www.facebook.com/Lindemann</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.01/27520.png" width=645 height=363> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.03.2015 news Новые подробости проекта LINDEMANN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проект <STRONG>LINDEMANN</STRONG>, в который входят <STRONG>Peter Tagtgren</STRONG> (<STRONG>PAIN</STRONG>, <STRONG>HYPOCRISY</STRONG>)&nbsp;и <STRONG>Till Lindemann</STRONG> (<STRONG>RAMMSTEIN</STRONG>), опубликовал обложку и трек-лист грядущего дебютного альбома, который получил название <STRONG>"Skills In Pills"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложка и название некоторых композиций выглядят многообещающе - вот самые красноречивые из них:&nbsp;"Жир", "Золотой Душ", "Трансвестит".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выход диска запланирован на май этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. <STRONG>Skills In Pills</STRONG> | 2. <STRONG>Ladyboy</STRONG> | 3. <STRONG>Fat</STRONG> | 4. <STRONG>Fish On</STRONG> | 5. <STRONG>Children Of The Sun</STRONG> | 6. <STRONG>Home Sweet Home</STRONG> | 7. <STRONG>Cowboy</STRONG> | 8.<STRONG> Golden Shower</STRONG> | 9. <STRONG>Yukon</STRONG> | 10. <STRONG>Praise Abort</STRONG></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2015.03/27705.jpg" width=500 height=500></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Rammstein

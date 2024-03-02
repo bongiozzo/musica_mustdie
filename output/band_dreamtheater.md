@@ -397,6 +397,837 @@ Disc 2
 * C группой "Chroma Key" Kevin Moore
 * C группой "James LaBrie" Vocal
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>DREAM THEATRE засядут в студию в середине февраля для записи нового альбома. Но главная новость, это то, что из DREAM THETRE попросили клавишника Дерека Шериньяна. Майк Портной сказал, что очень сожалеет и будет считать Дерека постоянным членом семьи DREAM THEATRE. Заменой ему стал Джордан Рудесс, который был участником проекта Майка и Джона Петруччи LIQUID TENSION EXPIRIMENT. Ещё несколько высказываний:<br>"Мы знали, как играет Джордан, и решили взять его с собой в 21 век".<br>"Мы надеемся остаться друзьями с Дереком и желаем ему успешного продолжения карьеры с кем-нибудь другим".<br>Кстати, Шериньян анонсировал свой новый проект PLATYPUS, где он будет играть вместе с Ти Табор (KING's X), Джон Миунг (DREAM THEATRE) и Род Моргенштейн (DIXIE DREGS, WINGER).</p>
+
+Автор: Vit Belov
+
+### 12.03.1999 news 
+
+<p>У Майка Портного из Dream Theatre 7 марта родился второй ребёнок. Счастливые родители окрестили сына Макс Джон.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>Liquid Tension Expirement выпустят новый альбом в июне. Группа состоит на 3/4 из членов Dream Theatre. В ней выступают Джон Петручи, Джордан Руддесс и Майк Портной.</p>
+
+Автор: Vit Belov
+
+### 08.06.1999 news 
+
+<p>Dream Theater закончили запись музыки для своего нового альбома. В июне будет записан вокал, микс назначен на июль-август. Группа надеется, что альбом выйдет в сентябре.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Новый альбом Dream Theater выйдет во Франции 15 октября, дата выхода в остальной Европе пока неизвестна окончательно. В США альбом также выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Iron Maiden нашли себе продюсера на новый альбом. Им стал Кевин Ширли, известный по работе с Dream Theater.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Dream Theatre Начали тур в поддержку своего последнего альбома.</p>
+
+Автор: Vit Belov
+
+### 18.09.2000 reviews A Change Of Seasons
+
+<p>Мда-а-а-а..... Не думал что альбом коверов доставит мне столько удовольствия. Да-да, вы не ослышались. Альбом "A Change Of Seasons" больше чем наполовину состоит из произведений других авторов. Открывает диск мощнейшая (собственная!) одноименная вещь, раскрывающая полностью потенциал группы и не вошедшая по каким-то причинам на альбом "Awake". В ней проявились и композиционные и инструментальные возможности практически всех членов (Фу, как то неприлично звучит, но что поделать?) команды, но нечто подобное я, признаться, от них ожидал. А вот следующие вещи.... Клавишник вышел покурить, зато гитарист, басс и барабанщик творят просто чудеса. Элтон Джон, Deep Purple, Pink Floyd, Led Zeppelin ... Вот где корни музыкальные растут! Никогда бы не подумал, что Джон Петруччи может так бережно обходиться с соло Джимми Пэйджа и риффами Гилмора. Да... Просто класс. Оценка 9/10.</p>
+
+Автор: Yermola
+
+### 07.02.2001 news Dream Theater скоро отправятся в студию.
+
+<p> Dream Theater в начале марта отправятся в студию Bear Tracks в Нью-Йорке записывать продолжение "Scenes From A Memory". Новый альбом, как и в прошлый раз, будет спродюссирован самостоятельно, и группа снова прибегнет к помощи звукоинженера Дуга Оберкирчера, работавшего над "Scenes From A Memory", "Images and Words" и "A Change Of Seasons". Тем временем, долгожданное видео "Metropolis 2000: Scenes From New York", где в качестве режиссера проявил себя Майк Портной, выйдет 20 марта 2001 года.</p>
+
+Автор: Morsus
+
+### 07.02.2001 news Dream Theater will enter studio.
+
+<p> Dream Theater will enter Bear Tracks studios in New York at the beginning of March to begin work on the follow up to "Scenes From A Memory". The new album will once again be self-produced and the band will once again be using engineer Doug Oberkircher who has worked with the band on "Scenes From A Memory", "Images and Words" and "A Change Of Seasons". In the meantime, the long-awaited DVD and VHS release of "Metropolis 2000: Scenes From New York" which was directed by Mike Portnoy, will be released on March 20th 2001.</p>
+
+Автор: Morsus
+
+### 15.02.2001 news Jordan Rudess solo album
+
+<p>Jordan Rudess (Dream Theater) работает над сольным альбомом который будет реализован через Magna Carta Records. По словам Джордана он будет более прогрессивным, чем обычное творчество Dream Theater.</p>
+
+Автор: Yermola
+
+### 28.02.2001 news DREAM THEATER пресс-релиз
+
+<p>DREAM THEATER опубликовали официальный пресс-релиз по поводу задержки выхода "Metropolis 2000: Scenes From New York" DVD. Майк Портной сообщил по этому поводу: "Я вынужден извиниться за задержку выхода DVD. Дата выхода передвинута на 24 апреля 2001."</p>
+
+Автор: Yermola
+
+### 28.02.2001 news DREAM THEATER - Metropolis Live Delayed
+
+<p>The following is a press release from DREAM THEATER's Mike Portnoy regarding the band's upcoming Metropolis 2000: Scenes From New York DVD release: "I am extremely sorry to announce that due to errors in the DVD authoring process, the release date of Metropolis 2000: Scenes From New York has once again been delayed to April 24th, 2001. I am furious over these errors which were out of my hands and I am just as disappointed as any of you in having to wait to share this great DVD with you all. I must stress that the delay has absolutely nothing to do with any errors or dissatisfaction on mine or the record company's behalf. They were stricly technical errors in the authoring process which forced me to pull the plug on production until the errors were corrected. I know what a disappointment this is, but it will be worth the wait when the product is finally released in April.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Абсолютный... мужик...
+
+<p>Проект Trent Gardner "ABSOLUTE MAN" выпускает 10 Июля на Magna Carta альбом "Leonardo". В качестве гостей участвовали: James LaBrie (DREAM THEATER), Jeremy Colson/Steve Reyes/Pat Reyes (DALI'S DILEMMA), Josh Pincus (ICE AGE), Chris Shryack (UNDER THE SUN), Steve Walsh (KANSAS), Bret Douglas (CAIRO) и Michelle Young. Кроме того продолжается работа над новым проектом "EXPLORERS CLUB". Альбом последних "Raising The Mammoth" выходит ориентировочно в Сентябре.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news ABSOLUTE MAN - Leonardo The Great!
+
+<p>Trent Gardner's ABSOLUTE MAN project release the Leonardo album through Magna Carta on July 10th. The album includes guest appearances from: James LaBrie (DREAM THEATER), Jeremy Colson/Steve Reyes/Pat Reyes (DALI'S DILEMMA), Josh Pincus (ICE AGE), Chris Shryack (UNDER THE SUN), Steve Walsh (KANSAS), Bret Douglas (CAIRO) and Michelle Young. In related release news, Trent Gardner is also working on material for a new EXPLORERS CLUB project. The album Raising The Mammoth will be released in September.</p>
+
+Автор: Yermola
+
+### 11.03.2001 news DEREK SHERINIAN CD....
+
+<p>Сольник DEREK SHERINIAN'а (ex-Dream Theater) - "Inertia" будет в продаже до 17 апреля. На диске в качестве гостей отметились гитаристы ZAKK WYLDE и Steve Lukather, барабанщик Simon Phillips и басист Tony Franklin. По словам Дерека альбом смешивает в себе металл, джаз-фьюжн и прогрессивный рок.</p>
+
+Автор: Yermola
+
+### 11.03.2001 news DEREK SHERINIAN&#39;s forthcoming solo CD...
+
+<p>DEREK SHERINIAN's forthcoming solo CD, Inertia, will feature guest appearances by guitarists ZAKK WYLDE (on two tracks, including a cover of EDGAR WINTER's 'Frankenstein') and Steve Lukather, drummer Simon Phillips, and bassist Tony Franklin. The album, which will combine metal, jazz-fusion and progressive rock styles, will be out April 17th.</p>
+
+Автор: Yermola
+
+### 20.03.2001 news MULLMUZZLER часть 2-я....
+
+<p>По сообщению официального сайта, James LaBrie сотоварищи закончил запись вокала и инструментальных линий для нового MULLMUZZLER CD. С 10 марта ведется микширование альбома (за пультом - Steven Wilson из PORCUPINE TREE). Артворк релиза выполнит Dave McKean известный по работе с DREAM THEATER (альбом Scenes From A Memory).</p>
+
+Автор: Yermola
+
+### 20.03.2001 news MULLMUZZLER Part II!
+
+<p>According to an update from James LaBrie on his official site, the vocals and instruments for the new MULLMUZZLER CD have all been recorded. Mixing started on March 10th. Steven Wilson of PORCUPINE TREE was originally going to mix the new album. Unfortunately, James was unable to get the recordings to Steven before Porcupine Tree's current European tour. Instead, the album will be mixed by Victor Florencia. According to the DREAM THEATER vocalist, "He is an incredible mixer and is very similar to Steven in that he is young and innovative with the sonics of music." Dave McKean will be doing the cover artwork for the album. He also did the artwork for Scenes From A Memory and the first Mullmuzzler album. In related news, abrand new trailer for Dream Theater's Metropolis 2000 DVD/Video is now available at http://www.dreamtheater.net/trailer.htm. The trailer is in RealVideo format, and requires that you have RealPlayer 8.0 or higher installed. The trailer has been zipped and is 3.56 MB in size. The release date for the DVD and Video is April 24th.</p>
+
+Автор: Yermola
+
+### 12.04.2001 news Его Адское Величество...
+
+<p>Герои МТВ - финны H.I.M. запланировали выход третьего полноформатника на Август. Пока что группа занята с продюссером Kevin Shirley (IRON MAIDEN, DREAM THEATER) работой над песней "Keep On Pretending". Одноименный сингл выходит в Мае.</p>
+
+Автор: Yermola
+
+### 23.05.2001 news Новый DREAM THEATER......
+
+<p>Барабанщик "DREAM THEATER" Майк Портной подтвердил, что новый альбом группы уже на 80% готов. Полностью записаны пять песен (время звучания - 55 минут!). По словам Майка продолжение "Сцен Памяти" будет намного более тяжелым и мрачным. Также на нем бассист John Myung будет играть на восьмиструнном басу. Пока еще не названный диск будет готов к Сентябрю, но выйдет не раньше начала 2002 года.</p>
+
+Автор: Yermola
+
+### 23.05.2001 news New DREAM THEATER album ....
+
+<p>During a question-and-answer session at the Your Majesty Convention on Saturday, May 19th, in Paris, DREAM THEATER drummer Mike Portnoy revealed that 80% of the music for the new DREAM THEATER album is done, with five songs having been recorded so far (total of 55 minutes' worth). According to Portnoy, DREAM THEATER's upcoming CD will be heavier and darker than the previous albums, and it will feature bassist John Myung on an eight-string bass on some tracks, and possibly some Stick as well. The as-yet-untitled CD will not be finished until September, and will likely emerge in early 2002. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.08.2001 news Второй сольник Джэймса Ля Бри...
+
+<p>Вокалист "DREAM THEATER" - Джэймс Ля Бри 11 сентября выпускает второй сольник своего проекта "James LaBrie’s MULLMUZZLER" - Mullmuzzler II через Magna Carta Records. Трек-лист: 01. Afterlife 02. Venice Burning 03. Confronting The Devil 04. Falling 05. Stranger 06. A Simple Man 07. Save Me 08. Believe 09. Listening 10. Tell Me</p>
+
+Автор: Yermola
+
+### 13.08.2001 news James LaBrie&#39;s MULLMUZZLER.....
+
+<p>DREAM THEATER singer James LaBrie will release his second solo album, entitled Mullmuzzler II (and appearing under the name James LaBrie’s MULLMUZZLER) on September 11th through Magna Carta Records. The full track listing for the album is as follows: 01. Afterlife 02. Venice Burning 03. Confronting The Devil 04. Falling 05. Stranger 06. A Simple Man 07. Save Me 08. Believe 09. Listening 10. Tell Me. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Новая команда Ингви...
+
+<p>Шведскому вундеркинду удалось наконец-то полностью укомплектовать состав своей группы для продолжения тура по Южной Америке (с 12 по 30 сентября). Если все пойдет по плану, то этот состав и будет записывать новый альбом гитариста в 2002. Итак, line-up таков: <br> Doogie White (RAINBOW) – вокал<br> Yngwie J. Malmsteen - гитара<br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - клавиши<br> Mick Cervino (BLACKMORE' S NIGHT) - басс<br> Patrik Johansson (STORMWIND) – барабаны.</p>
+
+Автор: Yermola
+
+### 23.08.2001 news YNGWIE MALMSTEEN has assembled ...
+
+<p>Swedish axe-hero YNGWIE MALMSTEEN has assembled a 100% new band for his upcoming South American tour, which is scheduled to take place between September 12th and September 30th. According to official sources, if the chemistry of this team gels, this line-up may also appear on the guitarist’s next studio album, which is not due to emerge until sometime in 2002. The line-up for the South American tour is as follows: <br> Doogie White (RAINBOW) – vocals <br> Yngwie J. Malmsteen - guitars <br> Derek Sherinian (DREAM THEATER, KISS, ALICE COOPER) - keyboards <br> Mick Cervino (BLACKMORE' S NIGHT) - bass <br> Patrik Johansson (STORMWIND) – drums. <br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.09.2001 articles DREAM THEATER предсказали катастрофу в Нью-Йорке
+
+<p>Рано утром во вторник, 11 сентября, во все музыкальные магазины Нью-Йорка поступил в продажу новый концертный альбом американского квинтета<a href="/ru/band/dream_theater/"> DREAM THEATER</a> "Live Scenes from New York" (Живые картины из Нью-Йорка). В центре обложки – изображение двух высотных зданий Всемирного торгового центра и Ста-туи свободы, объятые огнем. Буквально через несколько с помощью террористов и двух "Боингов" картинка и вправду ожила…</p>
+<p> <img src=/images/articles_rus/2001.09/1702.jpg border=1 align=left width=160 height=160 ></p>
+<p> Именно поэтому трагедия вызвала у участников группы двойной шок – мало прият-ного в том, что ты невольно оказался пророком этого кошмара. А пророчество оказалось заготовлено очень давно – еще в конце прошлого года группа объявила, что в дополнение к своему последнему студийному творению "Metropolis Pt2: Scenes from a Memory" сделает концертное продолжение. Видеоверсия концерта вышла в начале лета и стала бестселле-ром сезона среди музыкальных видео. И тогда же было официально заявлено, что 11 сен-тября на прилавках магазинов появится вариант этого концерта на трех компакт-дисках. Очевидно, что тогда же и была готова обложка к тройному диску. Однако когда настал день выпуска альбома, группа оказалась в шоке… Буквально через несколько часов после известных событий фирма Elektra, которая и занималась изготовлением и реализацией нового альбома <a href="/ru/band/dream_theater/">DREAM THEATER</a>, отдала рас-поряжение изъять все диски из продажи. Очевидно, в ближайшее время будет подготовле-но новое оформление пластинки. Ну а те, кто успел-таки купить пророческий вариант, вмиг превратились в обладателей весьма двусмысленной редкости. Барабанщик группы Майк Портной сделал по этому поводу официальное заявление: "В этот вторник мы планировали начать в одной из нью-йоркских студий микширование нашего нового студийного альбома. В студию успели приехать только Джеймс ЛаБри (во-калист группы – Авт.) и продюсер Кевин Ширли – с ними все в порядке. В ближайшие дни мы не будем работать в студии – НьюЙорк пока закрыт для въезда. Как только ситуация изменится, мы вновь вернемся к работе. Ну а что касается обложки… Я могу сказать только то, что это ужасное совпадение – очевидно, что мы не могли даже предвидеть ничего подобного. Очень жаль, что выпуск этого концертного альбома пришелся на тот же день, что и трагедия – еще одно неприят-ное совпадение. Сейчас мы обсуждаем с нашей фирмой возможность изменения обложки. Всем ясно, что в именно сейчас важнее вернуть город к нормальной жизни –так что воз-можны небольшие задержки и здесь".</p>
+
+Автор: Tornado
+
+### 02.10.2001 news Six Degrees Of Inner Turbulence CD ...
+
+<p>DREAM THEATER will be supporting the release of their upcoming Six Degrees Of Inner Turbulence CD with a European tour, which is scheduled to take place during January/February 2002. The confirmed dates are as follows: <br> Jan. 25 - UK, Manchester @ Apollo <br> Jan. 26- UK, London Hammersmith @ Apollo <br> Jan. 28 - Denmark, Copenhagen @ KB Halle <br> Jan. 29 - Norway, Oslo Club @ Spectrum <br> Jan. 30 - Sweden, Stockholm @ Hovet <br> Feb. 01 - Germany, Berlin @ Columbiahalle <br> Feb. 03 - Germany, Hamburg @ Docks <br> Feb. 04 - Holland, Amsterdam @ Heineken Hall <br> Feb. 05 - Belgium, Deinze @ Brielport <br> Feb. 07 - France, Paris @ Zenith <br> Feb. 08 - Germany, Boblingen @ Sporthalle <br> Feb. 09 - Germany, Oberhausen @ The Arena <br> Feb. 11 - Germany, Munich @ Colosseum <br> Feb. 12 - Switzerland, Bulach @ Stadthalle <br> Feb. 14 - Italy, Milan @ Palavobis <br> Feb. 15 - Italy, Rome @ Palaghiaccio Marino <br> Feb. 16 - Italy, Bologna @ Palasavena <br> Feb. 18 - Spain, Barcelona @ Razzmatazz <br> Feb. 19 - Spain, Barcelona @ Razzmatazz<br> In related news, DREAM THEATER guitarist John Petrucci has posted the following message on his official web site: “To all my friends, fans and people who have worked so hard to organize my upcoming appearances in the UK, Italy, Germany and Japan, the current national circumstances as well as safety and security concerns have regretfully led to the postponement of my clinic tour. I am very disappointed, but I think given the present situation, we all understand. I am looking forward to and committed to rescheduling my visits and playing for all of you. Hopefully, this will be in the near future. As we know more about the state of world events, we will plan a time accordingly. John Petrucci” ... Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 30.11.2001 news Стеклянная тюрьма...
+
+<p>MP3 файл песни “The Glass Prison” с еще не вышедшего альбома "DREAM THEATER" - "Six Degrees Of Inner Turbulence" вы можете послушать <A HREF="http://www.djookbox.net/songs/Dream_Theater_-_01_-_The_Glass_Prison.mp3">здесь... </A>Альбом выходит на Elektra Records в январе.</p>
+
+Автор: Yermola
+
+### 30.11.2001 news The Glass Prison...
+
+<p>An MP3 file of the track “The Glass Prison”, taken from DREAM THEATER’s upcoming Six Degrees Of Inner Turbulence CD, which is due to be issued in late January through Elektra Records, is available for download from <A HREF="http://www.djookbox.net/songs/Dream_Theater_-_01_-_The_Glass_Prison.mp3">this location.... </A></p>
+
+Автор: Yermola
+
+### 04.12.2001 news THE JELLY JAM...
+
+<p>Побочный проект участников "DREAM THEATER", "KING’S X" и "THE DIXIE DREGS" - "THE JELLY JAM" подготовил одноименный альбом. Проект собрал таких звезд как бассист John Myung, гитарист Ty Tabor и барабанщик Rod Morgenstein. Трек-лист: <BR> <IMG SRC="/images/news_rus/2001.12/2134.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> 01. I Can't Help You <BR> 02. No Remedy <BR> 03. Nature <BR> 04. Nature's Girl <BR> 05. Feeling <BR> 06. Reliving <BR> 07. The Jelly Jam <BR> 08. I Am The King <BR> 09. The King's Dance <BR> 10. Wind On The Way <BR> 12. Under The Tree<BR><BR> Выйдет диск на Inside Out America Records 18-го марта 2002...</p>
+
+Автор: Yermola
+
+### 04.12.2001 news THE JELLY JAM...
+
+<p>The full track listing for bassist John Myung's side project THE JELLY JAM, featuring KING’S X guitarist Ty Tabor and THE DIXIE DREGS drummer Rod Morgenstein, has been released. It is as follows: <br> <IMG SRC="/images/news_rus/2001.12/2134.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> 01. I Can't Help You <br> 02. No Remedy <br> 03. Nature <br> 04. Nature's Girl <br> 05. Feeling <br> 06. Reliving <br> 07. The Jelly Jam <br> 08. I Am The King <br> 09. The King's Dance <br> 10. Wind On The Way <br> 12. Under The Tree<br><br> THE JELLY JAM’s self-titled debut is due to be released through Inside Out America Records on March 18th.</p>
+
+Автор: Yermola
+
+### 13.12.2001 news Внутренняя Буря...
+
+<p>Новый альбом "Театра" - "Six Degrees Of Inner Turbulence" содержит следующие песни: <BR><BR> <IMG SRC="/images/news_rus/2001.12/2157.jpg" ALT="pho" width="139" height="129" hspace="15" vspace="5" border="1" align="right" > CD1 <BR> The Glass Prison<BR> Blind Faith<BR> Misunderstood<BR> The Great Debate<BR> Disappear<BR><BR> CD2 <BR> Six Degrees Of Inner Turbulence (8 parts) <BR> i) Overture<BR> ii) About To Crash<BR> iii) War Inside My Head<BR> iv) The Test That Stumped Them All<BR> v) Goodnight Kiss<BR> vi) Solitary Shell<BR> vii) About To Crash (Reprise) <BR> viii) Losing Time/Grand Finale<BR><BR> Продюссировали альбом Mike Portnoy и John Petrucci. Дата выхода - 29-е января...</p>
+
+Автор: Yermola
+
+### 13.12.2001 news Six Degrees Of Inner Turbulence...
+
+<p>DREAM THEATER’s forthcoming album, Six Degrees Of Inner Turbulence, has the following tracklisting: <BR><BR> <IMG SRC="/images/news_rus/2001.12/2157.jpg" ALT="pho" width="139" height="129" hspace="15" vspace="5" border="1" align="right" > CD1 <BR> The Glass Prison<BR> Blind Faith<BR> Misunderstood<BR> The Great Debate<BR> Disappear<BR><BR> CD2 <BR> Six Degrees Of Inner Turbulence (8 parts) <BR> i) Overture<BR> ii) About To Crash<BR> iii) War Inside My Head<BR> iv) The Test That Stumped Them All<BR> v) Goodnight Kiss<BR> vi) Solitary Shell<BR> vii) About To Crash (Reprise) <BR> viii) Losing Time/Grand Finale<BR><BR> The album is produced by Mike Portnoy and John Petrucci and will be released on January 29th. Dream Theater will play a warm up show in New York City on January 19th in preparation for the first leg of their European World Tourbulence 2002 tour. The show begins at 7:30pm at B.B. King’s. This will be the bands only U.S. show before they return for the American leg of the tour in March...</p>
+
+Автор: Yermola
+
+### 26.12.2001 news Новогодний сюрприз от DREAM THEATER
+
+<p>Пока фанаты томятся в ожидании нового творения группы, музыканты решили преподнести всем небольшой рождественский подарок. По адресу http://www.dreamtheater.net/webisode.htm выложены эпизоды записи нового альбома. пока доступны два эпизода, а в ближайшее время к ним будут добавлены еще несколько. Качайте на здоровье!</p>
+
+Автор: Tornado
+
+### 27.12.2001 reviews Тот самый альбом
+
+<p>Это тот самый альбом, что мелькнул перед широкой публикой 11 сентября и спустя всего несколько часов исчез с прилавков. Виной всему пророческая обложка, на которой рухнувшие в тот же день башни Всемирного торгового центра были изображены в языке пламени… Концертник появился в продаже чуть позже, уже с измененным оформлением, правда, российские пираты все же умудрились отпечатать старый вариант, что ныне превратился в раритет.<BR> Но ближе к музыке. Эти выпускники музыкального колледжа Беркли оказались заложниками собственной склонности к затянутым композициям. Концертный альбом каких-нибудь PRO-PAIN с двумя десятками песен занял бы не более часа, а здесь – целых три. Испытание не из легких…<BR> Тем не менее DREAM THEATER выдержали его с честью. Три часа великолепной музыки в живом исполнении со всеми полагающимися нюансами в виде более затянутых соло и небольших погрешностей, что только прибавляют музыке шарма – замечательный подарок для всех любителей не самых простых песен. <BR> Основу концертника составляет концептуальная работа DREAM THEATER 1999 года, "Metropolis Pt 2: Scenes From A Memory" – здесь сыграны абсолютно все песни этого диска плюс с десяток песен с предыдущих альбомов и "Acid Rain" из репертуара стороннего проекта музыкантов-"театралов" LIQUID TENSION EXPERIMENT плюс соло клавишника Джордана Рудесса, и дуэт гитары Джона Петруччи с голосом Терезы Томсон. Отмечу, что живьем группа звучит все же иначе, нежели на альбомах. Здесь уже нет намека на мрачный саунд великого "Awake" 1994 года или ярко выраженной "металлической" ритм-секции, как на "Images and Words" 1992 года. DREAM THEATER звучит скорее как рок-оркестр: гитара здесь не доминирует в общем сведении, как положено в "металле", более живо выделена ритм-секция и значительно большее место отведено клавишным. При таком подходе музыка становится более прозрачной и пластичной. Возможно, местами не хватает того плотного и мрачного драйва, что присутствует на студийных работах, и богатые аранжировки при таком раскладе прослушиваются в более выгодном свете.<BR> И хотя этот концертник не из тех редких шедевров, что открывают слушателю качественно иную сторону студийных работ, эти три диска в полной мере представляют живое звучание DREAM THEATER. А если учесть, что это одна из наиболее уникальных и интересных групп современности, то… Слушать всем без исключения!</p>
+
+Автор: Tornado
+
+### 04.01.2002 news DREAM THEATER: More US Dates Announced ....
+
+<p>DREAM THEATER have announced further show additions to their upcoming An Evening With DREAM THEATER — World Tourbulence 2002 US tour, which is scheduled to begin in March. The confirmed dates so far are as follows: <BR><BR> Mar. 08 - Los Angeles, CA @ Wiltern Theater<BR> Mar. 09 - San Francisco, CA @ Warfield Theater<BR> Mar. 17 - Milwaukee, WI @ Eagles Ballroom<BR> Mar. 22 - Boston, MA @ Orpheum Theater<BR> Mar. 24 - Washington DC @ 9:30 Club<BR> Mar. 27 - New York City @ Beacon Theater</p>
+
+Автор: Yermola
+
+### 31.01.2002 news Театр в ТОП-100....
+
+<p>Последний альбом "DREAM THEATER" - "Six Degrees Of Inner Turbulence" достиг первого места (!) в CDNow's Top 100....</p>
+
+Автор: Yermola
+
+### 31.01.2002 news DREAM THEATER Top CDNow Top 100 Chart!
+
+<p>DREAM THEATER's brand new two-CD studio album, entitled Six Degrees Of Inner Turbulence, has reached the number one spot (as of January 29th) in CDNow's Top 100.</p>
+
+Автор: Yermola
+
+### 05.02.2002 reviews Шесть степеней внутренней турбулентности
+
+<p>Шесть степеней внутренней турбулентности. Даже не знаю, что сказать об этом седьмом номерном альбоме американской группы... Меня переполняют чувства и эмоции. Если коротко, то это очередной суперальбом супергруппы. Здесь собрались супермузыканты: барабанщик группы единодушно признается лучшим в мире, а все остальные музыканты являются одними из лучших в мире. Поэтому творение такого состава просто не может быть не шедевром, по определению. Шесть величественных кусков длиною в сто минут. Первые пять объединены в первую часть альбома. Они все являются образцом современной тяжелой прогрессивной музыки. По новаторству они мне напомнили альбомы группы PINK FLOYD - "The Dark Side Of The Moon" и "Wish You Were Here", хотя эти группы играют совершенно разную музыку. В свое время, эти альбомы производили подобное впечатление на слушателей своей прогрессивностью и степенью применения всяких студийных наворотов и новаторских приемов в записи музыки. DREAM THEATER используют огромное количество искореженного вокала, различных вставок, сэмплов и звуковых эффектов. Но музыка группы по-прежнему узнаваема, ее ни с кем не перепутать. Музыканты блещут техникой и профессионализмом. Превосходные клавишно-гитарные импровизации, музыка плавно переходит от воздушно легкого состояния навеваемого клавишами к резким рваным ритмам создающимися низко настроенными тяжелыми гитарами. Вторая часть альбома состоящая из одной песни на сорок две минуты представляет собой более классический, но симфонически аранжированный вариант DREAM THEATER. Начинается она с увертюры в которой обрабатывается сочинение Прокофьева. И куски из этого сочинения еще не раз можно будет услышать в этой длинной композиции. "Six Degrees Of Inner Turbulence" является законченной цельной работой со сложной музыкой, множеством изменений ритма и направленности музыки, с бесчисленными клавишно-гитарными противостояниями Петруччи и Рудесса, разнообразным вокалом ЛаБри и виртуозной игрой Портного. Звук на альбоме намного более тяжелый чем на предыдущих, хотя и много таких проигрышей, которые к металлу-то и отнести нельзя. С каждым новым прослушиванием, эта музыка рождает все новые и новые мысли и ощущения, все новые и новые ассоциации и образы. Поэтому говорить о ней можно бесконечно. Группа будучи маяком прогрессивного металла установила этим альбомом новые размеры и стандарты тяжелой музыки. Одно из лучших музыкальных творений человечества.</p>
+
+Автор: Dimas
+
+### 22.02.2002 news DREAM THEATER играет песни Металлики?!?
+
+<p>Во время концерта в Барселоне 19-го февраля "DREAM THEATER" полностью исполнил все восемь вещей с альбома "Металлики" - "Master Of Puppets". Также в фойе продавались майки METALLICA и импровизированный прикид с логотипом Театра стилизованным под Кукловода. Что бы это значило? Хотя.... "Master..." и мой любимый альбом Метелицы тоже.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news МР3 от DREAM THEATER ...
+
+<p>МР3 бутлегов записанных во время концерта "DREAM THEATER" в Барселоне, во время которого были исполнены вещи "METALLICA" с альбома "Master Of Puppets" можно скачать <A HREF="http://bootlegs.shine1.com/Barcelona%20-%20Night%202/">здесь </A>и <A HREF="http://208.28.236.84/~ryan/dt/Barcelona%20Night%202/">здесь....</A></p>
+
+Автор: Yermola
+
+### 27.02.2002 news DREAM THEATER Covering METALLICA: MP3s Available For Download!
+
+<p>A bootleg recording of DREAM THEATER performing METALLICA's entire Master Of Puppets CD at a very special show at Razmatazz in Barcelona, Spain on February 19th can be downloaded in MP3 form from <A HREF="http://bootlegs.shine1.com/Barcelona%20-%20Night%202/">this location </A>or <A HREF="http://208.28.236.84/~ryan/dt/Barcelona%20Night%202/">this location</A>. As previously reported, DREAM THEATER played all eight songs from the aforementioned album while donning METALLICA T-shirts and sporting an improvised DREAM THEATER-logo'd Master of Puppets backdrop. Billed on DREAM THEATER's official website as a "VERY SPECIAL SHOW", the gig featured no opening act and was the second of DREAM THEATER's two-night stint at the venue.</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 18.03.2002 reviews Худший из лучших?
+
+<p>Если вы не знакомы с DREAM THEATER – вам же хуже. Очень сложная и красивая смесь джаз-рока, хэви-метал, психоделии и бог его знает, чего еще, сыгранная выпускниками музыкального колледжа Беркли без оглядки на моду заслуживает внимания. Если же сюда прибавить и заслуженный коммерческий успех… Бегом в магазин! Если же название группы что-то да говорит – читайте дальше. <BR><BR> Что случилось с DREAM THEATER?! Почти "пантеровский" гитарный звук, пульсирование сдвоенных бас-бочек, бодрый трэшевый темп – не хватало еще, чтоб вокалист Джеймс ЛаБри вдруг взревел словно раненный хищник. Первая же песня, "The Glass Prison", просто пугает – кто бы мог подумать, что группа вдруг станет настолько тяжелой и агрессивной? 13 минут непрерывной атаки звучат весьма нехарактерно для DREAM THEATER. Вторая песня, "Blind Faith", звучит более привычно и по настроению даже напоминает альбом "Awake". <BR><BR> Пожалуй, на этом реминисценции предшествующих творений "театралов" исчерпываются. Если предшествующий диск "Scenes from a Memory" как бы подводил итог десятилетнему развитию группы, повторяя часть риффов и гармоний с предыдущих творений DREAM THEATER, то "Six Degrees" представляет совершенно новую главу в истории этого коллектива. Музыка теперь стала иной – более холодной, "от ума", и менее эмоциональной. Вот вам и главный минус. Но сам факт, что музыканты даже и не думают о повторении прошлых достижений, отказались от работы по накатанным формулам, радует. Тем более, что группе действительно удалось перейти на новый уровень – именно на этом диске клавишник Джордан Рудесс, работающий в группе с 1999 года, стал полноценным соавтором всего сочиненного материала. <BR><BR> То, что получилось в итоге, можно безусловно назвать самым сложным альбомом за всю более чем десятилетнюю историю группы. И точно также можно утверждать, что это далеко не самый лучший альбом. Усложнив импровизации, доведя до немыслимых высот техническое исполнение и без того сложных и полифоничных композиций, DREAM THEATER стали менее эмоциональны и растеряли мелодизм, приобретя академизм в звучании, который местами кажется очень уж спорным. С ходу запоминается лишь великолепная "Great Debate", которая по праву может считаться одной из лучших вещей группы. Правда, местами ритмика и «раскачивание» этой песни напоминают TOOL (сравните-ка с "The Grudge" и "Lateralus" c последнего диска этих психов), но это лишь свидетельство того, что "театралы" внимательно изучают всю свежую музыку.<BR><BR> Полное разочарование – заявленный как сенсация второй диск альбома, содержащий сорокаминутную композицию "Six Degrees of Inner Turbulence". Музыканты явно пошутили – этот «шедевр» с легкостью распадается на восемь простеньких и достаточно банальных песен, связанных лишь текстом, но никак не музыкой. Кроме того, здесь группа пытается сделать шаг в сторону от джаз-рока, который всегда лежал в основе "театральной" музыки, и сыграть под симфонический оркестр. Звучит очень завернуто и просто скучно.<BR><BR> В целом же "Six Degrees…" получился спорным и интересным одновременно. Есть и находки, есть и промахи. Чего нет точно, так это ностальгии по прошлому и желания заработать денег только на раскрученном имени. Что только радует.<BR><BR></p>
+
+Автор: Tornado
+
+### 21.04.2002 reviews Полтора часа прогрессивного совершенства
+
+<p> Ну, вот, наконец, и разродились монстры Progressive Metal очередным своим альбомом. Скажу сразу: альбом очень понравился, в нем нет слабых мест и от прослушивания музыки получаешь неописуемое удовольствие. Техника музыкантов находится на таком высоком уровне, что я даже не знаю, с чем можно сравнить. Ребята постарались на славу: более полутора часов безупречного, кристально чистого прогрессива стали прекрасным подарком для всех поклонников данного стиля. Где-то, возможно, звук стал немного более плотным и даже тяжелым, по сравнению с предыдущими альбомами Dream Theater, но в целом группа продолжила то направление, в котором работала ранее, лишь доведя до совершенства свое техническое мастерство. Просто поражает сложность мелодий, и многочисленных вставок, коими альбом просто изобилует. С каждым прослушиванием диска становится все интереснее и интереснее: все время слышишь что-то новое, а те моменты, которые просто понравились в предыдущий раз, кажутся великолепными. У альбома нет ни сильных, ни слабых мест – он очень ровный и слушается как одна большая полуторачасовая песня. Честно говоря, мне обычно не очень нравится концептуальное построение музыкальных альбомов, но, вынужден признать, в прогрессиве зачастую это просто необходимо. В заключение хочу еще раз отметить потрясающую технику всех без исключения музыкантов, отличное качество звука и бесподобный материал – все то, чем всегда славился данный коллектив. </p>
+
+Автор: Davor
+
+### 15.05.2002 news Майк Портной назван лучшим барабанщиком прогрессивного рока....
+
+<p>Ударник "DREAM THEATER" Mike Portnoy признан лучшим барабанщиком в прогрессив-роке по итогам голосования проведенного журналом "Modern Drummer" за заслуги последних 8 лет, а также победы в номинациях "Лучший преподаватель", "Лучшее учебное видео/ДВД" и "Запись года"....</p>
+
+Автор: Yermola
+
+### 15.05.2002 news DREAM THEATER&#39;s MIKE PORTNOY Sweeps Modern Drummer Poll ....
+
+<p>DREAM THEATER drummer Mike Portnoy has once again swept the Modern Drummer magazine polls by taking the "Best Progressive Rock Drummer" award for the eighth year in a row, in addition to coming in at top in the "Best Clinician", "Best Educational Video/DVD", and "Recorded Performance Of The Year" categories.</p>
+
+Автор: Yermola
+
+### 24.05.2002 news YNGWIE MALMSTEEN атакует!
+
+<p>Новый альбом YNGWIE MALMSTEEN будет называться "Attack" и выйдет в продажу через Spitfire Records в конце лета. Сейчас проходит запись. Продюссирует сам Ингви, записывает Tom Fletcher в Майами, Флорида. Состав музыкантов: <BR><BR> Yngwie J. Malmsteen - басс, гитара и бэк-вокал<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - основной вокал<BR> Derek Sherinian (ex-DREAM THEATER) - клавиши<BR> Patrick Johansson (STORMWIND) - барабаны<BR></p>
+
+Автор: Yermola
+
+### 24.05.2002 news YNGWIE MALMSTEEN: &quot;Attack&quot; Recording Line-Up Revealed....
+
+<p>The recording line-up for YNGWIE MALMSTEEN's forthcoming Attack CD has finally been announced. The album, which is currently being produced by Malmsteen and engineered by Tom Fletcher in Miami, Florida, will feature the following musicians: <BR><BR> Yngwie J. Malmsteen - bass/guitar and vocals<BR> Doogie White (ex-RAINBOW, CORNERSTONE) - vocals<BR> Derek Sherinian (ex-DREAM THEATER) - keyboards<BR> Patrick Johansson (STORMWIND) - drums<BR><BR> A late summer release through Spitfire Records is expected.</p>
+
+Автор: Yermola
+
+### 27.05.2002 news Новый суперпроект...
+
+<p>Барабанщик DREAM THEATER - Mike Portnoy, гитарист FATES WARNING - Jim Matheos, клавишник CHROMA KEY/ex-DREAM THEATER - Kevin Moore, бассист GORDIAN KNOT/ex-CYNIC - Sean Malone и вокалист PAIN OF SALVATION - Daniel Gildenlоw объединили усилия в новом пока-еще-не-названном проекте. Запись альбома запланирована на Июнь и релиз в Октябре/Ноябре на Inside Out Records.....</p>
+
+Автор: Yermola
+
+### 27.05.2002 news DREAM THEATER, FATES WARNING Members Join Forces ....
+
+<p>DREAM THEATER drummer Mike Portnoy, FATES WARNING guitarist Jim Matheos, CHROMA KEY/ex-DREAM THEATER keyboardist Kevin Moore, GORDIAN KNOT/ex-CYNIC bassist Sean Malone and PAIN OF SALVATION vocalist Daniel Gildenlцw have joined forces in a brand new, as-yet-unnamed supergroup which is scheduled to record its debut album in early June for a late October/early November release—possibly through Inside Out Records. In a May 18th update on his official web site, Malone commented on the project by saying that "there will be an announcement soon of a new project that will be recorded this summer. I'm not allowed to reveal the players just yet, but it's a project involving some people whose names won't be unfamiliar to you. I'm very excited about it for a few reasons - one, just glad I got picked for it, but also that I can go back to just bein</p>
+
+Автор: Yermola
+
+### 03.07.2002 articles Поездка в Краков на концерт Dream Theater...
+
+<p>Группа: Dream Theater<BR> Состав: Mike Portnoy (drums, vocal), John Petrucci (guitar, vocal), John Myung (bass), James LaBri (vocal, percussion), Jordan Rudess (keyboards)<BR> Дата: 28 июня 2002<BR> Время: 20:00<BR> Место: Hala Wisla, Краков, Польша<BR> Зрители: 3500<BR><BR> Set-list. <BR> 1. Glass Prison.<BR> 2. Strange D&eacute;j&agrave; vu<BR> 3. Lines In The Sand<BR> 4. Соло Рудеса<BR> 5. Misunderstood<BR> 6. Surrounded<BR> 7. Take The Time<BR> 8. Lie<BR> Перерыв 15 минут<BR> 9. Six Degrees Of Inner Turbulence<BR> 10. Home<BR> 11. The Spirit Caries On<BR> 12. Pull Me Under – Welcome Home (Sanitarium) – Master Of Puppets – Pull Me Under<BR><BR> Итак, я уже во второй раз побывал на концерте прог-метал команды номер 1 в мире. Первый раз я был на их концерте тоже кстати в Кракове 2 года назад. Тогда у них был тур в поддержку 2-го Метрополиса, сейчас - после выпуска двойного Six Degrees. Перед концертом меня всё мучил вопрос, какие 3 песни из нового альбома они сыграют, т.к. Портной заявил, что именно по 3 песни из SDOIT они будут играть на каждом шоу. Ими оказались Glass Prison, с которой они начинают почти все концерты тура (исключение - когда они играют в одном городе 2 концерта), Misunderstood и целиком второй диск Six Degrees Of Inner Turbulence. Однако, всё по порядку.<BR><BR> В Краков мы прибыли в 14:00 по местному времени и сразу поехали в дворец спорта Hala Wisla, дабы выкупить билеты, которые я заказал на всех – 10 человек – по интернету. Правда двое так и не смогли с нами поехать, поэтому я был озабочен проблемой сдачи еще 2-х билетов. Билеты, кстати, стоили $20. Касса была закрыта, поэтому мы прошли во внутрь и через стеклянные двери в зал увидели как собирают сцену и аппарат. Из колонок на полную мощность играл Pink Floyd образца 1987-го года “Learning To Fly”. Там возле дверей мы встретили одного русскоязычного парня, который сказал, что он с Украины, ждет еще своих. Выяснив, что касса будет открыта только с 17:00, мы пошли в город, если так можно сказать. В этот день в Кракове был ливень, который закончился только к 19:00, так что мы успели вымокнуть так, что хотелось принять ванну и выпить чашечку кофе, но мы ограничились последним.<BR><BR> В 18:50 с выкупленными билетами мы уже стояли перед зданием Халы Вислы. Насчет сдачи билетов, кстати, я волновался зря – лишний билетик спрашивала куча народу, да и в кассе можно было и не брать все заказанные билеты. Войдя во внутрь я с женой и другом сразу бросился к месту продажи атрибутики. Однако, майку за 30 баксов покупать мне не захотелось, почти все диски у меня и так есть. Диски стоили от $10 за “When Then Dream And Day Unite” до $21 за “Once In A Live Time” и “Six Degrees”. Из видео были только DVD “Live In NY” и Genesis (к чему бы это). Увы, я жаждал увидеть ещё и видеошколы. После этого мы уже поплелись ко входу в зал, который был еще закрыт и самые нетерпеливые, в том числе и вся наша группа из Беларуси. За недолгое время ожидания через толпу охрана неожиданно провела Петруччи. Тут оказалось, что мои ручка и билет были очень далеко и я не успел взять автограф, как впрочем и все стоявшие в толпе – никто не ожидал такого появления.<BR><BR> Войдя в зал мы стразу заняли место перед микшерным пультом, справедливо полагая, что там будет самый лучший звук, после я стал осматривать аппаратуру, так как сам музыкант и эта кухня мне интересна. Однако ударная установка была закрыта черным полотнищем. Теперь оставалось только ждать.<BR><BR> В 20:00 на сцену вышел кто-то из организаторов и объявил, что концерт задерживается на час якобы в связи с таможенными проблемами. Нам всем показалось, что проблема в том, что в 8 часов вечера в Кракове было очень светло, а зал, выбранный для концерта был со стеклянной крышей, а слушая разговор поляков стало понятно, что и они пришли к такому выводу. Эту неожиданную паузу заполнил виртуальный разогрев с минидиска в виде 2-х интересных песен неизвестной мне группы. Потом из колонок заиграла концовка из 2-го Метрополиса (Finally Free) с того места, где играют духовые, потом следует фраза гипнотизера "Open your eyes, Nicholas", а за ней и крик Николаса и последующее шипение грампластинки под которое на сцену вышел виртуоз клавишных Джордан Рудес и начал с видом заправского кузнеца "бить" по клавишам, начиная Glass Prison. Таким образом, театралы попытались продолжить предыдущий диск, хотя он никак не связан с новым альбомом. Похоже, что они решили озадачить фанов еще и загадками в стиле Pink Floyd :). Что творилось в зале – разговор отдельный. С первым ударом по «наковальне» на сцене открылся трехбочечный «сиамский монстр» Портного и толпа заревела. Я сначала подумал, что мощи у аппарата не хватит, чтобы заглушить зал, но 60 киловатт сделали свое дело, хотя поначалу в голове были ассоциации с концертами Битлз, где толпа заглушала музыкантов. Вот где надо было снимать Театру свои концертнике – в восточной Европе, где их принимают гораздо теплее, чем в родных Штатах. Кто бы им подсказал…<BR><BR> Рассказывать про каждую песню отдельно не буду, абсолютно все зал принимал “на ура“, большинство подпевал и после каждой были долгие аплодисменты. Остановлюсь на некоторых особенностях, которые я не слышал до этого ни на концертниках ни на бутлегах. Во-первых, как обычно некоторые песни были исполнены совсем не так как на альбоме либо даже на другом концерте. А вот исполнение Misunderstood с последнего альбома почти один в один наоборот впечатлила. Во-вторых, команда была в таком ударе, что я просто поразился. ЛаБри пел так, будто последний раз в жизни, Рудесс тоже на месте не стоял, благо его нынешняя стойка позволяет крутиться, про Портного и говорить нечего, он наверное энергетический вампир и просто питается энергией зала на 100%, а уж на что Мьюнг всегда сдержан на эмоции, так и тот вместе с Петруччи пару раз бегал по сцене и даже «бодался» с ним во время импровизации (!). Да-да. В-третьих, импровизации. Их было две. Настоящих. Причем во второй была гитарно-клавишная дуэль. Кстати об обновках. Мьюнг играл на новом басу, который на сайте Ямахи еще не анонсировался, барабанов и тарелок у Портного больше, чем на знаменитой фотографии с его сайта. Я попытался запечатлеть их своей мыльницей после концерта и результат, к сожалению, мне пока не известен.<BR><BR> Второе отделение началось с увертюры к самому длинному произведению театра – Six Degrees Of Inner Turbulence. Прозрачная ткань закрывала сцену, помогая в создании причудливой игры света. Увертюра звучала с минидиска, но со второй части все пошло “по настоящему” :) Все происходящее было похоже на сон и я себя почувствовал во власти театра грёз (мои ощущения оказались схожими с ощущениями моих товарищей). В начале Solitary Shell Петруччи поменял гитару на двухгрифовую с 14-тью и 7-ми струнами соответственно дабы акустические партии исполнять на 14-тиструнке, а драйвовые на нижней 7-миструнке. Остальное все уже игралось как на |”бис”. И когда в середине Pull Me Under зазвучали переборы металликовской Welcome Home зрители вошли в настоящий экстаз. Последовавшие затем Master Of Puppets и окончание Pull Me Under завершили 3-х часовое нахождение на вершине блаженства. Музыканты очень тепло попрощались со зрителями, которые аплодисментами долго не отпускали их со сцены. Майк по обыкновению стал разбрасывать пластики. Один из них он кинул прямо по центру где стоял я с женой и друзьями. Нам показалось, что он специально кидал его нам, точнее моему другу, который во время концерта залазил на ограждение пульта, чтобы лучше видеть. Увы, пластик попал в голову звукооператора, который в этот момент не смотрел в сторону сцены, и он поначалу не понял, что произошло и смотрел на нас так, будто мы в него чем-то кинули. Потом светотехники сзади подсказали ему, в чем дело и он, закрыв глаза, бросил пластик в зал совсем не в ту сторону :( Еще часа полтора по дороге назад я не мог заснуть, вспоминая увиденное.</p>
+
+Автор: Василий Речкин
+
+### 21.07.2002 news Дебютный альбом Orchestra of Strategic Influence ожидается этой осенью...
+
+<p>Для тех, кто пока не в курсе, что собственно представляет из себя Orchestra of Strategic Influence (для краткости - OSI), поясним: это новый проект, в состав которого входят гитарист Jim Matheos (Fates Warning), клавишник Kevin Moore (Chroma Key, экс-Dream Theater) и барабанщик Mike Portnoy (Dream Theater, Transatlantic). Обещается, что дебютный альбом одного с группой названия будет доступен уже этой осенью, посредством InsideOut Music America. В IOMA ожидают, что "Orchestra of Strategic Influence" окажется одним из самых продаваемых дисков за всю историю компании.</p>
+<P>Помимо клавишных, Moore также ответственнен и за большинство вокальных партий. Помимо него на альбоме будут петь несколько приглашённых вокалистов, чьи имена пока не разглашаются, а место бас-гитариста займёт Sean Malone (Gordian Knot).</>
+<P>Запись диска на данный момент производится в Carriage House Studios, что в Коннектикуте, под контролем обладателя Грэмми Фила Магнотти.</>
+<P>Что до музыкальной составляющей, то согласно Матеосу, "Orchestra of Strategic Influence" не имеет ничего общего ни с Fates Warning, ни с Dream Theater, ни с Chroma Key. Звучит интригующе.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 10.03.2003 news DREAM THEATER в студии
+
+<p>DREAM THEATER с 10 марта начнут запись своего нового альбома, выход которого планируется в конце 2003 года на Elektra Records.</p>
+
+Автор: Dimas
+
+### 03.04.2003 articles Война слов
+
+<p><B>Бойня в Ираке породила войну мнений во всем мире. Каждый считает долгом высказать умные и не очень мысли насчет Буша, Ирака и прелести демократии, распространяемой с помощью бомб. Коснулась сия напасть и музыкантов - отличный повод посмотреть, у кого из них в голове есть извилины. </B><BR> Война слов началась еще прошлой осенью - тогда Том Морелло (гитарист левацких групп RAGE AGAINST THE MACHINE и AUDIOSLAVE) и Серж Танкян (вокалист SYSTEM OF A DOWN) создали организацию "Огонь правосудия", от имени которой отвечали на все вопросы, связанные с империализмом, эксплуатацией, борьбой за права человека и экспансией США во всем мире. Естественно, все это обильно сдабривалось цитатами из Карла Маркса, речей Че Гевары и примерами из истории. Эта левая пропаганда жутко не понравилась Билли Милано, лидеру старой и бестолковой нью-йоркской команды M.O.D.: "К черту правосудие, пусть эти два миллионера-коммуниста едут в Ирак и там тратят свои миллионы на мир! Да здравствуют бомбы и нефть!". Миллионеры-коммунисты этот выпад проигнорировали, а меломаны прилепили ярлык к Милано - "неофашист". <BR> Вся эта перепалка так и осталась бы в прошлом, но началась война. Как только Буш объявил свой ультиматум, три девицы из DIXIE CHICKS, обладатели "Грэмми", вышли на сцену с плакатами: "Сколько иракцев стоит один галлон нефти?" и "В одной техасской деревне исчез дурачок. Вы его не видели?". Следом среагировал Эминем - парень высказался незамысловато: "Война - фигня, к черту войну, мне не нужны кадры невинных жертв на ТВ - лучше крутите мои клипы!" Поначалу пацифисты вели себя достаточно пассивно, ограничиваясь воспоминаниями об эре хиппи и призывом к миролюбию. Зато их оппоненты показали себя ярыми сторонниками Белого дома и его аргументов. 18 марта Майк Портной, барабанщик великолепной прогрессив-команды DREAM THEATER, начал стыдить всех критиков Буша: "Я не люблю войну. Но то, что было начато 11 сентября, должно быть завершено - США должны разгромить терроризм и защитить свободу! Все, кто против, идите-ка домой и посмотрите еще раз хронику той катастрофы: как горят здания, люди выпрыгивают из окон и рушится символ процветания!". <BR> Как только на головы иракцев посыпались бомбы и кадры войны пошли по ТВ, Фред Дерст, лидер рэпперов LIMP BIZKIT, не удержался от комментариев: "Вы видели это? Сюрреализм какой-то… Я молюсь за народ Ирака и за всех, кто погибнет. Но я молюсь и за победу наших солдат - пусть они скорее возвращаются домой с победой! Не нужно больше протестовать против войны, нужно поддержать нашу страну: вперед, США!". <BR> К числу милитаристов примкнул и Закк Уайлд, гитарист Оззи Осборна: "Войска США будут крушить врагов и господствовать везде! Это лучшая армия в сегодняшнем мире!". Интересно, с какими чувствами этот парень играет с Оззи песни "War Pigs" ("Военные свиньи") и "God thank you for the bomb!" ("Господи, спасибо за бомбу!")? В том же ключе выступил и древний рокер Тед Наджент - мол, во Второй мировой войне вмешательство США помогло спасти миллионы евреев, и на этот раз война поможет спасти невинных! По каким учебникам этот парень учил историю и как он смотрит новости: кого должны спасти американские бомбы? Лучше умереть от оружия свободы, чем жить при диктатуре Хусейна? <BR> В конечном счете большинство американских музыкантов так или иначе поддержали войну. Зато меньшинство принялось активно действовать - Лени Кравиц и R.E.M. отправились в студию писать антивоенные песни, а Зак Де Ла Роша, экс-вокалист RAGE AGAINST THE MACHINE, уже это сделал, назвав при этом Буша палачом, а Серж Танкян и Том Морелло каждый концерт начинают с антивоенных речей. Правда, власти страны образцовой демократии ставят им палки в колеса как могут: с 25 марта на MTV запрещены к показу все песни со словами "Ирак, "война", "бомба" и т.д., а из эфира уже сняты несколько клипов: "Boom!" SYSTEM OF A DOWN и "Holy Wars" MEGADETH (последний, кстати, вышел ровно десять лет назад во время первой иракской войны и содержал жестокие кадры бомбардировок). Хуже всего пришлось группе B-52 - ребята ничего не имеют против войны, но они называются так же, как и бомбардировщики, которые несут 1-тонные заряды свободы иракцам, и потому упоминание этой группы в прессе и эфире сейчас нежелательно… <BR> В Европе иной расклад - антивоенные настроения доминируют. Только шведы MARDUK выпали из общего ряда: "Война не наша проблема - пусть танки действуют!". Зато немцы SODOM в прошлом году выпустили альбом, целиком посвященный американским приемам ведения войны во Вьетнаме - этакий экскурс в историю уничтожения жизни. Теперь эта работа снова актуальна. А их земляки DESTRUCTIОN на днях записали кавер-версию песни британцев THE EXPLOITED с красноречивым названием "Fuck The U.S.A.". <BR> Только Ларс Ульрих, барабанщик METALLICA, высказался наиболее разумно в этой перепалке: "Если ты музыкант и люди слушают твое мнение, это вовсе не значит, что нужно комментировать все подряд. Я уважаю то, что делают Том Морелло и Серж Танкян, всех тех, кто столь эмоционально выступает сегодня по проблеме войны, но я не хотел бы использовать имя METALLICA как трибуну. Читайте газеты, смотрите, что пишут в Интернете, создавайте свое собственное мнение и не слушайте какого-то придурка только потому, что он играет в какой-то рок-группе. Музыканты - не самые умные люди, так что лучше думайте своей головой!". <BR> <B>MAKE MUSIC NOT WAR!</B></p>
+
+Автор: Tornado
+
+### 04.08.2003 news DREAM THEATER на стадии микширования
+
+<p>DREAM THEATER собираются в августе заняться микшированием своего нового альбома с продюсером Kevin Shirley (IRON MAIDEN, LED ZEPPELIN). Релиз планируется на конец 2003 года через Elektra Records.</p>
+
+Автор: Dimas
+
+### 15.09.2003 news Новый альбом DREAM THEATER
+
+<P>11 ноября 2003 года на <B>Elektra Records </B>выйдет новый альбом лидеров progressive metal <B>DREAM THEATER</B> под названием <B>"Train Of Thought"</B>. Продюсеры альбома - <B>John Petrucci</B>&nbsp;и <B>Mike Portnoy</B>, в качестве звукоинженера поработал <B>Doug Oberkircher</B>. Микшированием занимался <B>Kevin Shirley. </B>С января, группа отправляется в большое мировое турне. Трэк-лист альбома выглядит следующим образом:</P>
+<P>1. As I Am<BR>2. This Dying Soul<BR>3. Endless Sacrifice<BR>4. Honor Thy Father<BR>5. Vacant<BR>6. Stream Of Consciousness<BR>7. In The Name Of God<BR></P>
+Автор: Dimas
+
+### 23.10.2003 news Ayreon добавляют ещё одного вокалиста
+
+<B>AYREON</B> официально объявили, что ещё одним вокалистом на грядущем альбоме станет <B>James LaBrie (DREAM THEATER).</B>
+Автор: Vit Belov
+
+### 09.12.2003 news Новости от DREAM THEATER
+
+<P>Новый альбом <B>DREAM THEATER Train Of Thought</B> стартовал в чарте <B>Billboard</B> c 53 места. </P>
+<P><B>Jordan Rudess</B> сообщил новости о своём новом соло-альбоме. В его записи примут участие <B>Joe Satriani, Steve Morse, Vinnie Moore</B>&nbsp;и <B>Greg Howe</B>.</P>
+Автор: Vit Belov
+
+### 24.12.2003 news Раритеты от DREAM THEATER
+
+По <A href="http://www.greatlakes.org.uk/dreamtheater/cfii.html">этому</A> адресу стали доступны mp3 демо-версии песен записанных группой с 1995 по 1997 год для альбома "<B>Falling Into Infinity</B>". Акустические версии некоторых песен с альбома можно скачать по <A href="http://www.greatlakes.org.uk/dreamtheater/acoustic-dreams/">этому</A> адресу. И наконец, по <A href="http://www.greatlakes.org.uk/dreamtheater/antiquities/">этому</A> адресу доступны другие раритеты группы, среди которых кавер <B>DEEP PURPLE "Perfect Strangers"</B> с <B>Bruce Dickinson (IRON MAIDEN)</B> в качестве вокалиста.
+Автор: Dimas
+
+### 03.01.2004 reviews Один из лучших альбомов уходящего 2003 года
+
+Редко когда группе удаётся выпускать 2 удачных альбома подряд, да ещё к тому же, чтобы звучали и воспринимались по разному. И нет ничего удивительного что это удалось группе Dream Theater. Альбом "Train Of Thought" - что называется для души и для сердца. Звучит новое творение несомненно тяжелее всех остальны альбомов группы, но эта тяжёлость некоторых композиционных моментов звучит настолько круто в сочетании с прогрессивными наворотами, что просто невозможно описать словами. Тяжёлые риффы сменяются проникновенным балладными вставками. Невообразимо красивая игра Петручи, да что там, ВСЕХ музыкантов доставлят огромное удовольствие. Единственный прокол продукта в его обложке, не то что бы она сделана плохо, но одна деталь - глаз, как сказала моя знакомая, концентрирует всё внимание на себе, не давая рассмотреть всю прелесть фотографии. Хотя с другой стороны, может быть, это и есть замысел художника оформителя. Подводя итог, скажу: Train Of Thought - один из лучших альбомов уходящего 2003 года.<BR>
+Автор: Peter Priest
+
+### 15.01.2004 news DREAM THEATER in Europe
+
+&nbsp;&nbsp;&nbsp; Jan 16, 2004&nbsp; Manchester, UK - Apollo<BR>&nbsp;&nbsp;&nbsp; Jan 17, 2004&nbsp; London, UK - Hammersmith<BR>&nbsp;&nbsp;&nbsp; Jan 18, 2004&nbsp; Rotterdam, Holland - Ahoy<BR>&nbsp;&nbsp;&nbsp; Jan 20, 2004&nbsp; Copenhagen, Denmark - KB Halle<BR>&nbsp;&nbsp;&nbsp; Jan 21, 2004&nbsp; Oslo, Norway - Spectrum<BR>&nbsp;&nbsp;&nbsp; Jan 22, 2004&nbsp; Stockholm, Sweden - Hovet<BR>&nbsp;&nbsp;&nbsp; Jan 24, 2004&nbsp; Stuttgart-B&ouml;blingen, Germany - Sporthalle<BR>&nbsp;&nbsp;&nbsp; Jan 25, 2004&nbsp; Brussel, Belgium - Forest National<BR>&nbsp;&nbsp;&nbsp; Jan 26, 2004&nbsp; Frankfurt-H&ouml;chst, Germany - Jahrhunderthalle<BR>&nbsp;&nbsp;&nbsp; Jan 27, 2004&nbsp; K&ouml;ln, Germany - Palladium<BR>&nbsp;&nbsp;&nbsp; Jan 29, 2004&nbsp; Paris, France - Zenith<BR>&nbsp;&nbsp;&nbsp; Jan 30, 2004&nbsp; Dortmund, Germany - Westfalenhalle small version<BR>&nbsp;&nbsp;&nbsp; Jan 31, 2004&nbsp; N&uuml;rnberg-F&uuml;rth, Germany - Stadthalle<BR>&nbsp;&nbsp;&nbsp; Feb 02, 2004&nbsp; Berlin, Germany - Tempodrom<BR>&nbsp;&nbsp;&nbsp; Feb 04, 2004&nbsp; Frauenfeld, Switzerland - Festhalle Ruegerholz<BR>&nbsp;&nbsp;&nbsp; Feb 05, 2004&nbsp; Milan, Italy - Filaforum<BR>&nbsp;&nbsp;&nbsp; Feb 06, 2004&nbsp; Bologna, Italy - Palamalaguti<BR>&nbsp;&nbsp;&nbsp; Feb 07, 2004&nbsp; Rome, Italy - Palalottomatica<BR>&nbsp;&nbsp;&nbsp; Feb 10, 2004&nbsp; Barcelona, Spain - Pavello de la Vall d'Hebron<BR>&nbsp;&nbsp;&nbsp; Feb 11, 2004&nbsp; Madrid, Spain - Multiusos La Cubierta<BR>&nbsp;&nbsp;&nbsp; Feb 12, 2004&nbsp; Oporto, Portugal - Oporto Coliseum<BR>&nbsp;&nbsp;&nbsp; Feb 14, 2004&nbsp; Istanbul, Turkey - CNR Halls<BR>
+Автор: Vit Belov
+
+### 01.04.2004 news DREAM THEATER in Asia
+
+&nbsp;&nbsp;&nbsp; Apr 22, 2004&nbsp; Nagoya, Japan - Shimin Kainkan Chu Hall<BR>&nbsp;&nbsp;&nbsp; Apr 23, 2004&nbsp; Osaka, Japan - Koseinenkin Kaikan<BR>&nbsp;&nbsp;&nbsp; Apr 24, 2004&nbsp; Osaka, Japan - IMP Hall<BR>&nbsp;&nbsp;&nbsp; Apr 26, 2004&nbsp; Tokyo, Japan - Budokan Hall<BR>&nbsp;&nbsp;&nbsp; Apr 28, 2004&nbsp; Seoul, Korea - Olympic Hall<BR>&nbsp;&nbsp;&nbsp; Apr 30, 2004&nbsp; Singapore, Singapore&nbsp; Expo<BR>
+Автор: Vit Belov
+
+### 27.04.2004 news DREAM THEATER выпустят концертный DVD&#x2F;CD
+
+<P><B>DREAM THEATER</B> записали для концертного DVD/CD своё выступление в Японии на знаменитом <B>Budokan</B> в Токио. Альбом выйдет в начале 2005 года. Трэк-лист выступления:</P>
+<P>01. <B>Band History Video</B> (intro tape)<BR>02. <B>As I Am</B><BR>03. <B>This Dying Soul</B><BR>04. <B>Beyond This Life</B><BR>05. <B>Hollow Years</B><BR>06. <B>War Inside My Head</B>/<BR>07. <B>The Test That Stumped Them All</B><BR>08. <B>Endless Sacrifice</B><BR>09. <B>Instrumedley</B><BR>10. <B>Trial Of Tears</B><BR>~~~Intermission~~~<BR>11. <B>New Millennium</B><BR>12. <B>Piano Solo</B><BR>13. <B>Only A Matter Of Time</B><BR>14. <B>Goodnight Kiss</B>/<BR>15. <B>Solitary Shell</B><BR>16. <B>Stream of Consciousness</B><BR>17. <B>Disappear</B><BR>18. <B>Pull Me Under</B><BR>~~~Encore~~~<BR>19. <B>In The Name Of God</B><BR></P>
+Автор: Vit Belov
+
+### 21.08.2004 news Jordan Rudess выпускает сольный альбом
+
+<P><STRONG>Jordan Rudess</STRONG>, клавишник<STRONG> DREAM THEATER</STRONG>, выпускает новый сольный альбом <STRONG>'Rhythm Of Time'</STRONG> 31 августа на <STRONG>Magna Carta</STRONG>. Среди обилия приглашённых звёзд:&nbsp; гитаристы <STRONG>Joe Satriani, Steve Morse, Vinnie Moore</STRONG>&nbsp;и <STRONG>Greg Howe</STRONG>, басист&nbsp;<STRONG>Dave LaRue</STRONG>, барабанщик&nbsp;<STRONG>Rod Morgenstein</STRONG> и вокалист&nbsp;<STRONG>Kip Winger</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>Time Crunch</STRONG><BR>2. <STRONG>Screaming Head</STRONG><BR>3. <STRONG>Insectsamongus<BR></STRONG>4. <STRONG>Beyond Tomorrow (with Kip Winger)<BR></STRONG>5. <STRONG>Bar Hopping With Mr Picky</STRONG><BR>6. <STRONG>What Four<BR></STRONG>7. <STRONG>Ra<BR></STRONG>8. <STRONG>Tear Before The Rain (with Kip Winger)<BR></STRONG></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 05.11.2004 news Ужасы HALOWEEN: Mike Portnoy сыграл с OVERKILL
+
+<P>29 октября барабанщик <STRONG>DREAM THEATER Mike Portnoy</STRONG> отыграл концерт с thrash-metal легендой<STRONG> OVERKILL</STRONG> в <STRONG>Hard rock cafe</STRONG> в Нью-Йорке.&nbsp;Концерт транслировалось в <STRONG>Eddie Trunk radio show</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.01.2005 news Сольный альбом гитариста DREAM THEATER
+
+<DIV class=regular>Гитарист<STRONG> DREAM THEATER</STRONG>&nbsp;<B>John Petrucci</B> готовит к&nbsp;выпуску свой сольный альбом под названием <B>"Suspended Animation".</B> Продюсером альбома выступил <B>Kevin Shirley</B> (<B>IRON MAIDEN</B>, <B>DREAM THEATER</B>). Это будет часовой альбом, без клавишного ряда и вокала, из одних сплошных гитар, в духе произведений&nbsp;<B>Steve Morse</B>, <B>Gary Moore</B>&nbsp;и <STRONG>Jeff Beck.</STRONG> В альбом войдут следующие вещи:<BR><BR><IMG height=250 alt="" hspace=20 src="/images/news_rus/2005.01/7693.jpg" width=250 align=left border=0>1. <B>Jaws of Life</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>2. <B>Glasgow Kiss</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>3. <B>Tunnel Vision</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>4. <B>Wishful Thinking</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>5. <B>Damage Control</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>6. <B>Curve</B></DIV><STRONG></STRONG>
+<DIV class=regular><BR>7. <B>Lost Without You</B></DIV>
+<DIV class=regular><STRONG></STRONG><BR>8. <B>Animate-Inanimate</B> </DIV>
+Автор: Dimas
+
+### 18.01.2005 news Mike Portnoy сыграет с FATES WARNING
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Mike Portnoy</STRONG> (<STRONG>DREAM THEATER</STRONG>) продолжает удивлять любителей своего таланта. Теперь объявлено, что 3 апреля в Голландии на фестивале <STRONG>Headway</STRONG>, он сыграет с <STRONG>FATES WARNING</STRONG>. Историческое событие?&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 02.02.2005 news Новый сольник James LaBrie
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В марте 2005 года на <STRONG>Inside Out</STRONG> выходит новый сольный альбом вокалиста <STRONG>DREAM THEATER</STRONG> <STRONG>James LaBrie</STRONG> <STRONG>'Elements Of Persuasion'</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 02.02.2005 news New solo-album of James LaBrie
+
+<P><STRONG>Inside Out Music</STRONG> is announce the release of the new solo CD release from <STRONG>DREAM THEATER</STRONG> vocalist, <STRONG>James LaBrie</STRONG>. '<STRONG>Elements</STRONG> <STRONG>Of Persuasion'</STRONG> will be released middle of March 2005.</P>
+Автор: Vit Belov
+
+### 26.02.2005 news DREAM THEATER закончили запись нового альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DREAM THEATER</STRONG> закончили запись нового альбома, который выйдет в мае-июне на <STRONG>EastWest</STRONG>. Об этом сообщил <STRONG>Mike Portnoy</STRONG> во время одного шоу на радио. Подробности пока не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 12.03.2005 news Новый альбом DREAM THEATER
+
+<P><STRONG>DREAM THEATER</STRONG> выпускают свой восьмой альбом "<STRONG>Octavarium</STRONG>" 7 июня на <STRONG>Atlantic</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>The Root Of All Evil</STRONG> <BR>2. <STRONG>The Answer Lies Within</STRONG> <BR>3. <STRONG>These Walls</STRONG> <BR>4.<STRONG> I Walk Beside You <BR></STRONG>5. <STRONG>Panic Attack <BR></STRONG>6. <STRONG>Never Enough</STRONG> <BR>7. <STRONG>Sacrificed Sons</STRONG> <BR>8. <STRONG>Octavarium </STRONG></P>
+Автор: Vit Belov
+
+### 12.05.2005 news Новый альбом  Dream Theater
+
+<P>7 июня выходит новый альбом <STRONG>DREAM THEATER</STRONG> "<STRONG>Octavarion</STRONG>"&nbsp; на <STRONG>Warner Music</STRONG>. </P>
+<P>Фрагменты новых песен можно скачать по данной ссылке:<BR><A href="http://www.bol.de/shop/bde_homestartseite/artikeldetails/ID6387133.html">http://www.bol.de/shop/bde_homestartseite/artikeldetails/ID6387133.html</A></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.05/8443.jpg" width=200 align=right border=5>Трэк-лист:<BR>01. <STRONG>The Root of All Evil<BR></STRONG>02. <STRONG>The Answer Lies Within<BR></STRONG>03. <STRONG>These Walls<BR></STRONG>04. <STRONG>I Walk Beside You<BR></STRONG>05. <STRONG>Panic Attack</STRONG><BR>06. <STRONG>Never Enough</STRONG><BR>07. <STRONG>Sacrificed Sons<BR></STRONG>08. <STRONG>Octavarium</STRONG></P>
+Автор: Bizarre
+
+### 16.02.2006 news DEREK SHERINIAN работает над новым студийным альбомом
+
+<P>Клавишный маэстро <B>Дерек Шериниан</B> в настоящее время занят в студии - кипит работа над юбилейным пятым диском. Музыкант пока не определился с названием альбома, но дата релиза более-менее ясна - июнь.<BR><BR>Накануне записи Шериниан вернулся из изнурительного 9-месячного тура в команде <B>Билли Айдола</B>. Закрыв двери принадлежащей ему <B>Beachwood Manor Studios</B> (Бербэнк, Калифорния), он тут же принялся резать скопившийся креатив на всевозможные носители. Помогли старые друзья - <B>Джон Петруччи (DREAM THEATER), Стив Люкатер (TOTO), Саймон Филлипс (TOTO, THE WHO, JUDAS PRIEST), Тони Фрэнклин (THE FIRM/BLUE MURDER)</B> и <B>Брайен Тичи (BILLY IDOL, OZZY)</B>. Но особенно тепло маэстро отзывается о&nbsp; давнем компаньоне - <B>Закке Уайльде (BLACK LABEL SOCIETY, OZZY)</B>: <I>"Новый альбом станет нашей четвертой совместной работой. Закк - потрясающий человек и музыкант. Я благодарен ему за вклад в мои творения."</I>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<BR><BR>Напомним, что<B> Дерек Шериниан</B> получил известность как клавишник живых классиков прогрессива - <B>DREAM THEATER</B>. Пробыв в составе группы пять лет (1994-1999), музыкант покинул ее и дал старт своей сольной карьере. Последний альбом - <B>"Mythology"</B> - вышел в прошлом году и был прекрасно встречен критикой. В остальное время мистер <B>Шериниан </B>помогает записываться и выступать таким группам, как <B>ALICE COOPER, BILLY IDOL, KISS</B>, а также множеству других, менее известных команд.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>Новости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков)</P>
+Автор: Ixtiandr
+
+### 23.06.2006 news DREAM THEATER выпускают новый концертник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=230 alt="" hspace=0 src="/images/news_rus/2006.06/10487.jpg" width=160 align=left border=5>Новый концертный альбом <STRONG>DREAM THEATER "Score"</STRONG> выйдет на CD и DVD 29 августа на <STRONG>Rhino Records</STRONG>. Пластинка выйдет отдельно в формате 3 CD и 2 DVD. На альбом войдёт концерт в Нью-Йорке, состоявшийся первого апреля. 3 часа музыки, из них 1.5 часа <STRONG>DREAM THEATER</STRONG> выступают в сопровождении симфонического оркестра.</FONT></P>
+Автор: Vit Belov
+
+### 09.02.2007 news DREAM THEATER на Roadrunner
+
+<P><STRONG>DREAM THEATER</STRONG> подписали контракт с <STRONG>Roadrunner</STRONG>. Новый альбом группы "<STRONG>Systematic Chaos</STRONG>" выйдет в июне.</P>
+Автор: Vit Belov
+
+### 25.02.2007 news Трэк-лист нового DREAM THEATER
+
+<P>Как уже сообщалось, <STRONG>DREAM THEATER</STRONG> выпускают новый альбом "<STRONG>Systematic Chaos</STRONG>" на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P>1. <STRONG>In The Presence of Enemies Pt.1</STRONG> <BR>2. <STRONG>Forsaken <BR></STRONG>3. <STRONG>Constant Motion</STRONG> <BR>4. <STRONG>The Dark Eternal Night</STRONG> <BR>5. <STRONG>Repentance </STRONG><BR>6. <STRONG>Prophets of War</STRONG> <BR>7. <STRONG>The Ministry of Lost Souls</STRONG> <BR>8. <STRONG>In The Presence of Enemies Pt.2 </STRONG></P>
+Автор: Vit Belov
+
+### 16.04.2007 news Обложка DREAM THEATER
+
+<P>
+<CENTER>Так будет выглядеть обложка нового альбома <STRONG>DREAM THEATER "Systematic Chaos</STRONG>", выходящего 5 июня на<STRONG> Roadrunner</STRONG>.</CENTER>
+<P></P>
+<CENTER><IMG height=320 alt="" hspace=0 src="/images/news_rus/2007.04/11565.jpg" width=320 border=5></CENTER>
+Автор: Vit Belov
+
+### 12.01.2008 news DREAM THEATER выпускают сборник
+
+<P>1 апреля на<STRONG> Rhino</STRONG> выйдет двойной сборник <STRONG>DREAM THEATER</STRONG> <STRONG>"Greatest Hit (…& 21 Other Pretty Songs)"</STRONG>. Трэк-лист:</P>
+<P>Disc 1 (The Dark Side):<BR>01. <B>Pull Me Under</B> (2007 Remix)<BR>02. <B>Take The Time</B> (2007 Remix)<BR>03. <B>Lie</B> (Single Edit)<BR>04. <B>Peruvian Skies</B><BR>05. <B>Home</B> (Single Edit)<BR>06. <B>Misunderstood</B> (Single Edit)<BR>07. <B>The Test That Stumped Them All</B><BR>08. <B>As I Am</B><BR>09. <B>Endless Sacrifice</B><BR>10. <B>The Root Of All Evil</B><BR>11. <B>Sacrificed Sons</B><BR><BR>Disc 2 (The Light Side):<BR>01. <B>Another Day</B> (2007 Remix)<BR>02. <B>To Live Forever</B><BR>03. <B>Lifting Shadows Off A Dream</B><BR>04. <B>The Silent Man</B><BR>05. <B>Hollow Years</B><BR>06. <B>Through Her Eyes</B> (Alternate Album Mix)<BR>07. <B>The Spirit Carries On</B><BR>08. <B>Solitary Shell</B> (Single Edit)<BR>09. <B>I Walk Beside You</B><BR>10. <B>The Answer Lies Within</B><BR>11. <B>Disappear</B> </P>
+Автор: Vit Belov
+
+### 19.03.2008 news Blitz, Portnoy и Bello поют &quot;Overkill&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ниже можно посмотреть отрывок из шоу "<STRONG>Talking Metal on Fuse</STRONG>", в котором джэм-группа<STRONG> TURTLEHEAD</STRONG>, в составе которой вокалист<STRONG> OVERKILL Bobby Blitz</STRONG>, басист <STRONG>ANTHRAX Frank Bello</STRONG> и барабанщик <STRONG>DREAM THEATER Mike Portnoy</STRONG>, исполняет классическую вещь <STRONG>MOTORHEAD "Overkill</STRONG>".</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/QWUH2k9B4R0&hl=en"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/QWUH2k9B4R0&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 31.07.2008 news Новое DVD от DREAM THEATER
+
+<P><STRONG><IMG height=440 alt="" hspace=0 src="/images/news_rus/2008.07/12658.jpg" width=300 align=right border=5>DREAM THEATER</STRONG> подготовили новое концертное DVD "<STRONG>Chaos in Motion</STRONG>", которое выйдет 23 сентября. Издание выйдет в двух вариантах. Обычный двойной DVD и лимитированный 5-дисковый бокс, содержащий ещё три дополнительных CD с концертными записями и другое оформление. Концертные съёмки происходили в течение тура <STRONG>DREAM THEATER</STRONG> "<STRONG>Chaos In Motion 2007/2008</STRONG>", стартовавшего в Милане 3 июня прошлого года. Трэк-лист:</P>
+<P>Disc One:<BR>"Around The World In 180 Minutes" Live Concert Footage <BR>01. <B>Intro/Also Sprach Zarathustra</B> <BR>02. <B>Constant Motion</B> <BR>03. <B>Panic Attack</B> <BR>04. <B>Blind Faith</B> <BR>05. <B>Surrounded</B> <BR>06. <B>The Dark Eternal Night</B> <BR>07. <B>Keyboard Solo</B> <BR>08. <B>Lines In The Sand</B> <BR>09. <B>Scarred</B> <BR>10. <B>Forsaken</B> <BR>11. <B>The Ministry Of Lost Souls</B> <BR>12. <B>Take The Time</B> <BR>13. <B>In The Presence Of Enemies</B> <BR>14. Medley: <BR>I. <B>Trial Of Tears</B><BR>II. <B>Finally Free</B><BR>III. <B>Learning To Live</B><BR>IV. <B>In The Name Of God</B><BR>V. <B>Octavarium</B><BR><BR>Disc Two:<BR>"Behind The Chaos On The Road" Documentary <BR>Promo Videos: <BR>01. <B>Constant Motion</B><BR>02. <B>Forsaken</B><BR>03. <B>Forsaken</B> (In Studio)<BR>04. <B>The Dark Eternal Night</B> (In Studio)<BR>Live Screen Projection Films: <BR>01. <B>The Dark Eternal Night (N.A.D.S)</B><BR>02. <B>The Ministry Of Lost Souls</B><BR>03. <B>In The Presence Of Enemies Pt. 2</B><BR>* Mike Portnoy Stage Tour<BR>* Mike Portnoy Backstage Tour<BR>* Photo Gallery</P>
+Автор: Vit Belov
+
+### 27.11.2008 news DREAM THEATER начали запись
+
+<P>Барабанщик <STRONG>Mike Portnoy</STRONG> уже закончил запись для нового альбома <STRONG>DREAM THEATER</STRONG>, который выйдет в начале следующего года на <STRONG>Roadrunner</STRONG>.</P>
+Автор: Vit Belov
+
+### 30.12.2008 news Mike Portnoy назвал лучших
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=249 alt="" hspace=0 src="/images/news_rus/2008.12/13254.jpg" width=200 align=right border=5>Барабанщик <STRONG>DREAM THEATER Mike Portnoy</STRONG> назвал лучшие по его мнению альбомы 2008 года:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtvisited="1">METALLICA</B> - Death Magnetic<BR itxtvisited="1">02. <B itxtvisited="1">PROTEST THE HERO</B> - Fortress<BR itxtvisited="1">03. <B itxtvisited="1">THE MARS VOLTA</B> - The Bedlam In Goliath<BR itxtvisited="1">04. <B itxtvisited="1">BEARDFISH</B> - Sleeping In Traffic Part 2<BR itxtvisited="1">05. <B itxtvisited="1">SLIPKNOT</B> - All Hope Is Gone<BR itxtvisited="1">06. <B itxtvisited="1">OPETH</B> - Watershed<BR itxtvisited="1">07. <B itxtvisited="1">BLOODBATH</B> - Unblessing The Purity / The Fathomless Mastery<BR itxtvisited="1">08. <B itxtvisited="1">FROST</B> - Experiments In Mass Appeal<BR itxtvisited="1">09. <B itxtvisited="1">TRIVIUM</B> - Shogun<BR itxtvisited="1">10. <B itxtvisited="1">STEVEN WILSON</B> - Insurgentes<BR itxtvisited="1"></FONT></P>
+Автор: Vit Belov
+
+### 03.01.2009 news Mike Portnoy продолжает комментировать
+
+<P><IMG height=269 alt="" hspace=0 src="/images/news_rus/2009.01/13279.jpg" width=400 align=right border=5>Мы уже публиковали Top за 2008 год барабанщика <STRONG>DREAM THEATER Mike Portnoy</STRONG>. На этот раз господин <STRONG>Portnoy</STRONG> высказался более конкретно по поводу каждого из отмеченных альбомов. Приводим выдержки, связанные с "монстрами" и не только:</P>
+<P>"<EM>1. <B>METALLICA</B> - "Death Magnetic"<BR>Было сложно выбирать первое место, но окончательный выбор абсолютно заслужен. Ни один альбом не пнул меня под зад так сильно, как этот. Это новый альбом METALLICA, который я ждал 20 лет! Они сделали свой альбом таким сильным и вдохновленным их своим же творчество 25-летней давности. Назовите хотя бы три группы, способные на это (спрашивали? отвечаем:), EXODUS, TESTAMENT и OVERKILL, комментарий автора).&nbsp;</EM></P>
+<P><EM>4. <B>BEARDFISH</B> - "Sleeping In Traffic Part 2"<BR>Шведские ретро-проггеры были в моём списке за 2007 год с предыдущим альбомом и попали туда в 2008 году за следующую пластинку. Если вы ищете prog-stuff из 70-х, типа ZAPPA, GENESIS и YES, эта пластинка для вас.</EM></P>
+<P><EM>5. <B>SLIPKNOT</B> - "All Hope Is Gone"<BR>SLIPKNOT записали абсолютно великолепный metal альбом, добавив немного мелодики, но не потеряв в брутальности.</EM></P>
+<P><EM>6. <B>OPETH</B> - "Watershed"<BR>Мои коллеги по туру никогда не разочаровывают. Думается, каждый альбом, который они выпускали в новом тысячелетии попадал в мой персональный чарт. Они одна из моих любимейших банд в металле. </EM></P>
+<P><EM>7. <B>BLOODBATH</B> - "Unblessing The Purity" / "The Fathomless Mastery"<BR>Эти пластинки для тех, кто не любит прогрессивность и мелодичность OPETH/ Брутальный сайд-проект <STRONG>Mikael &#197;kerfeldt </STRONG>и </EM><STRONG><EM>Martin Axenrot</EM>".</STRONG></P>
+Автор: Vit Belov
+
+### 13.02.2009 news DREAM THEATER в начале лета
+
+<P>Новый альбом <STRONG>DREAM THEATER</STRONG> выйдет в начале лета на <STRONG>Roadrunner</STRONG>. Продюсерами записи вновь выступили участники коллектива <STRONG>Mike Portnoy</STRONG>&nbsp;и <STRONG>John Petrucci, </STRONG>а сводить альбом будет <STRONG>Paul Northfield.</STRONG></P>
+Автор: Vit Belov
+
+### 13.03.2009 news &quot;Чёрные тучи&quot; гнетут DREAM THEATER
+
+<P><STRONG><IMG height=342 alt="" hspace=0 src="/images/news_rus/2009.03/13734.jpg" width=342 align=right border=5>DREAM THEATER</STRONG> назвали свой десятый студийный альбом <STRONG>"Black Clouds & Silver Linings". </STRONG>Пластинка выйдет 23 июня на <STRONG>Roadrunner</STRONG>. Пластинка будет также доступна в трёхдисковом лимитированном издании, на которое, кроме основной работы, попадут инструментальный микс и 6 кавер-версий, наименование которых сейчас уточняется. Трэк-лист:</P>
+<P>01. <B>A Nightmare to Remember</B><BR>02. <B>A Rite of Passage</B><BR>03. <B>Wither</B><BR>04. <B>The Shattered Fortress</B><BR>05. <B>The Best of Times</B><BR>06. <B>The Count of Tuscany</B></P>
+Автор: Vit Belov
+
+### 03.05.2009 articles DREAM THEATER в Москве, пресс-релиз
+
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><IMG height=283 alt="" hspace=5 src="/images/articles_rus/2009.05/14144.jpg" width=400 align=right vspace=5 border=0>Riff Entertainment представляет:<?xml:namespace prefix = o ns = "urn:schemas-microsoft-com:office:office" /><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><BR>DREAM THATER впервые в Москве!<BR>10&nbsp;июня <?xml:namespace prefix = st1 ns = "urn:schemas-microsoft-com:office:smarttags" /><st1:metricconverter w:st="on" ProductID="2009 г">2009 г</st1:metricconverter>.,&nbsp;Дворец Спорта&nbsp;«Лужники»<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Начало: 19.00<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Майк Портной (Mike Portnoy) – ударные инструменты<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Джон Петруччи (John Petrucci) – гитара<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Джон Мьюнг (John Myung) – бас-гитара&nbsp;<SPAN style="mso-tab-count: 4">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</SPAN><SPAN style="mso-spacerun: yes">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</SPAN></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Джеймс ЛяБри (James LaBrie) – вокал<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Джордан Рьюдс (Jordan Rudess) – клавишные, слайд-гитара<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">В современном обществе бытует мнение, что золотая эпоха прогрессивного рока, балансирующего на грани культового и мэйнстримового успеха, прошла уж более 30 лет тому назад, и что на нынешней рок-сцене просто нет места именам, подобным Pink Floyd, Yes или Rush. Как ни странно, оспорить подобную точку зрения очень просто – всего-навсего одним лишь фактом существования и немалого коммерческого успеха нью-йоркского квинтета Dream Theater, группы, которой мы обязаны существованием самого стиля прогрессив-метал в его современном виде. Более того – современный Dream Theater занял на современной рок-сцене именно то место, каковое в золотые дни прогрессивного и арт-рока занимали<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>вышеупомянутые титаны стиля.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Это тем более удивительно, что по своему встраиванию в современный музыкальный пейзаж Dream Theater совершенно не производит впечатление группы-«динозавра»: сознательно или нет, но музыканты коллектива, похоже, озабочены вхождением в современный рок-мэйнстрим даже на уровне внешнего вида: в какой еще серьезной рок-группе наших дней вы увидите барабанщика-виртуоза далеко не юных лет, аккуратно окрашивающим модную бородку в спектральные цвета? Да и прочие музыканты состава недоступных виртуозов из себя не строят – справедливо полагая, что музыка всё скажет сама за себя, на сцене и фотосессиях они придерживаются нормального «уличного вида». Невероятно, но факт – группа, играющая очень непростую музыку, требующую от слушателя и известной эрудиции, и неослабного внимания на протяжении всего концерта – а они у Dream Theater редко длятся менее двух с половиной часов – с начала нового века оказывается желанным гостем на теоретически молодежных рок-фестивалях, будь то знаменитый британский Download Festival или американский тур-фестиваль Gigantour 2004 года. И еще более удивительным фактом для иных критиков «старой немодной музыки», якобы исполняемой Dream Theater, станет удивительное внимание музыкантов к актуальным «моделям этого года», постоянно прорывающихся в аккуратно разработанном для каждого альбома гитарном звучании и общей манере продюсирования – почти каждый раз новой. Подобный подход возник у группы не вчера – таким образом она творит с 1997 года, а интервью музыкантов постоянно сообщают нам, что они в курсе того, что происходит именно на современной рок-сцене. Так что высказывание лидера группы, барабанщика Майка Портного о том, что «секрет успеха нашей группы заключается в том, что мы всегда были коллективом, не соответствующим текущим рок-музыкальным трендам и вкусам массовой аудитории», не вполне соответствует реальности. Сочетание такого подхода с подлинным рок-энциклопедизмом и преданности идеалам музыки 70-х и 80-х годов и делают Dream Theater совершенно уникальным явлением рок-сцены XXI века.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Но, как обычно и бывает, история одной из лучших групп современности началась очень скромно – в сентябре 1985-го 18-летний житель Нью-Йорка Майк Портной, барабанщик-самоучка и поклонник The Beatles и Фрэнка Заппы с детских лет, поступил в знаменитый бостонский музыкальный колледж Беркли, в котором на протяжении последних десятилетий обучалась не одна сотня ставших впоследствии сверхпопулярными рок-музыкантов. Несмотря на молодость, Майка ни в коем случае нельзя было назвать дилетантом – он уже успел поработать с культовым персонажем нью-йоркского хэви-андерграунда С.А. Адамсом (кстати, в одном составе с будущим именитым продюсером Риком Рубиным) и очередным «американским ответом на Black Sabbath» – квинтетом Inner Sanctum, с которым ему довелось записать полноразмерный альбом «12 a.m» (1985). Буквально через две недели после начала занятий Майк джемовал в репетиционном помещении, и на грохот барабанов заявились столь же юные ученики Беркли – гитарист Джон Петруччи и басист Джон Мьюнг. Троице не потребовалось слишком много времени, чтобы понять, что их вкусы полностью совпадают: их одинаково привлекал как гитарноориентированный прогрессивный рок в диапазоне от Фрэнка Заппы до Dixie Dregs, так и классический хэви-метал, в том числе творчество начинающих на тот момент Metallica и Queensryche. Не прошло и нескольких дней, как Майк и два Джона – оказавшихся, кстати, тоже уроженцами Нью-Йорка – приступили к фиксации своих первых музыкальных идей на четырехдорожечную портостудию Майка.</SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Возвратившись домой на рождественские каникулы, музыканты решили создать полноценный состав и продолжить сочинение авторского материала. Первым рекрутом стал клавишник Кевин Мур, игравший с обоими Джонами в школьной группе Centurion, затем был найден вокалист Крис Коллинз, покоривший Майкла своим умением брать высокие ноты в кавер-версии Queensryche «Queen Of The Reich». К концу мая группа на двух четырехдорожечных магнитофонах записала свою первую настоящую шеститрековую демо-ленту, ставшую в последующие годы одним из излюбленных объектов переизданий CD-бутлеггеров. В это же время квинтет обрел собственное имя Majesty, придуманное весьма странным образом. Вспоминает Майк: «Во время первого семестра в Беркли мы втроем стояли в очереди за билетами на концерт Rush и, естественно, в наших плейерах играла музыка этой группы. Когда я услышал гитарное соло в конце пьесы «Bastille Day», то я поделился с друзьями мыслью, что это соло – совершенное волшебство, на что тут же получил ответ: «Majesty» – отличное название для группы!»</SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">На деньги, предоставленные бабушкой Майка, музыканты напечатали тысячу кассет с записью своего демо – эта запись в последующие годы стала лакомым куском для CD-бутлеггеров всего мира. Активная продажа кассет на летних концертах Majesty и рассылка их «нужным людям» привела к контактам с коллегами из Fates Warning и немецким журналом Rock Hard, однако это движение вперед было прервано разрывом группы с вокалистом: было решено, что Крис слабоват для исполнения материала Majesty. В ноябре группа объявляет о поисках нового вокалиста, но этот процесс затягивается ровно на год – только в ноябре 1987-го фронтменом становится Чарли Доминичи, оказавшийся странным выбором для группы: он был старше остальных музыкантов почти на десять лет, а его музыкальный опыт сводился к долгой работе в ряде нью-йоркских кавер-групп, зато на сцене он мог играть на гитаре и клавишных. Но время, проведенное без вокалиста, не было потеряно Majesty зря – музыканты, уже привыкшие писать материал без вокалиста, за год насоздавали материала на целый альбом, запись которого, как оказалось, была уже не за горами.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">В течение 1987-го группа записала инструментальное девятитрековое демо, три номера с которого в декабре были переписаны как вокальные номера с участием Чарли. Эта кассета через музыкантов группы The Crumbsuckers попала в руки менеджера фирмы Combat Records Стива Синклера, который планировал открытие собственного лейбла Mechanic Records под крылом мэйджора MCA. Стив и его коллеги, среди которых был и будущий менеджер группы Джим Питульский, прибыли на репетиционную базу Majesty на Лонг-Айленде и достаточно впечатлились увиденным, чтобы предложить группе контракт, каковой и был подписан 23 июня 1988 года.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Боссы Mechanic Records предоставили музыкантам Majesty самим выбрать продюсера – им стал Терри Дэйт, поскольку, по словам Майка, «он умел быстро и недорого записывать великолепно звучащие альбомы». Запись была произведена всего за три недели, однако музыканты остались недовольны финальным миксом. Пару пьес с альбома перемикшировал знаменитый продюсер Rush Терри Браун, однако они так и не увидели света. А перед самым изданием дебюта, получившего название «When Dream And Day Unite», когда уже был готов логотип группы и обложка LP и CD, фирме стало известно, что название Majesty носит еще одна любительская группа из Лас-Вегаса, причем оно является официально зарегистрированным. Пришлось лихорадочно придумывать новое имя группы – и после обсуждения таких неблагозвучных имен, как Glasser, Magus и M1 – отец Майка, Говард Портной предложил название Dream Theater, которое некогда носил один из кинотеатров в калифорнийском городе Монтерее, где Говард некогда жил. Дебютный альбом обретшей новое имя группы поступил в продажу 6 марта 1989 года, но, к сожалению, не снискал почти никакой реакции на родине музыкантов – положительные, и весьма, отзывы поступали лишь из Европы да Японии. Интересно отметить, что и в России имя Dream Theater было замечено меломанами еще летом 1989-го… Однако Mechanic Records так и не сдержала обещаний о съемках клипа или о предоставлении бюджета для национального турне коллектива. Группа вернулась в свой репетиционный подвал на Лонг-Айленде, и вновь в составе квартета – Чарли Доминичи покинул Dream Theater, его последним выступлением стал концерт 14 марта, когда наши герои открывали нью-йоркское выступление обновленных Marillion.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Для Dream Theater опять наступил весьма длительный период пребывания в сумеречной зоне – музыканты писали новый материал, давали чисто инструментальные концерты и пробовали все новых и новых вокалистов. Тем не менее, к тому моменту это был один из самых продуктивных периодов в истории группы – музыканты чувствовали, что в случае успеха у них получится совершенно уникальный альбом. К этому же периоду относятся первые контакты с A&R-менеджером фирмы грамзаписи ATCO Records Дереком Оливером – бывшим журналистом английского еженедельника KERRANG!, весьма высоко оценившим весной 1989-го дебютный альбом группы. Будучи уверен в высоком потенциале Dream Theater, Дерек в этот момент выступал в роли стороннего менеджера группы. Именно он посоветовал музыкантам написать пару более коммерчески звучащих номеров для второго альбома (ими стали в конце концов «Another Day» и «Surrounded»), и не брать в состав певца Криса Цинтрона, с которым группа решила было работать в декабре 1990-го. Сам же процесс поиска вокалиста был мучительным – музыканты прослушали почти за два года около 20 кандидатов (в том числе бывшего фронтмена Fates Warning Джона Эрча), но лишь в конце декабря того же 1990-го к ним в руки попала демо-лента певца из Торонто Кевина ЛяБри, работавшего с местными хард-роковыми составами Winter Rose и Coney Hatch. Кевин прибыл в Нью-Йорк 19 января уже 1991-го, и музыканты смогли вздохнуть свободно – проблема с вокалистом оказалась решена раз и навсегда. Новый участник группы стал использовать в качестве сценического имени свое среднее имя – по словам Майка, «при наличии в группе двух Джонов иметь в ней еще и двух Кевинов было бы безумством». Группа приступила к записи демо-материала для ATCO Records, контракт с которой был подписан в апреле, но с рядом оговорок: Dream Theater лишались всех прав на альбом «When Dream And Day Unite», плюс Mechanic Records впредь получала определенный процент с продаж будущих альбомов группы. Но уже в мае музыканты приступили к предварительной работе над новым материалом с продюсером Дэвидом Прэтером и инженером Дугом Оберкирхером, непосредственно же запись новинки стартовала 14 октября. Надо отдать должное продюсерской команды этой, решающей для Dream Theater работы, получившей название «Images And Words» – не без сопротивления музыкантов звучание состава было в достаточной степени подкорректировано в сторону достаточно коммерческого AOR-звучания, характерного для более ранних работ Дэвида. Как бы то ни было, а «Images And Words» стал прорывом не только для группы, но и для прогрессив-метала как стиля: общемировые продажи альбома перевалили за миллион экземпляров, мировое турне в его поддержку в конце концов включило более 200 концертов, а по его результатам был выпущен мини-альбом «Live At The Marquee» (1993). И это – на фоне коммерческого расцвета гранжа! Да и определение «прогрессив-метал» вошел во всеобщее употребление именно после неожиданного успеха «Images And Words», который, естественно, стал образцом для подражания сотен составов во всем мире.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">К январю 1994-го группа ощущала себя триумфаторами – но в то же время она оказалась в очень странном и новом для себя положении: менеджеры ATCO Records требовали, чтобы очередной студийный CD был выпущен уже в третьем квартале года, а материала на полную программу катастрофически не хватало: был готов лишь акустический номер «Silent Man» плюс фрагменты еще пары пьес. Но музыканты быстро освоились с условиями творчества «под давлением» – уже к апрелю были готовы все 11 номеров будущего альбома, получившего название «Awake». Его продюсерами стали хорошо известные в кругах американского корпоративного рока Дюэн Бэрон и Джон Парделл, и когда осенью CD увидел свет, то стало ясно – Dream Theater ни в коей мере не является группой, стоящей на месте. «Awake» оказался одновременно очень непростой музыкально и вполне современно звучащей работой, смело осваивающей новые для квинтета территории, будь то техно-трэш («Lie») или мэйнстримовый поп-рок в духе любимых музыкантами U2 («Lifting Shadows Off A Dream»). К сожалению, финальная пьеса альбома, замороженный по звучанию пианистический номер «Space-Dye Vest» авторства Кевина и с его же вокалом, ознаменовал конец сотрудничества выдающегося клавишника с группой: Кевину оказался ближе стиль работы сольного инструменталиста и камерная, клавишноориентированная музыка не без изрядной тяги к экспериментам, впоследствии исполнявшаяся им в проектах Chroma Key и OSI.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Поскольку мировое турне в поддержку нового альбома было уже распланировано, перед музыкантами встал вопрос о поиске нового клавишника. Невероятно, но первой кандидатурой на это место стал именно нынешний музыкант Dream Theater, виртуоз Джордан Рьюдс. Однако у ветерана американской прог-фьюжн-сцены, чья профессиональная карьера началась еще в 1979-м в причудливом составе Speedway Boulevard на ближайшее время оказался весьма плотный график сольных работ и выступлений – в тот момент Джордан дал с группой всего несколько концертов на территории США. Ультимативной же заменой Кевину стал Дерек Шериньян – один из опытнейших сайдменов американской хард-роковой сцены, чей послужный список включал концертную работу с такими монстрами рок-мэйнстрима, как Элис Купер и Kiss. Будучи музыкантом с радикально иными вкусами, нежели Кевин – интересы Дерека всегда лежали в области электического джаз-рока и фьюжна 70-х – молодой виртуоз смог привнести в звучание Dream Theater особенные краски. Однако до работы над новым материалом было еще далеко – сперва музыканты решили возвратить своим поклонникам изрядный должок: дело в том, что одной из классических пьес раннего состава группы являлся 23-минутный эпик «A Change Of Season», созданный еще в 1989-м и неоднократно исполнявшийся на концертах, но так и не увековеченный на звуковых носителях: первоначально запланированный к включению в «Images And Words», он оказался убран из трек-листа по требованию фирмы грамзаписи. Теперь, будучи группой с крепкой репутацией, Dream Theater, смогли убедить издателей в необходимости издания альбома «не для всех». Ради получения должного звучания Майк и его коллеги согласились на кратковременное возобновление отношений с Дэвидом Прэтером и Дугом Оберкирхером, работавшими над «Images And Words». Мини-альбом «A Change Of Season» был издан в 1995 году, а его бонус-треками оказались концертные номера с легендарного выступления группы в лондонском джазовом клубе Ronnie Scott’s 31 января того же года, где Dream Theater впервые в своей истории представил программу, состоявшую целиком из кавер-версий своих кумиров – от Джона Леннона и Элтона Джона до Metallica и Marillion. Эта традиция впоследствии получила свое развитие в программах «An Evening With Dream Theater» – всякий раз, когда группа играет подобную двухчастную программу дважды на одной площадке, на второй день во втором отделении она исполняет, причем полностью, материал какого-либо классического рок-альбома былого. На сегодняшний день на клубных дисках группы уже увековечены подобные выступления с полными кавер-версиями альбомов «Master Of Puppets» Metallica, «The Number Of The Beast» Iron Maiden, «Dark Side Of The Moon» Pink Floyd и даже «Made In Japan» Deep Purple!<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Невзирая на закономерный триумф на всех значимых мировых рок-территориях, следующие три года существования группы оказались для нее весьма сложными – дело чуть не закончилось полным распадом Dream Theater, ибо летом 1998-го группу задумал покинуть ее лидер, Майк Портной. Причиной тому стала вымотавшая все души музыкантов работа над альбомом «Falling Into Infinity» (1997) – классический пример ситуации «лебедь, рак и щука»: представления музыкантов о будущей работе категорически разошлись с таковыми у Дерека Оливера и его боссами с уже реформированной фирмы-издателя. Будь воля музыкантов – альбом вообще получился бы двойным, в реальности же Майк был вынужден выслушивать требования менеджеров о «написании хит-сингла» и работать над номером «You Not Me» с известнейшим поп-роковым продюсером Десмондом Чайлдом. Тем не менее, музыканты смогли извлечь из всех перипетий несомненную пользу – именно этот альбом ознаменовал начало их сотрудничества с выдающимся продюсером Кевином Ширли, а сам «Falling Into Infinity» весьма помог расширению аудитории Dream Theater за счет обращения к более современным аранжировкам, в полной мере отразившим интерес Майка к сверхновым хэви-группам вроде Korn. Компенсацией за все переживания стал первый воистину классический концертник группы «Once In A LIVEtime» (1998), скроенный по лекалам великих концертных арт-роковых альбомов 70-х и представляющий группу в прямо-таки невероятной форме.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Однако подобные конфликты с фирмой грамзаписи привели Майка к правильному решению: им было объявлено, что отныне группа представляет фирме-издателю уже готовый материал. Поскольку Dream Theater уже являлся важной коммерческой позицией в каталоге Warner Music, менеджеры пошли навстречу музыкантам – и не прогадали: концептуальный альбом «Metropolis Pt. 2: Scenes From A Memory» (1999), задуманный и созданный группой как логическое продолжение «Images And Words», был единодушно признан едва ли не всеми музыкальными изданиями мира как одна из наиболее значимых рок-работ не то что года, а и всех 90-х. На самом деле группе удалось записать работу, являющуюся своего рода развитием общедоступных работ Pink Floyd 70-х, чему поспособствовало нерадикальное звучание CD – инженером здесь опять же выступил Дуг Оберкирхер. К тому же именно к записи «Metropolis Pt. 2…» новым клавишником группы стал уже знакомый нам Джордан Рьюдс: Майк и Джон успели в 1996-1997 гг. поработать с ним над двумя инструментальными CD проекта Liquid Tension Experiment и убедиться в отличном взаимном музыкальном контакте. И к рубежу веков Dream Theater подошел уже «монстром рока» в хорошем смысле этого слова: каждый студийный альбом теперь сопровождался монументальным концертным творением, а в 2003-м свою деятельность начала собственная фирма музыкантов Ytsejam Records («Majesty» задом наперед), издающая официальные концертные и студийный бутлеги группы, в том числе сборники демо-лент к официальным CD и вышеупомянутые «трибьютные концертники». На сегодняшний день на счету Ytsejam Records уже 15 CD и три DVD-релиза. Кроме того, музыканты Dream Theater активно участвуют в сольных и сайд-проектах, причем с особенным размахом – сам лидер группы Майк Портной, постоянно организующий трибюты великим группам былого (The Beatles, The Who, Led Zeppelin и Rush) с музыкантами из иных составов и не забывающий издавать концертные записи оных на CD и DVD.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">XXI век начался для Dream Theater экспериментами в области утяжеления звучания – но если двойной альбом «Six Degrees Of Inner Turbulence» (2002) можно было назвать переосмыслением наиболее хард-роковых моментов из наследия Pink Floyd и Yes, то в облике скромно оформленного «Train Of Thought» (2003) публике оказался явлен не более и не менее как собственный «черный альбом» группы – на нем Dream Theater представил публике техно-трэш высшей пробы. Но по-настоящему триумфальными альбомами для группы стали «Octavarium» (2005) и «Systematic Chaos» (2007) – работы, позволяющие на полном серьезе говорить о Dream Theater как о современных преемниках Pink Floyd. Можно смело предположить, что это движение к вершинам мастерства будет продолжено и на очередном, десятом студийном альбоме группы, получившим название «Black Clouds & Silver Linings», и выпуск которого запланирован на 23 июня. Во всяком случае Майк Портной уже успел отрекомендовать эту работу как «синтез абсолютно всех элементов, характерных для Dream Theater – этот альбом одинаково понравится и поклонникам «Images And Words», и «Systematic Chaos».<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"></SPAN>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Наше знакомство как с новейшим, так и классическим материалом выдающейся нью-йоркской группы состоится 10 июня в Лужниках – смело можно рассчитывать на то, что Dream Theater в своей традиции проведут на сцене не менее двух с половиной часов и докажут всем сомневающимся, что виртуозная игра на инструментах легко может быть основой совершенно незабываемого шоу. Залогом отличного концерта станет и его уникальное техническое обеспечение – Dream Theater отличает неистовый перфекционизм в деле выстраивания собственного звучания. А раз так – то группа играет только на собственной звуковой аппаратуре, немалый комплект которой путешествует вместе с группой во всем мировом турне. В числе ее – уникальная сдвоенная ударная установка Майка Портного, игра музыканта на которой – настоящий спектакль, а даже и не просто шоу. То же самое относится и визуальному обеспечению концерта – современное световое шоу Dream Theater одновременно является в меру аскетичным и незабываемым, одновременно придерживающимся современной эстетики и отсылающее к лучшим образцам подобных шоу 70-х годов.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Грядущий концерт Dream Theater – именно тот случай, когда группа, прибывающая в Москву, находится на пике творческой формы и живет не былыми, но современными заслугами. А раз так, то любому интересующемуся современной музыкой человеку пропустить московский концерт группы со столь занимательной и разнообразной историей никак нельзя.<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><EM>© 2009 Всеволод БАРОНИН, редактор газеты «Легионер Weekly» сети музыкальынх магазинов «Пурпурный Легион» (Москва – С.-Петербург).<o:p></o:p></EM></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana"></SPAN>&nbsp;</P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальная дискография Dream Theater (студийные альбомы):<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«When Dream And Day Unite» (1989, Mechanic Records / MCA)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Images And Words» (1992, ATCO Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Awake» (1994, ATCO Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«A Change Of Seasons» (1995, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Falling Into Infinity» (1997, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Metropolis Pt.2: Scenes From A Memory» (1999, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Six Degrees Of Inner Turbulence» (2002, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Train Of Thought» (2003, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Octavarium» (2005, Roadrunner Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Systematic Chaos» (2007, Roadrunner Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Greatest Hit (…And 21 Other Pretty Cool Songs)» 2 CD (2008, ATCO Records / Rhino Records) – </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">сборник</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальная дискография Dream Theater (синглы):<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Another Day» (1992, ATCO Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Lie» (1994, ATCO Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«The Silent Man» (1994, ATCO Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Hollow Years» (1998, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Through Her Eyes» (2000, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальная дискография Dream Theater (концертные альбомы):<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Live At The Marquee» (1993, ATCO Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Once In A LIVEtime» 2 CD (1998, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Live Scenes From New York» 3 CD (2001, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Live At Budokan» 3 CD (2004, Rhino Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Score» 3 CD (2006 Rhino Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Авторизованные CD-бутлеги Dream Theater:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«The Majesty Demos» (2003, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Los Angeles, California – 5/18/98» 2 CD (2003, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«The Making Of Scenes From A Memory» 2 CD (2003, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«When Dream And Day Unite Demos 1987-1989» 2 CD (2004, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Tokyo, Japan – 10/28/95» 2 CD (2004, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Master Of Puppets» (2004, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Images And Words Demos 1989-1991» (2005, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«The Number Of The Beast» (2005, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«When Dream And Day Reunite» (2005, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Awake Demos 1994» (2006, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Old Bridge, New Jersey 12/14/96» 2 CD (2006, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Dark Side Of The Moon» 2 CD (2006, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«New York City 3/4/93» 2 CD (2007, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Falling Into Infinity Demos 1996-1997» 2 CD (2007, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Made In Japan» (2007, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Официальная</SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> </SPAN><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">видеография</SPAN><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"> Dream Theater:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Images And Words: Live In Tokyo» VHS (1993, ATCO Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«5 Years In A LIVEtime» VHS (1998, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Metropolis 2000: Scenes From New York» DVD (2001, EastWest Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Images And Words: Live In Tokyo» / «5 Years In A LIVEtime» 2 DVD (2004, Rhino Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Live At Budokan» 2 DVD (2004, Rhino Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Score» 2 DVD (2006, Rhino Records / Warmer Music)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Chaos In Motion 2007-2008» 2 DVD / 2 DVD + 3 CD (2008, Roadrunner Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US"><o:p>&nbsp;</o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana">Авторизованные DVD-бутлеги Dream Theater:<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«When Dream And Day Reunite» (2005, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Dark Side Of The Moon» (2006, Ytsejam Records)<o:p></o:p></SPAN></P>
+<P class=MsoNormal style="MARGIN: 0mm 0mm 0pt"><SPAN lang=EN-US style="FONT-SIZE: 8.5pt; COLOR: white; FONT-FAMILY: Verdana; mso-ansi-language: EN-US">«Bucharest, Romania 7/4/02» 2 DVD (2007, Ytsejam Records)</SPAN></P>
+Автор: Headcrusher
+
+### 09.05.2009 news Новое видео DREAM THEATER
+
+<P>Видео на новую песню <STRONG>DREAM THEATER</STRONG> <STRONG>"A Rite of Passage" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=346 width=420><PARAM NAME="movie" VALUE="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/2462"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.roadrunnerrecords.com/widgets/videoplayer_swf/2462" type="application/x-shockwave-flash" allowfullscreen="true" width="420" height="346"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.05.2009 news Новый сольник клавишника DREAM THEATER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клавишник<STRONG> DREAM THEATER</STRONG> <STRONG>Jordan Rudess</STRONG> подготовил к релизу 2 июня новый сольник "<STRONG>Notes On A Dream</STRONG>". На него войдут фортепианные версии баллад группы, а также новые композиции самого музыканта, исполненные в том же ключе. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>Through Her Eyes<BR></STRONG>02. <STRONG>Lifting Shadows Off a Dream</STRONG><BR>03. <STRONG>Perpetuum Mobile</STRONG><BR>04.<STRONG> The Silent Man</STRONG><BR>05. <STRONG>Another Day</STRONG><BR>06. <STRONG>Hollow Years</STRONG><BR>07. <STRONG>The Grand Escapement</STRONG><BR>08. <STRONG>The Spirit Carries On<BR></STRONG>09. <STRONG>Speak To Me</STRONG><BR>10. <STRONG>The Answer Lies Within</STRONG><BR>11. <STRONG>Collision Point</STRONG><BR>12. <STRONG>Vacant</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 05.06.2009 news Автограф-сессия DREAM THEATER
+
+<P><IMG height=253 alt="" hspace=5 src="/images/news_rus/2009.06/14150.jpg" width=400 align=right vspace=5 border=0>10 июня американская прог-металлическая группа <FONT style="BACKGROUND-COLOR: #000000"><STRONG>DREAM THEATER</STRONG></FONT> даст первый и единственный концерт в Москве, выступление пройдет на сцене ГКЦЗ "Россия" в ДС "Лужники".</P>
+<P>Перед этим группа пообщается с поклонниками:&nbsp;автограф-сессия <FONT style="BACKGROUND-COLOR: #000000"><STRONG>DREAM THEATER</STRONG> </FONT>состоится 10 июня в 12.30 в салоне «Настроение» в ТЦ Тишинский (Тишинская площадь, д. 1).</P>
+Автор: Headcrusher
+
+### 02.07.2009 news DREAM THEATER попали в чарты
+
+<P>Новый альбом<STRONG> DREAM THEATER</STRONG> <STRONG>"Black Clouds & Silver Linings"</STRONG> попал в чарты во многих странах. Вот результаты:</P>
+<P>Australia: #16<BR>Canada: #5<BR>Finland: #14<BR>Germany: #3<BR>Italy: #5<BR>Norway: #7<BR>Switzerland: #9<BR>The Netherlands: #3<BR>UK: #23<BR>USA: #6</P>
+<P>В США в первую неделю было продано 40000 копий.</P>
+Автор: Vit Belov
+
+### 13.11.2009 news DREAM THEATER запишут трэк для игры
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик<STRONG> DREAM THEATER Mike Portnooy</STRONG> расскзал о планах своих и группы на 2010 год. Среди нескончаемых концертов и туров в поддержку последнего релиза группы <STRONG>'Black Clouds & Silver Linings' </STRONG>затесалась одна нетривиальная вещь. В начале следующего года <STRONG>DREAM THEATER</STRONG> войдут в студию, где запишут инструментальный трэк для третьей части популярной компьютерной игры <STRONG>Gods Of War</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сам <STRONG>Mike Portnoy</STRONG> планирует отправиться в тур и с возродившимися <STRONG>TRANSATLANTIC</STRONG>. All-Star группа, в которой, кроме <STRONG>Portnoy</STRONG>, участвуют <B>Pete Trewavas (MARILLION)</B>, <B>Roine Stolt (THE FLOWER KINGS)</B>&nbsp;и <B>Neal Morse</B> (ex-<B>SPOCK'S BEARD</B>),&nbsp;даст серию концертов весной.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 19.11.2009 news Новое видео DREAM THEATER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип на песню <STRONG>DREAM THEATER</STRONG> <STRONG>"Wither" </STRONG>можно посмотреть ниже. Материал для ролика был отснят во время последнего тура группы по Европе. Недавно сингл "<STRONG>Wither</STRONG>" был издан on-line.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/PpMDEQSwXjw&ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/PpMDEQSwXjw&ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.02.2010 news MIKE PORTNOY на новом альбоме AVENGED SEVENFOLD
+
+<P>Барабанщик <STRONG>DREAM THEATER</STRONG> <STRONG>Mike Portnoy</STRONG> закончил запись ударных инструментов для нового альбома <STRONG>AVENGED SEVENFOLD</STRONG>. <STRONG>Portnoy</STRONG>&nbsp;заменил, умершего в декабре прошлого года,&nbsp;барабанщика группы&nbsp;по имени&nbsp;<STRONG>James "The Rev" Sullivan</STRONG>. </P>
+Автор: Headcrusher
+
+### 03.03.2010 news Металисты поддержали игру
+
+<P>2 марта на<STRONG> Roadrunner</STRONG> вышло специальное EP, посвящённое выходу мегаблокбастера <STRONG>"God of War III"</STRONG>. Этот сборник из шести песен будет доступен в качестве бонуса к специальному изданию этой игры для<STRONG> Sony Playstation</STRONG>. Вот трэк-лист:</P>
+<P>01. <B>KILLSWITCH ENGAGE</B> - "My Obsession"<BR>02. <B>TRIVIUM</B> - "Shattering The Skies Above"<BR>03. <B>DREAM THEATER</B> - "Raw Dog"<BR>04. <B>TAKING DAWN</B> - "This Is Madness"<BR>05. <B>OPETH</B> - "The Throat Of Winter"<BR>06. <B>MUTINY WITHIN</B> - "The End"</P>
+<P><STRONG>TRIVIUM </STRONG>выложили в сеть видео на свою песню, которое можно посмотреть чуть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.05.2010 news Akerfeldt, Portnoy и Wilson готовят новый проект
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Steven Wilson (PORCUPINE TREE), Mikael Akerfeldt (OPETH)</STRONG> и <STRONG>Mike Portnoy (DREAM THEATER)</STRONG> заняты сощданием музыки для своего&nbsp;совместного проекта. Сообщается, что <STRONG>Wilson</STRONG> и <STRONG>Akerfeldt</STRONG> уже работали вместе в Лондоне и&nbsp;сочинили где-то 15 минут материала. Лидер<STRONG> PORCUPINE TREE</STRONG> утверждает, что результат будет сюрпризом для слушателей. Музыка этого проекта остаётся роком в общем понимании, но материал очень разнообразен и необычен для музыкантов.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отметим, что основные группы вышеуказанных музыкантов подписаны на<STRONG> Roadrunner Records</STRONG>. Вполне логично предположить, что это лэйбл принял некое участие в инициации этого проекта.</FONT></P>
+Автор: Vit Belov
+
+### 23.07.2010 news LaBrie выпускает новый сольник
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16935.jpg" width=145 height=210>Новый сольный альбом вокалиста <STRONG>DREAM THEATER James LaBrie</STRONG> <STRONG>"Static Impulse" </STRONG>выходит 28 сентября на <STRONG>InsideOut</STRONG>. Сведением и мастерингом этой работы занимался <STRONG>Jens Borgen</STRONG> (<B>OPETH</B>, <B>KATATONIA</B>). В записи пластинки также приняли участие многолетний партнёр певца <STRONG>Matt Guillory, </STRONG>участник <STRONG>DARKANE</STRONG> <STRONG>Peter Wildoer, </STRONG>который сыграл на барабанах и подпел скримингом (!!!), гитарист <STRONG>Marco Sfogli</STRONG> и басист, работавший с<STRONG> HALFORD</STRONG> <STRONG>Ray Riendeau.</STRONG></P>
+Автор: Vit Belov
+
+### 10.09.2010 news Барабанщик Mike Portnoy покинул DREAM THEATER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17159.jpg" width=219 height=250>Барабанщик <STRONG>Mike Portnoy</STRONG> опубликовал на форуме своего официального сайта&nbsp;заявление о том, что покидает группу <STRONG>DREAM THEATER</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот несколько выдержек из текста пресс-релиза, написанного Майком по этому поводу:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"После 25 лет игры, я принял решение покинуть <STRONG>DREAM THEATER</STRONG>....группу, которую я собрал, которой руководил&nbsp;и которую&nbsp;по настоящему любил четверть века.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Для многих людей это окажется полнейшим шоком, а некоторые просто не поймут, но пожалуйста, поверьте мне, это не поспешное решение...это то, с чем я сражался на протяжении года или около того...</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>После того, как,&nbsp; в прошлом году,&nbsp;я прекрасно&nbsp;отыграл с <STRONG>HAIL</STRONG>, <STRONG>TRANSATLANTIC</STRONG> и <STRONG>AVENGED SEVENFOLD</STRONG>, я, к сожалению, пришёл к выводу, что в настоящее время получаю больше радости, когда играю с этими проектами, нежели, в&nbsp;<STRONG>DREAM THEATER</STRONG>, да и&nbsp;личные взаимоотношения&nbsp;в тех группах у меня лучше."</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Далee Майк пишет, что хотел договориться с остальными участниками <STRONG>DREAM THATER</STRONG> о том, чтобы сделать перерыв в творчестве и отдохнуть друг от друга, но к сожалению, больше никто в группе не поддержал его. После чего, он решил принести себя в жертву и принял трудное решение покинуть коллектив.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Оригинал заявления можно прочитать по адресу: <A href="http://www.mikeportnoy.com/forum/m2585154.aspx">www.mikeportnoy.com/forum/m2585154.aspx</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Оставшиеся участники <STRONG>DREAM THEATER</STRONG>,&nbsp;в свою очередь,&nbsp;сообщили, что не намерены прекращать деятельность и начнут запись нового альбома, как и было ранее запланированно, в январе 2011 года.</FONT></P>
+Автор: Headcrusher
+
+### 04.01.2011 news DREAM THEATER вошли в студию
+
+<P><IMG height=153 alt="" hspace=0 src="/images/news_rus/2011.01/18008.jpg" width=300 align=right border=0>Progressive-metal боги<STRONG> DREAM THEATER</STRONG> вошли в студию для записи первого альбома после расставания с основателем коллектива барабанщиком<STRONG> Mike Portnoy</STRONG>. </P>
+<P>Между тем, имя нового барабанщика пока не объявлено.</P>
+Автор: Vit Belov
+
+### 26.02.2011 news James LaBrie в новом видео EDEN&#39;S CURSE
+
+<P>Новое видео<STRONG> EDEN'S CURSE</STRONG> на песню <STRONG>"No Holy Man" </STRONG>можно посмотреть ниже. Песня с участием вокалиста<STRONG> DREAM THEATER James LaBrie</STRONG> была недавна выпущена <STRONG>AFM</STRONG> как цифровой сингл. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/NOw2kLzE-5k?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/NOw2kLzE-5k?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.04.2011 news DREAM THEATER назвали претендентов
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.04/19308.jpg" width=400 align=right border=0>Прогрессив-Боги <STRONG>DREAM THEATER</STRONG> продолжают интриговать общественность своим новым барабанщиком. Группа опубликовала список семи величайших, по их мнению, музыкантов, которые проходили прослушивание на вакантное место, освободившиеся после ухода из коллектива <STRONG>Mike Portnoy. </STRONG>Один из этих персонажей новый участник <STRONG>DREAM THEATER</STRONG>:</P>
+<P>* <B>Aquiles Priester</B> (age 39) (ANGRA, PAUL DI'ANNO)<BR>* <B>Peter Wildoer</B> (age 36) (DARKANE)<BR>* <B>Marco Minnemann</B> (age 40) (KREATOR, NECROPHAGIST, EPHEL DUATH, JOE SATRIANI)<BR>* <B>Virgil Donati</B> (age 52) (PLANET X, SEVEN THE HARDWAY)<BR>* <B>Derek Roddy</B> (age 38) (HATE ETERNAL, NILE, TODAY IS THE DAY)<BR>* <B>Mike Mangini</B> (age 48) (STEVE VAI, EXTREME, ANNIHILATOR)<BR>* <B>Thomas Lang</B> (age 43) (JOHN WETTON, ROBERT FRIPP, GLENN HUGHES)</P>
+Автор: Vit Belov
+
+### 30.04.2011 news Mike Mangini - новый барабанщик DREAM THEATER 
+
+<P>48-летний барабанщик <STRONG>Mike Mangini </STRONG>стал официальным новым барабанщиком в <STRONG>DREAM THEATER.</STRONG> <STRONG>Mike</STRONG> - сессионный музыкант, игравший с <STRONG>ANNIHILATOR</STRONG>, <B>EXTREME</B>, <B>JAMES LABRIE</B>&nbsp;и <B>STEVE VAI. </B></P>
+<P><STRONG>Mangini </STRONG>считается одним из быстрейших барабанщиков современной музыки. Также музыкант выпустил две книги, посвящённые игре на инструменте. Музыкант записывал альбом<STRONG> ANNIHILATOR</STRONG> <STRONG>"Set The World On Fire", </STRONG>участвовал в записи альбомов <STRONG>Steve Vai</STRONG> <STRONG>"Fire Garden"</STRONG>&nbsp;и <STRONG>"Ultrazone" </STRONG>и преподавал в колледже Беркли.</P>
+<P><center><IMG height=354 src="/images/news_rus/2011.04/19357.jpg" width=448 border=0></P>
+Автор: Vit Belov
+
+### 09.06.2011 news Новый альбом DREAM THEATER
+
+<P><STRONG><IMG height=266 alt="" hspace=0 src="/images/news_rus/2011.06/19595.jpg" width=400 align=right border=0>DREAM THEATER</STRONG> назвали свой новый альбом <STRONG>"A Dramatic Turn Of Events". </STRONG>Пластинка выйдет 13 сентября на <STRONG>Roadrunner Records</STRONG>. В настоящее время запись проходит стадию сведения, которой занимается <STRONG>Andy Wallace (AVENGED SEVENFOLD</STRONG>, <STRONG>WHITE ZOMBIE</STRONG>, <STRONG>RAGE AGAINST THE MACHINE</STRONG>, <STRONG>SEPULTURA</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>NIRVANA). </STRONG>Трек-лист:</P>
+<P>01. <B>On The Backs Of Angels</B> <BR>02. <B>Build Me Up, Break Me Down</B><BR>03. <B>Lost Not Forgotten</B> <BR>04. <B>This Is The Life</B> <BR>05. <B>The Shaman's Trance</B> <BR>06. <B>Outcry</B> <BR>07. <B>Far From Heaven</B> <BR>08. <B>Breaking All Illusions</B> <BR>09. <B>Beneath The Surface</B></P>
+Автор: Vit Belov
+
+### 29.06.2011 news Новая песня DREAM THEATER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>DREAM THEATER</STRONG> <STRONG>"On The Backs Of Angels" </STRONG>с выходящего в сентябре альбома <STRONG>"A Dramatic Turn Of Events" </STRONG>можно послушать на <STRONG>YouTube</STRONG> канале <STRONG>Roadrunner Records</STRONG> по адресу <A href="http://www.youtube.com/watch?v=oasnbzEMV08">http://www.youtube.com/watch?v=oasnbzEMV08</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Записанный альбом стал первой работой американцев без оригинального барабанщика <STRONG>Mike Portnoy</STRONG> и соответственно дебютом для нового музыканта <STRONG>Mike Mangini.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DREAM THEATER </STRONG>выступят в Москве 12 июля в <STRONG>Крокус Сити Холл</STRONG>.</FONT></P>
+<P><center><IMG height=316 src="/images/news_rus/2011.06/19795.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 20.07.2011 news Бонус-диск нового DREAM THEATER
+
+<P>Новый альбом <STRONG>DREAM THEATER</STRONG> <STRONG>"A Dramatic Turn Of Events" </STRONG>выходит 13 сентября на <STRONG>Roadrunner Records</STRONG>. Появился трек-лист бонусного диска выходящей пластинки, на неё войдут инструментальные версии всех песен альбома. </P>
+<P>12 июня американская группа выступила в Москве. Фото: <A href="/ru/galleries/1/735/">http://musica.mustdie.ru/ru/galleries/1/735/</A></P>
+<P><center><IMG height=475 src="/images/news_rus/2011.07/20259.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 27.07.2011 news Portnoy будет работать с Sykes
+
+<P>Бывший барабанщик<STRONG> DREAM THEATER Mike Por</STRONG>tnoy и гитарист/вокалист <STRONG>John Sykes</STRONG> (<B>WHITESNAKE</B>, <B>BLUE MURDER</B>, <B>THIN LIZZY</B>) объявили о создании нового проекта. Пока не названо имя басиста этого трио, но новообразованный коллектив уже записывает музыку в студии в Лос-Анджелесе.</P>
+<P><STRONG>Portnoy </STRONG>назвал музыку смесью <STRONG>LED ZEPPILIN, BLACK SABBATH, PINK FLOYD</STRONG> и <STRONG>DEEP PURPLE</STRONG>.</P>
+<P><center><IMG height=600 src="/images/news_rus/2011.07/20332.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 16.09.2011 news Видео от DREAM THEATER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню с нового альбома <STRONG>DREAM THEATER</STRONG> "<STRONG>A Dramatic Turn Of Events" </STRONG>можно посмотреть ниже. Пластинка вышла 13 сентября на <STRONG>Roadrunner</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT id=uvp_fop height=255 width=400 allowFullScreen="true"><PARAM NAME="movie" VALUE="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf"><PARAM NAME="flashVars" VALUE="id=v221576286&eID=1301797&lang=us&enableFullScreen=0&shareEnable=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed height="255" width="400" id="uvp_fop" allowFullScreen="true" src="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf" type="application/x-shockwave-flash" flashvars="id=v221576286&eID=1301797&lang=us&ympsc=4195329&enableFullScreen=1&shareEnable=1" /></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.09.2011 news DREAM THEATER: клип на песню &quot;On The Backs Of Angels&quot;
+
+<P>Новый клип группы <STRONG>DREAM THEATER</STRONG> на песню <STRONG>"On The Backs Of Angels"</STRONG> с последнего альбома <STRONG>"A Dramatic Turn Of Events"</STRONG>, можно посмотреть ниже.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/oTJRivZTMLs" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.10.2011 news Пятый студийный альбом DREAM THEATER - впервые на виниле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21642.jpg" width=250 height=250>Лейбл <STRONG>Enjoy The Ride Records</STRONG>, при содействии <B>WEA</B> и <B>Brookvale Records</B>, выпускает пятый альбом <STRONG>"Metropolis Pt. 2: Scenes From A Memory"</STRONG> (1999)&nbsp;группы <STRONG>DREAM THEATER </STRONG>на виниле. Впервые этот альбом увидет свет в подобном формате.&nbsp;</P>
+<P>Двойной 180 грамовый винил, упакованный в раскрывающийся конверт, будет доступен для покупки с 25 ноября. </P>
+<P>Предварительный заказ винила можно сделать по следующей ссылке:</P>
+<P><A href="http://brookvalerecords.com/2011/10/20/dream-theater-metropolis-pt2-scenes-from-a-memory/">http://brookvalerecords.com/2011/10/20/dream-theater-metropolis-pt2-scenes-from-a-memory/</A><BR></P>
+Автор: Headcrusher
+
+### 07.06.2013 news DREAM THEATER выйдет в сентябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом создателей progressive-metal<STRONG> DREAM THEATER "Dream Theater"</STRONG> выйдет 24 сентября на <STRONG>Roadrunner</STRONG>. Работа была записана в <STRONG>Cove City Sound Studios, </STRONG>её продюсером выступил гитарист&nbsp;<STRONG>John Petrucci, </STRONG>а инженером <STRONG>Richard Chycki</STRONG> (<B>AEROSMITH</B>, <B>RUSH</B>). </FONT></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/EIjhQhm1JvU?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 15.07.2013 news DREAM THEATER: 12 студийный альбом в сентябре
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.07/25903.jpg" width=400 height=400>Монстры прогрессива, американский коллектив <STRONG>DREAM THEATER</STRONG>, готовят к выпуску свою новую студийную работу. Ею станет 12 по счёту&nbsp;студийный альбом одного с группой названия. Это будет уже 4 по счёту студийный опус <STRONG>DREAM THEATER</STRONG>,&nbsp;который выйдет на лейбле&nbsp;<STRONG>Roadrunner</STRONG>. Дата выпуска назначена на 24 сентября 2013 года. Уже сейчас вы можете ознакомиться с трек-листом альбома и его обложкой. </P>
+<P>Диск, состоящий из девяти песен, был записан в студии <STRONG>"Cove City"</STRONG>&nbsp;американского&nbsp;города Glen Cove. В качестве его&nbsp;продюсера выступил гитарист <STRONG>John Petrucci</STRONG>, а <STRONG>Richard Chycki</STRONG> крутил ручки за пультом и занимался сведением. Это уже второй альбом группы с Майком Манжини&nbsp;(<STRONG>Mike Mangini</STRONG>) за барабанной установкой и первый, в написании которого сам Майк принял непосредственное участие. </P>
+<P>Трек-лист альбома:</P>
+<P>01. <STRONG>False Awakening Suite<BR></STRONG><EM>I. Sleep Paralysis<BR>II. Night Terrors<BR>III. Lucid Dream<BR></EM>02. <STRONG>The Enemy Inside<BR></STRONG>03. <STRONG>The Looking Glass<BR></STRONG>04. <STRONG>Enigma Machine<BR></STRONG>05. <STRONG>The Bigger Picture<BR></STRONG>06. <STRONG>Behind The Veil<BR></STRONG>07. <STRONG>Surrender To Reason<BR></STRONG>08.<STRONG> Along For The Ride<BR></STRONG>09. <STRONG>Illumination Theory<BR></STRONG><EM>I. Paradoxe de la Lumiere Noire<BR>II. Live, Die, Kill<BR>III. The Embracing Circle<BR>IV. The Pursuit of Truth<BR>V. Surrender, Trust & Passion</EM></P>
+<P>Новый альбом будет доступен для покупки в самых различных версиях, включая стандарную и специальную версии компакт-диска, 180 граммовый двойной винил и выпущенную ограниченным тиражем коробку с разными вкусностями.&nbsp;Интернет магазин Roadrunner Records планирует открыть предварительные заказы на одноимённый диск <STRONG>DREAM THEATER</STRONG> уже в этом месяце.</P>
+Автор: Headcrusher
+
+### 05.08.2013 news DREAM THEATER: премьера песни &quot;The Enemy Inside&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26043.jpg" width=300 height=300>Сайт "USA Today" опубликовал сегодня первый сингл с выгодящего 24 сентябряна&nbsp;на&nbsp;лейбле <STRONG>Roadrunner</STRONG>&nbsp;одноимённого альбома <STRONG>DREAM THEATER</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню под названием <STRONG>"The Enemy Inside"</STRONG> можно прослушать по ссылке: <A href="http://www.usatoday.com/story/life/music/2013/08/04/dream-theater-enemy-inside-premiere/2613895/">http://www.usatoday.com</A></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Dream Theater "Metropolis 2000: Scenes from New York"

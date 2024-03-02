@@ -8,6 +8,14 @@ Uli Kusch new project
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2006 news Новый проект Uli Kusch
+
+<P><B>RIDE THE SKY</B>, так называется новый проект бывшего ударника <B>HELLOWEEN</B> и <B>MASTERPLAN</B> <STRONG>Uli Kusch</STRONG>, </STRONG>в который также входят бывший вокалист <B>TEARS OF ANGER и </B><B>BEYOND TWILIGHT</B> <B>Bjorn Jansson.</B> Дебютный альбом выйдет в августе-сентябре 2007 года на <STRONG>Nuclear Blast. </STRONG></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

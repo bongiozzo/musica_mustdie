@@ -426,6 +426,601 @@ Mastered at Sterling Sound.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.06.2000 news Новый альбом Behemoth
+
+<p>Группа Behemoth войдёт в студию 6 июля. Новая работа будет называться "Thelema.6.INC". Группа обещает, что они сделают шаг вперёд во всём по сравнению с "Satanica". Некоторые песни будут называться "Christians to the lions" "No surrender,No remorse" "PaN SatyroS". Альбом будет записан в HENDRIX студии в Польше.</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 news New album of Behemoth
+
+<p>Nergal & his warriors are entering studio on July the 6th ! The album title shall be "THELEMA.6.INC". Behemoth managed to progress their skills since the last album's recording and it seems that new album will be a huge step forward in compare to last year's SATANICA. Still BEHEMOTH follows their own way of creating the highest class BLACK/Death metal in its most extreme way. Some new titles: "Christians to the lions" "No surrender,No remorse" "PaN SatyroS" The studio session is booked for July and August and will take place in the best polish digital/audio HENDRIX studio. The album release will be followed by an extensive European tour later this year...</p>
+
+Автор: Vit Belov
+
+### 26.08.2000 news Новый альбом польской группы Behemoth
+
+<p> Польская pagan-black-металлическая группа Behemoth недавно закончила запись нового альбома под названием "Thelema.6". Говорят, что он будет логическим продолжением их предыдущего релиза "Satanica", но более техничным и тяжелым. Релиз намечен на 31-е октября. Ивестно, что новый диск включит в себя следуюшие трэки: : "Inflamed With Rage", "Pan Satyros", "Garden Of Dispersion", "Vinum Sabbati", "Christians To The Lions", "The Act Of Rebellion", "Antichristian Phenomenon" и "23 (The youth manifesto)".</p>
+
+Автор: Nybras
+
+### 26.08.2000 news New album of Behemoth
+
+<p> The Polish Pagan Black Metalians have just finished the recordings for their latest effort "Thelema.6". It is said to continue where "Satanica" had left off, but apparently more technical and more brutal, it is scheduled to be out on October 31. Song-titles unveiled so far are: "Inflamed With Rage", "Pan Satyros", "Garden Of Dispersion", "Vinum Sabbati", "Christians To The Lions", "The Act Of Rebellion", "Antichristian Phenomenon" and "23 (The youth manifesto)".</p>
+
+Автор: Nybras
+
+### 06.09.2000 news Behemoth выпускают новое видео
+
+<p> "Live Eschaton" - так называется новое видео группы, записанное 27-го апреля этого года в городе Кракове. Во время записи в местной телевизионной студии Behemoth исполнили следующие вещи: 'Decade Of Therion', 'LAM', 'Satan's Sword', 'From The Pagan Vastlands', 'Driven By The Five Winged Star', 'The Entrance To The Spheres Of Mars', 'Starspawn', 'Carnage', 'Chant For Eschaton 2000' и 'Pure Evil & Hate'. Кроме этого на видеокассете можно увидеть два промо-видео-клипа группы: 'Decade Of Therion' и 'Chant For Eschaton 2000'.</p>
+
+Автор: Nybras
+
+### 06.09.2000 news Behemoth launches a new video
+
+<p> Behemoth's Live Eschaton video includes includes live footage from their concert in TV studio in Krakow on April 27th, 2000 and two promo videos. 'Decade Of Therion', 'LAM', 'Satan's Sword', 'From The Pagan Vastlands', 'Driven By The Five Winged Star', 'The Entrance To The Spheres Of Mars', 'Starspawn', 'Carnage', 'Chant For Eschaton 2000', 'Pure Evil & Hate' and the two videos, 'Decade Of Therion' and 'Chant For Eschaton 2000'.</p>
+
+Автор: Nybras
+
+### 01.02.2001 news Behemoth приезжают в Москву!
+
+<p> 10.02.01 17:00 в к/т "Спутник" (М."Авиамоторная" ул.Солдатская 15) состоится единственный концерт польской black-metal легенды BEHEMOTH. <br> Справки по тел. 361-29-79</p>
+
+Автор: Nybras
+
+### 06.02.2001 reviews Настоящая музыка из преисподней
+
+<p>Настоящая музыка из преисподней. Страшная и величественная, порождающая ужас и заставляющая трепетать. Это уже далеко не обычный black-metal, но еще и не совсем death-metal. Наибрутальнейшая быстрая музыка с наличествующей мелодикой. Гневно-злобные настроения и агрессивная атмосфера на фоне демонических заклинаний вокалиста. Такое надо слушать на различных шабашах и сборищах совершая безумные обряды-ритуалы. Гиперскоростной death-black-metal с ярко выраженными риффами, внятным зловещим вокалом и присутствием неплохих мелодий. А еще под такую музыку классно рубиться и угорать!</p>
+
+Автор: Dimas
+
+### 06.02.2001 reviews The real music from hell
+
+<p>The real music from hell. Terrible and majestic, generating horror and making to thrill. It already not customary black-metal, but also not absolutely death-metal. Brutalest fast music with finemelodica. Angry - bitter moods and aggressive atmosphere on a background demonic spells of voiceman. Such is necessary to listen on different sabbaths and concourses committing mad rites - sacramentals. Hyperpeed death-black-metal with brightly expressed riffs, intelligible evil vocal and presence of quite good tunes. And under such music cool to be hacked and to get poisoned by fumes!</p>
+
+Автор: Dimas
+
+### 30.01.2002 news BEHEMOTH в Москве
+
+<p ALIGN="CENTER"><IMG SRC="/images/news_rus/2002.01/2357.jpg" ALT="BEHEMOTH" width="350" height="273" vspace="5" border="1"></p>
+
+Автор: Dimas
+
+### 03.02.2002 news BEHEMOTH в Москве-2
+
+<p> Ровно год спустя, <span style="background:#4d0000">10 февраля 2002 года в воскресенье</span> клуб "Свалка", Irond Records и Brutal DJ Productions при содействии The Flaming Arts Management представляют единственный в Москве концерт культовой польской black-death группы <a href="/ru/band/behemoth/">BEHEMOTH</a>. Открывают концерт российские группы <I>SINFUL, BLUT FORMICARIUM и NECRONOMICON</I>.</p>
+<p> Начало концерта в 19:00. Цена билета в предварительной продаже - 250 рублей. В день концерта - 350 рублей. Рекомендуем заранее приобретать билеты на концерт, так как количество мест в клубе ограничено. Убедительная просьба не покупать билеты на концерт с рук, а только в кассах клуба "Свалка" и в рок-магазинах города. <BR> Адрес клуба: Профсоюзная ул., д. 27 к.1 (пять минут пешком от метро Профсоюзная). <BR> На концерте будет продаваться атрибутика группы <a href="/ru/band/behemoth/">BEHEMOTH</a>, а также продукция Irond Records по сниженным ценам.</p>
+<p> Также, 9 февраля 2002 года группа даст концерт в клубе "Полигон" (Санкт-Петербург) вместе с AZEROTH и 12 февраля 2002 года в клубе "Партизан" (Ярославль, ул.Гагарина, 9) вместе с MARTIAL ART.</p>
+<p> Информационная поддержка концертов - MUSICA.MUSTDIE.RU</p>
+
+Автор: Dimas
+
+### 28.02.2002 news Behemoth have set Zos Kia Cultus (Here and Beyond) as the title of the follow-up...
+
+<p><IMG SRC="/images/news/2002.02/2459.jpg" ALT="pho" width="174" height="250" hspace="15" vspace="5" border="1" align="right" /> Polish black metallers Behemoth have set Zos Kia Cultus (Here and Beyond) as the title of the follow-up to 2000's Thelema.6 opus. <BR><BR> Behemoth are scheduled to enter Hendrix Studios (Devilyn) in Lublin, Poland sometime in June of 2002 to record the album. Some early song titles are "Conjuration of Sleep Daemons," "No Sympathy for Fools," "Agape" and "The Essence of Eye," which are described by frontman Nergal "massive and crushing" and "the fastest and non-compromising" material ever penned by the band. <BR><BR> In similar news, Behemoth just got back from their first ever Mexican gig in Mexico City with The Haunted and Witchery. Apparently, Nergal was unhappy about crowd reaction, but from the sheer amount of posts on the band's official guestbook from Mexican fans, the gig seems to have been a success. <BR><BR> Behemoth's Zos Kia Cultus (Here and Beyond) should be out in the fall on Avantgarde Music. We'll have more on Behemoth as it happens.</p>
+
+Автор: Yermola
+
+### 28.02.2002 news Культ Zos Kia здесь, там и везде....
+
+<p><IMG SRC="/images/news/2002.02/2459.jpg" ALT="pho" width="174" height="250" hspace="15" vspace="5" border="1" align="right" /> "Бегемот" выбрали название для своего следующего диска - "Zos Kia Cultus (Here and Beyond)". Записываться он будет в Hendrix Studios (Devilyn) в Польше в июне 2002. Трек-лист: <BR><BR> "Conjuration of Sleep Daemons"<BR> "No Sympathy for Fools" <BR> "Agape" <BR> "The Essence of Eye" <BR><BR> Материал фронтмэн Nergal описал как: "мощный и разрушающий", а также как: "самый быстрый и бескомпромиссный из записанных командой".</p>
+
+Автор: Yermola
+
+### 26.10.2002 news Conquer Records News
+
+<p>We have some news from Conquer Records. 2 new albums were released recently. There are new albums of Hell-Born "The Call of Megiddo" (death-black metal) and Quo Vadis "King" (thrash metal) in stores now. Also new live dates announced. Today - Conquer Records Festival II (Benediction, Hell-Born, Immemorial, Epitome, Hecate Enthroned, Dam) in Lonodn Camden the Underworld. And also 4th of November - Behemoth, Diabolic, Thus Defiled, Epitome, The Enchanted and 21st of November - NECROPHOBIC, Diabolical, Domain, Hell-Born, Quo Vadis, Corruption, Unnamed, Mess Age.</p>
+
+Автор: Vit Belov
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 15.12.2002 news Morbid Angel Tribute
+
+<p>The long-awaited Morbid Angel tribute titled "Tyrants from the Abyss" has been released on Necropolis Records in the U.S. and Hellspawn Records of Sweden and is available today!!</p>
+<p> Tracklisting:<br> ZYKLON- Dominate <br>VADER- Immortal Rites <br>SOULREAPER- Fall From Grace <br>ANGELCORPSE- Demon Seed <br>CENTURIAN- Blasphemy of the Holy Ghost <br>LUCIFERION- Brainstorm <br>INFERNAL- Bleed for the Devil <br>DIVINE RAPTURE- World of Shit (The Promised Land) <br>DIABOLIC- Visions from the Darkside <br>IN AETERNUM- Maze of Torment <br>EXCOMMUNION- God of Emptiness <br>BEHEMOTH- Day of Suffering <br>KRISIUN- Unholy Blasphemies</p>
+
+Автор: Vit Belov
+
+### 05.03.2003 news BEHEMOTH - тур по СНГ
+
+<p>18 апреля стартует тур "BARBAROSSA 2: Zos Kia Cultus" польской death/black бестии BEHEMOTH. Концерты пройдут в городах Беларуси, России, Украины, Эстонии и Латвии. Следите за рекламой!</p>
+<P>Специально к туру беларуским лейблом THE FLAMING ARTS prods будут выпущены лицензионные кассеты последнего альбома группы "Zos Kia Cultus" (профессиональные кассеты, цветной полуметровый вкладыш!).</>
+<P>Подробности и самая свежая информация о туре:<BR> http://theflamingarts.com<BR> http://moral-insanity.org</>
+
+Автор: Vit Belov
+
+### 19.03.2003 news BEHEMOTH в Санкт-Петербурге
+
+<p><IMG SRC="/images/news_rus/2003.03/3977.jpg" ALT="pho" width=171 height=250 hspace="15" vspace="5" border="1" align="left">Концертное Агенство "ПОЛИГОН promotion" представляет</p>
+<p> 25 апреля/пятница/ в ДК "Красный Октябрь" (бывший клуб ПОЛИГОН) состоится концерт легенды мировой тяжелой музыки - группы BEHEMOTH (Польша), в рамках российского тура в поддержку нового альбома "Zos Kia Cultus".<BR> Начало концерта в 19.00</p>
+<p> Вас ожидает : <BR> - мощнейший звук <BR> - гиперсвет <BR> - просторный зал (если кто не был или не помнит)<BR> - доброжелательная охрана <BR> - лицевой контроль <BR> - пиво от 30 рублей.</p>
+<p> Предварительная продажа с 15 марта во всех музыкальных магазинах и театральных кассах. <BR> Цена билетов от 200 до 250 рублей. <BR> Точный адрес: м.Спортивная (три минуты пешком), ул.Блохина д.8 (вход с ул.Яблочкова)</p>
+
+Автор: Dimas
+
+### 23.03.2003 news Behemoth отменили тур
+
+<p>Официальное заявленение об отмене тура BEHEMOTH</p>
+<P> "К сожалению, мы должны сообщить Вам, что анонсированный нами ранее тур BEHEMOTH по странам бывшего СССР "BARBAROSSA 2: Zos Kia Cultus" отменен. <BR> Сразу хочу прояснить ситуацию и сказать, что вины местных организаторов концертов тут нет, они работали над этим проектом так же серьезно, как и мы, и здесь я хотел бы поблагодорить их, а так же принести всем свои извинения за причиненные неудобства. Как Вам известно, тур должен был начаться 19 апреля в Таллинне (Эстония) и закончиться 9 мая в Гомеле (Беларусь). С начала марта BEHEMOTH начали свой тур по Соединенным Штатам Америки вместе с DEICIDE, из которого они должны были вернуться 15 апреля, т.е. все шло, как было запланированно. Но уже в Штатах группа получила предложение принять участие еще в одной трассе - вместе с DANZIG, NILE, LACUNA COIL, от которого по условиям контракта с американскими промоутерами не в праве была отказаться. Этот тур начинется 2-го мая. Как видно, получалась накладка. Со стороны BEHEMOTH было предложено существенно сократить "BARBAROSSA 2" и провести концерты с 19 по 25 апреля только в самых крупных городах. Чтобы не вводить в неудобное положение организаторов и фэнов в других городах, нами было принято решение отменить трассу полностью. Посовещавшись с группой и местными промоутерами, мы решили перенести мероприятие на осень. <BR> Еще раз приносим свои извинения всем, кто вместе с нами трудился над этим туром, а так же всем поклонникам BEHEMOTH. Надеюсь, Вы не разочаровались в нас и с радостью посетите концерты поляков в своих городах осенью.</>
+<P>С уважением, <BR> Вадим Хомич <BR> (BEHEMOTH CIS management, THE FLAMING ARTS prods)."</>
+
+Автор: Vit Belov
+
+### 06.07.2003 news BEHEMOTH против VADER
+
+<p>Польская black/death группа BEHEMOTH понесла потери в лице басиста Novy, ставшего постоянным участником другой польской группы VADER. Пока, BEHEMOTH пользуется услугами сессионного басиста Orion. В данный момент, группа работает над своим новым альбомом под названием "Nephilim Rising". Помимо того, группа подыскивает новый лэйбл. В самое ближайшее время выйдет мини-альбом "Conjuration", включающий в себя некоторые новые и неизданные вещи коллектива. Этот диск выйдет летом и будет содержать оригинальный материал, который впоследствии никуда не войдет. <BR> VADER также готовят к выпуску 20 октября на Metal Blade Records мини-альбом "Blood". В него войдут две совершенно новые вещи "We Wait" и "Shape-shifting", а также все вещи, которые выходили в качестве бонусов различных изданий альбомов группы.</p>
+
+Автор: Dimas
+
+### 14.07.2003 news Новый бас-гитарист BEHEMOTH
+
+<p>После трех лет совместной работы пути бас-гитариста Novy и его теперь уже бывшей группы Behemoth разошлись. Он ушел к землякам Vader. А Behemoth остались без одного участника. Участники группы говорят, что чувствовали, что рано или поздно это должно было произойти. Но они не долго стояли на месте. После двух выступлений во Франции с сессионным бас-гитаристом Orion участник группы Nergal говорит, что музыка Behemoth никогда не звучала так мощно и жестко. Поэтому есть шанс, что Orion станет постоянным участником группы.</p>
+
+Автор: Darkfall
+
+### 14.07.2003 news Новый альбом BEHEMOTH
+
+<p>Участник польской группы Behemoth, вокалист-гитарист Nergal, говорит, что он уже работает на новыми песнями для их альбома, который готовится к записи. Его рабочее название "Nephilim Rising". В следующие несколько недель группа должна точно определиться с лейблом, с которым будет заключен контракт на следующие два альбома. Тем временем будет выпущен MCD "Conjuration", который будет включать в себя несколько новых песен, а также несколько нерелизованных ранее песен. Релиз нового мини планируется этим летом.</p>
+
+Автор: Darkfall
+
+### 06.10.2003 news BEHEMOTH снова в поисках
+
+<B>Havok - </B>сессионный гитарист польских блэк-дэтстеров <B>BEHEMOTH, </B>принял решение покинуть группу, так как потерял всяческий интерес к ее творчеству и к экстремальному жанру музыки в целом&nbsp;из-за своих личных проблем. Музыканты ищут ему замену. Кто хочет попытать удачу - присылайте свою заявку на <A href="mailto:nergal69@poczta.onet.pl.">nergal69@poczta.onet.pl.</A>
+Автор: Dimas
+
+### 20.10.2003 news Six Feet Under, Behemoth, Skinless and As I Lay Dying in North America
+
+10/17 Orlando, FL <BR>10/18 Ft. Lauderdale, FL<BR>10/19 Atlanta, GA <BR>10/20 Spartanburg, SC <BR>10/22 Pittsburgh, PA <BR>10/23 West Springfield, VA <BR>10/24 Providence, RI <BR>10/26 New Haven, CT <BR>10/27 Long Island, NY <BR>10/28 Randolph, NJ<BR>10/30 Montreal, QC <BR>10/31 Toronto, ON <BR>11/01 Latham, NY <BR>11/02 Brooklyn, NY <BR>11/03 Chicago, IL <BR>11/04 Milwaukee, WI<BR>11/05 St. Louis, MO <BR>11/06 Cedar Falls, IA <BR>11/07 Kansas City, MO <BR>11/08 Denver, CO <BR>11/09 Salt Lake City, UT<BR>11/12 Hollywood, CA <BR>11/13 Santa Ana, CA <BR>11/15 Phoenix, AZ <BR>11/19 San Antonio, TX
+Автор: Vit Belov
+
+### 11.03.2004 news BEHEMOTH работают над альбомом
+
+<P><B>BEHEMOTH</B> сочиняют песни для нового альбома с рабочим названием '<B>Demigod</B>', запись которого начнётся 29 апреля в <B>Hendrix</B> studios. В пластинку войдут 10 трэков, а выйдет она в Европе на <B>Regain</B>.</P>
+Автор: Vit Belov
+
+### 17.08.2004 news BEHEMOTH закончили запись нового альбома
+
+<P>Новый альбом <STRONG>BEHEMOTH 'Demigod'</STRONG> полностью готов к своему релизу этой осенью. Только что завершён микс в <STRONG>Dug-Out</STRONG> studios, где лидер группы <STRONG>Nergal</STRONG> работал с <STRONG>Daniel Bergstrand</STRONG> (<B>MESHUGGAH</B>, <B>IN FLAMES</B>).</P>
+<P><STRONG>Nergal</STRONG>: "<EM>Работать с Daniel было великолепно. Всё прошло, как по маслу, и мы смикшировали альбом меньше, чем за две недели. Наш звук никогда не был столь интенсивным и свежим. Daniel привнёс много интересного в нашу музыку. '<STRONG>Demigod</STRONG>' расширяет наши рамки. Мне нравятся наши предыдущие работы, но новая пластинка это что-то. '<STRONG>Demigod</STRONG>' брутальнее, чем <STRONG>'Zos Kia Cultus'</STRONG>,&nbsp;но в тоже время в музыке стало больше гармоний и цепляющих ходов</EM>".</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.08/6932.jpg" width=200 align=right border=5>Трэк-лист:</P>
+<P>01. <B>Sculpting The Throne Ov Seth</B><BR>02. <B>Demigod</B><BR>03. <B>Conquer All</B> (<A href="/samples/b/behemoth/2004_1148.mp3">http://musica.mustdie.ru/samples/b/behemoth/2004_1148.mp3</A>)<BR>04. <B>The Nephilim Rising</B><BR>05. <B>Towards Babylon</B><BR>06. <B>Before Aeons Came </B><BR>07. <B>Mysterium Coniunctionis (Hermanubis)</B><BR>08. <B>XUL</B><BR>09. <B>Slaves Shall Serve</B> <BR>10. <B>The Reign Ov Shemsu-Hor</B></P>
+<P>В&nbsp;Европе альбом выходит на&nbsp;<STRONG>Regain</STRONG>, а в России его изданием будет заниматься <STRONG>Irond</STRONG>.&nbsp;&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 19.11.2004 news BEHEMOTH In USA
+
+<P>w/ Suffocation<BR>01/23 Masquerade - Atlanta, GA<BR>01/24 Howlin' Wolf - New Orleans, LA<BR>01/25 Mary Jane's - Houston, TX<BR>01/26 Sanctuary - San Antonio, TX<BR>01/27 Trees - Dallas, TX<BR>01/28 Bricktown Live - Oklahoma City, OK<BR>01/29 Launch Pad- Albuquerque, NM<BR>01/30 The Rock - Tucson, AZ<BR>01/31 Mason Jar - Phoenix, AZ<BR>02/01 Galaxy Theater - Santa Ana, CA<BR>02/02 Key Club - Los Angeles, CA<BR>02/03 The Pound - San Francisco, CA<BR>02/04 Meow Meow - Portland, OR<BR>02/05 Studio Seven - Seattle, WA<BR>02/07 Lo-Fi Cafe - Salt Lake City, UT<BR>02/08 Bluebird Theater - Denver, CO<BR>02/09 Ranch Bowl - Omaha, NE<BR>02/10 Ascot Room - Minneapolis, MN<BR>02/11 Pop's - Sauget, IL<BR>02/12 Alvin's - Detroit, MI<BR>02/13 House of Blues - Chicago, IL<BR>02/14 House Of Blues - Cleveland, OH <BR>02/15 The Trocadero - Philadelphia, PA<BR>02/16 B.B. King's - New York, NY<BR>02/17 Webster Theater - Hartford, CT<BR>02/18 Palladium - Worcester, MA<BR>02/19 Saratoga Winners - Cohoes, NY<BR>02/20 Les Foulbunes Electriques - Montreal, QUE<BR>02/21 Cabaret Du Capitole - Quebec City, QUE<BR>02/22 Barrymore's Music Hall - Ottawa, ON<BR>02/23 The Opera House - Toronto, ON<BR>02/25 Penny Arcade - Rochester, NY<BR>02/26 Thunderdome - Baltimore, MD</P>
+<P><BR>w/ King Diamond, Nile, Black Dahlia Murder (except *)<BR>04/14 Culture Room - Ft Lauderdale, FL<BR>04/15 House of Blues - Lake Buena Vista, FL<BR>04/16 The Masquerade - Atlanta, GA<BR>04/18 The Trocadero - Philadelphia, PA<BR>04/19 BB King's - New York, NY<BR>04/20 BB King's - New York, NY<BR>04/21 The Royal - Baltimore, MD*<BR>04/22 Jaxx - Springfield, VA<BR>04/23 The Chance - Poughkeepsie, NY<BR>04/24 The Palladium - Worcester, MA (New England Hardcore and Metal Festival)<BR>04/26 House of Blues - Cleveland, OH<BR>04/27 House of Blues - Chicago, IL<BR>04/28 Royal Oak Music Theatre - Royal Oak, MI<BR>04/29 Pop's - Sauget, IL<BR>04/30 Quest Club- Minneapolis, MN<BR>05/01 Ranch Bowl - Omaha, NE*<BR>05/02 Ogden Theatre - Denver, CO<BR>05/03 Lo-Fi Cafe - Salt Lake City, UT*<BR>05/04 JD and Friends - Boise, ID*<BR>05/05 Fenix - Seattle, WA<BR>05/06 Roseland Theater - Portland, OR<BR>05/07 The Pound - San Francisco, CA<BR>05/08 House of Blues - West Hollywood, CA<BR>05/09 House of Blues - Anaheim, CA<BR>05/11 Marquee Theater - Phoenix, AZ<BR>05/12 Sunshine Theater - Albuquerque, NM<BR>05/13 Club Xscape - El Paso, TX<BR>05/14 Sunset Station - San Antonio, TX<BR>05/15 La Villa Real - McAllen, TX<BR>05/17 Gypsy Ballroom - Dallas, TX<BR>05/18 Engine Room - Houston, TX<BR>05/20 House of Blues - New Orleans, LA<BR>05/21 Masquerade - Tampa, FL<BR>*Behemoth/Black Dahlia Murder only </P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 14.01.2005 articles BEHEMOTH: &quot;Никаких Санта Клаусов, никакого Рождества, никаких новогодних пожеланий…&quot;
+
+<P><IMG height=400 alt="" hspace=0 src="/images/articles_rus/2005.01/7688.jpg" width=318 align=left border=5>BEHEMOTH только что вернулись из первого в своей истории южноамериканского тура, а сейчас готовятся к североамериканскому.</P>
+<P>Nergal: «Честно говоря, мы давно не ощущали такого прилива энергии, как сейчас. Быть может, это из-за нового состава, может из-за убийственного нового альбома, а может из-за нового контракта. Скорее, всего понемногу. Но шоу, которые мы даём в последнее время – самые лучшие за всю историю. Такое впечатление, что нам есть, что сказать с ‘Demigod’, и мы это обязательно сделаем. Этот альбом очень важен для нас и открывает новые горизонты».&nbsp; </P>
+<P>Nergal: «Мы не собираемся останавливаться. 13 января начался наш первый сольный тур по Великобритании, а потом мы вылетаем в Атланту, где присоединимся к SUFFOCATION в их турне по США».</P>
+<P>Но вопрос об итогах 2004 года Nergal агрессивно ответил: «Я ненавижу подобные категории. Что есть 2004 год? Для меня нет никакой разницы. Я упорно проработал последние 12 месяцев и также упорно буду работать следующие 12 месяцев. Забавно, что все эти пожелания всего наилучшего в 2005 году, мы получаем от псевдо друзей и завистников. Люди, которые пытаются помешать нам, придержите все эти пожелания при себе. Нам не нужно это лицемерие. Никаких Санта Клаусов, никакого Рождества, никаких новогодних пожеланий… Мы очень далеко от всего этого католического дерьма. BEHEMOTH – это одна из самых трудолюбивых команд на планете, и мы выиграем наши счастье и спокойствие с НАШИМ стремлением и важностью».</P>
+Автор: Vit Belov
+
+### 24.01.2005 news Тур BEHEMOTH по СНГ
+
+<P><STRONG>THE FLAMING ARTS Booking Agency</STRONG> представляет самое яркое событие начала 2005 года на метал сцене СНГ<BR><STRONG>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; DEMIGOD Eastern Europe Tour 2005</STRONG><BR><STRONG>BEHEMOTH</STRONG> (Польша) + <STRONG>NEOLITH</STRONG> (Польша)<BR>12.03 - Минск<BR>13.03 - Санкт-Петербург<BR>14.03 - Уфа (без Neolith)<BR>15.03 - Екатеринбург (без Neolith)<BR>16.03 - Томск (без Neolith)<BR>18.03 - Ростов-на-Дону<BR>19.03 - Москва<BR>20.03 - Рязань<BR>21.03 - Воронеж<BR>22.03 - Киев</P>
+<P>&nbsp;</P>
+<P>Вот что говорит по этому поводу организатор тура, менеджер <STRONG>BEHEMOTH</STRONG> в Восточной Европе, и владелец <STRONG>THE FLAMING ARTS</STRONG> Вадим Хомич: "Мы, действительно, рады, что у нас появилась возможность вновь привезти один из самых популярных метал актов <STRONG>BEHEMOTH</STRONG> в наши края. К сожалению, мы вынуждены были максимально сократить расписание тура из-за невероятной загруженности группы. В итоге из 17 планируемых концертов нам пришлось выбрать всего 10. Хотя не может не радовать тот факт, что с каждым туром к нам подключаются все новые и новые города, что свидетельствует о быстром развитии нашей сцены. Второй хорошей новостью является то, что кроме самих хэдлайнеров <STRONG>BEHEMOTH</STRONG> в <STRONG>DEMIGOD Eastern Europe tour</STRONG> примет участие еще одна уникальная польская death black metal формация <STRONG>NEOLITH</STRONG>, выпустившая летом 2004 года свой второй полноформатный альбом на THE FLAMING ARTS Records. Это позволит людям, посетившим концерты в своих городах, вдвойне насладиться высоким качеством польского метала"</P>
+<P><BR>Более подробную информацию о концертах ждите в начале февраля...<BR><BR></P>
+Автор: Dimas
+
+### 10.02.2005 reviews Новое творение Гениальных Поляков!
+
+<P>Трудно писать про одну из самых любимых групп на металлической сцене и при этом оставаться объективным, поэтому я решил разделить рецензию на их новое творении под названием «Demigod» на 2 части – объективная рецензия и рецензия написанная страстным поклонником творчества Behemoth.</P>
+<P>&nbsp;</P>
+<P>Объективная рецензия:</P>
+<P>Еще одна качественная работа от злобных поляков Behemoth порадует вас как всегда. На новом альбоме «Demigod» все на месте – умопомрачительная скорость, запредельная злоба (для которой глосс Нергала сильно дисторшнут), мастерское владение инструментами (которое растет от альбома к альбому гигантскими скачками), демоническая мелодичность и как всегда безукоризненное качество записи. Стена зубо-дробильных рифов и бласт-битов разбавлена вставками на акустической гитаре и психоделичными соло (одно их которых исполнил Karl Sanders из Nile!). </P>
+<P>Это все тот же brutal death в духе Morbid Angel с легким налетом black metal.</P>
+<P>Оценка: 8</P>
+<P>&nbsp;</P>
+<P>Рецензия поклонника Behemoth:</P>
+<P>Потрясающе, грандиозно, безукоризненно, безумно, бесконечно атмосферно, невероятно зло и быстро. Теперь обо свеем по порядку. =-) </P>
+<P>По с равнению с предыдущим альбомом, структура композиций стала намного более четкой и угадываемой, что привело к легкому запоминанию мелодий и более быстрому погружению в материал. Вокал Нергала дисторшнут так, будто поет злой демон из преисподней, совершенно жуткое впечатление. От переборов на акустической гитаре – мурашки по всему телу, психоделичные соляки – сводят с ума. Постоянная смена мелодий, скорости, тональности при этом возникает ощущение какой то нереальной, демонической гармонии. На «Demigod» слышна еще более качественная работа как самих музыкантов так и звукорежиссера (записывались ребята в Hendrix Studios в Люблине).</P>
+<P>Буклет к альбому как всегда представляет из себя концептуальное произведение искусства инспирированое как всегда самим Нергалом и Ко, рисовал сие творение как всегда Graal. Вчитываться в тексты, старинные письмена, руны и иероглифы невероятно интересно (особенно когда что то удается понять =-)). Концепт-арт оставляет как всегда – ощущение прикосновения к тайне.</P>
+<P>На мой взгляд альбом представляет из себя золотую середину между «Thelema 6.» и «Zos Kai Cultus» - блековая атмосфера первого сочетается с навороченным и техничным материалом второго. Лучшая работа поляков, настоящий шедевр тяжелого метала!!!</P>
+<P>Оценка: 10</P>
+<P>Итого общая оценка: 9</P>
+Автор: SkY
+
+### 11.02.2005 reviews Полубог
+
+<P>Группа BEHEMOTH в особом представлении не нуждается. Каждый металхэд хотя бы краем уха слышал об этих польских оккультистах, трудящихся на стезе тяжелой музыки уже тринадцать лет. За это время группа добилась мировой известности и выступает на одной сцене с такими монстрами, как SUFFOCATION, NILE, INCANTATION и другими не менее достойными командами.<BR>Когда-то бегемоты играли black, но с течением времени стали обростать death'овым мясом, и если на альбоме "Thelema.6" ещё можно услышать блэковое эхо, то уже на следующей работе "Zos Kia Cultus" группа заиграла стопроцентный&nbsp; death. Честно говоря он не произвел на меня впечатления, показавшись, пусть и очень качественным, но всё же немного скучноватым дэтом с влиянием морбидэнжеловщины. Хотя, как говорится "на вкус и цвет..." Тем не менее "Zos Kia Cultus" показал всем куда движется группа. И вот на день сегодняшний мы имеем последнюю работу поляков,именуемую "Demigod".</P>
+<P>Сказать что альбом получился удачным, не сказать ничего. Он великолепен! Бегемоты проделали просто потрясающую работу, записав диск, который можно поставить в один ряд с лучшими шедеврами мирового дэта. Самое интересное, на мой взгляд, это то, что Нергалу и Со удалось совместить красивые (да-да,именно красивые) мелодии с крайней степенью тяжести и брутальности. Браво, Нергал! А уж как это всё записанно! У-у-у, придраться просто не к чему. Правда есть одно маленькое "но"... Если на предпоследнем альбоме BEHEMOTH напоминал MORBID ANGEL, то здесь явно прослеживается влияние египтологов из NILE. Кроме того Карл Сандерз собственной персоной поучаствовал в записи "Demigod" в качестве гостевого музыканта, исполнив соло в одной из композиций. Ну да и ладно. Нергал всегда шел в ногу со временем.</P>
+<P>Итак, на данный момент мы имеем лучший альбом BEHEMOTH'a и вопрос "иметь или не иметь" не должен терзать умы отечественных любителей тяжмета. Однозначно must have.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></P>
+Автор: Graver
+
+### 01.03.2005 reviews Быстрее, выше, сильнее!
+
+<P>Тенденция к брутально - быстрому исполнению песен, введенная в 1986 году коллективом&nbsp; Slayer, периодически находит новых последователей. Не избежали этой участи и поляки Behemoth, всегда стремящиеся играть на запредельных скоростях. Новый альбом группы не стал исключением - темпы просто бешенные, изредка сменяемые медленными рисунками, но только&nbsp; для того чтоб глотнуть воздуха и снова сломя голову разогнаться&nbsp;&nbsp; на сверхскоростной&nbsp; трассе риффов. Бас - бочки сыграны так&nbsp; быстро, что порой даже удивляешься - неужели такое возможно? Польские&nbsp; барабанщики не перестают удивлять меня своими способностями выдавать торнадоподобные ритмы. Само прослушивание альбома подобно разрушительному смерчу, пронесшемуся сквозь уши, не оставив камня на камне в разуме - только трепещущий комок чистой энергии, готовой выплеснуться наружу.</P>
+Автор: Fucker
+
+### 12.03.2005 news BEHEMOTH готовятся к туру по России
+
+<P><STRONG>BEHEMOTH</STRONG> только что закончили выступления в США и Польше. "<EM>Сегодня начинается тур по России, мы дадим концерт в Белоруссии. В прошлый раз мы были вынуждены отменить наш тур, но сейчас всё случится на 100 процентов. Во время этого тура мы полетим в Сибирь. Это сумасшествие!!! Не знаю, выступала ли какая-нибудь зарубежная группа в тех местах. Это будет один из экстремумов нашей карьеры. Мы готовы играть для всех сумасшедших "фриков" в любом уголке мира</EM>", - говорит <STRONG>Нергал</STRONG>.</P>
+Автор: Vit Belov
+
+### 20.06.2005 news BEHEMOTH - дорожные приключения
+
+<P><STRONG><IMG height=300 alt="" hspace=0 src="/images/news_rus/2005.06/8809.jpg" width=400 align=left border=5>BEHEMOTH </STRONG>были вынуждены отменить своё выступление в пятницу на Summer Blast fest в Германии, из-за аварии, в которую попал мини-вэн группы. Водитель заснул и съехал с дороги. При этом автомобиль остался "на ходу", но на границе его не пропустили, из-за не работающих фар.</P>
+<P>Также на своём официальном сайте лидер группы <STRONG>Nergal</STRONG> рассказал об инциденте в Хьюстоне, Техас. Ночью их мини-вэн, припаркованный у гостиницы, был расстрелян из 9 мм ружья. По машине было выпущено 10 патронов. К счастью, никто не ночевал в машине, как это обычно случалось.</P>
+Автор: Vit Belov
+
+### 28.07.2005 articles Nergal (BEHEMOTH): &quot;Надо много раз подумать, прежде чем принять предложение играть в Сибири&quot;.
+
+<P><IMG height=341 alt="" hspace=0 src="/images/articles_rus/2005.07/9047.jpg" width=490 align=left border=5>Во время прошедшего тура BEHEMOTH по СНГ ходили слухи о не очень приятном инциденте, случившемся с группой в Томске. И вот только сейчас тур-менеджер поляков Вадим Хомич из беларусской The Flaming Arts и сам Nergal выступили с заявлением.</P>
+<P>Вадим Хомич: "Возможно, многие из Вас слышали о неприятном случае, произошедшем в Томске, во время тура BEHEMOTH в России, и о заявлении Нергала о том, что группа никогда не вернется больше в этот город. Что ж, мы долгое время пытались утрясти этот инцендент, чтобы в первую очередь не пострадали сибирские фэны, т.к. концерт BEHEMOTH в Сибири был пробным. Но откровенное нежелание организаторов концерта в Томске идти на компромис и загладить свою вину вынуждает нас принять более радикальные меры и рассказать всем о том, что по-настоящему произошло в этом городе, чтобы предупредить всех об обманщиках, появившихся на нашей сцене".</P>
+<P>Nergal (BEHEMOTH): "Hey Folks! Nergal from Behemoth here. Хотел бы поблагодарить всех за проявленный интерес к Barbarossa 2 tour. Надеюсь, вы также хорошо провели время на концертах, как и мы...Мы надеемся вернуться в Россию очень скоро, но в этот раз мы по-настоящему хотели бы избежать неприятные ситуации, приследовавшие нас в этом туре. Я имею ввиду концерт в Сибири и то, как нас там обманули. Когда мы прибыли, все выглядело по-настоящему хорошо - встреча с журналистами и фэнами в магазине. Шоу тоже было отличным. К сожалению, хорошее впечатление от прибытия в Сибири было полностью уничтожено событиями, произошедшими на следующий день утром. Мы ждали веками обещанный транспорт в аэропорт. Примите во внимание, что стоять несколько часов на улице ранним утром в Сибири, вещь не самая приятная. К моменту нашего практически полного физического упадка, организатор, наконец-то, додумался вызвать несколько такси. Но мы уже опаздывали на регистрацию. Каким-то образом мы добрались до аэропорта за 20 минут до взлета самолета и, к нашему удивлению, обнаружили всего три билета вместо шести...промоуторы просто исчезли...а нам пришлось покупать билеты за свои деньги. Дерьмо случается, я понимаю, но я хотел бы, чтобы вы знали, что надо много раз подумать, прежде чем принять предложение играть в Сибири".</P>
+<P>Продолжает Вадим Хомич: "Действительно, простояв три часа на морозе, мы прибыли в аэропорт за 20 минут до взлета самолета, когда регистрация была уже закончена. Организаторы, вручив нам 3 билета, убежали, оставив нас одних с 500 кг. багажа!!! Хотя до концерта они клялись, что билеты куплены были еще за месяц и просто лежат у человека дома. Когда я побежал в кассы докупить недостоющих 3 места, оказалось, что билеты уже не<BR>продают. Только лишь благодаря добрым людям из администрации томского аэропорта, которые с пониманием отнеслись к нашей проблеме и задержали рейс специально из-за нас, мы все-таки сели в самолет. В итоге нам пришлось купить самые дорогие места, т.к. других просто не было, выложив при этом практически все свои деньги (60000 российских рулей, что равно приблизительно 2200 долларов). Возможно, многим из Вас ситуация покажется комичной, но вдумайтесь в то, что могло бы быть, если бы это был один из самых первых концертов в туре - у нас бы просто не оказалось денег улететь из Сибири. Или администрация не пошла бы нам навстречу - тогда все остальные концерты были бы отменены, т.к. нам пришлось бы ехать поездом. А ведь впереди еще были Ростов-на-Дону, Москва, Рязань, Воронеж, Киев. В итоге из-за нескольких обманщиков пострадали бы очень многие люди. Поэтому я прошу не оставаться равнодушными к этому заявлению. Такие обманщики, как организатор в Томске, а именно Полуэктов Алексей из группы APOKEFALE, могут навредить еще очень многим. Мы призываем Вас поддержать нашу кампанию - распространяйте это заявление среди всех ваших знакомых, размещайте его на своих сайтах, бойкотируйте музыку этой группы.</P>
+<P>Кампанию THE FLAMING ARTS против обманщиков на нашей сцене поддерживают такие группы как RASTA, MENTAL DEMISE, MORTEM. Присоединяйтесь к нам!!!"</P>
+<P>А вот, что ответил сам Полуэктов Алексей на эти обвинения: "После тура прошло почти 4 месяца! И только сейчас мы увидели эту чушь. Нет никаких заявлений от Бегемот и Нергала на их официальном сайте. Группа APOKEFALE даже не выступала на этом концерте. Мы подаем в суд на Хомича!!!!!! На все места, где было вылажено это провакационное заявление, мы ответим судом! Пусть в инетернете появятся хотя бы контракт,где написано,что я должен эти деньги. Это безумие".</P>
+Автор: Vit Belov
+
+### 11.08.2005 news Новый веб-сайт, мини-альбом и новый клип
+
+<P>Группа <STRONG>BEHEMOTH</STRONG> в данный момент занимается съемками клипа на песню "<STRONG>Slaves Shall Serve</STRONG>", который войдет на <STRONG>"Slaves Shall Serve" Tour EP.</STRONG> Мини-альбом выйдет лимитированным тиражом (3000 дисков) и будет распространяться во время осеннего тура группы. </P>
+<P>&nbsp;Кроме того, теперь у&nbsp;группы есть новый веб-сайт <A href="http://www.behemoth.pl/">www.behemoth.pl</A></P>
+Автор: Bizarre
+
+### 07.09.2005 news И BEHEMOTH видео
+
+<P>Видео-клип на песню <STRONG>BEHEMOTH "Slaves Shall Serve"</STRONG> с альбома "<STRONG>Demigod</STRONG>" смотрите здесь: <A href="http://www.behemoth.pl/downloads/video/slaves_shall_serve.avi">http://www.behemoth.pl/downloads/video/slaves_shall_serve.avi</A></P>
+Автор: Vit Belov
+
+### 07.09.2005 news And video BEHEMOTH
+
+<P>New video for<STRONG> BEHEMOTH "Slaves Shall Serve"</STRONG> from <STRONG>"Demigod"</STRONG> can be downloaded here: <A href="http://www.behemoth.pl/downloads/video/slaves_shall_serve.avi">http://www.behemoth.pl/downloads/video/slaves_shall_serve.avi</A></P>
+Автор: Vit Belov
+
+### 02.12.2005 news Звёзды metal называют любимые альбомы в 2005 году
+
+<P>Шведский журнал <STRONG>Close-Up</STRONG> попросил известных музыкантов назвать любимые альбомы в 2005 году. Единодушия среди артистов не возникло. Только несколько пластинок было названо в тройки несколькими голосовавшими. Например, альбом <STRONG>OPETH "Ghost Reveries"</STRONG> назвали <STRONG>Leif Edling</STRONG> (<STRONG>CANDLEMASS</STRONG>) и <STRONG>Anders Nystrom</STRONG> (<STRONG>KATATONIA</STRONG>), а альбом <STRONG>SYSTEM OF A DAWN</STRONG> "<STRONG>Mesmerize</STRONG>" - <STRONG>Nergal </STRONG>(<STRONG>BEHEMOTH</STRONG>) и <STRONG>Robert Flynn</STRONG> (<STRONG>MACHINE HEAD</STRONG>). Также по нескольку раз упоминались альбомы <STRONG>SOILWORK</STRONG>&nbsp;и&nbsp;<STRONG>SPIRITUAL BEGGARS</STRONG>.</P>
+<P>В остальном выбор звёзд был хаотичен и слишком разнообразен по стилевым направлениям.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 07.06.2006 news BEHEMOTH сочиняют новый материал
+
+<P><STRONG>BEHEMOTH</STRONG> только что вернулись из тура по Польше. <STRONG>Nergal</STRONG> на официальном сайте группы рассказал о новом материале. В новых песнях будет большое количество медленных, эпических кусков. На лирику будущего альбома повлияли впечатления <STRONG>Nergal</STRONG> от поездок по миру. В частности, по его словам, большое влияние оказали поездки в Непал, Мексику и Израиль.</P>
+Автор: Vit Belov
+
+### 19.12.2006 news BEHEMOTH уже в студии
+
+<P><STRONG>BEHEMOTH </STRONG>сейчас находятся в студии, где записывают новый альбом <STRONG>"The Apostasy"</STRONG>, который вывйдет ближе к лету. Пишет <STRONG>Nergal</STRONG>: "<EM>Мы подготовили 11 песен и интро. Вот некоторые названия песен: <STRONG>'Prometherion'</STRONG>, <B>'Pazuzu (The Desert Storms Bringing)'</B>, <B>'Slaying The Prophets Ov Isa'</B>, <B>'Rome 64 E.V.'</B>, <B>'Arcana Hereticae'</B>, </EM><B><EM>'At The Left Hand Ov God'</EM>".</B></P>
+Автор: Vit Belov
+
+### 08.01.2007 news BEHEMOTH - Barbarossa III!
+
+<P>Недавняя личная встреча <STRONG>Вадима Хомича</STRONG> и <STRONG>Нергала</STRONG> не прошла бесполезно. Старые партнеры и хорошие друзья договорились о следующем туре<STRONG> BEHEMOTH</STRONG> по СНГ - <STRONG>Barbarossa 3</STRONG>. На этот раз тур пройдет с 8 по 23 мая.<STRONG> THE FLAMING ARTS</STRONG> незамедлительно приступает к организации концертов и обещает, что во многих городах надвигающегося тура <STRONG>BEHEMOTH</STRONG> будет выступать впервые! Следите за информацией!</P>
+Автор: Vit Belov
+
+### 19.04.2007 news Barbarossa 3 Eastern European Tour 2007
+
+<P>Польский <B>BEHEMOTH</B> за последнее время стал настолько популярным брэндом в мире, что концерты группы вызывают невероятный интерес у фэнов, промоутеров, СМИ. Подтверждением тому является то, что группа приглашена этим летом на <B>OZZFEST 2007</B>. Но перед тем, как отправиться в США на самый популярный в мире экстремальный фестивальный тур, <B>BEHEMOTH</B> отыграют грандиозный тур по СНГ, который еще не удавалось отыграть ни одной интернациональной метал группе. Вот полное расписание тура:</P>
+<P>04.05 - Санкт -Петербург (Россия) "Порт"<BR>06.05 - Рязань (Россия) "Планетарий"<BR>08.05 - Уфа (Россия) "ДК Юбилейный"<BR>09.05 - Магнитогорск (Россия) "Ледовый Дворец"<BR>10.05 - Екатеринбург (Россия) "PV"<BR>12.05 - Тольятти (Россия) "Генератор"<BR>13.05 - Москва (Россия) "Точка"<BR>15.05 - Краснодар (Россия) "Орбита"<BR>16.05 - Ростов-на-Дону (Россия) "Подземка"<BR>17.05 - Воронеж (Россия) "100 Ручьев"<BR>18.05 - Киев (Украина) "ЦКИ НАУ"<BR>19.05 - Донецк (Украина) "Галактика"<BR>20.05 - Харьков (Украина) "Форт"<BR>22.05 - Минск (Беларусь) "Арена"<BR>23.05 - Калининград (Россия) "Башня Вранглера"<BR></P>
+Автор: Dimas
+
+### 13.05.2007 news BEHEMOTH в Москве
+
+<CENTER><IMG height=323 src="/images/shows_rus/2007.04/11576.jpg" width=450 border=0></CENTER>
+Автор: Dimas
+
+### 23.05.2007 news Новый альбом BEHEMOTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=347 alt="" hspace=0 src="/images/news_rus/2007.05/11644.jpg" width=350 align=right border=5>Новая пластинка <STRONG>BEHEMOTH "The Apostasy"</STRONG> выходит в Европе 2 июля. Стал известен трэк-лист этой работы поляков:</FONT></P>
+<P>01. <STRONG>Rome 64 C.E.<BR></STRONG>02. <STRONG>Slaying The Prophets Ov Isa<BR></STRONG>03. <STRONG>Prometherion<BR></STRONG>04. <STRONG>At The Left Hand Ov God<BR></STRONG>05. <STRONG>Kriegsphilosophie<BR></STRONG>06. <STRONG>Be Without Fear<BR></STRONG>07. <STRONG>Arcana Hereticae<BR></STRONG>08. <STRONG>Libertheme<BR></STRONG>09. <STRONG>Inner Sanctum<BR></STRONG>10. <STRONG>Pazuzu<BR></STRONG>11. <STRONG>Christgrinding Avenue</STRONG></P>
+Автор: Vit Belov
+
+### 12.01.2008 news BEHEMOTH на Nuclear Blast
+
+<P><STRONG>BEHEMOTH</STRONG> подписали контракт с <STRONG>Nuclear Blast</STRONG>. В Америке их будут издавать на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.02.2008 reviews Нергал раздвигает рамки, но пока насколько хватит рук
+
+<P>Пожалуй, ни одной пока тяжелой группе из Польши не удавался такой успех - попасть в американский чарт Billboard 200 (149-е место). Пока - пока не вывалился тяжелый, как товарняк, нагруженный чугуньком и прочим металлом, восьмой полноформатный альбом Behemoth "The Apostasy" ("Отступничество"). Давно уже забыто блэковое позёрство (хотя у Адама "Нергала" Дарски&nbsp;сотоварищи оно никогда не было столь пошлым, как у многих бывших коллег по цеху), в музыку коллектива вплетаются новые элементы и инструменты (фортепиано, духовая секция), не обойдены египетские идеи американцев Nile (хотя до них пока всё же полякам далеко). По большому счету, ничего особенного нового или свежего вы на "The Apostasy" вряд ли найдете. Эту работу можно назвать зрелым - или даже "взрослым" -&nbsp;дэтом с привлечением как&nbsp;некоторых прогрессивных фишек, так и - как указывалось&nbsp;- нетипичных для жанра инструментов. Правда, что бы ни говорили пускающие слюну критики - продакшен мог бы быть и получше. Чего-то неуловимо не хватает в музыке Behemoth, ожидаемая стена звука оказывается, образно говоря, сделанной не гномами, а обычными людьми. Хотя то, что творит Збигнев Роберт Промински (он же Inferno) за своей ударной уставновкой - просто выше всяких похвал; опять же пускаясь в фэнтезийные термины, можно сказать, что "смертные" так не играют. Думается, что фанаты "старого" Бегемота вряд ли будут особо в восторге, ибо блэком тут практически и не пахнет. Неофиты же, или любители более поздних работ коллектива, должны без всяких сомнений приобрести данную пластинку, которая уже не много не мало может быть названа симфоническим дэтом. Хотя ставить на одну чашку весов Nile и Behemoth еще рановато, да и вряд ли придется. Есть очень хорошие альбомы, а есть то, что называется "мастер-класс".</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 16.10.2008 news Новое видео BEHEMOTH
+
+<P>В сети появилось новое видео от <STRONG>BEHEMOTH</STRONG> <STRONG>"Inner Sanctum".</STRONG></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=44669742">Behemoth - Inner Sanctum</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=44669742,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=44669742,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 29.10.2008 news Новая песня BEHEMOTH
+
+<P><STRONG>BEHEMOTH</STRONG> выложили на своей <STRONG>MySpace</STRONG> страничке новую песню <STRONG>"Quadosh"</STRONG>, которая войдёт на новое EP поляков <STRONG>"Ezkaton".</STRONG></P>
+<P>Ссылка: <A href="http://www.myspace.com/behemoth">http://www.myspace.com/behemoth</A></P>
+Автор: Vit Belov
+
+### 05.01.2009 news BEHEMOTH войдут в студию
+
+<P><STRONG>BEHEMOTH</STRONG> заканчивают написание материала для новой пластинки, которая выйдет на <STRONG>Nuclear Blast</STRONG> осенью. Группа войдёт в студию в феврале. Комментирует <STRONG>Nergal</STRONG>:</P>
+<P>"<EM>Уже шесть песен написано, и ещё две мы напишем после новогоднего перерыва. Новый материал звучит очень плотно и в то же время очень свежо. Я хочу, чтобы новый альбом был жёсткий,&nbsp;быстрый и цепляющий. Оценивая то, что мы уже насочиняли, могу сказать, материал как раз такой</EM>".&nbsp;</P>
+Автор: Vit Belov
+
+### 13.01.2009 news Создание нового BEHEMOTH: Часть первая
+
+<P><STRONG>BEHEMOTH</STRONG> заняты написанием песен для нового альбома, запись которого начнётся в середине февраля. Группа выложила в сеть первый эпизод своего сериала о производстве нового альбома.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Kht_-R9SpdE&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/Kht_-R9SpdE&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.01.2009 news BEHEMOTH - лучшая концертная метал группа в мире!!!
+
+<P><IMG height=305 alt="" hspace=0 src="/images/news_rus/2009.01/13374.jpg" width=200 align=right border=5>Читатели одного из наиболее влиятельных журналов об экстремальной музыке <STRONG>TERRORIZER</STRONG> признали <STRONG>BEHEMOTH</STRONG> лучшей концертной метал группой 2008 года. Кроме того, польские метал титаны заняли первые места в еще двух категориях - "Лучший вокалист" (<STRONG>Nerga</STRONG>l) и "Лучший барабанщик" (<STRONG>Inferno</STRONG>). <STRONG>Нергал</STRONG> также занял второе место в категории "Персона года", и <STRONG>BEHEMOTH</STRONG> стали третьими в категории "Лучшая группа" 2008. Вот как прокомментировал эту новость лидер группы Нергал: "<EM>Черт подери!!! Я сижу в своей домашней студии, пытаясь соединить воедино новый материал, и от этой новости я просто теряю дар речи, это невероятно. Быть признанным читателями наиболее элитного и формирующего мнения журнала на Земле, это больше чем гордость. It's a fucking blast! От всего сердца: Thank you so fucking much! Это многое значит для нас и это определенно даст нам громадный толчок в написании самого мощного альбома, который мы можем. Мы должны вам это, fuckers!</EM>"</P>
+Автор: Vit Belov
+
+### 19.02.2009 news BEHEMOTH записывают барабаны
+
+<P><STRONG>BEHEMOTH</STRONG> начали запись нового альбома. Вместе с продюсером <STRONG>Daniel Bergstrand </STRONG>группа вошла в студию <STRONG>радио Гданьск</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.03.2009 news BEHEMOTH в студии
+
+<P><STRONG>BEHEMOTH</STRONG> находятся в студии Радио Гданьск, где записывает новый альбом. Кадры из студии можно посмотреть ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/6nDttbGdzwU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/6nDttbGdzwU&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.04.2009 news BEHEMOTH взяли Richardson
+
+<P>Сведением нового альбома <STRONG>BEHEMOTH </STRONG>займётся известнейший <STRONG>Colin Richardson</STRONG> (<STRONG>MACHINE HEAD, CARCASS, NAPALM DEATH, SLIPKNOT</STRONG>). Альбом пока не назван, но выйдет к концу лета.</P>
+Автор: Vit Belov
+
+### 16.04.2009 news BEHEMOTH назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>BEHEMOTH</STRONG> будет называться <STRONG>"Evangelion" </STRONG>и выйдет на <STRONG>Nuclear Blast</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 19.05.2009 news BEHEMOTH назначили дату релиза
+
+<P>Поляки <STRONG>BEHEMOTH</STRONG> выпустят свой новый альбом "<STRONG>Evangelion</STRONG>" 7 августа на<STRONG> Nuclear Blast</STRONG>.</P>
+<P><center><IMG height=396 src="/images/news_rus/2009.05/14102.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 23.05.2009 news У Nergal&#39;a новая подружка
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=232 alt="" hspace=0 src="/images/news_rus/2009.05/14109.jpg" width=400 align=left border=5>"Жёлтая пресса" Польши сообщает, что лидер <STRONG>BEHEMOTH Nergal</STRONG> был замечен в обществе поп-дивы<STRONG> Doda</STRONG>, бывшей звезды группы <STRONG>Virgin</STRONG>. Эта модная девушка уже дважды стала платиновой в Польше со своими нетленными альбомами.</FONT></P>
+Автор: Vit Belov
+
+### 28.05.2009 news Трэк-лист нового BEHEMOTH
+
+<P><STRONG>BEHEMOTH </STRONG>опубликовали трэк-лист нового альбома "<STRONG>Evangelion</STRONG>":</P>
+<P>01. <STRONG>Daimonos</STRONG><BR>02. <STRONG>Shemaforash</STRONG><BR>03. <STRONG>Ov Fire And The Void</STRONG><BR>04. <STRONG>Transmigrating Beyond Realms Ov Amenti</STRONG><BR>05. <STRONG>He Who Breeds Pestilence</STRONG><BR>06. <STRONG>The Seed Ov I<BR></STRONG>07. <STRONG>Alas, Lord Is Upon Me</STRONG><BR>08. <STRONG>Defiling Morality Ov Black God</STRONG><BR>09. <STRONG>Lucifer</STRONG> </P>
+Автор: Vit Belov
+
+### 23.06.2009 news Новая песня BEHEMOTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню&nbsp;<STRONG>BEHEMOTH</STRONG> <STRONG>"Ov Fire And The Void"</STRONG>с грядущего альбома <STRONG>"Evangelion" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/behemoth">http://www.myspace.com/behemoth</A></FONT></P>
+Автор: Vit Belov
+
+### 09.08.2009 news Новое видео от BEHEMOTH
+
+<P>Новое видео<STRONG> BEHEMOTH</STRONG> на песню <STRONG>"Ov Fire And The Void" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=225 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=5986449&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=5986449&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="225"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.08.2009 news BEHEMOTH тоже попали в чарты
+
+<P>8500 копий нового альбома <STRONG>BEHEMOTH "Evangelion"</STRONG> было продано в Штатах в первую неделю после релиза. Это позволило пластинке попасть в чарты на 56-ое место. Позиции в других странах:</P>
+<P>Poland: #2<BR>Finland: #17<BR>Austria: #45<BR>Germany: #59<BR>Switzerland: #88<BR>Netherlands: #5 (Indie Charts)</P>
+Автор: Vit Belov
+
+### 14.01.2010 news Nergal засудят в Польше?
+
+<P>Польская консервативная партия "<STRONG>Право и Справедливость</STRONG>" хочет инициировать уголовное дело против лидера <STRONG>BEHEMOTH Nergal</STRONG>, который в 2007 году во время концерта&nbsp;разорвал Библию на сцене. Политики считают, что музыкант оскорбил верующих этим поступком.</P>
+<P>Глава Всепольского Комитета Защиты от Сект<STRONG> Ryszard Nowak</STRONG> уже пытался инициировать дело по этому вопросу, но суд дважды отказывал в возбуждении. Вчера же дело вновь было открыто.</P>
+<P><STRONG>Nergal</STRONG> расправляется с Библией:</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Nrvv0HRKgqg&ap=%2526fmt%3D18"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/Nrvv0HRKgqg&ap=%2526fmt%3D18" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.01.2010 reviews Практически шедевр от BEHEMOTH
+
+<P>Польская группа BEHEMOTH – одна из наиболее динамично развивающихся команд из Европы в брутальной музыке. Их альбомы уже много лет волнуют умы фанатов тяжёлой музыки по всему миру, но теперь коллектив реально способен выстрелить, так как заключил контракт с монстром Nuclear Blast. Права на нашу страну оставались у группы, поэтому с релизом вышла задержка, “Evangelion” вышел на Mazzar records только в начале этого года.</P>
+<P>Что ж, «ожидание» было не напрасным. Взяв курс на более мелодичную музыку, но оставаясь в рамках брутальности black-death-metal, BEHEMOTH создали настоящий эталон этой музыки. Мощные среднетемповые риффы, инфернальная атмосфера, жуткий вокал и болезненная мелодичность – вот отличительные черты современной музыки поляков. Прослушивание этой пластинки погружает в атмосферу первородной ненависти и языческих ритуалов древности. Антихристианский посыл выливается в полное отрицание современного общества и переворачивает сознание обывателя. Музыка BEHEMOTH не требует никаких пояснений, все её темы выходят наружу уже после первых аккордов. Ненависть и злость, торжественные оккультные обряды… Вы можете ничего не понимать по-английски, эта музыка сама всё скажет за себя. Чтобы закрепить свой успех, Nergal и Ко. инспирируют различные скандалы в своей родной католической Польше, но это не является неоспоримой необходимостью. Более того, кто-то может испугаться ореола сатанизма, окружающего группу. Ведь факт известный, необязательно соглашаться с мнением музыкального коллектива по религиозным вопросам, чтобы любить его музыку. “Evangelion” не требует никакой идеологической накачки, музыка, представленная на нём, идеальна.</P>
+<P>Практически шедевр от BEHEMOTH. Настоящий подарок всем поклонникам их творчества и стиля black-death-metal. Пропускать эту работу настоятельно не рекомендую.</P>
+Автор: Vit Belov
+
+### 05.08.2010 news BEHEMOTH выпускают очередное DVD
+
+<P>Поляки <STRONG>BEHEMOTH</STRONG> выпустят новый концертный DVD <STRONG>"Evangelia Heretika" </STRONG>этой осенью. Релиз увидит свет на <STRONG>Nuclear Blast</STRONG>. Лидер коллектива<STRONG> Nergal</STRONG> обещает нечто особенное не взирая&nbsp;на то, что будущий альбом не первый DVD в истории группы.</P>
+<P><center><IMG height=400 src="/images/news_rus/2010.08/16996.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 09.08.2010 news Nergal заболел
+
+<P>Лидер польских сатанинских брутальщиков <STRONG>BEHEMOTH Nergal</STRONG> попал в больницу. Диагноз музыканта не уточняется, но уже объявлено, что <STRONG>BEHEMOTH</STRONG> отменяют все концерты в ближайшие месяцы. Под отмену попал и тур по России и СНГ этой осенью, а также тур по Штатам в ноябре. </P>
+<P>Сам <STRONG>Nergal </STRONG>ничего конкретного не рассказывает о своей болезни, но по информации сайта <STRONG>Se.pl</STRONG> певец госпитализирован в гематологическое отделение больницы Гданьска.</P>
+Автор: Vit Belov
+
+### 12.08.2010 news Новое видео BEHEMOTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип поляков <STRONG>BEHEMOTH</STRONG> на песню <STRONG>"Alas The Lord Is Upon Me" </STRONG>можно посмотреть ниже. Режиссёром видео выступил <STRONG>Dariusz Szermanowicz, </STRONG>который работал над двумя предыдущими роликами коллектива <STRONG>"Ov Fire And The Void"</STRONG>&nbsp;и <B>"At The Left Hand Ov God"</B>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=14061620&server=vimeo.com&show_title=1&show_byline=1&show_portrait=1&color=ffffff&fullscreen=1&autoplay=0&loop=0">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=14061620&server=vimeo.com&show_title=1&show_byline=1&show_portrait=1&color=ffffff&fullscreen=1&autoplay=0&loop=0" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.08.2010 news У Nergal лейкемия
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=278 alt="" hspace=0 src="/images/news_rus/2010.08/17098.jpg" width=348 align=left border=5>У лидера польских экстремальщиков <STRONG>BEHEMOTH</STRONG> <STRONG>Adam "Nergal" Darski</STRONG>&nbsp;обнаружен рак крови (лейкемия). Музыкант проходит лечение в гематологическом отделении больницы Гданьска, и ему требуется пересадка костного мозга. Доноров ищут по всей Польше, ведь чем больше людей сдаст анализ, тем больше вероятность того, что нужные клетки будут обнаружены.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По данным американского здравоохранения нужного донора находят только четыре пациента из десяти. </FONT></P>
+Автор: Vit Belov
+
+### 16.09.2010 news Nergal ищут доноров даже в США
+
+<P><IMG height=236 alt="" hspace=0 src="/images/news_rus/2010.09/17187.jpg" width=350 align=right border=5>По сообщению журнала <STRONG>MetalSucks,</STRONG> в США организуются пункты приёма анализов для потенциальных доноров костного мозга, которые требуются для лечения лидера <STRONG>BEHEMOTH Nergal</STRONG> от лейкемии. В октябре - ноябре будут развёрнуты лагеря в Лос-Анджелесе, Нью-Йорке и Стэмфорде.</P>
+<P>Для успешного лечения лидеру <STRONG>BEHEMOTH</STRONG> требуется донор костного мозга. Подойти может примерно&nbsp;1 человек из 40000, поэтому необходимо сдать как можно больше анализов крови потенциальными донорами, по которым будут определены подходящие кандидатуры. </P>
+Автор: Vit Belov
+
+### 09.11.2010 news Nergal закончил химиотерапию
+
+<P>Лидер <STRONG>BEHEMOTH</STRONG> <STRONG>Adam "Nergal" Darski </STRONG>сообщил публике о своём текущем состоянии. Напомним, несколько месяцев назад у артиста был диагностирован рак крови (лейкимия). Вокалист сообщил, что прошёл четыре курса химиотерапии. Следующим этапом лечения станет облучение и пересадка костного мозга. <STRONG>Nergal</STRONG> сообщил, что донор найден, и поблагодарил всех, кто участвовал в его поиске и сдавал собственные анализы, "независимо от происхождения, цвета кожи или религии".</P>
+Автор: Vit Belov
+
+### 20.12.2010 news Nergal перенёс операцию
+
+<P><IMG height=257 alt="" hspace=0 src="/images/news_rus/2010.12/17884.jpg" width=200 align=right border=0>В пятницу 17 декабря лидер<STRONG> BEHEMOTH Nergal</STRONG> перенёс операцию по пересадке костного мозга. Теперь музыкант проведёт четыре недели в изоляторе гематологической больницы в Гданьске, так как в настоящий момент его имунная система очень слаба.</P>
+<P>У <STRONG>Nergal </STRONG>была диагностирована лейкемия ранее в этом году. Он уже прошёл несколько курсов химиотерапии и теперь лечение выходит на финальную стадию.</P>
+Автор: Vit Belov
+
+### 21.01.2011 news Nergal вышел из больницы
+
+<P><IMG height=278 alt="" hspace=0 src="/images/news_rus/2011.01/18257.jpg" width=348 align=right border=0>Лидер<STRONG> BEHEMOTH Nergal</STRONG> вышел из гематологического отделения больницы Гданьска, где он проходил курс лечения от лейкемии. Музыкант в своём заявлении сообщает, что после полугода химиотерапии и облучения он выписан в очень хорошем состоянии. </P>
+<P>"<EM>Это был очень не простой период моей жизни, но я покинул госпиталь с&nbsp;победой</EM>", - заявил<STRONG> Adam</STRONG>. </P>
+<P><STRONG>Nergal </STRONG>предстоит продолжить лечение на дому в течение нескольких ближайших месяцев.&nbsp;</P>
+Автор: Vit Belov
+
+### 04.02.2011 news Nergal вернули в больницу
+
+<P><IMG height=354 alt="" hspace=0 src="/images/news_rus/2011.02/18406.jpg" width=250 align=right border=0>Лидер польской группы <STRONG>BEHEMOTH</STRONG> <STRONG>Adam "Nergal" Darski </STRONG>вновь госпитализирован в гематологическое отделение больницы Гданьска. 33-летний музыкант подхватил инфекцию, и было решено изолировать его в больнице. </P>
+<P>Напомним, что <STRONG>Nergal </STRONG>перенёс курс лечения от лейкемии, включающий пересадку костного мозга.</P>
+Автор: Vit Belov
+
+### 23.03.2011 news Переиздание двух EP группы BEHEMOTH - &quot;Conjuration&quot; (2003) и &quot;Slaves Shall Serve&quot; (2005) на двойном CD.
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18938.jpg" width=400 height=400>18 апреля на лейбле <STRONG>Peaceville</STRONG> выходит переиздание двух EP группы <STRONG>BEHEMOTH</STRONG> - "<STRONG>Conjuration</STRONG>" (2003) и "<STRONG>Slaves Shall Serve</STRONG>" (2005) на двойном CD.</P>
+<P>В издание, получившее название&nbsp;"<STRONG>Abyssus Abyssum Invocat</STRONG>", так же, войдёт 5 дополнительных концертных треков и 16 страничный буклет с новым оформлением, специально созданным для этого релиза.</P>
+<P style="TEXT-ALIGN: left">CD disc 1 - "<STRONG>Conjuration</STRONG>":</P>
+<P style="TEXT-ALIGN: left">01. <STRONG>Conjuration Of Sleep Daemons <BR></STRONG>02. <STRONG>Wish</STRONG> (<STRONG>NINE INCH NAILS</STRONG> cover)<BR>03. <STRONG>Welcome To Hell</STRONG> (<STRONG>VENOM</STRONG> cover)<BR>04. <STRONG>Christians To The Lions</STRONG> (Live) <BR>05. <STRONG>Decade Of Therion</STRONG> (Live) <BR>06. <STRONG>From The Pagan Vastlands</STRONG> (Live) <BR>07. <STRONG>Antichristian Phenomenon</STRONG> (Live) <BR>08. <STRONG>Lam</STRONG> (Live) <BR>09. <STRONG>Satan’s Sword</STRONG> (I have become) (Live) <BR>10. <STRONG>Chant For Eskaton 2000</STRONG> (Live) <BR><BR>CD disc 2 - "<STRONG>Slaves Shall Serve</STRONG>":</P>
+<P style="TEXT-ALIGN: left">01. <STRONG>Slaves Shall Serve <BR></STRONG>02. <STRONG>Entering The Pylon Of Light <BR></STRONG>03. <STRONG>Penetration</STRONG> <BR>04. <STRONG>Until You Call On The Dark <BR></STRONG>05. <STRONG>Demigod</STRONG> (Live) <BR>06. <STRONG>Slaves Shall Serve</STRONG> (Live) <BR>07. <STRONG>Lam</STRONG> (Live) <BR>08. <STRONG>As Above So Below</STRONG> (Live) <BR></P>
+Автор: Headcrusher
+
+### 25.04.2011 news BEHEMOTH возвращаются на сцену
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BEHEMOTH </STRONG>запланировали концертный тур по своей родной Польше на октябрь 2011 года. Группа даст шесть концертов с 08 по 21 октября. Шоу станут первыми после того, как у лидера <STRONG>BEHEMOTH Nergal</STRONG> был обнаружен рак крови. В настоящее время ведутся переговоры о концертах в других частях света.</FONT></P>
+<P><center><IMG height=648 src="/images/news_rus/2011.04/19297.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 28.06.2011 news BEHEMOTH начали репетиции
+
+<P><B>BEHEMOTH</B> провели первые репетиции после того, как у лидера коллектива <B>Nergal </B>была диагностирована лейкемия в прошлом августе. Коллектив готовится к октябрьским концертам в Польше. После этого <B>BEHEMOTH</B> планируют посетить с концертами весь мир, в планах туры по Европе, Азии и&nbsp;США.</P>
+<P><B>Nergal</B> заявил, что в ближайшем турне <B>BEHEMOTH </B>будут играть вещи, которые до этого не исполнялись ими вживую. Более того, музыкант намекнул, что группа работает над новым материалом.</P>
+<P><center><IMG height=317 src="/images/news_rus/2011.06/19776.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 30.06.2011 news Nergal возвращается в суд
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=262 alt="" hspace=0 src="/images/news_rus/2011.06/19798.jpg" width=475 align=right border=0>Вокалист/гитарист<STRONG> BEHEMOTH</STRONG> <STRONG>Adam "Nergal" Darski </STRONG>присутствовал вчера в суде на слушаниях, посвящённых делу о "раздирании" им копии Библии на концерте в городе Гдыня. Напомним, тогда музыкант назвал католичество "самым кровавым культом на Земле" и разорвал копию Библии, назвав её "книгой лжи". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В своих показаниях <STRONG>Nergal</STRONG> признал, что означенный инцидент имел место, но произошло это на закрытом мероприятии перед несколькими сотнями людей. "<EM>Люди, которых уничтожение Библии могло задеть, не присутствовали на этом мероприятии</EM>", - заявил вокалист. Также <STRONG>Adam</STRONG> отметил, что на билете было указано, что любая съёмка концерта категорически запрещена, и видео попало в сеть нелегально. "<EM>Я не хотел никого оскорбить, раздирание Библии было лишь артистической метафорой</EM>", - утверждает<STRONG> Nergal</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дело уже провалилось в суде Гдыни прошлым летом, но по аппеляции прокурора оно слушается вновь.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время <STRONG>BEHEMOTH</STRONG> продолжают репетиции перед масштабным туром группы, который станет первым после успешной терапии <STRONG>Nergal</STRONG>, связанной с обнаруженным у него раком крови.</FONT></P>
+Автор: Vit Belov
+
+### 19.08.2011 news Nergal - невиновен
+
+<P>Лидер <B>BEHEMOTH Nergal</B> был признан невиновным в оскорблении религиозных чувств в связи с инцидентом на концерте в городе Гдыне в сентябре 2007 года, когда он прилюдно разорвал Библию. Суд признал поведение музыканта артистическим выступлением, связанным со стилистикой его музыкальной группы.</P>
+<P>Поведение <B>Nergal </B>признано искусством, а польский суд не намерен ограничивать творческую инициативу граждан в связи с критикой религии. <B>Adam "Nergal" Darski </B>высказал удовлетворение вердиктом и сказал, что рад, что в его родной стране разум восторжествовал над религиозным фанатизмом.</P>
+<P>Согласны ли вы с вердиктом суда? Голосуйте в нашем новом опросе: <A href="/ru/poll/219/">http://musica.mustdie.ru/ru/poll/219/</A></P>
+<P>
+<CENTER><IMG height=370 src="/images/news_rus/2011.08/20699.jpg" width=419 border=0> 
+ </CENTER>
+Автор: Vit Belov
+
+### 13.09.2011 news Фронтмен BEHEMOTH на обложке польского журнала &quot;Newsweek&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/21054.jpg" width=400 height=533>Фронтмен <STRONG>BEHEMOTH</STRONG> <B>Adam "Nergal" Darski</B> засветился на обложке новоого номера&nbsp;&nbsp;польского издания журнала <B>Newsweek</B>. Заголовок на его&nbsp;обложке гласит "God Horror Fatherland" ("Родина бога ужаса"), а подпись под ним добавляет - "The Unknown Face Of The Polish Devil" ("Неизвестное лицо польского дьявола").</P>
+<P>В данный момент <STRONG>Darski</STRONG> принимает участие в качестве одного из четырёх судей в польской версии конкурса <B>"The Voice"</B>,&nbsp;который получила соответствующее название -&nbsp;<B>"The Voice Of Poland"</B>.</P>
+<P>Как ранее сообщалось в&nbsp;польских СМИ, продюсеры <STRONG>"The Voice Of Poland"</STRONG>, надеются, что присутствие<STRONG>&nbsp;Darski&nbsp;</STRONG>на конкурсе привлечёт к нему новых зрителей, а так же, увеличит его конкурентоспособность с телевизионным шоу-талантов <B>"X Factor"</B>.</P>
+<P>Другие фотографии c&nbsp;фотосессии для журнала <STRONG>Newsweek</STRONG>&nbsp;можно посмотреть по адресу:</P>
+<P><A href="http://zdjecia.newsweek.pl/zdjecia,nergal--sumienie-czy-bluznierca,81993,1,1.html">http://zdjecia.newsweek.pl/zdjecia,nergal--sumienie-czy-bluznierca,81993,1,1.html</A></P>
+<P><BR><BR><BR><BR><BR>&nbsp;</P>
+<P><BR>&nbsp;</P>
+Автор: Headcrusher
+
+### 08.10.2011 news Новый клип BEHEMOTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик <STRONG>BEHEMOTH </STRONG>на песню "<STRONG>Lucifer</STRONG>" можно посмотреть ниже. Трек взят с последней работы группы "<STRONG>Evangelion</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://player.vimeo.com/video/29993555?title=0&byline=0&portrait=0" frameBorder=0 width=400 height=225 allowFullScreen webkitAllowFullScreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 31.05.2013 news BEHEMOTH выпустят Сатаниста
+
+<P>Десятый альбом поляков <STRONG>BEHEMOTH</STRONG> получил название "<STRONG>The Satanist</STRONG>". Пластинка выйдет осенью на <STRONG>Nuclear Blast</STRONG>. Альбом записывается в студии Herz при непосредственном участии <STRONG>Daniel Bergstrand</STRONG> (<B>MESHUGGAH</B>, <B>IN FLAMES</B>, <B>SOILWORK</B>, <B>STRAPPING YOUNG LAD</B>).</P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2013.05/25773.jpg" width=475 height=379></FONT></P>
+Автор: Vit Belov
+
+### 09.12.2013 news Новое видео BEHEMOTH
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый клип великолепных<strong> BEHEMOTH</strong> на песню <strong>'Blow Your Trumpets Gabriel'</strong> с будущего альбома "<strong>The Satanist</strong>", выходящего 3 февраля. </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="340" height="340" src="/images/news_rus/2013.12/26407.jpg" border="0"></p><p><center><iframe src="//player.vimeo.com/video/80953694" width="500" height="281" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 05.04.2014 reviews Религиозный трактат на злобу дня
+
+<P>Российская общественность негодует. На сайтах православной тематики стали появляться «ответы» так называемым рокерам от рокеров не так называемых. Всё дело в том, что к нам едет Он, к нам едет <SPAN lang=en-US>BEHEMOTH. </SPAN>Уже и рак крови на него насылали, и в тюрьму сажали, и анафеме его придавали, а он всё едет и едет. Да ещё и альбом называет "<SPAN lang=en-US>The Satanist".</SPAN></P>
+<P><SPAN lang=en-US></SPAN>&nbsp;На самом деле это страшно. Страшно, если после появления этого альбома в дискографии группы на нашем сайте, наш сервер просто-напросто сгорит небесным огнём. Возможны также разнообразные поломки оборудования и уголовное преследование. Видимо, подобный ажиотаж немного помутил рассудок и лидера <SPAN lang=en-US>BEHEMOTH Nergal. </SPAN>Он действительно ощутил себя в шкуре борца за права сатанистов и теперь проповедует в своей музыке напропалую. Новый альбом польского коллектива представляет собой набор «сатаниских» мантр, перемежаемых помпезными «интро» в стиле «шагающий Вельзевул». Несколько песен так и не начинаются, перетекая в постоянное вступление. Даже видео-клип на хит с этого альбома "<SPAN lang=en-US>Blow Your Trumpets Gabriel" </SPAN>демонстрирует не законченное устрашающее произведение<SPAN lang=en-US>, </SPAN>а непонятный набор символов и антихристианских метафор. Исключение составляют несколько треков, где <SPAN lang=en-US>BEHEMOTH </SPAN>выдают великолепные мелодии, ранее им несвойственные. Благодаря создаваемой густой атмосфере сатанизма, альбом производит впечатление более блекового, чем несколько его предшественников, что должно понравиться поклонникам раннего и среднего периода творчества поляков. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В общем и целом, слушать "<SPAN lang=en-US>The Satanist" </SPAN>достаточно тяжело. Он производит впечатление не музыкального произведения, а религиозного трактата, театрализованного с помощью молитв и песнопений. Ради интереса послушать подобное творчество необходимо, но возвращаться к нему будут единицы.</P>
+Автор: Vit Belov
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+### 09.04.2015 news BEHEMOTH: клип &quot;Messe Noir&quot;
+
+<P>Польские металлисты <STRONG>BEHEMOTH</STRONG> опубликовали видео на трек <STRONG>"Messe Noir"</STRONG>. Песня вошла в прошлогодний альбом <STRONG>"The Satanist"</STRONG>.&nbsp;</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/0wN7u7B_qPQ" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 07.04.2016 news BEHEMOTH: видеоклип &quot;Ben Sahar&quot;
+
+<P>Польские блэк-металлисты <STRONG>BEHEMOTH</STRONG> выпустили уже четвёртый по счёту видеоклип на песню с альбома<STRONG> "The Satanist"</STRONG>.&nbsp;На этот раз визуальному воплощению подвергся трек <STRONG>"Ben Sahar"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/7xbZMJGpc9I" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 02.09.2016 articles Евгений &#39;Agen Price&#39; Аксёнов: &quot;Петер из VADER так говорил: &quot;Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!&quot;
+
+<p><em></em><center><em><img width="500" height="748" src="/images/articles_rus/2016.09/29910.jpg" border="0"></em><center><p></p><p><em>Продолжаем нашу рубрику, в которой беседуем с людьми так или иначе связанными с тяжёлой музыкой в нашей стране. На этот раз наш гость Евгений 'Agen Price' Аксенов, знаменитый "промоутер", один из первых металических деятелей в СССР.</em></p><p><strong>Начнём с вопроса о твоих нынешних делах. Давненько от тебя не было новостей. Совсем отошёл от металопросветительской деятельности?</strong></p><p>Можно сказать, что да. В качестве хобби издаю понемножку винил. Не так давно совместно с Beverina Productions переиздали альбом группы Alkonost "Каменного сердца кровь"... Есть планы на переиздание ещё нескольких альбомов разных групп. CD&nbsp; практически перестали продаваться, а от того и интерес к ним тоже пропал. А вот просветительскую деятельность как раз продолжаю. Часто обращаются музыканты, промоутеры, издатели с тем или иным вопросом. Помогаю чем могу, как нашим, так и иностранцам.</p><p><strong>Ну значит мы к тебе по адресу. Как ты думаешь, что наиболее актуально в тяжёлой музыке сейчас?</strong></p><p>Мне кажется, что продвинуться и подняться сейчас смогут те группы, которые в своём творчестве будут использовать синтез различных стилей и звучаний. Недавно переслушал почти все альбомы Slipknot. И что мне показалось интересным... Вроде бы ничего нового они не придумали, но использование одновременно нескольких барабанных установок, плюс перкуссия... значительно улучшают звук, делаю его ураганным, что ли... В принципе это не новое слово в музыке... много групп и раньше использовали одновременно несколько соло-гитар, но с разными партиями. Или несколько клавишных, опять же, играющих каждый свою партию. Голос опять же, давняя схема. Скажем, гроулинг+чистый вокал... Но при всем при этом, всегда впереди будут самородки, сочиняющие красивые мелодии или темы с драйвом. Всегда будут любители усложнённой музыки. Ну и первооткрыватели, само собой, всегда в чести будут. Потому что последователей всегда будут сравнивать с ними.</p><p><strong>Каких первооткрывателей ты видишь на сцене в последние годы?</strong></p><p>Я физически не имею возможности слушать всё то, что выходит в последнее время, поэтому тут сложно быть объективным. Это в 70-е годы сплошь были открытия и групп раз-два и обчелся... Сейчас в тяжелой музыке мне кажется есть некий застой. Всё, что ни выходит, так или иначе что-то напоминает, что было уже. Ну, это лично моё мнение. Может я чего-то не услышал. Более или менее оригинальными мне показались альбомы TODTGELICHTER или SOLSTAFIR... А может быть я просто ударился в эту тему... Север, холод, уныние, тоска, печалька... и т.п.</p><p><strong>А что опечалился?</strong></p><p>Я сам-то как раз не опечалился... Просто тема Севера очень притягивает... Я ведь служил там и меня всегда восхищали северные моря, фьорды, заливы, тамошняя природа, даже погода! Хотя она и очень сурова. Есть такой в нашей тусовке человек Андрей Мизери, у него свой лейбл, занимающийся нойзовой музыкой, так вот он почти каждый год ездит в Норвегию... Счастливчик! Не то, что мы... Всё по европам, да по африкам... Ну и ещё один момент... Окружение, то есть, те люди с кем ты постоянно общаешься. Так вот они тоже подсели на меланхоличную музыку, большинство конечно на ту, что полегче, типа Muse. Но вот у нас мода такая...</p><p><strong>Давай поговорим о более весёлых временах. О прошлом. Ты ведь стоял у истоков становления отечественого тяжеломузыкального бизнеса. Доволен во что вылились твои начинания?</strong></p><p>Я не думал об этом. Всё произошло как-то само собой. Ну, я конечно всегда любил тяжелый рок, но вместе с ним и весь классический рок, а потом и диско. Не особо меня впечатлили панк, да и металл, когда он только появился. Для меня это была лишь новая вывеска, ярлык, который приклеили к обычному хард-року, а к коммерции всегда есть какая-то настороженность. И только с появлением трэша, я осознал, что вот она... новая музыка, новые стили, новые горизонты... Интерес к этому всему был неимоверный. Это была уже середина, точнее вторая половина 80-х. Как раз тогда я начал активную переписку c иностранными лейблами и музыкантами. Понятное дело, что они оказали на меня большое влияние. Тем более, что помимо теории (переписки и обмена продукцией) это имело какую-то уже практическую направленность. Как-то организация собственного лейбла и обмен концертами. Они к нам, мы к ним... Первые страны, точнее люди этих стран, с которыми я завязался были Польша, Болгария, Югославия и Норвегия... В итоге, больше всего и лучше... получилось с Польшей... С остальными как-то банально и тупо прекратилось... Югославию разбомбили, в Норвегии был убит Еуронимус, с кем я вёл все дела и переписку... А Болгария просто на тот момент так и не заимела нормальных метал-групп... Может они и были, но мы друг о друге не узнали.</p><p><strong>Еуронимус? То есть если бы его Варг не замочил, поехал бы в Норвегию с Коррозией?</strong></p><p>Да, но первые гастроли, которые мы планировали провести в тогда ещё СССР... были концерты Mayhem. Во что это вылилось? У меня особо ни во что... После Союза у меня как-то всё надломилось, пропал интерес, как-то всё пошло вяло. Запала уже точно не было как раньше. Помню на Мастдае ещё, в ходе наших бурных дебатов... Лёша Ихтиандр сказал, мол, надо освобождать дорогу молодым... Я сначала всё это в штыки восприянял, а потом задумался... А ведь это правда, так и должно быть. По натуре я кустарь-одиночка, всё привык делать сам и один. Каких-то корпораций и концернов не создал... Двигать дальше тему будет просто не по силам... Да и денег таких нет, а тупо влачить какое-то невнятное существование... ну это просто не интересно... Плюс ко всему, у меня дети, внуки, семья... Надо и им внимание уделить... Всё же в следующем году мне уже будет 60... Сколько можно ещё предаваться "трэшу, угару и содомии"? Пора и остепениться... Я тогда был президентом Мытищинского рок-клуба, с Коррозией был мало знаком и у нас были свои кандидаты - Фаланга и Месса. Но первыми к нам должны были приехать норвеги.</p><p><strong>Расскажи про Петера из VADER. Вы же с ним общались. Он вон до сих пор мотается с турами по всему свету. В сентябре во Владивосток собрался. Были какие-то истории с ним связанные?</strong></p><p>Первыми в Россию из Польши приехали Magnus, потом Bloodlust и Slashing Death, в которых барабанил Доцент, вот с ним-то мы и познакомились первым из Vader. Но все приезжающие к нам поляки, и музыканты, и техники, постоянно твердили мне, что я обязательно должен пригласить Vader, мол, это новая звезда thrash'n'death metal, и что они скоро удивят всех. Что вскоре и случилось. С Петром мы реально задружились, так он оказался очень дружественным и порядочным человеком. Мы много с ним встречались на разных концертах и фестивалях в Польше, да и вообще, просто так, в тусовках, рок-магазинах, на лейблах, на радио. Он всегда спрашивал, есть ли какие проблемы и чем он может помочь. Отличный парень! На дебютном альбоме Vader, который вышел на Earache, в кредитах с благодарностью есть и моё имя. Чем я несказанно горд. Это не байка, кто хочет, может Петра спросить об этом, но приезжающим к нам музыкантам Петер так говорил: "Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!"...</p><p><strong>Я тут брал у него интервью, он признавался в любви к России. Как ты думаешь не испортятся у нас отношения с польскими музыкантами из-за политики?</strong></p><p>К России кто угодно может изменить отношение, только не Петер. Я повторю, это глубоко порядочный и душевный человек. Несмотря на то, что он и сочиняет и играет брутальную музыку. Вот скажем, за Адама из Behemoth я никогда не стал бы давать каких-то гарантий. Хотя... может быть, что я просто не настолько близко его знаю. А люди все разные. Как в России, так и в Польше есть народ с разными мировоззрениями и разным воспитанием. Во всяком случае, у меня там осталось очень много друзей, которые примут меня в любой момент и окажут всяческое содействие. И второе, Петер прекрасно понимает и помнит, откуда началось триумфальное восхождение Vader на музыкальный Олимп. И все это знают, и многие в мире видели тв-кадры с полными залами, стадионами на наших фестивалях в те времена. В Европе же они тогда собирали лишь небольшие клубы.</p><p><strong>А как относишься к фактам отмены концертов у нас? Под раздачу как раз поляки попали. Адам Nergal, Батюшка.</strong></p><p>Отношусь негативно. Отмены ни к чему хорошему не приводят. Тем не менее, под раздачу попали как раз группы строящие свой имидж во многом на эпатаже. А раз ты находишься в таком состоянии и ситуации, оценивай обстановку трезво. Тем более, что в последнее время у нас сплошь крайности, что с одной, что с другой стороны. Всем нужно показать себя, либо свою силу, либо неординарность. Петя со-товарищи спокойно делает своё дело и не лезет в за...упу. Но повторюсь, сейчас в России общество крайне полярно и каждый использует любую возможность, чем и как бы насолить друг другу...</p><p><strong>То есть думаешь BEHEMOTH и Batushka в некотором роде сами виноваты?</strong></p><p>А ты считаешь нет? В Польше на Адама гонят ещё больше чем в России, за то, что он порвал библию и трезвонит об этом на каждом углу. Больше того, он стал нерукопожатным в некоторых кругах и у музыкантов. Поляки гораздо более религиозная нация, чем мы и там такое не прощают и не забывают. Батюшку же... считаю просто провокационным проектом... Хотя, на провокациях во многом построен современный шоу-бизнес...</p><p><strong>Знаю, часто ходишь на концерты и сейчас. Ностальгия мучает?&nbsp; Стадионов ведь больше не собирают.</strong></p><p>На концерты как раз хожу совсем редко. Ностальгия не то, что не мучает, её просто нет. Но с благодарностью и теплом вспоминаю те времена. Что было, то и было... Видимо такая судьба. То, что стадионы не собирают метал-группы, ну так это тоже, веяние времени. Значит так оно должно и быть. Это тем, кто бизнес на этом свой строил, можно сожалеть... А мне от этого не горячо и не холодно.</p><p><strong>Вот Круиз воссоединился. Был на концерте? Что думаешь?</strong></p><p>Был. Конечно было интересно посмотреть на них, в каком они состоянии, тонусе. Молодцы! Настоящие музыканты! Сохранили в себе задор, угар и владение инструментами. Также очень хотелось встретиться с людьми из прошлого, кого не видел уже несколько десятков лет. Общался большую часть фестиваля... Круиз конечно весь посмотрел, фрагментарно Арию, Доро, Слот, Хиппи Хаос... Хотя, есть ощущение, что время уходит. И вкусы у молодёжи стали другие... Да и вообще, как-то всё не радостно у нас... Хороших металлических журналов, как не было, так и нет. Я имею ввиду тиражные издания, чтобы в каждом киоске лежали. Как нет фестивалей подобных Вайкену, да и многим другим европейским, так и нет... И вывод из этого следует не радостный... Как не было у нас массовой культуры в металле, так её и нет... А это значит, что концерты так и будут малопосещаемыми, и диски будут продаваться мизерными тиражами. Бизнеса на этом нормально не построишь и всё будет держаться до поры до времени на плечах энтузиастов... пока и у них на это хватит сил...</p><p><strong>Печальная картина. А что думаешь о отечественной сцене? Случился какой-то качественный скачок или мы до сих пор на задворках мировой музыки?</strong></p><p>Есть хороший пример для всех нас - Аркона. Они всем показали, что наша музыка может быть на одном уровне с мировой. Просто для этого к музыкальному таланту (а у нас бескрайнее море талантов) нужно приложить самоотверженную работоспособность... Помню время, когда ещё работала старая Горбушка... Иду на свою точку и вижу, как Лазарь с Князем клеят афиши имени себя самих... они тогда презентовали свой дебютный альбом Rossomahaar... Подошёл к ним, поздоровались... Спрашиваю, а чой-то вы афиши клеите, наняли бы кого... А Лазарь и говорит, а мы, мол, всё сами, в своих руках хотим держать... Меня это просто проняло что ли, ну, говорю, молодцы, вас точно рано или поздно слава и успех найдут... Это как хороший наглядный пример... Сам для себя не сделаешь, никто для тебя особо разрываться и не будет. Так что разгонять свой паровоз всегда нужно самим, а от того, как разгонишь, так он дальше и полетит... или поедет... или остановится...</p><p><strong>Вот ты начинал почти одновременно с такими лейблами как Nuclear Blast, Century Media или там Osmose Productions, а высот подобных им так и не добился, что помешало этому?</strong></p><p>Можно конечно просто ответить... Совок и запад, разные величины, разные люди, разный менталитет, разный подход к делу, разная инфраструктура (у нас её в полном понимании, как я считаю, так и не возникло, выше уже отвечал про журналы, концерты, фестивали)... Но лично я думаю, что я просто распылил всю свою энергию, силы и средства. Вот скажем, Эдуард Ратников (глава Talent Concert International), промоутер на которого можно и нужно равняться всем. Он сосредоточился на теме, изучил опыт работы, как наш, так и зарубежный. Сделал поправки на особенности работы в странах бывшего СНГ, само собой плюс его неимоверная работоспособность и амбиции... Как итог - он и его команда лучшие в России по части организации рок-концертов. И металлических артистов, тяжелых групп и исполнителей в его бэкграунде внушительное количество. Я же взял за основу схему польских компаний Carnage Records, Morbid Moizz и конечно же Metal Mind Productions... Мне нравилось в них то, что они выполняли весь спектор работ или услуг на рынке... Прежде всего, это издание носителей - LP, CD, MC, DVD и прочее. Это и работа со своими собственными коллективами, менеджмент, букирование, организация туров и прочее... Организация своих фестивалей и издание собственных печатных изданий. У Carnage - Thrash'em All, Morbid Noizz одноимённый журнал и у Metal Mind польская версия Metal Hammer, который можно было купить в каждом газетном киоске и стоил он всего полтора доллара, при этом был великолепного цветного качества, содержал большие плакаты и на праздники CD-компиляции. Я попробовал сделать тоже самое, издавал и журналы, организовывал фестивали, продюсировал группы... И всё это требовало невообразимых затрат, сил и времени. И очень часто не приносило никакой прибыли. Так что вся эта работа была чисто подвижничеством и благотворительностью. Плюс ко всему, все кризисы которые у нас только не случались, целиком и полностью отражались на мне. И ладно бы это было так, между прочим, в процессе работы... Но нет, кризисы случались именно в тот момент, когда я форсировал свою деятельность. То есть, вкладывался в запись альбомов, съёмку клипов, в организацию больших проектов и фестивалей. Друзья уже смеясь, придумали такую феньку... мол, если Женя набрал кредитов - жди кризиса в стране... А отдавать приходилось годами... Так что богатства особого я так и не нажил...</p><p>Ещё в качестве P.S. И в заключение хочу дать один рецепт быстрого приготовления вкусняшки. Это польская запеканка. Поскольку сейчас много грибов она будет весьма кстати. Покупаем багет, желательно помягче. Режем его вдоль, отделяем верхнюю часть с корочкой. А нижнюю оставляем, она должна быть длиной 30 см. можно и больше. Сверху тонким слоем мажем томатной пастой. Заранее приготовленные грибы (их надо отварить, остудить, нашинковать помельче, а потом с лучком пережарить) накладываем на багет. Сверху посыпаем тёртым сыром и в духовку или микроволновку. 2-5 минут и у вас отличная хрустящая запеканочка! Этакая польская пица... Сейчас в Поляндии тоже с палатками идёт война, а своё время запеканки продавались на каждом шагу. Приятного аппетита!</p></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Впечатления о концерте BEHEMOTH

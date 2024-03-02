@@ -96,6 +96,47 @@ All rhythm guitars on this record are played by Zeb Nilsson
 * C группой "Entombed A.D." Victor Brandt (guitar)
 * C группой "Firespawn" Victor Brandt (guitar)
 
+## Публикации
+
+### 18.06.2002 news AEON расстались с барабанщиком...
+
+<p>Шведы "AEON" заменили ударника Arttu Malkki на Nils Fjellstr&ouml;m. Судя по сообщению опубликованному на официальном сайте, это произошло из-за недостаточной увлеченности Arttu делами группы.</p>
+
+Автор: Yermola
+
+### 18.06.2002 news AEON Part With Drummer, Announce Replacement ...
+
+<p>Sweden's AEON have replaced drummer Arttu Malkki with Nils Fjellstrцm. According to a message posted on the band's web site, "the reason [for Arttu's departure] was lack of interest and will to play this kind of music. He thought it was more pain then pleasure to play, and that's not the way it's meant to be. We were not entirely surprised by his decision and we knew that he was thinking about quitting the band. At the same time we would like to welcome our new drummer Nils Fjellstrцm, he joined us earlier this week. Arttu will still be supporting AEON in some ways, and we really wish him all the luck with other projects that he is working on."</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> LABELS, if you want Belarusian metalheads to be acquainted with your releases we recommend you to put MassaBrutto Radioshow address in your promo and mailing lists. <BR><BR> All kinds of quiz actions featuring your products as prizes can be performed in MassaBrutto. You may discuss all conditions with us by using any way of connection.<BR><BR> Nevertheless we live in ex-Soviet state where music piracy dwells, MASSA BRUTTO RADIOSHOW DOESN'T SUPPORT ANY KIND OF MUSIC PIRACY ON PRINCIPLE !!! <BR> So, you may be sure that:<BR> - there wasn't and there won't any of illegal CDs broadcasted within MassaBrutto Radioshow;<BR> - any of official or licensed CDs sent to MassaBrutto will not become the property of music pirates.<BR><BR> If you or someone that you know is in a band that is interested in getting some guaranteed airplay on a radio station in Belarus then all you need to do is to get in contact with us. <BR><BR> If there are any questions - feel free to ask.<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 15.10.2010 reviews Шведский вариант brutal death
+
+<P>Дебют шведской команды AEON “Bleeding The False” вышел в 2005 года на Unique Leader Records. Этот лэйбл широко известен в узких кругах любителей брутального death-metal. Уже со второй пластинкой AEON продвинулись на более популярный и не менее культовый Metal Blade. Пускай у этой конторы нет таких чётких стилистических рамок, альбомы шведов не потеряли в тяжести и звериной энергии.</P>
+<P>Музыку AEON можно определить как максимально брутальную версию шведского death-metal. Нечто подобное играют сейчас VOMITORY. Чёткий «трэшовый» ритм с тяжеленными гитарами и ураганным темпом, редкие соло и великолепная реализация. Brutal death-metal&nbsp; в современном понимании эту музыку всё-таки назвать нельзя, но по тяжести этому стилю она не уступает. Здесь практически нет техничных запилов и сбивок, свойственных американским корифеям жанра, и именно поэтому этот альбом могут попробовать на вкус даже поклонники DISMEMBER или GRAVE. </P>
+<P>В общем и целом, третья работа AEON “Path of Fire”, недавно вышедшая на Фоно, производит очень хорошее впечатление. Поклонники гипертяжёлой музыки, которая ещё не совсем потеряла свою мелодичность должны быть довольны.</P>
+Автор: Vit Belov
+
+### 25.01.2013 reviews Упёртость, вызывающая уважение
+
+<P>Шведский death-metal коллектив AEON был образован в 1999 году, но первый полноформатный диск вышел лишь в 2005 году. Ужасающая упёртось группы вызывает уважение. Злоба и прямолинейность у AEON возведены в абсолют, и, пускай, им явно не удастся произвести революцию даже в рамках собственного стиля, слушается их музыка очень «легко».</P>
+<P>Предыдущая работа антихристианских музыкантов уже выходила в России. Группа заявила о себе в полный голос в 2010 году с альбомом “Path Of Fire”. Узкая прослойка потребителей death-metal на лицензии наверняка отметила для себя этот релиз и с удовольствием приобретёт продолжение сего творения. Мощный, зубодробильный материал с лёгким налётом традиционного шведского звучания, предлагающий самую брутальную версию национального смертельного метала. Новый альбом можно также смело сравнивать с работами VOMITORY и поздних DEICIDE, но без единого компромисса в мелодической составляющей, которая полностью отсутствует на обозреваемом альбоме. 50 минут (!!!) кровавой «масакры», к счастью, не вызывающей головной боли.</P>
+<P>Этот альбом исключительно рекомендуется поклонникам стиля без экспериментов. Качественное «мясо», не выходящее за грань приличия и не дрейфующее в сторону релизов UG-лэйблов. Это настоящий смертельный метал, записанный и изданный в «дорогих студиях» умеющими играть музыкантами.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

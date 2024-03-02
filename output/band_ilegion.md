@@ -31,6 +31,9 @@ All these musicians helped Frederic to create his own album: alone, but with a l
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

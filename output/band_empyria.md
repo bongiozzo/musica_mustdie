@@ -72,6 +72,37 @@ forever
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.04.2001 reviews Прогрессивный power metal из Канады
+
+<p>Прогрессивный power metal из Канады. Это уже третий релиз группы играющей мелодичный progressive-power metal с влияниями Iced Earth, Fates Warning и Dream Theater. А иногда проскакивают чистейшие арт-роковые интонации. Действительно, все классно, потрясающая техника музыкантов, отсутствие занудности, приятные мелодии, хоть и чередующиеся со сложнейшими ритмами и сбивками, неплохой вокал, не высокий, но отличающийся. Придратся просто не к чему... Однако, меня этот альбом не зацепил, не вдохновил... Ничего нового я на нем не услышал. Всего лишь очень хорошее и грамотное повторение пройденного. Но безусловно, достойное внимание и времени...</p>
+
+Автор: Dimas
+
+### 18.11.2002 reviews Отличный образец американского power-metal...
+
+<p>Канадская группа, на счету которой уже четыре альбома. Обозреваемый диск сразу привлекает своей необычной "обёрткой". "Sense Of Mind" продаётся не в обычной прозрачной коробочке, а в чехле от DVD, что весьма представительно. Музыка команды прямолинейна и проста в описании. Power metal американской волны с небольшим уклоном в progressive. Не слишком навороченный, но зато "драйвовый", музыка заставляет мотать головой своими чёткими риффами. Ни к чему придраться просто невозможно, хороший вокал (средней тональности), сыграно и записано - очень качественно. Из ориентиров могу отправить Вас к творчеству Iced Earth, времён "Dark Saga". Твёрдая четвёрка с плюсом, и совет всем любителям подобной музыки.</p>
+
+Автор: Vit Belov
+
+### 16.12.2002 reviews Excellent sample of American power-metal...
+
+<p>The Canadian group, on which account already four albums. The surveyed disk at once involves with unusual "wrapper". "Sense Of Mind " sells not in a usual jewel box, but in a cover from DVD, that is rather representative. Music of a band is rectilinear and is simple in the description. Power metal of the American wave with small addes of progressive. Not too complex, but "drive", music forces to rock by a head by its precise riffes. At anything it is simply impossible to carp, good vocal (average tone), is played and is written down - very qualitatively. From orientations I can send you to creativity of Iced Earth, times "Dark Saga". Firm good with plus, and advice to all fans of similar music.</p>
+
+Автор: Vit Belov
+
+### 02.07.2011 news Новая песня EMPYRIA
+
+<P>Канадская progressive-metal группа <STRONG>EMPYRIA</STRONG> выложила в сеть свой новый сингл <STRONG>'The Sheltering (2011 A.D.)</STRONG>'. Послушать его можно ниже. </P>
+<P>Последний на сегодня студийный альбом <STRONG>EMPYRIA "The Long Road Home"</STRONG> вышел в 2009 году на <STRONG>Nightmare Records</STRONG>.</P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=82830606&getSwf=true width=400 height=77 type=application/x-shockwave-flash AllowScriptAccess="always" FlashVars="songId=82830606&pid=7856438716488061697" wmode="transparent" quality="high">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

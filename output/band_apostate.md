@@ -20,6 +20,25 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.10.2015 news Новинки немецкого лэйбла Svarga &#x2F; Ferrum
+
+<P>Альбом 2014 года выпуска харьковской группы <STRONG>TWILIGHTFALL</STRONG>. В составе бывший участник<STRONG> Nokturnal Mortum Wortherax</STRONG>. Коллектив ищет себя в жанре melodic death/thrash metal: <A href="http://escapemind.ru/goods/TWILIGHTFALL-The-Energy-Of-Soul">http://escapemind.ru/goods/TWILIGHTFALL-The-Energy-Of-Soul</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/v9jCy0nq418" frameBorder=0 width=420 allowfullscreen></IFRAME>
+<P></P>
+<P>Новейший пятый альбом украинской thrash/death банды <STRONG>HELL:ON "Once Upon A Chaos..."</STRONG> вышел 31 августа на <STRONG>Ferrrum</STRONG>. В записи альбома принял участие <STRONG>Andreas Kisser</STRONG>: <A href="http://escapemind.ru/goods/HELL-ON-Once-Upon-a-Chaos">http://escapemind.ru/goods/HELL-ON-Once-Upon-a-Chaos</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/cHQOuF2ImRI" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>Второй альбом львовской death-doom команды <STRONG>APOSTATE "Time Of Terror"</STRONG> вышел весной на <STRONG>Ferrrum</STRONG>. Death-doom metal для всех любителей классики жанра: <A href="http://escapemind.ru/goods/APOSTATE-Time-Of-Terror">http://escapemind.ru/goods/APOSTATE-Time-Of-Terror</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/WmivyaShfJA" frameBorder=0 width=420 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

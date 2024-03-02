@@ -69,6 +69,15 @@ Produced By VENDETTA & Harris Johns.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.01.2012 news Новый альбом VENDETTA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22750.jpg" width=400 align=right border=0>Немецкие трешеры<STRONG> VENDETTA</STRONG> выпускают четвёртый альбом "<STRONG>Feed The Extermination</STRONG>" в январе на <STRONG>Massacre Records</STRONG>. продюсером работы выступил<STRONG> Dan Swano</STRONG>. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Feed The Extermination<BR></STRONG>2.<STRONG> Tremendous Brutality<BR></STRONG>3. <STRONG>Cancer<BR></STRONG>4. <STRONG>Ovulation Bitch<BR></STRONG>5. <STRONG>Storage Of Anger<BR></STRONG>6. <STRONG>Dog In The Manger<BR></STRONG>7. <STRONG>De-Organ-izer<BR></STRONG>8. <STRONG>Abuse<BR></STRONG>9. <STRONG>Trust In God<BR></STRONG>10. <STRONG>Til I’m Dead</STRONG></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

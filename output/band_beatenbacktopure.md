@@ -16,6 +16,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2002 reviews More or less entertaining AND distinctive
+
+<p>Death / sludge. “The Last Refuge…” is the second offering from these US’ weirdo’s, and – alas – it’s way worse than “Southern Apocalypse” (2001). Don’t ask me why. At the first sight it seems much better, being more diversified, featuring the addition of “clean” vocals and few more sweeties… however, it just doesn’t work. Doesn’t work in _my_ case. I don’t know the exact reason, nor even supposition why it happened this way. It’s just a fact. Less exciting despite all it’s versatility? Perhaps. More incomprehensible “thanks” to all it’s versatility? Might as well be possible. Once again, I don’t know. Nevertheless, if you like stoner, sludge and / or death metal… well, if you like original music no matter what genre it’s reckoned to, check this band out. At least, “The Last Refuge…” is more or less entertaining AND distinctive (original, innovative – choose the word you like most).</p>
+<P> Website: <A HREF="http://www.retributerecords.com">http://www.retributerecords.com </A></>
+<P> Email: <A HREF="mailto:retribute@aol.com">retribute@aol.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

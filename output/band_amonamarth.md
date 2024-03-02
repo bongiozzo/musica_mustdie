@@ -273,6 +273,438 @@ The Jomsvikings were a semi-legendary order of Viking mercenaries or brigands of
 * C группой "Guidance Of Sin" Drummer Fredrik Andersson
 * C группой "Curriculum Mortis" Drummer Fredrik Andersson
 
+## Публикации
+
+### 11.04.1999 news 
+
+<p>Одна из групп, которую продюсирует Питер Тартгрен (Hypocrisy), Amon Amarth записывает новый альбом "The Avenger". Новый death-metal опус выйдет в августе. Группу покинул барабанщик Мартин Лопез, который влотную решил занятся своей другой группой Opeth. На его место пришёл Фредде из недавно распавшегося Canourous Quintet.</p>
+
+Автор: Vit Belov
+
+### 17.07.2000 news Amon Amarth работают над новым альбомом.
+
+<p> Amon Amarth в настоящее время работают над новым альбомом и собираются записать его в Abyss studio в ноябре. Появиться на свет альбом должен в феврале. Название для него пока не придумано, но песни будут намного более сильными, чем прежде. Amon Amarth хотели бы записать какой-нибудь бонус-трэк и просят присылать предложения на сайт www.amonamarth.com, на какую песню им лучше сделать кавер.</p>
+
+Автор: Morsus
+
+### 17.07.2000 news Amon Amarth are working on a new album.
+
+<p> Amon Amarth are currently working on a new album, it's going to be recorded at studio Abyss in November. It should be released in February. No title has been settled yet, but the songs are much stronger than ever done before. Amon Amarth might as well record some bonus tracks. Band ask to send your suggestion on site www.amonamarth.com, what song do you want they to cover?</p>
+
+Автор: Morsus
+
+### 12.09.2000 news Amon Amarth собираются записать новый альбом
+
+<p> В ноябре Amon Amarth снова отправляются в Abyss Studio с тем, чтобы записать свой третий альбом. Рабочее название альбома "The Crusher". Если всё пойдет по плану, то в феврале новый альбом уже появится в продаже.</p>
+
+Автор: Nybras
+
+### 13.09.2000 news Amon Amarth will enter studio soon
+
+<p> In November vikings will enter the Abyss Studio again to record their third album. A first title (not the definite one) will be "The Crusher" and is said to continue, where "The Avenger" has left off. February should see the release of it.</p>
+
+Автор: Nybras
+
+### 22.12.2000 news Amon Amarth завершают работу над новым альбомом
+
+<p> Новый альбом команды уже записан и смикширован, и прямо сейчас пребывает в процессе мастеринга. Называться диск будет The Crusher. Традиционно, стокгольмская банда записываться ездила на несколько сотен километров севернее, в Abyss Studios. Кстати сказать, парни самолично записали материал в Abyss I, а маэстро Тагтгрен присутствовал там всего лишь в качестве звукооператора. Говорят, группа осталась верна своим корням и сотворила альбомчик в лучших традициях - этакий гимн старичку дэз-металу. Трэклистинг тут как тут: 'Bastards Of A Lying Breed', 'Masters Of War', 'The Sound Of Eight Hooves', 'Risen From The Sea 2000', 'As Long As The Raven Flies', 'A Fury Divine', 'Annihilation Of Hammerfest', 'Fall Through Ginnungagap', 'Releasing Surtur's Fire' и бонус трек 'Eyes Of Horror' (кавер песни Possesed).<br>(LEGION ONLINE)</p>
+
+Автор: Nybras
+
+### 13.11.2001 news MARDUK&#x2F;AMON AMARTH US Crusade Of Darkness tour...
+
+<p>Here are the confirmed dates for the upcoming (rescheduled) MARDUK/AMON AMARTH US Crusade Of Darkness tour: <BR><BR> Jan. 11 - St. Paul, MN @ The Lab <BR> Jan. 12 – Aurora, IL @ Riley's <BR> Jan. 13 – Detroit, MI @ Shelter <BR> Jan. 14 – Cleveland, OH @ Flying Machine <BR> Jan. 15 – Indianpolis, IN @ Emerson Theatre <BR> Jan. 17 – Randolph, NJ @ Obesession <BR> Jan. 18 – Brooklyn, NY @ Lamour <BR> Jan. 20 – Montreal, QUE @ Foufounes <BR> Jan. 22 - W. Springfield, VA @ Jaxx <BR> Jan. 25 – Jacksonville, FL @ Imperial Lounge <BR> Jan. 27 - Ft. Lauderdale, FL @ Culture Room <BR> Jan. 29 – Houston, TX @ Cardi's <BR> Jan. 30 – Edingburg, TX @ Trenton Point Music Hall <BR> Feb. 01 - El Paso, TX @ E-9 <BR> Feb. 02 – Albuquerque, NM @ Launchpad <BR> Feb. 03 – Phoenix, AZ @ Mason Jar</p>
+
+Автор: Yermola
+
+### 16.11.2001 news Wacken Festival...
+
+<p>Знаменитый "Wacken Festival" в следующем году будет проходить со 2-го по 3-е августа в Вакен (Германия). Уже заявлены следующие участники: <BR><BR> BLIND GUARDIAN <BR> RAVEN <BR> PUNGENT STENCH <BR> DIMPLE MINDS <BR> KREATOR <BR> DESTRUCTION <BR> J.B.O <BR> IN EXTREMO <BR> FALCONER <BR> AMON AMARTH</p>
+
+Автор: Yermola
+
+### 06.12.2001 news MARDUK&#x2F;AMON AMOARTH&#x2F;DIABOLIC US tour...
+
+<p>Here are the re-scheduled dates for the upcoming MARDUK/AMON AMOARTH/DIABOLIC US tour, which was originally due to take place a couple of months back, but ended up getting cancelled after members of MARDUK encountered “visa problems”: <BR><BR> Jan. 11 - The Lab - St. Paul, MN <BR> Jan. 12 - Riley's - Aurora, IL <BR> Jan. 13 - Shelter - Detroit, MI <BR> Jan. 14 - Flying Machine - Cleveland, OH <BR> Jan. 15 - Emerson Theatre - Indianapolis, IN <BR> Jan. 16 - The Blue Max - Lexington, KY <BR> Jan. 17 - Obsessions - Randolph, NJ <BR> Jan. 18 - L'amour - Brooklyn, NY <BR> Jan. 19 - Kathedral Room - Toronto, Ont. <BR> Jan. 20 - Foufounes Electrique - Montreal, Que <BR> Jan. 22 - Jaxx - W. Springfield, VA <BR> Jan. 23 - Ziggy's - Winston - Salem, NC <BR> Jan. 24 - Cotton Club - Atlanta, GA <BR> Jan. 25 - Imperial Lounge - Jacksonville, FL <BR> Jan. 27 - Culture Room - Ft. Lauderdale, FL <BR> Jan. 29 - Cardi's - Houston, TX <BR> Jan. 30 - Trenton Point Hall - Edingburg, TX <BR> Jan. 31 - Flamingo Cantina - Austin, TX <BR> Feb. 01 - E-9 - El Paso, TX <BR> Feb. 02 - Launchpad - Albuquerque, NM <BR> Feb. 03 - Mason Jar - Phoenix, AZ <BR> Feb. 04 - Chain Reaction - Anaheim, CA <BR> Feb. 05 - The Pound - San Francisco, CA <BR> Feb. 07 - Bluebird - Denver, CO <BR> Feb. 08 - Pig Pen - Clinton, IA <BR> Feb. 09 - Creepy Crawl-St. Louis, MO</p>
+
+Автор: Yermola
+
+### 04.01.2002 news MARDUK Box Set Postponed, US Tour Finalized ....
+
+<p>The release of MARDUK's forthcoming Blackcrowned box set has been delayed because of printing problems. A new release date has been set for February 18th. In other news, here are the dates for MARDUK's upcoming US tour with AMON AMARTH and DIABOLIC: <BR><BR> Jan. 11 - The Lab - St. Paul, MN<BR> Jan. 12 - Riley's - Aurora, IL<BR> Jan. 13 - Shelter - Detroit, MI<BR> Jan. 14 - Flying Machine - Cleveland, OH<BR> Jan. 15 - Emerson Theatre - Indianapolis, IN<BR> Jan. 16 - The Blue Max - Lexington, KY<BR> Jan. 17 - Obsessions - Randolph, NJ<BR> Jan. 18 - L'amour - Brooklyn, NY<BR> Jan. 20 - Foufounes Electrique - Montreal, QUE<BR> Jan. 21 - Living Room - Providence, RI<BR> Jan. 22 - Jaxx - W. Springfield, VA w/Pessimist<BR> Jan. 24 - Masquerade - Atlanta, GA<BR> Jan. 25 - Imperial Lounge - Jacksonville, FL<BR> Jan. 26 - Brass Mug - Tampa, FL<BR> Jan. 27 - Culture Room - Ft. Lauderdale, FL<BR> Jan. 29 - Cardi's - Houston, TX<BR> Jan. 30 - Trenton Point Hall - Edingburg, TX<BR> Jan. 31 - Center Theater - Corpus Christi, TX<BR> Feb. 01 - E-9 - El Paso, TX<BR> Feb. 02 - Launchpad - Albuquerque, NM<BR> Feb. 03 - Mason Jar - Phoenix, AZ<BR> Feb. 04 - Troubadour - Hollywood, CA<BR> Feb. 05 - The Pound - San Francisco, CA<BR> Feb. 08 - Starlight - Ft. Collins, Co<BR> Feb. 09 - Creepy Crawl - St. Louis, MO <BR></p>
+
+Автор: Yermola
+
+### 14.01.2002 articles Вот и открыл я новый концертный сезон!
+
+<P><IMG height=399 alt=playbill hspace=15 src="/images/articles_rus/2002.01/2301.jpg" width=250 align=left vspace=5 border=1> Вот и открыл я новый концертный сезон! Первый концрт 2002 года оказался не без обломов,но об этом позже. Концерт состоялся в том же самом маленьком клубе "the Lab", где недавно был Moonspell. Если посмотреть на афишу (фото прилагается), там значились 4 команды - MARDUK, AMON AMART, DIABOLIC и DISINTER. И цена билета в 13 долларов. Когда мы вошли в клуб с нас взяли не 13 долларов а 10. По началу я на это не обратил внимание, и как оказалось зря. Просто так здесь никто цены снижать не будет. Народу в клубе оказалось побольшше чем в прошлый раз, если Moonspell почтили своим вниманием 150 человек, то на этот раз народу было человек 200 - больше этот клуб вместить бы не смог.</P>
+<P>Концерт начался с часовой задержкой. Первой играла местная команда Malignant. Музыка представляла из себя смесь дэс-метала и хард-кора в который непонятно для чего засунули клавиши. Они то и были абсолютно не в тему - причем на них издавались какие то непонятные звуки. Народ реагировал очень вяло, хотя музыканты старались - но не более. Кстати весь концерт и околоконцертные события были засняты мной на фотопленку, и когда я сделаю фотографии постораюсь чтоб господа мастдайцы смогли их увидеть. Мы пошли в бар пить пиво. Но вот прикол - пиво можно было пить только в специально огороженном месте, и только если тебе 21 год и более. А на концерт пускали людей начиная с 18 летнего возраста. Вот какие у них здесь порядки. Причем по определенным дням независимо от концертов пускают от 18 и старше, по другим - от 21-го года. Но я как обычно забил на строгие американские правила, и пил пиво там где мне хотелось - правда меня пару раз предупредили, но не более.</P>
+<P>В холле сами музыканты флоридских команд Disinter и Diabolic продавали свои же диски и майки. Это меня немного удивило. Вы представляете например Валерия Кипелова, продающего диски и майки "Арии" в холле дворца спорта "ЦСКА"? Я например нет. Причем когда чуть позже приехали Амон Амартовцы - они так же лично стояли и продавали свою продукцию. Так что у меня как обычно получилось поговорить со всеми музыкантами учавствовавшими в концерте и даже сфотографироваться. А тем временем на сцену вышли вторые местные суппортеры из Demonicon. Дядьки оказались довольно приличного возраста, и как удалось узнать играют они довольно давно. По музыке было очень похоже на Deicide, только вот пели ребята в два вокала, толстый басист и КерриКингоподобный гитарист, лысый с длинной бородой. Причем оба вокала были гроулингами. Представьте себе такую картину - идет рубилово и слышен гроулинг, вы смотрите на основного вокаллиста и тут осознаете что вокалист уже не поет, а гроулинг все равно слышен - поет уже другой чувак. По тембру оба вокала оказались очень похожими. Короче порадовали меня Demoniconы отличным брутальным музоном. Дальше вылезли флоридские блэк-дэтстеры Disinter. Музыка у них не четкая а какая то кашеобразная- сплошная стена звука с очень быстрыми барабанами и вокал какой то приблэкованый. Еще обратил на себя внимание басист с 5-ти струнным басом. Зачем ему 5 струн когда он играет только на верхней? Это осталось для меня загадкой.</P>
+<P>Где то часам к 9-ти в клуб подъехали музыканты Амон Амарт. И тут то мы все узнали почему с нас взяли 10 баксов вместо 13-ти. Оказывается "сраные позеры" из MARDUK просто не приехали, снявшись с тура кинув тем самым как организаторов тура так и всех нас. Со всех сторон в их адрес слышались маты (fucking Marduk, bullshit, fucking posers:) и только одно приличное слово "CANCEL"- так что вслед за москвичами кинутыми оказались америкоты. Незнаю кто после такого захочет иметь какие либо дела с этой группой? Обидно было за людей приехавших специально ради Мардука, особенно нелепо выглядели несколько чуваков в корпспейнте, которые после известия ,что Мардука не будет пошли мыть свои рожи:). Но оставался Амон Амарт и он стоил того чтобы послушать этих шведов живьем. А пока я подошел к амоновцам чтобы поговорить. Так как я плохо знал их в лицо, только по фоткам на веб-сайте, я в наглую подошел к чувакам и спросил кто тут у них "пахан". На что самый длинный швед с длинной бородой сказал "Ну я типа". "Паханом" оказался Амон Амартовский вокалист Йохан Хегг. Узнав что я из России продемонстрировал неслабое знание некоторых русских фраз типа "как дела". Рассказал что они после тура садятся в студию к Пете Тагтгрену, записывать новый альбом . Про русские команды сказал следующее - " Я знаю что в России существует много неплохих групп, но по именам никого не знаю". И еще выразил негативное отношение к группам типа In Flames и Dark Tranquility сильно облегчившим саунд. Сказал что лучшим альбомом Tranquillity считает "Skydancer". Так же поговорил еще с одним Йоханом - гитаристом. Тот рассказал мне про свои гитары, два Gibsona и Ibanez. Кстати весь концерт оба гитариста Амартов сыграли на одинаковых Gibsonax Explorerax без машинок.</P>
+<P>Тем временем на сцену вышли Diabolic. Их музыку я бы назвал прямолинейным brutal-death-noisom. Мне она показалась малоинтересной, надо бы как то разнообразить что ли, хотя бы соляки где нибудь поиграть. А так просто бстрое рубилово, причем весьма грязное по звуку.Все песни, как близнецы и это меня огорчило. Эти флоридские монстров, живут в Тампе и записываются как вы думаете где? Правильно думаете - конечно в Моррисаунде. Вокалист у них, он же басист поет гроулингом, но высоким. Довольно инетересно, но из за грязного звука это нивелируется. Дело даже не в том что в зале был плохой звук - совсем наоборот, звук был отличный, вот сама музыка звучит как-то грязно. Кстати, басист-вокалист сказал, что мы с ним еще встретимся через 2 месяца, когда Диаболики будут участвовать в другом туре, вместе с ..... - не буду вас расстраивть:).</P>
+<P>Ну наконец о хедлайнерах - AMON AMART - пришлось чувакам отрабатывать и за себя и за тех позеров-мардуков. Можно сказать что со своей задачей они справились. Рубилово было мощное. Если кто не знает, AMON AMART команда из Стокгольма, играющая melodic-death только более брутальный, и скорее даже ближе к классическому шведскому дэту. Вокальчик такой сочный низкий гроулинг, а в музыке проскакивают элементы СМДМ, солячки например, но все равно влияния старых школ дэта на творчество AMON AMART более заметно. А вот репертуар состоял приемущественно из новых вещей. С "Avengera" сыграли одну вещь, с первого альбома тоже-заглавную. С "Crusher" - песни четыре и остальное - новое, это песни с нового альбома, в которых ребята ни на шаг не отошли от своих предыдущих работ, так что если вам нравятся три альбома AMON AMART - смело можете брать и новый, ничего неожиданного вы там не услышите. Я неплохо порубился у сцены. Кстати Амоновский вокалист оказался хорошим шоуменом, держался на сцене просто здорово, что не скажешь о остальных музыкантах-которые "тупо играли" уткнувшись в свои инструменты. Но их программа оказалась совсем не долгой - минут на сорок, вероятно они болше и не планировали, так как не думали что со стороны Мардуков будет такая подстава. В общем я остался доволен, не смотря на Мардуковский облом. Видно не судьба увидеть Мардук на живом концерте. Как же я теперь понимаю москвичей, которые материли этих позеров год назад :)</P>
+<P>Вот так завершился мой первый в 2002 году концерт, а впереди долгий концертный сезон, и я вас еще порадую новыми репортажами.</P>
+Автор: rjh
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 18.01.2002 news О влиянии Усамы Бен Ладена на современную шведскую метал-сцену...
+
+<P>Шведы "MARDUK" до сих пор не могут получить соответствующие бумаги от Американского посольства и следовательно не в состоянии отправиться в давно запланированный тур по штатам с AMON AMARTH и DIABOLIC (должен был начаться 11 января в St. Paul, Minnesota). Как объяснил вокалист группы Legion, американская служба U.S. Traffic Control продержала документы до 21-го декабря после чего бумаги застряли уже в Американском посольстве, которое объяснило задержку ситуацией с Афганистаном....<BR><BR>Интересно почему указанные проблемы не отразились на двух других группах (AMON AMARTH и DIABOLIC), успешно катающихся по штатам со своей программой (см. репортажи нашего американского корреспондента RJH в разделе "статьи")?!?</P>
+Автор: Yermola
+
+### 18.01.2002 news MARDUK: Still Waiting For American Visas ....
+
+<p>Sweden's MARDUK have still not received the proper paperwork from the American Embassy in order to enable them to embark on their North American tour with AMON AMARTH and DIABOLIC, a trek that was originally due to start on January 11th in St. Paul, Minnesota. MARDUK vocalist Legion offered the following update on the situation via a post on the message board of Metal Maniacs magazine yesterday: <BR> <BR> "This is Legion of MARDUK. I would just want all of you to know that we still have not recieved all the papers we need to enter the U.S. from the American Embassy. We were promised that we would be fine by the end of last week but still all the members have not got their stuff. The reception chick I talked to today was really surprised about that and said that we all should have our stuff by now but B. War is still waiting for his visa. I know that you might wonder why this has not been dealt with earlier since we have had a full three months to get our shit together but the case was not approved by U.S. Traffic Control until the 21st of December and the embassy is not allowed to issue shit before they do thumbs up. We are doing all in our power to hurry up things I have called, faxed and sent letters there. Yesterday I even drove to the embassy but was sent home at the gate since no visitors are allowed because of the Afghanistan situation. We are in limbo right now and I can't really tell when the last visa is gonna show since we have been promised things over and over and my confidence in the ambassadors credibility is zero. I will post anything new as soon as I know. Also check out www.marduk.nu, which will be updated very soon. I have been pushing really hard but feel like I'm losing my mind since I sent the last additional requested 'post Sep 11th' material in early November and was promised to be home free when we got back from Europe. We have tickets and gear on stand by and are gonna show asap when B. War gets his stuff." <BR> <BR> MARDUK and AMON AMARTH were originally scheduled to tour in North America during October/November, but had their visa requests denied in the wake of the September 11th terrorist attack. AMON AMARTH and DIABOLIC are reportedly performing the shows as scheduled.</p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 15.03.2002 news Amon Amarth пишут новый материал
+
+<p>В настоящее время Amon Amarth полным ходом сочиняют песни для следующего альбома, который будет записан в августе в шведской судии Berno. Альбом пока не получил названия, но известны заголовки трёх песен: "Bloodshed", "...and soon the world will cease to be" и "Vs. The World".</p>
+
+Автор: Morsus
+
+### 15.03.2002 news Amon Amarth are writing new material
+
+<p>At the moment Amon Amarth are in the middle of writing new material for their upcoming album, set to be recorded in August at Berno Studios, Malmoe, Sweden. As of yet the album has no title but here are some songtitles: "Bloodshed", "...and soon the world will cease to be", "Vs. The World".</p>
+
+Автор: Morsus
+
+### 25.06.2002 news Amon Amarth готовятся к записи альбома
+
+<p>Всё готово к записи четвёртого лонгплея Amon Amarth "Versus The World". Пятеро брутальных шведов отправятся записывать альбом, как и предполагалось, в августе в студию Berno.</p>
+
+Автор: Morsus
+
+### 25.06.2002 news Amon Amarth are ready to record their new album
+
+<p>Amon Amarth are going to record their new album during August in the Berno studios in Sweden. The title of their fourth long player will be "Versus The World".</p>
+
+Автор: Morsus
+
+### 01.07.2002 news AMON AMARTH Set Title For Next CD.
+
+<p>Sweden's AMON AMARTH have set Versus The World as the title of their forthcoming CD, which is due to be recorded at Berno Studios in Malmo, Sweden in August for a late 2002 release through Metal Blade Records. Among the cuts set to be included on the CD are the following: <BR><BR> 01. Bloodshed<BR> 02. Vs. The World<BR> 03. ...And Soon The World Will Cease To Be<BR> 04. Death In Fire<BR> 05. Across The Rainbow Bridge<BR> 06. For The Stabwounds In Our Backs</p>
+
+Автор: Natural born loser
+
+### 19.09.2002 news Versus The World....
+
+<p>AMON AMARTH finished the recordings for their fourth longplayer “Versus The World” in the Berno studios, Malmц, Sweden. The Viking Death Metal killer of the year will be released on the 18th of November, 2002! The limited first edition will be a “Viking edition” double-CD with lots of bonus material. The content of the second CD is not confirmed yet, but will be announced soon! <IMG SRC="/images/news/2002.09/3197.jpg" ALT="pho" width=265 height=265 hspace="15" vspace="5" border="1" align="right"> <BR><BR> Hereґs the tracklist of the album: <BR><BR> 1) Death In Fire<BR> 2) For the stabwounds in our backs<BR> 3) Where silent Gods stand guard<BR> 4) Versus The World<BR> 5) Across the rainbow bridge<BR> 6) Down the slopes of death<BR> 7) Thousand years of oppression<BR> 8) Bloodshed<BR> 9) ... and soon the world will cease to be</p>
+
+Автор: Yermola
+
+### 19.09.2002 news Против всего мира...
+
+<p><IMG SRC="/images/news/2002.09/3197.jpg" ALT="pho" width=265 height=265 hspace="15" vspace="5" border="1" align="right"> AMON AMARTH продолжили сражаться со всем миром завершив запись 4-го альбома “Versus The World” в Berno studios, Швеция. Очередной викинг-металлический опус поступит в продажу 18 ноября. <BR><BR> Трек-лист: <BR><BR> 1) Death In Fire<BR> 2) For the stabwounds in our backs<BR> 3) Where silent Gods stand guard<BR> 4) Versus The World<BR> 5) Across the rainbow bridge<BR> 6) Down the slopes of death<BR> 7) Thousand years of oppression<BR> 8) Bloodshed<BR> 9) ... and soon the world will cease to be</p>
+
+Автор: Yermola
+
+### 22.01.2003 reviews Чертовски приятный сюрприз
+
+<p>Сюрприз. Надо сказать, чертовски приятный сюрприз. Прежде AMON AMARTH если и могли вызвать уважение, то разве что целеустремлённостью, верой в себя и свою музыку. Музыку, мягко говоря, весьма посредственную. Да, качество записи всегда было на уровне (даже на первом мини-альбоме, ставшем дебютом для группы и для крохотного сингапурского лейбла… который уже несколько лет как не существует). Да, музыканты в группе собрались отличные. Да, у AMON AMARTH всегда имелась в наличии самобытность. Однако проблема в том, что эта помесь надоевшего до чёртиков викинг-металла (от которого у этой команды только тексты да имидж) и шведского дэта (собственно музыка) имела замечательную особенность наскучивать после ознакомления с тремя, от силы четырьмя трэками с любого альбома AMON AMARTH. В этот раз всё не так. Челюсть у вашего покорного слуги отвисла уже на первых минутах первой же песни… и соизволила захлопнуться лишь после того, как "Versus The World" был прослушан "от" и "до". Куда делось однообразие? Откуда появились изумительные, "цепляющие" риффы? Что произошло со скоростью исполнения; почему любая вещь с "Versus The World" звучит вполовину медленнее любой вещи с "The Crusher"? И, наконец, какого чёрта Йохан разнообразил своё пение? Да и звук стал на порядок мощнее, а музыка, прости господи, атмосфернее. Вроде бы ничего особенного не произошло – это всё тот же AMON AMARTH, что и раньше… но… неуловимо другой. Что ж, придётся признать, что "Versus The World" – сильнейший альбом этой, как оказывается, талантливой группы.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 20.03.2003 news AMON AMARTH just can&#39;t get enough of the road...
+
+<p>AMON AMARTH just can't get enough of the road! After touring the US with Deicide in March they will be playing the W:O:A Roadshows in Germany, Switzerland and Austria, followed by a number of festival shows throughout the summer. Here's the confirmed dates: <BR><BR> W:O:A ROADSHOW with ONKEL TOM, AMON AMARTH, MOB RULES and LORDI:<BR><BR> 14.04 MARKTHALLE, HAMBURG, D<BR> 15.04 MUSIKTHEATER, KASSEL, D<BR> 16.04 ROCKFABRIK, LUDWIGSBURG, D<BR> 17.04 Z7, PRATTELN, CH<BR> 18.04 HAFEN, INNSBRUCK, A<BR> 19.04 PLANET MUSIC, WIEN, A<BR> 20.04 SCHLACHTHOF, WELS, A<BR> 21.04 METROPOLIS, MUNCHEN, D<BR> 22.04 HIRSCH, NURNBERG, D<BR> 23.04 ZECHE, BOCHUM, D<BR> 24.04 FAUST, HANNOVER, D<BR> 25.04 WORKS, OSNABRUCK, D <BR><BR> AMON AMARTH LIVE IN ISREAL:<BR><BR> 06.05 THE BARBI, TEL-AVIV, ISREAL<BR><BR> FESTIVAL APPEARANCES 2003:<BR><BR> 17.05 2000 DECIBEL FESTIVAL , BENGTFORS, SWEDEN<BR> 07-08.06 ROCK HARD - 20TH ANNIVERSARY FESTIVAL, AMPHITHEATER, GELSENKIRCHEN, GERMANY<BR> 27-28.06 BANG YOUR HEAD OPEN AIR, BALINGEN, GERMANY<BR> 04-07.07 WITH FULL FORCE FESTIVAL, near LEIPZIG, GERMANY<BR> 21-23.08 SUMMER BREEZE OPEN AIR, ABSTGMUND, GERMANY<BR> 21-23.08 VIENNA METAL FESTIVAL, VIENNA, AUSTRIA</p>
+
+Автор: Yermola
+
+### 06.06.2003 articles Metal Gods Tour 2003 &#x3D; Long Live Rock&#39;N&#39;Roll
+
+<p><i>Отмены туров, концертов… Как это всё знакомо нам! Наибольший резонанс вызывают отмены крупных концертов. Например, наш любимый Long live Rock’n’Roll в Москве. В прошлом месяце подобная ситуация возникла в США!</i></p>
+<p>Главным организатором Metal Gods Tour (такое же пафосное название) выступил менеджемент «голоса heavy-metal» Роба Хэлфорда. Намечалось нечто грандиозное, как говориться, наш ответ Ozzfest. Были приглашены, кроме HALFORD, TESTAMENT, IMMORTAL, PRIMAL FEAR, CARNAL FORGE и AMON AMARTH. Великолепный набор групп с двух континентов и практически из всех жанров классического METAL. Но после всего семи шоу, всё неожиданно закончилось 2 мая. Музыканты были срочно отправлены по домам, без всякой надежды вернуться. Интересно узнать, кто виноват в данном событии, которое, не побоюсь этого слова, потрясло североамериканскую металлическую тусовку.</p>
+<p> <b>(3 мая)</b> Джон Бакстер (менеджер Хэлфорда): «<b>Существует единственный виновник крушения нашего турне. Агентство Universal Attraction было просто не в курсе, чем занимались его работники в течение последней недели. Смысл этого, в конце концов, дошёл до меня во время начавшейся трассы. Мне приходилось работать очень напряжённо, чтобы решить все возникающие проблемы. Любой лэйбл или менеджер поймёт, что невозможно решить все проблемы уже во время события, но я старался… Я начал работать над этим туром ещё в прошлом сентябре, это был мой ребёнок…</b>» <br> Позже упоминались какие-то «контрактные сложности», которые не позволили продолжить выступления. Практически на следующий день после отмены шоу TESTAMENT и HALFORD выдвинули предложение наверстать упущенное в июне/июле.</p>
+<p> <b>(4 мая)</b> Дж. Бакстер: «<b>Я и менеджмент TESTAMENT договорились провести тур в июне/июле в усечённом составе. Мы постараемся охватить все города, но это не очень легко, так как надо обновлять договорённости по клубам для выступления</b>».<br> <IMG SRC="/images/articles_rus/2003.06/4394.jpg" ALT="pho" width=225 height=169 hspace="15" vspace="5" border="1" align="left">Фил Арнольд (менеджер TESTAMENT): «<b>Слухи, слухи, слухи… Самое главное, что никто сейчас не может сказать, отчего отменили тур. Даже я, как участник событий, не могу в точности объяснить происходящее. Никто не имея полной информации, не может сообщить ничего кроме слухов. Единственно, что точно ясно, что TESTAMENT отыграли несколько концертов, и они были великолепны. За ответами нам всем следует обратиться к UNIVERSAL ATTRACTION INC. и METAL GODS INC.</b>»<br> Кстати, действительно ходило много слухов. Доходило даже до предположения, что во всём виновата атипичная пневмония (SARS).</p>
+<p> <b>(8 мая)</b> Дж. Бакстер: «<b>Главный менеджер Universal Attraction Джефф Аллен сообщил мне, что его подчинённый агент Томас Паскуаль перезаключил некоторые контракты без нашего участия, чем подорвал наше финансовое положение. Простыми словами, мы были вынуждены предложить группам работать за меньший гонорар. Они отказались, так как для них оказалось важнее собственное финансовое благополучие, а не благополучие Metal Gods Tour. В итоге <i>Я</i> прекратил этот тур</b>»</p>
+<p>. <b>(9 мая)</b> Домой наконец доехала группа PRIMAL FEAR. <br> <IMG SRC="/images/articles_rus/2003.06/4395.jpg" ALT="pho" width=150 height=225 hspace="15" vspace="5" border="1" align="right">PRIMAL FEAR: «<b>Мы потратили очень много денег, но главное это не деньги, а то, что мы потеряли всякое желание иметь дело с бизнесменами в США. В первую очередь мы хотим отметить, что не хотим снимать ответственности ни с Universal Attraction, ни с Metal Gods Tour (менеджмент Хэлфорда). Расследование продолжится, но это не изменит положения вещей. Нам надоели извинения. Мы, например, слышали, что отмени Хэлфорд лишь один из трёх своих ночных автобусов, тур можно было бы сохранить. Ещё одно, мы анонсируем наши даты в Европе за четыре месяца, здесь же турне не было спланировано и в два раза меньшие сроки. Кстати, Delta Airlines требовала с каждого из нас по 2000 долларов за то, чтобы вылететь в Германию из Нью-Йорка, где всё закончилось, вместо Далласа, где всё должно было закончиться</b>». <br> Кстати, Primal Fear отменили свой концерт 17 апреля в Германии, чтобы попасть на этот тур… А в это время фэны в сети уже предлагают назвать тур Little Babies of Metal Tour 2003. Группа Роба Хэлфорда, состоящая из пяти человек, передвигалась по стране на трёх автобусах, в каждом из которых обычно спят по 18-20 человек. Также говорят, что у группы был ещё один, специально для их оборудования. Не удивительно, что тур прогорел…</p>
+<p> <b>(24 мая)</b> Ну и, в конце концов, тур перенесли на осень. При чём HALFORD, скорее всего в нём участия не примет.<br> Дж. Бакстер: «<b>Наше новое агентство сообщило нам, что вынуждено перенести тур на cентябрь/октябрь, но это слишком поздно для нас. Нам надо записывать новый альбом, кроме того, у нас намечались туры по Южной Америке, Азии и Австралии</b>».</p>
+<p> Вам это всё ничего не напоминает? Должно быть, известная нам личность переехала в США и стала там менеджером Роба Хэлфорда. Американцы так сильно возмущены происходящим, но если их окунуть в нашу действительность, где пять стоящих концертов в год, да и то половину отменяют… Ну, ничего… Билеты в Питер уже куплены, будем смотреть финнов.</p>
+
+Автор: Vit Belov
+
+### 01.10.2003 news Nile, Kreator, Vader, Amon Amarth and Goatwhore in USA
+
+10/03 Austin, TX <BR>10/04 Dallas, TX <BR>10/05 El Paso, TX <BR>10/06 Phoenix, AZ <BR>10/07 Hollywood, CA <BR>10/08 Santa Ana, CA <BR>10/09 Sacramento, CA <BR>10/10 San Francisco, CA <BR>10/11 Portland, OR <BR>10/12 Seattle, WA <BR>10/14 Denver, CO <BR>10/15 Lawrence, KS <BR>10/16 Minneapolis, MN <BR>10/17 Sauget, IL <BR>10/18 Chicago, IL <BR>10/19 Cincinnati, OH <BR>10/20 Cleveland, OH <BR>10/21 New York, NY <BR>10/23 Philadelphia, PA <BR>10/24 Poughkeepsie, NY <BR>10/25 Worcester, MA <BR>10/26 West Springfield, VA <BR>10/29 Fort Lauderdale, FL <BR>10/30 Tampa, FL <BR>10/31 Atlanta, GA
+Автор: Vit Belov
+
+### 11.03.2004 news Новости из Швеции - одной строкой
+
+<P>Выход нового альбома <B>KATATONIA</B> запланирован на осень 2004 года.</P>
+<P>Реанимировавшиеся недавно <B>BLOODBATH</B> нашли нового вокалиста и нового ударника. Это известные в мире death metal личности, но их имена пока держатся в большом секрете. Запись нового альбома уже начата.</P>
+<P>Из-за занятости в <B>BLOODBATH</B>, <B>Blakkheim</B> и <B>Dan Swano</B> приостановили работу над новым альбомом <B>DIABOLICAL MASQUERADE</B>.</P>
+<P><B>AMON AMARTH</B> приступили к сочинению песен для нового альбома.</P>
+Автор: Dimas
+
+### 13.05.2004 news Новый альбом AMON AMARTH
+
+<B>AMON AMARTH</B> выпускают новый альбом на <B>Metal Blade</B> в этом году. Только что стало известно, что он будет называться <B>"Fate of Norns".</B>
+Автор: Vit Belov
+
+### 08.07.2004 news Новый альбом AMON AMARTH
+
+<P>Новый альбом <B>AMON AMARTH 'Fate Of Norns'</B> выйдет 6 сентября на <B>Metal Blade</B>. Трэк-лист:</P>
+<P>01. <B>An Ancient Sign Of Coming Storm</B><BR>02. <B>Where Death Seems To Dwell</B><BR>03. <B>The Fate Of Norns</B><BR>04. <B>Pursuit Of Vikings</B><BR>05. <B>The Valkyries Ride</B><BR>06. <B>Beheading Of A King</B><BR>07. <B>Arson</B><BR>08. <B>Once Sealed In Blood</B></P>
+Автор: Vit Belov
+
+### 05.02.2006 news AMON AMARTH тоже начинают...
+
+<P><STRONG>AMON AMARTH</STRONG> также войдут в студию в мае. Написание материала для новой работы практически завершено.</P>
+Автор: Vit Belov
+
+### 21.02.2006 news AMON AMARTH выпускают DVD
+
+<P>24 апреля на Metal Blade выходит новый DVD AMON AMARTH <STRONG>"Wrath of the Norsemen". </STRONG>Релиз включает в себя 3 DVD. Трэк-лист:</P>
+<P>Disc 1: <BR><BR>Live in Cologne (Germany) – August 16, 2005:<BR><BR>01. <B>Intro</B> <BR>02. <B>An Ancient Sign of Coming Storm</B><BR>03. <B>Pursuit Of Vikings</B> <BR>04. <B>Ride For Vengeance</B><BR>05. <B>Masters Of War</B><BR>06. <B>The Last With Pagan Blood</B><BR>07. <B>Once Sealed In Blood</B><BR>08. <B>Bastards Of A Lying Breed</B><BR>09. <B>Fate Of Norns</B><BR>10. <B>1000 Years Of Oppression</B><BR>11. <B>Vs. The World</B><BR>12. <B>North Sea Storm</B> <BR>13. <B>Releasing Surtur’s Fire</B><BR>14. <B>Annihilation Of Hammerfest</B><BR>15. <B>Friends Of The Suncross</B><BR>16. <B>Bloodshed</B><BR>17. <B>Amon Amarth</B><BR>18. <B>For the Stabwounds In Our Backs</B><BR>19. <B>Where Silent Gods Stand Guard</B><BR>20. <B>Bleed For Ancient Gods</B><BR>21. <B>Victorious March</B><BR>22. <B>Death In Fire</B><BR>+ backstage & other footage!<BR><BR>Disc 2:<BR><BR>Live at Summer Breeze festival – August 18, 2005<BR><BR>01. <B>Intro</B><BR>02. <B>An Ancient Sign Of Coming Storm</B><BR>03. <B>Pursuit of Vikings</B><BR>04. <B>Masters of War</B><BR>05. <B>Fate of Norns</B><BR>06. <B>1000 Years Of Oppression</B><BR>07. <B>Vs the World</B><BR>08. <B>For the Stabwounds In Our Backs</B><BR>09. <B>Victorious March</B><BR>10. <B>Death In Fire</B><BR><BR>Live at the Metal Blade RRROOOAAARRR – October 2, 2005<BR><BR>01. <B>Sorrow Throughout The Nine Worlds</B><BR>02. <B>Dragons Flight Across The Waves</B><BR>03. <B>God His Son And Holy Whore</B><BR>04. <B>The Sound Of Eight Hooves</B><BR>05. <B>Thor Arise</B><BR>06. <B>Fall Through Ginnungagap</B><BR>07. <B>Burning Creation</B><BR>08. <B>And Soon The World Will Cease To Be</B><BR>09. <B>Valkyries Ride</B><BR>10. <B>Pursuit Of Vikings</B><BR>11. <B>Beheading Of A King</B><BR>12. <B>Revenge Of The Zombie</B> (SIX FEET UNDER Cover)<BR>13. <B>Death In Fire</B><BR><BR>Disc 3:<BR><BR>Live at the Wacken Open Air 2004<BR><BR>Track listing to be announced<BR><BR>Live in Ludwigsburg (Germany) 2004 – record release show for "Fate of Norns"<BR><BR>01. <B>For The Stabwounds In Our Backs</B><BR>02. <B>Vs. The World</B><BR>03. <B>Masters Of War</B><BR>04. <B>North Sea Storm</B><BR>05. <B>Thousand Years of Oppression</B><BR>06. <B>Bloodshed</B><BR>07. <B>The Last With Pagan Blood</B><BR>08. <B>An Ancient Sign Of Coming Storm</B><BR>09. <B>Pursuit Of Vikings</B><BR>10. <B>Fate of Norns</B><BR>11. <B>Once Sealed In Blood</B><BR>12. <B>Death In Fire</B><BR>13. <B>The Sound Of Eight Hooves</B><BR>14. <B>Bleed For Ancient Gods</B><BR>15. <B>Where Silent Gods Stand Guard</B><BR>16. <B>Victorious March</B> </P>
+Автор: Vit Belov
+
+### 26.02.2006 news CULT OF LUNA примет участие в фестивале Close Up
+
+<P>Служители апокалиптического метала шведы <B>CULT OF LUNA</B>, новейший альбом которых, <B>"Somewhere Along The Highway"</B>, увидит свет на <B>Earache</B> 24 апреля, выступят на фестивале <B>Close Up Festival</B> 15 апреля.</P>
+<P>Двухдневный фест, организованный журналом <B>Close Up</B>, пройдет 15 и 16 апреля в столице Швеции Стокгольме. Там также примут участие такие команды, как <B>OPETH, EVERGREY, BOLT THROWER, BLINDSIDE, AMON AMARTH</B>.</P>
+Автор: Ixtiandr
+
+### 26.02.2006 news DECAPITATED выступят на Metal Camp Festival
+
+<P>Польские мастера дэт-метала <B>DECAPITATED</B>&nbsp;выступят 22 июля на фестивале <B>Metal Camp Festival</B>, который пройдет в Словении, в городе Толмин, с 21 по 23 июля. Об участии в этом музыкальном празднике также заявили такие монстры, как <B>DIMMU BORGIR, SAXON, TESTAMENT, AMON AMARTH, MY DYING BRIDE, HYPOCRISY, EDGUY, GOREFEST</B>.</P>
+<P>Подробности смотрите на: <A href="http://www.metalcamp.com/"><U>http://www.metalcamp.com/</U></A></P>
+Автор: Ixtiandr
+
+### 08.03.2006 news Кавер-арт нового DVD AMON AMARTH
+
+<P>
+<CENTER><STRONG>AMON AMARTH</STRONG> опубликовали кавер-арт своего DVD <STRONG>"Wrath of the Norsemen"</STRONG>,&nbsp;который выйте 24 апреля. Трэк-лист этого альбома вы сможете найти в архиве наших новостей.</CENTER>
+<P></P>
+<P>
+<CENTER><IMG height=355 src="/images/news_rus/2006.03/10136.jpg" width=265 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 14.04.2006 news Новый DVD AMON AMARTH
+
+<P>По техническим причинам, <B>Metal Blade Records</B> перенесли мировую дату релиза нового dvd шведской группы <B>AMON AMARTH</B> <STRONG>"Wrath of the Norsemen"</STRONG> (издание на трёх дисках)<STRONG> </STRONG>с 24 апреля на 15 мая 2006 года&nbsp;(12 мая в Германии, Австрии и Швейцарии). </P>
+Автор: Dimas
+
+### 18.05.2006 news AMON AMARTH начали работу над новым альбомом
+
+<P><STRONG>AMON AMARTH</STRONG> приступили к записи своего шестого полноформатного альбома. На сей раз группа будет работать над альбомом в Швеции в студии<STRONG> Fascination Street (Opeth, Soilwork</STRONG>). Весь материал будет записываться на протяжении мая и до 14-го июня вместе с продюсером <STRONG>Йенсом Богреном</STRONG>. Диск увидит свет где-то в середине сентября. Название пластинки пока неизвестно.</P>
+Автор: mcallen
+
+### 20.06.2006 news Шестой альбом AMON AMARTH
+
+<P>25 сентября на <STRONG>Metal Blade records</STRONG> выйдет новый альбом шведских viking death героев <STRONG>AMON AMARTH</STRONG> под названием <STRONG>"With Oden On Our Side"</STRONG>. Альбом был записан в местной студии <STRONG>Fascination Street</STRONG> с продюсером <B>Jens Bogren</B>. В&nbsp;него войдут следующие композиции:</P>
+<P>1. <B>Valhall Awaits Me</B><BR>2. <B>Runes to My Memory</B><BR>3. <B>Asator</B><BR>4. <B>Hermod's Ride to Hel (Lokes Treachery Part 1)</B><BR>5. <B>Gods of War Arise</B><BR>6. <B>With Oden On Our Side</B><BR>7. <B>Cry of the Black Birds</B><BR>8. <B>Under the Northern Star</B><BR>9. <B>Prediction of Warfare</B></P>
+<P><BR>&nbsp;</P>
+Автор: Dimas
+
+### 06.03.2007 news Новое видео от AMON AMARTH
+
+<P>Новый видеоклип <STRONG>AMON AMARTH</STRONG> на песню с последнего альбома "<STRONG>Cry Of The Black Birds</STRONG>" можно посмотреть здесь: <A href="http://www.metalblade.de/videos/amonamarth/cryoftheblackbirds.wmv">http://www.metalblade.de/videos/amonamarth/cryoftheblackbirds.wmv</A></P>
+Автор: Vit Belov
+
+### 26.01.2008 news AMON AMARTH запишут альбом
+
+<P><STRONG>AMON AMARTH</STRONG> вернулись из мирового турне и готовят материал для записи, которая состоится в мае.</P>
+Автор: Vit Belov
+
+### 28.06.2008 news Название нового AMON AMARTH
+
+<P>Новый альбом <STRONG>AMON AMARTH</STRONG> будет называться <STRONG>Twilight of the Thundergod</STRONG>". Пластинка выйдет осенью на <STRONG>Metal Blade</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 17.07.2008 news Новый альбом AMON AMARTH
+
+<P>30 сентября на <STRONG>Metal Blade</STRONG> выходит новый альбом <STRONG>AMON AMARTH</STRONG> <STRONG>"Twilight of the Thunder God". </STRONG>В записи альбома приняли участие вокалист <STRONG>ENTOMBED</STRONG> <STRONG>L.G. Petrov</STRONG>, гитарист <STRONG>CHILDREN OF BODOM</STRONG> <STRONG>Roope Latvala</STRONG>&nbsp;и <STRONG>APOCALYPTICA</STRONG>. Трэк-лист:</P>
+<P>01. <B>Twilight of the Thunder God</B><BR>02. <B>Free Will Sacrifice</B><BR>03. <B>Guardians of Asgaard</B><BR>04. <B>Where is Your God?</B><BR>05. <B>Varyags of Miklagaard</B><BR>06. <B>Tattered Banners and Bloody Flags</B><BR>07. <B>No Fear for the Setting Sun</B><BR>08. <B>The Hero</B><BR>09. <B>Live for the Kill</B><BR>10. <B>Embrace of the Endless Ocean</B></P>
+Автор: Vit Belov
+
+### 26.07.2008 news Обложка нового AMON AMARTH
+
+<P><STRONG>AMON AMARTH</STRONG> опубликовали обложку своего выходящего альбома <STRONG>"Twilight of the Thunder God".</STRONG></P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2008.07/12638.jpg" width=400 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 20.09.2008 news Новое видео AMON AMARTH
+
+<P>
+<CENTER><STRONG>AMON AMARTH</STRONG> выложили в сеть видеоклип на песню "<STRONG>Twilight Of Thunder God</STRONG>".</CENTER>
+<P></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=42875280">Twilight of the Thunder God</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=42875280,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=42875280,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 15.10.2008 news AMON AMARTH выступят в России
+
+<P>Шведы<STRONG> AMON AMARTH</STRONG> назначили два концерта в России. 30 января они выступят в Питере в "<STRONG>Орландине</STRONG>", а 31 января в Москве в "<STRONG>Точке</STRONG>".</P>
+Автор: Vit Belov
+
+### 11.11.2008 reviews Шведский мелодичный death-metal
+
+<P>Я считаю, что шведская группа AMON AMARTH является одним из самых стабильных поставщиков мелодичного тяжёлого материала на наш рынок. Судите сами… Альбомы группы выходят стабильно, каждые два года, музыка на них стабильно хороша и мелодична, тяжесть звучания также остаётся стабильной и балансирует на грани обвинения музыкантов в непозволительной для death-metal лиричности. В то же время, сам знаю, пластинки AMON AMARTH могут смело приобретать практически все поклонники тяжеляка, даже фэны power-metal и heavy-metal. AMON AMARTH огромными скачками приближаются к высшей лиге современной тяжёлой музыки, делая это, что особенно приятно, навязывая слушателям старое шведское звучание.</P>
+<P>В принципе «викинги» от death-metal могут быть довольны, у них опять получился очень мощный и приятный альбом. Тяжёлый, «забористый», но не забывающий порадовать нас отличными мелодиями. Только на такой компромисс мы и можем пойти со своей ‘death-metal’ совестью. Кстати, на новом альбоме практически нет стандартных «викинговских» мелодий, что заставляет задуматься над целесообразностью наличия данной приставки в обозначении стиля коллектива. Правда, по текстам там всё в порядке, Асгаард, Миклагаард… </P>
+<P>Советую всем любителям тяжёлой мелодичной музыки. Музыка AMON AMARTH не вызовет ни у кого аллергии, но порадует классными мелодиями и жёстким ритмом. Кстати, говорят и концерты у этой группы просто ураганные, в скором времени у нас будет возможность в этом убедиться.</P>
+Автор: Vit Belov
+
+### 03.01.2009 news AMON AMARTH поделились планами
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AMON AMARTH</STRONG> рассказали о своих планах на 2009 год:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>После заслуженного отдыха мы отправимся в короткий тур в Испанию, а так же выступим впервые в России. Дальше последует тур по всей Европе в компании с <STRONG>OBITUARY</STRONG>, <B>LEGION OF THE DAMNED</B>&nbsp;и </EM><B><EM>KEEP OF KALESSIN</EM>".</B></FONT></P>
+Автор: Vit Belov
+
+### 09.01.2009 news AMON AMARTH переиздадут альбомы
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2009.01/13329.jpg" width=350 align=right border=5>Шведы<STRONG>&nbsp;AMON AMARTH</STRONG> переиздадут 4&nbsp;первых альбома в 2009&nbsp;году. Первым из этой серии станет дебют группы <STRONG>"Once Sent From A Golden Hall", </STRONG>который выйдет 2 марта. На первый диск этого издания попадёт весь альбом целиком в ремастированном варианте с одним бонус-трэком. На второй диск попадёт запись концерта, состоявшегося 28 декабря прошлого года, в течение которого <STRONG>AMON AMARTH</STRONG> отыграли весь&nbsp;дебют целиком. Все четыре издания выйдут в формате двойных диги-паков, если их сложить вместе, получится одна большая 3-х мерная картинка. Трэк-лист дебютного альбома:</P>
+<P>01. <B itxtvisited="1">Ride For Vengeance</B><BR itxtvisited="1">02. <B itxtvisited="1">The Dragons' Flight Across The Waves</B><BR itxtvisited="1">03. <B itxtvisited="1">Without Fear</B><BR itxtvisited="1">04. <B itxtvisited="1">Victorious March</B><BR itxtvisited="1">05. <B itxtvisited="1">Friends Of The Suncross</B><BR itxtvisited="1">06. <B itxtvisited="1">Abandoned</B><BR itxtvisited="1">07. <B itxtvisited="1">Amon Amarth</B><BR itxtvisited="1">08. <B itxtvisited="1">Once Sent From The Golden Hall</B><BR itxtvisited="1">09. <B itxtvisited="1">Siegreicher Marsch</B> (German version of "Victorious March")</P>
+Автор: Vit Belov
+
+### 24.03.2009 news Видео AMON AMARTH с певцом ENTOMBED
+
+<P>Видео на песню <STRONG>AMON AMARTH</STRONG> <STRONG>"Guardians of Asgaard" </STRONG>с участием певца <STRONG>ENTOMBED L.G. Petrov</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=54366482">Guardians Of Asgaard ft. LG Petrov</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=54366482,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=54366482,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.04.2009 news AMON AMARTH переиздадут &quot;The Avenger&quot;
+
+<P>25 мая на<STRONG> Metal Blade</STRONG> выйдет второе из серии переизданию альбомов<STRONG> AMON AMARTH</STRONG> на <STRONG>Metal Blade</STRONG>. Делюкс издание "<STRONG>The Avenger</STRONG>" будет содержать бонус-трэк "<STRONG>Thor Arise</STRONG>" и бонус-диск с концертом группы от 29 декабря прошлого года в Бохуме, Германия.</P>
+Автор: Vit Belov
+
+### 16.11.2010 news AMON AMARTH пишут новый альбом
+
+<P>Шведы <STRONG>AMON AMARTH</STRONG> сообщают о том, что с 1 октября ведут работу над новым альбомом. В <STRONG>Park Studios </STRONG>уже записаны барабаны, а сейчас коллектив записывает гитары и бас в студии <STRONG>Fascination Street. </STRONG></P>
+Автор: Vit Belov
+
+### 01.12.2010 news AMON AMARTH выйдет в марте
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2010.12/17714.jpg" width=300 align=right border=0>29 марта на<STRONG> Metal Blade</STRONG> выйдет новый альбом <STRONG>AMON AMARTH</STRONG> <STRONG>"Surtur Rising".</STRONG> Surtur - это гигант из северной мифологии.</P>
+<P>Предыдущая работа <STRONG>AMON AMARTH</STRONG> <STRONG>"Twilight of the Thunder God" </STRONG>вышла в 2008 году и получила очень хорошие отклики как от прессы, так и от простых фэнов.</P>
+Автор: Vit Belov
+
+### 19.01.2011 news Новый альбом AMON AMARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.01/18253.jpg" width=400 align=right border=0>Новый альбом <STRONG>AMON AMARTH</STRONG> <STRONG>"Surtur Rising" </STRONG>выходит в марте на <STRONG>Metal Blade</STRONG>. Пластинка была записана в <STRONG>Fascination Street Studios </STRONG>с продюсером <STRONG>Jens Bogren. </STRONG>Трэк-лист:</FONT></P>
+<P>01. <B>War of the Gods</B><BR>02. <B>Tock's Taunt - Loke's Treachery Part II</B><BR>03. <B>Destroyer of the Universe</B><BR>04. <B>Slaves of Fear</B><BR>05. <B>Live Without Regrets</B><BR>06. <B>The Last Stand of Frej</B><BR>07. <B>For Victory or Death</B><BR>08. <B>Wrath of the Norsemen</B><BR>09. <B>A Beast Am I</B><BR>10. <B>Doom Over Dead Man</B></P>
+Автор: Vit Belov
+
+### 07.04.2011 news AMON AMARTH попали в Top-40!
+
+<P>Новый альбом <STRONG>AMON AMARTH</STRONG> <STRONG>"Surtur Rising" </STRONG>попал на 34-ое место в чарты <STRONG>Billboard 200</STRONG>. Было продано 15000 копий. Продажи <STRONG>AMON AMARTH</STRONG> продолжают расти. Предыдущая пластинка шведов <STRONG>"Twilight of the Thunder God" </STRONG>была продана в первую неделю тиражом 11000 копий.</P>
+<P><center><IMG height=450 src="/images/news_rus/2011.04/19097.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 11.05.2011 reviews AMON AMARTH закрепляют достигнутый успех
+
+<P>Шведы AMON AMARTH великолепный пример того, как можно трудолюбием и верностью собственному творчеству достичь максимального результата на современной сцене. Я, конечно, понимаю, что успехи этого коллектива не могут сравниться с успехами METALLICA, но для шведской группы в стиле viking-death-metal стабильное попадание в чарты Billboard в США – это великолепное достижение.</P>
+<P>Много лет AMON AMARTH пытались вдолбить широкому слушателю, что их музыка крута и великолепна. Альбомы год за годом выпускали Metal Blade, и вот потихоньку - полегоньку попёрло. Не стоит сбрасывать со счетов тот факт, что AMON AMARTH отлично смотрятся на сцене, а это немаловажно для западного слушателя, но дело не только в этом. «Виновата» в успехе шведов, конечно же, их музыка и модные сейчас «викингские» темы. Задорный death-metal шведского образца с лёгким налётом фольклорной музыки пришёлся ко двору в плеерах многотысячной армии фанатов метала. Теперь AMON AMARTH прошли огонь, воду и начались «медные трубы». Что это такое, применительно к тяжёлой музыке? Отнюдь не голые девушки, преследующие тебя повсюду и распевающие твоё имя, и не заголовки в международных таблоидах, повествующие о твоей личной жизни. Это желание лэйбла конвертировать затраченные усилия по твоей раскрутке в свободно конвертируемую валюту. Для этого нужно записывать новую музыку, не ориентируясь на собственное вдохновение, а ориентируясь на график релизов. При этом нужно не забывать объезжать весь мир с концертами и давать многочасовые интервью всем желающим. Не каждый может с этим напором справиться. Чаще всего группы штампуют альбомы, отличить которые друг от друга не представляется возможным.</P>
+<P>“Surtur Rising” рассказывает о Суртуре. И это, пожалуй, всё, чем он выделяется в лучшую сторону от предыдущих работ AMON AMARTH. На своём высоком профессиональном уровне шведы закрепляют свой успех, перерабатывая и углубляя задуманное на протяжении последних десяти лет. Ругаться сильно мы не будем, должны же музыканты отдохнуть, но в следующий раз им надо постараться и записать что-то действительно интересное.</P>
+Автор: Vit Belov
+
+### 28.06.2011 news Новый видео-клип AMON AMARTH
+
+<P>Новый ролик<B> AMON AMARTH</B> на песню <B>"Destroyer Of The Universe" </B>можно посмотреть ниже. Режиссёр <B>David Brodsky </B>отснял этот клип во время выступления шведов в Филадельфии. Комментируя это видео, гитарист коллектива <B>Olavi Mikkonen </B>рассказал, что <B>AMON AMARTH</B> хотели передать энергию живого выступления в этой работе.</P>
+<P><B>"Destroyer Of The Universe" </B>взята с восьмого альбома шведской viking-death-metal группы <B>"Surtur Rising"</B>, который вышел в мае на<B> Фоно</B>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px" style=" HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/NdvFzSuUeE0?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/NdvFzSuUeE0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 17.08.2011 news Фотографии с фестиваля &quot;TUSKA OPEN AIR&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20609.jpg" width=212 height=282>С 22 по 24 июля в городе Хельсинки,&nbsp;Финляндия, прошёл 14 по счёту фестиваль <STRONG>"Tuska Open Air"</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За эти три дня&nbsp;в нём приняло участие&nbsp;более 50 металических&nbsp;групп со всего света, вот только несколько имён: <STRONG>AMON AMARTH</STRONG>, <STRONG>TURISAS</STRONG>, <STRONG>BLIND GUARDIAN</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>MORBID ANGEL</STRONG>, <STRONG>AT THE GATES</STRONG>.</FONT></P>
+<P>Фотографии некоторых из участников фестиваля можно посмотреть в галерее нашего сайта по адресу: </P>
+<P><A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></P>
+<P>Автор всех фотографий: Анна Ходакова</P>
+<P>Сайт фестиваля <STRONG>"Tuska Open Air"</STRONG>: <A href="http://www.tuska-festival.fi/">www.tuska-festival.fi</A></P>
+Автор: Headcrusher
+
+### 11.10.2012 news Вино от AMON AMARTH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.10/24926.jpg" width=300 height=467>Шведские викинги <STRONG>AMON AMARTH</STRONG> последовали заразительному примеру своих многочисленных коллег по цеху и тоже выпустили красное вино <STRONG>"Shiraz"</STRONG> под своим именем.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><U>Характристики вина</U>:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Крепость</STRONG>: 12%</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Ёмкость</STRONG>: 0,75 литра</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Цена</STRONG>: 14,99 евро</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вино эксклюзивно можно купить на сайте: <A href="http://www.emp.de/amon-amarth-shiraz-wein/art_244080/">www.emp.de</A></FONT></P>
+Автор: Headcrusher
+
+### 16.04.2013 news Обложка нового AMON AMARTH
+
+<P>Новый альбом <STRONG>AMON AMARTH</STRONG> <STRONG>"Deceiver Of The Gods" </STRONG>выйдет в июне на <STRONG>Metal Blade</STRONG>. продюсером пластинки выступил знаменитый <STRONG>Andy Sneap.</STRONG></P>
+<P><FONT color=#ffffff>Обложку, на которой изображена битва между богами и Локи, можно посмотреть ниже.</FONT></P>
+<P><center><FONT color=#ffffff><IMG border=0 src="/images/news_rus/2013.04/25611.jpg" width=480 height=483></FONT></P>
+Автор: Vit Belov
+
+### 21.01.2014 news AMON AMARTH: видеоклип на песню &quot;Father Of The Wolf&quot;. 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AMON AMARTH</STRONG> опубликовали эпичный&nbsp;видеоклип на песню <STRONG>"Father Of The Wolf"</STRONG>. Данная песня вошла на альбом <STRONG>"Deceiver Of The Gods"</STRONG>, выпущенный на лейбле <STRONG>Metal Blade</STRONG> в прошлом году.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/hv13U4VewFo" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 24.09.2014 news Новинки видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27304.jpg" width=200 height=140>В этом постинге предлагаем вам&nbsp;ознакомится с&nbsp;десятью&nbsp;модными видеоклипами в металлической и не только музыке, которые появились за последний месяц на просторах интеренета и заслуживают вашего самого пристального внимания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>1349 "Slaves"</STRONG> : <A href="http://youtu.be/ajvLJPzgL_o">http://youtu.be/ajvLJPzgL_o</A><BR>02. <STRONG>ACHERON "Satan Holds Dominion"</STRONG> : <A href="http://youtu.be/dIoQHF4YIC8">http://youtu.be/dIoQHF4YIC8</A><BR>03. <STRONG>AMON AMARTH "Deceiver of the Gods" </STRONG>: <A href="http://youtu.be/CpAcxbtXUgQ">http://youtu.be/CpAcxbtXUgQ</A><BR>04. <STRONG>CORROSION OF CONFORMITY "On Your Way"</STRONG> : <A href="http://youtu.be/H5RdqR6I8Uw">http://youtu.be/H5RdqR6I8Uw</A><BR>05. <STRONG>CRUCIFIED BARBARA "I Sell My Kids For Rock'N'Roll"</STRONG> : <A href="http://youtu.be/oVU_8D1aJoU">http://youtu.be/oVU_8D1aJoU</A><BR>06. <STRONG>MORTALS "View From A Tower"</STRONG> : <A href="http://youtu.be/mHPh_aUfGD8">http://youtu.be/mHPh_aUfGD8</A><BR>07. <STRONG>NOCTEM "The Adamantine Doors"</STRONG> : <A href="http://youtu.be/rsNQonZdRNM">http://youtu.be/rsNQonZdRNM</A><BR>08. <STRONG>ORANGE GOBLIN "Sabbath Hex"</STRONG> : <A href="http://youtu.be/2l4Ts2p7jPE">http://youtu.be/2l4Ts2p7jPE</A><BR>09. <STRONG>SPIDERS "Shake Electric"</STRONG> : <A href="http://youtu.be/4IlpVlGTjbA">http://youtu.be/4IlpVlGTjbA</A><BR>10. <STRONG>THE HAUNTED "Eye Of The Storm"</STRONG> : <A href="http://youtu.be/uNAwrj1EUo8">http://youtu.be/uNAwrj1EUo8</A></FONT></P>
+Автор: Headcrusher
+
+### 24.03.2015 news AMON AMARTH покинул барабанщик
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.03/27812.jpg" width=300 height=448>Барабанщик<STRONG> Fredrik Andersson</STRONG> покинул&nbsp;шведскую death metal группу&nbsp;<STRONG>AMON AMARTH</STRONG> после 17 лет совместной работы.&nbsp;</P>
+<P>В своём заявлении на странице в Facebook, группа не указывает причину расставания.</P>
+<P>В настоящий момент коллектив работает над материалом&nbsp;для нового альбома и замену ушедшему участнику пока не нашёл.</P>
+Автор: Headcrusher
+
+### 26.01.2016 news AMON AMARTH: видеоклип &quot;First Kill&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом шведов <STRONG>AMON AMARTH</STRONG> получил название <STRONG>"Jomsviking"</STRONG> и выйдет 25 марта на лейбле <STRONG>Metal Blade</STRONG>. А пока группа предлагает посмотреть видеоклип на песню <STRONG>"First Kill"</STRONG> с нового альбома.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кстати, на одном треке с&nbsp;альбома, гостевое участие приняла <STRONG>Doro Pesch</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/qw5G6fF-wqQ" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 14.07.2017 news AMON AMARTH: клип &quot;The Way Of Vikings&quot;
+
+<P>Шведские викинги <STRONG>AMON AMARTH</STRONG> поделились клипом на трек <STRONG>"The Way Of Vikings"</STRONG>. Песня взята с прошлогоднего альбома<STRONG> "Jomsviking"</STRONG>, который вышел в марте прошлого года.</P>
+<P>В самом конце сентября - начале августа, группа даст серию концертов в России, а также посетит Киев и Минск. Больше информации по ссылке: <A href="/ru/shows/#74270">http://musica.mustdie.ru/ru/shows/#74270</A></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/55OJ17cHeJA" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Ваше отношение к группе Amon Amarth

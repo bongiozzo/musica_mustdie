@@ -19,6 +19,46 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2010 news Новый сингл от FIEND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=266 alt="" hspace=0 src="/images/news_rus/2010.09/17172.jpg" width=400 align=right border=5>Новый сингл отечественной melodic death-metal команды <STRONG>FIEND "System Error"</STRONG> можно скачать по адресу: <A href="http://www.fiendband.com/files/system_error.mp3">http://www.fiendband.com/files/system_error.mp3</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей. Группу покинул басист <STRONG>Lexx</STRONG>, не продержавшийся в составе и года. Новый альбом группы выйдет зимой 2011 года.</FONT></P>
+Автор: Vit Belov
+
+### 27.09.2010 news Трэк-лист нового альбома FIEND
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящий момент москвичи из <STRONG>FIEND</STRONG> записывают новый альбом "<STRONG>Before My Eyes..."</STRONG>&nbsp;на зеленоградской студии <STRONG>Recast</STRONG>. Уже завершена запись барабанов, баса и гитар. Сведение и мастеринг будут выполнены в декабре этого года. Трэк-лист:</FONT></P>
+<P>1. <STRONG>System Error</STRONG><BR>2. <STRONG>Liar</STRONG><BR>3.<STRONG> The Moth</STRONG><BR>4. <STRONG>Fade Away</STRONG><BR>5. <STRONG>The Drops of Time</STRONG><BR>6. <STRONG>Soundtrack to my life</STRONG><BR>7. <STRONG>The Last Rate (fear pt. 1)</STRONG><BR>8. <STRONG>Eclipse</STRONG><BR>9. <STRONG>Give Me...</STRONG><BR>10. <STRONG>Before My Eyes</STRONG></P>
+Автор: Vit Belov
+
+### 24.01.2011 news Сведением FIEND займется Anssi Kippo
+
+<P><IMG height=221 alt="" hspace=0 src="/images/news_rus/2011.01/18317.jpg" width=300 align=right border=0>Сведение нового альбома<STRONG> FIEND&nbsp;"Before My Eyes"</STRONG> пройдет на финской <STRONG>Astia Studio</STRONG> в городе Лаппеенранта, под руководством известного финского звукорежиссера<STRONG> Anssi Kippo</STRONG>. Процесс сведения начнется 24 января&nbsp;и будет продолжаться всю трудовую неделю. </P>
+Автор: Vit Belov
+
+### 04.07.2011 news FIEND решили обойтись без лэйбла
+
+<P><IMG height=221 alt="" hspace=0 src="/images/news_rus/2011.07/19881.jpg" width=300 align=right border=0>Московская melodic death-metal команда<STRONG> FIEND</STRONG> объявила дату релиза своего второго альбома "<STRONG>Before My Eyes...</STRONG>". Пластинка появится в продаже 12 июля. Группа выпустит свой диск самостоятельно.</P>
+<P>"<EM>На этот раз в России наш альбом не будет выпускаться на лейбле. Переговоры заняли у нас много времени о отняли много сил, зато укрепили нас в окончательном решении сделать всё самостоятельно. Помимо всего прочего мы не хотим на этот раз обязывать свои песни никакими контрактами. Одним из факторов отказаться от посредника для нас стало то, что наш первый альбом так и не увидели многие фэны живущие далеко от столицы, а некоторые и за её пределами. На этот раз мы сдеалаем упор на то, чтобы все желающие смогли получить наш диск, не суетясь</EM>", - заявляют&nbsp;<STRONG>FIEND</STRONG>.</P>
+<P>Первый альбом коллектива "<STRONG>The Blooming Tremble</STRONG>" вышел на подразделении<STRONG> Irond Molot Records</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 20.07.2011 news FIEND: Live Video с Release Party альбома Before My Eyes
+
+<P>13 июля 2011 года состоялась автограф сессия московской alternative death metal группы<STRONG> FIEND</STRONG>. На релиз пати музыканты исполнили несколько песен, включая один новый трек с готовящегося ЕР "<STRONG>The Legend Of Thousand Years</STRONG>", который будет записан зимой 2011 года. Фан видео 2 песен можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/KqEEAlKwTyg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/KqEEAlKwTyg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/NVabmplIYkA?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/NVabmplIYkA?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

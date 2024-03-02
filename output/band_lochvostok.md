@@ -62,6 +62,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.07.2011 news Новый клип LOCH VOSTOK
+
+<P>Новый ролик шведской prog-metal группы <STRONG>LOCH VOSTOK</STRONG> на песню <STRONG>'Sacred Structure'</STRONG> можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Martin Gustafsson</STRONG>. Песня взята с новейшего альбома <STRONG>LOCH VOSTOK "Dystopium"</STRONG>, который выйдет на <STRONG>Vicisolum Productions</STRONG> 23 сентября. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/0Uorf3HqiBA?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/0Uorf3HqiBA?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

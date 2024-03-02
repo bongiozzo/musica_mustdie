@@ -34,6 +34,27 @@ Death / black metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.08.2002 reviews Ненавистникам блэка посвящается...
+
+<p>Гос-с-споди, и это кому-то нравится?! Нет, конечно, о вкусах не спорят и т.д. и т.п., но ЭТО?! Ума не приложу, с какой радости Earache (а точнее их подразделение – Wicked World) продолжают поддерживать эту группу, выпуская в свет их уже второй (второй на Wicked World) альбом. А между тем, начиналось всё неплохо. Надеюсь, я не единственный, кто помнит первый диск американцев – диск весьма душевный, наполненный эдаким в меру пафосным pagan metal’ом. Однако DECEMBER WOLVES образца 1996 года и DECEMBER WOLVES образца года 2002-го – две большие разницы, как любят говорить в Одессе. Pagan metal’ом на “Blasterpiece Theatre” и не пахнет. Честное слово, после ознакомления с подобными, с позволения сказать, «работами» я начинаю понимать многочисленных «блэконенавистников». И действительно, представьте, что вы наконец-таки решили узнать, что это за black metal такой. Вам подсовывают последнее творение DECEMBER WOLVES… и что же вы слышите? До крайности хаотические песенные структуры, бессмысленно хаотические – ведь пресловутый хаос зачастую бывает и вполне осмысленным. Бездарное чередование придурковато-замысловатых риффов. Многочисленные сэмплы, позаимствованные из фильмов ужасов. Какие-то безумные псевдо-индустриальные вставки – думаете, они здесь к месту? Ошибаетесь. Лучше бы их не было. И надо всей этой шумовой свалкой парит донельзя злобнючее блэковое шипение. Страшно, аж жуть. Игра слов в названии альбома и песен (напр. “Blasterpiece Theater”, “Porn Again Christian”) – пожалуй, единственный положительный момент на всём диске.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 27.08.2002 news MassaBrutto Radioshow #102, 26-27 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. DEMENTOR - Waiting For The Death (Qabalah Prods/Fatal Ecstasy Prods)<BR> 2. DECEMBER WOLVES - Desperately Seeking Satan (Earache)<BR> 3. INSISION - He's My Fever (Earache)<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Symphonies Of Sickness", 1989, Earache]<BR> 4. CARCASS - Exhume To Consume<BR> 5. CARCASS - Ruptured In Purulence<BR> 6. CARCASS - Swarming Vulgar Mass Of Infected Virulency<BR> --- --- --- ---<BR> //новости//<BR> --- --- --- ---<BR> Радиопрезентация новейшего альбома "Dissimulate" австралийцев THE BERZERKER (2002, Earache/Soyuz). Розыгрыш компактов от концерна "Группа Союз". <BR> 7. THE BERZERKER - Disregard<BR> 8. THE BERZERKER - Failure<BR> 9. THE BERZERKER - Death Reveals<BR> 10. THE BERZERKER - Last Mistake<BR> 11. THE BERZERKER - Betrayal<BR> 12. THE BERZERKER - Painless<BR> 13. THE BERZERKER - Corporal Jigsore Quandary [by CARCASS]<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 27.08.2002 news MassaBrutto Radioshow #102, 26-27 Aug 2002.
+
+<p>Playlist:<BR><BR> 1. DEMENTOR - Waiting For The Death (Qabalah Prods/Fatal Ecstasy Prods)<BR> 2. DECEMBER WOLVES - Desperately Seeking Satan (Earache)<BR> 3. INSISION - He's My Fever (Earache)<BR> Kilo-metre section [CARCASS, album "Symphonies Of Sickness", 1989, Earache]<BR> 4. CARCASS - Exhume To Consume<BR> 5. CARCASS - Ruptured In Purulence<BR> 6. CARCASS - Swarming Vulgar Mass Of Infected Virulency<BR> --- --- --- ---<BR> //news//<BR> --- --- --- ---<BR> THE BERZERKER album "Dissimulate" presentation (2002, Earache/Soyuz). "Soyuz" CD ruffle<BR> 7. THE BERZERKER - Disregard<BR> 8. THE BERZERKER - Failure<BR> 9. THE BERZERKER - Death Reveals<BR> 10. THE BERZERKER - Last Mistake<BR> 11. THE BERZERKER - Betrayal<BR> 12. THE BERZERKER - Painless<BR> 13. THE BERZERKER - Corporal Jigsore Quandary [by CARCASS]<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

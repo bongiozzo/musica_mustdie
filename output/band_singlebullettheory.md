@@ -54,6 +54,31 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.07.2011 news SINGLE BULLET THEORY на Goomba Music
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Металкорщики <STRONG>SINGLE BULLET THEORY</STRONG> заключили контракт на два альбома с <STRONG>Goomba Music</STRONG>. Их новый альбом <STRONG>"IV" </STRONG>был записан в студиях <STRONG>Clay Creek </STRONG>и <STRONG>Ruszin, </STRONG>которая принадлежит новому гитаристу <STRONG>SBT</STRONG> <STRONG>John Ruszin III. </STRONG>Также в записи принял участие ещё два новых участника группы<STRONG> басист </STRONG>J<STRONG>eff Kalber </STRONG>и барабанщик <STRONG>Acacio Carvalho. </STRONG>Мастеринг новой работы сделает <STRONG>James Murphy (</STRONG><B>TESTAMENT, </B><B>DEATH).</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На альбоме слушатели смогут найти кавер-версию на песню <STRONG>DEATH</STRONG> <STRONG>"Spirit Crusher".</STRONG></FONT></P>
+<P><STRONG>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=48 src="/images/news_rus/2011.07/20000.gif" width=495 border=0></FONT></STRONG> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.07.2011 news Новый альбом SINGLE BULLET THEORY
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.07/20321.jpg" width=475 align=right border=0>Новый альбом<STRONG> SINGLE BULLET THEORY "IV"</STRONG> выходит 27 сентября на <STRONG>Goomba Music</STRONG>. В качестве приглашённых музыкантов на одном из треков этого альбома <STRONG>"Auctioneer Of Souls"</STRONG> отметились <STRONG>Tim Roth (INTO ETERNITY), Jed Simon (STRAPPING YOUNG LAD, ZIMMERS HOLE), Jack Frost (SEVEN WITCHES), Mark Simpson (FLOTSAM AND JETSAM, BEAUTIFUL CREATURES).</STRONG> Трек-лист:</P>
+<P>01. <STRONG>Echoes Of The Past</STRONG><BR>02. <STRONG>What Have I<BR></STRONG>03. <STRONG>Letting Go<BR></STRONG>04. <STRONG>Diabolical<BR></STRONG>05. <STRONG>Leviathan Smiles</STRONG><BR>06. <STRONG>Auctioneer of Souls</STRONG><BR>07. <STRONG>Hands of the Wicked<BR></STRONG>08. <STRONG>The Wake of Betrayal</STRONG><BR>09. <STRONG>Samsara</STRONG></P>
+<P>CD bonus tracks<BR>01. <STRONG>Spirit Crusher</STRONG> (DEATH cover)<BR>02. <STRONG>The Hurt That Never Ends</STRONG></P>
+Автор: Vit Belov
+
+### 20.12.2011 news SINGLE BULLET THEORY: видеоклип на трек &quot;Diabolical&quot;
+
+<P>Видеоклип команды <STRONG>SINGLE BULLET THEORY</STRONG> на трек <STRONG>"Diabolical"</STRONG> с последнего альбома с незатейливым названием <STRONG>"IV"</STRONG>, можно посмотреть ниже.</P>
+<P><STRONG></STRONG>&nbsp;</P><center><iframe width="560" height="315" src="http://www.youtube.com/embed/_UxK6qxyQXg" frameborder="0" allowfullscreen></iframe>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

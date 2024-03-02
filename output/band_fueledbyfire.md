@@ -34,6 +34,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.05.2013 news FUELED BY FIRE: подробности третьего альбома
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Калифорнийские трэшеры <STRONG>FUELED BY FIRE</STRONG> выпускают свой третий альбом. Диск получивший название <STRONG>"Trapped In Perdition"</STRONG>&nbsp;выйдет 26 июля в Европе и 6 августа в Северной Америке на лейбле <STRONG>NoiseArt</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Запись <STRONG>"Trapped In Perdition"</STRONG>&nbsp;проходила в<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;<STRONG>Mana Recording Studios</STRONG> (Санкт-Петербург, Флорида, США).</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гостем альбома стал <STRONG>Erik Rutan</STRONG> (<STRONG>HATE ETERNAL</STRONG>, ex-<STRONG>MORBID ANGEL</STRONG>), который записал гитарное соло к песне <STRONG>"Profane Path"</STRONG>.</P></FONT>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист альбома:<BR>01. <STRONG>Catastrophe</STRONG> | 02. <STRONG>Suffering Entities</STRONG> | 03. <STRONG>Forsaken Deity</STRONG> | 04. <STRONG>Profane Path</STRONG> | 05. <STRONG>Defaced Mortality</STRONG> | 06. <STRONG>Rotten Creation</STRONG> | 07. <STRONG>Pharmaceutical Extermination</STRONG> | 08. <STRONG>Symbolic Slaying</STRONG> | 09. <STRONG>Obliteration</STRONG> | 10. <STRONG>Abeyant Future</STRONG> (Outro) | 11. <STRONG>Depiction Of Demise</STRONG> (Bonustrack)</FONT></P>
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.05/25763.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 07.07.2013 news FUELED BY FIRE: песня &quot;Catastrophe&quot; доступна для прослушивания
+
+<P>Новость о том, что калифорнийские трэшеры <STRONG>FUELED BY FIRE</STRONG> выпускают свой&nbsp;третий полноформатник, мы публиковали ещё в мае месяце. Теперь пришло время оценить музыкальный материал. Для прослушивания стал доступен о<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>ткрывающий альбом трек под названием <STRONG>"Catastrophe"</STRONG>.&nbsp;</FONT>Дата выхода альбома: 26 июля 2013 г.</P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/C8wMxpp99hI" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

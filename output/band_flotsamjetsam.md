@@ -194,6 +194,171 @@ Craig Nielsen - Drums
 * C группой "EchoBrain" Jason Newsted
 * C группой "Papa Wheelie" Jason Newsted
 
+## Публикации
+
+### 06.04.1999 reviews 
+
+<p>Американская группа, ставшая известной широким массам благодаря тому, что предоставила своего басиста Джейсона Ньюстэда культовой команде Metallica. Хочется отметить, что не только поэтому стоит обратить внимание на этот коллектив. На прошлом альбоме "High" был представлен хороший, достаточно прямолинейный, трэш с высоким, для этого жанра, вокалом. После его выхода некоторое время продолжались спекуляции по поводу будущего группы. Но вот, в начале 99 года, вышел новый релиз. К моему удивлению, группа немного поменяла свою музыку. Ритм-секция, доменирующая на прошлой пластинке, теперь несколько задвинута, на первый план вышло соло-звучание, которое вторит вокалисту. Честно говоря, мне этот F&J понравился несколько меньше, чем предыдущий. В музыке больше нет той хорошей "упёртости", свойственной трэш-коллективам. Не знаю, со мной, конечно, можно спорить, но новый F&J немного разочаровал, хотя коллектив и остался на стабильном для себя "чуть выше среднего" уровне.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Flotsam&Jetsam выступят на знаменитом фестивале в Милуоки. Хэдлайнерами на нём будут Cradle Of Filth, Morbid Angel, Manowar и Machine Head. Также будут выступать Witchery, Marduk, Angra, Iced Earth, Satyricon, The Gathering, Sinister и другие. Всего более 120 групп. Кстати, всё это двухдневное удовольствие стоит всего 50 баксов. Это я так для сравнения.</p>
+
+Автор: Vit Belov
+
+### 23.11.1999 news 
+
+<p>Майк Гилберт покинул Flotsam&Jetsam.</p>
+
+Автор: Vit Belov
+
+### 26.03.2000 news 
+
+<p>Flotsam&Jetsam объявили о возврате в группу гитарист Майка Гилберта. Группа начала запись нового материала в феврале</p>
+
+Автор: Vit Belov
+
+### 20.02.2001 news FLOTSAM AND JETSAM
+
+<p>Грядет новый альбом FLOTSAM AND JETSAM (с рабочим названием "My God"). По словам тезки Ньюстеда - Джэйсона Ворда трек лист будет следующим: 'Dig Me Up To Bury Me', 'Keep Breathing', 'Camera Eye', 'Weather To Do', 'Trash', 'Praise', 'My God', 'Nothing To Say', 'Frustrate', 'Learn To Dance', 'Killing Time' и 'I.A.M.H.'. Дата выхода - июнь 2001.</p>
+
+Автор: Yermola
+
+### 20.02.2001 news FLOTSAM AND JETSAM
+
+<p>FLOTSAM AND JETSAM's Jason Ward has revealed the tracklisting for the band's forthcoming album, due for release in June: 'Dig Me Up To Bury Me', 'Keep Breathing', 'Camera Eye', 'Weather To Do', 'Trash', 'Praise', 'My God', 'Nothing To Say', 'Frustrate', 'Learn To Dance', 'Killing Time' and 'I.A.M.H.'. The album could possibly be called My God.</p>
+
+Автор: Yermola
+
+### 10.03.2001 news Дата выхода нового альбома Flotsam &amp; Jetsam.
+
+<p> Если верить Джейсону Варду, дата выхода нового альбома "My God" - 22 апреля. Также подтверждено, что Flotsam & Jetsam будут играть 7 апреля на фестивале Metal Meltdown III в Нью-Йорке.</p>
+
+Автор: Morsus
+
+### 10.03.2001 news Release date for the new album of Flotsam &amp; Jetsam.
+
+<p> According to Jason Ward the release date for the new album, "My God" is April 22nd. Also, it is confirmed, Flotsam & Jetsam will be playing the April 7th date at the Metal Meltdown III in New York.</p>
+
+Автор: Morsus
+
+### 25.06.2001 news Metal Blade news....
+
+<p>Here's a list of dates of METAL BLADE bands on tour. Check local listings:</p>
+<p> CATASTROPHIC <br> 7/05 Albany, NY Valentines <br> 7/06 Poughkeepsie, NY The Chance <br> 7/07 Sayre, PA Hurricane Billboards <br> 7/08 Syracuse, NY Action Sports Center <br> 7/09 Meriden, CT Hanover House <br> 7/12 Hudson, NH Club Euphoria <br> 7/13 Worcester, MA The Palladium <br> 7/14 Toronto, ONT Kathedral <br> 7/15 Montreal, Oue, Can. L'x <br> 7/16 Randolph, NJ Obsessions Nite Club <br> 7/17 New York, NY Wetlands Preserve <br> 7/18 Morgan, NJ Club Krome <br> 7/19 Baltimore, MD Ottobar <br> 7/20 Norfolk, VA Taj Mahal <br> 7/21 Columbia, SC Uncle Doctors <br> 7/22 Ft. Lauderdale, FL Culture Room <br> 7/23 Orlando, FL Sapphire Supper Club <br> 7/25 Houston, TX Fitzgerald's <br> 7/26 Dallas, TX Galaxy Club <br> 7/27 Corpus Christi, TX Zero's <br> 7/28 Austin, TX The Backroom <br> 7/29 Oklahoma City, OK Diamond Ballroom <br> 7/31 Tempe, AZ Boston's Night Club <br> 8/01 San Diego, CA Brick by Brick <br> 8/02 San Jose, CA The Cactus Club <br> 8/03 San Francisco, CA The Pound at Pier 96 <br> 8/04 Anaheim, CA The Shack <br> 8/05 Hollywood, CA Whiskey a Go Go <br> 8/07 Fort Collins, CO Starlight <br> 8/08 Lawrence, KS The Bottleneck <br> 8/09 Aurora, IL Riley's <br> 8/10 Milwaukee, WI Milwaukee Auditorium <br> 8/11 Clinton, IA Pig Pen <br> 8/12 St. Paul, MN The Lab <br> 8/13 St Louis, MO Creepy Crawl <br> 8/14 Detroit, MI I-Rock <br> 8/15 Lorain, OH Flying Machine <br> 8/16 W. Springfield, VA Jaxx <br> 8/17 Spartanburg, SC Ground Zero <br> 8/18 Tampa, FL Brass Mug <br> 8/19 Atlanta, GA The Masquerade <br> CATASTROPHIC-EUROPEAN DATES <br> 9/01 Trier, Germany Exil <br> 9/02 Vooselaar, Belgium Biebob <br> 9/03 Paris, France Locomotive <br> 9/04 Essen, Germany Zeche Carl <br> 9/05 Offenbach, German Hafenbahn <br> 9/06 Hengelo, Holland Metropool <br> 9/07 Zaandam, Holland Kade <br> 9/08 Helmond, Holland Plato <br> 9/09 Rotterdamn, Holland Baroeg <br> 9/10 Hamburg, Germany Markthale <br> 9/11 Berlin, Germany Razzle Dazzle <br> 9/12 Warsow, Poland Proxima <br> 9/13 Praha, Czech Republic Futurum <br> 9/14 Zwickau, Germany Alarm <br> 9/15 Vienna, Austria Arena <br> 9/16 Bresso, Italy Idian's Saloon <br> VADER <br> 6/28 Oklahoma City, OK Diamond Ballroom <br> 6/29 Fayetteville, AR Clunk Music Hall <br> 6/30 St. Louis, MO Creepy Crawl <br> 7/01 Aurora, IL Rileys <br> 7/03 Bowling Green, OH Howards Club H <br> 7/04 Columbus, OH Whiskey Pete's <br> 7/05 Detroit, MI The Shelter <br> 7/07 Toronto, ONT Kathedral Room <br> 7/08 Montreal, QUE Salle L'X <br> 7/10 Rochester, NY Water Street Music Hall <br> 7/11 Albany, NY Valentines <br> 7/12 Randolph, NJ Obsessions <br> 7/13 Worcester, MA Palladium <br> 7/14 Brooklyn, NY Lamour <br> 7/15 Springfield, VA Jaxx <br> 7/18 Winston-Salem, NC Ziggy's <br> 7/19 Birmingham, AL Boiler Room <br> 7/20 Tallahassee, FL Cow Haus <br> 7/21 Tampa, FL Brass Mug (Tent Show) <br> 7/24 Houston, TX The Engine Room <br> 7/25 Arlington, TX Dreamworld <br> 7/28 Anaheim, CA Chain Reaction <br> 7/29 San Francisco, CA The Pound <br> IMMOLATION and Krisiun (* Immolation only) <br> 8/03 Poughkeepsie, NY The Chance * <br> 8/04 Jackson Heights, NY Castle Heights * <br> 8/05 Syracuse, NY Planet 505 * <br> 8/06 Boston, MA Bill's Bar and Lounge * <br> 8/07 Randolph, NJ Obsessions * <br> 8/09 Cleveland, OH Agora Theatre * <br> 8/10 Detroit, MI I-Rock * <br> 8/11 Milwaukee, WI Milwaukee Auditorium <br> 8/12 St Paul, MN The Lab <br> 8/13 Lawrence, KS The Bottleneck <br> 8/14 Colorado Springs, CO Colorado Music Hall <br> 8/16 West Hollywood, CA The Whiskey A Go-Go <br> 8/17 Tempe, AZ Boston's Night Club <br> 8/19 Austin, TX The Backroom <br> 8/21 Tampa, FL The Brass Mug <br> 8/22 Ft Lauderdale, FL Culture Room <br> 8/23 Spartanburg, SC Ground Zero <br> 8/24 Richmond, VA Twisters <br> 8/25 Norfolk, VA Taj Mahal <br> 8/26 West Springfield, VA Jaxx <br> 8/27 New York, NY Wetlands <br> FLOTSAM & JETSAM <br> 7/28 West Hollywood, CA Troubadour <br> 9/28 Dallas, TX Canyon Club <br> 9/29 Austin, TX The Metro <br> 10/02 Tampa, FL Brass Mug <br> 10/06 Richmond, VA Canal Club <br> 10/13 Lorain, OH Flying Machine <br> 10/14 Aurora, IL Riley's <br> 10/20 Tucson, AZ The Rock <br> 11/02 Reseda, CA Paladino's <br> SPOCK'S BEARD <br> 7/15 Detroit, MI The Magic Bag <br> 7/16 Toronto, ONT tba <br> 7/17 Montreal, QUE tba <br> 7/18 Quebec City, QUE Le Dagobert <br> 7/20 Boston, MA House Of Blues <br> 7/21 W. Springfield, VA Jaxx <br> 7/22 Philadelphia, PA North Star Bar <br> 7/23 New York, NY The Bottom Line <br> 7/25 Lansing, IL JJ Kelly's <br> 7/26 Milwaukee, WI Shank Hall <br> 7/29 Las Vegas, NV Legends <br> 7/30 Los Angeles, CA tba <br> 7/31 San Francisco, CA Great American Music Hall <br> 8/01 San Diego, CA Cane's <br> DAVE BROCKIE EXPERIENCE <br> 8/30 Charlotte, NC Fat City <br> 9/01 Atlanta, GA Star Bar <br> 9/05 New Orleans, LA Dixie Taverne <br> 9/06 Houston, TX Fitzgerald's <br> 9/11 Tempe, AZ Big Fish Pub <br> 9/30 Cincinnati, OH Top Cat's <br> 10/01 Muncie, IN Fraction's <br> 10/02 Cleveland, OH Blind Lemon <br> 10/05 Worcester, MA Lucky Dog <br> LIZZY BORDEN <br> 7/06 Hollywood, CA House of Blues <br> 7/12 Anaheim, CA House of Blues <br> 7/13 San Francisco, CA Maritime Hall Ballroom <br> 7/14 Santa Cruz, CA Palookaville, Santa Cruz <br> JACOBS DREAM <br> 7/28 Columbus OH Park Metal Festival</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Обломки кораблекрушения...
+
+<p>После долгих поисков "FLOTSAM & JETSAM" нашли нового вокалиста. Им стал фронтмен HELSTAR / DESTINY’S END - James Rivera, который уже готов принять участие в американском туре команды, заменяя покинувшего музыкальный бизнес Эрика. Как заявил барабанщик Craig Nielsen: "James Rivera - это очень хороший выбор, по причине его невероятных вокальных данных, просто тонн сценического опыта и кроме того, он по настоящему преданный фанат FLOTSAM на все времена..."</p>
+
+Автор: Yermola
+
+### 23.08.2001 news FLOTSAM &amp; JETSAM appear likely to recruit...
+
+<p>FLOTSAM & JETSAM appear likely to recruit HELSTAR/DESTINY’S END frontman James Rivera to complete the already scheduled live dates on the group’s forthcoming US tour following vocalist Eric A.K.’s announcement that he was retiring from the music business. Here is the latest update on this matter by F&J drummer Craig Nielsen: "I was just called by James Rivera who you all may or may not know from the band HELSTAR, an incredible band that was there to help usher in the prog/thrash scene along with FLOTSAM, and all the others back in the day, also they have recently reformed and just was one of the Milwaukee Metalfest headliners a couple weeks ago along with a whole American tour. In addition to this, James fronted the Metal Blade band DESTINY'S END, who has 2 records out and also played shows with FLOTSAM and I thought was also a killer speed metal band. On top of this he has a BLACK SABBATH tribute band that is one of the consistently very top draws in the major Texas markets (he is from Houston). James Rivera would make a very good choice because of his incredible vocal range, tons of stage experience, and is one of the truest hardcore FLOTSAM fans of all time. It is an added bonus that he happens to be one of the coolest, easy to get along with people I’ve ever met, which goes a long way on a bus tour, not to mention fan interaction. He is over the top with interest to do the very best job possible for our tour, and we will be looking very closely at him in the coming days and I have a feeling he will nail it. For those with interest, go to your favorite search engine and check out his work and I'm sure you will all agree he is a bad mother####er." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.05.2004 news FLOTSAM &amp; JETSAM подписали контракт с CRASH MUSIC
+
+<B>FLOTSAM & JETSAM</B> подписали контракт на два альбома с американским лэйблом <B>CRASH MUSIC</B>. Новый альбом группы выйдет либо осенью, либо в начале 2005 года.
+Автор: Vit Belov
+
+### 31.08.2005 news FLOTSAM&amp;JETSAM видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>FLOTSAM&JETSAM&nbsp;</STRONG>на песню "<STRONG>Straight To Hell</STRONG>"&nbsp;доступно для скачивания по адресу: <A href="http://www.crashmusicinc.com/">http://www.crashmusicinc.com/</A></FONT></P>
+Автор: Vit Belov
+
+### 31.08.2005 news FLOTSAM&amp;JETSAM video
+
+<P>The new<STRONG> FLOTSAM AND JETSAM</STRONG> video for the song <STRONG>'Straight To Hell'</STRONG> from the new album, "<STRONG>Dreams of Death</STRONG>", can now be viewed online at the <STRONG>Crash Music</STRONG> Website: <A href="http://www.crashmusicinc.com/">http://www.crashmusicinc.com/</A>.</P>
+Автор: Vit Belov
+
+### 21.11.2008 news Название нового FLOTSAM &amp; JETSAM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Планируемый к выходу в следующем году новый альбом <STRONG>FLOTSAM & JETSAM</STRONG> получил название "<STRONG>The Cold</STRONG>". Он будет издан на лэйбле гитариста<STRONG> KORN</STRONG> <STRONG>Brian "Head" Welch</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 14.01.2009 news METAL MANIA 2008 DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2009.01/13367.jpg" width=316 align=right border=5>10 марта на <STRONG>Metal Mind</STRONG> выйдет очередной сборник из серии <STRONG>Metal Mania</STRONG>. На этот раз на DVD попали выступления, отснятые 8 марта прошлого года. Трэк-лист:</P>
+<P>1. <STRONG>INSIDE YOU</STRONG> <BR>'Roam in Darkness'<BR>'Before the Abyss <BR>2. <STRONG>PRIMORDIAL <BR></STRONG>'Heathen Tribes'<BR>'God to the Godless'<BR>3. <STRONG>IMMOLATION </STRONG><BR>'Hate's Plague'<BR>'Passion Hill'<BR>'World Agony'<BR>4. <STRONG>FLOTSAM AND JETSAM</STRONG> <BR>'The Master Sleeps'<BR>'Fork Boy'<BR>'Escape from Within'<BR>5. <STRONG>ARTILLERY <BR></STRONG>'Into the Universe'<BR>'Khomaniac'<BR>'Terror Squad'<BR>6. <STRONG>MARDUK <BR></STRONG>'Baptism by Fire'<BR>'Materialized in Stone'<BR>'Limbs of Worship'<BR>7. <STRONG>VADER <BR></STRONG>'Sothis'<BR>'Reign Forever World'<BR>8. <STRONG>SATYRICON <BR></STRONG>'Now, Diabolical'<BR>'K.I.N.G.'<BR>9. <STRONG>OVERKILL <BR></STRONG>'Necroshine'<BR>'Rotten to the Core'<BR>'Bastard Nation'<BR>'Fuck You'<BR>10. <STRONG>THE DILLINGER ESCAPE PLAN</STRONG> <BR>'Panasonic Youth'<BR>'Milk Lizard'<BR>'Sunshine the Werewolf'<BR>11. <STRONG>MEGADETH </STRONG><BR>'Washington Is Next'<BR>'Gears of War'<BR>'A Tout Le Monde'<BR>'Burnt Ice' </P>
+Автор: Vit Belov
+
+### 16.08.2010 news Новый трек от FLOTSAM AND JETSAM
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17019.jpg" width=350 height=350>Аризонцы <STRONG>FLOTSAM AND JETSAM </STRONG>опубликовали одну новую песню на своей Myspace странице: <A href="http://www.myspace.com/fandj">www.myspace.com/fandj</A></P>
+<P>Трек <STRONG>"Take" </STRONG>войдёт на новый альбом группы <STRONG>"The Cold"</STRONG>, который выйдёт 14 сентября на лейбле бывшего китариста <STRONG>KORN Брайна "Head" Велча - Driven Music Group</STRONG>. Оформление для <STRONG>"The Cold"</STRONG> создал <STRONG>Travis Smith</STRONG>.</P>
+<P>Трек лист<STRONG> "The Cold"</STRONG>:</P>
+<P><BR itxtvisited="1">01. <B itxtvisited="1">Hypocrite</B><BR itxtvisited="1">02. <B itxtvisited="1">Take</B><BR itxtvisited="1">03. <B itxtvisited="1">The Cold</B><BR itxtvisited="1">04. <B itxtvisited="1">Black Cloud</B><BR itxtvisited="1">05. <B itxtvisited="1">Blackened Eyes Staring</B><BR itxtvisited="1">06. <B itxtvisited="1">Better Off Dead</B><BR itxtvisited="1">07. <B itxtvisited="1">Falling Short</B><BR itxtvisited="1">08. <B itxtvisited="1">Always</B><BR itxtvisited="1">09. <B itxtvisited="1">K.Y.A.</B><BR itxtvisited="1">10. <B itxtvisited="1">Secret Life </B></P>
+Автор: Headcrusher
+
+### 18.12.2012 news FLOTSAM &amp; JETSAM закончили сведение альбома &quot;Ugly Noise&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>FLOTSAM & JETSAM</STRONG> закончили сведение своего нового альбома <STRONG>"Ugly Noise"</STRONG>, средства на создание которого, они собирали всем миром с помощью проекта <A href="http://www.pledgemusic.com/artists/7178">PledgeMusic.com</A>. Теперь очередь за мастерингом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложку альбома выполнил <STRONG>Travis Smith </STRONG>(<A href="http://www.seempieces.com/">www.seempieces.com</A>).</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2012.12/25165.jpg" width=442 height=400></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 29.07.2013 news NEWSTED: альбом &quot;Heavy Metal Music&quot; доступен для прослушивания на Youtube
+
+<P><STRONG>NEWSTED</STRONG>, новая группа под руководством бывшего басиста групп <STRONG>METALLICA</STRONG>, <STRONG>VOIVOD</STRONG> и <STRONG>FLOTSAM & JETSAM</STRONG> Джейсона Ньюстеда (<STRONG>Jason Newsted</STRONG>), выложила свой дебютный полноформатник <STRONG>"Heavy Metal Music"</STRONG>&nbsp;целиком на сервис <STRONG>Youtube</STRONG>.</P>
+<P>На физическом носителе альбом появится 6 августа 2013 г.</P>
+<P>Трек-лист: 01. <STRONG>Heroic Dose</STRONG> | 02. <STRONG>Soldierhead</STRONG> | 03. <STRONG>...As The Crow Flies</STRONG> | 04. <STRONG>Ampossible</STRONG> | 05. <STRONG>Long Time Dead</STRONG> | 06. <STRONG>Above All</STRONG> | 07. <STRONG>King Of The Underdogs</STRONG> | 08. <STRONG>Nocturnus</STRONG> | 09. <STRONG>Twisted Tail Of The Comet</STRONG> | 10. <STRONG>Kindevillusion</STRONG> | 11. <STRONG>Futureality</STRONG></P>
+<P>Официальный сайт группы: <A href="http://newstedheavymetal.com">http://newstedheavymetal.com</A></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/7BEW7qAsfCE?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.01.2014 news FLOTSAM AND JETSAM выпускают перезаписанный &quot;No Place For Disgrace&quot;
+
+<P>Легендарные&nbsp;<STRONG>FLOTSAM AND JETSAM</STRONG> анонсировали, что перезаписали свой&nbsp;второй альбом <STRONG>"No Place For Disgrace"</STRONG>. Диск получил название&nbsp;<STRONG>"No Place For Disgrace – 2014"</STRONG>&nbsp;и увидет свет 14 февраля в Европе, 17 февраля в Англии&nbsp;и 4 марта в Северной Америке.&nbsp;&nbsp;Перезаписанный трек&nbsp;<STRONG>“P.A.A.B”</STRONG> можно послушать поссылке: <A href="http://youtu.be/DDFPe8dTPcY">http://youtu.be/DDFPe8dTPcY</A> </P>
+<P>Предварительный заказ альбома&nbsp;<STRONG>"No Place For Disgrace – 2014"</STRONG> можно сделать по следующему адресу: <A href="http://www.metalblade.com/flotsamandjetsam">www.metalblade.com/flotsamandjetsam</A>.</P>
+<P>Комментирует группа: </P>
+<P><EM>“Мы перезаписали <STRONG>‘No Place For Disgrace’</STRONG>, потому-что нас постоянно просили пересвести этот&nbsp;альбом. Получить мастер-плёнки оказалось очень проблематично, поэтому мы решили перезаписать альбом используя некоторые современные технологии.&nbsp;&nbsp;Целью стояло не изменить его, а улучшить, используя возможности новой аппаратуры.&nbsp;У нас было свободное время для работы, так что раздумывать на этот&nbsp;счёт долго не пришлось.&nbsp;&nbsp;Многие наши давние фэны нервничают по этому поводу, но после того, как они услышат альбом, они его примут. Качество звука стало на 100% лучше и чище!”</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.01/26545.jpg" width=500 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 13.04.2016 news FLOTSAM &amp; JETSAM опубликовали песню с нового альбома
+
+<P>20 мая заслуженные американские металлисты <STRONG>FLOTSAM & JETSAM</STRONG> разместили&nbsp;выпускают свой новый безымянный альбом на лейбле <STRONG>AFM</STRONG>.&nbsp;А пока, в&nbsp;ожидании его выхода, можно послушать трэк <STRONG>"Iron Maiden</STRONG>"&nbsp;с этого самого альбома.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/fQ77YEzem_I" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 19.05.2016 news FLOTSAM AND JETSAM: видео с текстом &quot;Time to go&quot; на песню с нового альбома
+
+<P>Ветераны thrash metal сцены из США <STRONG>FLOTSAM AND JETSAM</STRONG> выложили видео с текстом на песню "<STRONG>Time to go</STRONG>" со своего одноименного нового альбома, который выходит на <STRONG>AFM Records</STRONG> 20 мая. "<STRONG>Flotsam and Jetsam</STRONG>" будет доступен в варианте digipak, на виниле (золотой и черный), а также в виде лимитированного бокс-сета (содержит digipak-издание диска, флаг, нашивку, открытку с автографами и сертификат).<BR><BR>Группа <STRONG>FLOTSAM AND JETSAM</STRONG> была образована в 1983 Фениксе, Аризона (США) и достаточно скоро превратилась в один из культовых коллективов thrash metal 80-х. <STRONG>FLOTSAM AND JETSAM</STRONG> уже более тридцати лет на сцене, несмотря на периодические смены в составе, продолжают радовать поклонников жанра концертами и новыми записями. <BR><BR>Текущий состав <STRONG>FLOTSAM AND JETSAM</STRONG>:<BR><STRONG>Eric “AK” Knutson</STRONG> - вокал<BR><STRONG>Steve Conley</STRONG> - гитара<BR><STRONG>Michael Gilbert</STRONG> - гитара<BR><STRONG>Michael Spencer</STRONG> - бас<BR><STRONG>Jason Bittner</STRONG> - ударные<BR><BR>Трек-лист альбома “<STRONG>Flotsam and Jetsam</STRONG>”:<BR><STRONG>01. Seventh Seal<BR>02. Life Is A Mess<BR>03. Taser<BR>04. Iron Maiden<BR>05. Verge Of Tragedy<BR>06. Creeper<BR>07. L.O.T.D.<BR>08. The Incantation<BR>09. Monkey Wrench<BR>10. Time To Go<BR>11. Smoking Gun<BR>12. Forbidden Territories</STRONG></P>
+<P><STRONG><BR>&nbsp;</P></STRONG>
+<CENTER><IFRAME height=370 src="http://www.youtube.com/embed/Z2aXxhbcl-Y" frameBorder=0 width=490 data-link="http://www.youtube.com/watch?v=Z2aXxhbcl-Y" allowfullscreen="allowfullscreen"></IFRAME></CENTER>
+Автор: Dimas
+
+### 05.06.2016 news FLOTSAM AND JETSAM: видеоклип с нового альбома
+
+<p>Ветераны thrash metal сцены из США<strong> FLOTSAM AND JETSAM</strong> сняли видеоклип на песню с нового альбома <strong>"Life Is A Mess</strong>". Диск "<strong>Flotsam and Jetsam</strong>" был выпущен 20 мая на <strong>AFM Records</strong>, и уже попал в немецкие чарты, стартовав с 46 места, что является лучшим результатом за всю историю коллектива.</p><p>"Flotsam and Jetsam" доступен в варианте digipak, на виниле (золотой и черный), а также в виде лимитированного бокс-сета (содержит digipak-издание диска, флаг, нашивку, открытку с автографами и сертификат).<br>&nbsp;<br>Группа FLOTSAM AND JETSAM была образована в 1983 Фениксе, Аризона (США) и достаточно скоро превратилась в один из культовых коллективов thrash metal 80-х. FLOTSAM AND JETSAM уже более тридцати лет на сцене, несмотря на периодические смены в составе, продолжают радовать поклонников жанра концертами и новыми записями.<br>&nbsp;<br>Текущий состав FLOTSAM AND JETSAM:</p><p>Eric “AK” Knutson - вокал<br>Steve Conley - гитара<br>Michael Gilbert - гитара<br>Michael Spencer - бас<br>Jason Bittner – ударные</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/jI8rWo2osaU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 05.06.2016 news FLOTSAM&amp;JETSAM: new video
+
+<p>Veterans of the thrash metal scene from the US<strong> FLOTSAM AND JETSAM</strong> filmed a video for a song&nbsp;from the new album <strong>'Life Is A Mess</strong>". CD "<strong>Flotsam and Jetsam</strong>" was released on may 20 via <strong>AFM Records</strong>, and has already entered the German charts.</p><p>"Flotsam and Jetsam" is available in the version of the digipak, on vinyl (gold and black), and also as a limited edition box set contains the digipak-edition CD, flag, patch, card signed and a certificate).</p><p>The band FLOTSAM AND JETSAM was formed in 1983, Phoenix, Arizona (USA) and soon enough became one of the cult bands of thrash metal of the 80s.</p><p>Current line-up:</p><p>Eric “AK” Knutson - vocals<br>Steve Conley - guitar<br>Michael Gilbert - guitar<br>Michael Spencer - bass<br>Jason Bittner – drums</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/jI8rWo2osaU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 10.09.2016 news FLOTSAM &amp; JETSAM выпустили лирик-видео
+
+<p>Новое лирик-видео<strong> FLOTSAM & JETSAM</strong> на песню "<strong>Seventh Seal</strong>" можно посмотреть ниже. Трек попал&nbsp;в альбом "<strong>Flotsam & Jetsam</strong>", вышедший ранее на <strong>AFM</strong>.</p><p>Приобретай лицензионную версию альбома в магазине <a href="http://escapemind.ru/goods/FLOTSAM-AND-JETSAM-Flotsam-And-Jetsam">Escapemind.ru</a></p><br><center><iframe width="560" height="315" src="https://www.youtube.com/embed/HTubOLCLCFM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 10.09.2016 news New official lyric video by FLOTSAM &amp; JETSAM
+
+<p>New lyric video<strong> FLOTSAM & JETSAM</strong> for the song "<strong>Seventh Seal</strong>" can be viewed below. The track was included in the album, "<strong>Flotsam & Jetsam</strong>", previously released on <strong>AFM</strong>.</p><br><center><iframe width="560" height="315" src="https://www.youtube.com/embed/HTubOLCLCFM" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

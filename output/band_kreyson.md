@@ -43,6 +43,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2011 news KREYSON переиздадут первые два альбома
+
+<P><IMG height=280 alt="" hspace=0 src="/images/news_rus/2011.07/20107.jpg" width=280 align=right border=0>Чехи<STRONG> KREYSON</STRONG> объявили о переиздании первых двух альбомов "<STRONG>Angel On The Run</STRONG>"&nbsp;и "<STRONG>Crusaders</STRONG>", в оригинале вышедших в 1990 и 1991 годах. Новые издания выйдут 5 августа на <STRONG>Ulterium Records</STRONG>. Продюсером дебюта в своё время был знаменитый <STRONG>Rolf Kasparek (RUNNING WILD)</STRONG>. Новые обложки для переизданий создал <STRONG>Felipe Machado Franco (BLIND GUARDIAN, RHAPSODY OF FIRE, ICED EARTH)</STRONG>.</P>
+<P>Трек-листы:</P>
+<P><STRONG>Angel On The Run</STRONG>: <BR>1. <STRONG>Kreyson<BR></STRONG>2. <STRONG>Skalp<BR></STRONG>3.<STRONG> Deep In The Night</STRONG><BR>4. <STRONG>No Blue Skies</STRONG><BR>5. <STRONG>Faraway<BR></STRONG>6. <STRONG>Angel On The Run</STRONG><BR>7. <STRONG>Dreamin’<BR></STRONG>8. <STRONG>Golden Ark<BR></STRONG>9. <STRONG>I Need You <BR></STRONG>10. <STRONG>Fade Out<BR>Crusaders</STRONG>: <BR>1. <STRONG>Pilgrimage<BR></STRONG>2. <STRONG>Crusaders <BR></STRONG>3. <STRONG>Commandments</STRONG><BR>4. <STRONG>No Bad Thing</STRONG><BR>5.<STRONG> Still</STRONG><BR>6. <STRONG>Stay A Moment<BR></STRONG>7. <STRONG>Forgiveness<BR></STRONG>8. <STRONG>Cries<BR></STRONG>9. <STRONG>Give Me Hope</STRONG><BR>10. <STRONG>The Prisoner</STRONG> </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Nbjx6opfog8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Nbjx6opfog8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

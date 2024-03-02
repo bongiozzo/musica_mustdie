@@ -24,6 +24,9 @@ propagandic death/grind metal band warshiping the great Beerkhult
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,51 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.10.2007 news Новые релизы от MUSICA Production
+
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ОСЕННЯЯ ИНТЕРВЕНЦИЯ ОТ MUSICA PRODUCTION.</STRONG></FONT></CENTER>
+<CENTER><STRONG><FONT style="BACKGROUND-COLOR: #000000"></FONT></STRONG>&nbsp;</CENTER>
+<DIV align=left><STRONG><FONT style="BACKGROUND-COLOR: #000000"><IMG height=391 alt="" hspace=0 src="/images/news_rus/2007.10/11949.jpg" width=400 align=right border=5>MP23 GROM "March Of Voices Of Dead Souls" (black-death-metal)</FONT></STRONG></DIV>
+<DIV align=left><STRONG><FONT style="BACKGROUND-COLOR: #000000"></FONT></STRONG>&nbsp;</DIV>
+<DIV align=left><FONT style="BACKGROUND-COLOR: #000000">Новый третий альбом <STRONG>GROM "March Of Voices Of Dead Souls"</STRONG> символизирует продолжающийся переход группы к death-metal звучанию. 5 трэков на 31 минут, среди которых главный эксперимент в истории<STRONG> GROM</STRONG> - концептуальная 17-минутная вещь с элементми black, death и даже ambient музыки. Вслед за концертами с<STRONG> BELPHEGOR</STRONG> группа выступит на одной сцене с <STRONG>MAYHEM</STRONG> 14 ноября. Трэк-лист:</FONT></DIV>
+<DIV align=left><FONT style="BACKGROUND-COLOR: #000000"></FONT>&nbsp;</DIV>
+<DIV align=left>1. <STRONG>Мой Марш</STRONG><BR>2. <STRONG>The Voices<BR></STRONG>3. <STRONG>Дисциплина Ненависти</STRONG><BR>4. <STRONG>Master Of Liars</STRONG><BR>5. <STRONG>Exodus</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left>MP3: <A href="/ru/band/grom/13362/#samples">http://musica.mustdie.ru/ru/band/grom/13362/#samples</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><IMG height=391 alt="" hspace=0 src="/images/news_rus/2007.10/11950.jpg" width=400 align=left border=5>MP24 <STRONG>KARTIKEYA "The Battle Begins"</STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>Дебютная пластинка от группы <STRONG>KARTIKEYA</STRONG>, folk-death-metal проекта от бывших участников <STRONG>НЕВИДЬ</STRONG>. Очередное открытие из России. Death-metal со скрипками, индуистскими хорами и соответствующими мелодиями. Гостевое участие <STRONG>Лесьяра </STRONG>(<STRONG>НЕВИДЬ</STRONG>, ex-<STRONG>BUTTERFLY TEMPLE</STRONG>). Очень оригинальная и, главное, "слушабельная" музыка. Брутал и мелодизм. Трэк-лист:</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><STRONG>1. Nemesis pt. 1: Aeons Ago <BR>2. Nemesis pt. 2: The Game Of Gods <BR>3. Enter My Dome <BR>4. Ruins Of Belief <BR>5. Oasis - Soul's Path <BR>6. Kailas <BR>7. Thunders Of Indra <BR>8. The Battle Begins pt. 1: The War Of One Blood <BR>9. The Battle Begins pt. 2: Arjuna <BR>10. Worship The Savior <BR>11. Unleash Thy Spirit <BR>12. The Last Night</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left>MP3: <A href="/ru/band/kartikeya/13360/#samples">http://musica.mustdie.ru/ru/band/kartikeya/13360/#samples</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><IMG height=393 alt="" hspace=0 src="/images/news_rus/2007.10/11951.jpg" width=400 align=right border=5>MP25 <STRONG>KREST "Apocollapsys"</STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>Первый thrash-metal альбом на <STRONG>MUSICA Production</STRONG> - <STRONG>KREST "Apocollapsys</STRONG>". Российская группа следующая по стопам таких "отцов" techno-thrash-metal, как<STRONG> PESTILENCE</STRONG> (кавер на их песню в конце пластинки). Реализация от <STRONG>Moscow Sound</STRONG> (<STRONG>АРКОНА, ROSSOMAHAAR, БЕЗУМНЫЕ УСИЛИЯ</STRONG>). <STRONG>KREST</STRONG> - опытные музыканты, которые вернут вас во времена классики thrash-metal. Трэк-лист:</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><STRONG>1. Technopogost <BR>2. Collapse <BR>3. Into the void <BR>4. Oblivion <BR>5. Gods & prayers <BR>6. Slaughter <BR>7. Demon of retribution <BR>8. Worm the conqueror <BR>9. Prophetic revelations (PESTILENCE cover)</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG>MP3: <A href="/ru/band/krest/13361/#samples">http://musica.mustdie.ru/ru/band/krest/13361/#samples</A></STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

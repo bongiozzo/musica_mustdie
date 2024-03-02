@@ -36,6 +36,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.09.2011 news Новый альбом MITOCHONDRION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=288 alt="" hspace=0 src="/images/news_rus/2011.09/21246.gif" width=288 align=right border=0>Второй альбом канадской death/black metal группы <STRONG>MITOCHONDRION "Parasignosis"</STRONG> вышел на <STRONG>Profound Lore Records</STRONG>. Музыкальный оккультисты представляют материал для любителей <STRONG>IMMOLATION</STRONG> и <STRONG>ARKHON INFAUSTUS</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Pestilentiam Intus Vocamus, Voluntatem Absolvimus I. Plague Evockation</STRONG>&nbsp;<BR>2. <STRONG>Pestilentiam Intus Vocamus, Voluntatem Absolvimus II. Lex Ego Exitium</STRONG><BR>3. <STRONG>Pestilentiam Intus Vocamus, Voluntatem Absolvimus III. Tetravirulence</STRONG>&nbsp;<BR>4. <STRONG>Trials<BR></STRONG>5. <STRONG>Rift/Apex</STRONG> <BR>6. <STRONG>Parasignosis<BR></STRONG>7. <STRONG>Banishment (Undecaphosphoric)<BR></STRONG>8. <STRONG>Kathenotheism <BR></STRONG>9. <STRONG>Untitled <BR></STRONG>10. <STRONG>Untitled</STRONG> <BR>11. <STRONG>Untitled</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/mitochondrion">http://www.myspace.com/mitochondrion</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

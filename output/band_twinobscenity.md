@@ -16,6 +16,33 @@ Viking Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Второй альбом норвежского трио такой же мощный, как и их дебютная работа. Музыканты очень удачно скрещивают элементы black, death и doom-gothic metal. Казалось бы, это всё несовмевтимые вещи, однако некоторым это удается, в том числе и TWIN OBSCENITY. Также обращает на себя внимание разнообразие вокалов и очень удачные короткие вставки женского вокала. Из-за всего этого, трудно классифицировать стиль, в котором работает группа. Да, собственно говоря, не очень то и хочется этим заниматься. Главное, что это хорошая Музыка. Саунд группы очень своеобразен и оригинален. Если всё-таки проводить параллели, то музыка группы- что-то среднее между IN FLAMES, ARCTURUS и IRON MAIDEN. Этот альбом обязателен для прослушивания.</p>
+
+Автор: Dimas
+
+### 22.04.2001 news Twin Obscenity завершили запись нового альбома.
+
+<p> Twin Obscenity внесли последние штрихи в выходящий вскоре новый альбом "Bloodstone". Запись альбома из десяти композиций была сделана в домашней студии. Ожидается, что это будет 39-минутный мелодичный viking/death/black металл с несколько более плотным и атмосферным звучанием, чем раньше.</p>
+
+Автор: Morsus
+
+### 22.04.2001 news Twin Obscenity have finished recording a new album.
+
+<p> Twin Obscenity have finished putting the final touches on their new album "Bloodstone". The band recorded the ten-song album at their home studio. Expect to hear 39 minutes of melodic viking/death/black metal with some more mellow and atmospheric elements than before.</p>
+
+Автор: Morsus
+
+### 23.06.2002 reviews Definitely not a masterpiece, definitely not a crap
+
+<p>This band has a deal with Century Media, whilst "Bloodstone" already is the third CD of theirs. Still, they’re relatively unknown. Why? No answer… unfortunately. Nevertheless, "Bloodstone" appears as pretty intriguing effort, and what's doubtless, highly original. At least, apart from Dolgar's vocals unsurprisingly making one recall GEHENNA, it doesn't sound like anything else. This work is based on more or less controversial yet fascinating cross between mid-tempo (melodic) Norse black metal and kind of doomy passages, featuring both blackish shrieks and weird female voice. The sound execution and musicianship aren't the ones I could possibly cavil at, therefore… check it out. Definitely not a masterpiece; definitely not a crap. Just a worthy piece of originality.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

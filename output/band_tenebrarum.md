@@ -59,6 +59,15 @@ Juan S.Ochhoa - keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.12.2002 bios Tenebrarum Bio
+
+<p>Colombian band created by violin player David Rivera in 1990.In 1992 released their demo "Visiones del horror" (Horror Visions),a death metal act.In 1994 "El Vuelo de las Almas"(Flight of Souls),an experimental album saw the light."Blood and Tears"-1995- was a little bit darker than previous releases because their sound was black metal influenced.Band`s third album "Sol Negro"(Black Sun)-1996- is a compilation that includes demo,first album and some rare live tracks."Divine War"-1997-,their fourth full lenght album started a new musical and ideological path for TENEBRARUM. To conmemorate 10 years of musical activity they released "X" on 2000,their fifth album in vinyl edition for collectors.At the end of 2001 "Voices" was born.TENEBRARUM`s sixth album is their most mature work.A chamber orchestra,two female singers,additional percussion and the mastering of George Marino(Metallica,Guns`n`Roses,Aerosmith etc.)at Sterling sound (NY)made this albums one of the best colombians rock acts ever.In november 2002 was released "Divine War 2002",a new special edition on digipack of their cult album with new versions of old songs,new cover art,2 bonus tracks,multimedia with their new video & mp3`s.For info you can check:www.tenebrarumx.com</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

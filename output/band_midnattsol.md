@@ -75,6 +75,51 @@ The Special Edition version of the CD has one bonus track, "A Predatorґs Prey" 
 * C группой "Penetralia" Daniel Droste
 * C группой "Ahab" Daniel Droste
 
+## Публикации
+
+### 16.06.2004 news MIDNATTSOL - сестра Лив Кристин тоже умеет петь!
+
+<P>Немецко-норвежская команда MIDNATTSOL пополнила и без того приличный список Napalm Records. Группа примечательна тем, что в ней поёт сестрица Лив Кристин - Кармен Элис Эспенаес. Двуязычная лирика по-английски и по-норвежски повествует о прекрасных и наоборот, ужасных проявлениях природы в мифах и сказаниях разных народов в разные времена. Музыка группы представляет собой мелодичный металл с легким налётом фолка. Дебютый альбом MIDNATTSOL будет записываться в именитой студии Mastersound и выйдет ориентировочно в начале следующего года.</P>
+Автор: Morsus
+
+### 16.06.2004 news MIDNATTSOL has joined to NAPALM RECORDS
+
+<P>The German / Norwegian sextet MIDNATTSOL has joined the roster of talented NAPALM RECS artists. The band features Liv Kristine's sister, Carmen Elise Espenaes, on vocals, whose fascination for Scandinavian myth and fairy tale is to be recognized in her lyrics. With a full voice, at times bilingually (English and Norwegian), Carmen tackles the beauty and horror of nature, set in a different era, in a different world. Musically the band's sound can be described as melodic metal with a touch of folk. MIDNATTSOL's debut release is tentatively scheduled to be released early next year and will be recorded at the well known Mastersound studio.</P>
+Автор: Morsus
+
+### 23.03.2005 reviews Семейный подряд в действии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пожалуй, я тоже запел бы в металлической группе, и возможно, даже женским голосом, если бы у меня была бы такая сестра, как Liv Kristine Espenaes (ex-THEATRE OF TRAGEDY, LEAVES' EYES) и такой зять, как Alex Krull (ATROCITY, а главное хозяин Mastersound Studios). Немудренно, что Carmen Espenaes запела, ведь у неё это всё есть. Плюс, в отличие от меня, ей есть, что показать, да и тестестерона в крови несколько меньше. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Встречайте, MIDNATTSOL (Полуночное солнце, норвежский)!!!!! (аплодисменты). Пытаясь, хоть как-то уйти от сравнения с сестрой, Carmen попыталась добавить некоторой количество folk в свой gothic-metal. Это выразилось в&nbsp;нескольких достаточно скучных акустических вещах, где госпожа Espenaes Jr. старательно подражает песням хоббитов, которые вероятно подслушала в известном фильме в исполнении некого Тука. Вам только останется представить, как рыцари падают сражённые стрелой, а умные кони тащут их обратно с поля боя. В нашей советской культуре есть аналоги, песня "Там вдали за рекой", например. Также MIDNATTSOL исполняют кавер на песню Грига, и это лучшая вещь на альбоме.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В остальном Carmen достаточно обучаема. Её научили, как петь так, чтобы не раздражать критиков своими посредственными вокальными данными, и как записывать музыку, чтобы было незаметно отсутствие сколько-нибудь внятных мелодий.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Что ж, семейный подряд в действии. В общем-то, мне всё равно. И вся моя ирония лишь упражнение в некоем острословии. Но иначе было бы совершенно нечего писать про этот посредственный gothic-metal альбом. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.irond.ru/">Irond</A></FONT></P>
+Автор: Vit Belov
+
+### 02.11.2005 news MIDNATTSOL готовы сочинять новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MIDNATTSOL</STRONG> сочиняют новый материал для своего второго альбома. Группа обещает более тяжёлый и фолковый материал.</FONT></P>
+Автор: Vit Belov
+
+### 19.11.2007 news MIDNATTSOL закончили запись гитар
+
+<P>Группа сестры<STRONG> Liv Kristine</STRONG> (<STRONG>LEAVES' EYES</STRONG>) <STRONG>Carmen Elise Espenaes</STRONG>&nbsp;<STRONG>MIDNATTSOL </STRONG>закончила запись гитар для своего нового альбома <STRONG>"Nordlys"</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.12.2007 news Дата релиза MIDNATTSOL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=248 alt="" hspace=0 src="/images/news_rus/2007.12/12055.jpg" width=250 align=right border=5>Новый альбом <STRONG>MIDNATTSOL</STRONG> <STRONG>"Nordlys" </STRONG>выйдет 28 марта на <STRONG>Napalm Records</STRONG>. Пластинка была сведена <STRONG>Tue Madsen</STRONG>, мастеринг сделал <STRONG>Mika Jusilla</STRONG>&nbsp;в <STRONG>Finnvox Studios.</STRONG>&nbsp;Трэк-лист:</FONT></P>
+<P>01. <B>Open Your Eyes</B><BR>02. <B>Skogens Lengsel</B><BR>03. <B>Northern Light</B><BR>04. <B>Konkylie</B><BR>05. <B>Wintertimes</B><BR>06. <B>Race Of Time</B><BR>07. <B>New Horizon</B><BR>08. <B>River Of Virgin Soil</B><BR>09. <B>En Natt I Nord</B><BR>10. <B>Octobre</B> (limited-edition bonus track)</P>
+Автор: Vit Belov
+
+### 08.07.2008 reviews Надо срочно прибавлять, иначе поздно будет
+
+<P>Второе творение группы MIDNATTSOL, которая привлекает всеобщее внимание наличием в своём составе сестры Liv Kristine. К сожалению, за прошедшие три года музыкантам не удалось продвинуться вперёд в плане сочинения интересных мелодий.</P>
+<P>Зато удалось продвинуться в кое-чём другом. Например, новый альбом записывался не только на студии зятя Carmen Elise Mastersound, группе также помогали, на разных этапах записи, Tue Madsen и Markus Stock. Или вот ещё радость, музыканты окончательно отказались от фолковых мотивов в своих трэках и сконцентрировались на gothic-doom-metal, которого так сейчас не хватает на рынках мира. В общем и целом, “Nordlys” – средняя удовлетворительная работа, которая удовлетворит кого угодно, кто не слышал классических работ THEATER OF TRAGEDY или не столь классических работ LEAVES’ EYES.</P>
+<P>Если вам понравился предыдущий альбом MIDNATTSOL, вперёд в магазин. Остальным не стоит тратить деньги, осязаемых дополнительных плюсов у группы не появилось. </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

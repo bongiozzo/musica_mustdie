@@ -25,6 +25,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.09.2011 news INTENSE на Pure Legend Records
+
+<P>Британцы<FONT style="BACKGROUND-COLOR: #000000"><STRONG> INTENSE</STRONG> заключили контракт с <STRONG>Pure Legend Records</STRONG>. Третий альбом коллектива <STRONG>"Shape Of Rage" </STRONG>вновь был записан в <STRONG>Thin Ice Studios </STRONG>с продюсером <STRONG>Karl Groom</STRONG> (<B>THRESHOLD</B></FONT>). </P>
+<P><center><IMG height=429 src="/images/news_rus/2011.09/20960.jpg" width=285 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

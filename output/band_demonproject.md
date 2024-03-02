@@ -23,6 +23,40 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.09.2008 news DEMON PROJECT в студии Fascination Street
+
+<P>21 сентября 2008 г. новосибирская industrial-metal команда <STRONG>DEMON PROJECT</STRONG> войдет в студию <STRONG>Fascination Street</STRONG> (<A href="http://www.fascinationstreet.se/">http://www.fascinationstreet.se</A>) (Оребро, Швеция) для записи очередного полноформатного альбома. Альбом будет записан под руководством продюсера <STRONG>Йенса Богрена</STRONG> (Jens Bogren) известного по работам с <STRONG>Soilwork, Amon Amatrth, Opeth, Katatonia</STRONG> и др. <STRONG>Jens Bogren</STRONG> много лет работает с командами из Америки и Европы, однако запись и сведение для российской группы будет делать впервые.</P>
+<P>Это уже не первое сотрудничество группы<STRONG> DEMON PROJECT</STRONG> со студией <STRONG>Fascination Street</STRONG>. Весной 2008 года на студии был выполнен мастеринг предыдущего альбома группы, записанного и сведенного в Новосибирске на <STRONG>студии Мегатон</STRONG>. Для издания данного альбома в настоящее время группа ищет подходящий лейбл.</P>
+<P>Запись нового альбома разбита на два этапа. Первый - запись барабанов и женских бэк-вокалов. Данная работа уже выполнена в июле 2008 г. на новосибирской <STRONG>студии Тотем</STRONG> (<A href="http://totemstudio.ru/">http://totemstudio.ru</A>). Звукооператоры <STRONG>Андрей Шингарёв</STRONG> и <STRONG>Сергей Зимин</STRONG>. </P>
+<P>Вторым этапом будет работа на <STRONG>Fascination Street</STRONG>, где будут записаны гитары, голос, а также, впервые за всю историю группы будет использован "живой" бас. Партии бас-гитары исполнит <STRONG>Василий "Bosil" Антипкин</STRONG> ("Rhemorha", "Ann Rand", "Небо Лондона", Megaton records). Частичное триггерование барабанов, сведение и мастеринг будут также сделаны непосредственно на<STRONG> Fascination Street</STRONG>. Готовый материал будет представлен лейблам уже в ноябре 2008 года.</P>
+Автор: Vit Belov
+
+### 06.12.2009 news DEMON PROJECT на Casket Music!
+
+<P><IMG height=410 alt="" hspace=0 src="/images/news_rus/2009.12/15651.jpg" width=400 align=left border=5>16 ноября 2009 года альбом death/industrial metal группы<STRONG> DEMON PROJECT</STRONG> под названием "<STRONG>Kara Ora</STRONG>" вышел на британском лейбле <STRONG>Casket Music</STRONG>!<BR><A href="http://www.coprorecords.co.uk/Casket/DisplayBand.asp?ID=216">http://www.coprorecords.co.uk/Casket/DisplayBand.asp?ID=216</A></P>
+<P>Алтайские языческие заговоры и русские напевы в сочетании с тяжелыми гитарами и синтезаторами, оформленные в концептуальный альбом "<STRONG>Kara Ora</STRONG>" добрались и до британских берегов! Мировой релиз альбома новосибирской группы&nbsp;<STRONG>DEMON PROJECT</STRONG>&nbsp;в странах Европы и Америки состоялся благодаря <STRONG>Casket Music</STRONG> - независимому лейблу из Великобритании. Дистрибуция осуществляется ведущим в Европе дистрибуторским агентством <STRONG>Plastic Head</STRONG>. <A href="http://www.plastichead.com/catalogue.asp?ex=backlist&target=DEMON%20PROJECT">http://www.plastichead.com/catalogue.asp?ex=backlist&target=DEMON%20PROJECT</A></P>
+<P>Выходу альбома предшествовала большая работа. Запись проводилась на студии в Новосибирске. Мастеринг делал ведущий шведский продюсер <STRONG>Jens Bogren</STRONG> на студии <STRONG>Fascinationstreet</STRONG>. Оформление сделано художником из Венгрии <STRONG>Gyula Havancsak</STRONG>. <A href="http://hjules.com/">http://hjules.com/</A></P>
+Автор: Vit Belov
+
+### 06.12.2009 reviews Наши люди в Англии
+
+<P>Новость о выпуске второго альбома группы из Новосибирска DEMON PROJECT на английском лэйбле Casket Music появилась совсем недавно. Эта контора, достаточно уважаемая в Европе, занимается различными нестандартными вариантами тяжёлой музыки. Что ж, наши соотечественники подходят им идеально, они сочетают в своём творчестве некое свежее звучание и популярные мелодии.</P>
+<P>DEMON PROJECT состоит из industrial, малой доли folk и современных modern metal ритмов. Звучит всё это очень свежо и достойно. Этот альбом можно смело рекомендовать не очень продвинутым фанатам тяжёлой музыки, здесь очень грамотно и со вкусом представлены мелодии, которые широкий потребитель часто слышит в нужных местах в кинофильмах или в каких-то массовых постановках. Жёсткие риффы без претензий на оригинальность, сэмплы и, как изюминка, различные фолковые звуки. Буквально с первых аккордов я полюбил заглавную композицию “Kara Ora”, где элегантно совмещаются industrial и красивое «фолковое» женское пение. На остальных композициях женский вокал отсутствует, но мужское чистое пение, переходящее в смачный рык не оставит никого равнодушным. Вокальная манера напомнила мне Руслана из MELANCHOLY, и в этом точно нет ничего плохого. К сожалению, вторая половина пластинки не столь яркая, как первая, но это ни в коем случае не умаляет её достоинств. Пускай с запоминающимися мелодиями ближе к концу не слишком хорошо, узнаваемый саунд никуда не пропадает. </P>
+<P>DEMON PROJECT удалось сотворить альбом из широколюбимых компонентов, но с собственным лицом. Здесь нет «топорности» RAMMSTEIN или явной пародийности XE-NONE, здесь совершенно самостоятельное произведение, которое приятно слушать и слышать.</P>
+Автор: Vit Belov
+
+### 06.01.2010 news DEMON PROJECT выложили сингл
+
+<P><STRONG>DEMON PROJECT</STRONG> - industrial-metal формация из Новосибирска в канун Нового Года выпустила новый интерент-сингл под названием "<STRONG>I LEAD U</STRONG>". Релиз включает саму композицию, ремиксы, а также новое видео группы. Релиз не является коммерческим - все файлы доступны для свободного скачивания с сайта группы <A href="http://www.demonproject.com/">www.demonproject.com</A>.</P>
+<P>Основная композиция была записана в Швеции на студии "<STRONG>Fascinationstreet studio</STRONG>". Видео снято новосибирской студией "<STRONG>OK Камера</STRONG>". Для реализации идеи клипа в качестве актеров были превлечены участники новосибирского BDSM движения.</P>
+<P>Данный сингл предворяет выход полноценного альбома, который группа планирует издать весной 2010 года. В настоящий момент группа активно ищет российских и зарубежных издателей.</P>
+<P>Ссылка на скачивание сингла: <BR><A href="http://www.demonproject.com/mp3/demon_project_i_lead_u.rar">http://www.demonproject.com/mp3/demon_project_i_lead_u.rar</A></P>
+<P><center><object width="480" height="295"><param name="movie" value="http://www.youtube.com/v/pfADNBHpXo0&hl=ru_RU&fs=1&"></param><param name="allowFullScreen" value="true"></param><param name="allowscriptaccess" value="always"></param><embed src="http://www.youtube.com/v/pfADNBHpXo0&hl=ru_RU&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

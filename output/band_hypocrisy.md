@@ -380,6 +380,977 @@ Digipak bonus track:
 * C группой "Immortal" Horgh (drums)
 * C группой "Grimfist" Horgh (drums)
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>В феврале на Европейском филиале NUCLEAR BLAST выйдут или уже вышли: миньон CREMATORY "Fly" - 08.02, концертник HYPOCRISY "Hypocrisy destroy wacken 1998" - 08.02, новый альбом NARNIA "Long Live The King" - 15.02 и STEEL PROPHET "Dark Hallucinations" - 22.02.</p>
+
+Автор: Vit Belov
+
+### 19.03.1999 news 
+
+<p>Hypocrisy находится сейчас в туре по США. Уже записан новый студий ный альбом группы под оригинальным названием "Hypocrisy", который выйдет когда-то в мае.</p>
+
+Автор: Vit Belov
+
+### 11.04.1999 news 
+
+<p>Одна из групп, которую продюсирует Питер Тартгрен (Hypocrisy), Amon Amarth записывает новый альбом "The Avenger". Новый death-metal опус выйдет в августе. Группу покинул барабанщик Мартин Лопез, который влотную решил занятся своей другой группой Opeth. На его место пришёл Фредде из недавно распавшегося Canourous Quintet.</p>
+
+Автор: Vit Belov
+
+### 13.04.1999 reviews 
+
+<p>Концертный альбом великолепной death-команды, на котором собраны почти все хиты. Концертники довольно сложно описать. На первое место выходит не сами композиции, а качество звука и качество исполнения. Качество звука находится на приличном уровне, что, конечно же, не странно при современном развитии техники. Одно из лучших исполнений на концертах, что я слышал - это Live Shit Metallica. Правда порой я задумывался, что даже чересчур хорошее. Также некоторые странности я замечал на концертном альбоме Crematory 1997 года, когда Феликс кричал что-то в микрофон, а перед самой песнью слышался странный щелчок и шла великолепно сыгранная песня. На данном альбоме не возникает никаких сомнений - это концертный звук. Перед песнями крики Петера не особенно разнообразны, но всё равно приятно послушать его нормальный голос. Также на релизе представлены две песни в студийном исполнении - "Unkill The End" и "Beginning Of The End". Всем любителям концертных записей и коллекционерам!</p>
+
+Автор: Vit Belov
+
+### 20.04.1999 articles Питер Тагтгрен: &quot;We are always in death metal&quot;
+
+<p>Можно говорить о смерти дэт-металл сколько угодно, но отрицать тот факт, что существуют ещё люди, готовые поднять его из праха, я думаю, никто не будет. Пока работают такие вдохновители этого стиля по обе стороны океана, как Чак Шульдинер и Питер Тагтгрен, Томас Скогсберг и Фред Эстби, надеяться на скорую смерть этого "молотилова" не приходится.</p>
+<P> В 1997 году после выпуска успешного альбома "The Final Chapter" Питер Тагтгрен (а именно, о нём пойдёт речь в этой статье) поспешил объявить длительный творческий перерыв в деятельности своей группы Hypocrisy. В этом временном промежутке Питер занимался своими сайд-проектами Abyss и Pain, а также продюсировал кучу других коллективов. Например, он помогал таким монстрам блэк-металл, как Dimmu Borgir и Immortal на их последних альбомах. Но вот свершилось, в конце 1998 года группа стала выходить из спячки. Первой ласточкой стал концертный альбом "Hypocrisy Destroys Waken", который вышел в начале 1999 года. На него вошли все лучшие композиции за всю историю коллектива. Но Питер стоять на месте не привык, и уже объявлена дата выхода нового студийного альбома под оригинальным названием "Hypocrisy".</>
+<P> С этой пластинки и можно начать знакомство с положением дел в объекте исследования.</>
+<P> Питер: "Новый альбом выйдет в конце мая в Европе. Надеюсь, что и в других местах он появится в тоже время. Я думаю, что пластинка будет более широкой в музыкальном плане, чем предыдущая. Это будет, конечно, продолжением "Abducted" и "The Final Chapter", но гораздо более разнообразным в музыкальном плане. Также я постоянно занимался работой со своим вокалом. Он будет всегда разным, в зависимости от песни."</>
+<P> Группа постоянно меняла своё звучание от альбома к альбому. Увидим ли мы продолжение этой эволюции на новом альбоме?</>
+<P> Питер: "Конечно, мы не хотим увязать в своей могиле. Мы действительно пытаемся расширять свои рамки от альбома к альбому. Я считаю, что мы не делаем очень больших скачков, но в каждом альбоме стараемся сделать хоть небольшой шажок вперёд. Для людей гораздо интереснее покупать что-то новое, поэтому я не хочу повторять "The Final Chapter" ещё раз. Мы прилагаем очень большие усилия, чтобы разнообразить материал, здесь будут и быстрые песни, и медленные, и средне темповые, потому что, когда я покупаю альбом, я хочу слышать все стили музыки."</>
+<P> Честно говоря, я просто преклоняю колено перед таким желанием Питера. И главное то, что наряду с изменением он не собирается шарахаться из стороны в сторону в поисках нового звучания. Быть может это так, потому что у него достаточно коллективов, с которыми он может экспериментировать, да и потом, начать новый проект для него, по-моему, небольшая проблема.</>
+<P> Питер: "Мы, действительно, пытаемся делать это. Расширять свои горизонты, но и не уходить от своих дэт-металл корней, скажем, в блэк или хэви, или готику, поэтому не бойтесь наших экспериментов. Я думаю, что мы пишем музыку, которая нравится нам и нравится фэнам, это просто круто!"</>
+<P> Как я уже упоминал, Питер уделял много внимания своим сайд проектам Abyss и Pain. Что нового с ними?</>
+<P> Питер: "Abyss кончился, потому что я не думаю, что мы сможем когда-нибудь превзойти "Summon The Beast". Если мы сделаем ещё один альбом, он не будет столь хорош, как этот. На Pain другая ситуация. Я сейчас заканчиваю новый материал к будущему альбому. Он выйдет где-то в сентябре - октябре на новом лейбле Polygram Universal Records. Pain поменял звукозаписывающую кампанию, потому что новый альбом очень сильно отличается от первого."</>
+<P> Вот и эксперименты! Вернёмся на два года назад. Ходили слухи, что после альбома "The Final Chapter" Hypocrisy была близка к полному распаду.</>
+<P> Питер: "Да, это действительно было так. Потому что, когда мы вошли в студию перед "The Final Chapter", какие-то наработки были только у меня, и это здорово меня бесило. Такая же история была и на "Abducted", и после него мы договорились, что все будут писать песни, все будут давать интервью, в общем, все будут вовлечены в работу. Но ничего не изменилось, и, когда мы стали записывать "The Final Chapter", я сказал: "Всё, это последний альбом, который я делаю вместе с вами, ребята!" Мне надоело всё делать самому, но тогда было уже поздно что-либо менять. Потом мы опять поговорили, и разговор, на этот раз, дал результат. Ещё до выхода альбома мы съездили на фестиваль в Милуоки, и там всё было здорово. Что-то поменялось, и мы решили записать ещё один альбом. Будем продолжать делать дело шаг за шагом. Я думаю, мы всегда были друзьями, но мне не хочется "тащить воз" одному."</>
+<P> Даже у таких трудоголиков бывают переутомления и Питера можно понять. Но мне слабо верится, что кто-то кроме Тагтгрена пишет песни.</>
+<P> Питер: "На этот раз это так. У нас сейчас записано около 20 песен, из которых мы будем выбирать. И далеко не все из них сочинены мной."</>
+<P> С новым альбомом всё ясно. Поговорим о музыкальных пристрастиях нашего "героя дэт-металл". Что любил Питер в юности, и что он любит сейчас?</>
+<P> Питер: "В самом начале на меня большое влияние оказали Kiss. Именно они вдохновили меня на то, чтобы я стал музыкантом. Очень большое влияние на меня оказали мои родители и брат, они приучили меня любить музыку в целом. Когда же появилась Metallica в начале 80-х, я захотел играть брутальную музыку. Также мне нравились Venom. Я всегда любил такую музыку. Чем экстремальнее она была, тем больше мне хотелось её играть."</>
+<P> Ну а как Питер относится к современному блэку?</>
+<P> Питер: Для меня блэк-металл - это группы типа Venom и Possessed, но я записываю много современных команд, и они мне очень нравятся. Мне, вообще, очень нравится работа звукоинженера."</>
+<P> Да, можно сказать это вторая ипостась Питера Тагтгрена. В его знаменитой Abyss студии записывалось очень много команд. Как долго он занимался ею?</>
+<P> Питер: "Да я и сейчас продолжаю ею заниматься. Каждую заработанную копейку я вкладываю в неё. Я начал этот бизнес в 1994 году, когда купил её."</>
+<P> А есть какие-нибудь группы, с которыми лучше всего работалось?</>
+<P> Питер: "Не знаю. Очень много альбомов, которыми я просто горжусь. Я думаю, что новый Immortal очень хорош, Неплох новый альбом Dimmu Borgir. Новый Marduk будет просто великолепен. Ну и, конечно же, три последних альбома Hypocrisy по-настоящему крутые."</>
+<P> Вернёмся к теме нашего разговора группе Hypocrisy и её будущему альбому. Почему он назван по названию группы?</>
+<P> Питер: "Для многих групп называть так альбомы просто привычка, не имеющая особого смысла. Для нас это не так. Ещё я надеюсь, что такое название даст новый толчок нашему творчеству, и это будет, как новое начало нашей деятельности. Это уже не "Final Chapter" ("Заключительная глава"), это начало нового Hypocrisy."</>
+<P> Долгой жизни пожелаем этой великолепной группе. И всё-таки, если бы Питер смог вернуться в прошлое, он бы повторил этот путь, при всех вышеупомянутых неурядицах или изменил что-нибудь?</>
+<P> Питер: "Я бы переписал первые три альбома (смеётся). Мне очень нравятся те песни, но мне не нравится, как мы их играем. Поэтому это здорово, послушать концертный альбом, потому что здесь они звучат более зверски. Старые песни более тяжёлые в концертном исполнении."</>
+<P> Это ещё один стимул к прослушиванию нового концертника группы "Hypocrisy Destroys Waken" кроме двух новых студийных композиций. Остаётся лишь ждать выхода нового материала и ещё раз пожелать группе творческих успехов, ведь от этого выиграем только мы, слушатели.</>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Сразу оговорюсь это слушок. Журнал Terrorizer в мартовском выпуске сообщил, что новый альбом Hypocrisy будет называться "Cloned" и будет похож на чёрный альбом Metallica. Хотя скорее всего это не в меру затянувшаяся первоапрельская шутка.</p>
+
+Автор: Vit Belov
+
+### 24.05.1999 reviews 
+
+<p>Этот альбом в рекламе не нуждается. HYPOCRISY - это уже своеобразная торговая марка, обозначающая высочайшее качество. Новый альбом Питера Тагтгрена и его товарищей записан так, что я даже не нашёл ни малейшей зацепки, к чему бы можно было придраться. Студийная работа просто великолепна. Все инструменты звучат в той тональности, с той громкостью, о которых другим командам можно только мечтать. Ну и сам материал написан в уже ставшем фирменном стиле группы. Половина композиций написана в быстром блэковом ключе, по своей злобе напоминая DIMMU BORGIR, а по мелодичности IN FLAMES. Другая же половина в неспешном тяжеловесно-думовом ключе, поражая своей атмосферностью и мелодичностью, напоминая по духу CREMATORY. Но HYPOCRISY самодостаточны и оригинальны, поэтому нельзя говорить, что они на кого-то похожи. Скорее, на них похожи многие группы. Только что очень большое удовольствие получил я от прослушивания этого шедевра, но хочется послушать ещё...</p>
+
+Автор: Dimas
+
+### 01.08.1999 news 
+
+<p>Объявлено о новой группе Dominion Caligula, в состав которой войдут члены Dark Funeral и Hypocrisy. Это Эмперор Магус Калигула (DF), Доминион (DF), Гаанфауст (DF) и Микаэль Хедлунд (Hypocrisy).</p>
+
+Автор: Vit Belov
+
+### 23.08.1999 news 
+
+<p>Emperor готовят новое видео, в которое войдут записи с концерта в Асстории в Лондоне, а также записи из жизни музыкантов между концертами. Видео выйдет в конце года. Candlelight Records переиздаст последний альбом группы "IX Equillibrium". На него войдут несколько различных версий песен. Например, Трикстер Джи (Ulver, Arcturus) работает над ремиксом песни "Sworn". Для наших фэнов будет интересно, что группа выступит на фестивале в Польше 9 октября вместе с Peccatum, Limbonic Art, Hypocrisy, The Kovenant (новое название Covenant). Концертный клавишник Emperor Шарман Гримлох выпусти свой сольный альбом "The Red Jewel" в сентябре.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 reviews Злобная мрачная и потрясающе скоростная музыка...
+
+<P>Как только этот альбом не называли и "Cloned" и "Fractured Millenium". В итоге альбом вышел под "оригинальным" названием "Hypocrisy". После не понятого народом альбома "The Final Chapter" этого творения ждали с нетерпением и дождались! Звук просто чума, альбом не имеет ни одного минуса. Злобная мрачная и потрясающе скоростная музыка чередуется с тяжестью doom'а и мелодичной атмосферностью. В подсознании этот альбом у меня ассоциируется с огромной злобной тварью, которая с дикой скоростью несется по миру, сжигая и разрушая все на своем пути, источая злобу и ненависть. После 45 минут звучания сидишь совершенно опустошенный и слушаешь тишину. И не могу не отметить, что HYPOCRISY работают с своем оригинальном ключе, не пытаясь заигравать со всякими модными веяниями.</P>
+Автор: Alexey Pitirimov
+
+### 08.05.2000 news 
+
+<p>В данный момент в Abyss Studios Hypocrisy записывают свой новый альбом. По словам Питера "НОвый альбом будет быстрее чем предыдущий. Больше крови и ЧЧЧЧЧ, наша типичная лирика и всё такое...". Альбом (пока еще безымянный) увидит свет в конце лета.</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 news Запись нового альбома Hypocrisy закончена.
+
+<p>Запись нового альбома Hypocrisy закончена. Новая пластинка "Into The Abyss" появится в продаже 31 июля. После релиза группа выступит на некоторых фестивалях в Европе, а затем поедет в Европейский тур вместе с Destruction, Crematory, Raise Hell и Kataklysm.</p>
+
+Автор: Vit Belov
+
+### 19.06.2000 news Hypocrisy finished new album
+
+<p>The recordings for the new Hypocrisy album are finished. Their new masterpiece "Into the abyss"will be released on July 31rd, followed by festival appearances in the summer (Wacken etc.) and later an European tour together with Destruction, Crematory, Raise Hell & Kataklysm!</p>
+
+Автор: Vit Belov
+
+### 10.07.2000 reviews Совершенно неожиданный альбом
+
+<p>Совершенно неожиданный альбом. Термоядерный и, по-чумовому брутальный, black-death-metal. Peter Tagtgren и сотоварищи решили записать хорошо узнаваемый материал Hypocrisy с совершенно неузнаваемым звуком. невероятно плотный, мощный, нечистый и неотполированный. Очень профессиональная иллюзия сырого необработанного материала, не вылизанного при микшировании звука. Куда-то исчезал былая мелодичность. Сплошные пилориффы и клавишная атмосфера с душераздирающим задушенным вокалом. Это, конечно, не шедевр, как прошлый альбом. Но, я думаю, Peter пошел на поводу у противников коммерческого предельно чистого звука и доказал им, что группа может играть по любому профессионально, технично и интересно.</p>
+
+Автор: Dimas
+
+### 11.07.2000 reviews Completely unexpected album
+
+<p>Completely unexpected album. Thermonuclear and brutal black-death-metal. Peter Tagtgren and company have decided to record well knowing a stuff Hypocrisy with a completely unrecognizable note. Incredibly dense, potent, unclean and not polished. Very professional illusion of a crude raw stuff, not clear at sound mixing. Somewhere petered melodica in music. Solid rhythms and keyboard atmosphere with disharmonic strangled voices. It, certainly, not a masterpiece, as a past album. But, I think, Peter has gone on a causing for the opponents of a commercial extreme clean note and has demonstrated to them, that the group can play on any professionally, technically and it is interesting.</p>
+
+Автор: Dimas
+
+### 04.09.2001 news Боль Питера Тэгтгрена...
+
+<p>"PAIN" - любимое детище Питера Тэгтгрена (HYPOCRISY) приготовило третий опус "Nothing Remains The Same" к предоставлению широким народным массам. Сие творение выйдет еще до конца года на Stockholm Records и будет содержать: 01. It's Only Them 02. Shut Your Mouth 03. Save Me 04. Injected Paradise 05. The Game 06. Can You See Me? 07. Fade Away 08. Eleanor Rigby (BEATLES cover) 09. The Deep Sea 10. Pull Me Under 11. Give It Up (bonus/B-side)</p>
+
+Автор: Yermola
+
+### 04.09.2001 news PAIN, the brainchild of HYPOCRISY ...
+
+<p>Sweden’s PAIN, the brainchild of HYPOCRISY mainman Peter Tagtgren, have finally completed work on their third full-length CD, which is tentatively scheduled to be released at the end of the year through Stockholm Records. Entitled Nothing Remains The Same, the follow-up to 1999’s excellent Rebirth effort will include the following track listing: 01. It's Only Them 02. Shut Your Mouth 03. Save Me 04. Injected Paradise 05. The Game 06. Can You See Me? 07. Fade Away 08. Eleanor Rigby (BEATLES cover) 09. The Deep Sea 10. Pull Me Under 11. Give It Up (bonus/B-side) Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 01.10.2001 reviews 10 лет хаоса и беспорядка!
+
+<p>Новый компакт от Hypocrisy!!! Это не новый их альбом, это сборник, посвященный юбилею группы! Но не просто сборник лучших вещей - на диске представлены ранние демо группы 1991 и 1992 годов, несколько старых песен группы с разных альбомов, а также одна новая вещь - Turn The Page. Теперь по порядку. Ранние демо-версии звучат конечно смешно, но когда группа достигает такого уровня как Hypocrisy, выпуск древних записей идет только на пользу! Всегда интересно послушать, с чего люди начинали. Старые вещи, представленные на диске, как бы небольшой the best of..., выбраны фэнами группы! Все песни заново аранжированы и заново записаны, так делают немногие, Hypocrisy сделали правильно, потому что оригинальные версии вседа можно послушать на номерных альбомах, и незачем приобретать сборники. Ну и наконец, новая вещь - Turn The Page - довольно проходная песня, больше похожая на проект Петера Тагтгрена Pain, чем на Hypocrisy. Но в целом впечатление от сборника эта песня не портит. В первую очередь этот диск предназначен для фэнов группы, знакомиться с творчеством Hypocrisy начиная с этого альбома не стоит, но если группу давно знаешь и любишь, то 10 Years Of Chaos and Confusion - отличный подарок самому себе! Особого внимания заслуживает буклет к диску - прекрасное оформление, и масса веселых фотографий, в основном с разных пьянок и концертов. Смотря на эти фотографии, понимаешь - вот уж точно - 10 лет хаоса и беспорядка!</p>
+
+Автор: Vic Thor
+
+### 11.12.2001 news Закрытие Abyss Studios ...
+
+<p>По сообщению журнала "Brave Words And Bloody Knuckles", Peter Tagtgren решил закрыть свою знаменитую студию "Abyss" по причине недовольства маркетинговой политикой лэйблов. "Я закрываю студию из-за меня..." - сказал Питер. "Я не торговая марка и не пункт продаж. Пошли все на XXX. Я не хочу больше быть частью этого дерьма, не важно сколько денег я имел и сколько бы еще получил за мое имя стоящее на CD... Это не то чего я хотел и чем никогда не был... Мне просто очень повезло, что все эти команды пришли ко мне в студию и повезло настолько, что все они продали много дисков, но сейчас я буду заниматься Hypocrisy и Pain на 100%. Я не буду никого продюссировать, потому что это ср..ое дерьмо. Это XXXая индустрия и я не хочу быть ее частью. Как мыльная опера... ".<BR> <BR> После закрытия студии Питер собирается сфокусироваться на делах "Hypocrisy". Возможно студией станет заниматься брат - Tommy Tagtgren. "Мы собираемся отправить наши задницы в тур и я не удивлюсь если мы побываем в Канаде дважды до конца следующего года. Будет два Европейских тура, два Американских и Япония с Австралией."</p>
+
+Автор: Yermola
+
+### 11.12.2001 news Peter Tagtgren appears to be closing famed Abyss Studios ....
+
+<p>According to Brave Words And Bloody Knuckles, Peter Tagtgren appears to be closing famed Abyss Studios due to dissatisfaction of becoming a marketing tool for labels. "I'm closing down Abyss Studios because of me," Tagtgren revealed to Brave Words And Bloody Knuckles reporter Carl Begai. "I am not a fucking trademark, I am not a selling point. Fuck everything. I don't want to be a part of that shit, no matter how much money I make or how much money I get for having my name on a CD for doing this and that. Fuck that; that's not what I'm about and I've never been about that. I've just been very fortunate to have all these bands coming into my studio, and fortunate enough to have these bands sell a lot of records, but now I'm doing Hypocrisy and Pain 100%. I'm not going to produce anymore because it's fucking shit. It's just a fucking industry and I don't want to be a part of it. It feels like a soap opera." <BR><BR> "When I produced the first Dimmu Borgir album I didn't know they were going to be that big. No one knew they were going to explode like that," continued Tagtgren. "They chose my studio and we worked together, so why do I get the credit for that? It was the band; they wrote the songs. I didn't go in like a real producer and say, 'Oh, play this riff, change this...' They played the songs that they had and I made sure that they had a good sound and that everybody was playing their best. When Dimmu exploded, I was like, 'What?!' I remember their label boss calling me up and thanking me for the killer production, and it bothered me a little. I was just doing my job." <BR><BR> "The bottom line is, when I can't hold up and give 100% anymore, then I know it's time to step aside." <BR><BR> It appears once Abyss is closed, Peter will focus on Hypocrisy and Pain. Tagtgren, however, failed to mention if brother Tommy Tagtgren will continue to produce or will leave the industry completely. His first goal appears to tour as much as possible, which means Hypocrisy coming over to North America for the first time since their debut Milwaukee Metalfest appearance a few years back. <BR><BR> "We're going to tour our asses off, and I wouldn't be surprised if we end up in Canada twice next year," Tagtgren says. "We're going to do two European tours, two American tours, we're going to Japan and Australia. We're going to show people that we fucking mean business; this is serious shit now. Even if you don't like Hypocrisy, you won't be able to avoid us, and maybe you'll like us after you hear us a couple more times. And if not, no problem, it's no big deal."</p>
+
+Автор: Yermola
+
+### 10.01.2002 news Malevolent Creation will go into Abyss Studio?!?!?
+
+<p>Malevolent Creation will be invading the following countries, and then will go into Abyss Studio with producer Peter Tagtgren to record they're 8th studio album. Working title at this time is "The Will To Kill". Florida Death Metal being recorded in Sweden? It should be interesting!<BR><BR> Malevolent Creation//Kataklysm//Catastrophic<BR><BR> March<BR> 3/10/02 UK // T.B.A. <BR> 3/11/02 Ireland // Belfast<BR> 3/12/02 Ireland // Dublin<BR> 3/13/02 UK // Newcastle<BR> 3/14/02 UK // London<BR> 3/15/02 France // Rennes<BR> 3/16/02 Belgium // T.B.A.<BR> 3/17/02 France // Paris<BR> 3/18/02 France // Amneville<BR> 3/19/02 France // Perpignan<BR> 3/20/02 France // T.B.A.<BR> 3/21/02 Spain // Barcelona<BR> 3/22/02 Spain // Murcia<BR> 3/23/02 Spain // Madrid <BR> 3/24/02 Spain // Irun<BR> 3/25/02 France // T.B.A.<BR> 3/26/02 France // T.B.A.<BR> 3/27/02 Switzerland // Wil<BR><BR> No Mercy Festival's<BR> Immortal//Hypocrisy//Vader//Malevolent Creation//Disbelief//Catastrophic//Destroyer 666//Obscenity<BR><BR> March<BR> 3/28/02 Germany // Berlin<BR> 3/29/02 Germany // Engelsdorf<BR> 3/30/02 Germany // Offenbach<BR> 3/31/02 Belgium // Antwerpen<BR><BR> April<BR> 4/1/02 Holland // Tilburg<BR> 4/2/02 Germany // Essen<BR> 4/3/02 Switzerland // Pratteln<BR> 4/4/02 Italy // Milano<BR> 4/5/02 Austria // Vienna<BR> 4/6/02 Austria //Wels<BR> 4/7/02 France // Strasbourg<BR> 4/8/02 Germany // Offenbach<BR><BR> Malevolent Creation will then do a series of dates till May 4th in the following countries: Denmark,Sweden,Norway,Poland,Croatia,Slovenia,Czech Republic and Greece.These dates are being put together at this time,check our website for updates.Then it off to the studio for they're 8th Murderous studio album!</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 10.03.2002 reviews Death Metal жив!
+
+<p>Признаться, почитав обзоры на сайте Irond и Nuclear Blast, и наткнувшись на информацию, что в этом альбоме присутствуют элементы nu-metal, я впал в уныние - еще один оплот металла рухнул. Но когда пластинка попала мне в руки, оказалось, что ничего на ней подобного нет. Питер Тагтгрен никогда не делал одинаковых альбомов. И этот - не исключение. И даже больше - эта работа - новая веха в развитии группы и дэта в целом! Конечно, он не станет таким откровением, как "Abducted", время не то, но пройти мимо этого, не побоюсь этого слова, шедевра, нельзя. Я бы подумал, что на этом альбоме Тагтгрен воплотил идеи не нашедшие применения в Pain, из-за их агрессивности, но в авторах песен числятся все участники группы, так что эта идея отпадает. Это действительно Hypocrisy. B, что бы там не говорили, музыку они играют все ту же, но уже на новом этапе развития. Это злой, но в то же время, чертовски мелодичный дэт, вокал слегка сэмплированный, но этого не замечаешь, поскольку погружаешься в эти потрясающие мелодии с головой, и выныривать не хочется. Уже несколько лет мне не попадался альбом, который я слушал бы на протяжении недели снова и снова. И с каждым прослушиванием находишь что-то новое, какие-нибудь новые краски, открываешь этот альбом, как будто заново, как головоломку, каждая грань которой не похожа на другую и зачаровывает, захватывает дух, заставляет восторгаться, и хочется разгадывать ее дальше, искать другие грани, будучи уверенным в том, что они окажутся еще прекраснее, чем предыдущие... Возможно, найдутся люди, которые будут говорить все наоборот, что это - предательство, это не дэт, что это попса. Но не верьте им - такое могут сказать только закоснелые консерваторы, не терпящие ничего нового. Не слушайте их, да и меня тоже, лучше купите себе этот альбом, и наслаждайтесь очередным шедевром великолепной троицы.</p>
+
+Автор: Gonetz
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 18.03.2002 reviews Death-metal lives
+
+<p>To admit, when i read the reviews on a site Irond and Nuclear Blast, and having come across on the information, that in this album there are elements nu-metal, I have run into despondency - one morestrongholsd of metal has failed. But when the CD has got to me, has appeared, that anything similar is not present on it. Peter Tagtgren never made two identical albums. And this - not exception. And even this work - new mark in development of group and death-metal! Certainly, it does not become such revelation, as "Abducted", time not that, but to pass by it, I shall not be afraid of this word, masterpiece, it is impossible. I would think, that on this album Tagtgren has embodied ideas not found application in Pain, because their aggression, but in the authors of songs all participants of group are, so this idea disappears. It is valid Hypocrisy. And, that there would not speak, they play same music, but already at a new stage of development. It is malicious, but at the same time, cool melodious death, vocal is slightly sampled, but it do not notice, as listen to these tremendous melodies. Already some years did not come across me an album, which I would listen during one week again and again to. And with each listening find something new, any new paints, open this album, as though anew, as the puzzle, which each side is not similar to another and bewitch, is grasped spirit, forces to be admired, and it would be desirable to solve it further, to search for other sides, being sure that they will appear even more perfectly, than previous... Probably, there will be people, which will speak all on the contrary, that it is treachery, it is not death, that it is pop. But do not trust them - such can tell only hardened the conservatives who are not suffering anything new. Do not listen to them, and me too, buy to itself better this album, and enjoy the next masterpiece of magnificent trinity.</p>
+
+Автор: Gonetz
+
+### 27.04.2002 news Peter Tagtgren объединился с E-Type
+
+<p>Питер Тагтгрен - лидер Hypocrisy, объединился с E-type. В этом составе группа даст несколько концертов в Швеции, как основной гитарист. ЭТО может продлиться в течение всего лета. Из других новостей: Hypocrisy отменили шоу в Греции, из-за распространяющегося вируса. (тоже сделали Immortal)</p>
+
+Автор: Vit Belov
+
+### 27.04.2002 news HYPOCRISY&#39;s PETER TДGTGREN Collaborates With E-Type
+
+<p>HYPOCRISY/PAIN mainman Peter Tдgtgren has played several shows in Sweden with heavyweight eurodance act E-TYPE as the latter group's guitarist and may do so again during the summer, if his schedule permits. Other News HYPOCRISY Cancel Greek Shows Due To Presence Of Lethal Virus. Immortal also have done it.</p>
+
+Автор: Vit Belov
+
+### 09.04.2003 news Новое пришествие лицемеров
+
+<p>Ветераны шведского death metal HYPOCRISY начали работу над своим новым альбомом. Он будет называться "The Arrival" и планируется к выходу на Nuclear Blast Records в конце 2003 года.</p>
+
+Автор: Dimas
+
+### 11.06.2003 news Hypocrisy starts to work on new album
+
+<p>“Band meeting today, it went well and we have a plan for the next release we're going to get together and practise for the recording for the first time in 9 years! The new album will go with the abducted sound (production) the music will go in the sign of Abducted and the Hypocrisy (self-titled album), working title is "The Arrival" and I think the little green men are back in my head!”</p>
+<p ALIGN="RIGHT">Peter Tдgtgren</p>
+
+Автор: Vit Belov
+
+### 09.09.2003 news PAIN задерживают новый альбом
+
+<p>Peter Tagtgren отодвинул дату релиза новой пластинки PAIN на 2004 год. CD выйдет на Stockholm Records и некоторые песни будут называться:</p>
+<p> 01. Tear It Up<br> 02. Don't Count Me Out<br> 03. The Table Has Turned<br> 04. Stay Away<br> 05. Misery<br> 06. The Third Wave</p>
+<p> В сообщении на официальном сайте группы Peter написал: "<b>Всем Вам, я думаю, интересно что происходит с новым альбомом PAIN. Дело сдвинулось с мёртвой точки, и мне осталось записать вокал лишь на несколько песен. В итоге я вынужден передвинуть дату релиза на 2004 год, но обещаю, что Вы не пожалеете потраченного времени на ожидание</b>". О HYPOCRISY Tagtgren заметил: "<b>Мы начали запись новых трэков и для HYPOCRISY. Всё идёт нормально. Если вам нравятся вещи типа 'Roswell 47', Вы полюбите нашу новую работу.</b>"</p>
+
+Автор: Vit Belov
+
+### 07.10.2003 news HYPOCRISY записываются
+
+Шведские дэтстеры <B>HYPOCRISY</B> еще в начале августа вошли в студию для записи нового альбома <B>"The Arrival"</B>, который вскоре должен выйти на <B>Nuclear Blast Records</B>.
+Автор: Darkfall
+
+### 15.10.2003 news News about new album of HYPOCRISY
+
+<B>HYPOCRISY-</B>album will be „<B>The Arrival</B>“. The record will feature 10 tracks and a wide range of styles, ranging from fast, aggressive songs to heavy mid-tempo stuff and doom-monsters. The album will be released in January/February 2004.
+Автор: Vit Belov
+
+### 08.12.2003 news Peter Tagtgren спел для KATAKLYSM
+
+<P>Лидер <B>HYPOCRISY Peter Tagtgren</B> записал партии гостевого вокала для нового альбома <B>KATAKLYSM 'Serenity In Fire'</B>, который выйдет 8 марта. </P>
+Автор: Vit Belov
+
+### 08.12.2003 news Peter Tagtgren on KATAKLYSM album
+
+<P><SPAN lang=EN-GB><B>HYPOCRISY</B> mainman <B>Peter T&auml;gtgren</B> has recorded a guest vocal appearance for the new <B>KATAKLYSM</B> album, "<B>Serenity In Fire</B>", due on </SPAN><SPAN lang=EN-GB>March 8, 2004</SPAN><SPAN lang=EN-GB>.</SPAN></P>
+<P><SPAN lang=EN-GB>As previously reported, the much-anticipated effort will contain the following video clips: "<B>In Shadows & Dust</B>", "<B>The Awakener</B>", and two new video clips from the upcoming album: "<B>As I Slither</B>" and the movie theme song "<B>The Night They Returned</B>". </SPAN></P>
+<P><SPAN lang=EN-GB>The latter will be filmed in </SPAN><SPAN lang=EN-GB>Montreal</SPAN><SPAN lang=EN-GB> on November 20. The clip will contain band shots in the studio and movie excerpts. <BR><BR>The artwork duties have once again been handled by acclaimed artist <B>Thomas Ewerhard (HYPOCRISY, AMON AMARTH).</B> </SPAN></P>
+Автор: Vit Belov
+
+### 13.01.2004 news Барабанщик IMMORTAL перешёл в HYPOCRISY
+
+Барабанщик&nbsp;<B>IMMORTAL</B> <B>Horgh</B>&nbsp;стал офицальным участником группы&nbsp;<B>HYPOCRISY</B>. <B>Horgh</B>&nbsp;заменил в&nbsp;<B>HYPOCRISY</B>&nbsp;их предыдущего барабанщика&nbsp;<B>Lars Sz&ouml;ke</B>, который доставлял группе проблемы в турах: не любил длительные перелёты.<BR>
+Автор: Uneral
+
+### 05.03.2004 reviews Прибытие из бездны
+
+<P>Девять студийных альбомов&nbsp;за тринадцать лет - довольно плодотворный итог по современным металлическим&nbsp;меркам. Однако, при таком раскладе существует негативный факт самоповторения. Вот и новый альбом Пети и компании не содержит ничего принципиально нового, и выдержан в классическом духе HYPOCRISY, во многом напоминая такие работы, как "The Fourth Dimension" и "Abducted", особенно построением песенного ряда: быстрая песенка сменяется тяжелым медляком, чередуясь через одного. Поэтому, когда слушаешь новые песни, возникает впечатление, что где-то&nbsp;уже это слышал. И, между прочим, на шестой композиции "The Abyss" я реально почувствовал дежа-вю. Покопавшись в своей памяти, мне удалось припомнить, что именно эту песню я тщетно пытался найти&nbsp;аж с 1994 года, когда увидел (и записал его)&nbsp;клип на эту композицию в программе Headbangers Ball. Еще тогда, я узнал, что эта песня была написана для альбома "The Fourth Dimension", на нее был снят клип, но... в альбом она так и не попала. С тех пор, мои попытки найти ее в числе бонусов к какому-либо альбому были безрезультатны. Так и приходилось довольствоваться клипом. Надеюсь, что другие песни к альбому - свежие произведения, и не взяты из архива группы, хотя кто его знает. В любом случае, это все тот же HYPOCRISY, только более мелодичный, чем обычно, менее злой, чем раньше, и с большим уклоном в melodic death metal. И никаких экспериментов с электроникой и индустриальными делами, как многие предсказывали после увлечения Питером своим вторым основным проектом PAIN. И никаких заигрываний с nu-metal, как на предпоследнем альбоме. И это хорошо. Из интересных фактов, стоит отметить, что в написании лирики к альбому активно поучаствовал Dan Swano, а еще в одной из песен соавтором текста выступает Silenoz (DIMMU BORGIR). И по-прежнему, лирика посвящена пришельцам и всему, что с этим связано. Что еще отметить... великолепное качество записи (альбом записывался в одной из лучших студий мира), просто чумовой звук и техника музыкантов. Да и вообще, похожесть материала альбома на раннее творчество группы - это единственный минус альбома. В остальном - сплошные плюсы. В любом случае, могу гарантировать, что прослушивание нового альбома группы принесет вам удовольствие и не заставит вас скучать от однообразия.</P>
+Автор: Dimas
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 16.03.2004 news Hypocrisy on tour
+
+12.02.2004 HOUSTON, TX - Engine Room ( USA) <BR>13.02.2004 DALLAS, TX - Trees ( USA)<BR>14.02.2004 SAN ANTONIO, TX - The Back Room ( USA) <BR>16.02.2004 PHOENIX, AZ - Mason Jar ( USA) <BR>17.02.2004 HOLLYWOOD, CA - The Key Club ( USA) <BR>18.02.2004 SANTA ANA, CA - Galaxy Concert ( USA) <BR>19.02.2004 SAN FRANCISCO, CA - Slim&acute;s ( USA) <BR>20.02.2004 PORTLAND, OR - Roseland ( USA) <BR>21.02.2004 SEATTLE, WA - Graceland ( USA) <BR>23.02.2004 SALT LAKE CITY, UT - Bricks ( USA)<BR>24.02.2004 ENGLEWOOD, CO - Gothic Theatre ( USA) <BR>25.02.2004 LAWRENCE, KS - Bottleneck ( USA) <BR>26.02.2004 SAUGET, IL - Pop&acute;s ( USA) <BR>27.02.2004 MILWAUKEE, WI - The Eagles Club ( USA) <BR>28.02.2004 MINNEAPOLIS, MN - Quest Club ( USA) <BR>29.02.2004 CHICAGO, IL - House Of Blues ( USA) <BR>03.03.2004 CLEVELAND, OH - Agora Ballroom ( USA) <BR>04.03.2004 PHILADEPHIA, PA - Club Laga ( USA)<BR>06.03.2004 BROOKLYN, NY - L`Amour ( USA) <BR>07.03.2004 PHILADELPHIA, PA - Trocadero ( USA) <BR>11.03.2004 ATLANTA, GA - Masquerade ( USA) <BR>12.03.2004 TAMPA, FL - Masquerade ( USA) <BR>13.03.2004 FT. LAUDERDALE, FL - Culture Room ( USA) <BR>30.03.2004 OSNABR&Uuml;CK - Hyde Park ( D) <BR>31.03.2004 ESSEN - Zeche Carl ( D) <BR>01.04.2004 BERLIN - Halford ( D) <BR>02.04.2004 PRAHA - Abaton Club ( CZ) <BR>03.04.2004 WIEN - Planet Music ( A) <BR>04.04.2004 WELS - Schlachthof ( A) <BR>05.04.2004 PRATTELN - Z7 ( CH) <BR>06.04.2004 MILANO - Alcatraz ( I) <BR>07.04.2004 LUDWIGSBURG - Rockfabrik ( D) <BR>08.04.2004 STRASBOURG - La Laiterie ( FR) <BR>09.04.2004 ERFURT - Centrum ( D) <BR>10.04.2004 ANTWERPEN - Hof Ter Loo ( BL) <BR>11.04.2004 PARIS - La Locomotive ( FR) <BR>12.04.2004 TILBURG - 013 ( NL) <BR>13.04.2004 LONDON - Underworld ( UK) <BR>14.04.2004 DUBLIN - Whelans ( IRL) <BR>15.04.2004 BRADFORD - Rio ( UK)
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 02.10.2004 news HYPOCRISY вновь начинают запись
+
+<P>В начале следующей недели <STRONG>HYPOCRISY</STRONG> войдут в студию для записи нового альбома. Пока не сообщается ни названия песен, ни название самой пластинки, ни дата релиза.</P>
+Автор: Vit Belov
+
+### 02.10.2004 news HYPOCRISY to ener studio
+
+<P><STRONG>HYPOCRISY</STRONG> just posted the following message on their website <A href="http://www.hypocrisy.tv/">www.hypocrisy.tv</A> : <BR>"<EM>We are pleased to announce we are entering the studio again early next month to start working on the follow up of "<STRONG>The Arrival"</STRONG>. We have no title or release date yet but we will keep you updated during the recording process</EM>."</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 20.06.2005 news HYPOCRISY закончили новый альбом
+
+<P>Новый, пока не названный, альбом<STRONG> HYPOCRISY</STRONG> выходит 5 сентября на <STRONG>Nuclear blast</STRONG>. Трэк-лист:</P>
+<P><IMG height=267 alt="" hspace=0 src="/images/news_rus/2005.06/8817.jpg" width=400 align=right border=5>1.<STRONG> Intro (not named yet)<BR></STRONG>2. <STRONG>Warpath<BR></STRONG>3. <STRONG>Scrutinized<BR></STRONG>4. <STRONG>Fearless<BR></STRONG>5. <STRONG>Craving for another killing<BR></STRONG>6. <STRONG>Let the knife do the talking<BR></STRONG>7. <STRONG>A thousand lies</STRONG><BR>8. <STRONG>Incised before I've ceased</STRONG><BR>9. <STRONG>Blooddrenched<BR></STRONG>10. <STRONG>Compulsive psychosis<BR></STRONG>11. <STRONG>Living to die</STRONG></P>
+Автор: Vit Belov
+
+### 12.08.2005 reviews Старые сказки дядюшки Питера
+
+<P>Юбилейный, десятый альбом монстров шведского death metal не стал для меня откровением ни на каплю. Все что я ожидал услышать, я и услышал. Ни одного неожиданного или нового хода. После экспериментального "Into The Abyss" музыканты выпускают уже третий альбом, записанный как будто под кальку с их эпохального одноименного творения 1999 года. Только песни меняются, но стандарты все те же, даже структура альбома остается прежней: скоростные,&nbsp;тяжелые, но мелодичные боевики чередуются со среднетемповыми и медленными заdoomчивыми композициями, более мелодичными,&nbsp;с редким использованием чистого вокала.&nbsp;Вот чего не отнять, так это то, что&nbsp;Питеру Тагтгрену всегда удается придумывать ну настолько хитовые новые вещи, что вся критика сходит на нет. Такое не может надоесть, даже при постоянных повторениях от альбома к альбому. Кажется, что он уже вдоволь наэкспериментировался и&nbsp;нашел идеальный рецепт приготовления нового альбома HYPOCRISY, постоянно вставляя в новое творение куски в духе всех предыдущих работ коллектива. Все песни просто совершенны, безошибочно записаны и потрясающе аранжированы. Придраться просто ни к чему. Продукция высочайшего качества. Заключительная "Living To Die" просто сказочно хороша. Одно могу гарантировать точно: неважно впервые вы слышите группу или уже давний ее поклонник, разочарованы вы вряд ли будете. Первые, для большей ясности&nbsp;могут почитать рецензии на предыдущие альбомы HYPOCRISY, вторым вряд ли нужно говорить еще чего-либо...</P>
+Автор: Dimas
+
+### 07.11.2005 news EXODUS и HYPOCRISY выступят в Латвии и Эстонии
+
+<P><STRONG>EXODUS </STRONG>и <STRONG>HYPOCRISY</STRONG> дадут совместные концерты в&nbsp;Таллине и Риге соответственно 25 и 26 ноября.</P>
+Автор: Vit Belov
+
+### 26.01.2006 news Peter Tagtgren сочинил песню для Liv Kristine
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песня "<STRONG>This Is Us</STRONG>" с нового сольного альбома <STRONG>Liv Kristine "Fake A Smile"</STRONG> бывла сочинена <STRONG>Peter Tagtgren (PAIN, HYPOCRISY</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 26.02.2006 news DECAPITATED выступят на Metal Camp Festival
+
+<P>Польские мастера дэт-метала <B>DECAPITATED</B>&nbsp;выступят 22 июля на фестивале <B>Metal Camp Festival</B>, который пройдет в Словении, в городе Толмин, с 21 по 23 июля. Об участии в этом музыкальном празднике также заявили такие монстры, как <B>DIMMU BORGIR, SAXON, TESTAMENT, AMON AMARTH, MY DYING BRIDE, HYPOCRISY, EDGUY, GOREFEST</B>.</P>
+<P>Подробности смотрите на: <A href="http://www.metalcamp.com/"><U>http://www.metalcamp.com/</U></A></P>
+Автор: Ixtiandr
+
+### 06.03.2006 news DEICIDE выступят на фесте Nummirock
+
+<P>Сатанисты <B>DEICIDE</B> объявили об участии в 20-ом по счету фестивале <B>Nummirock</B>, который пройдет 23 и 24 июня в городке Нуммиярви, Финляндия. Также перед публикой выступят такие исполнители, как <B>HYPOCRISY</B>, <B>MARDUK</B>, <B>THE DUSKFALL</B>, <B>DIABLO</B>, <B>AMORPHIS</B>, и менее известные коллективы, окончательный список которых еще уточняется.</P>
+<P>Подробности ищите на сайте <A href="http://www.nummirock.fi/2006/">http://www.nummirock.fi/2006/</A></P>
+Автор: Ixtiandr
+
+### 06.09.2006 news HYPOCRISY лишились гитариста
+
+<P>Гитарист <STRONG>HYPOCRISY</STRONG> <B>Andreas Holma</B> покинул известный шведский коллектив, как следует из сообщения на официальном сайте группы. <B>Holma</B> объяснил свой уход тем, что больше не испытывает никакого интереса к подобной музыке и устал от бесконечных туров. Он решил сконцентрироваться на своем собственном новом проекте. В ближайшее время, <B>HYPOCRISY</B> планирует воспользоваться сессионными услугами гитариста <B>DARKANE</B> <B>Klas Ideberg.</B><BR></P>
+Автор: Dimas
+
+### 03.01.2008 news HYPOCRISY перемикшируют &quot;Catch 22&quot;
+
+<P><STRONG>HYPOCRISY </STRONG>пересводят свой альбом 2002 года "<STRONG>Catch 22</STRONG>". Также лидер группы <STRONG>Peter Tagtgren</STRONG> перезапишет вокал в некоторых местах. Своё странное решение музыканты объясняют тем, что "<STRONG>Catch 22</STRONG>" остался недопонятым многими, из-за звука барабанов и вокала. Также <STRONG>HYPOCRISY</STRONG> работают над материалом для новой пластинки.</P>
+Автор: Vit Belov
+
+### 29.12.2008 news Peter Tagtgren: &quot;13 песен готово&quot;.
+
+<P>Лидер<STRONG> PAIN</STRONG> и <STRONG>HYPOCRISY Peter Tag</STRONG>tgren сообщил о процессе&nbsp;сочинения материала для&nbsp;нового альбома <STRONG>HYPOCRISY</STRONG>:</P>
+<P>"<EM>Mikael Hedlund (басист HYPOCRISY) и я поработали в Abyss Studio и сочинили 13 новых песен для будущего альбома HYPOCRISY. Наш барабанщик Horgh войдёт в студию в январе и начнёт запись</EM>".</P>
+Автор: Vit Belov
+
+### 22.04.2009 news HYPOCRISY теперь в конце года
+
+<P>Из-за занятости <STRONG>Peter Tagtgren</STRONG> в турах <STRONG>PAIN</STRONG>, релиз нового альбома <STRONG>HYPOCRISY</STRONG> перенесён на конец года. Именно <STRONG>Peter</STRONG> необходимо записать вокалы ещё для 10 песен, чтобы отправить альбом на сведение.</P>
+Автор: Vit Belov
+
+### 17.07.2009 news HYPOCRISY назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>HYPOCRISY</STRONG> назвали новый альбом <STRONG>"A Taste Of Extreme Divinity". </STRONG>Пластинка выйдет 23 октября на<STRONG> Nuclear Blast</STRONG></FONT></P>
+<P><center><IMG height=400 src="/images/news_rus/2009.07/14601.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 05.08.2009 news Трэк-лист нового HYPOCRISY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.08/14770.jpg" width=400 align=right border=5>Новый альбом <STRONG>HYPOCRISY</STRONG> <STRONG>"A Taste Of Extreme Divinity" </STRONG>выйдет 23 октября на <STRONG>Nuclear Blast</STRONG>. Стал известен трэк-лист этой пластинки:</FONT></P>
+<P>01. <B>Valley Of The Damned</B><BR>02. <B>Hang Him High</B><BR>03. <B>Solar Empire</B><BR>04. <B>Weed Out The Week</B><BR>05. <B>No Tomorrow</B><BR>06. <B>Global Domination</B><BR>07. <B>Taste The Extreme Divinity</B><BR>08. <B>Alive</B><BR>09. <B>The Quest</B><BR>10. <B>Tamed "Filled With Fear"</B><BR>11. <B>Sky Is Falling Down</B></P>
+Автор: Vit Belov
+
+### 14.10.2009 news Новая песня HYPOCRISY
+
+<P>Новую песню <STRONG>HYPOCRISY</STRONG> <STRONG>"Hang Him High"</STRONG> можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/hypocrisy">http://www.myspace.com/hypocrisy</A></P>
+Автор: Vit Belov
+
+### 15.10.2009 news Alexi Laiho присоединился к HYPOCRISY
+
+Гитарист<STRONG> CHILDREN OF BODOM Alexi Laiho</STRONG> занял вакантное место в составе <STRONG>HYPOCRISY</STRONG> и поедет в тур по США в качестве сессионного музыканта. 
+Автор: Vit Belov
+
+### 06.11.2009 reviews Похож ли HYPOCRISY на PAIN?
+
+<P>В своём недавнем интервью лидер HYPOCRISY Peter Tagtgren сказал, что рад прощению от фэнов группы за коммерческий успех PAIN. Естественно Peter незачем извиняться, ведь с некоторых пор альбомы HYPOCRISY отличаются от альбомов PAIN только звуком и вокалом.</P>
+<P>Это лишь красивое преувеличение, но определённая мысль в подобном утверждении присутствует. Предыдущая пластинка HYPOCRISY “Virus”, вышедшая в 2005 году, поражала своей мелодичностью. Если раньше в музыке этой шведской death-metal группы хватало места и серьёзности, то теперь от неё не осталось и следа. И в этом есть основной признак PAIN в HYPOCRISY. В своём популярном сайд-проекте Peter тоже не оставляет места ни для чего кроме танцев и запоминающейся мелодии. В остальном HYPOCRISY – это HYPOCRISY, поздний HYPOCRISY. И мы любим его!!! Быстрые низкочастотные боевики, которые поражают своим ненавязчивым мелодизмом. Шведский death-metal в лучшем своём варианте.</P>
+<P>Не подумайте, что мне не понравился «A Taste Of Extreme Divinity». Это очень хороший альбом. Популярный death-metal, каким он должен быть. Утробный вокал, чёткий ритм и тяжёлая реализация.</P>
+Автор: Vit Belov
+
+### 11.11.2009 news HYPOCRISY продали не много
+
+<P>Новый альбом <STRONG>HYPOCRISY</STRONG> <STRONG>"A Taste Of Extreme Divinity" </STRONG>продался в Штатах в количестве 1400 копий, что не позволило ему попасть в чарты.</P>
+Автор: Vit Belov
+
+### 18.11.2009 news HYPOCRISY отменили тур по США
+
+<P>Тур <STRONG>HYPOCRISY </STRONG>по США отменён. Главной причиной этого стало неполучение визы одним из музыкантов. </P>
+<P>Напомним в этом туре с группой должен был выступать гитарист <STRONG>CHILDREN OF BODOM Alexi Laiho</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.04.2010 news Видео-клип HYPOCRISY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик <STRONG>HYPOCRISY</STRONG> на песню <STRONG>Weed Out The Weak" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/BxEim1Li6ZY&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/BxEim1Li6ZY&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.08.2011 news Новое DVD HYPOCRISY
+
+<P><STRONG>HYPOCRISY</STRONG> выпускают 14 октября на<STRONG> Nuclear Blast</STRONG> свой новый DVD <STRONG>"Hell Over Sofia - 20 Years Of Chaos And Confusion". </STRONG>На диск попадёт концерт, снятый в столице Болгарии 27 февраля прошлого года. На издание также попадёт полуторачасовой фильм об истории шведской группы. Сет-лист:</P>
+<P>01. <B>Valley Of The Damned</B><BR>02. <B>Hang Him High</B> <BR>03. <B>Fractured Millennium</B> <BR>04. <B>Adjusting The Sun</B> <BR>05. <B>Eraser</B> <BR>06. <B>Pleasures of Molestation</B> / <B>Osculum Obscenum</B> / <B>Penetralia</B> <BR>07. <B>Apocalypse</B> / <B>The Fourth Dimension</B> <BR>08. <B>Killing Art</B> <BR>09. <B>A Coming Race</B> <BR>10. <B>Let The Knife Do The Talking</B> <BR>11. <B>Weed Out The Weak</B> <BR>12. <B>Fire In The Sky</B> <BR>Encore:<BR>13. <B>The Final Chapter</B> <BR>14. <B>Warpath</B> <BR>Encore 2:<BR>15. <B>Roswell 47</B></P>
+<P>Любительское&nbsp; видео с этого концерта смотрите ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/8Z_sht7ry3I&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/8Z_sht7ry3I&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.04.2012 news HYPOCRISY войдут в студию
+
+<P>Шведы <STRONG>HYPOCRISY</STRONG> работают над материалом для нового альбома. Группа войдёт в студию осенью для записи тринадцатого релиза. Альбом выйдет в начале 2013 года. </P>
+<P><center><IMG height=300 src="/images/news_rus/2012.04/23465.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 26.01.2013 news HYPOCRISY: трек-лист и обложка альбома &quot;End Of Disclosure&quot;
+
+<P>Легендарная шведская&nbsp;&nbsp;death металлическая формация <STRONG>HYPOCRISY</STRONG> опубликовала обложку и трек-лист грядущего альбома, получившего название&nbsp;<STRONG>"End Of Disclosure"</STRONG>!</P>
+<P><STRONG>"End Of Disclosure"</STRONG>&nbsp;был спродюсирован лидером <STRONG>HYPOCRISY</STRONG>,&nbsp;Питером Тагтгреном,&nbsp;в&nbsp;&nbsp;<STRONG>Abyss Studio</STRONG>.</P>
+<P>Автор обложки -&nbsp;<STRONG>Wes Benscoter</STRONG> (<A href="http://www.wesbenscoter.com">www.wesbenscoter.com</A>).</P>
+<P>Дата выхода диска назначена на 22 марта 2013 на лейбле <STRONG>Nuclear Blast</STRONG>.</P>
+<P>Трек-лист: 01. <STRONG>End Of Disclosure</STRONG> | 02. <STRONG>Tales Of Thy Spineless </STRONG>| 03. <STRONG>The Eye </STRONG>| 04. <STRONG>United We Fall </STRONG>| 05. <STRONG>44 Double Zero </STRONG>| 06. <STRONG>Hell Is Where I Stay </STRONG>| 07. <STRONG>Soldier Of Fortune </STRONG>| 08. <STRONG>When Death Calls </STRONG>| 09. <STRONG>The Return</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.01/25368.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.08.2013 news HYPOCRISY выпустили 7&quot; с каверами
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Nuclear Blast</STRONG> выпустил семидюймовку <STRONG>HYPOCRISY</STRONG> под названием <STRONG>"Too Drunk To Fuck"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На стороне "A" диска можно найти кавер версию&nbsp;вечно зелёного&nbsp;хита <STRONG>DEAD KENNEDY'S "Too Drunk To Fuck"</STRONG>, тогда как сторона "B" содержит переделку песни шотландцев <STRONG>THE EXPLOITED</STRONG> - трек <STRONG>"They Lie"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Винил доступен в трёх цветовых вариантах - белом, ядовито-зелёном и розовом. Два последних были выпущены в количестве&nbsp;250 экземпляров и&nbsp;доступны для покупки только на сайте интернет магазина <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2013.08/26017.jpg" width=569 height=362></P>
+Автор: Headcrusher
+
+### 08.01.2015 news Вокалист RAMMSTEIN объединился с лидером PAIN
+
+<P>Вокалист<STRONG> RAMMSTEIN Til Lindemann</STRONG> объединился с лидером <STRONG>PAIN/HYPOCRISY Peter Tagtgren</STRONG> для&nbsp;работы над своим сольным проектом, который получил название<STRONG> LINDEMANN</STRONG>. Подробности последуют на странице Facebook: <A href="https://www.facebook.com/Lindemann">https://www.facebook.com/Lindemann</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.01/27520.png" width=645 height=363> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.03.2015 news Новые подробости проекта LINDEMANN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Проект <STRONG>LINDEMANN</STRONG>, в который входят <STRONG>Peter Tagtgren</STRONG> (<STRONG>PAIN</STRONG>, <STRONG>HYPOCRISY</STRONG>)&nbsp;и <STRONG>Till Lindemann</STRONG> (<STRONG>RAMMSTEIN</STRONG>), опубликовал обложку и трек-лист грядущего дебютного альбома, который получил название <STRONG>"Skills In Pills"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложка и название некоторых композиций выглядят многообещающе - вот самые красноречивые из них:&nbsp;"Жир", "Золотой Душ", "Трансвестит".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выход диска запланирован на май этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. <STRONG>Skills In Pills</STRONG> | 2. <STRONG>Ladyboy</STRONG> | 3. <STRONG>Fat</STRONG> | 4. <STRONG>Fish On</STRONG> | 5. <STRONG>Children Of The Sun</STRONG> | 6. <STRONG>Home Sweet Home</STRONG> | 7. <STRONG>Cowboy</STRONG> | 8.<STRONG> Golden Shower</STRONG> | 9. <STRONG>Yukon</STRONG> | 10. <STRONG>Praise Abort</STRONG></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2015.03/27705.jpg" width=500 height=500></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Страстно желаю Hypocrisy'1999 !!!

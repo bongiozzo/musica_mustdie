@@ -133,6 +133,74 @@ Joe Ptacek - Esophagus
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.1999 news 
+
+<p>Pantera записала кавер на песню Black Sabbath "Electric Funeral". Песня войдёт на tribute to Black Sabbath "Nativity In Black II". В свою очередь записывается tribute to Pantera, на котором появятся Pissing Razors, Broken Hope и другие малоизвестные команды. CD выйдет в декабре.</p>
+
+Автор: Vit Belov
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 22.01.2010 news Joe Ptacek (01.05.1972 - 20.01.2010)
+
+<P><STRONG>Joe Ptacek</STRONG>, вокалист давно несуществующей группы<STRONG> BROKEN HOPE</STRONG>, умер в среду, 20 января. <STRONG>Joe</STRONG> покончил жизнь самоубийством, выстрелив себе в голову из огнестрельного оружия. Ему было 37 лет. Группа планировала воссоединиться в 2010 и готовилась к репетициям с новым барабанщиком.</P>
+<P>
+<CENTER><IMG height=400 alt="" hspace=100 src="/images/news_rus/2010.01/16025.jpg" width=309 border=0> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.08.2013 news BROKEN HOPE выпустят свой шестой студийный альбом &quot;Omen Of Disease&quot; в октябре
+
+<P>Реформированные чикагские death металлисты <STRONG>BROKEN HOPE</STRONG> выпустят свой шестой студийный альбом <STRONG>"Omen Of Disease"</STRONG> в октябре этого года&nbsp;на&nbsp;<STRONG>Century Media Records</STRONG>. Барабаны для диска были записаны в студии <STRONG>Belle City Sound</STRONG> города Racine с помощью инженера Криса Виско (<STRONG>Chris Wisco</STRONG>,<STRONG> LAZARUS A.D.</STRONG>, <STRONG>JUNGLE ROT</STRONG>, <STRONG>ORIGIN</STRONG>, <STRONG>GORGASM</STRONG>), а все остальные инструменты - в&nbsp; <STRONG>Mercenary Digital Studios</STRONG>&nbsp;города Zion со звукорежиссёром Скоттом Крикмором (<STRONG>Scott Creekmore</STRONG>, <STRONG>DIRGE WITHIN</STRONG>, <STRONG>PUTRID PILE</STRONG>, <STRONG>LIVIDITY</STRONG>).</P>
+<P>В качестве специального гостя в записи альбома&nbsp;<STRONG>"Omen Of Disease"</STRONG> принял участие вокалист <STRONG>Trevor Strnad</STRONG> (<STRONG>THE BLACK DAHLIA MURDER</STRONG>). Его можно будет услышать на треке&nbsp;<STRONG>"Rendered Into Lard"</STRONG>. Обложка для <STRONG>"Omen Of Disease"</STRONG> была создана&nbsp;художником по имени&nbsp;<STRONG>Wes Benscoter</STRONG> (<A href="http://www.wesbenscoter.com/">www.wesbenscoter.com</A>).</P>
+<P>Комментирует гитарист <STRONG>BROKEN HOPE</STRONG> Джереми Вагнер (<STRONG>Jeremy Wagner</STRONG>): <EM>"<STRONG>Wes Benscoter</STRONG> - один из моих любимых художников. По моему мнению, он стоит в одном ряду с такими именами, как <STRONG>Frank Frazetta</STRONG>, <STRONG>Michael Whelan</STRONG> и <STRONG>Todd Schorr</STRONG>.</EM></P>
+<P><EM>"С того самого&nbsp;момента, как <STRONG>Benscoter</STRONG> нарисовал для нас обложки к альбомом <STRONG>'Repulsive Conception'</STRONG> и <STRONG>'Loathing'</STRONG>, я хотел работать с ним снова. Я был более чем взволнован, когда <STRONG>Benscoter</STRONG> согласился взяться за обложку для<STRONG> 'Omen Of Disease'</STRONG>... и он сделал всё в лучшем виде!&nbsp;Ему удалось запечатлеть мерзкую сущность, гнилую атмосферу и апокалиптическую, полную болезней&nbsp;сущность <STRONG>'Omen Of Disease'</STRONG>.</EM></P>
+<P><EM>"Спасибо за создание ещё одного шедевра, <STRONG>Wes Benscoter</STRONG>."</EM></P>
+<P>Для сведения и мастеринга альбома, группа воспользовалась услугами&nbsp;Джеймса&nbsp;Мёрфи (<STRONG>James Murphy</STRONG>, <STRONG>DEATH</STRONG>, <STRONG>OBITUARY</STRONG>, <STRONG>TESTAMENT</STRONG>). </P>
+<P>Как известно, 20 января 2010 года оригинальный вокалист <STRONG>BROKEN HOPE</STRONG> Джо Пташек (<STRONG>Joe Ptacek</STRONG>) покончил жизнь самоубийством. Ему было всего 37 лет. Незадолго до трагедии <STRONG>Ptacek</STRONG> встречался с Вагнером и с Шоном Глассом (<STRONG>Shaun Glass</STRONG>, бас-гитара)&nbsp;и обсуждал возможность возрождения <STRONG>BROKEN HOPE</STRONG> (на тот момент группа не существовала почти 9 лет).&nbsp;После смерти&nbsp;Пташека, <STRONG>Wagner</STRONG> и <STRONG>Glass</STRONG> взяли время, чтобы определиться с тем, что делать дальше.</P>
+<P>В&nbsp;2012 году&nbsp;<STRONG>BROKEN HOPE</STRONG> подписали контракт с концертным агенством <STRONG>Hard Impact Management</STRONG> и пообещали, что группа станет постоянно действующим монстром.&nbsp;Для этих целей <STRONG>Wagner</STRONG> и <STRONG>Glass</STRONG> рекрутировали своего давнего друга и&nbsp;вокалиста Дэмиана Лески (<STRONG>Damian Leski</STRONG>) из группы&nbsp;<STRONG>GORGASM</STRONG>.</P>
+<P>Состав <STRONG>BROKEN HOPE</STRONG> в 2013 году&nbsp;выглядит следующим образом:</P>
+<P><STRONG>Damian Leski</STRONG> - вокал | <STRONG>Jeremy Wagner</STRONG> - гитара | <STRONG>Shaun Glass</STRONG> - бас | <STRONG>Chuck Wepfer</STRONG> - соло-гитара | <STRONG>Mike Miczek</STRONG> - барабаны.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26011.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 19.08.2016 news BROKEN HOPE назвали альбом
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">В интервью <strong>Decibel Magazine</strong>, чей новый номер выйдет 1 сентября, <strong>BROKEN HOPE</strong> раскрыли название нового альбома "<strong>Mutilated & Assimilated</strong>". Также группа заявила, что в записи использовала гитары покойного гитариста SLAYER Jeff Hanneman, приобретённые после его смерти.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности об альбоме последуют.</font></p><p><center><img width="500" height="315" src="/images/news_rus/2016.08/29830.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 19.08.2016 news BROKEN HOPE reveal new album title via Decibel Magazine!
+
+<p>It's official! <strong>BROKEN HOPE</strong>'s new album title, “<strong>Mutilated & Assimilated</strong>” has been revealed in the October 2016 issue of<strong> Decibel Magazine</strong> which will be hitting stands on September 1st!&nbsp;&nbsp; </p><p>“Mutilated & Assimilated” is the anticipated follow up to BROKEN HOPE's critically acclaimed release, “Omen Of Disease”. The new album possesses an extra-special touch as ALL of Jeremy Wagner's and Damian Leski's rhythm guitar tracks feature the boys using ONLY the original JEFF HANNEMAN guitars Wagner acquired from Hanneman's estate last year.</p><p>"<em>These famous axes have already inspired and channeled many of the riffs I wrote for the next full-length</em>." explains Jeremy.</p><p>You can read more on that story at:<br><a href="http://www.guitarworld.com/news-gear-galleries/late-slayer-guitarist-jeff-hanneman%E2%80%99s-guitars-purchased-broken-hopes-jeremy">http://www.guitarworld.com/news-gear-galleries/late-slayer-guitarist-jeff-hanneman%E2%80%99s-guitars-purchased-broken-hopes-jeremy</a></p><p><center><img width="500" height="315" src="/images/news_rus/2016.08/29830.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -22,6 +22,35 @@
 * C группой "Council of the Fallen" Tim Yeung (drums)
 * C группой "World Under Blood" Risha Eryavec (bass)
 
+## Публикации
+
+### 19.05.2007 news Dino Cazares на Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая группа одного из основателей <STRONG>FEAR FACTORY Dino Cazares DIVINE HERESY</STRONG> подписала контракт с <STRONG>Roadrunner</STRONG>. <STRONG>"Bleed The Filth"</STRONG> - первая работа <STRONG>Dino</STRONG> в металле за пять лет. В группу так же войдут барабанщик <STRONG>VITAL REMAINS Tim Yeung</STRONG> и вокалист-дебютант <STRONG>Tommy Vext</STRONG>. Пластинка выйдет в августе, но послушать новые трэки можно здесь: <A href="http://www.myspace.com/divineheresyband">http://www.myspace.com/divineheresyband</A></FONT></P>
+Автор: Vit Belov
+
+### 03.07.2009 news DIVINE HERESY приносят чуму
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=360 alt="" hspace=5 src="/images/news_rus/2009.07/14390.jpg" width=360 align=right vspace=5 border=0>Основанная в Калифорнии группа <STRONG>DIVINE HERESY</STRONG> под руководством <STRONG>Dino Cazares</STRONG> (<STRONG>ASESINO</STRONG>, <STRONG>FEAR</STRONG> <STRONG>FACTORY</STRONG>, <STRONG>BRUJERIA</STRONG>) выпускает второй альбом. Диск <STRONG>"Bringer of Plagues"</STRONG> увидит свет в Северной Америке 28 июля на лейбле<STRONG> Century Media</STRONG>.</FONT></P>
+<P>Трек-лист альбом:</P>
+<P>01. <STRONG>Facebreaker</STRONG><BR>02. <STRONG>The Battle of J. Casey</STRONG><BR>03. <STRONG>Undivine Prophecies</STRONG> (Intro)<BR>04. <STRONG>Bringer of Plagues<BR></STRONG>05. <STRONG>Redefine<BR></STRONG>06. <STRONG>Anarchaos</STRONG><BR>07. <STRONG>Monolithic Doomsday Devices</STRONG><BR>08. <STRONG>Letter to Mother</STRONG><BR>09. <STRONG>Enemy Kill</STRONG><BR>10. <STRONG>Darkness Embedded</STRONG><BR>11. <STRONG>The End Begins</STRONG><BR>12. <STRONG>Forever the Failure</STRONG></P>
+<P>Песню <STRONG>"Face Breaker"</STRONG> можно послушать на Myspace-странице группы: <A href="http://www.myspace.com/divineheresyband">http://www.myspace.com/divineheresyband</A></P>
+<P>Альбом был записан в составе:</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Dino Cazares</STRONG> - гитара</FONT></P>
+<P><STRONG>Tim Yeung</STRONG> (ex-<STRONG>NILE</STRONG>, <STRONG>VITAL REMAINS</STRONG>) - ударные</P>
+<P><STRONG>Joe Payne</STRONG> (ex-<STRONG>NILE</STRONG>) - бас</P>
+<P><STRONG>Travis Neal</STRONG> (ex-<STRONG>THE BEREAVED</STRONG>, <STRONG>PUSHED</STRONG>) - вокал</P>
+<P>За звук на <FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000"><STRONG>"Bringer of Plagues"</STRONG>&nbsp;</FONT></FONT> ответственна продюсерская команда <STRONG>Dirty Icon</STRONG> (<STRONG>Logan Mader</STRONG> и <STRONG>Lucas Banker</STRONG>), работавшая над дисками <STRONG>CAVALERA CONSPIRACY</STRONG>, <STRONG>GOJIRA</STRONG>, <STRONG>FIVE FINGER DEATH PUNCH</STRONG>.</P>
+Автор: Headcrusher
+
+### 08.10.2009 reviews Подарок всем любителям тяжёлой музыки
+
+<P>Знаете, никого не хочется обижать, но… Последние несколько альбомов, которые я рецензировал, принадлежали «перу» отечественных коллективов. Почти в каждой пластинке было на что обратить своё внимание, но некоторые работы вызывали откровенную скуку. Второй альбом группы знаменитого гитариста Dino Cazares (FEAR FACTORY, BRUJERIA) DIVINE HERESY не поразил моего воображения, но как было приятно послушать профессионально записанный и качественный альбом.</P>
+<P>DIVINE HERESY представляют современный вариант металла. Здесь нет чего-то оригинального, замороченного и прогрессивного. Просто ребята играют ту музыку, которая сейчас популярна, выполняя свою работу качественно и профессионально. «Качовый» ритм, мощный вокал, даже чистый вариант которого совсем не раздражает, мрачное низкое «индустриальное» звучание. Удовольствие от этой работы любители современного тяжеляка получат. </P>
+<P>Нельзя сказать, что “Bringer Of Plagues” шедевр. Но никто здесь и не ставил себе целью выполнить шедевр, DH записали альбом, как подарок всем любителям тяжёлой музыки.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

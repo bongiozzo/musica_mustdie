@@ -33,6 +33,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.11.2011 news Шведский death-metal жив
+
+<P><IMG height=250 alt="" hspace=0 src="/images/shows_rus/2011.11/22168.jpg" width=250 align=right border=0>В апреле 2011 года на американском лэйбле <STRONG>Nucler War Now! Productions </STRONG>вышел второй альбом шведской команды<STRONG> VANHELGD "Church Of Death"</STRONG>. Коллектив представляет материал в духе древних шведских команд, породивших отдельное направление в death-metal. Трек-лист:</P>
+<P>1. <STRONG>Kolsvarta Skyar</STRONG>&nbsp; <BR>2. <STRONG>Mдnsklighetens Finala Ruin</STRONG>&nbsp; <BR>3. <STRONG>Nec Spe, Nec Metu&nbsp; <BR></STRONG>4. <STRONG>Point of No Return</STRONG>&nbsp; <BR>5. <STRONG>Church of Death&nbsp; <BR></STRONG>6. <STRONG>The Final Storm</STRONG>&nbsp; <BR>7. <STRONG>Saepius in Auro Bibitur Venenum</STRONG>&nbsp; <BR>8. <STRONG>Total Apokalyps</STRONG>&nbsp; <BR>9. <STRONG>Alone With the Dead</STRONG></P>
+<P><STRONG>MySpace: <A href="http://www.myspace.com/vanhelgd">http://www.myspace.com/vanhelgd</A></STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

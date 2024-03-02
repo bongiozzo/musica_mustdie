@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.10.2016 news Новый видео-клип ALL HELL
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый ролик black thrash metal&nbsp;команды <strong>ALL HELL "Graveyard Dust"</strong> можно посмотреть ниже. Трек взят с второго альбома "<strong>The Red&nbsp;Sect</strong>", который будет переиздан на виниле<strong> Prosthetic Records</strong>.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/WwNmMsJgZ9I" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.10.2016 news New clip of ALL HELL
+
+<p>New video of black thrash metal band <strong>ALL HELL</strong>, "<strong>Graveyard Dust</strong>" can be viewed below. The track is taken from their second album<strong> "The Red Sect</strong>", which will be reissued on vinyl via <strong>Prosthetic Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/WwNmMsJgZ9I" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

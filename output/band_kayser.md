@@ -37,6 +37,26 @@ thrash-metal
 
 * C группой "Spiritual Beggars" Spice (Vocal, Bass)
 
+## Публикации
+
+### 28.12.2011 news KAYSER вернулись
+
+<P>Шведские трешеры <STRONG>KAYSER</STRONG>, в составе которых находится бывший вокалист <STRONG>SPIRITUAL BEGGARS Spice</STRONG>, вернулись к активной творческой деятельности. Группа сочиняет материал для нового альбома и ищет новый лэйбл.</P>
+<P>Первые две работы <STRONG>KAYSER</STRONG> вышли на <STRONG>Scarlet Records</STRONG>.</P>
+<P><center><IMG height=283 src="/images/news_rus/2011.12/22399.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 23.09.2016 news Новый клип KAYSER
+
+<p>Новый ролик <strong>KAYSER</strong> на песню "<strong>Through The Darkness</strong>" можно посмотреть ниже. Новый альбом "<strong>IV: Beyond The Reef Of Sanity</strong>" выходит сегодня на <strong>Listenable Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d0V-KhMTkoA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 23.09.2016 news KAYSER release new video and new album today
+
+<strong>KAYSER </strong>new video for the song <strong>"Through The Darkness</strong>" can be viewed below. New album "<strong>IV: Beyond The Reef Of Sanity</strong>" is out today via <strong>Listenable Records</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/d0V-KhMTkoA" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -38,6 +38,19 @@ No Vocal Effects Are Used On This Album.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.09.2016 news KILLING ADDICTION выпускают мини-альбом
+
+<p>Новый альбом американских ветеранов death metal <strong>KILLING ADDICTION "Shores Of Oblivion"</strong> выйдет в октябре на <strong>Xtreem Music</strong>.&nbsp;На релиз войдут четыре новых трека:</p><p>1. Engine of Ruin<br>2. Cult of Decay<br>3. Extinction Agenda<br>4. Into Shadow</p><p>Также сообщается, что в 2017 году будет переиздан классический дебют музыкант 1993 года выпуска "<strong>Omega Factor</strong>". Ниже можно послушать одну из новых вещей американцев "<strong>Engine Of Ruin</strong>".</p><p>&nbsp;</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/DJM_aamMHWc" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 07.09.2016 news New EP by KILLING ADDICTION
+
+<p>The legendary Death Metal band from Florida <strong>KILLING ADDICTION</strong> are ready to release a new 4-song EP under the title of "<strong>Shores of Oblivion</strong>" through <strong>Xtreem Music</strong> next month of October.</p><p>After their 2010 EP "<strong>Fall of the Archetypes</strong>" and the 7"EP "<strong>When Death Becomes an Art</strong>" from 2014, KILLING ADDICTION is back with 4 brilliant tunes that clearly gets back to their classic debut album from '93 "<strong>Omega Factor</strong>" (that will be re-issued through Xtreem Music in 2017) where some CARCASS influences were masterly blended with heavy and brutal US Death Metal creating a very personal sound.</p><p>Tracklist for "Shores of Oblivion" is as follows:</p><p>1. Engine of Ruin<br>2. Cult of Decay<br>3. Extinction Agenda<br>4. Into Shadow</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/DJM_aamMHWc" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

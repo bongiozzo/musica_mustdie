@@ -75,6 +75,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.07.2011 news Видео-клип STONELAKE
+
+<P>Шведские металисты <STRONG>STONELAKE</STRONG> опубликовали новый видео-клип на песню ‘<STRONG>Red Canyon’</STRONG>. Песня попала на новый альбом коллектива "<STRONG>Marching On Timeless Tales</STRONG>", который выходит сегодня на <STRONG>Massacre Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/c0hRWEp5qiI?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/c0hRWEp5qiI?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

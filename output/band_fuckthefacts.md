@@ -12,6 +12,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.11.2011 news FUCK THE FACTS: клип &#39;&#39;A Coward&#39;s Existence&#39;&#39; 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Безумные конадцы <STRONG>FUCK THE FACTS</STRONG> во главе с вокалисткой <STRONG>Mel Mongeon</STRONG>, порадовали своих фанатов клипом на трек <STRONG>''A</STRONG> <STRONG>Coward's Existence''</STRONG>. Песня вошла на новый полноформатник коллектива <STRONG>"Die Miserable"</STRONG>, который вышел в октябре на лейбле <STRONG>Relapse</STRONG>.</FONT></P>
+<CENTER>
+<OBJECT width=450 height=370>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=3f2ab48d013434d3ad4f" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

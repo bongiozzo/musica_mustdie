@@ -22,6 +22,9 @@ Art direction and media by Arthuro Vargas & Sickness Graphics.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

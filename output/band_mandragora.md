@@ -32,6 +32,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2011 news MANDRAGORA на SG Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.12/22350.jpg" width=400 align=right border=0>Литовская melodic death-metal формация <STRONG>MANDRAGORA</STRONG> заключила контракт с лэйблом <STRONG>SG Records</STRONG>. Второй альбом коллектива "<STRONG>Carnal Cage</STRONG>" выйдет в начале 2012 года. На счету группы концерты в компании <STRONG>BENEDICTION, SKYFORGER</STRONG> и <STRONG>SUSPERIA</STRONG>, а также победа в конкурсе <STRONG>Metal Battle Contest</STRONG> и участие в фестивале <STRONG>Wacken</STRONG> 2008 года. Трек-лист:</FONT></P>
+<P>1. <STRONG>Masquerade&nbsp; </STRONG><BR>2. <STRONG>In Doubt</STRONG>&nbsp; <BR>3. <STRONG>Desolated Fields</STRONG>&nbsp; <BR>4. <STRONG>Unconsciousness&nbsp;</STRONG> <BR>5. <STRONG>Curse of Existence <BR></STRONG>6. <STRONG>Walk to Fall&nbsp; <BR></STRONG>7. <STRONG>The Unknown</STRONG>&nbsp; <BR>8. <STRONG>Sand and Dust</STRONG>&nbsp; <BR>9. <STRONG>After</STRONG> (instrumental)</P>
+<P><STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/pages/Mandragora/107318145804">http://www.facebook.com/pages/Mandragora/107318145804</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

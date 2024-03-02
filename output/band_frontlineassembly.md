@@ -194,6 +194,35 @@ Guitars By Devin Townsend.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 11.02.2004 reviews Вытащу на свет я синтезатор...
+
+<P>Это уже черт знает какой по счету релиз существующей с 1986 года группы Front Line Assembly, основанной&nbsp;австрийским певцом и клавишником&nbsp;Bill Leeb, после того как тот покинул культовую индастриальную банду Skinny Puppy. Современный вариант FLA - это смесь всего, что предлагает нам популярная электронная музыка, но в собственной, особой обработке: это и облегченный Rammstein (хотя те помоложе будут), и убыстренная Enigma, и отголоски древних французов&nbsp;The Rockets (если кто таких помнит). Синтипоп и индастриал в одном флаконе. Всё же думаю, что под такой музон будет приятно колбаситься и клубиться с девочками на дискотеках, но вот слушать альбом в спокойной домашней обстановке&nbsp; - во всякая случае, не для меня.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 14.07.2004 reviews Civilization- its last breath.
+
+<P>At last we have a new work of, so to say, one of the fathers of industrial and EBM styles – Front Line Assembly. It astonished me from the very-first track! As always there are the famous distorted vocals. The music became less hard (they completely stopped using electric guitars) and the apocalyptical melodies came to the front. There are several old-style-assembly tracks (shicksal & maniacal). The reunion of Leeb and Fulber gave us another masterpiece of more, so to say, ethnical & ambient industrial which can more vividly depict the pictures of our dark future…</P>
+<P>This work is a must-have for all fans of EBM, industrial and all other types of electronic music.</P>
+<P>By releasing this album F.L.A. showed us who is the master on the Olympus of electro-music!</P>
+Автор: The Blues Brothers
+
+### 26.09.2006 reviews Смертельная музыка стальных машин
+
+<P>Frontline Assembly are back again! Да, они снова с нами. Снова бьет из колонок EBM-industrial. Снова за синтезаторными и компьютерными пультами Bill Leeb, Rhys Fulber и&nbsp;Chris Peterson (а дополняет команду Jeremy Inkel). Снова вращаются стробоскопы, вырывая на долю секунды из темноты световые силуэты отрывающихся на танцполе - впрочем без каких-либо эмоций на лицах - фигур. Снова запущены стальные музыкальные машины. Снова со всех сторон нас окутывают электронные и, в какой-то степени, мрачные голоса, нашептывающие, выкрикивающие, наговаривающие, каркающие о падении цивилизации. Это музыка роботов, поработивших нашу планету. Роботов, вскрывших наши мозги, вытащивших из них навсегда нашу память и наши эмоции и вставивших туда чипы со служащей их неведомым целям программой. Мы двигаемся&nbsp;в заранее определенном направлении, мы совершаем заранее определенные движения, мы - люди только внешне, внутри же мы мало чем отличаемся от этих стальных машин. Любое отклонение от программы карается Смертью. Ты или подчинишься или умрешь. Это пляска Смерти на Арене Quake 3 (именно в этой игре отметился Bill Leeb). Вместо сердца - процессор, вместо глаз - тусклые, иногда вспыхивающие жутким цветом, светодиоды, вместо рук и ног - послушные программе протезы. Между ног ничего нет - рабы не должны размножаться и испытывать удовольствие. Это страшный конвейер бездушных существ, напоминающий нам о фильме "Стена". Вас тянет и засасывает туда, как тянули Магические кристаллы в "Темной башне" Кинга. Но выход есть: вы можете просто выключить ваш сиди-плеер. Ведь это всего-навсего новый альбом FLA "Artificial Soldier"... Добавлю, что "ассамблее" (но совершенно не ООН) помогали Jean-Luc De Meyer (Front 242) и&nbsp;Eskil Simmonson (Covenant).</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

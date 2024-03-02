@@ -12,6 +12,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.11.2003 news Ravenhurst Records signed DELUSION
+
+Ravenhurst Records are proud to announce the signing of the band Delusion, whose&nbsp;new album 'The Tragedy of Regrets' will be released to stores worldwide on November 28, 2003. The album was recorded at Highview Studios with Drew Mazurek (Gwar, Nothingface, Linkin' Park, Dog Fashion Disco, Click, Desolate Angel). Ravenhurst Records released earlier this month the Delusion - "I'll Fly" Video Presentation , containing the bands first music video from their upcoming cd release , brief bio , and behind the scenes.
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

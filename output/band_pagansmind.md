@@ -115,6 +115,36 @@ Stian Kristoffersen  Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.11.2004 reviews Поганка паганке рознь
+
+<P>Вот еще одно переиздание от Limb Music. На этот раз в центре внимания норвежские пауэр-металисты Pagan's Mind с их альбомом "Infinity Divine". Бонусами, которые потихонечку становятся нормальным явлением на лэйбле, здесь идут 'Embracing Fear 2004' и кавер на вещь King Diamond 'At The Graves'. Не самая плохая пластинка на мировой пауэрной сцене, но и отметить тут особо нечего, если только несколько&nbsp;непривычную для стиля страну происхождения. Добавив прогрессивных фишек, группа всё равно взяла за основу своей музыки германо-скандинавский пауэр, как ни крути. Меня, например, такие дела больше утомляют, чем "чистый" пауэр или он же вкупе с хэви-метал (как, к примеру, те же Primal Fear). Больше всего меня раздражает на подобных альбомах тот факт, что записано и сыграно всё прекрасно, но либо своих идей ноль целых ноль десятых (зато порой "хэлловиновости" хоть отбавляй, а на рассматриваемом диске есть еще влияния и Virgin Steele), либо есть попытки усложнить, "опрогрессиветь" свою музыку, что делает ее, как правило, невообразимо скучной и неинтересной. Данный релиз&nbsp;получше своего "коллеги" Time Machine, но всё равно более 6 баллов "Паганцам" я поставить никак не могу...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 22.03.2011 news PAGAN&#39;S MIND на SPV
+
+<P>Норвежцы <STRONG>PAGAN'S MIND</STRONG> заключили контракт с <STRONG>SPV </STRONG>на выпуск своего шестого альбома <STRONG>"Heavenly Ecstasy"</STRONG>. Пластинка увидит свет 20 мая. Сведением этой работы занимался <STRONG>Stefan Glaumann</STRONG>&nbsp;в <B>Toytown Studios</B> (<B>RAMMSTEIN</B>, <B>MADONNA</B>, <B>WITHIN TEMPTATION</B>).</P>
+<P><center><IMG height=401 src="/images/news_rus/2011.03/18919.jpg" width=394 border=0></P>
+Автор: Vit Belov
+
+### 30.04.2011 news Новый клип PAGAN&#39;S MIND
+
+<P>Видео-клип <STRONG>PAGAN'S MIND</STRONG> на песню <STRONG>"Intermission" </STRONG>можно посмотреть ниже. Песня взята с нового альбома норвежцев <STRONG>"Heavenly Ecstasy"</STRONG>, который выйдет 23 мая на <STRONG>SPV</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT type=application/x-shockwave-flash height=279 width=450 data=http://www.metalinjection.net/tv/flvplayer.swf name=thevideo>
+<a href="http://www.metalinjection.net/tv/view/6885/pagans-mind-intermission-video-premiere"><img src="http://www.metalinjection.net/tv/thumb/6885_middle_big.jpg" width="450"><br/><strong>Click Here To Watch The Video</strong></a></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.04.2011 news Новый клип PAGAN&#39;S MIND
+
+<P>Видео-клип <STRONG>PAGAN'S MIND</STRONG> на песню <STRONG>"Intermission" </STRONG>можно посмотреть ниже. Песня взята с нового альбома норвежцев <STRONG>"Heavenly Ecstasy"</STRONG>, который выйдет 23 мая на <STRONG>SPV</STRONG>.</P><center><iframe width="560" height="349" src="http://www.youtube.com/embed/gtPTlw4gSUc" frameborder="0" allowfullscreen></iframe>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

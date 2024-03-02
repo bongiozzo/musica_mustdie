@@ -73,6 +73,67 @@ Nevhelnoaste - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.12.2000 reviews Сильнейшая работа голландского коллектива
+
+<p>Сильнейшая работа голландского коллектива. Интереснейший black-metal записанный в лесах бессмертия. Немного напоминающий Dimmu Borgir и Cradle Of Filth, но довольно оригинальный. Безумно мелодичный с захватывающими гитарными проигрышами, богатой клавишной атмосферщиной и яростным скримингом. Потрясающие качество и техника. Похоже, мы имеем дело с новыми молодыми богами от black-metal. Некоторые партии ритм-гитары на альбоме записала девушка! Несмотря на то, что группа использует драм-машину вместо живого ударника это совершенно не вредит материалу. Звучание инструментов на высочайшем уровне. Скоростной мелодичный black-metal в самом его лучшем виде. Просто превосходно!</p>
+
+Автор: Dimas
+
+### 24.02.2003 reviews Божественная непристойность на закате солнца
+
+<p>Второе творение голландских музыкантов. Дебютный альбом группы был бомбой в мировом андерграунде. Он представлял собой быстрый и мелодичный black metal напоминающий DIMMU BORGIR и OLD MAN'S CHILD с интересной гитарной работой, зловещей клавишной атмосферой и яростным скримингом. Несмотря на сильную мелодику, агрессивности у этого альбома хоть отбавляй. Второй альбом группы подкрепляет успех дебютника, ничуть ему не уступая. Здесь мы слышим все то же самое, погружаясь в продолжение пройденного материала. Отсутствие новизны и свежей крови - зто самый главный минус альбома. Но в остальном, сплошные плюсы. Приятная музыка, отличное качество записи, техника на уровне, сбивки темпа и разнообразие. Этот альбом содержит все, что должно быть в законченном и состоявшемся black metal произведении. "Sunnevot" не вызывает раздражения и вы вряд ли будете разочарованы этим альбомом.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 22.09.2003 news GOAT GUTS OVER EUROPE 2003 TOUR
+
+<SPAN lang=EN-GB><B><B><SPAN lang=EN-GB>
+<P><SPAN class=SpellE><B>GOAT</B></SPAN><B><SPAN> <SPAN class=SpellE>GUTS</SPAN> OVER EUROPE 2003 TOUR</SPAN></B></P>
+<P><B></B>presented by Ledo Takas Records and Satans Millennium Concerts</P>
+
+<P>featuring:</P>
+
+<P><B>HORNA - black metal cult [finland]</B></P>
+<P><B>SALACIOUS GODS - traditional black metal [netherlands]</B></P>
+<P><B>BEHEXEN - raw thrashy black metal [finland]</B></P>
+<P><B>LOITS - melancholic northern black metal [estland]</B></P>
+
+<P>is coming!!</P>
+
+<P>it starts the route on 26th September at K17 club in Berlin, Germany and finishes up in Kabata club, Riga, Latvia on 11th October.</P>
+
+<P>here is the confirmed tour schedule:</P>
+
+<P>Friday 26th Sep: K17 club / Berlin [Germany]</P>
+<P>Saturday 27th Sep: HarzRock Caf&eacute; / Scharzfeld, near Braunschweig [Germany]</P>
+<P>Sunday 28th Sep: Zu-Ga-Be club / Vienna [Austria]</P>
+<P>Monday 29th Sep: t.b.a.</P>
+<P>Tuesday 30th Sep: t.b.a.</P>
+<P>Wednesday 1st Oct: The Frontline / Gent [Belgium]</P>
+<P>Thursday 2nd Oct: t.b.a.</P>
+<P>Friday 3th Oct: Baroeg club / Rotterdam [Netherlands]</P>
+<P>Saturday 4th Oct: Panique d'O club / Mechelen [Belgium] + HERFST</P>
+<P>Sunday 5th Oct: t.b.a. / travel day</P>
+<P>Monday 6th Oct: Dom Omladine club / Belgrad [Serbia]</P>
+<P>Tuesday 7th Oct: Metelkova club / Ljubljana [Slovenia] + WATAIN / AVERSE SEFIRA / SECRETS OF THE MOON</P>
+<P>Wednesday 8th Oct: t.b.a. / travel day</P>
+<P>Thursday 9th Oct: t.b.a. / travel day</P>
+<P>Friday 10th Oct: Vilnius [Lithuania] + DISSIMULATION</P>
+<P>Saturday 11th Oct: Kabata club / Riga [Latvia]</P>
+
+<P><B>tour organizers still search for gigs on few remaining dates, so if you think you can get anything arranged, get back in touch immediately with one of the following:</B></P>
+<P><B></B></P>
+<P><B>k.kaos@ledotakas.net</B></P>
+<P><B>+370 610 64117 [tadas]</B></P>
+<P><B></B></P>
+<P><B>scourginghermit@hotmail.com</B></P>
+<P><B>+31 062 9548597 [olaf]</B></P></SPAN></B></B></SPAN>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

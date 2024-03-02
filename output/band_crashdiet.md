@@ -52,6 +52,67 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.09.2011 news Видео-клип от CRASHDIET
+
+<P>Шведская glam-metal группа <STRONG>CRASHDIET</STRONG> опубликовала новый видео-клип на песню "<STRONG>Down With The Dust</STRONG>". Ролик был снят усилиями <STRONG>Bear Productions</STRONG>. Трек взят с прошлогоднего альбома коллектива "<STRONG>Generation Wild</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=225 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=29370886&server=vimeo.com&show_title=0&show_byline=0&show_portrait=0&color=00adef&fullscreen=1&autoplay=0&loop=0">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=29370886&server=vimeo.com&show_title=0&show_byline=0&show_portrait=0&color=00adef&fullscreen=1&autoplay=0&loop=0" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="225"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.08.2012 news CRASHDIET работают над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Глэм-шведы&nbsp;<STRONG>CRASHDIET</STRONG>&nbsp;приступили к работе над новым альбомом. Ниже можно посмотреть небольшой видеорепортаж из студии. Предположительное время выхода альбома - январь 2013.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/6p72yAsYKyA" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 12.11.2012 news CRASHDIET: DVD &quot;Shattered Glass And Broken Bones – Three Years Of Generation Wild&quot;
+
+<P>Шведские&nbsp;глэмстеры <STRONG>CRASHDIET</STRONG> выпускают новый DVD <STRONG>"Shattered Glass And Broken Bones – Three Years Of Generation Wild"</STRONG>. На диск войдёт более трех часов концертных и закулисных съемок, сделанных самой группой и компанией <STRONG>Bear Productions</STRONG>. Дата выхода: 4 декабря 2012.&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.11/25036.jpg" width=273 height=321> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 18.12.2012 news CRASHDIET: детали альбома &quot;The Savage Playground&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.12/25175.jpg" width=400 height=400>Шведские глэм-металлисты <STRONG>CRASHDIET</STRONG> закончили работу над своим новым полноформатником. Диск получил название<STRONG> "The Savage Playground"</STRONG> и выйдет 22 января во всём Мире и 25 января на территории Скандинавии.</P>
+<P>Альбом <STRONG>"The Savage Playground"</STRONG> был записан в течении лета и осени 2012 года с продюсером <STRONG>Otto Wellton</STRONG> на&nbsp;<STRONG>Kingside Studios</STRONG>.</P>
+<P>Обложку для&nbsp;<STRONG>"The Savage Playground"</STRONG> создал:<STRONG> C.A Beckston</STRONG> (<A href="http://www.monowasp.com/">www.monowasp.com</A>).</P>
+<P>Трек-лист:</P>
+<P>01.<STRONG> Change The World <BR></STRONG>02. <STRONG>Cocaine Cowboys <BR></STRONG>03. <STRONG>Anarchy</STRONG> <BR>04. <STRONG>California</STRONG> <BR>05. <STRONG>Lickin' Dog <BR></STRONG>06. <STRONG>Circus</STRONG> <BR>07. <STRONG>Sin City</STRONG> <BR>08. <STRONG>Got A Reason <BR></STRONG>09. <STRONG>Drinkin' Without You <BR></STRONG>10. <STRONG>Snakes In Paradise <BR></STRONG>11. <STRONG>Damaged Kid <BR></STRONG>12. <STRONG>Excited</STRONG> <BR>13. <STRONG>Garden Of Babylon</STRONG></P>
+Автор: Headcrusher
+
+### 12.01.2013 news CRASHDIET: видео на песню &quot;Cocaine Cowboys&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>CRASHDIET</STRONG> опубликовали видео на песню <STRONG>"Cocaine Cowboys"</STRONG>. Режиссёр клипа:<STRONG> Rick-y</STRONG> (<A href="http://www.rick-y.com/">www.rick-y.com</A>).</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/582XyRHHsrw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 12.02.2013 news CRASHDIET: видео на песню &quot;California&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>CRASHDIET</STRONG> представили второе видео со своего нового альбома <STRONG>"The Savage Playground"</STRONG>. Клип на песню <STRONG>"California"</STRONG> снял режиссёр, скрывающийся под именем <STRONG>Rick-Y</STRONG> (<A href="http://www.rick-y.com/">www.rick-y.com</A>).</FONT></P>
+<CENTER><IFRAME height=281 src="http://player.vimeo.com/video/59311583" frameBorder=0 width=500 allowFullScreen mozallowfullscreen webkitAllowFullScreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 08.09.2017 news CRASHDIET выпускает архивный концертный релиз
+
+<P>Шведские глэмстеры <STRONG>CRASHDIET </STRONG>анонсировали выпуск концертного альбома с архивными записями тех времён, когда их вокалистом был ныне покойный <STRONG>Dave Lepard</STRONG>. Диск, получивший название<STRONG> "Live In Sleazy", </STRONG>был записан&nbsp;в 2005 году,&nbsp;во времена, когда группа гастролировала&nbsp;по шведским клубам в поддержку альбома <STRONG>”Rest In Sleaze”</STRONG>.</P>
+<P>Сведение и мастеринг: <STRONG>Chris Laney</STRONG><BR>Обложка: <STRONG>Christel Mentges</STRONG></P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Tikket</STRONG><BR>02. <STRONG>Breakin' The Chainz<BR></STRONG>03. <STRONG>Queen Obscene<BR></STRONG>04. <STRONG>Riot In Everyone<BR></STRONG>05. <STRONG>Angelfuck</STRONG><BR>06. <STRONG>It's&nbsp;A Miracle<BR></STRONG>07. <STRONG>Out Of Line<BR></STRONG>08. <STRONG>Chinese Democracy<BR></STRONG>09. <STRONG>Back On Trakk<BR></STRONG>10. <STRONG>Straight Outta Hell</STRONG></P>
+<P>Предзаказ доступен по ссылке: <A href="http://www.dietrecords.org/crashdiet/lis">http://www.dietrecords.org/crashdiet/lis</A></P>
+<P>Приблизительная дата выпуска: октябрь-ноябрь 2017</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.09/30761.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

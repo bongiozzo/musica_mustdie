@@ -38,6 +38,36 @@ Bonus Tracks (rehearsal)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.10.2004 bios EDUCATED SCUM
+
+<P>История проекта <STRONG>EDUCATED SCUM</STRONG> начинается с 2000 г. Начало группе положили два grind-маньяка: Дмитрий Дасов aka Dimebag (гроулинг, тексты) и Михаил Кузнецов aka Mishgun (гитары, бас-гитары, и всё остальное, связанное с записью) и существовал в то время группа исключительно как студийный проект. Собственно говоря, на момент записи дебютника "From Chaos To Disorder" (сентябрь - декабрь 2003 г.) состав не изменился, за исключением того, что на запись гитарных соло в треках "Cannon Fodder" и "Psalm to Life part I: Rejuvenation" был приглашен Владислав Крыжановский. Последний настолько увлекся grindcore, что стал полноценным участником коллектива. После записи материала для "From Chaos To Disorder" <STRONG>EDUCATED SCUM</STRONG> решили покинуть пределы студии и собрать полноценный состав для концертной деятельности. Посмотрим, что будет впереди?..</P>
+Автор: Morsus
+
+### 01.01.2012 news Новый альбом EDUCATED SCUM
+
+<P><SPAN class=tit1><IMG height=512 alt="" hspace=0 src="/images/news_rus/2012.01/22435.jpg" width=500 align=right border=0>MUSICA Production представляет</SPAN></P>
+<P><SPAN class=tit2>первый альбом 2012 года, выпущенный в 2011 году</SPAN></P>
+<P><SPAN class=tit3>MP 55 EDUCATED SCUM "React"</SPAN></P>
+<P>-death-metal; Проект <STRONG>EDUCATED SCUM</STRONG> возрождается после нескольких лет забвения и представляет новый альбом "<STRONG>React</STRONG>". Второй альбом продолжает концепцию первого релиза "<STRONG>From Chaos To Disorder</STRONG>" – остросоциальная лирика, сэмплы известных российских политиков, death-grind-овая стилистика в духе <STRONG>Napalm Death</STRONG>, но и расширяет стилистические рамки проекта, включая в себя современные влияния, с сохранением взрывной энергетики и агрессии.&nbsp; Альбом посвящён жертвам терроризма, что отражено в композициях "Human Bomb" и инструментальном аутро "Beslan", также затронут ряд язв общества, и в этот раз отдельный трэк "<STRONG>Political Clown</STRONG>" целиком посвящён <STRONG>Жириновскому</STRONG>! Диск был записан в составе: <STRONG>MishGun</STRONG> – гитары, бас, барабаны, бэк-вокал, автор музыки, <STRONG>Dimebag</STRONG> – бэк-вокал, автор текстов, а вокальные партии записал <STRONG>Константин Devilhead Косарев</STRONG> (ex-<STRONG>Human Device</STRONG>). Трек-лист:</P>
+<P>1. <STRONG>Victims Of Terrorism</STRONG><BR>2. <STRONG>Human Bomb<BR></STRONG>3. <STRONG>Double Standards<BR></STRONG>4. <STRONG>Capitalize<BR></STRONG>5. <STRONG>Opiate To Manipulate<BR></STRONG>6. <STRONG>Two Perennial Russian Questions</STRONG><BR>7. <STRONG>War Bizzare</STRONG><BR>8. <STRONG>Political Clown<BR></STRONG>9. <STRONG>React<BR></STRONG>10. <STRONG>Cloning Process Failure<BR></STRONG>11. <STRONG>Tied Gagged Blindfolded<BR></STRONG>12. <STRONG>Anti-Suicidal Song<BR></STRONG>13. <STRONG>Ignorant (equals) Irrelevant<BR></STRONG>14. <STRONG>Grin<BR></STRONG>15. <STRONG>Dead end<BR></STRONG>16. <STRONG>Beslan</STRONG></P>
+<P>Bonus Tracks (rehearsal)<BR>17. <STRONG>Propaganda<BR></STRONG>18. <STRONG>Cannon Fodder</STRONG><BR>19. <STRONG>There Is...<BR></STRONG>20. <STRONG>Digital Apocalypse</STRONG></P>
+<P>MP3: <A href="/ru/band/educated_scum/18928/#samples">http://musica.mustdie.ru/ru/band/educated_scum/18928/#samples</A></P>
+<P>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A>; <A href="http://vkontakte.ru/club5584539">http://vkontakte.ru/club5584539</A></P>
+<P>Розничная продажа в нашем магазине по цене 160 рублей: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A> или по E-mail: <A href="mailto:musica_prod@rambler.ru">musica_prod@rambler.ru</A></P>
+Автор: Vit Belov
+
+### 22.07.2015 news EDUCATED SCUM выпустили диск к 15-летию проекта
+
+<P>Московские дэт-грайндкорщики <STRONG>EDUCATED SCUM</STRONG> подготовили юбилейное переиздание своего первого релиза <STRONG>"From Chaos To Disorder"</STRONG>, посвящённое 15-летию проекта. В него вошло 52 трэка общим звучанием&nbsp;в&nbsp;51 минуту. Альбом был полностью перезаписан в студии <STRONG>Primordial</STRONG> с живыми барабанами.&nbsp;&nbsp;На диск&nbsp;вошли, как новые версии песен, так и оригинальный их вариант, плюс&nbsp;качественные репетиционные записи последнего живого состава 2006 года и неизданное шеститрековое демо 2000 года.</P>
+<P>Музыкальный материал <STRONG>EDUCATED SCUM</STRONG> -&nbsp;это безкомпромиссный и взрывной grindcore, с активным использованием сэмплов известных политиков и остросоциальными текстами в духе <STRONG>NAPALM DEATH</STRONG>. Данный альбом претендует на звание самого ультимативного и скоростного экстремального релиза на всем пост-советском пространстве, и однозначно должен понравиться всем любителям такой музыки!</P>
+<P><STRONG>EDUCATED SCUM</STRONG> в интернете:<BR><A href="http://escum.narod.ru/">http://escum.narod.ru</A><BR><A href="http://vk.com/educatedscum">http://vk.com/educatedscum</A><BR><A href="http://facebook.com/educatedscum">http://facebook.com/educatedscum</A><BR><A href="http://educatedscum.bandcamp.com/">http://educatedscum.bandcamp.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.07/28185.jpg" width=500 height=500>&nbsp;</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### EDUCATED SCUM сегодня в эфире программы &quot;Хранитель снов&quot; на радио ЭХО МОСКВЫ

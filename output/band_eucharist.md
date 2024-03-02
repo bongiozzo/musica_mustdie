@@ -67,6 +67,18 @@ Recorded at Music Maffian,Varberg 1993
 
 * C группой "The End (Sweden)" Matti Almsenius, Daniel Erlandsson, Tobias Gustafsson
 
+## Публикации
+
+### 28.11.2003 news Переиздания классиков шведского death black metal
+
+<P><LABEL id=HbSession SessionId="1740891749">Лэйбл Regain Records приготовил подарок всем любителям шведятины. Компания выпустила шесть классических альбомов шведских групп, выпускавших альбомы на WAR Music в девяностых годах.</LABEL></P>
+<P><LABEL SessionId="1740891749"><B>Naglfar - Diabolical<BR></B>Ремастированная версия второго альбома группы 1998 года. Классический black death metal.<BR><B>Darkane - Rusted Angel</B><BR>Ремастированная версия дебюта группы 1998 года с тремя бонус-трэками. Техничный и мелодичный death metal. </LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL><LABEL SessionId="1740891749"><B>Carnal Forge - Whos Gonna Burn</B><BR>Ремастированная версия дебютного альбома группы 1998 года. <BR><B>Defleshed - Fast Forward</B><BR>Третий альбом шведов в ремастированном виде с четырьмя бонус-трэками. <BR><B>Dimension Zero - Penetrations from the Lost World</B><BR>Переиздание мини-альбома 1997 года, с семью бонус-трэками, среди которых две студийные нереализованные вещи и пять концертных, записанных в ходе японского тура 2002 года. .<BR><B>Eucharist - Mirrorworlds</B><BR>Ремастированный второй альбом 1997 года пионеров Swedish melodic death metal.</LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL>&nbsp;</P>
+<P><LABEL SessionId="1740891749">В нашем разделе mp3 можно ознакомиться с некоторыми песнями с этих альбомов.<BR>Есть надежда, что все эти альбомы выйдут по лицензии на российский рынок.</P></LABEL>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

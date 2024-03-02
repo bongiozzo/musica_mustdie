@@ -117,6 +117,125 @@ Some issued with bonus disc "Live at the Starland Ballroom"
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.11.2001 reviews Бальзам на раны всех страждущих настоящей трэш-дэсовой молотилки
+
+<p>Бальзам на раны всех страждущих настоящей трэш-дэсовой молотилки! Малоизвестный квинтет из Нью-Джерси, имеющий в запасе всего лишь один альбом "Out of Misery", на втором умудрился выдать "Уничтожение" такого качества, что мастерам жанра остается только завидовать.<BR> Сами музыканты описывают свой стиль очень просто: смесь собственного видения агрессивной музыки с такими классическими влияниями, как DEATH, CARCASS, AT THE GATES, MESHUGGAH, PANTERA, SUFFOCATION, SLAYER, OPPRESSOR, CANDIRIA, MORBID ANGEL… Поначалу кажется, что ребята многовато хватили, но, после первых же трэков становиться очевидно, что если и приврали, то совсем немного. Налицо все классические компоненты стиля, как-то: ритмические сбивки, скоростное месилово, брутальный вокал и толика мелодий. Ну а та доля фантазии, оригинальности и мастерства, с которым исполнено "Уничтожение", позволяет говорить о рождении действительно новой звезды на небосклоне трэш-дэс-метал. Причем все подано небанально, свежо и очень агрессивно – как, впрочем, и должен играться трэш-метал. Боже, как же давно этого не было…<BR> Сам факт существования GOD FORBID – смачный плевок в сторону нацистов от музыки, утверждающих, что афроамериканцы, то бишь негры, ничего путного играть не умеют. Узнайте, что четверо из пяти музыкантов GOD FORBID – те самые негры, и умрите! Тем паче, что безмерно агрессивный трэш-дэс-метал высшей пробы послужит к этому замечательным саундтреком.</p>
+
+Автор: Tornado
+
+### 07.01.2002 news CENTURY MEDIA TOUR UPDATE....
+
+<p>CARNAL FORGE <BR> (European Tour with Mortician, Yattering and Tidfall) <BR> 1/5 BRADFORD - RIO UK <BR> 1/6 GLASGOW - CATHOUSE SCH <BR> 1/7 NEWCASTLE - TRILLIANS UK <BR> 1/8 LONDON - UNDERWORLD UK <BR> 1/9 PARIS - GIBUS FR <BR> 1/10 ROTTERDAM - BAROEG NL <BR> 1/11 HARDENBERG - PODIUM NL <BR> 1/12 DEINZE - BRIELJANT BL <BR> 1/13 EINDHOFEN - EFFENAAR NL <BR> 1/14 ESSEN - ZECHE CARL D <BR> 1/15 BERLIN - KNAACK D <BR> 1/16 HAMBURG - MARX D <BR> 1/17 PRAHA - BLACK PESS CZ <BR> 1/18 ZWICKAU - ALARM D <BR> 1/19 VIENNA - ARENA A <BR> 1/20 MILANO - INDIAN'S SALOON ITA <BR> 1/21 ZAGREB - MOCVARA T.B.A. CRO <BR> 1/23 PERPIGNAN - CROCK-MORE FR <BR> 1/24 BARCELONA - MEPHISTO SP <BR> 1/25 MURCIA - GAMMA SP <BR> 1/26 MADRID - EL-GRITO SP <BR> 1/27 IRUN - TUNK SP <BR> 1/29 LYON - REAL THEATRE FR <BR> 1/30 WIL - REMISE CH <BR> 1/31 OSNABRUCK - WORKS D <BR> 2/1 OFFENBACH - HAFENBAHN D <BR> 2/2 VOSSELAAR - BIEBOB BL <BR> 2/3 GRONINGEN - VERA NL <BR><BR> CRYPTOPSY <BR> (With Dimmu Borgir, Krisiun and Diabolic) <BR> Dates and venues to be announced shortly <BR><BR> GOD FORBID <BR> (With Hatebreed, Poison The Well and Sworn Enemy) <BR> 1/8 Detroit, MI - St. Andrews Hall <BR> 1/9 Columbus, OH - Al Rosa Villa <BR> 1/10 Huntington, WV - YWCA <BR> 1/11 Pittsburgh, PA – Club Laga <BR> 1/12 Cincinnati, OH - Bogart's <BR> 1/13 Nashville, TN – Exit In <BR> 1/14 Sauget, IL - Pop's <BR> (With Gwar and Soilent Green) <BR> 1/16 Norva Theatre – Norfolk, VA <BR> 1/17 Ziggy’s – Winston-Salem, NC <BR> 1/18 House Of Blues – N. Myrtle Beach, SC <BR> 1/19 Masquerade – Atlanta, GA <BR> 1/20 Floyd’s Music Store – Tallahassee, FL <BR> 1/21 Marquee – Jacksonville, FL <BR> 1/23 Orbit – Boyston Beach, FL <BR> 1/24 Neptunes – Ft. Myers, FL <BR> 1/25 Masquerade – Tampa, FL <BR> 1/26 House Of Blues – Lake Buena Vista, FL <BR> 1/28 House Of Blues – New Orleans <BR><BR> SCAR CULTURE <BR> 1/25 North Six in Brooklyn, NY (With Dillinger Escape Plan, Darkest Hour and All Else Failed)<BR></p>
+
+Автор: Yermola
+
+### 21.01.2002 news God Forbid Tour with GWAR and Goatwhore ...
+
+<p>Fresh off of a tour with Hatebreed, Poison The Well and Sworn Enemy, God Forbid will now be the direct support for GWAR. Soilent Green, originally scheduled to take part in the tour, have been replaced by Goatwhore following the body and equipment damage Soilent Green incurred in a van accident a few months ago. Some of the dates/venues have been shuffled since the last time I sent these out -- here's the latest list. More dates/venues to be announced shortly. <BR><BR> GOD FORBID with GWAR & GOATWHORE <BR> *** indicates change <BR><BR> 1/16 Norfolk, VA Norva Theater <BR> 1/17 Winston-Salem, NC Ziggy's <BR> 1/18 Myrtle Beach, SC House Of Blues <BR> 1/19 Atlanta, GA The Chamber *** <BR> 1/20 Tallahasse, FL Floyd's Music Store <BR> 1/21 Jacksonville, FL Marquee <BR> 1/23 Boynton Beach, FL Orbit <BR> 1/24 Ft.Myers, FL Neptunes <BR> 1/25 Tampa, FL Masquerade <BR> 1/26 Lake Buena Vista, FL House Of Blues <BR> 1/28 New Orleans, LA House Of Blues <BR> 1/29 Houston, TX Engine Room <BR> 1/30 Dallas, TX Deep Ellum Live <BR> 2/01 Lubbock, TX The Pavillion *** <BR> 2/06 Santa Ana, CA Galaxy Concert Theatre <BR> 2/08 Ventura, CA Ventura Theater *** <BR> 2/09 Petaluma, CA Phoenix Theater *** <BR> 2/11 Portland, OR Roseland Theatre <BR> 2/12 Seattle, WA Showbox <BR> 2/15 Denver, CO Ogden Theatre <BR> 2/19 Minneapolis, MN First Avenue <BR> 2/20 Milwaukee, WI The Rave <BR> 2/21 Chicago, IL Vic Theatre <BR> 2/22 Detroit, MI Harpo's <BR> 2/23 Cleveland, OH Agora Theatre <BR> 2/24 Columbus, OH Newport Music Hall *** <BR> 2/27 Pittsburgh, PA Metropol *** <BR> 2/28 Philadelphia, PA Electric Factory *** <BR> 3/02 Worcester, MA Palladium ***<BR></p>
+
+Автор: Yermola
+
+### 10.02.2002 articles Бог запрещает...
+
+<p>Казалось бы трэш-метал сегодня не в моде. С чего вдруг вы взялись его играть? <BR> - Мы выросли на подобной музыке и всегда хотели играть только это – из-за интенсивности и непредсказуемости. <BR> - А что вы думаете о nu-metal? <BR> - Кое-что из этого звучит хорошо, а что-то похоже на настоящий мусор…<BR> - Да, но, возможно, более успешный вариант карьеры сейчас – стать еще одним клоном Slipknot? <BR> - Не думаю – лучше уж попробовать клонировать кого-то другого. Хотя еще лучше оставаться собой и делать лучшее из того, что ты умеешь. <BR> - Как у вас дела с лейблами – мажоры хоть как-то реагируют? <BR> - Мы подписаны на CENTURY MEDIA. Нормальный независимый лейбл… Хотя, если расставлять приоритеты, на крупном лейбле было бы круче. Но мы вполне довольны той поддержкой, которую получаем от CENTURY MEDIA. <BR> - Как ты думаешь, метал сегодня умирает? <BR> - Полагаю, он жив, просто теперь это не доминирующая сила. Сейчас люди слушают понемногу все стили музыки – у каждого везде свои фавориты. Выходит, нельзя говорить о тенденциях вроде "хэви-метал сейчас правит миром" или "хэви-метал сидит в андеграунде". Металлические группы есть и на вершине, и в подвальных клубах. <BR> - Ваш Metallenium tour завершен – каковы впечатления? <BR> - Хороший опыт, много забавного и… Мы ищем возможность вновь отправиться в турне.<BR> - Слышали какие-либо группы из России? <BR> - Нет. Пока нет.</p>
+<P><BR> Что вы думаете о… <BR> LIMP BIZKIT – они делают большие деньги с небольшими усилиями <BR> новом альбоме SLAYER – OK! <BR> Русской водке – никогда не пробовал <BR> Казахстане - а это что такое? <BR> пьяных женщинах – если у нее крепкое тело и дыхание не отталкивает, то все в порядке! <BR> групповом сексе – великолепно, когда речь идет о тебе и нескольких девчонках. <BR> Дженифер Лопес – У нее крепкая попка! Ей нужно бы нагнуться и встать раком (doggystyle) я бы ее… отшлепал! <BR> расизме – не важно, что я скажу – это всегда будет существовать, потому что равнодушные люди опасаются изменений в своей жизни и своей неспособности уживаться с непохожими на них людьми. <IMG SRC="/images/articles_rus/2002.02/2407.jpg" ALT="pho" width="300" height="272" hspace="15" vspace="5" border="1" align="left" /></>
+
+Автор: Tornado
+
+### 21.02.2002 news GOD FORBID Tour dates ...
+
+<p>(w/GWAR and Soilent Green) <BR> 2/16 Granada Theater – Lawrence, KS<BR> 2/17 Pop’s – Sauget, IL<BR> 2/18 Ranch Bowl – Omaha, NE<BR> 2/19 First Avenue – Minneapolis, MN<BR> 2/20 The Rave – Milwaukee, WI<BR> 2/21 The Vic – Chicago, IL<BR> 2/22 Harpo’s – Detroit, MI<BR> 2/23 Agora Theater – Cleveland, OH<BR> 2/24 Newport Music Hall – Columbus, OH<BR> 2/26 Borgarts – Cincinnati, OH<BR> 2/27 Metropol – Pittsburgh, PA<BR> 2/28 Electric Factory – Philadelphia, PA<BR> 3/1 Birch Hill – Old Bridge, NJ<BR> 3/2 The Palladium - Worcester, MA<BR> 3/3 The Chance – Poughkeepsie, NY<BR> 3/4 9:30 Club – Washington, DC<BR> 3/9 The Asylum - Portland, ME W/ Diecast, Shai Hulud, Killswitch Engage<BR> 4/5-6 Palladium – Worcester, MA New England Metalfest<BR></p>
+
+Автор: Yermola
+
+### 11.11.2002 news GOD FORBID are currently out on the road ....
+
+<p>The band are currently out on the road as direct support for ARCH ENEMY and they have been destroying the crowd every night. If you are one of the lucky ones who get to see any of these shows you will have the privilege of checking out 3 new tracks from their upcoming release due next spring. Some of the tentative titles for these new songs are “Gone Forever”, “Forcefed”, and “Antihero”. These songs are full of aggression with massive breakdowns that will be sure to get the pit moving. The guitar duo of Doc and Dallas have definitely stepped it up and their guitar playing will put bands like The Haunted and IN FLAMES to shame. They have six songs almost complete and they will head into the studio to demo these songs by the end of the year. Be sure to check the list of dates below.</p>
+
+Автор: Yermola
+
+### 21.12.2002 news God Forbid&#39;s plans
+
+<p>The band have just finished up a short east coast run with label mates ARCH ENEMY and have now returned home to resume the writing process for their new release. With eight songs completed the band also got the opportunity to test out a few new tunes on the road. Two of the new tracks, “Forcefed” and “Antihero”, see the band take a more aggressive approach to their songwriting, as they also incorporate more guitar technicality. The tentative title for the new record is A Perfect World and will be produced by Adam D. of Killswitch Engage starting in late February. The band hope to begin pre-production in January and it looks like we are projecting a late spring/early summer release.</p>
+
+Автор: Vit Belov
+
+### 21.12.2002 news Планы God Forbid
+
+<p>God Forbid вернулись из небольшого тура по США. В январе группа хочет начать запись новой пластинки, которая выйдет летом.</p>
+
+Автор: Vit Belov
+
+### 18.06.2003 news GOD FORBID are scheduled to headline the first day of the Loud Az Fuck ...
+
+<p>New Jersey's metal titans GOD FORBID are scheduled to headline the first day of the Loud Az Fuck Festival on Friday July 11th at CBGB's in New York City. Other acts set to play are Dead To Fall, Locked In A Vacancy and Curl Up and Die. More information on the festival can be found on its official website, http://devastatingsoundworks.com/laf.html. <BR><BR> GOD FORBID will enter Trax East Studios in July with producer Eric Rachel (Atreyu, Nora) to record their eagerly anticipated new full-length album. The follow-up to the critically acclaimed Determination is set to be mixed by Colin Richardson (Sepultura, Carcass) in August, while the album is slated for an early 2004 release.</p>
+
+Автор: Yermola
+
+### 18.07.2003 news God Forbid in studio
+
+<p>God Forbid will enter Trax East Studios with producer Eric Rachel (Atreyu, Nora) to record their next full-length album. An EP entitled Gone Forever will be released in late August that will feature some new studio tracks. The album is set to be mixed by Colin Richardson (Sepultura, Carcass) and is set for an early 2004 release.</p>
+
+Автор: Morsus
+
+### 18.07.2003 news God Forbid идут в студию
+
+<p>God Forbid вместе с продюсером Эриком Рэйчелом отправляются в студию Trax East записывать очередной альбом. Кое-какие результаты можно будет услышать уже в конце августа на EP "Gone Forever". Полный альбом будет смикширован Колином Ричардсоном (Sepultura, Carcass) и выйдет в начале 2004 года.</p>
+
+Автор: Morsus
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 05.03.2009 news GOD FORBID на 110-ом месте
+
+<P>Новый альбом<STRONG> GOD FORBID</STRONG> <STRONG>"Earthsblood" </STRONG>разошёлся в США в количестве 5400 в первую неделю. Это позволило стартовать группе с 110-го места в чарте<STRONG> Billboard</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.04.2009 news GOD FORBID поменяли гитариста
+
+<P>Гитарист <STRONG>Doc Coyle</STRONG> покинул <STRONG>GOD FORBID</STRONG>. Временной заменой стал бывший музыкант <STRONG>DARKEST HOUR Kris Norris</STRONG>. <STRONG>GOD FORBID</STRONG> уезжают в тур с <STRONG>LAMB OF GOD</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.05.2009 news Новое видео GOD FORBID
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео GOD FORBID на песню <STRONG>"War of Attrition" </STRONG>можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:393535 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D393535%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A393535%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A393535" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/god_forbid/artist.jhtml" target=_blank>God Forbid</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.08.2011 news GOD FORBID на Victory Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американцы <STRONG>GOD FORBID</STRONG> заключили сделку с <STRONG>Victory Records</STRONG>. Музыканты работают над новым альбомом.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=317 src="/images/news_rus/2011.08/20524.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 14.02.2012 news Новый альбом GOD FORBID
+
+<P><STRONG>GOD FORBID</STRONG> выпускают новый альбом <STRONG>"Equilibrium</STRONG>" 27 марта на <STRONG>Victory Records</STRONG>. Пластинка была сзаписана с <STRONG>Mark Lewis (THE BLACK DAHLIA MURDER, WHITECHAPEL, DEVILDRIVER, TRIVIUM)</STRONG> и <STRONG>Jason Suecof (TRIVIUM, ALL THAT REMAINS, THE BLACK DAHLIA MURDER, CHIMAIRA, DEVILDRIVER). </STRONG></P>
+<P>
+<CENTER><IMG height=401 src="/images/news_rus/2012.02/23046.jpg" width=401 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.03.2012 news Новый клип GOD FORBID
+
+<P>Новый ролик <STRONG>GOD FORBID</STRONG> На песню "<STRONG>Where We Come From</STRONG>" можно посмотреть ниже. </P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/ed58gkxHjTg?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

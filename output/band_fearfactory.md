@@ -313,6 +313,753 @@ Christian Olde Wolbers
 * C группой "Asesino" Dino Cazares
 * C группой "Arkaea" Christian Olde Wolbers and Raymond Herrera
 
+## Публикации
+
+### 15.02.1999 articles Fear Factory: No Hope In Future
+
+<p>В музыкальном мире 90-ые годы проходят под флагом смешения самых различных стилей, порой даже, казалось бы, совершенно несовместимых. Какие только смешения самых разнообразных музыкальные направлений не обрушиваются на головы несчастных слушателей. На сей раз речь у нас пойдет о группе, которая в своем творчестве также не замыкается в рамках одного стиля, а активно рыщет по территориям самых разнообразных музыкальных ответвлений. Группа, как это следует из заголовка, называется Fear Factory.</p>
+<P> Сия формация начинала свою работу на полях death-metal, но вскоре музыканты группы справедливо решили, что ни death`ом единым жив человек и направили свои усилия в творческие изыскания на новых просторах. Первым подвернувшимся простором оказался indusrial, и музыканты начали активно употреблять в своих произведениях самые совершенные электронные приспособления. А результатом этих творческих происков оказался альбом 'Fear Is The Mindkiller', содержащий в себе ремиксы с предыдущего альбома 'Soul Of A New Machine', который, надо признать, был все ж таки death'овым, нежели death'ом с элементами indusrial`а.</>
+<P> Данный EP оказался настолько удачным с творческой стороны, что музыканты решили развивать эту тему самым решительным образом, благо к тому времени многие металлические группы стали использовать самые разнообразные indusrial'ные веяния. К слову сказать, что у Fear Factory это все-таки получилось гораздо лучше, нежели у их коллег, собственно, именно поэтому мы сейчас пишем именно о них, а не об их коллегах по музыкальному фронту. Музыканты из Fear Factory настолько тонко и органично соединили death и indusrial, что их вкусу остается только позавидовать, настолько удачным получился продукт их совместного творчества.</>
+<P> Итак, сделав хороший задел на 'Fear Is The Mindkiller', музыканты приступили к записи следующего альбома под впечатляющим и ласкающим слух названием 'Demanufacture'. Альбом был очень доброжелательно встречен и публикой и критикой. В то время, если бы у меня спросили о самой многообещающей группе следующего годя, я не задумываясь назвал бы именно Fear Factory. Альбом действительно производил впечатление: тяжесть и агрессия вкупе с электронными достижениями звучал на редкость свежо и достаточно необычно, чтобы выделяться из многочисленных работ сотоварищей по цеху.</>
+<P> В 1997 году группа решила закрепить успех и выпустила альбом с ремиксами предыдущего диска, который на сей раз был выпущен в полнометражном формате. 'Remanufacture', а именно так называлось это творение, окончательно закрепило за группой статус суперзвезд. Вокалист Бертон Си Белл на сцене полностью приковывал к своей персоне внимание публики, как дрессировщик змей приковывает к себе внимание этих пресмыкающихся. Группа была приглашена играть на самых престижных фестивалях, в том числе и на Ozzfest. Казалось бы, что еще нужно для счастья?</>
+<P> На самом деле, ответ на это вопрос достаточно банален - выпуск следующего альбома, чем группа и занята на текущий момент. Но на сей раз музыканты решили не ограничиваться только развитием музыкальных идей, они принялись за развитие концептуальное, ибо новый альбом будет именно таким.</>
+<P> Собственно, хватит уже ходить вокруг да около, пора бы уже приняться за допрос с пристрастием, а в качестве испытуемого на предмет нового альбома выступит ни кто иной как обаятельный гитарист Дино Казарес. К сожалению, несмотря на все мои настойчивые попытки связаться с группой посредством интернет-почты мне так и не удалось, а поэтому далее вы прочитаете ответы на вопросы, которые ему задавали фэны группы посредством того же самого Интернета, поэтому не удивляйтесь, если вы вдруг обнаружите собственный вопрос и ответ на него.</>
+<P> Вопрос: "Итак, какова же концепция нового альбома?"</>
+<P> Дино: "О боже, только не здесь: Хорошо, я попробую коротко рассказать. Это история о человеке, который всю жизнь занимался вопросами технологической эволюции. Он создавал машины, гораздо более интеллектуальные, нежели он сам. В конце концов, они стали настолько разумными, что смогли сами себя контролировать, воспроизводить друг друга, обучать и обучаться, гораздо лучше чем человек. Он сделал эти машины настолько совершенными, что человечество само оказалось ненужным. Человек устарел, потому что он не смог развиваться столь же быстро как машины".</>
+<P> В: "Что за персонажи там присутствуют? Имеются в виду Edgecrusher (Разрушитель границ) и Smasher/Devourer (Разрушитель/Поглотитель). Это тоже машины?"</>
+<P> Д: "Хорошо. Эта история начинается с еще Охранника (Securitron), который был создан одной правительственной организацией, что-то вроде Большого Брата (Big Brother), который был создан в 1984 году, который отслеживал все передвижения в Интернете. Каждое движение в Сети фиксировалось и не могло быть и речи о какой-либо конфиденциальности. Они знали о каждом твоем передвижение, это точно. Охранник - это такая же штука, которая находится в ведении полицейского государства в 2000 году. Он также контролирует и Разрушителя/Поглотителя".</>
+<P> В: "Итак, Разрушитель/Поглотитель - это что-то вроде Терминатора из известного фильма, который должен находить и уничтожать все человеческое. Когда-то он был создан человеком, но теперь служит для его уничтожения".</>
+<P> Д: "'Разрушитель границ' - это парень, который остался одним из трех последних думающих людей в мире и теперь борется за сохранение человечества. Он воюет с машинами, он находится с ними в постоянной конфронтации. Если вы видели сцены из фильма "Терминатор", то вы поймете, о чем это".</>
+<P> В: "Какие влияния вы испытывали при записи этого альбома? Музыка на нем гораздо более мрачная, нежели на предыдущих работах. Вы решили вернуться к тому, с чего начинали, или это логическое продолжение 'Demanufacture'?"</>
+<P> Д: "Собственно, верно и то, и другое. Мы испытывали влияние всех наших предыдущих работ. 'Soul Of A New Machine' более мрачный и тяжелый. На 'Demanufacture' мы реализовали те электронные элементы, которые наиболее адекватны нашему звучанию. На 'Fear Is The Mindkiller' мы использовали и techno, и death, и industrial. На том же 'Demanufacture' мы полностью отказались от живого звучания ударных. Мы сэплировали большинство гитарных партий и они получились механистическими и холодными. Ну, а на этой записи мы хотели привнести больше органического, человеческого чувства. Естественно, мы использовали и компьютеры, но мы сделали так, чтобы этот альбом получился более живым".</>
+<P> В: "На этом альбоме есть очень человеческие песни как, например, "Resurrection". Чем это вызвано?"</>
+<P> Д: ""Resurrection" - это песня, которая дает надежду".</>
+<P> В: ""Resurrection" и "Timelessness" звучат так, как будто их написали для фильма. У вас не было мысли написать саундтрэк для какого-нибудь кинофильма?"</>
+<P> Д: "Это наша мечта. Наша мечта также поучаствовать в создании звуковой дорожки для какой-нибудь компьютерной игры. Я думаю, что Fear Factory именно та группа, которая может написать саундтрэк к чему угодно, будь то фильмы, игры и так далее, и так далее:"</>
+<P> В: "Как вы пишете музыку? Вы делаете все вместе или?.."</>
+<P> Д: "Мы собираемся вместе и очень много джемуем, но большинство идей исходят от меня и от Реймонда, потому что мы очень долго играем вместе, поэтому мы знаем друг друга очень хорошо. Раймонд может задать очень хороший ритм, и я на него наращиваю музыку. Иногда нам помогает написать пару риффов Кристиан. Один раз попытался что-то написать Бертон, но мы сказали ему, чтобы он заткнулся. Ха-ха-ха".</>
+<P> В: "Какое участие принимал Кристиан в предыдущих записях?"</>
+<P> Д: "На самом деле, очень малое. В наших предыдущих работах мы практически не использовали басовые партии".</>
+<P> В: "А на этом альбоме?"</>
+<P> Д: "На этом альбоме мы использовали бас на полную катушку. Басовые партии на этом альбоме просто убивают насмерть! Фактически в первый раз мы так использовали бас. На предыдущих альбомах некоторые басовые партии записывал я, поэтому они звучат как вторая гитара".</>
+<P> В: "Ты не чувствуешь себя гитаристом, на которого равняются многие молодые исполнители, или же тебе это все равно?"</>
+<P> Д: "Ха-ха-ха!!! Я никогда не считал себя примером для подражания".</>
+<P> В: "Будут ли присутствовать на новом альбоме гитарные соло Дино Казареса?"</>
+<P> Д: "Ха-ха-ха: Гммммм: Возможно, если мы таковой напишем. Мы никогда специально не писали сольные партии, но, когда нибудь может быть. Я всегда считал, что гитарные соло - это пережиток прошлого. Вы знаете о чем я, 80-ые годы, глэм: Люди больше не хотят этого".</>
+<P> В: "Ты уже отвечал, какие предыдущие записи повлияли на вас при записи этого альбома, а следующий вопрос такой - какие группы повлияли на тебя больше всего?"</>
+<P> Д: "Ну, с каждым годом мои пристрастия меняются. Когда я только начинал, то я слушал все, что называлось металлом. Должно быть, это были паршивые группы, но я покупал их, потому что там были гитары, которые использовали дисторшн. Мне вообще нравятся очень разные вещи: любая танцевальная музыка, техно, поп-музыка, все, что может положительно повлиять на Fear Factory. Индустриальная музыка".</>
+<P> В: "А какие группы привлекают твое внимание именно сейчас?"</>
+<P> Д: "Есть такая группа, которая мне очень нравится, она называется Spineshank. Я помог им сойтись с Roadrunner. У них уже в сентябре выходит альбом. А другая команда называется System Of A Down, они действительно очень популярны в Калифорнии, у них уже почти готова запись, которая должна выйти на Columbia.</>
+<P> В: "А что у вас случилось с кавером песни "Cars" Гэри Ньюмена?"</>
+<P> Д: "У нас возникли серьезные проблемы из-за этой песни, связанные с правами на нее. Гэри Ньюмен разрешил нам сделать эту песню, но его рекорд-компания имеет на эту песню все права и мы очень долго пытались добиться от компании разрешения на исполнение этой песни. Они хотели, чтобы эта песня вышла только на их лэйбле или в компиляции песен Гэри Ньюмена. Как Fear Factory мы практически не можем ее записать".</>
+<P> В: "А вы уже исполняли эту песню на концертах?"</>
+<P> Д: "Я думаю, что в конечном счете мы сможем исполнять ее на концертах. Мы ее уже играли в 1996 году на наших концертах в Европе и в Англии. Со временем, я думаю, мы все-таки сможем выпустить ее синглом или в специальном digi-паке".</>
+<P> В: "Ходили слухи, что Реймонд и ты написали песню вместе с Джеймсом Хэтфилдом".</>
+<P> Д: "ХА-ХА-ХА!!! Я даже не знаю лично Джеймса Хэтфилда!"</>
+<P> В: "Что ты думаешь о новом альбоме Metallica? ХА-ХА-ХА!!!"</>
+<P> Д: "Брррр, это еще что за вопрос?"</>
+<P> В: "Слушаешь ли ты хардкор типа Sick Of It All или 25 Ta Life?"</>
+<P> Д: "А как же! Естественно я слушаю подобные вещи. Я недавно был в Нью-Йорке, я там был в одном клубе и видел Madball, Fury of Five, Hatebreed, Scarhead".</>
+<P> В: "Кто-нибудь когда-нибудь давал тебе пинка под зад, или ты кому-нибудь давал пинка?"</>
+<P> Дино явно озадачен. "Давал ли кто-нибудь мне пинка под зад? Да, да. Каждый день нам дают под зад: правительство, IRS, все они немало стараются! Поверьте, вам постоянно пинают по мягкому месту. Люди из звукозаписывающих компаний, они находят столько путей, чтобы половчее наподдать тебе. Естественно, не в прямом смысле этого слова, но мысленно они трахают тебя. Fear Factory делает все, чтобы сохранить несмотря ни на что свое творческое лицо, но иногда компании пытаются нас изменить. Они говорят, что Fear Factory играют агрессивный рок, и вот они это выдают журналистам и публике и те думают: "Они играют агрессивный рок?". Это тоже своего рода пинок под зад, потому что они распространяют фальшивую информацию. Но это то, с чем мы боремся каждый день".</>
+<P> Итак, что нам с вами остается делать? Только ждать выпуска нового альбома Fear Factory, который обещает быть, исходя из слов Дино, чем-то просто совершенно убойным. Так это или нет, узнаем мы это только после того, как услышим сам альбом, благо до его выхода, по официальным данным, осталось ждать не так уж и много, если только Fear Factory не узрят в своей нетленке каких-либо недоделок и кинуться переделывать их. Так что всем ждать, а после выхода ценить!</>
+<P> А там уж мы решим, агрессивный рок ребята играют или нет, верно?</>
+
+Автор: TiamaT
+
+### 28.02.1999 news 
+
+<p>Fear Factory, System Of A Down и Spineshank прекратили свое турне по штатам, так как их трейлер с оборудованием стоимостью пол-миллиона долларов был украден в Филадельфии. Позже пустой трейлер был найден сожженым на одной из дорог Филадельфии.</p>
+
+Автор: Vit Belov
+
+### 21.04.1999 news 
+
+<p>Fear Factory добавлены в список групп, которые примут участие в Оззфест'99.</p>
+
+Автор: Vit Belov
+
+### 03.08.2000 news Новости от Fear Factory
+
+<p>Fear Factory будут записывать новый альбом в Лос-Анджелесе 5 сентября. Пока идут поиски продюсера. Боб Рок отказался, из-за излишней тяжести Fear Factory, Тоби Райт занят с новым альбомом Оззи. Уже сочинена 21 песня, 8 из которых войдут на альбом.</p>
+
+Автор: Vit Belov
+
+### 03.08.2000 news Fear-Factory&#39;s new record
+
+<p>Fear Factory said: "We will be recording in L.A. We have not picked a studio as yet, but we will pick one soon. As far as a producer goes, we are still looking into producers, but this is what we know: Bob Rock will NOT do the record, he said it was too heavy for him. Toby Wright will not do the record either, he is doing the new Ozzy record. The original plan was to do it ourselves with Rhys Fulber. Rhys will still be a part of this album no matter what, but we are still looking at producers. We will be going into the studio on September 5th. We have 21 songs in total, with eight for the album. We want to write two or three more for the album; the rest of the tracks will be b-side tracks, video game tracks, movie tracks, etc".</p>
+
+Автор: Vit Belov
+
+### 04.09.2000 news Подробнее о будущем альбоме Fear Factory
+
+<p>После проблем связанных с поиском продюсера, группа собирается сесть в студию 18 сентября для записи своего нового альбома. Наработанный материал представляет собой 21 композицию, 8 из которых войдут в альбом. "Мы хотели бы добавить в альбом еще 2-3 трека, а оставшиеся композиции буду сайдовыми треками, а также треками к играм и фильмам и т.п..." А теперь Раймонд Херрера рассказывает подробнее о будущем альбоме.</p>
+<p> 1.Digi Mortal Очень похожая на Shock композиция, с жестким и резким ритмом и очень мелодичным припевом.</p>
+<p> 2.Lynch Pin Эта вещь полностью тяжелая, вернее даже экстремальная. Что-то среднее между Replica и Martyr.</p>
+<p> 3.Strain vs Resistance Очень разнообразная и интересная композиция. С куплетом в духе Rage Against The Machine и сильным мелодичным припевом, похожим на смесь Ministry и U2.</p>
+<p> 4.Byte Block Это, вероятно, самая индустриальная композиция, которая у нас будет. Начинается с убийственных гитарных риффов, под бас-бочку, некое подобие начала песни Zero Signal, переходящих в мощный тяжелый припев как на New Breed.</p>
+<p> 5.Пока без названия Эту песню можно назвать маркой группы. Четкие прерывистые риффы, переходящие в мелодичный Burt-оновский припев.</p>
+<p> 6.Acres Of Skin Хмм. Прямая и простая. Похожа на первую композицию с Pantera "Far Beyond Driven".</p>
+<p> 7.Invisible Wounds Эта песенка помедленнее, как Descent. С тяжелой "механической" вставкой в середине. Очень эпическая песня, как Ressurection.</p>
+<p> 8.Hurt Conveyor Это просто рок, по всем параметрам... (информацию предоставил [Emotional Winter)</p>
+
+Автор: Dimas
+
+### 09.12.2000 news Fear Factory закончили запись &quot;Digimortal&quot;.
+
+<p>Fear Factory закончили запись нового альбома "Digimortal" в Ocean Studios в Лос-Анджелесе. Микширование проходило в студии Sol Seven и также уже завершено. Мастеринг нового диска планируется сделать в январе. Как говорит гитарист Дино: "Мы отказались от типичных студий, подобных Indigo Ranch. Мы не хотим работать и внезапно встретить прогуливающихся Limp Bizkit - это отвлекает от дела!" Новый альбом продюссирует Райс Фалбер. Ждите его выхода 23-го апреля.</p>
+
+Автор: Morsus
+
+### 09.12.2000 news Fear Factory have finished recording &quot;Digimortal&quot;.
+
+<p>Fear Factory have finished recording new album "Digimortal" at Ocean Studios in Los Angeles. Mixing has now been completed at Sol Seven in LA. Mastering will take place in January. Dino, guitarist, says: "We've avoided typical studios like Indigo Ranch. We don't want to be working and the all of a sudden have Limp Bizkit walk in - that could be distracting!" The new album will be produced by Rhys Fulber. Look for a release April 23rd.</p>
+
+Автор: Morsus
+
+### 17.01.2001 articles Fear Factory: пропаганда революции?
+
+<p> И это чистая правда. Если вы полагаете, что на сегодняшний день Prodigy самая жесткая музыка для танцпола, то ошибаетесь: вся прогрессивная часть рэйв-человечества давно стоит в очередях в «металлические» отделы музыкальных магазинов и ритмично повторяет: Fear Factory… Fear Factory. Fear Factory!!!</p>
+<p> Однако славна эта группа не только своим новаторством в области соединения тяжелейшего и экстремального дэт-метал, великолепных готических мелодий, индустриальных ритмов и ремиксами своих же песен в виде тяжеленного рэйва (даже такое сочетание звучит очень и очень необычно, не говоря уже о самой музыке). Политическая пропаганда составляет не менее важную по словам музыкантов часть их творчества.</p>
+<p> Судите сами – очень сильный и популярнейший альбом "Demanufacture" 1995 года начинается со слов: "Разочарованный ценностями жизни и правительственной ложью…". Эта работа представляет собой пятидесятиминутную историю человека, который осознав себя просто винтиком в грандиозном государстве будущего, встает на тот самый путь, который мы с вами знаем по некогда тщательно штудируемым биографиям идолов нашей истории. Проще говоря – начинает заниматься подрывной деятельностью, которая в случае успеха будет называться революционной борьбой во имя всего человечества:</p>
+<p> "Все это время тебя обманывали и держали на коленях и теперь гнев бежит сквозь твои вены. Пора положить конец всей этой лжи и взять свою жизнь в свои руки!" (SELF BIAS RESISTOR).</p>
+<p> "В судный день взгляни в небеса – человеческие боги сотворены людьми. Кто Спаситель сейчас?" (PISSCHRIST).</p>
+<p> "Пусть оружие будет ангелом прощения!" (Demanufacture).</p>
+<p> Музыканты в такой совей логике не останавливаются только на этих обвинительных тезисах. И то верно – какой толк исключительно от обвинений? Все, к чему они призывают – не просто жажда или желание революционных перемен, и может быть не столько необходимость, как у классиков марксизма, а в значительной мере следствие - слепоты и жадности власть имущих:</p>
+<p> "Я – преступник, я должен красть, чтобы жить… И поэтому я – судья государства, я – конечное правосудие и мой вердикт исполнен гнева!"( H-K).</p>
+<p> "Я волен от сомнений!" (Demanufacture).</p>
+<p> При такой-то логике пугающее заявление… Честно говоря, само по себе появление столь радикально настроенной группы неудивительно – рок-музыка знает немало таких примеров и десятилетней, и двадцатилетней давности. Множество таких групп и сейчас. Однако если для большинства из них такая тематика песен стала попросту традиционной и поют они о "революционном пути" от неспособности сказать что-то иное, то Fear Factory действительно феномен.</p>
+<p> Группа пытается заглянуть в завтрашний день, который оказывается настолько переполнен технологиями, машинами и плановыми графиками, что человек в этой системе превращается в такой же механизм, легко управляемый, полностью контролируемый. Музыканты подчеркивают очевидную вещь – при сегодняшнем темпе роста технологий в самых различных областях, от новаторских компьютерных решений до новых методик управления коллективом и при существующем манипулятивном отношении людей друг к другу и государства к обществу мы рискуем, войдя в завтра с эйфорией открытия новых горизонтов, обнаружить несколько другой мир, чем ожидалось, – мир техногенного тоталитаризма, в котором государство из полуязыческого божества гитлеровских и сталинских проповедей с кровавыми алтарями-лагерями превратилось во всевидящего и совершенного компьютерного бога. Перспектива мало прельщающая а потому…</p>
+<p> "Мы – новая порода, мы – будущее. Мы знаем настоящие правила реальности и мы вершим судьбу" (NEW BREED).</p>
+<p> Все верно – разрушение должно быть конструктивным, иначе это просто самоуничтожение. В одном из интервью вокалист этой группы Бертон Си Белл высказался так о своей музыке: "Звуковая дорожка готовящегося восстания и зарождающегося нового общества…. Это, конечно же, утопия, но жизнь – странная штука. Кто его знает, может самые несбыточные кошмары поджидают нас за углом сегодняшней реальности".</p>
+<p> Как видите, давно загнивающий Запад уже попросту бродит и рождает такие вот манифесты… А в 1997 году вся эта пропаганда с помощью ремиксов превращена в тяжеленный рэйв – и теперь ритмично усваивается прогрессивной молодежью на дискотеках (пока только зарубежных). 1998 год принес еще один футуристический манифест этой группы – но это тема отдельного разговора. В скором времени новый альбом этой во всех отношениях талантливой и неординарной группы. Будет что обсудить.</p>
+<p> Кто знает, может статься и так, что конечным результатом славного творческого пути музыкантов Fear Factory окажется революция не только в музыке… Как там у тех же классиков: важнейшим из всех искусств для нас является – теперь рок-музыка?</p>
+<p></p>
+<p></p>
+
+Автор: Tornado
+
+### 02.04.2001 reviews Неприятный сюрприз от Fear Factory
+
+<p> Господи, что это?! Неужели эта склизская коньюктурная лабуда, которую я слушаю, и есть новый альбом Fear Factory, команды, которую я считал одной из любимейший своих групп?! Увы, это именно так. 11 вялых, однообразных, заточенных под стандарт MTV трэков - таков новый продукт Фабрики Страха, который имеет название "Digimortal" и должен сойти со стапелей 24 апреля сего года. Группа явно двинулась по пути Metallica, попытавшись втиснуть свое творчество в узкие рамки требований коммерческого успеха. Однака большая часть из всего того, чем были так привлекательны Fear Factory, в эти рамки, увы, не влезала и была оставлена за бортом. Да, формально все на месте - те же характерные риффы Казареса и бочки Херерры, но все это звучит теперь штамповано, уныло и плоско. Вокал Бертона потерял львиную долю своего экстремального напора и напоминает смесь из песнопений Offspring, Korn и Faith No More. Все это тем более обидно, что на предыдущем мощнейшем релизе "Obsolete" ничто, казалось бы, не предвещало подобной деградации группы. Да, эту музыкальную жвачку в принципе можно слушать, и, будь эта пластинка дебютом какой-нибудь альтернативной команды, она, наверно, была бы достойна баллов 6-7, но для Fear Factory это полный провал. По крайней мере для меня на данный момент - главное разочарование года, и я не думаю, что какая-либо команда в ближайшие 8-9 месяцев сумеет огорчить меня больше. Не знаю, снискает ли эта пластинка тот коммерческий успех, на который она так неприкрыто пытается претендовать, но в том, что для очень многих фэнов группы она станет неприятным сюрпизом, сомневаться не приходится.</p>
+<p></p>
+
+Автор: Martin
+
+### 04.05.2001 news Цифровая смерть от Fear Factory ....
+
+<p>Альбом "FEAR FACTORY" - Digimortal за первую неделю продаж в штатах продан уже в количестве 38 000 и занял 32 место в Billboard Top 200 Pop Album chart. В других странах он также путешествует по хит-парадам: Канада #17 (Top 200) и #1 (Top 50 Hard Albums), Германия #11 (Top 100), Финляндия #25, Нидерланды #69 (Mega Top 100 Album Charts), Англия #24 (National Album Charts).</p>
+
+Автор: Yermola
+
+### 04.05.2001 news FEAR FACTORY&#39;s Digimortal ......
+
+<p>FEAR FACTORY's Digimortal sold 38,000 in its debut week in the US, placing it at number 32 on next week's Billboard Top 200 Pop Album chart. Other FF chart position from around the world are as follows: Canada: #17 (Top 200) and #1 (Top 50 Hard Albums), Germany: #11 (Top 100), Finland: #25, The Netherlands: #69 (Mega Top 100 Album Charts), UK: #24 (National Album Charts). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.08.2001 reviews Что с людьми мода делает?
+
+<p>Что с людьми мода делает… Этот альбом в прошлом году американское MTV назвало самым долгожданным рок-альбомом, а музыканты группы обещали выдать шедевр, который заставит всех позабыть о прошлых великолепных альбомах "Soul of a new machine" 1992 года и "Demanufacture" 1995 года. Все наврали. Из более чем десяти песен только "Acres of Skin " напоминает о старом дэс-металлическом прошлом группы – напористое скоростное вступление, задавленный финал… Но аранжировка вокала напоминает, что Завод Страха сменил профиль. А следующая вещь вообще валит наповал – настоящий черный нью-йоркский рэп… Ладно песня была бы интересной – так ведь лабуда какая-то! Кому это нужно? Хотя все ясно – это просто веяние моды. Ну а финальный трэк "Never End" и вовсе грозит свернуть челюсти приступом зевоты – FEAR FACTORY на всех предыдущих альбомах стремились поставить красивую готическую точку органными ходами и красивыми распевами. Здесь попытка сделать то же по накатанной схеме, стандартными отработанными приемами. Невыносимо скучно. Главный упрек – группа просто поленилась и отнеслась к творчеству как к рутинной работе. Без особого труда и наработанным мастерством воспроизвели все свои фирменные ходы с предыдущих дисков, внимательно отследили все модные веяния и запихали в каждую песню по паре, пожужжали, покричали, засэмплировали и тихонько пошли по домам. Крепко сделанная халтура. А ведь когда-то, после выхода дебютника в 1992 году, Макс Кавалера сказал: "Я увидел будущее death metal. Это FEAR FACTORY". Теперь вот оказывается, что это будущее так и осталось в прошлом. Вердикт: откровенно самый слабый, скучный и неинтересный альбом FEAR FACTORY. Коммерческая жилка настолько сильно выпирает из каждого риффа, что дослушать до финала нет сил. Хотя… возможно, любители новомодных веяний в тяжелой музыке типа хардкора и оценят этот диск иначе.</p>
+<p> P.S. Есть версия, почему этот альбом так долго записывался – вполне возможно, что музыканты просто засыпали от скуки в студии прямо во время записи. Так и спали бы дальше!</p>
+
+Автор: Tornado
+
+### 28.10.2001 news Бен Грин уходит из GODFLESH ...
+
+<p>Индустриальщики "GODFLESH" расстались с одним из основателей - бассистом Ben Green, который оставил команду для "университета и другой карьеры...". Запланированный ранее европейский тур с FEAR FACTORY, все же состоится с Paul Raven (ex-KILLING JOKE, PRONG) на басу...</p>
+
+Автор: Yermola
+
+### 28.10.2001 news GODFLESH have parted ways with Ben Green...
+
+<p>GODFLESH have parted ways with Ben Green, bass player and co-founder of the band, who reportedly left the group in order to “go to university and pursue another career". The group’s upcoming European tour with FEAR FACTORY will still take place, with Paul Raven (ex-KILLING JOKE, PRONG) filling in on bass. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 07.11.2001 news Цифровая Соединяемость от Фабрики Ужаса...
+
+<p>18-го декабря текущего года "FEAR FACTORY" порадуют поклонников первым DVD, названным "Digital Connectivity". Видеоряд будет таким: <BR><BR> 01. Martyr (Dynamo Open Air Festival in Eindhoven, Holland – 1993)<BR> 02. Scapegoat (Dynamo Open Air Festival in Eindhoven, Holland – 1993) <BR> 03. Scumgrief (Dynamo Open Air Festival in Eindhoven, Holland – 1993) <BR> 04. Demanufacture (Forum in Kentish Town, London - Machines Of Hate tour, 1996)<BR> 05. Self Bias Resistor (MTV UK's Headbanger's Ball - London, 1996)<BR> 06. Dog Day Sunrise (The Warehouse in Toronto – 1996)<BR> 07. Shock (Club Citta in Japan – 1999)<BR> 08. Edgecrusher (Club Citta in Japan - 1999)<BR> 09. What Will Become? (House Of Blues - 2001)<BR> 10. Damaged (Reading Festival in England - 2001)<BR> 11. Digimortal (Opera House in Toronto - 2001)<BR><BR> Также на DVD ранее не реализованные треки и так называемые B-sides:<BR><BR> 01. Frequency (Записано после завершения записи Digimortal)<BR> 02. Machine Debaser (записано для видео-игры Demolition Racer)<BR> 03. Demolition Racer (записано для видео-игры Demolition Racer)<BR> 04. Cyberdyne <BR> 05. Refueled <BR> 06. Transgenic <BR> 07. Edgecrusher (Urban Assault Mix) <BR> 08. Descent (Falling Deeper Mix)<BR><BR> Одновременно с выходом DVD, Roadrunner Records планируют отправку на радио-станции promo CD со всеми аудио-треками вошедшими на диск. Из других новостей, команда выпустит специальный EP в Англии и Австралии в качестве поддержки тура "Can’t Take Me Apart". Английская версия (выходит 12-го ноября) будет содержать: <BR><BR> 01. Linchpin<BR> 02. Frequency<BR> 03. Machine Debaser <BR> 04. Linchpin (video)<BR><BR> А на Австралийскую войдут: <BR><BR> 01. Frequency <BR> 02. Linchpin (Digimortal album version) <BR> 03. Machine Debaser <BR> 04. Demolition Racer <BR> 05. Invisible Wounds (The Suture Mix) <BR> 06. Replica (Ozzfest Tour 1996) <BR> 07. Edgecrusher (The Palace, St. Kilda, Australia)<BR> Плюс видео "Linchpin" и небольшой сериал о записи Digimortal.</p>
+
+Автор: Yermola
+
+### 07.11.2001 news FEAR FACTORY will release their first DVD, entitled Digital Connectivity...
+
+<p>FEAR FACTORY will release their first DVD, entitled Digital Connectivity, on December 18th. Among other footage, the DVD will feature live video performances of the following 11 tracks: <BR> <BR> 01. Martyr (Filmed live at the Dynamo Open Air Festival in Eindhoven, Holland – 1993)<BR> 02. Scapegoat (Filmed live at the Dynamo Open Air Festival in Eindhoven, Holland – 1993)<BR> 03. Scumgrief (Filmed live at the Dynamo Open Air Festival in Eindhoven, Holland – 1993)<BR> 04. Demanufacture (Filmed live at The Forum in Kentish Town, London - Machines Of Hate tour, 1996)<BR> 05. Self Bias Resistor (Recorded live for MTV UK's Headbanger's Ball - London, 1996)<BR> 06. Dog Day Sunrise (Filmed live at The Warehouse in Toronto – 1996)<BR> 07. Shock (Filmed live at Club Citta in Japan – 1999)<BR> 08. Edgecrusher (Filmed live at Club Citta in Japan - 1999)<BR> 09. What Will Become? (Filmed live at House Of Blues - 2001)<BR> 10. Damaged (Filmed live at The Reading Festival in England - 2001)<BR> 11. Digimortal (Filmed live at The Opera House in Toronto - 2001)<BR><BR> The DVD will also contain the following eight previously unreleased audio tracks and rare B-sides:<BR><BR> 01. Frequency (Recorded four months after the completion of Digimortal, making it the newest FEAR FACTORY song)<BR> 02. Machine Debaser (Originally recorded for the video game Demolition Racer, parts of this track were later recycled and became the chorus of "Hurt Conveyor" and the bridge of "What Will Become?"))<BR> 03. Demolition Racer (also originally recorded for the Demolition Racer video game, a part of this song later became the chorus of "Acres Of Skin")<BR> 04. Cyberdyne <BR> 05. Refueled <BR> 06. Transgenic <BR> 07. Edgecrusher (Urban Assault Mix) <BR> 08. Descent (Falling Deeper Mix)<BR><BR> To coincide with the DVD’s release, Roadrunner Records will be sending to radio stations a promo CD containing all the audio tracks that are to appear on the DVD. Unfortunately this promo CD will only be given to radio stations and will ONLY be available in the US. In other news, FEAR FACTORY will be releasing special-edition tour EPs in the UK and Australia to coincide with the group’s dates at the upcoming Can’t Take Me Apart tour. The UK version (released November 12th) will feature the following tracks: <BR><BR> 01. Linchpin <BR> 02. Frequency<BR> 03. Machine Debaser <BR> 04. Linchpin (video) <BR><BR> The Australian version will feature the following tracks: <BR><BR> 01. Frequency <BR> 02. Linchpin (Digimortal album version) <BR> 03. Machine Debaser <BR> 04. Demolition Racer <BR> 05. Invisible Wounds (The Suture Mix) <BR> 06. Replica (recorded live during the Ozzfest Tour 1996) <BR> 07. Edgecrusher (recorded live at The Palace, St. Kilda, Australia on February 26, 1999. Previously unreleased on CD)<BR> Plus the "Linchpin" video clip, and the four-part mini series of the making of Digimortal.</p>
+
+Автор: Yermola
+
+### 11.03.2002 news FEAR FACTORY прекращают деятельность
+
+<p>После 12 лет успешной карьеры FEAR FACTORY решили прекратить свое существование. Официальная причина – решение Бертона Си Белла о выходе и группы. Остальные музыканты решили, что продолжать работу без Бертона не имеет смысла. В своем официальном заявлении Си Белл говорит, что в последнее время работа у в группе у него не вызывала прежнего энтузиазма, возникла неудовлетворенность как личными отношениями внутри коллектива, так и некоторые моменты в развитии группы. </p>
+<p> В настоящее время известно, что Roadrunner Rec готовит к изданию материал, не вошедший в дебютный альбом FEAR FACTORY "Soul of a New Machine", выдержанный в death-metal-ключе. </p>
+
+Автор: Tornado
+
+### 26.03.2002 news Release Dates
+
+<p>The official web site of Roadrunner Records has posted September 16th as the tentative release date for MACHINE HEAD's forthcoming live CD, entitled MACHINE HEAD: Live At Brixton, October 28th as the tentative release date for TYPE O NEGATIVE's long-awaited and as-yet-untitled new studio album, and July 29th as the tentative release date for the previously-unavailable, Ross Robinson-produced album from FEAR FACTORY, entitled Concrete, which was originally recorded back in 1991.</p>
+
+Автор: Dimas
+
+### 26.03.2002 news Новости  от Roadrunner Records
+
+<p>На официальном сайте Roadrunner Records объявлены даты выхода новых альбомов.<BR> 16 сентября 2002 года выходит концертный альбом MACHINE HEAD "MACHINE HEAD: Live At Brixton"<BR> 28 октября 2002 года выйдет давно ожидаемый новый студийный альбом TYPE O NEGATIVE пока еще не имеющий окончательного названия<BR> 29 июля 2002 года выйдет ранее неиздаваемый альбом FEAR FACTORY "Concrete", записанный группой еще в 1991 году.</p>
+
+Автор: Dimas
+
+### 21.05.2002 articles Drummer RAYMOND HERRERA: &quot;DINO CAZARES Is Just A Bitter, Bitter, Fat Man&quot; ....
+
+<P>In exclusive interview with former FEAR FACTORY guitarist Dino Cazares, which was posted at http://www.roadrunnerrecords.com/blabbermouth.net/ last Monday, the axeman went to great lengths to paint the picture of a man who was as frustrated by his former bandmates' quest for mass commercial success as he was by their unwillingness to assume a greater share of the band's business responsibilities, ultimately creating an irreparable rift between him and frontman Burton C. Bell that eventually led to the group's untimely split. </P></>
+<P> </P></>
+<P>Unsurprisingly, it took less than a day for former FEAR FACTORY drummer Raymond Herrera to contact BLABBERMOUTH.NET with the offer of a statement telling his side of the story—or "the truth", as he put it—which he promised would shed light on the reasons behind the group's break-up and the events leading up to the quartet's decision to go their separate ways. </P></>
+<P> </P></>
+<P>As per Herrera's request, we began the interview with Raymond by giving him an opportunity to directly address some of the issues brought up in Cazares' interview—which Herrera chose to do without any interruptions from our side—after which we were allowed to ask the drummer direct questions about the band's split and the deep-rooted personal differences which ultimately caused led to the break-up of what was undoubtedly one of the most high-profile and most innovative extreme metal acts of the '90s. </P></>
+<P> </P></>
+<P>Part I — Raymond Addresses Specific Points In Dino's Interview </P></>
+<P> </P></>
+<P>On Burt's official statement following the group's split: </P></>
+<P>Burt put out a press release and said that he was leaving the band because he wanted to do something different, which was only partly true. In December 2001, he let Christian and I know that he could not work with Dino anymore. Burt devised a way to leave the band so that there was no blame put on anyone in particular. In the press release, he said nothing about the fact that he doesn't want to work with Dino or anything derogatory. Burt was trying to be diplomatic about the whole thing. </P></>
+<P> </P></>
+<P>On Dino's claim that Burt told the band at the final meeting, "I don't want to play with you guys anymore": </P></>
+<P>Burt and Dino had been having a lot of problems for a very long time. The fact that me, Christian and Burt are still working together basically proves that the problem wasn't with the three of us. Burt never said that he didn't want work with us [Christian and myself]. He said that he didn't want to work with Dino. </P></>
+<P> </P></>
+<P>On the implication that Dino was the first one to "pick up the pieces" following FEAR FACTORY's split: </P></>
+<P>About half year ago, it was obvious to us that the band would not continue. Coincidentally, we all had projects aside from FEAR FACTORY we were pursuing. Christian and I have been doing the KUSH project [with DEFTONES guitarist Stephen Carpenter and CYPRESS HILL frontman B-Real] for the last two and a half years. Christian has evolved into producer, forming a production group with B-Real and Eric "Bobo" Correa, while continuing to write and tour with CYPRESS HILL. As well, Burt, Christian, John [Bechdel, FF's old keyboardist] and myself have been putting Burt's [solo] record together now for about four months. Christian and I also have been putting a record together for Nuclear Blast [Records], which will have Oscar Garcia from TERRORIZER doing vocals. Not to mention, Christian and I have been collaborating on music for video games under my production company, Herrera Productions, which I started last September. So, to tell you the truth, Dino was actually the last one to pick up the pieces and start moving on here — everybody else in the band has already, for a while, kind of moved on. </P></>
+<P> </P></>
+<P>Another thing that pissed me off in Dino's interview was that he said there was "too much freedom" in the band—as if it was a problem that other people in the band were pursuing side projects. Let me tell you something… BRUJERIA was around before FEAR FACTORY even was thought of. Side projects were already involved before FEAR FACTORY even started, so for Dino to say that is so hypocritical. What he means with that is, "Well, side projects are fine as long as I'm involved.” For example, when Burt did the G/Z/R thing a few years ago, Dino didn't like that. When Christian started working with CYPRESS HILL, Dino didn't like that either until Christian involved Dino. At one point Dino even insisted that our management inform Christian that he could no longer be involved in CYPRESS HILL and KUSH. </P></>
+<P> </P></>
+<P>On the October 2001 physical altercation between Dino and Burt on the band's tour bus: </P></>
+<P>I was in the back of the bus playing video games, of course, because that's all I ever do [on the road], and this fight broke out in the front. Dino's guitar tech runs to the back and says, "Burt and Dino are having a fistfight." And I'm thinking, "Well, let 'em fight." But the bus is moving and I'm thinking someone is going to hit the bus driver and we'll probably all crash and die. So I go up there and I kind of help stop it. I knew this was a bad situation—essentially, the beginning of the end. I ask Dino what happened and he gave me his story, which is the story that he [gave you] in the interview. The next day, I spoke with everyone else individually. Let's just say, I heard seven stories one way, and Dino's story another. </P></>
+<P> </P></>
+<P>On the bandmembers' different personalities: </P></>
+<P>Dino said that one of the reasons for [the band's success] was the fact that everybody was different and everybody listened to different types of music, yet in his interview, he goes to point out that Burt listens to NICK CAVE, trying to make it seem like a bad thing, and points out that Christian listens to hip hop, as if, for some reason, that's a bad thing. But at the same time, he goes to say that our diversity is one of the reasons the band did so well. So, go figure… </P></>
+<P> </P></>
+<P>On Dino's controlling ways and the band's decision-making process: </P></>
+<P>Everyone in this band was an equal partner of the company itself. Everybody in this band made decisions, some good, some bad. Dino did try to control the band through manipulation of management, the record company, and people in the band. And he would straight-out lie to our faces to cover up about the things that he did behind our back. All those things eventually got back to the rest of us. Trust me, we were on to him from the beginning. </P></>
+<P> </P></>
+<P>On Dino's speculation that Christian held it against him that Cazares played bass on Demanufacture: </P></>
+<P>Demanufacture was originally supposed to be recorded in Chicago. There were a lot of problems with the studio—so we had to basically leave the studio halfway through the drum tracks. We were stuck in a hotel for about a week and a half trying to find a new studio. Soon after that, we found Bearsville, this place in New York, which is where we did the record, but we were already way behind schedule. After I did my drum tracks, it was Dino's turn. Dino took a week to get a guitar tone and another week to do the guitar tracks. Then, Christian had to come in and do his tracks. It did come to the point where Dino had to do half of the [bass] tracks, but it wasn't because Christian didn't know the songs, it was because Dino changed a lot of the parts of the songs while he was tracking guitars. Christian, at that point, had no bad feelings towards Dino. And as for the comment that Christian wanted to be included in his side projects, Christian never wanted to be a part of BRUJERIA or a part of any other [of Dino's] side projects. Christian would let us borrow his bass gear to do BRUJERIA records. He offered it to us—we never even had to ask him for it. </P></>
+<P> </P></>
+<P>On Dino's assertion that Raymond and Christian were primarily motivated by money: </P></>
+<P>I find that very funny, because literally the day after Burt quit the band, Dino called me and asked me to persuade Burt to do this last record. There was a lot of money on the line and Dino wanted to get paid. </P></>
+<P> </P></>
+<P>On Dino's statement that FEAR FACTORY could continue without Christian: </P></>
+<P>If Christian were to have left the band, I wouldn't have continued. Christian is one of the best bass players there are—he really contributed A LOT to this band. The sound of FEAR FACTORY after Demanufacture—on Obsolete and Digimortal—had a lot to do with Christian. Some fans may have liked that, some fans may not have liked that, but for the better or worse, Christian made a big impact on this band, whether Dino wants to admit it or not. </P></>
+<P> </P></>
+<P>On the five songs written and demoed in instrumental form for what would have been FEAR FACTORY's fifth proper full-length CD: </P></>
+<P>In January, Dino and I were putting songs together for the new record. Dino said in the interview that he was writing the songs. We both wrote the five songs [together]. That's typical Dino—trying to take the credit for everything. </P></>
+<P> </P></>
+<P>On Dino's assertion that the aftermath of September 11th was largely to blame for Digimortal's disappointing sales: </P></>
+<P>One, amongst many, things that pissed me off [in Dino's interview] was that Dino had to throw in the whole September 11th thing. Maybe it didn't help that all that happened, but the record was already out for about six months prior to September 11, so that was irrelevant. Despite record sales, we felt that we had written a great record. </P></>
+<P> </P></>
+<P>On the band's collaboration with CYPRESS HILL's B-Real in the track "Back The Fuck Up": </P></>
+<P>I think that's one of the greatest songs we ever wrote. I'm going back again to this whole thing that one of the reasons why FEAR FACTORY was so different was because everybody in the band was different. If some people didn't like "Back The Fuck Up", that's fine. We're never going to write something that everybody enjoys. But to go as far as to blame Christian because it's on the record?! That's unfair. We all said, "Let's put it on the record." </P></>
+<P> </P></>
+<P>On reasons for doing this interview: </P></>
+<P>I did this interview because I thought if the fans were going to hear about the story of our break-up, they should hear it from someone who will tell them the truth. Dino's interview is obviously a pathetic attempt to make himself look like the victim when he very well was the cause of the band's break-up! I'm also very disappointed in the fact that Dino felt compelled to slander the rest of us. I thought a response was necessary. Though FEAR FACTORY wasn't the biggest band in the world, by any means, we did have a certain amount of respect from each other, our fans, other bands and other musicians. We owe a response to them as well. </P></>
+<P> </P></>
+<P>Part II — Raymond Answers A Few Questions </P></>
+<P> </P></>
+<P>You mentioned earlier that you and Christian are currently helping Burt put together his solo record. How did this collaboration come about? </P></>
+<P>Christian and I have been writing music since around September/October of last year on the tour bus. Burt had already kind of hinted to us that he wanted to continue working with us. So we were like, "Hey, you know what, after we break you can take whatever songs you want—they are for you.” We were willing to help Burt in whatever way we could. We got together a few times after the end of the FEAR FACTORY tour and he told us what he wanted to do and what direction he wanted to go in. </P></>
+<P> </P></>
+<P>Will Burt's record come out under his name, or will it actually be a band? </P></>
+<P>We have a lot of fans, so I told him he should probably just call it BURTON C. BELL or the BURTON C. BELL PROJECT, or something. I think he should use his name. </P></>
+<P> </P></>
+<P>The stuff that you've recorded for Burt so far—are those album-quality recordings, or are you just doing demos at this point? </P></>
+<P>Just demos, at this point. </P></>
+<P> </P></>
+<P>You indicated earlier that you knew Burt was going to be coming in that day in early March to announce the he was quitting the band. </P></>
+<P>Burt called me on the day before the "meeting" where he would announce his departure, and said, "I'm ready to do this." At this point, Christian and Burt were not talking to Dino at all any more. I was basically the link between Burt and Dino and Christian and Dino—I was the guy in the middle. </P></>
+<P> </P></>
+<P>The only real thing that Dino and I have in common is music. Other than that, we have nothing in common. When we are on tour, the guy is a womanizer—all he does is try to pick up on women, trying to be a rock star. On the other hand, I'm not like that. I was married the entire time we were doing FEAR FACTORY and I was on the back of the bus playing video games. When we weren't touring, I didn't see Dino at all unless we were at practice. I basically went from being kind of distant to him to being his only friend. </P></>
+<P> </P></>
+<P>Dino made it sound in the interview like there was at least some talk about the two of you guys carrying on in a new band. </P></>
+<P>There were never any plans for me to work with him. To tell you the truth, I don't even want to do the next BRUJERIA record with him. We did this ASESINO band because everybody in BRUJERIA was doing their own record. We finished [Dino's ASESINO] record in December, with Tony [Campos, of STATIC-X, on vocals]. There were talks about doing a new BRUJERIA record, but I can assure you, I won't be writing with [Dino again]. </P></>
+<P> </P></>
+<P>The way you are talking right now almost makes it appear as if you feel as strongly about not wanting to play with Dino ever again as perhaps Burt did when he quit FEAR FACTORY. </P></>
+<P>Dino and I had a falling out and I really don't want to get into the specifics about it because it gets ugly. </P></>
+<P> </P></>
+<P>So you're saying that if Burt and Dino had gotten along famously, Burt never would have left? </P></>
+<P>He never would have left. If he would have had an itch to do something different, he would have done a side project. He wouldn't have to leave the band to do that. </P></>
+<P> </P></>
+<P>You touched upon this earlier as well… Why do you think that Digimortal didn't do as well as everybody expected it to do, especially in light of Obsolete's huge success? </P></>
+<P>I'm really not sure. I heard a lot of good things from fans but I also heard some negativity. It was a combination of many things, I'm sure. </P></>
+<P> </P></>
+<P>When you first contacted BLABBERMOUTH.NET about doing an interview, you mentioned that you would be speaking for Christian and Burt as well. Does that mean that they are aware that you are doing this? </P></>
+<P>Christian is aware that I am doing this. Burt is not. The only reason I am speaking for both of them is because Christian is not going to do an interview, and I really don't see Burt doing one. </P></>
+<P> </P></>
+<P>I do want to add one final thing: </P></>
+<P> </P></>
+<P>I do not want to continue a war of words with Dino or his disciples—it's too late for that, I've moved on. No one is angry about the break-up—except Dino, obviously. With the less-than-successful record sales of Digimortal, and the ongoing rift between Burt and Dino, it was just no use resisting the inevitable. Hey, most bands DO break up eventually. We had to come to terms with that. We worked long and hard for FEAR FACTORY, touring for years with less-than-lucrative rewards. </P></>
+<P> </P></>
+<P>We are very proud of the success FEAR FACTORY has had over the years—it has made us all who we are today. I wouldn't change a thing. But if someday, we all wanted to have a real life, own a home, etc., and carry on our lives as adults—I am not 17 years old anymore, I am 29 years old now—we all needed to work smarter. Being on the road for nine months out of the year had us pinned down to doing ONLY FEAR FACTORY. We put all our "side projects" and other aspirations aside from FEAR FACTORY on hold — all the while not having the success we all hoped for. It was very frustrating and stifling to say the least! We looked at this [the break-up] as an opportunity for change and success. </P></>
+<P> </P></>
+<P>I did telephone Dino after I had read his "exclusive" interview. Of course, he didn't answer, nor did he return my phone call. I'm actually glad he didn't, because he wouldn't have liked what I had to say. After cooling down a bit, I realized one thing: he is just a bitter, bitter, fat man. Despite all the things he said to paint a distorted picture of how it all went down, I can only feel sorry for the guy. </P></>
+<P> </P></>
+<P>I do wish Dino continued success in his career. He is an excellent guitarist and songwriter, with the potential to be a huge success, I just hope that he can someday thank us that it came to an end and that the break-up of this band actually made his own career a better one. </P></>
+
+Автор: Yermola
+
+### 09.08.2002 news Новости Завода Страха
+
+<p>Несмотря на распад FEAR FACTORY, вокруг группы до сих пор витает множество слухов. Самый свежий: вокалист Бертон Си Белл, басист Кристиан Уолбер и драммер Рэймонд Херерра запишут очередной альбом FF, но без гитариста Дино Казареса. У этой троицы есть серьезные претензии к этому парню и в свое время с ним успел поругаться каждый. В свою очередь Дино успел облить грязью каждого участника FF. Официально эта информация пока не подтверждена – Рэймонд Херерра отказался ее признать. Впрочем, не стал и отрицать. <BR> Следующая новость – Девин Тауншенд (STRAPIN' YOUNG LAD) будет продюсером сольного альбома Бертона Си Белла. По словам Девина, в свое время FF очень сильно повлияли на его творчество, и такое сотрудничество – неплохая возможность отплатить Заводу Страха.<BR> И приятная мелочь – в Австралии третий студийный альбом FF "Obsolete" достиг золотого статуса. Оказывается, это целых 35 тысяч копий!</p>
+
+Автор: Tornado
+
+### 20.09.2002 reviews Так закалялась сталь
+
+<p>Диск из разряда раритетов, на которых капиталистические звукозаписывающие компании хотят заработать деньги. <BR> "Concrete" – довольно сырая демо-запись FEAR FACTORY 1991 года. Однако акулы шоу-бизнеса тогда, десять с лишком лет назад, разглядели в этом шуме и грохоте два алмаза – собственно группу и матерого, но неизвестного звукоинженера Росса Робинсона. После обработки бриллианты получились на славу – FEAR FACTORY перевернули представление о звуке в 90-х, попутно создав несколько шедевров экстремальной музыки, а Росс Робинсон помог стать звездами тем, чьи названия пишут на партах сегодняшние подростки: LIMP BIZKIT, KORN, SOULFLY, DEFTONES. <BR> Тем не менее все это весьма сомнительные аргументы для обнародования этой записи. Однако есть еще один – в марте FEAR FACTORY прекратили свое существование. Но на взгляд менеджеров, коммерческого потенциала (не путать с творческим) группа не исчерпала – продавать можно, было бы что! В итоге нашли в архивах вот эту запись. Качество сносное, есть неопубликованные песни, а потому – в тираж! Прибавьте сюда слухи о том, что FEAR FACTORY все-таки реформируются вновь, и получите очередную доходную статью в бюджете. <BR> Возможно, решение правильное, но на самостоятельную и зрелую работу этот диск не тянет – во всяком случае, конкуренции с последующими работами "Завода Страха" "Concrete" не выдерживает. В паре мест можно от души посмеяться, кое-где так же искренне подпеть, но вот войти в ступор от восторга вам не удастся. <BR> Так что рекомендовать диск к приобретению можно лишь в двух случаях: - если вы заядлый фэн FEAR FACTORY; - если вы любите сырое, грубое, не проваренное звуковое "мясо" безо всякой начинки. <BR> Всем прочим несварение гарантировано.</p>
+
+Автор: Tornado
+
+### 22.10.2002 news Новости и МР3 от FEAR FACTORY....
+
+<p>Реформированные "FEAR FACTORY" теперь состоят из Christian Olde Wolbers (гитара/басс), Raymond Herrera (барабаны) и Burton C. Bell (вокал). Группа опубликовала три фрагмента песен с нового демо.<BR><BR> <A HREF="http://members.iinet.net.au/~sambo75/fearfactory/soundclips/SLAVE%20LABOR.MP3">01. Slave Labor<BR></A> <A HREF="http://members.iinet.net.au/~sambo75/fearfactory/soundclips/CORPORATE%20CLONING.MP3">02. Corporate Cloning<BR></A> <A HREF="http://members.iinet.net.au/~sambo75/fearfactory/soundclips/ARCHETYPE.MP3">03. Archetype<BR><BR></A> Четвертая записанная песня "Bite The Hand That Feeds" не выложена для скачивания, но обязательно войдет на студийный альбом выход которого запланирован на 2003 год. Пока неясно захочет ли Roadrunner Records издавать этот релиз записанный без участия Dino Cazares.</p>
+
+Автор: Yermola
+
+### 22.10.2002 news FEAR FACTORY: New MP3 Samples Posted Online....
+
+<p>The reformed FEAR FACTORY — now consisting of Christian Olde Wolbers (guitar/bass), Raymond Herrera (drums), and Burton C. Bell (vocals) — have posted for download 45-second samples of three cuts from their recently-recorded demo. <BR><BR> The songs available for preview are as follows:<BR><BR> <A HREF="http://members.iinet.net.au/~sambo75/fearfactory/soundclips/SLAVE%20LABOR.MP3">01. Slave Labor<BR></A> <A HREF="http://members.iinet.net.au/~sambo75/fearfactory/soundclips/CORPORATE%20CLONING.MP3">02. Corporate Cloning<BR></A> <A HREF="http://members.iinet.net.au/~sambo75/fearfactory/soundclips/ARCHETYPE.MP3">03. Archetype<BR><BR></A> A fourth cut recorded during the same sessions, "Bite The Hand That Feeds", was not made available for download, but is believed to be among the tracks planned for inclusion on the band's upcoming studio album, tentatively due in late 2003. <BR><BR> At the time of this writing, it is not clear if Roadrunner Records will exercise their contractual option to issue the group's next studio album, which will mark the band's first release without guitarist/co-founder Dino Cazares. <BR><BR> FEAR FACTORY unceremoniously split in early March after announcing the departure of Bell, whose personality clashes with Cazares proved to be too much for the frontman to handle, eventually forcing him to leave the group. Subsequent interviews with Cazares and Herrera revealed deep-rooted differences between the other members and Dino, who has since announced plans to launch an as-yet-unnamed new project.</p>
+
+Автор: Yermola
+
+### 05.02.2003 news Ремиксы от FEAR FACTORY
+
+<p>8 апреля 2003 года на Roadrunner Records выйдет коллекция ремиксов и би-сайдов от группы FEAR FACTORY под названием "Hatefiles". Туда войдут следующие вещи:</p>
+<p> 01. Terminate<BR> 02. Frequency <BR> 03. Demolition Racer <BR> 04. Machine Debaser <BR> 05. Invisible Wounds (The Suture Mix) <BR> 06. Edgecrusher (Urban Assault Mix) <BR> 07. Descent (Falling Deeper Mix) <BR> 08. Body Hammer (Colin Richardson Mix) <BR> 09. Zero Signal (Colin Richardson Mix) <BR> 10. Resurrection (T.L.A. Big Rock Mix)<BR> 11. Cars (Numanoid Mix) <BR> 12. Dark Bodies (demo)<BR> 13. Replica (live) <BR> 14. Cyberdyne<BR> 15. Refueled<BR> 16. Transgenic <BR> 17. Manic Cure<BR> 18. New Breed (Spoetnik Mix)</p>
+
+Автор: Dimas
+
+### 19.06.2003 reviews Отличный надгробный памятник
+
+<p><B>Лучше своевременной смерти может быть только бесконечная жизнь. Последнее рок-группам не светит – значит нужно овладевать искусством своевременного харакири. </B><BR> FEAR FACTORY с этой задачей справились – выпустив всего один слабый альбом "Digimortal" в 2001 году, музыканты скоропостижно разругались и разошлись в разные стороны. Фанаты принялись грустить, но, похоже, зря – уже второй год им достаются сюрпризы от несуществующей группы. То dvd-диск "Digital Connectivity", то неизданная с самого начала карьеры FEAR FACTORY демонстрационная запись ""Concrete". И вот теперь лучший и последний из таких подарков – "Hatefiles". <BR> На этот издатели диска, компания Roadrunner, наскребла последнее, что осталось в закромах. Треки, записанные группой для разных компьютерных игр, индустриальные ремиксы проверенных хитов, концертные записи, демоверсии и даже несколько и вовсе не издававшихся композиций. Все вместе звучит очень эффектно – все лучшие стороны FEAR FACTORY, чьи эксперименты в музыке простирались от страшного "смертельного металла" до жесткого танцевального рейва и индастриэла. Вышел эдакий сборник лучших вещей наизнанку: материал все-таки большей частью не изданный. Только за переработанные песни вроде "Edgecrusher", "Ressurection" и "Descent" пластинку можно прочить в золотой фонд экспериментального рока, а ведь есть еще "Dark Bodies"! "Hatefiles" напоминает вкусный пирог, напичканный изюминками и прочей экзотикой, делающей это блюдо почти шедевром индустриальной кулинарии. <BR> В целом диск звучит настолько свежо и задорно, что разом возникает желание вернуться к прежним и лучшим работам группы – "Demanufacture" и "Obsolete". Каждый надгробный памятник должен напоминать о лучших сторонах своего владельца, и "Hatefiles" с этой задачей справился на все сто процентов. FEAR FACTORY распались – да здравствуют FEAR FACTORY!</p>
+
+Автор: Tornado
+
+### 20.07.2003 reviews На последнем издыхании
+
+<P>Доблестно развалившись два года назад, дэт-индустриальный коллектив Fear Factory никак не может сделать последний вздох и отчалить в мир иной. Убедившись в том, что ничего нового после не очень удачного релиза "Digimortal" группа сотворить не сможет, обитатели пресловутого лейбла Roadrunner Records решили заглянуть в глубокие дебри творчества выдохшейся Фабрики Страха и найти там что-нибудь, что могло бы принести им прибыль. И вы знаете, кое-что они все таки нашли. Целых шестнадцать трэков из далекого и не очень далекого прошлого, среди которых демо и ремиксы достойных вещей, а также жалкие попытки возобновить былую славу простыми индустриальными средствами. Также еще есть несколько вещей, написанных группой для различных компьютерных игр. Все это, конечно, интересно, но все же жаль, что столь гениальная группа уходит, оставив нас с такой маленькой дискографией (всего 4 полноформатника за 10 лет). Несомненно здорово послушать все эти воодушевленные обсуждения о том, что группа соберется снова, только уже без Дино Казареса, но все же это в любом случае будет совсем не тот Страх, и совсем не та грандиозная Фабрика, а маленькое предприятие детских кошмаров в стиле industrial. Ну вот, еще одной легендой меньше. Теперь, предсмертно навыпускав различных безделушек округлой формы, Fear Factory все же уходят под землю, а мы ставим надгробный камень, на котором выведены три латинские буквы "R.I.P.". Распад группы даже к лучшему, так как они еще не успели испортить свое имя, в отличии таких, как, скажем, Metallica. Так что, вытирая слезу, можно громко воскликнуть в честь достойной группы: "THE LEGEND LIVES FOREVER!"</P>
+Автор: Darkfall
+
+### 15.11.2003 news FEAR FACTORY объявили имя нового басиста
+
+<B>Byron Stroud (Strapping Young Lad)</B> был объявлен новым басистом <B>FEAR FACTORY</B>. Новый альбом группы заявлен на апрель.
+Автор: Vit Belov
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 26.04.2005 news FEAR FACTORY войдут в студию
+
+<P><STRONG>FEAR FACTORY</STRONG> войдут в студию в Северном голливуде 5 мая для записи новой пластинки с продюсером <STRONG>Toby Wright</STRONG> (<B>SLAYER</B>, <B>ALICE IN CHAINS</B>, <B>PRIMUS</B>, <B>SEVENDUST</B>).</P>
+Автор: Vit Belov
+
+### 21.06.2005 news Новый альбом FEAR FACTORY
+
+<P>Новый альбом <STRONG>FEAR FACTORY</STRONG> "<STRONG>Transgression</STRONG>" выходит 23 августа на<STRONG> Trillion Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Transgression</B><BR>02. <B>Contagion Empire</B><BR>03. <B>Empty Vision</B><BR>04. <B>New Promise</B><BR>05. <B>Supernova</B><BR>06. <B>540,000 Degrees Fahrenheit</B><BR>07. <B>Spinal Contagion</B><BR>08. <B>Moment of Impact</B><BR>09. <B>Ammunition</B><BR>10. <B>Echo of My Scream</B><BR>11. <B>Anthem</B> (<B>GODFLESH</B>)<BR>12. <B>Millenium</B> (<B>KILLING JOKE</B>) </P>
+<P>В записи пластинки принял участие басист <STRONG>Billy Gould</STRONG> (ex-<STRONG>FAITH NO MORE</STRONG>).</P>
+Автор: Vit Belov
+
+### 26.07.2006 news Новая серия сборников от Roadrunner Records
+
+<P>11 сентября на <B>Roadrunner Records</B> будет&nbsp;реализована новая серия альбомов. Она представляет собой сборники лучших вещей от лучших коллективов лейбла. Первыми в этой серии отметились <B>FEAR FACTORY</B>, <B>SEPULTURA</B>&nbsp;и <B>TYPE O NEGATIVE</B>. Предлагаем вашему вниманию трек-листы этих сборников:<BR><BR><B>SEPULTURA</B> – "The Best Of"<BR>1. <B>Troops Of Doom</B><BR>2. <B>Beneath The Remains</B><BR>3. <B>Inner Self</B><BR>4. <B>Arise</B><BR>5. <B>Dead Embryonic Cells</B><BR>6. <B>Desperate Cry</B><BR>7. <B>Refuse/Resist</B><BR>8. <B>Territory</B><BR>9. <B>Slave New World</B><BR>10. <B>Biotech Is Godzilla</B><BR>11. <B>Roots Bloody Roots</B><BR>12. <B>Attitude</B><BR>13. <B>Ratamahatta</B><BR><BR><B>TYPE O NEGATIVE</B> - "The Best Of"<BR>1. <B>Unsuccessfully Coping With The Natural Beauty Of Infidelity</B><BR>2. <B>Christian Woman</B><BR>3. <B>Black No. 1</B><BR>4. <B>Too Late: Frozen</B><BR>5. <B>Love You To Death</B><BR>6. <B>My Girlfriend's Girlfriend</B><BR>7. <B>Cinnamon Girl</B><BR>8. <B>Everyone I Love Is Dead</B><BR>9. <B>Everything Dies</B><BR>10. <B>Highway Star</B><BR>11. <B>I Don't Wanna Be Me</B><BR>12. <B>Life Is Killing Me</B><BR><BR><B>FEAR FACTORY</B> - "The Best Of"<BR>1. <B>Martyr</B><BR>2. <B>Scapegoat</B><BR>3. <B>Scumgrief</B><BR>4. <B>Demanufacture</B><BR>5. <B>Self-Bias Resistor</B><BR>6. <B>Zero Signal</B><BR>7. <B>Replica</B><BR>8. <B>Shock</B><BR>9. <B>Edgecrusher</B><BR>10. <B>Resurrection</B><BR>11. <B>Cars</B><BR>12. <B>Linchpin</B> </P>
+Автор: Dimas
+
+### 19.05.2007 news Dino Cazares на Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая группа одного из основателей <STRONG>FEAR FACTORY Dino Cazares DIVINE HERESY</STRONG> подписала контракт с <STRONG>Roadrunner</STRONG>. <STRONG>"Bleed The Filth"</STRONG> - первая работа <STRONG>Dino</STRONG> в металле за пять лет. В группу так же войдут барабанщик <STRONG>VITAL REMAINS Tim Yeung</STRONG> и вокалист-дебютант <STRONG>Tommy Vext</STRONG>. Пластинка выйдет в августе, но послушать новые трэки можно здесь: <A href="http://www.myspace.com/divineheresyband">http://www.myspace.com/divineheresyband</A></FONT></P>
+Автор: Vit Belov
+
+### 12.12.2007 news Дебют группы вокалиста FEAR FACTORY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный альбом группы <STRONG>ASCENSION OF THE WATCHERS 'Numinosum'</STRONG>, состоящей из вокалиста <STRONG>Burton C. Bell</STRONG>&nbsp;(<STRONG>FEAR FACTORY</STRONG>) и <STRONG>John Bechdel</STRONG> (<B>MINISTRY</B>, <B>KILLING JOKE</B>, <B>FALSE ICONS</B>), выходит 19 февраля на лэйбле лидера <STRONG>MINISTRY</STRONG> <STRONG>Al Jourgensen</STRONG> <STRONG>13th Planet Records. </STRONG>Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=225 alt="" hspace=0 src="/images/news_rus/2007.12/12030.jpg" width=250 align=right border=5>01. <B>Ascendant</B><BR>02. <B>Evading</B><BR>03. <B>Residual Presence</B><BR>04. <B>Canon For My Beloved</B><BR>05. <B>Moon Shine</B><BR>06. <B>Becoming Mars</B><BR>07. <B>On The River</B><BR>08. <B>Violent Morning</B><BR>09. <B>Like Falling Snow</B><BR>10. <B>Sounds Of Silence</B><BR>11. <B>Quintessence</B><BR></P></FONT>
+Автор: Vit Belov
+
+### 08.04.2009 news Оригинальные члены FEAR FACTORY объединятся
+
+<P>Гитарист <STRONG>Dino Cazares </STRONG>и вокалист <STRONG>Burton C. Bell </STRONG>объединят силы в новом проекте, с которым дадут несколько концертов и запишут альбом. Планируется, что к музыкантам <STRONG>FEAR FACTORY</STRONG> присоединятся басист той же группы <STRONG>Byron Stroud</STRONG>&nbsp;и знаменитый барабанщик <STRONG>Gene Hoglan.</STRONG></P>
+Автор: Vit Belov
+
+### 16.10.2009 news Новый альбом FEAR FACTORY
+
+<P><STRONG>FEAR FACTORY</STRONG> назвали свой новый альбом <STRONG>"Mechanized". </STRONG>Пластинка выйдет в феврале будущего года в группу сейчас входят два оригинальных участника FF <STRONG>Dino Cazares</STRONG> и вокалист <B>Burton C. Bell</B>, а так же басист с двух последних альбомов группы&nbsp;<B>Byron Stroud</B> и барабанщик <B>Gene Hoglan</B> (<B>DETHKLOK</B>, <B>STRAPPING YOUNG LAD</B>, <B>DARK ANGEL</B>, <B>DEATH</B>, <B>TESTAMENT</B>).</P>
+<P>В группе сейчас идёт тяжба, так как остальные оригинальные участники барабанщик <STRONG>Raymond Herrera</STRONG>&nbsp;и гитарист <STRONG>Christian Olde Wolbers</STRONG>&nbsp;отказываются признавать этот <STRONG>FEAR FACTORY. Raymond </STRONG>заявил, что считает эту группу просто проектом <STRONG>Cazares</STRONG> и<STRONG> Bell</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.11.2009 news FEAR FACTORY на Candlelight
+
+<P><STRONG>FEAR FACTORY</STRONG> заключили контракт с <STRONG>Candlelight Records</STRONG>. Новая пластинка <STRONG>"Mechanized" </STRONG>выйдет 9 февраля.</P>
+Автор: Vit Belov
+
+### 08.11.2009 news Raymond Herrera: &quot;Они набрали отличный состав. Проблема лишь в том, что это не FEAR FACTORY&quot;.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>ARKAEA/FEAR FACTORY Raymond Herrera</STRONG> в недавнем интервью рассказал о тяжбе в <STRONG>FEAR FACTORY</STRONG> между им и гитаристом<STRONG> Christian Olde Wolbers</STRONG> с одной стороны и гитаристом <STRONG>Dino Cazares</STRONG> и вокалистом <STRONG>Burton C. Bell</STRONG> с другой. "<EM>У нас будет судебное разбирательство. Dino и Burt захотели использовать название FEAR FACTORY без нашего согласия. Я слышал они подписали бумаги с Candlelight, запланировали тур по Южной Америке... Это ещё&nbsp;"бабушка надвое сказала"... В своё время мы сочиняли материал для нового&nbsp;FEAR FACTORY вместе с Christian, но Burt всё засаботировал</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По словам музыканта, именно поэтому и появился проект<STRONG>&nbsp;ARKAEA</STRONG>, они ждали, когда <STRONG>Burton C. Bell</STRONG> вновь захочет работать. Но он захотел работать с<STRONG> Dino Cazares</STRONG>. <STRONG>Raymond </STRONG>вернулся и ко временам совместной работы с<STRONG> Dino Cazares</STRONG>: "<EM>У меня не было проблем с Dino, основная проблема была между Dino и Burton, а теперь они лучшие друзья. Именно из-за Cazares, наш вокалист хотел покинуть группу в 2002 или 2003 году. Я с трудом отговорил его от такого поступка</EM>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Несмотря ни на что, <STRONG>Raymond Herrera</STRONG> готов работать и с <STRONG>Burton</STRONG>, и с <STRONG>Dino</STRONG> вновь. Он просто хочет переговоров: "<EM>Они набрали отличный состав. Проблема лишь в том, что это не FEAR FACTORY</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 09.11.2009 news Новая песня FEAR FACTORY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню <STRONG>"Powershifter"</STRONG>&nbsp;группы<STRONG> Dino Cazares</STRONG> и <STRONG>Burton C. Bell</STRONG>, называющей себя <STRONG>FEAR FACTORY</STRONG>, можно послушать ниже.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=25 width=320><PARAM NAME="movie" VALUE="http://www.youtube.com/v/TfekNwxK0e4&hl=en&fs=1& &ap=%2526fmt%3D18"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/TfekNwxK0e4&#038;hl=en&#038;fs=1&#038; &ap=%2526fmt%3D18" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="320" height="25"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.11.2009 news FEAR FACTORY выйдет на AFM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выяснилось, что <STRONG>FEAR FACTORY</STRONG> заключили европейское соглашение с <STRONG>AFM</STRONG>. По этому соглашению новый альбом группы <STRONG>"Mechanize" </STRONG>выйдет 5 февраля. Появилась и обложка этого релиза.</FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 src="/images/news_rus/2009.11/15494.jpg" width=400 border=0></FONT> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.02.2010 news Новое видео FEAR FACTORY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>FEAR FACTORY</STRONG> <STRONG>"Fear Campaign" </STRONG>можно посмотреть ниже. Режиссёрами ролика выступили <STRONG>Ian McFarland</STRONG>&nbsp;и <STRONG>Mike Pecci</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT id=flvPlayer codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,0,0 height=345 width=420 align=middle classid=clsid:d27cdb6e-ae6d-11cf-96b8-444553540000><PARAM NAME="_cx" VALUE="11113"><PARAM NAME="_cy" VALUE="9128"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://www.roxwel.com/flashplayer/flvPlayer.swf?embed=true&site=www.roxwel.com&filename=fearfactoryfearcampaign&embed=true&level="><PARAM NAME="Src" VALUE="http://www.roxwel.com/flashplayer/flvPlayer.swf?embed=true&site=www.roxwel.com&filename=fearfactoryfearcampaign&embed=true&level="><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="sameDomain"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="000000"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="false">
+ <embed src="http://www.roxwel.com/flashplayer/flvPlayer.swf?embed=true&site=www.roxwel.com&filename=fearfactoryfearcampaign&embed=true&level=" quality="high" bgcolor="#000000" width="420" height="345" name="flvPlayer" align="middle" allowScriptAccess="sameDomain" allowFullScreen="false" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer" /></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 18.02.2010 news FEAR FACTORY тоже попали в чарты
+
+<P>Новый альбом <STRONG>FEAR FACTORY</STRONG> <STRONG>"Mechanize" </STRONG>был продан в первую неделю в Штатах тиражом 10000 копий. Альбом попал на 72-ое место в чартах <STRONG>Billboard</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.03.2010 reviews FEAR FACTORY понадобился своим создателям
+
+<P>Многие поклонники тяжёлой музыки до сих пор не признают нынешний состав FEAR FACTORY настоящим. Вялая дискуссия о правах на название, между Raymond Herrera и Christian Olde Wolbers с одной стороны и Dino Cazares и Burton C. Bell с другой, похоже ничем не закончилась. “Mechanize” стал плодом усилий Dino и Burton и вышел под вывеской FEAR FACTORY.</P>
+<P>Такое впечатление, что бывшие и нынешние музыканты FEAR FACTORY просто устали ждать, когда публика с плачем начнёт призывать их назад. Несколько проектов Dino и один проект Raymond привлекли внимание публики, но не стали несомненными хитами. Потребовалось что-то посолиднее, чем DIVINE HERESY или ARKAEA. Потребовался новый альбом FEAR FACTORY. Не могу сказать, что “Mechanize” поражает воображение. Отличная гитара, разнообразный материал, но выделить этот альбом из общей массы современной продукции довольно сложно. Видимо, создавать подобное высокотехнологичное звучание, которым отличалась группа в прошлом, сейчас научились многие. </P>
+<P>Dino Cazares старается вернуться в бизнес. К сожалению, для полного финансового успеха ему не хватает одной группы. Теперь надо выпускать альбомы под разными вывесками и активно их поддерживать. Пожелаем ему избежать рутины, свойственной деятельности музыкантов, занимающихся тяжёлой музыкой профессионально.</P>
+Автор: Vit Belov
+
+### 07.04.2010 news FEAR FACTORY и GOJIRA выступят с METALLICA
+
+<P>Как уже сообщалось, <STRONG>METALLICA</STRONG> дадут два концерта в Москве в спорткомплексе "Олимпийский" 24 и 25 апреля. Стало известно, что в качестве суппорта перед thrash-metal звёздами выступят <STRONG>FEAR FACTORY</STRONG> и <STRONG>GOJIRA</STRONG>. Такой же подарок ждёт посетителей концертов в Риге, Вильнюсе и Таллине.</P>
+Автор: Vit Belov
+
+### 18.04.2010 news Вулкан не остановит METALLICA!
+
+<P><STRONG>METALLICA</STRONG> и <STRONG>FEAR FACTORY</STRONG> всё-таки добрались до Риги из Осло, несмотря на отмену всех авиарейсов, связанную с извержением вулкана в Исландии. Более 50 человек обслуживающего персонала и сами музыканты проследовали на автобусах. Поездка заняла более 24 часов. Таким образом, концерты в Москве состоятся!!!</P>
+Автор: Vit Belov
+
+### 17.07.2010 news Новое видео FEAR FACTORY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>FEAR FACTORY</STRONG> на песню <STRONG>"Powershifter" </STRONG>можно посмотреть ниже. Песня взята с последнего альбома группы <STRONG>"Mechanize".</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT id=AOLVP_us_115523709001 height=360 width=475 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="12568"><PARAM NAME="_cy" VALUE="9525"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="Src" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="WMode" VALUE="Transparent"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="000000"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" bgcolor="#000000" width="475" height="360" name="AOLVP_us_115523709001" flashvars="videoid=115523709001&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Fpdlext%2Faol%2Fbrightcove%2Fus%2Fmusic%2Fmusicvideos%2Fcandlelight%5Fafm%2Ffearfactory%2Ffearfactory%5Fpowershifter%5Fvideo%5Fstill%5F480%2Ejpg&publisherid=1612833736&playerid=10032373001&codever=1"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.01.2012 news FEAR FACTORY назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>FEAR FACTORY</STRONG> назвали новый альбом "<STRONG>The Industrialist</STRONG>". Пластинка выйдет в этом году на <STRONG>AFM</STRONG>. Подробности последуют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG height=375 src="/images/news_rus/2012.01/22791.jpg" width=450 border=0></FONT></P>
+Автор: Vit Belov
+
+### 30.03.2012 news Новый альбом FEAR FACTORY
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.03/23348.jpg" width=475 align=right border=0>Новый диск<STRONG> FEAR FACTORY</STRONG> <STRONG>"The Industrialist" </STRONG>выйдет в начале лета. Альбом является концептуальной историей, сочинённой вокалистом коллектива <STRONG>Burton C. Bell</STRONG>. Обложку альбома создал американский дизайнер <STRONG>Anthony Clarkson. </STRONG>Спродюссировал пластинку вновь <STRONG>Rhys Fulber</STRONG>. Сведением занимался <STRONG>Greg Reely</STRONG> (<B itxtHarvested="0" itxtNodeId="63">PARADISE LOST</B>, <B itxtHarvested="0" itxtNodeId="62">SKINNY PUPPY</B>, <B itxtHarvested="0" itxtNodeId="61">MACHINE HEAD</B>).</P>
+<P>Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="43">The Industrialist</B><BR itxtNodeId="42">02. <B itxtHarvested="0" itxtNodeId="41">Recharger</B><BR itxtNodeId="40">03. <B itxtHarvested="0" itxtNodeId="39">New Messiah</B><BR itxtNodeId="38">04. <B itxtHarvested="0" itxtNodeId="37">God Eater</B><BR itxtNodeId="36">05. <B itxtHarvested="0" itxtNodeId="35">Depraved Mind Murder</B><BR itxtNodeId="34">06. <B itxtHarvested="0" itxtNodeId="33">Virus of Faith</B><BR itxtNodeId="32">07. <B itxtHarvested="0" itxtNodeId="31">Difference Engine</B><BR itxtNodeId="30">08. <B itxtHarvested="0" itxtNodeId="29">Dissemble</B><BR itxtNodeId="28">09. <B itxtHarvested="0" itxtNodeId="27">Religion is Flawed Because Man is Flawed</B><BR itxtNodeId="26">10. <B itxtHarvested="0" itxtNodeId="25">Human Augmentation</B><BR itxtNodeId="24">11. <B itxtHarvested="0" itxtNodeId="23">Blush Response (Difference Engine)</B> *<BR itxtNodeId="22">12. <B itxtHarvested="0" itxtNodeId="21">Landfill</B> *</P>
+Автор: Vit Belov
+
+### 27.10.2012 news Новый клип FEAR FACTORY
+
+<P>Видео на песню <STRONG>FEAR FACTORY</STRONG> <STRONG>"The Industrialist" </STRONG>можно посмотреть ниже. Трек является заглавным на новом альбоме американского коллектива, который вышел в этом году на <STRONG>AFM/Фоно</STRONG>.</P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/E510Ixbv-BA" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Vit Belov
+
+### 28.11.2015 news Свитера FEAR FACTORY
+
+<P>Группа <STRONG>FEAR FACTORY</STRONG>, тоже, решила не отставать от своих&nbsp;товарищей по сталелитейному цеху и анонсировала выпуск праздничных свитеров.</P>
+<P>Оставить предварительный заказ на свитер можно по ссылке: <A href="http://fearfactory.gomerch.com/products/holiday-sweatshirt">http://fearfactory.gomerch.com/products/holiday-sweatshirt</A></P>
+<P>Отправка покупателям начнётся 15 декабря.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.11/28550.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 14.04.2016 news FEAR FACTORY: видеоклип  &quot;Expiration Date&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Индустриальные металлисты,&nbsp;группа&nbsp;<STRONG>FEAR FACTORY</STRONG>, презентовали видео на трэк <STRONG>"Expiration Date"</STRONG>. Песня взята с прошлогоднего альбома <STRONG>"Genexus"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/RprNzMtfDrM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Fear Factory, Puya

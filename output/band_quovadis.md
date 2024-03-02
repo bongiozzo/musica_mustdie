@@ -128,6 +128,22 @@ Assassin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.10.2002 news Conquer Records News
+
+<p>We have some news from Conquer Records. 2 new albums were released recently. There are new albums of Hell-Born "The Call of Megiddo" (death-black metal) and Quo Vadis "King" (thrash metal) in stores now. Also new live dates announced. Today - Conquer Records Festival II (Benediction, Hell-Born, Immemorial, Epitome, Hecate Enthroned, Dam) in Lonodn Camden the Underworld. And also 4th of November - Behemoth, Diabolic, Thus Defiled, Epitome, The Enchanted and 21st of November - NECROPHOBIC, Diabolical, Domain, Hell-Born, Quo Vadis, Corruption, Unnamed, Mess Age.</p>
+
+Автор: Vit Belov
+
+### 08.09.2011 reviews Неординарные поляки предлагают острое блюдо
+
+<P>Польские ветераны тяжёлого жанра QUO VADIS были основаны в 1986 году. “Infernal Chaos” – это уже восьмой альбом неординарного коллектива, который вышел для наших широт на украинском лэйбле Metal Scrap Production.</P>
+<P>Качественный и разнообразный материал с великолепной атмосферой, который придётся по вкусу каждому поклоннику power-metal или thrash-metal. В творчестве поляков основное место занимает концепция, которая и подчиняет себе всё происходящее. Особенно впечатляют несколько открывающих CD треков, где QUO VADIS отменно передают восточные мотивы. Наилучшим сравнением для поляков на текущем этапе их развития, по моему мнению, станут GRAVE DIGGER, которые так же умело распоряжаются возможностями, предоставленными палитрой тяжёлого метала. Так же, как и у знаменитых немцев, у QUO VADIS существуют проблемы с удержанием внимания слушателей к концу пластинки, но всех любителей тяжёлого метала в России ждёт в самом конце сюрприз. Трек с названием “Russia”, на котором поляки высказывают своё отношение к нашей стране, используя в проигрыше нашу «Катюшу».</P>
+<P>Хороший и интересный альбом, которых не так много на современной сцене. Как и другие необычные работы, “Infernal Chaos” вызывает неоднозначные чувства, но слушать пластинку одно удовольствие.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

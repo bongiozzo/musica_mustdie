@@ -178,6 +178,51 @@ Mastered By Bob Ludwig
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>GODFLESH выпускает свой новый альбом "Us And Them" в марте этого года.</p>
+
+Автор: Vit Belov
+
+### 28.10.2001 news Бен Грин уходит из GODFLESH ...
+
+<p>Индустриальщики "GODFLESH" расстались с одним из основателей - бассистом Ben Green, который оставил команду для "университета и другой карьеры...". Запланированный ранее европейский тур с FEAR FACTORY, все же состоится с Paul Raven (ex-KILLING JOKE, PRONG) на басу...</p>
+
+Автор: Yermola
+
+### 28.10.2001 news GODFLESH have parted ways with Ben Green...
+
+<p>GODFLESH have parted ways with Ben Green, bass player and co-founder of the band, who reportedly left the group in order to “go to university and pursue another career". The group’s upcoming European tour with FEAR FACTORY will still take place, with Paul Raven (ex-KILLING JOKE, PRONG) filling in on bass. Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+### 08.10.2003 news Новый опус AGORAPHOBIC NOSEBLEED
+
+Последователем их последнего релиза "Altered States Of America" будет split CD вместе с новой группой JESU в начале 2004 году. JESU - долгожданный проект лидера GODFLESH Justin Broadrick (также новая группа включает в себя бывших участников GODFLESH - Ted Parsons и Paul Neville).
+Автор: Darkfall
+
+### 08.08.2009 news Новая компиляция от EARACHE RECORDS
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.08/14781.jpg" width=400 align=right vspace=5 border=0>Earache Records</STRONG> - родной дом для многих групп-создателей жанра <STRONG>grindcore</STRONG>, подготовил к выпуску специальное издание из трёх дисков. Компиляция названная <STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)" </STRONG>включает в себя одни из самых первых записей в стиле <STRONG>grindcore</STRONG>.</P>
+<P>Все треки были взяты из первых передач <STRONG>John Peel</STRONG> на радио <STRONG>BBC</STRONG> и записаны на студии <STRONG>Maida Vale</STRONG> в Лондоне, между 1987 и 1990 годами.</P>
+<P>С самых первых дней <STRONG>Earache Records</STRONG>, <STRONG>John Peel</STRONG> оказывал огромную поддержку лейблу и его группам, дал возможность<STRONG>&nbsp;NAPALM</STRONG> <STRONG>DEATH</STRONG> и <STRONG>HERESY</STRONG> проиграть свои песни&nbsp;в эфире английского&nbsp;радио-шоу. В последующие годы, такие группы как <STRONG>NAPALM DEATH</STRONG> и <STRONG>CARCASS</STRONG> приписывали <STRONG>John Peel</STRONG> роль "ускорителя" их карьеры.</P>
+<P>И теперь, <STRONG>Earache Records</STRONG> впервые получил права от <STRONG>BBC</STRONG> на выпуск этих инновационных радио-сессий в полном объёме.</P>
+<P>Три диска включают в себя 118 треков классических записей от <STRONG>NAPALM DEATH</STRONG>, <STRONG>CARCASS</STRONG>, <STRONG>BOLT</STRONG> <STRONG>THROWER</STRONG>, <STRONG>EXTREME NOISE</STRONG> <STRONG>TERROR</STRONG>, <STRONG>GODFLESH</STRONG>, <STRONG>HERESY</STRONG>, <STRONG>UNSEEN</STRONG> <STRONG>TERROR</STRONG> и <STRONG>INTENSE</STRONG> <STRONG>DEGREE</STRONG>, общим временем звучания более трёх с половиной часов.</P>
+<P>Издание будет упаковано в слипкейс, а так же, содержать обширное интервью с бывшим барабанщиком <STRONG>NAPALM DEATH</STRONG> и изобретателем термина<STRONG> "grindcore"</STRONG> -<STRONG> Mick Harris</STRONG>.</P>
+<P><STRONG>"Grind Madness At The BBC (The Earache Peel Sessions)"</STRONG> ожидается к выходу 12 октября.</P>
+<P>Для получения более полной информациии, поситите: <A href="http://www.myspace.com/grindmadness">www.myspace.com/grindmadness</A>.</P>
+Автор: Headcrusher
+
+### 12.03.2012 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.03/23250.png" width=300 height=165>Ещё несколько участников добавилось в состав фестиваля <STRONG>"Brutal Assault"</STRONG> этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это - легендарная группа из Северной Каролины<STRONG> CORROSION OF CONFORMITY</STRONG>, канадские дет-металлисты <STRONG>GORGUTS</STRONG>, исландцы <STRONG>SOLSTAFIR</STRONG>, норвежские блэкари <FONT color=#ddd9d0><STRONG>KAMPFAR</STRONG> и поклонники древних египетских культов <STRONG>NILE</STRONG>.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также, одни из пионеров industrual <STRONG>GODFLESH</STRONG>, подтвердили своё участие в фестивале 2012 года.&nbsp;Проект образованный <STRONG>Джастином Бродриком</STRONG>&nbsp;(<FONT color=#ddd9d0>Justin Broadrick) и <STRONG>Джи Си Грином</STRONG> (G. C. Green)</FONT>&nbsp;в 1988 году и успешно просуществовал до 2002 года, после чего, была распущен, но снова вернулась к деятельности в 2010, выступив на нескольких фестивалях.</FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### GODFLESH в Москве | 24 августа 2013

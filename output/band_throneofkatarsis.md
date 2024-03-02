@@ -24,6 +24,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.08.2011 news Новая работа THRONE OF KATARSIS
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.08/20445.jpg" width=475 align=right border=0>Новый альбом норвежцев <STRONG>THRONE OF KATARSIS</STRONG> <STRONG>"Ved Graven" </STRONG>выйдет 24 октября на <STRONG>Candlelight.</STRONG> Black-metal коллектив обещает мрачнейший материал в своей истории. Трек-лист:</P>
+<P>01. <B>Profetens Siste Vandring</B><BR>02. <B>Helvete Kaller</B><BR>03. <B>Av Dypets Kulde</B><BR>04. <B>The Holy Remains The Weak</B><BR>05. <B>Mesterens Tilbakekomst</B><BR>06. <B>&#197;pne Alle Sar</B><BR>07. <B>The Ultimate Shrine</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

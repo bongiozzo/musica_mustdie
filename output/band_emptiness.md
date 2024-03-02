@@ -39,6 +39,15 @@ old school black-death from Belgium
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.05.2003 news Emptiness signed deal...
+
+<p>EMPTINESS (black/death: BEL) has signed a contract for 2 albums with Painkiller records. The first album "Guilty to exist" will be recorded in july and release in Octobre 2003 (CD, Lp, t shirts, sweats will be available !).</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

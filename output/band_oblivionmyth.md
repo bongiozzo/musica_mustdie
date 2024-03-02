@@ -30,6 +30,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2011 news OBLIVION MYTH подготовили новую музыку
+
+<P>Power-progressive-metal группа из США<STRONG> OBLIVION MYTH</STRONG> записала новую песню <STRONG>'War Child'</STRONG>, которая доступна к прослушиванию на сайте коллектива. Этот трек стал дебютом для нового вокалиста группы <STRONG>Ray LeGrand</STRONG>, который влился в состав <STRONG>OBLIVION MYTH</STRONG> в мае прошлого года. </P>
+<P>Последний альбом коллектива "<STRONG>Between Light and Shadow</STRONG>" вышел в 2008 году.</P>
+<P><A href="http://www.oblivionmyth.com/Main.html">http://www.oblivionmyth.com/Main.html</A></P>
+<P><center><IMG height=496 src="/images/news_rus/2011.07/20182.jpg" width=500 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

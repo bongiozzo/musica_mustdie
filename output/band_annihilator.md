@@ -352,6 +352,986 @@ Disc 2 - Raven Street Sessions
 * C группой "Primal Fear" Randy Black (drums)
 * C группой "Rebellion" Randy Black (drums)
 
+## Публикации
+
+### 23.05.1999 news 
+
+<p>Annihilator заключили контракт с Roadrunner и выпустят свой девятый альбом "Criteria for The Black Widow". На альбоме появится вернувшийся вокалист Рэнди Рэмпейдж.</p>
+
+Автор: Vit Belov
+
+### 10.03.2000 articles OVERKILL Vs ANNIHILATOR
+
+<p>24 февраля в Москве в Горбушке состоялся первый концерт этих легенд спид-трэш металла.</p>
+<P> Первое, что поразило при подходе к ДК это малое количество фэнов, собравшихся послушать эти группы. Не знаю, что повлияло на посещаемость, может цена билетов (300 руб. ~10$) или малопопулярность этих великих групп в массах, но факт налицо. В итоге народ подтянулся, но Горбушка не была заполнена. Концерт был назначен на 19-00, но Annihilator вышел на сцену лишь около 19-30, так как всех желающих через узкий милицейский кордон очень долго пропускали. Такое впечатление, что нашим органам лишь бы показать свою власть. Представьте себе, стоит кучка фэнов, около 50 человек, а перед ней три милиционера, которые беспрестанно орут: "Не толкаться!!! Сейчас я тоже буду толкаться!!" Мне кажется, поставь одного металлиста, и служители порядка всё равно будут кричать. Но рассказ не о том. Annihilator был на разогреве, поэтому какого-то особенного звука или света им не досталось. Поначалу народ долго раскачивался, так как в зале большинство пришло всё-таки на Overkill, но затем усилиями вокалиста, а, прежде всего, гитариста и лидера группы Джеффа Уотерса фэны раскачались. После завершения их сета, который продлился около 40-50 минут, металлхэды сразу стали вызывать Overkill, но Annihilator вышел и спел ещё одну песню на бис, во время которой вокалист прыгнул в зал, и его, конечно же, никто не поймал, а долго вытаскивал назад охранник. После получасового перерыва на сцене, наконец-то, появились Блиц и компания. Тут было всё и звук, и свет, и едко-зелёная дымовуха. Были исполнены песни со всех альбомов, включая первый "Feel The Fire", что приятно удивило. Зрители услышали такие хиты, как "Bastard Nation", "Wrecking Crew", "Coma". Также был исполнен кавер Motorhead "Overkill", а песню "In Union We Stand" мы исполняли хором, правда, слов почти никто нормально повторить не мог. Порадовал Блиц, который постоянно общался с публикой, рассказывая, как он рад нас видеть, металл дело интернациональное и.т.д. Даже несколько раз он выкрикнул слова благодарности по-русски. Вот кого не хотели отпускать со сцены, так это Overkill. Бобби говорил, что уже завтра им выступать в другой стране, но никто его не понимал или не слушал. Кто-то даже подарил ему розу, что, согласитесь, на подобных концертах редкость. В итоге из темноты появился один гитарист группы, который начал играть Эдварда Грига, а затем к нему присоединился второй "лобатель". Выскочил Элсворт, и группа отыграла ещё две песни Overkill (свою песню) и Fuck You, во время которой Бобби тоже прыгнул в зал. Толпа дотащила меня до сцены, где я увидел его близко. Он лежал на руках у фэнов и хохотал в то время, как наша бедная охрана пыталась его вытащить. На этом концерт завершился, но всё-таки хотелось бы, чтобы сет был по длиннее, чем 50-55 минут.</>
+<P> Про концерт Kreator Вы ничего не увидите ни в газете, ни здесь, так как фирма Фили не считает меня сколько-нибудь ценным изданием.</>
+<P></>
+<P></>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Рэнди Рампэйдж вновь покинул Annihilator. После концерта в Риге Ренди напился и в белке пытался зарезать Джэффа Уотерса (это вам не шутки). Джефф Уотерс ищет нового вокалиста для своей команды.</p>
+
+Автор: Vit Belov
+
+### 15.06.2000 news Новый вокалист Annihilator
+
+<p>Новым вокалистом Annihilator стал Joe Comeau. Бывший гитарист Overkill и солист группы Liege Lord. Напомним, что предыдущий вокалист Annihilator был изгнан за пьянку и поножовщину во время тура по СНГ.</p>
+
+Автор: Vit Belov
+
+### 15.06.2000 news New singer of Annihilator
+
+<p>Annihilator's new vocalist is Joe Comeau, former guitarist with Overkill and singer for Liege Lord.</p>
+
+Автор: Vit Belov
+
+### 05.09.2000 news Новый лейбл группы Annihilator
+
+<p> Annihilator договорились с Metal-Is о релизе их нового диска под названием "Carnival Diablos". Это будет дебютная работа в группе вокалиста Joe Comeau (Overkill, Liege Lord).</p>
+
+Автор: Nybras
+
+### 06.09.2000 news The new label of Annihilator
+
+<p> Annihilator has defined Metal-Is as their new label to release next opus "Carnival Diablos", which will mark the debut of vocalist Joe Comeau (Overkill, Liege Lord). It will feature the following tracks: 'Time Bomb', 'Battered', 'The Perfect Virus', 'Carnival Diablos', 'Shallow Grave', 'Denied', 'The Rush', 'Insomniac', 'Liquid Oval', 'Epic Of War', 'Hunter Killer' and 'Chicken And Corn'. Release date: November 7.</p>
+
+Автор: Nybras
+
+### 21.12.2000 news Century Media трибьют Uriah Heep
+
+<p>По сообщению Century Media Record новый вокалист Annihilator - Joe Comeau и гитарист Paul Nelson объединились и записали версию классической "Too Scared to Run" для трибьюта Uriah Heep. Мировой релиз ожидается в феврале 2001.</p>
+
+Автор: Yermola
+
+### 21.12.2000 news Century Media Uriah Heep Tribute
+
+<p>Annihilator's new vocalist Joe Comeau and guitarist Paul Nelson have teamed up and recorded a killer version of the classic "Too Scared to Run" as part of Century Media Record's Tribute to Uriah Heep album, look for a world wide release scheduled for February 2001.</p>
+
+Автор: Yermola
+
+### 26.12.2000 news Annihilator выложили новые mp3 на своём сайте
+
+<p> С официального сайта группы Annihilator (www.annihilatormetal.com) можно скачать mp3 их новой песни "Battered" с будущего альбома "Carnival Diablos".</p>
+
+Автор: Nybras
+
+### 13.02.2001 reviews Jeff Waters полностью восстановил свое доброе имя
+
+<p>Jeff Waters полностью восстановил свое доброе имя. Новый альбом канадцев безусловно достоин первых двух шедевров Annihilator - "Alice In Hell" и "Never, Neverland", хотя и является заметным их сплавом. Альбом сразу начинается с долгого жесткого вступления с фирменными уотеровскими зажимами. Новый вокалист Joe Comeau сочетает в себе агрессию и романтичность-распевчатость предыдущих вокалистов. Он потрясает своими возможностями, выдавая разные вокалы, от злобного до лиричного чистого, а иногда даже высокий в духе Хэлфорда. Все жесткие моменты и гитарные соло напоминают "Alice In Hell", а лиричные отступления и акустические вступления точь-в-точь с "Never, Neverland". Иногда даже в открытую попахивает самоплагиатом, но это почему-то не выводит из себя, а лишь вызывает улыбку на лице и ностальгические воспоминания. Отличнейшая порция мощнейшего techno-thrash metal. Музыка несмотря на свою некоторую прямолинейность, разнообразна и интересна сочетанием мелодизма и тяжести. В общем - грандиознейший альбом! Скорее приобретайте его и наслаждайтесь.</p>
+
+Автор: Dimas
+
+### 15.02.2001 reviews Jeff Waters completely has restored the kindness a name
+
+<p>Jeff Waters completely has restored the kindness a name. The new album of canadiens unconditionally of the maiden two masterpieces Annihilator - " Alice In Hell " and " Never, Neverland ", though is their noticeable alloy. The album at once starts with the long rigid introduction with firm by Waters clamps. New voiceman Joe Comeau combines in itself aggression and romanticism previous voicemans. He shocks by the capabilities, giving miscellaneous vocals, from bitter up to lyrical clean, and sometimes even high in spirit of Halford. All rigid moments and guitar solo resemble " Alice In Hell ", and lyrical of departure and acoustic introductions exactly with " Never, Neverland ". Sometimes even in open by the self-plagiarism, but it for some reason does not inject from itself, and only invokes a smile on a face and nostalgic memories. A finest portion most powerful techno-thrash metal. Music despite of some straightness, is miscellaneous and is interesting by combination melodic and gravity. In general - grandious album! Gain without delay it and enjoy.</p>
+
+Автор: Dimas
+
+### 16.03.2001 reviews Новые песни о старом
+
+<p> Джефф Уотерс продолжает нещадно эксплуатировать фишки, изобретенные им еще в 1989 году. Если предыдущий лонгплей "Criteria For A Black Widow", явившийся возвращением к жесткому звучанию Annihilator времен легендарного альбома "Alice In Hell", внушал некоторый оптимизм и даже вызвал всплеск интереса к группе, то новое творение "Carnival Diablos", призванное, видимо, повторить успех "Criteria ...", скорее поверграет в уныние. Несмотря на достаточно жесткое, выдержанное в духе "Criteria...", звучание и наличие нескольких неплохих треков альбом явно не дотягивает до своего предшественника. Все те же до боли знакомые фишки здесь упрощены и сглажены, и безудержной энергии старого Annihilator'а почти не чувствуется. Тексты песен, насколько позволяет мне судить знание английского языка, также посвящены заезженным до дыр темам - война, катаклизмы, убийство миллионов и т.д. Не знаю, удастся ли Уотерсу вторая попытка выехать на ностальгических чувствах старых поклонников трэша, но лично у меня она вызвала только неподдельную скуку и желание поставить на группе большой и жирный крест.</p>
+<p></p>
+
+Автор: Martin
+
+### 03.04.2001 news TRIBE OF JUDAH ...
+
+<p>Барабанщик Mike Mangini (EXTREME / ANNIHILATOR) и вокалист Gary Cherone (VAN HALEN / EXTREME) замутили новый проект "TRIBE OF JUDAH" и уже даже успели записать пару песен.</p>
+
+Автор: Yermola
+
+### 03.04.2001 news TRIBE OF JUDAH ....
+
+<p>Former EXTREME / ANNIHILATOR drummer Mike Mangini & Friends will be performing at the Berklee Performance Center in Boston, MA on Saturday, April 7th. Reliable sources indicate that former VAN HALEN / EXTREME vocalist Gary Cherone, who is in a new band called TRIBE OF JUDAH with Mangini, will “pop over” for a song or two.</p>
+
+Автор: Yermola
+
+### 09.04.2001 news От ANNIHILATOR ушел барабанщик...
+
+<p>Ray Hartman сидевший долгое время за ударной установкой "ANNIHILATOR" решил сосредоточиться на собственной семье и оставил команду. На замену ему взят Randy Black бывший в составе в период 1993-1996.</p>
+
+Автор: Yermola
+
+### 09.04.2001 news Drummer Ray Hartman is reportedly leaving ANNIHILATOR...
+
+<p>ANNIHILATOR drummer Ray Hartman is reportedly leaving the band to concentrate on family life and will be replaced by returning skinsman Randy Black, who originally sat behind the kit for the Canadian outfit during the 1993-1996 period.</p>
+
+Автор: Yermola
+
+### 29.11.2001 news Пробуждая Ярость...
+
+<p>Гитарист Curran Murphy официально покинул "NEVERMORE" и присоединился к "ANNIHILATOR". Теперь команда имеет в своих рядах: Joe Comeau (вокал), Russ Bergquist (басс), Jeff Waters (гитара), Curran Murphy (гитара) и Randy Black (барабаны). Новый альбом канадцев "Waking The Fury" уже практически готов - микширование закончится в середине Декабря. Полный трек-лист: <BR><BR> 01. My Precious Lunatic Asylum <BR> 02. Nothing To Me <BR> 03. Ritual <BR> 04. Striker <BR> 05. The Blackest Day <BR> 06. Cold Blooded <BR> 07. Torn <BR> 08. Fire Power <BR> 09. Ultra-Motion <BR> 10. Prime-Time Killing <BR><BR> "Waking the Fury" выйдет в Европе и Японии в марте. Дата американского релиза пока неизвестна...</p>
+
+Автор: Yermola
+
+### 29.11.2001 news Waking The Fury...
+
+<p>Guitarist Curran Murphy has officially left NEVERMORE to join ANNIHILATOR. The band's current line-up consists of Joe Comeau (vocals), Russ Bergquist (bass), Jeff Waters (guitar), Curran Murphy (guitar) and Randy Black (drums). According to www.bravewords.com, ANNIHILATOR's forthcoming album, Waking The Fury, is nearly complete, with the mixing/mastering due to be done around mid-December. The full track listing for the CD is as follows: <BR><BR> 01. My Precious Lunatic Asylum <BR> 02. Nothing To Me <BR> 03. Ritual <BR> 04. Striker <BR> 05. The Blackest Day <BR> 06. Cold Blooded <BR> 07. Torn <BR> 08. Fire Power <BR> 09. Ultra-Motion <BR> 10. Prime-Time Killing<BR><BR> Waking the Fury is set to be issued in Japan and Europe in late March in Japan and Europe; a North American release should take place shortly thereafter.</p>
+
+Автор: Yermola
+
+### 30.11.2001 news Жертва или Враг?
+
+<p>"AGGRESSION CORE" ведомые гитаристом Curran Murphy (ANNIHILATOR и NEVERMORE ) записывают новый альбом "Victim Or Enemy" в собственной студии Мэрфи Smiley Sounds Studios. Микшировать все это дело будет главарь "ANNIHILATOR" - Jeff Waters. На диск войдут следующие песни: <BR><BR> <IMG SRC="/images/news/2001.11/2113.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> 01. Dreaming of Murder <BR> 02. Talk To Me <BR> 03. Victim or Enemy <BR> 04. Dethroned <BR> 05. Life Sentence <BR> 06. (F.ck You) Nazi Boy <BR> 07. Shine <BR> 08. Broken Back <BR> 09. I Hate You <BR> 10. Drunk (instrumental)<BR><BR> Лэйбл для выпуска релиза пока не найден, но уже проведены предварительные переговоры с Century Media и Nuclear Blast.</p>
+
+Автор: Yermola
+
+### 30.11.2001 news Victim Or Enemy...
+
+<p>Despite having just joined the ranks of Canada’s ANNIHILATOR, former NEVERMORE axeman Curran Murphy has no intention of leaving his longtime outfit AGGRESSION CORE, which is currently in the process of recording its sophomore CD, according to a statement sent by the guitarist to BLABBERMOUTH.NET. The upcoming CD, entitled Victim Or Enemy (the projected artwork for which can be viewed here), is presently being tracked at Murphy’s own Smiley Sounds Studios, and will likely be mixed by either ANNIHILATOR mainman Jeff Waters or STRAPPING YOUNG LAD mastermind Devin Townsend, if Curran has his way. Among the tracks that are tentatively set to appear on Victim Or Enemy are the following: <IMG SRC="/images/news/2001.11/2113.jpg" ALT="pho" width="160" height="160" hspace="15" vspace="5" border="1" align="right"> <BR><BR> 01. Dreaming of Murder <BR> 02. Talk To Me <BR> 03. Victim or Enemy <BR> 04. Dethroned <BR> 05. Life Sentence <BR> 06. (F.ck You) Nazi Boy <BR> 07. Shine <BR> 08. Broken Back <BR> 09. I Hate You <BR> 10. Drunk (instrumental)<BR><BR> According to Curran, two additional, as-yet-untitled cuts will appear on the CD, both of which feature a “more powerful and melodic style” than what the group has done in the past. Although no record deal has yet been secured for the group, Murphy has apparently been “talking with Century Media as well as Nuclear Blast, and we are hoping that through the ANNIHILATOR connection, as well as my history of kicking the sh.t out of people live with NEVERMORE, this will generate the kind of buzz and interest to have one of these labels pick us up and have us tour ourselves to f.cking death!” For more information, and regular studio updates, visit the band’s official web site at www.aggressioncore.com. <BR><BR> Murphy also commented on his departure from NEVERMORE by saying that “I came to the decision to leave the NEVERMORE fold after Jeff Waters offered to have me join ANNIHILATOR as an equal member and to actually get to record on the record with him. In the NEVERMORE zone, it is really all about Jeff, Van, and Jim doing the music, and Warrel doing his lyric work. I don't know of anybody out there who wants to stay in any kind of a job where you can never get a raise or advance your position or do anything to improve your career situation. So I went with ANNIHILATOR.”</p>
+
+Автор: Yermola
+
+### 05.02.2002 news Вы хотите ANNIHILATOR? Их есть у меня...
+
+<p>Две песни с нового (еще не вышедшего!) альбома "ANNIHILATOR" - Waking The Fury можно послушать в виде МР3 здесь: <BR> <BR> <A HREF="http://www.annihilatormetal.com/cold.mp3">01. Cold Blooded</A><BR> <A HREF="http://www.annihilatormetal.com/asylum.mp3">02. My Precious Lunatic Asylum </A></p>
+
+Автор: Yermola
+
+### 05.02.2002 news ANNIHILATOR Sound Clips Available For Download ....
+
+<p>Sound clips of two tracks from ANNIHILATOR's forthcoming Waking The Fury CD can be downloaded in MP3 form at the following locations: <BR> <BR> <A HREF="http://www.annihilatormetal.com/cold.mp3">01. Cold Blooded</A><BR> <A HREF="http://www.annihilatormetal.com/asylum.mp3">02. My Precious Lunatic Asylum </A></p>
+
+Автор: Yermola
+
+### 05.03.2002 news ANNIHILATOR Austrian Live Dates Confirmed ...
+
+<p>Canadian metallers ANNIHILATOR have announced the dates for the Austrian portion of their forthcoming European tour. They are as follows: <BR><BR> Apr. 30 – Wien, AUS @ Planet Music<BR> May 01 - Salzburg, AUS @ Rockhouse<BR> May 02 - Graz, AUS @ Orpheum<BR> May 03 - Wцrgl, AUS @ Komma<BR> May 04 - Dornbirn, AUS @ Conrad Sohm<BR><BR> ANNIHILATOR's latest CD, entitled Waking The Fury, will receive a European release through SPV/Steamhammer Records on March 18th.</p>
+
+Автор: Yermola
+
+### 06.03.2002 news Возрадуйтесь, трэшеры!
+
+<p>Наконец-то вышел официальный альбом группы Annihilator<A HREF="http://www.annihilatormetal.com/"></A>. Музыканты рады, поклонники рады... В общем, ждите весной в гости.</p>
+
+Автор: Bassist
+
+### 28.09.2002 news Новости от ANNIHILATOR
+
+<p>ANNIHILATOR готовят к выпуску двойной концертный альбом "Double Live Annihilation", который должен выйти в январе 2003 года. Альбом записан во время июньского турне группы по Европе. В альбом войдут следующие вещи:</p>
+<p>01. Murder 02. Ultra Motion <BR> 03. The Box <BR> 04. Denied <BR> 05. The Blackest Day <BR> 06. King Of The Kill<BR> 07. Torn Lunatic Asylum <BR> 08. Set The World On Fire<BR> 09. I Am In Command <BR> 10. Refresh The Demon <BR> 11. Syn. Kill 1<BR> 12. Never, Neverland <BR> 13. Striker<BR> 14. Bliss <BR> 15. Phantasmagoria <BR> 16. Crystal Ann <BR> 17. Alison Hell <BR> 18. Shallow Grave</p>
+
+Автор: Dimas
+
+### 11.03.2003 bios ANNIHILATOR Biography...
+
+<p>Since Jeff Waters left Ottawa and moved West to found Annihilator, subsequently producing two extraordinarily successful albums, Alice In Hell (1989) and Never, Neverland (1990), and embarking on a triumphant march half way round the globe, his band has been among the best and most authentic acts that the international metal scene has to offer. This basic fact never altered, despite a number of line-up changes. During the Nineties, various different vocalists and countless musicians came and went, yet Water's visions of tough power metal did not suffer from any of these changes. "For some reason, Annihilator were always like a solo project," he explains, pointing out that he is not only the group's guitarist, composer and arranger, but also increasingly produces their material. "Of course it wasn't always easy to come to terms with all these new situations, particularly in the early days. There are areas that seem painless to me and that I enjoy a lot. Writing songs and record! <BR> ing the guitar parts is like a holiday for me. Production and mix on the other hand are much more difficult. You have to make so many decisions, bear every minute detail in mind and coordinate everything. Particularly the end mix is always a tough nut to crack, since after months of studio work your ears simply aren't fresh any more."Yet Waters has once again succeeded in producing an album that leaves nothing to be desired, neither on the compositional nor on the production level. Tracks like the compelling 'Torn', the powerful 'My Precious Lunatic Asylum' and 'Prime Time Killing' or the programmatic 'Fire Power' show Annihilator from their most passionate side. The songs are full of energy and depth, offer a direct and straightforward stance without neglecting the band's familiar love of rhythmic detail. The vague assumption that Waters may currently be undergoing an emotionally difficult phase and consequently has - as was repeatedly hinted in previous interviews - so much !<BR> raw, aggressive energy, earns a cheerful laugh: "My private situat ion is currently extremely content and balanced. I am married, have three wonderful children, the band is going well, I don't know what more I could ask for." Former Overkill member Joe Comeau has become the most important band member (next to Waters, naturally) since the previous release Carnival Diablos. "Joe's strongest feature is the fact that his voice always sounds the way we need it to sound at any given time," Waters grins. "That's a great advantage because I can put my ideas into practice the way I have them in my head. He's able to copy every previous Annihilator vocalist, myself included, while at the same time bringing in his own style. On top of that he's gone through an amazing development over the past one and a half years. Joe sings better than ever before in his life on Waking The Fury. I'm proud to have him in the band." Drummer Randy Black, who was first a member between 1993 and 1997, has returned to the Annihilator fold and proves once more that he's a pro!<BR> found and energetic drummer. Curran Murphy joined the band to replace long-term guitarist Dave Scott Davies, who left a few months ago, while the fruitful cooperation with bassist Russ Bergquist continues. With this line up, Annihilator recorded their latest studio album Waking The Fury, which combines an amazing scope of different styles and versatile influences. Acts like Metallica, AC/DC or Megadeth are still a big influence for Waters, just like Iron Maiden, Judas Priest or indeed Slayer. "Naturally, as a musician you always think that the latest material is the best ever, but I'm pretty confident that I'll still be able to claim in a few years' time that Waking The Fury is the most outstanding Annihilator album in many years. I haven't felt this happy about the production of any of our four previous releases." After the very successful tour for "Waking The Fury", Annihilator decided to sign a contract with the German label AFM Records. The first release of their new recor!<BR> d label will be the album "Double Live Annihilation", a double live CD wich shows all the rough- and the tightness of an Annihilator live show. This album includes all Annihilator classics as well as the latest material on two CDs. There will be a limited first edition in a Digi Book format with lots of bonus material and two video clips.</p>
+
+Автор: Yermola
+
+### 17.03.2003 reviews Двойной удар уничтожителя
+
+<p>Скажу сразу - это один из лучших концертных альбомов, что я слышал. Вообще, я концертные альбомы не особо жалую, но когда слушаешь подобные творения, остается только поднять руки и сдаться. Канадские техничные трэшеры записали этот альбом во время прошлогоднего июньского турне. Это первый релиз группы после подписания контракта с AFM records. Очень удачное начало сотрудничества. Превосходный концертный звук, совершенно не раздражающий, великолепная техника, некоторые песни звучат даже лучше, чем в альбомной версии. Трэк-лист охватывает в равной мере все периоды почти пятнадцатилетнего творчества группы. Девяносто две с половиной минуты звукового ряда очень достоверно передают настроение живого концерта. Это настоящий speed-thrash metal! Безумный фронтмен Joe Comeau, два гитарных бога Curran Murphy и особенно Jeff Waters, и ритм секция из ада Randy Black за барабанной установкой и Russ Bergquist на басу, что вам еще надо? Канадский гитарный маг Jeff Waters в очередной раз продемонстрировал великолепное искусство владения своим инструментом и вновь озадачил меня вопросом, почему же он до сих пор не оценен по достоинству! Остается добавить, что альбом вышел у нас в России благодаря компании CD-Maximum в виде двойного диджибука и содержит помимо музыкального материала компьютерную секцию куда входят множемтво фотографий группы, два неизданных концертных видеоклипа и хранитель экрана. Наслаждайтесь...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 29.05.2003 news Annihilator сменили вокалиста
+
+<p>Из Annihilator ушёл Джо Комо. По словам Джеффа Уотерса, между ним и Джо возник ряд серьёзных разногласий немузыкального характера. Новым вокалистом Annihilator стал Дейв Падден.</p>
+
+Автор: Morsus
+
+### 29.05.2003 news Annihilator change vocalist
+
+<p>Annihilator and vocalist Joe Comeau have gone separate ways. According to Jeff Waters: "Joe and I had a difference of opinion on an issue (not of a musical nature) that just couldn't be resolved mutually." The new vocalist of the band is Dave Padden.</p>
+
+Автор: Morsus
+
+### 14.06.2003 news Новости от ANNIHILATOR
+
+<p>Вместо ушедшего Joe Comeau, новым вокалистом ANNIHILATOR стал Dave Padden. Новый студийный альбом группы ожидается в сентябре от AFM Records.</p>
+
+Автор: Dimas
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 25.08.2003 news PRIMAL FEAR have parted ways with drummer ...
+
+<p>German power metallers PRIMAL FEAR have parted ways with drummer Klaus Sperling and have replaced him with ANNIHILATOR skinsman Randy Black. <BR><BR> "Due to musical differences, PRIMAL FEAR and Klaus Sperling decided to part ways," reads an official statement announcing the split. "PRIMAL FEAR and Klaus Sperling are very sorry about this step, especially with regard to their true fans that surely would have wanted to keep the band as the winning team as they were! But there are internal decisions sometimes that an outer person will find hard to understand where band members just can't cope with an active state. Especially in music, where it comes to a creative process like composing and forming an unique vision together, inner tensions may grow and become a disturbing part of the art and make it unable to continue. At this point it is the better way to follow separate visions. PRIMAL FEAR and Klaus are parting ways in friendship and mutual understanding. We wish Klaus the best of luck and success for his upcoming musical plans and future!”<BR><BR> "The new drummer of the Metal Commando is ANNIHILATOR drummer Randy Black. We will start the recordings for our new album in late September, tentatively titled Primal Fear – In Metal, at the House Of Music studios. The songwriting is completed and we promise to keep our faith in metal and we will work hard to deliver the best album of our career. The new album will be released worldwide on Feb 23rd 2004, (and) the world tour starts on March 3rd in Europe with special guests BRAINSTORM!"</p>
+
+Автор: Yermola
+
+### 25.08.2003 news Приобретение у PRIMAL FEAR ...
+
+<p>Немецкие пауэрщики PRIMAL FEAR пригласили барабанщика Рэнди Блэк из канадской формации ANNIHILATOR взамен ушедшего Klaus Sperling. Уже в сентябре группа в обновленном составе планирует засесть в House Of Music studios для записи нового альбома. Соответствующий материал полностью готов. Дата выхода - 23 февраля 2004. Сразу после выхода последует мировой тур в поддержку совместно с BRAINSTORM...</p>
+
+Автор: Yermola
+
+### 16.09.2003 news Jeff Waters опроверг слухи...
+
+Гитарист ANNIHILATOR Jeff Waters опубликовал заявление, в котором опроверг слухи о возможном расставании с барабанщиком Randy Black. Эти слухи появились после появления сообщения о слиянии Black с PRIMAL FEAR. Waters: '<B>Black всё ещё участник ANNIHILATOR. Мы будем записывать вместе новый альбом и отправимся в турне. Ждите новый альбом ANNIHILATOR весной 2004 года на AFM RECORDS.</B>'
+Автор: Vit Belov
+
+### 14.01.2004 news Новый альбом ANNIHILATOR
+
+<P>Канадские трэшеры <B>ANNIHILATOR</B> готовят к выпуску свой новый альбом<B>&nbsp;"All For You". </B>Он выйдет весной 2004 года на немецком лейбле <B>AFM Records</B>. На диске дебютирует новый вокалист группы <B>Dave Padden.</B> Кроме того, в группу вернулся ударник <B>Mike Mangini</B> (<B>EXTREME</B>, <B>STEVE VAI</B>). Трек-лист выглядит следующим образом:</P>
+<P><IMG height=248 alt="" hspace=10 src="/images/news_rus/2004.01/5858.jpg" width=250 align="left" border=0>1. <B>All For You</B> <BR>2. <B>Weapon X</B><BR>3. <B>The Nightmare Factory</B> <BR>4. <B>The One</B> <BR>5. <B>Demon Dance</B> <BR>6. <B>Rage Absolute</B> <BR>7. <B>Both Of Me</B> <BR>8. <B>Bled</B> <BR>9. <B>Dr. Psycho</B> <BR>10. <B>Holding On</B> <BR>11. <B>The Sound Of Horror</B><BR></P>
+Автор: Dimas
+
+### 04.02.2004 news Из ANNIHILATOR тоже ушёл басист
+
+<P><B>ANNIHILATOR</B> расстались с басистом <B>Russ "The Woodsman" Bergquist</B>.</P>
+Автор: Vit Belov
+
+### 13.03.2004 news ANNIHILATOR объявили имена новых музыкантов
+
+Новыми басистом и барабанщиком <B>ANNIHILATOR</B> стали <B>Sandor de Bretan</B>&nbsp;и <B>Rob Falzano. </B>Эти персонажи, до этих пор, не были замечены в других столь же популярных коллективах.
+Автор: Vit Belov
+
+### 15.05.2004 news ANNIHILATOR with JUDAS PRIEST on tour
+
+02.06.04 HANNOVER (D) - STADIONSPORTHALLE <BR>06.06.04 FRAUENFELD (CH) – T.B.A.<BR>08.06.04 BERLIN (D) - ARENA TREPTOW<BR>13.06.04 OBERHAUSEN (D) - ARENA<BR>14.06.04 PRAGUE<SPAN lang=en-gb> (CZ) - T-MOBILE</SPAN>
+Автор: Vit Belov
+
+### 11.06.2004 articles Хроника: Бенефис РОГАТЫХ ТРУПОЕДОВ в Р-клубе – Горбушкин рок продолжает «наступление» - Alex Strapoli обещает лучший альбом RHAPSODY – Jeff Waters задерживает зарплату – Почему AYREON вышел на Irond? – Christofer Johnsson рад и полон планов.
+
+<P><B><I>Бенефис РОГАТЫХ ТРУПОЕДОВ в Р-клубе – Горбушкин рок продолжает «наступление» - </I><I>Alex </I><I>Strapoli обещает лучший альбом </I><I>RHAPSODY– </I><I>Jeff </I><I>Waters задерживает зарплату – Почему </I><I>AYREON вышел на </I><I>Irond? – </I><I>Christofer Johnsson рад и полон планов.</I></B></P>
+<P>Несмотря на окончание концертного сезона (летом нормальное количество народа могут собрать только зарубежные звёзды), прошедшая неделя порадовала некоторым количеством неплохих концертов. Под давлением обстоятельств личного характера мною было принято парадоксальное решение. Из всего обилия концертов (это и прог-фест, и 10-летие <B>SHADOW HOST</B>) я выбрал сольный концерт <B>РОГАТЫХ ТРУПОЕДОВ</B> под пафосным лозунгом ‘<B>За***ли кавер-парти’</B> – название остроумное, если учесть, что <B>Трупоеды</B> активно паразитируют на чужом материале. Разогревали новейших «звёзд» российского “death”-metal три московских коллектива: <B>THE NEVERLAND, ICEWIND BLAST </B>и<B> РЕТРИЕМ</B>. Поганейший звук, которым сопровождалось данное выступление, вряд ли позволил обычному слушателю адекватно оценить эти группы, но я попытаюсь это сделать, благо у каждой из них есть свои небольшие, надо признать, плюсы. <B>РЕТРИЕМ </B>представили русскоязычный heavy-metal, оригинальность которого оценить мне не удалось, зато соло-гитарист выдавал неплохие партии. <B>ICEWIND BLAST</B>предложили melodicdeath-metalс примесью танцевальных мотивов в духе <B>FINNTROLL</B>. Сама по себе эта смесь не очень понятна, поэтому, пожалуй, это была самая странная и менее удобоваримая группа вечера. <B>THE NEVERLAND </B>совсем не повезло со звуком, они так долго настраивались, что вокалиста задвинули так далеко, что я не смог по началу даже разобрать поёт он чистым голосом, или использует более брутальные варианты вокала. Сквозь эту кашу мне удалось услышать некоторое количество вполне приятных мелодий, плюс здесь тоже неплохо выступил соло-гитарист, которому помогала клавишница. В общем и целом, я не могу посоветовать ни одному читателю, посетить концерт вышеупомянутых групп. Быть может, в менее кашеобразном варианте Вы сможете отыскать нечто интересное, но в том виде, который был представлен в пятницу в Р-клубе, коллективам лучше не выступать. Так только можно отпугнуть и без того маленькую аудиторию слушателей underground-metal. Мой совет коллективам, попытаться организовать себе качественный sound, либо не выходить на сцену вовсе. <B>РОГАТЫЕ ТРУПОЕДЫ</B> в этот же вечер показали, что в Р-клубе подобный звук возможен: плотный, акцентированный и в тоже время понятный всем и каждому. <B>РТ</B> можно назвать популяризаторами death-metal в массах. Пусть истинные любители этого стиля вряд ли даже назовут музыку группы этим словом, зато масса подростков получает заряд положительной энергии от плотных рифов и грамотного вокала. Также хочу отметить песню «<B>Девки, секс и трупный яд</B>», подобного death-rock’n’roll зачастую не хватает для весёлого времяпрепровождения. Так что, концерт <B>РТ</B> можно порекомендовать, как ни к чему не обязывающее приятное шоу, особенно подходящие для распития пива, вплоть до полного отключения разума.</P>
+<P>Получив порцию впечатлений в пятницу, я продолжил их коллекцию в субботу. В Горбушкином дворе (торговый центр, не путать с домом культуры) прошёл бесплатный концерт из серии нарождающегося фестиваля «<B>Горбушкин Рок</B>». Прошлое моё выступление об этом мероприятии не осталось незамеченным его организаторами. Мне было выдвинуто множество контраргументов, главным из которых было утверждение о договорённости с руководством торгового центра об отсутствие рекламы данных фестивалей. Несмотря на отсутствие таковой, в этот раз у сцены собралось немного больше народу, чем в прошлый раз (человек 70). Мне удалось услышать только два коллектива <B>HUNTERS </B>и <B>MANIC DEPRESSION</B>. <B>HUNTERS </B>– группа бывших участников <B>ARCHONTES </B>вряд ли обратит на себя внимание искушённого слушателя. Незатейливый hard-rock с не очень хорошим вокалом. А вот <B>MANIC DEPRESSION</B>я ждал с интересом, так как всем известно, что thrash-metal чуть ли не лучше всех стилей звучит вживую. Ожидания меня не обманули: отличнейший звук, агрессивнейшее исполнение и стойкое желание у слушателей начать рубиться уже сейчас, несмотря на то, что должная доза алкоголя ещё не принята. Звук позволял сделать вывод о качестве материала<B>. MANIC DEPRESSION</B>сыграли несколько новых песен, которые должны расстроить всех фанатов их предыдущего альбома (пусть их и не много). Группа подалась в какие-то эксперименты, песни большей частью среднетемповые, какие-то «качовые». Вживую, мягко говоря, они прозвучали неубедительно. Жаль, если группа запишет альбом в подобном духе. Возвращаясь к организаторам этого концерта, хочу им сказать, что странная политика концертов ни для кого не окупает затраченных сил и эмоций. Вряд ли проходящие мимо рядовые покупатели с видеомагнитофонами и телевизорами помчались покупать диски, выступающих команд. Ну, ничего, подобными темпами на следующий концерт придёт человек 100, а дальше больше…</P>
+<P>На прошлой неделе клавишник <B>RHAPSODY Alex Strapoli </B>в интервью голландскому журналу <B>Lords of Metal </B>рассказал о новом альбоме группы ‘<B>Symphony Of Enchanted Lands, Part II’</B>, который выйдет осенью на <B>SPV</B>. «<I>Каждый альбом </I><B><I>RHAPSODY</I></B><I> – шаг в развитии группы», </I>- начал <B>Alex</B><I>. «На новой пластинке мы совершим невероятный прогресс. У нас есть оркестр, хор и </I><B><I>Christopher </I><I>Lee</I></B><I> (английский артист, сыгравший Сарумана во Властелине Колец, также оперный певец, прим. авт.). Новый альбом наконец-то покажет, что мы задумывали на прошлых пластинках. Там будет самый «величественный» звук, который можно только себе представить. В прошлом подобное не было возможно по разным причинам: отсутствие денег, технологии, нужных контактов</I>». Также<B> Strapoli </B>рассказал о влиянии на него трилогии «<B>Властелин Колец</B>»: «<I>Этот фильм изменил мой взгляд на музыку и на </I><I>fantasy, вообще. Мы посвящаем новый альбом этому фильму и книге. К сожалению, мы не имеем права использовать настоящие имена и события. Мы были поражены, когда узнали о возможности участия в записи одного из актёров из этого фильма </I><B><I>Christopher </I><I>Lee</I></B><I>. Сколько мы заплатили ему? Много, но это того стоит</I>». Аминь! Единственное, что мы можем сказать. Вполне возможно, что с переходом на новый лэйбл, <B>RHAPSODY </B>сделают прорыв, не даром же они назвали свой альбом второй частью самого интересного опуса группы?</P>
+<P>Ещё одно интересное интервью тому же журналу дал <B>Jeff Waters </B>из <B>ANNIHILATOR</B>. Он подтвердил то, о чём догадывались любители группы. «<B><I>ANNIHILATOR</I></B><I> компания одного человека. Все остальные музыканты просто работают на меня. Если год хороший, то я выплачиваю им постоянные дивиденды, если же нет, то они не могут рассчитывать на чек каждый месяц. По этой причине у </I><B><I>ANNIHILATOR</I></B><I> постоянно меняется состав, в год, когда мы не выпускаем альбома денег очень мало и музыканты разбегаются, кто куда</I>». Также <B>Waters </B>рассказал забавный анекдот из истории его общения с журналистами: «<I>Несколько лет назад мы были в туре вместе с<B> JUDAS </B></I><I><B>PRIEST</B>. В Греции я давал интервью одному крупному журналу и на вопрос о музыкальном радиовещании в Канаде ответил, мол, на станциях крутят всякое дерьмо, типа </I><B><I>METALLICA, </I><I>JUDAS </I><I>PRIEST</I></B><I> или </I><B><I>IRON </I><I>MAIDEN</I></B><I>. На следующий день на моей совместной пресс-конференции с </I><B><I>K.</I><I>K. </I><I>Downing </I></B><I>(</I><B><I>JUDAS</I><I>PRIEST</I></B><I>, прим. авт.) этот же журналист задал мне вопрос, почему я в туре с </I><I><B>JP</B>, если считаю их музыку гавном. Все были сконфужены, а я стал объяснять, что я не то имел в виду и.т.п. На это журналист объявил меня лжецом и представил плёнку с записью разговора, как доказательство. Очень неприятная история</I>».</P>
+<P>На прошлой неделе произошло ещё одно событие, которое просто нельзя игнорировать, вышел новый двойной альбом <B>AYREON</B>. В его записи и на этот раз приняли участие множество известных вокалистов. Например<SPAN>, <B>James LaBrie (DREAM THEATER), Devon Graves (DEAD SOUL TRIBE), Devin Townsend (STRAPPING YOUNG LAD), Mikael Akerfeldt (OPETH) </B></SPAN>и многие другие. Концептуальный альбом о человеке, который находится в коме и его осаждают разнообразные его чувства от любви до ярости. Тяжело нарисовать подобную картинку силами музыки, но <B>Arjen </B>это удалось. Подробнее мы обсудим эту тему в рецензии на этот альбом, а вот об одной вещи хотелось бы поговорить уже сейчас. Новый альбом <B>AYREON </B>вышел на <B>Inside Out</B>, а в России его почему-то издал <B>Irond</B>, а не <B>Soyuz </B>– официальный представитель этой фирмы в России. Мы обратились за разъяснениями к нашим «вечным» героям. <B>Юра «Хирург» (Irond)</B>: «<I>Мы издали этот альбом, п</I><I><SPAN>отому что права на Россию остались у <B>Лукассена</B>, а вот почему он отдал их нам - это результат работы нашего лицензионного отдела, личных контактов и так далее! Должно быть, его убедила наша работа, убедили наши релизы, образцы которых, мы отсылали, пистолет у его виска&nbsp; никто не держал!</SPAN></I><SPAN>». <B>Евгений Аксёнов (</B></SPAN><B>Soyuz):</B> “<I>Здесь просто исключительный случай.&nbsp;Подобные вещи время от времени возникают, как у нас, в нашей стране, так и во всём мире. </I><I><B>Айронд</B></I><I> изначально заключили контракт напрямую с </I><I><B>А.А.Лукассеном</B></I><I> на лицензионное издание всех альбомов </I><I><B>AYERON</B></I><I> (включая и новый)&nbsp;в России. Точно такая же ситуация обстоит и с новым альбомом </I><I><B>Nightwish</B></I><I>. На "фирме" и на всю Европу&nbsp;его выпускает&nbsp;</I><I>Nuclear Blast</I><I>, но вот лицензионное издание&nbsp;в России оставлено за </I><I>Фоно</I><I>. Поскольку первоначальным правообладателем на работы Nightwish всё же является <B>Spinefarm</B> (наверняка и в Финляндии у них эксклюзив), то они посчитали права на Ночную Нужду в России оставить у своих давних партнёров. В данном случае </I><I>ФОНО</I><I>, которые давно и успешно работают с этой группой в нашей стране</I>». Странно, что Евгений рассказал нам всё про <B>Фоно</B> и ничего не рассказал про <B>Soyuz</B>. Между прочим, нам стало известно, что права на <B>NIGHTWISH</B> предлагались и другим российским лэйблам, просто <B>Фоно </B>выиграли в конкурентной рыночной борьбе. Я думаю, при желании и <B>Soyuz </B>мог побороться за <B>AYREON</B>, ведь эта пластинка явно украсила бы их каталог, в котором progressive больше, чем у других наших контор вместе взятых.</P>
+<P><B></B></P>
+<P>Ну, и на закуску немного о <B>THERION</B>. Великая группа великого человека, не иначе. <B>Christofer Johnsson</B> опубликовал свои первые впечатления от релиза сразу двух своих альбомов ‘<B>Sirius B</B>’ и ‘<B>Lemuria</B><SPAN>’<B>. “</B><I>Наконец-то альбомы вышли, и могу сказать, что 99% всех отзывов отличные. Я ещё не успел детально ознакомиться с мнением простых фэнов, но не всё сразу. Кроме того, что я дал кучу интервью в последние 2 месяца, я был ещё и занят новым фэн-клубом </I></SPAN><I><B>THERION</B></I><I>, который расположен по адресу <B>therionsociety.com</B> . Мы готовимся к концертным выступлениям, у нас новый барабанщик <B>Petter Karlsson</B>, также с нами поедет в тур <B>Mats </B></I><B><I>Leven (</I><I>AT </I><I>VANCE, </I><I>ex-</I><I>Yngwie </I></B><I><B>Malmsteen)</B><SPAN><B>.</B> К сожалению, с нами не будет <B>Sarah Jezebel Deva</B>, которая заболела. Её заменит молодая певица <B>Karin Fjellander</B>. Кроме всего прочего, мы (музыканты </SPAN><B>THERION</B></I><I>) образовали </I><I>death-</I><I>metal<SPAN> проект <B>DEMONOID</B>, альбом которого выйдет в июле</SPAN></I><B>».</B></P>
+Автор: Vit Belov
+
+### 04.08.2004 reviews Soft Thrash Metal
+
+<P>Каждый альбом любых ветеранов трэш-сцены ожидают всегда с нетерпением, хотя сейчас поклонников данного жанра (впрочем, как и хороших&nbsp;релизов в нем) весьма и весьма мало. Что же мы обычно ждем от этих пластинок? Ломовых риффов, пивного угара, мощи, агрессии и злобы, конечно. Вот ничего этого на новом опусе Annihilator'а как раз и нет. Да, это всё еще трэш, но какой-то отполированный, мягкий, что ли, эдакий софт-трэш, притом с немалой балладной составляющей, которая сама по себе свовсем неплоха, но на подобном альбоме воспринимается несколько не к месту. Да и почти час звучания для трэшевого альбома многовато. Джеф Уотерс в очередной раз сменил выпускающий лейбл и изменил состав: вместо Джо Комо место у микрофонной стойки занял некто Дэйв Пэдден, барабанщиком стал Майк Мангини (игравший на третьем альбоме группы, а также работавший, среди прочих, с Steve Vai и Extreme); впрочем, он на этом не остановился и сменил ударника после записи альбома, но мы тут не будем рассматривать историю группы. На альбоме также замечены Джо Бонджорно (основатель Nevermore) и Карран Мерфи, игравший с Уотерсом на самых ранних записях Annihilator'а. Запись и продюсирование очень выского качества (особенно по сравнению с альбомом 2002 года), но нужного настроения альбом не создает. Под него не хочется угарать, пить пиво и устраивать дикие танцы с полупьяными (и полуголыми) сисястыми девками. Совершенно средненький по самому материалу релиз, который заметят лишь благодаря громкому имени группы. Джеф Уотерс еще и разместил на двух страницах убористым шрифтом историю создания альбома, дочитать которую до конца под силу лишь фэнам. Как и в случае с последним опусом Кататонии, оставлю у себя этот релиз лишь благодаря шикарному артворку.</P>
+<P>Альбом предоставлен компанией "СД-Максимум".</P>
+Автор: Ixtiandr
+
+### 14.09.2004 articles TOP-50 продаж лицензионных компакт-дисков за июль-август 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=661 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 44pt; mso-width-source: userset; mso-width-alt: 2157" width=59>
+<COL style="WIDTH: 202pt; mso-width-source: userset; mso-width-alt: 9837" span=2 width=269>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2>1 (1)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>2 (2)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LEMURIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>3(3)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SIRIUS B</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269 x:str="DIO "><STRONG><FONT size=2><FONT face="Arial CYR">DIO<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>MASTER OF THE MOON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SOPOR AETERNUS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LA CHAMBRE D ECHO</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>FLOWER KINGS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>ADAM & EVE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ENSEFERUM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>IRON</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>THRESHOLD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SUBSURFACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ASIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SILENT NATION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>12 (4)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LOVELORN</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>JORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>OUT OF EVERY NATION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DREAM EVIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE BOOK OF HEAVY METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>METAL CHURCH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LACRIMAS PROFUNDERE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AVE END</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HAGGARD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>18 (8)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATROCITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATLANTIS + multimedia section</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DIABOLICAL BREED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>COMPENDIUM INFERNUS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BORKNAGAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPIC</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THERION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRIUS B & LEMURIA LTD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DARK TRANQUILLITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EXPOSURES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>23 (18)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EDGUY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>24 (11)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>FINNTROLL</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NATTFODD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>25 (26)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MONSTERS OF METAL - 2</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE ULTIMATE METAL COMPILATION (2 DVD)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MALEVOLENT CREATION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WARKULT</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>GRAVEWORM</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AS THE ANGELS… / ETERNAL WINDS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>28 (6)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AYREON</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>29 (30)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FLAMES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>30 (13)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SUSPERIA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UNLIMITED</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>32 (21)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AETERNITAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LA DANSE MACABRE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>33 (15)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CREMATORY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>REVOLUTION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DE/VISION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>6 FEET UNDERGROUND</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>35 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CATHARSIS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" x:str="ПРИЗРАЧНЫЙ СВЕТ +multimedia "><FONT size=2><FONT face="Arial CYR">ПРИЗРАЧНЫЙ СВЕТ +multimedia<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>KEVIN DUBROW (ex-QUIET RIOT)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FOR THE KILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DVAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>TAAI LIIRA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>VOODOO HILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WALTARI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>RARE SPECIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UMBRA ET IMAGO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MEMENTO MORI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MISANTHROPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SADISTIC SEX DAEMON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>42 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>RHAPSODY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE DARK SECRET EP</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>43 (9)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>MOTORHEAD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>INFERNO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>44 (12)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IMPERANON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>STAINED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SERAPHIM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>SHYLOCK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>WELCOME TO ILLUSION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>POWERQUEST</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NEVERWORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ASTARTE (DIMMU BORGIR)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SYRENS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>49 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THEATRES DES VAMPIRES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NIGHTBREED OF MACABRIA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>50 (32)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE 69 EYES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BLESSED BE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR></TBODY></TABLE>* - в магазин Metal&Progressive в ТВЦ Рубин
+Автор: Vit Belov
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 10.05.2005 reviews Все для вас. Традиционно.
+
+<P>Каждую новую работу этой группы ждешь, находясь в полном неведении о заготовленных сюрпризах – все альбомы Annihilator звучат абсолютно по- разному. Этот релиз, в первую очередь, вызывал интерес в связи с появлением нового (правильнее сказать - очередного) вокалиста в рядах группы. Ну, что ж, Дэйв Падден справился с поставленной задачей очень неплохо, хотя, на мой взгляд, «уделать» предшественника - Джо Камю не получилось.</P>
+<P>Голос Дейва напоминает понемногу всех вокалистов группы, включая самого Уотерса, только с более современной, местами надрывной, подачей. За ударные отвечает Майк Манджини, достаточно известный и интересный драммер, отличившийся в рядах Extreme. Ну а все остальные инструменты, как вы уже наверное догадались, обыграл маэстро Джефф Уотерс (и даже спел в одной композиции балладного типа). Вот такой вот и швец, и жнец и на дуде игрец. J</P>
+<P>Альбом получился достаточно сильным, жестким и мелодичным, с характерным Аннигиляторовским саундом. Заглавная All For You, начинающаяся с басового пассажа, является несомненным хитом благодаря очень мелодичному и запоминающемуся припеву. Далее все по плану – преобладание быстрых композиций, все в лучших традициях Уотерса, который даже в среднетемповые вещи вставляет скоростные гитарные прочесы. Парочка красивых радиоформатных баллад и на десерт инструментал, хорошо вписавшийся бы саундтрэком к фильму ужасов. Одним словом, типичный Аннигиляторовский альбом. Ничего сверхвыдающегося, но альбом явно не провальный, если не сказать больше.</P>
+<P>Диск предоставлен СД-Максимум.</P>
+Автор: Fucker
+
+### 12.07.2005 news ANNIHILATOR выпустят альбом в ноябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ANNIHILATOR </STRONG>назвали свой будущий альбом "<STRONG>Schizo Deluxe</STRONG>". Он выйдет 14 ноября на <STRONG>AFM</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 12.07.2005 news ANNIHILATOR to release new album in November
+
+<P>New album of <STRONG>ANNIHILATOR "Schizo Deluxe"</STRONG>&nbsp;will be released on 14th of November via <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.08.2005 news Новости от ANNIHILATOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый, одиннадцатый&nbsp;альбом канадских трэшеров <STRONG>ANNIHILATOR</STRONG> будет называться <STRONG>"Schizo Deluxe".</STRONG> Выход его запланирован на<STRONG> </STRONG>21 октября в Японии (<STRONG>Marquee Inc.</STRONG>), 8 ноября в Северной Америке (<STRONG>Locomotive</STRONG>/<STRONG>Warner</STRONG>) и 14 ноября в Европе (<STRONG>AFM Records</STRONG>). Обещается стопроцентный thrash metal материал, без баллад и вспышек безумия.</FONT></P>
+Автор: Dimas
+
+### 12.12.2005 news ANNIHILATOR выпускают ретроспективное DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>21 февраля на <STRONG>AFM</STRONG> выходит ретроспективное DVD <STRONG>ANNIHILATOR "10 years in Hate</STRONG>". Диск будет содержать семь официальных клипов <STRONG>ANNIHILATOR</STRONG>, концертные записи, интервью с <STRONG>Jeff Waters</STRONG> и мн. др. Трэк-лист:</FONT></P>
+<P>DVD 1: <BR><BR>01. <B>Intro</B><BR>02. <B>Alison Hell</B> <BR>03. <B>Release Party</B> <BR>04. <B>TV Media One</B><BR>05. <B>Stonewall</B> <BR>06. <B>TV Media Two</B> <BR>07. <B>TV Media Three</B> <BR>08. <B>Backstage</B> <BR>09. <B>Fun Palace LIVE</B> <BR>10. <B>TV Media Four</B> <BR>11. <B>Set The World On Fire</B> <BR>12. <B>KOTK back vocals</B> <BR>13. <B>King Of The Kill</B> <BR>14. <B>Jeff In Japan</B> <BR>15. <B>21</B> <BR>16. <B>Only Be Lonely</B> <BR>17. <B>Syn. Kill 1</B> <BR>18. <B>Criteria Rehearsal</B> <BR>19. <B>Alison / Homicide</B> <BR>20. <B>Oh Canada</B> <BR>21. <B>Ultraparanoia</B> <BR>22. <B>Pharr LIVE</B> <BR>23. <B>Rampage Raw</B> <BR>24. <B>End Credits</B> <BR><BR>Running Time: approx. 120 minutes <BR><BR>DVD 2: <BR><BR>01. <B>Pre Annihilator era</B> <BR>02. <B>Demo Days</B> <BR>03. <B>Alice In Hell</B> <BR>04. <B>Never, Neverland</B> <BR>05. <B>Set The World On Fire</B> <BR>06. <B>King Of The Kill</B> <BR>07. <B>Refresh & Remains</B> <BR>08. <B>Criteria</B> <BR>09. <B>Other releases</B> <BR>10. <B>Catch ya later</B> <BR>11. <B>Mike Mangini</B><BR>12. <B>Neil Goldberg</B> <BR><BR>Running Time: approx. 110 minutes </P>
+<P>Трэйлер можно качнуть здесь: <A href="http://www.annihilatormetal.com/videos/dvdtrailer.wmv">http://www.annihilatormetal.com/videos/dvdtrailer.wmv</A></P>
+Автор: Vit Belov
+
+### 08.06.2006 reviews Качественная thrash-шизофрения
+
+<P>Итак, начитавшись самых разнообразных отзывов про новый альбом ANNIHLATOR’а, я самым внимательным образом несколько раз его прослушал (в дополнение к одному-единственному прослушиванию пары трэков, скаченных из Интернета). Хм. Впечатления – яркие, но двойственные. В принципе, альбом мне понравился (и думаю, что с каждым разом будет нравиться все больше и больше), но… </P>
+<P>Но – восемь из десяти. Пока – не более. Для меня это странно – как-никак, любимейшая трэшевая группа на протяжении вот уже доброго десятка лет… Но – есть «но». Похоже, что дядька Уотерс таки несколько подисписался – этот рифф оттуда, эта сбивка – отсюда, вот этот соляк – уже где-то слышал… Первая песня – я уж было подумал, что начинается “The Box” с 94-го, вторая – cловно “King Of A Kill” оттуда же. Дежа вю какое-то… Не знаю, кому как, но мне, неплохо знакомому с нетленками канадцев, узнавать все это не шибко радостно – можно, в таком случае, с полки оригиналы достать да переслушать. </P>
+<P>В общем, по ходу дела, старина Джефф изрядно порылся в своем творческом багаже, вытянул лучшие фишки, перетряхнул их, навел лоску, напихал всяких новых штучек, и подал как “new product”. Разумеется, саунд вылизан, разумеется, исполнение на высочайшем уровне, разумеется, стиль – узнаваем моментально… и – разумеется – это все тот же техничный и интересный thrash metal.</P>
+<P>Впрочем, ко второй половине диска ситуация улучшилась, материал пошел поразнообразней и поинтересней, и – вокалист, Дэйв Падден, хорош!.. Чем-то на самого Уотерса похож (а Джефф Уотерс из всех вокалистов ANNIHILATOR’а – лучший). Лучшие композиции – “Clare” и “Warbird”. Короче, повторюсь, - диск таки понравился, диск очень хорош и, пожалуй, со временем станет классикой… </P>
+Автор: Dr. Grandma
+
+### 08.06.2006 reviews Долой баллады, тряхнем же старыми костьми!
+
+<P>Прошел всего год с момента выхода предыдущего альбома канадских трэшеров Annihilator "All For You", и Джеф Уотерс сотоварищи выдают на-гора новую, уже одиннадцатую по счету студийную работу с довольно претенциозным названием "Schizo Deluxe". Если "All For You" вышел довольно мягким, слишком отполированным, с немалым (для трэша) количеством баллад, то данный релиз показывает Annihilator с более привычной (и, думается, более любимой) фанатам стороны. Жесткие риффы, бодрые соляки, довольно прямолинейная структура песен; хотя и о мелодике канадцы не забыли. Странно это или нет, но Уотерс решил оставить у микрофонной стойки Дэвида Паддена, и на "Schizo Deluxe" тот показал, на что действительно способен. Настроение всему альбому задает мощная открывашка 'Maximum Satan', а за ней следует практически "чистотрэшевая" 'Drive', вполне оправдывая своё название. С балладообразными вещами Уотерс решил (видимо, до поры до времени) покончить, и даже среднетемповые песни типа 'Like Father, Like Gun' или 'Clare' вышли весьма и весьма тяжелыми и мощными. Шустрая 'Pride' также не выбивается из общей колеи, напоминая чем-то Metallica в&nbsp;их лучшие времена. Лишь 'Something Witchy' мне показалась какой-то "излишне инструментальной" и не очень-то подходящей для завершения пластинки (с дурацким, на мой взгляд, типа смешным outro). Несмотря на название альбома, я не заметил какой-либо "шизанутости" на "Schizo Deluxe", но это и не имеет особого значения. Важнее то, что Annihilator (и прежде всего Джеф Уотерс) не растеряли былых сил и доказали, что в трэше еще можно записывать довольно неплохие пластинки. "Schizo Deluxe" нельзя назвать шедевральной работой, но особенно после весьма спорного релиза "All For You" этот&nbsp;диск слушается весьма свежо и наверняка понравится всем фанатам Annihilator, а также любителям мелодичного трэша.&nbsp;Добавлю, что&nbsp;в формате Limited Edition на альбом добавлены три бонус-трэка. И не забудьте обратить свое внимание на очень интересный арт-ворк!</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 20.02.2007 news Новый альбом ANNIHILATOR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В начале апреля 2007 года выходит новый альбом <STRONG>ANNIHILATOR "Metal</STRONG>". В записи пластинки, кроме основных участников коллектива<STRONG> Jeff Waters</STRONG>, <STRONG>Mike Mangini</STRONG> и <STRONG>Dave Padden</STRONG>, приняли участие <STRONG>Alexi Laiho</STRONG> (<STRONG>CHILDREN OF BODOM</STRONG>), <STRONG>Michael Ammott</STRONG> и <STRONG>Angela Gossow</STRONG> (<STRONG>ARCH ENEMY</STRONG>), <STRONG>Jeff Loomis</STRONG> (<STRONG>NEVERMORE</STRONG>), <STRONG>Jesper Stromblad</STRONG> (<STRONG>IN FLAMES</STRONG>) и многие другие. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Clown Parade</STRONG> – feat. <STRONG>Jeff Loomis</STRONG> (<STRONG>Nevermore</STRONG>) <BR>2. <STRONG>Couple Suicide</STRONG> – feat. <STRONG>Danko Jones</STRONG> (<STRONG>Danko Jones</STRONG>) & <STRONG>Angela Gossow</STRONG> (<STRONG>Arch Enemy</STRONG>) <BR>3. <STRONG>Army Of One</STRONG> – feat. <STRONG>Steve &#180;Lips` Kudlow</STRONG> (<STRONG>Anvil</STRONG>) <BR>4. <STRONG>Downright Dominate</STRONG> – feat. <STRONG>Alexi Laiho</STRONG> (<STRONG>Children Of Bodom</STRONG>) <BR>5. <STRONG>Smothered</STRONG> – feat. <STRONG>Anders Bj&#248;rler</STRONG> (<STRONG>The Haunted</STRONG>) <BR>6. <STRONG>Operation Annihilation</STRONG> – feat. <STRONG>Michael Amott</STRONG> (<STRONG>Arch Enemy</STRONG>) <BR>7. <STRONG>Haunted</STRONG> – feat. <STRONG>Jesper Str&#248;mblad</STRONG> (<STRONG>In Flames</STRONG>) <BR>8. <STRONG>Kicked </STRONG>– feat. <STRONG>Corey Beaulieu</STRONG> (<STRONG>Trivium</STRONG>) <BR>9 . <STRONG>Detonation </STRONG>– feat. <STRONG>Jacob Lynam</STRONG> (<STRONG>Lynam</STRONG>) <BR>10. <STRONG>Chasing The High</STRONG> – feat. <STRONG>William Adler</STRONG> (<STRONG>Lamb Of God</STRONG>) </P>
+Автор: Vit Belov
+
+### 16.04.2007 news ANNIHILATOR спели EXCITER
+
+<P>Новый альбом <STRONG>ANNIHILATOR "Metal"</STRONG> выходит в эти дни на<STRONG> SPV</STRONG>. На японское издание пластинки попадёт кавер-версия на песню <STRONG>EXCITER "Heavy Metal Maniacs</STRONG>". <STRONG>SPV</STRONG> тоже не останется в стороне. "<STRONG>Metal</STRONG>" появится и в лимитированном 2CD-издании. Трэк-лист:</P>
+<P>Disc 1: <BR>1. <STRONG>Clown Parade</STRONG><BR>2. <STRONG>Couple Suicide<BR></STRONG>3. <STRONG>Army Of One<BR></STRONG>4.<STRONG> Downright Dominate</STRONG><BR>5. <STRONG>Smothered<BR></STRONG>6. <STRONG>Operation Annihilation</STRONG><BR>7. <STRONG>Haunted<BR></STRONG>8. <STRONG>Kicked<BR></STRONG>9. <STRONG>Detonation<BR></STRONG>10. <STRONG>Chasing The High</STRONG></P>
+<P>Disc 2. <BR>1. <STRONG>Carnival Diablos<BR></STRONG>2. <STRONG>Time Bomb<BR></STRONG>3. <STRONG>Blackest Day</STRONG><BR>4. <STRONG>My Precious Lunatic Asylum</STRONG><BR>5. <STRONG>Shallow Grave</STRONG><BR>6. <STRONG>Murder<BR></STRONG>7. <STRONG>Tricks And Traps</STRONG><BR>8. <STRONG>Refresh The Demon</STRONG><BR>9. <STRONG>Ultraparanoia<BR></STRONG>10. <STRONG>King Of The Kill<BR></STRONG>11. <STRONG>Second To None</STRONG></P>
+Автор: Vit Belov
+
+### 20.06.2007 reviews Великий канадский кормчий приятно удивил
+
+<P>Когда я узнал, что новая работа канадских трэшеров Annihilator будет называться скромно и просто "Metal", то подумал: ну всё, старина Джефф Уотерс совсем сдвинулся. Даже названия более-менее оригинального выдумать уже не может. А не будет ли совершенно стандартна и музыка на новом альбоме? Такой вопрос просто не мог не возникнуть. Однако Уотерс приятно удивил. Нет, никаких открытий на "Metal" нет, но вечному кормчему канадцев удалось записать очень неплохую пластинку. И, по правде говоря, нет ничего удивительного в том, что он нарёк альбом именно так, ибо он пошел по довольно простому, но действенному пути, соединив трэш и традиционный хэви-метал. Получилось немало отличной гитарной работы с кучей фирменных риффов, есть запоминающиеся мелодии (к примеру, припев в открывашке 'Clown Parade' застревает в голове быстро и навсегда), да и ставший, похоже, уже штатным (надолго ли, правда?) вокалист Dave Padden прекрасно справляется со своими обязанностями (а третьим в составе Annihilator является пока барабанщик Mike Mangini), и... Боюсь, что перечисление участвовавших в записи "Metal" музыкантов будет длиннее, чем предыдущий текст, но их просто нельзя не упомянуть (и честь и хвала Уотерсу, что он умудрился привлечь всю эту разношерстную компанию): Corey Beaulieu (Trivium), Alexi Laiho (Children Of Bodom), Michael Amott (Arch Enemy), Jeff Loomis (Nevermore), Willial Adler (Lamb Of God), Angela Gossow (Arch Enemy), Anders Bjorler (The Haunted), Jesper Stromblad (In Flames), Danko Jones (Danko Jones), Jacob Lynam (Lyman, впрочем, мне название группы ничего не говорит), Steve "Lips" Kudlow (Anvil), а также на бэк-вокале более или менее известные Dan Beehler, Jacques Belangher, Allan Johnson (все трое ex-Exciter), John Perinbam (Ivory Knight), Paul Malek (ex-Annihilator), Brian Stephenson (Toxicator), Bob Walden (Phalanx), Scott Walsh (Joe Trasher). Если же мы начнем более подробно останавливаться на вкладе каждого из упомянутых товарищей в запись альбома, то рецензия грозит перерасти в огромную телегу, так что лучше убедитесь в этом сами сами, приобретя данную работу. Самое же главное, что Уотерсу удалось записать пластинку, которая звучит очень свежо, одновременно жестко и колюче, мелодично и без всяких соплей, да и, слава Богу, не нашлось места новомодным ню-металическим делам. Альбом "Metal" нельзя назвать шедевром, но это одна из лучших работ группы за последние годы. Кстати, маэстро Уотерс опять сменил выпускающий лэйбл (c AFM на SPV), и, будем надеяться, что он там приживется, ибо такие метания между лэйблами никого еще до добра не доводили. Хорошая, крепкая и качественная работа!</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 23.06.2007 reviews Паршиво звучащий гимн thrash-hardcore metal
+
+<P>Новый альбом монстров трэша ANNIHILATOR был одним из самых ожидаемых в тяжёлой музыке в этом году. Jeff Waters удалось даже затмить старания Dave Mustaine, известного пиарщика, альбом группы которого MEGADETH вышел в то же время. Сообщалось о приглашении на пластинку огромного количества современных звёзд гитарного мастерства, включая лидеров CHILDREN OF BODOM, ARCH ENEMY и TRIVIUM. Само название альбома “Metal” говорило о многом. Ожидания оправдались. Пластинку слушать интересно.</P>
+<P>К несчастью, слушать интересно, но хорошей эту пластинку не назовёшь. Начнём с начала. Jeff отказался от любой сложности в своей музыке. Насочинял забойных боевиков, пригласил гитаристов, которые озвучили эти песни великолепными соло, и всё. Вот ради этих соло и следует послушать “Metal”. Сейчас так почти никто не играет, а здесь ближе к концу каждого трэка вступает гитарист и пытается доказать, что он не зря сюда попал. Изворачивается и так, и эдак… Вопрос в том, что не всем удалось наваять интересное соло, но это уже другое… Главное, это попытка, а она здесь хороша.</P>
+<P>Есть две вещи, которые убивают этот альбом. Во-первых, это заходы на чуждую thrash-metal территорию чистоголосых песнопений, свойственных современной американской музыке. Иногда забой, который правит здесь бал, останавливается, и певец заливается эдаким соловьём. Но и это не самое главное. Главное, это отвратная реализация. Как будто слушаешь MP3 в сотовом телефоне. Плоский звук, практически полное отсутствие басов. На уровне современных технологий “Metal” звучит паршиво, но даже, сравнивая диск с классикой трэша, ANNIHILATOR проигрывают многим. При этом Jeff Waters умеет записывать всё как следует. Это он доказывал и на прошлых альбомах. Видимо, здесь мы имеем дело с некой стилизацией под классический hardcore-thrash 80-х. Не знаю, не знаю.</P>
+<P>Странный альбом от ANNIHILATOR. Не знаю, куда группа двинется дальше, но хотелось бы обойтись больше без таких юбилейных альбомов.&nbsp;&nbsp; </P>
+Автор: Vit Belov
+
+### 29.05.2009 news ANNIHILATOR ищут издателя
+
+<P><STRONG>ANNIHILATOR</STRONG> расстались с терпящим бедствие <STRONG>SPV</STRONG>, оставив немецкому лэйблу права на концертный DVD. 13-ый студийный альбом группы готов, и <STRONG>Jeff Waters</STRONG> ищет издателя.</P>
+Автор: Vit Belov
+
+### 22.10.2009 news Новый DVD от ANNIHILATOR
+
+<P><IMG height=446 alt="" hspace=0 src="/images/news_rus/2009.10/15336.jpg" width=300 align=right border=5>2 ноября на&nbsp;<STRONG>SPV</STRONG> выйдет новый DVD <STRONG>ANNIHILATOR</STRONG> <STRONG>"Live At Masters Of Rock". </STRONG>Состав группы на этом DVD, снятом в прошлом году на соответствующем фестивале:</P>
+<P><STRONG>Dave Padden</STRONG> - Guitar, Vocals <BR itxtvisited="1"><B itxtvisited="1">Jeff Waters</B> - Guitar, Vocals <BR itxtvisited="1"><B itxtvisited="1">Ryan Ahoff</B> - Drums <BR itxtvisited="1"><B itxtvisited="1">Dave Sheldon</B> - Bass </P>
+<P>Трэк-лист DVD:</P>
+<P>01. <B itxtvisited="1">Intro</B> <BR itxtvisited="1">02. <B itxtvisited="1">King Of The Kill</B> <BR itxtvisited="1">03. <B itxtvisited="1">Blackest Day</B> <BR itxtvisited="1">04. <B itxtvisited="1">Operation Annihilation</B> <BR itxtvisited="1">05. <B itxtvisited="1">Clown Parade</B> <BR itxtvisited="1">06. <B itxtvisited="1">Set The World On Fire</B> <BR itxtvisited="1">07. <B itxtvisited="1">I Am In Command</B> <BR itxtvisited="1">08. <B itxtvisited="1">Never, Neverland</B> <BR itxtvisited="1">09. <B itxtvisited="1">Fun Palace</B> <BR itxtvisited="1">10. <B itxtvisited="1">Phantasmagoria</B> <BR itxtvisited="1">11. <B itxtvisited="1">W.T.Y.D.</B><BR itxtvisited="1">12. <B itxtvisited="1">Wicked Mystic</B> <BR itxtvisited="1">13. <B itxtvisited="1">Alison Hell</B> <BR itxtvisited="1">14. <B itxtvisited="1">Shallow Grave</B> <BR itxtvisited="1">15. <B itxtvisited="1">Credits</B> </P>
+Автор: Vit Belov
+
+### 22.11.2009 news ANNIHILATOR: Две песни с нового DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На <STRONG>SPV </STRONG>выходит новый концертный DVD <STRONG>ANNIHILATOR "Live At Masters Of Rock"</STRONG>. Два трэка с этого релиза<STRONG> 'Clown Parade'</STRONG>&nbsp;и <STRONG>'The Fun Palace'</STRONG>&nbsp;можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/4Q8h5-dlq8s&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/4Q8h5-dlq8s&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT><BR><BR><BR>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Eo-fyGPPa9E&hl=en_US&fs=1&"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/Eo-fyGPPa9E&hl=en_US&fs=1&" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+### 15.12.2009 news ANNIHILATOR на Earache
+
+<P><STRONG>ANNIHILATOR</STRONG> заключили соглашение с <STRONG>Earache Records</STRONG>.&nbsp;Новый, тринадцатый по счёту, альбом группы выйдет в новом году.</P>
+Автор: Vit Belov
+
+### 18.03.2010 news Новый альбом ANNIHILATOR
+
+<P><STRONG><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.03/16430.jpg" width=400 align=right border=5>ANNIHILATOR</STRONG> выпускают свой новый альбом "<STRONG>Annihilator</STRONG>" 17 мая на <STRONG>Earache Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>The Trend</B><BR>02. <B>Coward</B><BR>03. <B>Ambush</B><BR>04. <B>Betrayed</B><BR>05. <B>25 Seconds</B><BR>06. <B>Nowhere To Go</B><BR>07. <B>The Other Side</B><BR>08. <B>Death In Your Eyes</B><BR>09. <B>Payback</B><BR>10. <B>Romeo Delight</B></P>
+Автор: Vit Belov
+
+### 11.04.2010 news Новый трэк ANNIHILATOR
+
+<P><STRONG>"Coward"</STRONG>, новая песня<STRONG> ANNIHILATOR</STRONG> доступна для прослушивания на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/earacherecords">http://www.myspace.com/earacherecords</A></P>
+<P>17 мая на <STRONG>Earache Records</STRONG> выходит новый альбом группы "<STRONG>Annihilator</STRONG>".</P>
+Автор: Vit Belov
+
+### 27.04.2010 news Новый басист для ANNIHILATOR
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.04/16621.jpg" width=133 height=200>Alberto Campuzano</STRONG> (на фото) из канадцкой группы&nbsp; <B itxtvisited="1">WARMACHINE</B>, влился в состав <B itxtvisited="1">ANNIHILATOR</B> в качестве концертного бас-гитариста. Комментирует вокалист/гитарист <STRONG>WARMACHINE</STRONG> <B itxtvisited="1">Joe Di Taranto: </B>"<B itxtvisited="1">Alberto</B> всё ещё участник <B itxtvisited="1">WARMACHINE</B>, но он, так же, сможет поколесить по миру с <B itxtvisited="1">ANNIHILATOR</B>&nbsp;в 2010-2011 . . . В настоящее время, мы будем искать ему временную замену, пока он занят в <B itxtvisited="1">ANNIHILATOR</B>." </P>
+Автор: Headcrusher
+
+### 07.08.2013 news ANNIHILATOR: новый альбом &quot;Feast&quot; в конце августа
+
+<P>Канадские thrash metal ветераны <STRONG>ANNIHILATOR</STRONG> выпускают свой новый альбом под названием <STRONG>"Feast"</STRONG>&nbsp;в конце этого месяца. Точные даты выхода 14 студийника: 23&nbsp;августа в Европе, 26 августа в Англии&nbsp;и 27 августа в Северной Америке. На этот раз, альбом <STRONG>ANNIHILATOR</STRONG>&nbsp;выходит на лейбле&nbsp;<STRONG>UDR</STRONG>. </P>
+<P>Альбом <STRONG>"Feast"</STRONG> выйдет сразу в нескольких форматах:</P>
+<P>- Limited-edition eco-book + bonus disc <STRONG>"Re-Kill" </STRONG>(best of <STRONG>ANNIHILATOR</STRONG>, re-recorded in 2012)<BR>- CD jewel case<BR>- LP gatefold<BR>- Digital download<BR>- D2C fan-package</P>
+<P>На издание в формате 'eco-book' войдёт дополнительный CD, на котором группа представила перезаписанные версии своих лучших песен.</P>
+<P>Официальный ролик-презентацию нового альбома можно посмотреть по ссылке: <A href="http://youtu.be/iF6cGA2vonE">http://youtu.be/iF6cGA2vonE</A></P>
+<P>Трек-лист альбома "Feast" выглядит следующим образом:</P>
+<P>01. <STRONG>Deadlock</STRONG> | 02.<STRONG> No Way Out</STRONG> | 03. <STRONG>Smear Campaign</STRONG> | 04. <STRONG>No Surrender</STRONG> | 05. <STRONG>Wrapped</STRONG> | 06. <STRONG>Perfect Angel Eyes</STRONG> | 07. <STRONG>Demon Code</STRONG> | 08. <STRONG>Fight The World</STRONG> | 09. <STRONG>One Falls, Two Rise</STRONG></P>
+<P>Трек-лист дополнительного диска<STRONG> "Re-Kill"</STRONG> (best of <STRONG>ANNIHILATOR</STRONG>, re-recorded in 2012)</P>
+<P>01. <STRONG>Fun Palace</STRONG>&nbsp; | 02. <STRONG>Alison Hell</STRONG> | 03. <STRONG>King Of The Kill</STRONG> | 04. <STRONG>Never, Neverland</STRONG> | 05. <STRONG>Set The World On Fire</STRONG> | 06. <STRONG>Welcome To Your Death W.T.Y.D.</STRONG> | 07. <STRONG>No Zone</STRONG> | 08. <STRONG>Bloodbath</STRONG> | 09. <STRONG>21</STRONG> | 10. <STRONG>Stonewall</STRONG> | 11. <STRONG>Ultra Motion</STRONG> | 12. <STRONG>Time Bomb</STRONG> | 13. <STRONG>Refresh The Demon</STRONG> | 14. <STRONG>Word Salad</STRONG> | 15. <STRONG>Brain Dance</STRONG></P>
+<P>В начале ноября 2013 г., в рамках рекламного тура своего нового альбома,&nbsp;группа<STRONG>&nbsp;ANNHIHILATOR</STRONG> посетит с концертами&nbsp;Санкт-Петербург и Москву. Больше информации в разделе&nbsp;<STRONG>Shows</STRONG> нашего сайта: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.08/26052.jpg" width=484 height=480> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 18.09.2013 news ANNIHILATOR: видеоклип &quot;No Way Out&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>UDR Music</STRONG> презентовал видеоклип на трек <STRONG>"No Way Out"</STRONG> группы <STRONG>ANNIHILATOR</STRONG>! Новый альбом канадцев, под названием <STRONG>"Feast"</STRONG>, вышел в августе этого года!</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/U5PDr8lstKE" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 08.11.2013 news ANNIHILATOR снова в России!
+
+<P>Уже сегодня в&nbsp;Санкт-Петербурге (РКК "<STRONG>Аврора</STRONG>"),&nbsp;а завтра в Москве (клуб "<STRONG>Volta</STRONG>"), каждый желающий снова может увидеть живьём легенду канадского трэша, группу <STRONG>ANNIHILATOR</STRONG>.</P>
+<P>В данный момент коллектив находится в европейском турне, посвящённом выходу своего&nbsp;нового альбома под названием "<STRONG>Feast</STRONG>". И два российских концерта, поставят заключительную точку в их путешествии длинною в месяц.</P>
+<P>Подробную информацию об этих&nbsp;концертах можно получить в разделе <STRONG>Shows</STRONG>&nbsp;нашего сайта: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A> &nbsp;</P>
+<P>А пока, предлагаем вам взглянуть на никогда прежде не публиковавшиеся фотографии с московских гастролей <STRONG>ANNIHILATOR</STRONG> в прошлом году: <A href="/ru/galleries/1/1344/">http://musica.mustdie.ru/ru/galleries/1/1344/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.11/26312.jpg" width=650 height=433> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+### 02.12.2016 articles Джефф Уотерс: великий и могучий
+
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2016.12/30213.jpg" width=600 height=400> 
+<P></P>
+<P>Бытующее мнение, что одной пятой точкой усидеть на двух стульях нельзя,&nbsp; любимая команда Delta Mekong Concerts в&nbsp; минувший week-end сумела опровергнуть, собрав в «Вольте» сразу практически два аншлага. В новом зале московских хипстеров порадовали примодненные The Qemists, а в старом, привычном, рокеры насладились давно ожидаемым Annihilator (четвертый визит, на минуточку!) во главе с бессменным статус-кво ВИА – Джефом Уотерсом. Примерно тысяча поклонников настроились угореть и обуглиться. Некоторые, правда, еще до начала гига ворчали, мол, сет-лист не торт (С), старых песен мало, а новые не так вдохновительны. Но – собака лает, караван несет (здесь надо поставить смайл). Уотерс расшевелил зал так, что мало не покажется.</P>
+<P>Канадский музыкант в очередной раз подтвердил, что король в этом ВИА он и только он. Уотерс снова набрал молодежь (подозреваем, что за три коп). Мы понимаем, что дети и жены требуют обеспечения, поэтому всякий раз смотрим на эксперименты с интересом. Гитарист и басист были ничего себе. С горящими глазами, шикарными длинными волосами, подвижные и зажигательные. Драммер показался скучноватым. Тем более, что Annihilator&nbsp; отличался крутыми барабанщиками, такими как Randy Black и Mike Mangini (К слову, сейчас играет в Dream Theatre, а туда абы кого не зовут). Нынешний драммер в чем-то даже разочаровал московских поклонников. «Зачем с такой манерой стучать устраивать пятиминутное соло?» - удивлялись в зрительном зале. «Ну Уотерс наверное хочет смахнуть пот с утомленных персей», - ответили зрители сами себе.</P>
+<P>Чем же порадовал публику канадский рок-стар? Ожидаемо сыграли про цыплят и кукурузу, старый (и мой любимый) хит про Алису в аду. Ну и еще: King of the Kill, Annihilator, Set the World on Fire и далее. В партере как обычно устроили бешеные пляски и скачки, в ВИПе – под напитки – угорали более сдержанно, но аплодировали бурно и вдохновлено обнимались и целовались. «Ну очень круто, Джеф красавчик», - примерно такой была общая реакция. Резюмируем. Плюсы: отличное единение артистов и публики, хороший звук, любимый зал, сплошной рок-н-ролл, много приятных знакомых.</P>
+<P>Минусы: вышеупомянутый барабанщик (ничего личного, но такой авторитетный ВИА может себе позволить лучшее).</P>
+<P>Спасибо команде Delta Mekong Concerts за предоставленные аккредитации</P>
+<P>Нина Забелина.</P></CENTER>
+Автор: Fucker
+
+### 02.12.2016 news ANNIHILATOR выступили в Москве (фото)
+
+<p>Фотоотчёт о выступлении ANNIHILATOR в московском клубе VOLTA 26 ноября можно посмотреть по ссылке: <a href="/ru/galleries/1/1810/">http://musica.mustdie.ru/ru/galleries/1/1810/</a></p><p><center><img width="600" height="400" src="/images/news_rus/2016.12/30214.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 05.12.2016 articles ANNIHILATOR: 26 ноября 2016, Москва
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2016.12/30219.jpg" width=300 height=415>Хотя Джефф Уотерс, отец-основатель и креативный лидер Annihilator, никогда не был по-настоящему популярен, по крайней мере он уважаем многими – стоит хотя бы вспомнить список именитых музыкантов, не побрезговавших принять гостевое участие на его (пожалуй, самом неудачном) альбоме «Metal» (2007)! Музыка Джеффа весьма разнообразна, технична, достаточно брутальна, но и очень мелодична, и если многие гранды стиля вымучивают свои последние альбомы долгие годы и не всегда выдают вменяемый результат, то Уотерс хоть и эксплуатирует свои наработки от релиза к релизу и уже никогда не превзойдёт первые три великолепные работы, всё же держит уровень качества на внушительной высоте, что доказал последний опус «Suicide Society», который в моём личном рейтинге стал лучшим thrash-альбомом года! Несмотря на потерю талантливого вокалиста/гитариста Дэйва Паддена, Джефф смог выдать набор убойных песен, каждая из которых пестрит игрой стилями и радует приливом вдохновения, который ощущается в лёгкости подачи материала.</P>
+<P>Помимо Паддена, все остальные музыканты последних лет также покинули коллектив, в результате чего Уотерсу пришлось не только набирать новых участников вечно распадающегося состава, но и самому занять место за микрофонной стойкой на концертах. Забегая вперёд, скажу, что это отнюдь не повысило качество исполняемых вокальных партий, а также немного сковало энергичного Джеффа, который уже по возрасту миновал полувековой рубеж, но и не особо-то расстоило. Конечно, трудно ожидать от уже далеко не молодого музыканта феерии рубилова, но никаких старческих признаков не было замечено и в этот раз – Уотерс был снова на высоте! Он пел на пределе своих сил (даже пытаясь вытягивать высокую ноту в Alison Hell), с большим энтузиазмом играл соло, в удобные моменты прыгал по сцене, изображая Энгуса Янга из AС/DC, заводил толпу, а в перерывах между песнями радовал не только хвалебными речами в адрес присутствующих поклонников, но и потоком шуток и приколов.</P>
+<P>Что касается новых участников концертной обоймы Annihilator, то и они не разочаровали. Хотя новый полноправный гитарист Aaron Homma из Канады и сессионщики – английский басист Rich Hinks (Aeon Zen) и итальянский барабанщик Fabio Alessandrini – с технической точки зрения достойно справились с задачей, всё-таки выглядели они новичками. Рич и Аарон очень старались произвести впечатление, бегали по сцене туда-сюда, меняясь местами и не ленились по части хэдбэнгинга, но недостаток опыта всё же сказывался, хотя и не напрягал по одной простой причине – гвоздь программы был всё-таки Джефф Уотерс, который и приковывал к себе всё внимание толпы. Фабио же из этой троицы новобранцев порадовал больше всего – он привнёс в уже известные песни едва уловимую, но достаточную долю креатива, а непродолжительное соло сыграл вполне эффектно, вызвав ещё большую симпатию. Долговязому Ричу же тоже удалось поймать свой звёздный час – он не только активно подпевал почти во всех песнях (вместе с Аароном), но и был удостоен чести спеть целиком заводную NoZone, с чем он справился «на ОК».</P>
+<P>Сетлист в этот раз тоже оказался достаточно интересным. После ухода со сцены странноватого разогревающего коллектива Дистранс вступительным интро, подготовившим публику к выходу хэдлайнеров, стала «пантерообразная» Murder, причём, воспроизведённая целиком. Именно она и задала тон всему выступлению, которое хоть и было thrash-металлическим, но упор был поставлен на композиции с явным влиянием Даймбэга Даррелла – то есть, то, что в последние годы получило ярлык «groove metal». Annihilator, Syn.Kill 1, Set the World on Fire и вышеупомянутая Murder звучали качово, технично и убийственно – особенно с тем весьма неплохим звуком, который был настроен в клубе Volta, заполненном на добрые две трети. </P>
+<P>Конечно же, «нетленка» с ранних альбомов не была забыта – все с радостью смогли ещё раз насладиться классическими композициями – такими, как Phantasmagoria, W.T.Y.D. и закрывавшей концерт суперскоростной Human Insecticide. При этом и новые песни звучали очень убедительно – Creeping Again с неторопливым вступлением, оголтело-шредовым куплетом и мелодичным полупанковским хитовым припевом, неплохая заглавная Suicide Society с нового релиза и No Way Out с предыдущего хорошо соседствовали с супер-хитовой King Of The Kill с одноимённого альбома 94-го года и также крайне удачной ураганной Second to None с того же релиза. Ну, и поистине приятным сюрпризом стала великолепная, техничная Brain Dance с непредсказуемыми сменами темпа – её Джефф сделал ещё более безумной, вставив в середину шуточную Chicken And Corn, также встреченную всеми «на ура».</P>
+<P>Вообще поддержка зала была на высшем уровне, что отметил и сам Джефф, назвав москвичей «лучшей публикой тура». Хотя аншлага в этот раз не было (возможно, кто-то сделал выбор в пользу Ария-Феста с участием Виктора Смольского в его новом проекте Almanac), но мало кто из присутствующих стоял безучастным – большинство если не участвовало в сёркл-пите, то бурно аплодировало между песнями, подпевало по команде «шефа» в нужных местах и, конечно же, скандировало название группы или фамилию её бессменного фронтмена. «Уотерс! Уотерс»! – подхватывал то и дело зал, получая в знак благодарности море позитива со сцены: Джефф успел поделиться впечатлениями от нового альбома Metallicа (назвав его довольно неплохим и даже сыграв фрагмент из Creeping Death, шутливо переименовав его в Creeping Jeff), напомнить о шутливых «альтернативных названиях» своего проекта типа Anal Eater и Anal Later, поругать западную прессу («Fuck West Media»!) и рассказать историю, связанную с очередными проблемами прилёта в Москву.</P>
+<P>По словам Уотерса, перенос прошлого выступления Annihilator по вине бастующих сотрудников Lufthansa мог повториться снова, так как за 2 дня до вылета на данный концерт забастовка повторилась, и музыкантам пришлось покупать «дорогие билеты за своё счёт», чтобы всё-таки добраться до столицы нашей многострадальной страны и порадовать поклонников thrash-metal угарным выступлением в унылое время нагрянувших холодов! И хотя в этот раз не было двухчасовой программы, как в прошлый приезд, но всё же концерт длился достаточно долго – примерно 1 час 40 минут, да и то Джефф уходил со сцены с виноватым видом, извиняясь, что сетлист будет сокращён лишь потому, что музыканты спешат на поезд в Санкт-Петербург… Так или иначе, и публике не хотелось отпускать Annihilator, да и сами оторвались по полной, получили большое удовольствие и рады были бы остаться ещё. Одним словом, что концерт удался.</P>
+<P>В итоге мы имеем обойму сильных песен, ни одну из которых я не могу назвать проходной – среди них и не звучавшие ранние новые трэки, и всегда ожидаемые ранние хиты; хороший звук и свет; отличная поддержка публики при относительно неплохой посещаемости; великолепная работа с залом и отдача со стороны музыкантов, и, конечно, яркая, неповторимая харизма Джеффа Уотерса, настоящего мастера экстремального гитарного искусства, истинного фаната своего дела и упёртого, несгибаемого борца за продвижение классического металла в массы на протяжении более чем 30-летней музыкальной карьеры. Единственным минусом, который я бы отметил, были паузы, которые порой длились по полминуты, почти между всеми песнями, что порой довольно круто «ломало» динамику выступления. </P>
+<P>Но тут опять же стоит вспомнить о возрасте лидера Annihilator – ведь, как он отметил, нынешний концертный барабанщик группы даже ещё не родился, когда Джефф уже ездил в тур в поддержку третьего альбома Set The World On Fire, вышедшего в далёком 93-м году! Так что, Уотерс жив и будет жить, а также выпускать альбомы и приезжать в Россию, и следующий концерт наверняка будет таким же угарным, но и немного другим. Ведь нынешний состав, позволю себе предположить, тоже не вечен, к тому же и новая кровь в виде постоянного вокалиста просто напрашивается… Так что, не осталось никаких сомнений в том, что Джефф ещё живчик в свои 50 лет и его ничто не остановит, и ещё многое ждёт впереди. Кстати, уже анонсирован новый тройной релиз, состоящий из акустического студийного сета и живых выступлений Annihilator, который скрасит время в ожидании нового полноценного альбома. А вот тут, как сказал товарищ Саахов в знаменитой комедии Гайдая, «торопиться не надо».</P>
+<P>Текст: Дмитрий Дасов.</P>
+<P>Фотографии: <A href="/ru/galleries/1/1810/">http://musica.mustdie.ru/ru/galleries/1/1810/</A></P>
+<P>Сетлист:</P>
+<P>01. Suicide Society<BR>02. King of the Kill<BR>03. Creepin' Again<BR>04. Annihilator<BR>05. No Way Out<BR>06. Set the World on Fire<BR>07. Drum Solo<BR>08. Syn. Kill 1<BR>09. No Zone<BR>10. Brain Dance / Chicken and Corn / Brain Dance<BR>11. Alison Hell<BR>12. Second to None<BR>13. Phantasmagoria<BR>14. W.T.Y.D.</P>
+<P>Encore:<BR>15.Human Insecticide</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Annihilator'01

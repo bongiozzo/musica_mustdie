@@ -42,6 +42,21 @@ Wasted Words
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.12.2001 news Готов второй альбом Dakrua
+
+<p>Dakrua завершили запись нового альбома, названного "Shifting Realities". Выход альбома ожидается в феврале 2002 года.</p>
+
+Автор: Morsus
+
+### 12.12.2001 news The second album of Dakrua is finished
+
+<p>Dakrua have finished recordings of their new album. The title of the album is "Shifting Realities" and is expected in February 2002.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

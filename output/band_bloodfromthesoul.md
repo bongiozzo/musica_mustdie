@@ -35,6 +35,9 @@ The Period  11/92 - 7/93
 * C группой "Sigh" Mirai Kawashima
 * C группой "Meads Of Asphodel, The" Mirai Kawashima
 
+## Публикации
+
+
 ## Обсуждения
 
 

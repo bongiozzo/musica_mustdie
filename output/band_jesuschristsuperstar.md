@@ -37,6 +37,21 @@ John 19:41
 
 * C группой "Andrew Lloyd Webber" 
 
+## Публикации
+
+### 27.12.2001 news Мальмстин и Дуги Уайт пишут новый альбом...
+
+<p>YNGWIE MALMSTEEN записывает новый студийный альбом с экс-вокалистом "RAINBOW" - Doogie White. По словам Дуги: "Я просто счастлив поработать с Ингви.... Он попросил меня приготовить несколько собственных вещей и после Нового Года мы будем работать над ними.... Также нам придется проехаться с туром по Китаю в рамках завершения [War To End All Wars]... " <BR><BR> Из других новостей, Дуги Уайт исполнил "Gethsemane" из Jesus Christ Superstar во время шоу в Лондоне. "Я всегда хотел спеть ее..." прокомментировал он. Также вокалист записал бэкграунд вокалы к треку "Sunshine on a Rainy Day" Эммы Бантон...</p>
+
+Автор: Yermola
+
+### 27.12.2001 news MALMSTEEN To Collaborate With Former RAINBOW Vocalist On Upcoming CD...
+
+<p>YNGWIE MALMSTEEN is due to begin writing material for his forthcoming studio CD shortly, and if all goes according to plan, former RAINBOW and current MALMSTEEN vocalist Doogie White will be contributing to the process. According to White, "I am really excited about the challenge of working in a recording situation with YNGWIE. We will exchange ideas early in the New Year and see if it's possible to write together. I know that writing for him is a solitary pursuit, but he has asked me to bring in some ideas and I am really happy to do that. There is also the possibility of a tour of China early in the year to finish the [War To End All Wars] album tour." In other Doogie White-related news, the singer recently performed "Gethsemane" from Jesus Christ Superstar at a theater show in London. "I've always wanted to sing 'Gethsemane' and after the disappointment of losing out on the part this time last year, I jumped at the chance to sing it, if only this once,” Doogie commented. “It was nerve wracking as hell but tons of fun." Following his performance he was approached by a theatrical agent keen to work with him in the future. "It's something that I can consider for later on,” White stated. “In the meantime I am concentrating on putting together ideas for YNGWIE's next album." Also on the White front, CORNERSTONE—the project featuring Doogie and ROYAL HUNT bassist Steen Mogensen—will issue their second album, entitled Human Stain, on February 25th through Massacre Records. Finally, White did backing vocals for Baby Spice Emma Bunton on a track called "Sunshine on a Rainy Day", which appeared on the latter singer's A Girl Like Me CD, released earlier in the year.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

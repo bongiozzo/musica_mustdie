@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.06.2012 news Дебютный альбом KRAMPUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.06/24135.jpg" width=475 height=490>Итальянская modern folk-metal группа <STRONG>KRAMPUS</STRONG> выпустит свой дебютный альбом <STRONG>"Survival Of The Fittest" </STRONG>24 августа на<STRONG> Noise Art</STRONG>. Работа была записана на родине музыкантов в Удине в <STRONG>Blackmirror Studios</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="34">Arise (The Day Of Reckoning)</B><BR itxtNodeId="33">02. <B itxtHarvested="0" itxtNodeId="32">Beast Within</B><BR itxtNodeId="31">03. <B itxtHarvested="0" itxtNodeId="30">Unspoken</B><BR itxtNodeId="29">04. <B itxtHarvested="0" itxtNodeId="28">Rebirth</B><BR itxtNodeId="27">05. <B itxtHarvested="0" itxtNodeId="26">Aftermath</B><BR itxtNodeId="25">06. <B itxtHarvested="0" itxtNodeId="24">The Bride</B><BR itxtNodeId="23">07. <B itxtHarvested="0" itxtNodeId="22">Redemption</B><BR itxtNodeId="21">08. <B itxtHarvested="0" itxtNodeId="20">The Dance Of Lies</B><BR itxtNodeId="19">09. <B itxtHarvested="0" itxtNodeId="18">Kronos' Heritage</B><BR itxtNodeId="17">10. <B itxtHarvested="0" itxtNodeId="16">Shadows Of Our Time</B><BR itxtNodeId="15">11. <B itxtHarvested="0" itxtNodeId="14">Tears Of Stone</B><BR itxtNodeId="13">12. <B itxtHarvested="0" itxtNodeId="12">The Season Of Revenge</B> (bonus track)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -16,6 +16,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.10.2010 news &quot;Chapel Of Blood&quot; - новый клип MURDERDOLLS
+
+<P><STRONG>"Chapel Of Blood"&nbsp;-</STRONG> новое видео группы <STRONG>MURDERDOLLS</STRONG>, можно посмотреть по ссылке ниже. Песня вошла во второй альбом <STRONG>MURDERDOLLS </STRONG><B itxtvisited="1">"Women And Children Last"</B>, который был продан в количестве 8600 экземпляров в С.Ш.А., в первую неделю после выхода и дебютировал на позиции&nbsp;№ 43&nbsp;в чарте&nbsp;<STRONG>The Billboard 200</STRONG>. Выпущённый 31 августа на лейбле <B itxtvisited="1">Roadrunner</B>, CD был записан с продюсером <B itxtvisited="1">Chris "Zeuss" Harris</B> (<B itxtvisited="1">HATEBREED</B>, <B itxtvisited="1">SHADOWS FALL</B>, <B itxtvisited="1">3 INCHES OF BLOOD</B>).</P>
+<P>Смотреть видео: <A href="http://www.youtube.com/watch?v=P0Ldzva-Sq0&feature=player_embedded">http://www.youtube.com/watch?v=P0Ldzva-Sq0</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

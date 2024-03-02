@@ -146,6 +146,149 @@ Bonus tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.05.2001 news Химера из Кливленда.....
+
+<p>CHIMAIRA в настоящее время ударными темпами микшируют свой дебютник для Roadrunner Records названный "Pass Out of Existence" и запланированный к выходу на лето. Работа идет с продюссером Mudrock в Larrabee Studios в Калифорнии. Уже стал известен список песен: 01. Let Go 02. Dead Inside 03. Options 04. Forced Life 05. Jade 06. Without Moral Restraint 07. Pass Out Of Existence 08. Abeo 09. Painting The White To Grey 10. Sphere 11. Split 12. Lumps 13. Severed 14. Taste My... 15. Fascination Street (THE CURE cover) 16. Rizzo (с участием гитариста Stephen Carpenter из "DEFTONES").</p>
+
+Автор: Yermola
+
+### 08.05.2001 news CHIMAIRA are currently mixing their debut ....
+
+<p>Cleveland's CHIMAIRA are currently mixing their debut with producer Mudrock at Larrabee Studios in West Hollywood, CA, with four songs having been completed so far. Pass Out of Existence is tentatively set to be released in August, and it will include a guest appearance by DEFTONES guitarist Stephen Carpenter on the song which carries the working title of "Rizzo". The full track listing for the album (including the bonus tracks) is as follows: 01. Let Go 02. Dead Inside 03. Options 04. Forced Life 05. Jade 06. Without Moral Restraint 07. Pass Out Of Existence 08. Abeo 09. Painting The White To Grey 10. Sphere 11. Split 12. Lumps 13. Severed 14. Taste My... 15. Fascination Street (THE CURE cover) 16. Rizzo (feat. DEFTONES guitarist Stephen Carpenter). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 29.10.2001 news SLAYER and CHIMAIRA in November...
+
+<p>AMERICAN HEAD CHARGE will be heading out on tour with SLAYER and CHIMAIRA in November. The dates are as follows: <BR><BR> Nov. 02 - Myrtle Beach, SC @ House Of Blues <BR> Nov. 03 - Atlanta, GA @ Tabernacle <BR> Nov. 04 - Norfolk, VA @ The NorVa <BR> Nov. 07 - Washington, DC @ 9:30 Club <BR> Nov. 08 - Pittsburgh, PA @ M (Formerly Metropol) <BR> Nov. 09 - Toronto, ON @ Warehouse <BR> Nov. 10 - Montreal, QC @ Metropolis <BR> Nov. 11 - Portland, ME @ State Theatre <BR> Nov. 13 - Hartford, CT @ Webster Theatre <BR> Nov. 14 - Boston, MA @ Avalon <BR> Nov. 15 - Philadelphia, PA @ Electric Factory <BR> Nov. 16 - New York, NY @ Roseland <BR> Nov. 17 - Cleveland, OH @ Agora Theatre <BR> Nov. 19 - Cincinnati, OH @ Bogart's <BR> Nov. 20 - Columbus, OH @ Newport Music Hall <BR> Nov. 21 - Chicago, IL @ Aragon Theatre <BR> Nov. 23 - Detroit, MI @ Harpo's <BR> Nov. 24 - Milwaukee, WI @ Eagles Ballroom <BR><BR></p>
+
+Автор: Yermola
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 29.11.2006 news CHIMAIRA определились с датой релиза
+
+<P>6 марта 2007 года на<STRONG> Ferret Music</STRONG> в Северной Америке и на <STRONG>Nuclear Blast</STRONG> в Европе выйдет новый альбом американского коллектива <B>CHIMAIRA</B> под названием <B>"Resurrection"</B>. Работа над альбомом началась еще 2 октября в компании с продюсерами <B>Jason Suecof</B> и <B>Andy Sneap</B> (<B>MACHINE HEAD</B>, <B>ARCH ENEMY</B>). </P>
+Автор: Dimas
+
+### 21.12.2006 news Подробности о новом альбоме CHIMAIRA
+
+<P>Американский коллектив <B>CHIMAIRA</B> анонсировал трек-лист и обложку своего нового альбома под названием <B>"Resurrection"</B>, который выйдет 6 марта в Америке на <B>Ferret Music</B> и чуть позднее в Европе на <B>Nuclear Blast Records</B>. В альбом войдут следующие вещи:<BR><BR><IMG height=250 alt="" hspace=15 src="/images/news_rus/2006.12/11111.jpg" width=250 align=left border=0>1. <B>Resurrection</B><BR>2. <B>Pleasure In Pain</B><BR>3. <B>Worthless</B><BR>4. <B>Six</B><BR>5. <B>No Reason To Live</B><BR>6. <B>Killing The Beast</B><BR>7. <B>The Flame</B><BR>8. <B>End It All</B><BR>9. <B>Black Heart</B><BR>10. <B>Needle</B><BR>11. <B>Empire</B><BR></P>
+Автор: Dimas
+
+### 23.12.2008 news CHIMAIRA назвали альбом
+
+<P>Новый альбом<STRONG> CHIMAIRA</STRONG> будет называться <STRONG>"The Infection"</STRONG>&nbsp;и выйдет в Северной Америке 21 апреля. Дата выхода в Европе не определена, так как у группы пока нет издателя на этих территориях.</P>
+Автор: Vit Belov
+
+### 11.01.2009 news CHIMAIRA закончили работу
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=188 alt="" hspace=0 src="/images/news_rus/2009.01/13335.jpg" width=250 align=left border=5>CHIMAIRA</STRONG> закончили мастеринг нового альбома <STRONG>"The Infection" </STRONG>в студии <STRONG>Sterling Sound </STRONG>в Нью-Йорке с инженерами <STRONG>Ted Jensen</STRONG>&nbsp;и <B>Chris "Zeuss" Harris</B> (<B>HATEBREED</B>, <B>SHADOWS FALL</B>, <B>AGNOSTIC FRONT</B>, <B>TERROR</B>, <B>THE ACACIA STRAIN</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Звук на новом альбоме просто великолепен. Мы выложим сэмплы в скором будущем, когда наши лэйблы послушают альбом первыми. Потерпите немного</EM>", - обещает певец <STRONG>CHIMAIRA</STRONG> <STRONG>Mark Hunter.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, контракт на выпуск альбома в Европе пока не заключен.</FONT></P>
+Автор: Vit Belov
+
+### 13.01.2009 news CHIMAIRA вернулись на Nuclear Blast
+
+<P><STRONG><IMG height=199 alt="" hspace=0 src="/images/news_rus/2009.01/13358.jpg" width=300 align=left border=5>CHIMAIRA</STRONG> не смогли найти ничего лучшего, как заключить новый контракт с <STRONG>Nuclear Blast</STRONG> на выпуск нового альбома во всём мире, кроме Северной Америки. Ранее сообщалось, что группа ищет новый лэйбл. </P>
+<P>"<EM>Nuclear Blast проделали классную работу с нашим альбомом 2007-го года, поэтому мы всё-таки решили переподписать контракт с ними</EM>", - говорит гитарист группы <STRONG>Rob Arnold.</STRONG></P>
+Автор: Vit Belov
+
+### 13.02.2009 news Новый альбом CHIMAIRA
+
+<P><IMG height=402 alt="" hspace=0 src="/images/news_rus/2009.02/13587.jpg" width=400 align=right border=5>Новый альбом <STRONG>CHIMAIRA</STRONG> <STRONG>"The Infection" </STRONG>выходит 24 апреля на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">The Venom Inside</B><BR itxtvisited="1">02. <B itxtvisited="1">Frozen In Time</B><BR itxtvisited="1">03. <B itxtvisited="1">Coming Alive</B><BR itxtvisited="1">04. <B itxtvisited="1">Secrets Of The Dead</B><BR itxtvisited="1">05. <B itxtvisited="1">The Disappearing Sun</B><BR itxtvisited="1">06. <B itxtvisited="1">Impending Doom</B><BR itxtvisited="1">07. <B itxtvisited="1">On Broken Glass</B><BR itxtvisited="1">08. <B itxtvisited="1">Destroy And Dominate</B><BR itxtvisited="1">09. <B itxtvisited="1">Try To Survive</B><BR itxtvisited="1">10. <B itxtvisited="1">The Heart Of It All</B></P>
+Автор: Vit Belov
+
+### 04.03.2009 news Новая песня CHIMAIRA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<STRONG>Secrets Of The Dead</STRONG>", так называется новая песня <STRONG>CHIMAIRA</STRONG>, которую можно послушать на <STRONG>MySpace</STRONG> группы. Композиция войдёт на новый альбом <STRONG>"The Infection"</STRONG>,&nbsp;который выйдет 24 апреля на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/chimaira">http://www.myspace.com/chimaira</A></FONT></P>
+Автор: Vit Belov
+
+### 16.04.2009 news Слушай CHIMAIRA два дня
+
+<P>Новый альбом <STRONG>CHIMAIRA</STRONG> <STRONG>"The Infection" </STRONG>выходит 24 апреля на<STRONG> Nuclear Blast</STRONG>. Послушать его целиком можно на<STRONG> MySpace</STRONG> страничке группы: <A href="http://www.myspace.com/chimaira">http://www.myspace.com/chimaira</A></P>
+<P>Записи будут доступны всего два дня 16 и 17 апреля.</P>
+Автор: Vit Belov
+
+### 30.04.2009 news CHIMAIRA на 30-м месте
+
+<P>Новый альбом <STRONG>CHIMAIRA "The Infection"</STRONG> занял 30-ое место в чарте <STRONG>BillBoard</STRONG>. Продажи альбома в первую неделю составили 15000 экземпляров.</P>
+Автор: Vit Belov
+
+### 06.05.2009 news Видео CHIMAIRA
+
+<P>Новое видео <STRONG>CHIMAIRA "Destroy And Dominate"</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=56901949">Chimaira - Destroy And Dominate</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=56901949,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=56901949,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.05.2009 reviews Американцы продолжают радовать и удивлять
+
+<P>Группа CHIMAIRA появилась на свет в конце прошлого века в США. Само место её появления и статус новой надежды заокеанского металла не позволяли нам окунуться в её творчество с головой. В то время, всеобщего обновления тяжёлой музыки, нам, ортодоксам, всё новое казалось ересью, убивающей металл. Прошло 10 лет и теперь CHIMAIRA, вдоволь погуляв по чартам Billboard, видится мне оплотом тяжёлой, умной и интересной музыки.</P>
+<P>Скажу сразу, новый альбом группы “The Infection” может не понравиться преданным фэнам группы. Вернее, преданным фэнам группы он понравится, на то они и преданные, а просто сочувствующие мелодичной и быстрой стороне CHIMAIRA могут остаться в стороне от этого альбома. Мысленно я разделил пластинку на две части. Первая, состоящая из пяти открывающих композиций, и завершающая. За первые пять я и ставлю столь высокую оценку этому альбому. Мощное, медленное, плотное, «думовое» и в тоже время злое… Тут нет убийственных убогих хитов, которые кружат голову любителям мелодичного death-metal или metalcore. Здесь очередная жизнь для BLACK SABBATH. К сожалению, вторая часть пластинки вышла не столь впечатляющей. «Водоразделом» служит композиция “Impending Doom”, начало которой отлично вписывается в созданную CHIMAIRA атмосферу злобной безнадежности, но, к сожалению, в её развитии использован недопустимый melodic death-metal рифф, который, быть может, и напомнит слушателю былую CHIMAIRA, но полностью разрушит созданное за первые пять кусков отличного материала. Тут ещё и чистый вокал… Дальше группа пытается исправиться, но, повторюсь, настроение испорчено и вернуть его не возможно. Даже болезненный инструментал “The Heart Of It All”, который мог бы стать великолепным финалом для шедевра, таким не становится.</P>
+<P>Вот как бывает… Немного мелодии и всё. Чёрт знает, что такое… И всё равно рекомендую всем. Этот альбом нужно поддержать. CHIMAIRA не столь популярны в нашей стране, а альбом не предполагает ураганных продаж «прямо с прилавка». В него требуется вслушиваться.</P>
+Автор: Vit Belov
+
+### 05.09.2009 news CHIMAIRA отменили у нас концерты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> перенесли на начало следующего года концерты в Санкт-Петербурге, Москве, Киеве и Минске, из-за "относящихся к семье вопросов, связанных со здоровьем", которые требуют присутствия группы в Кливленде в это время. Группа извиняется, но объясняет, что у каждого могут быть свои личные дела. Концерты, следующии за туром по СНГ, не отменены.</FONT></P>
+Автор: Vit Belov
+
+### 02.06.2010 news CHIMAIRA выпустят DVD
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.06/16771.jpg" width=400 align=right border=5>20 июля на <STRONG>Ferret Music </STRONG>выходит новое DVD/CD<STRONG> CHIMAIRA</STRONG> <STRONG>"Coming Alive". </STRONG>На DVD попал фильм, рассказывающий о жизни группы последние полтора года. Обещается 7 часов эксклюзивного контента в HD. В другой части DVD можно обнаружить юбилейное шоу группы, прошедшее 30 декабря 2009 года в родном городе<STRONG> CHIMAIRA</STRONG> Кливленде. Трэк-лист концерта:</P>
+<P>01. <B>The Venom Inside</B> <BR>02. <B>Resurrection</B> <BR>03. <B>Power Trip</B> <BR>04. <B>Empire</B> <BR>05. <B>The Disappearing Sun</B> <BR>06. <B>Severed</B> <BR>07. <B>Destroy and Dominate</B> <BR>08. <B>Six</B> <BR>09. <B>The Dehumanizing Process</B> <BR>10. <B>Dead Inside</B> <BR>11. <B>Painting The White To Grey</B> <BR>12. <B>Nothing Remains</B> <BR>13. <B>Salvation</B> <BR>14. <B>Secrets Of The Dead</B> <BR>15. <B>The Flame</B> <BR>16. <B>Pure Hatred</B> <BR>17. <B>Implements of Destruction</B> (included on DVD only)</P>
+<P>У поклонников группы в нашей стране будет шанс оценить группу вживую, так как до нас американцы не доехали даже со второй попытки.</P>
+Автор: Vit Belov
+
+### 07.08.2011 news Трейлер новой CHIMAIRA
+
+<P>Официальный трейлер ноыого альбома<STRONG> CHIMAIRA</STRONG> <STRONG>"The Age Of Hell" </STRONG>можно увидеть ниже. Пластинка выйдет 29 августа на <STRONG>Long Branch Records</STRONG>. Трек-лист:</P>
+<P>01. <B>The Age Of Hell</B><BR>02. <B>Clockwork</B><BR>03. <B>Losing My Mind</B><BR>04. <B>Time Is Running Out</B><BR>05. <B>Year Of The Snake</B><BR>06. <B>Beyond The Grave</B><BR>07. <B>Born In Blood</B> (feat. Phil Bozeman)<BR>08. <B>Stoma</B><BR>09. <B>Powerless</B><BR>10. <B>Trigger Finger</B><BR>11. <B>Scapegoat</B><BR>12. <B>Samsara</B> (feat. Emil Werstler)</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/NFP9n9eSlMs" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 14.08.2011 news Новый клип CHIMAIRA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео режиссёра <STRONG>Todd Bell</STRONG> на песню<STRONG> CHIMAIRA</STRONG> <STRONG>"Year Of The Snake" </STRONG>можно посмотреть ниже. Трек взят с новейшего альбома американской группы <STRONG>"The Age Of Hell"</STRONG>, который выйдет в Европе в конце августа.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME src="http://www.youtube.com/embed/trSCOOQ9EXM" frameBorder=0 width=640 height=390 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.08.2013 news Видео новинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26013.jpg" width=200 height=285>В этом постинге&nbsp;опубликованы ссылки на 10 самых последних видео новинок от&nbsp;&nbsp;тяжёлых групп, которые так или иначе заслуживают внимание:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLACK TUSK</STRONG> "Truth Untold": <A href="http://youtu.be/yJXIvu4HqiY">http://youtu.be/yJXIvu4HqiY</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRING ME THE HORIZON</STRONG> "Go To Hell, For Heaven's Sake": <A href="http://youtu.be/9xLiI_-N4Hc">http://youtu.be/9xLiI_-N4Hc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CATTLE DECAPITATION</STRONG> "Your Disposal": <A href="http://youtu.be/szOlMfoN-jU">http://youtu.be/szOlMfoN-jU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> "All That's Left Is Blood": <A href="http://youtu.be/9OCh9hIGbGo">http://youtu.be/9OCh9hIGbGo</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEADLOCK</STRONG> "I'm Gone": <A href="http://youtu.be/R7M97B7bLZU">http://youtu.be/R7M97B7bLZU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEBAUCHERY</STRONG> "Let There Be Blood": <A href="http://youtu.be/7W8EU9HykoI">http://youtu.be/7W8EU9HykoI</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KILLSWITCH ENGAGE</STRONG> "Always": <A href="http://youtu.be/xcZIwXABBKA">http://youtu.be/xcZIwXABBKA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY RUIN</STRONG> "Moriendo Renascor": <A href="http://youtu.be/wNP_nITIuyQ">http://youtu.be/wNP_nITIuyQ</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEWSTED</STRONG> "Above All": <A href="http://youtu.be/6AWprBmbyuU">http://youtu.be/6AWprBmbyuU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TERROR</STRONG> "I'm Only Stronger": <A href="http://youtu.be/Gnx6ZusJbE4">http://youtu.be/Gnx6ZusJbE4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приятного просмотра!</FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

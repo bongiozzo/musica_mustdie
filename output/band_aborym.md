@@ -93,6 +93,119 @@ Marcello Balena пїЅ Saxophone
 
 * C группой "Void of Silence" Malfeitor Fabban
 
+## Публикации
+
+### 20.09.2000 news Новый диск итальянцев Aborym
+
+<p> Итальянские блэкстеры Aborym во с Аттилой закончили запись своего нового альбома "Fire Walk With Us!". Вот названия некоторых песен с этого диска: Here are the song-titles for the beginning: "Our Sentence", "Love The Death As The Life", "White Space", "Fire Walk With Us!", "Here Is No God S.T.A.", "Total Black", "Sol Sigillum", "Det Som Engang Var", "Theta Paranoia".</p>
+
+Автор: Nybras
+
+### 20.09.2000 news Aborym&#39;s new album
+
+<p> The former Tormentor-, Mayhem- and Plasma Pool-frontman Attila Csihar has been confirmed as permanent vocalist of Italy's Black Metalians. With him they have recorded their second album "Fire Walk With Us!", which is said to contain original and extreme Black Metal that should continue the line of the debut "Kali Yuga Bizarre". Here are the song-titles for the beginning: "Our Sentence", "Love The Death As The Life", "White Space", "Fire Walk With Us!", "Here Is No God S.T.A.", "Total Black", "Sol Sigillum", "Det Som Engang Var", "Theta Paranoia".</p>
+
+Автор: Nybras
+
+### 07.12.2001 news Aborym выпустят альбом на Code 666
+
+<p>Aborym подписали контракт с набирающим обороты лейблом Code 666 на выпуск своего следующего, третьего по счёту альбома. Запись состоится в Италии в апреле будущего года, выход альбома намечен на ноябрь. Примечательно, что тексты трёх песен написал Faust в своей тюремной камере, где ему предстоит пробыть ещё два года.</p>
+
+Автор: Morsus
+
+### 07.12.2001 news Aborym will release next album through Code 666
+
+<p>Aborym have signed a deal with Code 666 for their next, third so far, album which will be recorded in Italy in April and is scheduled for a November 2002 release. Bard Faust wrote lyrics for three songs from prison where he will still be for two more years.</p>
+
+Автор: Morsus
+
+### 01.05.2002 news Aborym are working on new album
+
+<p>Aborym decided to start the recording-process of their new album (working title "With No Human Intervention") using two different Recording Studios at the same time: Temple Of Noise and Cyber Studios. A new band-member called Mental Siege will work on the Multimedia-side and post-production of the album, plus the real-time support during Live-Performances also. Attila Csihar will join the rest of the band in Studio during May, followed by two very special Guests: Nattefrost from Carpathian Forest and Mick Kenney from Anaal Nathrakkh. Bard G-Eithun Faust (ex-Emperor) wrote some lyrics for the new album as well. The New Kult will be unleashed by code666 in November 2002 in a unique Double-Digipack-CD.</p>
+
+Автор: Morsus
+
+### 01.05.2002 news Aborym работают над новым альбомом
+
+<p>Aborym приступили к записи своего нового альбома с рабочим названием "With No Human Intervention". Запись будет проходить одновременно в двух различных студиях: Temple Of Noise и Cyber Studios. Новый участник команды по имени Mental Siege будет работать над мультимедийной составляющей альбома, над пост-производством, а также участвовать в живых концертах. Attila Csihar присоединится к остальным коллегам в течение мая. Кроме того, в записи примут участие весьма почётные гости: Nattefrost из Carpathian Forest и Mick Kenney из Anaal Nathrakkh. Несколько текстов для нового альбома написал бард Faust (ex-Emperor). Новый культовый продукт появится на лейбле code666 в ноябре 2002 года в виде оригинального двойного Digipack-CD.</p>
+
+Автор: Morsus
+
+### 21.11.2002 news ABORYM Singer Arrested For Possession Of Ecstasy Pills ....
+
+<p>Former MAYHEM and current ABORYM singer Attila Csihar is currently being held in jail in Treviso, northern Italy, where he was recently arrested for possession of 158 ecstasy pills and a small amount of hash. "We don't know yet about how much he will get, but a trial should be set around December," the rest of ABORYM said in an official statement. "Cross your fingers upside down! We will make you have news as soon as we get them, so many things you may hear about that case NOT coming from US may be as well considered pure bullshit. <BR><BR> "Now, before you start thinking about that: ABORYM WON'T stop because of this," the band added. "We will continue (as Attila himself asked us to do) and our third masterpiece with Attila Csihar on vocals will be released in January 2003 by Code666 in Europe and later by WW3 (Mercenary Musick) in USA, as previously planned. His arrest wont affect in any way the release of such a masterpiece. This shitty situation is not enough to make us turn back or stop. We will continue to play and perform the most extreme music." <BR><BR> ABORYM's third album, "With No Human Intervention", will be released in January. A digipak version of the CD will include as a special CD-ROM bonus track the "With No Human Intervention" EPK-video.<BR><BR> The track listing for the album is as follows:<BR><BR> 01. Antichristian Codec (intro)<BR> 02. With No Human Intervention<BR> 03. U.V. Impaler<BR> 04. Humechanics-Virus<BR> 05. Does Not Compute<BR> 06. Faustian Spirit Of The Earth<BR> 07. Digital Goat Masque<BR> 08. The Triumph<BR> 09. Black Hole Spell<BR> 10. Me(N)Tal Striken Terror Action<BR> 11. 11 Out Of Shell<BR> 12. Chernobyl Generation<BR> 13. The Alienation Of A Blackened Heart<BR> 14. Automatik Rave'olution Aborym<BR><BR> Among the guest musicians/songwriters contributing to the album are Bеrd "Faust" Eithun (ex-EMPEROR, now drummer in DISSECTION), Nattefrost (leader of CARPATHIAN FOREST), and Irrumator (mastermind of the ANAAL NATHRACKT).</p>
+
+Автор: Yermola
+
+### 21.11.2002 news Вокалист ABORYM арестован...
+
+<p>Бывший вокалист "MAYHEM" и действующий "ABORYM" - Attila Csihar арестован в Тревизо (Италия) и находится в тюрьме. Он арестован за хранение таблеток экстази и гашиша. Оставшиеся участники "ABORYM" заявили, что новый альбом "With No Human Intervention" в любом случае будет выпущен в январе 2003 на Code666 в Европе и WW3 (Mercenary Musick) в США. В качестве гостей на диске приняли участие Bard "Faust" Eithun (ex-EMPEROR, на данный момент - барабанщик DISSECTION), Nattefrost (лидер CARPATHIAN FOREST), а также Irrumator (босс ANAAL NATHRAKH). <BR><BR> Трек-лист:<BR><BR> 01. Antichristian Codec (intro)<BR> 02. With No Human Intervention<BR> 03. U.V. Impaler<BR> 04. Humechanics-Virus<BR> 05. Does Not Compute<BR> 06. Faustian Spirit Of The Earth<BR> 07. Digital Goat Masque<BR> 08. The Triumph<BR> 09. Black Hole Spell<BR> 10. Me(N)Tal Striken Terror Action<BR> 11. 11 Out Of Shell<BR> 12. Chernobyl Generation<BR> 13. The Alienation Of A Blackened Heart<BR> 14. Automatik Rave'olution Aborym</p>
+
+Автор: Yermola
+
+### 28.04.2003 reviews Там, где не ступала нога человека
+
+<p>"With No Human Intervention" - третий релиз культовой команды. Как и прежде, в первую очередь, обращает на себя внимание шикарный монолитный гитарный звук с разрывающимися риффами. Отдельного внимания заслуживает душераздирающий вокал в исполнении Atilla Csihar (ex-MAYHEM). Также следует отметить, что в труднейшем процессе записи альбома приняли участие такие известные личности, как Nattefrost (CARPATHIAN FOREST), Irrumator (ANAAL NATHRAKH), Matt Jerman (VOID/OCD), Sasrof (DIABOLICUM) и Bard “Faust” Eithun (ex-EMPEROR, THORNS), который придумал название и концепцию этого альбома. Они написали лирику к отдельным вещам, а также записали на отдельных вещах инструментальные и вокальные партии. А посвящен альбом Jon Nodtveidt'у из DISSECTION. Это что касается закулисных дел... Ну а что касается музыки... Материал ABORYM представляет собой скоростной и интенсивный атмосферный black metal, полный различных звуковых экспериментов, мелодических кусков и галлюциногенных вставок в виде техно бласт-битов, индустриальных драмсов и рэйвовых сэмплов смешиваемых со злобой и агрессией. На третьем альбоме группа окончательно и бесповоротна отошла от сырого black metal к индустриальным и электронным делам. Это даже уже не post black metal, а более углубленная в hi-fi дела музыка. Тем не менее, по-прежнему тяжелая и злая. И главное, оригинальная. Cyber black metal нового поколения. Релиз спорный, но из разряда обязательных для прослушивания.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 02.08.2003 news Aborym собираются в Москву
+
+<p>В октябре ожидается приезд легендарного Attila Csihar (ex-Mayhem) и Fausta (ex-Emperor) в составе Aborym (black-metal). Выступление группы пройдет в одном из клубов Москвы. Следите за анонсом новостей.</p>
+
+Автор: Morsus
+
+### 18.03.2005 news ABORYM подписались на SEASON OF MIST
+
+<P>Итальянские авангардные блэкстеры&nbsp;&nbsp;<STRONG>ABORYM</STRONG> подписали двухальбомное соглашение с французским лейблом <STRONG>Season of Mist</STRONG>. Запись нового альбома начнется уже в апреле-мае. В конце года, музыканты собираются осчастливить нас своим новым творением. В группе новый вокалист <B>Prime Evil</B> (ex-<B>MYSTICUM</B>), который заменил <B>Attila Csihar</B>, вернувшегося в <B>MAYHEM</B>. Тем не менее, <STRONG>Attila</STRONG> запишет партии гостевого вокала на новом альбоме <STRONG>ABORYM. </STRONG>Кроме того, следует напомнить, что с недавних пор, постоянным участником коллектива стал ударник<STRONG> Bard "Faust" Eithun (ex-EMPEROR).</STRONG><BR><BR></P>
+Автор: Dimas
+
+### 31.05.2005 news ABORYM начинают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ABORYM</STRONG> вошли 18 мая в студию <STRONG>Temple Of Noise</STRONG>. <STRONG>Faust </STRONG>уже записал партии барабанов для восьми песен. Запись продолжится в течение лета. Сообщается, что гитарист <STRONG>Seth</STRONG> не будет записывать альбом вместе с группой, из-за занятости в <STRONG>DISSECTION</STRONG>, и его можно считать официально покинувшим<STRONG> ABORYM</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 12.10.2005 news Новый альбом ABORYM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ABORYM "Generator"</STRONG> выходит в ближайшее время на <STRONG>Season Of Mist</STRONG>. Трэк-лист:</FONT></P>
+<P>1. <STRONG>Armageddon <BR></STRONG>2. <STRONG>Disgust and Rage (Sic transit Gloria Mundi) <BR></STRONG>3. <STRONG>A Dog-Eat-Dog World</STRONG> <BR>4. <STRONG>Ruinrama Kolossal S.P.Q.R.</STRONG> <BR>5. <STRONG>Generator </STRONG><BR>6. <STRONG>Suffer Catalyst</STRONG> <BR>7. <STRONG>Between the Devil and the Deep Blue Sea</STRONG> <BR>8. <STRONG>Man Bites God</STRONG> <BR>9. <STRONG>I Reject!&nbsp;</STRONG></P>
+Автор: Vit Belov
+
+### 12.08.2010 news ABORYM возвращаются
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Post black-metal/industrial-metal команда <STRONG>ABORYM </STRONG>возвращается со своим пятым альбомом <STRONG>"Psychogrotesque", </STRONG>который выйдет 8 ноября на<STRONG> Season Of Mist</STRONG>. Новый альбомом состоит из одной песни, написанной лидером группы <STRONG>Malfeitor Fabban</STRONG>&nbsp;и новым гитаристом по кличке <STRONG>Hell:IO:Kabbalus</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбом был записан в <STRONG>Fear No One Studios</STRONG>&nbsp;продюсером <STRONG>Emiliano Natali.</STRONG></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><BR></P></FONT>
+Автор: Vit Belov
+
+### 29.06.2011 news ABORYM на Agonia Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянцы <STRONG>ABORYM</STRONG> подписали контракт с <STRONG>Agonia Records</STRONG>. Шестой альбом группы выйдет в следующем году в ознаменование 20-летнего юбилея коллектива. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ABORYM</STRONG> станут приоритетным проектом для этого небольшого лэйбла, который предоставит музыкантам больший бюджет для&nbsp;юбилейного альбома. Новая работа обещает стать самым сумасшедшим продуктом, когда-либо появлявшимся под вывеской <STRONG>ABORYM</STRONG>.</FONT></P>
+<P><center><IMG height=308 src="/images/news_rus/2011.06/19791.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 09.09.2016 news ABORYM опубликовали обложку
+
+<p>Итальянцы <strong>ABORYM</strong> готовят к выходу седьмой полноформатный альбом "<strong>Shifting.negative</strong>". Диск был записан <strong>Emiliano Natali</strong> (Fear No One Studios), <strong>Teo Pizzolante</strong> (Braingasm Lab) и<strong> Luciano Lamanna</strong> (Subsound Studios). Сведение и мастеринг сделал <strong>Marc Urselli</strong> в <strong>Eastside Sound Studios</strong> (Lou Reed, John Zorn, Mike Patton) в Нью-Йорке.</p><p>В записи альбома принял участие<strong> Sin Quirin</strong> из<strong> Ministry</strong>.</p><p>&nbsp;Трек-лист:</p><p>1. Unpleasantness<br>2. Precarious<br>3. Decadence in a nutshell<br>4. 10050 cielo drive<br>5. Slipping throught the cracks<br>6. You can't handle the truth<br>7. For a better past<br>8. Tragedies for sales<br>9. Going new places<br>10. Big h<br><center><img width="500" height="500" src="/images/news_rus/2016.09/29948.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 09.09.2016 news ABORYM reveal cover, tracklist and guest musicians for new album
+
+<p>Italy's legendary industrial/electro metallers, <strong>ABORYM</strong>, have revealed an impressive list of names behind their upcoming seventh album, "<strong>Shifting.negative</strong>" (including Sin Quirin of Ministry and Guido Elmi of Vasco Rossi fame). The band has also unveiled the full trackilst and cover, made by French artist <strong>David Cragne</strong> (Asymetric Entity). </p><p>The new album has been engineered by <strong>Emiliano Natali</strong> (Fear No One Studios),<strong> Teo Pizzolante</strong> (Braingasm Lab) and <strong>Luciano Lamanna</strong> (Subsound Studios). In the nearest future it will be mixed and mastered by Grammy-award winning<strong> Marc Urselli</strong> at <strong>Eastside Sound Studios</strong> (Lou Reed, John Zorn, Mike Patton) in New York.</p><p>Guido Elmi (Vasco Rossi's legendary producer & manager) has been revealed as the post-production sound supervisor behind "Shifting.negative". Fabban commented:</p><p>"<em>We are working with a real professional, a true legend, probably our biggest fan and a great friend. Please join us in welcoming mr. Guido Elmi. No need to say Guido is Vasco Rossi’s producer & manager over the past 30 years and he has worked as producer with dozens of artists including Stadio, Skiantos, Gaznevada, Steve Rogers Band, Clara & Black Cars and many others. Today he's also a singer and songwriter</em>".</p><p>"Shifting.negative" was recorded in the following line-up: founder Fabban on programming, modulars, synth and vocals, multi-instrumentalist Dan V on guitars and bass, Davide Tiso (Niф, Gospel of the Witches, ex-Ephel Duath) on guitars and Stefano Angiulli behind synths and keyboards. ABORYM's ranks also include a long time associate RG Narchost, who's a live musician for the band.</p><p>There's also a long list of guest musicians involved in the album, most noticeably featuring Sin Quirin of Ministry fame on guitars. Other contributors include: Ricktor (The Electric Hellfire Club), Pier Marzano (Koza Noztra), drummer Andrea Mazzucca, vocalists Victor Love (Dope Stars Inc., Victor Love), Cain Cressall (The Amenta) and Nicola Favaretto N-ikonoclast. Further there's Greg Watkins (Static of Masses, Order Sixty Six) and Luciano Lamanna on modular synths, Kelly Bogues (Zogthorgven) delivering additional ambient noise, Joel Gilardini (The Land Of The Snow, Mulo Muto, Black Machineries) on additional treated guitars, electronics & (D)ronin, Ben Hall (Silent Eretic) on power-electronics and Tor Helge Skei (Manes) on ambient-electronics. There's also Tokyo based artist Youko Heidy responsible for experimental noise and FX and Leja Siv Harju who wrote the lyrics to "Going new places".</p><p>Tracklist:<br>1. Unpleasantness<br>2. Precarious<br>3. Decadence in a nutshell<br>4. 10050 cielo drive<br>5. Slipping throught the cracks<br>6. You can't handle the truth<br>7. For a better past<br>8. Tragedies for sales<br>9. Going new places<br>10. Big h</p><p>"Shifting.negative" is set to be released on <strong>Agonia Records</strong> at a date yet to be determined. More news will follow soon.</p><br><center><img width="500" height="500" src="/images/news_rus/2016.09/29948.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 19.10.2016 news ABORYM назначили дату релиза
+
+<p>Новый альбом<strong> ABORYM "Shifting.Negative"</strong> выйдет 25 января на <strong>Agonia Records</strong>. Как уже сообщалось, диск был записан в новом составе: лидер коллектива <strong>Fabban</strong>, мульти-инструменталист <strong>Dan V</strong>, басист/гитарист <strong>RG Narchost</strong>, гитарист <strong>Davide Tiso</strong> (ex-Ephel Duath, Gospel Of The Witches), клавишник<strong> Stefano Angiulli</strong> и множество приглашённых музыкантов.</p><p><center><img width="300" height="773" src="/images/news_rus/2016.10/30104.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 19.10.2016 news ABORYM announced releasedate
+
+<p>Italy's legendary industrial/electronic metal band<strong> ABORYM</strong> will release a new album called "<strong>Shifting.negative</strong>" on January 25th via <strong>Agonia Records</strong>. The follow up to 2013 "<strong>Dirty</strong>" was recorded with an all&nbsp; new line-up consisting of founder<strong> Fabban</strong>, multi-instrumentalist <strong>Dan V</strong>, bassist & guitarist<strong> RG Narchost</strong>, guitarist <strong>Davide Tiso</strong> (ex-Ephel Duath, Gospel Of The Witches), keyboardist <strong>Stefano Angiulli</strong> and several guest musicians (including Sin Quirin of Ministry fame).</p><p><center><img width="300" height="773" src="/images/news_rus/2016.10/30104.jpg" border="0"></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Attila Csihar (ex-Mayhem) и Faust (ex-Emperor)

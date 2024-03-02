@@ -8,6 +8,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.10.2005 news VIGILIA MORTUM на Blacksmith
+
+<P>Эстонская группа <STRONG>VIGILIA MORTUM</STRONG> заключила контракт на выпуск дебютного альбома "<STRONG>Bloody Remorse</STRONG>" c российской конторой <STRONG>Blacksmith</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

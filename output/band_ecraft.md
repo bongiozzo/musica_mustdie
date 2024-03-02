@@ -16,6 +16,9 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### XII Synthetic Snow Festival: ГЛЕБ САМОЙЛОFF and the MatriXX, E-CRAFT, CULTURE KULTUR (12 декабря) 

@@ -35,6 +35,9 @@ Recorded At Dog Fish Sound (Newburg,OR) In June 1992.
 
 * C группой "Domesticide" 
 
+## Публикации
+
+
 ## Обсуждения
 
 

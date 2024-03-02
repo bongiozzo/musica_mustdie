@@ -44,6 +44,21 @@ mixed by : No return
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.2002 reviews Продаётся thrash-metal!!!
+
+<p>Thrash-metal из Франции... (Посмотрев у нас базу, обнаружил, что данный коллектив уже имеет один альбомчик в стиле death-metal, но мне их творчество неизвестно, впрочем, как и большинству читателей, прим. авт.). Не знаю, в чём тут дело, либо реально ничего в этом стиле нового и интересного записать невозможно, либо просто это промах германских мажоров. Сначало о плюсах, концептуальное оформление обложки и буклета, да и музыка довольно точно подстраивается под определение Machinery, довольно интересные вкрапления всяких индустриальных звуков. На этом, пожалуй, плюсы исчерпываются...В основном однообразныя музыка, к тому же, плохо записанная. Слышны, почему-то, только одна гитара и барабаны. Всё-таки в 21 веке хотелось бы послушать более ритмически насыщенный трэш. А так барабаны, стучащие в одном ритме и скрежет гитары. На закуску кавер Death "Secret Face", который напоминает оригинал только в припеве, быстро и разборчиво No Return похоже играть не умеют. Выбивается из общего ряда песня Disillusion, да и то только мелодией, кстати, хорошо это или плохо сказать не могу. Средний материал, средняя реализация, средняя оценка...</p>
+
+Автор: Vit Belov
+
+### 13.09.2002 news Second studio album from Norway’s’ MYRKSKOG....
+
+<p>Second studio album from Norway’s’ MYRKSKOG, who are fast becoming THE most talked about extreme metal combo on the planet after their debut “ Death Machine” grabbed and smashed everyone’s attention. Two years plus on the band have turned in one of the most highly charged and powerful heavy death/extreme metal releases in the history of extreme music.<BR><BR> From the opening salvo of “Domain Of The Superior” to “Over The Gore” the sheer speed and power of the music has to be heard to be believed, with some of the fastest and most brutal drumming ever laid down in a recording studio. With a full European Tour confirmed with Relapse favorites NILE, the time has come for MYRKSKOG to take the extreme metal crown.<BR><BR> Myrkskog tour dates:<BR><BR> NIILE - SINISTER - NO RETURN - MYRKSKOG – EKTOMORF<BR><BR> 02.10.2002. UK LONDON / MEAN FIDDLER *<BR> 03.10.2002. UK PLYMOUTH / JONGLEURS *<BR> 04.10.2002.IRL DUBLIN / EAMON DORANS *<BR> 05.10.2002. UK BRADFORD / RIO *<BR> 06.10.2002. UK MILTON KEYNES - PITZ *<BR> 08.10.2002. FR PARIS / LA LOCOMOTIVE<BR> 09.10.2002. FR AMNEVILLE / AFTER CLUB<BR> 10.10.2002. D ESSEN / ZECHE CARL<BR> 11.10.2002. NL ROTTERDAM / BAROEG<BR> 12.10.2002. BL VOSSELAAR / BIEBOB<BR> 13.10.2002. NL DEN BOSCH / WILLEM II<BR> 15.10.2002. FR MARSEILLE / MIRABEAU<BR> 16.10.2002. FR PERPIGNAN / CROCK-MORE<BR> 17.10.2002. SP IRUN / TUNK<BR> 18.10.2002. SP BARCELONA / LA CAPSA<BR> 19.10.2002. SP MADRID / RITMO & COMPAS<BR> 20.10.2002. SP MURCIA / GAMMA<BR> 21.10.2002. FR TRAVEL DAY<BR> 22.10.2002.ITA CESENA / VIDIA<BR> 23.10.2002.CH PRATELLN / Z7<BR> 24.10.2002. A VIENNA / ARENA<BR> 25.10.2002. CZ BRNO / BABYLON<BR> 26.10.2002. PL KATOWICHE / MYSTIC FESTIVAL<BR> 27.10.2002. D ZWICKAU / ALARM<BR> 28.10.2002. D BERLIN / KNAACK<BR> 29.10.2002. D HAMBURG / MARKTHALLE<BR> * ONLY NILE – SINISTER<BR><BR> In the US, Superior Massacre is slated for release September 17. Already it is causing quite a stir. Radio stations are anticipating this record as fans. "A heaving and devastating portrayal, filled with surging and crushing power that is destined to obliterate all in its path through this massive death metal pilgrimage…” says Brave Words & Bloody Knuckles! Watch out for this album may just slap you in the face if you’re not careful!</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

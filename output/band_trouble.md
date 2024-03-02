@@ -113,6 +113,44 @@ Recorded At Indigo Ranch - Malibu, CA, Fantasy Studios - Brkly, CA, Scream - Stu
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2001 news Возрождение неприятностей....
+
+<p>Трэшеры "TROUBLE" вновь собрались в классическом составе: вокалист Eric Wagner, гитарист Rick Wartell, гитарист Bruce Franklin, ударник Jeff Olson и бассист Ron Holzner и в настоящее время пишут новый альбом. По словам Holzner: "Это не будет звучать как Пойзон!" Идеи к восьми песням уже готовы.</p>
+
+Автор: Yermola
+
+### 29.05.2001 news The classic TROUBLE line-up of ....
+
+<p>The classic TROUBLE line-up of vocalist Eric Wagner, guitarist Rick Wartell, guitarist Bruce Franklin, drummer Jeff Olson and bassist Ron Holzner has reunited and is in the process of demoing new material, according to several postings from Ron on Patrick Schlimm's excellent TROUBLE Heaven web site. TROUBLE entered the studio on May 21st to start tracking new material, which Holzner says "will sound like TROUBLE…and also a bit like all the bands we're influenced by! So don't worry about us sounding like POISON or something." No titles have yet been revealed, but the bassist goes on to say that as of early April, the band had already come up with some eight song ideas, and this is after Rick, Bruce and Eric had only rehearsed together twice! Although not entirely surprising, this latest news seems to directly contradict vocalist Eric Wagner's previous statements in which he appeared to rule out a reunion in the near future, and it appears to mark the end of Wagner's LID project (also featuring ANATHEMA guitarist Daniel Cavanagh), which issued the lukewarmly-received In The Mushroom CD back in 1997. In related news, it appears that Holzner has joined doomsters GOATSNAKE (featuring ex-THE OBSESSED drummer Greg Rogers) for some touring action, which saw the bassist playing dates with the group on the west coast in March and is likely to include a UK tour in June supporting QUEENS OF THE STONE AGE. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 25.07.2003 news Долгожданный TROUBLE
+
+<p>Собравшиеся недавно после долгого молчания, легенды doom metal TROUBLE, вместе с новым басистом Chuck Robinson, планируют начать в октябре запись своего седьмого творения под названием "Seven". Кроме того, перед новым альбомом, музыканты планируют выпустить компиляцию из семи акустических версий песен из классического репертуара группы.</p>
+
+Автор: Dimas
+
+### 04.04.2009 news TROUBLE пишут настоящий DOOM альбом
+
+<P><STRONG>TROUBLE</STRONG> назвали свой будущий альбом <STRONG>"The Dark Riff". </STRONG>Работа над пластинкой продолжается, музыканты обещают настойщий doom-metal альбом.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

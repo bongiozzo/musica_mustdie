@@ -146,6 +146,16 @@ iTunes pre-order bonus track:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.04.2011 news Jamey Jasta выпустит сольный альбом
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19231.jpg" width=213 height=300>26 июля на лейбле <STRONG>eOne Music</STRONG> выходит сольный альбом Джеймса Джаста (<STRONG>Jamey Jasta</STRONG>), вокалиста&nbsp;<STRONG>HATEBREED</STRONG> и <STRONG>KINGDOM OF SORROW</STRONG>.</P>
+<P>На альбоме, получившим скромное название <STRONG>"Jasta"</STRONG>, отметятся следующие гостевые музыканты: <B>Tim Lambesis</B> (<B>AS I LAY DYING</B>),&nbsp;профессиональный скейтер&nbsp;<B>Mike Vallely</B>, <B>Philip Labonte</B> (<B>ALL THAT REMAINS</B>), <B>Randy Blythe</B> и <B>Mark Morton</B> (<B>LAMB OF GOD</B>) и легендарный гитарист&nbsp;<B>Zakk Wylde</B>. <BR></P>
+<P><BR>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

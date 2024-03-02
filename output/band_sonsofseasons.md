@@ -80,6 +80,34 @@ Photography by Stefan Heilemann, Simone Simons, John Simons and Rudy DeDoncker.
 * C группой "Mayan" Simone Simons (vocal)
 * C группой "Kamelot" Simone Simons (vocal)
 
+## Публикации
+
+### 11.06.2009 reviews Насыщенный проект от клавишника KAMELOT
+
+<P>Амбициозный проект SONS OF SEASONS был создан клавишником KAMELOT и Doro Pesch Oliver Palotal (здесь он играет ещё и на гитаре). Ещё одним знаковым персонажем этой группы является вокалист Henning Basse из METALIUM, демонстрирующий на этой работе свой высочайший класс, который представить в рядах своей основной группы у него возможности нет.</P>
+<P>Дебютный альбом “Gods Of Vermin” представляет собой достаточно сложный power-progressive-metal с непростыми мелодиями и множеством разнообразных дополнений и украшений. В частности здесь присутствует женский вокал из EPICA Simone Simons, симфонические оркестровые и хоровые аранжировки. В итоге мы имеем очень насыщенное, профессионально сработанное и разнообразное полотно, которое могло бы выйти под названием KAMELOT, например. При этом SONS OF SEASONS ни грамма не теряют в тяжести, что делает этот альбом просто необходимым к приобретению любителями тяжёлой, сложной и мелодичной музыки. </P>
+<P>Есть правда одна маленькая проблемка, на которую я, если честно, с удовольствием закрываю глаза. Для любителей progressive сложные мелодии так вообще и не являются проблемой, а речь идёт именно о них (сложных мелодиях). Иногда нам любителям «невысоколобой» музыки хочется чего-нибудь душевного и простенького. Здесь вы ничего подобного не найдёте! Настоящий progressive-metal альбом!</P>
+Автор: Vit Belov
+
+### 29.10.2010 news SONS OF SEASONS закончили альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа клавишника <STRONG>KAMELOT</STRONG> <STRONG>Oliver Palotai SONS OF SEASONS </STRONG>закончила работу над новым альбомом, который должен выйти в мае 2011 года. После этого события коллектив отправится в тур, в котором к нему присоединится подружка<STRONG> Oliver</STRONG> вокалистка <STRONG>Simone Simons </STRONG>из<STRONG> EPICA</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 24.01.2011 news SONS OF SEASONS назвали альбом
+
+<P><IMG height=363 alt="" hspace=0 src="/images/news_rus/2011.01/18314.jpg" width=361 align=right border=0>Второй альбом группы <STRONG>SONS OF SEASONS</STRONG> получил название <STRONG>"Magnisphyricon". </STRONG>Пластинка увидит свет 1 апреля на<STRONG> Napalm Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Magnisphyricon: Temperance</B><BR>02. <B>Bubonic Waltz</B><BR>03. <B>Soul Symmetry</B><BR>04. <B>Sanctuary</B><BR>05. <B>Casus Belli I: Guilt's Mirror</B><BR>06. <B>Magnisphyricon: Adjustement</B><BR>07. <B>Into the Void</B><BR>08. <B>A Nightbird's Gospel</B><BR>09. <B>Tales of Greed</B><BR>10. <B>Lilith</B><BR>11. <B>Casus Belli II: Necrologue to the Unborn</B><BR>12. <B>Magnisphyricon: The Aeon</B><BR>13. <B>1413</B><BR>14. <B>Yesteryears</B></P>
+Автор: Vit Belov
+
+### 11.10.2011 reviews Oliver Palotai превосходит KAMELOT
+
+<P>Проект клавишника KAMELOT Oliver Palotai SONS OF SEASONS продолжает свою дискографию вторым альбомом “Magnisphyricon”. Предыдущая разноплановая работа этой heavy-progressive-metal группы “Gods Of Vermin” вышла два года назад. Материал той работы впечатлял своей комплексностью, и продолжения ждали многие.</P>
+<P>SONS OF SEASONS вновь порадовали сторонников сложного heavy-power-metal разнообразным материалом. В принципе новая работа коллектива, фронтменом которого является Henning Basse из METALIUM, не далеко отошла от канонов первой пластинки. Мелодичная и стандартно навороченная музыка с симфоническими аранжировками и вкраплениями женского вокала. Пожалуй, “Magnisphyricon” можно признать более понятным для обычного поклонника power-metal, но прямолинейных хитов здесь, конечно же, не достаточно для того, чтобы рекомендовать SONS OF SEASONS любителям HELLOWEEN или STRATOVARIUS.</P>
+<P>Этот коллектив находится в русле творчества основной группы собственного лидера - KAMELOT. Более того, SONS OF SEASONS представляют более акцентированный и запоминающийся материал без излишнего занудства, чем грешат последнее время KAMELOT.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

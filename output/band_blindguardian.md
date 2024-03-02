@@ -807,6 +807,495 @@ Frederik Ehmke - Drums
 * C группой "Tarja Turunen" Oliver Holzwarth
 * C группой "Demons & Wizards" Oliver Holzwarth
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>BLIND GUARDIAN заканчивает работу над новым миньоном, который выйдет в апреле.</p>
+
+Автор: Vit Belov
+
+### 05.03.1999 news 
+
+<p>Blind Guardian отказались от выпуска мини-альбома в апреле. Песни войдут, как бонус-треки на будущие записи.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Iced Earth собирается в тур по США, который будет самым большим за всю историю группы. Destiny's End будут их сопровождать и на первых датах поучаствуют Nevermore. Концертный альбом выйдет скорее всего в июне на двух дисках. Ну и новости о ожидаемом проекте Джона Шаффера и Ханси Кюрша (Blind Guardian). С ними будет работать продюсер Джим Моррис и с ним Джон уже записал несколько демо-вещей в своём подвале в Индиане. Ханси и Джон уже записали свои партии и собираются начать окончательные работы в июле в Тампе. Затем группа займётся поиском лэйбла. Я думаю проблем с этим у них не возникнет.</p>
+
+Автор: Vit Belov
+
+### 08.05.1999 news 
+
+<p>Лазарет пополняется. Blind Guardian не стали записывать EP, из-за проблем Ханси Кюрша со слухом. Сейчас уже всё в порядке, и группа работает над новым полнометражным альбомом. Правда все концерты BG отменили до конца года, из-за тех же проблем со здоровьем своего лидера.</p>
+
+Автор: Vit Belov
+
+### 03.11.1999 news 
+
+<p>Blind Guardian собираются выпустить новый альбом лишь в 2001 году. Ханси полностью оправился от болезни уха, но занят на записи своего сайд-проекта Demons & Wizards вместе с Джоном Шаффером из Iced Earth, альбом которого выйдет в начале следующего года. Сообщается, что новый альбом Blind Guardian будет симфоническим.</p>
+
+Автор: Vit Belov
+
+### 10.08.2000 news Информация о новом альбоме Blind Guardian
+
+<p>Вокалист легендарной немецкой группы Blind Guardian Hansi Kursch заявил, что запись ее нового альбома завершена на 70 процентов. Планируется запись еще как минимум четырех песен при наличии восьми завершенных. В музыкальном плане альбом будет логичным продолжением двух предшествующих ему, а одна из новых песен будет самой длинной за всю историю Blind Guardian (около 12 минут) и посвященной Джону Толкиену. Группа планирует начать запись нового материала в октябре, и выпустить конечный результат в промежутке между маем и октябрем 2001 года.</p>
+
+Автор: Phantom Lord
+
+### 22.09.2000 news Blind Guardian трудятся над новым альбомом
+
+<p> Ветераны немецкой power-металлической сцены Blind Guardian заявили, что в настоящее время уже готово 70% материала для их нового альбома. В плане звучания этот альбом будет прямым продолжением "Nightfall In Middle Earth" и "Imaginations From The Other Side", но также для слушателей приготовлены и некоторые сюрпризы. Как минимум одна песня на альбоме будет посвящена лично писателю Дж.Р.Р.Толкиену. Запись альбома запланирована на октябрь, продюсировать его будет Чарли Бауэрфайнд вместе с самими Blind Guardian. По предварительным расчетам альбом выйдет не раньше мая, но и не позже октября следующего года.</p>
+
+Автор: Nybras
+
+### 23.12.2000 news Blind Guardian начали запись нового альбома
+
+<p> Blind Guardian начали запись нового альбома. Работа над ним будет завершена не ранее июня, а релиз запланирован на август следующего года.</p>
+
+Автор: Nybras
+
+### 11.08.2001 news Новости от Blind Guardian
+
+<p> В течение ноября должен выйти сингл, содержащий одну 14-минутную композицию и бонус - не вошедшую в альбом песню "Harvest of Sorrow". Тема длинной песни основана на мотивах Троянской войны и представляет собой пророческие видения Кассандры о смерти и поражении. Это не столько подлинные исторические события, а в большей степени трагические сюжеты, взятые из поздних авторов типа Фридриха Шиллера и ещё более современных Марион Циммер Брэдли и Кристы Вольф. Возможное, но пока не подтверждённое название для песни - "Misty Tales And Poems Lost". Что касается музыки, то она будет держать в напряжении с первой секунды и завораживать всё сильнее с каждым тактом. Прямо сейчас музыканты готовятся микшировать эту вещь. Сведение "Harvest of Sorrow" состоится ориентировочно в течение трёх недель. К сожалению, но совершенно точно новый альбом не выйдет раньше февраля. Чтобы отшлифовать каждую песню, всем, кто вовлечён в процессс создания альбома и его последующего промоушна, потребуется не меньше трёх месяцев до Рождества или возможно даже ещё больше. По мнению участников группы, в этом всё же есть настоятельная необходимость, без чего невозможно добиться безупречного результата. Дата выпуска ещё точно не определена, но и Virgin, и Blind Guardian рассматривают конец февраля как наиболее возможный период.</p>
+
+Автор: Morsus
+
+### 11.08.2001 news News from Blind Guardian
+
+<p> Single release is confirmed for November. The single will contain the 14-minutes-long song and "Harvest of Sorrow" as a bonus, which will not appear on the album. The long song lyrically is based on the Trojan War and introduces Cassandra's various visions of death and defeat. It not so much deals with the splatter aspects of the Iliad, but more with the tragic aspects pointed out in there and later on by more modern authors such as Schiller, Zimmer Bradley, or Christa Wolf. A possible title for it (till not confirmed, yet) could be: "Misty Tales And Poems Lost". The music will keep you thrilled from the first moment on and grows on you with each bar. Right now, band prepare that one for mixing. The mixing for "Harvest Sorrow" will take about three weeks. The new album won't come out before February. To understand the song everyone will be kept busy by its complexity up to Christmas eve or maybe even longer, which unfortunately is helpful and necessary anyway. All the parties involved in distribution, promotion, etc will approximately need three months to warrant a proper release. A release date hasn't been confirmed yet, but both Virgin and Blind Guardian are targeting late February as the most possible period.</p>
+
+Автор: Morsus
+
+### 16.11.2001 news Wacken Festival...
+
+<p>Знаменитый "Wacken Festival" в следующем году будет проходить со 2-го по 3-е августа в Вакен (Германия). Уже заявлены следующие участники: <BR><BR> BLIND GUARDIAN <BR> RAVEN <BR> PUNGENT STENCH <BR> DIMPLE MINDS <BR> KREATOR <BR> DESTRUCTION <BR> J.B.O <BR> IN EXTREMO <BR> FALCONER <BR> AMON AMARTH</p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Фестиваль PROGPOWER USA III ...
+
+<p>Объявлены даты и участники американского фестиваля PROGPOWER USA III. В этом году шоу пройдет с 15 по 16 ноября. Уже подтвердили свое участие BLIND GUARDIAN, ANGRA, GAMMA RAY, THRESHOLD. Для многих европейских участников это будет первым концертом на американской земле. "Мы с огромным энтузиазмом смотрим на то, чтобы впервые сыграть в США..." - сказал вокалист "BLIND GUARDIAN" - Hansi Kursch. “Мы чувствуем большую гордость быть хэдлайнерами на одном из прекраснейших американских фестивалей....". Kai Hansen (GAMMA RAY) добавил: "Мы собираемся показать американским металхэдам кое-что другое из Германии чем шнитцель и кислая капуста...". Двухдневные билеты будут стоить всего по 80 бумажек с портретами мертвых американских президентов...</p>
+
+Автор: Yermola
+
+### 27.02.2002 news BLIND GUARDIAN, GAMMA RAY, ANGRA confirmed For PROGPOWER USA III....
+
+<p>ATLANTA - ProgPower USA III, Atlanta's third annual progressive and power metal festival, has been announced for Friday, November 15 and Saturday, November 16 at Earthlink Live. <BR><BR> Confirmed bands include a number of artists making their first US appearances, including Germany's BLIND GUARDIAN, Brazil's ANGRA, Germany's GAMMA RAY, and the UK's THRESHOLD. <BR><BR> “With great enthusiasm we are looking forward to our first US appearance ever,” said BLIND GUARDIAN vocalist Hansi Kursch. “We really feel privileged and greatly honored to headline one of the finest and best US Metal Festivals. This festival will be our first opportunity to present us as one of the most intense and exciting metal bands around in these days.”<BR><BR> Added GAMMA RAY's Kai Hansen: “We're absolutely looking forward to playing the US for the first time and bringing the American metalheads something different from Germany other than Schnitzel and Sauerkraut. We're expecting to have a ball with a lot of people that are ready to rock and have a good time singing, screaming, raising hands and shirts (girls only) and banging brains out.”<BR><BR> Sweden's PAIN OF SALVATION, fresh off of an opening spot on the DREAM THEATER European tour, will be making their third trip to the States. Germany's EDGUY will also be returning to the U.S. for the second time. America's own READING ZERO, the only independent band on the roster, has secured one of the opening slots. Three roster spots are still to be confirmed over the coming weeks.<BR><BR> “I'm thrilled with this year's lineup, as I truly believe it is the best roster for progressive and power metal ever assembled in the U.S.,” said the event's organizer, Glenn Harveston.<BR><BR> Tickets will go on sale July 1 via all TicketMaster outlets. Only 850 two-day passes will be available to the public at a cost of $80 each. <BR><BR> ProgPower USA, an international affiliate of ProgPower Europe located in the Netherlands, was created to attract the top names in both the progressive and power metal genres. The first event was held at a small bar in Lansing, Ill., in February 2001 and featured the first U.S. appearance of PAIN OF SALVATION. The 350-capacity show sold out three months in advance. Due to popular demand, a second event was held in November 2001 and featured the most unique progressive and power metal roster in the States to date (SYMPHONY X, KAMELOT, ARK, EVERGREY, ANGEL DUST, SPIRAL ARCHITECT, plus others). The attendance increased in size to 750 with a crowd coming from 38 states and 15 countries.<BR><BR> ProgPower USA has various promotional opportunities for vendors, labels, and bands in the metal market. For more information and full details visit www.progpower.com.<BR><BR> ProgPower USA III is sponsored by Guitar Center in Marietta, Ga.</p>
+
+Автор: Yermola
+
+### 12.03.2002 reviews Ночь в опере со слепым стражником
+
+<p>Ночь в опере со слепым стражником. Восьмой альбом четырехлетней выдержки германских power metal богов. Надо признаться, ожидание того стоило. Полноценная шедевральная работа, прогрессивная и сложная в техническом плане, но не настолько, чтобы появилась приставка techno. Нестандартные и нетипичные гитарные риффы, иногда, совсем неметаллические, но тяжелые и гармоничные. Постоянные "пьяные" и "квакающие" соло-гитары, умеренная оркестровая обработка и выразительнейшие душевные хоралы звучащие не меньше основного вокала Ханси, который кажется еще более высоким и громким, чем раньше. По восприятию, это совершенно несложный альбом, без заморочек и путаниц. Музыкальные мотивы довольно легко воспринимаются и запоминаются. Предыдущий альбом группы "Nightfall in Middle-Earth" слушался с большим напряжением. Альбом разнообразен, масштабен и эпичен. В разных песнях чувствуются различные настроения и влияния: средневековые мотивы, настроения батальных сражений, бардовские лиризмы, грозные благословения и много всего другого. Построение мелодий и ритмическое растяжение наряду с вокальными аккомпанементами проработаны до полного совершенства. Блаженный вокал, беспрецедентная игра гитарного дуэта и превосходные ударные возводят этот материал к наивысшей точке достигаемой при комбинации технического мастерства и со вкусом сделанной музыки. Новый альбом получился таким, каким его и ожидали. Звук группы не спутать ни с кем. Динамичная, насыщенная музыка с быстрыми и медленными моментами, интенсивными прогрессивными влияниями, героическими хоралами, легендарным обрамлением и весомой силой тяжести. По ходу звучания альбома, у вас не один раз возникнут ассоциации буквально со всеми ранними альбомами группы. Блестящий и претенциозный fantasy-power metal. Реальный исключительный шедевр.</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news BLIND GUARDIAN в чартах...
+
+<p>"BLIND GUARDIAN" со своим новым альбомом "A Night at the Opera" попали на первое место греческого чарта и на 11 в итальянском...</p>
+
+Автор: Yermola
+
+### 16.03.2002 reviews Night in an opera with blind guardian
+
+<p>Night in an opera with blind guardian. The eighth album of four-years endurance grom German power metal gods. It is necessary to admit, the expectation that costed. High-grade masterpiece work, progressive and difficult in the technical plan, but not so, that has appeared a prefix techno. Non-standard and not typical guitar riffes, sometimes, absolutely not metal, but heavy and harmonious. Constant "drunk" and "croaking" solo-guitars, moderate orchestral processing and most expressive sincere chorals sounding are not less basic vocal of Hansi, which seems to higher and loud, than earlier. On perception, it is a completely simple album, without messes. The musical motives are rather easily perceived and are remembered. The previous album of group " Nightfall in Middle-Earth " obeyed with the large pressure. The album is various, scale and epic. In different songs the various moods and influences are felt: Medieval motives, moods of battles, bard lyrics, terrible church blessings and it is a lot of all another. Construction of melodies and rhythmic stretching alongside with vocal accompanements up to complete perfection is worked. Blessed vocal, unprecedented game of a guitar duet and excellent drums erect this material to the best point achievable at a combination of technical skill and with taste of the made music. The new album has turned out by such, with what it expected. A sound of group to not confuse with anybody. Dynamical, sated music with the fast and slow moments, intensive progressive influences, heroic chorals, legendary frame and powerful force of weight. On a course of sounding of an album, you not once will have associations literally with all early albums of group. Brilliant and claim fantasy-power metal. A real exclusive masterpiece.</p>
+
+Автор: Dimas
+
+### 15.04.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending April 15th (as reported by Rock Hard magazine):<BR> <BR> 10. NICKELBACK - Silver Side Up<BR> 15. DIE HAPPY - Beautiful Morning<BR> 17. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. PUDDLE OF MUDD - Come Clean <BR> 22. P.O.D. - Satellite <BR> 27. LINKIN PARK - Hybrid Theory<BR> 30. IRON MAIDEN - Rock In Rio <BR> 34. SYSTEM OF A DOWN - Toxicity <BR> 42. STAIND - Break The Cycle<BR> 63. BLIND GUARDIAN - A Night At The Opera <BR> 79. RHAPSODY - Power Of The Dragonflame <BR> 80. RAMMSTEIN - Mutter<BR> 84. MILLENCOLIN - Home From Home <BR> 94. FARIN URLAUB - Endlich Urlaub <BR> 100. MEGAHERZ - Herzwerk II<BR></p>
+
+Автор: Yermola
+
+### 15.08.2002 news DORO &amp; BLIND GUARDIAN снова в России
+
+<p>В связи с отменой фестиваля "Long live rock'n'roll", проведение которого было намечено на 23 - 25 августа 2002 года компанией GOST Music, этой осенью будут проведены отдельные концерты исполнителей, заявленных на участие в фестивале. <BR> На сегодняшний день получено согласие от DORO, которая выступит с концертами 18 октября 2002 года в Ленинградском Дворце Молодежи (ЛДМ) в Санкт-Петербурге и 19 октября 2002 года в ДК. им. Горбунова (Москва). <BR> Переговоры с остальными коллективами ведутся в настоящее время. <BR> Кроме того, 27 октября 2002 года Москву вновь посетит ведущая группа европейской heavy metal сцены BLIND GUARDIAN. Концерт состоится на Малой Спортивной Арене Лужников.</p>
+
+Автор: Dimas
+
+### 13.09.2002 articles Концерты: расчитывайте на чистоплотность промоутера!
+
+<p>05.09.02: Мероприятие: концерт Dio <br> Дата проведения: 15 октября 2002 г.<br> Место проведения: Дворец Спорта «Лужники» <br> Начало концерта: 19:30 <br> Организатор: компания JSA, директор Александр Стрижак<br> 10.09.02: Как нам стало известно только что, в гастрольные планы группы ДИО (DIO) внесены изменения. <br> Агентство, представляющее интересы группы уведомило нас, что насыщенный график предстоящего азиатского тура не оставляет времени для ранее запланированного концерта 15 октября 2002г. в Москве. <br> Ронни Джеймс Дио и сопровождающие его музыканты, а также менеджмент ДИО выражают сожаление в связи с тем, что долгожданная встреча с российскими зрителями откладывается. <br> Нам ничего не остается, как присоединиться к этим словам и надеяться, что поклонники таланта Ронни Джеймса Дио запасутся терпением, чтобы дождаться приезда своего кумира. <br> Вот такие письма я получил с интервалом в пять дней от организаторов концерта. Ну, чего не бывает, вот только, складывается очень неприятная тенденция, практически ни один концерт в последнее время не прошёл без каких-либо накладок. Казалось бы, итог один: недовольные фэны, финансовые потери промоутеров, отмена и перенос концертов… Итог-то один, а вот все случаи очень разные.<br> Приведённый мною самый свежий пример с отменой-переносом концерта DIO самый простой. Облом пришёл на ранней стадии, билеты не успели поступить в продажу. К компании JSA претензий быть не может, ну кто, в конце концов знает, что на уме у менеджеров Ронни Джеймса Дио? Кто знал заранее о насыщенном графике азиатского турне или о том, где, вообще, находится Москва? Наверное, просто поставили концерт между Токио и Сеулом, короче не разобрались…<br> Ну, раз уж начали с хорошего, то помянем добрым словом (в который уж раз) Эджена Прайса. Уж сколько всего у него пообламывалось, но никто не сможет «кинуть в него камнем». Он попадал, и сильно попадал (вспомним Mayhem, Marduk, Pro-pain), но деньги за билеты и какие-то возмещения ущерба всегда присутствовали. Можно рассуждать о непрофессионализме, но в честности товарищу Аксёнову не откажешь.<br> Что ж, обратим свой взор на компанию GOST Music. Сказать по совести, они провели довольно много успешных акций в последнее время. Только, хочу сразу заметить, что нам надо избавляться от чисто «совковской» привычки благодарить всех за то, что они сделали… Благодарить мента, что не отправил в обезьянник, благодарить врача за то, что вылечил, а не угробил, благодарить учителя за то, что не ругается матом на уроках, благодарить промоутера за то, что организовал концерт. Нет, конечно же, должна быть некая благодарность, но не прощать же всё на свете. За 500 рублей, вполне можно рассчитывать на приятное времяпрепровождение. Вернёмся в начало лета – конец весны, когда Gost начали активную рекламную кампанию супер-проекта Long Love R’n’R. Скажу сразу, с нашим ресурсом общался некий Fingolfin, который в резкой форме потребовал всеобщей поддержки знакового события, что и было сделано. Меня же изначально мучили сомнения, сколько же нужно собрать народу на ВВЦ, чтобы окупить такую кучу звёзд. Одно проживание и питание для такой оравы. И ни билеты по 400 руб на открытую площадку, ни проплаты российских групп за участие не помогли бы GOST Music в этом занятии. Единственное на что можно было, по-моему, рассчитывать, это пиво на концерте, но до этого надо было ещё дойти. Первая отмена феста была навеяна погромами футбольных болельщиков, правда, не случись этого, скорее всего, сослались бы на разбушевавшихся нацистов и.т.п. Кстати, в этот же день на ВВЦ выступали гораздо более близкие к народу команды, например, Мистер Твистер. Кто-нибудь был на концерте этой заслуженной команды? Могу Вас уверить, пьют там и буянят почище нашего… А уж когда перетасовали состав, да ещё объявили, что билеты действительны, стало предельно ясно к чему контора клонит. Искренне жаль тех простачков, кто купили билеты в августе. Теперь же на сайте многоуважаемого промоутера нет ни слова о возврате билетов, по нашим данным, они вообще ещё не принимаются, зато есть реклама будущих концертов DORO, BLAZE, GRAVEDIGGER, BLIND GUARDIAN. Мы обратились за комментариями в компанию GOST MUSIC, но ответа так и не последовало. А теперь мой сугубо субъективный диагноз, организаторы рассчитывали на ураганную продажу билетов, но её не последовало (очень многие заплатят 400 рублей, чтобы тусоваться на жаре вдали от сцены?) ни после анонса, ни после первой отмены концерта. Финансов на возмещение издержек не хватает, вот и билеты принимать назад не спешат, скорее всего, попытаются дотянуть до новых концертов. Беда Gost Music в том, что невозможно сходу провести такое шоу, на неизвестной площадке на свежем воздухе и за такие деньги. Всё должно развиваться последовательно, вряд ли на Вакене в первый год было столько классных команд, а если и было, мы не в Германии живём. Возникает ещё один вопрос, моральной ответственности СМИ. Ведь там, в большинстве своём, работают опытные люди, которым наверняка стало понятно то, что стало понятно мне в середине августа. При этом я не снимаю ответственности и с нашего ресурса. Но есть и другие мнения, вот, например, что сказал мне Максим Былкин из компании Союз, которые очень активно всё это «добро» продвигали: «Отмена фестиваля - комплекс объективных и субъективных причин и поводов. То, что он отменился - прискорбно, однако ГОСТ обещал привезти артистов по отдельности в течение осени, так что об окончательной отмене говорить рано - просто работа приобретает другую форму. По поводу возврата денег за билеты - о задержках СОЮЗ несколько не в курсе, это вопрос к ГОСТАМ. Негативных мыслей нет - возникают отдельные рабочие вопросы, которые видоизменяются и решаются с каждым следующим сотрудничеством. Проблема - не первая, не ошибается тот, кто ничего не делает, да и не к лицу коллег "поливать грязью". Так что будем сотрудничать».<br> Но самая крутая история происходит на этой неделе. В настоящее время вовсю должен «греметь» по просторам нашей Родины тур Pungent Stench “Holy Inquisition 2002”. Вы будете плакать, но гитарист этой группы находится в больнице, и тур отменён. Организаторы же концерта в Москве сообщают, что не всё ещё потеряно. Выйдя из больницы, надо понимать, Мартин бросит всё, возьмёт в охапку своих друзей и кинется в Москву. Ну, в крайнем случае, послушаете в этот раз MERLIN, а билеты обязательно будут действительны на следующий концерт Pungent Stench, который состоится… А когда он состоится? Да неизвестно, когда он состоится. В клубе Свалка нам сообщили, что концерт по их данным состоится, и билеты расходятся хорошо. Ну, и Слава Богу…<br> Ходите люди на концерты, а главное заранее покупайте билеты, а то, как говорят, в этом-то наша проблема, что мало в предварительной продаже билетов продаётся. А главное, рассчитывайте на чистоплотность организатора.</p>
+
+Автор: Vit Belov
+
+### 19.09.2002 news ARCHONTES и SHADOW HOST на разогреве у BLIND GUARDIAN...
+
+<p ALIGN="CENTER"><IMG SRC="/images/news_rus/2002.09/3216.jpg" ALT="pho" width=490 height=173 hspace="15" vspace="5" border="1" align="center"></p>
+<p></p>
+<P> <BR> 27 октября 2002 года в 19 часов на Малой Спортивной Арене "Лужники" состоится второй в этом году концерт немецкой группы <A HREF="http://musica.mustdie.ru/ru/band/blind_guardian/">BLIND GUARDIAN</A>. В качестве специальных гостей в концерте принимают участие московские команды <A HREF="http://musica.mustdie.ru/ru/band/archontes/">ARCHONTES </A>(которая выступит после длительного перерыва, связанного со сменой состава и работой в студии) и <A HREF="http://musica.mustdie.ru/ru/band/shadow_host/">SHADOW HOST </A>(недавно выпустившая свой новый альбом). <BR><BR> Концерт организован фирмой GOST MUSIC. Все подробности по поводу расценок на билеты доступны на сайте <A HREF="http://gostmusic.ru/">http://gostmusic.ru/</A>, также там можно заказать билет online. Цены на билеты: 600 руб - танцевальный партер; 600, 800, 1000 руб - трибуны. Билеты уже поступили в продажу. Приобрести их можно в театральных кассах города, кассах Лужников, Горбушкином дворе и рок-магазинах Москвы.</>
+<p> <B>27 октября в 14.00 в помещении "Горбушкиного двора" (2 этаж) состоится сессия автографов и встреча с участниками группы.</B></p>
+<p> Российский клуб Blind Guardian при поддержке прокатчика GOST MUSIC International проводят акцию по распространению билетов в Москве и регионах. Все билеты участвуют в лотерее, розыгрыш которой проведёт сама группа! Клуб имеет эксклюзивное право на продажу билетов по цене ниже официальной (партер - 570р.). Доставка по Москве. По вопросам приобретения обращаться (095)265-66-43 или на сайт http://www.bgclub.ru</p>
+
+Автор: Yermola
+
+### 11.11.2002 news BLIBLIND GUARDIAN&#39;s first ever North American tour
+
+<p>Countdown to BLIND GUARDIAN's first ever North American tour has begun! If you have yet to get your tickets you better hurry as they are going fast. And in case you live under a rock the tour starts November 15th in Atlanta, GA at the sold-out ProgPower Festival and moves north to Canada before crossing back over into the states. Direct support on all dates is New Jersey's Symphony X. Also, among the bands opening on various dates are Century Media's own ONWARD and up-and-comers Avenged Sevenfold. Check local lisings for details.</p>
+
+Автор: Yermola
+
+### 21.03.2003 news Живой BLIND GUARDIAN
+
+<p>Германская группа BLIND GUARDIAN готовит к выпуску 26 мая 2003 года свой новый двойной концертный альбом, материал к которому был записан во время прошлогоднего мирового турне. В него войдут следующие вещи:</p>
+<p> 01. Into The Storm<BR> 02. Welcome To Dying<BR> 03. Nightfall<BR> 04. The Script For My Requiem<BR> 05. Harvest Of Sorrow<BR> 06. Valhalla<BR> 07. Majesty<BR> 08. The Soulforged<BR> 09. Under The Ice<BR> 10. Born In A Mourning Hall<BR> 11. Lord Of The Rings<BR> 12. Punishment Divine<BR> 13. Time Stands Still<BR> 14. Bright Eyes<BR> 15. The Bard's Song - In The Forest<BR> 16. Imaginations From The Other Side<BR> 17. Lost In The Twilight Hall<BR> 18. Journey Through The Dark<BR> 19. A Past & Future Secret<BR> 20. Mirror Mirror</p>
+
+Автор: Dimas
+
+### 21.03.2003 news Blind Guardian Live album...
+
+<p>German melodic metallers BLIND GUARDIAN have set a May 26 release date for their as-yet-untitled live album. The two-disc collection, which is currently being mixed at a German studio, will contain 20 songs recorded last year on the band's world tour.</p>
+<p> The full track listing for the CD is as follows (in no particular order):</p>
+<p> 01. Into The Storm<br> 02. Welcome To Dying<br> 03. Nightfall<br> 04. The Script For My Requiem<br> 05. Harvest Of Sorrow<br> 06. Valhalla<br> 07. Majesty<br> 08. The Soulforged<br> 09. Under The Ice<br> 10. Born In A Mourning Hall<br> 11. Lord Of The Rings<br> 12. Punishment Divine<br> 13. Time Stands Still<br> 14. Bright Eyes<br> 15. The Bard's Song - In The Forest<br> 16. Imaginations From The Other Side<br> 17. Lost In The Twilight Hall<br> 18. Journey Through The Dark<br> 19. A Past & Future Secret<br> 20. Mirror Mirror</p>
+<p></p>
+<p> A single will precede the album on April 28 containing a brand new studio version of "Bard's Song" backed up with several different live versions of the same track.</p>
+
+Автор: Vit Belov
+
+### 01.06.2003 news BLIND GUARDIAN не приедут
+
+<p>BLIND GUARDIAN вынуждены были отменить своё российское выступление 22 июня в Брянске на Hard Rock Festival. Причина этого в том, что организаторы концерта так и не удосужились сделать вовремя выплаты гонорара, оплатить билеты на самолет и визы.</p>
+
+Автор: Dimas
+
+### 15.11.2003 news Blind Guardian show in all formats
+
+Blind Guardian Czech fanclub released Blind Guardian show from Pardubicev (22nd August 2003) on Audio CD, Video CD, VHS. Contact:Milan Skoda, <A href="mailto:m.skoda@avekont.cz"><U>m.skoda@avekont.cz</U></A>
+Автор: Vit Belov
+
+### 15.03.2004 news Kai Hansen и Hansi Kursch на новом альбоме ANGRA
+
+<P>Из неподтверждённых источников стало известно, что в записи нового альбома <B>ANGRA</B> приняли участие <B>Kai Hansen (GAMMA RAY)</B> и <B>Hansi Kursch (BLIND GUARDIAN).</B> Новый альбом бразильцев выходит в мае.</P>
+Автор: Vit Belov
+
+### 15.04.2004 news BLIND GUARDIAN выпускают DVD
+
+<P>DVD от <B>BLIND GUARDIAN</B> <B>"Imaginations Through The Looking Glass"</B> выйдет 14 июня. На диск вошло выступление группы на <B>Blind Guardian Open Air</B> festival, а кроме этого, съёмки за сценой и интервью. Трэк-лист:</P>
+<P>DVD 1 - Blind Guardian Open Air (Coburg):<BR><BR>01. <B>War of Wrath</B> <BR>02. <B>Time Stands Still</B> <BR>03. <B>Banish from Sanctuary</B> <BR>04. <B>Nightfall</B> <BR>05. <B>The Script for my Requiem</B> <BR>06. <B>Valhalla</B> <BR>07. <B>A Past and Future Secret</B> <BR>08. <B>Punishment Divine</B> <BR>09. <B>Mordred's Song</B> <BR>10. <B>The Last Candle</B> <BR>11. <B>Bright Eyes</B> <BR>12. <B>Lord of the Rings</B> <BR>13. <B>I'm Alive</B> <BR>14. <B>Another Holy War</B> <BR>15. <B>And then there was Silence</B> <BR>16. <B>Somewhere far Beyond</B> <BR>17. <B>The Bard's Song (in the Forest)</B> <BR>18. <B>Imaginations from the other Side</B> <BR>19. <B>And the Story Ends</B> <BR>20. <B>Mirror Mirror</B><BR><BR>DVD 2 - Bonus DVD <BR><BR>* Interview with <B>BLIND GUARDIAN</B> <BR>* Backstage Scenes of the <B>"A Night At The Opera Tour 2002"</B> <BR>* The making of <B>"The Blind Guardian Festival Coburg 2003"</B> <BR>* Slideshow <BR><BR>Bonus songs: <BR><BR>01. <B>Into the Storm</B> (Stuttgart 2002) <BR>02. <B>Welcome to Dying</B> (Stuttgart 2002) <BR>03. <B>Lost in the Twilight Hall</B> (Stuttgart 2002) <BR>04. <B>Majesty</B> (Wacken 2002)<BR></P>
+Автор: Vit Belov
+
+### 14.09.2004 news Гитарист BLIND GUARDIAN сломал ногу
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>BLIND GUARDIAN Marcus Siepen</STRONG> сломал ногу в четырёх местах, катаясь на скейте около своего дома. Требуется несколько операций.</FONT></P>
+Автор: Vit Belov
+
+### 25.01.2005 news Новости от BLIND GUARDIAN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLIND GUARDIAN</STRONG> солчиняют песни как для нового альбома, так и для "оркестрового проекта". Для новоой пластинки сочинено уже пять вещей, а для проекта - десять. Группа планирует запись на этот год и обещает, что она не затянется слишком долго. <BR></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также <STRONG>Hansi</STRONG> заканчивает работу над пластинкой <STRONG>DEMONS&WIZARDS</STRONG>. Уже смикшированы 5 песен, осталось - 7. На новый альбом войдут 11 вещей авторства <STRONG>Schaffer/Kursch</STRONG> и один кавер. Название пластинки ещё не определено, но выйдет она уже в конце весны - начале лета.</P></FONT>
+Автор: Vit Belov
+
+### 25.01.2005 news BLIND GUARDIAN news
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Here is news update from <STRONG>BLIND GUARDIAN Hansi Kursch</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>A Happy New Year to everyone! Though you have not heard a lot from us during the last months we have not been lazy at all. There are a lot of things going on at the moment. Just to mention a few: the Demons and Wizards production is making good progress and the same can be said about the songwriting for the next Blind Guardian album which is at a very important point.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Andrй and I have completed 5 songs for the new album and 10 songs for the orchestral project. Yesterday, we had a meeting with Charlie Bauerfeind (who is going to produce both albums) during which we have set up a rough schedule for the next months. We definitely will start the production within the year and it won't take as much time to accomplish it as it did with "A Night at the Opera".</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>With regards to the next Demons and Wizards album I am happy to tell you that 5 songs have been mixed for it already and that there are 7 more to go. How many of them we are going to use for the regular album and how many we will use as bonus material I can ґt tell you right now. There are 11 Schaffer/Kьrsch songs and one cover tune. We will be done with everything mid February. The album surely will be released in late spring, or early summer. I am very pleased with the songs and so is Jon. My favourite tune at the moment is called "Touched by the Crimson King". We have not spoken about an album title yet but have to make a decision rather soon. I will let you know.</EM></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>Hansi</EM>"</FONT></P>
+Автор: Vit Belov
+
+### 17.03.2005 news Еще один проект от известных музыкантов
+
+<P>Вокалист<STRONG> SOILWORK</STRONG>&nbsp;<B>Bjorn "Speed" Strid</B>&nbsp;и ударник&nbsp;<B>BLIND GUARDIAN</B> <B>Thomen Stauch</B> основали проект, пока не имеющий названия. По словам музыкантов, их музыкальная направленность&nbsp;- музыка в духе <B>RAMMSTEIN</B>&nbsp;и <B>ALICE IN CHAINS</B>. К концу года планируется записать дебютный альбом этого проекта.</P>
+Автор: Dimas
+
+### 04.04.2005 news Thomen покинул BLIND GUARDIAN!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Отсутствие новостей - хорошая новость... Это плохая новость. После 20 лет совместной деятельности, после некоторых длительных и открытых дискуссий между четырьмя членами группы, мы все, включая <STRONG>Thomen</STRONG>, решили что ему лучше покинуть группу</EM>", - пишет вокалист <STRONG>BLIND GUARDIAN Hansi</STRONG> на официальном сайте группы.</FONT></P>
+<P>"<EM>С недавних пор у нас развивались музыкальные и личные разногласия, и всё сложнее получалось находить общие подходящие решения. Из-за этого в группе назревали внутренние проблемы.&nbsp;&lt;...&gt;&nbsp;В данном случае разрыв является единственным возможным решением. Мы желаем<STRONG> Thomen</STRONG> всего наилучшего и надеемся сообщить более приятны новости в ближайшем будущем</EM>".</P>
+<P>Тут же было опубликовано заявление барабанщика:</P>
+<P>"<EM>Как Вы могли прочитать в заявлении <STRONG>Hansi</STRONG>, я уже не барабанщик <STRONG>BLIND GUARDIAN</STRONG>. С этого момента мы пойдём своими музыкальными путями. Это необходимое решение для того, чтобы мы могли остаться друзьями по жизни. Я полностью поддерживаю заявление <STRONG>Hansi</STRONG>&nbsp;и надеюсь, группа найдёт нового музыканта без особых проблем. Также я хочу поблагодарить всех наших фэнов за эти годы.&nbsp;Благодарю своих коллег <STRONG>Hansi</STRONG>, <STRONG>Andre</STRONG> и <STRONG>Marcus</STRONG></EM>".&nbsp;</P>
+Автор: Vit Belov
+
+### 08.04.2005 news Thomen развернул активную деятельность
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Thomen</STRONG>, ушедший недавно из <STRONG>BLIND GUARDIAN</STRONG>, объявился в ещё одной группе. Мы уже сообщали о его проекте с <STRONG>Bjorn Streed</STRONG> из <STRONG>SOILWORK</STRONG>, а теперь новая группа - <STRONG>SAVAGE CIRCUS</STRONG> с участниками <STRONG>PERSUADER</STRONG> <STRONG>Jens Karlsson</STRONG> (вокал, гитара)&nbsp;и <B>Emil Norberg</B> (гитара). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Thomen</STRONG>: "<EM>История этого проекта началась пару лет назад, когда я писал песни для <STRONG>BLIND GUARDIAN</STRONG> в собственной студии. Сочинив несколько, я понял, что они не подходят для современного<STRONG> BLIND GUARDIAN</STRONG>.&nbsp;Они больше имеют отношение ко временам "<STRONG>Tales</STRONG>",&nbsp;"<STRONG>Somewhere</STRONG>", "<STRONG>Imaginations</STRONG>". Я решил набрать группу, чтобы записывать такие песни. Но кого позвать? <STRONG>Piet Sielk</STRONG> посоветовал мне послушать группу <STRONG>PERSUADER</STRONG>, где вокалист пел, как Hansi в старые времена</EM>..."&nbsp;&nbsp;&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 13.04.2005 news Hansi (BLIND GUARDIAN) продолжает делать заявления
+
+<P><STRONG>Hansi</STRONG> из <STRONG>BLIND GUARDIAN</STRONG> вновь обратился к публике. Он обещал, что новый альбом не задержится, из-за расставания с <STRONG>Thomen</STRONG>. Пластинка выйдет в 2006 году, а оркестровый альбом выйдет в 2007 году.</P>
+<P>Группа уже имеет нескольких кандидатов на занятие вакантного места, поэтому открытых прослушиваний не ведётся.</P>
+Автор: Vit Belov
+
+### 15.04.2005 news BLIND GUARDIAN подписались на NUCLEAR BLAST RECORDS
+
+<P><IMG height=200 alt="" hspace=50 src="/images/news_rus/2005.04/8317.jpg" width=150 align=left border=0>В стане немецкого лейбла-монстра <STRONG>NUCLEAR BLAST RECORDS</STRONG> появилась еще одна звезда -&nbsp;одна из самых успешных power metal команд - <STRONG>BLIND GUARDIAN</STRONG>. </P>
+Автор: Dimas
+
+### 20.07.2005 news Новый барабанщик BLIND GUARDIAN
+
+<P><STRONG>BLIND GUARDIAN</STRONG> объявили имя нового барабанщика. Им стал некто <STRONG>German Frederik Ehmke</STRONG>, неизвестный до этого никому в мире тяжёлой музыки.</P>
+<P>Из других новостей, новый альбом будет записываться вместе с <STRONG>Charlie Bauerfeind</STRONG>. Вот некоторые называния песен: <STRONG>'Carry The Blessed Home'</STRONG>, <STRONG>'The Edge</STRONG>', <STRONG>'In Search For The Lionheart'</STRONG>, <STRONG>'Market Square'</STRONG>, <STRONG>'Another Stranger Me'</STRONG>,и '<STRONG>Otherland</STRONG>'. Релиз сингла планируется на февраль, а альбома - на апрель.</P>
+Автор: Vit Belov
+
+### 20.07.2005 news New drummer in BLIND GUARDIAN
+
+<P>German epic metallers <STRONG>BLIND GUARDIAN</STRONG> have announced a replacement for drummer <STRONG>Thomen Stauch</STRONG>, who left the band in April after 20 years. The new man behind the kit is fellow <STRONG>German Frederik Ehmke</STRONG>, so far fairly unknown in the world of Metal.</P>
+<P>The production of<STRONG> BLIND GUARDIAN's</STRONG> debut on <STRONG>NUCLEAR BLAST</STRONG> will start soon with the help of <STRONG>Charlie Bauerfeind</STRONG>. No album title has been set as of yet, but it looks like there will be a total of ten songs. Some working titles, which might be kept, are: '<STRONG>Carry The Blessed Home', 'The Edge', 'In Search For The Lionheart', 'Market Square', 'Another Stranger Me'</STRONG>, and '<STRONG>Otherland</STRONG>'. The release of the first single is planned for February 2006, the album will follow in April, before the band embarks on an European tour in September.</P>
+Автор: Vit Belov
+
+### 03.10.2005 news BLIND GUARDIAN продолжают запись
+
+<P>Запись нового альбома <STRONG>BLIND GUARDIAN</STRONG> продолжается. Уже известно, что сингл будет готов к концу ноября (дата релиза: февраль). Новая пластинка пока готовится к выходу в первой половине 2006 года.</P>
+Автор: Vit Belov
+
+### 15.05.2006 news BLIND GUARDIAN вновь в Москве
+
+<CENTER><IMG height=279 src="/images/shows_rus/2006.05/9970.jpg" width=400 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>ПОСЛЕДНИЕ 3 БИЛЕТА в МАГАЗИНЕ MUSICA на Комсомольской!!!!</CENTER>
+Автор: Vit Belov
+
+### 17.05.2006 news Новые подробности о новом альбоме BLIND GUARDIAN
+
+<P>Немецкие музыканты из группы <B>BLIND GUARDIAN</B> подтвердили название своего нового альбома <B>"A Twist in the Myth"</B>,&nbsp;выход которого ожидается в сентябре на&nbsp;<B>Nuclear Blast Records</B>. Альбом станет дебютом для нового ударника коллектива <STRONG>Frederik Ehmke</STRONG>, который стал заменой для <STRONG>Thomen Stauch.</STRONG> Также, были обнародованы полный трек-лист и обложка релиза:</P>
+<P><BR><IMG height=300 alt="" hspace=15 src="/images/news_rus/2006.05/10375.jpg" width=300 align=left border=0><BR>1. <B>This Will Never End</B> (5:07) <BR>2. <B>Otherland</B> (5:14) <BR>3. <B>Turn the Page</B> (4:16) <BR>4. <B>Fly</B> (5:43) <BR>5. <B>Carry the Blessed Home</B> (4:03) <BR>6. <B>Another Stranger Me</B> (4:36) <BR>7. <B>Straight through the Mirror</B> (5:48) <BR>8. <B>Lionheart</B> (4:15) <BR>9. <B>Skalds and Shadows</B> (3:13) <BR>10. <B>The Edge</B> (4:27) <BR>11. <B>The New Order</B> (4:49)<BR></P>
+Автор: Dimas
+
+### 27.07.2006 news Новый альбом BLIND GUARDIAN в шикарном формате
+
+<P><IMG height=300 alt="" hspace=10 src="/images/news_rus/2006.07/10566.jpg" width=300 align=left border=0>Новый альбом <B>BLIND GUARDIAN "A Twist In The Myth"</B> выйдет не только в обычном "стекле" и не только как дигипак, но и в более шикарном формате. Лимитированное издание (1000 копий) выйдет в виде "старинной" книги форматом А4. Кроме самого диска данное издание включает в себя набор "фирменных" печатей, "фирменный" медиатор, пронумерованный сертификат и кое-какие иные фишки. Этот эксклюзив можно приобрести только на сайте лейбла <B>Nuclear Blast</B> за 49,99 евро (не включая доставку).</P>
+Автор: Ixtiandr
+
+### 27.03.2007 articles HAMMERSOUND FEST 1: пресс-релиз
+
+<P>Концертное агентство JC-Sound представляет:</P>
+<P>HAMMERSOUND FEST - STRIKE I</P>
+<P>Традиция проведения больших металлических фестивалей не спешит укореняться на российской земле. Из по-настоящему крупных событий с участием зарубежных коллективов за последние 20 лет вспоминаются лишь три – Фестиваль Мира в Лужниках (1989), легендарные «Монстры Рока» на Тушинском аэродроме (1991), а также относительно недавний RockFest (2004). Однако, эта идея слишком хороша, чтобы от нее отказаться насовсем, и 20 мая 2007 года столицу России потрясет новый HAMMERSOUND FEST с участием таких звезд тяжелой музыки, как BLIND GUARDIAN (Германия), THERION (Швеция), PAIN (Швеция) и наших соотечественников CATHARSIS.</P>
+<P>Фестиваль пройдет на относительно новой площадке получившей название «Б1 Maximum», открытие которой состоялось в декабре 2006 года. Однако за менее чем полугодовую историю клуб уже успел предоставить свою сцену таким именитым исполнителям, как In Extremo и Sisters Of Mercy. По свидетельствам многочисленных зрителей и журналистов, посетивших эти мероприятия, вместительный зал (рассчитанный на 3500 человек), отличный свет и великолепный звук делают «Б1 Maximum» лучшим концертным залом в Москве.</P>
+<P>Основной недостаток многих фестивалей заключается в том, что в связи с большим количеством их участников группам приходится играть сокращенную программу. В случае HAMMERSOUND FEST этот недостаток ликвидирован – каждый из трех западных коллективов отыграет полноценный сет, каждый получит в свое распоряжение все световые и звуковые мощности площадки, а также возможность использования видеоинсталляций, пиротехники и визуальных эффектов. При этом цена билетов на фестиваль сопоставима с ценами, которые фэнам приходится платить за сольные концерты многих западных звезд. Таким образом, HAMMERSOUND FEST фактически становится совокупностью сольных концертов трех команд, каждая их которых занимает лидирующие позиции в своих жанрах.</P>
+<P>Но при этом, фестиваль – это нечто большее, чем сольные концерты. Участники всех выступающих команд прекрасно знают друг друга, неоднократно работали вместе на сцене и в студии, так что такое событие просто не может обойтись без эксклюзивов! Пока рано раскрывать все карты, но организаторы фестиваля и выступающие группы обещают сделать все возможное, чтобы зрители, пришедшие 20 мая в «Б1 Maximum», увидели такое, чему и видавшие все на свете европейцы позавидовали.</P>
+<P>Состав участников фестиваля подобран не случайно. Каждый из коллективов внес значительный вклад в развитие тяжелой музыки, при этом каждый обладает яркой индивидуальностью и харизматичностью. Современную металлическую сцену просто невозможно представить без таких личностей, как Ханзи Кюрш, Кристофер Йонссон и Петер Тагтгрен, а историю жанра - без таких песен, как “The Bard’s Song”, “To Mega Therion” и “Shut Your Mouth”. Все три группы давно пользуются любовью и уважением российских фэнов, многие из которых специально выезжали на фестивали в Германию или Швецию, чтобы увидеть своих кумиров. Теперь же движение происходит в обратную сторону, и для того, чтобы послушать любимых музыкантов и посетить фестиваль, организованный с максимальным уровнем профессионализма и комфорта для слушателей, больше не нужно обивать пороги посольств и пересекать несколько границ.</P>
+<P>Из трех выступающих на HAMMERSOUND FEST западных гостей, самую длительную историю взаимоотношений с российскими фэнами имеют BLIND GUARDIAN. Первое выступление немецкого квартета в России состоялось в мае 2002 года, и его успех был столь серьезен, что уже осенью того же года «Слепые стражи» посетили Москву еще раз. Этот немецкий коллектив почти два десятка лет по праву считается одним из лидеров немецкой тяжелой сцены. Уже на дебютном альбоме “Battalions Of Fear” (1988) легко узнается фирменный стиль группы – пауэр-метал со сложной структурой песен, длинными гитарными соло и текстами на фэнтезийную тематику. Но подлинный успех пришел к BLIND GUARDIAN в 1992 году, с подписанием контракта с крупным лейблом Virgin и выпуском диска “Somewhere Far Beyond”.</P>
+<P>Очередной серьезной вехой в истории BLIND GUARDIAN стал альбом 1998 года “Nightfall In Middle Earth” – концептуальное произведение по мотивам «Сильмариллиона» Дж. Р. Р. Толкиена. Именно этот диск сделал группу культовой среди огромного круга толкиенистов, ролевиков и любителей фэнтези по всему миру. “A Night At The Opera”, вышедший в 2002 году, получил крайне противоречивые отзывы, но “A Twist In The Myth” (2006) вновь был прекрасно принят большинством поклонников и критиков. За три месяца до релиза диска «Стражники» в очередной раз посетили Москву, собрав полный зал ДК Горбунова. Музыканты были настолько впечатлены приемом публики, что обещали вернуться в Россию как можно скорее. И сейчас группа готова сдержать свое обещание.</P>
+<P>Шведский коллектив THERION также выступает в России не в первый раз. Кристофер Йонссон и его музыканты дважды собирали аншлаги в «Горбушке» – в 2004 и 2005 годах. Это неудивительно, ведь стиль THERION совершенно уникален и практически не имеет аналогов на мировой металлической сцене. И пусть вовсе не THERION первой из тяжелых групп сыграли с хором и оркестром, но именно они первыми сделали оркестровые и хоровые партии неотъемлемой частью своего саунда. Альбом “Theli” (1996) произвел настоящую революцию на тяжелой сцене – это грандиозное музыкальное произведение, в котором металл и классика, гитары и оркестр переплелись настолько сильно, что уже не представлялось возможным определить, что первично, а что вторично. “Theli” до сих пор является одной из самых продаваемых позиций в каталоге компании Nuclear Blast. </P>
+<P>Сценическое шоу THERION представляет собой незабываемое событие. Где бы ни выступал этот шведский квартет, они всегда берут с собой хор, количество участников которого в разное время менялось от трех до восьми человек. В последнее время огромную роль в концертном составе THERION стал играть вокалист Матс Левен, известный по сотрудничеству с Ингви Мальмстиным и At Vance, чей мощный голос и сумасшедшая энергетика превращают выступления группы в настоящую бурю эмоций. Но, несмотря на огромное количество концертов по всему миру, Кристофер и его коллеги не забывают и о студийной работе. Последний альбом THERION называется “Gothic Kabbalah”, и на нем музыканты в очередной раз демонстрируют верность своим традициям, в то же время продолжая развиваться и двигаться вперед.</P>
+<P>В отличие от двух вышеупомянутых коллективов, для PAIN предстоящий концерт станет первым на российской земле. Однако лидер и единственный официальный участник проекта, гитарист и вокалист Петер Тагтгрен, уже побывал в России дважды в составе другой своей группы - Hypocrisy. Этот дэтовый коллектив уже много лет является одним из лидеров в своем жанре, но именно с PAIN к Петеру пришел настоящий коммерческий успех. Музыка проекта обречена на успех – она легко вписывается в плей-лист любой готической или индустриальной дискотеки, но при этом в ней хватает тяжелых гитар и очень прилипчивых мелодий. Все сильные стороны PAIN лучше всего воплотились в супер-боевике “Shut Your Mouth” с третьего альбома “Nothing Remains The Same” (2002). Очень оригинальный видеоклип к этой песне покорил даже консервативное российское телевидение, где он в течение нескольких месяцев держался в «Горячей двадцатке» MTV, а основная мелодия композиции до сих пор остается одним из популярнейших рингтонов. </P>
+<P>DVD “Live Is Overrated” (2006), записанный в Польше, продемонстрировал, насколько ярко и мощно PAIN смотрится на сцене. Теперь возможность увидеть и ощутить «Боль» «живьем» есть и у российских фэнов, а помимо всем известных боевиков “Shut Your Mouth”, “On and On”, “End Of The Line” и мн.др., группа также представит на сцене «Б1 Maximum» материал новейшего диска “Psalms Of Extinction”, выход которого назначен на апрель 2007 года.</P>
+<P>Честь России на HAMMERSOUND FEST будет защищать московская группа CATHARSIS. Этот коллектив, в прошлом году отметивший свое десятилетие, по праву считается одним из лидеров металлической сцены страны. На счету CATHARSIS – уже 8 студийных релизов, более десятка различных компиляций и переизданий (в том числе и за рубежом), концертный DVD/CD «Верни им небо…», постоянное участие в крупнейших фестивалях «Крылья» и «Эммаус», а также бесчисленное количество сольных выступлений во всех уголках России и Ближнего Зарубежья. В Москве группа без труда собирает аншлаги в престижном клубе «Точка», но лучшим подтверждением значимости CATHARSIS на российской сцене явилась победа в номинации «лучшая металлическая группа» на церемонии вручения Российской альтернативной музыкальной премии RAMP в 2006 году. Новейший сингл CATHARSIS “Баллада Земли”, выпущенный 16 марта на лейбле Irond, стал своеобразной "визитной карточкой" грядущего большого альбома группы, выход которого планируется на осень 2007 года.&nbsp; </P>
+<P>Другими словами, 20 мая 2007 года вас ожидает по-настоящему уникальное событие, аналогов которому нет ни в России, ни в Европе. Не пропустите возможность за один вечер увидеть полноценные выступления сразу трех ярчайших представителей мировой тяжелой музыки, а также безусловных лидеров российской металлической сцены. Даже если вы считаете, что в России невозможно организовать фестиваль, не уступающий западному, приходите в “Б1 Maximum” – ваши представления на этот счет кардинально изменятся. К тому же, в названии фестиваля не случайно стоит цифра 1. HAMMERSOUND FEST планируется сделать регулярным мероприятием, и следующий фестиваль из этой серии состоится уже осенью. Каким он будет – во многом зависит от результатов “Strike I”. (Пресс-релиз подготовил Роман Патрашов (HeadBanger.ru))</P>
+<P>Начало концерта - 17:00<BR>Вход в клуб открыт с 15:00</P>
+<P>Стоимость билетов:<BR>партер –&nbsp; от 1500р. <BR>VIP – будет анонсировано позже</P>
+<P>Билеты поступят в продажу 26 марта в кассу клуба "Б1 Msximum", в рок-магазины: <BR>"На Кузнецком Мосту", "Зиг-Заг", "Хобгоблин", на точку "Metal & Progressive" ТЦ Рубин, в театральные кассы города, а также через сайт: <A href="http://www.concert.ru/">www.concert.ru</A></P>
+<P>По всем вопросам обращаться: <BR>E: <A href="mailto:jc-sound@mail.ru">jc-sound@mail.ru</A><BR>W: <A href="http://www.jcsound.ru/">www.jcsound.ru</A><BR>Т. организаторов: +7 (916) 554-38-69<BR>T. клуба: (495) 648-6-777</P>
+<P>Адрес клуба - ул. Орджоникидзе 11, </P>
+Автор: Vit Belov
+
+### 20.05.2007 news Событие года: HAMMERSOUND FEST в Москве
+
+<CENTER><IMG height=396 src="/images/news_rus/2007.05/11640.jpg" width=280 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>Компания <STRONG>JC SOUND</STRONG> ждёт всех на этом мощнейшем событии!!!</CENTER>
+Автор: Vit Belov
+
+### 23.05.2007 news THERION обвинили BLIND GUARDIAN и JC Sound
+
+<P>Приоткрыта завеса тайны над мегазадержкой, случившейся перед первым <STRONG>HAMMERSOUND FEST</STRONG> в Москве.&nbsp;В режиме он-лайн <STRONG>THERION</STRONG> оповещали фэнов о сложившейся ситуации на своём сайте. Во всех проблемах<STRONG> THERION</STRONG> обвинили организаоторов концерта, которые, по их утверждениям, не выполнили технических условий выступления <STRONG>THERION</STRONG>. Проблема касалась барабанной установки. При этом её можно было решить при помощи <STRONG>BLIND GUARDIAN</STRONG>, которые, в свою очередь,&nbsp;отказались помочь.</P>
+<P>В итоге запуск фэнов в зал начался с четырёхчасовой (!!!)&nbsp;задержкой. Было отменено выступление <STRONG>CATHARSIS</STRONG>, а <STRONG>BLIND GUARDIAN</STRONG> появились на сцене только в 23-15, и концерт завершился после полуночи.</P>
+Автор: Vit Belov
+
+### 24.05.2007 articles Официальное заявление JC Sound, связанное с Hammersound Fest 1 20 мая
+
+<P>Уважаемые друзья!</P>
+<P>Мы хотим принести свои искренние извинения перед всеми посетителями фестиваля HAMMERSOUND strike 1, прошедшему в клубе Б1 Maximum 20 мая 2007 года, за длительную задержку начала мероприятия и считаем своим долгом прояснить данную ситуацию.</P>
+<P>Ни для кого не секрет, что проведение такого масштабного мероприятия требует четкого временного регламента, который был заранее выработан нами и согласован со всеми лицами, так или иначе принимающими участие в организации фестиваля (клуб, артисты, все обслуживающие службы и т.д.). И только когда нами были получены 100% гарантии выполнения этого графика от всех инстанций, мы начали непосредственную работу над предстоящим шоу. Согласно нему, монтаж сцены и звукового оборудования должен был начаться в 7.00 утра, что позволяло подготовить зал для выступления всех участников феста. За 3-4 дня до проведения мероприятия, нами была получена информация, что в ночь перед нашим фестивалем в клубе будет проходить dance-вечеринка, специально для которой на сцене будут размещены автомобили (!). Понимая, что такой неожиданный поворот событий может серьезно нарушить наши планы, мы неоднократно связывались с администрацией клуба, каждый раз получая от них 200% гарантию, что демонтаж всего ночного шоу будет закончен до 7.00 и никаких проблем в связи с этим у нас не возникнет. Однако, прибыв на место с техническими бригадами артистов в означенное время, мы увидели следующую картину:</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/articles_rus/2007.05/11648.jpg" width=400 align=left border=5></P>
+<P>Ситуация с автомобилями на сцене может показаться анекдотической, но факт остается фактом - сцена была попросту не готова, клуб не выполнил своих обещаний, не проконтролировал окончание ночного party, и никто из администрации клуба попросту не отвечал на наши телефонные звонки в течении нескольких часов. Убрать автомобили со сцены без спецоборудования нереально, и ситуация смогла разрешиться только к началу 11-го, когда совместными усилиями необходимая техника все-таки была найдена. Все технические бригады артистов были вынуждены простаивать все это время в бездействии, ожидая, пока сцена не будет готова к работе. Таким образом, весь регламент мероприятия был кардинально смещен, мы, к нашему большому сожалению, были вынуждены снять с фестиваля российского участника - CATHARSIS, и делать все возможное, чтобы фестиваль состоялся уже в принципе, ибо времени катастрофически не хватало. Однако, нельзя прыгнуть выше головы, и, несмотря на все старания технического персонала клуба Б1, задержка открытия дверей оказалась неизбежной. Время саундчеков групп, естественно, также оказалось смещенным, что вызвало дополнительное количество проблем, и не позволило в полной мере реализовать все заранее подготовленные задумки с оформлением сцены для каждой выступающей группы. Отдельно хотелось бы отметить крайнюю капризность менеджмента группы THERION и их лидера Кристофера Джонссона, который до последнего отказывался выступать в принципе, мотивируя это совершенно разными, зачастую абсурдными причинами (именно он, к слову сказать, запустил незадолго до дня проведения фестиваля информацию в интернет об отмене выступления PAIN, чем вызвал как минимум недоумение как у нас, так и у менеджмента группы Питера Тагтгрена), что создавало исключительную нервозность и целый ряд сложностей на протяжении всего дня. Однако, несмотря ни на что, все вопросы были решены (отдельное спасибо хотелось бы выразить технической бригаде клуба Б1, а также менеджменту и самой группе PAIN, которые приложили максимум усилий для того, чтобы фестиваль состоялся) и мы смогли начать шоу настолько рано, насколько это было возможно в сложившейся ситуации. Мы (концертное агентство JC-SOUND) прекрасно понимаем, что любые наши заявления могут выглядеть как оправдание, но не прокомментировать ситуацию, не имеем права. Мы не снимаем с себя ответственности за произошедшее, за что еще раз приносим свои искренние извинения перед всеми посетителями HAMMERSOUND FEST strike 1. В настоящее время нами ведется предварительная работа по формированию состава второй, осенней, части фестиваля, и мы <BR>приложим все усилия, чтобы более никакие традиции российской действительности не смогли влиять на качество проведения подобных акций. В качестве хоть какой-то компенсации за моральный ущерб с нашей стороны мы готовы предоставить всем лицам, посетившим HAMMERSOUND strike 1, скидку на покупку билетов на вторую часть фестиваля, так что не выбрасывайте бланки - они могут пригодиться! Еще раз надеемся на ваше понимание ситуации, и то, что сам фестиваль, несмотря на задержки по времени, все же оставил у вас позитивные воспоминания!</P>
+<P>Искренне ваши</P>
+<P>JC-SOUND prod.</P>
+Автор: Vit Belov
+
+### 25.05.2007 articles Hammersound Fest 1: Первый блин комом...
+
+<P>20 мая в Москве в клубе «Б1 Максимум» прошёл первый фестиваль Hammersound. Брэнд, раскручиваемый московскими промоутерами JC Sound, получил неплохую рекламу. Как в позитивном, так и в негативном смысле. </P>
+<P>Безусловно, планка была изначально поднята на небывалую высоту. Поначалу подобный состав, PAIN, BLIND GUARDIAN и THERION, был воспринят несколько скептически. Понятно, что это не фестиваль Монстры Рока на ВДНХ, но всё же. Столь уважаемые и, вероятно, высокооплачиваемые участники в один день и в одном месте! Объявленная стоимость билета, всего 1500 рублей, что по нынешним меркам недорого, наводила на мысль, что несмотря на свою вместительность, клуб «Б1 Максимум» просто рухнет. На позитивный лад настраивало и то, что JC Sound уже работали и с BLIND GUARDIAN, и с THERION. Это означало, что у компании налажены хорошие связи с менеджментом коллективов, значит, и реальность события повышалась. Как вы поняли, фест состоялся, вот только насколько он был близок к провалу, знают все, кто простоял у клуба четыре часа.</P>
+<P>Время входа в зал на билете обозначалось в 15-00. Первая группа CATHARSIS должна была выступить в 17-00, к сожалению, их шоу не состоялось. На самом деле запускать в зал стали только часов в семь, при этом PAIN начали играть, когда зал был наполовину пуст. Но об этом позже. Фэны пробыли на жаре около четырёх часов, при этом люди были привязаны к своему месту в очереди, растянувшейся на несколько сот метров вдоль улицы Орджоникидзе. Никакой информации от организаторов не поступало, и поклонники тяжёлой музыки оставались в полном неведении относительно своей дальнейшей судьбы. В очереди муссировались разнообразные слухи. Упоминались и проблемы с саундчеком, и споры между группами об очерёдности выступления. В это время на сайте THERION появилось сообщение об отмене PAIN, поста, правда, никто в очереди прочитать не мог, но слухи ходили и об этом. При всём при этом публика вела себя очень адекватно, медленно напивалась и «описывала» близлежащий скверик. О туалетах, естественно, никто не подумал. Раздавались только вполне лояльные скандирования, типа «Шайбу! Шайбу!». Максимум, на что хватило злости это прокричать пару раз: «Козлы!». Видимо, из-за тёплой погоды и наличия поблизости продуктовых магазинов, задержка не вызвала должной реакции. Даже отзывы в Интернет не носили столь ожесточённый характер, как бывало. Вовремя подоспело и послеконцертное обращение от JC Sound, в котором бизнесмены попросили прощения у фэнов и взяли всю вину на себя, предварительно обвинив менеджмент клуба в халатности, а музыкантов THERION в завышенных запросах. Все эти обращения вы сможете прочесть на соседних страничках. Остаётся добавить, что организаторы обещают вторую часть своего феста уже осенью, на которую будут действовать скидки обладателям «заветных квитков» на часть первую. Отличный маркетинговый ход!</P>
+<P>И ещё немного об организаторах. Встаёт вопрос, зачем они всё это делают? Публика и так готова платить бешеные деньги за сольные концерты кумиров. Зачем собирать под одну крышу кучу звёзд, платить им гонорары, а ещё и оценивать билеты в столь мизерную сумму? Неужели недостаточно просто привозить по одиночке коллективы. Можно и больше заработать, и избежать стольких проблем. Что в этих попытках делать масштабные фесты? Борьба за покупателя? Конкуренция с другими промоутерами? Честолюбие? Или промоутеры почувствовали спад интереса к своей деятельности? Нет ответа. JC SOUND от этого феста больше потеряли, чем приобрели. Потери, как в имидже, так и с финансовой точки зрения, я думаю, очевидны. Hammersound Fest символизировал окончание нынешнего независимого концертного сезона и дал ориентир на будущий. Уже сейчас объявлены фестивали с двумя и более зарубежными группами. Нас ждёт «гонка промоутерских достижений». Берегитесь, ни к чему хорошему для бизнеса такие гонки не приводят, зато нам, обывателям, подобные проекты в радость.</P>
+<P>Вернёмся к концерту. Вернее, к концерту PAIN. BLIND GUARDIAN послушать не удалось, из-за той же пресловутой задержки, группа вышла только в 23-15. О THERION особый разговор. Кристофер Йонссон приехал со своей группой к нам уже в третий раз. С каждым разом коллектив всё больше напоминает труппу бродячего цирка. На сцене творится «рок’н’ролл», несколько не свойственный музыке THERION в классическом понимании. Если в последние приезды за «шоу» отвечал Матс Левен, стоящий у края сцены и изредка выдающий в микрофон свои power-вокализы, то в этот раз был вычеркнут хор, а добавлены комик Сноуи Шо, и две отвязного вида девицы, которые пусть и неплохо справлялись со своими партиями, но отчаянно «строили козу» и скакали по всей сцене, как группа DRAGONFORCE. Так же, к сожалению, не удалось понять, кто чего пел. Мужские партии, например, исполняли то ли Сноуи и Матс, то ли ноутбук, стоящий у барабанщика по левую руку. Печально. В этой связи хочется предположить, что THERION уже не будут самими собой ни в концертной, ни в студийной ипостасях. Движение в непонятную сторону уже замечено на последнем альбоме “Gothic Kabbalah”. Остаётся ждать, когда Кристофер наймёт в состав фокусников и акробатов, которые сделают выступления THERION ещё более незабываемыми. Жаль только, BLIND GUARDIAN были последними, THERION были бы более эффектным завершением этого вечера.</P>
+<P>Ну, а теперь о PAIN. Peter Tagtgren был великолепен. Ни много, ни мало. Я думаю, выступление группы понравилось всем собравшимся. PAIN примирили, как сторонников BLIND GUARDIAN, так и сторонников THERION. Их музыка стала великолепным разогревом для этого феста. Металлическая дискотека, иначе не скажешь. Злобные волосатые мужики, индустриальный ритм, крики и вопли от Питера. Энергия перешла в зал и там осталась. Только не надолго. THERION быстро всех охладили. Кстати, нам есть с чем сравнивать. 2 марта в Москве выступали DEATHSTARS, играющие в одном стиле с PAIN. Если DEATHSTARS играют «готишный» индустриал, то PAIN «рокнролльный». Такое впечатление, что Peter просто решил показать, мол, и мы популярную музыку играть умеем. В багаже группы уже есть не один хит-сингл, самым главным из которых PAIN и завершили выступление, “Shut Your Mouth” – сэмпл для сотового телефона.</P>
+<P>PAIN остались единственным позитивным музыкальным впечатлением от этого вечера. Многие в зале пожалели, что в Москве просто не проходил сольник PAIN без пафосных хэдлайнеров. Шведы из тех групп, на которые хочется сходить ещё раз. Настоящий праздник.</P>
+Автор: Vit Belov
+
+### 12.06.2007 news BLIND GUARDIAN переиздают старые альбомы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>EMI</STRONG> 15 июня переиздадут ранние ремастированные альбомы<STRONG> BLIND GUARDIAN</STRONG>. На пластинки войдут бонусы-трэки и видеоматериалы. Трэк-листы:</FONT></P>
+<P><STRONG>"Battalions Of Fear"</STRONG> (1988) <BR>01. <B>Majesty</B> <BR>02. <B>Guardian Of The Blind</B> <BR>03. <B>Trial By The Archon</B> <BR>04. <B>Wizard's Crown</B> <BR>05. <B>Run For The Night</B> <BR>06. <B>The Martyr</B> <BR>07. <B>Battalions Of Fear</B> <BR>08. <B>By The Gates Of Moria</B> <BR>09. <B>Gandalf's Rebirth</B> <BR>10. <B>Brian</B> (Bonus Track - Demo Version) <BR>11. <B>Halloween</B> (Bonus Track - Demo Version) <BR>12. <B>Lucifer's Heritage</B> (Bonus Track - Demo Version) <BR>13. <B>Symphonies Of Doom</B> (Bonus Track - Demo Version) <BR>14. <B>Dead Of The Night</B> (Bonus Track - Demo Version) <BR><BR><B>"Follow The Blind"</B> (1989) <BR>01. <B>Inquisition</B> <BR>02. <B>Banish From Sanctuary</B> <BR>03. <B>Damned For All Time </B><BR>04. <B>Follow The Blind </B><BR>05. <B>Hall Of The King</B> <BR>06. <B>Fast To Madness </B><BR>07. <B>Beyond The Ice </B><BR>08. <B>Valhalla </B><BR>09. <B>Don't Break The Circle </B><BR>10. <B>Barbara Ann </B><BR>11. <B>Majesty</B> (Bonus Track - Demo Version) <BR>12. <B>Trial By The Archon</B> (Bonus Track - Demo Version) <BR>13. <B>Battalions Of Fear</B> (Bonus Track - Demo Version) <BR>14. <B>Run For The Night</B> (Bonus Track - Demo Version) <BR><BR><B>"Tales From The Twilight World"</B> (1990) <BR>01. <B>Traveler In Time</B> <BR>02. <B>Welcome To Dying</B> <BR>03. <B>Weird Dreams</B><BR>04. <B>Lord Of The Rings</B> <BR>05. <B>Goodbye My Friend</B> <BR>06. <B>Lost In The Twilight Hall</B> <BR>07. <B>Tommyknockers</B> <BR>08. <B>Altair 4</B> <BR>09. <B>The Last Candle</B> <BR>10. <B>Run For The Night</B> (Live) <BR>11. <B>Lost In The Twilight Hall</B> (Bonus Track - Demo Version) <BR>12. <B>Tommyknockers</B> (Bonus Track - Demo Version) <BR><BR><B>"Somewhere Far Beyond"</B> (1992) <BR>01. <B>Time What Is Time</B> <BR>02. <B>Journey Through The Dark</B> <BR>03. <B>Black Chamber</B> <BR>04. <B>Theatre Of Pain</B> <BR>05. <B>The Quest For Tanelorn</B> <BR>06. <B>Ashes To Ashes</B> <BR>07. <B>The Bard's Song: In The Forest</B> <BR>08. <B>The Bard's Song: The Hobbit</B> <BR>09. <B>The Piper's Calling</B> <BR>10. <B>Somewhere Far Beyond</B> <BR>11. <B>Spread Your Wings</B> <BR>12. <B>Trial By Fire</B> <BR>13. <B>Theatre Of Pain</B> <BR>14. <B>Ashes To Ashes</B> (Bonus Track - Demo Version) <BR>15. <B>Time What Is Time</B> (Bonus Track - Demo Version) <BR><BR><B>"Tokyo Tales"</B> (1993) <BR>01. <B>Inquisition</B> <BR>02. <B>Banish From Sanctuary</B> <BR>03. <B>Journey Through The Dark</B> <BR>04. <B>Traveler In Time</B> <BR>05. <B>The Quest For Tanelorn</B> <BR>06. <B>Goodbye My Friend</B> <BR>07. <B>Time What Is Time</B> <BR>08. <B>Majesty</B> <BR>09. <B>Valhalla</B> <BR>10. <B>Welcome To Dying</B> <BR>11. <B>Lord Of The Rings</B> (Bonus Track) <BR>12. <B>Lost In The Twilight Hall</B> <BR>13. <B>Barbara Ann</B> <BR><BR><B>"Imaginations From The Other Side"</B> (1995) <BR>01. <B>Imaginations From The Other Side</B> <BR>02. <B>I'm Alive</B> <BR>03. <B>A Past And Future Secret</B> <BR>04. <B>The Script For My Requiem</B> <BR>05. <B>Mordred's Song</B> <BR>06. <B>Born In A Mourning Hall</B> <BR>07. <B>Bright Eyes</B> <BR>08. <B>Another Holy War</B> <BR>09. <B>And The Story Ends</B> <BR>10. <B>A Past And Future Secret</B> (Bonus Track - Demo Version) <BR>11. <B>Imaginations From The Other Side</B> (Bonus Track - Demo Version) <BR>12. <B>The Script For My Requiem</B> (Bonus Track - Demo Version) <BR>13. <B>Bright Eyes</B> (Video) <BR>14. <B>Born In A Mourning Hall</B> (Video) <BR><BR><B>"The Forgotten Tales"</B> (1996) <BR>01. <B>Mr. Sandman</B> <BR>02. <B>Surfin' USA</B> <BR>03. <B>Bright Eyes</B> <BR>04. <B>Lord Of The Rings</B> <BR>05. <B>The Wizard</B> <BR>06. <B>Spread Your Wings</B> <BR>07. <B>Mordred's Song</B> <BR>08. <B>Black Chamber</B> <BR>09. <B>The Bard's Song</B> (Live) <BR>10. <B>Barbara Ann / Long Tall Sally</B> <BR>11. <B>A Past And Future Secret</B> <BR>12. <B>To France</B> <BR>13. <B>Theatre Of Pain</B> <BR>14. <B>Hallelujah</B> (Bonus Track) <BR>15. <B>Beyond The Realms Of Death</B> (Bonus Track) <BR>16. <B>Don't Talk To Strangers</B> (Bonus Track) <BR>17. <B>Mr. Sandman</B> (Video) <BR>18. <B>The Bard's Song</B> (Video) <BR><BR><B>"Nightfall In Middle Earth"</B> (1998) <BR>01. <B>War Of Wrath</B> <BR>02. <B>Into The Storm</B> <BR>03. <B>Lammoth</B> <BR>04. <B>Nightfall</B> <BR>05. <B>The Minstrel</B> <BR>06. <B>The Curse Of Feanor</B> <BR>07. <B>Captured</B> <BR>08. <B>Blood Tears</B> <BR>09. <B>Mirror Mirror</B> <BR>10. <B>Face The Truth</B> <BR>11. <B>Noldor (Dead Winter Reigns</B> <BR>12. <B>Battle Of Sudden Flame</B> <BR>13. <B>Time Stands Still (At The Iron Hill)</B><BR>14. <B>The Dark Elf</B> <BR>15. <B>Thorn</B> <BR>16. <B>The Eldar</B> <BR>17. <B>Nom The Wise</B> <BR>18. <B>When Sorrow Sang</B> <BR>19. <B>Out On The Water</B> <BR>20. <B>A Dark Passage</B> <BR>21. <B>Final Chapter (Thus Ends...)</B> <BR>22. <B>Harvest Of Sorrow</B> (Bonus Track) </P>
+Автор: Vit Belov
+
+### 23.07.2007 news Вышел новый номер ALIVE # 27!
+
+<P><IMG height=407 alt="" hspace=15 src="/images/news_rus/2007.07/11738.jpg" width=300 align=right border=0>Вышел в свет новый, 28-й номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>MEGADETH, CREMATORY, CRADLE OF FILTH, JON OLIVA'S PAIN, ONKEL TOM, ИВАН ЦАРЕВИЧ, AUTOPSY, INSIDE YOU, ANGRA, PAIN, DEVILISH DISTANCE, THERION, BLIND GUARDIAN, ДИНАСТИЯ ПОСВЯЩЕННЫХ, ASSASSIN, BLUE OYSTER CULT, ROSE TATTOO, HIM, ANATHEMA, KATATONIA,<BR>CATHEDRAL.<BR></B><BR>+ постер <B>LAKE OF TEARS</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 19.03.2008 news Новая группа Thomen Stauch
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После увольнения из <STRONG>SAVAGE CIRCUS</STRONG> бывший барабанщик <STRONG>BLIND GUARDIAN Thomen</STRONG> <STRONG>Stauch</STRONG> начал искать, куда ему применить свои таланты. Вчера было объявлено о новой, пока не названной группе, в которую, кроме <STRONG>Thomen</STRONG>, вошли <STRONG>Axel Ritt</STRONG>&nbsp;(гитара, <STRONG>DOMAIN</STRONG>) и <STRONG>David DeFeis</STRONG>&nbsp;(!!!) (вокал, <STRONG>VIRGIN STEELE</STRONG>).</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 02.10.2008 news Thomen Stauch начал играть готику
+
+<P>Бывший барабанщик <STRONG>BLIND GUARDIAN</STRONG> и <STRONG>SAVAGE CIRCUS Thomen Stauch</STRONG> присоединился к gothic/industrial группе <STRONG>SEELENZORN</STRONG>. Также музыкант продолжает работу над сочинением материала для второго альбома <STRONG>COLDSEED</STRONG> и своего нового power-metal проекта вместе с певцом <STRONG>VIRGIN STEELE David De Feis</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.02.2009 news Oliver Holzwarth присоединился к POWER QUEST
+
+<P>Новым басистом<STRONG> POWER QUEST</STRONG> стал <STRONG>Oliver Holzwarth</STRONG>, концертный участник <STRONG>BLIND GUARDIAN</STRONG>.</P>
+Автор: Vit Belov
+
+### 05.03.2009 news BLIND GUARDIAN сочинили восемь песен
+
+<P><STRONG>BLIND GUARDIAN</STRONG> сочинили восемь песен для своего будущего альбома. Вокалист <STRONG>Hansi Kursch</STRONG> пообещал 100-процентный <STRONG>BLIND GUARDIAN</STRONG>, в котором смешаются черты раннего и позднего творчества группы. К осени немцы собираются сочинить ещё две вещи и приступить к записи.&nbsp;</P>
+Автор: Vit Belov
+
+### 15.11.2009 news Hansi (BLIND GUARDIAN): &quot;Альбом выйдет следующим летом или осенью&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>BLIND GUARDIAN Hansi Kursch</STRONG> рассказал о процессе записи нового альбома. В настоящее время работает барабанщик коллектива <STRONG>Frederik Ehmke</STRONG>, который уже записал 9 из 11 трэков, над которыми ведётся работа в этот раз. "<EM>Как я уже рассказывал ранее, на альбоме будет много "гимнов от BLIND GUARDIAN</EM>", - рассказывает <STRONG>Hansi</STRONG>. "<EM>Будет хороший баланс между экстремальными бстрыми песнями и эпическим материалом. Я&nbsp;уже упоминал песню "Wheel Of Time". Это трэк по книгам Robert Jordan содержит в себе множество сюрпризов. Я бы сравнил эту вещь с 'The Script For My Requiem'&nbsp;или 'And Then There Was Silence'</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Hansi </STRONG>сказал, что он очень удовлетворён новым материалом и не может дождаться, когда сможет послушать альбом готовым. Случится это не раньше апреля 2010 года. "<EM>Мы ориентируемся на релиз в конце лета или осенью, так что вам ещё придётся немного подождать. В понедельник я уже начну записывать вокал, но пока я должен немного покопаться в трудах G.R.R. Martin, Robert Jordan, Michael Moorcock, чтобы закончить лирику.&nbsp;Эти авторы умели сочинить хорошую историю</EM>", - заканчивает <STRONG>Kursch</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 11.05.2010 news BLIND GUARDIAN назвали альбом
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2010.05/16691.jpg" width=400 align=right border=5>Новый альбом <STRONG>BLIND GUARDIAN</STRONG> получил название <STRONG>"At The Edge Of Time". </STRONG>Пластинка должна выйти к концу года на Nuclear Blast.&nbsp;Предварять полноформатную пластинку будет&nbsp;сингл <STRONG>"A Voice In The Dark"</STRONG>, который выйдет 25 июня. Трэк-лист сингла:</P>
+<P>01. <B itxtvisited="1">A Voice In The Dark</B> (5:45)<BR itxtvisited="1">02. <B itxtvisited="1">You're The Voice</B> (4:43)<BR itxtvisited="1">03. <B itxtvisited="1">War Of The Thrones</B> (5:20)</P>
+Автор: Vit Belov
+
+### 18.05.2010 news Трэк-лист нового BLIND GUARDIAN
+
+<P>Продолжается подготовка к долгожданному релизу нового альбома <STRONG>BLIND GUARDIAN</STRONG>&nbsp;<B>"At The Edge Of Time"</B>, который выйдет в конце лета на <STRONG>Nuclear Blast</STRONG>. На этот раз опубликован трэк-лист будущего творения:</P>
+<P>01. <B>Sacred Worlds</B> (9:17)<BR>02. <B>Tanelorn</B> (5:58)<BR>03. <B>Road Of No Release</B> (6:30)<BR>04. <B>Ride Into Obsession</B> (4:46)<BR>05. <B>Curse My Name</B> (5:52)<BR>06. <B>Valkyries</B> (6:38)<BR>07. <B>Control The Divine</B> (5:26)<BR>08. <B>War Of The Thrones</B> (4:55)<BR>09. <B>A Voice In The Dark</B> (5:41)<BR>10. <B>Wheel Of Time</B> (8:55)</P>
+<P>Лидер коллектива вокалист <STRONG>Hansi Kursch</STRONG> в недавнем интервью заявил, что этот альбом станет самым эпичным в долгой истории группы. Будем ждать.</P>
+Автор: Vit Belov
+
+### 19.05.2010 news Новый альбом BLIND GUARDIAN: Теперь обложка
+
+<P>Ни дня без строчки о новом альбоме <STRONG>BLIND GUARDIAN</STRONG> <STRONG>"At The Edge Of Time", </STRONG>который выходит в конце лета на <STRONG>Nuclear Blast</STRONG>. Вчера группа предложила трэк-лист, сегодня обложку долгожданного альбома.</P>
+<P>
+<CENTER><IMG height=262 src="/images/news_rus/2010.05/16733.jpg" width=262 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.08.2010 news Новое видео BLIND GUARDIAN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип <STRONG>BLIND GUARDIAN</STRONG> <STRONG>"A Voice In The Dark" </STRONG>можно посмотреть ниже. Песня была взята с новейшего альбома группы <STRONG>"At The Edge Of Time"</STRONG>, который вышел на этой неделе на<STRONG> Irond</STRONG> в формате "двойного" digi-pack.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/eIZNb96EQJ8&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/eIZNb96EQJ8&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.08.2010 reviews Слухи о смерти BLIND GUARDIAN сильно преувеличены
+
+<P>Новые альбомы популярнейшей в конце XX века группы BLIND GUARDIAN вызывают постоянные разочарования у её поклонников уже более десяти лет. Начиная с пластинки 1998 года “Nightfall in Middle-Earth”, слышатся возгласы придирчивых слушателей, мол, исписалась группа, пошла не туда, куда следовало бы. Но в тоже время пластинки немцев продаются хорошими тиражами, а сам альбом BG 98-го года в нашем опросе, проводимом в конце 90-х годов, прочно удерживал второе место после “Master of Puppets” от METALLICA. Новая работа BLIND GUARDIAN “At the Edge Of Time” также вызывает неоднозначную реакцию. Интересно знать, почему так выходит?</P>
+<P>Основные неприятности у немцев начались в 2002 году, когда после выхода альбома “A Night at the Opera” группу обвинили в излишней прогрессивности и предали анафеме за это. После этого новые работы BLIND GUARDIAN встречают с некоторым скептицизмом. Признаюсь, и мне альбом 2002 года нравится, так сказать, не очень, но огульно хаять современную музыку группы у меня не получается. Новый альбом BG очень комплексный, даже где-то навороченный, но предельно мелодичный. Уже некоторое время назад группа отказалась от достаточно простого, но понятного принципа, тяжёлый куплет – гипермелодичный припев. Забой, которого несомненно стало много меньше, и вокальные мелодии, которых стало сильно больше, чередуются теперь без всякого определённого порядка, что нельзя однако назвать очевидным злом. Из нововведений позднего периода творчества следует также отметить симфоничность песен. Практически постоянно звучит оркестр, что, конечно же, может не понравиться бывалым поклонникам группы, но меня совсем не разочаровывает. В музыке BLIND GUARDIAN я всегда искал волшебные, в прямом и переносном смысле, мелодии и голос Hansi Kursch. И то и другое на “At the Edge of Time” присутствует в полном объёме. А при внимательном прослушивании обнаруживаются и настоящие хиты. Например, я предлагаю обратить особое внимание на “Ride Into Obsession” – великолепная песня. Также на альбоме имеется несколько помпезных и эпических композиций, длительностью под 10 минут, это тоже приятно.</P>
+<P>BLIND GUARDIAN были чуть ли не самой любимой группой в fantasy power-metal в 90-е годы. Я встречал людей далёких от метала, которые признавали эту группу, чуть ли не лучшей во всей современной музыке. Мне это утверждение кажется по меньшей мере спорным, но с музыкальной точки зрения новая работа не менее ценна, чем классика группы. Возможно, сам стиль потерял в популярности, а мода на Толкиена несколько поутихла, но BLIND GUARDIAN демонстрируют, что находятся в хорошей форме.</P>
+Автор: Vit Belov
+
+### 12.08.2010 news BLIND GUARDIAN стали вторыми
+
+<P><STRONG>BLIND GUARDIAN</STRONG> попали на второе место в чартах Германии со своим новым альбомом <STRONG>"At The Edge Of Time". </STRONG>Это стало лучшей позицией группы за всю историю существования.</P>
+<P>Спешите приобрести лимитированное лицензионное издание этого альбома в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P>Количество строго ограничено!!!</P>
+Автор: Vit Belov
+
+### 25.07.2011 news BLIND GUARDIAN нашли концепцию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немцы <STRONG>BLIND GUARDIAN</STRONG> работают над специальным оркестровым альбомом, который планируется к выходу в 2013 году. Вокалист группы <STRONG>Hansi Kursch</STRONG> сообщил, что коллективу удалось договориться с популярным немецким автором фэнтази <STRONG>Маркусом Хайцем</STRONG>, который согласился предоставить свои произведения в качестве концепции для этого масштабного музыкального проекта. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Markus</STRONG> и <STRONG>BLIND GUARDIAN</STRONG> давние знакомые, принадлежащие одному фэнтази-кругу в Германии.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=275 src="/images/news_rus/2011.07/20320.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 14.08.2011 news BLIND GUARDIAN помогает Японии
+
+<P>В апреле месяце <B>EMI Music</B> запустила программу помощи жертвам замлетресения и цунами, произошедшим Японии в марте этого года.&nbsp;Группа <B>BLIND GUARDIAN</B> приняла участие в этой программе, предложив эксклюзивное время на своей студии&nbsp;<B>Twilight Hall Studio</B> (Grefrath, Germany) для двоих человек. Студийное время было выставленно на аукцион eBay, а&nbsp;счастливым его обладателем стал Дэвид МакГрегор (<B>David McGregor</B>) из города Квебек, Канада, который вместе со своим другом Мартином Мачадо (<B>Martin Machado</B>) приобрёл данный лот за 1,317.42 евро.<BR><BR>В прошлом месяце вокалист <B>BLIND GUARDIAN</B> Ханси Кюрш (<B>Hansi Kursch</B>) и другие участники группы отправились в свою студию, чтобы перезаписать свой большой хит, песню <B>"The Bard's Song"</B>. Во время записи <B>McGregor</B> руководил музыкантами <B>BLIND GUARDIAN</B>, давая им инструкции, как именно должна звучать эта 19-ти летняя классика.&nbsp;Помимо этого, поклонники записали часть вокальных партий&nbsp;и&nbsp;партии баса на&nbsp;этой композиции.&nbsp;</P>
+<P>После шести часов интенсивной студийной работы, <B>Kursch</B> объявил, что запись <EM>"закончена"</EM> и добавил, что <EM>"всё получилось превосходно"</EM>.</P>
+<P>Комментирует <B>Hansi</B>: <EM>"Катастрофа&nbsp;произошедшая&nbsp;11 марта в Японии затронула целый мир и её ужасные последствия будут ощущаться в течение многих последующих лет. Мы не долго думали, когда наша бывшая звукозаписывающая компания <STRONG>EMI</STRONG> спросила нас, хотим ли мы принять участие в этом фантастическом проекте-помощи."<BR></EM><BR>Небольшую часть этой студийной сессии, снятой немецким изданием журнала&nbsp;<B>Metal Hammer</B>, и новую версию песни можно посмотреть и послушать&nbsp;по ссылке: <A href="http://www.metal-hammer.de/news/meldungen/article111342/Blind-Guardian-im-Studio-The-Bards-Song-mit-kanadischem-Fan.html">http://www.metal-hammer.de/news/meldungen/article111342/Blind-Guardian-im-Studio-The-Bards-Song-mit-kanadischem-Fan.html</A><BR><BR>Доходы от этого и других аукционов&nbsp;проводимых под вывеской&nbsp;<STRONG>EMIfamily4Japan</STRONG> пойдут на то, чтобы помочь оставшимся в живых&nbsp;после трагедии, случившийся&nbsp;в Японии.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.08/20595.jpg" width=600 height=306> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 17.08.2011 news Фотографии с фестиваля &quot;TUSKA OPEN AIR&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.08/20609.jpg" width=212 height=282>С 22 по 24 июля в городе Хельсинки,&nbsp;Финляндия, прошёл 14 по счёту фестиваль <STRONG>"Tuska Open Air"</STRONG>.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За эти три дня&nbsp;в нём приняло участие&nbsp;более 50 металических&nbsp;групп со всего света, вот только несколько имён: <STRONG>AMON AMARTH</STRONG>, <STRONG>TURISAS</STRONG>, <STRONG>BLIND GUARDIAN</STRONG>, <STRONG>MESHUGGAH</STRONG>, <STRONG>MORBID ANGEL</STRONG>, <STRONG>AT THE GATES</STRONG>.</FONT></P>
+<P>Фотографии некоторых из участников фестиваля можно посмотреть в галерее нашего сайта по адресу: </P>
+<P><A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></P>
+<P>Автор всех фотографий: Анна Ходакова</P>
+<P>Сайт фестиваля <STRONG>"Tuska Open Air"</STRONG>: <A href="http://www.tuska-festival.fi/">www.tuska-festival.fi</A></P>
+Автор: Headcrusher
+
+### 27.12.2011 news Новый сборник BLIND GUARDIAN
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.12/22396.jpg" width=475 align=right border=0>Сборник <STRONG>BLIND GUARDIAN</STRONG> <STRONG>"Memories Of A Time To Come" </STRONG>выйдет 20 января на <STRONG>Virgin</STRONG>/<B>EMI</B>. Ординарное издание альбома будет содержать два диска с&nbsp;новыми версиями лучших вещей группы. На третий бонусный диск войдут демо-записи группы-предшественника <STRONG>BLIND GUARDIAN</STRONG> <STRONG>LUCIFER'S HERITAGE. </STRONG>Трек-лист:</P>
+<P>CD 1:<BR>01. <B>Imaginations From The Other Side</B> (7:11) *<BR>02. <B>Nightfall</B> (5:34) *<BR>03. <B>Ride Into Obsession</B> (4:46) *<BR>04. <B>Somewhere Far Beyond</B> (7:32) *<BR>05. <B>Majesty</B> (7:29) *<BR>06. <B>Traveler In Time</B> (6:01) *<BR>07. <B>Follow The Blind</B> (7:11) *<BR>08. <B>The Last Candle</B> (6:03) *<BR><BR>CD 2:<BR>01. <B>Sacred Worlds</B> (9:17)<BR>02. <B>This Will Never End</B> (5:07) *<BR>03. <B>Valhalla</B> (5:13) **<BR>04. <B>Bright Eyes</B> (5:15) *<BR>05. <B>Mirror Mirror</B> (5:09) *<BR>06. <B>The Bard's Song (In The Forest)</B> (3:26) *<BR>07. <B>The Bard's Song (The Hobbit)</B> (3:41) **<BR>08. <B>And Then There Was Silence</B> (14:06) **<BR><BR>CD 3: (only available with the deluxe limited edition)<BR>01. <B>Brian</B> ***<BR>02. <B>Halloween (The Wizard's Crown)</B> ***<BR>03. <B>Lucifer's Heritage</B> ***<BR>04. <B>Symphonies Of Doom</B> ***<BR>05. <B>Dead Of The Night</B> ***<BR>06. <B>Majesty</B><BR>07. <B>Trial By The Archon</B><BR>08. <B>Battalions Of Fear</B><BR>09. <B>Run For The Night</B><BR>10. <B>Lost In The Twilight Hall</B><BR>11. <B>Tommyknockers</B><BR>12. <B>Ashes To Ashes</B><BR>13. <B>Time What Is Time</B><BR>14. <B>A Past And Future Secret</B><BR>15. <B>The Script For My Requiem</B><BR>* Remixed 2011<BR>** Re-recorded 2011<BR>*** Reworked 2011</P>
+<P>Оркестровую версию <STRONG>"The Bard's Song (In The Forest)"</STRONG>&nbsp;можно послушать ниже.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/PI0Q4izbybA?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/PI0Q4izbybA?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 11.10.2014 news BLIND GUARDIAN - первый сингл за четыре года в декабре
+
+<P>Новую музыку <STRONG>BLIND GUARDIAN</STRONG> можно будет услышать уже в декабре. 5 декабря на Nuclear Blast выйдет сингл "<STRONG>Twilight of the Gods</STRONG>". Полноформатный альбом последует в январе. Digi будет укомплектован двумя концертными треками.</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.10/27378.png" width=410 height=410></P>
+Автор: Vit Belov
+
+### 06.07.2016 news BLIND GUARDIAN сыграют &quot;Imaginations from the Other Side&quot;
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Стало известно, что во время тура по США вместе с <strong>GRAVE DIGGER BLIND GUARDIAN</strong> будут исполнять легендарный альбом "<strong>Imaginations from the Other Side</strong>" целиком. Об этом сообщил организатор феста <strong>ProgPower USA</strong>, на котором состоится одно из выступлений.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="401" src="/images/news_rus/2016.07/29542.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 06.07.2016 news BLIND GUARDIAN to play &quot;Imaginations from the Other Side&quot;
+
+<p>It became known that during the U.S. tour with <strong>GRAVE DIGGER BLIND GUARDIAN</strong> will be performing the legendary album "<strong>Imaginations from the Other Side</strong>" as its entiry. This was announced by the organizer of the<strong> ProgPower USA</strong> fest, which will be one of the performances.</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="401" src="/images/news_rus/2016.07/29542.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### творчество Blind Guardian

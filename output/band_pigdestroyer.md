@@ -60,6 +60,15 @@ Crazy deathgrind
 
 * C группой "Agoraphobic Nosebleed" J.R.Hayes, Scott Hull
 
+## Публикации
+
+### 20.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; анонсирует новых участников
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22713.png" width=300 height=165>Фестиваль&nbsp;&nbsp;<STRONG>BRUTAL ASSAULT</STRONG> опубликовал имена ещё нескольких участников, которые выступят на его сцене в 2012 году. Ими стали американцы<STRONG> DARKEST HOUR</STRONG>, бельгийские дет/грайндеры <STRONG>ABORTED</STRONG> и американские метал-панки <STRONG>TOXIC HOLOCAUST</STRONG>.</P>
+<P>А так же, ВИА <STRONG>SIX FEET UNDER</STRONG> под руководством Криса Барнса (<STRONG>Chris Barnes</STRONG>), легенды хардкора из Нью Йорка <STRONG>SICK OF IT ALL</STRONG> и титаны грайнкора из американского штата Вирджиния <STRONG>PIG DESTROYER</STRONG>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

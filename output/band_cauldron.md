@@ -20,6 +20,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.05.2009 reviews CAULDRON не впишутся в новую волну
+
+<P>Знаменитый английский лэйбл Earache Records продолжает работать. Здесь «работать» не в смысле он до сих пор открыт, долгих ему лет, а в смысле пытается вновь совершить прорыв на верхушку табели о рангах.</P>
+<P>Несколько лет назад бесславно закончился эксперимент с «трудными» стилями с подлэйблом Elitist, сейчас Earache начинают разгонять новую волну ‘британского heavy-metal’. Несколько недель назад на Союзе вышел даже сборник этой новой волны, здесь мы имеем дело с канадской группой CAULDRON, которая, по мнению Earache, должна стать одной из зачинателей этой волны. Что ж, я не думаю, что эта идея поможет Earache. Возможно, и не мешало бы поддержать молодых ребят, которые любят старую музыку, но CAULDRON помогать не стоило, а уж тем более рассчитывать на какую-то отдачу. Оформлена “Chained To The Nite” как надо. Обнажённая женщина в цепях, трио музыкантов в прикольных обносках, плакат вместо буклета… В остальном же CAULDRON уступают даже забытым группам из 80-х, которые иногда проникают в нашу дистрибуцию. Вялая, совершенно пустая музыка с дурным вокалом, который больше подошёл бы ансамблю, выступающему на выпускном, а не heavy-metal самородку, который, возможно, и не умеет петь, но старается продемонстрировать всем, что ему на это наплевать. Здесь человек не умеет петь, но старательно озвучивает свои серые песни. Иногда выделяется гитарист со своими соло, но и тут дух у вас вряд ли захватит.</P>
+<P>CAULDRON не удаётся ни воссоздать атмосферу того металла, ни показать чего-то нового. Пустая пластинка, которую даже нельзя посоветовать ностальгирующим по тем временам.</P>
+Автор: Vit Belov
+
+### 28.01.2010 news Новое видео CAULDRON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип<STRONG> CAULDRON</STRONG> <STRONG>"Chained Up In Chains" </STRONG>можно посмотреть ниже. Видео было отснято во время последнего тура группы <STRONG>"Waste The World".</STRONG></FONT></P>
+<P><STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT></STRONG>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/QeJAZGLayBA&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/QeJAZGLayBA&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.11.2010 news Обложка нового CAULDRON
+
+<P><STRONG>CAULDRON</STRONG> закончили запись второго альбома <STRONG>"Burning Fortune"</STRONG>, который выйдет 14 февраля на <STRONG>Earache Records</STRONG>. Альбом записан в <STRONG>Rogue Studios</STRONG>&nbsp;в Торонто. На обложке вновь будет присутствовать английская модель <STRONG>Lora Leigh.</STRONG></P>
+<P><center><IMG height=400 src="/images/news_rus/2010.11/17579.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

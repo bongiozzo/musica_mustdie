@@ -16,6 +16,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.07.2016 news ANCIIENTS представили первую музыку с второго альбома
+
+<p>Дебютный сингл <strong>"Following The Voice"</strong> с второго альбома <strong>ANCIIENTS "Voice Of The Void</strong>" можно послушать в клипе ниже. Новая работа прогрессивщиков выйдет 14 октября на <strong>Season Of Mist</strong>.</p><p>Трек лист:</p><p>1. Following the Voice<br>2. Buried in Sand<br>3. Worshipper<br>4. Pentacle<br>5. Descending<br>6. Ibex Eye<br>7. My Home, My Gallows<br>8. Serpents<br>9. Incantations</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29702.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/On2ZX_CxGGA" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 30.07.2016 news ANCIIENTS premiere first track and announce details of new studio album
+
+<p><strong>ANCIIENTS </strong>are now presenting the first smoking hot track from their highly anticipated new album <strong>'Voice of the Void'</strong>. The Canadian heavy rockers will release this follow-up to their acclaimed debut full-length <strong>'Heart of Oak'</strong> (2013) on October 14.</p><p>Guitarist and vocalist <strong>Kenneth "Kenny" Paul Cook</strong> comments on behalf of the band: "<em>The new ANCIIENTS record is titled 'Voice of the Void' and somewhat of a step in a new direction lyrically and musically. I think, it still has the sound we developed on 'Heart of Oak', but the riffs are a lot heavier at times and the lyrics are far more cynical and dark. With all of the chaos happening on this planet as of late it seems as though things will get worse before they get better, and that kind of embodies the theme of this album as a whole. Jessie Gander did a great job capturing the music and his production far surpassed our expectations. The first new song out, 'Following the Voice' is about struggles with inner demons that many people face. Knowing what the right thing to do is, but not listening to your conscience and choosing the path that is best for yourself, but harms others in process. It is about following the evil voice in your head as opposed to the voice of reason</em>."</p><p>'Voice of the Void' was produced under the direction of Jesse Gander at Rain City Recordings in the bands' hometown of Vancouver, Canada. Artwork and track-list are now revealed below.</p><p>Track-list:</p><p>1. Following the Voice<br>2. Buried in Sand<br>3. Worshipper<br>4. Pentacle<br>5. Descending<br>6. Ibex Eye<br>7. My Home, My Gallows<br>8. Serpents<br>9. Incantations</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29702.jpg" border="0"></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/On2ZX_CxGGA" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 23.09.2016 news Новый сингл ANCIIENTS с выходящего альбома
+
+<p>14 октября выходит новый альбом<strong> ANCIIENTS "Voice Of The Void"</strong>. Новым синглом с этой работы стал трек "<strong>Ibex Eye</strong>", который можно послушать ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/dFJaeVS8L00" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 23.09.2016 news ANCIIENTS stream third new song
+
+<p><strong>ANCIIENTS</strong> are now releasing the third mind-blowing track taken from their highly anticipated new album <strong>'Voice of the Void'</strong>. The Canadian heavy rockers will unleash the follow-up to their acclaimed debut full-length <strong>'Heart of Oak'</strong> (2013) on October 14.</p><p>The song "<strong>Ibex Eye</strong>" is exclusively streaming below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/dFJaeVS8L00" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

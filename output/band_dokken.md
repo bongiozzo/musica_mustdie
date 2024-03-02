@@ -153,6 +153,113 @@
 * C группой "Dio" Jeff Pilson
 * C группой "War and Peace" Jeff Pilson
 
+## Публикации
+
+### 06.03.2000 news 
+
+<p>Dokken выпускают новый концертник "Live from the Sun" в Японии 8 марта.</p>
+
+Автор: Vit Belov
+
+### 13.03.2001 news Война и Мир...
+
+<P>Сольный проект басиста DOKKEN - Jeff Pilson "WAR & PEACE" в конце Апреля выпускает новый альбом символично названный "Light At The End Of The Tunnel". Материал состоит из песен неиспользованных для Dokken и других ранее незавершенных треков. В записи помогали барабанщик SCORPIONS - James Kottak. На двух треках играл Reb Beach, на одном - John Norum и Paul Gilbert. Также отметились Richie Kotzen, Jon Levin (WARLOCK). Сам Pilson исполнил соло в 'Playing God Again'.</P>
+Автор: Yermola
+
+### 13.03.2001 news WAR &amp; PEACE - Tunnel Vision!
+
+<p>DOKKEN bassist Jeff Pilson, who fronted his own band, WAR & PEACE, in the late '80s, is revisiting that band again with a new album, Light At The End Of The Tunnel, due out in late April/May. The material consists of some songs intended for but not used by Dokken, songs Pilson had never finished, and others he did that appeared elsewhere. Pilson, who sings and plays all the basic tracks on it, gets assistance from SCORPIONS drummer James Kottak on all but two of the ten songs, and from a lineup of solo-contributing guitarists. Reb Beach plays on two tracks, John Norum plays on one as does Paul Gilbert, who recorded his performance in Japan and air expressed it to Pilson. Gilbert's MR. BIG replacement Richie Kotzen plays on two cuts, and Jon Levin, the WARLOCK guitarist-turned-lawyer who actually did one fill-in date with Dokken, is also heard on one track. Pilson himself contributes the solo to 'Playing God Again'. "Best solo I've ever done," he says proudly.</p>
+
+Автор: Yermola
+
+### 06.06.2001 news Новый опус от DOKKEN ...
+
+<p>Гитарист Reb Beach подтвердил что не будет участвовать в записи нового альбома "DOKKEN", а вместо этого будет работать с собственным сольником "Masquerade". Трек лист которого: 01. Dark Place 02. Masquerade 03. Ghost 04. Better Shade Of Grey 05. Bleed 06. Fanatic 07. Red 08. Sorrow Stained Eyes 09. Day Of The Eagle 10. Get Out And Walk 11. Love So True. Пока же похоже что его место займет известный нарезальщик John Norum ("EUROPE") который уже давно репетирует с Доном Доккеном...</p>
+
+Автор: Yermola
+
+### 06.06.2001 news Guitarist Reb Beach has all but confirmed ....
+
+<p>Guitarist Reb Beach has all but confirmed that he will not be appearing on the new DOKKEN studio album, work for which is scheduled to start shortly. In a posting on his web site, Reb says that he hasn't been dismissed from the band, but claims that he has not been asked to be involved in the recording process. Former EUROPE guitarist John Norum is reportedly co-writing the material for the forthcoming album with Don Dokken, and is likely to be the featured guitarist on the CD, which is tentatively due in early 2002. Meanwhile, Reb's debut solo CD, Masquerade, will released in Japan next week with the following track listing: 01. Dark Place 02. Masquerade 03. Ghost 04. Better Shade Of Grey 05. Bleed 06. Fanatic 07. Red 08. Sorrow Stained Eyes 09. Day Of The Eagle 10. Get Out And Walk 11. Love So True. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.11.2001 news DOKKEN US tour dates ...
+
+<p>The confirmed DOKKEN US tour dates are as follows:<BR><BR> Dec. 29 - Jaxx Nightclub - Springfield, VA <BR> Jan. 02 - The Station - West Warwick, RI <BR> Jan. 09 - Peabody's Downunder - Cleveland, OH <BR> Jan. 10 - The Funhouse - Lackawanna, NY <BR> Jan. 11 - Al Rosa Villa - Columbus, OH <BR> Jan. 12 - Harpo's - Detroit, MI <BR> Jan. 15 - 8 Seconds Saloon - Indianapolis, IN <BR> Jan. 17 - Sammy K's - Elgin, IL <BR> Jan. 18 - Annie's - Cincinnati, OH <BR> Jan. 19 - Mainstreets - Harrisonburg, VA <BR> Jan. 27 - The Ritz - Salt Lake City, UT</p>
+
+Автор: Yermola
+
+### 13.12.2001 news DOKKEN Announces Tour Previewing 20th Anniversary Studio Album LONG WAY HOME...
+
+<p>Longevity isn't all that’s rare in rock 'n' roll, but longevity combined with creativity is. Dokken is one of the precious few bands that has achieved this notable feat, as the California-based melodic hard-rockers embark on a month long tour in December 2001 to preview a new studio album, 'Long Way Home,' set for a February 2002 release on CMC International Records, a division of the Sanctuary Records Group.<BR><BR> Vocalist Don Dokken and drummer Mick Brown are joined by two new members, guitarist John Norum formerly of the band Europe and bass guitarist Barry Sparks. The band's namesake is boiling with excitement about the mini-tour and new LP. Norum, also played on Don Dokken's 1990 solo album 'Up From The Ashes.' Sparks has played with several legendary guitarists such as Michael Schenker, Yngwie Malmsteen, Uli Jon Roth and Vinnie Moore.<BR><BR> "We've been waiting a long time to get a new studio album together," says Dokken, who is producing the platter. "We've got some killer material. It's a true heavy rock record. We're looking forward to road testing the new material." <BR><BR> Dokken's last release was 2000's 'Live From the Sun' concert album and DVD; the DVD was a critically acclaimed award-winner thanks in large part to innovative camera and editing techniques combined with mind-bending animation effects created and produced by Don himself. 1999's 'Erase the Slate' was the group's last studio album. 'Live From the Sun' and 'Erase the Slate' are both available on CMC International. The group has released four LPs to date on CMC.<BR><BR> "I'm also excited because 2002 marks the 20th anniversary of the band. 'Breaking the Chains' was released in America in 1982," Dokken says.<BR><BR> 'Breaking the Chains' marked the beginning of Dokken's rapid rise to success. The band remains one of the finest hard-rock bands to emerge out of the 1980s. Rewarded with worldwide success, particularly in the United States, Japan and Europe, especially Germany, albums like 'Tooth and Nail,' 'Under Lock and Key' and 'Back For the Attack' have all sold in the millions. They included classic songs like "Just Got Lucky," "Alone Again," "In My Dreams," "Burning Like a Flame" and many more. Dokken’s videos were in constant MTV rotation. "Dream Warriors" was the theme song of the hit horror film "A Nightmare on Elm Street 3: Dream Warriors" and in the memorable video, Dokken confronted movie villain Freddy Krueger.<BR><BR> Dokken is justifiably proud of his band's history, but he fearlessly embraces -- and enjoys -- the creation of new music and pushing forward. He isn't content living in his musical past. <BR><BR> "I think the reason we’ve lasted 20 years is because we've always moved forward. We’ve never been happy repeating ourselves. Some people say 'Give us another "Tooth and Nail,"' but bands like Led Zeppelin and the Beatles kept evolving and the fans kept up with that growth," says Dokken’s drummer "Wild" Mick Brown. "The problem with a lot of the '80s bands is that they became stagnant by doing the same thing over and over again."<BR><BR> "We’ve had to wait a long time to release a new album, but we ended up with a lot of great songs to choose from. We've cut 12 songs. Some of the material is Beatle-esque, Euro-metal and a classic sounding Dokken ballad. We want this LP to be balanced," says Dokken. "Our best records in my opinion, like 'Under Lock and Key,' were well balanced musically"<BR><BR> The group is scheduled for a yearlong tour throughout the U.S., Europe and Asia. Dokken will return to U.S. concert stages in the spring and summer for a mammoth tour, here are the winter warm up shows:<BR><BR> Thursday, December 27th Baltimore, MD Thunder Dome<BR> Friday, December 28th Clifton Park, NY Northern Lights<BR> Saturday, December 29th W. Springfield, VA JAXX<BR> Monday, December 31st Portland, ME Asylum<BR> Wednesday, January 2nd West Warwick, RI The Station<BR> Thursday, January 3rd Allentown, PA Crocodile Rock<BR> Friday, January 4th Sea Bright, NJ Tradewinds<BR> Saturday, January 5th Wantagh, NY Mulcahy's<BR> Sunday, January 6th Hartford, CT Webster Theatre<BR> Wednesday, January 9th Cleveland, OH Peabody's<BR> Thursday, January 10th Buffalo, NY Funhouse<BR> Friday, January 11th Columbus, OH Al Rosa Villa<BR> Saturday, January 12th Royal Oak, MI Royal Oak Theatre<BR> Sunday, January 13th Ottawa, IL Dynasty<BR> Tuesday, January 15th Indianapolis, IN 8 Seconds Saloon<BR> Wednesday, January 16th Fort Wayne, IN Piere's<BR> Thursday, January 17th West Chicago, IL Synergy<BR> Friday, January 18th Cincinnati, OH Annie's<BR> Saturday, January 19th Harrisonburg, VA Mainstreets<BR> Sunday, January 20th Richmond, VA Razzles<BR> Thursday, January 24th Colorado Springs, CO The Gardens<BR> Friday, January 25th Denver, CO Ogden Theatre<BR> Sunday, January 27th Salt Lake City, UT Ritz Club<BR> Tuesday, January 29th Santa Fe, NM Camel Rock Casino<BR> Thursday, January 31st Anaheim, CA House Of Blues<BR> Friday, February 1st Las Vegas, NV House Of Blues<BR> Saturday, February 2nd Hollywood, CA House Of Blues<BR> Sunday, February 3rd Ventura, CA Ventura Theatre<BR> Monday, February 4th San Francisco, CA The Pound<BR> Wednesday, February 6th Palo Alto, CA Icon Nightclub<BR> Thursday, February 7th Sacramento, CA Roadhouse<BR> Friday, February 8th San Diego, CA Canes</p>
+
+Автор: Yermola
+
+### 13.12.2001 news Долгая дорога домой...
+
+<p>Спустя каких нибудь двадцать лет после начала трудовой деятельности, мелодичные хард-рокеры "Dokken" выпускают новый студийный альбом. 'Long Way Home' выйдет в феврале 2002 на "CMC International Records" (подразделении Sanctuary Records Group). Вокалист Don Dokken и барабанщик Mick Brown объединились с двумя новыми участниками - гитаристом John Norum (ex-EUROPE) и бассистом Barry Sparks. Norum уже играл на сольнике Don Dokken 90-го года 'Up From The Ashes.' Sparks до этого играл с несколькими легендарными гитаристами (Michael Schenker, Yngwie Malmsteen, Uli Jon Roth и Vinnie Moore). "Мы долго ждали того, чтобы сделать новый альбом вместе..." - говорит Dokken. "материал получился просто убийственный. Это настоящая хэви запись...". "2002 год будет 20-летним юбилеем для команды. 'Breaking the Chains' был выпущен в Америке в 1982 году..." - продолжает он. <BR> <BR> "Я думаю, что причина того, что мы продержались на плаву 20 лет в том, что мы всегда двигались вперед. Мы не были счастливы просто повторяя себя. Некоторые люди говорили "Дайте нам еще один "Tooth and Nail", но такие команды как, например, Led Zeppelin и Beatles заставляли фэнов расти вместе с ними." - резюмирует барабанщик "Wild" Mick Brown. "Проблема с большинством групп 80-х была в том, что они находились в застое просто повторяя одно и то же."</p>
+
+Автор: Yermola
+
+### 19.03.2002 news DOKKEN микширует “Long Way Home” ....
+
+<p>Don Dokken совместно с певцом BATON ROUGE/JOHN NORUM - Kelly Keeling и ветераном продюссером Michael Wagener (SKID ROW, HAMMERFALL, ACCEPT) сейчас в студии в Теннесси микшируют альбом "Long Way Home" для релиза на CMC International Records поздней весной. Трек-лист: <BR><BR> 01. Sunless Days<BR> 02. Magic Road<BR> 03. Little Girl<BR> 04. Heart Full of Soul (YARDBIRDS кавер)<BR> 05. Goodbye My Friend<BR> 07. You<BR> 08. Everyone Needs to Be With Someone<BR> 09. I've Found <BR></p>
+
+Автор: Yermola
+
+### 19.03.2002 news DOKKEN Mixing “Long Way Home” With MICHAEL WAGENER...
+
+<P>DOKKEN mainman Don Dokken, former BATON ROUGE/JOHN NORUM singer Kelly Keeling and veteran producer Michael Wagener (i.e. SKID ROW, HAMMERFALL, ACCEPT) are ensconced at a Tennessee studio mixing DOKKEN's forthcoming CD, entitled Long Way Home, for a late spring/early summer release through CMC International Records. Among the tracks that are tentatively scheduled to appear on the album are the following: </P></>
+<P> </P></>
+<P>01. Sunless Days </P></>
+<P>02. Magic Road </P></>
+<P>03. Little Girl </P></>
+<P>04. Heart Full of Soul (YARDBIRDS cover) </P></>
+<P>05. Goodbye My Friend </P></>
+<P>07. You </P></>
+<P>08. Everyone Needs to Be With Someone </P></>
+<P>09. I've Found </P></>
+<P> </P></>
+<P>According to Keeling, the song "I've Found" “may be my favorite song that I have written with Don. [The final] mix of it just floored me. The cellos are brilliant. I was allowed to play a classical guitar melody during the intro and mid section, along with some others I had not done so well previously that we were stuck with which kind of glued and married all the parts together. An honor since I am not really part of the band. There are no drums and we also added a proper piano part. It was a great vocal performance from Don. I don't think he has sung that well on a recording ever and it's an indication of what is to come from him in the future, brilliance. You will soon hear what I mean from this song. The song 'You' is also a monster, Michael Wagener's favorite track. It's just amazing and heavy. He is the best mixer I have worked with next to Pat Regan & Phil Kaffel.” </P></>
+
+Автор: Yermola
+
+### 03.12.2002 news L&#x2F;P Ink Deal With SPITFIRE RECORDS
+
+<p>L/P, the new group featuring former DOKKEN members George Lynch (guitar) and Jeff Pilson (bass/vocals), are about to sign a domestic deal with Spitfire Records and "we're over-the-top excited about it," Pilson wrote on his official web site. "A final release date has yet to be named, but my guess is March or April, shouldn't be any later than that. The label has been so supportive of the music and direction, and that was pretty much what made us go with them. I'm going to be working hard with them to try and incorporate as much of the Internet fan base as we can, so all of you can be active participants in the record campaign if you choose. We'd like to organize street teams, etc. in the hopes that more people will hear this than the usual release. It's funny how a lot of new heavy bands are starting to acknowledge us [DOKKEN, George, etc.] as influences, so maybe a new audience will appreciate what we do. I would be very happy if the record is made aware to anyone who will listen and they have an opportunity to judge it on its own merits. This could be an exciting year for us, and I'm hoping that everyone here can be an integral part of it. For those of you wanting to join in, get ready to start writing a lot of e-mails!" <BR><BR> In the same update on his web site, Pilson also once again addressed his decision to file a lawsuit against two of his ex-bandmates, singer/guitarist Don Dokken and drummer Mick Brown, to dissolve their musical and financial partnership.<BR><BR> "[The lawsuit] was never really intended to be a public issue, but apparently the rock press has a system for discovering any lawsuits filed which involve people in their data base," he said. "This suit is strictly a business matter, which I've been left no choice but to pursue. However this in no way affects what DOKKEN was, or what any of us have ever contributed to it. Someone on the message board posted something about how maybe we all should never have met, and it made him or her sick! I gotta say, I can relate to that! If I were to read about this kind of thing, I'd probably say, 'how pathetic!' And you know what, it IS pathetic, and unfortunate. But I will never say that I wish we were never to have become a band. Even amongst the dreadful string of memories, I still remain extremely proud of the work we did and the music we made. It is time to move on, however, and I think everyone involved owes the franchise DOKKEN a great deal of respect, and we'll all have to trust that the outcome will be positive for all parties. I'm sure it will, and I'd like nothing more than for everyone to get a clean start and their fair share of opportunities. I trust it will all be good in the end."</p>
+
+Автор: Yermola
+
+### 23.03.2003 news Джон Норум присоединился к UFO
+
+<p>UFO официально объявили, что новым гитаристом группы стал Джон Норум (DOKKEN/EUROPE). Джон заменит Майкла Шенкера, который в очередной раз покинул группу. Напомним, что Норум уже планировал присоединится к UFO в 1996.</p>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Former EUROPE&#x2F;DOKKEN Guitarist Joins UFO
+
+<p>UFO have officially recruited former EUROPE/DOKKEN guitarist John Norum as a replacement for Michael Schenker. Norum was last rumored to be possibly joining the band back in 1996 when the "Walk On Water" tour went belly-up, but now after a recent stint with DOKKEN, he finally joins the band officially.</p>
+
+Автор: Vit Belov
+
+### 25.08.2004 reviews Старость не радость
+
+<P>В далеких теперь 80-х Dokken продавали свои пластинки миллионными тиражами. Теперь их время прошло, да и музыка такая ныне непопулярна. Впрочем, это было бы полбеды, просто этой калифорнийской группе, поменявшей шведского гитариста Джона Норума (Europe) на Джона Левина, не удалось создать сильный альбом. Какие-то вымученные мелодии (разве что баллада 'Care For You" да битлоподобная - в куплете - 'Letter To Home' неплохи), уже до боли знакомые риффы, подуставший и совершенно неяркий вокал самого Дона Доккена плюс, на мой скромный взгляд, не очень удачная продюсерская работа и как-то по-детски оформленная обложка - вот минусы этого релиза. В пору господства совсем иных стилей группа, исполняющая мелодичный рок, должна сильно поднапрячься, чтобы ее новую пластинку заметили и приобрели не только фэны. Dokken этого не сделали. Альбом получился сереньким и скучноватым. Возможно, уже годы берут свое... Ни одной песни мне не запомнилось, ни одна мелодия не застряла в голове (ну если только упомянутая 'Care For You', представленная еще и в акустическом варианте). Еще странно было увидеть две песни ('Still I'm Sad' и 'I Surrender'), совпадающих по названиям с вещами сами знаете какой группы (ну те не в пример лучше). Возможно, любителям стиля и стоит ознакомиться с данной пластинкой, остальные же могут не тратить свое время на прослушивание.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 01.11.2006 news DOKKEN на Frontiers
+
+<P><STRONG>Frontiers</STRONG> объявили о подписании контракта с <STRONG>DOKKEN</STRONG>, чей новый альбом <STRONG>"Lightning Strikes Again" </STRONG>выйдет в 2007 году.</P>
+Автор: Vit Belov
+
+### 23.02.2010 news DOKKEN воссоединяются с Lynch
+
+<P>В недавнем&nbsp;интервью гитарист <STRONG>George Lynch</STRONG> сообщил, что сочиняет материал для нового альбома <STRONG>DOKKEN</STRONG>, с которыми он воссоединится в ближайшее время. Группа должна вернуться в классическом составе 80-х годов: <STRONG>Don Dokken</STRONG> (вокал), <STRONG>George Lynch</STRONG> (гитара), <STRONG>Jeff Pilson</STRONG> (бас) и <STRONG>Mick Brown</STRONG> (барабаны).</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### DOKKEN: а нужно ли оно вам (концерт в Москве)?

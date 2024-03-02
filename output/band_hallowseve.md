@@ -55,6 +55,18 @@ Tym Helton - Drums On *
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.08.2011 news Новая песня HALLOWS EVE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню воссоединившихся трешеров <STRONG>HALLOW'S EVE</STRONG> <STRONG>"Lazarus Eyes" </STRONG>можно послушать ниже. Песня попадёт на новый EP группы, который выйдет на Халловин в этом году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><img style="visibility:hidden;width:0px;height:0px;" border=0 width=0 height=0 src="http://c.gigcount.com/wildfire/IMP/CXNID=2000002.11NXC/bT*xJmx*PTEzMTI4NzMyMDU*ODQmcHQ9MTMxMjg3MzIwODIwMyZwPTI3MDgxJmQ9dHVuZVdpZGdldCZnPTImb2Y9MA==.gif" />
+<object classid="clsid:D27CDB6E-AE6D-11cf-96B8-444553540000" width="434" height="415"><param name="movie" value="http://cache.reverbnation.com/widgets/swf/19/tuneWidget.swf?twID=artist_771952&shuffle=&autoPlay=false&blogBuzz="></param><param name="allowscriptaccess" value="always"></param><param name="allowNetworking" value="all"></param><param name="allowfullscreen" value="true"></param><param name="wmode" value="opaque"></param><param name="quality" value="best"></param><embed src="http://cache.reverbnation.com/widgets/swf/19/tuneWidget.swf?twID=artist_771952&shuffle=&autoPlay=false&blogBuzz=" type="application/x-shockwave-flash" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" wmode="opaque" quality="best" width="434" height="415" FlashVars="gig_lt=1312873205484&gig_pt=1312873208203&gig_g=2"></embed> <param name="FlashVars" value="gig_lt=1312873205484&gig_pt=1312873208203&gig_g=2" /></object><br/><a href="http://www.reverbnation.com/gigfinder" onclick="javascript:window.location.href=&quot;http://www.reverbnation.com/c./a4/19/771952/Artist/0/User/link&quot;; return false;"><img alt="Land Gigs" border="0" height="19" src="http://c2sostatic.reverbnation.com/widgets/content/19/footer.png" width="434" /></a>
+<img style="visibility:hidden;width:0px;height:0px;" border=0 width=0 height=0 src="http://www.reverbnation.com/widgets/trk/19/artist_771952//t.gif" />
+</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

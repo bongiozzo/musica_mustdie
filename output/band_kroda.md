@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2007 news KRODA переиздала дебют
+
+<P><IMG height=292 alt="" hspace=0 src="/images/news_rus/2007.11/11975.jpg" width=400 align=right border=5>Украинская pagan folk metal группа&nbsp;<STRONG>KRODA</STRONG> переиздала свой первый альбом, под названием "<STRONG>Поплач Мені, Річко</STRONG>..." (Cry to me river) в виде digi pack. Диск переиздан немецким лейблом <STRONG>Hammermark Art</STRONG> (<A href="http://www.hammermark.de/">http://www.hammermark.de/</A>) В качестве бонуса диск содержит песню "<STRONG>Борвій</STRONG>", которая была записана группой в 2006 году, и постер.</P>
+<P>Также в 2008 году, в честь 5-летия группы, музыканты планируют издать эксклюзивный диск, содержащий видео-интервью. Любой желающий может задать свой вопрос участникам группы по этому адресу <A href="http://kroda.com.ua/quest.htm">http://kroda.com.ua/quest.htm</A> </P>
+Автор: Yagova
+
+
 ## Обсуждения
 
 

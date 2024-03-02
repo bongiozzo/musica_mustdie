@@ -30,6 +30,16 @@ Kobbergaard (K. Haugen) - Guitars (ex-Winds (Nor))
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.08.2005 news Новый мини-альбом AGE OF SILENCE
+
+<P>Звездная норвежская формация <STRONG>AGE OF SILENCE</STRONG>, в составе которой <STRONG>Lazare</STRONG> (<B>BORKNAGAR</B>, <B>SOLEFALD</B>), <B>Hellhammer</B> (<B>WINDS</B>, <B>ARCTURUS</B>, <B>MAYHEM</B>)&nbsp;и <B>Eikind</B> (<B>KHOLD</B>, <B>TULUS</B>), записали новый мини-альбом под названием <B>"Complications – Trilogy of Intricacy"</B>, выход которого запланирован 11 октября на <B>The End Records</B>. В него войдут следующие вещи:</P>
+<P>1. <B>The Idea of Independence and the Reason Why it’s Austere</B><BR>2. <B>Mr. M, Man of Muzak</B><BR>3. <B>Vouchers, Coupons and the End of a Shopping Session</B> </P>
+<P>&nbsp;</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

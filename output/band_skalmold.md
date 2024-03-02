@@ -24,6 +24,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.2016 news Новое лирик-видео SKALMOLD
+
+<p>Лирик-видео на первый сингл&nbsp;"<strong>Nidavellir</strong>"&nbsp;с четвёртого альбома исландских викингов <strong>SKALMOLD "Vogguvisur Yggdrasils"</strong> можно посмотреть ниже. Альбом выйдет 30 сентября на<strong> Napalm Records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/fzRy-H_HIF8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 18.08.2016 news SKALMOLD: New lyric video
+
+<p>A lyric video for the first single, "<strong>Nidavellir</strong>" from the fourth album of Icelandic Viking <strong>SKALMOLD "Vogguvisur Yggdrasils"</strong> can be viewed below. The album will be released September 30th on <strong>Napalm Records.</strong></p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/fzRy-H_HIF8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

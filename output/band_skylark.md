@@ -191,6 +191,70 @@ Eddy Antonini - Keyboards, Piano, Harpsichord
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.03.2001 reviews Долгожданная порция симфонического волшебного power metal
+
+<p>Долгожданная порция симфонического волшебного power metal. Возвращение итальянских богов симфонического power-speed metal с новой работой. Вторая часть их современной эпической истории, показывающая нам разницу между раем и адом. На альбоме отметились такие известные личности как Vic Mazzoni (Projecto), Rob Tyrant (Labyrinth), Folco Orlandini (Mesmerise). Ну что можно сказать?... Классический альбом жаворонка! Ни больше, ни меньше! Музыка на этом альбоме мало отличается от того, что было раньше. Обильные клавишные поливы Eddy Antonini в сочетании с гитарными переливами Nico Tordini и пронзительным высоким вокалом Fabio Dozzo. Глухой звук ударных уже не удивляет. Похоже это фирменный знак группы. Музыка, в целом, довольно предсказуемая, но безумно интересная и захватывающая. Мощная, мелодичная и честная музыка. Быстрый скоростной материал с отдельными тихими медленными отступлениями. Настоящие любители подобной музыки просто обязаны приобрести этот альбом. Этот альбом представляет лучшее, что группа выпустила до настоящего времени. А обещает она еще более лучший материал уже к концу 2001 года.</p>
+
+Автор: Dimas
+
+### 13.03.2001 reviews Long-awaited portion symphonic magic power metal
+
+<p>Long-awaited portion symphonic magic power metal. Returning of the italian gods symphonic power-speed metal with new activity. The second part by their by modern epic of a history demonstrating to us a difference between paradise and a hell. On an album such celebrated personality as Vic Mazzoni (Projecto), Rob Tyrant (Labyrinth), Folco Orlandini (Mesmerise) were marked. Well what is possible to say?... A classic album of a Skylark! Neither it is more, nor it is less! Music on this album differs a little that was earlier. Copious keyboard waterings Eddy Antonini in combination to guitar overflows Nico Tordini and shrill high вокалом Fabio Dozzo. The dead note impact any more does not surprise. Similar it is the logo of group. Music, as a whole, rather predicted, but madly interesting and fascinating. Potent, melodious and honest music. A fast fast-track stuff with separate quiet sluggish departures. The present fans of similar music are simplly obliged to gain this album. This album introduces best, that the group has manufactured till now. And she promises the even more best stuff already to the end of 2001.</p>
+
+Автор: Dimas
+
+### 15.04.2001 news Жаворонки на проводе
+
+<p> Итальянские симфо-пауэрщики SKYLARK собираются реализовать свой новый альбом "The Princess' Day" в октябре-ноябре сего года. А вот как будет выглядеть трек-лист: "Intro", "The Princess' Day", "I Will Cry Tonight", "Journey Through the Fire", "Another Life", "Rufus" (Intro), "Rufus" (перезаписанная версия песни с сольника Эдди Антонини), "The Tragedy", "White Warrior", "Outro". В качестве бонуса предполагается "Princess Of The Snow" в оркестровой обработке. Работой над обложкой занимался Luis Royo.</p>
+<p></p>
+
+Автор: Helloween
+
+### 17.06.2001 news Жаворонки на проводе -2
+
+<p> Определена дата выхода нового альбома года назначена дата выхода нового альбома итальянских симфо-пауэрщиков SKYLARK под названием "The Princess' Day". Это 29 октября 2001. Бум ждать…</p>
+
+Автор: Helloween
+
+### 11.02.2002 reviews День принцессы
+
+<p>День принцессы. Последняя часть концептуального цикла. Что он несет? А несет он с собой сплошные разочарования. Был обещан материал который превзойдет все предыдущие творения группы. А что имеем? Ну, во-первых, почему группа никак не хочет учитывать все свои предыдущие студийные ошибки? Почему такая неровная запись? По-прежнему, ритм-гитары и клавиши провалены, их забивает вокал и органные клавиши с соло-гитарой. Да и вообще, такое впечатление, что материал почти и не подвергался какому-либо сведению-микшированию. Ну а во-вторых, сам материал не блещет хитами и ярчайшими моментами. Ровный материал с оттенками барокко и легкой прогрессивной правкой, а также характерными гитарами, изредка, весьма в тему использование женского вокала. Хороший альбом с мелодичной скоростной power музыкой, но... Гимновая основа песен, блестящая игра Антонини на клавишных инструментах, интересные соло при немного сероватой музыке в целом. Несмотря на все это, рекомендую ознакомиться с этим альбомом, содержащим немало совершенно удачных песен (равно как и проходных). Кстати, при прослушивании альбома, почему-то все время вспоминается российская команда ЭПИДЕМИЯ. Есть какая-то схожесть между этими группами, хотя последний материал нашей команды более радующий, чем этот альбом. Хороший альбом, но проигрывающий по сравнению с предыдущим, потому и несколько разочаровывающий. Но многим, уверен, понравится.</p>
+
+Автор: Dimas
+
+### 06.02.2004 news Skylark - новый альбом на новом лейбле
+
+<P>Уважаемая итальянская спид-павер команда Skylark будет теперь иметь дело с лейблом Scarlet Records. Уже готов очередной альбом "Wings", он был записан в Нью-Йорке, в студии Sterling Sound с продюсером Джорджем Марино. Релиз намечен на май 2004 года.</P>
+Автор: Morsus
+
+### 06.02.2004 news Skylark - new label and new album
+
+<P>Italian power-speed metal band Skylark inked a deal with Scarlet! Skylark next album "Wings" is now ready and will be released in May 2004. Mastered at the famous Sterling Sound Studio (New York) with George Marino.</P>
+Автор: Morsus
+
+### 12.03.2004 news SKYLARK выйдет в мае
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.03/6199.jpg" width=300 align="left" border=0>Новый альбом <B>SKYLARK 'Wings'</B> выйдет в мае на <B>Scarlet</B>. Мастеринг был проведён <B>George Marino (IRON MAIDEN, METALLICA, BON JOVI)</B>. Трэк-лист:</P>
+<P>01. <B>Rainbow in the Dark</B><BR>02. <B>Summer of 2001</B><BR>03. <B>Another Reason to Believe</B><BR>04. <B>Belzebu 2</B><BR>05. <B>Faded Fantasy</B><BR>06. <B>Last Ride</B><BR>07. <B>A Stupid Song</B><BR>08. <B>When Love and Hate Collide</B></P>
+<P>Последняя песня - это кавер <B>DEF LEPPARD</B>, которые исполняет новая вокалистка <B>Klara</B>.</P>
+Автор: Vit Belov
+
+### 15.12.2004 news SKYLARK выпускают сборник
+
+<P>Компиляция от <STRONG>SKYLARK 'In The Heart Of The Princess'</STRONG> выйдет в феврале 2005 года на&nbsp;<STRONG>Scarlet</STRONG>. В честь десятилетнего юбилея на 2CD этой пластинки войдут песни, выбранные японскими фэнами группы, а также две новых композиции: <STRONG>'Mt. Fuji'</STRONG> и <STRONG>'Last Battle'</STRONG> и три ремэйка <STRONG>'Little Girl'</STRONG>, <STRONG>'Dream'</STRONG> и <STRONG>'The Princess Day'</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.02.2005 reviews Heavy-metal полуфабрикат
+
+<P>Очень любят группу SKYLARK у нас в стране. К чему бы это? Я не знаю. Eddy Antonini – клавишник и композитор и остальное его не волнует. Слышал я совсем первые альбомы, там вокалист так безбожно кощунствовал, что хотелось сразу выключить проигрыватель. Сегодня с певцом вроде всё наладилось, более того появилась симпатичная девушка-вокалистка, которая не портит картины. Очередной подвох подготовила гитара, которая, к несчастью для Eddy, просто необходима в heavy-metal, который пытается играть SKYLARK. Fabrizio Romani стесняется своего мастерства и не настаивает, чтобы его инструмент был хоть сколько-нибудь слышен.</P>
+<P>На альбоме ‘Wings’ слышна только незатейливая ритм-секция и, конечно же, клавишные. Попадаются неплохие мелодии, но встречаются и откровенно смешные, по своей наивности, «боевики», типа Belzebu 2, где этот Бельзебуб смеётся, как параноик, а вступление напоминают песню STRATOVARIUS.</P>
+<P>Что ж, народная любовь – это тайна. Можно только сказать, что этот альбом, который можно назвать heavy-metal полуфабрикатом, понравится любителям неоклассического наивного и пластмассового металла.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

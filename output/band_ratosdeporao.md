@@ -138,6 +138,19 @@ Recorded At Be Bop Sound Studio,Brazil.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.09.2013 news Пиво имени вокалиста RATOS DE PORAO
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бразильская компания <A href="http://www.dortmund.com.br/">Dortmund Bier</A>&nbsp;анонсировала выпуск пива имени <STRONG>Joao Gordo</STRONG>, вокалиста культовой группы <STRONG>RATOS DE PORAO</STRONG>!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пиво, носящее полное название <STRONG>Joao Gordo Hefe Weizen</STRONG>, впервые&nbsp;представят на фестивале <A href="http://www.wikibierfestival.com.br/">Wikibier</A>, который состоится 12&nbsp;октября&nbsp;в бразильском городе Curitiba.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пшеничное пиво с 5% спирта, будет разливаться в бутылки ёмкостью 600 мл.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.09/26168.jpg" width=363 height=372> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

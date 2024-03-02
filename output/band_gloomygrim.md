@@ -56,6 +56,42 @@ gothic black
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.08.2001 news Вскоре выйдет новый альбом Gloomy Grim
+
+<p> Новый альбом Gloomy Grim под названием "Written In Blood" выйдет 11-го сентября. Затем состоится тур по Франции совместно с французами Misanthory и финнами Yearning.</p>
+
+Автор: Morsus
+
+### 14.08.2001 news Gloomy Grim&#39;s new album will be out soon
+
+<p> Gloomy Grim's new album titled "Written In Blood" will come out 11th of September. After that they do a tour in France with Misanthory (France) and Yearning (Finland).</p>
+
+Автор: Morsus
+
+### 15.10.2001 news GLOOMY GRIM &amp; YEARNING (FIN) will tour in France ...
+
+<p>GLOOMY GRIM & YEARNING (FIN) will tour in France with MISANTHROPE (FRA) during October '01. The dates are following: <br> 18.10.01 Dijon - La vapeur<br> 19.10.01 Limoges - C.C. John Lennon<br> 20.10.01 Montpellier - Rock store<br> 23.10.01 Nancy - Le Terminal Export<br> 24.10.01 Clermont Ferrand - La Cooperative de Mai<br> 25.10.01 Bordeaux - Le Koslow<br> 26.10.01 Poitier - Benassay<br> 27.10.01 Paris - Elysee Montmartre<br> 28.10.01 Lille - Le Splendid</p>
+
+Автор: Yermola
+
+### 31.05.2016 news GLOOMY GRIM выпускают новый альбом
+
+<p>Шестой альбом финнов <strong>GLOOMY GRIM "The Age Of Aquarius"</strong> выходит 6 июня на <strong>Satanath Records/Murdher Records</strong>. Новая работа будет содержать в себе элементы всех предыдущих альбомов группы, но в более тяжёлом и злом ключе.</p><p>Трек-лист:</p><p><strong>“The Rise Of The Great Beast”<br>“Germination”<br>“A Lady In White”<br>“Beyond The Hate”<br>“One Night I Heard A Scream”<br>“The Shameful Kiss”<br>“The Mist”<br>“Time”<br>“Light Of Lucifer Shine On Me”<br>“Trapped In Eternal Darkness”</strong></p><p>&nbsp;<center><img width="640" height="427" src="/images/news_rus/2016.05/29225.jpg" border="0"></p><p>&nbsp;<center><img width="640" height="640" src="/images/news_rus/2016.05/29226.jpg" border="0"></p><p><strong>"Germination":</strong></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/lEHX-wNiiPY" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 31.05.2016 news GLOOMY GRIM will release new album
+
+<p>The sixth album of the Finns <strong>GLOOMY GRIM "The Age Of Aquarius"</strong> comes out June 6 on <strong>Satanath Records/Murdher Records</strong>. The new work will contain elements of all previous albums, but more heavy and evil.</p><p>Track list:</p><p><strong>“The Rise Of The Great Beast”<br>“Germination”<br>“A Lady In White”<br>“Beyond The Hate”<br>“One Night I Heard A Scream”<br>“The Shameful Kiss”<br>“The Mist”<br>“Time”<br>“Light Of Lucifer Shine On Me”<br>“Trapped In Eternal Darkness”</strong></p><p>&nbsp;<center><img width="640" height="427" src="/images/news_rus/2016.05/29225.jpg" border="0"><p></p><p>&nbsp;<center><img width="640" height="640" src="/images/news_rus/2016.05/29226.jpg" border="0"><p></p><p><strong>"Germination":</strong></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/lEHX-wNiiPY" frameborder="0" allowfullscreen=""></iframe><p></p></center></center></center>
+Автор: Vit Belov
+
+### 02.10.2016 reviews Для GLOOMY GRIM места в Европе не нашлось
+
+<p>Финская symphonic black metal группа GLOOMY GRIM в памяти меломанов со стажем крепко связана с культовым французским лэйблом Holy Records. Эта контора открыла миру SEPTIC FLESH, NIGHTFALL, MISANTHROPE, ORPHANED LAND и многие другие коллективы, отличающиеся нестандартным подходом к сочинению металического материала.</p><p>GLOOMY GRIM не были ведущим коллективом лэйбла, но своё место заслужили по праву. Хотя их творчество и относят к symphonic black metal, в нём также было достаточно нестандартных ходов и атмосферных находок. Нельзя было вот так сразу сесть, включить и полюбить эту группу. К ней надо было попривыкнуть, но если это удавалось сделать, финны попадали в список фаворитов металхэда. К сожалению, после выпуска последнего альбома для Holy Records “The Grand Hammering” GLOOMY GRIM пропали с наших радаров. Последний до этого года альбом black metal'истов «Under The Spell Of The Unlight” вышел в 2008 году на британском значке Anticulture Records. И вот совершенно без помпы и излишнего официоза GLOOMY GRIM объявились на отечественном лэйбле Sathanath Records, где в начале лета вышел новейший альбом «The Age Of Aquarius”. Без всякого пренебрежения к отечественному плодовитому лэйблу отмечу, что выбор значка для GLOOMY GRIM вызывает недоумение. Плюс ещё сообщается, что диск лимитирован пятьюстами копиями.</p><p>Возможно, GLOOMY GRIM сильно потеряли в статусе в последние годы, или значимость ныне практически умершего лэйбла Holy Records в нашей стране сильно завышена. Состав у финнов сильно не менялся за последние 10 лет, видимо, эксперименты на поздем творчестве сильно сказались на популярности GLOOMY GRIM. Новый альбом «The Age Of Auarius” представляет группу совсем с другой стороны. Теперь, думается, Holy Records не взялись бы за издание этого материала. Новая музыка финнов практически ничем не напоминает раннее творчество. Это symphonic black metal, но в нём не осталось места экспериментам. Забавно, но теперь GLOOMY GRIM представляют более профессиональный и отточенный материал. Это настоящий тяжёлый black metal с клавишами, которым отведена одна единственная роль, подчёркивать гитары. Так играли DIMMU BORGIR, пока не освоили компьютер с симфоническими программами — эмуляторами. Диск слушается великолепно, он тяжёлый, мелодичный и злой. Это то, что ждут поклонники тяжёлой музыки от sympho black metal. В этой фразе прошу обратить внимание на слово «тяжёлой».</p><p>Отличное возвращение. Да, GLOOMY GRIM мы похоже потеряли, но получили отличную группу в уже пропащем стиле тяжёлой музыки. В Европе, которая чуть ли не ежедневно предлагала нам sympho black metal пачками, теперь такое играют только неудачники, которых в России примут с распростёртыми объятиями.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

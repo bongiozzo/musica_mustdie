@@ -71,6 +71,26 @@ gemastert, mit Erfolg
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.01.2004 reviews Первый диск по лицензии Sanctuary или немецкий Boney Nem?
+
+<P>Данный диск интересен, прежде всего тем, что это первая пластинка, изданная в России по лицензии <B>Sanctuary Records</B>. Немецкий major не заключал никаких контрактов с лэйблами в нашей стране (в состав <B>Sanctuary</B> входит <B>Noise records</B>), и тут вдруг такой релиз. Не <B>IRON SAVIOR</B>, не <B>GAMMA RAY</B>, а <B>KNORKATOR</B>... К сожалению, я не обладаю информацией - разовая это акция или нет. Скорее всего, <B>Irond</B> и сами ещё не знают. Наведение мостов с такой конторой вещь хорошая, можно и подобный диск выпустить. <B>KNORKATOR</B> выбиваются из общего ряда, производимой <B>Irond</B> продукции. Это не готика, и не металл. Провокационная немецкоязычная лирика на фоне мелодичного industrial с добавлением забавных каверов на хиты мировой музыки (в данном случае - это <B>AC/DC</B> и <B>Boney M</B>). Насколько тексты смешны, могут судить только носители языка, к таковым я не отношусь. Музыка же, в данном случае, является лишь броским оформлением к этим текстам. Записано всё профессионально, но, в общем-то, это продукт только для внутреннего немецкого использования. </P>
+Автор: Vit Belov
+
+### 18.10.2005 news KNORKATOR на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкие извращенцы <STRONG>KNORKATOR</STRONG> подписались на<STRONG> Nuclear Blast</STRONG>. Первым их релизом станет концертноей CD/DVD "<STRONG>Zu Alt</STRONG>", а также сингл "<STRONG>Wir Werden</STRONG>", которые выйдут 11 ноября.</FONT></P>
+Автор: Vit Belov
+
+### 16.07.2012 news KNORKATOR: клип на песню &quot;Warum&quot;
+
+<P>Эксцентричные немцы <STRONG>KNORKATOR</STRONG> представили клип на песню <STRONG>"Warum"</STRONG>. Этот трек вошёл в прошлогодний альбом <STRONG>"Es werde Nicht"</STRONG>.</P>
+<P>В начале октября 2012 группа планирует отыграть&nbsp;концерты&nbsp;в Санкт-Петербурге и Москве.&nbsp;Совсем скоро станут известны подробности и точные даты выступлений,&nbsp;следите за обновлениями в разделе <STRONG>"Shows"</STRONG> нашего сайта: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A> </P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/AOr6XisdBlM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Oktobierfest 2012: KNORKATOR (Гер.) / TURMION KATILOT (Фин.) / HANZEL UND GRETYL (С.Ш.А.)

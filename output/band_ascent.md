@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.06.2016 news ASCENT: новый death metal с женским вокалом из России
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Дебютный альбом группы из Новосибирска<strong> ASCENT "Don't Stop When You Walk Through The Hell"</strong> выходит&nbsp;30 июня на<strong> Sliptrick</strong>. Ниже можно услышать премьеру песню с этого CD.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.06/29426.jpg" border="0"></p><p><center><img width="600" height="400" src="/images/news_rus/2016.06/29427.jpg" border="0"></p><p><center><iframe width="60%" height="166" scrolling="no" frameborder="no" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/269341787%3Fsecret_token%3Ds-HFven&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false"></iframe>
+Автор: Vit Belov
+
+### 20.06.2016 news ASCENT: New female-fronted death metal band from Russia
+
+<p>Russian female fronted death metal band <strong>ASCENT</strong> signs with <strong>Sliptrick Records</strong> for the release of new album "<strong>Don't Stop When You Walk Through The Hell</strong>"! Album will be available on June 30th!</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="600" src="/images/news_rus/2016.06/29426.jpg" border="0"><p></p><p><center><img width="600" height="400" src="/images/news_rus/2016.06/29427.jpg" border="0"><p></p><p><center><iframe width="60%" height="166" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/269341787%3Fsecret_token%3Ds-HFven&color=ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false" frameborder="no" scrolling="no"></iframe></center></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

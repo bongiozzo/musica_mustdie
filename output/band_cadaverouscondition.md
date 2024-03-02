@@ -147,6 +147,28 @@ Paul Beauchamp (Blind Cave Salamander, Nurse With Wound): saw
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.09.2011 news CADAVEROUS CONDITION выпускают новый альбом
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2011.09/20893.jpg" width=350 align=right border=0>Австрийская death/folk-metal команда <STRONG>CADAVEROUS CONDITION</STRONG> выпускает свой новый альбом "<STRONG>Burn Brightly Alone</STRONG>" 23 сентября на <STRONG>Starry</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Ghost<BR></STRONG>2. <STRONG>Driftwood<BR></STRONG>3. <STRONG>We Knew They Were Coming</STRONG><BR>4. <STRONG>We Both Go Down Together</STRONG><BR>5. <STRONG>Alone I Will Travel In Time Tonight</STRONG><BR>6. <STRONG>Wicklow Nightfall</STRONG><BR>7. <STRONG>Use Your Blood</STRONG><BR>8. <STRONG>Into My River</STRONG><BR>9. <STRONG>Order Of The Forlorn</STRONG><BR>10. <STRONG>The Clearing</STRONG><BR>11. <STRONG>The Small Roads Out Of Town</STRONG><BR>12. <STRONG>Shine Unseen, Then Disappear</STRONG><BR>13. <STRONG>Deathless</STRONG></P>
+<P>Состав:</P>
+<P><STRONG>Wolfgang Weiss</STRONG>: vocals<BR><STRONG>Rene Kramer</STRONG>: guitars<BR><STRONG>Peter Droneberger</STRONG>: bass<BR><STRONG>Paul Droneberger</STRONG>: drums</P>
+<P>В записи пластинки приняли участие следующие сессионные музыканты:</P>
+<P><STRONG>Mark Breyer</STRONG> (Skooshny, Son Of Skooshny): vocals<BR><STRONG>Tobias Nathaniel</STRONG> (The Black Heart Procession): piano<BR><STRONG>Andrew Liles</STRONG> (Current 93, Nurse With Wound): sounds<BR><STRONG>Paul Beauchamp</STRONG> (Blind Cave Salamander, Nurse With Wound): saw</P>
+<P>Мастеринг сделал знаменитый <STRONG>Mika Jussila</STRONG> в студии <STRONG>Finnvox</STRONG>.</P>
+<P>MySpace: <A href="http://www.myspace.com/cadaverouscondition">http://www.myspace.com/cadaverouscondition</A></P>
+Автор: Vit Belov
+
+### 05.10.2011 reviews Музыка с множеством поворотов
+
+<P>Австрийский коллектив CADAVEROUS CONDITION является последним оставшихся в живых представителем «волны grindcore Австрии начала 90-х годов». Не знаю, насколько тепло вы относитесь к этой «волне», но факт рождения этой группы в далёком 1990 году должен говорить в её пользу.</P>
+<P>Grindcore CADAVEROUS CONDITION уже давно не играют, и мне кажется, этот коллектив является представителем другой, более яркой, «волны» в тяжёлой музыке. Музыканты входят в интернациональный клуб коллективов, которые играют музыку для себя и не обращают внимания на мнения коммерчески настроенных лэйблов и замкнутых на стилевой ориентации любителей музыки. Последние альбомы CADAVEROUS CONDITION&nbsp; издаются для так называемых ‘open mind’ поклонников тяжёлой музыки. Каждая песня на новом альбоме “Burn Brightly Alone” не похожа на другую. Здесь и тяжёлый death-doom, и некое подобие gothic-rock, часто называемое death-rock, и элементы фолк-музыки. Слушается пластинка довольно интересно, но, к несчастью каких-то запоминающихся моментов на ней обнаружить не удалось. </P>
+<P>Не каждому нужны запоминающие моменты на прослушиваемых альбомах. Вернее так, каждому запоминается что-то своё. Благо у CADAVEROUS CONDITION огромное количество разнообразных поворотов в творчестве, быть может, за каким-то из них и находится то, что вам придётся по вкусу.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

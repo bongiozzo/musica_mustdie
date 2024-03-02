@@ -41,6 +41,26 @@ Co-produced by Tomas Pure
 * C группой "Dominion III" Elisabeth Toriser
 * C группой "Antichrisis" Elisabeth Toriser
 
+## Публикации
+
+### 21.04.2000 reviews 
+
+<p>Чистая готика в полном понимании этого слова. Рассчитана исключительно на любителя. Поёт девушка, судя по всему с живыми инструментами не густо, но мелодии, хотя и однообразно-грустные, довольно интересны. Музыка для релаксации, чего-то особо оригинального вы на этом альбоме не найдёте, но отдохнёте это точно. Всё похоже на саундтрэк к какой-нибудь компьютерной игре или научно-позновательному фильму о чём-то загадочном. Ни в какое сравнение ни с Elend, ни с Lacrimosa не идёт, но, повторюсь, любителям понравится.</p>
+
+Автор: Vit Belov
+
+### 13.06.2002 reviews What is DARGAARD?
+
+<p>This is a studio project featuring Tharen (ex-ABIGOR) and Elisabeth Toriser (who’s responsible for those bewitching vocal lines on "Nachthymnen" by… well, you knew that – ABIGOR). Honestly speaking, I expected it to be much more impressive music-wise. What is DARGAARD? Dark ambient, sometimes medieval-sounding, sometimes sort of neo-classical. Quite simplistic in terms of overall composition and arrangements, although not your poor man's ELEND. Nothing too bad, and nothing too good either. Just a pure mediocrity. I thought Tharen possesses a richer imagination. I was wrong. This is not a disappointment at all… just a pure mediocrity, as mentioned above.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 30.11.2003 news DARGAARD закончили новый альбом
+
+Австрийская darkwave группа <B>DARGAARD</B> тоже закончила запись нового альбома "<B>Rise And Fall</B>". Пластинка увидит свет в начале 2004 года на <B>NAPALM RECORDS</B>.
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

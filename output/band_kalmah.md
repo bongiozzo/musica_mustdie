@@ -128,6 +128,254 @@ Band photography: Mika Vuoto
 * C группой "Eternal Tears of Sorrow" Eternal Tears Of Sorrow
 * C группой "Poisonblack" Marco Sneck (keyboard)
 
+## Публикации
+
+### 27.10.2000 news Hовый проект
+
+<p>Kalmah - так называется новый дэт-блэковый сайд проект музыкантов из Eternal Tears of Sorrow. Их дебютный альбом "Stamplord" выйдет в середине ноября этого года, а пока ребята записывают его в Tico-Tico Studios</p>
+
+Автор: Dimas
+
+### 27.10.2000 news A new side project
+
+<p>KALMAH is the side project of ETERNAL TEARS OF SORROW guys and they play fast & technical death/black. The debut album "SWAMPLORD" will be out in mid-November 2000, recorded at TICO-TICO STUDIOS</p>
+
+Автор: Dimas
+
+### 03.01.2001 reviews Мелодичнейший death-metal
+
+<p>Мелодичнейший death-metal. При прослушивании сего шедевра на меня свалилось бесконечное множество увлекательнейших и интереснейших мелодий. Музыка для этих финских парней превыше всего. Потрясающие гитарные соло они приправляют немного клавишными. Отличное качество продюссирования. сам материал достаточно оригинален. Во всяком случае, это не ...дцатая копия Children Of Bodom, да и от шведского melodic-death-metal здесь немного. Быстро, мелодично, тяжело, виртуозно и захватывающе. Очень удачная легенда о Водяном. Безусловно достойное завершение тысячелетия. Надо быть чрезвычайно придирчивым ил просто не любить тяжелую музыку. Только в этом случае вам может не понравиться этот замечательный альбом. Огорчает лишь, как всегда, продолжительность...</p>
+
+Автор: Dimas
+
+### 30.01.2001 reviews Melodiest death-metal
+
+<p>Melodiest death-metal. At listening this masterpiece on me the infinite set of most fascinating and most interesting melodies has felled. Music for these Finnish guys is main part. Tremendous guitar solo, they season little bit by keyboard. Excellent quality of producing. Material is original enough. Anyway, it not... a copy of Children Of Bodom, and from Swedish melodic-death-metal here it is a little. Quickly, is melodious, hardly, is masterly. A very successful legend about Water. Certainly worthy end of the century. It is necessary be to extremely captious silt simply to not love heavy music. Only in this case you can't like this remarkable album. Afflicts only, as always, duration...</p>
+
+Автор: Dimas
+
+### 09.02.2001 articles Kalmah: Короли болота.
+
+<p> На смену тысячелетий нам, посредством фирм Spinefarm и "Фоно", удалось получить очередную порцию вкусного мелодичного death-black металла под названием Kalmah с альбомом "Swamplord". Группа заинтересовала и вот вашему вниманию результат проведённой работы с участием гитариста группы Антти Кокко.</p>
+<p> <img src=/images/articles_rus/2001.02/942.jpg border=1 align=left width=300 height=237 >Группа образовалась в 1993 году, когда Пекка Кокко и Петри Санкала записали первое демо. Назывались они тогда Ancestor. К 1998 году группа переименовалась в Kalmah и пополнилась Антти Кокко и Анти-Матти Талала, к тому времени на счету коллектива было 5 демо. Осенью 1999 года группа изменила стиль, death-metal был обменен на мелодичный и техничный металл.</p>
+<p> Этому куску биографии противоречит Антти Кокко:</p>
+<p> "Стиль не менялся так кардинально, как сказано в биографии. Все составляющие нашей музыки были одинаковыми с самого начала. Мы были слишком преданы нашему стилю написания музыки в течение долгого времени, быть может, поэтому мы заключили контракт с лэйблом только в 1999 году. Мы изменили стиль, но самым подходящим добавленным словом было бы атмосферный металл. В группе появился клавишник, он и отвечал за атмосферу. На нашу музыку совсем не повлияло творчество Children Of Bodom."</p>
+<p> Странно, почему-то все стали любить играть этот стиль в одно и тоже время, почти сразу после появления Children Of Bodom. Ну, в общем-то, я уже закончил изложение биографии, остаётся сказать, что после заключения договора со Spinefarm в группе появился басист Алтти Ветелайнен, известный по группе Eternal Tears Of Sorrow. А теперь вопросы и ответы.</p>
+<p> Q: Стиль, в котором Вы сейчас играете очень популярен в России. Ваш альбом был лицензирован фирмой Фоно, и Ваша музыка стала известна нашим металлхэдам. Что Вы думаете об этом? Ведь, Вы стали одной из первых групп, чей альбом доступен в России не на пиратских дисках.</p>
+<p> А.К.: Да, я знаю о лицензионном соглашении, и я считаю, что это великолепно. Я слышал, что пиратство, в общем-то, очень популярно в России, и мне кажется, это соглашение очень поможет нам в борьбе против этого. Я думаю, что Фоно делает великолепную и конструктивную работу в борьбе с пиратством.</p>
+<p> Q: В эти дни мы на нашем сайте подводим итоги уходящего года. В номинации "лучший death-metal альбом" лидируют группы, выступающие в мелодичных стилях death-metal. Deicide, Morbid Angel, Napalm Death не могут победить In Flames и Children Of Bodom. Как ты считаешь, brutal death-metal мёртв в Европе?</p>
+<p> А.К.: Я не думаю, что он мёртв, просто он всегда был на заднем плане. Я думаю, такой специфический стиль никогда не будет в мэйнстриме. Может быть, только в начале 90-х death-metal был на подъёме, но он никогда не достигал всеобщей популярности, по крайней мере, у нас в Финляндии. Может быть, brutal death-metal и не очень популярен, но он будет снова достаточна популярным в будущем.</p>
+<p> Q: Вы записывались в Tico-Tico студии вместе с Ахти Кортелайненом. Не боитесь, что он, записывая такое количество групп, запишет всех в одном ключе? Не боитесь завязнуть в болоте среди других подобных команд? Есть ли в Финляндии другие студии?</p>
+<p> А.К.: Последнее слово всегда остаётся за группой в вопросе, как звучать. Ахти только записывал, но не продюсировал. Он подавал некоторые идеи, а мы уже решали, использовать их или нет. С другой стороны я знаю некоторые команды, которые идут в Tico-Tico специально, чтобы звучать, как известная команда, например, как Sentenced. В этом контексте, действительно, слишком много групп, звучащих одинаково. У нас много студий в Финляндии, но далеко не все они подходят для металлических команд. Самые известные Tico-Tico, Astia и Finvox.</p>
+<p> Q: Ранее, был очень популярен шведский death-metal, затем melodic шведский death-metal, теперь финский melodic death-black metal. Даже команды из других стран говорят, что они играют либо шведский, либо финский металл. Многие музыканты из Ваших стран пытались объяснить, почему Ваши группы столь интересны. Может, ты попробуешь?</p>
+<p> А.К. Решение лежит где-то в области народной музыки, те музыкальные влияния, которые ты получаешь в молодости. А кто-то, например, может сказать, что это у нас в крови…</p>
+<p> Q: Swamplord - это рассказ об истории группы Kalmah. Цитата из био: "Идея названия родилась, как что-то, что описывает путь группы к её сегодняшнему состоянию." Что это значит? Вы называете себя повелителями болота?</p>
+<p> А.К.: Мы подразумеваем под Swamplord'ом нашего собственного внутреннего воина, который побуждает нас к действию. Мы живём в области Pudasjarvi, которая на 70% покрыта болотами. Я восхищаюсь этим бесплодным пейзажем, и каждый раз, когда я хочу подумать, я отправляюсь на природу. Природа - это главное, что побуждает меня писать музыку. Короли болота?? (хех) Да, ты можешь сказать, что мы короли болота.</p>
+<p> Q: Что означает Ваше название Kalmah?</p>
+<p> А.К.: Слово Kalmah было взято из карельского диалекта. Это близкий к финскому язык с множеством схожих слов. Это вымирающий язык, но есть ещё люди в Карелии, что на границе России и Финляндии, люди, которые говорят на этом языке. Некоторые из нас говорят на этом языке, и так как он умирает, мы хотим поддержать его. Это слово означает to the grave (в могилу).</p>
+<p> Q: Когда мы можем ожидать Вашего следующего альбома?</p>
+<p> А.К.: Мы планируем наш альбом на следующую осень. Мы собираемся записать его в Tico-Tico, и выйдет он в ноябре-декабре этого года. Мы уже написали несколько песен, и я могу сказать, что они очень тяжёлые.</p>
+<p> Q: Сейчас в группе присутствует Алтти Ветелайнен из Eternal Tears Of Sorrow. Что ты думаешь о последнем альбоме EtoS? Что Алтти сделал для альбома? Писал ли он музыку или тексты? Пел ли?</p>
+<p> А.К.: Алтти уже был в группе в 1994 году, потом он ушёл и вернулся совсем недавно. Я думаю, на Chaotic Beauty есть несколько хороших песен. В Kalmah все песни написал я и Пекка. Алтти просто играл свою партию баса. Санкала принял участие в арранжинге некоторых песен, но в основном всё делали я и Пекка. Я думаю, на следующем альбоме и во время концертов, мы будем использовать вокал Алтти. Он доволен своей ролью в Kalmah, потому что он может сконцентрироваться на игре на басу.</p>
+<p> Q: Ты знаешь финскую сцену лучше, чем я. Не мог бы ты рассказать, какие группы будут следующими, которые поразят нас своим melodic death-black metal по-фински? Встречаетесь ли Вы с другими бандами? Бывают ли какие-нибудь супер-концерты?</p>
+<p> А.К.: Сцена здесь весьма размазана. У нас много коллективов во всех стилях, начиная с hip-shit metal, и заканчивая black-metal. Только некоторые из этих групп совершают прорыв, например, как Bodom. Я думаю, что глава финской металл-сцены очень узка. Говоря о концертах, очень сложно выступать здесь в Финляндии, во-первых, ты должен достигнуть финских чартов, вот тогда ты получишь контракт с концертным агентством. Если же твоя запись не так успешна, ты вынужден всё организовывать сам, что достаточно сложно для многих из нас. Немного интересных концертов проходит в Хельсинки, но мы живём в 800 километрах севернее столицы и добираться туда не очень дёшево. Я думаю, в будущем у нас будет больше концертов, потому что сейчас мы ещё не очень популярны здесь.</p>
+<p> Q: Я не увидел не одной даты Ваших концертов на сайте. Будет ли тур? Не хотели бы Вы приехать в Россию?</p>
+<p> А.К.: Мы с нетерпением ждём тура, и сейчас происходит лицензирование нашего диска в Европе, после этого процесса гораздо легче будет организовать тур. Пока нет никаких планов и это плохо, потому что в моих венах уже горит предвкушение этих шоу. Конечно, если это будет возможно, мы приедем когда-нибудь в Россию.</p>
+<p> Q: Что ты знаешь о России? Знаешь какие-нибудь наши металл-банды? Кстати, скоро на Spinefarm выйдет альбом российской группы Северные Врата.</p>
+<p> А.К.: Я был в России около десяти лет назад. Мне там понравилось. Была только одна проблема, я был слишком молод, чтобы пить водку. Я совсем не знаком с российской металл-сценой. Я не слышал ни одной группы, что грустно, потому что я уверен у Вас там тоже много хороших групп. Я жду появления альбом Северных Врат, и я рад, что знаю теперь, что это такое.</p>
+<p> Q: Скажи что-нибудь для Ваших фэнов в России.</p>
+<p> А.К.: Я надеюсь, Вам понравится наша музыка и вам не будет холодно после покупки оной. И спасибо всем, кто уже приобрёл нашу пластинку. Также посещайте наш веб-сайт по адресу http://www.student.oulu.fi/~ankokko/kalmah</p>
+
+Автор: Vit Belov
+
+### 09.02.2001 articles Kalmah: Kings Of The Swamp.
+
+<p> Q: I've read your bio on site.... Why did you change your style? Melodic style is more popular now in Finland or This style is became your favourite after occurrence of Children Of Bodom.... Now There is many melodic death-black bands in Finland (EToS, Throne Of Chaos). Is it most popular style in Scandinavia?</p>
+<p><img src=/images/articles/2001.02/941.jpg border=1 align=left width=300 height=237 > Our style hasn`t changed so dramatically as it`s said in the bio. All the basics in our music have been the same from the beginning. We have been very devoted t our own style to write the music and maybe that is why we couldn`t reach the recording deal until last year. Our style changed, or maybe more appropriate word is "atmosphere" for the change, mainly because we took the keyboards in the band and it brought a whole different dimension to our music. Bodom has absolutely nothing to do with our music style. There is no certain style which is the most popular here in Scandinavia. I don`t know about Sweden but I think Norwegians are in to black metal. In Finland all kinds of metal success very well but maybe the most succeeded style right now is melodic metal.</p>
+<p> Q: This style is very popular now in Russia.... Your album was licensed from Spikefarm by Russian Label "FONO prod" and your music is known to our metal heads. Did you know about it? What do you think about license deals for Russia? You are one of the first foreign metal bands, which music becomes accessible on not pirate CD's.</p>
+<p> Yes, I know about the license deal and I think it`s really great! I`ve heard that piratism in general is popular in Russia, so I think this deal will be very helpful against that. I think FONO is doing wonderful and constructive work tearing up the piratism.</p>
+<p> Q: Now On our site we summarized results of 2000 year. There is best death-metal band IN FLAMES in the polls. MORBID ANGEL, DEICIDE, NAPALM DEATH can not fight with In Flames and Children Of Bodom (2nd place). How do you count, BRUTAL DEATH METAL is dead in Europe?</p>
+<p> I think it`s not dead but it has always been in the background, I mean, the mainstream has never followed that particular style . Maybe in the beginning of 90`s the brutal death metal was in a rising movement, but it has never reached total popularity at least here in Finland. Maybe brutal death metal is in a wave base right now but I think it will rise.</p>
+<p> Q: You recorded your CD in Tico-Tico. Don't you think that Ahti Kortelainen can do CD's of many bands with the same sound? Don't you fear, that you can stay in the swamp with some other bands? Have you some other studios in Finland?</p>
+<p> It`s always up to band what kind of sound they want. Ahti is just recording not producing. In our case Ahti just recorded and we produced. He threw some ideas now and then and we decided whether use them or not. On the other hand I know bands who have went to Tico because they have wanted to sound like some Tico band like Sentenced. In this case too the band has decided their sound despite that. We have lots of studios here in Finland but only few of them are good for metal bands. The most known and used studios are Tico-tico, Astia Studio and Finnvox.</p>
+<p> Q: Earlier, We have swedish death metal, than swedish melodic death metal, now finnish(suomi) melodic death-black metal. Even Bands from other countries say that they play Finnish or Swedish metal. Many bands from your country tried to explain, why in your country bands play so music. Can you try?</p>
+<p> It`s about folk music and the influence you get from the music when you`re young. One might say it`s because the blood inheritance...</p>
+<p> Q: Swamplord's about history Of Kalmah (band). "The idea of Swamplord as a title of our debut album stems from Pekka`s and Antti`s idea of something that describes our path from the very beginning to this moment. " (citation). What does it mean? Do You said, that you're the king of swamp now? Please tell us.</p>
+<p> We recognize the Swamplord as our inner warrior. He has pushed us on by the times our motivation has been in zero. We live in Pudasjarvi where the surface-area is 70% covered by swamp. I admire this barren scenery and every time I want to think in peace I`ll go to nature. Nature in general also inspires me to write music. King of the swamp..(heh!) Yes, you can say we`re the kings of the swamp!</p>
+<p> Q: What means your name "Kalmah"?</p>
+<p> As a word Kalmah is taken from the Karelian dialect. It is a relative language to Finnish with lots of same words. This language is fading but there is still people in the Karelian area and along the border of Finland and Russia who speak it. Some of our relatives speak it and because it`s fading language we somehow want to keep it up! It means "to the grave" in English.</p>
+<p> Q: When can we wait for your next album?</p>
+<p> The recordings of our next album will be next Autumn. We are going to record it in Tico as well and it will be released in November or December this year. We have made already couple of new songs and I can tell you that we are going kick really hard with the next record! Beware.</p>
+<p> Q: Altti Vetelainen is now in the band. What do you think about last album by Eternal Tears Of Sorrow? What did Altti do for your album? Does he write songs or lyrics or he just help you? Does he sing some songs?</p>
+<p> Altti was in the band already in 1994 and he has been in and out since that. I think Chaotic Beauty has some good songs but it`s more or less tamed for me.</p>
+<p> In Kalmah I and Pekka write all the songs, lyrics etc. Altti just plays his plank. Sankala takes part to the arranging of the songs a bit but mainly Pekka and I do everything. I think on next album and on gigs we will use Altti`s voice as a supporting vocal. He is very happy with his role in Kalmah, because he can just hit the plank and concentrate on playing.</p>
+<p> Q: Do you know your metal scene much more than I. Please, Tell me What bands will be next in your style? Do you meet with other great bands? Some super-gigs? Tell me about your scene.</p>
+<p> Well, the scene here is widespread because we have huge amount of metal bands in each category from hip-shit-metal to black metal. Only few of these bands however break trough like Bodom for example. What I mean is that the top of Finnish metal scene is very narrow. When it comes to gigs it`s really hard to have any gigs here in Finalnd because first you`ll have to reach the official Finnish charts so that you can get a booking agency. Then it`s easy. If your record is not so popular you`ll have to sell gigs all by your self and take care of all the arrangements which is a bit too heavy job for us and many other, not so famous bands, here. There is once in a while some interesting gigs going on in Helsinki especially, but we live about 800 km North from there, so it`s not cheap! I think we will have a lot of gigs in the future here because right now we aren`t so famous band here. We just made our debut, I mean.</p>
+<p> Q: I didn't see some tour dates on your page. Will tour be? Don't you want to come to The Russia?</p>
+<p> We are looking forward to a tour and right now we are waiting for a license from Europe, so it`s a lot easier to have a tour. There is no any plans for a tour right now and that`s a pity because the gig-lust is burning in my veins!!! Of course if it`s possible we will come to Russia one day!</p>
+<p> Q: What do you know about Russia? Do you know some our metal bands? By the Way soon Our band "North Gates" will be distributed in Finland by Spinefarm. They play your melodic death metal with our folk pieces.</p>
+<p> I have been to Russia about 10 years ago. I really liked it there! The only problem was that I was too young to drink the vodka! I`m not familiar at all with Russian metal scene. I cannot mention any band from there and I think that`s sad because there must be good bands too. I`m looking forward to the record of this "North Gates" , so that I can here what is it all about!</p>
+<p> Q: Tell smth for your Fans in Russia.</p>
+<p> I hope you`ll like our music and I`m sure if you get it you won`t feel cold after that !!! And thanks for those who already have bought our record. Visit also our official website http://www.student.oulu.fi/~ankokko/kalmah</p>
+
+Автор: Vit Belov
+
+### 14.07.2001 news Kalmah сняли видеоклип.
+
+<p> Вышел видеоклип Kalmah на песню "Withering Away" и уже состоялась его премьера в одной из телепередач. Клип был снят и спродюссирован Юккой Ремесом и Тимо Летиненом. Вы можете скачать это видео отсюда и посмотреть своими глазами -<br> http: // www.sfperkele.net/stuff/kalmah.mpg</p>
+
+Автор: Morsus
+
+### 14.07.2001 news The Kalmah&#39;s video is ready.
+
+<p> The Kalmah's video "Withering Away" is ready and already has had its premiere. The film was produced and shooted by Timo Lehtinen and Jukka Remes. You can download and watch the video on the internet at http://www.sfperkele.net/stuff/kalmah.mpg</p>
+
+Автор: Morsus
+
+### 01.10.2001 news Kalmah пишут новые песни для второго альбома
+
+<p>Сейчас Kalmah заняты сочинением материала для своего следующего студийного альбома. Запись начнётся в начале ноября, а сам альбом должен выйти в январе-феврале 2002 года. В последнее время у группы были проблемы с местом для репетиций. Парни потеряли ключи, а работники этого клуба, где они репетировали, все как на зло отправились в отпуск. Процесс получения ключей также не обошёлся без некоторой порции дерьма. Так или иначе, уже есть большое количество идей и готового материала, и группа с нетерпением ожидает похода в студию.</p>
+
+Автор: Morsus
+
+### 01.10.2001 news Kalmah are writing new songs for second album
+
+<p>Now Kalmah are very busy writing new material for their next studio album. The recording begin at the beginning of November and the release date of their second album will at the beginning of 2002. Band had problems with training place because they lost the key and workers of Pudasjarvi commune were on holiday, so they could not get the key until now. Getting the key was a bit shit process too. Anyway Kalmah have lots of new material and they are really looking forward to the studio.</p>
+<p></p>
+
+Автор: Morsus
+
+### 29.01.2002 news Kalmah have finished recording the follow-up to last year&#39;s well-received Swamplord effort ....
+
+<p>Finnish death metallers Kalmah have finished recording the follow-up to last year's well-received Swamplord effort at Tico-Tico Studios (Sentenced, Children Of Bodom) with producer Ahti Kortelainen. As previously reported, the tentative title Battleswamp has officially been changed to They Will Return. The album's songs are based on the life of guitarist and vocalist Pekka Kokko, who subsequently penned all the lyrics for the album. They Will Return will also be the first album with Timo Lehtinen (ex-Catamenia) and Janne Kusmin, both of whom repaced Altti Vetelдinen and founding member Petri Sankala on bass and drums, respectively. <BR><BR> The track listing for They Will Return:<BR> "Hollowheart" <BR> "Swamphell" <BR> "Principle Hero" <BR> "Human Fates" <BR> "They Will Return" <BR> "Kill the Idealist" <BR> "The Blind Leader" <BR> "My Nation" and a surprise cover song. <BR><BR> Kalmah's They Will Return is scheduled for a February 4, 2002 release in Finland on Spikefarm Records and a late spring release in Europe and North America on Century Media Records.</p>
+
+Автор: Yermola
+
+### 29.01.2002 news Иногда они возвращаются....
+
+<p>Финнские мелодик-дэтстеры "Kalmah" завершили запись альбома название которого несмотря на первоначальные слухи было изменено с "Battleswamp" на "They Will Return". Руководил процессом продюссер Ahti Kortelainen в Tico-Tico Studios (где пишутся Sentenced и Children Of Bodom). "They Will Return" будет первым релизом для новичков Timo Lehtinen (ex-Catamenia) и Janne Kusmin, которые заменили Altti Vetelдinen и Petri Sankala на басу и барабанах. Трек-лист: <BR><BR> "Hollowheart" <BR> "Swamphell" <BR> "Principle Hero"<BR> " Human Fates" <BR> "They Will Return" <BR> "Kill the Idealist" <BR> "The Blind Leader" <BR> "My Nation" и неизвестный кавер. <BR><BR> Дата релиза - 4-е февраля через Spikefarm Records в Финляндии. Европейский релиз выйдет поздней весной....</p>
+
+Автор: Yermola
+
+### 20.03.2002 reviews Они обязательно возвратятся
+
+<p>Они обязательно возвратятся. Так думалось после предыдущего потрясающего альбома молодых финских музыкантов. Второй альбом группы содержит восемь замечательных и мелодичных death-black композиций и убийственную кавер-версию Megadeth "Skin O' My Teeth". Музыка на новом альбоме стала немного легче и мелодичнее. Если раньше объектом подражания группы были CHILDREN OF BODOM, то теперь, таким объектом стали другие их земляки ETERNAL TEARS OF SORROW, с которыми KALMAH связывают не только дружеские отношения, но и общие музыканты. Также, как и на последнем альбоме ETERNAL TEARS OF SORROW, здесь сделан основной упор на клавишные партии. Их изобилие и создает иллюзию легкости материала. Вас ждет богатство мелодий и огромная интенсивность музыки. На втором альбоме, конечно же, заметен как технический, так и творческий прогресс музыкантов. Но общему делу это не помогает. Альбом очень хорош, но слушается, в сравнении с дебютом, с меньшим эффектом и ошеломлением. Своего стиля группа явно не ищет, старательно копируя и немного развивая чужие идеи. Таким путем, в высшую лигу никогда не пробиться. Музыканты обязательно возвратятся снова, с третьим своим альбомом. Когда - неизвестно, в том числе, неизвестно на что он будет похож. Но, надеюсь, группа все-таки обретет себя на переломном третьем творении и сумеет удивить не меньше, чем после своего дебюта.</p>
+
+Автор: Dimas
+
+### 20.11.2002 news Kalmah have begun writing new material for the next album
+
+<p>Kalmah have begun writing new material for the next album. A few new songs are ready and they are killers! The recordings will take place at Tico-Tico studio in the beginning of 2003. Planned release in Finland is at the end of Spring / beginning of Summer.</p>
+
+Автор: Morsus
+
+### 20.11.2002 news Kalmah принялись сочинять песни
+
+<p>Kalmah начали сочинять песни к следующему альбому. Несколько штук уже готовы. Запись будет проходить в студии Tico-Tico в начале 2003 года. Как ожидается, альбом выйдет в Финляндии в конце весны - в начале лета.</p>
+
+Автор: Morsus
+
+### 18.02.2003 news KALMAH начинают работу над новым альбомом
+
+<p>Финская группа KALMAH начала работу над своим третьим альбомом под названием"Swampsong". В мае планируется начало записи альбома, который будет содержать девять убойных вещей.</p>
+
+Автор: Dimas
+
+### 30.04.2003 news Третья песнь болотного чудовища
+
+<p>25 мая 2003 года на Spikefarm Records выходит новый альбом финской группы KALMAH под названием "Swampsong". Альбом был записан с продюссером Ahti Kortelainen (SENTENCED, NIGHTFALL, IMPALED NAZARENE) в студии Tico Tico. Трэк-лист альбома включает в себя:</p>
+<p><IMG SRC="/images/news_rus/2003.04/4232.gif" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 1. Heroes To Us <BR> 2. Burbot's Revenge <BR> 3. Cloned Insanity <BR> 4. The Third, The Magical <BR> 5. Bird Of Ill Omen <BR> 6. Doubtful About It All <BR> 7. Tordah <BR> 8. Man With The Mystery <BR> 9. Moon Of My Nights <BR> 10. Suodeth</p>
+
+Автор: Dimas
+
+### 18.06.2003 news KALMAH news...
+
+<p>If you are a fan of aggressive Swedish thrash then brace yourself because you are about to experience the new wave of melodic metal insanity. This Finnish quintet somehow manages to create the perfect mixture of thrash and melody to surpass their influences. This nine-track blast of speed will have fans of Children of Bodom and In Flames going wild and they have no choice but to break out of the underground scene with this stellar album. From the blazing dual guitars and dazzling keyboards to the massive harmonies alongside a pummeling bass and drum assault this record will leave thrash fans foaming at the mouth. The group have built up a strong European presence with their previous releases albums on Spikefarm Records. Now they have returned with Swampsong, their third and most aggressive release that is sure to help then gain recognition worldwide.</p>
+
+Автор: Yermola
+
+### 26.06.2003 reviews Kalmah и приличный альбом? И такое бывает.
+
+<p>KALMAH выдали на удивление приличный альбом. Если первый был квинтэссенцией всего CHILDREN OF BODOM-подобного, а второй просто безлик и абсолютно неинтересен, то третий… Не берусь утверждать, что KALMAH создали что-то новое и уж тем более выдающееся, ибо "Swampsong" ни на "новое", ни на "выдающееся" не тянет. Никак. Это с одной стороны. С другой – вышел просто-напросто хороший диск, который, как ни странно, можно слушать и с интересом, и с любопытством. Да и просто нескучно. Где-то встречаются пассажи чуть ли не а-ля viking metal, где-то вступает сытый гроулинг (и то правда… ведь не скримингом единым…)… и выходит так, что "Swampsong" слушается на одном дыхании. Повторюсь: ничего нового или выдающегося здесь нет. Это просто крепкая работа, с которой стоит ознакомиться. Правда, если вы терпеть не можете гипер-мелодичную музыку в рамках металла, покупать этот альбом не стоит. А то ещё ругаться будете…</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.11.2005 news Новый альбом KALMAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финны <STRONG>KALMAH</STRONG> назвали свой новый альбом, который выйдет в следующем году на <STRONG>Spikefarm</STRONG>, "<STRONG>The Black Waltz</STRONG>". Трэк-лист:</FONT></P>
+<P>01. <B>Bitter Metallic Side</B><BR>02. <B>Defeat</B><BR>03. <B>The Groan of Wind</B><BR>04. <B>One from the Stands</B><BR>05. <B>The Black Waltz</B><BR>06. <B>With Terminal Intensity</B><BR>07. <B>To the Gallows</B><BR>08. <B>Time Takes Us All</B><BR>09. <B>Mindrust</B><BR>10. <B>Man of the King</B></P>
+Автор: Vit Belov
+
+### 01.02.2008 news KALMAH назвали альбом
+
+<P>Мы уже сообщали, что новый альбом <STRONG>KALMAH</STRONG> выходит 2 апреля на <STRONG>Spinefarm</STRONG>. Пластинка получила название <STRONG>"For the Revolution"</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.03.2008 news Трэк-лист KALMAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом финнов<STRONG> KALMAH</STRONG> <STRONG>"For the Revolution" </STRONG>выходит 2 апреля на <STRONG>Spikefarm</STRONG>. Стал известен трэк-лист этого альбома:</FONT></P>
+<P>01. <B>For the Revolution</B><BR>02. <B>Dead Man's Shadow</B><BR>03. <B>Holy Symphony of War</B><BR>04. <B>Wings of Blackening</B><BR>05. <B>Ready for Salvation</B><BR>06. <B>Towards the Sky</B><BR>07. <B>Outremer</B><BR>08. <B>Coward</B><BR>09. <B>Like a Slave</B></P>
+Автор: Vit Belov
+
+### 28.03.2008 news Новая песня KALMAH
+
+<P><STRONG>KALMAH </STRONG>выложили заглавную песню со своего выходящего альбома "<STRONG>For The Revolution</STRONG>".</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/kalmah">http://www.myspace.com/kalmah</A></FONT></P>
+Автор: Vit Belov
+
+### 09.04.2008 news KALMAH перенесён
+
+<P>Релиз нового альбома <STRONG>KALMAH</STRONG> "<STRONG>For The Revolution</STRONG>", который должен был состояться на прошлой неделе, перенесён на 29 апреля.</P>
+Автор: Vit Belov
+
+### 20.05.2008 reviews Открывайте! Здесь новые звёзды melodic death-metal
+
+<P>Финская группа KALMAH, появившаяся на сцене позже любого из своих конкурентов по melodic-death-metal направлению, пользуясь практически полной их безнадёжностью, выходит на первый план в этом стиле. Конечно же, это не только падение котировок самого направления, которое многие посчитали устаревшим, но и большой успех самих финнов, нестоящих на месте и развивающих свой саунд.</P>
+<P>Уже прошлый альбом группы “The Black Waltz” заслуживал высшего балла. Новая работа ни в коем случае не понижает уровень, достигнутый KALMAH в прошлом, ведь огромное количество фэнов появилось у финнов уже после первого релиза, который стал одним из первых альбомов, выпущенных на Фоно по лицензии Spinefarm. Теперь дебютные пластинки стали «филофонической» редкостью на нашем рынке, а ведь поклонников у группы из болотистой местности Финляндии в России становится всё больше. На новейшем альбоме “For The Revolution” KALMAH возвращаются к более стандартному для себя звучанию. Melodic death-metal с «неоклассическими» клавишами, авторами которого принято считать CHILDREN OF BODOM. Пожалуй, у KALMAH звучание более плотное, да и вокал немного другой, Pekka Kokko предпочитает гроулинг. Все девять вещей достойны вашего внимания, и ни одну из них нельзя признать «порожняком». Есть несколько хитов, несколько «крепко сколоченных» трэков, которые понравятся любому фэну стиля.</P>
+<P>KALMAH пора выходить из тени. Безусловно, сделать это не так легко, стиль их музыки уже почти 10 лет не является «волной» в тяжёлой музыке. Новых звёзд туда уже не принимают, но талантливые финны стучатся в эту дверь с особенной силой.</P>
+Автор: Vit Belov
+
+### 09.05.2009 news KALMAH начали запись
+
+<P>Финны<STRONG> KALMAH</STRONG> вошли в студию для записи нового альбома. Коллектив планирует завершить запись в мае.</P>
+Автор: Vit Belov
+
+### 02.10.2009 news KALMAH закончили альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KALMAH</STRONG> закончили работу над новым альбомом с рабочим названием <STRONG>"12 Gauge". </STRONG>Пластинка выйдет в следующем году на<STRONG> Spinefarm Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 20.01.2010 news Обложка нового KALMAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=396 alt="" hspace=0 src="/images/news_rus/2010.01/16015.jpg" width=400 align=right border=5>Шестой альбом <STRONG>KALMAH</STRONG> <STRONG>"12 Gauge" </STRONG>выходит 3 марта на <STRONG>Spinefarm Records</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Rust Never Sleeps</B><BR>02. <B>One of Fail</B><BR>03. <B>Bullets Are Blind</B><BR>04. <B>Swampwar</B><BR>05. <B>Better Not To Tell</B><BR>06. <B>Hook The Monster</B><BR>07. <B>Godeye</B><BR>08. <B>12 Gauge</B><BR>09. <B>Sacramentum</B></P>
+Автор: Vit Belov
+
+### 03.03.2010 news Новое видео KALMAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на заглавную вещь с нового альбома <STRONG>KALMAH</STRONG> <STRONG>"12 Gauge" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9L4rHQu3npQ&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/9L4rHQu3npQ&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.05.2010 reviews Экстремум от KALMAH
+
+<P>Финская группа KALMAH выпустила свой первый альбом “Swamplord” в 2000 году на волне увлечения публикой CHILDREN OF BODOM. Проницательные слушатели уже тогда усмотрели некоторые различия между этими финскими коллективами, которые всем должны быть очевидны сейчас, по прошествии десяти лет.</P>
+<P>Последние несколько альбомов творчество KALMAH развивается по синусоиде. После впечатляющей пластинки “The Black Waltz” 2006 года последовала очень средняя работа “For The Revolution”, и вот теперь вновь отличный альбом “12 Gauge”. Великолепными эти пластинки делает их «разноплановость». Как только KALMAH отказываются от канонического звучания, обращая свои взгляды на относительно более брутальные стили, альбомы получаются очень интересными. В этот раз типичные для финской сцены melodic death-metal номера с клавишами сменяются оригинальными thrash-metal композициями с интересными ритмическими решениями. Вновь Pekka Kokko всё чаще использует в своём пении гроулинг. Группе удаётся представить целостную картину, в которой мелодизм органически смешивается с тяжестью.</P>
+<P>Тяжёлая и мелодичная музыка. Что ещё нужно меломану? KALMAH предлагает именно этот вариант доступного, но современно звучащего материала. Не хочется говорить громких слов, но эта группа, пожалуй, одна из лучших в популярном стиле на сегодняшний день.</P>
+Автор: Vit Belov
+
+### 13.09.2011 news Новый клип ALMAH
+
+<P><STRONG>"Trace Of Trait"</STRONG>, новый клип группы вокалиста <STRONG>ANGRA Edu Falaschi ALMAH</STRONG>, можно посмотреть ниже. Песня взята с нового альбома бразильского коллектива <STRONG>"Motion", </STRONG>который выйдет 14 октября на <STRONG>AFM</STRONG>.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/R7ftBEq2ON8" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Kalmah / длина альбомов

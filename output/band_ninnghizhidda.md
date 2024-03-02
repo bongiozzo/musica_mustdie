@@ -49,6 +49,40 @@ Markus A. drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.03.2001 news Германские блэкстеры Ninnghizhidda трудятся над новым альбомом
+
+<p> Германские блэкстеры Ninnghizhidda сейчас в студии трудятся над новым, вторым альбомом, который в скором времени выйдет на датском лейбле Displeased Records.</p>
+
+Автор: Nybras
+
+### 27.03.2001 news News from German blacksters Ninnghizhidda
+
+<p> The German Black Metalians Ninnghizhidda just signed to Dutch label Displeased Records. They also currently are in the studio to record their second album!</p>
+
+Автор: Nybras
+
+### 07.04.2002 news NINNGHIZHIDDA news
+
+<p>NINNGHIZHIDDA from Germany have finished the recording and mixing/mastering of their new album 'Demigod' for Displeased records. The album turned out brilliant, be sure to expect some dark atmospheric and appealing diverse black metal!!! The release date of this masterpiece is set on May 13th 2002. Especially interesting for fans of Dimmu Borgir and Samael! First 2000 will come as a limited digipak!</p>
+
+Автор: Dimas
+
+### 08.04.2002 news Новый альбом от NINNGHIZHIDDA
+
+<p>Германская команда NINNGHIZHIDDA закончила запись и сведение своего нового альбома "Demigod", который выйдет на Displeased records. Обещается потрясающий материал в лучших традициях dark atmospheric black metal. Дата выпуска альбома - 13 мая 2002 года. Особенно интересен этот альбом будет любителям DIMMU BORGIR и SAMAEL. Первые 2000 копий альбома выйдут лимитированным диджипаком.</p>
+
+Автор: Dimas
+
+### 08.11.2002 reviews Демон-защитник врат Иштара
+
+<p>NINNGHIZHIDDA, так зовут демона защищающего врата Иштара, персонажа Некрономикона. После четырехлетнего перерыва, германская группа записала свой второй альбом, не менее красивый и интересный, чем дебют "Blasphemy" 1998 года. Неудачный контракт с Invasion Records не заставил группу распасться. Она нашла в себе силы и заключила новый контракт с Displeased Records. Новый альбом группы "Demigod" - амбициозная комбинация death и black metal с классическими оркестровыми аранжировками. Атмосферный мелодичный dark metal с horror эффектами. Реально сильный альбом в своем стиле, сделанный в истинно германском духе и напоминающий работы MYSTIC CIRCLE, раннего SAMAEL и PESTILENCE. Новый альбом группы более профессиональный по техническим и качественным характеристикам, он более атмосферный, более тяжелый и агрессивный, более мелодичный и мощный. Местами используются милые женские подпевки и хоровые партии, обширные соразмерные клавишные партии, акустические вставки и редкие скрипичные дела. Все это вносит определенное разнообразие в материал группы, который не блещет оригинальностью, но и не является чересчур заштампованным. Приятная для ушей музыка, легко откладывающаяся в сознании.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

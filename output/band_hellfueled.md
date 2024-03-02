@@ -80,6 +80,15 @@ Anna Bylund, Johanna Stromblad - Backing Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.03.2009 news HELLFUELED выпускают альбом
+
+<P><STRONG>"Emission Of Sins" - </STRONG>так будет называться третий альбом <STRONG>HELLFUELED</STRONG>, который выйдет в этом году. Пластинка была записана в студии <STRONG>Leon Music</STRONG>&nbsp;с продюсером <STRONG>Rikard Lofgren</STRONG> (<B>DEATHSTARS</B>, <B>SPARZANZA</B>). Трэк-лист:</P>
+<P>01. <B>Where Angels Die</B><BR>02. <B>Am I Blind</B><BR>03. <B>I Am The Crucifix</B><BR>04. <B>A Remission Of My Sins</B><BR>05. <B>Save Me</B><BR>06. <B>Lost Forever</B><BR>07. <B>For My Family And Satan</B><BR>08. <B>In Anger</B><BR>09. <B>End Of The Road</B><BR>10. <B>Stone By Stone</B><BR>11. <B>Moving On</B> (instrumental)</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

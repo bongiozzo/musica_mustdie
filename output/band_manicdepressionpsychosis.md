@@ -8,6 +8,9 @@ dark-progressive band from Armenia
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

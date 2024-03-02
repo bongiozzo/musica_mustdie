@@ -21,6 +21,21 @@ Raise The Right Fist
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.02.2001 reviews Японский экстремальный проект
+
+<p>Японский экстремальный проект. Довольно неожиданный, учитывая их страсть к power и black-metal. Агрессивнейшая смесь Pantera и melodic-death-metal. Фирменные пантеровские качовые риффы в совокупности с вокалом а-ля Anselmo чередуются с мелодичными гитарными атаками почти в шведском духе. Однако, на мой взгляд, это не совсем совместимые вещи. Местами музыка захватывает конечно, но на общем фоне - довольно средненький альбом. Больше надежд, что альбом им понравится, должны питать фанаты Pantera, нежели любители шведского death-metal, хотя и некоторым из них отдельные моменты будут небезынтересны.</p>
+
+Автор: Dimas
+
+### 12.02.2001 reviews The Japanese extreme project
+
+<p>The Japanese extreme project. Rather unexpected, allowing their passion to power and black-metal. Aggressive mixture of Pantera and melodic-death-metal. Firm power riffs in aggregate with vocal a-la Anselmo interleave with melodious guitar attacks almost in the Swedish spirit. However, on my view, it is not absolutely conformant things. By places music seizes certainly, but on a general background - it is pleased mean an album. It is more than hopes, that the album is pleasant to them, the fans Pantera should supply, rather than fans Swedish death-metal, though also by some of them the separate moments will be reasonably interesting.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

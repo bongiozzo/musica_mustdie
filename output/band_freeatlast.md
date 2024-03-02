@@ -8,6 +8,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.11.2010 news FREE AT LAST опубликовали EP
+
+<P>Молодая groove metal/alternative группа из Петербурга <STRONG>FREE AT LAST</STRONG> опубликовала в сети свой новый EP, получивший название «<STRONG>Силикон</STRONG>»</P>
+<P>Трэк-лист EP:<BR>1. <STRONG>Силикон</STRONG><BR>2. <STRONG>Бульдозер<BR></STRONG>3. <STRONG>Дым</STRONG><BR>4. <STRONG>035</STRONG></P>
+<P>Послушать EP можно на страничке группы Вконтакте или на Myspace группы.</P>
+<P>Скачать EP можно по ссылке (<A href="http://ifolder.ru/20421931">http://ifolder.ru/20421931</A>)</P>
+<P>Видеоклип на песню «<STRONG>Дым</STRONG>» можно посмотреть на Youtube&nbsp; <A href="http://www.youtube.com/watch?v=MEGnm-0v8Ns">http://www.youtube.com/watch?v=MEGnm-0v8Ns</A></P>
+<P>Страничка группы Вконтакте - <A href="http://vkontakte.ru/club11401183">http://vkontakte.ru/club11401183</A><BR>Страничка группы на Myspace - <A href="http://myspace.com/freeatlastspb">http://myspace.com/freeatlastspb</A><BR>Блог группы на StayMetal.ru - <A href="http://staymetal.ru/blog/freeatlast">http://staymetal.ru/blog/freeatlast</A><BR>Официальный сайт группы - <A href="http://www.freeatlast.ru/">http://www.freeatlast.ru</A></P>
+<P>25 декабря в Московском клубе HLEB группа презентует свой новый материал. В концерте примут участие группы <STRONG>MELANCHOLY, EMPTY SHELL</STRONG> и<STRONG> МЕСТЬ МОНТЕСУМЫ</STRONG>.<BR>Встреча в контакте - <A href="http://vkontakte.ru/event21790921">http://vkontakte.ru/event21790921</A></P>
+<P>Промо фото -&nbsp; <A href="http://www.freeatlast.ru/promo2010.jpg">http://www.freeatlast.ru/promo2010.jpg</A><BR>Обложка ЕР -&nbsp;&nbsp; <A href="http://www.freeatlast.ru/silikon.jpg">http://www.freeatlast.ru/silikon.jpg</A><BR>Автором обложки стал известный всем художник Billy Kid.</P>
+Автор: Vit Belov
+
+### 09.11.2011 news FREE AT LAST с новым клипом и материалом
+
+<P>Группа <STRONG>FREE AT LAST</STRONG> из Северной столицы выпускает свой дебютный альбом, с дерзким и прямолинейным названием - «<STRONG>ПНХ</STRONG>» и новое видео «<STRONG>Начало</STRONG>» в поддержку альбома. Полностью игнорируя тренды в современной российской тяжелой музыке, группа записала альбом, сочетающий в себе грувовый кач 90-х&nbsp; и влияние альтернативы начала 2000-х. Низкое ламповое гитарное звучание, мощная ритм-секция и вокал в традициях классической рок-музыки - вот что характеризует звучание «<STRONG>ПНХ</STRONG>». </P>
+<P>Лирика альбома посвящена социальным проблемам, таким как наркотическая зависимость, повсеместная коммерциализация всех сфер жизни и творчества и т.д. Взгляды группы на жизнь, отразил в лирике молодой петербургский поэт<STRONG> Артем Маршилов</STRONG>. Оформление альбома выполнил известный дизайнер<STRONG> Billy Kid</STRONG>.</P>
+<P>Альбом не появится на прилавках магазинов вашего города, так что скачивайте его с Интернета и втыкайте как можно громче!</P>
+<P>Группа vkontakte – <A href="http://vkontakte.ru/free_at_last">http://vkontakte.ru/free_at_last</A><BR>Ссылка на скачивание альбома - <A href="http://ifolder.ru/26497150">http://ifolder.ru/26497150</A></P>
+<P>В ноябре пройдут концерты в поддержку альбома.</P>
+<P>19 ноября, Москва, клубе Релакс <A href="http://vkontakte.ru/event30775232">http://vkontakte.ru/event30775232</A><BR>26 ноября, Санкт-Петербург, клуб Улитка на склоне <A href="http://vkontakte.ru/event31620344">http://vkontakte.ru/event31620344</A></P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/7Hfu1-PaD38?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/7Hfu1-PaD38?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

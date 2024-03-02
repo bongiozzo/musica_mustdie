@@ -53,6 +53,61 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.07.2011 news Новый альбом NOCTEM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Второй альбом испанской death-thrash-metal команды <STRONG>NOCTEM "Oblivion"</STRONG> вышел на <STRONG>Rising Records/PHD</STRONG>. Трейлер этого альбома можно посмотреть ниже. Трек-лист:</FONT></P>
+<P>1. <STRONG>Popol Vuh</STRONG>&nbsp; 01:45&nbsp; <BR>2. <STRONG>The Arrival of the False Gods</STRONG>&nbsp; 04:55<BR>3. <STRONG>Universal Disorder</STRONG>&nbsp; 04:33&nbsp; <BR>4. <STRONG>Abnegation and Brutality</STRONG>&nbsp; 03:38 <BR>5. <STRONG>Invictus</STRONG>&nbsp; 04:00 <BR>6. <STRONG>Sons of Hun-Vucub</STRONG>&nbsp; 03:59<BR>7. <STRONG>Seeking the Ruin of Souls</STRONG>&nbsp; 04:00&nbsp;&nbsp; <BR>8. <STRONG>Unredemption&nbsp;</STRONG> 05:47&nbsp; <BR>9. <STRONG>Q'uma'rka'aa'j&nbsp; </STRONG>01:44<BR>10. <STRONG>A Borning Winged Snake</STRONG>&nbsp; 06:32 <BR>11. <STRONG>Oblivion</STRONG>&nbsp; 13:09 </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/D78WUafhOPQ?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/D78WUafhOPQ?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.09.2014 news Новинки видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27304.jpg" width=200 height=140>В этом постинге предлагаем вам&nbsp;ознакомится с&nbsp;десятью&nbsp;модными видеоклипами в металлической и не только музыке, которые появились за последний месяц на просторах интеренета и заслуживают вашего самого пристального внимания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>1349 "Slaves"</STRONG> : <A href="http://youtu.be/ajvLJPzgL_o">http://youtu.be/ajvLJPzgL_o</A><BR>02. <STRONG>ACHERON "Satan Holds Dominion"</STRONG> : <A href="http://youtu.be/dIoQHF4YIC8">http://youtu.be/dIoQHF4YIC8</A><BR>03. <STRONG>AMON AMARTH "Deceiver of the Gods" </STRONG>: <A href="http://youtu.be/CpAcxbtXUgQ">http://youtu.be/CpAcxbtXUgQ</A><BR>04. <STRONG>CORROSION OF CONFORMITY "On Your Way"</STRONG> : <A href="http://youtu.be/H5RdqR6I8Uw">http://youtu.be/H5RdqR6I8Uw</A><BR>05. <STRONG>CRUCIFIED BARBARA "I Sell My Kids For Rock'N'Roll"</STRONG> : <A href="http://youtu.be/oVU_8D1aJoU">http://youtu.be/oVU_8D1aJoU</A><BR>06. <STRONG>MORTALS "View From A Tower"</STRONG> : <A href="http://youtu.be/mHPh_aUfGD8">http://youtu.be/mHPh_aUfGD8</A><BR>07. <STRONG>NOCTEM "The Adamantine Doors"</STRONG> : <A href="http://youtu.be/rsNQonZdRNM">http://youtu.be/rsNQonZdRNM</A><BR>08. <STRONG>ORANGE GOBLIN "Sabbath Hex"</STRONG> : <A href="http://youtu.be/2l4Ts2p7jPE">http://youtu.be/2l4Ts2p7jPE</A><BR>09. <STRONG>SPIDERS "Shake Electric"</STRONG> : <A href="http://youtu.be/4IlpVlGTjbA">http://youtu.be/4IlpVlGTjbA</A><BR>10. <STRONG>THE HAUNTED "Eye Of The Storm"</STRONG> : <A href="http://youtu.be/uNAwrj1EUo8">http://youtu.be/uNAwrj1EUo8</A></FONT></P>
+Автор: Headcrusher
+
+### 22.07.2016 news Четвёртый альбом NOCTEM
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Испанцы<strong> NOCTEM</strong> выпускают новый альбом "<strong>Haeresis</strong>" 30 сентября на <strong>Prosthetic/Art Gates</strong>. Обложку нарисовал <strong>Seth Siro Anton</strong> (Septicflesh, Moonspell, Behemoth). Альбом рассказывает о деятельности испанской инквизиции.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Альбом был записан в <strong>Firework Estudios</strong>, сведение и мастеринг в<strong> Necromorbus Studio Tore Stjerna</strong> (Watain, Valkyrja).</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек лист:</font></p><p>1. Through The Black Temples of Disaster<br>2. Auto-Da-Fee<br>3. The Submission Discipline<br>4. Blind Devotion<br>5. The Dark One<br>6. Haeresis<br>7. Whispers of the Ancient Gods<br>8. Conjuring Degradation and Morbidity<br>9. The Paths of the Lustful Abandon<br>10. Pactum With the Indomitable Darkness</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29644.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 22.07.2016 news Fourth album by NOCTEM
+
+<p>Iberian extreme metal outfit <strong>NOCTEM</strong> are excited to reveal the details on their highly anticipated fourth studio album entitled "<strong>Haeresis</strong>". Scheduled for release on September 30 via <strong>Prosthetic Records</strong> (N.America, UK/EU) and <strong>Art Gates Records</strong> (Spain), "Haeresis" consists of ten brutally punishing tracks which conceptually delve into the dark history of their home country of Spain. Complimenting cover artwork, as seen above, was completed by<strong> Seth Siro Anton</strong> (Septicflesh, Moonspell, Behemoth) and depicts an epic and grotesque display of obscene torture extracted from the Spanish inquisition (1.500 A.C.).</p><p>Noctem, consisting of <strong>Beleth</strong> (vocals), <strong>Exo</strong> (lead guitars), <strong>Ethell</strong> (rhythm guitars), <strong>Varu</strong> (bass) and <strong>Voor</strong> (drums), self-recorded and produced "Haerisis" earlier this year at <strong>Firework Estudios</strong> in Valencia before sending it to Sweden's <strong>Necromorbus Studio</strong> for mixing and mastering by <strong>Tore Stjerna</strong> (Watain, Valkyrja).</p><p>The band collectively proclaimed;<br>"<em>This record is proof that a band like us can keep evolving with time. It looks, sounds, smells and tastes different from anything we've ever done while keeping our original essence in every track. We're sure that any fan of Extreme Metall will be satisfied with this new opus</em>".</p><p>Track list:</p><p>1. Through The Black Temples of Disaster<br>2. Auto-Da-Fee<br>3. The Submission Discipline<br>4. Blind Devotion<br>5. The Dark One<br>6. Haeresis<br>7. Whispers of the Ancient Gods<br>8. Conjuring Degradation and Morbidity<br>9. The Paths of the Lustful Abandon<br>10. Pactum With the Indomitable Darkness</p><p><center><img width="600" height="600" src="/images/news_rus/2016.07/29644.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 13.08.2016 news Новый трек NOCTEM
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Испанцы <strong>NOCTEM</strong> выпускают новый альбом "<strong>Haeresis</strong>" 30 сентября на <strong>Prosthetic</strong>. Первый сингл с этой работы “<strong>Through The Black Temples of Disaster</strong>” можно послушать ниже.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/A0e1v5m3AT8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 13.08.2016 news NOCTEM: NEW TRACK &quot;THROUGH THE BLACK TEMPLES OF DISASTER&quot;!
+
+<p>Spanish extreme metallists’ <strong>NOCTEM</strong> have prepared a new serving of their explosive blend of black, death and thrash metal with the debut single <strong>“Through The Black Temples of Disaster”</strong> from their upcoming new release,<strong> “Haeresis”</strong>, due out September 30 via<strong> Prosthetic Records</strong> (N.America & UK/EU) / <strong>Art Gates Records</strong> (Spain).</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/A0e1v5m3AT8" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 12.09.2016 news Новый клип NOCTEM
+
+Новое видео <strong>NOCTEM </strong>на песню "<strong>The Submission Discipline</strong>" можно посмотреть ниже. Новый альбом испанской black thrash metal банды "<strong>Haeresis</strong>" выйдет 30 сентября на <strong>Prosthetic / Art Gates</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wOKlj5VFp40" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.09.2016 news New clip of NOCTEM
+
+<p><strong>NOCTEM</strong> new video for the song "<strong>The Submission Discipline</strong>" can be viewed below. The new album of the Spanish black thrash metal band "<strong>Haeresis"</strong> will be released September 30th on <strong>Prosthetic records / Art Gates</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/wOKlj5VFp40" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 02.10.2016 reviews Откровение из Испании
+
+<p>Испания не имеет широко известной тяжёлой сцены за пределами страны. Возможно, там много групп, которые заинтересовали бы нас своей музыкой, но недостаток лэйблов, промоушена и концертов сказывается на уровне осведомлённости о металических группах с Пиренейского полуострова.</p><p>Встречайте, NOCTEM! Конечно, продвинутые поклонники black death metal уже слышали это имя. Образовавшись в 2001 году, уже начиная со второй половины нулевых, группа из Валенсии пытается докричаться до мировой общественности. В 2009 году вышел дебют музыкантов «Divinity”, и дальше новые альбомы выходили с завидной регулярностью, обозреваемый новый диск «Haeresis” уже четвёртый для NOCTEM. Он и предыдущий выходят как в Испании на Art Gates Records, так и в США на уважаемом лэйбле Prosthetic. Успех испанцев несомненен, но всего они добились собственным трудом.</p><p>Новый альбом NOCTEM звучит удивительно зрело и просто великолепно. Начинается «Haeresis” с классического жёсткого black death metal в духе лучших альбомов BEHEMOTH или BELPHEGOR. Всё прописано идеально, музыкально работа очень разнообразна, группа не стремиться просто уничтожить всё разумное в слушателях, она предлагает им какое-то количество приятных композиционных решений и нетривиальных инструментальных ходов. Ближе к экватору альбома NOCTEM демонстрируют, что являются ещё и очень хорошими мелодистами. Атмосфера апокалипсиса в жёстком, но мелодичном black death metal – это то, ради чего мы и покупаем такие альбомы. </p><p>Зачётный диск, советую всем обратить внимание на NOCTEM. Запись, тяжесть, мелодии — всё это присутствует на «Haeresis”. Предлагаю всем поклонникам BELPHEGOR насладиться этой музыкой.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Московский слёт блек-металлистов (25 августа 2017)

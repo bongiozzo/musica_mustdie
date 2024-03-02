@@ -143,6 +143,190 @@ Lonely (Digi Bonus)
 * C группой "ReVamp" Floor Jansen (vocal) and Joost Van Den Broek (keyboards)
 * C группой "Mayan" Jack Driessen (keyboards)
 
+## Публикации
+
+### 11.02.2002 reviews Безупречный альбом от начала до конца
+
+<p>Безупречный альбом от начала до конца. Второй альбом голландской команды выпускающейся на собственном лэйбле Arjan 'Ayreon' Lucassen - Transmission Records. Как и на первом альбоме, группа представляет нам на суд мрачный прогрессивно-эпический metal с влияниями классической музыки, сокрушительным басом, кристально-чистым женским вокалом, изредка подпевающим гроулингом, великолепными нервными скрипичными партиями и мелодично-атмосферным тяжелым гитарно-клавишным саундом. Но в несколько измененном виде, чем на дебютном альбоме. Стало больше симфоническо-готических интонаций (благодаря участию в записи струнного оркестра и хора), музыка значительно облегчилась, мужского гроулинга стало совсем мало, добавились элементы power metal, вокалистка намного улучшила свои вокальные данные. Теперь музыка группы частенько напоминает WITHIN TEMPTATION, NIGHTWISH и THE GATHERING . Мощный очаровательный сопрано-вокал Floor Jansen прекрасно сочетается с этой чарующей супермелодичной музыкой. Совершенная комбинация металлической и классической музыки. Музыка разнообразна и содержит массу интереснейших фрагментов. Контраст между женским и мужским вокалами, оркестровое обрамление песен, резкие переходы от балладного темпа к быстрым ритмам с пульсирующими ударными, блестящая работа симфонического оркестра (скрипки, альт, гобой, контрабас, виолончель, ситара) - это лишь немногое, что радует слух при прослушивании. Группа имеет свою индивидуальность и эффективность. Послушайте этот прекрасный трансатлантический полет в темные металлические пространства. Действительно безупречный альбом от начала до конца.</p>
+
+Автор: Dimas
+
+### 12.07.2003 news AFTER FOREVER в студии
+
+<p>Голландские мастера atmospheric gothic doom metal AFTER FOREVER вошли в студию для записи своего третьего полнометражного альбома, который должен выйти в начале 2004 года на Transmission Records.</p>
+
+Автор: Dimas
+
+### 03.09.2003 news AFTER FOREVER снимают клип
+
+<p>AFTER FOREVER закончили съёмки на песню со своего будущего mini-CD, который выйдет в октябре на Transmission Records. На диск войдут три новых песни и две кавер-версии, записанные в Excess studios с продюсерами Hans Pieters и Dennis Leidelmeijer. Кроме того группа закончила запись полноформатного нового альбома, который выйдет в начале 2004 года.</p>
+
+Автор: Vit Belov
+
+### 13.07.2004 reviews AFTER FOREVER кончились, всем слушать EPICA
+
+<P><I><B>AFTER FOREVER</B> голландская группа, которую лэйбл <B>Transmission </B>пытается представить лучшим голландским gothic-metal с женским вокалом со времён <B>THE GATHERING</B>.</I></P>
+<P>В общем-то, у коллектива были все шансы, первые два альбома были весьма недурны, но... Группу, из-за разногласий с вокалисткой <B>Floor Jansen</B>&nbsp;покидает основной композитор <B>Mark Jansen</B>, который основал, после этого,&nbsp;группу <B>EPICA</B>, и её можно считать правоприемницей старого <B>AFTER FOREVER</B>. Мне это стало ясно после прослушивания новых альбомов этих групп. Можно, сколь угодно долго, рассуждать, кто главнее вокалистка или композитор, но этот спор можно считать риторическим. Кстати, вокал <B>Floor</B> оказался не очень-то цепляющим без&nbsp;мелодий <B>Mark</B>.</P>
+<P>Новый song-writer обратился к теме трудного детства, история рассказанная на <B>'Invisible Circles'</B> очень напоминает историю с последнего альбома <B>AYREON</B>. Не какими-то сюжетными ходами, а своей реалистичностью. Музыка <B>Sander Gommans</B> претендует на то, чтобы также называться progressive. Эти претензии обоснованы отсутствием внятных мелодий (сложностью)&nbsp;и мрачностью настроений. Конечно же, альбом не настолько плох, денег в него вбухали не мало. Очень качественно звучат симфонические партии, хоры. Некоторое разнообразие добавляет мужской гроулинг.</P>
+<P>Этот альбом не является чем-то 'must have' для любителей тяжёлой музыки. Более того, он настолько скучен, что Вы вряд ли дослушаете его до конца.</P>
+Автор: Vit Belov
+
+### 28.01.2005 news AFTER FOREVER начинают писать четвёртый альбом
+
+<P><STRONG>AFTER FOREVER</STRONG> начинают запись нового альбома в феврале. Все инструменты будут записаны в <STRONG>Excess Studio</STRONG>, а вокалы и оркестровые аранжировки в <STRONG>Gate Studio</STRONG> с <STRONG>Sascha Paeth</STRONG>. Группа обещает очень хороший альбом, но это не для кого не секрет. Пластинка будет называться '<STRONG>Remagine</STRONG>' и выйдет в сентябре.</P>
+Автор: Vit Belov
+
+### 28.01.2005 news AFTER FOREVERE begin to record their fourth album
+
+<P>Here is official statement from the <STRONG>AFTER FOREVER</STRONG>:</P>
+<P><EM>"At the end of February the recordings of the fourth album of After Forever will start! After Forever will record the drums, bass guitar and the guitars in the Excess Studio in Rotterdam (The Netherlands) again. <BR>The vocals, classical stuff and the mix will be done in the Gate Studio of Sascha Peath and Miro in Wolfsburg, Germany. <BR>The writing proces has just finished and we are very happy about the results again! The songs are more compact, fresh, catchy and again; typically After Forever. In melodic aspect, the album will be more simular to Decipher.<BR>For more specific updates about the music: check our forum!!!!!! <BR>It will not become a concept album just like Invisible Circles. The songs have several subjects, some about your imagined life when you dream, some about the reality of this world.<BR>The title will be <B>REMAGINE</B>. <BR>Remagine means you can reflect on life and you imagine in. Both ingredients are there in the lyrics and in the music. The word is a combination between Reflection and Imagination. <BR>The album will be released in September 2005!!!<BR>We would love to see you on some of the summer festivals we are now planning to do to introduce some of the new songs there!!!"</EM></P>
+Автор: Vit Belov
+
+### 10.02.2005 news У барабанщика AFTER FOREVER нашли рак
+
+<P>Барабанщик <STRONG>AFTER FOREVER Andre Borgman</STRONG> был госпитализирован и прооперирован по поводу раковой опухоли. Место за барабанной установкой группы&nbsp;на время его отсутствия занял <STRONG>Ed Warby</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.02.2005 news Bad news about drummer of AFTER FOREVER
+
+<P>Here is statement from <STRONG>AFTER FOREVER</STRONG> official site:</P>
+<P>"<EM>We bring sad tidings.<BR>Our friend and drummer Andre has been admitted to hospital. De doctors have found cancer and surgically removed a tumor.<BR>The medical staff is satisfied about the result of the surgery. </EM></P>
+<P><EM>In consultation with Andre and his friend Cris we decided to continue our show in The Heineken Music Hall in Amsterdam on February 11.<BR>Ed Warby will replace Andre for this occasion,but Andre will be more present than ever on this evening. </EM></P>
+<P><EM>If you want to support Andre in this difficult period in his life you can send a card or letter to:<BR>Andre Borgman Tromsцldreef 50 3076 DL Rotterdam The Netherlands </EM></P>
+<P><EM>We count on you and expect a load of reactions and consolation for Andre. Via the site we will keep you informed</EM>". </P>
+Автор: Vit Belov
+
+### 06.05.2005 news Барабанщик AFTER FOREVER практически излечился
+
+<P>Мы уже сообщали, что у барабанщика <STRONG>AFTER FOREVER</STRONG> <STRONG>Andre Borgman</STRONG> был найден рак. После курса химиотерапии следов рака в первичном анализе не обнаружено.</P>
+Автор: Vit Belov
+
+### 15.06.2005 news Andre Borgman возвращается!
+
+<P>Успешно излечившись от рака, за барабанную стойку <STRONG>AFTER FOREVER</STRONG> возвращается <STRONG>Andre Borgman</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.07.2005 news Новый альбом AFTER FOREVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=170 alt="" hspace=0 src="/images/news_rus/2005.07/8997.jpg" width=170 align=left border=5>Новый альбом <STRONG>AFTER FOREVER "Remagine"</STRONG> готов. Группа открыла специальную страницу на своём сайте, где вы сможете узнать все подробности о нём и посмотреть увлекательное интро. <A href="http://www.afterforever.com/new/pages/home.php">http://www.afterforever.com/new/pages/home.php</A>#</FONT></P>
+Автор: Vit Belov
+
+### 18.07.2005 news New album of AFTER FOREVER
+
+<P><IMG height=170 alt="" hspace=0 src="/images/news/2005.07/8998.jpg" width=170 align=left border=5>New album of <STRONG>AFTER FOREVER "Remagine"</STRONG> is ready. The band opened a special site about this CD, where you could listen to some samples and see&nbsp;all info about it. <A href="http://www.afterforever.com/new/pages/home.php">http://www.afterforever.com/new/pages/home.php</A>#&nbsp;</P>
+Автор: Vit Belov
+
+### 10.11.2005 reviews Будьте проще, и люди к вам потянутся
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Что ж, <STRONG>Floor Jansen</STRONG> и Ко. занялись делом. Довольно быстро соорудив новый альбом, коллектив сделал ставку на проверенные черты в своей музыке, которые уже приносили свои дивиденты. Принесут и сейчас.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Progressive, черты которого просматривались на прошлой работе, был практически полностью отринут (имеется в виду, отринут в конец пластинки), а на первые трэки была густо добавлена нео-классика и станартные готическо-думовые мелодии. Более того, госпожа <STRONG>Jansen</STRONG> даже иногда поёт псевдооперным вокалом и аранжирует хоры, что никак не вязалось со скромной риффовой прогрессивностью "<STRONG>Invisible Circles</STRONG>". Первая песня "<STRONG>Come</STRONG>", пусть она и несколько сумбурна, очарует поклонников старого <STRONG>AFTER FOREVER</STRONG>. Следующие несколько трэков также порадуют фэнов. Дальше, чуть похуже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Набить стандартом весь альбом <STRONG>AFTER FOREVER</STRONG> не захотели, а какие-то откровения у них не получаются. Под конец пластинка уже немного утомляет. Мною был замечен компромис, на котором построен&nbsp;"<STRONG>Remagine</STRONG>".&nbsp;Первые несколько песен-хитов для лэйбла и широкого слушателя, а дальше попытка поймать удачу с собственным&nbsp;оригинальным материалом.&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мне этот материал сильно оригинальным не показался, а показался, скорее, занудным, но вы можете попробовать, в конце концов, всегда можно переключить проигрыватель на открывашку.</FONT></P>
+Автор: Vit Belov
+
+### 02.03.2006 news AFTER FOREVER расстались с Transmission
+
+<P>Пути <STRONG>AFTER FOREVER</STRONG> и их постоянного лэйбла<STRONG> Transmission</STRONG> разошлись. Группа обвиняет лэйбл в отсутствии должной промоции своей музыки.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Для российских поклонников коллектива это означает возможность выпуска новых работ <STRONG>AFTER FOREVER</STRONG> по лицензии.</FONT></P>
+Автор: Vit Belov
+
+### 17.03.2006 reviews Голландский гибрид
+
+<P>Вовремя подсуетившись, Floor Jansen с товарищами попыталась перехватить упавшее было знамя поп-метала с «оперным» женским вокалом из рук осиротевшей финской группы номер один. Результатом этого перехватывания, стало общее «онайтвишевание» музыки After Forever, но радует, что при этом группа не утеряла своего собственного лица и узнаваемого стиля, а Floor не принялась тупо копировать манеру Тарьи. Так, есть пара узнаваемых вокализов, а остальное все своё... </P>
+<P>В результате появился вот такой интересный гибрид, который оказался гораздо интереснее “Nightwish”, вот только, вряд ли жизнеспособнее. Слишком сложна музыка для рядового любителя финской дивы. Да еще и мужик там рычит как укушенный орангутанг. Не женственно, совершенно. Да и денег никто не даст на достойную раскрутку. А жаль. Хитов на альбоме тьма.</P>
+<P>ЗЫ. Фотка на обложке это п***ц какой то... </P>
+Автор: Дофф
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 04.09.2006 news AFTER FOREVER в студии
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AFTER FOREVER</STRONG> пробудут в студии вместе с продюсером <STRONG>Gordon Groothedde</STRONG> около двух месяцев. Группа записывает шестой альбом и находится в поисках нового лэйбла.</FONT></P>
+Автор: Vit Belov
+
+### 30.10.2006 news AFTER FOREVER подписались на NUCLEAR BLAST RECORDS
+
+<P>Голландский symphonic gothic&nbsp;metal&nbsp;акт <B>AFTER FOREVER</B> подписал договор на выпуск нового альбома через немецкий концерн <B>Nuclear Blast Records</B>. Его выход&nbsp;ожидается в начале 2007 года. </P>
+Автор: Dimas
+
+### 18.12.2006 news Подробности о новом альбоме AFTER FOREVER
+
+<P>Как стало известно, лидер <B>ANNIHILATOR</B> <B>Jeff Waters</B> и немецкая певица <B>Doro Pesch</B> станут гостевыми участниками нового альбома голландской группы <B>AFTER FOREVER</B> под названием <B>"Energized"</B>, выход которого запланирован на 23 марта 2007 года через <B>Nuclear Blast Records</B>. В него войдут следующие вещи:<BR><BR>1. <B>Discord</B><BR>2. <B>Evoke</B><BR>3. <B>Equally Destructive</B><BR>4. <B>Withering Time</B><BR>5. <B>Who I Am</B><BR>6. <B>Envision</B><BR>7. <B>Transitory</B><BR>8. <B>De-Energized</B><BR>9. <B>Cry With A Smile</B><BR>10. <B>Energize Me</B><BR>11. <B>Dream Energizer</B><BR>12. <B>Empty Memories</B><BR></P>
+Автор: Dimas
+
+### 21.12.2006 news AFTER FOREVER изменили название нового альбома
+
+<P>Как стало известно, голландцы&nbsp;<B>AFTER FOREVER</B> изменили название своего нового альбома. Он будет называться просто <STRONG>"After Forever",</STRONG> а не&nbsp;<B>"Energized"</B>, как указывалось ранее.</P>
+Автор: Dimas
+
+### 03.01.2008 news Mark Jansen помирился с AFTER FOREVER
+
+<P>26 декабря на сцене<STRONG> Podium</STRONG> в голландском городе Харденберг бывший гитарист <STRONG>AFTER FOREVER</STRONG>, а ныне лидер <STRONG>EPICA</STRONG>, <STRONG>Mark Jansen</STRONG> присоединился к своим экс-коллегам для исполнения песни "<STRONG>Beyond Me</STRONG>". Также на сцену вышла вокалистка <STRONG>EPICA</STRONG> <STRONG>Simone Simons</STRONG>. Видео можно посмотреть ниже.</P>
+<P><center><object width="425" height="373"><param name="movie" value="http://www.youtube.com/v/ryQge5S8JgQ&rel=1&border=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/ryQge5S8JgQ&rel=1&border=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="373"></embed></object></center></P>
+Автор: Vit Belov
+
+### 17.01.2008 news AFTER FOREVER ушли в отпуск
+
+<P><STRONG>AFTER FOREVER</STRONG> сообщили о своём решении прервать деятельность группы, как минимум, на год. Это связано с усталостью и стрессом, настигшими одного из основателей коллектива гитариста <STRONG>Sander</STRONG> <STRONG>Gommans</STRONG>. Группа надеется вернуться к активной деятельности в 2009 году, а пока остальные музыканты сосредоточатся на своих параллельных проектах.</P>
+Автор: Vit Belov
+
+### 30.12.2008 news Christmas Metal Symphony в Тилбурге
+
+<P>В Тилбурге, Голландия 28 декабря прошёл уникальный концерт&nbsp;<STRONG>Christmas Metal Symphony</STRONG>.&nbsp;В компании с симфоническим оркестром на сцене появились&nbsp;<STRONG>Doro Pesch</STRONG>, <B itxtvisited="1">Chuck Billy</B> (<B itxtvisited="1">TESTAMENT</B>), <B itxtvisited="1">Russell Allen</B> (<B itxtvisited="1">SYMPHONY X</B>), <B itxtvisited="1">Mats Leven</B> (<B itxtvisited="1">THERION</B>, <B itxtvisited="1">YNGWIE MALMSTEEN</B>), <B itxtvisited="1">Johan Edlund</B> (<B itxtvisited="1">TIAMAT</B>), <B itxtvisited="1">Ian Parry</B> (<B itxtvisited="1">CONSORTIUM PROJECT</B>, <B itxtvisited="1">ELEGY</B>), <B itxtvisited="1">Marcela Bovio</B> (<B itxtvisited="1">STREAM OF PASSION</B>, <B itxtvisited="1">AYREON</B>), <B itxtvisited="1">Floor Jansen</B> (<B itxtvisited="1">AFTER FOREVER</B>) and <B itxtvisited="1">George Oosthoek</B> (<B itxtvisited="1">ORPHANAGE</B>). В качестве сопровождающей группы выступили:</P>
+<P><STRONG>Koen Herfst</STRONG> (EPICA) - Drums<BR itxtvisited="1"><B itxtvisited="1">Marcel Coenen</B> (SUN CAGED) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Johan Van Stratum</B> (STREAM OF PASSION) - Bass<BR itxtvisited="1"><B itxtvisited="1">Frank Schiphorst</B> (CONTROL HUMAN DELETE) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Jeffrey Revet</B> (STREAM OF PASSION) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Joost van den Broek</B> (AFTER FOREVER) ЁC Keyboards</P>
+<P>Музыканты исполнили heavy-metal классику прошлых лет:</P>
+<P>01. <B itxtvisited="1">Blood Of Kingu</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">02. <B itxtvisited="1">Victim Of Changes</B> (JUDAS PRIEST) (feat. Mats Leven)<BR itxtvisited="1">03. <B itxtvisited="1">Son Of The Staves Of Time</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">04. <B itxtvisited="1">Passion</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">05. <B itxtvisited="1">Out In The Real World</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">06. <B itxtvisited="1">Enter Sandman</B> (METALLICA) (feat. Ian Parry)<BR itxtvisited="1">07. <B itxtvisited="1">Paranoid</B> (BLACK SABBATH) (feat. Ian Parry)<BR itxtvisited="1">08. <B itxtvisited="1">Breaking The Law</B> (JUDAS PRIEST) (feat. Doro Pesch)<BR itxtvisited="1">09. <B itxtvisited="1">All We Are</B> (DORO) (feat. Doro Pesch, Floor Jansen)<BR itxtvisited="1">10. <B itxtvisited="1">I Rule The Ruins</B> (DORO) (feat. Doro)<BR itxtvisited="1">11. <B itxtvisited="1">Souls Of Black</B> (TESTAMENT) (feat. Chuck Billy)<BR itxtvisited="1">12. <B itxtvisited="1">Return To Serenity</B> (TESTAMENT) (feat. Chuck Billy, Mats LevЁ¦n)<BR itxtvisited="1">13. <B itxtvisited="1">More Than Meets The Eye</B> (TESTAMENT) (feat. Chuck Billy, George Oosthoek)<BR itxtvisited="1">14. <B itxtvisited="1">Arise</B> (SEPULTURA) (feat. George Oosthoek)<BR itxtvisited="1">15. <B itxtvisited="1">Mountains Of Madness</B> (ORPHANAGE) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">16. <B itxtvisited="1">A New Level</B> (PANTERA) (feat. George Oosthoek)<BR itxtvisited="1">17. <B itxtvisited="1">Cain</B> (TIAMAT) (feat. Johan Edlund)<BR itxtvisited="1">18. <B itxtvisited="1">Brighter Than The Sun</B> (TIAMAT) (feat. Johan Edlund, Marcela Bovio)<BR itxtvisited="1">19. <B itxtvisited="1">When The Smoke Is Going Down</B> (SCORPIONS) (feat. Johan Edlund)<BR itxtvisited="1">20. <B itxtvisited="1">My Pledge Of Allegiance No. 1</B> (AFTER FOREVER) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">21. <B itxtvisited="1">Equally Destructive</B> (AFTER FOREVER) (feat. Floor Jansen)<BR itxtvisited="1">22. <B itxtvisited="1">The Evil That Man Do</B> (IRON MAIDEN) (feat. Floor Jansen)<BR itxtvisited="1">23. <B itxtvisited="1">Intro Based on "The Odyssey"</B> (SYMPHONY X) (orchestra only)<BR itxtvisited="1">24. <B itxtvisited="1">Evolution</B> (The Grand Design) (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">25. <B itxtvisited="1">Paradise Lost</B> (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">26. <B itxtvisited="1">Dawn Of A Million Souls</B> (AYREON) (feat. Russell Allen)<BR itxtvisited="1">27. <B itxtvisited="1">Phantom Of The Opera</B> (NIGHTWISH version) (feat. Russell Allen, Floor Jansen)</P>
+<P>Видео&nbsp;<STRONG>"Souls Of Black"</STRONG> (TESTAMENT) (feat. Chuck Billy) (video by Mark van Nierop):</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 05.02.2009 news AFTER FOREVER распались
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=322 alt="" hspace=0 src="/images/news_rus/2009.02/13573.jpg" width=300 align=left border=5>AFTER FOREVER</STRONG> объявили об окончании своей карьеры:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Мы были группой 15 лет. Мы довольны теми результатами, которых достигли, но, прежде всего, мы довольны дорогой, которой мы прошли. Мы никогда не повторялись, каждый раз пробуя что-то новое, идя на риск. Перерыв, который мы сделали в 2008 году, позволил нам оглянуться назад и ощутить, как много мы сделали. Но в то же время мы поняли, как прекрасно жить собственной жизнью и заниматься музыкой в других жанрах. Мы поняли, что не сможем более отдавать группе 110 процентов нашей энергии, и чтобы не падать вниз, мы решили прекратить наше существование. Наш последний альбом "After Forever" исполнил все наши задумки и желания, и мы надеемся, что наша музыка будет продолжать жить, вдохновляя новые группы</EM>".</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 11.02.2009 news Mark Jansen: &quot;Это был и мой ребёнок&quot;.
+
+<P>Гитарист <STRONG>EPICA Mark Jansen</STRONG> прокомментировал распад <STRONG>AFTER FOREVER</STRONG>, группы одним из основателей которой он был:</P>
+<P>"<EM>Мне стало грустно, когда я услышал эту новость. AFTER FOREVER был и моим ребёнком. Я всегда радовался успехам этой группы, потому что она занимала некоторую часть моего сердца</EM>".</P>
+<P><STRONG>EPICA </STRONG>тем временем занимается пре-продукцией новой пластинки, которая выйдет до конца года на <STRONG>Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT id=embed codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=8,0,0,0 height=425 width=380 align=middle classid=clsid:d27cdb6e-ae6d-11cf-96b8-444553540000><PARAM NAME="_cx" VALUE="10054"><PARAM NAME="_cy" VALUE="11245"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://www.royalartistclub.com/addons/embed.swf?id=6161"><PARAM NAME="Src" VALUE="http://www.royalartistclub.com/addons/embed.swf?id=6161"><PARAM NAME="WMode" VALUE="Window"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE=""><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE=""><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="false">
+<embed src="http://www.royalartistclub.com/addons/embed.swf?id=6161" width="380" height="425" name="embed" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer" /><p style="font-family: Arial, sans-serif; font-size: 12px;"><a href="http://www.royalartistclub.com/">Epica</a></p></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 06.08.2009 news Бывшие музыканты EPICA и AFTER FOREVER создали новый проект
+
+<P><STRONG>Mark Jansen</STRONG> (<B>EPICA</B>, ex-<B>AFTER FOREVER</B>), <B>Sander Gommans</B> (<B>HDK</B>, ex-<B>AFTER FOREVER</B>)&nbsp;и <B>Jack Driessen</B> (ex-<B>AFTER FOREVER</B>) объединили свои силы в новом проекте, над дебютным альбомом которого они сейчас работают. По словам <STRONG>Sander Gommans</STRONG>, музыканты с удовольствием вспомнят времена, когда они писали вместе для <STRONG>AFTER FOREVER</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.10.2009 news Новая группа Floor Jansen
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывшая вокалистка распавшихся <STRONG>AFTER FOREVER Floor Jansen</STRONG> организовала новую группу <STRONG>REVOLT</STRONG>. В ней ей помогут знаменитый продюсер и гитарист<STRONG> Waldemar Sorychta</STRONG> (<STRONG>GRIP INC., EYES OF EDEN</STRONG>) и коллега певицы по <STRONG>AFTER FOREVER</STRONG> клавишник <STRONG>Joost Van Den Broek</STRONG>. Коллектив работает над новыми песнями.</FONT></P>
+Автор: Vit Belov
+
+### 28.01.2010 news Бывший гитарист AFTER FOREVER присоединился к Doro
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист распавшихся <STRONG>AFTER FOREVER</STRONG> <STRONG>Bas Maas</STRONG> присоединился к группе <STRONG>Doro Pesch</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

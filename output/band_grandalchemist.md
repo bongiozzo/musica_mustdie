@@ -31,6 +31,22 @@ Recorded at Studio Elg
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.06.2002 bios OVERVIEW: GRAND ALCHEMIST
+
+<p>GRAND ALCHEMIST was created late 1995 and the band is located in Holmestrand, Norway. Sigurd is the founder member and the main-character behind the music and lyrics in GRAND ALCHEMIST, he has been playing in different kinds of bands since 1994. He started to play guitar around 1992 but when he was about seven he started to play the piano. <BR> In the Autumn of 1995, the long-time friends Sigurd and Stoelan started rehearsing together, and they soon found out that this was something they could go further on with. The band's name back then was Morrheim. In the Autumn of 1996 they recorded their first demo called "The Midwinter Frost". At this time Kim joined the band on guitar, and in the Spring of 1997, the second demo "Forever Night Infinity" was recorded. <BR> In the Spring of 1998 they decided changed the name from Morrheim to GRAND ALCHEMIST. The next year was used to work on new songs that gave GRAND ALCHEMIST a more complex and unique sound than before, and at the end of 1999, GRAND ALCHEMIST had come through with 6 new songs at Elg Studios. Kim left the band in 2001. Terje replaced him on guitar, and with his guitar skills he contributed in developing the sound even more. Roland joined the band on bass shortly after Terje. <BR> In February of 2002 GRAND ALCHEMIST signed with Sound Riot Records and they entered the Elg studio to record their full-length in March 25th. They took 200 hours in studio, a lot of energy and work was placed into the 12 songs on the album doing them dynamic and complex with a perfect picture of all the elements in the music. Still, the album was mastered by Tom Kvеlsvoll at Strype Studios in May. A professional sound is more than guaranteed on this CD! <BR> The music of GRAND ALCHEMIST is more technical, tighter, faster, varied and sophisticated with weight on the melodic and the intensive aspects in the Black Metal and more experimental with the finest of the Progressive and Classical music. Fabulous melodies in the guitars arrangements. An excellent performance of bass. A drummer with almost 10 years of experience and skill. The changes between the raging vocals and clean vocals were kept, and they are better yet! <BR> “Intervening Coma-Celebration” will surprise the Metal audience with one of the most intense albums of the year.</p>
+
+Автор: Yermola
+
+### 21.12.2002 reviews Помешательство в состоянии комы
+
+<p>Дебютная работа молодой норвежской формации. Не оскуднела еще земля норвежская на таланты, особенно в области black metal. GRAND ALCHEMIST выдает высококлассный sympho-black metal с огромным количеством оригинальных фишек. Многие, думаю, уже соскучились по подобной музыке. Интересная смесь отличной клавишной работы (наряду с пространственной атмосферой, здесь много клавишных соло) с мощной гитарной работой (жирной и очень мелодичной), сложными переходами и редкими электронными делами. Музыка довольно запоминающаяся, здесь много броских риффов, есть спокойные мягкие вставки плавно переходящие в скоростные агрессивные пассажи. Неплохой, но типичный для стиля грубый вокал, иногда проскакивают песнопения чистым вокалом. Команде удалось записать ни на кого не похожий уникальный альбом с отголосками KOVENANT, OLD MAN'S CHILD и ARCTURUS. Чрезвычайно зрелая и продуманная работа. Для премьеры, этот альбом звучит весьма внушительно. Послушайте сами!</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

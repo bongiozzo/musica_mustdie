@@ -25,6 +25,27 @@ Buried Dreams
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.01.1999 reviews 
+
+<p>Название альбома этой латиноамериканской группы как нельзя лучше характеризует настроение после прослушивания этого опуса. Раньше, я признавал в качестве суперкоманд только две команды из Латинской Америки: Argentum и Cenotaph, теперь к ним можно смело прибавить и Buried Dreams. Музыка этой группы напомнила мне о прошлогодней работе Embracing. Здесь также за основу взят power-speed metal который активно скрещивается с элементами black-metal. Альбом чрезвычайно мелодичен, соло-гитара не умолкает ни на секунду, гармоничное сочетание вокалов, весёлое настроение музыкального материала - всё это придаёт особую атмосферу. Один из немногих больших (больше 60 минут) альбомов, при прослушивании которого не появляется чувства усталости и не хочется нажать паузу. Рекомендую!</p>
+
+Автор: Dimas
+
+### 25.06.2000 reviews Латиноамериканский death-black-metal с шведо-финским уклоном.
+
+<p>Латиноамериканский death-black-metal с шведо-финским уклоном. Эта группа из тех, кто резко меняет стилистику от альбома к альбому (из такого же разряда, например Eternal Tears Of Sorrow). Так вот, поиграв doom-black на предыдущем альбоме, группа решила заисать что-нибудь новенькое. И записала то, что пользуется сейчас большим спросом. Супер мелодичный death-black-metal с ураганными гитарными атаками, сметающими все на своем пути, мелодиями в духе Children Of Bodom, жесткими риффами и вокальными партиями в духе In Flames и Dark Tranquillity, яростно-агрессивный и довольно разнообразный, с использованием мексиканского колорита. В студии с ними работал Fredrik Nordstrom, работавший со многими шведскими (и не шведскими) группами. Это тоже наложило отпечаток на звучание альбома, приблизив его к набившему некоторым оскомину, шведскому звучанию. но в целом, очень хороший альбом для любителей. как следует порубиться.</p>
+
+Автор: Dimas
+
+### 30.06.2000 reviews Latin American death-black-metal with Swedo-Finnish waves
+
+<p>Latin American death-black-metal with Swedo-Finnish waves. This group of those who sharply changes stylistics from an album to an album (from the same category, for example Eternal Tears Of Sorrow). So, having played doom-black on the previous album, the group has decided write something new. Also has noted that uses now great demand. Super melodious death-black-metal with storm guitar attacks which are sweeping away all on the path, tunes in spirit Children Of Bodom, rigid riffes and vocal consignments in spirit In Flames and Dark Tranquillity, furious - aggressive and rather diverse, with use of mexican colour. In studio with them worked Fredrik Nordstrom, working with many Swedish (and not Swedish) groups. It too has imposed a print on sounding of an album, having approximated it to filled by Swedish sounding. But as a whole, very good album for the fans.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -30,6 +30,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.05.2003 reviews Трактороподобная музыка
+
+<p>Третий альбом германских музыкантов с первых минут поражает своим звуком, напоминающим тарахтение трактора. На плотный мясной звук иногда накладываются неплохие мелодии и сытный гроулинг. Материал MUCUPURULENT представляет собой смесь death metal с рок-н-роллом. Все это напомнило мне ранний PUNGENT STENCH и ENTOMBED. Истинно роковые мелодии, тяжелые гитарные риффы, повторяющиеся припевы и черный юмор очень удачно сочетаются в этой работе. Причем, материал группы прост до безобразия, никаких тебе изысков и технических сложностей - простые риффы, сильные мелодии, грубый вокал и неистовый интенсивный задор. И так, все одиннадцать песен. Группа использует старый и проверенный способ написания материала - простота и броскость. Лишь в некоторых местах можно услышать малозаметные техно-биты и минимум сэмплов. Конечно, не все песни здесь являются хитами, но больше половины из них достойны этого звания. Под подобную музыку можно даже устроить танцевальный вечер с типичными для дискотек телодвижениями и хэдбэнгерством. Очень достойный материал.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 06.03.2006 news Четвертый фестиваль Maryland Deathfest
+
+<P>27-го и 28-го мая в Балтиморе, США, штат Мериленд, пройдет четвертый <B>Maryland Deathfest</B>. Окончательный состав участников (в общей сложности 32 группы) вряд ли оставит равнодушным хотя бы одного любителя дэт-метала: это американцы <SPAN class=style81><SPAN><B>VITAL REMAINS, SKINLESS, ENGORGED, EMBALMER, BURNT BY THE SUN, QUILLS, GORGASM, MUNICIPAL WASTE, TOTAL FUCKING DESTRUCTION, CATHETER, EMBRYONIC CRYPTOPATHIA, </B>канадцы <SPAN class=style81><B>MESRINE, ELECTRO QUARTERSTAFF, BENEATH THE MASSACRE,</B> немцы<SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>SANITY'S DAWN, MUCUPURULENT, NECROPHAGIST, YACOESPAE,</B> шведы&nbsp;<SPAN class=style81><SPAN class=style91><SPAN class=style91><SPAN class=style81><B>DISMEMBER, DISFEAR, ANATA, SAYYADINA, </B>голландцы&nbsp;<SPAN class=style81><SPAN class=style81><SPAN class=style81>&nbsp;<SPAN class=style81><B>CLITEATER, SEVERE TORTURE, ROMPEPROP,</B> </SPAN><SPAN class=style91><SPAN class=style81><SPAN class=style81>японцы <SPAN class=style81><B>UNHOLY GRAVE, BUTCHER ABC,</B> </SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN></SPAN>испанцы <SPAN class=style81><SPAN><B>HAEMORRHAGE, MACHETAZO, </B></SPAN></SPAN>австрийцы <SPAN class=style81><SPAN><B>PUNGENT STENCH,</B></SPAN></SPAN> финны <SPAN class=style81><SPAN><B>DEMILICH</B></SPAN></SPAN>&nbsp;и турки <SPAN class=style81><B>CENOTAPH. </B>Билет на один день стоит 35 долларов США, на оба дня 55 долларов. Любопытно, что никаких возрастных ограничений для посещения этого фестиваля нет.</SPAN></P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 ### Mucupurulent:что из себя представляют и изданы ли уже на сдм?

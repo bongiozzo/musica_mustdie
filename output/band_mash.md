@@ -18,6 +18,22 @@ Nu-thrash band from Murmansk
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.08.2001 news Трэшеры MASH из Мурманска реализовали свой дебют ?City?
+
+<p> Модные nu-трэшеры MASH из Мурманска реализовали свой дебют «City». Альбом вышел на <a href="http://www.beast.ru" target="_blank">Beast Inside Entertainment</a> под номером 004. Трэк-лист выглядит следующим образом: <BR> 1. Fear; <BR> 2. City; <BR> 3. Hatred Walks Around; <BR> 4. I'll Never Forgive; <BR> 5. Drop Your Gun; <BR> 6. Fire; <BR> 7. Paranoid [Black Sabbath cover-version]. <BR> Продюсировал этот релиз Y.Warhol, известный по работе с Childermas, Immurement, S.I.D.E. и Reincremation. Как обещают на лэйбле, вскоре этот CD можно будет купить в онлайновом режиме. По всем интересующим вопросам можно обращаться по адресу лэйбла группы: beasty@mail.ru или читать новости на сайте <a href="http://terland.musica.mustdie.ru" target="_blank">The News of the Terland</a>, который обеспечивает информационную поддержку мурманской сцене.</p>
+<p></p>
+
+Автор: Nybras
+
+### 20.11.2001 news Всем любителям тяжелой музыки из Мурманска!
+
+<p>24 ноября, в 17.00 в ДК "Маяк" (Абрам-мыс, Мурманск) состоится metal гиг. Участвуют: группы MASH, Reincremation (г. Полярные Зори), Full Decay, Pan Satirus, Оракул. <br> Цена билета - 30 рублей. Проезд катером с морвокзала или автобусом №124. Информационная поддержка: "Новости Терских Земель", <A HREF="http://terland.musica.mustdie.ru">http://terland.musica.mustdie.ru</A></p>
+
+Автор: Nybras
+
+
 ## Обсуждения
 
 

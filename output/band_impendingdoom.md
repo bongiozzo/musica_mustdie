@@ -49,6 +49,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.08.2011 news IMPENDING DOOM войдут в студию
+
+<P>Американские христианские death-metal'исты <STRONG>IMPENDING DOOM</STRONG> войдут в студию на этой неделе для записи нового пока не названного альбома. Продюсером пластинки станет <STRONG>Andreas Magnusson</STRONG> (<B>THE BLACK DAHLIA MURDER</B>, <B>THE FAMINE</B>). </P>
+<P>Последний видео-клип <STRONG>IMPENDING DOOM</STRONG> <STRONG>"There Will Be Violence" </STRONG>можно посмотреть ниже. Песня взята с третьего альбома американцев, который вышел в прошлом году.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/aYYXxhnz1AQ" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 10.01.2012 news Новый альбом IMPENDING DOOM
+
+<P>13 марта выходит новый альбом <STRONG>IMPENDING DOOM "Baptized&nbsp;In Filth"</STRONG>. Продюсером этой работы выступил <STRONG>Andreas Magnusson (THE BLACK DAHLIA MURDER)</STRONG>. </P>
+<P><center><IMG height=400 src="/images/news_rus/2012.01/22580.jpg" width=267 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

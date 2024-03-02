@@ -60,6 +60,33 @@ Recorded & Mixed At Oslo Lydstudio.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.08.1999 news 
+
+<p>Лэйбл Peaceville ведёт очень активную политику. Вслед за Katatonia и Opeth под её крылом оказалась группа Beyond Dawn. Новый альбом группы "Electric Sulking Machine" выйдет уже на этой фирме в середине августа.</p>
+
+Автор: Vit Belov
+
+### 02.10.1999 reviews 
+
+<p>Оговорюсь сразу - группа или нравится или нет. Она имеет свой собственный стиль и не пытается гнаться за модой. Я лично запал на нее после их альбома 1996 года "Pity Love". Альбом 1998 года "Revelry" тоже оказался в числе моих любимцев. После перехода на Peaceville этот gothic-doom коллектив из Норвегии выпустил очередной депрессивный опус. Да, ведущий ТРОМБОН (!) это что-то. Словами не описать - надо слушать. 10 из 10.</p>
+
+Автор: Vit Belov
+
+### 11.07.2003 news BEYOND DAWN...
+
+<p>Those crazy Norwegian cross dressing fools are set to release their second album for Peaceville on 21st July - mysteriously titled Frysh. We've had a great response to the three-track single that preceded the album release. A release party is being planned @ Madame Jo Jo's later in the summer. In the fall the band will head out on a Nordic 'concept' tour with electro terrorists Trulz & Robin & wierdy onemanband, Centre Of The Universe. Torre Jazztobakk. Beyond Dawn's guitarist tells us "The tour is called 'We Are Building A Music Machine'. Inspired by The Beatles 'Magical Mystery Tour', Roald Dahl's 'Willy Wonka And The Chocolate Factory', and Philippe Fix' books about 'Serafin'. All the acts work together in building a big fantasy music-machine. Using cardboard boxes painted as big synths, drum machines and robots, sparkling with hundreds of christmas lights! All the artists participate in each others music and performance." Aw bless. UK dates in the crack pipe.</p>
+
+Автор: Yermola
+
+### 13.07.2003 news Новый альбом BEYOND DAWN
+
+<p>Норвежцы BEYOND DAWN завершили работу над своим новым творением и готовы к его реализации. Диск под названием "Frysh" должен выйти 21 июля на Peaceville Records.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

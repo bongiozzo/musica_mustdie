@@ -21,6 +21,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.07.2017 news DEAD CROSS: дебют в августе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>DEAD CROSS</STRONG> в состав которой, помимо прочих, входят <STRONG>Mike Patton</STRONG> (<STRONG>FAITH NO MORE</STRONG>, <STRONG>FANTOMAS</STRONG>,<STRONG> MR. BUNGLE</STRONG>&nbsp;и др.)&nbsp;и<STRONG> Dave Lombardo</STRONG> <STRONG>(SUICIDAL TENDENCIES</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>FANTOMAS</STRONG>) выпускает свой дебютный диск 4 августа. Ниже можно посмотреть видеоклип на песню <STRONG>"Seizure and Desist"</STRONG>&nbsp;с этого альбома. Предзаказ физических копий альбома доступен по ссылке: <A href="https://deadcross.tmstor.es/">https://deadcross.tmstor.es</A> </FONT></P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/WpdcT8kyP1U" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

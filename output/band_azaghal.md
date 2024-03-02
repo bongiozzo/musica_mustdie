@@ -60,6 +60,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.01.2015 news Новый полноформатный альбом AZAGHAL
+
+<P>Следующий полноформатный альбом&nbsp;финской&nbsp;black metal&nbsp;группы&nbsp;<STRONG>AZAGHAL "Madon Sanat"</STRONG> будет выпущен через <STRONG>Kvlt/Hammer of Hate</STRONG> в формате CD, в течение ближайших нескольких недель. Точная дата релиза будет объявлена в ближайшее время. Виниловая версия альбома выйдет через&nbsp; <STRONG>Night In Terrors</STRONG>, в конце этой весны.</P>
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2015.01/27519.jpg" width=400 height=401></P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>VSKP (Intro)<BR></STRONG>2. <STRONG>Thanatos</STRONG><BR>3. <STRONG>Madon Sanat<BR></STRONG>4. <STRONG>Ruton Enkeli<BR></STRONG>5. <STRONG>Kielletty Sakramentti<BR></STRONG>6. <STRONG>Rutto Saatanan Aseena Tata Maailmaa Vastaan<BR></STRONG>7. <STRONG>Ziggurat</STRONG><BR>8. <STRONG>Kanavoija</STRONG><BR>9. <STRONG>Varjokuninkaat</STRONG><BR>10. <STRONG>Uusi Maailma, Uusi Mahti<BR></STRONG>11. <STRONG>Kaarmeen Riitti</STRONG></P>
+Автор: Tess
+
+
 ## Обсуждения
 
 

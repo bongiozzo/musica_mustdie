@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.07.2017 news BORIS: клип &quot;Absolutego&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Японская эксперементальная группа <STRONG>BORIS </STRONG>опубликовала видео на песню<STRONG> "Absolutego" </STRONG>со своего 23-го студийного альбома <STRONG>"Dear"</STRONG>. Диск <STRONG>"Dear"</STRONG> выходит ровно через неделю на лейбле<STRONG> Sargent House</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В самом начале&nbsp;августа&nbsp;<STRONG>BORIS</STRONG> во второй раз&nbsp;посетят Россию! Подробности по ссылке: <A href="/ru/shows/#74323">http://musica.mustdie.ru/ru/shows/#74323</A></FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/9ZUhdqx9VtE" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Японец BORIS впервые в России! Спешите видеть! 9 и 10 декабря 2016!

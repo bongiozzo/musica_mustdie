@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.09.2016 news Архивный альбом heavy metal группы из Германии HEADSTONE будет переиздан
+
+<p>11 ноября на <strong>Karthago </strong>в серии <strong>Heavy Metal Classics</strong> выйдет альбом немецкой heavy metal группы <strong>HEADSTONE "Excalibur"</strong> 1985 года. В те времена материал не получил должной дистрибуции, и группа надеется на новую попытку.</p><p>Трек лист:</p><p>1. Opening<br>2. Burnt In Ice<br>3. Wizard Of Ore<br>4. White Thunder<br>5. Eagles In the Crests<br>6. Angels Of Paradise<br>7. Excalibur<br>8. Skyline Of Rock<br>9. Well Of Love<br>10. The Moontemples (Bonustrack)<br>11. Overthrown (Bonustrack)</p><p><center><img width="600" height="611" src="/images/news_rus/2016.09/29992.jpg" border="0"><p></p><p><center><img width="400" height="400" src="/images/news_rus/2016.09/29993.jpg" border="0"><center></center></center>
+Автор: Vit Belov
+
+### 22.09.2016 news Archive album of German heavy metal band HEADSTONE will be re-released
+
+<p>The release date of the HEADSTONE album „Excalibur“ on CD is November 11th, 2016.</p><p>The second album by HEADSTONE called "Excalibur" had many great songs, but sadly the band changed the vocalist. The new singer Harald Karg was "ok", but not outstanding. Songs like "Burnt in ice" or "White thunder" suffer a bit from this, but in other songs his voice fits quite well. So "Eagle in the crest" and "Well in love" are the highlights on this album regarding the vocals.</p><p>If you concentrate on the music you will find tons of really fantastic material. The title song or "Angel of paradise" show the outstanding musical ability of the band. In the year 1985 "Headstone" was not a big success because the distribution was poor and outside their hometown Oberammergau (a small bavarian town) not too many fans took notice of the band.</p><p>Finally this was the end of......no...in this special case it was not the end of the band. Since 1985 HEADSTONE are alive, playing together and writing new songs. Some of them are outstanding, but still the band didn't manage to record these songs in a final version. A demo CD with these -outstanding- songs exists, but only with some vocals from the guitarist, so really no fun to listen to, because he did this only to have them recorded. So this material is still waiting to be rerecorded with new vocals and rereleased.</p><p>Track list:</p><p>1. Opening<br>2. Burnt In Ice<br>3. Wizard Of Ore<br>4. White Thunder<br>5. Eagles In the Crests<br>6. Angels Of Paradise<br>7. Excalibur<br>8. Skyline Of Rock<br>9. Well Of Love<br>10. The Moontemples (Bonustrack)<br>11. Overthrown (Bonustrack)</p><p><center><img width="600" height="611" src="/images/news_rus/2016.09/29992.jpg" border="0"><p></p><p><center><img width="400" height="400" src="/images/news_rus/2016.09/29993.jpg" border="0"><center></center></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

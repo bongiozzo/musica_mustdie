@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.08.2016 news VATICAN подписали контракт с Pure Steel Records
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Американские ветераны heavy metal<strong> VATICAN</strong> подписали контракт с <strong>Pure Steel records</strong>. Группа существует с 1986 года, но так и не выпустила ни одного полноформатного альбома. Сообщается, что новый альбом записан и выйдет в ближайшем будущем.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="476" src="/images/news_rus/2016.08/29802.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 13.08.2016 news VATICAN have signed to Pure Steel
+
+<p><strong>VATICAN</strong> from Cleveland Ohio, active since 1986, have signed a worldwide deal with <strong>Pure Steel Records</strong>. The long-awaited new studio album of the band was recorded. More News coming soon.</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="476" src="/images/news_rus/2016.08/29802.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

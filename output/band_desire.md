@@ -41,6 +41,41 @@ Epilogue
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.09.2002 news Ночные крики зловещей души...
+
+<p>После десяти лет существования и долгого периода молчания "DESIRE" вернулись с новым альбомом "Locus Horrendus - The Night Cries Of A Sullen Soul...". Новая работа записывалась в L'Enfant Terrible Studio и микшировалась в Edit Studios. Мастерингом занимался Mika Jussila в Finnvox. <BR><BR> Трек-лист:<BR><BR> 1. Preludium <BR> 2. Frozen Heart... Lonely Soul... <BR> 3. Cries Of Despair <BR> 4. The Weep Of A Mournful Dusk <BR> 5. An Autumnal night Passion <BR> 6. Drama <BR> 7. Dark Angel Bird (A Poet Of Tragedies) <BR> 8. Torn Apart <BR> 9. (Love Is) Suicide <BR> 10. Postludium</p>
+
+Автор: Yermola
+
+### 13.09.2002 bios 
+
+<p>July 1992 - the band started under the name of INCARNATED;<BR> October 1993 - INCARNATED records the promo-track 'Death Blessed By A God', spreaded worldwide;<BR> Middle 1994 - a change of the band's name was definitly necessary. DESIRE was born;<BR> March 1995 - due to the growing interest of some worldwide labels in the band's sound, an 'Advance Tape' was recorded, Featuring two brand new tracks;<BR> Late 1995 - after studying some deal offers, Portuguese label Skyfall Records was chosen to release the band's debut album;<BR> June 1996 - 'Infinity... A Timeless Journey Through An Emotional Dream' was released and considered by Portuguese specialized press as one of the albums of that year and the first one appearing in Portugal introducing such a mournful, melodic and misanthropic sound genre;<BR> July 1996 / Early 1997 - successful live performances promoting the debut album;<BR> March 1997 - the band enters the studio to record its second effort, the MCD 'Pentacrow';<BR> March 1998 - 'Pentacrow' finally comes to light, representing the band's 5th year of existence. This work reinforces even more the dark, doomiest and poetic side of DESIRE being considered one of the most successful releases of the Portuguese metal field in the year of 1998;<BR> April 1998 - DESIRE opened for CRADLE OF FILTH during 'Dusk And Her Embrace' tour, at Paradise Garage, in Lisboa;<BR> Early 1999 - the deal with Skyfall Records was rescinded due to several reasons;<BR> Middle 1999 / Early 2000 - DESIRE experienced constant and major line-up changes, which led to a big delay until the recording process of a new studio album;<BR> Middle 2001 - the recordings of the new album finally takes place;<BR> December 2001 - Helsinki marks the end of the work, with the mastering of' Mika Jussila at Finn vox Studios;<BR> January 2002 -promotion, concerning the band's new release, starts;<BR> May 2002 - 'Locus Horrendus - The Flight Cries Of A Sullen Soul...', foreseen release date.<BR><BR><BR> DESIRE<BR> P.O. Box 21380<BR> 1132-001 Lisboa<BR> Portugal<BR> thecrowshelter(S).clix. pt<BR> Official site: <A HREF="http:/thecrowshelter-desire. planetaclix. pt">http:/thecrowshelter-desire. planetaclix. pt</A></p>
+
+Автор: Yermola
+
+### 13.09.2002 news Locus Horrendus - The Night Cries Of A Sullen Soul....
+
+<p>In the year of the band's 10th year of existence and after a long period of absence, afterwards the release of "Infinity... A Timeless Journey Through An Emotional Dream" in '96 and "Pentacrow" in '98, DESIRE prepares to return in 2002 with 'Locus Horrendus - The Night Cries Of A Sullen Soul'. <BR><BR> This new work was recorded at L'Enfant Terrible Studios, Queijas, mixed at Edit Studios, Reboleira and mastered by Mika Jussila at Finnvox Studios, Helsinki, Finland.<BR><BR> The tracks contained in this new release are the following ones:<BR><BR> 1. Preludium <BR> 2. Frozen Heart... Lonely Soul...<BR> 3. Cries Of Despair<BR> 4. The Weep Of A Mournful Dusk <BR> 5. An Autumnal night Passion<BR> 6. Drama<BR> 7. Dark Angel Bird (A Poet Of Tragedies)<BR> 8. Torn Apart <BR> 9. (Love Is) Suicide<BR> 10. Postludium</p>
+
+Автор: Yermola
+
+### 03.10.2002 reviews Glorious DOOM from Portugal!
+
+<p>Glorious DOOM from Portugal! Imperial and atmosphere music classic worthy. <BR> Admirable male growling is contrast to high female vocal. Magnificent quality of record and mixing (Mikka Jussila was responsible for mixing, he worked with Children Of Bodom). Depressive, infinitely sad work which blow the dreams of frailty of entity.</p>
+
+Автор: Yermola
+
+### 28.11.2002 reviews D-O-O-O-O-O-O-O-M!
+
+<p>D-O-O-O-O-O-O-O-M! There’re but a few bands delivering music like this. Therefore, should I say, I was much more glad to get “Locus Horrendis” than some garbage-like 20 black / death / power / or-whatever-else metal CDs instead? Sure, I was. Even though it’s a partly self-released work, “Locus Horrendis” looks (and sounds) absolutely great. Stylish, solely in black, white and grey appearance-wise as well as brilliantly executed (and later mastered at Finnvox) music-wise… well, Portugal’s DESIRE already deserve some respect… at least for this. And when you know that musically – and if it wasn’t enough, lyrically too! – “Locus Horrendis” is absolutely worth it’s sound and graphic execution… when you know, it’s a tremendously dark, somewhat a bit romantic yet pretty much somber, and again – dark, doom metal, sometimes bearing a slight influence of _black_ metal… when you know the ambiences it’s soaked with, are all nearly unique; ambiences taking you on a journey to the lands far beyond the reach of your imagination – and far beyond the reach of anything that’s mortal… when you know the music, in general, is rather interestingly structured… when you know all this… would you please stop being such a moron ignoring the band and the CD I’m talking about.</p>
+<P> Website: <A HREF="http://thecrowshelter-desire.planetaclix.pt">http://thecrowshelter-desire.planetaclix.pt</A></>
+<P>Email: <A HREF="mailto:honorsanguine@clix.pt">honorsanguine@clix.pt</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 ### Goddess of Desire-как вам эта команда?

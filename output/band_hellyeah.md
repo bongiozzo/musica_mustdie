@@ -38,6 +38,47 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.04.2010 news Новый альбом HELLYEAH
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.04/16635.jpg" width=300 height=300>Обложка второго альбома группы <STRONG>HELLYEAH</STRONG> стала доступна для метал-общественности. Альбом названный "<STRONG>Stampede</STRONG>", выйдет 13 июля. </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В состав&nbsp;<STRONG>HELLYEAH</STRONG> входят&nbsp;&nbsp;известные&nbsp;музыканты&nbsp;из&nbsp;других коллективов:</FONT></P>
+<P><STRONG>Vinnie Paul Abbott</STRONG> - барабаны (<STRONG>PANTERA</STRONG>, <STRONG>DAMAGEPLAN</STRONG>)<BR><STRONG>Chad Gray</STRONG> - вокал (<STRONG>MUDVAYNE</STRONG>)<BR><STRONG>Greg Tribbett</STRONG> - гитара (<STRONG>MUDVAYNE</STRONG>)<BR><STRONG>Bob "Zilla" Kakaha</STRONG> - бас (<STRONG>DAMAGEPLAN</STRONG>)<BR><STRONG>Tom Maxwell</STRONG> - гитара (<STRONG>NOTHINGFACE</STRONG>)</P>
+<P>Новую песню с альбома под названием&nbsp;<B itxtvisited="1">"Cowboy Way"</B>, можно скачать с сайта: <A href="http://www.hellyeahrocks.com/">http://www.hellyeahrocks.com</A> <BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 25.05.2012 news Новое видео HELLYEAH
+
+<P>Новый клип звёздного проекта<STRONG> HELLYEAH</STRONG> <STRONG>"Band Of Brothers" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>David Brodsky.</STRONG></P>
+<P><STRONG></STRONG><center><iframe width="640" height="360" src="http://www.youtube.com/embed/L-PCQ0MwKLQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 18.06.2012 news HELLYEAH: обложка и трек-лист третьего полноформатника.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24219.jpg" width=400 height=400>Третий полноформатник группы <STRONG>HELLYEAH</STRONG>, в которую входят бывшие и нынешние участники таких групп, как <STRONG>PANTERA</STRONG>, <STRONG>MUDVAYNE</STRONG>, <STRONG>DAMAGEPLAN</STRONG>&nbsp;и <STRONG>NOTHINGFACE</STRONG>,&nbsp;выйдет 17 июля&nbsp;на новом для&nbsp;группы лейбле <STRONG>Eleven Seven Music</STRONG>. Диск был записан в городе Даллас, (штат Техас), на студиях, принадлежащих барабанщику группы. Продюсер и инженер альбома - <B itxtHarvested="0" itxtNodeId="65">Jeremy Parker</B> (<B itxtHarvested="0" itxtNodeId="64">GODSMACK</B>, <B itxtHarvested="0" itxtNodeId="63">EVANESCENCE</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лиcт:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtHarvested="0" itxtNodeId="57">War In Me</B><BR itxtNodeId="56">02. <B itxtHarvested="0" itxtNodeId="55">Band Of Brothers</B> <BR itxtNodeId="54">03. <B itxtHarvested="0" itxtNodeId="53">Rage/Burn</B> <BR itxtNodeId="52">04. <B itxtHarvested="0" itxtNodeId="51">Drink Drank Drunk</B><BR itxtNodeId="50">05. <B itxtHarvested="0" itxtNodeId="49">Bigger God</B> <BR itxtNodeId="48">06. <B itxtHarvested="0" itxtNodeId="47">Between You And Nowhere</B><BR itxtNodeId="46">07. <B itxtHarvested="0" itxtNodeId="45">Call It</B><BR itxtNodeId="44">08. <B itxtHarvested="0" itxtNodeId="43">Why Does It Always</B><BR itxtNodeId="42">09. <B itxtHarvested="0" itxtNodeId="41">WM Free</B><BR itxtNodeId="40">10. <B itxtHarvested="0" itxtNodeId="39">Dig Myself A Hole</B><BR itxtNodeId="38">11. <B itxtHarvested="0" itxtNodeId="37">What It Takes To Be Me</B><BR itxtNodeId="61">&nbsp;</FONT></P>
+Автор: Headcrusher
+
+### 24.11.2012 news Новое видео HELLYEAH
+
+<P>Видео на песню <STRONG>"Drink Drank Drunk"</STRONG> от<STRONG> HELLYEAH</STRONG> можно посмотреть ниже. Трек вошёл в третий альбом коллектива <STRONG>"Band Of Brothers"</STRONG>, который вышел в июле.</P>
+<P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/q3NrCZvV8Hc?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.04.2016 news HELLYEAH: 5 студийный альбом в июне
+
+<P>Американская группа <STRONG>HELLYEAH</STRONG>, в составе которой играет <STRONG>Vinnie Paul</STRONG>, бывший барабанщик <STRONG>PANTERA </STRONG>и <STRONG>DAMAGEPLAN</STRONG>,&nbsp;опубликовала трек-лист и обложку своего пятого студийного альбома<STRONG>&nbsp;"Undeniable"</STRONG>. Дата выхода: 3 июня.<BR>Автор обложки: <STRONG>William "Wombat" Felch</STRONG> (<A href="http://williamfelch.com/">http://williamfelch.com</A>).</P>
+<P>Трек-лист:<BR>01. <STRONG>!</STRONG> | 02. <STRONG>X </STRONG>|<STRONG> </STRONG>03. <STRONG>Scratch A Lie</STRONG> | 04. <STRONG>Be Unden!able</STRONG> | 05. <STRONG>Human</STRONG> | 06. <STRONG>Leap Of Faith</STRONG> | 07. <STRONG>Blood Plague</STRONG> | 08. I<STRONG> Don’t Care Anymore</STRONG> | 09. <STRONG>Live Or Die</STRONG> |10.<STRONG> Love Falls</STRONG> | 11. <STRONG>10-34</STRONG> | 12. <STRONG>Startariot</STRONG> | 13. <STRONG>Grave</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.04/29117.jpg" width=510 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

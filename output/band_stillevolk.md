@@ -40,6 +40,21 @@ Mise en page: Stephan Mur
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.08.2001 news Третий альбом Stille Volk
+
+<p>Третий альбом Stille Volk "Satyre Cornu " будет выпущен 27 августа. Этот альбом сравнивают с их фантастическим "Hantaoma", отмечая огромные средневековые влияния и чистый и подлинный звук.</p>
+
+Автор: Dimas
+
+### 08.08.2001 news STILLE VOLK&#39;s third longplayer
+
+<p>STILLE VOLK's third longplayer "Satyre Cornu" is released on the 27th of August. This album compares well to their fantastic "Hantaoma" and brings great medieval sounds to you- pure and authentic.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

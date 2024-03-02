@@ -229,6 +229,870 @@ Recorded at BRX Studio in Milan between December 2015 and February 2016.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 24.05.1999 reviews 
+
+<p>Прошлогодний миньон этих итальянцев произвёл эффект бомбы. Превосходный, очень мелодичный, готический doom-материал, сыгранный в довольно быстром ключе, с потрясающей лидер-вокалисткой, которой иногда помогал яростным, но не рычащим вокалом её коллега мужского рода. Очень душещипательная музычка, напоминающая слегка DARKSEED и GALLERY. Поэтому все с огромным нетерпением ожидали полноценного материала от группы. Надо сказать, что итальянцы не прокололись. Их большой альбом ещё более хорош. Такой же мелодичный, вокалистка просто поражает своим пением. Очень сильный вокал. Это, действительно, живая музыка. Жёсткие гитары, немного грустная музыка, но не навевающая тоску. Немаловажная особенность - партии клавишных (кстати, очень немногочисленнные) записал Waldemar Sorychta. Он же был продюсером и звукорежиссёром. Рекомендую!</p>
+
+Автор: Dimas
+
+### 27.07.1999 reviews 
+
+<p>Сначала о прошлогоднем миньоне. Я не был от него в восторге. Во-первых THE GATHERING у нас уже есть и женский вокал Christina Scabbia слабоват (у Anneke van Giesbergen в сто крат лучше), а мужской Andrea Ferro, тот вообще смеха ради. Во-вторых, музыка - ну не удивишь сейчас никого печальной красотой, вона её скока. А главное это чувство - ты там уже был песни-музыка слушал, диван кровать спал, хрен редька ел и т.д. В общем все это было уже. "In A Reverie" - в общем ничего нового не принес - добротная, но не более европейская готика, очень приятная на слух и профессионально отыгранная (не зря же Waldemar Sorychta отыграл им партии клавишей, а также был звукорежиссером). Но все это уже вторично, клонирование, однако. 7,5 из 10.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Lacuna Coil были вынуждены отменить три шоу, из-за того, что их басист сломал ребро. Группа вернулась в Милан и засела за запись нового миньона, который выйдет весной.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>В апреле выйдет новый миньон Lacuna Coil. Этой весной группа вернётся в студию для записи нового альбома.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>После релиза своего нового Lacuna Coil зайдут в студию для записи полноценного альбома.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 reviews 
+
+<p>Итальянцы решили снова порадовать нас своими новыми творениями. Пять новейших вещей на 24 минуты. Новый материал, безусловно хорош, но уступающий предыдущему большому альбому и первому миньону. Надеюсь их новый большой альбом будет более хитовый. Здесь же мне в душу запали только две вещи. Остальные довольно безликие. Кстати, именно на них вокалитст Andrea Ferro поет чистым мягким вокалом. Это нововведение мне не очень понравилось. Уж лучше пусть поет как раньше, более суровым вокалом. Мелодичный, легкий готик-дум. Слушайте и наслаждайтесь.</p>
+
+Автор: Dimas
+
+### 15.09.2000 news Lacuna Coil приступают к работе.
+
+<p> Итальянцы Lacuna Coil начинают работу над тем, что должно стать одним из наиболее ожидаемых релизов континента в следующем году. Певица Кристина и парни предварительно проработали материал с Вальдемаром Сорихтой в Mилане перед тем, как направиться в студию в середине октября для записи своего второго полноформатного альбома.</p>
+
+Автор: Morsus
+
+### 15.09.2000 news Lacuna Coil begin work.
+
+<p> Italian outfit Lacuna Coil begin work on, what should prove to be one of the most anticipated releases across the continent next year. Singer Cristina and the boys have been in pre-production with Waldemar Sorychta in Milan before they hit the studio in mid October to record their second full-length album.</p>
+
+Автор: Morsus
+
+### 26.10.2000 reviews Полураспад по Lacuna Coil
+
+<p> Мини-альбом известной в широких кругах gothic-metal группы Lacuna Coil с недвусмысленным названием "half life" не явился чем-то, что лично мне было особенно интересно слушать. Группа тенденциозна, и не способна поразить оригинальностью, так что явно ощущаемые влияния emotional-metal на этой пластинке, проявляются более чем закономерно. В остальном, всё замечательно: выстроенный точно "как надо" дисторшн, клавиши утилитарные, сопрано, по стилю чем-то напоминающее Flowing Tears (но ни в коей мере не дотягивающее до этой вершины), ну гроулинга там немножко, может и clean мужской вокал где-то есть, что, впрочем, совершенно безразлично, не так ли? Я бы так и расстался с этим диском, без особых эмоций, использовав данную музыку пару раз как фоновое сопровождение, если бы не финальный трек "Stars" - очень красивая меланхоличная песня, и я даже сейчас не могу отделаться от мысли, что это какой-то кавер…</p>
+
+Автор: George Dysangelist
+
+### 29.11.2000 news Вскоре выходит новый альбом Lacuna Coil.
+
+<p>Century Media Records 29 января 2001 года выпускает новый альбом Lacuna Coil "Unleashed Memories".</p>
+
+Автор: Morsus
+
+### 29.11.2000 news Lacuna Coil&#39;s new album will be released soon.
+
+<p>Century Media Records will release Lacuna Coil's new studio album "Unleashed Memories" on January 29th 2001.</p>
+
+Автор: Morsus
+
+### 27.12.2000 news Трек лист нового альбома Lacuna Coil
+
+<p>Опубликован трек-лист нового альбома Lacuna Coil: “Heir Of A Dying Day”, “To Live Is To Hide”, “Purify”, “Senzafine”, “When A Dead Man Walks”, “1:19”, “Cold Heritage”, “Distant Sun”, “A Current Obsession” и “Wave Of Anguish”.</p>
+
+Автор: Yermola
+
+### 27.02.2001 reviews Итальянцы остались верны себе
+
+<p>Итальянцы остались верны себе. Снова мы слышим меланхоличный жесткий gothic-metal с милейшим и внушительным женским вокалом Cristina Scabbia и подпевающим ей мужским вокалом Andrea Ferro, временами жестким, временами ясным и чистым. И все это сопровождает фирменное жесткое звучание гитар. LACUNA COIL совершенствовали себя не только музыкально, они созрели и в плане написания материала и подачи его в выгодном свете. Группа сумела не утратить свой хитовый потенциал, по-прежнему одинаково интересны все песни, каждая по своему. Вместе с тем, ей удается не сваливать на коммерческую дорожку, оставаясь в рамках тяжелой музыки. Очень действенный альбом оставляющий массу впечатлений после прослушивания. Тяжеловатые гитарные рефрены перекликаются с акустическими гитарами, полное отсутствие электроники, богатая клавишная атмосфера полная трагизма и меланхолии, очень живой звук. Интенсивная и проникающая вглубь сознания музыка с теплыми настроениями и ощущением свободы. Яркий образец настоящего готического металла.</p>
+
+Автор: Dimas
+
+### 27.02.2001 reviews The Italians have remained are correct to itself
+
+<p>The Italians have remained are correct to itself. Again we is aural melancholic rigid gothic-metal with loveliness and imposing female voice of Cristina Scabbia and echoing to her man's voice of Andrea Ferro, from time to time rigid, from time to time clear and clean. And all this accompanies with firm rigid sounding of guitars. LACUNA COIL perfected itself not only musical, they have blossomed and by way of writing a stuff and submission it in expedient light. The group has managed to not lose the hit potential, all songs, each on are still equally interesting. At the same time, she manages to not dump on a commercial track, remaining within the framework of high-gravity music. A very effective album leaving weight of impressions after listening. Heaviest guitar refrens support with acoustic guitars, full absence of an electronics engineering, rich keyboard atmosphere full tragic and melancholia, very alive note. Music, intensive and inpouring deep into consciousnesses, with warm moods and sensation of freedom. Bright sample of the present Gothic metal.</p>
+
+Автор: Dimas
+
+### 30.10.2001 news Italy&#39;s LACUNA COIL and Portugal&#39;s MOONSPELL will join forces for a North American tour...
+
+<p>Italy’s LACUNA COIL and Portugal’s MOONSPELL will join forces for a North American tour that will take place during December. The confirmed dates are as follows: <BR> <BR> Dec. 05 – Philadelphia, PA @ The Trocadero <BR> Dec. 06 – Springfield, MA @ Jaxx <BR> Dec. 07 - Brooklyn, NY @ L'Amour (w/GRAVES) <BR> Dec. 08 – Worcester, MA @ Paladium <BR> Dec. 09 – Montreal, QC @ Foufounes <BR> Dec. 10 – Toronto, ONT @ Foufounes <BR> Dec. 11 – Detroit, MI @ I-Rock <BR> Dec. 12 – Cleveland, OH @ Agora Ballroom <BR> Dec. 13 – Aurora, IL @ Riley's Rock House <BR> Dec. 14 – Milwaukee, WI @ Rave Bar <BR> Dec. 15 – Minneapolis, MN @ Askot <BR> Dec. 17 – Denver, CO @ Bluebird Theatre <BR> Dec. 19 - San Francisco, CA @ The Pound <BR> Dec. 20 - Los Angeles, CA @ Whiskey</p>
+
+Автор: Yermola
+
+### 08.01.2002 articles К российскому концерту готовы! - Репортаж с концерта MOONSPELL и LACUNA COIL
+
+<p>Ну что? Продолжу серию своих репортажей с концертов, которые я посещаю,находясь в стране, которую многие из вас на дух не переносят, а может просто завидуют?:) Так вот пока достопочтенные мастдайцы угорали в Р-Клубе на концерте «ЭПИДЕМИИ», я проводил время не менее полезно, слушая очень знакомые вам команды- итальяшек LACUNA COIL и португальцев MOONSPELL. Но обо всем по порядку. Проходил концерт в клубе “The LAB” что находится в городе St. Paul штат Миннесота. Я был в этом клубе впервые, и каково же было мое удивление, что он по размерам оказался гораздо меньше, чем московский «Р-Клуб».То есть входишь-перед тобой бар, пара бильярдных столов, несколько столиков для посетителей, далее в зал –тоже бар и несколько столиков. Сцена по размерам тоже как в Р-Клубе – достаточно тесная-ну и перед ней пространство-для хэдбенгеров. Народу пришло человек 150. Интересно сколько было на Эпидемии? Но это даже к лучшему-я мог свободно перемещаться по залу-хотя там особо и некуда:). Когда мы с другом вошли в зал- на сцене играла первая разогревающая команда, название которой осталось для меня тайной. Играли псевдо дум-с женским вокалом. Вокалистка клево косила под Лив Кристин-было очень даже похоже-но сам материал скучный.Далее вышли блэкари из Theatre of Macabre. И как это обычно бывает с блэк-бандами , подвел их звук, хотя материал заслуживал внимания, очень неплохо слушались клавиши, да и на сцене ребята держались очень интересно. Следущая и последняя разогревающая команда играла что то типа Guano Apes – толстая вокалистка прокуренным голосом пыталась извлекать звуки в тему- но получалось это у нее слабо и мы пошли в бар пить очередное пиво. <BR><BR> Рядом с барной стойкой стоял стол на котором был разложен всякий мерчандайзинг.И какого же было мое удивление, когда я рядом увидел одиноко стоящего с бутылкой позорного американского пива Budweiser Фернандо Рибейра(вокалист MOONSPELL- кто не знает:) . Меня это просто убило-америкоты не знали на какой концерт пришли что ли?- он сам с этого офигевал:) Ну я спокойно подошел обратился к нему по имени, представился, представил кореша и сказали что мы русские фэны Moonspell- чувак сразу оживился и подняв бутылку с пивом произнес по-русски, «ЗА ЗДОРОВЬЕ»:)))))).Это единственное что он знал по-русски.Но после этого концерта словарный запас русских слов музыкантов LACUNA COIL и MOONSPELL заметно обогатился, так как я внес маленький вклад в это дело, но обо всем по-порядку. Во первых я спросил Фернандо о предстоящем концерте в Москве с To/Die/For и он сказал-«да, это не 3,14здежь, действительно будем играть в феврале, спросил сколько народу придет на их концерт в России?»-ну я ответил что тысячи две фэнов они вполне способны собрать, а может и больше?:).Далее спросил какие песни они будут играть сегодня, и будут ли играть хит всех времен и народов «Альма Матер», а то я ее в исполнении «Батерфляй Темпл» слышал на концертах и на кассете, а надо бы в оригинале?:). Ответ был удручающим-они будут играть новые песни плюс совсем немного старых хитов, и хит «Опиум» которые они считают своей самой удачной песней, а «Альма Матер» и другое старье они оставили для концерта в Москве(ну и повезло же кому-то), так как в Америке они уже третий раз.Кстати мой друг был на их прошлом выступлении вместе с In Flames. На это подошедший MOONSPELLовский барабаннер ответил-« С In Flames мы в не очень хороших отношениях, а вот с Аморфисом!Клевые ребята:)» Так же я порекомендовал Фернандо поменьше петь чистым вокалом и побольше гроулингом, на что он ответил, что ему нравится и так и так, ну хозяин-барин что тут сказать:).Далее я спросил его как он оценивает шансы португальской сборной на ЧМ 2002 и попал в точку! Ребята оказались родственными душами! А когда я им назвал парочку португальских футболистов ,похвалив их игру-Луиша Фигу(кого же еще:) и Нуно Гомеша, так чуть не расцеловали меня от гордости за свой футбол . Так же они хорошо знают наших игроков-как выступавших в португальских клубах(Овчинников, Юран,Кульков, Аленичев) так и Мостового с Карпиным и игроков сборной СССР(Дасаев, Михайличенко, Алейников,Демьяненко). И сказали что желают, чтобы Португалия в финале ЧМ встретилась с Россией и победила, на что я сказал-«А вот Х#й вам а не кубок Мира:)» <BR><BR> Далее барабанщик пригласил нас за стол где сидели остальные музыканты Moonspell и Lacuna Coil(кроме вокалистки). Стали пить пиво и общаться. Я особо скорешевался с гитаристом Лакуны, который черный и волосатый(на мастдайской фотке он слева). Они ребята из Милана,и болельщики АС Милан, очень уважают наших -«ШЕВА»-как он сказал с жутким акцентом и Каху Каладзе:) Еще я задал лакуновцам вопрос-«Что они думают о волне италльянского павера(Rhapsody e.t.c), захлестнувшей мир в последнее время?». Ответ был дан прямо по-ангарски – ГОГНО(SUCKS то-есть)-что поделаешь, конкуренты:)? Они конечно уважают Луку Турилли как музыканта, но то что он делает –ГОГНО – и я с ними как ни странно согласился, и что они очень любят такие итальянские команды как Bulldozer и Death SS. Еще я спросил MOONSPELовцев- какие русские группы вы ребята знаете, на что они в один голос ответили- SHAH(Шах то-есть) и Фернандо пропел мне одну строчку, кажется с Beware- больше не знают ничего- даже весьма раскрученный на западе Mental Home – вот вам ребята и российская метал-сцена:( На последок я получил автографы Мунспеловцев и Лакуновцев и пошел с пивом слушать их в зал-разогрев уже отыграл. Весь народ в клубе тоже потянулся в зал.Было темно и потом свет резко вспыхнул- и на сцене 4 колбасящиеся в угаре фигуры-LACUNA COIL. Рубились ребята очень душевно-да и все зрители с ними. Позволю сделать себе небольшое отступление. Раньше, слушая LACUNA COIL на дисках, они меня особо не впечатляли – ну что за сопли, думал я, да еще с бабским вокалом. После концерта мнение об итальяшках у меня полностью перевернулось- просто это надо один раз услышать в живую-на отличном звуке-который настроил звукач.Как можно играть тяжело и красиво! Вокалистка поет просто обалденно-такой клевый женский вокал я слышал в первый раз-очень разнообразно-диапазон огромный и сама девочка очень симпотная итальяночка такая-правда с обручальным кольцом на руке:) – Тарья отдыхает:) Одета она была в красную, пеструю юбочку и такой же пиджачок. А все мужики-музыканты, включая свободного вокалиста-в плащах до пола- очень красиво смотрелись-да еще рубящиеся по полной!Мужской вокал очень агрессивный, красиво сочетался с вокальными выкрутасами вокалистки- и вообще это было нечто! Теперь о репертуаре в двух словах. Играли в основном песни с нового альбома, и все достаточно жесткие. Начали с Heir of a Dying Day. Потом со старого альбома- и так чередовали. Репертуар подобрали очень хорошо-зал завелся с пол-оборота и угорал до конца! Выступление длилось минут сорок-но мне показалось мало!Хотелось еще. А тем временем на сцену вышли и настраивались хэдлайнеры- MOONSPELL. Настройка была недолгой – опять погас свет и вот они – MOONSPELL – с песней Than the Serpents in my Arms с нового альбома! Зал сразу подхватил ритм и начал рубиться, сразу вслед за ней без паузы зарубили Heartshaped Abyss с того же альбома-которая Never resist…. Когда закончили Фернандо снял с себя шляпу и плащ и тут я услышал звуки «Волчьей тени» с какого как вы думаете альбома? Правильно-угадали! Рубилово пошло не на жизнь а на смерть-да и музыканты от зрителей не отставали-полностью выкладывались на сцене.Клавишник, он же второй гитарист, попеременно играл то на клавишах то на гитаре, а рядом с барабанщиком была какая то штука с монитором-которая издавала звуки с эффектами. Затем пошла заглавная песня c «Эффекта Бабочки», за ней опять новье. А потом заиграла песня «Опиум» с «Иррелиджиуса». Что творилось в зале- не передать - все 150 человек дружно подпевали-рубясь в угаре!Затем опять пошли «Бабочка» и новье! И еще единственная песня с «Син/Пекадо» - про Бога сделанного ручками:).После нее опять новая вещь-Devil Red после которой казалось все-окончен концерт?Вы тоже так подумали?-А хрен вам. Фернандо объявил кавер Оззика «Мистер Краули»который так же есть на последнем альбоме- очень здорово прокатила-и соляу чувак сыграл 1 в 1! Ну и в заключении «Полнолунное Безумие» с «Иррелиджиуса»-достойный финал отличного концерта! <BR><BR> И теперь я напоследок скажу, какие же слова по-русски выучил вокалист Мунспелла , сеньор Фернандо Рибейра- «ТЫ КРАСИВАЯ ДЕВУШКА», «Я ТЕБЯ ХОЧУ» и «СПАСИБО» - так что девушки-мастдайки-москвички- не упустите свой шанс!!! Он у вас очень неплохой:))))))</p>
+
+Автор: rjh
+
+### 03.04.2002 news Lacuna Coil снова отправляются в студию
+
+<p>Итальянцы Lacuna Coil в конце апреля идут в студию Woodhouse в Хагене записывать очередной альбом, который должен выйти на Century Media к концу лета.</p>
+
+Автор: Morsus
+
+### 03.04.2002 news Lacuna Coil will enter studiо
+
+<p>Italy's Lacuna Coil will enter Woodhouse Studios in Hagen, Germany at the end of April to record their new album, due through Century Media Records in late summer.</p>
+
+Автор: Morsus
+
+### 29.05.2002 news Новости LACUNA COIL ....
+
+<p><IMG SRC="/images/news_rus/2002.05/2815.jpg" ALT="pho" width=335 height=270 hspace="15" vspace="5" border="1" align="right"> Новый альбом "LACUNA COIL" будет называться "Comalies" и выйдет в Сентябре на Century Media. Трек-лист: <BR><BR> 1. Swamped<BR> 2. Heaven's A Lie<BR> 3. Daylight Dancer<BR> 4. Humane<BR> 5. Self Deception<BR> 6. Aeon<BR> 7. Tight Rope<BR> 8. The Ghost Woman And The Hunter<BR> 9. Unspoken<BR> 10. Entwined<BR> 11. The Prophet Said<BR> 12. Angel's Punishment<BR> 13. Comalies<BR></p>
+
+Автор: Yermola
+
+### 29.05.2002 news PREPARE YOURSELF because, believe me, it&#39;s a BLAST!!!!!
+
+<p>A message from Cristina Scabbia, LACUNA COIL's sultry vocalist, about the new album, Comalies, tentatively scheduled for release in late September/early October: <BR><BR> "PREPARE YOURSELF because, believe me, it's a BLAST!!!!! You won't believe it!!!"<BR><BR> A huge step for the band--again. More mature than the previous album--again. If you can dare believe it, the songs, the guitars, and the vocals are even more magnificent than before. <BR><BR> The tracklisting:<BR><BR> 1. Swamped<BR> 2. Heaven's A Lie<BR> 3. Daylight Dancer<BR> 4. Humane<BR> 5. Self Deception<BR> 6. Aeon<BR> 7. Tight Rope<BR> 8. The Ghost Woman And The Hunter<BR> 9. Unspoken<BR> 10. Entwined<BR> 11. The Prophet Said<BR> 12. Angel's Punishment<BR> 13. Comalies<BR></p>
+
+Автор: Yermola
+
+### 11.07.2002 news Новый альбом Lacuna Coil
+
+<p>Следующий студийный альбом итальянской готик-дум банды Lacuna Coil будет называться "Comalies". Уже готов трэк лист: 1. Swamped 2. Heaven's A Lei 3. Daylight Dancer 4. Humane 5. Self Deception 6. Aeon 7. Tight Rope 8. The Ghost Woman And The Hunter 9. Unspoken 10. Entwined 11. The Prophet Said 12. Angel's Punishment 13. Comalies</p>
+
+Автор: Korvin
+
+### 21.08.2002 news Sentenced will make a tour with Lacuna Coil, In Flames &amp;  Killswitch Engage.
+
+<p>On the official homepage of the band is the program of a European tour: <BR><BR> September 2002:<BR><BR> 9/16 SLIM’S – SAN FRANCISCO, CA <BR> 9/17 GLASSHOUSE – POMONA, CA <BR> 9/18 BASH ON ASH – TEMPE, AZ <BR> 9/20 FOX THEATER – BOULDER, CO <BR> 9/21 BOTTLENECK – LAWRENCE, KS <BR> 9/22 THE RAVE – MILWAUKEE, WI <BR> 9/23 I-ROCK – DETROIT, MI <BR> 9/24 AGORA BALLROOM – CLEVELAND, OH <BR> 9/25 TROCADERO – PHILADELPHIA, PA <BR> 9/26 JAXX – W. SPRINGFIELD, VA <BR> 9/27 BIRCH HILL – OLD BRIDGE, NJ <BR> 9/28 LUPO’S – PROVIDENCE, RI <BR><BR> Oktober 2002:<BR><BR> Thu 24 Copenhagen (DK) Loppen <BR> Fri 25 Helsingborg (S) Tivoli <BR> Sat 26 Oslo (N) John Dee <BR> Sun 27 Gothenburg (S) Musikens Hus <BR> Tue 29 Dordrecht (NL) Bibelot <BR> Wed 30 Lille (F) Le Splendid <BR> Thu 31 London (GB) Mean Fiddler <BR><BR> November 2002:<BR><BR> Fri 01 Vosselaar (B) Biebob <BR> Sat 02 Haarlem (NL) Patronaat <BR> Sun 03 Eindhoven (NL) Effenaar <BR> Mon 04 Essen (D) Zeche Carl <BR> Tue 05 Paris (F) La Locomotive <BR> Wed 06 Montpellier (F) Rockstore <BR> Thu 07 Barcelona (E) Razzmattazz 2 <BR> Fri 08 Bilbao (E) Bilborock <BR> Sat 09 Valencia (E) Sala Roxi <BR> Sun 10 Granada (E) La Copera <BR> Tue 12 Milan (I) Transilvania <BR> Wed 13 Rome (I) Blackout <BR> Thu 14 Cesena (I) Vidia <BR> Fri 15 Treviso (I) New Age <BR> Sat 16 Salzburg (A) Rockhaus <BR> Sun 17 Vienna (A) Planet Music <BR> Mon 18 Nьrnberg (D) Hirsch <BR> Tue 19 Pratteln (CH) Z7 <BR> Wed 20 Frankfurt (D) Batschkapp <BR> Thu 21 Halle (D) Easy Schorre <BR> Fri 22 Hamburg (D) Markthalle <BR><BR> Sat 23* Thessaloniki (GR) Hydrogios <BR> Sun 24* Athens (GR) Gagarin 205 sl <BR><BR> *In two last gigs will participate only Sentenced</p>
+
+Автор: Midnight Vampire
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 05.09.2002 news График релизов CENTURY MEDIA RECORDS....
+
+<p>Сент. 3 NOCTURNAL RITES - Shadowland<BR> Сент. 3 …AND OCEANS - Cypher<BR> Сент. 3 INTO ETERNITY - Dead Or Dreaming<BR> Сент. 17 SHADOWS FALL - The Art of Balance<BR> Окт. 15 YAKUZA - Way of the Dead<BR> Окт. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Окт. 29 LACUNA COIL - Comalies<BR> Окт. 29 ROTTING CHRIST - Genesis<BR> Нояб. 12 ICED EARTH - Tribute To The Gods<BR> Нояб. 12 BLOODBATH - Resurrection Through Carnage<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads....
+
+<p><font size="2" face="Arial, Helvetica, sans-serif">...And Oceans - <a href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</a><br> Avantasia - <a href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</a><br> Dark Tranquillity - <a href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</a><br> Into Eternity - <a href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</a><br> Lacuna Coil - <a href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</a><br> Nocturnal Rites - <a href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</a><br> Rotting Christ - <a href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</a><br> Shadows Fall - <a href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</a><br> Unleashed - <a href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</a></font><br> <SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif">Yakuza - <a href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</a></font></SPAN></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads...
+
+<P><FONT face="Arial, Helvetica, sans-serif" size=2>...And Oceans - <A href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</A><BR>Avantasia - <A href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</A><BR>Dark Tranquillity - <A href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</A><BR>Into Eternity - <A href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</A><BR>Lacuna Coil - <A href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</A><BR>Nocturnal Rites - <A href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</A><BR>Rotting Christ - <A href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</A><BR>Shadows Fall - <A href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</A><BR>Unleashed - <A href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</A></FONT><BR><SPAN style="FONT-FAMILY: Arial"><FONT face="Arial, Helvetica, sans-serif" size=2>Yakuza - <A href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</A></FONT></SPAN></P></>
+
+Автор: Yermola
+
+### 20.10.2002 reviews Вкусная жевательная резинка...
+
+<p>Это совсем не итальянская музыка. Вот если первые альбомы были мелодичны по итальянски, то сейчас их мелодизм относит нас к различным американским коллективам. Gothic-metal с мужским и женским вокалом создаёт некоторое впечатление вымученности. Музыка качественно записана, к исполнителям придраться нельзя, вот только ни одна мелодия не заставляет подпеть. Lacuna Coil сейчас, пусть вкусная, но жевательная резинка, которая к концу теряет вкус и её выплёвываешь. Группа не добилась ещё культового статуса, чтобы выпускать такие альбомы. Скучно...</p>
+
+Автор: Vit Belov
+
+### 20.10.2002 reviews Tasty chewing gum...
+
+<p>It is the completely not Italian music. If the first albums were melodious in Italian, now their melodics carries us to various American collectives. Gothic-metal with male and female vocals creates some impression of be tortured. Music is written down qualitatively, it is impossible to carp at the musicians, only any melody does not force to sing. Lacuna Coil now, let tasty, but chewing gun, which by the end loses taste and it will be spited. The group has not achieved the cult status to release such albums. Boringly...</p>
+
+Автор: Vit Belov
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Гость программы: Андрей Кузнецов - промо-менеджер компании ФОНО [www.fono.ru]<BR><BR> Playlist:<BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 23.01.2003 reviews Как минимум очаровательно...
+
+<p>Великолепно! <B>На удивление </B>великолепно. Не бейте меня, но все предыдущие работы LACUNA COIL, с которыми я имел сомнительную честь ознакомиться, в лучше случае навевали скуку. Однообразие и отсутствие ярких хитов, на мой взгляд, губительно для такого рода музыки. Что ж, на "Comalies" также нет хитов, – но лишь потому, что этот альбом представляет собой один большой хит. Это бесспорно самая удачная, наиболее осмысленная и разнообразная работа итальянцев, в которой сложно отыскать какие-либо очевидные недостатки. Разве что очевидная схожесть некоторых моментов с последними альбомами PARADISE LOST? Дык разве это минус? По мне, так скорее жирный плюс. В остальном… а что в остальном? Голос Кристины по-прежнему не уступает её внешности, Андреа же, быть может, сам того и не зная, во всём следует за Ником Холмсом. Вальдемар Сорихта по-прежнему замечательный звукоинженер, а Woodhouse – замечательная студия. А музыка… Музыка LACUNA COIL как была, так и остаётся тёплым, но оттого не менее меланхоличным gothic metal"ом. С той лишь разницей, что сейчас это действительно интересно слушать. Более того, "Comalies" как минимум очаровывает слушателя…</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 02.03.2003 reviews Худший альбом итальянцев
+
+<p>Пожалуй, это наименее любимая мною работа LACUNA COIL. Если их дебют ("Lacuna Coil" MCD) очаровал меня, "Halflife" оказался _просто_ недурственным альбомом, а "Comalies", в свою очередь, - великолепным, то "In a Reverie" просто неинтересен. Вроде бы всё то же самое, и Кристина, и Андреа на месте, к аранжировкам и качеству записи не придерёшься – ан нет, поди ж ты, не цепляет. Совершенно. Хотя любителям подобной музыки (т.е. мягкий (пост-дум?) металл с женским и мужским вокалами) "In a Reverie" должен понравиться. И последнее: чертовски приятно писать эти строки, зная, что средненький "In a Reverie" увидел свет без малого четыре года назад, в то время как последнюю работу LACUNA COIL "средненькой" не назовёшь при всём желании.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 01.04.2003 news LACUNA COIL will be returning to North America ...
+
+<p>In spite of all the mainstream hype over the crossover debut of Evanescence onto the popular music scene, long-time underground fans were quick to spot the similarity of their sound to LACUNA COIL's, who've been cultivating their musical craft since 1996. While this isn't an issue of who came first or even who does it better, all fingers point in the direction of us knowing a good thing when we hear it long before anyone else knows about it. <BR><BR> LACUNA COIL will be returning to North America for the second time in two years to provide direct support to the nationally-acclaimed Opeth on the Fair Judgment Tour, set to begin in Seattle, Washington on April 29th and to open for the headlining Danzig on the Blackest Of The Black tour featuring Superjoint Ritual, Nile, and Opeth for two shows. What does lead singer Cristina Scabbia have to say about the upcoming tours and the fan response to Comalies?<BR><BR> "I really can't wait! I've been waiting sooooo long for this moment! We spent so many good moments over there [in 2001] that we are just excited and happy to see all the people who have been waiting for us to arrive... I didn't really expect this kind of overwhelming reaction to Comalies even though I was sure about the good quality of the album itself. Can you believe we have never met Opeth before, even though we saw their great show in Milan with Katatonia [laughs]? I'm sure this trip will be a great chance to meet new fans, more great people, and some very talented musicians." <BR><BR> Check the tour dates section for North American show dates, cities, and venues. You'll have more than one month to decide which days you're gonna call in sick to work. Chicago's "death jazz-core" band Yakuza will be opening for the tour between April 29th & May 12th; Beyond The Embrace will open all shows for the last two weeks, beginning May 14th in Winston-Salem, North Carolina.</p>
+
+Автор: Yermola
+
+### 04.05.2003 news LACUNA COIL news...
+
+<p>"LACUNA COIL counter their moody gothic elements with lively prog-rock, frisky electronica, and dreamy ambient sections. It's [Cristina] Scabbia's voice, however, that steals the show." - Revolver Magazine<BR><BR> After a flying to Los Angeles to film their video for "Heaven's A Lie" - a track off their recent album Comalies (pronounced "coma-lize") - the six Italians that comprise LACUNA COIL have launched their three-week Fair Judgment Tour headlined by Opeth. Ever wonder what goes on at home before a tour? Lead singer Cristina Scabbia lets you in on it:<BR><BR> "What can I say about my Easter vacation? I stayed with my family, forgetting the chaos of the touristy places in Milan, and ate like a pig. I've never denied it: I love to cook and to eat, that's why when I get older, I'll be a fat whale, hahaha! Beside any jokes, I enjoyed so much this little bit of quiet time before the American tour with Opeth, when we'll be busy everyday, with our music. I really can't wait, believe me. See you there!"<BR><BR> Following the band's stint opening for Opeth and Danzig on the two-date "Blackest Of The Black" tour, LACUNA COIL will embark on their first North American headlining tour in late May with label mates INTO ETERNITY and Nuclear Blast's Tapping The Vein. Check the tour dates section for cities & venues.<BR><BR> Collectors, please note: Autographed versions of Comalies on vinyl and the import-only "Heaven's A Lie" single are available now from Century Media's Webshop and Mail-Order.</p>
+
+Автор: Yermola
+
+### 04.02.2004 news P.O.D. and Lacuna Coil in USA
+
+May 01 - Denver, CO - Fillmore Auditorium<BR>May 03 - Houston, TX - Verizon Wireless Theatre<BR>May 04 - Dallas, TX - NextStage<BR>May 05 - Tulsa, OK - Brady Theatre<BR>May 07 - St. Louis, MO - The Pagaent<BR>May 08 - Milwaukee, WI - Eagle's Ballroom<BR>May 09 - Cleveland, OH - Agora<BR>May 11 - Sayreville, NJ - Starland Ballroom<BR>May 12 - Toronto, ON - Kool Haus<BR>May 14 - Pittsburgh, PA - Rock Jungle<BR>May 15 - Columbus, OH - Promo West Pavilion<BR>May 16 - Atlanta, GA - Tabernacle<BR>May 19 - Myrtle Beach, SC - House Of Blues<BR>May 20 - Orlando, FL - House Of Blues<BR>May 22 - Washington, DC - TBA<BR>May 23 - Norfolk, VA - Constant Convocation Center @ ODU<BR>May 25 - New York, NY - Roseland Ballroom<BR>May 27 - Detroit, MI - State Theatre<BR>May 29 - Philadelphia, PA - Electric Factory<BR>May 30 - Boston, MA - TBA<BR>Jun. 01 - Cincinnati, OH - Bogart's<BR>Jun. 02 - Chicago, IL - Riviera<BR>Jun. 04 - Indianapolis, IN - Egyptian Room<BR>Jun. 05 - Kansas City, MO - Uptown Theatre<BR>Jun. 06 - Minneapolis, MN - Quest<BR>Jun. 08 - Calgary, AB - MacEwan Hall<BR>Jun. 09 - Edmonton, AB - Shaw Conference Center / Reds<BR>Jun. 11 - Vancouver, BC - Queen Elizabeth Theatre<BR>Jun. 12 - Seattle, WA - Moore Theatre<BR>Jun. 13 - Portland, OR - Roseland<BR>Jun. 15 - San Francisco, CA - Warfield<BR>Jun. 16 - Los Angeles, CA - Wiltern<BR>Jun. 18 - Las Vegas, NV - Joint<BR>Jun. 19 - Phoenix, AZ - Marquee<BR>Jun. 20 - San Diego, CA - Soma
+Автор: Vit Belov
+
+### 05.05.2004 news LACUNA COIL сочинили новые песни
+
+<P>По сообщению гитариста группы, <B>LACUNA COIL</B> уже сочинили 15 песен для нового альбома, который они собираются записать в конце года, а выпустить в начале 2005-го. </P>
+Автор: Vit Belov
+
+### 07.11.2004 news Светская хроника: вокалистка LACUNA COIL + гитарист SLIPKNOT &#x3D; ?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=375 alt="" hspace=0 src="/images/news_rus/2004.11/7326.jpg" width=250 align=left border=5>Активно муссируются слухи об интрижке между одной из самых красивых вокалисток в heavy-metal <STRONG>Cristina Scabbia (LACUNA COIL) </STRONG>и гитаристом <STRONG>SLIPKNOT Jim Root</STRONG>. Как стало известно, <STRONG>Scabbia</STRONG> рассталась со своим прежним женихом басистом<STRONG> LACUNA COIL</STRONG> <STRONG>Marco Coti Zelati</STRONG> и активно проводит время с гитаристом американцев на их концертах в Европе и Штатах.</FONT></P>
+Автор: Vit Belov
+
+### 08.11.2004 articles TOP-50 лицензионных дисков по продажам за октябрь 2004 года*
+
+<TABLE cellSpacing=0 cellPadding=0 width=700 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 213pt; mso-width-source: userset; mso-width-alt: 10386" width=284>
+<COL style="WIDTH: 216pt; mso-width-source: userset; mso-width-alt: 10532" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 213pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=284><STRONG><FONT face=Arial size=2>RAMMSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 216pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=288><STRONG><FONT face=Arial size=2>REISE REISE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>BMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>RHAPSODY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SYMPHONY OF ENCHANTED LANDS, PART II</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DARKTHRONE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SARDONIC WRATH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>STORMWARRIOR</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NORTHERN RAGE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>FEINSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THIRD WISH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PUNGENT STENCH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMPEAUTY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHAPE OF DESPAIR</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ILLUSION'S PLAY</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>9 (19)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THROES OF DAWN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DOWN BELOW</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SILENT WINGS:ETERNITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>11 (6)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHITE SKULL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE XIII SKULL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWALLOW THE SUN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE MOURNING NEVER CAME</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VICTOR SMOLSKI</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAJESTY AND PASSION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BENEATH THE SHINING WATER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (3)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAKE OF TEARS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>18 (27)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>19 (15)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>20 (17)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>OCEAN MACHINE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>22 (30)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B (2 CD +<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>slipcase)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHAMBER</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MILES AWAY - A PREMONITION OF SOLITUDE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PAIN OF SALVATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="BE "><FONT size=2><FONT face=Arial>BE<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SPASTIC INK</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INK COMPATIBLE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNLEASHED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWORN ALLEGIANCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HEART</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>JUPITER's DARLING</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>29 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA:GLUT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>31 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LACUNA COIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>COMALIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (7)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALTARIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIVINITY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (2)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SAXON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LIONHEART</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>34 (16)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>35 (11)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNHEILIG</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS 2 GEBOT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MONSTERS OF METAL</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE ULTIMATEL METAL COMPILATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (8)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>39 (43)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE + WISH I HAD AN ANGEL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANOREXIA NEVROSA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRUDENHAUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALAN PARSONS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>A VALID PATH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEAD SOUL TRIBE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE JANNUARY TREE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PHYSICIST</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>GRAVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIENDISH REGRESSION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AYREON</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRACONIAN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHERE LOVERS MOURN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOKEN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PUNCH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ESTAMPIE</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIGNUM</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (32)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>*по результатам продаж в магазине 'Metal&Progressive' в Рубине</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 25.03.2005 news LACUNA COIL продолжают работу над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>LACUNA COIL</STRONG> продолжают пре-продукцию к новому альбому вместе с продюсером <STRONG>Waldemar Sorychta</STRONG> (<STRONG>MOONSPELL</STRONG>, <STRONG>TIAMAT</STRONG>). Вокалистка <STRONG>Cristina</STRONG>: "<EM>Мы всё ещё сочиняем новые песни, и я горжусь свежим материалом. Мы представим некоторые из них на летних фестах</EM>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей, последний опус итальянцев "<STRONG>Comalies</STRONG>" преодолел рубеж 200.000 проданных копий в США.</FONT></P>
+Автор: Vit Belov
+
+### 16.09.2005 news LACUNA COIL вошли в студию
+
+<P><STRONG>LACUNA COIL</STRONG> вошли в студию 3 сентября для записи нового альбома "<STRONG>Karmacode</STRONG>" вместе с <STRONG>Waldemar Sorychta</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.12.2005 news Новый LACUNA COIL готов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>LACUNA COIL "Karmacode"</STRONG> готов и выйдет в апреле на <STRONG>Century Me</STRONG>dia. Вот некоторые названия песен: <STRONG>"What I See"</STRONG>, <B>"Fragile"</B>, <B>"In Visible Light"</B>, <B>"Fragments of Faith"</B>, <B>"Within Me"</B>&nbsp;и <B>"Our Truth"</B>.</FONT></P>
+Автор: Vit Belov
+
+### 12.01.2006 news Новая песня LACUNA COIL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>LACUNA COIL "Our Truth"</STRONG>&nbsp;с саундтрэка к фильму "<STRONG>Underworld</STRONG>" можно послушать на сайте: <A href="http://music.aol.com/songs/new_releases_full_cds?icid=songs:lp">http://music.aol.com/songs/new_releases_full_cds?icid=songs:lp</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Выбирайте "<STRONG>Underworld</STRONG>" в верхнем меню и пролистывайте список песен до <STRONG>LACUNA COIL</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 02.02.2006 news Кавер-арт LACUNA COIL
+
+<P><STRONG>
+<CENTER>Century Media</STRONG> опубликовали кавер-арт нового альбома<STRONG> LACUNA COIL "Karmacode</STRONG>".</CENTER>
+<P></P>
+<P>
+<CENTER><IMG height=288 src="/images/news_rus/2006.02/9980.jpg" width=288 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 09.02.2006 news На новый LACUNA COIL войдёт кавер
+
+<P>Как мы уже сообщали, в апреле на <STRONG>Century Media</STRONG> выходит новый альбом <STRONG>LACUNA COIL "Karmacode</STRONG>". Стало известно, что завершающим трэком на этой пластинке станет кавер <STRONG>DEPECHE MODE "Enjoy The Silence</STRONG>".</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 22.05.2006 news LACUNA COIL запускают новый сингл.
+
+<P>26 июня <STRONG>Century Media</STRONG> выпускает очередной сингл <STRONG>LACUNA COIL 'Enjoy the Silence'</STRONG> в следующих вариантах: </P>
+<P><STRONG>Enjoy the Silence - Vol I (CD single Digipack+Poster)<BR>1. Enjoy the Silence<BR>2. To the Edge (Live)<BR>3. Fragile (Live)<BR>4. Enchanced Video Interview</STRONG></P>
+<P><STRONG>Enjoy the Silence - Vol II (CD single)<BR>1. Enjoy the Silence<BR>2. Virtual Environment (Non Album bonus track )</STRONG></P>
+<P><STRONG>Enjoy the Silence - Vol III ( 7" Blue Coloured Vinyl )<BR>1. Enjoy the Silence<BR>2. Silence</STRONG></P>
+Автор: Bizarre
+
+### 27.09.2008 news LACUNA COIL выступят в России
+
+<P><STRONG>LACUNA COIL</STRONG> назначили два концерта в России. 16 декабря они выступят в клубе "Точка" в Москве, а 17 декабря в питерском клубе "Порт".</P>
+Автор: Vit Belov
+
+### 03.10.2008 news LACUNA COIL выпускают DVD
+
+<P><IMG height=548 alt="" hspace=0 src="/images/news_rus/2008.10/12899.jpg" width=400 align=right border=5>Первый DVD <STRONG>LACUNA COIL</STRONG> <STRONG>"Visual Karma (Body, Mind and Soul)"</STRONG> выходит в ноябре на <STRONG>Century Media</STRONG>. Трэк-лист:</P>
+<P>Wacken Open Air 2007 in Wacken, Germany: <BR itxtvisited="1">01. <B itxtvisited="1">Intro</B> <BR itxtvisited="1">02. <B itxtvisited="1">To The Edge</B><BR itxtvisited="1">03. <B itxtvisited="1">Fragments Of Faith</B><BR itxtvisited="1">04. <B itxtvisited="1">Swamped</B> <BR itxtvisited="1">05. <B itxtvisited="1">In Visible Light</B> <BR itxtvisited="1">06. <B itxtvisited="1">Fragile</B> <BR itxtvisited="1">07. <B itxtvisited="1">Closer</B> <BR itxtvisited="1">08. <B itxtvisited="1">Senzafine</B> <BR itxtvisited="1">09. <B itxtvisited="1">What I See</B> <BR itxtvisited="1">10. <B itxtvisited="1">Enjoy The Silence</B> <BR itxtvisited="1">11. <B itxtvisited="1">Heaven's A Lie</B> <BR itxtvisited="1">12. <B itxtvisited="1">Our Truth</B><BR itxtvisited="1">Loudpark 2007 in Japan: <BR itxtvisited="1">01. <B itxtvisited="1">Intro/To The Edge</B> <BR itxtvisited="1">02. <B itxtvisited="1">Swamped</B> <BR itxtvisited="1">03. <B itxtvisited="1">Closer</B> <BR itxtvisited="1">04. <B itxtvisited="1">Within Me</B> <BR itxtvisited="1">05. <B itxtvisited="1">Daylight Dancer</B> <BR itxtvisited="1">06. <B itxtvisited="1">Our Truth</B><BR itxtvisited="1">Promotional Videos:<BR itxtvisited="1">* <B itxtvisited="1">Our Truth</B> (Promotional Video) <BR itxtvisited="1">* <B itxtvisited="1">Enjoy The Silence</B> (Promotional Video) <BR itxtvisited="1">* <B itxtvisited="1">Closer</B> (Promotional Video) <BR itxtvisited="1">* <B itxtvisited="1">Within Me</B> (Promotional Video) <BR itxtvisited="1">Other features:<BR itxtvisited="1">* The Band: Simple As Water <BR itxtvisited="1">* Inside Milan <BR itxtvisited="1">* The Leaning Journey Of Pizza <BR itxtvisited="1">* 7-Seven... Strings Life <BR itxtvisited="1">* The Real Thing <BR itxtvisited="1">* Enter The Drummer <BR itxtvisited="1">* Behind The Scenes: Australian Tour 2007 <BR itxtvisited="1">* First Time In Japan <BR itxtvisited="1">* Making Of "Our Truth" Video <BR itxtvisited="1">* Making Of "Closer" Video <BR itxtvisited="1">* Fan Submissions (LACUNA COIL's Introductory Clip) <BR itxtvisited="1">* Empty Spiral Interview <BR itxtvisited="1">* To The Edge Remix Contest (Photogallery) <BR itxtvisited="1">* Inside The Spiral (Link) <BR itxtvisited="1">* Links <BR itxtvisited="1">A limited-edition four-disc pakage will include:<BR itxtvisited="1">* A 5.1 mix of the <B itxtvisited="1">"Karmacode"</B> album on audio DVD. <BR itxtvisited="1">* A bonus CD with the <B itxtvisited="1">Wacken Open Air</B> audio live material.</P>
+Автор: Vit Belov
+
+### 14.12.2008 news Название нового LACUNA COIL
+
+<P><STRONG>LACUNA COIL</STRONG> назвали свою новую пластинку <STRONG>"Shallow Life". </STRONG>Альбом выйдет весной <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.01.2009 news Cristina Scabbia: &quot;Новый альбом более &quot;роковый&quot;.
+
+<P><IMG height=289 alt="" hspace=0 src="/images/news_rus/2009.01/13392.jpg" width=250 align=left border=5>Новый альбом <STRONG>LACUNA COIL "Shallow Life"</STRONG> выйдет в апреле на <STRONG>Century Media</STRONG>. Группа записала его в США в студии <STRONG>NRG </STRONG>с продюсером <STRONG>Don Gilmore (LINKIN PARK</STRONG>, <STRONG>TRAPT</STRONG>, <STRONG>AVRIL LAVIGNE</STRONG>, <STRONG>GOOD CHARLOTTE</STRONG>, <STRONG>THE VERONICAS</STRONG>, <STRONG>PEARL JAM</STRONG>, <STRONG>TRUST COMPANY,</STRONG> <STRONG>DURAN DURAN). </STRONG>В интервью журналу<STRONG> Revolver</STRONG> певица итальянцев <STRONG>Cristina Scabbia</STRONG> рассказала о новой работе:</P>
+<P>"<EM>Нам кажется, что энергетика нового альбома полностью отличается от наших предыдущих работ. Он более "роковый". Я думаю, это связано с тем, что в последнее время мы много путешествовали по миру, и всё, что мы слышали по радио и в других местах, оказало на нас влияние. По-моему, у нас получилась отличная смесь старого европейского саунда и современного нового звучания. Некоторые места очень тяжёлые. Здорово, что нам удалось привнести в нашу музыку что-то новое, не потеряв ничего из старого</EM>".</P>
+Автор: Vit Belov
+
+### 12.02.2009 news LACUNA COIL назначили дату
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> LACUNA COIL "Swallow Life"</STRONG> выйдет 20 апреля на <STRONG>Century Media</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 24.02.2009 news Трэк-лист LACUNA COIL
+
+<P>Новый альбом<STRONG> LACUNA COIL</STRONG> <STRONG>"Shallow Life" </STRONG>выходит 20 апреля на<STRONG> Century Media</STRONG>. Опубликован список песен этой работы:</P>
+<P>01. <B itxtvisited="1">Survive</B><BR itxtvisited="1">02. <B itxtvisited="1">I Won't Tell You</B><BR itxtvisited="1">03. <B itxtvisited="1">Not Enough</B><BR itxtvisited="1">04. <B itxtvisited="1">I'm Not Afraid</B><BR itxtvisited="1">05. <B itxtvisited="1">I Like It</B><BR itxtvisited="1">06. <B itxtvisited="1">Underdog</B><BR itxtvisited="1">07. <B itxtvisited="1">The Pain</B><BR itxtvisited="1">08. <B itxtvisited="1">Spellbound</B><BR itxtvisited="1">09. <B itxtvisited="1">Wide Awake</B><BR itxtvisited="1">10. <B itxtvisited="1">The Maze</B><BR itxtvisited="1">11. <B itxtvisited="1">Unchained</B><BR itxtvisited="1">12. <B itxtvisited="1">Shallow Life</B></P>
+Автор: Vit Belov
+
+### 25.02.2009 news Новая песня LACUNA COIL
+
+<P>Новая песня <STRONG>LACUNA COIL "Spellbound"</STRONG> с выходящего альбома "<STRONG>Shallow Life</STRONG>" доступна на <STRONG>MySpace</STRONG> страничке группы.</P>
+<P>Ссылка: <A href="http://www.myspace.com/lacunacoil">http://www.myspace.com/lacunacoil</A></P>
+Автор: Vit Belov
+
+### 28.02.2009 news Обложка новой LACUNA COIL
+
+<P><STRONG>LACUNA COIL</STRONG> выложили в сеть обложку своей новой пластинки "<STRONG>Shallow Life</STRONG>". Альбом выйдет 20 апреля на <STRONG>Century Media</STRONG>.</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.02/13686.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.04.2009 news Новая LACUNA COIL - всего одну неделю
+
+<P>Новую работу <STRONG>LACUNA COIL "Shallow Life"</STRONG> можно послушать на <STRONG>MySpace</STRONG> группы: <A href="http://www.myspace.com/lacunacoil">http://www.myspace.com/lacunacoil</A>&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пластинка выйдет 20 апреля на <STRONG>Century Media</STRONG>, а "стрим" доступен всего одну неделю.</FONT></P>
+Автор: Vit Belov
+
+### 20.04.2009 news OLD MAN&#39;S CHILD и LACUNA COIL выйдут на Mazzar
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отечественный лэйбл<STRONG> Mazzar Records</STRONG> сообщил, что подписал контракт с <STRONG>Century Media</STRONG> на выпуск новых альбомов<STRONG> LACUNA COIL "Shallow Life"</STRONG> и <STRONG>OLD MAN'S CHILD "Slaves Of The World"</STRONG>. Лицензионные релизы увидят свет уже в мае.</FONT></P>
+Автор: Vit Belov
+
+### 30.04.2009 news LACUNA COIL круче
+
+<P>21000 копий нового альбома <STRONG>LACUNA COIL "Shallow Life" Century Media</STRONG> продали в США в первую неделю. Группа попала на 16-ое место в чарты!!!</P>
+Автор: Vit Belov
+
+### 06.06.2009 reviews Неисповедимы пути спроса
+
+<P>Итальянская группа LACUNA COIL – отличный пример непредсказуемости спроса на рынке тяжёлой музыки. В США новая пластинка этих gothic-metal’истов попала в чарты Billboard, а продажи альбома можно считать феноменальными.</P>
+<P>При этом к LACUNA COIL большинство увлекающихся тяжёлой музыкой серьёзно относятся достаточно ровно. Тоже касается и критиков, и журналистов, по крайней мере, у нас в России и Европе. Лично я не нахожу чего-нибудь сверхъестественного в творчестве итальянцев уже лет 10. На каждом альбоме есть две-три неплохие вещи, но дослушать до конца опус бывает трудновато. Описываемая пластинка относится к этому ряду. Она ровная, качественная и очень правильная. Видно, что потрудились маститые американские продюсеры. Это вам не Waldemar Sorychta, у которого LACUNA COIL начинали, здесь знают, как попасть в чарты. Мне неизвестно, из-за чего LACUNA COIL так популярны в США, на ум приходит только симпатичная вокалистка, но, думается, за океаном хватает и своих миловидных итальянок.</P>
+<P>Не то что бы у нас не хватает миловидных брюнеток, но шанс LACUNA COIL только в госпоже Scabbia. Её лицо мы уже видели в крупнейших отечественных печатных изданиях, а недавно даже появился сайт ей лично посвящённый. Музыкально же gothic-metal от итальянцев с двумя вокалами, примесью pop и крохой death-doom-metal не заслуживает столь пристального внимания.</P>
+Автор: Vit Belov
+
+### 06.07.2009 news Новое видео LACUNA COIL
+
+<P>Видеоклип на песню<STRONG> LACUNA COIL "I Like It"</STRONG> можно посмотреть ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/DaN_nEVKWCI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/DaN_nEVKWCI&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.11.2009 news Cristina Scabbia споёт на празднике
+
+<P>Продолжают объявлять имена вокалистов, которые примут участие в голландской <STRONG>"Christmas Metal Symphony", </STRONG>анонсированной на 20 декабря в Тилбурге. <STRONG>Cristina Scabbia</STRONG> из <STRONG>LACUNA COIL</STRONG> станет одной из героинь этого вечера.</P>
+<P>"<EM>Я спою кое-что из репертуара LACUNA COIL, а так же несколько классических вещей для тяжёлого рока. И всё это в сопровождении оркестра</EM>", - рассказала <STRONG>Cristina</STRONG>. </P>
+<P>Вот список уже привлечённых вокалистов:</P>
+<P>* <B>Charlotte Wessels</B> (DELAIN) <BR>* <B>Cristina Scabbia</B> (LACUNA COIL)<BR>* <B>Damian Wilson</B> (THRESHOLD)<BR>* <B>Joakim Broden</B> (SABATON) <BR>* <B>Jorn Lande</B> (MASTERPLAN) <BR>* <B>Mats Leven</B> (ex-THERION) <BR>* <B>Simone Simons</B> (EPICA)<BR>* <B>Udo Dirkschneider</B> (U.D.O. , ex-ACCEPT) </P>
+Автор: Vit Belov
+
+### 18.11.2009 news Очаровательная Cristina против тестов
+
+<P><IMG height=395 alt="" hspace=0 src="/images/news_rus/2009.11/15569.jpg" width=300 align=left border=5>Вокалистка<STRONG> LACUNA COIL Cristina Scabbia</STRONG> выступила лицом акции организации по защите прав животных <STRONG>peta2</STRONG>. <STRONG>Cristina</STRONG> предупреждает покупателей, чтобы они покупали только "свободные от жестокости" продукты, и выступает против экспериментов над животными.</P>
+<P>"<EM>Я просто человек</EM>", - говорит <STRONG>Cristina</STRONG>.&nbsp;"<EM>Но тесты над животными это то, что унижает нашу красоту</EM>".</P>
+Автор: Vit Belov
+
+### 12.01.2010 news Новое видео LACUNA COIL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео <STRONG>LACUNA COIL</STRONG> на песню <STRONG>"I Won't Tell You" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=102052340,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=102052340,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.06.2011 news LACUNA COIL назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=539 alt="" hspace=0 src="/images/news_rus/2011.06/19716.jpg" width=475 align=right border=0>Итальянцы <STRONG>LACUNA COIL</STRONG> назвали свой шестой полноформатный альбом <STRONG>"Dark Adrenaline". </STRONG>Пластинка должна выйти в октябре на<STRONG> Century Media</STRONG>. Продюссированием новой музыки коллектива вновь занимался<STRONG> Don</STRONG> <STRONG>Gilmore</STRONG> (<B>PEARL JAM</B>, <B>LINKIN PARK</B>, <B>BULLET FOR MY VALENTINE</B>). Альбом на этот раз был записан в Италии, так как музыканты хотели&nbsp;подойти к новому материалу с более персональных позиций. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>На этот раз в музыке много личных переживаний от неприятных дней нашей жизни</EM>", - рассказывает вокалист <STRONG>Andrea Ferro</STRONG>. По его же словам, некоторые вещи очень злые и тяжелейшие в истории группы. "<EM>Многие фэны спрашивают нас, будет ли этот альбом возвращением к корням, или мы двинемся в новом направлении</EM>", - продолжает музыкант. "<EM>Могу сказать, этот альбом 100-процентная LACUNA COIL</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом закончен, и летом группа отправляется на музыкальные фестивали. В планах концерты на <STRONG>Greenfield</STRONG>, <B>Graspop Metal Meeting</B>&nbsp;и испанском&nbsp;<B>Sonisphere.</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущий альбом <STRONG>LACUNA COIL</STRONG> <STRONG>"Shallow Life" </STRONG>вышел в 2009 году на <STRONG>Century Media</STRONG>, а в России был издан на <STRONG>Mazzar</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 20.07.2011 news LACUNA COIL перенесли
+
+<P>Лэйбл<STRONG> Century Media</STRONG> перенёс на 2012 год релиз нового альбома итальянцев<STRONG> LACUNA COIL</STRONG> <STRONG>"Dark Adrenaline". </STRONG>Ранее анонсировалось, что пластинка выйдет в октябре этого года.</P>
+<P>Причина переноса не сообщается.</P>
+<P><center><IMG height=450 src="/images/news_rus/2011.07/20255.jpg" width=300 border=0></P>
+Автор: Vit Belov
+
+### 22.09.2011 news Трек-лист новой LACUNA COIL
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2011.09/21207.jpg" width=448 align=right border=0>Новый альбом <STRONG>LACUNA COIL "Dark Adrenaline"</STRONG> выйдет 24 января на <STRONG>Century Media</STRONG>. Стал известен трек-лист этой работы:</P>
+<P>01.<STRONG> Trip The Darkness</STRONG><BR>02. <STRONG>Against You<BR></STRONG>03. <STRONG>Kill the Light</STRONG><BR>04. <STRONG>Give Me Something More</STRONG><BR>05. <STRONG>Upsidedown<BR></STRONG>06. <STRONG>End of Time</STRONG><BR>07. <STRONG>I Don't Believe in Tomorrow</STRONG><BR>08. <STRONG>Intoxicated<BR></STRONG>09. <STRONG>The Army Inside</STRONG><BR>10. <STRONG>Losing My Religion</STRONG><BR>11. <STRONG>Fire<BR></STRONG>12. <STRONG>My Spirit</STRONG></P>
+Автор: Vit Belov
+
+### 09.11.2011 news LACUNA COIL: трек-лист и обложка альбома &quot;Dark Adrenaline&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.11/21940.jpg" width=400 height=400>Уже можно полюбоваться обложкой для <B>"Dark Adrenaline"</B>, нового альбома итальянской группы <B>LACUNA COIL</B>. CD выйдет 24 января на <B>Century Media Records</B>.<BR><BR>Трек-лист<STRONG> "Dark Adrenaline"</STRONG>:<BR><BR>01. <B>Trip The Darkness</B><BR>02. <B>Against You</B><BR>03. <B>Kill The Light</B><BR>04. <B>Give Me Something More</B><BR>05. <B>Upsidedown</B><BR>06. <B>End Of Time</B><BR>07. <B>I Don't Believe In Tomorrow</B><BR>08. <B>Intoxicated</B><BR>09. <B>The Army Inside</B><BR>10. <B>Losing My Religion</B><BR>11. <B>Fire</B><BR>12. <B>My Spirit</B></P>
+Автор: Headcrusher
+
+### 14.12.2011 news Видео-премьера от LACUNA COIL
+
+<P>Новый ролик итальянцев <STRONG>LACUNA COIL</STRONG> на песню <STRONG>"Trip The Darkness" </STRONG>можно посмотреть ниже. Режиссёр видео-клипа <STRONG>Sitcom Soldiers</STRONG> (<B>FUNERAL FOR A FRIEND</B>, <B>THE BLACKOUT</B>). Песня попадёт на будущий альбом коллектива <STRONG>"Dark Adrenaline"</STRONG>, который выйдет в начале следующего года.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/HEtnZB6DwAw?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/HEtnZB6DwAw?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.01.2012 news Трейлер новой LACUNA COIL
+
+<P>Новый диск <STRONG>LACUNA COIL "Dark Adrenaline"</STRONG> выходит 24 января на <STRONG>Century Media</STRONG>. Ниже можно посмотреть трейлер этой работы.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/az0dCxbsx9M?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 01.04.2012 reviews Нужно больше женского
+
+<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<P>Странная всё-таки группа LACUNA COIL. Итальянцы страдают раздвоением личности, и это сильно мешает коммерческому продвижению их музыки, несмотря на все усилия лэйбла Century Media.</P>
+<P>Безусловно, этот коллектив имеет все шансы на полноценный успех в современной тяжёлой музыке. Лэйбл позиционирует LACUNA COIL как gothic-metal с женским вокалом, который пользуется большой популярностью по всему миру. Но сами музыканты активно сопротивляются этому ярлыку. Кажется, что каждый раз приступая к записи нового альбома, ребята вспоминали свои первые альбомы, которые очень сильно ценятся именно поклонниками метала, но не готики. Более того, по какой-то причине LACUNA COIL продолжают довольно активно использовать мужской вокал Andrea Ferro, но этого от них мало кто ждёт. Слушатель заряжен на черноволосую красотку Cristina Scabbia, а слабый романтический голос этого мужчины её не занимает. Прибавьте к этому невыразительные мелодии последних альбомов итальянцев, и вам всё станет понятно. Нудные запевы от девушки публика готова прощать, но постоянно вмешивающийся в процесс прощения парень просто-таки раздражает. Следует отметить, что на обозреваемом альбоме LACUNA COIL провели небольшую работу над ошибками. Им удалось создать штук 5-6 действительно приятных попсовеньких мелодий. Правда, мужчина самоустраняться по-прежнему не спешит, по этой причине итальянцам слава WITHIN TEMPTATION не грозит.</P>
+<P>Неожиданно хороший альбом от LACUNA COIL, которые в этот раз постарались создать несколько хитов, и, в отличие от предыдущих случаев, у них что-то получилось. Пластинка слушается весело и ненапряжно, а это самое главное для альбомов в таком стиле.</FONT></P>
+Автор: Vit Belov
+
+### 29.10.2012 articles LACUNA COIL, Санкт-Петербург, &quot;ГлавClub&quot;, 13 октября 2012
+
+<P><STRONG>LACUNA COIL, Санкт-Петербург, "ГлавClub", 13 октября, 2012</STRONG></P>
+<P>Лично мне ничто не испортило впечатление от концерта Lacuna Coil: ни валящая со сцены стена полуразборчивого музыкального шума, который вполне можно было расшифровать при помощи воображения и знания материала группы; ни то, что пиво по вменяемой цене закончилось уже к середине концерта, но это в принципе не должно было удивить тех, кто уже бывал в ГлавClub’е.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.10/25006.jpg" width=500 height=333> 
+<P></P>
+<P>А пели итальянцы песни со всех своих альбомов и даже не обошли вниманием первый EP. Причина это ретроспективы – пятнадцатый год творческой деятельности коллектива. Солидная дата. И отмерили они этот срок, замечу, практически в неизменном составе. Только вот в тур 2012 года отправились четверо из шести оригинальных участников группы. Барабанщик Кристиано Моццати остался дома нянчить свою новорожденную дочурку, а бас-гитарист Марко Дзелати взял больничный по нешуточной причине - воспаление сухожилия на руке. Кстати , сессионно бас-гитариста&nbsp; на концерте никто не заменял. Видимо , до последнего момента Марко надеялся отправиться в тур и группа просто не успела подобрать достойную кандидатуру на замену.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.10/25007.jpg" width=500 height=333> 
+<P></P>
+<P>Фронвумен Кристина Скаббия на сцене просто великолепна: воплощение женственности, гармонии и профессионализма. В свои 40 лет она сохранила нетронутую временем красоту, живую энергию и неподдельную искренность. Чистота и проникновенность исполнения всех песен восхищает. Досадно, что её голос часто тонул в неидеальном саунде.</P>
+<P>Андреа Ферро (второй вокалист), присутствие которого в группе у многих моих друзей, поклонников Lacuna Coil, почему-то вызывает лёгкое раздражение, мне кажется, на концерте пристал в достаточно выгодном свете. Надрывность и непреглаженность живого исполнения явно пошли на пользу и придали больше органичности их дуэту с Кристиной. Движения на сцене Андреа немного нарочиты, но желание наладить контакт с залом искреннее – это подкупает.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.10/25008.jpg" width=500 height=333> 
+<P></P>
+<P>Запомнился гитарист Кристиано Мильоре своей окладистой седой бородой и не сходящей с лица заражающей улыбкой. Ещё у него очень национально-кулинарное прозвище: “Pizza”. Если у Кристиано были бы русские корни, то по логике он мог бы прийти к альтернативным вариантам “Кулебяка” или “Сырник”. Мне кажется, это тоже неплохо звучит. Кстати, в конце выступления нами был пойман его именной медиатор, на обратной стороне которого нарисован треугольник пиццы, с задумчивым взглядом смолящий сигару. Видимо, курение - это вторая его слабость. Хотя не будем забегать вперёд.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.10/25009.jpg" width=500 height=333> 
+<P></P>
+<P>Отыграв девять песен, группа удалилась со сцены, что привело в недоумение одного особо разговорчивого бармена: с чего это вдруг антракт посреди рок-концерта, никогда такого не было. Но сцена пустовала не долго. Музыканты, сменив туровую униформу с красными крестами на обычные футболки и рубашки, сыграли небольшой акустический сет, состоящий из пяти композиций. Вот тут-то можно было вполне насладится вокалом Кристины и послушать некоторые песни Lacuna Coil в непривычной акустической аранжировке. Очень порадовало исполнение “Falling”, которую, я признаюсь, очень ждал. Спорным был выбор “End of Time”, так как эта песня с последнего альбома 2012 года “Dark Adrenaline”, а по свежим следам хотелось услышать оригинал.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.10/25010.jpg" width=500 height=333> 
+<P></P>
+<P>После акустики концерт опять понёсся по накатанным электрическим рельсам. Кристина и Андреа в паузах активно проводили разъяснительную работу с залом на протяжении всего концерта, как правило, на тему самих песен. Последней была исполнена песня-посвящение почившему два года назад вокалисту Type O Negative&nbsp; Питеру Стилу.</P>
+<P>
+<CENTER><IMG border=0 src="/images/articles_rus/2012.10/25011.jpg" width=500 height=333> 
+<P></P>
+<P>К сожалению, музыканты не захотели выйти для общения и раздачи автографов к ожидающим их поклонникам, но почти двухчасовое шоу с мощнейшим посылом в зал полностью искупает этот досадный минус.</P>
+<P>&nbsp;</P>
+<P><EM>Текст: <STRONG>Павел Кожуховский</STRONG></EM></P>
+<P><EM>Фотографии: <STRONG>Анастасия Пестряева</STRONG></EM></P>
+<P>Больше фотографий с концерта: <A href="/ru/galleries/1/1101">http://musica.mustdie.ru/ru/galleries/1/1101</A></P>
+<P>Сет-лист:</P>
+<P>1. I Don't Believe in Tomorrow <BR>2. I Won't Tell You <BR>3. Kill the Light <BR>4. Senzafine <BR>5. Heaven's a Lie <BR>6. Self Deception <BR>7. Entwined <BR>8. To the Edge <BR>9. Give Me Something More </P>
+<P>10. Falling (Acoustic)<BR>11. Closer (Acoustic) <BR>12. Within Me (Acoustic)<BR>13. End of Time (Acoustic)<BR>14. Shallow Life (Acoustic)</P>
+<P>15. Our Truth <BR>16. Upsidedown <BR>17. To Live Is to Hide<BR>18. Fragile <BR>19. Swamped <BR>20. No Need to Explain <BR>21. Survive <BR>22. Trip the Darkness <BR>23. Spellbound <BR>24. My Spirit</P></CENTER></CENTER></CENTER></CENTER></CENTER></CENTER>
+Автор: Headcrusher
+
+### 01.12.2012 articles Wave Gotik Treffen 2012, 25 - 28 мая, Лейпциг, Германия
+
+<H2>25 мая 2012, пятница: Первый день</H2>/ <A href="/ru/galleries/61/1051">Галерея</A> 
+<P>Первый день начался традиционно с языческой деревни. Нет, конечно же при желании можно начать фестивальную пятницу в клубе или в парке Агра, но мне нравится открывать для себя WGT под звуки волынок. К тому же в этот день деревня не забита людьми — можно спокойно побродить по территории, поразглядывать товар на прилавках и выпить бокал медового вина.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1055/30386.jpg"></DIV>
+<P>Деревня располагается на территории исторического объекта — водяной мельницы Дёлиц и её ворота открываются в 11 утра. У языческого поселения своя программа, которая стоит особняком. Выступления групп сменяют театрализованные представления, танцы и чтения — с утра и до поздней ночи. Но в пятницу мне довелось увидеть лишь Reliquiae — команду, играющую средневековый фолк. Группа была создана в 2009 году пятью музыкантами, которые поставили своей целью тщательно изучить традиции и культуру средневековья и донести их до современности с помощью музыки.</P>
+<P>Следующим обязательным номером пятничной программы стал викторианский пикник в парке Клары Цеткин. Формально его суть в том, что на пикник приходят все желающие с пледами, корзинками, легкой едой и напитками — всем, что нужно для пикника. Единственное условие — дресс-код: главные действующие лица должны быть одеты в наряды в викторианском стиле, в стиле стим-панк, барокко, рококо или во что-то, приближающееся к этим стилям. Фактически же участники пикника пускают фантазию вскачь и можно встретить костюмы, относящиеся к каким угодно эпохам, даже реально не существовавшим.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1055/30422.jpg"></DIV>
+<P>Начало официально назначено на 15:00, но люди начинают собираться раньше, хотя первое время фотографов на лужайках парка гораздо больше, чем гостей пикника. Зрелище поистине грандиозное, ибо пикник с каждым годом привлекает все больше людей и их фантазия становится всё изощреннее. В прошлые годы их креативность находила отражение в выборе одеяния и аксессуаров, но в этот раз одной паре удалось удивить всех присутствующих, когда они <A href="/images/picts/1056/30437.jpg">прибыли на белой карете с кучером</A>, запряженной парой лошадей. Я уверена, что любой эстет, фанат реконструкции или просто любитель выразить себя в одежде просто обязан посетить это мероприятие.</P>
+<P>Но всё это касается немузыкальных событий, скажем так, а именно выступления групп начинаются обычно на главной сцене Агры ближе к вечеру. В этом году открывали фестиваль метал-фолкеры Tanzwut — причем открыли шумно, весело и бодро. Действительно прекрасный выбор группы для яркого начала фестиваля, Тойфель и компания зажгли, совместив свои лучшие хиты с песнями из альбома Wei&#223;e Nachte, который вышел в 2011 году.</P>
+<P>Следующей концертной площадкой этого дня стал Кольрабициркус, где я планировала увидеть Соню Краусхофер с ее относительно новым проектом Coma Divine и — уже под конец дня — хэдлайнеров Lacuna Coil.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1051/30271.jpg"></DIV>
+<P>Coma Divine можно пожалуй охарактеризовать как готик-метал с легким налётом шизофрении. Соня и раньше питала слабость к вычурности и безумной эстетике и в новом проекте она развернулась вовсю: стилистически выверенные костюмы всей группы напоминающие оборванные робы пациентов викторианской психбольницы; музыка с внезапными переходами, паузами и взлётами; шёпот , переходящий в крик; странные танцы с изломанными движениями. Я надеюсь, что возможность самовыражаться в этом проекте приносит музыкантам радость, ибо как мне показалось, публика не особо прониклась духом сумасшествия и приветствовала группу довольно сдержанно.</P>
+<P>Сетлист:<BR>01. I remember<BR>02. The odd one out<BR>03. Secret lover<BR>04. Everything you want<BR>05. From time to time<BR>06. Praise the fallen<BR>07. Burn, sister<BR>08. About a girl<BR>09. Dead end </P>
+<P>А вот итальянцы Lacuna Coil были напротив приняты на «ура!» с первой же минуты. Когда-то давно, лет 7-8 назад я очень часто слушала эту группу и мне было весьма любопытно увидеть их живьем. Но «увидеть» - это как-то сильно сказано. Оператор, отвечающий за работу дымовых машин кажется задался целью догнать и перегнать Эйяфьятлайокудль, отчего сцена казалась туманным сгустком, из которого доносилась музыка.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1051/30276.jpg"></DIV>
+<P>Lacuna Coil, как и Tanzwut, для фестиваля выбрали сборную солянку из проверенных временем хитов, таких как Entwined, Heaven's a lie, Our truth, и песен из более поздних альбомов.</P>
+<P>Сетлист:<BR>01. Kill the light<BR>02. Heaven's a lie<BR>03. Entwined<BR>04. Give me something more<BR>05. Spellbound<BR>06. Our truth<BR>07. Upsidedown<BR>08. In visible light<BR>09. To the edge<BR>10. Fragile<BR>---<BR>11. Swamped<BR>12. Trip the darkness<BR>13. My spirit<BR></P>
+<P>На этом для меня первый день WGT подошел к концу.</P>
+<H2>26 мая 2012, суббота: Второй день</H2>/ <A href="/ru/galleries/61/1052">Галерея</A> 
+<P>Второй день я решила начать с прогулки в старом городе. Во время фестиваля там всегда можно встретить пары и компании людей в прекрасных нарядах и удивительных образах — трудно представить фотографа, который отказался бы запечатлеть такое. К тому же на крыше старой крепости Моритцбастай, что находится в центре рядом с площадью Августусплатц, располагается обычно маленький средневековый базар с небольшой сценой, который привлекает к себе желающих себя показать и других посмотреть.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1056/30464.jpg"></DIV>
+<P>Ассортимент товаров на этом базарчике схож с ассортиментом языческой деревни — это вариант для тех, кому лень ехать на другой конец города.</P>
+<P>К счастью погода оставалась теплой и солнечной на протяжении всего времени — эта традиция поддерживается уже несколько лет. Дождь может идти до фестиваля или сразу после, но уже примерно четвертый год в Лейпциге на Троицу летняя жара и чистое небо.</P>
+<P>Поохотившись немного в центре города, я еду в языческую деревню — посмотреть что там нового и интересного.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1057/30489.jpg"></DIV>
+<P>Однозначно там много нового народа. Да честно говоря там просто яблоку негде упасть, ибо на территорию деревни можно проходить не только гостям фестиваля, но и всем остальным — правда уже за отдельную плату.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30290.jpg"></DIV>
+<P>Когда я приехала, на сцене выступали Tibetrea. Свою музыку они называют фэнтезийным фолком, ибо играют они действительно некие фантазии на тему кельтских, индийских и средневековых мелодий.</P>
+<P>Немного отдохнув в деревне, снова бегу к остановке трамвая. Следующая точка — открытая сцена Паркбюне в парке Клары Цеткин.<BR>Меня интересовали Dope Stars Inc, но я приехала немного раньше и успела увидеть The Danse Society. Эта группа из Англии, игравшая ранее в стиле пост-панк, пережила пик популярности в конце 80-х, а после распалась. Совсем недавно они решили вновь воссоединиться, взяв вокалисткой Maethelyiah — певицу с сильным и красивым голосом. Это выступление на фестивале было первым живым шоу за 25 лет.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30291.jpg"></DIV>
+<P>После небольшого перерыва на сцену вышли Dope Stars Inc. Если заглянуть в Википедию, то можно узнать, что Dope Stars Inc. (DSI) — итальянская индастриал-рок-группа, которую образовали Виктор Лав (Victor Love), Грэйс Холд (Grace Khold), Дэрин Йевонде (Darin Yevonde) и Брайан Вольфрам (Brian Wolfram) в 2003 году. </P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30302.jpg"></DIV>
+<P>Честно сказать, я слабо разбираюсь в разновидностях классической рок-музыки, думаю не всегда отличу индастриал от готик-рока, поэтому вряд ли смогу оценить выступление с музыкальной точки зрения. Но одно могу сказать точно: Dope Stars Inc. не были скучными. И это при том, что расшевелить европейскую публику во время шоу — это весьма нетривиальная задача. Большое спасибо музыкантам еще и за то, что они не игнорировали фотографов, как некоторые, а очень охотно общались с фотопитом.</P>
+<P>После Паркбюне было несколько вариантов мест, куда можно было поехать. Но я выбрала Центральный театр, где должны были играть норвежские фолкеры Wardruna. Я пропустила их выступление на сцене языческой деревни в понедельник, о чем очень жалела — присутствовавшие отзывались об их шоу как о чем-то потрясающем. Конечно на сцене театра предполагается немного иная атмосфера, но упускать и эту возможность увидеть группу я не собиралась.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30306.jpg"></DIV>
+<P>У сцены Центрального театра предусмотрены только сидячие места, поэтому все выступления проходящие там, отличаются камерностью и созерцательностью. И поскольку количество мест ограничено, крайне рекомендуется приходить заранее, особенно если вы идете на известную и популярную группу.</P>
+<P>Wardruna – это норвежский музыкальный проект, черпающий вдохновение в древних нордических мелодиях. Это руны, шаманство, фолк, амбиент, впадение в транс и голос скандинавского севера. Автор проекта — Kvitrafn, бывший ударник Gorgoroth, вокалист, автор музыки и текстов. Также в качестве вокалистов в проекте участвуют Gaahl и Lindy Fay Hella.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1052/30308.jpg"></DIV>
+<P>Музыка Wardruna не является тем, что мы обычно привыкли слышать со сцены. Это переплетающиеся звуки, бормотание шамана, бьющего в барабан, звуки леса и треск костра. Слушая эти мелодии ты полностью погружаешься в атмосферу крайнего севера, суровых зим и магических рун. <BR>Для меня лично Wardruna стала грандиозным открытием этого года и я очень надеюсь, что для меня еще выпадет возможность побывать на их сольном концерте.</P>
+<P>На этом второй день фестиваля для меня был завершен. </P>
+<H2>27 мая 2012, воскресенье: Третий день</H2>/ <A href="/ru/galleries/61/1053">Галерея</A> 
+<P>Воскресенье началось с традиционной фотоохоты в центре Лейпцига и автограф-сессии Qntal в кинотеатре Синестар. Из-за того, что невозможно охватить всё, что хочется, я не попала на выступление Qntal, которым очень симпатизирую, поэтому решила это в какой-то мере возместить фотографиями с раздачи афтографов.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30314.jpg"></DIV>
+<P>На обратном пути я заглянула в Kroch-Hochhaus, в котором распологается египетский музей университета Лейпцига. В музее я застала внушительную толпу разнообразно одетых граждан, сосредоточенно слушавших лекцию о культуре Древнего Египта.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1057/30523.jpg"></DIV>
+<P>Далее за этим последовало возобновление фотоохоты, в течение которой я увидела: юношу с большим топором на плече, бодро шагающим куда-то мимо Оперного театра; Соню Краусхофер, решительным шагом направляющуюся со спутником в сторону Моритцбастай; девушку с обнаженным бюстом, ведомую на цепочке другой девушкой; семейство, одетое в стиле стим-панк; железную крысу на паровом ходу; юношу с черными крыльями; деву-зомби с собакой... Знаете, во время Wave Gotik Treffen в Лейпциге кого только не встретишь. И это становится обыденным. Даже наоборот, через несколько дней уже люди в обычной одежде и без мэйк-апа начинают вызывать недоумение и легкое чувство внутреннего дискомфорта.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1058/30530.jpg"></DIV>
+<P>Что касается концертов, то на воскресенье у меня были запланированы только две концертные площадки: клуб Werk II и сцена в зале Агры.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30327.jpg"></DIV>
+<P>В клубе в этот день выступали Nachtmahr — EBM/индастриал-проект Томаса Райнера из «L'ame Immortelle». И я сразу скажу, что запихнуть их в клуб было воистину дурацкой идеей. Nachtmahr со своим маршево-электронным расколбасом уже достаточно популярны, чтобы предложить им сцену побольше — в Werk II была серьезная давка, пробравшиеся к сцене рисковали не досчитаться пуговиц на одежде. Да и свет был так себе, особо эффектные фото не сделаешь, хотя девушки с водяными автоматами, поливающие публику под «Feuer Frei!», были прекрасны. Томас Райнер благоразумно вдарил по хитам и я удивляюсь как вообще присутствующие в экстазе не разнесли клуб по кирпичику. На обратном пути от фотопита к выходу душа уже болела не за оторванные пуговицы, а за штаны и прочую одежду как таковую.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1058/30563.jpg"></DIV>
+<P>Еще немного фотошутинга на пути от клуба до Агры — и к половине десятого фотографы собираются у сцены. Mono Inc – одна из завершающих этот вечер групп, почти что хэдлайнеры. А я их видела еще тогда, когда их еще никто не знал! Это был фестиваль Dark Storm в 2008 году. С тех пор группа обрела немалую популярность. Я думаю тут дело не только в музыке — они играют хороший, мелодичный готик-рок, но при этом несколько грешат самоцитированием. Дело еще и в их искренней открытости на сцене: Мартин Энглер каждую свободную минуту кому-нибудь в зале махал рукой, подмигивал, улыбался и посылал воздушные поцелуи. Иногда он еще хулиганил и троллил самого противного охранника Агры, теребя его сверху за лысину. Мартин просто нравится людям.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30330.jpg"></DIV>
+<P>Хэдлайнеры воскресного вечера в Агре, ради которых я планировала выстоять до конца — Diary of Dreams, немецкий дарквэйв, если доверять различным источникам информации. Хотя я бы затруднилась как-то охарактеризовать их стиль, оперируя лишь общепринятыми жанрами. Это просто Diary of Dreams, это просто их музыка и стиль. Хорошо, если нужно, то пусть это будет дарквэйв и всё, что около. Для фотографов у прохода к сцене было размещено объявление, что во время первой песни (это так назвали) фотографирование запрещено и пускать в фотопит не будут по причине использования пиротехники. А теперь как это выглядело: гаснет свет, некоторое время длится ожидание, затем мы слышим интро из нового альбома Ego:X, долго слышим — столько, сколько оно и длится на альбоме, потом все стихает, в тишине и темноте раздается слабое «Пук!» и по бокам от сцены краткосрочно вспыхивают два небольших фейерверка. Вот она какая — очень опасная для жизни пиротехника! Мой муж, который специально пошел вглубь зала, чтобы заснять чудеса огненного шоу, потом долго ругался.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1053/30343.jpg"></DIV>
+<P>Это выступление было посвящено новому альбому Ego:X, если я не ошибаюсь, то были исполнены песни Lebenslang, Echo in Me и Undividable. Я не помню, были ли сыграны другие вещи из нового альбома, ибо — даже сама не верю, что это пишу — я ушла примерно с середины выступления. Не потому что мне не понравилось, отнюдь, просто под конец третьего дня у меня уже не осталось сил даже просто стоять и воспринимать музыку. Я даже не совсем помню само выступление. Пришлось уйти, увы.</P>
+<H2>28 мая 2012, понедельник: Четвертый день</H2>/ <A href="/ru/galleries/61/1054">Галерея</A> 
+<P>На четвертый день фестиваля уже откровенно никуда не хочется бежать. Только лишь силой воли удалось ко второй половине дня погрузить себя в трамвай, идущий в сторону концертной точки Фельзенкеллер. Там обычно выступают паган- и блэк-металлисты, а также прочий андеграунд. </P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1058/30572.jpg"></DIV>
+<P>Я приехала к началу сета киргизской блэк-металл группы Darkestrah. Сама я о них практически ничего не знаю, потому обращусь к википедии.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30352.jpg"></DIV>
+<P><I>Darkestrah — киргизская pagan black metal - группа, сформирована в середине 1999 года в городе Бишкек, выпустила четыре полноформатных альбома, два демо и один мини-альбом. Альбом Epos (2007) посвящён озеру Иссык-Куль. Последний альбом — The Great Silk Road («Великий Шёлковый Путь») — вышел в мае 2008 года. Все альбомы "пропитаны" духом природы, слушая каждую композицию, ощущаешь себя максимально приближенным к природе. Альбом Epos оказывает наиболее сильное впечатление на слушателя. </I></P>
+<P>Опять же — я не отнесу себя к людям, которые хорошо разбираются в блэке, мне трудно оценить музыкальную сторону. Ну да, мелодично, гроулисто, блэково и несколько отчужденно. Публика принимала группу довольно сдержанно, может потому что Darkestrah мало известны в Европе, а может потому что они сами были довольно замкнуты на сцене и погружены в себя. </P>
+<P>Кстати последненее предположение легко подтверждает вышедшая на сцену Arkona. Если кто-то еще не в курсе, то Аркона — русская фолк-\паган-группа с прекрасной Марией Архиповой на вокале, которая легко совмещает классическое пение, гроул и скрим. Лирика песен Арконы пропитана русским фольклором, сказками и мифами.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30370.jpg"></DIV>
+<P>Мария выглядела так, как будто попала с корабля на бал — кажется на сцену ее выдернули сразу после душа, она даже не успела высушить волосы. Впрочем ее это нисколько не смущало, она мгновенно перемещалась по сцене как маленький воин в битве, причиняя глубокую душевную боль фотографам. Автофокус просто не успевал за ней.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30364.jpg"></DIV>
+<P>Я недостаточно хорошо знаю дискографию Арконы, чтобы порассуждать о тонкостях постоения их сетлиста, но то, что каждая песня горячо принималась публикой — вполне могу утверждать. Это как раз к вопросу о замкнутости и открытости — Мария очень открыта и умеет держать связь с аудиторией, без этого умения вряд ли может получиться хорошее живое выступление.<BR>Аркона однозначно стала лучшей группой этого дня.</P>
+<P>Ну а финальным аккордом фестиваля стали Agonoize в Агре. <BR>Agonoize — немецкая электро-индастриал группа, не чурающаяся некоторой театральности на сцене. Опять же многие EBM и индастриал команды для меня на одно лицо, внимание привлекают те, кто сумел отличиться от общей массы каким-либо способом. Agonoize я думаю многие фотографы хорошо запомнят из-за вокалиста Криса Эля, который ловко облил фотопит искусственной кровью. Мне повезло, а некоторым пришлось потратить большую часть времени на то, чтобы привести оптику в надлежащий вид.</P>
+<DIV align=center><IMG border=0 alt="" src="/images/picts/1054/30376.jpg"></DIV>
+<P>После я еще немного побродила по Агре, рассматривая поредевший палаточный городок — многие уехали еще в воскресенье — и наслаждаясь тем, что больше ничего фотографировать не нужно. Четыре дня фестиваля — это оптимально: с одной стороны мозг переваривает огромное количество информации и впечатлений, слегка сожалея, что всё закончилось, а с другой стороны ты радуешься, что всё уже закончилось, ибо сил продолжать больше просто нет.</P>
+<H2>Что дальше? Wave Gotik Treffen 2013</H2>
+<P>В следующем году фестиваль будет проходить с 17 по 20 мая. Билеты дорожают от года к году, так что следует ожидать, что цена на стандартный билет составит порядка 90-100 евро. Если заказывать билеты онлайн, то возможно цена будет ниже.</P>
+<P>Билет дает своему обладателю право прохода на все концертные площадки и все фестивальные мероприятия, в том числе выставки, чтения, кинопоказы и театральные представления. Подробный список мест и мероприятий будет указан на специальной карте, которую выдают вместе с билетом. Также билет дает право пользоваться любым общественным транспортом (трамваи, автобусы, электрички) в пределах 110-ой транспортной зоны — она охватывает весь Лейпциг. Вам не нужно покупать отдельные билеты на транспорт на время фестиваля.</P>
+<P>На данный момент известно лишь несколько групп, которые подтвердили свое участие в фестивале: Patenbrigade: Wolff (Германия), Gothic (Румыния), Abney Park (США) и возможно Wave, но пока неизвестно какая именно из групп, их несколько с таким названием. В целом ожидается как обычно порядка двух сотен групп и исполнителей.</P>
+<P>Если вы раздумываете над поездкой на фестиваль, то возможно вам пригодятся несколько советов.</P>
+<UL>
+<LI>Гостиница. Если вы не хотите жить в палатке, то о гостинице нужно позаботиться уже сейчас. Именно в ноябре-декабре начинают разбирать номера в гостиницах и если вы вспомните об этом в апреле, то может случиться так, что свободных номеров просто не будет. Гостиницу лучше выбирать либо ближе к центру, либо ближе к южной окраине города — именно там располагается Агра. 
+<LI>Если вы добираетесь до Германии на самолете, а после до Лейпцига — на поезде, то вы можете немного сэкономить, купив земельный билет. Например если вы едете компанией из Берлина в Лейпциг, то вам достаточно купить Brandenburg-Berlin-Ticket, по которому можно кататься на электричках по Берлину и по земле Бранденбург компанией до 5 человек, и билет Sachsen-Ticket на нужное вам количество человек для проезда по Саксонии. В таком случае расходы для компании до 5 человек включительно суммарно будет около 50 евро. Если же вы едете из Дрездена, то для проезда хватит лишь Sachsen-Ticket. Эти билеты можно купить либо у кассира, либо в специальных автоматах. Внимание! Эти билеты недействительны на поездах IC и ICE, это скорые поезда, а земельные билеты действительны только в поездах ближнего следования. Узнать на каком именно поезде вам лучше ехать в этом случае можно на сайте bahn.de, только не забудьте поставить галочку «Nur Nahverkehr» в форме поиска. И да — еще не забудьте написать на билете ваше имя, там есть специальное поле. 
+<LI>Учтите, что основные концертные площадки расположены либо в центре, либо южнее. И лишь одна из них — клуб «Анкер» — расположен довольно далеко на севере города. Это нужно учитывать, если вы планируете ездить из Анкера в Агру, поездка займет порядка часа. Нелишне будет вообще узнать какие трамвайные и автобусные маршруты соединяют интересующие вас точки, карты с маршрутами есть на каждой остановке. 
+<LI>Если вы всерьез планируете оббежать как можно больше концертных площадок во время фестиваля, то позаботьтесь о хорошей обуви. Серьезно, я не шучу. Или активное перемещение, прогулки и «одна нога здесь, другая там», или туфли на платформе. Поверьте, совместить эти две вещи без риска для здоровья невозможно. 
+<LI>Действительно насладиться всей прелестью языческой деревни можно пожалуй только в пятницу. В другие дни вам придется протискиваться сквозь толпы людей и долго искать хоть какое-то место, чтобы спокойно выпить пива. Территориально деревня находится за одну остановку до Агры.</LI></UL>
+<P>Текст и фото: <STRONG>Юлия Бучацкая</STRONG></P>
+Автор: Headcrusher
+
+### 21.08.2014 news LACUNA COIL: видеоклип &quot;Nothing Stands In Our Way&quot;
+
+<P>Итальянская группа<STRONG> LACUNA COIL</STRONG> представила новое видео на песню <STRONG>"Nothing Stands In Our Way"</STRONG>. Его можно посмотреть ниже.</P>
+<P>Фоторепортажи с прошедших в&nbsp;июле 2014 года&nbsp;двух российских концертов,&nbsp;можно посмотреть по ссылкам:</P>
+<P>Москва (6 июля): <A href="/ru/galleries/1/1497">http://musica.mustdie.ru/ru/galleries/1/1497</A></P>
+<P>Санкт-Петербург (7 июля): <A href="/ru/galleries/1/1500">http://musica.mustdie.ru/ru/galleries/1/1500</A></P>
+<P>&nbsp;</P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/Gtft6LqgFSA?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 22.07.2016 news Новое видео LACUNA COIL
+
+<p>Новый ролик <strong>LACUNA COIL</strong> на песню "<strong>Delirium</strong>" с одноимённого альбома можно посмотреть ниже.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/CYIEGaIjklk" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 22.07.2016 news LACUNA COIL released new video
+
+<p>New clip of <strong>LACUNA COIL "Delirium"</strong> can be streamed below.</p><p>Cristina Scabbia (vocals) states: "<em>We filmed our parts for this video in one evening while we were on the US tour this past May. We used a Go-Pro against a black backdrop and we wanted something that would be purposely rough, something that could remind some weird lost videos found after years and years. </em></p><p><em>The whole video edited together with the parts filmed by the director with an actress turned out as a very strange sort of a trip, where a girl tries to tight up memories and details together to try to find her sanity back, somehow. I really like some of the scenes as they reminded me some kind of Korean horror movies vibe and it is totally fitting the ‘Delirium' vibe and concept. It also leaves a lot to the imagination, so thanks for checking it out and enjoy</em>."</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/CYIEGaIjklk" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### К российскому концерту готовы! - Репортаж с концерта MOONSPELL и LACUNA COIL

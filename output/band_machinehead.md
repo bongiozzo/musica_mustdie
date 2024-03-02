@@ -234,6 +234,363 @@ Metal Hammer special fan pack bonus track
 
 * C группой "Vio-Lence" guitarist Robb Flynn
 
+## Публикации
+
+### 26.03.1999 news 
+
+<p>Machine Head заканчивают микширование нового альбома, который выйдет в начале апреля.</p>
+
+Автор: Vit Belov
+
+### 23.05.1999 news 
+
+<p>Flotsam&Jetsam выступят на знаменитом фестивале в Милуоки. Хэдлайнерами на нём будут Cradle Of Filth, Morbid Angel, Manowar и Machine Head. Также будут выступать Witchery, Marduk, Angra, Iced Earth, Satyricon, The Gathering, Sinister и другие. Всего более 120 групп. Кстати, всё это двухдневное удовольствие стоит всего 50 баксов. Это я так для сравнения.</p>
+
+Автор: Vit Belov
+
+### 01.08.1999 news 
+
+<p>Machine Head также примет участие в альбоме Nativity In Black II, посвящённом Black Sabbath. Группа записала песню "Hole In The Sky".</p>
+
+Автор: Vit Belov
+
+### 02.10.2000 news Machine Head готовят материал для нового альбома
+
+<p> Machine Head сейчас сочиняют песни для нового альбома и хотят записать его еще до конца этого года.</p>
+
+Автор: Nybras
+
+### 09.01.2001 news Machine Head в студии
+
+<p>Продолжается запись нового альбома Machine Head с рабочим названием 'Supercharger'. Уже полностью готовы следующие вещи: Bulldozer. White Knuckle Blackout. The Drive. Crashing Around You. Deafening Silence. American High. Ожидаемая дата выхода - весна 2001. Кроме того, команда выпускает пяти-песенный сингл 'Year Of The Dragon' который содержит ранее не реализованные вещи ‘Desire To Fire’, ‘The Blood, The Sweat, The Tears’ & ‘From This Day’ и совершенно новую песню 'New Resistance'.</p>
+
+Автор: Yermola
+
+### 19.03.2001 news MEDICATION...
+
+<p>Выходцы из MACHINE HEAD, SOULFLY и UGLY KID JOE замутили проект MEDICATION. Участники: гитарист Logan Mader (ex-MACHINE HEAD / SOULFLY), вокалист Whitfield Crane (ex-UGLY KID JOE / LIFE OF AGONY), второй гитарист Blunt (ex-ADAYINTHELIFE) и барабанщик Roy Mayorga (ex-SOULFY). Команда финансировала запись дебютного полноформатника, который и собирается выпустить позднее в этом году. Трек-лист: 01. Clouded 02. Something New 03. Number 8 04. Underwater 05. I Am The Same 06. Chosen 07. Xanax</p>
+
+Автор: Yermola
+
+### 19.03.2001 news MEDICATION...
+
+<p>Los Angeles' MEDICATION, featuring former MACHINE HEAD / SOULFLY guitarist Logan Mader, ex-UGLY KID JOE / LIFE OF AGONY vocalist Whitfield Crane, ex-ADAYINTHELIFE guitarist Blunt, and ex-SOULFY drummer Roy Mayorga, are reportedly self-financing the recording of a full-length CD, to be released through an as-yet-undetermined label later in the year. Song titles set to appear on the as-yet-untitled CD include: 01. Clouded 02. Something New 03. Number 8 04. Underwater 05. I Am The Same 06. Chosen 07. Xanax</p>
+
+Автор: Yermola
+
+### 19.03.2001 news Супер-подзарядка...
+
+<p>С Воскресенья MACHINE HEAD напрягаются в студии Mad Dog Studios (Los Angeles) с продюссером Johnny K (известным по работе с DISTURBED, NO ONE, SOIL), записывая барабаны, басс и некоторые гитары для "Supercharger". Оставшиеся вокалы и гитары будут записываться в Indigo Ranch Studio (Malibu), где был записан "The Burning Red". Уже готовы 20 песен, вот некоторые из них: 01. Bulldozer 02. White Knuckle Blackout 03. American High 04. Crashing Around You 05. Nuclear Religion (ранее "The Drive") 06. Kick You When You're Down 07. All In Your Head 08. Deafening Silence 09. Finger Tap 10. Egypt 11. Once You See 12. Little Pig 13. Enemy 14. Ten Fold 15. Rat Race</p>
+
+Автор: Yermola
+
+### 19.03.2001 news Supercharger...
+
+<p>MACHINE HEAD have entered Mad Dog Studios in Los Angeles with producer Johnny K (DISTURBED, NO ONE, SOIL) to begin recording their fourth full-length album, entitled Supercharger. The band will spend two weeks at Mad Dog Studios laying down the basic tracks (drums, bass, some rhythm guitars) before heading to the Indigo Ranch Studio in Malibu (where The Burning Red was recorded) for overdubs (vocals, guitars, etc.). Nearly 20 songs were completed during the songwriting sessions for the album, with several of the tracks featuring a noticeably more aggressive vibe than was the case with the group's last studio offering. However, contrary to the recent rumors, MACHINE HEAD have not opted to return to the Burn My Eyes school of songwriting for the new record, but have instead taken the elements that made The Burning Red one of the most underrated metal albums of the last decade and combined it with several new ingredients to create a crushingly heavy-yet-infectiously-melodic mix that should please fans of all of the group's previous releases. Here is a run-down of some of the tracks that are being recorded during the Supercharger sessions (please note that some of these are working titles that will likely change in the album's final sequence): 01. Bulldozer 02. White Knuckle Blackout 03. American High 04. Crashing Around You 05. Nuclear Religion (formerly "The Drive") 06. Kick You When You're Down 07. All In Your Head 08. Deafening Silence 09. Finger Tap 10. Egypt 11. Once You See 12. Little Pig 13. Enemy 14. Ten Fold 15. Rat Race</p>
+
+Автор: Yermola
+
+### 29.03.2001 news Новый альбом &quot;CROWBAR&quot;
+
+<p>Нью-Орлеанцы "CROWBAR" завершают работу над очередным студийным творением, кторое будет микшироваться гитаристом "UGLY KID JOE" North Shore в его собственной студии. Пока еще не названный альбом будет испытанием для новичка - барабанщика Tony Costanza (ex-CRISIS / MACHINE HEAD).</p>
+
+Автор: Yermola
+
+### 29.03.2001 news CROWBAR are completing work....
+
+<p>New Orleans’ CROWBAR are completing work on the material for their forthcoming studio album, which will reportedly be tracked and mixed at former UGLY KID JOE guitarist 's North Shore Recording Studio. The as-yet-untitled effort—the group’s first with new drummer Tony Costanza (ex-CRISIS / MACHINE HEAD)—is tentatively due to be released at the end of the year.</p>
+
+Автор: Yermola
+
+### 06.08.2001 news Дольше батареек &quot;Энерджайзер&quot;...
+
+<p>"Машинноголовые" в преддверие выхода супер-заряжающего альбома "Supercharger" выпускают сингл "Crashing Around You". Выйдет он через Roadrunner Records 25-го сентября. Уже идет подготовка к съемке видео режиссером которого будет Nathan Cox (работавший с DISTURBED, COAL CHAMBER, SYSTEM OF A DOWN).</p>
+
+Автор: Yermola
+
+### 06.08.2001 news Crashing Around You...
+
+<p>As predicted here a couple of months ago, MACHINE HEAD have officially set “Crashing Around You” as the first single from the band’s forthcoming Supercharger CD, which is presently scheduled for release through Roadrunner Records on September 25th. A video for the track is currently in the planning stages, with director Nathan Cox (i.e. DISTURBED, COAL CHAMBER, SYSTEM OF A DOWN) having been enlisted to oversee the project, which could reach the initial lensing stage as early as next weekend. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.09.2001 news Спасибо пиратам за наше счастливое детство.....
+
+<p>Вот на <a href="http://www.natural-fx.ch/woche.htm"> этом</a> швейцарском сайте вы можете полностью скачать еще не вышедший в продажу альбом "SLAYER" - "God Hates Us All" в MP3, а любители попсы найдут для себя "Supercharger" MACHINE HEAD и "Iowa" SLIPKNOT <a href="http://www.natural-fx.ch/woche.htm"> ..... </a></p>
+
+Автор: Yermola
+
+### 22.10.2001 news Crashing Around You...
+
+<p>"MACHINE HEAD" 3-го декабря выпускают сингл "Crashing Around You". На него войдут: 01. Crashing Around You 02. Silver (live) 03. Ten Ton Hammer (live) и видео на собственно "Crashing Around You". Все живые треки были спродюссированы Leif Edling (басист CANDLEMASS) и записаны в стокгольмском Cirkus в декабре 1999 шведским Radio P3.</p>
+
+Автор: Yermola
+
+### 22.10.2001 news Crashing Around You...
+
+<p>MACHINE HEAD will be issuing "Crashing Around You", the first single off the group’s Supercharger CD, in the UK on December 3rd. The full track listing for the CD is as follows: <br> 01. Crashing Around You <br> 02. Silver (live) <br> 03. Ten Ton Hammer (live) <br> Also contained within the CD is the video "Crashing Around You" as an enhanced element. All the live tracks were produced by Leif Edling (CANDLEMASS bassist and former Swedish Radio P3 DJ) and MACHINE HEAD and were recorded at Cirkus, Stockholm on December 2nd, 1999 by Swedish Radio P3. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 23.10.2001 reviews Ещё одна команда пополнила ряды ренегатов тяжелого рока
+
+<p>Вот фэны и получили 100-процентное продолжение предыдущего опуса, мрачнейшего и великолепного в своих всплесках агрессии и разрушительности "The Burning Red". И еще одна команда пополнила ряды ренегатов тяжелого рока: эволюция от трэш-метал к полуиндустриальному "новому металлу" завершилась. MACHINE HEAD выдали пластинку, которая окончательно отобьет охоту у старых фэнов поддерживать знакомство с группой. Однако взамен появятся новые – эксперименты такого качества бесследно не проходят! Группа великолепно проработала новую концепцию – определили свои сильные стороны и расставили акценты. Чего стоят только пропущенные через дилэй хриплые выдохи Роба Флинна, который теперь заметно прибавил в вокальных навыках и уверенности перед микрофоном – оцените-ка заход на "America High" (а заодно и нигилизм этой песни!). И подача материала стала гораздо свободнее – голос больше не привязан к жестким риффам, как раньше, а потому и самих риффов стало меньше. Пожалуй, это главное изменение – на первый план выходят полуиндустриальные аранжировки, и музыка теперь местами даже не "металл". MACHINE HEAD пожертвовали массивным и напористым звучанием ради того, чтобы насытить песни электрическим напряжением. Получилось достаточно интересно, хотя и не бесспорно. При всех попытках максимально обновить звук и музыку группе не удалось найти того баланса медитативно-депрессивных отступлений и ярких, злобных атак, что превратил "The Burning Red" в монолит. А неровность звука и музыкального материала при отсутствии гармонии далеко не всегда звучат выигрышно. Наиболее ударные вещи – "Bulldozer", "Trephination", где группа не стала затягивать время, а лаконично и агрессивно высказала все, что есть сказать. А чего стоит версия классики BLACK SABBATH "Hole in the Sky" – это нужно слышать! Хотя фэнам классического хард-рока от этого лучше воздержаться… В противовес этому полубаллада "Only The Names"за версту отдает скукой, как и некоторые другие затянутые песни. Ну и не обошлось без радиохитов - "Deafening Silence", самая мелодичная песня MACHINE HEAD за всю историю группы, обязательно зазвучит в эфире! В целом получился очень неровный и неоднозначный альбом. Который в любом случае заслуживает неоднократного прослушивания – при наличии самоповторов и ориентире на модные тенденции свежих идей здесь предостаточно.</p>
+
+Автор: Tornado
+
+### 30.10.2001 news MESHUGGAH will be performing alongside MACHINE HEAD ...
+
+<p>Swedish high-tech thrashers MESHUGGAH will be performing alongside MACHINE HEAD and P.M.T. at the Vernier sur Rock Festival in Geneve, Switzerland on Sunday, November 11th. For more info, go to: <A HREF="http://www.vernier-sur-rock.ch/">http://www.vernier-sur-rock.ch/</A></p>
+
+Автор: Yermola
+
+### 30.10.2001 news MESHUGGAH выступят вместе с MACHINE HEAD...
+
+<p>Шведские техно-трэшеры "MESHUGGAH" выступят вместе с "MACHINE HEAD" и "P.M.T." на Женевском рок-фестивале "Vernier sur Rock Festival" 11-го ноября. Более подробно читайте здесь: <A HREF="http://www.vernier-sur-rock.ch/">http://www.vernier-sur-rock.ch/</A></p>
+
+Автор: Yermola
+
+### 13.11.2001 news Некоторые цифры продаж...
+
+<p>Вот вам цифры американских продаж некоторых металлических и не очень групп... Данные на начало Ноября. Предоставлены Soundcscan (цифра в скобках означает количество недель в чартах): <BR> <BR> SYSTEM OF A DOWN – Toxicity: 817,286 (9) <BR> OZZY OSBOURNE – Down To Earth: 269,374 (3) <BR> SLIPKNOT – Iowa: 553,043 (10) <BR> SLIPKNOT – Slipknot: 1,345,891 (123) <BR> METALLICA – Metallica: 12,890,072 (484) <BR> MISFITS – Cuts From The Crypt: 4,811 (1) <BR> SOIL – Scars: 34,433 (8) <BR> MACHINE HEAD – Supercharger: 24,202 (5) <BR> QUEENSRYCHE – Live Evolution: 20,727 (6) <BR> SLAYER – God Hates Us All: 121,179 (8)</p>
+
+Автор: Yermola
+
+### 03.01.2002 news MACHINE HEAD: Live CD Tentative Track Listing Unveiled ...
+
+<p>MACHINE HEAD's upcoming live album, which was recorded at London's Brixton Academy on December 8th for a late 2002 release through Roadrunner Records, will feature a track listing culled from the following set list that was performed at the aforementioned gig:<BR><BR> 01. Intro<BR> 02. Bulldozer<BR> 03. The Blood, The Sweat, The Tears<BR> 04. Ten Ton Hammer<BR> 05. Old<BR> 06. Crashing Around You<BR> 07. Take My Scars<BR> 08. I'm Your God Now<BR> 09. White-Knuckle Blackout!<BR> 10. From This Day<BR> 11. American High<BR> 12. Nothing Left<BR> 13. Deafening Silence<BR> 14. Davidian<BR> 15. The Number Of The Beast (IRON MAIDEN)<BR> 16. Territory (SEPULTURA—first half only)<BR> 17. Iron Man (BLACK SABBATH—beginning only)<BR> 18. Sugar (SYSTEM OF A DOWN—incomplete)<BR> 19. Supercharger<BR><BR> As previously reported, the as-yet-untitled CD is due to be mixed later this month by veteran producer Colin Richardson.</p>
+
+Автор: Yermola
+
+### 04.01.2002 news MACHINE HEAD выиграли судебное дело...
+
+<p>MACHINE HEAD выиграли судебное дело против компании Dewey Global Holding Inc., занимающейся коммерческой разработкой звука. Районный суд Калифорнии постановил, что группа и дальше может использовать такое название, несмотря на то, что Dewey Global зарегистрировали имя "MACHINE HEAD" в 1991 году, а сама команда на год позже...</p>
+
+Автор: Yermola
+
+### 04.01.2002 news MACHINE HEAD Win Trademark Lawsuit, Reschedule Dates ....
+
+<p>MACHINE HEAD announced a favorable and decisive ruling by the United States District Court, Northern District of California, in the band's trademark case against Dewey Global Holding, Inc., a commercial sound design company based in Venice, California, which also conducts business under the name MACHINE HEAD (the same company that has registered the web domain name www.machinehead.com). In a 26-page decision, the court ruled that the band is entitled to continue to use and maintain its trademark registrations for the name MACHINE HEAD, determining that the bands use does not violate any rights of Dewey Global. After Dewey Global filed an action in March of 1999 to cancel the band's trademark registrations and threatened to attempt to stop the band from using the name MACHINE HEAD as well as demanding the destruction of all existing merchandise and recordings, the band filed its Declaratory Judgment Action in Federal Court. Dewey Global unsuccessfully argued that, based upon its prior use of the name MACHINE HEAD for commercial sound design services ("since 1991"), the band's use of the name MACHINE HEAD (since 1992) created a likelihood of consumer confusion. The court disagreed, ruling that no likelihood of confusion existed due to the substantial differences between the goods and services provided by the respective parties. "We peacefully co-existed for seven years, and now Dewey Global claims that — all of a sudden — there's some sort of problem. We've been defending our right to our name and our identity ever since" said MACHINE HEAD frontman Robert Flynn. Flynn also stressed that "from the very beginning we were willing to and repeatedly tried to settle this so that we could both continue to co-exist. They didn't want any part of that, so it forced us to spend a ridiculous amount of time, effort and money fighting their meritless case." The band intends to file a Motion with the Court to recover its attorney's fees.<BR><BR> In other news, MACHINE HEAD were forced to reschedule the first eight dates of their upcoming Supercharging America tour (also featuring DARWIN'S WAITING ROOM and 3RD STRIKE) to the tail end of the trek due to an unfortunate snowboarding mishap over the holidays that left Robert's wrist severely sprained. The tour now begins in Albuquerque, New Mexico on January 20th. The confirmed dates so far are as follows:<BR><BR> Jan. 20 - Albuquerque, NM @ Sunshine <BR> Jan. 22 - Lubbock, TX @ Pavilion <BR> Jan. 23 - Dallas, TX @ Deep Ellum <BR> Jan. 24 - Austin, TX @ Backroom <BR> Jan. 25 - Houston, TX @ Engine Room <BR> Jan. 26 - New Orleans, LA @ Howlin' Wolf <BR> Jan. 27 - Tallahassee, FL @ Floyd's <BR> Jan. 29 - Lake Buena Vista, FL @ Hob <BR> Jan. 30 – Ft. Lauderdale, FL @ Culture Room <BR> Jan. 31 - Tampa, FL @ Masquerade <BR> Feb. 01 - Atlanta, GA @ Masquerade <BR> Feb. 02 - Atlantic Beach, NC @ Ziggy's <BR> Feb. 04 - State College, PA @ Crowbar <BR> Feb. 05 - Washington D.C. @ 9:30 Club <BR> Feb. 06 - Clifton Park, NY @ Northern Lights <BR> Feb. 07 - Philadelphia, PA @ Trocadero <BR> Feb. 08 - New York, NY @ Irving Plaza <BR> Feb. 09 - Worcester, MA @ Palladium <BR> Feb. 12 - Cincinnati, OH @ Bogart's <BR> Feb. 13 - Cleveland, OH @ Odeon <BR> Feb. 14 - Columbus, OH @ Al Rosa Villa <BR> Feb. 15 - Detroit, MI @ Harpo's <BR> Feb. 16 - Chicago, IL @ The Vic <BR> Feb. 17 - Madison, WI @ Barrymore <BR> Feb. 19 - St Louis, MO @ Mississippi Nites <BR> Feb. 20 - Lawrence, KS @ Bottleneck <BR> Feb. 22 - Minneapolis, MN @ Quest <BR> Feb. 23 - Omaha, NE @ Ranch Bowl <BR> Feb. 24 - Wichita, KS @ Little Uptown <BR> Feb. 26 - Denver, CO @ Ogden <BR> Feb. 27 - Salt Lake City, UT @ Dv8 <BR> Mar. 02 - San Francisco, CA @ Fillmore</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 26.03.2002 news Release Dates
+
+<p>The official web site of Roadrunner Records has posted September 16th as the tentative release date for MACHINE HEAD's forthcoming live CD, entitled MACHINE HEAD: Live At Brixton, October 28th as the tentative release date for TYPE O NEGATIVE's long-awaited and as-yet-untitled new studio album, and July 29th as the tentative release date for the previously-unavailable, Ross Robinson-produced album from FEAR FACTORY, entitled Concrete, which was originally recorded back in 1991.</p>
+
+Автор: Dimas
+
+### 26.03.2002 news Новости  от Roadrunner Records
+
+<p>На официальном сайте Roadrunner Records объявлены даты выхода новых альбомов.<BR> 16 сентября 2002 года выходит концертный альбом MACHINE HEAD "MACHINE HEAD: Live At Brixton"<BR> 28 октября 2002 года выйдет давно ожидаемый новый студийный альбом TYPE O NEGATIVE пока еще не имеющий окончательного названия<BR> 29 июля 2002 года выйдет ранее неиздаваемый альбом FEAR FACTORY "Concrete", записанный группой еще в 1991 году.</p>
+
+Автор: Dimas
+
+### 22.05.2002 news MACHINE HEAD поменяли гитариста....
+
+<p>Временной заменой ушедшему из-за творческих разногласий гитаристу MACHINE HEAD - Ahrue Luster, стал участник TECHNOCRACY - Phil Demmel. Фил раньше участвовал в команде Роберта Флинна VIO-LENCE и сейчас собирается присоединиться к барабанщику Dave McClain и бассисту Adam Duce для Европейского тура и последующей записи четвертого альбома.</p>
+
+Автор: Yermola
+
+### 22.05.2002 news MACHINE HEAD Select VIO-LENCE Axeman As Temporary Replacement For AHRUE LUSTER ....
+
+<p>MACHINE HEAD are strongly rumored to have selected TECHNOCRACY/VIO-LENCE guitarist Phil Demmel as the temporary replacement for Ahrue Luster, who recently left the group due to "creative differences". <BR><BR> Demmel, a former bandmate of MACHINE HEAD frontman Robert Flynn during the classic VIO-LENCE days, will reportedly join Flynn, drummer Dave McClain and bassist Adam Duce on their upcoming European jaunt before the Bay Area act commence the songwriting process for their fifth full-length CD. <BR><BR> Although Phil is said to be a prime candidate to assist the group during the upcoming live performances, it is unlikely that he will become a permanent member of MACHINE HEAD, informed sources have told BLABBERMOUTH.NET.<BR><BR> MACHINE HEAD are not actively seeking a permanent replacement for Luster and will likely complete much of the pre-production for the forthcoming CD as a three-piece, the sources said.<BR><BR> The band's upcoming European schedule is as follows:<BR><BR> Jul. 01 - Dublin, IRE @ Ambassador <BR> Jul. 05 - Rijssen, NETH @ Lucky <BR> Jul. 06 – Dessel, BEL @ Graspop<BR> Jul. 07 – Leipzig, GER @ With Full Force<BR> Jul. 08 - Cervia, ITA @ Rock Planet <BR> Jul. 09 - Zurich, SWI @ Limmathaus <BR> Jul. 10 - Amsterdam, NETH @ Melk Weg <BR> Jul. 12 – Helsinki, FIN @ Tuska Open Air<BR> Jul. 13 - Joensuu, FIN @ Ilosaarirock<BR></p>
+
+Автор: Yermola
+
+### 01.04.2003 reviews Живой Ад
+
+<p>Концертные альбомы для рок-групп как проверка на вшивость: спой-ка все свои прелести вживую, да так, чтоб душа свернулась, а потом развернулась. Получается не у всех. <BR> У MACHINE HEAD не вышло – ребята эффектно расписались в собственной бесперспективности. За несколько лет карьеры MACHINE HEAD зарекомендовали себя пусть и неплохой, но достаточно средней группой, у коей в багаже к паре хитов найдется и такая же кучка отборного сора. Беда в том, что сами музыканты оказались не в состоянии отделить одно от другого, и на слушателей, имевших несчастье зайти на сие шоу в Лондоне, вывалили все разом. А может, просто хитов на полуторачасовой концерт не хватило? Ну так и нечего время тянуть: сыграл лучшее – прочь со сцены. Увы, правило не для Роба Флина и его друзей. Посредственное пение, неубедительная работа с "живым" звуком – только лишь плотное гитарное звучание и спасает группу. Но это не достоинство, это обязательный минимум для групп такого направления. Вот и выходит, что MACHINE HEAD справились с работой на "троечку". И минус бал за вялые призывы Роба в духе "поднимите руки" и "спасибо, Лондон, мы вас пишем для нашего нового концертника!" – прямо "Руки вверх" какие-то… <BR> Да, местами группа дает жару – лишь для того, чтобы через пару минут с тем же энтузиазмом нудно пилить бестолковые песни. Есть чему удивиться: на концертнике представлены песни с самых разных и достаточно непохожих альбомов группы, однако вместе они не заиграли новыми красками, и вместо ожидаемой "золотой середины" на диске получилась усредненная серая масса. <BR> Получается, что MACHINE HEAD всех обманули уже в названии пластинки –"живого ада" здесь нет и близко, зато бессмысленного музицирования и скуки в избытке, хоть продавай. Да только кому оно надо? После столь эффектного провала рука сама тянется поставить на группе жирный крест и выключить это навсегда.</p>
+
+Автор: Tornado
+
+### 07.08.2003 news MACHINE HEAD  и пепел империй
+
+<p>13 октября на Roadrunner Records выходит новый альбом американской группы MACHINE HEAD "Through The Ashes Of Empires". Он был записан с продюсером Andy Sneap (SKINLAB, NEVERMORE, ARCH ENEMY). В него войдут следующие вещи:</p>
+<p> 1. Imperium<BR> 2. Bite The Bullet<BR> 3. Left Unfinished<BR> 4. Elegy<BR> 5. In The Presence Of My Enemies<BR> 6. Days Turn Blue To Gray<BR> 7. Vim<BR> 8. All Falls Down<BR> 9. Wipe The Tears<BR> 10. Descend The Shades Of Night</p>
+
+Автор: Dimas
+
+### 20.11.2003 news Machine Head in Europe
+
+Oct. 31 - Dublin, IRE - Ambassador (w/ local acts)<BR>Nov. 02 - Strasbourg, FRA - La Laiterie (w/ <B>KILL II THIS</B>)<BR>Nov. 04 - Paris, FRA - Elysee Montmartre (w/ <B>KILL II THIS</B>)<BR>Nov. 06 - Barcelona, SPA - Razzmatazz (w/ <B>KILL II THIS</B>)<BR>Nov. 07 - Bergara, SPA - Sala Jam (w/ <B>KILL II THIS</B>)<BR>Nov. 08 - Oporto, POR - Teatro S&aacute; da Bandeira (w/ <B>KILL II THIS</B>)<BR>Nov. 09 - Lisbon, POR - Voz do Oper&aacute;rio (w/ <B>KILL II THIS</B>)<BR>Nov. 11 - Madrid, SPA - Divina Aqualung (w/ <B>KILL II THIS</B>)<BR>Nov. 13 - Milan, ITA - Transilvania (w/ <B>KILL II THIS</B>)<BR>Nov. 14 - Treviso, ITA - New Age (w/ <B>KILL II THIS</B>)<BR>Nov. 16 - Zurich, SWI - X-tra Limmathaus (w/ <B>KILL II THIS</B>)<BR>Nov. 17 - Geneva, SWI - Usine (w/ <B>KILL II THIS</B>)<BR>Nov. 18 - Munich, GER - Elserhalle (w/ <B>KILL II THIS</B>)<BR>Nov. 19 - Stuttgart, GER - Longhorn (TBD)<BR>Nov. 20 - Cologne, GER - Live Music Hall (TBD)<BR>Nov. 22 - Luxembourg, LUX - Den Atelier (TBD)<BR>Nov. 23 - Den Bosch, NET - Aardshock Metal Bash (TBD)<BR>Nov. 24 - Antwerp, BEL - Hof Ter Lo (TBD)<BR>Nov. 25 - Lille, FRA - Splendid (TBD)<BR>Nov. 27 - London, ENG - Astoria (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Nov. 28 - London, ENG - Astoria (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Nov. 29 - Portsmouth, ENG - Pyramid Centre (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Dec. 01 - Bristol, ENG - Bristol Academy (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Dec. 02 - Nottingham, ENG - Rock City (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Dec. 03 - Birmingham, ENG - Birmingham Academy (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Dec. 04 - Manchester, ENG - Manchester Academy (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Dec. 05 - Glasgow, SCO - Barrowland (w/ <B>SIKTH</B>, <B>BREED 77</B>)<BR>Dec. 08 - Hamburg, GER - Hamburg Docks (w/ <B>SIKTH</B>)<BR>Dec. 09 - Copenhagen, DEN - Pumpehuset (w/ <B>SIKTH</B>)<BR>Dec. 10 - Oslo, NOR - Rockefeller (w/ <B>SIKTH</B>)<BR>Dec. 11 - Stockholm, SWE - Arenan (w/ <B>SIKTH</B>)<BR>Dec. 13 - Helsinki, FIN - Nosturi (w/ <B>SIKTH</B>)<BR>Dec. 15 - Berlin, GER - Columbiahalle (w/ <B>SIKTH</B>)<BR>Dec. 16 - Warsaw, POL - Proxima (w/ <B>SIKTH</B>)<BR>Dec. 17 - Prague, CZE - Roxy (w/ <B>SIKTH</B>)<BR>Dec. 18 - Vienna, AUS - Planet Music (w/ <B>SIKTH</B>)<BR>Dec. 19 - Leipzig, GER - Werk 2 (w/ <B>SIKTH</B>)
+Автор: Vit Belov
+
+### 08.12.2004 news MACHINE HEAD тоже снялись
+
+А <STRONG>MACHINE HEAD</STRONG> уже сняли своё шоу в Лондоне 5 декабря. DVD выйдет также в 2005 году на <STRONG>RoadRunner</STRONG>.
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 10.06.2005 news MACHINE HEAD выпускают DVD
+
+<P><STRONG>Roadrunner</STRONG> выпускает новый DVD <STRONG>MACHINE HEAD "Elegies"</STRONG> 16 августа. Напомним, что на диск войдут съёмки выступления в декабре прошлого года в знаменитой <STRONG>Brixton Academy</STRONG>. Сэт-лист концерта:</P>
+<P>01. <B>Intro</B><BR>02. <B>Imperium</B><BR>03. <B>Seasons Wither</B><BR>04. <B>Bulldozer</B><BR>05. <B>Old</B><BR>06. <B>Days Turn Blue to Gray</B><BR>07. <B>The Blood, The Sweat, The Tears</B><BR>08. <B>Ten Ton Hammer</B><BR>09. <B>The Burning Red</B><BR>10. <B>In the Presence of My Enemies</B><BR>11. <B>Take My Scars</B><BR>12. <B>Descend the Shades of Night</B><BR>13. <B>Davidian</B><BR>14. <B>Covers Medley</B><BR>15. <B>Block</B></P>
+Автор: Vit Belov
+
+### 02.12.2005 news Звёзды metal называют любимые альбомы в 2005 году
+
+<P>Шведский журнал <STRONG>Close-Up</STRONG> попросил известных музыкантов назвать любимые альбомы в 2005 году. Единодушия среди артистов не возникло. Только несколько пластинок было названо в тройки несколькими голосовавшими. Например, альбом <STRONG>OPETH "Ghost Reveries"</STRONG> назвали <STRONG>Leif Edling</STRONG> (<STRONG>CANDLEMASS</STRONG>) и <STRONG>Anders Nystrom</STRONG> (<STRONG>KATATONIA</STRONG>), а альбом <STRONG>SYSTEM OF A DAWN</STRONG> "<STRONG>Mesmerize</STRONG>" - <STRONG>Nergal </STRONG>(<STRONG>BEHEMOTH</STRONG>) и <STRONG>Robert Flynn</STRONG> (<STRONG>MACHINE HEAD</STRONG>). Также по нескольку раз упоминались альбомы <STRONG>SOILWORK</STRONG>&nbsp;и&nbsp;<STRONG>SPIRITUAL BEGGARS</STRONG>.</P>
+<P>В остальном выбор звёзд был хаотичен и слишком разнообразен по стилевым направлениям.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 19.03.2008 news MACHINE HEAD в России
+
+<P>По сообщению официального сайта <STRONG>MACHINE HEAD</STRONG>, группа даст концерт в Москве 2 июля в клубе Б1 Максимум.</P>
+Автор: Vit Belov
+
+### 24.03.2008 articles MACHINE HEAD в Москве, пресс-релиз
+
+<P>Riff Entertainment представляет:<BR>Первый сольный концерт<BR>MACHINE HEAD<BR>2 июля 2008 г., клуб B1MAXIMUM&nbsp; &nbsp; <BR>Американская группа Machine Head с Робертом Флинном во главе в представлении не нуждается, ибо уже давно завоевала статус одного из главных артистов в элите настоящей и, что немаловажно, модной тяжелой музыки! Если хотите, Machine Head – это сливки мирового хэви-металла!<BR>Впитав в себя лучшие традиции трэш-металла, добавив хитовость и мелодику нью-металла, Machine Head на протяжении своего творческого пути не теряют своих позиций в первом эшелоне тяжмета за счет своей бескомпромиссности, харизмы, жесткости и фирменного, отличного от всех, звука. Machine Head – группа, ставшая классикой, наряду с Metallica, Slayer и Pantera. Этого концерта российские поклонники коллектива ждут уже более десятилетия. Наконец и Москва включена ансамблем в график концертного тура, проходящего «по мотивам» шедеврального альбома Machine Head «The Blackening» 2007 года, названного многими критиками одной из лучших записей современной тяжелой музыки</P>
+<P>Группа была образована в Окленде в 1992 году бывшим участником Vio-Lence Робом Флинном (гитара, вокал) и басистом Адамом Дьюсом. В состав также вошли гитарист Логан Мэйдер и барабанщик Вальтер Райан. Однако, последний недолго успел поиграть в группе, и его сменил Крис Контос (экс-Attitude adjustment). Музыканты записали демо, которое им обошлось в 800 долларов, выступали на разогреве у таких монстров, как Napalm death и Obituary и были замечены авторитетным рекорд лейблом – Roadrunner Records, который предложил Machine Head подписать контракт. Мощнейшая дебютная пластинка "Burn My Eyes" увидела свет в 1994 году и сразу опередила остальные релизы лейбла по количеству продаж и приобрела невероятную популярность среди метал-фанов. "Burn My Eyes" получил на удивление единодушное одобрение критиков, а многие рок-издания назвали его лучшим дебютом года. Такие композиции как “Davidian” и “Old” вошли в золотой фонд тяжелой музыки. Через некоторое время Machine Head отправились в 17 месячный тур и отыграли концерты по всему миру,&nbsp; среди которых несколько гигов в поддержку Slayer. </P>
+<P>В 1996 году группа приступает к записи второго альбома, уже с новым барабанщиком – Дэйвом МакКлэйном (экс-Sacred reich). “The More Things Change” вышел весной 1997 года. Высокая планка, в виде громкого дебюта, накладывала на музыкантов определенные обязательства – вторая пластинка не должна была разочаровать общественность. Machine Head справились с поставленной </P>
+<P><BR>задачей и “The More Things Change” также стала мощнейшим боевиком, который до сих пор считается одним из самых важных альбомов&nbsp; 90-х. На этой пластинке чувствуется уход от традиций трэш – металла и ощутимый крен в сторону хардкора. В течение года группа «турит» с такими командами, как Napalm Death, Skinlab, Pantera и Megadeth. Гитарист Логан Мэйдер покидает группу, чтобы присоединиться к Soulfly. Мэйдера сменил Эрью Ластер, который до этого уже успел поиграть в Man Made God, Horde Of Torment и Pestilence.</P>
+<P>В начале следующего, 1999-го, Machine Head начинают готовить третью пластинку. «The Burning Red», спродюсированный знаменитым Россом Робинсоном, вышел в августе. Этот альбом стал довольно экспериментальной работой для группы, т.к. она ориентирована на модный в то время нью-металл. Музыканты сделали упор на мелодии и аранжировки. Этот шаг породил недовольство в стане фанатов группы, в адрес Роба и его подопечных посыпались обвинения в «опопсении». Однако, критики встретили «The Burning Red» хвалебными отзывами, да и фанаты нью-металла оценили пластинку и пополнили ряды фэнов Machine Head.<BR>"The Burning Red" был продан довольно большим тиражом по всему миру. В поддержку альбома, музыканты отправляются в турне по Америке, Европе и Японии.</P>
+<P>&nbsp;В сентябре 2000-го, группа приступила, к записи четвертого альбома. В октябре 2001 года свет увидело новое творение Machine Head – "Supercharger". Диск должен был сопровождаться синглом "Crashing Around You", включавшим также концертные версии "Silver" и "Ten Ton Hammer". Но в связи с событиями 11 сентября заглавная песня была изъята, а вместо нее появилась другая композиция, "Deafening Silence". “Мы сделали все, чтобы альбом получился «сырым» и тяжелым, насколько это возможно”, – говорит Роб Флинн. Действительно, Machine Head удалось воссоздать живую концертную атмосферу, передать неистовый сценический драйв. К тому же музыканты совершили довольно нестандартный шаг в пору цифровых технологий – записали альбом с помощью аналогового оборудования.</P>
+<P>В начале 2002 года, спустя 10 (!) лет после основания ВИА под управлением Роберта Флинна, калифорнийский суд наконец-то признал право группы на название "Machine head" (долгое время считалось, что музыканты "содрали" свое название с известной композиции Deep Purple).</P>
+<P>Отыграв положенную серию выступлений по обе стороны Атлантики, в марте 2003 года Machine Head выпустили свой первый концертный альбом "HellaLive". Обработку и сведение материала доверили продюсеру Колину Ричардсону. В основу записи легло шоу в Лондоне в декабре 2001 и материалы тура, проведенного летом 2002 года. "HellaLive" – четко показывает, на что способны Machine Head живьем. Диск включает в себя лучшие боевики группы, великолепно исполненные, практически не откорректированные в студии. Чистая, позитивная агрессия, драйв и бескомпромиссность. Это не удивительно, ведь концертные выступления с самого начала были для группы одной из главных целей и сверхзадач. "Не важно, крутят ли твои клипы по телику, запускают ли твои песни на радио, самое главное – достойно отыграть выступление перед людьми, </P>
+<P><BR>которые специально пришли тебя послушать. Ничто не сравнится с хорошим живым шоу", – уверен Роб Флинн.<BR>В июне 2003 года Machine Head начинают запись своего пятого диска – "Through The Ashes Of Empires “. <BR>"Во многом, эта самая важная запись в нашей карьере" – говорит Флинн, который, кстати, выступил продюсером данного релиза. По словам музыкантов, над этой пластинкой они работали, как над дебютом, не оглядываясь на прошлый материал и не задумываясь, попадут ли их песни на радио или нет. Частично вернувшись к своим трэш-корням, времен "Burn My Eyes" группа не прогадала. Альбом был принят “на ура” и попал в чарты многих Европейских стран.</P>
+<P>Начало 2004 года, было отмечено подписанием нового контракта с Roadrunner U.S. и выпуском "Through The Ashes Of Empires", в США. Он дебютировал на 88 строчке хит-парада Billboard – этот показатель был побит группой лишь следующим альбомом «The Blackening».<BR>В октябре выходит первый DVD Machine Head – "Elegies"&nbsp; – запись концерта команды из лондонской Brixton Academy. Помимо этого, на "Elegies", можно обнаружить различные закулисные съемки и интервью, повествование о работе над "Through The Ashes Of Empires", видеоклипы и другие бонусы. <BR>В один&nbsp; день с "Elegies", на прилавках магазинов, появляется сборник "Roadrunner United: The All-Star Sessions" – диск, приуроченный к 25-летию лейбла Roadrunner Records, в записи которого принимали участие музыканты групп, альбомы которых издавались на этом лейбле:&nbsp; Machine Head, Slipknot, Sepultura, Chimaira, Soulfly, Fear Factory Type O Negative и многие другие. Всего примерно 60 человек. Основными авторами музыки, стали Роб Флинн, Джои Джордисон (Slipknot), Дино Казарес (экс-Fear Factory) и Мэтью К. Хифи (Trivium), они же выступили продюсерами сборника. "Я лично, написал музыку для двух песен – «The Dagge» и «Rich Man», Дейв МакКлейн стал соавтором «Army Of The Sun», а Фил Деммел сочинил рифф для «Independent». Я продюсировал и делал аранжировки всех этих треков" – рассказывает Флинн.<BR>Новый альбом Machine Head, под названием "The Blackening" увидел свет 27 марта 2007 года, и сразу же получил самые высокие отзывы от критиков таких ведущих рок изданий, как Kerrang!, Metal Hammer и прочих, и был признан одним из лучших альбомов в истории тяжелой музыки.&nbsp; Действительно, "The Blackening", пожалуй, самый зрелый, техничный и мощный альбом Machine Head, не лишенный – на фоне веющей от этой музыки энергии и агрессии – мелодики. Это апогей 15-ти летнего творческого пути команды, впитавший в себя наследие классического трэша и хэви металла, но при этом не боящегося экспериментировать и доказывать коллегам и фанам свою актуальность и удивительную способность быть одновременно бескомпромиссными и модными! </P>
+<P>Состав группы:<BR>Роб Флинн (Robb Flynn) – гитара, вокал<BR>Фил Деммел (Phil Demmel) – гитара<BR>Дэйв МакКлейн (Dave McClain) – барабаны<BR>Адам Дьюс (Adam Duce) – бас, вокал</P>
+<P>&nbsp;</P>
+<P>Дискография:<BR>1994 – Burn My Eyes<BR>1997 – The More Things Change<BR>1999 – The Burning Red<BR>2001 – Supercharger<BR>2003 – Through the Ashes of Empires<BR>2003 – HellaLive<BR>2007 – The Blackening</P>
+Автор: Vit Belov
+
+### 07.01.2009 news Артисты Roadrunner опубликовали топы
+
+<P><STRONG>Roadrunner Records</STRONG> опубликовали на своём сайте&nbsp;Top-10 за 2008 год от своих артистов. </P>
+<P><STRONG>Shawn Drover</STRONG> (MEGADETH)<BR>01. <B>CYNIC</B> - Traced in Air<BR>02. <B>TESTAMENT</B> - The Formation of&nbsp;Damnation<BR>03. <B>MESHUGGAH</B> - Obzen<BR>04. <B>CHILDREN OF BODOM</B> - Blooddrunk<BR>05. <B>OPETH</B> - Watershed<BR>06. <B>EVERGREY</B> - Torn<BR>07. <B>BLOTTED SCIENCE</B> - The Machinations of Dementia<BR>08. <B>AIRBOURNE</B> - Runnin' Wild<BR>09. <B>INTO ETERNITY</B> - The Incurable Tragedy<BR>10. <B>BRAIN DRILL</B> - Apocalyptic Feasting<BR><BR><B>Frederic Leclercq</B> (DRAGONFORCE)<BR>01. <B>GUNS N' ROSES</B> - Chinese Democracy<BR>02. <B>DISTURBED</B> - Indestructible<BR>03. <B>SLIPKNOT</B> - All Hope Is Gone<BR>04. <B>CYNIC</B> - Traced in Air<BR>05. <B>CRADLE OF FILTH</B> - Godspeed on the Devil's Thunder<BR>06. <B>ULTRA VOMIT</B> - Objectif Thunes<BR>07. <B>SEBASTIEN TELLIER</B> - Sexuality<BR>08. <B>ALICE COOPER</B> - Along Came a Spider<BR>09. <B>MOTLEY CRUE</B> - Saints of Los Angeles<BR>10. <B>METALLICA</B> - Death Magnetic<BR><BR><B>Matt Heafy</B> (TRIVIUM)<BR>01. <B>COLDPLAY</B> - Viva La Vida<BR>02. <B>COLDPLAY</B> - Prospekt's March<BR>03. <B>MAXIMUM THE HORMONE</B> - Tsume Tsume Tsume<BR>04. <B>LONDON SYMPHONY ORCHESTRA</B> - Mozart's Requiem<BR>05. <B>GOJIRA</B> - The Way Of All Flesh<BR>06. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>METALLICA</B> - Death Magnetic<BR>10. <B>TRIVIUM</B> - Shogun<BR><BR><B>Robb Flynn</B> (MACHINE HEAD)<BR>01. <B>ALL SHALL PERISH</B> - Awaken The Dreamers<BR>02. <B>METALLICA</B> - Death Magnetic<BR>03. <B>TRIVIUM</B> - Shogun<BR>04. <B>WINDS OF PLAGUE</B> - Decimate The Weak<BR>05. <B>LIL WAYNE</B> - The Carter III<BR>06. <B>LA COKA NOSTRA</B> - A Brand You Can Trust<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>WHITECHAPEL</B> - This Is Exile<BR>09. <B>MESHUGGAH</B> - Bleed<BR>10. <B>BLEEDING THROUGH</B> - Sister Charlatan<BR><BR><B>Joel Stroetzel</B> (KILLSWITCH ENGAGE)<BR>01. <B>KINGS OF LEON</B> - Only by the Night<BR>02. <B>RYAN ADAMS AND THE CARDINALS</B> - Cardinology<BR>03. <B>RADIOHEAD</B> - In Rainbows<BR>04. <B>TOMMY EMMANUEL</B> - Center Stage<BR>05. <B>ALL THAT REMAINS</B> - Overcome<BR>06. <B>NICK CAVE AND THE BAD SEEDS</B> - Dig, Lazarus, Dig!!!<BR>07. <B>Augustana</B> - Can't Love (Can't Hurt<BR>08. <B>IN FLAMES</B> - A Sense of Purpose<BR>09. <B>NADA SURF</B> - Lucky<BR>10. <B>RAY LAMONTAGNE</B> - Gossip in the Grain<BR><BR><B>Max Cavalera</B> (SOULFLY; CAVALERA CONSPIRACY; SEPULTURA)<BR>01. <B>BAD BRAINS</B> - Build a Nation <BR>02. <B>DISFEAR</B> - Live the Storm<BR>03. <B>GOJIRA</B> - The Way of All Flesh<BR>04. <B>GOGOL BORDELLO</B> - Gypsy Punks<BR>05. <B>TURBO TRIO</B> - Turbo Trio<BR>06. <B>INCITE</B> - Divided We Fail<BR>07. <B>AGNOSTIC FRONT</B> - Warriors<BR>08. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>09. <B>AGORAPHOBIC NOSEBLEED</B> - Insect Warfare<BR>10. <B>HIRAX</B> - The New Age of Terror<BR><BR><B>Michael Spretizer</B> (DEVILDRIVER)<BR>01. <B>THE BIRTHDAY MASSACRE</B> - Walking With Strangers<BR>02. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>03. <B>MINDLESS SELF INDULGENCE</B> - If<BR>04. <B>ALL THAT REMAINS</B> - Overcome<BR>05. <B>GOJIRA</B> - The Way of All Flesh<BR>06. <B>IN FLAMES</B> - A Sense of Purpose<BR>07. <B>CHILDREN OF BODOM</B> - Blood Drunk<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>RAUNCHY</B> - Wasteland Discotheque<BR>10. <B>TESTAMENT</B> - The Formation of Damnation</P>
+Автор: Vit Belov
+
+### 01.12.2010 news MACHINE HEAD сочиняют новый материал
+
+<P><STRONG><IMG height=285 alt="" hspace=0 src="/images/news_rus/2010.12/17709.jpg" width=200 align=right border=0>MACHINE HEAD</STRONG> начали сочинять и записывать демо для нового альбома. Уже готово две вещи. Окончательно записать новый альбом музыканты рассчитывают в апреле будущего года. На прилавках новая работа <STRONG>MACHINE HEAD</STRONG> появится во второй половине 2011 года&nbsp;посредством <STRONG>Roadrunner</STRONG>.</P>
+<P>Предыдущий альбом американцев <STRONG>"The Blackening" </STRONG>вышел в 2007 году.</P>
+Автор: Vit Belov
+
+### 18.12.2010 news Лучшие альбомы 2010 года, по мнению Роба Флинна
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2010.12/17875.jpg" width=266 align=right vspace=5 border=0>Roadrunner Records</STRONG> опубликовал десятку лучших альбомов 2010 года, по мнению лидера <STRONG>MACHINE HEAD</STRONG>&nbsp;Роба Флинна (<STRONG>Rob Flynn</STRONG>).</P>
+<P>10. <STRONG>EXODUS</STRONG> "Exhibit B: The Human Condition"</P>
+<P>09. <STRONG>SEVENDUST</STRONG> "Cold Day Memory"</P>
+<P>08. <STRONG>JAY-Z</STRONG> "The Blueprint 3"</P>
+<P>07. <STRONG>SHINEDOWN</STRONG> "The Sound Of Madness"</P>
+<P>06. <STRONG>KARNIVOOL</STRONG> "Sound Awake"</P>
+<P>05. <STRONG>AVENGED SEVENFOLD</STRONG> "Nightmare"</P>
+<P>04. <STRONG>FLYLEAF</STRONG> " Flyleaf & Memento Mori"</P>
+<P>03. <STRONG>PROTEST THE HERO</STRONG> "Fortress"</P>
+<P>02. <STRONG>EMINEM</STRONG> "Recovery"</P>
+<P>01. <STRONG>DEFTONES</STRONG> "Diamond Eyes"</P>
+<P><EM>p.s. Интересно, что в этот список попали не только альбомы, которые были выпущены в 2010, но и в 2008, 2009 г.</EM></P>
+Автор: Headcrusher
+
+### 30.07.2011 news Новый альбом MACHINE HEAD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.07/20356.jpg" width=475 align=right border=0>Новая работа <STRONG>MACHINE HEAD</STRONG> <STRONG>"Unto The Locust" </STRONG>выходит 28 сентября на <STRONG>Roadrunner Records</STRONG>. Пластинка была записана в <STRONG>JingleTown Studios </STRONG>в Окленде, в качестве продюсера выступил вокалист коллектива <STRONG>Robb Flynn. </STRONG>Со сведением <STRONG>Rob </STRONG>помог <STRONG>Juan</STRONG>&nbsp;<STRONG>Urteaga</STRONG> (<B>EXODUS</B>, <B>SADUS</B>, <B>TESTAMENT</B>, <B>NIGHT RANGER</B>, <B>VICIOUS RUMORS</B>, <B>HEATHEN</B>, <B>VILE</B>, <B>CATTLE DECAPITATION</B>). Эту работу не смог выполнить <STRONG>Colin Richardson</STRONG> (<B>BULLET FOR MY VALENTINE</B>, <B>SLIPKNOT</B>, <B>FEAR FACTORY</B>, <STRONG>TRIVIUM), </STRONG>из-за смерти своей бывшей жены и менеджера.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-листы:</FONT></P>
+<P>01. <B>I Am Hell (Sonata In C#)</B><BR>I) <B>Sangre Sani</B><BR>II) <B>I Am Hell</B><BR>III) <B>Ashes To The Sky</B><BR>02. <B>Be Still And Know</B><BR>03. <B>Locust</B><BR>04. <B>This Is The End</B><BR>05. <B>Darkness Within</B><BR>06. <B>Pearls Before The Swine</B><BR>07. <B>Who We Are</B><BR><BR><B>"Unto The Locust"</B> special-edition CD track listing:<BR>01. <B>I Am Hell (Sonata in C#)</B><BR>I) <B>Sangre Sani</B><BR>II) <B>I Am Hell</B><BR>III) <B>Ashes To The Sky</B><BR>02. <B>Be Still And Know</B><BR>03. <B>Locust</B><BR>04. <B>This Is The End</B><BR>05. <B>Darkness Within</B><BR>06. <B>Pearls Before The Swine</B><BR>07. <B>Who We Are</B><BR>08. <B>The Sentinel</B> (JUDAS PRIEST cover) *<BR>09. <B>Witch Hunt</B> (RUSH cover) *<BR>10. <B>Darkness Within</B> (Acoustic) *<BR>* Bonus tracks<BR>DVD:<BR>* <B>"The Making Of Unto The Locust"</B> Documentary</P>
+Автор: Vit Belov
+
+### 05.11.2011 news Новый клип MACHINE HEAD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый ролик <STRONG>MACHINE HEAD</STRONG> на песню с новейшего альбома "<STRONG>Locust</STRONG>" можно посмотреть ниже. Видео снял постоянный партнёр коллектива <STRONG>Mike Sloat</STRONG>.</FONT></P>
+<P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/jxjeqCd6Zm0" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Vit Belov
+
+### 09.02.2012 news Очередные новости фестиваля &quot;Brutal Assault&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.02/23018.png" width=300 height=165>Организаторы фестиваля <STRONG>"Brutal Assault" </STRONG>сообщают, что хэдлайнером&nbsp;этого года&nbsp;станет легендарная&nbsp;американская&nbsp;группа <STRONG>MACHINE HEAD</STRONG>.</P>
+<P>Мастера своего дела, это&nbsp;группа, которая переосмыслила видение металлического жанра за два последних&nbsp;десятилетия. </P>
+<P>Старая крепость в Йозефов готова принять одну из самых важных металлических групп в истории. Будьте готовы к <STRONG>MACHINE</STRONG> <STRONG>fucking HEAD</STRONG>!!!</P>
+<P>Другие новобранцы фестиваля - финские мелодик детстеры <STRONG>INSOMNIUM</STRONG> и немецкий легендарный коллектив <STRONG>MORGOTH</STRONG>.</P>
+Автор: Headcrusher
+
+### 01.08.2012 news MACHINE HEAD: клип на песню &quot;Darkness Within&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вчера на сайте <A href="http://www.louwire.com/">www.louwire.com</A> состоялась премьера нового клипа группы <STRONG>MACHINE HEAD</STRONG> на песню <STRONG>"Darkness Within"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот, что рассказал о съёмках этого видео лидер группы, <STRONG>Robb Flynn</STRONG>:<EM> "Мы отсняли его за шесть дней в Праге при помощи компании <STRONG>"Meija Productions"</STRONG>, я выступил в роли со-режиссёра, совместно с<STRONG> Milan Basel</STRONG> и <STRONG>Jorge Nunez</STRONG>. Видео в основном было снято в трёх местах: центр Праги,&nbsp;небольшая деревенька под названием&nbsp;<STRONG>Krashov</STRONG> и клёвый рок-бар под названием<STRONG>&nbsp;"Mighty Bar"</STRONG>,&nbsp;которым руководит отличный чувак по имени <STRONG>Jakob</STRONG>.&nbsp;А также совсем немного в печально известной костнице, в местечке <STRONG>Kutna Hora</STRONG>."</EM></FONT></P>
+<CENTER><IFRAME height=310 src="http://www.metalinjection.net/tv/flviframe.php?viewkey=bf005d284bb1666fab7d" frameBorder=no width=500 scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 04.10.2012 news MACHINE HEAD выпускают второй концертный альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>MACHINE HEAD</STRONG> выпускает второй концертный альбом. Диск получил название <STRONG>"Machine Fucking Head Live"</STRONG> и был записан на разных концертных площадках мира во время их прошлогодних гастролей. Дата выхода: 13 ноября.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.10/24876.jpg" width=450 height=450>Трек-лист:</FONT></P>
+<P>01. <STRONG>I Am Hell (Sonata in C#)<BR></STRONG>02. <STRONG>Be Still And Know<BR></STRONG>03. <STRONG>Imperium</STRONG><BR>04. <STRONG>Beautiful Mourning<BR></STRONG>05. <STRONG>The Blood, The Sweat, The Tears<BR></STRONG>06. <STRONG>Locust</STRONG><BR>07. <STRONG>This Is The End<BR></STRONG>08. <STRONG>Aesthetics Of Hate<BR></STRONG>09. <STRONG>Old</STRONG><BR>10. <STRONG>Darkness Within<BR></STRONG>11. <STRONG>Bulldozer</STRONG><BR>12. <STRONG>Ten Ton Hammer<BR></STRONG>13. <STRONG>Who We Are<BR></STRONG>14. <STRONG>Halo</STRONG><BR>15. <STRONG>Davidian</STRONG></P>
+Автор: Headcrusher
+
+### 25.02.2013 news Adam Duce покинул групу MACHINE HEAD
+
+<P>Ряды американского коллектива <STRONG>MACHINE HEAD</STRONG> покинул один из старожил - бас-гитарист <STRONG>Adam Duce </STRONG><EM>(на фото)</EM>.</P>
+<P>Офицальное заявление группы по этому поводу:</P>
+<P><EM>"Пути <STRONG>MACHINE HEAD</STRONG> и басиста Адама Дьюса разошлись. Расстование произошло мирно и <STRONG>MACHINE HEAD</STRONG>&nbsp;хотят пожелать&nbsp;Адаму всего наилучшего в его тякущей и будущей деятельности. В данный момент группа остаётся в формате трио и приступает к работе над следующим, за альбомом "Unto The Locust",&nbsp;диском. Примерная дата его выхода - 2013 год."</EM></P>
+Автор: Headcrusher
+
+### 25.02.2013 news Adam Duce покинул групу MACHINE HEAD
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.02/25480.jpg" width=280 height=436>Ряды американского коллектива <STRONG>MACHINE HEAD</STRONG> покинул один из старожил - бас-гитарист <STRONG>Adam Duce </STRONG><EM>(на фото)</EM>. Адам участвовал в записи всех, без исключения, альбомов <STRONG>MACHINE HEAD</STRONG>.</P>
+<P>Офицальное заявление группы по этому поводу:</P>
+<P><EM>"Пути <STRONG>MACHINE HEAD</STRONG> и басиста Адама Дьюса разошлись. Расставание произошло мирно и <STRONG>MACHINE HEAD</STRONG>&nbsp;хотят пожелать&nbsp;Адаму всего наилучшего в его тякущей и будущей деятельности. В данный момент группа остаётся в формате трио и приступает к работе над следующим, за альбомом <STRONG>"Unto The Locust"</STRONG>,&nbsp;диском. Примерная дата его выхода - 2013 год."</EM></P>
+Автор: Headcrusher
+
+### 28.06.2013 news Новым бас-гитаристом MACHINE HEAD стал Jared MacEachern 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.06/25843.jpg" width=222 height=277>Несколько дней назад на своём официальном сайте&nbsp;группа <STRONG>MACHINE HEAD</STRONG> анонсировала имя того, кто заменит, покинувшего коллектив в феврале этого года, Эдама Дюса (<STRONG>Adam Duce</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Имя счастливчика - <STRONG>Jared MacEachern</STRONG><EM> (на фото).</EM> Джаред известен своим участием в группе <STRONG>SANCTITY</STRONG>. Там он исполнял обязанности вокалиста и гитариста.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ранее в этом году, группа <STRONG>MACHINE HEAD</STRONG> устроила поиск кандидата на вакантное место бас-гитариста. Самым плодотворным из которых, оказалось видео представление, где кандидат на место должен был исполнить песни Роба Флина и Ко.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После просмотра более 400 видео, присланных группе, <STRONG>MACHINE HEAD</STRONG> отобрали всего 7 участников. Финальный отбор производился в городе Окленд, где претендент на место должен был отыграть с группой несколько их песен и&nbsp;провести целый день в их компании.</FONT></P>
+<P>Вспоминает барабанщик <STRONG>Dave McClain</STRONG>: <EM>"Jared&nbsp;приехал на&nbsp;прослушивание и сделал всё по высшему классу. Помимо того, что он отлично играет на басу и поёт, он также обладает нужной энергетикой и индивидуальностью, чтобы дать нам снова&nbsp;почувствовать себя группой. Это было великолепное чувство и мы все поняли, что он правильный выбор."</EM></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Одно из видео,&nbsp;записанных&nbsp;Джаредом для прослушивания в <STRONG>MACHINE HEAD</STRONG>, можно посмотреть по ссылке: <A href="http://youtu.be/2lL3ycWBgtE">http://youtu.be/2lL3ycWBgtE</A></FONT></P>
+Автор: Headcrusher
+
+### 21.08.2014 news MACHINE HEAD: подробности альбома &quot;Bloodstone &amp; Diamonds&quot;
+
+<P>Калифорнийцы <STRONG>MACHINE HEAD</STRONG> обнародовали подробности своего нового альбома.&nbsp;Диск получил название&nbsp;<STRONG>"Bloodstone & Diamonds"</STRONG> и выйдет предположительно в ноябре этого года на <STRONG>Nuclear Blast</STRONG>. Точные даты будут сообщены чуть позже.</P>
+<P>Некоторые подробности о новом альбоме от лидера коллектива Роба Флинна:</P>
+<P><EM>"Альбом снова был спродюсирован мной и Хуаном (<STRONG>Juan Urteaga</STRONG>),&nbsp;а также, как и&nbsp;7 из 8 наших пластинок, мастерски сведёт Колином Ричардсоном (<STRONG>Colin Richardson</STRONG>).&nbsp;С редактированием и сведением некоторых треков помогли <STRONG>Andy Sneap</STRONG> и <STRONG>Steve Lagudi</STRONG>.</EM></P>
+<P><EM>В качестве гостей, на альбоме&nbsp;отметились два струнных квартета, один из которых, <STRONG>Quartet Rouge</STRONG>, уже принимал участие в записи альбома <STRONG>"Unto The Locust"</STRONG>.</EM></P>
+<P><EM>Струнные аранжировки для песен <STRONG>"Now We Die"</STRONG> и <STRONG>"Sail Into The Black"</STRONG> сделал я и <STRONG>Rhys Fulber</STRONG>, известный по своей работе с кучей артистов, начиная от&nbsp; <STRONG>Sarah McLachlan</STRONG> и заканчивая <STRONG>FEAR FACTORY</STRONG>, а аранжировку для трека <STRONG>"In Comes The</STRONG> <STRONG>Flood"</STRONG> я создал совместно с бывшим клавишником <STRONG>WORSHIP</STRONG> и нынешним участником <STRONG>BRING ME THE HORIZON</STRONG> по имени <STRONG>Jordan Fish</STRONG>..."</EM></P>
+<P>В создании оформления для <STRONG>"Bloodstone & Diamonds"</STRONG>&nbsp;приняло участие несколько человек, в том числе<STRONG> Rafal Wechterowicz </STRONG>(<A href="http://www.behance.net/raf_the_might">www.behance.net/raf_the_might</A>), <STRONG>Marcelo Vasco</STRONG> (<A href="http://www.p2rdesign.com/">www.p2rdesign.com</A>) и <STRONG>Strephon Taylor </STRONG>(<A href="http://www.strephon.com/">www.strephon.com</A>). Буклет стандартного издания диска будет содержать 28 страниц, тогда как специальное издание, в виде кожаной книги, целых 48. </P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Now We Die</STRONG> | 2. <STRONG>Killers & Kings</STRONG> | 3. <STRONG>Ghosts Will Haunt My Bones</STRONG> | 4. <STRONG>Night Of Long Knives</STRONG> | 5. <STRONG>Sail Into The Black</STRONG> | 6. <STRONG>Eyes Of The Dead </STRONG>| 7. <STRONG>Beneath The Silt</STRONG> | 8. <STRONG>In Comes The Flood</STRONG> | 9. <STRONG>Damage Inside</STRONG> | 10. <STRONG>Game Over</STRONG> | 11. <STRONG>Imaginal Cells</STRONG> (instrumental) | 12. <STRONG>Take Me Through The Fire</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27219.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 26.09.2014 news Новая песня MACHINE HEAD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню "<STRONG>Now We Die</STRONG>" с долгожданного нового альбома <STRONG>MACHINE HEAD "Bloodstone & Diamonds"</STRONG> можно послушать в клипе ниже. Диск увидит свет 7 гоября на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек уже вызвал неоднозначную реакцию слушателей. Идёт ли симфонизм <STRONG>MACHINE HEAD</STRONG>?</FONT></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/HI_NEGD4tb0" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Десять величайших обложек в истории лейбла Roadrunner.

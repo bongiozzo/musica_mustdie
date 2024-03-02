@@ -53,6 +53,24 @@ Lyrics Written By Michael Williams.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.02.2011 news EYEHATEGOD: первое официальное DVD
+
+<P>22 марта сладжеры&nbsp;<B>EYEHATEGOD</B>&nbsp;выпускают официальное концертное DVD&nbsp;на лейбле&nbsp;<B>MVD</B>.&nbsp;Просто названный&nbsp;<B>"Live"</B>, этот DVD&nbsp;включает&nbsp;88 минутные съёмки&nbsp;на несколько камер с концерта 2009 года&nbsp;(Baltimore, Maryland) и с концерта 2010 года&nbsp;(Cleveland, Ohio), а так же, несколько песен с их последнего шоу европейского тура 2010 и видеоклипы, никогда прежде, не выходившие на DVD.&nbsp;<BR><BR>Говорит басист&nbsp;<B>Gary Mader</B>: </P>
+<P><EM>"Наконец-то, после стольких лет бутлегов и самофинансированного&nbsp;DVD с токийского шоу 2002 года, выходит официальный релиз, документирующий кровь, пот, пиво и битое стекло за которыми поклонники приезжают на шоу <B>EYEHATEGOD</B>!"</EM></P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.02/18432.jpg" width=353 height=500>Трэк-лист:</P>
+<P>01.&nbsp;<B>Intro/Feedback</B> <BR>02. <STRONG>Story Of The Eye</STRONG>&nbsp;<BR>03. <B>Jackass In The Will Of God</B>&nbsp;<BR>04. <B>Take As Needed For Pain</B>&nbsp;<BR>05. <B>Sister Fucker</B>&nbsp;<BR>06. <B>Dixie Whiskey</B>&nbsp;<BR>07. <B>White N.gger</B>&nbsp;<BR>08. <B>Depress</B>&nbsp;<BR>09. <B>Lack Of Almost Everything</B>&nbsp;<BR>10. <B>Masters Of Legalized Confusion</B>&nbsp;<BR>11. <B>Pigs</B>&nbsp;<BR>12. <B>Methampthetamine</B>&nbsp;<BR>13. <B>Blank</B>&nbsp;<BR>14. <B>$30 Bag</B><BR>15.&nbsp;<B>Kill Your Boss</B>&nbsp;<BR>16. <B>Left To Starve</B>&nbsp;<BR>17. <B>Children Of God</B>&nbsp;<BR>18. <B>Blood Money</B>&nbsp;<BR>19. <B>Crimes Against Skin</B>&nbsp;<BR>20. <B>Dog's Holy Life</B>&nbsp;<BR>21. <B>Serving Time In The Middle Of Nowhere</B>&nbsp;<BR>22. <B>Feedback/Outro</B>&nbsp;<BR>23. <B>Shoplift</B>&nbsp;<BR>24. <B>Run It Into The Ground</B>&nbsp;<BR>25. <B>Shinobi</B>&nbsp;<BR>26. <B>Sister Fucker</B> (Video)&nbsp;<BR>27. <B>Anxiety Hangover</B> (Video)&nbsp;<BR>28. <B>The Age Of Bootcamp</B> (Video)</P>
+Автор: Headcrusher
+
+### 26.08.2013 news Скончался Joey LaCaze (EYEHATEGOD)
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26109.jpg" width=306 height=446>Joey LaCaze </STRONG>(Джо&nbsp;ЛаКазе)&nbsp;барабанщик и один из основателей легендарной sludge metal&nbsp;группы <STRONG>EYEHATEGOD</STRONG>, умер в возрасте 42 лет в прошлые выходные. </P>
+<P>Никаких подробностей его смерти пока не известно, хотя по информации с сайта <A href="http://www.metalinsider.net/in-memoriam/eyehategod-drummer-joey-lacaze-passes">Metal Insider</A>, некий друг Джо ЛаКазе сообщил, что причиной его кончины стал рак. У Джо остались жена и ребёнок.</P>
+<P>Не так давно группа вернулась домой из европейского тура и работала над новым альбомом.&nbsp;Также на осень этого&nbsp;года уже&nbsp;было заявлено пять концертов в США, на которых <STRONG>EYEHATEGOD</STRONG>&nbsp;планировали отметить свой 25 летний юбилей.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

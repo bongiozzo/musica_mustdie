@@ -8,6 +8,9 @@ Melodic death metal from Kyrgystan
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

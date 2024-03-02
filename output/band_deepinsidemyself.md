@@ -35,6 +35,21 @@ Mastered by Achim Kohler May 2002;
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.01.2003 reviews Адекватный gothic-doom metal
+
+<p>Если, конечно, мы имеем моральное право называть gothic-doom-metal'ом тот материал, где используется драм-машина. Немецкая группа, которая существует с 1994 года, доказывает свой возраст. Очень качественный, в меру разнообразный и местами весёлый gothic-doom metal. Очень мне напомнил ранние работы Pyogenesis (94-95 года). Великолепное звучание гитар окунает нас в атмосферу знаменитых death-doom metal групп середины 90-х (Paradise Lost, Darkseed). Правда, всё немного меланхоличнее, что совсем не портит впечатление. 60 минут и не скучно, это встречается очень редко. Советую, очень хорошая пластинка.</p>
+
+Автор: Vit Belov
+
+### 20.02.2003 reviews Adequate gothic-doom metal
+
+<p>If we have right to name gothic-doom metal this material where used drum-machine. German band, which exist since 1994 proves its age. Very quality, rather various and rather funny gothic-doom metal. I can compare this to old works by PYOGENESIS. Magnificent sound of guitars conducts us to atmosphere of famous death-doom metal bands of middle 90 (PARADISE LOST, DARKSEED). Everything is more melancholic, but it's not bad. 60 vinutes and i'm not tired, it's very seldom. I advise, good CD.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -167,6 +167,203 @@ Mastered at Finnvox Studios - Finland December 2012
 * C группой "Imperia" Helena Michaelsen and Jan Yrlund
 * C группой "Angel" Helena Michaelsen and Jan Yrlund
 
+## Публикации
+
+### 19.03.1999 reviews 
+
+<p> Эта норвежская капелла, без всяких споров, претендует на звание "открытие года". Превосходная супермелодичная атмосферная музыка выполненная в doom-death ключе. Временами слышны отголоски таких групп как ANATHEMA, SEPTIC FLESH, THEATRE OF TRAGEDY, CREMATORY. Несмотря на это, нельзя обвинить группу в недостатке собственных идей. Материал достаточно оригинальный, довольно ритмичный, очаровывающий буквально с первых риффов. Партии клавишных создают дивную атмосферу, не уступающую по силе CREMATORY. Вокальные изыски просто безупречны. Смачный мужской гроулинг дополняется очаровательными партиями женского вокала в оперном духе. Вокалистка Helene немного напомнила мне Nathalie из SEPTIC FLESH. Их манеры петь очень схожи. Если вы хотите что-то тяжёлое, но при этом очень мелодичное, то этот альбом - то, что надо. Настоятельно рекомендую!</p>
+
+Автор: Dimas
+
+### 28.11.2000 reviews Смена курса
+
+<p>Очень мелодичная и качественно записанная метал-музыка. Есть всё, что обуславливает мелодику: клавиши, женский вокал. На прошлом альбоме группа выступала в разряде мелодичного doom-black. Сейчас музыка представляет собой gothic-doom-death-black. Очень грамотно смешав все стили, группа приближается к высшей лиге.С чем это можно сравнить, где-то похоже на Theatre Of Tragedy (когда девушка поёт), где-то на Dan'a Swano, когда мужчина, где-то на Cradle Of Filth, только с гроулингом. Всего понамешано, при чём все разностилевые участки короткие, что не позволяет почуствовать разорванность музыки. Очень хорошая без явных недостатков, плюс ко всему ещё и оригинальная пластинка.</p>
+
+Автор: Vit Belov
+
+### 28.11.2000 reviews Change of a rate
+
+<p>The very melodious and qualitatively written down metal-music. Everything, that causes melodic: keys, female vocal is here. On the last album the group acted in the category melodious doom-black. Now music represents gothic-doom-death-black. Very competently having mixed all styles, the group comes nearer to maximum league. To what it can be compared, somewhere is similar on Theatre Of Tragedy (when the girl sings), somewhere on Dan Swano, when the man, somewhere on Cradle Of Filth, only with growling. In total mixed, at what all different styles is sites short, what not allow sensed breaking of music. Very good without obvious lacks and very original CD.</p>
+
+Автор: Vit Belov
+
+### 21.08.2001 news Trail Of Tears подписали контракт с Napalm Records
+
+<p> Trail Of Tears недавно подписали контракт с Napalm Records на три альбома и заказали студию на февраль - март 2002 года. Запись следующего альбома будет проходить в Soundsuite Studio (Марсель, Франция) с продюсером Терье Рефснесом. Кроме того, голос вокалиста Ронни Торсена можно будет услышать на свежем альбоме Tristania.</p>
+
+Автор: Morsus
+
+### 21.08.2001 news Trail Of Tears have signed to Napalm Records
+
+<p> Trail Of Tears have recently signed to Napalm Records for 3 albums and have booked studio time in February/March 2002, choosing to record the next album in Soundsuite Studio (Marseille, France) with producer Terje Refsnes. In the meantime, check out vocalist Ronny Thorsen on Tristania's upcoming release.</p>
+
+Автор: Morsus
+
+### 01.04.2002 news Trail Of Tears закончили запись альбома
+
+<p>Trail Of Tears закончили запись очередного альбома. В ближайшие несколько недель он будет сведён и выйдет ориентировочно в мае этого года.</p>
+
+Автор: Morsus
+
+### 01.04.2002 news Trail Of Tears have completed the recording of new album
+
+<p>Trail Of Tears have completed the recording of their forthcoming release. It will be mastered in the coming weeks. The release date is tentatively scheduled for May 2002.</p>
+
+Автор: Morsus
+
+### 15.05.2002 news Готов третий альбом Trail Of Tears
+
+<p>Новый альбом норвежцев Trail Of Tears "A New Dimension of Might" выйдет в мае-июне на лейбле Napalm Records. Альбом содержит девять треков общей продолжительностью около 55 минут. Как говорят об этом сами музыканты, новый материал "более яркий, с большим драйвом и с мрачной, но в то же время довольно красивой атмосферой". Первые 10,000 копий "A New Dimension of Might" будут содержать в качестве бунуса кавер песни Faith No More "Caffeine". Все, кто окажется проездом в Норвегии, обратите также внимание на их концерт в Кристиансанде 23 мая на разогреве у Dimmu Borgir.</p>
+
+Автор: Morsus
+
+### 15.05.2002 news Trail Of Tears have completed the recording of their third album
+
+<p>New album of norway's Trail Of Tears, "A New Dimension of Might", is scheduled for a release in May-June through Napalm Records. Album contains nine tracks and run approximately 55 minutes. According to Trail Of Tears, the new material is "more catchy, with more drive and with a dark yet purely beautiful atmosphere". Furthermore, the first 10,000 copies of "A New Dimension of Might" contains a cover of Faith No More's "Caffeine". Fans should also note the band's upcoming live performance (in support of Dimmu Borgir) in Kristiansand, Norway on 23 May.</p>
+
+Автор: Morsus
+
+### 22.10.2002 reviews Кроваво-красный транс
+
+<p>Третье творение норвежской готическо-металлической команды. Самое бескомпромиссное и беспощадное, самое мощное и тяжелое. Вместе с тем, самое однообразное, напоминающее одну большую песню. Нахватавшись вдоволь у TRISTANIA, добавив к этому свои многочисленные коренные black metal моменты и толику идей от раннего THE GATHERING, музыканты намутили пятьдесят пять минут тяжелого и мощного материала, который обязательно понравится всем истинным любителям данного стиля. Превосходные вокальные партии - сладкоголосый женский оперный вокал, сочный брутальный (кстати, вокалист TRAIL OF TEARS записывал вокальные партии для последнего альбома TRISTANIA) и чистый вокал в исполнении вокалиста GREEN CARNATION. Также, в записи альбома задействован профессиональный французский классический мужской хор. Прекрасно поработал в студии неугомонный Terje Refsnes, которому впору открывать фабрику звезд. Отличный качественный звук удивительно подчеркивает эти интереснейшие мелодии вкупе с богатой атмосферикой. Эта работа ничуть не уступает последним работам тех же TRISTANIA или THE SINS OF THY BELOVED. Мощная претенциозная симфоническая музыка привлекающая внимание и вызывающая естественный к себе интерес, явно выделяющаяся на всеобщем фоне подобных альбомов. В завершении альбома - оригинальная и малоузнаваемая брутальная версия "Caffeine" 1992 года от FAITH NO MORE. Достойный внимания альбом от талантливой группы.</p>
+
+Автор: Dimas
+
+### 25.10.2002 reviews Blood-red trance
+
+<p>The third creation of the Norwegian gothic-metal band. Most non-compromiss both ruthless, most powerful and heavy. At the same time, most monotonous, reminding one large song. Having picked up it is a lot of from TRISTANIA, having added to this numerous radical black metal moments and some part of ideas from early THE GATHERING, the musicians written down fifty five minutes of a heavy and powerful material, which necessarily is pleasant to all true fans of the given style. Excellent vocal parties - sweetvoice female opera vocal, juicy brutal (by the way, vocalist of TRAIL OF TEARS wrote down vocal parties for last album of TRISTANIA) and clean vocal in performance of vocalist of GREEN CARNATION. Also, the professional French classical man's chorus is involved in record of an album. Perfectly has worked in studio unruly Terje Refsnes, whose have to open the factory of stars. The excellent qualitative sound surprisingly emphasizes these most interesting melodies together with rich atmosphere. This work at all does not concede to last works same TRISTANIA or THE SINS OF THY BELOVED. Powerful symphonic music involving attention and causing interest, natural to obviously allocated on a general background of similar albums. In end of an album - original and brutal version of "Caffeine" 1992 from FAITH NO MORE. Worthy attention an album from talented group.</p>
+
+Автор: Vit Belov
+
+### 04.11.2002 reviews Неправильной дорогой идёте, товарищи...
+
+<p>Что-то куда-то не туда понесло норвежцев… Всеобщая мода на эксперименты сделала своё чёрное дело, и TRAIL OF TEARS превратились из хорошей думовой команды в «неведому зверушку». Поиск собственного лица? А, извините, зачем? Оно у TRAIL OF TEARS было. Теперь, боюсь, что нет. Тяга к разнообразию, новым ходам и решениям? Давить в себе надо эту тягу! Ведь что получилось: жил-был норвежский коллектив, выдающий на-гора замечательный дум, местами почти дум/дэт, в лучших традициях начала-середины девяностых и, соответственно, MY DYING BRIDE и THEATRE OF TRAGEDY образца “Velvet Darkness They Fear”, но – бац! – что-то произошло, и мы получаем красочную обёртку, под которой скрывается нечто, мягко говоря, невразумительное. Дум? Какой к чёрту дум! Нет здесь его! Есть что-то вроде псевдо-пост-блэка, есть что-то вроде псевдо-пост-дэта, и прочих «псевдо-» и «пост-». Партии женского вокала в меньшинстве. Грамотных аранжировок – полно, а музыки как таковой – ноль целых хрен десятых (с) АС. А хорошая была команда…</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 09.03.2004 news Вокалист GREEN CARNATION присоединился к TRAIL OF TEARS
+
+<B>Kjetil Nordhus</B> из <B>GREEN CARNATION</B> стал новым певцом в <B>TRAIL OF TEARS</B>. Вместе с этим группу покинула, из-за музыкальных разногласий, <B>Cathrine Paulsen</B>.&nbsp;<B>TRAIL OF TEARS</B> уже вошли в студию в этом месяце для записи нового альбома вместе с продюсером <B>Endre Kirkesola</B> (<B>GREEN CARNATION</B>, <B>BLOOD RED THRONE</B>).&nbsp;Пластинка выйдет летом на <B>Napalm Records.</B>&nbsp;
+Автор: Vit Belov
+
+### 26.04.2004 news Trail Of Tears в студии
+
+<B><IMG height=225 alt="" hspace=0 src="/images/news_rus/2004.04/6436.jpg" width=300 align="left" border=0>Trail Of Tears</B> записывают в данный момент новый альбом. После небольших проблем в студии в течение прошлой недели группа записала партии барабанов для нескольких песен. <B>Trail Of Tears</B> попытались изменить звук барабанов на новом альбоме, продюсер <SPAN lang=EN-GB><SPAN style="COLOR: #ffffff"><SPAN lang=EN-GB><B>Endre Kirkesola</B> добивается более живого звучания инструмента.</SPAN></SPAN></SPAN>
+Автор: Vit Belov
+
+### 26.04.2004 news TRAIL OF TEARS studio update
+
+<P>We've just recieved studio update from Norwegians TRAIL OF TEARS. </P><SPAN style="COLOR: #ffffff">
+<P><IMG height=225 alt="" hspace=0 src="/images/news/2004.04/6437.jpg" width=300 align="right" border=5>"<SPAN lang=EN-GB><I>We`re on a roll!</I></SPAN></P>
+<P><SPAN lang=EN-GB><I>After what for us has been a long, long time of waiting, all the technical problems seem to be history, and we are – at last – really on a roll in recording our fourth full-length CD. The problems were solved towards the end of last week, when the producer, Endre Kirkesola, built an entirely new PC for the production.</I></SPAN></P>
+<P><I></I></P>
+<P><SPAN lang=EN-GB><I>Thursday was then used to prepare the recording, and on Friday, Jonathan recorded one and a half song brilliantly. On Monday the drum-recording-marathon started, and we hope to have finished the drum-recording within this week.</I></SPAN></P>
+<P><I></I></P>
+<P><SPAN lang=NO-BOK><I>The Sound</I></SPAN></P>
+<P><SPAN lang=EN-GB><I>A little bit about the drum-sound; this time around we are interested in a more organic drum-sound, something that will make a change in sound compared to our latest release “A New Dimension of Might”. The producer has been working a lot with trying to catch the original sound in the drum-set, and don`t use triggers and drum-modules. After recording the first minutes, we sincerely think we have never had such a great drum-sound.</I></SPAN></P>
+<P><I></I></P>
+<P><SPAN lang=EN-GB><I>The guitar-sound we have already worked on, and is also going to be quite different from before. This time it will still be massive, but we are looking for a much more heavy sound than before, and we already feel we have found the perfect sound for this production. Both the producer and our two guitarists, Runar Hansen and Terje Heiseldal, are big fans of the “American” style heavy sound, and that will also be the direction we are heading.</I></SPAN></P>
+<P><I></I></P>
+<P><SPAN lang=EN-GB><I>The big challenge now, is to integrate the instruments, so they don`t just sound great seperately, but also together.</I> "</SPAN></P></SPAN>
+Автор: Vit Belov
+
+### 04.08.2004 news Свободное падение TRAIL OF TEARS
+
+<P>Норвежская формация <B>TRAIL OF TEARS</B> готовит к выпуску в октябре на <B>Napalm Records</B> свой новый альбом <B>"Free Fall Into Fear"</B>. Он был записан в <B>Dub Studio</B> с продюсером <B>Endre Kirkesola</B> (<B>GREEN CARNATION</B>, <B>BLOOD RED THRONE</B>). В составе группы - новый постоянный участник <B>Kjetil Nordhus</B> (<B>GREEN CARNATION</B>), с которым она отправляется осенью в европейское турне вместе с <B>THERION</B>&nbsp;и <B>TRISTANIA</B>. Трек-лист нового альбома включает в себя следующие песни:</P>
+<P>1. <B>The Architect of My Downfall</B><BR>2. <B>Joyless Trance of Winter</B><BR>3. <B>Drink Away the Demons</B><BR>4. <B>Point Zero</B><BR>5. <B>Dry Well of Life</B><BR>6. <B>The Face of Jealousy</B><BR>7. <B>Carrier of the Scars of Life</B><BR>8. <B>Watch You Fall</B><BR>9. <B>Frail Expectation</B><BR>10. <B>Cold Hand of Retribution</B><BR></P>
+Автор: Дофф
+
+### 24.01.2005 news TRAIL OF TEARS объявили дату
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, новый альбом <STRONG>TRAIL OF TEARS 'Free Fall Into Fear'</STRONG> уже записан. <STRONG>Napalm Records</STRONG> объявили, что эта пластинка выйдет 28 февраля.</FONT></P>
+Автор: Vit Belov
+
+### 24.01.2005 news TRAIL OF TEARS posted release-date
+
+<P><STRONG>TRAIL OF TEARS</STRONG> will release their new album <STRONG>'Free Fall To Fear'</STRONG> on 28th of February via<STRONG> Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 03.07.2006 news TRAIL OF TEARS объявили название своего нового альбома
+
+<P>Норвежцы <B>TRAIL OF TEARS</B> начали 24 июня во французской <B>Soundsuite Studio</B> с продюсером <B>Terje Refsnes</B> запись своего пятого альбома под названием <B>"Existentia"</B>. Его выход ожидается в конце 2006 года на <B>Napalm Records</B>.</P>
+Автор: Dimas
+
+### 15.09.2006 news Трек-лист нового альбома TRAIL OF TEARS
+
+<P>Норвежцы&nbsp;<B>TRAIL OF TEARS</B> выпускают в ноябре свой новый альбом <B>"Existentia"</B> на <B>Napalm Records</B>. Он был записан во французской <B>Soundsuite Studio</B> с продюсером <B>Terje Refsnes.</B> В качестве гостей на нем отметились французская певица <B>Emmanuelle Zoldan</B> и норвежский клавишник-виртуоз <B>Bernt Moen</B>. Стал также известен и его трек-лист:<BR><BR>1. <B>Deceptive Mirrors</B><BR>2. <B>My Comfort</B><BR>3. <B>Venom Inside My Veins</B><BR>4. <B>Decadence Becomes Me</B><BR>5. <B>She Weaves Shadows</B><BR>6. <B>The Closing Walls</B><BR>7. <B>Empty Room</B><BR>8. <B>Poisonous Tongues</B><BR>9. <B>As It Penetrates</B><BR>10. <B>Shades Of Yesterday</B></P>
+Автор: Dimas
+
+### 11.10.2006 news Кавер-арт TRAIL OF TEARS
+
+<P>Как мы уже сообщали, новый альбом <STRONG>TRAIL OF TEARS</STRONG> будет называться "<STRONG>Existentia</STRONG>" и выйдет в январе 2007 года. Группа опубликовала кавер-арт этой пластинки:</P>
+<P>
+<CENTER><IMG height=397 src="/images/news_rus/2006.10/10775.jpg" width=400 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 30.11.2006 news TRAIL OF TEARS распались
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TRAIL OF TEARS</STRONG> распались. Из заявления группы на сайте группы следует, что 28 ноября группу покинули <STRONG>Jonathan</STRONG> <B>Perez</B> (drums), <B>Kjell</B> <B>Hagen</B> (bass), <B>Runar</B> <B>Hansen</B> (guitar)&nbsp;и <B>Kjetil</B> <B>Nordhus</B> (vocals). После этого <STRONG>TRAIL OF TEARS</STRONG> перестали существовать. Новый и теперь последний альбом группы <STRONG>"Existentia" </STRONG>выйдет в скором времени.</FONT></P>
+Автор: Vit Belov
+
+### 03.12.2006 articles TRAIL OF TEARS надорвались в Мексике - UNLEASHED будут в death-metal ещё 15 лет - Секреты Yngwie Malmsteen
+
+<P><EM><IMG height=327 alt="" hspace=0 src="/images/articles_rus/2006.12/11013.jpg" width=400 align=left border=5>TRAIL OF TEARS надорвались в Мексике</EM></P>
+<P>На прошлой неделе появились сообщения о распаде норвежской группы TRAIL OF TEARS. Правда, само сообщение об этом событии на официальном сайте группы было несколько странным. Сообщалось, что группу покинули практически все участники, и из-за этого коллектив распался. Но ведь надо кого-то покинуть, а кого покидать, если группа не существует. Оказалось, есть ещё одна сторона у этого события, вокалист-основатель Ronny Thorsen, который чуть позже также выступил через официальную страничку TRAIL OF TEARS. В своём сообщении Ronny признался, что ему нелегко говорить о ситуации в группе, но он вынужден это делать, чтобы пресечь слухи, циркулирующие вокруг. «26 ноября группа закончила своё десятидневное турне по Мексике», - начинает Ронни. «Этот тур был очень неудачно организован, и все, кто принимали участие в нём, потеряли деньги. В результате я был вызван в отель 28 ноября, где остальные музыканты группы заявили, что, из-за сложившейся ситуации, они прекращают деятельность TRAIL OF TEARS немедленно. Это решение было принято без моего участия, поэтому я заявляю, TRAIL OF TEARS НЕ ПРЕКРАЩАЮТ СВОЕГО СУЩЕСТВОВАНИЯ, а возродятся в новой форме и составе». Ронни рассказывает, что пытался договориться с музыкантами, но ничего не вышло. Он даже предлагал возместить коллегам тысячные убытки из собственного кармана, но всё было бесполезно. Лидер TOT возмущается непреклонностью бывших коллег, которые кинули своим решением не только его, но и лэйбл, который выпускает новый альбом “Existentia” и не будет иметь должной раскрутки, из-за отсутствия концертов, фэнов и многих других. Нам же остаётся только всплеснуть руками и удивиться. Даже группы, крепкие европейские середнячки, вынуждены вкладывать собственные деньги для раскрутки собственных имён. Что уж говорить о наших соотечественниках и наших лейблах.</P>
+<P><EM><IMG height=267 alt="" hspace=0 src="/images/articles_rus/2006.12/11014.jpg" width=400 align=right border=5>UNLEASHED будут в death-metal ещё 15 лет</EM></P>
+<P>Новый альбом легендарных шведских дэтстеров UNLEASHED “Midvinterblot” вышел совсем недавно на SPV/Союз. Чтобы сообщить некоторые подробности о настоящем положении дел в UNLEASHED, мы обратили внимание на интервью, данное басистом/вокалистом группы Johnny Hedlund журналу Voices From The Darkside. Джонни предстал несколько уставшим от происходящего (интервью с ночи до утра) и, первым делом, рассказал о недавнем трёхлетнем отпуске группы. «Нам был необходим этот перерыв после 8 лет непрерывного тура и записей. Главное, что с выпуском новых пластинок мы стали сильнее, и этот отпуск пошёл нам на пользу», - говорит Джонни. «Я верю, что UNLEASHED – группа будущего death-metal. Я думаю, мы переведём стиль на новый уровень. Мы хорошо отдохнули, и организация нашего дела позволяет нам говорить о следующих 15 годах плодотворного существования группы. Мне кажется, у нас множество возможностей развивать стиль, не выходя за его рамки. Использование агрессии, мрачности… Трэшовые риффы тоже не говорят о предательстве дэт-металлической стилистики». На новейших альбомах UNLEASHED сменили продюсера. Они покинули знаменитого в 90-х годах Waldemar Sorychta, и продюсированием пластинок, начиная с “Hell’s Unleashed”, занялся гитарист группы Fredrik Folkare. Мы сменили Вальдемара потому, что хотели получить другой звук. Все идеи по звучанию наших работ исходят от Фредерика, он главный в группе в этом вопросе. Часы его работы не пропали даром. Я считаю, что его результаты гораздо лучше, чем у Сорихты», - объясняет Джонни. Группы-ветераны, такие, как UNLEASHED, в которых музыканты перешагнули уже 30-летний рубеж, обзавелись семьями, детьми, всё равно продолжают работать в этом бизнесе. Что меняется, когда проходит столько времени? Отвечает Джонни: «Конечно, у всех разные истории. Но главное в том, что приходится оплачивать больше счетов, появляется больше обязанностей. Я, например, работаю финансовым директором, и это отнимает много времени. С другой стороны есть и плюсы. Я теперь получаю большее удовольствие от живых выступлений. Не волнуюсь, из-за оборудования, из-за нерадивых инженеров, которые плохо делают свою работу. Я просто играю и пою наши песни с сотнями друганов по всему миру. Люди, которые устали от секса, должны просто послушать death-metal». Мне думается, поэтому Джонни и планирует свою деятельность в death-metal на 15 лет вперёд.</P>
+<P><EM><IMG height=277 alt="" hspace=0 src="/images/articles_rus/2006.12/11015.jpg" width=200 align=left border=5>Секреты Yngwie Malmsteen</EM></P>
+<P>Что-то захотелось нам вспомнить о шведском виртуозе Yngwie Malmsteen. Ингви дал интервью австралийскому журналу X-Press Online, в котором рассказал немного о своём «звёздном» творчестве. «Я был младшим ребёнком в семье», - начинает господин Мальмстин свою историю. «У меня были старший брат, старшая сестра. У меня были мама, папа, дяди, тёти…», - продолжается повествование. «…Все родственники – музыканты. Мой дедушка был барабанщиком! Это, как музыка, музыка, музыка везде… Музыка и искусство!». Мама дала маленькому Ингви гитару, когда ему исполнилось пять лет. И понеслось. Когда ему было семь, он увидел Джимми Хендрикса по телевизору. Показывали, как он сжигает свою гитару. Это так увлекло маленького Мальмстина, что он запомнил точную дату чернокожего видения. 18 сентября 1970 года – день окончания борьбы за звание лучшего гитариста мира. Через год старшая сестра Лулу подарила начинающему музыканту альбом DEEP PURPLE “Fireball”. «Все влияния классической музыки на моё творчество пришло не от DEEP PURPLE. Все так считают, но это неправда. Эта группа - моя любимая. Но любовь к классике пришла не от них, а вот любовь к тяжёлой музыке от них. Как-то я увидел по телевизору парня-скрипача, который играл Паганини, и я подумал, вот то, что нужно сыграть на гитаре. Моё творчество на 99 процентов состоит из Паганини, Вивальди и Чайковского… Плюс немного Баха и тяжёлый звук». Триллер! Несчастный мальчик в семье, состоящей из одних музыкантов, с дедушкой-барабанщиком, с кучей дядь и тёть, и, главное, с телевизором, где услышал Паганини первый раз только лет в восемь-десять. Вот как происходят генетические нарушения, дающие миру таких гениев, как Ингви Мальмстин! «Первым концертом, который я посетил в своей жизни, стало шоу Ritchie Blackmore’s RAINBOW в составе: Dio, Blackmore, Powell… Я был в шоке. Позже я работал с Кози Пауэллом на альбоме “Facing The Animal”. Ian Paice из DEEP PURPLE отличный музыкант, но Кози… Он был, как несущийся поезд». Выводом из всей этой истории стали поучительные напутственные&nbsp; слова, адресованные будущим поколениям. «Продолжайте работать! Не знаю, как выразить словами. Работайте. Не могу выразиться точнее, но моя книга расскажет об этом лучше». В остальных словах Ингви запугивает поколение матерными словами и туманными перспективами. В книге, которая, к сожалению, пока недоступна российским гитаристам, наверняка всё рассказано более точно. Так что будем ждать. Мой же совет гитаристам: побольше смотрите телевизор, желательно на канале «Культура», или «Спорт» на худой конец, заимейте дедушку-барабанщика, можно не родного, и, главное, запоминайте все вехи своей биографии, чтобы рассказать потомкам.</P>
+Автор: Vit Belov
+
+### 02.02.2007 news TRAIL OF TEARS набирают состав
+
+<P>После ухода большинства музыкантов <STRONG>TRAIL OF TEARS</STRONG> начали набирать новый состав. Старой новой вокалисткой группы стала<STRONG> Cathrine Paulsen</STRONG>, певшая на альбоме 2002 года "<STRONG>New Dimension Of Might</STRONG>".</P>
+Автор: Vit Belov
+
+### 15.01.2009 news Новый альбом TRAIL OF TEARS
+
+<P><STRONG>TRAIL OF TEARS</STRONG> закончили работу над своим шестым альбомом <STRONG>"Bloodstained Endurance"</STRONG>, который выйдет весной на <STRONG>Napalm Records</STRONG>. Пластинка была записана и сведена в <STRONG>Sound Suite Studio</STRONG>&nbsp; в Марселе с продюсером <STRONG>Terje Refsnes</STRONG>. Мастеринг сделал <STRONG>Mika Jussila</STRONG> в студии <STRONG>Finnvox. </STRONG></P>
+<P><FONT color=#ffffff>Комментирует группа: "<EM>Мы с Terje работали на износ последние несколько месяцев. Теперь мы сидим и слушаем то, что получилось. Уже ничего нельзя изменить, но мы надеемся, что нам удалось сделать что-то особенное</EM>".</FONT></P>
+<P><FONT color=#ffffff>Трэк-лист:</FONT></P>
+<P>01. <B>The Feverish Alliance</B><BR>02. <B>Once Kissed By The Serpent (Twice Bitten By Truth)</B><BR>03. <B>Bloodstained Endurance</B><BR>04. <B>Triumphant Gleam</B><BR>05. <B>In The Valley Of Ashes</B><BR>06. <B>A Storm At Will</B><BR>07. <B>Take Aim.Reclaim.Prevail</B><BR>08. <B>The Desperation Corridors</B><BR>09. <B>Farewell To Sanity</B><BR>10. <B>Dead End Gaze</B><BR>11. <B>Faith Comes Knocking</B></P>
+Автор: Vit Belov
+
+### 05.03.2009 news TRAIL OF TEARS в начале лета
+
+<P>Новый альбом <STRONG>TRAIL OF TEARS</STRONG> <STRONG>"Bloodstained Endurance"</STRONG> выходит 1 июня на<STRONG> Napalm Records</STRONG>. Обложку нарисовал <STRONG>Travis Smith</STRONG> (<B itxtvisited="1">AMORPHIS</B>, <B itxtvisited="1">OPETH</B>, <B itxtvisited="1">NEVERMORE</B>).</P>
+<P>
+<CENTER><IMG height=400 src="/images/news_rus/2009.03/13708.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.04.2009 news Новая песня TRAIL OF TEARS
+
+<P>Новую песню "<STRONG>The Feverish Alliance</STRONG>" с будущего альбома <STRONG>TRAIL OF TEARS</STRONG> <STRONG>"Bloodstained Endurance" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/trailoftearsmetal">http://www.myspace.com/trailoftearsmetal</A></P>
+Автор: Vit Belov
+
+### 25.08.2009 reviews Музыканты были правы
+
+<P>Норвежская группа TRAIL OF TEARS распалась в ноябре 2006 года. Вернее, так думали все участники кроме вокалиста Ronny Thorsen. Уже несколько лет до этого группа топталась на месте, и неудачное турне в Мексику окончательно сломило решимость музыкантов. Ronny стоял на своём и оставил себе название, набрав новых участников.</P>
+<P>Новый альбом TRAIL OF TEARS “Bloodstained Endurance” показал, что скорее правы были музыканты, решившие завязать с этим проектом. Во времена бешеной популярности симфонического металла, основанного на death, black и doom-metal описываемая группа была нужна многим, и её достаточно посредственный материал хоть и не зажигал вечных эмоций в душе слушателя, заставлял этого слушателя выкладывать денюжку. В наши дни симфонический металл, хоть и не потерял былой завлекательности для обычного слушателя популярного «тяжеляка», уже не вызывает столь сильных эмоций. С обозреваемым альбомом норвежцы не достигли новых горизонтов. Качественный, мелодичный материал с обилием женского пения, не сопрано, конечно же, но тоже женщина как-никак. К сожалению, не цепляет, хоть ты тресни. С другой стороны, цепляет - не цепляет, это всё субъективные категории.</P>
+<P>Средний, но симфоничный, серый, но мелодичный, монотонный, но красивый… В этом ряду эпитетов можете выбрать чёт иль нечет. От этого и будет зависеть ваше отношение к обозреваемой пластинке.</P>
+Автор: Vit Belov
+
+### 17.11.2012 news Новый альбом TRAIL OF TEARS
+
+<P>Новая работа <STRONG>TRAIL OF TEARS</STRONG> <STRONG>"Oscillation" </STRONG>выходит в 2013 году. Пластинка была записана в <STRONG>Sound Suite Studio </STRONG>в Марселе с продюсером <STRONG>Terje Refsnes. </STRONG></P><STRONG>
+<P><center><IMG border=0 src="/images/news_rus/2012.11/25056.jpg" width=475 height=475></P></STRONG>
+<P><center><IMG border=0 src="/images/news_rus/2012.11/25057.jpg" width=475 height=293></P>
+Автор: Vit Belov
+
+### 14.01.2013 news В TRAIL OF TEARS опять проблемы
+
+<P>По сообщению вокалистки <STRONG>TRAIL OF TEARS</STRONG> <STRONG>Cathrine Paulsen </STRONG>единственный оригинальный участник группы вокалист <STRONG>Ronny Thorsen </STRONG>её покинул. Интересно, что в прошлый раз, когда <STRONG>TRAIL OF TEARS</STRONG> распадались все музыканты покинули <STRONG>Ronny</STRONG>, теперь случилось всё наоборот.</P>
+<P>Между тем, новый "ре-юнион" альбом <STRONG>TRAIL OF TEARS</STRONG> <STRONG>"Oscillation" </STRONG>выйдет 22 марта на <STRONG>Massacre Records</STRONG>.</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.01/25301.jpg" width=475 height=293></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

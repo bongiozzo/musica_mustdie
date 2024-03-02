@@ -21,6 +21,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.07.2011 news Mark Sweeney и Michael Voss собрали all-star проект
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=352 alt="" hspace=0 src="/images/news_rus/2011.07/19832.jpg" width=250 align=right border=0>Вокалисты <STRONG>Mark Sweeney (CRYSTAL BALL)</STRONG>&nbsp;и <B>Michael Voss</B> (MAD MAX) основали новый проект <STRONG>WOLFPAKK. </STRONG>В записи песен, сочинённых этим дуэтом, принимали участие три десятка звёзд современной тяжёлой сцены. Внушительный список:</FONT></P>
+<P>Вокалисты: <BR>* <B>Paul Di'Anno</B> (ex-IRON MAIDEN)<BR>* <B>Tony Martin</B> (ex-BLACK SABBATH)<BR>* <B>Jeff Scott Soto</B> (ex-YNGWIE MALMSTEEN, TALISMAN)<BR>* <B>Rob Rock</B> (IMPELITTERI)<BR>* <B>Mark Boals</B> (ex-YNGWIE MALMSTEEN)<BR>* <B>Tim "Ripper" Owens</B> (ex-JUDAS PRIEST, ICED EARTH)<BR>* <B>Paul Shortino</B> (ex-QUIET RIOT)<BR>* <B>Mark Fox</B> (ex-SHAKRA)<BR>* <B>Michaela Schober</B> (TANZ DER VAMPIRE)<BR>* <B>Jean-Marc Viller</B> (CALLAWAY)<BR>* <B>Pearl</B><BR>* <B>Molly Duncan</B><BR>Басисты: <BR>* <B>Tony Franklin</B> (ex-BLUE MURDER, ROBERT PLANT)<BR>* <B>Mat Sinner</B> (PRIMAL FEAR, SINNER, VOODOO CIRCLE)<BR>* <B>Matthias Rethmann</B> (ex-LEEZ, SILVER)<BR>* <B>Nils Middelhauve</B> (XANDRIA)<BR>* <B>Neil Murray</B> (WHITESNAKE)<BR>* <B>Barend Courbois</B> (VENGEANCE) <BR>Гитаристы: <BR>* <B>Igor Gionola</B> (U.D.O.)<BR>* <B>Andy Midgeley</B> (POWER QUEST)<BR>* <B>Ira Black</B> (ex-VICIOUS RUMORS, LIZZY BORDEN)<BR>* <B>Torsten Koehne</B> (EDEN'S CURSE)<BR>* <B>Doc Heyne</B> (BISS)<BR>* <B>Tommy Denander</B> (DAN REED, PAUL STANLEY)<BR>* <B>Nadja Kossinskaja</B> (PETER MAFFAY)<BR>* <B>Freddy Scherer</B> (GOTTHARD)<BR>* <B>Olaf Lenk</B> (AT VANCE)<BR>* <B>George Solonos</B> (TOMMY LEE) <BR>Клавишники: <BR>* <B>Alessandro Delvecchio</B> (GLENN HUGHES, IAN PAICE)<BR>* <B>Ferdy Doernberg</B> (AXEL RUDI PELL, ROUGH SILK) <BR>Барабанщик:<BR>* <B>Gereon Homann</B> (EAT THE GUN) </P>
+<P><STRONG>"Wolfpakk" </STRONG>выйдет 26 августа на <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

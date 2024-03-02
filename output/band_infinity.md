@@ -130,6 +130,97 @@ tenth anniversary.
 * C группой "Blackmore's Night" C. Night
 * C группой "Nightwish" Tarja Turunen
 
+## Публикации
+
+### 28.03.2002 articles All-Star Game
+
+<p> <IMG SRC="/images/articles_rus/2002.03/2571.jpg" ALT="pho" width="235" height="350" hspace="15" vspace="5" border="0" align="left" /> Прошлым летом на нашем рынке появилась пластинка, привлекшая к себе внимание, прежде всего своим звёздным составом. На альбоме засветились Тарья Турунен (Nightwish), Кэндис Найт (Blackmore’s Night), Тимо Котипелто (Stratovarius) и многие другие… Организовал всё это гораздо менее известный человек &ndash; аргентинец Бето Васкез (Nepal). С ним и разговор, подслушанный мной на www.tombstone.gr. </p>
+<p> <B>&ndash; Мне кажется, мы имеем дело с концептуальным альбомом. Расскажи нам несколько слов о концепции и о том, что было источником твоего вдохновения.</B> </p>
+<p> &ndash; Точно, мы можем назвать альбом концептуальным, потому что в его основе лежит средневековая история. В лирике отмечена та же тема. Я имею ввиду, что не столько музыка того времени, это несколько power-metal песен, в которых тексты отвечают за средневековую тематику. Касаемо вдохновения, я должен сказать, что меня вдохновили истории типа «Властилин колец», но Infinity &ndash; это моё собственное творение. </p>
+<p> <B>&ndash; Ты собрал потрясающее количество певцов для альбома. Как тебе это удалось?</B> </p>
+<p> &ndash; Первым делом мой продюсер послал каждому вокалисту демо-плёнку с песней, которую тот должен был исполнять. Они послушали их и согласились принять участие. Я послал мастер-плёнки каждому, и они записали свои песни. </p>
+<p> <B>&ndash; Это было легко объединить четырёх великих певцов, которые должны иметь довольно большие эго?</B> </p>
+<p> &ndash; Я думаю, в этот раз эго не играли большой роли, потому что с ними было очень легко работать. Они работали вместе с одной целью, и Вы можете слышать результат на этой пластинке. </p>
+<p> <B>&ndash; Как сложно было найти соответствующих музыкантов для альбома и группы, вообще?</B> </p>
+<p> &ndash; Сказать правду, это не было слишком сложно, потому что все люди, которые играли со мной записываются на одном лэйбле, поэтому контакты налаживал мой продюсер. </p>
+<p> <B>&ndash; Какая проблема была самой существенной при записи альбома?</B><BR> &ndash; Говоря искренне, не было никаких проблем с записью. Все приглашённые музыканты работали очень профессионально, то же касается и всего технического персонала. </p>
+<p> <B>&ndash; Альбом вышел в Европейской и Южноамериканской версии. Какая разница между этими версиями?</B> </p>
+<p> &ndash; Самая большая разница заключается в обложке, которая не одинакова. Также на Южноамериканском варианте наряду с англоязычными текстами присутствует и испанский язык. </p>
+<p> <B>&ndash; Есть ли планы по вынесению этого проекта на сцену? Если есть, то поведай некоторые детали, а если нет &ndash; объясни, почему.</B> </p>
+<p> &ndash; В настоящий момент мы пытаемся организовать маленький тур. Правда, это очень сложно, так как в проекте участвуют восемь музыкантов плюс техники. Но всё равно идея остаётся, мы готовы выступить везде в мире или хотя бы там, где сможем. </p>
+<p> <B>&ndash; Есть ли планы для ещё одного альбома в будущем или это был единичный проект?</B> </p>
+<p> &ndash; В настоящее время я сочиняю новые песни для следующего альбома, у меня много идей в голове. </p>
+<p> <B>&ndash; Какие-то идеи о будущих альбомах, будущих сотрудничествах?</B> </p>
+<p> &ndash; Я уже сказал, что работаю над новым альбомом и новыми сотрудничествами. У меня нет никаких проблем, я могу работать с кем угодно. </p>
+<p> <B>&ndash; Тот факт, что ты из Аргентины, не добавляет неудобства в реализации твоих проектов?</B> </p>
+<p> &ndash; Точнее, проблема в том, что я не живу в Европе. Если бы я жил там, мы бы решили многие вопросы быстрее. </p> <div align="center"> <IMG SRC="/images/articles_rus/2002.03/2572.jpg" ALT="pho" width="250" height="214" border="0" vspace="10" /> </div>
+<p> Больше никакой информации мы не почерпнули от неразговорчивого парня по имени Бето, который спокойно просит с собой поработать сильнейших, а вернее популярнейших метал-вокалистов мира. Что можно сказать? Мы имеем малоинтересную запись, к который не приложено практически никаких усилий… Послали мастер-плёнку, заплатили денег, а как же без этого, и вот всё готово… А так нет проблем, лишь бы бабки были! </p>
+
+Автор: Vit Belov
+
+### 15.05.2002 news Dark Moor продолжают свой испанский тур....
+
+<p>Dark Moor продолжают свой испанский тур, который закончится в июне, а в июле группа войдёт в студию для записи ещё 4 песен, которые войдут на некий special edition, который выйдет в декабре. Вокалистка Элиза примет участие во втором альбоме Infinity, дата релиза которого назначена на 2003 год.</p>
+
+Автор: Yermola
+
+### 24.09.2002 news A TRIBUTE TO HELLOWEEN PART II
+
+<p>Окончательно стало известно, что вторая часть посвящения HELLOWEEN "The Keepers Of Jericho - A Tribute To Helloween Part II -" выйдет 9 декабря 2002 года на Arise Records. Трэк-лист альбома:</p>
+<p> IRON SAVIOR - PHANTOMS OF DEATH <BR> STEEL ATTACK - DR.STEIN<BR> POWERGOD - STARLIGHT<BR> BETO VAZQUEZ INFINITY - A TALE THAT WASN&acute;T RIGHT (Featuring Elisa - DARK MOOR -)<BR> ARWEN - MARCH OF TIME<BR> HIGHLORD - POWER <BR> FRETERNIA - MURDERER <BR> PARAGON - METAL INVADERS<BR> VHALDEMAR - GORGAR <BR> CELESTY - THE CHANCE <BR> DRAGONLAND - SOUL SURVIVOR <BR> AXENSTAR - TWILIGHT OF THE GODS <BR> RED WINE - RISE & FALL</p>
+<p> Все трэки на альбоме эксклюзивные и записывались специально для него. Обложку для альбома нарисовал Travis Smith.</p>
+
+Автор: Dimas
+
+### 19.02.2003 news Новости от Бето Васкеза.
+
+<p><IMG SRC="/images/news_rus/2003.02/3845.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left">После успешного альбома 'Beto Vasquez Infinity' BVI выпускает новый EP группы. На него войдут редкие трэки :)))) и новые песни. Участвуют: Тарья (Nightwish), Сабина (Edenbridge), Кэндис (Blackmore's Night), а также Йорг Михаэль (Stratovarius). На этих песнях: "Wizard" (remastered version); "Until Dawn" (original lyrics); "Sadness In The Night" (radio edit); "Wizard" (early rough mix); "A Tale That Wasn't Right" (karaoke version); "Promises Under The Rain" (Candice&acute;s version); "Danjorland" (early mix by Vero &Aacute;iudi -BVI female singer-); "Wizard" (instrumental version). Также на диск войдёт первый видео-клип группы.</p>
+
+Автор: Vit Belov
+
+### 21.02.2003 news Infinity&#39;s News
+
+<p>After its successful first album, "Beto Vazquez Infinity", worldwide released, and in order to keep in touch with its fans until the release of its new material, BVI unleashes "Wizard".</p>
+<P> This EP contains rare tracks and new songs, and Jorg Michael from Stratovarius, and the outstanding international singers Candice Night (Blackmoreґs Night), Tarja Turunen (Nightwish) and Sabine Edelsbacher (Edenbridge) make their guest apeearances once again.</>
+<P> The album was recorded at different studios in Argentina, Austria, USA and at the well-known Finnvox Studios in Finland.</>
+<P> "WIZARD" was mixed by Mikko Karmila and mastered by Mika Jussila.</>
+
+Автор: Vit Belov
+
+### 16.12.2003 news Liv Kristine будет участвовать в записи многих альбомов
+
+<P>Бывшая вокалистка <B>THEATRE OF TRAGEDY Liv Kristine</B> приняла участие в записи нового альбома <B>INFINITY "Space without limits".</B> Напомним, что на прошлом альбме этого проекта участвовала <B>Tarja (NIGHTWISH)</B> (оказалось, что она жена директора лэйбла <B>NEMS</B>, который выпустил тот альбом)&nbsp;и <B>Candice Night (Blackmore's Night).</B> Новая работа <B>Beto Vasquez</B> выйдет на <B>Drakkar</B>.</P>
+<P>Также <B>Liv</B> записала партии для рок-оперы <B>Genius Episode II</B>, там же примут участие <B><SPAN lang=EN-GB>Eric Martin (Ex </SPAN>M<SPAN lang=EN-GB>r</SPAN>.<SPAN lang=EN-GB> Big), Russel Allen (</SPAN>S<SPAN lang=EN-GB>ymphomyX), Jeff Martin</SPAN> <SPAN lang=EN-GB>(</SPAN>R<SPAN lang=EN-GB>acer X), Rob Thyrant</SPAN> <SPAN lang=EN-GB>(</SPAN>L<SPAN lang=EN-GB>abyrinth) Mark Boals</SPAN> <SPAN lang=EN-GB>(Malmsteen), Daniel Gildenlow</SPAN> <SPAN lang=EN-GB>(Pain of </SPAN>S<SPAN lang=EN-GB>alvation), Edu Falaschi (Angra).</SPAN></B></P>
+<P><SPAN lang=EN-GB>Ещё одним проектом стал <B>Tribute to DEAD CAN DANCE</B>, где <B>Liv</B> записала песню <B>Summoning of the Muse</B> вместе с <B>Hortus Animae</B>.</SPAN></P>
+Автор: Vit Belov
+
+### 16.12.2003 news LIV KRISTINE guestsinger on INFINITY Project, GENIUS - A Rock Opera and DEAD CAN DANCE Tribute!
+
+<P>At <B>MASTERSOUND Studio</B> recordings were taking place for the second <B>INFINITY</B> album "<B>Space without limits</B>", the project of the Argentinian musician <B>Beto Vazquez</B>. <B>Liv Kristine</B> was singing some songs for the upcoming <B>INFINITY</B> album which will be released in Europe by <B>Drakkar Records/BMG</B>. <B>Marcelo Cabuli</B> of <B>NEMS Enterprises</B>, Argentina was also staying at <B>MASTERSOUND studio</B>. His wife <B>Tarja</B>, singer of <B>NIGHTWISH</B>, recorded a few songs for the succesful debut of <B>INFINTY</B> as well as <B>Candice Night</B>, singer of <B>BLACKMORES NIGHT</B>, which is the band of her and her husband <B>Ritchie Blackmore</B>.</P>
+<P><B>Liv</B> will also record guestvocals at <B>MASTERSOUND Studio</B> for two other projects: The Rock Opera <B>GENIUS Episode II</B> together with a.o<B>. <SPAN lang=EN-GB>Eric Martin (Ex </SPAN>M<SPAN lang=EN-GB>r</SPAN>.<SPAN lang=EN-GB> Big), Russel Allen (</SPAN>S<SPAN lang=EN-GB>ymphomyX), Jeff Martin</SPAN> <SPAN lang=EN-GB>(</SPAN>R<SPAN lang=EN-GB>acer X), Rob Thyrant</SPAN> <SPAN lang=EN-GB>(</SPAN>L<SPAN lang=EN-GB>abyrinth) Mark Boals</SPAN> <SPAN lang=EN-GB>(Malmsteen), Daniel Gildenlow</SPAN> <SPAN lang=EN-GB>(Pain of </SPAN>S<SPAN lang=EN-GB>alvation), Edu Falaschi (Angra)</SPAN></B> and a <B>DEAD CAN DANCE</B> Tribute Sampler (Song "<B>Summoning of the Muse</B>") with the Italian band <B>HORTUS ANIMAE</B>.</P>
+Автор: Vit Belov
+
+### 10.03.2004 reviews А смысл?..
+
+<P><I>Сеньор Васкес изволил исписаться?.. Печально. Для меня – вдвойне. Ибо ранее слышанные мною вещи его авторства приводили меня, как минимум, в недоумение. А второй альбом (пусть даже и заявленный как </I><I>EP</I><I>), под завязку набитый всяческими “</I><I>remastered </I><I></I><I>version</I><I>”, “</I><I>version </I><I></I><I>without </I><I></I><I>lyrics</I><I>”, “</I><I>original </I><I></I><I>lyrics </I><I></I><I>rough </I><I></I><I>mix</I><I>”, “</I><I>early </I><I></I><I>mix</I><I>” и проч., мягко говоря, удивляет и заставляет задаться вопросом: «А на фига?!» Я бы ещё понял, если бы это был какой-нибудь сингл или что-то вроде того. Но второй альбом?!?! Что в нём нового?! Малость видоизменённые версии старых вещей плюс парочка каверов… М-дя. И не спасают “</I><I>Wizard</I><I>” ни громкие имена (</I><I>Candice </I><I></I><I>Night</I><I>, </I><I>Tarja </I><I></I><I>Turunen</I><I>, </I><I>Sabine </I><I></I><I>Edelsbacher</I><I>, </I><I>Fabio </I><I></I><I>Leone</I><I>, </I><I>Jorg </I><I></I><I>Michael</I><I>), ни отменное качество реализации. Если же брать творчество Васкеса отдельно, просто как таковое: да, по отдельности песни, возможно, и недурны, а некоторые (“</I><I>Wizard</I><I>”, “</I><I>Until </I><I></I><I>Dawn</I><I>”, “</I><I>Promises </I><I></I><I>Under </I><I></I><I>the </I><I></I><I>Rain</I><I>”) попросту великолепны – эдакий воздушный павер + немножко </I><I>BLACKMORE</I><I>’</I><I>S </I><I></I><I>NIGHT</I><I> + немножко </I><I>NIGHTWISH</I><I>’еподобных баллад. Наконец, нельзя не упомянуть красивые аранжировки и не менее красивые женские и мужские голоса (речь, правда, не о Тарье, и не о Фабио Леоне). Но все они, вместе взятые, производят впечатление, будто были сочинены, сыграны и записаны разными командами, а затем впихнуты на один альбом. Увы и ах. </I></P>
+<P><I></I></P>Диск предоставлен компанией <B>ФОНО</B>
+Автор: Kai Mathias Stalhammar
+
+### 22.03.2012 news Видео INFINITY Beto Vazquez
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео-клип <STRONG>Beto Vazquez INFINITY</STRONG>, основанное на концертном выступлении группы в Буэнос-Айресе, можно посмотреть ниже. Коллектив исполнил заглавную вещь с последнего альбома "<STRONG>Existence</STRONG>", который вышел в России на<STRONG> Фоно</STRONG>. Состав коллектива:</FONT></P>
+<P><STRONG>Beto Vazquez</STRONG>: Bass <BR itxtNodeId="23"><B itxtHarvested="0" itxtNodeId="22">Ines Vera-Ortiz</B>: Lead and backing vocals<BR itxtNodeId="21"><B itxtHarvested="0" itxtNodeId="20">Omar Mansilla</B>: Lead, rhythm guitars<BR itxtNodeId="19"><B itxtHarvested="0" itxtNodeId="18">Victor Rivarola</B>: Keyboards<BR itxtNodeId="17"><B itxtHarvested="0" itxtNodeId="16">Norberto Roman</B>: Drums<BR itxtNodeId="15"><B itxtHarvested="0" itxtNodeId="14">Carlos Ferrari</B>: Lead, rhythm guitars<BR itxtNodeId="13"><B itxtHarvested="0" itxtNodeId="12">Maria Cecilia Perez San Martin</B>: Backing Vocals.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/s3eZXW4aHLc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 26.01.2013 reviews Comedy Club по-аргентински
+
+<P>Гитарист Beto Vazquez прославился в России давно. Ещё в начале XXI века к нам попала дебютная работа проекта аргентинского музыканта INFINITY, на которой несколько вещей исполнила (!!!) Tarja Turunen из NIGHTWISH, что по тем временам было невероятной сенсацией. На подпевках у Тарьи были Candice Night (BLACKMORE’S NIGHT) и Timo Kotipelto (STRATOVARIUS). Меломаны плакали и скупали CD кучами и кучками. На волне этого успеха Фоно даже издала мини-альбом “Wizard”, который также давно уже распродан. Некоторое время о господине Бето ничего не было слышно, и вот в позапрошлом году Фоно откопали для нас новый альбом мастера.</P>
+<P>О той работе как-нибудь в другой раз, темой же этой заметки является новейший шедевр INFINITY “Beyond Space Without Limits”, которая стала продолжением сотрудничества аргентинского музыканта и российского лэйбла. Давненько я так не смеялся, скажу я вам. На смену Tarja и Timo пришли некие аргентинские Jessica и Santiago, и они жарят на этом альбоме почём зря. Если сразу заглянуть в буклет, можно прочитать, что сам Beto Vazquez считает эту работу экспериментальной, её поймут только самые преданные поклонники мастера. Чёрт возьми! Подобных «завываний» я не слышал с тех самых пор, когда рецензировал демки отечественных самородков на заре существования нашего сайта лет 12 назад. Никогда бы не подумал, что такое удовольствие я получу от альбома, изданного по лицензии. Но это случилось!!! На низкий уровень реализации и примитивные мелодии даже не обращаешь внимания, когда поют эти люди. Они воют, они кричат, они отчаянно рожают слова в муках… Это страшно! Это страшно смешно!!! Только ради этого стоит заценить этот альбом.</P>
+<P>У этого альбома есть один очевидный плюс. Он не двойной, как его предшественник. Честно говоря, он мог бы быть и в два раза короче, насмеяться до слёз успеваешь за три-четыре вещи, дальше становится страшно, вдруг кто-то другой услышит и подумает, что тебе это нравится.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

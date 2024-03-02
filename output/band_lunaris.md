@@ -43,6 +43,90 @@ Maztema - Fretless Bass & Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.05.2002 news Elitist Records c гордостью объявляют о подписании.....
+
+<p>Elitist Records c гордостью объявляют о подписании еще одной замечательной progressive / black / death-metal группы Lunaris. <BR> <BR> Родом из Норвегии, Lunaris включает участников Borknagar, 1349 и Spiral Architect. Однако это не "супер-группа" или "сайд-проджект". Lunaris - полноценный работающий музыкальный коллектив, со своими амбициями и планами. Группа закончила работу над своим дебютным альбомом "The Infinite", выход пластинки запланирован в августе месяце этого года.. <br>Альбом "The Infinite" был записан в составе - ударник Asgeir Mickelson (Spiral Architect & Borknagar), гитаристы Azarak (Spiral Architect и Satyricon) и M (также back-вокал), басист и вокалист Maztema (Spiral Architect), вокалист Balfori (ex-1349) и клавишник Ray. Однако, Mickelson уже ушел из группы, его заменил Janos Di Croce. Сейчас уже идет работа над несколькими песнями для следующего альбома, и Рэй обещал в будущем еще более технический и агрессивный подход к исполняемому материалу.</p>
+
+Автор: Yermola
+
+### 18.08.2002 reviews Progressive black metal...
+
+<p>'Progressive black metal'… Слышали когда-нибудь о таком? Смеётесь? А зря. Не DARKTHRONE'ом единым, как говорится… В отличие от EPHEL DUATH и подобных им графоманов от музыки, в случае с "… the infinite" очевидно желание соединить казалось бы несоединимое: black и progressive. А учитывая то, что в составе группы числятся музыканты из BORKNAGAR, 1349 и SPIRAL ARCHITECT, стоит ли удивляться тому, что им это вполне удалось? И если вначале кажется, что из колонок доносится ни что иное, как в меру артистичный пост-симфо-блэк норвежского образца, то позже всё встаёт на свои места, и внимательный слушатель начинает понимать, что два вышеупомянутых стиля, хоть и не без труда, но всё же поддаются скрещиванию. Послушайте хотя бы "Growth Denied", и убедитесь в этом сами. LUNARIS далеко не первые, кто занялся подобными экспериментами, однако среди сонма "новаторов" эта группа выделяется прежде всего грамотными аранжировками, высоким уровнем исполнения и чётким знанием того, что именно хотят её музыканты. Они не зацикливаются на ненужных экспериментах с сэмплами, не пытаются создать новый шедевр в рамках атональной музыки, не шокируют слушателя бредовыми нагромождениями разнородных риффов и безумными вокальными партиями. И поэтому те же EPHEL DUATH могут сколько угодно пыхтеть над созданием очередного куска псевдо-музыки, – как были бездарями, так они ими и останутся. LUNARIS же – талантливые композиторы и не менее талантливые музыканты. Остаётся надеяться, что норвежцы не последуют примеру вышеупомянутых "гениев", и не вступят на скользкую дорожку, ведущую к созданию анти-музыки, а соответственно – в творческий тупик.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 19.08.2002 news Новости Elitist Records
+
+<p>Elitist Records - подразделение лейбла EARACHE, специализирующееся на современном "state-of-the-art" и "cutting-edge" андеграундном металле.</p>
+<P>ELITIST заключили контракт с WOLVERINE. Шведские прог-металлеры Wolverine заключили с лейблом Elitist сделку на запись 4 альбомов. Работа над дебютом для Elitist начнется в конце 2002 года. Группа уже выпустила два альбома -"Fervent Dream" и "The Window Purpose". Последний получил статус "Альбом месяца" издания Aardschok. Wolverine - исключительно молодая и талантливая группа, одаренная как в плане идей, так и музыкально. Их традиционно звучащий прогрессивный метал изрядно сдобрен влиянием дет-металлических корней коллектива.</>
+<P>Дебютный альбом LUNARIS на выходе. Дебютный альбом "...The Infinte" от Lunaris - новой надежды норвежского прогрессивного блэк-дет метала выходит 16 сентября. Lunaris - полноценный работающий музыкальный коллектив, со своими амбициями и планами, и они готовы стать реальной движущей силой на металлической сцене. С их музыкальной искушенностью, квалификацией, опытом и мастерством - занятие ведущих позиций на андеграундной металлической сцене должно стать простой формальностью.</>
+<P>FOREST STREAM заканчивают работу над альбомом. Российское трио заканчивает работу над своим дебютным альбомом "Tears Of Mortal Solitude". Он будет включать 11 треков .Максимально темный, величественный, эпический black-металл.</>
+<P>RAKOTH завершают работу над пластинкой. "Tiny Deaths" - третий студийный альбом Rakoth - близок к завершению. Сейчас группа записывает большее количество материала, чем может войти в альбом. В настоящий момент трек-лист будущего альбома выглядит так:</>
+<P> 1. Into 2. The Crypt / Planekeep 3. Fevered 4. Dawn 5. Trust This 6. Edge 7. June 3 8. Horizon 9. Just Another Lament 10. Vicious Life 11. Tiny Deaths</>
+<P>Группа предприняла более атмосферный, почти Avant-экспериментальный подход к песням нового альбома. При этом сохранено оригинальное звучание Rakoth. Хотя некоторые из поклонников их традиционного стиля могут быть несколько обескуражены.</>
+<P>EPHEL DUATH завершают работу над своим демо. Итальянцы Ephel Duath завершили работу над своими новыми демо-записями, сработанными в режиме "живьем в студии". Группа писалась в своем новом составе. Эта запись - подготовка к записи будущего альбома "Painter's Palette". В состав группы входят 2 музыканта, которые параллельно работают в группах, исполняющих свободный джаз. Это отражается на музыке Ephel Duath и делает ее более органичной, сумасшедшей, более слоистой и многомерной чем прежде. Ephel Duath берет курс в сторону экстремального и нелогичного Avant-металла. Примерно как "Темной-темной ночью Naked City навещают Emperor и они вместе записывают альбом". Новый шаг в направлении black metal.</>
+<P>WITHOUT FACE планируют европейский тур. Венгерские герои прогрессив-металла Without Face планируют организовать несколько европейских шоу до конца этого года. В адрес своего последнего альбома "Astronomicon" группа получила богатый урожай хвалебных отзывов, рецензий и обзоров. В том числе титул "альбом месяца" британского издания Metal Hammer.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.09.2002 news MassaBrutto Radioshow #110, 23-24 Sep 2002.
+
+<p>Playlist:<BR><BR> 1. NILE - The Blessed Dead (Relapse)<BR> 2. CEPHALIC CARNAGE - Lucid Interval (Relapse)<BR> 3. PYORRHOEA - Consume You (band)<BR><BR> рубрика "Кило-Мэтры" [CARCASS, альбом "Swansong", 1996]<BR><BR> 4. CARCASS - Keep On Rotting In The Free World (Earache)<BR> 5. CARCASS - Black Star (Earache)<BR> 6. CARCASS - Go To Hell (Earache)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Радиопремьера LUNARIS "...The Infinite"<BR><BR> 7. LUNARIS - In The Eyes Of The Heretic (Elitist/Earache/Союз)<BR> 8. LUNARIS - Arise (Elitist/Earache/Союз)<BR> 9. LUNARIS - In Contempt Of Humanity (Elitist/Earache/Союз)<BR> 10. LUNARIS - Growth Denied (Elitist/Earache/Союз)<BR> 11. LUNARIS - Soulcrush (Elitist/Earache/Союз)<BR> 12. LUNARIS - A Final Journey (Elitist/Earache/Союз)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 24.09.2002 news MassaBrutto Radioshow #110, 23-24 Sep 2002.
+
+<p>Playlist: <BR><BR> 1. NILE - The Blessed Dead (Relapse)<BR> 2. CEPHALIC CARNAGE - Lucid Interval (Relapse)<BR> 3. PYORRHOEA - Consume You (band)<BR> 4. CARCASS - Keep On Rotting In The Free World (Earache)<BR> 5. CARCASS - Black Star (Earache)<BR> 6. CARCASS - Go To Hell (Earache)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 7. LUNARIS - In The Eyes Of The Heretic (Elitist/Earache/Союз)<BR> 8. LUNARIS - Arise (Elitist/Earache/Союз)<BR> 9. LUNARIS - In Contempt Of Humanity (Elitist/Earache/Союз)<BR> 10. LUNARIS - Growth Denied (Elitist/Earache/Союз)<BR> 11. LUNARIS - Soulcrush (Elitist/Earache/Союз)<BR> 12. LUNARIS - A Final Journey (Elitist/Earache/Союз)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 08.10.2002 news MassaBrutto Radioshow #114, 7-8 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. BENEDICTION - Nightfear (Nuclear Blast)<BR> 2. CEPHALIC CARNAGE - Anthro-Emesis (Relapse)<BR> 3. SCARIOT - Instrument Of Policy (band)<BR> 4. SCARIOT - Pushing For Perfection (band)<BR> 5. LUNARIS - ...Of The One (Elitist/Earache/Soyuz)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> Рубрика "Кило-Мэтры" [CARCASS, альбом "Wake Up And Smell The Carcass", 1996]<BR><BR> 6. CARCASS - Genital Grinder II (Earache)<BR> 7. CARCASS - Tools Of The Trade (Earache)<BR> 8. CARCASS - This Is Your Life (Earache)<BR> 9. CARCASS - Emotional Flatline (Earache)<BR> 10. ALIENATION MENTAL - Blind Alley (Khaaranus Prods)<BR> 11. MOURNING BELOVETH - It Almost Looked Human (Sentinel Recs)</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 19.11.2002 news MassaBrutto Radioshow #126, 18-19 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LACUNA COIL - Heaven's A Lie (Century Media/Fono Ltd)<BR> 2. HATE ETERNAL - Servants Of The Gods (Earache/Soyuz)<BR> 3. DEICIDE - Once Upon The Cross (Roadrunner)<BR> 4. CENTINEX - The Eyes Of The Dead (Repulse)<BR> 5. THE KOVENANT - Dragonstorms (Hammerheart/Fono Ltd)<BR> 6. THE KOVENANT - In Times Before The Light (Hammerheart/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. LUNARIS - Si Vis Pacem, Para Bellum (Elitist/Earache/Soyuz)<BR> 8. ANAL COLLISION - Panzer Valley (band)<BR> 9. ANAL COLLISION - South Of Heaven [by SLAYER] (band)<BR> 10. HELLVETO - Burning Statues (band)<BR> 11. HELLVETO - Days Occupated By Tears (band)<BR> 12. DARK TRANQUILLITY - Hours Passed In Exile (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 28.10.2003 news LUNARIS заканчивают новый альбом
+
+<P><B>LUNARIS</B> заканчивают свой новый альбом под названием '<B>Cyclic</B>'. На альбоме приняли участие бывшие и нынешние участники <B>Testament, Death, Borknagar, Arcturus, Sadus.</B> Трэк-лист:</P>
+<P><B>Casualties of Peace<BR>Existence Unveiled<BR>Lessons in Futility<BR>In Nothing<BR>Mendacities of a Corporate Messiah<BR>When it Ends<BR>Cyclic<BR>Mot Natt<BR>Intricate Astral Deception<BR>Altruismens Grav&oslash;l<BR>Slaves of Opinion</B><BR></P>
+Автор: Vit Belov
+
+### 28.10.2003 news LUNARIS are finishing new album
+
+<P><B>LUNARIS</B>&nbsp;are putting the finishing touches to their second album <B>"Cyclic".</B> On album guest appearances from members of <B>Testament, Death, Borknagar, Arcturus, Sadus</B> and more! </P>
+<P>The final track list has yet to be finalized, but songs to be included are:<BR><BR><B>Casualties of Peace<BR>Existence Unveiled<BR>Lessons in Futility<BR>In Nothing<BR>Mendacities of a Corporate Messiah<BR>When it Ends<BR>Cyclic<BR>Mot Natt<BR>Intricate Astral Deception<BR>Altruismens Grav&oslash;l<BR>Slaves of Opinion</B><BR></P>
+Автор: Vit Belov
+
+### 11.05.2004 reviews Продолжение написания истории progressive-black-metal
+
+<P><I><B>LUNARIS</B> продолжают путь, выбранный на первом альбоме. Повсеместное смешивание стилей black-metal и progressive происходит вплоть до появления однородной массы.</I></P>
+<P>Новый альбом группы '<B>Cyclic</B>' не даст заскучать даже самым продвинутым гурманам от музыки. Самое забавное, что и любители black-metal тоже смогут найти кое-что интересное для себя&nbsp;на этом альбоме. Такое встречается довольно редко, ведь обычно более брутальные стили выступают только в роли радикальной краски для изображения прогрессивного полотна. Здесь же кроме ломанных мелодий и неоднозначных переходов, которые естественно присутствуют в довольно большом количестве, есть что послушать и для любителей прямолинейного металла. Таким образом, группа добивается поразительного результата. В одной песне <B>LUNARIS</B> переходят от риффов из <B>DREAM THEATER</B> к забою от каких-нибудь символов black-metal 90-х. Все композиции отличаются друг от друга, встречаются элементы death-metal, классические струнные&nbsp;инструменты и чистый вокал. Это можно отнести как к достоинствам альбома, так и к недостаткам. Нужно обладать очень широким музыкальным кругозором, чтобы&nbsp;понять всю многогранность этой пластинки.</P>
+<P>Очередной металлический альбом, в котором музыка усложняется до предела. (Кстати, в записи пластинки приняли участие <B>Steve DiGiorgio</B> и <B>Asgurd Michelson</B>, замеченные чуть раньше на пластинке <B>VINTERSORG</B>). Сколь угодно долго можно размышлять о музыкальных достоинствах '<B>Cyclic</B>', но одно точно, альбом этот не для всех.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

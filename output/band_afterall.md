@@ -53,6 +53,52 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.04.2006 reviews Чужие на трэшевом празднике жизни
+
+<P>Бельгийцы After All не новички на тяжелой сцене, они играют уже более десяти лет. Не слышал их более ранних релизов, говорят, что там было немало метаний между стилями. Но нас же интересует "The Vermin Breed", и ведь именно какая-то особь из этих самых паразитов украшает обложку альбома. Но нервные домохозяйки испугаются не только этого рисунка. Ведь на своем пятом уже по счету релизе сей квинтет исполняет олдскульный трэш, так что никаких слащавых баллад не предвидется. Но вот что не хватает After All - так это чувства, так скажем, "трэшевой фишки". Просто это не их музыка, вот и всё. С таким же успехом можно исполнять и пауэр, и спид, и просто хэви. А вокалисту очень подошли бы, например, какие-то эпические длинные композиции, а не более&nbsp; короткие трэш-номера. И попытка продюсера (впрочем, удавшаяся) воссоздать тот старый звук особо не помогла - After All чужие на "трэшевом празднике жизни". Тем более, мы слышим, что группа находится пока еще в жанровом поиске: вещь "Cascade' это практически думовая композиция, а завершающая 'Downward'&nbsp;слишком мелодична. А трэш - тем более, старой школы - не терпит таких метаний между стилями. Не удивлюсь, что следующая пластинка After All выйдет уже совершенно другой. Но в данном случае я бы не стал поощрять подобное разнообразие. Да и определиться за десять лет уж надо было бы... А диск будет включать еще два бонус-видео, первое из которых к альбому (как и к трэшу) никакого отношения не имеет, а второе представляет собой коротенький трэйлер к "The Vermin Breed".</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 06.08.2009 reviews Бойтесь термина power-thrash-metal
+
+<P>Единственным оправданием существования этой группы является её возраст. Не хочется столь резко говорить, но уже немного подустал прослушивать новые перлы этой бельгийской группы, стиль которой power-thrash-metal. О стиле power-thrash-metal я скажу кое-что ниже. А пока вступительные данные. AFTER ALL существуют с 1988 года и выпускают уже свой седьмой полнометражный альбом.</P>
+<P>Уж как стараются ребята нам понравиться. В этот раз к записи были приглашены такие зубры speed-metal, как Joey Vera (ARMOURED SAINT), Juan Garcia и Bernie Versailles (оба- AGENT STEEL), которые сыграли чуток на одной песне. Больше, в общем-то, и отметить нечего. Что такое стиль power-thrash-metal, если вынести за скобки ICED EARTH и BLIND GUARDIAN? Это недоthrash-недоpower с забойными риффами, но слабым мелодическим наполнением и слабеньким вокалом. Вот это самое и есть AFTER ALL. Происходит долбилово, иногда даже с заходом в старорежимный melodic-death-metal, затем вступает голосистый мужик, драйв резко падает, скука резко растёт.</P>
+<P>К сожалению, ничего путного и на этом альбоме AFTER ALL нет. Но пусть существуют дальше, быть может, выпустят лет через шесть свой юбилейный альбом, а там и 30-летие не за горами.</P>
+Автор: Vit Belov
+
+### 15.02.2010 news AFTER ALL поменяли двоих
+
+<P>Бельгийцы<STRONG> AFTER ALL</STRONG> расстались с вокалистом <STRONG>Piet Focroul</STRONG> и басистом <STRONG>Erwin Casier. </STRONG>Новыми музыкантами стали <STRONG>Sammy Peleman</STRONG> (<B>SEPTEMBER SYN</B>)&nbsp;и <B>Frederik Vanmassenhove</B> (ex-<B>ABORTED</B>).</P>
+Автор: Vit Belov
+
+### 28.04.2012 news Новый альбом AFTER ALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.04/23665.jpg" width=400 height=400>Бельгийцы <STRONG>AFTER ALL</STRONG> планируют к выпуску новый альбом. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск получил название <STRONG>"Dawn Of The Enforcer"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>За сведение и мастеринг ответственен<STRONG> Dan Swano</STRONG>. Обложку нарисовал <STRONG>Ed Repka</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ориенировачные даты выхода альбома: апрель 2012 - в странах Бенилюкса (Бельгия, Нидерланды и Люксембург), июнь 2012 - остальная Европа.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P>
+Автор: Headcrusher
+
+### 04.01.2013 news Видео-клип AFTER ALL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ролик на песню <STRONG>AFTER ALL</STRONG> <STRONG>"To Breach And Grieve" </STRONG>можно посмотреть ниже. Трек войдёт на новый альбом коллектива <STRONG>"Dawn Of The Enforcer"</STRONG>, который выйдет в марте на <STRONG>Roadrunner</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/IOGIeptNIrQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 15.06.2016 news Новый клип AFTER ALL
+
+<p>Новый ролик<strong> AFTER ALL</strong> на песню "<strong>The Unusual Sin</strong>" можно посмотреть ниже. Трек попал на новый альбом бельгийцев "<strong>Waves Of Annihilation</strong>", вышедший 10 июня на <strong>Noise Art</strong>. Продюсером альбома выступил <strong>Dan Swano</strong>.</p><p>Трек лист:</p><p>“Rejection Overruled”<br>“Target Extinction”<br>“The Unusual Sin”<br>“Fall In Line”<br>“None Can Defy”<br>“First Class Terror”<br>“Restore To Sanity”<br>“Lost In The Crowd”<br>“After The Hurt Is Gone”<br>“Destructive Force”</p><p>&nbsp;<center><img width="300" height="300" src="/images/news_rus/2016.06/29360.jpg" border="0"><p></p></center><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/-2QiKAQbfao" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 15.06.2016 news AFTER ALL: New video and new album
+
+<p>A new video from<strong> AFTER ALL</strong> for the song <strong>"the Unusual Sin</strong>" can be viewed below. Track is from the new album of the Belgians "<strong>Waves Of Annihilation</strong>", released on June, 10 via<strong> Noise Art</strong>. The CD was produced by <strong>Dan Swano</strong>.</p><p>Track list:</p><p>“Rejection Overruled”<br>“Target Extinction”<br>“The Unusual Sin”<br>“Fall In Line”<br>“None Can Defy”<br>“First Class Terror”<br>“Restore To Sanity”<br>“Lost In The Crowd”<br>“After The Hurt Is Gone”<br>“Destructive Force”</p><p>&nbsp;<center><img width="300" height="300" src="/images/news_rus/2016.06/29360.jpg" border="0"><p></p></center><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/-2QiKAQbfao" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

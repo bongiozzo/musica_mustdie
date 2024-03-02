@@ -12,6 +12,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.03.1999 reviews 
+
+<p>Честно говоря, никак не могу прийти в себя после прослушивания этого альбома, когда узнал, откуда эта группа. Окаэывается из Испании. Это-то и привело меня в шок. Никогда бы не подумал, что именно в Испании появится группа претендующая на выход в высшую лигу speed-power-metal. Ну из Германии, ну, может быть, из Италии, ну ещё туда-сюда, но вот чтобы из Испании - это просто ерунда! Однако... Очень мелодичный материал с плотными гитарными партиями в духе HELLOWEEN, BLIND GUARDIAN, иногда проскакивают отголоски IRON MAIDEN. Сильный высокий вокал (даже чересчур, иногда). Как ни странно, но здесь нет ни одного вкрапления испанской народной музыки, хотя, на мой взгляд, партии испанской гитарки не помешали бы. Но, в целом, прекрасный и сильный альбом, достойное пополнение коллекции.</p>
+
+Автор: Dimas
+
+### 18.06.2001 news BEYOND TWILIGHT - скандинавский прог&#x2F;пауэр проект...
+
+<p>Ушедший от Ингви Мальмстина вокалист Jorn Lande (также MILLENIUM/ARK) и клавишник Finn Zierler (TWILIGHT) создали прог/пауэр проект "BEYOND TWILIGHT" и 23 июля уже выпускают дебютный диск "The Devil's Hall Of Fame". Продюссировал альбом Томми Хансен. Будут следующие песни: 01. Hellfire 02. Godless And Wicked 03. Shadowland 04. The Devil's Waltz (instr.) 05. Crying 06. The Devil's Hall Of Fame 07. Closing The Circle (instr.) 08. Perfect Dark</p>
+
+Автор: Yermola
+
+### 18.06.2001 news BEYOND TWILIGHT, the new Scandinavian prog&#x2F;power ....
+
+<p>BEYOND TWILIGHT, the new Scandinavian prog/power metal project featuring MILLENIUM/ARK singer Jorn Lande and TWILIGHT keyboardist Finn Zierler, will be issuing their debut album, The Devil's Hall Of Fame, on July 23rd. Produced by Tommy Hansen (PRETTY MAIDS, HELLOWEEN), the CD will include the following track listing: 01. Hellfire 02. Godless And Wicked 03. Shadowland 04. The Devil's Waltz (instr.) 05. Crying 06. The Devil's Hall Of Fame 07. Closing The Circle (instr.) 08. Perfect Dark Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Beyond Twilight

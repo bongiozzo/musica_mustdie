@@ -71,6 +71,96 @@ Tormod Langшien Moseng - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.02.1999 reviews 
+
+<p>Очередная gothic-капелла, создающая музыку по популярному сейчас сценарию. Берётся женский вокал (и только) сопровождаемый звучанием тяжёлых гитар и создаётся атмосфера меланхолии. Музыка этой норвежской группы напоминает работы THE THIRD AND THE MORTAL и GATHERING, но с более тяжёлыми гитарными риффами. Это вовсе не лёгкая музыка. Используются целых три гитары. Их совместное звучание и задаёт тяжесть. А вообще, MADDER MORTEM не лучше, но и не хуже тех же GATHERING и THE THIRD AND THE MORTAL.</p>
+
+Автор: Dimas
+
+### 26.04.2001 reviews Gothic doom с влиянием разных стилей
+
+<p>Gothic doom с влиянием разных стилей. Очень тяжелая для своего стиля музыка. Напоминает Gathering и Lacuna Coil, но в более агрессивном виде, с почти death-doom риффами в духе Black Sabbath. Очень мощный женский вокал, с определенными нервными нотками. В целом, альбом ничуть не отличается от дебютника 1999 года. Такая же занудность местами, депрессивные настроения, медленный темп и соборность в звучании. Музыка не самая оригинальная, с использованием многих известных клише. Жесткая, мощная музыка под которую вряд ли получится заснуть, несмотря на некоторые тоскливые моменты, потому что потом вас все равно разбудят зверские сфокусированные риффы. Главное, что группа играет с чувством, сознательно то повергая слушателя в транс, то резко выводя из него уникальным гитарным звуком. Такое должно понравиться любителям готическо-металлической и атмосферной музыки.</p>
+
+Автор: Dimas
+
+### 24.05.2002 news MADDER MORTEM в студии
+
+<p>Норвежцы MADDER MORTEM вошли в Studio Underground для записи своего третьего полнометражного альбома "Deadlands", выпуск которого планируется 21 октября 2002 года через Century Media Records. Альбом будет содержать девять песен на 50-60 минут. Ожидается более мрачный и более тяжелый альбом с меньшей долей шизофренизма, чем предыдущий релиз.</p>
+
+Автор: Dimas
+
+### 24.05.2002 news MADDER MORTEM in studio
+
+<p>Norway's MADDER MORTEM entered Studio Underground on May 20th to begin recording their third full-length album, entitled Deadlands, for an October 21st release through Century Media Records. According to frontwoman Agnete, the follow-up to 2001's All Flesh Is Grass will contain nine songs and approximately 50-60 minutes of MADDER music, with a sound that the singer describes as "heavier and gloomier, but perhaps less schizophrenic" than its predecessor.</p>
+
+Автор: Dimas
+
+### 15.01.2003 reviews Безумный авангардистский дум... или пост-дум?
+
+<p>Безумный авангардистский дум… или пост-дум? Или – чего уж там! – пост-металл? Да и металл ли это вообще, пусть даже и с приставкой "пост-"? Нет, так дело не пойдёт. Ставим вопрос ребром: музыка ли это? Да, но, пожалуй, опять с приставкой "пост-". Это уже третий альбом больных на голову норвежцев (здесь будет нелишним вспомнить, что "безумие" и "гений" – если и не родственники, то соседи); первый, "Mercury", являл собой прекрасный образчик готик-дума "по-норвежски" – вполне вменяемая, хоть и пугающая полным отсутствием штампов музыка; второй, к сожалению, прошёл мимо меня… а вот третий… он странен во всём. Начиная с обложки, минуя вокал, и заканчивая собственно музыкой. За коротеньким (тоже, мягко говоря, странноватым) интро следует "Necropol Lit", песня намертво врезающаяся в память благодаря совершенно убийственному гитарному риффчику. А дальше… а дальше представьте себе гремучий коктейль из позднего THE GATHERING и позднего же ATROX. Видать, не получается у норвежцев играть "просто дум". Что ж, любителям небанальной музыки – мои настоятельные рекомендации.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 05.10.2003 news У MADDER MORTEM новые музыканты
+
+К MADDER MORTEM присоединились новые музыканты гитарист Odd Eivind Ebbesen и басист Tormod Langoien Moseng. Оба просто друзья коллектива.
+Автор: Vit Belov
+
+### 20.08.2005 news MADDER MORTEM тоже на Peaceville
+
+<P><STRONG>MADDER MORTEM</STRONG> также перешли на <STRONG>Peaceville</STRONG> c <STRONG>Century Media</STRONG>. Их новый альбом "<STRONG>Desiderata</STRONG>" выйдет до конца года.</P>
+Автор: Vit Belov
+
+### 21.01.2006 news Дата релиза MADDER MORTEM
+
+<P>Также 27 марта на <STRONG>Peaceville</STRONG> выйдет новый альбом <STRONG>MADDER MORTEM "Desiderata</STRONG>". </P>
+Автор: Vit Belov
+
+### 17.07.2006 reviews Когда не нужно спешить
+
+<P>Четвертый полноформатник норвежцев Madder Mortem "Desiderata" оказался их дебютом на лэйбле Peaceville. После выпуска предыдущего очень интересного альбома "Deadlands" (2002) в стане группы произошли некоторые изменения: Madder Mortem покинули басист Paul Mozart Bjorke и гитарист Eirik Ulvo Langnes, что, про моему мнению, отразилось на музыке норвежцев не в лучшую сторону. Хотя всё это можно объяснить. После истечения контракта с Century Media группа бросилась искать новый лэйбл, но не просто так, а уже с готовым материалом (который был записан еще в 2004-ом году). "Desiderata" я могу назвать попыткой "вытащить" не очень интересную музыкальную составляющую&nbsp;за счёт&nbsp;вокала Agnete M. Kirkevaag. Норвежцы по сравнению с "Deadlands" добавили немного экстрима, да и гитары кое-где записали близко к ню-металическому саунду (или, быть может, к модерн-трэшевому), хотя Madder Mortem по-прежнему очень далеки от каких-либо музыкальных трендов (и классификаций вообще). Просто если на предыдущем релизе всё звучало пусть и как-то необычно, но, тем не менее, гармонично, то на "Desiderata" материал не слушается целостно, он словно понадерган из различных идей музыкантов - что было бы не так уж и плохо, если бы его удалось сплести в нечто единое. Да и расположение песен, честно говоря, удивило - ставить открывашкой одну из самых слабых вещей альбома 'My Name Is Silence', по меньшей мере, странно. Впрочем, не будем судить этих норвежцев очень строго; их стремление не быть в рамках какого-либо жанра уже заслуживает уважения. Однако, жаль, что с такой интересной вокалисткой, как Agnete, им не удалось найти под ее вокал достойный материал (за исключением, разве что, 'Cold Stone' и некоторых вещей, напоминающих песни с предыдущего альбома). Хотя есть тут один субъективный момент, которого сложно избежать: если бы я не слышал "Deadlands", вполне возможно, моя оценка могла бы быть другой...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 05.02.2009 news Новый MADDER MORTEM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Весной на<STRONG> Peaceville</STRONG> выходит новый альбом <STRONG>MADDER MORTEM</STRONG> <STRONG>"Eight Ways". </STRONG>Трэк-лист:</FONT></P>
+<P>01. <B>Formaldehyde</B><BR>02. <B>The Little Things</B><BR>03. <B>Armour</B><BR>04. <B>Resolution</B><BR>05. <B>A Different Kind Of Hell</B><BR>06. <B>Riddle Wants To Be</B><BR>07. <B>Where Dream And Day Collide</B><BR>08. <B>The Flesh, The Blood And The Man</B><BR>09. <B>Get That Monster Out Of Here</B><BR>10. <B>Life, Lust & Liberty</B><BR>11. <B>All I Know</B><BR>12. <B>The Eighth Wave</B></P>
+Автор: Vit Belov
+
+### 25.02.2009 news Новый альбом MADDER MORTEM
+
+<P>18 мая на<STRONG> Peaceville</STRONG> выходит новый альбом <STRONG>MADDER MORTEM</STRONG> <STRONG>"Eight Ways". </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Formaldehyde</B><BR itxtvisited="1">02. <B itxtvisited="1">The Little Things</B><BR itxtvisited="1">03. <B itxtvisited="1">Armour</B><BR itxtvisited="1">04. <B itxtvisited="1">Resolution</B><BR itxtvisited="1">05. <B itxtvisited="1">A Different Kind Of Hell</B><BR itxtvisited="1">06. <B itxtvisited="1">Riddle Wants To Be</B><BR itxtvisited="1">07. <B itxtvisited="1">Where Dream And Day Collide</B><BR itxtvisited="1">08. <B itxtvisited="1">The Flesh, The Blood And The Man</B><BR itxtvisited="1">09. <B itxtvisited="1">Get That Monster Out Of Here</B><BR itxtvisited="1">10. <B itxtvisited="1">Life, Lust & Liberty</B><BR itxtvisited="1">11. <B itxtvisited="1">All I Know</B><BR itxtvisited="1">12. <B itxtvisited="1">The Eighth Wave</B></P>
+Автор: Vit Belov
+
+### 13.04.2009 news Обложку новой MADDER MORTEM
+
+<P><STRONG>Peaceville </STRONG>опубликовали обложку нового альбома<STRONG> MADDER MORTEM</STRONG> <STRONG>"Eight Ways", </STRONG>который выйдет 18 мая.</P>
+<P><center><IMG height=400 src="/images/news_rus/2009.04/13936.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 31.05.2009 news Новое видео от MADDER MORTEM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню<STRONG> MADDER MORTEM</STRONG> <STRONG>"Armour" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=300 width=400><PARAM NAME="allowfullscreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always"><PARAM NAME="movie" VALUE="http://vimeo.com/moogaloop.swf?clip_id=4881492&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1">
+<embed src="http://vimeo.com/moogaloop.swf?clip_id=4881492&server=vimeo.com&show_title=1&show_byline=1&show_portrait=0&color=&fullscreen=1" type="application/x-shockwave-flash" allowfullscreen="true" allowscriptaccess="always" width="400" height="300"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.12.2009 reviews Театральный авангардный gothic-doom metal
+
+<P>У норвежской авангардной gothic-doom metal команды MADDER MORTEM очень счастливая судьба в тяжёлой музыке. Их творчество трудно подогнать под широкоизвестные, а главное популярные определения, но, несмотря на это, альбомы MM выходят на крупных и уважаемых лэйблах.</P>
+<P>На текущий момент лэйблом норвежцев является Peaceville. Нельзя сказать, что творчество MADDER MORTEM понять легко. Это относится и к свежайшей их работе “Eight Ways”. Медленная музыка с множеством спорных мелодических решений и интересным вокалом Agnete M. Kirkevaag. Эта девушка отображает множество образов в своём голосе, её пение варьируется от нежного и ласкающего слух до грубого и агрессивного. Ясное дело, рассказывает она какую-то интересную историю. Например, в первой композиции «Формальдегид» она задыхается в конце, и подобных театральных решений на пластинке множество. Кроме этого, музыканты увлекаются негармоничными мелодиями. Их музыка вроде бы мелодичная, но этим мелодиям не свойственно запоминаться. Это как просмотр атмосферного авангардного фильма «не для всех». Похоже на медитацию. Медитируешь, медитируешь, очищаешь мозг и тело, а потом спокойно засыпаешь.</P>
+<P>Достичь Нирваны с MADDER MORTEM получится не у всех. Иногда очень хочется нажать на «стоп» и включить что-нибудь поэнергичнее. Лично у меня не случилось полюбить этот альбом, но если вам нравятся ATROX или AVA INFERI, попробуйте. </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

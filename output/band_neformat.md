@@ -33,6 +33,49 @@ NIK (Tornado) - гитара
 * C группой "Allons" 
 * C группой "Lead Weight" Басс гитарист
 
+## Публикации
+
+### 03.03.2004 news UNDERGROUND FOREVER KZ compilation...
+
+<p align="center"><IMG SRC="http://musica.mustdie.ru/images/albums/u/underground_kz_compilation/2004_6109.jpg" width="283" height="276" hspace="15" vspace="5" border="1" align="left">Recently announced compilation of Kazakhstan's metal groups "<b>UNDERGROUND FOREVER KZ</b>" has been issued. Almost all participants of the compilation: Holy Dragons; Requiem; Neformat; Mjertvye Dushi; Black Fox and  Inkarna - performed for a large audience in presentation at the "Metropol" club last night. The first disc of a planned series introduced the whole diversity of Almaty and provincial stage from  techno-death "<b>LEAD WEIGHT</b>" to retro-power "HOLY DRAGONS". The compilation presents almost all styles of modern extreme music, except that, only excluding grindcore and industrial. This project with a financially sound first part promises to become a systematic issue and give to the audience an opportunity to get to know the whole palette of Kazakhstan's informal music. To purchase the disc, please e-mail at: jpi@inbox.ru <br><br>
+Web-site: <a href="http://underground.forever.kz/" target=_blanc>http://underground.forever.kz/ </a>
+</font> </p>
+Автор: Yermola
+
+### 19.03.2004 news Второе пришествие Христа!
+
+<p><IMG SRC="http://www.mms.kz/JSsmall.jpg" width="299" height="262" hspace="15" vspace="5" border="1" align="right">
+Долгожданным новым участником группы LEAD WEIGHT согласился стать виртуоз 5 струн ... <B>JESUS Cr</B>. Не больше и не меньше. Теперь когда на команду снизошла Божья благодать, будет продолжена запись концептуального творения "ALLY". Также после серии репетиций в новом составе будет возобновлена  концертная деятельность. <br><br>
+
+Послужной список <B>JESUS'a</B> (в качестве мастермайнда, основого вокалиста и бассиста) включает в себя культовый трэш-дет-индастриал проект ALLONS и нынешнее участие в хард-кор / дет формации NEFORMAT.<br><br>
+
+С НАМИ БОГ!</p>
+Автор: Yermola
+
+### 25.03.2004 news The second advent of Jesus!!!!
+
+<p align="center"><IMG SRC="http://www.mms.kz/JSsmall.jpg" width="299" height="262" hspace="15" vspace="5" border="1" align="right">
+Virtuoso of 5 strings… <B>JESUS Cr</B>. became a long-awaited new participant of LEAD WEIGHT band. Now, when the band has the “God’s” blessing, recording of conceptual creation “ALLY” will be continued. Also after a series of rehearsals with a new member, the band will recommence its concert activity.<br><br>
+Service record of <B>JESUS</B> (in the role of mastermind, main vocalist and bass player) includes the cult thrash-death-industrial project <a href="http://www.allons.neformat.com/" target=_blanc>ALLONS</a> and current participation in hard-core/death formation <a href="http://www.neformat.com" target=_blanc>NEFORMAT</a>.<br><br>
+<b>GOD BLESS US!</b></p></font>
+Автор: Yermola
+
+### 17.06.2004 reviews Дыши с ненавистью!
+
+О чём мечтают записывая свои лупы и сэмплы электронщики? Конечно же бросить "неживые" железки и вдарить дэт-кор! А в кого вырастают возмужавшие хард-коровики? Да в дэтстеров, ядрена мамень.<BR><BR>Так и случилось с молодой Алматинской формацией "NEFORMAT". В неё вошли экс-лидер популярного хард-кор трио "TORNADO" (в лице вокалиста / гитариста Николая Халабузарь) и мемберы культового коллектива "ALLONS" Jesus Cr. (басс гитара и основной вокал), MEG (гитара) и сессионный барабанщик Олег. <BR><BR>Многолетний музыкальный и концертный опыт не позволил им играть ничего кроме жёсткого и бескомпромиссного дэта. На <B>Breathe With Hatred</B> не осталось ни следа от индустриальщины или от хард-кора. Довольно плотная стена звука, невылазящий на передний план бас (слышный только в виде ритмической и гармонической поддержки), скрытая и неброская мелодика, прячущаяся за риффовыми структурами и над всем этим хриплый гроулинг вокалиста. <BR>Странно, что альбом выглядит монолитно, несмотря на то, что в написании и аранжировке материала принимали участие все члены группы. Не сказать, что созданная Jesus'ом "Voice within" стилистически отличается от "Suggestion" Николая TORNADO. Такое впечатление, что команда уже давным давно играет, да и дышит вместе. Дышит с ненавистью. Breathe With Hatred. Никакого мелодик дэта, никакой "шведятины", корпс-пейнта или перевернутых крестов. Среднетемповые, качовые или быстрые вещи. Подход к сочинению мне лично напомнил Morbid Angel или ранний Carcass. Согласитесь, не самые плохие ассоциации?! <BR>В эпоху симфо-блэка, рэп-кора, эльфийского говно-павера или педо-готики - дэт от NEFORMAT воспринимается как глоток свежего воздуха. Хотя и врядли когда композиции альбома прозвучат в эфире хоть какого-то радио. "Формат не позволяет!" Впрочем, музыканты и сами не строят иллюзий по этому поводу. Это видно уже из названия.<BR><BR>Недостатки альбома.<BR>Первый и самый критичный. Материал безусловно бы выиграл будучи записан Риком Рубиным в профессиональной студии и с жывыми барабанами. Реализация задумок как и у большинства пост-советских релизов удалась не на 100 %. <BR>Монолитность. Часто монолитность превращается в монотонность. Очень трудно соблюсти баланс и не вставляя медляков и оркестральных интерлюдий не наскучить слушателю в течении 40 минут. <BR><BR>Оценка: 8 / 10.<BR>Поставить больше не позволяет качество записи. Меньше - совесть. Приятно, что в Казахстане сегодня играют профессиональные и не трендовые музыканты. <BR><BR>Альбом достоин издания и широкой дистрибуции в СНГ.<BR><BR>Желаю коллегам всяческих успехов на поприще продвижения NEFORMAT'a. В то время когда всё продается и покупается особенно неожиданно встретить ... МУЗУ. Пусть даже и одетую в майку Морбид Энджел.
+Автор: Алина Кретова
+
+### 20.01.2005 reviews Из Казахстана с ненавистью
+
+<P>Нет, не перевелись еще на территории бывшего СССР мастера, способные отливать высококачественный металл.Четверо алмаатинцев из "Неформат" яркий тому пример. Музыка коллектива -&nbsp; злой дэт с серьезной претензией на приставки "техно" и "прогрессив". Представьте себе, что Mekong Delta вдруг решили утяжелиться и принялись играть дэт, оставив при этом всю структуру своих композиций. Представили? Вот нечто подобное&nbsp; играют Неформат. И&nbsp; делают это очень качественно и технично, ведь в коллективе плавят сталь музыканты с большим стажем, работавшие до этого в группах Allons и Торнадо. Хочется заметить, что на пластинке достаточно высок не только уровень владения инструментами и уровень творческого потенциала, но и уровень записи соответствует европейским стандартам. Завершает альбом кавер - версия композиции Electric Funeral бессмертных ветеранов Black Sabbath, обыгранная в манере Неформата, и замечательно вписавшаяся в общую концепцию диска. Надеюсь, в ближайшее время коллектив найдет достойного издателя их нетривиального творчества.</P>
+Автор: Fucker
+
+### 29.09.2005 news NEFORMAT на Blacksmith
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2005.09/9424.jpg" width=400 align=left border=5>24 сентября реализован десятый (юбилейный ) CD <STRONG>Blacksmith</STRONG> - релиз: <STRONG>NEFORMAT</STRONG> – "<STRONG>Breathe With Hatred</STRONG>". Казахстанский коллектив на своём дебютном альбоме нарезает прибруталенную техничную дэзню. Альбом уже получил неплохие отзывы в прессе и готов ворваться в ваши дома кровавой резнёй.<BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### NEFORMAT - время колотить понты 8-)

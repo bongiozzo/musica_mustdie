@@ -143,6 +143,56 @@ Dr. Franzenstein - Keyboards
 * C группой "Ewigheim" 
 * C группой "Transilvanian Beat Club" 
 
+## Публикации
+
+### 21.02.2001 news Eisregen записывают новый альбом.
+
+<p> Eisregen в настоящее время заняты в студии. Новый альбом "Farbenfinsternis" планируется выпустить 26-ого марта 2001 года.</p>
+
+Автор: Morsus
+
+### 21.02.2001 news Eisregen are recording the new album.
+
+<p> Eisregen are busy in the studio at this moment. New album "Farbenfinsternis" will be released on March 26th 2001.</p>
+
+Автор: Morsus
+
+### 07.02.2002 reviews Мрачность цветов под ледяным дождем
+
+<p>Мрачность цветов под ледяным дождем. Новейшее четвертое мрачное творение немецкой группы на больные тематики. Музыкальный материал полегчал, стал более рваным и аритмичным. Резкие агрессивные гитарные риффы соседствуют с меланхоличными скрипками и подпитываются немецкоязычным грозным вокалом. Мелодики убавилось, заменившись атмосферными делами. Даже не пытаюсь определить жанр музыки на этом альбоме. Это музыка на пересечении многих жанров тяжелой музыки, будем интерпретировать это, как gothic-black или немецкоязычный extreme metal. Наравне с бласт-битами и скримингом слышны мелодичные задумчивые пассажи с чистым вокалом, напоминающим IN EXTREMO. Также не будем касаться темы извращенной лирики на альбоме (и насмешки над русским и немецким фольклором). Материал альбома отличается разнообразием как музыкальных тем, так и вокальных линий, минимизированным процентом электроники, повышенной жесткостью и высоким техническим уровнем. Бросается в глаза выверенное качество записи. Для некоторых, этот диск может показаться лучшим в дискографии группы, несмотря на сложное восприятие материала. Да и в плане оригинальности, он даст фору многим. Под занавес - замечательная кавер-версия DEATH "Born Dead".</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 18.06.2002 reviews Natural born entertainers
+
+<p>What a pretty nice little thing! What a sweet artwork! What a precious booklet and everything it does veil therein! Erh, I guess I forgot it's EISREGEN, so everything mentioned above is sort of what we must have got used to… at least, in case with this combo (oh god, wasn't it me who almost said "torso" instead by mistake?). Kind of sarcastic black metal. Like black metallish RAMMSTEIN, y'know. Natural born entertainers. Public enemy #666, so to say. Well, "Farbenfinsternis" doubtlessly is amusing, little horny fuck in the ass of narrow-minded scumbags out there. Although, in spite of visual appearance and overall image's importance, EISREGEN also have something to offer… musically. Believe me or not, but "Farbenfinsternis" really made the magic word "Rammstein" come to my mind. You say, "what the hell"!? Man, I don't know, but it REALLY sounds like RAMMSTEIN at times. Maybe, far too often. Therefore, be it a contradiction or not, EISREGEN are "one of a kind" sort of band. Hell yeah, that puking trumpet in "Deutschland In Flammen" sounds loathsomely bewitching! :)</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 06.02.2004 news Eisregen переиздают старый диск и готовят новый
+
+<P>Eisregen решили переиздать дебютный альбом "Zerfall" на Massacre Records. Он выйдет 23 февраля и будет включать аж 10 бонус-треков. Бунусом будет целиком дописана демка "Am Ende des Weges" и в итоге наберётся 75 минут музыки. Все треки ремиксованы и ремастерированы Энди Хорном в студии Kitchen, в Германии. Помимо этого, группа усиленно трудится над новым альбомом, выхода которого можно ожидать в течение этого года.</P>
+Автор: Morsus
+
+### 06.02.2004 news EISREGEN will rerelease debut album
+
+<P>The legendary and sold-out EISREGEN debut album "Zerfall" will finally be rereleased by Massacre on February 23rd - including 10 bonus tracks! The album will include the complete "Am Ende des Weges"-demo as bonus and offers almost 75 minutes of music! All tracks were remixed and remastered by Andy Horn at Famous Kitchen studio, Adelsheim, Germany. In addition Germany's most extreme band works hard on songs for a new studio album, which can be expected in the coming months.</P>
+Автор: Morsus
+
+
 ## Обсуждения
 
 

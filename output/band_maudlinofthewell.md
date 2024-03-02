@@ -23,6 +23,21 @@ Blight Of River-Systems
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.02.2001 reviews Сумбурная хаотичная музыка
+
+<p>Сумбурная хаотичная музыка. Немного непонятная мешанина разных стилей (в том числе таких противоположных, как black metal и alternative music) на основе готического doom-death metal. Довольно унылая атмосфера, отстраненный женский вокал вперемешку с мужским хрипяще-шипящим с переходом на чистый. Чрезвычайно психоделичный материал. Постоянные скомканности и резкие переходы делают музыку трудной и немного скучноватой для прослушивания. Холодные настроения и полная безысходность довершают дело. Хотя очень интересные в своем стиле гитарные партии, использование легких клавиш и кларнета спасают этот альбом, выводя его на уровень выше среднего, но не более...</p>
+
+Автор: Dimas
+
+### 09.02.2001 reviews Sumbure chaotic music
+
+<p>Sumbure chaotic music. Little bit not clear mixture of miscellaneous styles (including such inverse, as black metal and alternative music) on the basis of gothic doom-death metal. Rather dull atmosphere discharged female voice with man's sibiliant with transition on clean. Extremely psychodelic a stuff. Constant crumpled and the sharp transitions make music difficult and a little boringly for listening. The cold moods and full hopelessness complete business. Though the guitar crews, very interesting in the style, usage of mild keys and clarinet salvage this album, injecting it on a level is above the average, but no more...</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -37,6 +37,68 @@ part 3: Black Propaganda
 
 * C группой "Aborym" Malfeitor Fabban
 
+## Публикации
+
+### 28.05.2002 reviews Критерии дьявольского числа
+
+<p>Второй альбом итальянской команды, записанный в их персональной студии с применением огромного количества экспериментальных звуков и эффектов. Совершенно нестандартная и очень оригинальная смесь отмороженного апокалиптического doom-black metal с industrial-noise и dark ambient. Альбом настолько же ошеломляющий, как и прошлогодний, не менее депрессивный дебют группы. Уникальный и чудовищный гитарный звук, примитивный и усыпляющий бдительность. Это один из самых мрачных и эзотерических альбомов, что приведется вам услышать. Вы будете покорены уже при первом прослушивании. Устрашающе кошмарная музыка, при этом холодно мелодичная и меланхолично красивая. У этих итальянцев, наверняка, очень богатое воображение и немного больная психика. Такой мистический материал обычно приходит из сновидений или из глубин подсознания. Много оркестровых пассажей, готическая атмосфера, элементы барокко, интенсивный нойз, столько всего понамешано. что голова кругом идет. После прослушивания альбома остается лишь тишина, пустота, бесконечность...</p>
+<p> Диск выпущен по лицензии компанией <B>CD-MAXIMUM</B></p>
+
+Автор: Dimas
+
+### 12.06.2002 reviews Criteria of Devil number
+
+<p>The second album of the Italian band which has been written down in their personal studio with application of huge quantity of experimental sounds and effects. A completely non-standard and very original mix frost-bitten apocalypse doom-black metal with industrial-noise and dark ambient. An album so stunning, as well as last year's, not less depressive debut of group. A unique and monstrous guitar sound, primitive and lulling vigilance. It is one of most gloomy and esoteric albums, that will be resulted to you to hear. You will be enjoyed already at the first listening. Terrible dreadful music, thus coldly melodious and melancholically beautiful. At these Italians, for certain, very rich imagination and little bit sick mentality. Such mystical material usually comes from dreams or from depths of subconsciousness. There is a lot of orchestral passages, a Gothic atmosphere, elements of barroko, intensive noise, it is so much mixed. After listening an album there is only silence, emptiness, infinity...</p>
+
+Автор: Vit Belov
+
+### 10.07.2002 news Void Of Silence ищут нового вокалиста
+
+<p>Разорвав отношения с Малфейтором Фаббаном, Void Of Silence ищут теперь нового вокалиста в группу.</p>
+
+Автор: Morsus
+
+### 10.07.2002 news Void Of Silence looking for a new singer
+
+<p>Following their split with the former singer Malfeitor Fabban, Void Of Silence are actually searching for a new singer.</p>
+
+Автор: Morsus
+
+### 06.09.2002 news Void Of Silence нашли нового вокалиста
+
+<p>После внимательного изучения всех возможных кандидатур Void Of Silence остановились на музыканте, произведшем наилучшее впечатление как с творческой, так с человеческой стороны. Новый вокалист - Алан Немтенга, известный своим участием в одной из лучших ирландских команд Primordial.</p>
+
+Автор: Morsus
+
+### 06.09.2002 news Void Of Silence already completed their search for a new singer
+
+<p>After the band tested so many proposals and candidates from all around the world, Void Of Silence decided to join forces with the person who offered the best impression both on the artistic and human side. The new singer is Alan Nemtheanga, well known singer from Irish top band Primordial.</p>
+
+Автор: Morsus
+
+### 02.12.2002 reviews Soundtrack to the end of all life
+
+<p>Italy’s code666 could be Europe’s own The End Records. Or at least, Italy’s own Holy Recs. Didn’t I tell you about that, once reviewing another code666’s product? Perhaps, I did. Moreover, I guess I really did. But will anything change if I say the same thing twice? No. It doesn’t become reality – because it IS reality. It WAS reality. Apparently, Emi has a very good – and no less weird – taste in music, and apparently, he makes mistakes… Just like all of us do, actually. However, inking a deal with VOID OF SILENCE definitely was no mistake. This project (sorry, but I can’t name VOS a band. Listen to “Criteria Ov 666” and you will know why) is comprised of three men, with one of them being Malfeitor Fabban (ABORYM) who is now replaced with Alan @ PRIMORDIAL (!!!). I don’t know if Alan will fit VOS’ music and concept. Time will tell. I only know that Fabban fitted it like a glove. His voice, nightmarish and nearly inhuman, goes pretty well with the music VOS deliver. Well, not really music. More likely, some nightmarish accompaniment to post-WWIII aeon. Slow, mesmerizing, torturous, dismal, agonizing… Of unsound mind. Of unearthly mind. If you’re into horror movies, try this CD. Once you give it a listen, you most possibly would throw out all of your video’s and DVD’s. Because VOID OF SILENCE force absolutely horrific atmosphere… which literally breathes with desperation. A soundtrack to the end of all life.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 07.10.2003 news Новости от VOID OF SILENCE
+
+Теперь уже итальяно-ирландское трио <B>VOID OF SILENCE</B> готовится войти в феврале 2004 года в студию для записи своего нового альбома <B>"Human Anthitesis".</B> Это будет дебют для нового вокалиста группы <B>Alan Neamtheanga</B> (<B>PRIMORDIAL</B>).
+Автор: Dimas
+
+### 20.01.2005 reviews Апокалипсисы давно минувших дней
+
+<P>Очень медленный, тягучий, с настоящей готической атмосферой, doom metal из Италии. Раскаты грома, потусторонние звуки, акустическая гитара, медитативные ритмы, помпезные хоралы – все это складывается в цельную завершенную картину, настоящее монументальное полотно. Эта музыка затягивает в себя, как в водоворот, она выворачивает мозги наизнанку, проникая в сознание и кристаллизуясь в нем. Чистый мужской вокал обладает поистине гипнотический свойством – он шепчет, причитает, декламирует, проникновенно поет, изредка сменяясь суровым гроулом, - давящая неотвратимость завершения, неотвратимость конца света. Оформление буклета, выдержанное в черно-зеленоватой гамме – настоящий концепт-арт: автоматчики Второй Мировой в развалинах, памятники на фоне разбомбленных городов, огромные стройки, подавляющий своей мощью океанский лайнер… Сильно. Очень сильно.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+### 11.02.2005 news VOID OF SILENCE распались
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянская группа <STRONG>VOID OF SILENCE</STRONG> больше не существует. Такое решение было принято музыкантами после шести лет совместного существования и выпуска трех успешных альбомов. Тем не менее, музыканты группы планируют остаться на музыкальной сцене.</FONT></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

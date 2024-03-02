@@ -16,6 +16,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.09.2016 news LANCER подписались на Nuclear Blast
+
+<p>Шведская heavy power metal команда<strong> LANCER</strong> подписала контракт с<strong> Nuclear Blast Records</strong>. Третий альбом музыкантов "<strong>Mastery</strong>" уже записан и выйдет 13 января будущего года. Обложку альбома создал<strong> Dimitar Nikolov</strong> (ROSS THE BOSS, MAJESTY). </p><p>Группа после релиза отправится в тур по Европе с <strong>HAMMERFALL</strong> и <strong>GLORYHAMMER</strong>.</p><p><center><img width="600" height="600" src="/images/news_rus/2016.09/30019.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 29.09.2016 news LANCER signed to Nuclear Blast
+
+<p>Up-and-coming Swedish heavy metallers,<strong> LANCER</strong>, can proudly announce that they have signed a contract with German metal giants in <strong>Nuclear Blast</strong>. The first results of this fruitful union can be reaped very soon: After work on their third record, »<strong>Mastery</strong>«, has been finished now, the ten-track opus is set for an January 13th, 2017 release. Once again, the cover artwork was created by<strong> Dimitar Nikolov</strong> (ROSS THE BOSS, MAJESTY). The final layout was done by <strong>Marcelo Vasco</strong> (SLAYER, MACHINE HEAD,...). Mark the release date in your calendars to not miss this full load of traditional stainless steel - more info to follow soon!</p><p>As if this wasn't enough, LANCER will be opening for iconic heavy metallers HAMMERFALL on their upcoming European tour, »Built To Tour«, in January 2017. Intergalactic space metallers GLORYHAMMER will be completing this powerful touring package. This tour is not to be missed! All dates and the tour poster can be seen below!</p><p>Singer <strong>Isak Stenvall</strong> stated:<br>"<em>I'm super excited, all the songs are killers, the cover artwork is fantastic and the sound and production is flawless. The fact that we will release the album on Nuclear Blast, and that I just got the news that we're playing in Tokyo in November, plus a European tour with HAMMERFALL and GLORYHAMMER in the beginning of next year just makes me even more excited over this release!"</em></p><p><center><img width="600" height="600" src="/images/news_rus/2016.09/30019.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 21.10.2016 news Шведы LANCER выпустили сингл
+
+<p>Новое приобретение <strong>Nuclear Blast</strong> шведская heavy metal банда<strong> LANCER</strong> выпустила сингл "<strong>Iscariot</strong>". Трек взят с нового альбома музыкантов <strong>"Mastery"</strong>, который выйдет в начале следующего года.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/waQweOfrv8Y" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 21.10.2016 news LANCER - release digital single &#39;Iscariot&#39;
+
+<p>Up-and-coming Swedish heavy metallers, <strong>LANCER</strong>, recently announced that they have signed a contract with German metal giants<strong> Nuclear Blast</strong>. Today, the first taster of their forthcoming album titled »<strong>Mastery</strong>«, has been revealed. Check out the lyric video for '<strong>Iscariot</strong>' here: </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/waQweOfrv8Y" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

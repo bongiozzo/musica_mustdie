@@ -52,6 +52,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.02.2009 news THESYRE выложили сэмплы
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=195 alt="" hspace=0 src="/images/news_rus/2009.02/13537.jpg" width=200 align=right border=5>Канадская thrash-black-metal команда <STRONG>THESYRE</STRONG> выложила сэмплы своего нового альбома "<STRONG>Resistance</STRONG>". Пластинка выйдет в этом году на<STRONG> Osmose Production</STRONG>. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Au present</B><BR>02. <B>Hymne au merite</B><BR>03. <B>Par une froide nuit d'octobre</B><BR>04. <B>Laique et souverain</B><BR>05. <B>De realisme et de nihilisme actif</B><BR>06. <B>L'egalitarisme freine l'excellence</B><BR>07. <B>Materialisme consumeriste infectieux</B><BR>08. <B>La grande noirceur</B><BR>09. <B>Pour en finir avec le jugement des dieux</B><BR>10. <B>Resistance</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://ericsyre.blogspot.com/">http://ericsyre.blogspot.com/</A><BR></P></FONT>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

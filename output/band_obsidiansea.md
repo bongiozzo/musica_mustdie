@@ -8,6 +8,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.02.2012 news Ближайшие новинки Solitude Productions
+
+<P><SPAN class=tit1>Новые релизы от Solitude Productions & BadMoodMan Music: EA, EVADNE, WHEN NOTHING REMAINS, OBSIDIAN SEA</SPAN></P>
+<P><SPAN class=tit1></SPAN><SPAN class=tit3><IMG height=200 alt="" hspace=0 src="/images/news_rus/2012.02/23007.gif" width=200 align=left border=0>Ea – IV</SPAN></P>
+<P><SPAN class=tit3></SPAN>Ea как всегда преподносят что то новое. Новый альбом не похож ни на первый, ни на второй и не на третий – это 4 альбом таинственной группы получивший минималистичное название IV. На этот раз альбом сделан монолитом – без пауз между треками.<BR>&nbsp;<BR><SPAN class=tit3>Evadne – The Shortest Way</SPAN></P>
+<P><SPAN class=tit3></SPAN>Испанская группа Evadne со своим вторым альбомом показывает невероятный рост в плане исполнения и написания песен. Получился отличный альбом, который можно рекомендовать всем без исключения поклонникам жанра.</P>
+<P><SPAN class=tit3>When Nothing Remains – As All Torn Asunder</SPAN></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2012.02/23009.gif" width=200 align=right border=0>Группа When Nothing Remains была образована в начале 2010 года Peter Laustsen (Nox Aurea, The Cold Existence, Rimfrost) и Jan Sallander (The Cold Existence). После совместного творчества в группе The Cold Existence в течении нескольких лет они решили сделать что то новое, более мрачное и экспериментальное на основе идей которые у них были все эти годы. В результате появилось несколько песен, которые выросли в самостоятельный проект. После работы с Nox Aurea, Peter Laustsen решил добавить что-то новое и пригласил несколько гостевых музыкантов для исполнения “чистых” партий вокала. В итоге на альбоме партии были исполнены небезызвестным Johan Ericson (Draconian, Doom:VS, Shadowgarden), который выступил и продюссером альбома. Альбом был записан в середине 2011 года в Massive Assault studios, сведение и мастеринг выполнены в Dead Dog Farm studios. Также как и для Nox Aurea, оформление альбома выполнил художник Zoltan Horvath.</P>
+<P><SPAN class=tit3>Obsidian Sea – Between Two Deserts</SPAN></P>
+<P>Obsidian Sea – молодая группа из Болгарии исполняющая традиционный эпический doom metal. Настоятельно рекомендуется всем поклонникам классического doom metal. Мощный звук альбома делает данную работу небезынтересной и для любителей doom death metal. </P>
+<P>Даты релизов будут опубликованы в ближайшее время.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

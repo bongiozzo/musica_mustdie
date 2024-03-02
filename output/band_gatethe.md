@@ -12,6 +12,23 @@ Preacher (RUNNING WILD)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2011 news Preacher возвращается
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.08/20507.jpg" width=400 align=right border=0>Бывший гитарист <STRONG>RUNNING WILD Preacher</STRONG> возвращается с новой группой<STRONG> THE GATE</STRONG>. Дебютный альбом коллектива "<STRONG>Earth Cathedral</STRONG>" выйдет 19 августа на <STRONG>Rock it Up Records</STRONG>. Пластинка рекомендуется поклонникам <STRONG>GRAVE DIGGER, U.D.O./ACCEPT</STRONG>&nbsp;и<STRONG> RUNNING WILD</STRONG>. Состав:</P>
+<P><STRONG>Preacher</STRONG> (ex-RUNNING WILD) - Guitars&nbsp;&nbsp; <BR><STRONG>Tino Weber</STRONG> (ex-INSOLENCE,&nbsp;SYSTEM FAILED) -&nbsp; Bass&nbsp;&nbsp;&nbsp;&nbsp; <BR><STRONG>Peter "Unruh" Michels</STRONG> (ex-UNDERDOG) - Drums&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><STRONG>Guido Kramer</STRONG> (ex-THE COMPANY) - Vocals</P>
+<P>Гитару лидера коллектива все поклонники немецкого heavy слышали на дебютном альбоме <STRONG>RUNNING WILD "Gates Of Purgatory".</STRONG></P>
+Автор: Vit Belov
+
+### 27.05.2012 news THE GATE объявили новый состав
+
+<P>Новым вокалистом <STRONG>THE GATE</STRONG> стал<STRONG> Sven Steinert,</STRONG> пока не известный на мировой метал-сцене. Он заменил одного из основателей коллектива <STRONG>Guido Kramer</STRONG>. Также коллектив добавил в состав второго гитариста - им стал молодой музыкант <STRONG>Korbinian Warnecke</STRONG>.</P>
+<P>Основным музыкантом в<STRONG> THE GATE</STRONG> является<STRONG> "Preacher" Gerald Warnecke (ex-RUNNING WILD).</STRONG></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.05/24028.jpg" width=408 height=197></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

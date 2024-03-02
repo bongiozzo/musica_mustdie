@@ -62,6 +62,41 @@ Cover Art & Concept By Dan SeaGrave.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.01.2003 news Реюньон INVOCATOR
+
+<p>Спустя восемь лет, собравшиеся снова вместе датские трэшеры INVOCATOR подготовили к выпуску свой четвертый альбом, пока не имеющий окончательного названия. Альбом выйдет летом на итальянском лэйбле Scarlet Records. В альбом войдут следующие вещи:</p>
+<p> 01. Through The Flesh To The Soul <BR> 02. On My Knees <BR> 03. Flick It On <BR> 04. There Is No Savior <BR> 05. Infatuated I Am <BR> 06. Sand Between The Teeth <BR> 07. Under The Skin <BR> 08. The Chemistry Of Restlessness<BR> 09. Writhe In Spit<BR> 10. A Narrow Scope Of Things<BR> 11. Abstract War (ASSASSIN cover)</p>
+
+Автор: Dimas
+
+### 10.04.2003 news Новый релиз INVOCATOR
+
+<p>Воссоединившиеся недавно датские техничные трэшеры INVOCATOR готовят к выпуску в октябре 2003 года на Scarlet Records свой новый альбом под названием "Through The Flesh To The Soul". Это будет первый альбом группы за последние восемь лет. В состав группы на сегодняшний день входят вокалист-гитарист Jacob Hansen, лидер-гитарист Flemming C. Lund, басист Carsten N. Mikkelsen и ударник Jakob Gundel. Трэк-лист нового альбома включает в себя следующие композиции:</p>
+<P> 1. Through The Flesh To The Soul<BR> 2. On My Knees<BR> 3. Flick It On<BR> 4. There Is No Savior<BR> 5. Infatuated I Am<BR> 6. Sand Between The Teeth<BR> 7. Under The Skin<BR> 8. The Chemistry Of Restlessness<BR> 9. Writhe In Spit<BR> 10. A Narrow Scope Of Things<BR> 11. Abstract War (ASSASSIN cover)</>
+<P> <A HREF="http://www.invocator.com/sound/under%20the%20skin_MP3.mp3">Здесь</A> можно скачать полутораминутную версию композиции "Under The Skin".</>
+
+Автор: Dimas
+
+### 15.04.2004 reviews Датский модерн-трэш
+
+<P>Invocator - это довольно древний датский квартет, пытающийся обогатить сейчас трэш-метал современными методами, включая ню-метал-коровые и прииндустриализированные фишки. Получилось у них это или нет - судить вам, а я так лучше послушаю олдскульный трэш. Отмечу лишь, что в составе группы в качестве гиттариста, вокалиста и продюсера выступил Якоб Хансен (он же микшировал альбом в своей студии), известный своей опять-таки продюсерской работой с группами Mnemic и Hostile Breed. Также хотелось бы выделить совершенно непонятную строчку в буклете "music & arrangements by Invocator, except for "Abstract War" by Assassin". Где же там на диске "Abstract War" спряталась?</P>
+<P>Альбом предоставлен компанией "CD-Maximum".</P>
+Автор: Ixtiandr
+
+### 07.09.2004 news INVOCATOR расстались с басистом
+
+<P>Басист <STRONG>Carsten Mikkelsen </STRONG>покинул <STRONG>INVOCATOR</STRONG>, из-за потери интереса. </P>
+<P>Из других новостей, лидер коллектива <STRONG>Jacob Hansen</STRONG>&nbsp;занят сейчас записью партий гитары и баса для нового альбома <STRONG>BEYOND TWILIGHT</STRONG>, который выйдет вскоре на <STRONG>Massacre</STRONG>. В <STRONG>BEYOND TWILIGHT</STRONG> больше не поёт <STRONG>Jorn Lande</STRONG>, поэтому группа ищет нового вокалиста.</P>
+Автор: Vit Belov
+
+### 07.09.2004 news INVOCATOR part ways with Bassist
+
+<DIV class=regular id=storyRepeater__ctl17_storyPanel>Bassist <B>Carsten Mikkelsen</B> has left long-running Danish thrashers <B>INVOCATOR</B> "due to lack of interest," according to a posting on the group's web site. For the time being, the band will carry on as a three-piece.<BR><BR><B>Mikkelsen</B> made his recorded debut with <B>INVOCATOR</B> on the <B>"Dying To Live"</B> CD — the band's last album before they split up in 1995, and rejoined the group in 2002 in time for the 2003 comeback record <B>"Through The Flesh To The Soul"</B>. <B>Carsten</B> also organized the band's entire extensive Danish tour with <B>MERCENARY</B> that took place in the winter of 2003. "<B>INVOCATOR</B> regrets but respects his decision," the group write on their web site. "We thank him for his years of hard work and dedication and wish him all the best in the future."<BR><BR>In other news, <B>INVOCATOR</B> mainman <B>Jacob Hansen</B> has been busy putting down rhythm and bass guitar tracks for Danish progressive metallers <B>BEYOND TWILIGHT</B>'s new album, which will be released on <B>Massacre Records</B>. The recording sessions for the album are taking place at <B>Jacob</B>'s <B>Hansen Studios</B> in Ribe, Denmark. <BR><BR><B>BEYOND TWILIGHT</B>'s last album, <B>"The Devil's Hall of Fame"</B>, featured vocals by acclaimed hard rock/metal singer <B>Jorn Lande</B> (<B>MASTERPLAN</B>, ex-<B>YNGWIE MALMSTEEN</B>), but the band are currently trying out other vocalists for the upcoming record. </DIV>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -165,6 +165,20 @@ CD2:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.04.2000 news 
+
+<p>Новый альбом Bon Jovi уже записан (бейте меня!!!).</p>
+
+Автор: Vit Belov
+
+### 02.01.2009 news Рейтинг от &quot;искателей автографов&quot;
+
+<P><IMG height=263 alt="" hspace=0 src="/images/news_rus/2009.01/13274.jpg" width=250 align=left border=5>Канадский сайт <STRONG>HoundsTV.Com</STRONG> опубликовал свой рейтинг рок-знаменитостей по доступности для любителей сбора автографов. Рейтинг составлялся по материалам "искателей автографов" в Канаде в прошедшем году. Сайт определил лучших и худших в этом смысле. Самыми доступными стали: <STRONG>AC/DC</STRONG>, <B itxtvisited="1">COLDPLAY</B> and <STRONG>THE GUESS WHO</STRONG>. Самыми недосягаемыми:&nbsp;<STRONG>LED ZEPPILIN</STRONG>, <STRONG>BON JOVI</STRONG> и <STRONG>EAGLES</STRONG>.&nbsp;<STRONG>Robert Plant</STRONG> и <STRONG>Jimmy Page</STRONG> попали в этот список по отдельности, но с одинаковым негативным результатом. Оба, приезжая в Канаду порознь, отказались ставить свои росписи.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

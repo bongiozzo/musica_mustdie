@@ -130,6 +130,198 @@ Limited first edition digibook edition includes a bonus CD:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.03.2004 reviews Не для гурманов...
+
+<DIV><I><B>XANDRIA</B> не является блюдом для гурманов, но тем, кто поедает всё подряд вполне подходит.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Яичница. Если Вы голодны, то Вы с удовольствием проглотите это блюдо. Но советовать <B>XANDRIA</B> тем, кто скурпулёзно отбирает компакт-диски для своей фонотеки я бы не решился.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Первая песня очень напоминает <B>NIGHTWISH</B> и вызывает аллергическую реакцию. Сразу&nbsp;посещают&nbsp;мысли о второсортности группы. Дальше коллектив исправился: грамотные арранжировки, отличная работа с не очень сильным голосом девушки, и музыка начинает нравится. Мелодичный&nbsp;и романтичный gothic-metal&nbsp; с множеством не очень быстрых композиций и с интересными звуковыми решениями.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Очередная трендовая группа, которая не лучше, но и не хуже десятков других. Только для коллекционеров.</DIV>
+Автор: Vit Belov
+
+### 21.02.2005 reviews XANDRIA сделала шаг вперёд
+
+<P>XANDRIA не получила высокой оценки от меня за прошлый альбом. Группа запомнилась только странновато-завлекающим названием: смесью имени Ксения и лёгкого итальянского вина, а также огромным оранжевым женским пузом на всю обложку. Даже пузиком!!! И то, и другое должно было привлечь внимание к обычной заштампованной gothic-metal пластинке с женским вокалом.</P>
+<P>Что ж, группа сделала некоторый шаг вперёд. 3 первые песни с нового альбома коллектива ‘Ravenheart’ можно даже назвать очень хорошими. XANDRIA ориентируются здесь на WITHIN TEMPTATION, последний альбом которых произвёл на меня очень сильное впечатление. К сожалению, высокую марку держат только эти трэки. Конечно же, их отличают от прототипа, отсутствие хора и оркестра, но пение Lisa Schaphaus достаточно привлекательно. Четвёртая песня ‘Eversleeping’ представляет собой уже балладу в духе группы «Чай Вдвоём», а дальше начинается откровенный балласт. Занудные однообразные вещи, но 3 первые песни очень хороши.</P>
+<P>XANDRIA заслуживает уже хорошей оценки за эти три песни, у многих групп в жанре отсутствует и одна хорошая вещь. </P>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">Art-Music</A></P>
+Автор: Vit Belov
+
+### 15.03.2005 reviews Симфонии вороньих сердец
+
+<P>Ну и названьице… Что у группы, что у альбома. Затейники, понимаешь ли. XANDRIA – германский квартет, возглавляемый харизматичной вокалисткой Лизой Шапхаус (Lisa Schaphaus). Альбом с поистине готическим названием “Ravenheart” – второй релиз группы (первый назывался “Kill The Sun”), представляющий собой далеко не худший образец симфо-готик-метала в духе работ NIGHTWISH и WITHIN TEMPTATION. Популярность подобных коллективов в народе сейчас высока как никогда, и я думаю, что проблем с признанием у КСАНДРИИ не будет – музыка для романтически настроенных барышень всегда пользуется повышенным спросом. И не только, кстати, у этих самых барышень…</P>
+<P>В целом, впечатления от прослушивания диска – положительные. Как фон – воспринимается вообще великолепно, полный релакс. Музыканты демонстрируют приличный уровень владения инструментами, звук здесь – качественный, нареканий не вызывает, композиторский талант - в норме, мелодии – продуманны и без глупых изысков. Побольше бы разнообразия и поменьше в этих самых мелодиях сахару, конечно, но это «издержки производства». Голос Лизы полон приятных мурлыкающих интонаций, но без излишней слащавости, а ее манера пения напоминает одновременно и Шарон Ден Адель, и Тарью Турунен, а иногда даже – Лив Кристин. Протяжные и лиричные композиции – а таких здесь большинство - умело разбавляются более динамичными трэками а ля “Black Flame” или “Keep My Secret Well”. В “My Scarlet Name” очень к месту использованы восточные мотивы – получилось здорово. Также хороша баллада “Eversleeping” - на мой взгляд, это лучшая песня альбома.</P>
+<P>Вряд ли “Ravenheart” можно счесть открытием либо откровением, ничего нового здесь нет, но любителям подобной музыки стоит ознакомиться&nbsp; с этой работой.</P>
+<P>Диск предоставлен <A href="http://www.srtmusic-group.ru/">Art-Music</A></P>
+Автор: Dr. Grandma
+
+### 20.06.2005 news XANDRIA выпускают третий альбом
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.06/8812.jpg" width=200 align=right border=5>Третий альбом <STRONG>XANDRIA "India"</STRONG> выходит 22 августа на <STRONG>Drakkar</STRONG>. Пластинка вновь была записана с продюсером Jose Alvarez-Brill, так же в записи принял участие немецкий симфонический оркестр Бабельсберг, который до этого работал с<STRONG> RAMMSTEIN</STRONG>.&nbsp;</P>
+Автор: Vit Belov
+
+### 04.07.2005 news Новые MP3 от XANDRIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали о скором выходе нового альбома <STRONG>XANDRIA</STRONG> "<STRONG>India</STRONG>". <STRONG>Drakkar </STRONG>разместил несколько MP3 сэмплов на своём сайте по этому адресу: <A href="http://www.drakkar.de/cgi-bin/dr_alben.pl?command=aktuelles&bandid=41">http://www.drakkar.de/cgi-bin/dr_alben.pl?command=aktuelles&bandid=41</A></FONT></P>
+Автор: Vit Belov
+
+### 04.07.2005 news New MP3s from XANDRIA
+
+<P><STRONG>XANDRIA</STRONG>'s new album "<STRONG>India</STRONG>" will be released soon via <STRONG>Drakkar</STRONG>. Now you can listen to MP3 samples from this record here: <A href="http://www.drakkar.de/cgi-bin/dr_alben.pl?command=aktuelles&bandid=41">http://www.drakkar.de/cgi-bin/dr_alben.pl?command=aktuelles&bandid=41</A></P>
+Автор: Vit Belov
+
+### 09.02.2007 news Название нового XANDRIA
+
+<P>Новый альбом <STRONG>XANDRIA</STRONG>, который выходит 25 мая, будет называться "<STRONG>Saloma - The Seventh Veil</STRONG>".</P>
+Автор: Vit Belov
+
+### 23.03.2007 news Новый альбом XANDRIA
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2007.03/11500.jpg" width=300 align=left border=5>Как уже сообщалось, новый альбом <STRONG>XANDRIA "Saloma - The Seventh Veil"</STRONG> выходит 25 мая на <STRONG>Drakkar</STRONG>. Это первая работа, спродюссированная самой группой в <STRONG>Principal Studios</STRONG>. На двух песнях партии мужского вокала исполнит фронтмэн <STRONG>ENTWINE Mika Tauriainen</STRONG>. </P>
+Автор: Vit Belov
+
+### 16.04.2007 news Мультимедиа от Drakkar
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На официальном сайте немецкого лэйбла <STRONG>Drakkar </STRONG>можно качнуть сэмплы с нового альбома <STRONG>XANDRIA</STRONG> и посмотреть новое видео <STRONG>ENSIFERUM</STRONG>. <A href="http://www.drakkar.de/en/">http://www.drakkar.de/en/</A></FONT></P>
+Автор: Vit Belov
+
+### 05.01.2008 reviews Ближайшие последователи Gothic-metal монстров
+
+<P>Немецкая группа XANDRIA – образец отличной работы лэйбла Drakkar. Безусловно, XANDRIA также неплохо поработали на собственный успех, четыре альбома за четыре года – отличный результат с точки зрения рынка, но лэйбл всё-таки сделал главное. Он поверил в безвестных музыкантов, вложил небольшие деньги в реализацию материала и «завернул» пластинки в красочную обёртку. Один женский живот на первом альбоме “Kill The Sun” чего стоит. На следующих альбомах использовалась только голова вокалистки Лизы, но и её «завёртывали» в такие одежды, что слушатель сам без посторонней помощи обращал внимание на новые пластинки группы. При этом прогресса в композиторской работе, равно как и в работе музыкантов не отмечалось.</P>
+<P>Не отмечается этот прогресс и на новой работе XANDRIA (название, кстати, тоже запоминающееся) “Salome”. Отличная обложка, вокалистка, возлежащая на арабских подушках, в буклете и всё. Первый хит под названием “Save My Life” уже даёт понять, что ничего нового поклонникам коллектива услышать не придётся. Забавно, но кажется, что эту незамысловатую мелодию мы уже слышали на одном из ранних компактов группы. В качестве очередной приманки к записи привлекли вокалиста ENTWINE, который спел на двух вещах. Что ж, кардинально улучшить ему их не удалось. Прогресс не затронул и вокал Лизы. По-прежнему единственным эпитетом, применимым к нему, является прилагательное «женский». Он не сильный, не запоминающийся, и уж тем более не выдающийся. Немного разнообразит невзрачную картину второй хит “Vampire”, где используются арабские мотивы в музыке, но уже с третьей песни ухо проскальзывает в бесполезных попытках за что-то зацепиться.</P>
+<P>XANDRIA добиваются максимума при минимуме возможностей. Отсутствие денег на запись, мощной концертной поддержки, запоминающегося материала… Всё это не мешает немцам находится ближе к началу списка gothic-metal коллективов с женским вокалом, которые заслуживают внимания фэнов. Они проигрывают с большим отрывом таким монстрам, как WITHIN TEMPTATION, NIGHTWISH, EPICA и AFTER FOREVER, но в отсутствие внятной конкуренции занимают место у подножия их пьедестала.</P>
+Автор: Vit Belov
+
+### 06.01.2008 articles XANDRIA: &quot;Мы не определяем свой стиль, как bombastic gothic-metal c женским вокалом&quot;.
+
+<P><IMG height=533 alt="" hspace=0 src="/images/articles_rus/2008.01/12105.jpg" width=400 align=left border=5>Немецкая группа XANDRIA стала популярна у нас сразу же после первого своего релиза “Kill The Sun”. Art-Music, которые выпускали их альбомы для России и СНГ, сделали всё возможное, чтобы группа достигла ушей любителей металла с женским вокалом. Новая работа XANDRIA “Salome” вышла уже на Irond. Несмотря на то, что домом XANDRIA в Европе по прежнему является Drakkar, в России немцы пошли на повышение. Мы связались с гитаристом группы Marco Hubaum и задали ему несколько каверзных вопросов.</P>
+<P>Вопрос: <STRONG>Ваш новый альбом только что вышел в нашей стране. Это уже четвёртая ваша работа за четыре года. Где вы находите силы для столь частых релизов? Наверное не просто записывать альбомы каждый год, и каждый раз делать шаг вперёд? Ты думаешь, подобная частота помогает вам приобретать новых фэнов?</STRONG></P>
+<P>«Возможно, для большинства групп это слишком малый интервал между выпуском альбомов. Но если у тебя есть много идей, просто необходимо превращать эти идеи в песни. Последние годы мы не имеем недостатка новых идей в группе. Музыка – это наша «игровая площадка». Здесь всегда есть, что попробовать, мы не загоняем себя в какие-то узкие стилистические рамки, и нам нравятся многие стили. По этой причине нам всегда есть, чем заняться. И по этой же причине в нашей музыке всегда много различных элементов, которые заинтересуют нашего слушателя. Но сейчас мы сделаем небольшой перерыв перед новым альбомом. Мы планируем поехать в тур по разным странам, надеемся вновь заехать к вам в Россию, а потом, возможно, выпустим DVD или что-то подобное».</P>
+<P>Вопрос: <STRONG>Вы пишите материал всей группой. Есть ли лидер в XANDRIA? Важно ли для вашей группы то, что вы пишите музыку вмести, или в будущем возможен альбом XANDRIA, сочинённый одним человеком?</STRONG></P>
+<P>«На нашем дебютном альбоме почти все песни были написаны мною. Я основал группу и искал музыкантов, чтобы записать уже сочинённые мною песни. Уже на последующих альбомах мы сочиняли материал вместе с Lisa (вокалистка XANDRIA Lisa Middelhauve, прим. авт.), а на “India” к творчеству присоединился басист Nils, который пришёл в группу после “Ravenheart”. У каждого из нас свои музыкальные предпочтения, но мы знаем, как должна звучать XANDRIA. В конце концов весь написанный материал поступает ко мне, и я с ним работаю, как аранжировщик и «внутренний» продюсер XANDRIA».</P>
+<P>Вопрос: <STRONG>Можешь ли ты сравнить XANDRIA с другими группами? Нам тут кажется, что вас можно сравнивать с NIGHTWISH и AFTER FOREVER, хотелось бы знать твоё мнение.&nbsp; </STRONG></P>
+<P>«Мы не задумываемся над сравнениями наше группы с другими. Возможно, существуют какие-то причины, по которым нас сравнивают с некоторыми группами снова и снова, но я про это ничего сказать не могу. Лично я ищу вдохновение в обширном спектре музыки, и мы делаем только то, что нравится нам самим».</P>
+<P>Вопрос: <STRONG>Я думаю, бюджет ваших записей не достаточно высок для подобного типа музыки. Группы с женским вокалом тратят на запись больше денег. Они записываются в известных студиях со знаменитыми продюсерами. Должен ли ваш стиль музыки быть «богатым», или вы можете записывать альбомы в обычных студиях, как любая другая металлическая группа? Я думаю, вы столь же популярны, как EPICA или AFTER FOREVER, но они сделали большой шаг вперёд со своими последними записями, а вы нет. Хотите ли вы использовать в своей музыке «симфонические» элементы или что-то подобное?</STRONG></P>
+<P>«Что-то я никак не пойму, что ты подразумеваешь под всеми этими вопросами? Что ты имеешь в виду говоря, что «бюджет нашей записи не достаточно высок»? И зачем сравниваешь нас с другими группами? Если ты слушал наши альбомы, ты должен был понять две вещи. Первое: мы подходим к нашей музыке немного не так, как группы, которые ты перечислил, поэтому ты не можешь сравнивать нас с ними. Наша музыка не определяется наличием большого количества оркестровок или помпезностью звучания, качество нашей музыки заключено в хороших песнях с атмосферой и воображением. Мы используем множество разных элементов в нашей музыке и не определяем её стиль, как «напыщенный (bombastic) gothic-metal с женским вокалом». Мы определяем себя, как рок и металл с глубокой воображаемой атмосферой и большим количеством граней и вариаций, которые всегда открывают новые горизонты в нашей музыке. Мы используем только одну вещь, обычно свойственную описанному тобой стилю, оркестровые аранжировки. Но мы их используем очень редко и только тогда, когда считаем это необходимым в конкретной песне. Это НЕ ОСНОВНОЙ элемент музыки, как у групп, с которыми ты можешь нас сравнивать. Это лишь ОДНО совпадение. По этой причине ты не можешь говорить о том, что они сделали какие-то шаги вперёд, а мы не сделали. Мы делаем много шагов по направлениям, о которых другие группы даже и не помышляют. Теперь, когда ты спрашиваешь «хотите ли вы использовать симфонические элементы в своей музыке», ты знаешь, каков будет наш ответ! Но даже несмотря на это, я отвечу, мы ИСПОЛЬЗУЕМ симфонические элементы. На каждом из трёх наших последних альбомов мы ИСПОЛЬЗОВАЛИ их в тех песнях, которые этого действительно требовали. Не понимаю, как ты мог этого не услышать. На “India” мы работали с Немецким оркестром кинематографии, увеличив бюджет нашей записи, также с нами работал знаменитый продюсер. Так что и в этом смысле я твой вопрос понять не могу».</P>
+<P>Вопрос: <STRONG>Хотелось бы поговорить о вашем лэйбле Drakkar. Какова его роль в вашем успехе? Помогали ли они вам с промоушеном? Довольны ли вы вашим сотрудничеством?</STRONG></P>
+<P>«Конечно Drakkar делает промоушен нашей группе. Это работа любого лэйбла. Возможно, у нас с ними не всегда совпадают мнения, но это нормально для взаимоотношений «группа-лэйбл», но на Drakkar работают отличные люди, и мы всегда можем найти понимание по всем вопросам. Наверное подобная ситуация не характерна для других лэйблов, особенно для больших».</P>
+<P><IMG height=300 alt="" hspace=0 src="/images/articles_rus/2008.01/12106.jpg" width=400 align=right border=5>Вопрос: <STRONG>Каков статус вашей группы в Европе и Мире? Как много фэнов у вас в разных частях света? Много ли поклонников посещают ваши концерты?</STRONG></P>
+<P>«Всё это очень по разному. Есть места, где мы собираем много народу,&nbsp; а есть страны, где мы не очень известны. Это не важно, важно, что благодаря концерту количество слушающих нашу музыку увеличивается. Думаю, у нас достаточно большая фэн-база в Южной Америке, так же и в большинстве европейских стран. В Германии все наши альбомы попали в чарты. Мы хотели бы большей известности в странах Восточной Европы и надеемся давать там больше концертов».</P>
+<P>Вопрос: <STRONG>Какая основная проблема вашей музыки? </STRONG></P>
+<P>«Проблемы нашей музыки? Она по-прежнему игнорируется большинством ТВ и радиостанций, являясь недостаточным «мэйнстримом» для них. Правда, то, что наша музыка не является «мэйнстримом», в общем-то, не проблема, ха-ха. Но сводит с ума то, что мы вынуждены слушать столько дерьма на радио и MTV в то время, как много хорошей музыки остаётся не услышанной широкой аудиторией.&nbsp; В прошлом музыкальная культура переживала лучшие времена. Существовали дерзкие радио диджеи, которые отваживались представлять различные новые стили в своих шоу. Сейчас никто ни на что не отваживается. Все они коммерческие нытики!»&nbsp; </P>
+<P>Вопрос: <STRONG>Вы приезжали с концертом в Москву в прошлом году. Что ты можешь сказать своим российским фэнам? Удовлетворены ли вы организацией шоу в России?</STRONG></P>
+<P>«Мы дали в России три концерта в 2006 году. Один из них в Москве. Мы остались довольны организацией этих концертов, но в будущем надеемся дать большее количество концертов с лучшей организацией, чтобы наши фэны получили большее удовольствие».</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/4Q_5yr7uCFI&rel=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/4Q_5yr7uCFI&rel=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 06.01.2008 articles XANDRIA: &quot;We donґt define ourselves as a &quot;bombastic female gothic band&quot;&quot;.
+
+<P><IMG height=533 alt="" hspace=0 src="/images/articles/2008.01/12107.jpg" width=400 align=left border=5>XANDRIA, female-fronted band from Germany, recently released new album “Salome” via Drakkar. We contacted to Marco Heumaum and asked some tricky questions. </P>
+<P>Your new album has just released in our country. It's already fourth album for 4 tears. Where do you get strength for this often inspirations? Do you agree that it helps you to get new fans? Do you agree that it can be too often to record better albums every time?</P>
+<P>Maybe thatґs right for most bands. But if you have many ideas, you want to put them into songs, and in the last years, we always had many new ideas. Music is like a playground for us, thereґs always something new to explore and we donґt have too many stylistic boundaries and we like many different styles, thatґs why we always want to do something new, thatґs also why you hear so many different elements in our music that make it interesting. But now we will take a little break before doing a new album, we will play live in international countries, hopefully again in Russia too, maybe release some DVD or other stuff.</P>
+<P>You write material together. Have you any lider in a band or there is equality in your group? Is it important, that all musicians take part in writing or somewhen we will able to have XANDRIA album written by one person?</P>
+<P>Our debut was written almost by me in a whole, cause I founded the band, having many songs and searching for the musicians to bring them to life, thatґs why there are almost all songs on the debut written by me. But on the following albums Lisa and I wrote most of the material together, and since "India", also our bassplayer Nils, who joined us after "Ravenheart", is writing songs. Though we all have different musical favourites, of course we all know what songwriting for Xandria is about. And the finishing in songwriting always involves me as arranger and Xandria-internal "producer".</P>
+<P>I think budget of your records is not high enough for your type of music. Bands with female singers pay much money. They record in a famous studios with famous producers. Must your style of music be "rich" or it can be recorded in usual metal studios like any other style of metal? I think you are as popular as AFTER FOREVER or EPICA. They did big step forward with their last records, but you're not. Do you want to use some symphonic etc elements in your music?</P>
+<P>Iґm sorry, but I donґt really know what you mean with these questions! What do you mean with "the budget of our records wasnґt high enough"? And what do you mean with comparing us to these other bands? If you listened to our albums you will realize two things: Firstly, we have a quite different approach to our music, so you just canґt compare us to them. Our music is not defined by how bombastic it is or how many orchestra you use, it is about good songs with atmosphere and imagination. We use many different elements in our music, cause we donґt define ourselves as a "bombastic female gothic band", but define ourselves as rock and metal music with a broad, imaginary atmosphere with many interesting facettes and variations, always exploring new things in our music. One of these things - but only one - is orchestral arrangements, we use them sometimes when we think the song needs it. It is NO basic element of our music like with the other bands you may compare us with, but thatґs only ONE difference. So you canґt say, they did steps further and we didnґt do. We did many steps into many directions already other bands donґt even think about! So when you say, "the budget isnґt high enough" and "do you want to use symphonic elements in your music", you now know what my answer must be! But despite that: We DID symphonic elements. On every of our last three albums we HAD them - everytime when we thought the song needed it. I canґt imagine how one canґt hear that in these songs... for some itґs even too bombastic... On "India" we even hired the famous German Film Orchestra for the job, which was of course extending the budget of the record quite much, and we worked with a famous producer. So I donґt understand your question in this point, too.</P>
+<P>I'd like to talk about Drakkar. What role do they play in your success? Do they help you with your promotion? Are you glad with them?</P>
+<P>Of course Drakkar does the promotional job. Thatґs the job of the record label. Maybe we are not always of the same opinion, which is normal in a band-label-relationship, but as Drakkar are cool people we could always talk about everything and find the way together. Maybe thatґs the difference to other labels, especially the bigger ones.<BR>&nbsp;<BR><IMG height=300 alt="" hspace=0 src="/images/articles/2008.01/12108.jpg" width=400 align=right border=5>You came with one show to Moscow last year (or this year?:)). But i&nbsp; think you don't have massive tour activity with XANDRIA. Is it right? Why is it so? What can you say about russian fans? Was you glad with organization of your shows here?</P>
+<P>We had three shows in Russia in 2006, and the show in Moscow was great. The organziation was ok, but I think next time there will be more dates and a better organization, so the fans will enjoy it even more.</P>
+<P>Can you compare XANDRIA with other bands yourself. We think here that you can compare with AFTER FOREVER or NIGHTWISH, but i want to know your opinion. Do you listen to other band in gothic-metal/female vocal? Where will your style go in near and far future in your opinion? What do you think about NIGHTWISH split etc?</P>
+<P>We donґt care so much about comparisons or bands we are being compared with. There must be some reason why there are certain bands that we are compared with again and again, but I canґt tell you too much about it. I personally take my inspirations from a much broader musical background and we do just what we like musically.</P>
+<P>What's your status in Germany and in the World? How many fans did you have in&nbsp; different parts of the world? How many fans come to your shows? </P>
+<P>Itґs very different, depending on the region where we play. sometimes itґs pretty&nbsp; much people, sometimes we play in regions where we are not too well known. But&nbsp; thatґs why you do it - too get more people listening! I think in South America we&nbsp; have quite a big fanbase, like in most European countries. In Germany all our&nbsp; albums had good chart positions. Concerning live shows, weґd like to know more&nbsp; about the Eastern European countries, so I think we will do some shows there in the future to check that out...<BR>&nbsp;<BR>What do you think about problems of your music (if you have it)? Where do you see basic lack in XANDRIA? Where do you go on the next album? And when can we wait for it?</P>
+<P>Problems of our music? Itґs still ignored by many radio and TV stations, because it is not "mainstream" enough for them. Well, being "not mainstream" is no problem&nbsp; itself, haha! But itґs driving you crazy listening to all that shit on the radio and MTV while so much good music keeps unheard by a broader audience then. The music culture has been better in the past, where there were bold radio DJs who dared to establish different and new musical styles in their shows, but today nobody dares anything anymore. They are all commercial whimps.</P>
+<P><center><object width="425" height="355"><param name="movie" value="http://www.youtube.com/v/4Q_5yr7uCFI&rel=1"></param><param name="wmode" value="transparent"></param><embed src="http://www.youtube.com/v/4Q_5yr7uCFI&rel=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></object></center></P>
+Автор: Vit Belov
+
+### 02.05.2008 news XANDRIA расстались с вокалисткой
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалистка <STRONG>Lisa Middelhauve</STRONG> покинула<STRONG> XANDRIA</STRONG>. Группа не сообщает внятных причин расставания и сообщает, что уже ищет новую певицу.</FONT></P>
+Автор: Vit Belov
+
+### 03.02.2009 news XANDRIA назовут новую вокалистку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>XANDRIA </STRONG>объявят имя новой вокалистки в воскресенье 8 февраля.</FONT></P>
+Автор: Vit Belov
+
+### 09.02.2009 news Новая вокалистка XANDRIA
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.02/13577.jpg" width=300 align=left border=5>XANDRIA </STRONG>назвали новой вокалисткой <STRONG>Kerstin Bischof</STRONG> (<B>AXXIS</B>).</P>
+Автор: Vit Belov
+
+### 19.02.2010 news XANDRIA вновь без вокалистки
+
+<P><STRONG>XANDRIA</STRONG> расстались с новой вокалисткой <STRONG>Kerstin Bischof</STRONG>. Девушка была в группе всего год. Концерты коллектив не отменяет, так как старая певица <STRONG>Lisa Middelhauve </STRONG>согласилась стать временной заменой, но она не будет постоянной участницей коллектива.</P>
+Автор: Vit Belov
+
+### 21.12.2010 news Manuela Kraller - новая вокалистка XANDRIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17907.jpg" width=326 height=267>Группа <STRONG>XANDRIA</STRONG> анонсировала новую вокалистку - ею&nbsp;стала 29-ти летняя <STRONG>Manuela Kraller</STRONG> <EM>(на фото)</EM>. </FONT></P>
+<P><STRONG>Kraller</STRONG> впервые выступит в составе <B itxtvisited="1">XANDRIA</B>&nbsp;на вечеринке&nbsp;<STRONG>"Classic Meets Pop",</STRONG> которая пройдёт 7 января 2011 года&nbsp;в зале&nbsp;"<STRONG>Seidensticker Halle</STRONG>"&nbsp;(Билефельд, Германия). Группа исполнит одну свою песню в сопрвождении <STRONG>Билефельдского Филармонического оркестра </STRONG>(на данном мероприятии <B itxtvisited="1">XANDRIA</B> будет представлять жанр "Матал"!)."</P>
+<P>Коментарии от Мануэлы: <EM>"Моя музыкальная жизнь началась очень поздно, в 23 года.&nbsp;В хоре, в Финляндии, я открыла для себя пение и с тех пор, это стало моей страстью.&nbsp;&nbsp;Я начала брать уроки классического вокала, петь в церковном хоре&nbsp;и скоро меня попросили быть солистом, как в церкве, так и&nbsp;на частных мероприятиях.&nbsp;&nbsp;Так как я выросла слушая метал и рок музыку, то скоро&nbsp;мне захотелось&nbsp;соеденить&nbsp;эти жанры&nbsp;с моими навыками в классическом вокале.&nbsp;Я начала исполнять рок и метал со своими друзьями, а так же писать собственные песни. Вскоре, после этого, я&nbsp;&nbsp;присоеденилась к метал банде под названием&nbsp; <B itxtvisited="1">NAGOR MAR</B> (Швейцария), а так же, стала певицей в немецкой группе <B itxtvisited="1">HAGGARD</B>, где&nbsp;и получила перекрасный опыт работы&nbsp;на сцене и в турне. А сейчас для меня&nbsp;началась "новая эра" и я очень рада стать новой певицей в <STRONG>XANDRIA</STRONG>!"</EM></P>
+Автор: Headcrusher
+
+### 22.08.2011 news XANDRIA на Napalm Records
+
+<P><STRONG>XANDRIA</STRONG> подписали контракт с <STRONG>Napalm Records</STRONG> и работает над пятым альбомом, который выйдет в начале следующего года. Осенью группа отправится в тур по Европе вместе с <STRONG>VAN CANTO</STRONG>, <B>TRISTANIA</B>, <B>SERENITY</B>&nbsp;и <B>AMBERIAN DAWN. </B></P>
+<P><FONT color=#ffffff>Новый альбом станет дебютом для вокалистки <STRONG>Manuela Kraller. </STRONG>Предыдущий альбом <STRONG>XANDRIA</STRONG> <STRONG>"Salome - The Seventh Veil" </STRONG>вышел в 2007 году.</FONT></P>
+<P><center><FONT color=#ffffff><IMG height=355 src="/images/news_rus/2011.08/20709.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 30.11.2011 news Обложка новой XANDRIA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом немцев <STRONG>XANDRIA</STRONG> <STRONG>"Neverworld's End" </STRONG>выйдет в конце февраля на <STRONG>Napalm Records</STRONG>. Пластинка станет дебютом для новой певицы <STRONG>Manuela Kraller.</STRONG></FONT></P>
+<P><STRONG><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=475 src="/images/news_rus/2011.11/22179.jpg" width=475 border=0></FONT></STRONG></P>
+Автор: Vit Belov
+
+### 16.02.2012 news Новок видео XANDRIA
+
+<P>Новый ролик<STRONG> XANDRIA</STRONG> на песню "<STRONG>Valentine</STRONG>" можно посмотреть ниже. Трек взят с нового альбома коллектива "<STRONG>Neverworld's End</STRONG>", который выйдет в конце февраля на<STRONG> Napalm Records</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Rx9OoLwiAho?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 06.06.2012 reviews XANDRIA стреляют лучшим альбомом в дискографии
+
+<P>Немецкий коллектив XANDRIA был образован в 1997 году и существовал долгое время как группа друзей, увлекающихся музыкой. Всё вертелось вокруг вокалистки Lisa Middelhauve, которая был лицом группы. К сожалению, какими-то сверхъестественными певческими данными девушка не обладала, и все потуги музыкантов выливались в песок.</P>
+<P>Между тем, в нашей стране коллектив приобрёл некоторую известность, благодаря увлечению публикой NIGHTWISH и женским вокалом в тяжёлой музыке. Уже несколько лет как восторг от поющих девушек поутих, и XANDRIA всё это время вела себя тихо, безуспешно отыскивая новую певицу на замену вышеупомянутой Lisa. Чудеса случаются не так часто, как нам всем хотелось бы, но они действительно случаются. Чудо пришло в XANDRIA с новой вокалисткой Manuela Kraller. Дело не только в том, что её голос максимально приближен к стандартам классической музыки, и данных у этой девушки много больше. Дело в том, что «выжившие» в составе музыканты XANDRIA мгновенно отказались от тяжеловесных gothic-metal баллад в духе LACUNA COIL и обратили свой взор на незамутнённый&nbsp; мелодичный power-metal с неоклассическими элементами, который принёс успех NIGHTWISH на первых альбомах. Слушается “Neverworld’s End” на редкость приятно. Оригинальность, конечно же, не тот размер, которым надо мерить подобную музыку, но за этим качеством люди XANDRIA не слушают.</P>
+<P>Этот альбом получил бы высочайшие оценки в конце 90-х годов и даже в начале 00-х. Мелодичность, красота, прозрачность звучание… Сейчас этим никого не удивишь, но всё же XANDRIA заслуживают похвалы, выдав лучшую пластинку за 15 лет существования.</P>
+Автор: Vit Belov
+
+### 08.01.2014 news XANDRIA: обложка альбома &quot;Sacrificium&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>XANDRIA</STRONG> заканчивает работу над новым альбомом. Диск, получивший название <STRONG>"Sacrificium"</STRONG>, выйдет 2 мая. Ниже можно увидеть его обложку. </FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.01/26477.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.04.2014 news Новый трек XANDRIA
+
+<P>5 мая на <STRONG>Napalm Records</STRONG> выходит новый альбом<STRONG> XANDRIA "Sacrificium"</STRONG>. Трек <STRONG>'Dreamkeeper'</STRONG> с этого альбома можно послушать ниже. Трек-лист:</P>
+<P><STRONG>'Sacrificium' <BR>'Nightfall' <BR>'Dreamkeeper' <BR>'Stardust' <BR>'The Undiscovered Land' <BR>'Betrayer' <BR>'Until The End' <BR>'Come With Me' <BR>'Little Red Relish' <BR>'Our Neverworld' <BR>'Temple Of Hate' <BR>'Sweet Atonement'</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.04/26847.png" width=410 height=410></P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/JBZtyT8g6ac?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 24.09.2016 news XANDRIA выпустят новый альбом &quot;Theater Of Dimensions&quot; 27 января
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Gothic metal формация <strong>XANDRIA </strong>анонсировала выход нового альбома "<strong>Theater Of Dimensions</strong>". Диск выйдет 27 января на <strong>Napalm Records</strong>. </font></p><p><center><img width="600" height="600" src="/images/news_rus/2016.09/30016.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 24.09.2016 news XANDRIA to release new album in January
+
+<p>Gothic metal formation<strong> XANDRIA</strong> have announced the release of a new album, "<strong>Theater Of Dimensions</strong>". The CD will be released 27 January via <strong>Napalm Records</strong>.</p><p><center><img width="600" height="600" src="/images/news_rus/2016.09/30016.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

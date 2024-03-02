@@ -278,6 +278,1532 @@ D.C. Cooper - Vocals
 * C группой "Kingdom Come" Allan Tschicaja
 * C группой "Pretty Maids" Allan Tschicaja
 
+## Публикации
+
+### 08.05.1999 news 
+
+<p>Royal Hunt решили выставить своего вокалиста Ди Си Купера. Купера больше не хотел быть равным в группе. Его очень привлекала сольная карьера. По сообщению оставшейся части команды, Ди Си Купера мало волновала музыкальная сторона дела, а всё больше заинтересовывала финансовая. Royal Hunt ищут нового фронтмена, чтобы продолжить запись альбома.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Ален Сорренсен стал официальным барабанщиком Royal Hunt. В группе по прежнему нет вокалиста, что не мешает ей записывать новый альбом.</p>
+
+Автор: Vit Belov
+
+### 05.10.1999 news 
+
+<p>Royal Hunt нашли замену Ди Си Куперу. Это Джон Уэст, известный по работе с Artension. Новый альбом "Fear" выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>Royal Hunt закончили свой альбом "Fear". Он выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 reviews 
+
+<p>Новый опус интернациональной команды из Скандинавии. Андре Андерссон поставил очередного вокалиста, на этот раз из группы Artension, но ничего не изменилось. Всё, как прежде мелодично, прогрессивно с обилием клавиш. Вокалист, совершенно точно, не играет никакой роли в творчестве группы. Может петь кто угодно, хоть Муслим Магомаев, а музыка вряд ли претерпит большие изменения. Любители этой группы раскупят этот альбом в больших количествах, все остануться довольны, а мы снимем шляпу перед Андреем за это его дело. Вот только бы запоминающихся мелодий побольше и разнообразия. А Ди Си Купера не жалко, он всё равно не потерялся и лишь добавил нам ещё одну качественную группу (см. выше или см. ниже). 8 из 10.</p>
+
+Автор: Vit Belov
+
+### 16.06.2000 news Royal Hunt выступят в Москве
+
+<p>28 июня в Московском дворце молодёжи единственный концерт в России отыграет прогресив-металл банда Royal Hunt. Не пропустите!</p>
+
+Автор: Vit Belov
+
+### 13.09.2000 news Новая группа Cornerstone
+
+<p> Steen Mogensen (экс-Royal Hunt) и Dougie White (экс-Deep Purple) вместе, под именем Cornerstone, выпускают дебютный альбом 20-го ноября. Говорят, эта музыка будет представлять собой нечто среднее между Royal Hunt и Deep Purple :)</p>
+
+Автор: Nybras
+
+### 20.08.2001 news Марсианские хроники от Royal Hunt
+
+<p> Новый альбом Royal Hunt "The Mission", полностью основанный на сюжетах из "Марсианских хроник" Рэя Брэдбери, выйдет 19 сентября 2001 года. Некоторое представление альбома уже состоялось в виде EP "Intervention", а весь цикл будет завершён позже в этом году ещё одним мини-альбомом, названия которому пока нет. Примечательно, что даже каверы для всех трёх релизов выбраны таким образом, чтобы вписываться в общую концепцию трилогии. При этом каждый из релизов абсолютно самостоятелен в том смысле, что ни один из треков обоих мини-альбомов не включен в полный альбом. Альбом "The Mission" получился тяжелее всех своих предшественников. Кроме того, на этот раз традиционные рок-инструменты дополнены различными "технo", "компьютеризированными" звуками, создающими странные музыкальные пейзажи в стиле sci-fi, что несколько необычно в современной hard rock музыке.</p>
+
+Автор: Morsus
+
+### 20.08.2001 news News about Royal Hunt&#39;s new album
+
+<p> The new album of Royal Hunt - "The Mission", based entirely on Ray Bradbury`s brilliant novel "The Martian Chronicles" - will be out from the 19th of September 2001. The album were "introduced" by the EP "Intervention - Part 1" a couple of months ago, and the whole story will be concluded by "Intervention - Part 2" (no final name yet) sometime later this year (none of the tracks from either EP are included on the actual album). Even covers for all three releases are made "alike", in order to create a "trilogy" effect. The album "The Mission" came out harder, edgier than any of our previous works. The combination of the "traditional" rock instruments with some "techno", "computerized" sounds creates some strange, "sci-fi" sound landscapes, which is a bit unusual in hard rock music today.</p>
+
+Автор: Morsus
+
+### 26.09.2001 reviews Новая миссия королевской охоты
+
+<p>Новая миссия королевской охоты. Седьмой альбом датских хэви-прог-металлеров базируется на "марсианских хрониках" Брэдбери. Альбом концептуален и по сути является одной большой пятидесятиминутной песней с множеством сменемых друг друга музыкальных тем. Душевная вдохновленная музыка группы узнается с первых же нот. Это все тот же Royal Hunt который мы знаем. Если быть более придирчивым, то можно назвать этот альбом смесью классического альбома группы "Paradox" и некоторых фрагментов позаимствованных из творчества Ayreon (особленно по клавишной части). Предыдущий релиз группы "Fear" был явно слаб, но новый альбом вернул группе позиции и уверенность. Точное воспроизведение звука, управляемые гитарные риффы и соло, остро проникающий под сознание звук. Более современные звуки, струнные инструменты и хорды, более оркестроподобное клавишное звучание, большее количество звуков семидесятых и синтезаторных звуков. Имеется много спецэффектов с техническим звучанием, что соответствует научно-фантастической тематике альбома. Приятная качественная музыка на высочайшем техническом уровне выдающим истинный профессионализм музыкантов.</p>
+
+Автор: Dimas
+
+### 29.12.2001 reviews Миссия ROYAL HUNT в искусстве или 451 градус по Фаренгейту...
+
+<p>С первой минуты альбом удивляет.... Космические звуки, искаженные ударные... Что это? Спейс-рок? Нет. Это концептуальный опус поставленный по мотивам известного писателя фантаста Рэя Бредбери. Похоже, что лучший друг Всеволода Баронина попытался найти новое, модное звучание, и, надо сказать, эксперимент удался... "Фирменные" хард-роковые риффы, узнаваемые клавишные пассажи Андерсена (их, правда, стало меньше!), прекрасный вокал Джона Уэста. <BR> <BR> К минусам альбома можно отнести скучные интерлюдии между песнями. Очень и очень неплохо. Крепкая, профессиональная работа, хотя и не дотягивающая до высоты "PARADOX".</p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 04.03.2002 news Черное на черном....
+
+<p>Лидер "ROYAL HUNT" Andre Andersen приготовил свой второй сольник. Названный "Black On Black" диск выйдет на Frontiers Records/Now & Then Productions в июне. Участвовали вокалист "ELEGY" - Ian Parry и гитарист Rene Rieland с Kaj Laege на барабанах. Трек-лист: <BR><BR> 01. Coming Home<BR> 02. Tell Me Why<BR> 03. Arena<BR> 04. Desperate Times<BR> 05. Life<BR> 06. Black On Black<BR> 07. Eclipse<BR> 08. Sail Away<BR> 09. Piece Of My Heart<BR></p>
+
+Автор: Yermola
+
+### 04.03.2002 news ROYAL HUNT: Solo Releases, European Tour Announced ....
+
+<p>ROYAL HUNT leader and main songwriter Andre Andersen will issue his second solo CD, entitled Black On Black, via Frontiers Records/Now & Then Productions in June. Featuring appearances by ELEGY singer Ian Parry, plus Rene Rieland on guitars and Kaj Laege on drums, the album will include the following tracks: <BR><BR> 01. Coming Home<BR> 02. Tell Me Why<BR> 03. Arena<BR> 04. Desperate Times<BR> 05. Life<BR> 06. Black On Black<BR> 07. Eclipse<BR> 08. Sail Away<BR> 09. Piece Of My Heart<BR><BR> In other ROYAL HUNT-related news, the new solo project from singer John West, dubbed EARTHMAKER, will issue its debut CD in late summer through Frontiers Records/Now & Then Productions. Featuring appearances by Chris Caffery (SAVATAGE) and Mike Chlasciak (HALFORD) on lead guitars, Lonnie Park (COZY POWELL, JOHN WEST) on keyboards, Ray Riendau (HALFORD) on bass, and Bobby Jarzombek (HALFORD) on drums, the album will include the following cuts, among others:<BR><BR> 01. Sleep of The Dead<BR> 02. Earthmaker<BR> 03. Soul To Soul<BR> 04. Love Is Pain<BR> 05. Stand Sentinel<BR> 06. Soul Of The Beast<BR> 07. Warrior Spirit<BR> 08. White Man Red Man<BR> 09. Mystic Wings<BR> 10. When Worlds Collide<BR><BR> Also on the ROYAL HUNT front, the group will be supporting PRETTY MAIDS on the latter group's upcoming European tour. The tentative dates are as follows:<BR><BR> Apr. 04 – Sшnderborg, DEN @ Sшnderborghus <BR> Apr. 05 - Еrhus, DEN @ Train <BR> Apr. 06 - Copenhagen, DEN @ Pumpehuset <BR> Apr. 08 – Hamburg, GER @ Markthalle <BR> Apr. 09 - Bochum, GER @ Zeche <BR> Apr. 10 - Verviers, BEL @ Spirit of 66 *<BR> Apr. 11 - Mьnchen, GER @ Georg-Elser Halle <BR> Apr. 12 – Pratteln, SWI @ Z7 <BR> Apr. 13 - Offenbach, GER @ Hafenbahn <BR> Apr. 15 - Ulm, GER @ Take Off <BR> Apr. 16 - Nьrnberg, GER @ Hirsch <BR> Apr. 17 - Ludwigsburg, GER @ Rockfabrik <BR> Apr. 19 – Barcelona, SPA @ Mephisto <BR> Apr. 20 – Bergara, SPA @ Jam <BR> Apr. 21 – Madrid, SPA @ Ritmo Y Compas <BR> Apr. 23 - Milan, ITA @ Indian's Saloon *<BR> Apr. 24 – ITA @ TBA *<BR> Apr. 25 – FRA @ TBA *<BR> Apr. 26 - FRA @ TBA *<BR> Apr. 27 - FRA @ TBA *<BR> Apr. 28 – Paris, FRA @ Elysee Montmartre (w/VANDEN PLUS, TEN) <BR><BR> * ROYAL HUNT only</p>
+
+Автор: Yermola
+
+### 02.04.2002 news Миссия 2002...
+
+<p>"ROYAL HUNT" выпускают сборник лучших вещей "On The Mission 2002 — The Very Best Of ROYAL HUNT". Диск выйдет на японском лэйбле Teichiku Records 15-го мая. Трек-лист: <BR><BR> 01. Flight<BR> 02. Land of Broken Hearts<BR> 03. Martial Arts<BR> 04. Clown in the Mirror<BR> 05. Epilogue<BR> 06. Time<BR> 07. Far Away<BR> 08. Message To God<BR> 09. Lies<BR> 10. Cold City Lights<BR> 11. World Wide War<BR> 12. Surrender<BR> 13. U-Turn (ранее не издававшийся инструментал)<BR></p>
+
+Автор: Yermola
+
+### 02.04.2002 news ROYAL HUNT To Issue Japanese &quot;Best Of&quot; CD ....
+
+<p>ROYAL HUNT will issue a compilation CD entitled On The Mission 2002 — The Very Best Of ROYAL HUNT via their Japanese label Teichiku Records on May 15th. The album will include the following track listing: <BR><BR> 01. Flight<BR> 02. Land of Broken Hearts<BR> 03. Martial Arts<BR> 04. Clown in the Mirror<BR> 05. Epilogue<BR> 06. Time<BR> 07. Far Away<BR> 08. Message To God<BR> 09. Lies<BR> 10. Cold City Lights<BR> 11. World Wide War<BR> 12. Surrender<BR> 13. U-Turn (instrumental version, prev. unreleased)<BR></p>
+
+Автор: Yermola
+
+### 25.04.2002 news Новый сольник Андре Андерсона
+
+<p>Клавишник и главный сочинитель песен из Royal Hunt Андре Андерсон назначил дату выхода своего нового сольника "Black On Black". Он выйдет в Европе 17 июня на Frontiers Records (СД-Максимум). Вокалистом на альбоме будет Ян Пэрри (Elegy).</p>
+
+Автор: Vit Belov
+
+### 25.04.2002 news ROYAL HUNT Mainman Sets Solo CD Release Date
+
+<p>The second solo album from ROYAL HUNT main composer and keyboardist Andre Anderson, entitled Black On Black, will be released on in Europe on June 17th through Frontiers Records. Handling all lead vocals on the CD is ELEGY singer Ian Parry, while other musician featured include Rene Realand (ex-WITCH CROSS) on guitar and Kaj Laege on drums.</p>
+
+Автор: Vit Belov
+
+### 20.02.2003 news ROYAL HUNT пишут новый альбом
+
+<p>Датская команда ROYAL HUNT приступила к записи своего нового альбома под названием "Eye Witness". В состав команды на сегодняшний день входят ударник Allan Tschicaja, басист Steen Mogensen, гитарист JK, клавишник Andre Andersen и вокалист John West. Выход альбома планируется в конце мая 2003 года.</p>
+
+Автор: Dimas
+
+### 30.04.2003 news Новый альбом Royal Hunt выйдет в России по лицензии
+
+<p><IMG SRC="/images/news_rus/2003.04/4228.JPG" ALT="pho" width=150 height=150 hspace="15" vspace="5" border="1" align="left">Компания AMG готовит к выпуску новый студийный альбом грандов мировой рок-музыки ROYAL HUNT - "Eye Witness" Релиз запланирован на июнь 2003 г. Также готовятся к выпуску 6 альбомов из бэк-каталога команды: "Clown In the Mirror", "Fear", "Land Of Broken Hearts", "Moving Target", "Paradox", "Mission". Российские переиздания будут дополнены бонус-трэками!!</p>
+
+Автор: Vit Belov
+
+### 12.06.2003 reviews Мировые проблемы окончательно доканали лирический Royal Hunt
+
+<p>В первую очередь, конечно же, хочется отметить, что новый альбом прославленной группы вышел по лицензии на российском лэйбле AMG. Давно уже пора было договориться о выпуске Royal Hunt здесь. Альбом не обманет надежд поклонников группы. С первых звуков становится ясно, что Royal Hunt не отказались от своего фирменного мягко-металлического звучания. Андре Андерссон всегда старался не обходить вниманием геополитические проблемы нашей планеты. На новом альбоме всё подчинено настроению, в которое должен погружаться человек, посмотревший несколько выпусков новостей по телевидению или прочитавший несколько свежих печатных изданий. Войны, убийства, тошнотворно-скандальные подробности из жизни "знаменитостей"... Оформление пластинки и музыкальный материал рассказывают об этом. Очень "брутальный" альбом для группы. Не стоит искать здесь нео-классические элементы. Правда это не значит, что Royal Hunt утяжелились или нечто подобное, просто все музыкальные линие очень серьёзны. Для всех фэнов хорошей музыки...</p>
+
+Автор: Vit Belov
+
+### 11.07.2003 news Андре Андерссен в Москве
+
+<p ALIGN="CENTER"><B><I>ART MUSIC GROUP, ТВЦ 'Рубин' при поддержке MUSICA.mustdie.ru представляют:</I></B></p>
+<P align="center"><B>Андре Андерссен (ROYAL HUNT) в Москве.</B></p>
+<P>14 июля Москву с частным визитом посетит лидер интернациональной супер-группы ROYAL HUNT - Андре Андерссон. В программу его визита входит раздача автографов и презентация лимитированного digi-pack издания от AMG (1 эксклюзивный бонус-трэк) в магазине 'Metal and Progressive' (B2-100) в ТВЦ 'Рубин' (Ля-Ля Парк). Примерно в 15-00 14 июля Андре будет ждать Вас в этом магазине, вооружённых лицензионными изданиями последнего альбома ROYAL HUNT, выпущенными <a href='http://www.artmusic-group.ru'>ART MUSIC GROUP</a>.</p>
+
+Автор: Vit Belov
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 17.12.2003 news Потери в ROYAL HUNT
+
+Басист <B>Steen Mogensen</B> и гитарист <B>Jacob Kjaer</B> официально перестали быть участниками датской melodic metal формации <B>ROYAL HUNT</B>. Причины их ухода из группы пока не обнародованы.
+Автор: Dimas
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 16.12.2004 news ROYAL HUNT записывают новый альбом
+
+<P><STRONG>ROYAL HUNT</STRONG> продолжают запись нового альбома в <STRONG>'North Point Studio'</STRONG> в Копенгагене. В январе <STRONG>John West</STRONG> начнёт запись вокала. Подробности позже. </P>
+Автор: Vit Belov
+
+### 10.01.2005 news ROYAL HUNT объявили имя нового гитариста
+
+<P><STRONG>ROYAL HUNT</STRONG> объявили имя нового гитариста. Им стал<STRONG> Marcus Jidell</STRONG>, раннее известный по группам <STRONG>JECKYL & HYDE</STRONG> и<STRONG> THE RING</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.01.2005 news ROYAL HUNT прописали вокал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>John West</STRONG> записал вокал для нового альбома <STRONG>ROYAL HUNT</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Это лучшая работа <STRONG>ROYAL HUNT</STRONG> за всё время</EM>", - говорит<STRONG> John</STRONG>. "<EM>Группа звучит сильнее, чем когда-либо. Я не могу выбрать лучшую песню, они все мои любимые</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 25.01.2005 news RAOYAL HUNT have finished recordings of vocal
+
+<P><STRONG>John West</STRONG> has finished to record his vocal for new album of <STRONG>ROYAL HUNT</STRONG>.</P>
+<P>“<EM><STRONG>Royal Hunt's</STRONG> best record yet</EM>” - he stated – “<EM>there`s no comparison, period. The band sounds stronger than I've ever imagined was possible – every single track's filled with remarkable energy. Can't even pick out a favorite song this time... love them all</EM>." </P>
+Автор: Vit Belov
+
+### 31.01.2005 news &#39;New&#39; drummer of ROYAL HUNT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Keneth Olsen</STRONG> has became 'new' drummer of <STRONG>ROYAL HUNT</STRONG>. He left the band after releasing live album '<STRONG>1996</STRONG>'.</FONT></P>
+Автор: Vit Belov
+
+### 31.01.2005 news ROYAL HUNT объявили имя нового барабанщика
+
+<P>Новым барабанщиком <STRONG>ROYAL HUNT</STRONG> стал <STRONG>Kenneth Olsen</STRONG>, покинувший группу после записи концертника "<STRONG>1996</STRONG>".</P>
+Автор: Vit Belov
+
+### 09.03.2005 news ROYAL HUNT закончили запись нового альбома
+
+<P><STRONG>ROYAL HUNT</STRONG> закончили запись нового альбома, которая продлилась 14 месяцев. Записано 10 песен, не связанных на этот раз никакой концепцией. В настоящее время <STRONG>Andre Anderssen</STRONG> готовиться к микшированию пластинки, которое пройдёт в <STRONG>EMI/Medley Studio</STRONG> в Копенгагене.</P>
+Автор: Vit Belov
+
+### 14.03.2005 news ROYAL HUNT назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ROYAL HUNT</STRONG> будет называться "<STRONG>Paper Blood</STRONG>". Трэк-лист:</FONT></P>
+<P>1. <STRONG>Break Your Chains</STRONG><BR>2. <STRONG>Not My Kind<BR></STRONG>3. <STRONG>Memory Lane<BR></STRONG>4. <STRONG>Never Give Up<BR></STRONG>5. <STRONG>Seven Days<BR></STRONG>6. <STRONG>SK 983<BR></STRONG>7. <STRONG>Kiss Of Faith<BR></STRONG>8. <STRONG>Paper Blood<BR></STRONG>9. <STRONG>Season’s Change<BR></STRONG>10. <STRONG>Twice Around The World</STRONG></P>
+Автор: Vit Belov
+
+### 11.05.2005 news Новые песни ROYAL HUNT
+
+<P><STRONG>ROYAL HUNT</STRONG> выложили в сеть два сэмпла с будущего альбома "<STRONG>Paper Blood</STRONG>". Качайте здесь: <A href="/ru/band/royal_hunt/10908/#samples">http://musica.mustdie.ru/ru/band/royal_hunt/10908/#samples</A></P>
+Автор: Vit Belov
+
+### 20.06.2005 reviews &quot;Paper Blood&quot; мало уступает классике ROYAL HUNT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сменив состав ROYAL HUNT, Andre Andersen внёс свежую струю в материал группы. Из музыкантов, записываших прошлую пластинку, остался только он и вокалист John West. Мне кажется, то, что "Paper blood", оказался лучшим за последние годы альбомом группы, мало связано со сменой состава. Просто лидер группы наконец-то нашёл "золотую середину" между новыми веяниями для ROYAL HUNT и классикой, которая привлекла к группе тысячи поклонников.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Я могу назвать "Paper Blood" лучшим альбомом группы со времён "Paradox". Все песни являют собой чётко сколоченные хиты с отличной инструментальной частью и очень хорошими мелодиями. Интересно, что из 10 трэков - 3 вещи инструментальные. На этих трэках Андре даже обошёлся без последнего своего "соратника" с прошлого альбома. ROYAL HUNT сейчас больше сольник Andre Andersen, чем когда-либо. Именно, эти три "инструменталки", мне кажется, показывают, куда хотел бы двигаться сам Андре. Многообразные композиции с неоклассическими влияниями и сложной структурой показывают его с лучшей стороны.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также, стоит заметить, что John West стал петь много лучше. Он добавил в своё пение немного чувства от DC Cooper. В его работе заметна уже не только высочайшая техника, как на альбомах ARTENSION, например, но уже и эмоции, которых очень не хватало на прошлой пластинке. Также отмечу, что по-прежнему широко используются "подпевки", и это тоже добавляет "чувств" при прослушивании.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"Paper Blood" будет интересно послушать всем поклонникам группы. Все песни с него, как и на "Paradox", который для меня является "верхом-пиком" ROYAL HUNT, не только интересно слушать, но и хочется выучить и подпевать. </FONT></P>
+Автор: Vit Belov
+
+### 23.06.2005 news Andre Andersen в Москве
+
+<P>В конце этой недели лидер melodic-metal коллектива ROYAL HUNT <STRONG>Андрей Андерсен</STRONG> посетит Москву в целях промоушна нового альбома группы «<STRONG>Paper Blood</STRONG>”.</P>
+<P>Встреча <STRONG>Андрея Андерсена</STRONG> с прессой и фанами пройдет в субботу 25 июня в помещении нового магазина Союз - Мегастор (ул. Пятницкая, 29/8). </P>
+<P>Для поклонников группы <STRONG>ROYAL HUNT</STRONG>, желающих пообщаться с легендарным музыкантом, в 15.00 состоится автограф-сессия. УБЕДИТЕЛЬНАЯ ПРОСЬБА: не приносить на подпись пиратские экземпляры альбомов <STRONG>ROYAL HUNT</STRONG>! Лицензионные альбомы, изданные компанией <STRONG>AMG</STRONG>, вы можете без проблем приобрести в музыкальных магазинах города или на Горбушке, а также они поступят в продажу непосредственно в новый магазин Союз-Мегастор!!</P>
+Автор: Vit Belov
+
+### 11.07.2005 news ROYAL HUNT в Москве
+
+<P><STRONG>ROYAL HUNT</STRONG> сообщили на своём сайте о готовящемся выступлении в Москве - 4 ноября.</P>
+Автор: Vit Belov
+
+### 29.07.2005 news ROYAL HUNT объявили имя нового басиста
+
+Новым басистом <STRONG>ROYAL HUNT</STRONG> стал<STRONG> Per Schelander</STRONG> (<STRONG>HOUSE OF SHAKIRA</STRONG>).
+Автор: Vit Belov
+
+### 21.09.2005 news ROYAL HUNT выступят и в Санкт-Петербурге
+
+<P><STRONG>ROYAL HUNT</STRONG> добавили в свой график выступление в Санкт-Петербурге - 2 ноября в The Music Hall (???).</P>
+Автор: Vit Belov
+
+### 08.01.2006 news ROYAL HUNT выпустят концертное DVD весной
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ROYAL HUNT</STRONG> выпустят концертное DVD, записанное в Санкт-Петербурге, весной. 2-х часовая программа перед 1500 фэнов было сыграна 2 ноября прошлого года. На концерт попадут песни со всех альбомов коллектива.</FONT></P>
+Автор: Vit Belov
+
+### 11.10.2006 news Долгожданный DVD от ROYAL HUNT
+
+<P><STRONG>Frontiers </STRONG>объявили 8 декабря датой релиза DVD/CD <STRONG>ROYAL HUNT</STRONG> "<STRONG>2006 Live</STRONG>". Напомним, что материал для альбома был отснят в прошлом году в Санкт-Петербурге. Трэк-лист:</P>
+<P>DVD track listing:<BR>01. <B>Paper Blood</B><BR>02. <B>Time</B><BR>03. <B>The Mission</B><BR>04. <B>Never Give Up</B><BR>05. <B>Can't Let Go</B><BR>06. <B>Last Goodbye</B><BR>07. <B>Follow Me</B><BR>08. <B>Cold City Lights</B><BR>09. <B>Martial Arts</B><BR>10. <B>Surrender</B><BR>11. <B>Running Wild</B><BR>12. <B>Far Away</B><BR>13. <B>Lies</B><BR>14. <B>Wasted Time</B><BR>15. <B>Message To God</B><BR>16. <B>SK983</B><BR>17. <B>Epilogue</B><BR><BR>2-CD track listing:<BR>Disc 1:<BR>01. <B>Paper Blood</B><BR>02. <B>Time</B><BR>03. <B>The Mission</B><BR>04. <B>Never Give Up</B><BR>05. <B>Can't Let Go</B><BR>06. <B>Last Goodbye</B><BR>07. <B>Follow Me</B><BR>08. <B>Cold City Lights</B><BR><BR>Disc 2:<BR>01. <B>Martial Arts</B><BR>02. <B>Surrender</B><BR>03. <B>Running Wild</B><BR>04. <B>Far Away</B><BR>05. <B>Lies</B><BR>06. <B>Wasted Time</B><BR>07. <B>Message To God</B><BR>08. <B>Epilogue</B><BR>09. <B>Long Way Home</B> (bonus track)</P>
+Автор: Vit Belov
+
+### 06.01.2007 news ROYAL HUNT в Москве и Питере
+
+<P><STRONG>ROYAL HUNT</STRONG> объявили даты ближайших концертов. 24 февраля группа выступит в ледовом дворце в Санкт-Петербурге, а 25 февраля в Москве в клубе "Апельсин".</P>
+Автор: Vit Belov
+
+### 01.03.2007 reviews Фанаты будут довольны
+
+<P>Что ж, можно сказать, что очередной концертник "Королевской Охоты" под руководством нашего соотечественника Андрея Андерсена удался на славу. Во-первых, альбом записан на концерте Royal Hunt в&nbsp;Санкт-Петербурге в ноябре 2005-го года, что уже приятно. Во-вторых, группе в полуторачасовой формат удалось "впихнуть" песни со всех студийных полноформатников, что тоже нечасто встречается. В-третьих, в буклете не только многочисленные фотографии, но и обложки всех лонгплеев группы плюс тексты песен - это тоже редкость для концертников. В-четвертых, данный альбом вышел и на DVD. В-пятых, оба эти формата доступны в лицензионном издании "Союза", что поможет сэкономить пару кровно заработанных. Так что фанаты группы (особенно отечественные) могут быть довольны, для них это настоящий подарок. Впрочем, для тех, кто знакомится с творчеством Royal Hunt впервые, это тоже неплохой вариант. Тем же, кто к творчеству данного коллектива относится прохладно, эта пластинка совершенно не нужна, ибо ничего суперинтересного тут нет. Звук явно "доводился" в студии, поэтому о концерте как таковом напоминают только крики и овации зрителей между песнями и болтовня фронтмена с залом. Да и той самой атмосферы концертов 70-х, о которой говорит Андерсен, конечно же, нет. Так что решайте сами, надо оно вам или нет...</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 17.03.2007 news Джон Уэст ушёл из ROYAL HUNT
+
+<P><STRONG>ROYAL HUNT</STRONG> и <STRONG>Джон Уэст</STRONG> решили, что более не способны внести вклад в творческое развитие друг друга и их пути отныне расходятся. "Мы не исключаем возможного сотрудничества в будущем в рамках каких-либо совместных проектов, но только не под именем <STRONG>ROYAL HUNT</STRONG>," - говорится в совместном заявлении <STRONG>Андре Андерсена</STRONG> и <STRONG>Джона Уэста</STRONG>. <STRONG>Джон Уэст</STRONG> присоединился к <STRONG>ROYAL HUNT</STRONG> в 1999 году с момента записи альбома "<STRONG>Fear</STRONG>" и работал с группой вплоть до последнего концертного CD/DVD "<STRONG>Royal Hunt 2006</STRONG>". <STRONG>ROYAL HUNT</STRONG> благодарят <STRONG>Джона</STRONG> за более чем 8 лет совместной работы и желают ему успехов в дальнейшем творчестве.</P>
+Автор: Morsus
+
+### 18.03.2007 news John West has left ROYAL HUNT
+
+<P><STRONG>ROYAL HUNT</STRONG> and <STRONG>John West</STRONG> have decided that at this time (after numerous albums and concert tours) they are no longer able to contribute creatively to each other's future musical development. It's been a hell of a ride, but both parties feel like it is about time to move on and explore different musical paths - therefore, they mutually agreed to part ways as of March 16th, 2007. "We're not ruling out possible future collaborations for a joint venture or a side project" – <STRONG>Andr&#233;</STRONG> and <STRONG>John</STRONG> state - "but it won't be under the RH moniker". John had joined <STRONG>ROYAL HUNT</STRONG> in 1999 during the recording of the "<STRONG>Fear</STRONG>" album and he worked with the band until their latest release – live CD/DVD "<STRONG>Royal Hunt 2006</STRONG>".</P>
+Автор: Morsus
+
+### 12.04.2007 news Вышел новый номер ALIVE #1 (27), 2007!
+
+<P><IMG height=400 alt="" hspace=10 src="/images/news_rus/2007.04/11550.jpg" width=295 align=left border=0>Вышел в свет новый&nbsp;27 номер журнала ALIVE. В нем вы найдете материалы о следующих группах: <B>LORDI, DEFTONES, 7 PACA, ANATHEMA, NEGATIVE, DEICIDE, ROYAL HUNT, HELLOWEEN, SATYRICON, СЕРГЕЙ МАВРИН, KREATOR, MECHANICAL POET, ROCK CITY ANGELS, RAGE, POETS OF THE FALL, TO/DIE/FOR, BACKYARD BABIES, RASTA, LAKE OF TEARS.<BR></B><BR>+ постер <B>THE 69 EYES</B>.<BR><BR>Самые свежие новости и рецензии на CD и DVD, Fire & Ice, Kulture Klub.<BR><BR>Приобрести новый номер ALIVE можно во всех хороших рок-магазинах.<BR></P>
+Автор: Ixtiandr
+
+### 16.04.2007 news ROYAL HUNT написали сиквел
+
+<P><STRONG>ROYAL HUNT</STRONG> закончили работу над материалом для новой пластинки, которая станет продолжением самой успешной работы коллектива "<STRONG>Paradox</STRONG>". Запись планируется начать в мае. Напомним, <STRONG>ROYAL HUNT</STRONG> до сих пор не нашли замену ушедшему <STRONG>John West</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.11.2007 news ROYAL HUNT заканчивают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ROYAL HUNT</STRONG> заканчивают работу над новым альбомом, который станет продолжением классической пластинки коллектива "<STRONG>Paradox</STRONG>". Группа не обзавелась постоянным вокалистом, партии голоса исполнят: <STRONG>Doogie White</STRONG> (<STRONG>Rainbow, Y.Malmsteen</STRONG>), <STRONG>Ian Parry</STRONG> (<STRONG>Elegy, Consortium Project</STRONG>), <STRONG>Kenny Lubcke</STRONG> (<STRONG>Narita</STRONG>)&nbsp;и <STRONG>Henrik Brockmann</STRONG> (ex-<STRONG>Royal Hunt, Evil Masquerade</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 15.12.2007 news Новый альбом ROYAL HUNT
+
+<P><STRONG>Andre Andersen</STRONG> назвал новый альбом <STRONG>ROYAL HUNT</STRONG> <STRONG>"Collision Course - Paradox II". </STRONG>Пластинка выйдет 14 марта на <STRONG>Frontiers</STRONG>. Ранне сообщалось, что у группы не будет постоянного вокалиста, а среди певцов будут <STRONG>Doogie White</STRONG> (<B>RAINBOW</B>, <B>YNGWIE MALMSTEEN</B>), <B>Ian Parry</B> (<B>ELEGY</B>, <B>CONSORTIUM PROJECT</B>), <B>Kenny Lubcke</B> (<B>NARITA</B>)&nbsp;и <B>Henrik Brockmann</B> (ex-<B>ROYAL HUNT</B>, <B>EVIL MASQUERADE</B>). Выяснилось, что кроме этих приглашённых музыкантов, у <STRONG>ROYAL HUNT</STRONG> будет постоянный вокалист <STRONG>Mark Boals</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сэмплы доступны здесь: <A href="http://www.royalhunt.com/media.htm">http://www.royalhunt.com/media.htm</A></FONT></P>
+Автор: Vit Belov
+
+### 19.02.2008 news Новый альбом ROYAL HUNT
+
+<P>Концептуальное продолжение хита <STRONG>ROYAL HUNT</STRONG> 1997 года выпуска "<STRONG>Paradox</STRONG>", получившее название <STRONG>"Collision Course - Paradox II" </STRONG>выходит 14 марта на <STRONG>CD-Maximum</STRONG>. Трэк-лист:</P>
+<P><IMG height=147 alt="" hspace=0 src="/images/news_rus/2008.02/12260.jpg" width=144 align=right border=5>01. <B>Principles of Paradox</B><BR>02. <B>The First Rock</B><BR>03. <B>Exit Wound</B><BR>04. <B>Divide and Reign</B><BR>05. <B>High Noon at the Battlefield</B><BR>06. <B>The Clan</B><BR>07. <B>Blood In Blood Out</B><BR>08. <B>Tears of the Sun</B><BR>09. <B>Hostile Breed</B><BR>10. <B>Chaos A.C.</B></P>
+Автор: Vit Belov
+
+### 19.02.2008 news Промо-видео нового альбома ROYAL HUNT
+
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Ygvdj20Pvvg&rel=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/Ygvdj20Pvvg&rel=1" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Dimas
+
+### 29.02.2008 news Альбомы ROYAL HUNT будут переизданы
+
+<P>Все альбомы <STRONG>ROYAL HUNT</STRONG> - <STRONG>Land of Broken Hearts"</STRONG>, <B>"Clown in the Mirror"</B>, <B>"Moving Target"</B>, <B>"1996"</B>, <B>"Paradox"</B>, <B>"Closing the Chapter"</B>, <B>"Fear"</B>, <B>"The Mission"</B>, <B>"Eyewitness"</B>, <STRONG>"Paper Blood</STRONG>" -будут&nbsp;ремастированы <STRONG>Andre Andersen</STRONG> и переизданы с бонус-трэками. </P>
+<P>В России эти альбомы выйдут на <STRONG>CD-Maximum</STRONG>.</P>
+Автор: Vit Belov
+
+### 09.03.2008 news ROYAL HUNT потеряли барабанщика
+
+<P>Барабанщик <STRONG>Allan Sorensen </STRONG>не сможет принять участие в туре<STRONG> ROYAL HUNT</STRONG>, стартующем в мае, в рамках которого группа посетит и Москву. Уже ведутся поиски нового музыканта.</P>
+Автор: Vit Belov
+
+### 22.04.2008 news Andre Andersen написал музыку к российскому сериалу
+
+<P><IMG height=234 alt="" hspace=10 src="/images/news_rus/2008.04/12458.jpg" width=350 align=left border=0>По сообщению менеджмента <B>ROYAL HUNT, </B>композитор и клавишник группы <B>Andre Andersen </B>написал музыку к российскому сериалу "<B>Гаишники</B>", который будет показан в мае на телеканале "Россия". 
+<P>Совсем недавно, <B>CD-Maximum </B>издал новый альбом "<B>Collision Course – Paradox 2</B>" и ремастированный бэк-каталог (с бонус-треками) <B>ROYAL HUNT</B>. Новый альбом <B>ROYAL HUNT "Collision Course – Paradox 2"</B> – 2008 - десятый, студийный релиз - концептуальное продолжение классической работы "<B>Paradox</B>" (1997). Блестящий дебют нового вокалиста <B>ROYAL HUNT </B>– <B>Mark Boals</B> (ранее – <B>YNGWIE MALMSTEEN</B> и <B>RING OF FIRE</B>). Его голос хорошо знаком большинству из вас по самой успешной пластинке <B>Ингви Мальмстина «Trilogy»</B>. Приглашенные музыканты: <B>Doogie White (RAINBOW, YNGWIE MALMSTEEN), Ian Parry (ELEGY, CONSORTIUM PROJECT) </B>и другие. 
+<P>Презентация нового альбома состоится 25 мая в Москве, в клубе "Апельсин" (организатор -<B> Alive Concerts</B>)</P>
+Автор: Dimas
+
+### 26.04.2008 news ROYAL HUNT в Москве
+
+<p><center> <IMG height=565 src="/images/shows_rus/2008.05/12284.jpg" width=400 border=0> </center><p>
+Автор: Dimas
+
+### 20.05.2008 reviews Парадоксальная реализация второй части Парадокса
+
+<P>По какой причине успешный рок-музыкант станет записывать продолжение одного из самых продаваемых своих альбомов? Поводов для такого поступка может быть много. Во-первых, это желание вернуться к своей «классике» и переработать её с помощью новых доступных только сейчас инструментов. Во-вторых, просьбы слушателей о продолжении, правда, это, чаще всего, касается концептуальных «металл-опера» альбомов, по типу AVANTASIA. Ну, в-третьих, деньги кончились у этого успешного музыканта. В-четвёртых, успех кончился, захотелось пополнить копилку этого успеха, вернувшись в прошлое. Понятно, что причин может быть много, но все они связаны с отсутствием свежих идей и желания двигаться вперёд, за исключением, пожалуй, второй вышеуказанной причины. Особенно смешно выглядят попытки создать сиквелы там, где они не очень-то и предполагались. Эти попытки возвращают музыканту часть его поклонников и прерывают серию из слабых альбомов, просто потому, что те мелодии и настроения невозможно испортить. Это я о GAMMA RAY сейчас. Случай с ROYAL HUNT ближе всего к этому разряду сиквелов. Вторая часть “Paradox” не ожидалась и вызвала недоумение у многих фэнов ROYAL HUNT. Не спорю, прародитель новой пластинки Андрея Андерсена был великолепен, но зачем ворошить прошлое? У ROYAL HUNT, в отличие от GAMMA RAY, последние пластинки никак нельзя причислить к порожняку.</P>
+<P>Не буду строить догадок, я не в теме. Но такой поворот в судьбе группы может быть связан с провалом последних инициатив ROYAL HUNT, как группы, и уходом очень сильного вокалиста John West. Не надо приуменьшать значение денег в жизни современного музыкального коллектива. Работают в нём дядьки взрослые, и им нужны средства для поддержания своего существования. Также не надо недооценивать значения туров в пополнении этих самых средств. Так вот масштабный тур ROYAL HUNT по Европе в поддержку последнего альбома “Paper Blood” сорвался, и сорвался он как-то некрасиво. Кто-то кого-то кинул, была такая тема. Затем хлопнул дверью John, и Андрей остался один не у разбитого корыта, конечно, но у корыта слегка подпорченного. А надо ведь записывать альбом. В итоге были набраны музыканты, куча вокалистов и был анонсирован второй «Paradox». Что ж, эта предыстория ещё ничего не значит, альбом мог получиться просто классным даже на этом фоне, но, к сожалению, не получился.</P>
+<P>Андрей подошёл к реализации идеи очень творчески. То там, то тут слышны темы из первой части, при этом не всегда это прямые цитаты. Чаще всего это аннограмы. Где-то чего-то местами переставил, и слушаешь то ли то, то ли не то, не понятно. Но даже при этой очевидной вторичности материала, в прямом смысле, пластинка вышла вполне удобоваримая. Пускай, немного старомодная, но на хорошем крепком уровне. Забыл «бы» поставить. Основной подвох, который ждёт слушателя, связан со студийной реализацией этого проекта. Все вокалы погребены где-то глубоко под слоем музыки. Поэтому я даже перечислять не буду всех вокалистов, которые пели на “Collision Course”, скажу только, что главным назначили Mark Boals, но где он там поёт, а где другие «отцы» не понятно. Хорошо хоть женский вокал удаётся распознать. Быть может, John West так подставил Андрея, что он решил поставить всех певцов на место? Скорее всего, это недоработка связана с какой-то ошибкой работавших инженеров, среди которых был и сам господин Андерсен, а не с прямой задумкой. Кому охота свой альбом убивать? Но согласитесь, что вокал занимает не последнее место в восприятии музыки ROYAL HUNT.</P>
+<P>В итоге оценить эту работу объективно не получается. Слушать альбом откровенно тяжело и разобрать все задумки композитора не удаётся. Ну что ж, теперь можно выпускать ремастированное издание этой пластинки, так ведь тоже некоторые поступают. По какой-то причине…</P>
+Автор: Vit Belov
+
+### 04.07.2008 news ROYAL HUNT продолжают менять певцов
+
+<P>В связи с накладками концертных дат в графике певца <STRONG>Mark Boals</STRONG>, он не сможет выступить с <STRONG>ROYAL HUNT</STRONG> на ближайших запланнированных группой шоу. Группа не растерялась и пригласила на его место <STRONG>Mats Levin</STRONG> (ex-<STRONG>THERION</STRONG>, ex-<STRONG>AT VANCE</STRONG>, ex-<STRONG>YNGWIE MALMSTEEN</STRONG>). Теперь у фэнов группы есть возможность прочувствовать классику <STRONG>ROYAL HUNT</STRONG> в его исполнении.</P>
+Автор: Vit Belov
+
+### 31.07.2008 news &quot;Paradox 2&quot; признан хорошим альбомом
+
+<P>Новый альбом датской группы <STRONG>ROYAL HUNT</STRONG> был "проголосован" на нашем сайте. Самой популярной оценкой этой работы стала "хорошо". Место в тройке лучших за всю историю <STRONG>ROYAL HUNT</STRONG> ему отвели 50.71 процента респондентов. 31,69 процента назвали "<STRONG>Paradox II</STRONG>" скорее неудачным, 12.68 процента проголосовали за то, что этот альбом плох, и лишь 4.93 процента обозвали эту пластинку лучшей в дискографии <STRONG>ROYAL HUNT</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.04.2009 news ROYAL HUNT войдут в студию
+
+<P><STRONG>ROYAL HUNT</STRONG> готовятся войти в студию в следующем месяце. Группа собирается записать альбом в старом духе. Это касается как музыкального материала, так и способа его реализации. В частности, будет использовано аналоговое оборудование, а музыка будет похожа на<STRONG> ELP</STRONG>, <STRONG>KANSAS</STRONG>, <STRONG>GENESIS</STRONG>, <STRONG>DEEP PURPLE</STRONG>, <STRONG>URIAH HEEP</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.06.2009 news ROYAL HUNT Поменяли басиста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Басист <STRONG>Per Schelander </STRONG>покинул<STRONG> ROYAL HUNT</STRONG>, из-за занятости в <STRONG>PAIN OF SALVATION</STRONG>. Новым музыкантом группы стал <STRONG>Andreas Passmark</STRONG> (<B>NARNIA</B>, <B>ROB ROCK</B>, <B>E-TYPE</B>). Коллектив работает над новым альбомом.</FONT></P>
+Автор: Vit Belov
+
+### 31.12.2009 news ROYAL HUNT выпустят X
+
+<P>Новый альбом <STRONG>ROYAL HUNT</STRONG> получил название <STRONG>"X"</STRONG>. Пластинка выйдет в следующем году.</P>
+Автор: Vit Belov
+
+### 04.01.2010 news ROYAL HUNT представили картинку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=418 alt="" hspace=0 src="/images/news_rus/2010.01/15908.jpg" width=400 align=right border=5>Новый альбом <STRONG>ROYAL HUNT "X"</STRONG> обрёл обложку и трэк-лист. Напомним, пластинка выйдет в этом году. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Episode X (Arrival)</B><BR itxtvisited="1">02. <B itxtvisited="1">End of the Line</B><BR itxtvisited="1">03. <B itxtvisited="1">King for a Day</B><BR itxtvisited="1">04. <B itxtvisited="1">The Well</B><BR itxtvisited="1">05. <B itxtvisited="1">Army of Slaves</B><BR itxtvisited="1">06. <B itxtvisited="1">Shadowman</B><BR itxtvisited="1">07. <B itxtvisited="1">Back to Square One</B><BR itxtvisited="1">08. <B itxtvisited="1">Blood Red Stars</B><BR itxtvisited="1">09. <B itxtvisited="1">The Last Leaf</B><BR itxtvisited="1">10. <B itxtvisited="1">Falling Down</B><BR itxtvisited="1">11. <B itxtvisited="1">Episode X (Departure)</B></P>
+Автор: Vit Belov
+
+### 03.07.2010 reviews Идеи для ROYAL HUNT
+
+<P>Не стоит каждый раз упоминать о том, что датская группа ROYAL HUNT пользуется в нашей стране особой любовью, ведь её лидером и основателем является наш бывший соотечественник Andre Andersen. Ни что не вечно, и сейчас новые альбомы группы не вызывают столь бурной реакции слушателей, но такова судьба практически всех известных коллективов.</P>
+<P>ROYAL HUNT постепенно превращаются в сольный проект Андрея. После серии смен состава группу покинули значимые участники, которые могли претендовать хотя бы на небольшую часть внимания публики. Steen Mogensen, Jacob Kjaer и, наконец, вокалист John West вышли из состава, и господин Андерсен не только де-факто, но и де-юре стал ведущим. Мне кажется, делать какие-то выводы от этого расставания в творческом плане не приходится. Я уверен, что Andre Andersen, как был ответственен за направление ROYAL HUNT, так и остаётся, но какой-то «осадок» от всех этих событий присутствует. Группа превратилась в умах поклонников из активной, действующей единицы, в студийный проект, а это не могло не сказаться на её популярности.</P>
+<P>Каждый новый альбом ROYAL HUNT имеет некую идею, на которую нанизываются новые песни. При этом идею озвучивает сам Андрей. Например, альбом “Eye Witness” считался мрачным и тяжёлым, прошлый “Paradox II” был анонсирован как продолжатель традиций самой успешной пластинки группы “Paradox”. В самом начале работы над “X” группа заявила, что музыкально он будет ориентирован на hard-rock 70-х годов. Признаться, меня это испугало. Это же не наш профиль! Hard-rock 70-х годов вряд ли доставил бы мне то удовольствие, на которое я по-прежнему рассчитываю перед прослушиванием новых опусов ROYAL HUNT. К счастью, как и в случае с остальными направляющими, анонсируемыми перед выпуском предыдущих пластинок, ‘hard-rock 70-х’ оказался просто «идеей». В некоторых песнях есть необычные для коллектива риффы и ходы, но по звучанию “X” – это типичный ROYAL HUNT с узнаваемым саундом клавиш Андрея. Новый альбом группы показался мне свежим, да и «идея» себя оправдала. Кто откажется от рифа в духе классики DEEP PURPLE, которые развивается в соло на клавишных или гитаре в духе ROYAL HUNT? </P>
+<P>В этот раз ROYAL HUNT порадовали. Закрадывается только в голову одна мысль. Когда я впервые услышал мой любимый у группы альбом “Paradox” в передаче Всеволода Баронина, мне не нужны были никакие «идеи», чтобы проникнуться им и полюбить на долгие годы, а может даже и навсегда. В случае же с современным творчеством датчан такого не выходит, но это вечная проблема любого творческого человека. Самое сложное «переплюнуть» самого себя, найти мотивацию на новые свершения. “X” – хороший альбом, который можно и нужно слушать, не сравнивая и не разыскивая недостатки, которых он, объективно говоря, лишён.</P>
+Автор: Vit Belov
+
+### 04.02.2011 news ROYAL HUNT вернули D.C. Cooper
+
+<P><STRONG><IMG height=275 alt="" hspace=0 src="/images/news_rus/2011.02/18407.jpg" width=184 align=right border=0>ROYAL HUNT</STRONG> анонсировали возвращение в состав бывшего вокалиста <STRONG>D.C. Cooper</STRONG>, с которым группа планирует дать серию концертов, исполняя целиком свой лучший альбом "<STRONG>Paradox</STRONG>". </P>
+<P>Из других новостей, группу покинул гитарист <STRONG>Marcus Jidell, </STRONG>который не смог совмещать участие в<STRONG> ROYAL HUNT</STRONG> и <STRONG>EVERGREY</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.09.2011 news ROYAL HUNT назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>ROYAL HUNT</STRONG> получил название "<STRONG>Show Me How To Live</STRONG>".&nbsp;CD должен выйти в конце года на<STRONG> Frontiers Records</STRONG>. Пластинка сейчас записывается в студии<STRONG> NorthPoint</STRONG> в Копенгагене. Альбом ознаменует возвращение в группу американского певца <STRONG>DC Cooper</STRONG>. Вот названия некоторых песен:</FONT></P>
+<P>* <STRONG>One More Day<BR></STRONG>*<STRONG> Another Man Down</STRONG><BR>* <STRONG>An Empty Shell</STRONG><BR>* <STRONG>Half Past Loneliness</STRONG><BR>* <STRONG>Hard Rain's Coming</STRONG><BR>* <STRONG>Show Me How to Live</STRONG><BR>* <STRONG>Angel's Gone</STRONG></P>
+<P><center><IMG height=193 src="/images/news_rus/2011.09/21286.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 12.10.2011 news Обложка нового ROYAL HUNT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ROYAL HUNT</STRONG> выложили в сеть обложку "ре-юнион" альбома с <STRONG>DC Cooper "Show Me How To Live"</STRONG>.&nbsp;CD выйдет в конце этого года на<STRONG> Frontiers Records</STRONG>. </FONT></P>
+<P><center><IMG height=479 src="/images/news_rus/2011.10/21537.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 01.01.2012 news Новое видео ROYAL HUNT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видео-тизер последнего альбома<STRONG> ROYAL HUNT "Show Me How To Live"</STRONG> можно посмотреть ниже. В качестве музыкального оформления группой была использована песня "<STRONG>Another Man Down</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/2OOFriaadUo?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/2OOFriaadUo?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 06.08.2015 news ROYAL HUNT: новый альбом &quot;Devil’s Dozen&quot;
+
+<P>Датчане&nbsp;<STRONG>ROYAL HUNT</STRONG>&nbsp;во главе с клавишником <STRONG>Андреем Андерсеном</STRONG>&nbsp;готовят к&nbsp;выпуску свой&nbsp;новый альбом под названием <STRONG>"Devil’s Dozen"</STRONG>.&nbsp;Он увидит свет&nbsp;21 августа на лейбле <STRONG>Frontiers</STRONG>. За микрофонной стойкой снова можно будет услышать товарища по имени <STRONG>D.C. Cooper</STRONG>. Этот альбом станет уже третьим по счёту&nbsp;с вокалом <STRONG>D.C.</STRONG>, после его возвращения в коллектив в 2011 году.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.08/28211.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Нужно инфо по Royal hunt

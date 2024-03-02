@@ -32,6 +32,37 @@ William Vlierman - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.11.2002 news Cold Blood Industries News
+
+<p>CBI have announced 2 new signings. There are death-black-thrash mix KATAFALK and CRUSTACHEAN (Dutch thrashers). Their albums will be released in early 2003. Here is tourdates from this label: <BR> I.N.R.I. <BR> november 15 De Klos, Emmeloord NL <BR> november 17 013, Tilburg NL (+ Katafalk & Monastery) <BR> november 23 Babylon Woerden NL <BR> december 13 MetalFront, Coevorden NL (+ Katafalk & Monastery) <BR> december 19 Podium, Hardenberg ( + EXODUS & Dead Head)</p>
+<P> The Wounded <BR> november 8 Baroeg, Rotterdam NL (+ Agathodaimon (Dld) & Serenade of Darkness) <BR> november 16 The Event, Geel Belgium <BR> november 9 So What, Ede NL <BR> november 29 De Kelder, Amersfoort NL</>
+<P> Dead Head <BR> december 19 Podium, Hardenberg ( + EXODUS & INRI)</>
+<P> To Elysium <BR> december 7 Broerenkerk, Zwolle NL (+Novemberrain, After Forever, Autumn and Penumbra)</>
+<P> Katafalk <BR> 17 november 013, Tilburg NL (+ INRI & Monastery) <BR> november 23 Blanco, Emmen NL ( + Cantara & Dark Mythology) <BR> december 13 Metalfront, Coevorden NL (+ INRI & Monastery)</>
+
+Автор: Vit Belov
+
+### 13.09.2003 news I.N.R.I in Europe
+
+<P align="left"><SPAN class=EmailStijl22>4 Oct Bazart, Den Haag NL</SPAN></P>
+<P align="left"><SPAN class=EmailStijl22>10 Oct Treffpunkt Eslohe, Eslohe D</SPAN></P>
+<P align="left"><SPAN class=EmailStijl22>11 Oct Podium Hoogeveen NL</SPAN></P>
+<P align="left"><SPAN class=EmailStijl69><SPAN lang=EN-GB>31 Oct Hedon, Zwolle NL (+ The Monolith Deathcult)</SPAN></SPAN></P>
+<P align="left"><SPAN class=EmailStijl22>14 Nov N201, Aalsmeer NL (+ Katafalk)</SPAN></P>
+<P align="left">15 Nov De Klos, Emmeloord NL</P>
+<P align="left">22 Nov Kiehool, Bergum NL</P>
+<P align="left"><SPAN lang=EN-GB>6 Dec JC Todo, Best NL</SPAN></P>
+Автор: Vit Belov
+
+### 21.04.2004 reviews Brutal fucking metal? - да увольте...
+
+<P>По своему собственному утверждению, голландский квинтет I.N.R.I. нарезает brutal fucking metal. Но здесь они лукавят, ибо мелодизма в их музыке весьма много. Материал по темпу быстрый, два вокала (гроул и скрим), музыка то больше забирает в брутал, то в мелодичный дэт. В принципе, довольно неплохо, и за 36 минут надоесть эта пластинка не успевает. С другой стороны, ничего интересного или оригинального мне в этом релизе обнаружить не удалось. Продолжая играть в том же духе, I.N.R.I. рискуют обречь себя на то, чтобы затеряться в сонме дэтовых команд и навсегда остаться во второй лиге, где находятся, например, и их земляки Katafalk.</P>
+<P>Альбом предоставлен компанией "CD-Maximum".</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

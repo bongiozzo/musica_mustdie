@@ -46,6 +46,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.09.2012 news NEURASTHENIA: клип на трек &quot;I&#39;m Walking With A Zombie&quot;
+
+<P>Итальянские трэшеры <STRONG>NEURASTHENIA</STRONG> презентовали видео на трек <STRONG>"I'm Walking With A Zombie"</STRONG>. Посмотреть его можно ниже.</P>
+<P>6 октября группа <STRONG>NEURASTHENIA</STRONG> даст&nbsp;концерт в Москве. Все подробности в разделе&nbsp;<STRONG>Shows</STRONG> нашего сайта:</P>
+<P><A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/Qse_5qb7dQg" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

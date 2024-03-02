@@ -36,6 +36,36 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.04.2014 news REVOCATION на Metal Blade
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американские технари перешли с<STRONG> Relapse Records</STRONG> на <STRONG>Metal Blade Records</STRONG>. Подробности о новом альбоме последуют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время группа в туре вместе с<STRONG> DEVILDRIVER</STRONG> и <STRONG>CARNIFEX</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><center><IMG border=0 src="/images/news_rus/2014.04/26867.png" width=410 height=410></FONT></P>
+Автор: Vit Belov
+
+### 11.06.2016 news REVOCATION - новое лирик-видео
+
+<p>Плодовитые американцы <strong>REVOCATION</strong> готовы выпустить шестой альбом за восемь лет "<strong>Great Is Our Sin</strong>" 22 июля на<strong> Metal Blade</strong>. Продюсером альбома выступил<strong> Zeuss</strong> (Hatebreed, Bleeding Through).</p><p>Трек-лист:</p><p>“Arbiters Of The Apocalypse”<br>“Theatre Of Horror”<br>“Monolithic Ignorance”<br>“Crumbling Imperium”<br>“Communion”<br>“The Exaltation”<br>“Profanum Vulgus”<br>“Copernican Heresy”<br>“Only The Spineless Survive”<br>“Cleaving Giants Of Ice”</p><p>“Monolithic Ignorance”:</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/wTdDCPLjt70" frameborder="0" allowfullscreen></iframe></p><p>“Communion”:</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/D8WVY7QAWLI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 11.06.2016 news REVOCATION: New lyric video
+
+<p>Prolific Americans<strong> REVOCATION</strong> are ready to release sixth album in eight years, "<strong>Great Is Our Sin</strong>" on July 22 via Metal Blade. The CD was produced by<strong> Zeuss</strong> (Hatebreed, Bleeding Through).</p><p>Track listing:</p><p>“Arbiters Of The Apocalypse”<br>“Theatre Of Horror”<br>“Monolithic Ignorance”<br>“Crumbling Imperium”<br>“Communion”<br>“The Exaltation”<br>“Profanum Vulgus”<br>“Copernican Heresy”<br>“Only The Spineless Survive”<br>“Cleaving Giants Of Ice”</p><p>“Monolithic Ignorance”:</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/wTdDCPLjt70" frameborder="0" allowfullscreen=""></iframe><p></p><p>“Communion”:</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/D8WVY7QAWLI" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+### 25.07.2016 news Новая песня REVOCATION
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый сингл <strong>REVOCATION "Arbiters Of Apocalypse"</strong> можно послушать в клипе ниже. Трек взят с нового полноформатного альбома американцев "<strong>Great Is Our Sin</strong>", вышедшего в прошлую пятницу на <strong>Metal Blade</strong>, и на этой неделе в России на <strong>Фоно</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/3IBsCYc4rPU" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.07.2016 news New track by REVOCATION
+
+<p>New single of<strong> REVOCATION "Arbiters Of the Apocalypse</strong>" can be streamed in the clip below. The track is taken from new full-length album of the Americans, "<strong>Great Is Our Sin</strong>", released last Friday on <strong>Metal Blade records</strong>, and this week in Russia on&nbsp;<strong>Fono</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/3IBsCYc4rPU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

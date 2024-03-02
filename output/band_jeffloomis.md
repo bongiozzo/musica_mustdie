@@ -25,6 +25,33 @@ Sibylline Origin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.04.2011 news Гитарист Jeff Loomis и барабанщик Van Williams покинули группу NEVERMORE
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.04/19274.jpg" width=500 height=312> 
+<P></P>
+<P>Гитарист <STRONG>Jeff Loomis</STRONG> <EM>(слева)</EM>&nbsp;и барабанщик <STRONG>Van Williams</STRONG> <EM>(справа)</EM>&nbsp;покинули группу <STRONG>NEVERMORE</STRONG>. В сети появилось слудующее заявление по этому поводу:</P>
+<P><EM>"По взаимному решению, <STRONG>Jeff Loomis</STRONG> и <STRONG>Van Williams</STRONG> решили покинуть <STRONG>NEVERMORE</STRONG>. Пришло время, следовать своими путями, вне группы.&nbsp;Из-за&nbsp;разногласий и продолжающихся проблем внутри группы, мы чувствуем, что сейчас правильное время, для того, чтобы двигаться вперёд. Мы хотели бы поблагодарить всех наших фэнов по всему миру за их годы любви, поддержки и энтузиазма. Это не было лёгким решением, но очень необходимым в данный момент, возможно мы встретимся когда-нибудь снова".</EM></P>
+<P><STRONG>Loomis</STRONG> и <STRONG>Williams</STRONG> были в составе <STRONG>NEVERMORE</STRONG>&nbsp;с момента образования группы.&nbsp;</P>
+<P>Недавно <STRONG>NEVERMORE</STRONG> анонсировали отмену своего совместного тура с <STRONG>Symphony X</STRONG>.</P></CENTER>
+Автор: Headcrusher
+
+### 08.07.2011 news JEFF LOOMIS запишет ещё один сольник
+
+<P>Бывший гитарист <STRONG>NEVERMORE Jeff Loomis</STRONG> войдёт в студию 23 августа для записи своего нового сольного альбома. За барабанную установку во время записи сядет музыкант <STRONG>SOILWORK</STRONG> <STRONG>Dirk Verbeuren. </STRONG>Несколько треков будут с вокалом, который исполнит певица <STRONG>Christine Rhoades</STRONG>, которая участвовала в записи альбома <STRONG>NEVERMORE</STRONG> <STRONG>"Dreaming Neon Black". </STRONG></P>
+<P>Дебютный сольник <STRONG>Jeff Loomis</STRONG>, который был главной ударной силой в <STRONG>NEVERMORE</STRONG>, назывался <STRONG>"Zero Order Phase" </STRONG>и вышел на <STRONG>Century Media/Mazzar</STRONG> в 2008 году.</P>
+<P><center><IMG height=499 src="/images/news_rus/2011.07/19996.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 31.01.2012 news Сольный альбом Jeff Loomis
+
+<P><IMG height=426 alt="" hspace=0 src="/images/news_rus/2012.01/22881.jpg" width=426 align=right border=0>Новый сольный альбом бывшего гитариста <STRONG>NEVERMORE Jeff Loomis "Plains Of Oblivion"</STRONG> выходит 9 апреля на <STRONG>Century Media</STRONG>. Продюсером пластинки выступил <STRONG>Aaron Smith</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>Mercurial</STRONG> (feat. Marty Friedman)<BR>02. <STRONG>The Ultimatum</STRONG> (feat. Tony MacAlpine)<BR>03. <STRONG>Escape Velocity<BR></STRONG>04. <STRONG>Tragedy And Harmony</STRONG> (feat. Christine Rhoades)<BR>05. <STRONG>Requiem For The Living</STRONG> (feat. Attila Voros)<BR>06. <STRONG>Continuum Drift</STRONG> (feat. Chris Poland)<BR>07. <STRONG>Surrender</STRONG> (feat. Ihsahn)<BR>08. <STRONG>Chosen Time</STRONG> (feat. Christine Rhoades)<BR>09. <STRONG>Rapture<BR></STRONG>10. <STRONG>Sibylline Origin</STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

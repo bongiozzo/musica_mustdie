@@ -39,6 +39,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.08.2011 news Дебют от FALLUJAH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный альбом black-deathcore команды из Сан-Франциско <STRONG>FALLUJAH "The Harvest Wombs" </STRONG>выйдет 22 ноября на <STRONG>Unique Leader Records</STRONG>. Пластинка была записана <STRONG>Sam Pura</STRONG>&nbsp;в <B>Panda Studios. </B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа обещает что-то свежее и провокативное.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/fallujahbayarea">http://www.myspace.com/fallujahbayarea</A></FONT></P>
+<P><center><IMG height=438 src="/images/news_rus/2011.08/20496.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

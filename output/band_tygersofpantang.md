@@ -156,6 +156,32 @@ Rocky  -  Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.04.2001 news Возвращение Тигров PAN TANG .....
+
+<p>Возрожденная легенда NWOBHM - "TYGERS OF PAN TANG" пишут новый альбом "Mystical"(релиз - Октябрь 2001). 12 июня одна из новых песен - "Secret Agent" выходит на двойном СД-сборнике "Rock The Nations" выпускаемом Z Records. Также на сборнике будет представлена переработка "The Story So Far" с пожалуй самого известного альбома - Spellbound (1981). На обоих вещах вы ужете сможете услышать нового вокалиста Tony Liddell.</p>
+
+Автор: Yermola
+
+### 28.04.2001 news The reunited NWOBHM legends TYGERS OF PAN TANG ....
+
+<p>The reunited NWOBHM legends TYGERS OF PAN TANG will have a new track entitled "Secret Agent" (from the group's forthcoming Mystical album) available on a special budget price double-CD compilation entitled Rock The Nations, which will be released through Z Records on June 12th. Also included will be a special remake of "The Story So Far" from the group's acclaimed Spellbound album (originally released in 1981), featuring new frontman Tony Liddell. Liddell will also be appearing on another track on the same album, "The Law", from the LIDDELL, RUSH, THRALL project (featuring Tony Liddell, Billy Rush and legendary guitar ace Pat Thrall). A full-length CD from the project is expected to surface in October.</p>
+
+Автор: Yermola
+
+### 20.07.2012 news TYGERS OF PAN TANG: новый альбом 24 сентября
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.07/24383.jpg" width=400 height=399>Британские почтенные&nbsp;старцы, группа <STRONG>TYGERS OF PAN TANG</STRONG>, выпускают&nbsp;свой новый альбом <STRONG>"Ambush"</STRONG>.&nbsp;Диск увидит свет&nbsp;24 сентября на лейбле <STRONG>Rocksector</STRONG>.</P>
+<P>Автор обложки - <STRONG>Rodney Matthews</STRONG> (<A href="http://www.rodneymatthews.com/">www.rodneymatthews.com</A>), работавший над оформлением альбомов <STRONG>ASIA</STRONG>, <STRONG>NAZARETH</STRONG>, <STRONG>PRAYING MANTIS</STRONG>, <STRONG>MAGNUM</STRONG>, <STRONG>SEVENTH ANGEL</STRONG>, а также над альбомом 1981 года и&nbsp;самих <STRONG>TYGERS OF PAN TANG, "Crazy Nights"</STRONG>.</P>
+<P>В начале 80-х, группа входила в когорту самых видных участников <STRONG>NWOBHM</STRONG>.</P>
+<P>Песню <STRONG>"Speed"</STRONG> можно послушать в проигрывателе ниже.</P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Keeping Me Alive<BR></STRONG>02. <STRONG>These Eyes<BR></STRONG>03. <STRONG>One Of A Kind<BR></STRONG>04. <STRONG>Rock & Roll Dream<BR></STRONG>05. <STRONG>She<BR></STRONG>06. <STRONG>Man On Fire<BR></STRONG>07. <STRONG>Play To Win<BR></STRONG>08. <STRONG>Burning Desire<BR></STRONG>09. <STRONG>Hey Suzie<BR></STRONG>10. <STRONG>Mr. Indispensable<BR></STRONG>11. <STRONG>Speed</STRONG></P>
+<CENTER><IFRAME height=166 src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F53014345&show_artwork=true" frameBorder=no width="80%" scrolling=no></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

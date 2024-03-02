@@ -50,6 +50,97 @@
 
 * C группой "Defiance" Steve Esquivel (aka Steev)
 
+## Публикации
+
+### 13.04.2001 news Новый альбом SKINLAB...
+
+<p>По сообщению менеджмента, "SKINLAB" - завербовали продюссера Steve Evetts (EARTH CRISIS, SEPULTURA, SNAPCASE) для работы над следующим полноформатником группы "The Revolting Room". Рекордная сессия начинается 7 июня в "Hyde Street Studios" (Сан-Франциско, Калифорния), а выход диска запланирован через "Century Media Records" в сентябре. Трек-лист: 01. Come And Get It 02. Purify (feat. UNJUST’s Paul Mendoza) 03. Better Than Jesus 04. Slave The Way 05. Anthem For A Fallen Star 06. Take As Needed (feat. 36 CRAZYFISTS’ Brock Lindow) 08. Never Give In 09. Isolation</p>
+
+Автор: Yermola
+
+### 13.04.2001 news The Revolting Room (SKINLAB)....
+
+<p> According to SKINLAB management representative Jess Redmon of Artistkorp Management, SKINLAB have once again had a change of plans and have now enlisted producer Steve Evetts (i.e. EARTH CRISIS, SEPULTURA, SNAPCASE) to man the boards for their third full-length effort, tentatively titled The Revolting Room, which is due out in September through Century Media Records. Recording is set to begin on June 7th at Hyde Street Studios in San Francisco, CA. Tentative song titles include the following:</p>
+<p></p>
+<p> 01. Come And Get It</p>
+<p></p>
+<p> 02. Purify (feat. UNJUST’s Paul Mendoza)</p>
+<p></p>
+<p> 03. Better Than Jesus</p>
+<p></p>
+<p> 04. Slave The Way</p>
+<p></p>
+<p> 05. Anthem For A Fallen Star</p>
+<p></p>
+<p> 06. Take As Needed (feat. 36 CRAZYFISTS’ Brock Lindow)</p>
+<p></p>
+<p> 08. Never Give In</p>
+<p></p>
+<p> 09. Isolation</p>
+<p></p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 16.04.2001 news Изменения состава у SKINLAB....
+
+<p>В самый разгар записи "The Revolting Room" SKINLAB - покинул гитарист Scott Sargent. Группа, пока что занята альбомом и не думает о замене.</p>
+
+Автор: Yermola
+
+### 27.06.2002 reviews Музыкальные критики явно поторопились...
+
+<p>Музыкальные критики явно поторопились, поставив на SKINLAB клеймо "очередных бездарных подражателей MACHINE HEAD". Своим третьим студийным альбом скинлабовцы доказывают, что они совсем не заслуживают этого обидного звания: группа вышла на качественно новый уровень, что касается написания и аранжировок песен и, что немаловажно, создала своё собственное, пусть и не всегда узнаваемое, но плотное, жёсткое звучание. <BR><BR> SKINLAB не только используют тот же музыкальный рецепт, что и при создании своих первых двух, по-настоящему сокрушительно-тяжёлых пластинок, но и добавляют в свои песни элементы живости и гибкости, которых на предыдущих работах очень не хватало, и делают акцент на броские, легко запоминающиеся припевы ( наиболее удачные из которых можно услышать на безжалостно жёсткой "Slave The Way" и динамичной "Purify"). <BR><BR> Вообще"Revolting Room" раскрывает многие доселе скрытые таланты музыкантов SKINLAB: в песнях появился драйв, да и вокалист проделал нешуточную работу со своими голосовыми связками, ибо вокал на этом альбоме намного более живой и разноплановый, чем на предыдущих работах команды. Начинается альбом с "Come Get It" - незатейливой композиции с крайне заразительным грувом, (хотя такое понятие как "грув" в общем-то раньше не было свойственно для SKINLAB), а "Disturbing The Art Of Expression", например, - угрюмая и невероятно тяжёлая композиция с впечатляющими вокальными партиями грозного Стива Исквайвела, одного из самых устрашающе звучащих вокалистов в метале на сегодняшний день.<BR><BR> Нельзя не отметить качественно проделанную работу продюсера Стива Еветтса (ранее работавшего с группами SEPULTURA, EARTH CRISIS), за счёт стараний и умения которого SKINLAB добились на "Revolting Room" очень даже неплохого звука.<BR><BR> Хотя предыдущий альбом SKINLAB 1999 года "Disembody-The New Flesh" достиг весьма достойного результата в 50,000 проданных копий в США, участники группы вправе ожидать значительного роста армии поклонников творчества SKINLAB после выхода нового альбома. "Revolting Room" показал, что группа в состоянии прогрессировать, в отличие от того же самого MACHINE HEAD, и что SKINLAB заслуживают большего, чем просто звание перспективной андерграундной команды, известной лишь в узких кругах поклонников тяжёлой музыки.</p>
+
+Автор: Natural born loser
+
+### 10.02.2004 news Вокалист из SKINLAB спел для HOSTILE BREED
+
+<P><B>Hostile Breed</B> <SPAN lang=RU>и </SPAN><SPAN lang=RU>вокалист</SPAN> <B>Skinlab</B>! <SPAN lang=RU>То, что было лишь мечтой и слухами стало реальностью – сотрудничество российских и западных музыкантов состоялось. <B>Steev Esquivel (Skinlab, Def Ignition)</B> и звукоинженер <B>Chris Hanson (Machine Head, Technocracy, Vio-Lence, Def Ignition),</B> закончили запись вокальных партий на песню под рабочим названием <B>«Show Me The Road</B>”, которую можно будет услышать на втором альбоме москвичей <B>Hostile Breed ‘The Second Cut’</B>. Материал переправлен в Данию для окончательной доработки - микширования и мастеринга. Этим занимается <B>Jacob Hansen</B> (гитарист группы <B>Invocator</B>, а также продюсер / звукоинженер для <B>Ancient, Falconer, Hatesphere, Illdisposed, Manticora, Mercenary, Mnemic, Pale Forest, Raunchy</B>). Он также исполнит некоторые гитарные партии и займется программированием для альбома. В качестве бэк вокалиста на композицию «<B>Сolor Of Freedom</B>” был привлечен певец датской группы <B>Sacrificial</B>. Над оформлением альбома продолжает кропотливо работать московская арт-студия <B>TRAUM</B>. Российское издание будет содержать дополнительные сюрпризы.</SPAN></P>
+Автор: Vit Belov
+
+### 10.02.2004 news SKINLAB and HOSTILE BREED
+
+<P><SPAN><B>SKINLAB</B> frontman <B>Steev Esquivel</B> has finished laying down vocals on the song titled "<B>Show Me The Road</B>" for Russian band <B>HOSTILE BREED</B> with sound engineer <B>Chris Hanson</B> (<B>MACHINE HEAD, TECHNOCRACY, VIO-LENCE</B>). This song will be included in the group's upcoming second album, "<B>The Second Cut</B>", due late spring. Album is scheduled for release through top russian metal label <B>Irond Records</B>. The recorded material has been sent to <B>Hansen Studio</B> in Denmark for final mixing. Production on the album will be handled by&nbsp; <B>Jacob Hansen (INVOCATOR, MNEMIC, RAUNCHY, HATESPHERE</B>). The CD, which will also include a guest appearance by the singer from Danish band <B>SACRIFICIAL</B> and guitarist <SPAN style="COLOR: #ffffff">Flemming C. Lund from </SPAN><B>INVOCATOR</B>, will feature cover artwork by the Moscow art studio Traum. <B>Hostile Breed</B> presents angry modern metal in the vein of Machine Head, Killswitch Engage and Skinlab.&nbsp; More information is available on band's official web site: <A href="http://www.hostilebreed.com/"><U>www.hostilebreed.com</U></A>.&nbsp; </SPAN></P>
+Автор: Vit Belov
+
+### 19.09.2004 news С EXODUS будет петь Steev Esquivel
+
+<P><STRONG>Steev Esquivel</STRONG> из<STRONG> SKINLAB</STRONG> будет петь на концертах <STRONG>EXODUS</STRONG> во время их тура по Южной Америке. Ранне сообщалось, о других кандидатурах.</P>
+Автор: Vit Belov
+
+### 23.01.2009 news SKINLAB вошли в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SKINLAB</STRONG> вошли в студию <STRONG>Trident</STRONG> для записи нового альбома с продюсером <STRONG>Juan Urteaga</STRONG>. Группа ожидает "pure fuckin' heaviness!" на новом альбоме.</FONT></P>
+Автор: Vit Belov
+
+### 04.03.2009 news SKINLAB выйдет 7 июля
+
+<P><STRONG>SKINLAB </STRONG>близки к подписанию контракт с пока не названным лэйблом для релиза новой работы 7 июля. </P>
+Автор: Vit Belov
+
+### 04.08.2009 news Новый альбом SKINLAB
+
+<P><IMG height=397 alt="" hspace=0 src="/images/news_rus/2009.08/14764.jpg" width=400 align=right border=5>15 сентября на <STRONG>Stand And Deliver Records </STRONG>выходит новый альбом <STRONG>SKINLAB</STRONG> <STRONG>"The Scars Between Us". </STRONG>Трэк-лист:</P>
+<P>01. <B>Face of Aggression</B><BR>02. <B>Amphetamine Gods</B><BR>03. <B>Scream at the World</B><BR>04. <B>Wolvesblood</B><BR>05. <B>Karma Burns</B><BR>06. <B>In For The Kill</B><BR>07. <B>Paper Trails</B><BR>08. <B>Still Suffering</B><BR>09. <B>Bloodclot</B><BR>10. <B>My Vendetta</B><BR>11. <B>The Scars Between Us</B></P>
+Автор: Vit Belov
+
+### 14.09.2011 news Концерт в честь бракосочетания Гэри Холта (EXODUS) и Лизы Пертикон
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.09/21075.jpg" width=450 height=259> 
+<P></P>
+<P>В честь предстоящего бракосочетания Гэри Холта (<STRONG>Gary Holt</STRONG>)&nbsp;и Лизы Пертикон (<STRONG>Lisa Perticone</STRONG>), компании <STRONG>Iron Fist Circle Productions</STRONG> и <STRONG>Mandown Productions</STRONG> представляют вечеринку, получившую название <STRONG>"Holty Matrimony"</STRONG>. На данном мероприятии молодожёнов поздравят: <STRONG>HEATHEN</STRONG>, <STRONG>SKINLAB</STRONG>, <STRONG>ATTITUDE ADJUSTMENT</STRONG>, <STRONG>MIDNIGHT CHASER</STRONG>,<STRONG> SEVERED FIFTH</STRONG>, <STRONG>COFFIN HUNTER</STRONG>, <STRONG>MAD AT SAM</STRONG>, <STRONG>DEADLANDS</STRONG> и <STRONG>ANTI-MORTEM</STRONG>. А главной группой вечера станут сами <STRONG>EXODUS</STRONG> во главе с Гэри Холтом.</P>
+<P>Мероприятие пройдёт в субботу, 24 сентября в 18:00 в клубе <STRONG>The Avalon</STRONG> города&nbsp;Santa Clara (Калифорния, С.Ш.А.). Стоимость билетов: $25 в предварительной продаже и&nbsp;$30 в день концерта.</P>
+<P>Информация на сайте клуба: <A href="http://nightclubavalon.inticketing.com/events/160606">http://nightclubavalon.inticketing.com/events/160606</A></P>
+<P>На&nbsp;данный момент&nbsp;<STRONG>Gary Holt</STRONG> воспитывает двух дочерей от предыдущих связей, а&nbsp;<STRONG>Perticone </STRONG>- дочь-подростка. Сейчас пара проживает в городе Pinole, штат Калифорния.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.09/21074.jpg" width=400 height=618> 
+<P></P></CENTER></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

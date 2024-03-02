@@ -63,6 +63,48 @@ Thrash Black Metal from Italy
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2001 news Четвертый альбом NECRODEATH.....
+
+<p>Итальянцы "NECRODEATH" завершили работу над четвертым полноформатником "Black As Pitch". Запись проходила в Швеции в Underground Studios с продюссером Pelle Saether (CARNAL FORGE, EBONY TEARS, TERROR 2000). Последовавший за альбомом-возвращением "Mater of All Evil", новый альбом по слвам команды будет: "100% в стиле NECRODEATH..." Выходящий в Октябре релиз будет среди прочих содержать: 01. Burn And Deny 02. Mortal Consequence 03. Anagaton 04. Killing Time 05. Saviours Of Hate.</p>
+
+Автор: Yermola
+
+### 29.05.2001 news Italian metal veterans NECRODEATH ....
+
+<p>Italian metal veterans NECRODEATH have completed work on their fourth album, titled Black As Pitch, which was recorded at Underground Studios in Sweden with producer Pelle Saether (CARNAL FORGE, EBONY TEARS, TERROR 2000). The follow-up to the group's "comeback" effort Mater Of All Evil, the new album is, according to the band, "the most violent album we've done since the beginning of our career. It follows the same vein [as] Mater of All Evil, it's NECRODEATH style 100%, but the new songs are and even more direct and the riffs will cut your throat like never before! A real blood-shower!" Set for release in October, Black As Pitch will include the following songs, among others: 01. Burn And Deny 02. Mortal Consequence 03. Anagaton 04. Killing Time 05. Saviours Of Hate Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 07.05.2003 news Новый альбом NECRODEATH
+
+<p>Итальянские блэк-трэшеры NECRODEATH закончили запись своего пятого альбома под названием "Last Ton(e)s Of Hate". Альбом был записан в Италии с продюссером Giuseppe Orlando (NOVEMBRE). Альбом должен выйти в сентябре на Scarlet Records. Трэк-лист альбома:</p>
+<p><IMG SRC="/images/news_rus/2003.05/4284.jpg" ALT="pho" width=200 height=150 hspace="15" vspace="5" border="1" align="left"> 1. Mealy-mouthed hypocrisy<BR> 2. Perseverance pays<BR> 3. The mark of Dr. Z<BR> 4. The flag<BR> 5. Queen of desire<BR> 6. Petition for mercy<BR> 7. Ton(e)s of hate<BR> 8. Evidence from beyond<BR> 9. Bloodstain pattern</p>
+
+Автор: Dimas
+
+### 09.01.2005 news NECRODEATH выпускают сборник
+
+<P>Итальянский трэшеры <STRONG>NECRODEATH </STRONG>выпускают сборник, посвящённый двадцатилетию группы <STRONG>'20 years of Noise'</STRONG> на <STRONG>Scarlet</STRONG>.&nbsp;Кроме коллекции хитов от этой undergorund группы, на пластинке будут кавер на песню <STRONG>BLACK SABBATH</STRONG>&nbsp;и старая демо-запись&nbsp;<STRONG>'The Shining Pentagram'</STRONG>, которая, как говорят, пользовалась большим успехом у трэйдеров середины 80-х.&nbsp;</P>
+Автор: Vit Belov
+
+### 08.04.2009 news NECRODEATH назвали альбом
+
+<P>Новый альбом <STRONG>NECRODEATH</STRONG>, который выйдет в этом году на <STRONG>Scarlet</STRONG>, будет называться <STRONG>"Phylogenesis".</STRONG></P>
+Автор: Vit Belov
+
+### 22.06.2016 news CADAVERIA и NECRODEATH выпускают совместный EP
+
+<p>Итальянские группы <strong>CADAVERIA</strong> и <strong>NECRODEATH</strong> объединили усилия для выпуска мини-альбома "<strong>Mondoscuro</strong>". Группы совместно сочиняли материал и совместно его записывали. На релиз войдёт шесть треков: две совместные песни, две кавер-версии (<strong>THE BEATLES</strong> и <strong>TYPE O NEGATIVE</strong>) и два перекрёстных трека, где CADAVERIA исполнит классическую песню NECRODEATH, а NECRODEATH споют что-то из CADAVERIA.</p><p>Кроме этого, в записи приняла участие вокалистка<strong> CRADLE OF FILTH Lindsay Schoolcraft</strong>. Обложку нарисовал<strong> Paolo Perrotta Mazza</strong>. Релиз намечен на это лето на лэйбле<strong> Black Tears Of Death</strong>.</p><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29434.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 22.06.2016 news MONDOSCURO: cover, content details and a special guest revealed!
+
+<p>This is the explicit cover artwork for <strong>"MONDOSCURO</strong>", the announced EP co-starring <strong>CADAVERIA</strong> and<strong> NECRODEATH</strong>, both as distinct bands and as authors of new songs, composed and played together.</p><p>In detail, the EP will contain six tracks: two brand new and co-written songs, two covers (one of The Beatles and one of Type O Negative) and two unusual “exchange of roles”, that will see CADAVERIA reinterpreting a classic by NECRODEATH and NECRODEATH performing a CADAVERIA hit.<br>&nbsp;<br>Among the other surprises of "MONDOSCURO" there is the participation of <strong>Lindsay Schoolcraft</strong> from <strong>CRADLE OF FILTH</strong>, as special guest on vocals.<br>&nbsp;<br>"MONDOSCURO" cover artwork was designed by Italian-Venezuelan digital artist<strong> Paolo Perrotta Mazza</strong>.</p><p>The release of "MONDOSCURO" on <strong>Black Tears of Death</strong> label is expected late this Summer.</p><p><center><img width="480" height="480" src="/images/news_rus/2016.06/29434.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

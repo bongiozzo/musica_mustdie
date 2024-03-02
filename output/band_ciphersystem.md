@@ -54,6 +54,30 @@ Carl Obbel - Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.02.2007 reviews Чума на наши головы
+
+<P>Услышав лишь первые аккорды этого альбома понимаешь мгновенно - это Швеция, причем старая добрая. "Central Tunnel Eight" - дебютная работа талантливых шведских музыкантов. Образовавшись в 1995 году под названием <STRONG>ETERNAL GRIEF</STRONG> и сменив его в 2000 году на нынешнее, они выпустили пяток демок и сплит, прежде чем громко заявить о себе данным альбомом. Безусловно, рецепт их музыки далеко не нов. Но то, с каким упорством и рвением они это делают заслуживает всяких похвал. Не поддавшись всяким новомодным течениям, <STRONG>CIPHER SYSTEM</STRONG> играют классический шведский melodic death metal, смешивая лучшие мелодичные традиции вкупе с клавишными оркестровками и электронными экспериментами от&nbsp;<STRONG>DARK TRANQUILLITY</STRONG> с трешевым напором и агрессией в духе <STRONG>AT THE GATES</STRONG>. Все это подкрепляется отличнейшим качеством записи, гарантированным студией <STRONG>Fredman</STRONG> и самим <STRONG>Fredrik Nordstrom</STRONG>. Высокотехничный, скоростной и гипермелодичный материал обладает явным крышесносительным эффектом, что подтверждает и обложка альбома. Несмотря на отсутствие оригинальности, здесь налицо непредсказуемое развитие музыкальных тем.&nbsp;Наблюдается явный профессионализм и грамотный подход ко всем аспектам производства альбома.&nbsp;Материал ровный и зрелый, достаточно запоминающийся, хоть и не блещущий особым разнообразием. Это, кстати, единственный минус альбома. К своему концу, теряешься в догадках, то ли это концовка альбома, то ли заработала функция repeat. В целом же, просто не могу не порекомендовать эту работу всем любителям melodic death, ибо подобных интересных альбомов в этом стиле за последнее время можно пересчитать по пальцам.</P>
+<P>Диск предоставлен компанией <STRONG>MYSTIC EMPIRE</STRONG></P>
+Автор: Dimas
+
+### 01.07.2011 news CIPHER SYSTEM на Nuclear Blast
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=540 alt="" hspace=0 src="/images/news_rus/2011.07/19831.jpg" width=475 align=right border=0>Шведы <STRONG>CIPHER SYSTEM</STRONG> подписали контракт с <STRONG>Nuclear Blast</STRONG>. Новый альбом группы <STRONG>"Communicate The Storm" </STRONG>должен выйти 9 сентября. Обложку для пластинки нарисовал <STRONG>Seth Siro Anton</STRONG> (<B>SOILWORK</B>, <B>PARADISE LOST</B>, <B>SEPTICFLESH</B>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебют <STRONG>CIPHER SYSTEM</STRONG> <STRONG>"Central Tunnel Eight" </STRONG>вышел в 2004 году на <STRONG>Lifeforce</STRONG>. В России его издали <STRONG>Mazzar records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Состав группы:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Carl Obbel</STRONG> - Vocals<BR><B>Johan Eskilsson</B> (ex-DEAD BY APRIL) - Guitar<BR><B>Andreas Allenmark</B> (ex-ANATA) - Guitar<BR><B>Henric Carlsson</B> (ex-NIGHTRAGE) - Bass<BR><B>Emil Frisk</B> - Drums<BR><B>Peter Engstrom</B> - Keyboards</FONT></P>
+Автор: Vit Belov
+
+### 18.01.2012 news Новый клип CIPHER SYSTEM
+
+<P>Новый ролик шведов <STRONG>CIPHER SYSTEM</STRONG> на песню "<STRONG>Communicate The Storms</STRONG>" можно посмотреть ниже. Режиссёром видео выступил известный шведский клипмейкер<STRONG> Patric Ullaeus</STRONG>.</P>
+<P>Трек вышел на последнем одноимённом альбоме группы, вышедшем на<STRONG> Nuclear Blast</STRONG>.</P>
+<P><center><IFRAME src="http://www.youtube.com/embed/CVafK76AMx4?feature=player_embedded" frameBorder=0 width=640 height=360 allowfullscreen></IFRAME></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

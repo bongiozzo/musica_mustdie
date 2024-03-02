@@ -22,6 +22,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.07.2011 news Новый сингл TRELLEBORG
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.07/19911.jpg" width=400 align=right border=0>Питерские epic-металлисты<STRONG> TRELLEBORG</STRONG> выложили свой новый сингл под названием "<STRONG>In The Name Of Love</STRONG>" для бесплатного скачивания. Сингл свел <STRONG>Хиили Хиилесма</STRONG> - саундпродюсер большинства альбомов <STRONG>Him, 69 Eyes</STRONG>, также работавший с <STRONG>Moonspell, Apocalyptica, Lordi, Sepultura, Amorphis</STRONG> и мн. др. Альбомы, спродюсированные <STRONG>Хиили Хиилесма</STRONG>, проданы на сегодня в количестве, превышающем 3 миллиона копий. </P>
+<P>Мастеринг релиза, как и на прошлой работе группы "<STRONG>Lands Of Njord</STRONG>", сделал <STRONG>Mika Jussila (Nightwish, Children Of Bodom, Finntroll, Ensiferum</STRONG> и др.) в студии <STRONG>Finnvox</STRONG> (Хельсинки). </P>
+<P>ССЫЛКА НА СКАЧИВАНИЕ СИНГЛА: <A href="http://ifolder.ru/24323425">http://ifolder.ru/24323425</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

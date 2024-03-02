@@ -37,6 +37,27 @@ Additional design: Vegar Bakken
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.02.2003 news TIDFALL готовы войти в студию
+
+<p>Норвежские black металлисты из TIDFALL готовы войти в студию для записи своего третьего альбома, выпуск которого запланирован на конец лета 2003 года на Nuclear Blast Records.</p>
+
+Автор: Dimas
+
+### 26.10.2003 reviews Black-metal для эстетов?
+
+<P>TIDFALL - оригинальный black-metal коллектив, который выпускает на NUCLEAR BLAST уже второй альбом. Я бы даже отнёс этих норвежцев к black-death-metal, но это несущественно. Основная отличительная черта этой группы -&nbsp;пронизывание всей их музыки электроникой. Подобного использования синтерзатора я не припомню. Дело в том, что клавишные используется не как музыкальная подложка и не как симфоничное оформление. Кибер-звуки органично вплетены в звучание гитар, барабанов, баса... Впечатление создаётся очень оригинальное - это, как вы слушаете black-metal, а в одном из каналов постоянно звучат какие-то синтетические звуки. Честно говоря со своей задачей эти звуки справляются. У Вас появится нужное настроение настороженности, но... Слушать всё это очень тяжело, хочется подойти проверить не отошло что-нибудь у динамика, отчего он&nbsp;шипит. У RAM-ZET, например, подобные эфекты получились гораздо интереснее. Эстетскй black-metal с постоянно перезагружающимися компьютерами, звонящими телефонами и срабатывающими автоответчиками.</P>
+<P>Диск предоставлен точкой B2-100</P>
+<CENTER><IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 16.11.2003 reviews Black-metal for aesthetes
+
+<DIV>TIDFALL is original black-metal band that is release already second album through NUCLEAR BLAST. I should relate these Norwegians to black-death-metal, but it's not so very important. Main distinction of this band is penetrating electronics in all their music. I can not remember such employment of synthesizer. Keyboard is used not like musical background and not like symphonic arrangements. Organicaly cyber-sounds are threaded in sound of guitars, drums, bass... Very original impression is created. You will listen to black-metal and will have constant synth-sounds in one of the chanels. To be true these sounds manage their work. You will get necessary mood, but... It's hard to listen, you will have to go up to dynamic and check it. Something is disconnected in it, therefore dynamic is fizzing. For example Ram-Zet employs these effects more interesting. Aesthetic black-metal with reloading computers, ringing phones and working answering machines.</DIV>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -16,6 +16,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.07.2011 news Iwrestledabearonce: клип на песню &quot;You know that ain&#39;t them dogs&#39; real voices&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Веселчаки из<STRONG> Iwrestledabearonce</STRONG> опубликовали клип на песню <STRONG>"You know that ain't them dogs' real voices",</STRONG> которая войдёт на новый альбом группы&nbsp;под названием&nbsp;<STRONG>"Ruining It For Everybody"</STRONG>. Диск выйдет 26 июля на<STRONG> Century Media</STRONG>.</FONT></P>
+<CENTER><IFRAME height=349 src="http://www.youtube.com/embed/pwgMMtgSTVE" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 06.06.2012 news IWRESTLEDABEARONCE: видеоклип на трек &quot;I&#39;m Gonna Shoot&quot;
+
+<P>Команда <STRONG>IWRESTLEDABEARONCE</STRONG> опубликовала видеоклип на трек <STRONG>"I'm Gonna Shoot"</STRONG>. Посмотреть его можно ниже.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/E962IJsy5RY" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

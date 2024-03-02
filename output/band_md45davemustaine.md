@@ -31,6 +31,9 @@ Kelly Lemieux - Bass
 * C группой "Megadeth" Dave Mustain
 * C группой "Metallica" Dave Mustain
 
+## Публикации
+
+
 ## Обсуждения
 
 

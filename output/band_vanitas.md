@@ -51,6 +51,41 @@ Relatives Freisein
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.04.2002 reviews Подарок из Австрии
+
+<p>Именно так я бы назвал новое, уже второе творение австрийской группы VANITAS. Команда представляет нашему вниманию мелодичный и атмосферный doom-death metal с явственными gothic-black интонациями. Уже первая же песня заставляет нас вспомнить о существовании такой группы как TRISTANIA, вторая вещь, также как и третья, смахивают на раннее творчество CREMATORY, и, наконец, четвертая вещь снова похожа на творчество TRISTANIA. Кстати, именно первую и четвертую вещи можно назвать лучшими трэками альбома. Далее следует красивый скрипичный инструментал плавно перетекающий в новую песню, в которой чувствуется большее количество блэковых фишек и, опять-таки, все это напоминает уже известную группу, в данном случае GRAVEWORM. Прослушивая последние две вещи запутываешься окончательно. Явственно понимаешь, что все это на кого-то похоже, но вспоминается слишком много имен, начиная уже перечисленными выше и заканчивая THEATRE OF TRAGEDY и HAGGARD. В итоге приходишь ко мнению, что в целом-то это не является чьим-либо клоном, но имеет много позиций сходных с другими группами: клавишная атмосфера, ритмика и красивые гитарные пассажи, смачный рык и приятные женские подпевки, немецкоязычная лирика. Чрезвычайно мелодичная музыка, с великолепными гитарами и клавишными, умело сформированной загадочно-мистической атмосферой, меланхоличными настроениями и готической романтичностью. Не первой свежести, но зрелая и качественная работа, способная взбудоражить слух многих любителей тяжелой музыки.</p>
+
+Автор: Dimas
+
+### 25.05.2002 reviews Present from Austria
+
+<p>I would name new, already second creation of the Austrian group VANITAS as a tittle of my review. The band represents to our attention melodious and atmospheric doom-death metal with clear gothic-black intonations. Already first song forces us to recollect existence of such group as TRISTANIA, the second track, as well as third, brush away on early creativity of CREMATORY, and, at last, fourth track is again similar to creativity by TRISTANIA. By the way, it is possible to name the first and fourth tracks as best songs of an album. Further follows beautiful violin instrumental smoothly flows to a new song, in which a lot of black chesspieces and, besides is felt, all this reminds already known group, in this case is GRAVEWORM. Listening last two songs finally tangle. Clearly understand, that all this is similar to someone, but many names are recollected, beginning already listed above and finishing on THEATRE OF TRAGEDY and HAGGARD. In a result come to opinion, that as a whole it is not someone's clone, but has many positions similar to other groups: a keyboard atmosphere, rhytms and beautiful guitar passages, growling and pleasant female choruses, German lyrics. Extremely melodious music, with magnificent guitars and keyboard, skilfully generated mysterious - mystical atmosphere, melancholic moods and Gothic romanticism. Not of the first freshness, but mature and qualitative work capable to excite hearing of many fans of heavy music.</p>
+
+Автор: Vit Belov
+
+### 21.06.2002 reviews Это не готика
+
+<p>Ай да CCP! Ай да молодцы! Вот уж не ожидал! Как известно, большинство питомцев этой австрийской конторы являют из себя крепкий середнячок, чьи работы заслуженно проскакивают незамеченными. Вроде и похвалить не за что, и разносить в пух и прах не представляется возможным. Впрочем, бывают исключения. VANITAS – из их числа. Сложно дать этой музыке конкретное определение, заключить в строгие стилистические рамки. Виной тому как раз таки вполне понятное желание музыкантов этих рамок избежать. Определённо можно сказать только одно: "Der Schatten Einer Existenz" – альбом, наполненный музыкой красивой, гармоничной… и ещё раз красивой. Не поймите меня неправильно, это не готика. Скорее, с толком сделанный коктейль из трёх основных стилей в экстремальной музыке: дума, дэта и блэка. Попробуйте мысленно представить "Acme", первый альбом поляков SIRRAH, выполненный в более блэковом ключе с огромнейшим влиянием классической музыки, сдобренный немецкоязычной лирикой и не просто красивым женским голосом, а заставляющим трепетать душу сопрано. Тогда вы, возможно, поймёте, почему этот альбом ещё очень не скоро ляжет на полку, а такие вещи как "Heiliger Schein" имеют все шансы остаться в ваших фаворитах на долгие-долгие годы.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 10.01.2005 reviews VANITAS двигаются вперёд
+
+<P>Немецкая группа <STRONG>VANITAS</STRONG> двигается по жизни семимильными шагами. Всё-таки, наверное, это не очень хорошо, когда каждый следующий альбом звучит по-новому. Нехорошо для группы, нам-то, как раз, очень интересно.</P>
+<P>Первый альбом <STRONG>VANITAS</STRONG> представлял этакий мрачный folk-black-metal, достаточно среднего уровня, что не могло помешать ему понравиться поклонникам стиля. Вторая работа сравнивалась со всеми готик-думово-блэковыми коллективами сразу, и оставила любителей стиля «в ожидании шедевра». Правда, и эту стадию <STRONG>VANITAS </STRONG>благополучно проскочили. Что теперь?</P>
+<P>Теперь, <STRONG>VANITAS</STRONG> играют новомодный готическо-индустриальный металл, скрашивая возможное однообразие стиля женским вокалом и акустическими струнными инструментами. И в этом стиле у них получается, надо отметить, неплохо. Не сказать, что здорово, но неплохо… Вот, например, первая песня ‘<STRONG>Endlosschleife</STRONG>’ выделяется своей энергичностью. Дальше, всё ровно без особых изысков.</P>
+<P>Если Вы ищите альбом на немецком языке, Вас не страшат электронные эксперименты с ритм-секцией и танцевальные мотивы, а также Вы уважительно относитесь к мелодичному современному металлу в целом, то Вам сюда. Остальным же, может показаться скучным, всё зависит от того, когда начнётся скука. У меня где-то на 5-6 песне…</P>
+<P>Диск предоставлен <A href="/">CD-Maximum</A></P>
+Автор: Vit Belov
+
+### 09.02.2005 news Видео-клип VANITAS
+
+<P>Австрияки <STRONG>VANITAS</STRONG> сняли клип на песню с последнего альбома «<STRONG>Endlosschleife</STRONG>». Вы можете его посмотреть по этой ссылке: <A href="http://www.vanitas.at/eng/index.htm">http://www.vanitas.at/eng/index.htm</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

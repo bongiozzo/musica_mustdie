@@ -112,6 +112,122 @@ The Dying Flame of Existence
 
 * C группой "Havayoth" M. Hansson
 
+## Публикации
+
+### 23.08.1999 news 
+
+<p>Naglfar записывают очередное демо. Оно будет содержать три новых песни.</p>
+
+Автор: Vit Belov
+
+### 27.11.2000 news Naglfar отправились в студию.
+
+<p>Naglfar на пару недель засели в Ballerina Studio и записывают новый мини-CD "Ex Inferis". MCD будет содержать одну вещь из выходящего вскоре полного альбома, один кавер композиции Terrorizer "Death Shall Rise" и одну заново переписанную старую песню Naglfar, вероятно трэк из демо "Fuck You - We Are Naglfar". Северные воины полны надежд до конца года записать также и полноформатный альбом.</p>
+
+Автор: Morsus
+
+### 27.11.2000 news Naglfar have entered the studio.
+
+<p>Naglfar have entered the Ballerina Studio in a couple of weeks to record a new mini-CD called "Ex Inferis". The MCD will include one track from the upcoming fullength album, one cover version of the Terrorizer track "Death Shall Rise" and one re-recording of a old Naglfar song, probably a track from the demo "Fuck You - We Are Naglfar". The northen warriors will hopefully enter the studio to record their next fullength album before the end of this year.</p>
+
+Автор: Morsus
+
+### 05.12.2000 news Новый гитарист &quot;Naglfar&quot;
+
+<p>Изменения в составе "Naglfar". Гитарист Mad Morgan решил заняться своей немузыкальной карьерой и оставил скандинавских блэкушников. На смену ему рекрутирован Vargher из Bewitched. В настоящее время группа продолжает запись, уже полностью готовы "Of Gorgons Spawned Through Witchcraft", "Emerging From Her Weeping" (перезапись классической "Vittra") и "Dawn Of Eternity" (ковер Massacre).</p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+### 27.02.2003 news Новости от NAGLFAR
+
+<p>Новый альбом шведской death-black metal формации NAGLFAR под названием "Sheol" выйдет 24 марта 2003 года в Европе через New Hawen Records и 6 мая 2003 года в Северной Америке через Century Media Records. В альбом войдут восемь песен прекрасного качества, поражающих своей интенсивностью и мрачной энергетикой, полных ненависти, безумия и отчаяния.</p>
+
+Автор: Dimas
+
+### 01.04.2003 news NAGLFAR will ensure that death will have its day...
+
+<p>Adversity weeds out the weak, and when combined with Norse mythology, only the strongest warriors will witness the apocalypse, for only the strong are worthy enough to die gloriously. Named after the ship that will carry giants to their death at Ragnarцk - the world's last battle - the Armageddon-inducing music of Sweden's NAGLFAR will ensure that death will have its day. <BR><BR> The band from Umeе burst onto the scene in 1992 with their "Stella Trajectio" demo, and vocalist Jens Rydйn and bassist Kristoffer "Wrath" Olivius soon secured a contract with Wrong Again Records. Recorded at Abyss Studios with Peter Tдgtgren (Hypocrisy), their 1995 debut album, Vittra, spread like poison through water and is still regarded as a milestone in Swedish melodic black metal eight years after its release.<BR><BR> Soon afterwards, the band lost their drummer. Their location made it difficult to find a successor in the midst of demand for a second album, but NAGLFAR did not succumb to pressure. Even after losing their rehearsal spaces over ten times, the band triumphed by finding drummer Mattias Grahn in 1998 and released Diabolical, resulting in a European tour with Deicide, Six Feet Under and Amon Amarth. Two years later, guitarist Marcus "Vargher" Norman of Bewitched replaced Morgan Hansson and assisted NAGLFAR with their stand-out performances at the Wacken and Party-San Open Air festivals following the release of their five-song EP, Ex Inferis, called "an exercise in meticulous playing and seriously thrashy craft" by Brave Words & Bloody Knuckles.<BR><BR> After a five-year wait, NAGLFAR's third album, Sheol (Hebrew for "hell") treads through a blurry boundary of black and death metal that seethes in a foundation of thrash brutality, hailed by Metal Maniacs as "a monumental cataclysm of blackened death metal" and destined to become one of the best albums of 2003. Featuring album artwork by Dark Tranquillity's Niklas Sundin and recorded, mixed, & mastered at Ballerina Audio by Nils Johansson in Umeе, Jens Rydйn's visceral battle cry steers you through the war in hell found in the aftermath of war, waged by the men of NAGLFAR who fear no death. We recommend you accept the protection offered you on your tour through hell, set for May 6th, 2003.</p>
+
+Автор: Yermola
+
+### 04.05.2003 news NAGLFAR&#39;s Sheol is bloodier than a murder scene...
+
+<p>"NAGLFAR's Sheol is bloodier than a murder scene." - Hit The Pit.com <BR><BR> Just how brutal ARE these Swedish men who blur the line between black and death metal? Come May 6th, Sheol will we available in North America and you will be granted to opportunity to do your own investigating. But please, take it from us: with NAGLFAR's reputation for blistering brutality and Sheol being recorded at the famed Abyss Studios with the equally-famed Peter Tдgtgren, this album's truly is a scorcher and worth the five-year wait!<BR><BR> In a recent interview with Swedish Metal.net, guitarist Andreas Nilsson discusses the band's release schedule and other on-the-road pleasantries:<BR><BR> Swedish Metal: You seem to have a very strict schedule for your releases, one full length CD every second year and one mini-CD the year in-between. Is this a formula you will keep in the future or can we look forward to a new full length CD in 2004?<BR><BR> Andreas Nilsson: This is nothing that weґve planned. It has just turned out like this due to unfortunate events such as members leaving the band, losing rehearsal places, and stuff like that. Like now, our recent rehearsal got flooded so we had to move. But this time we got a new place right away so weґll be getting together again in a couple of days. Iґm pretty sure you wonґt see a new full length in 2004, but Iґd be damned if we wonґt be able to get something out by 2005. Keep your fingers crossed. With our bad luck, we need it. <BR><BR> Swedish Metal: What's your funniest live or tour experience? I heard some rumours that your old guitarist Morgan got his nickname "Mad Morgan" from shaving his head butt-naked in front of the tour bus after more than a couple of beers. <BR><BR> Andreas Nilsson: Haha, that oneґs pretty known by now, so I guess I canґt deny it. But thereґs a saying that what happens on the road stays on the road. I can think of some pretty fucked up events that have occurred, but some stories are better left untold. <BR><BR> For the entire interview, visit www.swedishmetal.net, select "The Webzine," and search under "Interviews.</p>
+
+Автор: Yermola
+
+### 28.11.2003 news Переиздания классиков шведского death black metal
+
+<P><LABEL id=HbSession SessionId="1740891749">Лэйбл Regain Records приготовил подарок всем любителям шведятины. Компания выпустила шесть классических альбомов шведских групп, выпускавших альбомы на WAR Music в девяностых годах.</LABEL></P>
+<P><LABEL SessionId="1740891749"><B>Naglfar - Diabolical<BR></B>Ремастированная версия второго альбома группы 1998 года. Классический black death metal.<BR><B>Darkane - Rusted Angel</B><BR>Ремастированная версия дебюта группы 1998 года с тремя бонус-трэками. Техничный и мелодичный death metal. </LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL><LABEL SessionId="1740891749"><B>Carnal Forge - Whos Gonna Burn</B><BR>Ремастированная версия дебютного альбома группы 1998 года. <BR><B>Defleshed - Fast Forward</B><BR>Третий альбом шведов в ремастированном виде с четырьмя бонус-трэками. <BR><B>Dimension Zero - Penetrations from the Lost World</B><BR>Переиздание мини-альбома 1997 года, с семью бонус-трэками, среди которых две студийные нереализованные вещи и пять концертных, записанных в ходе японского тура 2002 года. .<BR><B>Eucharist - Mirrorworlds</B><BR>Ремастированный второй альбом 1997 года пионеров Swedish melodic death metal.</LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL>&nbsp;</P>
+<P><LABEL SessionId="1740891749">В нашем разделе mp3 можно ознакомиться с некоторыми песнями с этих альбомов.<BR>Есть надежда, что все эти альбомы выйдут по лицензии на российский рынок.</P></LABEL>
+Автор: Dimas
+
+### 11.01.2005 news NAGLFAR подписались на CENTURY MEDIA RECORDS
+
+<P>Шведские&nbsp;death black&nbsp;металлеры <B>NAGLFAR</B> подписали соглашение с <B>Century Media Records</B>. Их новый альбом <B>"Pariah"</B>, записанный в шведской <B>Ballerina Studios,</B> ожидается к выходу весной 2005 года.&nbsp;В альбом войдут следующие вещи:</P>
+<P><B>1. A Swarm Of Plagues</B></P>
+<P><B>2. Revelations Carved In Flesh</B></P>
+<P><B>3. And The World Shall Be Your Grave</B></P>
+<P><B>4. Suffering To The Conquered</B></P>
+<P><B>5. Carnal Scorn & Spiritual Malice</B></P>
+<P><B>6. The Perpetual Horrors</B><BR></P>
+Автор: Dimas
+
+### 08.06.2005 news Новый альбом NAGLFAR
+
+<P><STRONG>NAGLFAR </STRONG>выпускают свой новый альбом "<STRONG>Pariah</STRONG>" 20 июня на <STRONG>Century Media</STRONG>. Трэк-лист:</P>
+<P>01. <STRONG>Proclamation<BR></STRONG>02. <STRONG>A Swarm Of Plagues</STRONG><BR>03. <STRONG>Spoken Words Of Venom</STRONG><BR>04. <STRONG>The Murder Manifesto<BR></STRONG>05. <STRONG>Revelations Carved In Flesh</STRONG><BR>06. <STRONG>None Shall Be Spared<BR></STRONG>07. <STRONG>And The World Shall Be Your Grave<BR></STRONG>08. <STRONG>The Perpetual Horrors<BR></STRONG>09. <STRONG>Carnal Scorn & Spiritual Malice</STRONG></P>
+Автор: Vit Belov
+
+### 30.09.2005 reviews Если Вам не понравится &quot;Pariah&quot;, вы не любите black-metal
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот вам black-metal! Отличный black-metal!! Великолепный black-metal!!! Кто-то зачем-то называет его мелодичным. Нет, он не мелодичный, в том смысле, что не надо его сравнивать с <STRONG>CHILDREN OF BODOM</STRONG> или <STRONG>DIMMU BORGIR</STRONG>. Мощнейшие, забойнейшие композиции не лишённые изящества в некотором роде. По мне "<STRONG>Pariah</STRONG>" вполне можно ставить на одну доску с великолепными последними работами <STRONG>RAGNAROK</STRONG> и <STRONG>BELPHEGOR</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Если вам нужно моё мнение, я заслушивался этим альбомом. Очень редко брутальность и мелодизм так тесно переплетаются. <STRONG>NAGLFAR</STRONG> удалось найти "золотую середину", как мне кажется. 9 песен полных злобы агрессии и "лирики фильмов ужасов", без использования клавишных, что здесь важно.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый <STRONG>NAGLFAR</STRONG> советую всем любителям black-metal, не взирая на стаж и пристрастия. Если Вам не понравится "<STRONG>Pariah</STRONG>", вы не любите этот стиль.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен Фоно.</FONT></P>
+Автор: Vit Belov
+
+### 23.10.2006 news Новости от NAGLFAR
+
+<P>Шведские титаны black metal&nbsp;<B>NAGLFAR</B> работают в данный момент в шведской <B>Toontrack</B> studio&nbsp;над своим новым альбомом под названием&nbsp;"<STRONG>Harvest</STRONG>". Его релиз ожидается к весне 2007 года. Предварительный трек-лист альбома: <BR><BR>1. <B>Into the Black</B><BR>2. <B>Prayer of Cain</B><BR>3. <B>The Way of the Rope</B><BR>4. <B>Harvest</B><BR>5. <B>Feeding Moloch</B><BR>6. <B>The Mirrors of My Soul</B><BR>7. <B>Wargod</B><BR>8. <B>Plutonium Reveries</B><BR>9. <B>Odium Generis Humani</B><BR></P>
+Автор: Dimas
+
+### 15.01.2007 news Новый альбом NAGLFAR
+
+<P>Новый альбом от <STRONG>NAGLFAR "Harvest" </STRONG>выходит 23 февраля на <STRONG>Century Media</STRONG>. Окончательный трэк-лист:</P>
+<P>01. <STRONG>Into The Black</STRONG><BR>02. <STRONG>Breathe Through Me<BR></STRONG>03. <STRONG>The Mirrors Of My Soul<BR></STRONG>04. <STRONG>Odium Generis Humani</STRONG><BR>05. <STRONG>The Darkest Road<BR></STRONG>06. <STRONG>Way Of The Rope</STRONG><BR>07. <STRONG>Plutonium Reveries</STRONG><BR>08. <STRONG>Feeding Moloch<BR></STRONG>09. <STRONG>Harvest</STRONG></P>
+<P>Будет доступен также лимитированный вариант, включающий DVD, на которое войдут несколько концертных трэков, интервью и один видеоклип.</P>
+Автор: Vit Belov
+
+### 11.08.2009 news NAGLFAR работают
+
+<P><STRONG>NAGLFAR </STRONG>сочиняют материал для нового альбома,&nbsp;который выйдет "в недалёком будущем".</P>
+Автор: Vit Belov
+
+### 04.02.2012 news Новый альбом NAGLFAR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=467 alt="" hspace=0 src="/images/news_rus/2012.02/22947.jpg" width=467 align=right border=0>Шестой альбом <STRONG>NAGLGAR "Teras"</STRONG> выйдет 27 марта на <STRONG>Century Media</STRONG>. Обложку для релиза нарисовал<STRONG> Niklas Sundin</STRONG> из <STRONG>DARK TRANQUILLITY</STRONG>. Трек-лист:</FONT></P>
+<P>01. <STRONG>Teras<BR></STRONG>02. <STRONG>Pale Horse</STRONG><BR>03. <STRONG>III: Death Dimension Phantasma</STRONG><BR>04.<STRONG> The Monolith<BR></STRONG>05. <STRONG>An Extension Of His Arm And Will<BR></STRONG>06. <STRONG>Bring Out Your Dead</STRONG><BR>07. <STRONG>Come Perdition</STRONG><BR>08. <STRONG>Invoc(H)ate</STRONG><BR>09. <STRONG>The Dying Flame Of Existence</STRONG></P>
+<P>Трек "<STRONG>Pale Horse</STRONG>" можно послушать в клипе ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/41QIUpKqyVQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

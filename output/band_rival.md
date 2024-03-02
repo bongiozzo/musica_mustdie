@@ -22,6 +22,18 @@ Power metal from US
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.02.2004 news RIVAL - еще одни дебютанты на Metal Blade
+
+<P>Американский квартет <B>RIVAL</B> записал свой первый альбом для <B>Metal Blade Records</B>, названный <B>'State Of Mind'</B>. Спродюсировал и смиксовал альбом <B>Chris Steinmetz</B>.</P>
+<P>Power metal коллектив родом из Чикаго и своим творчеством напоминает исполнителей американского классического heavy metal 80-х. Сейчас в Америке очень мало хороших power metal групп, поэтому <B>RIVAL</B> оказались очень кстати.</P>
+<P>Трэк-лист:</P>
+<P>1. <B>State Of Mind</B> <BR>2. <B>Extreme Agression</B> <BR>3. <B>Reach</B> <BR>4. <B>Insane</B> <BR>5. <B>Tyrant</B> <BR>6. <B>Brink</B> <BR>7. <B>Remember You</B><BR>8. <B>Lord Of The Knight</B><BR>9. <B>Hell Train</B> </P>
+<P>Релиз <B>'State Of Mind'</B> назначен на 3 мая 2004 года на <B>Metal Blade Records</B>.</P>
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

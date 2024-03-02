@@ -48,6 +48,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.07.2001 news Реально ... мастера!
+
+<p>Культовые хард-рокеры "MASTERS OF REALITY" в Сентябре выпускают новый альбом "Deep In The Hole". Третий студийник выйдет в Европе через Mascot/Brownhouse Records. Среди гостей на диске отметились: Josh Homme (QUEENS OF THE STONE AGE), Mark Lanegan (ex-SCREAMING TREES, QOTSA), Troy Van Leeuwen (A PERFECT CIRCLE, ENEMY), Dave Catching & Mathias Schneeberger (THE EARTHLINGS) и Nick Lucero (THE FLYS, QOTSA). Трек-лист: "High Noon Amsterdam", "A Wish for a Fish", "Corpus Scorpios Electrified", "Third Man on the Moon" и "Deep In The Hole".</p>
+
+Автор: Yermola
+
+### 13.07.2001 news Cult heroes MASTERS OF REALITY......
+
+<p>Cult heroes MASTERS OF REALITY, featuring singer/guitarist/producer Chris Goss, will be issuing their third studio album, Deep In The Hole, in September via Mascot/Brownhouse Records in Europe. The record is rumored to be the band's heaviest since their highly acclaimed self-titled 1988 debut, also referred to as Blue Garden, and features a number of high profile guests, namely: Josh Homme (QUEENS OF THE STONE AGE), Mark Lanegan (ex-SCREAMING TREES, now with QOTSA), Troy Van Leeuwen (A PERFECT CIRCLE, ENEMY), Dave Catching & Mathias Schneeberger (THE EARTHLINGS), Nick Lucero (THE FLYS, QOTSA) and Brendon Mc Nichol. Songs set to appear on the album include "High Noon Amsterdam", "A Wish for a Fish", "Corpus Scorpios Electrified", "Third Man on the Moon", and "Deep In The Hole". Talks with potential US labels are currently under way. In related news, Goss is also part of the latest Desert Sessions disc, which was recorded at Fred Drake's world-famous Rancho de la Luna in Joshua Tree. Joining Goss and mainman Josh Homme on the album are Samantha Maloney (HOLE, MOTLEY CRUE), Mark Lanegan, ELEVEN's Alain Johannes and Natasha Shneider, and Brendon McNichol (MASTERS OF REALITY). And finally, QUEENS OF THE STONE have started tracking their forthcoming album, Songs for the Deaf, with producer Eric Valentine. In addition, Homme and bassist/vocalist Nick Oliveri, along with Brad Wilk of RAGE AGAINST THE MACHINE, have added the music to the film The Dangerous Lives of Altar Boys, starring Jodie Foster. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.09.2004 reviews Нереальное мастерство, гениальная музыка.
+
+<P>Вкратце о том, что же такое представляют из себя эти Masters Of Reality. Дебютник группы вышел в 1989 году и представлял собой некий сплав ранних Black Sabbath и Led Zeppelin. Дебют вышел заметным, но лидер группы Крис Госс решил распустить состав. Спустя четыре года группа всплыла из небытия с новым альбомом, барабанные партии на котором записал, вероятно, самый именитый барабанщик на планете Земля Джинджер Бэйкер (Cream, Blind Faith, BBM и т.д.). В музыке появились элементы американской психоделии, но доминировал по прежнему хард-рок образца начала семидесятых. Критики и слушатели приняли новую работу тепло, и Крис Госс решил, что от добра добра не ищут. </P>
+<P>Так и выпускал он свои хард-роковые с примесью блюза пластинки, пока его не осенило сделать некий то ли альбом, то ли сборник из нереализованных, большей частью акустических композиций. Плюс кавер авторства Джона Леннона. И маэстро Бэйкер на барабанах, правда, в одном трэке. </P>
+<P>И получился шедевр. Двенадцать трэков, один в один – марихуанистые песнопения, больше напоминающие ранний Grateful Dead, чем отцов хард-рока. С тем лишь отличием, что детище Джерри Гарсии никогда не блистало мелодизмом, а у Криса Госса с этим делом как раз всё в порядке. Густая психоделия калифорнийского розлива, приправленная смачным саундом и искусной аранжировкой. При этом – всего в меру, звуковая палитра выверена, как механизм швейцарских часов. </P>
+<P>Ни убавить, ни прибавить. Альбом идеально подойдёт и просто для расслабления, и для вдумчивого, неоднократного прослушивания. И ещё. Созерцание обложки авторства того же Госса лично мне прибавило год жизни. Рыдал от смеха. </P>
+<P>Диск выпущен по лицензии компанией Irond</P>
+Автор: Ruslan
+
+
 ## Обсуждения
 
 

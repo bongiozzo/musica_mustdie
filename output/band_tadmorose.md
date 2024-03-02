@@ -159,6 +159,73 @@ Peter Moren - drums
 * C группой "Inmoria" Peter Moren (drums)
 * C группой "Steel Attack" Peter Moren (drums)
 
+## Публикации
+
+### 04.03.2002 news МР3 от TAD MOROSE ....
+
+<p>MP3 новой вещи "New Clear Skies" с еще не вышедшего альбома TAD MOROSE - "Matters Of The Dark" (должен выйти только 16-го апреля) можно скачать <A HREF="http://mp3.centurymedia.com/TadMorose_NuclearSkies_MattersoftheDark.mp3">здесь....</A></p>
+
+Автор: Yermola
+
+### 04.03.2002 news TAD MOROSE MP3 Available For Download ...
+
+<p>An MP3 of "New Clear Skies", off TAD MOROSE's Matters Of The Dark album—scheduled for release on April 16th—is now available for download from the Century Media Records website <A HREF="http://mp3.centurymedia.com/TadMorose_NuclearSkies_MattersoftheDark.mp3">at this location. </A>TAD MOROSE will be making their first-ever appearance in the UK, where they will end a European tour with DEMON, on March 3rd.</p>
+
+Автор: Yermola
+
+### 09.04.2003 news TAD MOROSE в студии
+
+<p>TAD MOROSE недавно вошли в Soundcreation Studios для записи своего нового альбома. Запись планируется закончить в мае, после чего материал будет смикширован во Fredman Studios. Летом ожидается релиз альбома.</p>
+
+Автор: Dimas
+
+### 03.05.2003 news TAD MOROSE продолжают работу над альбомом
+
+<p>TAD MOROSE продолжают студийную работу над своим новым альбомом. Уже стало известно его название - "Life In A Lonely Grave". Напомню, что выход альбома ожидается в конце лета на Century Media Records. После записи, альбом пройдет микширование в Studio Fredman.</p>
+
+Автор: Dimas
+
+### 04.05.2003 news A word from the Hooters-loving guitarist, Christer &quot;Krunt&quot; Andersson...
+
+<p>"Weґre in Studio Soundcreation recording our next album, Life In A Lonely Grave, at the moment. Weґve just started laying down the vocals and we will mix the shit in Studio Fredman in Gothenburg in the end of May. How does it sound? Donґt ask me, ha ha ha. I donґt know. It's a pretty typical TAD MOROSE album, a bit more of everything I would say, compared to Matters Of The Dark. About the title, that might change too... weґll see. We are playing at the Sweden Rock Festival in June, that will be a blast! Twisted Sister, Whitesnake, Queensrяche (to name a few) are also playing, so it will be pretty cool I guess. It's nice to see your own band name on the same bill as bands like these. This is something I wouldnґt have believed would happen - not back in the mid-eighties when I was a young and innocent guitar player banging my head to songs like 'Weґre Not Gonna Take It,' 'Guilty Of Love' and 'Warning.' We all are looking forward to this festival. The only thing is that sometimes things can get to be too fun... (I guess you know what I mean, ha ha ha) <BR><BR> Apart from this, it seems like itґs going to be a lazy summer for us since we donґt have anything booked (yet!). Hopefully all hell will break loose when our new album is released sometime this summer or so.<BR> Okay, take care and stay heavy! Itґs Beckґs oґclock!"</p>
+
+Автор: Yermola
+
+### 03.09.2004 reviews Временное несогласие
+
+<P><B>Очень странно. Что-то случилось с группой Ted Morose. Вроде состав не менялся. Никаких скандалов в группе. Записывались в той же, что и остальные альбомы, студии. А звук песочный и глухой. Песен ярких нет. Прогрессивные моменты практически исчезли. Они, по большому счету, и так были недопрогрессивными, так… умелая имитация… но раньше хоть звучало интересно… Верните нам тот<SPAN> <SPAN lang=EN-US>“Tad Morose”, </SPAN></SPAN>что выпустил<SPAN> <SPAN lang=EN-US>“Reflection” </SPAN></SPAN>и<SPAN> <SPAN lang=EN-US>“Matters Of The Dark”!!!</SPAN></SPAN></B></P>
+<P><B>Сложно сказать, насколько хорош новый альбом шведов. По сравнению с предыдущими дисками он откровенно слаб. Но это, по-прежнему, мощный американский хэви-павер, отлично сыгранный и отлично спетый. И слишком избитой, такую музыку, назвать нельзя, ровно как подобные мелодии. Ыыыы :(, если б не этот поганый звук!!! Может мне сиди бракованный попался?! </B></P>
+<P><B>Ну не радуют, что-то, шарики… </B></P>
+<P><B>Сложный для восприятия альбом. Наверняка найдет себе массу поклонников. Ибо это не банальный европейский поп-павер для людей в душе оставшихся детьми, а суровая мужская музыка.</B></P>
+<P><B>Но чего-то ей не хватает… Надеюсь, муза Андерссона и компании просто улетела в отпуск…</B></P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.fono.ru/cgi-bin/releases" target=_blank>Фоно</A> </P>
+Автор: Дофф
+
+### 19.09.2004 reviews Temporary disagreement
+
+<P>Very strange. Something's happen with <STRONG>TAD MOROSE</STRONG> band. Such as line-up was not changing. No scandals in the band. Recording was in same studio as last albums. But sound is sandy and deaf. There is not&nbsp;outstanding songs. Progressive moments are hided practically. Thus they&nbsp;were not progressive, they were skilled imitation, but&nbsp;they sounded interesting earlier. Please, return to us that <STRONG>TAD MOROSE</STRONG>, realesed '<STRONG>Reflection</STRONG>' and <STRONG>'Matters Of The Dark'</STRONG>!!!</P>
+<P>Hard to say, how good is new album by Swedes. It's frankly&nbsp;poor in compare with their last CDs. But it's as usual strong American heavy-power-metal, excellent playing and excellent singing. We can not name this music and this melodies&nbsp;as too trite.&nbsp;Aargh!!!:( But this miserable sound!!! May be&nbsp;I recieved rejected CD?!</P>
+<P>This hard to perception album. It&nbsp;will find many fans. 'Cause it is not banal Euro pop-power for peoples, who remained&nbsp;in childhood, but it's rough rustic music.</P>
+<P>But something&nbsp;lacks in&nbsp;this music... I hope, inspiration of <STRONG>Anderssen and Co</STRONG>. just&nbsp;flied on vacation...&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</P>
+Автор: Дофф
+
+### 13.03.2006 news Новый вокалист TAD MOROSE
+
+<P>Новым вокалистом <STRONG>TAD MOROSE</STRONG> стал <STRONG>Joe Comeau</STRONG> (ex-<B>ANNIHILATOR</B>, <B>LIEGE LORD</B>, <B>OVERKILL</B>). Поняино, что в <STRONG>OVERKILL</STRONG> он занимался только бэк-вокалом.</P>
+Автор: Vit Belov
+
+### 08.09.2006 news Смены вокалистов
+
+<P>Заменой недавно ушедшему из <STRONG>BLOODBOUND</STRONG> вокалисту <STRONG>Urban Breed</STRONG> (ex-<STRONG>TAD MOROSE</STRONG>) стал другой "ex-<STRONG>TAD MOROSE</STRONG>" <STRONG>Kristian Andren</STRONG>, который&nbsp;еще был вокалистом групп <STRONG>MEMENTO MORI, MEDUZA</STRONG> и <STRONG>WUTHERING HEIGHTS. </STRONG></P>
+<P><FONT color=#ffffff>А в самих <STRONG>TAD MOROSE</STRONG> также новый вокалист - небезызвестный<STRONG> Joe Comeau</STRONG> (ex-<STRONG>ANNIHILATOR</STRONG>, ex-<STRONG>OVERKILL</STRONG>).</FONT></P>
+Автор: Dimas
+
+### 18.08.2008 news Новый состав TAD MOROSE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После нескольких лет проблем с составом <STRONG>TAD MOROSE</STRONG> назвали новых участников коллектива. Новым певцом стал <STRONG>Ronny Hemlin</STRONG> (<B>STEEL ATTACK</B>), а новым басистом <STRONG>Tommi Karpanen</STRONG> (ex-<B>MORGANA LEFAY</B>).</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### TAD MOROSE

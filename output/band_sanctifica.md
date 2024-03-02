@@ -16,6 +16,27 @@ Black metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.08.2001 news Black-metal проект Sanctifica запишет новый альбом
+
+<p>Sanctifica засядут за запись новой пластинки в сентябре этого года. Также находится в производстве видео группы.</p>
+
+Автор: Vit Belov
+
+### 03.08.2001 news Sanctifica will enter to the studio
+
+<p>Sanctifica will begin the recording of a new album in September 2001. Some music videos are also in production.</p>
+
+Автор: Vit Belov
+
+### 19.06.2002 news Sanctifica would like to announce new vocalist....
+
+<p>Sanctifica would like to announce new vocalist, David Seiving. He is also known for handling the bass and clean vocal duties of our fellow warriors Crimson Moonlight, and has now joined our forces. We would also like to bring a huge thank you to Bjoern Isaksson, for his great help at previous live performances. The album Negative B was released in March at the Bobfest festival in Linkцping, Sweden. With this release Sanctifica is exploring new territories in the metal scene. You are invited to a journey through aggressive metal and laid back melancholy. More information on how to order etc, can be obtained on the website or by contacting Sanctifica or the label, C.L. Music & Publishing.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

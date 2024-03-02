@@ -130,6 +130,102 @@ Martin Halfdahn - Guitars
 * C группой "Firespawn" Fredrik Folkare (guitar)
 * C группой "Siebenburgen" Fredrik Folkare (guitar)
 
+## Публикации
+
+### 21.03.2000 reviews 
+
+<p>Новый альбом злобных шведских блэкстеров. Именно блэкстеров, а не дэтстеров. Поэтому не рассчитывайте на музон в духе IN FLAMES или DARK TRANQUILLITY. Эта музыка более злобная, более быстрая, более тяжелая, но также мелодичная. Этого у всех шведов не отнять. Это у них в генах заложено: тяга к мелодичности. Песни, как обычно, о конце света, о пришествии антихриста, о демонах и отвергнутых душах. Всё это в сумасшедшем темпе, с нечеловеческой яростью и агрессией. Естесственно, что оригинальность здесь отсутствует как таковая (да и нужна ли она здесь). Все сделано по стандартам, но намного выше среднего качества.</p>
+
+Автор: Dimas
+
+### 03.01.2002 news DISMEMBER, SINISTER, Others To Blitz Europe During Summer...
+
+<p>Holland's SINISTER, Sweden's DISMEMBER, NECROPHOBIC, SATARIEL, Denmark's MERCENRARY and Norway's BLOOD RED THRONE will join forces in June for the Generation Armageddon Festival I European tour. The confirmed dates for the package are as follows:<BR><BR> Jun. 20 – Stockholm, SWE @ TBA<BR> Jun. 21 – Copenhagen, DEN @ TBA<BR> Jun. 22 – Berlin, GER @ TBA<BR> Jun. 23 – Leipzig, GER @ TBA<BR> Jun. 24 – Essen, GER @ TBA<BR> Jun. 25 – Stuttgart, GER @ TBA<BR> Jun. 26 – Milan, ITA @ TBA<BR> Jun. 27 – Strassbourg, FRA @ TBA<BR> Jun. 28 – Vosselaar, BEL @ TBA<BR> Jun. 29 – Hardenberg, NETH @ TBA<BR> Jun. 30 – Tilburg, NETH @ TBA<BR><BR> DISMEMBER, SINISTER & NECROPHOBIC only!<BR> Jul. 01 - Paris, FRA @ TBA<BR> Jul. 02 - Marseille, FRA @ TBA<BR> Jul. 03 – Barcelona, SPA @ TBA<BR> Jul. 04 – Lyon, FRA @ TBA<BR> Jul. 05 – Rotterdam, NETH @ TBA<BR> Jul. 06 – Graspop, BEL @ TBA<BR> Jul. 07 – GER @ With Full Force Festival <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> LABELS, if you want Belarusian metalheads to be acquainted with your releases we recommend you to put MassaBrutto Radioshow address in your promo and mailing lists. <BR><BR> All kinds of quiz actions featuring your products as prizes can be performed in MassaBrutto. You may discuss all conditions with us by using any way of connection.<BR><BR> Nevertheless we live in ex-Soviet state where music piracy dwells, MASSA BRUTTO RADIOSHOW DOESN'T SUPPORT ANY KIND OF MUSIC PIRACY ON PRINCIPLE !!! <BR> So, you may be sure that:<BR> - there wasn't and there won't any of illegal CDs broadcasted within MassaBrutto Radioshow;<BR> - any of official or licensed CDs sent to MassaBrutto will not become the property of music pirates.<BR><BR> If you or someone that you know is in a band that is interested in getting some guaranteed airplay on a radio station in Belarus then all you need to do is to get in contact with us. <BR><BR> If there are any questions - feel free to ask.<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 31.03.2004 news NECROPHOBIC готовятся к записи нового альбома
+
+<P><B>NECROPHOBIC</B> запишут новый альбом в этом году. Пластинка выйдет на <B>KARMAGEDDON MEDIA</B>.</P>
+Автор: Vit Belov
+
+### 31.03.2004 news NECROPHOBIC are ready to record
+
+<B>Necrophobic </B>will soon start writing material for their upcoming, yet untitled, 5th full-length album. Recordings are scheduled later on this year. More detailed information about the album to be revealed soon.
+Автор: Vit Belov
+
+### 19.01.2009 news NECROPHOBIC назвали альбом
+
+<P>Шведы <STRONG>NECROPHOBIC</STRONG> назвали новый альбом <STRONG>"Death To All…",</STRONG>&nbsp;пластинка выйдет в этом году на <STRONG>Regain Records</STRONG>. Вот некоторые названия песен: <STRONG>"For Those Who Stayed Satanic"</STRONG>, <B>"Triumph Of The Horned"</B>, <B>"Wings Of Death"</B>, <B>"The Tower"</B>&nbsp;и <B>"Revelation 666"</B>.</P>
+Автор: Vit Belov
+
+### 04.02.2009 news NECROPHOBIC продолжают запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NECROPHOBIC </STRONG>осталось записать вокал для нового альбома <STRONG>'Death To All'</STRONG>. Пластинка выйдет 27 апреля на <STRONG>Regain Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 07.05.2009 news Новый альбом NECROPHOBIC
+
+<P><IMG height=461 alt="" hspace=0 src="/images/news_rus/2009.05/14063.jpg" width=462 align=right border=5>Новая пластинка <STRONG>NECROPHOBIC</STRONG> <STRONG>"Death To All" </STRONG>выйдет 29 мая на <STRONG>Regain Records.</STRONG> Трэк-лист:</P>
+<P>01. <B>Celebration Of The Goat</B> (4:42)<BR>02. <B>Revelation 666</B> (6:54)<BR>03. <B>La Satanisma Muerte</B> (3:36)<BR>04. <B>For Those Who Stayed Satanic</B> (4:57)<BR>05. <B>Temple Of Damnation</B> (5:55)<BR>06. <B>The Tower</B> (4:45)<BR>07. <B>Wings Of Death</B> (5:12)<BR>08. <B>Death To All</B> (8:44)</P>
+<P>Музыка: <A href="http://www.myspace.com/dta2009">http://www.myspace.com/dta2009</A></P>
+Автор: Vit Belov
+
+### 11.03.2010 news Новое видео NECROPHOBIC
+
+<P>Клип <STRONG>NECROPHOBIC</STRONG> на песню <STRONG>"Revelation 666" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/JkcHCxJ-pnE&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/JkcHCxJ-pnE&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.10.2011 news NECROPHOBIC на Season Of Mist
+
+<P>Шведские ветераны <STRONG>NECROPHOBIC</STRONG> подписали контракт с <STRONG>Season Of Mist</STRONG>. Группа уже работает над новым альбомом с двумя новыми гитаристами <STRONG>Robert Senneback (DISMEMBER, UNLEASHED)</STRONG>&nbsp;и <STRONG>Fredrik Folkare (UNLEASHED)</STRONG>. </P>
+<P>Седьмая работа <STRONG>NECROPHOBIC </STRONG>выйдет в 2012 году.</P>
+<P><center><IMG height=284 src="/images/news_rus/2011.10/21466.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

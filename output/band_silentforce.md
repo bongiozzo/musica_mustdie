@@ -114,6 +114,83 @@ Torsten Rohre - Keyboards
 * C группой "Axxis" Andre Hilgers (drums)
 * C группой "Razorback" Andre Hilgers (drums)
 
+## Публикации
+
+### 03.08.2000 reviews Новый проект с участием двух звезд
+
+<p>Новый проект с участием двух звезд. Бывший вокалист Royal Hunt D.C.Cooper и гитарист Sinner Alexander Beyrodt. Материал альбома является смешением родственных по духу стилей: progressive, power? hard'n'heavy, а иногда проскакивают и хард-роковые фишки. музыкальный материал великолепен. По сути дела, этот альбом - самовыражение Alexander Beyrodt. Здесь он отрывается по полной программе показывая все на что он способен. Его виртуозность и умение впечатляют. Превосходная. ярко выраженная гитарная работа. И все это на фоне чуть заметной симфоническо-клавишной поддержки. Ну а что сказать про D.C. Cooper. Поработал он грамотно, вокал мощный сильный и высокий. Но иногда, кажется немного отстраненным, бездушным. Когда более мягкие проходы - все прекрасно. При мощном power-звучании его голос немного теряется. Но реноме свое он выдержал. Материал звучит довольно свежо и будет очень интересен всем поклонникам power-progressive-metal.</p>
+
+Автор: Dimas
+
+### 15.08.2000 reviews The new project including of two stars
+
+<p>The new project including of two stars. Former voiceman Royal Hunt D.C.Cooper and guitar player Sinner Alexander Beyrodt. The stuff of an album is mixture related on spirit of styles: progressive, power? hard'n'heavy, and sometimes overshoot also хард-fatal chesspieces. The musical stuff is magnificent. As a matter of fact business, this album - self-expression Alexander Beyrodt. Here he is torn off under the full program demonstrating all on what he is capable. Him virtuosity and skill impress. Topping. The brightly expressed guitar activity. And all this on a background hardly of noticeable symphoniac-keyboard support. Well and what to say about D.C. Cooper. He has worked competently, vocal potent strong and high. But sometimes, it seems little bit discharged, бездушным. When more mild passes - all is fine. At potent power-sounding his voice is a little lost. But renome he has maintained. The stuff sounds rather freshly and will be very interesting to all admirers power-progressive-metal.</p>
+
+Автор: Dimas
+
+### 27.11.2001 reviews Новый болеутолитель
+
+<p>Новый болеутолитель. Infatuator - персона вдохновляющая на глупую и неблагоразумную любовь или внимание к себе. После первой минуты прослушивания этого альбома мне стало немного не по себе... Вроде бы это группа DC Cooper'a (бывшего вокалиста Royal Hunt), а поет в ней Rob Halford. Но попозже я все-таки разобрался, что очередной вокалист решил попытаться показать всему миру, что может петь не хуже Хэлфорда. А вот гитарист Sinner Alex Beyrodt решил помузицировать в фирменном типтоновском духе. В результате, после первых двух-трех песен понимаешь, что все это до неприличия напоминает "Painkiller". Получился потрясающий новый альбом немецкой heavy-speed metal группы. DC Cooper действительно показал, что петь он умеет очень хорошо, в отличие от дебютного альбома, где его пение было бесстрастным и утомительным для него самого. Особенно хорошо копировать Хэлфорда у него получается в первой вещи и в пристовской кавер-версии "All Guns Blazing". Однако ближе к середине альбома и особенно в самом его конце музыкальные настроения сменяются и музыка уже начинает до неприличия напоминать "Paradox" с его фирменной монументальностью и чередованием виртуознейших клавишных соло с гитарными, ну и конечно, узнаваемым вокалом. Результат такого смешения Royal Hunt и Judas Priest превосходит все ожидания. Мне этот альбом понравился больше чем последние альбомы групп которым подражают Silent Force. Над альбомом хорошо поработали не только музыканты группы, но и их друзья. Например, Виктор Смольский поработал в студии с вокальными партиями, а также написал оркестровое вступление (приобщив к этому делу оркестр Белорусского радио и телевидения) к основной трилогии альбома о чести и мужестве. Очень грамотная и содержательная работа, которая обязательно должна вас порадовать целым часом хорошей и правильной музыки. Также на диске найдете mpeg-клип группы с зарисовками концертной жизни группы.</p>
+
+Автор: Dimas
+
+### 22.01.2002 reviews New painkiller
+
+<p>New painkiller. Infatuator is person inspiring on silly and imprudent love or attention to itself. After the first minute of listening to this album I became slightly not on itself... Like it is group of DC Cooper (former vocalist of Royal Hunt), but singer there is Rob Halford. But later I have understood, that next vocalist has decided to try to show to all the world, that he can sing not worse than Halford. And guitarist of Sinner Alex Beyrodt has decided to play in firm Tipton's spirit. In result, after first two-three songs you understand, that all this up to impropriety reminds "Painkiller". The tremendous new album of German heavy-speed metal band has turned out. DC Cooper really has shown what he is able to sing very well, as against a debut album, where his singing was passionless and tiresome for him. It is especially good to copy Halford He turns out in the first track and in Judas Priest cover-version "All Guns Blazing". However is closer to middle of an album and especially in its end the musical moods are replaced also music already begins up to impropriety to remind "Paradox" by Royal Hunt with its firm monumental and alternation of virtuose keyboard solo with guitar, well and certainly, same vocal. The result of such mixture Royal Hunt and Judas Priest surpasses all expectations. This album has liked me more than last albums of groups with which imitate Silent Force. Above an album well have worked not only musicians of group, but also their friends. For example, Victor Smolski has worked in studio with vocal parties, and also has written the orchestral introduction (having attached to to this business an orchestra of the Byelorussian radio and TV) to the basic trilogy of an album about honour and courage. The very competent and substantial work, which necessarily should you please with the whole hour of good and correct music. Also on a disk you will find a mpeg-clip of group with sketches of concert life of group.</p>
+
+Автор: Dimas
+
+### 08.06.2003 news SILENT FORCE готовы к записи нового альбома
+
+<p>SILENT FORCE наметили на 20 июня начало записи нового альбома под названием "Line Of Attack" в немецкой House of Audio studio. Продюсером записи снова будет Dennis Ward. По словам вокалиста D.C. Cooper'а, "Line Of Attack" будет очень мелодичным, быстрым и мощным. Релиз ожидается в конце 2003 года.</p>
+
+Автор: Dimas
+
+### 01.08.2003 news SILENT FORCE ушли с INSIDE OUT
+
+<p>Нынешняя группа бывшего вокалиста ROYAL HUNT D.C. Cooper, SILENT FORCE, неожиданно расторгнула контракт с Inside Out Music. Таким образом, пока становится неизвестно, где выйдет их новый альбом "Line Of Attack", ожидаемый к концу 2003 года.</p>
+
+Автор: Dimas
+
+### 12.10.2003 news SILENT FORCE на Noise Records
+
+Группа <B>D.C.Cooper SILENT FORCE</B> заключила контракт с <B>Noise Records</B>. В настоящее время музыканты заняты записью третьего альбома <B>'Line Of Attack'</B> с продюсером <B>Dennis Ward (ANGRA, PINK CREAM 69). <BR></B>
+Автор: Vit Belov
+
+### 20.08.2004 news SILENT FORCE &quot;выпустили&quot; on-line сингл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2004.08/6995.jpg" width=200 align=left border=5>SILENT FORCE</STRONG> выпустили он-лайн сингл. Вы можете скачать песню с их нового альбома <STRONG>'No One Lives Forever'</STRONG> здесь: <A href="/samples/s/silent_force/2004_1155.mp3">http://musica.mustdie.ru/samples/s/silent_force/2004_1155.mp3</A>&nbsp;Но кроме этого, Вы можете скачать и полиграфию для этого сингла, здесь: <A href="http://208.203.139.81/downloads/SilentForce_onlineSingle.pdf">http://208.203.139.81/downloads/SilentForce_onlineSingle.pdf</A>&nbsp;и здесь <A href="http://208.203.139.81/downloads/SF_onlineTray.pdf">http://208.203.139.81/downloads/SF_onlineTray.pdf</A></FONT></P>
+Автор: Vit Belov
+
+### 20.08.2004 news SILENT FORCE to &quot;release&quot; on-line single
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news/2004.08/6996.jpg" width=200 align=left border=5>SILENT FORCE</STRONG> released new online single. You can download song <STRONG>'No One Lives Forever'</STRONG> from their forthcoming album here: <A href="/samples/s/silent_force/2004_1155.mp3">http://musica.mustdie.ru/samples/s/silent_force/2004_1155.mp3</A>&nbsp;But also you can download artworks and inlay for it here: <A href="http://208.203.139.81/downloads/SilentForce_onlineSingle.pdf">http://208.203.139.81/downloads/SilentForce_onlineSingle.pdf</A>&nbsp;and here: <A href="http://208.203.139.81/downloads/SF_onlineTray.pdf">http://208.203.139.81/downloads/SF_onlineTray.pdf</A></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 08.05.2006 news SILENT FORCE назвали новый альбом
+
+<P>Новый альбом<STRONG> SILENT FORCE</STRONG> будет называться "<STRONG>Walk The Earth</STRONG>" и выйдет в октябре на <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.12.2006 news Сэмпл новой песни SILENT FORCE
+
+<P><IMG height=204 alt="" hspace=20 src="/images/news_rus/2006.12/11074.jpg" width=204 align=left border=0>На сайте AFM Records выложен двухминутный <A href="http://www.afm-records.de/de/bands/bands-Silent_Force.html">фрагмент</A> заглавной композиции группы <B>SILENT FORCE</B> с их нового альбома под названием <B>"Walk the Earth"</B>. Его выход в Европе ожидается 16 февраля 2007 года через&nbsp;<B>AFM Records</B>. В японии, дата релиза - 21 декабря.&nbsp;&nbsp;</P>
+Автор: Dimas
+
+### 10.01.2007 news Трэк-лист нового SILENT FORCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>SILENT FORCE "Walk The Earth"</STRONG> выходит 16 февраля на <STRONG>AFM</STRONG>. Стал известен трэк-лист пластинки:</FONT></P>
+<P>01. <B>Man & Machine</B> <BR>02. <B>Walk the Earth</B> <BR>03. <B>Point of No Return</B> <BR>04. <B>In from the Dark</B> <BR>05. <B>The King of Fools</B> <BR>06. <B>The Child Within</B> <BR>07. <B>Goodby My Ghost</B> <BR>08. <B>Save Me from Myself</B> <BR>09. <B>My Independence Day</B> <BR>10. <B>Blind Leading the Blind</B> <BR>11. <B>Running through the Fire</B> <BR>12. <B>Picture of a Shadow</B></P>
+Автор: Vit Belov
+
+### 20.11.2007 reviews Очредедной крепкий среднячок
+
+<P>Земляки Blind Guardian, ребята из группы Silent Force, которая раньше, до ухода Михаэля Бормана, называлась The Sygnet, давно и прочно застолбили себе место на сцене немецкого пауэр-метала, правда, далеко не первое. Главная движущая сила коллектива - гитарист Alexander Beyrodt, ранее музицировавший в команде Sinner, и вокалист D.C. Cooper (ex-Royal Hunt), а среди остальных трех участников можно отметить ударника Andre Hilgers'а, который ныне&nbsp;стучит также в Rage и Axxis (также ex-Vanize и ex-Razorback, где сейчас, по иронии судьбы, барабанит бывший "рейджевец" Майк Террана). "Walk The Earth" это четвертый альбом группы за 8 лет её существования. На этой работе Silent Force предпочитают среднетемповые вещи, с немалым налетом эпичности, чему в немалой степени способствуют довольно сильно выдвинутые клавишные. Можно даже сказать, что это не совсем пауэр, а скорее смесь оного с влиянием таких классиков хард-рока как Deep Purple или Rainbow (например, в 'The Child Within' это явно слышно),&nbsp;а также эпического метала. Руку к продюсированию приложил Dennis Ward (Pink Cream 69), и, надо признать, он справился со своей работой просто отлично. Однако на "Walk The Earth" явно не хватает хитового материала, а без такового не так уж и легко прослушать часовой по продолжительности альбом. Вообще, на пластинке немало штампов и довольно скучных и проходных номеров. И даже акустические переборы Байродта с претензией на какую-то "восточность" музыки являются слабоватым утешением. Данная работа Silent Force - это один из множества альбомов, где, что называется, и придраться не к чему, но и также ничего и не цепляет. "Walk The Earth" рекомендуется любителям Royal Hunt и коллекционерам всего, что относится к немецкому пауэру. Остальные могут вполне послушать за этот час что-то другое, что им больше по нраву. Бонусом на российском издании идет видео 'You've Got Another Thing Comin'' (кавер песни Judas Priest 82-го года), снятое на выступлении Silent Force&nbsp;на прог-пауэрном фестивале в ноябре 2002-го года в Атланте.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+
 ## Обсуждения
 
 

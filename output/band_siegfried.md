@@ -113,6 +113,78 @@ Patrick Schrittwieser - Drums
 * C группой "Leaves' Eyes" Moritz Neuner
 * C группой "Darkwell" Roland Wurzer
 
+## Публикации
+
+### 10.07.2001 news Siegfried вместе с Сандрой Шлерет отправляются в студию.
+
+<p> Все участники группы Siegfried совместно с бывшей вокалисткой Dreams of Sanity несравненной Сандрой Шлерет в июле отправляются в студию Mirror Productions. Предварительно решено, что этот интересный дебют выйдет на Napalm Records во второй половине сентября.</p>
+
+Автор: Morsus
+
+### 10.07.2001 news Siegfried and Sandra Schleret will enter studio.
+
+<p> Brother Cle's Siegfried, featuring the talented Sandra Schleret (ex Dreams of Sanity) will enter Mirror Productions Studio in July. The tentative release date for this Napalm Records debut has been set for the latter part of September.</p>
+
+Автор: Morsus
+
+### 11.12.2001 reviews Миксер или просто музыка
+
+<p>Данная работа покажется Вам либо очень интересной, либо по просту отстойной. На сайте Napalm Records написано, что эта группа уже давно стала культовой у коллекционеров, и вот выходит их мощный дебютник. Кавер-арт вызывает ассоциации с каким-то древним альбомом Tankard, что ввело меня в заблуждение, на обратной стороне я увидел девушку и подумал, что это наверное что-то типа Holy Moses. Забудте всё, что я сказал или вспомните всё то, что я не говорил. "Drachenherz" нельзя загнать в стилевый рамки. Грязные примитивные рифы и в тоже время красивые соляки и акустическая гитара, трэшовый вокал и чистые женский и мужской голоса, скрипка (????). Всего понамешано, плюс вокалистка, бавшая участница Dreams Of Sanity, Sandra, а также присутствуют музыканты из Abigor, Korova и Elend. Фолклорно-воинственная музыка на немецком языке. К сожалению, всё это не очень слушабельно. Плохое качество записи мешает полностью насладиться этим коктейлем. Хотелось бы также отметить, странную работы Сандры, она поёт, как немецкая крестьянка на рынке, что немного раздражает, но может так задумано? Исключительно для любителей фольклорной немецкой музыки.</p>
+<p>Диск предоставлен департаментом по зарубежному репертуару концерна "Группа СОЮЗ".</p>
+
+Автор: Vit Belov
+
+### 26.12.2001 reviews Mixer or just music
+
+<p>This work will seem to you or very interesting, or just very bad. On a site Napalm Records is written, that this band already became cult at the collectors for a long time, and now Napalm released powerful debut. Cover-art causes associations with any ancient album by Tankard, that has entered me into error, on the return part of promo-copy I have seen the girl and something has thought, that it probably such as Holy Moses. Forget everything, that I have told or recollect everything that I did not speak. "Drachenherz", it is impossible to place in style framework. Dirty primitive riffes and in too time beautiful solo and acoustic guitar, thrash vocal and clean female and man's vocal, violin (????). Everything is mixed, plus female vocalist, ex-member of Dreams Of Sanity, Sandra, and also there are musicians from Abigor, Korova and Elend. Folk-war music in German. Unfortunately, it's not so listenable. The bad quality of record prevents completely enjoy by this cocktail. It would be desirable also to note, strange works of Sandra, she sings, as German peasant in the market, what slightly irritates, but can so is conceived? Only for the fans of folklore German music.</p>
+
+Автор: Vit Belov
+
+### 18.03.2002 articles Сага о Нибелунгах
+
+<p>Q: Расскажи об истории команды.</p>
+<p>Siegfried начали своё существование в 1997-98 годах, как проект различных музыкантов. В начале данная формация не работала в том направлении, которого я хотел, поэтому пришлось искать новых музыкантов. Я объединился со своим старым другом, это был Даниэль Бахмайер, который играл до этого в группе Sarcasm Syndrome и не был в данный момент занят ни в одной из команд. После этого он написал всю музыку, а я взял ответственность за большую часть вокалов, концепцию и лирику. Позже в качестве вокалистки к нам присоединилась Сандра Шлерет, она сделала нашу музыку именно такой, какой мы хотели. В 2001 году был набран остальной состав: Мориц Нойнер на барабанах (Abigor, Darkwell, ex-Dornenreich), Роланд Вюрцер на басу (Darkwell, Angry Angels) и Вернер Биалек (Subacid), как дополнительный вокалист. Мы вошли в Mirror-productions-studios в июне 2001 года, а закончили запись в начале сентября. А 11 ноября “Drachenherz” был выпущен и продаётся довольно хорошо.</p>
+<p>Q: Я прочитал, что Ваш альбом рассказывает о «Саге о Нибелунгах». Расскажи об этом.</p>
+<p>Да, ты прав. Большинство песен крутятся вокруг этой темы. Нибелунги – очаровательная история, которая включает в себя вечные темы, борьбу язычества против христианства, старины против современного мира и.т.д. Драконы, карлики, герои исчезают с поверхности этого мира и запрещаются в мире fantasy. Асгард, Валхалла и туманные царства Авалона исчезают. В наших песнях мы пытаемся возродить те времена в фантазии слушателя и создать небольшой памятник этой великой Саги. Некоторые песни касаются и других исторических тем, с моим взглядом на религию и исторические события, но на каждом будущем альбоме Siegfried будут песни о некоторых частях Саги о Нибелунгах. В добавление ко всему многие песни содержат скрытые послания, отображающие мои взгляды на некоторые вышеупомянутые «вечные конфликты».</p>
+<p>Q: Я обратил внимание, что продукция на Вашем альбоме не очень хороша. Почему так?</p>
+<p>Хм… Ты так думаешь? Мы же думаем, что продукция абсолютно великолепна, очень тяжело (особенно гитары и барабаны), и Роланд Вюрцер сделал действительно великолепную работу. Многие люди утверждают, что продукция ужасна! Но мы удовлетворены и, конечно же, всё это дело вкуса.</p>
+<p>Q: Сандра поёт не так красиво, как в Dreams Of Sanity. Её вокал гораздо менее мелодичен. Это следует из концепции альбома?</p>
+<p>Да! Точно! Она не поёт эти обычные готические «тра-ла-ла-ла» больше, её вокал более агрессивен, более металлический и более интересный, чем на других альбомах с её участием. Конечно, у неё также есть некоторые классические партии, но большинство её партий написаны в более агрессивном ключе. Я думаю, она проделала потрясающую работу.</p>
+<p>Q: Вы только что выпустили “Drachenherz”. О чём будет следующая работа? Что у Вас в планах?</p>
+<p>Мы уже начали работу над следующим альбомом, и я написал несколько текстов. Что-то связано опять с Небилунгами, а что-то с древними Германцами и Кельтами. Мы ещё не имеем никаких названий, но концепция останется более или менее той же. Единственным изменением будет то, что мы с Даниэлем будем работать более тесно над созданием подходящей атмосферы в песнях. Также мы остановим своё внимание на том, чтобы включить все три вида вокала в каждую песню.</p>
+<p>Q: Вы играете фолк-метал. Что важнее для Вас фолк или металл? Не хотите ли вы сыграть некоторые песни либо только в фолк ключе, либо только в металл?</p>
+<p>Хммм. Интересно, что ты определяешь нашу музыку, как фолк-металл. Я думаю, все смотрят на это по разному. Мы не классифицируем нашу музыку так, как ты, но я понимаю, о чём ты спрашиваешь. Для нас все элементы нашей музыки одинаково важны. Средневековые мотивы в некоторых песнях, инструменты, которые мы используем, всё это очень важно для создания атмосферы, которую мы хотим. Всё это очень важно для нас, но наша музыка исключительно металл. Новый материал более эпичный, но он всё равно остаётся металл.</p>
+<p>Q: Стандартный вопрос. Знаешь ли ты что-либо о России. Основные элементы, группы и.т.д.</p>
+<p>О, да, конечно. Я считаю, России великая страна с интересной и великой историей. К сожалению, у меня не было шанса посетить Вашу страну, но я очень надеюсь сделать это в недалёком будущем. Конечно, многие здесь у нас по прежнему придерживаются традиционного идиалистическо-романтического взгляда на Россию, со снежными равнинами, сильным влиянием православной церкви и бравыми чисто-одетыми солдатами. Я знаю, что жизнь в России может быть сложной и запутанной, что у Вас огромное количество социальных и экономических проблем, но в тоже время я уверен, что в скором будущем нация России воспрянет, как цветок весной, преодолеет свои проблемы и двинется вперёд. Мужество, вера и сердечность никогда не покидают Вас. Мои друзья коллекционируют редкие издания и разнообразные записи, поэтому я слышал некоторые Ваши коллективы. Такие, как Круиз, Парк Горького, Rakoth и.т.д, но, конечно же, экономическая ситуация не позволяет многим Вашим коллективам стать известными здесь у нас. Я убеждён, что у Вас сотни крутых команд, которые я ещё не слышал, и, конечно же, мы с удовольствием приедем к Вам.</p>
+
+Автор: Vit Belov
+
+### 18.03.2002 articles Saga of Neibelungs
+
+<p>Q: Tell us about history of your band.</p>
+<p>Siegfried started out back in 1997/1998 as a project with different musicians. In the beginning it did not work out the way I wanted it, so I was looking for new musicians and teamed up with an old friend of mine, Daniel Bachmair who back then played in a band called Sarcasm Syndrome who were at that time far ahead of the other bands. Since then he wrote all the music and I am responsible for a big part of the vocals, the whole concept and all the lyrics. Later Sandra Schleret joined as a female singer and made us sound just the way we wanted it. In 2001 the rest of the band was recruited, including Moritz Neuner on the drums (Abigor, Darkwell, ex-Dornenreich), Roland Wurzer on bass-guitar (Darkwell, Angry Angels) and Werner Bialek (Subacid) as a additional singer for the clear, male voices. We entered Mirror-Productions-studios in June 2001 and finnished the production in the first days of September. On November 11th "Drachenherz" war released and it is selling pretty well...</p>
+<p>Q: I've read that your album is about Saga of Neibelungs. Tell me about it. It's very interesting for our readers.</p>
+<p>Yes, you are right. Most of the songs circle around this topic. The Nibelungs are a fascinating tale, which features timeless conflicts as heathendom against christianity, old against modern world, etc. Dragons, dwarfs, heroes disappeared from the surface of this world and were banned in a fantasy world. Asgard, Valhalla and the misty realms of Avalon vanished. With our songs we wanna revive those times in the fantasy of the listener and set little monuments for this great Saga. Some songs also deal with other historical topics, with my view of religion and historical events, etc. but on every Siegfried-album there will be songs about parts of the Nibelung-tale. In addition to that a lot of the lyrics have a hidden message, portraying my views about some of the aforementioned "timeless conflicts"...</p>
+<p>Q: I payed attention, that production (mix) of your album is not very good. Why is it so?</p>
+<p>Hm, do you really think so? We think the production is absolutely great, very heavy (especially the guitars and drums) and that Roland Wurzer did a real great job. Most of the people commented the production as terrific! So, we are very satisfied with the production, but of course it is always a matter of taste.</p>
+<p>Q: Sandra sings not so beautiful, as she sings in Dreams of Sanity. Her vocal is much more not melodic. Is It from conception of your album?</p>
+<p>Yes! Definitely! She does not sing this typical gothic "Tralala" anymore, her vocals are more aggressive, more metal and more interesting than on the other albums. Of course she also has some let`s say classic parts, but most of the stuff was written for a more aggressive approach. I think she did an astonishing job!</p>
+<p>Q: You are released "Drachenherz". What will your new album about? And Wht's in your plans?</p>
+<p>We already started writing for the next album and I wrote some lyrics already. Some will deal with the Nibelungs again, some will be about the ancient Germans and celts. We do not have fixed titles yet, but the concept will stay more or less the same. Maybe the only change will be, that Daniel and me work even closer together to create the perfect athmosphere in every song. We also will pay attention to include all three kinds of vocals in every song.</p>
+<p>Q: You play folk-metal. What is main for you? Folk or Metal? would you like to play some songs only in metal or only in folk?</p>
+<p>Hm, it is interesting that you define our music as folk-metal. I think, everybody sees it differently. We would not classify our music that way, but I can understand of course what you mean. For us all elements in our music are equally important. The middle-age-touch in some songs, the instruments that we use, all is really important to create the athmosphere we want. It is also very important for us, that our music is definitely metal! Some of the new stuff might be a bit more epic and bombastic, but it will always stay metal.</p>
+<p>Q: Standart question. Do you know something about Russia? Basic elements, bands etc.</p>
+<p>Oh yes, of course. I think russia is a great country with a great and very interesting history. Unfortunately I`ve never had the chance to visit your country, but I solemnly hope to do so in the not too far future. Of course a lot of people over here have the traditional and the idealistic-romantic idea of a mother russia, with snow-covered plains, the mistery and deep spirituality of the orthodox church and brave fur-clothed soldiers. I know that life in russia can be very complicated and hard, that there are a lot of economical and social problems but on the other hand I deeply trust, that the nation of russia will soon unfold like a flower in spring, overcome its problems and head into a prospering future. The courage, heart and belief is definitely there. A friend of mine is collecting private metal-pressings and rare stuff from all over the world, so we know about some bands like (old) Kruiz, Gorky Park, Rakoth, etc.but of course the economical situations for a lot of bands make it difficult to get known well over here. I am convinced that you have hundreds of damn cool bands over there in russia and I cannot wait to hear them and of course we would love to play in your beautiful country as well.</p>
+
+Автор: Vit Belov
+
+### 23.07.2003 reviews Легенд и народных мелодий на всех не хватает
+
+<p>Выступив в позапрошлом году с дебютным альбомом, немецкоязычная группа Siegfried, отмеченная присутствием бывшей вокалистки Dreams Of Sanity Сандры, укрепилась в звании одной из лучших молодых команд Napalm Records. Siegfried продолжают изыскания по предмету немецких мифов и народного творчества. В определённый момент многие группы стали активно разрабатывать этот пласт, который к настоящему моменту изрядно обеднел. Найти там хоть крупинку золота становится практически невозможно. Музыка Siegfried по прежнему достаточно оригинальна, правда из коктейля прошлой пластинки были выкинуты несколько ингридиентов. Осталось лишь два доминирующих вокала, и песни стали не столь разнообразны. Такой среднетемповый мелодичный death-doom metal с не очень запоминающимися мелодиями. Правда продукция, как и обещала группа, стала более качественная. После дебюта Siegfried подавали некоторые надежды, сейчас же становится понятно, что занять хоть сколько-нибудь заметное место в мировой metal-культуре им не удастся, так как выбранное ими направление уже неактуально, а собственных резервов пока не наблюдается.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

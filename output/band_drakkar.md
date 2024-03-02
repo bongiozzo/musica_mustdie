@@ -68,6 +68,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.08.2001 news The third album from Drakkar is finished
+
+<p>The third album from Drakkar is finished!!! Its title it's obviously gonna be the one that you have chosen: Razorblade God !!!! Drakkar is a crossing between the american and the european power metal sound, with fresh ideas and a lot of personality. Now it's the time to give you the complete tracklist of the album: Razorblade God, Man And Machine, To The Future, Lo Shan Shen Long Pa(Great Dragon Rising From The Mountain of Lo), N-Zone, The Matrix, Galadriel' Song, Inferno, The Next Generation, Witches' Dance. Bonus Track: Kingdom Of Madness (cover version of the classic Magnum song). The album is gonna be released in autumn, so you will have to wait all summer before listening to it... And then it's futile to describe to ya now songs you won't get the chance to hear until 4-5 months. Just wait, and believe me when I say: Razorblade God is a truly powerful piece of heavy metal, and a new beginning for Drakkar. It's an album that's worth waiting for...</p>
+
+Автор: Dimas
+
+### 01.08.2001 news Третий альбом от Drakkar закончен
+
+<p>Третий альбом от Drakkar закончен!!! Его название было выбрано фэнами группы: "Razorblade God"!!!! Музыка Drakkar - скрещивание между американским и европейским power-metal с металлическим звуком и со свежими идеями. Треклист альбома: Razorblade God, Man And Machine, To The Future, Lo Shan Shen Long Pa(Great Dragon Rising From The Mountain of Lo), N-Zone, The Matrix, Galadriel' Song, Inferno, The Next Generation, Witches' Dance. Бонус-трек: Kingdom Of Madness (кавер-версия классической песни Magnum).</p>
+<p> Альбом выйдет осенью. Бесполезно описывать песни, которые вы не сможете слышать еще 3-4 месяца. Только ждите и верьте: "Razorblade God" - истинно мощная пьеса тяжелого металла, и начало нового пути для Drakkar. Это - альбом, которого стоит ожидать ... Он был записан в следующем составе: Dario "Darian" Beretta - гитара, Davide "Dave Shot" Dell'Orto -вокал, Daniele "Rocky" Persoglio - бас, Christian "Hammer" Fiorani - барабаны, Corrado "Lo Sciura " Suanno - клавиши.</p>
+
+Автор: Dimas
+
+### 10.10.2011 news Трек-лист нового альбома DRAKKAR
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.10/21491.jpg" width=400 align=right border=0>Итальянская power-metal команда<STRONG> DRAKKAR</STRONG> опубликовала трек-лист своего нового альбома "<STRONG>When Lightning Strikes</STRONG>". Пластинка была записана в<STRONG> Elnor Studio</STRONG> с продюсером <STRONG>Mattia Stanciou (Labyrinth, Crown Of Autumn)</STRONG>, а мастеринг проделал <STRONG>Jurgen Lusky (Angra, Pink Cream 69)</STRONG>. Digipack версия альбома <STRONG>DRAKKAR</STRONG> выйдет 16 января на <STRONG>My Kingdom Music</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Hyperspace - The Arrival</STRONG> <BR>2.<STRONG> Day Of The Gods</STRONG> <BR>3. <STRONG>The Armageddon Machine</STRONG> <BR>4. <STRONG>In The Belly Of The Beast</STRONG>&nbsp; <BR>5. <STRONG>Revenge Is Done <BR></STRONG>6. <STRONG>When Lightning Strikes <BR></STRONG>7. <STRONG>Winter Soldiers</STRONG> <BR>8. <STRONG>Salvation</STRONG> <BR>9. <STRONG>At The Flaming Shores Of Heaven</STRONG> <BR>10. <STRONG>We Ride</STRONG> <BR>11. <STRONG>The Awakening</STRONG> <BR>12. <STRONG>My Endless Flight</STRONG> <BR>13. <STRONG>Aftermath - The Departure</STRONG> <BR>14.<STRONG> Engage! <BR></STRONG>15. <STRONG>New Frontier</STRONG></P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/drakkarweb">http://www.myspace.com/drakkarweb</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

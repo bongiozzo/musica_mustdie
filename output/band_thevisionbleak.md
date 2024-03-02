@@ -123,6 +123,60 @@ Disc 2
 * C группой "Empyrium" 
 * C группой "Ewigheim" 
 
+## Публикации
+
+### 23.02.2005 news THE VISION BLEAK вошли в студию
+
+<P><STRONG>THE VISION BLEAK</STRONG> вошли в студию для записи нового альбома. По утверждению музыкантов, материал будет более мрачный, тяжёлый и риффоориентированный.</P>
+Автор: Vit Belov
+
+### 26.04.2005 reviews Господа, поприветствуем нового капитана
+
+<P>Я долго думал, как же обозначить те стилистические границы, в которых плывет таинственный «Корабль Смерти» со своим новым капитаном? Решение возникло само собой, основываясь на лирической составляющей альбома – это ж самый настоящий horror metal! Правда, современного образца. Альбом – словно книга из девяти историй. В стихах – оборотни – “Wolfmoon”, ожившие мертвецы – “The Night Of The Living Dead”, страшный Ночной Всадник – “The Lone Night Rider”, смертельные опасности, поджидающие в холодном океане – “Horror Of Antarctica”… <BR>На что все это похоже в плане музыки? Сложный вопрос. Представьте себе облегченный вариант ALASTIS’а, атмосферу HAGGARD’а (только более мрачную и угнетающую), помпезность THERION’а, отголоски MOONSPELL и контрастность поздних CREMATORY. Если попроще – очень ритмичный тяжелый готик-дум с чистым и достаточно низким ведущим вокалом, с темной мистической атмосферой и обилием симфонизмов.<BR>Согласно информации, почерпнутой из буклета, у штурвала THE VISION BLEAK находятся два человека, некие Швадорф и Констанц - между прочим, герр Швадорф в свое время был составляющей одной замечательной команды под названием EMPYRIUM (жаль – прекратившей свое существование года полтора назад)… впрочем, это лишь капитаны – в трюмах и на мачтах смертельного корабля существует целая команда талантливых сподвижников: кто-то читает речи и монологи, кто-то поет партии тенора, кто-то – партии сопрано, еще кто-то отвечает за перкуссию. Для каждого найдется дело по вкусу… Кстати, допустим, что вышеупомянутый тенор - это даже не «кто-то», а Томас Хельм – тоже из EMPYRIUM. <BR>Играют струнные, нагоняет тоску духовая секция, стонут клавишные… мчится вперед сквозь шторм странный корабль, вершатся в его каютах оккультные ритуалы, и лишь луна знает все его тайны. Но кое-что узнаете и вы – на корабле новый капитан.</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+### 15.06.2005 news Новый альбом THE VISION BLEAK
+
+<P>29 августа на <STRONG>Prophecy </STRONG>выходит новый альбом <STRONG>THE VISION BLEAK</STRONG> "<STRONG>Carpathia</STRONG>". Группа расскажет историю про одного бизнесмена, который приобрёл старый дом в Карпатах. Трэк-лист:</P>
+<P><IMG height=148 alt="" hspace=0 src="/images/news_rus/2005.06/8796.jpg" width=150 align=right border=5>1. <STRONG>The Drama Of The Wicked</STRONG><BR>2. <STRONG>Secrecies In Darkness<BR></STRONG>3. <STRONG>Carpathia<BR></STRONG>4. <STRONG>Dreams In The Witchhouse</STRONG><BR>5. <STRONG>Sister Najade (The Tarn By The Firs)<BR></STRONG>6. <STRONG>The Curse Of Arabia<BR></STRONG>7. <STRONG>Kutulu!<BR></STRONG>8. <STRONG>The Carm Is Done</STRONG></P>
+Автор: Vit Belov
+
+### 02.07.2008 reviews Странная, но завораживающая музыка
+
+<P>У меня складывается впечатление, что бывшие музыканты EMPYRIUM имеют в своей стране и окрестностях культовый статус, и им позволено заниматься всем, что душе угодно. При постоянной поддержке лэйбла Prophecy они выпускают альбомы проектов один странней другого.</P>
+<P>Самым удобоваримым и коммерчески успешным является проект THE VISION BLEAK гитариста Schwadorf. В его рамках он напару с вокалистом Konstanz рассказывает различные истории в жанре horror. Музыку, с помощью которой они это делают, невозможно причислить ни к одному из имеющихся стилей тяжёлой музыки. Что-то такое страшное, готическое, с простыми, но броскими структурами. Эта музыка легко могла бы стать саундтрэком к какому-нибудь фильму про вампиров или оборотней. Всё это выполнено на высоком техническом уровне, реализация поражает своей тяжестью и чистотой. Вот только слушать подобную музыку постоянно не очень хочется. Она слишком театральна и вторична по отношению к историям, которые рассказывают музыканты. С другой стороны возможен ещё и вариант с шуткой… Ну, эти все альбомы одна большая шутка, которая не требует слишком вдумчивого подхода к композиции. Основная же странность заключается в том, что этот альбом нравится. Представляете, нравятся? Все эти страшилки спетые замогильным голосом и стандартно ужасные мелодии.</P>
+<P>Отнесу THE VISION BLEAK к horror-gothic-metal, ведь только с подобным подходом можно хоть как-то объяснить примитивность музыки и её театральность в сочетании с несомненным успехом у публики.</P>
+Автор: Vit Belov
+
+### 02.08.2013 news THE VISION BLEAK: пятый альбом в конце сентября
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Поклонники <STRONG>Г. Ф. Лавкрафта</STRONG>&nbsp;и прочей мистики,&nbsp;немецкий проект <STRONG>THE VISION BLEAK</STRONG>, готовит к выходу свой пятый альбом. <STRONG>"Witching Hour"</STRONG>, такое название получил новый полноформатник.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Его выпуск запланирован на 27 сентября на <STRONG>Prophecy Productions</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>"Witching Hour" </STRONG>выйдет сразу в нескольких форматах. Самым дешёвым из которых станет обычный компакт-диск, а самым дорогим, издание в формате книги (700 экз.), в которое также войдёт бонусный диск с ambient треками авторства&nbsp;Швадорфа&nbsp;(<STRONG>Schwadorf</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сделать предварительный заказ можно в интернет магазине выпускающего лейбла: <A href="http://en.prophecy.de/">http://en.prophecy.de</A></FONT></P>
+<P>
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 src="/images/news_rus/2013.08/25998.jpg" width=500 height=500></FONT> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 03.09.2013 news THE VISION BLEAK: видеоклип &quot;The Wood Hag&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немецкий horror ансамбль <STRONG>THE VISION BLEAK</STRONG> представил видеоклип на песню <STRONG>"The Wood Hag"</STRONG>. Создатель видео - <STRONG>Fursy Teyssier</STRONG> (<A href="http://www.lesdiscrets.com/">www.lesdiscrets.com</A>).</FONT></P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/HDmmMbHWr0I?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 03.06.2016 news Новая песня THE VISION BLEAK
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый альбом horror metal банды <strong>THE VISION BLEAK "The Unknown"</strong> выходит сегодня на <strong>Prophecy Productions</strong>. Обложку нарисовал <strong>Dan Seagrave</strong> (Entombed, Gorguts, Morbid Angel). </font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Трек-лист:</font></p><p>“Spirits Of The Dead”<br>“From Wolf To Peacock”<br>“The Kindred Of The Sunset”<br>“Into The Unknown”<br>“Ancient Heart”<br>“The Whine Of The Cemetery Hound”<br>“How Deep Lies Tartaros?”<br>“Who May Oppose Me?”<br>“The Fragrancy Of Soil Unearthed”</p><p><strong><center><img width="530" height="530" src="/images/news_rus/2016.06/29244.jpg" border="0"></strong></p><p><strong>“The Whine Of The Cemetery Hound”:</strong></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/dO9Hk27tHwU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 03.06.2016 news THE VISION BLEAK: New album is out today
+
+<p>New album of horror metal band <strong>THE VISION BLEAK "The Unknown"</strong> is out today on<strong> Prophecy Productions</strong>. Cover artwork by <strong>Dan Seagrave</strong> (Entombed, Gorguts, Morbid Angel). </p><p>Track listing:</p><p>“Spirits Of The Dead”<br>“From Wolf To Peacock”<br>“The Kindred Of The Sunset”<br>“Into The Unknown”<br>“Ancient Heart”<br>“The Whine Of The Cemetery Hound”<br>“How Deep Lies Tartaros?”<br>“Who May Oppose Me?”<br>“The Fragrancy Of Soil Unearthed”</p><p><strong></strong><center><strong><img width="530" height="530" src="/images/news_rus/2016.06/29244.jpg" border="0"></strong><p></p><p><strong>“The Whine Of The Cemetery Hound”:</strong></p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/dO9Hk27tHwU" frameborder="0" allowfullscreen=""></iframe><p></p></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### The Vision Bleak - &quot;The Deadship Has A New Captain&quot;

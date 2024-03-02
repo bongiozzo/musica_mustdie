@@ -54,6 +54,111 @@
 
 * C группой "Крамола" Arsafes (guitar)
 
+## Публикации
+
+### 12.10.2005 reviews А вдоль дороги – кшатрии с косами стоят…
+
+<P>Ё, какие ошибочки случаются, а… Почти по Фрейду. Бросив мимолетный взгляд на название группы, я поначалу прочитал его как ПАТРИКЕЯ. Позже, осознав ошибку, – выяснил вот что. Картикейя – это персонаж индийской мифологии, сын бога Шивы и богини Парвати (и заодно - брат слоноголового Ганеши, который над Картикейей постоянно глумился и всячески его обжуливал). Больше ничего вразумительного про эту самую «патрикею» я в Интернете не обнаружил – ни истории коллектива, ни состава, ни дискографии или еще каких подробностей…<BR>Ладно, чего нет – того нет, поэтому все сведения о группе останутся за кормой. Очень я остался доволен содержимым этого неказистого на вид диска – обычный cd-r с написанным от руки трэк-листом (это, кстати, как раз тот случай, когда встреча по одежке оказывается ошибочной). Миньон состоит из пяти композиций, из которых одна – атмосферное intro, еще вторая – кавер на ORPHANED LAND’овский “The Kiss Of Babylon”. Остальные три – великолепный thrash-death, замешанный на серьезном индуистском концепте (не знаю, как там задумывалось на самом деле, но этно-пассажи получились скорее арабскими, чем индийскими). Кстати, для создания этой самой «индийской» атмосферы музыканты использовали вовсе не набившие оскомину клавиши, а ненавязчивую этническую перкуссию – маленькие такие барабанчики, - и гитарные соло (причем идущие на втором плане, подкладкой, оттеняющие основные риффы). Вокал здесь - разумеется, гроул (за исключением пары моментов в “Oasis” и “The Kiss Of Babylon”). Скорости – тоже на любой вкус: для любителей побыстрей – “Worship The Savior”, для ценителей контрастов – “Arjuna” и “Oasis”, для созерцателей – “The Kiss Of Babylon”. Все песни хороши в равной степени, но меня больше всего впечатлил трэк “Arjuna” – по-моему, это настоящая жемчужина этой работы. <BR>Такая вот Картикейя получается. Единственное, что меня очень сильно удивило – так это то, что сей диск не выпущен никакой звукозаписывающей конторой. Ау! Оно того стоит.</P>
+Автор: Dr. Grandma
+
+### 27.09.2007 news KARTIKEYA в прямом эфире
+
+<P>27 сентября (четверг), в 22:00, на <A href="http://live-radio.ru/">http://live-radio.ru/</A> в прямом эфире пройдёт интервью с московской ethno-death-black metal группой <STRONG>KARTIKEYA</STRONG>.</P>
+<P>В чате "<STRONG>Живого Радио</STRONG>" (на который можно зайти через сайт <A href="http://live-radio.ru/">http://live-radio.ru/</A> или по прямой ссылке - <A href="http://narod.yandex.ru/chat/chat_enter.xhtml?mychat_id=289662">http://narod.yandex.ru/chat/chat_enter.xhtml?mychat_id=289662</A>) можно будет пообщаться и задать вопросы присутствующим членам группы: <STRONG>Ивану</STRONG> (вокал), <STRONG>Arsafes</STRONG>'у (гитара, музыка, тексты) и <STRONG>Дмитрию</STRONG> (перкуссия).</P>
+<P>Также, во время интервью прозвучат несколько песен с дебютного альбома группы <STRONG>KARTIKEYA</STRONG> "<STRONG>The Battle Begins</STRONG>", который выйдет 19.10.07 на московском лейбле <STRONG>MUSICA PRODUCTION</STRONG>.</P>
+<P>Посмотреть интервью можно будет нажав на кнопку "PLAY TV" на главной странице сайта <A href="http://live-radio.ru/">http://live-radio.ru/</A></P>
+Автор: Vit Belov
+
+### 05.10.2007 news Двойная презентация новых альбомов ASHEN LIGHT и KARTIKEYA
+
+<CENTER><IMG height=567 alt="" hspace=0 src="/images/shows_rus/2007.10/11890.jpg" width=401 align=left border=5>19 октября в клубе «Релакс» Sound Age prod. и Musica prod. представят двойную презентацию новых альбомов групп Ashen Light и Kartikeya.<BR>&nbsp;<BR>Ashen Light не нуждается в широком представлении, ибо культовость этого этого коллектива не понадлежит никакому сомнению. Прорвав 8 лет назад границы локальной сцены своим дебютным альбомом «Песнь Велеса», группа приобрела известность как у себя на Родине, так и за рубежом. <BR>"Философия самоуничтожения" - это девятая по счету работа, в которой коллектив еще глубже затронул наиболее темные стороны человеческого сознания.<BR>Позиции группы укрепил приход небезызвестного музыканта Андрея Ищенко (ex-Catharsis, Hieronymus Bosch, .........) Теперь, вживую коллектив звучит вдвое интереснее, чем на записи.<BR>&nbsp;<BR>Kartikeya. Автор музыки альбома «Зов Новой Гипербореи» ансамбля Невидь Роман Искоростенский, наконец-то решил порадовать слушателей творчеством своей собственной группы. На «The battle begins» бесспорно угадывается влияние Nile и позднего Behemoth, только Роман еще глубже шагнул в слиянии death metal’а с этнической музыкой. Наиболее яркий и профессиональный творческий дебют этого года.<BR>На этом выступлении группы планируется участие широко известного в кругах этнической и эзотерической музыки перкуссиониста Dierevo.<BR>&nbsp;<BR>Поддержат в этот день братские группы коллектив Rossomahaar, который, спустя вынужденного полугодового перерыва, впервые выступит в Москве и тру-блэк формация Grom, в которой теперь участвует главный беспредельщик и маньяк российской black metal сцены Отец Сергей (ex- Ashen Light) <BR>&nbsp;<BR>Начало концерта в 18:00<BR>Цена билета в предварительной продаже 200 рублей<BR>Адрес клуба: м.Пролетарская, ул. Мельникова д.7)</CENTER>
+Автор: Dimas
+
+### 22.10.2007 news Новые релизы от MUSICA Production
+
+<CENTER><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ОСЕННЯЯ ИНТЕРВЕНЦИЯ ОТ MUSICA PRODUCTION.</STRONG></FONT></CENTER>
+<CENTER><STRONG><FONT style="BACKGROUND-COLOR: #000000"></FONT></STRONG>&nbsp;</CENTER>
+<DIV align=left><STRONG><FONT style="BACKGROUND-COLOR: #000000"><IMG height=391 alt="" hspace=0 src="/images/news_rus/2007.10/11949.jpg" width=400 align=right border=5>MP23 GROM "March Of Voices Of Dead Souls" (black-death-metal)</FONT></STRONG></DIV>
+<DIV align=left><STRONG><FONT style="BACKGROUND-COLOR: #000000"></FONT></STRONG>&nbsp;</DIV>
+<DIV align=left><FONT style="BACKGROUND-COLOR: #000000">Новый третий альбом <STRONG>GROM "March Of Voices Of Dead Souls"</STRONG> символизирует продолжающийся переход группы к death-metal звучанию. 5 трэков на 31 минут, среди которых главный эксперимент в истории<STRONG> GROM</STRONG> - концептуальная 17-минутная вещь с элементми black, death и даже ambient музыки. Вслед за концертами с<STRONG> BELPHEGOR</STRONG> группа выступит на одной сцене с <STRONG>MAYHEM</STRONG> 14 ноября. Трэк-лист:</FONT></DIV>
+<DIV align=left><FONT style="BACKGROUND-COLOR: #000000"></FONT>&nbsp;</DIV>
+<DIV align=left>1. <STRONG>Мой Марш</STRONG><BR>2. <STRONG>The Voices<BR></STRONG>3. <STRONG>Дисциплина Ненависти</STRONG><BR>4. <STRONG>Master Of Liars</STRONG><BR>5. <STRONG>Exodus</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left>MP3: <A href="/ru/band/grom/13362/#samples">http://musica.mustdie.ru/ru/band/grom/13362/#samples</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><IMG height=391 alt="" hspace=0 src="/images/news_rus/2007.10/11950.jpg" width=400 align=left border=5>MP24 <STRONG>KARTIKEYA "The Battle Begins"</STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>Дебютная пластинка от группы <STRONG>KARTIKEYA</STRONG>, folk-death-metal проекта от бывших участников <STRONG>НЕВИДЬ</STRONG>. Очередное открытие из России. Death-metal со скрипками, индуистскими хорами и соответствующими мелодиями. Гостевое участие <STRONG>Лесьяра </STRONG>(<STRONG>НЕВИДЬ</STRONG>, ex-<STRONG>BUTTERFLY TEMPLE</STRONG>). Очень оригинальная и, главное, "слушабельная" музыка. Брутал и мелодизм. Трэк-лист:</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><STRONG>1. Nemesis pt. 1: Aeons Ago <BR>2. Nemesis pt. 2: The Game Of Gods <BR>3. Enter My Dome <BR>4. Ruins Of Belief <BR>5. Oasis - Soul's Path <BR>6. Kailas <BR>7. Thunders Of Indra <BR>8. The Battle Begins pt. 1: The War Of One Blood <BR>9. The Battle Begins pt. 2: Arjuna <BR>10. Worship The Savior <BR>11. Unleash Thy Spirit <BR>12. The Last Night</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left>MP3: <A href="/ru/band/kartikeya/13360/#samples">http://musica.mustdie.ru/ru/band/kartikeya/13360/#samples</A></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><IMG height=393 alt="" hspace=0 src="/images/news_rus/2007.10/11951.jpg" width=400 align=right border=5>MP25 <STRONG>KREST "Apocollapsys"</STRONG></DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left>Первый thrash-metal альбом на <STRONG>MUSICA Production</STRONG> - <STRONG>KREST "Apocollapsys</STRONG>". Российская группа следующая по стопам таких "отцов" techno-thrash-metal, как<STRONG> PESTILENCE</STRONG> (кавер на их песню в конце пластинки). Реализация от <STRONG>Moscow Sound</STRONG> (<STRONG>АРКОНА, ROSSOMAHAAR, БЕЗУМНЫЕ УСИЛИЯ</STRONG>). <STRONG>KREST</STRONG> - опытные музыканты, которые вернут вас во времена классики thrash-metal. Трэк-лист:</DIV>
+<DIV align=left>&nbsp;</DIV>
+<DIV align=left><STRONG>1. Technopogost <BR>2. Collapse <BR>3. Into the void <BR>4. Oblivion <BR>5. Gods & prayers <BR>6. Slaughter <BR>7. Demon of retribution <BR>8. Worm the conqueror <BR>9. Prophetic revelations (PESTILENCE cover)</STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG>MP3: <A href="/ru/band/krest/13361/#samples">http://musica.mustdie.ru/ru/band/krest/13361/#samples</A></STRONG></DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG></STRONG>&nbsp;</DIV>
+<DIV align=left><STRONG><SPAN class=tracks>УЖЕ В ПРОДАЖЕ!!!</DIV></SPAN></STRONG>
+Автор: Vit Belov
+
+### 05.11.2007 news Тур KARTIKEYA и НЕЧИСТЬ по городам России
+
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER><IMG height=283 src="/images/news_rus/2007.11/11965.jpg" width=400 border=0></CENTER>
+<CENTER>&nbsp;</CENTER>
+<CENTER><STRONG>02.11 Саратов - клуб MACHINE HEAD</STRONG></CENTER>
+<CENTER><STRONG>03.11 Тольятти - клуб-бар Генератор</STRONG></CENTER>
+<CENTER><STRONG>04.11 Самара - клуб Подвал</STRONG></CENTER>
+<CENTER><STRONG>05.11 Рязань - арт-клуб Планетарий</STRONG></CENTER>
+Автор: Vit Belov
+
+### 22.02.2008 news KARTIKEYA записали новую песню
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В московской folk-death/doom-metal группе<STRONG> KARTIKEYA</STRONG> произошли изменения состава. Место за барабанной установкой занял знаменитый отечественный&nbsp;музыкант <STRONG>Андрей Ищенко</STRONG> (<STRONG>STIGMATIC CHORUS</STRONG>, <STRONG>ASHEN LIGHT</STRONG>, <STRONG>MORTEM</STRONG>, ex-<STRONG>CATHARSIS</STRONG>), а новым&nbsp;вокалистом коллектива стал некто <STRONG>Mars</STRONG>. В новом составе полностью записана одна песня "<STRONG>Choirs Of Oblivion</STRONG>", которую можно послушать на <STRONG>MySpace</STRONG> страничке группы. В ближайших планах <STRONG>KARTIKEYA</STRONG> запись сингла "<STRONG>Unleash Thy Spirit</STRONG>" и съёмка видеоклипа на эту песню. Напомним, что "<STRONG>Unleash Thy Spirit</STRONG>" - песня с дебюта москвичей "<STRONG>The Battle Begins</STRONG>...", который вышел на <STRONG>Musica Production</STRONG> в конце прошлого года. Трэк-лист сингла:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Unleash Thy Spirit</STRONG> (Single ver.)<BR>2. <STRONG>Unleash Thy Spirit</STRONG> (Album Version)<BR>3. <STRONG>Nemesis</STRONG> (Acoustic ver.)<BR>4. <STRONG>Winds Of Horus</STRONG> (NILE cover)</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа планирует приступить к записи нового полноформатного альбома летом-осенью 2008 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/kartikeyaband">http://www.myspace.com/kartikeyaband</A></FONT></P>
+Автор: Vit Belov
+
+### 08.04.2011 news Второй альбом KARTIKEYA
+
+<P><IMG height=372 alt="" hspace=0 src="/images/news_rus/2011.04/19103.jpg" width=400 align=right border=0>8 апреля 2011 года или 18 чайтры 5112 года Кали-Юги – В эти Сумерки Времён, почти год до того момента, когда навсегда заснёт Творец Вселенной и наступит Вечная Ночь Брахмы, <STRONG>Grailight Productions</STRONG> дарует жизнь второму альбому московской epic ethno death metal группы<STRONG> KARTIKEYA “Mahayuga”</STRONG>. Это интереснейшая смесь дэт-метала, восточных народных инструментов, симфоники, интересных концептуальных текстов и разнообразнейших красивых мелодий, которые закружат вас в водовороте миров и времени! Неистовый ураган их музыки сметёт всё на своём пути, так что будьте готовы к самому зубодробительному релизу от одной из интереснейших групп российской сцены. А мощнейший звук от студии <STRONG>Sunfall Records</STRONG>, невероятно красивое оформление кисти <STRONG>Мстибога</STRONG> и гостевые вокалы от <STRONG>Кафира (Rudra)</STRONG> и <STRONG>Марины (Ambehr)</STRONG> вряд ли кого-то оставят равнодушными… И да померкнет Солнце, и родится новая жизнь! Трек-лист:</P>
+<P>1.<STRONG> Sarva Mangalam</STRONG><BR>2. <STRONG>He Who Carries the Head of Brahma</STRONG><BR>3. <STRONG>The Path</STRONG><BR>4. <STRONG>Fields of Kurukshetra</STRONG><BR>5. <STRONG>Moksha<BR></STRONG>6. <STRONG>Neverborn<BR></STRONG>7. <STRONG>Surya Jayanti<BR></STRONG>8. <STRONG>Exile<BR></STRONG>9. <STRONG>Choirs of Oblivion</STRONG><BR>10. <STRONG>Utpavana Mahayuga</STRONG><BR>11. <STRONG>Satya Yuga</STRONG><BR>12. <STRONG>Treta Yuga</STRONG><BR>13. <STRONG>Dvapara Yuga</STRONG><BR>14.<STRONG> Kali Yuga</STRONG></P>
+<P><A href="http://www.myspace.com/kartikeyaband">www.myspace.com/kartikeyaband</A><BR><A href="http://www.myspace.com/grailight">www.myspace.com/grailight</A></P>
+Автор: Vit Belov
+
+### 09.10.2011 news Новый сингл KARTIKEYA
+
+<P><IMG height=409 alt="" hspace=0 src="/images/news_rus/2011.10/21487.jpg" width=400 align=right border=0>1 октября 2011-го года <STRONG>Grailight Productions</STRONG> представил Вашему вниманию сингл московской epic ethno death metal группы<STRONG> KARTIKEYA "Durga Puja"</STRONG>, на который вошли кавер-версии <STRONG>Sepultura</STRONG> и <STRONG>Melechesh</STRONG>, переработки композиций самой группы с первого альбома "<STRONG>The Battle Begins</STRONG>", концертная версия "<STRONG>The Path</STRONG>", а также совершенно новая композиция "<STRONG>Durga Puja</STRONG>". Сингловая песня сведена известным продюсером <STRONG>Логаном Мейдером</STRONG> (<STRONG>Soulfly, Gojira, Divine Heresy, W.A.S.P., DevilDriver</STRONG> и др.). Красивейшее лимитированное издание в слип-кейсе оформлено руками <STRONG>Мстибога</STRONG>. Десятирукая богиня-воительница Дурга, защитница богов и мирового порядка, уничтожит всех демонов этой предпоследней осени человечества! Бросьтесь в её объятия!</P>
+<P>"<EM>I think what Kartikeya does with international blends of ethnic orchestral instruments and percussion mixed bludgeoning metal guitar riffs is amazing. I'm looking forward to working more with the band</EM>."<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; -<STRONG>Logan Mader</STRONG></P>
+<P>Tracklist:<BR>1. <STRONG>Durga Puja<BR></STRONG>2. <STRONG>Enter My Dome</STRONG> 2011<BR>3. <STRONG>Nemesis </STRONG>(acoustic version)<BR>4. <STRONG>The Path</STRONG> (live)<BR>5. <STRONG>Triangular Tattvic Fire</STRONG> (Melechesh cover)<BR>6. <STRONG>Arise</STRONG> (Sepultura cover)</P>
+<P><A href="http://www.facebook.com/kartikeyaband?ref=ts">http://www.facebook.com/kartikeyaband?ref=ts</A></P>
+Автор: Vit Belov
+
+### 13.07.2012 news KARTIKEYA начинают запись
+
+<P>Московская post-ethnic extreme metal группа<STRONG> KARTIKEYA</STRONG> приступает 15 июля к записи своего третьего альбома «<STRONG>Samudra</STRONG>» в <STRONG>Arsafes Records</STRONG>. Этот альбом станет началом концептуальной пенталогии о стихиях, сквозь призму индуистской мифологии и культуры. На альбоме ожидается много приглашённых гостей. Ждите следующих анонсов! </P>
+<P><center><IMG border=0 src="/images/news_rus/2012.07/24349.jpg" width=400 height=286></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -152,6 +152,145 @@ Special Edition Tracklisting:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.08.2004 reviews Шведский вирус добрался до Флориды
+
+<P>До чего докатились... Флоридские трэшеры Trivium записывают альбом (мастеринг Тома Морриса в Morrisound - мне плохо, друзья мои, и туда проникла эта зараза), состоящий из смеси модерн-трэша и мелодик-дэта шведского пошиба. Нда... Если бы не видел буклет, никогда б не подумал, что это американцы, несмотря на периодические заигрывания с ню-металом. Я долго пытался найти хоть какие-нибудь положительные, "оправдывающие" моменты на этом релизе - и не нашел (разве что это всего лшиь трио, но в Моррисаунде и из дерьма конфетку сделают). Пару раз мелькнула тень The Crown, но куда там до них... Любопытно, что зарубежные ревьюеры практически единодушно ставят альбому высочайшие оценки, но да это понятно: ширпотребное барахло любят везде.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 08.09.2004 news TRIVIUM войдут в студию
+
+<P>Американская melodic-death-metal группа <STRONG>TRIVIUM</STRONG> войдёт в <STRONG>Morisound studio</STRONG> с продюсером <STRONG>Jason Suecof</STRONG> (<B>CAPHARNAUM</B>, <B>CROTCHDUSTER</B>) для записи своего второго альбома <STRONG>"Ascendancy"</STRONG>.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 28.06.2006 news Новости от TRIVIUM
+
+<P>Третий альбом американцев<STRONG> TRIVIUM</STRONG> будет называться <B>"The Crusade"</B>, его микшированием займется <STRONG>Colin Richardson</STRONG>, а предположительная дата релиза - 10 октября на&nbsp;<STRONG>Roadrunner Records</STRONG>. В ноябре-декабре, группа запланировала европейское турне в связке с самими <B>IRON MAIDEN</B>. </P>
+Автор: Dimas
+
+### 04.08.2006 news Подробности о новом альбоме TRIVIUM
+
+<P>10 октября на <STRONG>Roadrunner Records</STRONG> выйдет&nbsp;третий альбом американской группы <STRONG>TRIVIUM</STRONG> под названием&nbsp;<STRONG>"The Crusade". </STRONG>Он был записан во флоридской <STRONG>Audiohammer Studios</STRONG> под руководством продюсера <STRONG>Jason Suecof.</STRONG> Альбом станет очередным важным и логическим шагом в эволюции группы. В&nbsp;него войдут тринадцать композиций:</P>
+<P><IMG height=250 alt="" hspace=10 src="/images/news_rus/2006.08/10587.jpg" width=250 align=left border=0>1. <B>Ignition</B><BR>2. <B>Detonation</B><BR>3. <B>Entrance of the Conflagration</B><BR>4. <B>Anthem (We are the Fire)</B><BR>5. <B>Unrepentant</B><BR>6. <B>And Sadness Will Sear</B><BR>7. <B>Becoming the Dragon</B><BR>8. <B>To The Rats</B><BR>9. <B>This World Can't Tear Us Apart</B><BR>10. <B>Tread the Floods</B><BR>11. <B>Contempt Breeds Contamination</B><BR>12. <B>The Rising</B><BR>13. <B>The Crusade</B><BR></P>
+Автор: Dimas
+
+### 25.06.2008 news TRIVIUM назвали альбом
+
+<P>Новый альбом <STRONG>TRIVIUM</STRONG> будет называться "<STRONG>Shogun</STRONG>" и выйдет 30 сентября на <STRONG>Roadrunner</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.10.2008 reviews Сложносочинённый материал
+
+<P>Американцы TRIVIUM, безусловно, событие на современной металл-сцене. Дело в том, что ни одной группе не удавалось так быстро пройти путь от полной безнадёги до всеамериканской популярности. Дебютная работа TRIVIUM вышла на европейском карлике Lifeforce. Это сейчас этой конторе удалось прославиться в узком кругу, благодаря DEADLOCK и некоторым другим вмеру популярным группам. Во времена выхода дебюта TRIVIUM о Lifeforce мало кто слышал. Но уже со вторым альбомом TRIVIUM оказались на Roadrunner и понеслось...</P>
+<P>TRIVIUM замелькали везде, где только можно. Для основной массы слушателей они были очередными модными newcomers, но те, кто слышали первый их альбом, наверняка очень удивились, ведь на тот момент TRIVIUM играли американский melodic-death-metal, а это сочетание слов о многом скажет искушённому слушателю. Это почти так же хорошо, как американский black-metal. На Roadrunner группе вправили мозги, и у TRIVIUM резко появилось собственное лицо. Вокалист запел, как Hetfield, музыканты заиграли thrash-metal, и успех пришёл. Конечно же, с METALLICA группу роднил только вокал, который иногда превращался в гроулинг и от сходства не оставалось и следа. Новая работа TRIVIUM «Shogun» подтверждает, что у группы есть своё лицо. Здесь есть всё от thrash-metal и metalcore с интересной гитарной работой и узнаваемым вокалом до gothic-metal, хорошего такого тяжёлого с чистым вокалом и «попсовыми» мелодиями. Честно говоря, я такого ещё не слышал. Возможно, в будущем, когда мы станем орпиентироваться на заокеанской сцене более хорошо, можно будет обозвать направление TRIVIUM каким-нибудь словом, но пока, за неименеем известных мне аналогов, опишем группу таким сложным сочетанием. Как будто музыканты продлили до предела чистоголосые припевы metalcore, образовав из них целые песни, добавили всеми любимый классический Bay-Area thrash-metal с хорошей гитарной работой и завернули всё в обёртку популярного metalcore звучания.</P>
+<P>«Shogun» - хороший интересный альбом, лишний раз демонстрирующий бурную жизнь на современной тяжёлой сцене в США. Можно слушать и начинать врубаться.</P>
+Автор: Vit Belov
+
+### 07.01.2009 news Артисты Roadrunner опубликовали топы
+
+<P><STRONG>Roadrunner Records</STRONG> опубликовали на своём сайте&nbsp;Top-10 за 2008 год от своих артистов. </P>
+<P><STRONG>Shawn Drover</STRONG> (MEGADETH)<BR>01. <B>CYNIC</B> - Traced in Air<BR>02. <B>TESTAMENT</B> - The Formation of&nbsp;Damnation<BR>03. <B>MESHUGGAH</B> - Obzen<BR>04. <B>CHILDREN OF BODOM</B> - Blooddrunk<BR>05. <B>OPETH</B> - Watershed<BR>06. <B>EVERGREY</B> - Torn<BR>07. <B>BLOTTED SCIENCE</B> - The Machinations of Dementia<BR>08. <B>AIRBOURNE</B> - Runnin' Wild<BR>09. <B>INTO ETERNITY</B> - The Incurable Tragedy<BR>10. <B>BRAIN DRILL</B> - Apocalyptic Feasting<BR><BR><B>Frederic Leclercq</B> (DRAGONFORCE)<BR>01. <B>GUNS N' ROSES</B> - Chinese Democracy<BR>02. <B>DISTURBED</B> - Indestructible<BR>03. <B>SLIPKNOT</B> - All Hope Is Gone<BR>04. <B>CYNIC</B> - Traced in Air<BR>05. <B>CRADLE OF FILTH</B> - Godspeed on the Devil's Thunder<BR>06. <B>ULTRA VOMIT</B> - Objectif Thunes<BR>07. <B>SEBASTIEN TELLIER</B> - Sexuality<BR>08. <B>ALICE COOPER</B> - Along Came a Spider<BR>09. <B>MOTLEY CRUE</B> - Saints of Los Angeles<BR>10. <B>METALLICA</B> - Death Magnetic<BR><BR><B>Matt Heafy</B> (TRIVIUM)<BR>01. <B>COLDPLAY</B> - Viva La Vida<BR>02. <B>COLDPLAY</B> - Prospekt's March<BR>03. <B>MAXIMUM THE HORMONE</B> - Tsume Tsume Tsume<BR>04. <B>LONDON SYMPHONY ORCHESTRA</B> - Mozart's Requiem<BR>05. <B>GOJIRA</B> - The Way Of All Flesh<BR>06. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>METALLICA</B> - Death Magnetic<BR>10. <B>TRIVIUM</B> - Shogun<BR><BR><B>Robb Flynn</B> (MACHINE HEAD)<BR>01. <B>ALL SHALL PERISH</B> - Awaken The Dreamers<BR>02. <B>METALLICA</B> - Death Magnetic<BR>03. <B>TRIVIUM</B> - Shogun<BR>04. <B>WINDS OF PLAGUE</B> - Decimate The Weak<BR>05. <B>LIL WAYNE</B> - The Carter III<BR>06. <B>LA COKA NOSTRA</B> - A Brand You Can Trust<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>WHITECHAPEL</B> - This Is Exile<BR>09. <B>MESHUGGAH</B> - Bleed<BR>10. <B>BLEEDING THROUGH</B> - Sister Charlatan<BR><BR><B>Joel Stroetzel</B> (KILLSWITCH ENGAGE)<BR>01. <B>KINGS OF LEON</B> - Only by the Night<BR>02. <B>RYAN ADAMS AND THE CARDINALS</B> - Cardinology<BR>03. <B>RADIOHEAD</B> - In Rainbows<BR>04. <B>TOMMY EMMANUEL</B> - Center Stage<BR>05. <B>ALL THAT REMAINS</B> - Overcome<BR>06. <B>NICK CAVE AND THE BAD SEEDS</B> - Dig, Lazarus, Dig!!!<BR>07. <B>Augustana</B> - Can't Love (Can't Hurt<BR>08. <B>IN FLAMES</B> - A Sense of Purpose<BR>09. <B>NADA SURF</B> - Lucky<BR>10. <B>RAY LAMONTAGNE</B> - Gossip in the Grain<BR><BR><B>Max Cavalera</B> (SOULFLY; CAVALERA CONSPIRACY; SEPULTURA)<BR>01. <B>BAD BRAINS</B> - Build a Nation <BR>02. <B>DISFEAR</B> - Live the Storm<BR>03. <B>GOJIRA</B> - The Way of All Flesh<BR>04. <B>GOGOL BORDELLO</B> - Gypsy Punks<BR>05. <B>TURBO TRIO</B> - Turbo Trio<BR>06. <B>INCITE</B> - Divided We Fail<BR>07. <B>AGNOSTIC FRONT</B> - Warriors<BR>08. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>09. <B>AGORAPHOBIC NOSEBLEED</B> - Insect Warfare<BR>10. <B>HIRAX</B> - The New Age of Terror<BR><BR><B>Michael Spretizer</B> (DEVILDRIVER)<BR>01. <B>THE BIRTHDAY MASSACRE</B> - Walking With Strangers<BR>02. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>03. <B>MINDLESS SELF INDULGENCE</B> - If<BR>04. <B>ALL THAT REMAINS</B> - Overcome<BR>05. <B>GOJIRA</B> - The Way of All Flesh<BR>06. <B>IN FLAMES</B> - A Sense of Purpose<BR>07. <B>CHILDREN OF BODOM</B> - Blood Drunk<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>RAUNCHY</B> - Wasteland Discotheque<BR>10. <B>TESTAMENT</B> - The Formation of Damnation</P>
+Автор: Vit Belov
+
+### 28.01.2009 news Новое видео TRIVIUM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ролик на песню<STRONG> TRIVIUM</STRONG> <STRONG>"Throes Of Perdition" </STRONG>можно посомотреть ниже. </FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=51132730">TRIVIUM - THROES OF PERDITION</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=51132730,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=51132730,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 03.03.2010 news Металисты поддержали игру
+
+<P>2 марта на<STRONG> Roadrunner</STRONG> вышло специальное EP, посвящённое выходу мегаблокбастера <STRONG>"God of War III"</STRONG>. Этот сборник из шести песен будет доступен в качестве бонуса к специальному изданию этой игры для<STRONG> Sony Playstation</STRONG>. Вот трэк-лист:</P>
+<P>01. <B>KILLSWITCH ENGAGE</B> - "My Obsession"<BR>02. <B>TRIVIUM</B> - "Shattering The Skies Above"<BR>03. <B>DREAM THEATER</B> - "Raw Dog"<BR>04. <B>TAKING DAWN</B> - "This Is Madness"<BR>05. <B>OPETH</B> - "The Throat Of Winter"<BR>06. <B>MUTINY WITHIN</B> - "The End"</P>
+<P><STRONG>TRIVIUM </STRONG>выложили в сеть видео на свою песню, которое можно посмотреть чуть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 01.12.2010 news TRIVIUM войдут в студию
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2010.12/17711.jpg" width=300 align=right border=0>TRIVIUM</STRONG> войдут в <STRONG>Audiohammer Studios </STRONG>в Сэнфорде, Флорида 2 января для записи нового альбома, который выйдет в начале будущего года на<STRONG> Roadrunner</STRONG>. Продюсером альбома выступит <STRONG>Colin Richardson</STRONG> (<B>MACHINE HEAD</B>, <B>BULLET FOR MY VALENTINE</B>, <B>SLIPKNOT</B>, <B>FEAR FACTORY</B>).</P>
+<P>Последняя на сегодня новая вещь <STRONG>TRIVIUM</STRONG> <STRONG>"Shattering The Skies Above" </STRONG>попала на саундтрэк игры <STRONG>"God of War III" </STRONG>и вышла на специальном EP <STRONG>"God of War: Blood & Metal"</STRONG>, реализованном&nbsp; <STRONG>Roadrunner </STRONG>2 марта.</P>
+Автор: Vit Belov
+
+### 29.12.2010 news Итоги 2010 года от артистов лейбла Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Roadrunner</STRONG> опубликовал топ-листы своих сотрудников и некоторых музыкантов лейбла. Среди прочих, там можно отыскать лучшие альбомы 2010 года по мнению:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17981.jpg" width=180 height=180><U>Dave Ellefson</U></STRONG><U> (<STRONG>MEGADETH</STRONG>)</U>:</FONT></P>
+<P>10. <STRONG>MOTORHEAD</STRONG> - The World Is Yours <BR>09. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare <BR>08. <STRONG>THERION</STRONG> - Sitra Ahra <BR>07. <STRONG>SOULFLY</STRONG> - Omen <BR>06. <STRONG>PANTERA</STRONG> - A Decade of Dominance <BR>05. <STRONG>HALFORD</STRONG> - Halford IV, Made of Metal <BR>04. <STRONG>DISTURBED</STRONG> - Asylum <BR>03. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>02. <STRONG>MEGADETH</STRONG> - Rust In Peace Live&nbsp; <BR>01. <STRONG>The Big Four</STRONG>: Live From Sofia, Bulgaria (DVD) </P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17982.jpg" width=180 height=180><U>Joel O’Keeffe</U></STRONG><U> (<STRONG>AIRBOURNE</STRONG>)</U>:</P>
+<P>10. <STRONG>TOM PETTY AND THE HEARTBREAKERS</STRONG> - Mojo<BR>09. <STRONG>JERRY LEE LEWIS</STRONG>&nbsp;- Last Man Standing<BR>08. <STRONG>AC/DC </STRONG>- Backtracks<BR>07. <STRONG>RATT</STRONG> - Infestation<BR>06. <STRONG>BRUCE SPRINGSTEEN</STRONG>&nbsp;- The Promise<BR>05. <STRONG>LYNYRD SKYNYRD</STRONG> - God & Guns<BR>04.&nbsp;<STRONG>KISS</STRONG> - Sonic Boom<BR>03. <STRONG>THE POOR</STRONG> - Round One<BR>02. <STRONG>SLASH</STRONG> - Slash <BR>01. <STRONG>MEAT LOAF</STRONG> - Hang Cool Teddy Bear</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17983.jpg" width=180 height=180><U>Mikael Akerfeldt</U></STRONG><U> (<STRONG>OPETH</STRONG>)</U>: </P>
+<P>10. <STRONG>TEARS FOR FEARS</STRONG> - Seeds of Love<BR>09. <STRONG>TOSHI ICHIYANAGI</STRONG> - Flowers<BR>08. <STRONG>THE DREAM</STRONG> - Get Dreamy<BR>07. <STRONG>YONIN BAYASHI</STRONG> - Isshoku Sokuhatsu<BR>06. <STRONG>SERGE GAINSBOURG</STRONG>&nbsp;- Historie de Melody Nelson<BR>05. <STRONG>PAIN OF SALVATION</STRONG> - Road Salt Pt. 1<BR>04. <STRONG>THE CHURCHILLS</STRONG> - s/t<BR>03. <STRONG>VASHTI BUNYAN</STRONG> - Just Another Diamond Day<BR>02. <STRONG>WIL MALONE</STRONG> - Wil Malone <BR>01. <STRONG>DAVID CROSBY</STRONG> - If I Could Only Remember My Name</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17984.jpg" width=180 height=180><U>JB</U></STRONG><U> (<STRONG>GRAND MAGUS</STRONG>)</U>:</P>
+<P>10. <STRONG>PAUL GILBERT</STRONG> - Fuzz Universe<BR>09. <STRONG>JOHN NORUM</STRONG> - Play Yard Blues<BR>08. <STRONG>CATHEDRAL</STRONG> - The Guessing Game<BR>07. <STRONG>DARKTHRONE</STRONG> - Circle The Wagons<BR>06. <STRONG>WITCHERY</STRONG> - Witchkrieg<BR>05. <STRONG>SPIRITUAL</STRONG> <STRONG>BEGGARS</STRONG> - Return To Zero<BR>04. <STRONG>WATAIN</STRONG> - Lawless Darkness<BR>03. <STRONG>NECRONAUT</STRONG> - Necronaut<BR>02. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>01. <STRONG>UNLEASHED</STRONG> - As Yggdrasil Trembles</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17985.jpg" width=180 height=180><U>Steven Wilson</U></STRONG><U> (<STRONG>PORCUPINE TREE</STRONG>)</U>:</P>
+<P>10. <STRONG>MASSIVE ATTACK</STRONG> - Heligoland<BR>09. <STRONG>NECRO</STRONG> <STRONG>DEATHMORT</STRONG> - This Beat is Necrotronic<BR>08. <STRONG>OCEANSIZE</STRONG> - Self Preserved While the Bodies Float Up<BR>07. <STRONG>SALEM</STRONG> - King Night<BR>06. <STRONG>CHROME HOOF</STRONG> - Crush Depth<BR>05. <STRONG>LCD</STRONG> <STRONG>SOUNDSYSTEM</STRONG> - This is Happening<BR>04. <STRONG>ORGANUM</STRONG> - Sorow<BR>03. <STRONG>FOALS</STRONG> - Total Life Forever<BR>02. <STRONG>HANS ZIMMER</STRONG> - Inception Soundtrack <BR>01. <STRONG>SHEARWATER</STRONG> - The Golden Archipeligo</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17986.jpg" width=180 height=180><U>Matt Heafy</U></STRONG><U> (<STRONG>TRIVIUM</STRONG>)</U>:</P>
+<P>10. <STRONG>RATATAT</STRONG> - LP4<BR>09. <STRONG>VAMPIRE WEEKEND</STRONG> - Contra<BR>08. <STRONG>ANIMALS AS LEADERS</STRONG>&nbsp;- Wave Of Babies<BR>07. <STRONG>AS I LASY DYING</STRONG> - The Powerless Rise<BR>06. <STRONG>A DAY TO REMEMBER</STRONG> - What Separates Me From You<BR>05. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare<BR>04. <STRONG>MY CHEMICAL ROMANCE</STRONG> - Danger Days...<BR>03. <STRONG>STONE SOUR</STRONG> - Audio Secrecy<BR>02. <STRONG>BLIND GUARDIAN</STRONG> - At The Edge Of Time <BR>01. <STRONG>TIMES OF GRACE</STRONG> - The Hymn Of A Broken Man</P>
+Автор: Headcrusher
+
+### 16.06.2011 news Новый альбом TRIVIUM
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2011.06/19666.jpg" width=475 align=right border=0>Новый альбом <STRONG>TRIVIUM</STRONG> <STRONG>"In Waves" </STRONG>выйдет 9 августа на <STRONG>Roadrunner</STRONG>. Основная часть пластинки была записана в <STRONG>Paint It Black Studios </STRONG>в Орландо. Продюсерами/инженереами выступила бригада, состоящая из <STRONG>Colin Richardson</STRONG> (<B>MACHINE HEAD</B>, <B>BULLET FOR MY VALENTINE</B>, <B>SLIPKNOT</B>, <B>FEAR FACTORY</B>), <B>Martin "Ginge" Ford</B> и <STRONG>Carl Bown. </STRONG>Трек-лист:</P>
+<P>01. <B>Capsizing The Sea</B><BR>02. <B>In Waves</B><BR>03. <B>Inception Of The End</B><BR>04. <B>Watch The World Burn</B><BR>05. <B>Dusk Dismantled</B><BR>06. <B>Black</B><BR>07. <B>Built To Fall</B><BR>08. <B>Caustic Are the Ties That Bind</B><BR>09. <B>A Skyline's Severance</B><BR>10. <B>Forsake Not the Dream</B><BR>11. <B>Chaos Reigns</B><BR>12. <B>Of All These Yesterdays</B><BR>13. <B>Leaving This World Behind</B></P>
+Автор: Vit Belov
+
+### 05.11.2011 news Новый клип TRIVIUM
+
+<P>Новое видео<STRONG> TRIVIUM</STRONG> на песню "<STRONG>Built To Fall</STRONG>" с нового альбома "<STRONG>In Waves</STRONG>" можно посмотреть ниже. </P>
+<P><center><embed src='http://metalitalia.com/wp-content/mediaplayer/player.swf' height='270' width='480' allowscriptaccess='always' allowfullscreen='true' flashvars="&file=http%3A%2F%2Fmetalitalia.com%2Fwp-content%2Fuploads%2F2011%2F10%2Ftrivium_-_built_to_fall.flv&image=http%3A%2F%2Fmetalitalia.com%2Fwp-content%2Fuploads%2F2011%2F07%2FTrivium-In-Waves-2011.jpg&linktarget=_self&plugins=viral-2d&title=Trivium%20-%20Built%20To%20Fall"/></P>
+Автор: Vit Belov
+
+### 17.11.2012 news Новый клип TRIVIUM
+
+
+Автор: Vit Belov
+
+### 03.06.2014 news TRIVIUM в Санкт-Петербурге и Москве
+
+<P><STRONG>Spika Concert Agency</STRONG> представляет: 
+<P></P>
+<P>TRIVIUM (USA)<BR><A href="http://vk.com/triviumclub">http://vk.com/triviumclub</A><BR><A href="http://www.trivium.org/">http://www.trivium.org</A></P>
+<P><STRONG>2 июня</STRONG> - Санкт-Петербург - Клуб "Космонавт"<BR><A href="http://vk.com/trivium_spb2014">http://vk.com/trivium_spb2014</A></P>
+<P><STRONG>3 июня</STRONG> - Москва - клуб "Ray Just Arena"<BR><A href="http://vk.com/trivium_msk2014">http://vk.com/trivium_msk2014</A></P>
+<P>Билеты: <A href="http://www.concert.ru/Actions.aspx?bookmark=byDate&Artist=dHJpdml1bQ%3d%3d&CityID=0">www.concert.ru</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.05/27028.jpg" width=656 height=455> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.08.2015 news Новое видео TRIVIUM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Седьмой альбом<STRONG> TRIVIUM "Silence In The Snow"</STRONG> увидит свет 2 октября при помощи <STRONG>Roadrunner Records</STRONG>. Смотрите новейшее видео “<STRONG>Until The World Goes Cold</STRONG>”:</FONT></P>
+<P>&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=360 src="https://www.youtube.com/embed/pm-xlwkQ_qc?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

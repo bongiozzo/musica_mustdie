@@ -48,6 +48,9 @@ Melodic Death Metal/Metalcore from Japan
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

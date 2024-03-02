@@ -85,6 +85,9 @@ Cover Art: P.Bruegel
 * C группой "Entombed A.D." LG Petrov (vocal)
 * C группой "Firespawn" LG Petrov (vocal)
 
+## Публикации
+
+
 ## Обсуждения
 
 

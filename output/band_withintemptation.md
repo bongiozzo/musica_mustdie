@@ -159,6 +159,254 @@ The digital premium album, complete with digi-booklet, includes 18 audio tracks 
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.03.2001 reviews Музыка для медитации и релаксации
+
+<p>Музыка для медитации и релаксации. Давненько мы ничего не слышали от этой группы из Голландии. Второй полнометражный альбом группы - спокойная расслабляющая музыка с нежнейшим женским голоском, тяжелыми мелодичными гитарами, пианино-клавишными пассажами и оркестровыми аранжировками. У меня, честное слово, иногда возникало чувство, что я слушаю новый альбом Селин Дион или Энии (наверное из-за некоторых этнических моментов). Только они решили запеть под тяжелую музыку, но с той же трагичностью, спокойствием и размахом (масштабом). А вообще очень впечатляет все это... Сопровождение гитар классическими инструментами и смешанным хором, высокохудожественная партитура. Голос Sharon так силен и чувственен, что кажется при пении она должна парить к невообразимым высотам. Красивая, немного слащавая музыка. Несмотря на трагизм музыки и вокала этот альбом несет собой только положительные и радостные эмоции и чувство счастья. Потрясающий эмоциональный gothic doom с женским вокалом. Настоятельно рекомендую!</p>
+
+Автор: Dimas
+
+### 11.01.2003 news Paradise Lost, Within Temptatiaon and Lithium in Scandinavia...
+
+<p>20.02.2003 Copenhagen - Vega<BR> 21.02.2003 Oslo - John Dee<BR> 22.02.2003 Stockholm - Klubben<BR> 23.02.2003 Malmo - KB</p>
+
+Автор: Vit Belov
+
+### 13.08.2004 news Долгожданный альбом WITHIN TEMPTATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый, пока не названный, альбом <STRONG>WITHIN TEMPTATION</STRONG> выйдет этой осенью. Пока только стало известно название первого сигла с этой пластинки <STRONG>"Stand My Ground".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 02.10.2004 news WITHIN TEMPTATION выпускают сингл
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первым синглом с будущего альбома <STRONG>WITHIN TEMPTATION 'The Silent Force'</STRONG> станет ”<STRONG>Stand My Ground</STRONG>”, и выйдет он 25 октября. На эту песню уже снято видео на старом пивнов заводе в Восточном Берлине.</FONT></P>
+Автор: Vit Belov
+
+### 02.10.2004 news WITHIN TEMPTATION release single
+
+<P>First Single from the upcoming <STRONG>WITHIN TEMPTATION</STRONG> third studio album ”<STRONG>THE SILENT FORCE</STRONG>” will be ”<STRONG>Stand My Ground</STRONG>” <BR>&nbsp;<BR>The release date is scheduled for October 25th!!!<BR>&nbsp;<BR>The&nbsp; video for "<STRONG>Stand My Ground</STRONG>" was&nbsp; shot last week in Berlin on the roof of an old East-Berlin brewery. </P>
+<P>"<EM>The band performed their song for a whole (very cold) night. By the sunrise of the next morning everybody went tired but happy back to the hotel in order to catch some sleep</EM>". </P>
+Автор: Vit Belov
+
+### 11.10.2004 news WITHIN TEMPTATION сняли видео-клип
+
+<P><STRONG>WITHIN TEMPTATION</STRONG> сняли видео на песню <STRONG>'Stand My Ground'</STRONG> с нового одноимённого сингла, который выходит 26 октября.</P>
+<P>Посмтореть его можно здесь:<BR><A href="http://mfile.akamai.com/10579/rm/bmggermany.download.akamai.com/10579/video/within_temptation/stand_my_ground_dsl.rm">Stand My Ground ADSL </A><BR><A href="http://mfile.akamai.com/10579/rm/bmggermany.download.akamai.com/10579/video/within_temptation/stand_my_ground_isdn.rm">Stand My Ground ISDN </A></P>
+Автор: Vit Belov
+
+### 26.01.2005 reviews Слушайте и смотрите, как надо
+
+<P>В последнее время стало модно, чтобы песни в металле пели девушки. Особенно, красивые девушки (хотя любую девушку для съёмки можно сделать красивой). <STRONG>WITHIN TEMPTATION</STRONG> одними из первых увлеклись девушкой, благо было кем… <STRONG>Sharon Den Adel</STRONG> продолжает «делать» (если так можно выразиться) большинство своих коллег. Именно, в то время, когда певиц отбирали с особой тщательностью и появились настоящие «королевы металла», к которым я смело отношу <STRONG>Sharon</STRONG>.</P>
+<P>Новый альбом ‘<STRONG>The Silent Force’</STRONG> покажет всем, у кого есть уши, какой должна быть идеальная вокалистка. При этом <STRONG>Den Adel</STRONG> не обладает оперными данными и не старается взять «непокорённые» высоты. Слушать её будет приятно любому поклоннику музыки, и не только тяжёлой.</P>
+<P>Музыканты не отстают от своего лидера. В записи альбома приняли участие хор и оркестр из Москвы. Звук представляет собой максимум того, чего можно добиться в наше время, а мелодии будут приятным дополнением ко всему этому многообразию красок. Жаль, что российское издание (<STRONG>BMG Russia</STRONG>) не содержит никаких фотографий и буклета, где наверняка можно полюбоваться на <STRONG>Sharon</STRONG> в различных нарядах и положениях:)) Но это было бы уже слишком.</P>
+<P><STRONG>WITHIN TEMPTATION</STRONG> выпустили один из лучших gothic-metal альбомов с женским лидирующим вокалом в прошлом году. И это не предположение, а диагноз. Рекомендую послушать всем, кто ещё не успел. </P>
+Автор: Vit Belov
+
+### 30.05.2005 news Новый клип WITHIN TEMPTATION
+
+<P>Хотите полюбоваться на <STRONG>Sharon Del Adel</STRONG> в роли ангела-проститутки-байкерши, которую пытается замочить маньяк в одежде священника? Тогда вам сюда: <A href="http://www.viva.tv/index.php?action=webclips_play_clip&id=12138">http://www.viva.tv/index.php?action=webclips_play_clip&id=12138</A>&nbsp; Новый видео-клип <STRONG>WITHIN TEMPTATION</STRONG> на песню "<STRONG>Angels</STRONG>".</P>
+Автор: Vit Belov
+
+### 09.11.2005 news DVD от WITHIN TEMPTATION
+
+<P><STRONG>WITHIN TEMPTATION</STRONG> выпустили двойное DVD "<STRONG>The Silent Force</STRONG>". В формате digi-pack будет также доступен концертный аудио-диск коллектива. Трэк-лист:</P>
+<P>DVD1</P>
+<P>Live concert: Java Eiland, Amsterdam<BR>01. <STRONG>Deceiver of Fools</STRONG> <BR>02. <STRONG>Stand My Ground</STRONG> <BR>03. <STRONG>Jillian (I'd Give My Heart) <BR></STRONG>04.<STRONG> It's the Fear <BR></STRONG>05. <STRONG>Forsaken <BR></STRONG>06. <STRONG>Angels <BR></STRONG>07. <STRONG>Towards The End</STRONG> <BR>08. <STRONG>Memories </STRONG><BR>09. <STRONG>Intro <BR></STRONG>10. <STRONG>See Who I Am</STRONG> <BR>11. <STRONG>Aquarius <BR></STRONG>12. <STRONG>Pale <BR></STRONG>13. <STRONG>Jane Doe <BR></STRONG>14. <STRONG>Caged <BR></STRONG>15. <STRONG>Mother Earth</STRONG> <BR>16. <STRONG>Candles <BR></STRONG>17. <STRONG>The Other Half (Of Me) <BR></STRONG>18. <STRONG>Ice Queen </STRONG></P>
+<P>Live concert: Live 05, Finland, 2005 <BR>01.<STRONG> Memories <BR></STRONG>02. <STRONG>Angels <BR></STRONG>03. <STRONG>Stand My Ground </STRONG></P>
+<P>Live concert: Werchter, Belgium, 2005 <BR>01. <STRONG>Ice Queen <BR></STRONG>02. <STRONG>See Who I Am <BR></STRONG>03. <STRONG>Stand My Ground</STRONG> </P>
+<P>Music video's <BR>01. <STRONG>Stand My Ground</STRONG> <BR>02. <STRONG>Memories <BR></STRONG>03. <STRONG>Angels </STRONG></P>
+<P>Скриншоты: <A href="http://www.wt-music.de/content/dvd.html">www.wt-music.de/content/dvd.html</A> </P>
+<P>DVD2:</P>
+<P>Backstage footage:<BR>Tours & Festivals, 2003-2005<BR>The making of: <BR>The album part one<BR>The album part two<BR>Stand My Ground<BR>Memories<BR>Angels<BR>Impressions & interviews:<BR>De Boerderij, TMF Special 2004<BR>Bettina S, Finland 2005<BR>WT in Dubai, TMF special 2005<BR>TMF Awards & MTV Newsflash, The Netherlands 2005<BR>Live 05 interview, The Voice, Finland 2005<BR>Kerrang Radio FM, United Kingdom, 2005 <BR>Extra's:<BR>Open Air forest theatre' Kersouwe' special, The Netherlands 2004<BR>The Java-island special, The Netherlands 2005<BR>Photogallery<BR>Bloopers<BR>Credits</P>
+Автор: Vit Belov
+
+### 27.12.2005 news Sharon Den Adel родила
+
+<P>В семье вокалистки <STRONG>WITHIN TEMPTATION Sharon</STRONG> и гитариста той же группы <STRONG>Robert Westerholt </STRONG>пополнение. 7 декабря родилась девочка, которую назвали <STRONG>Luna</STRONG>.</P>
+Автор: Vit Belov
+
+### 13.09.2006 news WITHIN TEMPTATION работают над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>WITHIN TEMPTATION</STRONG> закончили написание песен для нового альбома. Некоторые из этих песен уже записаны, а некоторые только ждут своей очереди. Дата релиза и подробности будут объявлены позже.</FONT></P>
+Автор: Vit Belov
+
+### 06.01.2007 news Название нового WITHIN TEMPTATION
+
+<P><IMG height=135 alt="" hspace=0 src="/images/news_rus/2007.01/11141.jpg" width=135 align=left border=5>Новый альбом <STRONG>WITHIN TEMPTATION</STRONG> будет называться "<STRONG>The Heart Of Everything</STRONG>". Подробности последуют.</P>
+Автор: Vit Belov
+
+### 11.01.2007 news Трэк-лист нового WITHIN TEMPTATION
+
+<P><STRONG>WITHIN TEMPTATION</STRONG> опубликовали трэк-лист своего нового альбома "<STRONG>The Heart Of Everything</STRONG>":</P>
+<P>1. <STRONG>The Howling</STRONG><BR>2. <STRONG>What Have You Done </STRONG>(feat. Life of Agony's Keith Caputo)<BR>3. <STRONG>Frozen<BR></STRONG>4. <STRONG>The Heart of Everything</STRONG><BR>5. <STRONG>All I Need<BR></STRONG>6. <STRONG>Our Solemn Hour</STRONG><BR>7. <STRONG>Hand of Sorrow</STRONG><BR>8. <STRONG>The Cross</STRONG><BR>9. <STRONG>Final Destination</STRONG><BR>10. <STRONG>Forgiven<BR></STRONG>11. <STRONG>The Truth Beneath the Rose</STRONG></P>
+Автор: Vit Belov
+
+### 13.02.2007 news Новое видео от WITHIN TEMPTATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео на песню <STRONG>WITHIN TEMPTATION "What Have You Done"</STRONG> можно посмотреть здесь: <A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=1898720907">http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=1898720907</A></FONT></P>
+Автор: Vit Belov
+
+### 06.06.2007 reviews «Товар широкого потребления»
+
+<P>Послушав “The Heart Of Everything”, я стал судорожно искать предыдущую работу WT “The Silent Force”. Качнул у нас на сайте песенку и успокоился. Помнится, я очень сильно расхваливал предыдущую работу голландцев. Так она мне понравилась. Уже тогда мы имели дело с обвинениями в излишней лёгковесности и попсовости материала, но на все эти небольшие, по нынешним временам, недостатки мы закрывали глаза. Зато открывали их на великолепную реализацию и красивую вокалистку Sharon.</P>
+<P>На новой работе «закрывать глаза» уже не удаётся. Не дослушав до середины, становится скучно от избитых и заезженных ходов. По этой причине я и начал искать диск, чтобы определить грань между прошлым и нынешним. И эта грань нашлась. Затейливость некоторых мелодий на “The Silent Force”, которая полностью отсутствует на новой работе. WT сделали окончательную ставку на североамериканский рынок, решив сначала прославиться там, пусть и как клон EVANESCENCE, а уж затем уверенной поступью прийти на Родину в Европу. Забавно, но нам обидно. Мы ведь знаем, что умеют голландцы. Мы знаем, как они умеют. EVANESCENCE и «в подмётки» не годится этим ребятам, но… Есть, видимо, что-то, что сильнее нас.</P>
+<P>Я же позволю себе отказаться от прослушивания этого товара широкого потребления. Интересно, прокатят ли группу её будущие поклонники? Но это тема уже будущих историй.</P>
+Автор: Vit Belov
+
+### 26.11.2007 news WITHIN TERMPTATION отсняли очередное DVD
+
+<P>24 ноября в голландском Эйндховене в присутствии восьми тысяч зрителей<STRONG> WITHIN TEMPTATION</STRONG> отсняли своё новое DVD. В качестве специальных гостей в шоу приняли участие <STRONG>Anneke van Giersbergen</STRONG> (<B>AQUA DE ANNIQUE</B>, ex-<B>THE GATHERING</B>)&nbsp;и <B>George Oosthoek</B> (ex-<B>ORPHANAGE</B>). Также фэны смогли оценить спецэффекты и аккустическую секцию. Сэт-лист:</P>
+<P>01. <B>The Silent Force Intro</B><BR>02. <B>Jillian</B><BR>03. <B>The Howling</B><BR>04. <B>Stand My Ground</B><BR>05. <B>The Cross</B><BR>06. <B>What Have You Done</B><BR>07. <B>Hand of Sorrow</B><BR>08. <B>The Heart of Everything</B><BR>09. <B>Forgiven</B> (acoustic)<BR>10. <B>Restless</B> (acoustic)<BR>11. <B>Somewhere</B> (w/ Anneke van Giersbergen, acoustic) <BR>12. <B>Memories</B> (acoustic)<BR>13. <B>Our Solemn Hour</B><BR>14. <B>The Other Half</B> (w/ George Oosthoek)<BR>15. <B>Angels</B> (w/ act)<BR>16. <B>Mother Earth</B><BR>17. <B>Frozen</B><BR>18. <B>Jane Doe</B><BR>19. <B>The Truth Beneath The Rose</B><BR>Encore:<BR>03. <B>Deceiver of Fools</B><BR>03. <B>All I Need</B><BR>03. <B>Ice Queen</B></P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/AkPss-flOYY&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/AkPss-flOYY&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<CENTER><SPAN class=sign>
+<CENTER>"Something" (акустическая версия с участием Аннеке)</CENTER></SPAN></CENTER>
+Автор: Vit Belov
+
+### 11.01.2008 news Гитарист Robert Westerholt к нам не приедет?
+
+<P>Гитарист<STRONG> WITHIN TEMPTATION</STRONG> <STRONG>Robert Westerholt</STRONG>&nbsp;повредил руку и не поедет в тур со своей группой. Голландцы не будут искать нового музыканта и обойдутся одним гитаристом. <STRONG>Robert</STRONG> планирует вернуться в строй в феврале. Скорее всего, мы не увидим его на выступлении в Москве, намеченном на 17 февраля.</P>
+Автор: Vit Belov
+
+### 13.01.2008 news Robert Westerholt будет в Москве
+
+<P>Официальное сообщение от <STRONG>Flaming Arts</STRONG>, одного из организаторов концерта <STRONG>WITHIN TEMPTATION</STRONG> в Москве:</P>
+<P>"<EM>В связи с быстро распространяющейся информацией о том, что гитарист WITHIN TEMPTATION Robert Westerholt повредил руку и не сможет играть на концерте в Москве агентство THE FLAMING ARTS потребовало&nbsp; менеджмент группы подтвердить данную информацию, на что получили четкий ответ и обещание, что Robert будет в строю уже 7 февраля на концерте в Роттердаме и, соответственно, БУДЕТ играть на концерте в Москве</EM>!"</P>
+Автор: Vit Belov
+
+### 09.02.2008 news WITHIN TEMPTATION впервые в России!
+
+<P><IMG height=300 alt="" hspace=0 src="/images/shows_rus/2008.02/12078.jpg" width=400 align=right border=5>Наконец-то это станет реальностью! Мы с гордостью объявляем о единственном в СНГ грандиозном шоу группы WITHIN TEMPTATION, которое состоится 17 февраля 2008 года в московском клубе "Тень". Вот информация с официального сайта группы: "У нас есть восхитительная новость! Как вы уже знаете, мы играем тур в январе в рамках которого мы посетим несколько стран, в которых мы были раньше, но так же в этот раз в нашем расписании появится несколько новых стран. Среди них оказалась и Россия, а именно, долгожданный концерт в Москве! 17 февраля единственное шоу в странах СНГ в московском клубе "Тень". Билеты поступают в продажу уже со следующей недели, полный список пунктов продажи билетов вы можете посмотреть на сайте организатора концерта - агентства THE FLAMING ARTS - <A href="http://www.theflamingarts.org/">www.theflamingarts.org</A>.<BR>Прямо сейчас вы можете сделать свой заказ, обратившись по адресу <A href="mailto:tickets@theflamingarts.org">tickets@theflamingarts.org</A> или позвонив по телефонам: +79154970747 или +79067597378. Спешите, количество билетов ограничено. Мы с нетерпением ждем вас на концерте!"</P>
+Автор: Vit Belov
+
+### 02.09.2008 news WITHIN TEMPTATION разместили видео
+
+<P>
+<DIV align=center><STRONG>WITHIN TEMPTATION</STRONG> выложили в сеть новое видео на песню "<STRONG>Forgiven</STRONG>".</DIV>
+<DIV></DIV>
+<DIV align=center>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/3EloEMyAWXA&hl=en&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/3EloEMyAWXA&hl=en&fs=1" 
+type="application/x-shockwave-flash" allowfullscreen="true" width="425" 
+height="344"></embed></OBJECT></DIV>
+Автор: Vit Belov
+
+### 17.02.2009 news Sharon и Anneke снова вместе
+
+<P>Две голландских рок-металл дивы <STRONG>Sharon den Adel</STRONG> (<STRONG>WITHIN TEMPTATION</STRONG>) и <STRONG>Anneke van Giersbergen </STRONG>(ex-<STRONG>THE GATHERING</STRONG>) выступили вместе на шоу новой группы <STRONG>Anneke AGUA DE ANNIQUE</STRONG>. Видео можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/cvh9KO55Z40&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/cvh9KO55Z40&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.02.2009 news Sharon Den Adel вновь беременна
+
+<P>Вокалистка и гитарист <STRONG>WITHIN TEMPTATION Sharon Den Adel</STRONG> и <STRONG>Robert Westerholt </STRONG>ждут второго ребёнка. У пары уже есть трёхлетняя дочь <STRONG>Eva Luna den Adel</STRONG>. Группа воздержится от концертов, но не остановит работу над новым альбомом, который выйдет в 2010.</P>
+Автор: Vit Belov
+
+### 09.06.2009 news В WITHIN TEMPTATION пополнение
+
+<P>У вокалистки <STRONG>WITHIN TEMPTATION Sharon den Adel</STRONG>&nbsp;и гитариста той же группы<STRONG>&nbsp;Robert Westerholt</STRONG> родился второй ребёнок. Мальчика назвали<STRONG> Robin Aiden</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.08.2009 news WITHIN TEMPTATION выпустят ещё один концертник
+
+<P>30 октября выйдет очередной концертный альбом <STRONG>WITHIN TEMPTATION</STRONG> <STRONG>"An Acoustic Night At The Theatre". </STRONG>Альбом был записан в течение акустического тура группы по театрам в прошлом ноябре. </P>
+Автор: Vit Belov
+
+### 20.09.2009 news Акустический концерт WITHIN TEMPTATION
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.09/15063.jpg" width=400 align=right border=5>30 октября выходит акустический концертный альбом <STRONG>WITHIN TEMPTATION</STRONG> <STRONG>"An Acoustic Night At The Theatre". </STRONG>Пластинка будет содержать одну новую песню "<STRONG>Utopia</STRONG>". Трэк-лист:</P>
+<P>01. <B>Towards The End</B><BR>02. <B>Stand My Ground</B><BR>03. <B>Caged</B><BR>04. <B>All I Need</B><BR>05. <B>Frozen</B><BR>06. <B>Somewhere</B> (feat. Anneke van Giersbergen)<BR>07. <B>The Cross</B><BR>08. <B>Pale</B><BR>09. <B>What Have You Done</B> (feat. Keith Caputo)<BR>10. <B>Memories</B><BR>11. <B>Forgiven</B><BR>12. <B>Utopia</B> (feat. Chris Jones)</P>
+Автор: Vit Belov
+
+### 29.09.2009 news Новое видео WITHIN TEMPTATION
+
+<P>Новое видео <STRONG>WITHIN TEMPTATION</STRONG> на песню "<STRONG>Utopia</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=295 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/oEIvlihb2Ms&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/oEIvlihb2Ms&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="295"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.11.2010 news WITHIN TEMPTATION споют о комиксах
+
+<P><STRONG><IMG height=225 alt="" hspace=0 src="/images/news_rus/2010.11/17635.jpg" width=300 align=right border=5>WITHIN TEMPTATION</STRONG> назвали выходящий в марте новый альбом <STRONG>"The Unforgiving". </STRONG>Объявлено, что альбом будет концептуальным, основанным на комиксах <STRONG>Steven O'Connell</STRONG> (<B>BloodRayne</B>, <B>Dark 48</B>), и будет содержать сценарий и героев <STRONG>Romano Molenaar</STRONG> (<B>Witchblade</B>, <B>Darkness</B>, <B>X-Men</B>).</P>
+<P>Группа обещает некоторые изенения в своей музыке. В частности, музыканты обнаружили в ней дух 80-х, когда они зачитывались комиксами.</P>
+Автор: Vit Belov
+
+### 27.11.2010 news Sharon den Adel ждёт третьего
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалистка <STRONG>WITHIN TEMPTATION</STRONG> <STRONG>Sharon den Adel </STRONG>и её муж гитарист той же группы <STRONG>Robert Westerholt </STRONG>ждут третьего ребёнка. Релиз анонсированного альбома группы состоится, как и было запланировано, в марте будущего года, но ближайший тур придётся перенести на осень 2011 года.</FONT></P>
+Автор: Vit Belov
+
+### 17.12.2010 news Новое видео WITHIN TEMPTATION
+
+<P><STRONG>WITHIN TEMPTATION</STRONG> опубликовали свою новую песню <STRONG>"Where Is The Edge"</STRONG>, которая попадёт на следующий альбом голландцев <STRONG>"The Unforgiving". </STRONG>Песня представлена как саундтрэк к трэйлеру нового фильма голландского режиссёра <STRONG>Paul Ruven "Me & Mr. Jones". </STRONG>Новый альбом <STRONG>WITHIN TEMPTATION</STRONG> выйдет в марте, а фильм выйдет в июле 2011 года. Актриса<STRONG> Hanna Verbum</STRONG>, снявшаяся в клипе и фильме, известна нашему зрителю по роли в комедии "<STRONG>Мужчина по Вызову 2</STRONG>".</P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/py4RmuKlx3o&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/py4RmuKlx3o&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.01.2011 news WITHIN TEMPTATION: обложка альбома &quot;The Unforgiving&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18082.jpg" width=400 height=400>Стала доступна к просмотру обложка нового концептуального&nbsp;альбома голландцев <STRONG>WITHIN TEMPTATION</STRONG>&nbsp;-&nbsp;<STRONG>"The Unforgiving"</STRONG>.</P>
+<P>Диск <STRONG>"The Unforgiving"</STRONG> был спродюсирован Дениелом Гибсоном (<B itxtvisited="1">Daniel Gibson</B>) и основан на комиксе, написанным&nbsp;Стивеном О'Коннеллом (<B itxtvisited="1">Steven O'Connell</B>, комиксы <B itxtvisited="1">BloodRayne</B>, <B itxtvisited="1">Dark 48</B>). По просьбе группы, художник <B itxtvisited="1">Romano Molenaar</B> (комиксы <B itxtvisited="1">Witchblade</B>, <B itxtvisited="1">Darkness</B>, <B itxtvisited="1">X-Men</B>) нарисовал персонажей и другие иллюстрации для <B itxtvisited="1">"The Unforgiving"</B>, который выйдет&nbsp;на <B itxtvisited="1">Sony Music </B>в Контенинтальной Европе и на <B itxtvisited="1">Roadrunner Records</B> в Америке, Англии,&nbsp;Ирландии, Японии и в Австралии.</P>
+Автор: Headcrusher
+
+### 03.04.2011 news Новый клип WITHIN TEMPTATION
+
+<P>Видео-клип на песню <STRONG>WITHIN TEMPTATION</STRONG> <STRONG>"Shot In The Dark" </STRONG>можно посмотреть ниже. Песня попала на пятый альбом группы <STRONG>"The Unforgiving".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=6d8dbb22cdf491e481ed" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.04.2011 news WITHIN TEMPTATION вошли в чарты
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом голландцев <STRONG>WITHIN TEMPTATION "The Unforgiven"</STRONG> был продан в первую неделю в США тиражом 12000 экземпляров. Это позволило дебютировать грруппе на 50 месте в чартах <STRONG>Billboard 200</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Между тем, певица <STRONG>Sharon den Adel </STRONG>30 марта в третий раз стала матерью. Мальчика назвали <STRONG>Logan Arwin Westerholt.</STRONG></FONT></P>
+<P><center><IMG height=338 src="/images/news_rus/2011.04/19096.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 04.07.2011 reviews WITHIN TEMPTATION к корням возвращаться не надо
+
+<P>Голландская группа WITHIN TEMPTATION яркий пример «мягкой» коммерции в тяжёлой музыке. Участники коллектива не мечутся из стиля в стиль, не предлагают каких-то резких экспериментов своим поклонникам, они просто слушают, что происходит в коммерческой составляющей музыки вокруг и идут туда за своим скромным заработком.</P>
+<P>Конечно же, это определение относится уже к зрелому периоду в творчестве WITHIN TEMPTATION. Первые пробы пера в gothic-doom-metal конца 90-х сейчас уже никто не вспоминает, альбомы же нового века, начиная с “Mother Earth”, бьют точно в цель. Пускай, каждая пластинка голландцев обретает ярлык чьего-нибудь клона, это никак не влияет на популярность. Например, после альбома 2004 года “The Silent Force” WITHIN TEMPTATION сравнивали с EVANESCENCE. Где теперь EVANESCENCE? А голландская группа плавно прошла этот период своего творчества, благополучно отмывшись от не очень лестного ярлыка. С новым альбомом “The Unforgiving” все сравнения с популярной американской группой должны быть исчерпаны. Теперь голландскую группу вообще сложно относить к тяжёлой музыке. Их творчество больше напоминает ROXETTE, что согласитесь не самый неприятный ориентир. Прибавьте к этому сохранившиеся фирменные мелодии WT и красивый голос Sharon, и вы получите очень хороший альбом, пусть и за пределами нашего ведомоства.</P>
+<P>Относить этот коллектив к металу сможет теперь только глухой. Самим музыкантам это не столь важно, они сделали себе имя в смежных стилях, и им теперь не надо возвращаться к корням, лебезя перед металистами.</P>
+Автор: Vit Belov
+
+### 21.12.2011 news Новый клип WITHIN TEMPTATION
+
+<P>Новое видео<STRONG> WITHIN TEMPTATION</STRONG> на песню <STRONG>"Fire And Ice" </STRONG>можно посмотреть ниже. Трек взят с нового альбома голландцев <STRONG>"The Unforgiving".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/ve2pS-jxXz0?version=3&feature=player_detailpage"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/ve2pS-jxXz0?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.11.2013 news WITHIN TEMPTATION выпускают новый студийный альбом
+
+<P>31 января 2014 года, голландская группа&nbsp;<STRONG>WITHIN TEMPTATION</STRONG> выпускает свой новый альбом, получивший название <STRONG>"Hydra"</STRONG>.&nbsp;Обложку для диска создал <STRONG>Romano Molenaar </STRONG>(<A href="http://www.romanomolenaar.com/">www.romanomolenaar.com</A>),&nbsp;её можно увидеть ниже.</P>
+<P>В качестве гостей на альбоме&nbsp;<STRONG>"Hydra"</STRONG> отметились: <STRONG>Tarja Turunen</STRONG> (ex-<STRONG>NIGHTWISH</STRONG>), <STRONG>Dave Pirner</STRONG>&nbsp;из <STRONG>SOUL ASYLUM</STRONG>, <STRONG>Howard Jones</STRONG> (бывший вокалист <STRONG>KILLSWITCH ENGAGE</STRONG>) и американская звезда хип-хопа <STRONG>Xzibit</STRONG>.</P>
+<P>В начале селедующего года, группа даст несколько концертов в России. Следите за подробностями в разделе <STRONG>Shows</STRONG>: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.11/26331.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Within Temptation рулит

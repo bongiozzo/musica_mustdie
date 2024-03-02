@@ -26,6 +26,21 @@ Stan Verbraak  -  Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2001 news Fata Morgana от HELLOISE .....
+
+<p>Ветераны датского хард-рока "HELLOISE" выпускают новый студийный альбом "Fata Morgana" в сентябре. В качестве гостей на нем отметились клавишник Robby Valentine и вокалистка Lana Lane. Продюссирование и микст выполнил Саша Паэт (ANGRA/KAMELOT/RHAPSODY).</p>
+
+Автор: Yermola
+
+### 29.05.2001 news HELLOISE will issue a new ....
+
+<p>Veteran Dutch hard rockers HELLOISE will issue a new studio album, Fata Morgana, in September. The album will reportedly include guest appearances from keyboardist Robby Valentine and vocalist Lana Lane, among others. Additional production and mixing will be handled by ANGRA/KAMELOT producer Sascha Paeth. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

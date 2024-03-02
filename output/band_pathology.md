@@ -60,6 +60,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2011 news PATHOLOGY начали запись
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2011.06/19773.jpg" width=300 align="right" border=0>Американские брутальщики <B>PATHOLOGY</B> начали работу над своим пятым альбомом в студии <B>Lambesis Studios, </B>принадлежащей вокалисту<B> AS I LAY DYING Tim Lambesis</B></B>.&nbsp;Продюсером этой работы станет <B>Daniel Castleman</B> (<B>IMPENDING DOOM</B>, <B>AS I LAY DYING</B>, <B>WINDS OF PLAGUE</B>).&nbsp;Альбом, который выйдет уже осенью, станет дебютом для новых вокалиста и гитариста группы <B>Jonathan Huber</B> (ex-<B>I DECLARE WAR</B>) и <B>Kevin Schwartz.</B></P>
+<P>Группа собирается записать самую тяжёлую пластинку в своей истории. "<I>Быстрые куски станут быстрее, а медленные - медленее</I>", - говорит барабанщик <B>Dave Astor</B>.</P>
+<P>Последний альбом <B>PATHOLOGY</B> <B>"Legacy Of The Ancients" </B>вышел в 2010 году на <B>Victory Records</B>. В активе детстеров совместные туры с <B>DEICIDE, NILE, IMMOLATION</B> и <B>OBITUARY</B>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

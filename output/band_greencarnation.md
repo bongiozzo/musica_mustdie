@@ -168,6 +168,383 @@ As Life Flows By
 * C группой "Trail of Tears" Kjetil Nordhus
 * C группой "Chain Collector" Kjetil Nordhus
 
+## Публикации
+
+### 28.10.2001 news Длинная песня от Green Carnation
+
+<p>Green Carnation, проект, в котором среди прочих играют Tchort (ex-Emperor, ex-Satyricon, Carpathian Forest), Kobro (Carpathian Forest), Jan Kenneth Transit (In The Woods), 19 ноября выпустит новый захватывающий дух альбом на Prophecy Productions. Сей опус уже получил титул "Альбом месяца" в журнале Hammer и "Саундчек Nr. 2" в журнале Metal Heart. "Light of day, day of darkness" состоит целиком из одной длиннющей часовой композиции, записанной вместе с классическим хором, детским хором и струнным ансамблем. Альбом рассчитан на поклонников творчества Pink Floyd, In The Woods, Yes, My Dying Bride, Deep Purple, Porcupine Tree, Anathema.</p>
+
+Автор: Morsus
+
+### 28.10.2001 news One long song of Green Carnation
+
+<p>Green Carnation, project of Tchort (ex-Emperor, ex-Satyricon, Carpathian Forest), Kobro (Carpathian Forest), Jan Kenneth Transit (In The Woods) and Co., will release they new breathtaking album on November 19th through Prophecy Productions. This album got "Album Of The Month" in Hammer Magazine and "Soundcheck Nr. 2" in Metal Heart Magazine. "Light of day, day of darkness" is consisting of a one hour long song; performed together with a classical choir, a children choir, string ensembles and sitar players. A must for fans of bands like Pink Floyd, In The Woods, Yes, My Dying Bride, Deep Purple, Porcupine Tree or Anathema.</p>
+
+Автор: Morsus
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 23.01.2002 reviews Песнь длиною в час
+
+<p>Песнь длиною в час. Очень серьезная музыкальная работа на стыке множества стилей и направлений базирующаяся на атмосферном gothic-doom metal. Напоминает смесь TIAMAT, AMORPHIS и PINK FLOYD. Но это больше, чем просто gothic-doom. История этой норвежской группы довольно длинная, поэтому лучше сосредоточимся на самом альбоме, не обсуждая ситуацию вокруг группы. Скажу только, что собравшиеся здесь музыканты уже успели поиграть (и довольно успешно) в таких группах как IN THE WOODS, DRAWN, EMPEROR, CARPATHIAN FOREST, TRAIL OF TEARS и других. Несмотря на продолжительность, эту песню можно слушать целый час не отвлекаясь, постепенно сливаясь с ней. Ей не жалко посвятить столько своего драгоценного времени. В записи альбома помимо пяти основных музыкантов приняли участие семь сессионных музыкантов (среди которых недавно родившийся сын лидера группы, которому, кстати, посвящен этот альбом, исполнивший партии детского вокала, вернее лепета), а также детский и оперный хоры. Музыка наполнена до предела всевозможными эмоциями и настроениями. Сплетаются между собой эпические куски, акустические вставки, хоральные песнопения, мрачные фолковые моменты, печальные скрипки и ситары сменяемые мягкими мечтательными гитарными соло и мощными тяжелыми риффами образующими умопомрачительные гипнотизирующие мелодии. Ультраэпический альбом насыщенный отличной музыкой разрушающей сознание и уводящей в параллельные миры. Превосходное качество записи, чистый звук и всеохватывающая туманная атмосфера. Неожиданный сюрприз для всех любителей серьезной музыки. Мне не жаль посвятить этому релизу еще несколько часов своего времени. Пойду-ка я послушаю еще разок это творение...</p>
+
+Автор: Dimas
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 27.11.2002 news Green Carnation скоро начнут записывать третий альбом
+
+<p>Green Carnation подписали контракт на выпуск следующего альбома с лейблом Seasons Of Mist. Запись пройдёт в январе - феврале 2003 года в норвежской студии Jailhouse. Кроме того, отдельные инструменты будут записаны в необычных местах, например, для записи ударных будет использован большой концертный зал, а для записи фортепиано, струнных и вокалов - кафедральный собор. Название будущего альбома - "The Writings on the Wall".</p>
+
+Автор: Morsus
+
+### 27.11.2002 news 3rd album of Green Carnation
+
+<p>Green Carnation inked a deal with Seasons Of Mist. The band will record their 3rd album during January / February 2003 in Jailhouse studio, Kristiansand, Norway. Besides Jailhouse, the band will also use various other recording locations for specific instruments, like a big concert hall for the drum production, a cathedral for the piano, voice and string production, etc. The title of the new album will be "The Writings on the Wall".</p>
+
+Автор: Morsus
+
+### 29.03.2003 news Обманное благословение
+
+<p>GREEN CARNATION работают над своим третьим альбомом "A Blessing In Disguise". Это будет их первый альбом на новом для них лэйбле Seasons Of Mist. выход альбома запланирован на июнь 2003 года.</p>
+
+Автор: Dimas
+
+### 05.06.2003 reviews Благословленная ложь
+
+<p>Первые два релиза этого норвежского проекта, особенно последний, одни из любимых релизов в моей коллекции. Потому я с трепетом готовился к прослушиванию их третьего творения, боясь разочарования. Наконец, я решился. Первые же звуки альбома, честно говоря, немного повергли меня в шок. Если бы не знакомый вокал, то пожалуй, я рискнул бы даже подумать, а уж не новый ли это альбом METALLICA? И чем дальше, тем все больше эта музыка меня удивляла и заставляла крепко задуматься по своему поводу. Материал группы довольно сильно изменился. Видимо это и повлекло некоторые перемены, смену логотипа группы, а также выпускающего лэйбла. А может, и наоборот. Первое прослушивание не принесло никаких результатов. Я так и не понял, нравится мне это или нет. Музыка тяжелая и слишком прямолинейная. При этом, слишком атмосферная, и содержит симфонические оркестровки и неприкрытые психоделические элементы. Атмосферно-готический прогрессив-рок, так, пожалуй, можно назвать то, что играют музыканты. Музыка пропитанная духом семидесятых и восьмидесятых. Последующие прослушивания, после определенного прихода в себя, прошли гораздо лучше. Мне удалось убедиться, что несмотря ни на что, :GREEN CARNATION по-прежнему выдают талантливую и оригинальную музыку вне всяких рамок, ни на кого не похожую. Красивую, спокойную, мелодичную и притягивающую внимание слушателей. Не спешите разочаровываться после первого же прослушивания. Попробуйте прослушать это несколько раз. Озарение придет... Особенно рекомендую поклонникам PINK FLOYD, YES, PORCUPINE TREE, ANATHEMA, IN THE WOODS и DEEP PURPLE.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 10.10.2003 news GREEN CARNATION, MORK GRYNING and SUIDAKRA in Europe
+
+Oct. 30 - Innsbruck, AUT @ Hafen <BR>Oct. 31 - Wels, AUT @ Alter Schlachthof <BR>Nov. 01 - Wien, AUT @ Planet Music <BR>Nov. 02 - Budapest, HUN @ E-Klub <BR>Nov. 03 - Munchen, GER @ Garage <BR>Nov. 04 - Essen, GER @ Zeche Carl <BR>Nov. 05 - Heidelberg, GER @ Schwimmbad Musicclub <BR>Nov. 06 - Berlin, GER @ Halford <BR>Nov. 07 - Glauchau, GER @ Alte Spinnerei <BR>Nov. 08 - Munster, GER @ Live Arena <BR>Nov. 09 - Hamburg, GER @ Markthalle&nbsp;
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 09.03.2004 news Вокалист GREEN CARNATION присоединился к TRAIL OF TEARS
+
+<B>Kjetil Nordhus</B> из <B>GREEN CARNATION</B> стал новым певцом в <B>TRAIL OF TEARS</B>. Вместе с этим группу покинула, из-за музыкальных разногласий, <B>Cathrine Paulsen</B>.&nbsp;<B>TRAIL OF TEARS</B> уже вошли в студию в этом месяце для записи нового альбома вместе с продюсером <B>Endre Kirkesola</B> (<B>GREEN CARNATION</B>, <B>BLOOD RED THRONE</B>).&nbsp;Пластинка выйдет летом на <B>Napalm Records.</B>&nbsp;
+Автор: Vit Belov
+
+### 13.05.2004 news GREEN CARNATION - подробности о новом альбоме
+
+Лидер <B>GREEN CARNATION</B> <B>Tchort</B> сообщил о своём намерении записать вторую и третью часть для альбома 2001 года "<B>Light of Day, Day of Darkness</B>". "<I>Я никогда не думал о подобном развитии событий, но меня посетило вдохновение (быть может это одетые "по-весеннему" женщины), и я решил, записать продолжение нашего альбома 2001 года</I>".
+Автор: Vit Belov
+
+### 13.12.2004 news Новый альбом GREEN CARNATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>GREEN CARNATION 'The Quiet Offspring'</STRONG> выйдет в феврале на <STRONG>Season Of Myst</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 04.01.2005 news Сэмплы с нового альбома GREEN CARNATION
+
+<P>Как уже сообщалось, <STRONG>GREEN CARNATION</STRONG> выпускают новый альбом <STRONG>'The Quiet Offspring'</STRONG> на <STRONG>Season Of Mist</STRONG>. Трэк-лист:</P>
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2005.01/7557.jpg" width=250 align=right border=5>1. <STRONG>The Quiet Offspring</STRONG>&nbsp; <BR>2. <STRONG>Between The Gentle Small & The Standing Tall</STRONG>&nbsp; <BR>3. <STRONG>Just When You Think It's Safe&nbsp; <BR></STRONG>4. <STRONG>A Place For Me&nbsp; <BR></STRONG>5. <STRONG>The Everlasting Moment&nbsp; <BR></STRONG>6. <STRONG>Purple Door, Pitch Black</STRONG>&nbsp; <BR>7. <STRONG>Childsplay Part I&nbsp; <BR></STRONG>8. <STRONG>Dead but Dreaming</STRONG>&nbsp; <BR>9. <STRONG>Pile Of Doubt <BR></STRONG>10. <STRONG>When I Was You&nbsp; <BR></STRONG>11. <STRONG>Childsplay Part II</STRONG></P>
+<P>Сэмплы шести песен можно скачать на нашем сайте: <A href="/ru/band/green_carnation/10421/#samples">http://musica.mustdie.ru/ru/band/green_carnation/10421/#samples</A></P>
+Автор: Vit Belov
+
+### 25.08.2005 reviews Набивших оскомину мелодий здесь нет
+
+<P>Писать что-то о новом альбоме <STRONG>GREEN CARNATION</STRONG> всегда сложно. Здесь не за что ухватиться ушлому бумагомарателю. Никакой определённой стилистической ориентации, мелодии, в которые невозможно врубиться с первого раза... Двойственное впечатление почти от каждой вещи.</P>
+<P>11 трэков "<STRONG>The Quiet Offspring</STRONG>" одновременно не похожи и похожи, одновременно прогрессивны и просты, одновременно могут убить наповал и вызвать отторжение. Безусловно, стиль группы можно характеризовать, как progressive. Progressive в смысле смешения стилей. Здесь есть и hard-rock, и metal, и alternative... Обращает на себя внимание, например, "<STRONG>Childs Play</STRONG>" - суицидальная грустная композиция в духе <STRONG>ANATHEMA</STRONG>.</P>
+<P>Этот альбом интересно слушать, и в этом его главная ценность. Здесь нет ни новаторства, ни излишней сложности - просто хорошие песни. А может даже и не хорошие, а просто разные, каждый сам решит. Мне понравилось, не сразу, но понравилось.&nbsp;А как вам?</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 01.11.2005 news Сэмпл нового GREEN CARNATION
+
+<P><STRONG>GREEN CARNATION</STRONG> выложили первый сэмпл со своего будущего альбома "<STRONG>Acoustic Verses</STRONG>". Качать здесь: <A href="http://www.sublifeproductions.com/Green%20Carnation%20acoustic%20sample.mp3">http://www.sublifeproductions.com/Green%20Carnation%20acoustic%20sample.mp3</A></P>
+Автор: Vit Belov
+
+### 24.08.2007 news GREEN CARNATION ссорятся с The End
+
+<P>Лидер <STRONG>GREEN CARNATION Tchort</STRONG> высказал претензии к американскому лэйблу <STRONG>The End Records</STRONG> через американские СМИ. Он распространил заявление, в котором обвинил контору в тотальном невыполнении финансовых условий во время ттура по США. Не углубляясь в подробности, сообщим, что <STRONG>Чёрт</STRONG> обвинил <STRONG>End records</STRONG> во всех грехах, включая и невыплату денег за лицензию для США на последний альбом <STRONG>GREEN CARNATION</STRONG>. Интересно, что тур состоялся, пусть и не очень удачно, уже полтора года назад. Естественно, "американские капиталисты" всё отрицают и недоумевают по поводу заявлений музыканта.</P>
+<P>Тем временем <STRONG>Чёрт </STRONG>объявил, что отказывается от дальнейшей концертной деятельности со своей группой, но продолжает писать музыку под именем <STRONG>GREEN CARNATION</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новые песни GREEN CARNATION

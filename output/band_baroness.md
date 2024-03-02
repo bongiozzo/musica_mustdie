@@ -41,6 +41,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2012 news BARONESS: видео на &quot;Take My Bones Away&quot;
+
+<P><STRONG>"Take My Bones Away"</STRONG>, новое видео группы <STRONG>BARONESS</STRONG> с недавно вышедшего альбома <STRONG>"Yellow & Green"</STRONG>, доступно для просмотра ниже.</P>
+<CENTER>
+<SCRIPT src="http://player.ooyala.com/player.js?width=560&deepLinkEmbedCode=N3d2tmNTp3Xt9IH4D1xvT24CsXYwsfIt&height=338&video_pcode=0yM2U60KQrAwuh8NdPRT3oFbLqgw&embedCode=N3d2tmNTp3Xt9IH4D1xvT24CsXYwsfIt"></SCRIPT>
+</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -48,6 +48,45 @@ Haracio Colmanares  -  Vocal Producer
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.12.2001 news Перепробуждаясь...
+
+<p>Пауэрщики "Onward" анонсировали дату выхода альбома "Reawaken" - 19-е февраля. "Мы хотели что-нибудь дать людям, которые любят ездить со скоростью 150 км/ч..." - говорит вокалист Майкл Грант. "Существует очень много стилей которые не использовались длительное время. Мы хотим заново представить их для традиционного хэви метал, а не сегодняшнего пауэра. " Трек-лист: <BR><BR> "Reawaken Night"<BR> "The Seven Tides Of Labyrinthine" <BR> "Where Evil Follows" <BR> "Eye Of The Nightmare" <BR> "My Darkest Room" <BR> "In Due Time" <BR> "Clockwork Toy by Loudness" <BR> "Who Saw The Last Star Fall" <BR> "The Next Triumph; Part I: Remembrance Part II: Reawakening"</p>
+
+Автор: Yermola
+
+### 11.12.2001 news Reawaken...
+
+<p>Stateside power metal outfit Onward have announced the release date of their second album, Reawaken, as February 19. "We want to give something to the people who like to drive at 75 m.p.h. blasting their music with the windows rolled down, to wake them up again if they've been dormant," said Onward vocalist Michael Grant of the band's new album. "There are so many styles on this album that are vintage, that haven't been used in a long time. We want to re-introduce them to a traditional heavy metal that's not today's typical power metal. Toby's riffs don't waste any talent, and the vocals are meaner, richer, darker and much more layered. The last note I sang on Reawaken was the last third harmony on 'Clockwork Toy.' I really felt I had accomplished something when I nailed it..." <BR><BR> Guitarist and songwriter Toby Knapp followed his bandmate by saying: "We definitely wanted to use formulas that are older than what people are using today, because we're going in a different direction. We might be one of the few bands that still uses standard tuning instead of down-tuning. The production is more crisp and clear on Reawaken, and nothing gets lost. The creative floodgates really opened for this album, and it was painstakingly mixed to perfection...well, at least I hope it's perfection because I didn't sleep for weeks! [laughs] In many ways, this is our first real album for Century Media and it's more indicative of what we're capable of. We're hoping to tour the U.S., Europe and wherever we can go because we're ready to go to war with this." <BR><BR> The tracklisting for Reawaken is: <BR><BR> "Reawaken Night"<BR> "The Seven Tides Of Labyrinthine" <BR> "Where Evil Follows" <BR> "Eye Of The Nightmare" <BR> "My Darkest Room" <BR> "In Due Time" <BR> "Clockwork Toy by Loudness" <BR> "Who Saw The Last Star Fall" <BR> "The Next Triumph; Part I: Remembrance Part II: Reawakening." <BR><BR> Look for Onward's Reawaken on February 19, 2002 on Century Media Records.</p>
+
+Автор: Yermola
+
+### 21.02.2002 news График релизов CENTURY MEDIA.....
+
+<p>5-е февраля <BR> THE CROWN - The Burning (переиздание)<BR> THE CROWN - Eternal Death (переиздание)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (переиздание)<BR> WARMEN - Beyond Abilities<BR><BR> 19-е февраля<BR> ONWARD - Reawaken<BR><BR> 5-е марта<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (ограниченный тираж 3000 копий!)<BR><BR> 19-е марта<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> 2-е апреля<BR> ARCH ENEMY - Wages of Sin (с бонусами)<BR></p>
+
+Автор: Yermola
+
+### 21.02.2002 news CENTURY MEDIA Release Schedule....
+
+<p>February 5th <BR> THE CROWN - The Burning (reissue)<BR> THE CROWN - Eternal Death (reissue)<BR> SACRILEGE - Lost In The Beauty You Slay/The Fifth Season (2-on-1 reissue)<BR> WARMEN - Beyond Abilities<BR><BR> February 19th<BR> ONWARD - Reawaken<BR><BR> March 5th<BR> ROYAL HUNT - The Watchers<BR> ANGEL DUST - Of Human Bondage<BR> ICED EARTH - Dark Genesis (limited to 3000 copies)<BR><BR> March 19th<BR> BLIND GUARDIAN - A Night At The Opera<BR> DIMMU BORGIR - Stormblast<BR><BR> Apr. 2nd<BR> ARCH ENEMY - Wages of Sin (w/bonus disc)<BR></p>
+
+Автор: Yermola
+
+### 06.03.2002 reviews Повторное пробуждение
+
+<p>Повторное пробуждение. ONWARD совершенно неожиданно ворвались в металлический мир словно вихрь. Не успели слушатели отойти от ошеломительного дебютного альбома "Evermoving", как музыканты уже выпускают свое новейшее творение "Reawaken" наполненное виртуозным heavy metal в лучших традициях возрожденного жанра. ONWARD смешивает элементы классического power metal восьмидесятых с жесткими мощными гитарами, мрачной энергетикой, импровизационными соло и филигранной техникой с элементами традиционного современного power metal с клавишным рядом, зажигательными соло, хорошим высоким вокалом, броскими хорусами и высоким качеством записи. Материал группы довольно сложный и трудный, здесь очень много различных влияний не только от power metal, но и от progressive и от классического heavy metal. Это совершенно нетипичный power metal. Многим группа обязана таланту своего гитариста Toby Knapp'а, его работа на диске выше всяких похвал. Ну и чиcтый мужественный баритон Michael Grant'a тоже должен порадовать поклонников подобной музыки. На альбоме присутствует интесная кавер-версия Loudness “Clockwork Toy". Альбом из числа рекомендуемых к приобретению.</p>
+
+Автор: Dimas
+
+### 01.07.2003 news ONWARD распались
+
+<p>После двух довольно успешных альбомов распалась группа ONWARD. Но по обязательствам перед Century Media Records, группа должна выпустить третий альбом. Материал к нему уже записан, осталось его смикшировать. Он будет содержать 14 вещей, среди которых новые песни, неизданные вещи и парочка концертных.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

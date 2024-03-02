@@ -24,6 +24,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.03.2014 news GLAMOUR OF THE KILL: видеоклип на песню &quot;Freak Like Me&quot;
+
+<P>Английская metalcore банда&nbsp;<STRONG>GLAMOUR OF THE KILL</STRONG>, выпустила видеоклип на песню <STRONG>"Freak Like Me"</STRONG>. Данный трек вошёл на последнеий альбом группы, <STRONG>"Savages"</STRONG>, который увидел свет в сентябре прошлого года.</P>
+<P>Уже в грядущий понедельник (10 марта)&nbsp;группа&nbsp;<STRONG>GLAMOUR OF THE KILL </STRONG>выступит в московском клубе <STRONG>"Volta"</STRONG>. Польше подробностей об этом концерте, можно найти в разделе <STRONG>"Shows"</STRONG> нашего сайта: <A href="/ru/shows/#70101">http://musica.mustdie.ru/ru/shows/#70101</A></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/njUS0gsz6l0" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 
